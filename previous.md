@@ -1,3 +1,7 @@
+**The Supreme Court Is Less Divided Than You Think**\
+`On “The Opinions,” Justice Neil Gorsuch tells the Opinion columnist David French that despite their varied backgrounds, the Supreme Court justices often find more unity than division.`\
+https://www.nytimes.com/video/opinion/100000010878540/the-supreme-court-is-less-divided-than-you-think.html
+
 **With eBay Bid, GameStop C.E.O. Baffles His Fans and Wall Street**\
 `Investors questioned Ryan Cohen’s latest gambit after he gave an evasive CNBC interview and a once-loyal supporter sold his GameStop shares.`\
 https://www.nytimes.com/2026/05/06/business/ebay-gamestop-deal-ryan-cohen.html
@@ -11,7 +15,7 @@ https://www.nytimes.com/2026/05/06/us/politics/jack-bass-dead.html
 https://www.nytimes.com/2026/05/06/us/kash-patel-nancy-guthrie-arizona.html
 
 **U.S. Prosecutors Pull Out of Event in Sign of Rift With Legal Critics**\
-`Top federal prosecutors in New York withdrew from an annual event hosted by the city bar association, which has been critical of President Trump’s policies.`\
+`Top federal prosecutors in New York withdrew from an annual event hosted by the City Bar Association, which has been critical of President Trump’s policies.`\
 https://www.nytimes.com/2026/05/06/nyregion/nyc-bar-association-us-prosecutors-trump.html
 
 **The Moment That Bonded the Artemis II Crew Forever**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/06/sports/jim-loehr-dead.html
 **How the Fight Over Israel Is Playing Out Inside MAGA**\
 `The war in Iran has added to a tectonic shift in public opinion — a bipartisan swing away from Israel. Some on the far-right are fighting to keep President Trump’s movement aligned with the Jewish state.`\
 https://www.nytimes.com/2026/05/06/us/politics/israel-maga-republicans.html
-
-**California Gubernatorial Candidates Prepare for Another Crucial Debate Tonight**\
-`Seven candidates in the California governor’s race will face off at a debate hosted by NBC Los Angeles. The New York Times will livestream the event.`\
-https://www.nytimes.com/2026/05/06/us/california-governor-debate-newsletter.html
 

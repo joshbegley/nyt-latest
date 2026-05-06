@@ -1,3 +1,11 @@
+**The Supreme Court Is Less Divided Than You Think**\
+`On “The Opinions,” Justice Neil Gorsuch tells the Opinion columnist David French that despite their varied backgrounds, the Supreme Court justices often find more unity than division.`\
+https://www.nytimes.com/video/opinion/100000010878540/the-supreme-court-is-less-divided-than-you-think.html
+
+**U.S. Prosecutors Pull Out of Event in Sign of Rift With Legal Critics**\
+`Top federal prosecutors in New York withdrew from an annual event hosted by the City Bar Association, which has been critical of President Trump’s policies.`\
+https://www.nytimes.com/2026/05/06/nyregion/nyc-bar-association-us-prosecutors-trump.html
+
 **U.S. Prosecutors Pull Out of Event in Sign of Rift With Legal Critics**\
 `Top federal prosecutors in New York withdrew from an annual event hosted by the city bar association, which has been critical of President Trump’s policies.`\
 https://www.nytimes.com/2026/05/06/nyregion/nyc-bar-association-us-prosecutors-trump.html
