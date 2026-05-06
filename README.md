@@ -1,3 +1,7 @@
+**Una historia de amor turca, con cárcel, poesía y una hazaña aérea**\
+`Tras una confesión forzada y una condena a muerte, un poeta kurdo pasó 30 años en la cárcel, donde descubrió su voz. Su promotora literaria, para sorpresa de todos, se convirtió en su compañera de vida.`\
+https://www.nytimes.com/es/2026/05/06/espanol/mundo/ilhan-sami-comak-poeta.html
+
 **La solución infalible que Trump busca para poner fin a la guerra de Irán tal vez no exista**\
 `El presidente de EE. UU. intenta aumentar la presión económica sobre Teherán, pero es poco probable que el gobierno iraní acepte negociar sin un acuerdo significativo y digno.`\
 https://www.nytimes.com/es/2026/05/06/espanol/mundo/iran-guerra-tregua-trump.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/05/06/espanol/estados-unidos/montana-bisontes-tr
 **A Mistaken Guy: The 20-Year Legacy of a Live TV Blunder**\
 `Guy Goma thought he was interviewing for an I.T. job when he found himself on air on the BBC. What came next was familiar to anyone who has been unprepared at work.`\
 https://www.nytimes.com/2026/05/06/business/media/bbc-guy-goma-interview.html
-
-**Courting Anxious Allies, Japan Pitches Stability and Strength in Asia**\
-`Prime Minister Sanae Takaichi is attempting to raise Japan’s profile at a time when China’s clout is rising and doubts about the United States are spreading.`\
-https://www.nytimes.com/2026/05/06/world/asia/japan-takaichi-australia-vietnam.html
 
