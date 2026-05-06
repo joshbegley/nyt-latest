@@ -1,3 +1,7 @@
+**Crossing Guard Is Fatally Hit by Car in New Jersey While Escorting Children**\
+`Jean Schultz, 80, had been a crossing guard in Woodland Park since 2022. She died after she was struck by a vehicle on Monday, the authorities said.`\
+https://www.nytimes.com/2026/05/06/nyregion/new-jersey-crossing-guard-killed.html
+
 **Clavicular Charged With Shooting at Alligator While Livestreaming**\
 `The influencer, whose real name is Braden Eric Peters, fired 12 shots at the gator from an airboat in the Florida Everglades.`\
 https://www.nytimes.com/2026/05/06/us/clavicular-alligator-shooting-charges-florida.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/polls/new-york-us-house-13-polls-2026.html
 **New York 12th Congressional District 2026: Latest Polls**\
 `Track the latest polls in New York's 12th Congressional District.`\
 https://www.nytimes.com/interactive/polls/new-york-us-house-12-polls-2026.html
-
-**New York 10th Congressional District 2026: Latest Polls**\
-`Track the latest polls in New York's 10th Congressional District.`\
-https://www.nytimes.com/interactive/polls/new-york-us-house-10-polls-2026.html
 
