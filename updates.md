@@ -1,3 +1,15 @@
+**Justin Wolfers, Cable’s Favorite Economist, Joins the Creator Economy**\
+`With his crisp breakdowns of President Trump’s trade moves and distinctive Aussie accent, Mr. Wolfers has become a TV constant. Now he’s starting his own media company.`\
+https://www.nytimes.com/2026/05/06/business/dealbook/justin-wolfers-media-company.html
+
+**The New York Times Passes 13 Million Subscribers**\
+`The company’s adjusted operating profit hit $117.9 million in the quarter, up 27.2 percent from a year earlier, on revenue of $712.2 million.`\
+https://www.nytimes.com/2026/05/06/business/media/new-york-times-earnings.html
+
+**The Cruise From Hell**\
+`We look into the hantavirus crisis onboard the Hondius.`\
+https://www.nytimes.com/2026/05/06/briefing/the-cruise-from-hell.html
+
 **¿Puede Trump doblegar a Irán?**\
 `El presidente de Estados Unidos parece estar buscando una solución infalible para poner fin a la guerra, pero podría no existir ninguna.`\
 https://www.nytimes.com/es/2026/05/06/espanol/mundo/trump-guerra-iran.html
