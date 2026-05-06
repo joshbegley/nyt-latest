@@ -1,3 +1,47 @@
+**Hasta el papa debe lidiar con atención al cliente**\
+`Poco después de que Robert Prevost se convirtiera en el papa León XIV, tuvo que llamar a su banco. Esto es lo que pasó.`\
+https://www.nytimes.com/es/2026/05/06/espanol/estados-unidos/papa-leon-xiv-banco-atencion-cliente.html
+
+**Sick Passengers Evacuated From Ship With Hantavirus Outbreak**\
+`Three passengers with symptoms of hantavirus were evacuated from the MV Hondius cruise ship where an outbreak of the disease has killed three people and sickened five others since April 11.`\
+https://www.nytimes.com/video/world/100000010886240/hantavirus-cruise-ship-passengers-evacuations.html
+
+**Meditating or Rebooting? A Robot Buddhist Monk Comes to Korea.**\
+`Gabi, the newest monk at a temple in Seoul, vowed to not overcharge as it seeks enlightenment.`\
+https://www.nytimes.com/2026/05/06/technology/robot-monk-buddhist-seoul.html
+
+**South Korea’s First Robot Monk Joins Country’s Largest Buddhist Sect**\
+`Gabi is a robot monk and a new member of South Korea’s largest Buddhist sect. During a ceremony at the Jogye Temple in Seoul on Wednesday, the robot promised to follow orders and not hurt other robots.`\
+https://www.nytimes.com/video/world/asia/100000010886997/robot-monk-gabi-south-korea.html
+
+**Iran War Looms Over Vance as He Visits Iowa**\
+`The vice president, a skeptic of the war, made his first visit of the cycle to the state that will kick off the 2028 nominating process.`\
+https://www.nytimes.com/2026/05/06/us/politics/jd-vance-iowa-2028.html
+
+**Tomato and Orzo Soup With Marinated Feta**\
+`This is an easy tomato soup to whip up when tomatoes are out of season and tomato paste is in your pantry.`\
+https://www.nytimes.com/video/dining/100000010884560/tomato-and-orzo-soup-with-marinated-feta.html
+
+**Apple and Plum Croustade**\
+`A classic French double-layer pie, croustade is worth heating up your kitchen on a hot summer day and does not disappoint in its beautiful simplicity.`\
+https://www.nytimes.com/video/dining/100000010884556/apple-and-plum-croustade.html
+
+**Israel Strikes Beirut for First Time Since Cease-Fire**\
+`Israel struck Beirut’s southern outskirts on Wednesday for the first time since a cease-fire between Israel and Lebanon took effect last month.`\
+https://www.nytimes.com/video/world/middleeast/100000010887385/israel-lebanon-strike-beirut-ceasefire.html
+
+**Nearly 1,500 Beagles From Research Facility Will Get New Homes**\
+`About 1,500 beagles are scheduled to be removed from Ridglan Farms, a Wisconsin facility that breeds the dogs for biomedical research aimed at improving veterinary medicine, after a special prosecutor found it had performed procedures that constituted animal mistreatment. One rescue bought 1,000 of the dogs and is working on finding them homes.`\
+https://www.nytimes.com/video/us/100000010886317/beagles-research-facility-homes.html
+
+**Justice Dept. Accuses U.C.L.A. Medical School of Bias Against White and Asian Applicants**\
+`The finding stems from a 2023 Supreme Court decision that overturned race-conscious admissions. U.C.L.A. officials said the school accepts students on merit.`\
+https://www.nytimes.com/2026/05/06/us/politics/justice-department-ucla-medical-school-race-admissions.html
+
+**The Iran War and Angry Voters**\
+`Economic pain is pushing many Europeans to the nationalist right. Local elections in Britain should give clues about how many.`\
+https://www.nytimes.com/2026/05/06/world/britain-elections-far-right-europe-iran-deal.html
+
 **Jack Smith Calls the Justice Dept. ‘Corrupted’ by Trump and His Allies**\
 `At a private event in Washington last month, Mr. Smith, the former special counsel, accused Justice Department leaders of targeting people for prosecution to please and impress the president.`\
 https://www.nytimes.com/2026/05/06/us/politics/jack-smith-justice-dept-trump.html
