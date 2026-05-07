@@ -1,3 +1,11 @@
+**Tennessee Passes New Redistricting Map, Breaks Up State’s Lone Democratic District**\
+`Gov. Bill Lee of Tennessee signed a new congressional map into law on Thursday that slices up Memphis to scatter Black voters into neighboring districts, a move intended to eliminate the state’s last Democratic House seat.`\
+https://www.nytimes.com/video/us/100000010889726/tennessee-redistricting-congressional-map.html
+
+**La OMS anticipa brote ‘limitado’ de hantavirus mientras se busca a más infectados**\
+`Una azafata neerlandesa y un ciudadano francés han sido los últimos en someterse a pruebas en relación con un brote mortal en un crucero. Un análisis en Sudáfrica no mostró mutaciones en las muestras víricas.`\
+https://www.nytimes.com/es/2026/05/07/espanol/mundo/hantavirus-crucero-brote-infectados-oms.html
+
 **Millions for a Paint Job? Trump Wants the Eisenhower Building Painted White.**\
 `The project would transform the granite exterior of the historic Eisenhower Executive Office Building, which dates to the 1800s.`\
 https://www.nytimes.com/2026/05/07/us/politics/trump-paint-eisenhower-building.html
@@ -65,12 +73,4 @@ https://www.nytimes.com/2026/05/07/world/middleeast/iran-us-deal-proposal.html
 **Why America Is Removing So Many ‘Deadbeat’ Dams**\
 `States are recognizing the ecological benefits of ripping out dams and reconnecting rivers.`\
 https://www.nytimes.com/2026/05/07/climate/dam-removal-united-states.html
-
-**Defendant in Boulder Antisemitic Attack Is Sentenced to Life in Prison**\
-`Mohamed Sabry Soliman pleaded guilty to 101 charges, including one count of murder, after the firebombing attack in Colorado last June.`\
-https://www.nytimes.com/2026/05/07/us/colorado-attack-soliman-life-sentence.html
-
-**Appeals Court Looks Unlikely to Allow Hegseth to Punish Senator for Video**\
-`A three-judge panel in Washington heard arguments in the lawsuit aimed at stopping the Pentagon from disciplining Senator Mark Kelly for a video warning about illegal military orders.`\
-https://www.nytimes.com/2026/05/07/us/politics/mark-kelly-pete-hegseth-video-lawsuit.html
 
