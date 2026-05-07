@@ -1,3 +1,7 @@
+**Oil Prices Hold Steady as Iran Talks Remain Murky**\
+`Investors waited for news on the situation in the Middle East, as the U.S. and Iran gave mixed signals on peace negotiations.`\
+https://www.nytimes.com/2026/05/07/business/oil-gas-price-iran.html
+
 **Palabra del día: ‘entrepreneur’**\
 `Esta palabra ha aparecido en 536 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
 https://www.nytimes.com/es/2026/05/07/espanol/que-significa-entrepreneur.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/embedded/us/politics/100000010888133/watch-live-ca
 **A Times reporter in L.A. explains an unusual race.**\
 ``\
 https://www.nytimes.com/live/2026/05/06/us/california-governor-debate/a-times-reporter-in-la-explains-an-unusual-race
-
-**A Scaled-Back Celebration for Public Servants ‘in Trauma’**\
-`The Trump administration has eliminated more than 350,000 federal jobs. But an annual effort to inspire talented people to serve the public continues.`\
-https://www.nytimes.com/2026/05/06/us/politics/public-servants-awards.html
 
