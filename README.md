@@ -1,3 +1,7 @@
+**These Toilets in Venice Have the Art World Aflush**\
+`Undoubtedly the biggest talker at this year’s Venice Biennale is the Austrian pavilion, where visitors can make their own contributions to the work on show.`\
+https://www.nytimes.com/2026/05/07/arts/design/venice-biennale-austria-florentina-holzinger.html
+
 **China Sentences 2 Former Defense Ministers on Bribery Charges**\
 `Gen. Wei Fenghe and Gen. Li Shangfu are likely to spend the rest of their lives in prison after receiving suspended death sentences.`\
 https://www.nytimes.com/2026/05/07/world/asia/china-ministers-death-sentences-military-corruption.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/07/podcasts/share-anti-pulitzer-tell-with-michae
 **Voters Exposed the Limits of China’s Cozy Ties to Orban**\
 `Beijing depended on Hungary’s outgoing leader, Viktor Orban, to gain a toehold in Europe. A giant battery factory proved a step too far.`\
 https://www.nytimes.com/2026/05/07/world/europe/hungary-orban-china-fidesz-magyar.html
-
-**Lula va la Casa Blanca después de meses de tensiones con Trump**\
-`Los presidentes de los dos países más poblados de América se reunirán el jueves en Washington para discutir asuntos de seguridad, comercio y minerales críticos.`\
-https://www.nytimes.com/es/2026/05/07/espanol/america-latina/lula-trump-visita-casa-blanca.html
 

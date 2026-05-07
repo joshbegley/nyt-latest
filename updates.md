@@ -1,3 +1,7 @@
+**China Sentences 2 Former Defense Ministers on Bribery Charges**\
+`Gen. Wei Fenghe and Gen. Li Shangfu are likely to spend the rest of their lives in prison after receiving suspended death sentences.`\
+https://www.nytimes.com/2026/05/07/world/asia/china-ministers-death-sentences-military-corruption.html
+
 **Why Investors Are Still Betting Big on Kalshi**\
 `The popular prediction market platform has just raised a new funding round that values it at $22 billion, double what it was worth in December.`\
 https://www.nytimes.com/2026/05/07/business/dealbook/kalshi-funding-prediction-market.html
