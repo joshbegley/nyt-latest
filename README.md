@@ -1,3 +1,7 @@
+**A Times reporter in L.A. explains an unusual race.**\
+``\
+https://www.nytimes.com/live/2026/05/06/us/california-governor-debate/a-times-reporter-in-la-explains-an-unusual-race
+
 **A Scaled-Back Celebration for Public Servants ‘in Trauma’**\
 `The Trump administration has eliminated more than 350,000 federal jobs. But an annual effort to inspire talented people to serve the public continues.`\
 https://www.nytimes.com/2026/05/06/us/politics/public-servants-awards.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/05/06/espanol/america-latina/hotel-marriot-carac
 **Trump’s Indiana Victory Shows His Enduring Grip on Core Republican Supporters**\
 `Low approval ratings? MAGA divisions? The president was able to turn out party loyalists in an Indiana primary to help him oust Republican state lawmakers who had crossed him.`\
 https://www.nytimes.com/2026/05/06/us/politics/trump-indiana-republican-base.html
-
-**Los candidatos respaldados por Trump se imponen en las primarias de Indiana**\
-`El presidente apoyó a los adversarios de siete legisladores republicanos que se opusieron a su iniciativa de redistribución de distritos. Al menos cinco ganaron sus elecciones.`\
-https://www.nytimes.com/es/2026/05/06/espanol/estados-unidos/elecciones-primarias-indiana-resultados.html
 
