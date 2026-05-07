@@ -1,3 +1,19 @@
+**Un plutino sorprende a los astrónomos con indicios de una atmósfera en el borde del sistema solar**\
+`Un pequeño mundo helado que está más lejos del Sol que Plutón parece tener atmósfera, según un nuevo estudio. La observación ha sorprendido a los astrónomos.`\
+https://www.nytimes.com/es/2026/05/07/espanol/ciencia-y-tecnologia/plutino-atmosfera-astronomia-pluton.html
+
+**Surprising Signs of an Atmosphere Around a Tiny World, Billions of Miles Away**\
+`A gradual dimming and brightening when a star passed behind it suggested the mini-Pluto was wrapped in a thin layer of air.`\
+https://www.nytimes.com/2026/05/07/science/plutino-atmosphere-astronomy-pluto.html
+
+**Las elecciones en el Reino Unido pueden revelar un deteriorado sistema político**\
+`Las encuestas predicen pérdidas para el Partido Laborista del primer ministro Keir Starmer, mientras Reform UK, un partido antiinmigración, gana terreno y se perfila una nueva era multipartidista.`\
+https://www.nytimes.com/es/2026/05/07/espanol/mundo/elecciones-reino-unido-analisis-resultados.html
+
+**Data Suggests Struggle in Cockpit Before Deadly China Eastern Plane Crash**\
+`A report by the U.S. National Transportation Safety Board offers new details about the China Eastern Airlines crash in 2022, which killed all 132 people on board.`\
+https://www.nytimes.com/2026/05/07/world/asia/china-eastern-plane-crash-flight-5735-ntsb.html
+
 **Who Are You Getting Your Health Advice From?**\
 `Half of U.S. adults under 50 now get wellness advice from influencers. A new report examines their qualifications.`\
 https://www.nytimes.com/2026/05/07/well/health-wellness-influencers-pew.html
