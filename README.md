@@ -1,3 +1,7 @@
+**Voters Exposed the Limits of China’s Cozy Ties to Orban**\
+`Beijing depended on Hungary’s outgoing leader, Viktor Orban, to gain a toehold in Europe. A giant battery factory proved a step too far.`\
+https://www.nytimes.com/2026/05/07/world/europe/hungary-orban-china-fidesz-magyar.html
+
 **Lula va la Casa Blanca después de meses de tensiones con Trump**\
 `Los presidentes de los dos países más poblados de América se reunirán el jueves en Washington para discutir asuntos de seguridad, comercio y minerales críticos.`\
 https://www.nytimes.com/es/2026/05/07/espanol/america-latina/lula-trump-visita-casa-blanca.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/07/opinion/birthrate-kids-parents-demographics-f
 **We Defend Our ‘Greatest Songwriters’ List**\
 `And … admit some regrets.`\
 https://www.nytimes.com/2026/05/07/podcasts/cannonball-songwriters.html
-
-**A Legendary Investor on How to Prevent America’s Coming ‘Heart Attack’**\
-`Why Ray Dalio is bearish on the U.S.`\
-https://www.nytimes.com/video/opinion/100000010875112/a-legendary-investor-on-how-to-prevent-americas-coming-heart-attack.html
 
