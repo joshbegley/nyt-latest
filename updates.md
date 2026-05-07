@@ -1,3 +1,27 @@
+**What the End of Spirit Airlines Means for the Future of Flying**\
+`Spirit Airlines reshaped aviation in the United States, but it became a victim of the rising costs it once excelled at controlling.`\
+https://www.nytimes.com/2026/05/07/podcasts/the-daily/spirit-airlines-flying.html
+
+**Surging Gas Prices Shake Americans, and How Ted Turner Unleashed 24-Hour News**\
+`Plus, the conflicting messages on the state of the war.`\
+https://www.nytimes.com/2026/05/07/podcasts/the-headlines/high-gas-prices-cnn-legacy.html
+
+**Connections Companion No. 1,062**\
+`Scroll down for hints and conversation about the puzzle for Friday, May 8, 2026.`\
+https://www.nytimes.com/2026/05/07/crosswords/connections-companion-1062.html
+
+**Strands Sidekick No. 796**\
+`Scroll down for hints and conversation about the puzzle for Friday, May 8, 2026.`\
+https://www.nytimes.com/2026/05/07/crosswords/strands-sidekick-796.html
+
+**Wordle Review No. 1,784**\
+`Scroll down for hints and conversation about the puzzle for Friday, May 8, 2026.`\
+https://www.nytimes.com/2026/05/07/crosswords/wordle-review-1784.html
+
+**They Never Knew a World Before Smartphones. Could They Survive Without Them?**\
+`For three weeks, thousands of children in Europe went without social media or their smartphones, or both. This is the diary of their digital detox.`\
+https://www.nytimes.com/2026/05/07/world/europe/smartphones-austria-children-experiment.html
+
 **Why So Few Babies? We Might Have Overlooked the Biggest Reason of All.**\
 `We can’t be certain — and that’s the point.`\
 https://www.nytimes.com/2026/05/07/opinion/birthrate-kids-parents-demographics-future.html
