@@ -1,3 +1,7 @@
+**Court Rules Against Trump’s 10% Tariff**\
+`Also, the U.S. and Iran exchange fire. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/05/07/briefing/trade-court-trump-tariffs.html
+
 **Tennessee Passes New Redistricting Map, Breaks Up State’s Lone Democratic District**\
 `Gov. Bill Lee of Tennessee signed a new congressional map into law on Thursday that slices up Memphis to scatter Black voters into neighboring districts, a move intended to eliminate the state’s last Democratic House seat.`\
 https://www.nytimes.com/video/us/100000010889726/tennessee-redistricting-congressional-map.html
@@ -69,8 +73,4 @@ https://www.nytimes.com/2026/05/07/dining/three-different-eras-of-frozen-yogurt.
 **Iran and U.S. Consider One-Page Plan to End Hostilities, Iranian Officials Say**\
 `The plan would reopen the Strait of Hormuz and give the two countries 30 days to hammer out a comprehensive deal, according to three Iranian officials.`\
 https://www.nytimes.com/2026/05/07/world/middleeast/iran-us-deal-proposal.html
-
-**Why America Is Removing So Many ‘Deadbeat’ Dams**\
-`States are recognizing the ecological benefits of ripping out dams and reconnecting rivers.`\
-https://www.nytimes.com/2026/05/07/climate/dam-removal-united-states.html
 
