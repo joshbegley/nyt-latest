@@ -1,3 +1,15 @@
+**Trump Administration Lifts Ban on ‘Cyanide Bombs’ on Public Lands**\
+`The Bureau of Land Management will allow the use of the spring-loaded traps, which can kill coyotes and other animals that prey on livestock.`\
+https://www.nytimes.com/2026/05/07/climate/cyanide-bombs-public-lands.html
+
+**Creamy Cottage Cheese Basil Pasta**\
+`This one-pot pasta marries the vivid herbaceousness of pesto with the creaminess of Alfredo.`\
+https://www.nytimes.com/video/dining/100000010884563/creamy-cottage-cheese-basil-pasta.html
+
+**Hellbender’s Masa Pancakes**\
+`The chef Yara Herrera is clear: “I didn’t invent the idea of a masa pancake.” But she perfected the form at Hellbender restaurant in Ridgewood, Queens, where the theme of native heirloom corn runs through the tacos and tostadas on the menu.`\
+https://www.nytimes.com/video/dining/100000010884558/hellbenders-masa-pancakes.html
+
 **Spinach Meatballs With Pasta**\
 `Adding frozen chopped spinach to your meatballs to “stretch” the meat further isn’t just kind to your pocketbook — it also makes for a better meatball. The spinach brings moisture to the mix of beef and pork, which leads to a more tender and juicy meatball.`\
 https://www.nytimes.com/video/dining/100000010884567/spinach-meatballs-with-pasta.html
@@ -61,16 +73,4 @@ https://www.nytimes.com/2026/05/07/opinion/strangers-conversation.html
 **At the Cannes Film Festival, This Hotel Celebrates With a Drink**\
 `For the past decade, the Hôtel Barrière Le Majestic, close enough to the action that guests can see stars arrive, has offered a colorful cocktail to honor the event.`\
 https://www.nytimes.com/2026/05/07/movies/cannes-film-festival-hotel-drink.html
-
-**At Cannes, French Cinema is Front and Center**\
-`Frenchness is a common theme among the films selected to open the festival. The opener also premieres in hundreds of theaters across France the day the festival begins.`\
-https://www.nytimes.com/2026/05/07/movies/cannes-film-festival-opening-films.html
-
-**A Place for Monks, Salsa Dancers and Movie Lovers Is Now a Hotel**\
-`In Cartagena, Colombia, historic buildings, including a monastery and a nightclub, were transformed into a Four Seasons.`\
-https://www.nytimes.com/2026/05/07/style/club-cartegena-four-seasons.html
-
-**House Republican Proposes Bill to Wind Down the Iran War**\
-`Representative Tom Barrett, a Michigan Republican facing a tough re-election race, introduced a bill to impose limits on the use of military force in Iran and end the fighting this summer.`\
-https://www.nytimes.com/2026/05/07/us/politics/house-republican-bill-iran-war-tom-barrett.html
 

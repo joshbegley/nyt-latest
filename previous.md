@@ -1,3 +1,23 @@
+**Spinach Meatballs With Pasta**\
+`Adding frozen chopped spinach to your meatballs to “stretch” the meat further isn’t just kind to your pocketbook — it also makes for a better meatball. The spinach brings moisture to the mix of beef and pork, which leads to a more tender and juicy meatball.`\
+https://www.nytimes.com/video/dining/100000010884567/spinach-meatballs-with-pasta.html
+
+**Art Opportunities Abound on Campuses Outside of New York City**\
+`Academic museums at Princeton, Yale, Cornell and Skidmore have organized several standout exhibitions, worth a venture beyond TEFAF New York.`\
+https://www.nytimes.com/2026/05/07/arts/design/tefafny-art-campuses.html
+
+**Despite Uncertainty, New York Art Dealers Are Optimistic — and Swinging for the Fences**\
+`This May, big-ticket items, and numerous major private collections, will be on offer and provide a major test of the market in a chaotic time.`\
+https://www.nytimes.com/2026/05/07/arts/design/new-york-art-market-may-auctions.html
+
+**Tennessee Approves New Map Aimed at Flipping the Last Democratic Seat**\
+`After a Supreme Court ruling that weakened the Voting Rights Act of 1965, Republicans carved up a majority-Black Memphis seat as the national redistricting wars continue.`\
+https://www.nytimes.com/2026/05/07/us/elections/tennessee-house-redistricting.html
+
+**Man Arrested on Suspicion of Carrying Weapon Near Former Prince Andrew’s Home**\
+`The police in Britain said that a suspect was in custody after reports he had behaved in an “intimidating manner.”`\
+https://www.nytimes.com/2026/05/07/world/europe/prince-andrew-suspect-arrest-sandringham.html
+
 **7 New Books We Love This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/05/07/books/review/new-recommended-books.html
@@ -53,24 +73,4 @@ https://www.nytimes.com/2026/05/07/style/club-cartegena-four-seasons.html
 **House Republican Proposes Bill to Wind Down the Iran War**\
 `Representative Tom Barrett, a Michigan Republican facing a tough re-election race, introduced a bill to impose limits on the use of military force in Iran and end the fighting this summer.`\
 https://www.nytimes.com/2026/05/07/us/politics/house-republican-bill-iran-war-tom-barrett.html
-
-**This Film Provides a Trapezoidal Window Into Former Pizza Huts**\
-`A documentary about the popular chain presents its repurposed buildings as protective shells where new businesses can grow.`\
-https://www.nytimes.com/2026/05/07/movies/pizza-hut-architecture-documentary.html
-
-**Giuliani busca que su atención médica esté cubierta por el programa del 11-S**\
-`El exalcalde de Nueva York, que está mejorando tras un grave caso de neumonía, padece una afección respiratoria relacionada con su exposición a toxinas en la zona cero, dice su portavoz.`\
-https://www.nytimes.com/es/2026/05/07/espanol/estados-unidos/rudy-giuliani-neumonia-11-septiembre.html
-
-**Platner and Collins Begin Their Duel in the Maine Senate Race**\
-`In strikingly different ads, Graham Platner argued that “Susan Collins’s charade is over” while Senator Collins highlighted the economic benefits she has brought to Maine.`\
-https://www.nytimes.com/2026/05/07/us/politics/platner-collins-maine-senate-ads.html
-
-**Hantavirus Response Shows How Trump Cuts Have Compromised U.S. Preparedness**\
-`The Trump administration has slashed funding for infectious disease research and has far fewer employees, including disease detectives, to respond to outbreaks.`\
-https://www.nytimes.com/2026/05/07/health/hantavirus-americans-cdc.html
-
-**Las autoridades de salud de EE. UU. vigilan a pasajeros del crucero infectado por hantavirus**\
-`Residentes en Georgia, California y Arizona son vigilados tras estar a bordo del crucero en el que se produjo un brote mortal del virus. Ninguno ha mostrado síntomas, según las autoridades.`\
-https://www.nytimes.com/es/2026/05/07/espanol/estados-unidos/hantavirus-casos.html
 
