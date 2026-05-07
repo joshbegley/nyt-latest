@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/05/06/us/california-governor-debate/what-to-know-and-how-to-watch
+
 **Pacientes de hantavirus aterrizan en Ámsterdam. Se planean más evacuaciones del crucero**\
 `Se ofrecerá a los pasajeros de otros países de la Unión Europea la posibilidad de evacuar a sus propios ciudadanos, según un portavoz del Ministerio de Salud español.`\
 https://www.nytimes.com/es/2026/05/06/espanol/hantavirus-pacientes-evacuados.html
