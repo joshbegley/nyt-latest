@@ -1,3 +1,11 @@
+**Would You Spend $4,350 on a White Shirt?**\
+`A roundup of the best button-ups, from easy wardrobe staples to styles that make more of a statement.`\
+https://www.nytimes.com/2026/05/07/t-magazine/best-white-button-down-shirts.html
+
+**Did This Appeals Court Go Rogue on Abortion Pills?**\
+`The Fifth Circuit, reversed more than any other appeals court, has a reputation for taking extreme positions.`\
+https://www.nytimes.com/2026/05/07/us/politics/the-docket-abortion-pills.html
+
 **As U.S. Debt Hits a Worrying Milestone, Washington Barely Notices**\
 `The debt is outgrowing the size of America’s economy. The president’s policies could accelerate the country’s fiscal headaches, experts say, unless policymakers intervene.`\
 https://www.nytimes.com/2026/05/07/business/us-debt-trump-policies-budget.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/07/science/plutino-atmosphere-astronomy-pluto.ht
 **Las elecciones en el Reino Unido pueden revelar un deteriorado sistema político**\
 `Las encuestas predicen pérdidas para el Partido Laborista del primer ministro Keir Starmer, mientras Reform UK, un partido antiinmigración, gana terreno y se perfila una nueva era multipartidista.`\
 https://www.nytimes.com/es/2026/05/07/espanol/mundo/elecciones-reino-unido-analisis-resultados.html
-
-**Data Suggests Struggle in Cockpit Before Deadly China Eastern Plane Crash**\
-`A report by the U.S. National Transportation Safety Board offers new details about the China Eastern Airlines crash in 2022, which killed all 132 people on board.`\
-https://www.nytimes.com/2026/05/07/world/asia/china-eastern-plane-crash-flight-5735-ntsb.html
-
-**Who Are You Getting Your Health Advice From?**\
-`Half of U.S. adults under 50 now get wellness advice from influencers. A new report examines their qualifications.`\
-https://www.nytimes.com/2026/05/07/well/health-wellness-influencers-pew.html
 

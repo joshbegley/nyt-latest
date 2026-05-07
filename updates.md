@@ -1,3 +1,31 @@
+**As U.S. Debt Hits a Worrying Milestone, Washington Barely Notices**\
+`The debt is outgrowing the size of America’s economy. The president’s policies could accelerate the country’s fiscal headaches, experts say, unless policymakers intervene.`\
+https://www.nytimes.com/2026/05/07/business/us-debt-trump-policies-budget.html
+
+**Why Trump’s Feud With the Pope Worries Republicans**\
+`Our national political correspondent Lisa Lerer explains the impact of President Trump’s spate of attacks against Pope Leo XIV ahead of the closely contested midterm elections.`\
+https://www.nytimes.com/video/us/politics/100000010886966/trump-fight-pope-leo-impact-republicans-midterms.html
+
+**Elon Musk’s SpaceX Plans $55 Billion Investment to Make A.I. Chips**\
+`The rocket company’s new semiconductor factory, called Terafab, is part of the billionaire’s increasing efforts to dominate artificial intelligence.`\
+https://www.nytimes.com/2026/05/07/business/spacex-chips-terafab.html
+
+**Mayor of Charlotte, N.C., Says She Will Resign Next Month**\
+`Mayor Vi Lyles did not fully explain why she would leave office early, saying only that she wanted to spend more time with family.`\
+https://www.nytimes.com/2026/05/07/us/charlotte-mayor-vi-lyles-resignation.html
+
+**Stocks Are Exuberant. Bonds Are Subdued. Why the Divergence?**\
+`Stock investors are betting that companies will make enormous profits, despite the war. But investors in bonds, including U.S. Treasuries, have other concerns.`\
+https://www.nytimes.com/2026/05/07/business/stocks-bonds-markets-iran-war.html
+
+**Tennessee Republicans Aim to Break Up State’s Lone Democratic District**\
+`Protesters denounced a redistricting effort led by Tennessee Republicans that would slice up Memphis, a majority-Black city, and Shelby County into three districts. The new congressional map would threaten Democrats’ hold on their lone remaining seat in the state.`\
+https://www.nytimes.com/video/us/politics/100000010888734/tennessee-republicans-congressional-map-memphis.html
+
+**Federal and State Officials Discuss Closing Florida’s ‘Alligator Alcatraz’**\
+`The immigrant detention center in the Everglades, which Gov. Ron DeSantis, a Republican, opened last July, may be too expensive to keep operating.`\
+https://www.nytimes.com/2026/05/07/us/florida-alligator-alcatraz-possible-closure.html
+
 **Federal and State Officials Discuss Closing Florida’s ‘Alligator Alcatraz’**\
 `The immigrant detention center in the Everglades, which Gov. Ron DeSantis, a Republican, opened last July, may be too expensive to keep operating.`\
 https://www.nytimes.com/2026/05/07/us/federal-and-state-officials-consider-closing-floridas-alligator-alcatraz.html
