@@ -1,3 +1,15 @@
+**Health Authorities Monitor Hantavirus Cruise Passengers in United States**\
+`People in at least three states are being monitored after being on the ship. None have shown symptoms, officials said.`\
+https://www.nytimes.com/2026/05/06/us/hantavirus-cruise-us-passengers.html
+
+**Here’s what to know about the California governor race.**\
+``\
+https://www.nytimes.com/live/2026/05/06/us/california-governor-debate/heres-what-to-know-about-the-california-governor-race
+
+**What to know and how to watch.**\
+``\
+https://www.nytimes.com/live/2026/05/06/us/california-governor-debate/what-to-know-and-how-to-watch
+
 **Trump’s Gyrations on the War Leave Even Rubio Out of Sync**\
 `The administration’s latest shifts on the status of the conflict show how treacherous it is to speak for a president who cultivates an erratic style.`\
 https://www.nytimes.com/2026/05/06/us/politics/trump-rubio-iran-war.html
@@ -65,12 +77,4 @@ https://www.nytimes.com/2026/05/06/style/chris-smalls-amazon-met-gala-arrest.htm
 **Iran Is Reviewing a U.S. Peace Proposal**\
 `Also, Ted Turner died at 87. Here’s the latest at the end of Wednesday.`\
 https://www.nytimes.com/2026/05/06/briefing/iran-us-proposal-ted-turner-dies.html
-
-**Video Shows a Jet Ski Collide With a Grey Whale**\
-`Canada’s Department of Fisheries and Oceans is investigating after a person driving a jet ski struck a grey whale off the coast of Vancouver. Emergency service officials say the operator of the watercraft was transported to the hospital in serious but stable condition.`\
-https://www.nytimes.com/video/world/canada/100000010886975/whale-jet-ski-crash-video-vancouver.html
-
-**Air-Conditioning Is in Short Supply as Asia Swelters**\
-`From classrooms to crowded buses, people across South and Southeast Asia are adjusting to life with less cooling — or none at all — as the war in Iran drives an energy crunch.`\
-https://www.nytimes.com/2026/05/06/world/asia/asia-heatwave-air-conditioning-fuel-crisis.html
 
