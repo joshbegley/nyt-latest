@@ -1,3 +1,19 @@
+**ICE Agents Barred From Wearing Masks in New York Under State Budget Deal**\
+`State and local officials will also be prohibited from formally cooperating with Immigrations and Customs Enforcement under the agreement.`\
+https://www.nytimes.com/2026/05/07/nyregion/ice-masks-hochul-ny.html
+
+**New York’s $268 Billion Budget Deal Includes New Second-Home Tax**\
+`Gov. Kathy Hochul announced a handshake budget deal with state lawmakers that also seeks to push back on federal immigration enforcement in the state.`\
+https://www.nytimes.com/2026/05/07/nyregion/hochul-taxes-budget-ny.html
+
+**Shell Reports Nearly $7 Billion Profit Amid ‘Unprecedented Disruption’**\
+`The oil giant’s earnings in the first three months of the year were more than double the previous quarter’s and follow similarly strong results of European rivals.`\
+https://www.nytimes.com/2026/05/07/business/shell-profit-oil-iran-war.html
+
+**Here’s the latest.**\
+`The spokesman for Iran’s foreign ministry, Esmail Baghaei, said late Wednesday that his government was reviewing an American response to a 14-point Iranian proposal to end the war and would give its response to Pakistan, a key mediator.`\
+https://www.nytimes.com/live/2026/05/07/world/iran-trump-hormuz-peace-deal/iran-war-us-peace-plan-trump
+
 **Is the Blake Lively v. Justin Baldoni Legal Fight Over? Not So Fast.**\
 `Lawyers for Ms. Lively and Mr. Baldoni have said the two sides settled much of the contentious dispute. But one major disagreement remains.`\
 https://www.nytimes.com/2026/05/07/movies/blake-lively-justin-baldoni-settlement-defamation.html

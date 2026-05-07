@@ -1,9 +1,13 @@
+**ICE Agents Barred From Wearing Masks in New York Under State Budget Deal**\
+`State and local officials will also be prohibited from formally cooperating with Immigrations and Customs Enforcement under the agreement.`\
+https://www.nytimes.com/2026/05/07/nyregion/ice-masks-hochul-ny.html
+
 **Is the Blake Lively v. Justin Baldoni Legal Fight Over? Not So Fast.**\
 `Lawyers for Ms. Lively and Mr. Baldoni have said the two sides settled much of the contentious dispute. But one major disagreement remains.`\
 https://www.nytimes.com/2026/05/07/movies/blake-lively-justin-baldoni-settlement-defamation.html
 
 **New York’s $268 Billion Budget Deal Includes New Second-Home Tax**\
-`Gov. Kathy Hochul announced a handshake budget deal with state lawmakers that also seeks to push back federal immigration enforcement in the state.`\
+`Gov. Kathy Hochul announced a handshake budget deal with state lawmakers that also seeks to push back on federal immigration enforcement in the state.`\
 https://www.nytimes.com/2026/05/07/nyregion/hochul-taxes-budget-ny.html
 
 **Russia Ramps Up Threats Toward Ukraine Over Victory Day Parade**\
@@ -19,7 +23,7 @@ https://www.nytimes.com/2026/05/07/world/europe/tourist-pool-loungers-refund-ger
 https://www.nytimes.com/2026/05/07/movies/billie-eilish-hit-me-hard-and-soft-the-tour-review.html
 
 **Shell Reports Nearly $7 Billion Profit Amid ‘Unprecedented Disruption’**\
-`The oil giant’s earnings in the first three months of the year were more than double the previous quarter’s and followed similarly strong results of European rivals.`\
+`The oil giant’s earnings in the first three months of the year were more than double the previous quarter’s and follow similarly strong results of European rivals.`\
 https://www.nytimes.com/2026/05/07/business/shell-profit-oil-iran-war.html
 
 **These Toilets in Venice Have the Art World Aflush**\
@@ -66,15 +70,11 @@ https://www.nytimes.com/2026/05/07/arts/design/venice-biennale-us-pavilion.html
 `El malestar económico está empujando a muchos europeos hacia la derecha nacionalista. Las elecciones locales en el Reino Unido deberían darnos una idea de cuántos.`\
 https://www.nytimes.com/es/2026/05/07/espanol/mundo/guerra-iran-votantes-europa.html
 
-**World in Waiting Game Over Iran Peace Proposal Response**\
-`An Iranian official said that Tehran would convey its reply through Pakistan, a key mediator. Another Iranian official earlier dismissed a reported proposal to end the war as a “list of American wishes.”`\
+**Here’s the latest.**\
+`The spokesman for Iran’s foreign ministry, Esmail Baghaei, said late Wednesday that his government was reviewing an American response to a 14-point Iranian proposal to end the war and would give its response to Pakistan, a key mediator.`\
 https://www.nytimes.com/live/2026/05/07/world/iran-trump-hormuz-peace-deal/iran-war-us-peace-plan-trump
 
 **What the End of Spirit Airlines Means for the Future of Flying**\
 `Spirit Airlines reshaped aviation in the United States, but it became a victim of the rising costs it once excelled at controlling.`\
 https://www.nytimes.com/2026/05/07/podcasts/the-daily/spirit-airlines-flying.html
-
-**Surging Gas Prices Shake Americans, and How Ted Turner Unleashed 24-Hour News**\
-`Plus, the conflicting messages on the state of the war.`\
-https://www.nytimes.com/2026/05/07/podcasts/the-headlines/high-gas-prices-cnn-legacy.html
 

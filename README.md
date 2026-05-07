@@ -1,3 +1,7 @@
+**Who Are You Getting Your Health Advice From?**\
+`Half of U.S. adults under 50 now get wellness advice from influencers. A new report examines their qualifications.`\
+https://www.nytimes.com/2026/05/07/well/who-are-you-getting-your-health-advice-from.html
+
 **ICE Agents Barred From Wearing Masks in New York Under State Budget Deal**\
 `State and local officials will also be prohibited from formally cooperating with Immigrations and Customs Enforcement under the agreement.`\
 https://www.nytimes.com/2026/05/07/nyregion/ice-masks-hochul-ny.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/05/07/espanol/mundo/guerra-iran-votantes-europa.
 **Here’s the latest.**\
 `The spokesman for Iran’s foreign ministry, Esmail Baghaei, said late Wednesday that his government was reviewing an American response to a 14-point Iranian proposal to end the war and would give its response to Pakistan, a key mediator.`\
 https://www.nytimes.com/live/2026/05/07/world/iran-trump-hormuz-peace-deal/iran-war-us-peace-plan-trump
-
-**What the End of Spirit Airlines Means for the Future of Flying**\
-`Spirit Airlines reshaped aviation in the United States, but it became a victim of the rising costs it once excelled at controlling.`\
-https://www.nytimes.com/2026/05/07/podcasts/the-daily/spirit-airlines-flying.html
 
