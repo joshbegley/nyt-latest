@@ -1,3 +1,15 @@
+**Of Marble and Millionaires: A Stroll Through New York’s Gilded Age History**\
+`Yes, some memorable mansions were lost to the vagaries of expenses and development, but many remain — and some are even open to the public. A walking guide.`\
+https://www.nytimes.com/2026/05/07/arts/design/new-york-gilded-age-walking-tour.html
+
+**U.S. and Iran Trade Strikes as Tensions in Strait of Hormuz Rise**\
+`The escalating attacks raise the threat that the cease-fire could break down.`\
+https://www.nytimes.com/2026/05/07/world/middleeast/us-iran-trade-strikes-hormuz.html
+
+**A Question for Dealers: Show Solo Artists at Fairs or Group Exhibitions?**\
+`The decision can vary from fair to fair but sometimes solo booths can help visitors focus their attention on a single artist, rather than being overwhelmed by the art of many.`\
+https://www.nytimes.com/2026/05/07/arts/design/fairs-solo-shows-group-exhibitions.html
+
 **From France to the U.S., an Exhibition on the Luxury Ties That Bind**\
 `Dozens of French luxury houses and institutions will converge on Manhattan for the cross-cultural exhibition “Hidden Treasures: 250 Years of Franco-American Luxury Stories.”`\
 https://www.nytimes.com/2026/05/07/arts/design/france-luxury-exhibition-new-york.html
@@ -35,7 +47,7 @@ https://www.nytimes.com/2026/05/07/us/politics/special-counsel-lawyer-misconduct
 https://www.nytimes.com/2026/05/07/us/ilhan-omar-syringe-attack-guilty-plea.html
 
 **Trade Court Rules Trump’s 10% Global Tariff Is Illegal**\
-`A panel of federal judges blocked President Trump from imposing the tariff on most imports.`\
+`A panel of federal judges found that President Trump could not legally impose the tariff on most imports.`\
 https://www.nytimes.com/2026/05/07/business/economy/trump-global-tariff-ruled-illegal.html
 
 **YouTuber Recounts Moment Captain Announces Deaths on MV Hondius**\
@@ -61,16 +73,4 @@ https://www.nytimes.com/video/world/europe/100000010888858/uk-local-elections-st
 **As Stockpiles Fall, U.S. Sells More Missiles Worth $17 Billion to Gulf Nations**\
 `The United States and its partners have burned through an enormous amount of air defense missiles in the Iran war, and production is slow.`\
 https://www.nytimes.com/2026/05/07/us/politics/weapons-stockpiles-iran-war.html
-
-**Art Gallery Shows to See in May**\
-`This week in Newly Reviewed, Will Heinrich covers Ceija Stojka’s naïve expressionism, Mao Ishikawa’s sprawling bodies and a reinstallation of an important show by Peter Hujar.`\
-https://www.nytimes.com/2026/05/07/arts/art-gallery-shows-to-see-in-may.html
-
-**Manuela Hoelterhoff, Pulitzer-Winning Arts Critic, Dies at 77**\
-`She won the top journalism honor for criticism while with The Wall Street Journal. She later wrote a wry, perceptive book about the backstage world of opera.`\
-https://www.nytimes.com/2026/05/07/arts/music/manuela-hoelterhoff-dead.html
-
-**The Voting Rights Act Changed America. Now, It Can Change.**\
-`Do we care when other groups can’t elect their favorite candidates?`\
-https://www.nytimes.com/2026/05/07/opinion/voting-rights-act-america.html
 

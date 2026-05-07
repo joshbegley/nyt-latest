@@ -1,3 +1,15 @@
+**From France to the U.S., an Exhibition on the Luxury Ties That Bind**\
+`Dozens of French luxury houses and institutions will converge on Manhattan for the cross-cultural exhibition “Hidden Treasures: 250 Years of Franco-American Luxury Stories.”`\
+https://www.nytimes.com/2026/05/07/arts/design/france-luxury-exhibition-new-york.html
+
+**How Suspects Were Caught in Robbery of $1 Million in Apple Products**\
+`Federal prosecutors said three men stole watches, iPads and iPhones from a truck in January. One of the men activated Apple watches after the heist, they said.`\
+https://www.nytimes.com/2026/05/07/nyregion/apple-theft-millions-new-york.html
+
+**Court Rules Against Trump’s 10% Tariff**\
+`Also, the U.S. and Iran exchange fire. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/05/07/briefing/trade-court-trump-tariffs.html
+
 **Tennessee Passes New Redistricting Map, Breaks Up State’s Lone Democratic District**\
 `Gov. Bill Lee of Tennessee signed a new congressional map into law on Thursday that slices up Memphis to scatter Black voters into neighboring districts, a move intended to eliminate the state’s last Democratic House seat.`\
 https://www.nytimes.com/video/us/100000010889726/tennessee-redistricting-congressional-map.html
