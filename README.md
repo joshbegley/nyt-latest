@@ -1,3 +1,7 @@
+**Federal and State Officials Consider Closing Florida’s ‘Alligator Alcatraz’**\
+`The immigrant detention center in the Everglades, which Gov. Ron DeSantis, a Republican, opened last July, may be too expensive to keep operating.`\
+https://www.nytimes.com/2026/05/07/us/federal-and-state-officials-consider-closing-floridas-alligator-alcatraz.html
+
 **Half of Patients With Advanced Lung Cancer Don’t Get Treatment, Study Finds**\
 `New drugs have made America’s deadliest cancer more treatable than ever. So why aren’t they reaching patients?`\
 https://www.nytimes.com/2026/05/07/well/metastatic-lung-cancer-study.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/07/world/asia/china-ministers-death-sentences-mi
 **Why Investors Are Still Betting Big on Kalshi**\
 `The popular prediction market platform has just raised a new funding round that values it at $22 billion, double what it was worth in December.`\
 https://www.nytimes.com/2026/05/07/business/dealbook/kalshi-funding-prediction-market.html
-
-**Rubio Meets Pope Amid U.S. Tensions With Vatican**\
-`The meeting at the Vatican followed President Trump’s condemnation of Pope Leo XIV for opposing the war in Iran.`\
-https://www.nytimes.com/2026/05/07/us/politics/rubio-pope-meeting.html
 

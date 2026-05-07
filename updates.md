@@ -1,3 +1,19 @@
+**Half of Patients With Advanced Lung Cancer Don’t Get Treatment, Study Finds**\
+`New drugs have made America’s deadliest cancer more treatable than ever. So why aren’t they reaching patients?`\
+https://www.nytimes.com/2026/05/07/well/metastatic-lung-cancer-study.html
+
+**Review: Sophie Rivera’s Photos Come Out From the Shadows**\
+`“Double Exposures,” the first museum survey for the artist, highlights a career spent documenting New Yorkers, in ways both traditional and strange.`\
+https://www.nytimes.com/2026/05/07/arts/design/review-sophie-riveras-museo-del-barrio.html
+
+**We Expected Too Much From School Phone Bans**\
+`There are no magic bullets in education.`\
+https://www.nytimes.com/2026/05/07/opinion/school-phone-bans-data.html
+
+**Hello, Lemon-Pistachio Bread Crumbs**\
+`Sure, the garlicky shrimp pasta is draw enough, but what really makes this dish shine is the pangrattato topping.`\
+https://www.nytimes.com/2026/05/07/dining/hello-lemon-pistachio-bread-crumbs.html
+
 **Un plutino sorprende a los astrónomos con indicios de una atmósfera en el borde del sistema solar**\
 `Un pequeño mundo helado que está más lejos del Sol que Plutón parece tener atmósfera, según un nuevo estudio. La observación ha sorprendido a los astrónomos.`\
 https://www.nytimes.com/es/2026/05/07/espanol/ciencia-y-tecnologia/plutino-atmosfera-astronomia-pluton.html

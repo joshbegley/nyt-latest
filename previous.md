@@ -1,3 +1,19 @@
+**Half of Patients With Advanced Lung Cancer Don’t Get Treatment, Study Finds**\
+`New drugs have made America’s deadliest cancer more treatable than ever. So why aren’t they reaching patients?`\
+https://www.nytimes.com/2026/05/07/well/metastatic-lung-cancer-study.html
+
+**Review: Sophie Rivera’s Photos Come Out From the Shadows**\
+`“Double Exposures,” the first museum survey for the artist, highlights a career spent documenting New Yorkers, in ways both traditional and strange.`\
+https://www.nytimes.com/2026/05/07/arts/design/review-sophie-riveras-museo-del-barrio.html
+
+**We Expected Too Much From School Phone Bans**\
+`There are no magic bullets in education.`\
+https://www.nytimes.com/2026/05/07/opinion/school-phone-bans-data.html
+
+**Hello, Lemon-Pistachio Bread Crumbs**\
+`Sure, the garlicky shrimp pasta is draw enough, but what really makes this dish shine is the pangrattato topping.`\
+https://www.nytimes.com/2026/05/07/dining/hello-lemon-pistachio-bread-crumbs.html
+
 **Un plutino sorprende a los astrónomos con indicios de una atmósfera en el borde del sistema solar**\
 `Un pequeño mundo helado que está más lejos del Sol que Plutón parece tener atmósfera, según un nuevo estudio. La observación ha sorprendido a los astrónomos.`\
 https://www.nytimes.com/es/2026/05/07/espanol/ciencia-y-tecnologia/plutino-atmosfera-astronomia-pluton.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/05/07/business/dealbook/kalshi-funding-prediction-m
 **Rubio Meets Pope Amid U.S. Tensions With Vatican**\
 `The meeting at the Vatican followed President Trump’s condemnation of Pope Leo XIV for opposing the war in Iran.`\
 https://www.nytimes.com/2026/05/07/us/politics/rubio-pope-meeting.html
-
-**Kalshi, the Prediction Market, Is Now Valued at $22 Billion**\
-`The platform for betting on sports, politics, the weather and more has raised $1 billion and sees big financial firms as a key source of growth.`\
-https://www.nytimes.com/2026/05/07/business/dealbook/kalshi-fundraise-22-billion.html
-
-**Dutch Flight Attendant Is Tested for Hantavirus**\
-`Global health officials are tracking people connected to a deadly outbreak on a cruise ship. One infected passenger had briefly boarded a flight from South Africa to the Netherlands before she died.`\
-https://www.nytimes.com/2026/05/07/world/europe/hantavirus-cruise-ship-outbreak.html
-
-**Candidates Clash in Last Televised Debate Before California Primary**\
-`Seven candidates competing to be the next governor of California traded barbs during the last televised face-off before the primary in June.`\
-https://www.nytimes.com/video/us/elections/100000010888492/california-governor-debate.html
-
-**Fast-Food Sales Rise Despite Higher Gas Prices**\
-`Fallout from the war in Iran didn’t dampen quarterly results at McDonald’s, Burger King and Taco Bell.`\
-https://www.nytimes.com/2026/05/07/business/mcdonalds-earnings.html
 
