@@ -1,3 +1,7 @@
+**Federal Agents and Los Angeles Police Arrest 18 in Drug Raid**\
+`Federal and local officers raided businesses on Wednesday. Last summer, immigration tensions flared between federal and local officials at the same park.`\
+https://www.nytimes.com/2026/05/06/us/federal-drug-raid-los-angeles.html
+
 **Judge Says F.B.I. Can Keep 2020 Election Records Seized From Georgia**\
 `The ruling is the latest in a saga driven by President Trump’s desire for redemption in the state, which he lost in 2020. The county is likely to appeal.`\
 https://www.nytimes.com/2026/05/06/us/politics/judge-says-fbi-can-keep-2020-election-records-seized-from-georgia.html
