@@ -1,3 +1,7 @@
+**Pacientes de hantavirus aterrizan en Ámsterdam. Se planean más evacuaciones del crucero**\
+`Se ofrecerá a los pasajeros de otros países de la Unión Europea la posibilidad de evacuar a sus propios ciudadanos, según un portavoz del Ministerio de Salud español.`\
+https://www.nytimes.com/es/2026/05/06/espanol/hantavirus-pacientes-evacuados.html
+
 **Federal Agents and Los Angeles Police Arrest 18 in Drug Raid**\
 `Federal and local officers raided businesses on Wednesday. Last summer, immigration tensions flared between federal and local officials at the same park.`\
 https://www.nytimes.com/2026/05/06/us/federal-drug-raid-los-angeles.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/06/business/jpmorgan-rana-hajdini-harassment-law
 **Si la deforestación sigue, la Amazonía estaría en un punto sin retorno**\
 `Un nuevo estudio destaca la letal combinación de pérdida de árboles y calentamiento global que podría llevar a que el pulmón del mundo colapse a mitad de siglo.`\
 https://www.nytimes.com/es/2026/05/06/espanol/tiempo-y-clima/deforestacion-amazonia-punto-no-retorno.html
-
-**Lady Gaga and Doechii Strut, but for Whom?**\
-`From hip house to dark pop, the girls are collaborating. Our critic Jon Caramanica unpacks “Runway,” a track from “The Devil Wears Prada 2” that has Lady Gaga and Doechii joining forces.`\
-https://www.nytimes.com/video/podcasts/100000010887368/lady-gaga-and-doechii-strut-but-for-whom.html
 
