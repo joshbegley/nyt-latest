@@ -1,6 +1,6 @@
 **Who Are You Getting Your Health Advice From?**\
 `Half of U.S. adults under 50 now get wellness advice from influencers. A new report examines their qualifications.`\
-https://www.nytimes.com/2026/05/07/well/who-are-you-getting-your-health-advice-from.html
+https://www.nytimes.com/2026/05/07/well/health-wellness-influencers-pew.html
 
 **ICE Agents Barred From Wearing Masks in New York Under State Budget Deal**\
 `State and local officials will also be prohibited from formally cooperating with Immigrations and Customs Enforcement under the agreement.`\
