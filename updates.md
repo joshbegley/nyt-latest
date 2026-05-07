@@ -1,3 +1,19 @@
+**In Italy, a Link Between the Cannes Film Festival and the Far East Film Festival**\
+`FEFF, in Udine, Italy, has become a partner with Marché du Film, one of the world’s most important film markets and a parallel event at Cannes.`\
+https://www.nytimes.com/2026/05/07/movies/cannes-film-festival-far-east.html
+
+**New Che Guevara Documentary Shows There Is More to Know**\
+`The film “Che Guevara: The Last Companions,” premiering at the Cannes Film Festival, tells the story of Guevara’s last surviving comrades in arms.`\
+https://www.nytimes.com/2026/05/07/movies/che-guevara-documentary-cannes-film-festival.html
+
+**Trump Panel Recommends FEMA Respond to Fewer Disasters**\
+`A White House task force also called for speeding up aid, but some of its ideas would require action by Congress to become reality.`\
+https://www.nytimes.com/2026/05/07/climate/fema-review-panel-trump.html
+
+**Israel Says It Killed a Hezbollah Chief Near Beirut, Testing the Truce**\
+`The strike was the first near the Lebanese capital since a cease-fire that has curbed fighting but not halted it. Washington is pushing for a lasting peace, hoping it will ease diplomacy with Iran.`\
+https://www.nytimes.com/2026/05/07/world/middleeast/israel-hezbollah-commander-beirut-strike.html
+
 **The Veggie Goes Hardcover**\
 `Find all of your favorite vegetarian recipes from New York Times Cooking and then some in my new cookbook, “Veg Everything.”`\
 https://www.nytimes.com/2026/05/07/dining/the-veggie-goes-hardcover.html
