@@ -1,3 +1,11 @@
+**¿El hantavirus debería preocuparte?**\
+`Esto es lo que hay que saber sobre el virus, cómo se propaga y el riesgo para el público en general.`\
+https://www.nytimes.com/es/2026/05/07/espanol/estilos-de-vida/hantavirus-preguntas-respuestas.html
+
+**France Passes Law Easing Process of Returning Looted Art**\
+`President Emmanuel Macron has long called the restitution of African art from French museums a priority. Experts say the new law is a seismic moment in that effort.`\
+https://www.nytimes.com/2026/05/07/arts/design/france-africa-art-restitution-colonialism.html
+
 **France Passes Law Easing Process of Returning Looted Art**\
 `President Emmanuel Macron has long called the restitution of African art from French museums a priority. Experts say the new law is a seismic moment in that effort.`\
 https://www.nytimes.com/2026/05/07/arts/france-africa-art-restitution-colonialism.html

@@ -1,6 +1,10 @@
+**¿El hantavirus debería preocuparte?**\
+`Esto es lo que hay que saber sobre el virus, cómo se propaga y el riesgo para el público en general.`\
+https://www.nytimes.com/es/2026/05/07/espanol/estilos-de-vida/hantavirus-preguntas-respuestas.html
+
 **France Passes Law Easing Process of Returning Looted Art**\
 `President Emmanuel Macron has long called the restitution of African art from French museums a priority. Experts say the new law is a seismic moment in that effort.`\
-https://www.nytimes.com/2026/05/07/arts/france-africa-art-restitution-colonialism.html
+https://www.nytimes.com/2026/05/07/arts/design/france-africa-art-restitution-colonialism.html
 
 **Today, In Short**\
 `Caleb Hearon. Tae Bo. And the New York Knicks won again.`\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/07/movies/billie-eilish-hit-me-hard-and-soft-the
 **Shell Reports Nearly $7 Billion Profit Amid ‘Unprecedented Disruption’**\
 `The oil giant’s earnings in the first three months of the year were more than double the previous quarter’s and follow similarly strong results of European rivals.`\
 https://www.nytimes.com/2026/05/07/business/shell-profit-oil-iran-war.html
-
-**These Toilets in Venice Have the Art World Aflush**\
-`Undoubtedly the biggest talker at this year’s Venice Biennale is the Austrian pavilion, where visitors can make their own contributions to the work on show.`\
-https://www.nytimes.com/2026/05/07/arts/design/venice-biennale-austria-florentina-holzinger.html
 
