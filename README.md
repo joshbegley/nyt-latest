@@ -1,3 +1,31 @@
+**¿Niebla mental? Podría ser tu intestino**\
+`Hemos preguntado a científicos y médicos qué hay que saber sobre la conexión entre la salud del intestino y la niebla mental.`\
+https://www.nytimes.com/es/2026/05/07/espanol/niebla-mental-podria-ser-tu-intestino.html
+
+**Price Tags on Teeth**\
+`What do you think this image is communicating?`\
+https://www.nytimes.com/2026/05/07/learning/price-tags-on-teeth.html
+
+**Mamdani Wants Free Buses for All. The City Council Has Different Ideas.**\
+`Rather than making city buses free for all riders, elected officials and transit advocates are pushing to expand a transit program for low-income New Yorkers.`\
+https://www.nytimes.com/2026/05/07/nyregion/nyc-free-bus-fair-fares.html
+
+**Will New York Freeze the Rent? A Panel Will Cast Its First Vote.**\
+`The panel that regulates rents for nearly one million apartments is set to weigh in on potential increases for the first time since Mayor Zohran Mamdani took office.`\
+https://www.nytimes.com/2026/05/07/nyregion/mamdani-rent-freeze-stabilized-apartment.html
+
+**N.Y.C. Schools Could Lose 153,000 Students in Next Decade, Study Finds**\
+`A confluence of factors is causing public schools in New York and across the country to experience dramatic reductions in enrollment.`\
+https://www.nytimes.com/2026/05/07/nyregion/nyc-school-enrollment-declines.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/07/crosswords/spelling-bee-forum.html
+
+**Late Night Isn’t Buying Trump’s New ‘Skirmish’ in Iran**\
+`After Trump used the terms “miniwar” and “excursion” to describe the conflict in Iran, Jimmy Kimmel predicted that the president would next call the war “a tiff. It will be a $200 billion tiff.”`\
+https://www.nytimes.com/2026/05/07/arts/television/late-night-trump-skirmish.html
+
 **Oil Prices Hold Steady as Iran Talks Remain Murky**\
 `Investors waited for news on the situation in the Middle East, as the U.S. and Iran gave mixed signals on peace negotiations.`\
 https://www.nytimes.com/2026/05/07/business/oil-gas-price-iran.html
@@ -49,32 +77,4 @@ https://www.nytimes.com/2026/05/06/pageoneplus/quote-of-the-day-as-worlds-powers
 **Pacientes de hantavirus aterrizan en Ámsterdam. Se planean más evacuaciones del crucero**\
 `Se ofrecerá a los pasajeros de otros países de la Unión Europea la posibilidad de evacuar a sus propios ciudadanos, según un portavoz del Ministerio de Salud español.`\
 https://www.nytimes.com/es/2026/05/06/espanol/hantavirus-pacientes-evacuados.html
-
-**Federal Agents and Los Angeles Police Arrest 18 in Drug Raid**\
-`Federal and local officers raided businesses on Wednesday. Last summer, immigration tensions flared between federal and local officials at the same park.`\
-https://www.nytimes.com/2026/05/06/us/federal-drug-raid-los-angeles.html
-
-**Judge Says F.B.I. Can Keep 2020 Election Records Seized From Georgia**\
-`The ruling is the latest in a saga driven by President Trump’s desire for redemption in the state, which he lost in 2020. The county is likely to appeal.`\
-https://www.nytimes.com/2026/05/06/us/politics/judge-says-fbi-can-keep-2020-election-records-seized-from-georgia.html
-
-**Animals That Bugle**\
-`John Guzzetta and Jeff Chen reunite to give us a Thursday workout.`\
-https://www.nytimes.com/2026/05/06/crosswords/daily-puzzle-2026-05-07.html
-
-**Susan Collins Says She Has Long Had a Benign Tremor**\
-`The Republican senator from Maine, running for re-election at age 73 in one of this year’s top Senate races, made the disclosure after mounting online scrutiny on the left.`\
-https://www.nytimes.com/2026/05/06/us/politics/susan-collins-tremor-maine-senate-race.html
-
-**Polls in California Reflect a Chaotic Governor’s Race**\
-`Four candidates have emerged as leaders in the primary election to succeed Gov. Gavin Newsom.`\
-https://www.nytimes.com/2026/05/06/us/politics/california-governor-polls.html
-
-**Watch Live: California Governor’s Debate**\
-`Candidates for California governor meet on the debate stage with less than a month until the primary.`\
-https://www.nytimes.com/video/embedded/us/politics/100000010888133/watch-live-california-governors-debate.html
-
-**A Times reporter in L.A. explains an unusual race.**\
-``\
-https://www.nytimes.com/live/2026/05/06/us/california-governor-debate/a-times-reporter-in-la-explains-an-unusual-race
 
