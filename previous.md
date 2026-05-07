@@ -1,3 +1,7 @@
+**Louisiana Asks Supreme Court to Halt Abortion Pill Access by Mail**\
+`The request comes after a federal appeals court temporarily blocked a Food and Drug Administration regulation that has greatly expanded access to the abortion pill mifepristone.`\
+https://www.nytimes.com/2026/05/07/us/politics/supreme-court-abortion-pills-louisiana.html
+
 **Of Marble and Millionaires: A Stroll Through New York’s Gilded Age History**\
 `Yes, some memorable mansions were lost to the vagaries of expenses and development, but many remain — and some are even open to the public. A walking guide.`\
 https://www.nytimes.com/2026/05/07/arts/design/new-york-gilded-age-walking-tour.html
@@ -69,8 +73,4 @@ https://www.nytimes.com/video/opinion/100000010875142/is-america-headed-for-grea
 **U.K. Election Poses Test for Starmer’s Labour Party**\
 `Polls have predicted sweeping losses for Prime Minister Keir Starmer’s Labour Party as millions head to the ballot box in parliamentary elections in Scotland and Wales and local elections in England.`\
 https://www.nytimes.com/video/world/europe/100000010888858/uk-local-elections-starmer-labour-party.html
-
-**As Stockpiles Fall, U.S. Sells More Missiles Worth $17 Billion to Gulf Nations**\
-`The United States and its partners have burned through an enormous amount of air defense missiles in the Iran war, and production is slow.`\
-https://www.nytimes.com/2026/05/07/us/politics/weapons-stockpiles-iran-war.html
 
