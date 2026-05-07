@@ -1,3 +1,19 @@
+**The Long Journey From the Strait of Hormuz to the Gas Tank**\
+`Even if the Strait of Hormuz reopened today, oil would still take more than a month to reach consumers. The economic shock from the Iran war could take far longer to ease.`\
+https://www.nytimes.com/interactive/2026/05/07/world/middleeast/oil-tanker-strait-hormuz-iran-war.html
+
+**La Copa Mundial o nada: las deudas y la incomodidad no asustan a los argentinos**\
+`Los precios dinámicos de las entradas han convertido el torneo de este año en el más caro de la historia, lo que ha llevado a los hinchas argentinos a situaciones extremas.`\
+https://www.nytimes.com/es/2026/05/07/espanol/precios-mundial-argentina.html
+
+**¿Es mala idea usar autobronceador?**\
+`Los productos de bronceado sin sol se anuncian como más seguros que el bronceado tradicional al sol. Consultamos a expertos para saber si representan algún riesgo para la salud.`\
+https://www.nytimes.com/es/2026/05/07/espanol/estilos-de-vida/autobronceador-sol-dano.html
+
+**Oil Prices Slide on Hopes for Renewed Peace Talks**\
+`Investors waited for news on the situation in the Middle East, as the U.S. and Iran gave mixed signals on peace negotiations.`\
+https://www.nytimes.com/2026/05/07/business/oil-gas-price-iran.html
+
 **¿Niebla mental? Podría ser tu intestino**\
 `Hemos preguntado a científicos y médicos qué hay que saber sobre la conexión entre la salud del intestino y la niebla mental.`\
 https://www.nytimes.com/es/2026/05/07/espanol/niebla-mental-podria-ser-tu-intestino.html
