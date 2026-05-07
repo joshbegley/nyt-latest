@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/05/07/arts/design/france-africa-art-restitution-col
 `Caleb Hearon. Tae Bo. And the New York Knicks won again.`\
 https://www.nytimes.com/2026/05/07/briefing/today-in-short.html
 
-**Federal and State Officials Consider Closing Florida’s ‘Alligator Alcatraz’**\
+**Federal and State Officials Discuss Closing Florida’s ‘Alligator Alcatraz’**\
 `The immigrant detention center in the Everglades, which Gov. Ron DeSantis, a Republican, opened last July, may be too expensive to keep operating.`\
 https://www.nytimes.com/2026/05/07/us/federal-and-state-officials-consider-closing-floridas-alligator-alcatraz.html
 

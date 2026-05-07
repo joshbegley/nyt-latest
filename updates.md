@@ -1,3 +1,7 @@
+**Federal and State Officials Discuss Closing Florida’s ‘Alligator Alcatraz’**\
+`The immigrant detention center in the Everglades, which Gov. Ron DeSantis, a Republican, opened last July, may be too expensive to keep operating.`\
+https://www.nytimes.com/2026/05/07/us/federal-and-state-officials-consider-closing-floridas-alligator-alcatraz.html
+
 **Tornadoes and Thunderstorms Damage More Than 1,000 Buildings in Mississippi**\
 `Tornadoes and severe thunderstorms left behind a trail of damage in Mississippi on Wednesday night, injuring at least 17 people, state officials said.`\
 https://www.nytimes.com/video/weather/100000010889010/mississippi-tornado-damage.html
