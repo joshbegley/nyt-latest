@@ -1,3 +1,7 @@
+**Giuliani busca que su atención médica esté cubierta por el programa del 11-S**\
+`El exalcalde de Nueva York, que está mejorando tras un grave caso de neumonía, padece una afección respiratoria relacionada con su exposición a toxinas en la zona cero, dice su portavoz.`\
+https://www.nytimes.com/es/2026/05/07/espanol/estados-unidos/rudy-giuliani-neumonia-11-septiembre.html
+
 **Platner and Collins Begin Their Duel in the Maine Senate Race**\
 `In strikingly different ads, Graham Platner argued that “Susan Collins’s charade is over” while Senator Collins highlighted the economic benefits she has brought to Maine.`\
 https://www.nytimes.com/2026/05/07/us/politics/platner-collins-maine-senate-ads.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/07/arts/design/review-sophie-riveras-museo-del-b
 **We Expected Too Much From School Phone Bans**\
 `There are no magic bullets in education.`\
 https://www.nytimes.com/2026/05/07/opinion/school-phone-bans-data.html
-
-**Hello, Lemon-Pistachio Bread Crumbs**\
-`Sure, the garlicky shrimp pasta is draw enough, but what really makes this dish shine is the pangrattato topping.`\
-https://www.nytimes.com/2026/05/07/dining/hello-lemon-pistachio-bread-crumbs.html
 
