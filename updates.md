@@ -1,3 +1,15 @@
+**The sexual assault allegations against Eric Swalwell rattled the race.**\
+``\
+https://www.nytimes.com/live/2026/05/06/us/california-governor-debate/the-sexual-assault-allegations-against-eric-swalwell-rattled-the-race
+
+**Watercraft Slams Into Gray Whale Near Vancouver, Injuring Driver**\
+`The whale appeared to be unharmed by the collision, which was captured on video.`\
+https://www.nytimes.com/2026/05/06/world/canada/jet-ski-hits-grey-whale-vancouver.html
+
+**Anthropic’s C.E.O. Says It Could Grow by 80 Times This Year**\
+`The chief executive, Dario Amodei, said the rapid growth had exponentially increased the start-up’s need for more computing power.`\
+https://www.nytimes.com/2026/05/06/technology/anthropic-ceo-ai-growth.html
+
 **Health Authorities Monitor Hantavirus Cruise Passengers in United States**\
 `People in at least three states are being monitored after being on the ship. None have shown symptoms, officials said.`\
 https://www.nytimes.com/2026/05/06/us/hantavirus-cruise-us-passengers.html
