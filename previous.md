@@ -1,3 +1,15 @@
+**Las autoridades de salud de EE. UU. vigilan a pasajeros del crucero infectado por hantavirus**\
+`Residentes en Georgia, California y Arizona son vigilados tras estar a bordo del crucero en el que se produjo un brote mortal del virus. Ninguno ha mostrado síntomas, según las autoridades.`\
+https://www.nytimes.com/es/2026/05/07/espanol/estados-unidos/hantavirus-casos.html
+
+**Would You Spend $4,350 on a White Shirt?**\
+`A roundup of the best button-ups, from easy wardrobe staples to styles that make more of a statement.`\
+https://www.nytimes.com/2026/05/07/t-magazine/best-white-button-down-shirts.html
+
+**Did This Appeals Court Go Rogue on Abortion Pills?**\
+`The Fifth Circuit, reversed more than any other appeals court, has a reputation for taking extreme positions.`\
+https://www.nytimes.com/2026/05/07/us/politics/the-docket-abortion-pills.html
+
 **As U.S. Debt Hits a Worrying Milestone, Washington Barely Notices**\
 `The debt is outgrowing the size of America’s economy. The president’s policies could accelerate the country’s fiscal headaches, experts say, unless policymakers intervene.`\
 https://www.nytimes.com/2026/05/07/business/us-debt-trump-policies-budget.html
@@ -23,7 +35,7 @@ https://www.nytimes.com/2026/05/07/business/stocks-bonds-markets-iran-war.html
 https://www.nytimes.com/video/us/politics/100000010888734/tennessee-republicans-congressional-map-memphis.html
 
 **Tornadoes and Thunderstorms Damage More Than 1,000 Buildings in Mississippi**\
-`Tornadoes and severe thunderstorms left behind a trail of damage in Mississippi on Wednesday night, injuring at least 17 people, state officials said.`\
+`Tornadoes and severe thunderstorms left behind a trail of damage in Mississippi Wednesday night, injuring at least 17 people, state officials said.`\
 https://www.nytimes.com/video/weather/100000010889010/mississippi-tornado-damage.html
 
 **¿El hantavirus debería preocuparte?**\
@@ -65,16 +77,4 @@ https://www.nytimes.com/es/2026/05/07/espanol/ciencia-y-tecnologia/plutino-atmos
 **Surprising Signs of an Atmosphere Around a Tiny World, Billions of Miles Away**\
 `A gradual dimming and brightening when a star passed behind it suggested the mini-Pluto was wrapped in a thin layer of air.`\
 https://www.nytimes.com/2026/05/07/science/plutino-atmosphere-astronomy-pluto.html
-
-**Las elecciones en el Reino Unido pueden revelar un deteriorado sistema político**\
-`Las encuestas predicen pérdidas para el Partido Laborista del primer ministro Keir Starmer, mientras Reform UK, un partido antiinmigración, gana terreno y se perfila una nueva era multipartidista.`\
-https://www.nytimes.com/es/2026/05/07/espanol/mundo/elecciones-reino-unido-analisis-resultados.html
-
-**Data Suggests Struggle in Cockpit Before Deadly China Eastern Plane Crash**\
-`A report by the U.S. National Transportation Safety Board offers new details about the China Eastern Airlines crash in 2022, which killed all 132 people on board.`\
-https://www.nytimes.com/2026/05/07/world/asia/china-eastern-plane-crash-flight-5735-ntsb.html
-
-**Who Are You Getting Your Health Advice From?**\
-`Half of U.S. adults under 50 now get wellness advice from influencers. A new report examines their qualifications.`\
-https://www.nytimes.com/2026/05/07/well/health-wellness-influencers-pew.html
 

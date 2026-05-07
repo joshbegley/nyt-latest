@@ -1,3 +1,19 @@
+**Las autoridades de salud de EE. UU. vigilan a pasajeros del crucero infectado por hantavirus**\
+`Residentes en Georgia, California y Arizona son vigilados tras estar a bordo del crucero en el que se produjo un brote mortal del virus. Ninguno ha mostrado síntomas, según las autoridades.`\
+https://www.nytimes.com/es/2026/05/07/espanol/estados-unidos/hantavirus-casos.html
+
+**Would You Spend $4,350 on a White Shirt?**\
+`A roundup of the best button-ups, from easy wardrobe staples to styles that make more of a statement.`\
+https://www.nytimes.com/2026/05/07/t-magazine/best-white-button-down-shirts.html
+
+**Did This Appeals Court Go Rogue on Abortion Pills?**\
+`The Fifth Circuit, reversed more than any other appeals court, has a reputation for taking extreme positions.`\
+https://www.nytimes.com/2026/05/07/us/politics/the-docket-abortion-pills.html
+
+**Tornadoes and Thunderstorms Damage More Than 1,000 Buildings in Mississippi**\
+`Tornadoes and severe thunderstorms left behind a trail of damage in Mississippi Wednesday night, injuring at least 17 people, state officials said.`\
+https://www.nytimes.com/video/weather/100000010889010/mississippi-tornado-damage.html
+
 **As U.S. Debt Hits a Worrying Milestone, Washington Barely Notices**\
 `The debt is outgrowing the size of America’s economy. The president’s policies could accelerate the country’s fiscal headaches, experts say, unless policymakers intervene.`\
 https://www.nytimes.com/2026/05/07/business/us-debt-trump-policies-budget.html
