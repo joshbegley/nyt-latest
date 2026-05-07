@@ -74,7 +74,7 @@ https://www.nytimes.com/2026/05/07/well/metastatic-lung-cancer-study.html
 `“Double Exposures,” the first museum survey for the artist, highlights a career spent documenting New Yorkers, in ways both traditional and strange.`\
 https://www.nytimes.com/2026/05/07/arts/design/review-sophie-riveras-museo-del-barrio.html
 
-**We Expected Too Much From School Phone Bans**\
-`There are no magic bullets in education.`\
+**It’s Still Demoralizing to Teach a Classroom of Scrolling Students**\
+`School phone bans aren’t magic. We still need them.`\
 https://www.nytimes.com/2026/05/07/opinion/school-phone-bans-data.html
 

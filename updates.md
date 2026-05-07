@@ -1,3 +1,15 @@
+**Giuliani busca que su atención médica esté cubierta por el programa del 11-S**\
+`El exalcalde de Nueva York, que está mejorando tras un grave caso de neumonía, padece una afección respiratoria relacionada con su exposición a toxinas en la zona cero, dice su portavoz.`\
+https://www.nytimes.com/es/2026/05/07/espanol/estados-unidos/rudy-giuliani-neumonia-11-septiembre.html
+
+**Platner and Collins Begin Their Duel in the Maine Senate Race**\
+`In strikingly different ads, Graham Platner argued that “Susan Collins’s charade is over” while Senator Collins highlighted the economic benefits she has brought to Maine.`\
+https://www.nytimes.com/2026/05/07/us/politics/platner-collins-maine-senate-ads.html
+
+**Hantavirus Response Shows How Trump Cuts Have Compromised U.S. Preparedness**\
+`The Trump administration has slashed funding for infectious disease research and has far fewer employees, including disease detectives, to respond to outbreaks.`\
+https://www.nytimes.com/2026/05/07/health/hantavirus-americans-cdc.html
+
 **Las autoridades de salud de EE. UU. vigilan a pasajeros del crucero infectado por hantavirus**\
 `Residentes en Georgia, California y Arizona son vigilados tras estar a bordo del crucero en el que se produjo un brote mortal del virus. Ninguno ha mostrado síntomas, según las autoridades.`\
 https://www.nytimes.com/es/2026/05/07/espanol/estados-unidos/hantavirus-casos.html
