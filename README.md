@@ -1,3 +1,31 @@
+**The Veggie Goes Hardcover**\
+`Find all of your favorite vegetarian recipes from New York Times Cooking and then some in my new cookbook, “Veg Everything.”`\
+https://www.nytimes.com/2026/05/07/dining/the-veggie-goes-hardcover.html
+
+**In L.A. Mayor’s Race, Karen Bass Faces Vocal Rivals and a ‘Disgruntled Electorate’**\
+`The mayor of Los Angeles is running for a second term as a former ally and a reality TV star tap into widespread voter angst.`\
+https://www.nytimes.com/2026/05/07/us/los-angeles-mayors-race-bass-challengers.html
+
+**Talk to Strangers, and Share Your Worlds**\
+`Why talking to strangers is good for you. Also: Ballroom math; Haitian refugees; pro-Republican avatars; the Potomac challenge; 1976 and 2026.`\
+https://www.nytimes.com/2026/05/07/opinion/strangers-conversation.html
+
+**At the Cannes Film Festival, This Hotel Celebrates With a Drink**\
+`For the past decade, the Hôtel Barrière Le Majestic, close enough to the action that guests can see stars arrive, has offered a colorful cocktail to honor the event.`\
+https://www.nytimes.com/2026/05/07/movies/cannes-film-festival-hotel-drink.html
+
+**At Cannes, French Cinema is Front and Center**\
+`Frenchness is a common theme among the films selected to open the festival. The opener also premieres in hundreds of theaters across France the day the festival begins.`\
+https://www.nytimes.com/2026/05/07/movies/cannes-film-festival-opening-films.html
+
+**A Place for Monks, Salsa Dancers and Movie Lovers Is Now a Hotel**\
+`In Cartagena, Colombia, historic buildings, including a monastery and a nightclub, were transformed into a Four Seasons.`\
+https://www.nytimes.com/2026/05/07/style/club-cartegena-four-seasons.html
+
+**House Republican Proposes Bill to Wind Down the Iran War**\
+`Representative Tom Barrett, a Michigan Republican facing a tough re-election race, introduced a bill to impose limits on the use of military force in Iran and end the fighting this summer.`\
+https://www.nytimes.com/2026/05/07/us/politics/house-republican-bill-iran-war-tom-barrett.html
+
 **This Film Provides a Trapezoidal Window Into Former Pizza Huts**\
 `A documentary about the popular chain presents its repurposed buildings as protective shells where new businesses can grow.`\
 https://www.nytimes.com/2026/05/07/movies/pizza-hut-architecture-documentary.html
@@ -49,32 +77,4 @@ https://www.nytimes.com/2026/05/07/business/stocks-bonds-markets-iran-war.html
 **Tennessee Republicans Aim to Break Up State’s Lone Democratic District**\
 `Protesters denounced a redistricting effort led by Tennessee Republicans that would slice up Memphis, a majority-Black city, and Shelby County into three districts. The new congressional map would threaten Democrats’ hold on their lone remaining House seat in the state.`\
 https://www.nytimes.com/video/us/politics/tennessee-republicans-congressional-map-memphis.html
-
-**Tornadoes and Thunderstorms Damage More Than 1,000 Buildings in Mississippi**\
-`Tornadoes and severe thunderstorms left behind a trail of damage in Mississippi Wednesday night, injuring at least 17 people, state officials said.`\
-https://www.nytimes.com/video/weather/100000010889010/mississippi-tornado-damage.html
-
-**¿El hantavirus debería preocuparte?**\
-`Esto es lo que hay que saber sobre el virus, cómo se propaga y el riesgo para el público en general.`\
-https://www.nytimes.com/es/2026/05/07/espanol/estilos-de-vida/hantavirus-preguntas-respuestas.html
-
-**France Passes Law Easing Process of Returning Looted Art**\
-`President Emmanuel Macron has long called the restitution of African art from French museums a priority. Experts say the new law is a seismic moment in that effort.`\
-https://www.nytimes.com/2026/05/07/arts/design/france-africa-art-restitution-colonialism.html
-
-**Today, In Short**\
-`Caleb Hearon. Tae Bo. And the New York Knicks won again.`\
-https://www.nytimes.com/2026/05/07/briefing/today-in-short.html
-
-**Federal and State Officials Discuss Closing Florida’s ‘Alligator Alcatraz’**\
-`The immigrant detention center in the Everglades, which Gov. Ron DeSantis, a Republican, opened last July, may be too expensive to keep operating.`\
-https://www.nytimes.com/2026/05/07/us/florida-alligator-alcatraz-possible-closure.html
-
-**Half of Patients With Advanced Lung Cancer Don’t Get Treatment, Study Finds**\
-`New drugs have made America’s deadliest cancer more treatable than ever. So why aren’t they reaching patients?`\
-https://www.nytimes.com/2026/05/07/well/metastatic-lung-cancer-study.html
-
-**Review: Sophie Rivera’s Photos Come Out From the Shadows**\
-`“Double Exposures,” the first museum survey for the artist, highlights a career spent documenting New Yorkers, in ways both traditional and strange.`\
-https://www.nytimes.com/2026/05/07/arts/design/review-sophie-riveras-museo-del-barrio.html
 
