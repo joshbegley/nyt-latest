@@ -1,3 +1,11 @@
+**Tornadoes and Thunderstorms Damage More Than 1,000 Buildings in Mississippi**\
+`Tornadoes and severe thunderstorms left behind a trail of damage in Mississippi on Wednesday night, injuring at least 17 people, state officials said.`\
+https://www.nytimes.com/video/weather/100000010889010/mississippi-tornado-damage.html
+
+**Deprived of a Poolside Lounge Chair, German Man Sues and Wins**\
+`A tourist won a refund after a court ruled that the hotel’s staff failed to stop guests from reserving sun beds with towels.`\
+https://www.nytimes.com/2026/05/07/world/europe/tourist-pool-loungers-refund-germany.html
+
 **¿El hantavirus debería preocuparte?**\
 `Esto es lo que hay que saber sobre el virus, cómo se propaga y el riesgo para el público en general.`\
 https://www.nytimes.com/es/2026/05/07/espanol/estilos-de-vida/hantavirus-preguntas-respuestas.html

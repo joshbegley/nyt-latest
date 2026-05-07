@@ -1,3 +1,7 @@
+**Tornadoes and Thunderstorms Damage More Than 1,000 Buildings in Mississippi**\
+`Tornadoes and severe thunderstorms left behind a trail of damage in Mississippi on Wednesday night, injuring at least 17 people, state officials said.`\
+https://www.nytimes.com/video/weather/100000010889010/mississippi-tornado-damage.html
+
 **¿El hantavirus debería preocuparte?**\
 `Esto es lo que hay que saber sobre el virus, cómo se propaga y el riesgo para el público en general.`\
 https://www.nytimes.com/es/2026/05/07/espanol/estilos-de-vida/hantavirus-preguntas-respuestas.html
@@ -67,14 +71,10 @@ https://www.nytimes.com/2026/05/07/nyregion/hochul-taxes-budget-ny.html
 https://www.nytimes.com/2026/05/07/world/europe/ukraine-russia-victory-day.html
 
 **Deprived of a Poolside Lounge Chair, German Man Sues and Wins**\
-`A tourist won a refund after a court ruled that hotel staff failed to stop guests from reserving sun beds with towels.`\
+`A tourist won a refund after a court ruled that the hotel’s staff failed to stop guests from reserving sun beds with towels.`\
 https://www.nytimes.com/2026/05/07/world/europe/tourist-pool-loungers-refund-germany.html
 
 **‘Billie Eilish — Hit Me Hard and Soft’ Review: 3-D Is What She Was Made For**\
 `The pop superstar teamed up with James Cameron to create a concert movie that, playing with shiny camera technology, reinvigorates the concert experience.`\
 https://www.nytimes.com/2026/05/07/movies/billie-eilish-hit-me-hard-and-soft-the-tour-review.html
-
-**Shell Reports Nearly $7 Billion Profit Amid ‘Unprecedented Disruption’**\
-`The oil giant’s earnings in the first three months of the year were more than double the previous quarter’s and follow similarly strong results of European rivals.`\
-https://www.nytimes.com/2026/05/07/business/shell-profit-oil-iran-war.html
 
