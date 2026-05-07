@@ -1,3 +1,11 @@
+**5 Takeaways From the Last Televised California Governor Debate**\
+`Candidates debated housing and insurance policy in the first half, then furiously attacked one another at the end.`\
+https://www.nytimes.com/2026/05/07/us/politics/california-governors-debate-takeaways.html
+
+**Trump Keeps Saying He Wants to Leave NATO. Maybe He Already Has.**\
+`For the NATO deterrent to work, Europe and Russia both have to believe that America is coming.`\
+https://www.nytimes.com/2026/05/07/opinion/trump-europe-nato.html
+
 **Un juez publica la supuesta nota de suicidio de Epstein**\
 `La nota estuvo sellada durante años como parte del caso penal del compañero de celda de Jeffrey Epstein. The New York Times no ha autenticado que Epstein la haya escrito.`\
 https://www.nytimes.com/es/2026/05/07/espanol/estados-unidos/supuesta-nota-suicidio-epstein.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/live/2026/05/06/us/california-governor-debate/the-sexual
 **Watercraft Slams Into Gray Whale Near Vancouver, Injuring Driver**\
 `The whale appeared to be unharmed by the collision, which was captured on video.`\
 https://www.nytimes.com/2026/05/06/world/canada/jet-ski-hits-grey-whale-vancouver.html
-
-**Anthropic’s C.E.O. Says It Could Grow by 80 Times This Year**\
-`The chief executive, Dario Amodei, said the rapid growth had exponentially increased the start-up’s need for more computing power.`\
-https://www.nytimes.com/2026/05/06/technology/anthropic-ceo-ai-growth.html
-
-**Health Authorities Monitor Hantavirus Cruise Passengers in United States**\
-`People in at least three states are being monitored after being on the ship. None have shown symptoms, officials said.`\
-https://www.nytimes.com/2026/05/06/us/hantavirus-cruise-us-passengers.html
 

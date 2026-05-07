@@ -1,3 +1,11 @@
+**5 Takeaways From the Last Televised California Governor Debate**\
+`Candidates debated housing and insurance policy in the first half, then furiously attacked one another at the end.`\
+https://www.nytimes.com/2026/05/07/us/politics/california-governors-debate-takeaways.html
+
+**Trump Keeps Saying He Wants to Leave NATO. Maybe He Already Has.**\
+`For the NATO deterrent to work, Europe and Russia both have to believe that America is coming.`\
+https://www.nytimes.com/2026/05/07/opinion/trump-europe-nato.html
+
 **Un juez publica la supuesta nota de suicidio de Epstein**\
 `La nota estuvo sellada durante años como parte del caso penal del compañero de celda de Jeffrey Epstein. The New York Times no ha autenticado que Epstein la haya escrito.`\
 https://www.nytimes.com/es/2026/05/07/espanol/estados-unidos/supuesta-nota-suicidio-epstein.html
