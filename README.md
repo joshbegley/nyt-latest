@@ -1,3 +1,7 @@
+**Dutch Flight Attendant Is Tested for Hantavirus**\
+`Global health officials are tracking people connected to a deadly outbreak on a cruise ship. One infected passenger had briefly boarded a flight from South Africa to the Netherlands before she died.`\
+https://www.nytimes.com/2026/05/07/world/europe/hantavirus-cruise-ship-outbreak.html
+
 **Candidates Clash in Last Televised Debate Before California Primary**\
 `Seven candidates competing to be the next governor of California traded barbs during the last televised face-off before the primary in June.`\
 https://www.nytimes.com/video/us/elections/100000010888492/california-governor-debate.html
@@ -20,7 +24,7 @@ https://www.nytimes.com/es/2026/05/07/espanol/mundo/guerra-iran-votantes-europa.
 
 **World in Waiting Game Over Iran Peace Proposal Response**\
 `An Iranian official said that Tehran would convey its reply through Pakistan, a key mediator. Another Iranian official earlier dismissed a reported proposal to end the war as a “list of American wishes.”`\
-https://www.nytimes.com/2026/05/07/world/middleeast/world-in-waiting-game-over-iran-peace-proposal-response.html
+https://www.nytimes.com/2026/05/07/world/middleeast/iran-war-us-peace-plan-trump.html
 
 **What the End of Spirit Airlines Means for the Future of Flying**\
 `Spirit Airlines reshaped aviation in the United States, but it became a victim of the rising costs it once excelled at controlling.`\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/07/opinion/american-empire-future-ray-dalio.html
 **The Easiest Home Upgrade: New Pulls, Knobs and Light Switches**\
 `Plus: a Bruges bed-and-breakfast with a wild garden, artworks made on soaked canvases and more recommendations from T Magazine.`\
 https://www.nytimes.com/2026/05/07/t-magazine/cabinet-pulls-door-knobs-light-switches.html
-
-**They Looked for a ‘Grandkid Magnet’ Outside of Dallas**\
-`After a decade in the city, a retired couple migrated north to Denton, Texas, in search of a single-story house where the family could gather.`\
-https://www.nytimes.com/interactive/2026/05/07/realestate/dallas-forth-worth-texas-denton-home-sale.html
 
