@@ -1,3 +1,11 @@
+**Is America Headed for ‘Greater Disorder’?**\
+`“I think we know that we are in increasingly disorderly times,” the billionaire investor Ray Dalio says on “Interesting Times,” where he tells the columnist Ross Douthat why he’s pessimistic about America’s future.`\
+https://www.nytimes.com/video/opinion/100000010875142/is-america-headed-for-greater-disorder.html
+
+**U.K. Election Poses Test for Starmer’s Labour Party**\
+`Polls have predicted sweeping losses for Prime Minister Keir Starmer’s Labour Party as millions head to the ballot box in parliamentary elections in Scotland and Wales and local elections in England.`\
+https://www.nytimes.com/video/world/europe/100000010888858/uk-local-elections-starmer-labour-party.html
+
 **As Stockpiles Fall, U.S. Sells More Missiles Worth $17 Billion to Gulf Nations**\
 `The United States and its partners have burned through an enormous amount of air defense missiles in the Iran war, and production is slow.`\
 https://www.nytimes.com/2026/05/07/us/politics/weapons-stockpiles-iran-war.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/video/dining/100000010884567/spinach-meatballs-with-past
 **Art Opportunities Abound on Campuses Outside of New York City**\
 `Academic museums at Princeton, Yale, Cornell and Skidmore have organized several standout exhibitions, worth a venture beyond TEFAF New York.`\
 https://www.nytimes.com/2026/05/07/arts/design/tefafny-art-campuses.html
-
-**Despite Uncertainty, New York Art Dealers Are Optimistic — and Swinging for the Fences**\
-`This May, big-ticket items, and numerous major private collections, will be on offer and provide a major test of the market in a chaotic time.`\
-https://www.nytimes.com/2026/05/07/arts/design/new-york-art-market-may-auctions.html
-
-**Tennessee Approves New Map Aimed at Flipping the Last Democratic Seat**\
-`After a Supreme Court ruling that weakened the Voting Rights Act of 1965, Republicans carved up a majority-Black Memphis seat as the national redistricting wars continue.`\
-https://www.nytimes.com/2026/05/07/us/elections/tennessee-house-redistricting.html
 

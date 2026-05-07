@@ -1,3 +1,11 @@
+**As Stockpiles Fall, U.S. Sells More Missiles Worth $17 Billion to Gulf Nations**\
+`The United States and its partners have burned through an enormous amount of air defense missiles in the Iran war, and production is slow.`\
+https://www.nytimes.com/2026/05/07/us/politics/weapons-stockpiles-iran-war.html
+
+**Art Gallery Shows to See in May**\
+`This week in Newly Reviewed, Will Heinrich covers Ceija Stojka’s naïve expressionism, Mao Ishikawa’s sprawling bodies and a reinstallation of an important show by Peter Hujar.`\
+https://www.nytimes.com/2026/05/07/arts/art-gallery-shows-to-see-in-may.html
+
 **Manuela Hoelterhoff, Pulitzer-Winning Arts Critic, Dies at 77**\
 `She won the top journalism honor for criticism while with The Wall Street Journal. She later wrote a wry, perceptive book about the backstage world of opera.`\
 https://www.nytimes.com/2026/05/07/arts/music/manuela-hoelterhoff-dead.html

@@ -1,3 +1,11 @@
+**As Stockpiles Fall, U.S. Sells More Missiles Worth $17 Billion to Gulf Nations**\
+`The United States and its partners have burned through an enormous amount of air defense missiles in the Iran war, and production is slow.`\
+https://www.nytimes.com/2026/05/07/us/politics/weapons-stockpiles-iran-war.html
+
+**Art Gallery Shows to See in May**\
+`This week in Newly Reviewed, Will Heinrich covers Ceija Stojka’s naïve expressionism, Mao Ishikawa’s sprawling bodies and a reinstallation of an important show by Peter Hujar.`\
+https://www.nytimes.com/2026/05/07/arts/art-gallery-shows-to-see-in-may.html
+
 **Manuela Hoelterhoff, Pulitzer-Winning Arts Critic, Dies at 77**\
 `She won the top journalism honor for criticism while with The Wall Street Journal. She later wrote a wry, perceptive book about the backstage world of opera.`\
 https://www.nytimes.com/2026/05/07/arts/music/manuela-hoelterhoff-dead.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/07/arts/design/new-york-art-market-may-auctions.
 **Tennessee Approves New Map Aimed at Flipping the Last Democratic Seat**\
 `After a Supreme Court ruling that weakened the Voting Rights Act of 1965, Republicans carved up a majority-Black Memphis seat as the national redistricting wars continue.`\
 https://www.nytimes.com/2026/05/07/us/elections/tennessee-house-redistricting.html
-
-**Man Arrested on Suspicion of Carrying Weapon Near Former Prince Andrew’s Home**\
-`The police in Britain said that a suspect was in custody after reports he had behaved in an “intimidating manner.”`\
-https://www.nytimes.com/2026/05/07/world/europe/prince-andrew-suspect-arrest-sandringham.html
-
-**7 New Books We Love This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://www.nytimes.com/2026/05/07/books/review/new-recommended-books.html
 
