@@ -1,3 +1,7 @@
+**Una mutación dio a los humanos el don del habla. Estos ratones también la tienen**\
+`Los científicos querían saber por qué el parloteo de los ratones cantores de Alston se parece tanto a la conversación humana. Lo que descubrieron podría cambiar la forma de estudiar ambas especies.`\
+https://www.nytimes.com/es/2026/05/07/espanol/ciencia-y-tecnologia/ratones-cantores-alston-mutacion-habla.html
+
 **In Italy, a Link Between the Cannes Film Festival and the Far East Film Festival**\
 `FEFF, in Udine, Italy, has become a partner with Marché du Film, one of the world’s most important film markets and a parallel event at Cannes.`\
 https://www.nytimes.com/2026/05/07/movies/cannes-film-festival-far-east.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/07/us/politics/the-docket-abortion-pills.html
 **As U.S. Debt Hits a Worrying Milestone, Washington Barely Notices**\
 `The debt is outgrowing the size of America’s economy. The president’s policies could accelerate the country’s fiscal headaches, experts say, unless policymakers intervene.`\
 https://www.nytimes.com/2026/05/07/business/us-debt-trump-policies-budget.html
-
-**Why Trump’s Feud With the Pope Worries Republicans**\
-`Our national political correspondent Lisa Lerer explains the impact of President Trump’s spate of attacks against Pope Leo XIV ahead of the closely contested midterm elections.`\
-https://www.nytimes.com/video/us/politics/100000010886966/trump-fight-pope-leo-impact-republicans-midterms.html
 
