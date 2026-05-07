@@ -1,3 +1,11 @@
+**France Passes Law Easing Process of Returning Looted Art**\
+`President Emmanuel Macron has long called the restitution of African art from French museums a priority. Experts say the new law is a seismic moment in that effort.`\
+https://www.nytimes.com/2026/05/07/arts/france-africa-art-restitution-colonialism.html
+
+**Today, In Short**\
+`Caleb Hearon. Tae Bo. And the New York Knicks won again.`\
+https://www.nytimes.com/2026/05/07/briefing/today-in-short.html
+
 **Federal and State Officials Consider Closing Florida’s ‘Alligator Alcatraz’**\
 `The immigrant detention center in the Everglades, which Gov. Ron DeSantis, a Republican, opened last July, may be too expensive to keep operating.`\
 https://www.nytimes.com/2026/05/07/us/federal-and-state-officials-consider-closing-floridas-alligator-alcatraz.html
@@ -55,7 +63,7 @@ https://www.nytimes.com/2026/05/07/nyregion/hochul-taxes-budget-ny.html
 https://www.nytimes.com/2026/05/07/world/europe/ukraine-russia-victory-day.html
 
 **Deprived of a Poolside Lounge Chair, German Man Sues and Wins**\
-`A tourist won a refund after a court ruled that hotel staff enforced a rule meant to stop guests reserving sun beds with towels.`\
+`A tourist won a refund after a court ruled that hotel staff failed to stop guests from reserving sun beds with towels.`\
 https://www.nytimes.com/2026/05/07/world/europe/tourist-pool-loungers-refund-germany.html
 
 **‘Billie Eilish — Hit Me Hard and Soft’ Review: 3-D Is What She Was Made For**\
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/07/business/shell-profit-oil-iran-war.html
 **These Toilets in Venice Have the Art World Aflush**\
 `Undoubtedly the biggest talker at this year’s Venice Biennale is the Austrian pavilion, where visitors can make their own contributions to the work on show.`\
 https://www.nytimes.com/2026/05/07/arts/design/venice-biennale-austria-florentina-holzinger.html
-
-**China Sentences 2 Former Defense Ministers on Bribery Charges**\
-`Gen. Wei Fenghe and Gen. Li Shangfu are likely to spend the rest of their lives in prison after receiving suspended death sentences.`\
-https://www.nytimes.com/2026/05/07/world/asia/china-ministers-death-sentences-military-corruption.html
-
-**Why Investors Are Still Betting Big on Kalshi**\
-`The popular prediction market platform has just raised a new funding round that values it at $22 billion, double what it was worth in December.`\
-https://www.nytimes.com/2026/05/07/business/dealbook/kalshi-funding-prediction-market.html
 
