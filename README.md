@@ -1,3 +1,7 @@
+**Las autoridades de salud de EE. UU. vigilan a pasajeros del crucero infectado por hantavirus**\
+`Residentes en Georgia, California y Arizona son vigilados tras estar a bordo del crucero en el que se produjo un brote mortal del virus. Ninguno ha mostrado síntomas, según las autoridades.`\
+https://www.nytimes.com/es/2026/05/07/espanol/estados-unidos/hantavirus-casos.html
+
 **Would You Spend $4,350 on a White Shirt?**\
 `A roundup of the best button-ups, from easy wardrobe staples to styles that make more of a statement.`\
 https://www.nytimes.com/2026/05/07/t-magazine/best-white-button-down-shirts.html
@@ -31,7 +35,7 @@ https://www.nytimes.com/2026/05/07/business/stocks-bonds-markets-iran-war.html
 https://www.nytimes.com/video/us/politics/100000010888734/tennessee-republicans-congressional-map-memphis.html
 
 **Tornadoes and Thunderstorms Damage More Than 1,000 Buildings in Mississippi**\
-`Tornadoes and severe thunderstorms left behind a trail of damage in Mississippi on Wednesday night, injuring at least 17 people, state officials said.`\
+`Tornadoes and severe thunderstorms left behind a trail of damage in Mississippi Wednesday night, injuring at least 17 people, state officials said.`\
 https://www.nytimes.com/video/weather/100000010889010/mississippi-tornado-damage.html
 
 **¿El hantavirus debería preocuparte?**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/05/07/espanol/ciencia-y-tecnologia/plutino-atmos
 **Surprising Signs of an Atmosphere Around a Tiny World, Billions of Miles Away**\
 `A gradual dimming and brightening when a star passed behind it suggested the mini-Pluto was wrapped in a thin layer of air.`\
 https://www.nytimes.com/2026/05/07/science/plutino-atmosphere-astronomy-pluto.html
-
-**Las elecciones en el Reino Unido pueden revelar un deteriorado sistema político**\
-`Las encuestas predicen pérdidas para el Partido Laborista del primer ministro Keir Starmer, mientras Reform UK, un partido antiinmigración, gana terreno y se perfila una nueva era multipartidista.`\
-https://www.nytimes.com/es/2026/05/07/espanol/mundo/elecciones-reino-unido-analisis-resultados.html
 
