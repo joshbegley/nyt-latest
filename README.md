@@ -1,3 +1,11 @@
+**From France to the U.S., an Exhibition on the Luxury Ties That Bind**\
+`Dozens of French luxury houses and institutions will converge on Manhattan for the cross-cultural exhibition “Hidden Treasures: 250 Years of Franco-American Luxury Stories.”`\
+https://www.nytimes.com/2026/05/07/arts/design/france-luxury-exhibition-new-york.html
+
+**How Suspects Were Caught in Robbery of $1 Million in Apple Products**\
+`Federal prosecutors said three men stole watches, iPads and iPhones from a truck in January. One of the men activated Apple watches after the heist, they said.`\
+https://www.nytimes.com/2026/05/07/nyregion/apple-theft-millions-new-york.html
+
 **Court Rules Against Trump’s 10% Tariff**\
 `Also, the U.S. and Iran exchange fire. Here’s the latest at the end of Thursday.`\
 https://www.nytimes.com/2026/05/07/briefing/trade-court-trump-tariffs.html
@@ -65,12 +73,4 @@ https://www.nytimes.com/2026/05/07/arts/music/manuela-hoelterhoff-dead.html
 **The Voting Rights Act Changed America. Now, It Can Change.**\
 `Do we care when other groups can’t elect their favorite candidates?`\
 https://www.nytimes.com/2026/05/07/opinion/voting-rights-act-america.html
-
-**Three Different Eras of Frozen Yogurt**\
-`New Yorkers have been obsessed with the tart treat for more than 50 years. These three spots get it right.`\
-https://www.nytimes.com/2026/05/07/dining/three-different-eras-of-frozen-yogurt.html
-
-**Iran and U.S. Consider One-Page Plan to End Hostilities, Iranian Officials Say**\
-`The plan would reopen the Strait of Hormuz and give the two countries 30 days to hammer out a comprehensive deal, according to three Iranian officials.`\
-https://www.nytimes.com/2026/05/07/world/middleeast/iran-us-deal-proposal.html
 
