@@ -1,3 +1,11 @@
+**What’s Going On in This Picture? | May 11, 2026**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://www.nytimes.com/2026/05/07/learning/whats-going-on-in-this-picture-may-11-2026.html
+
+**Teenagers on Why They Believe They Can Change the World for the Better**\
+`Students respond to the Gen Z protests that rippled across the globe last year, and share how people their age can have a positive impact.`\
+https://www.nytimes.com/2026/05/07/learning/teenagers-on-why-they-believe-they-can-change-the-world-for-the-better.html
+
 **Trump Administration Lifts Ban on ‘Cyanide Bombs’ on Public Lands**\
 `The Bureau of Land Management will allow the use of the spring-loaded traps, which can kill coyotes and other animals that prey on livestock.`\
 https://www.nytimes.com/2026/05/07/climate/cyanide-bombs-public-lands.html

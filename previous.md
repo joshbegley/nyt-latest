@@ -1,3 +1,11 @@
+**What’s Going On in This Picture? | May 11, 2026**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://www.nytimes.com/2026/05/07/learning/whats-going-on-in-this-picture-may-11-2026.html
+
+**Teenagers on Why They Believe They Can Change the World for the Better**\
+`Students respond to the Gen Z protests that rippled across the globe last year, and share how people their age can have a positive impact.`\
+https://www.nytimes.com/2026/05/07/learning/teenagers-on-why-they-believe-they-can-change-the-world-for-the-better.html
+
 **Trump Administration Lifts Ban on ‘Cyanide Bombs’ on Public Lands**\
 `The Bureau of Land Management will allow the use of the spring-loaded traps, which can kill coyotes and other animals that prey on livestock.`\
 https://www.nytimes.com/2026/05/07/climate/cyanide-bombs-public-lands.html
@@ -65,12 +73,4 @@ https://www.nytimes.com/2026/05/07/dining/the-veggie-goes-hardcover.html
 **In L.A. Mayor’s Race, Karen Bass Faces Vocal Rivals and a ‘Disgruntled Electorate’**\
 `The mayor of Los Angeles is running for a second term as a former ally and a reality TV star tap into widespread voter angst.`\
 https://www.nytimes.com/2026/05/07/us/los-angeles-mayors-race-bass-challengers.html
-
-**Talk to Strangers, and Share Your Worlds**\
-`Why talking to strangers is good for you. Also: Ballroom math; Haitian refugees; pro-Republican avatars; the Potomac challenge; 1976 and 2026.`\
-https://www.nytimes.com/2026/05/07/opinion/strangers-conversation.html
-
-**At the Cannes Film Festival, This Hotel Celebrates With a Drink**\
-`For the past decade, the Hôtel Barrière Le Majestic, close enough to the action that guests can see stars arrive, has offered a colorful cocktail to honor the event.`\
-https://www.nytimes.com/2026/05/07/movies/cannes-film-festival-hotel-drink.html
 

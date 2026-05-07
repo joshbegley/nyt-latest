@@ -1,3 +1,11 @@
+**‘Blue Film’ Review: The Sex Is Expensive. The Talk Is Priceless.**\
+`An older man pays a camboy $50,000 for a night that goes to difficult, existential places in this breakout feature from Elliot Tuttle.`\
+https://www.nytimes.com/2026/05/07/movies/blue-film-review.html
+
+**Our Favorite Milan Homes**\
+`For centuries, the city has been a capital of design. Here, we revisit the most beautiful and exciting interiors we’ve covered.`\
+https://www.nytimes.com/2026/05/07/t-magazine/best-milan-home-apartment-italian-design.html
+
 **What’s Going On in This Picture? | May 11, 2026**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://www.nytimes.com/2026/05/07/learning/whats-going-on-in-this-picture-may-11-2026.html
@@ -65,12 +73,4 @@ https://www.nytimes.com/2026/05/07/climate/fema-review-panel-trump.html
 **Israel Says It Killed a Hezbollah Chief Near Beirut, Testing the Truce**\
 `The strike was the first near the Lebanese capital since a cease-fire that has curbed fighting but not halted it. Washington is pushing for a lasting peace, hoping it will ease diplomacy with Iran.`\
 https://www.nytimes.com/2026/05/07/world/middleeast/israel-hezbollah-commander-beirut-strike.html
-
-**The Veggie Goes Hardcover**\
-`Find all of your favorite vegetarian recipes from New York Times Cooking and then some in my new cookbook, “Veg Everything.”`\
-https://www.nytimes.com/2026/05/07/dining/the-veggie-goes-hardcover.html
-
-**In L.A. Mayor’s Race, Karen Bass Faces Vocal Rivals and a ‘Disgruntled Electorate’**\
-`The mayor of Los Angeles is running for a second term as a former ally and a reality TV star tap into widespread voter angst.`\
-https://www.nytimes.com/2026/05/07/us/los-angeles-mayors-race-bass-challengers.html
 
