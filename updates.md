@@ -1,3 +1,7 @@
+**Una mutación dio a los humanos el don del habla. Estos ratones también la tienen**\
+`Los científicos querían saber por qué el parloteo de los ratones cantores de Alston se parece tanto a la conversación humana. Lo que descubrieron podría cambiar la forma de estudiar ambas especies.`\
+https://www.nytimes.com/es/2026/05/07/espanol/ciencia-y-tecnologia/ratones-cantores-alston-mutacion-habla.html
+
 **In Italy, a Link Between the Cannes Film Festival and the Far East Film Festival**\
 `FEFF, in Udine, Italy, has become a partner with Marché du Film, one of the world’s most important film markets and a parallel event at Cannes.`\
 https://www.nytimes.com/2026/05/07/movies/cannes-film-festival-far-east.html
