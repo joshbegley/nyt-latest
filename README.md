@@ -54,7 +54,7 @@ https://www.nytimes.com/2026/05/06/us/hantavirus-cruise-us-passengers.html
 ``\
 https://www.nytimes.com/live/2026/05/06/us/california-governor-debate/heres-what-to-know-about-the-california-governor-race
 
-**What to know and how to watch.**\
+**Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/05/06/us/california-governor-debate/what-to-know-and-how-to-watch
 
