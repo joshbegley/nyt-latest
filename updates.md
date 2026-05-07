@@ -1,3 +1,7 @@
+**The Voting Rights Act Changed America. Now, It Can Change.**\
+`Do we care when other groups can’t elect their favorite candidates?`\
+https://www.nytimes.com/2026/05/07/opinion/voting-rights-act-america.html
+
 **The Voting Rights Act Changed America, Now It Can Change**\
 `Do we care when other groups can’t elect their favorite candidates?`\
 https://www.nytimes.com/2026/05/07/opinion/the-voting-rights-act-changed-america-now-it-can-change.html
