@@ -1,3 +1,7 @@
+**Manuela Hoelterhoff, Pulitzer-Winning Arts Critic, Dies at 77**\
+`She won the top journalism honor for criticism while with The Wall Street Journal. She later wrote a wry, perceptive book about the backstage world of opera.`\
+https://www.nytimes.com/2026/05/07/arts/music/manuela-hoelterhoff-dead.html
+
 **The Voting Rights Act Changed America. Now, It Can Change.**\
 `Do we care when other groups can’t elect their favorite candidates?`\
 https://www.nytimes.com/2026/05/07/opinion/voting-rights-act-america.html
