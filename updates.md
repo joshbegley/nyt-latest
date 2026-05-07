@@ -1,3 +1,11 @@
+**Is the Blake Lively v. Justin Baldoni Legal Fight Over? Not So Fast.**\
+`Lawyers for Ms. Lively and Mr. Baldoni have said the two sides settled much of the contentious dispute. But one major disagreement remains.`\
+https://www.nytimes.com/2026/05/07/movies/blake-lively-justin-baldoni-settlement-defamation.html
+
+**World in Waiting Game Over Iran Peace Proposal Response**\
+`An Iranian official said that Tehran would convey its reply through Pakistan, a key mediator. Another Iranian official earlier dismissed a reported proposal to end the war as a “list of American wishes.”`\
+https://www.nytimes.com/live/2026/05/07/world/iran-trump-hormuz-peace-deal/iran-war-us-peace-plan-trump
+
 **New York’s $268 Billion Budget Deal Includes New Second-Home Tax**\
 `Gov. Kathy Hochul announced a handshake budget deal with state lawmakers that also seeks to push back federal immigration enforcement in the state.`\
 https://www.nytimes.com/2026/05/07/nyregion/hochul-taxes-budget-ny.html

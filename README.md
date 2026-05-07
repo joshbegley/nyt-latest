@@ -19,7 +19,7 @@ https://www.nytimes.com/2026/05/07/world/europe/tourist-pool-loungers-refund-ger
 https://www.nytimes.com/2026/05/07/movies/billie-eilish-hit-me-hard-and-soft-the-tour-review.html
 
 **Shell Reports Nearly $7 Billion Profit Amid ‘Unprecedented Disruption’**\
-`The oil giant’s earnings in the first three months of the year were more than double the previous quarter’s and followed similarly strong results of European rivals.`\
+`The oil giant’s earnings in the first three months of the year were more than double the previous quarter’s and follow similarly strong results of European rivals.`\
 https://www.nytimes.com/2026/05/07/business/shell-profit-oil-iran-war.html
 
 **These Toilets in Venice Have the Art World Aflush**\
@@ -66,8 +66,8 @@ https://www.nytimes.com/2026/05/07/arts/design/venice-biennale-us-pavilion.html
 `El malestar económico está empujando a muchos europeos hacia la derecha nacionalista. Las elecciones locales en el Reino Unido deberían darnos una idea de cuántos.`\
 https://www.nytimes.com/es/2026/05/07/espanol/mundo/guerra-iran-votantes-europa.html
 
-**World in Waiting Game Over Iran Peace Proposal Response**\
-`An Iranian official said that Tehran would convey its reply through Pakistan, a key mediator. Another Iranian official earlier dismissed a reported proposal to end the war as a “list of American wishes.”`\
+**Here’s the latest.**\
+`The spokesman for Iran’s foreign ministry, Esmail Baghaei, said late Wednesday that his government was reviewing an American response to a 14-point Iranian proposal to end the war and would give its response to Pakistan, a key mediator.`\
 https://www.nytimes.com/live/2026/05/07/world/iran-trump-hormuz-peace-deal/iran-war-us-peace-plan-trump
 
 **What the End of Spirit Airlines Means for the Future of Flying**\
