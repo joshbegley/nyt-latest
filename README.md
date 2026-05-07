@@ -1,3 +1,27 @@
+**As U.S. Debt Hits a Worrying Milestone, Washington Barely Notices**\
+`The debt is outgrowing the size of America’s economy. The president’s policies could accelerate the country’s fiscal headaches, experts say, unless policymakers intervene.`\
+https://www.nytimes.com/2026/05/07/business/us-debt-trump-policies-budget.html
+
+**Why Trump’s Feud With the Pope Worries Republicans**\
+`Our national political correspondent Lisa Lerer explains the impact of President Trump’s spate of attacks against Pope Leo XIV ahead of the closely contested midterm elections.`\
+https://www.nytimes.com/video/us/politics/100000010886966/trump-fight-pope-leo-impact-republicans-midterms.html
+
+**Elon Musk’s SpaceX Plans $55 Billion Investment to Make A.I. Chips**\
+`The rocket company’s new semiconductor factory, called Terafab, is part of the billionaire’s increasing efforts to dominate artificial intelligence.`\
+https://www.nytimes.com/2026/05/07/business/spacex-chips-terafab.html
+
+**Mayor of Charlotte, N.C., Says She Will Resign Next Month**\
+`Mayor Vi Lyles did not fully explain why she would leave office early, saying only that she wanted to spend more time with family.`\
+https://www.nytimes.com/2026/05/07/us/charlotte-mayor-vi-lyles-resignation.html
+
+**Stocks Are Exuberant. Bonds Are Subdued. Why the Divergence?**\
+`Stock investors are betting that companies will make enormous profits, despite the war. But investors in bonds, including U.S. Treasuries, have other concerns.`\
+https://www.nytimes.com/2026/05/07/business/stocks-bonds-markets-iran-war.html
+
+**Tennessee Republicans Aim to Break Up State’s Lone Democratic District**\
+`Protesters denounced a redistricting effort led by Tennessee Republicans that would slice up Memphis, a majority-Black city, and Shelby County into three districts. The new congressional map would threaten Democrats’ hold on their lone remaining seat in the state.`\
+https://www.nytimes.com/video/us/politics/100000010888734/tennessee-republicans-congressional-map-memphis.html
+
 **Tornadoes and Thunderstorms Damage More Than 1,000 Buildings in Mississippi**\
 `Tornadoes and severe thunderstorms left behind a trail of damage in Mississippi on Wednesday night, injuring at least 17 people, state officials said.`\
 https://www.nytimes.com/video/weather/100000010889010/mississippi-tornado-damage.html
@@ -16,7 +40,7 @@ https://www.nytimes.com/2026/05/07/briefing/today-in-short.html
 
 **Federal and State Officials Discuss Closing Florida’s ‘Alligator Alcatraz’**\
 `The immigrant detention center in the Everglades, which Gov. Ron DeSantis, a Republican, opened last July, may be too expensive to keep operating.`\
-https://www.nytimes.com/2026/05/07/us/federal-and-state-officials-consider-closing-floridas-alligator-alcatraz.html
+https://www.nytimes.com/2026/05/07/us/florida-alligator-alcatraz-possible-closure.html
 
 **Half of Patients With Advanced Lung Cancer Don’t Get Treatment, Study Finds**\
 `New drugs have made America’s deadliest cancer more treatable than ever. So why aren’t they reaching patients?`\
@@ -53,28 +77,4 @@ https://www.nytimes.com/2026/05/07/world/asia/china-eastern-plane-crash-flight-5
 **Who Are You Getting Your Health Advice From?**\
 `Half of U.S. adults under 50 now get wellness advice from influencers. A new report examines their qualifications.`\
 https://www.nytimes.com/2026/05/07/well/health-wellness-influencers-pew.html
-
-**ICE Agents Barred From Wearing Masks in New York Under State Budget Deal**\
-`State and local officials will also be prohibited from formally cooperating with Immigrations and Customs Enforcement under the agreement.`\
-https://www.nytimes.com/2026/05/07/nyregion/ice-masks-hochul-ny.html
-
-**Is the Blake Lively v. Justin Baldoni Legal Fight Over? Not So Fast.**\
-`Lawyers for Ms. Lively and Mr. Baldoni have said the two sides settled much of the contentious dispute. But one major disagreement remains.`\
-https://www.nytimes.com/2026/05/07/movies/blake-lively-justin-baldoni-settlement-defamation.html
-
-**New York’s $268 Billion Budget Deal Includes New Second-Home Tax**\
-`Gov. Kathy Hochul announced a handshake budget deal with state lawmakers that also seeks to push back on federal immigration enforcement in the state.`\
-https://www.nytimes.com/2026/05/07/nyregion/hochul-taxes-budget-ny.html
-
-**Russia Ramps Up Threats Toward Ukraine Over Victory Day Parade**\
-`Kremlin officials said a large strike on Kyiv would be “inevitable” if Ukraine disrupted the May 9 event, a prospect President Volodymyr Zelensky has appeared to allude to.`\
-https://www.nytimes.com/2026/05/07/world/europe/ukraine-russia-victory-day.html
-
-**Deprived of a Poolside Lounge Chair, German Man Sues and Wins**\
-`A tourist won a refund after a court ruled that the hotel’s staff failed to stop guests from reserving sun beds with towels.`\
-https://www.nytimes.com/2026/05/07/world/europe/tourist-pool-loungers-refund-germany.html
-
-**‘Billie Eilish — Hit Me Hard and Soft’ Review: 3-D Is What She Was Made For**\
-`The pop superstar teamed up with James Cameron to create a concert movie that, playing with shiny camera technology, reinvigorates the concert experience.`\
-https://www.nytimes.com/2026/05/07/movies/billie-eilish-hit-me-hard-and-soft-the-tour-review.html
 
