@@ -1,3 +1,7 @@
+**Pacientes de hantavirus aterrizan en Ámsterdam. Se planean más evacuaciones del crucero**\
+`Se ofrecerá a los pasajeros de otros países de la Unión Europea la posibilidad de evacuar a sus propios ciudadanos, según un portavoz del Ministerio de Salud español.`\
+https://www.nytimes.com/es/2026/05/06/espanol/hantavirus-pacientes-evacuados.html
+
 **Federal Agents and Los Angeles Police Arrest 18 in Drug Raid**\
 `Federal and local officers raided businesses on Wednesday. Last summer, immigration tensions flared between federal and local officials at the same park.`\
 https://www.nytimes.com/2026/05/06/us/federal-drug-raid-los-angeles.html
