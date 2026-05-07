@@ -1,3 +1,7 @@
+**A Scaled-Back Celebration for Public Servants ‘in Trauma’**\
+`The Trump administration has eliminated more than 350,000 federal jobs. But an annual effort to inspire talented people to serve the public continues.`\
+https://www.nytimes.com/2026/05/06/us/politics/public-servants-awards.html
+
 **The sexual assault allegations against Eric Swalwell rattled the race.**\
 ``\
 https://www.nytimes.com/live/2026/05/06/us/california-governor-debate/the-sexual-assault-allegations-against-eric-swalwell-rattled-the-race
