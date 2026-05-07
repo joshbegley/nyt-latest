@@ -1,3 +1,11 @@
+**Fast-Food Sales Rise Despite Higher Gas Prices**\
+`Fallout from the war in Iran didn’t dampen quarterly results at McDonald’s, Burger King and Taco Bell.`\
+https://www.nytimes.com/2026/05/07/business/mcdonalds-earnings.html
+
+**Sticker Shock**\
+`We explore the rise in gas prices.`\
+https://www.nytimes.com/2026/05/07/briefing/sticker-shock-gas-prices.html
+
 **An American Artist Plops His Sculptures on a World Stage**\
 `They may be bronze and marble, but Alma Allen’s artworks at the Venice Biennale are as intangible as air.`\
 https://www.nytimes.com/2026/05/07/arts/design/venice-biennale-us-pavilion.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/interactive/2026/05/07/realestate/dallas-forth-worth-tex
 **Trump to Host Brazil’s Leader After Months of Ups and Downs**\
 `President Trump and President Luiz Inácio Lula da Silva, who have had a rocky relationship, will meet on Thursday for talks on security, trade and critical minerals.`\
 https://www.nytimes.com/2026/05/07/world/americas/trump-brazil-lula-meeting.html
-
-**Ted Turner’s Legacy as a Landowner and Conservationist**\
-`The media mogul, who died this week, amassed roughly two million acres and revived entire ecosystems.`\
-https://www.nytimes.com/2026/05/07/realestate/ted-turner-ranch-land-legacy.html
-
-**How Do You Feel About Driverless Cars?**\
-`Have you ever been in one? What are the advantages and disadvantages of autonomous vehicles for passengers, pedestrians and society at large?`\
-https://www.nytimes.com/2026/05/07/learning/how-do-you-feel-about-driverless-cars.html
 

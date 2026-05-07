@@ -1,3 +1,11 @@
+**Fast-Food Sales Rise Despite Higher Gas Prices**\
+`Fallout from the war in Iran didn’t dampen quarterly results at McDonald’s, Burger King and Taco Bell.`\
+https://www.nytimes.com/2026/05/07/business/mcdonalds-earnings.html
+
+**Sticker Shock**\
+`We explore the rise in gas prices.`\
+https://www.nytimes.com/2026/05/07/briefing/sticker-shock-gas-prices.html
+
 **An American Artist Plops His Sculptures on a World Stage**\
 `They may be bronze and marble, but Alma Allen’s artworks at the Venice Biennale are as intangible as air.`\
 https://www.nytimes.com/2026/05/07/arts/design/venice-biennale-us-pavilion.html
