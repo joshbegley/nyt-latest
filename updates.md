@@ -1,3 +1,15 @@
+**The Voting Rights Act Changed America, Now It Can Change**\
+`Do we care when other groups can’t elect their favorite candidates?`\
+https://www.nytimes.com/2026/05/07/opinion/the-voting-rights-act-changed-america-now-it-can-change.html
+
+**Three Different Eras of Frozen Yogurt**\
+`New Yorkers have been obsessed with the tart treat for more than 50 years. These three spots get it right.`\
+https://www.nytimes.com/2026/05/07/dining/three-different-eras-of-frozen-yogurt.html
+
+**Iran and U.S. Consider One-Page Plan to End Hostilities, Iranian Officials Say**\
+`The plan would reopen the Strait of Hormuz and give the two countries 30 days to hammer out a comprehensive deal, according to three Iranian officials.`\
+https://www.nytimes.com/2026/05/07/world/middleeast/iran-us-deal-proposal.html
+
 **Why America Is Removing So Many ‘Deadbeat’ Dams**\
 `States are recognizing the ecological benefits of ripping out dams and reconnecting rivers.`\
 https://www.nytimes.com/2026/05/07/climate/dam-removal-united-states.html
