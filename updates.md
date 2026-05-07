@@ -1,3 +1,15 @@
+**Health Authorities Monitor Hantavirus Cruise Passengers in United States**\
+`People in at least three states are being monitored after being on the ship. None have shown symptoms, officials said.`\
+https://www.nytimes.com/2026/05/06/us/hantavirus-cruise-us-passengers.html
+
+**Here’s what to know about the California governor race.**\
+``\
+https://www.nytimes.com/live/2026/05/06/us/california-governor-debate/heres-what-to-know-about-the-california-governor-race
+
+**What to know and how to watch.**\
+``\
+https://www.nytimes.com/live/2026/05/06/us/california-governor-debate/what-to-know-and-how-to-watch
+
 **Trump’s Gyrations on the War Leave Even Rubio Out of Sync**\
 `The administration’s latest shifts on the status of the conflict show how treacherous it is to speak for a president who cultivates an erratic style.`\
 https://www.nytimes.com/2026/05/06/us/politics/trump-rubio-iran-war.html
