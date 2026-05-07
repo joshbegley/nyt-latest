@@ -1,3 +1,11 @@
+**Why America Is Removing So Many ‘Deadbeat’ Dams**\
+`States are recognizing the ecological benefits of ripping out dams and reconnecting rivers.`\
+https://www.nytimes.com/2026/05/07/climate/dam-removal-united-states.html
+
+**Defendant in Boulder Antisemitic Attack Is Sentenced to Life in Prison**\
+`Mohamed Sabry Soliman pleaded guilty to 101 charges, including one count of murder, after the firebombing attack in Colorado last June.`\
+https://www.nytimes.com/2026/05/07/us/colorado-attack-soliman-life-sentence.html
+
 **Appeals Court Looks Unlikely to Allow Hegseth to Punish Senator for Video**\
 `A three-judge panel in Washington heard arguments in the lawsuit aimed at stopping the Pentagon from disciplining Senator Mark Kelly for a video warning about illegal military orders.`\
 https://www.nytimes.com/2026/05/07/us/politics/mark-kelly-pete-hegseth-video-lawsuit.html
@@ -65,12 +73,4 @@ https://www.nytimes.com/es/2026/05/07/espanol/ciencia-y-tecnologia/ratones-canto
 **In Italy, a Link Between the Cannes Film Festival and the Far East Film Festival**\
 `FEFF, in Udine, Italy, has become a partner with Marché du Film, one of the world’s most important film markets and a parallel event at Cannes.`\
 https://www.nytimes.com/2026/05/07/movies/cannes-film-festival-far-east.html
-
-**New Che Guevara Documentary Shows There Is More to Know**\
-`The film “Che Guevara: The Last Companions,” premiering at the Cannes Film Festival, tells the story of Guevara’s last surviving comrades in arms.`\
-https://www.nytimes.com/2026/05/07/movies/che-guevara-documentary-cannes-film-festival.html
-
-**Trump Panel Recommends FEMA Respond to Fewer Disasters**\
-`A White House task force also called for speeding up aid, but some of its ideas would require action by Congress to become reality.`\
-https://www.nytimes.com/2026/05/07/climate/fema-review-panel-trump.html
 
