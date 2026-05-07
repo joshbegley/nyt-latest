@@ -1,3 +1,7 @@
+**Oil Prices Hold Steady as Iran Talks Remain Murky**\
+`Investors waited for news on the situation in the Middle East, as the U.S. and Iran gave mixed signals on peace negotiations.`\
+https://www.nytimes.com/2026/05/07/business/oil-gas-price-iran.html
+
 **Palabra del día: ‘entrepreneur’**\
 `Esta palabra ha aparecido en 536 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
 https://www.nytimes.com/es/2026/05/07/espanol/que-significa-entrepreneur.html
