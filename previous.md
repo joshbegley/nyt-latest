@@ -1,3 +1,7 @@
+**Share & Anti-Pulitzer & Tell with Michael Cruz Kayne and Sam Reich**\
+`Reactions to Pablo’s Pulitzer Prize win, the fake J.P. Morgan scandal and more.`\
+https://www.nytimes.com/2026/05/07/podcasts/share-anti-pulitzer-tell-with-michael-cruz-kayne-and-sam-reich.html
+
 **Voters Exposed the Limits of China’s Cozy Ties to Orban**\
 `Beijing depended on Hungary’s outgoing leader, Viktor Orban, to gain a toehold in Europe. A giant battery factory proved a step too far.`\
 https://www.nytimes.com/2026/05/07/world/europe/hungary-orban-china-fidesz-magyar.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/07/nyregion/the-fight-for-cleaner-air-in-the-sou
 **Is This the Hidden Reason So Few People Are Having Kids?**\
 `We can’t be certain — and that’s the point.`\
 https://www.nytimes.com/2026/05/07/opinion/birthrate-kids-parents-demographics-future.html
-
-**We Defend Our ‘Greatest Songwriters’ List**\
-`And … admit some regrets.`\
-https://www.nytimes.com/2026/05/07/podcasts/cannonball-songwriters.html
 
