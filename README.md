@@ -1,3 +1,7 @@
+**Federal Agents and Los Angeles Police Arrest 18 in Drug Raid**\
+`Federal and local officers raided businesses on Wednesday. Last summer, immigration tensions flared between federal and local officials at the same park.`\
+https://www.nytimes.com/2026/05/06/us/federal-drug-raid-los-angeles.html
+
 **Judge Says F.B.I. Can Keep 2020 Election Records Seized From Georgia**\
 `The ruling is the latest in a saga driven by President Trump’s desire for redemption in the state, which he lost in 2020. The county is likely to appeal.`\
 https://www.nytimes.com/2026/05/06/us/politics/judge-says-fbi-can-keep-2020-election-records-seized-from-georgia.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/05/06/espanol/tiempo-y-clima/deforestacion-amazo
 **Lady Gaga and Doechii Strut, but for Whom?**\
 `From hip house to dark pop, the girls are collaborating. Our critic Jon Caramanica unpacks “Runway,” a track from “The Devil Wears Prada 2” that has Lady Gaga and Doechii joining forces.`\
 https://www.nytimes.com/video/podcasts/100000010887368/lady-gaga-and-doechii-strut-but-for-whom.html
-
-**Kendall Myers, estadounidense que espiaba para Cuba, muere a los 88 años**\
-`Mientras trabajaba para el Departamento de Estado, entregó información ultrasecreta a sus contactos cubanos durante 30 años. Fue condenado a cadena perpetua.`\
-https://www.nytimes.com/es/2026/05/06/espanol/muere-kendall-myers-espia-cuba.html
 

@@ -1,3 +1,23 @@
+**Judge Says F.B.I. Can Keep 2020 Election Records Seized From Georgia**\
+`The ruling is the latest in a saga driven by President Trump’s desire for redemption in the state, which he lost in 2020. The county is likely to appeal.`\
+https://www.nytimes.com/2026/05/06/us/politics/judge-says-fbi-can-keep-2020-election-records-seized-from-georgia.html
+
+**Animals That Bugle**\
+`John Guzzetta and Jeff Chen reunite to give us a Thursday workout.`\
+https://www.nytimes.com/2026/05/06/crosswords/daily-puzzle-2026-05-07.html
+
+**Susan Collins Says She Has Long Had a Benign Tremor**\
+`The Republican senator from Maine, running for re-election at age 73 in one of this year’s top Senate races, made the disclosure after mounting online scrutiny on the left.`\
+https://www.nytimes.com/2026/05/06/us/politics/susan-collins-tremor-maine-senate-race.html
+
+**Polls in California Reflect a Chaotic Governor’s Race**\
+`Four candidates have emerged as leaders in the primary election to succeed Gov. Gavin Newsom.`\
+https://www.nytimes.com/2026/05/06/us/politics/california-governor-polls.html
+
+**Watch Live: California Governor’s Debate**\
+`Candidates for California governor meet on the debate stage with less than a month until the primary.`\
+https://www.nytimes.com/video/embedded/us/politics/100000010888133/watch-live-california-governors-debate.html
+
 **Purported Epstein Suicide Note Is Released**\
 `A federal judge released the note, which Jeffrey Epstein’s former cellmate said he found in a graphic novel. The New York Times has not authenticated that Mr. Epstein wrote it.`\
 https://www.nytimes.com/2026/05/06/nyregion/epstein-suicide-note.html
