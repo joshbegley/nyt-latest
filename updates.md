@@ -1,3 +1,19 @@
+**France Passes Law Easing Process of Returning Looted Art**\
+`President Emmanuel Macron has long called the restitution of African art from French museums a priority. Experts say the new law is a seismic moment in that effort.`\
+https://www.nytimes.com/2026/05/07/arts/france-africa-art-restitution-colonialism.html
+
+**Today, In Short**\
+`Caleb Hearon. Tae Bo. And the New York Knicks won again.`\
+https://www.nytimes.com/2026/05/07/briefing/today-in-short.html
+
+**Federal and State Officials Consider Closing Florida’s ‘Alligator Alcatraz’**\
+`The immigrant detention center in the Everglades, which Gov. Ron DeSantis, a Republican, opened last July, may be too expensive to keep operating.`\
+https://www.nytimes.com/2026/05/07/us/federal-and-state-officials-consider-closing-floridas-alligator-alcatraz.html
+
+**Deprived of a Poolside Lounge Chair, German Man Sues and Wins**\
+`A tourist won a refund after a court ruled that hotel staff failed to stop guests from reserving sun beds with towels.`\
+https://www.nytimes.com/2026/05/07/world/europe/tourist-pool-loungers-refund-germany.html
+
 **Half of Patients With Advanced Lung Cancer Don’t Get Treatment, Study Finds**\
 `New drugs have made America’s deadliest cancer more treatable than ever. So why aren’t they reaching patients?`\
 https://www.nytimes.com/2026/05/07/well/metastatic-lung-cancer-study.html
