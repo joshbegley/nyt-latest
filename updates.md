@@ -1,3 +1,11 @@
+**Deprived of a Poolside Lounge Chair, German Man Sues and Wins**\
+`A tourist won a refund after a court ruled that hotel staff enforced a rule meant to stop guests reserving sun beds with towels.`\
+https://www.nytimes.com/2026/05/07/world/europe/tourist-pool-loungers-refund-germany.html
+
+**‘Billie Eilish — Hit Me Hard and Soft’ Review: 3-D Is What She Was Made For**\
+`The pop superstar teamed up with James Cameron to create a concert movie that, playing with shiny camera technology, reinvigorates the concert experience.`\
+https://www.nytimes.com/2026/05/07/movies/billie-eilish-hit-me-hard-and-soft-the-tour-review.html
+
 **Shell Reports Nearly $7 Billion Profit Amid ‘Unprecedented Disruption’**\
 `The oil giant’s earnings in the first three months of the year were more than double the previous quarter’s and follow similarly strong results of European rivals.`\
 https://www.nytimes.com/2026/05/07/business/shell-profit-oil-iran-war.html
