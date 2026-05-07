@@ -1,3 +1,11 @@
+**Dutch Flight Attendant Is Tested for Hantavirus**\
+`Global health officials are tracking people connected to a deadly outbreak on a cruise ship. One infected passenger had briefly boarded a flight from South Africa to the Netherlands before she died.`\
+https://www.nytimes.com/2026/05/07/world/europe/hantavirus-cruise-ship-outbreak.html
+
+**World in Waiting Game Over Iran Peace Proposal Response**\
+`An Iranian official said that Tehran would convey its reply through Pakistan, a key mediator. Another Iranian official earlier dismissed a reported proposal to end the war as a “list of American wishes.”`\
+https://www.nytimes.com/2026/05/07/world/middleeast/iran-war-us-peace-plan-trump.html
+
 **Candidates Clash in Last Televised Debate Before California Primary**\
 `Seven candidates competing to be the next governor of California traded barbs during the last televised face-off before the primary in June.`\
 https://www.nytimes.com/video/us/elections/100000010888492/california-governor-debate.html
