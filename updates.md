@@ -1,3 +1,11 @@
+**Palabra del día: ‘entrepreneur’**\
+`Esta palabra ha aparecido en 536 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/05/07/espanol/que-significa-entrepreneur.html
+
+**Word of the Day: entrepreneur**\
+`This word has appeared in 536 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/05/07/learning/word-of-the-day-entrepreneur.html
+
 **5 Takeaways From the Last Televised California Governor Debate**\
 `Candidates debated housing and insurance policy in the first half, then furiously attacked one another at the end.`\
 https://www.nytimes.com/2026/05/07/us/politics/california-governors-debate-takeaways.html
