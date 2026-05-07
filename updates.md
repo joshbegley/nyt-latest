@@ -1,3 +1,7 @@
+**Shell Reports Nearly $7 Billion Profit Amid ‘Unprecedented Disruption’**\
+`The oil giant’s earnings in the first three months of the year were more than double the previous quarter’s and follow similarly strong results of European rivals.`\
+https://www.nytimes.com/2026/05/07/business/shell-profit-oil-iran-war.html
+
 **These Toilets in Venice Have the Art World Aflush**\
 `Undoubtedly the biggest talker at this year’s Venice Biennale is the Austrian pavilion, where visitors can make their own contributions to the work on show.`\
 https://www.nytimes.com/2026/05/07/arts/design/venice-biennale-austria-florentina-holzinger.html

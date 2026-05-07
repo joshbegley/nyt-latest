@@ -1,3 +1,7 @@
+**Shell Reports Nearly $7 Billion Profit Amid ‘Unprecedented Disruption’**\
+`The oil giant’s earnings in the first three months of the year were more than double the previous quarter’s and follow similarly strong results of European rivals.`\
+https://www.nytimes.com/2026/05/07/business/shell-profit-oil-iran-war.html
+
 **These Toilets in Venice Have the Art World Aflush**\
 `Undoubtedly the biggest talker at this year’s Venice Biennale is the Austrian pavilion, where visitors can make their own contributions to the work on show.`\
 https://www.nytimes.com/2026/05/07/arts/design/venice-biennale-austria-florentina-holzinger.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/07/world/europe/smartphones-austria-children-exp
 **Share & Anti-Pulitzer & Tell with Michael Cruz Kayne and Sam Reich**\
 `Reactions to Pablo’s Pulitzer Prize win, the fake J.P. Morgan scandal and more.`\
 https://www.nytimes.com/2026/05/07/podcasts/share-anti-pulitzer-tell-with-michael-cruz-kayne-and-sam-reich.html
-
-**Voters Exposed the Limits of China’s Cozy Ties to Orban**\
-`Beijing depended on Hungary’s outgoing leader, Viktor Orban, to gain a toehold in Europe. A giant battery factory proved a step too far.`\
-https://www.nytimes.com/2026/05/07/world/europe/hungary-orban-china-fidesz-magyar.html
 
