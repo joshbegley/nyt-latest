@@ -1,3 +1,11 @@
+**New York’s $268 Billion Budget Deal Includes New Second-Home Tax**\
+`Gov. Kathy Hochul announced a handshake budget deal with state lawmakers that also seeks to push back federal immigration enforcement in the state.`\
+https://www.nytimes.com/2026/05/07/nyregion/hochul-taxes-budget-ny.html
+
+**World in Waiting Game Over Iran Peace Proposal Response**\
+`An Iranian official said that Tehran would convey its reply through Pakistan, a key mediator. Another Iranian official earlier dismissed a reported proposal to end the war as a “list of American wishes.”`\
+https://www.nytimes.com/2026/05/07/world/middleeast/iran-war-us-peace-plan-trump.html
+
 **Russia Ramps Up Threats Toward Ukraine Over Victory Day Parade**\
 `Kremlin officials said a large strike on Kyiv would be “inevitable” if Ukraine disrupted the May 9 event, a prospect President Volodymyr Zelensky has appeared to allude to.`\
 https://www.nytimes.com/2026/05/07/world/europe/ukraine-russia-victory-day.html

@@ -1,3 +1,7 @@
+**Is the Blake Lively v. Justin Baldoni Legal Fight Over? Not So Fast.**\
+`Lawyers for Ms. Lively and Mr. Baldoni have said the two sides settled much of the contentious dispute. But one major disagreement remains.`\
+https://www.nytimes.com/2026/05/07/movies/blake-lively-justin-baldoni-settlement-defamation.html
+
 **New York’s $268 Billion Budget Deal Includes New Second-Home Tax**\
 `Gov. Kathy Hochul announced a handshake budget deal with state lawmakers that also seeks to push back federal immigration enforcement in the state.`\
 https://www.nytimes.com/2026/05/07/nyregion/hochul-taxes-budget-ny.html
@@ -64,7 +68,7 @@ https://www.nytimes.com/es/2026/05/07/espanol/mundo/guerra-iran-votantes-europa.
 
 **World in Waiting Game Over Iran Peace Proposal Response**\
 `An Iranian official said that Tehran would convey its reply through Pakistan, a key mediator. Another Iranian official earlier dismissed a reported proposal to end the war as a “list of American wishes.”`\
-https://www.nytimes.com/2026/05/07/world/middleeast/iran-war-us-peace-plan-trump.html
+https://www.nytimes.com/live/2026/05/07/world/iran-trump-hormuz-peace-deal/iran-war-us-peace-plan-trump
 
 **What the End of Spirit Airlines Means for the Future of Flying**\
 `Spirit Airlines reshaped aviation in the United States, but it became a victim of the rising costs it once excelled at controlling.`\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/07/podcasts/the-daily/spirit-airlines-flying.htm
 **Surging Gas Prices Shake Americans, and How Ted Turner Unleashed 24-Hour News**\
 `Plus, the conflicting messages on the state of the war.`\
 https://www.nytimes.com/2026/05/07/podcasts/the-headlines/high-gas-prices-cnn-legacy.html
-
-**Connections Companion No. 1,062**\
-`Scroll down for hints and conversation about the puzzle for Friday, May 8, 2026.`\
-https://www.nytimes.com/2026/05/07/crosswords/connections-companion-1062.html
 
