@@ -1,3 +1,7 @@
+**New York’s $268 Billion Budget Deal Includes New Second-Home Tax**\
+`Gov. Kathy Hochul announced a handshake budget deal with state lawmakers that also seeks to push back federal immigration enforcement in the state.`\
+https://www.nytimes.com/2026/05/07/nyregion/hochul-taxes-budget-ny.html
+
 **Russia Ramps Up Threats Toward Ukraine Over Victory Day Parade**\
 `Kremlin officials said a large strike on Kyiv would be “inevitable” if Ukraine disrupted the May 9 event, a prospect President Volodymyr Zelensky has appeared to allude to.`\
 https://www.nytimes.com/2026/05/07/world/europe/ukraine-russia-victory-day.html
@@ -58,8 +62,8 @@ https://www.nytimes.com/2026/05/07/arts/design/venice-biennale-us-pavilion.html
 `El malestar económico está empujando a muchos europeos hacia la derecha nacionalista. Las elecciones locales en el Reino Unido deberían darnos una idea de cuántos.`\
 https://www.nytimes.com/es/2026/05/07/espanol/mundo/guerra-iran-votantes-europa.html
 
-**World in Waiting Game Over Iran’s Response to U.S. Peace Proposal**\
-`An Iranian official said that Tehran would convey its reply through Pakistan, a key mediator. Another Iranian official had earlier dismissed a reported proposal to end the war as a “list of American wishes.”`\
+**World in Waiting Game Over Iran Peace Proposal Response**\
+`An Iranian official said that Tehran would convey its reply through Pakistan, a key mediator. Another Iranian official earlier dismissed a reported proposal to end the war as a “list of American wishes.”`\
 https://www.nytimes.com/2026/05/07/world/middleeast/iran-war-us-peace-plan-trump.html
 
 **What the End of Spirit Airlines Means for the Future of Flying**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/07/podcasts/the-headlines/high-gas-prices-cnn-le
 **Connections Companion No. 1,062**\
 `Scroll down for hints and conversation about the puzzle for Friday, May 8, 2026.`\
 https://www.nytimes.com/2026/05/07/crosswords/connections-companion-1062.html
-
-**Strands Sidekick No. 796**\
-`Scroll down for hints and conversation about the puzzle for Friday, May 8, 2026.`\
-https://www.nytimes.com/2026/05/07/crosswords/strands-sidekick-796.html
 

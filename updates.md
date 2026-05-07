@@ -1,3 +1,11 @@
+**Russia Ramps Up Threats Toward Ukraine Over Victory Day Parade**\
+`Kremlin officials said a large strike on Kyiv would be “inevitable” if Ukraine disrupted the May 9 event, a prospect President Volodymyr Zelensky has appeared to allude to.`\
+https://www.nytimes.com/2026/05/07/world/europe/ukraine-russia-victory-day.html
+
+**Shell Reports Nearly $7 Billion Profit Amid ‘Unprecedented Disruption’**\
+`The oil giant’s earnings in the first three months of the year were more than double the previous quarter’s and followed similarly strong results of European rivals.`\
+https://www.nytimes.com/2026/05/07/business/shell-profit-oil-iran-war.html
+
 **Deprived of a Poolside Lounge Chair, German Man Sues and Wins**\
 `A tourist won a refund after a court ruled that hotel staff enforced a rule meant to stop guests reserving sun beds with towels.`\
 https://www.nytimes.com/2026/05/07/world/europe/tourist-pool-loungers-refund-germany.html
