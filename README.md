@@ -1,3 +1,7 @@
+**In Italy, a Link Between the Cannes Film Festival and the Far East Film Festival**\
+`FEFF, in Udine, Italy, has become a partner with Marché du Film, one of the world’s most important film markets and a parallel event at Cannes.`\
+https://www.nytimes.com/2026/05/07/movies/cannes-film-festival-far-east.html
+
 **New Che Guevara Documentary Shows There Is More to Know**\
 `The film “Che Guevara: The Last Companions,” premiering at the Cannes Film Festival, tells the story of Guevara’s last surviving comrades in arms.`\
 https://www.nytimes.com/2026/05/07/movies/che-guevara-documentary-cannes-film-festival.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/07/business/us-debt-trump-policies-budget.html
 **Why Trump’s Feud With the Pope Worries Republicans**\
 `Our national political correspondent Lisa Lerer explains the impact of President Trump’s spate of attacks against Pope Leo XIV ahead of the closely contested midterm elections.`\
 https://www.nytimes.com/video/us/politics/100000010886966/trump-fight-pope-leo-impact-republicans-midterms.html
-
-**Elon Musk’s SpaceX Plans $55 Billion Investment to Make A.I. Chips**\
-`The rocket company’s new semiconductor factory, called Terafab, is part of the billionaire’s increasing efforts to dominate artificial intelligence.`\
-https://www.nytimes.com/2026/05/07/business/spacex-chips-terafab.html
 
