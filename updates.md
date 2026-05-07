@@ -1,3 +1,7 @@
+**Candidates Clash in Last Televised Debate Before California Primary**\
+`Seven candidates competing to be the next governor of California traded barbs during the last televised face-off before the primary in June.`\
+https://www.nytimes.com/video/us/elections/100000010888492/california-governor-debate.html
+
 **Fast-Food Sales Rise Despite Higher Gas Prices**\
 `Fallout from the war in Iran didn’t dampen quarterly results at McDonald’s, Burger King and Taco Bell.`\
 https://www.nytimes.com/2026/05/07/business/mcdonalds-earnings.html
