@@ -1,3 +1,7 @@
+**Appeals Court Looks Unlikely to Allow Hegseth to Punish Senator for Video**\
+`A three-judge panel in Washington heard arguments in the lawsuit aimed at stopping the Pentagon from disciplining Senator Mark Kelly for a video warning about illegal military orders.`\
+https://www.nytimes.com/2026/05/07/us/politics/mark-kelly-pete-hegseth-video-lawsuit.html
+
 **‘Blue Film’ Review: The Sex Is Expensive. The Talk Is Priceless.**\
 `An older man pays a camboy $50,000 for a night that goes to difficult, existential places in this breakout feature from Elliot Tuttle.`\
 https://www.nytimes.com/2026/05/07/movies/blue-film-review.html

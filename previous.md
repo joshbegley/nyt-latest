@@ -1,3 +1,7 @@
+**Appeals Court Looks Unlikely to Allow Hegseth to Punish Senator for Video**\
+`A three-judge panel in Washington heard arguments in the lawsuit aimed at stopping the Pentagon from disciplining Senator Mark Kelly for a video warning about illegal military orders.`\
+https://www.nytimes.com/2026/05/07/us/politics/mark-kelly-pete-hegseth-video-lawsuit.html
+
 **‘Blue Film’ Review: The Sex Is Expensive. The Talk Is Priceless.**\
 `An older man pays a camboy $50,000 for a night that goes to difficult, existential places in this breakout feature from Elliot Tuttle.`\
 https://www.nytimes.com/2026/05/07/movies/blue-film-review.html
@@ -69,8 +73,4 @@ https://www.nytimes.com/2026/05/07/movies/che-guevara-documentary-cannes-film-fe
 **Trump Panel Recommends FEMA Respond to Fewer Disasters**\
 `A White House task force also called for speeding up aid, but some of its ideas would require action by Congress to become reality.`\
 https://www.nytimes.com/2026/05/07/climate/fema-review-panel-trump.html
-
-**Israel Says It Killed a Hezbollah Chief Near Beirut, Testing the Truce**\
-`The strike was the first near the Lebanese capital since a cease-fire that has curbed fighting but not halted it. Washington is pushing for a lasting peace, hoping it will ease diplomacy with Iran.`\
-https://www.nytimes.com/2026/05/07/world/middleeast/israel-hezbollah-commander-beirut-strike.html
 
