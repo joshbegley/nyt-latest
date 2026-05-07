@@ -1,3 +1,7 @@
+**A Times reporter in L.A. explains an unusual race.**\
+``\
+https://www.nytimes.com/live/2026/05/06/us/california-governor-debate/a-times-reporter-in-la-explains-an-unusual-race
+
 **A Scaled-Back Celebration for Public Servants ‘in Trauma’**\
 `The Trump administration has eliminated more than 350,000 federal jobs. But an annual effort to inspire talented people to serve the public continues.`\
 https://www.nytimes.com/2026/05/06/us/politics/public-servants-awards.html

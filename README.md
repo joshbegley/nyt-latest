@@ -67,7 +67,7 @@ https://www.nytimes.com/2026/05/06/technology/elon-musk-shivon-zilis-openai-tria
 https://www.nytimes.com/2026/05/06/nyregion/rudy-giuliani-health-world-trade-center.html
 
 **Purported Epstein Suicide Note Is Released**\
-`A federal judge released the note on Wednesday, which Jeffrey Epstein’s former cellmate said he found in a graphic novel. The New York Times has not authenticated that Mr. Epstein wrote it.`\
+`A federal judge released the note, which Jeffrey Epstein’s former cellmate said he found in a graphic novel. The New York Times has not authenticated that Mr. Epstein wrote it.`\
 https://www.nytimes.com/2026/05/06/nyregion/epstein-suicide-note.html
 
 **Diplomáticos, espías y guacamayas convergen en este hotel de Caracas**\
