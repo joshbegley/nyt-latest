@@ -1,3 +1,7 @@
+**A Scaled-Back Celebration for Public Servants ‘in Trauma’**\
+`The Trump administration has eliminated more than 350,000 federal jobs. But an annual effort to inspire talented people to serve the public continues.`\
+https://www.nytimes.com/2026/05/06/us/politics/public-servants-awards.html
+
 **The sexual assault allegations against Eric Swalwell rattled the race.**\
 ``\
 https://www.nytimes.com/live/2026/05/06/us/california-governor-debate/the-sexual-assault-allegations-against-eric-swalwell-rattled-the-race
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/06/us/politics/trump-indiana-republican-base.htm
 **Los candidatos respaldados por Trump se imponen en las primarias de Indiana**\
 `El presidente apoyó a los adversarios de siete legisladores republicanos que se opusieron a su iniciativa de redistribución de distritos. Al menos cinco ganaron sus elecciones.`\
 https://www.nytimes.com/es/2026/05/06/espanol/estados-unidos/elecciones-primarias-indiana-resultados.html
-
-**The Most Combative Democratic Senate Primary Heats Up**\
-`Attacks are flying, prominent Democrats are taking sides and the fight is just getting started.`\
-https://www.nytimes.com/2026/05/06/us/politics/michigan-senate-primary-democrats.html
 
