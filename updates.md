@@ -1,3 +1,15 @@
+**How to Feel About Hantavirus: A Flowchart**\
+`An expert weighs in.`\
+https://www.nytimes.com/2026/05/07/opinion/hantavirus-cruise-ship-virus-outbreak.html
+
+**U.S. Strikes Iranian Targets; Iran Says It Returned Fire**\
+`The exchange was the latest twist in a week of mixed signals in the region and tensions over the Strait of Hormuz, as President Trump searches for an off-ramp in the war that he started.`\
+https://www.nytimes.com/2026/05/07/us/politics/iran-us-ships-attack-strait-hormuz.html
+
+**‘Remarkably Bright Creatures’ Review: Their Octopus Teacher**\
+`Sally Field and Lewis Pullman get help from an eight-tentacled friend in this bland adaptation of a hit novel.`\
+https://www.nytimes.com/2026/05/07/movies/remarkably-bright-creatures-review.html
+
 **Louisiana Asks Supreme Court to Halt Abortion Pill Access by Mail**\
 `The request comes after a federal appeals court temporarily blocked a Food and Drug Administration regulation that has greatly expanded access to the abortion pill mifepristone.`\
 https://www.nytimes.com/2026/05/07/us/politics/supreme-court-abortion-pills-louisiana.html

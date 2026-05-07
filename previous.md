@@ -1,3 +1,15 @@
+**How to Feel About Hantavirus: A Flowchart**\
+`An expert weighs in.`\
+https://www.nytimes.com/2026/05/07/opinion/hantavirus-cruise-ship-virus-outbreak.html
+
+**U.S. Strikes Iranian Targets; Iran Says It Returned Fire**\
+`The exchange was the latest twist in a week of mixed signals in the region and tensions over the Strait of Hormuz, as President Trump searches for an off-ramp in the war that he started.`\
+https://www.nytimes.com/2026/05/07/us/politics/iran-us-ships-attack-strait-hormuz.html
+
+**‘Remarkably Bright Creatures’ Review: Their Octopus Teacher**\
+`Sally Field and Lewis Pullman get help from an eight-tentacled friend in this bland adaptation of a hit novel.`\
+https://www.nytimes.com/2026/05/07/movies/remarkably-bright-creatures-review.html
+
 **Louisiana Asks Supreme Court to Halt Abortion Pill Access by Mail**\
 `The request comes after a federal appeals court temporarily blocked a Food and Drug Administration regulation that has greatly expanded access to the abortion pill mifepristone.`\
 https://www.nytimes.com/2026/05/07/us/politics/supreme-court-abortion-pills-louisiana.html
@@ -61,16 +73,4 @@ https://www.nytimes.com/video/world/100000010888657/hantavirus-cruise-ship-passe
 **Art and Politics**\
 `The Venice Biennale is always overwhelming for art. Our culture writer says the politics were overwhelming this year, too.`\
 https://www.nytimes.com/2026/05/07/world/venice-biennale-art-politics-iran-explosions.html
-
-**ICE Arrests Violated Order Requiring Warrants in D.C., Judge Rules**\
-`Despite a previous order, the administration has continued to follow guidance from January empowering immigrations agents to widely make arrests without probable cause, judge says.`\
-https://www.nytimes.com/2026/05/07/us/trump-dhs-arrests-warrants-dc.html
-
-**Is America Headed for ‘Greater Disorder’?**\
-`“I think we know that we are in increasingly disorderly times,” the billionaire investor Ray Dalio says on “Interesting Times,” where he tells the columnist Ross Douthat why he’s pessimistic about America’s future.`\
-https://www.nytimes.com/video/opinion/100000010875142/is-america-headed-for-greater-disorder.html
-
-**U.K. Election Poses Test for Starmer’s Labour Party**\
-`Polls have predicted sweeping losses for Prime Minister Keir Starmer’s Labour Party as millions head to the ballot box in parliamentary elections in Scotland and Wales and local elections in England.`\
-https://www.nytimes.com/video/world/europe/100000010888858/uk-local-elections-starmer-labour-party.html
 
