@@ -1,3 +1,11 @@
+**7 New Books We Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/05/07/books/review/new-recommended-books.html
+
+**Trump Administration Weighs Citing ‘Emergency’ to Admit More Afrikaners as Refugees**\
+`The move would further solidify the U.S. refugee program as a pipeline for the white minority from South Africa.`\
+https://www.nytimes.com/2026/05/07/us/politics/trump-afrikaner-refugees-emergency.html
+
 **Una mutación dio a los humanos el don del habla. Estos ratones también la tienen**\
 `Los científicos querían saber por qué el parloteo de los ratones cantores de Alston se parece tanto a la conversación humana. Lo que descubrieron podría cambiar la forma de estudiar ambas especies.`\
 https://www.nytimes.com/es/2026/05/07/espanol/ciencia-y-tecnologia/ratones-cantores-alston-mutacion-habla.html
