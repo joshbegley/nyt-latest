@@ -1,3 +1,7 @@
+**Trade Court Rules Trump’s 10% Global Tariff Is Illegal**\
+`A panel of federal judges blocked President Trump from imposing the tariff on most imports.`\
+https://www.nytimes.com/2026/05/07/business/economy/trump-global-tariff-ruled-illegal.html
+
 **YouTuber Recounts Moment Captain Announces Deaths on MV Hondius**\
 `Since April 11, three passengers who were aboard the Hondius have died and five other people have been sickened after showing symptoms of the hantavirus. The Turkish YouTuber Ruhi Çenet disembarked the ship on April 24, and told The Times how staff members reacted to the first death.`\
 https://www.nytimes.com/video/world/100000010888657/hantavirus-cruise-ship-passenger-interview.html
@@ -69,12 +73,4 @@ https://www.nytimes.com/2026/05/07/learning/whats-going-on-in-this-picture-may-1
 **Teenagers on Why They Believe They Can Change the World for the Better**\
 `Students respond to the Gen Z protests that rippled across the globe last year, and share how people their age can have a positive impact.`\
 https://www.nytimes.com/2026/05/07/learning/teenagers-on-why-they-believe-they-can-change-the-world-for-the-better.html
-
-**Trump Administration Lifts Ban on ‘Cyanide Bombs’ on Public Lands**\
-`The Bureau of Land Management will allow the use of the spring-loaded traps, which can kill coyotes and other animals that prey on livestock.`\
-https://www.nytimes.com/2026/05/07/climate/cyanide-bombs-public-lands.html
-
-**Creamy Cottage Cheese Basil Pasta**\
-`This one-pot pasta marries the vivid herbaceousness of pesto with the creaminess of Alfredo.`\
-https://www.nytimes.com/video/dining/100000010884563/creamy-cottage-cheese-basil-pasta.html
 

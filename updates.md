@@ -1,3 +1,15 @@
+**YouTuber Recounts Moment Captain Announces Deaths on MV Hondius**\
+`Since April 11, three passengers who were aboard the Hondius have died and five other people have been sickened after showing symptoms of the hantavirus. The Turkish YouTuber Ruhi Çenet disembarked the ship on April 24, and told The Times how staff members reacted to the first death.`\
+https://www.nytimes.com/video/world/100000010888657/hantavirus-cruise-ship-passenger-interview.html
+
+**Art and Politics**\
+`The Venice Biennale is always overwhelming for art. Our culture writer says the politics were overwhelming this year, too.`\
+https://www.nytimes.com/2026/05/07/world/venice-biennale-art-politics-iran-explosions.html
+
+**ICE Arrests Violated Order Requiring Warrants in D.C., Judge Rules**\
+`Despite a previous order, the administration has continued to follow guidance from January empowering immigrations agents to widely make arrests without probable cause, judge says.`\
+https://www.nytimes.com/2026/05/07/us/trump-dhs-arrests-warrants-dc.html
+
 **Is America Headed for ‘Greater Disorder’?**\
 `“I think we know that we are in increasingly disorderly times,” the billionaire investor Ray Dalio says on “Interesting Times,” where he tells the columnist Ross Douthat why he’s pessimistic about America’s future.`\
 https://www.nytimes.com/video/opinion/100000010875142/is-america-headed-for-greater-disorder.html
