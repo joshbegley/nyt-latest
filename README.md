@@ -1,3 +1,15 @@
+**The Long Journey From the Strait of Hormuz to the Gas Tank**\
+`Even if the Strait of Hormuz reopened today, oil would still take more than a month to reach consumers. The economic shock from the Iran war could take far longer to ease.`\
+https://www.nytimes.com/interactive/2026/05/07/world/middleeast/oil-tanker-strait-hormuz-iran-war.html
+
+**La Copa Mundial o nada: las deudas y la incomodidad no asustan a los argentinos**\
+`Los precios dinámicos de las entradas han convertido el torneo de este año en el más caro de la historia, lo que ha llevado a los hinchas argentinos a situaciones extremas.`\
+https://www.nytimes.com/es/2026/05/07/espanol/precios-mundial-argentina.html
+
+**¿Es mala idea usar autobronceador?**\
+`Los productos de bronceado sin sol se anuncian como más seguros que el bronceado tradicional al sol. Consultamos a expertos para saber si representan algún riesgo para la salud.`\
+https://www.nytimes.com/es/2026/05/07/espanol/estilos-de-vida/autobronceador-sol-dano.html
+
 **¿Niebla mental? Podría ser tu intestino**\
 `Hemos preguntado a científicos y médicos qué hay que saber sobre la conexión entre la salud del intestino y la niebla mental.`\
 https://www.nytimes.com/es/2026/05/07/espanol/niebla-mental-podria-ser-tu-intestino.html
@@ -26,7 +38,7 @@ https://www.nytimes.com/2026/05/07/crosswords/spelling-bee-forum.html
 `After Trump used the terms “miniwar” and “excursion” to describe the conflict in Iran, Jimmy Kimmel predicted that the president would next call the war “a tiff. It will be a $200 billion tiff.”`\
 https://www.nytimes.com/2026/05/07/arts/television/late-night-trump-skirmish.html
 
-**Oil Prices Hold Steady as Iran Talks Remain Murky**\
+**Oil Prices Slide on Hopes for Renewed Peace Talks**\
 `Investors waited for news on the situation in the Middle East, as the U.S. and Iran gave mixed signals on peace negotiations.`\
 https://www.nytimes.com/2026/05/07/business/oil-gas-price-iran.html
 
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/07/pageoneplus/corrections-may-7-2026.html
 **War and Energy Shortages Boost China’s Influence in Asia**\
 `The war in Iran has left China’s neighbors appealing for help, handing Beijing the kind of sway it has long sought.`\
 https://www.nytimes.com/2026/05/07/business/war-energy-china-iran.html
-
-**The ‘Perfect Storm’ Hanging Over Britain’s Public Debt**\
-`Bond investors are expected to scrutinize the results of critical local elections on Thursday as the war in the Middle East adds inflation pressure on the government.`\
-https://www.nytimes.com/2026/05/07/business/britain-bonds-gilt.html
-
-**Quote of the Day: As World’s Powers Focus on Arctic, Soldiers Get Ready to Fight in Cold**\
-`Quotation of the Day for Thursday, May 7, 2026.`\
-https://www.nytimes.com/2026/05/06/pageoneplus/quote-of-the-day-as-worlds-powers-focus-on-arctic-soldiers-get-ready-to-fight-in-cold.html
-
-**Pacientes de hantavirus aterrizan en Ámsterdam. Se planean más evacuaciones del crucero**\
-`Se ofrecerá a los pasajeros de otros países de la Unión Europea la posibilidad de evacuar a sus propios ciudadanos, según un portavoz del Ministerio de Salud español.`\
-https://www.nytimes.com/es/2026/05/06/espanol/hantavirus-pacientes-evacuados.html
 
