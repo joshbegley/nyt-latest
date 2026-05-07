@@ -1,3 +1,11 @@
+**These Toilets in Venice Have the Art World Aflush**\
+`Undoubtedly the biggest talker at this year’s Venice Biennale is the Austrian pavilion, where visitors can make their own contributions to the work on show.`\
+https://www.nytimes.com/2026/05/07/arts/design/venice-biennale-austria-florentina-holzinger.html
+
+**World in Waiting Game Over Iran’s Response to U.S. Peace Proposal**\
+`An Iranian official said that Tehran would convey its reply through Pakistan, a key mediator. Another Iranian official had earlier dismissed a reported proposal to end the war as a “list of American wishes.”`\
+https://www.nytimes.com/2026/05/07/world/middleeast/iran-war-us-peace-plan-trump.html
+
 **China Sentences 2 Former Defense Ministers on Bribery Charges**\
 `Gen. Wei Fenghe and Gen. Li Shangfu are likely to spend the rest of their lives in prison after receiving suspended death sentences.`\
 https://www.nytimes.com/2026/05/07/world/asia/china-ministers-death-sentences-military-corruption.html
