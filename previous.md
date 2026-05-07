@@ -1,3 +1,7 @@
+**Australian Women and Children Linked to Islamic State Fighters Return Home**\
+`Four women and nine children arrived in Australia from detention camps in northeast Syria after a yearslong controversy over their fate.`\
+https://www.nytimes.com/2026/05/07/world/asia/australia-isis-women-children-syria.html
+
 **Tornadoes in Mississippi Damage More Than 1,000 Buildings**\
 `State officials were assessing the damage from a storm that ripped through the region overnight. At least four people suffered minor injuries.`\
 https://www.nytimes.com/2026/05/07/weather/mississippi-tornado-damage.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/07/world/europe/uk-local-elections-2026-keir-sta
 **Starmer Faces a Major Test in a Set of U.K. Elections: What to Know**\
 `Local elections in England, and parliamentary elections in Scotland and Wales, take place on Thursday. The governing Labour Party is expected to do very badly.`\
 https://www.nytimes.com/2026/05/07/world/europe/uk-local-elections-starmer.html
-
-**Corrections: May 7, 2026**\
-`Corrections that appeared in print on Thursday, May 7, 2026.`\
-https://www.nytimes.com/2026/05/07/pageoneplus/corrections-may-7-2026.html
 

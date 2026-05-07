@@ -1,3 +1,7 @@
+**Australian Women and Children Linked to Islamic State Fighters Return Home**\
+`Four women and nine children arrived in Australia from detention camps in northeast Syria after a yearslong controversy over their fate.`\
+https://www.nytimes.com/2026/05/07/world/asia/australia-isis-women-children-syria.html
+
 **Tornadoes in Mississippi Damage More Than 1,000 Buildings**\
 `State officials were assessing the damage from a storm that ripped through the region overnight. At least four people suffered minor injuries.`\
 https://www.nytimes.com/2026/05/07/weather/mississippi-tornado-damage.html
