@@ -1,3 +1,11 @@
+**Is America Headed for ‘Greater Disorder’?**\
+`“I think we know that we are in increasingly disorderly times,” the billionaire investor Ray Dalio says on “Interesting Times,” where he tells the columnist Ross Douthat why he’s pessimistic about America’s future.`\
+https://www.nytimes.com/video/opinion/100000010875142/is-america-headed-for-greater-disorder.html
+
+**U.K. Election Poses Test for Starmer’s Labour Party**\
+`Polls have predicted sweeping losses for Prime Minister Keir Starmer’s Labour Party as millions head to the ballot box in parliamentary elections in Scotland and Wales and local elections in England.`\
+https://www.nytimes.com/video/world/europe/100000010888858/uk-local-elections-starmer-labour-party.html
+
 **As Stockpiles Fall, U.S. Sells More Missiles Worth $17 Billion to Gulf Nations**\
 `The United States and its partners have burned through an enormous amount of air defense missiles in the Iran war, and production is slow.`\
 https://www.nytimes.com/2026/05/07/us/politics/weapons-stockpiles-iran-war.html
