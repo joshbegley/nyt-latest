@@ -1,3 +1,11 @@
+**This Film Provides a Trapezoidal Window Into Former Pizza Huts**\
+`A documentary about the popular chain presents its repurposed buildings as protective shells where new businesses can grow.`\
+https://www.nytimes.com/2026/05/07/movies/pizza-hut-architecture-documentary.html
+
+**Tennessee Republicans Aim to Break Up State’s Lone Democratic District**\
+`Protesters denounced a redistricting effort led by Tennessee Republicans that would slice up Memphis, a majority-Black city, and Shelby County into three districts. The new congressional map would threaten Democrats’ hold on their lone remaining House seat in the state.`\
+https://www.nytimes.com/video/us/politics/tennessee-republicans-congressional-map-memphis.html
+
 **Giuliani busca que su atención médica esté cubierta por el programa del 11-S**\
 `El exalcalde de Nueva York, que está mejorando tras un grave caso de neumonía, padece una afección respiratoria relacionada con su exposición a toxinas en la zona cero, dice su portavoz.`\
 https://www.nytimes.com/es/2026/05/07/espanol/estados-unidos/rudy-giuliani-neumonia-11-septiembre.html
