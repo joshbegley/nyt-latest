@@ -1,3 +1,7 @@
+**China Sentences 2 Former Defense Ministers on Bribery Charges**\
+`Gen. Wei Fenghe and Gen. Li Shangfu are likely to spend the rest of their lives in prison after receiving suspended death sentences.`\
+https://www.nytimes.com/2026/05/07/world/asia/china-ministers-death-sentences-military-corruption.html
+
 **Why Investors Are Still Betting Big on Kalshi**\
 `The popular prediction market platform has just raised a new funding round that values it at $22 billion, double what it was worth in December.`\
 https://www.nytimes.com/2026/05/07/business/dealbook/kalshi-funding-prediction-market.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/07/world/europe/hungary-orban-china-fidesz-magya
 **Lula va la Casa Blanca después de meses de tensiones con Trump**\
 `Los presidentes de los dos países más poblados de América se reunirán el jueves en Washington para discutir asuntos de seguridad, comercio y minerales críticos.`\
 https://www.nytimes.com/es/2026/05/07/espanol/america-latina/lula-trump-visita-casa-blanca.html
-
-**Judge Releases Suicide Note Said to Be Epstein’s**\
-`A federal judge on Wednesday released a note purported to have been written by Jeffrey Epstein. It has not been authenticated by The New York Times.`\
-https://www.nytimes.com/video/nyregion/100000010888054/epstein-suicide-note.html
 

@@ -1,3 +1,15 @@
+**Why Investors Are Still Betting Big on Kalshi**\
+`The popular prediction market platform has just raised a new funding round that values it at $22 billion, double what it was worth in December.`\
+https://www.nytimes.com/2026/05/07/business/dealbook/kalshi-funding-prediction-market.html
+
+**Rubio Meets Pope Amid U.S. Tensions With Vatican**\
+`The meeting at the Vatican followed President Trump’s condemnation of Pope Leo XIV for opposing the war in Iran.`\
+https://www.nytimes.com/2026/05/07/us/politics/rubio-pope-meeting.html
+
+**Kalshi, the Prediction Market, Is Now Valued at $22 Billion**\
+`The platform for betting on sports, politics, the weather and more has raised $1 billion and sees big financial firms as a key source of growth.`\
+https://www.nytimes.com/2026/05/07/business/dealbook/kalshi-fundraise-22-billion.html
+
 **Dutch Flight Attendant Is Tested for Hantavirus**\
 `Global health officials are tracking people connected to a deadly outbreak on a cruise ship. One infected passenger had briefly boarded a flight from South Africa to the Netherlands before she died.`\
 https://www.nytimes.com/2026/05/07/world/europe/hantavirus-cruise-ship-outbreak.html
