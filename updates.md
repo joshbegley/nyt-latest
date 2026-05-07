@@ -1,3 +1,7 @@
+**Purported Epstein Suicide Note Is Released**\
+`A federal judge released the note, which Jeffrey Epstein’s former cellmate said he found in a graphic novel. The New York Times has not authenticated that Mr. Epstein wrote it.`\
+https://www.nytimes.com/2026/05/06/nyregion/epstein-suicide-note.html
+
 **A Times reporter in L.A. explains an unusual race.**\
 ``\
 https://www.nytimes.com/live/2026/05/06/us/california-governor-debate/a-times-reporter-in-la-explains-an-unusual-race
