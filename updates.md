@@ -1,3 +1,7 @@
+**Man Pleads Guilty in Syringe Attack Against Ilhan Omar**\
+`The attack happened in late January during a town-hall meeting in Minneapolis, at the height of the Trump administration’s immigration crackdown in Minnesota.`\
+https://www.nytimes.com/2026/05/07/us/ilhan-omar-syringe-attack-guilty-plea.html
+
 **Trade Court Rules Trump’s 10% Global Tariff Is Illegal**\
 `A panel of federal judges blocked President Trump from imposing the tariff on most imports.`\
 https://www.nytimes.com/2026/05/07/business/economy/trump-global-tariff-ruled-illegal.html

@@ -1,3 +1,7 @@
+**Man Pleads Guilty in Syringe Attack Against Ilhan Omar**\
+`The attack happened in late January during a town-hall meeting in Minneapolis, at the height of the Trump administration’s immigration crackdown in Minnesota.`\
+https://www.nytimes.com/2026/05/07/us/ilhan-omar-syringe-attack-guilty-plea.html
+
 **Trade Court Rules Trump’s 10% Global Tariff Is Illegal**\
 `A panel of federal judges blocked President Trump from imposing the tariff on most imports.`\
 https://www.nytimes.com/2026/05/07/business/economy/trump-global-tariff-ruled-illegal.html
@@ -69,8 +73,4 @@ https://www.nytimes.com/2026/05/07/t-magazine/best-milan-home-apartment-italian-
 **What’s Going On in This Picture? | May 11, 2026**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://www.nytimes.com/2026/05/07/learning/whats-going-on-in-this-picture-may-11-2026.html
-
-**Teenagers on Why They Believe They Can Change the World for the Better**\
-`Students respond to the Gen Z protests that rippled across the globe last year, and share how people their age can have a positive impact.`\
-https://www.nytimes.com/2026/05/07/learning/teenagers-on-why-they-believe-they-can-change-the-world-for-the-better.html
 
