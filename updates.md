@@ -1,3 +1,11 @@
+**‘Blue Film’ Review: The Sex Is Expensive. The Talk Is Priceless.**\
+`An older man pays a camboy $50,000 for a night that goes to difficult, existential places in this breakout feature from Elliot Tuttle.`\
+https://www.nytimes.com/2026/05/07/movies/blue-film-review.html
+
+**Our Favorite Milan Homes**\
+`For centuries, the city has been a capital of design. Here, we revisit the most beautiful and exciting interiors we’ve covered.`\
+https://www.nytimes.com/2026/05/07/t-magazine/best-milan-home-apartment-italian-design.html
+
 **What’s Going On in This Picture? | May 11, 2026**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://www.nytimes.com/2026/05/07/learning/whats-going-on-in-this-picture-may-11-2026.html
