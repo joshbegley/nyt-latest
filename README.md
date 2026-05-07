@@ -1,3 +1,7 @@
+**YouTuber Recounts Moment Captain Announces Deaths on MV Hondius**\
+`Since April 11, three passengers who were aboard the Hondius have died and five other people have been sickened after showing symptoms of the hantavirus. The Turkish YouTuber Ruhi Çenet disembarked the ship on April 24, and told The Times how staff members reacted to the first death.`\
+https://www.nytimes.com/video/world/100000010888657/hantavirus-cruise-ship-passenger-interview.html
+
 **Art and Politics**\
 `The Venice Biennale is always overwhelming for art. Our culture writer says the politics were overwhelming this year, too.`\
 https://www.nytimes.com/2026/05/07/world/venice-biennale-art-politics-iran-explosions.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/07/climate/cyanide-bombs-public-lands.html
 **Creamy Cottage Cheese Basil Pasta**\
 `This one-pot pasta marries the vivid herbaceousness of pesto with the creaminess of Alfredo.`\
 https://www.nytimes.com/video/dining/100000010884563/creamy-cottage-cheese-basil-pasta.html
-
-**Hellbender’s Masa Pancakes**\
-`The chef Yara Herrera is clear: “I didn’t invent the idea of a masa pancake.” But she perfected the form at Hellbender restaurant in Ridgewood, Queens, where the theme of native heirloom corn runs through the tacos and tostadas on the menu.`\
-https://www.nytimes.com/video/dining/100000010884558/hellbenders-masa-pancakes.html
 
