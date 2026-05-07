@@ -1,3 +1,11 @@
+**Why America Is Removing So Many ‘Deadbeat’ Dams**\
+`States are recognizing the ecological benefits of ripping out dams and reconnecting rivers.`\
+https://www.nytimes.com/2026/05/07/climate/dam-removal-united-states.html
+
+**Defendant in Boulder Antisemitic Attack Is Sentenced to Life in Prison**\
+`Mohamed Sabry Soliman pleaded guilty to 101 charges, including one count of murder, after the firebombing attack in Colorado last June.`\
+https://www.nytimes.com/2026/05/07/us/colorado-attack-soliman-life-sentence.html
+
 **Appeals Court Looks Unlikely to Allow Hegseth to Punish Senator for Video**\
 `A three-judge panel in Washington heard arguments in the lawsuit aimed at stopping the Pentagon from disciplining Senator Mark Kelly for a video warning about illegal military orders.`\
 https://www.nytimes.com/2026/05/07/us/politics/mark-kelly-pete-hegseth-video-lawsuit.html
