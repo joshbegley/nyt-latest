@@ -1,3 +1,7 @@
+**Candidates Clash in Last Televised Debate Before California Primary**\
+`Seven candidates competing to be the next governor of California traded barbs during the last televised face-off before the primary in June.`\
+https://www.nytimes.com/video/us/elections/100000010888492/california-governor-debate.html
+
 **Fast-Food Sales Rise Despite Higher Gas Prices**\
 `Fallout from the war in Iran didn’t dampen quarterly results at McDonald’s, Burger King and Taco Bell.`\
 https://www.nytimes.com/2026/05/07/business/mcdonalds-earnings.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/07/t-magazine/cabinet-pulls-door-knobs-light-swi
 **They Looked for a ‘Grandkid Magnet’ Outside of Dallas**\
 `After a decade in the city, a retired couple migrated north to Denton, Texas, in search of a single-story house where the family could gather.`\
 https://www.nytimes.com/interactive/2026/05/07/realestate/dallas-forth-worth-texas-denton-home-sale.html
-
-**Trump to Host Brazil’s Leader After Months of Ups and Downs**\
-`President Trump and President Luiz Inácio Lula da Silva, who have had a rocky relationship, will meet on Thursday for talks on security, trade and critical minerals.`\
-https://www.nytimes.com/2026/05/07/world/americas/trump-brazil-lula-meeting.html
 
