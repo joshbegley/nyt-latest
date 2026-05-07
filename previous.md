@@ -1,3 +1,11 @@
+**An American Artist Plops His Sculptures on a World Stage**\
+`They may be bronze and marble, but Alma Allen’s artworks at the Venice Biennale are as intangible as air.`\
+https://www.nytimes.com/2026/05/07/arts/design/venice-biennale-us-pavilion.html
+
+**La guerra en Irán y los votantes enfadados**\
+`El malestar económico está empujando a muchos europeos hacia la derecha nacionalista. Las elecciones locales en el Reino Unido deberían darnos una idea de cuántos.`\
+https://www.nytimes.com/es/2026/05/07/espanol/mundo/guerra-iran-votantes-europa.html
+
 **World in Waiting Game Over Iran Peace Proposal Response**\
 `An Iranian official said that Tehran would convey its reply through Pakistan, a key mediator. Another Iranian official earlier dismissed a reported proposal to end the war as a “list of American wishes.”`\
 https://www.nytimes.com/2026/05/07/world/middleeast/world-in-waiting-game-over-iran-peace-proposal-response.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/07/realestate/ted-turner-ranch-land-legacy.html
 **How Do You Feel About Driverless Cars?**\
 `Have you ever been in one? What are the advantages and disadvantages of autonomous vehicles for passengers, pedestrians and society at large?`\
 https://www.nytimes.com/2026/05/07/learning/how-do-you-feel-about-driverless-cars.html
-
-**Graham Platner Is a Rorschach Test**\
-`We are living in an ugly era of ugly choices.`\
-https://www.nytimes.com/2026/05/07/opinion/graham-platner-collins-trump-iran.html
-
-**Ted Turner’s Mark on Atlanta Lived On, Even After He Left the Spotlight**\
-`The city where he planted his empire came to embody his ambitions and his confidence. Mr. Turner died on Wednesday at 87.`\
-https://www.nytimes.com/2026/05/07/us/ted-turner-atlanta-legacy.html
 

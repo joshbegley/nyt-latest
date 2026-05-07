@@ -1,3 +1,11 @@
+**An American Artist Plops His Sculptures on a World Stage**\
+`They may be bronze and marble, but Alma Allen’s artworks at the Venice Biennale are as intangible as air.`\
+https://www.nytimes.com/2026/05/07/arts/design/venice-biennale-us-pavilion.html
+
+**La guerra en Irán y los votantes enfadados**\
+`El malestar económico está empujando a muchos europeos hacia la derecha nacionalista. Las elecciones locales en el Reino Unido deberían darnos una idea de cuántos.`\
+https://www.nytimes.com/es/2026/05/07/espanol/mundo/guerra-iran-votantes-europa.html
+
 **World in Waiting Game Over Iran Peace Proposal Response**\
 `An Iranian official said that Tehran would convey its reply through Pakistan, a key mediator. Another Iranian official earlier dismissed a reported proposal to end the war as a “list of American wishes.”`\
 https://www.nytimes.com/2026/05/07/world/middleeast/world-in-waiting-game-over-iran-peace-proposal-response.html
