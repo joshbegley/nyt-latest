@@ -1,3 +1,7 @@
+**World in Waiting Game Over Iran Peace Proposal Response**\
+`An Iranian official said that Tehran would convey its reply through Pakistan, a key mediator. Another Iranian official earlier dismissed a reported proposal to end the war as a “list of American wishes.”`\
+https://www.nytimes.com/2026/05/07/world/middleeast/world-in-waiting-game-over-iran-peace-proposal-response.html
+
 **What the End of Spirit Airlines Means for the Future of Flying**\
 `Spirit Airlines reshaped aviation in the United States, but it became a victim of the rising costs it once excelled at controlling.`\
 https://www.nytimes.com/2026/05/07/podcasts/the-daily/spirit-airlines-flying.html
