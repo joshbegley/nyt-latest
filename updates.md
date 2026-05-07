@@ -1,3 +1,7 @@
+**Why So Few Babies? We Might Have Overlooked the Biggest Reason of All.**\
+`We can’t be certain — and that’s the point.`\
+https://www.nytimes.com/2026/05/07/opinion/birthrate-kids-parents-demographics-future.html
+
 **Share & Anti-Pulitzer & Tell with Michael Cruz Kayne and Sam Reich**\
 `Reactions to Pablo’s Pulitzer Prize win, the fake J.P. Morgan scandal and more.`\
 https://www.nytimes.com/2026/05/07/podcasts/share-anti-pulitzer-tell-with-michael-cruz-kayne-and-sam-reich.html
