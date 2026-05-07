@@ -1,6 +1,6 @@
 **The Voting Rights Act Changed America, Now It Can Change**\
 `Do we care when other groups can’t elect their favorite candidates?`\
-https://www.nytimes.com/2026/05/07/opinion/the-voting-rights-act-changed-america-now-it-can-change.html
+https://www.nytimes.com/2026/05/07/opinion/voting-rights-act-america.html
 
 **Three Different Eras of Frozen Yogurt**\
 `New Yorkers have been obsessed with the tart treat for more than 50 years. These three spots get it right.`\
