@@ -1,3 +1,7 @@
+**Special Counsel to Investigate Trump Administration Lawyer for Possible Misconduct**\
+`Federal judges in Rhode Island ordered an investigation into a lawyer who withheld information about a migrant’s international criminal charges. Now, D.H.S. says it can’t find the migrant.`\
+https://www.nytimes.com/2026/05/07/us/politics/special-counsel-lawyer-misconduct.html
+
 **Man Pleads Guilty in Syringe Attack Against Ilhan Omar**\
 `The attack happened in late January during a town-hall meeting in Minneapolis, at the height of the Trump administration’s immigration crackdown in Minnesota.`\
 https://www.nytimes.com/2026/05/07/us/ilhan-omar-syringe-attack-guilty-plea.html

@@ -1,3 +1,7 @@
+**F.B.I. Says Austin Bar Shooter Had an ‘Affinity for Iran’**\
+`Investigators said the attacker admired Iran’s leadership and had no ties to a foreign terrorist organization.`\
+https://www.nytimes.com/2026/05/07/us/austin-bar-shooting-gunman-iran-fbi-investigation.html
+
 **Special Counsel to Investigate Trump Administration Lawyer for Possible Misconduct**\
 `Federal judges in Rhode Island ordered an investigation into a lawyer who withheld information about a migrant’s international criminal charges. Now, D.H.S. says it can’t find the migrant.`\
 https://www.nytimes.com/2026/05/07/us/politics/special-counsel-lawyer-misconduct.html
@@ -69,8 +73,4 @@ https://www.nytimes.com/2026/05/07/us/politics/mark-kelly-pete-hegseth-video-law
 **‘Blue Film’ Review: The Sex Is Expensive. The Talk Is Priceless.**\
 `An older man pays a camboy $50,000 for a night that goes to difficult, existential places in this breakout feature from Elliot Tuttle.`\
 https://www.nytimes.com/2026/05/07/movies/blue-film-review.html
-
-**Our Favorite Milan Homes**\
-`For centuries, the city has been a capital of design. Here, we revisit the most beautiful and exciting interiors we’ve covered.`\
-https://www.nytimes.com/2026/05/07/t-magazine/best-milan-home-apartment-italian-design.html
 
