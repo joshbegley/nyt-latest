@@ -1,3 +1,7 @@
+**Fetterman Says He Has ‘No Plans’ to Leave the Democratic Party**\
+`In an opinion piece in The Washington Post, the Pennsylvania senator wrote that while he was “at odds” with the party’s approach to some issues, his values had not changed.`\
+https://www.nytimes.com/2026/05/07/us/politics/john-fetterman-democratic-party.html
+
 **How to Feel About Hantavirus: A Flowchart**\
 `An expert weighs in.`\
 https://www.nytimes.com/2026/05/07/opinion/hantavirus-cruise-ship-virus-outbreak.html

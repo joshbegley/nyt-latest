@@ -1,3 +1,7 @@
+**Fetterman Says He Has ‘No Plans’ to Leave the Democratic Party**\
+`In an opinion piece in The Washington Post, the Pennsylvania senator wrote that while he was “at odds” with the party’s approach to some issues, his values had not changed.`\
+https://www.nytimes.com/2026/05/07/us/politics/john-fetterman-democratic-party.html
+
 **How to Feel About Hantavirus: A Flowchart**\
 `An expert weighs in.`\
 https://www.nytimes.com/2026/05/07/opinion/hantavirus-cruise-ship-virus-outbreak.html
@@ -69,8 +73,4 @@ https://www.nytimes.com/2026/05/07/business/economy/trump-global-tariff-ruled-il
 **YouTuber Recounts Moment Captain Announces Deaths on MV Hondius**\
 `Since April 11, three passengers who were aboard the Hondius have died and five other people have been sickened after showing symptoms of the hantavirus. The Turkish YouTuber Ruhi Çenet disembarked the ship on April 24, and told The Times how staff members reacted to the first death.`\
 https://www.nytimes.com/video/world/100000010888657/hantavirus-cruise-ship-passenger-interview.html
-
-**Art and Politics**\
-`The Venice Biennale is always overwhelming for art. Our culture writer says the politics were overwhelming this year, too.`\
-https://www.nytimes.com/2026/05/07/world/venice-biennale-art-politics-iran-explosions.html
 
