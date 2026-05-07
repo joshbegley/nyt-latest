@@ -1,3 +1,11 @@
+**Millions for a Paint Job? Trump Wants the Eisenhower Building Painted White.**\
+`The project would transform the granite exterior of the historic Eisenhower Executive Office Building, which dates to the 1800s.`\
+https://www.nytimes.com/2026/05/07/us/politics/trump-paint-eisenhower-building.html
+
+**F.B.I. Says Austin Bar Shooter Had an ‘Affinity for Iran’**\
+`Investigators said the attacker admired Iran’s leadership and had no ties to a foreign terrorist organization.`\
+https://www.nytimes.com/2026/05/07/us/austin-bar-shooting-gunman-iran-fbi-investigation.html
+
 **Special Counsel to Investigate Trump Administration Lawyer for Possible Misconduct**\
 `Federal judges in Rhode Island ordered an investigation into a lawyer who withheld information about a migrant’s international criminal charges. Now, D.H.S. says it can’t find the migrant.`\
 https://www.nytimes.com/2026/05/07/us/politics/special-counsel-lawyer-misconduct.html
