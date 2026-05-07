@@ -1,3 +1,27 @@
+**What the End of Spirit Airlines Means for the Future of Flying**\
+`Spirit Airlines reshaped aviation in the United States, but it became a victim of the rising costs it once excelled at controlling.`\
+https://www.nytimes.com/2026/05/07/podcasts/the-daily/spirit-airlines-flying.html
+
+**Surging Gas Prices Shake Americans, and How Ted Turner Unleashed 24-Hour News**\
+`Plus, the conflicting messages on the state of the war.`\
+https://www.nytimes.com/2026/05/07/podcasts/the-headlines/high-gas-prices-cnn-legacy.html
+
+**Connections Companion No. 1,062**\
+`Scroll down for hints and conversation about the puzzle for Friday, May 8, 2026.`\
+https://www.nytimes.com/2026/05/07/crosswords/connections-companion-1062.html
+
+**Strands Sidekick No. 796**\
+`Scroll down for hints and conversation about the puzzle for Friday, May 8, 2026.`\
+https://www.nytimes.com/2026/05/07/crosswords/strands-sidekick-796.html
+
+**Wordle Review No. 1,784**\
+`Scroll down for hints and conversation about the puzzle for Friday, May 8, 2026.`\
+https://www.nytimes.com/2026/05/07/crosswords/wordle-review-1784.html
+
+**They Never Knew a World Before Smartphones. Could They Survive Without Them?**\
+`For three weeks, thousands of children in Europe went without social media or their smartphones, or both. This is the diary of their digital detox.`\
+https://www.nytimes.com/2026/05/07/world/europe/smartphones-austria-children-experiment.html
+
 **Share & Anti-Pulitzer & Tell with Michael Cruz Kayne and Sam Reich**\
 `Reactions to Pablo’s Pulitzer Prize win, the fake J.P. Morgan scandal and more.`\
 https://www.nytimes.com/2026/05/07/podcasts/share-anti-pulitzer-tell-with-michael-cruz-kayne-and-sam-reich.html
@@ -53,28 +77,4 @@ https://www.nytimes.com/2026/05/07/us/ted-turner-atlanta-legacy.html
 **A Conducting ‘Force to Be Reckoned With’ Comes Into His Own**\
 `Ed Gardner is an ideal ambassador for British music. And he is building an important profile abroad, with a trip to the United States this month.`\
 https://www.nytimes.com/2026/05/07/arts/music/ed-gardner-conductor.html
-
-**5 Classical Music Albums You Can Listen to Right Now**\
-`Hans Otte’s “Book of Sounds,” Jan Lisiecki’s fresh take on Mozart piano concertos and the works of an overlooked composer are among our selections.`\
-https://www.nytimes.com/2026/05/07/arts/music/best-classical-music-albums-may-2026.html
-
-**Five Ways A.I. Search Beats an Old-School Google Search**\
-`Google’s A.I. search technology is far from perfect (don’t count on it for celebrity news), but it excels at tasks like picking out groceries and detecting scams.`\
-https://www.nytimes.com/2026/05/07/technology/personaltech/google-ai-mode-search.html
-
-**Florida Creates a More Conservative U.S. History Course to Rival A.P.**\
-`Here are ways Florida’s advanced high school history program, which students can use for college credit, differs from other curriculums.`\
-https://www.nytimes.com/2026/05/07/us/florida-conservative-history-course-ap.html
-
-**For a Certain Kind of Guy, Even a Diaper Bag Needs to Be ‘Tactical’**\
-`How the marketing term turned seemingly everything into a battle-ready product.`\
-https://www.nytimes.com/2026/05/07/magazine/tactical-gear-marketing-boys-trend.html
-
-**The Fight for Cleaner Air in the South Bronx**\
-`Since congestion pricing was implemented in Manhattan, a study found a 2 percent increase in pollution in parts of the Bronx.`\
-https://www.nytimes.com/2026/05/07/nyregion/the-fight-for-cleaner-air-in-the-south-bronx.html
-
-**Why So Few Babies? We Might Have Overlooked the Biggest Reason of All.**\
-`We can’t be certain — and that’s the point.`\
-https://www.nytimes.com/2026/05/07/opinion/birthrate-kids-parents-demographics-future.html
 
