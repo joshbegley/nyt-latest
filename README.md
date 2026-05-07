@@ -1,3 +1,23 @@
+**Judge Says F.B.I. Can Keep 2020 Election Records Seized From Georgia**\
+`The ruling is the latest in a saga driven by President Trump’s desire for redemption in the state, which he lost in 2020. The county is likely to appeal.`\
+https://www.nytimes.com/2026/05/06/us/politics/judge-says-fbi-can-keep-2020-election-records-seized-from-georgia.html
+
+**Animals That Bugle**\
+`John Guzzetta and Jeff Chen reunite to give us a Thursday workout.`\
+https://www.nytimes.com/2026/05/06/crosswords/daily-puzzle-2026-05-07.html
+
+**Susan Collins Says She Has Long Had a Benign Tremor**\
+`The Republican senator from Maine, running for re-election at age 73 in one of this year’s top Senate races, made the disclosure after mounting online scrutiny on the left.`\
+https://www.nytimes.com/2026/05/06/us/politics/susan-collins-tremor-maine-senate-race.html
+
+**Polls in California Reflect a Chaotic Governor’s Race**\
+`Four candidates have emerged as leaders in the primary election to succeed Gov. Gavin Newsom.`\
+https://www.nytimes.com/2026/05/06/us/politics/california-governor-polls.html
+
+**Watch Live: California Governor’s Debate**\
+`Candidates for California governor meet on the debate stage with less than a month until the primary.`\
+https://www.nytimes.com/video/embedded/us/politics/100000010888133/watch-live-california-governors-debate.html
+
 **A Times reporter in L.A. explains an unusual race.**\
 ``\
 https://www.nytimes.com/live/2026/05/06/us/california-governor-debate/a-times-reporter-in-la-explains-an-unusual-race
@@ -57,24 +77,4 @@ https://www.nytimes.com/video/podcasts/100000010887368/lady-gaga-and-doechii-str
 **Kendall Myers, estadounidense que espiaba para Cuba, muere a los 88 años**\
 `Mientras trabajaba para el Departamento de Estado, entregó información ultrasecreta a sus contactos cubanos durante 30 años. Fue condenado a cadena perpetua.`\
 https://www.nytimes.com/es/2026/05/06/espanol/muere-kendall-myers-espia-cuba.html
-
-**Elon Musk’s Confidante Is Cast as His Inside Source at OpenAI**\
-`Shivon Zilis worked closely with Elon Musk while she was on OpenAI’s board. Her ties to the world’s richest man were detailed in a landmark trial on Wednesday.`\
-https://www.nytimes.com/2026/05/06/technology/elon-musk-shivon-zilis-openai-trial.html
-
-**Giuliani Seeks to Have Health Care Covered by 9/11 Program**\
-`The former New York City mayor, who is improving after a serious case of pneumonia, suffers from a respiratory condition linked to his exposure to toxins at ground zero, his spokesman says.`\
-https://www.nytimes.com/2026/05/06/nyregion/rudy-giuliani-health-world-trade-center.html
-
-**Purported Epstein Suicide Note Is Released**\
-`A federal judge released the note, which Jeffrey Epstein’s former cellmate said he found in a graphic novel. The New York Times has not authenticated that Mr. Epstein wrote it.`\
-https://www.nytimes.com/2026/05/06/nyregion/epstein-suicide-note.html
-
-**Diplomáticos, espías y guacamayas convergen en este hotel de Caracas**\
-`El JW Marriott se ha convertido en la embajada de facto para diplomáticos estadounidenses mientras inversionistas buscan su siguiente gran negocio en el país sudamericano en el lobby.`\
-https://www.nytimes.com/es/2026/05/06/espanol/america-latina/hotel-marriot-caracas-embajada-eeuu.html
-
-**Trump’s Indiana Victory Shows His Enduring Grip on Core Republican Supporters**\
-`Low approval ratings? MAGA divisions? The president was able to turn out party loyalists in an Indiana primary to help him oust Republican state lawmakers who had crossed him.`\
-https://www.nytimes.com/2026/05/06/us/politics/trump-indiana-republican-base.html
 
