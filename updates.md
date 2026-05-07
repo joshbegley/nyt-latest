@@ -1,3 +1,31 @@
+**Un juez publica la supuesta nota de suicidio de Epstein**\
+`La nota estuvo sellada durante años como parte del caso penal del compañero de celda de Jeffrey Epstein. The New York Times no ha autenticado que Epstein la haya escrito.`\
+https://www.nytimes.com/es/2026/05/07/espanol/estados-unidos/supuesta-nota-suicidio-epstein.html
+
+**‘A Total Collapse’: Elections May Expose Britain’s Fraying Political System**\
+`Polls predict historic losses for Prime Minister Keir Starmer’s Labour Party on Thursday as anti-immigrant Reform U.K. makes gains, and a new era of multiparty politics takes shape.`\
+https://www.nytimes.com/2026/05/07/world/europe/uk-local-elections-2026-keir-starmer.html
+
+**Starmer Faces a Major Test in a Set of U.K. Elections: What to Know**\
+`Local elections in England, and parliamentary elections in Scotland and Wales, take place on Thursday. The governing Labour Party is expected to do very badly.`\
+https://www.nytimes.com/2026/05/07/world/europe/uk-local-elections-starmer.html
+
+**Corrections: May 7, 2026**\
+`Corrections that appeared in print on Thursday, May 7, 2026.`\
+https://www.nytimes.com/2026/05/07/pageoneplus/corrections-may-7-2026.html
+
+**War and Energy Shortages Boost China’s Influence in Asia**\
+`The war in Iran has left China’s neighbors appealing for help, handing Beijing the kind of sway it has long sought.`\
+https://www.nytimes.com/2026/05/07/business/war-energy-china-iran.html
+
+**The ‘Perfect Storm’ Hanging Over Britain’s Public Debt**\
+`Bond investors are expected to scrutinize the results of critical local elections on Thursday as the war in the Middle East adds inflation pressure on the government.`\
+https://www.nytimes.com/2026/05/07/business/britain-bonds-gilt.html
+
+**Quote of the Day: As World’s Powers Focus on Arctic, Soldiers Get Ready to Fight in Cold**\
+`Quotation of the Day for Thursday, May 7, 2026.`\
+https://www.nytimes.com/2026/05/06/pageoneplus/quote-of-the-day-as-worlds-powers-focus-on-arctic-soldiers-get-ready-to-fight-in-cold.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/05/06/us/california-governor-debate/what-to-know-and-how-to-watch
