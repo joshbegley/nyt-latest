@@ -1,3 +1,7 @@
+**Tornadoes in Mississippi Damage More Than 1,000 Buildings**\
+`State officials were assessing the damage from a storm that ripped through the region overnight. At least four people suffered minor injuries.`\
+https://www.nytimes.com/2026/05/07/weather/mississippi-tornado-damage.html
+
 **The Long Journey From the Strait of Hormuz to the Gas Tank**\
 `Even if the Strait of Hormuz reopened today, oil would still take more than a month to reach consumers. The economic shock from the Iran war could take far longer to ease.`\
 https://www.nytimes.com/interactive/2026/05/07/world/middleeast/oil-tanker-strait-hormuz-iran-war.html
