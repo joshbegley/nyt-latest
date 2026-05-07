@@ -1,3 +1,7 @@
+**Trade Court Rules Trump’s 10% Global Tariff Is Illegal**\
+`A panel of federal judges blocked President Trump from imposing the tariff on most imports.`\
+https://www.nytimes.com/2026/05/07/business/economy/trump-global-tariff-ruled-illegal.html
+
 **YouTuber Recounts Moment Captain Announces Deaths on MV Hondius**\
 `Since April 11, three passengers who were aboard the Hondius have died and five other people have been sickened after showing symptoms of the hantavirus. The Turkish YouTuber Ruhi Çenet disembarked the ship on April 24, and told The Times how staff members reacted to the first death.`\
 https://www.nytimes.com/video/world/100000010888657/hantavirus-cruise-ship-passenger-interview.html
