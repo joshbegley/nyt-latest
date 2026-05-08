@@ -1,3 +1,7 @@
+**The Next Frontier of Trump’s Assault on Free Speech**\
+`Hegseth has argued that military retirees are subject to freedom of speech restrictions. Let that sink in.`\
+https://www.nytimes.com/2026/05/08/opinion/hegseth-kelly-military-free-speech.html
+
 **J.H. Prynne, Erudite and Elusive British Poet, Dies at 89**\
 `Even admirers admitted his densely intellectual work could be “punishing.” Still, some considered him one of England’s most important poets.`\
 https://www.nytimes.com/2026/05/08/books/jh-prynne-dead.html
@@ -67,14 +71,10 @@ https://www.nytimes.com/2026/05/08/climate/iran-kharg-oil-spill-hormuz.html
 https://www.nytimes.com/video/podcasts/100000010883839/why-wasnt-beyonce-on-our-greatest-songwriters-list.html
 
 **Trump Administration Targets 12 Immigrants to Revoke Citizenship**\
-`The targeted Americans are accused of fraud or other misdeeds that can qualify them to lose citizenship, but denaturalization has rarely been invoked in the past.`\
+`The targeted Americans are accused misdeeds that can qualify them to lose citizenship, but denaturalization has rarely been invoked in the past.`\
 https://www.nytimes.com/2026/05/08/us/politics/trump-immigrants-citizenship.html
 
 **Mi padre solía escribirle al gobierno cubano. Ahora me toca a mí**\
 `Señor presidente, por favor, no tome esta carta como una defensa de la política de EE. UU. hacia Cuba, y mucho menos como un llamado a la intervención militar estadounidense.`\
 https://www.nytimes.com/es/2026/05/08/espanol/opinion/cuba-diaz-canel-estados-unidos.html
-
-**En Rusia, el descontento se cierne sobre las festividades más grandes del año**\
-`Mientras el país se prepara para el Día de la Victoria, la economía se estanca, aumentan las restricciones de internet y el Kremlin teme ataques ucranianos.`\
-https://www.nytimes.com/es/2026/05/08/espanol/mundo/rusia-dia-victoria.html
 

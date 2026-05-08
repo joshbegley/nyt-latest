@@ -1,3 +1,11 @@
+**The Next Frontier of Trump’s Assault on Free Speech**\
+`Hegseth has argued that military retirees are subject to freedom of speech restrictions. Let that sink in.`\
+https://www.nytimes.com/2026/05/08/opinion/hegseth-kelly-military-free-speech.html
+
+**Trump Administration Targets 12 Immigrants to Revoke Citizenship**\
+`The targeted Americans are accused misdeeds that can qualify them to lose citizenship, but denaturalization has rarely been invoked in the past.`\
+https://www.nytimes.com/2026/05/08/us/politics/trump-immigrants-citizenship.html
+
 **J.H. Prynne, Erudite and Elusive British Poet, Dies at 89**\
 `Even admirers admitted his densely intellectual work could be “punishing.” Still, some considered him one of England’s most important poets.`\
 https://www.nytimes.com/2026/05/08/books/jh-prynne-dead.html
