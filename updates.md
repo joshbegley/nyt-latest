@@ -1,3 +1,47 @@
+**Russia in No Mood for Celebration on Kremlin’s Biggest Day of the Year**\
+`As the country heads into Victory Day, the economy is stalling, internet restrictions are growing and the Kremlin is fearing Ukrainian attacks.`\
+https://www.nytimes.com/2026/05/08/world/europe/russia-mood-victory-day.html
+
+**En Los Ángeles, la alcaldesa se enfrenta a rivales de los extremos políticos**\
+`Nithya Raman, concejala liberal, y Spencer Pratt, estrella republicana de la telerrealidad, son los principales contrincantes de Karen Bass, quien busca su segundo mandato.`\
+https://www.nytimes.com/es/2026/05/08/espanol/estados-unidos/elecciones-alcalde-los-angeles.html
+
+**Corrections: May 8, 2026**\
+`Corrections that appeared in print on Friday, May 8, 2026.`\
+https://www.nytimes.com/2026/05/08/pageoneplus/corrections-may-8-2026.html
+
+**Writing About My Mother as if She Were Dead**\
+`I needed distance to write honestly about my childhood. But fiction didn’t protect any of us from pain.`\
+https://www.nytimes.com/2026/05/08/style/modern-love-mothers-day-writing-about-my-mother.html
+
+**They Met One Night in Queens. A Year in St. Lucia Followed.**\
+`A chance meeting in Queens led Shanae Strachan and Lance Growth to build a life between New York and St. Lucia before marrying in Manhattan.`\
+https://www.nytimes.com/2026/05/08/style/shanae-strachan-lance-growth-wedding.html
+
+**Unmistakable Love of Austin, the Texas Longhorns and Each Other**\
+`Adam Mena and Jesse Stowell brought Austin, Texas, alive at their wedding with a taco truck, burnt orange hues and two miniature shaggy Highland cows.`\
+https://www.nytimes.com/2026/05/08/style/adam-mena-jesse-stowell-wedding.html
+
+**She Had Seen Her in Photos. Then They Met in Real Life.**\
+`Nandika Chatterjee had heard about Abigail Braggins from a roommate and thought she was “cute.” A wave in Little Italy sealed their fate.`\
+https://www.nytimes.com/2026/05/08/style/nandika-chatterjee-abigail-braggins-wedding.html
+
+**After a Secret Was Revealed, Their First Wedding Was Canceled**\
+`“Everybody deserves a second chance,” said Negarin Sadr of Matt Sornson ahead of their “Persian winter wonderland” wedding in Switzerland. (“But not a third chance.”)`\
+https://www.nytimes.com/2026/05/08/style/negarin-sadr-matt-sornson-canceled-wedding-redemption.html
+
+**How Energy Prices Are Driving Demand for Solar Panels and Heat Pumps**\
+`Already having faced an energy crisis five years ago, more European consumers believe they are “one Trump-ignited war away” from crushing costs.`\
+https://www.nytimes.com/2026/05/08/business/europe-solar-panels-iran-war.html
+
+**Quote of the Day: Retirement, Then Back To the Grind**\
+`Quotation of the Day for Friday, May 8, 2026.`\
+https://www.nytimes.com/2026/05/07/pageoneplus/quote-of-the-day-retirement-then-back-to-the-grind.html
+
+**Canvas Online Learning Platform Disabled for Hours After Breach by Hackers**\
+`Most users had regained access to the software late Thursday, hours after a hacking group said it had attacked Canvas’s parent company and gained access to more than 275 million people’s data.`\
+https://www.nytimes.com/2026/05/07/education/canvas-hacked-down-data-breach.html
+
 **U.S. to Review Mexican Consulates After Right-Wing Claims Against Them**\
 `The State Department said it would review all Mexican consulates in the United States, following claims in conservative media that the consulates interfere in politics.`\
 https://www.nytimes.com/2026/05/07/us/politics/mexico-consulates-state-department.html

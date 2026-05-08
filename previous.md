@@ -1,3 +1,43 @@
+**Russia in No Mood for Celebration on Kremlin’s Biggest Day of the Year**\
+`As the country heads into Victory Day, the economy is stalling, internet restrictions are growing and the Kremlin is fearing Ukrainian attacks.`\
+https://www.nytimes.com/2026/05/08/world/europe/russia-mood-victory-day.html
+
+**En Los Ángeles, la alcaldesa se enfrenta a rivales de los extremos políticos**\
+`Nithya Raman, concejala liberal, y Spencer Pratt, estrella republicana de la telerrealidad, son los principales contrincantes de Karen Bass, quien busca su segundo mandato.`\
+https://www.nytimes.com/es/2026/05/08/espanol/estados-unidos/elecciones-alcalde-los-angeles.html
+
+**Corrections: May 8, 2026**\
+`Corrections that appeared in print on Friday, May 8, 2026.`\
+https://www.nytimes.com/2026/05/08/pageoneplus/corrections-may-8-2026.html
+
+**Writing About My Mother as if She Were Dead**\
+`I needed distance to write honestly about my childhood. But fiction didn’t protect any of us from pain.`\
+https://www.nytimes.com/2026/05/08/style/modern-love-mothers-day-writing-about-my-mother.html
+
+**They Met One Night in Queens. A Year in St. Lucia Followed.**\
+`A chance meeting in Queens led Shanae Strachan and Lance Growth to build a life between New York and St. Lucia before marrying in Manhattan.`\
+https://www.nytimes.com/2026/05/08/style/shanae-strachan-lance-growth-wedding.html
+
+**Unmistakable Love of Austin, the Texas Longhorns and Each Other**\
+`Adam Mena and Jesse Stowell brought Austin, Texas, alive at their wedding with a taco truck, burnt orange hues and two miniature shaggy Highland cows.`\
+https://www.nytimes.com/2026/05/08/style/adam-mena-jesse-stowell-wedding.html
+
+**She Had Seen Her in Photos. Then They Met in Real Life.**\
+`Nandika Chatterjee had heard about Abigail Braggins from a roommate and thought she was “cute.” A wave in Little Italy sealed their fate.`\
+https://www.nytimes.com/2026/05/08/style/nandika-chatterjee-abigail-braggins-wedding.html
+
+**After a Secret Was Revealed, Their First Wedding Was Canceled**\
+`“Everybody deserves a second chance,” said Negarin Sadr of Matt Sornson ahead of their “Persian winter wonderland” wedding in Switzerland. (“But not a third chance.”)`\
+https://www.nytimes.com/2026/05/08/style/negarin-sadr-matt-sornson-canceled-wedding-redemption.html
+
+**How Energy Prices Are Driving Demand for Solar Panels and Heat Pumps**\
+`Already having faced an energy crisis five years ago, more European consumers believe they are “one Trump-ignited war away” from crushing costs.`\
+https://www.nytimes.com/2026/05/08/business/europe-solar-panels-iran-war.html
+
+**Quote of the Day: Retirement, Then Back To the Grind**\
+`Quotation of the Day for Friday, May 8, 2026.`\
+https://www.nytimes.com/2026/05/07/pageoneplus/quote-of-the-day-retirement-then-back-to-the-grind.html
+
 **U.S. to Review Mexican Consulates After Right-Wing Claims Against Them**\
 `The State Department said it would review all Mexican consulates in the United States, following claims in conservative media that the consulates interfere in politics.`\
 https://www.nytimes.com/2026/05/07/us/politics/mexico-consulates-state-department.html
@@ -22,8 +62,8 @@ https://www.nytimes.com/2026/05/07/us/ohio-fatal-shooting-jason-meade-casey-good
 `The Trump administration is moving to more strictly enforce a 1996 law that gives the State Department the authority to revoke passports over unpaid child support.`\
 https://www.nytimes.com/2026/05/07/us/politics/passports-revoked-child-support-state-dept.html
 
-**Canvas Online Learning Platform Disabled After Breach by Hackers**\
-`A hacking group that claimed responsibility for attacking Canvas’s parent company said it had gained access to data from more than 275 million people across 9,000 schools.`\
+**Canvas Online Learning Platform Disabled for Hours After Breach by Hackers**\
+`Most users had regained access to the software late Thursday, hours after a hacking group said it had attacked Canvas’s parent company and gained access to more than 275 million people’s data.`\
 https://www.nytimes.com/2026/05/07/education/canvas-hacked-down-data-breach.html
 
 **Cornell Is Investigating Confrontation Between President and Students**\
@@ -37,44 +77,4 @@ https://www.nytimes.com/2026/05/07/us/alaska-bear-killing-caribou-hunters.html
 **Trump Reversed Hormuz Plan After Saudis Denied Airspace Access**\
 `Saudi Arabia’s refusal of support suggests that President Trump’s unpredictable approach to Iran has strained ties with one of his closest allies in the Middle East.`\
 https://www.nytimes.com/2026/05/07/us/politics/trump-strait-of-hormuz-saudis.html
-
-**Trump’s New Foreign Aid Model Sparks Feud With Zambia**\
-`The tussle put a spotlight on the administration’s attempt to replace the United States Agency for International Development with a new, “America First” alternative.`\
-https://www.nytimes.com/2026/05/07/world/africa/trump-zambia-usaid-minerals-negotiations.html
-
-**DOGE’s Termination of Humanities Grants Is Ruled Unconstitutional**\
-`A lawsuit against the National Endowment for the Humanities drew wide attention for revealing how DOGE had used ChatGPT to cancel grants.`\
-https://www.nytimes.com/2026/05/07/arts/neh-grants-lawsuit-doge.html
-
-**Fetterman Says He Has ‘No Plans’ to Leave the Democratic Party**\
-`In an opinion piece in The Washington Post, the Pennsylvania senator wrote that while he was “at odds” with the party’s approach to some issues, his values had not changed.`\
-https://www.nytimes.com/2026/05/07/us/politics/john-fetterman-democratic-party.html
-
-**Here’s How Freaked Out You Should Be About the Hantavirus Cruise Ship**\
-`An expert weighs in.`\
-https://www.nytimes.com/2026/05/07/opinion/hantavirus-cruise-ship-virus-outbreak.html
-
-**U.S. Strikes Iranian Targets; Iran Says It Returned Fire**\
-`The exchange was the latest twist in a week of mixed signals in the region and tensions over the Strait of Hormuz, as President Trump searches for an off-ramp in the war that he started.`\
-https://www.nytimes.com/2026/05/07/us/politics/iran-us-ships-attack-strait-hormuz.html
-
-**‘Remarkably Bright Creatures’ Review: Their Octopus Teacher**\
-`Sally Field and Lewis Pullman get help from an eight-tentacled friend in this bland adaptation of a hit novel.`\
-https://www.nytimes.com/2026/05/07/movies/remarkably-bright-creatures-review.html
-
-**Louisiana Asks Supreme Court to Halt Abortion Pill Access by Mail**\
-`The request comes after a federal appeals court temporarily blocked a Food and Drug Administration regulation that has greatly expanded access to the abortion pill mifepristone.`\
-https://www.nytimes.com/2026/05/07/us/politics/supreme-court-abortion-pills-louisiana.html
-
-**Of Marble and Millionaires: A Stroll Through New York’s Gilded Age History**\
-`Yes, some memorable mansions were lost to the vagaries of expenses and development, but many remain — and some are even open to the public. A walking guide.`\
-https://www.nytimes.com/2026/05/07/arts/design/new-york-gilded-age-walking-tour.html
-
-**U.S. and Iran Trade Strikes as Tensions in Strait of Hormuz Rise**\
-`The escalating attacks raise the threat that the cease-fire could break down.`\
-https://www.nytimes.com/2026/05/07/world/middleeast/us-iran-trade-strikes-hormuz.html
-
-**A Question for Dealers: Show Solo Artists at Fairs or Group Exhibitions?**\
-`The decision can vary from fair to fair but sometimes solo booths can help visitors focus their attention on a single artist, rather than being overwhelmed by the art of many.`\
-https://www.nytimes.com/2026/05/07/arts/design/fairs-solo-shows-group-exhibitions.html
 
