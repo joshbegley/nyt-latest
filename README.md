@@ -1,3 +1,7 @@
+**Palabra del día: ‘mitigate’**\
+`Esta palabra ha aparecido en 350 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/05/08/espanol/que-significa-mitigate.html
+
 **Philip Caputo, Who Wrote Blistering Vietnam War Memoir, Dies at 84**\
 `“A Rumor of War,” about his service as a Marine Corps infantry officer and published in 1977, relentlessly detailed “the things men do in war and the things war does to them.”`\
 https://www.nytimes.com/2026/05/08/books/philip-caputo-dead.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/08/style/negarin-sadr-matt-sornson-canceled-wedd
 **How Energy Prices Are Driving Demand for Solar Panels and Heat Pumps**\
 `Already having faced an energy crisis five years ago, more European consumers believe they are “one Trump-ignited war away” from crushing costs.`\
 https://www.nytimes.com/2026/05/08/business/europe-solar-panels-iran-war.html
-
-**Quote of the Day: Retirement, Then Back To the Grind**\
-`Quotation of the Day for Friday, May 8, 2026.`\
-https://www.nytimes.com/2026/05/07/pageoneplus/quote-of-the-day-retirement-then-back-to-the-grind.html
 
