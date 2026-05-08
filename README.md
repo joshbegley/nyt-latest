@@ -1,3 +1,7 @@
+**Mette Frederiksen Fails to Form Governing Coalition in Denmark**\
+`King Frederik X has appointed a right-leaning politician to try to form the next government.`\
+https://www.nytimes.com/2026/05/08/world/europe/denmark-frederiksen-right-wing-government.html
+
 **U.S. Targets Iran’s Missile and Drone Program With Sanctions**\
 `The new measures are focused on Chinese companies that supply Iran’s military with materials to make drones.`\
 https://www.nytimes.com/2026/05/08/business/trump-sanctions-iran-china.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/05/08/well/family/mom-advice-mothers-da
 **U.F.O. Files Released by U.S. Shed Light on What the Government Knows**\
 `The Pentagon on Friday released online what it called “new, never-before-seen” files, dating back decades, related to unidentified flying objects.`\
 https://www.nytimes.com/2026/05/08/us/politics/ufo-sightings-us-government.html
-
-**Trump Plans to Fire F.D.A. Commissioner Marty Makary**\
-`Dr. Makary has been a supporter of the Make American Healthy Again Movement but made some enemies in the administration over vaping, the abortion pill and rejections of new drugs.`\
-https://www.nytimes.com/2026/05/08/us/trump-fda-commissioner-makary.html
 

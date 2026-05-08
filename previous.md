@@ -1,3 +1,7 @@
+**U.S. Targets Iran’s Missile and Drone Program With Sanctions**\
+`The new measures are focused on Chinese companies that supply Iran’s military with materials to make drones.`\
+https://www.nytimes.com/2026/05/08/business/trump-sanctions-iran-china.html
+
 **Alabama Asks Supreme Court to Allow it to Use New Voting Map**\
 `State officials urged the justices to allow them to jettison Alabama’s congressional district map, citing the Supreme Court’s recent decision that dealt a blow to the Voting Rights Act.`\
 https://www.nytimes.com/2026/05/08/us/politics/alabama-supreme-court-voting-map.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/08/us/politics/ufo-sightings-us-government.html
 **Trump Plans to Fire F.D.A. Commissioner Marty Makary**\
 `Dr. Makary has been a supporter of the Make American Healthy Again Movement but made some enemies in the administration over vaping, the abortion pill and rejections of new drugs.`\
 https://www.nytimes.com/2026/05/08/us/trump-fda-commissioner-makary.html
-
-**Pentagon Releases U.F.O. Files**\
-`The Pentagon released “new, never-before-seen” U.F.O. files on Friday. The files include murky videos and still images that do not show anything definitive. The Defense Department said new materials would be released on a rolling basis.`\
-https://www.nytimes.com/video/science/space/100000010892319/trump-ufo-files.html
 

@@ -1,3 +1,7 @@
+**U.S. Targets Iran’s Missile and Drone Program With Sanctions**\
+`The new measures are focused on Chinese companies that supply Iran’s military with materials to make drones.`\
+https://www.nytimes.com/2026/05/08/business/trump-sanctions-iran-china.html
+
 **Alabama Asks Supreme Court to Allow it to Use New Voting Map**\
 `State officials urged the justices to allow them to jettison Alabama’s congressional district map, citing the Supreme Court’s recent decision that dealt a blow to the Voting Rights Act.`\
 https://www.nytimes.com/2026/05/08/us/politics/alabama-supreme-court-voting-map.html
