@@ -1,3 +1,7 @@
+**¿Qué es el hantavirus?**\
+`Este virus, transmitido por roedores, está relacionado con un brote mortal en un crucero que navegaba por el océano Atlántico.`\
+https://www.nytimes.com/es/2026/05/08/espanol/hantavirus-que-es.html
+
 **The Action Before the Action at the World Cup**\
 `Before the FIFA World Cup kicks off on June 11, there’s plenty to look out for as the world’s biggest soccer stars descend on North America.`\
 https://www.nytimes.com/2026/05/08/sports/soccer/world-cup-2026-warmup-games.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/08/nyregion/epstein-suicide-note-phrases.html
 **Rhode Island U.S. Senate Election 2026: Latest Polls**\
 `Track the latest polls in the Rhode Island U.S. Senate election.`\
 https://www.nytimes.com/interactive/polls/rhode-island-us-senate-election-polls-2026.html
-
-**Wait, My Lamp Wasn’t Even Italian?**\
-`On the hunt for a light that only looked like it came from the Memphis Group.`\
-https://www.nytimes.com/2026/05/08/t-magazine/memphis-style-lamp-lighting.html
 
