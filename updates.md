@@ -1,3 +1,7 @@
+**Canvas Online Learning Platform Disabled After Breach by Hackers**\
+`A hacking group that claimed responsibility for attacking Canvas’s parent company said it had gained access to data from more than 275 million people across 9,000 schools.`\
+https://www.nytimes.com/2026/05/07/education/canvas-hacked-down-data-breach.html
+
 **Cornell Is Investigating Confrontation Between President and Students**\
 `The university’s leader bumped into students as he drove away following an evening of debate over the long-running conflict in the Middle East.`\
 https://www.nytimes.com/2026/05/07/nyregion/cornell-kotlikoff-car-students-investigation.html
