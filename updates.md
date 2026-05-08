@@ -1,3 +1,19 @@
+**What to Do for the Elderly? Stop Badgering Them!**\
+`Readers respond to an essay about old people preparing (or not) for the end. Also: Antisemitism online; Trump the destroyer; two types of dreaming.`\
+https://www.nytimes.com/2026/05/08/opinion/old-age.html
+
+**Flashback: Your Weekly History Quiz, May 9, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/05/08/upshot/flashback.html
+
+**What to know about the report.**\
+``\
+https://www.nytimes.com/live/2026/05/08/business/jobs-report-economy/what-to-know-about-the-report
+
+**The No-Bid Contract That Is Turning Washington’s Reflecting Pool Blue**\
+`President Trump handpicked a firm he said had worked on his swimming pool to repair the iconic site near the Lincoln Memorial.`\
+https://www.nytimes.com/2026/05/08/us/politics/reflecting-pool-trump-contract.html
+
 **Before Hantavirus Outbreak, This Cruise Attracted ‘a Different Type of Traveler’**\
 `Former passengers on the MV Hondius say that the ship was made for wildlife expeditions and that the crew took safety very seriously.`\
 https://www.nytimes.com/2026/05/08/world/hantavirus-mv-hondius-cruise.html

@@ -1,3 +1,19 @@
+**What to Do for the Elderly? Stop Badgering Them!**\
+`Readers respond to an essay about old people preparing (or not) for the end. Also: Antisemitism online; Trump the destroyer; two types of dreaming.`\
+https://www.nytimes.com/2026/05/08/opinion/old-age.html
+
+**Flashback: Your Weekly History Quiz, May 9, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/05/08/upshot/flashback.html
+
+**What to know about the report.**\
+``\
+https://www.nytimes.com/live/2026/05/08/business/jobs-report-economy/what-to-know-about-the-report
+
+**The No-Bid Contract That Is Turning Washington’s Reflecting Pool Blue**\
+`President Trump handpicked a firm he said had worked on his swimming pool to repair the iconic site near the Lincoln Memorial.`\
+https://www.nytimes.com/2026/05/08/us/politics/reflecting-pool-trump-contract.html
+
 **Before Hantavirus Outbreak, This Cruise Attracted ‘a Different Type of Traveler’**\
 `Former passengers on the MV Hondius say that the ship was made for wildlife expeditions and that the crew took safety very seriously.`\
 https://www.nytimes.com/2026/05/08/world/hantavirus-mv-hondius-cruise.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/live/2026/us/fifa-world-cup/rail-tickets-to-new-jersey-w
 **How Prepared Are We for A.I. Layoffs?**\
 `Our chief economics correspondent, Ben Casselman, describes how A.I.-related layoffs are testing the resilience of the government’s safety net programs.`\
 https://www.nytimes.com/video/business/100000010887206/artificial-intelligence-layoffs-unemployment-benefits.html
-
-**Review: At City Ballet, Tiler Peck Shows Shimmering Restraint**\
-`The star ballerina is also an accomplished choreographer. Her sophomore work for City Ballet is bigger and better than her first.`\
-https://www.nytimes.com/2026/05/08/arts/dance/review-tiler-peck-symphonie-espagnole-new-york-city-ballet.html
-
-**Greenpeace Suffers Another Blow in Court Fight With Pipeline Giant**\
-`In an unusual move, a North Dakota court said Greenpeace International shouldn’t be allowed to pursue a lawsuit in Europe, where it is based, against the company.`\
-https://www.nytimes.com/2026/05/08/climate/greenpeace-energy-transfer-dakota-access-slapp.html
-
-****\
-``\
-https://www.nytimes.com/video/embedded/world/europe/100000010891937/08vid-garbett-embed-58047.html
-
-**Mapping the Knockout Stage: Where Will Your Team Play in the World Cup?**\
-`What city is your team most likely to play in during the elimination phase?`\
-https://www.nytimes.com/interactive/2026/05/08/upshot/world-cup-odds.html
 
