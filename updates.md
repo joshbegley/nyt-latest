@@ -1,3 +1,7 @@
+**Oil Prices Rise as U.S. and Iran Test Truce With Military Strikes**\
+`Oil prices rose after the United States attacked Iranian military sites in retaliation for Iran firing on U.S. warships in the Strait of Hormuz`\
+https://www.nytimes.com/2026/05/08/business/oil-gas-price-iran.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/05/08/world/uk-local-elections-results/heres-the-latest
