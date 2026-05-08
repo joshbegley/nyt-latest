@@ -1,80 +1,80 @@
-**Trump Dismisses Iran’s Strikes as a ‘Trifle’**\
-`President Trump on Thursday said the cease-fire with Iran was still intact after the two countries exchanged fire. He dismissed Iran’s attacks as a “trifle.”`\
-https://www.nytimes.com/video/world/middleeast/100000010891071/trump-iran-war-ceasefire.html
-
-****\
-``\
-https://www.nytimes.com/video/embedded/world/europe/100000010891272/08vid-starmer-embed-28104.html
-
-****\
-``\
-https://www.nytimes.com/video/embedded/world/europe/100000010891278/08vid-farage-embed-14784.html
-
-**‘El diablo viste a la moda’ ha evolucionado con su audiencia**\
-`Los que llegamos a la madurez junto con la protagonista ahora podemos ver que amar tu trabajo no tiene por qué significar convertirte en Miranda Priestly. Puede significar ser Andy Sachs.`\
-https://www.nytimes.com/es/2026/05/08/espanol/cultura/diablo-viste-moda-vida-trabajo.html
-
-**Soy infelizmente soltera. ¿Tengo que asistir a la boda de mi amiga?**\
-`Nuestra columnista de Pregúntale a la terapeuta, Lori Gottlieb, aconseja a una lectora que no quiere que le recuerden su soledad una vez más.`\
-https://www.nytimes.com/es/2026/05/08/espanol/solteria-soledad-boda-amigos.html
-
-**En un mundo incierto, las parejas ya no quieren tener bebés**\
-`¿Es el dinero que ya no alcanza o es el pánico por lo que pueda venir?`\
-https://www.nytimes.com/es/2026/05/08/espanol/opinion/tasa-natalidad-maternidad-demografia-futuro.html
-
-**New York’s Budget Deal Is Still Hazy. Here Are 5 Key Questions.**\
-`Gov. Kathy Hochul claimed victory for a state budget agreement that is already five weeks overdue, and clearly still needs more work.`\
-https://www.nytimes.com/2026/05/08/nyregion/hochul-state-budget-questions.html
-
-**Top Secret**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://www.nytimes.com/2026/05/08/learning/top-secret.html
-
-**Gates Around Washington Square Park? Greenwich Village Is Divided.**\
-`The park in Manhattan, known for its regal arch and freewheeling spirit, has a hard-to-enforce midnight curfew.`\
-https://www.nytimes.com/2026/05/08/nyregion/washington-square-park-gates.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/05/08/crosswords/spelling-bee-forum.html
-
-**3 Hikers Dead and Several Missing After Volcano Erupts in Indonesia**\
-`The Indonesian authorities reported the deaths after Mount Dukono erupted on Friday morning. Rescue workers are trying to evacuate climbers.`\
-https://www.nytimes.com/2026/05/08/world/asia/indonesia-volcano-eruption-dukono-hikers.html
-
-**Late Night Recaps Rubio’s Peacemaking Papal Visit**\
-`Jimmy Fallon joked that President Trump and Pope Leo are putting Marco Rubio, who is Catholic, “in the middle and seeing which parent he goes to.”`\
-https://www.nytimes.com/2026/05/08/arts/television/late-night-rubio-pope.html
-
-**Palabra del día: ‘mitigate’**\
-`Esta palabra ha aparecido en 350 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
-https://www.nytimes.com/es/2026/05/08/espanol/que-significa-mitigate.html
-
-**Philip Caputo, Who Wrote Blistering Vietnam War Memoir, Dies at 84**\
-`“A Rumor of War,” about his service as a Marine Corps infantry officer and published in 1977, relentlessly detailed “the things men do in war and the things war does to them.”`\
-https://www.nytimes.com/2026/05/08/books/philip-caputo-dead.html
-
-**Algunos objetos del Titanic podrían subastarse pronto**\
-`La última vez que se propuso una venta, la idea suscitó objeciones de los gobiernos estadounidense y francés, así como de la UNESCO y otras instituciones culturales.`\
-https://www.nytimes.com/es/2026/05/08/espanol/estados-unidos/titanic-objetos-subasta-dolares.html
-
-**Word of the Day: mitigate**\
-`This word has appeared in 350 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/05/08/learning/word-of-the-day-mitigate.html
-
-**Oil Prices Rise as U.S. and Iran Test Truce With Military Strikes**\
-`Oil prices rose after the United States attacked Iranian military sites in retaliation for Iran firing on U.S. warships in the Strait of Hormuz`\
-https://www.nytimes.com/2026/05/08/business/oil-gas-price-iran.html
-
 **Here’s the latest.**\
 ``\
-https://www.nytimes.com/live/2026/05/08/world/uk-local-elections-results/heres-the-latest
+https://www.nytimes.com/live/2026/05/08/world/iran-strikes-trump-ceasefire-hormuz/heres-the-latest
 
-**El nuevo gobierno de Hungría examina la relación de Orbán con China**\
-`Pekín dependía del líder saliente de Hungría, Viktor Orbán, para afianzarse en Europa. Una gigantesca fábrica de baterías resultó ser un paso demasiado audaz.`\
-https://www.nytimes.com/es/2026/05/08/espanol/mundo/china-baterias-europa-orban.html
+**The New York Times News Quiz, May 8, 2026**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://www.nytimes.com/interactive/2026/05/08/briefing/news-quiz-trump-iran-hantavirus.html
 
-**¿La IA de Google puede planear tus viajes? Nuestro experto la puso a prueba**\
-`Gemini es una navaja suiza digital para planificar vuelos, actividades e itinerarios, pero no es perfecta. ¿Por qué se le olvidó incluir la ropa interior en la lista de equipaje?`\
-https://www.nytimes.com/es/2026/05/08/espanol/planear-viajes-ia-gemini.html
+**Your Friend Married a Dud. Double Dating Can Still Be Fun.**\
+`Experts share ideas on choosing the right activities and keeping the peace.`\
+https://www.nytimes.com/2026/05/08/well/double-date-advice-dont-like-friends-partner.html
+
+**Can They Build ‘America First’ Without Nick Fuentes?**\
+`A small group of candidates and influencers met to forge a shaky new political movement — without its de facto leader and his groypers.`\
+https://www.nytimes.com/2026/05/08/style/america-first-united-fuentes.html
+
+**Graham Platner Is No Nazi**\
+`Conservative attacks are premised on a deliberate misreading of both the candidate and his progressive fans.`\
+https://www.nytimes.com/2026/05/08/opinion/graham-platner-nazi-tattoo-maine.html
+
+**Without Its Expert Jury, Venice Biennale Lets the Public Choose Its Prize Winners**\
+`The jury resigned last week, so the international art event is letting viewers pick the best artist from the main exhibition and the national pavilions.`\
+https://www.nytimes.com/2026/05/08/arts/venice-biennale-golden-lion-public-voting.html
+
+**A.I Populism Is Here. And No One Is Ready.**\
+`Silicon Valley oligarchs worried about the risks their technology posed to the world. They forgot about people.`\
+https://www.nytimes.com/2026/05/08/magazine/ai-populism-backlash-altman.html
+
+**Cuando más medicina no siempre es mejor en la vejez**\
+`Expertos advierten que ciertos exámenes y fármacos podrían ser innecesarios en pacientes de más edad.`\
+https://www.nytimes.com/es/2026/05/08/espanol/cuando-mas-medicina-no-siempre-es-mejor-en-la-vejez.html
+
+**GLP-1s and the ‘Wild West’ of Wellness**\
+`One in eight American adults is taking GLP-1s. What does that mean for how we relate to our food, bodies and one another?`\
+https://www.nytimes.com/2026/05/08/opinion/ezra-klein-podcast-julia-belluz.html
+
+**The Many Love Lives of Ted Turner**\
+`Known as a playboy, the media mogul gave his paramours and three ex-wives plenty of stories to tell. He also managed to stay friendly with many of them.`\
+https://www.nytimes.com/2026/05/08/style/ted-turner-relationships-wives-jane-fonda.html
+
+**Hegseth Says This War Has Cost $25 Billion. He’s Wrong.**\
+`The war in Iran will cost trillions — far more than current estimates.`\
+https://www.nytimes.com/2026/05/08/opinion/hegseth-war-cost.html
+
+**‘Amadeus’ Review: Mozart vs. Salieri, Round 3**\
+`The story of genius and jealousy, a major award winner onstage and on film, returns as a TV series starring Will Sharpe and Paul Bettany.`\
+https://www.nytimes.com/2026/05/08/arts/television/amadeus-review.html
+
+**Meta Is Dying**\
+`Meta has commenced a long, slow slide into irrelevance.`\
+https://www.nytimes.com/2026/05/08/opinion/meta-facebook-zuckerberg.html
+
+**What’s the Coolest, Strangest or Most Valuable Thing You’ve Ever Found?**\
+`A secret treasure chest is hidden somewhere in San Francisco. Would you want to join the hunt to find it?`\
+https://www.nytimes.com/2026/05/08/learning/whats-the-coolest-strangest-or-most-valuable-thing-youve-ever-found.html
+
+**See How the G.O.P. Cut Up a Southern State’s Only Majority Black District**\
+`A recent Supreme Court ruling makes it much harder to argue that a map illegally dilutes Black voting power. Tennessee has since broken up a predominantly Black district.`\
+https://www.nytimes.com/interactive/2026/05/08/us/politics/tennessee-gop-map-black-voters.html
+
+**Trump’s Architecture Rankles. But Why?**\
+`What Trump’s monuments look like to a British architecture writer.`\
+https://www.nytimes.com/2026/05/08/opinion/trump-ballroom-arch-architecture.html
+
+**Patricia Cornwell on Her Dark Childhood and Best-Selling Novels**\
+`The crime novelist discusses her new memoir “True Crime.” Also, Daniel Kraus, winner of this year’s Pulitzer Prize for fiction, talks about his novel “Angel Down.”`\
+https://www.nytimes.com/2026/05/08/podcasts/pulitzer-winner-crime-novelist.html
+
+**The Detectives Are Sheep. (No, That’s Not a Metaphor.)**\
+`The filmmakers behind this adaptation of a best-selling novel were adamant that their ovine sleuths not seem like humans in, well, sheep’s clothing.`\
+https://www.nytimes.com/2026/05/08/movies/the-sheep-detectives-hugh-jackman-julia-louis-dreyfus.html
+
+**A Very American Controversy on the Art World’s Biggest Stage**\
+`Trump has taken an active role in the arts in his second term, which may be evident in the work on display at the Venice Biennale — depending on how you look at it.`\
+https://www.nytimes.com/2026/05/08/magazine/venice-biennale-american-artist.html
+
+**5 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://www.nytimes.com/2026/05/08/movies/movies-new-movies-this-week-critics.html
 
