@@ -1,3 +1,15 @@
+**Even in Labour-Loyal Wales, Voters Are Looking to Other Parties**\
+`Opinion polls before the election suggested that the right-wing anti-immigration Reform U.K. party and the center-left Plaid Cymru would battle for the top spot in Wales.`\
+https://www.nytimes.com/2026/05/08/world/europe/wales-parliament-uk-election-plaid-cymru-labour.html
+
+**A Paul Klee Angel Finally Lands in New York**\
+`“Angelus Novus,” an artwork with a fascinating back story, including most recently a wartime delay, is a late addition to an already impressive Klee survey at the Jewish Museum.`\
+https://www.nytimes.com/2026/05/08/arts/design/a-paul-klee-angel-finally-lands-in-new-york.html
+
+**The Green Party gained ground in some of Labour’s London strongholds.**\
+``\
+https://www.nytimes.com/live/2026/05/08/world/uk-local-elections-results/the-green-party-gained-ground-in-some-of-labours-london-strongholds
+
 **Two Men Are Convicted of Spying for China in Britain**\
 `The men were arrested in 2024, accused of surveilling dissidents from Hong Kong in Britain. The case sent a chill through pro-democracy protesters who have fled the territory.`\
 https://www.nytimes.com/2026/05/08/world/europe/uk-hong-kong-china-spying.html
@@ -42,9 +54,9 @@ https://www.nytimes.com/2026/05/08/podcasts/the-headlines/the-headlines-news-qui
 `“It seems every other day I am reading a story about a massive insider trading scandal.”`\
 https://www.nytimes.com/2026/05/08/podcasts/hardfork-prediction-markets.html
 
-**Fed officials weigh stable jobs backdrop against rising inflation risks.**\
-``\
-https://www.nytimes.com/live/2026/05/08/business/jobs-report-economy/jobs-report-inflation-federal-reserve
+**Fed Officials Weigh Stable Jobs Backdrop Against Rising Inflation Risks**\
+`April’s report showed employers added more jobs than expected, supporting the central bank’s view that it can afford to hold interest rates steady.`\
+https://www.nytimes.com/2026/05/08/business/economy/jobs-report-inflation-federal-reserve.html
 
 **With fuel costs soaring, Trump insists the economy is strong.**\
 `White House aides have sounded bullish on the jobs report, even as warning signs mount amid the war with Iran.`\
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/08/world/middleeast/uae-iran-war.html
 **Arte y política**\
 `La Bienal de Venecia siempre es abrumadora por el arte. Este año, la política también ha resultado abrumadora.`\
 https://www.nytimes.com/es/2026/05/08/espanol/mundo/bienal-venecia-arte-politica.html
-
-**Going for Broke**\
-`Why does the public seem unbothered by the national debt?`\
-https://www.nytimes.com/2026/05/08/briefing/going-for-broke.html
-
-**The Resurrection of Michael Jackson**\
-`Can “Michael“ help restore the king of pop’s image? His estate is banking on it.`\
-https://www.nytimes.com/2026/05/08/podcasts/the-daily/michael-jackson-film.html
-
-**Can You Sneak Chocolate Chips From the Pantry?**\
-`A ruling on a dispute over purloined baking ingredients.`\
-https://www.nytimes.com/interactive/2026/05/08/magazine/chocolate-chips-hodgman-quiz.html
 
