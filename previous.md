@@ -1,3 +1,27 @@
+**Can the U.S. Rein in Prediction Markets? + Joanna Stern on Her Year of A.I. Experiments + Our Producer Goes to Attention School**\
+`“It seems every other day I am reading a story about a massive insider trading scandal.”`\
+https://www.nytimes.com/2026/05/08/podcasts/hardfork-prediction-markets.html
+
+**Fed officials weigh stable jobs backdrop against rising inflation risks.**\
+``\
+https://www.nytimes.com/live/2026/05/08/business/jobs-report-economy/jobs-report-inflation-federal-reserve
+
+**With fuel costs soaring, Trump insists the economy is strong.**\
+`White House aides have sounded bullish on the jobs report, even as warning signs mount amid the war with Iran.`\
+https://www.nytimes.com/live/2026/05/08/business/jobs-report-economy/with-fuel-costs-soaring-trump-insists-the-economy-is-strong
+
+**What to watch in the report.**\
+``\
+https://www.nytimes.com/live/2026/05/08/business/jobs-report-economy/economy-jobs-report
+
+**8 Pavilions That Have the Venice Biennale Buzzing**\
+`A doll-focused show, a contemplative garden, a sizzling hothouse: It’s all to see at the world’s top contemporary art event.`\
+https://www.nytimes.com/2026/05/08/arts/venice-biennale-popular-pavilions.html
+
+**Singled Out by Iran, U.A.E. Doubles Down on U.S. and Israeli Ties**\
+`The United Arab Emirates has borne the brunt of Iranian attacks throughout the war, hardening the government’s resolve to reassess its list of friends and foes.`\
+https://www.nytimes.com/2026/05/08/world/middleeast/uae-iran-war.html
+
 **Arte y política**\
 `La Bienal de Venecia siempre es abrumadora por el arte. Este año, la política también ha resultado abrumadora.`\
 https://www.nytimes.com/es/2026/05/08/espanol/mundo/bienal-venecia-arte-politica.html
@@ -53,28 +77,4 @@ https://www.nytimes.com/2026/05/08/world/africa/south-africa-president-ramaphosa
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/05/08/world/iran-strikes-trump-ceasefire-hormuz/heres-the-latest
-
-**The New York Times News Quiz, May 8, 2026**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://www.nytimes.com/interactive/2026/05/08/briefing/news-quiz-trump-iran-hantavirus.html
-
-**Your Friend Married a Dud. Double Dating Can Still Be Fun.**\
-`Experts share ideas on choosing the right activities and keeping the peace.`\
-https://www.nytimes.com/2026/05/08/well/double-date-advice-dont-like-friends-partner.html
-
-**Can They Build ‘America First’ Without Nick Fuentes?**\
-`A small group of candidates and influencers met to forge a shaky new political movement — without its de facto leader and his groypers.`\
-https://www.nytimes.com/2026/05/08/style/america-first-united-fuentes.html
-
-**Graham Platner Is No Nazi**\
-`Conservative attacks are premised on a deliberate misreading of both the candidate and his progressive fans.`\
-https://www.nytimes.com/2026/05/08/opinion/graham-platner-nazi-tattoo-maine.html
-
-**Without Its Expert Jury, Venice Biennale Lets the Public Choose Its Prize Winners**\
-`The jury resigned last week, so the international art event is letting viewers pick the best artist from the main exhibition and the national pavilions.`\
-https://www.nytimes.com/2026/05/08/arts/venice-biennale-golden-lion-public-voting.html
-
-**A.I Populism Is Here. And No One Is Ready.**\
-`Silicon Valley oligarchs worried about the risks their technology posed to the world. They forgot about people.`\
-https://www.nytimes.com/2026/05/08/magazine/ai-populism-backlash-altman.html
 

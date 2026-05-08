@@ -1,3 +1,27 @@
+**Can the U.S. Rein in Prediction Markets? + Joanna Stern on Her Year of A.I. Experiments + Our Producer Goes to Attention School**\
+`“It seems every other day I am reading a story about a massive insider trading scandal.”`\
+https://www.nytimes.com/2026/05/08/podcasts/hardfork-prediction-markets.html
+
+**Fed officials weigh stable jobs backdrop against rising inflation risks.**\
+``\
+https://www.nytimes.com/live/2026/05/08/business/jobs-report-economy/jobs-report-inflation-federal-reserve
+
+**With fuel costs soaring, Trump insists the economy is strong.**\
+`White House aides have sounded bullish on the jobs report, even as warning signs mount amid the war with Iran.`\
+https://www.nytimes.com/live/2026/05/08/business/jobs-report-economy/with-fuel-costs-soaring-trump-insists-the-economy-is-strong
+
+**What to watch in the report.**\
+``\
+https://www.nytimes.com/live/2026/05/08/business/jobs-report-economy/economy-jobs-report
+
+**8 Pavilions That Have the Venice Biennale Buzzing**\
+`A doll-focused show, a contemplative garden, a sizzling hothouse: It’s all to see at the world’s top contemporary art event.`\
+https://www.nytimes.com/2026/05/08/arts/venice-biennale-popular-pavilions.html
+
+**Singled Out by Iran, U.A.E. Doubles Down on U.S. and Israeli Ties**\
+`The United Arab Emirates has borne the brunt of Iranian attacks throughout the war, hardening the government’s resolve to reassess its list of friends and foes.`\
+https://www.nytimes.com/2026/05/08/world/middleeast/uae-iran-war.html
+
 **Arte y política**\
 `La Bienal de Venecia siempre es abrumadora por el arte. Este año, la política también ha resultado abrumadora.`\
 https://www.nytimes.com/es/2026/05/08/espanol/mundo/bienal-venecia-arte-politica.html
