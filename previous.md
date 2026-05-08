@@ -1,3 +1,7 @@
+**David Attenborough Celebrates His 100th Birthday**\
+`The filmmaker David Attenborough, who turned 100-years-old on Friday, has spent decades documenting and advocating for the natural world.`\
+https://www.nytimes.com/video/world/europe/100000010891631/david-attenborough-birthday-100.html
+
 **Starmer Takes Responsibility for Big Losses in U.K. Election Results**\
 `Britain’s Labour Party had lost close to 1,100 municipal council seats across England by Friday evening, while the right-wing populist Reform U.K. had gained close to 1,200.`\
 https://www.nytimes.com/video/world/europe/100000010893031/uk-elections-starmer-losses.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/podcasts/100000010892730/the-expansiveness-of-our-
 **Mysterious American Man Makes Mysterious Proposal in Greenland**\
 `The police in Greenland are investigating the case of a lone man from Las Vegas who goes by Cliff. Locals said he had offered money to Greenlanders to join the United States.`\
 https://www.nytimes.com/2026/05/08/world/europe/greenland-mysterious-offer-american.html
-
-**Hegseth Is Sending Us a Warning**\
-`The secretary of defense has argued that military retirees are subject to freedom of speech restrictions. Let that sink in.`\
-https://www.nytimes.com/2026/05/08/opinion/hegseth-kelly-military-free-speech.html
 
