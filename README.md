@@ -1,3 +1,15 @@
+**Trump Dismisses Iran’s Strikes as a ‘Trifle’**\
+`President Trump on Thursday said the cease-fire with Iran was still intact after the two countries exchanged fire. He dismissed Iran’s attacks as a “trifle.”`\
+https://www.nytimes.com/video/world/middleeast/100000010891071/trump-iran-war-ceasefire.html
+
+****\
+``\
+https://www.nytimes.com/video/embedded/world/europe/100000010891272/08vid-starmer-embed-28104.html
+
+****\
+``\
+https://www.nytimes.com/video/embedded/world/europe/100000010891278/08vid-farage-embed-14784.html
+
 **‘El diablo viste a la moda’ ha evolucionado con su audiencia**\
 `Los que llegamos a la madurez junto con la protagonista ahora podemos ver que amar tu trabajo no tiene por qué significar convertirte en Miranda Priestly. Puede significar ser Andy Sachs.`\
 https://www.nytimes.com/es/2026/05/08/espanol/cultura/diablo-viste-moda-vida-trabajo.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/es/2026/05/08/espanol/mundo/china-baterias-europa-orban.
 **¿La IA de Google puede planear tus viajes? Nuestro experto la puso a prueba**\
 `Gemini es una navaja suiza digital para planificar vuelos, actividades e itinerarios, pero no es perfecta. ¿Por qué se le olvidó incluir la ropa interior en la lista de equipaje?`\
 https://www.nytimes.com/es/2026/05/08/espanol/planear-viajes-ia-gemini.html
-
-**Is Trump About to Invite In the Biggest Predator in the World?**\
-`Chinese automakers do not belong on American soil.`\
-https://www.nytimes.com/2026/05/08/opinion/trump-xi-china-us-automakers.html
-
-**China Sees a ‘Giant With a Limp’ as U.S. Drains Weapons on Iran War**\
-`America’s ability to deter China in a war over Taiwan is weakened, Chinese analysts say, giving Beijing leverage in an upcoming summit with President Trump.`\
-https://www.nytimes.com/2026/05/08/world/asia/trump-xi-china-us-iran-munitions.html
-
-**What Virus Experts Want You to Know About Hantavirus**\
-`News of a hantavirus outbreak on a cruise ship has raised concerns about what this means for the broader public. Nina Agrawal, a reporter for Well, speaks with Dr. Gaby Frank, director of the Special Pathogens Center at Johns Hopkins, to learn more.`\
-https://www.nytimes.com/video/well/100000010887474/what-virus-experts-want-you-to-know-about-hantavirus.html
 
