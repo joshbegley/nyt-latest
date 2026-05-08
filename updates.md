@@ -1,3 +1,11 @@
+**Before Hantavirus Outbreak, This Cruise Attracted ‘a Different Type of Traveler’**\
+`Former passengers on the MV Hondius say that the ship was made for wildlife expeditions and that the crew took safety very seriously.`\
+https://www.nytimes.com/2026/05/08/world/hantavirus-mv-hondius-cruise.html
+
+**Festus Mogae, Botswana President Who Tackled H.I.V., Dies at 86**\
+`He led the southern African nation for a decade and embraced a flagship American aid program credited with helping to eradicate the country’s AIDS epidemic.`\
+https://www.nytimes.com/2026/05/08/world/africa/festus-mogae-dead.html
+
 **4 Takeaways From the Virginia Supreme Court Gerrymandering Decision**\
 `The ruling was a major lift to the G.O.P. efforts to build a structural advantage through redistricting.`\
 https://www.nytimes.com/2026/05/08/us/politics/virginia-redistricting-gerrymandering-takeaways.html
