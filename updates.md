@@ -1,3 +1,15 @@
+**Canvas cierra durante horas tras ciberataque**\
+`Un grupo de hackers se atribuyó la vulneración de datos que afectó a la plataforma de aprendizaje y puso en peligro los datos personales de millones de usuarios.`\
+https://www.nytimes.com/es/2026/05/08/espanol/canvas-hackeo.html
+
+****\
+``\
+https://www.nytimes.com/video/embedded/us/100000010891732/08vid-rubio-embeds.html
+
+**Four Men Found Guilty of Haiti President’s Assassination**\
+`President Jovenel Moïse, 53, was gunned down in his bedroom in July 2021. His killing unleashed a yearslong spiral of gang violence and mayhem in Haiti.`\
+https://www.nytimes.com/2026/05/08/world/americas/haiti-president-assassination-four-men-charged.html
+
 **Colorado Fifth Congressional District 2026: Latest Polls**\
 `Track the latest polls in Colorado's 5th Congressional District.`\
 https://www.nytimes.com/interactive/2026/05/08/polls/colorado-us-house-5-polls-2026.html
