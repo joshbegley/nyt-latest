@@ -1,3 +1,11 @@
+**‘A Historic Shift’: Farage Celebrates Strong Performance in U.K. Local Elections**\
+`In early results, Nigel Farage’s Reform U.K. party has won more than 400 council races across England.`\
+https://www.nytimes.com/2026/05/08/world/europe/reform-uk-election-results-farage.html
+
+**Pulitzer Winner Says Don't Kill Your Darlings**\
+`On a recent episode of the “Book Review” podcast, Daniel Kraus, the Pulitzer-winning author of the novel “Angel Down,” shared why the old writing advice to “kill your darlings” has never worked for him. Instead, he believes writers should follow the ideas they love most and let them grow into “incredible monsters.” Tap the link in our bio to hear the full conversation. Video by Sarah Diamond/The New York Times`\
+https://www.nytimes.com/video/podcasts/100000010891379/pulitzer-winner-says-dont-kill-your-darlings.html
+
 **‘The Headlines’ News Quiz: May 8, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/05/08/podcasts/the-headlines/the-headlines-news-quiz-may-8-2026.html

@@ -1,3 +1,11 @@
+**‘A Historic Shift’: Farage Celebrates Strong Performance in U.K. Local Elections**\
+`In early results, Nigel Farage’s Reform U.K. party has won more than 400 council races across England.`\
+https://www.nytimes.com/2026/05/08/world/europe/reform-uk-election-results-farage.html
+
+**Pulitzer Winner Says Don't Kill Your Darlings**\
+`On a recent episode of the “Book Review” podcast, Daniel Kraus, the Pulitzer-winning author of the novel “Angel Down,” shared why the old writing advice to “kill your darlings” has never worked for him. Instead, he believes writers should follow the ideas they love most and let them grow into “incredible monsters.” Tap the link in our bio to hear the full conversation. Video by Sarah Diamond/The New York Times`\
+https://www.nytimes.com/video/podcasts/100000010891379/pulitzer-winner-says-dont-kill-your-darlings.html
+
 **‘The Headlines’ News Quiz: May 8, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/05/08/podcasts/the-headlines/the-headlines-news-quiz-may-8-2026.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/08/arts/venice-biennale-protests.html
 **We Survived M.S.G. Surveillance … with Edward Snowden’s Lawyer**\
 `Pablo sees the Knicks and tests the limits of facial recognition.`\
 https://www.nytimes.com/2026/05/08/podcasts/msg-surveillance-edward-snowdens-lawyer.html
-
-**After Months of Arguing, Taiwan Lawmakers Approve $25 Billion for U.S. Arms**\
-`With time running out, Taiwanese lawmakers approved funds for buying U.S. weapons, fearing they could lose support if they didn’t act now.`\
-https://www.nytimes.com/2026/05/08/world/asia/taiwan-trump-military-china-spending-25-billion.html
-
-**Court Decision Leaves South Africa’s President Facing Impeachment Inquiry**\
-`Judges ruled that an impeachment hearing should be held over a case involving money stolen from a couch at President Cyril Ramaphosa’s farm six years ago.`\
-https://www.nytimes.com/2026/05/08/world/africa/south-africa-president-ramaphosa-court-ruling-impeachment.html
 
