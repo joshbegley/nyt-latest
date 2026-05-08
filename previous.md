@@ -1,4 +1,20 @@
-**New Postal Service Rule Could Allow Handguns to Be Mailed**\
+**Facing Pressure, Trump Officials Reject Claims They’re Softening on Immigration**\
+`Immigration hard-liners have grown frustrated with the level of deportations and the Department of Homeland Security’s attempts, under its new secretary, to stay under the radar.`\
+https://www.nytimes.com/2026/05/08/us/politics/markwayne-mullin-immigration-dhs.html
+
+**An Artist Who Sees the Beauty in Dust**\
+`Reggie Burrows Hodges discusses Malta, Caravaggio and a painting inspired by the winds of the Sahara.`\
+https://www.nytimes.com/2026/05/08/t-magazine/reggie-burrows-hodges-favorite-artworks.html
+
+**Edith Eva Eger, Psychologist Who Barely Survived Auschwitz, Dies at 98**\
+`Her time in concentration camps brought her an understanding of humanity that helped her treat her patients.`\
+https://www.nytimes.com/2026/05/08/books/edith-eger-dead.html
+
+**Virginia’s Top Court Delivers a Major Victory for Republicans**\
+`Also, what health experts want you to know about hantavirus. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/05/08/briefing/virginia-map-trump-fda.html
+
+**Proposed Rule by Postal Service Could Allow Handguns to Be Mailed**\
 `The proposal comes after the Justice Department said this year that a century-old law banning the practice was unconstitutional. Democratic leaders are calling it “unlawful.”`\
 https://www.nytimes.com/2026/05/08/us/postal-service-handguns-mail.html
 
@@ -31,7 +47,7 @@ https://www.nytimes.com/2026/05/08/us/politics/ufo-sightings-us-government.html
 https://www.nytimes.com/2026/05/08/us/trump-fda-commissioner-makary.html
 
 **Pentagon Releases U.F.O. Files**\
-`The Pentagon released “new, never-before-seen” U.F.O. files on Friday. The files include murky videos and still images that do not show anything definitive. The U.S. Department of War said new materials would be released on a rolling basis.`\
+`The Pentagon released “new, never-before-seen” U.F.O. files on Friday. The files include murky videos and still images that do not show anything definitive. The Defense Department said new materials would be released on a rolling basis.`\
 https://www.nytimes.com/video/science/space/100000010892319/trump-ufo-files.html
 
 **In Kristin Smart Case, Soil Suggests Human Remains Once Present in Yard**\
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/05/08/world/europe/uk-elections-local-takeaways.htm
 **There Are Ants in This Canadian Hospital. Again.**\
 `A hospital in Manitoba had to postpone a “limited number of elective surgeries” after ants appeared there for the third time since 2024.`\
 https://www.nytimes.com/2026/05/08/world/canada/canada-hospital-ants-surgeries.html
-
-**Xia De-hong, 94, Dies; Persecuted in China, She Starred in Daughter’s Memoir**\
-`“Wild Swans,” a best-selling 1991 memoir, told the story of a stoic mother holding her family together amid torture and imprisonment under Mao’s regime.`\
-https://www.nytimes.com/2026/05/08/world/asia/xia-de-hong-dead.html
-
-**Mahmoud Khalil Hurtles Toward Potential Deportation as U.S. Speeds Case**\
-`A key judicial decision in Mr. Khalil’s immigration case was expedited significantly and included the recusal of multiple judges.`\
-https://www.nytimes.com/2026/05/08/nyregion/mahmoud-khalil-deportation-case.html
-
-**In one borough on London’s outer reaches, Conservatives stave off Reform U.K.**\
-``\
-https://www.nytimes.com/live/2026/05/08/world/uk-local-elections-results/in-one-borough-on-londons-outer-reaches-conservatives-stave-off-reform-uk
-
-**Democratic Candidates and Voters Challenge Tennessee’s New Map**\
-`A lawsuit, filed in federal court, argues that the new map is unconstitutional because it was approved too close to the August primaries.`\
-https://www.nytimes.com/2026/05/08/us/tennessee-redistricting-lawsuit.html
 

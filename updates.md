@@ -1,3 +1,27 @@
+**Facing Pressure, Trump Officials Reject Claims They’re Softening on Immigration**\
+`Immigration hard-liners have grown frustrated with the level of deportations and the Department of Homeland Security’s attempts, under its new secretary, to stay under the radar.`\
+https://www.nytimes.com/2026/05/08/us/politics/markwayne-mullin-immigration-dhs.html
+
+**An Artist Who Sees the Beauty in Dust**\
+`Reggie Burrows Hodges discusses Malta, Caravaggio and a painting inspired by the winds of the Sahara.`\
+https://www.nytimes.com/2026/05/08/t-magazine/reggie-burrows-hodges-favorite-artworks.html
+
+**Edith Eva Eger, Psychologist Who Barely Survived Auschwitz, Dies at 98**\
+`Her time in concentration camps brought her an understanding of humanity that helped her treat her patients.`\
+https://www.nytimes.com/2026/05/08/books/edith-eger-dead.html
+
+**Virginia’s Top Court Delivers a Major Victory for Republicans**\
+`Also, what health experts want you to know about hantavirus. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/05/08/briefing/virginia-map-trump-fda.html
+
+**Proposed Rule by Postal Service Could Allow Handguns to Be Mailed**\
+`The proposal comes after the Justice Department said this year that a century-old law banning the practice was unconstitutional. Democratic leaders are calling it “unlawful.”`\
+https://www.nytimes.com/2026/05/08/us/postal-service-handguns-mail.html
+
+**Pentagon Releases U.F.O. Files**\
+`The Pentagon released “new, never-before-seen” U.F.O. files on Friday. The files include murky videos and still images that do not show anything definitive. The Defense Department said new materials would be released on a rolling basis.`\
+https://www.nytimes.com/video/science/space/100000010892319/trump-ufo-files.html
+
 **New Postal Service Rule Could Allow Handguns to Be Mailed**\
 `The proposal comes after the Justice Department said this year that a century-old law banning the practice was unconstitutional. Democratic leaders are calling it “unlawful.”`\
 https://www.nytimes.com/2026/05/08/us/postal-service-handguns-mail.html
