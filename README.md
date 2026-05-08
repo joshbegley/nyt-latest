@@ -1,3 +1,7 @@
+**U.F.O. Files Released by U.S. Shed Light on What the Government Knows**\
+`The Pentagon on Friday released online what it called “new, never-before-seen” files, dating back decades, related to unidentified flying objects.`\
+https://www.nytimes.com/2026/05/08/us/politics/ufo-sightings-us-government.html
+
 **Trump Plans to Fire F.D.A. Commissioner Marty Makary**\
 `Dr. Makary has been a supporter of the Make American Healthy Again Movement but made some enemies in the administration over vaping, the abortion pill and rejections of new drugs.`\
 https://www.nytimes.com/2026/05/08/us/trump-fda-commissioner-makary.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/08/world/hantavirus-mv-hondius-cruise.html
 **Festus Mogae, Botswana President Who Tackled H.I.V., Dies at 86**\
 `He led the southern African nation for a decade and embraced a flagship American aid program credited with helping to eradicate the country’s AIDS epidemic.`\
 https://www.nytimes.com/2026/05/08/world/africa/festus-mogae-dead.html
-
-**4 Takeaways From the Virginia Supreme Court Gerrymandering Decision**\
-`The ruling was a major lift to the G.O.P. efforts to build a structural advantage through redistricting.`\
-https://www.nytimes.com/2026/05/08/us/politics/virginia-redistricting-gerrymandering-takeaways.html
 
