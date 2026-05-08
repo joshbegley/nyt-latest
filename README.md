@@ -1,3 +1,7 @@
+**U.S. to Review Mexican Consulates After Right-Wing Claims Against Them**\
+`The State Department said it would review all Mexican consulates in the United States, following claims in conservative media that the consulates interfere in politics.`\
+https://www.nytimes.com/2026/05/07/us/politics/mexico-consulates-state-department.html
+
 **Trump Says Cease-Fire Intact After Trade of Attacks in Strait of Hormuz**\
 `The president dismissed Iran’s firing on U.S. vessels in the strait as a mere “trifle.”`\
 https://www.nytimes.com/2026/05/07/world/middleeast/trump-ceasefire-lincoln-memorial.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/07/world/middleeast/us-iran-trade-strikes-hormuz
 **A Question for Dealers: Show Solo Artists at Fairs or Group Exhibitions?**\
 `The decision can vary from fair to fair but sometimes solo booths can help visitors focus their attention on a single artist, rather than being overwhelmed by the art of many.`\
 https://www.nytimes.com/2026/05/07/arts/design/fairs-solo-shows-group-exhibitions.html
-
-**From France to the U.S., an Exhibition on the Luxury Ties That Bind**\
-`Dozens of French luxury houses and institutions will converge on Manhattan for the cross-cultural exhibition “Hidden Treasures: 250 Years of Franco-American Luxury Stories.”`\
-https://www.nytimes.com/2026/05/07/arts/design/france-luxury-exhibition-new-york.html
 
