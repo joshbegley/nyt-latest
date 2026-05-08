@@ -1,3 +1,7 @@
+**Starmer Takes Responsibility for Big Losses in Early U.K. Election Results**\
+`Prime Minister Keir Starmer of Britain said he took responsibility for large Labour Party losses as local election results trickled in early Friday. The right-wing populist Reform U.K. party looked set for big gains.`\
+https://www.nytimes.com/video/world/europe/100000010891270/uk-local-election-results-starmer.html
+
 **What’s at Stake in the U.K. Local Elections**\
 `The voting in England, Scotland and Wales is the biggest electoral test for Keir Starmer since he became prime minister in 2024.`\
 https://www.nytimes.com/2026/05/08/world/europe/uk-local-elections-starmer.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/08/crosswords/connections-companion-1063.html
 **Strands Sidekick No. 797**\
 `Scroll down for hints and conversation about the puzzle for Saturday, May 9, 2026.`\
 https://www.nytimes.com/2026/05/08/crosswords/strands-sidekick-797.html
-
-**Wordle Review No. 1,785**\
-`Scroll down for hints and conversation about the puzzle for Saturday, May 9, 2025.`\
-https://www.nytimes.com/2026/05/08/crosswords/wordle-review-1785.html
 
