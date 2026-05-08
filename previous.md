@@ -1,3 +1,19 @@
+****\
+``\
+https://www.nytimes.com/video/embedded/world/europe/100000010891908/08vid-swinney-embed-32878.html
+
+**El Pentágono publica archivos sobre ovnis**\
+`Los primeros archivos incluyen imágenes fijas borrosas que muestran lo que podría ser cualquier cosa. El gobierno estadounidense dijo que publicarán más de forma continua.`\
+https://www.nytimes.com/es/2026/05/08/espanol/estados-unidos/pentagono-ovnis.html
+
+**Iran Says It Seized Oil Tanker That Was Sanctioned by U.S.**\
+`A maritime tracking company said the move was likely performative, given the Chinese-owned ship has an “established history within the Iranian trade ecosystem.”`\
+https://www.nytimes.com/2026/05/08/business/iran-war-tanker-ocean-koi.html
+
+**ABC Accuses Government of Violating First Amendment**\
+`The network’s argument, made to the F.C.C., is the most aggressive posture taken yet by a television network toward the Trump administration.`\
+https://www.nytimes.com/2026/05/08/business/media/abc-fcc-first-amendment-the-view.html
+
 **Hantavirus Is Nothing Like Coronavirus, but It’s Bringing Some ‘Covid P.T.S.D.’**\
 `Experts have been quick to reassure the public after the deaths aboard the Dutch cruise ship MV Hondius, but images and turns of phrase have rekindled anxieties from Covid’s early days.`\
 https://www.nytimes.com/2026/05/08/health/hantavirus-outbreak-covid-pandemic.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/05/08/well/mind/body-dysmorphic-disorder-bdd-sympto
 **Red Lentil Soup, Forever and Always**\
 `Melissa Clark’s five-star classic, which has nearly 40,000 reviews, and more of our most popular recipes from the week.`\
 https://www.nytimes.com/2026/05/08/dining/red-lentil-soup-forever-and-always.html
-
-**Scotland’s Pro-Independence Party has Benefited From Labour’s Struggles**\
-`The unpopularity of Keir Starmer’s party since he became Britain’s prime minister has helped boost the Scottish National Party.`\
-https://www.nytimes.com/2026/05/08/world/europe/scotland-election-vote-snp-labour-uk.html
-
-**Utah Second Congressional District 2026: Latest Polls**\
-`Track the latest polls in Utah's 2nd Congressional District.`\
-https://www.nytimes.com/interactive/polls/utah-us-house-2-polls-2026.html
-
-**Utah First Congressional District 2026: Latest Polls**\
-`Track the latest polls in Utah's 1st Congressional District.`\
-https://www.nytimes.com/interactive/polls/utah-us-house-1-polls-2026.html
-
-**If Starmer is badly weakened, who could challenge him for Britain’s top job?**\
-``\
-https://www.nytimes.com/live/2026/05/08/world/uk-local-elections-results/if-starmer-is-badly-weakened-who-could-challenge-him-for-britains-top-job
 

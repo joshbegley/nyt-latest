@@ -1,3 +1,19 @@
+****\
+``\
+https://www.nytimes.com/video/embedded/world/europe/100000010891908/08vid-swinney-embed-32878.html
+
+**El Pentágono publica archivos sobre ovnis**\
+`Los primeros archivos incluyen imágenes fijas borrosas que muestran lo que podría ser cualquier cosa. El gobierno estadounidense dijo que publicarán más de forma continua.`\
+https://www.nytimes.com/es/2026/05/08/espanol/estados-unidos/pentagono-ovnis.html
+
+**Iran Says It Seized Oil Tanker That Was Sanctioned by U.S.**\
+`A maritime tracking company said the move was likely performative, given the Chinese-owned ship has an “established history within the Iranian trade ecosystem.”`\
+https://www.nytimes.com/2026/05/08/business/iran-war-tanker-ocean-koi.html
+
+**ABC Accuses Government of Violating First Amendment**\
+`The network’s argument, made to the F.C.C., is the most aggressive posture taken yet by a television network toward the Trump administration.`\
+https://www.nytimes.com/2026/05/08/business/media/abc-fcc-first-amendment-the-view.html
+
 **Hantavirus Is Nothing Like Coronavirus, but It’s Bringing Some ‘Covid P.T.S.D.’**\
 `Experts have been quick to reassure the public after the deaths aboard the Dutch cruise ship MV Hondius, but images and turns of phrase have rekindled anxieties from Covid’s early days.`\
 https://www.nytimes.com/2026/05/08/health/hantavirus-outbreak-covid-pandemic.html
