@@ -1,3 +1,7 @@
+**3 Hikers Dead and Several Missing After Volcano Erupts in Indonesia**\
+`The Indonesian authorities reported the deaths after Mount Dukono erupted on Friday morning. Rescue workers are trying to evacuate climbers.`\
+https://www.nytimes.com/2026/05/08/world/asia/indonesia-volcano-eruption-dukono-hikers.html
+
 **Late Night Recaps Rubio’s Peacemaking Papal Visit**\
 `Jimmy Fallon joked that President Trump and Pope Leo are putting Marco Rubio, who is Catholic, “in the middle and seeing which parent he goes to.”`\
 https://www.nytimes.com/2026/05/08/arts/television/late-night-rubio-pope.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/08/style/adam-mena-jesse-stowell-wedding.html
 **She Had Seen Her in Photos. Then They Met in Real Life.**\
 `Nandika Chatterjee had heard about Abigail Braggins from a roommate and thought she was “cute.” A wave in Little Italy sealed their fate.`\
 https://www.nytimes.com/2026/05/08/style/nandika-chatterjee-abigail-braggins-wedding.html
-
-**After a Secret Was Revealed, Their First Wedding Was Canceled**\
-`“Everybody deserves a second chance,” said Negarin Sadr of Matt Sornson ahead of their “Persian winter wonderland” wedding in Switzerland. (“But not a third chance.”)`\
-https://www.nytimes.com/2026/05/08/style/negarin-sadr-matt-sornson-canceled-wedding-redemption.html
 
