@@ -1,3 +1,15 @@
+**New Postal Service Rule Could Allow Handguns to Be Mailed**\
+`The proposal comes after the Justice Department said this year that a century-old law banning the practice was unconstitutional. Democratic leaders are calling it “unlawful.”`\
+https://www.nytimes.com/2026/05/08/us/postal-service-handguns-mail.html
+
+**What Our Reporter Saw in Iowa During Vance’s Splashy, 2028-Coded Trip**\
+`The vice president dropped into the state to stump for a vulnerable House Republican and, maybe, lay a little groundwork for a potential presidential run.`\
+https://www.nytimes.com/2026/05/08/us/politics/jd-vance-iowa-2028.html
+
+**Alex Zanardi, Racer Who Made Daring Comeback After Crash, Dies at 59**\
+`After losing both legs, the Italian champion persevered in auto racing. He also became a hand-cycling marathoner and Paralympian.`\
+https://www.nytimes.com/2026/05/08/sports/alex-zanardi-dead.html
+
 **Lawsuit Accuses Lucky Strike of Building a Bowling Monopoly**\
 `The suit, filed by bowlers from several states, accuses Lucky Strike Entertainment of driving up prices and diminishing customers’ experiences across the country.`\
 https://www.nytimes.com/2026/05/08/business/bowling-lucky-strike-lawsuit.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/live/2026/05/08/world/uk-local-elections-results/in-one-
 **Democratic Candidates and Voters Challenge Tennessee’s New Map**\
 `A lawsuit, filed in federal court, argues that the new map is unconstitutional because it was approved too close to the August primaries.`\
 https://www.nytimes.com/2026/05/08/us/tennessee-redistricting-lawsuit.html
-
-**What to Do for the Elderly? Stop Badgering Them!**\
-`Readers respond to an essay about old people preparing (or not) for the end. Also: Antisemitism online; Trump the destroyer; two types of dreaming.`\
-https://www.nytimes.com/2026/05/08/opinion/old-age.html
-
-**Flashback: Your Weekly History Quiz, May 9, 2026**\
-`Can you sort 8 historical events?`\
-https://www.nytimes.com/interactive/2026/05/08/upshot/flashback.html
-
-**What to know about the report.**\
-``\
-https://www.nytimes.com/live/2026/05/08/business/jobs-report-economy/what-to-know-about-the-report
 
