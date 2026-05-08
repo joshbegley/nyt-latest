@@ -1,3 +1,7 @@
+**Mette Frederiksen Fails to Form Governing Coalition in Denmark**\
+`King Frederik X has appointed a right-leaning politician to try to form the next government.`\
+https://www.nytimes.com/2026/05/08/world/europe/denmark-frederiksen-right-wing-government.html
+
 **U.S. Targets Iran’s Missile and Drone Program With Sanctions**\
 `The new measures are focused on Chinese companies that supply Iran’s military with materials to make drones.`\
 https://www.nytimes.com/2026/05/08/business/trump-sanctions-iran-china.html
