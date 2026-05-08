@@ -1,3 +1,7 @@
+**Trump Says Cease-Fire Intact After Trade of Attacks in Strait of Hormuz**\
+`The president dismissed Iran’s firing on U.S. vessels in the strait as a mere “trifle.”`\
+https://www.nytimes.com/2026/05/07/world/middleeast/trump-ceasefire-lincoln-memorial.html
+
 **This Pulitzer-Winning Novel Traps You in One Sentence Forever**\
 `The Pulitzer winner Daniel Kraus says his novel “Angel Down,” set in France during World War I, is designed to trap readers inside it forever. On a recent episode of the “Book Review” podcast, Kraus explains why he wrote the book as one continuous sentence and how the structure reflects the endless cycle of violence at the center of the story. Tap the link in our bio to hear the full conversation.`\
 https://www.nytimes.com/video/podcasts/100000010890386/this-pulitzer-winning-novel-traps-you-in-one-sentence-forever.html
