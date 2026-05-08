@@ -1,3 +1,7 @@
+**Two Men Are Convicted of Spying for China in Britain**\
+`The men were arrested in 2024, accused of surveilling dissidents from Hong Kong in Britain. The case sent a chill through pro-democracy protesters who have fled the territory.`\
+https://www.nytimes.com/2026/05/08/world/europe/uk-hong-kong-china-spying.html
+
 **You May Be Owed a Tax Refund From the Covid Era**\
 `A court ruling found that the I.R.S. shouldn’t have charged penalties and interest during the pandemic. But the government may appeal the decision.`\
 https://www.nytimes.com/2026/05/08/your-money/tax-refund-penalties-pandemic.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/08/podcasts/the-daily/michael-jackson-film.html
 **Can You Sneak Chocolate Chips From the Pantry?**\
 `A ruling on a dispute over purloined baking ingredients.`\
 https://www.nytimes.com/interactive/2026/05/08/magazine/chocolate-chips-hodgman-quiz.html
-
-**Trump Calls Iran Strikes a ‘Trifle,’ and the Latest on the Hantavirus Outbreak**\
-`Plus, the Friday news quiz.`\
-https://www.nytimes.com/2026/05/08/podcasts/the-headlines/trump-iran-strikes-hantavirus-outbreak.html
 
