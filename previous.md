@@ -1,3 +1,7 @@
+**EE. UU. revisará los consulados mexicanos tras reportes de la derecha**\
+`El Departamento de Estado declinó dar detalles sobre lo que implicaría esa revisión, pero dijo que podría conducir al cierre de algunos consulados.`\
+https://www.nytimes.com/es/2026/05/08/espanol/consulados-mexicanos-estados-unidos.html
+
 **She Tried to Help Schools Build Healthier Playgrounds**\
 `Kirsten Beyer was assessing the benefits of improving school playgrounds in Milwaukee. Then her E.P.A. grant was canceled.`\
 https://www.nytimes.com/2026/05/08/science/school-playgrounds-environment.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/live/2026/05/08/business/jobs-report-economy/with-fuel-c
 **What to know about the report.**\
 ``\
 https://www.nytimes.com/live/2026/05/08/business/jobs-report-economy/economy-jobs-report
-
-**8 Pavilions That Have the Venice Biennale Buzzing**\
-`A doll-focused show, a contemplative garden, a sizzling hothouse: It’s all to see at the world’s top contemporary art event.`\
-https://www.nytimes.com/2026/05/08/arts/venice-biennale-popular-pavilions.html
 

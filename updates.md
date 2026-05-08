@@ -1,3 +1,7 @@
+**EE. UU. revisará los consulados mexicanos tras reportes de la derecha**\
+`El Departamento de Estado declinó dar detalles sobre lo que implicaría esa revisión, pero dijo que podría conducir al cierre de algunos consulados.`\
+https://www.nytimes.com/es/2026/05/08/espanol/consulados-mexicanos-estados-unidos.html
+
 **Fed Turns Focus to Inflation as Job Market Stabilizes**\
 `April’s report showed employers added more jobs than expected, supporting the central bank’s view that it can afford to hold interest rates steady.`\
 https://www.nytimes.com/2026/05/08/business/economy/jobs-report-inflation-federal-reserve.html
