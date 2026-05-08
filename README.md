@@ -1,3 +1,7 @@
+**A Large Oil Slick Is Detected Off a Key Iranian Oil Depot**\
+`The slick, captured in satellite images near Kharg Island in the Persian Gulf, has raised concerns about the condition of Iran’s oil infrastructure.`\
+https://www.nytimes.com/2026/05/08/climate/iran-kharg-oil-spill-hormuz.html
+
 **Why Wasn’t Beyoncé on Our ‘Greatest Songwriters’ List?**\
 `Wesley Morris is joined by the “Popcast” hosts Jon Caramanica and Joe Coscarelli and the Times Magazine editor Sasha Weiss to reflect on the making of the “Greatest Songwriters” list.`\
 https://www.nytimes.com/video/podcasts/100000010883839/why-wasnt-beyonce-on-our-greatest-songwriters-list.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/embedded/world/europe/100000010891908/08vid-swinne
 **El Pentágono publica archivos sobre ovnis**\
 `Los primeros archivos incluyen imágenes fijas borrosas que muestran lo que podría ser cualquier cosa. El gobierno estadounidense dijo que publicarán más de forma continua.`\
 https://www.nytimes.com/es/2026/05/08/espanol/estados-unidos/pentagono-ovnis.html
-
-**Iran Says It Seized Oil Tanker Listed by U.S. as Sanctions Violator**\
-`A maritime tracking company said the move was likely performative, given the Chinese-owned ship has an “established history within the Iranian trade ecosystem.”`\
-https://www.nytimes.com/2026/05/08/business/iran-war-tanker-ocean-koi.html
 

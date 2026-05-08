@@ -1,3 +1,11 @@
+**Why Wasn’t Beyoncé on Our ‘Greatest Songwriters’ List?**\
+`Wesley Morris is joined by the “Popcast” hosts Jon Caramanica and Joe Coscarelli and the Times Magazine editor Sasha Weiss to reflect on the making of the “Greatest Songwriters” list.`\
+https://www.nytimes.com/video/podcasts/100000010883839/why-wasnt-beyonce-on-our-greatest-songwriters-list.html
+
+**Trump Administration Targets 12 Immigrants to Revoke Citizenship**\
+`The Americans are accused of fraud or other misdeeds that can qualify them to lose their citizenship, but denaturalization has been done rarely in the past.`\
+https://www.nytimes.com/2026/05/08/us/politics/trump-immigrants-citizenship.html
+
 **Mi padre solía escribirle al gobierno cubano. Ahora me toca a mí**\
 `Señor presidente, por favor, no tome esta carta como una defensa de la política de EE. UU. hacia Cuba, y mucho menos como un llamado a la intervención militar estadounidense.`\
 https://www.nytimes.com/es/2026/05/08/espanol/opinion/cuba-diaz-canel-estados-unidos.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/es/2026/05/08/espanol/estados-unidos/pentagono-ovnis.htm
 **Iran Says It Seized Oil Tanker Listed by U.S. as Sanctions Violator**\
 `A maritime tracking company said the move was likely performative, given the Chinese-owned ship has an “established history within the Iranian trade ecosystem.”`\
 https://www.nytimes.com/2026/05/08/business/iran-war-tanker-ocean-koi.html
-
-**ABC Accuses Government of Violating First Amendment**\
-`The network’s argument, made to the F.C.C., is the most aggressive posture taken yet by a television network toward the Trump administration.`\
-https://www.nytimes.com/2026/05/08/business/media/abc-fcc-first-amendment-the-view.html
-
-**Hantavirus Is Nothing Like Coronavirus, but It’s Bringing Some ‘Covid P.T.S.D.’**\
-`Experts have been quick to reassure the public after the deaths aboard the Dutch cruise ship MV Hondius, but images and turns of phrase have rekindled anxieties from Covid’s early days.`\
-https://www.nytimes.com/2026/05/08/health/hantavirus-outbreak-covid-pandemic.html
 

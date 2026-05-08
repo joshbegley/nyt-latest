@@ -1,3 +1,11 @@
+**Why Wasn’t Beyoncé on Our ‘Greatest Songwriters’ List?**\
+`Wesley Morris is joined by the “Popcast” hosts Jon Caramanica and Joe Coscarelli and the Times Magazine editor Sasha Weiss to reflect on the making of the “Greatest Songwriters” list.`\
+https://www.nytimes.com/video/podcasts/100000010883839/why-wasnt-beyonce-on-our-greatest-songwriters-list.html
+
+**Trump Administration Targets 12 Immigrants to Revoke Citizenship**\
+`The Americans are accused of fraud or other misdeeds that can qualify them to lose their citizenship, but denaturalization has been done rarely in the past.`\
+https://www.nytimes.com/2026/05/08/us/politics/trump-immigrants-citizenship.html
+
 **Mi padre solía escribirle al gobierno cubano. Ahora me toca a mí**\
 `Señor presidente, por favor, no tome esta carta como una defensa de la política de EE. UU. hacia Cuba, y mucho menos como un llamado a la intervención militar estadounidense.`\
 https://www.nytimes.com/es/2026/05/08/espanol/opinion/cuba-diaz-canel-estados-unidos.html
