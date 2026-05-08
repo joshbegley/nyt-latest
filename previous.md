@@ -1,3 +1,15 @@
+**Mapping the Knockout Stage: Where Will Your Team Play in the World Cup?**\
+`What city is your team most likely to play in during the elimination phase?`\
+https://www.nytimes.com/interactive/2026/05/08/upshot/world-cup-odds.html
+
+**Trump’s Latest Tariff Setback Looms Over China Talks**\
+`For the president, a major legal defeat could undercut his leverage as he prepares to head to Beijing next week for high-stakes trade negotiations.`\
+https://www.nytimes.com/2026/05/08/business/trump-tariffs-china-talks.html
+
+**Why Everyone Was So Mad About the Met Gala**\
+`Plus, a remembrance of Ted Turner and a tank top quandary.`\
+https://www.nytimes.com/2026/05/08/style/why-everyone-was-so-mad-about-the-met-gala.html
+
 ****\
 ``\
 https://www.nytimes.com/video/embedded/world/europe/100000010891908/08vid-swinney-embed-32878.html
@@ -22,7 +34,7 @@ https://www.nytimes.com/2026/05/08/health/hantavirus-outbreak-covid-pandemic.htm
 `A voting system created when two parties dominated is being tested by the rise of newer competitors.`\
 https://www.nytimes.com/2026/05/08/world/europe/uk-fragmented-vote-multiparty.html
 
-**Purported Epstein Suicide Note Has Echoes of His Other Messages**\
+**Compare the Purported Epstein Suicide Note to His Other Writings**\
 `The New York Times has not authenticated the note. But some of its phrases are similar or identical to ones Jeffrey Epstein used in emails and another handwritten letter.`\
 https://www.nytimes.com/2026/05/08/nyregion/epstein-suicide-note-phrases.html
 
@@ -65,16 +77,4 @@ https://www.nytimes.com/interactive/polls/colorado-us-house-8-polls-2026.html
 **Colorado Third Congressional District 2026: Latest Polls**\
 `Track the latest polls in Colorado's 3rd Congressional District.`\
 https://www.nytimes.com/interactive/polls/colorado-us-house-3-polls-2026.html
-
-**Five Science Fiction Movies to Stream Now**\
-`Among this month’s picks: a zombie road movie, an alien action movie and Gerard Butler in a postapocalyptic sequel.`\
-https://www.nytimes.com/2026/05/08/movies/greenland-2-science-fiction-movies-streaming.html
-
-**What Is Body Dysmorphic Disorder?**\
-`It may look like vanity, but it’s a debilitating mental health condition.`\
-https://www.nytimes.com/2026/05/08/well/mind/body-dysmorphic-disorder-bdd-symptoms.html
-
-**Red Lentil Soup, Forever and Always**\
-`Melissa Clark’s five-star classic, which has nearly 40,000 reviews, and more of our most popular recipes from the week.`\
-https://www.nytimes.com/2026/05/08/dining/red-lentil-soup-forever-and-always.html
 

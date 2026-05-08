@@ -1,3 +1,19 @@
+**Mapping the Knockout Stage: Where Will Your Team Play in the World Cup?**\
+`What city is your team most likely to play in during the elimination phase?`\
+https://www.nytimes.com/interactive/2026/05/08/upshot/world-cup-odds.html
+
+**Trump’s Latest Tariff Setback Looms Over China Talks**\
+`For the president, a major legal defeat could undercut his leverage as he prepares to head to Beijing next week for high-stakes trade negotiations.`\
+https://www.nytimes.com/2026/05/08/business/trump-tariffs-china-talks.html
+
+**Why Everyone Was So Mad About the Met Gala**\
+`Plus, a remembrance of Ted Turner and a tank top quandary.`\
+https://www.nytimes.com/2026/05/08/style/why-everyone-was-so-mad-about-the-met-gala.html
+
+**Compare the Purported Epstein Suicide Note to His Other Writings**\
+`The New York Times has not authenticated the note. But some of its phrases are similar or identical to ones Jeffrey Epstein used in emails and another handwritten letter.`\
+https://www.nytimes.com/2026/05/08/nyregion/epstein-suicide-note-phrases.html
+
 ****\
 ``\
 https://www.nytimes.com/video/embedded/world/europe/100000010891908/08vid-swinney-embed-32878.html
