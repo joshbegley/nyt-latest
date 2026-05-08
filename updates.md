@@ -1,3 +1,23 @@
+**Pentagon Releases Files on U.F.O.s**\
+`The initial files are murky images that show what could be anything. The government said more would be released on a rolling basis.`\
+https://www.nytimes.com/2026/05/08/us/politics/pentagon-ufo-files.html
+
+**Even in Labour-Loyal Wales, Voters Are Looking to Other Parties**\
+`Opinion polls before the election suggested that the right-wing anti-immigration Reform U.K. party and the center-left Plaid Cymru would battle for the top spot in Wales.`\
+https://www.nytimes.com/2026/05/08/world/europe/wales-parliament-uk-election-plaid-cymru-labour.html
+
+**A Paul Klee Angel Finally Lands in New York**\
+`“Angelus Novus,” an artwork with a fascinating back story, including most recently a wartime delay, is a late addition to an already impressive Klee survey at the Jewish Museum.`\
+https://www.nytimes.com/2026/05/08/arts/design/a-paul-klee-angel-finally-lands-in-new-york.html
+
+**The Green Party gained ground in some of Labour’s London strongholds.**\
+``\
+https://www.nytimes.com/live/2026/05/08/world/uk-local-elections-results/the-green-party-gained-ground-in-some-of-labours-london-strongholds
+
+**Fed Officials Weigh Stable Jobs Backdrop Against Rising Inflation Risks**\
+`April’s report showed employers added more jobs than expected, supporting the central bank’s view that it can afford to hold interest rates steady.`\
+https://www.nytimes.com/2026/05/08/business/economy/jobs-report-inflation-federal-reserve.html
+
 **Two Men Are Convicted of Spying for China in Britain**\
 `The men were arrested in 2024, accused of surveilling dissidents from Hong Kong in Britain. The case sent a chill through pro-democracy protesters who have fled the territory.`\
 https://www.nytimes.com/2026/05/08/world/europe/uk-hong-kong-china-spying.html
