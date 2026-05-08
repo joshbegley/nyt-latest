@@ -1,3 +1,7 @@
+**Scotland’s Pro-Independence Party has Benefited From Labour’s Struggles**\
+`The unpopularity of Keir Starmer’s party since he became Britain’s prime minister has helped boost the Scottish National Party.`\
+https://www.nytimes.com/2026/05/08/world/europe/scotland-election-vote-snp-labour-uk.html
+
 **Utah Second Congressional District 2026: Latest Polls**\
 `Track the latest polls in Utah's 2nd Congressional District.`\
 https://www.nytimes.com/interactive/polls/utah-us-house-2-polls-2026.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/08/world/europe/uk-local-elections-starmer.html
 **3 Hikers Dead After Indonesian Volcano Eruption**\
 `Three hikers were killed after a volcano in Indonesia erupted, officials said. The authorities said hikers had been banned from climbing Mount Dukono since last month.`\
 https://www.nytimes.com/video/world/asia/100000010891393/indonesia-volcano-eruption-deaths.html
-
-**‘Terminator’ Fears and Internal Dysfunction: Inside the OpenAI Trial**\
-`Elon Musk’s court battle against OpenAI has laid bare tensions between the start-up's leaders and raised questions about the billionaire’s motivations.`\
-https://www.nytimes.com/2026/05/08/business/dealbook/musk-openai-trial.html
 

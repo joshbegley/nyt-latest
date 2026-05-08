@@ -1,3 +1,7 @@
+**Scotland’s Pro-Independence Party has Benefited From Labour’s Struggles**\
+`The unpopularity of Keir Starmer’s party since he became Britain’s prime minister has helped boost the Scottish National Party.`\
+https://www.nytimes.com/2026/05/08/world/europe/scotland-election-vote-snp-labour-uk.html
+
 **In Huge Blow to Democrats, Virginia Court Strikes Down House Map**\
 `The decision is a major victory for Republicans, wiping away a measure approved by voters to allow Democrats to gain as many as four House seats in the midterms.`\
 https://www.nytimes.com/2026/05/08/us/politics/virginia-redistricting-supreme-court.html
