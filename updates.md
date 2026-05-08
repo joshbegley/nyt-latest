@@ -1,3 +1,23 @@
+**Hantavirus Is Nothing Like Coronavirus, but It’s Bringing Some ‘Covid P.T.S.D.’**\
+`Experts have been quick to reassure the public after the deaths aboard the Dutch cruise ship MV Hondius, but images and turns of phrase have rekindled anxieties from Covid’s early days.`\
+https://www.nytimes.com/2026/05/08/health/hantavirus-outbreak-covid-pandemic.html
+
+**Britain Has Entered a New Era of Multiparty Politics. It’s Messy.**\
+`A voting system created when two parties dominated is being tested by the rise of newer competitors.`\
+https://www.nytimes.com/2026/05/08/world/europe/uk-fragmented-vote-multiparty.html
+
+**Purported Epstein Suicide Note Has Echoes of His Other Messages**\
+`The New York Times has not authenticated the note. But some of its phrases are similar or identical to ones Jeffrey Epstein used in emails and another handwritten letter.`\
+https://www.nytimes.com/2026/05/08/nyregion/epstein-suicide-note-phrases.html
+
+**Rhode Island U.S. Senate Election 2026: Latest Polls**\
+`Track the latest polls in the Rhode Island U.S. Senate election.`\
+https://www.nytimes.com/interactive/polls/rhode-island-us-senate-election-polls-2026.html
+
+**Wait, My Lamp Wasn’t Even Italian?**\
+`On the hunt for a light that only looked like it came from the Memphis Group.`\
+https://www.nytimes.com/2026/05/08/t-magazine/memphis-style-lamp-lighting.html
+
 **Today, In Short**\
 `Hantavirus. The W.N.B.A. And are you a good gift giver?`\
 https://www.nytimes.com/2026/05/08/briefing/today-in-short.html

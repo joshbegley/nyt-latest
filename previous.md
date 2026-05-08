@@ -1,3 +1,23 @@
+**Hantavirus Is Nothing Like Coronavirus, but It’s Bringing Some ‘Covid P.T.S.D.’**\
+`Experts have been quick to reassure the public after the deaths aboard the Dutch cruise ship MV Hondius, but images and turns of phrase have rekindled anxieties from Covid’s early days.`\
+https://www.nytimes.com/2026/05/08/health/hantavirus-outbreak-covid-pandemic.html
+
+**Britain Has Entered a New Era of Multiparty Politics. It’s Messy.**\
+`A voting system created when two parties dominated is being tested by the rise of newer competitors.`\
+https://www.nytimes.com/2026/05/08/world/europe/uk-fragmented-vote-multiparty.html
+
+**Purported Epstein Suicide Note Has Echoes of His Other Messages**\
+`The New York Times has not authenticated the note. But some of its phrases are similar or identical to ones Jeffrey Epstein used in emails and another handwritten letter.`\
+https://www.nytimes.com/2026/05/08/nyregion/epstein-suicide-note-phrases.html
+
+**Rhode Island U.S. Senate Election 2026: Latest Polls**\
+`Track the latest polls in the Rhode Island U.S. Senate election.`\
+https://www.nytimes.com/interactive/polls/rhode-island-us-senate-election-polls-2026.html
+
+**Wait, My Lamp Wasn’t Even Italian?**\
+`On the hunt for a light that only looked like it came from the Memphis Group.`\
+https://www.nytimes.com/2026/05/08/t-magazine/memphis-style-lamp-lighting.html
+
 **Today, In Short**\
 `Hantavirus. The W.N.B.A. And are you a good gift giver?`\
 https://www.nytimes.com/2026/05/08/briefing/today-in-short.html
@@ -57,24 +77,4 @@ https://www.nytimes.com/interactive/polls/utah-us-house-1-polls-2026.html
 **If Starmer is badly weakened, who could challenge him for Britain’s top job?**\
 ``\
 https://www.nytimes.com/live/2026/05/08/world/uk-local-elections-results/if-starmer-is-badly-weakened-who-could-challenge-him-for-britains-top-job
-
-**Why Wasn’t Billy Joel on Our ‘Greatest Songwriters’ List?**\
-`Wesley Morris is joined by the “Popcast” hosts Jon Caramanica and Joe Coscarelli and the Times Magazine editor Sasha Weiss to reflect on the making of the “Greatest Songwriters” list.`\
-https://www.nytimes.com/video/podcasts/100000010883766/why-wasnt-billy-joel-on-our-greatest-songwriters-list.html
-
-**In Huge Blow to Democrats, Virginia Court Strikes Down House Map**\
-`The decision is a major victory for Republicans, wiping away a measure approved by voters to allow Democrats to gain as many as four House seats in the midterms.`\
-https://www.nytimes.com/2026/05/08/us/politics/virginia-redistricting-supreme-court.html
-
-**South Carolina First Congressional District 2026: Latest Polls**\
-`Track the latest polls in South Carolina's 1st Congressional District.`\
-https://www.nytimes.com/interactive/polls/south-carolina-us-house-1-polls-2026.html
-
-**Meta’s Embrace of A.I. Is Making Its Employees Miserable**\
-`As it adapts to the artificial intelligence era, the company is pushing many of its 78,000 workers to use the technology, and preparing to lay some of them off.`\
-https://www.nytimes.com/2026/05/08/technology/meta-ai-employees-miserable.html
-
-**EE. UU. revisará los consulados mexicanos tras reportes de la derecha**\
-`El Departamento de Estado declinó dar detalles sobre lo que implicaría esa revisión, pero dijo que podría conducir al cierre de algunos consulados.`\
-https://www.nytimes.com/es/2026/05/08/espanol/consulados-mexicanos-estados-unidos.html
 
