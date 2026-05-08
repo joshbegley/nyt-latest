@@ -1,3 +1,7 @@
+**Late Night Recaps Rubio’s Peacemaking Papal Visit**\
+`Jimmy Fallon joked that President Trump and Pope Leo are putting Marco Rubio, who is Catholic, “in the middle and seeing which parent he goes to.”`\
+https://www.nytimes.com/2026/05/08/arts/television/late-night-rubio-pope.html
+
 **Palabra del día: ‘mitigate’**\
 `Esta palabra ha aparecido en 350 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
 https://www.nytimes.com/es/2026/05/08/espanol/que-significa-mitigate.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/08/style/nandika-chatterjee-abigail-braggins-wed
 **After a Secret Was Revealed, Their First Wedding Was Canceled**\
 `“Everybody deserves a second chance,” said Negarin Sadr of Matt Sornson ahead of their “Persian winter wonderland” wedding in Switzerland. (“But not a third chance.”)`\
 https://www.nytimes.com/2026/05/08/style/negarin-sadr-matt-sornson-canceled-wedding-redemption.html
-
-**How Energy Prices Are Driving Demand for Solar Panels and Heat Pumps**\
-`Already having faced an energy crisis five years ago, more European consumers believe they are “one Trump-ignited war away” from crushing costs.`\
-https://www.nytimes.com/2026/05/08/business/europe-solar-panels-iran-war.html
 
