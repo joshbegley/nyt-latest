@@ -1,3 +1,7 @@
+**Trump Reversed Hormuz Plan After Saudis Denied Airspace Access**\
+`Saudi Arabia’s refusal of support suggests that President Trump’s unpredictable approach to Iran has strained ties with one of his closest allies in the Middle East.`\
+https://www.nytimes.com/2026/05/07/us/politics/trump-strait-of-hormuz-saudis.html
+
 **Trump’s New Foreign Aid Model Sparks Feud With Zambia**\
 `The tussle put a spotlight on the administration’s attempt to replace the United States Agency for International Development with a new, “America First” alternative.`\
 https://www.nytimes.com/2026/05/07/world/africa/trump-zambia-usaid-minerals-negotiations.html

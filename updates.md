@@ -1,3 +1,15 @@
+**Trump’s New Foreign Aid Model Sparks Feud With Zambia**\
+`The tussle put a spotlight on the administration’s attempt to replace the United States Agency for International Development with a new, “America First” alternative.`\
+https://www.nytimes.com/2026/05/07/world/africa/trump-zambia-usaid-minerals-negotiations.html
+
+**DOGE’s Termination of Humanities Grants Is Ruled Unconstitutional**\
+`A lawsuit against the National Endowment for the Humanities drew wide attention for revealing how DOGE had used ChatGPT to cancel grants.`\
+https://www.nytimes.com/2026/05/07/arts/neh-grants-lawsuit-doge.html
+
+**Here’s How Freaked Out You Should Be About the Hantavirus Cruise Ship**\
+`An expert weighs in.`\
+https://www.nytimes.com/2026/05/07/opinion/hantavirus-cruise-ship-virus-outbreak.html
+
 **Fetterman Says He Has ‘No Plans’ to Leave the Democratic Party**\
 `In an opinion piece in The Washington Post, the Pennsylvania senator wrote that while he was “at odds” with the party’s approach to some issues, his values had not changed.`\
 https://www.nytimes.com/2026/05/07/us/politics/john-fetterman-democratic-party.html
