@@ -1,3 +1,7 @@
+**As Officials Track Cruise Passengers, Experts Stress Hantavirus Risk Remains Low**\
+`Health officials are closely monitoring those who were exposed for symptoms of the virus, which does not spread easily between humans.`\
+https://www.nytimes.com/2026/05/08/well/hantavirus-cruise-ship-outbreak-cases.html
+
 **Compare the Purported Epstein Suicide Note to His Writings**\
 `The New York Times has not authenticated the note. But some of its phrases are similar or identical to ones Jeffrey Epstein used in emails and another handwritten letter.`\
 https://www.nytimes.com/2026/05/08/nyregion/epstein-suicide-note-phrases.html
