@@ -34,7 +34,7 @@ https://www.nytimes.com/live/2026/05/08/business/jobs-report-economy/jobs-report
 `White House aides have sounded bullish on the jobs report, even as warning signs mount amid the war with Iran.`\
 https://www.nytimes.com/live/2026/05/08/business/jobs-report-economy/with-fuel-costs-soaring-trump-insists-the-economy-is-strong
 
-**What to watch in the report.**\
+**What to know about the report.**\
 ``\
 https://www.nytimes.com/live/2026/05/08/business/jobs-report-economy/economy-jobs-report
 
