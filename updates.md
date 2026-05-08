@@ -1,3 +1,19 @@
+**There Are Ants in This Canadian Hospital. Again.**\
+`A hospital in Manitoba had to postpone a “limited number of elective surgeries” after ants appeared there for the third time since 2024.`\
+https://www.nytimes.com/2026/05/08/world/canada/canada-hospital-ants-surgeries.html
+
+**Xia De-hong, 94, Dies; Persecuted in China, She Starred in Daughter’s Memoir**\
+`“Wild Swans,” a best-selling 1991 memoir, told the story of a stoic mother holding her family together amid torture and imprisonment under Mao’s regime.`\
+https://www.nytimes.com/2026/05/08/world/asia/xia-de-hong-dead.html
+
+**Mahmoud Khalil Hurtles Toward Potential Deportation as U.S. Speeds Case**\
+`A key judicial decision in Mr. Khalil’s immigration case was expedited significantly and included the recusal of multiple judges.`\
+https://www.nytimes.com/2026/05/08/nyregion/mahmoud-khalil-deportation-case.html
+
+**In one borough on London’s outer reaches, Conservatives stave off Reform U.K.**\
+``\
+https://www.nytimes.com/live/2026/05/08/world/uk-local-elections-results/in-one-borough-on-londons-outer-reaches-conservatives-stave-off-reform-uk
+
 **Democratic Candidates and Voters Challenge Tennessee’s New Map**\
 `A lawsuit, filed in federal court, argues that the new map is unconstitutional because it was approved too close to the August primaries.`\
 https://www.nytimes.com/2026/05/08/us/tennessee-redistricting-lawsuit.html
