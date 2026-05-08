@@ -1,3 +1,19 @@
+**¿Qué es el hantavirus?**\
+`Este virus, transmitido por roedores, está relacionado con un brote mortal en un crucero que navegaba por el océano Atlántico.`\
+https://www.nytimes.com/es/2026/05/08/espanol/hantavirus-que-es.html
+
+**The Action Before the Action at the World Cup**\
+`Before the FIFA World Cup kicks off on June 11, there’s plenty to look out for as the world’s biggest soccer stars descend on North America.`\
+https://www.nytimes.com/2026/05/08/sports/soccer/world-cup-2026-warmup-games.html
+
+**4 hombres son declarados culpables del asesinato del presidente de Haití**\
+`Jovenel Moïse, de 53 años, fue asesinado a tiros en su dormitorio en julio de 2021. Su asesinato desencadenó una espiral de violencia de pandillas y caos en Haití.`\
+https://www.nytimes.com/es/2026/05/08/espanol/america-latina/culpables-asesinato-presidente-haiti.html
+
+**David Attenborough, a Voice of Nature, Turns 100**\
+`Pictures and striking scenes from the making of perhaps the world’s most celebrated naturalist.`\
+https://www.nytimes.com/2026/05/08/arts/television/david-attenborough-100-birthday.html
+
 **Rail tickets to New Jersey World Cup matches will be $105, not $150.**\
 `But fans traveling roundtrip between New York City and`\
 https://www.nytimes.com/live/2026/us/fifa-world-cup/rail-tickets-to-new-jersey-world-cup-matches-will-be-105-not-150
