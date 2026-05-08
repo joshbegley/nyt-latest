@@ -1,3 +1,7 @@
+**Four Takeaways From the U.K. Elections**\
+`Results from municipal and regional elections signaled major gains for the right-wing populist Reform U.K. and steep losses for Labour.`\
+https://www.nytimes.com/2026/05/08/world/europe/uk-elections-local-takeaways.html
+
 **There Are Ants in This Canadian Hospital. Again.**\
 `A hospital in Manitoba had to postpone a “limited number of elective surgeries” after ants appeared there for the third time since 2024.`\
 https://www.nytimes.com/2026/05/08/world/canada/canada-hospital-ants-surgeries.html

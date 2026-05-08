@@ -1,3 +1,7 @@
+**Four Takeaways From the U.K. Elections**\
+`Results from municipal and regional elections signaled major gains for the right-wing populist Reform U.K. and steep losses for Labour.`\
+https://www.nytimes.com/2026/05/08/world/europe/uk-elections-local-takeaways.html
+
 **There Are Ants in This Canadian Hospital. Again.**\
 `A hospital in Manitoba had to postpone a “limited number of elective surgeries” after ants appeared there for the third time since 2024.`\
 https://www.nytimes.com/2026/05/08/world/canada/canada-hospital-ants-surgeries.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/05/08/espanol/mundo/rusia-dia-victoria.html
 **As Officials Track Cruise Passengers, Experts Stress Hantavirus Risk Remains Low**\
 `Health officials are closely monitoring those who were exposed for symptoms of the virus, which does not spread easily between humans.`\
 https://www.nytimes.com/2026/05/08/well/hantavirus-cruise-ship-outbreak-cases.html
-
-**¿Qué es el hantavirus?**\
-`Este virus, transmitido por roedores, está relacionado con un brote mortal en un crucero que navegaba por el océano Atlántico.`\
-https://www.nytimes.com/es/2026/05/08/espanol/hantavirus-que-es.html
 
