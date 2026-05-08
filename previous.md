@@ -1,3 +1,15 @@
+**Review: At City Ballet, Tiler Peck Shows Shimmering Restraint**\
+`The star ballerina is also an accomplished choreographer. Her sophomore work for City Ballet is bigger and better than her first.`\
+https://www.nytimes.com/2026/05/08/arts/dance/review-tiler-peck-symphonie-espagnole-new-york-city-ballet.html
+
+**Greenpeace Suffers Another Blow in Court Fight With Pipeline Giant**\
+`In an unusual move, a North Dakota court said Greenpeace International shouldn’t be allowed to pursue a lawsuit in Europe, where it is based, against the company.`\
+https://www.nytimes.com/2026/05/08/climate/greenpeace-energy-transfer-dakota-access-slapp.html
+
+****\
+``\
+https://www.nytimes.com/video/embedded/world/europe/100000010891937/08vid-garbett-embed-58047.html
+
 **Mapping the Knockout Stage: Where Will Your Team Play in the World Cup?**\
 `What city is your team most likely to play in during the elimination phase?`\
 https://www.nytimes.com/interactive/2026/05/08/upshot/world-cup-odds.html
@@ -18,7 +30,7 @@ https://www.nytimes.com/video/embedded/world/europe/100000010891908/08vid-swinne
 `Los primeros archivos incluyen imágenes fijas borrosas que muestran lo que podría ser cualquier cosa. El gobierno estadounidense dijo que publicarán más de forma continua.`\
 https://www.nytimes.com/es/2026/05/08/espanol/estados-unidos/pentagono-ovnis.html
 
-**Iran Says It Seized Oil Tanker That Was Sanctioned by U.S.**\
+**Iran Says It Seized Oil Tanker Listed by U.S. as Sanctions Violator**\
 `A maritime tracking company said the move was likely performative, given the Chinese-owned ship has an “established history within the Iranian trade ecosystem.”`\
 https://www.nytimes.com/2026/05/08/business/iran-war-tanker-ocean-koi.html
 
@@ -65,16 +77,4 @@ https://www.nytimes.com/video/embedded/us/100000010891732/08vid-rubio-embeds.htm
 **Four Men Found Guilty of Haiti President’s Assassination**\
 `President Jovenel Moïse, 53, was gunned down in his bedroom in July 2021. His killing unleashed a yearslong spiral of gang violence and mayhem in Haiti.`\
 https://www.nytimes.com/2026/05/08/world/americas/haiti-president-assassination-four-men-charged.html
-
-**Colorado Fifth Congressional District 2026: Latest Polls**\
-`Track the latest polls in Colorado's 5th Congressional District.`\
-https://www.nytimes.com/interactive/2026/05/08/polls/colorado-us-house-5-polls-2026.html
-
-**Colorado Eighth Congressional District 2026: Latest Polls**\
-`Track the latest polls in Colorado's 8th Congressional District.`\
-https://www.nytimes.com/interactive/polls/colorado-us-house-8-polls-2026.html
-
-**Colorado Third Congressional District 2026: Latest Polls**\
-`Track the latest polls in Colorado's 3rd Congressional District.`\
-https://www.nytimes.com/interactive/polls/colorado-us-house-3-polls-2026.html
 

@@ -1,3 +1,19 @@
+**Review: At City Ballet, Tiler Peck Shows Shimmering Restraint**\
+`The star ballerina is also an accomplished choreographer. Her sophomore work for City Ballet is bigger and better than her first.`\
+https://www.nytimes.com/2026/05/08/arts/dance/review-tiler-peck-symphonie-espagnole-new-york-city-ballet.html
+
+**Greenpeace Suffers Another Blow in Court Fight With Pipeline Giant**\
+`In an unusual move, a North Dakota court said Greenpeace International shouldn’t be allowed to pursue a lawsuit in Europe, where it is based, against the company.`\
+https://www.nytimes.com/2026/05/08/climate/greenpeace-energy-transfer-dakota-access-slapp.html
+
+****\
+``\
+https://www.nytimes.com/video/embedded/world/europe/100000010891937/08vid-garbett-embed-58047.html
+
+**Iran Says It Seized Oil Tanker Listed by U.S. as Sanctions Violator**\
+`A maritime tracking company said the move was likely performative, given the Chinese-owned ship has an “established history within the Iranian trade ecosystem.”`\
+https://www.nytimes.com/2026/05/08/business/iran-war-tanker-ocean-koi.html
+
 **Mapping the Knockout Stage: Where Will Your Team Play in the World Cup?**\
 `What city is your team most likely to play in during the elimination phase?`\
 https://www.nytimes.com/interactive/2026/05/08/upshot/world-cup-odds.html
