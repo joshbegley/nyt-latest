@@ -22,8 +22,8 @@ https://www.nytimes.com/video/podcasts/100000010892730/the-expansiveness-of-our-
 `The police in Greenland are investigating the case of a lone man from Las Vegas who goes by Cliff. Locals said he had offered money to Greenlanders to join the United States.`\
 https://www.nytimes.com/2026/05/08/world/europe/greenland-mysterious-offer-american.html
 
-**The Next Frontier of Trump’s Assault on Free Speech**\
-`Hegseth has argued that military retirees are subject to freedom of speech restrictions. Let that sink in.`\
+**Hegseth Is Sending Us a Warning**\
+`The secretary of defense has argued that military retirees are subject to freedom of speech restrictions. Let that sink in.`\
 https://www.nytimes.com/2026/05/08/opinion/hegseth-kelly-military-free-speech.html
 
 **J.H. Prynne, Erudite and Elusive British Poet, Dies at 89**\
