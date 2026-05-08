@@ -1,3 +1,7 @@
+**She Tried to Help Schools Build Healthier Playgrounds**\
+`Kirsten Beyer was assessing the benefits of improving school playgrounds in Milwaukee. Then her E.P.A. grant was canceled.`\
+https://www.nytimes.com/2026/05/08/science/school-playgrounds-environment.html
+
 **Pentagon Releases Files on U.F.O.s**\
 `The initial files are murky images that show what could be anything. The government said more would be released on a rolling basis.`\
 https://www.nytimes.com/2026/05/08/us/politics/pentagon-ufo-files.html

@@ -62,7 +62,7 @@ https://www.nytimes.com/2026/05/08/podcasts/the-headlines/the-headlines-news-qui
 `“It seems every other day I am reading a story about a massive insider trading scandal.”`\
 https://www.nytimes.com/2026/05/08/podcasts/hardfork-prediction-markets.html
 
-**Fed Officials Weigh Stable Jobs Backdrop Against Rising Inflation Risks**\
+**Fed Turns Focus to Inflation as Job Market Stabilizes**\
 `April’s report showed employers added more jobs than expected, supporting the central bank’s view that it can afford to hold interest rates steady.`\
 https://www.nytimes.com/2026/05/08/business/economy/jobs-report-inflation-federal-reserve.html
 

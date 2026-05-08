@@ -1,3 +1,7 @@
+**She Tried to Help Schools Build Healthier Playgrounds**\
+`Kirsten Beyer was assessing the benefits of improving school playgrounds in Milwaukee. Then her E.P.A. grant was canceled.`\
+https://www.nytimes.com/2026/05/08/science/school-playgrounds-environment.html
+
 **Pentagon Releases Files on U.F.O.s**\
 `The initial files are murky images that show what could be anything. The government said more would be released on a rolling basis.`\
 https://www.nytimes.com/2026/05/08/us/politics/pentagon-ufo-files.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/live/2026/05/08/business/jobs-report-economy/economy-job
 **8 Pavilions That Have the Venice Biennale Buzzing**\
 `A doll-focused show, a contemplative garden, a sizzling hothouse: It’s all to see at the world’s top contemporary art event.`\
 https://www.nytimes.com/2026/05/08/arts/venice-biennale-popular-pavilions.html
-
-**Singled Out by Iran, U.A.E. Doubles Down on U.S. and Israeli Ties**\
-`The United Arab Emirates has borne the brunt of Iranian attacks throughout the war, hardening the government’s resolve to reassess its list of friends and foes.`\
-https://www.nytimes.com/2026/05/08/world/middleeast/uae-iran-war.html
 
