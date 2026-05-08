@@ -1,3 +1,11 @@
+**This Pulitzer-Winning Novel Traps You in One Sentence Forever**\
+`The Pulitzer winner Daniel Kraus says his novel “Angel Down,” set in France during World War I, is designed to trap readers inside it forever. On a recent episode of the “Book Review” podcast, Kraus explains why he wrote the book as one continuous sentence and how the structure reflects the endless cycle of violence at the center of the story. Tap the link in our bio to hear the full conversation.`\
+https://www.nytimes.com/video/podcasts/100000010890386/this-pulitzer-winning-novel-traps-you-in-one-sentence-forever.html
+
+**Something That’s Hatched**\
+`Rafael Musa and Geoffrey Schorkopf are back with another stellar themeless.`\
+https://www.nytimes.com/2026/05/07/crosswords/daily-puzzle-2026-05-08.html
+
 **Former Sheriff’s Deputy Found Guilty in Fatal Shooting of Ohio Man**\
 `Jason Meade had been searching for a fugitive when he shot Casey Goodson Jr. in 2020. It is rare for a law enforcement official to be convicted in a killing that occurs on the job.`\
 https://www.nytimes.com/2026/05/07/us/ohio-fatal-shooting-jason-meade-casey-goodson.html
