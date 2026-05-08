@@ -1,3 +1,7 @@
+**Fed Turns Focus to Inflation as Job Market Stabilizes**\
+`April’s report showed employers added more jobs than expected, supporting the central bank’s view that it can afford to hold interest rates steady.`\
+https://www.nytimes.com/2026/05/08/business/economy/jobs-report-inflation-federal-reserve.html
+
 **She Tried to Help Schools Build Healthier Playgrounds**\
 `Kirsten Beyer was assessing the benefits of improving school playgrounds in Milwaukee. Then her E.P.A. grant was canceled.`\
 https://www.nytimes.com/2026/05/08/science/school-playgrounds-environment.html
