@@ -1,3 +1,7 @@
+**U.S. to Review Mexican Consulates After Right-Wing Claims Against Them**\
+`The State Department said it would review all Mexican consulates in the United States, following claims in conservative media that the consulates interfere in politics.`\
+https://www.nytimes.com/2026/05/07/us/politics/mexico-consulates-state-department.html
+
 **Trump Says Cease-Fire Intact After Trade of Attacks in Strait of Hormuz**\
 `The president dismissed Iran’s firing on U.S. vessels in the strait as a mere “trifle.”`\
 https://www.nytimes.com/2026/05/07/world/middleeast/trump-ceasefire-lincoln-memorial.html
