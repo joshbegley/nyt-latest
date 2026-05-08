@@ -1,3 +1,15 @@
+**Trump Plans to Fire F.D.A. Commissioner Marty Makary**\
+`Dr. Makary has been a supporter of the Make American Healthy Again Movement but made some enemies in the administration over vaping, the abortion pill and rejections of new drugs.`\
+https://www.nytimes.com/2026/05/08/us/trump-fda-commissioner-makary.html
+
+**Pentagon Releases U.F.O. Files**\
+`The Pentagon released “new, never-before-seen” U.F.O. files on Friday. The files include murky videos and still images that do not show anything definitive. The U.S. Department of War said new materials would be released on a rolling basis.`\
+https://www.nytimes.com/video/science/space/100000010892319/trump-ufo-files.html
+
+**In Kristin Smart Case, Soil Suggests Human Remains Once Present in Yard**\
+`A California sheriff said investigators were searching the backyard of a woman whose son was convicted of murdering Ms. Smart, who went missing in 1996.`\
+https://www.nytimes.com/2026/05/08/us/kristin-smart-investigation-san-luis-obispo.html
+
 **The Expansiveness of Our ‘Greatest Songwriters’ List**\
 `Wesley Morris is joined by the “Popcast” hosts Jon Caramanica and Joe Coscarelli and the Times Magazine editor Sasha Weiss to reflect on the making of the “Greatest Songwriters” list.`\
 https://www.nytimes.com/video/podcasts/100000010892730/the-expansiveness-of-our-greatest-songwriters-list.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/08/world/africa/festus-mogae-dead.html
 **4 Takeaways From the Virginia Supreme Court Gerrymandering Decision**\
 `The ruling was a major lift to the G.O.P. efforts to build a structural advantage through redistricting.`\
 https://www.nytimes.com/2026/05/08/us/politics/virginia-redistricting-gerrymandering-takeaways.html
-
-**Teen Charged in Fatal Stabbing That Police Say Was Inspired by TikTok**\
-`The police said the teenager, Jayden Sanchez, was motivated by a social media trend to attack Leonides Baez, who had been sleeping on the street.`\
-https://www.nytimes.com/2026/05/08/nyregion/teenager-stabbing-times-square-nyc-tiktok.html
-
-**A Large Oil Slick Is Detected Off a Key Iranian Oil Depot**\
-`The slick, captured in satellite images near Kharg Island in the Persian Gulf, has raised concerns about the condition of Iran’s oil infrastructure.`\
-https://www.nytimes.com/2026/05/08/climate/iran-kharg-oil-spill-hormuz.html
-
-**Why Wasn’t Beyoncé on Our ‘Greatest Songwriters’ List?**\
-`Wesley Morris is joined by the “Popcast” hosts Jon Caramanica and Joe Coscarelli and the Times Magazine editor Sasha Weiss to reflect on the making of the “Greatest Songwriters” list.`\
-https://www.nytimes.com/video/podcasts/100000010883839/why-wasnt-beyonce-on-our-greatest-songwriters-list.html
 
