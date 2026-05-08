@@ -1,3 +1,7 @@
+**What’s at Stake in the U.K. Local Elections**\
+`The voting in England, Scotland and Wales is the biggest electoral test for Keir Starmer since he became prime minister in 2024.`\
+https://www.nytimes.com/2026/05/08/world/europe/uk-local-elections-starmer.html
+
 **3 Hikers Dead After Indonesian Volcano Eruption**\
 `Three hikers were killed after a volcano in Indonesia erupted, officials said. The authorities said hikers had been banned from climbing Mount Dukono since last month.`\
 https://www.nytimes.com/video/world/asia/100000010891393/indonesia-volcano-eruption-deaths.html
@@ -30,7 +34,7 @@ https://www.nytimes.com/live/2026/05/08/business/jobs-report-economy/jobs-report
 `White House aides have sounded bullish on the jobs report, even as warning signs mount amid the war with Iran.`\
 https://www.nytimes.com/live/2026/05/08/business/jobs-report-economy/with-fuel-costs-soaring-trump-insists-the-economy-is-strong
 
-**What to watch in the report.**\
+**What to know about the report.**\
 ``\
 https://www.nytimes.com/live/2026/05/08/business/jobs-report-economy/economy-jobs-report
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/08/crosswords/strands-sidekick-797.html
 **Wordle Review No. 1,785**\
 `Scroll down for hints and conversation about the puzzle for Saturday, May 9, 2025.`\
 https://www.nytimes.com/2026/05/08/crosswords/wordle-review-1785.html
-
-**Rubio Meets Meloni, Amid Rocky U.S.-Italian Relations**\
-`Secretary of State Marco Rubio flew to Rome this week after an unexpected spat between President Trump and Prime Minister Giorgia Meloni of Italy, once one of the president’s best friends in Europe.`\
-https://www.nytimes.com/2026/05/08/us/politics/rubio-meloni-italy-us-trump-pope.html
 

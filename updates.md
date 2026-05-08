@@ -1,3 +1,11 @@
+**What’s at Stake in the U.K. Local Elections**\
+`The voting in England, Scotland and Wales is the biggest electoral test for Keir Starmer since he became prime minister in 2024.`\
+https://www.nytimes.com/2026/05/08/world/europe/uk-local-elections-starmer.html
+
+**What to know about the report.**\
+``\
+https://www.nytimes.com/live/2026/05/08/business/jobs-report-economy/economy-jobs-report
+
 **3 Hikers Dead After Indonesian Volcano Eruption**\
 `Three hikers were killed after a volcano in Indonesia erupted, officials said. The authorities said hikers had been banned from climbing Mount Dukono since last month.`\
 https://www.nytimes.com/video/world/asia/100000010891393/indonesia-volcano-eruption-deaths.html
