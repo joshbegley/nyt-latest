@@ -1,3 +1,11 @@
+**For A Third Time, Elderly Man Is Convicted of a Grisly Murder**\
+`A Brooklyn jury found Harvey Marcelin guilty of the 2022 murder of a woman. He’d been convicted twice before for killing women, starting in the 1960s.`\
+https://www.nytimes.com/2026/05/08/nyregion/murder-brooklyn-dismember-guilty.html
+
+**How Trump Is Prioritizing White People as Refugees**\
+`President Trump has upended the U.S. refugee program to prioritize mainly white Afrikaners. Our White House correspondent Zolan Kanno-Youngs reports he is now is now considering doubling the amount he allows into the country.`\
+https://www.nytimes.com/video/us/100000010886550/how-trump-is-prioritizing-white-people-as-refugees.html
+
 **David Attenborough Celebrates His 100th Birthday**\
 `The filmmaker David Attenborough, who turned 100-years-old on Friday, has spent decades documenting and advocating for the natural world.`\
 https://www.nytimes.com/video/world/europe/100000010891631/david-attenborough-birthday-100.html

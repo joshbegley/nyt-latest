@@ -1,3 +1,11 @@
+**For A Third Time, Elderly Man Is Convicted of a Grisly Murder**\
+`A Brooklyn jury found Harvey Marcelin guilty of the 2022 murder of a woman. He’d been convicted twice before for killing women, starting in the 1960s.`\
+https://www.nytimes.com/2026/05/08/nyregion/murder-brooklyn-dismember-guilty.html
+
+**How Trump Is Prioritizing White People as Refugees**\
+`President Trump has upended the U.S. refugee program to prioritize mainly white Afrikaners. Our White House correspondent Zolan Kanno-Youngs reports he is now is now considering doubling the amount he allows into the country.`\
+https://www.nytimes.com/video/us/100000010886550/how-trump-is-prioritizing-white-people-as-refugees.html
+
 **David Attenborough Celebrates His 100th Birthday**\
 `The filmmaker David Attenborough, who turned 100-years-old on Friday, has spent decades documenting and advocating for the natural world.`\
 https://www.nytimes.com/video/world/europe/100000010891631/david-attenborough-birthday-100.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/video/science/space/100000010892319/trump-ufo-files.html
 **In Kristin Smart Case, Soil Suggests Human Remains Once Present in Yard**\
 `A California sheriff said investigators were searching the backyard of a woman whose son was convicted of murdering Ms. Smart, who went missing in 1996.`\
 https://www.nytimes.com/2026/05/08/us/kristin-smart-investigation-san-luis-obispo.html
-
-**The Expansiveness of Our ‘Greatest Songwriters’ List**\
-`Wesley Morris is joined by the “Popcast” hosts Jon Caramanica and Joe Coscarelli and the Times Magazine editor Sasha Weiss to reflect on the making of the “Greatest Songwriters” list.`\
-https://www.nytimes.com/video/podcasts/100000010892730/the-expansiveness-of-our-greatest-songwriters-list.html
-
-**Mysterious American Man Makes Mysterious Proposal in Greenland**\
-`The police in Greenland are investigating the case of a lone man from Las Vegas who goes by Cliff. Locals said he had offered money to Greenlanders to join the United States.`\
-https://www.nytimes.com/2026/05/08/world/europe/greenland-mysterious-offer-american.html
 
