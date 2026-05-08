@@ -1,3 +1,11 @@
+**J.H. Prynne, Erudite and Elusive British Poet, Dies at 89**\
+`Even admirers admitted his densely intellectual work could be “punishing.” Still, some considered him one of England’s most important poets.`\
+https://www.nytimes.com/2026/05/08/books/jh-prynne-dead.html
+
+**Teen Charged in Fatal Stabbing That Police Say Was Inspired by TikTok**\
+`The police said the teenager, Jayden Sanchez, was motivated by a social media trend to attack Leonides Baez, who had been sleeping on the street.`\
+https://www.nytimes.com/2026/05/08/nyregion/teenager-stabbing-times-square-nyc-tiktok.html
+
 **Four Takeaways From the U.K. Elections**\
 `Results from municipal and regional elections signaled major gains for the right-wing populist Reform U.K. and steep losses for Labour.`\
 https://www.nytimes.com/2026/05/08/world/europe/uk-elections-local-takeaways.html
