@@ -1,3 +1,7 @@
+**In Huge Blow to Democrats, Virginia Court Strikes Down House Map**\
+`The decision is a major victory for Republicans, wiping away a measure approved by voters to allow Democrats to gain as many as four House seats in the midterms.`\
+https://www.nytimes.com/2026/05/08/us/politics/virginia-redistricting-supreme-court.html
+
 **Utah Second Congressional District 2026: Latest Polls**\
 `Track the latest polls in Utah's 2nd Congressional District.`\
 https://www.nytimes.com/interactive/polls/utah-us-house-2-polls-2026.html
