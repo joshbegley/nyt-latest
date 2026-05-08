@@ -1,3 +1,15 @@
+**Philip Caputo, Who Wrote Blistering Vietnam War Memoir, Dies at 84**\
+`“A Rumor of War,” about his service as a Marine Corps infantry officer and published in 1977, relentlessly detailed “the things men do in war and the things war does to them.”`\
+https://www.nytimes.com/2026/05/08/books/philip-caputo-dead.html
+
+**Algunos objetos del Titanic podrían subastarse pronto**\
+`La última vez que se propuso una venta, la idea suscitó objeciones de los gobiernos estadounidense y francés, así como de la UNESCO y otras instituciones culturales.`\
+https://www.nytimes.com/es/2026/05/08/espanol/estados-unidos/titanic-objetos-subasta-dolares.html
+
+**Word of the Day: mitigate**\
+`This word has appeared in 350 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/05/08/learning/word-of-the-day-mitigate.html
+
 **Oil Prices Rise as U.S. and Iran Test Truce With Military Strikes**\
 `Oil prices rose after the United States attacked Iranian military sites in retaliation for Iran firing on U.S. warships in the Strait of Hormuz`\
 https://www.nytimes.com/2026/05/08/business/oil-gas-price-iran.html
