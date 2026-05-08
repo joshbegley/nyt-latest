@@ -1,3 +1,7 @@
+**What Virus Experts Want You to Know About Hantavirus**\
+`News of a hantavirus outbreak on a cruise ship has raised concerns about what this means for the broader public. Nina Agrawal, a reporter for Well, speaks with Dr. Gaby Frank, director of the Special Pathogens Center at Johns Hopkins, to learn more.`\
+https://www.nytimes.com/video/well/100000010887474/what-virus-experts-want-you-to-know-about-hantavirus.html
+
 **Russia in No Mood for Celebration on Kremlin’s Biggest Day of the Year**\
 `As the country heads into Victory Day, the economy is stalling, internet restrictions are growing and the Kremlin is fearing Ukrainian attacks.`\
 https://www.nytimes.com/2026/05/08/world/europe/russia-mood-victory-day.html
