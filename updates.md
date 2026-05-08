@@ -1,3 +1,31 @@
+**‘El diablo viste a la moda’ ha evolucionado con su audiencia**\
+`Los que llegamos a la madurez junto con la protagonista ahora podemos ver que amar tu trabajo no tiene por qué significar convertirte en Miranda Priestly. Puede significar ser Andy Sachs.`\
+https://www.nytimes.com/es/2026/05/08/espanol/cultura/diablo-viste-moda-vida-trabajo.html
+
+**Soy infelizmente soltera. ¿Tengo que asistir a la boda de mi amiga?**\
+`Nuestra columnista de Pregúntale a la terapeuta, Lori Gottlieb, aconseja a una lectora que no quiere que le recuerden su soledad una vez más.`\
+https://www.nytimes.com/es/2026/05/08/espanol/solteria-soledad-boda-amigos.html
+
+**En un mundo incierto, las parejas ya no quieren tener bebés**\
+`¿Es el dinero que ya no alcanza o es el pánico por lo que pueda venir?`\
+https://www.nytimes.com/es/2026/05/08/espanol/opinion/tasa-natalidad-maternidad-demografia-futuro.html
+
+**New York’s Budget Deal Is Still Hazy. Here Are 5 Key Questions.**\
+`Gov. Kathy Hochul claimed victory for a state budget agreement that is already five weeks overdue, and clearly still needs more work.`\
+https://www.nytimes.com/2026/05/08/nyregion/hochul-state-budget-questions.html
+
+**Top Secret**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://www.nytimes.com/2026/05/08/learning/top-secret.html
+
+**Gates Around Washington Square Park? Greenwich Village Is Divided.**\
+`The park in Manhattan, known for its regal arch and freewheeling spirit, has a hard-to-enforce midnight curfew.`\
+https://www.nytimes.com/2026/05/08/nyregion/washington-square-park-gates.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/08/crosswords/spelling-bee-forum.html
+
 **3 Hikers Dead and Several Missing After Volcano Erupts in Indonesia**\
 `The Indonesian authorities reported the deaths after Mount Dukono erupted on Friday morning. Rescue workers are trying to evacuate climbers.`\
 https://www.nytimes.com/2026/05/08/world/asia/indonesia-volcano-eruption-dukono-hikers.html
