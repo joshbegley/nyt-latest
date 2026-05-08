@@ -1,3 +1,7 @@
+**Artists’ Strike Closes Pavilions at Venice Biennale, Adding to Upheaval**\
+`The hottest exhibitions at the world’s major art exhibition were shuttered on Friday as part of a pro-Palestinian demonstration.`\
+https://www.nytimes.com/2026/05/08/arts/venice-biennale-protests.html
+
 **We Survived M.S.G. Surveillance … with Edward Snowden’s Lawyer**\
 `Pablo sees the Knicks and tests the limits of facial recognition.`\
 https://www.nytimes.com/2026/05/08/podcasts/msg-surveillance-edward-snowdens-lawyer.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/05/08/us/politics/tennessee-gop-map-bla
 **Trump’s Architecture Rankles. But Why?**\
 `What Trump’s monuments look like to a British architecture writer.`\
 https://www.nytimes.com/2026/05/08/opinion/trump-ballroom-arch-architecture.html
-
-**Patricia Cornwell on Her Dark Childhood and Best-Selling Novels**\
-`The crime novelist discusses her new memoir “True Crime.” Also, Daniel Kraus, winner of this year’s Pulitzer Prize for fiction, talks about his novel “Angel Down.”`\
-https://www.nytimes.com/2026/05/08/podcasts/pulitzer-winner-crime-novelist.html
 

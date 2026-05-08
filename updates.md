@@ -1,3 +1,7 @@
+**Artists’ Strike Closes Pavilions at Venice Biennale, Adding to Upheaval**\
+`The hottest exhibitions at the world’s major art exhibition were shuttered on Friday as part of a pro-Palestinian demonstration.`\
+https://www.nytimes.com/2026/05/08/arts/venice-biennale-protests.html
+
 **We Survived M.S.G. Surveillance … with Edward Snowden’s Lawyer**\
 `Pablo sees the Knicks and tests the limits of facial recognition.`\
 https://www.nytimes.com/2026/05/08/podcasts/msg-surveillance-edward-snowdens-lawyer.html
