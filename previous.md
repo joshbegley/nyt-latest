@@ -1,3 +1,7 @@
+**China Sees a ‘Giant With a Limp’ as U.S. Drains Weapons on Iran War**\
+`America’s ability to deter China in a war over Taiwan is weakened, Chinese analysts say, giving Beijing leverage in an upcoming summit with President Trump.`\
+https://www.nytimes.com/2026/05/08/world/asia/trump-xi-china-us-iran-munitions.html
+
 **What Virus Experts Want You to Know About Hantavirus**\
 `News of a hantavirus outbreak on a cruise ship has raised concerns about what this means for the broader public. Nina Agrawal, a reporter for Well, speaks with Dr. Gaby Frank, director of the Special Pathogens Center at Johns Hopkins, to learn more.`\
 https://www.nytimes.com/video/well/100000010887474/what-virus-experts-want-you-to-know-about-hantavirus.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/07/education/canvas-hacked-down-data-breach.html
 **Cornell Is Investigating Confrontation Between President and Students**\
 `The university’s leader bumped into students as he drove away following an evening of debate over the long-running conflict in the Middle East.`\
 https://www.nytimes.com/2026/05/07/nyregion/cornell-kotlikoff-car-students-investigation.html
-
-**Alaska Can Resume Killing Bears to Protect Caribou Herd, Judge Says**\
-`The state program employs helicopters and small planes to shoot black and brown bears of any age in a large area of southwestern Alaska. Two conservation groups have sued to stop it.`\
-https://www.nytimes.com/2026/05/07/us/alaska-bear-killing-caribou-hunters.html
 

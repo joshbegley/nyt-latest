@@ -1,3 +1,7 @@
+**China Sees a ‘Giant With a Limp’ as U.S. Drains Weapons on Iran War**\
+`America’s ability to deter China in a war over Taiwan is weakened, Chinese analysts say, giving Beijing leverage in an upcoming summit with President Trump.`\
+https://www.nytimes.com/2026/05/08/world/asia/trump-xi-china-us-iran-munitions.html
+
 **What Virus Experts Want You to Know About Hantavirus**\
 `News of a hantavirus outbreak on a cruise ship has raised concerns about what this means for the broader public. Nina Agrawal, a reporter for Well, speaks with Dr. Gaby Frank, director of the Special Pathogens Center at Johns Hopkins, to learn more.`\
 https://www.nytimes.com/video/well/100000010887474/what-virus-experts-want-you-to-know-about-hantavirus.html
