@@ -1,3 +1,15 @@
+**The Action Before the Action at the World Cup**\
+`Before the FIFA World Cup kicks off on June 11, there’s plenty to look out for as the world’s biggest soccer stars descend on North America.`\
+https://www.nytimes.com/2026/05/08/sports/soccer/world-cup-2026-warmup-games.html
+
+**4 hombres son declarados culpables del asesinato del presidente de Haití**\
+`Jovenel Moïse, de 53 años, fue asesinado a tiros en su dormitorio en julio de 2021. Su asesinato desencadenó una espiral de violencia de pandillas y caos en Haití.`\
+https://www.nytimes.com/es/2026/05/08/espanol/america-latina/culpables-asesinato-presidente-haiti.html
+
+**David Attenborough, a Voice of Nature, Turns 100**\
+`Pictures and striking scenes from the making of perhaps the world’s most celebrated naturalist.`\
+https://www.nytimes.com/2026/05/08/arts/television/david-attenborough-100-birthday.html
+
 **Rail tickets to New Jersey World Cup matches will be $105, not $150.**\
 `But fans traveling roundtrip between New York City and`\
 https://www.nytimes.com/live/2026/us/fifa-world-cup/rail-tickets-to-new-jersey-world-cup-matches-will-be-105-not-150
@@ -65,16 +77,4 @@ https://www.nytimes.com/interactive/polls/rhode-island-us-senate-election-polls-
 **Wait, My Lamp Wasn’t Even Italian?**\
 `On the hunt for a light that only looked like it came from the Memphis Group.`\
 https://www.nytimes.com/2026/05/08/t-magazine/memphis-style-lamp-lighting.html
-
-**Today, In Short**\
-`Hantavirus. The W.N.B.A. And are you a good gift giver?`\
-https://www.nytimes.com/2026/05/08/briefing/today-in-short.html
-
-**Kentucky Sixth Congressional District 2026: Latest Polls**\
-`Track the latest polls in Kentucky's 6th Congressional District.`\
-https://www.nytimes.com/interactive/polls/kentucky-us-house-6-polls-2026.html
-
-**Canvas cierra durante horas tras ciberataque**\
-`Un grupo de hackers se atribuyó la vulneración de datos que afectó a la plataforma de aprendizaje y puso en peligro los datos personales de millones de usuarios.`\
-https://www.nytimes.com/es/2026/05/08/espanol/canvas-hackeo.html
 
