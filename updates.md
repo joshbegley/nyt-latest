@@ -1,3 +1,7 @@
+**Palabra del día: ‘mitigate’**\
+`Esta palabra ha aparecido en 350 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/05/08/espanol/que-significa-mitigate.html
+
 **Philip Caputo, Who Wrote Blistering Vietnam War Memoir, Dies at 84**\
 `“A Rumor of War,” about his service as a Marine Corps infantry officer and published in 1977, relentlessly detailed “the things men do in war and the things war does to them.”`\
 https://www.nytimes.com/2026/05/08/books/philip-caputo-dead.html
