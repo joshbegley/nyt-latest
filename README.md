@@ -1,3 +1,11 @@
+**You May Be Owed a Tax Refund From the Covid Era**\
+`A court ruling found that the I.R.S. shouldn’t have charged penalties and interest during the pandemic. But the government may appeal the decision.`\
+https://www.nytimes.com/2026/05/08/your-money/tax-refund-penalties-pandemic.html
+
+**Gerrymandering Pits G.O.P. House Members Against Each Other in California**\
+`Forced to fight for political survival because of redistricting, Ken Calvert and Young Kim, both Republicans, are accusing each other of being insufficiently MAGA.`\
+https://www.nytimes.com/2026/05/08/us/politics/california-republican-kim-calvert-congress.html
+
 **Starmer Takes Responsibility for Big Losses in Early U.K. Election Results**\
 `Prime Minister Keir Starmer of Britain said he took responsibility for large Labour Party losses as local election results trickled in early Friday. The right-wing populist Reform U.K. party looked set for big gains.`\
 https://www.nytimes.com/video/world/europe/100000010891270/uk-local-election-results-starmer.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/interactive/2026/05/08/magazine/chocolate-chips-hodgman-
 **Trump Calls Iran Strikes a ‘Trifle,’ and the Latest on the Hantavirus Outbreak**\
 `Plus, the Friday news quiz.`\
 https://www.nytimes.com/2026/05/08/podcasts/the-headlines/trump-iran-strikes-hantavirus-outbreak.html
-
-**Connections Companion No. 1,063**\
-`Scroll down for hints and conversation about the puzzle for Saturday, May 9, 2026.`\
-https://www.nytimes.com/2026/05/08/crosswords/connections-companion-1063.html
-
-**Strands Sidekick No. 797**\
-`Scroll down for hints and conversation about the puzzle for Saturday, May 9, 2026.`\
-https://www.nytimes.com/2026/05/08/crosswords/strands-sidekick-797.html
 
