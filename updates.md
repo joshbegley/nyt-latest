@@ -1,3 +1,15 @@
+**We Survived M.S.G. Surveillance … with Edward Snowden’s Lawyer**\
+`Pablo sees the Knicks and tests the limits of facial recognition.`\
+https://www.nytimes.com/2026/05/08/podcasts/msg-surveillance-edward-snowdens-lawyer.html
+
+**After Months of Arguing, Taiwan Lawmakers Approve $25 Billion for U.S. Arms**\
+`With time running out, Taiwanese lawmakers approved funds for buying U.S. weapons, fearing they could lose support if they didn’t act now.`\
+https://www.nytimes.com/2026/05/08/world/asia/taiwan-trump-military-china-spending-25-billion.html
+
+**Court Decision Leaves South Africa’s President Facing Impeachment Inquiry**\
+`Judges ruled that an impeachment hearing should be held over a case involving money stolen from President Cyril Ramaphosa’s farm six years ago.`\
+https://www.nytimes.com/2026/05/08/world/africa/south-africa-president-ramaphosa-court-ruling-impeachment.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/05/08/world/iran-strikes-trump-ceasefire-hormuz/heres-the-latest

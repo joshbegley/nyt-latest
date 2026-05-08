@@ -1,3 +1,15 @@
+**We Survived M.S.G. Surveillance … with Edward Snowden’s Lawyer**\
+`Pablo sees the Knicks and tests the limits of facial recognition.`\
+https://www.nytimes.com/2026/05/08/podcasts/msg-surveillance-edward-snowdens-lawyer.html
+
+**After Months of Arguing, Taiwan Lawmakers Approve $25 Billion for U.S. Arms**\
+`With time running out, Taiwanese lawmakers approved funds for buying U.S. weapons, fearing they could lose support if they didn’t act now.`\
+https://www.nytimes.com/2026/05/08/world/asia/taiwan-trump-military-china-spending-25-billion.html
+
+**Court Decision Leaves South Africa’s President Facing Impeachment Inquiry**\
+`Judges ruled that an impeachment hearing should be held over a case involving money stolen from President Cyril Ramaphosa’s farm six years ago.`\
+https://www.nytimes.com/2026/05/08/world/africa/south-africa-president-ramaphosa-court-ruling-impeachment.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/05/08/world/iran-strikes-trump-ceasefire-hormuz/heres-the-latest
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/08/opinion/trump-ballroom-arch-architecture.html
 **Patricia Cornwell on Her Dark Childhood and Best-Selling Novels**\
 `The crime novelist discusses her new memoir “True Crime.” Also, Daniel Kraus, winner of this year’s Pulitzer Prize for fiction, talks about his novel “Angel Down.”`\
 https://www.nytimes.com/2026/05/08/podcasts/pulitzer-winner-crime-novelist.html
-
-**The Detectives Are Sheep. (No, That’s Not a Metaphor.)**\
-`The filmmakers behind this adaptation of a best-selling novel were adamant that their ovine sleuths not seem like humans in, well, sheep’s clothing.`\
-https://www.nytimes.com/2026/05/08/movies/the-sheep-detectives-hugh-jackman-julia-louis-dreyfus.html
-
-**A Very American Controversy on the Art World’s Biggest Stage**\
-`Trump has taken an active role in the arts in his second term, which may be evident in the work on display at the Venice Biennale — depending on how you look at it.`\
-https://www.nytimes.com/2026/05/08/magazine/venice-biennale-american-artist.html
-
-**5 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://www.nytimes.com/2026/05/08/movies/movies-new-movies-this-week-critics.html
 
