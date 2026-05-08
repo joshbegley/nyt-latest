@@ -1,3 +1,7 @@
+**Alaska Can Resume Killing Bears to Protect Caribou Herd, Judge Says**\
+`The state program employs helicopters and small planes to shoot black and brown bears of any age in a large area of southwestern Alaska. Two conservation groups have sued to stop it.`\
+https://www.nytimes.com/2026/05/07/us/alaska-bear-killing-caribou-hunters.html
+
 **Trump Reversed Hormuz Plan After Saudis Denied Airspace Access**\
 `Saudi Arabia’s refusal of support suggests that President Trump’s unpredictable approach to Iran has strained ties with one of his closest allies in the Middle East.`\
 https://www.nytimes.com/2026/05/07/us/politics/trump-strait-of-hormuz-saudis.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/07/us/austin-bar-shooting-gunman-iran-fbi-invest
 **Special Counsel to Investigate Trump Administration Lawyer for Possible Misconduct**\
 `Federal judges in Rhode Island ordered an investigation into a lawyer who withheld information about a migrant’s international criminal charges. Now, D.H.S. says it can’t find the migrant.`\
 https://www.nytimes.com/2026/05/07/us/politics/special-counsel-lawyer-misconduct.html
-
-**Man Pleads Guilty in Syringe Attack Against Ilhan Omar**\
-`The attack happened in late January during a town-hall meeting in Minneapolis, at the height of the Trump administration’s immigration crackdown in Minnesota.`\
-https://www.nytimes.com/2026/05/07/us/ilhan-omar-syringe-attack-guilty-plea.html
 
