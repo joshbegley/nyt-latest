@@ -1,3 +1,11 @@
+**U.F.O. Files Released by U.S. Shed Light on What the Government Knows**\
+`The Pentagon on Friday released online what it called “new, never-before-seen” files, dating back decades, related to unidentified flying objects.`\
+https://www.nytimes.com/2026/05/08/us/politics/ufo-sightings-us-government.html
+
+**Hegseth Is Sending Us a Warning**\
+`The secretary of defense has argued that military retirees are subject to freedom of speech restrictions. Let that sink in.`\
+https://www.nytimes.com/2026/05/08/opinion/hegseth-kelly-military-free-speech.html
+
 **Trump Plans to Fire F.D.A. Commissioner Marty Makary**\
 `Dr. Makary has been a supporter of the Make American Healthy Again Movement but made some enemies in the administration over vaping, the abortion pill and rejections of new drugs.`\
 https://www.nytimes.com/2026/05/08/us/trump-fda-commissioner-makary.html
