@@ -1,3 +1,7 @@
+**We’re at the Dawn of the Ozempic Era — and It’s Really Weird**\
+`One in eight American adults is taking GLP-1s. What does that mean for how we relate to our food, bodies and one another?`\
+https://www.nytimes.com/2026/05/08/opinion/ezra-klein-podcast-julia-belluz.html
+
 **The Resurrection of Michael Jackson**\
 `Can “Michael“ help restore the king of pop’s image? His estate is banking on it.`\
 https://www.nytimes.com/2026/05/08/podcasts/the-daily/michael-jackson-film.html
