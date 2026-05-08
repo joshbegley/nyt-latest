@@ -1,3 +1,7 @@
+**Democratic Candidates and Voters Challenge Tennessee’s New Map**\
+`A lawsuit, filed in federal court, argues that the new map is unconstitutional because it was approved too close to the August primaries.`\
+https://www.nytimes.com/2026/05/08/us/tennessee-redistricting-lawsuit.html
+
 **What to Do for the Elderly? Stop Badgering Them!**\
 `Readers respond to an essay about old people preparing (or not) for the end. Also: Antisemitism online; Trump the destroyer; two types of dreaming.`\
 https://www.nytimes.com/2026/05/08/opinion/old-age.html

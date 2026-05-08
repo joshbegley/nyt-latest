@@ -1,3 +1,7 @@
+**Democratic Candidates and Voters Challenge Tennessee’s New Map**\
+`A lawsuit, filed in federal court, argues that the new map is unconstitutional because it was approved too close to the August primaries.`\
+https://www.nytimes.com/2026/05/08/us/tennessee-redistricting-lawsuit.html
+
 **What to Do for the Elderly? Stop Badgering Them!**\
 `Readers respond to an essay about old people preparing (or not) for the end. Also: Antisemitism online; Trump the destroyer; two types of dreaming.`\
 https://www.nytimes.com/2026/05/08/opinion/old-age.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/08/arts/television/david-attenborough-100-birthd
 **Rail tickets to New Jersey World Cup matches will be $105, not $150.**\
 `But fans traveling roundtrip between New York City and`\
 https://www.nytimes.com/live/2026/us/fifa-world-cup/rail-tickets-to-new-jersey-world-cup-matches-will-be-105-not-150
-
-**How Prepared Are We for A.I. Layoffs?**\
-`Our chief economics correspondent, Ben Casselman, describes how A.I.-related layoffs are testing the resilience of the government’s safety net programs.`\
-https://www.nytimes.com/video/business/100000010887206/artificial-intelligence-layoffs-unemployment-benefits.html
 
