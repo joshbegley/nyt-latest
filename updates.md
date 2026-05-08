@@ -1,3 +1,11 @@
+**Arte y política**\
+`La Bienal de Venecia siempre es abrumadora por el arte. Este año, la política también ha resultado abrumadora.`\
+https://www.nytimes.com/es/2026/05/08/espanol/mundo/bienal-venecia-arte-politica.html
+
+**Going for Broke**\
+`Why does the public seem unbothered by the national debt?`\
+https://www.nytimes.com/2026/05/08/briefing/going-for-broke.html
+
 **We’re at the Dawn of the Ozempic Era — and It’s Really Weird**\
 `One in eight American adults is taking GLP-1s. What does that mean for how we relate to our food, bodies and one another?`\
 https://www.nytimes.com/2026/05/08/opinion/ezra-klein-podcast-julia-belluz.html
