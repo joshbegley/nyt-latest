@@ -1,3 +1,15 @@
+**Starmer Takes Responsibility for Big Losses in U.K. Election Results**\
+`Britain’s Labour Party had lost close to 1,100 municipal council seats across England by Friday evening, while the right-wing populist Reform U.K. had gained close to 1,200.`\
+https://www.nytimes.com/video/world/europe/100000010893031/uk-elections-starmer-losses.html
+
+**Lawmakers May Continue to Inspect ICE Detention Centers, Appeals Court Rules**\
+`A federal appeals court declined, for now, to halt an order requiring D.H.S. to permit unannounced visits to immigration detention centers by Democrats in Congress.`\
+https://www.nytimes.com/2026/05/08/us/politics/lawmakers-democrats-ice-detention.html
+
+**Judge Rejects Defense Plea to Ban Cameras in Charlie Kirk Trial**\
+`The judge ruled on Friday that defense lawyers for Tyler Robinson had failed to prove that Utah law would support a blanket ban on news cameras.`\
+https://www.nytimes.com/2026/05/08/us/tyler-robinson-charlie-kirk-cameras.html
+
 **Facing Pressure, Trump Officials Reject Claims They’re Softening on Immigration**\
 `Immigration hard-liners have grown frustrated with the level of deportations and the Department of Homeland Security’s attempts, under its new secretary, to stay under the radar.`\
 https://www.nytimes.com/2026/05/08/us/politics/markwayne-mullin-immigration-dhs.html
