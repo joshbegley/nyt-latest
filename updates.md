@@ -1,3 +1,7 @@
+**Norovirus Outbreak Sickens 115 on Cruise Ship**\
+`More than 100 passengers and 13 crew members on the Caribbean Princess reported being ill, according to the Centers for Disease Control and Prevention.`\
+https://www.nytimes.com/2026/05/08/world/americas/norovirus-outbreak-cruise-ship.html
+
 **Mette Frederiksen Fails to Form Governing Coalition in Denmark**\
 `King Frederik X has appointed a right-leaning politician to try to form the next government.`\
 https://www.nytimes.com/2026/05/08/world/europe/denmark-frederiksen-right-wing-government.html
