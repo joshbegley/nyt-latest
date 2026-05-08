@@ -1,3 +1,11 @@
+**The Expansiveness of Our ‘Greatest Songwriters’ List**\
+`Wesley Morris is joined by the “Popcast” hosts Jon Caramanica and Joe Coscarelli and the Times Magazine editor Sasha Weiss to reflect on the making of the “Greatest Songwriters” list.`\
+https://www.nytimes.com/video/podcasts/100000010892730/the-expansiveness-of-our-greatest-songwriters-list.html
+
+**Mysterious American Man Makes Mysterious Proposal in Greenland**\
+`The police in Greenland are investigating the case of a lone man from Las Vegas who goes by Cliff. Locals said he had offered money to Greenlanders to join the United States.`\
+https://www.nytimes.com/2026/05/08/world/europe/greenland-mysterious-offer-american.html
+
 **The Next Frontier of Trump’s Assault on Free Speech**\
 `Hegseth has argued that military retirees are subject to freedom of speech restrictions. Let that sink in.`\
 https://www.nytimes.com/2026/05/08/opinion/hegseth-kelly-military-free-speech.html

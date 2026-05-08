@@ -1,3 +1,11 @@
+**The Expansiveness of Our ‘Greatest Songwriters’ List**\
+`Wesley Morris is joined by the “Popcast” hosts Jon Caramanica and Joe Coscarelli and the Times Magazine editor Sasha Weiss to reflect on the making of the “Greatest Songwriters” list.`\
+https://www.nytimes.com/video/podcasts/100000010892730/the-expansiveness-of-our-greatest-songwriters-list.html
+
+**Mysterious American Man Makes Mysterious Proposal in Greenland**\
+`The police in Greenland are investigating the case of a lone man from Las Vegas who goes by Cliff. Locals said he had offered money to Greenlanders to join the United States.`\
+https://www.nytimes.com/2026/05/08/world/europe/greenland-mysterious-offer-american.html
+
 **The Next Frontier of Trump’s Assault on Free Speech**\
 `Hegseth has argued that military retirees are subject to freedom of speech restrictions. Let that sink in.`\
 https://www.nytimes.com/2026/05/08/opinion/hegseth-kelly-military-free-speech.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/08/climate/iran-kharg-oil-spill-hormuz.html
 **Why Wasn’t Beyoncé on Our ‘Greatest Songwriters’ List?**\
 `Wesley Morris is joined by the “Popcast” hosts Jon Caramanica and Joe Coscarelli and the Times Magazine editor Sasha Weiss to reflect on the making of the “Greatest Songwriters” list.`\
 https://www.nytimes.com/video/podcasts/100000010883839/why-wasnt-beyonce-on-our-greatest-songwriters-list.html
-
-**Trump Administration Targets 12 Immigrants to Revoke Citizenship**\
-`The targeted Americans are accused misdeeds that can qualify them to lose citizenship, but denaturalization has rarely been invoked in the past.`\
-https://www.nytimes.com/2026/05/08/us/politics/trump-immigrants-citizenship.html
-
-**Mi padre solía escribirle al gobierno cubano. Ahora me toca a mí**\
-`Señor presidente, por favor, no tome esta carta como una defensa de la política de EE. UU. hacia Cuba, y mucho menos como un llamado a la intervención militar estadounidense.`\
-https://www.nytimes.com/es/2026/05/08/espanol/opinion/cuba-diaz-canel-estados-unidos.html
 
