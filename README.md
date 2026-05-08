@@ -1,3 +1,7 @@
+**State Department Will Revoke Passports of Parents Who Owe Child Support**\
+`The Trump administration is moving to more strictly enforce a 1996 law that gives the State Department the authority to revoke passports over unpaid child support.`\
+https://www.nytimes.com/2026/05/07/us/politics/passports-revoked-child-support-state-dept.html
+
 **Canvas Online Learning Platform Disabled After Breach by Hackers**\
 `A hacking group that claimed responsibility for attacking Canvas’s parent company said it had gained access to data from more than 275 million people across 9,000 schools.`\
 https://www.nytimes.com/2026/05/07/education/canvas-hacked-down-data-breach.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/us/100000010889726/tennessee-redistricting-congres
 **La OMS anticipa brote ‘limitado’ de hantavirus mientras se busca a más infectados**\
 `Una azafata neerlandesa y un ciudadano francés han sido los últimos en someterse a pruebas en relación con un brote mortal en un crucero. Un análisis en Sudáfrica no mostró mutaciones en las muestras víricas.`\
 https://www.nytimes.com/es/2026/05/07/espanol/mundo/hantavirus-crucero-brote-infectados-oms.html
-
-**Millions for a Paint Job? Trump Wants the Eisenhower Building Painted White.**\
-`The project would transform the granite exterior of the historic Eisenhower Executive Office Building, which dates to the 1800s.`\
-https://www.nytimes.com/2026/05/07/us/politics/trump-paint-eisenhower-building.html
 
