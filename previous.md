@@ -1,3 +1,11 @@
+**Mi padre solía escribirle al gobierno cubano. Ahora me toca a mí**\
+`Señor presidente, por favor, no tome esta carta como una defensa de la política de EE. UU. hacia Cuba, y mucho menos como un llamado a la intervención militar estadounidense.`\
+https://www.nytimes.com/es/2026/05/08/espanol/opinion/cuba-diaz-canel-estados-unidos.html
+
+**En Rusia, el descontento se cierne sobre las festividades más grandes del año**\
+`Mientras el país se prepara para el Día de la Victoria, la economía se estanca, aumentan las restricciones de internet y el Kremlin teme ataques ucranianos.`\
+https://www.nytimes.com/es/2026/05/08/espanol/mundo/rusia-dia-victoria.html
+
 **As Officials Track Cruise Passengers, Experts Stress Hantavirus Risk Remains Low**\
 `Health officials are closely monitoring those who were exposed for symptoms of the virus, which does not spread easily between humans.`\
 https://www.nytimes.com/2026/05/08/well/hantavirus-cruise-ship-outbreak-cases.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/08/business/media/abc-fcc-first-amendment-the-vi
 **Hantavirus Is Nothing Like Coronavirus, but It’s Bringing Some ‘Covid P.T.S.D.’**\
 `Experts have been quick to reassure the public after the deaths aboard the Dutch cruise ship MV Hondius, but images and turns of phrase have rekindled anxieties from Covid’s early days.`\
 https://www.nytimes.com/2026/05/08/health/hantavirus-outbreak-covid-pandemic.html
-
-**Britain Has Entered a New Era of Multiparty Politics. It’s Messy.**\
-`A voting system created when two parties dominated is being tested by the rise of newer competitors.`\
-https://www.nytimes.com/2026/05/08/world/europe/uk-fragmented-vote-multiparty.html
-
-**Compare the Purported Epstein Suicide Note to His Writings**\
-`The New York Times has not authenticated the note. But some of its phrases are similar or identical to ones Jeffrey Epstein used in emails and another handwritten letter.`\
-https://www.nytimes.com/2026/05/08/nyregion/epstein-suicide-note-phrases.html
 
