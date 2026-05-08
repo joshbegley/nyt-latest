@@ -1,3 +1,11 @@
+**Rail tickets to New Jersey World Cup matches will be $105, not $150.**\
+`But fans traveling roundtrip between New York City and`\
+https://www.nytimes.com/live/2026/us/fifa-world-cup/rail-tickets-to-new-jersey-world-cup-matches-will-be-105-not-150
+
+**How Prepared Are We for A.I. Layoffs?**\
+`Our chief economics correspondent, Ben Casselman, describes how A.I.-related layoffs are testing the resilience of the government’s safety net programs.`\
+https://www.nytimes.com/video/business/100000010887206/artificial-intelligence-layoffs-unemployment-benefits.html
+
 **Review: At City Ballet, Tiler Peck Shows Shimmering Restraint**\
 `The star ballerina is also an accomplished choreographer. Her sophomore work for City Ballet is bigger and better than her first.`\
 https://www.nytimes.com/2026/05/08/arts/dance/review-tiler-peck-symphonie-espagnole-new-york-city-ballet.html
