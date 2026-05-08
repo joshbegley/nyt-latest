@@ -1,3 +1,15 @@
+**Lawsuit Accuses Lucky Strike of Building a Bowling Monopoly**\
+`The suit, filed by bowlers from several states, accuses Lucky Strike Entertainment of driving up prices and diminishing customers’ experiences across the country.`\
+https://www.nytimes.com/2026/05/08/business/bowling-lucky-strike-lawsuit.html
+
+**Justice Dept. Settles Case Against Provider of Meat Industry Data**\
+`Under the agreement, Agri Stats would pay a fine and broaden whom it sold its pricing data to. The department said the move would help reduce food costs.`\
+https://www.nytimes.com/2026/05/08/business/agri-stats-meat-antitrust-settlement.html
+
+**The Wisdom of Our Mothers**\
+`Readers share thoughtful, practical and often funny advice from their moms.`\
+https://www.nytimes.com/interactive/2026/05/08/well/family/mom-advice-mothers-day.html
+
 **U.F.O. Files Released by U.S. Shed Light on What the Government Knows**\
 `The Pentagon on Friday released online what it called “new, never-before-seen” files, dating back decades, related to unidentified flying objects.`\
 https://www.nytimes.com/2026/05/08/us/politics/ufo-sightings-us-government.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/interactive/2026/05/08/upshot/flashback.html
 **What to know about the report.**\
 ``\
 https://www.nytimes.com/live/2026/05/08/business/jobs-report-economy/what-to-know-about-the-report
-
-**The No-Bid Contract That Is Turning Washington’s Reflecting Pool Blue**\
-`President Trump handpicked a firm he said had worked on his swimming pool to repair the iconic site near the Lincoln Memorial.`\
-https://www.nytimes.com/2026/05/08/us/politics/reflecting-pool-trump-contract.html
-
-**Before Hantavirus Outbreak, This Cruise Attracted ‘a Different Type of Traveler’**\
-`Former passengers on the MV Hondius say that the ship was made for wildlife expeditions and that the crew took safety very seriously.`\
-https://www.nytimes.com/2026/05/08/world/hantavirus-mv-hondius-cruise.html
-
-**Festus Mogae, Botswana President Who Tackled H.I.V., Dies at 86**\
-`He led the southern African nation for a decade and embraced a flagship American aid program credited with helping to eradicate the country’s AIDS epidemic.`\
-https://www.nytimes.com/2026/05/08/world/africa/festus-mogae-dead.html
 
