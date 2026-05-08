@@ -1,3 +1,7 @@
+**Norovirus Outbreak Sickens 115 on Cruise Ship**\
+`More than 100 passengers and 13 crew members on the Caribbean Princess reported being ill, according to the Centers for Disease Control and Prevention.`\
+https://www.nytimes.com/2026/05/08/world/americas/norovirus-outbreak-cruise-ship.html
+
 **Mette Frederiksen Fails to Form Governing Coalition in Denmark**\
 `King Frederik X has appointed a right-leaning politician to try to form the next government.`\
 https://www.nytimes.com/2026/05/08/world/europe/denmark-frederiksen-right-wing-government.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/08/business/agri-stats-meat-antitrust-settlement
 **The Wisdom of Our Mothers**\
 `Readers share thoughtful, practical and often funny advice from their moms.`\
 https://www.nytimes.com/interactive/2026/05/08/well/family/mom-advice-mothers-day.html
-
-**U.F.O. Files Released by U.S. Shed Light on What the Government Knows**\
-`The Pentagon on Friday released online what it called “new, never-before-seen” files, dating back decades, related to unidentified flying objects.`\
-https://www.nytimes.com/2026/05/08/us/politics/ufo-sightings-us-government.html
 
