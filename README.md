@@ -1,3 +1,31 @@
+**‘El diablo viste a la moda’ ha evolucionado con su audiencia**\
+`Los que llegamos a la madurez junto con la protagonista ahora podemos ver que amar tu trabajo no tiene por qué significar convertirte en Miranda Priestly. Puede significar ser Andy Sachs.`\
+https://www.nytimes.com/es/2026/05/08/espanol/cultura/diablo-viste-moda-vida-trabajo.html
+
+**Soy infelizmente soltera. ¿Tengo que asistir a la boda de mi amiga?**\
+`Nuestra columnista de Pregúntale a la terapeuta, Lori Gottlieb, aconseja a una lectora que no quiere que le recuerden su soledad una vez más.`\
+https://www.nytimes.com/es/2026/05/08/espanol/solteria-soledad-boda-amigos.html
+
+**En un mundo incierto, las parejas ya no quieren tener bebés**\
+`¿Es el dinero que ya no alcanza o es el pánico por lo que pueda venir?`\
+https://www.nytimes.com/es/2026/05/08/espanol/opinion/tasa-natalidad-maternidad-demografia-futuro.html
+
+**New York’s Budget Deal Is Still Hazy. Here Are 5 Key Questions.**\
+`Gov. Kathy Hochul claimed victory for a state budget agreement that is already five weeks overdue, and clearly still needs more work.`\
+https://www.nytimes.com/2026/05/08/nyregion/hochul-state-budget-questions.html
+
+**Top Secret**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://www.nytimes.com/2026/05/08/learning/top-secret.html
+
+**Gates Around Washington Square Park? Greenwich Village Is Divided.**\
+`The park in Manhattan, known for its regal arch and freewheeling spirit, has a hard-to-enforce midnight curfew.`\
+https://www.nytimes.com/2026/05/08/nyregion/washington-square-park-gates.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/08/crosswords/spelling-bee-forum.html
+
 **3 Hikers Dead and Several Missing After Volcano Erupts in Indonesia**\
 `The Indonesian authorities reported the deaths after Mount Dukono erupted on Friday morning. Rescue workers are trying to evacuate climbers.`\
 https://www.nytimes.com/2026/05/08/world/asia/indonesia-volcano-eruption-dukono-hikers.html
@@ -49,32 +77,4 @@ https://www.nytimes.com/2026/05/08/world/asia/trump-xi-china-us-iran-munitions.h
 **What Virus Experts Want You to Know About Hantavirus**\
 `News of a hantavirus outbreak on a cruise ship has raised concerns about what this means for the broader public. Nina Agrawal, a reporter for Well, speaks with Dr. Gaby Frank, director of the Special Pathogens Center at Johns Hopkins, to learn more.`\
 https://www.nytimes.com/video/well/100000010887474/what-virus-experts-want-you-to-know-about-hantavirus.html
-
-**Russia in No Mood for Celebration on Kremlin’s Biggest Day of the Year**\
-`As the country heads into Victory Day, the economy is stalling, internet restrictions are growing and the Kremlin is fearing Ukrainian attacks.`\
-https://www.nytimes.com/2026/05/08/world/europe/russia-mood-victory-day.html
-
-**En Los Ángeles, la alcaldesa se enfrenta a rivales de los extremos políticos**\
-`Nithya Raman, concejala liberal, y Spencer Pratt, estrella republicana de la telerrealidad, son los principales contrincantes de Karen Bass, quien busca su segundo mandato.`\
-https://www.nytimes.com/es/2026/05/08/espanol/estados-unidos/elecciones-alcalde-los-angeles.html
-
-**Corrections: May 8, 2026**\
-`Corrections that appeared in print on Friday, May 8, 2026.`\
-https://www.nytimes.com/2026/05/08/pageoneplus/corrections-may-8-2026.html
-
-**Writing About My Mother as if She Were Dead**\
-`I needed distance to write honestly about my childhood. But fiction didn’t protect any of us from pain.`\
-https://www.nytimes.com/2026/05/08/style/modern-love-mothers-day-writing-about-my-mother.html
-
-**They Met One Night in Queens. A Year in St. Lucia Followed.**\
-`A chance meeting in Queens led Shanae Strachan and Lance Growth to build a life between New York and St. Lucia before marrying in Manhattan.`\
-https://www.nytimes.com/2026/05/08/style/shanae-strachan-lance-growth-wedding.html
-
-**Unmistakable Love of Austin, the Texas Longhorns and Each Other**\
-`Adam Mena and Jesse Stowell brought Austin, Texas, alive at their wedding with a taco truck, burnt orange hues and two miniature shaggy Highland cows.`\
-https://www.nytimes.com/2026/05/08/style/adam-mena-jesse-stowell-wedding.html
-
-**She Had Seen Her in Photos. Then They Met in Real Life.**\
-`Nandika Chatterjee had heard about Abigail Braggins from a roommate and thought she was “cute.” A wave in Little Italy sealed their fate.`\
-https://www.nytimes.com/2026/05/08/style/nandika-chatterjee-abigail-braggins-wedding.html
 
