@@ -1,4 +1,12 @@
-**New Postal Service Rule Could Allow Handguns to Be Mailed**\
+**Edith Eva Eger, Psychologist Who Barely Survived Auschwitz, Dies at 98**\
+`Her time in concentration camps brought her an understanding of humanity that helped her treat her patients.`\
+https://www.nytimes.com/2026/05/08/books/edith-eger-dead.html
+
+**Virginia’s Top Court Delivers a Major Victory for Republicans**\
+`Also, what health experts want you to know about hantavirus. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/05/08/briefing/virginia-map-trump-fda.html
+
+**Proposed Rule by Postal Service Could Allow Handguns to Be Mailed**\
 `The proposal comes after the Justice Department said this year that a century-old law banning the practice was unconstitutional. Democratic leaders are calling it “unlawful.”`\
 https://www.nytimes.com/2026/05/08/us/postal-service-handguns-mail.html
 
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/08/world/asia/xia-de-hong-dead.html
 **Mahmoud Khalil Hurtles Toward Potential Deportation as U.S. Speeds Case**\
 `A key judicial decision in Mr. Khalil’s immigration case was expedited significantly and included the recusal of multiple judges.`\
 https://www.nytimes.com/2026/05/08/nyregion/mahmoud-khalil-deportation-case.html
-
-**In one borough on London’s outer reaches, Conservatives stave off Reform U.K.**\
-``\
-https://www.nytimes.com/live/2026/05/08/world/uk-local-elections-results/in-one-borough-on-londons-outer-reaches-conservatives-stave-off-reform-uk
-
-**Democratic Candidates and Voters Challenge Tennessee’s New Map**\
-`A lawsuit, filed in federal court, argues that the new map is unconstitutional because it was approved too close to the August primaries.`\
-https://www.nytimes.com/2026/05/08/us/tennessee-redistricting-lawsuit.html
 
