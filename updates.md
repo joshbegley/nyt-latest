@@ -1,3 +1,27 @@
+**Colorado Fifth Congressional District 2026: Latest Polls**\
+`Track the latest polls in Colorado's 5th Congressional District.`\
+https://www.nytimes.com/interactive/2026/05/08/polls/colorado-us-house-5-polls-2026.html
+
+**Colorado Eighth Congressional District 2026: Latest Polls**\
+`Track the latest polls in Colorado's 8th Congressional District.`\
+https://www.nytimes.com/interactive/polls/colorado-us-house-8-polls-2026.html
+
+**Colorado Third Congressional District 2026: Latest Polls**\
+`Track the latest polls in Colorado's 3rd Congressional District.`\
+https://www.nytimes.com/interactive/polls/colorado-us-house-3-polls-2026.html
+
+**Five Science Fiction Movies to Stream Now**\
+`Among this month’s picks: a zombie road movie, an alien action movie and Gerard Butler in a postapocalyptic sequel.`\
+https://www.nytimes.com/2026/05/08/movies/greenland-2-science-fiction-movies-streaming.html
+
+**What Is Body Dysmorphic Disorder?**\
+`It may look like vanity, but it’s a debilitating mental health condition.`\
+https://www.nytimes.com/2026/05/08/well/mind/body-dysmorphic-disorder-bdd-symptoms.html
+
+**Red Lentil Soup, Forever and Always**\
+`Melissa Clark’s five-star classic, which has nearly 40,000 reviews, and more of our most popular recipes from the week.`\
+https://www.nytimes.com/2026/05/08/dining/red-lentil-soup-forever-and-always.html
+
 **Scotland’s Pro-Independence Party has Benefited From Labour’s Struggles**\
 `The unpopularity of Keir Starmer’s party since he became Britain’s prime minister has helped boost the Scottish National Party.`\
 https://www.nytimes.com/2026/05/08/world/europe/scotland-election-vote-snp-labour-uk.html

@@ -1,3 +1,27 @@
+**Colorado Fifth Congressional District 2026: Latest Polls**\
+`Track the latest polls in Colorado's 5th Congressional District.`\
+https://www.nytimes.com/interactive/2026/05/08/polls/colorado-us-house-5-polls-2026.html
+
+**Colorado Eighth Congressional District 2026: Latest Polls**\
+`Track the latest polls in Colorado's 8th Congressional District.`\
+https://www.nytimes.com/interactive/polls/colorado-us-house-8-polls-2026.html
+
+**Colorado Third Congressional District 2026: Latest Polls**\
+`Track the latest polls in Colorado's 3rd Congressional District.`\
+https://www.nytimes.com/interactive/polls/colorado-us-house-3-polls-2026.html
+
+**Five Science Fiction Movies to Stream Now**\
+`Among this month’s picks: a zombie road movie, an alien action movie and Gerard Butler in a postapocalyptic sequel.`\
+https://www.nytimes.com/2026/05/08/movies/greenland-2-science-fiction-movies-streaming.html
+
+**What Is Body Dysmorphic Disorder?**\
+`It may look like vanity, but it’s a debilitating mental health condition.`\
+https://www.nytimes.com/2026/05/08/well/mind/body-dysmorphic-disorder-bdd-symptoms.html
+
+**Red Lentil Soup, Forever and Always**\
+`Melissa Clark’s five-star classic, which has nearly 40,000 reviews, and more of our most popular recipes from the week.`\
+https://www.nytimes.com/2026/05/08/dining/red-lentil-soup-forever-and-always.html
+
 **Scotland’s Pro-Independence Party has Benefited From Labour’s Struggles**\
 `The unpopularity of Keir Starmer’s party since he became Britain’s prime minister has helped boost the Scottish National Party.`\
 https://www.nytimes.com/2026/05/08/world/europe/scotland-election-vote-snp-labour-uk.html
@@ -53,28 +77,4 @@ https://www.nytimes.com/2026/05/08/arts/design/a-paul-klee-angel-finally-lands-i
 **The Green Party gained ground in some of Labour’s London strongholds.**\
 ``\
 https://www.nytimes.com/live/2026/05/08/world/uk-local-elections-results/the-green-party-gained-ground-in-some-of-labours-london-strongholds
-
-**Two Men Are Convicted of Spying for China in Britain**\
-`The men were arrested in 2024, accused of surveilling dissidents from Hong Kong in Britain. The case sent a chill through pro-democracy protesters who have fled the territory.`\
-https://www.nytimes.com/2026/05/08/world/europe/uk-hong-kong-china-spying.html
-
-**You May Be Owed a Tax Refund From the Covid Era**\
-`A court ruling found that the I.R.S. shouldn’t have charged penalties and interest during the pandemic. But the government may appeal the decision.`\
-https://www.nytimes.com/2026/05/08/your-money/tax-refund-penalties-pandemic.html
-
-**Gerrymandering Pits G.O.P. House Members Against Each Other in California**\
-`Forced to fight for political survival because of redistricting, Ken Calvert and Young Kim, both Republicans, are accusing each other of being insufficiently MAGA.`\
-https://www.nytimes.com/2026/05/08/us/politics/california-republican-kim-calvert-congress.html
-
-**Starmer Takes Responsibility for Big Losses in Early U.K. Election Results**\
-`Prime Minister Keir Starmer of Britain said he took responsibility for large Labour Party losses as local election results trickled in early Friday. The right-wing populist Reform U.K. party looked set for big gains.`\
-https://www.nytimes.com/video/world/europe/100000010891270/uk-local-election-results-starmer.html
-
-**What’s at Stake in the U.K. Local Elections**\
-`The voting in England, Scotland and Wales is the biggest electoral test for Keir Starmer since he became prime minister in 2024.`\
-https://www.nytimes.com/2026/05/08/world/europe/uk-local-elections-starmer.html
-
-**3 Hikers Dead After Indonesian Volcano Eruption**\
-`Three hikers were killed after a volcano in Indonesia erupted, officials said. The authorities said hikers had been banned from climbing Mount Dukono since last month.`\
-https://www.nytimes.com/video/world/asia/100000010891393/indonesia-volcano-eruption-deaths.html
 

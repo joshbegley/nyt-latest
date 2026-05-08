@@ -1,3 +1,15 @@
+**Canvas cierra durante horas tras ciberataque**\
+`Un grupo de hackers se atribuyó la vulneración de datos que afectó a la plataforma de aprendizaje y puso en peligro los datos personales de millones de usuarios.`\
+https://www.nytimes.com/es/2026/05/08/espanol/canvas-hackeo.html
+
+****\
+``\
+https://www.nytimes.com/video/embedded/us/100000010891732/08vid-rubio-embeds.html
+
+**Four Men Found Guilty of Haiti President’s Assassination**\
+`President Jovenel Moïse, 53, was gunned down in his bedroom in July 2021. His killing unleashed a yearslong spiral of gang violence and mayhem in Haiti.`\
+https://www.nytimes.com/2026/05/08/world/americas/haiti-president-assassination-four-men-charged.html
+
 **Colorado Fifth Congressional District 2026: Latest Polls**\
 `Track the latest polls in Colorado's 5th Congressional District.`\
 https://www.nytimes.com/interactive/2026/05/08/polls/colorado-us-house-5-polls-2026.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/08/science/school-playgrounds-environment.html
 **Pentagon Releases Files on U.F.O.s**\
 `The initial files are murky images that show what could be anything. The government said more would be released on a rolling basis.`\
 https://www.nytimes.com/2026/05/08/us/politics/pentagon-ufo-files.html
-
-**Even in Labour-Loyal Wales, Voters Are Looking to Other Parties**\
-`Opinion polls before the election suggested that the right-wing anti-immigration Reform U.K. party and the center-left Plaid Cymru would battle for the top spot in Wales.`\
-https://www.nytimes.com/2026/05/08/world/europe/wales-parliament-uk-election-plaid-cymru-labour.html
-
-**A Paul Klee Angel Finally Lands in New York**\
-`“Angelus Novus,” an artwork with a fascinating back story, including most recently a wartime delay, is a late addition to an already impressive Klee survey at the Jewish Museum.`\
-https://www.nytimes.com/2026/05/08/arts/design/a-paul-klee-angel-finally-lands-in-new-york.html
-
-**The Green Party gained ground in some of Labour’s London strongholds.**\
-``\
-https://www.nytimes.com/live/2026/05/08/world/uk-local-elections-results/the-green-party-gained-ground-in-some-of-labours-london-strongholds
 
