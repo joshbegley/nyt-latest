@@ -1,3 +1,7 @@
+**Late Night Recaps Rubio’s Peacemaking Papal Visit**\
+`Jimmy Fallon joked that President Trump and Pope Leo are putting Marco Rubio, who is Catholic, “in the middle and seeing which parent he goes to.”`\
+https://www.nytimes.com/2026/05/08/arts/television/late-night-rubio-pope.html
+
 **Palabra del día: ‘mitigate’**\
 `Esta palabra ha aparecido en 350 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
 https://www.nytimes.com/es/2026/05/08/espanol/que-significa-mitigate.html
