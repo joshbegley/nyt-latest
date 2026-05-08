@@ -1,3 +1,11 @@
+**3 Hikers Dead After Indonesian Volcano Eruption**\
+`Three hikers were killed after a volcano in Indonesia erupted, officials said. The authorities said hikers had been banned from climbing Mount Dukono since last month.`\
+https://www.nytimes.com/video/world/asia/100000010891393/indonesia-volcano-eruption-deaths.html
+
+**‘Terminator’ Fears and Internal Dysfunction: Inside the OpenAI Trial**\
+`Elon Musk’s court battle against OpenAI has laid bare tensions between the start-up's leaders and raised questions about the billionaire’s motivations.`\
+https://www.nytimes.com/2026/05/08/business/dealbook/musk-openai-trial.html
+
 **‘A Historic Shift’: Farage Celebrates Strong Performance in U.K. Local Elections**\
 `In early results, Nigel Farage’s Reform U.K. party has won more than 400 council races across England.`\
 https://www.nytimes.com/2026/05/08/world/europe/reform-uk-election-results-farage.html
