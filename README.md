@@ -1,3 +1,7 @@
+**There Are Ants in This Canadian Hospital. Again.**\
+`A hospital in Manitoba had to postpone a “limited number of elective surgeries” after ants appeared there for the third time since 2024.`\
+https://www.nytimes.com/2026/05/08/world/canada/canada-hospital-ants-surgeries.html
+
 **Xia De-hong, 94, Dies; Persecuted in China, She Starred in Daughter’s Memoir**\
 `“Wild Swans,” a best-selling 1991 memoir, told the story of a stoic mother holding her family together amid torture and imprisonment under Mao’s regime.`\
 https://www.nytimes.com/2026/05/08/world/asia/xia-de-hong-dead.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/08/well/hantavirus-cruise-ship-outbreak-cases.ht
 **¿Qué es el hantavirus?**\
 `Este virus, transmitido por roedores, está relacionado con un brote mortal en un crucero que navegaba por el océano Atlántico.`\
 https://www.nytimes.com/es/2026/05/08/espanol/hantavirus-que-es.html
-
-**The Action Before the Action at the World Cup**\
-`Before the FIFA World Cup kicks off on June 11, there’s plenty to look out for as the world’s biggest soccer stars descend on North America.`\
-https://www.nytimes.com/2026/05/08/sports/soccer/world-cup-2026-warmup-games.html
 
