@@ -1,3 +1,7 @@
+**3 Hikers Dead After Indonesian Volcano Eruption**\
+`Three hikers were killed after a volcano in Indonesia erupted, officials said. The authorities said hikers had been banned from climbing Mount Dukono since last month.`\
+https://www.nytimes.com/video/world/asia/100000010891393/indonesia-volcano-eruption-deaths.html
+
 **‘Terminator’ Fears and Internal Dysfunction: Inside the OpenAI Trial**\
 `Elon Musk’s court battle against OpenAI has laid bare tensions between the start-up's leaders and raised questions about the billionaire’s motivations.`\
 https://www.nytimes.com/2026/05/08/business/dealbook/musk-openai-trial.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/08/crosswords/wordle-review-1785.html
 **Rubio Meets Meloni, Amid Rocky U.S.-Italian Relations**\
 `Secretary of State Marco Rubio flew to Rome this week after an unexpected spat between President Trump and Prime Minister Giorgia Meloni of Italy, once one of the president’s best friends in Europe.`\
 https://www.nytimes.com/2026/05/08/us/politics/rubio-meloni-italy-us-trump-pope.html
-
-**Artists’ Strike Closes Pavilions at Venice Biennale, Adding to Upheaval**\
-`The hottest exhibitions at the world’s major art exhibition were shuttered on Friday as part of a pro-Palestinian demonstration.`\
-https://www.nytimes.com/2026/05/08/arts/venice-biennale-protests.html
 
