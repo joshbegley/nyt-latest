@@ -1,3 +1,11 @@
+**Today, In Short**\
+`Hantavirus. The W.N.B.A. And are you a good gift giver?`\
+https://www.nytimes.com/2026/05/08/briefing/today-in-short.html
+
+**Kentucky Sixth Congressional District 2026: Latest Polls**\
+`Track the latest polls in Kentucky's 6th Congressional District.`\
+https://www.nytimes.com/interactive/polls/kentucky-us-house-6-polls-2026.html
+
 **Canvas cierra durante horas tras ciberataque**\
 `Un grupo de hackers se atribuyó la vulneración de datos que afectó a la plataforma de aprendizaje y puso en peligro los datos personales de millones de usuarios.`\
 https://www.nytimes.com/es/2026/05/08/espanol/canvas-hackeo.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/08/technology/meta-ai-employees-miserable.html
 **EE. UU. revisará los consulados mexicanos tras reportes de la derecha**\
 `El Departamento de Estado declinó dar detalles sobre lo que implicaría esa revisión, pero dijo que podría conducir al cierre de algunos consulados.`\
 https://www.nytimes.com/es/2026/05/08/espanol/consulados-mexicanos-estados-unidos.html
-
-**She Tried to Help Schools Build Healthier Playgrounds**\
-`Kirsten Beyer was assessing the benefits of improving school playgrounds in Milwaukee. Then her E.P.A. grant was canceled.`\
-https://www.nytimes.com/2026/05/08/science/school-playgrounds-environment.html
-
-**Pentagon Releases Files on U.F.O.s**\
-`The initial files are murky images that show what could be anything. The government said more would be released on a rolling basis.`\
-https://www.nytimes.com/2026/05/08/us/politics/pentagon-ufo-files.html
 
