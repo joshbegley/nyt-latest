@@ -1,3 +1,7 @@
+**Compare the Purported Epstein Suicide Note to His Writings**\
+`The New York Times has not authenticated the note. But some of its phrases are similar or identical to ones Jeffrey Epstein used in emails and another handwritten letter.`\
+https://www.nytimes.com/2026/05/08/nyregion/epstein-suicide-note-phrases.html
+
 **¿Qué es el hantavirus?**\
 `Este virus, transmitido por roedores, está relacionado con un brote mortal en un crucero que navegaba por el océano Atlántico.`\
 https://www.nytimes.com/es/2026/05/08/espanol/hantavirus-que-es.html
