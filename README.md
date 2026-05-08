@@ -1,3 +1,7 @@
+**J.H. Prynne, Erudite and Elusive British Poet, Dies at 89**\
+`Even admirers admitted his densely intellectual work could be “punishing.” Still, some considered him one of England’s most important poets.`\
+https://www.nytimes.com/2026/05/08/books/jh-prynne-dead.html
+
 **Four Takeaways From the U.K. Elections**\
 `Results from municipal and regional elections signaled major gains for the right-wing populist Reform U.K. and steep losses for Labour.`\
 https://www.nytimes.com/2026/05/08/world/europe/uk-elections-local-takeaways.html
@@ -50,7 +54,7 @@ https://www.nytimes.com/2026/05/08/world/africa/festus-mogae-dead.html
 `The ruling was a major lift to the G.O.P. efforts to build a structural advantage through redistricting.`\
 https://www.nytimes.com/2026/05/08/us/politics/virginia-redistricting-gerrymandering-takeaways.html
 
-**Teen Charged in Fatal Stabbing That Police Say Was Inspired By TikTok**\
+**Teen Charged in Fatal Stabbing That Police Say Was Inspired by TikTok**\
 `The police said the teenager, Jayden Sanchez, was motivated by a social media trend to attack Leonides Baez, who had been sleeping on the street.`\
 https://www.nytimes.com/2026/05/08/nyregion/teenager-stabbing-times-square-nyc-tiktok.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/05/08/espanol/opinion/cuba-diaz-canel-estados-un
 **En Rusia, el descontento se cierne sobre las festividades más grandes del año**\
 `Mientras el país se prepara para el Día de la Victoria, la economía se estanca, aumentan las restricciones de internet y el Kremlin teme ataques ucranianos.`\
 https://www.nytimes.com/es/2026/05/08/espanol/mundo/rusia-dia-victoria.html
-
-**As Officials Track Cruise Passengers, Experts Stress Hantavirus Risk Remains Low**\
-`Health officials are closely monitoring those who were exposed for symptoms of the virus, which does not spread easily between humans.`\
-https://www.nytimes.com/2026/05/08/well/hantavirus-cruise-ship-outbreak-cases.html
 
