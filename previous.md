@@ -1,3 +1,7 @@
+**Rubio Meets Meloni, Amid Rocky U.S.-Italian Relations**\
+`Secretary of State Marco Rubio flew to Rome this week after an unexpected spat between President Trump and Prime Minister Giorgia Meloni of Italy, once one of the president’s best friends in Europe.`\
+https://www.nytimes.com/2026/05/08/us/politics/rubio-meloni-italy-us-trump-pope.html
+
 **Artists’ Strike Closes Pavilions at Venice Biennale, Adding to Upheaval**\
 `The hottest exhibitions at the world’s major art exhibition were shuttered on Friday as part of a pro-Palestinian demonstration.`\
 https://www.nytimes.com/2026/05/08/arts/venice-biennale-protests.html
@@ -11,7 +15,7 @@ https://www.nytimes.com/2026/05/08/podcasts/msg-surveillance-edward-snowdens-law
 https://www.nytimes.com/2026/05/08/world/asia/taiwan-trump-military-china-spending-25-billion.html
 
 **Court Decision Leaves South Africa’s President Facing Impeachment Inquiry**\
-`Judges ruled that an impeachment hearing should be held over a case involving money stolen from President Cyril Ramaphosa’s farm six years ago.`\
+`Judges ruled that an impeachment hearing should be held over a case involving money stolen from a couch at President Cyril Ramaphosa’s farm six years ago.`\
 https://www.nytimes.com/2026/05/08/world/africa/south-africa-president-ramaphosa-court-ruling-impeachment.html
 
 **Here’s the latest.**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/08/learning/whats-the-coolest-strangest-or-most-
 **See How the G.O.P. Cut Up a Southern State’s Only Majority Black District**\
 `A recent Supreme Court ruling makes it much harder to argue that a map illegally dilutes Black voting power. Tennessee has since broken up a predominantly Black district.`\
 https://www.nytimes.com/interactive/2026/05/08/us/politics/tennessee-gop-map-black-voters.html
-
-**Trump’s Architecture Rankles. But Why?**\
-`What Trump’s monuments look like to a British architecture writer.`\
-https://www.nytimes.com/2026/05/08/opinion/trump-ballroom-arch-architecture.html
 

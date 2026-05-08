@@ -1,3 +1,11 @@
+**Rubio Meets Meloni, Amid Rocky U.S.-Italian Relations**\
+`Secretary of State Marco Rubio flew to Rome this week after an unexpected spat between President Trump and Prime Minister Giorgia Meloni of Italy, once one of the president’s best friends in Europe.`\
+https://www.nytimes.com/2026/05/08/us/politics/rubio-meloni-italy-us-trump-pope.html
+
+**Court Decision Leaves South Africa’s President Facing Impeachment Inquiry**\
+`Judges ruled that an impeachment hearing should be held over a case involving money stolen from a couch at President Cyril Ramaphosa’s farm six years ago.`\
+https://www.nytimes.com/2026/05/08/world/africa/south-africa-president-ramaphosa-court-ruling-impeachment.html
+
 **Artists’ Strike Closes Pavilions at Venice Biennale, Adding to Upheaval**\
 `The hottest exhibitions at the world’s major art exhibition were shuttered on Friday as part of a pro-Palestinian demonstration.`\
 https://www.nytimes.com/2026/05/08/arts/venice-biennale-protests.html
