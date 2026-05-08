@@ -1,3 +1,7 @@
+**Alabama Asks Supreme Court to Allow it to Use New Voting Map**\
+`State officials urged the justices to allow them to jettison Alabama’s congressional district map, citing the Supreme Court’s recent decision that dealt a blow to the Voting Rights Act.`\
+https://www.nytimes.com/2026/05/08/us/politics/alabama-supreme-court-voting-map.html
+
 **For A Third Time, Elderly Man Is Convicted of a Grisly Murder**\
 `A Brooklyn jury found Harvey Marcelin guilty of the 2022 murder of a woman. He’d been convicted twice before for killing women, starting in the 1960s.`\
 https://www.nytimes.com/2026/05/08/nyregion/murder-brooklyn-dismember-guilty.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/08/us/trump-fda-commissioner-makary.html
 **Pentagon Releases U.F.O. Files**\
 `The Pentagon released “new, never-before-seen” U.F.O. files on Friday. The files include murky videos and still images that do not show anything definitive. The Defense Department said new materials would be released on a rolling basis.`\
 https://www.nytimes.com/video/science/space/100000010892319/trump-ufo-files.html
-
-**In Kristin Smart Case, Soil Suggests Human Remains Once Present in Yard**\
-`A California sheriff said investigators were searching the backyard of a woman whose son was convicted of murdering Ms. Smart, who went missing in 1996.`\
-https://www.nytimes.com/2026/05/08/us/kristin-smart-investigation-san-luis-obispo.html
 

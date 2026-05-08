@@ -1,3 +1,7 @@
+**Alabama Asks Supreme Court to Allow it to Use New Voting Map**\
+`State officials urged the justices to allow them to jettison Alabama’s congressional district map, citing the Supreme Court’s recent decision that dealt a blow to the Voting Rights Act.`\
+https://www.nytimes.com/2026/05/08/us/politics/alabama-supreme-court-voting-map.html
+
 **For A Third Time, Elderly Man Is Convicted of a Grisly Murder**\
 `A Brooklyn jury found Harvey Marcelin guilty of the 2022 murder of a woman. He’d been convicted twice before for killing women, starting in the 1960s.`\
 https://www.nytimes.com/2026/05/08/nyregion/murder-brooklyn-dismember-guilty.html
