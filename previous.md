@@ -1,3 +1,7 @@
+**Cornell Is Investigating Confrontation Between President and Students**\
+`The university’s leader bumped into students as he drove away following an evening of debate over the long-running conflict in the Middle East.`\
+https://www.nytimes.com/2026/05/07/nyregion/cornell-kotlikoff-car-students-investigation.html
+
 **Alaska Can Resume Killing Bears to Protect Caribou Herd, Judge Says**\
 `The state program employs helicopters and small planes to shoot black and brown bears of any age in a large area of southwestern Alaska. Two conservation groups have sued to stop it.`\
 https://www.nytimes.com/2026/05/07/us/alaska-bear-killing-caribou-hunters.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/07/us/politics/trump-paint-eisenhower-building.h
 **F.B.I. Says Austin Bar Shooter Had an ‘Affinity for Iran’**\
 `Investigators said the attacker admired Iran’s leadership and had no ties to a foreign terrorist organization.`\
 https://www.nytimes.com/2026/05/07/us/austin-bar-shooting-gunman-iran-fbi-investigation.html
-
-**Special Counsel to Investigate Trump Administration Lawyer for Possible Misconduct**\
-`Federal judges in Rhode Island ordered an investigation into a lawyer who withheld information about a migrant’s international criminal charges. Now, D.H.S. says it can’t find the migrant.`\
-https://www.nytimes.com/2026/05/07/us/politics/special-counsel-lawyer-misconduct.html
 
