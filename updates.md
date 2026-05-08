@@ -1,3 +1,15 @@
+**Trump Plans to Fire F.D.A. Commissioner Marty Makary**\
+`Dr. Makary has been a supporter of the Make American Healthy Again Movement but made some enemies in the administration over vaping, the abortion pill and rejections of new drugs.`\
+https://www.nytimes.com/2026/05/08/us/trump-fda-commissioner-makary.html
+
+**Pentagon Releases U.F.O. Files**\
+`The Pentagon released “new, never-before-seen” U.F.O. files on Friday. The files include murky videos and still images that do not show anything definitive. The U.S. Department of War said new materials would be released on a rolling basis.`\
+https://www.nytimes.com/video/science/space/100000010892319/trump-ufo-files.html
+
+**In Kristin Smart Case, Soil Suggests Human Remains Once Present in Yard**\
+`A California sheriff said investigators were searching the backyard of a woman whose son was convicted of murdering Ms. Smart, who went missing in 1996.`\
+https://www.nytimes.com/2026/05/08/us/kristin-smart-investigation-san-luis-obispo.html
+
 **The Expansiveness of Our ‘Greatest Songwriters’ List**\
 `Wesley Morris is joined by the “Popcast” hosts Jon Caramanica and Joe Coscarelli and the Times Magazine editor Sasha Weiss to reflect on the making of the “Greatest Songwriters” list.`\
 https://www.nytimes.com/video/podcasts/100000010892730/the-expansiveness-of-our-greatest-songwriters-list.html
