@@ -1,3 +1,7 @@
+**‘The Headlines’ News Quiz: May 8, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/05/08/podcasts/the-headlines/the-headlines-news-quiz-may-8-2026.html
+
 **Can the U.S. Rein in Prediction Markets? + Joanna Stern on Her Year of A.I. Experiments + Our Producer Goes to Attention School**\
 `“It seems every other day I am reading a story about a massive insider trading scandal.”`\
 https://www.nytimes.com/2026/05/08/podcasts/hardfork-prediction-markets.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/08/world/asia/taiwan-trump-military-china-spendi
 **Court Decision Leaves South Africa’s President Facing Impeachment Inquiry**\
 `Judges ruled that an impeachment hearing should be held over a case involving money stolen from a couch at President Cyril Ramaphosa’s farm six years ago.`\
 https://www.nytimes.com/2026/05/08/world/africa/south-africa-president-ramaphosa-court-ruling-impeachment.html
-
-**Here’s the latest.**\
-``\
-https://www.nytimes.com/live/2026/05/08/world/iran-strikes-trump-ceasefire-hormuz/heres-the-latest
 
