@@ -1,3 +1,23 @@
+**If Starmer is badly weakened, who could challenge him for Britain’s top job?**\
+``\
+https://www.nytimes.com/live/2026/05/08/world/uk-local-elections-results/if-starmer-is-badly-weakened-who-could-challenge-him-for-britains-top-job
+
+**Why Wasn’t Billy Joel on Our ‘Greatest Songwriters’ List?**\
+`Wesley Morris is joined by the “Popcast” hosts Jon Caramanica and Joe Coscarelli and the Times Magazine editor Sasha Weiss to reflect on the making of the “Greatest Songwriters” list.`\
+https://www.nytimes.com/video/podcasts/100000010883766/why-wasnt-billy-joel-on-our-greatest-songwriters-list.html
+
+**In Huge Blow to Democrats, Virginia Court Strikes Down House Map**\
+`The decision by the state’s top court is a major victory for Republicans, wiping away a measure approved by voters to allow Democrats to gain as many as four House seats in the midterms.`\
+https://www.nytimes.com/2026/05/08/us/politics/virginia-redistricting-supreme-court.html
+
+**South Carolina First Congressional District 2026: Latest Polls**\
+`Track the latest polls in South Carolina's 1st Congressional District.`\
+https://www.nytimes.com/interactive/polls/south-carolina-us-house-1-polls-2026.html
+
+**Meta’s Embrace of A.I. Is Making Its Employees Miserable**\
+`As it adapts to the artificial intelligence era, the company is pushing many of its 78,000 workers to use the technology, and preparing to lay some of them off.`\
+https://www.nytimes.com/2026/05/08/technology/meta-ai-employees-miserable.html
+
 **EE. UU. revisará los consulados mexicanos tras reportes de la derecha**\
 `El Departamento de Estado declinó dar detalles sobre lo que implicaría esa revisión, pero dijo que podría conducir al cierre de algunos consulados.`\
 https://www.nytimes.com/es/2026/05/08/espanol/consulados-mexicanos-estados-unidos.html
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/05/08/world/europe/reform-uk-election-results-farag
 **Pulitzer Winner Says Don't Kill Your Darlings**\
 `On a recent episode of the “Book Review” podcast, Daniel Kraus, the Pulitzer-winning author of the novel “Angel Down,” shared why the old writing advice to “kill your darlings” has never worked for him. Instead, he believes writers should follow the ideas they love most and let them grow into “incredible monsters.” Tap the link in our bio to hear the full conversation. Video by Sarah Diamond/The New York Times`\
 https://www.nytimes.com/video/podcasts/100000010891379/pulitzer-winner-says-dont-kill-your-darlings.html
-
-**‘The Headlines’ News Quiz: May 8, 2026**\
-`Following the news? Tracy Mumford has some questions for you.`\
-https://www.nytimes.com/2026/05/08/podcasts/the-headlines/the-headlines-news-quiz-may-8-2026.html
-
-**Can the U.S. Rein in Prediction Markets? + Joanna Stern on Her Year of A.I. Experiments + Our Producer Goes to Attention School**\
-`“It seems every other day I am reading a story about a massive insider trading scandal.”`\
-https://www.nytimes.com/2026/05/08/podcasts/hardfork-prediction-markets.html
-
-**Fed Turns Focus to Inflation as Job Market Stabilizes**\
-`April’s report showed employers added more jobs than expected, supporting the central bank’s view that it can afford to hold interest rates steady.`\
-https://www.nytimes.com/2026/05/08/business/economy/jobs-report-inflation-federal-reserve.html
-
-**With fuel costs soaring, Trump insists the economy is strong.**\
-`White House aides have sounded bullish on the jobs report, even as warning signs mount amid the war with Iran.`\
-https://www.nytimes.com/live/2026/05/08/business/jobs-report-economy/with-fuel-costs-soaring-trump-insists-the-economy-is-strong
-
-**What to know about the report.**\
-``\
-https://www.nytimes.com/live/2026/05/08/business/jobs-report-economy/economy-jobs-report
 
