@@ -1,3 +1,11 @@
+**Utah Second Congressional District 2026: Latest Polls**\
+`Track the latest polls in Utah's 2nd Congressional District.`\
+https://www.nytimes.com/interactive/polls/utah-us-house-2-polls-2026.html
+
+**Utah First Congressional District 2026: Latest Polls**\
+`Track the latest polls in Utah's 1st Congressional District.`\
+https://www.nytimes.com/interactive/polls/utah-us-house-1-polls-2026.html
+
 **If Starmer is badly weakened, who could challenge him for Britain’s top job?**\
 ``\
 https://www.nytimes.com/live/2026/05/08/world/uk-local-elections-results/if-starmer-is-badly-weakened-who-could-challenge-him-for-britains-top-job
@@ -69,12 +77,4 @@ https://www.nytimes.com/video/world/asia/100000010891393/indonesia-volcano-erupt
 **‘Terminator’ Fears and Internal Dysfunction: Inside the OpenAI Trial**\
 `Elon Musk’s court battle against OpenAI has laid bare tensions between the start-up's leaders and raised questions about the billionaire’s motivations.`\
 https://www.nytimes.com/2026/05/08/business/dealbook/musk-openai-trial.html
-
-**‘A Historic Shift’: Farage Celebrates Strong Performance in U.K. Local Elections**\
-`In early results, Nigel Farage’s Reform U.K. party has won more than 400 council races across England.`\
-https://www.nytimes.com/2026/05/08/world/europe/reform-uk-election-results-farage.html
-
-**Pulitzer Winner Says Don't Kill Your Darlings**\
-`On a recent episode of the “Book Review” podcast, Daniel Kraus, the Pulitzer-winning author of the novel “Angel Down,” shared why the old writing advice to “kill your darlings” has never worked for him. Instead, he believes writers should follow the ideas they love most and let them grow into “incredible monsters.” Tap the link in our bio to hear the full conversation. Video by Sarah Diamond/The New York Times`\
-https://www.nytimes.com/video/podcasts/100000010891379/pulitzer-winner-says-dont-kill-your-darlings.html
 
