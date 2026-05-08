@@ -1,3 +1,7 @@
+**Oil Prices Rise as U.S. and Iran Test Truce With Military Strikes**\
+`Oil prices rose after the United States attacked Iranian military sites in retaliation for Iran firing on U.S. warships in the Strait of Hormuz`\
+https://www.nytimes.com/2026/05/08/business/oil-gas-price-iran.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/05/08/world/uk-local-elections-results/heres-the-latest
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/07/world/middleeast/trump-ceasefire-lincoln-memo
 **This Pulitzer-Winning Novel Traps You in One Sentence Forever**\
 `The Pulitzer winner Daniel Kraus says his novel “Angel Down,” set in France during World War I, is designed to trap readers inside it forever. On a recent episode of the “Book Review” podcast, Kraus explains why he wrote the book as one continuous sentence and how the structure reflects the endless cycle of violence at the center of the story. Tap the link in our bio to hear the full conversation.`\
 https://www.nytimes.com/video/podcasts/100000010890386/this-pulitzer-winning-novel-traps-you-in-one-sentence-forever.html
-
-**Something That’s Hatched**\
-`Rafael Musa and Geoffrey Schorkopf are back with another stellar themeless.`\
-https://www.nytimes.com/2026/05/07/crosswords/daily-puzzle-2026-05-08.html
 
