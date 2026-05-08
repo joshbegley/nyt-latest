@@ -1,3 +1,15 @@
+**Trump Dismisses Iran’s Strikes as a ‘Trifle’**\
+`President Trump on Thursday said the cease-fire with Iran was still intact after the two countries exchanged fire. He dismissed Iran’s attacks as a “trifle.”`\
+https://www.nytimes.com/video/world/middleeast/100000010891071/trump-iran-war-ceasefire.html
+
+****\
+``\
+https://www.nytimes.com/video/embedded/world/europe/100000010891272/08vid-starmer-embed-28104.html
+
+****\
+``\
+https://www.nytimes.com/video/embedded/world/europe/100000010891278/08vid-farage-embed-14784.html
+
 **‘El diablo viste a la moda’ ha evolucionado con su audiencia**\
 `Los que llegamos a la madurez junto con la protagonista ahora podemos ver que amar tu trabajo no tiene por qué significar convertirte en Miranda Priestly. Puede significar ser Andy Sachs.`\
 https://www.nytimes.com/es/2026/05/08/espanol/cultura/diablo-viste-moda-vida-trabajo.html
