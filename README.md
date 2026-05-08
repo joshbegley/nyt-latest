@@ -1,3 +1,7 @@
+**‘Terminator’ Fears and Internal Dysfunction: Inside the OpenAI Trial**\
+`Elon Musk’s court battle against OpenAI has laid bare tensions between the start-up's leaders and raised questions about the billionaire’s motivations.`\
+https://www.nytimes.com/2026/05/08/business/dealbook/musk-openai-trial.html
+
 **‘A Historic Shift’: Farage Celebrates Strong Performance in U.K. Local Elections**\
 `In early results, Nigel Farage’s Reform U.K. party has won more than 400 council races across England.`\
 https://www.nytimes.com/2026/05/08/world/europe/reform-uk-election-results-farage.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/08/us/politics/rubio-meloni-italy-us-trump-pope.
 **Artists’ Strike Closes Pavilions at Venice Biennale, Adding to Upheaval**\
 `The hottest exhibitions at the world’s major art exhibition were shuttered on Friday as part of a pro-Palestinian demonstration.`\
 https://www.nytimes.com/2026/05/08/arts/venice-biennale-protests.html
-
-**We Survived M.S.G. Surveillance … with Edward Snowden’s Lawyer**\
-`Pablo sees the Knicks and tests the limits of facial recognition.`\
-https://www.nytimes.com/2026/05/08/podcasts/msg-surveillance-edward-snowdens-lawyer.html
 
