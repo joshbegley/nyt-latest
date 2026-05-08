@@ -1,3 +1,27 @@
+**The Resurrection of Michael Jackson**\
+`Can “Michael“ help restore the king of pop’s image? His estate is banking on it.`\
+https://www.nytimes.com/2026/05/08/podcasts/the-daily/michael-jackson-film.html
+
+**Can You Sneak Chocolate Chips From the Pantry?**\
+`A ruling on a dispute over purloined baking ingredients.`\
+https://www.nytimes.com/interactive/2026/05/08/magazine/chocolate-chips-hodgman-quiz.html
+
+**Trump Calls Iran Strikes a ‘Trifle,’ and the Latest on the Hantavirus Outbreak**\
+`Plus, the Friday news quiz.`\
+https://www.nytimes.com/2026/05/08/podcasts/the-headlines/trump-iran-strikes-hantavirus-outbreak.html
+
+**Connections Companion No. 1,063**\
+`Scroll down for hints and conversation about the puzzle for Saturday, May 9, 2026.`\
+https://www.nytimes.com/2026/05/08/crosswords/connections-companion-1063.html
+
+**Strands Sidekick No. 797**\
+`Scroll down for hints and conversation about the puzzle for Saturday, May 9, 2026.`\
+https://www.nytimes.com/2026/05/08/crosswords/strands-sidekick-797.html
+
+**Wordle Review No. 1,785**\
+`Scroll down for hints and conversation about the puzzle for Saturday, May 9, 2025.`\
+https://www.nytimes.com/2026/05/08/crosswords/wordle-review-1785.html
+
 **Rubio Meets Meloni, Amid Rocky U.S.-Italian Relations**\
 `Secretary of State Marco Rubio flew to Rome this week after an unexpected spat between President Trump and Prime Minister Giorgia Meloni of Italy, once one of the president’s best friends in Europe.`\
 https://www.nytimes.com/2026/05/08/us/politics/rubio-meloni-italy-us-trump-pope.html

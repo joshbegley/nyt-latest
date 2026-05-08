@@ -74,7 +74,7 @@ https://www.nytimes.com/2026/05/08/magazine/ai-populism-backlash-altman.html
 `Expertos advierten que ciertos exámenes y fármacos podrían ser innecesarios en pacientes de más edad.`\
 https://www.nytimes.com/es/2026/05/08/espanol/cuando-mas-medicina-no-siempre-es-mejor-en-la-vejez.html
 
-**GLP-1s and the ‘Wild West’ of Wellness**\
+**We’re at the Dawn of the Ozempic Era — and It’s Really Weird**\
 `One in eight American adults is taking GLP-1s. What does that mean for how we relate to our food, bodies and one another?`\
 https://www.nytimes.com/2026/05/08/opinion/ezra-klein-podcast-julia-belluz.html
 

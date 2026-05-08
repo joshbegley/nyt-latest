@@ -1,3 +1,27 @@
+**The Resurrection of Michael Jackson**\
+`Can “Michael“ help restore the king of pop’s image? His estate is banking on it.`\
+https://www.nytimes.com/2026/05/08/podcasts/the-daily/michael-jackson-film.html
+
+**Can You Sneak Chocolate Chips From the Pantry?**\
+`A ruling on a dispute over purloined baking ingredients.`\
+https://www.nytimes.com/interactive/2026/05/08/magazine/chocolate-chips-hodgman-quiz.html
+
+**Trump Calls Iran Strikes a ‘Trifle,’ and the Latest on the Hantavirus Outbreak**\
+`Plus, the Friday news quiz.`\
+https://www.nytimes.com/2026/05/08/podcasts/the-headlines/trump-iran-strikes-hantavirus-outbreak.html
+
+**Connections Companion No. 1,063**\
+`Scroll down for hints and conversation about the puzzle for Saturday, May 9, 2026.`\
+https://www.nytimes.com/2026/05/08/crosswords/connections-companion-1063.html
+
+**Strands Sidekick No. 797**\
+`Scroll down for hints and conversation about the puzzle for Saturday, May 9, 2026.`\
+https://www.nytimes.com/2026/05/08/crosswords/strands-sidekick-797.html
+
+**Wordle Review No. 1,785**\
+`Scroll down for hints and conversation about the puzzle for Saturday, May 9, 2025.`\
+https://www.nytimes.com/2026/05/08/crosswords/wordle-review-1785.html
+
 **Rubio Meets Meloni, Amid Rocky U.S.-Italian Relations**\
 `Secretary of State Marco Rubio flew to Rome this week after an unexpected spat between President Trump and Prime Minister Giorgia Meloni of Italy, once one of the president’s best friends in Europe.`\
 https://www.nytimes.com/2026/05/08/us/politics/rubio-meloni-italy-us-trump-pope.html
@@ -53,28 +77,4 @@ https://www.nytimes.com/es/2026/05/08/espanol/cuando-mas-medicina-no-siempre-es-
 **GLP-1s and the ‘Wild West’ of Wellness**\
 `One in eight American adults is taking GLP-1s. What does that mean for how we relate to our food, bodies and one another?`\
 https://www.nytimes.com/2026/05/08/opinion/ezra-klein-podcast-julia-belluz.html
-
-**The Many Love Lives of Ted Turner**\
-`Known as a playboy, the media mogul gave his paramours and three ex-wives plenty of stories to tell. He also managed to stay friendly with many of them.`\
-https://www.nytimes.com/2026/05/08/style/ted-turner-relationships-wives-jane-fonda.html
-
-**Hegseth Says This War Has Cost $25 Billion. He’s Wrong.**\
-`The war in Iran will cost trillions — far more than current estimates.`\
-https://www.nytimes.com/2026/05/08/opinion/hegseth-war-cost.html
-
-**‘Amadeus’ Review: Mozart vs. Salieri, Round 3**\
-`The story of genius and jealousy, a major award winner onstage and on film, returns as a TV series starring Will Sharpe and Paul Bettany.`\
-https://www.nytimes.com/2026/05/08/arts/television/amadeus-review.html
-
-**Meta Is Dying**\
-`Meta has commenced a long, slow slide into irrelevance.`\
-https://www.nytimes.com/2026/05/08/opinion/meta-facebook-zuckerberg.html
-
-**What’s the Coolest, Strangest or Most Valuable Thing You’ve Ever Found?**\
-`A secret treasure chest is hidden somewhere in San Francisco. Would you want to join the hunt to find it?`\
-https://www.nytimes.com/2026/05/08/learning/whats-the-coolest-strangest-or-most-valuable-thing-youve-ever-found.html
-
-**See How the G.O.P. Cut Up a Southern State’s Only Majority Black District**\
-`A recent Supreme Court ruling makes it much harder to argue that a map illegally dilutes Black voting power. Tennessee has since broken up a predominantly Black district.`\
-https://www.nytimes.com/interactive/2026/05/08/us/politics/tennessee-gop-map-black-voters.html
 
