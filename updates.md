@@ -1,3 +1,19 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/05/08/world/uk-local-elections-results/heres-the-latest
+
+**El nuevo gobierno de Hungría examina la relación de Orbán con China**\
+`Pekín dependía del líder saliente de Hungría, Viktor Orbán, para afianzarse en Europa. Una gigantesca fábrica de baterías resultó ser un paso demasiado audaz.`\
+https://www.nytimes.com/es/2026/05/08/espanol/mundo/china-baterias-europa-orban.html
+
+**¿La IA de Google puede planear tus viajes? Nuestro experto la puso a prueba**\
+`Gemini es una navaja suiza digital para planificar vuelos, actividades e itinerarios, pero no es perfecta. ¿Por qué se le olvidó incluir la ropa interior en la lista de equipaje?`\
+https://www.nytimes.com/es/2026/05/08/espanol/planear-viajes-ia-gemini.html
+
+**Is Trump About to Invite In the Biggest Predator in the World?**\
+`Chinese automakers do not belong on American soil.`\
+https://www.nytimes.com/2026/05/08/opinion/trump-xi-china-us-automakers.html
+
 **China Sees a ‘Giant With a Limp’ as U.S. Drains Weapons on Iran War**\
 `America’s ability to deter China in a war over Taiwan is weakened, Chinese analysts say, giving Beijing leverage in an upcoming summit with President Trump.`\
 https://www.nytimes.com/2026/05/08/world/asia/trump-xi-china-us-iran-munitions.html

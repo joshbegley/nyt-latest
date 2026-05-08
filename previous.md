@@ -1,3 +1,19 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/05/08/world/uk-local-elections-results/heres-the-latest
+
+**El nuevo gobierno de Hungría examina la relación de Orbán con China**\
+`Pekín dependía del líder saliente de Hungría, Viktor Orbán, para afianzarse en Europa. Una gigantesca fábrica de baterías resultó ser un paso demasiado audaz.`\
+https://www.nytimes.com/es/2026/05/08/espanol/mundo/china-baterias-europa-orban.html
+
+**¿La IA de Google puede planear tus viajes? Nuestro experto la puso a prueba**\
+`Gemini es una navaja suiza digital para planificar vuelos, actividades e itinerarios, pero no es perfecta. ¿Por qué se le olvidó incluir la ropa interior en la lista de equipaje?`\
+https://www.nytimes.com/es/2026/05/08/espanol/planear-viajes-ia-gemini.html
+
+**Is Trump About to Invite In the Biggest Predator in the World?**\
+`Chinese automakers do not belong on American soil.`\
+https://www.nytimes.com/2026/05/08/opinion/trump-xi-china-us-automakers.html
+
 **China Sees a ‘Giant With a Limp’ as U.S. Drains Weapons on Iran War**\
 `America’s ability to deter China in a war over Taiwan is weakened, Chinese analysts say, giving Beijing leverage in an upcoming summit with President Trump.`\
 https://www.nytimes.com/2026/05/08/world/asia/trump-xi-china-us-iran-munitions.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/video/podcasts/100000010890386/this-pulitzer-winning-nov
 **Something That’s Hatched**\
 `Rafael Musa and Geoffrey Schorkopf are back with another stellar themeless.`\
 https://www.nytimes.com/2026/05/07/crosswords/daily-puzzle-2026-05-08.html
-
-**Former Sheriff’s Deputy Found Guilty in Fatal Shooting of Ohio Man**\
-`Jason Meade had been searching for a fugitive when he shot Casey Goodson Jr. in 2020. It is rare for a law enforcement official to be convicted in a killing that occurs on the job.`\
-https://www.nytimes.com/2026/05/07/us/ohio-fatal-shooting-jason-meade-casey-goodson.html
-
-**State Department Will Revoke Passports of Parents Who Owe Child Support**\
-`The Trump administration is moving to more strictly enforce a 1996 law that gives the State Department the authority to revoke passports over unpaid child support.`\
-https://www.nytimes.com/2026/05/07/us/politics/passports-revoked-child-support-state-dept.html
-
-**Canvas Online Learning Platform Disabled for Hours After Breach by Hackers**\
-`Most users had regained access to the software late Thursday, hours after a hacking group said it had attacked Canvas’s parent company and gained access to more than 275 million people’s data.`\
-https://www.nytimes.com/2026/05/07/education/canvas-hacked-down-data-breach.html
-
-**Cornell Is Investigating Confrontation Between President and Students**\
-`The university’s leader bumped into students as he drove away following an evening of debate over the long-running conflict in the Middle East.`\
-https://www.nytimes.com/2026/05/07/nyregion/cornell-kotlikoff-car-students-investigation.html
 
