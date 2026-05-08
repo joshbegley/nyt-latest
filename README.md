@@ -1,3 +1,15 @@
+**Philip Caputo, Who Wrote Blistering Vietnam War Memoir, Dies at 84**\
+`“A Rumor of War,” about his service as a Marine Corps infantry officer and published in 1977, relentlessly detailed “the things men do in war and the things war does to them.”`\
+https://www.nytimes.com/2026/05/08/books/philip-caputo-dead.html
+
+**Algunos objetos del Titanic podrían subastarse pronto**\
+`La última vez que se propuso una venta, la idea suscitó objeciones de los gobiernos estadounidense y francés, así como de la UNESCO y otras instituciones culturales.`\
+https://www.nytimes.com/es/2026/05/08/espanol/estados-unidos/titanic-objetos-subasta-dolares.html
+
+**Word of the Day: mitigate**\
+`This word has appeared in 350 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/05/08/learning/word-of-the-day-mitigate.html
+
 **Oil Prices Rise as U.S. and Iran Test Truce With Military Strikes**\
 `Oil prices rose after the United States attacked Iranian military sites in retaliation for Iran firing on U.S. warships in the Strait of Hormuz`\
 https://www.nytimes.com/2026/05/08/business/oil-gas-price-iran.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/08/business/europe-solar-panels-iran-war.html
 **Quote of the Day: Retirement, Then Back To the Grind**\
 `Quotation of the Day for Friday, May 8, 2026.`\
 https://www.nytimes.com/2026/05/07/pageoneplus/quote-of-the-day-retirement-then-back-to-the-grind.html
-
-**U.S. to Review Mexican Consulates After Right-Wing Claims Against Them**\
-`The State Department said it would review all Mexican consulates in the United States, following claims in conservative media that the consulates interfere in politics.`\
-https://www.nytimes.com/2026/05/07/us/politics/mexico-consulates-state-department.html
-
-**Trump Says Cease-Fire Intact After Trade of Attacks in Strait of Hormuz**\
-`The president dismissed Iran’s firing on U.S. vessels in the strait as a mere “trifle.”`\
-https://www.nytimes.com/2026/05/07/world/middleeast/trump-ceasefire-lincoln-memorial.html
-
-**This Pulitzer-Winning Novel Traps You in One Sentence Forever**\
-`The Pulitzer winner Daniel Kraus says his novel “Angel Down,” set in France during World War I, is designed to trap readers inside it forever. On a recent episode of the “Book Review” podcast, Kraus explains why he wrote the book as one continuous sentence and how the structure reflects the endless cycle of violence at the center of the story. Tap the link in our bio to hear the full conversation.`\
-https://www.nytimes.com/video/podcasts/100000010890386/this-pulitzer-winning-novel-traps-you-in-one-sentence-forever.html
 
