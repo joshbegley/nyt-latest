@@ -1,3 +1,31 @@
+**Utah Second Congressional District 2026: Latest Polls**\
+`Track the latest polls in Utah's 2nd Congressional District.`\
+https://www.nytimes.com/interactive/polls/utah-us-house-2-polls-2026.html
+
+**Utah First Congressional District 2026: Latest Polls**\
+`Track the latest polls in Utah's 1st Congressional District.`\
+https://www.nytimes.com/interactive/polls/utah-us-house-1-polls-2026.html
+
+**If Starmer is badly weakened, who could challenge him for Britain’s top job?**\
+``\
+https://www.nytimes.com/live/2026/05/08/world/uk-local-elections-results/if-starmer-is-badly-weakened-who-could-challenge-him-for-britains-top-job
+
+**Why Wasn’t Billy Joel on Our ‘Greatest Songwriters’ List?**\
+`Wesley Morris is joined by the “Popcast” hosts Jon Caramanica and Joe Coscarelli and the Times Magazine editor Sasha Weiss to reflect on the making of the “Greatest Songwriters” list.`\
+https://www.nytimes.com/video/podcasts/100000010883766/why-wasnt-billy-joel-on-our-greatest-songwriters-list.html
+
+**In Huge Blow to Democrats, Virginia Court Strikes Down House Map**\
+`The decision by the state’s top court is a major victory for Republicans, wiping away a measure approved by voters to allow Democrats to gain as many as four House seats in the midterms.`\
+https://www.nytimes.com/2026/05/08/us/politics/virginia-redistricting-supreme-court.html
+
+**South Carolina First Congressional District 2026: Latest Polls**\
+`Track the latest polls in South Carolina's 1st Congressional District.`\
+https://www.nytimes.com/interactive/polls/south-carolina-us-house-1-polls-2026.html
+
+**Meta’s Embrace of A.I. Is Making Its Employees Miserable**\
+`As it adapts to the artificial intelligence era, the company is pushing many of its 78,000 workers to use the technology, and preparing to lay some of them off.`\
+https://www.nytimes.com/2026/05/08/technology/meta-ai-employees-miserable.html
+
 **EE. UU. revisará los consulados mexicanos tras reportes de la derecha**\
 `El Departamento de Estado declinó dar detalles sobre lo que implicaría esa revisión, pero dijo que podría conducir al cierre de algunos consulados.`\
 https://www.nytimes.com/es/2026/05/08/espanol/consulados-mexicanos-estados-unidos.html

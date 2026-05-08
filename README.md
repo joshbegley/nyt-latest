@@ -15,7 +15,7 @@ https://www.nytimes.com/live/2026/05/08/world/uk-local-elections-results/if-star
 https://www.nytimes.com/video/podcasts/100000010883766/why-wasnt-billy-joel-on-our-greatest-songwriters-list.html
 
 **In Huge Blow to Democrats, Virginia Court Strikes Down House Map**\
-`The decision by the state’s top court is a major victory for Republicans, wiping away a measure approved by voters to allow Democrats to gain as many as four House seats in the midterms.`\
+`The decision is a major victory for Republicans, wiping away a measure approved by voters to allow Democrats to gain as many as four House seats in the midterms.`\
 https://www.nytimes.com/2026/05/08/us/politics/virginia-redistricting-supreme-court.html
 
 **South Carolina First Congressional District 2026: Latest Polls**\
