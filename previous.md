@@ -1,9 +1,21 @@
+**4 Takeaways From the Virginia Supreme Court Gerrymandering Decision**\
+`The ruling was a major lift to the G.O.P. efforts to build a structural advantage through redistricting.`\
+https://www.nytimes.com/2026/05/08/us/politics/virginia-redistricting-gerrymandering-takeaways.html
+
+**Teen Charged in Fatal Stabbing That Police Say Was Inspired By TikTok**\
+`The police said the teenager, Jayden Sanchez, was motivated by a social media trend to attack Leonides Baez, who had been sleeping on the street.`\
+https://www.nytimes.com/2026/05/08/nyregion/teenager-stabbing-times-square-nyc-tiktok.html
+
+**A Large Oil Slick Is Detected Off a Key Iranian Oil Depot**\
+`The slick, captured in satellite images near Kharg Island in the Persian Gulf, has raised concerns about the condition of Iran’s oil infrastructure.`\
+https://www.nytimes.com/2026/05/08/climate/iran-kharg-oil-spill-hormuz.html
+
 **Why Wasn’t Beyoncé on Our ‘Greatest Songwriters’ List?**\
 `Wesley Morris is joined by the “Popcast” hosts Jon Caramanica and Joe Coscarelli and the Times Magazine editor Sasha Weiss to reflect on the making of the “Greatest Songwriters” list.`\
 https://www.nytimes.com/video/podcasts/100000010883839/why-wasnt-beyonce-on-our-greatest-songwriters-list.html
 
 **Trump Administration Targets 12 Immigrants to Revoke Citizenship**\
-`The Americans are accused of fraud or other misdeeds that can qualify them to lose their citizenship, but denaturalization has been done rarely in the past.`\
+`The targeted Americans are accused of fraud or other misdeeds that can qualify them to lose citizenship, but denaturalization has rarely been invoked in the past.`\
 https://www.nytimes.com/2026/05/08/us/politics/trump-immigrants-citizenship.html
 
 **Mi padre solía escribirle al gobierno cubano. Ahora me toca a mí**\
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/08/business/trump-tariffs-china-talks.html
 **Why Everyone Was So Mad About the Met Gala**\
 `Plus, a remembrance of Ted Turner and a tank top quandary.`\
 https://www.nytimes.com/2026/05/08/style/why-everyone-was-so-mad-about-the-met-gala.html
-
-****\
-``\
-https://www.nytimes.com/video/embedded/world/europe/100000010891908/08vid-swinney-embed-32878.html
-
-**El Pentágono publica archivos sobre ovnis**\
-`Los primeros archivos incluyen imágenes fijas borrosas que muestran lo que podría ser cualquier cosa. El gobierno estadounidense dijo que publicarán más de forma continua.`\
-https://www.nytimes.com/es/2026/05/08/espanol/estados-unidos/pentagono-ovnis.html
-
-**Iran Says It Seized Oil Tanker Listed by U.S. as Sanctions Violator**\
-`A maritime tracking company said the move was likely performative, given the Chinese-owned ship has an “established history within the Iranian trade ecosystem.”`\
-https://www.nytimes.com/2026/05/08/business/iran-war-tanker-ocean-koi.html
 

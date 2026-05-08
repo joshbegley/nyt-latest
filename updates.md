@@ -1,3 +1,19 @@
+**4 Takeaways From the Virginia Supreme Court Gerrymandering Decision**\
+`The ruling was a major lift to the G.O.P. efforts to build a structural advantage through redistricting.`\
+https://www.nytimes.com/2026/05/08/us/politics/virginia-redistricting-gerrymandering-takeaways.html
+
+**Teen Charged in Fatal Stabbing That Police Say Was Inspired By TikTok**\
+`The police said the teenager, Jayden Sanchez, was motivated by a social media trend to attack Leonides Baez, who had been sleeping on the street.`\
+https://www.nytimes.com/2026/05/08/nyregion/teenager-stabbing-times-square-nyc-tiktok.html
+
+**A Large Oil Slick Is Detected Off a Key Iranian Oil Depot**\
+`The slick, captured in satellite images near Kharg Island in the Persian Gulf, has raised concerns about the condition of Iran’s oil infrastructure.`\
+https://www.nytimes.com/2026/05/08/climate/iran-kharg-oil-spill-hormuz.html
+
+**Trump Administration Targets 12 Immigrants to Revoke Citizenship**\
+`The targeted Americans are accused of fraud or other misdeeds that can qualify them to lose citizenship, but denaturalization has rarely been invoked in the past.`\
+https://www.nytimes.com/2026/05/08/us/politics/trump-immigrants-citizenship.html
+
 **Why Wasn’t Beyoncé on Our ‘Greatest Songwriters’ List?**\
 `Wesley Morris is joined by the “Popcast” hosts Jon Caramanica and Joe Coscarelli and the Times Magazine editor Sasha Weiss to reflect on the making of the “Greatest Songwriters” list.`\
 https://www.nytimes.com/video/podcasts/100000010883839/why-wasnt-beyonce-on-our-greatest-songwriters-list.html

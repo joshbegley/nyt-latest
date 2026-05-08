@@ -1,3 +1,11 @@
+**Before Hantavirus Outbreak, This Cruise Attracted ‘a Different Type of Traveler’**\
+`Former passengers on the MV Hondius say that the ship was made for wildlife expeditions and that the crew took safety very seriously.`\
+https://www.nytimes.com/2026/05/08/world/hantavirus-mv-hondius-cruise.html
+
+**Festus Mogae, Botswana President Who Tackled H.I.V., Dies at 86**\
+`He led the southern African nation for a decade and embraced a flagship American aid program credited with helping to eradicate the country’s AIDS epidemic.`\
+https://www.nytimes.com/2026/05/08/world/africa/festus-mogae-dead.html
+
 **4 Takeaways From the Virginia Supreme Court Gerrymandering Decision**\
 `The ruling was a major lift to the G.O.P. efforts to build a structural advantage through redistricting.`\
 https://www.nytimes.com/2026/05/08/us/politics/virginia-redistricting-gerrymandering-takeaways.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/video/embedded/world/europe/100000010891937/08vid-garbet
 **Mapping the Knockout Stage: Where Will Your Team Play in the World Cup?**\
 `What city is your team most likely to play in during the elimination phase?`\
 https://www.nytimes.com/interactive/2026/05/08/upshot/world-cup-odds.html
-
-**Trump’s Latest Tariff Setback Looms Over China Talks**\
-`For the president, a major legal defeat could undercut his leverage as he prepares to head to Beijing next week for high-stakes trade negotiations.`\
-https://www.nytimes.com/2026/05/08/business/trump-tariffs-china-talks.html
-
-**Why Everyone Was So Mad About the Met Gala**\
-`Plus, a remembrance of Ted Turner and a tank top quandary.`\
-https://www.nytimes.com/2026/05/08/style/why-everyone-was-so-mad-about-the-met-gala.html
 
