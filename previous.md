@@ -1,3 +1,7 @@
+**Former Sheriff’s Deputy Found Guilty in Fatal Shooting of Ohio Man**\
+`Jason Meade had been searching for a fugitive when he shot Casey Goodson Jr. in 2020. It is rare for a law enforcement official to be convicted in a killing that occurs on the job.`\
+https://www.nytimes.com/2026/05/07/us/ohio-fatal-shooting-jason-meade-casey-goodson.html
+
 **State Department Will Revoke Passports of Parents Who Owe Child Support**\
 `The Trump administration is moving to more strictly enforce a 1996 law that gives the State Department the authority to revoke passports over unpaid child support.`\
 https://www.nytimes.com/2026/05/07/us/politics/passports-revoked-child-support-state-dept.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/07/briefing/trade-court-trump-tariffs.html
 **Tennessee Passes New Redistricting Map, Breaks Up State’s Lone Democratic District**\
 `Gov. Bill Lee of Tennessee signed a new congressional map into law on Thursday that slices up Memphis to scatter Black voters into neighboring districts, a move intended to eliminate the state’s last Democratic House seat.`\
 https://www.nytimes.com/video/us/100000010889726/tennessee-redistricting-congressional-map.html
-
-**La OMS anticipa brote ‘limitado’ de hantavirus mientras se busca a más infectados**\
-`Una azafata neerlandesa y un ciudadano francés han sido los últimos en someterse a pruebas en relación con un brote mortal en un crucero. Un análisis en Sudáfrica no mostró mutaciones en las muestras víricas.`\
-https://www.nytimes.com/es/2026/05/07/espanol/mundo/hantavirus-crucero-brote-infectados-oms.html
 

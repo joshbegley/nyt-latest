@@ -1,3 +1,7 @@
+**Former Sheriff’s Deputy Found Guilty in Fatal Shooting of Ohio Man**\
+`Jason Meade had been searching for a fugitive when he shot Casey Goodson Jr. in 2020. It is rare for a law enforcement official to be convicted in a killing that occurs on the job.`\
+https://www.nytimes.com/2026/05/07/us/ohio-fatal-shooting-jason-meade-casey-goodson.html
+
 **State Department Will Revoke Passports of Parents Who Owe Child Support**\
 `The Trump administration is moving to more strictly enforce a 1996 law that gives the State Department the authority to revoke passports over unpaid child support.`\
 https://www.nytimes.com/2026/05/07/us/politics/passports-revoked-child-support-state-dept.html
