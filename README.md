@@ -1,3 +1,7 @@
+**Live: Ezra Klein Moderates California Housing Forum With Candidates for Governor**\
+`The Opinion columnist Ezra Klein moderates a forum with five of the top candidates for governor of California.`\
+https://www.nytimes.com/2026/05/08/opinion/ezra-klein-podcast-housing-forum.html
+
 **Norovirus Outbreak Sickens 115 on Cruise Ship**\
 `More than 100 passengers and 13 crew members on the Caribbean Princess reported being ill, according to the Centers for Disease Control and Prevention.`\
 https://www.nytimes.com/2026/05/08/world/americas/norovirus-outbreak-cruise-ship.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/08/business/bowling-lucky-strike-lawsuit.html
 **Justice Dept. Settles Case Against Provider of Meat Industry Data**\
 `Under the agreement, Agri Stats would pay a fine and broaden whom it sold its pricing data to. The department said the move would help reduce food costs.`\
 https://www.nytimes.com/2026/05/08/business/agri-stats-meat-antitrust-settlement.html
-
-**The Wisdom of Our Mothers**\
-`Readers share thoughtful, practical and often funny advice from their moms.`\
-https://www.nytimes.com/interactive/2026/05/08/well/family/mom-advice-mothers-day.html
 
