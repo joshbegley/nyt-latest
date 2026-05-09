@@ -1,3 +1,7 @@
+**Bobby Cox, One of Baseball’s Top Managers, Dies at 84**\
+`He led the Atlanta Braves to victory in the 1990s and was later inducted into the Baseball Hall of Fame for his leadership.`\
+https://www.nytimes.com/2026/05/09/us/bobby-cox-dead.html
+
 **Passengers on Ship Struck by Hantavirus to Disembark on Sunday**\
 `The cruise ship will arrive on the island of Tenerife, part of the Canary Islands of Spain, officials said. All of the passengers will then be evacuated to their home countries.`\
 https://www.nytimes.com/2026/05/09/world/africa/hantavirus-ship-passengers-evacuate.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/09/opinion/ted-turner-death-jane-fonda-cnn.html
 **High Gas Prices Are Just the Beginning**\
 `How the economic shock waves of Trump’s Iran war will be felt globally.`\
 https://www.nytimes.com/2026/05/09/opinion/iran-war-global-economy-risk-green-energy-shift.html
-
-**The Atheist and the Machine God**\
-`What are the implications of artificial intelligence for religion?`\
-https://www.nytimes.com/2026/05/09/opinion/artificial-intelligence-consciousness-richard-dawkins.html
 
