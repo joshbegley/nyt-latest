@@ -1,3 +1,7 @@
+**A Personal Finance Star on What Millennials Need From Their Boomer Parents**\
+`Ramit Sethi wants everyone to have a healthier relationship to money, and thinks he knows how to get us there.`\
+https://www.nytimes.com/2026/05/09/magazine/ramit-sethi-interview.html
+
 **Las personas con la que Trump no puede negociar**\
 `Hay gente que tiene creencias que no son negociables. Trump se siente desconcertado cuando se encuentra con posturas así de firmes.`\
 https://www.nytimes.com/es/2026/05/09/espanol/opinion/trump-iran-ucrania-guerra.html

@@ -1,3 +1,7 @@
+**A Personal Finance Star on What Millennials Need From Their Boomer Parents**\
+`Ramit Sethi wants everyone to have a healthier relationship to money, and thinks he knows how to get us there.`\
+https://www.nytimes.com/2026/05/09/magazine/ramit-sethi-interview.html
+
 **Las personas con la que Trump no puede negociar**\
 `Hay gente que tiene creencias que no son negociables. Trump se siente desconcertado cuando se encuentra con posturas así de firmes.`\
 https://www.nytimes.com/es/2026/05/09/espanol/opinion/trump-iran-ucrania-guerra.html
@@ -18,13 +22,13 @@ https://www.nytimes.com/2026/05/09/us/politics/virginia-redistricting-democrats-
 `David Marchese speaks to Ramit Sethi, the author of the 2009 New York Times Best Seller, I Will Teach You to Be Rich, host of the I Will Teach You To Be Rich podcast, and host of the 2023 Netflix series titled How to Get Rich.`\
 https://www.nytimes.com/video/podcasts/100000010892355/a-personal-finance-star-on-what-millennials-need-from-their-boomer-parents.html
 
-**6 Must-See Venice Shows**\
-`Thought-provoking and senses-stirring works on war, art patronage, and the Black experience in America are just some of our critics’ picks.`\
-https://www.nytimes.com/2026/05/09/arts/venice-biennale-shows-to-see.html
-
 **How ‘The View’ Landed at the Center of a Free Speech Battle**\
 `The Trump administration’s focus on the show is testament to the enduring influence of an old-fashioned broadcast TV program started 29 years ago.`\
 https://www.nytimes.com/2026/05/09/business/media/the-view-fcc-trump.html
+
+**6 Must-See Venice Shows**\
+`Thought-provoking and senses-stirring works on war, art patronage, and the Black experience in America are just some of our critics’ picks.`\
+https://www.nytimes.com/2026/05/09/arts/venice-biennale-shows-to-see.html
 
 **For Struggling JetBlue, Spirit’s Demise May Offer an Opportunity**\
 `JetBlue Airways is adding flights at Spirit Airlines’ former home airport as it tries to turn a profit again.`\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/09/us/college-boxing-harvard.html
 **Long Overlooked, Caspian Sea Provides Strategic Trade Route for Iran**\
 `The landlocked body of water has taken on new significance, with Russia shipping military and commercial goods to bolster Tehran’s ability to withstand the U.S. assault.`\
 https://www.nytimes.com/2026/05/09/world/middleeast/caspian-sea-iran-russia.html
-
-**These Artisans, Showing at TEFAF New York, Push the Limits of Materials**\
-`A couple grow their own furniture. Another artist polishes metal to a mirror sheen. A third collaborates with insects. Together, they are redefining craft.`\
-https://www.nytimes.com/2026/05/09/arts/design/tefaf-new-york-sarah-myerscough-gallery.html
 
