@@ -1,3 +1,7 @@
+**China’s Exports and Imports Set Records in April Amid High Energy Costs**\
+`The country’s exports surged and its trade surplus with the United States widened ahead of President Trump’s scheduled visit next week to Beijing.`\
+https://www.nytimes.com/2026/05/09/business/china-april-trade-exports-imports.html
+
 **¿Puede la motosierra de Milei dar un nuevo impulso a la derecha global?**\
 `Con su cruzada desreguladora, Javier Milei se convirtió en una figura estelar del universo MAGA. Pero en Argentina, su experimento de ajuste extremo enfrenta un momento decisivo.`\
 https://www.nytimes.com/es/2026/05/09/espanol/america-latina/motosierra-milei-argentina-derecha.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/08/us/valentina-orellana-peralta-police-shooting
 **Blake Lively Settlement Had No Financial Payout, Filing Confirms**\
 `Justin Baldoni’s company did not agree to make a payout as part of the deal that ended Ms. Lively’s lawsuit, but she is able to seek compensation through a separate legal avenue.`\
 https://www.nytimes.com/2026/05/08/movies/blake-lively-justin-baldoni-settlement.html
-
-**Live: Ezra Klein Moderates California Housing Forum With Candidates for Governor**\
-`The Opinion columnist Ezra Klein moderates a forum with five of the top candidates for governor of California.`\
-https://www.nytimes.com/2026/05/08/opinion/ezra-klein-podcast-housing-forum.html
 
