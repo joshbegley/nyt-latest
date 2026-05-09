@@ -1,3 +1,11 @@
+**The Man Who Broke Labour’s Dominance in Wales**\
+`Rhun ap Iorwerth, a former journalist, led his party to the most seats in the Welsh Parliament, ousting the Labour Party, which had long held sway, and beating Reform U.K.`\
+https://www.nytimes.com/2026/05/09/world/europe/uk-elections-wales-iorwerth.html
+
+**All Those A.I. Note Takers? They’re Making Lawyers Very Nervous.**\
+`A trendy productivity hack, A.I. note takers are capturing every joke and offhand comment in many meetings. They could also potentially waive attorney-client privilege.`\
+https://www.nytimes.com/2026/05/09/business/dealbook/ai-notetakers-legal-risk.html
+
 **Why Antiwar Protesters are Rallying in Japan**\
 `Demonstrators are opposed to Prime Minister Sanae Takaichi’s efforts to build up military power and move the country away from its pacifist identity.`\
 https://www.nytimes.com/2026/05/09/world/asia/japan-antiwar-protests-constitution.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/09/crosswords/strands-sidekick-798.html
 **Canada and the European Union Are in Love. Where Can It Lead?**\
 `A rapid trip with the prime minister to Armenia highlighted the new era of amity between Canada and the European Union. We examine what that can and can’t do for Canadians.`\
 https://www.nytimes.com/2026/05/09/world/canada/carney-canada-european-union-trade-trump.html
-
-**Frontier Jet Aborts Takeoff as Pilots Report Hitting Person on Denver Runway**\
-`The plane suffered an engine fire but was safely evacuated. Details were not available about the person the Frontier Airlines pilots said was hit.`\
-https://www.nytimes.com/2026/05/09/us/frontier-airlines-plane-collision-denver.html
-
-**Russia Has Lost More Than 350,000 Soldiers, New Estimate Finds**\
-`The number raises the prospect that about half a million soldiers in total have died on the Russian and Ukrainian sides.`\
-https://www.nytimes.com/2026/05/09/world/europe/russia-ukraine-war-death-toll.html
 
