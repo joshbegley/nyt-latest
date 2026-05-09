@@ -1,3 +1,7 @@
+**Hantavirus Vaccines and Treatments Are in the Pipeline**\
+`But it has been hard to attract interest in medical interventions for viruses that have not been considered a top public health priority, scientists say.`\
+https://www.nytimes.com/2026/05/09/science/hantavirus-vaccines-treatment.html
+
 **Our Elections Are Broken**\
 `Black Americans in the South will likely lose most of their federal representation as a result of the Supreme Court’s recent erosion of the Voting Rights Act, the Opinion columnist Jamelle Bouie argues. This is only one of the reasons the United States needs to transform the current Electoral College system.`\
 https://www.nytimes.com/video/opinion/100000010889937/our-elections-are-broken.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/09/briefing/early-adopter.html
 **Is It Wrong to Work for a Charity That’s Funded by a Questionable Source?**\
 `It feels as if I would be helping to burnish the reputation of someone whose actions and public statements I deeply disapprove of.`\
 https://www.nytimes.com/2026/05/09/magazine/work-charity-funding-ethics.html
-
-**Wordle Review No. 1,786**\
-`Scroll down for hints and conversation about the puzzle for Sunday, May 10, 2026.`\
-https://www.nytimes.com/2026/05/09/crosswords/wordle-review-1786.html
 
