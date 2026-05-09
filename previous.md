@@ -1,3 +1,11 @@
+**David Attenborough, la voz de la naturaleza, cumple 100 años**\
+`Imágenes y momentos importantes de la trayectoria del que quizá sea el naturalista más célebre del mundo.`\
+https://www.nytimes.com/es/2026/05/08/espanol/ciencia-y-tecnologia/david-attenborough-100-anos.html
+
+**Iranian Propaganda vs. U.S. Talking Points: How We Determined the Real Damage to U.S. Military Bases**\
+`Amid the barrage of messages and misinformation swirling online and on Capitol Hill, about what damage U.S. military sites incurred during the conflict with Iran, a Times analysis of satellite imagery shows 18 sites in seven countries were hit.`\
+https://www.nytimes.com/video/world/middleeast/100000010868609/iran-war-us-military-base-damage.html
+
 **Jury Finds City of L.A. Not Liable in 2021 Police Shooting of Teen Girl**\
 `The death of Valentina Orellana-Peralta, a 14-year-old bystander, occurred at a store where the police were responding to reports of an assault.`\
 https://www.nytimes.com/2026/05/08/us/valentina-orellana-peralta-police-shooting-los-angeles.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/08/briefing/virginia-map-trump-fda.html
 **Proposed Rule by Postal Service Could Allow Handguns to Be Mailed**\
 `The proposal comes after the Justice Department said this year that a century-old law banning the practice was unconstitutional. Democratic leaders are calling it “unlawful.”`\
 https://www.nytimes.com/2026/05/08/us/postal-service-handguns-mail.html
-
-**What Our Reporter Saw in Iowa During Vance’s Splashy, 2028-Coded Trip**\
-`The vice president dropped into the state to stump for a vulnerable House Republican and, maybe, lay a little groundwork for a potential presidential run.`\
-https://www.nytimes.com/2026/05/08/us/politics/jd-vance-iowa-2028.html
-
-**Alex Zanardi, Racer Who Made Daring Comeback After Crash, Dies at 59**\
-`After losing both legs, the Italian champion persevered in auto racing. He also became a hand-cycling marathoner and Paralympian.`\
-https://www.nytimes.com/2026/05/08/sports/alex-zanardi-dead.html
 

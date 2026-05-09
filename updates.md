@@ -1,3 +1,11 @@
+**David Attenborough, la voz de la naturaleza, cumple 100 años**\
+`Imágenes y momentos importantes de la trayectoria del que quizá sea el naturalista más célebre del mundo.`\
+https://www.nytimes.com/es/2026/05/08/espanol/ciencia-y-tecnologia/david-attenborough-100-anos.html
+
+**Iranian Propaganda vs. U.S. Talking Points: How We Determined the Real Damage to U.S. Military Bases**\
+`Amid the barrage of messages and misinformation swirling online and on Capitol Hill, about what damage U.S. military sites incurred during the conflict with Iran, a Times analysis of satellite imagery shows 18 sites in seven countries were hit.`\
+https://www.nytimes.com/video/world/middleeast/100000010868609/iran-war-us-military-base-damage.html
+
 **Jury Finds City of L.A. Not Liable in 2021 Police Shooting of Teen Girl**\
 `The death of Valentina Orellana-Peralta, a 14-year-old bystander, occurred at a store where the police were responding to reports of an assault.`\
 https://www.nytimes.com/2026/05/08/us/valentina-orellana-peralta-police-shooting-los-angeles.html
