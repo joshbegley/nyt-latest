@@ -1,3 +1,15 @@
+**Dynamic Duos are on Display in New York This Spring**\
+`Three exhibitions are pairing artists to reveal how their works complement — or contrast with — each other.`\
+https://www.nytimes.com/2026/05/08/arts/design/tefaf-new-york-duos-exhibitions.html
+
+**Beyond Resilience: Park Daesung Is Suddenly Everywhere**\
+`The Korean artist is nearly 81, but his works have been featured in shows in Chicago, London, Washington and Los Angeles. Now they are also headed to TEFAF New York.`\
+https://www.nytimes.com/2026/05/08/arts/design/tefaf-new-york-park-daesung.html
+
+**Man Dies in Subway Attack; Mamdani Orders Inquiry Into Suspect’s Release From Bellevue**\
+`A 76-year-old man died after he was pushed down subway stairs, and the police arrested a suspect who had been discharged from the public hospital’s psychiatric unit hours earlier.`\
+https://www.nytimes.com/2026/05/08/nyregion/mamdani-bellevue-subway-attack-investigation.html
+
 **Mamdani Orders Investigation Into Bellevue After Unprovoked Attack**\
 `A 76-year-old man died after he was pushed down subway stairs by a man who had been discharged from the psychiatric unit at the public hospital hours earlier.`\
 https://www.nytimes.com/2026/05/08/nyregion/mamdani-bellevue-subway-attack-investigation.html
