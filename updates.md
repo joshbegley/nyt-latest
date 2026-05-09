@@ -1,3 +1,27 @@
+**Early Adopter**\
+`Why does it feel worse to be early than to rush and stress and arrive a little late?`\
+https://www.nytimes.com/2026/05/09/briefing/early-adopter.html
+
+**Is It Wrong to Work for a Charity That’s Funded by a Questionable Source?**\
+`It feels as if I would be helping to burnish the reputation of someone whose actions and public statements I deeply disapprove of.`\
+https://www.nytimes.com/2026/05/09/magazine/work-charity-funding-ethics.html
+
+**Wordle Review No. 1,786**\
+`Scroll down for hints and conversation about the puzzle for Sunday, May 10, 2026.`\
+https://www.nytimes.com/2026/05/09/crosswords/wordle-review-1786.html
+
+**Connections Companion No. 1,064**\
+`Scroll down for hints and conversation about the puzzle for Sunday, May 10, 2026`\
+https://www.nytimes.com/2026/05/09/crosswords/connections-companion-1064.html
+
+**Strands Sidekick No. 798**\
+`Scroll down for hints and conversation about the puzzle for Sunday, May 10, 2026.`\
+https://www.nytimes.com/2026/05/09/crosswords/strands-sidekick-798.html
+
+**Canada and the European Union Are in Love. Where Can It Lead?**\
+`A rapid trip with the prime minister to Armenia highlighted the new era of amity between Canada and the European Union. We examine what that can and can’t do for Canadians.`\
+https://www.nytimes.com/2026/05/09/world/canada/carney-canada-european-union-trade-trump.html
+
 **Frontier Jet Aborts Takeoff as Pilots Report Hitting Person on Denver Runway**\
 `The plane suffered an engine fire but was safely evacuated. Details were not available about the person the Frontier Airlines pilots said was hit.`\
 https://www.nytimes.com/2026/05/09/us/frontier-airlines-plane-collision-denver.html

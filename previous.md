@@ -1,3 +1,27 @@
+**Early Adopter**\
+`Why does it feel worse to be early than to rush and stress and arrive a little late?`\
+https://www.nytimes.com/2026/05/09/briefing/early-adopter.html
+
+**Is It Wrong to Work for a Charity That’s Funded by a Questionable Source?**\
+`It feels as if I would be helping to burnish the reputation of someone whose actions and public statements I deeply disapprove of.`\
+https://www.nytimes.com/2026/05/09/magazine/work-charity-funding-ethics.html
+
+**Wordle Review No. 1,786**\
+`Scroll down for hints and conversation about the puzzle for Sunday, May 10, 2026.`\
+https://www.nytimes.com/2026/05/09/crosswords/wordle-review-1786.html
+
+**Connections Companion No. 1,064**\
+`Scroll down for hints and conversation about the puzzle for Sunday, May 10, 2026`\
+https://www.nytimes.com/2026/05/09/crosswords/connections-companion-1064.html
+
+**Strands Sidekick No. 798**\
+`Scroll down for hints and conversation about the puzzle for Sunday, May 10, 2026.`\
+https://www.nytimes.com/2026/05/09/crosswords/strands-sidekick-798.html
+
+**Canada and the European Union Are in Love. Where Can It Lead?**\
+`A rapid trip with the prime minister to Armenia highlighted the new era of amity between Canada and the European Union. We examine what that can and can’t do for Canadians.`\
+https://www.nytimes.com/2026/05/09/world/canada/carney-canada-european-union-trade-trump.html
+
 **Frontier Jet Aborts Takeoff as Pilots Report Hitting Person on Denver Runway**\
 `The plane suffered an engine fire but was safely evacuated. Details were not available about the person the Frontier Airlines pilots said was hit.`\
 https://www.nytimes.com/2026/05/09/us/frontier-airlines-plane-collision-denver.html
@@ -53,28 +77,4 @@ https://www.nytimes.com/2026/05/09/us/politics/how-minority-districts-fueled-the
 **A Ritalin Ruler and a Xanax Photo Frame? I’ll Take One of Each.**\
 `The days of giving pharmaceutical-branded swag to health care professionals are largely over. Now those items are hot on the thrifting scene.`\
 https://www.nytimes.com/2026/05/09/style/pharma-drugs-merch-swag-vintage.html
-
-**Two Court Decisions Have Unleashed an Era of Perpetual Redistricting**\
-`Four states are considering drawing new maps in the coming weeks. Another dozen or more could join the fray next year.`\
-https://www.nytimes.com/2026/05/09/us/politics/redistricting-midterms.html
-
-**Her Response to A.I.? Getting Naked Onstage.**\
-`The writer Pamela Redmond talks about her new play, “Old Woman Naked,” why her kids won’t see it and whether she’d have done the show without GLP-1s.`\
-https://www.nytimes.com/2026/05/09/style/her-response-to-ai-getting-naked-onstage.html
-
-**He Offered a Lawmaker’s Aide Quick Cash. Was He Spying for China?**\
-`A staff member on the House China Committee was promised $10,000 for U.S. policy insights, on issues like Venezuela and rare-earth minerals.`\
-https://www.nytimes.com/2026/05/09/us/politics/china-us-spy-congressional-aide.html
-
-**My Building Is Spending Money and Hiding the Receipts**\
-`Co-op shareholders have a right to some financial information — but not all of it.`\
-https://www.nytimes.com/2026/05/09/realestate/co-op-boards-financial-disclosure.html
-
-**How ‘Mile End Kicks’ Nailed the Indie Sleaze Look**\
-`The film follows a music critic (played by Barbie Ferreira) who moves to Montreal in 2011. Clothes unearthed via Craigslist and vintage piles bring the era to life.`\
-https://www.nytimes.com/2026/05/09/style/mile-end-kicks-barbie-ferreira-indie-sleaze.html
-
-**Rocky Has Entered the Building**\
-`The statue has long drawn fans to the steps of the Philadelphia Museum of Art, but now it’s inside, anchoring an exhibition that investigates race, activism and violence.`\
-https://www.nytimes.com/2026/05/09/arts/design/rocky-statue-philadelphia-museum-art.html
 
