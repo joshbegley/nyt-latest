@@ -1,3 +1,7 @@
+**Trump adjudicó sin licitación las obras del estanque reflectante de Washington**\
+`El presidente de EE. UU. dijo que decidió pintar el icónico lugar cerca del monumento a Lincoln de azul, y dirigió un contrato del gobierno a alguien que dijo que había trabajado en sus albercas.`\
+https://www.nytimes.com/es/2026/05/09/espanol/estados-unidos/trump-washington-obras-estanque.html
+
 **Es una temporada difícil de garrapatas. Te decimos cómo protegerte**\
 `A medida que sube la temperatura global, las garrapatas se están expandiendo a nuevos lugares. Cada vez hay más de estos arácnidos, y pueden portar más enfermedades.`\
 https://www.nytimes.com/es/2026/05/09/espanol/garrapatas-tipos-enfermedad-sintomas.html
