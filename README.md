@@ -1,3 +1,7 @@
+**Hiker Killed by Bear in ‘Surprise Encounter’ at Glacier National Park, Officials Say**\
+`The man was found with injuries “consistent with those sustained by a bear encounter” three days after leaving for a hike, the National Park Service said.`\
+https://www.nytimes.com/2026/05/09/us/bear-attack-glacier-national-park.html
+
 **Come Full Circle**\
 `Lose yourself in this extravagant Sunday puzzle by Rachel Fabi and Adam Wagner.`\
 https://www.nytimes.com/2026/05/09/crosswords/daily-puzzle-2026-05-10.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/opinion/100000010891752/the-abortion-pill-case-is-
 **Britain’s Electorate Is ‘Splintering.’ Can Its System Stand the Strain?**\
 `Insurgent parties like Reform U.K. surged at the polls this week. But the British electoral system wasn’t built for multiparty democracy.`\
 https://www.nytimes.com/2026/05/09/world/europe/britain-elections-starmer-labour-reform.html
-
-**The Man Who Broke Labour’s Dominance in Wales**\
-`Rhun ap Iorwerth, a former journalist, led his party to the most seats in the Welsh Parliament, ousting the Labour Party, which had long held sway, and beating Reform U.K.`\
-https://www.nytimes.com/2026/05/09/world/europe/uk-elections-wales-iorwerth.html
 
