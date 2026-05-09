@@ -1,3 +1,19 @@
+**La chica de las gafas de sol tatuadas**\
+`Mi hija me dejó demasiado joven, así que encuentro formas de mantenerla conmigo.`\
+https://www.nytimes.com/es/2026/05/09/espanol/estilos-de-vida/modern-love-muerte-hija-dia-madres.html
+
+**Melissa Clark Goes Big on Shortbread**\
+`Our recipe maven takes the Bake Time Questionnaire.`\
+https://www.nytimes.com/2026/05/09/dining/melissa-clark-goes-big-on-shortbread.html
+
+**How a Popular Pop-Up Found a Place of Its Own**\
+`Follow the owners of Border Town as they transition from a roving breakfast taco stand to a brick-and-mortar shop.`\
+https://www.nytimes.com/2026/05/09/dining/border-town-pop-up-breakfast-tacos.html
+
+**La pareja de tu amiga es aburrida. Las citas dobles no tienen por qué serlo**\
+`Los expertos comparten ideas para elegir las actividades adecuadas y mantener la paz.`\
+https://www.nytimes.com/es/2026/05/09/espanol/citas-dobles-amigos-parejas.html
+
 **Hantavirus Vaccines and Treatments Are in the Pipeline**\
 `But it has been hard to attract interest in medical interventions for viruses that have not been considered a top public health priority, scientists say.`\
 https://www.nytimes.com/2026/05/09/science/hantavirus-vaccines-treatment.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/05/09/opinion/ai-china-america-race.html
 **High Gas Prices Are Just the Beginning**\
 `How the economic shock waves of Trump’s Iran war will be felt globally.`\
 https://www.nytimes.com/video/opinion/100000010889358/high-gas-prices-are-just-the-beginning.html
-
-**Here’s the latest.**\
-``\
-https://www.nytimes.com/live/2026/05/09/world/iran-strikes-trump-ceasefire-hormuz/heres-the-latest
-
-**Far-Right Populist Party in Australia Wins Race Seen as a Key Test**\
-`One Nation, an anti-immigration party with Trumpian policies that has risen in popularity, won a seat in Parliament’s lower house for the first time.`\
-https://www.nytimes.com/2026/05/09/world/australia/one-nation-election-lower-house.html
-
-**Early Adopter**\
-`Why does it feel worse to be early than to rush and stress and arrive a little late?`\
-https://www.nytimes.com/2026/05/09/briefing/early-adopter.html
-
-**Is It Wrong to Work for a Charity That’s Funded by a Questionable Source?**\
-`It feels as if I would be helping to burnish the reputation of someone whose actions and public statements I deeply disapprove of.`\
-https://www.nytimes.com/2026/05/09/magazine/work-charity-funding-ethics.html
 

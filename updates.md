@@ -1,3 +1,19 @@
+**La chica de las gafas de sol tatuadas**\
+`Mi hija me dejó demasiado joven, así que encuentro formas de mantenerla conmigo.`\
+https://www.nytimes.com/es/2026/05/09/espanol/estilos-de-vida/modern-love-muerte-hija-dia-madres.html
+
+**Melissa Clark Goes Big on Shortbread**\
+`Our recipe maven takes the Bake Time Questionnaire.`\
+https://www.nytimes.com/2026/05/09/dining/melissa-clark-goes-big-on-shortbread.html
+
+**How a Popular Pop-Up Found a Place of Its Own**\
+`Follow the owners of Border Town as they transition from a roving breakfast taco stand to a brick-and-mortar shop.`\
+https://www.nytimes.com/2026/05/09/dining/border-town-pop-up-breakfast-tacos.html
+
+**La pareja de tu amiga es aburrida. Las citas dobles no tienen por qué serlo**\
+`Los expertos comparten ideas para elegir las actividades adecuadas y mantener la paz.`\
+https://www.nytimes.com/es/2026/05/09/espanol/citas-dobles-amigos-parejas.html
+
 **Hantavirus Vaccines and Treatments Are in the Pipeline**\
 `But it has been hard to attract interest in medical interventions for viruses that have not been considered a top public health priority, scientists say.`\
 https://www.nytimes.com/2026/05/09/science/hantavirus-vaccines-treatment.html
