@@ -1,3 +1,15 @@
+**High Gas Prices Are Just the Beginning**\
+`How the economic shock waves of Trump’s Iran war will be felt globally.`\
+https://www.nytimes.com/video/opinion/100000010889358/high-gas-prices-are-just-the-beginning.html
+
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/05/09/world/iran-strikes-trump-ceasefire-hormuz/heres-the-latest
+
+**Far-Right Populist Party in Australia Wins Race Seen as Key Test**\
+`One Nation, an anti-immigration party with Trumpian policies that has risen in popularity, won a seat in Parliament’s lower house for the first time.`\
+https://www.nytimes.com/2026/05/09/world/australia/one-nation-election-lower-house.html
+
 **Early Adopter**\
 `Why does it feel worse to be early than to rush and stress and arrive a little late?`\
 https://www.nytimes.com/2026/05/09/briefing/early-adopter.html
