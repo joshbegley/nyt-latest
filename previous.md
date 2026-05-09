@@ -1,3 +1,7 @@
+**Why Antiwar Protesters are Rallying in Japan**\
+`Demonstrators are opposed to Prime Minister Sanae Takaichi’s efforts to build up military power and move the country away from its pacifist identity.`\
+https://www.nytimes.com/2026/05/09/world/asia/japan-antiwar-protests-constitution.html
+
 **My Ted Talk**\
 `Captain Courageous cut a cool swath, in contrast to today’s creepy oligarchs.`\
 https://www.nytimes.com/2026/05/09/opinion/ted-turner-death-jane-fonda-cnn.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/09/us/frontier-airlines-plane-collision-denver.h
 **Russia Has Lost More Than 350,000 Soldiers, New Estimate Finds**\
 `The number raises the prospect that about half a million soldiers in total have died on the Russian and Ukrainian sides.`\
 https://www.nytimes.com/2026/05/09/world/europe/russia-ukraine-war-death-toll.html
-
-**A Personal Finance Star on What Millennials Need From Their Boomer Parents**\
-`Ramit Sethi wants everyone to have a healthier relationship to money, and thinks he knows how to get us there.`\
-https://www.nytimes.com/2026/05/09/magazine/ramit-sethi-interview.html
 

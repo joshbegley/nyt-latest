@@ -1,3 +1,7 @@
+**Why Antiwar Protesters are Rallying in Japan**\
+`Demonstrators are opposed to Prime Minister Sanae Takaichi’s efforts to build up military power and move the country away from its pacifist identity.`\
+https://www.nytimes.com/2026/05/09/world/asia/japan-antiwar-protests-constitution.html
+
 **My Ted Talk**\
 `Captain Courageous cut a cool swath, in contrast to today’s creepy oligarchs.`\
 https://www.nytimes.com/2026/05/09/opinion/ted-turner-death-jane-fonda-cnn.html
