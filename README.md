@@ -1,3 +1,11 @@
+**Jury Finds City of L.A. Not Liable in 2021 Police Shooting of Teen Girl**\
+`The death of Valentina Orellana-Peralta, a 14-year-old bystander, occurred at a store where the police were responding to reports of an assault.`\
+https://www.nytimes.com/2026/05/08/us/valentina-orellana-peralta-police-shooting-los-angeles.html
+
+**Blake Lively Settlement Had No Financial Payout, Filing Confirms**\
+`Justin Baldoni’s company did not agree to make a payout as part of the deal that ended Ms. Lively’s lawsuit, but she is able to seek compensation through a separate legal avenue.`\
+https://www.nytimes.com/2026/05/08/movies/blake-lively-justin-baldoni-settlement.html
+
 **Live: Ezra Klein Moderates California Housing Forum With Candidates for Governor**\
 `The Opinion columnist Ezra Klein moderates a forum with five of the top candidates for governor of California.`\
 https://www.nytimes.com/2026/05/08/opinion/ezra-klein-podcast-housing-forum.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/08/us/politics/jd-vance-iowa-2028.html
 **Alex Zanardi, Racer Who Made Daring Comeback After Crash, Dies at 59**\
 `After losing both legs, the Italian champion persevered in auto racing. He also became a hand-cycling marathoner and Paralympian.`\
 https://www.nytimes.com/2026/05/08/sports/alex-zanardi-dead.html
-
-**Lawsuit Accuses Lucky Strike of Building a Bowling Monopoly**\
-`The suit, filed by bowlers from several states, accuses Lucky Strike Entertainment of driving up prices and diminishing customers’ experiences across the country.`\
-https://www.nytimes.com/2026/05/08/business/bowling-lucky-strike-lawsuit.html
-
-**Justice Dept. Settles Case Against Provider of Meat Industry Data**\
-`Under the agreement, Agri Stats would pay a fine and broaden whom it sold its pricing data to. The department said the move would help reduce food costs.`\
-https://www.nytimes.com/2026/05/08/business/agri-stats-meat-antitrust-settlement.html
 
