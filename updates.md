@@ -1,3 +1,7 @@
+**Passengers on Hantavirus Cruise Ship to Disembark Sunday**\
+`The port of Tenerife in Spain’s Canary Islands is preparing for passengers to disembark from the cruise ship at the center of the deadly hantavirus outbreak Sunday morning, Spanish officials said.`\
+https://www.nytimes.com/video/world/europe/100000010893946/hantavirus-cruise-canary-islands.html
+
 **At Least 15 Injured in ‘Potential Vessel Explosion’ in Florida, Officials Say**\
 `Those injured were taken to a hospital, Miami-Dade Fire Rescue said. Emergency crews responded Saturday near the Haulover Sandbar, north of Miami Beach.`\
 https://www.nytimes.com/2026/05/09/us/boat-explosion-miami-beach.html

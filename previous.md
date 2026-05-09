@@ -1,3 +1,7 @@
+**Passengers on Hantavirus Cruise Ship to Disembark Sunday**\
+`The port of Tenerife in Spain’s Canary Islands is preparing for passengers to disembark from the cruise ship at the center of the deadly hantavirus outbreak Sunday morning, Spanish officials said.`\
+https://www.nytimes.com/video/world/europe/100000010893946/hantavirus-cruise-canary-islands.html
+
 **At Least 15 Injured in ‘Potential Vessel Explosion’ in Florida, Officials Say**\
 `Those injured were taken to a hospital, Miami-Dade Fire Rescue said. Emergency crews responded Saturday near the Haulover Sandbar, north of Miami Beach.`\
 https://www.nytimes.com/2026/05/09/us/boat-explosion-miami-beach.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/09/business/dealbook/ai-notetakers-legal-risk.ht
 **Why Antiwar Protesters are Rallying in Japan**\
 `Demonstrators are opposed to Prime Minister Sanae Takaichi’s efforts to build up military power and move the country away from its pacifist identity.`\
 https://www.nytimes.com/2026/05/09/world/asia/japan-antiwar-protests-constitution.html
-
-**My Ted Talk**\
-`Captain Courageous cut a cool swath, in contrast to today’s creepy oligarchs.`\
-https://www.nytimes.com/2026/05/09/opinion/ted-turner-death-jane-fonda-cnn.html
 
