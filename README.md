@@ -1,3 +1,31 @@
+**Peter Magyar Prepares to Take Over as Hungary’s Leader From Viktor Orban**\
+`The former opposition leader, who won a landslide election, now faces the formidable job of dismantling what his predecessor called an “illiberal democracy.”`\
+https://www.nytimes.com/2026/05/09/world/europe/peter-magyar-hungary-viktor-orban.html
+
+**Punch, the Lonely Monkey, Is Growing Up. He’s Still a Star.**\
+`The macaque, now 9 months old, has been attracting tens of thousands of visitors to a small Japanese zoo. He ignores the attention.`\
+https://www.nytimes.com/2026/05/09/world/asia/punch-baby-monkey-japan-zoo.html
+
+**The World’s 2 Most Powerful Men Are Set to Meet Again. Here’s What to Know.**\
+`The war in Iran, trade, artificial intelligence and Taiwan are expected to be on the agenda. But expectations are modest.`\
+https://www.nytimes.com/2026/05/09/world/asia/trump-xi-china-us-summit.html
+
+**A Less Muscular Victory Day Parade Shows Putin’s Growing Vulnerability**\
+`The event, shrunken because of security fears, adds to a sense that Moscow and other cities can no longer be insulated from the war.`\
+https://www.nytimes.com/2026/05/09/world/europe/russia-victory-day-parade.html
+
+**How China’s Leader Lost Faith in His Generals**\
+`Xi Jinping spent 13 years building a military to rival that of the United States. But the stronger the Chinese forces grew, the less he trusted the generals he had handpicked to run them.`\
+https://www.nytimes.com/2026/05/09/world/asia/china-military-generals.html
+
+**As Hungary Gets a New Leader, the ‘Trauma’ Sinks In for Orban Loyalists**\
+`Peter Magyar, the incoming prime minister, has promised to push out “puppets of the old regime.” Many are jumping first.`\
+https://www.nytimes.com/2026/05/09/world/europe/hungary-orban-fidesz-magyar.html
+
+**Quote of the Day: Adding Debt and Losing Sleep to See World Cup**\
+`Quotation of the Day for Saturday, May 9, 2026.`\
+https://www.nytimes.com/2026/05/08/pageoneplus/quote-of-the-day-adding-debt-and-losing-sleep-to-see-world-cup.html
+
 **Dynamic Duos are on Display in New York This Spring**\
 `Three exhibitions are pairing artists to reveal how their works complement — or contrast with — each other.`\
 https://www.nytimes.com/2026/05/08/arts/design/tefaf-new-york-duos-exhibitions.html
@@ -49,32 +77,4 @@ https://www.nytimes.com/2026/05/08/opinion/ezra-klein-podcast-housing-forum.html
 **Norovirus Outbreak Sickens 115 on Cruise Ship**\
 `More than 100 passengers and 13 crew members on the Caribbean Princess reported being ill, according to the Centers for Disease Control and Prevention.`\
 https://www.nytimes.com/2026/05/08/world/americas/norovirus-outbreak-cruise-ship.html
-
-**Mette Frederiksen Fails to Form Governing Coalition in Denmark**\
-`King Frederik X has appointed a right-leaning politician to try to form the next government.`\
-https://www.nytimes.com/2026/05/08/world/europe/denmark-frederiksen-right-wing-government.html
-
-**U.S. Targets Iran’s Missile and Drone Program With Sanctions**\
-`The new measures are focused on Chinese companies that supply Iran’s military with materials to make drones.`\
-https://www.nytimes.com/2026/05/08/business/trump-sanctions-iran-china.html
-
-**Alabama Asks Supreme Court to Allow it to Use New Voting Map**\
-`State officials urged the justices to allow them to jettison Alabama’s congressional district map, citing the Supreme Court’s recent decision that dealt a blow to the Voting Rights Act.`\
-https://www.nytimes.com/2026/05/08/us/politics/alabama-supreme-court-voting-map.html
-
-**For A Third Time, Elderly Man Is Convicted of a Grisly Murder**\
-`A Brooklyn jury found Harvey Marcelin guilty of the 2022 murder of a woman. He’d been convicted twice before for killing women, starting in the 1960s.`\
-https://www.nytimes.com/2026/05/08/nyregion/murder-brooklyn-dismember-guilty.html
-
-**How Trump Is Prioritizing White People as Refugees**\
-`President Trump has upended the U.S. refugee program to prioritize mainly white Afrikaners. Our White House correspondent Zolan Kanno-Youngs reports he is now is now considering doubling the amount he allows into the country.`\
-https://www.nytimes.com/video/us/100000010886550/how-trump-is-prioritizing-white-people-as-refugees.html
-
-**David Attenborough Celebrates His 100th Birthday**\
-`The filmmaker David Attenborough, who turned 100-years-old on Friday, has spent decades documenting and advocating for the natural world.`\
-https://www.nytimes.com/video/world/europe/100000010891631/david-attenborough-birthday-100.html
-
-**Starmer Takes Responsibility for Big Losses in U.K. Election Results**\
-`Britain’s Labour Party had lost close to 1,100 municipal council seats across England by Friday evening, while the right-wing populist Reform U.K. had gained close to 1,200.`\
-https://www.nytimes.com/video/world/europe/100000010893031/uk-elections-starmer-losses.html
 
