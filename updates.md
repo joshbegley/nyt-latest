@@ -1,3 +1,11 @@
+**The Man Who Broke Labour’s Dominance in Wales**\
+`Rhun ap Iorwerth, a former journalist, led his party to the most seats in the Welsh Parliament, ousting the Labour Party, which had long held sway, and beating Reform U.K.`\
+https://www.nytimes.com/2026/05/09/world/europe/uk-elections-wales-iorwerth.html
+
+**All Those A.I. Note Takers? They’re Making Lawyers Very Nervous.**\
+`A trendy productivity hack, A.I. note takers are capturing every joke and offhand comment in many meetings. They could also potentially waive attorney-client privilege.`\
+https://www.nytimes.com/2026/05/09/business/dealbook/ai-notetakers-legal-risk.html
+
 **Why Antiwar Protesters are Rallying in Japan**\
 `Demonstrators are opposed to Prime Minister Sanae Takaichi’s efforts to build up military power and move the country away from its pacifist identity.`\
 https://www.nytimes.com/2026/05/09/world/asia/japan-antiwar-protests-constitution.html
