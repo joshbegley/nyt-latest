@@ -1,3 +1,27 @@
+**Es una temporada difícil de garrapatas. Te decimos cómo protegerte**\
+`A medida que sube la temperatura global, las garrapatas se están expandiendo a nuevos lugares. Cada vez hay más de estos arácnidos, y pueden portar más enfermedades.`\
+https://www.nytimes.com/es/2026/05/09/espanol/garrapatas-tipos-enfermedad-sintomas.html
+
+**La fragilidad de la memoria, o cuando el canario de mi padre voló**\
+`En las etapas finales de su demencia, un recuerdo perdido de la infancia regresó, perfectamente formado. ¿Qué pasaba en su cerebro?`\
+https://www.nytimes.com/es/2026/05/09/espanol/demencia-creacion-recuerdos-memoria.html
+
+**Cada vez más personas siguen consejos de salud de los influentes**\
+`Las redes sociales están plagadas de creadores de contenido de salud. El hecho de que muchos de ellos no tengan formación médica puede ser gran parte de su atractivo.`\
+https://www.nytimes.com/es/2026/05/09/espanol/consejos-salud-longevidad-influencers.html
+
+**Bartenders at a Cocktail Mecca Propose a New Concoction: a Micro-Union**\
+`The bartenders at Attaboy, a Lower East Side joint considered one of the best cocktail bars in the world, voted to form a union.`\
+https://www.nytimes.com/2026/05/09/nyregion/attaboy-cocktail-union.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/09/crosswords/spelling-bee-forum.html
+
+**How a Not-So-Nice Doctor on ‘The Pitt’ Taps Into Her Softer Side**\
+`Isa Briones, who plays Dr. Trinity Santos, is also starring in “Just in Time” on Broadway. She’s still getting used to all the love from her fans.`\
+https://www.nytimes.com/interactive/2026/05/09/nyregion/routine-isa-briones.html
+
 **China’s Exports and Imports Set Records in April Amid High Energy Costs**\
 `The country’s exports surged and its trade surplus with the United States widened ahead of President Trump’s scheduled visit next week to Beijing.`\
 https://www.nytimes.com/2026/05/09/business/china-april-trade-exports-imports.html
@@ -53,28 +77,4 @@ https://www.nytimes.com/2026/05/08/crosswords/daily-puzzle-2026-05-09.html
 **Corrections: May 9, 2026**\
 `Corrections that appeared in print on Saturday, May 9, 2026.`\
 https://www.nytimes.com/2026/05/08/pageoneplus/corrections-may-9-2026.html
-
-**U.S. Conducts Third Boat Strike in 5 Days, Killing 2 and Leaving a Survivor**\
-`Of the 57 attacks in the Caribbean and eastern Pacific against boats accused of drug trafficking, there have rarely been survivors.`\
-https://www.nytimes.com/2026/05/08/us/politics/trump-pentagon-boat-strike.html
-
-**Republicans Are Building an Advantage in Redistricting. How Much?**\
-`Where things stands in the race for House control after recent court rulings.`\
-https://www.nytimes.com/2026/05/08/upshot/redistricting-midterms-republicans-house.html
-
-**David Attenborough, la voz de la naturaleza, cumple 100 años**\
-`Imágenes y momentos importantes de la trayectoria del que quizá sea el naturalista más célebre del mundo.`\
-https://www.nytimes.com/es/2026/05/08/espanol/ciencia-y-tecnologia/david-attenborough-100-anos.html
-
-**Iranian Propaganda vs. U.S. Talking Points: How We Determined the Real Damage to U.S. Military Bases**\
-`Amid the barrage of messages and misinformation swirling online and on Capitol Hill, about what damage U.S. military sites incurred during the conflict with Iran, a Times analysis of satellite imagery shows 18 sites in seven countries were hit.`\
-https://www.nytimes.com/video/world/middleeast/100000010868609/iran-war-us-military-base-damage.html
-
-**Jury Finds City of L.A. Not Liable in 2021 Police Shooting of Teen Girl**\
-`The death of Valentina Orellana-Peralta, a 14-year-old bystander, occurred at a store where the police were responding to reports of an assault.`\
-https://www.nytimes.com/2026/05/08/us/valentina-orellana-peralta-police-shooting-los-angeles.html
-
-**Blake Lively Settlement Had No Financial Payout, Filing Confirms**\
-`Justin Baldoni’s company did not agree to make a payout as part of the deal that ended Ms. Lively’s lawsuit, but she is able to seek compensation through a separate legal avenue.`\
-https://www.nytimes.com/2026/05/08/movies/blake-lively-justin-baldoni-settlement.html
 
