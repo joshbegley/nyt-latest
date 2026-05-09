@@ -1,3 +1,7 @@
+**Deadly Israeli Strikes Erode Cease-Fire in Lebanon**\
+`Fighting between Israel and Hezbollah has shown little sign of abating, with Hezbollah also continuing to attack Israeli troops, and both sides accusing the other of violating a U.S.-brokered truce.`\
+https://www.nytimes.com/2026/05/09/world/middleeast/israel-strikes-lebanon-ceasefire.html
+
 **GLP-1s and the ‘Wild West’ of Wellness**\
 `GLP-1s are already a blockbuster drug. But does their popularity stem from how they work, or the strange culture into which they’ve landed? On “The Ezra Klein Show,” Ezra Klein talks to the health journalist Julia Belluz about the strange science and cultural impact of these blockbuster drugs.`\
 https://www.nytimes.com/video/opinion/100000010875455/glp-1s-and-the-wild-west-of-wellness.html
