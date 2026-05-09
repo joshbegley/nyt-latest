@@ -1,3 +1,35 @@
+**My Ted Talk**\
+`Captain Courageous cut a cool swath, in contrast to today’s creepy oligarchs.`\
+https://www.nytimes.com/2026/05/09/opinion/ted-turner-death-jane-fonda-cnn.html
+
+**High Gas Prices Are Just the Beginning**\
+`How the economic shock waves of Trump’s Iran war will be felt globally.`\
+https://www.nytimes.com/2026/05/09/opinion/iran-war-global-economy-risk-green-energy-shift.html
+
+**The Atheist and the Machine God**\
+`What are the implications of artificial intelligence for religion?`\
+https://www.nytimes.com/2026/05/09/opinion/artificial-intelligence-consciousness-richard-dawkins.html
+
+**The N.B.A. Lottery Is Broken. There’s a Simple Fix.**\
+`How the N.B.A. can fix its tanking problem.`\
+https://www.nytimes.com/2026/05/09/opinion/nba-lottery-tanking.html
+
+**What Happened When Trump Abandoned the World’s Poorest Children**\
+`Trump’s most lethal policy will almost surely be his 71 percent cut in humanitarian aid from 2024 to 2025.`\
+https://www.nytimes.com/2026/05/09/opinion/foreign-aid-cuts.html
+
+**A Dairy Farm’s Last Days Expose a Broken System**\
+`Readers respond to Eli Saslow’s front-page report about the Watson family’s farm in Pennsylvania.`\
+https://www.nytimes.com/2026/05/09/opinion/dairy-farms-agriculture.html
+
+**Forget Climate Change. Democrats Need to Talk About Other Issues.**\
+`Climate change is mainly a priority for voters already firmly in Democrats’ camp.`\
+https://www.nytimes.com/2026/05/09/opinion/climate-change-democrats-gas-prices.html
+
+**America’s A.I. Is Futuristic. China Is Just Making It Work.**\
+`Different strokes for different folks.`\
+https://www.nytimes.com/2026/05/09/opinion/ai-china-america-race.html
+
 **High Gas Prices Are Just the Beginning**\
 `How the economic shock waves of Trump’s Iran war will be felt globally.`\
 https://www.nytimes.com/video/opinion/100000010889358/high-gas-prices-are-just-the-beginning.html

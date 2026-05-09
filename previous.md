@@ -1,3 +1,35 @@
+**My Ted Talk**\
+`Captain Courageous cut a cool swath, in contrast to today’s creepy oligarchs.`\
+https://www.nytimes.com/2026/05/09/opinion/ted-turner-death-jane-fonda-cnn.html
+
+**High Gas Prices Are Just the Beginning**\
+`How the economic shock waves of Trump’s Iran war will be felt globally.`\
+https://www.nytimes.com/2026/05/09/opinion/iran-war-global-economy-risk-green-energy-shift.html
+
+**The Atheist and the Machine God**\
+`What are the implications of artificial intelligence for religion?`\
+https://www.nytimes.com/2026/05/09/opinion/artificial-intelligence-consciousness-richard-dawkins.html
+
+**The N.B.A. Lottery Is Broken. There’s a Simple Fix.**\
+`How the N.B.A. can fix its tanking problem.`\
+https://www.nytimes.com/2026/05/09/opinion/nba-lottery-tanking.html
+
+**What Happened When Trump Abandoned the World’s Poorest Children**\
+`Trump’s most lethal policy will almost surely be his 71 percent cut in humanitarian aid from 2024 to 2025.`\
+https://www.nytimes.com/2026/05/09/opinion/foreign-aid-cuts.html
+
+**A Dairy Farm’s Last Days Expose a Broken System**\
+`Readers respond to Eli Saslow’s front-page report about the Watson family’s farm in Pennsylvania.`\
+https://www.nytimes.com/2026/05/09/opinion/dairy-farms-agriculture.html
+
+**Forget Climate Change. Democrats Need to Talk About Other Issues.**\
+`Climate change is mainly a priority for voters already firmly in Democrats’ camp.`\
+https://www.nytimes.com/2026/05/09/opinion/climate-change-democrats-gas-prices.html
+
+**America’s A.I. Is Futuristic. China Is Just Making It Work.**\
+`Different strokes for different folks.`\
+https://www.nytimes.com/2026/05/09/opinion/ai-china-america-race.html
+
 **High Gas Prices Are Just the Beginning**\
 `How the economic shock waves of Trump’s Iran war will be felt globally.`\
 https://www.nytimes.com/video/opinion/100000010889358/high-gas-prices-are-just-the-beginning.html
@@ -45,36 +77,4 @@ https://www.nytimes.com/2026/05/09/world/europe/russia-ukraine-war-death-toll.ht
 **A Personal Finance Star on What Millennials Need From Their Boomer Parents**\
 `Ramit Sethi wants everyone to have a healthier relationship to money, and thinks he knows how to get us there.`\
 https://www.nytimes.com/2026/05/09/magazine/ramit-sethi-interview.html
-
-**Las personas con la que Trump no puede negociar**\
-`Hay gente que tiene creencias que no son negociables. Trump se siente desconcertado cuando se encuentra con posturas así de firmes.`\
-https://www.nytimes.com/es/2026/05/09/espanol/opinion/trump-iran-ucrania-guerra.html
-
-**For Trump, Court Loss Is Latest Twist in Ever-Shifting Tariffs**\
-`The president has reworked his tariffs repeatedly — sometimes because they have been declared illegal — with more updates still to come.`\
-https://www.nytimes.com/2026/05/09/business/economy/trump-tariff-timeline.html
-
-**10 Days That Shook the House Map and Democratic Confidence**\
-`Republicans are charging ahead in the nation’s redistricting race, and showing new bullishness after months of growing midterm fears.`\
-https://www.nytimes.com/2026/05/09/us/politics/midterm-redistricting-house-map-republicans.html
-
-**Redistricting Ruling Adds to Virginia Governor’s Headaches**\
-`Gov. Abigail Spanberger had initially been skeptical of the push for new maps, but as the state’s leading Democrat she had a political stake in its fate.`\
-https://www.nytimes.com/2026/05/09/us/politics/virginia-redistricting-democrats-abigail-spanberger.html
-
-**A Personal Finance Star on What Millennials Need From Their Boomer Parents**\
-`David Marchese speaks to Ramit Sethi, the author of the 2009 New York Times Best Seller, I Will Teach You to Be Rich, host of the I Will Teach You To Be Rich podcast, and host of the 2023 Netflix series titled How to Get Rich.`\
-https://www.nytimes.com/video/podcasts/100000010892355/a-personal-finance-star-on-what-millennials-need-from-their-boomer-parents.html
-
-**How ‘The View’ Landed at the Center of a Free Speech Battle**\
-`The Trump administration’s focus on the show is testament to the enduring influence of an old-fashioned broadcast TV program started 29 years ago.`\
-https://www.nytimes.com/2026/05/09/business/media/the-view-fcc-trump.html
-
-**6 Must-See Venice Shows**\
-`Thought-provoking and senses-stirring works on war, art patronage, and the Black experience in America are just some of our critics’ picks.`\
-https://www.nytimes.com/2026/05/09/arts/venice-biennale-shows-to-see.html
-
-**For Struggling JetBlue, Spirit’s Demise May Offer an Opportunity**\
-`JetBlue Airways is adding flights at Spirit Airlines’ former home airport as it tries to turn a profit again.`\
-https://www.nytimes.com/2026/05/09/business/jetblue-airways-spirit.html
 
