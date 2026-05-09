@@ -1,3 +1,15 @@
+**High Gas Prices Are Just the Beginning**\
+`How the economic shock waves of Trump’s Iran war will be felt globally.`\
+https://www.nytimes.com/video/opinion/100000010889358/high-gas-prices-are-just-the-beginning.html
+
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/05/09/world/iran-strikes-trump-ceasefire-hormuz/heres-the-latest
+
+**Far-Right Populist Party in Australia Wins Race Seen as Key Test**\
+`One Nation, an anti-immigration party with Trumpian policies that has risen in popularity, won a seat in Parliament’s lower house for the first time.`\
+https://www.nytimes.com/2026/05/09/world/australia/one-nation-election-lower-house.html
+
 **Early Adopter**\
 `Why does it feel worse to be early than to rush and stress and arrive a little late?`\
 https://www.nytimes.com/2026/05/09/briefing/early-adopter.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/09/arts/venice-biennale-shows-to-see.html
 **For Struggling JetBlue, Spirit’s Demise May Offer an Opportunity**\
 `JetBlue Airways is adding flights at Spirit Airlines’ former home airport as it tries to turn a profit again.`\
 https://www.nytimes.com/2026/05/09/business/jetblue-airways-spirit.html
-
-**‘The Lost Boys’ Helped Define the ’80s in More Ways Than One**\
-`The film that’s been adapted into a new musical created a memorable aesthetic with its cast and outfits. Its ideas about the nuclear family also made it a movie for its time.`\
-https://www.nytimes.com/2026/05/09/movies/lost-boys-1980s-divorce.html
-
-**How Minority Districts Fueled the G.O.P.’s Southern Ascendancy in Congress**\
-`The “majority-minority” House districts struck down by the Supreme Court last week sent a surge of Black and Hispanic lawmakers to Congress. They also opened opportunities for the G.O.P.`\
-https://www.nytimes.com/2026/05/09/us/politics/how-minority-districts-fueled-the-gops-southern-ascendancy-in-congress.html
-
-**A Ritalin Ruler and a Xanax Photo Frame? I’ll Take One of Each.**\
-`The days of giving pharmaceutical-branded swag to health care professionals are largely over. Now those items are hot on the thrifting scene.`\
-https://www.nytimes.com/2026/05/09/style/pharma-drugs-merch-swag-vintage.html
 
