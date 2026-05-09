@@ -1,3 +1,7 @@
+**Republicans Are Building an Advantage in Redistricting. How Much?**\
+`Where things stands now in the race for House control.`\
+https://www.nytimes.com/2026/05/08/upshot/redistricting-midterms-republicans-house.html
+
 **David Attenborough, la voz de la naturaleza, cumple 100 años**\
 `Imágenes y momentos importantes de la trayectoria del que quizá sea el naturalista más célebre del mundo.`\
 https://www.nytimes.com/es/2026/05/08/espanol/ciencia-y-tecnologia/david-attenborough-100-anos.html
