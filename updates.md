@@ -1,3 +1,15 @@
+**Come Full Circle**\
+`Lose yourself in this extravagant Sunday puzzle by Rachel Fabi and Adam Wagner.`\
+https://www.nytimes.com/2026/05/09/crosswords/daily-puzzle-2026-05-10.html
+
+**Strait of Hormuz Remains Effectively Blocked After Naval Skirmishes**\
+`The U.S. Navy’s blockade continued to intercept ships trying to leave or enter Iranian ports, while fear of Iranian attacks kept other ships from attempting passage through the narrows.`\
+https://www.nytimes.com/2026/05/09/world/middleeast/strait-hormuz-ships-blockade-us-iran.html
+
+**At Least 13 Injured in ‘Possible Boat Explosion’ in Florida, Officials Say**\
+`Those injured were taken to area hospitals, Miami-Dade Fire Rescue said. Emergency crews responded Saturday near the Haulover Sandbar, north of Miami Beach.`\
+https://www.nytimes.com/2026/05/09/us/boat-explosion-miami-beach.html
+
 **Passengers on Hantavirus Cruise Ship to Disembark Sunday**\
 `The port of Tenerife in Spain’s Canary Islands is preparing for passengers to disembark from the cruise ship at the center of the deadly hantavirus outbreak Sunday morning, Spanish officials said.`\
 https://www.nytimes.com/video/world/europe/100000010893946/hantavirus-cruise-canary-islands.html
