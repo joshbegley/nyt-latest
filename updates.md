@@ -1,3 +1,27 @@
+**Es una temporada difícil de garrapatas. Te decimos cómo protegerte**\
+`A medida que sube la temperatura global, las garrapatas se están expandiendo a nuevos lugares. Cada vez hay más de estos arácnidos, y pueden portar más enfermedades.`\
+https://www.nytimes.com/es/2026/05/09/espanol/garrapatas-tipos-enfermedad-sintomas.html
+
+**La fragilidad de la memoria, o cuando el canario de mi padre voló**\
+`En las etapas finales de su demencia, un recuerdo perdido de la infancia regresó, perfectamente formado. ¿Qué pasaba en su cerebro?`\
+https://www.nytimes.com/es/2026/05/09/espanol/demencia-creacion-recuerdos-memoria.html
+
+**Cada vez más personas siguen consejos de salud de los influentes**\
+`Las redes sociales están plagadas de creadores de contenido de salud. El hecho de que muchos de ellos no tengan formación médica puede ser gran parte de su atractivo.`\
+https://www.nytimes.com/es/2026/05/09/espanol/consejos-salud-longevidad-influencers.html
+
+**Bartenders at a Cocktail Mecca Propose a New Concoction: a Micro-Union**\
+`The bartenders at Attaboy, a Lower East Side joint considered one of the best cocktail bars in the world, voted to form a union.`\
+https://www.nytimes.com/2026/05/09/nyregion/attaboy-cocktail-union.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/09/crosswords/spelling-bee-forum.html
+
+**How a Not-So-Nice Doctor on ‘The Pitt’ Taps Into Her Softer Side**\
+`Isa Briones, who plays Dr. Trinity Santos, is also starring in “Just in Time” on Broadway. She’s still getting used to all the love from her fans.`\
+https://www.nytimes.com/interactive/2026/05/09/nyregion/routine-isa-briones.html
+
 **China’s Exports and Imports Set Records in April Amid High Energy Costs**\
 `The country’s exports surged and its trade surplus with the United States widened ahead of President Trump’s scheduled visit next week to Beijing.`\
 https://www.nytimes.com/2026/05/09/business/china-april-trade-exports-imports.html
