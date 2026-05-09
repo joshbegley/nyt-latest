@@ -1,3 +1,7 @@
+**Republicans Are Building an Advantage in Redistricting. How Much?**\
+`Where things stands now in the race for House control.`\
+https://www.nytimes.com/2026/05/08/upshot/redistricting-midterms-republicans-house.html
+
 **David Attenborough, la voz de la naturaleza, cumple 100 años**\
 `Imágenes y momentos importantes de la trayectoria del que quizá sea el naturalista más célebre del mundo.`\
 https://www.nytimes.com/es/2026/05/08/espanol/ciencia-y-tecnologia/david-attenborough-100-anos.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/08/books/edith-eger-dead.html
 **Virginia’s Top Court Delivers a Major Victory for Republicans**\
 `Also, what health experts want you to know about hantavirus. Here’s the latest at the end of Friday.`\
 https://www.nytimes.com/2026/05/08/briefing/virginia-map-trump-fda.html
-
-**Proposed Rule by Postal Service Could Allow Handguns to Be Mailed**\
-`The proposal comes after the Justice Department said this year that a century-old law banning the practice was unconstitutional. Democratic leaders are calling it “unlawful.”`\
-https://www.nytimes.com/2026/05/08/us/postal-service-handguns-mail.html
 
