@@ -1,3 +1,11 @@
+**Britain’s Electorate Is ‘Splintering.’ Can Its System Stand the Strain?**\
+`Insurgent parties like Reform U.K. surged at the polls this week. But the British electoral system wasn’t built for multiparty democracy.`\
+https://www.nytimes.com/2026/05/09/world/europe/britain-elections-starmer-labour-reform.html
+
+**Far-Right Populist Party in Australia Wins Race Seen as a Key Test**\
+`One Nation, an anti-immigration party with Trumpian policies that has risen in popularity, won a seat in Parliament’s lower house for the first time.`\
+https://www.nytimes.com/2026/05/09/world/australia/one-nation-election-lower-house.html
+
 **The Man Who Broke Labour’s Dominance in Wales**\
 `Rhun ap Iorwerth, a former journalist, led his party to the most seats in the Welsh Parliament, ousting the Labour Party, which had long held sway, and beating Reform U.K.`\
 https://www.nytimes.com/2026/05/09/world/europe/uk-elections-wales-iorwerth.html
