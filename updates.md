@@ -1,3 +1,7 @@
+**Kristin Smart Search Ends With No Recovery of Remains**\
+`Authorities said they did not recover Ms. Smart’s remains during a search of property tied to the family of the man convicted of killing her.`\
+https://www.nytimes.com/2026/05/09/us/kristin-smart-search-no-remains-recovered-california-property.html
+
 **Hiker Killed by Bear in ‘Surprise Encounter’ at Glacier National Park, Officials Say**\
 `The man was found with injuries “consistent with those sustained by a bear encounter” three days after leaving for a hike, the National Park Service said.`\
 https://www.nytimes.com/2026/05/09/us/bear-attack-glacier-national-park.html
