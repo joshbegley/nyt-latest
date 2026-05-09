@@ -1,3 +1,7 @@
+**How GLP-1s Suppress Our Hunger. (It’s Weird.)**\
+`GLP-1s enable weight loss in a very weird way. On “The Ezra Klein Show,” Ezra Klein talks to the health journalist Julia Belluz about the strange science and cultural impact of these blockbuster drugs.`\
+https://www.nytimes.com/video/opinion/100000010875450/glp-1s-and-the-wild-west-of-wellness.html
+
 **GLP-1s and the ‘Wild West’ of Wellness**\
 `GLP-1s are already a blockbuster drug. But does their popularity stem from how they work, or the strange culture into which they’ve landed? On “The Ezra Klein Show,” Ezra Klein talks to the health journalist Julia Belluz about the strange science and cultural impact of these blockbuster drugs.`\
 https://www.nytimes.com/video/opinion/100000010875450/glp-1s-and-the-wild-west-of-wellness.html
