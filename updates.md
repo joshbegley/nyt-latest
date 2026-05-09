@@ -1,3 +1,11 @@
+**Our Elections Are Broken**\
+`Black Americans in the South will likely lose most of their federal representation as a result of the Supreme Court’s recent erosion of the Voting Rights Act, the Opinion columnist Jamelle Bouie argues. This is only one of the reasons the United States needs to transform the current Electoral College system.`\
+https://www.nytimes.com/video/opinion/100000010889937/our-elections-are-broken.html
+
+**The Abortion Pill Case Is a Disaster for Republicans**\
+`Making abortion illegal doesn’t stop abortions; it just stops safe ones. As the Supreme Court weighs a huge restriction on the abortion drug mifepristone, Molly Jong-Fast explains the three options the Supreme Court might take.`\
+https://www.nytimes.com/video/opinion/100000010891752/the-abortion-pill-case-is-a-disaster-for-republicans.html
+
 **Britain’s Electorate Is ‘Splintering.’ Can Its System Stand the Strain?**\
 `Insurgent parties like Reform U.K. surged at the polls this week. But the British electoral system wasn’t built for multiparty democracy.`\
 https://www.nytimes.com/2026/05/09/world/europe/britain-elections-starmer-labour-reform.html
