@@ -1,3 +1,11 @@
+**Frontier Jet Aborts Takeoff as Pilots Report Hitting Person on Denver Runway**\
+`The plane suffered an engine fire but was safely evacuated. Details were not available about the person the Frontier Airlines pilots said was hit.`\
+https://www.nytimes.com/2026/05/09/us/frontier-airlines-plane-collision-denver.html
+
+**Russia Has Lost More Than 350,000 Soldiers, New Estimate Finds**\
+`The number raises the prospect that about half a million soldiers in total have died on the Russian and Ukrainian sides.`\
+https://www.nytimes.com/2026/05/09/world/europe/russia-ukraine-war-death-toll.html
+
 **A Personal Finance Star on What Millennials Need From Their Boomer Parents**\
 `Ramit Sethi wants everyone to have a healthier relationship to money, and thinks he knows how to get us there.`\
 https://www.nytimes.com/2026/05/09/magazine/ramit-sethi-interview.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/09/style/mile-end-kicks-barbie-ferreira-indie-sl
 **Rocky Has Entered the Building**\
 `The statue has long drawn fans to the steps of the Philadelphia Museum of Art, but now it’s inside, anchoring an exhibition that investigates race, activism and violence.`\
 https://www.nytimes.com/2026/05/09/arts/design/rocky-statue-philadelphia-museum-art.html
-
-**The New Harvard Trend? Getting Punched in the Face.**\
-`Harvard’s boxing club is drawing new members. So are boxing clubs at other colleges, as students look for real-life connection.`\
-https://www.nytimes.com/2026/05/09/us/college-boxing-harvard.html
-
-**Long Overlooked, Caspian Sea Provides Strategic Trade Route for Iran**\
-`The landlocked body of water has taken on new significance, with Russia shipping military and commercial goods to bolster Tehran’s ability to withstand the U.S. assault.`\
-https://www.nytimes.com/2026/05/09/world/middleeast/caspian-sea-iran-russia.html
 

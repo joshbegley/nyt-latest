@@ -1,3 +1,11 @@
+**Frontier Jet Aborts Takeoff as Pilots Report Hitting Person on Denver Runway**\
+`The plane suffered an engine fire but was safely evacuated. Details were not available about the person the Frontier Airlines pilots said was hit.`\
+https://www.nytimes.com/2026/05/09/us/frontier-airlines-plane-collision-denver.html
+
+**Russia Has Lost More Than 350,000 Soldiers, New Estimate Finds**\
+`The number raises the prospect that about half a million soldiers in total have died on the Russian and Ukrainian sides.`\
+https://www.nytimes.com/2026/05/09/world/europe/russia-ukraine-war-death-toll.html
+
 **A Personal Finance Star on What Millennials Need From Their Boomer Parents**\
 `Ramit Sethi wants everyone to have a healthier relationship to money, and thinks he knows how to get us there.`\
 https://www.nytimes.com/2026/05/09/magazine/ramit-sethi-interview.html
