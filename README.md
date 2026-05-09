@@ -1,3 +1,7 @@
+**Kristin Smart Search Ends With No Recovery of Remains**\
+`Authorities said they did not recover Ms. Smart’s remains during a search of property tied to the family of the man convicted of killing her.`\
+https://www.nytimes.com/2026/05/09/us/kristin-smart-search-no-remains-recovered-california-property.html
+
 **Hiker Killed by Bear in ‘Surprise Encounter’ at Glacier National Park, Officials Say**\
 `The man was found with injuries “consistent with those sustained by a bear encounter” three days after leaving for a hike, the National Park Service said.`\
 https://www.nytimes.com/2026/05/09/us/bear-attack-glacier-national-park.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/opinion/100000010889937/our-elections-are-broken.h
 **The Abortion Pill Case Is a Disaster for Republicans**\
 `Making abortion illegal doesn’t stop abortions; it just stops safe ones. As the Supreme Court weighs a huge restriction on the abortion drug mifepristone, Molly Jong-Fast explains the three options the Supreme Court might take.`\
 https://www.nytimes.com/video/opinion/100000010891752/the-abortion-pill-case-is-a-disaster-for-republicans.html
-
-**Britain’s Electorate Is ‘Splintering.’ Can Its System Stand the Strain?**\
-`Insurgent parties like Reform U.K. surged at the polls this week. But the British electoral system wasn’t built for multiparty democracy.`\
-https://www.nytimes.com/2026/05/09/world/europe/britain-elections-starmer-labour-reform.html
 

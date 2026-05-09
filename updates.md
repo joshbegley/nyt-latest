@@ -1,3 +1,7 @@
+**Hiker Killed by Bear in ‘Surprise Encounter’ at Glacier National Park, Officials Say**\
+`The man was found with injuries “consistent with those sustained by a bear encounter” three days after leaving for a hike, the National Park Service said.`\
+https://www.nytimes.com/2026/05/09/us/bear-attack-glacier-national-park.html
+
 **Come Full Circle**\
 `Lose yourself in this extravagant Sunday puzzle by Rachel Fabi and Adam Wagner.`\
 https://www.nytimes.com/2026/05/09/crosswords/daily-puzzle-2026-05-10.html
