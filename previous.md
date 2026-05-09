@@ -1,3 +1,7 @@
+**¿Puede la motosierra de Milei dar un nuevo impulso a la derecha global?**\
+`Con su cruzada desreguladora, Javier Milei se convirtió en una figura estelar del universo MAGA. Pero en Argentina, su experimento de ajuste extremo enfrenta un momento decisivo.`\
+https://www.nytimes.com/es/2026/05/09/espanol/america-latina/motosierra-milei-argentina-derecha.html
+
 **Peter Magyar Prepares to Take Over as Hungary’s Leader From Viktor Orban**\
 `The former opposition leader, who won a landslide election, now faces the formidable job of dismantling what his predecessor called an “illiberal democracy.”`\
 https://www.nytimes.com/2026/05/09/world/europe/peter-magyar-hungary-viktor-orban.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/08/movies/blake-lively-justin-baldoni-settlement
 **Live: Ezra Klein Moderates California Housing Forum With Candidates for Governor**\
 `The Opinion columnist Ezra Klein moderates a forum with five of the top candidates for governor of California.`\
 https://www.nytimes.com/2026/05/08/opinion/ezra-klein-podcast-housing-forum.html
-
-**Norovirus Outbreak Sickens 115 on Cruise Ship**\
-`More than 100 passengers and 13 crew members on the Caribbean Princess reported being ill, according to the Centers for Disease Control and Prevention.`\
-https://www.nytimes.com/2026/05/08/world/americas/norovirus-outbreak-cruise-ship.html
 

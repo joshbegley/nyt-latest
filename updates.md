@@ -1,3 +1,7 @@
+**¿Puede la motosierra de Milei dar un nuevo impulso a la derecha global?**\
+`Con su cruzada desreguladora, Javier Milei se convirtió en una figura estelar del universo MAGA. Pero en Argentina, su experimento de ajuste extremo enfrenta un momento decisivo.`\
+https://www.nytimes.com/es/2026/05/09/espanol/america-latina/motosierra-milei-argentina-derecha.html
+
 **Peter Magyar Prepares to Take Over as Hungary’s Leader From Viktor Orban**\
 `The former opposition leader, who won a landslide election, now faces the formidable job of dismantling what his predecessor called an “illiberal democracy.”`\
 https://www.nytimes.com/2026/05/09/world/europe/peter-magyar-hungary-viktor-orban.html
