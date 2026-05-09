@@ -1,3 +1,7 @@
+**Passengers on Ship Struck by Hantavirus to Disembark on Sunday**\
+`The cruise ship will arrive on the island of Tenerife, part of the Canary Islands of Spain, officials said. All of the passengers will then be evacuated to their home countries.`\
+https://www.nytimes.com/2026/05/09/world/africa/hantavirus-ship-passengers-evacuate.html
+
 **A Simple Way to Stop N.B.A. Teams From Losing on Purpose**\
 `How the N.B.A. can fix its tanking problem.`\
 https://www.nytimes.com/2026/05/09/opinion/nba-lottery-tanking.html

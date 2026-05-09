@@ -1,3 +1,7 @@
+**Passengers on Ship Struck by Hantavirus to Disembark on Sunday**\
+`The cruise ship will arrive on the island of Tenerife, part of the Canary Islands of Spain, officials said. All of the passengers will then be evacuated to their home countries.`\
+https://www.nytimes.com/2026/05/09/world/africa/hantavirus-ship-passengers-evacuate.html
+
 **Deadly Israeli Strikes Erode Cease-Fire in Lebanon**\
 `Fighting between Israel and Hezbollah has shown little sign of abating, with Hezbollah also continuing to attack Israeli troops, and both sides accusing the other of violating a U.S.-brokered truce.`\
 https://www.nytimes.com/2026/05/09/world/middleeast/israel-strikes-lebanon-ceasefire.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/09/opinion/iran-war-global-economy-risk-green-en
 **The Atheist and the Machine God**\
 `What are the implications of artificial intelligence for religion?`\
 https://www.nytimes.com/2026/05/09/opinion/artificial-intelligence-consciousness-richard-dawkins.html
-
-**A Simple Way to Stop N.B.A. Teams From Losing on Purpose**\
-`How the N.B.A. can fix its tanking problem.`\
-https://www.nytimes.com/2026/05/09/opinion/nba-lottery-tanking.html
 
