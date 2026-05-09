@@ -1,3 +1,31 @@
+**Peter Magyar Prepares to Take Over as Hungary’s Leader From Viktor Orban**\
+`The former opposition leader, who won a landslide election, now faces the formidable job of dismantling what his predecessor called an “illiberal democracy.”`\
+https://www.nytimes.com/2026/05/09/world/europe/peter-magyar-hungary-viktor-orban.html
+
+**Punch, the Lonely Monkey, Is Growing Up. He’s Still a Star.**\
+`The macaque, now 9 months old, has been attracting tens of thousands of visitors to a small Japanese zoo. He ignores the attention.`\
+https://www.nytimes.com/2026/05/09/world/asia/punch-baby-monkey-japan-zoo.html
+
+**The World’s 2 Most Powerful Men Are Set to Meet Again. Here’s What to Know.**\
+`The war in Iran, trade, artificial intelligence and Taiwan are expected to be on the agenda. But expectations are modest.`\
+https://www.nytimes.com/2026/05/09/world/asia/trump-xi-china-us-summit.html
+
+**A Less Muscular Victory Day Parade Shows Putin’s Growing Vulnerability**\
+`The event, shrunken because of security fears, adds to a sense that Moscow and other cities can no longer be insulated from the war.`\
+https://www.nytimes.com/2026/05/09/world/europe/russia-victory-day-parade.html
+
+**How China’s Leader Lost Faith in His Generals**\
+`Xi Jinping spent 13 years building a military to rival that of the United States. But the stronger the Chinese forces grew, the less he trusted the generals he had handpicked to run them.`\
+https://www.nytimes.com/2026/05/09/world/asia/china-military-generals.html
+
+**As Hungary Gets a New Leader, the ‘Trauma’ Sinks In for Orban Loyalists**\
+`Peter Magyar, the incoming prime minister, has promised to push out “puppets of the old regime.” Many are jumping first.`\
+https://www.nytimes.com/2026/05/09/world/europe/hungary-orban-fidesz-magyar.html
+
+**Quote of the Day: Adding Debt and Losing Sleep to See World Cup**\
+`Quotation of the Day for Saturday, May 9, 2026.`\
+https://www.nytimes.com/2026/05/08/pageoneplus/quote-of-the-day-adding-debt-and-losing-sleep-to-see-world-cup.html
+
 **Dynamic Duos are on Display in New York This Spring**\
 `Three exhibitions are pairing artists to reveal how their works complement — or contrast with — each other.`\
 https://www.nytimes.com/2026/05/08/arts/design/tefaf-new-york-duos-exhibitions.html
