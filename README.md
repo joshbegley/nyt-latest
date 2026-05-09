@@ -1,3 +1,11 @@
+**GLP-1s and the ‘Wild West’ of Wellness**\
+`GLP-1s are already a blockbuster drug. But does their popularity stem from how they work, or the strange culture into which they’ve landed? On “The Ezra Klein Show,” Ezra Klein talks to the health journalist Julia Belluz about the strange science and cultural impact of these blockbuster drugs.`\
+https://www.nytimes.com/video/opinion/100000010875450/glp-1s-and-the-wild-west-of-wellness.html
+
+**Democrats Who Are Soft on Republicans Have Got to Go**\
+`Virginians must fight back against its Supreme Court in the name of popular sovereignty.`\
+https://www.nytimes.com/2026/05/09/opinion/virginia-supreme-court-ruling.html
+
 **‘I’d Be Happy if Someone Made Me This’**\
 `I asked my colleague what she wants for her Mother’s Day dinner, and she responded immediately with this chile crisp and honey roasted salmon.`\
 https://www.nytimes.com/2026/05/09/dining/id-be-happy-if-someone-made-me-this.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/09/opinion/foreign-aid-cuts.html
 **A Dairy Farm’s Last Days Expose a Broken System**\
 `Readers respond to Eli Saslow’s front-page report about the Watson family’s farm in Pennsylvania.`\
 https://www.nytimes.com/2026/05/09/opinion/dairy-farms-agriculture.html
-
-**Forget Climate Change. Democrats Need to Talk About Other Issues.**\
-`Climate change is mainly a priority for voters already firmly in Democrats’ camp.`\
-https://www.nytimes.com/2026/05/09/opinion/climate-change-democrats-gas-prices.html
-
-**America’s A.I. Is Futuristic. China Is Just Making It Work.**\
-`Different strokes for different folks.`\
-https://www.nytimes.com/2026/05/09/opinion/ai-china-america-race.html
 
