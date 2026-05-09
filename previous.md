@@ -1,5 +1,9 @@
+**U.S. Conducts Third Boat Strike in 5 Days, Killing 2 and Leaving a Survivor**\
+`Of the 57 attacks in the Caribbean and eastern Pacific against boats accused of drug trafficking, there have rarely been survivors.`\
+https://www.nytimes.com/2026/05/08/us/politics/trump-pentagon-boat-strike.html
+
 **Republicans Are Building an Advantage in Redistricting. How Much?**\
-`Where things stands now in the race for House control.`\
+`Where things stands in the race for House control after recent court rulings.`\
 https://www.nytimes.com/2026/05/08/upshot/redistricting-midterms-republicans-house.html
 
 **David Attenborough, la voz de la naturaleza, cumple 100 años**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/08/t-magazine/reggie-burrows-hodges-favorite-art
 **Edith Eva Eger, Psychologist Who Barely Survived Auschwitz, Dies at 98**\
 `Her time in concentration camps brought her an understanding of humanity that helped her treat her patients.`\
 https://www.nytimes.com/2026/05/08/books/edith-eger-dead.html
-
-**Virginia’s Top Court Delivers a Major Victory for Republicans**\
-`Also, what health experts want you to know about hantavirus. Here’s the latest at the end of Friday.`\
-https://www.nytimes.com/2026/05/08/briefing/virginia-map-trump-fda.html
 

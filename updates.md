@@ -1,3 +1,11 @@
+**U.S. Conducts Third Boat Strike in 5 Days, Killing 2 and Leaving a Survivor**\
+`Of the 57 attacks in the Caribbean and eastern Pacific against boats accused of drug trafficking, there have rarely been survivors.`\
+https://www.nytimes.com/2026/05/08/us/politics/trump-pentagon-boat-strike.html
+
+**Republicans Are Building an Advantage in Redistricting. How Much?**\
+`Where things stands in the race for House control after recent court rulings.`\
+https://www.nytimes.com/2026/05/08/upshot/redistricting-midterms-republicans-house.html
+
 **Republicans Are Building an Advantage in Redistricting. How Much?**\
 `Where things stands now in the race for House control.`\
 https://www.nytimes.com/2026/05/08/upshot/redistricting-midterms-republicans-house.html
