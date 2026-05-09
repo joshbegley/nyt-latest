@@ -1,3 +1,7 @@
+**Britain’s Electorate Is ‘Splintering.’ Can Its System Stand the Strain?**\
+`Insurgent parties like Reform U.K. surged at the polls this week. But the British electoral system wasn’t built for multiparty democracy.`\
+https://www.nytimes.com/2026/05/09/world/europe/britain-elections-starmer-labour-reform.html
+
 **The Man Who Broke Labour’s Dominance in Wales**\
 `Rhun ap Iorwerth, a former journalist, led his party to the most seats in the Welsh Parliament, ousting the Labour Party, which had long held sway, and beating Reform U.K.`\
 https://www.nytimes.com/2026/05/09/world/europe/uk-elections-wales-iorwerth.html
@@ -50,7 +54,7 @@ https://www.nytimes.com/video/opinion/100000010889358/high-gas-prices-are-just-t
 ``\
 https://www.nytimes.com/live/2026/05/09/world/iran-strikes-trump-ceasefire-hormuz/heres-the-latest
 
-**Far-Right Populist Party in Australia Wins Race Seen as Key Test**\
+**Far-Right Populist Party in Australia Wins Race Seen as a Key Test**\
 `One Nation, an anti-immigration party with Trumpian policies that has risen in popularity, won a seat in Parliament’s lower house for the first time.`\
 https://www.nytimes.com/2026/05/09/world/australia/one-nation-election-lower-house.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/09/crosswords/connections-companion-1064.html
 **Strands Sidekick No. 798**\
 `Scroll down for hints and conversation about the puzzle for Sunday, May 10, 2026.`\
 https://www.nytimes.com/2026/05/09/crosswords/strands-sidekick-798.html
-
-**Canada and the European Union Are in Love. Where Can It Lead?**\
-`A rapid trip with the prime minister to Armenia highlighted the new era of amity between Canada and the European Union. We examine what that can and can’t do for Canadians.`\
-https://www.nytimes.com/2026/05/09/world/canada/carney-canada-european-union-trade-trump.html
 
