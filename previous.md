@@ -1,3 +1,7 @@
+**Russian State TV Shows Smaller Military Parade Amid Fears of Ukrainian Strike**\
+`President Vladimir Putin of Russia marked Victory Day in a scaled-down military event in Red Square, in Moscow, on Saturday.`\
+https://www.nytimes.com/video/world/100000010893832/russia-victory-day-parade-putin-ukraine.html
+
 **Kristin Smart Search Ends With No Recovery of Remains**\
 `Authorities said they did not recover Ms. Smart’s remains during a search of property tied to the family of the man convicted of killing her.`\
 https://www.nytimes.com/2026/05/09/us/kristin-smart-search-no-remains-recovered-california-property.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/09/science/hantavirus-vaccines-treatment.html
 **Our Elections Are Broken**\
 `Black Americans in the South will likely lose most of their federal representation as a result of the Supreme Court’s recent erosion of the Voting Rights Act, the Opinion columnist Jamelle Bouie argues. This is only one of the reasons the United States needs to transform the current Electoral College system.`\
 https://www.nytimes.com/video/opinion/100000010889937/our-elections-are-broken.html
-
-**The Abortion Pill Case Is a Disaster for Republicans**\
-`Making abortion illegal doesn’t stop abortions; it just stops safe ones. As the Supreme Court weighs a huge restriction on the abortion drug mifepristone, Molly Jong-Fast explains the three options the Supreme Court might take.`\
-https://www.nytimes.com/video/opinion/100000010891752/the-abortion-pill-case-is-a-disaster-for-republicans.html
 
