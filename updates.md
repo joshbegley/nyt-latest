@@ -1,3 +1,7 @@
+**At Least 15 Injured in ‘Potential Vessel Explosion’ in Florida, Officials Say**\
+`Those injured were taken to a hospital, Miami-Dade Fire Rescue said. Emergency crews responded Saturday near the Haulover Sandbar, north of Miami Beach.`\
+https://www.nytimes.com/2026/05/09/us/boat-explosion-miami-beach.html
+
 **Bobby Cox, One of Baseball’s Top Managers, Dies at 84**\
 `He led the Atlanta Braves to victory in the 1990s and was later inducted into the Baseball Hall of Fame for his leadership.`\
 https://www.nytimes.com/2026/05/09/us/bobby-cox-dead.html
