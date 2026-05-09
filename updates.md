@@ -1,3 +1,15 @@
+**Mamdani Orders Investigation Into Bellevue After Unprovoked Attack**\
+`A 76-year-old man died after he was pushed down subway stairs by a man who had been discharged from the psychiatric unit at the public hospital hours earlier.`\
+https://www.nytimes.com/2026/05/08/nyregion/mamdani-bellevue-subway-attack-investigation.html
+
+**Extra Hot**\
+`Katie Hoody’s latest Saturday themeless puzzle shows little mercy.`\
+https://www.nytimes.com/2026/05/08/crosswords/daily-puzzle-2026-05-09.html
+
+**Corrections: May 9, 2026**\
+`Corrections that appeared in print on Saturday, May 9, 2026.`\
+https://www.nytimes.com/2026/05/08/pageoneplus/corrections-may-9-2026.html
+
 **U.S. Conducts Third Boat Strike in 5 Days, Killing 2 and Leaving a Survivor**\
 `Of the 57 attacks in the Caribbean and eastern Pacific against boats accused of drug trafficking, there have rarely been survivors.`\
 https://www.nytimes.com/2026/05/08/us/politics/trump-pentagon-boat-strike.html

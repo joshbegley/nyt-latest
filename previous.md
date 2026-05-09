@@ -1,3 +1,15 @@
+**Mamdani Orders Investigation Into Bellevue After Unprovoked Attack**\
+`A 76-year-old man died after he was pushed down subway stairs by a man who had been discharged from the psychiatric unit at the public hospital hours earlier.`\
+https://www.nytimes.com/2026/05/08/nyregion/mamdani-bellevue-subway-attack-investigation.html
+
+**Extra Hot**\
+`Katie Hoody’s latest Saturday themeless puzzle shows little mercy.`\
+https://www.nytimes.com/2026/05/08/crosswords/daily-puzzle-2026-05-09.html
+
+**Corrections: May 9, 2026**\
+`Corrections that appeared in print on Saturday, May 9, 2026.`\
+https://www.nytimes.com/2026/05/08/pageoneplus/corrections-may-9-2026.html
+
 **U.S. Conducts Third Boat Strike in 5 Days, Killing 2 and Leaving a Survivor**\
 `Of the 57 attacks in the Caribbean and eastern Pacific against boats accused of drug trafficking, there have rarely been survivors.`\
 https://www.nytimes.com/2026/05/08/us/politics/trump-pentagon-boat-strike.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/08/us/politics/lawmakers-democrats-ice-detention
 **Judge Rejects Defense Plea to Ban Cameras in Charlie Kirk Trial**\
 `The judge ruled on Friday that defense lawyers for Tyler Robinson had failed to prove that Utah law would support a blanket ban on news cameras.`\
 https://www.nytimes.com/2026/05/08/us/tyler-robinson-charlie-kirk-cameras.html
-
-**Facing Pressure, Trump Officials Reject Claims They’re Softening on Immigration**\
-`Immigration hard-liners have grown frustrated with the level of deportations and the Department of Homeland Security’s attempts, under its new secretary, to stay under the radar.`\
-https://www.nytimes.com/2026/05/08/us/politics/markwayne-mullin-immigration-dhs.html
-
-**An Artist Who Sees the Beauty in Dust**\
-`Reggie Burrows Hodges discusses Malta, Caravaggio and a painting inspired by the winds of the Sahara.`\
-https://www.nytimes.com/2026/05/08/t-magazine/reggie-burrows-hodges-favorite-artworks.html
-
-**Edith Eva Eger, Psychologist Who Barely Survived Auschwitz, Dies at 98**\
-`Her time in concentration camps brought her an understanding of humanity that helped her treat her patients.`\
-https://www.nytimes.com/2026/05/08/books/edith-eger-dead.html
 
