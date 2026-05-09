@@ -1,3 +1,7 @@
+**‘I’d Be Happy if Someone Made Me This’**\
+`I asked my colleague what she wants for her Mother’s Day dinner, and she responded immediately with this chile crisp and honey roasted salmon.`\
+https://www.nytimes.com/2026/05/09/dining/id-be-happy-if-someone-made-me-this.html
+
 **La chica de las gafas de sol tatuadas**\
 `Mi hija me dejó demasiado joven, así que encuentro formas de mantenerla conmigo.`\
 https://www.nytimes.com/es/2026/05/09/espanol/estilos-de-vida/modern-love-muerte-hija-dia-madres.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/09/opinion/climate-change-democrats-gas-prices.h
 **America’s A.I. Is Futuristic. China Is Just Making It Work.**\
 `Different strokes for different folks.`\
 https://www.nytimes.com/2026/05/09/opinion/ai-china-america-race.html
-
-**High Gas Prices Are Just the Beginning**\
-`How the economic shock waves of Trump’s Iran war will be felt globally.`\
-https://www.nytimes.com/video/opinion/100000010889358/high-gas-prices-are-just-the-beginning.html
 
