@@ -1,3 +1,11 @@
+**GLP-1s and the ‘Wild West’ of Wellness**\
+`GLP-1s are already a blockbuster drug. But does their popularity stem from how they work, or the strange culture into which they’ve landed? On “The Ezra Klein Show,” Ezra Klein talks to the health journalist Julia Belluz about the strange science and cultural impact of these blockbuster drugs.`\
+https://www.nytimes.com/video/opinion/100000010875450/glp-1s-and-the-wild-west-of-wellness.html
+
+**Democrats Who Are Soft on Republicans Have Got to Go**\
+`Virginians must fight back against its Supreme Court in the name of popular sovereignty.`\
+https://www.nytimes.com/2026/05/09/opinion/virginia-supreme-court-ruling.html
+
 **‘I’d Be Happy if Someone Made Me This’**\
 `I asked my colleague what she wants for her Mother’s Day dinner, and she responded immediately with this chile crisp and honey roasted salmon.`\
 https://www.nytimes.com/2026/05/09/dining/id-be-happy-if-someone-made-me-this.html
