@@ -74,7 +74,7 @@ https://www.nytimes.com/2026/05/09/opinion/iran-war-global-economy-risk-green-en
 `What are the implications of artificial intelligence for religion?`\
 https://www.nytimes.com/2026/05/09/opinion/artificial-intelligence-consciousness-richard-dawkins.html
 
-**The N.B.A. Lottery Is Broken. There’s a Simple Fix.**\
+**A Simple Way to Stop N.B.A. Teams From Losing on Purpose**\
 `How the N.B.A. can fix its tanking problem.`\
 https://www.nytimes.com/2026/05/09/opinion/nba-lottery-tanking.html
 
