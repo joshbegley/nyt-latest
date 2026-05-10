@@ -1,3 +1,7 @@
+**Winning a Blue Ribbon**\
+`Joel Woodford’s second puzzle makes a few exclamations.`\
+https://www.nytimes.com/2026/05/10/crosswords/daily-puzzle-2026-05-11.html
+
 **6 Bodies Found in a Boxcar in Texas, Officials Say**\
 `The bodies were discovered in the city of Laredo, and it was not immediately clear what the cause of death was, the authorities said.`\
 https://www.nytimes.com/2026/05/10/us/dead-bodies-boxcar-texas.html
