@@ -1,3 +1,7 @@
+**Why Nebraska’s ‘Blue Dot’ Is Roiling a Democratic House Primary**\
+`A speck of blue on an otherwise red area in some presidential elections, the dot is now dividing candidates in a key midterm contest.`\
+https://www.nytimes.com/2026/05/10/us/politics/nebraska-blue-dot-democrats-house.html
+
 **Hundreds Mourn Eight Members of Lebanese Family Killed in Israeli Strike**\
 `At least eight members of a Lebanese family were killed by an Israeli strike on Saturday. The family was displaced and among those killed was a 6-month-old infant, relatives said.`\
 https://www.nytimes.com/video/world/middleeast/100000010894865/lebanese-family-killed-israeli-strike.html
