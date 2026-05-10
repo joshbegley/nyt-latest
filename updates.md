@@ -1,3 +1,7 @@
+**Starmer Greets Calls to Resign With a Simple Answer. No.**\
+`But if his opponents mounted a challenge, how would it unfold?`\
+https://www.nytimes.com/2026/05/10/world/europe/starmer-west-resign.html
+
 **Is the Art Market Fair, Flawed or Game-able? Depends Who You Ask.**\
 `Three new books — a sweeping work of nonfiction, a cheeky memoir and a dual biography — provide divergent views on the business of buying and selling, and they are out just in time for New York Art Week.`\
 https://www.nytimes.com/2026/05/10/arts/design/books-art-market-2026.html

@@ -43,7 +43,7 @@ https://www.nytimes.com/2026/05/10/us/politics/energy-secretary-federal-gas-tax.
 https://www.nytimes.com/2026/05/10/world/middleeast/lebanon-family-funeral-israel-strikes.html
 
 **Starmer Greets Calls to Resign With a Simple Answer. No.**\
-`But if his opponents mount a challenge, how would it unfold?`\
+`But if his opponents mounted a challenge, how would it unfold?`\
 https://www.nytimes.com/2026/05/10/world/europe/starmer-west-resign.html
 
 **A Private Call Reveals Democrats’ Desperation Over Tossing of Map**\
