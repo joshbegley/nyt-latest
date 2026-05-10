@@ -1,3 +1,15 @@
+**A Panorama of Design**\
+`A look at news, products and events during the NYCxDesign Festival.`\
+https://www.nytimes.com/2026/05/10/style/nyc-design-events-products.html
+
+**A Monument to Chocolate Is Wrapped in Layers of Mexican History**\
+`Combining a colonial house and a contemporary addition, the new Museum of Cacao & Chocolate sits on a grisly Aztec souvenir.`\
+https://www.nytimes.com/2026/05/10/arts/design/mexico-chocolate-museum.html
+
+**Before SoHo, This Building Was at the Heart of New York’s Arts District**\
+`A West Side co-op built for artists and later turned into offices is being reborn as a luxury condominium named Parc Beaufort.`\
+https://www.nytimes.com/2026/05/10/realestate/parc-beaufort-coop-new-york.html
+
 **With Commissioner Under Pressure, F.D.A. Opens Door to Flavored Vapes**\
 `Though illicit e-cigarettes have flooded in from China, the new policy could allow major tobacco companies to sell from prime shelf space at thousands of stores.`\
 https://www.nytimes.com/2026/05/10/science/fda-flavored-vapes.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/10/opinion/graham-platner-democrats-senate-maine
 **For Mother’s Day, Classic Mom-isms**\
 `The mantras, mottos and favorite sayings our mothers have repeated over the years.`\
 https://www.nytimes.com/2026/05/10/podcasts/the-daily/for-mothers-day-classic-mom-isms.html
-
-**I’m a Democrat. My Party Has a Double Standard on Antisemitism.**\
-`When we’re talking about which allies to support or which communities we defend, our principles shouldn’t shift.`\
-https://www.nytimes.com/2026/05/10/opinion/hasan-piker-democratic-party-antisemitism.html
-
-**Wordle Review No. 1,787**\
-`Scroll down for hints and conversation about the puzzle for Monday, May 11, 2026.`\
-https://www.nytimes.com/2026/05/10/crosswords/wordle-review-1787.html
-
-**A Quietly Radical Experiment in Criminal Justice**\
-`Hawaii might have the answer.`\
-https://www.nytimes.com/2026/05/10/opinion/hawaii-feminist-criminal-justice-system.html
 
