@@ -1,3 +1,11 @@
+**Review: ‘The Receptionist’ Can’t Help You Today**\
+`A stale revival of Adam Bock’s cog-in-the-office-machine dark comedy lacks specificity and bite.`\
+https://www.nytimes.com/2026/05/10/theater/the-receptionist-review.html
+
+**Democratic Angst Could Lead California to Change Its Primary Rules**\
+`The prospect of Democrats getting shut out of the general election for governor has spurred a 2028 effort to eliminate the state’s “top-two” open primary approach.`\
+https://www.nytimes.com/2026/05/10/us/california-primary-rules-change-democrats.html
+
 **Starmer Greets Calls to Resign With a Simple Answer. No.**\
 `But if his opponents mounted a challenge, how would it unfold?`\
 https://www.nytimes.com/2026/05/10/world/europe/starmer-west-resign.html
