@@ -1,3 +1,39 @@
+**The Platner Trap**\
+`The exact wrong answer to a Republican Party that’s flirting with fascism is a man who chose to put vile Nazi imagery on his own body.`\
+https://www.nytimes.com/2026/05/10/opinion/graham-platner-democrats-senate-maine.html
+
+**For Mother’s Day, Classic Mom-isms**\
+`The mantras, mottos and favorite sayings our mothers have repeated over the years.`\
+https://www.nytimes.com/2026/05/10/podcasts/the-daily/for-mothers-day-classic-mom-isms.html
+
+**Wordle Review No. 1,787**\
+`Scroll down for hints and conversation about the puzzle for Monday, May 11, 2026.`\
+https://www.nytimes.com/2026/05/10/crosswords/wordle-review-1787.html
+
+**I’m a Democrat. My Party Has a Double Standard on Antisemitism.**\
+`When we’re talking about which allies to support or which communities we defend, our principles shouldn’t shift.`\
+https://www.nytimes.com/2026/05/10/opinion/hasan-piker-democratic-party-antisemitism.html
+
+**What Would a Feminist Justice System Look Like?**\
+`Hawaii might have the answer.`\
+https://www.nytimes.com/2026/05/10/opinion/hawaii-feminist-criminal-justice-system.html
+
+**Connections Companion No. 1,065**\
+`Scroll down for hints and conversation about the puzzle for Monday, May 11, 2026.`\
+https://www.nytimes.com/2026/05/10/crosswords/connections-companion-1065.html
+
+**Strands Sidekick No. 799**\
+`Scroll down for hints and conversation about the puzzle for Monday, May 11, 2026.`\
+https://www.nytimes.com/2026/05/10/crosswords/strands-sidekick-799.html
+
+**They Thought They Had Only Months to Live. Then Things Changed.**\
+`For some patients, cancer is becoming like a chronic illness.`\
+https://www.nytimes.com/2026/05/10/opinion/terminal-cancer-chronic-illness-health.html
+
+**How American Cool Dies**\
+`Vintage American clothing still commands high prices, but the physical manifestations of U.S. empire have decayed. No one knows what’s next.`\
+https://www.nytimes.com/2026/05/10/opinion/vintage-clothes-america-cool-culture.html
+
 **La rivalidad entre EE. UU. y China llega a los cielos sudamericanos**\
 `EE. UU. ha presionado a Argentina y Chile para que revisen dos proyectos de telescopios chinos en los desiertos andinos. A los astrónomos les preocupa que esto suponga un revés para la investigación.`\
 https://www.nytimes.com/es/2026/05/10/espanol/america-latina/eeuu-china-telescopio-argentina-chile.html

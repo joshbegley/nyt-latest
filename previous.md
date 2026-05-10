@@ -1,3 +1,39 @@
+**The Platner Trap**\
+`The exact wrong answer to a Republican Party that’s flirting with fascism is a man who chose to put vile Nazi imagery on his own body.`\
+https://www.nytimes.com/2026/05/10/opinion/graham-platner-democrats-senate-maine.html
+
+**For Mother’s Day, Classic Mom-isms**\
+`The mantras, mottos and favorite sayings our mothers have repeated over the years.`\
+https://www.nytimes.com/2026/05/10/podcasts/the-daily/for-mothers-day-classic-mom-isms.html
+
+**Wordle Review No. 1,787**\
+`Scroll down for hints and conversation about the puzzle for Monday, May 11, 2026.`\
+https://www.nytimes.com/2026/05/10/crosswords/wordle-review-1787.html
+
+**I’m a Democrat. My Party Has a Double Standard on Antisemitism.**\
+`When we’re talking about which allies to support or which communities we defend, our principles shouldn’t shift.`\
+https://www.nytimes.com/2026/05/10/opinion/hasan-piker-democratic-party-antisemitism.html
+
+**What Would a Feminist Justice System Look Like?**\
+`Hawaii might have the answer.`\
+https://www.nytimes.com/2026/05/10/opinion/hawaii-feminist-criminal-justice-system.html
+
+**Connections Companion No. 1,065**\
+`Scroll down for hints and conversation about the puzzle for Monday, May 11, 2026.`\
+https://www.nytimes.com/2026/05/10/crosswords/connections-companion-1065.html
+
+**Strands Sidekick No. 799**\
+`Scroll down for hints and conversation about the puzzle for Monday, May 11, 2026.`\
+https://www.nytimes.com/2026/05/10/crosswords/strands-sidekick-799.html
+
+**They Thought They Had Only Months to Live. Then Things Changed.**\
+`For some patients, cancer is becoming like a chronic illness.`\
+https://www.nytimes.com/2026/05/10/opinion/terminal-cancer-chronic-illness-health.html
+
+**How American Cool Dies**\
+`Vintage American clothing still commands high prices, but the physical manifestations of U.S. empire have decayed. No one knows what’s next.`\
+https://www.nytimes.com/2026/05/10/opinion/vintage-clothes-america-cool-culture.html
+
 **La rivalidad entre EE. UU. y China llega a los cielos sudamericanos**\
 `EE. UU. ha presionado a Argentina y Chile para que revisen dos proyectos de telescopios chinos en los desiertos andinos. A los astrónomos les preocupa que esto suponga un revés para la investigación.`\
 https://www.nytimes.com/es/2026/05/10/espanol/america-latina/eeuu-china-telescopio-argentina-chile.html
@@ -41,40 +77,4 @@ https://www.nytimes.com/2026/05/10/us/pope-leo-bishops.html
 **Consumers Lean on a ‘Hamster Wheel’ of Credit to Manage Rising Costs**\
 `As prices increase for gas, groceries and other staples, more and more households are borrowing to get by.`\
 https://www.nytimes.com/2026/05/10/business/consumers-credit-inflation-costs.html
-
-**Why Some People Are Allergic to ‘Peanut Butter Raises’**\
-`The beloved spread has become a metaphor for things that are less than delicious.`\
-https://www.nytimes.com/2026/05/10/business/peanut-butter-raises.html
-
-**Sales Are Up. Celebrities Are In. Is Gap Officially Back?**\
-`Richard Dickson has drawn inspiration from the clothing retailer’s early days as he tries to regain its cultural cachet.`\
-https://www.nytimes.com/2026/05/10/business/richard-dickson-gap.html
-
-**One Big Headache for Politicians These Days: a Messy Digital Footprint**\
-`As a new generation of chronically online oversharers runs for office, many find themselves tripped up by past statements. Their response? Delete, distance, disavow.`\
-https://www.nytimes.com/2026/05/10/us/politics/politicians-old-tweets-controversies.html
-
-**U.S. Marines Take a Crash Course in Drone Warfare**\
-`The New York Times visited the 24th Marine Expeditionary Unit at Camp Lejeune as they underwent intensive training on first-person-view attack drones. These small, low-cost weapons systems have reshaped modern warfare in Ukraine and across the Middle East, and now the Pentagon is racing to catch up.`\
-https://www.nytimes.com/video/us/100000010875623/us-marines-drones-war-training.html
-
-**Mass Layoffs in Iran as Businesses Buckle Under Wartime Pressures**\
-`Iran was already struggling economically before 2026 brought widespread instability. A government-imposed internet shutdown has crippled an entire sector.`\
-https://www.nytimes.com/2026/05/10/world/middleeast/iran-economy-layoffs.html
-
-**‘She Studied Us for a Moment With Theatrical Longing’**\
-`Sharing a secret at a Williamsburg wine bar, a brilliant full moon and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://www.nytimes.com/2026/05/10/nyregion/metropolitan-diary.html
-
-**Who’s Been Taking Notes at Our Bedroom Door?**\
-`In John Lanchester’s “Look What You Made Me Do,” a widow is unnerved when a hit TV series airs details from her marriage a little too closely.`\
-https://www.nytimes.com/2026/05/10/books/review/whos-been-taking-notes-at-our-bedroom-door.html
-
-**He Thinks Netflix Accused Him of Murder. The Courts Disagree.**\
-`When the famed freediver Francisco Ferreras filed a libel suit over “No Limit,” his case looked strong. Proving it would require a more honest accounting of his life.`\
-https://www.nytimes.com/2026/05/10/magazine/netflix-diving-libel-case-murder-no-limit.html
-
-**Thanks to ‘Mormon Wives,’ Dirty Soda Is a National Obsession**\
-`The colorful drinks have become a hit across the country, inspiring new menu items at Dunkin’ and McDonald’s and a genre of TikTok recipes.`\
-https://www.nytimes.com/2026/05/10/style/dirty-soda-mormon-wives-utah-tiktok.html
 
