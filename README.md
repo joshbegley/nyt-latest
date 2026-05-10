@@ -1,3 +1,11 @@
+**Review: ‘The Receptionist’ Can’t Help You Today**\
+`A stale revival of Adam Bock’s cog-in-the-office-machine dark comedy lacks specificity and bite.`\
+https://www.nytimes.com/2026/05/10/theater/the-receptionist-review.html
+
+**Democratic Angst Could Lead California to Change Its Primary Rules**\
+`The prospect of Democrats getting shut out of the general election for governor has spurred a 2028 effort to eliminate the state’s “top-two” open primary approach.`\
+https://www.nytimes.com/2026/05/10/us/california-primary-rules-change-democrats.html
+
 **Is the Art Market Fair, Flawed or Game-able? Depends Who You Ask.**\
 `Three new books — a sweeping work of nonfiction, a cheeky memoir and a dual biography — provide divergent views on the business of buying and selling, and they are out just in time for New York Art Week.`\
 https://www.nytimes.com/2026/05/10/arts/design/books-art-market-2026.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/interactive/2026/05/10/us/quake-tracker-southern-califor
 **How Students Interact With A.I. Is What Matters**\
 `Readers discuss artificial intelligence and writing in the classroom. Also: President Trump’s latest assault on science; election workers.`\
 https://www.nytimes.com/2026/05/10/opinion/ai-students.html
-
-**On ‘S.N.L.’, Brett Kavanaugh, Kash Patel and Pete Hegseth Walk Into a Bar**\
-`Matt Damon and Aziz Ansari return to roles they have played on “Saturday Night Live” alongside Colin Jost, in an episode hosted by Damon.`\
-https://www.nytimes.com/2026/05/10/arts/television/on-snl-brett-kavanaugh-kash-patel-and-pete-hegseth-walk-into-a-bar.html
-
-**Words of Wisdom**\
-`Today, we’re sharing some favorite bits of advice from moms.`\
-https://www.nytimes.com/2026/05/10/briefing/mothers-day-words-of-wisdom.html
 
