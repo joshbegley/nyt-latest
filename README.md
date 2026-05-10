@@ -1,3 +1,11 @@
+**La rivalidad entre EE. UU. y China llega a los cielos sudamericanos**\
+`EE. UU. ha presionado a Argentina y Chile para que revisen dos proyectos de telescopios chinos en los desiertos andinos. A los astrónomos les preocupa que esto suponga un revés para la investigación.`\
+https://www.nytimes.com/es/2026/05/10/espanol/america-latina/eeuu-china-telescopio-argentina-chile.html
+
+**La tendencia de ‘unboxing’ que acerca a madres e hijas**\
+`Más allá de los típicos videos de compras de ropa, las futuras novias están compartiendo el momento en que revelan (y a veces se prueban) los vestidos de novia que sus madres han conservado.`\
+https://www.nytimes.com/es/2026/05/10/espanol/estilos-de-vida/unboxing-vestidos-novia-madre-hija.html
+
 **‘No Seat for Me’: Virginia Democrats Are Forced to Play Musical Chairs**\
 `A court ruling that struck down an election map swiftly ended some Democratic House candidacies and pushed others into much tougher races.`\
 https://www.nytimes.com/2026/05/10/us/politics/virginia-democratic-candidates-redistricting.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/10/magazine/netflix-diving-libel-case-murder-no-
 **Thanks to ‘Mormon Wives,’ Dirty Soda Is a National Obsession**\
 `The colorful drinks have become a hit across the country, inspiring new menu items at Dunkin’ and McDonald’s and a genre of TikTok recipes.`\
 https://www.nytimes.com/2026/05/10/style/dirty-soda-mormon-wives-utah-tiktok.html
-
-**The Unboxing Trend Bringing Mothers and Daughters Closer Together**\
-`Moving beyond the typical viral clothing hauls, brides-to-be are sharing sentimental videos of the moment they reveal (and sometimes try on) their mothers’ preserved wedding gowns.`\
-https://www.nytimes.com/2026/05/10/fashion/weddings/brides-unboxing-mothers-vintage-wedding-dresses-tiktok.html
-
-**To Jewelry Makers, Titanium Is More Appealing Than Ever**\
-`As gold and silver prices continue to soar, the metal’s relatively inexpensive cost has attracted new users.`\
-https://www.nytimes.com/2026/05/10/style/jewelry-titanium-wallace-chan.html
 
