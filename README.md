@@ -1,3 +1,7 @@
+**Democrats Search Desperately for a Response After Virginia Map Is Tossed**\
+`A private conversation involving House members from Virginia and the top House Democrat reflected the fury and desperation that has gripped the party after Friday’s ruling.`\
+https://www.nytimes.com/2026/05/10/us/politics/democrats-virginia-plans-gerrymandering.html
+
 **British Paratroopers Deliver Aid to Remote Islands With Possible Hantavirus Case**\
 `The British military took critical medical supplies to Tristan da Cunha, a tiny British archipelago where authorities have identified a suspected hantavirus case.`\
 https://www.nytimes.com/2026/05/10/world/europe/britain-parachute-hantavirus-hondius-tristan.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/05/10/espanol/estilos-de-vida/unboxing-vestidos-
 **‘No Seat for Me’: Virginia Democrats Are Forced to Play Musical Chairs**\
 `A court ruling that struck down an election map swiftly ended some Democratic House candidacies and pushed others into much tougher races.`\
 https://www.nytimes.com/2026/05/10/us/politics/virginia-democratic-candidates-redistricting.html
-
-**Vance or Rubio? Trump Muses on Successor as the ‘Kids’ Fill Bigger Roles.**\
-`Vice President JD Vance and Secretary of State Marco Rubio are boosting their profiles, generating speculation about who’s lining up for the 2028 presidential nomination.`\
-https://www.nytimes.com/2026/05/10/us/politics/vance-rubio-trump-succession.html
 
