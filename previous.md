@@ -1,3 +1,7 @@
+**6 Bodies Found in a Boxcar in Texas, Officials Say**\
+`The bodies were discovered in the city of Laredo, and it was not immediately clear what the cause of death was, the authorities said.`\
+https://www.nytimes.com/2026/05/10/us/dead-bodies-boxcar-texas.html
+
 **Oil Prices Rise as Prospects for U.S.-Iran Peace Deal Fizzle**\
 `Oil prices rose and stock futures ticked down as investors reacted after the two sides failed to agree on a U.S.-Iran peace deal.`\
 https://www.nytimes.com/2026/05/10/business/oil-prices-rise-as-prospects-for-us-iran-peace-deal-fizzle.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/10/us/trial-in-2000-bombing-case-is-delayed-week
 **Here’s the Waffle Recipe You’re Looking for**\
 ``\
 https://www.nytimes.com/2026/05/10/dining/heres-the-waffle-recipe-youre-looking-for.html
-
-**Energy Secretary Floats Pause in Federal Gas Tax**\
-`The tax is a little over 18 cents a gallon for gasoline. With the average national price above $4.50, the measure will provide little relief.`\
-https://www.nytimes.com/2026/05/10/us/politics/energy-secretary-federal-gas-tax.html
 

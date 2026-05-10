@@ -1,3 +1,7 @@
+**6 Bodies Found in a Boxcar in Texas, Officials Say**\
+`The bodies were discovered in the city of Laredo, and it was not immediately clear what the cause of death was, the authorities said.`\
+https://www.nytimes.com/2026/05/10/us/dead-bodies-boxcar-texas.html
+
 **Oil Prices Rise as Prospects for U.S.-Iran Peace Deal Fizzle**\
 `Oil prices rose and stock futures ticked down as investors reacted after the two sides failed to agree on a U.S.-Iran peace deal.`\
 https://www.nytimes.com/2026/05/10/business/oil-prices-rise-as-prospects-for-us-iran-peace-deal-fizzle.html
