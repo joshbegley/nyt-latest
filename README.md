@@ -2,8 +2,8 @@
 `President Vladimir Putin of Russia marked Victory Day in a scaled-down military event in Red Square, in Moscow, on Saturday.`\
 https://www.nytimes.com/video/world/100000010893832/russia-victory-day-parade-putin-ukraine.html
 
-**Kristin Smart Search Ends With No Recovery of Remains**\
-`Authorities said they did not recover Ms. Smart’s remains during a search of property tied to the family of the man convicted of killing her.`\
+**Search for Kristin Smart’s Remains at a Home Ends Without a Recovery**\
+`A new lead brought investigators back to a property just south of San Luis Obispo, Calif., tied to the family of the man convicted of killing her 30 years ago.`\
 https://www.nytimes.com/2026/05/09/us/kristin-smart-search-no-remains-recovered-california-property.html
 
 **Hiker Killed by Bear in ‘Surprise Encounter’ at Glacier National Park, Officials Say**\
