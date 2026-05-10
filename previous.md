@@ -1,3 +1,7 @@
+**Iran Responds to Latest U.S. Proposal to End War, but Offers Few Details**\
+`The two countries have been discussing a 30-day extension to the cease-fire and a reopening of the Strait of Hormuz.`\
+https://www.nytimes.com/2026/05/10/us/politics/iran-war-us-peace-proposal-response.html
+
 **Trial in 2000 Bombing Case Is Delayed Weeks Before It Was Set to Finally Start**\
 `A Saudi prisoner is accused of orchestrating the bombing of the USS Cole, which killed 17 American sailors in 2000.`\
 https://www.nytimes.com/2026/05/10/us/trial-in-2000-bombing-case-is-delayed-weeks-before-it-was-set-to-finally-start.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/10/opinion/hawaii-feminist-criminal-justice-syst
 **Connections Companion No. 1,065**\
 `Scroll down for hints and conversation about the puzzle for Monday, May 11, 2026.`\
 https://www.nytimes.com/2026/05/10/crosswords/connections-companion-1065.html
-
-**Strands Sidekick No. 799**\
-`Scroll down for hints and conversation about the puzzle for Monday, May 11, 2026.`\
-https://www.nytimes.com/2026/05/10/crosswords/strands-sidekick-799.html
 

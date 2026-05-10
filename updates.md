@@ -1,3 +1,7 @@
+**Iran Responds to Latest U.S. Proposal to End War, but Offers Few Details**\
+`The two countries have been discussing a 30-day extension to the cease-fire and a reopening of the Strait of Hormuz.`\
+https://www.nytimes.com/2026/05/10/us/politics/iran-war-us-peace-proposal-response.html
+
 **A Private Call Reveals Democrats’ Desperation Over Tossing of Map**\
 `A conversation involving House members from Virginia and the top House Democrat reflected the fury and desperation that has gripped the party after Friday’s ruling in the state.`\
 https://www.nytimes.com/2026/05/10/us/politics/democrats-virginia-plans-gerrymandering.html
