@@ -1,3 +1,11 @@
+**British Paratroopers Deliver Aid to Remote Islands With Possible Hantavirus Case**\
+`The British military took critical medical supplies to Tristan da Cunha, a tiny British archipelago where authorities have identified a suspected hantavirus case.`\
+https://www.nytimes.com/2026/05/10/world/europe/britain-parachute-hantavirus-hondius-tristan.html
+
+**‘Yesteryear' Asks if We Can Love a Broken World**\
+`Caro Claire Burke critiques America and asks who, and what, is redeemable?`\
+https://www.nytimes.com/2026/05/10/briefing/yesteryear-caro-claire-burke.html
+
 **Grab Some Seeds. Throw Them at the Soil. You’re a Gardener Now.**\
 `Welcome to chaos gardening, a laid-back way to turn a patch of ground into a riot of color.`\
 https://www.nytimes.com/2026/05/10/style/grab-some-seeds-throw-them-at-the-soil-youre-a-gardener-now.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/10/us/politics/virginia-democratic-candidates-re
 **Vance or Rubio? Trump Muses on Successor as the ‘Kids’ Fill Bigger Roles.**\
 `Vice President JD Vance and Secretary of State Marco Rubio are boosting their profiles, generating speculation about who’s lining up for the 2028 presidential nomination.`\
 https://www.nytimes.com/2026/05/10/us/politics/vance-rubio-trump-succession.html
-
-**What to Do About the White House Correspondents Dinner?**\
-`A gunman’s attack at the April dinner has spurred more debate than usual about one of Washington’s most dissected rituals.`\
-https://www.nytimes.com/2026/05/10/us/politics/white-house-trump-dinner.html
-
-**Putin’s Forces Are Barely Inching Along on the Battlefield**\
-`The Russian military has yet to solve a fundamental problem: how to make big advances in eastern Ukraine when drones are everywhere.`\
-https://www.nytimes.com/2026/05/10/world/europe/russia-ukraine-putin-war.html
 
