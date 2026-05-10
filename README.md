@@ -1,3 +1,15 @@
+**Una madre en duelo preserva el legado artístico de su hijo**\
+`El pintor Matthew Wong estaba en ascenso cuando murió a los 35 años. Su madre, Monita Wong, se está asegurando de que su obra pueda seguir viéndose.`\
+https://www.nytimes.com/es/2026/05/10/espanol/cultura/madre-duelo-hijo-arte.html
+
+**I Tried to Become My Mother and Ended Up Becoming Myself**\
+`I’m realizing that a sort of gooey sitcom resolution is not in the cards for my mother and me.`\
+https://www.nytimes.com/2026/05/10/opinion/erica-jong-mothers-day-dementia.html
+
+**China Is Becoming Dangerously Overconfident**\
+`We are entering a more perilous era where China no longer sees U.S. strength as something to fear.`\
+https://www.nytimes.com/2026/05/10/opinion/china-trump-us-power.html
+
 **Cheers and Tears at Thailand’s Military Draft Lottery**\
 `Every April, young men in Thailand draw a card from a jar that determines whether they will serve two years in the military or go home free. The nation’s top court will decide on Tuesday if the conscription lottery continues.`\
 https://www.nytimes.com/video/world/asia/100000010890918/thailand-military-draft-conscription-lottery-court.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/09/us/bobby-cox-dead.html
 **Passengers on Ship Struck by Hantavirus to Disembark on Sunday**\
 `The cruise ship will arrive on the island of Tenerife, part of the Canary Islands of Spain, officials said. All of the passengers will then be evacuated to their home countries.`\
 https://www.nytimes.com/2026/05/09/world/africa/hantavirus-ship-passengers-evacuate.html
-
-**Deadly Israeli Strikes Erode Cease-Fire in Lebanon**\
-`Fighting between Israel and Hezbollah has shown little sign of abating, with Hezbollah also continuing to attack Israeli troops, and both sides accusing the other of violating a U.S.-brokered truce.`\
-https://www.nytimes.com/2026/05/09/world/middleeast/israel-strikes-lebanon-ceasefire.html
-
-**GLP-1s and the ‘Wild West’ of Wellness**\
-`GLP-1s are already a blockbuster drug. But does their popularity stem from how they work, or the strange culture into which they’ve landed? On “The Ezra Klein Show,” Ezra Klein talks to the health journalist Julia Belluz about the strange science and cultural impact of these blockbuster drugs.`\
-https://www.nytimes.com/video/opinion/100000010875455/glp-1s-and-the-wild-west-of-wellness.html
-
-**How GLP-1s Suppress Our Hunger. (It’s Weird.)**\
-`GLP-1s enable weight loss in a very weird way. On “The Ezra Klein Show,” Ezra Klein talks to the health journalist Julia Belluz about the strange science and cultural impact of these blockbuster drugs.`\
-https://www.nytimes.com/video/opinion/100000010875450/glp-1s-and-the-wild-west-of-wellness.html
 
