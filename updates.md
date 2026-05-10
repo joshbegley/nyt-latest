@@ -1,3 +1,7 @@
+**Maya Lin Connects Nature to a New Manhattan Skyscraper and Beyond**\
+`The famed artist and designer drew on her lifelong love of the environment for inspiration for new work in New York and Chicago.`\
+https://www.nytimes.com/2026/05/10/arts/design/maya-lin-manhattan-skyscraper.html
+
 **Passengers and Crew Are Evacuated From Ship at Center of Hantavirus Outbreak**\
 `Passengers and crew from a cruise ship hit by a deadly hantavirus outbreak were evacuated on Sunday after the vessel anchored off Spain’s Canary Islands.`\
 https://www.nytimes.com/video/world/europe/100000010894758/passengers-and-crew-are-evacuated-from-ship-at-center-of-hantavirus-outbreak.html
