@@ -1,3 +1,7 @@
+**Meta se muere. Ya era hora**\
+`Si se mira con atención, se pueden ver grietas en la armadura de la empresa de Mark Zuckerberg.`\
+https://www.nytimes.com/es/2026/05/10/espanol/opinion/meta-fracaso-ia.html
+
 **En Cartagena, un lugar para monjes, bailarines y cinéfilos ahora es un hotel**\
 `Construido a partir de edificios históricos como un monasterio y un club nocturno, el complejo ocupa más de 3,2 hectáreas urbanas en este destino turístico caribeño.`\
 https://www.nytimes.com/es/2026/05/10/espanol/colombia-cartagena-diseno-hotel.html

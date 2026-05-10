@@ -1,3 +1,7 @@
+**Meta se muere. Ya era hora**\
+`Si se mira con atención, se pueden ver grietas en la armadura de la empresa de Mark Zuckerberg.`\
+https://www.nytimes.com/es/2026/05/10/espanol/opinion/meta-fracaso-ia.html
+
 **En Cartagena, un lugar para monjes, bailarines y cinéfilos ahora es un hotel**\
 `Construido a partir de edificios históricos como un monasterio y un club nocturno, el complejo ocupa más de 3,2 hectáreas urbanas en este destino turístico caribeño.`\
 https://www.nytimes.com/es/2026/05/10/espanol/colombia-cartagena-diseno-hotel.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/us/politics/100000010887504/the-gop-rush-to-break-
 **Russian State TV Shows Smaller Military Parade Amid Fears of Ukrainian Strike**\
 `President Vladimir Putin of Russia marked Victory Day in a scaled-down military event in Red Square, in Moscow, on Saturday.`\
 https://www.nytimes.com/video/world/100000010893832/russia-victory-day-parade-putin-ukraine.html
-
-**Search at a Home for Kristin Smart’s Remains Ends Without a Recovery**\
-`A new lead brought investigators back to a property just south of San Luis Obispo, Calif., tied to the family of the man convicted of killing Ms. Smart, a student, 30 years ago.`\
-https://www.nytimes.com/2026/05/09/us/kristin-smart-search-no-remains-recovered-california-property.html
 
