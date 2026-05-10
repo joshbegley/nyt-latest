@@ -1,3 +1,27 @@
+**Cheers and Tears at Thailand’s Military Draft Lottery**\
+`Every April, young men in Thailand draw a card from a jar that determines whether they will serve two years in the military or go home free. The nation’s top court will decide on Tuesday if the conscription lottery continues.`\
+https://www.nytimes.com/video/world/asia/100000010890918/thailand-military-draft-conscription-lottery-court.html
+
+**Red Card or Black Card? The Conscription Lottery in Thailand.**\
+`The draft, which is mandatory for men, is a deeply divisive issue in the country. But volunteer enlistments have soared amid a surge in nationalism and a sluggish economy.`\
+https://www.nytimes.com/2026/05/10/world/asia/thailand-conscription-lottery.html
+
+**Quote of the Day: As Hungary Gets a New Leader, the Old Guard Is Stunned**\
+`Quotation of the Day for Sunday, May 10, 2026.`\
+https://www.nytimes.com/2026/05/10/pageoneplus/quote-of-the-day-as-hungary-gets-a-new-leader-the-old-guard-is-stunned.html
+
+****\
+`Pulling a card from the jar during a conscription lottery at the Central Westgate mall in Nonthaburi, on the outskirts of Bangkok.`\
+https://www.nytimes.com/video/embedded/world/asia/100000010888364/00int-thailand-conscription-64860.html
+
+**The Man Who Cuts the Perfect Slice of Ham**\
+`Spaniards line up at weddings, tennis tournaments and galas to eat ham prepared by Ernesto Soriano, one of the world’s best slicers of jamón ibérico.`\
+https://www.nytimes.com/2026/05/10/world/europe/jamon-iberico-perfect-slice.html
+
+****\
+`The conscription lottery is held every April. Military officers measure recruits, who must be at least 5 feet 3 inches tall and have a chest circumference of at least 30 inches.`\
+https://www.nytimes.com/video/embedded/world/asia/100000010888362/00int-thailand-conscription-64333.html
+
 **Corrections: May 10, 2026**\
 `Corrections that appeared in print on Sunday, May 10, 2026.`\
 https://www.nytimes.com/2026/05/09/pageoneplus/corrections-may-10-2026.html
