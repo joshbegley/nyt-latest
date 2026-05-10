@@ -1,3 +1,15 @@
+**Una madre en duelo preserva el legado artístico de su hijo**\
+`El pintor Matthew Wong estaba en ascenso cuando murió a los 35 años. Su madre, Monita Wong, se está asegurando de que su obra pueda seguir viéndose.`\
+https://www.nytimes.com/es/2026/05/10/espanol/cultura/madre-duelo-hijo-arte.html
+
+**I Tried to Become My Mother and Ended Up Becoming Myself**\
+`I’m realizing that a sort of gooey sitcom resolution is not in the cards for my mother and me.`\
+https://www.nytimes.com/2026/05/10/opinion/erica-jong-mothers-day-dementia.html
+
+**China Is Becoming Dangerously Overconfident**\
+`We are entering a more perilous era where China no longer sees U.S. strength as something to fear.`\
+https://www.nytimes.com/2026/05/10/opinion/china-trump-us-power.html
+
 **Search at a Home for Kristin Smart’s Remains Ends Without a Recovery**\
 `A new lead brought investigators back to a property just south of San Luis Obispo, Calif., tied to the family of the man convicted of killing Ms. Smart, a student, 30 years ago.`\
 https://www.nytimes.com/2026/05/09/us/kristin-smart-search-no-remains-recovered-california-property.html
