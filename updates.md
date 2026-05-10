@@ -1,3 +1,19 @@
+**Energy secretary floats pause in federal gas tax**\
+``\
+https://www.nytimes.com/live/2026/05/10/us/trump-news/energy-secretary-floats-pause-in-federal-gas-tax
+
+**Lebanese Mourn Eight Members of One Family Killed in Israeli Strike**\
+`Israel has escalated attacks on Lebanon since Thursday, further unraveling a truce in its war with Hezbollah. Among those killed on Saturday was a 6-month-old infant, relatives said.`\
+https://www.nytimes.com/2026/05/10/world/middleeast/lebanese-mourn-eight-members-of-one-family-killed-in-israeli-strike.html
+
+**Starmer Greets Calls to Resign With a Simple Answer. No.**\
+`But if his opponents mount a challenge, how would it unfold?`\
+https://www.nytimes.com/2026/05/10/world/europe/starmer-west-resign.html
+
+**Democrats Search Desperately for a Response After Virginia Map Is Tossed**\
+`A private conversation involving House members from Virginia and the top House Democrat reflected the fury and desperation that has gripped the party after Friday’s ruling.`\
+https://www.nytimes.com/2026/05/10/us/politics/democrats-virginia-plans-gerrymandering.html
+
 **British Paratroopers Deliver Aid to Remote Islands With Possible Hantavirus Case**\
 `The British military took critical medical supplies to Tristan da Cunha, a tiny British archipelago where authorities have identified a suspected hantavirus case.`\
 https://www.nytimes.com/2026/05/10/world/europe/britain-parachute-hantavirus-hondius-tristan.html
