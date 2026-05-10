@@ -1,3 +1,15 @@
+**Passengers and Crew Are Evacuated From Ship at Center of Hantavirus Outbreak**\
+`Passengers and crew from a cruise ship hit by a deadly hantavirus outbreak were evacuated on Sunday after the vessel anchored off Spain’s Canary Islands.`\
+https://www.nytimes.com/video/world/europe/100000010894758/passengers-and-crew-are-evacuated-from-ship-at-center-of-hantavirus-outbreak.html
+
+**A One-Party India**\
+`A recent victory in a key state has put Narendra Modi at the helm of country in which opponents hold almost no power.`\
+https://www.nytimes.com/2026/05/10/world/india-modi-elections-trump-iran-proposal.html
+
+**Abraham Foxman, Warrior Against Antisemitism, Dies at 86**\
+`For almost three decades, he led the Anti-Defamation League, winning access to presidents and prime ministers and meeting with Pope John Paul II.`\
+https://www.nytimes.com/2026/05/10/obituaries/abraham-foxman-dead.html
+
 **Why Nebraska’s ‘Blue Dot’ Is Roiling a Democratic House Primary**\
 `A speck of blue on an otherwise red area in some presidential elections, the dot is now dividing candidates in a key midterm contest.`\
 https://www.nytimes.com/2026/05/10/us/politics/nebraska-blue-dot-democrats-house.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/10/world/europe/starmer-west-resign.html
 **A Private Call Reveals Democrats’ Desperation Over Tossing of Map**\
 `A conversation involving House members from Virginia and the top House Democrat reflected the fury and desperation that has gripped the party after Friday’s ruling in the state.`\
 https://www.nytimes.com/2026/05/10/us/politics/democrats-virginia-plans-gerrymandering.html
-
-**British Paratroopers Deliver Aid to Remote Islands With Possible Hantavirus Case**\
-`The British military took critical medical supplies to Tristan da Cunha, a tiny British archipelago where authorities have identified a suspected hantavirus case.`\
-https://www.nytimes.com/2026/05/10/world/europe/britain-parachute-hantavirus-hondius-tristan.html
-
-**‘Yesteryear' Asks if We Can Love a Broken World**\
-`Caro Claire Burke critiques America and asks who, and what, is redeemable?`\
-https://www.nytimes.com/2026/05/10/briefing/yesteryear-caro-claire-burke.html
-
-**Grab Some Seeds. Throw Them at the Soil. You’re a Gardener Now.**\
-`Welcome to chaos gardening, a laid-back way to turn a patch of ground into a riot of color.`\
-https://www.nytimes.com/2026/05/10/style/grab-some-seeds-throw-them-at-the-soil-youre-a-gardener-now.html
 
