@@ -38,7 +38,7 @@ https://www.nytimes.com/2026/05/10/realestate/parc-beaufort-coop-new-york.html
 `Though illicit e-cigarettes have flooded in from China, the new policy could allow major tobacco companies to sell from prime shelf space at thousands of stores.`\
 https://www.nytimes.com/2026/05/10/science/fda-flavored-vapes.html
 
-**Iran Responds to Latest U.S. Proposal to End War, but Offers Few Details**\
+**Trump Calls Iran’s Response to Latest U.S. Proposal ‘Totally Unacceptable’**\
 `The two countries have been discussing a 30-day extension to the cease-fire and a reopening of the Strait of Hormuz.`\
 https://www.nytimes.com/2026/05/10/us/politics/iran-war-us-peace-proposal-response.html
 

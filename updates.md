@@ -1,3 +1,7 @@
+**Trump Calls Iran’s Response to Latest U.S. Proposal ‘Totally Unacceptable’**\
+`The two countries have been discussing a 30-day extension to the cease-fire and a reopening of the Strait of Hormuz.`\
+https://www.nytimes.com/2026/05/10/us/politics/iran-war-us-peace-proposal-response.html
+
 **Why Nebraska’s ‘Blue Dot’ Is Roiling a Democratic House Primary**\
 `A speck of blue on an otherwise red area in some presidential elections, the dot is now dividing candidates in a key midterm contest.`\
 https://www.nytimes.com/2026/05/10/us/politics/nebraska-blue-dot-democrats-house.html
