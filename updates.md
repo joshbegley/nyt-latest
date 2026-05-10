@@ -1,3 +1,11 @@
+**Is the Art Market Fair, Flawed or Game-able? Depends Who You Ask.**\
+`Three new books — a sweeping work of nonfiction, a cheeky memoir and a dual biography — provide divergent views on the business of buying and selling, and they are out just in time for New York Art Week.`\
+https://www.nytimes.com/2026/05/10/arts/design/books-art-market-2026.html
+
+**A Respected Artist Gains Wider Recognition**\
+`Michael Joo is appearing in multiple shows, from New York and the San Francisco Bay Area to a Mediterranean island and Venice.`\
+https://www.nytimes.com/2026/05/10/arts/design/michael-joo-frieze-new-york.html
+
 **A Panorama of Design**\
 `A look at news, products and events during the NYCxDesign Festival.`\
 https://www.nytimes.com/2026/05/10/style/nyc-design-events-products.html

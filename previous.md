@@ -1,3 +1,11 @@
+**Is the Art Market Fair, Flawed or Game-able? Depends Who You Ask.**\
+`Three new books — a sweeping work of nonfiction, a cheeky memoir and a dual biography — provide divergent views on the business of buying and selling, and they are out just in time for New York Art Week.`\
+https://www.nytimes.com/2026/05/10/arts/design/books-art-market-2026.html
+
+**A Respected Artist Gains Wider Recognition**\
+`Michael Joo is appearing in multiple shows, from New York and the San Francisco Bay Area to a Mediterranean island and Venice.`\
+https://www.nytimes.com/2026/05/10/arts/design/michael-joo-frieze-new-york.html
+
 **A Panorama of Design**\
 `A look at news, products and events during the NYCxDesign Festival.`\
 https://www.nytimes.com/2026/05/10/style/nyc-design-events-products.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/10/arts/television/on-snl-brett-kavanaugh-kash-p
 **Words of Wisdom**\
 `Today, we’re sharing some favorite bits of advice from moms.`\
 https://www.nytimes.com/2026/05/10/briefing/mothers-day-words-of-wisdom.html
-
-**The Platner Trap**\
-`The exact wrong answer to a Republican Party that’s flirting with fascism is a man who chose to put vile Nazi imagery on his own body.`\
-https://www.nytimes.com/2026/05/10/opinion/graham-platner-democrats-senate-maine.html
-
-**For Mother’s Day, Classic Mom-isms**\
-`The mantras, mottos and favorite sayings our mothers have repeated over the years.`\
-https://www.nytimes.com/2026/05/10/podcasts/the-daily/for-mothers-day-classic-mom-isms.html
 
