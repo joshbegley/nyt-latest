@@ -18,8 +18,8 @@ https://www.nytimes.com/2026/05/10/world/middleeast/lebanon-family-funeral-israe
 `But if his opponents mount a challenge, how would it unfold?`\
 https://www.nytimes.com/2026/05/10/world/europe/starmer-west-resign.html
 
-**Democrats Search Desperately for a Response After Virginia Map Is Tossed**\
-`A private conversation involving House members from Virginia and the top House Democrat reflected the fury and desperation that has gripped the party after Friday’s ruling.`\
+**A Private Call Reveals Democrats’ Desperation Over Tossing of Map**\
+`A conversation involving House members from Virginia and the top House Democrat reflected the fury and desperation that has gripped the party after Friday’s ruling in the state.`\
 https://www.nytimes.com/2026/05/10/us/politics/democrats-virginia-plans-gerrymandering.html
 
 **British Paratroopers Deliver Aid to Remote Islands With Possible Hantavirus Case**\
