@@ -8,7 +8,7 @@ https://www.nytimes.com/2026/05/10/business/oil-prices-rise-as-prospects-for-us-
 
 **Winning a Blue Ribbon**\
 `Joel Woodford’s second puzzle makes a few exclamations.`\
-https://www.nytimes.com/2026/05/10/crosswords/daily-puzzle-2026-05-10.html
+https://www.nytimes.com/2026/05/10/crosswords/daily-puzzle-2026-05-11.html
 
 **Maya Lin Connects Nature to a New Manhattan Skyscraper and Beyond**\
 `The famed artist and designer drew on her lifelong love of the environment for inspiration for new work in New York and Chicago.`\
