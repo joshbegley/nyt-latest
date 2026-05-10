@@ -62,13 +62,13 @@ https://www.nytimes.com/2026/05/10/opinion/graham-platner-democrats-senate-maine
 `The mantras, mottos and favorite sayings our mothers have repeated over the years.`\
 https://www.nytimes.com/2026/05/10/podcasts/the-daily/for-mothers-day-classic-mom-isms.html
 
-**Wordle Review No. 1,787**\
-`Scroll down for hints and conversation about the puzzle for Monday, May 11, 2026.`\
-https://www.nytimes.com/2026/05/10/crosswords/wordle-review-1787.html
-
 **I’m a Democrat. My Party Has a Double Standard on Antisemitism.**\
 `When we’re talking about which allies to support or which communities we defend, our principles shouldn’t shift.`\
 https://www.nytimes.com/2026/05/10/opinion/hasan-piker-democratic-party-antisemitism.html
+
+**Wordle Review No. 1,787**\
+`Scroll down for hints and conversation about the puzzle for Monday, May 11, 2026.`\
+https://www.nytimes.com/2026/05/10/crosswords/wordle-review-1787.html
 
 **A Quietly Radical Experiment in Criminal Justice**\
 `Hawaii might have the answer.`\
