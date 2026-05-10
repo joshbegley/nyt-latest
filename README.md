@@ -3,7 +3,7 @@
 https://www.nytimes.com/video/world/europe/100000010894758/passengers-and-crew-are-evacuated-from-ship-at-center-of-hantavirus-outbreak.html
 
 **A One-Party India**\
-`A recent victory in a key state has put Narendra Modi at the helm of country in which opponents hold almost no power.`\
+`A recent victory in a key state has put Narendra Modi at the helm of a country in which opponents hold almost no power.`\
 https://www.nytimes.com/2026/05/10/world/india-modi-elections-trump-iran-proposal.html
 
 **Abraham Foxman, Warrior Against Antisemitism, Dies at 86**\
