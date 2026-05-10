@@ -1,3 +1,7 @@
+**Corrections: May 10, 2026**\
+`Corrections that appeared in print on Sunday, May 10, 2026.`\
+https://www.nytimes.com/2026/05/09/pageoneplus/corrections-may-10-2026.html
+
 **The G.O.P. Rush To Break Up Majority-Black Districts**\
 `Republican-controlled legislatures in the South are breaking up majority-Black congressional districts in the wake of the Supreme Court’s recent ruling. Our national politics reporter Nick Corasaniti describes what it means for the midterms.`\
 https://www.nytimes.com/video/us/politics/100000010887504/the-gop-rush-to-break-up-majority-black-districts.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/09/dining/border-town-pop-up-breakfast-tacos.htm
 **La pareja de tu amiga es aburrida. Las citas dobles no tienen por qué serlo**\
 `Los expertos comparten ideas para elegir las actividades adecuadas y mantener la paz.`\
 https://www.nytimes.com/es/2026/05/09/espanol/citas-dobles-amigos-parejas.html
-
-**Hantavirus Vaccines and Treatments Are in the Pipeline**\
-`But it has been hard to attract interest in medical interventions for viruses that have not been considered a top public health priority, scientists say.`\
-https://www.nytimes.com/2026/05/09/science/hantavirus-vaccines-treatment.html
 
