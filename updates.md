@@ -1,3 +1,7 @@
+**Punch, el mono solitario de Japón que conquistó internet, está creciendo**\
+`Desde que saltó a los titulares, el macaco, que ahora tiene 9 meses, se ha integrado poco a poco en su tropa y ha hecho amigos, tanto monos como humanos.`\
+https://www.nytimes.com/es/2026/05/10/espanol/mundo/punch-mono-japon-crecimiento.html
+
 **Meta se muere. Ya era hora**\
 `Si se mira con atención, se pueden ver grietas en la armadura de la empresa de Mark Zuckerberg.`\
 https://www.nytimes.com/es/2026/05/10/espanol/opinion/meta-fracaso-ia.html

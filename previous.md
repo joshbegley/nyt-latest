@@ -1,3 +1,7 @@
+**Punch, el mono solitario de Japón que conquistó internet, está creciendo**\
+`Desde que saltó a los titulares, el macaco, que ahora tiene 9 meses, se ha integrado poco a poco en su tropa y ha hecho amigos, tanto monos como humanos.`\
+https://www.nytimes.com/es/2026/05/10/espanol/mundo/punch-mono-japon-crecimiento.html
+
 **Meta se muere. Ya era hora**\
 `Si se mira con atención, se pueden ver grietas en la armadura de la empresa de Mark Zuckerberg.`\
 https://www.nytimes.com/es/2026/05/10/espanol/opinion/meta-fracaso-ia.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/09/pageoneplus/corrections-may-10-2026.html
 **The G.O.P. Rush To Break Up Majority-Black Districts**\
 `Republican-controlled legislatures in the South are breaking up majority-Black congressional districts in the wake of the Supreme Court’s recent ruling. Our national politics reporter Nick Corasaniti describes what it means for the midterms.`\
 https://www.nytimes.com/video/us/politics/100000010887504/the-gop-rush-to-break-up-majority-black-districts.html
-
-**Russian State TV Shows Smaller Military Parade Amid Fears of Ukrainian Strike**\
-`President Vladimir Putin of Russia marked Victory Day in a scaled-down military event in Red Square, in Moscow, on Saturday.`\
-https://www.nytimes.com/video/world/100000010893832/russia-victory-day-parade-putin-ukraine.html
 
