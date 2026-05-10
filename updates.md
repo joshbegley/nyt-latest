@@ -1,3 +1,7 @@
+**The G.O.P. Rush To Break Up Majority-Black Districts**\
+`Republican-controlled legislatures in the South are breaking up majority-Black congressional districts in the wake of the Supreme Court’s recent ruling. Our national politics reporter Nick Corasaniti describes what it means for the midterms.`\
+https://www.nytimes.com/video/us/politics/100000010887504/the-gop-rush-to-break-up-majority-black-districts.html
+
 **Search for Kristin Smart’s Remains at a Home Ends Without a Recovery**\
 `A new lead brought investigators back to a property just south of San Luis Obispo, Calif., tied to the family of the man convicted of killing her 30 years ago.`\
 https://www.nytimes.com/2026/05/09/us/kristin-smart-search-no-remains-recovered-california-property.html
