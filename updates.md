@@ -1,3 +1,19 @@
+**Grab Some Seeds. Throw Them at the Soil. You’re a Gardener Now.**\
+`Welcome to chaos gardening, a laid-back way to turn a patch of ground into a riot of color.`\
+https://www.nytimes.com/2026/05/10/style/grab-some-seeds-throw-them-at-the-soil-youre-a-gardener-now.html
+
+**Maps: Earthquakes Shake Southern California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/05/10/us/quake-tracker-southern-california.html
+
+**How Students Interact With A.I. Is What Matters**\
+`Readers discuss artificial intelligence and writing in the classroom. Also: President Trump’s latest assault on science; election workers.`\
+https://www.nytimes.com/2026/05/10/opinion/ai-students.html
+
+**On ‘S.N.L.’, Brett Kavanaugh, Kash Patel and Pete Hegseth Walk Into a Bar**\
+`Matt Damon and Aziz Ansari return to roles they have played on “Saturday Night Live” alongside Colin Jost, in an episode hosted by Damon.`\
+https://www.nytimes.com/2026/05/10/arts/television/on-snl-brett-kavanaugh-kash-patel-and-pete-hegseth-walk-into-a-bar.html
+
 **Words of Wisdom**\
 `Today, we’re sharing some favorite bits of advice from moms.`\
 https://www.nytimes.com/2026/05/10/briefing/mothers-day-words-of-wisdom.html
