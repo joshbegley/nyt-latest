@@ -1,3 +1,11 @@
+**Here’s the Waffle Recipe You’re Looking for**\
+``\
+https://www.nytimes.com/2026/05/10/dining/heres-the-waffle-recipe-youre-looking-for.html
+
+**A Quietly Radical Experiment in Criminal Justice**\
+`Hawaii might have the answer.`\
+https://www.nytimes.com/2026/05/10/opinion/hawaii-feminist-criminal-justice-system.html
+
 **Energy secretary floats pause in federal gas tax**\
 ``\
 https://www.nytimes.com/live/2026/05/10/us/trump-news/energy-secretary-floats-pause-in-federal-gas-tax
