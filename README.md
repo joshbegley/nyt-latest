@@ -1,3 +1,7 @@
+**Here’s the Waffle Recipe You’re Looking for**\
+``\
+https://www.nytimes.com/2026/05/10/dining/heres-the-waffle-recipe-youre-looking-for.html
+
 **Energy secretary floats pause in federal gas tax**\
 ``\
 https://www.nytimes.com/live/2026/05/10/us/trump-news/energy-secretary-floats-pause-in-federal-gas-tax
@@ -58,7 +62,7 @@ https://www.nytimes.com/2026/05/10/crosswords/wordle-review-1787.html
 `When we’re talking about which allies to support or which communities we defend, our principles shouldn’t shift.`\
 https://www.nytimes.com/2026/05/10/opinion/hasan-piker-democratic-party-antisemitism.html
 
-**What Would a Feminist Justice System Look Like?**\
+**A Quietly Radical Experiment in Criminal Justice**\
 `Hawaii might have the answer.`\
 https://www.nytimes.com/2026/05/10/opinion/hawaii-feminist-criminal-justice-system.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/10/crosswords/strands-sidekick-799.html
 **They Thought They Had Only Months to Live. Then Things Changed.**\
 `For some patients, cancer is becoming like a chronic illness.`\
 https://www.nytimes.com/2026/05/10/opinion/terminal-cancer-chronic-illness-health.html
-
-**How American Cool Dies**\
-`Vintage American clothing still commands high prices, but the physical manifestations of U.S. empire have decayed. No one knows what’s next.`\
-https://www.nytimes.com/2026/05/10/opinion/vintage-clothes-america-cool-culture.html
 
