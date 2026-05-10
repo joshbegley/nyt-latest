@@ -1,3 +1,7 @@
+**Hundreds Mourn Eight Members of Lebanese Family Killed in Israeli Strike**\
+`At least eight members of a Lebanese family were killed by an Israeli strike on Saturday. The family was displaced and among those killed was a 6-month-old infant, relatives said.`\
+https://www.nytimes.com/video/world/middleeast/100000010894865/lebanese-family-killed-israeli-strike.html
+
 **Democratic Angst Could Lead California to Change Its Primary Rules**\
 `The prospect of Democrats getting shut out of the general election for governor has spurred an effort to eliminate the state’s “top-two” open primary approach.`\
 https://www.nytimes.com/2026/05/10/us/california-primary-rules-change-democrats.html
