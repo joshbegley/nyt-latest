@@ -1,3 +1,19 @@
+**Grab Some Seeds. Throw Them at the Soil. You’re a Gardener Now.**\
+`Welcome to chaos gardening, a laid-back way to turn a patch of ground into a riot of color.`\
+https://www.nytimes.com/2026/05/10/style/grab-some-seeds-throw-them-at-the-soil-youre-a-gardener-now.html
+
+**Maps: Earthquakes Shake Southern California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/05/10/us/quake-tracker-southern-california.html
+
+**How Students Interact With A.I. Is What Matters**\
+`Readers discuss artificial intelligence and writing in the classroom. Also: President Trump’s latest assault on science; election workers.`\
+https://www.nytimes.com/2026/05/10/opinion/ai-students.html
+
+**On ‘S.N.L.’, Brett Kavanaugh, Kash Patel and Pete Hegseth Walk Into a Bar**\
+`Matt Damon and Aziz Ansari return to roles they have played on “Saturday Night Live” alongside Colin Jost, in an episode hosted by Damon.`\
+https://www.nytimes.com/2026/05/10/arts/television/on-snl-brett-kavanaugh-kash-patel-and-pete-hegseth-walk-into-a-bar.html
+
 **Words of Wisdom**\
 `Today, we’re sharing some favorite bits of advice from moms.`\
 https://www.nytimes.com/2026/05/10/briefing/mothers-day-words-of-wisdom.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/05/10/us/politics/white-house-trump-dinner.html
 **Putin’s Forces Are Barely Inching Along on the Battlefield**\
 `The Russian military has yet to solve a fundamental problem: how to make big advances in eastern Ukraine when drones are everywhere.`\
 https://www.nytimes.com/2026/05/10/world/europe/russia-ukraine-putin-war.html
-
-**U.S.-China Rivalry Reaches South American Skies**\
-`The U.S. has pressed Argentina and Chile to review two Chinese telescope projects in the Andean deserts. Astronomers are worried about setbacks to research.`\
-https://www.nytimes.com/2026/05/10/world/americas/us-china-telescope-argentina-chile.html
-
-**A 3-Year-Old Is Looking for Answers**\
-`“Why are some things special?” This Mother’s Day, we revisit a 3-year-old’s endless curiosity and a mother’s joy of seeing the world through her child’s eyes.`\
-https://www.nytimes.com/video/opinion/100000010886862/a-3-year-old-is-looking-for-answers.html
-
-**With Just One Word, Brandeis Is Trying to Change College Shopping**\
-`A new tool on the university’s website tells you what the first year “will” cost if you get in.`\
-https://www.nytimes.com/2026/05/10/your-money/brandeis-college-cost-faye.html
-
-**With New Bishops, Pope Leo Starts to Put His Imprint on U.S. Church**\
-`His appointments have focused on pastoral care and reflect the changing composition of Catholic pews and priests.`\
-https://www.nytimes.com/2026/05/10/us/pope-leo-bishops.html
 
