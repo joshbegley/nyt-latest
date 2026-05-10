@@ -1,3 +1,35 @@
+**En Cartagena, un lugar para monjes, bailarines y cinéfilos ahora es un hotel**\
+`Construido a partir de edificios históricos como un monasterio y un club nocturno, el complejo ocupa más de 3,2 hectáreas urbanas en este destino turístico caribeño.`\
+https://www.nytimes.com/es/2026/05/10/espanol/colombia-cartagena-diseno-hotel.html
+
+**Beware of Wolves, but Straw Houses Could Help With Climate Change**\
+`Near Hudson, N.Y., a Princeton University team erected a cottage made from the agricultural byproduct, which they said is more sustainable than bricks or concrete.`\
+https://www.nytimes.com/2026/05/10/nyregion/straw-house-hudson-ny.html
+
+**Giuliani Once Helped a Predecessor Get Health Care**\
+`As the former mayor seeks help from the World Trade Center Health Program, an episode where he helped his predecessor John V. Lindsay carries resonance.`\
+https://www.nytimes.com/2026/05/10/nyregion/giuliani-lindsay-health-care.html
+
+**Can the Country’s ‘Dirtiest Hotel’ Get a Clean Slate?**\
+`For decades, the Hotel Carter in Times Square was the site of squalor and crime. Now rundown and empty, its future is tied up in litigation but some hope for a rebirth.`\
+https://www.nytimes.com/2026/05/10/nyregion/hotel-carter-dirtiest-times-square.html
+
+**Is This Telescope a Threat to U.S. Security?**\
+`Our reporter Emma Bubola visits the foothills of the Argentine Andes to find out why a giant Chinese-sponsored telescope is sitting dismembered.`\
+https://www.nytimes.com/video/world/americas/100000010873671/is-this-telescope-a-threat-to-us-security.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/10/crosswords/spelling-bee-forum.html
+
+**Cruise Ship Linked to Hantavirus Outbreak Arrives in Canary Islands**\
+`The MV Hondius, the cruise ship that had carried passengers infected with hantavirus, anchored off the Spanish territory, where other passengers would soon disembark.`\
+https://www.nytimes.com/2026/05/10/world/europe/hantavirus-cruise-ship-canary-islands.html
+
+**I Forgave My Mother, but It Was Too Late**\
+`I’m realizing that a sort of gooey sitcom resolution is not in the cards for my mother and me.`\
+https://www.nytimes.com/2026/05/10/opinion/erica-jong-mothers-day-dementia.html
+
 **Una madre en duelo preserva el legado artístico de su hijo**\
 `El pintor Matthew Wong estaba en ascenso cuando murió a los 35 años. Su madre, Monita Wong, se está asegurando de que su obra pueda seguir viéndose.`\
 https://www.nytimes.com/es/2026/05/10/espanol/cultura/madre-duelo-hijo-arte.html
