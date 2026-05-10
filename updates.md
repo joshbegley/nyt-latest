@@ -1,3 +1,15 @@
+**Passengers and Crew Are Evacuated From Ship at Center of Hantavirus Outbreak**\
+`Passengers and crew from a cruise ship hit by a deadly hantavirus outbreak were evacuated on Sunday after the vessel anchored off Spain’s Canary Islands.`\
+https://www.nytimes.com/video/world/europe/100000010894758/passengers-and-crew-are-evacuated-from-ship-at-center-of-hantavirus-outbreak.html
+
+**A One-Party India**\
+`A recent victory in a key state has put Narendra Modi at the helm of a country in which opponents hold almost no power.`\
+https://www.nytimes.com/2026/05/10/world/india-modi-elections-trump-iran-proposal.html
+
+**Abraham Foxman, Warrior Against Antisemitism, Dies at 86**\
+`For almost three decades, he led the Anti-Defamation League, winning access to presidents and prime ministers and meeting with Pope John Paul II.`\
+https://www.nytimes.com/2026/05/10/obituaries/abraham-foxman-dead.html
+
 **Trump Calls Iran’s Response to Latest U.S. Proposal ‘Totally Unacceptable’**\
 `The two countries have been discussing a 30-day extension to the cease-fire and a reopening of the Strait of Hormuz.`\
 https://www.nytimes.com/2026/05/10/us/politics/iran-war-us-peace-proposal-response.html
