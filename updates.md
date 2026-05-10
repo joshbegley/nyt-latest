@@ -1,3 +1,7 @@
+**Corrections: May 10, 2026**\
+`Corrections that appeared in print on Sunday, May 10, 2026.`\
+https://www.nytimes.com/2026/05/09/pageoneplus/corrections-may-10-2026.html
+
 **The G.O.P. Rush To Break Up Majority-Black Districts**\
 `Republican-controlled legislatures in the South are breaking up majority-Black congressional districts in the wake of the Supreme Court’s recent ruling. Our national politics reporter Nick Corasaniti describes what it means for the midterms.`\
 https://www.nytimes.com/video/us/politics/100000010887504/the-gop-rush-to-break-up-majority-black-districts.html
