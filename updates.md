@@ -1,3 +1,7 @@
+**Search at a Home for Kristin Smart’s Remains Ends Without a Recovery**\
+`A new lead brought investigators back to a property just south of San Luis Obispo, Calif., tied to the family of the man convicted of killing Ms. Smart, a student, 30 years ago.`\
+https://www.nytimes.com/2026/05/09/us/kristin-smart-search-no-remains-recovered-california-property.html
+
 **Cheers and Tears at Thailand’s Military Draft Lottery**\
 `Every April, young men in Thailand draw a card from a jar that determines whether they will serve two years in the military or go home free. The nation’s top court will decide on Tuesday if the conscription lottery continues.`\
 https://www.nytimes.com/video/world/asia/100000010890918/thailand-military-draft-conscription-lottery-court.html
