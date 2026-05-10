@@ -1,3 +1,11 @@
+**British Paratroopers Deliver Aid to Remote Islands With Possible Hantavirus Case**\
+`The British military took critical medical supplies to Tristan da Cunha, a tiny British archipelago where authorities have identified a suspected hantavirus case.`\
+https://www.nytimes.com/2026/05/10/world/europe/britain-parachute-hantavirus-hondius-tristan.html
+
+**‘Yesteryear' Asks if We Can Love a Broken World**\
+`Caro Claire Burke critiques America and asks who, and what, is redeemable?`\
+https://www.nytimes.com/2026/05/10/briefing/yesteryear-caro-claire-burke.html
+
 **Grab Some Seeds. Throw Them at the Soil. You’re a Gardener Now.**\
 `Welcome to chaos gardening, a laid-back way to turn a patch of ground into a riot of color.`\
 https://www.nytimes.com/2026/05/10/style/grab-some-seeds-throw-them-at-the-soil-youre-a-gardener-now.html
