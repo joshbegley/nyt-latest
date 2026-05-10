@@ -1,3 +1,7 @@
+**Why Nebraska’s ‘Blue Dot’ Is Roiling a Democratic House Primary**\
+`A speck of blue on an otherwise red area in some presidential elections, the dot is now dividing candidates in a key midterm contest.`\
+https://www.nytimes.com/2026/05/10/us/politics/nebraska-blue-dot-democrats-house.html
+
 **Hundreds Mourn Eight Members of Lebanese Family Killed in Israeli Strike**\
 `At least eight members of a Lebanese family were killed by an Israeli strike on Saturday. The family was displaced and among those killed was a 6-month-old infant, relatives said.`\
 https://www.nytimes.com/video/world/middleeast/100000010894865/lebanese-family-killed-israeli-strike.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/10/briefing/yesteryear-caro-claire-burke.html
 **Grab Some Seeds. Throw Them at the Soil. You’re a Gardener Now.**\
 `Welcome to chaos gardening, a laid-back way to turn a patch of ground into a riot of color.`\
 https://www.nytimes.com/2026/05/10/style/grab-some-seeds-throw-them-at-the-soil-youre-a-gardener-now.html
-
-**Maps: Earthquakes Shake Southern California**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/05/10/us/quake-tracker-southern-california.html
 
