@@ -1,3 +1,7 @@
+**Hundreds Mourn Eight Members of Lebanese Family Killed in Israeli Strike**\
+`At least eight members of a Lebanese family were killed by an Israeli strike on Saturday. The family was displaced and among those killed was a 6-month-old infant, relatives said.`\
+https://www.nytimes.com/video/world/middleeast/100000010894865/lebanese-family-killed-israeli-strike.html
+
 **Review: ‘The Receptionist’ Can’t Help You Today**\
 `A stale revival of Adam Bock’s cog-in-the-office-machine dark comedy lacks specificity and bite.`\
 https://www.nytimes.com/2026/05/10/theater/the-receptionist-review.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/10/style/grab-some-seeds-throw-them-at-the-soil-
 **Maps: Earthquakes Shake Southern California**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/05/10/us/quake-tracker-southern-california.html
-
-**How Students Interact With A.I. Is What Matters**\
-`Readers discuss artificial intelligence and writing in the classroom. Also: President Trump’s latest assault on science; election workers.`\
-https://www.nytimes.com/2026/05/10/opinion/ai-students.html
 
