@@ -8,11 +8,11 @@ https://www.nytimes.com/2026/05/10/dining/heres-the-waffle-recipe-youre-looking-
 
 **Energy Secretary Floats Pause in Federal Gas Tax**\
 `The tax is a little over 18 cents a gallon for gasoline. With the average national price above $4.50, the measure will provide little relief.`\
-https://www.nytimes.com/live/2026/05/10/us/trump-news/energy-secretary-federal-gas-tax
+https://www.nytimes.com/2026/05/10/us/politics/energy-secretary-federal-gas-tax.html
 
 **Lebanese Mourn Eight Members of One Family Killed in Israeli Strike**\
 `Israel has escalated attacks on Lebanon since Thursday, further unraveling a truce in its war with Hezbollah. Among those killed on Saturday was a 6-month-old infant, relatives said.`\
-https://www.nytimes.com/2026/05/10/world/middleeast/lebanese-mourn-eight-members-of-one-family-killed-in-israeli-strike.html
+https://www.nytimes.com/2026/05/10/world/middleeast/lebanon-family-funeral-israel-strikes.html
 
 **Starmer Greets Calls to Resign With a Simple Answer. No.**\
 `But if his opponents mount a challenge, how would it unfold?`\

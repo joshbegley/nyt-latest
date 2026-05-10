@@ -1,10 +1,14 @@
+**Trial in 2000 Bombing Case Is Delayed Weeks Before It Was Set to Finally Start**\
+`A Saudi prisoner is accused of orchestrating the bombing of the USS Cole, which killed 17 American sailors in 2000.`\
+https://www.nytimes.com/2026/05/10/us/trial-in-2000-bombing-case-is-delayed-weeks-before-it-was-set-to-finally-start.html
+
 **Here’s the Waffle Recipe You’re Looking for**\
 ``\
 https://www.nytimes.com/2026/05/10/dining/heres-the-waffle-recipe-youre-looking-for.html
 
-**Energy secretary floats pause in federal gas tax**\
-``\
-https://www.nytimes.com/live/2026/05/10/us/trump-news/energy-secretary-floats-pause-in-federal-gas-tax
+**Energy Secretary Floats Pause in Federal Gas Tax**\
+`The tax is a little over 18 cents a gallon for gasoline. With the average national price above $4.50, the measure will provide little relief.`\
+https://www.nytimes.com/live/2026/05/10/us/trump-news/energy-secretary-federal-gas-tax
 
 **Lebanese Mourn Eight Members of One Family Killed in Israeli Strike**\
 `Israel has escalated attacks on Lebanon since Thursday, further unraveling a truce in its war with Hezbollah. Among those killed on Saturday was a 6-month-old infant, relatives said.`\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/10/crosswords/connections-companion-1065.html
 **Strands Sidekick No. 799**\
 `Scroll down for hints and conversation about the puzzle for Monday, May 11, 2026.`\
 https://www.nytimes.com/2026/05/10/crosswords/strands-sidekick-799.html
-
-**They Thought They Had Only Months to Live. Then Things Changed.**\
-`For some patients, cancer is becoming like a chronic illness.`\
-https://www.nytimes.com/2026/05/10/opinion/terminal-cancer-chronic-illness-health.html
 
