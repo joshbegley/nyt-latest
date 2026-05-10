@@ -1,3 +1,7 @@
+**Democratic Angst Could Lead California to Change Its Primary Rules**\
+`The prospect of Democrats getting shut out of the general election for governor has spurred an effort to eliminate the state’s “top-two” open primary approach.`\
+https://www.nytimes.com/2026/05/10/us/california-primary-rules-change-democrats.html
+
 **Review: ‘The Receptionist’ Can’t Help You Today**\
 `A stale revival of Adam Bock’s cog-in-the-office-machine dark comedy lacks specificity and bite.`\
 https://www.nytimes.com/2026/05/10/theater/the-receptionist-review.html

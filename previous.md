@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/05/10/theater/the-receptionist-review.html
 
 **Democratic Angst Could Lead California to Change Its Primary Rules**\
-`The prospect of Democrats getting shut out of the general election for governor has spurred a 2028 effort to eliminate the state’s “top-two” open primary approach.`\
+`The prospect of Democrats getting shut out of the general election for governor has spurred an effort to eliminate the state’s “top-two” open primary approach.`\
 https://www.nytimes.com/2026/05/10/us/california-primary-rules-change-democrats.html
 
 **Is the Art Market Fair, Flawed or Game-able? Depends Who You Ask.**\
