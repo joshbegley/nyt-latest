@@ -1,3 +1,7 @@
+**A Private Call Reveals Democrats’ Desperation Over Tossing of Map**\
+`A conversation involving House members from Virginia and the top House Democrat reflected the fury and desperation that has gripped the party after Friday’s ruling in the state.`\
+https://www.nytimes.com/2026/05/10/us/politics/democrats-virginia-plans-gerrymandering.html
+
 **Energy Secretary Floats Pause in Federal Gas Tax**\
 `The tax is a little over 18 cents a gallon for gasoline. With the average national price above $4.50, the measure will provide little relief.`\
 https://www.nytimes.com/2026/05/10/us/politics/energy-secretary-federal-gas-tax.html
