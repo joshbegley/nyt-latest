@@ -1,3 +1,7 @@
+**The G.O.P. Rush To Break Up Majority-Black Districts**\
+`Republican-controlled legislatures in the South are breaking up majority-Black congressional districts in the wake of the Supreme Court’s recent ruling. Our national politics reporter Nick Corasaniti describes what it means for the midterms.`\
+https://www.nytimes.com/video/us/politics/100000010887504/the-gop-rush-to-break-up-majority-black-districts.html
+
 **Russian State TV Shows Smaller Military Parade Amid Fears of Ukrainian Strike**\
 `President Vladimir Putin of Russia marked Victory Day in a scaled-down military event in Red Square, in Moscow, on Saturday.`\
 https://www.nytimes.com/video/world/100000010893832/russia-victory-day-parade-putin-ukraine.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/05/09/espanol/citas-dobles-amigos-parejas.html
 **Hantavirus Vaccines and Treatments Are in the Pipeline**\
 `But it has been hard to attract interest in medical interventions for viruses that have not been considered a top public health priority, scientists say.`\
 https://www.nytimes.com/2026/05/09/science/hantavirus-vaccines-treatment.html
-
-**Our Elections Are Broken**\
-`Black Americans in the South will likely lose most of their federal representation as a result of the Supreme Court’s recent erosion of the Voting Rights Act, the Opinion columnist Jamelle Bouie argues. This is only one of the reasons the United States needs to transform the current Electoral College system.`\
-https://www.nytimes.com/video/opinion/100000010889937/our-elections-are-broken.html
 
