@@ -1,3 +1,11 @@
+**Oil Prices Rise as Prospects for U.S.-Iran Peace Deal Fizzle**\
+`Oil prices rose and stock futures ticked down as investors reacted after the two sides failed to agree on a U.S.-Iran peace deal.`\
+https://www.nytimes.com/2026/05/10/business/oil-prices-rise-as-prospects-for-us-iran-peace-deal-fizzle.html
+
+**Winning a Blue Ribbon**\
+`Joel Woodford’s second puzzle makes a few exclamations.`\
+https://www.nytimes.com/2026/05/10/crosswords/daily-puzzle-2026-05-10.html
+
 **Maya Lin Connects Nature to a New Manhattan Skyscraper and Beyond**\
 `The famed artist and designer drew on her lifelong love of the environment for inspiration for new work in New York and Chicago.`\
 https://www.nytimes.com/2026/05/10/arts/design/maya-lin-manhattan-skyscraper.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/10/dining/heres-the-waffle-recipe-youre-looking-
 **Energy Secretary Floats Pause in Federal Gas Tax**\
 `The tax is a little over 18 cents a gallon for gasoline. With the average national price above $4.50, the measure will provide little relief.`\
 https://www.nytimes.com/2026/05/10/us/politics/energy-secretary-federal-gas-tax.html
-
-**Lebanese Mourn Eight Members of One Family Killed in Israeli Strike**\
-`Israel has escalated attacks on Lebanon since Thursday, further unraveling a truce in its war with Hezbollah. Among those killed on Saturday was a 6-month-old infant, relatives said.`\
-https://www.nytimes.com/2026/05/10/world/middleeast/lebanon-family-funeral-israel-strikes.html
-
-**Starmer Greets Calls to Resign With a Simple Answer. No.**\
-`But if his opponents mounted a challenge, how would it unfold?`\
-https://www.nytimes.com/2026/05/10/world/europe/starmer-west-resign.html
 
