@@ -1,3 +1,7 @@
+**Words of Wisdom**\
+`Today, we’re sharing some favorite bits of advice from moms.`\
+https://www.nytimes.com/2026/05/10/briefing/mothers-day-words-of-wisdom.html
+
 **The Platner Trap**\
 `The exact wrong answer to a Republican Party that’s flirting with fascism is a man who chose to put vile Nazi imagery on his own body.`\
 https://www.nytimes.com/2026/05/10/opinion/graham-platner-democrats-senate-maine.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/10/your-money/brandeis-college-cost-faye.html
 **With New Bishops, Pope Leo Starts to Put His Imprint on U.S. Church**\
 `His appointments have focused on pastoral care and reflect the changing composition of Catholic pews and priests.`\
 https://www.nytimes.com/2026/05/10/us/pope-leo-bishops.html
-
-**Consumers Lean on a ‘Hamster Wheel’ of Credit to Manage Rising Costs**\
-`As prices increase for gas, groceries and other staples, more and more households are borrowing to get by.`\
-https://www.nytimes.com/2026/05/10/business/consumers-credit-inflation-costs.html
 

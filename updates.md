@@ -1,3 +1,7 @@
+**Words of Wisdom**\
+`Today, we’re sharing some favorite bits of advice from moms.`\
+https://www.nytimes.com/2026/05/10/briefing/mothers-day-words-of-wisdom.html
+
 **The Platner Trap**\
 `The exact wrong answer to a Republican Party that’s flirting with fascism is a man who chose to put vile Nazi imagery on his own body.`\
 https://www.nytimes.com/2026/05/10/opinion/graham-platner-democrats-senate-maine.html
