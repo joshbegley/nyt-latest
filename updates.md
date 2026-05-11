@@ -1,3 +1,15 @@
+**Private Equity’s New Tax Fight**\
+`Estimates by researchers at Yale found that closing the carried interest loophole could lead to billions more in tax revenues than previously estimated.`\
+https://www.nytimes.com/2026/05/11/business/dealbook/carried-interest-tax-private-equity.html
+
+**Dua Lipa Sues Samsung Over Use of Her Image on TV Packaging**\
+`The pop star is suing the electronics giant for more than $15 million, accusing it of using her image without authorization.`\
+https://www.nytimes.com/2026/05/11/us/dua-lipa-samsung-lawsuit.html
+
+**Wordle to Become Primetime TV Show, With Savannah Guthrie as Host**\
+`The word puzzle published by The New York Times is the inspiration for a game show that will begin airing next year. Jimmy Fallon is a producer.`\
+https://www.nytimes.com/2026/05/11/business/media/wordle-nbc-savannah-guthrie.html
+
 **Sara Duterte, Philippine Vice President, Is Impeached, Again**\
 `But the prosecution of Ms. Duterte, who has become the archrival to President Ferdinand R. Marcos Jr., is likely to fail again in the Senate.`\
 https://www.nytimes.com/2026/05/11/world/asia/sara-duterte-philippine-impeached.html
