@@ -1,3 +1,7 @@
+**Virginia Officials Ask Supreme Court to Restore Voting Map Drawn by Democrats**\
+`State officials asked the justices to overturn a Virginia Supreme Court decision that struck down a congressional map, a major defeat for Democrats.`\
+https://www.nytimes.com/2026/05/11/us/politics/supreme-court-virginia-redistricting.html
+
 **Putin Said the War ‘Is Coming to a Close.’ But That’s Not All He Said.**\
 `The Russian leader is walking a tightrope: acknowledging public discontent while offering no indication that he might give up on his demands.`\
 https://www.nytimes.com/2026/05/11/world/europe/putin-russia-ukraine-war.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/11/business/housing-costs-first-time-buyers.html
 **European Union Hits Israeli Settlers With Sanctions**\
 `Israel criticized the European Union’s announcement that it will apply sanctions to Israeli settlers over violence against Palestinians.`\
 https://www.nytimes.com/2026/05/11/world/europe/israel-settlers-european-union-sanctions.html
-
-**How the U.S. Is Trying to Ensure the Dollar’s Dominance During Economic Turmoil**\
-`As the government has been devising plans to keep the dollar dominant, China has been making its own moves to increase global influence of the renminbi.`\
-https://www.nytimes.com/2026/05/11/business/dollar-dominance-renminbi-china.html
 

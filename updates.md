@@ -1,3 +1,7 @@
+**Putin Said the War ‘Is Coming to a Close.’ But That’s Not All He Said.**\
+`The Russian leader is walking a tightrope: acknowledging public discontent while offering no indication that he might give up on his demands.`\
+https://www.nytimes.com/2026/05/11/world/europe/putin-russia-ukraine-war.html
+
 **Trump Administration to Scrap Rule That Elevated Land Conservation**\
 `The Biden-era measure was intended to protect millions of acres from industrial development and the effects of climate change.`\
 https://www.nytimes.com/2026/05/11/climate/public-land-rule-repeal.html
