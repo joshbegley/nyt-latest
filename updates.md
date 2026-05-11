@@ -1,3 +1,15 @@
+**Body of U.S. Soldier Is Found Off the Coast of Morocco**\
+`First Lt. Kendrick Lamont Key Jr., 27, of Richmond, Va., was said to be on a hike at a training range when he disappeared. A second service member is still missing.`\
+https://www.nytimes.com/2026/05/11/us/us-soldiers-missing-morocco-body-found.html
+
+**Man Charged With Assassination Attempt at Press Gala Pleads Not Guilty**\
+`Cole Tomas Allen faces four counts in what prosecutors say was a plot to kill President Trump and other top officials at the White House Correspondents’ Association dinner.`\
+https://www.nytimes.com/2026/05/11/us/politics/correspondents-dinner-gunman-not-guilty-plea.html
+
+**Reflecting Pool Repairs to Cost $13.1 Million. Trump Had Promised $1.8 million.**\
+`A no-bid contract for repairs to the Lincoln Memorial pool now costs $13.1 million, far more than the $1.8 million Mr. Trump initially said it would.`\
+https://www.nytimes.com/2026/05/11/us/politics/reflecting-pool-paint-contract-trump.html
+
 **Today, In Short**\
 `The top restaurants in New York. “Yesteryear.” And maternal wisdom.`\
 https://www.nytimes.com/2026/05/11/briefing/today-in-short.html

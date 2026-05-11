@@ -1,10 +1,14 @@
+**Body of U.S. Soldier Is Found Off the Coast of Morocco**\
+`First Lt. Kendrick Lamont Key Jr., 27, of Richmond, Va., was said to be on a hike at a training range when he disappeared. A second service member is still missing.`\
+https://www.nytimes.com/2026/05/11/us/us-soldiers-missing-morocco-body-found.html
+
 **Today, In Short**\
 `The top restaurants in New York. “Yesteryear.” And maternal wisdom.`\
 https://www.nytimes.com/2026/05/11/briefing/today-in-short.html
 
 **Man Charged With Assassination Attempt at Press Gala Pleads Not Guilty**\
 `Cole Tomas Allen faces four counts in what prosecutors say was a plot to kill President Trump and other top officials at the White House Correspondents’ Association dinner.`\
-https://www.nytimes.com/2026/05/11/us/politics/whcd-arraignment-not-guilty-plea.html
+https://www.nytimes.com/2026/05/11/us/politics/correspondents-dinner-gunman-not-guilty-plea.html
 
 **Buy Less Gold and Skip Foreign Trips, Modi Urges Indians**\
 `Under pressure from the economic fallout of the war in Iran and politically emboldened, Prime Minister Narendra Modi asks Indians to sacrifice.`\
@@ -26,7 +30,7 @@ https://www.nytimes.com/2026/05/11/technology/courtroom-circus-elon-musk-sam-alt
 `Several entities tied to Representative Mike Lawler, New York’s most endangered House Republican, paid a political consulting firm he once owned, raising ethics concerns.`\
 https://www.nytimes.com/2026/05/11/nyregion/mike-lawler-money-campaign-finance.html
 
-**Cost of Reflecting Pool Repairs Nearly Doubles, Trump Administration Says**\
+**Reflecting Pool Repairs to Cost $13.1 Million. Trump Had Promised $1.8 million.**\
 `A no-bid contract for repairs to the Lincoln Memorial pool now costs $13.1 million, far more than the $1.8 million Mr. Trump initially said it would.`\
 https://www.nytimes.com/2026/05/11/us/politics/reflecting-pool-paint-contract-trump.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/live/2026/05/11/world/iran-war-trump-hormuz/iran-defends
 **Private Equity’s New Tax Fight**\
 `Estimates by researchers at Yale found that closing the carried interest loophole could lead to billions more in tax revenues than previously estimated.`\
 https://www.nytimes.com/2026/05/11/business/dealbook/carried-interest-tax-private-equity.html
-
-**Dua Lipa Sues Samsung Over Use of Her Image on TV Packaging**\
-`The pop star is suing the electronics giant for more than $15 million, accusing it of using her image without authorization.`\
-https://www.nytimes.com/2026/05/11/us/dua-lipa-samsung-lawsuit.html
 
