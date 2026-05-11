@@ -1,3 +1,11 @@
+**Chief Executives to Accompany Trump to China**\
+`The delegation includes business leaders across a wide range of industries, including Tim Cook of Apple and Elon Musk of Tesla.`\
+https://www.nytimes.com/2026/05/11/us/politics/trump-china-musk-cook.html
+
+**Trump rechaza la nueva propuesta de Irán y prolonga el limbo en Medio Oriente**\
+`Estados Unidos e Irán han estado discutiendo una prórroga de 30 días de su alto al fuego y una reapertura del estrecho de Ormuz.`\
+https://www.nytimes.com/es/2026/05/11/espanol/estados-unidos/trump-propuesta-iran-paz.html
+
 **Rising Housing Costs Keep First-Time Buyers on the Sidelines**\
 `The effects of the war in Iran have raised mortgage rates and lowered consumer confidence, making it even harder for house hunters.`\
 https://www.nytimes.com/2026/05/11/business/housing-costs-first-time-buyers.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/11/nyregion/mike-lawler-money-campaign-finance.h
 **Reflecting Pool Repairs to Cost $13.1 Million. Trump Had Promised $1.8 Million.**\
 `The Interior Department added $6.2 million to the no-bid contract for repairs to the Lincoln Memorial pool late last week.`\
 https://www.nytimes.com/2026/05/11/us/politics/reflecting-pool-paint-contract-trump.html
-
-**Jailed Iranian Nobel Peace Prize Winner Is Transferred to Tehran Hospital**\
-`Narges Mohammadi, a prominent human rights activist who has spent much of her adult life in and out of prison, will undergo treatment in Tehran after collapsing earlier this month, a foundation run by her family said.`\
-https://www.nytimes.com/2026/05/11/world/middleeast/narges-mohammadi-iran-nobel-hospital-tehran.html
-
-****\
-``\
-https://static01.nyt.com/slideshow/2026/05/11/t-magazine/11tmag-redshoes.html
 
