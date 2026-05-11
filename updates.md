@@ -1,3 +1,15 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/11/crosswords/spelling-bee-forum.html
+
+**Need to Hire an Architect or Designer? Try Dumbo.**\
+`A Brooklyn neighborhood with waterfront views and pricey apartments has become New York City’s latest design hub, with more than 160 architecture and design firms.`\
+https://www.nytimes.com/2026/05/11/nyregion/need-to-hire-an-architect-or-designer-try-dumbo.html
+
+**Airbnb Turns to Black Leaders in Its Bid to Make a Comeback in New York**\
+`The multibillion-dollar corporation is partnering with influential Black pastors as it seeks to regain a foothold in the city’s short-term rental market.`\
+https://www.nytimes.com/2026/05/11/nyregion/airbnb-blacks-world-cup-nyc.html
+
 **Word of the Day: palpable**\
 `This word has appeared in 296 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/05/11/learning/word-of-the-day-palpable.html
