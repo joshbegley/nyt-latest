@@ -1,3 +1,7 @@
+**Cost of Reflecting Pool Repairs Nearly Doubles, Trump Administration Says**\
+`A no-bid contract for repairs to the Lincoln Memorial pool now costs $13.1 million, far more than the $1.8 million Mr. Trump initially said it would.`\
+https://www.nytimes.com/2026/05/11/us/politics/reflecting-pool-paint-contract-trump.html
+
 **Jailed Iranian Nobel Peace Prize Winner Is Transferred to Tehran Hospital**\
 `Narges Mohammadi, a prominent human rights activist who has spent much of her adult life in and out of prison, will undergo treatment in Tehran after collapsing earlier this month, a foundation run by her family said.`\
 https://www.nytimes.com/2026/05/11/world/middleeast/narges-mohammadi-iran-nobel-hospital-tehran.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/11/briefing/body-systems-connected.html
 **¿Vance o Rubio? Trump sopesa quién será su sucesor**\
 `Las apariciones recientes del vicepresidente JD Vance y el secretario de Estado Marco Rubio han generado nuevas especulaciones sobre una contienda por la candidatura presidencial republicana.`\
 https://www.nytimes.com/es/2026/05/11/espanol/estados-unidos/vance-rubio-sucesor-trump.html
-
-**Is China Winning the A.I. Race?**\
-`Chinese policymakers and the public have expressed optimism about the technology, even as many in the West worry about its effects.`\
-https://www.nytimes.com/2026/05/11/podcasts/the-daily/china-ai-race.html
 
