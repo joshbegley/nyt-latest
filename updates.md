@@ -1,3 +1,11 @@
+**Sara Duterte, Philippine Vice President, Is Impeached, Again**\
+`But the prosecution of Ms. Duterte, who has become the archrival to President Ferdinand R. Marcos Jr., is likely to fail again in the Senate.`\
+https://www.nytimes.com/2026/05/11/world/asia/sara-duterte-philippine-impeached.html
+
+**Starmer Promises Urgent Change as He Battles to Save Premiership**\
+`Prime Minister Keir Starmer of Britain used a speech to attempt to quell a mutiny in the Labour Party after last week’s dire election results.`\
+https://www.nytimes.com/2026/05/11/world/europe/starmer-speech-uk-labour.html
+
 **Lo que hay que saber sobre las orfinas, una nueva clase de opioides mortales**\
 `Estas drogas son 10 veces más peligrosas que el fentanilo. Están apareciendo en las drogas callejeras del Sur y del Medio Oeste, y lo más probable es que se extiendan a otras regiones.`\
 https://www.nytimes.com/es/2026/05/11/espanol/estados-unidos/que-son-orfinas.html

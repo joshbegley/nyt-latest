@@ -1,3 +1,7 @@
+**Sara Duterte, Philippine Vice President, Is Impeached, Again**\
+`But the prosecution of Ms. Duterte, who has become the archrival to President Ferdinand R. Marcos Jr., is likely to fail again in the Senate.`\
+https://www.nytimes.com/2026/05/11/world/asia/sara-duterte-philippine-impeached.html
+
 **Lo que hay que saber sobre las orfinas, una nueva clase de opioides mortales**\
 `Estas drogas son 10 veces más peligrosas que el fentanilo. Están apareciendo en las drogas callejeras del Sur y del Medio Oeste, y lo más probable es que se extiendan a otras regiones.`\
 https://www.nytimes.com/es/2026/05/11/espanol/estados-unidos/que-son-orfinas.html
@@ -51,7 +55,7 @@ https://www.nytimes.com/2026/05/11/crosswords/wordle-review-1788.html
 https://www.nytimes.com/live/2026/05/11/world/iran-war-trump-hormuz/heres-the-latest
 
 **Starmer Promises Urgent Change as He Battles to Save Premiership**\
-`Prime Minister Keir Starmer of Britain used a speech on Monday to attempt to quell a mutiny in the Labour Party after last week’s dire election results.`\
+`Prime Minister Keir Starmer of Britain used a speech to attempt to quell a mutiny in the Labour Party after last week’s dire election results.`\
 https://www.nytimes.com/2026/05/11/world/europe/starmer-speech-uk-labour.html
 
 **Por qué es importante la cumbre entre Trump y Xi, aunque parezca que no dará muchos frutos**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/us/100000010895693/hantavirus-cruise-ship-us-ameri
 **Will a Ban on This Flour Change New York Bagels and Pizza?**\
 `Bromated flour, which makes breads and crusts stretchy and springy (and cheap), is among the carcinogens forbidden in pending state legislation.`\
 https://www.nytimes.com/2026/05/11/dining/bromated-flour-ban-new-york-pizza-bagels.html
-
-**Lawmakers Urge Trump to Move Ahead on Delayed Arms Sale to Taiwan**\
-`The Trump administration has held up the sale for months ahead of President Trump’s meeting this week with President Xi Jinping of China.`\
-https://www.nytimes.com/2026/05/11/us/politics/taiwan-trump-china-xi-jinping.html
 
