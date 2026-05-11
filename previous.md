@@ -1,3 +1,7 @@
+**1-Year-Old Boy Killed in Bronx Fire**\
+`Two other children, 6-year-old twins, were critically injured in the fire at an apartment building in the Fordham neighborhood, the police said.`\
+https://www.nytimes.com/2026/05/11/nyregion/bronx-fire-apartment-death.html
+
 **Supreme Court Clears Path for Alabama to Use New Voting Map**\
 `A majority of the justices sided with Alabama in a move that could speed up efforts to put in place a congressional district map that would eliminate a majority-Black district.`\
 https://www.nytimes.com/2026/05/11/us/politics/supreme-court-alabama-map.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/11/business/media/buzzfeed-byron-allen.html
 **Nations Brace for Long-Term Economic Woes as Trump Calls Iran Truce Plan ‘Garbage’**\
 `President Trump said the fragile cease-fire was on “life support,” and India’s leader urged residents to cut back on purchases and travel.`\
 https://www.nytimes.com/2026/05/11/world/middleeast/economic-woes-trump-iran-truce.html
-
-**En Colombia, los hipopótamos de Pablo Escobar dividen la opinión pública**\
-`El gobierno colombiano planea sacrificar una población de hipopótamos salvajes, descendientes de las mascotas del narcotraficante, y con ello ha dividido a un pueblo donde los hipopótamos son la principal atracción.`\
-https://www.nytimes.com/es/2026/05/11/espanol/america-latina/colombia-hipopotamos-pablo-escobar.html
 

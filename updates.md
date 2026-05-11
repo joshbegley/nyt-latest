@@ -1,3 +1,7 @@
+**1-Year-Old Boy Killed in Bronx Fire**\
+`Two other children, 6-year-old twins, were critically injured in the fire at an apartment building in the Fordham neighborhood, the police said.`\
+https://www.nytimes.com/2026/05/11/nyregion/bronx-fire-apartment-death.html
+
 **Supreme Court Clears Path for Alabama to Use New Voting Map**\
 `A majority of the justices sided with Alabama in a move that could speed up efforts to put in place a congressional district map that would eliminate a majority-Black district.`\
 https://www.nytimes.com/2026/05/11/us/politics/supreme-court-alabama-map.html
