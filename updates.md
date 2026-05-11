@@ -1,3 +1,7 @@
+**Jailed Iranian Nobel Peace Prize Winner Is Transferred to Tehran Hospital**\
+`Narges Mohammadi, a prominent human rights activist who has spent much of her adult life in and out of prison, will undergo treatment in Tehran after collapsing earlier this month, a foundation run by her family said.`\
+https://www.nytimes.com/2026/05/11/world/middleeast/narges-mohammadi-iran-nobel-hospital-tehran.html
+
 ****\
 ``\
 https://static01.nyt.com/slideshow/2026/05/11/t-magazine/11tmag-redshoes.html

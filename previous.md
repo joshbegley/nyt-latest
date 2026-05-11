@@ -1,3 +1,7 @@
+**Jailed Iranian Nobel Peace Prize Winner Is Transferred to Tehran Hospital**\
+`Narges Mohammadi, a prominent human rights activist who has spent much of her adult life in and out of prison, will undergo treatment in Tehran after collapsing earlier this month, a foundation run by her family said.`\
+https://www.nytimes.com/2026/05/11/world/middleeast/narges-mohammadi-iran-nobel-hospital-tehran.html
+
 ****\
 ``\
 https://static01.nyt.com/slideshow/2026/05/11/t-magazine/11tmag-redshoes.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/05/11/espanol/estados-unidos/vance-rubio-sucesor
 **Is China Winning the A.I. Race?**\
 `Chinese policymakers and the public have expressed optimism about the technology, even as many in the West worry about its effects.`\
 https://www.nytimes.com/2026/05/11/podcasts/the-daily/china-ai-race.html
-
-**Trump Rejects Iran’s Offer, and 17 Passengers Exposed to Hantavirus Return to U.S.**\
-`Plus, how pharma swag became “one of the white whales of thrifting.”`\
-https://www.nytimes.com/2026/05/11/podcasts/the-headlines/trump-iran-hantavirus.html
 
