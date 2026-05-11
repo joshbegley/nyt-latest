@@ -1,3 +1,11 @@
+**Lo que hay que saber sobre las orfinas, una nueva clase de opioides mortales**\
+`Estas drogas son 10 veces más peligrosas que el fentanilo. Están apareciendo en las drogas callejeras del Sur y del Medio Oeste, y lo más probable es que se extiendan a otras regiones.`\
+https://www.nytimes.com/es/2026/05/11/espanol/estados-unidos/que-son-orfinas.html
+
+**Where Are the Passengers of the MV Hondius Now?**\
+`Nearly two dozen countries were moving to repatriate their citizens who were aboard the cruise ship where three passengers died in a hantavirus outbreak.`\
+https://www.nytimes.com/2026/05/11/world/hantavirus-outbreak-cruise-ship-passengers.html
+
 **El Niño podría traer un adelanto de las temperaturas, y la vida, de 2035**\
 `El Niño que se está gestando este año podría hacer de 2027 el año más caluroso jamás registrado.`\
 https://www.nytimes.com/es/2026/05/11/espanol/opinion/el-nino-2027-temperaturas-futuro.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/11/dining/bromated-flour-ban-new-york-pizza-bage
 **Lawmakers Urge Trump to Move Ahead on Delayed Arms Sale to Taiwan**\
 `The Trump administration has held up the sale for months ahead of President Trump’s meeting this week with President Xi Jinping of China.`\
 https://www.nytimes.com/2026/05/11/us/politics/taiwan-trump-china-xi-jinping.html
-
-**Scientists Press Congress on Trump’s Dismissal of Funding Agency Board**\
-`The slowed pace of grants by the National Science Foundation, under attack from the White House, could put the United States at a disadvantage with China, the scientists warned.`\
-https://www.nytimes.com/2026/05/11/us/politics/nsf-science-congress-trump.html
-
-**In Brooklyn, Finding a First Home Was Just the Beginning**\
-`A couple paid $2.5 million for a townhouse that needed a gut renovation. Eighteen months later, they were crazy about the result.`\
-https://www.nytimes.com/2026/05/11/realestate/brooklyn-townhouse-passive-home-renovation.html
 

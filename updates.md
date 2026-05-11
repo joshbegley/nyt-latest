@@ -1,3 +1,11 @@
+**Lo que hay que saber sobre las orfinas, una nueva clase de opioides mortales**\
+`Estas drogas son 10 veces más peligrosas que el fentanilo. Están apareciendo en las drogas callejeras del Sur y del Medio Oeste, y lo más probable es que se extiendan a otras regiones.`\
+https://www.nytimes.com/es/2026/05/11/espanol/estados-unidos/que-son-orfinas.html
+
+**Where Are the Passengers of the MV Hondius Now?**\
+`Nearly two dozen countries were moving to repatriate their citizens who were aboard the cruise ship where three passengers died in a hantavirus outbreak.`\
+https://www.nytimes.com/2026/05/11/world/hantavirus-outbreak-cruise-ship-passengers.html
+
 **El Niño podría traer un adelanto de las temperaturas, y la vida, de 2035**\
 `El Niño que se está gestando este año podría hacer de 2027 el año más caluroso jamás registrado.`\
 https://www.nytimes.com/es/2026/05/11/espanol/opinion/el-nino-2027-temperaturas-futuro.html
