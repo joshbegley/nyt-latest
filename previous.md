@@ -1,5 +1,5 @@
 **6 Bodies Found in a Boxcar in Texas, Officials Say**\
-`The bodies were discovered in the city of Laredo, and it was not immediately clear what the cause of death was, the authorities said.`\
+`The bodies were discovered in the city of Laredo. The circumstances of their deaths were not immediately known, the authorities said.`\
 https://www.nytimes.com/2026/05/10/us/dead-bodies-boxcar-texas.html
 
 **Oil Prices Rise as Prospects for U.S.-Iran Peace Deal Fizzle**\
