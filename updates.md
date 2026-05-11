@@ -1,3 +1,7 @@
+**She’s a Sex Therapist Who Wants to Eradicate Zionism. She Could Cost Democrats a House Seat.**\
+`Maureen Galindo’s rise demonstrates how even justified rage and despair can curdle into hateful paranoia.`\
+https://www.nytimes.com/2026/05/11/opinion/maureen-galindo-antisemitic-conspiracies.html
+
 **1-Year-Old Boy Killed in Bronx Fire**\
 `Two other children, 6-year-old twins, were critically injured in the fire at an apartment building in the Fordham neighborhood, the police said.`\
 https://www.nytimes.com/2026/05/11/nyregion/bronx-fire-apartment-death.html

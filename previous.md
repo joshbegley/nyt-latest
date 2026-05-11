@@ -1,3 +1,7 @@
+**She’s a Sex Therapist Who Wants to Eradicate Zionism. She Could Cost Democrats a House Seat.**\
+`Maureen Galindo’s rise demonstrates how even justified rage and despair can curdle into hateful paranoia.`\
+https://www.nytimes.com/2026/05/11/opinion/maureen-galindo-antisemitic-conspiracies.html
+
 **1-Year-Old Boy Killed in Bronx Fire**\
 `Two other children, 6-year-old twins, were critically injured in the fire at an apartment building in the Fordham neighborhood, the police said.`\
 https://www.nytimes.com/2026/05/11/nyregion/bronx-fire-apartment-death.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/11/world/strait-hormuz-spoofing-tankers-china-ir
 **Byron Allen Is Buying a Controlling Stake in BuzzFeed**\
 `Jonah Peretti, BuzzFeed’s co-founder 20 years ago, will step down as chief executive and serve as its president of A.I.`\
 https://www.nytimes.com/2026/05/11/business/media/buzzfeed-byron-allen.html
-
-**Nations Brace for Long-Term Economic Woes as Trump Calls Iran Truce Plan ‘Garbage’**\
-`President Trump said the fragile cease-fire was on “life support,” and India’s leader urged residents to cut back on purchases and travel.`\
-https://www.nytimes.com/2026/05/11/world/middleeast/economic-woes-trump-iran-truce.html
 
