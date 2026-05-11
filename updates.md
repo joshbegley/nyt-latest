@@ -1,3 +1,15 @@
+**Today, In Short**\
+`The top restaurants in New York. “Yesteryear.” And maternal wisdom.`\
+https://www.nytimes.com/2026/05/11/briefing/today-in-short.html
+
+**Man Charged With Assassination Attempt at Press Gala Pleads Not Guilty**\
+`Cole Tomas Allen faces four counts in what prosecutors say was a plot to kill President Trump and other top officials at the White House Correspondents’ Association dinner.`\
+https://www.nytimes.com/2026/05/11/us/politics/whcd-arraignment-not-guilty-plea.html
+
+**Buy Less Gold and Skip Foreign Trips, Modi Urges Indians**\
+`Under pressure from the economic fallout of the war in Iran and politically emboldened, Prime Minister Narendra Modi asks Indians to sacrifice.`\
+https://www.nytimes.com/2026/05/11/world/asia/modi-indians-gold-weddings-fuel-economy-iran.html
+
 **A Sheet-Pan Chicken for Peak Asparagus**\
 `Streamlined and springy, everything is roasted together until the chicken crisps and the stalks turn bright green and tender.`\
 https://www.nytimes.com/2026/05/11/dining/a-sheet-pan-chicken-for-peak-asparagus.html

@@ -4,7 +4,7 @@ https://www.nytimes.com/2026/05/11/briefing/today-in-short.html
 
 **Man Charged With Assassination Attempt at Press Gala Pleads Not Guilty**\
 `Cole Tomas Allen faces four counts in what prosecutors say was a plot to kill President Trump and other top officials at the White House Correspondents’ Association dinner.`\
-https://www.nytimes.com/2026/05/11/us/politics/whcd-arraignment-not-guilty-plea.html
+https://www.nytimes.com/2026/05/11/us/politics/correspondents-dinner-gunman-not-guilty-plea.html
 
 **Buy Less Gold and Skip Foreign Trips, Modi Urges Indians**\
 `Under pressure from the economic fallout of the war in Iran and politically emboldened, Prime Minister Narendra Modi asks Indians to sacrifice.`\

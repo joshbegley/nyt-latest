@@ -1,3 +1,15 @@
+**Today, In Short**\
+`The top restaurants in New York. “Yesteryear.” And maternal wisdom.`\
+https://www.nytimes.com/2026/05/11/briefing/today-in-short.html
+
+**Man Charged With Assassination Attempt at Press Gala Pleads Not Guilty**\
+`Cole Tomas Allen faces four counts in what prosecutors say was a plot to kill President Trump and other top officials at the White House Correspondents’ Association dinner.`\
+https://www.nytimes.com/2026/05/11/us/politics/whcd-arraignment-not-guilty-plea.html
+
+**Buy Less Gold and Skip Foreign Trips, Modi Urges Indians**\
+`Under pressure from the economic fallout of the war in Iran and politically emboldened, Prime Minister Narendra Modi asks Indians to sacrifice.`\
+https://www.nytimes.com/2026/05/11/world/asia/modi-indians-gold-weddings-fuel-economy-iran.html
+
 **A Sheet-Pan Chicken for Peak Asparagus**\
 `Streamlined and springy, everything is roasted together until the chicken crisps and the stalks turn bright green and tender.`\
 https://www.nytimes.com/2026/05/11/dining/a-sheet-pan-chicken-for-peak-asparagus.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/11/business/dealbook/carried-interest-tax-privat
 **Dua Lipa Sues Samsung Over Use of Her Image on TV Packaging**\
 `The pop star is suing the electronics giant for more than $15 million, accusing it of using her image without authorization.`\
 https://www.nytimes.com/2026/05/11/us/dua-lipa-samsung-lawsuit.html
-
-**Wordle to Become Prime-Time TV Show, With Savannah Guthrie as Host**\
-`The word puzzle published by The New York Times is the inspiration for a game show that will begin airing next year. Jimmy Fallon is a producer.`\
-https://www.nytimes.com/2026/05/11/business/media/wordle-nbc-savannah-guthrie.html
-
-**Sara Duterte, Philippine Vice President, Is Impeached, Again**\
-`But the prosecution of Ms. Duterte, who has become the archrival to President Ferdinand R. Marcos Jr., is likely to fail again in the Senate.`\
-https://www.nytimes.com/2026/05/11/world/asia/sara-duterte-philippine-impeached.html
-
-**Lo que hay que saber sobre las orfinas, una nueva clase de opioides mortales**\
-`Estas drogas son 10 veces más peligrosas que el fentanilo. Están apareciendo en las drogas callejeras del Sur y del Medio Oeste, y lo más probable es que se extiendan a otras regiones.`\
-https://www.nytimes.com/es/2026/05/11/espanol/estados-unidos/que-son-orfinas.html
 
