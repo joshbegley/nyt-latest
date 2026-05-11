@@ -1,3 +1,7 @@
+**Student New Quiz: National Debt, Teen Takeovers, Sea Lion**\
+`Have you been paying attention to current events recently? See how well you can do on this week’s news quiz for students.`\
+https://www.nytimes.com/interactive/2026/05/11/learning/11StudentNewsQuiz.html
+
 **Dua Lipa Sues Samsung Over Use of Her Image on TV Packaging**\
 `Dua Lipa sued Samsung for $15 million, accusing the South Korean electronics giant of using her image on TV packaging without her permission.`\
 https://www.nytimes.com/video/us/100000010896619/dua-lipa-sues-samsung-tv-image.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/05/11/espanol/america-latina/colombia-hipopotamo
 **Los pasajeros del crucero vinculado a un brote mortal de hantavirus han sido evacuados**\
 `Pasajeros y tripulantes abandonaron el barco tras fondear en Tenerife el domingo. Los pasajeros están siendo trasladados en avión a sus países de origen, dijeron las autoridades.`\
 https://www.nytimes.com/es/2026/05/11/espanol/mundo/hantavirus-crucero-islas-canarias-pasajeros.html
-
-**Why Republicans Are Still Drawing House Maps, While Democrats Are Stuck**\
-`The G.O.P. has seized an edge on redistricting thanks to two court rulings, and it has more room to maneuver for extra seats before the midterms.`\
-https://www.nytimes.com/2026/05/11/us/politics/redistricting-republicans-democrats.html
 
