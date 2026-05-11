@@ -1,3 +1,7 @@
+**American Passengers Exposed to Hantavirus Are Flying Back to the U.S.**\
+`The passengers will be monitored in Omaha at the country’s only federally funded quarantine center.`\
+https://www.nytimes.com/2026/05/10/us/americans-hantavirus-ship-return-nebraska.html
+
 **The 100 Best Restaurants in New York City in 2026**\
 `The annual list is back. Our new chief critic ranks her favorite places to dine in all five boroughs.`\
 https://www.nytimes.com/interactive/2026/dining/best-nyc-restaurants.html
