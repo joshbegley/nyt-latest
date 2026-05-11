@@ -1,3 +1,7 @@
+**Trump Rejects Latest Iran Offer for Talks, Extending Limbo in Mideast War**\
+`The United States and Iran have been discussing a 30-day extension to their cease-fire and a reopening of the Strait of Hormuz.`\
+https://www.nytimes.com/2026/05/10/us/politics/iran-war-us-peace-proposal-response.html
+
 **Trump and Netanyahu Say Iran War Is Not Over**\
 `The Trump administration said last week that the war had run its course, but the U.S. president and Israel’s prime minister in interviews on Sunday did not rule out renewed combat.`\
 https://www.nytimes.com/2026/05/10/us/politics/trump-netanyahu-iran-war.html
