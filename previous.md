@@ -1,3 +1,7 @@
+**Officials Identify Mexican Woman Among 6 Found Dead in Laredo Train Car**\
+`Officials in Laredo, Texas, said at least one of the six people found inside the Union Pacific Railroad boxcar was from Mexico as investigators worked to identify the others.`\
+https://www.nytimes.com/2026/05/11/us/laredo-train-boxcar-deaths-investigation.html
+
 **How The Times Covers Trump’s Social Media**\
 `Patrick Healy, an assistant managing editor, explains how The Times reports on social media posts by the president that can be erratic and even profane, but are often consequential.`\
 https://www.nytimes.com/video/insider/100000010896107/how-the-times-covers-trumps-social-media.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/05/11/books/review/crime-novel-quotes.h
 **Inside the Courtroom Circus With Elon Musk and Sam Altman**\
 `The tech leaders, with combined net worths exceeding $670 billion, have brought props to court and traded icy stares as their legal dispute reaches a denouement.`\
 https://www.nytimes.com/2026/05/11/technology/courtroom-circus-elon-musk-sam-altman.html
-
-**Already Facing a Challenge, a Republican Is Accused of Self-Dealing**\
-`Several entities tied to Representative Mike Lawler, New York’s most endangered House Republican, paid a political consulting firm he once owned, raising ethics concerns.`\
-https://www.nytimes.com/2026/05/11/nyregion/mike-lawler-money-campaign-finance.html
 

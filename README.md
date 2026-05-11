@@ -1,3 +1,7 @@
+**U.S. Army Recovers Body of Soldier Who Went Missing During Military Exercises in Morocco**\
+`The remains of First Lt. Kendrick Lamont Key Jr. were found in Morocco after he and another soldier went missing while on a hike at a training range. The search continued for the other missing service member.`\
+https://www.nytimes.com/video/world/africa/100000010896100/us-army-soldier-body-morocco.html
+
 **Officials Identify Mexican Woman Among 6 Found Dead in Laredo Train Car**\
 `Officials in Laredo, Texas, said at least one of the six people found inside the Union Pacific Railroad boxcar was from Mexico as investigators worked to identify the others.`\
 https://www.nytimes.com/2026/05/11/us/laredo-train-boxcar-deaths-investigation.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/11/dining/a-sheet-pan-chicken-for-peak-asparagus
 **Can You Match the Memorable Line to the Right Crime Novel?**\
 `Test your reading recollection with this short quiz.`\
 https://www.nytimes.com/interactive/2026/05/11/books/review/crime-novel-quotes.html
-
-**Inside the Courtroom Circus With Elon Musk and Sam Altman**\
-`The tech leaders, with combined net worths exceeding $670 billion, have brought props to court and traded icy stares as their legal dispute reaches a denouement.`\
-https://www.nytimes.com/2026/05/11/technology/courtroom-circus-elon-musk-sam-altman.html
 
