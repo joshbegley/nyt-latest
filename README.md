@@ -1,3 +1,7 @@
+**American Passengers Exposed to Hantavirus Are Flying Back to the U.S.**\
+`The passengers will be monitored in Omaha at the country’s only federally funded quarantine center.`\
+https://www.nytimes.com/2026/05/10/us/americans-hantavirus-ship-return-nebraska.html
+
 **The 100 Best Restaurants in New York City in 2026**\
 `The annual list is back. Our new chief critic ranks her favorite places to dine in all five boroughs.`\
 https://www.nytimes.com/interactive/2026/dining/best-nyc-restaurants.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/10/arts/design/books-art-market-2026.html
 **A Respected Artist Gains Wider Recognition**\
 `Michael Joo is appearing in multiple shows, from New York and the San Francisco Bay Area to a Mediterranean island and Venice.`\
 https://www.nytimes.com/2026/05/10/arts/design/michael-joo-frieze-new-york.html
-
-**A Panorama of Design**\
-`A look at news, products and events during the NYCxDesign Festival.`\
-https://www.nytimes.com/2026/05/10/style/nyc-design-events-products.html
 
