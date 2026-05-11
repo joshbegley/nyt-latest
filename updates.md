@@ -1,3 +1,7 @@
+**Trump and Netanyahu Say Iran War Is Not Over**\
+`The Trump administration said last week that the war had run its course, but the U.S. president and Israel’s prime minister in interviews on Sunday did not rule out renewed combat.`\
+https://www.nytimes.com/2026/05/10/us/politics/trump-netanyahu-iran-war.html
+
 **6 Bodies Found in a Boxcar in Texas, Officials Say**\
 `The bodies were discovered in the city of Laredo. The circumstances of their deaths were not immediately known, the authorities said.`\
 https://www.nytimes.com/2026/05/10/us/dead-bodies-boxcar-texas.html

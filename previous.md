@@ -1,3 +1,7 @@
+**Trump and Netanyahu Say Iran War Is Not Over**\
+`The Trump administration said last week that the war had run its course, but the U.S. president and Israel’s prime minister in interviews on Sunday did not rule out renewed combat.`\
+https://www.nytimes.com/2026/05/10/us/politics/trump-netanyahu-iran-war.html
+
 **6 Bodies Found in a Boxcar in Texas, Officials Say**\
 `The bodies were discovered in the city of Laredo. The circumstances of their deaths were not immediately known, the authorities said.`\
 https://www.nytimes.com/2026/05/10/us/dead-bodies-boxcar-texas.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/10/us/politics/iran-war-us-peace-proposal-respon
 **Trial in 2000 Bombing Case Is Delayed Weeks Before It Was Set to Finally Start**\
 `A Saudi prisoner is accused of orchestrating the bombing of the USS Cole, which killed 17 American sailors in 2000.`\
 https://www.nytimes.com/2026/05/10/us/trial-in-2000-bombing-case-is-delayed-weeks-before-it-was-set-to-finally-start.html
-
-**Here’s the Waffle Recipe You’re Looking for**\
-``\
-https://www.nytimes.com/2026/05/10/dining/heres-the-waffle-recipe-youre-looking-for.html
 
