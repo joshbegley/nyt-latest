@@ -1,3 +1,7 @@
+**Los pasajeros del crucero vinculado a un brote mortal de hantavirus han sido evacuados**\
+`Pasajeros y tripulantes abandonaron el barco tras fondear en Tenerife el domingo. Los pasajeros están siendo trasladados en avión a sus países de origen, dijeron las autoridades.`\
+https://www.nytimes.com/es/2026/05/11/espanol/mundo/hantavirus-crucero-islas-canarias-pasajeros.html
+
 **Why Republicans Are Still Drawing House Maps, While Democrats Are Stuck**\
 `The G.O.P. has seized an edge on redistricting thanks to two court rulings, and it has more room to maneuver for extra seats before the midterms.`\
 https://www.nytimes.com/2026/05/11/us/politics/redistricting-republicans-democrats.html
@@ -22,7 +26,7 @@ https://www.nytimes.com/interactive/2026/05/11/us/25a-application-for-stay.html
 `State officials asked the justices to overturn a Virginia Supreme Court decision that struck down a congressional map, a major defeat for Democrats.`\
 https://www.nytimes.com/2026/05/11/us/politics/supreme-court-virginia-redistricting.html
 
-**Putin Said the War ‘Is Coming to a Close.’ But That’s Not All He Said.**\
+**Putin Said the War ‘Is Coming to a Close.’ but That’s Not All He Said.**\
 `The Russian leader is walking a tightrope: acknowledging public discontent while offering no indication that he might give up on his demands.`\
 https://www.nytimes.com/2026/05/11/world/europe/putin-russia-ukraine-war.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/11/opinion/cellphone-ban-school.html
 **U.S. Army Recovers Body of Soldier Who Went Missing During Military Exercises in Morocco**\
 `The remains of First Lt. Kendrick Lamont Key Jr. were found in Morocco after he and another soldier went missing while on a hike at a training range. The search continued for the other missing service member.`\
 https://www.nytimes.com/video/world/africa/100000010896100/us-army-soldier-body-morocco.html
-
-**Officials Identify Mexican Woman Among 6 Found Dead in Laredo Train Car**\
-`Officials in Laredo, Texas, said at least one of the six people found inside the Union Pacific Railroad boxcar was from Mexico as investigators worked to identify the others.`\
-https://www.nytimes.com/2026/05/11/us/laredo-train-boxcar-deaths-investigation.html
 

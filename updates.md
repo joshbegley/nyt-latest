@@ -1,3 +1,11 @@
+**Los pasajeros del crucero vinculado a un brote mortal de hantavirus han sido evacuados**\
+`Pasajeros y tripulantes abandonaron el barco tras fondear en Tenerife el domingo. Los pasajeros están siendo trasladados en avión a sus países de origen, dijeron las autoridades.`\
+https://www.nytimes.com/es/2026/05/11/espanol/mundo/hantavirus-crucero-islas-canarias-pasajeros.html
+
+**Putin Said the War ‘Is Coming to a Close.’ but That’s Not All He Said.**\
+`The Russian leader is walking a tightrope: acknowledging public discontent while offering no indication that he might give up on his demands.`\
+https://www.nytimes.com/2026/05/11/world/europe/putin-russia-ukraine-war.html
+
 **Why Republicans Are Still Drawing House Maps, While Democrats Are Stuck**\
 `The G.O.P. has seized an edge on redistricting thanks to two court rulings, and it has more room to maneuver for extra seats before the midterms.`\
 https://www.nytimes.com/2026/05/11/us/politics/redistricting-republicans-democrats.html
