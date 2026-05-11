@@ -1,3 +1,19 @@
+**Rising Housing Costs Keep First-Time Buyers on the Sidelines**\
+`The effects of the war in Iran have raised mortgage rates and lowered consumer confidence, making it even harder for house hunters.`\
+https://www.nytimes.com/2026/05/11/business/housing-costs-first-time-buyers.html
+
+**European Union Hits Israeli Settlers With Sanctions**\
+`Israel criticized the European Union’s announcement that it will apply sanctions to Israeli settlers over violence against Palestinians.`\
+https://www.nytimes.com/2026/05/11/world/europe/israel-settlers-european-union-sanctions.html
+
+**How the U.S. Is Trying to Ensure the Dollar’s Dominance During Economic Turmoil**\
+`As the government has been devising plans to keep the dollar dominant, China has been making its own moves to increase global influence of the renminbi.`\
+https://www.nytimes.com/2026/05/11/business/dollar-dominance-renminbi-china.html
+
+**Palabra del día: ‘palpable’**\
+`Esta palabra ha aparecido en 296 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/05/11/espanol/que-significa-palpable.html
+
 **Can the U.S. Rein in Prediction Markets?**\
 `Full episode #193`\
 https://www.nytimes.com/video/podcasts/100000010893412/can-the-us-rein-in-prediction-markets.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/05/11/world/middleeast/narges-mohammadi-iran-nobel-
 ****\
 ``\
 https://static01.nyt.com/slideshow/2026/05/11/t-magazine/11tmag-redshoes.html
-
-**Arizona Sixth Congressional District 2026: Latest Polls**\
-`Track the latest polls in Arizona's 6th Congressional District.`\
-https://www.nytimes.com/interactive/polls/arizona-us-house-6-polls-2026.html
-
-**Arizona First Congressional District 2026: Latest Polls**\
-`Track the latest polls in Arizona's 1st Congressional District.`\
-https://www.nytimes.com/interactive/polls/arizona-us-house-1-polls-2026.html
-
-**No Corrections: May 11, 2026**\
-`No corrections appeared in print on Monday, May 11, 2026.`\
-https://www.nytimes.com/2026/05/11/pageoneplus/no-corrections-may-11-2026.html
-
-**Después de la captura de Maduro por EE. UU., ¿los migrantes de Venezuela regresarán a casa?**\
-`Las terribles condiciones en Venezuela provocaron un éxodo. Tras el atentado que derrocó a su máximo dirigente, la cuestión es si las cosas han cambiado lo suficiente como para que el retorno resulte atractivo.`\
-https://www.nytimes.com/es/2026/05/11/espanol/america-latina/migrantes-venezuela-regreso.html
 
