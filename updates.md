@@ -1,3 +1,11 @@
+**Student New Quiz: National Debt, Teen Takeovers, Sea Lion**\
+`Have you been paying attention to current events recently? See how well you can do on this week’s news quiz for students.`\
+https://www.nytimes.com/interactive/2026/05/11/learning/11StudentNewsQuiz.html
+
+**Byron Allen Is Buying a Controlling Stake in BuzzFeed**\
+`Jonah Peretti, BuzzFeed’s co-founder 20 years ago, will step down as chief executive and serve as its president of A.I.`\
+https://www.nytimes.com/2026/05/11/business/media/buzzfeed-byron-allen.html
+
 **Dua Lipa Sues Samsung Over Use of Her Image on TV Packaging**\
 `Dua Lipa sued Samsung for $15 million, accusing the South Korean electronics giant of using her image on TV packaging without her permission.`\
 https://www.nytimes.com/video/us/100000010896619/dua-lipa-sues-samsung-tv-image.html

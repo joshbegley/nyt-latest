@@ -1,3 +1,7 @@
+**Supreme Court Clears Path for Alabama to Use New Voting Map**\
+`A majority of the justices sided with Alabama in a move that could speed up efforts to put in place a congressional district map that would eliminate a majority-Black district.`\
+https://www.nytimes.com/2026/05/11/us/politics/supreme-court-alabama-map.html
+
 **Student New Quiz: National Debt, Teen Takeovers, Sea Lion**\
 `Have you been paying attention to current events recently? See how well you can do on this week’s news quiz for students.`\
 https://www.nytimes.com/interactive/2026/05/11/learning/11StudentNewsQuiz.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/11/world/middleeast/economic-woes-trump-iran-tru
 **En Colombia, los hipopótamos de Pablo Escobar dividen la opinión pública**\
 `El gobierno colombiano planea sacrificar una población de hipopótamos salvajes, descendientes de las mascotas del narcotraficante, y con ello ha dividido a un pueblo donde los hipopótamos son la principal atracción.`\
 https://www.nytimes.com/es/2026/05/11/espanol/america-latina/colombia-hipopotamos-pablo-escobar.html
-
-**Los pasajeros del crucero vinculado a un brote mortal de hantavirus han sido evacuados**\
-`Pasajeros y tripulantes abandonaron el barco tras fondear en Tenerife el domingo. Los pasajeros están siendo trasladados en avión a sus países de origen, dijeron las autoridades.`\
-https://www.nytimes.com/es/2026/05/11/espanol/mundo/hantavirus-crucero-islas-canarias-pasajeros.html
 
