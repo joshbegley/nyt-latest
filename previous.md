@@ -1,3 +1,15 @@
+**Trump Administration to Scrap Rule That Elevated Land Conservation**\
+`The Biden-era measure was intended to protect millions of acres from industrial development and the effects of climate change.`\
+https://www.nytimes.com/2026/05/11/climate/public-land-rule-repeal.html
+
+**Cruise Ship Hit by Hantavirus Outbreak Sails for European Mainland**\
+`The last evacuees disembarked in the Canary Islands, and a smaller crew is now en route to Rotterdam, where the ship will be disinfected, officials said.`\
+https://www.nytimes.com/2026/05/11/world/europe/hantavirus-cruise-ship-canary-islands.html
+
+**Alabama Opens Its Own Investigation Into the Southern Poverty Law Center**\
+`The law center, based in Montgomery, has drawn the ire of conservatives in recent years. Last month, the Justice Department charged the group with financial crimes.`\
+https://www.nytimes.com/2026/05/11/us/alabama-investigation-southern-poverty-law-center.html
+
 **Black People Won a Voice in This County. The Voting Case May Silence It.**\
 `Black residents, who make up 25 percent of Fayette County, Tenn., won a new electoral map last year to change an all-white board of commissioners. They worry the Supreme Court’s ruling could threaten that.`\
 https://www.nytimes.com/2026/05/11/us/fayette-county-tennessee-voting-rights.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/11/business/dollar-dominance-renminbi-china.html
 **Palabra del día: ‘palpable’**\
 `Esta palabra ha aparecido en 296 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
 https://www.nytimes.com/es/2026/05/11/espanol/que-significa-palpable.html
-
-**Can the U.S. Rein in Prediction Markets?**\
-`Full episode #193`\
-https://www.nytimes.com/video/podcasts/100000010893412/can-the-us-rein-in-prediction-markets.html
-
-**The Horror of Sexual Assault in Israeli Prisons**\
-`Sexual violence by Israeli forces against Palestinians is widespread, according to new reports and harrowing first-hand accounts. The Opinion columnist Nicholas Kristof details a pattern of systemic abuse and “unrestrained power” within Israeli detention centers that challenges the moral silence of the international community.`\
-https://www.nytimes.com/video/opinion/100000010886586/the-horror-of-sexual-assault-in-israeli-prisons.html
-
-**On ‘The Pitt,’ She Clocked Out on Time. In Real Life, It Started a Debate.**\
-`When Joy Kwon, a third-year medical student on TV, set a boundary, she stirred a work-life balance debate among medical professionals and fans.`\
-https://www.nytimes.com/2026/05/11/style/the-pitt-joy-kwon-irene-choi-work-life-balance.html
 

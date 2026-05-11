@@ -1,3 +1,15 @@
+**Trump Administration to Scrap Rule That Elevated Land Conservation**\
+`The Biden-era measure was intended to protect millions of acres from industrial development and the effects of climate change.`\
+https://www.nytimes.com/2026/05/11/climate/public-land-rule-repeal.html
+
+**Cruise Ship Hit by Hantavirus Outbreak Sails for European Mainland**\
+`The last evacuees disembarked in the Canary Islands, and a smaller crew is now en route to Rotterdam, where the ship will be disinfected, officials said.`\
+https://www.nytimes.com/2026/05/11/world/europe/hantavirus-cruise-ship-canary-islands.html
+
+**Alabama Opens Its Own Investigation Into the Southern Poverty Law Center**\
+`The law center, based in Montgomery, has drawn the ire of conservatives in recent years. Last month, the Justice Department charged the group with financial crimes.`\
+https://www.nytimes.com/2026/05/11/us/alabama-investigation-southern-poverty-law-center.html
+
 **Black People Won a Voice in This County. The Voting Case May Silence It.**\
 `Black residents, who make up 25 percent of Fayette County, Tenn., won a new electoral map last year to change an all-white board of commissioners. They worry the Supreme Court’s ruling could threaten that.`\
 https://www.nytimes.com/2026/05/11/us/fayette-county-tennessee-voting-rights.html
