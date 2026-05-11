@@ -1,4 +1,8 @@
 **American Passengers Exposed to Hantavirus Land in the U.S.**\
+`Seventeen American passengers from a cruise ship that faced a hantavirus outbreak in the Atlantic Ocean landed in Nebraska on Monday. They will be monitored at a quarantine center.`\
+https://www.nytimes.com/2026/05/10/us/americans-hantavirus-ship-return-nebraska.html
+
+**American Passengers Exposed to Hantavirus Land in the U.S.**\
 `The passengers will be monitored in Omaha at the country’s only federally funded quarantine center.`\
 https://www.nytimes.com/2026/05/10/us/americans-hantavirus-ship-return-nebraska.html
 

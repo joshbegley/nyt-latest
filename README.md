@@ -1,80 +1,80 @@
-**The Astounding Discovery That Could Link Eastern and Western Medicine**\
-`The detection of another circulatory system in the human body could have enormous scientific implications.`\
-https://www.nytimes.com/interactive/2026/05/11/magazine/interstitium-anatomy-acupuncture-medicine.html
+**This 4-Week Challenge Will Actually Help You Get Off Your Phone**\
+`You might even spend more time outside.`\
+https://www.nytimes.com/2026/05/11/well/phone-challege-touch-grass.html
 
-**How to Win Eurovision With Just a Few Hundred Voters**\
-`Exclusive voting data shows that, despite Eurovision’s assurances, an Israeli campaign could easily have influenced last year’s contest.`\
-https://www.nytimes.com/2026/05/11/world/europe/eurovision-israel-votes.html
+**Quebec Novelist Shines a Harsh Spotlight on Migration, and on Trump’s America**\
+`Thélyson Orélien, a Haitian-born, previously unknown writer, submitted an unsolicited manuscript. Its rights were sold in 23 countries before publication.`\
+https://www.nytimes.com/2026/05/11/world/canada/thelyson-orelien-haiti-us-canada-migration.html
 
-**How Israel Turned Eurovision’s Stage Into a Soft Power Tool**\
-`Israel’s efforts to influence Eurovision’s vote were broader and started years earlier than previously known.`\
-https://www.nytimes.com/2026/05/11/world/europe/eurovision-israel-gaza-netanyahu.html
+**The Fight to Euthanize Pablo Escobar’s Hippos in Colombia**\
+`Colombia is planning to cull a population of wild hippos, the offspring of the drug lord’s pets, dividing a town where hippos are the main draw.`\
+https://www.nytimes.com/2026/05/11/world/americas/pablo-escobar-hippos-colombia.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/05/11/crosswords/spelling-bee-forum.html
+**A Water Doom Loop Is Coming**\
+`In 50 or so years, snow could virtually disappear from the Southwest, wiping out trees and making life there exceedingly difficult.`\
+https://www.nytimes.com/2026/05/11/opinion/water-southwest-climate-change.html
 
-**Need to Hire an Architect or Designer? Try Dumbo.**\
-`A Brooklyn neighborhood with waterfront views and pricey apartments has become New York City’s latest design hub, with more than 160 architecture and design firms.`\
-https://www.nytimes.com/2026/05/11/nyregion/need-to-hire-an-architect-or-designer-try-dumbo.html
+**Fed Up, Zelensky Takes Gloves Off With the Trump Administration**\
+`With peace talks on ice and Ukraine now more self-reliant, President Volodymyr Zelensky seems to be stepping away from the United States.`\
+https://www.nytimes.com/2026/05/11/world/europe/ukraine-war-zelensky-us-trump-russia.html
 
-**Airbnb Turns to Black Leaders in Its Bid to Make a Comeback in New York**\
-`The multibillion-dollar corporation is partnering with influential Black pastors as it seeks to regain a foothold in the city’s short-term rental market.`\
-https://www.nytimes.com/2026/05/11/nyregion/airbnb-blacks-world-cup-nyc.html
+**As Coal Rebounds, More Mercury, a Potent Toxin, Is in the Air**\
+`Coal-burning power plants released more mercury last year, according to an analysis by The Times. It reverses a downward trend of emissions of a metal that interferes with brain development.`\
+https://www.nytimes.com/2026/05/11/climate/as-coal-rebounds-more-mercury-a-potent-toxin-is-in-the-air.html
 
-**Word of the Day: palpable**\
-`This word has appeared in 296 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/05/11/learning/word-of-the-day-palpable.html
+**‘The Comeback’ Knows What Scares Hollywood**\
+`The HBO comedy, which wrapped up on Sunday, often seemed to be about whatever was keeping Lisa Kudrow and her collaborators up at night. But Valerie Cherish remained undaunted.`\
+https://www.nytimes.com/2026/05/11/arts/television/the-comeback-finale.html
 
-**¿Qué es el trastorno dismórfico corporal?**\
-`Este padecimiento mental hace que las personas pasen un tiempo excesivo preocupadas por su aspecto, pero va más allá de la vanidad.`\
-https://www.nytimes.com/es/2026/05/11/espanol/trastorno-dismorfico-corporal.html
+**This Is Why You’re Drowning in Busywork**\
+`The A.I. revolution involves a massive transfer of labor — not from worker to machine, but from worker to you.`\
+https://www.nytimes.com/2026/05/11/opinion/ai-jobs-chores-work.html
 
-**‘Off-Campus,’ and 8 Things to Watch on TV This Week**\
-`A TV adaptation of a new hockey romance series. And a comedy series starring two “One Tree Hill” alums finds a new home.`\
-https://www.nytimes.com/2026/05/11/arts/television/off-campus-and-8-things-to-watch-on-tv-this-week.html
+**He Had a Vision for His Novel’s Main Character. A Sketch Artist Brought Her to Life.**\
+`With the help of a forensic artist, Amitav Ghosh puts a face to the name of Varsha Gupta, the central figure of his new novel, “Ghost Eye.”`\
+https://www.nytimes.com/2026/05/11/t-magazine/amitav-ghosh-ghost-eye-sketch.html
 
-**What We Saw in Cuba Shocked Us**\
-`If Americans knew what Cuba was enduring, they would demand an end to the U.S. blockade.`\
-https://www.nytimes.com/2026/05/11/opinion/cuba-us-blockade.html
+**A Warning to Climate Scientists: Don’t Miss the Forest for the Trees**\
+`Suzanne Simard’s new book urges Western science to take a lesson from the more holistic Indigenous approach to forest preservation.`\
+https://www.nytimes.com/2026/05/11/books/review/when-the-forest-breathes-suzanne-simard.html
 
-**What Middle Powers Fear About the Trump-Xi Summit**\
-`Asian nations worry that the president might trade security commitments for better economic terms with China during his planned meeting with Xi Jinping this week.`\
-https://www.nytimes.com/2026/05/11/world/asia/trump-xi-china-summit-iran.html
+**What Can I Do About See-Through White Pants?**\
+`A reader loves the style, but hates the consequences.`\
+https://www.nytimes.com/2026/05/11/fashion/white-pants-see-through-garments.html
 
-**Quote of the Day: Red Card of Black Card? Facing Fate at Thailand’s Draft Lottery.**\
-`Quotation of the day for Monday, May 11 2026.`\
-https://www.nytimes.com/2026/05/10/pageoneplus/quote-of-the-day-red-card-of-black-card-facing-fate-at-thailands-draft-lottery.html
+**The Silence That Meets the Rape of Palestinians**\
+`Male and female Palestinians describe brutal sexual abuse at the hands of Israel’s prison guards, soldiers, settlers and interrogators.`\
+https://www.nytimes.com/2026/05/11/opinion/israel-palestinians-sexual-violence.html
 
-**‘The Comeback’ Season 3 Finale Recap: All’s Well?**\
-`Valerie makes the case that her tale is one of survival, not humiliation. “You’ve been telling the wrong story,” she tells Jane.`\
-https://www.nytimes.com/2026/05/10/arts/television/the-comeback-recap-season-3-episode-8-finale.html
+**Lost Movie Music? On CD? La-La Land Is an Anomaly. (And a Success.)**\
+`The California record label scours movie studio archives and composers’ personal collections to locate music from older films or TV recordings.`\
+https://www.nytimes.com/2026/05/11/arts/music/lala-land-records-movie-soundtracks.html
 
-**American Passengers Exposed to Hantavirus Land in the U.S.**\
-`Seventeen American passengers from a cruise ship that faced a hantavirus outbreak in the Atlantic Ocean landed in Nebraska on Monday. They will be monitored at a quarantine center.`\
-https://www.nytimes.com/2026/05/10/us/americans-hantavirus-ship-return-nebraska.html
+**Are You Frail?**\
+`Nearly half of older adults are at risk.`\
+https://www.nytimes.com/2026/05/11/well/frailty-aging.html
 
-**The 100 Best Restaurants in New York City in 2026**\
-`The annual list is back. Our new chief critic ranks her favorite places to dine in all five boroughs.`\
-https://www.nytimes.com/interactive/2026/dining/best-nyc-restaurants.html
+**Retailers Are Making Expensive Bets That Shoppers Still Want to Go to Stores**\
+`Walmart, Target and Dollar General are among those investing in remodeling thousands of existing stores, even as shoppers take their dollars online.`\
+https://www.nytimes.com/2026/05/11/business/retailers-stores-renovations.html
 
-**Thailand’s Thaksin Shinawatra Is Out of Prison. What Will He Do Now?**\
-`Mr. Thaksin has long been a foil to Thailand’s conservative establishment. He still holds significant influence, with his political party a member of the governing coalition.`\
-https://www.nytimes.com/2026/05/10/world/asia/thailand-thaksin-shinawatra-released-prison.html
+**Kansas City, a Car Town, Spends Millions on World Cup Transit**\
+`Security and other expenses are piling up for host cities. In the smallest metro area staging games, the bill includes temporary bus systems in two states.`\
+https://www.nytimes.com/2026/05/11/us/kansas-city-world-cup-costs.html
 
-**A List of 100 Best Restaurants? For These Marathon Eaters, It’s a Dare.**\
-`As rankings proliferate, a cadre of completists have made it their mission to sample every single place on them.`\
-https://www.nytimes.com/2026/05/10/dining/diners-restaurant-lists.html
+**The Hole in the Ice at the End of the Earth**\
+`Ten people. Eight weeks. Three thousand feet to pierce a fast-melting Antarctic glacier.`\
+https://www.nytimes.com/2026/05/11/climate/antarctica-expedition-thwaites-glacier.html
 
-**Trends at the Table: Field Notes From New York’s Best Restaurants**\
-`Hip crustaceans, dessert trends and the never-ending reservation battle were among the things our chief critic took note of.`\
-https://www.nytimes.com/2026/05/10/dining/new-york-restaurant-trends.html
+**They Were Promised New Septic Tanks. Trump Called It ‘Illegal DEI.’**\
+`The Justice Department ended a deal that had helped fund a solution to the sewage crisis in rural Alabama. “Almost like we are starting all over again,” one activist said.`\
+https://www.nytimes.com/2026/05/11/us/alabama-sewage-trump-dei-voting-rights-act.html
 
-**5 Standout Neighborhoods for the Best Restaurants in New York City**\
-`Great meals can be found in virtually any corner of the five boroughs, but here are some areas that stood out to our critic.`\
-https://www.nytimes.com/2026/05/10/dining/best-nyc-restaurant-neighborhoods.html
+**We’re Thinking About Mental Health Diagnoses All Wrong**\
+`Neither genetics nor brain scans can distinguish a person with depression, A.D.H.D. or autism from one without.`\
+https://www.nytimes.com/2026/05/11/opinion/adhd-autism-depression-diagnoses.html
 
-**Trump and Netanyahu Say Iran War Is Not Over**\
-`The Trump administration said last week that the war had run its course, but the U.S. president and Israel’s prime minister in interviews on Sunday did not rule out renewed combat.`\
-https://www.nytimes.com/2026/05/10/us/politics/trump-netanyahu-iran-war.html
+**‘Bill Cassidy Sold His Soul to the Devil, and He Didn’t Get Anything for It’**\
+`A doctor and senator who voted to confirm Robert Kennedy still was snubbed by Trump in the Republican primary in Louisiana.`\
+https://www.nytimes.com/2026/05/11/opinion/bill-cassidy-louisiana-republican-primary.html
 
