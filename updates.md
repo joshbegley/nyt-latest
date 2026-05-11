@@ -1,3 +1,19 @@
+**Trump Proposes Suspending Federal Gas Tax**\
+`Also, Kennedy is pushing a vast inquiry into vaccines. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/05/11/briefing/trump-gas-tax-iran-truce.html
+
+**Former Hostage Calls on All of Israel’s Government to Resign**\
+`Rom Braslavski, who said he had endured starvation, torture and sexual abuse during two-year captivity, demanded that members “take responsibility and get out of our lives.”`\
+https://www.nytimes.com/2026/05/11/world/middleeast/israel-hostage-demands-government-resign.html
+
+**¿Eres frágil?**\
+`Te decimos cómo se diagnostica la fragilidad, en qué se diferencia del envejecimiento normal, qué te pone en riesgo de volverte frágil y qué hacer al respecto.`\
+https://www.nytimes.com/es/2026/05/11/espanol/fragilidad-vejez-que-es.html
+
+**Trump Calls Iran’s Counterproposal a ‘Piece of Garbage’**\
+`President Trump told reporters the Iran cease-fire was “on life support” on Monday after he rejected Iran’s counterproposal for a peace deal this weekend.`\
+https://www.nytimes.com/video/world/middleeast/100000010896706/iran-us-ceasefire-trump.html
+
 **The Iran War’s Alarming Ripple Effects**\
 `The downstream effects of the Iran war are only beginning. On “The Opinions,” David Wallace-Wells explains how disruptions tied to fertilizer, condoms and other global goods could contribute to famine, disease and rising costs worldwide.`\
 https://www.nytimes.com/video/opinion/100000010889365/the-iran-wars-alarming-ripple-effects.html
