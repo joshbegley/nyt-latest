@@ -1,3 +1,11 @@
+**Black People Won a Voice in This County. The Voting Case May Silence It.**\
+`Black residents, who make up 25 percent of Fayette County, Tenn., won a new electoral map last year to change an all-white board of commissioners. They worry the Supreme Court’s ruling could threaten that.`\
+https://www.nytimes.com/2026/05/11/us/fayette-county-tennessee-voting-rights.html
+
+**I Ran the N.S.A. This Is How to Defeat China’s Hacker Army.**\
+`Beijing has hacked America, but we have all the tools we need to fight back.`\
+https://www.nytimes.com/2026/05/11/opinion/international-world/i-ran-the-nsa-this-is-how-to-defeat-chinas-hacker-army.html
+
 **How Much Art Is Too Much? A Guide to the New York Fairs.**\
 `Latin American galleries. World-class photography. Upcycled design. Art fairs will take over New York this week. Here are seven (of many) worth a visit.`\
 https://www.nytimes.com/2026/05/11/arts/design/new-york-art-fairs-frieze-preview.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/video/opinion/100000010886586/the-horror-of-sexual-assau
 **On ‘The Pitt,’ She Clocked Out on Time. In Real Life, It Started a Debate.**\
 `When Joy Kwon, a third-year medical student on TV, set a boundary, she stirred a work-life balance debate among medical professionals and fans.`\
 https://www.nytimes.com/2026/05/11/style/the-pitt-joy-kwon-irene-choi-work-life-balance.html
-
-**‘Uno, Dos, Uno!’: Under Dudamel, Classical Music Meets Salsa**\
-`Gustavo Dudamel brought the New York Philharmonic and the Spanish Harlem Orchestra together for the first time, at Lincoln Center and uptown.`\
-https://www.nytimes.com/2026/05/11/arts/music/gustavo-dudamel-ny-philharmonic-spanish-harlem-orchestra.html
-
-**The (Printable) Highlights from the Kevin Hart Roast**\
-`Tom Brady, the Rock, Chelsea Handler and even Hart’s longtime rival Katt Williams told jokes at Hart’s expense at a Netflix roast.`\
-https://www.nytimes.com/2026/05/11/arts/television/kevin-hart-netflix-roast-jokes.html
 
