@@ -1,3 +1,23 @@
+**The 100 Best Restaurants in New York City in 2026**\
+`The annual list is back. Our new chief critic ranks her favorite places to dine in all five boroughs.`\
+https://www.nytimes.com/interactive/2026/dining/best-nyc-restaurants.html
+
+**Thailand’s Thaksin Shinawatra Is Out of Prison. What Will He Do Now?**\
+`Mr. Thaksin has long been a foil to Thailand’s conservative establishment. He still holds significant influence, with his political party a member of the governing coalition.`\
+https://www.nytimes.com/2026/05/10/world/asia/thailand-thaksin-shinawatra-released-prison.html
+
+**A List of 100 Best Restaurants? For These Marathon Eaters, It’s a Dare.**\
+`As rankings proliferate, a cadre of completists have made it their mission to sample every single place on them.`\
+https://www.nytimes.com/2026/05/10/dining/diners-restaurant-lists.html
+
+**Trends at the Table: Field Notes From New York’s Best Restaurants**\
+`Hip crustaceans, dessert trends and the never-ending reservation battle were among the things our chief critic took note of.`\
+https://www.nytimes.com/2026/05/10/dining/new-york-restaurant-trends.html
+
+**5 Standout Neighborhoods for the Best Restaurants in New York City**\
+`Great meals can be found in virtually any corner of the five boroughs, but here are some areas that stood out to our critic.`\
+https://www.nytimes.com/2026/05/10/dining/best-nyc-restaurant-neighborhoods.html
+
 **Trump Rejects Latest Iran Offer for Talks, Extending Limbo in Mideast War**\
 `The United States and Iran have been discussing a 30-day extension to their cease-fire and a reopening of the Strait of Hormuz.`\
 https://www.nytimes.com/2026/05/10/us/politics/iran-war-us-peace-proposal-response.html
