@@ -1,3 +1,11 @@
+**‘Off-Campus,’ and 8 Things to Watch on TV This Week**\
+`A TV adaptation of a new hockey romance series. And a comedy series starring two “One Tree Hill” alums finds a new home.`\
+https://www.nytimes.com/2026/05/11/arts/television/off-campus-and-8-things-to-watch-on-tv-this-week.html
+
+**What We’re Doing to Cuba Isn’t Just Unlawful. It’s Cruel.**\
+`If Americans knew what Cuba was enduring, they would demand an end to the U.S. blockade.`\
+https://www.nytimes.com/2026/05/11/opinion/cuba-us-blockade.html
+
 **What Middle Powers Fear About the Trump-Xi Summit**\
 `Asian nations worry that the president might trade security commitments for better economic terms with China during his planned meeting with Xi Jinping this week.`\
 https://www.nytimes.com/2026/05/11/world/asia/trump-xi-china-summit-iran.html
