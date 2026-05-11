@@ -1,3 +1,15 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/11/crosswords/spelling-bee-forum.html
+
+**Need to Hire an Architect or Designer? Try Dumbo.**\
+`A Brooklyn neighborhood with waterfront views and pricey apartments has become New York City’s latest design hub, with more than 160 architecture and design firms.`\
+https://www.nytimes.com/2026/05/11/nyregion/need-to-hire-an-architect-or-designer-try-dumbo.html
+
+**Airbnb Turns to Black Leaders in Its Bid to Make a Comeback in New York**\
+`The multibillion-dollar corporation is partnering with influential Black pastors as it seeks to regain a foothold in the city’s short-term rental market.`\
+https://www.nytimes.com/2026/05/11/nyregion/airbnb-blacks-world-cup-nyc.html
+
 **Word of the Day: palpable**\
 `This word has appeared in 296 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/05/11/learning/word-of-the-day-palpable.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/10/business/oil-prices-rise-as-prospects-for-us-
 **Winning a Blue Ribbon**\
 `Joel Woodford’s second puzzle makes a few exclamations.`\
 https://www.nytimes.com/2026/05/10/crosswords/daily-puzzle-2026-05-11.html
-
-**Maya Lin Connects Nature to a New Manhattan Skyscraper and Beyond**\
-`The famed artist and designer drew on her lifelong love of the environment for inspiration for new work in New York and Chicago.`\
-https://www.nytimes.com/2026/05/10/arts/design/maya-lin-manhattan-skyscraper.html
-
-**Passengers and Crew Are Evacuated From Ship at Center of Hantavirus Outbreak**\
-`Passengers and crew from a cruise ship hit by a deadly hantavirus outbreak were evacuated on Sunday after the vessel anchored off Spain’s Canary Islands.`\
-https://www.nytimes.com/video/world/europe/100000010894758/passengers-and-crew-are-evacuated-from-ship-at-center-of-hantavirus-outbreak.html
-
-**A One-Party India**\
-`A recent victory in a key state has put Narendra Modi at the helm of a country in which opponents hold almost no power.`\
-https://www.nytimes.com/2026/05/10/world/india-modi-elections-trump-iran-proposal.html
 
