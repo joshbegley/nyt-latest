@@ -1,3 +1,31 @@
+**Is China Winning the A.I. Race?**\
+`Chinese policymakers and the public have expressed optimism about the technology, even as many in the West worry about its effects.`\
+https://www.nytimes.com/2026/05/11/podcasts/the-daily/china-ai-race.html
+
+**Trump Rejects Iran’s Offer, and 17 Passengers Exposed to Hantavirus Return to U.S.**\
+`Plus, how pharma swag became “one of the white whales of thrifting.”`\
+https://www.nytimes.com/2026/05/11/podcasts/the-headlines/trump-iran-hantavirus.html
+
+**Be Present**\
+`John Ruff’s debut puzzle offers a lexical challenge.`\
+https://www.nytimes.com/2026/05/11/crosswords/daily-puzzle-2026-05-12.html
+
+**A Single Infusion Could Suppress H.I.V. for Years, Study Suggests**\
+`A study of a few patients, to be presented this week, showed promise for a type of therapy that has already cured some blood cancers.`\
+https://www.nytimes.com/2026/05/11/health/hiv-infusion-immunotherapy.html
+
+**Connections Companion No. 1,066**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, May 12, 2026.`\
+https://www.nytimes.com/2026/05/11/crosswords/connections-companion-1066.html
+
+**Strands Sidekick No. 800**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, May 12, 2026.`\
+https://www.nytimes.com/2026/05/11/crosswords/strands-sidekick-800.html
+
+**Wordle Review No. 1,788**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, May 12, 2026.`\
+https://www.nytimes.com/2026/05/11/crosswords/wordle-review-1788.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/05/11/world/iran-war-trump-hormuz/heres-the-latest
@@ -49,32 +77,4 @@ https://www.nytimes.com/2026/05/11/books/review/bindu-bansinath-men-like-ours.ht
 **How a Writer and Literary Agent Lives on $48,000 in Riverdale**\
 `As an expert bargain hunter, Lori Perkins negotiates with landlords and gambles on cruises. She even has an offer for you.`\
 https://www.nytimes.com/interactive/2026/05/11/nyregion/nyc-budgeting-affordability-perkins.html
-
-**Cannes Film Festival Preview: 4 Story Lines to Watch For**\
-`The lineup isn’t very starry, but changes in the Oscar rules could affect the Palme d’Or choice. That’s one development we’re tracking.`\
-https://www.nytimes.com/2026/05/11/movies/cannes-film-festival-preview.html
-
-**As Trump Heads to Beijing, China Is ‘Locked and Loaded’ for a Fight**\
-`Beijing is signaling that it is ready for a trade showdown, and it is building up a legal arsenal in preparation.`\
-https://www.nytimes.com/2026/05/11/business/trump-xi-economic-warfare.html
-
-**Spirit Was the Only Airline in Town. Now What?**\
-`Spirit’s presence was a point of pride in Latrobe, Pa., where the security lines were short and airport parking is free. Residents are mourning the loss.`\
-https://www.nytimes.com/2026/05/11/travel/spirit-airlines-shutdown-palmer-airport.html
-
-**A Guide to the Dance Quotes and Callbacks on Broadway**\
-`Breaking down the choreographic allusions in “Schmigadoon” and “Cats: The Jellicle Ball,” two gotta-dance, Tony-nominated shows.`\
-https://www.nytimes.com/2026/05/11/arts/dance/schmigadoon-and-cats-jellicle-ball-dance-quotations.html
-
-**Gisèle Pelicot’s Memoir Said Something Taboo About Victimhood. We Didn’t Listen.**\
-`A book by the world’s most famous survivor of sexual violence has been read as a manifesto or a cry of pain. What she wrote is far more complicated.`\
-https://www.nytimes.com/2026/05/11/magazine/gisele-pelicot-memoir.html
-
-**Tell Us About Your Games Streak**\
-`We need your help for an upcoming article.`\
-https://www.nytimes.com/2026/05/11/crosswords/games-streak-story.html
-
-**What Is Your Reaction to the Supreme Court’s Recent Voting Rights Ruling?**\
-`Will a decision that further weakens the Voting Rights Act make our elections more equal, fair and just — or less so?`\
-https://www.nytimes.com/2026/05/11/learning/what-is-your-reaction-to-the-supreme-courts-recent-voting-rights-ruling.html
 
