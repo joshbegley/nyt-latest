@@ -1,3 +1,11 @@
+**What Middle Powers Fear About the Trump-Xi Summit**\
+`Asian nations worry that the president might trade security commitments for better economic terms with China during his planned meeting with Xi Jinping this week.`\
+https://www.nytimes.com/2026/05/11/world/asia/trump-xi-china-summit-iran.html
+
+**Quote of the Day: Red Card of Black Card? Facing Fate at Thailand’s Draft Lottery.**\
+`Quotation of the day for Monday, May 11 2026.`\
+https://www.nytimes.com/2026/05/10/pageoneplus/quote-of-the-day-red-card-of-black-card-facing-fate-at-thailands-draft-lottery.html
+
 **‘The Comeback’ Season 3 Finale Recap: All’s Well?**\
 `Valerie makes the case that her tale is one of survival, not humiliation. “You’ve been telling the wrong story,” she tells Jane.`\
 https://www.nytimes.com/2026/05/10/arts/television/the-comeback-recap-season-3-episode-8-finale.html
