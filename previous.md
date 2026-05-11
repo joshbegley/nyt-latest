@@ -1,3 +1,7 @@
+**The Astounding Discovery That Could Link Eastern and Western Medicine**\
+`The detection of another circulatory system in the human body could have enormous scientific implications.`\
+https://www.nytimes.com/interactive/2026/05/11/magazine/interstitium-anatomy-acupuncture-medicine.html
+
 **How to Win Eurovision With Just a Few Hundred Voters**\
 `Exclusive voting data shows that, despite Eurovision’s assurances, an Israeli campaign could easily have influenced last year’s contest.`\
 https://www.nytimes.com/2026/05/11/world/europe/eurovision-israel-votes.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/10/dining/best-nyc-restaurant-neighborhoods.html
 **Trump and Netanyahu Say Iran War Is Not Over**\
 `The Trump administration said last week that the war had run its course, but the U.S. president and Israel’s prime minister in interviews on Sunday did not rule out renewed combat.`\
 https://www.nytimes.com/2026/05/10/us/politics/trump-netanyahu-iran-war.html
-
-**6 Bodies Found in a Boxcar in Texas, Officials Say**\
-`The bodies were discovered in the city of Laredo. The circumstances of their deaths were not immediately known, the authorities said.`\
-https://www.nytimes.com/2026/05/10/us/dead-bodies-boxcar-texas.html
 
