@@ -1,3 +1,11 @@
+**How to Win Eurovision With Just a Few Hundred Voters**\
+`Exclusive voting data shows that, despite Eurovision’s assurances, an Israeli campaign could easily have influenced last year’s contest.`\
+https://www.nytimes.com/2026/05/11/world/europe/eurovision-israel-votes.html
+
+**How Israel Turned Eurovision’s Stage Into a Soft Power Tool**\
+`Israel’s efforts to influence Eurovision’s vote were broader and started years earlier than previously known.`\
+https://www.nytimes.com/2026/05/11/world/europe/eurovision-israel-gaza-netanyahu.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/05/11/crosswords/spelling-bee-forum.html

@@ -1,3 +1,11 @@
+**How to Win Eurovision With Just a Few Hundred Voters**\
+`Exclusive voting data shows that, despite Eurovision’s assurances, an Israeli campaign could easily have influenced last year’s contest.`\
+https://www.nytimes.com/2026/05/11/world/europe/eurovision-israel-votes.html
+
+**How Israel Turned Eurovision’s Stage Into a Soft Power Tool**\
+`Israel’s efforts to influence Eurovision’s vote were broader and started years earlier than previously known.`\
+https://www.nytimes.com/2026/05/11/world/europe/eurovision-israel-gaza-netanyahu.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/05/11/crosswords/spelling-bee-forum.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/10/us/politics/trump-netanyahu-iran-war.html
 **6 Bodies Found in a Boxcar in Texas, Officials Say**\
 `The bodies were discovered in the city of Laredo. The circumstances of their deaths were not immediately known, the authorities said.`\
 https://www.nytimes.com/2026/05/10/us/dead-bodies-boxcar-texas.html
-
-**Oil Prices Rise as Prospects for U.S.-Iran Peace Deal Fizzle**\
-`Oil prices rose and stock futures ticked down as investors reacted after the two sides failed to agree on a U.S.-Iran peace deal.`\
-https://www.nytimes.com/2026/05/10/business/oil-prices-rise-as-prospects-for-us-iran-peace-deal-fizzle.html
-
-**Winning a Blue Ribbon**\
-`Joel Woodford’s second puzzle makes a few exclamations.`\
-https://www.nytimes.com/2026/05/10/crosswords/daily-puzzle-2026-05-11.html
 
