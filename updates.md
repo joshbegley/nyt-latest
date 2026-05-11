@@ -1,3 +1,19 @@
+**A Sheet-Pan Chicken for Peak Asparagus**\
+`Streamlined and springy, everything is roasted together until the chicken crisps and the stalks turn bright green and tender.`\
+https://www.nytimes.com/2026/05/11/dining/a-sheet-pan-chicken-for-peak-asparagus.html
+
+**Can You Match the Memorable Line to the Right Crime Novel?**\
+`Test your reading recollection with this short quiz.`\
+https://www.nytimes.com/interactive/2026/05/11/books/review/crime-novel-quotes.html
+
+**Inside the Courtroom Circus With Elon Musk and Sam Altman**\
+`The tech leaders, with combined net worths exceeding $670 billion, have brought props to court and traded icy stares as their legal dispute reaches a denouement.`\
+https://www.nytimes.com/2026/05/11/technology/courtroom-circus-elon-musk-sam-altman.html
+
+**Already Facing a Challenge, a Republican Is Accused of Self-Dealing**\
+`Several entities tied to Representative Mike Lawler, New York’s most endangered House Republican, paid a political consulting firm he once owned, raising ethics concerns.`\
+https://www.nytimes.com/2026/05/11/nyregion/mike-lawler-money-campaign-finance.html
+
 **Cost of Reflecting Pool Repairs Nearly Doubles, Trump Administration Says**\
 `A no-bid contract for repairs to the Lincoln Memorial pool now costs $13.1 million, far more than the $1.8 million Mr. Trump initially said it would.`\
 https://www.nytimes.com/2026/05/11/us/politics/reflecting-pool-paint-contract-trump.html

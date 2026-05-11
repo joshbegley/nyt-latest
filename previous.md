@@ -1,3 +1,19 @@
+**A Sheet-Pan Chicken for Peak Asparagus**\
+`Streamlined and springy, everything is roasted together until the chicken crisps and the stalks turn bright green and tender.`\
+https://www.nytimes.com/2026/05/11/dining/a-sheet-pan-chicken-for-peak-asparagus.html
+
+**Can You Match the Memorable Line to the Right Crime Novel?**\
+`Test your reading recollection with this short quiz.`\
+https://www.nytimes.com/interactive/2026/05/11/books/review/crime-novel-quotes.html
+
+**Inside the Courtroom Circus With Elon Musk and Sam Altman**\
+`The tech leaders, with combined net worths exceeding $670 billion, have brought props to court and traded icy stares as their legal dispute reaches a denouement.`\
+https://www.nytimes.com/2026/05/11/technology/courtroom-circus-elon-musk-sam-altman.html
+
+**Already Facing a Challenge, a Republican Is Accused of Self-Dealing**\
+`Several entities tied to Representative Mike Lawler, New York’s most endangered House Republican, paid a political consulting firm he once owned, raising ethics concerns.`\
+https://www.nytimes.com/2026/05/11/nyregion/mike-lawler-money-campaign-finance.html
+
 **Cost of Reflecting Pool Repairs Nearly Doubles, Trump Administration Says**\
 `A no-bid contract for repairs to the Lincoln Memorial pool now costs $13.1 million, far more than the $1.8 million Mr. Trump initially said it would.`\
 https://www.nytimes.com/2026/05/11/us/politics/reflecting-pool-paint-contract-trump.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/05/11/world/asia/sara-duterte-philippine-impeached.
 **Lo que hay que saber sobre las orfinas, una nueva clase de opioides mortales**\
 `Estas drogas son 10 veces más peligrosas que el fentanilo. Están apareciendo en las drogas callejeras del Sur y del Medio Oeste, y lo más probable es que se extiendan a otras regiones.`\
 https://www.nytimes.com/es/2026/05/11/espanol/estados-unidos/que-son-orfinas.html
-
-**Where Are the Passengers of the MV Hondius Now?**\
-`Nearly two dozen countries were moving to repatriate their citizens who were aboard the cruise ship where three passengers died in a hantavirus outbreak.`\
-https://www.nytimes.com/2026/05/11/world/hantavirus-outbreak-cruise-ship-passengers.html
-
-**El Niño podría traer un adelanto de las temperaturas, y la vida, de 2035**\
-`El Niño que se está gestando este año podría hacer de 2027 el año más caluroso jamás registrado.`\
-https://www.nytimes.com/es/2026/05/11/espanol/opinion/el-nino-2027-temperaturas-futuro.html
-
-**It’s All Connected**\
-`We look into the body’s circulatory systems.`\
-https://www.nytimes.com/2026/05/11/briefing/body-systems-connected.html
-
-**¿Vance o Rubio? Trump sopesa quién será su sucesor**\
-`Las apariciones recientes del vicepresidente JD Vance y el secretario de Estado Marco Rubio han generado nuevas especulaciones sobre una contienda por la candidatura presidencial republicana.`\
-https://www.nytimes.com/es/2026/05/11/espanol/estados-unidos/vance-rubio-sucesor-trump.html
 
