@@ -1,3 +1,15 @@
+**Dua Lipa Sues Samsung Over Use of Her Image on TV Packaging**\
+`Dua Lipa sued Samsung for $15 million, accusing the South Korean electronics giant of using her image on TV packaging without her permission.`\
+https://www.nytimes.com/video/us/100000010896619/dua-lipa-sues-samsung-tv-image.html
+
+**Senate G.O.P. Stands by Security Money for Trump’s Ballroom**\
+`Democrats are trying to stoke public opposition to the project as they take aim at legislation to provide nearly $72 billion for the administration’s immigration crackdown.`\
+https://www.nytimes.com/2026/05/11/us/politics/trump-white-house-ballroom.html
+
+**Microsoft’s C.E.O. Intervened When OpenAI Fired Sam Altman, Musk’s Lawyer Claims**\
+`Elon Musk’s lawyer argued that Microsoft’s Satya Nadella played a role in getting Mr. Altman his job back at OpenAI when he was briefly fired in 2023.`\
+https://www.nytimes.com/2026/05/11/technology/satya-nadella-openai-sam-altman.html
+
 **Trump Proposes Suspending Federal Gas Tax**\
 `Also, Kennedy is pushing a vast inquiry into vaccines. Here’s the latest at the end of Monday.`\
 https://www.nytimes.com/2026/05/11/briefing/trump-gas-tax-iran-truce.html
