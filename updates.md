@@ -1,3 +1,7 @@
+**The (Printable) Highlights from the Kevin Hart Roast**\
+`Tom Brady, the Rock, Chelsea Handler and even Hart’s longtime rival Katt Williams told jokes at Hart’s expense at a Netflix roast.`\
+https://www.nytimes.com/2026/05/11/arts/television/kevin-hart-netflix-roast-jokes.html
+
 **Reflecting Pool Repairs to Cost $13.1 Million. Trump Had Promised $1.8 Million.**\
 `The Interior Department added $6.2 million to the no-bid contract for repairs to the Lincoln Memorial pool late last week.`\
 https://www.nytimes.com/2026/05/11/us/politics/reflecting-pool-paint-contract-trump.html

@@ -1,3 +1,7 @@
+**The (Printable) Highlights from the Kevin Hart Roast**\
+`Tom Brady, the Rock, Chelsea Handler and even Hart’s longtime rival Katt Williams told jokes at Hart’s expense at a Netflix roast.`\
+https://www.nytimes.com/2026/05/11/arts/television/kevin-hart-netflix-roast-jokes.html
+
 **Body of U.S. Soldier Is Found Off the Coast of Morocco**\
 `First Lt. Kendrick Lamont Key Jr., 27, of Richmond, Va., was said to be on a hike at a training range when he disappeared. A second service member is still missing.`\
 https://www.nytimes.com/2026/05/11/us/us-soldiers-missing-morocco-body-found.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/11/business/british-steel-nationalize-keir-starm
 **Iran defends its demands after Trump’s rejection.**\
 ``\
 https://www.nytimes.com/live/2026/05/11/world/iran-war-trump-hormuz/iran-defends-its-demands-after-trumps-rejection
-
-**Private Equity’s New Tax Fight**\
-`Estimates by researchers at Yale found that closing the carried interest loophole could lead to billions more in tax revenues than previously estimated.`\
-https://www.nytimes.com/2026/05/11/business/dealbook/carried-interest-tax-private-equity.html
 
