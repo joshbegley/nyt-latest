@@ -1,3 +1,11 @@
+**The Iran War’s Alarming Ripple Effects**\
+`The downstream effects of the Iran war are only beginning. On “The Opinions,” David Wallace-Wells explains how disruptions tied to fertilizer, condoms and other global goods could contribute to famine, disease and rising costs worldwide.`\
+https://www.nytimes.com/video/opinion/100000010889365/the-iran-wars-alarming-ripple-effects.html
+
+**Zelensky’s Former Top Aide Formally Accused in Corruption Investigation**\
+`Ukrainian news outlets named the suspect as Andriy Yermak, who resigned last year amid a sweeping scandal.`\
+https://www.nytimes.com/2026/05/11/world/europe/ukraine-corruption-yermak-zelensky.html
+
 **El crucero afectado por un brote de hantavirus zarpa hacia Europa continental**\
 `Los últimos evacuados desembarcaron en las islas Canarias, y una tripulación más reducida se dirige ahora a Rotterdam, donde se desinfectará el barco, dijeron las autoridades.`\
 https://www.nytimes.com/es/2026/05/11/espanol/mundo/hantavirus-crucero-islas-canarias-paises-bajos.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/11/world/europe/putin-russia-ukraine-war.html
 **Trump Administration to Scrap Rule That Elevated Land Conservation**\
 `The Biden-era measure was intended to protect millions of acres from industrial development and the effects of climate change.`\
 https://www.nytimes.com/2026/05/11/climate/public-land-rule-repeal.html
-
-**Cruise Ship Hit by Hantavirus Outbreak Sails for European Mainland**\
-`The last evacuees disembarked in the Canary Islands, and a smaller crew is now en route to Rotterdam, where the ship will be disinfected, officials said.`\
-https://www.nytimes.com/2026/05/11/world/europe/hantavirus-cruise-ship-canary-islands.html
-
-**Alabama Opens Its Own Investigation Into the Southern Poverty Law Center**\
-`The law center, based in Montgomery, has drawn the ire of conservatives in recent years. Last month, the Justice Department charged the group with financial crimes.`\
-https://www.nytimes.com/2026/05/11/us/alabama-investigation-southern-poverty-law-center.html
 
