@@ -1,3 +1,7 @@
+**Supreme Court Clears Path for Alabama to Use New Voting Map**\
+`A majority of the justices sided with Alabama in a move that could speed up efforts to put in place a congressional district map that would eliminate a majority-Black district.`\
+https://www.nytimes.com/2026/05/11/us/politics/supreme-court-alabama-map.html
+
 **Student New Quiz: National Debt, Teen Takeovers, Sea Lion**\
 `Have you been paying attention to current events recently? See how well you can do on this week’s news quiz for students.`\
 https://www.nytimes.com/interactive/2026/05/11/learning/11StudentNewsQuiz.html
