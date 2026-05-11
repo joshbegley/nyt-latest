@@ -1,3 +1,7 @@
+**Israel Prepares to Prosecute First Suspects in Oct. 7 Attack Led by Hamas**\
+`Parliament passed a new law that paves the way for military trials for hundreds of Palestinians suspected of taking part in the 2023 attack that ignited the two-year war in Gaza.`\
+https://www.nytimes.com/2026/05/11/world/middleeast/israel-oct-7-prosecutions-palestinians-trial.html
+
 **Supreme Court Continues Access to Abortion Pill by Mail, for a Few Days**\
 `Justice Samuel A. Alito Jr. has paused until at least Thursday a federal appeals court ruling against the Food and Drug Administration that would restrict access by mail to mifepristone.`\
 https://www.nytimes.com/2026/05/11/us/politics/supreme-court-abortion-pill-mifepristone.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/insider/100000010896107/how-the-times-covers-trump
 **Chief Executives to Accompany Trump to China**\
 `The delegation includes business leaders across a wide range of industries, including Tim Cook of Apple and Elon Musk of Tesla.`\
 https://www.nytimes.com/2026/05/11/us/politics/trump-china-musk-cook.html
-
-**Trump rechaza la nueva propuesta de Irán y prolonga el limbo en Medio Oriente**\
-`Estados Unidos e Irán han estado discutiendo una prórroga de 30 días de su alto al fuego y una reapertura del estrecho de Ormuz.`\
-https://www.nytimes.com/es/2026/05/11/espanol/estados-unidos/trump-propuesta-iran-paz.html
 
