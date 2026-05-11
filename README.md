@@ -1,80 +1,80 @@
-**This 4-Week Challenge Will Actually Help You Get Off Your Phone**\
-`You might even spend more time outside.`\
-https://www.nytimes.com/2026/05/11/well/phone-challege-touch-grass.html
+**Film Club: ‘How Ejae of ‘KPop Demon Hunters’ Overcame Rejection and Found Stardom’**\
+`What can we learn from her journey about the joys and challenges of becoming a K-pop idol?`\
+https://www.nytimes.com/2026/05/11/learning/film-club-how-ejae-of-kpop-demon-hunters-overcame-rejection-and-found-stardom.html
 
-**Quebec Novelist Shines a Harsh Spotlight on Migration, and on Trump’s America**\
-`Thélyson Orélien, a Haitian-born, previously unknown writer, submitted an unsolicited manuscript. Its rights were sold in 23 countries before publication.`\
-https://www.nytimes.com/2026/05/11/world/canada/thelyson-orelien-haiti-us-canada-migration.html
+**Why Some in Taiwan Are Training for War**\
+`A group of civilians in Taiwan are stepping up defense training amid rising tensions with China. Beijing’s claim to the island is expected to be discussed by China’s leader, Xi Jinping, and President Trump this week.`\
+https://www.nytimes.com/video/world/asia/100000010895531/taiwan-china-civilian-defense-airsoft.html
 
-**The Fight to Euthanize Pablo Escobar’s Hippos in Colombia**\
-`Colombia is planning to cull a population of wild hippos, the offspring of the drug lord’s pets, dividing a town where hippos are the main draw.`\
-https://www.nytimes.com/2026/05/11/world/americas/pablo-escobar-hippos-colombia.html
+**Americans Exposed to Hantavirus on Cruise Ship Arrive in United States**\
+`Seventeen Americans who were aboard the MV Hondius, a cruise ship with a deadly hantavirus outbreak, landed in Omaha on a U.S. government medical flight. The passengers will be monitored at the country’s only federally funded quarantine center.`\
+https://www.nytimes.com/video/us/100000010895693/hantavirus-cruise-ship-us-american-passengers.html
 
-**A Water Doom Loop Is Coming**\
-`In 50 or so years, snow could virtually disappear from the Southwest, wiping out trees and making life there exceedingly difficult.`\
-https://www.nytimes.com/2026/05/11/opinion/water-southwest-climate-change.html
+**Will a Ban on This Flour Change New York Bagels and Pizza?**\
+`Bromated flour, which makes breads and crusts stretchy and springy (and cheap), is among the carcinogens forbidden in pending state legislation.`\
+https://www.nytimes.com/2026/05/11/dining/bromated-flour-ban-new-york-pizza-bagels.html
 
-**Fed Up, Zelensky Takes Gloves Off With the Trump Administration**\
-`With peace talks on ice and Ukraine now more self-reliant, President Volodymyr Zelensky seems to be stepping away from the United States.`\
-https://www.nytimes.com/2026/05/11/world/europe/ukraine-war-zelensky-us-trump-russia.html
+**Lawmakers Urge Trump to Move Ahead on Delayed Arms Sale to Taiwan**\
+`The Trump administration has held up the sale for months ahead of President Trump’s meeting this week with President Xi Jinping of China.`\
+https://www.nytimes.com/2026/05/11/us/politics/taiwan-trump-china-xi-jinping.html
 
-**As Coal Rebounds, More Mercury, a Potent Toxin, Is in the Air**\
-`Coal-burning power plants released more mercury last year, according to an analysis by The Times. It reverses a downward trend of emissions of a metal that interferes with brain development.`\
-https://www.nytimes.com/2026/05/11/climate/as-coal-rebounds-more-mercury-a-potent-toxin-is-in-the-air.html
+**Scientists Press Congress on Trump’s Dismissal of Funding Agency Board**\
+`The slowed pace of grants by the National Science Foundation, under attack from the White House, could put the United States at a disadvantage with China, the scientists warned.`\
+https://www.nytimes.com/2026/05/11/us/politics/nsf-science-congress-trump.html
 
-**‘The Comeback’ Knows What Scares Hollywood**\
-`The HBO comedy, which wrapped up on Sunday, often seemed to be about whatever was keeping Lisa Kudrow and her collaborators up at night. But Valerie Cherish remained undaunted.`\
-https://www.nytimes.com/2026/05/11/arts/television/the-comeback-finale.html
+**In Brooklyn, Finding a First Home Was Just the Beginning**\
+`A couple paid $2.5 million for a townhouse that needed a gut renovation. Eighteen months later, they were crazy about the result.`\
+https://www.nytimes.com/2026/05/11/realestate/brooklyn-townhouse-passive-home-renovation.html
 
-**This Is Why You’re Drowning in Busywork**\
-`The A.I. revolution involves a massive transfer of labor — not from worker to machine, but from worker to you.`\
-https://www.nytimes.com/2026/05/11/opinion/ai-jobs-chores-work.html
+**He Created the Odeon. And Now He’s a Prizewinning Author.**\
+`Keith McNally won the Gotham Book Prize for his memoir, “I Regret Almost Everything.” It tells the story of his life in New York.`\
+https://www.nytimes.com/2026/05/11/nyregion/keith-mcnally-gotham-book-award.html
 
-**He Had a Vision for His Novel’s Main Character. A Sketch Artist Brought Her to Life.**\
-`With the help of a forensic artist, Amitav Ghosh puts a face to the name of Varsha Gupta, the central figure of his new novel, “Ghost Eye.”`\
-https://www.nytimes.com/2026/05/11/t-magazine/amitav-ghosh-ghost-eye-sketch.html
+**The Women of New Jersey’s Little India Have a Story to Tell**\
+`“Men Like Ours,” a novel by Bindu Bansinath, follows an immigrant family through a community crisis.`\
+https://www.nytimes.com/2026/05/11/books/review/bindu-bansinath-men-like-ours.html
 
-**A Warning to Climate Scientists: Don’t Miss the Forest for the Trees**\
-`Suzanne Simard’s new book urges Western science to take a lesson from the more holistic Indigenous approach to forest preservation.`\
-https://www.nytimes.com/2026/05/11/books/review/when-the-forest-breathes-suzanne-simard.html
+**How a Writer and Literary Agent Lives on $48,000 in Riverdale**\
+`As an expert bargain hunter, Lori Perkins negotiates with landlords and gambles on cruises. She even has an offer for you.`\
+https://www.nytimes.com/interactive/2026/05/11/nyregion/nyc-budgeting-affordability-perkins.html
 
-**What Can I Do About See-Through White Pants?**\
-`A reader loves the style, but hates the consequences.`\
-https://www.nytimes.com/2026/05/11/fashion/white-pants-see-through-garments.html
+**Cannes Film Festival Preview: 4 Story Lines to Watch For**\
+`The lineup isn’t very starry, but changes in the Oscar rules could affect the Palme d’Or choice. That’s one development we’re tracking.`\
+https://www.nytimes.com/2026/05/11/movies/cannes-film-festival-preview.html
 
-**The Silence That Meets the Rape of Palestinians**\
-`Male and female Palestinians describe brutal sexual abuse at the hands of Israel’s prison guards, soldiers, settlers and interrogators.`\
-https://www.nytimes.com/2026/05/11/opinion/israel-palestinians-sexual-violence.html
+**As Trump Heads to Beijing, China Is ‘Locked and Loaded’ for a Fight**\
+`Beijing is signaling that it is ready for a trade showdown, and it is building up a legal arsenal in preparation.`\
+https://www.nytimes.com/2026/05/11/business/trump-xi-economic-warfare.html
 
-**Lost Movie Music? On CD? La-La Land Is an Anomaly. (And a Success.)**\
-`The California record label scours movie studio archives and composers’ personal collections to locate music from older films or TV recordings.`\
-https://www.nytimes.com/2026/05/11/arts/music/lala-land-records-movie-soundtracks.html
+**Spirit Was the Only Airline in Town. Now What?**\
+`Spirit’s presence was a point of pride in Latrobe, Pa., where the security lines were short and airport parking is free. Residents are mourning the loss.`\
+https://www.nytimes.com/2026/05/11/travel/spirit-airlines-shutdown-palmer-airport.html
 
-**Are You Frail?**\
-`Nearly half of older adults are at risk.`\
-https://www.nytimes.com/2026/05/11/well/frailty-aging.html
+**A Guide to the Dance Quotes and Callbacks on Broadway**\
+`Breaking down the choreographic allusions in “Schmigadoon” and “Cats: The Jellicle Ball,” two gotta-dance, Tony-nominated shows.`\
+https://www.nytimes.com/2026/05/11/arts/dance/schmigadoon-and-cats-jellicle-ball-dance-quotations.html
 
-**Retailers Are Making Expensive Bets That Shoppers Still Want to Go to Stores**\
-`Walmart, Target and Dollar General are among those investing in remodeling thousands of existing stores, even as shoppers take their dollars online.`\
-https://www.nytimes.com/2026/05/11/business/retailers-stores-renovations.html
+**Gisèle Pelicot’s Memoir Said Something Taboo About Victimhood. We Didn’t Listen.**\
+`A book by the world’s most famous survivor of sexual violence has been read as a manifesto or a cry of pain. What she wrote is far more complicated.`\
+https://www.nytimes.com/2026/05/11/magazine/gisele-pelicot-memoir.html
 
-**Kansas City, a Car Town, Spends Millions on World Cup Transit**\
-`Security and other expenses are piling up for host cities. In the smallest metro area staging games, the bill includes temporary bus systems in two states.`\
-https://www.nytimes.com/2026/05/11/us/kansas-city-world-cup-costs.html
+**Tell Us About Your Games Streak**\
+`We need your help for an upcoming article.`\
+https://www.nytimes.com/2026/05/11/crosswords/games-streak-story.html
 
-**The Hole in the Ice at the End of the Earth**\
-`Ten people. Eight weeks. Three thousand feet to pierce a fast-melting Antarctic glacier.`\
-https://www.nytimes.com/2026/05/11/climate/antarctica-expedition-thwaites-glacier.html
+**What Is Your Reaction to the Supreme Court’s Recent Voting Rights Ruling?**\
+`Will a decision that further weakens the Voting Rights Act make our elections more equal, fair and just — or less so?`\
+https://www.nytimes.com/2026/05/11/learning/what-is-your-reaction-to-the-supreme-courts-recent-voting-rights-ruling.html
 
-**They Were Promised New Septic Tanks. Trump Called It ‘Illegal DEI.’**\
-`The Justice Department ended a deal that had helped fund a solution to the sewage crisis in rural Alabama. “Almost like we are starting all over again,” one activist said.`\
-https://www.nytimes.com/2026/05/11/us/alabama-sewage-trump-dei-voting-rights-act.html
+**In This Nazi-Era Restitution Dispute, the Focus Turns to a Missing Cow**\
+`A family is vying for the return of a painting it thought was by Rubens. But an expert says it’s a copy because it does not include the artist’s depiction of a peeing cow.`\
+https://www.nytimes.com/2026/05/11/arts/design/rubens-painting-cow-nazi-restitution-dispute.html
 
-**We’re Thinking About Mental Health Diagnoses All Wrong**\
-`Neither genetics nor brain scans can distinguish a person with depression, A.D.H.D. or autism from one without.`\
-https://www.nytimes.com/2026/05/11/opinion/adhd-autism-depression-diagnoses.html
+**As Visa Policies Tighten, International Students Find Tougher Job Market**\
+`Students say they have been passed over for jobs and interviews because of visa restrictions. Some have a Plan B: leaving the United States.`\
+https://www.nytimes.com/2026/05/11/us/politics/trump-visas-international-students-us-job-market.html
 
-**‘Bill Cassidy Sold His Soul to the Devil, and He Didn’t Get Anything for It’**\
-`A doctor and senator who voted to confirm Robert Kennedy still was snubbed by Trump in the Republican primary in Louisiana.`\
-https://www.nytimes.com/2026/05/11/opinion/bill-cassidy-louisiana-republican-primary.html
+**Angelina Jolie Lists Her Los Angeles Estate for $29.85 Million**\
+`The 1916 Beaux-Arts mansion, once owned by Cecil B. DeMille, sits in the hilly neighborhood of Los Feliz. In North Carolina, the TV-famous home from “Dawson’s Creek” has sold.`\
+https://www.nytimes.com/2026/05/11/realestate/angelina-jolie-lists-her-los-angeles-estate.html
 
