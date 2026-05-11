@@ -1,3 +1,15 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/05/11/world/iran-war-trump-hormuz/heres-the-latest
+
+**Starmer Promises Urgent Change as He Battles to Save Premiership**\
+`Prime Minister Keir Starmer of Britain used a speech on Monday to attempt to quell a mutiny in the Labour Party after last week’s dire election results.`\
+https://www.nytimes.com/2026/05/11/world/europe/starmer-speech-uk-labour.html
+
+**Por qué es importante la cumbre entre Trump y Xi, aunque parezca que no dará muchos frutos**\
+`Se espera que la guerra en Irán, el comercio, la inteligencia artificial y Taiwán estén en el orden del día. Pero las expectativas son moderadas.`\
+https://www.nytimes.com/es/2026/05/11/espanol/mundo/cumbre-trump-xi-china.html
+
 **Film Club: ‘How Ejae of ‘KPop Demon Hunters’ Overcame Rejection and Found Stardom’**\
 `What can we learn from her journey about the joys and challenges of becoming a K-pop idol?`\
 https://www.nytimes.com/2026/05/11/learning/film-club-how-ejae-of-kpop-demon-hunters-overcame-rejection-and-found-stardom.html

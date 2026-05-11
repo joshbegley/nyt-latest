@@ -1,3 +1,15 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/05/11/world/iran-war-trump-hormuz/heres-the-latest
+
+**Starmer Promises Urgent Change as He Battles to Save Premiership**\
+`Prime Minister Keir Starmer of Britain used a speech on Monday to attempt to quell a mutiny in the Labour Party after last week’s dire election results.`\
+https://www.nytimes.com/2026/05/11/world/europe/starmer-speech-uk-labour.html
+
+**Por qué es importante la cumbre entre Trump y Xi, aunque parezca que no dará muchos frutos**\
+`Se espera que la guerra en Irán, el comercio, la inteligencia artificial y Taiwán estén en el orden del día. Pero las expectativas son moderadas.`\
+https://www.nytimes.com/es/2026/05/11/espanol/mundo/cumbre-trump-xi-china.html
+
 **Film Club: ‘How Ejae of ‘KPop Demon Hunters’ Overcame Rejection and Found Stardom’**\
 `What can we learn from her journey about the joys and challenges of becoming a K-pop idol?`\
 https://www.nytimes.com/2026/05/11/learning/film-club-how-ejae-of-kpop-demon-hunters-overcame-rejection-and-found-stardom.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/11/crosswords/games-streak-story.html
 **What Is Your Reaction to the Supreme Court’s Recent Voting Rights Ruling?**\
 `Will a decision that further weakens the Voting Rights Act make our elections more equal, fair and just — or less so?`\
 https://www.nytimes.com/2026/05/11/learning/what-is-your-reaction-to-the-supreme-courts-recent-voting-rights-ruling.html
-
-**In This Nazi-Era Restitution Dispute, the Focus Turns to a Missing Cow**\
-`A family is vying for the return of a painting it thought was by Rubens. But an expert says it’s a copy because it does not include the artist’s depiction of a peeing cow.`\
-https://www.nytimes.com/2026/05/11/arts/design/rubens-painting-cow-nazi-restitution-dispute.html
-
-**As Visa Policies Tighten, International Students Find Tougher Job Market**\
-`Students say they have been passed over for jobs and interviews because of visa restrictions. Some have a Plan B: leaving the United States.`\
-https://www.nytimes.com/2026/05/11/us/politics/trump-visas-international-students-us-job-market.html
-
-**Angelina Jolie Lists Her Los Angeles Estate for $29.85 Million**\
-`The 1916 Beaux-Arts mansion, once owned by Cecil B. DeMille, sits in the hilly neighborhood of Los Feliz. In North Carolina, the TV-famous home from “Dawson’s Creek” has sold.`\
-https://www.nytimes.com/2026/05/11/realestate/angelina-jolie-lists-her-los-angeles-estate.html
 
