@@ -1,3 +1,7 @@
+**¿Vance o Rubio? Trump sopesa quién será su sucesor**\
+`Las apariciones recientes del vicepresidente JD Vance y el secretario de Estado Marco Rubio han generado nuevas especulaciones sobre una contienda por la candidatura presidencial republicana.`\
+https://www.nytimes.com/es/2026/05/11/espanol/estados-unidos/vance-rubio-sucesor-trump.html
+
 **Is China Winning the A.I. Race?**\
 `Chinese policymakers and the public have expressed optimism about the technology, even as many in the West worry about its effects.`\
 https://www.nytimes.com/2026/05/11/podcasts/the-daily/china-ai-race.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/11/nyregion/keith-mcnally-gotham-book-award.html
 **The Women of New Jersey’s Little India Have a Story to Tell**\
 `“Men Like Ours,” a novel by Bindu Bansinath, follows an immigrant family through a community crisis.`\
 https://www.nytimes.com/2026/05/11/books/review/bindu-bansinath-men-like-ours.html
-
-**How a Writer and Literary Agent Lives on $48,000 in Riverdale**\
-`As an expert bargain hunter, Lori Perkins negotiates with landlords and gambles on cruises. She even has an offer for you.`\
-https://www.nytimes.com/interactive/2026/05/11/nyregion/nyc-budgeting-affordability-perkins.html
 
