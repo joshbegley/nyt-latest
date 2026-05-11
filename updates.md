@@ -1,3 +1,7 @@
+**Wordle to Become Prime-Time TV Show, With Savannah Guthrie as Host**\
+`The word puzzle published by The New York Times is the inspiration for a game show that will begin airing next year. Jimmy Fallon is a producer.`\
+https://www.nytimes.com/2026/05/11/business/media/wordle-nbc-savannah-guthrie.html
+
 **No Corrections: May 11, 2026**\
 `No corrections appeared in print on Monday, May 11, 2026.`\
 https://www.nytimes.com/2026/05/11/pageoneplus/no-corrections-may-11-2026.html
