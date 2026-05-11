@@ -6,9 +6,9 @@ https://www.nytimes.com/2026/05/11/us/politics/trump-gas-tax.html
 `A las naciones asiáticas les preocupa que el presidente de EE. UU. pueda sacrificar compromisos de seguridad por mejores condiciones económicas con China.`\
 https://www.nytimes.com/es/2026/05/11/espanol/mundo/cumbre-trump-xi.html
 
-**Kennedy Is Driving a Vast Inquiry Into Vaccines, Despite His New Silence on the Issue**\
+**Kennedy Is Driving a Vast Inquiry Into Vaccines, Despite His Public Silence**\
 `Health Secretary Robert F. Kennedy Jr. has toned down his public criticism of vaccines, under orders from the White House. But inside his department, a sprawling research effort is a top priority.`\
-https://www.nytimes.com/2026/05/11/health/kennedy-vacccine-safety.html
+https://www.nytimes.com/2026/05/11/health/kennedy-vaccine-safety.html
 
 **Arizona Fifth Congressional District 2026: Latest Polls**\
 `Track the latest polls in Arizona's 5th Congressional District.`\
