@@ -1,3 +1,11 @@
+**‘Off-Campus,’ and 8 Things to Watch on TV This Week**\
+`A TV adaptation of a new hockey romance series. And a comedy series starring two “One Tree Hill” alums finds a new home.`\
+https://www.nytimes.com/2026/05/11/arts/television/off-campus-and-8-things-to-watch-on-tv-this-week.html
+
+**What We’re Doing to Cuba Isn’t Just Unlawful. It’s Cruel.**\
+`If Americans knew what Cuba was enduring, they would demand an end to the U.S. blockade.`\
+https://www.nytimes.com/2026/05/11/opinion/cuba-us-blockade.html
+
 **What Middle Powers Fear About the Trump-Xi Summit**\
 `Asian nations worry that the president might trade security commitments for better economic terms with China during his planned meeting with Xi Jinping this week.`\
 https://www.nytimes.com/2026/05/11/world/asia/trump-xi-china-summit-iran.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/10/obituaries/abraham-foxman-dead.html
 **Why Nebraska’s ‘Blue Dot’ Is Roiling a Democratic House Primary**\
 `A speck of blue on an otherwise red area in some presidential elections, the dot is now dividing candidates in a key midterm contest.`\
 https://www.nytimes.com/2026/05/10/us/politics/nebraska-blue-dot-democrats-house.html
-
-**Hundreds Mourn Eight Members of Lebanese Family Killed in Israeli Strike**\
-`At least eight members of a Lebanese family were killed by an Israeli strike on Saturday. The family was displaced and among those killed was a 6-month-old infant, relatives said.`\
-https://www.nytimes.com/video/world/middleeast/100000010894865/lebanese-family-killed-israeli-strike.html
-
-**Review: ‘The Receptionist’ Can’t Help You Today**\
-`A stale revival of Adam Bock’s cog-in-the-office-machine dark comedy lacks specificity and bite.`\
-https://www.nytimes.com/2026/05/10/theater/the-receptionist-review.html
 
