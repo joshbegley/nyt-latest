@@ -1,3 +1,7 @@
+**How Much Art Is Too Much? A Guide to the New York Fairs.**\
+`Latin American galleries. World-class photography. Upcycled design. Art fairs will take over New York this week. Here are seven (of many) worth a visit.`\
+https://www.nytimes.com/2026/05/11/arts/design/new-york-art-fairs-frieze-preview.html
+
 **Kennedy Is Driving a Vast Inquiry Into Vaccines, Despite His Public Silence**\
 `Health Secretary Robert F. Kennedy Jr. has toned down his public criticism of vaccines, under orders from the White House. But inside his department, a sprawling research effort is a top priority.`\
 https://www.nytimes.com/2026/05/11/health/kennedy-vaccine-safety.html
