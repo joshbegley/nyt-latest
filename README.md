@@ -50,7 +50,7 @@ https://www.nytimes.com/2026/05/10/pageoneplus/quote-of-the-day-red-card-of-blac
 `Valerie makes the case that her tale is one of survival, not humiliation. “You’ve been telling the wrong story,” she tells Jane.`\
 https://www.nytimes.com/2026/05/10/arts/television/the-comeback-recap-season-3-episode-8-finale.html
 
-**American Passengers Exposed to Hantavirus Are Flying Back to the U.S.**\
+**American Passengers Exposed to Hantavirus Land in the U.S.**\
 `The passengers will be monitored in Omaha at the country’s only federally funded quarantine center.`\
 https://www.nytimes.com/2026/05/10/us/americans-hantavirus-ship-return-nebraska.html
 
