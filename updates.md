@@ -1,3 +1,11 @@
+**Black People Won a Voice in This County. The Voting Case May Silence It.**\
+`Black residents, who make up 25 percent of Fayette County, Tenn., won a new electoral map last year to change an all-white board of commissioners. They worry the Supreme Court’s ruling could threaten that.`\
+https://www.nytimes.com/2026/05/11/us/fayette-county-tennessee-voting-rights.html
+
+**I Ran the N.S.A. This Is How to Defeat China’s Hacker Army.**\
+`Beijing has hacked America, but we have all the tools we need to fight back.`\
+https://www.nytimes.com/2026/05/11/opinion/international-world/i-ran-the-nsa-this-is-how-to-defeat-chinas-hacker-army.html
+
 **How Much Art Is Too Much? A Guide to the New York Fairs.**\
 `Latin American galleries. World-class photography. Upcycled design. Art fairs will take over New York this week. Here are seven (of many) worth a visit.`\
 https://www.nytimes.com/2026/05/11/arts/design/new-york-art-fairs-frieze-preview.html
