@@ -1,3 +1,11 @@
+**On ‘The Pitt,’ She Clocked Out on Time. In Real Life, It Started a Debate.**\
+`When Joy Kwon, a third-year medical student on TV, set a boundary, she stirred a work-life balance debate among medical professionals and fans.`\
+https://www.nytimes.com/2026/05/11/style/the-pitt-joy-kwon-irene-choi-worklife-balance.html
+
+**‘Uno, Dos, Uno!’: Under Dudamel, Classical Music Meets Salsa**\
+`Gustavo Dudamel brought the New York Philharmonic and the Spanish Harlem Orchestra together for the first time, at Lincoln Center and uptown.`\
+https://www.nytimes.com/2026/05/11/arts/music/gustavo-dudamel-ny-philharmonic-spanish-harlem-orchestra.html
+
 **The (Printable) Highlights from the Kevin Hart Roast**\
 `Tom Brady, the Rock, Chelsea Handler and even Hart’s longtime rival Katt Williams told jokes at Hart’s expense at a Netflix roast.`\
 https://www.nytimes.com/2026/05/11/arts/television/kevin-hart-netflix-roast-jokes.html
