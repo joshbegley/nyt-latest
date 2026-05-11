@@ -1,3 +1,7 @@
+**It’s All Connected**\
+`We look into the body’s circulatory systems.`\
+https://www.nytimes.com/2026/05/11/briefing/body-systems-connected.html
+
 **¿Vance o Rubio? Trump sopesa quién será su sucesor**\
 `Las apariciones recientes del vicepresidente JD Vance y el secretario de Estado Marco Rubio han generado nuevas especulaciones sobre una contienda por la candidatura presidencial republicana.`\
 https://www.nytimes.com/es/2026/05/11/espanol/estados-unidos/vance-rubio-sucesor-trump.html
