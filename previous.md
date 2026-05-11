@@ -1,3 +1,7 @@
+**‘The Comeback’ Season 3 Finale Recap: All’s Well?**\
+`Valerie makes the case that her tale is one of survival, not humiliation. “You’ve been telling the wrong story,” she tells Jane.`\
+https://www.nytimes.com/2026/05/10/arts/television/the-comeback-recap-season-3-episode-8-finale.html
+
 **American Passengers Exposed to Hantavirus Are Flying Back to the U.S.**\
 `The passengers will be monitored in Omaha at the country’s only federally funded quarantine center.`\
 https://www.nytimes.com/2026/05/10/us/americans-hantavirus-ship-return-nebraska.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/10/us/california-primary-rules-change-democrats.
 **Is the Art Market Fair, Flawed or Game-able? Depends Who You Ask.**\
 `Three new books — a sweeping work of nonfiction, a cheeky memoir and a dual biography — provide divergent views on the business of buying and selling, and they are out just in time for New York Art Week.`\
 https://www.nytimes.com/2026/05/10/arts/design/books-art-market-2026.html
-
-**A Respected Artist Gains Wider Recognition**\
-`Michael Joo is appearing in multiple shows, from New York and the San Francisco Bay Area to a Mediterranean island and Venice.`\
-https://www.nytimes.com/2026/05/10/arts/design/michael-joo-frieze-new-york.html
 
