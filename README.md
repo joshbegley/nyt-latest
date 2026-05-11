@@ -1,3 +1,11 @@
+**Supreme Court Continues Access to Abortion Pill by Mail, for a Few Days**\
+`Justice Samuel A. Alito Jr. has paused until at least Thursday a federal appeals court ruling against the Food and Drug Administration that would restrict access by mail to mifepristone.`\
+https://www.nytimes.com/2026/05/11/us/politics/supreme-court-abortion-pill-mifepristone.html
+
+**Read Virginia Officials’ Emergency Application to the Supreme Court**\
+`Democratic leaders in Virginia asked the U.S. Supreme Court to allow the state to use a congressional map drawn by Democrats and approved by voters but which the state Supreme Court had struck down.`\
+https://www.nytimes.com/interactive/2026/05/11/us/25a-application-for-stay.html
+
 **Virginia Officials Ask Supreme Court to Restore Voting Map Drawn by Democrats**\
 `State officials asked the justices to overturn a Virginia Supreme Court decision that struck down a congressional map, a major defeat for Democrats.`\
 https://www.nytimes.com/2026/05/11/us/politics/supreme-court-virginia-redistricting.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/11/us/politics/trump-china-musk-cook.html
 **Trump rechaza la nueva propuesta de Irán y prolonga el limbo en Medio Oriente**\
 `Estados Unidos e Irán han estado discutiendo una prórroga de 30 días de su alto al fuego y una reapertura del estrecho de Ormuz.`\
 https://www.nytimes.com/es/2026/05/11/espanol/estados-unidos/trump-propuesta-iran-paz.html
-
-**Rising Housing Costs Keep First-Time Buyers on the Sidelines**\
-`The effects of the war in Iran have raised mortgage rates and lowered consumer confidence, making it even harder for house hunters.`\
-https://www.nytimes.com/2026/05/11/business/housing-costs-first-time-buyers.html
-
-**European Union Hits Israeli Settlers With Sanctions**\
-`Israel criticized the European Union’s announcement that it will apply sanctions to Israeli settlers over violence against Palestinians.`\
-https://www.nytimes.com/2026/05/11/world/europe/israel-settlers-european-union-sanctions.html
 
