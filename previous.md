@@ -1,3 +1,15 @@
+****\
+``\
+https://static01.nyt.com/slideshow/2026/05/11/t-magazine/11tmag-redshoes.html
+
+**Arizona Sixth Congressional District 2026: Latest Polls**\
+`Track the latest polls in Arizona's 6th Congressional District.`\
+https://www.nytimes.com/interactive/polls/arizona-us-house-6-polls-2026.html
+
+**Arizona First Congressional District 2026: Latest Polls**\
+`Track the latest polls in Arizona's 1st Congressional District.`\
+https://www.nytimes.com/interactive/polls/arizona-us-house-1-polls-2026.html
+
 **No Corrections: May 11, 2026**\
 `No corrections appeared in print on Monday, May 11, 2026.`\
 https://www.nytimes.com/2026/05/11/pageoneplus/no-corrections-may-11-2026.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/11/podcasts/the-daily/china-ai-race.html
 **Trump Rejects Iran’s Offer, and 17 Passengers Exposed to Hantavirus Return to U.S.**\
 `Plus, how pharma swag became “one of the white whales of thrifting.”`\
 https://www.nytimes.com/2026/05/11/podcasts/the-headlines/trump-iran-hantavirus.html
-
-**Be Present**\
-`John Ruff’s debut puzzle offers a lexical challenge.`\
-https://www.nytimes.com/2026/05/11/crosswords/daily-puzzle-2026-05-12.html
-
-**A Single Infusion Could Suppress H.I.V. for Years, Study Suggests**\
-`A study of a few patients, to be presented this week, showed promise for a type of therapy that has already cured some blood cancers.`\
-https://www.nytimes.com/2026/05/11/health/hiv-infusion-immunotherapy.html
-
-**Connections Companion No. 1,066**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, May 12, 2026.`\
-https://www.nytimes.com/2026/05/11/crosswords/connections-companion-1066.html
 

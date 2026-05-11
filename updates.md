@@ -1,3 +1,15 @@
+****\
+``\
+https://static01.nyt.com/slideshow/2026/05/11/t-magazine/11tmag-redshoes.html
+
+**Arizona Sixth Congressional District 2026: Latest Polls**\
+`Track the latest polls in Arizona's 6th Congressional District.`\
+https://www.nytimes.com/interactive/polls/arizona-us-house-6-polls-2026.html
+
+**Arizona First Congressional District 2026: Latest Polls**\
+`Track the latest polls in Arizona's 1st Congressional District.`\
+https://www.nytimes.com/interactive/polls/arizona-us-house-1-polls-2026.html
+
 **Wordle to Become Prime-Time TV Show, With Savannah Guthrie as Host**\
 `The word puzzle published by The New York Times is the inspiration for a game show that will begin airing next year. Jimmy Fallon is a producer.`\
 https://www.nytimes.com/2026/05/11/business/media/wordle-nbc-savannah-guthrie.html
