@@ -1,3 +1,11 @@
+**On ‘The Pitt,’ She Clocked Out on Time. In Real Life, It Started a Debate.**\
+`When Joy Kwon, a third-year medical student on TV, set a boundary, she stirred a work-life balance debate among medical professionals and fans.`\
+https://www.nytimes.com/2026/05/11/style/the-pitt-joy-kwon-irene-choi-worklife-balance.html
+
+**‘Uno, Dos, Uno!’: Under Dudamel, Classical Music Meets Salsa**\
+`Gustavo Dudamel brought the New York Philharmonic and the Spanish Harlem Orchestra together for the first time, at Lincoln Center and uptown.`\
+https://www.nytimes.com/2026/05/11/arts/music/gustavo-dudamel-ny-philharmonic-spanish-harlem-orchestra.html
+
 **The (Printable) Highlights from the Kevin Hart Roast**\
 `Tom Brady, the Rock, Chelsea Handler and even Hart’s longtime rival Katt Williams told jokes at Hart’s expense at a Netflix roast.`\
 https://www.nytimes.com/2026/05/11/arts/television/kevin-hart-netflix-roast-jokes.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/11/us/politics/google-hackers-attack-ai.html
 **A Fish That Hitches Rides Where the Sun Doesn’t Shine**\
 `The remora often latches on to the exteriors of larger marine creatures. But sometimes it travels in a more intrusive spot: inside a manta ray’s backside.`\
 https://www.nytimes.com/2026/05/11/science/a-fish-that-hitches-rides-where-the-sun-doesnt-shine.html
-
-**Britain Will Nationalize Its Last Major Steel Mill, Prime Minister Says**\
-`Keir Starmer, with thousands of jobs at stake, vowed to take full control of British Steel, a year after the government first intervened to keep its operations going.`\
-https://www.nytimes.com/2026/05/11/business/british-steel-nationalize-keir-starmer.html
-
-**Iran defends its demands after Trump’s rejection.**\
-``\
-https://www.nytimes.com/live/2026/05/11/world/iran-war-trump-hormuz/iran-defends-its-demands-after-trumps-rejection
 
