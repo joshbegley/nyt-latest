@@ -1,3 +1,7 @@
+**Putin Said the War ‘Is Coming to a Close.’ But That’s Not All He Said.**\
+`The Russian leader is walking a tightrope: acknowledging public discontent while offering no indication that he might give up on his demands.`\
+https://www.nytimes.com/2026/05/11/world/europe/putin-russia-ukraine-war.html
+
 **Trump Administration to Scrap Rule That Elevated Land Conservation**\
 `The Biden-era measure was intended to protect millions of acres from industrial development and the effects of climate change.`\
 https://www.nytimes.com/2026/05/11/climate/public-land-rule-repeal.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/11/world/europe/israel-settlers-european-union-s
 **How the U.S. Is Trying to Ensure the Dollar’s Dominance During Economic Turmoil**\
 `As the government has been devising plans to keep the dollar dominant, China has been making its own moves to increase global influence of the renminbi.`\
 https://www.nytimes.com/2026/05/11/business/dollar-dominance-renminbi-china.html
-
-**Palabra del día: ‘palpable’**\
-`Esta palabra ha aparecido en 296 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
-https://www.nytimes.com/es/2026/05/11/espanol/que-significa-palpable.html
 
