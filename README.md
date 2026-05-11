@@ -1,3 +1,7 @@
+**How Much Art Is Too Much? A Guide to the New York Fairs.**\
+`Latin American galleries. World-class photography. Upcycled design. Art fairs will take over New York this week. Here are seven (of many) worth a visit.`\
+https://www.nytimes.com/2026/05/11/arts/design/new-york-art-fairs-frieze-preview.html
+
 **Trump Proposes Suspending Federal Gas Tax Until Prices Fall**\
 `Congress would have to agree to any suspension, and dropping federal taxes would not make up for the steep increase in prices since the war began.`\
 https://www.nytimes.com/2026/05/11/us/politics/trump-gas-tax.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/11/arts/music/gustavo-dudamel-ny-philharmonic-sp
 **The (Printable) Highlights from the Kevin Hart Roast**\
 `Tom Brady, the Rock, Chelsea Handler and even Hart’s longtime rival Katt Williams told jokes at Hart’s expense at a Netflix roast.`\
 https://www.nytimes.com/2026/05/11/arts/television/kevin-hart-netflix-roast-jokes.html
-
-**Body of U.S. Soldier Is Found Off the Coast of Morocco**\
-`First Lt. Kendrick Lamont Key Jr., 27, of Richmond, Va., was said to be on a hike at a training range when he disappeared. A second service member is still missing.`\
-https://www.nytimes.com/2026/05/11/us/us-soldiers-missing-morocco-body-found.html
 
