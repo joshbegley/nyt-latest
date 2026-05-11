@@ -1,3 +1,11 @@
+**Can the U.S. Rein in Prediction Markets?**\
+`Full episode #193`\
+https://www.nytimes.com/video/podcasts/100000010893412/can-the-us-rein-in-prediction-markets.html
+
+**The Horror of Sexual Assault in Israeli Prisons**\
+`Sexual violence by Israeli forces against Palestinians is widespread, according to new reports and harrowing first-hand accounts. The Opinion columnist Nicholas Kristof details a pattern of systemic abuse and “unrestrained power” within Israeli detention centers that challenges the moral silence of the international community.`\
+https://www.nytimes.com/video/opinion/100000010886586/the-horror-of-sexual-assault-in-israeli-prisons.html
+
 **On ‘The Pitt,’ She Clocked Out on Time. In Real Life, It Started a Debate.**\
 `When Joy Kwon, a third-year medical student on TV, set a boundary, she stirred a work-life balance debate among medical professionals and fans.`\
 https://www.nytimes.com/2026/05/11/style/the-pitt-joy-kwon-irene-choi-work-life-balance.html
