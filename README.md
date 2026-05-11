@@ -1,3 +1,7 @@
+****\
+``\
+https://static01.nyt.com/slideshow/2026/05/11/t-magazine/11tmag-redshoes.html
+
 **Arizona Sixth Congressional District 2026: Latest Polls**\
 `Track the latest polls in Arizona's 6th Congressional District.`\
 https://www.nytimes.com/interactive/polls/arizona-us-house-6-polls-2026.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/11/podcasts/the-daily/china-ai-race.html
 **Trump Rejects Iran’s Offer, and 17 Passengers Exposed to Hantavirus Return to U.S.**\
 `Plus, how pharma swag became “one of the white whales of thrifting.”`\
 https://www.nytimes.com/2026/05/11/podcasts/the-headlines/trump-iran-hantavirus.html
-
-**Be Present**\
-`John Ruff’s debut puzzle offers a lexical challenge.`\
-https://www.nytimes.com/2026/05/11/crosswords/daily-puzzle-2026-05-12.html
 
