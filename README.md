@@ -1,3 +1,15 @@
+**Private Equity’s New Tax Fight**\
+`Estimates by researchers at Yale found that closing the carried interest loophole could lead to billions more in tax revenues than previously estimated.`\
+https://www.nytimes.com/2026/05/11/business/dealbook/carried-interest-tax-private-equity.html
+
+**Dua Lipa Sues Samsung Over Use of Her Image on TV Packaging**\
+`The pop star is suing the electronics giant for more than $15 million, accusing it of using her image without authorization.`\
+https://www.nytimes.com/2026/05/11/us/dua-lipa-samsung-lawsuit.html
+
+**Wordle to Become Primetime TV Show, With Savannah Guthrie as Host**\
+`The word puzzle published by The New York Times is the inspiration for a game show that will begin airing next year. Jimmy Fallon is a producer.`\
+https://www.nytimes.com/2026/05/11/business/media/wordle-nbc-savannah-guthrie.html
+
 **Sara Duterte, Philippine Vice President, Is Impeached, Again**\
 `But the prosecution of Ms. Duterte, who has become the archrival to President Ferdinand R. Marcos Jr., is likely to fail again in the Senate.`\
 https://www.nytimes.com/2026/05/11/world/asia/sara-duterte-philippine-impeached.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/es/2026/05/11/espanol/mundo/cumbre-trump-xi-china.html
 **Film Club: ‘How Ejae of ‘KPop Demon Hunters’ Overcame Rejection and Found Stardom’**\
 `What can we learn from her journey about the joys and challenges of becoming a K-pop idol?`\
 https://www.nytimes.com/2026/05/11/learning/film-club-how-ejae-of-kpop-demon-hunters-overcame-rejection-and-found-stardom.html
-
-**Why Some in Taiwan Are Training for War**\
-`A group of civilians in Taiwan are stepping up defense training amid rising tensions with China. Beijing’s claim to the island is expected to be discussed by China’s leader, Xi Jinping, and President Trump this week.`\
-https://www.nytimes.com/video/world/asia/100000010895531/taiwan-china-civilian-defense-airsoft.html
-
-**Americans Exposed to Hantavirus on Cruise Ship Arrive in United States**\
-`Seventeen Americans who were aboard the MV Hondius, a cruise ship with a deadly hantavirus outbreak, landed in Omaha on a U.S. government medical flight. The passengers will be monitored at the country’s only federally funded quarantine center.`\
-https://www.nytimes.com/video/us/100000010895693/hantavirus-cruise-ship-us-american-passengers.html
-
-**Will a Ban on This Flour Change New York Bagels and Pizza?**\
-`Bromated flour, which makes breads and crusts stretchy and springy (and cheap), is among the carcinogens forbidden in pending state legislation.`\
-https://www.nytimes.com/2026/05/11/dining/bromated-flour-ban-new-york-pizza-bagels.html
 
