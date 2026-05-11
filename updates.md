@@ -1,3 +1,11 @@
+**Britain Will Nationalize Its Last Major Steel Mill, Prime Minister Says**\
+`Keir Starmer, with thousands of jobs at stake, vowed to take full control of British Steel, a year after the government first intervened to keep its operations going.`\
+https://www.nytimes.com/2026/05/11/business/british-steel-nationalize-keir-starmer.html
+
+**Iran defends its demands after Trump’s rejection.**\
+``\
+https://www.nytimes.com/live/2026/05/11/world/iran-war-trump-hormuz/iran-defends-its-demands-after-trumps-rejection
+
 **Private Equity’s New Tax Fight**\
 `Estimates by researchers at Yale found that closing the carried interest loophole could lead to billions more in tax revenues than previously estimated.`\
 https://www.nytimes.com/2026/05/11/business/dealbook/carried-interest-tax-private-equity.html
