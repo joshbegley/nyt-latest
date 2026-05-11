@@ -1,8 +1,12 @@
+**¿Qué es el trastorno dismórfico corporal?**\
+`Este padecimiento mental hace que las personas pasen un tiempo excesivo preocupadas por su aspecto, pero va más allá de la vanidad.`\
+https://www.nytimes.com/es/2026/05/11/espanol/trastorno-dismorfico-corporal.html
+
 **‘Off-Campus,’ and 8 Things to Watch on TV This Week**\
 `A TV adaptation of a new hockey romance series. And a comedy series starring two “One Tree Hill” alums finds a new home.`\
 https://www.nytimes.com/2026/05/11/arts/television/off-campus-and-8-things-to-watch-on-tv-this-week.html
 
-**What We’re Doing to Cuba Isn’t Just Unlawful. It’s Cruel.**\
+**What We Saw in Cuba Shocked Us**\
 `If Americans knew what Cuba was enduring, they would demand an end to the U.S. blockade.`\
 https://www.nytimes.com/2026/05/11/opinion/cuba-us-blockade.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/10/world/india-modi-elections-trump-iran-proposa
 **Abraham Foxman, Warrior Against Antisemitism, Dies at 86**\
 `For almost three decades, he led the Anti-Defamation League, winning access to presidents and prime ministers and meeting with Pope John Paul II.`\
 https://www.nytimes.com/2026/05/10/obituaries/abraham-foxman-dead.html
-
-**Why Nebraska’s ‘Blue Dot’ Is Roiling a Democratic House Primary**\
-`A speck of blue on an otherwise red area in some presidential elections, the dot is now dividing candidates in a key midterm contest.`\
-https://www.nytimes.com/2026/05/10/us/politics/nebraska-blue-dot-democrats-house.html
 
