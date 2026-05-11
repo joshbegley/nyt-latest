@@ -22,7 +22,7 @@ https://www.nytimes.com/interactive/2026/05/11/us/25a-application-for-stay.html
 `State officials asked the justices to overturn a Virginia Supreme Court decision that struck down a congressional map, a major defeat for Democrats.`\
 https://www.nytimes.com/2026/05/11/us/politics/supreme-court-virginia-redistricting.html
 
-**Putin Said the War ‘Is Coming to a Close.’ But That’s Not All He Said.**\
+**Putin Said the War ‘Is Coming to a Close.’ but That’s Not All He Said.**\
 `The Russian leader is walking a tightrope: acknowledging public discontent while offering no indication that he might give up on his demands.`\
 https://www.nytimes.com/2026/05/11/world/europe/putin-russia-ukraine-war.html
 

@@ -1,3 +1,11 @@
+**Why Republicans Are Still Drawing House Maps, While Democrats Are Stuck**\
+`The G.O.P. has seized an edge on redistricting thanks to two court rulings, and it has more room to maneuver for extra seats before the midterms.`\
+https://www.nytimes.com/2026/05/11/us/politics/redistricting-republicans-democrats.html
+
+**Dean Buntrock, Maestro of Waste Management, Dies at 94**\
+`Anticipating how the environmental movement would affect trash disposal in the United States, he built a 12-truck garbage company into a coast-to-coast behemoth.`\
+https://www.nytimes.com/2026/05/11/business/dean-buntrock-dead.html
+
 **Israel Prepares to Prosecute First Suspects in Oct. 7 Attack Led by Hamas**\
 `Parliament passed a new law that paves the way for military trials for hundreds of Palestinians suspected of taking part in the 2023 attack that ignited the two-year war in Gaza.`\
 https://www.nytimes.com/2026/05/11/world/middleeast/israel-oct-7-prosecutions-palestinians-trial.html

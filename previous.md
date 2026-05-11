@@ -1,3 +1,11 @@
+**Why Republicans Are Still Drawing House Maps, While Democrats Are Stuck**\
+`The G.O.P. has seized an edge on redistricting thanks to two court rulings, and it has more room to maneuver for extra seats before the midterms.`\
+https://www.nytimes.com/2026/05/11/us/politics/redistricting-republicans-democrats.html
+
+**Dean Buntrock, Maestro of Waste Management, Dies at 94**\
+`Anticipating how the environmental movement would affect trash disposal in the United States, he built a 12-truck garbage company into a coast-to-coast behemoth.`\
+https://www.nytimes.com/2026/05/11/business/dean-buntrock-dead.html
+
 **Israel Prepares to Prosecute First Suspects in Oct. 7 Attack Led by Hamas**\
 `Parliament passed a new law that paves the way for military trials for hundreds of Palestinians suspected of taking part in the 2023 attack that ignited the two-year war in Gaza.`\
 https://www.nytimes.com/2026/05/11/world/middleeast/israel-oct-7-prosecutions-palestinians-trial.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/video/world/africa/100000010896100/us-army-soldier-body-
 **Officials Identify Mexican Woman Among 6 Found Dead in Laredo Train Car**\
 `Officials in Laredo, Texas, said at least one of the six people found inside the Union Pacific Railroad boxcar was from Mexico as investigators worked to identify the others.`\
 https://www.nytimes.com/2026/05/11/us/laredo-train-boxcar-deaths-investigation.html
-
-**How The Times Covers Trump’s Social Media**\
-`Patrick Healy, an assistant managing editor, explains how The Times reports on social media posts by the president that can be erratic and even profane, but are often consequential.`\
-https://www.nytimes.com/video/insider/100000010896107/how-the-times-covers-trumps-social-media.html
-
-**Chief Executives to Accompany Trump to China**\
-`The delegation includes business leaders across a wide range of industries, including Tim Cook of Apple and Elon Musk of Tesla.`\
-https://www.nytimes.com/2026/05/11/us/politics/trump-china-musk-cook.html
 
