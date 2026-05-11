@@ -1,3 +1,11 @@
+**Arizona Fifth Congressional District 2026: Latest Polls**\
+`Track the latest polls in Arizona's 5th Congressional District.`\
+https://www.nytimes.com/interactive/polls/arizona-us-house-5-polls-2026.html
+
+**Facing the Reality of Cellphones in School**\
+`Readers discuss the effects of cellphone bans in school and screen time limits. Also: Close “Alligator Alcatraz”; President Trump’s vulgar language.`\
+https://www.nytimes.com/2026/05/11/opinion/cellphone-ban-school.html
+
 **U.S. Army Recovers Body of Soldier Who Went Missing During Military Exercises in Morocco**\
 `The remains of First Lt. Kendrick Lamont Key Jr. were found in Morocco after he and another soldier went missing while on a hike at a training range. The search continued for the other missing service member.`\
 https://www.nytimes.com/video/world/africa/100000010896100/us-army-soldier-body-morocco.html
