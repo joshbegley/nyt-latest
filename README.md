@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/05/11/us/politics/supreme-court-abortion-pill-mifepristone.html
 
 **Read Virginia Officials’ Emergency Application to the Supreme Court**\
-`Democratic leaders in Virginia asked the U.S. Supreme Court to allow the state to use a congressional map drawn by Democrats and approved by voters but which the state Supreme Court had struck down.`\
+`Democratic leaders in Virginia asked the U.S. Supreme Court to allow the state to use a congressional map drawn by Democrats and approved by voters that the state Supreme Court had struck down.`\
 https://www.nytimes.com/interactive/2026/05/11/us/25a-application-for-stay.html
 
 **Virginia Officials Ask Supreme Court to Restore Voting Map Drawn by Democrats**\
