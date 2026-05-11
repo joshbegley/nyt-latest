@@ -1,3 +1,7 @@
+**Kennedy Is Driving a Vast Inquiry Into Vaccines, Despite His Public Silence**\
+`Health Secretary Robert F. Kennedy Jr. has toned down his public criticism of vaccines, under orders from the White House. But inside his department, a sprawling research effort is a top priority.`\
+https://www.nytimes.com/2026/05/11/health/kennedy-vaccine-safety.html
+
 **Trump Proposes Suspending Federal Gas Tax Until Prices Fall**\
 `Congress would have to agree to any suspension, and dropping federal taxes would not make up for the steep increase in prices since the war began.`\
 https://www.nytimes.com/2026/05/11/us/politics/trump-gas-tax.html
