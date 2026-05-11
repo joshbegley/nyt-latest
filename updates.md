@@ -1,3 +1,7 @@
+**American Passengers Exposed to Hantavirus Land in the U.S.**\
+`The passengers will be monitored in Omaha at the country’s only federally funded quarantine center.`\
+https://www.nytimes.com/2026/05/10/us/americans-hantavirus-ship-return-nebraska.html
+
 **The Astounding Discovery That Could Link Eastern and Western Medicine**\
 `The detection of another circulatory system in the human body could have enormous scientific implications.`\
 https://www.nytimes.com/interactive/2026/05/11/magazine/interstitium-anatomy-acupuncture-medicine.html
