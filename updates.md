@@ -1,3 +1,11 @@
+**Chief Executives to Accompany Trump to China**\
+`The delegation includes business leaders across a wide range of industries, including Tim Cook of Apple and Elon Musk of Tesla.`\
+https://www.nytimes.com/2026/05/11/us/politics/trump-china-musk-cook.html
+
+**Trump rechaza la nueva propuesta de Irán y prolonga el limbo en Medio Oriente**\
+`Estados Unidos e Irán han estado discutiendo una prórroga de 30 días de su alto al fuego y una reapertura del estrecho de Ormuz.`\
+https://www.nytimes.com/es/2026/05/11/espanol/estados-unidos/trump-propuesta-iran-paz.html
+
 **Rising Housing Costs Keep First-Time Buyers on the Sidelines**\
 `The effects of the war in Iran have raised mortgage rates and lowered consumer confidence, making it even harder for house hunters.`\
 https://www.nytimes.com/2026/05/11/business/housing-costs-first-time-buyers.html
