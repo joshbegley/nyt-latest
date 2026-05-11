@@ -1,3 +1,11 @@
+**Trump Proposes Suspending Federal Gas Tax Until Prices Fall**\
+`Congress would have to agree to any suspension, and dropping federal taxes would not make up for the steep increase in prices since the war began.`\
+https://www.nytimes.com/2026/05/11/us/politics/trump-gas-tax.html
+
+**La cumbre Trump-Xi despierta temores en las potencias medias**\
+`A las naciones asiáticas les preocupa que el presidente de EE. UU. pueda sacrificar compromisos de seguridad por mejores condiciones económicas con China.`\
+https://www.nytimes.com/es/2026/05/11/espanol/mundo/cumbre-trump-xi.html
+
 **Kennedy Is Driving a Vast Inquiry Into Vaccines, Despite His New Silence on the Issue**\
 `Health Secretary Robert F. Kennedy Jr. has toned down his public criticism of vaccines, under orders from the White House. But inside his department, a sprawling research effort is a top priority.`\
 https://www.nytimes.com/2026/05/11/health/kennedy-vacccine-safety.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/11/arts/television/kevin-hart-netflix-roast-joke
 **Body of U.S. Soldier Is Found Off the Coast of Morocco**\
 `First Lt. Kendrick Lamont Key Jr., 27, of Richmond, Va., was said to be on a hike at a training range when he disappeared. A second service member is still missing.`\
 https://www.nytimes.com/2026/05/11/us/us-soldiers-missing-morocco-body-found.html
-
-**Today, In Short**\
-`The top restaurants in New York. “Yesteryear.” And maternal wisdom.`\
-https://www.nytimes.com/2026/05/11/briefing/today-in-short.html
-
-**Man Charged With Assassination Attempt at Press Gala Pleads Not Guilty**\
-`Cole Tomas Allen faces four counts in what prosecutors say was a plot to kill President Trump and other top officials at the White House Correspondents’ Association dinner.`\
-https://www.nytimes.com/2026/05/11/us/politics/correspondents-dinner-gunman-not-guilty-plea.html
 

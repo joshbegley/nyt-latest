@@ -1,3 +1,7 @@
+**Kennedy Is Driving a Vast Inquiry Into Vaccines, Despite His New Silence on the Issue**\
+`Health Secretary Robert F. Kennedy Jr. has toned down his public criticism of vaccines, under orders from the White House. But inside his department, a sprawling research effort is a top priority.`\
+https://www.nytimes.com/2026/05/11/health/kennedy-vacccine-safety.html
+
 **Arizona Fifth Congressional District 2026: Latest Polls**\
 `Track the latest polls in Arizona's 5th Congressional District.`\
 https://www.nytimes.com/interactive/polls/arizona-us-house-5-polls-2026.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/11/briefing/today-in-short.html
 **Man Charged With Assassination Attempt at Press Gala Pleads Not Guilty**\
 `Cole Tomas Allen faces four counts in what prosecutors say was a plot to kill President Trump and other top officials at the White House Correspondents’ Association dinner.`\
 https://www.nytimes.com/2026/05/11/us/politics/correspondents-dinner-gunman-not-guilty-plea.html
-
-**Buy Less Gold and Skip Foreign Trips, Modi Urges Indians**\
-`Under pressure from the economic fallout of the war in Iran and politically emboldened, Prime Minister Narendra Modi asks Indians to sacrifice.`\
-https://www.nytimes.com/2026/05/11/world/asia/modi-indians-gold-weddings-fuel-economy-iran.html
 

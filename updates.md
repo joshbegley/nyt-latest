@@ -1,3 +1,7 @@
+**Kennedy Is Driving a Vast Inquiry Into Vaccines, Despite His New Silence on the Issue**\
+`Health Secretary Robert F. Kennedy Jr. has toned down his public criticism of vaccines, under orders from the White House. But inside his department, a sprawling research effort is a top priority.`\
+https://www.nytimes.com/2026/05/11/health/kennedy-vacccine-safety.html
+
 **Arizona Fifth Congressional District 2026: Latest Polls**\
 `Track the latest polls in Arizona's 5th Congressional District.`\
 https://www.nytimes.com/interactive/polls/arizona-us-house-5-polls-2026.html
