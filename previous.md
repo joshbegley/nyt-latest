@@ -1,3 +1,27 @@
+**The Iran War’s Alarming Ripple Effects**\
+`The downstream effects of the Iran war are only beginning. On “The Opinions,” David Wallace-Wells explains how disruptions tied to fertilizer, condoms and other global goods could contribute to famine, disease and rising costs worldwide.`\
+https://www.nytimes.com/video/opinion/100000010889365/the-iran-wars-alarming-ripple-effects.html
+
+**Zelensky’s Former Top Aide Formally Accused in Corruption Investigation**\
+`Ukrainian news outlets named the suspect as Andriy Yermak, who resigned last year amid a sweeping scandal.`\
+https://www.nytimes.com/2026/05/11/world/europe/ukraine-corruption-yermak-zelensky.html
+
+**El crucero afectado por un brote de hantavirus zarpa hacia Europa continental**\
+`Los últimos evacuados desembarcaron en las islas Canarias, y una tripulación más reducida se dirige ahora a Rotterdam, donde se desinfectará el barco, dijeron las autoridades.`\
+https://www.nytimes.com/es/2026/05/11/espanol/mundo/hantavirus-crucero-islas-canarias-paises-bajos.html
+
+**How Democratic Divisions Are Playing Out in New York**\
+`Establishment and left-wing leaders are clashing over House seats scattered across the city.`\
+https://www.nytimes.com/2026/05/11/us/politics/nyc-midterms-elections-democrats.html
+
+**Colombians Are Fighting Over the Fate of Escobar’s Hippos**\
+`Colombia is facing pushback over its plan to cull wild hippos, which are descendants of the drug kingpin Pablo Escobar’s personal pets. The hippos, which are native to Africa, have threatened local wildlife and human populations.`\
+https://www.nytimes.com/video/world/americas/100000010896242/colombia-hippos-pablo-escobar.html
+
+**Cost to Repair Reflecting Pool Increases to $13.1 Million**\
+`The cost to repair the Lincoln Memorial Reflecting Pool is now over seven times more than what President Trump initially said, according to federal records.`\
+https://www.nytimes.com/video/us/100000010896694/lincoln-memorial-pool-repairs-trump.html
+
 **Trump Nominates Ousted FEMA Leader to Run the Agency Again**\
 `President Trump chose Cameron Hamilton to direct federal disaster response. As acting head of FEMA last year, he had opposed abolishing the agency and was ousted.`\
 https://www.nytimes.com/2026/05/11/climate/trump-fema-cameron-hilton.html
@@ -53,28 +77,4 @@ https://www.nytimes.com/2026/05/11/world/europe/putin-russia-ukraine-war.html
 **Trump Administration to Scrap Rule That Elevated Land Conservation**\
 `The Biden-era measure was intended to protect millions of acres from industrial development and the effects of climate change.`\
 https://www.nytimes.com/2026/05/11/climate/public-land-rule-repeal.html
-
-**Cruise Ship Hit by Hantavirus Outbreak Sails for European Mainland**\
-`The last evacuees disembarked in the Canary Islands, and a smaller crew is now en route to Rotterdam, where the ship will be disinfected, officials said.`\
-https://www.nytimes.com/2026/05/11/world/europe/hantavirus-cruise-ship-canary-islands.html
-
-**Alabama Opens Its Own Investigation Into the Southern Poverty Law Center**\
-`The law center, based in Montgomery, has drawn the ire of conservatives in recent years. Last month, the Justice Department charged the group with financial crimes.`\
-https://www.nytimes.com/2026/05/11/us/alabama-investigation-southern-poverty-law-center.html
-
-**Black People Won a Voice in This County. The Voting Case May Silence It.**\
-`Black residents, who make up 25 percent of Fayette County, Tenn., won a new electoral map last year to change an all-white board of commissioners. They worry the Supreme Court’s ruling could threaten that.`\
-https://www.nytimes.com/2026/05/11/us/fayette-county-tennessee-voting-rights.html
-
-**I Ran the N.S.A. This Is How to Defeat China’s Hacker Army.**\
-`Beijing has hacked America, but we have all the tools we need to fight back.`\
-https://www.nytimes.com/2026/05/11/opinion/international-world/i-ran-the-nsa-this-is-how-to-defeat-chinas-hacker-army.html
-
-**How Much Art Is Too Much? A Guide to the New York Fairs.**\
-`Latin American galleries. World-class photography. Upcycled design. Art fairs will take over New York this week. Here are seven (of many) worth a visit.`\
-https://www.nytimes.com/2026/05/11/arts/design/new-york-art-fairs-frieze-preview.html
-
-**Trump Proposes Suspending Federal Gas Tax Until Prices Fall**\
-`Congress would have to agree to any suspension, and dropping federal taxes would not make up for the steep increase in prices since the war began.`\
-https://www.nytimes.com/2026/05/11/us/politics/trump-gas-tax.html
 
