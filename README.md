@@ -30,7 +30,7 @@ https://www.nytimes.com/2026/05/11/business/dealbook/carried-interest-tax-privat
 `The pop star is suing the electronics giant for more than $15 million, accusing it of using her image without authorization.`\
 https://www.nytimes.com/2026/05/11/us/dua-lipa-samsung-lawsuit.html
 
-**Wordle to Become Primetime TV Show, With Savannah Guthrie as Host**\
+**Wordle to Become Prime-Time TV Show, With Savannah Guthrie as Host**\
 `The word puzzle published by The New York Times is the inspiration for a game show that will begin airing next year. Jimmy Fallon is a producer.`\
 https://www.nytimes.com/2026/05/11/business/media/wordle-nbc-savannah-guthrie.html
 
