@@ -1,3 +1,7 @@
+**Word of the Day: palpable**\
+`This word has appeared in 296 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/05/11/learning/word-of-the-day-palpable.html
+
 **¿Qué es el trastorno dismórfico corporal?**\
 `Este padecimiento mental hace que las personas pasen un tiempo excesivo preocupadas por su aspecto, pero va más allá de la vanidad.`\
 https://www.nytimes.com/es/2026/05/11/espanol/trastorno-dismorfico-corporal.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/world/europe/100000010894758/passengers-and-crew-a
 **A One-Party India**\
 `A recent victory in a key state has put Narendra Modi at the helm of a country in which opponents hold almost no power.`\
 https://www.nytimes.com/2026/05/10/world/india-modi-elections-trump-iran-proposal.html
-
-**Abraham Foxman, Warrior Against Antisemitism, Dies at 86**\
-`For almost three decades, he led the Anti-Defamation League, winning access to presidents and prime ministers and meeting with Pope John Paul II.`\
-https://www.nytimes.com/2026/05/10/obituaries/abraham-foxman-dead.html
 

@@ -1,3 +1,7 @@
+**Word of the Day: palpable**\
+`This word has appeared in 296 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/05/11/learning/word-of-the-day-palpable.html
+
 **¿Qué es el trastorno dismórfico corporal?**\
 `Este padecimiento mental hace que las personas pasen un tiempo excesivo preocupadas por su aspecto, pero va más allá de la vanidad.`\
 https://www.nytimes.com/es/2026/05/11/espanol/trastorno-dismorfico-corporal.html
