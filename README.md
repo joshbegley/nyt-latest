@@ -1,3 +1,19 @@
+**No Corrections: May 11, 2026**\
+`No corrections appeared in print on Monday, May 11, 2026.`\
+https://www.nytimes.com/2026/05/11/pageoneplus/no-corrections-may-11-2026.html
+
+**Después de la captura de Maduro por EE. UU., ¿los migrantes de Venezuela regresarán a casa?**\
+`Las terribles condiciones en Venezuela provocaron un éxodo. Tras el atentado que derrocó a su máximo dirigente, la cuestión es si las cosas han cambiado lo suficiente como para que el retorno resulte atractivo.`\
+https://www.nytimes.com/es/2026/05/11/espanol/america-latina/migrantes-venezuela-regreso.html
+
+**Google Says Criminal Hackers Used A.I. to Find a Major Software Flaw**\
+`The company said that it had identified, for the first time, hackers using artificial intelligence to discover an unknown bug. The attempted attack represents “a taste of what’s to come,” one expert said.`\
+https://www.nytimes.com/2026/05/11/us/politics/google-hackers-attack-ai.html
+
+**A Fish That Hitches Rides Where the Sun Doesn’t Shine**\
+`The remora often latches on to the exteriors of larger marine creatures. But sometimes it travels in a more intrusive spot: inside a manta ray’s backside.`\
+https://www.nytimes.com/2026/05/11/science/a-fish-that-hitches-rides-where-the-sun-doesnt-shine.html
+
 **Britain Will Nationalize Its Last Major Steel Mill, Prime Minister Says**\
 `Keir Starmer, with thousands of jobs at stake, vowed to take full control of British Steel, a year after the government first intervened to keep its operations going.`\
 https://www.nytimes.com/2026/05/11/business/british-steel-nationalize-keir-starmer.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/05/11/health/hiv-infusion-immunotherapy.html
 **Connections Companion No. 1,066**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, May 12, 2026.`\
 https://www.nytimes.com/2026/05/11/crosswords/connections-companion-1066.html
-
-**Strands Sidekick No. 800**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, May 12, 2026.`\
-https://www.nytimes.com/2026/05/11/crosswords/strands-sidekick-800.html
-
-**Wordle Review No. 1,788**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, May 12, 2026.`\
-https://www.nytimes.com/2026/05/11/crosswords/wordle-review-1788.html
-
-**Here’s the latest.**\
-``\
-https://www.nytimes.com/live/2026/05/11/world/iran-war-trump-hormuz/heres-the-latest
-
-**Starmer Promises Urgent Change as He Battles to Save Premiership**\
-`Prime Minister Keir Starmer of Britain used a speech to attempt to quell a mutiny in the Labour Party after last week’s dire election results.`\
-https://www.nytimes.com/2026/05/11/world/europe/starmer-speech-uk-labour.html
 
