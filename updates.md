@@ -1,3 +1,7 @@
+**How The Times Covers Trump’s Social Media**\
+`Patrick Healy, an assistant managing editor, explains how The Times reports on social media posts by the president that can be erratic and even profane, but are often consequential.`\
+https://www.nytimes.com/video/insider/100000010896107/how-the-times-covers-trumps-social-media.html
+
 **Chief Executives to Accompany Trump to China**\
 `The delegation includes business leaders across a wide range of industries, including Tim Cook of Apple and Elon Musk of Tesla.`\
 https://www.nytimes.com/2026/05/11/us/politics/trump-china-musk-cook.html

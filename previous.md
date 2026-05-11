@@ -1,3 +1,7 @@
+**How The Times Covers Trump’s Social Media**\
+`Patrick Healy, an assistant managing editor, explains how The Times reports on social media posts by the president that can be erratic and even profane, but are often consequential.`\
+https://www.nytimes.com/video/insider/100000010896107/how-the-times-covers-trumps-social-media.html
+
 **Chief Executives to Accompany Trump to China**\
 `The delegation includes business leaders across a wide range of industries, including Tim Cook of Apple and Elon Musk of Tesla.`\
 https://www.nytimes.com/2026/05/11/us/politics/trump-china-musk-cook.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/11/technology/courtroom-circus-elon-musk-sam-alt
 **Already Facing a Challenge, a Republican Is Accused of Self-Dealing**\
 `Several entities tied to Representative Mike Lawler, New York’s most endangered House Republican, paid a political consulting firm he once owned, raising ethics concerns.`\
 https://www.nytimes.com/2026/05/11/nyregion/mike-lawler-money-campaign-finance.html
-
-**Reflecting Pool Repairs to Cost $13.1 Million. Trump Had Promised $1.8 Million.**\
-`The Interior Department added $6.2 million to the no-bid contract for repairs to the Lincoln Memorial pool late last week.`\
-https://www.nytimes.com/2026/05/11/us/politics/reflecting-pool-paint-contract-trump.html
 
