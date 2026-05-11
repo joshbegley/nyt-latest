@@ -1,3 +1,11 @@
+**Britain Will Nationalize Its Last Major Steel Mill, Prime Minister Says**\
+`Keir Starmer, with thousands of jobs at stake, vowed to take full control of British Steel, a year after the government first intervened to keep its operations going.`\
+https://www.nytimes.com/2026/05/11/business/british-steel-nationalize-keir-starmer.html
+
+**Iran defends its demands after Trump’s rejection.**\
+``\
+https://www.nytimes.com/live/2026/05/11/world/iran-war-trump-hormuz/iran-defends-its-demands-after-trumps-rejection
+
 **Private Equity’s New Tax Fight**\
 `Estimates by researchers at Yale found that closing the carried interest loophole could lead to billions more in tax revenues than previously estimated.`\
 https://www.nytimes.com/2026/05/11/business/dealbook/carried-interest-tax-private-equity.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/live/2026/05/11/world/iran-war-trump-hormuz/heres-the-la
 **Starmer Promises Urgent Change as He Battles to Save Premiership**\
 `Prime Minister Keir Starmer of Britain used a speech to attempt to quell a mutiny in the Labour Party after last week’s dire election results.`\
 https://www.nytimes.com/2026/05/11/world/europe/starmer-speech-uk-labour.html
-
-**Por qué es importante la cumbre entre Trump y Xi, aunque parezca que no dará muchos frutos**\
-`Se espera que la guerra en Irán, el comercio, la inteligencia artificial y Taiwán estén en el orden del día. Pero las expectativas son moderadas.`\
-https://www.nytimes.com/es/2026/05/11/espanol/mundo/cumbre-trump-xi-china.html
-
-**Film Club: ‘How Ejae of ‘KPop Demon Hunters’ Overcame Rejection and Found Stardom’**\
-`What can we learn from her journey about the joys and challenges of becoming a K-pop idol?`\
-https://www.nytimes.com/2026/05/11/learning/film-club-how-ejae-of-kpop-demon-hunters-overcame-rejection-and-found-stardom.html
 
