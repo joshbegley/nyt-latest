@@ -1,3 +1,11 @@
+**Can the U.S. Rein in Prediction Markets?**\
+`Full episode #193`\
+https://www.nytimes.com/video/podcasts/100000010893412/can-the-us-rein-in-prediction-markets.html
+
+**The Horror of Sexual Assault in Israeli Prisons**\
+`Sexual violence by Israeli forces against Palestinians is widespread, according to new reports and harrowing first-hand accounts. The Opinion columnist Nicholas Kristof details a pattern of systemic abuse and “unrestrained power” within Israeli detention centers that challenges the moral silence of the international community.`\
+https://www.nytimes.com/video/opinion/100000010886586/the-horror-of-sexual-assault-in-israeli-prisons.html
+
 **On ‘The Pitt,’ She Clocked Out on Time. In Real Life, It Started a Debate.**\
 `When Joy Kwon, a third-year medical student on TV, set a boundary, she stirred a work-life balance debate among medical professionals and fans.`\
 https://www.nytimes.com/2026/05/11/style/the-pitt-joy-kwon-irene-choi-work-life-balance.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/11/pageoneplus/no-corrections-may-11-2026.html
 **Después de la captura de Maduro por EE. UU., ¿los migrantes de Venezuela regresarán a casa?**\
 `Las terribles condiciones en Venezuela provocaron un éxodo. Tras el atentado que derrocó a su máximo dirigente, la cuestión es si las cosas han cambiado lo suficiente como para que el retorno resulte atractivo.`\
 https://www.nytimes.com/es/2026/05/11/espanol/america-latina/migrantes-venezuela-regreso.html
-
-**Google Says Criminal Hackers Used A.I. to Find a Major Software Flaw**\
-`The company said that it had identified, for the first time, hackers using artificial intelligence to discover an unknown bug. The attempted attack represents “a taste of what’s to come,” one expert said.`\
-https://www.nytimes.com/2026/05/11/us/politics/google-hackers-attack-ai.html
-
-**A Fish That Hitches Rides Where the Sun Doesn’t Shine**\
-`The remora often latches on to the exteriors of larger marine creatures. But sometimes it travels in a more intrusive spot: inside a manta ray’s backside.`\
-https://www.nytimes.com/2026/05/11/science/a-fish-that-hitches-rides-where-the-sun-doesnt-shine.html
 

@@ -1,6 +1,6 @@
 **On ‘The Pitt,’ She Clocked Out on Time. In Real Life, It Started a Debate.**\
 `When Joy Kwon, a third-year medical student on TV, set a boundary, she stirred a work-life balance debate among medical professionals and fans.`\
-https://www.nytimes.com/2026/05/11/style/the-pitt-joy-kwon-irene-choi-worklife-balance.html
+https://www.nytimes.com/2026/05/11/style/the-pitt-joy-kwon-irene-choi-work-life-balance.html
 
 **‘Uno, Dos, Uno!’: Under Dudamel, Classical Music Meets Salsa**\
 `Gustavo Dudamel brought the New York Philharmonic and the Spanish Harlem Orchestra together for the first time, at Lincoln Center and uptown.`\
