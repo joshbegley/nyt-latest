@@ -62,8 +62,8 @@ https://www.nytimes.com/2026/05/11/climate/trump-fema-cameron-hilton.html
 `The murkiness in the Strait of Hormuz reveals a darker side of global shipping: Some vessels don’t want to be found.`\
 https://www.nytimes.com/2026/05/11/world/strait-hormuz-spoofing-tankers-china-iran.html
 
-**Byron Allen to Buy a Controlling Stake in BuzzFeed**\
-`Jonah Peretti, BuzzFeed’s co-founder, will step down as chief executive and serve as its president of A.I.`\
+**Byron Allen Is Buying a Controlling Stake in BuzzFeed**\
+`Jonah Peretti, BuzzFeed’s co-founder 20 years ago, will step down as chief executive and serve as its president of A.I.`\
 https://www.nytimes.com/2026/05/11/business/media/buzzfeed-byron-allen.html
 
 **Nations Brace for Long-Term Economic Woes as Trump Calls Iran Truce Plan ‘Garbage’**\
