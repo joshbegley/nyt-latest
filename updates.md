@@ -1,3 +1,7 @@
+**Reflecting Pool Repairs to Cost $13.1 Million. Trump Had Promised $1.8 Million.**\
+`The Interior Department added $6.2 million to the no-bid contract for repairs to the Lincoln Memorial pool late last week.`\
+https://www.nytimes.com/2026/05/11/us/politics/reflecting-pool-paint-contract-trump.html
+
 **Body of U.S. Soldier Is Found Off the Coast of Morocco**\
 `First Lt. Kendrick Lamont Key Jr., 27, of Richmond, Va., was said to be on a hike at a training range when he disappeared. A second service member is still missing.`\
 https://www.nytimes.com/2026/05/11/us/us-soldiers-missing-morocco-body-found.html

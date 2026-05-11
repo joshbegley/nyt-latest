@@ -30,8 +30,8 @@ https://www.nytimes.com/2026/05/11/technology/courtroom-circus-elon-musk-sam-alt
 `Several entities tied to Representative Mike Lawler, New York’s most endangered House Republican, paid a political consulting firm he once owned, raising ethics concerns.`\
 https://www.nytimes.com/2026/05/11/nyregion/mike-lawler-money-campaign-finance.html
 
-**Reflecting Pool Repairs to Cost $13.1 Million. Trump Had Promised $1.8 million.**\
-`A no-bid contract for repairs to the Lincoln Memorial pool now costs $13.1 million, far more than the $1.8 million Mr. Trump initially said it would.`\
+**Reflecting Pool Repairs to Cost $13.1 Million. Trump Had Promised $1.8 Million.**\
+`The Interior Department added $6.2 million to the no-bid contract for repairs to the Lincoln Memorial pool late last week.`\
 https://www.nytimes.com/2026/05/11/us/politics/reflecting-pool-paint-contract-trump.html
 
 **Jailed Iranian Nobel Peace Prize Winner Is Transferred to Tehran Hospital**\
