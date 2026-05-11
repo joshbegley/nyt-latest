@@ -1,3 +1,11 @@
+**What Middle Powers Fear About the Trump-Xi Summit**\
+`Asian nations worry that the president might trade security commitments for better economic terms with China during his planned meeting with Xi Jinping this week.`\
+https://www.nytimes.com/2026/05/11/world/asia/trump-xi-china-summit-iran.html
+
+**Quote of the Day: Red Card of Black Card? Facing Fate at Thailand’s Draft Lottery.**\
+`Quotation of the day for Monday, May 11 2026.`\
+https://www.nytimes.com/2026/05/10/pageoneplus/quote-of-the-day-red-card-of-black-card-facing-fate-at-thailands-draft-lottery.html
+
 **‘The Comeback’ Season 3 Finale Recap: All’s Well?**\
 `Valerie makes the case that her tale is one of survival, not humiliation. “You’ve been telling the wrong story,” she tells Jane.`\
 https://www.nytimes.com/2026/05/10/arts/television/the-comeback-recap-season-3-episode-8-finale.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/video/world/middleeast/100000010894865/lebanese-family-k
 **Review: ‘The Receptionist’ Can’t Help You Today**\
 `A stale revival of Adam Bock’s cog-in-the-office-machine dark comedy lacks specificity and bite.`\
 https://www.nytimes.com/2026/05/10/theater/the-receptionist-review.html
-
-**Democratic Angst Could Lead California to Change Its Primary Rules**\
-`The prospect of Democrats getting shut out of the general election for governor has spurred an effort to eliminate the state’s “top-two” open primary approach.`\
-https://www.nytimes.com/2026/05/10/us/california-primary-rules-change-democrats.html
-
-**Is the Art Market Fair, Flawed or Game-able? Depends Who You Ask.**\
-`Three new books — a sweeping work of nonfiction, a cheeky memoir and a dual biography — provide divergent views on the business of buying and selling, and they are out just in time for New York Art Week.`\
-https://www.nytimes.com/2026/05/10/arts/design/books-art-market-2026.html
 
