@@ -1,3 +1,23 @@
+**Trump Nominates Ousted FEMA Leader to Run the Agency Again**\
+`President Trump chose Cameron Hamilton to direct federal disaster response. As acting head of FEMA last year, he had opposed abolishing the agency and was ousted.`\
+https://www.nytimes.com/2026/05/11/climate/trump-fema-cameron-hilton.html
+
+**Shady Shipping**\
+`The murkiness in the Strait of Hormuz reveals a darker side of global shipping: Some vessels don’t want to be found.`\
+https://www.nytimes.com/2026/05/11/world/strait-hormuz-spoofing-tankers-china-iran.html
+
+**Byron Allen to Buy a Controlling Stake in BuzzFeed**\
+`Jonah Peretti, BuzzFeed’s co-founder, will step down as chief executive and serve as its president of A.I.`\
+https://www.nytimes.com/2026/05/11/business/media/buzzfeed-byron-allen.html
+
+**Nations Brace for Long-Term Economic Woes as Trump Calls Iran Truce Plan ‘Garbage’**\
+`President Trump said the fragile cease-fire was on “life support,” and India’s leader urged residents to cut back on purchases and travel.`\
+https://www.nytimes.com/2026/05/11/world/middleeast/economic-woes-trump-iran-truce.html
+
+**En Colombia, los hipopótamos de Pablo Escobar dividen la opinión pública**\
+`El gobierno colombiano planea sacrificar una población de hipopótamos salvajes, descendientes de las mascotas del narcotraficante, y con ello ha dividido a un pueblo donde los hipopótamos son la principal atracción.`\
+https://www.nytimes.com/es/2026/05/11/espanol/america-latina/colombia-hipopotamos-pablo-escobar.html
+
 **Los pasajeros del crucero vinculado a un brote mortal de hantavirus han sido evacuados**\
 `Pasajeros y tripulantes abandonaron el barco tras fondear en Tenerife el domingo. Los pasajeros están siendo trasladados en avión a sus países de origen, dijeron las autoridades.`\
 https://www.nytimes.com/es/2026/05/11/espanol/mundo/hantavirus-crucero-islas-canarias-pasajeros.html

@@ -1,3 +1,23 @@
+**Trump Nominates Ousted FEMA Leader to Run the Agency Again**\
+`President Trump chose Cameron Hamilton to direct federal disaster response. As acting head of FEMA last year, he had opposed abolishing the agency and was ousted.`\
+https://www.nytimes.com/2026/05/11/climate/trump-fema-cameron-hilton.html
+
+**Shady Shipping**\
+`The murkiness in the Strait of Hormuz reveals a darker side of global shipping: Some vessels don’t want to be found.`\
+https://www.nytimes.com/2026/05/11/world/strait-hormuz-spoofing-tankers-china-iran.html
+
+**Byron Allen to Buy a Controlling Stake in BuzzFeed**\
+`Jonah Peretti, BuzzFeed’s co-founder, will step down as chief executive and serve as its president of A.I.`\
+https://www.nytimes.com/2026/05/11/business/media/buzzfeed-byron-allen.html
+
+**Nations Brace for Long-Term Economic Woes as Trump Calls Iran Truce Plan ‘Garbage’**\
+`President Trump said the fragile cease-fire was on “life support,” and India’s leader urged residents to cut back on purchases and travel.`\
+https://www.nytimes.com/2026/05/11/world/middleeast/economic-woes-trump-iran-truce.html
+
+**En Colombia, los hipopótamos de Pablo Escobar dividen la opinión pública**\
+`El gobierno colombiano planea sacrificar una población de hipopótamos salvajes, descendientes de las mascotas del narcotraficante, y con ello ha dividido a un pueblo donde los hipopótamos son la principal atracción.`\
+https://www.nytimes.com/es/2026/05/11/espanol/america-latina/colombia-hipopotamos-pablo-escobar.html
+
 **Los pasajeros del crucero vinculado a un brote mortal de hantavirus han sido evacuados**\
 `Pasajeros y tripulantes abandonaron el barco tras fondear en Tenerife el domingo. Los pasajeros están siendo trasladados en avión a sus países de origen, dijeron las autoridades.`\
 https://www.nytimes.com/es/2026/05/11/espanol/mundo/hantavirus-crucero-islas-canarias-pasajeros.html
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/05/11/arts/design/new-york-art-fairs-frieze-preview
 **Trump Proposes Suspending Federal Gas Tax Until Prices Fall**\
 `Congress would have to agree to any suspension, and dropping federal taxes would not make up for the steep increase in prices since the war began.`\
 https://www.nytimes.com/2026/05/11/us/politics/trump-gas-tax.html
-
-**La cumbre Trump-Xi despierta temores en las potencias medias**\
-`A las naciones asiáticas les preocupa que el presidente de EE. UU. pueda sacrificar compromisos de seguridad por mejores condiciones económicas con China.`\
-https://www.nytimes.com/es/2026/05/11/espanol/mundo/cumbre-trump-xi.html
-
-**Kennedy Is Driving a Vast Inquiry Into Vaccines, Despite His Public Silence**\
-`Health Secretary Robert F. Kennedy Jr. has toned down his public criticism of vaccines, under orders from the White House. But inside his department, a sprawling research effort is a top priority.`\
-https://www.nytimes.com/2026/05/11/health/kennedy-vaccine-safety.html
-
-**Arizona Fifth Congressional District 2026: Latest Polls**\
-`Track the latest polls in Arizona's 5th Congressional District.`\
-https://www.nytimes.com/interactive/polls/arizona-us-house-5-polls-2026.html
-
-**Facing the Reality of Cellphones in School**\
-`Readers discuss the effects of cellphone bans in school and screen time limits. Also: Close “Alligator Alcatraz”; President Trump’s vulgar language.`\
-https://www.nytimes.com/2026/05/11/opinion/cellphone-ban-school.html
-
-**U.S. Army Recovers Body of Soldier Who Went Missing During Military Exercises in Morocco**\
-`The remains of First Lt. Kendrick Lamont Key Jr. were found in Morocco after he and another soldier went missing while on a hike at a training range. The search continued for the other missing service member.`\
-https://www.nytimes.com/video/world/africa/100000010896100/us-army-soldier-body-morocco.html
 
