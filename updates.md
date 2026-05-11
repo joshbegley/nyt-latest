@@ -1,3 +1,7 @@
+**El Niño podría traer un adelanto de las temperaturas, y la vida, de 2035**\
+`El Niño que se está gestando este año podría hacer de 2027 el año más caluroso jamás registrado.`\
+https://www.nytimes.com/es/2026/05/11/espanol/opinion/el-nino-2027-temperaturas-futuro.html
+
 **It’s All Connected**\
 `We look into the body’s circulatory systems.`\
 https://www.nytimes.com/2026/05/11/briefing/body-systems-connected.html
