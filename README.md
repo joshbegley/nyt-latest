@@ -1,3 +1,7 @@
+**El Niño podría traer un adelanto de las temperaturas, y la vida, de 2035**\
+`El Niño que se está gestando este año podría hacer de 2027 el año más caluroso jamás registrado.`\
+https://www.nytimes.com/es/2026/05/11/espanol/opinion/el-nino-2027-temperaturas-futuro.html
+
 **It’s All Connected**\
 `We look into the body’s circulatory systems.`\
 https://www.nytimes.com/2026/05/11/briefing/body-systems-connected.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/11/us/politics/nsf-science-congress-trump.html
 **In Brooklyn, Finding a First Home Was Just the Beginning**\
 `A couple paid $2.5 million for a townhouse that needed a gut renovation. Eighteen months later, they were crazy about the result.`\
 https://www.nytimes.com/2026/05/11/realestate/brooklyn-townhouse-passive-home-renovation.html
-
-**He Created the Odeon. And Now He’s a Prizewinning Author.**\
-`Keith McNally won the Gotham Book Prize for his memoir, “I Regret Almost Everything.” It tells the story of his life in New York.`\
-https://www.nytimes.com/2026/05/11/nyregion/keith-mcnally-gotham-book-award.html
 
