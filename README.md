@@ -1,3 +1,7 @@
+**It’s All Connected**\
+`We look into the body’s circulatory systems.`\
+https://www.nytimes.com/2026/05/11/briefing/body-systems-connected.html
+
 **¿Vance o Rubio? Trump sopesa quién será su sucesor**\
 `Las apariciones recientes del vicepresidente JD Vance y el secretario de Estado Marco Rubio han generado nuevas especulaciones sobre una contienda por la candidatura presidencial republicana.`\
 https://www.nytimes.com/es/2026/05/11/espanol/estados-unidos/vance-rubio-sucesor-trump.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/11/realestate/brooklyn-townhouse-passive-home-re
 **He Created the Odeon. And Now He’s a Prizewinning Author.**\
 `Keith McNally won the Gotham Book Prize for his memoir, “I Regret Almost Everything.” It tells the story of his life in New York.`\
 https://www.nytimes.com/2026/05/11/nyregion/keith-mcnally-gotham-book-award.html
-
-**The Women of New Jersey’s Little India Have a Story to Tell**\
-`“Men Like Ours,” a novel by Bindu Bansinath, follows an immigrant family through a community crisis.`\
-https://www.nytimes.com/2026/05/11/books/review/bindu-bansinath-men-like-ours.html
 
