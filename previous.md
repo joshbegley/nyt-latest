@@ -1,3 +1,11 @@
+**Volodímir Zelenski comienza a distanciarse del gobierno de Trump**\
+`Con las conversaciones de paz congeladas y Ucrania ahora más autosuficiente, el presidente Volodímir Zelenski parece alejarse de EE. UU.`\
+https://www.nytimes.com/es/2026/05/12/espanol/mundo/zelenski-alejamiento-trump.html
+
+**La azotea en la que los Beatles tocaron juntos por última vez será un museo**\
+`El inmueble del número 3 de la calle Savile Row, donde el cuarteto también grabó el álbum “Let It Be” se abrirá al público el año que viene.`\
+https://www.nytimes.com/es/2026/05/12/espanol/cultura/beatles-ultimo-concierto-museo.html
+
 **Palabra del día: ‘remonstrate’**\
 `Esta palabra ha aparecido en un artículo de NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
 https://www.nytimes.com/es/2026/05/12/espanol/que-significa-remonstrate.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/12/business/china-semiconductor-ai-deepseek.html
 **The Altar Boy Who Refused to Hush Up**\
 `Michal Gatchalian dared to speak out against sexual abuse by a priest in the devoutly Catholic Philippines. He’s now a lawyer helping other victims.`\
 https://www.nytimes.com/2026/05/12/world/asia/philippines-catholic-church-sex-abuse.html
-
-**China Increasingly Views Trump’s America as an Empire in Decline**\
-`For decades, many Chinese viewed the United States with a mix of admiration, envy and resentment. President Trump’s volatile second term shattered that image.`\
-https://www.nytimes.com/2026/05/12/business/china-trump-xi-decline.html
-
-**Quote of the Day: What Asia Fears Most On Summit**\
-`Quotation of the Day for Wednesday, May 12, 2026.`\
-https://www.nytimes.com/2026/05/11/pageoneplus/quote-of-the-day-what-asia-fears-most-on-summit.html
 

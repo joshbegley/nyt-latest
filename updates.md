@@ -1,3 +1,11 @@
+**Volodímir Zelenski comienza a distanciarse del gobierno de Trump**\
+`Con las conversaciones de paz congeladas y Ucrania ahora más autosuficiente, el presidente Volodímir Zelenski parece alejarse de EE. UU.`\
+https://www.nytimes.com/es/2026/05/12/espanol/mundo/zelenski-alejamiento-trump.html
+
+**La azotea en la que los Beatles tocaron juntos por última vez será un museo**\
+`El inmueble del número 3 de la calle Savile Row, donde el cuarteto también grabó el álbum “Let It Be” se abrirá al público el año que viene.`\
+https://www.nytimes.com/es/2026/05/12/espanol/cultura/beatles-ultimo-concierto-museo.html
+
 **Palabra del día: ‘remonstrate’**\
 `Esta palabra ha aparecido en un artículo de NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
 https://www.nytimes.com/es/2026/05/12/espanol/que-significa-remonstrate.html
