@@ -1,3 +1,7 @@
+**Katie Porter on the California Forever Project**\
+`How would Katie Porter, a Democratic candidate for California governor, navigate the billionaire-backed California Forever project if elected? She discusses her approach with the Opinion columnist Ezra Klein during a live forum.`\
+https://www.nytimes.com/video/opinion/100000010897292/katie-porter-on-the-california-forever-project.html
+
 **Tom Steyer’s Plan to Fix Modular Housing**\
 `Why has modular housing failed to revolutionize the industry, despite decades of hype? Tom Steyer tells the Opinion columnist Ezra Klein why modular housing start-ups have failed and how California can use its scale to finally make home construction more affordable.`\
 https://www.nytimes.com/video/opinion/100000010897318/tom-steyers-plan-to-fix-modular-housing.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/world/americas/100000010896242/colombia-hippos-pab
 **Cost to Repair Reflecting Pool Increases to $13.1 Million**\
 `The cost to repair the Lincoln Memorial Reflecting Pool is now over seven times more than what President Trump initially said, according to federal records.`\
 https://www.nytimes.com/video/us/100000010896694/lincoln-memorial-pool-repairs-trump.html
-
-**Trump Nominates Ousted FEMA Leader to Run the Agency Again**\
-`President Trump chose Cameron Hamilton to direct federal disaster response. As acting head of FEMA last year, he had opposed abolishing the agency and was ousted.`\
-https://www.nytimes.com/2026/05/11/climate/trump-fema-cameron-hilton.html
 

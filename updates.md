@@ -1,3 +1,7 @@
+**Katie Porter on the California Forever Project**\
+`How would Katie Porter, a Democratic candidate for California governor, navigate the billionaire-backed California Forever project if elected? She discusses her approach with the Opinion columnist Ezra Klein during a live forum.`\
+https://www.nytimes.com/video/opinion/100000010897292/katie-porter-on-the-california-forever-project.html
+
 **Democrats Can’t Let This Antisemitic Sex Therapist Win Her Runoff**\
 `Maureen Galindo’s rise demonstrates how even justified rage and despair can curdle into hateful paranoia.`\
 https://www.nytimes.com/2026/05/11/opinion/maureen-galindo-antisemitic-conspiracies.html
