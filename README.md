@@ -1,3 +1,11 @@
+**Who Owns the Strait?**\
+`We take a look at the laws governing waterways.`\
+https://www.nytimes.com/2026/05/12/briefing/who-owns-the-strait.html
+
+**The Iran War Is Taking the Color Out of Japan’s Best-Known Snack Bags**\
+`The food giant Calbee said shortages of naphtha, a crude-oil derivative used in inks, were forcing it to switch to black-and-white packaging for its salty products.`\
+https://www.nytimes.com/2026/05/12/world/asia/calbee-japan-bags-iran-war.html
+
 **El turbio mundo del transporte marítimo**\
 `La opacidad que rodea al estrecho de Ormuz revela un lado oscuro del transporte marítimo mundial: algunos buques no quieren ser localizados.`\
 https://www.nytimes.com/es/2026/05/12/espanol/mundo/transporte-maritimo-estrecho-ormuz.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/12/us/politics/china-ai-anthropic-openai-mythos-
 **Getting New York’s Piers Ready for the ‘Semiquin’ on July 4**\
 `The city expects 45 tall ships from 20 nations for the 250th anniversary celebration. Where will they dock?`\
 https://www.nytimes.com/2026/05/12/nyregion/piers-july-4-semiquincentennial.html
-
-**YouTube Plays Matchmaker for Sponsors and Stars**\
-`The company is trying to help streaming influencers, who are increasingly being wooed by competitors like Netflix and TikTok.`\
-https://www.nytimes.com/2026/05/12/business/media/youtube-creators-advertisers.html
-
-**Start-Up Raises $1.3 Billion for an A.I. ‘Grid’**\
-`As tech giants dominate the hardware needed to build artificial intelligence, Amp hopes to create an alternative.`\
-https://www.nytimes.com/2026/05/12/technology/amp-startup.html
 
