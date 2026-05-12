@@ -1,3 +1,7 @@
+**Spain’s Leader Is Showing How to Stand Up to Trump, and So Much More**\
+`Pedro Sánchez has established an alternative governing philosophy to Trumpism.`\
+https://www.nytimes.com/2026/05/12/opinion/sanchez-trump-spain-europe.html
+
 **Robert Kennedy Jr. continúa su cruzada para investigar las vacunas**\
 `Kennedy lidera una intensa campaña para que científicos, y los contratistas federales de datos, analicen su teoría de que las vacunas impulsan una epidemia de enfermedades crónicas.`\
 https://www.nytimes.com/es/2026/05/12/espanol/estados-unidos/robert-kennedy-jr-vacunas.html
