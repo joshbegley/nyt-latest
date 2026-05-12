@@ -1,6 +1,6 @@
 **Kari Lake, Who Led Effort to Shutter Voice of America, Is Named Ambassador to Jamaica**\
 `Ms. Lake tried and failed to fire hundreds of Voice of America journalists and to cut funding for other federally funded news groups like Radio Free Europe/Radio Liberty.`\
-https://www.nytimes.com/2026/05/11/us/politics/kari-lake-who-led-effort-to-shutter-voice-of-america-is-named-ambassador-to-jamaica.html
+https://www.nytimes.com/2026/05/11/us/politics/kari-lake-jamaica-ambassador.html
 
 **Bezos Family Gives $100 Million for Preschool Education in New York**\
 `Free child care is one of Mayor Zohran Mamdani’s top goals. Now the Bezos Foundation is giving Robin Hood, a favorite philanthropy of wealthy New Yorkers, big money for early childhood education.`\
