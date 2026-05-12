@@ -1,3 +1,11 @@
+**What to know about the report.**\
+``\
+https://www.nytimes.com/live/2026/05/12/business/inflation-report-cpi/what-to-know-about-the-report
+
+**Inflation Accelerates After Weeks of War in Iran**\
+`The Consumer Price Index rose 3.8% in April from a year earlier as higher energy costs replaced tariffs as the driver of higher prices for Americans.`\
+https://www.nytimes.com/2026/05/12/business/economy/cpi-inflation-report-consumer-prices.html
+
 **A Racist Remark About Jeffries Sets Off Democratic Anger in Virginia**\
 `Representative Jen Kiggans, a Republican in a tough re-election fight, faced criticism after she agreed with comments by a local radio host that included a racist line about Hakeem Jeffries, the Democratic minority leader.`\
 https://www.nytimes.com/2026/05/12/us/politics/jen-kiggans-jeffries-cotton-picking-virginia.html
