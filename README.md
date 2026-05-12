@@ -1,3 +1,7 @@
+**China ve al EE. UU. de Trump como un imperio en decadencia**\
+`Durante décadas, Estados Unidos representó riqueza, sofisticación tecnológica y confianza institucional para muchos chinos. El volátil segundo mandato del presidente Trump hizo añicos esa imagen.`\
+https://www.nytimes.com/es/2026/05/12/espanol/negocios/china-ee-uu-trump-xi.html
+
 **EBay, the Old-School E-Commerce Site, Finds Its Place in Modern Retail**\
 `The online marketplace has remade itself by focusing on collectibles and other high-end goods — and attracted an unwelcome takeover bid from GameStop.`\
 https://www.nytimes.com/2026/05/12/business/ebay-gamestop-auction-turnaround.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/live/2026/05/12/world/uk-starmer/starmer-has-struggled-w
 **Leigh Magar, High-End Milliner Turned Indigo Artist, Dies at 57**\
 `She was known for bespoke hats that attracted a celebrity following. Then she left Charleston for an island off South Carolina, where she began cultivating indigo.`\
 https://www.nytimes.com/2026/05/12/arts/design/leigh-magar-dead.html
-
-**Pentagon Puts War Cost at $29 Billion as Hegseth Deflects on Funding**\
-`The estimate from the Defense Department’s top budget official was $4 billion higher than two weeks ago. Secretary Pete Hegseth declined to say when the administration would request extra money for the Iran conflict.`\
-https://www.nytimes.com/2026/05/12/us/politics/iran-war-cost-hegseth-congress.html
 

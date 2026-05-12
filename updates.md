@@ -1,3 +1,19 @@
+**EBay, the Old-School E-Commerce Site, Finds Its Place in Modern Retail**\
+`The online marketplace has remade itself by focusing on collectibles and other high-end goods — and attracted an unwelcome takeover bid from GameStop.`\
+https://www.nytimes.com/2026/05/12/business/ebay-gamestop-auction-turnaround.html
+
+**This is Sam Altman’s first time testifying in court.**\
+`The chief executive`\
+https://www.nytimes.com/live/2026/05/12/technology/openai-trial-sam-altman-elon-musk/this-is-sam-altmans-first-time-testifying-in-court
+
+**Hegseth to Accompany Trump on Trip to China**\
+`Defense secretaries have previously traveled with presidents on overseas trips, to provide advice and represent the U.S. military.`\
+https://www.nytimes.com/2026/05/12/us/politics/hegseth-trump-china-xi.html
+
+**Student Is Fatally Stabbed in University of Washington Housing Complex**\
+`Police officers responding to a call found the student dead in the laundry room of an off-campus residential building. Investigators are now searching for a suspect.`\
+https://www.nytimes.com/2026/05/12/us/university-of-washington-student-stabbing.html
+
 **Wildfires Strike Florida, Georgia and America’s ‘Wood Basket’**\
 `Large fires, fueled by a record breaking drought, have been destroying homes and timber plantations in Southeastern states.`\
 https://www.nytimes.com/2026/05/12/climate/wildfires-georgia-florida-timber-plantations.html
