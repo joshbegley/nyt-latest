@@ -1,3 +1,15 @@
+**Government Agents Chase Philippine Senator in Parliament**\
+`CCTV footage captured federal agents chasing Sen. Ronald ‘Bato’ dela Rosa of the Philippines, who enforced a war on drugs that killed thousands, throughout the nation’s parliament on Monday. He is under the Senate’s protection while facing an I.C.C. arrest warrant.`\
+https://www.nytimes.com/video/world/asia/100000010898047/philippines-senator-dela-rosa-icc-parliament.html
+
+**New Jersey 12th Congressional District 2026: Latest Polls**\
+`Track the latest polls in New Jersey's 12th Congressional District.`\
+https://www.nytimes.com/interactive/polls/new-jersey-us-house-12-polls-2026.html
+
+**What the Bond Markets Are Saying About Britain’s Politics and Economy**\
+`The yields on British debt pushed higher as the country’s prime minister, Keir Starmer, confronted a rebellion from members of his party.`\
+https://www.nytimes.com/2026/05/12/business/britain-bonds-gilts-keir-starmer.html
+
 **Justice Department Charges Shipowner in Baltimore Bridge Collapse**\
 `The criminal charges are the latest legal fallout after the 2024 crash, which killed six men who were working on the Key Bridge.`\
 https://www.nytimes.com/2026/05/12/us/baltimore-key-bridge-collapse-charges.html
@@ -46,8 +58,8 @@ https://www.nytimes.com/video/world/europe/100000010898223/keir-starmer-prime-mi
 `Steve Hilton, a Republican front-runner for governor, posted a video of his Del Taco order. Social media users accused him of misunderstanding the state’s Mexican food culture.`\
 https://www.nytimes.com/2026/05/12/us/california-candidate-steve-hilton-street-taco.html
 
-**What to know about the report.**\
-`The consumer price index increased X.X% in April from a year earlier as higher energy costs raised a range of prices for Americans.`\
+**Inflation Accelerates After Weeks of War in Iran**\
+`The Consumer Price Index rose 3.8% in April from a year earlier as higher energy costs replaced tariffs as the driver of higher prices for Americans.`\
 https://www.nytimes.com/live/2026/05/12/business/inflation-report-cpi/cpi-inflation-report-consumer-prices
 
 **Labour’s deep losses in local elections reflect a shift in the public mood.**\
@@ -62,19 +74,7 @@ https://www.nytimes.com/2026/05/12/business/dealbook/nadella-microsoft-openai-mu
 `After a warm winter that brought more rain than snow, the state’s snowpack was the lowest it has ever been.`\
 https://www.nytimes.com/2026/05/12/us/oregon-fire-season-drought-washington-idaho.html
 
-**Rex Reed, Film Critic Known for Acerbic Reviews, Dies at 87**\
-`He fawned over Old Hollywood stars and sparred with Frank Sinatra. Nora Ephron marveled at his ability to get his subjects to say the things they did.`\
-https://www.nytimes.com/2026/05/12/movies/rex-reed-dead.html
-
-**Gardening**\
-`Have you ever planted anything? If not, would you like to start?`\
-https://www.nytimes.com/2026/05/12/learning/gardening.html
-
-**Who Owns the Strait?**\
-`We take a look at the laws governing waterways.`\
-https://www.nytimes.com/2026/05/12/briefing/who-owns-the-strait.html
-
-**The Iran War Is Taking the Color Out of Japan’s Best-Known Snack Bags**\
-`The food giant Calbee said shortages of naphtha, a crude-oil derivative used in inks, were forcing it to switch to black-and-white packaging for its salty products.`\
-https://www.nytimes.com/2026/05/12/world/asia/calbee-japan-bags-iran-war.html
+**Watch Live: Pentagon Officials Testify Before Congress**\
+`Defense Secretary Pete Hegseth and Gen. Dan Caine, the chairman of the Joint Chiefs of Staff, testify before the Senate Appropriations subcommittee on defense.`\
+https://www.nytimes.com/video/embedded/world/middleeast/100000010898138/watch-live-pentagon-officials-testify-before-congress.html
 
