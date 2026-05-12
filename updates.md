@@ -1,3 +1,11 @@
+**6 Ways to See Rare Books in London**\
+`Here’s a guide to illuminated manuscripts, antique tomes and first editions around the British capital.`\
+https://www.nytimes.com/2026/05/12/arts/design/rare-books-london.html
+
+**Officials Raise Quality Concerns About Lincoln Memorial Reflecting Pool Repairs**\
+`Work on the iconic National Mall basin appears behind schedule. President Trump initially said he had picked the contractor, then said he did not know it.`\
+https://www.nytimes.com/2026/05/12/us/politics/lincoln-memorial-pool-repairs.html
+
 **N.Y.C. Hospital Is Subpoenaed Over Trans Youth Health Care**\
 `The action, initiated by the U.S. attorney’s office in North Texas, could set up a showdown between NYU Langone and the Justice Department.`\
 https://www.nytimes.com/2026/05/12/nyregion/nyu-langone-transgender-care-grand-jury.html
