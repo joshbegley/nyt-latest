@@ -1,3 +1,11 @@
+**Oregon Prepares for a Challenging Summer of Water Shortages and High Fire Risk**\
+`After a warm winter that brought more rain than snow, the state’s snowpack was the lowest it has ever been.`\
+https://www.nytimes.com/2026/05/12/us/oregon-fire-season-drought-washington-idaho.html
+
+**Rex Reed, Film Critic Known for Acerbic Reviews, Dies at 87**\
+`He fawned over Old Hollywood stars and sparred with Frank Sinatra. Nora Ephron marveled at his ability to get his subjects to say the things they did.`\
+https://www.nytimes.com/2026/05/12/movies/rex-reed-dead.html
+
 **Gardening**\
 `Have you ever planted anything? If not, would you like to start?`\
 https://www.nytimes.com/2026/05/12/learning/gardening.html
