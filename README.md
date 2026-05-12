@@ -1,3 +1,7 @@
+**La acción antes de la acción en el Mundial**\
+`Antes de que comience la Copa Mundial de la FIFA el 11 de junio, hay mucho que ver mientras las mayores estrellas del fútbol global llegan a Norteamérica.`\
+https://www.nytimes.com/es/2026/05/12/espanol/deportes/mundial-futbol-fifa-partidos-previos.html
+
 **What to know about the report.**\
 ``\
 https://www.nytimes.com/live/2026/05/12/business/inflation-report-cpi/what-to-know-about-the-report
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/12/business/economy/cpi-inflation-report-consume
 **Labour’s deep losses in local elections reflect a shift in the public mood.**\
 ``\
 https://www.nytimes.com/live/2026/05/12/world/uk-starmer/labours-deep-losses-in-local-elections-reflect-a-shift-in-the-public-mood
-
-**How Much Power Did Microsoft Have Over OpenAI?**\
-`The technology giant’s chief executive faced a grilling in court over whether it exerted too much control over what was meant to be an A.I. nonprofit.`\
-https://www.nytimes.com/2026/05/12/business/dealbook/nadella-microsoft-openai-musk-trial.html
 
