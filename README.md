@@ -1,3 +1,7 @@
+**Palabra del día: ‘remonstrate’**\
+`Esta palabra ha aparecido en un artículo de NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/05/12/espanol/que-significa-remonstrate.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/05/12/world/uk-starmer/heres-the-latest
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/12/business/china-trump-xi-decline.html
 **Quote of the Day: What Asia Fears Most On Summit**\
 `Quotation of the Day for Wednesday, May 12, 2026.`\
 https://www.nytimes.com/2026/05/11/pageoneplus/quote-of-the-day-what-asia-fears-most-on-summit.html
-
-**Judge Again Delays Guantánamo’s First Death-Penalty Terror Trial**\
-`The 2000 terrorism case has been going on for so long that the parents of fallen sailors and shipmates who survived the attack have died.`\
-https://www.nytimes.com/2026/05/11/us/politics/guantanamo-cole-death-penalty.html
 

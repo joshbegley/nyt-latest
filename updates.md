@@ -1,3 +1,23 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/05/12/world/uk-starmer/heres-the-latest
+
+**Deadly Gang Feud Left Bystander Paralyzed in Brooklyn**\
+`The police said 15 people were indicted after a series of shootings across Brooklyn that were linked to gang disputes. At least six people were injured and another was fatally shot.`\
+https://www.nytimes.com/2026/05/12/nyregion/brooklyn-gangs-deadly-shootings.html
+
+**A Text System Sent Safety Alerts to Private Schools. Now, It’s Silent.**\
+`New York City’s emergency management agency, which ran the alert network, said it needed to free up personnel to help translate messages for the World Cup.`\
+https://www.nytimes.com/2026/05/12/nyregion/nyc-emergency-alerts-schools.html
+
+**A Reporter Shares His Secrets to Covering the Cannes Film Festival**\
+`Kyle Buchanan, who has attended the annual launchpad for Oscar contenders in France since 2013, subsists on Red Bull and around four hours of sleep.`\
+https://www.nytimes.com/2026/05/12/insider/cannes-film-festival.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/12/crosswords/spelling-bee-forum.html
+
 **Stephen Colbert Hosts 4 of His ‘Best Television Friends’**\
 `Jimmy Kimmel, Jimmy Fallon, John Oliver and Seth Meyers, co-hosts of the Strike Force Five podcast along with Colbert, joined as guests on what is likely their last appearance together on the “Late Show.”`\
 https://www.nytimes.com/2026/05/12/arts/television/stephen-colbert-strike-force-five.html
