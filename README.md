@@ -1,3 +1,7 @@
+**Maker of Canvas Learning Platform Strikes Deal for Hackers to Return Data**\
+`Instructure, which provides Canvas software to thousands of schools and universities around the world, did not say what it had given the hackers in exchange for the stolen data.`\
+https://www.nytimes.com/2026/05/12/us/canvas-instructure-hackers-deal.html
+
 **Spain’s Leader Is Showing How to Stand Up to Trump, and So Much More**\
 `Pedro Sánchez has established an alternative governing philosophy to Trumpism.`\
 https://www.nytimes.com/2026/05/12/opinion/sanchez-trump-spain-europe.html
@@ -22,7 +26,7 @@ https://www.nytimes.com/es/2026/05/12/espanol/mundo/guerra-ucrania-putin-rusia.h
 `Beijing has called Taiwan the “core of China’s core interests.” Xi Jinping is likely to focus on getting President Trump to slow approval of more weapons for the self-governing island.`\
 https://www.nytimes.com/2026/05/12/world/asia/xi-trump-china-taiwan-arms-sales.html
 
-**Chinese A.I. Firms Push Beyond Nvidia as DeepSeek Turns to Huawei**\
+**China Seeks A.I. Independence, Weakening Trump’s Leverage**\
 `Before this week’s U.S.-Chinese summit, Beijing reached a milestone in its quest for technological self-sufficiency.`\
 https://www.nytimes.com/2026/05/12/business/china-semiconductor-ai-deepseek.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/11/pageoneplus/no-corrections-may-12-2026.html
 **San Jose’s Approach to Homelessness**\
 `San Jose’s mayor, Matt Mahan, tells the Opinion columnist Ezra Klein why California’s reliance on expensive, slow-moving affordable-housing projects has eroded public trust, and argues for a “radically pragmatic” shift toward interim housing and stricter encampment enforcement.`\
 https://www.nytimes.com/video/opinion/100000010897310/san-joses-approach-to-homelessness.html
-
-**California Mayor Will Plead Guilty to Working as Agent of China**\
-`Eileen Wang, who resigned Monday as the mayor of Arcadia, Calif., published propaganda on a purported news site under direction from Chinese officials, prosecutors said.`\
-https://www.nytimes.com/2026/05/11/us/arcadia-california-mayor-chinese-agent.html
 
