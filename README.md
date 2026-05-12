@@ -1,3 +1,7 @@
+**Trump Says Americans’ Economic Pain Is Not a Consideration for the Iran War**\
+`Asked whether Americans’ financial situation was motivating him to make a deal, President Trump said bluntly, “Not even a little bit.”`\
+https://www.nytimes.com/2026/05/12/us/politics/trump-iran-war-americans-economy.html
+
 **Conan O’Brien Will Return as Oscars Host**\
 `It will be the first time anyone has done the job for three straight years since Billy Crystal in the early 1990s.`\
 https://www.nytimes.com/2026/05/12/business/media/conan-obrien-oscars-host-2027.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-west-virginia-prim
 **A Dying Son, His Detained Parents and a Race to Reunite Before the End**\
 `From his hospital bed in Chicago, Kevin Gonzalez had a final wish to see his parents. But they were in immigration detention in Arizona after illegally crossing to see their son.`\
 https://www.nytimes.com/2026/05/12/us/teen-cancer-death-parents-immigration-detention.html
-
-**Michigan 10th Congressional District 2026: Latest Polls**\
-`Track the latest polls in Michigan's 10th Congressional District.`\
-https://www.nytimes.com/interactive/polls/michigan-us-house-10-polls-2026.html
 
