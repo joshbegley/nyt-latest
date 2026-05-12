@@ -1,3 +1,7 @@
+**Heated Exchange Between F.B.I. Director and Senator During Hearing**\
+`Senator Chris Van Hollen, Democrat of Maryland, questioned the director of the F.B.I., Kash Patel, about reports of excessive drinking and ordering polygraph tests for members of his team in a search for sources of leaks about him.`\
+https://www.nytimes.com/video/us/politics/100000010899941/kash-patel-senator-van-hollen-fight.html
+
 **Jason Collins, First Active N.B.A. Player to Come Out as Gay, Dies at 47**\
 `His achievements on the court were eclipsed by an essay he wrote in Sports Illustrated in 2013 in which he declared: “I’m a 34-year-old N.B.A. center. I’m Black and I’m gay.”`\
 https://www.nytimes.com/2026/05/12/us/jason-collins-dead.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/health/100000010896688/how-worried-should-we-be-ab
 **Secret Service Makes Case for Security Funding Amid G.O.P. Unease on Ballroom**\
 `The presidential protection agency detailed how it would use a proposed $1 billion as Republicans asked for more detail and Democrats went on the attack.`\
 https://www.nytimes.com/2026/05/12/us/politics/secret-service-ballroom.html
-
-**Pentagon Increases Iran War Cost Estimate to $29 billion**\
-`The Pentagon put the cost of the war in Iran at roughly $29 billion, during testimony by Defense Secretary Pete Hegseth at hearings on the Pentagon’s $1.5 trillion budget request. Mr. Hegseth repeatedly refused to tell lawmakers how much money he would request to fund the war.`\
-https://www.nytimes.com/video/us/politics/100000010899711/pentagon-iran-war-costs.html
 

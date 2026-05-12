@@ -1,3 +1,7 @@
+**Heated Exchange Between F.B.I. Director and Senator During Hearing**\
+`Senator Chris Van Hollen, Democrat of Maryland, questioned the director of the F.B.I., Kash Patel, about reports of excessive drinking and ordering polygraph tests for members of his team in a search for sources of leaks about him.`\
+https://www.nytimes.com/video/us/politics/100000010899941/kash-patel-senator-van-hollen-fight.html
+
 **Jason Collins, First Active N.B.A. Player to Come Out as Gay, Dies at 47**\
 `His achievements on the court were eclipsed by an essay he wrote in Sports Illustrated in 2013 in which he declared: “I’m a 34-year-old N.B.A. center. I’m Black and I’m gay.”`\
 https://www.nytimes.com/2026/05/12/us/jason-collins-dead.html
