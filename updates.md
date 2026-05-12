@@ -1,3 +1,15 @@
+**N.Y.C. Hospital Is Subpoenaed Over Trans Youth Health Care**\
+`The action, initiated by the U.S. attorney’s office in North Texas, could set up a showdown between NYU Langone and the Justice Department.`\
+https://www.nytimes.com/2026/05/12/nyregion/nyu-langone-transgender-care-grand-jury.html
+
+**The Rolling Stones, Very Early and Very Late**\
+`Listen to their 1963 debut through two tunes released just last week.`\
+https://www.nytimes.com/2026/05/12/arts/music/amplifier-newsletter-rolling-stones.html
+
+**F.D.A. Commissioner Marty Makary Resigns After Weeks of Pressure**\
+`The agency’s top food official will step in as acting commissioner, after Dr. Makary’s tumultuous run as the nation’s top food, drug, tobacco and medical device regulator.`\
+https://www.nytimes.com/2026/05/12/us/politics/trump-fires-fda-commissioner-makary.html
+
 **China ve al EE. UU. de Trump como un imperio en decadencia**\
 `Durante décadas, Estados Unidos representó riqueza, sofisticación tecnológica y confianza institucional para muchos chinos. El volátil segundo mandato del presidente Trump hizo añicos esa imagen.`\
 https://www.nytimes.com/es/2026/05/12/espanol/negocios/china-ee-uu-trump-xi.html

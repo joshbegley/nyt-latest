@@ -1,3 +1,15 @@
+**N.Y.C. Hospital Is Subpoenaed Over Trans Youth Health Care**\
+`The action, initiated by the U.S. attorney’s office in North Texas, could set up a showdown between NYU Langone and the Justice Department.`\
+https://www.nytimes.com/2026/05/12/nyregion/nyu-langone-transgender-care-grand-jury.html
+
+**The Rolling Stones, Very Early and Very Late**\
+`Listen to their 1963 debut through two tunes released just last week.`\
+https://www.nytimes.com/2026/05/12/arts/music/amplifier-newsletter-rolling-stones.html
+
+**F.D.A. Commissioner Marty Makary Resigns After Weeks of Pressure**\
+`The agency’s top food official will step in as acting commissioner, after Dr. Makary’s tumultuous run as the nation’s top food, drug, tobacco and medical device regulator.`\
+https://www.nytimes.com/2026/05/12/us/politics/trump-fires-fda-commissioner-makary.html
+
 **China ve al EE. UU. de Trump como un imperio en decadencia**\
 `Durante décadas, Estados Unidos representó riqueza, sofisticación tecnológica y confianza institucional para muchos chinos. El volátil segundo mandato del presidente Trump hizo añicos esa imagen.`\
 https://www.nytimes.com/es/2026/05/12/espanol/negocios/china-ee-uu-trump-xi.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/12/style/pope-leo-nikes.html
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/05/12/technology/openai-trial-sam-altman-elon-musk/heres-the-latest
-
-**Person Killed on Runway at Denver Airport Is Identified**\
-`The individual, a 41-year-old man, breached a fence at the airport on Friday minutes before being struck by a Frontier Airlines jet, officials said.`\
-https://www.nytimes.com/2026/05/12/us/frontier-denver-airport-fatality-identification.html
-
-**Starmer has struggled with the economy, the Mandelson scandal and other issues.**\
-``\
-https://www.nytimes.com/live/2026/05/12/world/uk-starmer/starmer-has-struggled-with-the-economy-the-mandelson-scandal-and-other-issues
-
-**Leigh Magar, High-End Milliner Turned Indigo Artist, Dies at 57**\
-`She was known for bespoke hats that attracted a celebrity following. Then she left Charleston for an island off South Carolina, where she began cultivating indigo.`\
-https://www.nytimes.com/2026/05/12/arts/design/leigh-magar-dead.html
 
