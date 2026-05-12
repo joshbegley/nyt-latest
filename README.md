@@ -1,3 +1,7 @@
+**Secret Service Makes Case for Security Funding Amid G.O.P. Unease on Ballroom**\
+`The presidential protection agency detailed how it would use a proposed $1 billion as Republicans asked for more detail and Democrats went on the attack.`\
+https://www.nytimes.com/2026/05/12/us/politics/secret-service-ballroom.html
+
 **Pentagon Increases Iran War Cost Estimate to $29 billion**\
 `The Pentagon put the cost of the war in Iran at roughly $29 billion, during testimony by Defense Secretary Pete Hegseth at hearings on the Pentagon’s $1.5 trillion budget request. Mr. Hegseth repeatedly refused to tell lawmakers how much money he would request to fund the war.`\
 https://www.nytimes.com/video/us/politics/100000010899711/pentagon-iran-war-costs.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/12/business/media/conan-obrien-oscars-host-2027.
 **See How Trump Is Renovating the Reflecting Pool**\
 `A rundown of the problems at the pool and what President Trump is trying to do to fix them.`\
 https://www.nytimes.com/2026/05/12/us/politics/trump-reflecting-pool-renovation.html
-
-**Day 1 in Quarantine: Tested for Hantavirus, Treated to Starbucks**\
-`Jake Rosmarin, a travel influencer from Boston, is one of 15 passengers from the virus-stricken cruise ship being monitored at the National Quarantine Unit in Nebraska.`\
-https://www.nytimes.com/2026/05/12/us/hantavirus-quarantine-nebraska-travel-influencer.html
 

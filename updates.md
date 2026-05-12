@@ -1,3 +1,11 @@
+**Pentagon Increases Iran War Cost Estimate to $29 billion**\
+`The Pentagon put the cost of the war in Iran at roughly $29 billion, during testimony by Defense Secretary Pete Hegseth at hearings on the Pentagon’s $1.5 trillion budget request. Mr. Hegseth repeatedly refused to tell lawmakers how much money he would request to fund the war.`\
+https://www.nytimes.com/video/us/politics/100000010899711/pentagon-iran-war-costs.html
+
+**Trump Administration Expected to Tap Longtime ICE Official to Lead Agency**\
+`David Venturella’s expected appointment is in line with a push by Markwayne Mullin, the homeland security secretary, to keep his department under the radar and out of headlines.`\
+https://www.nytimes.com/2026/05/12/us/politics/ice-david-venturella-trump.html
+
 **South Carolina Lawmakers Halt Redistricting Efforts**\
 `Some Republicans had worried that carving up the district held by Representative James E. Clyburn, the state’s only Democratic congressman, could backfire on them.`\
 https://www.nytimes.com/2026/05/12/us/south-carolina-redistricting-midterm-elections.html

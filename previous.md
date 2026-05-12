@@ -1,3 +1,11 @@
+**Pentagon Increases Iran War Cost Estimate to $29 billion**\
+`The Pentagon put the cost of the war in Iran at roughly $29 billion, during testimony by Defense Secretary Pete Hegseth at hearings on the Pentagon’s $1.5 trillion budget request. Mr. Hegseth repeatedly refused to tell lawmakers how much money he would request to fund the war.`\
+https://www.nytimes.com/video/us/politics/100000010899711/pentagon-iran-war-costs.html
+
+**Trump Administration Expected to Tap Longtime ICE Official to Lead Agency**\
+`David Venturella’s expected appointment is in line with a push by Markwayne Mullin, the homeland security secretary, to keep his department under the radar and out of headlines.`\
+https://www.nytimes.com/2026/05/12/us/politics/ice-david-venturella-trump.html
+
 **Inflation Accelerates as Iran War Drives Up Energy Costs**\
 `Also, Russia keeps attacking U.S. companies in Ukraine. Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/05/12/briefing/iran-war-costs-inflation.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/12/us/politics/trump-reflecting-pool-renovation.
 **Day 1 in Quarantine: Tested for Hantavirus, Treated to Starbucks**\
 `Jake Rosmarin, a travel influencer from Boston, is one of 15 passengers from the virus-stricken cruise ship being monitored at the National Quarantine Unit in Nebraska.`\
 https://www.nytimes.com/2026/05/12/us/hantavirus-quarantine-nebraska-travel-influencer.html
-
-**Musk Lawyer’s Question for Sam Altman on the Stand: Are You Trustworthy?**\
-`Mr. Altman, the C.E.O. of OpenAI, said on Tuesday that he worried Elon Musk wanted control of the A.I. lab.`\
-https://www.nytimes.com/2026/05/12/technology/sam-altman-openai-trial-elon-musk-lawyers.html
-
-**In Chicago, a Big Name Art Show Where the Drawings Dominate**\
-`In an exception to the usual paintings-heavy blockbuster exhibitions, the Art Institute of Chicago is presenting the masterful drawings of Willem de Kooning.`\
-https://www.nytimes.com/2026/05/12/arts/design/willem-de-kooning-drawings-chicago-art-institute.html
 
