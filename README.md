@@ -1,3 +1,7 @@
+**El turbio mundo del transporte marítimo**\
+`La opacidad que rodea al estrecho de Ormuz revela un lado oscuro del transporte marítimo mundial: algunos buques no quieren ser localizados.`\
+https://www.nytimes.com/es/2026/05/12/espanol/mundo/transporte-maritimo-estrecho-ormuz.html
+
 ****\
 ``\
 https://www.nytimes.com/video/embedded/world/europe/100000010898226/12vid-uk-cabinet-leaving-73315.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/12/business/media/youtube-creators-advertisers.h
 **Start-Up Raises $1.3 Billion for an A.I. ‘Grid’**\
 `As tech giants dominate the hardware needed to build artificial intelligence, Amp hopes to create an alternative.`\
 https://www.nytimes.com/2026/05/12/technology/amp-startup.html
-
-**Watching ‘The Devil Wears Prada 2’ as an Elegy for Magazines**\
-`The film may be about fashion, but for some editors and writers, it gets a lot right about the dire state of fashion journalism.`\
-https://www.nytimes.com/2026/05/12/movies/devil-wears-prada-2-magazine.html
 
