@@ -1,3 +1,11 @@
+**Betty Broderick, Whose Murder Trial Was Grist for TV Movies, Dies at 78**\
+`She killed her ex-husband and his new wife after what she described as years of psychological abuse. The crime inspired TV adaptations, a podcast and at least five books.`\
+https://www.nytimes.com/2026/05/12/us/betty-broderick-dead.html
+
+**La guerra en Irán quita el color a las bolsas de las botanas más conocidas de Japón**\
+`El gigante alimentario Calbee dijo que la escasez de nafta, un derivado del petróleo crudo utilizado en las tintas, lo estaba obligando a cambiar a envases en blanco y negro para sus productos salados.`\
+https://www.nytimes.com/es/2026/05/12/espanol/mundo/guerra-iran-economia-precios-japon.html
+
 **Amor Towles Shares Insights on His Own Rare Book Collection**\
 `The best-selling author and collector explains what draws him to add to his own bookshelves.`\
 https://www.nytimes.com/2026/05/12/books/amor-towles-rare-books.html
@@ -14,7 +22,7 @@ https://www.nytimes.com/es/2026/05/12/espanol/ciencia-y-tecnologia/cancer-pancre
 `Here’s a guide to illuminated manuscripts, antique tomes and first editions around the British capital.`\
 https://www.nytimes.com/2026/05/12/arts/design/rare-books-london.html
 
-**Officials Raise Quality Concerns About Lincoln Memorial Reflecting Pool Repairs**\
+**Reflecting Pool Repairs Appear Uneven and Behind Schedule, Officials Say**\
 `Work on the iconic National Mall basin appears behind schedule. President Trump initially said he had picked the contractor, then said he did not know it.`\
 https://www.nytimes.com/2026/05/12/us/politics/lincoln-memorial-pool-repairs.html
 
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/12/world/middleeast/kuwait-iran-bubiyan-island.h
 **Joni Lamb, Whose Christian TV Station Went Global, Dies at 65**\
 `She and her husband, Marcus Lamb, founded Daystar Television Network, which reached more than 200 countries and made the couple into televangelism stars.`\
 https://www.nytimes.com/2026/05/12/business/media/joni-lamb-dead.html
-
-**La Unión Europea acuerda sancionar a los colonos israelíes**\
-`La medida, aplicada a los colonos por la violencia contra los palestinos, podría ser el comienzo de una nueva era en la que Europa será más severa con Israel.`\
-https://www.nytimes.com/es/2026/05/12/espanol/mundo/union-europea-sanciones-colonos-israel.html
-
-**Unapologetic Foods Is Slinging Filipino Sandwiches at Sanwits**\
-`The East Village spot offers seven styles, a South American tavern in North Brooklyn and more restaurant news.`\
-https://www.nytimes.com/2026/05/12/dining/nyc-restaurant-news.html
 
