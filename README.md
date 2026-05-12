@@ -1,3 +1,7 @@
+**A Racist Remark About Jeffries Sets Off Democratic Anger in Virginia**\
+`Representative Jen Kiggans, a Republican in a tough re-election fight, faced criticism after she agreed with comments by a local radio host that included a racist line about Hakeem Jeffries, the Democratic minority leader.`\
+https://www.nytimes.com/2026/05/12/us/politics/jen-kiggans-jeffries-cotton-picking-virginia.html
+
 **Government Agents Chase Philippine Senator in Parliament**\
 `CCTV footage captured federal agents chasing Sen. Ronald ‘Bato’ dela Rosa of the Philippines, who enforced a war on drugs that killed thousands, throughout the nation’s parliament on Monday. He is under the Senate’s protection while facing an I.C.C. arrest warrant.`\
 https://www.nytimes.com/video/world/asia/100000010898047/philippines-senator-dela-rosa-icc-parliament.html
@@ -58,8 +62,8 @@ https://www.nytimes.com/video/world/europe/100000010898223/keir-starmer-prime-mi
 `Steve Hilton, a Republican front-runner for governor, posted a video of his Del Taco order. Social media users accused him of misunderstanding the state’s Mexican food culture.`\
 https://www.nytimes.com/2026/05/12/us/california-candidate-steve-hilton-street-taco.html
 
-**Inflation Accelerates After Weeks of War in Iran**\
-`The Consumer Price Index rose 3.8% in April from a year earlier as higher energy costs replaced tariffs as the driver of higher prices for Americans.`\
+**What to know about the report.**\
+`The consumer price index increased X.X% in April from a year earlier as higher energy costs raised a range of prices for Americans.`\
 https://www.nytimes.com/live/2026/05/12/business/inflation-report-cpi/cpi-inflation-report-consumer-prices
 
 **Labour’s deep losses in local elections reflect a shift in the public mood.**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/12/business/dealbook/nadella-microsoft-openai-mu
 **Oregon Prepares for a Challenging Summer of Water Shortages and High Fire Risk**\
 `After a warm winter that brought more rain than snow, the state’s snowpack was the lowest it has ever been.`\
 https://www.nytimes.com/2026/05/12/us/oregon-fire-season-drought-washington-idaho.html
-
-**Watch Live: Pentagon Officials Testify Before Congress**\
-`Defense Secretary Pete Hegseth and Gen. Dan Caine, the chairman of the Joint Chiefs of Staff, testify before the Senate Appropriations subcommittee on defense.`\
-https://www.nytimes.com/video/embedded/world/middleeast/100000010898138/watch-live-pentagon-officials-testify-before-congress.html
 
