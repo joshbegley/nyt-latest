@@ -1,3 +1,7 @@
+**How Trump Changed the Way He Talks About China**\
+`As President Trump travels to China to meet with President Xi Jinping, our reporter David Sanger looks at how Trump’s rhetoric about China has shifted from his first term.`\
+https://www.nytimes.com/video/us/100000010890442/how-trump-changed-the-way-he-talks-about-china.html
+
 **Man Who Stole Unreleased Beyoncé Music Is Sentenced to 5 Years**\
 `The theft occurred on July 8, 2025, when members of the singer’s team reported a vehicle break-in ahead of her “Cowboy Carter” tour dates in Atlanta.`\
 https://www.nytimes.com/2026/05/12/us/beyonce-music-theft-guilty-atlanta.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/12/us/politics/lincoln-memorial-pool-repairs.htm
 **N.Y.C. Hospital Is Subpoenaed Over Trans Youth Health Care**\
 `The action, initiated by the U.S. attorney’s office in North Texas, could set up a showdown between NYU Langone and the Justice Department.`\
 https://www.nytimes.com/2026/05/12/nyregion/nyu-langone-transgender-care-grand-jury.html
-
-**The Rolling Stones, Very Early and Very Late**\
-`Listen to their 1963 debut through two tunes released just last week.`\
-https://www.nytimes.com/2026/05/12/arts/music/amplifier-newsletter-rolling-stones.html
 

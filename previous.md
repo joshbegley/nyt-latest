@@ -1,3 +1,7 @@
+**Man Who Stole Unreleased Beyoncé Music Is Sentenced to 5 Years**\
+`The theft occurred on July 8, 2025, when members of the singer’s team reported a vehicle break-in ahead of her “Cowboy Carter” tour dates in Atlanta.`\
+https://www.nytimes.com/2026/05/12/us/beyonce-music-theft-guilty-atlanta.html
+
 **Sam Altman has been targeted in a backlash against A.I.**\
 ``\
 https://www.nytimes.com/live/2026/05/12/technology/openai-trial-sam-altman-elon-musk/sam-altman-has-been-targeted-in-a-backlash-against-ai
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/12/nyregion/nyu-langone-transgender-care-grand-j
 **The Rolling Stones, Very Early and Very Late**\
 `Listen to their 1963 debut through two tunes released just last week.`\
 https://www.nytimes.com/2026/05/12/arts/music/amplifier-newsletter-rolling-stones.html
-
-**F.D.A. Commissioner Marty Makary Resigns After Weeks of Pressure**\
-`The agency’s top food official will step in to the role after Dr. Makary privately said he opposed the administration decision to approve flavored vapes.`\
-https://www.nytimes.com/2026/05/12/us/politics/trump-fires-fda-commissioner-makary.html
 

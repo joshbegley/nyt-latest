@@ -1,3 +1,7 @@
+**Man Who Stole Unreleased Beyoncé Music Is Sentenced to 5 Years**\
+`The theft occurred on July 8, 2025, when members of the singer’s team reported a vehicle break-in ahead of her “Cowboy Carter” tour dates in Atlanta.`\
+https://www.nytimes.com/2026/05/12/us/beyonce-music-theft-guilty-atlanta.html
+
 **Sam Altman has been targeted in a backlash against A.I.**\
 ``\
 https://www.nytimes.com/live/2026/05/12/technology/openai-trial-sam-altman-elon-musk/sam-altman-has-been-targeted-in-a-backlash-against-ai
