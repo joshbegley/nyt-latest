@@ -1,3 +1,7 @@
+**Word of the Day: remonstrate**\
+`This word has appeared in one article on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/05/12/learning/word-of-the-day-remonstrate.html
+
 **Maker of Canvas Learning Platform Strikes Deal for Hackers to Return Data**\
 `Instructure, which provides Canvas software to thousands of schools and universities around the world, did not say what it had given the hackers in exchange for the stolen data.`\
 https://www.nytimes.com/2026/05/12/us/canvas-instructure-hackers-deal.html
