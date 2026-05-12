@@ -1,3 +1,19 @@
+**In Chicago, a Big Name Art Show Where the Drawings Dominate**\
+`In an exception to the usual paintings-heavy blockbuster exhibitions, the Art Institute of Chicago is presenting the masterful drawings of Willem de Kooning.`\
+https://www.nytimes.com/2026/05/12/arts/design/willem-de-kooning-drawings-chicago-art-institute.html
+
+**The Winners of Our Second Annual ‘My List’ Review Contest**\
+`Entertain and inform yourself with these teen-curated lists that suggest movies, music, books, restaurants and more.`\
+https://www.nytimes.com/2026/05/12/learning/the-winners-of-our-second-annual-my-list-review-contest.html
+
+**Uli Sigg Wants to Help Chinese People ‘View Their Own Art.’ Simple, Right?**\
+`Over three decades, Sigg, a Swiss businessman and former diplomat, amassed thousands of contemporary Chinese works. Ai Weiwei calls him “my maker.”`\
+https://www.nytimes.com/2026/05/12/arts/design/uli-sigg-chinese-art-collection.html
+
+**Spotlighting the Woman Who Brought European Modernism to California**\
+`Although Galka Scheyer might an unfamiliar name, the artists she championed have become famous. A exhibition in Pasadena brings her to the foreground.`\
+https://www.nytimes.com/2026/05/12/arts/design/norton-simon-museum-galka-scheyer.html
+
 **Florida Plans to Close ‘Alligator Alcatraz’, Vendors Are Reportedly Told**\
 `The Department of Homeland Security has determined the state-run immigration detention facility is too expensive, and some private vendors have struggled to front costs.`\
 https://www.nytimes.com/2026/05/12/us/florida-alligator-alcatraz-detention-closure.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-new-jersey-mayor-n
 **West Virginia First Congressional District Primary Election Results**\
 `Get live results and maps from the 2026 West Virginia primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-west-virginia-us-house-1-primary.html
-
-**West Virginia Second Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 West Virginia primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-west-virginia-us-house-2-primary.html
-
-**West Virginia Supreme Court Special Election Results**\
-`Get live results and maps from the 2026 West Virginia special election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-west-virginia-supreme-court-special-may-12.html
-
-**West Virginia U.S. Senate Primary Election Results**\
-`Get live results and maps from the 2026 West Virginia primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-west-virginia-us-senate-primary.html
-
-**Nebraska U.S. Senate Primary Election Results**\
-`Get live results and maps from the 2026 Nebraska primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-nebraska-us-senate-primary.html
 

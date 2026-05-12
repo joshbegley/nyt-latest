@@ -1,3 +1,11 @@
+**Florida Plans to Close ‘Alligator Alcatraz’, Vendors Are Reportedly Told**\
+`The Department of Homeland Security has determined the state-run immigration detention facility is too expensive, and some private vendors have struggled to front costs.`\
+https://www.nytimes.com/2026/05/12/us/florida-alligator-alcatraz-detention-closure.html
+
+**Obama Enters Texas Senate Fight With Support for Talarico**\
+`The former president, who has looked to elevate a new generation of Democratic leaders, met with James Talarico as he tries to flip Texas.`\
+https://www.nytimes.com/2026/05/12/us/obama-james-talarico-texas-senate-2026-democrats.html
+
 **Drones Are Leading Cause of Civilian Deaths in Sudan War, U.N. Says**\
 `The U.N. documented 880 deaths from strikes carried out by Sudan’s military or its paramilitary enemy, the Rapid Support Forces, between January and April.`\
 https://www.nytimes.com/2026/05/12/world/africa/sudan-drones-civilian-deaths.html
