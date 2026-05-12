@@ -1,4 +1,8 @@
 **Who Might Challenge Starmer in a Leadership Contest?**\
+`Health Secretary Wes Streeting, Mayor of Greater Manchester Andy Burnham and former deputy prime minister Angela Rayner are among possible contenders.`\
+https://www.nytimes.com/2026/05/12/world/europe/who-could-replace-starmer-uk-prime-minister.html
+
+**Who Might Challenge Starmer in a Leadership Contest?**\
 `Health secretary Wes Streeting, mayor of Greater Manchester Andy Burnham and former deputy prime minister Angela Rayner are among possible contenders.`\
 https://www.nytimes.com/2026/05/12/world/europe/who-might-challenge-starmer-in-a-leadership-contest.html
 
