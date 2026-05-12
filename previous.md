@@ -1,3 +1,11 @@
+**Inflation Accelerates After Weeks of War in Iran**\
+`The Consumer Price Index rose 3.8% in April from a year earlier as higher energy costs replaced tariffs as the driver of higher prices for Americans.`\
+https://www.nytimes.com/2026/05/12/business/economy/cpi-inflation-report-consumer-prices.html
+
+**Labour’s deep losses in local elections reflect a shift in the public mood.**\
+``\
+https://www.nytimes.com/live/2026/05/12/world/uk-starmer/labours-deep-losses-in-local-elections-reflect-a-shift-in-the-public-mood
+
 **How Much Power Did Microsoft Have Over OpenAI?**\
 `The technology giant’s chief executive faced a grilling in court over whether it exerted too much control over what was meant to be an A.I. nonprofit.`\
 https://www.nytimes.com/2026/05/12/business/dealbook/nadella-microsoft-openai-musk-trial.html
@@ -35,7 +43,7 @@ https://www.nytimes.com/video/embedded/world/europe/100000010898226/12vid-uk-cab
 https://www.nytimes.com/2026/05/12/world/europe/uk-starmer-resign-prime-minister-what-options.html
 
 **EBay Rejects GameStop’s $55 Billion Takeover Bid**\
-`The online marketplace eBay called the cash-and-stock proposal “neither credible nor attractive.”`\
+`The online marketplace called the cash-and-stock proposal “neither credible nor attractive.”`\
 https://www.nytimes.com/2026/05/12/business/ebay-gamestop-takeover.html
 
 **Here’s the latest.**\
@@ -63,18 +71,10 @@ https://www.nytimes.com/2026/05/12/crosswords/strands-sidekick-801.html
 https://www.nytimes.com/2026/05/12/crosswords/wordle-review-1789.html
 
 **Who Might Challenge Starmer in a Leadership Contest?**\
-`Health Secretary Wes Streeting, Mayor of Greater Manchester Andy Burnham and former deputy prime minister Angela Rayner are among possible contenders.`\
+`Health Secretary Wes Streeting, Mayor of Greater Manchester Andy Burnham and former deputy prime minister Angela Rayner are among the possible contenders.`\
 https://www.nytimes.com/2026/05/12/world/europe/who-could-replace-starmer-uk-prime-minister.html
 
 **It’s the End of LIV Golf as We Knew It (and Trump Feels Fine)**\
 `Journalist Alan Shipnuck explains what we really learned from Saudi Arabia’s multibillion-dollar golf experiment.`\
 https://www.nytimes.com/2026/05/12/podcasts/liv-golf-saudi-arabia.html
-
-**Lo que vimos en Cuba nos impresionó**\
-`Si los estadounidenses supieran lo que está sufriendo Cuba, exigirían el fin del bloqueo estadounidense.`\
-https://www.nytimes.com/es/2026/05/12/espanol/opinion/embargo-cuba.html
-
-**Trump Is Fighting the World’s Stupidest Culture War**\
-`“He sees fossil fuels as manly and renewables as woke.”`\
-https://www.nytimes.com/2026/05/12/opinion/trump-is-fighting-the-worlds-stupidest-culture-war.html
 
