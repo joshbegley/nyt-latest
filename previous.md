@@ -1,3 +1,11 @@
+**Wildfires Strike Florida, Georgia and America’s ‘Wood Basket’**\
+`Large fires, fueled by a record breaking drought, have been destroying homes and timber plantations in Southeastern states.`\
+https://www.nytimes.com/2026/05/12/climate/wildfires-georgia-florida-timber-plantations.html
+
+**Why Many Americans Choose Not to Have Children**\
+`Readers offer their theories in response to a guest essay.`\
+https://www.nytimes.com/2026/05/12/opinion/letters/birthrates-no-children.html
+
 **Mysterious Meddling in Democratic Primaries Has G.O.P. Fingerprints**\
 `A new super PAC with ties to Republicans is intervening in Democratic primaries, in one instance helping a sex therapist in Texas accused of antisemitism.`\
 https://www.nytimes.com/2026/05/12/us/politics/gop-mystery-pac-midterms.html
@@ -40,7 +48,7 @@ https://www.nytimes.com/live/2026/05/12/technology/openai-trial-sam-altman-elon-
 
 **Person Killed on Runway at Denver Airport Is Identified**\
 `The individual, a 41-year-old man, breached a fence at the airport on Friday minutes before being struck by a Frontier Airlines jet, officials said.`\
-https://www.nytimes.com/2026/05/12/us/frontier-airlines-killed-runway-identified.html
+https://www.nytimes.com/2026/05/12/us/frontier-denver-airport-fatality-identification.html
 
 **Starmer has struggled with the economy, the Mandelson scandal and other issues.**\
 ``\
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/12/style/scientology-speedruns-tiktok-teens-la-n
 **That Wig, Those Splits: Broadway Scene Stealers, Tonys Edition**\
 `Here are some of the brilliant moments our writers can’t shake from this year’s batch of Tony-nominated productions.`\
 https://www.nytimes.com/2026/05/12/theater/broadway-scene-stealers-tonys.html
-
-**20-Minute Dinners for When You Are Dunzo**\
-`The dead-simple dinners — like halloumi tacos and creamy cabbage pastina — we turn to when Maycember ramps up.`\
-https://www.nytimes.com/2026/05/12/dining/20-minute-dinners-for-when-you-are-dunzo.html
-
-**More Cancer Patients Are Taking Ivermectin. Mel Gibson and Joe Rogan Might Be Why.**\
-`Prescriptions for antiparasitic drugs spiked after the actor claimed it cured his friends of cancer, a new study finds.`\
-https://www.nytimes.com/2026/05/12/well/ivermectin-cancer-mel-gibson-joe-rogan.html
 

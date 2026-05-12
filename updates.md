@@ -1,3 +1,15 @@
+**Wildfires Strike Florida, Georgia and America’s ‘Wood Basket’**\
+`Large fires, fueled by a record breaking drought, have been destroying homes and timber plantations in Southeastern states.`\
+https://www.nytimes.com/2026/05/12/climate/wildfires-georgia-florida-timber-plantations.html
+
+**Why Many Americans Choose Not to Have Children**\
+`Readers offer their theories in response to a guest essay.`\
+https://www.nytimes.com/2026/05/12/opinion/letters/birthrates-no-children.html
+
+**Person Killed on Runway at Denver Airport Is Identified**\
+`The individual, a 41-year-old man, breached a fence at the airport on Friday minutes before being struck by a Frontier Airlines jet, officials said.`\
+https://www.nytimes.com/2026/05/12/us/frontier-denver-airport-fatality-identification.html
+
 **Mysterious Meddling in Democratic Primaries Has G.O.P. Fingerprints**\
 `A new super PAC with ties to Republicans is intervening in Democratic primaries, in one instance helping a sex therapist in Texas accused of antisemitism.`\
 https://www.nytimes.com/2026/05/12/us/politics/gop-mystery-pac-midterms.html
