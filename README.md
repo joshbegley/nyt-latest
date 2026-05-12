@@ -1,4 +1,4 @@
-**Waymo Is Fixing Its Entire Fleet to Avoid Flooded Roads**\
+**Waymo Is Fixing All of Its Self-Driving Taxis to Avoid Floods**\
 `The company will recall its software after one of its robotaxis entered a flooded road during a heavy downpour in San Antonio last month.`\
 https://www.nytimes.com/2026/05/12/us/waymo-recall-robotaxis-flood-water.html
 
