@@ -1,3 +1,11 @@
+**Oregon Prepares for a Challenging Summer of Water Shortages and High Fire Risk**\
+`After a warm winter that brought more rain than snow, the state’s snowpack was the lowest it has ever been.`\
+https://www.nytimes.com/2026/05/12/us/oregon-fire-season-drought-washington-idaho.html
+
+**Rex Reed, Film Critic Known for Acerbic Reviews, Dies at 87**\
+`He fawned over Old Hollywood stars and sparred with Frank Sinatra. Nora Ephron marveled at his ability to get his subjects to say the things they did.`\
+https://www.nytimes.com/2026/05/12/movies/rex-reed-dead.html
+
 **Gardening**\
 `Have you ever planted anything? If not, would you like to start?`\
 https://www.nytimes.com/2026/05/12/learning/gardening.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/12/opinion/trump-is-fighting-the-worlds-stupides
 **We Should Take Hantavirus More Seriously**\
 `There are too many unknowns to be certain about much.`\
 https://www.nytimes.com/2026/05/12/opinion/hantavirus-complacency.html
-
-**At Netflix Is a Joke, the Attention Economy Rules the Festival**\
-`Though stand-up by stars like John Mulaney and Dave Chappelle were on the program, roasts, podcasts and other shows that incorporated comedy were hot.`\
-https://www.nytimes.com/2026/05/12/arts/netflix-is-a-joke-kevin-hart-john-mulaney.html
-
-**China Sought Access to Anthropic’s Newest A.I. The Answer Was No.**\
-`The latest artificial intelligence models from Anthropic and OpenAI are extending the United States’ lead over China and intensifying the rivalry between the countries.`\
-https://www.nytimes.com/2026/05/12/us/politics/china-ai-anthropic-openai-mythos-chatgpt.html
 
