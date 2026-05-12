@@ -1,3 +1,11 @@
+**Revolution and Rarities: An Intriguing Combination at the Firsts London Book Fair**\
+`What to expect at the book fair in the Saatchi Gallery.`\
+https://www.nytimes.com/2026/05/12/books/firsts-london-book-fair.html
+
+**Una idea ‘imposible’ derivó en un gran avance contra el cáncer de páncreas**\
+`La nueva estrategia también es prometedora para los tumores de pulmón y colon. He aquí cómo los científicos la descubrieron.`\
+https://www.nytimes.com/es/2026/05/12/espanol/ciencia-y-tecnologia/cancer-pancreas-avances-medicos.html
+
 **6 Ways to See Rare Books in London**\
 `Here’s a guide to illuminated manuscripts, antique tomes and first editions around the British capital.`\
 https://www.nytimes.com/2026/05/12/arts/design/rare-books-london.html

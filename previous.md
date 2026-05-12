@@ -1,3 +1,11 @@
+**Revolution and Rarities: An Intriguing Combination at the Firsts London Book Fair**\
+`What to expect at the book fair in the Saatchi Gallery.`\
+https://www.nytimes.com/2026/05/12/books/firsts-london-book-fair.html
+
+**Una idea ‘imposible’ derivó en un gran avance contra el cáncer de páncreas**\
+`La nueva estrategia también es prometedora para los tumores de pulmón y colon. He aquí cómo los científicos la descubrieron.`\
+https://www.nytimes.com/es/2026/05/12/espanol/ciencia-y-tecnologia/cancer-pancreas-avances-medicos.html
+
 **6 Ways to See Rare Books in London**\
 `Here’s a guide to illuminated manuscripts, antique tomes and first editions around the British capital.`\
 https://www.nytimes.com/2026/05/12/arts/design/rare-books-london.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/12/dining/nyc-restaurant-news.html
 **Is Anthropic’s New A.I. Really That Scary? It Depends Whom You Ask.**\
 `Anthropic said that Claude Mythos was too dangerous to release to the public. That claim has reopened an old debate over cybersecurity.`\
 https://www.nytimes.com/2026/05/12/technology/anthropic-claude-mythos.html
-
-**Raffensperger Event Is Disrupted by ‘Active Threat,’ Bomb Squad on Site**\
-`The discovery of a suspicious object disrupted a campaign stop for Brad Raffensperger, the Republican secretary of state in Georgia, who is running for governor.`\
-https://www.nytimes.com/2026/05/12/us/politics/raffensperger-bomb-georgia-campaign-governor.html
-
-**A.I. and Humans Battle It Out in a Cybersecurity Showdown**\
-`Experts and college students used A.I. agents to try to break into and defend computer networks in a national competition. The agents did all right on their own, too.`\
-https://www.nytimes.com/2026/05/12/technology/ai-cybersecurity-competition.html
 
