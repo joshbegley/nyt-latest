@@ -1,3 +1,7 @@
+**At Frieze New York and Beyond, Indigenous Artists Are in the Spotlight**\
+`With works showing in New York, Venice and elsewhere, Sara Flores, Suzanne Kite and Seba Calfuqueo are exploding past notions of what, exactly, Indigenous art is.`\
+https://www.nytimes.com/2026/05/11/arts/design/frieze-new-york-indigenous-artists.html
+
 **I Have Some Questions for the Democrats Who Want to Run California**\
 `How will the next governor make housing more affordable? The top five Democratic candidates in California discuss this issue at a forum moderated by Ezra Klein.`\
 https://www.nytimes.com/video/opinion/100000010897038/i-have-some-questions-for-the-democrats-who-want-to-run-california.html
