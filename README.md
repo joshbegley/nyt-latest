@@ -1,3 +1,63 @@
+**West Virginia Primary Election Results**\
+`Get live results and maps from the 2026 West Virginia primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-west-virginia-primary.html
+
+**Nebraska Secretary of State Primary Election Results**\
+`Get live results and maps from the 2026 Nebraska primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-nebraska-secretary-of-state-primary.html
+
+**Nebraska U.S. Senate Primary Election Results**\
+`Get live results and maps from the 2026 Nebraska primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-nebraska-us-senate-primary.html
+
+**Nebraska Governor Primary Election Results**\
+`Get live results and maps from the 2026 Nebraska primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-nebraska-governor-primary.html
+
+**Nebraska Auditor Primary Election Results**\
+`Get live results and maps from the 2026 Nebraska primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-nebraska-auditor-primary.html
+
+**Nebraska Treasurer Primary Election Results**\
+`Get live results and maps from the 2026 Nebraska primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-nebraska-treasurer-primary.html
+
+**Nebraska Attorney General Primary Election Results**\
+`Get live results and maps from the 2026 Nebraska primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-nebraska-attorney-general-primary.html
+
+**Nebraska Third Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Nebraska primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-nebraska-us-house-3-primary.html
+
+**Nebraska First Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Nebraska primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-nebraska-us-house-1-primary.html
+
+**West Virginia Court of Appeals Election Results**\
+`Get live results and maps from the 2026 West Virginia general election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-west-virginia-court-of-appeals.html
+
+**West Virginia Supreme Court Special Election Results**\
+`Get live results and maps from the 2026 West Virginia special election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-west-virginia-supreme-court-special-may-12.html
+
+**West Virginia U.S. Senate Primary Election Results**\
+`Get live results and maps from the 2026 West Virginia primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-west-virginia-us-senate-primary.html
+
+**West Virginia First Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 West Virginia primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-west-virginia-us-house-1-primary.html
+
+**West Virginia Second Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 West Virginia primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-west-virginia-us-house-2-primary.html
+
+**Newark Mayor Election Results**\
+`Get live results and maps from the 2026 New Jersey election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-jersey-mayor-newark.html
+
 **How Worried Should We Be About Hantavirus?**\
 `Our global health reporter, Apoorva Mandavilli, explains that there is no indication the hantavirus outbreak could turn into a pandemic — but also that the public might not be getting all of the details.`\
 https://www.nytimes.com/video/health/100000010896688/how-worried-should-we-be-about-hantavirus.html
@@ -17,64 +77,4 @@ https://www.nytimes.com/2026/05/12/us/politics/ice-david-venturella-trump.html
 **Inflation Accelerates as Iran War Drives Up Energy Costs**\
 `Also, Russia keeps attacking U.S. companies in Ukraine. Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/05/12/briefing/iran-war-costs-inflation.html
-
-**NATO, Please Help. Trump Has No Strategy for Iran.**\
-`NATO should overcome its distaste for President Trump and sends its navies to help open up the Strait of Hormuz.`\
-https://www.nytimes.com/2026/05/12/opinion/israel-united-states-iran-hormuz-nato.html
-
-**Tossed Cigarette Sparked Deadly Manhattan Fire, Prosecutors Say**\
-`Victor Arias, 29, was charged with starting a blaze that killed three people after prosecutors said he tossed a cigarette into a pile of cardboard boxes in the lobby of his apartment building.`\
-https://www.nytimes.com/2026/05/12/nyregion/arrest-fire-cigarette-inwood-nyc.html
-
-**The South Carolina Republican Who Defied Trump on Redistricting**\
-`Politicians are fighting viciously for power, said Shane Massey, leader of the State Senate. “To what end?” he asked, warning of eroding fundamental American values. “I’m voting no.”`\
-https://www.nytimes.com/2026/05/12/us/south-carolina-shane-massey-redistricting.html
-
-**Israeli Report Examines Sexual Violence During and After Hamas-Led Attack**\
-`A two-year investigation by a team of researchers in Israel concluded that sexual violence by Hamas and its allies was widespread during and after the Oct. 7, 2023, attack.`\
-https://www.nytimes.com/2026/05/12/world/middleeast/israel-sexual-violence-hamas-attack-report.html
-
-**Earthquake Shakes Tehran, a City With Already Frayed Nerves**\
-`Iranian media said a moderate quake had shaken the capital around midnight local time.`\
-https://www.nytimes.com/2026/05/12/world/middleeast/earthquake-iran-tehran.html
-
-**Claire Maurier, the Narcissistic Mother in ‘400 Blows,’ Dies at 97**\
-`A landmark of New Wave cinema, “The 400 Blows” brought her enduring global attention. She later appeared in “La Cage Aux Folles” and “Amélie.”`\
-https://www.nytimes.com/2026/05/12/movies/claire-maurier-dead.html
-
-**U.S. Intelligence Shows Iran Retains Substantial Missile Capabilities**\
-`Secret new assessments say Iran has operational access to 30 of its 33 missile sites along the Strait of Hormuz, suggesting that its military remains far stronger than President Trump has asserted.`\
-https://www.nytimes.com/2026/05/12/us/politics/iran-missiles-us-intelligence.html
-
-**Map: 4.3-Magnitude Earthquake Shakes Iran**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/05/12/world/quake-tracker-iran.html
-
-**Which Red Shoes Should You Wear This Spring?**\
-`Ruby slippers — and heels and sneakers — are everywhere right now. Take T’s quiz to find out which style best suits you.`\
-https://www.nytimes.com/2026/05/12/t-magazine/spring-red-shoe-personality-quiz.html
-
-**The Hantavirus Outbreak Is Resurrecting Covid-Era Misinformation Tactics**\
-`Experts say A.I. tools have made it even easier for influencers and others to spread false messages online.`\
-https://www.nytimes.com/2026/05/12/well/hantavirus-covid-misinformation.html
-
-**South Carolina Lawmakers Halt Redistricting Efforts**\
-`Some Republicans had worried that carving up the district held by Representative James E. Clyburn, the state’s only Democratic congressman, could backfire on them.`\
-https://www.nytimes.com/2026/05/12/us/south-carolina-redistricting-midterm-elections.html
-
-**A Shift in Ukraine**\
-`The Russian military’s progress has slowed to a crawl and Vladimir Putin appears to be under increasing pressure.`\
-https://www.nytimes.com/2026/05/12/world/russia-ukraine-drones-keir-starmer.html
-
-**U.S. Might Restart Striking Iran, Trump and Hegseth Warn**\
-`With talks at an impasse, both sides are holding to positions their opponents call unacceptable, while the economic pain caused by the Strait of Hormuz blockade continues to grow.`\
-https://www.nytimes.com/2026/05/12/world/middleeast/trump-iran-ceasefire-strikes.html
-
-**Trump Says Americans’ Economic Pain Is Not a Consideration for the Iran War**\
-`Asked whether Americans’ financial situation was motivating him to make a deal, President Trump said bluntly, “Not even a little bit.”`\
-https://www.nytimes.com/2026/05/12/us/politics/trump-iran-war-americans-economy.html
-
-**Conan O’Brien Will Return as Oscars Host**\
-`It will be the first time anyone has done the job for three straight years since Billy Crystal in the early 1990s.`\
-https://www.nytimes.com/2026/05/12/business/media/conan-obrien-oscars-host-2027.html
 

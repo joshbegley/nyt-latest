@@ -1,3 +1,7 @@
+**How Worried Should We Be About Hantavirus?**\
+`Our global health reporter, Apoorva Mandavilli, explains that there is no indication the hantavirus outbreak could turn into a pandemic — but also that the public might not be getting all of the details.`\
+https://www.nytimes.com/video/health/100000010896688/how-worried-should-we-be-about-hantavirus.html
+
 **Secret Service Makes Case for Security Funding Amid G.O.P. Unease on Ballroom**\
 `The presidential protection agency detailed how it would use a proposed $1 billion as Republicans asked for more detail and Democrats went on the attack.`\
 https://www.nytimes.com/2026/05/12/us/politics/secret-service-ballroom.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/12/us/politics/trump-iran-war-americans-economy.
 **Conan O’Brien Will Return as Oscars Host**\
 `It will be the first time anyone has done the job for three straight years since Billy Crystal in the early 1990s.`\
 https://www.nytimes.com/2026/05/12/business/media/conan-obrien-oscars-host-2027.html
-
-**See How Trump Is Renovating the Reflecting Pool**\
-`A rundown of the problems at the pool and what President Trump is trying to do to fix them.`\
-https://www.nytimes.com/2026/05/12/us/politics/trump-reflecting-pool-renovation.html
 
