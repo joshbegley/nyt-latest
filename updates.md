@@ -1,3 +1,7 @@
+**Macron Makes a Bid for New Partners in Africa**\
+`The French president visited Kenya this week for a summit designed to build stronger ties with Anglophone African countries.`\
+https://www.nytimes.com/2026/05/12/world/africa/macron-africa-summit-kenya.html
+
 **Keir Starmer, British Prime Minister, Refuses to Resign**\
 `The prime minister of Britain, Keir Starmer, vowed to continue governing at a high-stakes cabinet meeting on Tuesday. Calls have grown for for him to resign since heavy Labour Party losses in local elections last week.`\
 https://www.nytimes.com/video/world/europe/100000010898223/keir-starmer-prime-minister-resign.html
