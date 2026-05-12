@@ -1,3 +1,19 @@
+**P.C.O.S. Has a New Name. Doctors Hope It Will Improve Care for Millions.**\
+`The condition has been renamed polyendocrine metabolic ovarian syndrome, or P.M.O.S., to better reflect its wide-ranging health effects.`\
+https://www.nytimes.com/2026/05/12/well/live/pcos-pmos-name-change-treatment-health.html
+
+**Distracted and Bogged Down, Trump and Xi Enter a Summit of Reduced Ambitions**\
+`The war in Iran has cast a shadow of uncertainty on both superpowers, dimming early hopes that they could begin to address the larger issues that have frayed their relationship.`\
+https://www.nytimes.com/2026/05/12/us/politics/trump-xi-summit.html
+
+**Betty Broderick, Whose Murder Trial Was Grist for TV Movies, Dies at 78**\
+`She killed her ex-husband and his new wife after what she described as years of psychological abuse. The crime inspired TV adaptations, a podcast and at least five books.`\
+https://www.nytimes.com/2026/05/12/us/betty-broderick-dead.html
+
+**La guerra en Irán quita el color a las bolsas de las botanas más conocidas de Japón**\
+`El gigante alimentario Calbee dijo que la escasez de nafta, un derivado del petróleo crudo utilizado en las tintas, lo estaba obligando a cambiar a envases en blanco y negro para sus productos salados.`\
+https://www.nytimes.com/es/2026/05/12/espanol/mundo/guerra-iran-economia-precios-japon.html
+
 **Amor Towles Shares Insights on His Own Rare Book Collection**\
 `The best-selling author and collector explains what draws him to add to his own bookshelves.`\
 https://www.nytimes.com/2026/05/12/books/amor-towles-rare-books.html
@@ -14,7 +30,7 @@ https://www.nytimes.com/es/2026/05/12/espanol/ciencia-y-tecnologia/cancer-pancre
 `Here’s a guide to illuminated manuscripts, antique tomes and first editions around the British capital.`\
 https://www.nytimes.com/2026/05/12/arts/design/rare-books-london.html
 
-**Officials Raise Quality Concerns About Lincoln Memorial Reflecting Pool Repairs**\
+**Reflecting Pool Repairs Appear Uneven and Behind Schedule, Officials Say**\
 `Work on the iconic National Mall basin appears behind schedule. President Trump initially said he had picked the contractor, then said he did not know it.`\
 https://www.nytimes.com/2026/05/12/us/politics/lincoln-memorial-pool-repairs.html
 
@@ -27,7 +43,7 @@ https://www.nytimes.com/2026/05/12/nyregion/nyu-langone-transgender-care-grand-j
 https://www.nytimes.com/2026/05/12/arts/music/amplifier-newsletter-rolling-stones.html
 
 **F.D.A. Commissioner Marty Makary Resigns After Weeks of Pressure**\
-`The agency’s top food official will step in as acting commissioner, after Dr. Makary’s tumultuous run as the nation’s top food, drug, tobacco and medical device regulator.`\
+`The agency’s top food official will step in to the role after Dr. Makary privately said he opposed the administration decision to approve flavored vapes.`\
 https://www.nytimes.com/2026/05/12/us/politics/trump-fires-fda-commissioner-makary.html
 
 **China ve al EE. UU. de Trump como un imperio en decadencia**\
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/05/12/opinion/letters/birthrates-no-children.html
 **Mysterious Meddling in Democratic Primaries Has G.O.P. Fingerprints**\
 `A new super PAC with ties to Republicans is intervening in Democratic primaries, in one instance helping a sex therapist in Texas accused of antisemitism.`\
 https://www.nytimes.com/2026/05/12/us/politics/gop-mystery-pac-midterms.html
-
-**Kuwait Accuses Iran of Trying to Infiltrate Its Territory**\
-`Kuwait’s interior ministry said a group of armed Iranians arrived at Bubiyan Island in the Persian Gulf on May 1 aboard a rented fishing boat and exchanged fire with Kuwaiti soldiers.`\
-https://www.nytimes.com/2026/05/12/world/middleeast/kuwait-iran-bubiyan-island.html
-
-**Joni Lamb, Whose Christian TV Station Went Global, Dies at 65**\
-`She and her husband, Marcus Lamb, founded Daystar Television Network, which reached more than 200 countries and made the couple into televangelism stars.`\
-https://www.nytimes.com/2026/05/12/business/media/joni-lamb-dead.html
-
-**La Unión Europea acuerda sancionar a los colonos israelíes**\
-`La medida, aplicada a los colonos por la violencia contra los palestinos, podría ser el comienzo de una nueva era en la que Europa será más severa con Israel.`\
-https://www.nytimes.com/es/2026/05/12/espanol/mundo/union-europea-sanciones-colonos-israel.html
-
-**Unapologetic Foods Is Slinging Filipino Sandwiches at Sanwits**\
-`The East Village spot offers seven styles, a South American tavern in North Brooklyn and more restaurant news.`\
-https://www.nytimes.com/2026/05/12/dining/nyc-restaurant-news.html
 

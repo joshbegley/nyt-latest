@@ -1,3 +1,27 @@
+**P.C.O.S. Has a New Name. Doctors Hope It Will Improve Care for Millions.**\
+`The condition has been renamed polyendocrine metabolic ovarian syndrome, or P.M.O.S., to better reflect its wide-ranging health effects.`\
+https://www.nytimes.com/2026/05/12/well/live/pcos-pmos-name-change-treatment-health.html
+
+**Distracted and Bogged Down, Trump and Xi Enter a Summit of Reduced Ambitions**\
+`The war in Iran has cast a shadow of uncertainty on both superpowers, dimming early hopes that they could begin to address the larger issues that have frayed their relationship.`\
+https://www.nytimes.com/2026/05/12/us/politics/trump-xi-summit.html
+
+**Betty Broderick, Whose Murder Trial Was Grist for TV Movies, Dies at 78**\
+`She killed her ex-husband and his new wife after what she described as years of psychological abuse. The crime inspired TV adaptations, a podcast and at least five books.`\
+https://www.nytimes.com/2026/05/12/us/betty-broderick-dead.html
+
+**La guerra en Irán quita el color a las bolsas de las botanas más conocidas de Japón**\
+`El gigante alimentario Calbee dijo que la escasez de nafta, un derivado del petróleo crudo utilizado en las tintas, lo estaba obligando a cambiar a envases en blanco y negro para sus productos salados.`\
+https://www.nytimes.com/es/2026/05/12/espanol/mundo/guerra-iran-economia-precios-japon.html
+
+**Reflecting Pool Repairs Appear Uneven and Behind Schedule, Officials Say**\
+`Work on the iconic National Mall basin appears behind schedule. President Trump initially said he had picked the contractor, then said he did not know it.`\
+https://www.nytimes.com/2026/05/12/us/politics/lincoln-memorial-pool-repairs.html
+
+**F.D.A. Commissioner Marty Makary Resigns After Weeks of Pressure**\
+`The agency’s top food official will step in to the role after Dr. Makary privately said he opposed the administration decision to approve flavored vapes.`\
+https://www.nytimes.com/2026/05/12/us/politics/trump-fires-fda-commissioner-makary.html
+
 **Amor Towles Shares Insights on His Own Rare Book Collection**\
 `The best-selling author and collector explains what draws him to add to his own bookshelves.`\
 https://www.nytimes.com/2026/05/12/books/amor-towles-rare-books.html
