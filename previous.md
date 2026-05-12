@@ -1,3 +1,23 @@
+**Earthquake Shakes Tehran, a City With Already Frayed Nerves**\
+`Iranian media said a moderate quake had shaken the capital around midnight local time.`\
+https://www.nytimes.com/2026/05/12/world/middleeast/earthquake-iran-tehran.html
+
+**Claire Maurier, the Narcissistic Mother in ‘400 Blows,’ Dies at 97**\
+`A landmark of New Wave cinema, “The 400 Blows” brought her enduring global attention. She later appeared in “La Cage Aux Folles” and “Amélie.”`\
+https://www.nytimes.com/2026/05/12/movies/claire-maurier-dead.html
+
+**U.S. Intelligence Shows Iran Retains Substantial Missile Capabilities**\
+`Secret new assessments say Iran has operational access to 30 of its 33 missile sites along the Strait of Hormuz, suggesting that its military remains far stronger than President Trump has asserted.`\
+https://www.nytimes.com/2026/05/12/us/politics/iran-missiles-us-intelligence.html
+
+**Map: 4.3-Magnitude Earthquake Shakes Iran**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/05/12/world/quake-tracker-iran.html
+
+**Which Red Shoes Should You Wear This Spring?**\
+`Ruby slippers — and heels and sneakers — are everywhere right now. Take T’s quiz to find out which style best suits you.`\
+https://www.nytimes.com/2026/05/12/t-magazine/spring-red-shoe-personality-quiz.html
+
 **The Hantavirus Outbreak Is Resurrecting Covid-Era Misinformation Tactics**\
 `Experts say A.I. tools have made it even easier for influencers and others to spread false messages online.`\
 https://www.nytimes.com/2026/05/12/well/hantavirus-covid-misinformation.html
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/05/12/arts/design/uli-sigg-chinese-art-collection.h
 **Spotlighting the Woman Who Brought European Modernism to California**\
 `Although Galka Scheyer might an unfamiliar name, the artists she championed have become famous. A exhibition in Pasadena brings her to the foreground.`\
 https://www.nytimes.com/2026/05/12/arts/design/norton-simon-museum-galka-scheyer.html
-
-**Florida Plans to Close ‘Alligator Alcatraz’, Vendors Are Reportedly Told**\
-`The Department of Homeland Security has determined the state-run immigration detention facility is too expensive, and some private vendors have struggled to front costs.`\
-https://www.nytimes.com/2026/05/12/us/florida-alligator-alcatraz-detention-closure.html
-
-**Obama Enters Texas Senate Fight With Support for Talarico**\
-`The former president, who has looked to elevate a new generation of Democrats, met with James Talarico and a candidate for governor, Gina Hinojosa, who are trying to flip Texas.`\
-https://www.nytimes.com/2026/05/12/us/obama-james-talarico-texas-senate-2026-democrats.html
-
-**Drones Are Leading Cause of Civilian Deaths in Sudan War, U.N. Says**\
-`The U.N. documented 880 deaths from strikes carried out by Sudan’s military or its paramilitary enemy, the Rapid Support Forces, between January and April.`\
-https://www.nytimes.com/2026/05/12/world/africa/sudan-drones-civilian-deaths.html
-
-**Why the British Prime Minister Remains in Deep Trouble**\
-`Prime Minister Keir Starmer seemed to have won a temporary reprieve on Tuesday after daring his rivals to challenge him, but the underlying problems with his leadership remain.`\
-https://www.nytimes.com/2026/05/12/world/europe/kier-starmer-uk-prime-minister.html
-
-**Officers Sue Affleck and Damon’s Company Over ‘The Rip’ Portrayal**\
-`Two Miami law enforcement officials say the Netflix crime drama uses real-life details and portrays them in a negative light.`\
-https://www.nytimes.com/2026/05/12/movies/the-rip-netflix-lawsuit.html
 

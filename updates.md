@@ -1,3 +1,23 @@
+**Earthquake Shakes Tehran, a City With Already Frayed Nerves**\
+`Iranian media said a moderate quake had shaken the capital around midnight local time.`\
+https://www.nytimes.com/2026/05/12/world/middleeast/earthquake-iran-tehran.html
+
+**Claire Maurier, the Narcissistic Mother in ‘400 Blows,’ Dies at 97**\
+`A landmark of New Wave cinema, “The 400 Blows” brought her enduring global attention. She later appeared in “La Cage Aux Folles” and “Amélie.”`\
+https://www.nytimes.com/2026/05/12/movies/claire-maurier-dead.html
+
+**U.S. Intelligence Shows Iran Retains Substantial Missile Capabilities**\
+`Secret new assessments say Iran has operational access to 30 of its 33 missile sites along the Strait of Hormuz, suggesting that its military remains far stronger than President Trump has asserted.`\
+https://www.nytimes.com/2026/05/12/us/politics/iran-missiles-us-intelligence.html
+
+**Map: 4.3-Magnitude Earthquake Shakes Iran**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/05/12/world/quake-tracker-iran.html
+
+**Which Red Shoes Should You Wear This Spring?**\
+`Ruby slippers — and heels and sneakers — are everywhere right now. Take T’s quiz to find out which style best suits you.`\
+https://www.nytimes.com/2026/05/12/t-magazine/spring-red-shoe-personality-quiz.html
+
 **The Hantavirus Outbreak Is Resurrecting Covid-Era Misinformation Tactics**\
 `Experts say A.I. tools have made it even easier for influencers and others to spread false messages online.`\
 https://www.nytimes.com/2026/05/12/well/hantavirus-covid-misinformation.html
