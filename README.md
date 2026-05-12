@@ -6,7 +6,7 @@ https://www.nytimes.com/video/opinion/100000010897318/tom-steyers-plan-to-fix-mo
 `The National Quarantine Unit in Nebraska is now the temporary home for many of the Americans who had been passengers on the MV Hondius.`\
 https://www.nytimes.com/2026/05/11/us/nebraska-quarantine-hantavirus-ship-americans.html
 
-**She’s a Sex Therapist Who Wants to Eradicate Zionism. She Could Cost Democrats a House Seat.**\
+**Democrats Can’t Let This Antisemitic Sex Therapist Win Her Runoff**\
 `Maureen Galindo’s rise demonstrates how even justified rage and despair can curdle into hateful paranoia.`\
 https://www.nytimes.com/2026/05/11/opinion/maureen-galindo-antisemitic-conspiracies.html
 

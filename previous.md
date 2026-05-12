@@ -1,3 +1,7 @@
+**Tom Steyer’s Plan to Fix Modular Housing**\
+`Why has modular housing failed to revolutionize the industry, despite decades of hype? Tom Steyer tells the Opinion columnist Ezra Klein why modular housing start-ups have failed and how California can use its scale to finally make home construction more affordable.`\
+https://www.nytimes.com/video/opinion/100000010897318/tom-steyers-plan-to-fix-modular-housing.html
+
 **Inside the Hantavirus Isolation Unit Where 15 Americans Wait**\
 `The National Quarantine Unit in Nebraska is now the temporary home for many of the Americans who had been passengers on the MV Hondius.`\
 https://www.nytimes.com/2026/05/11/us/nebraska-quarantine-hantavirus-ship-americans.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/us/100000010896694/lincoln-memorial-pool-repairs-t
 **Trump Nominates Ousted FEMA Leader to Run the Agency Again**\
 `President Trump chose Cameron Hamilton to direct federal disaster response. As acting head of FEMA last year, he had opposed abolishing the agency and was ousted.`\
 https://www.nytimes.com/2026/05/11/climate/trump-fema-cameron-hilton.html
-
-**Shady Shipping**\
-`The murkiness in the Strait of Hormuz reveals a darker side of global shipping: Some vessels don’t want to be found.`\
-https://www.nytimes.com/2026/05/11/world/strait-hormuz-spoofing-tankers-china-iran.html
 
