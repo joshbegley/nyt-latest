@@ -1,3 +1,7 @@
+**El turbio mundo del transporte marítimo**\
+`La opacidad que rodea al estrecho de Ormuz revela un lado oscuro del transporte marítimo mundial: algunos buques no quieren ser localizados.`\
+https://www.nytimes.com/es/2026/05/12/espanol/mundo/transporte-maritimo-estrecho-ormuz.html
+
 ****\
 ``\
 https://www.nytimes.com/video/embedded/world/europe/100000010898226/12vid-uk-cabinet-leaving-73315.html
