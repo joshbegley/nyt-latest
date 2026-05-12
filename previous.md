@@ -1,3 +1,7 @@
+**Joni Lamb, Whose Christian TV Station Went Global, Dies at 65**\
+`She and her husband, Marcus Lamb, founded Daystar Television Network, which reached more than 200 countries and made the couple into televangelism stars.`\
+https://www.nytimes.com/2026/05/12/business/media/joni-lamb-dead.html
+
 **La Unión Europea acuerda sancionar a los colonos israelíes**\
 `La medida, aplicada a los colonos por la violencia contra los palestinos, podría ser el comienzo de una nueva era en la que Europa será más severa con Israel.`\
 https://www.nytimes.com/es/2026/05/12/espanol/mundo/union-europea-sanciones-colonos-israel.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/05/12/espanol/deportes/mundial-futbol-fifa-parti
 **What to know about the report.**\
 ``\
 https://www.nytimes.com/live/2026/05/12/business/inflation-report-cpi/what-to-know-about-the-report
-
-**A Racist Remark About Jeffries Sets Off Democratic Anger in Virginia**\
-`Representative Jen Kiggans, a Republican in a tough re-election fight, faced criticism after she agreed with comments by a local radio host that included a racist line about Hakeem Jeffries, the Democratic minority leader.`\
-https://www.nytimes.com/2026/05/12/us/politics/jen-kiggans-jeffries-cotton-picking-virginia.html
 

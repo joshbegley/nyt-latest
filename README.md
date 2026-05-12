@@ -1,3 +1,7 @@
+**Kuwait Accuses Iran of Trying to Infiltrate Its Territory**\
+`Kuwait’s interior ministry said a group of armed Iranians arrived at Bubiyan Island in the Persian Gulf on May 1 aboard a rented fishing boat and exchanged fire with Kuwaiti soldiers.`\
+https://www.nytimes.com/2026/05/12/world/middleeast/kuwait-iran-bubiyan-island.html
+
 **Joni Lamb, Whose Christian TV Station Went Global, Dies at 65**\
 `She and her husband, Marcus Lamb, founded Daystar Television Network, which reached more than 200 countries and made the couple into televangelism stars.`\
 https://www.nytimes.com/2026/05/12/business/media/joni-lamb-dead.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/12/well/ivermectin-cancer-mel-gibson-joe-rogan.h
 **La acción antes de la acción en el Mundial**\
 `Antes de que comience la Copa Mundial de la FIFA el 11 de junio, hay mucho que ver mientras las mayores estrellas del fútbol global llegan a Norteamérica.`\
 https://www.nytimes.com/es/2026/05/12/espanol/deportes/mundial-futbol-fifa-partidos-previos.html
-
-**What to know about the report.**\
-``\
-https://www.nytimes.com/live/2026/05/12/business/inflation-report-cpi/what-to-know-about-the-report
 

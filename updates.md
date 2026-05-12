@@ -1,3 +1,7 @@
+**Joni Lamb, Whose Christian TV Station Went Global, Dies at 65**\
+`She and her husband, Marcus Lamb, founded Daystar Television Network, which reached more than 200 countries and made the couple into televangelism stars.`\
+https://www.nytimes.com/2026/05/12/business/media/joni-lamb-dead.html
+
 **La Unión Europea acuerda sancionar a los colonos israelíes**\
 `La medida, aplicada a los colonos por la violencia contra los palestinos, podría ser el comienzo de una nueva era en la que Europa será más severa con Israel.`\
 https://www.nytimes.com/es/2026/05/12/espanol/mundo/union-europea-sanciones-colonos-israel.html
