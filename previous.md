@@ -1,3 +1,7 @@
+**Two Critically Injured After Gunman Fires ‘Erratically’ Into Traffic in Cambridge, Mass.**\
+`As people fled their cars along the busy riverfront road, a state trooper and an armed civilian ran toward the gunman and exchanged fire with him.`\
+https://www.nytimes.com/2026/05/12/us/cambridge-boston-shooting-memorial-drive.html
+
 **Word of the Day: remonstrate**\
 `This word has appeared in one article on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/05/12/learning/word-of-the-day-remonstrate.html
@@ -26,7 +30,7 @@ https://www.nytimes.com/2026/05/12/world/europe/france-macron-weatherproof-burea
 `El dirigente ruso camina por la cuerda floja: reconoce el descontento de la opinión pública, pero no ofrece indicios de que pueda renunciar a sus exigencias.`\
 https://www.nytimes.com/es/2026/05/12/espanol/mundo/guerra-ucrania-putin-rusia.html
 
-**Xi Poised to Press Trump on Arms Sales to Taiwan**\
+**Xi Is Poised to Press Trump on Arms Sales to Taiwan**\
 `Beijing has called Taiwan the “core of China’s core interests.” Xi Jinping is likely to focus on getting President Trump to slow approval of more weapons for the self-governing island.`\
 https://www.nytimes.com/2026/05/12/world/asia/xi-trump-china-taiwan-arms-sales.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/11/us/politics/kari-lake-jamaica-ambassador.html
 **Bezos Family Gives $100 Million for Preschool Education in New York**\
 `Free child care is one of Mayor Zohran Mamdani’s top goals. Now the Bezos Foundation is giving Robin Hood, a favorite philanthropy of wealthy New Yorkers, big money for early childhood education.`\
 https://www.nytimes.com/2026/05/11/nyregion/bezos-donation-nyc-education-robin-hood.html
-
-**No Corrections: May 12, 2026**\
-`No corrections appeared in print on Tuesday, May 12, 2026.`\
-https://www.nytimes.com/2026/05/11/pageoneplus/no-corrections-may-12-2026.html
 
