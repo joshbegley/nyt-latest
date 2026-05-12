@@ -43,7 +43,7 @@ https://www.nytimes.com/2026/05/12/t-magazine/spring-red-shoe-personality-quiz.h
 https://www.nytimes.com/2026/05/12/well/hantavirus-covid-misinformation.html
 
 **South Carolina Lawmakers Halt Redistricting Efforts**\
-`Some state Republicans had been concerned that a new congressional map could backfire by making districts competitive for Democrats.`\
+`Some Republicans had worried that carving up the district held by Representative James E. Clyburn, the state’s only Democratic congressman, could backfire on them.`\
 https://www.nytimes.com/2026/05/12/us/south-carolina-redistricting-midterm-elections.html
 
 **A Shift in Ukraine**\

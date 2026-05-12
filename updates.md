@@ -1,3 +1,7 @@
+**South Carolina Lawmakers Halt Redistricting Efforts**\
+`Some Republicans had worried that carving up the district held by Representative James E. Clyburn, the state’s only Democratic congressman, could backfire on them.`\
+https://www.nytimes.com/2026/05/12/us/south-carolina-redistricting-midterm-elections.html
+
 **Inflation Accelerates as Iran War Drives Up Energy Costs**\
 `Also, Russia keeps attacking U.S. companies in Ukraine. Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/05/12/briefing/iran-war-costs-inflation.html
