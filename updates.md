@@ -1,3 +1,11 @@
+**¿Qué tan saludables son las alcachofas?**\
+`Las alcachofas son una de las verduras más infravaloradas, y no tienes que dominar las técnicas de cocina para disfrutarlas.`\
+https://www.nytimes.com/es/2026/05/12/espanol/alcachofas-que-tan-saludables.html
+
+**Two Critically Injured After Gunman Fires Into Traffic in Cambridge, Mass.**\
+`As people fled their cars along the busy riverfront road, a state trooper and an armed civilian ran toward the gunman and exchanged fire with him.`\
+https://www.nytimes.com/2026/05/12/us/cambridge-boston-shooting-memorial-drive.html
+
 **Trump Previews Issues He Plans to Raise With Xi**\
 `President Trump said he expected to speak to the Chinese leader, Xi Jinping, about a range of issues at a summit in Beijing, from the war in Iran to Jimmy Lai, an imprisoned Hong Kong media mogul.`\
 https://www.nytimes.com/video/world/asia/100000010897989/trump-xi-china-summit.html
