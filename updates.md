@@ -1,3 +1,15 @@
+**I Have Some Questions for the Democrats Who Want to Run California**\
+`How will the next governor make housing more affordable? The top five Democratic candidates in California discuss this issue at a forum moderated by Ezra Klein.`\
+https://www.nytimes.com/video/opinion/100000010897038/i-have-some-questions-for-the-democrats-who-want-to-run-california.html
+
+**Justice Dept. Subpoenas Wall Street Journal in Leak Investigation**\
+`Critics raised concerns over press freedom after The Journal disclosed receiving subpoenas related to an article on deliberations on the risks of military action in Iran.`\
+https://www.nytimes.com/2026/05/11/us/politics/subpoenas-wall-street-journal-trump.html
+
+**¿A qué países van los pasajeros del crucero afectado por el hantavirus?**\
+`Casi dos decenas de países están repatriando a ciudadanos que iban a bordo del MV Hondius, donde murieron tres pasajeros en un brote de hantavirus.`\
+https://www.nytimes.com/es/2026/05/11/espanol/mundo/hantavirus-crucero-lista-pasajeros-paises.html
+
 **Kari Lake, Who Led Effort to Shutter Voice of America, Is Named Ambassador to Jamaica**\
 `Ms. Lake tried and failed to fire hundreds of Voice of America journalists and to cut funding for other federally funded news groups like Radio Free Europe/Radio Liberty.`\
 https://www.nytimes.com/2026/05/11/us/politics/kari-lake-jamaica-ambassador.html
