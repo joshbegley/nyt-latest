@@ -1,3 +1,11 @@
+**Who Owns the Strait?**\
+`We take a look at the laws governing waterways.`\
+https://www.nytimes.com/2026/05/12/briefing/who-owns-the-strait.html
+
+**The Iran War Is Taking the Color Out of Japan’s Best-Known Snack Bags**\
+`The food giant Calbee said shortages of naphtha, a crude-oil derivative used in inks, were forcing it to switch to black-and-white packaging for its salty products.`\
+https://www.nytimes.com/2026/05/12/world/asia/calbee-japan-bags-iran-war.html
+
 **El turbio mundo del transporte marítimo**\
 `La opacidad que rodea al estrecho de Ormuz revela un lado oscuro del transporte marítimo mundial: algunos buques no quieren ser localizados.`\
 https://www.nytimes.com/es/2026/05/12/espanol/mundo/transporte-maritimo-estrecho-ormuz.html
