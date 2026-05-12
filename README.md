@@ -1,3 +1,7 @@
+**Day 1 in Quarantine: Tested for Hantavirus, Treated to Starbucks**\
+`Jake Rosmarin, a travel influencer from Boston, is one of 15 passengers from the virus-stricken cruise ship being monitored at the National Quarantine Unit in Nebraska.`\
+https://www.nytimes.com/2026/05/12/us/hantavirus-quarantine-nebraska-travel-influencer.html
+
 **Musk Lawyer’s Question for Sam Altman on the Stand: Are You Trustworthy?**\
 `Mr. Altman, the C.E.O. of OpenAI, said on Tuesday that he worried Elon Musk wanted control of the A.I. lab.`\
 https://www.nytimes.com/2026/05/12/technology/sam-altman-openai-trial-elon-musk-lawyers.html
@@ -31,7 +35,7 @@ https://www.nytimes.com/2026/05/12/arts/design/norton-simon-museum-galka-scheyer
 https://www.nytimes.com/2026/05/12/us/florida-alligator-alcatraz-detention-closure.html
 
 **Obama Enters Texas Senate Fight With Support for Talarico**\
-`The former president, who has looked to elevate a new generation of Democratic leaders, met with James Talarico as he tries to flip Texas.`\
+`The former president, who has looked to elevate a new generation of Democrat, met with James Talarico and a candidate for governor, Gina Hinojosa, who are trying to flip Texas.`\
 https://www.nytimes.com/2026/05/12/us/obama-james-talarico-texas-senate-2026-democrats.html
 
 **Drones Are Leading Cause of Civilian Deaths in Sudan War, U.N. Says**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/polls/michigan-us-house-7-polls-2026.html
 **Michigan Fourth Congressional District 2026: Latest Polls**\
 `Track the latest polls in Michigan's 4th Congressional District.`\
 https://www.nytimes.com/interactive/polls/michigan-us-house-4-polls-2026.html
-
-**Nebraska Secretary of State Primary Election Results**\
-`Get live results and maps from the 2026 Nebraska primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-nebraska-secretary-of-state-primary.html
 

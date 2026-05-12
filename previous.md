@@ -1,3 +1,7 @@
+**Musk Lawyer’s Question for Sam Altman on the Stand: Are You Trustworthy?**\
+`Mr. Altman, the C.E.O. of OpenAI, said on Tuesday that he worried Elon Musk wanted control of the A.I. lab.`\
+https://www.nytimes.com/2026/05/12/technology/sam-altman-openai-trial-elon-musk-lawyers.html
+
 **In Chicago, a Big Name Art Show Where the Drawings Dominate**\
 `In an exception to the usual paintings-heavy blockbuster exhibitions, the Art Institute of Chicago is presenting the masterful drawings of Willem de Kooning.`\
 https://www.nytimes.com/2026/05/12/arts/design/willem-de-kooning-drawings-chicago-art-institute.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/polls/michigan-us-house-4-polls-2026.html
 **Nebraska Secretary of State Primary Election Results**\
 `Get live results and maps from the 2026 Nebraska primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-nebraska-secretary-of-state-primary.html
-
-**Nebraska Auditor Primary Election Results**\
-`Get live results and maps from the 2026 Nebraska primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-nebraska-auditor-primary.html
 
