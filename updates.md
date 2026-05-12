@@ -1,3 +1,15 @@
+**20-Minute Dinners for When You Are Dunzo**\
+`The dead-simple dinners — like halloumi tacos and creamy cabbage pastina — we turn to when Maycember ramps up.`\
+https://www.nytimes.com/2026/05/12/dining/20-minute-dinners-for-when-you-are-dunzo.html
+
+**More Cancer Patients Are Taking Ivermectin. Mel Gibson and Joe Rogan Might Be Why.**\
+`Prescriptions for antiparasitic drugs spiked after the actor claimed it cured his friends of cancer, a new study finds.`\
+https://www.nytimes.com/2026/05/12/well/ivermectin-cancer-mel-gibson-joe-rogan.html
+
+**La acción antes de la acción en el Mundial**\
+`Antes de que comience la Copa Mundial de la FIFA el 11 de junio, hay mucho que ver mientras las mayores estrellas del fútbol global llegan a Norteamérica.`\
+https://www.nytimes.com/es/2026/05/12/espanol/deportes/mundial-futbol-fifa-partidos-previos.html
+
 **What to know about the report.**\
 ``\
 https://www.nytimes.com/live/2026/05/12/business/inflation-report-cpi/what-to-know-about-the-report
