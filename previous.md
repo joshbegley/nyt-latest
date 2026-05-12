@@ -1,3 +1,39 @@
+****\
+``\
+https://www.nytimes.com/video/embedded/world/europe/100000010898226/12vid-uk-cabinet-leaving-73315.html
+
+**Britain’s Starmer Faces Calls to Resign. What Options Does He Have?**\
+`Prime Minister Keir Starmer vowed to continue in office on Tuesday morning. It’s one of several possible paths for the embattled leader after heavy losses in local elections.`\
+https://www.nytimes.com/2026/05/12/world/europe/uk-starmer-resign-prime-minister-what-options.html
+
+**EBay Rejects GameStop’s $55 Billion Takeover Bid**\
+`The online marketplace called the cash-and-stock proposal “neither credible nor attractive.”`\
+https://www.nytimes.com/2026/05/12/business/ebay-gamestops-takeover.html
+
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/05/12/world/iran-war-trump-ceasefire-hormuz/heres-the-latest
+
+**Why More Americans Are Seeking Religion**\
+`The United States seems to be revisiting the role of faith. In essence, secularization is on pause.`\
+https://www.nytimes.com/2026/05/12/podcasts/the-daily/americans-religion-believing.html
+
+**How Iran’s Internet Blackout Is Crippling Its Economy, and the Fight Over Fruit-Flavored Vapes**\
+`Plus, how everything became a subscription.`\
+https://www.nytimes.com/2026/05/12/podcasts/the-headlines/iran-internet-blackout-ieconomy-fruit-flavored-vapes.html
+
+**Connections Companion No. 1,067**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, May 13, 2026.`\
+https://www.nytimes.com/2026/05/12/crosswords/connections-companion-1067.html
+
+**Strands Sidekick No. 801**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, May 13, 2026.`\
+https://www.nytimes.com/2026/05/12/crosswords/strands-sidekick-801.html
+
+**Wordle Review No. 1,789**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, May 13, 2026.`\
+https://www.nytimes.com/2026/05/12/crosswords/wordle-review-1789.html
+
 **Who Might Challenge Starmer in a Leadership Contest?**\
 `Health Secretary Wes Streeting, Mayor of Greater Manchester Andy Burnham and former deputy prime minister Angela Rayner are among possible contenders.`\
 https://www.nytimes.com/2026/05/12/world/europe/who-could-replace-starmer-uk-prime-minister.html
@@ -41,40 +77,4 @@ https://www.nytimes.com/2026/05/12/technology/amp-startup.html
 **Watching ‘The Devil Wears Prada 2’ as an Elegy for Magazines**\
 `The film may be about fashion, but for some editors and writers, it gets a lot right about the dire state of fashion journalism.`\
 https://www.nytimes.com/2026/05/12/movies/devil-wears-prada-2-magazine.html
-
-**Oil Prices Rise on U.S.-Iran Standoff**\
-`President Trump has declared the American cease-fire with Iran is on “life support,” and investors are taking a cautious approach as the lack of progress in peace talks weighs on the markets.`\
-https://www.nytimes.com/2026/05/12/business/oil-prices-rise-us-iran.html
-
-**Did Epstein Actually Write That Suicide Note? Here’s How We Tried to Find Out.**\
-`Three New York Times reporters discuss the steps they have taken to learn more about a note found in Jeffrey Epstein’s jail cell in the weeks before his death.`\
-https://www.nytimes.com/2026/05/12/insider/epstein-suicide-note-authentication.html
-
-**Hacky Sack Mounts a Comeback With Gen Z**\
-`Teenagers are booting the game out of the 1990s. “It’s kind of bringing everybody together,” one said.`\
-https://www.nytimes.com/2026/05/12/style/hacky-sack-gen-z.html
-
-**What to Watch in Tuesday’s Primaries in Nebraska and West Virginia**\
-`Democrats will choose a candidate in a House battleground in Nebraska, and an unusual Senate primary could decide the fate of Omaha’s “blue dot” vote.`\
-https://www.nytimes.com/2026/05/12/us/politics/what-to-watch-nebraska-west-virginia-primaries.html
-
-**What to Know About the New Obsession With Testosterone**\
-`From politics to influencers and beyond, the hormone is being used not just for medical reasons but in pursuit of a new masculine ideal.`\
-https://www.nytimes.com/2026/05/12/magazine/what-to-know-testosterone-masculinity.html
-
-**The War in Iran Is Another Blow to Russia’s Credibility. Or Is It?**\
-`Despite its long slog in Ukraine and the loss of former allies like Syria, Russia is benefiting from costly energy, a clever narrative and America’s own failure to achieve a quick victory.`\
-https://www.nytimes.com/2026/05/12/world/europe/russia-europe-ukraine-syria-iran.html
-
-**Barney Frank, in Hospice, Has Advice for the Democrats**\
-`Mr. Frank speaks about the missteps of the Democratic Party and his hope for its future. “Frankly, if I weren’t dying, people wouldn’t be paying as much attention.”`\
-https://www.nytimes.com/2026/05/12/us/barney-frank-congress-democrats-advice.html
-
-**For 10 Years, They’ve Been Building a Future for Female Composers**\
-`Missy Mazzoli and Ellen Reid didn’t have female mentors. They founded Luna Composition Lab so young composers would.`\
-https://www.nytimes.com/2026/05/12/arts/music/luna-composition-lab.html
-
-**Your Decision Making Is All Wrong**\
-`Why searching for the best is the wrong goal.`\
-https://www.nytimes.com/2026/05/12/opinion/decision-making-herbert-simon.html
 

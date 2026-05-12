@@ -1,3 +1,39 @@
+****\
+``\
+https://www.nytimes.com/video/embedded/world/europe/100000010898226/12vid-uk-cabinet-leaving-73315.html
+
+**Britain’s Starmer Faces Calls to Resign. What Options Does He Have?**\
+`Prime Minister Keir Starmer vowed to continue in office on Tuesday morning. It’s one of several possible paths for the embattled leader after heavy losses in local elections.`\
+https://www.nytimes.com/2026/05/12/world/europe/uk-starmer-resign-prime-minister-what-options.html
+
+**EBay Rejects GameStop’s $55 Billion Takeover Bid**\
+`The online marketplace called the cash-and-stock proposal “neither credible nor attractive.”`\
+https://www.nytimes.com/2026/05/12/business/ebay-gamestops-takeover.html
+
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/05/12/world/iran-war-trump-ceasefire-hormuz/heres-the-latest
+
+**Why More Americans Are Seeking Religion**\
+`The United States seems to be revisiting the role of faith. In essence, secularization is on pause.`\
+https://www.nytimes.com/2026/05/12/podcasts/the-daily/americans-religion-believing.html
+
+**How Iran’s Internet Blackout Is Crippling Its Economy, and the Fight Over Fruit-Flavored Vapes**\
+`Plus, how everything became a subscription.`\
+https://www.nytimes.com/2026/05/12/podcasts/the-headlines/iran-internet-blackout-ieconomy-fruit-flavored-vapes.html
+
+**Connections Companion No. 1,067**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, May 13, 2026.`\
+https://www.nytimes.com/2026/05/12/crosswords/connections-companion-1067.html
+
+**Strands Sidekick No. 801**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, May 13, 2026.`\
+https://www.nytimes.com/2026/05/12/crosswords/strands-sidekick-801.html
+
+**Wordle Review No. 1,789**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, May 13, 2026.`\
+https://www.nytimes.com/2026/05/12/crosswords/wordle-review-1789.html
+
 **Who Might Challenge Starmer in a Leadership Contest?**\
 `Health Secretary Wes Streeting, Mayor of Greater Manchester Andy Burnham and former deputy prime minister Angela Rayner are among possible contenders.`\
 https://www.nytimes.com/2026/05/12/world/europe/who-could-replace-starmer-uk-prime-minister.html
