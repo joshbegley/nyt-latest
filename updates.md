@@ -1,3 +1,7 @@
+**How Much Power Did Microsoft Have Over OpenAI?**\
+`The technology giant’s chief executive faced a grilling in court over whether it exerted too much control over what was meant to be an A.I. nonprofit.`\
+https://www.nytimes.com/2026/05/12/business/dealbook/nadella-microsoft-openai-musk-trial.html
+
 **Oregon Prepares for a Challenging Summer of Water Shortages and High Fire Risk**\
 `After a warm winter that brought more rain than snow, the state’s snowpack was the lowest it has ever been.`\
 https://www.nytimes.com/2026/05/12/us/oregon-fire-season-drought-washington-idaho.html

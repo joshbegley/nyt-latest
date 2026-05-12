@@ -1,3 +1,7 @@
+**How Much Power Did Microsoft Have Over OpenAI?**\
+`The technology giant’s chief executive faced a grilling in court over whether it exerted too much control over what was meant to be an A.I. nonprofit.`\
+https://www.nytimes.com/2026/05/12/business/dealbook/nadella-microsoft-openai-musk-trial.html
+
 **Oregon Prepares for a Challenging Summer of Water Shortages and High Fire Risk**\
 `After a warm winter that brought more rain than snow, the state’s snowpack was the lowest it has ever been.`\
 https://www.nytimes.com/2026/05/12/us/oregon-fire-season-drought-washington-idaho.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/05/12/espanol/opinion/embargo-cuba.html
 **Trump Is Fighting the World’s Stupidest Culture War**\
 `“He sees fossil fuels as manly and renewables as woke.”`\
 https://www.nytimes.com/2026/05/12/opinion/trump-is-fighting-the-worlds-stupidest-culture-war.html
-
-**We Should Take Hantavirus More Seriously**\
-`There are too many unknowns to be certain about much.`\
-https://www.nytimes.com/2026/05/12/opinion/hantavirus-complacency.html
 
