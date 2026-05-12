@@ -1,3 +1,7 @@
+**Amor Towles Shares Insights on His Own Rare Book Collection**\
+`The best-selling author and collector explains what draws him to add to his own bookshelves.`\
+https://www.nytimes.com/2026/05/12/books/amor-towles-rare-books.html
+
 **Revolution and Rarities: An Intriguing Combination at the Firsts London Book Fair**\
 `What to expect at the book fair in the Saatchi Gallery.`\
 https://www.nytimes.com/2026/05/12/books/firsts-london-book-fair.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/05/12/espanol/mundo/union-europea-sanciones-colo
 **Unapologetic Foods Is Slinging Filipino Sandwiches at Sanwits**\
 `The East Village spot offers seven styles, a South American tavern in North Brooklyn and more restaurant news.`\
 https://www.nytimes.com/2026/05/12/dining/nyc-restaurant-news.html
-
-**Is Anthropic’s New A.I. Really That Scary? It Depends Whom You Ask.**\
-`Anthropic said that Claude Mythos was too dangerous to release to the public. That claim has reopened an old debate over cybersecurity.`\
-https://www.nytimes.com/2026/05/12/technology/anthropic-claude-mythos.html
 
