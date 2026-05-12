@@ -1,3 +1,7 @@
+**Who Might Challenge Starmer in a Leadership Contest?**\
+`Health secretary Wes Streeting, mayor of Greater Manchester Andy Burnham and former deputy prime minister Angela Rayner are among possible contenders.`\
+https://www.nytimes.com/2026/05/12/world/europe/who-might-challenge-starmer-in-a-leadership-contest.html
+
 **It’s the End of LIV Golf as We Knew It (and Trump Feels Fine)**\
 `Journalist Alan Shipnuck explains what we really learned from Saudi Arabia’s multibillion-dollar golf experiment.`\
 https://www.nytimes.com/2026/05/12/podcasts/liv-golf-saudi-arabia.html
