@@ -1,3 +1,23 @@
+**Kari Lake, Who Led Effort to Shutter Voice of America, Is Named Ambassador to Jamaica**\
+`Ms. Lake tried and failed to fire hundreds of Voice of America journalists and to cut funding for other federally funded news groups like Radio Free Europe/Radio Liberty.`\
+https://www.nytimes.com/2026/05/11/us/politics/kari-lake-who-led-effort-to-shutter-voice-of-america-is-named-ambassador-to-jamaica.html
+
+**Bezos Family Gives $100 Million for Preschool Education in New York**\
+`Free child care is one of Mayor Zohran Mamdani’s top goals. Now the Bezos Foundation is giving Robin Hood, a favorite philanthropy of wealthy New Yorkers, big money for early childhood education.`\
+https://www.nytimes.com/2026/05/11/nyregion/bezos-donation-nyc-education-robin-hood.html
+
+**No Corrections: May 12, 2026**\
+`No corrections appeared in print on Tuesday, May 12, 2026.`\
+https://www.nytimes.com/2026/05/11/pageoneplus/no-corrections-may-12-2026.html
+
+**San Jose’s Approach to Homelessness**\
+`San Jose’s mayor, Matt Mahan, tells the Opinion columnist Ezra Klein why California’s reliance on expensive, slow-moving affordable-housing projects has eroded public trust, and argues for a “radically pragmatic” shift toward interim housing and stricter encampment enforcement.`\
+https://www.nytimes.com/video/opinion/100000010897310/san-joses-approach-to-homelessness.html
+
+**California Mayor Will Plead Guilty to Working as Agent of China**\
+`Eileen Wang, who resigned Monday as the mayor of Arcadia, Calif., published propaganda on a purported news site under direction from Chinese officials, prosecutors said.`\
+https://www.nytimes.com/2026/05/11/us/arcadia-california-mayor-chinese-agent.html
+
 **Katie Porter on the California Forever Project**\
 `How would Katie Porter, a Democratic candidate for California governor, navigate the billionaire-backed California Forever project if elected? She discusses her approach with the Opinion columnist Ezra Klein during a live forum.`\
 https://www.nytimes.com/video/opinion/100000010897292/katie-porter-on-the-california-forever-project.html
