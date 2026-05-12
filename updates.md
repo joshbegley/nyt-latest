@@ -1,3 +1,7 @@
+**Stephen Colbert Hosts 4 of His ‘Best Television Friends’**\
+`Jimmy Kimmel, Jimmy Fallon, John Oliver and Seth Meyers, co-hosts of the Strike Force Five podcast along with Colbert, joined as guests on what is likely their last appearance together on the “Late Show.”`\
+https://www.nytimes.com/2026/05/12/arts/television/stephen-colbert-strike-force-five.html
+
 **Two Critically Injured After Gunman Fires ‘Erratically’ Into Traffic in Cambridge, Mass.**\
 `As people fled their cars along the busy riverfront road, a state trooper and an armed civilian ran toward the gunman and exchanged fire with him.`\
 https://www.nytimes.com/2026/05/12/us/cambridge-boston-shooting-memorial-drive.html
