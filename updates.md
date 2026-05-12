@@ -1,3 +1,7 @@
+**Democrats Can’t Let This Antisemitic Sex Therapist Win Her Runoff**\
+`Maureen Galindo’s rise demonstrates how even justified rage and despair can curdle into hateful paranoia.`\
+https://www.nytimes.com/2026/05/11/opinion/maureen-galindo-antisemitic-conspiracies.html
+
 **Tom Steyer’s Plan to Fix Modular Housing**\
 `Why has modular housing failed to revolutionize the industry, despite decades of hype? Tom Steyer tells the Opinion columnist Ezra Klein why modular housing start-ups have failed and how California can use its scale to finally make home construction more affordable.`\
 https://www.nytimes.com/video/opinion/100000010897318/tom-steyers-plan-to-fix-modular-housing.html
