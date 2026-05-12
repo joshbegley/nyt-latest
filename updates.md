@@ -1,3 +1,11 @@
+**Jason Collins, First Active N.B.A. Player to Come Out as Gay, Dies at 47**\
+`His achievements on the court were eclipsed by an essay he wrote in Sports Illustrated in 2013 in which he declared: “I’m a 34-year-old N.B.A. center. I’m Black and I’m gay.”`\
+https://www.nytimes.com/2026/05/12/us/jason-collins-dead.html
+
+**Kids Review “American Girls” by Harry Styles**\
+`We weren’t sure what to make of Harry Styles’s “American Girls,” so we asked the next generation of music critics. The kids break it down with our critic Jon Caramanica on this special edition of the “Popcast” Song of the Week.`\
+https://www.nytimes.com/video/podcasts/100000010899770/kids-review-american-girls-by-harry-styles.html
+
 **West Virginia Primary Election Results**\
 `Get live results and maps from the 2026 West Virginia primary elections.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-west-virginia-primary.html

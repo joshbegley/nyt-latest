@@ -1,3 +1,11 @@
+**Jason Collins, First Active N.B.A. Player to Come Out as Gay, Dies at 47**\
+`His achievements on the court were eclipsed by an essay he wrote in Sports Illustrated in 2013 in which he declared: “I’m a 34-year-old N.B.A. center. I’m Black and I’m gay.”`\
+https://www.nytimes.com/2026/05/12/us/jason-collins-dead.html
+
+**Kids Review “American Girls” by Harry Styles**\
+`We weren’t sure what to make of Harry Styles’s “American Girls,” so we asked the next generation of music critics. The kids break it down with our critic Jon Caramanica on this special edition of the “Popcast” Song of the Week.`\
+https://www.nytimes.com/video/podcasts/100000010899770/kids-review-american-girls-by-harry-styles.html
+
 **West Virginia Primary Election Results**\
 `Get live results and maps from the 2026 West Virginia primary elections.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-west-virginia-primary.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/12/us/politics/secret-service-ballroom.html
 **Pentagon Increases Iran War Cost Estimate to $29 billion**\
 `The Pentagon put the cost of the war in Iran at roughly $29 billion, during testimony by Defense Secretary Pete Hegseth at hearings on the Pentagon’s $1.5 trillion budget request. Mr. Hegseth repeatedly refused to tell lawmakers how much money he would request to fund the war.`\
 https://www.nytimes.com/video/us/politics/100000010899711/pentagon-iran-war-costs.html
-
-**Trump Administration Expected to Tap Longtime ICE Official to Lead Agency**\
-`David Venturella’s expected appointment is in line with a push by Markwayne Mullin, the homeland security secretary, to keep his department under the radar and out of headlines.`\
-https://www.nytimes.com/2026/05/12/us/politics/ice-david-venturella-trump.html
-
-**Inflation Accelerates as Iran War Drives Up Energy Costs**\
-`Also, Russia keeps attacking U.S. companies in Ukraine. Here’s the latest at the end of Tuesday.`\
-https://www.nytimes.com/2026/05/12/briefing/iran-war-costs-inflation.html
 
