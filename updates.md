@@ -1,3 +1,11 @@
+**Maker of Canvas Learning Platform Strikes Deal for Hackers to Return Data**\
+`Instructure, which provides Canvas software to thousands of schools and universities around the world, did not say what it had given the hackers in exchange for the stolen data.`\
+https://www.nytimes.com/2026/05/12/us/canvas-instructure-hackers-deal.html
+
+**China Seeks A.I. Independence, Weakening Trump’s Leverage**\
+`Before this week’s U.S.-Chinese summit, Beijing reached a milestone in its quest for technological self-sufficiency.`\
+https://www.nytimes.com/2026/05/12/business/china-semiconductor-ai-deepseek.html
+
 **Spain’s Leader Is Showing How to Stand Up to Trump, and So Much More**\
 `Pedro Sánchez has established an alternative governing philosophy to Trumpism.`\
 https://www.nytimes.com/2026/05/12/opinion/sanchez-trump-spain-europe.html
