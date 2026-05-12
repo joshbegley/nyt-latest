@@ -1,3 +1,15 @@
+**I Have Some Questions for the Democrats Who Want to Run California**\
+`How will the next governor make housing more affordable? The top five Democratic candidates in California discuss this issue at a forum moderated by Ezra Klein.`\
+https://www.nytimes.com/video/opinion/100000010897038/i-have-some-questions-for-the-democrats-who-want-to-run-california.html
+
+**Justice Dept. Subpoenas Wall Street Journal in Leak Investigation**\
+`Critics raised concerns over press freedom after The Journal disclosed receiving subpoenas related to an article on deliberations on the risks of military action in Iran.`\
+https://www.nytimes.com/2026/05/11/us/politics/subpoenas-wall-street-journal-trump.html
+
+**¿A qué países van los pasajeros del crucero afectado por el hantavirus?**\
+`Casi dos decenas de países están repatriando a ciudadanos que iban a bordo del MV Hondius, donde murieron tres pasajeros en un brote de hantavirus.`\
+https://www.nytimes.com/es/2026/05/11/espanol/mundo/hantavirus-crucero-lista-pasajeros-paises.html
+
 **Kari Lake, Who Led Effort to Shutter Voice of America, Is Named Ambassador to Jamaica**\
 `Ms. Lake tried and failed to fire hundreds of Voice of America journalists and to cut funding for other federally funded news groups like Radio Free Europe/Radio Liberty.`\
 https://www.nytimes.com/2026/05/11/us/politics/kari-lake-jamaica-ambassador.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/11/briefing/trump-gas-tax-iran-truce.html
 **Former Hostage Calls on All of Israel’s Government to Resign**\
 `Rom Braslavski, who said he had endured starvation, torture and sexual abuse during two-year captivity, demanded that members “take responsibility and get out of our lives.”`\
 https://www.nytimes.com/2026/05/11/world/middleeast/israel-hostage-demands-government-resign.html
-
-**¿Eres frágil?**\
-`Te decimos cómo se diagnostica la fragilidad, en qué se diferencia del envejecimiento normal, qué te pone en riesgo de volverte frágil y qué hacer al respecto.`\
-https://www.nytimes.com/es/2026/05/11/espanol/fragilidad-vejez-que-es.html
-
-**Trump Calls Iran’s Counterproposal a ‘Piece of Garbage’**\
-`President Trump told reporters the Iran cease-fire was “on life support” on Monday after he rejected Iran’s counterproposal for a peace deal this weekend.`\
-https://www.nytimes.com/video/world/middleeast/100000010896706/iran-us-ceasefire-trump.html
-
-**The Iran War’s Alarming Ripple Effects**\
-`The downstream effects of the Iran war are only beginning. On “The Opinions,” David Wallace-Wells explains how disruptions tied to fertilizer, condoms and other global goods could contribute to famine, disease and rising costs worldwide.`\
-https://www.nytimes.com/video/opinion/100000010889365/the-iran-wars-alarming-ripple-effects.html
 
