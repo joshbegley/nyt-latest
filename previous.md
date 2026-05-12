@@ -1,3 +1,7 @@
+**Gardening**\
+`Have you ever planted anything? If not, would you like to start?`\
+https://www.nytimes.com/2026/05/12/learning/gardening.html
+
 **Who Owns the Strait?**\
 `We take a look at the laws governing waterways.`\
 https://www.nytimes.com/2026/05/12/briefing/who-owns-the-strait.html
@@ -19,8 +23,8 @@ https://www.nytimes.com/video/embedded/world/europe/100000010898226/12vid-uk-cab
 https://www.nytimes.com/2026/05/12/world/europe/uk-starmer-resign-prime-minister-what-options.html
 
 **EBay Rejects GameStop’s $55 Billion Takeover Bid**\
-`The online marketplace called the cash-and-stock proposal “neither credible nor attractive.”`\
-https://www.nytimes.com/2026/05/12/business/ebay-gamestops-takeover.html
+`The online marketplace eBay called the cash-and-stock proposal “neither credible nor attractive.”`\
+https://www.nytimes.com/2026/05/12/business/ebay-gamestop-takeover.html
 
 **Here’s the latest.**\
 ``\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/12/arts/netflix-is-a-joke-kevin-hart-john-mulane
 **China Sought Access to Anthropic’s Newest A.I. The Answer Was No.**\
 `The latest artificial intelligence models from Anthropic and OpenAI are extending the United States’ lead over China and intensifying the rivalry between the countries.`\
 https://www.nytimes.com/2026/05/12/us/politics/china-ai-anthropic-openai-mythos-chatgpt.html
-
-**Getting New York’s Piers Ready for the ‘Semiquin’ on July 4**\
-`The city expects 45 tall ships from 20 nations for the 250th anniversary celebration. Where will they dock?`\
-https://www.nytimes.com/2026/05/12/nyregion/piers-july-4-semiquincentennial.html
 

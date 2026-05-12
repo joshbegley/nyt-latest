@@ -1,3 +1,11 @@
+**Gardening**\
+`Have you ever planted anything? If not, would you like to start?`\
+https://www.nytimes.com/2026/05/12/learning/gardening.html
+
+**EBay Rejects GameStop’s $55 Billion Takeover Bid**\
+`The online marketplace eBay called the cash-and-stock proposal “neither credible nor attractive.”`\
+https://www.nytimes.com/2026/05/12/business/ebay-gamestop-takeover.html
+
 **Who Owns the Strait?**\
 `We take a look at the laws governing waterways.`\
 https://www.nytimes.com/2026/05/12/briefing/who-owns-the-strait.html
