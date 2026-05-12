@@ -34,8 +34,8 @@ https://www.nytimes.com/video/world/europe/100000010898223/keir-starmer-prime-mi
 `Steve Hilton, a Republican front-runner for governor, posted a video of his Del Taco order. Social media users accused him of misunderstanding the state’s Mexican food culture.`\
 https://www.nytimes.com/2026/05/12/us/california-candidate-steve-hilton-street-taco.html
 
-**Inflation Accelerates After Weeks of War in Iran**\
-`The Consumer Price Index rose 3.8% in April from a year earlier as higher energy costs replaced tariffs as the driver of higher prices for Americans.`\
+**What to know about the report.**\
+`The consumer price index increased X.X% in April from a year earlier as higher energy costs raised a range of prices for Americans.`\
 https://www.nytimes.com/live/2026/05/12/business/inflation-report-cpi/cpi-inflation-report-consumer-prices
 
 **Labour’s deep losses in local elections reflect a shift in the public mood.**\
