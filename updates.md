@@ -1,3 +1,35 @@
+**12 Ways to Eat Through Our List of the Best Restaurants in New York City**\
+`Don’t have the time (or money) to try all 100? Here are a dozen bite-size bucket lists to inspire you.`\
+https://www.nytimes.com/2026/05/12/dining/nyc-restaurants-user-guide.html
+
+**Is France’s Centrist Leader Trying to Weatherproof It From the Far Right?**\
+`President Emmanuel Macron has appointed a string of allies who will remain in critical state positions after next year’s presidential election, and who could thwart a far-right successor.`\
+https://www.nytimes.com/2026/05/12/world/europe/france-macron-weatherproof-bureaucracy.html
+
+**Putin dijo que la guerra ‘está llegando a su fin’, pero no cede en sus términos**\
+`El dirigente ruso camina por la cuerda floja: reconoce el descontento de la opinión pública, pero no ofrece indicios de que pueda renunciar a sus exigencias.`\
+https://www.nytimes.com/es/2026/05/12/espanol/mundo/guerra-ucrania-putin-rusia.html
+
+**Xi Poised to Press Trump on Arms Sales to Taiwan**\
+`Beijing has called Taiwan the “core of China’s core interests.” Xi Jinping is likely to focus on getting President Trump to slow approval of more weapons for the self-governing island.`\
+https://www.nytimes.com/2026/05/12/world/asia/xi-trump-china-taiwan-arms-sales.html
+
+**Chinese A.I. Firms Push Beyond Nvidia as DeepSeek Turns to Huawei**\
+`Before this week’s U.S.-Chinese summit, Beijing reached a milestone in its quest for technological self-sufficiency.`\
+https://www.nytimes.com/2026/05/12/business/china-semiconductor-ai-deepseek.html
+
+**The Altar Boy Who Refused to Hush Up**\
+`Michal Gatchalian dared to speak out against sexual abuse by a priest in the devoutly Catholic Philippines. He’s now a lawyer helping other victims.`\
+https://www.nytimes.com/2026/05/12/world/asia/philippines-catholic-church-sex-abuse.html
+
+**China Increasingly Views Trump’s America as an Empire in Decline**\
+`For decades, many Chinese viewed the United States with a mix of admiration, envy and resentment. President Trump’s volatile second term shattered that image.`\
+https://www.nytimes.com/2026/05/12/business/china-trump-xi-decline.html
+
+**Quote of the Day: What Asia Fears Most On Summit**\
+`Quotation of the Day for Wednesday, May 12, 2026.`\
+https://www.nytimes.com/2026/05/11/pageoneplus/quote-of-the-day-what-asia-fears-most-on-summit.html
+
 **Judge Again Delays Guantánamo’s First Death-Penalty Terror Trial**\
 `The 2000 terrorism case has been going on for so long that the parents of fallen sailors and shipmates who survived the attack have died.`\
 https://www.nytimes.com/2026/05/11/us/politics/guantanamo-cole-death-penalty.html

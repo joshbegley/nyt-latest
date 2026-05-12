@@ -1,3 +1,35 @@
+**12 Ways to Eat Through Our List of the Best Restaurants in New York City**\
+`Don’t have the time (or money) to try all 100? Here are a dozen bite-size bucket lists to inspire you.`\
+https://www.nytimes.com/2026/05/12/dining/nyc-restaurants-user-guide.html
+
+**Is France’s Centrist Leader Trying to Weatherproof It From the Far Right?**\
+`President Emmanuel Macron has appointed a string of allies who will remain in critical state positions after next year’s presidential election, and who could thwart a far-right successor.`\
+https://www.nytimes.com/2026/05/12/world/europe/france-macron-weatherproof-bureaucracy.html
+
+**Putin dijo que la guerra ‘está llegando a su fin’, pero no cede en sus términos**\
+`El dirigente ruso camina por la cuerda floja: reconoce el descontento de la opinión pública, pero no ofrece indicios de que pueda renunciar a sus exigencias.`\
+https://www.nytimes.com/es/2026/05/12/espanol/mundo/guerra-ucrania-putin-rusia.html
+
+**Xi Poised to Press Trump on Arms Sales to Taiwan**\
+`Beijing has called Taiwan the “core of China’s core interests.” Xi Jinping is likely to focus on getting President Trump to slow approval of more weapons for the self-governing island.`\
+https://www.nytimes.com/2026/05/12/world/asia/xi-trump-china-taiwan-arms-sales.html
+
+**Chinese A.I. Firms Push Beyond Nvidia as DeepSeek Turns to Huawei**\
+`Before this week’s U.S.-Chinese summit, Beijing reached a milestone in its quest for technological self-sufficiency.`\
+https://www.nytimes.com/2026/05/12/business/china-semiconductor-ai-deepseek.html
+
+**The Altar Boy Who Refused to Hush Up**\
+`Michal Gatchalian dared to speak out against sexual abuse by a priest in the devoutly Catholic Philippines. He’s now a lawyer helping other victims.`\
+https://www.nytimes.com/2026/05/12/world/asia/philippines-catholic-church-sex-abuse.html
+
+**China Increasingly Views Trump’s America as an Empire in Decline**\
+`For decades, many Chinese viewed the United States with a mix of admiration, envy and resentment. President Trump’s volatile second term shattered that image.`\
+https://www.nytimes.com/2026/05/12/business/china-trump-xi-decline.html
+
+**Quote of the Day: What Asia Fears Most On Summit**\
+`Quotation of the Day for Wednesday, May 12, 2026.`\
+https://www.nytimes.com/2026/05/11/pageoneplus/quote-of-the-day-what-asia-fears-most-on-summit.html
+
 **Judge Again Delays Guantánamo’s First Death-Penalty Terror Trial**\
 `The 2000 terrorism case has been going on for so long that the parents of fallen sailors and shipmates who survived the attack have died.`\
 https://www.nytimes.com/2026/05/11/us/politics/guantanamo-cole-death-penalty.html
@@ -45,36 +77,4 @@ https://www.nytimes.com/video/opinion/100000010897292/katie-porter-on-the-califo
 **Tom Steyer’s Plan to Fix Modular Housing**\
 `Why has modular housing failed to revolutionize the industry, despite decades of hype? Tom Steyer tells the Opinion columnist Ezra Klein why modular housing start-ups have failed and how California can use its scale to finally make home construction more affordable.`\
 https://www.nytimes.com/video/opinion/100000010897318/tom-steyers-plan-to-fix-modular-housing.html
-
-**Inside the Hantavirus Isolation Unit Where 15 Americans Wait**\
-`The National Quarantine Unit in Nebraska is now the temporary home for many of the Americans who had been passengers on the MV Hondius.`\
-https://www.nytimes.com/2026/05/11/us/nebraska-quarantine-hantavirus-ship-americans.html
-
-**Democrats Can’t Let This Antisemitic Sex Therapist Win Her Runoff**\
-`Maureen Galindo’s rise demonstrates how even justified rage and despair can curdle into hateful paranoia.`\
-https://www.nytimes.com/2026/05/11/opinion/maureen-galindo-antisemitic-conspiracies.html
-
-**1-Year-Old Boy Killed in Bronx Fire**\
-`Two other children, 6-year-old twins, were critically injured in the fire at an apartment building in the Fordham neighborhood, the police said.`\
-https://www.nytimes.com/2026/05/11/nyregion/bronx-fire-apartment-death.html
-
-**Supreme Court Clears Path for Alabama to Use New Voting Map**\
-`A majority of the justices sided with Alabama in a move that could speed up efforts to put in place a congressional district map that would eliminate a majority-Black district.`\
-https://www.nytimes.com/2026/05/11/us/politics/supreme-court-alabama-map.html
-
-**Student New Quiz: National Debt, Teen Takeovers, Sea Lion**\
-`Have you been paying attention to current events recently? See how well you can do on this week’s news quiz for students.`\
-https://www.nytimes.com/interactive/2026/05/11/learning/11StudentNewsQuiz.html
-
-**Dua Lipa Sues Samsung Over Use of Her Image on TV Packaging**\
-`Dua Lipa sued Samsung for $15 million, accusing the South Korean electronics giant of using her image on TV packaging without her permission.`\
-https://www.nytimes.com/video/us/100000010896619/dua-lipa-sues-samsung-tv-image.html
-
-**Senate G.O.P. Stands by Security Money for Trump’s Ballroom**\
-`Democrats are trying to stoke public opposition to the project as they take aim at legislation to provide nearly $72 billion for the administration’s immigration crackdown.`\
-https://www.nytimes.com/2026/05/11/us/politics/trump-white-house-ballroom.html
-
-**Microsoft’s C.E.O. Intervened When OpenAI Fired Sam Altman, Musk’s Lawyer Claims**\
-`Elon Musk’s lawyer argued that Microsoft’s Satya Nadella played a role in getting Mr. Altman his job back at OpenAI when he was briefly fired in 2023.`\
-https://www.nytimes.com/2026/05/11/technology/satya-nadella-openai-sam-altman.html
 
