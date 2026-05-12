@@ -1,3 +1,11 @@
+**Sam Altman has been targeted in a backlash against A.I.**\
+``\
+https://www.nytimes.com/live/2026/05/12/technology/openai-trial-sam-altman-elon-musk/sam-altman-has-been-targeted-in-a-backlash-against-ai
+
+****\
+``\
+https://www.nytimes.com/video/embedded/us/100000010899415/12vid-Trump-Marty-Makary.html
+
 **Authorities Identify Man Fatally Struck by Frontier Jet**\
 `Authorities ruled the death of a man struck and killed by a Frontier Airlines jet at Denver International Airport on Friday as a suicide.`\
 https://www.nytimes.com/video/us/100000010899219/man-killed-denver-airport-frontier-jet.html
