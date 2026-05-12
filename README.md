@@ -1,3 +1,7 @@
+**Leigh Magar, High-End Milliner Turned Indigo Artist, Dies at 57**\
+`She was known for bespoke hats that attracted a celebrity following. Then she left Charleston for an island off South Carolina, where she began cultivating indigo.`\
+https://www.nytimes.com/2026/05/12/arts/design/leigh-magar-dead.html
+
 **Pentagon Puts War Cost at $29 Billion as Hegseth Deflects on Funding**\
 `The estimate from the Defense Department’s top budget official was $4 billion higher than two weeks ago. Secretary Pete Hegseth declined to say when the administration would request extra money for the Iran conflict.`\
 https://www.nytimes.com/2026/05/12/us/politics/iran-war-cost-hegseth-congress.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/podcasts/100000010896750/parents-should-help-their
 **Why Did Ramit Sethi, the ‘Get Rich’ Guy, Speak Up About Trump?**\
 `On “The Interview,” Ramit Sethi, a personal finance adviser, explains why he has been public about his revulsion for President Trump, and why he talks about the structural systems that add to many Americans’ financial problems.`\
 https://www.nytimes.com/video/podcasts/100000010896666/why-did-ramit-sethi-the-get-rich-guy-speak-up-about-trump.html
-
-**Amnesty Accuses Nigerian Military of Bombing Another Market**\
-`The rights group said more than 100 people were killed in airstrikes on Sunday that appeared to be the latest in a series of similar attacks.`\
-https://www.nytimes.com/2026/05/12/world/africa/nigeria-tumfa-market-strikes.html
 
