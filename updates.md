@@ -1,3 +1,7 @@
+**Mysterious Meddling in Democratic Primaries Has G.O.P. Fingerprints**\
+`A new super PAC with ties to Republicans is intervening in Democratic primaries, in one instance helping a sex therapist in Texas accused of antisemitism.`\
+https://www.nytimes.com/2026/05/12/us/politics/gop-mystery-pac-midterms.html
+
 **Kuwait Accuses Iran of Trying to Infiltrate Its Territory**\
 `Kuwait’s interior ministry said a group of armed Iranians arrived at Bubiyan Island in the Persian Gulf on May 1 aboard a rented fishing boat and exchanged fire with Kuwaiti soldiers.`\
 https://www.nytimes.com/2026/05/12/world/middleeast/kuwait-iran-bubiyan-island.html

@@ -1,3 +1,7 @@
+**Mysterious Meddling in Democratic Primaries Has G.O.P. Fingerprints**\
+`A new super PAC with ties to Republicans is intervening in Democratic primaries, in one instance helping a sex therapist in Texas accused of antisemitism.`\
+https://www.nytimes.com/2026/05/12/us/politics/gop-mystery-pac-midterms.html
+
 **Kuwait Accuses Iran of Trying to Infiltrate Its Territory**\
 `Kuwait’s interior ministry said a group of armed Iranians arrived at Bubiyan Island in the Persian Gulf on May 1 aboard a rented fishing boat and exchanged fire with Kuwaiti soldiers.`\
 https://www.nytimes.com/2026/05/12/world/middleeast/kuwait-iran-bubiyan-island.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/12/dining/20-minute-dinners-for-when-you-are-dun
 **More Cancer Patients Are Taking Ivermectin. Mel Gibson and Joe Rogan Might Be Why.**\
 `Prescriptions for antiparasitic drugs spiked after the actor claimed it cured his friends of cancer, a new study finds.`\
 https://www.nytimes.com/2026/05/12/well/ivermectin-cancer-mel-gibson-joe-rogan.html
-
-**La acción antes de la acción en el Mundial**\
-`Antes de que comience la Copa Mundial de la FIFA el 11 de junio, hay mucho que ver mientras las mayores estrellas del fútbol global llegan a Norteamérica.`\
-https://www.nytimes.com/es/2026/05/12/espanol/deportes/mundial-futbol-fifa-partidos-previos.html
 
