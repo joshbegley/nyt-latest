@@ -1,3 +1,11 @@
+**Scientology Churches Scramble to Keep TikTok Speedrunners Out**\
+`The police in Los Angeles, New York, Sydney and elsewhere are responding to incidents related to a TikTok trend involving running through Scientology buildings.`\
+https://www.nytimes.com/2026/05/12/style/scientology-speedruns-tiktok-teens-la-nyc.html
+
+**That Wig, Those Splits: Broadway Scene Stealers, Tonys Edition**\
+`Here are some of the brilliant moments our writers can’t shake from this year’s batch of Tony-nominated productions.`\
+https://www.nytimes.com/2026/05/12/theater/broadway-scene-stealers-tonys.html
+
 **20-Minute Dinners for When You Are Dunzo**\
 `The dead-simple dinners — like halloumi tacos and creamy cabbage pastina — we turn to when Maycember ramps up.`\
 https://www.nytimes.com/2026/05/12/dining/20-minute-dinners-for-when-you-are-dunzo.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/12/style/street-style-look-faux-fleece.html
 **Macron Makes a Bid for New Partners in Africa**\
 `The French president visited Kenya this week for a summit designed to build stronger ties with Anglophone African countries.`\
 https://www.nytimes.com/2026/05/12/world/africa/macron-africa-summit-kenya.html
-
-**Keir Starmer, British Prime Minister, Refuses to Resign**\
-`The prime minister of Britain, Keir Starmer, vowed to continue governing at a high-stakes cabinet meeting on Tuesday. Calls have grown for for him to resign since heavy Labour Party losses in local elections last week.`\
-https://www.nytimes.com/video/world/europe/100000010898223/keir-starmer-prime-minister-resign.html
-
-**Can a ‘Street Taco’ Be Crunchy? A California Politician Is Finding Out.**\
-`Steve Hilton, a Republican front-runner for governor, posted a video of his Del Taco order. Social media users accused him of misunderstanding the state’s Mexican food culture.`\
-https://www.nytimes.com/2026/05/12/us/california-candidate-steve-hilton-street-taco.html
 
