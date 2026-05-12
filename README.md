@@ -2,6 +2,14 @@
 `In an exception to the usual paintings-heavy blockbuster exhibitions, the Art Institute of Chicago is presenting the masterful drawings of Willem de Kooning.`\
 https://www.nytimes.com/2026/05/12/arts/design/willem-de-kooning-drawings-chicago-art-institute.html
 
+**From Michelangelo to Gina Lollobrigida and Beyond, an Artistic Culture Thrives in Tuscany**\
+`Pietrasanta, in the Tuscan region of Italy, has become an international sculpture hub that bursts with activity, especially in summer.`\
+https://www.nytimes.com/2026/05/12/arts/design/pietrasanta-italy-marble.html
+
+**A Photographer of Newark’s People Gets a Show Among the People**\
+`A number of works by Manuel Acevedo are being displayed throughout the city in outdoor spots highly visible to the residents who inspired them.`\
+https://www.nytimes.com/2026/05/12/arts/design/photographer-newark-wards-manuel-acevedo.html
+
 **The Winners of Our Second Annual ‘My List’ Review Contest**\
 `Entertain and inform yourself with these teen-curated lists that suggest movies, music, books, restaurants and more.`\
 https://www.nytimes.com/2026/05/12/learning/the-winners-of-our-second-annual-my-list-review-contest.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-nebraska-secretary
 **Nebraska Auditor Primary Election Results**\
 `Get live results and maps from the 2026 Nebraska primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-nebraska-auditor-primary.html
-
-**Newark Mayor Election Results**\
-`Get live results and maps from the 2026 New Jersey election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-new-jersey-mayor-newark.html
-
-**West Virginia First Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 West Virginia primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-west-virginia-us-house-1-primary.html
 
