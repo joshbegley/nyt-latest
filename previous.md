@@ -1,3 +1,27 @@
+**Authorities Identify Man Fatally Struck by Frontier Jet**\
+`Authorities ruled the death of a man struck and killed by a Frontier Airlines jet at Denver International Airport on Friday as a suicide.`\
+https://www.nytimes.com/video/us/100000010899219/man-killed-denver-airport-frontier-jet.html
+
+**Alabama Governor Sets New Primary Elections for Four House Seats**\
+`Gov. Kay Ivey scheduled special House primaries for August after the Supreme Court cleared a path for Alabama to use a 2023 congressional map with one majority-Black district.`\
+https://www.nytimes.com/2026/05/12/us/alabama-governor-primary-elections-house.html
+
+**China Is Much Weaker Than It Seems. That’s the Problem.**\
+`History shows there is no more productive national asset than freedom.`\
+https://www.nytimes.com/2026/05/12/opinion/china-power-trump-xi-beijing.html
+
+**The Race to Lower California’s Housing Costs**\
+`Democrats running for California governor join the Opinion columnist Ezra Klein to debate whether manufacturing technology or federal policy can solve the crisis of the state’s skyrocketing home construction costs.`\
+https://www.nytimes.com/video/opinion/100000010897315/the-race-to-lower-californias-housing-costs.html
+
+**He’s Accused of Murder in Texas. Now He’s Seeking Asylum in Italy.**\
+`The case could test the limits of a decades-old extradition treaty, because Italy bars extradition in cases where a defendant could face the death penalty.`\
+https://www.nytimes.com/2026/05/12/us/lee-gilley-texas-pregnant-wife-murder-italy-extradition.html
+
+**How New York City Is Solving Its Budget Crisis**\
+`A generous influx of state resources from Gov. Kathy Hochul and a new tax on luxury second homes will help Mayor Zohran Mamdani address a projected $5.4 billion deficit.`\
+https://www.nytimes.com/2026/05/12/nyregion/mamdani-budget-nyc.html
+
 **P.C.O.S. Has a New Name. Doctors Hope It Will Improve Care for Millions.**\
 `The condition has been renamed polyendocrine metabolic ovarian syndrome, or P.M.O.S., to better reflect its wide-ranging health effects.`\
 https://www.nytimes.com/2026/05/12/well/live/pcos-pmos-name-change-treatment-health.html
@@ -53,28 +77,4 @@ https://www.nytimes.com/es/2026/05/12/espanol/negocios/china-ee-uu-trump-xi.html
 **EBay, the Old-School E-Commerce Site, Finds Its Place in Modern Retail**\
 `The online marketplace has remade itself by focusing on collectibles and other high-end goods — and attracted an unwelcome takeover bid from GameStop.`\
 https://www.nytimes.com/2026/05/12/business/ebay-gamestop-auction-turnaround.html
-
-**This is Sam Altman’s first time testifying in court.**\
-`The chief executive`\
-https://www.nytimes.com/live/2026/05/12/technology/openai-trial-sam-altman-elon-musk/this-is-sam-altmans-first-time-testifying-in-court
-
-**Hegseth to Accompany Trump on Trip to China**\
-`Defense secretaries have previously traveled with presidents on overseas trips, to provide advice and represent the U.S. military.`\
-https://www.nytimes.com/2026/05/12/us/politics/hegseth-trump-china-xi.html
-
-**Student Is Fatally Stabbed in University of Washington Housing Complex**\
-`Police officers responding to a call found the student dead in the laundry room of an off-campus residential building. Investigators are now searching for a suspect.`\
-https://www.nytimes.com/2026/05/12/us/university-of-washington-student-stabbing.html
-
-**Wildfires Strike Florida, Georgia and America’s ‘Wood Basket’**\
-`Large fires, fueled by a record breaking drought, have been destroying homes and timber plantations in Southeastern states.`\
-https://www.nytimes.com/2026/05/12/climate/wildfires-georgia-florida-timber-plantations.html
-
-**Why Many Americans Choose Not to Have Children**\
-`Readers offer their theories in response to a guest essay.`\
-https://www.nytimes.com/2026/05/12/opinion/letters/birthrates-no-children.html
-
-**Mysterious Meddling in Democratic Primaries Has G.O.P. Fingerprints**\
-`A new super PAC with ties to Republicans is intervening in Democratic primaries, in one instance helping a sex therapist in Texas accused of antisemitism.`\
-https://www.nytimes.com/2026/05/12/us/politics/gop-mystery-pac-midterms.html
 

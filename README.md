@@ -1,3 +1,7 @@
+****\
+``\
+https://www.nytimes.com/video/embedded/us/100000010899415/12vid-Trump-Marty-Makary.html
+
 **Authorities Identify Man Fatally Struck by Frontier Jet**\
 `Authorities ruled the death of a man struck and killed by a Frontier Airlines jet at Denver International Airport on Friday as a suicide.`\
 https://www.nytimes.com/video/us/100000010899219/man-killed-denver-airport-frontier-jet.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/12/us/politics/trump-fires-fda-commissioner-maka
 **China ve al EE. UU. de Trump como un imperio en decadencia**\
 `Durante décadas, Estados Unidos representó riqueza, sofisticación tecnológica y confianza institucional para muchos chinos. El volátil segundo mandato del presidente Trump hizo añicos esa imagen.`\
 https://www.nytimes.com/es/2026/05/12/espanol/negocios/china-ee-uu-trump-xi.html
-
-**EBay, the Old-School E-Commerce Site, Finds Its Place in Modern Retail**\
-`The online marketplace has remade itself by focusing on collectibles and other high-end goods — and attracted an unwelcome takeover bid from GameStop.`\
-https://www.nytimes.com/2026/05/12/business/ebay-gamestop-auction-turnaround.html
 
