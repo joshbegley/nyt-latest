@@ -1,3 +1,7 @@
+**Authorities Identify Man Fatally Struck by Frontier Jet**\
+`Authorities ruled the death of a man struck and killed by a Frontier Airlines jet at Denver International Airport on Friday as a suicide.`\
+https://www.nytimes.com/video/us/100000010899219/man-killed-denver-airport-frontier-jet.html
+
 **Alabama Governor Sets New Primary Elections for Four House Seats**\
 `Gov. Kay Ivey scheduled special House primaries for August after the Supreme Court cleared a path for Alabama to use a 2023 congressional map with one majority-Black district.`\
 https://www.nytimes.com/2026/05/12/us/alabama-governor-primary-elections-house.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/05/12/espanol/negocios/china-ee-uu-trump-xi.html
 **EBay, the Old-School E-Commerce Site, Finds Its Place in Modern Retail**\
 `The online marketplace has remade itself by focusing on collectibles and other high-end goods — and attracted an unwelcome takeover bid from GameStop.`\
 https://www.nytimes.com/2026/05/12/business/ebay-gamestop-auction-turnaround.html
-
-**This is Sam Altman’s first time testifying in court.**\
-`The chief executive`\
-https://www.nytimes.com/live/2026/05/12/technology/openai-trial-sam-altman-elon-musk/this-is-sam-altmans-first-time-testifying-in-court
 
