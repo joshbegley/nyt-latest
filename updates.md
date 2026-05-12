@@ -1,3 +1,7 @@
+**Kuwait Accuses Iran of Trying to Infiltrate Its Territory**\
+`Kuwait’s interior ministry said a group of armed Iranians arrived at Bubiyan Island in the Persian Gulf on May 1 aboard a rented fishing boat and exchanged fire with Kuwaiti soldiers.`\
+https://www.nytimes.com/2026/05/12/world/middleeast/kuwait-iran-bubiyan-island.html
+
 **Joni Lamb, Whose Christian TV Station Went Global, Dies at 65**\
 `She and her husband, Marcus Lamb, founded Daystar Television Network, which reached more than 200 countries and made the couple into televangelism stars.`\
 https://www.nytimes.com/2026/05/12/business/media/joni-lamb-dead.html
