@@ -1,3 +1,11 @@
+**Keir Starmer, British Prime Minister, Refuses to Resign**\
+`The prime minister of Britain, Keir Starmer, vowed to continue governing at a high-stakes cabinet meeting on Tuesday. Calls have grown for for him to resign since heavy Labour Party losses in local elections last week.`\
+https://www.nytimes.com/video/world/europe/100000010898223/keir-starmer-prime-minister-resign.html
+
+**Can a ‘Street Taco’ Be Crunchy? A California Politician Is Finding Out.**\
+`Steve Hilton, a Republican front-runner for governor, posted a video of his Del Taco order. Social media users accused him of misunderstanding the state’s Mexican food culture.`\
+https://www.nytimes.com/2026/05/12/us/california-candidate-steve-hilton-street-taco.html
+
 **Inflation Accelerates After Weeks of War in Iran**\
 `The Consumer Price Index rose 3.8% in April from a year earlier as higher energy costs replaced tariffs as the driver of higher prices for Americans.`\
 https://www.nytimes.com/2026/05/12/business/economy/cpi-inflation-report-consumer-prices.html
