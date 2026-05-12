@@ -1,3 +1,23 @@
+**The Hantavirus Outbreak Is Resurrecting Covid-Era Misinformation Tactics**\
+`Experts say A.I. tools have made it even easier for influencers and others to spread false messages online.`\
+https://www.nytimes.com/2026/05/12/well/hantavirus-covid-misinformation.html
+
+**South Carolina Lawmakers Halt Redistricting Efforts**\
+`Some state Republicans had been concerned that a new congressional map could backfire by making districts competitive for Democrats.`\
+https://www.nytimes.com/2026/05/12/us/south-carolina-redistricting-midterm-elections.html
+
+**A Shift in Ukraine**\
+`The Russian military’s progress has slowed to a crawl and Vladimir Putin appears to be under increasing pressure.`\
+https://www.nytimes.com/2026/05/12/world/russia-ukraine-drones-keir-starmer.html
+
+**U.S. Might Restart Striking Iran, Trump and Hegseth Warn**\
+`With talks at an impasse, both sides are holding to positions their opponents call unacceptable, while the economic pain caused by the Strait of Hormuz blockade continues to grow.`\
+https://www.nytimes.com/2026/05/12/world/middleeast/trump-iran-ceasefire-strikes.html
+
+**Trump Says Americans’ Economic Pain Is Not a Consideration for the Iran War**\
+`Asked whether Americans’ financial situation was motivating him to make a deal, President Trump said bluntly, “Not even a little bit.”`\
+https://www.nytimes.com/2026/05/12/us/politics/trump-iran-war-americans-economy.html
+
 **Conan O’Brien Will Return as Oscars Host**\
 `It will be the first time anyone has done the job for three straight years since Billy Crystal in the early 1990s.`\
 https://www.nytimes.com/2026/05/12/business/media/conan-obrien-oscars-host-2027.html
