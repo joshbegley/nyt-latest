@@ -1,6 +1,10 @@
+**Justice Department Charges Shipowner in Baltimore Bridge Collapse**\
+`The criminal charges are the latest legal fallout after the 2024 crash, which killed six men who were working on the Key Bridge.`\
+https://www.nytimes.com/2026/05/12/us/baltimore-key-bridge-collapse-charges.html
+
 **Tomato Prices Soar as War, Tariffs and Weather Affect a Popular Crop**\
 `Tomato prices surged nearly 40 percent in April, the Consumer Price Index showed.`\
-https://www.nytimes.com/2026/05/12/business/tomato-prices-soar-as-war-tariffs-and-weather-affect-a-popular-crop.html
+https://www.nytimes.com/2026/05/12/business/inflation-tomatoes-prices.html
 
 **‘Paranormal Activity’ to Haunt Broadway This Summer**\
 `Inspired by the popular film series, the play has already run in Britain and in four U.S. cities. It arrives in New York in August after a Boston stop.`\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/12/briefing/who-owns-the-strait.html
 **The Iran War Is Taking the Color Out of Japan’s Best-Known Snack Bags**\
 `The food giant Calbee said shortages of naphtha, a crude-oil derivative used in inks, were forcing it to switch to black-and-white packaging for its salty products.`\
 https://www.nytimes.com/2026/05/12/world/asia/calbee-japan-bags-iran-war.html
-
-**El turbio mundo del transporte marítimo**\
-`La opacidad que rodea al estrecho de Ormuz revela un lado oscuro del transporte marítimo mundial: algunos buques no quieren ser localizados.`\
-https://www.nytimes.com/es/2026/05/12/espanol/mundo/transporte-maritimo-estrecho-ormuz.html
 

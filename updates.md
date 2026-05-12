@@ -1,3 +1,11 @@
+**Justice Department Charges Shipowner in Baltimore Bridge Collapse**\
+`The criminal charges are the latest legal fallout after the 2024 crash, which killed six men who were working on the Key Bridge.`\
+https://www.nytimes.com/2026/05/12/us/baltimore-key-bridge-collapse-charges.html
+
+**Tomato Prices Soar as War, Tariffs and Weather Affect a Popular Crop**\
+`Tomato prices surged nearly 40 percent in April, the Consumer Price Index showed.`\
+https://www.nytimes.com/2026/05/12/business/inflation-tomatoes-prices.html
+
 **Tomato Prices Soar as War, Tariffs and Weather Affect a Popular Crop**\
 `Tomato prices surged nearly 40 percent in April, the Consumer Price Index showed.`\
 https://www.nytimes.com/2026/05/12/business/tomato-prices-soar-as-war-tariffs-and-weather-affect-a-popular-crop.html
