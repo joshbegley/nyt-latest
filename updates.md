@@ -1,3 +1,23 @@
+**Inflation Accelerates as Iran War Drives Up Energy Costs**\
+`Also, Russia keeps attacking U.S. companies in Ukraine. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/05/12/briefing/iran-war-costs-inflation.html
+
+**NATO, Please Help. Trump Has No Strategy for Iran.**\
+`NATO should overcome its distaste for President Trump and sends its navies to help open up the Strait of Hormuz.`\
+https://www.nytimes.com/2026/05/12/opinion/israel-united-states-iran-hormuz-nato.html
+
+**Tossed Cigarette Sparked Deadly Manhattan Fire, Prosecutors Say**\
+`Victor Arias, 29, was charged with starting a blaze that killed three people after prosecutors said he tossed a cigarette into a pile of cardboard boxes in the lobby of his apartment building.`\
+https://www.nytimes.com/2026/05/12/nyregion/arrest-fire-cigarette-inwood-nyc.html
+
+**The South Carolina Republican Who Defied Trump on Redistricting**\
+`Politicians are fighting viciously for power, said Shane Massey, leader of the State Senate. “To what end?” he asked, warning of eroding fundamental American values. “I’m voting no.”`\
+https://www.nytimes.com/2026/05/12/us/south-carolina-shane-massey-redistricting.html
+
+**Israeli Report Examines Sexual Violence During and After Hamas-Led Attack**\
+`A two-year investigation by a team of researchers in Israel concluded that sexual violence by Hamas and its allies was widespread during and after the Oct. 7, 2023, attack.`\
+https://www.nytimes.com/2026/05/12/world/middleeast/israel-sexual-violence-hamas-attack-report.html
+
 **Earthquake Shakes Tehran, a City With Already Frayed Nerves**\
 `Iranian media said a moderate quake had shaken the capital around midnight local time.`\
 https://www.nytimes.com/2026/05/12/world/middleeast/earthquake-iran-tehran.html

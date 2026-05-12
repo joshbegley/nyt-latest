@@ -1,3 +1,23 @@
+**Inflation Accelerates as Iran War Drives Up Energy Costs**\
+`Also, Russia keeps attacking U.S. companies in Ukraine. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/05/12/briefing/iran-war-costs-inflation.html
+
+**NATO, Please Help. Trump Has No Strategy for Iran.**\
+`NATO should overcome its distaste for President Trump and sends its navies to help open up the Strait of Hormuz.`\
+https://www.nytimes.com/2026/05/12/opinion/israel-united-states-iran-hormuz-nato.html
+
+**Tossed Cigarette Sparked Deadly Manhattan Fire, Prosecutors Say**\
+`Victor Arias, 29, was charged with starting a blaze that killed three people after prosecutors said he tossed a cigarette into a pile of cardboard boxes in the lobby of his apartment building.`\
+https://www.nytimes.com/2026/05/12/nyregion/arrest-fire-cigarette-inwood-nyc.html
+
+**The South Carolina Republican Who Defied Trump on Redistricting**\
+`Politicians are fighting viciously for power, said Shane Massey, leader of the State Senate. “To what end?” he asked, warning of eroding fundamental American values. “I’m voting no.”`\
+https://www.nytimes.com/2026/05/12/us/south-carolina-shane-massey-redistricting.html
+
+**Israeli Report Examines Sexual Violence During and After Hamas-Led Attack**\
+`A two-year investigation by a team of researchers in Israel concluded that sexual violence by Hamas and its allies was widespread during and after the Oct. 7, 2023, attack.`\
+https://www.nytimes.com/2026/05/12/world/middleeast/israel-sexual-violence-hamas-attack-report.html
+
 **Earthquake Shakes Tehran, a City With Already Frayed Nerves**\
 `Iranian media said a moderate quake had shaken the capital around midnight local time.`\
 https://www.nytimes.com/2026/05/12/world/middleeast/earthquake-iran-tehran.html
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/05/12/technology/sam-altman-openai-trial-elon-musk-
 **In Chicago, a Big Name Art Show Where the Drawings Dominate**\
 `In an exception to the usual paintings-heavy blockbuster exhibitions, the Art Institute of Chicago is presenting the masterful drawings of Willem de Kooning.`\
 https://www.nytimes.com/2026/05/12/arts/design/willem-de-kooning-drawings-chicago-art-institute.html
-
-**From Michelangelo to Gina Lollobrigida and Beyond, an Artistic Culture Thrives in Tuscany**\
-`Pietrasanta, in the Tuscan region of Italy, has become an international sculpture hub that bursts with activity, especially in summer.`\
-https://www.nytimes.com/2026/05/12/arts/design/pietrasanta-italy-marble.html
-
-**A Photographer of Newark’s People Gets a Show Among the People**\
-`A number of works by Manuel Acevedo are being displayed throughout the city in outdoor spots highly visible to the residents who inspired them.`\
-https://www.nytimes.com/2026/05/12/arts/design/photographer-newark-wards-manuel-acevedo.html
-
-**The Winners of Our Second Annual ‘My List’ Review Contest**\
-`Entertain and inform yourself with these teen-curated lists that suggest movies, music, books, restaurants and more.`\
-https://www.nytimes.com/2026/05/12/learning/the-winners-of-our-second-annual-my-list-review-contest.html
-
-**Uli Sigg Wants to Help Chinese People ‘View Their Own Art.’ Simple, Right?**\
-`Over three decades, Sigg, a Swiss businessman and former diplomat, amassed thousands of contemporary Chinese works. Ai Weiwei calls him “my maker.”`\
-https://www.nytimes.com/2026/05/12/arts/design/uli-sigg-chinese-art-collection.html
-
-**Spotlighting the Woman Who Brought European Modernism to California**\
-`Although Galka Scheyer might an unfamiliar name, the artists she championed have become famous. A exhibition in Pasadena brings her to the foreground.`\
-https://www.nytimes.com/2026/05/12/arts/design/norton-simon-museum-galka-scheyer.html
 
