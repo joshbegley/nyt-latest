@@ -1,3 +1,27 @@
+**In Chicago, a Big Name Art Show Where the Drawings Dominate**\
+`In an exception to the usual paintings-heavy blockbuster exhibitions, the Art Institute of Chicago is presenting the masterful drawings of Willem de Kooning.`\
+https://www.nytimes.com/2026/05/12/arts/design/willem-de-kooning-drawings-chicago-art-institute.html
+
+**From Michelangelo to Gina Lollobrigida and Beyond, an Artistic Culture Thrives in Tuscany**\
+`Pietrasanta, in the Tuscan region of Italy, has become an international sculpture hub that bursts with activity, especially in summer.`\
+https://www.nytimes.com/2026/05/12/arts/design/pietrasanta-italy-marble.html
+
+**A Photographer of Newark’s People Gets a Show Among the People**\
+`A number of works by Manuel Acevedo are being displayed throughout the city in outdoor spots highly visible to the residents who inspired them.`\
+https://www.nytimes.com/2026/05/12/arts/design/photographer-newark-wards-manuel-acevedo.html
+
+**The Winners of Our Second Annual ‘My List’ Review Contest**\
+`Entertain and inform yourself with these teen-curated lists that suggest movies, music, books, restaurants and more.`\
+https://www.nytimes.com/2026/05/12/learning/the-winners-of-our-second-annual-my-list-review-contest.html
+
+**Uli Sigg Wants to Help Chinese People ‘View Their Own Art.’ Simple, Right?**\
+`Over three decades, Sigg, a Swiss businessman and former diplomat, amassed thousands of contemporary Chinese works. Ai Weiwei calls him “my maker.”`\
+https://www.nytimes.com/2026/05/12/arts/design/uli-sigg-chinese-art-collection.html
+
+**Spotlighting the Woman Who Brought European Modernism to California**\
+`Although Galka Scheyer might an unfamiliar name, the artists she championed have become famous. A exhibition in Pasadena brings her to the foreground.`\
+https://www.nytimes.com/2026/05/12/arts/design/norton-simon-museum-galka-scheyer.html
+
 **Florida Plans to Close ‘Alligator Alcatraz’, Vendors Are Reportedly Told**\
 `The Department of Homeland Security has determined the state-run immigration detention facility is too expensive, and some private vendors have struggled to front costs.`\
 https://www.nytimes.com/2026/05/12/us/florida-alligator-alcatraz-detention-closure.html
