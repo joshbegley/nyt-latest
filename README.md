@@ -1,3 +1,11 @@
+**20-Minute Dinners for When You Are Dunzo**\
+`The dead-simple dinners — like halloumi tacos and creamy cabbage pastina — we turn to when Maycember ramps up.`\
+https://www.nytimes.com/2026/05/12/dining/20-minute-dinners-for-when-you-are-dunzo.html
+
+**More Cancer Patients Are Taking Ivermectin. Mel Gibson and Joe Rogan Might Be Why.**\
+`Prescriptions for antiparasitic drugs spiked after the actor claimed it cured his friends of cancer, a new study finds.`\
+https://www.nytimes.com/2026/05/12/well/ivermectin-cancer-mel-gibson-joe-rogan.html
+
 **La acción antes de la acción en el Mundial**\
 `Antes de que comience la Copa Mundial de la FIFA el 11 de junio, hay mucho que ver mientras las mayores estrellas del fútbol global llegan a Norteamérica.`\
 https://www.nytimes.com/es/2026/05/12/espanol/deportes/mundial-futbol-fifa-partidos-previos.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/video/world/europe/100000010898223/keir-starmer-prime-mi
 **Can a ‘Street Taco’ Be Crunchy? A California Politician Is Finding Out.**\
 `Steve Hilton, a Republican front-runner for governor, posted a video of his Del Taco order. Social media users accused him of misunderstanding the state’s Mexican food culture.`\
 https://www.nytimes.com/2026/05/12/us/california-candidate-steve-hilton-street-taco.html
-
-**Inflation Accelerates After Weeks of War in Iran**\
-`The Consumer Price Index rose 3.8% in April from a year earlier as higher energy costs replaced tariffs as the driver of higher prices for Americans.`\
-https://www.nytimes.com/2026/05/12/business/economy/cpi-inflation-report-consumer-prices.html
-
-**Labour’s deep losses in local elections reflect a shift in the public mood.**\
-``\
-https://www.nytimes.com/live/2026/05/12/world/uk-starmer/labours-deep-losses-in-local-elections-reflect-a-shift-in-the-public-mood
 
