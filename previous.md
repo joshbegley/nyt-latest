@@ -1,3 +1,7 @@
+**Person Killed on Runway at Denver Airport Is Identified**\
+`The individual, a 41-year-old man, breached a fence at the airport on Friday minutes before being struck by a Frontier Airlines jet, officials said.`\
+https://www.nytimes.com/2026/05/12/us/frontier-airlines-killed-runway-identified.html
+
 **Starmer has struggled with the economy, the Mandelson scandal and other issues.**\
 ``\
 https://www.nytimes.com/live/2026/05/12/world/uk-starmer/starmer-has-struggled-with-the-economy-the-mandelson-scandal-and-other-issues
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/12/theater/paranormal-activity-broadway.html
 **Ramit Sethi on a ‘Classic’ Fight Over Money**\
 `Unexpected spending can be a source of conflict for couples. On “The Interview,” Ramit Sethi, the host of the show “I Will Teach You To Be Rich,” explains how people can move past friction over day-to-day spending.`\
 https://www.nytimes.com/video/podcasts/100000010896783/ramit-sethi-on-a-classic-fight-over-money.html
-
-**Parents Should Help Their Grown Children With Money, Ramit Sethi Says**\
-`It’s become harder for young adults to get ahead financially, even if they do everything right, Ramit Sethi, a personal finance expert, said on “The Interview.” He said parents should talk to their children about money issues and acknowledge the challenges.`\
-https://www.nytimes.com/video/podcasts/100000010896750/parents-should-help-their-grown-children-with-money-ramit-sethi-says.html
 

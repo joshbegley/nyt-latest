@@ -1,3 +1,7 @@
+**Person Killed on Runway at Denver Airport Is Identified**\
+`The individual, a 41-year-old man, breached a fence at the airport on Friday minutes before being struck by a Frontier Airlines jet, officials said.`\
+https://www.nytimes.com/2026/05/12/us/frontier-airlines-killed-runway-identified.html
+
 **Starmer has struggled with the economy, the Mandelson scandal and other issues.**\
 ``\
 https://www.nytimes.com/live/2026/05/12/world/uk-starmer/starmer-has-struggled-with-the-economy-the-mandelson-scandal-and-other-issues
