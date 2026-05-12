@@ -1,3 +1,7 @@
+**In Heated Exchanges, Patel Denies Lying and Excessive Drinking**\
+`The remarks, at a hearing ostensibly about the coming budget for law enforcement agencies, veered from sedate exchanges about operational matters to ugly personal confrontations.`\
+https://www.nytimes.com/2026/05/12/us/politics/kash-patel-hearing-fbi-drinking.html
+
 **Heated Exchange Between F.B.I. Director and Senator During Hearing**\
 `Senator Chris Van Hollen, Democrat of Maryland, questioned the director of the F.B.I., Kash Patel, about reports of excessive drinking and ordering polygraph tests for members of his team in a search for sources of leaks about him.`\
 https://www.nytimes.com/video/us/politics/100000010899941/kash-patel-senator-van-hollen-fight.html

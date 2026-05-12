@@ -1,3 +1,7 @@
+**In Heated Exchanges, Patel Denies Lying and Excessive Drinking**\
+`The remarks, at a hearing ostensibly about the coming budget for law enforcement agencies, veered from sedate exchanges about operational matters to ugly personal confrontations.`\
+https://www.nytimes.com/2026/05/12/us/politics/kash-patel-hearing-fbi-drinking.html
+
 **Heated Exchange Between F.B.I. Director and Senator During Hearing**\
 `Senator Chris Van Hollen, Democrat of Maryland, questioned the director of the F.B.I., Kash Patel, about reports of excessive drinking and ordering polygraph tests for members of his team in a search for sources of leaks about him.`\
 https://www.nytimes.com/video/us/politics/100000010899941/kash-patel-senator-van-hollen-fight.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-new-jersey-mayor-n
 **How Worried Should We Be About Hantavirus?**\
 `Our global health reporter, Apoorva Mandavilli, explains that there is no indication the hantavirus outbreak could turn into a pandemic — but also that the public might not be getting all of the details.`\
 https://www.nytimes.com/video/health/100000010896688/how-worried-should-we-be-about-hantavirus.html
-
-**Secret Service Makes Case for Security Funding Amid G.O.P. Unease on Ballroom**\
-`The presidential protection agency detailed how it would use a proposed $1 billion as Republicans asked for more detail and Democrats went on the attack.`\
-https://www.nytimes.com/2026/05/12/us/politics/secret-service-ballroom.html
 
