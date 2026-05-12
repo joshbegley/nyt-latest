@@ -1,3 +1,7 @@
+**Drones Are Leading Cause of Civilian Deaths in Sudan War, U.N. Says**\
+`The U.N. documented 880 deaths from strikes carried out by Sudan’s military or its paramilitary enemy, the Rapid Support Forces, between January and April.`\
+https://www.nytimes.com/2026/05/12/world/africa/sudan-drones-civilian-deaths.html
+
 **Why the British Prime Minister Remains in Deep Trouble**\
 `Prime Minister Keir Starmer seemed to have won a temporary reprieve on Tuesday after daring his rivals to challenge him, but the underlying problems with his leadership remain.`\
 https://www.nytimes.com/2026/05/12/world/europe/kier-starmer-uk-prime-minister.html
