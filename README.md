@@ -1,3 +1,7 @@
+**Waymo Is Fixing Its Entire Fleet to Avoid Flooded Roads**\
+`The company will recall its software after one of its robotaxis entered a flooded road during a heavy downpour in San Antonio last month.`\
+https://www.nytimes.com/2026/05/12/us/waymo-recall-robotaxis-flood-water.html
+
 **In Heated Exchanges, Patel Denies Lying and Excessive Drinking**\
 `The remarks, at a hearing ostensibly about the coming budget for law enforcement agencies, veered from sedate exchanges about operational matters to ugly personal confrontations.`\
 https://www.nytimes.com/2026/05/12/us/politics/kash-patel-hearing-fbi-drinking.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-west-virginia-us-h
 **Newark Mayor Election Results**\
 `Get live results and maps from the 2026 New Jersey election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-new-jersey-mayor-newark.html
-
-**How Worried Should We Be About Hantavirus?**\
-`Our global health reporter, Apoorva Mandavilli, explains that there is no indication the hantavirus outbreak could turn into a pandemic — but also that the public might not be getting all of the details.`\
-https://www.nytimes.com/video/health/100000010896688/how-worried-should-we-be-about-hantavirus.html
 
