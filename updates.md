@@ -1,3 +1,11 @@
+**Tomato Prices Soar as War, Tariffs and Weather Affect a Popular Crop**\
+`Tomato prices surged nearly 40 percent in April, the Consumer Price Index showed.`\
+https://www.nytimes.com/2026/05/12/business/tomato-prices-soar-as-war-tariffs-and-weather-affect-a-popular-crop.html
+
+**‘Paranormal Activity’ to Haunt Broadway This Summer**\
+`Inspired by the popular film series, the play has already run in Britain and in four U.S. cities. It arrives in New York in August after a Boston stop.`\
+https://www.nytimes.com/2026/05/12/theater/paranormal-activity-broadway.html
+
 **Ramit Sethi on a ‘Classic’ Fight Over Money**\
 `Unexpected spending can be a source of conflict for couples. On “The Interview,” Ramit Sethi, the host of the show “I Will Teach You To Be Rich,” explains how people can move past friction over day-to-day spending.`\
 https://www.nytimes.com/video/podcasts/100000010896783/ramit-sethi-on-a-classic-fight-over-money.html
