@@ -1,3 +1,15 @@
+**Trump Previews Issues He Plans to Raise With Xi**\
+`President Trump said he expected to speak to the Chinese leader, Xi Jinping, about a range of issues at a summit in Beijing, from the war in Iran to Jimmy Lai, an imprisoned Hong Kong media mogul.`\
+https://www.nytimes.com/video/world/asia/100000010897989/trump-xi-china-summit.html
+
+**Philippine Senator Outruns Government Agents in Dramatic Chase**\
+`Video shows Senator Ronald dela Rosa, who is wanted by the International Criminal Court over Rodrigo Duterte’s drug war, dashing into the Philippine Senate.`\
+https://www.nytimes.com/2026/05/12/world/asia/philippines-senator-dela-rosa-arrest-warrant.html
+
+**Así es la lotería para el servicio militar obligatorio en Tailandia**\
+`Aunque el servicio militar, obligatorio para los hombres, es un tema que divide profundamente al país, los alistamientos voluntarios se han disparado en medio de un auge del nacionalismo y una economía en desaceleración.`\
+https://www.nytimes.com/es/2026/05/12/espanol/mundo/servicio-militar-obligatorio-tailandia.html
+
 **Volodímir Zelenski comienza a distanciarse del gobierno de Trump**\
 `Con las conversaciones de paz congeladas y Ucrania ahora más autosuficiente, el presidente Volodímir Zelenski parece alejarse de EE. UU.`\
 https://www.nytimes.com/es/2026/05/12/espanol/mundo/zelenski-alejamiento-trump.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/12/world/europe/france-macron-weatherproof-burea
 **Putin dijo que la guerra ‘está llegando a su fin’, pero no cede en sus términos**\
 `El dirigente ruso camina por la cuerda floja: reconoce el descontento de la opinión pública, pero no ofrece indicios de que pueda renunciar a sus exigencias.`\
 https://www.nytimes.com/es/2026/05/12/espanol/mundo/guerra-ucrania-putin-rusia.html
-
-**Xi Is Poised to Press Trump on Arms Sales to Taiwan**\
-`Beijing has called Taiwan the “core of China’s core interests.” Xi Jinping is likely to focus on getting President Trump to slow approval of more weapons for the self-governing island.`\
-https://www.nytimes.com/2026/05/12/world/asia/xi-trump-china-taiwan-arms-sales.html
-
-**China Seeks A.I. Independence, Weakening Trump’s Leverage**\
-`Before this week’s U.S.-Chinese summit, Beijing reached a milestone in its quest for technological self-sufficiency.`\
-https://www.nytimes.com/2026/05/12/business/china-semiconductor-ai-deepseek.html
-
-**The Altar Boy Who Refused to Hush Up**\
-`Michal Gatchalian dared to speak out against sexual abuse by a priest in the devoutly Catholic Philippines. He’s now a lawyer helping other victims.`\
-https://www.nytimes.com/2026/05/12/world/asia/philippines-catholic-church-sex-abuse.html
 
