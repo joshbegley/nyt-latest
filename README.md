@@ -1,3 +1,11 @@
+**Hegseth to Accompany Trump on Trip to China**\
+`Defense secretaries have previously traveled with presidents on overseas trips, to provide advice and represent the U.S. military.`\
+https://www.nytimes.com/2026/05/12/us/politics/hegseth-trump-china-xi.html
+
+**Student Is Fatally Stabbed in University of Washington Housing Complex**\
+`Police officers responding to a call found the student dead in the laundry room of an off-campus residential building. Investigators are now searching for a suspect.`\
+https://www.nytimes.com/2026/05/12/us/university-of-washington-student-stabbing.html
+
 **Wildfires Strike Florida, Georgia and America’s ‘Wood Basket’**\
 `Large fires, fueled by a record breaking drought, have been destroying homes and timber plantations in Southeastern states.`\
 https://www.nytimes.com/2026/05/12/climate/wildfires-georgia-florida-timber-plantations.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/12/briefing/today-in-short.html
 **Where Was Nurul Amin Shah Alam?**\
 `A refugee with little sight and no English, he had been jailed for a year, intercepted by federal agents and delivered to a merciless Buffalo winter.`\
 https://www.nytimes.com/interactive/2026/05/12/nyregion/buffalo-refugee-nurul-amin.html
-
-**Scientology Churches Scramble to Keep TikTok Speedrunners Out**\
-`The police in Los Angeles, New York, Sydney and elsewhere are responding to incidents related to a TikTok trend involving running through Scientology buildings.`\
-https://www.nytimes.com/2026/05/12/style/scientology-speedruns-tiktok-teens-la-nyc.html
-
-**That Wig, Those Splits: Broadway Scene Stealers, Tonys Edition**\
-`Here are some of the brilliant moments our writers can’t shake from this year’s batch of Tony-nominated productions.`\
-https://www.nytimes.com/2026/05/12/theater/broadway-scene-stealers-tonys.html
 
