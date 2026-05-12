@@ -1,3 +1,7 @@
+**Starmer has struggled with the economy, the Mandelson scandal and other issues.**\
+``\
+https://www.nytimes.com/live/2026/05/12/world/uk-starmer/starmer-has-struggled-with-the-economy-the-mandelson-scandal-and-other-issues
+
 **Leigh Magar, High-End Milliner Turned Indigo Artist, Dies at 57**\
 `She was known for bespoke hats that attracted a celebrity following. Then she left Charleston for an island off South Carolina, where she began cultivating indigo.`\
 https://www.nytimes.com/2026/05/12/arts/design/leigh-magar-dead.html
