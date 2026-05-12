@@ -1,3 +1,7 @@
+**Can a ‘Street Taco’ Be Crunchy? A California Politician Is Finding Out.**\
+`Steve Hilton, a Republican front-runner for governor, posted a video of his Del Taco order. Social media users accused him of misunderstanding the state’s Mexican food culture.`\
+https://www.nytimes.com/2026/05/12/us/california-candidate-steve-hilton-street-taco.html
+
 **Inflation Accelerates After Weeks of War in Iran**\
 `The Consumer Price Index rose 3.8% in April from a year earlier as higher energy costs replaced tariffs as the driver of higher prices for Americans.`\
 https://www.nytimes.com/2026/05/12/business/economy/cpi-inflation-report-consumer-prices.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/12/crosswords/wordle-review-1789.html
 **Who Might Challenge Starmer in a Leadership Contest?**\
 `Health Secretary Wes Streeting, Mayor of Greater Manchester Andy Burnham and former deputy prime minister Angela Rayner are among the possible contenders.`\
 https://www.nytimes.com/2026/05/12/world/europe/who-could-replace-starmer-uk-prime-minister.html
-
-**It’s the End of LIV Golf as We Knew It (and Trump Feels Fine)**\
-`Journalist Alan Shipnuck explains what we really learned from Saudi Arabia’s multibillion-dollar golf experiment.`\
-https://www.nytimes.com/2026/05/12/podcasts/liv-golf-saudi-arabia.html
 
