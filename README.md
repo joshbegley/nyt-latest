@@ -1,3 +1,7 @@
+**Spain’s Leader Is Showing How to Stand Up to Trump, and So Much More**\
+`Pedro Sánchez has established an alternative governing philosophy to Trumpism.`\
+https://www.nytimes.com/2026/05/12/opinion/sanchez-trump-spain-europe.html
+
 **Robert Kennedy Jr. continúa su cruzada para investigar las vacunas**\
 `Kennedy lidera una intensa campaña para que científicos, y los contratistas federales de datos, analicen su teoría de que las vacunas impulsan una epidemia de enfermedades crónicas.`\
 https://www.nytimes.com/es/2026/05/12/espanol/estados-unidos/robert-kennedy-jr-vacunas.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/opinion/100000010897310/san-joses-approach-to-home
 **California Mayor Will Plead Guilty to Working as Agent of China**\
 `Eileen Wang, who resigned Monday as the mayor of Arcadia, Calif., published propaganda on a purported news site under direction from Chinese officials, prosecutors said.`\
 https://www.nytimes.com/2026/05/11/us/arcadia-california-mayor-chinese-agent.html
-
-**Katie Porter on the California Forever Project**\
-`How would Katie Porter, a Democratic candidate for California governor, navigate the billionaire-backed California Forever project if elected? She discusses her approach with the Opinion columnist Ezra Klein during a live forum.`\
-https://www.nytimes.com/video/opinion/100000010897292/katie-porter-on-the-california-forever-project.html
 
