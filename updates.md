@@ -1,3 +1,19 @@
+**Leigh Magar, High-End Milliner Turned Indigo Artist, Dies at 57**\
+`She was known for bespoke hats that attracted a celebrity following. Then she left Charleston for an island off South Carolina, where she began cultivating indigo.`\
+https://www.nytimes.com/2026/05/12/arts/design/leigh-magar-dead.html
+
+**Pentagon Puts War Cost at $29 Billion as Hegseth Deflects on Funding**\
+`The estimate from the Defense Department’s top budget official was $4 billion higher than two weeks ago. Secretary Pete Hegseth declined to say when the administration would request extra money for the Iran conflict.`\
+https://www.nytimes.com/2026/05/12/us/politics/iran-war-cost-hegseth-congress.html
+
+**Today, In Short**\
+`Dirty soda. Pharma merch. And Punch, the monkey.`\
+https://www.nytimes.com/2026/05/12/briefing/today-in-short.html
+
+**Where Was Nurul Amin Shah Alam?**\
+`A refugee with little sight and no English, he had been jailed for a year, intercepted by federal agents and delivered to a merciless Buffalo winter.`\
+https://www.nytimes.com/interactive/2026/05/12/nyregion/buffalo-refugee-nurul-amin.html
+
 **Scientology Churches Scramble to Keep TikTok Speedrunners Out**\
 `The police in Los Angeles, New York, Sydney and elsewhere are responding to incidents related to a TikTok trend involving running through Scientology buildings.`\
 https://www.nytimes.com/2026/05/12/style/scientology-speedruns-tiktok-teens-la-nyc.html
