@@ -1,3 +1,7 @@
+**Robert Kennedy Jr. continúa su cruzada para investigar las vacunas**\
+`Kennedy lidera una intensa campaña para que científicos, y los contratistas federales de datos, analicen su teoría de que las vacunas impulsan una epidemia de enfermedades crónicas.`\
+https://www.nytimes.com/es/2026/05/12/espanol/estados-unidos/robert-kennedy-jr-vacunas.html
+
 **12 Ways to Eat Through Our List of the Best Restaurants in New York City**\
 `Don’t have the time (or money) to try all 100? Here are a dozen bite-size bucket lists to inspire you.`\
 https://www.nytimes.com/2026/05/12/dining/nyc-restaurants-user-guide.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/11/us/arcadia-california-mayor-chinese-agent.htm
 **Katie Porter on the California Forever Project**\
 `How would Katie Porter, a Democratic candidate for California governor, navigate the billionaire-backed California Forever project if elected? She discusses her approach with the Opinion columnist Ezra Klein during a live forum.`\
 https://www.nytimes.com/video/opinion/100000010897292/katie-porter-on-the-california-forever-project.html
-
-**Tom Steyer’s Plan to Fix Modular Housing**\
-`Why has modular housing failed to revolutionize the industry, despite decades of hype? Tom Steyer tells the Opinion columnist Ezra Klein why modular housing start-ups have failed and how California can use its scale to finally make home construction more affordable.`\
-https://www.nytimes.com/video/opinion/100000010897318/tom-steyers-plan-to-fix-modular-housing.html
 
