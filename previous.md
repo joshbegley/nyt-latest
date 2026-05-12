@@ -1,3 +1,31 @@
+**La Unión Europea acuerda sancionar a los colonos israelíes**\
+`La medida, aplicada a los colonos por la violencia contra los palestinos, podría ser el comienzo de una nueva era en la que Europa será más severa con Israel.`\
+https://www.nytimes.com/es/2026/05/12/espanol/mundo/union-europea-sanciones-colonos-israel.html
+
+**Unapologetic Foods Is Slinging Filipino Sandwiches at Sanwits**\
+`The East Village spot offers seven styles, a South American tavern in North Brooklyn and more restaurant news.`\
+https://www.nytimes.com/2026/05/12/dining/nyc-restaurant-news.html
+
+**Is Anthropic’s New A.I. Really That Scary? It Depends Whom You Ask.**\
+`Anthropic said that Claude Mythos was too dangerous to release to the public. That claim has reopened an old debate over cybersecurity.`\
+https://www.nytimes.com/2026/05/12/technology/anthropic-claude-mythos.html
+
+**Raffensperger Event Is Disrupted by ‘Active Threat,’ Bomb Squad on Site**\
+`The discovery of a suspicious object disrupted a campaign stop for Brad Raffensperger, the Republican secretary of state in Georgia, who is running for governor.`\
+https://www.nytimes.com/2026/05/12/us/politics/raffensperger-bomb-georgia-campaign-governor.html
+
+**A.I. and Humans Battle It Out in a Cybersecurity Showdown**\
+`Experts and college students used A.I. agents to try to break into and defend computer networks in a national competition. The agents did all right on their own, too.`\
+https://www.nytimes.com/2026/05/12/technology/ai-cybersecurity-competition.html
+
+**Did the Pope Really Wear Nikes?**\
+`Eagle-eyed viewers spotted a swoosh in Vatican City.`\
+https://www.nytimes.com/2026/05/12/style/pope-leo-nikes.html
+
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/05/12/technology/openai-trial-sam-altman-elon-musk/heres-the-latest
+
 **Person Killed on Runway at Denver Airport Is Identified**\
 `The individual, a 41-year-old man, breached a fence at the airport on Friday minutes before being struck by a Frontier Airlines jet, officials said.`\
 https://www.nytimes.com/2026/05/12/us/frontier-airlines-killed-runway-identified.html
@@ -49,32 +77,4 @@ https://www.nytimes.com/live/2026/05/12/business/inflation-report-cpi/what-to-kn
 **A Racist Remark About Jeffries Sets Off Democratic Anger in Virginia**\
 `Representative Jen Kiggans, a Republican in a tough re-election fight, faced criticism after she agreed with comments by a local radio host that included a racist line about Hakeem Jeffries, the Democratic minority leader.`\
 https://www.nytimes.com/2026/05/12/us/politics/jen-kiggans-jeffries-cotton-picking-virginia.html
-
-**Government Agents Chase Philippine Senator in Parliament**\
-`CCTV footage captured federal agents chasing Sen. Ronald ‘Bato’ dela Rosa of the Philippines, who enforced a war on drugs that killed thousands, throughout the nation’s parliament on Monday. He is under the Senate’s protection while facing an I.C.C. arrest warrant.`\
-https://www.nytimes.com/video/world/asia/100000010898047/philippines-senator-dela-rosa-icc-parliament.html
-
-**New Jersey 12th Congressional District 2026: Latest Polls**\
-`Track the latest polls in New Jersey's 12th Congressional District.`\
-https://www.nytimes.com/interactive/polls/new-jersey-us-house-12-polls-2026.html
-
-**What the Bond Markets Are Saying About Britain’s Politics and Economy**\
-`The yields on British debt pushed higher as the country’s prime minister, Keir Starmer, confronted a rebellion from members of his party.`\
-https://www.nytimes.com/2026/05/12/business/britain-bonds-gilts-keir-starmer.html
-
-**Justice Department Charges Shipowner in Baltimore Bridge Collapse**\
-`The criminal charges are the latest legal fallout after the 2024 crash, which killed six men who were working on the Key Bridge.`\
-https://www.nytimes.com/2026/05/12/us/baltimore-key-bridge-collapse-charges.html
-
-**Tomato Prices Soar as War, Tariffs and Weather Affect a Popular Crop**\
-`Tomato prices surged nearly 40 percent in April, the Consumer Price Index showed.`\
-https://www.nytimes.com/2026/05/12/business/inflation-tomatoes-prices.html
-
-**‘Paranormal Activity’ to Haunt Broadway This Summer**\
-`Inspired by the popular film series, the play has already run in Britain and in four U.S. cities. It arrives in New York in August after a Boston stop.`\
-https://www.nytimes.com/2026/05/12/theater/paranormal-activity-broadway.html
-
-**Ramit Sethi on a ‘Classic’ Fight Over Money**\
-`Unexpected spending can be a source of conflict for couples. On “The Interview,” Ramit Sethi, the host of the show “I Will Teach You To Be Rich,” explains how people can move past friction over day-to-day spending.`\
-https://www.nytimes.com/video/podcasts/100000010896783/ramit-sethi-on-a-classic-fight-over-money.html
 
