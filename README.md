@@ -1,3 +1,11 @@
+**P.C.O.S. Has a New Name. Doctors Hope It Will Improve Care for Millions.**\
+`The condition has been renamed polyendocrine metabolic ovarian syndrome, or P.M.O.S., to better reflect its wide-ranging health effects.`\
+https://www.nytimes.com/2026/05/12/well/live/pcos-pmos-name-change-treatment-health.html
+
+**Distracted and Bogged Down, Trump and Xi Enter a Summit of Reduced Ambitions**\
+`The war in Iran has cast a shadow of uncertainty on both superpowers, dimming early hopes that they could begin to address the larger issues that have frayed their relationship.`\
+https://www.nytimes.com/2026/05/12/us/politics/trump-xi-summit.html
+
 **Betty Broderick, Whose Murder Trial Was Grist for TV Movies, Dies at 78**\
 `She killed her ex-husband and his new wife after what she described as years of psychological abuse. The crime inspired TV adaptations, a podcast and at least five books.`\
 https://www.nytimes.com/2026/05/12/us/betty-broderick-dead.html
@@ -35,7 +43,7 @@ https://www.nytimes.com/2026/05/12/nyregion/nyu-langone-transgender-care-grand-j
 https://www.nytimes.com/2026/05/12/arts/music/amplifier-newsletter-rolling-stones.html
 
 **F.D.A. Commissioner Marty Makary Resigns After Weeks of Pressure**\
-`The agency’s top food official will step in as acting commissioner, after Dr. Makary’s tumultuous run as the nation’s top food, drug, tobacco and medical device regulator.`\
+`The agency’s top food official will step in to the role after Dr. Makary privately said he opposed the administration decision to approve flavored vapes.`\
 https://www.nytimes.com/2026/05/12/us/politics/trump-fires-fda-commissioner-makary.html
 
 **China ve al EE. UU. de Trump como un imperio en decadencia**\
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/12/opinion/letters/birthrates-no-children.html
 **Mysterious Meddling in Democratic Primaries Has G.O.P. Fingerprints**\
 `A new super PAC with ties to Republicans is intervening in Democratic primaries, in one instance helping a sex therapist in Texas accused of antisemitism.`\
 https://www.nytimes.com/2026/05/12/us/politics/gop-mystery-pac-midterms.html
-
-**Kuwait Accuses Iran of Trying to Infiltrate Its Territory**\
-`Kuwait’s interior ministry said a group of armed Iranians arrived at Bubiyan Island in the Persian Gulf on May 1 aboard a rented fishing boat and exchanged fire with Kuwaiti soldiers.`\
-https://www.nytimes.com/2026/05/12/world/middleeast/kuwait-iran-bubiyan-island.html
-
-**Joni Lamb, Whose Christian TV Station Went Global, Dies at 65**\
-`She and her husband, Marcus Lamb, founded Daystar Television Network, which reached more than 200 countries and made the couple into televangelism stars.`\
-https://www.nytimes.com/2026/05/12/business/media/joni-lamb-dead.html
 
