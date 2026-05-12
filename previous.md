@@ -1,3 +1,11 @@
+**Un hijo moribundo, sus padres detenidos y la carrera para reunirse antes del final**\
+`Desde su cama de hospital en Chicago, el joven deseaba ver por última vez a sus padres. Pero tras cruzar ilegalmente desde México para visitarlo, fueron detenidos por inmigración en Arizona.`\
+https://www.nytimes.com/es/2026/05/12/espanol/estados-unidos/kevin-gonzalez-despedida-padres-cancer.html
+
+**Anthropic in Talks to Raise Funding at a $950 Billion Valuation**\
+`The start-up, which recently released a powerful A.I. model called Mythos and is separately battling with the Pentagon, was previously valued at $380 billion.`\
+https://www.nytimes.com/2026/05/12/technology/anthropic-funding-950-billion-valuation.html
+
 **Waymo Is Fixing All of Its Self-Driving Taxis to Avoid Floods**\
 `The company will recall its software after one of its robotaxis entered a flooded road during a heavy downpour in San Antonio last month.`\
 https://www.nytimes.com/2026/05/12/us/waymo-recall-robotaxis-flood-water.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-west-virginia-us-s
 **West Virginia First Congressional District Primary Election Results**\
 `Get live results and maps from the 2026 West Virginia primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-west-virginia-us-house-1-primary.html
-
-**West Virginia Second Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 West Virginia primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-west-virginia-us-house-2-primary.html
-
-**Newark Mayor Election Results**\
-`Get live results and maps from the 2026 New Jersey election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-new-jersey-mayor-newark.html
 
