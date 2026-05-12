@@ -1,3 +1,7 @@
+**Keir Starmer, British Prime Minister, Refuses to Resign**\
+`The prime minister of Britain, Keir Starmer, vowed to continue governing at a high-stakes cabinet meeting on Tuesday. Calls have grown for for him to resign since heavy Labour Party losses in local elections last week.`\
+https://www.nytimes.com/video/world/europe/100000010898223/keir-starmer-prime-minister-resign.html
+
 **Can a ‘Street Taco’ Be Crunchy? A California Politician Is Finding Out.**\
 `Steve Hilton, a Republican front-runner for governor, posted a video of his Del Taco order. Social media users accused him of misunderstanding the state’s Mexican food culture.`\
 https://www.nytimes.com/2026/05/12/us/california-candidate-steve-hilton-street-taco.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/12/crosswords/strands-sidekick-801.html
 **Wordle Review No. 1,789**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, May 13, 2026.`\
 https://www.nytimes.com/2026/05/12/crosswords/wordle-review-1789.html
-
-**Who Might Challenge Starmer in a Leadership Contest?**\
-`Health Secretary Wes Streeting, Mayor of Greater Manchester Andy Burnham and former deputy prime minister Angela Rayner are among the possible contenders.`\
-https://www.nytimes.com/2026/05/12/world/europe/who-could-replace-starmer-uk-prime-minister.html
 
