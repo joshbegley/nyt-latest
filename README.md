@@ -1,80 +1,80 @@
-**¿Qué tan saludables son las alcachofas?**\
-`Las alcachofas son una de las verduras más infravaloradas, y no tienes que dominar las técnicas de cocina para disfrutarlas.`\
-https://www.nytimes.com/es/2026/05/12/espanol/alcachofas-que-tan-saludables.html
+**It’s the End of LIV Golf as We Knew It (and Trump Feels Fine)**\
+`Journalist Alan Shipnuck explains what we really learned from Saudi Arabia’s multibillion-dollar golf experiment.`\
+https://www.nytimes.com/2026/05/12/podcasts/liv-golf-saudi-arabia.html
 
-**Trump Previews Issues He Plans to Raise With Xi**\
-`President Trump said he expected to speak to the Chinese leader, Xi Jinping, about a range of issues at a summit in Beijing, from the war in Iran to Jimmy Lai, an imprisoned Hong Kong media mogul.`\
-https://www.nytimes.com/video/world/asia/100000010897989/trump-xi-china-summit.html
+**Lo que vimos en Cuba nos impresionó**\
+`Si los estadounidenses supieran lo que está sufriendo Cuba, exigirían el fin del bloqueo estadounidense.`\
+https://www.nytimes.com/es/2026/05/12/espanol/opinion/embargo-cuba.html
 
-**Philippine Senator Outruns Government Agents in Dramatic Chase**\
-`Video shows Senator Ronald dela Rosa, who is wanted by the International Criminal Court over Rodrigo Duterte’s drug war, dashing into the Philippine Senate.`\
-https://www.nytimes.com/2026/05/12/world/asia/philippines-senator-dela-rosa-arrest-warrant.html
+**Trump Is Fighting the World’s Stupidest Culture War**\
+`“He sees fossil fuels as manly and renewables as woke.”`\
+https://www.nytimes.com/2026/05/12/opinion/trump-is-fighting-the-worlds-stupidest-culture-war.html
 
-**Así es la lotería para el servicio militar obligatorio en Tailandia**\
-`Aunque el servicio militar, obligatorio para los hombres, es un tema que divide profundamente al país, los alistamientos voluntarios se han disparado en medio de un auge del nacionalismo y una economía en desaceleración.`\
-https://www.nytimes.com/es/2026/05/12/espanol/mundo/servicio-militar-obligatorio-tailandia.html
+**We Should Take Hantavirus More Seriously**\
+`There are too many unknowns to be certain about much.`\
+https://www.nytimes.com/2026/05/12/opinion/hantavirus-complacency.html
 
-**Volodímir Zelenski comienza a distanciarse del gobierno de Trump**\
-`Con las conversaciones de paz congeladas y Ucrania ahora más autosuficiente, el presidente Volodímir Zelenski parece alejarse de EE. UU.`\
-https://www.nytimes.com/es/2026/05/12/espanol/mundo/zelenski-alejamiento-trump.html
+**At Netflix Is a Joke, the Attention Economy Rules the Festival**\
+`Though stand-up by stars like John Mulaney and Dave Chappelle were on the program, roasts, podcasts and other shows that incorporated comedy were hot.`\
+https://www.nytimes.com/2026/05/12/arts/netflix-is-a-joke-kevin-hart-john-mulaney.html
 
-**La azotea en la que los Beatles tocaron juntos por última vez será un museo**\
-`El inmueble del número 3 de la calle Savile Row, donde el cuarteto también grabó el álbum “Let It Be” se abrirá al público el año que viene.`\
-https://www.nytimes.com/es/2026/05/12/espanol/cultura/beatles-ultimo-concierto-museo.html
+**China Sought Access to Anthropic’s Newest A.I. The Answer Was No.**\
+`The latest artificial intelligence models from Anthropic and OpenAI are extending the United States’ lead over China and intensifying the rivalry between the countries.`\
+https://www.nytimes.com/2026/05/12/us/politics/china-ai-anthropic-openai-mythos-chatgpt.html
 
-**Palabra del día: ‘remonstrate’**\
-`Esta palabra ha aparecido en un artículo de NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
-https://www.nytimes.com/es/2026/05/12/espanol/que-significa-remonstrate.html
+**Getting New York’s Piers Ready for the ‘Semiquin’ on July 4**\
+`The city expects 45 tall ships from 20 nations for the 250th anniversary celebration. Where will they dock?`\
+https://www.nytimes.com/2026/05/12/nyregion/piers-july-4-semiquincentennial.html
 
-**Here’s the latest.**\
-``\
-https://www.nytimes.com/live/2026/05/12/world/uk-starmer/heres-the-latest
+**YouTube Plays Matchmaker for Sponsors and Stars**\
+`The company is trying to help streaming influencers, who are increasingly being wooed by competitors like Netflix and TikTok.`\
+https://www.nytimes.com/2026/05/12/business/media/youtube-creators-advertisers.html
 
-**Deadly Gang Feud Left Bystander Paralyzed in Brooklyn**\
-`The police said 15 people were indicted after a series of shootings across Brooklyn that were linked to gang disputes. At least six people were injured and another was fatally shot.`\
-https://www.nytimes.com/2026/05/12/nyregion/brooklyn-gangs-deadly-shootings.html
+**Start-Up Raises $1.3 Billion for an A.I. ‘Grid’**\
+`As tech giants dominate the hardware needed to build artificial intelligence, Amp hopes to create an alternative.`\
+https://www.nytimes.com/2026/05/12/technology/amp-startup.html
 
-**A Text System Sent Safety Alerts to Private Schools. Now, It’s Silent.**\
-`New York City’s emergency management agency, which ran the alert network, said it needed to free up personnel to help translate messages for the World Cup.`\
-https://www.nytimes.com/2026/05/12/nyregion/nyc-emergency-alerts-schools.html
+**Watching ‘The Devil Wears Prada 2’ as an Elegy for Magazines**\
+`The film may be about fashion, but for some editors and writers, it gets a lot right about the dire state of fashion journalism.`\
+https://www.nytimes.com/2026/05/12/movies/devil-wears-prada-2-magazine.html
 
-**A Reporter Shares His Secrets to Covering the Cannes Film Festival**\
-`Kyle Buchanan, who has attended the annual launchpad for Oscar contenders in France since 2013, subsists on Red Bull and around four hours of sleep.`\
-https://www.nytimes.com/2026/05/12/insider/cannes-film-festival.html
+**Oil Prices Rise on U.S.-Iran Standoff**\
+`President Trump has declared the American cease-fire with Iran is on “life support,” and investors are taking a cautious approach as the lack of progress in peace talks weighs on the markets.`\
+https://www.nytimes.com/2026/05/12/business/oil-prices-rise-us-iran.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/05/12/crosswords/spelling-bee-forum.html
+**Did Epstein Actually Write That Suicide Note? Here’s How We Tried to Find Out.**\
+`Three New York Times reporters discuss the steps they have taken to learn more about a note found in Jeffrey Epstein’s jail cell in the weeks before his death.`\
+https://www.nytimes.com/2026/05/12/insider/epstein-suicide-note-authentication.html
 
-**Stephen Colbert Hosts 4 of His ‘Best Television Friends’**\
-`Jimmy Kimmel, Jimmy Fallon, John Oliver and Seth Meyers, co-hosts of the Strike Force Five podcast along with Colbert, joined as guests on what is likely their last appearance together on the “Late Show.”`\
-https://www.nytimes.com/2026/05/12/arts/television/stephen-colbert-strike-force-five.html
+**Hacky Sack Mounts a Comeback With Gen Z**\
+`Teenagers are booting the game out of the 1990s. “It’s kind of bringing everybody together,” one said.`\
+https://www.nytimes.com/2026/05/12/style/hacky-sack-gen-z.html
 
-**Two Critically Injured After Gunman Fires Into Traffic in Cambridge, Mass.**\
-`As people fled their cars along the busy riverfront road, a state trooper and an armed civilian ran toward the gunman and exchanged fire with him.`\
-https://www.nytimes.com/2026/05/12/us/cambridge-boston-shooting-memorial-drive.html
+**What to Watch in Tuesday’s Primaries in Nebraska and West Virginia**\
+`Democrats will choose a candidate in a House battleground in Nebraska, and an unusual Senate primary could decide the fate of Omaha’s “blue dot” vote.`\
+https://www.nytimes.com/2026/05/12/us/politics/what-to-watch-nebraska-west-virginia-primaries.html
 
-**Word of the Day: remonstrate**\
-`This word has appeared in one article on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/05/12/learning/word-of-the-day-remonstrate.html
+**What to Know About the New Obsession With Testosterone**\
+`From politics to influencers and beyond, the hormone is being used not just for medical reasons but in pursuit of a new masculine ideal.`\
+https://www.nytimes.com/2026/05/12/magazine/what-to-know-testosterone-masculinity.html
 
-**Maker of Canvas Learning Platform Strikes Deal for Hackers to Return Data**\
-`Instructure, which provides Canvas software to thousands of schools and universities around the world, did not say what it had given the hackers in exchange for the stolen data.`\
-https://www.nytimes.com/2026/05/12/us/canvas-instructure-hackers-deal.html
+**The War in Iran Is Another Blow to Russia’s Credibility. Or Is It?**\
+`Despite its long slog in Ukraine and the loss of former allies like Syria, Russia is benefiting from costly energy, a clever narrative and America’s own failure to achieve a quick victory.`\
+https://www.nytimes.com/2026/05/12/world/europe/russia-europe-ukraine-syria-iran.html
 
-**Spain’s Leader Is Trump’s Nemesis, and He’s Winning**\
-`Pedro Sánchez has established an alternative governing philosophy to Trumpism.`\
-https://www.nytimes.com/2026/05/12/opinion/sanchez-trump-spain-europe.html
+**Barney Frank, in Hospice, Has Advice for the Democrats**\
+`Mr. Frank speaks about the missteps of the Democratic Party and his hope for its future. “Frankly, if I weren’t dying, people wouldn’t be paying as much attention.”`\
+https://www.nytimes.com/2026/05/12/us/barney-frank-congress-democrats-advice.html
 
-**Robert Kennedy Jr. continúa su cruzada para investigar las vacunas**\
-`Kennedy lidera una intensa campaña para que científicos, y los contratistas federales de datos, analicen su teoría de que las vacunas impulsan una epidemia de enfermedades crónicas.`\
-https://www.nytimes.com/es/2026/05/12/espanol/estados-unidos/robert-kennedy-jr-vacunas.html
+**For 10 Years, They’ve Been Building a Future for Female Composers**\
+`Missy Mazzoli and Ellen Reid didn’t have female mentors. They founded Luna Composition Lab so young composers would.`\
+https://www.nytimes.com/2026/05/12/arts/music/luna-composition-lab.html
 
-**12 Ways to Eat Through Our List of the Best Restaurants in New York City**\
-`Don’t have the time (or money) to try all 100? Here are a dozen bite-size bucket lists to inspire you.`\
-https://www.nytimes.com/2026/05/12/dining/nyc-restaurants-user-guide.html
+**Your Decision Making Is All Wrong**\
+`Why searching for the best is the wrong goal.`\
+https://www.nytimes.com/2026/05/12/opinion/decision-making-herbert-simon.html
 
-**Is France’s Centrist Leader Trying to Weatherproof It From the Far Right?**\
-`President Emmanuel Macron has appointed a string of allies who will remain in critical state positions after next year’s presidential election, and who could thwart a far-right successor.`\
-https://www.nytimes.com/2026/05/12/world/europe/france-macron-weatherproof-bureaucracy.html
+**What Kevin Warsh Doesn’t Understand About A.I.**\
+`The Fed’s next leader needs a complete picture of what A.I. will do to the economy.`\
+https://www.nytimes.com/2026/05/12/opinion/kevin-warsh-fed-ai.html
 
