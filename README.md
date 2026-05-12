@@ -1,3 +1,7 @@
+**Stephen Colbert Hosts 4 of His ‘Best Television Friends’**\
+`Jimmy Kimmel, Jimmy Fallon, John Oliver and Seth Meyers, co-hosts of the Strike Force Five podcast along with Colbert, joined as guests on what is likely their last appearance together on the “Late Show.”`\
+https://www.nytimes.com/2026/05/12/arts/television/stephen-colbert-strike-force-five.html
+
 **Two Critically Injured After Gunman Fires ‘Erratically’ Into Traffic in Cambridge, Mass.**\
 `As people fled their cars along the busy riverfront road, a state trooper and an armed civilian ran toward the gunman and exchanged fire with him.`\
 https://www.nytimes.com/2026/05/12/us/cambridge-boston-shooting-memorial-drive.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/05/11/espanol/mundo/hantavirus-crucero-lista-pas
 **Kari Lake, Who Led Effort to Shutter Voice of America, Is Named Ambassador to Jamaica**\
 `Ms. Lake tried and failed to fire hundreds of Voice of America journalists and to cut funding for other federally funded news groups like Radio Free Europe/Radio Liberty.`\
 https://www.nytimes.com/2026/05/11/us/politics/kari-lake-jamaica-ambassador.html
-
-**Bezos Family Gives $100 Million for Preschool Education in New York**\
-`Free child care is one of Mayor Zohran Mamdani’s top goals. Now the Bezos Foundation is giving Robin Hood, a favorite philanthropy of wealthy New Yorkers, big money for early childhood education.`\
-https://www.nytimes.com/2026/05/11/nyregion/bezos-donation-nyc-education-robin-hood.html
 
