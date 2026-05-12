@@ -1,3 +1,11 @@
+**Why Did Ramit Sethi, the ‘Get Rich’ Guy, Speak Up About Trump?**\
+`On “The Interview,” Ramit Sethi, a personal finance adviser, explains why he has been public about his revulsion for President Trump, and why he talks about the structural systems that add to many Americans’ financial problems.`\
+https://www.nytimes.com/video/podcasts/100000010896666/why-did-ramit-sethi-the-get-rich-guy-speak-up-about-trump.html
+
+**Amnesty Accuses Nigerian Military of Bombing Another Market**\
+`The rights group said more than 100 people were killed in airstrikes on Sunday that appeared to be the latest in a series of similar attacks.`\
+https://www.nytimes.com/2026/05/12/world/africa/nigeria-tumfa-market-strikes.html
+
 **Building Nests Is Hard. That’s Why Some Birds Steal.**\
 `When researchers used GPS devices to monitor the nests of Hawaiian honeycreepers, they found dozens of cases of brazen avian burglary.`\
 https://www.nytimes.com/2026/05/12/science/birds-steal-nest-material.html
