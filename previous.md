@@ -46,7 +46,7 @@ https://www.nytimes.com/2026/05/12/learning/word-of-the-day-remonstrate.html
 `Instructure, which provides Canvas software to thousands of schools and universities around the world, did not say what it had given the hackers in exchange for the stolen data.`\
 https://www.nytimes.com/2026/05/12/us/canvas-instructure-hackers-deal.html
 
-**Spain’s Leader Is Showing How to Stand Up to Trump, and So Much More**\
+**Spain’s Leader Is Trump’s Nemesis, and He’s Winning**\
 `Pedro Sánchez has established an alternative governing philosophy to Trumpism.`\
 https://www.nytimes.com/2026/05/12/opinion/sanchez-trump-spain-europe.html
 

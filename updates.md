@@ -1,3 +1,7 @@
+**Spain’s Leader Is Trump’s Nemesis, and He’s Winning**\
+`Pedro Sánchez has established an alternative governing philosophy to Trumpism.`\
+https://www.nytimes.com/2026/05/12/opinion/sanchez-trump-spain-europe.html
+
 **Volodímir Zelenski comienza a distanciarse del gobierno de Trump**\
 `Con las conversaciones de paz congeladas y Ucrania ahora más autosuficiente, el presidente Volodímir Zelenski parece alejarse de EE. UU.`\
 https://www.nytimes.com/es/2026/05/12/espanol/mundo/zelenski-alejamiento-trump.html
