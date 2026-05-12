@@ -1,3 +1,7 @@
+**Robert Kennedy Jr. continúa su cruzada para investigar las vacunas**\
+`Kennedy lidera una intensa campaña para que científicos, y los contratistas federales de datos, analicen su teoría de que las vacunas impulsan una epidemia de enfermedades crónicas.`\
+https://www.nytimes.com/es/2026/05/12/espanol/estados-unidos/robert-kennedy-jr-vacunas.html
+
 **12 Ways to Eat Through Our List of the Best Restaurants in New York City**\
 `Don’t have the time (or money) to try all 100? Here are a dozen bite-size bucket lists to inspire you.`\
 https://www.nytimes.com/2026/05/12/dining/nyc-restaurants-user-guide.html
