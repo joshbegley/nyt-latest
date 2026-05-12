@@ -1,3 +1,11 @@
+**Scientology Churches Scramble to Keep TikTok Speedrunners Out**\
+`The police in Los Angeles, New York, Sydney and elsewhere are responding to incidents related to a TikTok trend involving running through Scientology buildings.`\
+https://www.nytimes.com/2026/05/12/style/scientology-speedruns-tiktok-teens-la-nyc.html
+
+**That Wig, Those Splits: Broadway Scene Stealers, Tonys Edition**\
+`Here are some of the brilliant moments our writers can’t shake from this year’s batch of Tony-nominated productions.`\
+https://www.nytimes.com/2026/05/12/theater/broadway-scene-stealers-tonys.html
+
 **20-Minute Dinners for When You Are Dunzo**\
 `The dead-simple dinners — like halloumi tacos and creamy cabbage pastina — we turn to when Maycember ramps up.`\
 https://www.nytimes.com/2026/05/12/dining/20-minute-dinners-for-when-you-are-dunzo.html

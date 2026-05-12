@@ -1,3 +1,15 @@
+**Pentagon Puts War Cost at $29 Billion as Hegseth Deflects on Funding**\
+`The estimate from the Defense Department’s top budget official was $4 billion higher than two weeks ago. Secretary Pete Hegseth declined to say when the administration would request extra money for the Iran conflict.`\
+https://www.nytimes.com/2026/05/12/us/politics/iran-war-cost-hegseth-congress.html
+
+**Today, In Short**\
+`Dirty soda. Pharma merch. And Punch, the monkey.`\
+https://www.nytimes.com/2026/05/12/briefing/today-in-short.html
+
+**Where Was Nurul Amin Shah Alam?**\
+`A refugee with little sight and no English, he had been jailed for a year, intercepted by federal agents and delivered to a merciless Buffalo winter.`\
+https://www.nytimes.com/interactive/2026/05/12/nyregion/buffalo-refugee-nurul-amin.html
+
 **Scientology Churches Scramble to Keep TikTok Speedrunners Out**\
 `The police in Los Angeles, New York, Sydney and elsewhere are responding to incidents related to a TikTok trend involving running through Scientology buildings.`\
 https://www.nytimes.com/2026/05/12/style/scientology-speedruns-tiktok-teens-la-nyc.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/video/podcasts/100000010896666/why-did-ramit-sethi-the-g
 **Amnesty Accuses Nigerian Military of Bombing Another Market**\
 `The rights group said more than 100 people were killed in airstrikes on Sunday that appeared to be the latest in a series of similar attacks.`\
 https://www.nytimes.com/2026/05/12/world/africa/nigeria-tumfa-market-strikes.html
-
-**Building Nests Is Hard. That’s Why Some Birds Steal.**\
-`When researchers used GPS devices to monitor the nests of Hawaiian honeycreepers, they found dozens of cases of brazen avian burglary.`\
-https://www.nytimes.com/2026/05/12/science/birds-steal-nest-material.html
-
-**A Statement Jacket, Courtesy of a ‘Fashion Icon’: Her Mother**\
-`A 20-something wearing her mother’s jacket for a Friday evening in Greenwich Village.`\
-https://www.nytimes.com/2026/05/12/style/street-style-look-faux-fleece.html
-
-**Macron Makes a Bid for New Partners in Africa**\
-`The French president visited Kenya this week for a summit designed to build stronger ties with Anglophone African countries.`\
-https://www.nytimes.com/2026/05/12/world/africa/macron-africa-summit-kenya.html
 
