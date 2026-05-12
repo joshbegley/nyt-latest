@@ -1,3 +1,7 @@
+**¿Qué tan saludables son las alcachofas?**\
+`Las alcachofas son una de las verduras más infravaloradas, y no tienes que dominar las técnicas de cocina para disfrutarlas.`\
+https://www.nytimes.com/es/2026/05/12/espanol/alcachofas-que-tan-saludables.html
+
 **Trump Previews Issues He Plans to Raise With Xi**\
 `President Trump said he expected to speak to the Chinese leader, Xi Jinping, about a range of issues at a summit in Beijing, from the war in Iran to Jimmy Lai, an imprisoned Hong Kong media mogul.`\
 https://www.nytimes.com/video/world/asia/100000010897989/trump-xi-china-summit.html
@@ -46,7 +50,7 @@ https://www.nytimes.com/2026/05/12/crosswords/spelling-bee-forum.html
 `Jimmy Kimmel, Jimmy Fallon, John Oliver and Seth Meyers, co-hosts of the Strike Force Five podcast along with Colbert, joined as guests on what is likely their last appearance together on the “Late Show.”`\
 https://www.nytimes.com/2026/05/12/arts/television/stephen-colbert-strike-force-five.html
 
-**Two Critically Injured After Gunman Fires ‘Erratically’ Into Traffic in Cambridge, Mass.**\
+**Two Critically Injured After Gunman Fires Into Traffic in Cambridge, Mass.**\
 `As people fled their cars along the busy riverfront road, a state trooper and an armed civilian ran toward the gunman and exchanged fire with him.`\
 https://www.nytimes.com/2026/05/12/us/cambridge-boston-shooting-memorial-drive.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/12/dining/nyc-restaurants-user-guide.html
 **Is France’s Centrist Leader Trying to Weatherproof It From the Far Right?**\
 `President Emmanuel Macron has appointed a string of allies who will remain in critical state positions after next year’s presidential election, and who could thwart a far-right successor.`\
 https://www.nytimes.com/2026/05/12/world/europe/france-macron-weatherproof-bureaucracy.html
-
-**Putin dijo que la guerra ‘está llegando a su fin’, pero no cede en sus términos**\
-`El dirigente ruso camina por la cuerda floja: reconoce el descontento de la opinión pública, pero no ofrece indicios de que pueda renunciar a sus exigencias.`\
-https://www.nytimes.com/es/2026/05/12/espanol/mundo/guerra-ucrania-putin-rusia.html
 

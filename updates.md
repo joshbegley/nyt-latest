@@ -1,3 +1,15 @@
+**Trump Previews Issues He Plans to Raise With Xi**\
+`President Trump said he expected to speak to the Chinese leader, Xi Jinping, about a range of issues at a summit in Beijing, from the war in Iran to Jimmy Lai, an imprisoned Hong Kong media mogul.`\
+https://www.nytimes.com/video/world/asia/100000010897989/trump-xi-china-summit.html
+
+**Philippine Senator Outruns Government Agents in Dramatic Chase**\
+`Video shows Senator Ronald dela Rosa, who is wanted by the International Criminal Court over Rodrigo Duterte’s drug war, dashing into the Philippine Senate.`\
+https://www.nytimes.com/2026/05/12/world/asia/philippines-senator-dela-rosa-arrest-warrant.html
+
+**Así es la lotería para el servicio militar obligatorio en Tailandia**\
+`Aunque el servicio militar, obligatorio para los hombres, es un tema que divide profundamente al país, los alistamientos voluntarios se han disparado en medio de un auge del nacionalismo y una economía en desaceleración.`\
+https://www.nytimes.com/es/2026/05/12/espanol/mundo/servicio-militar-obligatorio-tailandia.html
+
 **Spain’s Leader Is Trump’s Nemesis, and He’s Winning**\
 `Pedro Sánchez has established an alternative governing philosophy to Trumpism.`\
 https://www.nytimes.com/2026/05/12/opinion/sanchez-trump-spain-europe.html
