@@ -1,80 +1,80 @@
-**How Trump Changed the Way He Talks About China**\
-`As President Trump travels to China to meet with President Xi Jinping, our reporter David Sanger looks at how Trump’s rhetoric about China has shifted from his first term.`\
-https://www.nytimes.com/video/us/100000010890442/how-trump-changed-the-way-he-talks-about-china.html
+**Why the British Prime Minister Remains in Deep Trouble**\
+`Prime Minister Keir Starmer seemed to have won a temporary reprieve on Tuesday after daring his rivals to challenge him, but the underlying problems with his leadership remain.`\
+https://www.nytimes.com/2026/05/12/world/europe/kier-starmer-uk-prime-minister.html
 
-**Man Who Stole Unreleased Beyoncé Music Is Sentenced to 5 Years**\
-`The theft occurred on July 8, 2025, when members of the singer’s team reported a vehicle break-in ahead of her “Cowboy Carter” tour dates in Atlanta.`\
-https://www.nytimes.com/2026/05/12/us/beyonce-music-theft-guilty-atlanta.html
+**Officers Sue Affleck and Damon’s Company Over ‘The Rip’ Portrayal**\
+`Two Miami law enforcement officials say the Netflix crime drama uses real-life details and portrays them in a negative light.`\
+https://www.nytimes.com/2026/05/12/movies/the-rip-netflix-lawsuit.html
 
-**Sam Altman has been targeted in a backlash against A.I.**\
-``\
-https://www.nytimes.com/live/2026/05/12/technology/openai-trial-sam-altman-elon-musk/sam-altman-has-been-targeted-in-a-backlash-against-ai
+**Nebraska Second Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Nebraska primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-nebraska-us-house-2-primary.html
 
-****\
-``\
-https://www.nytimes.com/video/embedded/us/100000010899415/12vid-Trump-Marty-Makary.html
+**Nebraska Primary Election Results**\
+`Get live results and maps from the 2026 Nebraska primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-nebraska-primary.html
 
-**Authorities Identify Man Fatally Struck by Frontier Jet**\
-`Authorities ruled the death of a man struck and killed by a Frontier Airlines jet at Denver International Airport on Friday as a suicide.`\
-https://www.nytimes.com/video/us/100000010899219/man-killed-denver-airport-frontier-jet.html
+**West Virginia Primary Election Results**\
+`Get live results and maps from the 2026 West Virginia primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-west-virginia-primary.html
 
-**Alabama Governor Sets New Primary Elections for Four House Seats**\
-`Gov. Kay Ivey scheduled special House primaries for August after the Supreme Court cleared a path for Alabama to use a 2023 congressional map with one majority-Black district.`\
-https://www.nytimes.com/2026/05/12/us/alabama-governor-primary-elections-house.html
+**A Dying Son, His Detained Parents and a Race to Reunite Before the End**\
+`From his hospital bed in Chicago, Kevin Gonzalez had a final wish to see his parents. But they were in immigration detention in Arizona after illegally crossing to see their son.`\
+https://www.nytimes.com/2026/05/12/us/teen-cancer-death-parents-immigration-detention.html
 
-**China Is Much Weaker Than It Seems. That’s the Problem.**\
-`History shows there is no more productive national asset than freedom.`\
-https://www.nytimes.com/2026/05/12/opinion/china-power-trump-xi-beijing.html
+**Michigan 10th Congressional District 2026: Latest Polls**\
+`Track the latest polls in Michigan's 10th Congressional District.`\
+https://www.nytimes.com/interactive/polls/michigan-us-house-10-polls-2026.html
 
-**The Race to Lower California’s Housing Costs**\
-`Democrats running for California governor join the Opinion columnist Ezra Klein to debate whether manufacturing technology or federal policy can solve the crisis of the state’s skyrocketing home construction costs.`\
-https://www.nytimes.com/video/opinion/100000010897315/the-race-to-lower-californias-housing-costs.html
+**Michigan Seventh Congressional District 2026: Latest Polls**\
+`Track the latest polls in Michigan's 7th Congressional District.`\
+https://www.nytimes.com/interactive/polls/michigan-us-house-7-polls-2026.html
 
-**He’s Accused of Murder in Texas. Now He’s Seeking Asylum in Italy.**\
-`The case could test the limits of a decades-old extradition treaty, because Italy bars extradition in cases where a defendant could face the death penalty.`\
-https://www.nytimes.com/2026/05/12/us/lee-gilley-texas-pregnant-wife-murder-italy-extradition.html
+**Michigan Fourth Congressional District 2026: Latest Polls**\
+`Track the latest polls in Michigan's 4th Congressional District.`\
+https://www.nytimes.com/interactive/polls/michigan-us-house-4-polls-2026.html
 
-**How Mamdani and Hochul Are Solving New York City’s Budget Crisis**\
-`A generous influx of state resources from Gov. Kathy Hochul and a new tax on luxury second homes will help Mayor Zohran Mamdani balance a $125 billion budget.`\
-https://www.nytimes.com/2026/05/12/nyregion/mamdani-budget-nyc.html
+**Nebraska Secretary of State Primary Election Results**\
+`Get live results and maps from the 2026 Nebraska primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-nebraska-secretary-of-state-primary.html
 
-**P.C.O.S. Has a New Name. Doctors Hope It Will Improve Care for Millions.**\
-`The condition has been renamed polyendocrine metabolic ovarian syndrome, or P.M.O.S., to better reflect its wide-ranging health effects.`\
-https://www.nytimes.com/2026/05/12/well/live/pcos-pmos-name-change-treatment-health.html
+**Nebraska Auditor Primary Election Results**\
+`Get live results and maps from the 2026 Nebraska primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-nebraska-auditor-primary.html
 
-**Distracted and Bogged Down, Trump and Xi Enter a Summit of Reduced Ambitions**\
-`The war in Iran has cast a shadow of uncertainty on both superpowers, dimming early hopes that they could begin to address the larger issues that have frayed their relationship.`\
-https://www.nytimes.com/2026/05/12/us/politics/trump-xi-summit.html
+**Newark Mayor Election Results**\
+`Get live results and maps from the 2026 New Jersey election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-jersey-mayor-newark.html
 
-**Betty Broderick, Whose Murder Trial Was Grist for TV Movies, Dies at 78**\
-`She killed her ex-husband and his new wife after what she described as years of psychological abuse. The crime inspired TV adaptations, a podcast and at least five books.`\
-https://www.nytimes.com/2026/05/12/us/betty-broderick-dead.html
+**West Virginia First Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 West Virginia primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-west-virginia-us-house-1-primary.html
 
-**La guerra en Irán quita el color a las bolsas de las botanas más conocidas de Japón**\
-`El gigante alimentario Calbee dijo que la escasez de nafta, un derivado del petróleo crudo utilizado en las tintas, lo estaba obligando a cambiar a envases en blanco y negro para sus productos salados.`\
-https://www.nytimes.com/es/2026/05/12/espanol/mundo/guerra-iran-economia-precios-japon.html
+**West Virginia Second Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 West Virginia primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-west-virginia-us-house-2-primary.html
 
-**Amor Towles Shares Insights on His Own Rare Book Collection**\
-`The best-selling author and collector explains what draws him to add to his own bookshelves.`\
-https://www.nytimes.com/2026/05/12/books/amor-towles-rare-books.html
+**West Virginia Supreme Court Special Election Results**\
+`Get live results and maps from the 2026 West Virginia special election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-west-virginia-supreme-court-special-may-12.html
 
-**Revolution and Rarities: An Intriguing Combination at the Firsts London Book Fair**\
-`What to expect at the book fair in the Saatchi Gallery.`\
-https://www.nytimes.com/2026/05/12/books/firsts-london-book-fair.html
+**West Virginia U.S. Senate Primary Election Results**\
+`Get live results and maps from the 2026 West Virginia primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-west-virginia-us-senate-primary.html
 
-**Una idea ‘imposible’ derivó en un gran avance contra el cáncer de páncreas**\
-`La nueva estrategia también es prometedora para los tumores de pulmón y colon. He aquí cómo los científicos la descubrieron.`\
-https://www.nytimes.com/es/2026/05/12/espanol/ciencia-y-tecnologia/cancer-pancreas-avances-medicos.html
+**Nebraska U.S. Senate Primary Election Results**\
+`Get live results and maps from the 2026 Nebraska primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-nebraska-us-senate-primary.html
 
-**6 Ways to See Rare Books in London**\
-`Here’s a guide to illuminated manuscripts, antique tomes and first editions around the British capital.`\
-https://www.nytimes.com/2026/05/12/arts/design/rare-books-london.html
+**West Virginia Court of Appeals Election Results**\
+`Get live results and maps from the 2026 West Virginia general election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-west-virginia-court-of-appeals.html
 
-**Reflecting Pool Repairs Appear Uneven and Behind Schedule, Officials Say**\
-`Work on the iconic National Mall basin appears behind schedule. President Trump initially said he had picked the contractor, then said he did not know it.`\
-https://www.nytimes.com/2026/05/12/us/politics/lincoln-memorial-pool-repairs.html
+**Nebraska Attorney General Primary Election Results**\
+`Get live results and maps from the 2026 Nebraska primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-nebraska-attorney-general-primary.html
 
-**N.Y.C. Hospital Is Subpoenaed Over Trans Youth Health Care**\
-`The action, initiated by the U.S. attorney’s office in North Texas, could set up a showdown between NYU Langone and the Justice Department.`\
-https://www.nytimes.com/2026/05/12/nyregion/nyu-langone-transgender-care-grand-jury.html
+**Nebraska Governor Primary Election Results**\
+`Get live results and maps from the 2026 Nebraska primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-nebraska-governor-primary.html
 
