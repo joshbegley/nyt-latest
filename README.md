@@ -1,3 +1,11 @@
+**Conan O’Brien Will Return as Oscars Host**\
+`It will be the first time anyone has done the job for three straight years since Billy Crystal in the early 1990s.`\
+https://www.nytimes.com/2026/05/12/business/media/conan-obrien-oscars-host-2027.html
+
+**See How Trump Is Renovating the Reflecting Pool**\
+`A rundown of the problems at the pool and what President Trump is trying to do to fix them.`\
+https://www.nytimes.com/2026/05/12/us/politics/trump-reflecting-pool-renovation.html
+
 **Day 1 in Quarantine: Tested for Hantavirus, Treated to Starbucks**\
 `Jake Rosmarin, a travel influencer from Boston, is one of 15 passengers from the virus-stricken cruise ship being monitored at the National Quarantine Unit in Nebraska.`\
 https://www.nytimes.com/2026/05/12/us/hantavirus-quarantine-nebraska-travel-influencer.html
@@ -35,7 +43,7 @@ https://www.nytimes.com/2026/05/12/arts/design/norton-simon-museum-galka-scheyer
 https://www.nytimes.com/2026/05/12/us/florida-alligator-alcatraz-detention-closure.html
 
 **Obama Enters Texas Senate Fight With Support for Talarico**\
-`The former president, who has looked to elevate a new generation of Democrat, met with James Talarico and a candidate for governor, Gina Hinojosa, who are trying to flip Texas.`\
+`The former president, who has looked to elevate a new generation of Democrats, met with James Talarico and a candidate for governor, Gina Hinojosa, who are trying to flip Texas.`\
 https://www.nytimes.com/2026/05/12/us/obama-james-talarico-texas-senate-2026-democrats.html
 
 **Drones Are Leading Cause of Civilian Deaths in Sudan War, U.N. Says**\
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/12/us/teen-cancer-death-parents-immigration-dete
 **Michigan 10th Congressional District 2026: Latest Polls**\
 `Track the latest polls in Michigan's 10th Congressional District.`\
 https://www.nytimes.com/interactive/polls/michigan-us-house-10-polls-2026.html
-
-**Michigan Seventh Congressional District 2026: Latest Polls**\
-`Track the latest polls in Michigan's 7th Congressional District.`\
-https://www.nytimes.com/interactive/polls/michigan-us-house-7-polls-2026.html
-
-**Michigan Fourth Congressional District 2026: Latest Polls**\
-`Track the latest polls in Michigan's 4th Congressional District.`\
-https://www.nytimes.com/interactive/polls/michigan-us-house-4-polls-2026.html
 
