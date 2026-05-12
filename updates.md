@@ -1,3 +1,7 @@
+**Palabra del día: ‘remonstrate’**\
+`Esta palabra ha aparecido en un artículo de NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/05/12/espanol/que-significa-remonstrate.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/05/12/world/uk-starmer/heres-the-latest
