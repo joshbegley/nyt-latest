@@ -1,3 +1,11 @@
+**Building Nests Is Hard. That’s Why Some Birds Steal.**\
+`When researchers used GPS devices to monitor the nests of Hawaiian honeycreepers, they found dozens of cases of brazen avian burglary.`\
+https://www.nytimes.com/2026/05/12/science/birds-steal-nest-material.html
+
+**A Statement Jacket, Courtesy of a ‘Fashion Icon’: Her Mother**\
+`A 20-something wearing her mother’s jacket for a Friday evening in Greenwich Village.`\
+https://www.nytimes.com/2026/05/12/style/street-style-look-faux-fleece.html
+
 **Macron Makes a Bid for New Partners in Africa**\
 `The French president visited Kenya this week for a summit designed to build stronger ties with Anglophone African countries.`\
 https://www.nytimes.com/2026/05/12/world/africa/macron-africa-summit-kenya.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/12/podcasts/the-daily/americans-religion-believi
 **How Iran’s Internet Blackout Is Crippling Its Economy, and the Fight Over Fruit-Flavored Vapes**\
 `Plus, how everything became a subscription.`\
 https://www.nytimes.com/2026/05/12/podcasts/the-headlines/iran-internet-blackout-ieconomy-fruit-flavored-vapes.html
-
-**Connections Companion No. 1,067**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, May 13, 2026.`\
-https://www.nytimes.com/2026/05/12/crosswords/connections-companion-1067.html
-
-**Strands Sidekick No. 801**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, May 13, 2026.`\
-https://www.nytimes.com/2026/05/12/crosswords/strands-sidekick-801.html
 
