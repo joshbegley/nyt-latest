@@ -1,3 +1,7 @@
+**How Mamdani and Hochul Are Solving New York City’s Budget Crisis**\
+`A generous influx of state resources from Gov. Kathy Hochul and a new tax on luxury second homes will help Mayor Zohran Mamdani balance a $125 billion budget.`\
+https://www.nytimes.com/2026/05/12/nyregion/mamdani-budget-nyc.html
+
 **How Trump Changed the Way He Talks About China**\
 `As President Trump travels to China to meet with President Xi Jinping, our reporter David Sanger looks at how Trump’s rhetoric about China has shifted from his first term.`\
 https://www.nytimes.com/video/us/100000010890442/how-trump-changed-the-way-he-talks-about-china.html

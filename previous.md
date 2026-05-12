@@ -34,8 +34,8 @@ https://www.nytimes.com/video/opinion/100000010897315/the-race-to-lower-californ
 `The case could test the limits of a decades-old extradition treaty, because Italy bars extradition in cases where a defendant could face the death penalty.`\
 https://www.nytimes.com/2026/05/12/us/lee-gilley-texas-pregnant-wife-murder-italy-extradition.html
 
-**How New York City Is Solving Its Budget Crisis**\
-`A generous influx of state resources from Gov. Kathy Hochul and a new tax on luxury second homes will help Mayor Zohran Mamdani address a projected $5.4 billion deficit.`\
+**How Mamdani and Hochul Are Solving New York City’s Budget Crisis**\
+`A generous influx of state resources from Gov. Kathy Hochul and a new tax on luxury second homes will help Mayor Zohran Mamdani balance a $125 billion budget.`\
 https://www.nytimes.com/2026/05/12/nyregion/mamdani-budget-nyc.html
 
 **P.C.O.S. Has a New Name. Doctors Hope It Will Improve Care for Millions.**\
