@@ -2,7 +2,7 @@
 `The company will recall its software after one of its robotaxis entered a flooded road during a heavy downpour in San Antonio last month.`\
 https://www.nytimes.com/2026/05/12/us/waymo-recall-robotaxis-flood-water.html
 
-**In Heated Exchanges, Patel Denies Lying and Excessive Drinking**\
+**In Heated Exchanges, Kash Patel Denies Lying and Excessive Drinking**\
 `The remarks, at a hearing ostensibly about the coming budget for law enforcement agencies, veered from sedate exchanges about operational matters to ugly personal confrontations.`\
 https://www.nytimes.com/2026/05/12/us/politics/kash-patel-hearing-fbi-drinking.html
 
