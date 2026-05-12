@@ -1,3 +1,7 @@
+**Starmer has struggled with the economy, the Mandelson scandal and other issues.**\
+``\
+https://www.nytimes.com/live/2026/05/12/world/uk-starmer/starmer-has-struggled-with-the-economy-the-mandelson-scandal-and-other-issues
+
 **Leigh Magar, High-End Milliner Turned Indigo Artist, Dies at 57**\
 `She was known for bespoke hats that attracted a celebrity following. Then she left Charleston for an island off South Carolina, where she began cultivating indigo.`\
 https://www.nytimes.com/2026/05/12/arts/design/leigh-magar-dead.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/podcasts/100000010896783/ramit-sethi-on-a-classic-
 **Parents Should Help Their Grown Children With Money, Ramit Sethi Says**\
 `It’s become harder for young adults to get ahead financially, even if they do everything right, Ramit Sethi, a personal finance expert, said on “The Interview.” He said parents should talk to their children about money issues and acknowledge the challenges.`\
 https://www.nytimes.com/video/podcasts/100000010896750/parents-should-help-their-grown-children-with-money-ramit-sethi-says.html
-
-**Why Did Ramit Sethi, the ‘Get Rich’ Guy, Speak Up About Trump?**\
-`On “The Interview,” Ramit Sethi, a personal finance adviser, explains why he has been public about his revulsion for President Trump, and why he talks about the structural systems that add to many Americans’ financial problems.`\
-https://www.nytimes.com/video/podcasts/100000010896666/why-did-ramit-sethi-the-get-rich-guy-speak-up-about-trump.html
 
