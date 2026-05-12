@@ -1,3 +1,7 @@
+**Ramit Sethi on a ‘Classic’ Fight Over Money**\
+`Unexpected spending can be a source of conflict for couples. On “The Interview,” Ramit Sethi, the host of the show “I Will Teach You To Be Rich,” explains how people can move past friction over day-to-day spending.`\
+https://www.nytimes.com/video/podcasts/100000010896783/ramit-sethi-on-a-classic-fight-over-money.html
+
 **Parents Should Help Their Grown Children With Money, Ramit Sethi Says**\
 `It’s become harder for young adults to get ahead financially, even if they do everything right, Ramit Sethi, a personal finance expert, said on “The Interview.” He said parents should talk to their children about money issues and acknowledge the challenges.`\
 https://www.nytimes.com/video/podcasts/100000010896750/parents-should-help-their-grown-children-with-money-ramit-sethi-says.html
@@ -30,9 +34,9 @@ https://www.nytimes.com/video/world/europe/100000010898223/keir-starmer-prime-mi
 `Steve Hilton, a Republican front-runner for governor, posted a video of his Del Taco order. Social media users accused him of misunderstanding the state’s Mexican food culture.`\
 https://www.nytimes.com/2026/05/12/us/california-candidate-steve-hilton-street-taco.html
 
-**Inflation Accelerates After Weeks of War in Iran**\
-`The Consumer Price Index rose 3.8% in April from a year earlier as higher energy costs replaced tariffs as the driver of higher prices for Americans.`\
-https://www.nytimes.com/2026/05/12/business/economy/cpi-inflation-report-consumer-prices.html
+**What to know about the report.**\
+`The consumer price index increased X.X% in April from a year earlier as higher energy costs raised a range of prices for Americans.`\
+https://www.nytimes.com/live/2026/05/12/business/inflation-report-cpi/cpi-inflation-report-consumer-prices
 
 **Labour’s deep losses in local elections reflect a shift in the public mood.**\
 ``\
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/embedded/world/europe/100000010898226/12vid-uk-cab
 **Britain’s Starmer Faces Calls to Resign. What Options Does He Have?**\
 `Prime Minister Keir Starmer vowed to continue in office on Tuesday morning. It’s one of several possible paths for the embattled leader after heavy losses in local elections.`\
 https://www.nytimes.com/2026/05/12/world/europe/uk-starmer-resign-prime-minister-what-options.html
-
-**EBay Rejects GameStop’s $55 Billion Takeover Bid**\
-`The online marketplace called the cash-and-stock proposal “neither credible nor attractive.”`\
-https://www.nytimes.com/2026/05/12/business/ebay-gamestop-takeover.html
 

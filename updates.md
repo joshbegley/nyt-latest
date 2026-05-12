@@ -1,3 +1,11 @@
+**Ramit Sethi on a ‘Classic’ Fight Over Money**\
+`Unexpected spending can be a source of conflict for couples. On “The Interview,” Ramit Sethi, the host of the show “I Will Teach You To Be Rich,” explains how people can move past friction over day-to-day spending.`\
+https://www.nytimes.com/video/podcasts/100000010896783/ramit-sethi-on-a-classic-fight-over-money.html
+
+**What to know about the report.**\
+`The consumer price index increased X.X% in April from a year earlier as higher energy costs raised a range of prices for Americans.`\
+https://www.nytimes.com/live/2026/05/12/business/inflation-report-cpi/cpi-inflation-report-consumer-prices
+
 **Parents Should Help Their Grown Children With Money, Ramit Sethi Says**\
 `It’s become harder for young adults to get ahead financially, even if they do everything right, Ramit Sethi, a personal finance expert, said on “The Interview.” He said parents should talk to their children about money issues and acknowledge the challenges.`\
 https://www.nytimes.com/video/podcasts/100000010896750/parents-should-help-their-grown-children-with-money-ramit-sethi-says.html
