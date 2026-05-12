@@ -1,3 +1,7 @@
+**Judge Again Delays Guantánamo’s First Death-Penalty Terror Trial**\
+`The 2000 terrorism case has been going on for so long that the parents of fallen sailors and shipmates who survived the attack have died.`\
+https://www.nytimes.com/2026/05/11/us/politics/guantanamo-cole-death-penalty.html
+
 **At Frieze New York and Beyond, Indigenous Artists Are in the Spotlight**\
 `With works showing in New York, Venice and elsewhere, Sara Flores, Suzanne Kite and Seba Calfuqueo are exploding past notions of what, exactly, Indigenous art is.`\
 https://www.nytimes.com/2026/05/11/arts/design/frieze-new-york-indigenous-artists.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/11/us/politics/trump-white-house-ballroom.html
 **Microsoft’s C.E.O. Intervened When OpenAI Fired Sam Altman, Musk’s Lawyer Claims**\
 `Elon Musk’s lawyer argued that Microsoft’s Satya Nadella played a role in getting Mr. Altman his job back at OpenAI when he was briefly fired in 2023.`\
 https://www.nytimes.com/2026/05/11/technology/satya-nadella-openai-sam-altman.html
-
-**Trump Proposes Suspending Federal Gas Tax**\
-`Also, Kennedy is pushing a vast inquiry into vaccines. Here’s the latest at the end of Monday.`\
-https://www.nytimes.com/2026/05/11/briefing/trump-gas-tax-iran-truce.html
 
