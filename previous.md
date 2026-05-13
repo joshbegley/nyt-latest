@@ -1,3 +1,7 @@
+**Las Vegas Arts District: An Antidote to the Glitz**\
+`The walkable, creative enclave also has a rapidly growing residential footprint.`\
+https://www.nytimes.com/2026/05/13/realestate/las-vegas-arts-district-an-antidote-to-the-glitz.html
+
 **Trump in China**\
 `We preview the Trump-Xi summit.`\
 https://www.nytimes.com/2026/05/13/briefing/trump-in-china.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/world/asia/100000010900611/trump-china-beijing-vis
 **Notable Researchers Join $4 Billion Effort to Build Self-Improving A.I.**\
 `Recursive Superintelligence, founded by former Google, Meta and OpenAI researchers, is part of a growing effort to automate the creation of artificial intelligence.`\
 https://www.nytimes.com/2026/05/13/technology/notable-researchers-join-4-billion-effort-to-build-self-improving-ai.html
-
-**This Is Getting Dangerous**\
-`The ruling in Louisiana v. Callais might drive America’s politics to an even more precarious place of partisan tension and ideological Balkanization.`\
-https://www.nytimes.com/2026/05/13/opinion/callais-voting-rights-roberts-court.html
 
