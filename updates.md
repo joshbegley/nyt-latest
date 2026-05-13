@@ -1,3 +1,11 @@
+**Netanyahu Made a ‘Secret Visit’ to U.A.E. During Iran War**\
+`The visit to meet with the Emirati leader, Sheikh Mohamed bin Zayed, was another sign of how Israel and the Emirates have drawn closer together.`\
+https://www.nytimes.com/2026/05/13/world/middleeast/netanyahu-uae-iran-war.html
+
+**More U.S. Spy Planes and Drones Are Surveilling Cuba**\
+`As President Trump threatens to act against Cuba, experts are debating whether the flights, which the United States is not taking pains to hide, are just intimidation or foreshadow military force.`\
+https://www.nytimes.com/2026/05/13/world/americas/us-cuba-spy-planes.html
+
 **Hantavirus Isn’t Just a Threat. It’s a Test.**\
 `What have we learned from Covid?`\
 https://www.nytimes.com/2026/05/13/opinion/hantavirus-covid-pandemic.html
