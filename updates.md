@@ -1,3 +1,7 @@
+**With Trump in China, Mideast War Simmers Without End in Sight**\
+`Before leaving Washington on Tuesday, the president reiterated threats to decimate Iran if it doesn’t agree to a deal to resolve the conflict.`\
+https://www.nytimes.com/2026/05/13/world/middleeast/trump-china-iran-war.html
+
 **A Tech Tycoon’s Prosecution Raises Fears of Authoritarian Overreach**\
 `Nadiem Makarim founded a popular app before joining Indonesia’s government. Now he could face 18 years in prison, targeted in what critics call a dubious anticorruption campaign.`\
 https://www.nytimes.com/2026/05/13/world/asia/indonesia-nadiem-makarim-gojek.html

@@ -1,3 +1,7 @@
+**With Trump in China, Mideast War Simmers Without End in Sight**\
+`Before leaving Washington on Tuesday, the president reiterated threats to decimate Iran if it doesn’t agree to a deal to resolve the conflict.`\
+https://www.nytimes.com/2026/05/13/world/middleeast/trump-china-iran-war.html
+
 **A Tech Tycoon’s Prosecution Raises Fears of Authoritarian Overreach**\
 `Nadiem Makarim founded a popular app before joining Indonesia’s government. Now he could face 18 years in prison, targeted in what critics call a dubious anticorruption campaign.`\
 https://www.nytimes.com/2026/05/13/world/asia/indonesia-nadiem-makarim-gojek.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/13/realestate/nj-transit-jersey-shore-subway.htm
 **Love Lessons From Ramy Youssef’s Dog**\
 `What the comedian’s dog has taught him about unconditional love.`\
 https://www.nytimes.com/2026/05/13/podcasts/modern-love-lessons-from-ramy-youssefs-dog.html
-
-**Russia-Ukraine War Shows Cease-Fires Have Lost Meaning Under Trump**\
-`Temporary truces have become a tool of performative diplomacy, an end in themselves rather than a prelude to a lasting settlement, analysts say.`\
-https://www.nytimes.com/2026/05/13/world/europe/russia-ukraine-truce-trump.html
 
