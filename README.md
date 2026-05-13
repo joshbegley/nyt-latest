@@ -74,7 +74,3 @@ https://www.nytimes.com/2026/05/13/world/middleeast/gaza-peace-plan-reconstructi
 `As the leader of the C.D.C.’s influenza division, she battled to keep up with an ever-changing viral opponent, building a global network of researchers and forecasters.`\
 https://www.nytimes.com/2026/05/13/health/nancy-cox-dead.html
 
-**Hantavirus Attacks Patients’ Bodies. This Doctor Tends to Their Minds.**\
-`David Cates, a psychologist working with Americans exposed to the disease on the MV Hondius, said psychosocial supports are just as important as physical care.`\
-https://www.nytimes.com/2026/05/13/us/hantavirus-quarantine-psychology-omaha.html
-
