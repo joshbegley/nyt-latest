@@ -1,3 +1,19 @@
+**Trump Administration Will Withhold $1.3 Billion in Medicaid Payments to California**\
+`Vice President JD Vance said the state had not done enough to fight fraud in the public health insurance program.`\
+https://www.nytimes.com/2026/05/13/us/politics/vance-medicaid-fraud-california.html
+
+**Two of the World’s Most Powerful Men Are About to Meet**\
+`Also, Kevin Warsh is confirmed as the next Fed chair. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/05/13/briefing/trump-china-meeting-fed-chair.html
+
+**Miami Residents Sue Over Trump’s Plan to Make His Library a Hotel**\
+`The suit argues that the development on state-donated land would violate the Constitution’s domestic emoluments clause, which prohibits the president from accepting money or gifts from states.`\
+https://www.nytimes.com/2026/05/13/us/politics/miami-lawsuit-trump-library-hotel.html
+
+**U.C.F. Students Boo Commencement Speaker for A.I. Comments**\
+`Students at the University of Central Florida booed a commencement speaker after she said that “artificial intelligence is the next industrial revolution.”`\
+https://www.nytimes.com/video/style/100000010901948/ucf-commencement-speaker-ai-booed.html
+
 **U.C.F. Students Boo Commencement Speaker for A.I. Comments**\
 `Students at the University of Central Florida booed a commencement speaker after she said, “artificial intelligence is the next industrial revolution.”`\
 https://www.nytimes.com/video/style/100000010901948/ucf-commencement-speaker-ai-booed.html
