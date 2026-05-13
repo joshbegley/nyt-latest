@@ -1,3 +1,19 @@
+**Creamy Cabbage Pastina**\
+`This creamy cabbage pastina is a take on the simple Italian dish made from tiny pasta stars, chicken broth, egg yolks and Parmesan. It’s fortifying, comforting and tastes like a hug.`\
+https://www.nytimes.com/video/dining/100000010898745/creamy-cabbage-pastina.html
+
+**Democrat Wins Senate Primary in Nebraska, but Plans to Drop Out**\
+`Cindy Burbank has said she intends to exit the general-election race, clearing the field for Dan Osborn, an independent candidate, to face Senator Pete Ricketts, a Republican.`\
+https://www.nytimes.com/2026/05/12/us/politics/nebraska-election-takeaways-dan-osborn-ricketts-senate.html
+
+**Nebraska Democrats Nominate Ex-Legislator for Governor’s Race**\
+`Democrats face an uphill fight as they seek to unseat Gov. Jim Pillen, who is running for another term in the solidly Republican state.`\
+https://www.nytimes.com/2026/05/12/us/nebraska-governor-primary.html
+
+**The Crisis of the West Isn’t About Who Governs, but That No One Can**\
+`The crisis of the West isn’t about who governs, but that no one can.`\
+https://www.nytimes.com/2026/05/12/opinion/uk-elections-post-liberalism.html
+
 **Trump’s ‘Golden Dome’ Missile Defense Plan Could Cost $1.2 Trillion**\
 `A report from the Congressional Budget Office said that space-based interceptors, which do not currently exist, would probably consume 60 percent of the total cost.`\
 https://www.nytimes.com/2026/05/12/us/politics/trump-golden-dome.html
