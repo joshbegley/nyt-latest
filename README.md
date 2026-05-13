@@ -1,3 +1,11 @@
+**Netanyahu Made a ‘Secret Visit’ to U.A.E. During Iran War**\
+`The visit to meet with the Emirati leader, Sheikh Mohamed bin Zayed, was another sign of how Israel and the Emirates have drawn closer together.`\
+https://www.nytimes.com/2026/05/13/world/middleeast/netanyahu-uae-iran-war.html
+
+**More U.S. Spy Planes and Drones Are Surveilling Cuba**\
+`As President Trump threatens to act against Cuba, experts are debating whether the flights, which the United States is not taking pains to hide, are just intimidation or foreshadow military force.`\
+https://www.nytimes.com/2026/05/13/world/americas/us-cuba-spy-planes.html
+
 **Hantavirus Isn’t Just a Threat. It’s a Test.**\
 `What have we learned from Covid?`\
 https://www.nytimes.com/2026/05/13/opinion/hantavirus-covid-pandemic.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/13/world/europe/france-drunk-deer.html
 **Trump llegó a China. Así fue recibido en el aeropuerto**\
 `Pekín envió a un vicepresidente de alto rango para dar la bienvenida al presidente Trump. ¿Qué significa esto?`\
 https://www.nytimes.com/es/2026/05/13/espanol/mundo/trump-visita-china.html
-
-**Eric Trump, Who Runs the Family Business, Hops Along on the Plane to China**\
-`The president’s middle son is said to be joining his father in a “personal capacity” rather than to make business deals.`\
-https://www.nytimes.com/2026/05/13/us/politics/eric-trump-china.html
-
-**Chinese Firms Plot Secret Arms Sales to Iran, U.S. Officials Say**\
-`The effort involves plans to send weapons through other countries in an effort to hide the origins of the shipments.`\
-https://www.nytimes.com/2026/05/13/us/politics/china-iran-weapons-trump-xi.html
 

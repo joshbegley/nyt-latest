@@ -1,3 +1,7 @@
+**Hantavirus Isn’t Just a Threat. It’s a Test.**\
+`What have we learned from Covid?`\
+https://www.nytimes.com/2026/05/13/opinion/hantavirus-covid-pandemic.html
+
 **Gen. Caine’s Silence on Iran War Leaves Questions About Military Strategy**\
 `The president’s top military adviser is walking a tightrope as he leads the military through a divisive and unpopular war.`\
 https://www.nytimes.com/2026/05/13/us/politics/gen-caine-trump-iran-war.html

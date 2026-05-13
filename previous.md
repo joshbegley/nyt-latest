@@ -1,3 +1,7 @@
+**Hantavirus Isn’t Just a Threat. It’s a Test.**\
+`What have we learned from Covid?`\
+https://www.nytimes.com/2026/05/13/opinion/hantavirus-covid-pandemic.html
+
 **Gen. Caine’s Silence on Iran War Leaves Questions About Military Strategy**\
 `The president’s top military adviser is walking a tightrope as he leads the military through a divisive and unpopular war.`\
 https://www.nytimes.com/2026/05/13/us/politics/gen-caine-trump-iran-war.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/13/us/politics/eric-trump-china.html
 **Chinese Firms Plot Secret Arms Sales to Iran, U.S. Officials Say**\
 `The effort involves plans to send weapons through other countries in an effort to hide the origins of the shipments.`\
 https://www.nytimes.com/2026/05/13/us/politics/china-iran-weapons-trump-xi.html
-
-**Trump Says He Does Not Think About Economic Hardships Linked to Iran War**\
-`President Trump said on Tuesday that he did not think about the economic hardships Americans face from the war in Iran. Instead, he said that he was focused on preventing Iran from having a nuclear weapon.`\
-https://www.nytimes.com/video/us/politics/100000010901096/trump-iran-gas-prices-inflation.html
 
