@@ -1,3 +1,11 @@
+**Justice Dept. Officials Consider Settling Trump Suit Against I.R.S.**\
+`One of the settlement terms under review is for the I.R.S. to drop any audits of the president, his family members and businesses.`\
+https://www.nytimes.com/2026/05/12/business/trump-suit-irs.html
+
+**Battle Over the Strait of Hormuz Leaves Safe Passage a Gamble**\
+`Vessels are traveling without transmitting critical information meant to keep the waters safe, maritime intelligence experts say.`\
+https://www.nytimes.com/2026/05/12/world/middleeast/strait-of-hormuz-conrol.html
+
 **In San Francisco, the Tents of Homeless People Are Disappearing**\
 `Mayor Daniel Lurie and city leaders have enforced bans on camping and moved people off sidewalks to reduce visible homelessness. Critics say too many homeless people are housed in jail.`\
 https://www.nytimes.com/2026/05/12/us/san-francisco-homeless-count.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-nebraska-treasurer
 **Nebraska Attorney General Primary Election Results**\
 `Get live results and maps from the 2026 Nebraska primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-nebraska-attorney-general-primary.html
-
-**Nebraska Third Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 Nebraska primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-nebraska-us-house-3-primary.html
-
-**Nebraska First Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 Nebraska primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-nebraska-us-house-1-primary.html
 
