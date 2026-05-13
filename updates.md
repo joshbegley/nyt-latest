@@ -1,3 +1,11 @@
+**Hantavirus Attacks Patients’ Bodies. This Doctor Tends to Their Minds.**\
+`David Cates, a psychologist working with Americans exposed to the disease on the MV Hondius, said psychosocial supports are just as important as physical care.`\
+https://www.nytimes.com/2026/05/13/us/hantavirus-quarantine-psychology-omaha.html
+
+**República Dominicana acepta recibir a migrantes de terceros países deportados por EE. UU.**\
+`La nación caribeña se une a otros países latinoamericanos, como El Salvador, Costa Rica y Panamá, que han alcanzado este tipo de acuerdos.`\
+https://www.nytimes.com/es/2026/05/13/espanol/america-latina/republica-dominicana-recibe-deportados-eeuu.html
+
 **Nigel Farage, Leader of Reform U.K., Faces Investigation for £5 Million Gift**\
 `The Conservative Party referred the case against Mr. Farage, the leader of a right-wing populist party in Britain, to a parliamentary watchdog.`\
 https://www.nytimes.com/2026/05/13/world/europe/nigel-farage-reform-uk-investigation-5-million-gift.html
