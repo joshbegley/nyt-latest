@@ -1,3 +1,11 @@
+**Jordan Klepper Wants the President to Get More Sleep**\
+`“Well, well, well, looks like the Sleepy Joe-er has become the sleepy Joe-ee,” Klepper said after President Trump was seen with his eyes closed during an event in the Oval Office.`\
+https://www.nytimes.com/2026/05/13/arts/television/late-night-trump-sleep.html
+
+**Palabra del día: ‘implicit’**\
+`Esta palabra ha aparecido en 245 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/05/13/espanol/palabra-del-impli.html
+
 **Word of the Day: implicit**\
 `This word has appeared in 245 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/05/13/learning/word-of-the-day-implicit.html
