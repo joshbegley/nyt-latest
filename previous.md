@@ -1,3 +1,11 @@
+**Senate Confirms Kevin Warsh as Fed Chair**\
+`President Trump’s pick to replace Jerome H. Powell takes the helm at a highly uncertain moment for the economy and with heightened concern about the Federal Reserve’s ability to operate independently.`\
+https://www.nytimes.com/2026/05/13/us/politics/kevin-warsh-fed-chair-confirmed.html
+
+**A Long Island Rail Road Strike Is Near. Here’s What to Know.**\
+`America’s busiest passenger rail service will shut down on Saturday if workers and transit officials cannot agree on a new contract.`\
+https://www.nytimes.com/2026/05/13/nyregion/lirr-strike-long-island-rail-road.html
+
 **Trump dice que no le preocupa el impacto económico de la guerra en Irán para EE. UU.**\
 `Cuando se le preguntó si la situación económica de los estadounidenses lo motivaba para llegar a un trato, el presidente Trump dijo sin rodeos: “Ni siquiera un poco”.`\
 https://www.nytimes.com/es/2026/05/13/espanol/estados-unidos/impacto-economico-guerra-iran-trump.html
@@ -12,7 +20,7 @@ https://www.nytimes.com/2026/05/13/world/europe/france-drunk-deer.html
 
 **Trump llegó a China. Así fue recibido en el aeropuerto**\
 `Pekín envió a un vicepresidente de alto rango para dar la bienvenida al presidente Trump. ¿Qué significa esto?`\
-https://www.nytimes.com/es/2026/05/13/espanol/mundo/trump-llego-a-china-asi-fue-recibido-en-el-aeropuerto.html
+https://www.nytimes.com/es/2026/05/13/espanol/mundo/trump-visita-china.html
 
 **Eric Trump, Who Runs the Family Business, Hops Along on the Plane to China**\
 `The president’s middle son is said to be joining his father in a “personal capacity” rather than to make business deals.`\
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/13/business/iran-war-strait-hormuz-fatih-birol.h
 **Rent Is Swallowing Household Incomes**\
 `Plus, how politicians are pitching affordability.`\
 https://www.nytimes.com/2026/05/13/headway/rent-burden-income-affordability.html
-
-**For Trump, the Iran War Looms Over China Summit**\
-`The balance of power between the United States and China had shifted in Beijing’s favor even before the war in Iran began in February.`\
-https://www.nytimes.com/2026/05/13/us/politics/trump-iran-war-china.html
-
-**Top Kennedy Spokesman Resigns in Protest of Move to Allow Flavored Vapes**\
-`In a letter to President Trump, the spokesman, Rich Danker, said allowing the sale of flavored e-cigarettes would enhance their appeal to children.`\
-https://www.nytimes.com/2026/05/13/us/politics/rich-danker-resigns-vaping.html
 

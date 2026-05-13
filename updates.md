@@ -1,3 +1,15 @@
+**Senate Confirms Kevin Warsh as Fed Chair**\
+`President Trump’s pick to replace Jerome H. Powell takes the helm at a highly uncertain moment for the economy and with heightened concern about the Federal Reserve’s ability to operate independently.`\
+https://www.nytimes.com/2026/05/13/us/politics/kevin-warsh-fed-chair-confirmed.html
+
+**A Long Island Rail Road Strike Is Near. Here’s What to Know.**\
+`America’s busiest passenger rail service will shut down on Saturday if workers and transit officials cannot agree on a new contract.`\
+https://www.nytimes.com/2026/05/13/nyregion/lirr-strike-long-island-rail-road.html
+
+**Trump llegó a China. Así fue recibido en el aeropuerto**\
+`Pekín envió a un vicepresidente de alto rango para dar la bienvenida al presidente Trump. ¿Qué significa esto?`\
+https://www.nytimes.com/es/2026/05/13/espanol/mundo/trump-visita-china.html
+
 **Trump dice que no le preocupa el impacto económico de la guerra en Irán para EE. UU.**\
 `Cuando se le preguntó si la situación económica de los estadounidenses lo motivaba para llegar a un trato, el presidente Trump dijo sin rodeos: “Ni siquiera un poco”.`\
 https://www.nytimes.com/es/2026/05/13/espanol/estados-unidos/impacto-economico-guerra-iran-trump.html
