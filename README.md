@@ -1,3 +1,7 @@
+**As Trump Tower Deal in Australia Falls Apart, a Blame Game Begins**\
+`The property developer says the war in Iran and Trump’s ‘unpopularity’ contributed to the collapse of a plan for a 91-story building on the Gold Coast.`\
+https://www.nytimes.com/2026/05/13/world/australia/australia-trump-tower-gold-coast.html
+
 **Anduril Raises $5 Billion, as Push to Modernize the Military Accelerates**\
 `The start-up, which makes A.I.-backed weapons, was valued at $61 billion in the financing round, double what it was a year ago.`\
 https://www.nytimes.com/2026/05/13/technology/anduril-raises-5-billion.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/13/world/europe/catherine-italy-visit.html
 **Europe Tries a Trumpian Tactic With Trump: No Apologies**\
 `Stuck with the fallout from America’s war in Iran, European leaders have criticized the president publicly. When he’s been angered, they haven’t backed down.`\
 https://www.nytimes.com/2026/05/13/world/europe/trump-merz-no-apology.html
-
-**Trump’s Shrinking Ambitions on China**\
-`The president came into office planning harsher trade moves on China than on the rest of the world. Here’s why he’s had to scale them back.`\
-https://www.nytimes.com/2026/05/13/us/politics/trumps-shrinking-ambitions-on-china.html
 
