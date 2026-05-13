@@ -66,7 +66,7 @@ https://www.nytimes.com/2026/05/13/technology/notable-researchers-join-4-billion
 `People in Beijing shared their views on the relationship between the United States and China as the city prepared for President Trump’s state visit.`\
 https://www.nytimes.com/video/world/asia/100000010900611/trump-china-beijing-visit.html
 
-**The Supreme Court Has Left Us in a Dangerous Place**\
+**This Is Getting Dangerous**\
 `The ruling in Louisiana v. Callais might drive America’s politics to an even more precarious place of partisan tension and ideological Balkanization.`\
 https://www.nytimes.com/2026/05/13/opinion/callais-voting-rights-roberts-court.html
 
