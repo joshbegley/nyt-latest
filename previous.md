@@ -1,3 +1,7 @@
+**Cannes 2026: How Political Should a Film Festival Be?**\
+`The event’s leaders immediately jumped into the debate over whether festival participants should speak out on issues like Israel and Gaza.`\
+https://www.nytimes.com/2026/05/13/movies/cannes-film-festival-israel-gaza-politics.html
+
 **President Trump Arrives in China for Summit with Xi Jinping**\
 `President Trump landed in Beijing ahead of a high-stakes, two-day summit with China’s top leader, Xi Jinping. Trade and the war with Iran were expected to be high on the agenda when the two meet.`\
 https://www.nytimes.com/video/world/asia/100000010900882/trump-xi-jinping-china-summit-arrival.html
@@ -43,7 +47,7 @@ https://www.nytimes.com/2026/05/13/us/trump-vapes-cigarettes-big-tobacco.html
 https://www.nytimes.com/2026/05/13/us/murdaugh-murder-conviction-overturned.html
 
 **Chaos in Philippines Senate as Duterte Ally Faces Arrest**\
-`The sound of gunshots, apparently from inside the chamber, were broadcast on live television as a senator in the Philippines, who was an ally of the former leader Rodrigo Duterte, faced arrest.`\
+`The sound of gunshots, apparently from inside the chamber, was broadcast on live television as a senator in the Philippines, who was an ally of the former leader Rodrigo Duterte, faced arrest.`\
 https://www.nytimes.com/2026/05/13/world/asia/duterte-icc-bato-delarosa-philippines-senate-shooting.html
 
 **Wholesale Prices Jumped in April, in Latest Sign of War’s Economic Ripples**\
@@ -69,8 +73,4 @@ https://www.nytimes.com/2026/05/13/opinion/spencer-pratt-mayor-los-angeles.html
 **As a Sober Person, How Should I Serve Alcohol to Friends at Dinner Parties?**\
 `A reader struggles with how to reconcile his newfound sobriety with his desire to be a gracious host when inviting friends into his home.`\
 https://www.nytimes.com/2026/05/13/style/sober-nonalcoholic-dinner-parties.html
-
-**With Trump in China, Mideast War Simmers Without End in Sight**\
-`Before leaving Washington on Tuesday, the president reiterated threats to decimate Iran if it doesn’t agree to a deal to resolve the conflict.`\
-https://www.nytimes.com/2026/05/13/world/middleeast/trump-china-iran-war.html
 
