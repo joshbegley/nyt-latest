@@ -1,3 +1,15 @@
+**Wholesale Prices Jumped in April, in Latest Sign of War’s Economic Ripples**\
+`The Producer Price Index rose in April at its fastest pace in four years, government data showed, a day after consumer prices showed inflation was surging.`\
+https://www.nytimes.com/2026/05/13/business/ppi-inflation-report-wholesale-prices.html
+
+**Tariff Refunds Begin to Reach Businesses as Trump Lashes Out at Court**\
+`The government must return about $160 billion, plus interest, collected from duties deemed illegal and potentially more if it loses a related tariff case.`\
+https://www.nytimes.com/2026/05/13/business/economy/tariff-refunds-trump.html
+
+**A Physicist Who Thinks in Poetry From the Cosmic Edge**\
+`In her second pop-science book, theoretical cosmologist Chanda Prescod-Weinstein returns to her celestial and cultural roots.`\
+https://www.nytimes.com/2026/05/13/science/physics-prescod-weinstein.html
+
 **French Hantavirus Patient Is Critically Ill as Outbreak Reaches 11 Cases**\
 `The woman, who was a passenger on the MV Hondius, was breathing with the help of an artificial lung, officials in Paris said.`\
 https://www.nytimes.com/2026/05/13/world/europe/hantavirus-outbreak-cases-france.html
