@@ -1,3 +1,27 @@
+**The Uncomfortable Parallels Between Starmer and Biden**\
+`In Britain, some argue that Prime Minister Keir Starmer, by rejecting calls to step aside, risks repeating the mistakes of President Joseph R. Biden Jr.`\
+https://www.nytimes.com/2026/05/13/world/europe/starmer-labour-uk-biden-debate-resign.html
+
+**Two Superpowers Across the Table**\
+`Here’s what to expect from the summit between President Trump and China’s top leader, Xi Jinping.`\
+https://www.nytimes.com/2026/05/13/podcasts/the-daily/two-superpowers-across-the-table.html
+
+**U.S. Intelligence Undercuts Trump’s War Claims, and the Cost of ‘Alligator Alcatraz’**\
+`Plus, the controversy engulfing Eurovision.`\
+https://www.nytimes.com/2026/05/13/podcasts/the-headlines/iran-missiles-alligator-alcatraz.html
+
+**Connections Companion No. 1,068**\
+`Scroll down for hints and conversation about the puzzle for Thursday, May 14, 2026.`\
+https://www.nytimes.com/2026/05/13/crosswords/connections-companion-1068.html
+
+**Strands Sidekick No. 802**\
+`Scroll down for hints and conversation about the puzzle for Thursday, May 14, 2026.`\
+https://www.nytimes.com/2026/05/13/crosswords/strands-sidekick-802.html
+
+**Wordle Review No. 1,790**\
+`Scroll down for hints and conversation about the puzzle for Thursday, May 14, 2026.`\
+https://www.nytimes.com/2026/05/13/crosswords/wordle-review-1790.html
+
 **Silicon Valley’s A.I. Lobbying Reaches a Fever Pitch**\
 `OpenAI and Anthropic are opening offices in Washington, hiring lobbyists and spending more than ever to win over federal lawmakers.`\
 https://www.nytimes.com/2026/05/13/technology/ai-lobbying-washington-openai-anthropic.html
@@ -53,28 +77,4 @@ https://www.nytimes.com/2026/05/13/opinion/hegseth-pentagon-military-budget.html
 **The Autocracy Index: Trump’s Disregard for Congress Has Reached a New Level**\
 `Measuring America’s democratic erosion.`\
 https://www.nytimes.com/interactive/2026/05/13/opinion/iran-war-democracy-america.html
-
-**Dismantling Purdue Pharma Won’t Fix America’s Opioid Problem**\
-`The Purdue Pharma case is closed, but the opioid problem remains.`\
-https://www.nytimes.com/2026/05/13/opinion/purdue-pharma-opioids.html
-
-**Can Three Auction Houses Sell $2.6 Billion Worth of Art in One Week?**\
-`Five luxury artworks hold the key to the spring season, one of the most anticipated sales in years. Major buyers are looking past female and younger artists and toward tradition.`\
-https://www.nytimes.com/2026/05/13/arts/design/art-auction-preview-billion-pollock-rothko.html
-
-**Tired of Hacked Passwords? Help Is on the Way.**\
-`Apps from Apple, Google and others can assist in making your online accounts more secure, even as new ways of logging in continue to take off.`\
-https://www.nytimes.com/2026/05/13/technology/personaltech/passwords-managers-passkeys.html
-
-**‘A New Leaf’: A Romantic Comedy, With Murder on the Mind**\
-`This 1971 movie, restored and revived for a week at the IFC Center, offers ample evidence of Elaine May’s screwball genius.`\
-https://www.nytimes.com/2026/05/13/movies/a-new-leaf-ifc-elaine-may.html
-
-**Will Airbnb Gain Ground in New York?**\
-`The home-sharing company has largely been shut out in the city, but it is fighting back and trying to get Black homeowners on its side.`\
-https://www.nytimes.com/2026/05/13/nyregion/will-airbnb-gain-ground-in-new-york.html
-
-**Want to See the Epstein Files in Print? Here Are the 3,437 Volumes.**\
-`Documents related to Jeffrey Epstein, taking up more than 3,400 volumes and weighing over eight tons, have been printed and bound for display in a TriBeCa gallery.`\
-https://www.nytimes.com/2026/05/13/style/epstein-files-exhibition-trump-tribeca.html
 
