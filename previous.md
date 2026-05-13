@@ -1,3 +1,7 @@
+**Trump’s ‘Golden Dome’ Missile Defense Plan Could Cost $1.2 Trillion**\
+`A report from the Congressional Budget Office said that space-based interceptors, which do not currently exist, would probably consume 60 percent of the total cost.`\
+https://www.nytimes.com/2026/05/12/us/politics/trump-golden-dome.html
+
 **Justice Dept. Officials Consider Settling Trump Suit Against I.R.S.**\
 `One of the settlement terms under review is for the I.R.S. to drop any audits of the president, his family members and businesses.`\
 https://www.nytimes.com/2026/05/12/business/trump-suit-irs.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-nebraska-auditor-p
 **Nebraska Treasurer Primary Election Results**\
 `Get live results and maps from the 2026 Nebraska primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-nebraska-treasurer-primary.html
-
-**Nebraska Attorney General Primary Election Results**\
-`Get live results and maps from the 2026 Nebraska primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-nebraska-attorney-general-primary.html
 
