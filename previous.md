@@ -1,3 +1,11 @@
+**Un informe israelí examina la violencia sexual durante y tras el atentado de Hamás**\
+`La investigación describe casos en los que se abusaba de las víctimas delante de sus familiares, o en los que los autores difundían imágenes de una víctima en redes sociales.`\
+https://www.nytimes.com/es/2026/05/13/espanol/mundo/israel-violencia-sexual-hamas-informe.html
+
+**Xi Has Trump Right Where He Wants Him**\
+`While Trump chases quick wins and flashy optics, Xi plays a generational game for global dominance.`\
+https://www.nytimes.com/2026/05/13/opinion/xi-trump-summit-china-us.html
+
 **El Reino Unido ha tenido 5 líderes en 10 años. ¿Está a punto de tener otro?**\
 `Los críticos del actual primer ministro, Keir Starmer piden su renuncia para que el Partido Laborista tenga una posibilidad en las elecciones generales antes de 2029.`\
 https://www.nytimes.com/es/2026/05/13/espanol/mundo/reino-unido-keir-starmer-renuncia.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/12/world/americas/dominican-republic-deportees-u
 **Creamy Cabbage Pastina**\
 `This creamy cabbage pastina is a take on the simple Italian dish made from tiny pasta stars, chicken broth, egg yolks and Parmesan. It’s fortifying, comforting and tastes like a hug.`\
 https://www.nytimes.com/video/dining/100000010898745/creamy-cabbage-pastina.html
-
-**4 Takeaways From Tuesday’s Primaries in Nebraska and West Virginia**\
-`Democrats in Nebraska appear headed toward the Senate matchup they want, while their primary for a key House district was too close to call.`\
-https://www.nytimes.com/2026/05/12/us/politics/nebraska-election-takeaways-dan-osborn-ricketts-senate.html
-
-**Nebraska Democrats Nominate Ex-Legislator for Governor’s Race**\
-`Democrats face an uphill fight as they seek to unseat Gov. Jim Pillen, who is running for another term in the solidly Republican state.`\
-https://www.nytimes.com/2026/05/12/us/nebraska-governor-primary.html
 

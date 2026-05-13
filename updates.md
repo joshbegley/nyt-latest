@@ -1,3 +1,11 @@
+**Un informe israelí examina la violencia sexual durante y tras el atentado de Hamás**\
+`La investigación describe casos en los que se abusaba de las víctimas delante de sus familiares, o en los que los autores difundían imágenes de una víctima en redes sociales.`\
+https://www.nytimes.com/es/2026/05/13/espanol/mundo/israel-violencia-sexual-hamas-informe.html
+
+**Xi Has Trump Right Where He Wants Him**\
+`While Trump chases quick wins and flashy optics, Xi plays a generational game for global dominance.`\
+https://www.nytimes.com/2026/05/13/opinion/xi-trump-summit-china-us.html
+
 **El Reino Unido ha tenido 5 líderes en 10 años. ¿Está a punto de tener otro?**\
 `Los críticos del actual primer ministro, Keir Starmer piden su renuncia para que el Partido Laborista tenga una posibilidad en las elecciones generales antes de 2029.`\
 https://www.nytimes.com/es/2026/05/13/espanol/mundo/reino-unido-keir-starmer-renuncia.html
