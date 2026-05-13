@@ -1,3 +1,7 @@
+**As Trump Tower Deal in Australia Falls Apart, a Blame Game Begins**\
+`The property developer says the war in Iran and Trump’s ‘unpopularity’ contributed to the collapse of a plan for a 91-story building on the Gold Coast.`\
+https://www.nytimes.com/2026/05/13/world/australia/australia-trump-tower-gold-coast.html
+
 **Xi Is Planning for China’s Final Victory Over the U.S.**\
 `While Trump chases quick wins and flashy optics, Xi plays a generational game for global dominance.`\
 https://www.nytimes.com/2026/05/13/opinion/xi-trump-summit-china-us.html
