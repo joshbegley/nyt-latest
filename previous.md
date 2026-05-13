@@ -1,3 +1,7 @@
+**Smooth and Glossy**\
+`Brian Keller’s Wednesday puzzle changes our perspective.`\
+https://www.nytimes.com/2026/05/12/crosswords/daily-puzzle-2026-05-13.html
+
 **U.S. and Mexican Officials Deny C.I.A. Had Lethal Role in Mexico Operation**\
 `The denials came after a CNN report claimed the C.I.A. had been involved in the assassination of a cartel member inside Mexico earlier this year.`\
 https://www.nytimes.com/2026/05/12/world/americas/mexico-cia-cartels.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/us/politics/100000010899941/kash-patel-senator-van
 **Jason Collins, First Active N.B.A. Player to Come Out as Gay, Dies at 47**\
 `His achievements on the court were eclipsed by an essay he wrote in Sports Illustrated in 2013 in which he declared: “I’m a 34-year-old N.B.A. center. I’m Black and I’m gay.”`\
 https://www.nytimes.com/2026/05/12/us/jason-collins-dead.html
-
-**Kids Review “American Girls” by Harry Styles**\
-`We weren’t sure what to make of Harry Styles’s “American Girls,” so we asked the next generation of music critics. The kids break it down with our critic Jon Caramanica on this special edition of the “Popcast” Song of the Week.`\
-https://www.nytimes.com/video/podcasts/100000010899770/kids-review-american-girls-by-harry-styles.html
 

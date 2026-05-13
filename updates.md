@@ -1,3 +1,7 @@
+**Smooth and Glossy**\
+`Brian Keller’s Wednesday puzzle changes our perspective.`\
+https://www.nytimes.com/2026/05/12/crosswords/daily-puzzle-2026-05-13.html
+
 **U.S. and Mexican Officials Deny C.I.A. Had Lethal Role in Mexico Operation**\
 `The denials came after a CNN report claimed the C.I.A. had been involved in the assassination of a cartel member inside Mexico earlier this year.`\
 https://www.nytimes.com/2026/05/12/world/americas/mexico-cia-cartels.html
