@@ -1,3 +1,11 @@
+**Black Bear Fatally Mauls Uranium Contractor in Northern Canada**\
+`The attack, at a remote uranium mining site in northern Saskatchewan, was only the fourth fatal black bear encounter in the province’s recorded history, officials said.`\
+https://www.nytimes.com/2026/05/13/world/canada/canada-bear-attack-uranium-mining.html
+
+**Read the document**\
+`A memorandum of agreement between the Transportation Department and Great American Road Trip Inc.`\
+https://www.nytimes.com/interactive/2026/05/13/us/GART-memorandum.html
+
 **Why Xi Doesn’t Need a Deal With Trump**\
 `President Xi Jinping of China is buying time for Beijing and may see an opening with a U.S. president weakened by the war in Iran.`\
 https://www.nytimes.com/2026/05/13/world/asia/xi-trump-china-us-taiwan-iran.html
