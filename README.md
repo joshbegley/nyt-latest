@@ -1,5 +1,17 @@
+**Trump Administration Will Withhold $1.3 Billion in Medicaid Payments to California**\
+`Vice President JD Vance said the state had not done enough to fight fraud in the public health insurance program.`\
+https://www.nytimes.com/2026/05/13/us/politics/vance-medicaid-fraud-california.html
+
+**Two of the World’s Most Powerful Men Are About to Meet**\
+`Also, Kevin Warsh is confirmed as the next Fed chair. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/05/13/briefing/trump-china-meeting-fed-chair.html
+
+**Miami Residents Sue Over Trump’s Plan to Make His Library a Hotel**\
+`The suit argues that the development on state-donated land would violate the Constitution’s domestic emoluments clause, which prohibits the president from accepting money or gifts from states.`\
+https://www.nytimes.com/2026/05/13/us/politics/miami-lawsuit-trump-library-hotel.html
+
 **U.C.F. Students Boo Commencement Speaker for A.I. Comments**\
-`Students at the University of Central Florida booed a commencement speaker after she said, “artificial intelligence is the next industrial revolution.”`\
+`Students at the University of Central Florida booed a commencement speaker after she said that “artificial intelligence is the next industrial revolution.”`\
 https://www.nytimes.com/video/style/100000010901948/ucf-commencement-speaker-ai-booed.html
 
 **Trump in Beijing**\
@@ -61,16 +73,4 @@ https://www.nytimes.com/2026/05/13/us/politics/gen-caine-trump-iran-war.html
 **The Good List: 6 Things to Add Joy to Your Day**\
 `Voice memos, snail mail and your own private screening room.`\
 https://www.nytimes.com/2026/05/13/briefing/the-good-list-top-gun-voice-memos.html
-
-**Police in France Warn Public to Stay Away From Drunk Deer**\
-`The police in rural France issued a warning to drivers to be on the lookout for deer “drunk” on fermented fruit, which can cause them to behave unpredictably.`\
-https://www.nytimes.com/video/world/europe/100000010901639/drunk-deer-france.html
-
-**Top Gaza Negotiator Urges Hamas to Embrace Rebuilding Plan**\
-`Nickolay Mladenov, who is overseeing the U.S.-led truce in Gaza, has tried to convince the militant group to give up its arms, but it has so far refused amid Israeli cease-fire violations.`\
-https://www.nytimes.com/2026/05/13/world/middleeast/gaza-peace-plan-reconstruction.html
-
-**Nancy Cox, Who Worked to Conquer the Wily Flu, Dies at 77**\
-`As the leader of the C.D.C.’s influenza division, she battled to keep up with an ever-changing viral opponent, building a global network of researchers and forecasters.`\
-https://www.nytimes.com/2026/05/13/health/nancy-cox-dead.html
 
