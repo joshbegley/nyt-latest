@@ -1,3 +1,11 @@
+**Why a Warsh-Led Fed May Keeping Interest Rates Steady**\
+`Kevin Warsh, President Trump’s pick to run the Federal Reserve, would face a growing inflation challenge if he’s confirmed.`\
+https://www.nytimes.com/2026/05/13/business/dealbook/warsh-interest-rates-trump.html
+
+**King’s Speech Comes at an Awkward Time for Starmer**\
+`King Charles III read out Keir Starmer’s legislative agenda in the traditional manner, even as the British prime minister’s leadership remained under pressure.`\
+https://www.nytimes.com/2026/05/13/world/europe/uk-kings-speech-starmer-charles.html
+
 **Las Vegas Arts District: An Antidote to the Glitz**\
 `The walkable, creative enclave also has a rapidly growing residential footprint.`\
 https://www.nytimes.com/2026/05/13/realestate/las-vegas-arts-district-an-antidote-to-the-glitz.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/13/world/europe/russia-ukraine-truce-trump.html
 **Mel Brooks Donates His Archives to the National Comedy Center**\
 `The comedian is contributing some 20,000 documents and photos covering his career, including his time in the Army and the lyrics for “Springtime for Hitler.”`\
 https://www.nytimes.com/2026/05/13/arts/television/mel-brooks-national-comedy-center.html
-
-**Mixed Feelings in Beijing Ahead of Trump-Xi Summit**\
-`People in Beijing shared their views on the relationship between the United States and China as the city prepared for President Trump’s state visit.`\
-https://www.nytimes.com/video/world/asia/100000010900611/trump-china-beijing-visit.html
-
-**Notable Researchers Join $4 Billion Effort to Build Self-Improving A.I.**\
-`Recursive Superintelligence, founded by former Google, Meta and OpenAI researchers, is part of a growing effort to automate the creation of artificial intelligence.`\
-https://www.nytimes.com/2026/05/13/technology/notable-researchers-join-4-billion-effort-to-build-self-improving-ai.html
 

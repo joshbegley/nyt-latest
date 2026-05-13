@@ -1,3 +1,11 @@
+**Why a Warsh-Led Fed May Keeping Interest Rates Steady**\
+`Kevin Warsh, President Trump’s pick to run the Federal Reserve, would face a growing inflation challenge if he’s confirmed.`\
+https://www.nytimes.com/2026/05/13/business/dealbook/warsh-interest-rates-trump.html
+
+**King’s Speech Comes at an Awkward Time for Starmer**\
+`King Charles III read out Keir Starmer’s legislative agenda in the traditional manner, even as the British prime minister’s leadership remained under pressure.`\
+https://www.nytimes.com/2026/05/13/world/europe/uk-kings-speech-starmer-charles.html
+
 **Las Vegas Arts District: An Antidote to the Glitz**\
 `The walkable, creative enclave also has a rapidly growing residential footprint.`\
 https://www.nytimes.com/2026/05/13/realestate/las-vegas-arts-district-an-antidote-to-the-glitz.html
