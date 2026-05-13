@@ -1,3 +1,11 @@
+**Hantavirus Attacks Patients’ Bodies. This Doctor Tends to Their Minds.**\
+`David Cates, a psychologist working with Americans exposed to the disease on the MV Hondius, said psychosocial supports are just as important as physical care.`\
+https://www.nytimes.com/2026/05/13/us/hantavirus-quarantine-psychology-omaha.html
+
+**República Dominicana acepta recibir a migrantes de terceros países deportados por EE. UU.**\
+`La nación caribeña se une a otros países latinoamericanos, como El Salvador, Costa Rica y Panamá, que han alcanzado este tipo de acuerdos.`\
+https://www.nytimes.com/es/2026/05/13/espanol/america-latina/republica-dominicana-recibe-deportados-eeuu.html
+
 **Nigel Farage, Leader of Reform U.K., Faces Investigation for £5 Million Gift**\
 `The Conservative Party referred the case against Mr. Farage, the leader of a right-wing populist party in Britain, to a parliamentary watchdog.`\
 https://www.nytimes.com/2026/05/13/world/europe/nigel-farage-reform-uk-investigation-5-million-gift.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/13/us/rick-jackson-gop-governor-primary-georgia.
 **Princess Catherine Makes First Official International Trip Since Cancer Diagnosis**\
 `Catherine, Princess of Wales, traveled on Wednesday to Reggio Emilia, Italy, in her first official trip abroad since revealing her cancer diagnosis.`\
 https://www.nytimes.com/video/world/europe/100000010901215/princess-catherine-italy-visit-cancer.html
-
-**Israel Qualifies for Eurovision Final Amid Protests**\
-`Israel qualified for the Eurovision final after receiving enough votes from national juries and the public at Tuesday’s semifinal. The country’s participation in the contest has been protested because of its military operation in Gaza.`\
-https://www.nytimes.com/video/world/europe/100000010900862/israel-eurovision-final.html
-
-**Tiny Love Stories: ‘Life Suddenly Made Sense’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://www.nytimes.com/2026/05/13/style/tiny-modern-love-stories-life-suddenly-made-sense.html
 
