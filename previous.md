@@ -1,3 +1,11 @@
+**Unfortunately, We Have to Take Spencer Pratt Seriously as a Politician**\
+`Reality stars and influencers in government are here to stay.`\
+https://www.nytimes.com/2026/05/13/opinion/spencer-pratt-mayor-los-angeles.html
+
+**As a Sober Person, How Should I Serve Alcohol to Friends at Dinner Parties?**\
+`A reader struggles with how to reconcile his newfound sobriety with his desire to be a gracious host when inviting friends into his home.`\
+https://www.nytimes.com/2026/05/13/style/sober-nonalcoholic-dinner-parties.html
+
 **With Trump in China, Mideast War Simmers Without End in Sight**\
 `Before leaving Washington on Tuesday, the president reiterated threats to decimate Iran if it doesn’t agree to a deal to resolve the conflict.`\
 https://www.nytimes.com/2026/05/13/world/middleeast/trump-china-iran-war.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/13/business/energy-environment/trump-federal-gas
 **The Complicated Logistics of a Home Building Sprint**\
 `2,500 volunteers descended on Atlanta last week to build 24 homes in five days.`\
 https://www.nytimes.com/2026/05/13/realestate/atlanta-habitat-for-humanity-build.html
-
-**Train-Hopping Along the Jersey Shore**\
-`For town-to-town travel, locals are leaving their cars at home in favor of NJ Transit.`\
-https://www.nytimes.com/2026/05/13/realestate/nj-transit-jersey-shore-subway.html
-
-**Love Lessons From Ramy Youssef’s Dog**\
-`What the comedian’s dog has taught him about unconditional love.`\
-https://www.nytimes.com/2026/05/13/podcasts/modern-love-lessons-from-ramy-youssefs-dog.html
 
