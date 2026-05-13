@@ -1,3 +1,15 @@
+**U.S. and Mexican Officials Deny C.I.A. Had Lethal Role in Mexico Operation**\
+`The denials came after a CNN report claimed the C.I.A. had been involved in the assassination of a cartel member inside Mexico earlier this year.`\
+https://www.nytimes.com/2026/05/12/world/americas/mexico-cia-cartels.html
+
+**As Becerra Rises in Polls, He Draws Fire for Trying to Direct Interview**\
+`“This is not a ‘gotcha’ piece, right?” the leading Democratic candidate for California governor asked a television reporter before an interview.`\
+https://www.nytimes.com/2026/05/12/us/becerra-viral-tv-interview-california-governor.html
+
+**Dominican Republic Agrees to Take Third-Country Migrants Deported by U.S.**\
+`The agreement, which reverses President Luis Abinader’s previous stance, is part of President Trump’s efforts to find governments willing to accept deportees.`\
+https://www.nytimes.com/2026/05/12/world/americas/dominican-republic-deportees-us.html
+
 **Creamy Cabbage Pastina**\
 `This creamy cabbage pastina is a take on the simple Italian dish made from tiny pasta stars, chicken broth, egg yolks and Parmesan. It’s fortifying, comforting and tastes like a hug.`\
 https://www.nytimes.com/video/dining/100000010898745/creamy-cabbage-pastina.html

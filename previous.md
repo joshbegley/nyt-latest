@@ -1,3 +1,15 @@
+**U.S. and Mexican Officials Deny C.I.A. Had Lethal Role in Mexico Operation**\
+`The denials came after a CNN report claimed the C.I.A. had been involved in the assassination of a cartel member inside Mexico earlier this year.`\
+https://www.nytimes.com/2026/05/12/world/americas/mexico-cia-cartels.html
+
+**As Becerra Rises in Polls, He Draws Fire for Trying to Direct Interview**\
+`“This is not a ‘gotcha’ piece, right?” the leading Democratic candidate for California governor asked a television reporter before an interview.`\
+https://www.nytimes.com/2026/05/12/us/becerra-viral-tv-interview-california-governor.html
+
+**Dominican Republic Agrees to Take Third-Country Migrants Deported by U.S.**\
+`The agreement, which reverses President Luis Abinader’s previous stance, is part of President Trump’s efforts to find governments willing to accept deportees.`\
+https://www.nytimes.com/2026/05/12/world/americas/dominican-republic-deportees-us.html
+
 **Creamy Cabbage Pastina**\
 `This creamy cabbage pastina is a take on the simple Italian dish made from tiny pasta stars, chicken broth, egg yolks and Parmesan. It’s fortifying, comforting and tastes like a hug.`\
 https://www.nytimes.com/video/dining/100000010898745/creamy-cabbage-pastina.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/12/us/jason-collins-dead.html
 **Kids Review “American Girls” by Harry Styles**\
 `We weren’t sure what to make of Harry Styles’s “American Girls,” so we asked the next generation of music critics. The kids break it down with our critic Jon Caramanica on this special edition of the “Popcast” Song of the Week.`\
 https://www.nytimes.com/video/podcasts/100000010899770/kids-review-american-girls-by-harry-styles.html
-
-**West Virginia Primary Election Results**\
-`Get live results and maps from the 2026 West Virginia primary elections.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-west-virginia-primary.html
-
-**Nebraska Secretary of State Primary Election Results**\
-`Get live results and maps from the 2026 Nebraska primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-nebraska-secretary-of-state-primary.html
-
-**Nebraska U.S. Senate Primary Election Results**\
-`Get live results and maps from the 2026 Nebraska primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-nebraska-us-senate-primary.html
 
