@@ -1,3 +1,11 @@
+**What China’s Choice of Airport Greeter Says About Trump**\
+`Beijing welcomed President Trump with a high-ranking vice president, but the choice of a ceremonial leader suggests China is trading symbolism for substance.`\
+https://www.nytimes.com/2026/05/13/world/asia/trump-china-arrival-airport-presidents.html
+
+**Former Brooklyn Judge Arrested in Real Estate Fraud Case**\
+`The former judge, Edward Harold King, and a Brooklyn real estate investor are accused of defrauding investors of millions of dollars in a deal in New Jersey.`\
+https://www.nytimes.com/2026/05/13/nyregion/judge-nyc-arrest-fraud.html
+
 **Trump and Xi: Beneath the Pomp and Niceties, a Geopolitical Rivalry**\
 `The relationship between the two leaders is marked just as much by mistrust and confrontation as it is by niceties.`\
 https://www.nytimes.com/2026/05/13/us/politics/trump-xi-rivalry.html
@@ -65,12 +73,4 @@ https://www.nytimes.com/2026/05/13/world/asia/duterte-icc-bato-delarosa-philippi
 **Wholesale Prices Jumped in April, in Latest Sign of War’s Economic Ripples**\
 `The Producer Price Index rose in April at its fastest pace in four years, government data showed, a day after consumer prices showed inflation was surging.`\
 https://www.nytimes.com/2026/05/13/business/ppi-inflation-report-wholesale-prices.html
-
-**Tariff Refunds Begin to Reach Businesses as Trump Lashes Out at Court**\
-`The government must return about $160 billion, plus interest, collected from duties deemed illegal and potentially more if it loses a related tariff case.`\
-https://www.nytimes.com/2026/05/13/business/economy/tariff-refunds-trump.html
-
-**A Physicist Who Thinks in Poetry From the Cosmic Edge**\
-`In her second pop-science book, theoretical cosmologist Chanda Prescod-Weinstein returns to her celestial and cultural roots.`\
-https://www.nytimes.com/2026/05/13/science/physics-prescod-weinstein.html
 
