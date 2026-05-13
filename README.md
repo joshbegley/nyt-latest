@@ -1,3 +1,7 @@
+**Read the document**\
+`A memorandum of agreement between the Transportation Department and Great American Road Trip Inc.`\
+https://www.nytimes.com/interactive/2026/05/13/us/GART-memorandum.html
+
 **Why Xi Doesn’t Need a Deal With Trump**\
 `President Xi Jinping of China is buying time for Beijing and may see an opening with a U.S. president weakened by the war in Iran.`\
 https://www.nytimes.com/2026/05/13/world/asia/xi-trump-china-us-taiwan-iran.html
@@ -69,8 +73,4 @@ https://www.nytimes.com/2026/05/13/obituaries/jackie-pung-overlooked.html
 **Uyghurs Hope Trump Returns to First-Term Toughness at Summit**\
 `In 2020, the president declared China’s crackdown on Uyghurs a genocide. Now, it rarely surfaces.`\
 https://www.nytimes.com/2026/05/13/us/politics/uyghurs-beijing-summit-trump-xi-political-prisoners.html
-
-**Israel Says Netanyahu Made a Secret Trip to U.A.E., Which Says He Didn’t**\
-`The claim and the denial signaled both how close Israel and the United Arab Emirates have become, and how delicate that relationship remains.`\
-https://www.nytimes.com/2026/05/13/world/middleeast/netanyahu-uae-iran-war.html
 
