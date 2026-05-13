@@ -1,3 +1,35 @@
+**Chinese Firms Plot Secret Arms Sales to Iran, U.S. Officials Say**\
+`The effort involves plans to send weapons through other countries in an effort to hide the origins of the shipments.`\
+https://www.nytimes.com/2026/05/13/us/politics/china-iran-weapons-trump-xi.html
+
+**Trump Says He Does Not Think About Economic Hardships Linked to Iran War**\
+`President Trump said on Tuesday that he did not think about the economic hardships Americans face from the war in Iran. Instead, he said that he was focused on preventing Iran from having a nuclear weapon.`\
+https://www.nytimes.com/video/us/politics/100000010901096/trump-iran-gas-prices-inflation.html
+
+**Trump Administration Pushes I.R.S. to Identify Undocumented Immigrants**\
+`The deliberations are a sign that the Trump administration may once again try to harness the power of the I.R.S. to advance its immigration agenda.`\
+https://www.nytimes.com/2026/05/13/us/politics/trump-irs-undocumented-immigrants.html
+
+**ICE Detains Ex-Kansas Mayor Who Voted Illegally**\
+`Joe Ceballos said he did not know he was ineligible to vote and run for office as a green-card holder. The Trump administration has drawn attention to the case.`\
+https://www.nytimes.com/2026/05/13/us/kansas-mayor-ice-detention.html
+
+**Middleman Who Helped Supply Ketamine to Matthew Perry Sentenced to Two Years**\
+`Erik Fleming, a licensed drug addiction counselor, had admitted to selling 51 vials of ketamine to the actor, including the dose that killed him.`\
+https://www.nytimes.com/2026/05/13/arts/television/matthew-perry-drug-addiction-counselor-sentenced.html
+
+**A Billionaire’s Ad Barrage Has Upended the Georgia Governor’s Race**\
+`Rick Jackson was largely unknown to voters just a few months ago. Heading into Tuesday’s Republican primary, he’s keeping some of the state’s best-known politicians on their toes.`\
+https://www.nytimes.com/2026/05/13/us/rick-jackson-gop-governor-primary-georgia.html
+
+**Princess Catherine Makes First Official International Trip Since Cancer Diagnosis**\
+`Catherine, Princess of Wales, traveled on Wednesday to Reggio Emilia, Italy, in her first official trip abroad since revealing her cancer diagnosis.`\
+https://www.nytimes.com/video/world/europe/100000010901215/princess-catherine-italy-visit-cancer.html
+
+**Israel Qualifies for Eurovision Final Amid Protests**\
+`Israel qualified for the Eurovision final after receiving enough votes from national juries and the public at Tuesday’s semifinal. The country’s participation in the contest has been protested because of its military operation in Gaza.`\
+https://www.nytimes.com/video/world/europe/100000010900862/israel-eurovision-final.html
+
 **Tiny Love Stories: ‘Life Suddenly Made Sense’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/05/13/style/tiny-modern-love-stories-life-suddenly-made-sense.html
