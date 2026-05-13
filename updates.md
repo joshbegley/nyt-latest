@@ -1,3 +1,7 @@
+**A Tech Tycoon’s Prosecution Raises Fears of Authoritarian Overreach**\
+`Nadiem Makarim founded a popular app before joining Indonesia’s government. Now he could face 18 years in prison, targeted in what critics call a dubious anticorruption campaign.`\
+https://www.nytimes.com/2026/05/13/world/asia/indonesia-nadiem-makarim-gojek.html
+
 **Why a Warsh-Led Fed May Keep Interest Rates Steady**\
 `Kevin Warsh, President Trump’s pick to run the Federal Reserve, would face a growing inflation challenge if he’s confirmed.`\
 https://www.nytimes.com/2026/05/13/business/dealbook/warsh-interest-rates-trump.html
