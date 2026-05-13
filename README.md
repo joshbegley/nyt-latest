@@ -1,3 +1,35 @@
+**Chinese Firms Plot Secret Arms Sales to Iran, U.S. Officials Say**\
+`The effort involves plans to send weapons through other countries in an effort to hide the origins of the shipments.`\
+https://www.nytimes.com/2026/05/13/us/politics/china-iran-weapons-trump-xi.html
+
+**Trump Says He Does Not Think About Economic Hardships Linked to Iran War**\
+`President Trump said on Tuesday that he did not think about the economic hardships Americans face from the war in Iran. Instead, he said that he was focused on preventing Iran from having a nuclear weapon.`\
+https://www.nytimes.com/video/us/politics/100000010901096/trump-iran-gas-prices-inflation.html
+
+**Trump Administration Pushes I.R.S. to Identify Undocumented Immigrants**\
+`The deliberations are a sign that the Trump administration may once again try to harness the power of the I.R.S. to advance its immigration agenda.`\
+https://www.nytimes.com/2026/05/13/us/politics/trump-irs-undocumented-immigrants.html
+
+**ICE Detains Ex-Kansas Mayor Who Voted Illegally**\
+`Joe Ceballos said he did not know he was ineligible to vote and run for office as a green-card holder. The Trump administration has drawn attention to the case.`\
+https://www.nytimes.com/2026/05/13/us/kansas-mayor-ice-detention.html
+
+**Middleman Who Helped Supply Ketamine to Matthew Perry Sentenced to Two Years**\
+`Erik Fleming, a licensed drug addiction counselor, had admitted to selling 51 vials of ketamine to the actor, including the dose that killed him.`\
+https://www.nytimes.com/2026/05/13/arts/television/matthew-perry-drug-addiction-counselor-sentenced.html
+
+**A Billionaire’s Ad Barrage Has Upended the Georgia Governor’s Race**\
+`Rick Jackson was largely unknown to voters just a few months ago. Heading into Tuesday’s Republican primary, he’s keeping some of the state’s best-known politicians on their toes.`\
+https://www.nytimes.com/2026/05/13/us/rick-jackson-gop-governor-primary-georgia.html
+
+**Princess Catherine Makes First Official International Trip Since Cancer Diagnosis**\
+`Catherine, Princess of Wales, traveled on Wednesday to Reggio Emilia, Italy, in her first official trip abroad since revealing her cancer diagnosis.`\
+https://www.nytimes.com/video/world/europe/100000010901215/princess-catherine-italy-visit-cancer.html
+
+**Israel Qualifies for Eurovision Final Amid Protests**\
+`Israel qualified for the Eurovision final after receiving enough votes from national juries and the public at Tuesday’s semifinal. The country’s participation in the contest has been protested because of its military operation in Gaza.`\
+https://www.nytimes.com/video/world/europe/100000010900862/israel-eurovision-final.html
+
 **Tiny Love Stories: ‘Life Suddenly Made Sense’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/05/13/style/tiny-modern-love-stories-life-suddenly-made-sense.html
@@ -45,36 +77,4 @@ https://www.nytimes.com/2026/05/13/world/europe/cruise-ship-france-illness.html
 **Senate Again Rejects Bid to End Iran War, but G.O.P. Opposition Grows**\
 `Senator Lisa Murkowski of Alaska became the latest Republican to switch her vote to halt the conflict and require President Trump to win congressional approval to continue it.`\
 https://www.nytimes.com/2026/05/13/us/politics/iran-war-powers-trump.html
-
-**El conferenciante y rey filósofo: así es Xi Jinping a puerta cerrada**\
-`Los encuentros con otros líderes mundiales revelan una faceta del dirigente chino que el público rara vez ve, y ofrecen pistas sobre cómo abordará al presidente Trump en Pekín.`\
-https://www.nytimes.com/es/2026/05/13/espanol/mundo/xi-jinping-china.html
-
-**Shio Pan (Salt Bread)**\
-`Japanese salt bread, also known as sogeum-ppang in Korean, are soft, buttery rolls like no other. Surrounding the light, fluffy interiors are a thin crackling crust on top and a crisp golden bottom.`\
-https://www.nytimes.com/video/dining/100000010898762/shio-pan-salt-bread.html
-
-**Chocolate Chip Cookies**\
-`This may become your new favorite chocolate chip cookie recipe. Don’t skimp on good chocolate, and the sea salt is not optional — it’s the beacon at the top of this gorgeous treat.`\
-https://www.nytimes.com/video/dining/100000010898753/chocolate-chip-cookies.html
-
-**Red Lentil Soup**\
-`This is a lentil soup that defies expectations of what lentil soup can be. Based on a Turkish lentil soup, mercimek corbasi, the dish is light, spicy and bold, and takes less than an hour to make.`\
-https://www.nytimes.com/video/dining/100000010898755/red-lentil-soup.html
-
-**Police in France Warn Public To Stay Away From Drunk Deer**\
-`The police in rural France issued a warning to drivers to be on the lookout for deer “drunk” on fermented fruit, which can cause them to behave unpredictably.`\
-https://www.nytimes.com/video/embedded/world/europe/100000010901130/drunk-deer-france.html
-
-**Cream Cheese Ramen**\
-`There is such a thing as a noodle emergency — when hunger strikes at an inconvenient hour and the only remedy is a bowl of noodles. For this quick ramen, ditch the soup powder, keep the noodle brick and use cream cheese as the base of a luscious sauce that enrobes each strand.`\
-https://www.nytimes.com/video/dining/100000010898750/cream-cheese-ramen.html
-
-**What China’s Choice of Airport Greeter Says About Trump**\
-`Beijing welcomed President Trump with a high-ranking vice president, but the choice of a ceremonial leader suggests China is trading symbolism for substance.`\
-https://www.nytimes.com/2026/05/13/world/asia/trump-china-arrival-airport-presidents.html
-
-**Former Brooklyn Judge Arrested in Real Estate Fraud Case**\
-`The former judge, Edward Harold King, and a Brooklyn real estate investor are accused of defrauding investors of millions of dollars in a deal in New Jersey.`\
-https://www.nytimes.com/2026/05/13/nyregion/judge-nyc-arrest-fraud.html
 
