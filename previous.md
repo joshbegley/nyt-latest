@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/05/13/us/politics/gen-caine-trump-iran-war.html
 `Voice memos, snail mail and your own private screening room.`\
 https://www.nytimes.com/2026/05/13/briefing/the-good-list-top-gun-voice-memos.html
 
-**Police in France Warn Public To Stay Away From Drunk Deer**\
+**Police in France Warn Public to Stay Away From Drunk Deer**\
 `The police in rural France issued a warning to drivers to be on the lookout for deer “drunk” on fermented fruit, which can cause them to behave unpredictably.`\
 https://www.nytimes.com/video/world/europe/100000010901639/drunk-deer-france.html
 

@@ -1,3 +1,7 @@
+**Police in France Warn Public to Stay Away From Drunk Deer**\
+`The police in rural France issued a warning to drivers to be on the lookout for deer “drunk” on fermented fruit, which can cause them to behave unpredictably.`\
+https://www.nytimes.com/video/world/europe/100000010901639/drunk-deer-france.html
+
 **Netanyahu Made a ‘Secret Visit’ to U.A.E. During Iran War**\
 `The visit to meet with the Emirati leader, Sheikh Mohamed bin Zayed, was another sign of how Israel and the Emirates have drawn closer together.`\
 https://www.nytimes.com/2026/05/13/world/middleeast/netanyahu-uae-iran-war.html
