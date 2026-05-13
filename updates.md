@@ -1,3 +1,7 @@
+**Deberíamos tomarnos más en serio el hantavirus**\
+`No sabemos cuándo llegará una nueva pandemia, pero deberíamos ser capaces de estar más preparados.`\
+https://www.nytimes.com/es/2026/05/12/espanol/opinion/hantavirus-brote-riesgos.html
+
 **Britain’s Post-Liberal Disorder**\
 `The crisis of the West isn’t about who governs, but that no one can.`\
 https://www.nytimes.com/2026/05/12/opinion/uk-elections-post-liberalism.html
