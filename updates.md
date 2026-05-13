@@ -1,3 +1,19 @@
+**Today, In Short**\
+`Scientology speedruns. Hacky sacks. And cursive clubs.`\
+https://www.nytimes.com/2026/05/13/briefing/today-in-short.html
+
+**Trump Arrives in Beijing to Begin High-Stakes Summit With Xi**\
+`President Trump was greeted by China’s vice president, Han Zheng, and other officials, as well as a military honor guard.`\
+https://www.nytimes.com/2026/05/13/us/politics/trump-arrival-xi-beijing-summit.html
+
+**Read the Document**\
+`South Carolina’s top court overturned the murder convictions of Alex Murdaugh.`\
+https://www.nytimes.com/interactive/2026/05/13/us/op-28329-the-state-v-richard-alexander-murdaughpdf.html
+
+**Murdaugh Murder Convictions Overturned by South Carolina’s Top Court**\
+`The decision, in which judges cited jury interference by a court clerk, upends one of America’s highest-profile homicide cases.`\
+https://www.nytimes.com/2026/05/13/us/murdaugh-murder-conviction-overturned.html
+
 **With a Friend in Trump, the Tobacco Industry Secures a Lucrative Win**\
 `In a dispute over vapes, the president sided with tobacco companies that filled his groups’ coffers over his own F.D.A. commissioner, who resigned in protest.`\
 https://www.nytimes.com/2026/05/13/us/trump-vapes-cigarettes-big-tobacco.html
