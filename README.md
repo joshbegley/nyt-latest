@@ -1,8 +1,16 @@
+**Trump Arrives in Beijing to Begin High-Stakes Summit With Xi**\
+`President Trump was greeted by China’s vice president, Han Zheng, and other officials, as well as a military honor guard.`\
+https://www.nytimes.com/2026/05/13/us/politics/trump-arrival-xi-beijing-summit.html
+
+**Read the Document**\
+`South Carolina’s top court overturned the murder convictions of Alex Murdaugh.`\
+https://www.nytimes.com/interactive/2026/05/13/us/op-28329-the-state-v-richard-alexander-murdaughpdf.html
+
 **With a Friend in Trump, the Tobacco Industry Secures a Lucrative Win**\
 `In a dispute over vapes, the president sided with tobacco companies that filled his groups’ coffers over his own F.D.A. commissioner, who resigned in protest.`\
 https://www.nytimes.com/2026/05/13/us/trump-vapes-cigarettes-big-tobacco.html
 
-**Murdaugh Murder Conviction Overturned by South Carolina’s Top Court**\
+**Murdaugh Murder Convictions Overturned by South Carolina’s Top Court**\
 `The decision, in which judges cited jury interference by a court clerk, upends one of America’s highest-profile homicide cases.`\
 https://www.nytimes.com/2026/05/13/us/murdaugh-murder-conviction-overturned.html
 
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/13/world/europe/starmer-labour-uk-biden-debate-r
 **Two Superpowers Across the Table**\
 `Here’s what to expect from the summit between President Trump and China’s top leader, Xi Jinping.`\
 https://www.nytimes.com/2026/05/13/podcasts/the-daily/two-superpowers-across-the-table.html
-
-**U.S. Intelligence Undercuts Trump’s War Claims, and the Cost of ‘Alligator Alcatraz’**\
-`Plus, the controversy engulfing Eurovision.`\
-https://www.nytimes.com/2026/05/13/podcasts/the-headlines/iran-missiles-alligator-alcatraz.html
-
-**Connections Companion No. 1,068**\
-`Scroll down for hints and conversation about the puzzle for Thursday, May 14, 2026.`\
-https://www.nytimes.com/2026/05/13/crosswords/connections-companion-1068.html
 
