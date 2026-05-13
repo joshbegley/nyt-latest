@@ -1,7 +1,3 @@
-**Two Charged With Trafficking 260 Pounds of Meth to New Jersey**\
-`They face at least 10 years in prison, and the authorities accused one of the men of being associated with the Sinaloa Cartel.`\
-https://www.nytimes.com/2026/05/12/us/two-men-arrested-methamphetamines-nj.html
-
 **Un hijo moribundo, sus padres detenidos y la carrera para reunirse antes del final**\
 `Desde su cama de hospital en Chicago, el joven deseaba ver por última vez a sus padres. Pero tras cruzar ilegalmente desde México para visitarlo, fueron detenidos por inmigración en Arizona.`\
 https://www.nytimes.com/es/2026/05/12/espanol/estados-unidos/kevin-gonzalez-despedida-padres-cancer.html
@@ -77,4 +73,8 @@ https://www.nytimes.com/interactive/2026/us/elections/results-west-virginia-supr
 **West Virginia U.S. Senate Primary Election Results**\
 `Get live results and maps from the 2026 West Virginia primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-west-virginia-us-senate-primary.html
+
+**West Virginia First Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 West Virginia primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-west-virginia-us-house-1-primary.html
 
