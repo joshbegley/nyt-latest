@@ -1,3 +1,7 @@
+**U.C.F. Students Boo Commencement Speaker for A.I. Comments**\
+`Students at the University of Central Florida booed a commencement speaker after she said, “artificial intelligence is the next industrial revolution.”`\
+https://www.nytimes.com/video/style/100000010901948/ucf-commencement-speaker-ai-booed.html
+
 **Trump in Beijing**\
 `The president will get the red carpet treatment, but the deep rift between the U.S. and China will be very hard to repair.`\
 https://www.nytimes.com/2026/05/13/world/trump-xi-beijing-iran-missiles.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/13/health/nancy-cox-dead.html
 **Hantavirus Attacks Patients’ Bodies. This Doctor Tends to Their Minds.**\
 `David Cates, a psychologist working with Americans exposed to the disease on the MV Hondius, said psychosocial supports are just as important as physical care.`\
 https://www.nytimes.com/2026/05/13/us/hantavirus-quarantine-psychology-omaha.html
-
-**República Dominicana acepta recibir a migrantes de terceros países deportados por EE. UU.**\
-`La nación caribeña se une a otros países latinoamericanos, como El Salvador, Costa Rica y Panamá, que han alcanzado este tipo de acuerdos.`\
-https://www.nytimes.com/es/2026/05/13/espanol/america-latina/republica-dominicana-recibe-deportados-eeuu.html
 

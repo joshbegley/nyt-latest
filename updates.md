@@ -1,3 +1,7 @@
+**U.C.F. Students Boo Commencement Speaker for A.I. Comments**\
+`Students at the University of Central Florida booed a commencement speaker after she said, “artificial intelligence is the next industrial revolution.”`\
+https://www.nytimes.com/video/style/100000010901948/ucf-commencement-speaker-ai-booed.html
+
 **Trump in Beijing**\
 `The president will get the red carpet treatment, but the deep rift between the U.S. and China will be very hard to repair.`\
 https://www.nytimes.com/2026/05/13/world/trump-xi-beijing-iran-missiles.html
