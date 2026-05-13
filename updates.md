@@ -1,3 +1,7 @@
+**El arte de cortar jamón ibérico**\
+`Los españoles hacen fila en bodas, torneos de tenis y galas para comer jamón servido por Ernesto Soriano, uno de los mejores cortadores de jamón ibérico del mundo.`\
+https://www.nytimes.com/es/2026/05/13/espanol/mundo/jamon-iberico-corte.html
+
 **An Uncertain World Awaits the Reopening of the Strait of Hormuz**\
 `Fatih Birol of the International Energy Agency, who orchestrated a multinational release of oil reserves, detailed the risks facing the economy now and beyond.`\
 https://www.nytimes.com/2026/05/13/business/iran-war-strait-hormuz-fatih-birol.html

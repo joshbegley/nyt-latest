@@ -1,3 +1,7 @@
+**El arte de cortar jamón ibérico**\
+`Los españoles hacen fila en bodas, torneos de tenis y galas para comer jamón servido por Ernesto Soriano, uno de los mejores cortadores de jamón ibérico del mundo.`\
+https://www.nytimes.com/es/2026/05/13/espanol/mundo/jamon-iberico-corte.html
+
 **An Uncertain World Awaits the Reopening of the Strait of Hormuz**\
 `Fatih Birol of the International Energy Agency, who orchestrated a multinational release of oil reserves, detailed the risks facing the economy now and beyond.`\
 https://www.nytimes.com/2026/05/13/business/iran-war-strait-hormuz-fatih-birol.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/13/us/politics/trump-xi-rivalry.html
 **My Sister’s Alcoholism Is Putting Her Grandson at Risk. What Should I Do?**\
 `He has discovered her unconscious on more than one occasion.`\
 https://www.nytimes.com/2026/05/13/magazine/sister-alcoholism-grandson-ethics.html
-
-**House Backers Reach Threshold to Force Vote on $1.3 Billion in Ukraine Aid**\
-`Representative Kevin Kiley, independent of California, became the 218th signature on a petition to force action on an aid bill to Ukraine. The vote could come as soon as the end of May.`\
-https://www.nytimes.com/2026/05/13/us/politics/house-ukraine-aid-discharge-petition-kiley.html
 
