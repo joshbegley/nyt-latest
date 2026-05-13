@@ -1,3 +1,7 @@
+**Today, In Short**\
+`Scientology speedruns. Hacky sacks. And cursive clubs.`\
+https://www.nytimes.com/2026/05/13/briefing/today-in-short.html
+
 **Trump Arrives in Beijing to Begin High-Stakes Summit With Xi**\
 `President Trump was greeted by China’s vice president, Han Zheng, and other officials, as well as a military honor guard.`\
 https://www.nytimes.com/2026/05/13/us/politics/trump-arrival-xi-beijing-summit.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/05/13/espanol/mundo/guerra-ucrania-cambios.html
 **The Uncomfortable Parallels Between Starmer and Biden**\
 `In Britain, some argue that Prime Minister Keir Starmer, by rejecting calls to step aside, risks repeating the mistakes of President Joseph R. Biden Jr.`\
 https://www.nytimes.com/2026/05/13/world/europe/starmer-labour-uk-biden-debate-resign.html
-
-**Two Superpowers Across the Table**\
-`Here’s what to expect from the summit between President Trump and China’s top leader, Xi Jinping.`\
-https://www.nytimes.com/2026/05/13/podcasts/the-daily/two-superpowers-across-the-table.html
 
