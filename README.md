@@ -1,3 +1,7 @@
+**Nvidia C.E.O. Hitches Ride With Trump to China After Last-Minute Invite**\
+`Jensen Huang boarded Air Force One in Alaska, joining a delegation of more than a dozen business leaders accompanying President Trump on his trip to Beijing.`\
+https://www.nytimes.com/2026/05/12/us/politics/trump-china-summit-nvidia-jensen-huang.html
+
 **Smooth and Glossy**\
 `Brian Keller’s Wednesday puzzle changes our perspective.`\
 https://www.nytimes.com/2026/05/12/crosswords/daily-puzzle-2026-05-13.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/12/us/politics/kash-patel-hearing-fbi-drinking.h
 **Heated Exchange Between F.B.I. Director and Senator During Hearing**\
 `Senator Chris Van Hollen, Democrat of Maryland, questioned the director of the F.B.I., Kash Patel, about reports of excessive drinking and ordering polygraph tests for members of his team in a search for sources of leaks about him.`\
 https://www.nytimes.com/video/us/politics/100000010899941/kash-patel-senator-van-hollen-fight.html
-
-**Jason Collins, First Active N.B.A. Player to Come Out as Gay, Dies at 47**\
-`His achievements on the court were eclipsed by an essay he wrote in Sports Illustrated in 2013 in which he declared: “I’m a 34-year-old N.B.A. center. I’m Black and I’m gay.”`\
-https://www.nytimes.com/2026/05/12/us/jason-collins-dead.html
 
