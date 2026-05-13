@@ -1,5 +1,9 @@
+**Former California Governor Candidate Arrested in Connection to Fiancée’s Burglary Case**\
+`Stephen Cloobeck, a wealthy developer who dropped out of the governor’s race in November, was arrested on suspicion of witness tampering in a felony case involving his fiancée, a former Penthouse model.`\
+https://www.nytimes.com/2026/05/13/us/cloobeck-arrest-california-governor.html
+
 **Beware of Drunk Deer, French Police Say, Announcing Season of Inebriation**\
-`Some wild animals, eating fermented or rotten fruits, may completely unpredictable behavior,” the police warned drivers in Saône et Loire, a rural region in central-eastern France.`\
+`Some wild animals, eating fermented or rotten fruits, “may exhibit completely unpredictable behavior,” the police warned drivers in Saône et Loire, a rural region in central-eastern France.`\
 https://www.nytimes.com/2026/05/13/world/europe/france-drunk-deer.html
 
 **Trump llegó a China. Así fue recibido en el aeropuerto**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/13/us/politics/rich-danker-resigns-vaping.html
 **Why the Bombing of Iran Tied the U.S. More Closely to China**\
 `As the U.S. tries to rebuild its weapons stockpiles drained in the Iran war, it will need access to rare-earth minerals, an industry China dominates.`\
 https://www.nytimes.com/2026/05/13/business/economy/iran-war-trump-china-us.html
-
-**Irán conserva importantes capacidades en materia de misiles, según inteligencia de EE. UU.**\
-`Nuevas evaluaciones dicen que Irán conserva 30 de sus 33 sitios de misiles a lo largo del estrecho de Ormuz, lo que sugiere que su ejército aún es más fuerte de lo que ha dicho el presidente Trump.`\
-https://www.nytimes.com/es/2026/05/13/espanol/estados-unidos/iran-misiles-inteligencia.html
 
