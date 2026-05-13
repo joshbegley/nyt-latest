@@ -1,3 +1,7 @@
+**Word of the Day: implicit**\
+`This word has appeared in 245 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/05/13/learning/word-of-the-day-implicit.html
+
 **México y EE. UU. rechazan que la CIA tuviera un papel letal en un operativo en México**\
 `Los desmentidos se produjeron después de un reportaje de CNN que afirmó que la CIA participó en el asesinato del integrante de un cártel a principios de año.`\
 https://www.nytimes.com/es/2026/05/13/espanol/america-latina/mexico-cia-carteles.html
