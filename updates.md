@@ -1,3 +1,19 @@
+**The China Gambit: From Nixon to Trump**\
+`President Trump’s visit to Beijing comes as relations with China have became more combative.`\
+https://www.nytimes.com/2026/05/13/us/politics/china-visits-nixon-to-trump.html
+
+**Man Convicted of Running Illegal Police Station Tied to China’s Government**\
+`Prosecutors say that Lu Jianwang opened a hub in Manhattan’s Chinatown to monitor outspoken critics of the Chinese Communist Party.`\
+https://www.nytimes.com/2026/05/13/nyregion/china-covert-police-nyc-verdict.html
+
+**New Mexico Diocese Tries to Block Government From Seizing Land for Border Wall**\
+`The diocese’s lawyers argued that the land, which is below a 29-foot-tall statue of Jesus Christ on a mountain peak, is a holy site protected under religious freedom.`\
+https://www.nytimes.com/2026/05/13/us/politics/new-mexico-diocese-border-wall.html
+
+**As Their Leaders Meet, American and Chinese People Are Drifting Apart**\
+`Past meetings between the presidents of the U.S. and China have involved friendly displays of cultural exchange. Those gestures have largely dried up.`\
+https://www.nytimes.com/2026/05/13/world/asia/trump-xi-summit-people-culture.html
+
 **Duffy’s ‘Great American Road Trip’ Prompts Ethical Concerns**\
 `A YouTube series starring Transportation Secretary Sean Duffy and his family is part of the nation’s 250th anniversary celebrations, but it doubled as a family excursion for them.`\
 https://www.nytimes.com/2026/05/13/us/road-trip-duffy.html
