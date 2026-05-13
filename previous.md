@@ -1,3 +1,7 @@
+**Britain’s Post-Liberal Disorder**\
+`The crisis of the West isn’t about who governs, but that no one can.`\
+https://www.nytimes.com/2026/05/12/opinion/uk-elections-post-liberalism.html
+
 **Two Charged With Trafficking 260 Pounds of Meth to New Jersey**\
 `They face at least 10 years in prison, and the authorities accused one of the men of being associated with the Sinaloa Cartel.`\
 https://www.nytimes.com/2026/05/12/us/two-men-arrested-methamphetamines-nj.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-west-virginia-cour
 **West Virginia Supreme Court Special Election Results**\
 `Get live results and maps from the 2026 West Virginia special election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-west-virginia-supreme-court-special-may-12.html
-
-**West Virginia U.S. Senate Primary Election Results**\
-`Get live results and maps from the 2026 West Virginia primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-west-virginia-us-senate-primary.html
 
