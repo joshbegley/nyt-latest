@@ -1,3 +1,23 @@
+**Top Kennedy Spokesman Resigns in Protest Over New Vaping Policy**\
+`In a letter to President Trump, the spokesman, Rich Danker, said moves to allow the sale of flavored e-cigarettes would enhance their appeal to children.`\
+https://www.nytimes.com/2026/05/13/us/politics/rich-danker-resigns-vaping.html
+
+**Why the Bombing of Iran Tied the U.S. More Closely to China**\
+`As the U.S. tries to rebuild its weapons stockpiles drained in the Iran war, it will need access to rare-earth minerals, an industry China dominates.`\
+https://www.nytimes.com/2026/05/13/business/economy/why-the-bombing-of-iran-tied-the-us-more-closely-to-china.html
+
+**Irán conserva importantes capacidades en materia de misiles, según inteligencia de EE. UU.**\
+`Nuevas evaluaciones dicen que Irán conserva 30 de sus 33 sitios de misiles a lo largo del estrecho de Ormuz, lo que sugiere que su ejército aún es más fuerte de lo que ha dicho el presidente Trump.`\
+https://www.nytimes.com/es/2026/05/13/espanol/estados-unidos/iran-misiles-inteligencia.html
+
+**A Start-Up Aiming to Make Geothermal Energy Mainstream Goes Public**\
+`Fervo Energy, which uses drilling techniques from the oil and gas industry to produce power from the earth’s heat, raised $1.9 billion in an initial public offering.`\
+https://www.nytimes.com/2026/05/13/business/energy-environment/fervo-geothermal-energy-ipo.html
+
+**France Bars 1,700 Cruise Passengers From Leaving Ship After Dozens Get Sick**\
+`Around 50 people so far have symptoms “consistent with an acute gastrointestinal infection” on the Ambassador Cruise Line ship Ambition.`\
+https://www.nytimes.com/2026/05/13/world/europe/cruise-ship-france-illness.html
+
 **Senate Again Rejects Bid to End Iran War, but G.O.P. Opposition Grows**\
 `Senator Lisa Murkowski of Alaska became the latest Republican to switch her vote to halt the conflict and require President Trump to win congressional approval to continue it.`\
 https://www.nytimes.com/2026/05/13/us/politics/iran-war-powers-trump.html
@@ -53,24 +73,4 @@ https://www.nytimes.com/2026/05/13/movies/cannes-film-festival-israel-gaza-polit
 **President Trump Arrives in China for Summit With Xi Jinping**\
 `President Trump landed in Beijing ahead of a high-stakes, two-day summit with China’s top leader, Xi Jinping. Trade and the war with Iran were expected to be high on the agenda when the two meet.`\
 https://www.nytimes.com/video/world/asia/100000010900882/trump-xi-jinping-china-summit-arrival.html
-
-**Musk, Rubio, Hegseth: Who is Traveling With Trump to China?**\
-`President Trump arrived in Beijing, ahead of his meeting with President Xi Jinping of China. Among those accompanying Mr. Trump were top administration officials and business leaders.`\
-https://www.nytimes.com/2026/05/13/us/politics/trump-china-who-musk-rubio-huang.html
-
-**N.Y.U. Students Object to Speaker Who Calls Their Generation ‘Coddled’**\
-`Jonathan Haidt, a professor, says that colleges shield students from challenging ideas. But student leaders said he does not represent their values.`\
-https://www.nytimes.com/2026/05/13/us/politics/nyu-graduation-speaker-free-speech-jonathan-haidt.html
-
-**Perfect Timing, Big Payouts: Insider Trading Red Flags Emerge on Polymarket**\
-`Dozens of long-shot bets on Polymarket, from the war with Iran to the cryptocurrency market, have defied the odds, according to a New York Times examination.`\
-https://www.nytimes.com/2026/05/13/technology/polymarket-insider-trading.html
-
-**My Son Never Turned 7. Because of Choices in Washington, Others Won’t Either.**\
-`More children will die because the Trump administration is cutting pediatric cancer research.`\
-https://www.nytimes.com/2026/05/13/opinion/pediatric-cancer-cuts-trump.html
-
-**Fuel Prices Drive Sales of E.V.s, Just Not in the U.S.**\
-`Electric vehicle sales have soared in Europe and much of the rest of the world, but Americans are still hesitant.`\
-https://www.nytimes.com/2026/05/13/business/iran-gas-prices-electric-vehicles.html
 
