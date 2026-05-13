@@ -1,3 +1,7 @@
+**Trump in China**\
+`We preview the Trump-Xi summit.`\
+https://www.nytimes.com/2026/05/13/briefing/trump-in-china.html
+
 **Un cambio en Ucrania**\
 `El avance del ejército ruso se ha desacelerado hasta casi detenerse. Mientras tanto, Vladimir Putin parece estar sometido a una presión cada vez mayor.`\
 https://www.nytimes.com/es/2026/05/13/espanol/mundo/guerra-ucrania-cambios.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/13/technology/notable-researchers-join-4-billion
 **This Is Getting Dangerous**\
 `The ruling in Louisiana v. Callais might drive America’s politics to an even more precarious place of partisan tension and ideological Balkanization.`\
 https://www.nytimes.com/2026/05/13/opinion/callais-voting-rights-roberts-court.html
-
-**Would You Trust Pete Hegseth With $1.5 Trillion of Your Money?**\
-`“You name it, we’re investing in it” does not inspire confidence.`\
-https://www.nytimes.com/2026/05/13/opinion/hegseth-pentagon-military-budget.html
 
