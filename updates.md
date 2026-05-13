@@ -1,3 +1,7 @@
+**Xi Is Planning for China’s Final Victory Over the U.S.**\
+`While Trump chases quick wins and flashy optics, Xi plays a generational game for global dominance.`\
+https://www.nytimes.com/2026/05/13/opinion/xi-trump-summit-china-us.html
+
 **Anduril Raises $5 Billion, as Push to Modernize the Military Accelerates**\
 `The start-up, which makes A.I.-backed weapons, was valued at $61 billion in the financing round, double what it was a year ago.`\
 https://www.nytimes.com/2026/05/13/technology/anduril-raises-5-billion.html

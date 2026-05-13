@@ -50,7 +50,7 @@ https://www.nytimes.com/es/2026/05/13/espanol/america-latina/mexico-cia-carteles
 `La investigación describe casos en los que se abusaba de las víctimas delante de sus familiares, o en los que los autores difundían imágenes de una víctima en redes sociales.`\
 https://www.nytimes.com/es/2026/05/13/espanol/mundo/israel-violencia-sexual-hamas-informe.html
 
-**Xi Has Trump Right Where He Wants Him**\
+**Xi Is Planning for China’s Final Victory Over the U.S.**\
 `While Trump chases quick wins and flashy optics, Xi plays a generational game for global dominance.`\
 https://www.nytimes.com/2026/05/13/opinion/xi-trump-summit-china-us.html
 
