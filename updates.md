@@ -1,3 +1,19 @@
+**Former California Governor Candidate Arrested in Connection to Fiancée’s Burglary Case**\
+`Stephen Cloobeck, a wealthy developer who dropped out of the governor’s race in November, was arrested on suspicion of witness tampering in a felony case involving his fiancée, a former Penthouse model.`\
+https://www.nytimes.com/2026/05/13/us/cloobeck-arrest-california-governor.html
+
+**Beware of Drunk Deer, French Police Say, Announcing Season of Inebriation**\
+`Some wild animals, eating fermented or rotten fruits, “may exhibit completely unpredictable behavior,” the police warned drivers in Saône et Loire, a rural region in central-eastern France.`\
+https://www.nytimes.com/2026/05/13/world/europe/france-drunk-deer.html
+
+**Trump llegó a China. Así fue recibido en el aeropuerto**\
+`Pekín envió a un vicepresidente de alto rango para dar la bienvenida al presidente Trump. ¿Qué significa esto?`\
+https://www.nytimes.com/es/2026/05/13/espanol/mundo/trump-llego-a-china-asi-fue-recibido-en-el-aeropuerto.html
+
+**Eric Trump, Who Runs the Family Business, Hops Along on the Plane to China**\
+`The president’s middle son is said to be joining his father in a “personal capacity” rather than to make business deals.`\
+https://www.nytimes.com/2026/05/13/us/politics/eric-trump-china.html
+
 **Eric Trump, Who Runs the Family Business, Hops Along on the Plane to China**\
 `The president’s middle son is said to be joining his father in a “personal capacity” rather than to make business deals.`\
 https://www.nytimes.com/2026/05/13/us/politics/eric-trump-who-runs-the-family-business-hops-along-on-the-plane-to-china.html

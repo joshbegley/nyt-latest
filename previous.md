@@ -1,6 +1,18 @@
+**Former California Governor Candidate Arrested in Connection to Fiancée’s Burglary Case**\
+`Stephen Cloobeck, a wealthy developer who dropped out of the governor’s race in November, was arrested on suspicion of witness tampering in a felony case involving his fiancée, a former Penthouse model.`\
+https://www.nytimes.com/2026/05/13/us/cloobeck-arrest-california-governor.html
+
+**Beware of Drunk Deer, French Police Say, Announcing Season of Inebriation**\
+`Some wild animals, eating fermented or rotten fruits, “may exhibit completely unpredictable behavior,” the police warned drivers in Saône et Loire, a rural region in central-eastern France.`\
+https://www.nytimes.com/2026/05/13/world/europe/france-drunk-deer.html
+
+**Trump llegó a China. Así fue recibido en el aeropuerto**\
+`Pekín envió a un vicepresidente de alto rango para dar la bienvenida al presidente Trump. ¿Qué significa esto?`\
+https://www.nytimes.com/es/2026/05/13/espanol/mundo/trump-llego-a-china-asi-fue-recibido-en-el-aeropuerto.html
+
 **Eric Trump, Who Runs the Family Business, Hops Along on the Plane to China**\
 `The president’s middle son is said to be joining his father in a “personal capacity” rather than to make business deals.`\
-https://www.nytimes.com/2026/05/13/us/politics/eric-trump-who-runs-the-family-business-hops-along-on-the-plane-to-china.html
+https://www.nytimes.com/2026/05/13/us/politics/eric-trump-china.html
 
 **Chinese Firms Plot Secret Arms Sales to Iran, U.S. Officials Say**\
 `The effort involves plans to send weapons through other countries in an effort to hide the origins of the shipments.`\
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/13/us/politics/rich-danker-resigns-vaping.html
 **Why the Bombing of Iran Tied the U.S. More Closely to China**\
 `As the U.S. tries to rebuild its weapons stockpiles drained in the Iran war, it will need access to rare-earth minerals, an industry China dominates.`\
 https://www.nytimes.com/2026/05/13/business/economy/iran-war-trump-china-us.html
-
-**Irán conserva importantes capacidades en materia de misiles, según inteligencia de EE. UU.**\
-`Nuevas evaluaciones dicen que Irán conserva 30 de sus 33 sitios de misiles a lo largo del estrecho de Ormuz, lo que sugiere que su ejército aún es más fuerte de lo que ha dicho el presidente Trump.`\
-https://www.nytimes.com/es/2026/05/13/espanol/estados-unidos/iran-misiles-inteligencia.html
-
-**A Start-Up Aiming to Make Geothermal Energy Mainstream Goes Public**\
-`Fervo Energy, which uses drilling techniques from the oil and gas industry to produce power from the earth’s heat, raised $1.9 billion in an initial public offering.`\
-https://www.nytimes.com/2026/05/13/business/energy-environment/fervo-geothermal-energy-ipo.html
-
-**France Bars 1,700 Cruise Passengers From Leaving Ship After Dozens Get Sick**\
-`Around 50 people so far have symptoms “consistent with an acute gastrointestinal infection” on the Ambassador Cruise Line ship Ambition.`\
-https://www.nytimes.com/2026/05/13/world/europe/cruise-ship-france-illness.html
 
