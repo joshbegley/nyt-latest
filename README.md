@@ -1,3 +1,7 @@
+**In San Francisco, the Tents of Homeless People Are Disappearing**\
+`Mayor Daniel Lurie and city leaders have enforced bans on camping and moved people off sidewalks to reduce visible homelessness. Critics say too many homeless people are housed in jail.`\
+https://www.nytimes.com/2026/05/12/us/san-francisco-homeless-count.html
+
 **Deberíamos tomarnos más en serio el hantavirus**\
 `No sabemos cuándo llegará una nueva pandemia, pero deberíamos ser capaces de estar más preparados.`\
 https://www.nytimes.com/es/2026/05/12/espanol/opinion/hantavirus-brote-riesgos.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-nebraska-us-house-
 **Nebraska First Congressional District Primary Election Results**\
 `Get live results and maps from the 2026 Nebraska primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-nebraska-us-house-1-primary.html
-
-**West Virginia Court of Appeals Election Results**\
-`Get live results and maps from the 2026 West Virginia general election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-west-virginia-court-of-appeals.html
 
