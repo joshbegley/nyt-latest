@@ -1,3 +1,7 @@
+**What to Watch at the High-Stakes U.S.-China Summit**\
+`Here’s what to know about the biggest sources of tension in U.S.-China relations before the first summit in Beijing in nine years between the nations’ leaders.`\
+https://www.nytimes.com/2026/05/13/business/economy/china-trump-xi-beijing-summit.html
+
 **Trump’s China Policy Has Weakened America**\
 `In Beijing this week, Mr. Trump should not hand China more victories.`\
 https://www.nytimes.com/2026/05/13/opinion/trump-arrives-china-xi-beijing.html

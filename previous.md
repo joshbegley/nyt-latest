@@ -1,3 +1,7 @@
+**What to Watch at the High-Stakes U.S.-China Summit**\
+`Here’s what to know about the biggest sources of tension in U.S.-China relations before the first summit in Beijing in nine years between the nations’ leaders.`\
+https://www.nytimes.com/2026/05/13/business/economy/china-trump-xi-beijing-summit.html
+
 **Trump’s China Policy Has Weakened America**\
 `In Beijing this week, Mr. Trump should not hand China more victories.`\
 https://www.nytimes.com/2026/05/13/opinion/trump-arrives-china-xi-beijing.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/13/style/tiny-modern-love-stories-life-suddenly-
 **The Controversy Over Graham Platner’s Tattoo and Posts**\
 `Readers say David French’s critique of the likely Democratic candidate for the Senate in Maine was too harsh.`\
 https://www.nytimes.com/2026/05/13/opinion/letters/graham-platner-susan-collins-maine.html
-
-**El arte de cortar jamón ibérico**\
-`Los españoles hacen fila en bodas, torneos de tenis y galas para comer jamón servido por Ernesto Soriano, uno de los mejores cortadores de jamón ibérico del mundo.`\
-https://www.nytimes.com/es/2026/05/13/espanol/mundo/jamon-iberico-corte.html
 
