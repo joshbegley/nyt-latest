@@ -1,3 +1,7 @@
+**Dominican Republic Agrees to Take Third-Country Migrants Deported by U.S.**\
+`The agreement, which reverses President Luis Abinader’s previous stance, is part of President Trump’s efforts to find governments willing to accept deportees.`\
+https://www.nytimes.com/2026/05/12/world/americas/dominican-republic-deportees-us.html
+
 **Creamy Cabbage Pastina**\
 `This creamy cabbage pastina is a take on the simple Italian dish made from tiny pasta stars, chicken broth, egg yolks and Parmesan. It’s fortifying, comforting and tastes like a hug.`\
 https://www.nytimes.com/video/dining/100000010898745/creamy-cabbage-pastina.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-west-virginia-prim
 **Nebraska Secretary of State Primary Election Results**\
 `Get live results and maps from the 2026 Nebraska primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-nebraska-secretary-of-state-primary.html
-
-**Nebraska U.S. Senate Primary Election Results**\
-`Get live results and maps from the 2026 Nebraska primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-nebraska-us-senate-primary.html
 
