@@ -1,3 +1,19 @@
+**Trump’s China Policy Has Weakened America**\
+`In Beijing this week, Mr. Trump should not hand China more victories.`\
+https://www.nytimes.com/2026/05/13/opinion/trump-arrives-china-xi-beijing.html
+
+**What the New Head of the Federal Reserve Will Inherit**\
+`The incoming chair of the Fed will need to navigate a delicate economic moment, a president who wants to lower rates and an increasingly divisive leadership committee.`\
+https://www.nytimes.com/interactive/2026/05/13/business/economy/kevin-warsh-fed-chair-interest-rates.html
+
+**A Long Island Rail Road Strike May Be Near. Here’s What to Know.**\
+`America’s busiest passenger rail service will shut down on Saturday if workers and transit officials cannot agree on a new contract.`\
+https://www.nytimes.com/2026/05/13/nyregion/lirr-strike-long-island-rail-road.html
+
+**Beware of Drunk Deer, French Police Say, Announcing Season of Inebriation**\
+`Some wild animals, eating fermented or rotten fruits, “may exhibit completely unpredictable behavior,” the police warned drivers in Saône-et-Loire, a rural region in central-eastern France.`\
+https://www.nytimes.com/2026/05/13/world/europe/france-drunk-deer.html
+
 **Senate Confirms Kevin Warsh as Fed Chair**\
 `President Trump’s pick to replace Jerome H. Powell takes the helm at a highly uncertain moment for the economy and with heightened concern about the Federal Reserve’s ability to operate independently.`\
 https://www.nytimes.com/2026/05/13/us/politics/kevin-warsh-fed-chair-confirmed.html

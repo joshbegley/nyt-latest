@@ -1,8 +1,16 @@
+**Trump’s China Policy Has Weakened America**\
+`In Beijing this week, Mr. Trump should not hand China more victories.`\
+https://www.nytimes.com/2026/05/13/opinion/trump-arrives-china-xi-beijing.html
+
+**What the New Head of the Federal Reserve Will Inherit**\
+`The incoming chair of the Fed will need to navigate a delicate economic moment, a president who wants to lower rates and an increasingly divisive leadership committee.`\
+https://www.nytimes.com/interactive/2026/05/13/business/economy/kevin-warsh-fed-chair-interest-rates.html
+
 **Senate Confirms Kevin Warsh as Fed Chair**\
 `President Trump’s pick to replace Jerome H. Powell takes the helm at a highly uncertain moment for the economy and with heightened concern about the Federal Reserve’s ability to operate independently.`\
 https://www.nytimes.com/2026/05/13/us/politics/kevin-warsh-fed-chair-confirmed.html
 
-**A Long Island Rail Road Strike Is Near. Here’s What to Know.**\
+**A Long Island Rail Road Strike May Be Near. Here’s What to Know.**\
 `America’s busiest passenger rail service will shut down on Saturday if workers and transit officials cannot agree on a new contract.`\
 https://www.nytimes.com/2026/05/13/nyregion/lirr-strike-long-island-rail-road.html
 
@@ -15,7 +23,7 @@ https://www.nytimes.com/es/2026/05/13/espanol/estados-unidos/impacto-economico-g
 https://www.nytimes.com/2026/05/13/us/cloobeck-arrest-california-governor.html
 
 **Beware of Drunk Deer, French Police Say, Announcing Season of Inebriation**\
-`Some wild animals, eating fermented or rotten fruits, “may exhibit completely unpredictable behavior,” the police warned drivers in Saône et Loire, a rural region in central-eastern France.`\
+`Some wild animals, eating fermented or rotten fruits, “may exhibit completely unpredictable behavior,” the police warned drivers in Saône-et-Loire, a rural region in central-eastern France.`\
 https://www.nytimes.com/2026/05/13/world/europe/france-drunk-deer.html
 
 **Trump llegó a China. Así fue recibido en el aeropuerto**\
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/13/opinion/letters/graham-platner-susan-collins-
 **El arte de cortar jamón ibérico**\
 `Los españoles hacen fila en bodas, torneos de tenis y galas para comer jamón servido por Ernesto Soriano, uno de los mejores cortadores de jamón ibérico del mundo.`\
 https://www.nytimes.com/es/2026/05/13/espanol/mundo/jamon-iberico-corte.html
-
-**An Uncertain World Awaits the Reopening of the Strait of Hormuz**\
-`Fatih Birol of the International Energy Agency, who orchestrated a multinational release of oil reserves, detailed the risks facing the economy now and beyond.`\
-https://www.nytimes.com/2026/05/13/business/iran-war-strait-hormuz-fatih-birol.html
-
-**Rent Is Swallowing Household Incomes**\
-`Plus, how politicians are pitching affordability.`\
-https://www.nytimes.com/2026/05/13/headway/rent-burden-income-affordability.html
 
