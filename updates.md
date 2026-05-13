@@ -1,3 +1,7 @@
+**With a Friend in Trump, the Tobacco Industry Secures a Lucrative Win**\
+`In a dispute over vapes, the president sided with tobacco companies that filled his groups’ coffers over his own F.D.A. commissioner, who resigned in protest.`\
+https://www.nytimes.com/2026/05/13/us/trump-vapes-cigarettes-big-tobacco.html
+
 **Murdaugh Murder Conviction Overturned by South Carolina’s Top Court**\
 `The decision, in which judges cited jury interference by a court clerk, upends one of America’s highest-profile homicide cases.`\
 https://www.nytimes.com/2026/05/13/us/murdaugh-murder-conviction-overturned.html
