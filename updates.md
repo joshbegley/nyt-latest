@@ -1,3 +1,35 @@
+**Anduril Raises $5 Billion, as Push to Modernize the Military Accelerates**\
+`The start-up, which makes A.I.-backed weapons, was valued at $61 billion in the financing round, double what it was a year ago.`\
+https://www.nytimes.com/2026/05/13/technology/anduril-raises-5-billion.html
+
+**Affordable N.Y.C. Homes Stay Empty for Months. That May Soon Change.**\
+`With affordable housing in extremely high demand, Mayor Zohran Mamdani’s administration is announcing plans to reduce red tape and get people into those apartments faster.`\
+https://www.nytimes.com/2026/05/13/nyregion/mamdani-nyc-affordable-housing.html
+
+**A Bronx Neighborhood Loses Its ‘Monarch’ to Arson**\
+`The police charged a 45-year-old man with three counts of homicide and one count of arson in a bodega fire that spread upstairs and killed a beloved resident.`\
+https://www.nytimes.com/2026/05/13/nyregion/bronx-fire-arson.html
+
+**Best Cheap Food**\
+`What are your favorite local budget-friendly places to eat?`\
+https://www.nytimes.com/2026/05/13/learning/best-cheap-food.html
+
+**Mamdani’s Opponents Raise More Than $1 Million to Fight His Agenda**\
+`The new group, which will be led by Jim Walden, a lawyer who ran for mayor last year, will run attack ads and be prepared to sue the Mamdani administration.`\
+https://www.nytimes.com/2026/05/13/nyregion/mamdani-opponents-money-campaign.html
+
+**Harvey Weinstein Faces Another Jury**\
+`The Manhattan jury is the third one to consider whether Mr. Weinstein, the disgraced Hollywood producer, raped an aspiring actress more than a decade ago.`\
+https://www.nytimes.com/2026/05/13/nyregion/harvey-weinstein-rape-case-jury.html
+
+**‘Spot’ Illustrations Prove There Are Many Ways to Draw One Thing**\
+`An artist explains her approach to an atypical assignment in the newspaper.`\
+https://www.nytimes.com/2026/05/13/insider/illustrations-drawing-pia-bramley.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/13/crosswords/spelling-bee-forum.html
+
 **Jordan Klepper Wants the President to Get More Sleep**\
 `“Well, well, well, looks like the Sleepy Joe-er has become the sleepy Joe-ee,” Klepper said after President Trump was seen with his eyes closed during an event in the Oval Office.`\
 https://www.nytimes.com/2026/05/13/arts/television/late-night-trump-sleep.html

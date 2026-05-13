@@ -1,3 +1,35 @@
+**Anduril Raises $5 Billion, as Push to Modernize the Military Accelerates**\
+`The start-up, which makes A.I.-backed weapons, was valued at $61 billion in the financing round, double what it was a year ago.`\
+https://www.nytimes.com/2026/05/13/technology/anduril-raises-5-billion.html
+
+**Affordable N.Y.C. Homes Stay Empty for Months. That May Soon Change.**\
+`With affordable housing in extremely high demand, Mayor Zohran Mamdani’s administration is announcing plans to reduce red tape and get people into those apartments faster.`\
+https://www.nytimes.com/2026/05/13/nyregion/mamdani-nyc-affordable-housing.html
+
+**A Bronx Neighborhood Loses Its ‘Monarch’ to Arson**\
+`The police charged a 45-year-old man with three counts of homicide and one count of arson in a bodega fire that spread upstairs and killed a beloved resident.`\
+https://www.nytimes.com/2026/05/13/nyregion/bronx-fire-arson.html
+
+**Best Cheap Food**\
+`What are your favorite local budget-friendly places to eat?`\
+https://www.nytimes.com/2026/05/13/learning/best-cheap-food.html
+
+**Mamdani’s Opponents Raise More Than $1 Million to Fight His Agenda**\
+`The new group, which will be led by Jim Walden, a lawyer who ran for mayor last year, will run attack ads and be prepared to sue the Mamdani administration.`\
+https://www.nytimes.com/2026/05/13/nyregion/mamdani-opponents-money-campaign.html
+
+**Harvey Weinstein Faces Another Jury**\
+`The Manhattan jury is the third one to consider whether Mr. Weinstein, the disgraced Hollywood producer, raped an aspiring actress more than a decade ago.`\
+https://www.nytimes.com/2026/05/13/nyregion/harvey-weinstein-rape-case-jury.html
+
+**‘Spot’ Illustrations Prove There Are Many Ways to Draw One Thing**\
+`An artist explains her approach to an atypical assignment in the newspaper.`\
+https://www.nytimes.com/2026/05/13/insider/illustrations-drawing-pia-bramley.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/13/crosswords/spelling-bee-forum.html
+
 **Jordan Klepper Wants the President to Get More Sleep**\
 `“Well, well, well, looks like the Sleepy Joe-er has become the sleepy Joe-ee,” Klepper said after President Trump was seen with his eyes closed during an event in the Oval Office.`\
 https://www.nytimes.com/2026/05/13/arts/television/late-night-trump-sleep.html
@@ -45,36 +77,4 @@ https://www.nytimes.com/2026/05/13/world/europe/trump-merz-no-apology.html
 **Trump’s Shrinking Ambitions on China**\
 `The president came into office planning harsher trade moves on China than on the rest of the world. Here’s why he’s had to scale them back.`\
 https://www.nytimes.com/2026/05/13/us/politics/trumps-shrinking-ambitions-on-china.html
-
-**Corrections: May 13, 2026**\
-`Corrections that appeared in print on Wednesday, May 13, 2026.`\
-https://www.nytimes.com/2026/05/13/pageoneplus/corrections-may-13-2026.html
-
-**How China Could Wield Its Control of Rare Earths Against Trump**\
-`A central question hanging over the summit this week is whether China will agree to extend a temporary postponement of even tougher rare-earth export controls.`\
-https://www.nytimes.com/2026/05/13/business/china-trump-xi-rare-earths.html
-
-**Will Trump and Xi Try to Slow the A.I. Arms Race?**\
-`The leaders of both countries are expected to discuss the risks from artificial intelligence, but neither country is willing to be the first to slow down.`\
-https://www.nytimes.com/2026/05/13/world/asia/us-china-trump-xi-beijing-ai.html
-
-**Trump’s Trade War With China: How We Got to a Stalemate In 3 Numbers**\
-`As President Trump prepares to meet with Xi Jinping, a trade war that once threatened to freeze commerce between the two countries has given way to an uneasy truce.`\
-https://www.nytimes.com/2026/05/13/business/trump-tariffs-china.html
-
-**The Lecturer and Philosopher King: Xi Jinping Behind Closed Doors**\
-`Encounters with other world leaders reveal a side of China’s leader that the public rarely sees, and offer clues to how he will approach President Trump in Beijing.`\
-https://www.nytimes.com/2026/05/13/world/asia/xi-jinping-china-leader-trump-summit.html
-
-**Quote of the Day: ‘He Got Me Every Time’: Some Pitchers Haunt Batters**\
-`Quotation of the Day for Wednesday, May 13, 2026.`\
-https://www.nytimes.com/2026/05/12/pageoneplus/quote-of-the-day-he-got-me-every-time-some-pitchers-haunt-batters.html
-
-**Nvidia C.E.O. Hitches Ride With Trump to China After Last-Minute Invite**\
-`Jensen Huang boarded Air Force One in Alaska, joining a delegation of more than a dozen business leaders accompanying President Trump on his trip to Beijing.`\
-https://www.nytimes.com/2026/05/12/us/politics/trump-china-summit-nvidia-jensen-huang.html
-
-**Smooth and Glossy**\
-`Brian Keller’s Wednesday puzzle changes our perspective.`\
-https://www.nytimes.com/2026/05/12/crosswords/daily-puzzle-2026-05-13.html
 
