@@ -1,3 +1,7 @@
+**Uyghurs Hope Trump Returns to First-Term Toughness at Summit**\
+`In 2020, the president declared China’s crackdown on Uyghurs a genocide. Now, it rarely surfaces.`\
+https://www.nytimes.com/2026/05/13/us/politics/uyghurs-beijing-summit-trump-xi-political-prisoners.html
+
 **Netanyahu Made a ‘Secret Visit’ to U.A.E. During Iran War**\
 `The visit to meet with the Emirati leader, Sheikh Mohamed bin Zayed, was another sign of how Israel and the Emirates have drawn closer together.`\
 https://www.nytimes.com/2026/05/13/world/middleeast/netanyahu-uae-iran-war.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/13/us/cloobeck-arrest-california-governor.html
 **Beware of Drunk Deer, French Police Say, Announcing Season of Inebriation**\
 `Some wild animals, eating fermented or rotten fruits, “may exhibit completely unpredictable behavior,” the police warned drivers in Saône-et-Loire, a rural region in central-eastern France.`\
 https://www.nytimes.com/2026/05/13/world/europe/france-drunk-deer.html
-
-**Trump llegó a China. Así fue recibido en el aeropuerto**\
-`Pekín envió a un vicepresidente de alto rango para dar la bienvenida al presidente Trump. ¿Qué significa esto?`\
-https://www.nytimes.com/es/2026/05/13/espanol/mundo/trump-visita-china.html
 

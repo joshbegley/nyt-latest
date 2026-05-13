@@ -1,3 +1,7 @@
+**Uyghurs Hope Trump Returns to First-Term Toughness at Summit**\
+`In 2020, the president declared China’s crackdown on Uyghurs a genocide. Now, it rarely surfaces.`\
+https://www.nytimes.com/2026/05/13/us/politics/uyghurs-beijing-summit-trump-xi-political-prisoners.html
+
 **Police in France Warn Public to Stay Away From Drunk Deer**\
 `The police in rural France issued a warning to drivers to be on the lookout for deer “drunk” on fermented fruit, which can cause them to behave unpredictably.`\
 https://www.nytimes.com/video/world/europe/100000010901639/drunk-deer-france.html
