@@ -1,3 +1,7 @@
+**French Hantavirus Patient Is Critically Ill as Outbreak Reaches 11 Cases**\
+`The woman, who was a passenger on the MV Hondius, was breathing with the help of an artificial lung, officials in Paris said.`\
+https://www.nytimes.com/2026/05/13/world/europe/hantavirus-outbreak-cases-france.html
+
 **Unfortunately, We Have to Take Spencer Pratt Seriously as a Politician**\
 `Reality stars and influencers in government are here to stay.`\
 https://www.nytimes.com/2026/05/13/opinion/spencer-pratt-mayor-los-angeles.html

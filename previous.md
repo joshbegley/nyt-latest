@@ -1,3 +1,7 @@
+**French Hantavirus Patient Is Critically Ill as Outbreak Reaches 11 Cases**\
+`The woman, who was a passenger on the MV Hondius, was breathing with the help of an artificial lung, officials in Paris said.`\
+https://www.nytimes.com/2026/05/13/world/europe/hantavirus-outbreak-cases-france.html
+
 **Unfortunately, We Have to Take Spencer Pratt Seriously as a Politician**\
 `Reality stars and influencers in government are here to stay.`\
 https://www.nytimes.com/2026/05/13/opinion/spencer-pratt-mayor-los-angeles.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/05/13/espanol/audifonos-auriculares-dormir.html
 **What You Need to Know About the Federal Gas Tax**\
 `President Trump said he would like to suspend the 18.4-cent-a-gallon tax, but it’s a move that may save drivers only a few dollars a month.`\
 https://www.nytimes.com/2026/05/13/business/energy-environment/trump-federal-gas-tax.html
-
-**The Complicated Logistics of a Home Building Sprint**\
-`2,500 volunteers descended on Atlanta last week to build 24 homes in five days.`\
-https://www.nytimes.com/2026/05/13/realestate/atlanta-habitat-for-humanity-build.html
 
