@@ -1,3 +1,7 @@
+**México y EE. UU. rechazan que la CIA tuviera un papel letal en un operativo en México**\
+`Los desmentidos se produjeron después de un reportaje de CNN que afirmó que la CIA participó en el asesinato del integrante de un cártel a principios de año.`\
+https://www.nytimes.com/es/2026/05/13/espanol/america-latina/mexico-cia-carteles.html
+
 **Un informe israelí examina la violencia sexual durante y tras el atentado de Hamás**\
 `La investigación describe casos en los que se abusaba de las víctimas delante de sus familiares, o en los que los autores difundían imágenes de una víctima en redes sociales.`\
 https://www.nytimes.com/es/2026/05/13/espanol/mundo/israel-violencia-sexual-hamas-informe.html

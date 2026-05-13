@@ -1,3 +1,7 @@
+**México y EE. UU. rechazan que la CIA tuviera un papel letal en un operativo en México**\
+`Los desmentidos se produjeron después de un reportaje de CNN que afirmó que la CIA participó en el asesinato del integrante de un cártel a principios de año.`\
+https://www.nytimes.com/es/2026/05/13/espanol/america-latina/mexico-cia-carteles.html
+
 **Un informe israelí examina la violencia sexual durante y tras el atentado de Hamás**\
 `La investigación describe casos en los que se abusaba de las víctimas delante de sus familiares, o en los que los autores difundían imágenes de una víctima en redes sociales.`\
 https://www.nytimes.com/es/2026/05/13/espanol/mundo/israel-violencia-sexual-hamas-informe.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/12/us/becerra-viral-tv-interview-california-gove
 **Dominican Republic Agrees to Take Third-Country Migrants Deported by U.S.**\
 `The agreement, which reverses President Luis Abinader’s previous stance, is part of President Trump’s efforts to find governments willing to accept deportees.`\
 https://www.nytimes.com/2026/05/12/world/americas/dominican-republic-deportees-us.html
-
-**Creamy Cabbage Pastina**\
-`This creamy cabbage pastina is a take on the simple Italian dish made from tiny pasta stars, chicken broth, egg yolks and Parmesan. It’s fortifying, comforting and tastes like a hug.`\
-https://www.nytimes.com/video/dining/100000010898745/creamy-cabbage-pastina.html
 
