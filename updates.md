@@ -1,3 +1,27 @@
+**Gen. Caine’s Silence on Iran War Leaves Questions About Military Strategy**\
+`The president’s top military adviser is walking a tightrope as he leads the military through a divisive and unpopular war.`\
+https://www.nytimes.com/2026/05/13/us/politics/gen-caine-trump-iran-war.html
+
+**The Good List: 6 Things to Add Joy to Your Day**\
+`Voice memos, snail mail and your own private screening room.`\
+https://www.nytimes.com/2026/05/13/briefing/the-good-list-top-gun-voice-memos.html
+
+**Police in France Warn Public To Stay Away From Drunk Deer**\
+`The police in rural France issued a warning to drivers to be on the lookout for deer “drunk” on fermented fruit, which can cause them to behave unpredictably.`\
+https://www.nytimes.com/video/world/europe/100000010901639/drunk-deer-france.html
+
+**Top Gaza Negotiator Urges Hamas to Embrace Rebuilding Plan**\
+`Nickolay Mladenov, who is overseeing the U.S.-led truce in Gaza, has tried to convince the militant group to give up its arms, but it has so far refused amid Israeli cease-fire violations.`\
+https://www.nytimes.com/2026/05/13/world/middleeast/gaza-peace-plan-reconstruction.html
+
+**Nancy Cox, Who Worked to Conquer the Wily Flu, Dies at 77**\
+`As the leader of the C.D.C.’s influenza division, she battled to keep up with an ever-changing viral opponent, building a global network of researchers and forecasters.`\
+https://www.nytimes.com/2026/05/13/health/nancy-cox-dead.html
+
+**Former California Governor Candidate Arrested in Los Angeles County**\
+`Stephen Cloobeck, a wealthy developer who dropped out of the governor’s race in November, was arrested on suspicion of witness tampering in a felony case involving his fiancée, a former Penthouse model.`\
+https://www.nytimes.com/2026/05/13/us/cloobeck-arrest-california-governor.html
+
 **Hantavirus Attacks Patients’ Bodies. This Doctor Tends to Their Minds.**\
 `David Cates, a psychologist working with Americans exposed to the disease on the MV Hondius, said psychosocial supports are just as important as physical care.`\
 https://www.nytimes.com/2026/05/13/us/hantavirus-quarantine-psychology-omaha.html
