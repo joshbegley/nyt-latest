@@ -1,3 +1,7 @@
+**Senate Again Rejects Bid to End Iran War, but G.O.P. Opposition Grows**\
+`Senator Lisa Murkowski of Alaska became the latest Republican to switch her vote to halt the conflict and require President Trump to win congressional approval to continue it.`\
+https://www.nytimes.com/2026/05/13/us/politics/iran-war-powers-trump.html
+
 **El conferenciante y rey filósofo: así es Xi Jinping a puerta cerrada**\
 `Los encuentros con otros líderes mundiales revelan una faceta del dirigente chino que el público rara vez ve, y ofrecen pistas sobre cómo abordará al presidente Trump en Pekín.`\
 https://www.nytimes.com/es/2026/05/13/espanol/mundo/xi-jinping-china.html
@@ -69,8 +73,4 @@ https://www.nytimes.com/2026/05/13/opinion/pediatric-cancer-cuts-trump.html
 **Fuel Prices Drive Sales of E.V.s, Just Not in the U.S.**\
 `Electric vehicle sales have soared in Europe and much of the rest of the world, but Americans are still hesitant.`\
 https://www.nytimes.com/2026/05/13/business/iran-gas-prices-electric-vehicles.html
-
-**Today, In Short**\
-`Scientology speedruns. Hacky sacks. And cursive clubs.`\
-https://www.nytimes.com/2026/05/13/briefing/today-in-short.html
 
