@@ -1,3 +1,7 @@
+**Creamy Cabbage Pastina**\
+`This creamy cabbage pastina is a take on the simple Italian dish made from tiny pasta stars, chicken broth, egg yolks and Parmesan. It’s fortifying, comforting and tastes like a hug.`\
+https://www.nytimes.com/video/dining/100000010898745/creamy-cabbage-pastina.html
+
 **Democrat Wins Senate Primary in Nebraska, but Plans to Drop Out**\
 `Cindy Burbank has said she intends to exit the general-election race, clearing the field for Dan Osborn, an independent candidate, to face Senator Pete Ricketts, a Republican.`\
 https://www.nytimes.com/2026/05/12/us/politics/nebraska-election-takeaways-dan-osborn-ricketts-senate.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-nebraska-secretary
 **Nebraska U.S. Senate Primary Election Results**\
 `Get live results and maps from the 2026 Nebraska primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-nebraska-us-senate-primary.html
-
-**Nebraska Governor Primary Election Results**\
-`Get live results and maps from the 2026 Nebraska primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-nebraska-governor-primary.html
 
