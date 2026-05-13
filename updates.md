@@ -1,3 +1,7 @@
+**Nigel Farage, Leader of Reform U.K., Faces Investigation for £5 Million Gift**\
+`The Conservative Party referred the case against Mr. Farage, the leader of a right-wing populist party in Britain, to a parliamentary watchdog.`\
+https://www.nytimes.com/2026/05/13/world/europe/nigel-farage-reform-uk-investigation-5-million-gift.html
+
 **What to Watch at the High-Stakes U.S.-China Summit**\
 `Here’s what to know about the biggest sources of tension in U.S.-China relations before the first summit in Beijing in nine years between the nations’ leaders.`\
 https://www.nytimes.com/2026/05/13/business/economy/china-trump-xi-beijing-summit.html
