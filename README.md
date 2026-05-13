@@ -1,3 +1,7 @@
+**Gen. Caine’s Silence on Iran War Leaves Questions About Military Strategy**\
+`The president’s top military adviser is walking a tightrope as he leads the military through a divisive and unpopular war.`\
+https://www.nytimes.com/2026/05/13/us/politics/gen-caine-trump-iran-war.html
+
 **The Good List: 6 Things to Add Joy to Your Day**\
 `Voice memos, snail mail and your own private screening room.`\
 https://www.nytimes.com/2026/05/13/briefing/the-good-list-top-gun-voice-memos.html
@@ -50,7 +54,7 @@ https://www.nytimes.com/2026/05/13/nyregion/lirr-strike-long-island-rail-road.ht
 `Cuando se le preguntó si la situación económica de los estadounidenses lo motivaba para llegar a un trato, el presidente Trump dijo sin rodeos: “Ni siquiera un poco”.`\
 https://www.nytimes.com/es/2026/05/13/espanol/estados-unidos/impacto-economico-guerra-iran-trump.html
 
-**Former California Governor Candidate Arrested in Connection to Fiancée’s Burglary Case**\
+**Former California Governor Candidate Arrested in Los Angeles County**\
 `Stephen Cloobeck, a wealthy developer who dropped out of the governor’s race in November, was arrested on suspicion of witness tampering in a felony case involving his fiancée, a former Penthouse model.`\
 https://www.nytimes.com/2026/05/13/us/cloobeck-arrest-california-governor.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/13/us/politics/china-iran-weapons-trump-xi.html
 **Trump Says He Does Not Think About Economic Hardships Linked to Iran War**\
 `President Trump said on Tuesday that he did not think about the economic hardships Americans face from the war in Iran. Instead, he said that he was focused on preventing Iran from having a nuclear weapon.`\
 https://www.nytimes.com/video/us/politics/100000010901096/trump-iran-gas-prices-inflation.html
-
-**Trump Administration Pushes I.R.S. to Identify Undocumented Immigrants**\
-`The deliberations are a sign that the Trump administration may once again try to harness the power of the I.R.S. to advance its immigration agenda.`\
-https://www.nytimes.com/2026/05/13/us/politics/trump-irs-undocumented-immigrants.html
 
