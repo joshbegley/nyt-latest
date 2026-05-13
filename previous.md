@@ -1,10 +1,22 @@
+**An Uncertain World Awaits the Reopening of the Strait of Hormuz**\
+`Fatih Birol of the International Energy Agency, who orchestrated a multinational release of oil reserves, detailed the risks facing the economy now and beyond.`\
+https://www.nytimes.com/2026/05/13/business/iran-war-strait-hormuz-fatih-birol.html
+
+**Rent Is Swallowing Household Incomes**\
+`Plus, how politicians are pitching affordability.`\
+https://www.nytimes.com/2026/05/13/headway/rent-burden-income-affordability.html
+
+**For Trump, the Iran War Looms Over China Summit**\
+`The balance of power between the United States and China had shifted in Beijing’s favor even before the war in Iran began in February.`\
+https://www.nytimes.com/2026/05/13/us/politics/trump-iran-war-china.html
+
 **Top Kennedy Spokesman Resigns in Protest Over New Vaping Policy**\
 `In a letter to President Trump, the spokesman, Rich Danker, said moves to allow the sale of flavored e-cigarettes would enhance their appeal to children.`\
 https://www.nytimes.com/2026/05/13/us/politics/rich-danker-resigns-vaping.html
 
 **Why the Bombing of Iran Tied the U.S. More Closely to China**\
 `As the U.S. tries to rebuild its weapons stockpiles drained in the Iran war, it will need access to rare-earth minerals, an industry China dominates.`\
-https://www.nytimes.com/2026/05/13/business/economy/why-the-bombing-of-iran-tied-the-us-more-closely-to-china.html
+https://www.nytimes.com/2026/05/13/business/economy/iran-war-trump-china-us.html
 
 **Irán conserva importantes capacidades en materia de misiles, según inteligencia de EE. UU.**\
 `Nuevas evaluaciones dicen que Irán conserva 30 de sus 33 sitios de misiles a lo largo del estrecho de Ormuz, lo que sugiere que su ejército aún es más fuerte de lo que ha dicho el presidente Trump.`\
@@ -65,12 +77,4 @@ https://www.nytimes.com/2026/05/13/magazine/sister-alcoholism-grandson-ethics.ht
 **House Backers Reach Threshold to Force Vote on $1.3 Billion in Ukraine Aid**\
 `Representative Kevin Kiley, independent of California, became the 218th signature on a petition to force action on an aid bill to Ukraine. The vote could come as soon as the end of May.`\
 https://www.nytimes.com/2026/05/13/us/politics/house-ukraine-aid-discharge-petition-kiley.html
-
-**Cannes 2026: How Political Should a Film Festival Be?**\
-`The event’s leaders immediately jumped into the debate over whether festival participants should speak out on issues like Israel and Gaza.`\
-https://www.nytimes.com/2026/05/13/movies/cannes-film-festival-israel-gaza-politics.html
-
-**President Trump Arrives in China for Summit With Xi Jinping**\
-`President Trump landed in Beijing ahead of a high-stakes, two-day summit with China’s top leader, Xi Jinping. Trade and the war with Iran were expected to be high on the agenda when the two meet.`\
-https://www.nytimes.com/video/world/asia/100000010900882/trump-xi-jinping-china-summit-arrival.html
 

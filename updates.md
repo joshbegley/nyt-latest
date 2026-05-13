@@ -1,3 +1,19 @@
+**An Uncertain World Awaits the Reopening of the Strait of Hormuz**\
+`Fatih Birol of the International Energy Agency, who orchestrated a multinational release of oil reserves, detailed the risks facing the economy now and beyond.`\
+https://www.nytimes.com/2026/05/13/business/iran-war-strait-hormuz-fatih-birol.html
+
+**Rent Is Swallowing Household Incomes**\
+`Plus, how politicians are pitching affordability.`\
+https://www.nytimes.com/2026/05/13/headway/rent-burden-income-affordability.html
+
+**For Trump, the Iran War Looms Over China Summit**\
+`The balance of power between the United States and China had shifted in Beijing’s favor even before the war in Iran began in February.`\
+https://www.nytimes.com/2026/05/13/us/politics/trump-iran-war-china.html
+
+**Why the Bombing of Iran Tied the U.S. More Closely to China**\
+`As the U.S. tries to rebuild its weapons stockpiles drained in the Iran war, it will need access to rare-earth minerals, an industry China dominates.`\
+https://www.nytimes.com/2026/05/13/business/economy/iran-war-trump-china-us.html
+
 **Top Kennedy Spokesman Resigns in Protest Over New Vaping Policy**\
 `In a letter to President Trump, the spokesman, Rich Danker, said moves to allow the sale of flavored e-cigarettes would enhance their appeal to children.`\
 https://www.nytimes.com/2026/05/13/us/politics/rich-danker-resigns-vaping.html
