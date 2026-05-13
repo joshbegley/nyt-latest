@@ -1,3 +1,23 @@
+**Top Kennedy Spokesman Resigns in Protest Over New Vaping Policy**\
+`In a letter to President Trump, the spokesman, Rich Danker, said moves to allow the sale of flavored e-cigarettes would enhance their appeal to children.`\
+https://www.nytimes.com/2026/05/13/us/politics/rich-danker-resigns-vaping.html
+
+**Why the Bombing of Iran Tied the U.S. More Closely to China**\
+`As the U.S. tries to rebuild its weapons stockpiles drained in the Iran war, it will need access to rare-earth minerals, an industry China dominates.`\
+https://www.nytimes.com/2026/05/13/business/economy/why-the-bombing-of-iran-tied-the-us-more-closely-to-china.html
+
+**Irán conserva importantes capacidades en materia de misiles, según inteligencia de EE. UU.**\
+`Nuevas evaluaciones dicen que Irán conserva 30 de sus 33 sitios de misiles a lo largo del estrecho de Ormuz, lo que sugiere que su ejército aún es más fuerte de lo que ha dicho el presidente Trump.`\
+https://www.nytimes.com/es/2026/05/13/espanol/estados-unidos/iran-misiles-inteligencia.html
+
+**A Start-Up Aiming to Make Geothermal Energy Mainstream Goes Public**\
+`Fervo Energy, which uses drilling techniques from the oil and gas industry to produce power from the earth’s heat, raised $1.9 billion in an initial public offering.`\
+https://www.nytimes.com/2026/05/13/business/energy-environment/fervo-geothermal-energy-ipo.html
+
+**France Bars 1,700 Cruise Passengers From Leaving Ship After Dozens Get Sick**\
+`Around 50 people so far have symptoms “consistent with an acute gastrointestinal infection” on the Ambassador Cruise Line ship Ambition.`\
+https://www.nytimes.com/2026/05/13/world/europe/cruise-ship-france-illness.html
+
 **Senate Again Rejects Bid to End Iran War, but G.O.P. Opposition Grows**\
 `Senator Lisa Murkowski of Alaska became the latest Republican to switch her vote to halt the conflict and require President Trump to win congressional approval to continue it.`\
 https://www.nytimes.com/2026/05/13/us/politics/iran-war-powers-trump.html
