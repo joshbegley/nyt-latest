@@ -1,3 +1,7 @@
+**Un cambio en Ucrania**\
+`El avance del ejército ruso se ha desacelerado hasta casi detenerse. Mientras tanto, Vladimir Putin parece estar sometido a una presión cada vez mayor.`\
+https://www.nytimes.com/es/2026/05/13/espanol/mundo/guerra-ucrania-cambios.html
+
 **The Uncomfortable Parallels Between Starmer and Biden**\
 `In Britain, some argue that Prime Minister Keir Starmer, by rejecting calls to step aside, risks repeating the mistakes of President Joseph R. Biden Jr.`\
 https://www.nytimes.com/2026/05/13/world/europe/starmer-labour-uk-biden-debate-resign.html
