@@ -1,3 +1,23 @@
+**Why Xi Doesn’t Need a Deal With Trump**\
+`President Xi Jinping of China is buying time for Beijing and may see an opening with a U.S. president weakened by the war in Iran.`\
+https://www.nytimes.com/2026/05/13/world/asia/xi-trump-china-us-taiwan-iran.html
+
+**Más aviones espía y drones estadounidenses vigilan Cuba**\
+`Mientras el presidente Trump amenaza con actuar contra la isla, los expertos debaten si los vuelos que Estados Unidos no oculta son solo una intimidación o presagian la fuerza militar.`\
+https://www.nytimes.com/es/2026/05/13/espanol/america-latina/aviones-espia-drones-eeuu-cuba.html
+
+**Ye Must Pay Musicians for Using Sample Without Permission**\
+`A jury in Los Angeles found the rapper and three of his companies liable for more than $400,000 after he played an unauthorized music sample at an event in 2021.`\
+https://www.nytimes.com/2026/05/13/arts/music/kanye-west-copyright-sample-verdict.html
+
+**Alberta Petition to Break Away From Canada Is Dealt a Court Blow**\
+`A judge sided with an Indigenous group that had asked for a petition by separatists to force a vote on the oil-rich province seceding from Canada to be thrown out.`\
+https://www.nytimes.com/2026/05/13/world/canada/alberta-seperation-secession-judge.html
+
+**Is Trump Tuned Out to Americans’ Financial Needs? A Remark Suggests Yes.**\
+`Asked if he was motivated by Americans’ financial woes to make a deal to end the war with Iran, he responded, “Not even a little bit.”`\
+https://www.nytimes.com/2026/05/13/us/politics/trump-iran-war-american-finances-republicans-midterms.html
+
 **Trump Administration Will Withhold $1.3 Billion in Medicaid Payments to California**\
 `Vice President JD Vance said the state had not done enough to fight fraud in the public health insurance program.`\
 https://www.nytimes.com/2026/05/13/us/politics/vance-medicaid-fraud-california.html
