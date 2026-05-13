@@ -1,3 +1,11 @@
+**Duffy’s ‘Great American Road Trip’ Prompts Ethical Concerns**\
+`A YouTube series starring Transportation Secretary Sean Duffy and his family is part of the nation’s 250th anniversary celebrations, but it doubled as a family excursion for them.`\
+https://www.nytimes.com/2026/05/13/us/road-trip-duffy.html
+
+**How Jerome Powell Managed a Chaotic Era**\
+`Our reporter Colby Smith, who covers the Federal Reserve and the economy, looks back at Jerome Powell’s tenure as chair of the Fed.`\
+https://www.nytimes.com/video/us/100000010884024/how-jerome-powell-managed-a-chaotic-era.html
+
 **Black Bear Fatally Mauls Uranium Contractor in Northern Canada**\
 `The attack, at a remote uranium mining site in northern Saskatchewan, was only the fourth fatal black bear encounter in the province’s recorded history, officials said.`\
 https://www.nytimes.com/2026/05/13/world/canada/canada-bear-attack-uranium-mining.html
@@ -46,7 +54,7 @@ https://www.nytimes.com/2026/05/13/world/trump-xi-beijing-iran-missiles.html
 `In a column, the top lawyer for D.H.S. claimed that the judge, Melissa DuBose, was engaging in an “intimidation campaign” by referring a government lawyer for a misconduct investigation.`\
 https://www.nytimes.com/2026/05/13/us/politics/judge-homeland-security-ice.html
 
-**Is Trump Tuned Out to Americans’ Financial Needs? A Remark Suggests Yes.**\
+**Is Trump Tuned Out to Americans’ Financial Worries? A Remark Suggests Yes.**\
 `Asked if he was motivated by Americans’ financial woes to make a deal to end the war with Iran, he responded, “Not even a little bit.”`\
 https://www.nytimes.com/2026/05/13/us/politics/trump-iran-war-american-finances-republicans-midterms.html
 
@@ -65,12 +73,4 @@ https://www.nytimes.com/2026/05/13/us/kouri-richins-sentencing.html
 **Koji Suzuki, Sometimes Called the Stephen King of Japan, Dies at 68**\
 `His “Ring” trilogy helped create a genre known as J-horror and spawned a multimedia franchise, including one of the highest-grossing horror films ever made.`\
 https://www.nytimes.com/2026/05/13/books/koji-suzuki-dead.html
-
-**Georgia Governor Calls Special Session to Redistrict for 2028 Elections**\
-`Gov. Brian Kemp, a Republican, also asked lawmakers to delay changes to the state’s election system that could cause disarray in the midterms.`\
-https://www.nytimes.com/2026/05/13/us/brian-kemp-georgia-redistricting-elections.html
-
-**Overlooked No More: Jackie Pung, Pioneering Golfer Whose Setback Became Her Story**\
-`She was the first golfer from Hawaii to win a national championship. But she is best remembered for a mishap that cost her the biggest title of her career.`\
-https://www.nytimes.com/2026/05/13/obituaries/jackie-pung-overlooked.html
 

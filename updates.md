@@ -1,3 +1,15 @@
+**Duffy’s ‘Great American Road Trip’ Prompts Ethical Concerns**\
+`A YouTube series starring Transportation Secretary Sean Duffy and his family is part of the nation’s 250th anniversary celebrations, but it doubled as a family excursion for them.`\
+https://www.nytimes.com/2026/05/13/us/road-trip-duffy.html
+
+**How Jerome Powell Managed a Chaotic Era**\
+`Our reporter Colby Smith, who covers the Federal Reserve and the economy, looks back at Jerome Powell’s tenure as chair of the Fed.`\
+https://www.nytimes.com/video/us/100000010884024/how-jerome-powell-managed-a-chaotic-era.html
+
+**Is Trump Tuned Out to Americans’ Financial Worries? A Remark Suggests Yes.**\
+`Asked if he was motivated by Americans’ financial woes to make a deal to end the war with Iran, he responded, “Not even a little bit.”`\
+https://www.nytimes.com/2026/05/13/us/politics/trump-iran-war-american-finances-republicans-midterms.html
+
 **Black Bear Fatally Mauls Uranium Contractor in Northern Canada**\
 `The attack, at a remote uranium mining site in northern Saskatchewan, was only the fourth fatal black bear encounter in the province’s recorded history, officials said.`\
 https://www.nytimes.com/2026/05/13/world/canada/canada-bear-attack-uranium-mining.html
