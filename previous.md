@@ -1,3 +1,43 @@
+**Britain Has Had 5 Leaders in a Decade. Is It About to Get Another?**\
+`The promise of Keir Starmer’s Labour Party in 2024 was renewed stability — but that now appears to be under threat.`\
+https://www.nytimes.com/2026/05/13/world/europe/britain-leadership-turnover.html
+
+**Princess of Wales to Make First Official Trip Abroad Since Cancer Diagnosis**\
+`Catherine will visit Reggio Emilia, an Italian city celebrated for its approach to early childhood education.`\
+https://www.nytimes.com/2026/05/13/world/europe/catherine-italy-visit.html
+
+**Europe Tries a Trumpian Tactic With Trump: No Apologies**\
+`Stuck with the fallout from America’s war in Iran, European leaders have criticized the president publicly. When he’s been angered, they haven’t backed down.`\
+https://www.nytimes.com/2026/05/13/world/europe/trump-merz-no-apology.html
+
+**Trump’s Shrinking Ambitions on China**\
+`The president came into office planning harsher trade moves on China than on the rest of the world. Here’s why he’s had to scale them back.`\
+https://www.nytimes.com/2026/05/13/us/politics/trumps-shrinking-ambitions-on-china.html
+
+**Corrections: May 13, 2026**\
+`Corrections that appeared in print on Wednesday, May 13, 2026.`\
+https://www.nytimes.com/2026/05/13/pageoneplus/corrections-may-13-2026.html
+
+**How China Could Wield Its Control of Rare Earths Against Trump**\
+`A central question hanging over the summit this week is whether China will agree to extend a temporary postponement of even tougher rare-earth export controls.`\
+https://www.nytimes.com/2026/05/13/business/china-trump-xi-rare-earths.html
+
+**Will Trump and Xi Try to Slow the A.I. Arms Race?**\
+`The leaders of both countries are expected to discuss the risks from artificial intelligence, but neither country is willing to be the first to slow down.`\
+https://www.nytimes.com/2026/05/13/world/asia/us-china-trump-xi-beijing-ai.html
+
+**Trump’s Trade War With China: How We Got to a Stalemate In 3 Numbers**\
+`As President Trump prepares to meet with Xi Jinping, a trade war that once threatened to freeze commerce between the two countries has given way to an uneasy truce.`\
+https://www.nytimes.com/2026/05/13/business/trump-tariffs-china.html
+
+**The Lecturer and Philosopher King: Xi Jinping Behind Closed Doors**\
+`Encounters with other world leaders reveal a side of China’s leader that the public rarely sees, and offer clues to how he will approach President Trump in Beijing.`\
+https://www.nytimes.com/2026/05/13/world/asia/xi-jinping-china-leader-trump-summit.html
+
+**Quote of the Day: ‘He Got Me Every Time’: Some Pitchers Haunt Batters**\
+`Quotation of the Day for Wednesday, May 13, 2026.`\
+https://www.nytimes.com/2026/05/12/pageoneplus/quote-of-the-day-he-got-me-every-time-some-pitchers-haunt-batters.html
+
 **Nvidia C.E.O. Hitches Ride With Trump to China After Last-Minute Invite**\
 `Jensen Huang boarded Air Force One in Alaska, joining a delegation of more than a dozen business leaders accompanying President Trump on his trip to Beijing.`\
 https://www.nytimes.com/2026/05/12/us/politics/trump-china-summit-nvidia-jensen-huang.html
@@ -37,44 +77,4 @@ https://www.nytimes.com/2026/05/12/us/politics/trump-golden-dome.html
 **Justice Dept. Officials Consider Settling Trump Suit Against I.R.S.**\
 `One of the settlement terms under review is for the I.R.S. to drop any audits of the president, his family members and businesses.`\
 https://www.nytimes.com/2026/05/12/business/trump-suit-irs.html
-
-**Battle Over the Strait of Hormuz Leaves Safe Passage a Gamble**\
-`Vessels are traveling without transmitting critical information meant to keep the waters safe, maritime intelligence experts say.`\
-https://www.nytimes.com/2026/05/12/world/middleeast/strait-of-hormuz-conrol.html
-
-**In San Francisco, the Tents of Homeless People Are Disappearing**\
-`Mayor Daniel Lurie and city leaders have enforced bans on camping and moved people off sidewalks to reduce visible homelessness. Critics say too many homeless people are housed in jail.`\
-https://www.nytimes.com/2026/05/12/us/san-francisco-homeless-count.html
-
-**Deberíamos tomarnos más en serio el hantavirus**\
-`No sabemos cuándo llegará una nueva pandemia, pero deberíamos ser capaces de estar más preparados.`\
-https://www.nytimes.com/es/2026/05/12/espanol/opinion/hantavirus-brote-riesgos.html
-
-**The Crisis of the West Isn’t About Who Governs, but That No One Can**\
-`The crisis of the West isn’t about who governs, but that no one can.`\
-https://www.nytimes.com/2026/05/12/opinion/uk-elections-post-liberalism.html
-
-**Two Charged With Trafficking 260 Pounds of Meth to New Jersey**\
-`They face at least 10 years in prison, and the authorities accused one of the men of being associated with the Sinaloa Cartel.`\
-https://www.nytimes.com/2026/05/12/us/two-men-arrested-methamphetamines-nj.html
-
-**Un hijo moribundo, sus padres detenidos y la carrera para reunirse antes del final**\
-`Desde su cama de hospital en Chicago, el joven deseaba ver por última vez a sus padres. Pero tras cruzar ilegalmente desde México para visitarlo, fueron detenidos por inmigración en Arizona.`\
-https://www.nytimes.com/es/2026/05/12/espanol/estados-unidos/kevin-gonzalez-despedida-padres-cancer.html
-
-**Anthropic in Talks to Raise Funding at a $950 Billion Valuation**\
-`The start-up, which recently released a powerful A.I. model called Mythos and is separately battling with the Pentagon, was previously valued at $380 billion.`\
-https://www.nytimes.com/2026/05/12/technology/anthropic-funding-950-billion-valuation.html
-
-**Waymo Is Fixing All of Its Self-Driving Taxis to Avoid Floods**\
-`The company will recall its software after one of its robotaxis entered a flooded road during a heavy downpour in San Antonio last month.`\
-https://www.nytimes.com/2026/05/12/us/waymo-recall-robotaxis-flood-water.html
-
-**In Heated Exchanges, Kash Patel Denies Lying and Excessive Drinking**\
-`The remarks, at a hearing ostensibly about the coming budget for law enforcement agencies, veered from sedate exchanges about operational matters to ugly personal confrontations.`\
-https://www.nytimes.com/2026/05/12/us/politics/kash-patel-hearing-fbi-drinking.html
-
-**Heated Exchange Between F.B.I. Director and Senator During Hearing**\
-`Senator Chris Van Hollen, Democrat of Maryland, questioned the director of the F.B.I., Kash Patel, about reports of excessive drinking and ordering polygraph tests for members of his team in a search for sources of leaks about him.`\
-https://www.nytimes.com/video/us/politics/100000010899941/kash-patel-senator-van-hollen-fight.html
 
