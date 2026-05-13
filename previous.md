@@ -1,3 +1,11 @@
+**Georgia Governor Calls Special Session to Redistrict for 2028 Elections**\
+`Gov. Brian Kemp, a Republican, also asked lawmakers to delay changes to the state’s election system that could cause disarray in the midterms.`\
+https://www.nytimes.com/2026/05/13/us/brian-kemp-georgia-redistricting-elections.html
+
+**Overlooked No More: Jackie Pung, Pioneering Golfer Whose Setback Became Her Story**\
+`She was the first golfer from Hawaii to win a national championship. But she is best remembered for a mishap that cost her the biggest title of her career.`\
+https://www.nytimes.com/2026/05/13/obituaries/jackie-pung-overlooked.html
+
 **Uyghurs Hope Trump Returns to First-Term Toughness at Summit**\
 `In 2020, the president declared China’s crackdown on Uyghurs a genocide. Now, it rarely surfaces.`\
 https://www.nytimes.com/2026/05/13/us/politics/uyghurs-beijing-summit-trump-xi-political-prisoners.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/13/nyregion/lirr-strike-long-island-rail-road.ht
 **Trump dice que no le preocupa el impacto económico de la guerra en Irán para EE. UU.**\
 `Cuando se le preguntó si la situación económica de los estadounidenses lo motivaba para llegar a un trato, el presidente Trump dijo sin rodeos: “Ni siquiera un poco”.`\
 https://www.nytimes.com/es/2026/05/13/espanol/estados-unidos/impacto-economico-guerra-iran-trump.html
-
-**Former California Governor Candidate Arrested in Los Angeles County**\
-`Stephen Cloobeck, a wealthy developer who dropped out of the governor’s race in November, was arrested on suspicion of witness tampering in a felony case involving his fiancée, a former Penthouse model.`\
-https://www.nytimes.com/2026/05/13/us/cloobeck-arrest-california-governor.html
-
-**Beware of Drunk Deer, French Police Say, Announcing Season of Inebriation**\
-`Some wild animals, eating fermented or rotten fruits, “may exhibit completely unpredictable behavior,” the police warned drivers in Saône-et-Loire, a rural region in central-eastern France.`\
-https://www.nytimes.com/2026/05/13/world/europe/france-drunk-deer.html
 

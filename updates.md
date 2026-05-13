@@ -1,3 +1,11 @@
+**Georgia Governor Calls Special Session to Redistrict for 2028 Elections**\
+`Gov. Brian Kemp, a Republican, also asked lawmakers to delay changes to the state’s election system that could cause disarray in the midterms.`\
+https://www.nytimes.com/2026/05/13/us/brian-kemp-georgia-redistricting-elections.html
+
+**Overlooked No More: Jackie Pung, Pioneering Golfer Whose Setback Became Her Story**\
+`She was the first golfer from Hawaii to win a national championship. But she is best remembered for a mishap that cost her the biggest title of her career.`\
+https://www.nytimes.com/2026/05/13/obituaries/jackie-pung-overlooked.html
+
 **Uyghurs Hope Trump Returns to First-Term Toughness at Summit**\
 `In 2020, the president declared China’s crackdown on Uyghurs a genocide. Now, it rarely surfaces.`\
 https://www.nytimes.com/2026/05/13/us/politics/uyghurs-beijing-summit-trump-xi-political-prisoners.html
