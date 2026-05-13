@@ -1,3 +1,19 @@
+**Canada and Alberta Agree to Raise Carbon Prices as Pipeline Tradeoff**\
+`But the agreement is the latest softening of carbon reduction measures introduced by Prime Minister Mark Carney since he took office last year.`\
+https://www.nytimes.com/2026/05/13/world/canada/alberta-carbon-pricing-bc-pipeline-carney.html
+
+**House Approves Year-Round Sale of Higher-Ethanol Gas**\
+`In a rare bipartisan vote, the House passed a bill allowing for the sale of an ethanol blend known as E15, over the objections of Republican hard-liners and some oil refiners.`\
+https://www.nytimes.com/2026/05/13/us/politics/house-approves-ethanol-sale.html
+
+**Giuliani Returns to Broadcasting After Illness: ‘I Feel 100 Percent’**\
+`Rudolph W. Giuliani, the 81-year-old former New York City mayor, was in critical condition with pneumonia in a Florida hospital earlier this month.`\
+https://www.nytimes.com/2026/05/13/nyregion/rudy-giuliani-interview-health.html
+
+**Second Venezuelan Doctor Is Released From Immigration Custody**\
+`At least five foreign-born doctors have been detained, according to a medical organization, raising fears that underserved rural areas reliant on them could be further strained.`\
+https://www.nytimes.com/2026/05/13/us/venezuelan-doctor-released-from-immigration-custody-texas.html
+
 **The China Gambit: From Nixon to Trump**\
 `President Trump’s visit to Beijing comes as relations with China have became more combative.`\
 https://www.nytimes.com/2026/05/13/us/politics/china-visits-nixon-to-trump.html
@@ -57,20 +73,4 @@ https://www.nytimes.com/2026/05/13/briefing/trump-china-meeting-fed-chair.html
 **Miami Residents Sue Over Trump’s Plan to Make His Library a Hotel**\
 `The suit argues that the development on state-donated land would violate the Constitution’s domestic emoluments clause, which prohibits the president from accepting money or gifts from states.`\
 https://www.nytimes.com/2026/05/13/us/politics/miami-lawsuit-trump-library-hotel.html
-
-**U.C.F. Students Boo Commencement Speaker for A.I. Comments**\
-`Students at the University of Central Florida booed a commencement speaker after she said that “artificial intelligence is the next industrial revolution.”`\
-https://www.nytimes.com/video/style/100000010901948/ucf-commencement-speaker-ai-booed.html
-
-**Trump in Beijing**\
-`The president will get the red carpet treatment, but the deep rift between the U.S. and China will be very hard to repair.`\
-https://www.nytimes.com/2026/05/13/world/trump-xi-beijing-iran-missiles.html
-
-**Homeland Security Dept. Escalates Its Dispute With Federal Judge**\
-`In a column, the top lawyer for D.H.S. claimed that the judge, Melissa DuBose, was engaging in an “intimidation campaign” by referring a government lawyer for a misconduct investigation.`\
-https://www.nytimes.com/2026/05/13/us/politics/judge-homeland-security-ice.html
-
-**Is Trump Tuned Out to Americans’ Financial Worries? A Remark Suggests Yes.**\
-`Asked if he was motivated by Americans’ financial woes to make a deal to end the war with Iran, he responded, “Not even a little bit.”`\
-https://www.nytimes.com/2026/05/13/us/politics/trump-iran-war-american-finances-republicans-midterms.html
 
