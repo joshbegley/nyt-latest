@@ -1,3 +1,11 @@
+**My Sister’s Alcoholism Is Putting Her Grandson at Risk. What Should I Do?**\
+`He has discovered her unconscious on more than one occasion.`\
+https://www.nytimes.com/2026/05/13/magazine/sister-alcoholism-grandson-ethics.html
+
+**House Backers Reach Threshold to Force Vote on $1.3 Billion in Ukraine Aid**\
+`Representative Kevin Kiley, independent of California, became the 218th signature on a petition to force action on an aid bill to Ukraine. The vote could come as soon as the end of May.`\
+https://www.nytimes.com/2026/05/13/us/politics/house-ukraine-aid-discharge-petition-kiley.html
+
 **Cannes 2026: How Political Should a Film Festival Be?**\
 `The event’s leaders immediately jumped into the debate over whether festival participants should speak out on issues like Israel and Gaza.`\
 https://www.nytimes.com/2026/05/13/movies/cannes-film-festival-israel-gaza-politics.html

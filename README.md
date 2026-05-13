@@ -1,3 +1,7 @@
+**Trump and Xi: Beneath the Pomp and Niceties, a Geopolitical Rivalry**\
+`The relationship between the two leaders is marked just as much by mistrust and confrontation as it is by niceties.`\
+https://www.nytimes.com/2026/05/13/us/politics/trump-xi-rivalry.html
+
 **My Sister’s Alcoholism Is Putting Her Grandson at Risk. What Should I Do?**\
 `He has discovered her unconscious on more than one occasion.`\
 https://www.nytimes.com/2026/05/13/magazine/sister-alcoholism-grandson-ethics.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/2026/05/13/us/politics/house-ukraine-aid-discharge-petit
 `The event’s leaders immediately jumped into the debate over whether festival participants should speak out on issues like Israel and Gaza.`\
 https://www.nytimes.com/2026/05/13/movies/cannes-film-festival-israel-gaza-politics.html
 
-**President Trump Arrives in China for Summit with Xi Jinping**\
+**President Trump Arrives in China for Summit With Xi Jinping**\
 `President Trump landed in Beijing ahead of a high-stakes, two-day summit with China’s top leader, Xi Jinping. Trade and the war with Iran were expected to be high on the agenda when the two meet.`\
 https://www.nytimes.com/video/world/asia/100000010900882/trump-xi-jinping-china-summit-arrival.html
 
@@ -69,8 +73,4 @@ https://www.nytimes.com/2026/05/13/business/economy/tariff-refunds-trump.html
 **A Physicist Who Thinks in Poetry From the Cosmic Edge**\
 `In her second pop-science book, theoretical cosmologist Chanda Prescod-Weinstein returns to her celestial and cultural roots.`\
 https://www.nytimes.com/2026/05/13/science/physics-prescod-weinstein.html
-
-**French Hantavirus Patient Is Critically Ill as Outbreak Reaches 11 Cases**\
-`The woman, who was a passenger on the MV Hondius, was breathing with the help of an artificial lung, officials in Paris said.`\
-https://www.nytimes.com/2026/05/13/world/europe/hantavirus-outbreak-cases-france.html
 
