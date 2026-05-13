@@ -1,3 +1,11 @@
+**El Reino Unido ha tenido 5 líderes en 10 años. ¿Está a punto de tener otro?**\
+`Los críticos del actual primer ministro, Keir Starmer piden su renuncia para que el Partido Laborista tenga una posibilidad en las elecciones generales antes de 2029.`\
+https://www.nytimes.com/es/2026/05/13/espanol/mundo/reino-unido-keir-starmer-renuncia.html
+
+**Europa prueba una nueva táctica para tratar a Trump: sin pedir disculpas**\
+`Los líderes europeos, atrapados en las secuelas de la guerra de Estados Unidos en Irán, han criticado al presidente públicamente. Cuando él se ha enfadado, ellos no han dado marcha atrás.`\
+https://www.nytimes.com/es/2026/05/13/espanol/mundo/europa-tactica-trump-guerra.html
+
 **Britain Has Had 5 Leaders in a Decade. Is It About to Get Another?**\
 `The promise of Keir Starmer’s Labour Party in 2024 was renewed stability — but that now appears to be under threat.`\
 https://www.nytimes.com/2026/05/13/world/europe/britain-leadership-turnover.html
@@ -62,19 +70,11 @@ https://www.nytimes.com/2026/05/12/world/americas/dominican-republic-deportees-u
 `This creamy cabbage pastina is a take on the simple Italian dish made from tiny pasta stars, chicken broth, egg yolks and Parmesan. It’s fortifying, comforting and tastes like a hug.`\
 https://www.nytimes.com/video/dining/100000010898745/creamy-cabbage-pastina.html
 
-**Democrat Wins Senate Primary in Nebraska, but Plans to Drop Out**\
-`Cindy Burbank has said she intends to exit the general-election race, clearing the field for Dan Osborn, an independent candidate, to face Senator Pete Ricketts, a Republican.`\
+**4 Takeaways From Tuesday’s Primaries in Nebraska and West Virginia**\
+`Democrats in Nebraska appear headed toward the Senate matchup they want, while their primary for a key House district was too close to call.`\
 https://www.nytimes.com/2026/05/12/us/politics/nebraska-election-takeaways-dan-osborn-ricketts-senate.html
 
 **Nebraska Democrats Nominate Ex-Legislator for Governor’s Race**\
 `Democrats face an uphill fight as they seek to unseat Gov. Jim Pillen, who is running for another term in the solidly Republican state.`\
 https://www.nytimes.com/2026/05/12/us/nebraska-governor-primary.html
-
-**Trump’s ‘Golden Dome’ Missile Defense Plan Could Cost $1.2 Trillion**\
-`A report from the Congressional Budget Office said that space-based interceptors, which do not currently exist, would probably consume 60 percent of the total cost.`\
-https://www.nytimes.com/2026/05/12/us/politics/trump-golden-dome.html
-
-**Justice Dept. Officials Consider Settling Trump Suit Against I.R.S.**\
-`One of the settlement terms under review is for the I.R.S. to drop any audits of the president, his family members and businesses.`\
-https://www.nytimes.com/2026/05/12/business/trump-suit-irs.html
 

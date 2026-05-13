@@ -1,3 +1,15 @@
+**El Reino Unido ha tenido 5 líderes en 10 años. ¿Está a punto de tener otro?**\
+`Los críticos del actual primer ministro, Keir Starmer piden su renuncia para que el Partido Laborista tenga una posibilidad en las elecciones generales antes de 2029.`\
+https://www.nytimes.com/es/2026/05/13/espanol/mundo/reino-unido-keir-starmer-renuncia.html
+
+**Europa prueba una nueva táctica para tratar a Trump: sin pedir disculpas**\
+`Los líderes europeos, atrapados en las secuelas de la guerra de Estados Unidos en Irán, han criticado al presidente públicamente. Cuando él se ha enfadado, ellos no han dado marcha atrás.`\
+https://www.nytimes.com/es/2026/05/13/espanol/mundo/europa-tactica-trump-guerra.html
+
+**4 Takeaways From Tuesday’s Primaries in Nebraska and West Virginia**\
+`Democrats in Nebraska appear headed toward the Senate matchup they want, while their primary for a key House district was too close to call.`\
+https://www.nytimes.com/2026/05/12/us/politics/nebraska-election-takeaways-dan-osborn-ricketts-senate.html
+
 **Britain Has Had 5 Leaders in a Decade. Is It About to Get Another?**\
 `The promise of Keir Starmer’s Labour Party in 2024 was renewed stability — but that now appears to be under threat.`\
 https://www.nytimes.com/2026/05/13/world/europe/britain-leadership-turnover.html
