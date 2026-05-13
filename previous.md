@@ -1,3 +1,7 @@
+**Eric Trump, Who Runs the Family Business, Hops Along on the Plane to China**\
+`The president’s middle son is said to be joining his father in a “personal capacity” rather than to make business deals.`\
+https://www.nytimes.com/2026/05/13/us/politics/eric-trump-who-runs-the-family-business-hops-along-on-the-plane-to-china.html
+
 **Chinese Firms Plot Secret Arms Sales to Iran, U.S. Officials Say**\
 `The effort involves plans to send weapons through other countries in an effort to hide the origins of the shipments.`\
 https://www.nytimes.com/2026/05/13/us/politics/china-iran-weapons-trump-xi.html
@@ -14,7 +18,7 @@ https://www.nytimes.com/2026/05/13/us/politics/trump-irs-undocumented-immigrants
 `Joe Ceballos said he did not know he was ineligible to vote and run for office as a green-card holder. The Trump administration has drawn attention to the case.`\
 https://www.nytimes.com/2026/05/13/us/kansas-mayor-ice-detention.html
 
-**Middleman Who Helped Supply Ketamine to Matthew Perry Sentenced to Two Years**\
+**Middleman Who Helped Supply Ketamine to Matthew Perry Is Sentenced to 2 Years**\
 `Erik Fleming, a licensed drug addiction counselor, had admitted to selling 51 vials of ketamine to the actor, including the dose that killed him.`\
 https://www.nytimes.com/2026/05/13/arts/television/matthew-perry-drug-addiction-counselor-sentenced.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/13/business/energy-environment/fervo-geothermal-
 **France Bars 1,700 Cruise Passengers From Leaving Ship After Dozens Get Sick**\
 `Around 50 people so far have symptoms “consistent with an acute gastrointestinal infection” on the Ambassador Cruise Line ship Ambition.`\
 https://www.nytimes.com/2026/05/13/world/europe/cruise-ship-france-illness.html
-
-**Senate Again Rejects Bid to End Iran War, but G.O.P. Opposition Grows**\
-`Senator Lisa Murkowski of Alaska became the latest Republican to switch her vote to halt the conflict and require President Trump to win congressional approval to continue it.`\
-https://www.nytimes.com/2026/05/13/us/politics/iran-war-powers-trump.html
 

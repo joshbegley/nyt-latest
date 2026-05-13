@@ -1,3 +1,11 @@
+**Eric Trump, Who Runs the Family Business, Hops Along on the Plane to China**\
+`The president’s middle son is said to be joining his father in a “personal capacity” rather than to make business deals.`\
+https://www.nytimes.com/2026/05/13/us/politics/eric-trump-who-runs-the-family-business-hops-along-on-the-plane-to-china.html
+
+**Middleman Who Helped Supply Ketamine to Matthew Perry Is Sentenced to 2 Years**\
+`Erik Fleming, a licensed drug addiction counselor, had admitted to selling 51 vials of ketamine to the actor, including the dose that killed him.`\
+https://www.nytimes.com/2026/05/13/arts/television/matthew-perry-drug-addiction-counselor-sentenced.html
+
 **Chinese Firms Plot Secret Arms Sales to Iran, U.S. Officials Say**\
 `The effort involves plans to send weapons through other countries in an effort to hide the origins of the shipments.`\
 https://www.nytimes.com/2026/05/13/us/politics/china-iran-weapons-trump-xi.html
