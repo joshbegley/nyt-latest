@@ -1,3 +1,7 @@
+**Nvidia C.E.O. Hitches Ride With Trump to China After Last-Minute Invite**\
+`Jensen Huang boarded Air Force One in Alaska, joining a delegation of more than a dozen business leaders accompanying President Trump on his trip to Beijing.`\
+https://www.nytimes.com/2026/05/12/us/politics/trump-china-summit-nvidia-jensen-huang.html
+
 **Smooth and Glossy**\
 `Brian Keller’s Wednesday puzzle changes our perspective.`\
 https://www.nytimes.com/2026/05/12/crosswords/daily-puzzle-2026-05-13.html
