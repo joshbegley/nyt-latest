@@ -1,3 +1,7 @@
+**Trump in China**\
+`We preview the Trump-Xi summit.`\
+https://www.nytimes.com/2026/05/13/briefing/trump-in-china.html
+
 **Un cambio en Ucrania**\
 `El avance del ejército ruso se ha desacelerado hasta casi detenerse. Mientras tanto, Vladimir Putin parece estar sometido a una presión cada vez mayor.`\
 https://www.nytimes.com/es/2026/05/13/espanol/mundo/guerra-ucrania-cambios.html
