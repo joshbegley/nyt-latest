@@ -22,8 +22,8 @@ https://www.nytimes.com/2026/05/13/headway/rent-burden-income-affordability.html
 `The balance of power between the United States and China had shifted in Beijing’s favor even before the war in Iran began in February.`\
 https://www.nytimes.com/2026/05/13/us/politics/trump-iran-war-china.html
 
-**Top Kennedy Spokesman Resigns in Protest Over New Vaping Policy**\
-`In a letter to President Trump, the spokesman, Rich Danker, said moves to allow the sale of flavored e-cigarettes would enhance their appeal to children.`\
+**Top Kennedy Spokesman Resigns in Protest of Move to Allow Flavored Vapes**\
+`In a letter to President Trump, the spokesman, Rich Danker, said allowing the sale of flavored e-cigarettes would enhance their appeal to children.`\
 https://www.nytimes.com/2026/05/13/us/politics/rich-danker-resigns-vaping.html
 
 **Why the Bombing of Iran Tied the U.S. More Closely to China**\
