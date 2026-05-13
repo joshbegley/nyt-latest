@@ -1,3 +1,31 @@
+**The Uncomfortable Parallels Between Starmer and Biden**\
+`In Britain, some argue that Prime Minister Keir Starmer, by rejecting calls to step aside, risks repeating the mistakes of President Joseph R. Biden Jr.`\
+https://www.nytimes.com/2026/05/13/world/europe/starmer-labour-uk-biden-debate-resign.html
+
+**Two Superpowers Across the Table**\
+`Here’s what to expect from the summit between President Trump and China’s top leader, Xi Jinping.`\
+https://www.nytimes.com/2026/05/13/podcasts/the-daily/two-superpowers-across-the-table.html
+
+**U.S. Intelligence Undercuts Trump’s War Claims, and the Cost of ‘Alligator Alcatraz’**\
+`Plus, the controversy engulfing Eurovision.`\
+https://www.nytimes.com/2026/05/13/podcasts/the-headlines/iran-missiles-alligator-alcatraz.html
+
+**Connections Companion No. 1,068**\
+`Scroll down for hints and conversation about the puzzle for Thursday, May 14, 2026.`\
+https://www.nytimes.com/2026/05/13/crosswords/connections-companion-1068.html
+
+**Strands Sidekick No. 802**\
+`Scroll down for hints and conversation about the puzzle for Thursday, May 14, 2026.`\
+https://www.nytimes.com/2026/05/13/crosswords/strands-sidekick-802.html
+
+**Wordle Review No. 1,790**\
+`Scroll down for hints and conversation about the puzzle for Thursday, May 14, 2026.`\
+https://www.nytimes.com/2026/05/13/crosswords/wordle-review-1790.html
+
+**This Is Getting Dangerous**\
+`The ruling in Louisiana v. Callais might drive America’s politics to an even more precarious place of partisan tension and ideological Balkanization.`\
+https://www.nytimes.com/2026/05/13/opinion/callais-voting-rights-roberts-court.html
+
 **Silicon Valley’s A.I. Lobbying Reaches a Fever Pitch**\
 `OpenAI and Anthropic are opening offices in Washington, hiring lobbyists and spending more than ever to win over federal lawmakers.`\
 https://www.nytimes.com/2026/05/13/technology/ai-lobbying-washington-openai-anthropic.html
