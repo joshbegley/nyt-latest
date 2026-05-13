@@ -1,3 +1,11 @@
+**My Sister’s Alcoholism Is Putting Her Grandson at Risk. What Should I Do?**\
+`He has discovered her unconscious on more than one occasion.`\
+https://www.nytimes.com/2026/05/13/magazine/sister-alcoholism-grandson-ethics.html
+
+**House Backers Reach Threshold to Force Vote on $1.3 Billion in Ukraine Aid**\
+`Representative Kevin Kiley, independent of California, became the 218th signature on a petition to force action on an aid bill to Ukraine. The vote could come as soon as the end of May.`\
+https://www.nytimes.com/2026/05/13/us/politics/house-ukraine-aid-discharge-petition-kiley.html
+
 **Cannes 2026: How Political Should a Film Festival Be?**\
 `The event’s leaders immediately jumped into the debate over whether festival participants should speak out on issues like Israel and Gaza.`\
 https://www.nytimes.com/2026/05/13/movies/cannes-film-festival-israel-gaza-politics.html
@@ -65,12 +73,4 @@ https://www.nytimes.com/2026/05/13/science/physics-prescod-weinstein.html
 **French Hantavirus Patient Is Critically Ill as Outbreak Reaches 11 Cases**\
 `The woman, who was a passenger on the MV Hondius, was breathing with the help of an artificial lung, officials in Paris said.`\
 https://www.nytimes.com/2026/05/13/world/europe/hantavirus-outbreak-cases-france.html
-
-**Unfortunately, We Have to Take Spencer Pratt Seriously as a Politician**\
-`Reality stars and influencers in government are here to stay.`\
-https://www.nytimes.com/2026/05/13/opinion/spencer-pratt-mayor-los-angeles.html
-
-**As a Sober Person, How Should I Serve Alcohol to Friends at Dinner Parties?**\
-`A reader struggles with how to reconcile his newfound sobriety with his desire to be a gracious host when inviting friends into his home.`\
-https://www.nytimes.com/2026/05/13/style/sober-nonalcoholic-dinner-parties.html
 
