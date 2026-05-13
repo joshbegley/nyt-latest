@@ -1,3 +1,7 @@
+**Trump’s China Policy Has Weakened America**\
+`In Beijing this week, Mr. Trump should not hand China more victories.`\
+https://www.nytimes.com/2026/05/13/opinion/trump-arrives-china-xi-beijing.html
+
 **What the New Head of the Federal Reserve Will Inherit**\
 `The incoming chair of the Fed will need to navigate a delicate economic moment, a president who wants to lower rates and an increasingly divisive leadership committee.`\
 https://www.nytimes.com/interactive/2026/05/13/business/economy/kevin-warsh-fed-chair-interest-rates.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/13/opinion/letters/graham-platner-susan-collins-
 **El arte de cortar jamón ibérico**\
 `Los españoles hacen fila en bodas, torneos de tenis y galas para comer jamón servido por Ernesto Soriano, uno de los mejores cortadores de jamón ibérico del mundo.`\
 https://www.nytimes.com/es/2026/05/13/espanol/mundo/jamon-iberico-corte.html
-
-**An Uncertain World Awaits the Reopening of the Strait of Hormuz**\
-`Fatih Birol of the International Energy Agency, who orchestrated a multinational release of oil reserves, detailed the risks facing the economy now and beyond.`\
-https://www.nytimes.com/2026/05/13/business/iran-war-strait-hormuz-fatih-birol.html
 
