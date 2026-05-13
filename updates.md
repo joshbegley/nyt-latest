@@ -1,3 +1,7 @@
+**President Trump Arrives in China for Summit with Xi Jinping**\
+`President Trump landed in Beijing ahead of a high-stakes, two-day summit with China’s top leader, Xi Jinping. Trade and the war with Iran were expected to be high on the agenda when the two meet.`\
+https://www.nytimes.com/video/world/asia/100000010900882/trump-xi-jinping-china-summit-arrival.html
+
 **Musk, Rubio, Hegseth: Who is Traveling With Trump to China?**\
 `President Trump arrived in Beijing, ahead of his meeting with President Xi Jinping of China. Among those accompanying Mr. Trump were top administration officials and business leaders.`\
 https://www.nytimes.com/2026/05/13/us/politics/trump-china-who-musk-rubio-huang.html

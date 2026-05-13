@@ -1,3 +1,7 @@
+**President Trump Arrives in China for Summit with Xi Jinping**\
+`President Trump landed in Beijing ahead of a high-stakes, two-day summit with China’s top leader, Xi Jinping. Trade and the war with Iran were expected to be high on the agenda when the two meet.`\
+https://www.nytimes.com/video/world/asia/100000010900882/trump-xi-jinping-china-summit-arrival.html
+
 **Musk, Rubio, Hegseth: Who is Traveling With Trump to China?**\
 `President Trump arrived in Beijing, ahead of his meeting with President Xi Jinping of China. Among those accompanying Mr. Trump were top administration officials and business leaders.`\
 https://www.nytimes.com/2026/05/13/us/politics/trump-china-who-musk-rubio-huang.html
@@ -69,12 +73,4 @@ https://www.nytimes.com/2026/05/13/style/sober-nonalcoholic-dinner-parties.html
 **With Trump in China, Mideast War Simmers Without End in Sight**\
 `Before leaving Washington on Tuesday, the president reiterated threats to decimate Iran if it doesn’t agree to a deal to resolve the conflict.`\
 https://www.nytimes.com/2026/05/13/world/middleeast/trump-china-iran-war.html
-
-**A Tech Tycoon’s Prosecution Raises Fears of Authoritarian Overreach**\
-`Nadiem Makarim founded a popular app before joining Indonesia’s government. Now he could face 18 years in prison, targeted in what critics call a dubious anticorruption campaign.`\
-https://www.nytimes.com/2026/05/13/world/asia/indonesia-nadiem-makarim-gojek.html
-
-**Why a Warsh-Led Fed May Keep Interest Rates Steady**\
-`Kevin Warsh, President Trump’s pick to run the Federal Reserve, would face a growing inflation challenge if he’s confirmed.`\
-https://www.nytimes.com/2026/05/13/business/dealbook/warsh-interest-rates-trump.html
 
