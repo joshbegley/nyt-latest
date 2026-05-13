@@ -1,3 +1,11 @@
+**Murdaugh Murder Conviction Overturned by South Carolina’s Top Court**\
+`The decision, in which judges cited jury interference by a court clerk, upends one of America’s highest-profile homicide cases.`\
+https://www.nytimes.com/2026/05/13/us/murdaugh-murder-conviction-overturned.html
+
+**Chaos in Philippines Senate as Duterte Ally Faces Arrest**\
+`The sound of gunshots, apparently from inside the chamber, were broadcast on live television as a senator in the Philippines, who was an ally of the former leader Rodrigo Duterte, faced arrest.`\
+https://www.nytimes.com/2026/05/13/world/asia/duterte-icc-bato-delarosa-philippines-senate-shooting.html
+
 **Wholesale Prices Jumped in April, in Latest Sign of War’s Economic Ripples**\
 `The Producer Price Index rose in April at its fastest pace in four years, government data showed, a day after consumer prices showed inflation was surging.`\
 https://www.nytimes.com/2026/05/13/business/ppi-inflation-report-wholesale-prices.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/13/crosswords/connections-companion-1068.html
 **Strands Sidekick No. 802**\
 `Scroll down for hints and conversation about the puzzle for Thursday, May 14, 2026.`\
 https://www.nytimes.com/2026/05/13/crosswords/strands-sidekick-802.html
-
-**Wordle Review No. 1,790**\
-`Scroll down for hints and conversation about the puzzle for Thursday, May 14, 2026.`\
-https://www.nytimes.com/2026/05/13/crosswords/wordle-review-1790.html
-
-**Silicon Valley’s A.I. Lobbying Reaches a Fever Pitch**\
-`OpenAI and Anthropic are opening offices in Washington, hiring lobbyists and spending more than ever to win over federal lawmakers.`\
-https://www.nytimes.com/2026/05/13/technology/ai-lobbying-washington-openai-anthropic.html
 
