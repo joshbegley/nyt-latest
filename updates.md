@@ -1,3 +1,19 @@
+**Perfect Timing, Big Payouts: Insider Trading Red Flags Emerge on Polymarket**\
+`Dozens of long-shot bets on Polymarket, from the war with Iran to the cryptocurrency market, have defied the odds, according to a New York Times examination.`\
+https://www.nytimes.com/2026/05/13/technology/polymarket-insider-trading.html
+
+**My Son Never Turned 7. Because of Choices in Washington, Others Won’t Either.**\
+`More children will die because the Trump administration is cutting pediatric cancer research.`\
+https://www.nytimes.com/2026/05/13/opinion/pediatric-cancer-cuts-trump.html
+
+**Fuel Prices Drive Sales of E.V.s, Just Not in the U.S.**\
+`Electric vehicle sales have soared in Europe and much of the rest of the world, but Americans are still hesitant.`\
+https://www.nytimes.com/2026/05/13/business/iran-gas-prices-electric-vehicles.html
+
+**Read the Decision**\
+`South Carolina’s top court overturned the murder convictions of Alex Murdaugh.`\
+https://www.nytimes.com/interactive/2026/05/13/us/op-28329-the-state-v-richard-alexander-murdaughpdf.html
+
 **Today, In Short**\
 `Scientology speedruns. Hacky sacks. And cursive clubs.`\
 https://www.nytimes.com/2026/05/13/briefing/today-in-short.html

@@ -1,3 +1,15 @@
+**Perfect Timing, Big Payouts: Insider Trading Red Flags Emerge on Polymarket**\
+`Dozens of long-shot bets on Polymarket, from the war with Iran to the cryptocurrency market, have defied the odds, according to a New York Times examination.`\
+https://www.nytimes.com/2026/05/13/technology/polymarket-insider-trading.html
+
+**My Son Never Turned 7. Because of Choices in Washington, Others Won’t Either.**\
+`More children will die because the Trump administration is cutting pediatric cancer research.`\
+https://www.nytimes.com/2026/05/13/opinion/pediatric-cancer-cuts-trump.html
+
+**Fuel Prices Drive Sales of E.V.s, Just Not in the U.S.**\
+`Electric vehicle sales have soared in Europe and much of the rest of the world, but Americans are still hesitant.`\
+https://www.nytimes.com/2026/05/13/business/iran-gas-prices-electric-vehicles.html
+
 **Today, In Short**\
 `Scientology speedruns. Hacky sacks. And cursive clubs.`\
 https://www.nytimes.com/2026/05/13/briefing/today-in-short.html
@@ -6,7 +18,7 @@ https://www.nytimes.com/2026/05/13/briefing/today-in-short.html
 `President Trump was greeted by China’s vice president, Han Zheng, and other officials, as well as a military honor guard.`\
 https://www.nytimes.com/2026/05/13/us/politics/trump-arrival-xi-beijing-summit.html
 
-**Read the Document**\
+**Read the Decision**\
 `South Carolina’s top court overturned the murder convictions of Alex Murdaugh.`\
 https://www.nytimes.com/interactive/2026/05/13/us/op-28329-the-state-v-richard-alexander-murdaughpdf.html
 
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/13/world/europe/uk-kings-speech-starmer-charles.
 **Las Vegas Arts District: An Antidote to the Glitz**\
 `The walkable, creative enclave also has a rapidly growing residential footprint.`\
 https://www.nytimes.com/2026/05/13/realestate/las-vegas-arts-district-an-antidote-to-the-glitz.html
-
-**Trump in China**\
-`We preview the Trump-Xi summit.`\
-https://www.nytimes.com/2026/05/13/briefing/trump-in-china.html
-
-**Un cambio en Ucrania**\
-`El avance del ejército ruso se ha desacelerado hasta casi detenerse. Mientras tanto, Vladimir Putin parece estar sometido a una presión cada vez mayor.`\
-https://www.nytimes.com/es/2026/05/13/espanol/mundo/guerra-ucrania-cambios.html
-
-**The Uncomfortable Parallels Between Starmer and Biden**\
-`In Britain, some argue that Prime Minister Keir Starmer, by rejecting calls to step aside, risks repeating the mistakes of President Joseph R. Biden Jr.`\
-https://www.nytimes.com/2026/05/13/world/europe/starmer-labour-uk-biden-debate-resign.html
 
