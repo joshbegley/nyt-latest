@@ -1,3 +1,31 @@
+**Trump in Beijing**\
+`The president will get the red carpet treatment, but the deep rift between the U.S. and China will be very hard to repair.`\
+https://www.nytimes.com/2026/05/13/world/trump-xi-beijing-iran-missiles.html
+
+**Homeland Security Dept. Escalates Its Dispute With Federal Judge**\
+`In a column, the top lawyer for D.H.S. claimed that the judge, Melissa DuBose, was engaging in an “intimidation campaign” by referring a government lawyer for a misconduct investigation.`\
+https://www.nytimes.com/2026/05/13/us/politics/judge-homeland-security-ice.html
+
+**A Revealing Trump Remark Points to Republicans’ Midterm Challenges**\
+`“I don’t think about Americans’ financial situation,” he said of his calculations on the Iran war.`\
+https://www.nytimes.com/2026/05/13/us/politics/trump-iran-war-american-finances-republicans-midterms.html
+
+**Cynthia Shange, Who Defied Apartheid at a Beauty Pageant, Dies at 76**\
+`She was the first Black South African to enter the Miss World contest, placing in the top five in 1972.`\
+https://www.nytimes.com/2026/05/13/world/africa/cynthia-shange-dead.html
+
+**Chaos Erupts Inside Philippine Senate After Apparent Gunshots**\
+`Chaos erupted inside the Philippine Senate building on Wednesday after the sound of gunshots were heard. The scene unfolded after Senator Ronald dela Rosa, a top ally of former president Rodrigo Duterte, said the police were coming to arrest him.`\
+https://www.nytimes.com/video/world/asia/100000010901645/philippines-senate-shooting-delarosa.html
+
+**Utah Children’s Book Author Who Poisoned Husband Will Spend Life in Prison**\
+`Kouri Richins, 36, who wrote a children’s book about grief after murdering Eric Richins, will serve without the option of parole.`\
+https://www.nytimes.com/2026/05/13/us/kouri-richins-sentencing.html
+
+**Koji Suzuki, Sometimes Called the Stephen King of Japan, Dies at 68**\
+`His “Ring” trilogy helped create a genre known as J-horror and spawned a multimedia franchise, including one of the highest-grossing horror films ever made.`\
+https://www.nytimes.com/2026/05/13/books/koji-suzuki-dead.html
+
 **Georgia Governor Calls Special Session to Redistrict for 2028 Elections**\
 `Gov. Brian Kemp, a Republican, also asked lawmakers to delay changes to the state’s election system that could cause disarray in the midterms.`\
 https://www.nytimes.com/2026/05/13/us/brian-kemp-georgia-redistricting-elections.html
@@ -10,8 +38,8 @@ https://www.nytimes.com/2026/05/13/obituaries/jackie-pung-overlooked.html
 `In 2020, the president declared China’s crackdown on Uyghurs a genocide. Now, it rarely surfaces.`\
 https://www.nytimes.com/2026/05/13/us/politics/uyghurs-beijing-summit-trump-xi-political-prisoners.html
 
-**Netanyahu Made a ‘Secret Visit’ to U.A.E. During Iran War**\
-`The visit to meet with the Emirati leader, Sheikh Mohamed bin Zayed, was another sign of how Israel and the Emirates have drawn closer together.`\
+**Israel Says Netanyahu Made a Secret Trip to U.A.E., Which Says He Didn’t**\
+`The claim and the denial signaled both how close Israel and the United Arab Emirates have become, and how delicate that relationship remains.`\
 https://www.nytimes.com/2026/05/13/world/middleeast/netanyahu-uae-iran-war.html
 
 **More U.S. Spy Planes and Drones Are Surveilling Cuba**\
@@ -49,32 +77,4 @@ https://www.nytimes.com/2026/05/13/us/hantavirus-quarantine-psychology-omaha.htm
 **República Dominicana acepta recibir a migrantes de terceros países deportados por EE. UU.**\
 `La nación caribeña se une a otros países latinoamericanos, como El Salvador, Costa Rica y Panamá, que han alcanzado este tipo de acuerdos.`\
 https://www.nytimes.com/es/2026/05/13/espanol/america-latina/republica-dominicana-recibe-deportados-eeuu.html
-
-**Nigel Farage, Leader of Reform U.K., Faces Investigation for £5 Million Gift**\
-`The Conservative Party referred the case against Mr. Farage, the leader of a right-wing populist party in Britain, to a parliamentary watchdog.`\
-https://www.nytimes.com/2026/05/13/world/europe/nigel-farage-reform-uk-investigation-5-million-gift.html
-
-**What to Watch at the High-Stakes U.S.-China Summit**\
-`Here’s what to know about the biggest sources of tension in U.S.-China relations before the first summit in Beijing in nine years between the nations’ leaders.`\
-https://www.nytimes.com/2026/05/13/business/economy/china-trump-xi-beijing-summit.html
-
-**Trump’s China Policy Has Weakened America**\
-`In Beijing this week, Mr. Trump should not hand China more victories.`\
-https://www.nytimes.com/2026/05/13/opinion/trump-arrives-china-xi-beijing.html
-
-**What the New Head of the Federal Reserve Will Inherit**\
-`The incoming chair of the Fed will need to navigate a delicate economic moment, a president who wants to lower rates and an increasingly divisive leadership committee.`\
-https://www.nytimes.com/interactive/2026/05/13/business/economy/kevin-warsh-fed-chair-interest-rates.html
-
-**Senate Confirms Kevin Warsh as Fed Chair**\
-`President Trump’s pick to replace Jerome H. Powell takes the helm at a highly uncertain moment for the economy and with heightened concern about the Federal Reserve’s ability to operate independently.`\
-https://www.nytimes.com/2026/05/13/us/politics/kevin-warsh-fed-chair-confirmed.html
-
-**A Long Island Rail Road Strike May Be Near. Here’s What to Know.**\
-`America’s busiest passenger rail service will shut down on Saturday if workers and transit officials cannot agree on a new contract.`\
-https://www.nytimes.com/2026/05/13/nyregion/lirr-strike-long-island-rail-road.html
-
-**Trump dice que no le preocupa el impacto económico de la guerra en Irán para EE. UU.**\
-`Cuando se le preguntó si la situación económica de los estadounidenses lo motivaba para llegar a un trato, el presidente Trump dijo sin rodeos: “Ni siquiera un poco”.`\
-https://www.nytimes.com/es/2026/05/13/espanol/estados-unidos/impacto-economico-guerra-iran-trump.html
 
