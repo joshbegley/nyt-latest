@@ -1,3 +1,7 @@
+**Why a Warsh-Led Fed May Keep Interest Rates Steady**\
+`Kevin Warsh, President Trump’s pick to run the Federal Reserve, would face a growing inflation challenge if he’s confirmed.`\
+https://www.nytimes.com/2026/05/13/business/dealbook/warsh-interest-rates-trump.html
+
 **Why a Warsh-Led Fed May Keeping Interest Rates Steady**\
 `Kevin Warsh, President Trump’s pick to run the Federal Reserve, would face a growing inflation challenge if he’s confirmed.`\
 https://www.nytimes.com/2026/05/13/business/dealbook/warsh-interest-rates-trump.html
