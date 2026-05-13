@@ -1,3 +1,11 @@
+**Musk, Rubio, Hegseth: Who is Traveling With Trump to China?**\
+`President Trump arrived in Beijing, ahead of his meeting with President Xi Jinping of China. Among those accompanying Mr. Trump were top administration officials and business leaders.`\
+https://www.nytimes.com/2026/05/13/us/politics/trump-china-who-musk-rubio-huang.html
+
+**N.Y.U. Students Object to Speaker Who Calls Their Generation ‘Coddled’**\
+`Jonathan Haidt, a professor, says that colleges shield students from challenging ideas. But student leaders said he does not represent their values.`\
+https://www.nytimes.com/2026/05/13/us/politics/nyu-graduation-speaker-free-speech-jonathan-haidt.html
+
 **Perfect Timing, Big Payouts: Insider Trading Red Flags Emerge on Polymarket**\
 `Dozens of long-shot bets on Polymarket, from the war with Iran to the cryptocurrency market, have defied the odds, according to a New York Times examination.`\
 https://www.nytimes.com/2026/05/13/technology/polymarket-insider-trading.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/13/world/asia/indonesia-nadiem-makarim-gojek.htm
 **Why a Warsh-Led Fed May Keep Interest Rates Steady**\
 `Kevin Warsh, President Trump’s pick to run the Federal Reserve, would face a growing inflation challenge if he’s confirmed.`\
 https://www.nytimes.com/2026/05/13/business/dealbook/warsh-interest-rates-trump.html
-
-**King’s Speech Comes at an Awkward Time for Starmer**\
-`King Charles III read out Keir Starmer’s legislative agenda in the traditional manner, even as the British prime minister’s leadership remained under pressure.`\
-https://www.nytimes.com/2026/05/13/world/europe/uk-kings-speech-starmer-charles.html
-
-**Las Vegas Arts District: An Antidote to the Glitz**\
-`The walkable, creative enclave also has a rapidly growing residential footprint.`\
-https://www.nytimes.com/2026/05/13/realestate/las-vegas-arts-district-an-antidote-to-the-glitz.html
 

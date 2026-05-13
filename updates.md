@@ -1,3 +1,11 @@
+**Musk, Rubio, Hegseth: Who is Traveling With Trump to China?**\
+`President Trump arrived in Beijing, ahead of his meeting with President Xi Jinping of China. Among those accompanying Mr. Trump were top administration officials and business leaders.`\
+https://www.nytimes.com/2026/05/13/us/politics/trump-china-who-musk-rubio-huang.html
+
+**N.Y.U. Students Object to Speaker Who Calls Their Generation ‘Coddled’**\
+`Jonathan Haidt, a professor, says that colleges shield students from challenging ideas. But student leaders said he does not represent their values.`\
+https://www.nytimes.com/2026/05/13/us/politics/nyu-graduation-speaker-free-speech-jonathan-haidt.html
+
 **Perfect Timing, Big Payouts: Insider Trading Red Flags Emerge on Polymarket**\
 `Dozens of long-shot bets on Polymarket, from the war with Iran to the cryptocurrency market, have defied the odds, according to a New York Times examination.`\
 https://www.nytimes.com/2026/05/13/technology/polymarket-insider-trading.html
