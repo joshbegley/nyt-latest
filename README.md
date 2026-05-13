@@ -1,3 +1,7 @@
+**Word of the Day: implicit**\
+`This word has appeared in 245 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/05/13/learning/word-of-the-day-implicit.html
+
 **México y EE. UU. rechazan que la CIA tuviera un papel letal en un operativo en México**\
 `Los desmentidos se produjeron después de un reportaje de CNN que afirmó que la CIA participó en el asesinato del integrante de un cártel a principios de año.`\
 https://www.nytimes.com/es/2026/05/13/espanol/america-latina/mexico-cia-carteles.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/12/world/americas/mexico-cia-cartels.html
 **As Becerra Rises in Polls, He Draws Fire for Trying to Direct Interview**\
 `“This is not a ‘gotcha’ piece, right?” the leading Democratic candidate for California governor asked a television reporter before an interview.`\
 https://www.nytimes.com/2026/05/12/us/becerra-viral-tv-interview-california-governor.html
-
-**Dominican Republic Agrees to Take Third-Country Migrants Deported by U.S.**\
-`The agreement, which reverses President Luis Abinader’s previous stance, is part of President Trump’s efforts to find governments willing to accept deportees.`\
-https://www.nytimes.com/2026/05/12/world/americas/dominican-republic-deportees-us.html
 
