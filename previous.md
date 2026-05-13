@@ -1,3 +1,31 @@
+**Senate Again Rejects Bid to End Iran War, but G.O.P. Opposition Grows**\
+`Senator Lisa Murkowski of Alaska became the latest Republican to switch her vote to halt the conflict and require President Trump to win congressional approval to continue it.`\
+https://www.nytimes.com/2026/05/13/us/politics/iran-war-powers-trump.html
+
+**El conferenciante y rey filósofo: así es Xi Jinping a puerta cerrada**\
+`Los encuentros con otros líderes mundiales revelan una faceta del dirigente chino que el público rara vez ve, y ofrecen pistas sobre cómo abordará al presidente Trump en Pekín.`\
+https://www.nytimes.com/es/2026/05/13/espanol/mundo/xi-jinping-china.html
+
+**Shio Pan (Salt Bread)**\
+`Japanese salt bread, also known as sogeum-ppang in Korean, are soft, buttery rolls like no other. Surrounding the light, fluffy interiors are a thin crackling crust on top and a crisp golden bottom.`\
+https://www.nytimes.com/video/dining/100000010898762/shio-pan-salt-bread.html
+
+**Chocolate Chip Cookies**\
+`This may become your new favorite chocolate chip cookie recipe. Don’t skimp on good chocolate, and the sea salt is not optional — it’s the beacon at the top of this gorgeous treat.`\
+https://www.nytimes.com/video/dining/100000010898753/chocolate-chip-cookies.html
+
+**Red Lentil Soup**\
+`This is a lentil soup that defies expectations of what lentil soup can be. Based on a Turkish lentil soup, mercimek corbasi, the dish is light, spicy and bold, and takes less than an hour to make.`\
+https://www.nytimes.com/video/dining/100000010898755/red-lentil-soup.html
+
+**Police in France Warn Public To Stay Away From Drunk Deer**\
+`The police in rural France issued a warning to drivers to be on the lookout for deer “drunk” on fermented fruit, which can cause them to behave unpredictably.`\
+https://www.nytimes.com/video/embedded/world/europe/100000010901130/drunk-deer-france.html
+
+**Cream Cheese Ramen**\
+`There is such a thing as a noodle emergency — when hunger strikes at an inconvenient hour and the only remedy is a bowl of noodles. For this quick ramen, ditch the soup powder, keep the noodle brick and use cream cheese as the base of a luscious sauce that enrobes each strand.`\
+https://www.nytimes.com/video/dining/100000010898750/cream-cheese-ramen.html
+
 **What China’s Choice of Airport Greeter Says About Trump**\
 `Beijing welcomed President Trump with a high-ranking vice president, but the choice of a ceremonial leader suggests China is trading symbolism for substance.`\
 https://www.nytimes.com/2026/05/13/world/asia/trump-china-arrival-airport-presidents.html
@@ -45,32 +73,4 @@ https://www.nytimes.com/2026/05/13/opinion/pediatric-cancer-cuts-trump.html
 **Fuel Prices Drive Sales of E.V.s, Just Not in the U.S.**\
 `Electric vehicle sales have soared in Europe and much of the rest of the world, but Americans are still hesitant.`\
 https://www.nytimes.com/2026/05/13/business/iran-gas-prices-electric-vehicles.html
-
-**Today, In Short**\
-`Scientology speedruns. Hacky sacks. And cursive clubs.`\
-https://www.nytimes.com/2026/05/13/briefing/today-in-short.html
-
-**Trump Arrives in Beijing to Begin High-Stakes Summit With Xi**\
-`President Trump was greeted by China’s vice president, Han Zheng, and other officials, as well as a military honor guard.`\
-https://www.nytimes.com/2026/05/13/us/politics/trump-arrival-xi-beijing-summit.html
-
-**Read the Decision**\
-`South Carolina’s top court overturned the murder convictions of Alex Murdaugh.`\
-https://www.nytimes.com/interactive/2026/05/13/us/op-28329-the-state-v-richard-alexander-murdaughpdf.html
-
-**With a Friend in Trump, the Tobacco Industry Secures a Lucrative Win**\
-`In a dispute over vapes, the president sided with tobacco companies that filled his groups’ coffers over his own F.D.A. commissioner, who resigned in protest.`\
-https://www.nytimes.com/2026/05/13/us/trump-vapes-cigarettes-big-tobacco.html
-
-**Murdaugh Murder Convictions Overturned by South Carolina’s Top Court**\
-`The decision, in which judges cited jury interference by a court clerk, upends one of America’s highest-profile homicide cases.`\
-https://www.nytimes.com/2026/05/13/us/murdaugh-murder-conviction-overturned.html
-
-**Chaos in Philippines Senate as Duterte Ally Faces Arrest**\
-`The sound of gunshots, apparently from inside the chamber, was broadcast on live television as a senator in the Philippines, who was an ally of the former leader Rodrigo Duterte, faced arrest.`\
-https://www.nytimes.com/2026/05/13/world/asia/duterte-icc-bato-delarosa-philippines-senate-shooting.html
-
-**Wholesale Prices Jumped in April, in Latest Sign of War’s Economic Ripples**\
-`The Producer Price Index rose in April at its fastest pace in four years, government data showed, a day after consumer prices showed inflation was surging.`\
-https://www.nytimes.com/2026/05/13/business/ppi-inflation-report-wholesale-prices.html
 
