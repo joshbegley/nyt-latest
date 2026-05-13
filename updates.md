@@ -1,3 +1,7 @@
+**Trump dice que no le preocupa el impacto económico de la guerra en Irán para EE. UU.**\
+`Cuando se le preguntó si la situación económica de los estadounidenses lo motivaba para llegar a un trato, el presidente Trump dijo sin rodeos: “Ni siquiera un poco”.`\
+https://www.nytimes.com/es/2026/05/13/espanol/estados-unidos/impacto-economico-guerra-iran-trump.html
+
 **Former California Governor Candidate Arrested in Connection to Fiancée’s Burglary Case**\
 `Stephen Cloobeck, a wealthy developer who dropped out of the governor’s race in November, was arrested on suspicion of witness tampering in a felony case involving his fiancée, a former Penthouse model.`\
 https://www.nytimes.com/2026/05/13/us/cloobeck-arrest-california-governor.html
