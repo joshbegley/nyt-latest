@@ -1,3 +1,7 @@
+**Un cambio en Ucrania**\
+`El avance del ejército ruso se ha desacelerado hasta casi detenerse. Mientras tanto, Vladimir Putin parece estar sometido a una presión cada vez mayor.`\
+https://www.nytimes.com/es/2026/05/13/espanol/mundo/guerra-ucrania-cambios.html
+
 **The Uncomfortable Parallels Between Starmer and Biden**\
 `In Britain, some argue that Prime Minister Keir Starmer, by rejecting calls to step aside, risks repeating the mistakes of President Joseph R. Biden Jr.`\
 https://www.nytimes.com/2026/05/13/world/europe/starmer-labour-uk-biden-debate-resign.html
@@ -58,13 +62,13 @@ https://www.nytimes.com/2026/05/13/world/europe/russia-ukraine-truce-trump.html
 `The comedian is contributing some 20,000 documents and photos covering his career, including his time in the Army and the lyrics for “Springtime for Hitler.”`\
 https://www.nytimes.com/2026/05/13/arts/television/mel-brooks-national-comedy-center.html
 
-**Notable Researchers Join $4 Billion Effort to Build Self-Improving A.I.**\
-`Recursive Superintelligence, founded by former Google, Meta and OpenAI researchers, is part of a growing effort to automate the creation of artificial intelligence.`\
-https://www.nytimes.com/2026/05/13/technology/notable-researchers-join-4-billion-effort-to-build-self-improving-ai.html
-
 **Mixed Feelings in Beijing Ahead of Trump-Xi Summit**\
 `People in Beijing shared their views on the relationship between the United States and China as the city prepared for President Trump’s state visit.`\
 https://www.nytimes.com/video/world/asia/100000010900611/trump-china-beijing-visit.html
+
+**Notable Researchers Join $4 Billion Effort to Build Self-Improving A.I.**\
+`Recursive Superintelligence, founded by former Google, Meta and OpenAI researchers, is part of a growing effort to automate the creation of artificial intelligence.`\
+https://www.nytimes.com/2026/05/13/technology/notable-researchers-join-4-billion-effort-to-build-self-improving-ai.html
 
 **This Is Getting Dangerous**\
 `The ruling in Louisiana v. Callais might drive America’s politics to an even more precarious place of partisan tension and ideological Balkanization.`\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/13/opinion/callais-voting-rights-roberts-court.h
 **Would You Trust Pete Hegseth With $1.5 Trillion of Your Money?**\
 `“You name it, we’re investing in it” does not inspire confidence.`\
 https://www.nytimes.com/2026/05/13/opinion/hegseth-pentagon-military-budget.html
-
-**The Autocracy Index: Trump’s Disregard for Congress Has Reached a New Level**\
-`Measuring America’s democratic erosion.`\
-https://www.nytimes.com/interactive/2026/05/13/opinion/iran-war-democracy-america.html
 
