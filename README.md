@@ -1,3 +1,7 @@
+**Black Bear Fatally Mauls Uranium Contractor in Northern Canada**\
+`The attack, at a remote uranium mining site in northern Saskatchewan, was only the fourth fatal black bear encounter in the province’s recorded history, officials said.`\
+https://www.nytimes.com/2026/05/13/world/canada/canada-bear-attack-uranium-mining.html
+
 **Read the document**\
 `A memorandum of agreement between the Transportation Department and Great American Road Trip Inc.`\
 https://www.nytimes.com/interactive/2026/05/13/us/GART-memorandum.html
@@ -69,8 +73,4 @@ https://www.nytimes.com/2026/05/13/us/brian-kemp-georgia-redistricting-elections
 **Overlooked No More: Jackie Pung, Pioneering Golfer Whose Setback Became Her Story**\
 `She was the first golfer from Hawaii to win a national championship. But she is best remembered for a mishap that cost her the biggest title of her career.`\
 https://www.nytimes.com/2026/05/13/obituaries/jackie-pung-overlooked.html
-
-**Uyghurs Hope Trump Returns to First-Term Toughness at Summit**\
-`In 2020, the president declared China’s crackdown on Uyghurs a genocide. Now, it rarely surfaces.`\
-https://www.nytimes.com/2026/05/13/us/politics/uyghurs-beijing-summit-trump-xi-political-prisoners.html
 
