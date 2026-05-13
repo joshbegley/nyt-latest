@@ -1,80 +1,80 @@
-**As Trump Tower Deal in Australia Falls Apart, a Blame Game Begins**\
-`The property developer says the war in Iran and Trump’s “unpopularity” contributed to the collapse of a plan for a 91-story building on the Gold Coast.`\
-https://www.nytimes.com/2026/05/13/world/australia/australia-trump-tower-gold-coast.html
+**Silicon Valley’s A.I. Lobbying Reaches a Fever Pitch**\
+`OpenAI and Anthropic are opening offices in Washington, hiring lobbyists and spending more than ever to win over federal lawmakers.`\
+https://www.nytimes.com/2026/05/13/technology/ai-lobbying-washington-openai-anthropic.html
 
-**Anduril Raises $5 Billion, as Push to Modernize the Military Accelerates**\
-`The start-up, which makes A.I.-backed weapons, was valued at $61 billion in the financing round, double what it was a year ago.`\
-https://www.nytimes.com/2026/05/13/technology/anduril-raises-5-billion.html
+**En ‘The Pitt’, salió a su hora. En la vida real, inició un debate**\
+`Cuando Joy Kwon, una estudiante de medicina en la serie, puso un límite al trabajo, desató una conversación sobre el equilibrio entre la vida laboral y personal.`\
+https://www.nytimes.com/es/2026/05/13/espanol/estilos-de-vida/horario-de-trabajo-salida.html
 
-**Affordable N.Y.C. Homes Stay Empty for Months. That May Soon Change.**\
-`With affordable housing in extremely high demand, Mayor Zohran Mamdani’s administration is announcing plans to reduce red tape and get people into those apartments faster.`\
-https://www.nytimes.com/2026/05/13/nyregion/mamdani-nyc-affordable-housing.html
+**¿Es seguro usar auriculares al dormir?**\
+`Hemos preguntado a los expertos si este hábito plantea algún riesgo significativo para la salud.`\
+https://www.nytimes.com/es/2026/05/13/espanol/audifonos-auriculares-dormir.html
 
-**A Bronx Neighborhood Loses Its ‘Monarch’ to Arson**\
-`The police charged a 45-year-old man with three counts of homicide and one count of arson in a bodega fire that spread upstairs and killed a beloved resident.`\
-https://www.nytimes.com/2026/05/13/nyregion/bronx-fire-arson.html
+**What You Need to Know About the Federal Gas Tax**\
+`President Trump said he would like to suspend the 18.4-cent-a-gallon tax, but it’s a move that may save drivers only a few dollars a month.`\
+https://www.nytimes.com/2026/05/13/business/energy-environment/trump-federal-gas-tax.html
 
-**Best Cheap Food**\
-`What are your favorite local budget-friendly places to eat?`\
-https://www.nytimes.com/2026/05/13/learning/best-cheap-food.html
+**The Complicated Logistics of a Home Building Sprint**\
+`2,500 volunteers descended on Atlanta last week to build 24 homes in five days.`\
+https://www.nytimes.com/2026/05/13/realestate/atlanta-habitat-for-humanity-build.html
 
-**Mamdani’s Opponents Raise More Than $1 Million to Fight His Agenda**\
-`The new group, which will be led by Jim Walden, a lawyer who ran for mayor last year, will run attack ads and be prepared to sue the Mamdani administration.`\
-https://www.nytimes.com/2026/05/13/nyregion/mamdani-opponents-money-campaign.html
+**Train-Hopping Along the Jersey Shore**\
+`For town-to-town travel, locals are leaving their cars at home in favor of NJ Transit.`\
+https://www.nytimes.com/2026/05/13/realestate/nj-transit-jersey-shore-subway.html
 
-**Harvey Weinstein Faces Another Jury**\
-`The Manhattan jury is the third one to consider whether Mr. Weinstein, the disgraced Hollywood producer, raped an aspiring actress more than a decade ago.`\
-https://www.nytimes.com/2026/05/13/nyregion/harvey-weinstein-rape-case-jury.html
+**Love Lessons From Ramy Youssef’s Dog**\
+`What the comedian’s dog has taught him about unconditional love.`\
+https://www.nytimes.com/2026/05/13/podcasts/modern-love-lessons-from-ramy-youssefs-dog.html
 
-**‘Spot’ Illustrations Prove There Are Many Ways to Draw One Thing**\
-`An artist explains her approach to an atypical assignment in the newspaper.`\
-https://www.nytimes.com/2026/05/13/insider/illustrations-drawing-pia-bramley.html
+**Russia-Ukraine War Shows Cease-Fires Have Lost Meaning Under Trump**\
+`Temporary truces have become a tool of performative diplomacy, an end in themselves rather than a prelude to a lasting settlement, analysts say.`\
+https://www.nytimes.com/2026/05/13/world/europe/russia-ukraine-truce-trump.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/05/13/crosswords/spelling-bee-forum.html
+**Mel Brooks Donates His Archives to the National Comedy Center**\
+`The comedian is contributing some 20,000 documents and photos covering his career, including his time in the Army and the lyrics for “Springtime for Hitler.”`\
+https://www.nytimes.com/2026/05/13/arts/television/mel-brooks-national-comedy-center.html
 
-**Jordan Klepper Wants the President to Get More Sleep**\
-`“Well, well, well, looks like the Sleepy Joe-er has become the sleepy Joe-ee,” Klepper said after President Trump was seen with his eyes closed during an event in the Oval Office.`\
-https://www.nytimes.com/2026/05/13/arts/television/late-night-trump-sleep.html
+**Notable Researchers Join $4 Billion Effort to Build Self-Improving A.I.**\
+`Recursive Superintelligence, founded by former Google, Meta and OpenAI researchers, is part of a growing effort to automate the creation of artificial intelligence.`\
+https://www.nytimes.com/2026/05/13/technology/notable-researchers-join-4-billion-effort-to-build-self-improving-ai.html
 
-**Palabra del día: ‘implicit’**\
-`Esta palabra ha aparecido en 245 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
-https://www.nytimes.com/es/2026/05/13/espanol/palabra-del-impli.html
+**Mixed Feelings in Beijing Ahead of Trump-Xi Summit**\
+`People in Beijing shared their views on the relationship between the United States and China as the city prepared for President Trump’s state visit.`\
+https://www.nytimes.com/video/world/asia/100000010900611/trump-china-beijing-visit.html
 
-**Word of the Day: implicit**\
-`This word has appeared in 245 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/05/13/learning/word-of-the-day-implicit.html
+**The Supreme Court Has Left Us in a Dangerous Place**\
+`The ruling in Louisiana v. Callais might drive America’s politics to an even more precarious place of partisan tension and ideological Balkanization.`\
+https://www.nytimes.com/2026/05/13/opinion/callais-voting-rights-roberts-court.html
 
-**México y EE. UU. rechazan que la CIA tuviera un papel letal en un operativo en México**\
-`Los desmentidos se produjeron después de un reportaje de CNN que afirmó que la CIA participó en el asesinato del integrante de un cártel a principios de año.`\
-https://www.nytimes.com/es/2026/05/13/espanol/america-latina/mexico-cia-carteles.html
+**Would You Trust Pete Hegseth With $1.5 Trillion of Your Money?**\
+`“You name it, we’re investing in it” does not inspire confidence.`\
+https://www.nytimes.com/2026/05/13/opinion/hegseth-pentagon-military-budget.html
 
-**Un informe israelí examina la violencia sexual durante y tras el atentado de Hamás**\
-`La investigación describe casos en los que se abusaba de las víctimas delante de sus familiares, o en los que los autores difundían imágenes de una víctima en redes sociales.`\
-https://www.nytimes.com/es/2026/05/13/espanol/mundo/israel-violencia-sexual-hamas-informe.html
+**The Autocracy Index: Trump’s Disregard for Congress Has Reached a New Level**\
+`Measuring America’s democratic erosion.`\
+https://www.nytimes.com/interactive/2026/05/13/opinion/iran-war-democracy-america.html
 
-**Xi Is Planning for China’s Final Victory Over the U.S.**\
-`While Trump chases quick wins and flashy optics, Xi plays a generational game for global dominance.`\
-https://www.nytimes.com/2026/05/13/opinion/xi-trump-summit-china-us.html
+**Dismantling Purdue Pharma Won’t Fix America’s Opioid Problem**\
+`The Purdue Pharma case is closed, but the opioid problem remains.`\
+https://www.nytimes.com/2026/05/13/opinion/purdue-pharma-opioids.html
 
-**El Reino Unido ha tenido 5 líderes en 10 años. ¿Está a punto de tener otro?**\
-`Los críticos del actual primer ministro, Keir Starmer piden su renuncia para que el Partido Laborista tenga una posibilidad en las elecciones generales antes de 2029.`\
-https://www.nytimes.com/es/2026/05/13/espanol/mundo/reino-unido-keir-starmer-renuncia.html
+**Can Three Auction Houses Sell $2.6 Billion Worth of Art in One Week?**\
+`Five luxury artworks hold the key to the spring season, one of the most anticipated sales in years. Major buyers are looking past female and younger artists and toward tradition.`\
+https://www.nytimes.com/2026/05/13/arts/design/art-auction-preview-billion-pollock-rothko.html
 
-**Europa prueba una nueva táctica para tratar a Trump: sin pedir disculpas**\
-`Los líderes europeos, atrapados en las secuelas de la guerra de Estados Unidos en Irán, han criticado al presidente públicamente. Cuando él se ha enfadado, ellos no han dado marcha atrás.`\
-https://www.nytimes.com/es/2026/05/13/espanol/mundo/europa-tactica-trump-guerra.html
+**Tired of Hacked Passwords? Help Is on the Way.**\
+`Apps from Apple, Google and others can assist in making your online accounts more secure, even as new ways of logging in continue to take off.`\
+https://www.nytimes.com/2026/05/13/technology/personaltech/passwords-managers-passkeys.html
 
-**Britain Has Had 5 Leaders in a Decade. Is It About to Get Another?**\
-`The promise of Keir Starmer’s Labour Party in 2024 was renewed stability — but that now appears to be under threat.`\
-https://www.nytimes.com/2026/05/13/world/europe/britain-leadership-turnover.html
+**‘A New Leaf’: A Romantic Comedy, With Murder on the Mind**\
+`This 1971 movie, restored and revived for a week at the IFC Center, offers ample evidence of Elaine May’s screwball genius.`\
+https://www.nytimes.com/2026/05/13/movies/a-new-leaf-ifc-elaine-may.html
 
-**Princess of Wales to Make First Official Trip Abroad Since Cancer Diagnosis**\
-`Catherine will visit Reggio Emilia, an Italian city celebrated for its approach to early childhood education.`\
-https://www.nytimes.com/2026/05/13/world/europe/catherine-italy-visit.html
+**Will Airbnb Gain Ground in New York?**\
+`The home-sharing company has largely been shut out in the city, but it is fighting back and trying to get Black homeowners on its side.`\
+https://www.nytimes.com/2026/05/13/nyregion/will-airbnb-gain-ground-in-new-york.html
 
-**Europe Tries a Trumpian Tactic With Trump: No Apologies**\
-`Stuck with the fallout from America’s war in Iran, European leaders have criticized the president publicly. When he’s been angered, they haven’t backed down.`\
-https://www.nytimes.com/2026/05/13/world/europe/trump-merz-no-apology.html
+**Want to See the Epstein Files in Print? Here Are the 3,437 Volumes.**\
+`Documents related to Jeffrey Epstein, taking up more than 3,400 volumes and weighing over eight tons, have been printed and bound for display in a TriBeCa gallery.`\
+https://www.nytimes.com/2026/05/13/style/epstein-files-exhibition-trump-tribeca.html
 
