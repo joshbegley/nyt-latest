@@ -1,3 +1,11 @@
+**Tiny Love Stories: ‘Life Suddenly Made Sense’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/05/13/style/tiny-modern-love-stories-life-suddenly-made-sense.html
+
+**The Controversy Over Graham Platner’s Tattoo and Posts**\
+`Readers say David French’s critique of the likely Democratic candidate for the Senate in Maine was too harsh.`\
+https://www.nytimes.com/2026/05/13/opinion/letters/graham-platner-susan-collins-maine.html
+
 **El arte de cortar jamón ibérico**\
 `Los españoles hacen fila en bodas, torneos de tenis y galas para comer jamón servido por Ernesto Soriano, uno de los mejores cortadores de jamón ibérico del mundo.`\
 https://www.nytimes.com/es/2026/05/13/espanol/mundo/jamon-iberico-corte.html
@@ -14,8 +22,8 @@ https://www.nytimes.com/2026/05/13/headway/rent-burden-income-affordability.html
 `The balance of power between the United States and China had shifted in Beijing’s favor even before the war in Iran began in February.`\
 https://www.nytimes.com/2026/05/13/us/politics/trump-iran-war-china.html
 
-**Top Kennedy Spokesman Resigns in Protest Over New Vaping Policy**\
-`In a letter to President Trump, the spokesman, Rich Danker, said moves to allow the sale of flavored e-cigarettes would enhance their appeal to children.`\
+**Top Kennedy Spokesman Resigns in Protest of Move to Allow Flavored Vapes**\
+`In a letter to President Trump, the spokesman, Rich Danker, said allowing the sale of flavored e-cigarettes would enhance their appeal to children.`\
 https://www.nytimes.com/2026/05/13/us/politics/rich-danker-resigns-vaping.html
 
 **Why the Bombing of Iran Tied the U.S. More Closely to China**\
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/13/world/asia/trump-china-arrival-airport-presid
 **Former Brooklyn Judge Arrested in Real Estate Fraud Case**\
 `The former judge, Edward Harold King, and a Brooklyn real estate investor are accused of defrauding investors of millions of dollars in a deal in New Jersey.`\
 https://www.nytimes.com/2026/05/13/nyregion/judge-nyc-arrest-fraud.html
-
-**Trump and Xi: Beneath the Pomp and Niceties, a Geopolitical Rivalry**\
-`The relationship between the two leaders is marked just as much by mistrust and confrontation as it is by niceties.`\
-https://www.nytimes.com/2026/05/13/us/politics/trump-xi-rivalry.html
-
-**My Sister’s Alcoholism Is Putting Her Grandson at Risk. What Should I Do?**\
-`He has discovered her unconscious on more than one occasion.`\
-https://www.nytimes.com/2026/05/13/magazine/sister-alcoholism-grandson-ethics.html
 
