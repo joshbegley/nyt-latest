@@ -1,3 +1,11 @@
+**Trump and Xi: Beneath the Pomp and Niceties, a Geopolitical Rivalry**\
+`The relationship between the two leaders is marked just as much by mistrust and confrontation as it is by niceties.`\
+https://www.nytimes.com/2026/05/13/us/politics/trump-xi-rivalry.html
+
+**President Trump Arrives in China for Summit With Xi Jinping**\
+`President Trump landed in Beijing ahead of a high-stakes, two-day summit with China’s top leader, Xi Jinping. Trade and the war with Iran were expected to be high on the agenda when the two meet.`\
+https://www.nytimes.com/video/world/asia/100000010900882/trump-xi-jinping-china-summit-arrival.html
+
 **My Sister’s Alcoholism Is Putting Her Grandson at Risk. What Should I Do?**\
 `He has discovered her unconscious on more than one occasion.`\
 https://www.nytimes.com/2026/05/13/magazine/sister-alcoholism-grandson-ethics.html
