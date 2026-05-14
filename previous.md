@@ -1,3 +1,11 @@
+**N.Y.C. Second-Home Tax May Affect Homes With $1 Million ‘Market Value’**\
+`The new tax surcharge will be phased in over two stages, as the city and state work out a better way to identify which high-end pieds-à-terre will be affected.`\
+https://www.nytimes.com/2026/05/14/nyregion/nyc-second-home-tax-rates.html
+
+**Leader of Reform U.K. Says £5 Million Gift Was ‘Reward’ for Brexit**\
+`Nigel Farage, the leader of the populist right-wing party, had previously said the money was for personal security.`\
+https://www.nytimes.com/2026/05/14/world/europe/nigel-farage-reform-uk-gift-brexit.html
+
 **Streamer Known for Racist Confrontations Is Charged With Attempted Murder**\
 `Dalton Eatherly, who goes by Chud the Builder, was arrested after an altercation that ended in gunfire outside a courthouse near Nashville.`\
 https://www.nytimes.com/2026/05/14/us/chud-the-builder-shooting-tennessee-dalton-eatherly.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/14/well/bumble-swipe-feature-online-dating-apps.
 **TK**\
 `TK`\
 https://static01.nyt.com/slideshow/2026/05/14/t-magazine/tk.html
-
-**Freezable, Grillable, Party-Worthy**\
-`In my latest Recipe Matchmaker, I’ve got great vegetarian recipes for hyper-specific conditions.`\
-https://www.nytimes.com/2026/05/14/dining/freezable-grillable-party-worthy.html
-
-**Medical Plane Crashes in New Mexico, Killing All 4 People Aboard**\
-`The plane was traveling from Roswell to Sierra Blanca Regional Airport, a trip of less than 30 minutes. Firefighters were working to contain a blaze associated with the crash, officials said.`\
-https://www.nytimes.com/2026/05/14/us/medical-plane-crash-new-mexico-four-dead.html
 

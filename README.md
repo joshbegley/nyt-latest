@@ -1,3 +1,15 @@
+**‘No Cameras Where Tom Is’: Mystery of a Congressman’s Absence Deepens**\
+`Representative Thomas Kean Jr. last voted in Washington on March 5, citing a medical issue. An appearance planned for late May has been canceled.`\
+https://www.nytimes.com/2026/05/14/nyregion/tom-kean-congress-missing.html
+
+**Young Folks Help English Grow Up**\
+`The language is benefiting from a respect for diversity.`\
+https://www.nytimes.com/2026/05/14/opinion/lowkey-slang-language-youth.html
+
+**Green Card Holders Targeted for Deportation by New ‘Removal Apparatus’**\
+`The Department of Homeland Security recently formed a unit tasked with revetting thousands of immigrants with permanent residency.`\
+https://www.nytimes.com/2026/05/14/us/politics/green-cards-immigration-deportation-trump.html
+
 **N.Y.C. Second-Home Tax May Affect Homes With $1 Million ‘Market Value’**\
 `The new tax surcharge will be phased in over two stages, as the city and state work out a better way to identify which high-end pieds-à-terre will be affected.`\
 https://www.nytimes.com/2026/05/14/nyregion/nyc-second-home-tax-rates.html
@@ -39,7 +51,7 @@ https://www.nytimes.com/2026/05/14/world/asia/trump-xi-jinping-us-china.html
 https://www.nytimes.com/2026/05/14/us/denaturalization-citizen-sex-crime.html
 
 **E.P.A. Moves to Weaken Water Pollution Rule for Coal Plants**\
-`The Biden-era regulation requires coal plants to release fewer toxic metals, including arsenic and mercury, into nearby waters.`\
+`The agency also said it would delay the implementation of an air pollution rule for cars and trucks by two years.`\
 https://www.nytimes.com/2026/05/14/climate/epa-coal-plants-wastewater.html
 
 **Xi no deja dudas a Trump: Taiwán tiene alta prioridad**\
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/14/arts/music/clarence-carter-dead.html
 **Why A.I. Safety Controls Are Not Very Effective**\
 `Three years after the debut of ChatGPT, fooling A.I. systems into bad behavior is almost trivial.`\
 https://www.nytimes.com/2026/05/14/technology/artificial-intelligence-safety-controls.html
-
-**A.I. Chip Maker Soars 89% in Market Debut, as Tech I.P.O.s Ramp Up**\
-`Cerebras, a Silicon Valley maker of artificial intelligence chips, began trading on the stock market on Thursday, as SpaceX, OpenAI and Anthropic also take steps to go public.`\
-https://www.nytimes.com/2026/05/14/technology/cerebras-ipo-ai.html
-
-**Dating in a Swipeless World**\
-`Bumble is losing the feature that reshaped how we look for love. Daters may be ready for something more intentional.`\
-https://www.nytimes.com/2026/05/14/well/bumble-swipe-feature-online-dating-apps.html
-
-**TK**\
-`TK`\
-https://static01.nyt.com/slideshow/2026/05/14/t-magazine/tk.html
 

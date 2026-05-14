@@ -1,3 +1,11 @@
+**N.Y.C. Second-Home Tax May Affect Homes With $1 Million ‘Market Value’**\
+`The new tax surcharge will be phased in over two stages, as the city and state work out a better way to identify which high-end pieds-à-terre will be affected.`\
+https://www.nytimes.com/2026/05/14/nyregion/nyc-second-home-tax-rates.html
+
+**Leader of Reform U.K. Says £5 Million Gift Was ‘Reward’ for Brexit**\
+`Nigel Farage, the leader of the populist right-wing party, had previously said the money was for personal security.`\
+https://www.nytimes.com/2026/05/14/world/europe/nigel-farage-reform-uk-gift-brexit.html
+
 **Streamer Known for Racist Confrontations Is Charged With Attempted Murder**\
 `Dalton Eatherly, who goes by Chud the Builder, was arrested after an altercation that ended in gunfire outside a courthouse near Nashville.`\
 https://www.nytimes.com/2026/05/14/us/chud-the-builder-shooting-tennessee-dalton-eatherly.html
