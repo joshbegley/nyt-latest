@@ -1,3 +1,19 @@
+**Saudi Arabia and U.A.E. Carried Out Secret Attacks in Iran, U.S. Officials Say**\
+`The Gulf Arab states have been grappling with how to deter Iran after the war made clear the limits of American security guarantees.`\
+https://www.nytimes.com/2026/05/14/world/middleeast/saudi-arabia-uae-iran-attacks.html
+
+**Xi Warned of the ‘Thucydides Trap.’ What Is It?**\
+`China’s leader reached for Greek history to warn the United States of what can happen when a rising power meets an incumbent one.`\
+https://www.nytimes.com/2026/05/14/world/asia/trump-xi-thucydides-trap-us-china.html
+
+**Trump’s Push to Keep Coal Plants Open Is Costing Hundreds of Millions**\
+`Costs have been mounting in the year since the Trump administration began directing aging coal plants to say open.`\
+https://www.nytimes.com/2026/05/14/climate/trump-coal-plants-cost.html
+
+**Flag With Swastika and Star of David Flown on N.Y.U. Building, Police Say**\
+`The flag appeared on a university building during a graduation week event, and resembled the purple N.Y.U. banners flying on campus buildings.`\
+https://www.nytimes.com/2026/05/14/nyregion/swastika-flag-star-david-nyu.html
+
 **Judith Barnard, of Best-Selling ‘Judith Michael’ Fame, Dies at 94**\
 `At 50, on a lark, she published a romance novel with her husband, Michael Fain. Like their characters, they found their lives transformed by unexpected success.`\
 https://www.nytimes.com/2026/05/14/books/judith-barnard-dead.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/video/embedded/world/asia/100000010903523/14vid-trump-xi
 **Where Are the Women at the Trump-Xi Summit?**\
 `Nearly all the business leaders and officials accompanying President Trump in China are men. There are few women on the Chinese side, too.`\
 https://www.nytimes.com/2026/05/14/world/asia/trump-xi-meeting-china-women-melania.html
-
-**In Qatar, Energy Sector Damage Is Severe, and the Way Back Will Be Long**\
-`Iranian strikes and a blockade have paralyzed Qatar’s gas engine, creating a technical bottleneck likely to stall exports for years.`\
-https://www.nytimes.com/2026/05/14/business/qatar-lng-iran.html
-
-**U.C.L.A. Considers New Tactics to Combat Antisemitism**\
-`The Trump administration has sued the university, saying it didn’t do enough to protect Jews on campus.`\
-https://www.nytimes.com/2026/05/14/us/ucla-considers-new-tactics-to-combat-antisemitism.html
-
-**The C.E.O.s for Spencer Pratt**\
-`The former reality-TV star has shaken up the Los Angeles mayoral race, gaining support from deep-pocketed donors like the financier Daniel S. Loeb.`\
-https://www.nytimes.com/2026/05/14/business/dealbook/spencer-pratt-ceo-support.html
-
-****\
-``\
-https://www.nytimes.com/video/embedded/world/asia/100000010903414/14vid-xi-speech-embed.html
 
