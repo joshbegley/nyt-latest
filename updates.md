@@ -1,3 +1,7 @@
+**A Watchful Beijing Tightens Security for Trump’s Visit**\
+`Historic sites and roads have been closed in the Chinese capital for President Trump’s state visit, resulting in severe traffic and disappointed tourists.`\
+https://www.nytimes.com/2026/05/13/world/asia/trump-china-xi-beijing-security.html
+
 **7 movimientos para prevenir el dolor de hombro**\
 `Estos ejercicios pueden ayudarte a evitar molestias al mejorar tu fuerza y movilidad.`\
 https://www.nytimes.com/es/2026/05/14/espanol/prevenir-dolor-hombro-ejercicios.html
