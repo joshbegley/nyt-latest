@@ -1,3 +1,15 @@
+**Streamer Known for Racist Confrontations Is Charged With Attempted Murder**\
+`Dalton Eatherly, who goes by Chud the Builder, was arrested after an altercation that ended in gunfire outside a courthouse near Nashville.`\
+https://www.nytimes.com/2026/05/14/us/chud-the-builder-shooting-tennessee-dalton-eatherly.html
+
+**Talarico’s Taco Order Turns Into a Texas-Sized Debate**\
+`What started as a taco stop with former President Barack Obama quickly turned into a very Texas debate over the proper breakfast taco order.`\
+https://www.nytimes.com/2026/05/14/us/james-talarico-breakfast-taco-debate-texas.html
+
+**Medical Plane Crashes in New Mexico, Killing All 4 People Aboard**\
+`The plane was traveling from Roswell to Sierra Blanca Regional Airport, a trip of less than 30 minutes. Firefighters were working to contain a blaze associated with the crash, officials said.`\
+https://www.nytimes.com/2026/05/14/us/medical-plane-crash-new-mexico-four-dead.html
+
 **5 New Books We Love This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/05/14/books/review/new-recommended-books.html
