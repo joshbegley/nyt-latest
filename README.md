@@ -1,3 +1,7 @@
+**The Ancient Beijing Temple at the Center of Trump’s Visit**\
+`The Temple of Heaven and Great Hall of the People embody distinct parts of China’s history, which Xi Jinping has sought to underscore while hosting state visits.`\
+https://www.nytimes.com/2026/05/14/world/asia/trump-xi-china-summit-temple-of-heaven-great-hall.html
+
 **Dejar la casa atrás para vivir sobre ruedas**\
 `Con pocos motivos para quedarse atados a un hogar fijo, algunos padres con el nido vacío están optando por salir a la carretera.`\
 https://www.nytimes.com/es/2026/05/14/espanol/estados-unidos/jubilacion-casa-rodante.html
@@ -22,7 +26,7 @@ https://www.nytimes.com/live/2026/05/13/world/trump-xi-summit-china/trumps-2017-
 `Late night hosts responded to President Trump’s arrival in Beijing on Wednesday, accompanied by 17 chief executives including Tim Cook and Elon Musk.`\
 https://www.nytimes.com/2026/05/14/arts/television/late-night-trump-china-musk.html
 
-**Honda Posts First Ever Annual Loss After Pullback From EVs**\
+**Honda Posts First Ever Annual Loss After Pullback From E.V.s**\
 `Honda posted its first loss since 1957 as it took a multibillion-dollar hit from scaling back its electric-vehicle plans.`\
 https://www.nytimes.com/2026/05/14/business/honda-earnings-electric-vehicles.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/embedded/world/asia/100000010902936/14vid-trump-xi
 **South Carolina Governor Plans Special Session to Redraw House Maps**\
 `Gov. Henry McMaster, a Republican, appears prepared to thrust the state into the nation’s redistricting wars.`\
 https://www.nytimes.com/2026/05/13/us/south-carolina-special-session-redistricting.html
-
-**Irán, Taiwán y la tregua comercial: las cartas de Xi para negociar con Trump**\
-`China quiere que continúe la tregua comercial con EE. UU. Eso significa que Xi negociará con Trump para que no se impongan más aranceles, ni controles a las exportaciones, ni sanciones a sus empresas.`\
-https://www.nytimes.com/es/2026/05/13/espanol/mundo/china-trump-xi-reunion.html
 
