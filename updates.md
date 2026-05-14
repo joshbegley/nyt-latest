@@ -1,3 +1,19 @@
+**Latino Groups Unite to Win Back Hispanic Voters for Democrats in Midterms**\
+`Four longtime Latino civil rights and political organizations are joining efforts to register voters and mobilize Hispanic Democrats in the wake of rising voting restrictions.`\
+https://www.nytimes.com/2026/05/14/us/politics/latino-voters-outreach.html
+
+**What Teenagers Are Saying About Writing By Hand in the Digital Age**\
+`Students react to a call for more handwritten letters and explore the cognitive and emotional differences between writing by hand and typing.`\
+https://www.nytimes.com/2026/05/14/learning/what-teenagers-are-saying-about-writing-by-hand-in-the-digital-age.html
+
+**Spies, Sanctions, Cyberattacks: China and the U.S. Clash Behind the Scenes**\
+`After months of avoiding confrontation, the Trump administration has taken recent steps to call out China on Iran, artificial intelligence and spying.`\
+https://www.nytimes.com/2026/05/14/us/politics/china-us-sanctions-ai-cybersecurity.html
+
+**Clarence Carter, Singer of Lust-Filled Soul Hits, Dies at 90**\
+`In songs like “Slip Away” and “Back Door Santa,” he performed with the fervor of a backwoods preacher and the bawdy humor of a juke joint.`\
+https://www.nytimes.com/2026/05/14/arts/music/clarence-carter-dead.html
+
 **Why A.I. Safety Controls Are Not Very Effective**\
 `Three years after the debut of ChatGPT, fooling A.I. systems into bad behavior is almost trivial.`\
 https://www.nytimes.com/2026/05/14/technology/artificial-intelligence-safety-controls.html
