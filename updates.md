@@ -1,3 +1,31 @@
+**Dejar la casa atrás para vivir sobre ruedas**\
+`Con pocos motivos para quedarse atados a un hogar fijo, algunos padres con el nido vacío están optando por salir a la carretera.`\
+https://www.nytimes.com/es/2026/05/14/espanol/estados-unidos/jubilacion-casa-rodante.html
+
+**¿D’Artagnan fue enterrado en los Países Bajos?**\
+`El pueblo de Wolder exhumó un esqueleto que estaba debajo de una de sus iglesias. Espera ansioso los resultados de ADN para saber si los restos pertenecen al conde inmortalizado por Alejandro Dumas.`\
+https://www.nytimes.com/es/2026/05/14/espanol/mundo/mosqueteros-dartagnan-entierro-paises-bajos.html
+
+**Palabra del día: ‘epithet’**\
+`Esta palabra ha aparecido en 35 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/05/14/espanol/que-significa-epithet.html
+
+**Word of the Day: epithet**\
+`This word has appeared in 35 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/05/14/learning/word-of-the-day-epithet.html
+
+**Trump’s 2017 visit to Beijing offers clues for this year’s summit.**\
+``\
+https://www.nytimes.com/live/2026/05/13/world/trump-xi-summit-china/trumps-2017-visit-to-beijing-offers-clues-for-this-years-summit
+
+**Stephen Colbert Slams ‘Trump’s Fabulous Billionaire Boys Trip’**\
+`Late night hosts responded to President Trump’s arrival in Beijing on Wednesday, accompanied by 17 chief executives including Tim Cook and Elon Musk.`\
+https://www.nytimes.com/2026/05/14/arts/television/late-night-trump-china-musk.html
+
+**Honda Posts First Ever Annual Loss After Pullback From EVs**\
+`Honda posted its first loss since 1957 as it took a multibillion-dollar hit from scaling back its electric-vehicle plans.`\
+https://www.nytimes.com/2026/05/14/business/honda-earnings-electric-vehicles.html
+
 **Trump no debe darle más victorias a China**\
 `La política de Trump hacia China ha debilitado a EE. UU., especialmente en su segundo mandato.`\
 https://www.nytimes.com/es/2026/05/14/espanol/opinion/trump-china.html
