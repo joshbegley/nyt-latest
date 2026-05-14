@@ -1,3 +1,7 @@
+**16 More People in the U.S. Are Being Monitored for Hantavirus, C.D.C. Says**\
+`They were passengers on a plane to Johannesburg with an infected Dutch woman who later died.`\
+https://www.nytimes.com/2026/05/14/health/hantavirus-outbreak-quarantine.html
+
 **Glitz and Boycotts at Eurovision**\
 `The song contest has camp, glitter and pyrotechnics. And, this year, protests over Israel’s participation.`\
 https://www.nytimes.com/2026/05/14/world/eurovision-israel-boycotts-china.html
@@ -70,11 +74,7 @@ https://www.nytimes.com/2026/05/14/opinion/lowkey-slang-language-youth.html
 `The Department of Homeland Security recently formed a unit tasked with revetting thousands of immigrants with permanent residency.`\
 https://www.nytimes.com/2026/05/14/us/politics/green-cards-immigration-deportation-trump.html
 
-**N.Y. Takes Two-Step Approach to Tax on Multimillion-Dollar Second Homes**\
-`The tax will initially apply to units with a “market value” of at least $1 million. That metric often underestimates a home’s actual worth.`\
+**New York Takes Two-Step Approach on Multimillion-Dollar Second-Home Tax**\
+`The new tax surcharge will be phased in as the city and state work out which properties it will affect, according to Gov. Kathy Hochul’s office.`\
 https://www.nytimes.com/2026/05/14/nyregion/nyc-second-home-tax-rates.html
-
-**Leader of Reform U.K. Says £5 Million Gift Was ‘Reward’ for Brexit**\
-`Nigel Farage, the leader of the populist right-wing party, had previously said the money was for personal security.`\
-https://www.nytimes.com/2026/05/14/world/europe/nigel-farage-reform-uk-gift-brexit.html
 

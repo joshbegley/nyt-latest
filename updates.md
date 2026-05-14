@@ -1,3 +1,11 @@
+**Glitz and Boycotts at Eurovision**\
+`The song contest has camp, glitter and pyrotechnics. And, this year, protests over Israel’s participation.`\
+https://www.nytimes.com/2026/05/14/world/eurovision-israel-boycotts-china.html
+
+**Another Trump Appointee Learns It’s Easier to Be a Critic Than a Leader**\
+`We have no F.D.A. director, no permanent C.D.C. director and no surgeon general.`\
+https://www.nytimes.com/2026/05/14/opinion/public-health-leaders-fda-cdc-surgeon-general.html
+
 **Un juez ordena devolver a EE. UU. a una mujer colombiana deportada a Congo-Kinsasa**\
 `El juez consideró que era muy probable que el gobierno de Donald Trump hubiera infringido la ley al deportar a la mujer al país africano a pesar de que este se negaba a acogerla.`\
 https://www.nytimes.com/es/2026/05/14/espanol/mundo/colombiana-deportada-congo-estados-unidos.html
