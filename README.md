@@ -1,3 +1,15 @@
+****\
+``\
+https://www.nytimes.com/video/embedded/world/asia/100000010903414/14vid-xi-speech-embed.html
+
+**‘Quite Brutal,’ ‘Not Friendly’: What People in China Say of Trump**\
+`Residents in four Chinese cities described a mixture of amusement and anger, blaming U.S. tensions for a slowing economy and rising fuel prices.`\
+https://www.nytimes.com/2026/05/14/world/asia/trump-china-people-street.html
+
+**Trump Invites Xi to White House During State Dinner in Beijing**\
+`President Trump and President Xi Jinping of China emphasized cooperation in their remarks after walking into the Great Hall of the People side by side.`\
+https://www.nytimes.com/2026/05/14/world/asia/trump-invites-xi-to-white-house-during-state-dinner-in-beijing.html
+
 **Wes Streeting Resigns, Setting Stage for Possible Leadership Challenge to Starmer**\
 `After days of speculation, the British health secretary said Thursday that he was resigning from the government of Prime Minister Keir Starmer.`\
 https://www.nytimes.com/2026/05/14/world/europe/wes-streeting-resigns-starmer-uk-prime-minister.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/14/crosswords/connections-companion-1069.html
 **Watch Live: China’s Leader, Xi Jinping, Hosts President Trump for a State Banquet**\
 `China’s leader, Xi Jinping, is hosting a state banquet for President Trump during a summit in Beijing.`\
 https://www.nytimes.com/video/embedded/world/asia/100000010903350/watch-live-chinas-leader-xi-jinping-hosts-president-trump-for-a-state-banquet.html
-
-**Inside the Secret Mission to Fly Taiwan’s President to Africa**\
-`From satellite phone check-ins to a borrowed royal plane, new details show how Taiwan’s leader’s team outwitted China and pulled off an audacious journey to southern Africa.`\
-https://www.nytimes.com/2026/05/14/world/asia/taiwan-eswatini-china-flight.html
-
-**Trump and Xi Discuss the Need to Open the Strait of Hormuz, U.S. Says**\
-`Earlier, Secretary of State Marco Rubio said in an interview that China should take a more active role in resolving a standoff over the strait.`\
-https://www.nytimes.com/2026/05/14/world/asia/trump-xi-iran.html
-
-**Duterte Ally Flees After Chaos at Philippine Senate**\
-`Senator Ronald dela Rosa, who is wanted by the International Criminal Court in The Hague, had been holed up in the building when shots rang out.`\
-https://www.nytimes.com/2026/05/14/world/asia/philippines-dela-rosa-senate-icc-warrant-duterte.html
 
