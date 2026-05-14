@@ -1,3 +1,7 @@
+**Latino Groups Unite to Win Back Hispanic Voters for Democrats in Midterms**\
+`Four longtime Latino civil rights and political organizations are joining efforts to register voters and mobilize Hispanic Democrats in the wake of rising voting restrictions.`\
+https://www.nytimes.com/2026/05/14/us/politics/latino-voters-outreach.html
+
 **What Teenagers Are Saying About Writing By Hand in the Digital Age**\
 `Students react to a call for more handwritten letters and explore the cognitive and emotional differences between writing by hand and typing.`\
 https://www.nytimes.com/2026/05/14/learning/what-teenagers-are-saying-about-writing-by-hand-in-the-digital-age.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/14/arts/design/tefaf-nyc-2026-artists-review.htm
 **Body of Second U.S. Soldier Who Went Missing in Morocco Is Found**\
 `The body of Specialist Mariyah Symone Collington, 19, was retrieved from a coastal cave less than a week after the recovery of the body of First Lt. Kendrick Lamont Key Jr.`\
 https://www.nytimes.com/2026/05/14/us/us-soldier-missing-morocco-body-found.html
-
-**‘Is God Is’ Review: The Fires This Time**\
-`Kara Young and Mallori Johnson play twins bent on revenge in the playwright Aleshea Harris’s powerhouse film debut.`\
-https://www.nytimes.com/2026/05/14/movies/is-god-is-review.html
 
