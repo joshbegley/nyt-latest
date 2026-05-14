@@ -1,3 +1,7 @@
+**Irán, Taiwán y la tregua comercial: las cartas de Xi para negociar con Trump**\
+`China quiere que continúe la tregua comercial con EE. UU. Eso significa que Xi negociará con Trump para que no se impongan más aranceles, ni controles a las exportaciones, ni sanciones a sus empresas.`\
+https://www.nytimes.com/es/2026/05/13/espanol/mundo/china-trump-xi-reunion.html
+
 **U.S. Cruise Passenger Moved Out of Isolation**\
 `The passenger, who had tested positive once in the Canary Islands, was being monitored in a special biocontainment facility in Omaha, until a new test came back negative.`\
 https://www.nytimes.com/2026/05/13/us/hantavirus-us-passenger-quarantine-negative.html
@@ -71,10 +75,6 @@ https://www.nytimes.com/2026/05/13/nyregion/rudy-giuliani-interview-health.html
 https://www.nytimes.com/2026/05/13/us/venezuelan-doctor-released-from-immigration-custody-texas.html
 
 **The China Gambit: From Nixon to Trump**\
-`President Trump’s visit to Beijing comes as relations with China have became more combative.`\
+`President Trump’s visit to Beijing comes as relations with China have become more combative.`\
 https://www.nytimes.com/2026/05/13/us/politics/china-visits-nixon-to-trump.html
-
-**Man Convicted of Running Illegal Police Station Tied to China’s Government**\
-`Prosecutors say that Lu Jianwang opened a hub in Manhattan’s Chinatown to monitor outspoken critics of the Chinese Communist Party.`\
-https://www.nytimes.com/2026/05/13/nyregion/china-covert-police-nyc-verdict.html
 
