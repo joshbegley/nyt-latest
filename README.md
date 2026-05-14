@@ -1,3 +1,15 @@
+**El síndrome de ovario poliquístico ahora será conocido como SOMP**\
+`La enfermedad ha sido rebautizada como síndrome ovárico metabólico poliendocrino para reflejar mejor sus amplios efectos sobre la salud.`\
+https://www.nytimes.com/es/2026/05/14/espanol/estilos-de-vida/sindrome-ovario-poliquistico-cambia-nombre.html
+
+**¿Los abogados del gobierno están por encima de los cuerpos disciplinarios de la profesión? Una demanda en EE. UU. lo analiza**\
+`El Departamento de Justicia de EE. UU. impulsa una propuesta para intentar paralizar o retrasar que los colegios de abogados sancionen la ética de los profesionales que trabajan para el gobierno de Trump.`\
+https://www.nytimes.com/es/2026/05/14/espanol/estados-unidos/abogados-trump-etica-departamento-justicia.html
+
+**Searching for an Actually Good Gluten-Free Pizza and More Readers Questions**\
+`Becky Hughes is back to answer readers’ hyperspecific restaurant questions.`\
+https://www.nytimes.com/2026/05/14/dining/searching-for-an-actually-good-gluten-free-pizza-and-more-readers-questions.html
+
 **The Body Language of the Trump-Xi Summit Spoke Volumes**\
 `Although at odds over issues like trade and Taiwan, the U.S. and Chinese leaders met in Beijing with a show of friendly gestures.`\
 https://www.nytimes.com/2026/05/14/world/asia/trump-xi-body-language.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/14/climate/chemical-safety-board-disaster-warnin
 **As Trump Meets Xi, Iran Lets Chinese Ships Through Strait of Hormuz**\
 `Iranian news agencies said some Chinese ships were being allowed through the strait, following diplomatic outreach to Iran from Beijing.`\
 https://www.nytimes.com/2026/05/14/world/middleeast/iran-strait-hormuz-china-ships.html
-
-**Appeals Court Appears Skeptical of Trump Orders Targeting Law Firms**\
-`A three-judge panel showed few signs of siding with the president on his efforts to compel law firms to work for the administration or face threats.`\
-https://www.nytimes.com/2026/05/14/us/politics/trump-law-firms-appeals-court.html
-
-**Trump Was Flattering, Xi Was Resolute. The Difference Spoke Volumes.**\
-`In contrast to his rhetoric about China at home, President Trump spoke in conciliatory terms with Xi Jinping, the Chinese leader.`\
-https://www.nytimes.com/2026/05/14/world/asia/trump-xi-jinping-us-china.html
-
-**Justice Dept. Aims to Denaturalize Ex-Marine for Sex Crime**\
-`In recent decades, the federal authorities have generally revoked U.S. citizenship from people accused of wrongdoing on their citizenship applications. A new case focuses on a crime committed later.`\
-https://www.nytimes.com/2026/05/14/us/denaturalization-citizen-sex-crime.html
 
