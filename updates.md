@@ -1,3 +1,11 @@
+**Trump en China**\
+`El presidente será recibido con todos los honores, pero la profunda brecha que hay entre Estados Unidos y China será muy difícil de reparar.`\
+https://www.nytimes.com/es/2026/05/14/espanol/mundo/trump-en-china.html
+
+**Flags, Flattery and a Blunt Warning on Trump’s First Day in China**\
+`During the first round of two days of talks, Xi Jinping issued a stern warning about Taiwan while Trump touted all the top business leaders in his delegation.`\
+https://www.nytimes.com/2026/05/14/world/asia/trump-first-day-china-xi.html
+
 **A Closer Look at Who’s in the U.S. Delegation to China**\
 `Some of Mr. Trump’s most influential cabinet members and the C.E.O.s of some of America’s biggest corporations accompanied him on his visit to Beijing.`\
 https://www.nytimes.com/interactive/2026/05/14/world/asia/trump-china-xi-delegation-business-leaders.html

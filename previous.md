@@ -1,3 +1,11 @@
+**Trump en China**\
+`El presidente será recibido con todos los honores, pero la profunda brecha que hay entre Estados Unidos y China será muy difícil de reparar.`\
+https://www.nytimes.com/es/2026/05/14/espanol/mundo/trump-en-china.html
+
+**Flags, Flattery and a Blunt Warning on Trump’s First Day in China**\
+`During the first round of two days of talks, Xi Jinping issued a stern warning about Taiwan while Trump touted all the top business leaders in his delegation.`\
+https://www.nytimes.com/2026/05/14/world/asia/trump-first-day-china-xi.html
+
 **A Closer Look at Who’s in the U.S. Delegation to China**\
 `Some of Mr. Trump’s most influential cabinet members and the C.E.O.s of some of America’s biggest corporations accompanied him on his visit to Beijing.`\
 https://www.nytimes.com/interactive/2026/05/14/world/asia/trump-china-xi-delegation-business-leaders.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/14/opinion/trump-politics-maha.html
 **Prospect of Murdaugh Retrial Puts Rural South Carolina Back in Spotlight**\
 `The State Supreme Court cited a local court clerk in reversing the result of one of the most-watched murder trials of the last decade. It has raised painful memories in the state’s Lowcountry region.`\
 https://www.nytimes.com/2026/05/14/us/murdaugh-murder-conviction-overturned-reaction.html
-
-**Exploring the Co-ops of Riverdale With About $600,000**\
-`Determined to downsize, two longtime Manhattanites looked north to the Bronx for an apartment with two or three bedrooms, a balcony, and maybe even a pool.`\
-https://www.nytimes.com/interactive/2026/05/14/realestate/bronx-riverdale-spuyten-duyvil-apartments.html
-
-**Oil Prices Rise as Trump Meets China’s Xi**\
-`The president is expected to urge the Chinese leader to help ease tensions in the Middle East by helping to persuade Iran to end the war.`\
-https://www.nytimes.com/2026/05/14/business/oil-stocks-gas-iran-trump-china.html
 
