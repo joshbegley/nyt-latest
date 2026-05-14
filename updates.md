@@ -1,3 +1,19 @@
+**As Trump Meets Xi, Iran Lets Chinese Ships Through Strait of Hormuz**\
+`Iranian news agencies said some Chinese ships were being allowed through the strait, following diplomatic outreach to Iran from Beijing.`\
+https://www.nytimes.com/2026/05/14/world/middleeast/iran-strait-hormuz-china-ships.html
+
+**Appeals Court Appears Skeptical of Trump Orders Targeting Law Firms**\
+`A three-judge panel showed few signs of siding with the president on his efforts to compel law firms to work for the administration or face threats.`\
+https://www.nytimes.com/2026/05/14/us/politics/trump-law-firms-appeals-court.html
+
+**Trump Was Flattering, Xi Was Resolute. The Difference Spoke Volumes.**\
+`In contrast to his rhetoric about China at home, President Trump spoke in conciliatory terms with Xi Jinping, the Chinese leader.`\
+https://www.nytimes.com/2026/05/14/world/asia/trump-xi-jinping-us-china.html
+
+**Justice Dept. Aims to Denaturalize Ex-Marine for Sex Crime**\
+`In recent decades, the federal authorities have generally revoked U.S. citizenship from people accused of wrongdoing on their citizenship applications. A new case focuses on a crime committed later.`\
+https://www.nytimes.com/2026/05/14/us/denaturalization-citizen-sex-crime.html
+
 **E.P.A. Moves to Weaken Water Pollution Rule for Coal Plants**\
 `The Biden-era regulation requires coal plants to release fewer toxic metals, including arsenic and mercury, into nearby waters.`\
 https://www.nytimes.com/2026/05/14/climate/epa-coal-plants-wastewater.html
