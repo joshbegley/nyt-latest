@@ -54,8 +54,8 @@ https://www.nytimes.com/2026/05/14/opinion/lowkey-slang-language-youth.html
 `The Department of Homeland Security recently formed a unit tasked with revetting thousands of immigrants with permanent residency.`\
 https://www.nytimes.com/2026/05/14/us/politics/green-cards-immigration-deportation-trump.html
 
-**N.Y.C. Second-Home Tax May Affect Homes With $1 Million ‘Market Value’**\
-`The so-called market value is a government metric that often underestimates a home’s actual worth. The new tax will be phased in as the city and state work out which properties it will affect.`\
+**N.Y. Takes Two-Step Approach to Tax on Multimillion-Dollar Second Homes**\
+`The tax will initially apply to units with a “market value” of at least $1 million. That metric often underestimates a home’s actual worth.`\
 https://www.nytimes.com/2026/05/14/nyregion/nyc-second-home-tax-rates.html
 
 **Leader of Reform U.K. Says £5 Million Gift Was ‘Reward’ for Brexit**\
