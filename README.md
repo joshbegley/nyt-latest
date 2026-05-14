@@ -14,7 +14,7 @@ https://www.nytimes.com/video/us/100000010905383/two-killed-small-plane-crash-oh
 ``\
 https://www.nytimes.com/live/2026/05/14/technology/openai-trial-sam-altman-elon-musk/what-the-jury-must-weigh-to-decide-the-case
 
-**With Claim of Fraud, Vance Hammers Democrats as Trump Officials Halt Medicaid Payments**\
+**Vance Blames Democrats as U.S. Halts Some Medicaid Payments, Claiming Fraud**\
 `Vice President JD Vance traveled to Maine for a speech, making a midterm election pitch that only Republicans could root out fraud in public benefits.`\
 https://www.nytimes.com/2026/05/14/us/politics/medicaid-fraud-vance-republicans-maine.html
 
@@ -30,8 +30,8 @@ https://www.nytimes.com/2026/05/14/us/george-robert-blakey-dead.html
 `Erin Stewart was facing intense scrutiny over her use of a city credit card when she was mayor of New Britain, Conn.`\
 https://www.nytimes.com/2026/05/14/nyregion/erin-stewart-suspends-governor-campaign-connecticut.html
 
-**More Than a Quarter of Abortions Are Done by Telehealth, Protected for Now by the Supreme Court**\
-`Mail-order pills shipped to states with bans are a reason abortion has increased since Roe v. Wade was overturned.`\
+**Mail-Order Abortions Have Quickly Become Common**\
+`Pills shipped to states with bans are a reason abortion has increased since Roe v. Wade was overturned.`\
 https://www.nytimes.com/2026/05/14/upshot/abortion-pills-court.html
 
 **N.Y.U. Class of 2026 Graduates After Studying Through Turbulent Years**\
