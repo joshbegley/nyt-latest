@@ -1,3 +1,11 @@
+**5 New Books We Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/05/14/books/review/new-recommended-books.html
+
+**Federal Chemical Safety Board Sends Warning on Trump Disaster Policy**\
+`The board said the administration is taking “a significant step backwards” on preventing chemical disasters.`\
+https://www.nytimes.com/2026/05/14/climate/chemical-safety-board-disaster-warning-letter.html
+
 **As Trump Meets Xi, Iran Lets Chinese Ships Through Strait of Hormuz**\
 `Iranian news agencies said some Chinese ships were being allowed through the strait, following diplomatic outreach to Iran from Beijing.`\
 https://www.nytimes.com/2026/05/14/world/middleeast/iran-strait-hormuz-china-ships.html
