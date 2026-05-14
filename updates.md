@@ -1,3 +1,11 @@
+**Mamdani Urges New York State to Block Western Union Deal**\
+`New York City’s mayor said the company’s proposed acquisition of Intermex could make it costlier for immigrants to send money abroad.`\
+https://www.nytimes.com/2026/05/13/business/zohran-mamdani-western-union-intermex.html
+
+**Here’s Why Taiwan Is Watching What Trump Says in Beijing**\
+`There are few issues in diplomacy more complicated than the status of the self-governing island, which China claims as its own. It is almost certain to come up when President Trump meets China’s leader.`\
+https://www.nytimes.com/2026/05/13/world/asia/taiwan-china-trump.html
+
 **Political Organizer Wins Democratic Primary in Key Nebraska House Race**\
 `Denise Powell prevailed in a close primary race for an Omaha-based seat, currently held by a retiring Republican, that could help determine control of the House.`\
 https://www.nytimes.com/2026/05/13/us/politics/denise-powell-nebrasaka-house-don-bacon.html
