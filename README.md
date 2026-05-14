@@ -1,3 +1,11 @@
+**South Carolina Governor Formally Calls for Redistricting Special Session**\
+`But he stopped short of ordering lawmakers to redo the map so that Republicans could sweep the state’s congressional delegation, which President Trump has pressured them to do.`\
+https://www.nytimes.com/2026/05/14/us/south-carolina-special-session-redistricting.html
+
+**U.S. Border Patrol Chief Resigns in Latest Homeland Security Shake-Up**\
+`Michael Banks is the latest high-profile official to leave the Department of Homeland Security amid President Trump’s immigration crackdown.`\
+https://www.nytimes.com/2026/05/14/us/politics/michael-banks-border-patrol-resign.html
+
 **Why China Fears the ‘A.I. Girlfriend’**\
 `China is worried A.I. companions could be a drag on productivity. On “Interesting Times,” Kyle Chan, a foreign policy fellow at the Brookings Institution, tells the Opinion columnist Ross Douthat that the government thinks youth “should be engineering the future and building out the start-ups and the future Chinese versions of SpaceX.”`\
 https://www.nytimes.com/video/opinion/100000010892482/why-china-fears-the-ai-girlfriend.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/14/us/akron-ohio-plane-crash.html
 **Frank Stack, Painter Who Secretly Drew ‘The Adventures of Jesus,’ Dies at 88**\
 `For 20 years, he hid his identity behind the nom de plume Foolbert Sturgeon as he chronicled Christ’s encounters with modern-day hypocrites in comic-book form.`\
 https://www.nytimes.com/2026/05/14/books/frank-stack-dead.html
-
-**Congress Has Rejected 10 Chances to Assert Its War Powers in Iran**\
-`The vote was the latest in a series of 10 similar measures across the House and Senate since the war began in late February, all of which aimed — and failed — to insist on a role for Congress in authorizing the conflict.`\
-https://www.nytimes.com/interactive/2026/05/14/us/politics/congress-iran-war-powers.html
-
-**House Again Blocks War Powers Vote to Halt Iran Conflict**\
-`But two vulnerable Republicans joined Democrats in the effort to force President Trump to win authorization from Congress, in the latest sign of G.O.P. jitters over the war.`\
-https://www.nytimes.com/2026/05/14/us/politics/war-powers-vote-house-trump-iran.html
 
