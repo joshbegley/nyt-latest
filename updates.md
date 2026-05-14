@@ -1,3 +1,11 @@
+**Top U.S. Commander Dismisses Reports of Civilian Deaths in Iran**\
+`Adm. Brad Cooper on Thursday dismissed reports of the U.S.’s role in civilian deaths in Iran. The commander said the U.S. military identified one potential incident involving a school, which Iranian officials said killed 175 people, most of them children. The New York Times has verified that 22 schools and 17 health care facilities were damaged in the war.`\
+https://www.nytimes.com/video/us/politics/100000010904740/civilian-deaths-strikes-iran.html
+
+**Is Musk Running an Illegal Power Plant? The D.O.J. Says It Might Weigh In.**\
+`In a court filing, the administration signaled support for Elon Musk’s artificial intelligence company in a lawsuit challenging xAI’s generators at a huge Mississippi data center.`\
+https://www.nytimes.com/2026/05/14/climate/elon-musk-xai-data-center-doj.html
+
 **Vance Blames Democrats as U.S. Halts Some Medicaid Payments, Claiming Fraud**\
 `Vice President JD Vance traveled to Maine for a speech, making a midterm election pitch that only Republicans could root out fraud in public benefits.`\
 https://www.nytimes.com/2026/05/14/us/politics/medicaid-fraud-vance-republicans-maine.html

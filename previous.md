@@ -1,10 +1,14 @@
+**Top U.S. Commander Dismisses Reports of Civilian Deaths in Iran**\
+`Adm. Brad Cooper on Thursday dismissed reports of the U.S.’s role in civilian deaths in Iran. The commander said the U.S. military identified one potential incident involving a school, which Iranian officials said killed 175 people, most of them children. The New York Times has verified that 22 schools and 17 health care facilities were damaged in the war.`\
+https://www.nytimes.com/video/us/politics/100000010904740/civilian-deaths-strikes-iran.html
+
 **Why Trump’s Reflecting Pool Repairs Are in Trouble**\
 `Federal records show that the no-bid contract to repair the Lincoln Memorial Reflecting Pool and paint it blue now costs $13.1 million. That’s about seven times the amount President Trump initially said it would cost.`\
 https://www.nytimes.com/video/us/100000010897413/why-trumps-reflecting-pool-repairs-are-in-trouble.html
 
 **Is Musk Running an Illegal Power Plant? The D.O.J. Says It Might Weigh In.**\
 `In a court filing, the administration signaled support for Elon Musk’s artificial intelligence company in a lawsuit challenging xAI’s generators at a huge Mississippi data center.`\
-https://www.nytimes.com/2026/05/14/climate/is-musk-running-an-illegal-power-plant-the-doj-says-it-might-weigh-in.html
+https://www.nytimes.com/2026/05/14/climate/elon-musk-xai-data-center-doj.html
 
 **Two Killed After Small Plane Crashes Into House in Ohio**\
 `On Thursday, two people were killed after a small plane crashed into a house on a suburban street in Akron, Ohio, and caught fire.`\
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/05/14/espanol/estados-unidos/trump-guerra-iran-a
 **C.I.A. Director Travels to Cuba as U.S. Intensifies Pressure**\
 `John Ratcliffe, the C.I.A. director, is the highest-ranking official in the Trump administration to visit the country.`\
 https://www.nytimes.com/2026/05/14/us/politics/cia-director-visits-cuba.html
-
-**16 More People in the U.S. Are Being Monitored for Hantavirus, C.D.C. Says**\
-`They were passengers on a plane to Johannesburg with an infected Dutch woman who later died.`\
-https://www.nytimes.com/2026/05/14/health/hantavirus-outbreak-quarantine.html
 
