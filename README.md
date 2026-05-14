@@ -1,3 +1,23 @@
+**‘Rots Your Brain’**\
+`What do you think this image is communicating?`\
+https://www.nytimes.com/2026/05/14/learning/rots-your-brain.html
+
+**What Could One Banana Cost? $10? Maybe for You, Some Fear.**\
+`Grocery stores can use shoppers’ personal data to charge different customers different prices. Lawmakers in New York are considering a ban.`\
+https://www.nytimes.com/2026/05/14/nyregion/nyc-grocery-stores-surveillance-pricing.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/14/crosswords/spelling-bee-forum.html
+
+**In a City of Big Dreams, Many Young Adults See a Cloudy Future**\
+`A bleak job market. Rising rents. Huge debt. In New York and other cities, traditional milestones of adulthood feel further away for some 20- and 30-year-olds.`\
+https://www.nytimes.com/2026/05/14/nyregion/gen-z-nyc-unaffordable.html
+
+**It’s a Hard Time to be a Young Adult. We Want to Hear From You.**\
+`I’m a Times reporter writing about young people in the New York City area. Whether you’re a young adult, or work with them, your insights can help.`\
+https://www.nytimes.com/2026/05/14/nyregion/young-adult-nyc-reader-callout.html
+
 **The Ancient Beijing Temple at the Center of Trump’s Visit**\
 `The Temple of Heaven and Great Hall of the People embody distinct parts of China’s history, which Xi Jinping has sought to underscore while hosting state visits.`\
 https://www.nytimes.com/2026/05/14/world/asia/trump-xi-china-summit-temple-of-heaven-great-hall.html
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/05/14/us/us-population-growth-midsize-cities.html
 **Pedro Sánchez encabeza la oposición política a Donald Trump. Y está ganando**\
 `El líder de España ha establecido una filosofía de gobierno alternativa al trumpismo.`\
 https://www.nytimes.com/es/2026/05/14/espanol/opinion/espana-pedro-sanchez-trump.html
-
-**Corrections: May 14, 2026**\
-`Corrections that appeared in print on Thursday, May 14, 2026.`\
-https://www.nytimes.com/2026/05/14/pageoneplus/corrections-may-14-2026.html
-
-**Quote of the Day: Teenagers Get a Fresh Kick Out of Playing an Old Game**\
-`Quotation of the Day for Thursday, May 14, 2026.`\
-https://www.nytimes.com/2026/05/13/pageoneplus/quote-of-the-day-teenagers-get-a-fresh-kick-out-of-playing-an-old-game.html
-
-**A Watchful Beijing Tightens Security for Trump’s Visit**\
-`Historic sites and roads have been closed in the Chinese capital for President Trump’s state visit, resulting in severe traffic and disappointed tourists.`\
-https://www.nytimes.com/2026/05/13/world/asia/trump-china-xi-beijing-security.html
-
-****\
-``\
-https://www.nytimes.com/video/embedded/world/asia/100000010902936/14vid-trump-xi-embeds-45012.html
-
-**South Carolina Governor Plans Special Session to Redraw House Maps**\
-`Gov. Henry McMaster, a Republican, appears prepared to thrust the state into the nation’s redistricting wars.`\
-https://www.nytimes.com/2026/05/13/us/south-carolina-special-session-redistricting.html
 
