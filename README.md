@@ -1,3 +1,11 @@
+**5 New Books We Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/05/14/books/review/new-recommended-books.html
+
+**Federal Chemical Safety Board Sends Warning on Trump Disaster Policy**\
+`The board said the administration is taking “a significant step backwards” on preventing chemical disasters.`\
+https://www.nytimes.com/2026/05/14/climate/chemical-safety-board-disaster-warning-letter.html
+
 **As Trump Meets Xi, Iran Lets Chinese Ships Through Strait of Hormuz**\
 `Iranian news agencies said some Chinese ships were being allowed through the strait, following diplomatic outreach to Iran from Beijing.`\
 https://www.nytimes.com/2026/05/14/world/middleeast/iran-strait-hormuz-china-ships.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/14/opinion/climate-change-2026-election.html
 **Deadly Storms Devastate Northern India**\
 `Officials said at least 111 people were killed and dozens more injured after severe storms hit the state of Uttar Pradesh.`\
 https://www.nytimes.com/video/world/asia/100000010903892/india-storms-video-uttar-pradesh-deaths.html
-
-**A Republican U-Turn on Free Speech**\
-`The G.O.P. has long opposed government regulation of broadcasters. That has changed under Trump.`\
-https://www.nytimes.com/2026/05/14/us/politics/the-docket-republicans-speech-fcc.html
-
-**Rose Byrne and Kelli O’Hara in ‘Fallen Angels,’ and More Theater to Stream**\
-`The actresses both scored Tony nominations for their hilarious turns in Noël Coward’s 1925 farce. Also catch Ben Platt and Rachel Zegler in “The Last Five Years.”`\
-https://www.nytimes.com/2026/05/14/theater/suffs-othello-theater-streaming.html
 
