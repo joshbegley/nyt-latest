@@ -1,3 +1,7 @@
+**Who Attended the U.S.-China State Banquet in Beijing?**\
+`Guests included top U.S. and Chinese officials and the chief executives of several major American companies.`\
+https://www.nytimes.com/2026/05/14/world/asia/trump-china-xi-state-dinner-who-attended.html
+
 **Wes Streeting Resigns and Calls for Leadership Contest to Replace Starmer**\
 `The British health secretary stepped down on Thursday and issued an excoriating statement on the government of Prime Minister Keir Starmer.`\
 https://www.nytimes.com/2026/05/14/world/europe/wes-streeting-resigns-starmer-uk-prime-minister.html
