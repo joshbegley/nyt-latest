@@ -1,3 +1,11 @@
+**N.Y.U. Class of 2026 Graduates After Studying Through Turbulent Years**\
+`The graduates from New York University witnessed protests and the Trump administration’s crackdown on higher education.`\
+https://www.nytimes.com/2026/05/14/nyregion/nyu-graduation-turbulent.html
+
+**Supreme Court Allows Abortion Pill Access by Mail to Continue**\
+`Also, this is a big week for the art market. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/05/14/briefing/supreme-court-abortion-pills.html
+
 **Supreme Court Allows Abortion Pill Access by Mail to Continue**\
 `A federal appeals court ruling against the Food and Drug Administration would have restricted access by mail to mifepristone.`\
 https://www.nytimes.com/2026/05/14/us/politics/supreme-court-abortion-pill.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/14/dining/searching-for-an-actually-good-gluten-
 **Trump’s and Xi’s Body Language at the Summit Mirrored Their Styles**\
 `Although at odds over issues like trade and Taiwan, the U.S. and Chinese leaders met in Beijing with a show of friendly gestures.`\
 https://www.nytimes.com/2026/05/14/world/asia/trump-xi-body-language.html
-
-**Justice Dept. Accuses Yale Medical School of Discriminating Against White and Asian Applicants**\
-`The finding was the second time in eight days that the Trump administration had targeted a major medical school over admissions policies.`\
-https://www.nytimes.com/2026/05/14/us/politics/doj-lawsuit-yale-medical.html
-
-**A Top U.S. Commander Dismisses Reports of Civilian Deaths in Iran**\
-`Adm. Brad Cooper’s testimony suggested that he believed that the U.S. military had been near perfect in avoiding civilian casualties.`\
-https://www.nytimes.com/2026/05/14/us/politics/civilian-deaths-strikes-iran.html
 

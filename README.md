@@ -1,8 +1,12 @@
+**More Than a Quarter of Abortions Are Done by Telehealth, Protected for Now by the Supreme Court**\
+`Mail-order pills shipped to states with bans are a reason abortion has increased since Roe v. Wade was overturned.`\
+https://www.nytimes.com/2026/05/14/upshot/abortion-pills-court.html
+
 **N.Y.U. Class of 2026 Graduates After Studying Through Turbulent Years**\
 `The graduates from New York University witnessed protests and the Trump administration’s crackdown on higher education.`\
 https://www.nytimes.com/2026/05/14/nyregion/nyu-graduation-turbulent.html
 
-**Supreme Court Allows Abortion Pill Access by Mail to Continue**\
+**Justices Allow Abortion Pill Access by Mail to Continue**\
 `Also, this is a big week for the art market. Here’s the latest at the end of Thursday.`\
 https://www.nytimes.com/2026/05/14/briefing/supreme-court-abortion-pills.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/05/14/espanol/estados-unidos/abogados-trump-etic
 **Searching for an Actually Good Gluten-Free Pizza and More Readers Questions**\
 `Becky Hughes is back to answer readers’ hyperspecific restaurant questions.`\
 https://www.nytimes.com/2026/05/14/dining/searching-for-an-actually-good-gluten-free-pizza-and-more-readers-questions.html
-
-**Trump’s and Xi’s Body Language at the Summit Mirrored Their Styles**\
-`Although at odds over issues like trade and Taiwan, the U.S. and Chinese leaders met in Beijing with a show of friendly gestures.`\
-https://www.nytimes.com/2026/05/14/world/asia/trump-xi-body-language.html
 
