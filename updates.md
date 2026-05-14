@@ -1,3 +1,31 @@
+**Today, In Short**\
+`Biblical eating. Commencement speeches. And a taxidermist.`\
+https://www.nytimes.com/2026/05/14/briefing/today-in-short.html
+
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/05/14/technology/openai-trial-sam-altman-elon-musk/heres-the-latest
+
+**2028 Republican Presidential Primary: Latest Polls**\
+`Track the latest polls in the Republican primary for President of the United States.`\
+https://www.nytimes.com/interactive/polls/president-republican-primary-polls-2028.html
+
+**2028 Democratic Presidential Primary: Latest Polls**\
+`Track the latest polls in the Democratic primary for President of the United States.`\
+https://www.nytimes.com/interactive/polls/president-democratic-primary-polls-2028.html
+
+**How Nice Is This Gnocchi?**\
+`Hetty Lui McKinnon’s new gnocchi with peas and whipped feta looks (and tastes) restaurant-worthy, but is easy to assemble at home.`\
+https://www.nytimes.com/2026/05/14/dining/how-nice-is-this-gnocchi.html
+
+**Trump’s War Is Punishing the Poor, Starting at the Gas Pump**\
+`Higher fuel prices are a burden on low-income families.`\
+https://www.nytimes.com/2026/05/14/opinion/gas-prices-fuel-oil-trump-poor.html
+
+**Flag With Swastikas and Star of David Flown at N.Y.U., Police Say**\
+`The flag appeared on a university building in the heart of Greenwich Village during a graduation week event, and resembled the purple N.Y.U. banners flying on campus buildings.`\
+https://www.nytimes.com/2026/05/14/nyregion/swastika-flag-star-david-nyu.html
+
 **Julio Torres’s Furniture Takes Inspiration From the JFK Customs Line**\
 `Plus: a renewed Paris nightclub, sunglasses from Debbie Harry and more recommendations from T Magazine.`\
 https://www.nytimes.com/2026/05/14/t-magazine/julio-torres-sabai-furniture-design.html
