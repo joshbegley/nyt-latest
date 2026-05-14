@@ -1,3 +1,15 @@
+**Neo-Nazi Leader Who Plotted to Poison Children Is Sentenced to 15 Years**\
+`Michail Chkhikvishvili, 22, was the leader of Maniac Murder Cult, an extremist group that encouraged people to commit acts of hate and violence, prosecutors said.`\
+https://www.nytimes.com/2026/05/14/nyregion/neo-nazi-leader-sentenced-poisoned-candy.html
+
+**Cuba Says It Has Run Out of Oil**\
+`A long-running energy crisis in the island nation reached a breaking point this week, when government officials said they had run out of reserves.`\
+https://www.nytimes.com/2026/05/14/world/americas/cuba-oil-energy-crisis.html
+
+**Trump’s and Xi’s Body Language at the Summit Mirrored Their Styles**\
+`Although at odds over issues like trade and Taiwan, the U.S. and Chinese leaders met in Beijing with a show of friendly gestures.`\
+https://www.nytimes.com/2026/05/14/world/asia/trump-xi-body-language.html
+
 **¿Qué cenaron Trump y Xi?**\
 `Los chefs chinos trataron de apelar a las preferencias culinarias de Trump al tiempo que utilizaban ingredientes y técnicas de cocina tradicionales.`\
 https://www.nytimes.com/es/2026/05/14/espanol/mundo/trump-xi-reunion-que-cenaron.html

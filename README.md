@@ -1,3 +1,7 @@
+**Un juez ordena devolver a EE. UU. a una mujer colombiana deportada a Congo-Kinsasa**\
+`El juez consideró que era muy probable que el gobierno de Donald Trump hubiera infringido la ley al deportar a la mujer al país africano a pesar de que este se negaba a acogerla.`\
+https://www.nytimes.com/es/2026/05/14/espanol/mundo/colombiana-deportada-congo-estados-unidos.html
+
 **Neo-Nazi Leader Who Plotted to Poison Children Is Sentenced to 15 Years**\
 `Michail Chkhikvishvili, 22, was the leader of Maniac Murder Cult, an extremist group that encouraged people to commit acts of hate and violence, prosecutors said.`\
 https://www.nytimes.com/2026/05/14/nyregion/neo-nazi-leader-sentenced-poisoned-candy.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/14/world/europe/nigel-farage-reform-uk-gift-brex
 **Streamer Known for Racist Confrontations Is Charged With Attempted Murder**\
 `Dalton Eatherly, who goes by Chud the Builder, was arrested after an altercation that ended in gunfire outside a courthouse near Nashville.`\
 https://www.nytimes.com/2026/05/14/us/chud-the-builder-shooting-tennessee-dalton-eatherly.html
-
-**Talarico’s Taco Order Turns Into a Texas-Sized Debate**\
-`What started as a taco stop with former President Barack Obama quickly turned into a very Texas debate over the proper breakfast taco order.`\
-https://www.nytimes.com/2026/05/14/us/james-talarico-breakfast-taco-debate-texas.html
 

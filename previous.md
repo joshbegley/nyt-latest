@@ -1,3 +1,11 @@
+**Neo-Nazi Leader Who Plotted to Poison Children Is Sentenced to 15 Years**\
+`Michail Chkhikvishvili, 22, was the leader of Maniac Murder Cult, an extremist group that encouraged people to commit acts of hate and violence, prosecutors said.`\
+https://www.nytimes.com/2026/05/14/nyregion/neo-nazi-leader-sentenced-poisoned-candy.html
+
+**Cuba Says It Has Run Out of Oil**\
+`A long-running energy crisis in the island nation reached a breaking point this week, when government officials said they had run out of reserves.`\
+https://www.nytimes.com/2026/05/14/world/americas/cuba-oil-energy-crisis.html
+
 **¿Qué cenaron Trump y Xi?**\
 `Los chefs chinos trataron de apelar a las preferencias culinarias de Trump al tiempo que utilizaban ingredientes y técnicas de cocina tradicionales.`\
 https://www.nytimes.com/es/2026/05/14/espanol/mundo/trump-xi-reunion-que-cenaron.html
@@ -14,7 +22,7 @@ https://www.nytimes.com/es/2026/05/14/espanol/estados-unidos/abogados-trump-etic
 `Becky Hughes is back to answer readers’ hyperspecific restaurant questions.`\
 https://www.nytimes.com/2026/05/14/dining/searching-for-an-actually-good-gluten-free-pizza-and-more-readers-questions.html
 
-**The Body Language of the Trump-Xi Summit Mirrored Their Styles**\
+**Trump’s and Xi’s Body Language at the Summit Mirrored Their Styles**\
 `Although at odds over issues like trade and Taiwan, the U.S. and Chinese leaders met in Beijing with a show of friendly gestures.`\
 https://www.nytimes.com/2026/05/14/world/asia/trump-xi-body-language.html
 
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/14/us/chud-the-builder-shooting-tennessee-dalton
 **Talarico’s Taco Order Turns Into a Texas-Sized Debate**\
 `What started as a taco stop with former President Barack Obama quickly turned into a very Texas debate over the proper breakfast taco order.`\
 https://www.nytimes.com/2026/05/14/us/james-talarico-breakfast-taco-debate-texas.html
-
-**5 New Books We Love This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://www.nytimes.com/2026/05/14/books/review/new-recommended-books.html
-
-**Federal Chemical Safety Board Sends Warning on Trump Disaster Policy**\
-`The board said the administration is taking “a significant step backwards” on preventing chemical disasters.`\
-https://www.nytimes.com/2026/05/14/climate/chemical-safety-board-disaster-warning-letter.html
 
