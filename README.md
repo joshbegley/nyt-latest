@@ -1,3 +1,7 @@
+**El Mundial tendrá un espectáculo de medio tiempo por primera vez**\
+`La final anterior del Mundial atrajo a más de 500 millones de espectadores en directo. El partido de este año está programado para el 19 de julio en el estadio MetLife. Actuarán Shakira, BTS y Madonna.`\
+https://www.nytimes.com/es/2026/05/14/espanol/cultura/mundial-shakira-madonna-bts.html
+
 **The Family Branding of Sean Duffy’s New Reality Show Is a Trip**\
 `A trailer heralds the latest spinoff from the Trump administration.`\
 https://www.nytimes.com/2026/05/14/style/sean-duffy-great-american-road-trip.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/embedded/world/asia/100000010903474/14vid-xi-maga-
 **Who’s Running in 2028?**\
 `We look at potential candidates for the nation’s top job.`\
 https://www.nytimes.com/2026/05/14/briefing/whos-running-for-president-in-2028.html
-
-**Trump en China**\
-`El presidente será recibido con todos los honores, pero la profunda brecha que hay entre Estados Unidos y China será muy difícil de reparar.`\
-https://www.nytimes.com/es/2026/05/14/espanol/mundo/trump-en-china.html
 
