@@ -1,3 +1,7 @@
+**Trump and Xi Discuss the Need to Open the Strait of Hormuz, U.S. Says**\
+`Earlier, Secretary of State Marco Rubio said in an interview that China should take a more active role in resolving a standoff over the strait.`\
+https://www.nytimes.com/2026/05/14/world/asia/trump-xi-iran.html
+
 **Who’s Running in 2028?**\
 `We look at potential candidates for the nation’s top job.`\
 https://www.nytimes.com/2026/05/14/briefing/whos-running-for-president-in-2028.html
