@@ -1,3 +1,7 @@
+**Pair for a Pool**\
+`Thirsty for a Thursday challenge? Simeon Seigel is here to help.`\
+https://www.nytimes.com/2026/05/13/crosswords/daily-puzzle-2026-05-14.html
+
 **Is America Still No. 1?**\
 `The billionaire investor who predicted the 2008 financial crash is bearish on America’s future standing in the world. On “Interesting Times,” Ray Dalio tells the columnist Ross Douthat why.`\
 https://www.nytimes.com/video/opinion/100000010875155/is-america-still-no-1.html
