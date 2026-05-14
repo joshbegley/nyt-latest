@@ -1,3 +1,7 @@
+**Spat On, Egged, Threatened: Australian Jews Testify on Experiences of Antisemitism**\
+`As part of a public inquiry into the massacre at Bondi Beach, dozens have described being targeted for their Jewish identity in their daily lives.`\
+https://www.nytimes.com/2026/05/14/world/australia/jews-antisemitism-bondi-beach.html
+
 **South Carolina Governor Formally Calls for Redistricting Special Session**\
 `But he stopped short of ordering lawmakers to redo the map so that Republicans could sweep the state’s congressional delegation, which President Trump has pressured them to do.`\
 https://www.nytimes.com/2026/05/14/us/south-carolina-special-session-redistricting.html

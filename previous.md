@@ -1,3 +1,7 @@
+**Spat On, Egged, Threatened: Australian Jews Testify on Experiences of Antisemitism**\
+`As part of a public inquiry into the massacre at Bondi Beach, dozens have described being targeted for their Jewish identity in their daily lives.`\
+https://www.nytimes.com/2026/05/14/world/australia/jews-antisemitism-bondi-beach.html
+
 **South Carolina Governor Formally Calls for Redistricting Special Session**\
 `But he stopped short of ordering lawmakers to redo the map so that Republicans could sweep the state’s congressional delegation, which President Trump has pressured them to do.`\
 https://www.nytimes.com/2026/05/14/us/south-carolina-special-session-redistricting.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/14/t-magazine/windbreaker-jacket-fashion.html
 **Plane Crashes Into House in Ohio, Killing 2**\
 `No one on the ground was hurt when a small plane crashed into a house on a residential street south of downtown Akron, the authorities said.`\
 https://www.nytimes.com/2026/05/14/us/akron-ohio-plane-crash.html
-
-**Frank Stack, Painter Who Secretly Drew ‘The Adventures of Jesus,’ Dies at 88**\
-`For 20 years, he hid his identity behind the nom de plume Foolbert Sturgeon as he chronicled Christ’s encounters with modern-day hypocrites in comic-book form.`\
-https://www.nytimes.com/2026/05/14/books/frank-stack-dead.html
 
