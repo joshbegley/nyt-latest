@@ -1,3 +1,7 @@
+**U.S. Abruptly Cancels Deployment of 4,000 Troops to Poland**\
+`It was unclear why Defense Secretary Pete Hegseth called off the deployment to Poland, which has close relations with the United States.`\
+https://www.nytimes.com/2026/05/14/us/politics/us-army-poland-troops-hegseth-trump.html
+
 **El Mundial tendrá un espectáculo de medio tiempo por primera vez**\
 `La final anterior del Mundial atrajo a más de 500 millones de espectadores en directo. El partido de este año está programado para el 19 de julio en el estadio MetLife. Actuarán Shakira, BTS y Madonna.`\
 https://www.nytimes.com/es/2026/05/14/espanol/cultura/mundial-shakira-madonna-bts.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/embedded/world/asia/100000010903430/14vid-trump-ba
 ****\
 ``\
 https://www.nytimes.com/video/embedded/world/asia/100000010903474/14vid-xi-maga-subt-95416.html
-
-**Who’s Running in 2028?**\
-`We look at potential candidates for the nation’s top job.`\
-https://www.nytimes.com/2026/05/14/briefing/whos-running-for-president-in-2028.html
 
