@@ -1,3 +1,7 @@
+**House Again Blocks War Powers Vote to Halt Iran Conflict**\
+`But two vulnerable Republicans joined Democrats in the effort to force President Trump to win authorization from Congress, in the latest sign of G.O.P. jitters over the war.`\
+https://www.nytimes.com/2026/05/14/us/politics/war-powers-vote-house-trump-iran.html
+
 **El silencio del principal asesor militar de Trump deja muchas preguntas**\
 `Como jefe del Estado Mayor Conjunto, el general Dan Caine está obligado a mantenerse al margen de la refriega política provocada por la guerra en Irán. Pero trabaja para un presidente que le exige lealtad absoluta.`\
 https://www.nytimes.com/es/2026/05/14/espanol/estados-unidos/trump-guerra-iran-asesor-ejercito.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/14/us/politics/open-primaries-improve-lives.html
 **The Mystery of a Congressman’s Absence Deepens**\
 `Representative Thomas Kean Jr. last voted in Washington on March 5, citing a medical issue. An appearance planned for late May has been canceled.`\
 https://www.nytimes.com/2026/05/14/nyregion/tom-kean-congress-missing.html
-
-**Young Folks Help English Grow Up**\
-`The language is benefiting from a respect for diversity.`\
-https://www.nytimes.com/2026/05/14/opinion/lowkey-slang-language-youth.html
 
