@@ -1,3 +1,11 @@
+**El silencio del principal asesor militar de Trump deja muchas preguntas**\
+`Como jefe del Estado Mayor Conjunto, el general Dan Caine está obligado a mantenerse al margen de la refriega política provocada por la guerra en Irán. Pero trabaja para un presidente que le exige lealtad absoluta.`\
+https://www.nytimes.com/es/2026/05/14/espanol/estados-unidos/trump-guerra-iran-asesor-ejercito.html
+
+**C.I.A. Director Travels to Cuba as U.S. Intensifies Pressure**\
+`John Ratcliffe, the C.I.A. director, is the highest-ranking official in the Trump administration to visit the country.`\
+https://www.nytimes.com/2026/05/14/us/politics/cia-director-visits-cuba.html
+
 **16 More People in the U.S. Are Being Monitored for Hantavirus, C.D.C. Says**\
 `They were passengers on a plane to Johannesburg with an infected Dutch woman who later died.`\
 https://www.nytimes.com/2026/05/14/health/hantavirus-outbreak-quarantine.html
@@ -58,7 +66,7 @@ https://www.nytimes.com/2026/05/14/climate/heres-what-it-costs-to-keep-a-coal-pl
 `We have no F.D.A. director, no permanent C.D.C. director and no surgeon general.`\
 https://www.nytimes.com/2026/05/14/opinion/public-health-leaders-fda-cdc-surgeon-general.html
 
-**Open Primaries Have Their Fans. The Parties Are Not Among Them.**\
+**Should Every Party Be Allowed to Vote in a Primary?**\
 `New research claims that bipartisan primaries have broad societal benefit, but opposition is growing, and Louisiana voters this weekend will participate in the state’s first closed primary since 1978.`\
 https://www.nytimes.com/2026/05/14/us/politics/open-primaries-improve-lives.html
 
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/14/nyregion/tom-kean-congress-missing.html
 **Young Folks Help English Grow Up**\
 `The language is benefiting from a respect for diversity.`\
 https://www.nytimes.com/2026/05/14/opinion/lowkey-slang-language-youth.html
-
-**Green Card Holders Targeted for Deportation by New ‘Removal Apparatus’**\
-`The Department of Homeland Security recently formed a unit tasked with revetting thousands of immigrants with permanent residency.`\
-https://www.nytimes.com/2026/05/14/us/politics/green-cards-immigration-deportation-trump.html
-
-**New York Takes Two-Step Approach on Multimillion-Dollar Second-Home Tax**\
-`The new tax surcharge will be phased in as the city and state work out which properties it will affect, according to Gov. Kathy Hochul’s office.`\
-https://www.nytimes.com/2026/05/14/nyregion/nyc-second-home-tax-rates.html
 
