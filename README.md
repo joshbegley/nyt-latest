@@ -1,3 +1,7 @@
+**Wes Streeting Resigns, Setting Stage for Possible Leadership Challenge to Starmer**\
+`After days of speculation, the British health secretary said Thursday that he was resigning from the government of Prime Minister Keir Starmer.`\
+https://www.nytimes.com/2026/05/14/world/europe/wes-streeting-resigns-starmer-uk-prime-minister.html
+
 **China’s State Dinner for Trump Includes Beef Ribs, Roast Duck and Tiramisu**\
 `A mixture of Chinese and international dishes were on the menu as Beijing’s chefs sought to appeal to President Trump’s tastes.`\
 https://www.nytimes.com/2026/05/14/world/asia/trump-xi-china-food-dinner-menu.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/14/world/asia/trump-xi-iran.html
 **Duterte Ally Flees After Chaos at Philippine Senate**\
 `Senator Ronald dela Rosa, who is wanted by the International Criminal Court in The Hague, had been holed up in the building when shots rang out.`\
 https://www.nytimes.com/2026/05/14/world/asia/philippines-dela-rosa-senate-icc-warrant-duterte.html
-
-**‘Be Like Satoshi’: We Unmask Scottie Pippen’s A.I. Crypto Slop**\
-`Why is the Bulls legend hawking “the Mona Lisa of sports” as a talking Web3 meme coin NFT?`\
-https://www.nytimes.com/2026/05/14/podcasts/be-like-satoshi-we-unmask-scottie-pippens-ai-crypto-slop.html
 
