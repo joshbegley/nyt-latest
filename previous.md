@@ -1,3 +1,7 @@
+**Is America Still No. 1?**\
+`The billionaire investor who predicted the 2008 financial crash is bearish on America’s future standing in the world. On “Interesting Times,” Ray Dalio tells the columnist Ross Douthat why.`\
+https://www.nytimes.com/video/opinion/100000010875155/is-america-still-no-1.html
+
 **Watch Live: Trump Meets Xi as U.S.-China Summit Kicks Off**\
 `China’s leader, Xi Jinping, welcomes President Trump at Beijing’s Great Hall of the People.`\
 https://www.nytimes.com/video/embedded/world/asia/100000010902714/watch-live-trump-meets-xi-as-us-china-summit-kicks-off.html
@@ -59,7 +63,7 @@ https://www.nytimes.com/2026/05/13/nyregion/rudy-giuliani-interview-health.html
 https://www.nytimes.com/2026/05/13/us/venezuelan-doctor-released-from-immigration-custody-texas.html
 
 **The China Gambit: From Nixon to Trump**\
-`President Trump’s visit to Beijing comes as relations with China have became more combative.`\
+`President Trump’s visit to Beijing comes as relations with China have become more combative.`\
 https://www.nytimes.com/2026/05/13/us/politics/china-visits-nixon-to-trump.html
 
 **Man Convicted of Running Illegal Police Station Tied to China’s Government**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/13/us/politics/new-mexico-diocese-border-wall.ht
 **As Their Leaders Meet, American and Chinese People Are Drifting Apart**\
 `Past meetings between the presidents of the U.S. and China have involved friendly displays of cultural exchange. Those gestures have largely dried up.`\
 https://www.nytimes.com/2026/05/13/world/asia/trump-xi-summit-people-culture.html
-
-**Duffy’s ‘Great American Road Trip’ Prompts Ethical Concerns**\
-`A YouTube series starring Transportation Secretary Sean Duffy and his family is part of the nation’s 250th anniversary celebrations, but it doubled as a family excursion for them.`\
-https://www.nytimes.com/2026/05/13/us/road-trip-duffy.html
 
