@@ -18,7 +18,7 @@ https://www.nytimes.com/live/2026/05/14/technology/openai-trial-sam-altman-elon-
 `Vice President JD Vance traveled to Maine for a speech, making a midterm election pitch that only Republicans could root out fraud in public benefits.`\
 https://www.nytimes.com/2026/05/14/us/politics/medicaid-fraud-vance-republicans-maine.html
 
-**El director de la CIA viaja a Cuba mientras EE.UU. intensifica la presión a la isla**\
+**El director de la CIA viaja a Cuba mientras EE. UU. intensifica la presión a la isla**\
 `John Ratcliffe, director de la CIA, es el funcionario de más alto rango del gobierno de Trump que ha visitado el país.`\
 https://www.nytimes.com/es/2026/05/14/espanol/estados-unidos/cia-cuba.html
 

@@ -1,3 +1,11 @@
+**Why Trump’s Reflecting Pool Repairs Are in Trouble**\
+`Federal records show that the no-bid contract to repair the Lincoln Memorial Reflecting Pool and paint it blue now costs $13.1 million. That’s about seven times the amount President Trump initially said it would cost.`\
+https://www.nytimes.com/video/us/100000010897413/why-trumps-reflecting-pool-repairs-are-in-trouble.html
+
+**Is Musk Running an Illegal Power Plant? The D.O.J. Says It Might Weigh In.**\
+`In a court filing, the administration signaled support for Elon Musk’s artificial intelligence company in a lawsuit challenging xAI’s generators at a huge Mississippi data center.`\
+https://www.nytimes.com/2026/05/14/climate/is-musk-running-an-illegal-power-plant-the-doj-says-it-might-weigh-in.html
+
 **Two Killed After Small Plane Crashes Into House in Ohio**\
 `On Thursday, two people were killed after a small plane crashed into a house on a suburban street in Akron, Ohio, and caught fire.`\
 https://www.nytimes.com/video/us/100000010905383/two-killed-small-plane-crash-ohio.html
