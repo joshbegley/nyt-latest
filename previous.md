@@ -1,3 +1,11 @@
+**President Trump Goes to China**\
+`His talks with Xi Jinping in Beijing could decide whether the United States and China maintain their uneasy truce on trade.`\
+https://www.nytimes.com/2026/05/14/world/europe/trump-china-photos.html
+
+**Shakira, Madonna and BTS Are First World Cup Final Halftime Show**\
+`The previous World Cup final drew more than 500 million live viewers. This year’s matchup is scheduled for July 19 at MetLife Stadium.`\
+https://www.nytimes.com/2026/05/14/arts/music/world-cup-halftime-shakira-madonna-bts.html
+
 **Midsize Cities Held Steady as U.S. Population Growth Declined**\
 `New census estimates show that the nation’s largest cities saw the sharpest slowdowns in population growth over the past year amid declines in immigration and plunging birthrates.`\
 https://www.nytimes.com/2026/05/14/us/us-population-growth-midsize-cities.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/13/nyregion/man-pleads-guilty-to-ramming-car-int
 **Mamdani Urges New York State to Block Western Union Deal**\
 `New York City’s mayor said the company’s proposed acquisition of Intermex could make it costlier for immigrants to send money abroad.`\
 https://www.nytimes.com/2026/05/13/business/zohran-mamdani-western-union-intermex.html
-
-**Here’s Why Taiwan Is Watching What Trump Says in Beijing**\
-`There are few issues in diplomacy more complicated than the status of the self-governing island, which China claims as its own. It is almost certain to come up when President Trump meets China’s leader.`\
-https://www.nytimes.com/2026/05/13/world/asia/taiwan-china-trump.html
-
-**Political Organizer Wins Democratic Primary in Key Nebraska House Race**\
-`Denise Powell prevailed in a close primary race for an Omaha-based seat, currently held by a retiring Republican, that could help determine control of the House.`\
-https://www.nytimes.com/2026/05/13/us/politics/denise-powell-nebrasaka-house-don-bacon.html
 

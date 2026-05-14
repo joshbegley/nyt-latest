@@ -1,3 +1,11 @@
+**President Trump Goes to China**\
+`His talks with Xi Jinping in Beijing could decide whether the United States and China maintain their uneasy truce on trade.`\
+https://www.nytimes.com/2026/05/14/world/europe/trump-china-photos.html
+
+**Shakira, Madonna and BTS Are First World Cup Final Halftime Show**\
+`The previous World Cup final drew more than 500 million live viewers. This year’s matchup is scheduled for July 19 at MetLife Stadium.`\
+https://www.nytimes.com/2026/05/14/arts/music/world-cup-halftime-shakira-madonna-bts.html
+
 **Midsize Cities Held Steady as U.S. Population Growth Declined**\
 `New census estimates show that the nation’s largest cities saw the sharpest slowdowns in population growth over the past year amid declines in immigration and plunging birthrates.`\
 https://www.nytimes.com/2026/05/14/us/us-population-growth-midsize-cities.html
