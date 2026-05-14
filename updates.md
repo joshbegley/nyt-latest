@@ -1,3 +1,11 @@
+**South Carolina Governor Formally Calls for Redistricting Special Session**\
+`But he stopped short of ordering lawmakers to redo the map so that Republicans could sweep the state’s congressional delegation, which President Trump has pressured them to do.`\
+https://www.nytimes.com/2026/05/14/us/south-carolina-special-session-redistricting.html
+
+**U.S. Border Patrol Chief Resigns in Latest Homeland Security Shake-Up**\
+`Michael Banks is the latest high-profile official to leave the Department of Homeland Security amid President Trump’s immigration crackdown.`\
+https://www.nytimes.com/2026/05/14/us/politics/michael-banks-border-patrol-resign.html
+
 **Why China Fears the ‘A.I. Girlfriend’**\
 `China is worried A.I. companions could be a drag on productivity. On “Interesting Times,” Kyle Chan, a foreign policy fellow at the Brookings Institution, tells the Opinion columnist Ross Douthat that the government thinks youth “should be engineering the future and building out the start-ups and the future Chinese versions of SpaceX.”`\
 https://www.nytimes.com/video/opinion/100000010892482/why-china-fears-the-ai-girlfriend.html
