@@ -1,3 +1,11 @@
+**Freezable, Grillable, Party-Worthy**\
+`In my latest Recipe Matchmaker, I’ve got great vegetarian recipes for hyper-specific conditions.`\
+https://www.nytimes.com/2026/05/14/dining/freezable-grillable-party-worthy.html
+
+**Medical Plane Crashes in New Mexico, Killing All 4 People Aboard**\
+`The plane was traveling from Roswell to Sierra Blanca Regional Airport, a trip of less than 30 minutes. The cause of the crash was not known, officials said.`\
+https://www.nytimes.com/2026/05/14/us/medical-plane-crash-new-mexico-four-dead.html
+
 **Climate Change as a 2026 Campaign Issue**\
 `Readers largely disagree with a guest essay that argued that Democrats should not focus on it. Also: Violence against Latinos; school closings.`\
 https://www.nytimes.com/2026/05/14/opinion/climate-change-2026-election.html

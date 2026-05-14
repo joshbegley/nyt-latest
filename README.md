@@ -1,3 +1,7 @@
+**TK**\
+`TK`\
+https://static01.nyt.com/slideshow/2026/05/14/t-magazine/tk.html
+
 **Freezable, Grillable, Party-Worthy**\
 `In my latest Recipe Matchmaker, I’ve got great vegetarian recipes for hyper-specific conditions.`\
 https://www.nytimes.com/2026/05/14/dining/freezable-grillable-party-worthy.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/live/2026/05/14/technology/openai-trial-sam-altman-elon-
 **2028 Republican Presidential Primary: Latest Polls**\
 `Track the latest polls in the Republican primary for President of the United States.`\
 https://www.nytimes.com/interactive/polls/president-republican-primary-polls-2028.html
-
-**2028 Democratic Presidential Primary: Latest Polls**\
-`Track the latest polls in the Democratic primary for President of the United States.`\
-https://www.nytimes.com/interactive/polls/president-democratic-primary-polls-2028.html
 
