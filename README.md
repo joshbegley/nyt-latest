@@ -1,3 +1,7 @@
+**Where Are the Women at the Trump-Xi Summit?**\
+`Nearly all the business leaders and officials accompanying President Trump in China are men. There are few women on the Chinese side, too.`\
+https://www.nytimes.com/2026/05/14/world/asia/trump-xi-meeting-china-women-melania.html
+
 **In Qatar, Energy Sector Damage Is Severe, and the Way Back Will Be Long**\
 `Iranian strikes and a blockade have paralyzed Qatar’s gas engine, creating a technical bottleneck likely to stall exports for years.`\
 https://www.nytimes.com/2026/05/14/business/qatar-lng-iran.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/14/podcasts/the-headlines/china-leverage-us-oil-
 **A New Leader — and a New Showdown — at the Fed**\
 `Kevin Warsh was sworn in as the new chair of the Federal Reserve.`\
 https://www.nytimes.com/2026/05/14/podcasts/the-daily/warsh-powell-federal-reserve.html
-
-**Wordle Review No. 1,791**\
-`Scroll down for hints and conversation about the puzzle for Friday, May 15, 2026.`\
-https://www.nytimes.com/2026/05/14/crosswords/wordle-review-1791.html
 

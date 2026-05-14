@@ -1,3 +1,11 @@
+**In Qatar, Energy Sector Damage Is Severe, and the Way Back Will Be Long**\
+`Iranian strikes and a blockade have paralyzed Qatar’s gas engine, creating a technical bottleneck likely to stall exports for years.`\
+https://www.nytimes.com/2026/05/14/business/qatar-lng-iran.html
+
+**U.C.L.A. Considers New Tactics to Combat Antisemitism**\
+`The Trump administration has sued the university, saying it didn’t do enough to protect Jews on campus.`\
+https://www.nytimes.com/2026/05/14/us/ucla-considers-new-tactics-to-combat-antisemitism.html
+
 **The C.E.O.s for Spencer Pratt**\
 `The former reality-TV star has shaken up the Los Angeles mayoral race, gaining support from deep-pocketed donors like the financier Daniel S. Loeb.`\
 https://www.nytimes.com/2026/05/14/business/dealbook/spencer-pratt-ceo-support.html

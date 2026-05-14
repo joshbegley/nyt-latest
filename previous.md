@@ -1,3 +1,11 @@
+**In Qatar, Energy Sector Damage Is Severe, and the Way Back Will Be Long**\
+`Iranian strikes and a blockade have paralyzed Qatar’s gas engine, creating a technical bottleneck likely to stall exports for years.`\
+https://www.nytimes.com/2026/05/14/business/qatar-lng-iran.html
+
+**U.C.L.A. Considers New Tactics to Combat Antisemitism**\
+`The Trump administration has sued the university, saying it didn’t do enough to protect Jews on campus.`\
+https://www.nytimes.com/2026/05/14/us/ucla-considers-new-tactics-to-combat-antisemitism.html
+
 **The C.E.O.s for Spencer Pratt**\
 `The former reality-TV star has shaken up the Los Angeles mayoral race, gaining support from deep-pocketed donors like the financier Daniel S. Loeb.`\
 https://www.nytimes.com/2026/05/14/business/dealbook/spencer-pratt-ceo-support.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/14/podcasts/the-daily/warsh-powell-federal-reser
 **Wordle Review No. 1,791**\
 `Scroll down for hints and conversation about the puzzle for Friday, May 15, 2026.`\
 https://www.nytimes.com/2026/05/14/crosswords/wordle-review-1791.html
-
-**Strands Sidekick No. 803**\
-`Scroll down for hints and conversation about the puzzle for Friday, May 15, 2026.`\
-https://www.nytimes.com/2026/05/14/crosswords/strands-sidekick-803.html
-
-**Connections Companion No. 1,069**\
-`Scroll down for hints and conversation about the puzzle for Friday, May 15, 2026.`\
-https://www.nytimes.com/2026/05/14/crosswords/connections-companion-1069.html
 
