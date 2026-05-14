@@ -1,3 +1,19 @@
+**El auge y declive del AK-47**\
+`Una familia de armas que en su día fue omnipresente en el mercado estadounidense ha empezado a desaparecer por diversas razones.`\
+https://www.nytimes.com/es/2026/05/14/espanol/estados-unidos/ak47-menos-produccion.html
+
+**¿Comer sano? No, ellos comen bíblicamente**\
+`Una dieta inspirada en las Escrituras ha encontrado nuevas audiencias en internet como sustento al movimiento de Hagamos a Estados Unidos saludable de nuevo.`\
+https://www.nytimes.com/es/2026/05/14/espanol/estilos-de-vida/comer-dieta-biblia.html
+
+**Xi referenced ‘great changes unseen in a century.’ Here’s what that means.**\
+``\
+https://www.nytimes.com/live/2026/05/13/world/trump-xi-summit-china/xi-referenced-great-changes-unseen-in-a-century-heres-what-that-means
+
+**Xi Lays Out Blunt Warning For Trump Over Taiwan.**\
+`China’s leader, Xi Jinping said relations between the two countries could enter an “extremely dangerous place” if Mr. Trump ignored China’s demands over Taiwan.`\
+https://www.nytimes.com/2026/05/14/world/asia/china-xi-trump-taiwan-warning.html
+
 **‘Rots Your Brain’**\
 `What do you think this image is communicating?`\
 https://www.nytimes.com/2026/05/14/learning/rots-your-brain.html
