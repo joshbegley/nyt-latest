@@ -1,3 +1,31 @@
+**El síndrome de ovario poliquístico ahora será conocido como SOMP**\
+`La enfermedad ha sido rebautizada como síndrome ovárico metabólico poliendocrino para reflejar mejor sus amplios efectos sobre la salud.`\
+https://www.nytimes.com/es/2026/05/14/espanol/estilos-de-vida/sindrome-ovario-poliquistico-cambia-nombre.html
+
+**¿Los abogados del gobierno están por encima de los cuerpos disciplinarios de la profesión? Una demanda en EE. UU. lo analiza**\
+`El Departamento de Justicia de EE. UU. impulsa una propuesta para intentar paralizar o retrasar que los colegios de abogados sancionen la ética de los profesionales que trabajan para el gobierno de Trump.`\
+https://www.nytimes.com/es/2026/05/14/espanol/estados-unidos/abogados-trump-etica-departamento-justicia.html
+
+**Searching for an Actually Good Gluten-Free Pizza and More Readers Questions**\
+`Becky Hughes is back to answer readers’ hyperspecific restaurant questions.`\
+https://www.nytimes.com/2026/05/14/dining/searching-for-an-actually-good-gluten-free-pizza-and-more-readers-questions.html
+
+**The Body Language of the Trump-Xi Summit Spoke Volumes**\
+`Although at odds over issues like trade and Taiwan, the U.S. and Chinese leaders met in Beijing with a show of friendly gestures.`\
+https://www.nytimes.com/2026/05/14/world/asia/trump-xi-body-language.html
+
+**Justice Dept. Accuses Yale Medical School of Discriminating Against White and Asian Applicants**\
+`The finding was the second time in eight days that the Trump administration had targeted a major medical school over admissions policies.`\
+https://www.nytimes.com/2026/05/14/us/politics/doj-lawsuit-yale-medical.html
+
+**A Top U.S. Commander Dismisses Reports of Civilian Deaths in Iran**\
+`Adm. Brad Cooper’s testimony suggested that he believed that the U.S. military had been near perfect in avoiding civilian casualties.`\
+https://www.nytimes.com/2026/05/14/us/politics/civilian-deaths-strikes-iran.html
+
+**Microsoft’s C.E.O. testified about the company’s OpenAI investments.**\
+``\
+https://www.nytimes.com/live/2026/05/14/technology/openai-trial-sam-altman-elon-musk/microsofts-ceo-testified-about-the-companys-openai-investments
+
 **Here’s What It Costs to Keep a Coal Plant Open**\
 `A regulatory filing explains just how much it costs to keep an aging coal plant open under the Trump administration’s orders.`\
 https://www.nytimes.com/2026/05/14/climate/heres-what-it-costs-to-keep-a-coal-plant-open.html
@@ -49,32 +77,4 @@ https://www.nytimes.com/2026/05/14/climate/chemical-safety-board-disaster-warnin
 **As Trump Meets Xi, Iran Lets Chinese Ships Through Strait of Hormuz**\
 `Iranian news agencies said some Chinese ships were being allowed through the strait, following diplomatic outreach to Iran from Beijing.`\
 https://www.nytimes.com/2026/05/14/world/middleeast/iran-strait-hormuz-china-ships.html
-
-**Appeals Court Appears Skeptical of Trump Orders Targeting Law Firms**\
-`A three-judge panel showed few signs of siding with the president on his efforts to compel law firms to work for the administration or face threats.`\
-https://www.nytimes.com/2026/05/14/us/politics/trump-law-firms-appeals-court.html
-
-**Trump Was Flattering, Xi Was Resolute. The Difference Spoke Volumes.**\
-`In contrast to his rhetoric about China at home, President Trump spoke in conciliatory terms with Xi Jinping, the Chinese leader.`\
-https://www.nytimes.com/2026/05/14/world/asia/trump-xi-jinping-us-china.html
-
-**Justice Dept. Aims to Denaturalize Ex-Marine for Sex Crime**\
-`In recent decades, the federal authorities have generally revoked U.S. citizenship from people accused of wrongdoing on their citizenship applications. A new case focuses on a crime committed later.`\
-https://www.nytimes.com/2026/05/14/us/denaturalization-citizen-sex-crime.html
-
-**E.P.A. Moves to Weaken Water Pollution Rule for Coal Plants**\
-`The agency also said it would delay the implementation of an air pollution rule for cars and trucks by two years.`\
-https://www.nytimes.com/2026/05/14/climate/epa-coal-plants-wastewater.html
-
-**Xi no deja dudas a Trump: Taiwán tiene alta prioridad**\
-`El líder chino, Xi Jinping, dijo que las relaciones entre ambos países podrían volverse una “situación extremadamente peligrosa” si Trump hace caso omiso de las exigencias chinas sobre Taiwán.`\
-https://www.nytimes.com/es/2026/05/14/espanol/mundo/china-taiwan-trump.html
-
-**Latino Groups Unite to Win Back Hispanic Voters for Democrats in Midterms**\
-`Four longtime Latino civil rights and political organizations are joining efforts to register voters and mobilize Hispanic Democrats in the wake of rising voting restrictions.`\
-https://www.nytimes.com/2026/05/14/us/politics/latino-voters-outreach.html
-
-**What Teenagers Are Saying About Writing By Hand in the Digital Age**\
-`Students react to a call for more handwritten letters and explore the cognitive and emotional differences between writing by hand and typing.`\
-https://www.nytimes.com/2026/05/14/learning/what-teenagers-are-saying-about-writing-by-hand-in-the-digital-age.html
 
