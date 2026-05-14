@@ -1,3 +1,19 @@
+**‘Be Like Satoshi’: We Unmask Scottie Pippen’s A.I. Crypto Slop**\
+`Why is the Bulls legend hawking “the Mona Lisa of sports” as a talking Web3 meme coin NFT?`\
+https://www.nytimes.com/2026/05/14/podcasts/be-like-satoshi-we-unmask-scottie-pippens-ai-crypto-slop.html
+
+**In Venice, the Passion of Life and the Ghost of Art**\
+`The 2026 edition of the world’s oldest art exhibition is a celebration of vitality — for better and indeed for worse.`\
+https://www.nytimes.com/2026/05/14/arts/venice-biennale-artworks.html
+
+**Elon Musk Returns to Trump’s Side in Beijing**\
+`Mr. Musk is part of a delegation of business leaders to China, where his interests include Tesla’s electric vehicle factory and solar panels.`\
+https://www.nytimes.com/2026/05/14/world/asia/musk-china-trump-xi-beijing.html
+
+**Tras la desaparición de sus dos hijos, su búsqueda la convirtió en la voz de las madres mexicanas**\
+`Una de las activistas más destacadas en la lucha por los desaparecidos en México encontró recientemente los restos de uno de sus hijos desaparecidos. Ahora ha centrado sus esfuerzos en encontrar al otro.`\
+https://www.nytimes.com/es/2026/05/14/espanol/america-latina/madre-buscadora-mexico.html
+
 **I Don’t Think You Can Even Call This Hypocrisy**\
 `The secrets of one of the architects of the religious right are being revealed. One of the secrets is that they weren’t really secrets.`\
 https://www.nytimes.com/2026/05/14/opinion/southern-baptist-convention-paul-pressler.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/05/14/opinion/thomas-massie-trump-republicans.html
 **He Was Good at Steering the Fed, but He Was a Genius at Ignoring Trump’s Threats**\
 `A model for all who follow.`\
 https://www.nytimes.com/2026/05/14/opinion/jerome-powell-fed-chair.html
-
-**Why ‘Smart’ Products Have Started to Look Like the Dumb Choice**\
-`How Wi-Fi-connecting, app-based tech led to a backlash in the name of simplicity`\
-https://www.nytimes.com/2026/05/14/magazine/dumb-phones-tvs-retronym-smart-tech.html
-
-**What Do You Think About ‘Teen Takeovers’?**\
-`Have you heard about or participated in these youth gatherings? Do you think they’re a problem?`\
-https://www.nytimes.com/2026/05/14/learning/what-do-you-think-about-teen-takeovers.html
-
-**A Bedroom Where Leopard-Print Carpeting and Green Walls Do the Talking**\
-`The husband-and-wife duo behind Wretched Flowers keep their bedroom cozy with bespoke treasures.`\
-https://www.nytimes.com/2026/05/14/realestate/a-bedroom-where-leopard-print-carpeting-and-green-walls-do-the-talking.html
-
-**What Autocrats Have in Common With Abusers**\
-`M. Gessen and Rachel Louise Snyder on the parallels between authoritarianism and domestic violence.`\
-https://www.nytimes.com/2026/05/14/opinion/trump-domestic-violence-authoritarian.html
 
