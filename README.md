@@ -1,3 +1,7 @@
+**Our Public Health Agencies Have No Leaders. What Could Possibly Go Wrong?**\
+`We have no F.D.A. director, no permanent C.D.C. director and no surgeon general.`\
+https://www.nytimes.com/2026/05/14/opinion/public-health-leaders-fda-cdc-surgeon-general.html
+
 **Open Primaries Have Their Fans. The Parties Are Not Among Them.**\
 `New research claims that bipartisan primaries have broad societal benefit, but opposition is growing, and Louisiana voters this weekend will participate in the state’s first closed primary since 1978.`\
 https://www.nytimes.com/2026/05/14/us/politics/open-primaries-improve-lives.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/14/learning/what-teenagers-are-saying-about-writ
 **Spies, Sanctions, Cyberattacks: China and the U.S. Clash Behind the Scenes**\
 `After months of avoiding confrontation, the Trump administration has taken recent steps to call out China on Iran, artificial intelligence and spying.`\
 https://www.nytimes.com/2026/05/14/us/politics/china-us-sanctions-ai-cybersecurity.html
-
-**Clarence Carter, Singer of Lust-Filled Soul Hits, Dies at 90**\
-`In songs like “Slip Away” and “Back Door Santa,” he performed with the fervor of a backwoods preacher and the bawdy humor of a juke joint.`\
-https://www.nytimes.com/2026/05/14/arts/music/clarence-carter-dead.html
 
