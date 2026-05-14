@@ -1,3 +1,7 @@
+**Who’s Running in 2028?**\
+`We look at potential candidates for the nation’s top job.`\
+https://www.nytimes.com/2026/05/14/briefing/whos-running-for-president-in-2028.html
+
 **Trump en China**\
 `El presidente será recibido con todos los honores, pero la profunda brecha que hay entre Estados Unidos y China será muy difícil de reparar.`\
 https://www.nytimes.com/es/2026/05/14/espanol/mundo/trump-en-china.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/14/opinion/southern-baptist-convention-paul-pres
 **The Trump Dumpster Fire Is Lit**\
 `When MAHA turns into HAHA.`\
 https://www.nytimes.com/2026/05/14/opinion/trump-politics-maha.html
-
-**Prospect of Murdaugh Retrial Puts Rural South Carolina Back in Spotlight**\
-`The State Supreme Court cited a local court clerk in reversing the result of one of the most-watched murder trials of the last decade. It has raised painful memories in the state’s Lowcountry region.`\
-https://www.nytimes.com/2026/05/14/us/murdaugh-murder-conviction-overturned-reaction.html
 
