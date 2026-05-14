@@ -1,3 +1,11 @@
+**Political Organizer Wins Democratic Primary in Key Nebraska House Race**\
+`Denise Powell prevailed in a close primary race for an Omaha-based seat, currently held by a retiring Republican, that could help determine control of the House.`\
+https://www.nytimes.com/2026/05/13/us/politics/denise-powell-nebrasaka-house-don-bacon.html
+
+**Trump Says He Will Raise Jimmy Lai’s Case to Xi, as Lawmakers Press for His Release**\
+`Mr. Trump has shown less appetite for wading into human rights issues than past U.S. presidents at summits with Beijing, but said he would raise the case of the imprisoned pro-democracy media mogul.`\
+https://www.nytimes.com/2026/05/13/world/asia/trump-says-he-will-raise-jimmy-lais-case-to-xi-as-lawmakers-press-for-his-release.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/05/13/world/trump-xi-summit-china/heres-the-latest
