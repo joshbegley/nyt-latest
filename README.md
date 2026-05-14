@@ -1,3 +1,15 @@
+**What Teenagers Are Saying About Writing By Hand in the Digital Age**\
+`Students react to a call for more handwritten letters and explore the cognitive and emotional differences between writing by hand and typing.`\
+https://www.nytimes.com/2026/05/14/learning/what-teenagers-are-saying-about-writing-by-hand-in-the-digital-age.html
+
+**Spies, Sanctions, Cyberattacks: China and the U.S. Clash Behind the Scenes**\
+`After months of avoiding confrontation, the Trump administration has taken recent steps to call out China on Iran, artificial intelligence and spying.`\
+https://www.nytimes.com/2026/05/14/us/politics/china-us-sanctions-ai-cybersecurity.html
+
+**Clarence Carter, Singer of Lust-Filled Soul Hits, Dies at 90**\
+`In songs like “Slip Away” and “Back Door Santa,” he performed with the fervor of a backwoods preacher and the bawdy humor of a juke joint.`\
+https://www.nytimes.com/2026/05/14/arts/music/clarence-carter-dead.html
+
 **Why A.I. Safety Controls Are Not Very Effective**\
 `Three years after the debut of ChatGPT, fooling A.I. systems into bad behavior is almost trivial.`\
 https://www.nytimes.com/2026/05/14/technology/artificial-intelligence-safety-controls.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/14/us/us-soldier-missing-morocco-body-found.html
 **‘Is God Is’ Review: The Fires This Time**\
 `Kara Young and Mallori Johnson play twins bent on revenge in the playwright Aleshea Harris’s powerhouse film debut.`\
 https://www.nytimes.com/2026/05/14/movies/is-god-is-review.html
-
-**University of Chicago Waives Tuition for Families Making Under $250,000**\
-`It becomes one of just a couple of major universities offering free tuition to families at that income level.`\
-https://www.nytimes.com/2026/05/14/us/university-of-chicago-free-tuition-250000-income.html
-
-**Elon Musk’s lawyer asked Sam Altman on the stand: Are you trustworthy?**\
-``\
-https://www.nytimes.com/live/2026/05/14/technology/openai-trial-sam-altman-elon-musk/elon-musks-lawyer-asks-sam-altman-on-the-stand-are-you-trustworthy
-
-**U.S. Set to Drop Charges Against Indian Billionaire Accused of Fraud**\
-`The decision came after a meeting in which a lawyer for the billionaire, Gautam Adani, made an unusual offer, according to people familiar with the matter.`\
-https://www.nytimes.com/2026/05/14/nyregion/gautam-adani-billionaire-doj-trump.html
 

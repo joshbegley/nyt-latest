@@ -1,3 +1,15 @@
+**Why A.I. Safety Controls Are Not Very Effective**\
+`Three years after the debut of ChatGPT, fooling A.I. systems into bad behavior is almost trivial.`\
+https://www.nytimes.com/2026/05/14/technology/artificial-intelligence-safety-controls.html
+
+**A.I. Chip Maker Soars 89% in Market Debut, as Tech I.P.O.s Ramp Up**\
+`Cerebras, a Silicon Valley maker of artificial intelligence chips, began trading on the stock market on Thursday, as SpaceX, OpenAI and Anthropic also take steps to go public.`\
+https://www.nytimes.com/2026/05/14/technology/cerebras-ipo-ai.html
+
+**Strategist Tied to Becerra and Newsom Pleads Guilty in Corruption Case**\
+`Dana Williamson, a former political strategist for Xavier Becerra and a former aide to Gov. Gavin Newsom, appeared in federal court on Thursday.`\
+https://www.nytimes.com/2026/05/14/us/becerra-newsom-strategist-plea-california-governor-race.html
+
 **Dating in a Swipeless World**\
 `Bumble is losing the feature that reshaped how we look for love. Daters may be ready for something more intentional.`\
 https://www.nytimes.com/2026/05/14/well/bumble-swipe-feature-online-dating-apps.html
