@@ -28,7 +28,7 @@ https://www.nytimes.com/2026/05/13/pageoneplus/quote-of-the-day-teenagers-get-a-
 
 **A Watchful Beijing Tightens Security for Trump’s Visit**\
 `Historic sites and roads have been closed in the Chinese capital for President Trump’s state visit, resulting in severe traffic and disappointed tourists.`\
-https://www.nytimes.com/2026/05/13/world/asia/a-watchful-beijing-tightens-security-for-trumps-visit.html
+https://www.nytimes.com/2026/05/13/world/asia/trump-china-xi-beijing-security.html
 
 ****\
 ``\

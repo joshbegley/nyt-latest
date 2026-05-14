@@ -1,3 +1,7 @@
+**7 movimientos para prevenir el dolor de hombro**\
+`Estos ejercicios pueden ayudarte a evitar molestias al mejorar tu fuerza y movilidad.`\
+https://www.nytimes.com/es/2026/05/14/espanol/prevenir-dolor-hombro-ejercicios.html
+
 **President Trump Goes to China**\
 `His talks with Xi Jinping in Beijing could decide whether the United States and China maintain their uneasy truce on trade.`\
 https://www.nytimes.com/2026/05/14/world/europe/trump-china-photos.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/us/politics/100000010902240/trump-beijing-musk-mee
 **Man Pleads Guilty to Ramming Car Into Chabad Headquarters**\
 `The man, Dan Sohail, admitted on Wednesday in Brooklyn federal court to pounding his car repeatedly into the building at the Chabad-Lubavitch Orthodox complex.`\
 https://www.nytimes.com/2026/05/13/nyregion/man-pleads-guilty-to-ramming-car-into-chabad-headquarters.html
-
-**Mamdani Urges New York State to Block Western Union Deal**\
-`New York City’s mayor said the company’s proposed acquisition of Intermex could make it costlier for immigrants to send money abroad.`\
-https://www.nytimes.com/2026/05/13/business/zohran-mamdani-western-union-intermex.html
 

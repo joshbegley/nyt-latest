@@ -1,3 +1,7 @@
+**7 movimientos para prevenir el dolor de hombro**\
+`Estos ejercicios pueden ayudarte a evitar molestias al mejorar tu fuerza y movilidad.`\
+https://www.nytimes.com/es/2026/05/14/espanol/prevenir-dolor-hombro-ejercicios.html
+
 **President Trump Goes to China**\
 `His talks with Xi Jinping in Beijing could decide whether the United States and China maintain their uneasy truce on trade.`\
 https://www.nytimes.com/2026/05/14/world/europe/trump-china-photos.html
