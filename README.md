@@ -1,3 +1,31 @@
+**Dejar la casa atrás para vivir sobre ruedas**\
+`Con pocos motivos para quedarse atados a un hogar fijo, algunos padres con el nido vacío están optando por salir a la carretera.`\
+https://www.nytimes.com/es/2026/05/14/espanol/estados-unidos/jubilacion-casa-rodante.html
+
+**¿D’Artagnan fue enterrado en los Países Bajos?**\
+`El pueblo de Wolder exhumó un esqueleto que estaba debajo de una de sus iglesias. Espera ansioso los resultados de ADN para saber si los restos pertenecen al conde inmortalizado por Alejandro Dumas.`\
+https://www.nytimes.com/es/2026/05/14/espanol/mundo/mosqueteros-dartagnan-entierro-paises-bajos.html
+
+**Palabra del día: ‘epithet’**\
+`Esta palabra ha aparecido en 35 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/05/14/espanol/que-significa-epithet.html
+
+**Word of the Day: epithet**\
+`This word has appeared in 35 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/05/14/learning/word-of-the-day-epithet.html
+
+**Trump’s 2017 visit to Beijing offers clues for this year’s summit.**\
+``\
+https://www.nytimes.com/live/2026/05/13/world/trump-xi-summit-china/trumps-2017-visit-to-beijing-offers-clues-for-this-years-summit
+
+**Stephen Colbert Slams ‘Trump’s Fabulous Billionaire Boys Trip’**\
+`Late night hosts responded to President Trump’s arrival in Beijing on Wednesday, accompanied by 17 chief executives including Tim Cook and Elon Musk.`\
+https://www.nytimes.com/2026/05/14/arts/television/late-night-trump-china-musk.html
+
+**Honda Posts First Ever Annual Loss After Pullback From EVs**\
+`Honda posted its first loss since 1957 as it took a multibillion-dollar hit from scaling back its electric-vehicle plans.`\
+https://www.nytimes.com/2026/05/14/business/honda-earnings-electric-vehicles.html
+
 **Trump no debe darle más victorias a China**\
 `La política de Trump hacia China ha debilitado a EE. UU., especialmente en su segundo mandato.`\
 https://www.nytimes.com/es/2026/05/14/espanol/opinion/trump-china.html
@@ -49,32 +77,4 @@ https://www.nytimes.com/2026/05/13/us/south-carolina-special-session-redistricti
 **Irán, Taiwán y la tregua comercial: las cartas de Xi para negociar con Trump**\
 `China quiere que continúe la tregua comercial con EE. UU. Eso significa que Xi negociará con Trump para que no se impongan más aranceles, ni controles a las exportaciones, ni sanciones a sus empresas.`\
 https://www.nytimes.com/es/2026/05/13/espanol/mundo/china-trump-xi-reunion.html
-
-**U.S. Cruise Passenger Moved Out of Isolation**\
-`The passenger, who had tested positive once in the Canary Islands, was being monitored in a special biocontainment facility in Omaha, until a new test came back negative.`\
-https://www.nytimes.com/2026/05/13/us/hantavirus-us-passenger-quarantine-negative.html
-
-**Pair for a Pool**\
-`Thirsty for a Thursday challenge? Simeon Seigel is here to help.`\
-https://www.nytimes.com/2026/05/13/crosswords/daily-puzzle-2026-05-14.html
-
-**Is America Still No. 1?**\
-`The billionaire investor who predicted the 2008 financial crash is bearish on America’s future standing in the world. On “Interesting Times,” Ray Dalio tells the columnist Ross Douthat why.`\
-https://www.nytimes.com/video/opinion/100000010875155/is-america-still-no-1.html
-
-**Watch Live: Trump Meets Xi as U.S.-China Summit Kicks Off**\
-`China’s leader, Xi Jinping, and President Trump participate in a meeting at Beijing’s Great Hall of the People.`\
-https://www.nytimes.com/video/embedded/world/asia/100000010902714/watch-live-trump-meets-xi-as-us-china-summit-kicks-off.html
-
-**Judge Orders U.S. to Return Colombian Woman Deported to Congo**\
-`The unusual ruling came after the judge found that the Trump administration had most likely violated the law by deporting the 55-year-old woman to the African country despite its refusal to take her.`\
-https://www.nytimes.com/2026/05/13/world/africa/congo-colombia-deportee-return.html
-
-**11 Rescued From Raft After Plane Crash Off the Coast of Florida**\
-`Those on board, who were all Bahamian adults, spent about five hours stranded on a raft before rescuers hoisted them to safety. All were in stable condition, officials said.`\
-https://www.nytimes.com/2026/05/13/us/plane-crash-florida-rescue.html
-
-**Justice Dept. Sues to Block Ethics Punishments of Administration Lawyers**\
-`The move escalates the administration’s feud with legal disciplinary bodies over the ethical conduct of government lawyers.`\
-https://www.nytimes.com/2026/05/13/us/doj-lawsuit-dc-bar-trump.html
 
