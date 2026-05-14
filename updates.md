@@ -1,3 +1,11 @@
+**Our Public Health Agencies Have No Leaders. What Could Possibly Go Wrong?**\
+`We have no F.D.A. director, no permanent C.D.C. director and no surgeon general.`\
+https://www.nytimes.com/2026/05/14/opinion/public-health-leaders-fda-cdc-surgeon-general.html
+
+**The Mystery of a Congressman’s Absence Deepens**\
+`Representative Thomas Kean Jr. last voted in Washington on March 5, citing a medical issue. An appearance planned for late May has been canceled.`\
+https://www.nytimes.com/2026/05/14/nyregion/tom-kean-congress-missing.html
+
 **Open Primaries Have Their Fans. The Parties Are Not Among Them.**\
 `New research claims that bipartisan primaries have broad societal benefit, but opposition is growing, and Louisiana voters this weekend will participate in the state’s first closed primary since 1978.`\
 https://www.nytimes.com/2026/05/14/us/politics/open-primaries-improve-lives.html
