@@ -1,3 +1,7 @@
+**U.S. Cruise Passenger Moved Out of Isolation**\
+`The passenger, who had tested positive once in the Canary Islands, was being monitored in a special biocontainment facility in Omaha, until a new test came back negative.`\
+https://www.nytimes.com/2026/05/13/us/us-cruise-passenger-moved-out-of-hantavirus-isolation.html
+
 **Pair for a Pool**\
 `Thirsty for a Thursday challenge? Simeon Seigel is here to help.`\
 https://www.nytimes.com/2026/05/13/crosswords/daily-puzzle-2026-05-14.html
