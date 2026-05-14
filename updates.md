@@ -1,3 +1,7 @@
+**House Again Blocks War Powers Vote to Halt Iran Conflict**\
+`But two vulnerable Republicans joined Democrats in the effort to force President Trump to win authorization from Congress, in the latest sign of G.O.P. jitters over the war.`\
+https://www.nytimes.com/2026/05/14/us/politics/war-powers-vote-house-trump-iran.html
+
 **El silencio del principal asesor militar de Trump deja muchas preguntas**\
 `Como jefe del Estado Mayor Conjunto, el general Dan Caine está obligado a mantenerse al margen de la refriega política provocada por la guerra en Irán. Pero trabaja para un presidente que le exige lealtad absoluta.`\
 https://www.nytimes.com/es/2026/05/14/espanol/estados-unidos/trump-guerra-iran-asesor-ejercito.html
