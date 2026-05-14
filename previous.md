@@ -1,80 +1,80 @@
-**Russia Pummels Kyiv After Putin Hints That War Could End Soon**\
-`At least one person was killed and dozens were wounded in a drone and missile strike, the latest in a series of attacks since a three-day truce expired on Monday.`\
-https://www.nytimes.com/2026/05/14/world/europe/ukraine-strike-kyiv-russia-putin.html
+**I Don’t Think You Can Even Call This Hypocrisy**\
+`The secrets of one of the architects of the religious right are being revealed. One of the secrets is that they weren’t really secrets.`\
+https://www.nytimes.com/2026/05/14/opinion/southern-baptist-convention-paul-pressler.html
 
-**China Restores Beef Trade With U.S. as Goodwill Gesture for Trump Visit**\
-`Beijing approved export licenses for hundreds of American slaughterhouses to resume beef shipments, ending a 15-month ban.`\
-https://www.nytimes.com/2026/05/14/world/asia/trump-china-beef.html
+**In Some Other Universe, This Might Be Funny**\
+`When MAHA turns into HAHA.`\
+https://www.nytimes.com/2026/05/14/opinion/trump-politics-maha.html
 
-**Trump and Xi Meet as Summit Begins**\
-`President Trump shook hands with President Xi Jinping of China at the start of a two-day summit in Beijing on Thursday. They are expected to discuss trade, Iran and Taiwan.`\
-https://www.nytimes.com/video/world/asia/100000010903139/trump-xi-china-summit.html
+**Prospect of Murdaugh Retrial Puts Rural South Carolina Back in Spotlight**\
+`The State Supreme Court cited a local court clerk in reversing the result of one of the most-watched murder trials of the last decade. It has raised painful memories in the state’s Lowcountry region.`\
+https://www.nytimes.com/2026/05/14/us/murdaugh-murder-conviction-overturned-reaction.html
 
-**El auge y declive del AK-47**\
-`Una familia de armas que en su día fue omnipresente en el mercado estadounidense ha empezado a desaparecer por diversas razones.`\
-https://www.nytimes.com/es/2026/05/14/espanol/estados-unidos/ak47-menos-produccion.html
+**Exploring the Co-ops of Riverdale With About $600,000**\
+`Determined to downsize, two longtime Manhattanites looked north to the Bronx for an apartment with two or three bedrooms, a balcony, and maybe even a pool.`\
+https://www.nytimes.com/interactive/2026/05/14/realestate/bronx-riverdale-spuyten-duyvil-apartments.html
 
-**¿Comer sano? No, ellos comen bíblicamente**\
-`Una dieta inspirada en las Escrituras ha encontrado nuevas audiencias en internet como sustento al movimiento de Hagamos a Estados Unidos saludable de nuevo.`\
-https://www.nytimes.com/es/2026/05/14/espanol/estilos-de-vida/comer-dieta-biblia.html
+**Oil Prices Rise as Trump Meets China’s Xi**\
+`The president is expected to urge the Chinese leader to help ease tensions in the Middle East by helping to persuade Iran to end the war.`\
+https://www.nytimes.com/2026/05/14/business/oil-stocks-gas-iran-trump-china.html
 
-**Xi referenced ‘great changes unseen in a century.’ Here’s what that means.**\
-``\
-https://www.nytimes.com/live/2026/05/13/world/trump-xi-summit-china/xi-referenced-great-changes-unseen-in-a-century-heres-what-that-means
+**China Doesn’t Worry About A.I. Like We Do**\
+`The difference in perspectives between superpowers is shaping the race for A.I. dominance.`\
+https://www.nytimes.com/2026/05/14/opinion/china-trump-ai-xi.html
 
-**Xi Lays Out Blunt Warning For Trump Over Taiwan.**\
-`China’s leader, Xi Jinping said relations between the two countries could enter an “extremely dangerous place” if Mr. Trump ignored China’s demands over Taiwan.`\
-https://www.nytimes.com/2026/05/14/world/asia/china-xi-trump-taiwan-warning.html
+**Graduates Boo Commencement Speech About A.I.**\
+`Humanities students made their displeasure known at the University of Central Florida.`\
+https://www.nytimes.com/2026/05/14/style/ucf-commencement-ai-booed-gloria-caulfield.html
 
-**‘Rots Your Brain’**\
-`What do you think this image is communicating?`\
-https://www.nytimes.com/2026/05/14/learning/rots-your-brain.html
+**Why the Migrant Child Crisis Is Roiling the California Governor Race**\
+`The Times broke the story that has become a dominant line of attack against Xavier Becerra, the Democratic front-runner. Here are five things to know about it.`\
+https://www.nytimes.com/2026/05/14/us/politics/xavier-becerra-migrant-children.html
 
-**What Could One Banana Cost? $10? Maybe for You, Some Fear.**\
-`Grocery stores can use shoppers’ personal data to charge different customers different prices. Lawmakers in New York are considering a ban.`\
-https://www.nytimes.com/2026/05/14/nyregion/nyc-grocery-stores-surveillance-pricing.html
+**Beyoncé and Taylor Swift Join National Recording Registry**\
+`The collection at the Library of Congress also added works by Weezer and Vince Gill, and a radio broadcast of a fight between Muhammad Ali and Joe Frazier.`\
+https://www.nytimes.com/2026/05/14/arts/music/national-recording-registry-beyonce-taylor-swift.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/05/14/crosswords/spelling-bee-forum.html
+**The Devil Wears Prada, Workers Get Nada.**\
+`The sequel delivers, but stories about the working class are going out of style.`\
+https://www.nytimes.com/2026/05/14/podcasts/the-devil-wears-prada-workers-get-nada.html
 
-**In a City of Big Dreams, Many Young Adults See a Cloudy Future**\
-`A bleak job market. Rising rents. Huge debt. In New York and other cities, traditional milestones of adulthood feel further away for some 20- and 30-year-olds.`\
-https://www.nytimes.com/2026/05/14/nyregion/gen-z-nyc-unaffordable.html
+**The Devil Wears Prada, Workers Get Nada**\
+`Wesley Morris on “The Devil Wears Prada 2” and the ongoing trend in which bosses, rather than workers, take over the screen.`\
+https://www.nytimes.com/video/podcasts/100000010899094/the-devil-wears-prada-workers-get-nada.html
 
-**It’s a Hard Time to be a Young Adult. We Want to Hear From You.**\
-`I’m a Times reporter writing about young people in the New York City area. Whether you’re a young adult, or work with them, your insights can help.`\
-https://www.nytimes.com/2026/05/14/nyregion/young-adult-nyc-reader-callout.html
+**Argentina Races to Find Origin of Hantavirus Contagion**\
+`The scientific investigation into the origin of cruise infection has become entangled with international finger pointing.`\
+https://www.nytimes.com/2026/05/14/world/americas/hantavirus-cruise-ship-argentina.html
 
-**The Ancient Beijing Temple at the Center of Trump’s Visit**\
-`The Temple of Heaven and Great Hall of the People embody distinct parts of China’s history, which Xi Jinping has sought to underscore while hosting state visits.`\
-https://www.nytimes.com/2026/05/14/world/asia/trump-xi-china-summit-temple-of-heaven-great-hall.html
+**Julieta Venegas, a Mexican Pop Hitmaker, Is Looking Homeward**\
+`On her new album, “Norteña,” the singer embraces regional traditions and unlocks her most personal songwriting yet.`\
+https://www.nytimes.com/2026/05/14/arts/music/julieta-venegas-nortena.html
 
-**Dejar la casa atrás para vivir sobre ruedas**\
-`Con pocos motivos para quedarse atados a un hogar fijo, algunos padres con el nido vacío están optando por salir a la carretera.`\
-https://www.nytimes.com/es/2026/05/14/espanol/estados-unidos/jubilacion-casa-rodante.html
+**Best Booths at Frieze, the Workhorse of Contemporary Art**\
+`Among the 65 galleries at the Shed are paintings, paintings, paintings, and a surprising trove of small sculptures.`\
+https://www.nytimes.com/2026/05/14/arts/design/frieze-new-york-contemporary-art-fair.html
 
-**¿D’Artagnan fue enterrado en los Países Bajos?**\
-`El pueblo de Wolder exhumó un esqueleto que estaba debajo de una de sus iglesias. Espera ansioso los resultados de ADN para saber si los restos pertenecen al conde inmortalizado por Alejandro Dumas.`\
-https://www.nytimes.com/es/2026/05/14/espanol/mundo/mosqueteros-dartagnan-entierro-paises-bajos.html
+**Thomas Massie Is One of a Vanishing Breed: A Republican Who Will Stand Up to Trump**\
+`An individual with principles and quirks, and against being told what to do.`\
+https://www.nytimes.com/2026/05/14/opinion/thomas-massie-trump-republicans.html
 
-**Palabra del día: ‘epithet’**\
-`Esta palabra ha aparecido en 35 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
-https://www.nytimes.com/es/2026/05/14/espanol/que-significa-epithet.html
+**He Was Good at Steering the Fed, but He Was a Genius at Ignoring Trump’s Threats**\
+`A model for all who follow.`\
+https://www.nytimes.com/2026/05/14/opinion/jerome-powell-fed-chair.html
 
-**Word of the Day: epithet**\
-`This word has appeared in 35 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/05/14/learning/word-of-the-day-epithet.html
+**Why ‘Smart’ Products Have Started to Look Like the Dumb Choice**\
+`How Wi-Fi-connecting, app-based tech led to a backlash in the name of simplicity`\
+https://www.nytimes.com/2026/05/14/magazine/dumb-phones-tvs-retronym-smart-tech.html
 
-**Trump’s 2017 visit to Beijing offers clues for this year’s summit.**\
-``\
-https://www.nytimes.com/live/2026/05/13/world/trump-xi-summit-china/trumps-2017-visit-to-beijing-offers-clues-for-this-years-summit
+**What Do You Think About ‘Teen Takeovers’?**\
+`Have you heard about or participated in these youth gatherings? Do you think they’re a problem?`\
+https://www.nytimes.com/2026/05/14/learning/what-do-you-think-about-teen-takeovers.html
 
-**Stephen Colbert Slams ‘Trump’s Fabulous Billionaire Boys Trip’**\
-`Late night hosts responded to President Trump’s arrival in Beijing on Wednesday, accompanied by 17 chief executives including Tim Cook and Elon Musk.`\
-https://www.nytimes.com/2026/05/14/arts/television/late-night-trump-china-musk.html
+**A Bedroom Where Leopard-Print Carpeting and Green Walls Do the Talking**\
+`The husband-and-wife duo behind Wretched Flowers keep their bedroom cozy with bespoke treasures.`\
+https://www.nytimes.com/2026/05/14/realestate/a-bedroom-where-leopard-print-carpeting-and-green-walls-do-the-talking.html
 
-**Honda Posts First Ever Annual Loss After Pullback From E.V.s**\
-`Honda posted its first loss since 1957 as it took a multibillion-dollar hit from scaling back its electric-vehicle plans.`\
-https://www.nytimes.com/2026/05/14/business/honda-earnings-electric-vehicles.html
+**What Autocrats Have in Common With Abusers**\
+`M. Gessen and Rachel Louise Snyder on the parallels between authoritarianism and domestic violence.`\
+https://www.nytimes.com/2026/05/14/opinion/trump-domestic-violence-authoritarian.html
 
