@@ -1,3 +1,7 @@
+**Watch Live: Trump Meets Xi as U.S.-China Summit Kicks Off**\
+`China’s leader, Xi Jinping, and President Trump participate in a meeting at Beijing’s Great Hall of the People.`\
+https://www.nytimes.com/video/embedded/world/asia/100000010902714/watch-live-trump-meets-xi-as-us-china-summit-kicks-off.html
+
 **U.S. Cruise Passenger Moved Out of Isolation**\
 `The passenger, who had tested positive once in the Canary Islands, was being monitored in a special biocontainment facility in Omaha, until a new test came back negative.`\
 https://www.nytimes.com/2026/05/13/us/us-cruise-passenger-moved-out-of-hantavirus-isolation.html

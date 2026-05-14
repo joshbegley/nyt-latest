@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/05/13/crosswords/daily-puzzle-2026-05-14.html
 https://www.nytimes.com/video/opinion/100000010875155/is-america-still-no-1.html
 
 **Watch Live: Trump Meets Xi as U.S.-China Summit Kicks Off**\
-`China’s leader, Xi Jinping, welcomes President Trump at Beijing’s Great Hall of the People.`\
+`China’s leader, Xi Jinping, and President Trump participate in a meeting at Beijing’s Great Hall of the People.`\
 https://www.nytimes.com/video/embedded/world/asia/100000010902714/watch-live-trump-meets-xi-as-us-china-summit-kicks-off.html
 
 **Judge Orders U.S. to Return Colombian Woman Deported to Congo**\

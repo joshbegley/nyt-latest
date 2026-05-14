@@ -1,6 +1,6 @@
 **U.S. Cruise Passenger Moved Out of Isolation**\
 `The passenger, who had tested positive once in the Canary Islands, was being monitored in a special biocontainment facility in Omaha, until a new test came back negative.`\
-https://www.nytimes.com/2026/05/13/us/us-cruise-passenger-moved-out-of-hantavirus-isolation.html
+https://www.nytimes.com/2026/05/13/us/hantavirus-us-passenger-quarantine-negative.html
 
 **Pair for a Pool**\
 `Thirsty for a Thursday challenge? Simeon Seigel is here to help.`\
@@ -71,7 +71,7 @@ https://www.nytimes.com/2026/05/13/nyregion/rudy-giuliani-interview-health.html
 https://www.nytimes.com/2026/05/13/us/venezuelan-doctor-released-from-immigration-custody-texas.html
 
 **The China Gambit: From Nixon to Trump**\
-`President Trump’s visit to Beijing comes as relations with China have become more combative.`\
+`President Trump’s visit to Beijing comes as relations with China have became more combative.`\
 https://www.nytimes.com/2026/05/13/us/politics/china-visits-nixon-to-trump.html
 
 **Man Convicted of Running Illegal Police Station Tied to China’s Government**\
