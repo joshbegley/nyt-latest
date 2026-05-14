@@ -1,3 +1,7 @@
+**A.I. Chip Maker Soars 89% in Market Debut, as Tech I.P.O.s Ramp Up**\
+`Cerebras, a Silicon Valley maker of artificial intelligence chips, began trading on the stock market on Thursday, as SpaceX, OpenAI and Anthropic also take steps to go public.`\
+https://www.nytimes.com/2026/05/14/technology/cerebras-ipo-ai.html
+
 **Dating in a Swipeless World**\
 `Bumble is losing the feature that reshaped how we look for love. Daters may be ready for something more intentional.`\
 https://www.nytimes.com/2026/05/14/well/bumble-swipe-feature-online-dating-apps.html
@@ -30,7 +34,7 @@ https://www.nytimes.com/2026/05/14/us/politics/the-docket-republicans-speech-fcc
 `The actresses both scored Tony nominations for their hilarious turns in Noël Coward’s 1925 farce. Also catch Ben Platt and Rachel Zegler in “The Last Five Years.”`\
 https://www.nytimes.com/2026/05/14/theater/suffs-othello-theater-streaming.html
 
-**Strategist Tied to Becerra and Newsom Pleads Guilty to 3 Felonies**\
+**Strategist Tied to Becerra and Newsom Pleads Guilty in Corruption Case**\
 `Dana Williamson, a former political strategist for Xavier Becerra and a former aide to Gov. Gavin Newsom, appeared in federal court on Thursday.`\
 https://www.nytimes.com/2026/05/14/us/becerra-newsom-strategist-plea-california-governor-race.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/14/nyregion/gautam-adani-billionaire-doj-trump.h
 **Today, In Short**\
 `Biblical eating. Commencement speeches. And a taxidermist.`\
 https://www.nytimes.com/2026/05/14/briefing/today-in-short.html
-
-**Here’s the latest.**\
-``\
-https://www.nytimes.com/live/2026/05/14/technology/openai-trial-sam-altman-elon-musk/heres-the-latest
 

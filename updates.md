@@ -1,3 +1,15 @@
+**Dating in a Swipeless World**\
+`Bumble is losing the feature that reshaped how we look for love. Daters may be ready for something more intentional.`\
+https://www.nytimes.com/2026/05/14/well/bumble-swipe-feature-online-dating-apps.html
+
+**TK**\
+`TK`\
+https://static01.nyt.com/slideshow/2026/05/14/t-magazine/tk.html
+
+**Strategist Tied to Becerra and Newsom Pleads Guilty to 3 Felonies**\
+`Dana Williamson, a former political strategist for Xavier Becerra and a former aide to Gov. Gavin Newsom, appeared in federal court on Thursday.`\
+https://www.nytimes.com/2026/05/14/us/becerra-newsom-strategist-plea-california-governor-race.html
+
 **Freezable, Grillable, Party-Worthy**\
 `In my latest Recipe Matchmaker, I’ve got great vegetarian recipes for hyper-specific conditions.`\
 https://www.nytimes.com/2026/05/14/dining/freezable-grillable-party-worthy.html

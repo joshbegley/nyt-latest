@@ -1,3 +1,11 @@
+**Dating in a Swipeless World**\
+`Bumble is losing the feature that reshaped how we look for love. Daters may be ready for something more intentional.`\
+https://www.nytimes.com/2026/05/14/well/bumble-swipe-feature-online-dating-apps.html
+
+**TK**\
+`TK`\
+https://static01.nyt.com/slideshow/2026/05/14/t-magazine/tk.html
+
 **Freezable, Grillable, Party-Worthy**\
 `In my latest Recipe Matchmaker, I’ve got great vegetarian recipes for hyper-specific conditions.`\
 https://www.nytimes.com/2026/05/14/dining/freezable-grillable-party-worthy.html
@@ -22,8 +30,8 @@ https://www.nytimes.com/2026/05/14/us/politics/the-docket-republicans-speech-fcc
 `The actresses both scored Tony nominations for their hilarious turns in Noël Coward’s 1925 farce. Also catch Ben Platt and Rachel Zegler in “The Last Five Years.”`\
 https://www.nytimes.com/2026/05/14/theater/suffs-othello-theater-streaming.html
 
-**Strategist Tied to Becerra and Newsom Is Expected to Plead Guilty to 3 Felonies**\
-`Dana Williamson, a former political strategist for Xavier Becerra and a former aide to Gov. Gavin Newsom, is scheduled to appear in federal court on Thursday.`\
+**Strategist Tied to Becerra and Newsom Pleads Guilty to 3 Felonies**\
+`Dana Williamson, a former political strategist for Xavier Becerra and a former aide to Gov. Gavin Newsom, appeared in federal court on Thursday.`\
 https://www.nytimes.com/2026/05/14/us/becerra-newsom-strategist-plea-california-governor-race.html
 
 **Hantavirus Doesn’t Spread Easily, but Officials May Be Downplaying Risks**\
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/14/briefing/today-in-short.html
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/05/14/technology/openai-trial-sam-altman-elon-musk/heres-the-latest
-
-**2028 Republican Presidential Primary: Latest Polls**\
-`Track the latest polls in the Republican primary for President of the United States.`\
-https://www.nytimes.com/interactive/polls/president-republican-primary-polls-2028.html
-
-**2028 Democratic Presidential Primary: Latest Polls**\
-`Track the latest polls in the Democratic primary for President of the United States.`\
-https://www.nytimes.com/interactive/polls/president-democratic-primary-polls-2028.html
 
