@@ -1,3 +1,11 @@
+**Irán, Taiwán y la tregua comercial: las cartas de Xi para negociar con Trump**\
+`China quiere que continúe la tregua comercial con EE. UU. Eso significa que Xi negociará con Trump para que no se impongan más aranceles, ni controles a las exportaciones, ni sanciones a sus empresas.`\
+https://www.nytimes.com/es/2026/05/13/espanol/mundo/china-trump-xi-reunion.html
+
+**U.S. Cruise Passenger Moved Out of Isolation**\
+`The passenger, who had tested positive once in the Canary Islands, was being monitored in a special biocontainment facility in Omaha, until a new test came back negative.`\
+https://www.nytimes.com/2026/05/13/us/hantavirus-us-passenger-quarantine-negative.html
+
 **Watch Live: Trump Meets Xi as U.S.-China Summit Kicks Off**\
 `China’s leader, Xi Jinping, and President Trump participate in a meeting at Beijing’s Great Hall of the People.`\
 https://www.nytimes.com/video/embedded/world/asia/100000010902714/watch-live-trump-meets-xi-as-us-china-summit-kicks-off.html
