@@ -1,3 +1,7 @@
+**Open Primaries Have Their Fans. The Parties Are Not Among Them.**\
+`New research claims that bipartisan primaries have broad societal benefit, but opposition is growing, and Louisiana voters this weekend will participate in the state’s first closed primary since 1978.`\
+https://www.nytimes.com/2026/05/14/us/politics/open-primaries-improve-lives.html
+
 **‘No Cameras Where Tom Is’: Mystery of a Congressman’s Absence Deepens**\
 `Representative Thomas Kean Jr. last voted in Washington on March 5, citing a medical issue. An appearance planned for late May has been canceled.`\
 https://www.nytimes.com/2026/05/14/nyregion/tom-kean-congress-missing.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/14/us/politics/china-us-sanctions-ai-cybersecuri
 **Clarence Carter, Singer of Lust-Filled Soul Hits, Dies at 90**\
 `In songs like “Slip Away” and “Back Door Santa,” he performed with the fervor of a backwoods preacher and the bawdy humor of a juke joint.`\
 https://www.nytimes.com/2026/05/14/arts/music/clarence-carter-dead.html
-
-**Why A.I. Safety Controls Are Not Very Effective**\
-`Three years after the debut of ChatGPT, fooling A.I. systems into bad behavior is almost trivial.`\
-https://www.nytimes.com/2026/05/14/technology/artificial-intelligence-safety-controls.html
 
