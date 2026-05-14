@@ -1,3 +1,7 @@
+**A Closer Look at Who’s in the U.S. Delegation to China**\
+`Some of Mr. Trump’s most influential cabinet members and the C.E.O.s of some of America’s biggest corporations accompanied him on his visit to Beijing.`\
+https://www.nytimes.com/interactive/2026/05/14/world/asia/trump-china-xi-delegation-business-leaders.html
+
 **Chinese Media Cast Trump’s Visit as a Sign of Beijing’s Rising Stature**\
 `Chinese state media is depicting the summit as an opportunity for the United States to accept that the “right way” for the two powers to engage is as equals.`\
 https://www.nytimes.com/2026/05/14/world/asia/china-trump-xi-media.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/05/14/realestate/bronx-riverdale-spuyte
 **Oil Prices Rise as Trump Meets China’s Xi**\
 `The president is expected to urge the Chinese leader to help ease tensions in the Middle East by helping to persuade Iran to end the war.`\
 https://www.nytimes.com/2026/05/14/business/oil-stocks-gas-iran-trump-china.html
-
-**China Doesn’t Worry About A.I. Like We Do**\
-`The difference in perspectives between superpowers is shaping the race for A.I. dominance.`\
-https://www.nytimes.com/2026/05/14/opinion/china-trump-ai-xi.html
 

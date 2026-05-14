@@ -1,3 +1,43 @@
+**Chinese Media Cast Trump’s Visit as a Sign of Beijing’s Rising Stature**\
+`Chinese state media is depicting the summit as an opportunity for the United States to accept that the “right way” for the two powers to engage is as equals.`\
+https://www.nytimes.com/2026/05/14/world/asia/china-trump-xi-media.html
+
+**China’s Growing Leverage Over the U.S., and How Oil Companies Hit the Jackpot**\
+`Plus, a surprise reversal in the Murdaugh murder case.`\
+https://www.nytimes.com/2026/05/14/podcasts/the-headlines/china-leverage-us-oil-companies.html
+
+**A New Leader — and a New Showdown — at the Fed**\
+`Kevin Warsh was sworn in as the new chair of the Federal Reserve.`\
+https://www.nytimes.com/2026/05/14/podcasts/the-daily/warsh-powell-federal-reserve.html
+
+**Wordle Review No. 1,791**\
+`Scroll down for hints and conversation about the puzzle for Friday, May 15, 2026.`\
+https://www.nytimes.com/2026/05/14/crosswords/wordle-review-1791.html
+
+**Strands Sidekick No. 803**\
+`Scroll down for hints and conversation about the puzzle for Friday, May 15, 2026.`\
+https://www.nytimes.com/2026/05/14/crosswords/strands-sidekick-803.html
+
+**Connections Companion No. 1,069**\
+`Scroll down for hints and conversation about the puzzle for Friday, May 15, 2026.`\
+https://www.nytimes.com/2026/05/14/crosswords/connections-companion-1069.html
+
+**Watch Live: China’s Leader, Xi Jinping, Hosts President Trump for a State Banquet**\
+`China’s leader, Xi Jinping, is hosting a state banquet for President Trump during a summit in Beijing.`\
+https://www.nytimes.com/video/embedded/world/asia/100000010903350/watch-live-chinas-leader-xi-jinping-hosts-president-trump-for-a-state-banquet.html
+
+**Inside the Secret Mission to Fly Taiwan’s President to Africa**\
+`From satellite phone check-ins to a borrowed royal plane, new details show how Taiwan’s leader’s team outwitted China and pulled off an audacious journey to southern Africa.`\
+https://www.nytimes.com/2026/05/14/world/asia/taiwan-eswatini-china-flight.html
+
+**Trump and Xi Discuss Chinese Role in Opening the Strait of Hormuz, U.S. Says**\
+`Earlier, Secretary of State Marco Rubio said in an interview that China should take a more active role in resolving a standoff over the strait.`\
+https://www.nytimes.com/2026/05/14/world/asia/trump-xi-iran.html
+
+**Duterte Ally Flees After Chaos at Philippine Senate**\
+`Senator Ronald dela Rosa, who is wanted by the International Criminal Court in The Hague, had been holed up in the building when shots rang out.`\
+https://www.nytimes.com/2026/05/14/world/asia/philippines-dela-rosa-senate-icc-warrant-duterte.html
+
 **‘Be Like Satoshi’: We Unmask Scottie Pippen’s A.I. Crypto Slop**\
 `Why is the Bulls legend hawking “the Mona Lisa of sports” as a talking Web3 meme coin NFT?`\
 https://www.nytimes.com/2026/05/14/podcasts/be-like-satoshi-we-unmask-scottie-pippens-ai-crypto-slop.html

@@ -1,3 +1,43 @@
+**Chinese Media Cast Trump’s Visit as a Sign of Beijing’s Rising Stature**\
+`Chinese state media is depicting the summit as an opportunity for the United States to accept that the “right way” for the two powers to engage is as equals.`\
+https://www.nytimes.com/2026/05/14/world/asia/china-trump-xi-media.html
+
+**China’s Growing Leverage Over the U.S., and How Oil Companies Hit the Jackpot**\
+`Plus, a surprise reversal in the Murdaugh murder case.`\
+https://www.nytimes.com/2026/05/14/podcasts/the-headlines/china-leverage-us-oil-companies.html
+
+**A New Leader — and a New Showdown — at the Fed**\
+`Kevin Warsh was sworn in as the new chair of the Federal Reserve.`\
+https://www.nytimes.com/2026/05/14/podcasts/the-daily/warsh-powell-federal-reserve.html
+
+**Wordle Review No. 1,791**\
+`Scroll down for hints and conversation about the puzzle for Friday, May 15, 2026.`\
+https://www.nytimes.com/2026/05/14/crosswords/wordle-review-1791.html
+
+**Strands Sidekick No. 803**\
+`Scroll down for hints and conversation about the puzzle for Friday, May 15, 2026.`\
+https://www.nytimes.com/2026/05/14/crosswords/strands-sidekick-803.html
+
+**Connections Companion No. 1,069**\
+`Scroll down for hints and conversation about the puzzle for Friday, May 15, 2026.`\
+https://www.nytimes.com/2026/05/14/crosswords/connections-companion-1069.html
+
+**Watch Live: China’s Leader, Xi Jinping, Hosts President Trump for a State Banquet**\
+`China’s leader, Xi Jinping, is hosting a state banquet for President Trump during a summit in Beijing.`\
+https://www.nytimes.com/video/embedded/world/asia/100000010903350/watch-live-chinas-leader-xi-jinping-hosts-president-trump-for-a-state-banquet.html
+
+**Inside the Secret Mission to Fly Taiwan’s President to Africa**\
+`From satellite phone check-ins to a borrowed royal plane, new details show how Taiwan’s leader’s team outwitted China and pulled off an audacious journey to southern Africa.`\
+https://www.nytimes.com/2026/05/14/world/asia/taiwan-eswatini-china-flight.html
+
+**Trump and Xi Discuss Chinese Role in Opening the Strait of Hormuz, U.S. Says**\
+`Earlier, Secretary of State Marco Rubio said in an interview that China should take a more active role in resolving a standoff over the strait.`\
+https://www.nytimes.com/2026/05/14/world/asia/trump-xi-iran.html
+
+**Duterte Ally Flees After Chaos at Philippine Senate**\
+`Senator Ronald dela Rosa, who is wanted by the International Criminal Court in The Hague, had been holed up in the building when shots rang out.`\
+https://www.nytimes.com/2026/05/14/world/asia/philippines-dela-rosa-senate-icc-warrant-duterte.html
+
 **‘Be Like Satoshi’: We Unmask Scottie Pippen’s A.I. Crypto Slop**\
 `Why is the Bulls legend hawking “the Mona Lisa of sports” as a talking Web3 meme coin NFT?`\
 https://www.nytimes.com/2026/05/14/podcasts/be-like-satoshi-we-unmask-scottie-pippens-ai-crypto-slop.html
@@ -37,44 +77,4 @@ https://www.nytimes.com/2026/05/14/business/oil-stocks-gas-iran-trump-china.html
 **China Doesn’t Worry About A.I. Like We Do**\
 `The difference in perspectives between superpowers is shaping the race for A.I. dominance.`\
 https://www.nytimes.com/2026/05/14/opinion/china-trump-ai-xi.html
-
-**Graduates Boo Commencement Speech About A.I.**\
-`Humanities students made their displeasure known at the University of Central Florida.`\
-https://www.nytimes.com/2026/05/14/style/ucf-commencement-ai-booed-gloria-caulfield.html
-
-**Why the Migrant Child Crisis Is Roiling the California Governor Race**\
-`The Times broke the story that has become a dominant line of attack against Xavier Becerra, the Democratic front-runner. Here are five things to know about it.`\
-https://www.nytimes.com/2026/05/14/us/politics/xavier-becerra-migrant-children.html
-
-**Beyoncé and Taylor Swift Join National Recording Registry**\
-`The collection at the Library of Congress also added works by Weezer and Vince Gill, and a radio broadcast of a fight between Muhammad Ali and Joe Frazier.`\
-https://www.nytimes.com/2026/05/14/arts/music/national-recording-registry-beyonce-taylor-swift.html
-
-**The Devil Wears Prada, Workers Get Nada.**\
-`The sequel delivers, but stories about the working class are going out of style.`\
-https://www.nytimes.com/2026/05/14/podcasts/the-devil-wears-prada-workers-get-nada.html
-
-**The Devil Wears Prada, Workers Get Nada**\
-`Wesley Morris on “The Devil Wears Prada 2” and the ongoing trend in which bosses, rather than workers, take over the screen.`\
-https://www.nytimes.com/video/podcasts/100000010899094/the-devil-wears-prada-workers-get-nada.html
-
-**Argentina Races to Find Origin of Hantavirus Contagion**\
-`The scientific investigation into the origin of cruise infection has become entangled with international finger pointing.`\
-https://www.nytimes.com/2026/05/14/world/americas/hantavirus-cruise-ship-argentina.html
-
-**Julieta Venegas, a Mexican Pop Hitmaker, Is Looking Homeward**\
-`On her new album, “Norteña,” the singer embraces regional traditions and unlocks her most personal songwriting yet.`\
-https://www.nytimes.com/2026/05/14/arts/music/julieta-venegas-nortena.html
-
-**Best Booths at Frieze, the Workhorse of Contemporary Art**\
-`Among the 65 galleries at the Shed are paintings, paintings, paintings, and a surprising trove of small sculptures.`\
-https://www.nytimes.com/2026/05/14/arts/design/frieze-new-york-contemporary-art-fair.html
-
-**Thomas Massie Is One of a Vanishing Breed: A Republican Who Will Stand Up to Trump**\
-`An individual with principles and quirks, and against being told what to do.`\
-https://www.nytimes.com/2026/05/14/opinion/thomas-massie-trump-republicans.html
-
-**He Was Good at Steering the Fed, but He Was a Genius at Ignoring Trump’s Threats**\
-`A model for all who follow.`\
-https://www.nytimes.com/2026/05/14/opinion/jerome-powell-fed-chair.html
 
