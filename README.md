@@ -1,3 +1,15 @@
+**The Family Branding of Sean Duffy’s New Reality Show Is a Trip**\
+`A trailer heralds the latest spinoff from the Trump administration.`\
+https://www.nytimes.com/2026/05/14/style/sean-duffy-great-american-road-trip.html
+
+**Trump Cites Inaccurate Data to Downplay Economic Toll of Iran War**\
+`He has minimized soaring gas prices, rising inflation and the American economy’s need for the Strait of Hormuz.`\
+https://www.nytimes.com/2026/05/14/us/politics/trump-iran-war-economy-cost.html
+
+**Who Owns These Artworks? A Museum Hopes Visitors Can Help Find Out.**\
+`A new room in the Musée d’Orsay’s permanent display includes 13 pieces that were recovered from Germany and Austria after World War II and whose provenance is unknown.`\
+https://www.nytimes.com/2026/05/14/arts/design/musee-dorsay-art-world-war-ii.html
+
 **Over 100 People Killed in India as Storms Wreak Destruction**\
 `The deaths were scattered across a swath of India’s most populous state, Uttar Pradesh, where many homes were destroyed.`\
 https://www.nytimes.com/2026/05/14/world/asia/india-storms-deaths-uttar-pradesh.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/14/briefing/whos-running-for-president-in-2028.h
 **Trump en China**\
 `El presidente será recibido con todos los honores, pero la profunda brecha que hay entre Estados Unidos y China será muy difícil de reparar.`\
 https://www.nytimes.com/es/2026/05/14/espanol/mundo/trump-en-china.html
-
-**Flags, Flattery and a Blunt Warning on Trump’s First Day in China**\
-`During the first round of two days of talks, Xi Jinping issued a stern warning about Taiwan while Trump touted all the top business leaders in his delegation.`\
-https://www.nytimes.com/2026/05/14/world/asia/trump-first-day-china-xi.html
-
-**A Closer Look at Who’s in the U.S. Delegation to China**\
-`Some of Mr. Trump’s most influential cabinet members and the C.E.O.s of some of America’s biggest corporations accompanied him on his visit to Beijing.`\
-https://www.nytimes.com/interactive/2026/05/14/world/asia/trump-china-xi-delegation-business-leaders.html
-
-**Chinese Media Cast Trump’s Visit as a Sign of Beijing’s Rising Stature**\
-`Chinese state media is depicting the summit as an opportunity for the United States to accept that the “right way” for the two powers to engage is as equals.`\
-https://www.nytimes.com/2026/05/14/world/asia/china-trump-xi-media.html
 
