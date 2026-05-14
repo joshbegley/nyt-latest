@@ -1,3 +1,23 @@
+**Judge Orders U.S. to Return Colombian Woman Deported to Congo**\
+`The unusual ruling came after the judge found that the Trump administration had most likely violated the law by deporting the 55-year-old woman to the African country despite its refusal to take her.`\
+https://www.nytimes.com/2026/05/13/world/africa/congo-colombia-deportee-return.html
+
+**11 Rescued From Raft After Plane Crash Off the Coast of Florida**\
+`Those on board, who were all Bahamian adults, spent about five hours stranded on a raft before rescuers hoisted them to safety. All were in stable condition, officials said.`\
+https://www.nytimes.com/2026/05/13/us/plane-crash-florida-rescue.html
+
+**Justice Dept. Sues to Block Ethics Punishments of Administration Lawyers**\
+`The move escalates the administration’s feud with legal disciplinary bodies over the ethical conduct of government lawyers.`\
+https://www.nytimes.com/2026/05/13/us/doj-lawsuit-dc-bar-trump.html
+
+**Trump’s Entourage to China Has Numerous Industry Executives**\
+`President Trump brought more than a dozen executives of lead financial and tech companies on his trip to Beijing. Trump is expected to discuss the creation of a board of investment and a board of trade with China.`\
+https://www.nytimes.com/video/us/politics/100000010902240/trump-beijing-musk-meeting.html
+
+**Man Pleads Guilty to Ramming Car Into Chabad Headquarters**\
+`The man, Dan Sohail, admitted on Wednesday in Brooklyn federal court to pounding his car repeatedly into the building at the Chabad-Lubavitch Orthodox complex.`\
+https://www.nytimes.com/2026/05/13/nyregion/man-pleads-guilty-to-ramming-car-into-chabad-headquarters.html
+
 **Mamdani Urges New York State to Block Western Union Deal**\
 `New York City’s mayor said the company’s proposed acquisition of Intermex could make it costlier for immigrants to send money abroad.`\
 https://www.nytimes.com/2026/05/13/business/zohran-mamdani-western-union-intermex.html
