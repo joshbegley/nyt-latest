@@ -1,3 +1,7 @@
+**¿Qué cenaron Trump y Xi?**\
+`Los chefs chinos trataron de apelar a las preferencias culinarias de Trump al tiempo que utilizaban ingredientes y técnicas de cocina tradicionales.`\
+https://www.nytimes.com/es/2026/05/14/espanol/mundo/trump-xi-reunion-que-cenaron.html
+
 **El síndrome de ovario poliquístico ahora será conocido como SOMP**\
 `La enfermedad ha sido rebautizada como síndrome ovárico metabólico poliendocrino para reflejar mejor sus amplios efectos sobre la salud.`\
 https://www.nytimes.com/es/2026/05/14/espanol/estilos-de-vida/sindrome-ovario-poliquistico-cambia-nombre.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/es/2026/05/14/espanol/estados-unidos/abogados-trump-etic
 `Becky Hughes is back to answer readers’ hyperspecific restaurant questions.`\
 https://www.nytimes.com/2026/05/14/dining/searching-for-an-actually-good-gluten-free-pizza-and-more-readers-questions.html
 
-**The Body Language of the Trump-Xi Summit Spoke Volumes**\
+**The Body Language of the Trump-Xi Summit Mirrored Their Styles**\
 `Although at odds over issues like trade and Taiwan, the U.S. and Chinese leaders met in Beijing with a show of friendly gestures.`\
 https://www.nytimes.com/2026/05/14/world/asia/trump-xi-body-language.html
 
@@ -50,8 +54,8 @@ https://www.nytimes.com/2026/05/14/opinion/lowkey-slang-language-youth.html
 `The Department of Homeland Security recently formed a unit tasked with revetting thousands of immigrants with permanent residency.`\
 https://www.nytimes.com/2026/05/14/us/politics/green-cards-immigration-deportation-trump.html
 
-**N.Y.C. Second-Home Tax May Affect Homes With $1 Million ‘Market Value’**\
-`The so-called market value is a government metric that often underestimates a home’s actual worth. The new tax will be phased in as the city and state work out which properties it will affect.`\
+**N.Y. Takes Two-Step Approach to Tax on Multimillion-Dollar Second Homes**\
+`The tax will initially apply to units with a “market value” of at least $1 million. That metric often underestimates a home’s actual worth.`\
 https://www.nytimes.com/2026/05/14/nyregion/nyc-second-home-tax-rates.html
 
 **Leader of Reform U.K. Says £5 Million Gift Was ‘Reward’ for Brexit**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/14/books/review/new-recommended-books.html
 **Federal Chemical Safety Board Sends Warning on Trump Disaster Policy**\
 `The board said the administration is taking “a significant step backwards” on preventing chemical disasters.`\
 https://www.nytimes.com/2026/05/14/climate/chemical-safety-board-disaster-warning-letter.html
-
-**As Trump Meets Xi, Iran Lets Chinese Ships Through Strait of Hormuz**\
-`Iranian news agencies said some Chinese ships were being allowed through the strait, following diplomatic outreach to Iran from Beijing.`\
-https://www.nytimes.com/2026/05/14/world/middleeast/iran-strait-hormuz-china-ships.html
 

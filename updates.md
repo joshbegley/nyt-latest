@@ -1,3 +1,15 @@
+**¿Qué cenaron Trump y Xi?**\
+`Los chefs chinos trataron de apelar a las preferencias culinarias de Trump al tiempo que utilizaban ingredientes y técnicas de cocina tradicionales.`\
+https://www.nytimes.com/es/2026/05/14/espanol/mundo/trump-xi-reunion-que-cenaron.html
+
+**The Body Language of the Trump-Xi Summit Mirrored Their Styles**\
+`Although at odds over issues like trade and Taiwan, the U.S. and Chinese leaders met in Beijing with a show of friendly gestures.`\
+https://www.nytimes.com/2026/05/14/world/asia/trump-xi-body-language.html
+
+**N.Y. Takes Two-Step Approach to Tax on Multimillion-Dollar Second Homes**\
+`The tax will initially apply to units with a “market value” of at least $1 million. That metric often underestimates a home’s actual worth.`\
+https://www.nytimes.com/2026/05/14/nyregion/nyc-second-home-tax-rates.html
+
 **El síndrome de ovario poliquístico ahora será conocido como SOMP**\
 `La enfermedad ha sido rebautizada como síndrome ovárico metabólico poliendocrino para reflejar mejor sus amplios efectos sobre la salud.`\
 https://www.nytimes.com/es/2026/05/14/espanol/estilos-de-vida/sindrome-ovario-poliquistico-cambia-nombre.html
