@@ -1,3 +1,7 @@
+**Elon Musk’s lawyer asked Sam Altman on the stand: Are you trustworthy?**\
+``\
+https://www.nytimes.com/live/2026/05/14/technology/openai-trial-sam-altman-elon-musk/elon-musks-lawyer-asks-sam-altman-on-the-stand-are-you-trustworthy
+
 **U.S. Set to Drop Charges Against Indian Billionaire Accused of Fraud**\
 `The decision came after a meeting in which a lawyer for the billionaire, Gautam Adani, made an unusual offer, according to people familiar with the matter.`\
 https://www.nytimes.com/2026/05/14/nyregion/gautam-adani-billionaire-doj-trump.html

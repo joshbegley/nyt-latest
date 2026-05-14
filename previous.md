@@ -1,3 +1,7 @@
+**Elon Musk’s lawyer asked Sam Altman on the stand: Are you trustworthy?**\
+``\
+https://www.nytimes.com/live/2026/05/14/technology/openai-trial-sam-altman-elon-musk/elon-musks-lawyer-asks-sam-altman-on-the-stand-are-you-trustworthy
+
 **U.S. Set to Drop Charges Against Indian Billionaire Accused of Fraud**\
 `The decision came after a meeting in which a lawyer for the billionaire, Gautam Adani, made an unusual offer, according to people familiar with the matter.`\
 https://www.nytimes.com/2026/05/14/nyregion/gautam-adani-billionaire-doj-trump.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/14/arts/design/met-museum-neue-galerie-merger-la
 **Former U.K. Deputy Prime Minister Cleared of Wrongdoing Over Tax Payment**\
 `Angela Rayner, who resigned last year after paying the wrong rate of tax on an apartment purchase, said an investigation found she had not done so deliberately.`\
 https://www.nytimes.com/2026/05/14/world/europe/angela-rayner-tax-uk-starmer.html
-
-**After Dressing Celebrities, This Designer Now Wants to Dress You**\
-`Joe Ando-Hirsh made a name for himself with bespoke gowns. The ambition of his new brand is to dress the average woman.`\
-https://www.nytimes.com/2026/05/14/style/joe-ando-hirsh-tiktok-designer-label.html
 
