@@ -1,3 +1,19 @@
+**‘No Cameras Where Tom Is’: Mystery of a Congressman’s Absence Deepens**\
+`Representative Thomas Kean Jr. last voted in Washington on March 5, citing a medical issue. An appearance planned for late May has been canceled.`\
+https://www.nytimes.com/2026/05/14/nyregion/tom-kean-congress-missing.html
+
+**Young Folks Help English Grow Up**\
+`The language is benefiting from a respect for diversity.`\
+https://www.nytimes.com/2026/05/14/opinion/lowkey-slang-language-youth.html
+
+**Green Card Holders Targeted for Deportation by New ‘Removal Apparatus’**\
+`The Department of Homeland Security recently formed a unit tasked with revetting thousands of immigrants with permanent residency.`\
+https://www.nytimes.com/2026/05/14/us/politics/green-cards-immigration-deportation-trump.html
+
+**E.P.A. Moves to Weaken Water Pollution Rule for Coal Plants**\
+`The agency also said it would delay the implementation of an air pollution rule for cars and trucks by two years.`\
+https://www.nytimes.com/2026/05/14/climate/epa-coal-plants-wastewater.html
+
 **N.Y.C. Second-Home Tax May Affect Homes With $1 Million ‘Market Value’**\
 `The new tax surcharge will be phased in over two stages, as the city and state work out a better way to identify which high-end pieds-à-terre will be affected.`\
 https://www.nytimes.com/2026/05/14/nyregion/nyc-second-home-tax-rates.html
