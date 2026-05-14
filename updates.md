@@ -1,3 +1,27 @@
+**Midsize Cities Held Steady as U.S. Population Growth Declined**\
+`New census estimates show that the nation’s largest cities saw the sharpest slowdowns in population growth over the past year amid declines in immigration and plunging birthrates.`\
+https://www.nytimes.com/2026/05/14/us/us-population-growth-midsize-cities.html
+
+**Pedro Sánchez encabeza la oposición política a Donald Trump. Y está ganando**\
+`El líder de España ha establecido una filosofía de gobierno alternativa al trumpismo.`\
+https://www.nytimes.com/es/2026/05/14/espanol/opinion/espana-pedro-sanchez-trump.html
+
+**Corrections: May 14, 2026**\
+`Corrections that appeared in print on Thursday, May 14, 2026.`\
+https://www.nytimes.com/2026/05/14/pageoneplus/corrections-may-14-2026.html
+
+**Quote of the Day: Teenagers Get a Fresh Kick Out of Playing an Old Game**\
+`Quotation of the Day for Thursday, May 14, 2026.`\
+https://www.nytimes.com/2026/05/13/pageoneplus/quote-of-the-day-teenagers-get-a-fresh-kick-out-of-playing-an-old-game.html
+
+**A Watchful Beijing Tightens Security for Trump’s Visit**\
+`Historic sites and roads have been closed in the Chinese capital for President Trump’s state visit, resulting in severe traffic and disappointed tourists.`\
+https://www.nytimes.com/2026/05/13/world/asia/a-watchful-beijing-tightens-security-for-trumps-visit.html
+
+****\
+``\
+https://www.nytimes.com/video/embedded/world/asia/100000010902936/14vid-trump-xi-embeds-45012.html
+
 **South Carolina Governor Plans Special Session to Redraw House Maps**\
 `Gov. Henry McMaster, a Republican, appears prepared to thrust the state into the nation’s redistricting wars.`\
 https://www.nytimes.com/2026/05/13/us/south-carolina-special-session-redistricting.html
