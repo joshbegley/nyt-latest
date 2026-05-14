@@ -1,3 +1,11 @@
+**Mamdani Urges New York State to Block Western Union Deal**\
+`New York City’s mayor said the company’s proposed acquisition of Intermex could make it costlier for immigrants to send money abroad.`\
+https://www.nytimes.com/2026/05/13/business/zohran-mamdani-western-union-intermex.html
+
+**Here’s Why Taiwan Is Watching What Trump Says in Beijing**\
+`There are few issues in diplomacy more complicated than the status of the self-governing island, which China claims as its own. It is almost certain to come up when President Trump meets China’s leader.`\
+https://www.nytimes.com/2026/05/13/world/asia/taiwan-china-trump.html
+
 **Political Organizer Wins Democratic Primary in Key Nebraska House Race**\
 `Denise Powell prevailed in a close primary race for an Omaha-based seat, currently held by a retiring Republican, that could help determine control of the House.`\
 https://www.nytimes.com/2026/05/13/us/politics/denise-powell-nebrasaka-house-don-bacon.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/es/2026/05/13/espanol/america-latina/aviones-espia-drone
 **Ye Must Pay Musicians for Using Sample Without Permission**\
 `A jury in Los Angeles found the rapper and three of his companies liable for more than $400,000 after he played an unauthorized music sample at an event in 2021.`\
 https://www.nytimes.com/2026/05/13/arts/music/kanye-west-copyright-sample-verdict.html
-
-**Alberta Petition to Break Away From Canada Is Dealt a Blow in Court**\
-`A judge sided with an Indigenous group that had asked for a petition by separatists to force a vote on the oil-rich province seceding from Canada to be thrown out.`\
-https://www.nytimes.com/2026/05/13/world/canada/alberta-seperation-secession-judge.html
-
-**Trump Administration Will Withhold $1.3 Billion in Medicaid Payments to California**\
-`Vice President JD Vance said the state had not done enough to fight fraud in the public health insurance program.`\
-https://www.nytimes.com/2026/05/13/us/politics/vance-medicaid-fraud-california.html
 
