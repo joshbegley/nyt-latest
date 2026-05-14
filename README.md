@@ -55,7 +55,7 @@ https://www.nytimes.com/2026/05/14/world/asia/trump-china-people-street.html
 https://www.nytimes.com/2026/05/14/world/asia/trump-invites-xi-to-white-house-during-state-dinner-in-beijing.html
 
 **Wes Streeting Resigns, Setting Stage for Possible Leadership Challenge to Starmer**\
-`After days of speculation, the British health secretary said Thursday that he was resigning from the government of Prime Minister Keir Starmer.`\
+`After days of speculation, the British health secretary stepped down on Thursday, although he did not announce an immediate challenge to Prime Minister Keir Starmer.`\
 https://www.nytimes.com/2026/05/14/world/europe/wes-streeting-resigns-starmer-uk-prime-minister.html
 
 **China’s State Dinner for Trump Includes Beef Ribs, Roast Duck and Tiramisu**\
