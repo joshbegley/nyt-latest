@@ -1,3 +1,11 @@
+**‘Is God Is’ Review: The Fires This Time**\
+`Kara Young and Mallori Johnson play twins bent on revenge in the playwright Aleshea Harris’s powerhouse film debut.`\
+https://www.nytimes.com/2026/05/14/movies/is-god-is-review.html
+
+**University of Chicago Waives Tuition for Families Making Under $250,000**\
+`It becomes one of just a couple of major universities offering free tuition to families at that income level.`\
+https://www.nytimes.com/2026/05/14/us/university-of-chicago-free-tuition-250000-income.html
+
 **Elon Musk’s lawyer asked Sam Altman on the stand: Are you trustworthy?**\
 ``\
 https://www.nytimes.com/live/2026/05/14/technology/openai-trial-sam-altman-elon-musk/elon-musks-lawyer-asks-sam-altman-on-the-stand-are-you-trustworthy
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/14/world/europe/uk-who-is-wes-streeting.html
 **Trump Might Welcome Chinese Investment, but America Is Wary**\
 `A pledge for more Chinese investment could face backlash given longstanding national security concerns in the United States.`\
 https://www.nytimes.com/2026/05/14/business/trump-china-xi-investment.html
-
-**The Met Will Expand by Merging With the Nearby Neue Galerie**\
-`Beginning in 2028, the Metropolitan Museum of Art will own the Neue’s Fifth Avenue home and the prestige collection of 20th-century Austrian and German art built by Ronald S. Lauder.`\
-https://www.nytimes.com/2026/05/14/arts/design/met-museum-neue-galerie-merger-lauder.html
-
-**Former U.K. Deputy Prime Minister Cleared of Wrongdoing Over Tax Payment**\
-`Angela Rayner, who resigned last year after paying the wrong rate of tax on an apartment purchase, said an investigation found she had not done so deliberately.`\
-https://www.nytimes.com/2026/05/14/world/europe/angela-rayner-tax-uk-starmer.html
 

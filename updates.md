@@ -1,3 +1,11 @@
+**‘Is God Is’ Review: The Fires This Time**\
+`Kara Young and Mallori Johnson play twins bent on revenge in the playwright Aleshea Harris’s powerhouse film debut.`\
+https://www.nytimes.com/2026/05/14/movies/is-god-is-review.html
+
+**University of Chicago Waives Tuition for Families Making Under $250,000**\
+`It becomes one of just a couple of major universities offering free tuition to families at that income level.`\
+https://www.nytimes.com/2026/05/14/us/university-of-chicago-free-tuition-250000-income.html
+
 **Elon Musk’s lawyer asked Sam Altman on the stand: Are you trustworthy?**\
 ``\
 https://www.nytimes.com/live/2026/05/14/technology/openai-trial-sam-altman-elon-musk/elon-musks-lawyer-asks-sam-altman-on-the-stand-are-you-trustworthy

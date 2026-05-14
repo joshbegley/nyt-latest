@@ -1,3 +1,7 @@
+**Body of Second U.S. Soldier Who Went Missing in Morocco Is Found**\
+`The body of Specialist Mariyah Symone Collington, 19, was retrieved from a coastal cave less than a week after the recovery of the body of First Lt. Kendrick Lamont Key Jr.`\
+https://www.nytimes.com/2026/05/14/us/us-soldier-missing-morocco-body-found.html
+
 **‘Is God Is’ Review: The Fires This Time**\
 `Kara Young and Mallori Johnson play twins bent on revenge in the playwright Aleshea Harris’s powerhouse film debut.`\
 https://www.nytimes.com/2026/05/14/movies/is-god-is-review.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/14/business/retail-sales-consumer-spending-april
 **What to Know About Wes Streeting, Who Has Resigned as British Health Secretary**\
 `Mr. Streeting, a confident communicator from the right of the Labour Party, comes from a working-class background and said he was influenced by his Tory grandfather.`\
 https://www.nytimes.com/2026/05/14/world/europe/uk-who-is-wes-streeting.html
-
-**Trump Might Welcome Chinese Investment, but America Is Wary**\
-`A pledge for more Chinese investment could face backlash given longstanding national security concerns in the United States.`\
-https://www.nytimes.com/2026/05/14/business/trump-china-xi-investment.html
 
