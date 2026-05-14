@@ -1,3 +1,7 @@
+**Why China Fears the ‘A.I. Girlfriend’**\
+`China is worried A.I. companions could be a drag on productivity. On “Interesting Times,” Kyle Chan, a foreign policy fellow at the Brookings Institution, tells the Opinion columnist Ross Douthat that the government thinks youth “should be engineering the future and building out the start-ups and the future Chinese versions of SpaceX.”`\
+https://www.nytimes.com/video/opinion/100000010892482/why-china-fears-the-ai-girlfriend.html
+
 **China Is Worried About A.I. Too**\
 `What if you weren’t worried about A.I. taking your job? That seems to be closer to the reality in China, where keeping pace with the new technology is a much bigger focus than economic disruption. On “Interesting Times,” Kyle Chan, a foreign policy fellow at the Brookings Institution, explains how the countries differ in their anxieties over artificial intelligence.`\
 https://www.nytimes.com/video/opinion/100000010892470/china-is-worried-about-ai-too.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/05/14/us/politics/congress-iran-war-pow
 **House Again Blocks War Powers Vote to Halt Iran Conflict**\
 `But two vulnerable Republicans joined Democrats in the effort to force President Trump to win authorization from Congress, in the latest sign of G.O.P. jitters over the war.`\
 https://www.nytimes.com/2026/05/14/us/politics/war-powers-vote-house-trump-iran.html
-
-**El silencio del principal asesor militar de Trump deja muchas preguntas**\
-`Como jefe del Estado Mayor Conjunto, el general Dan Caine está obligado a mantenerse al margen de la refriega política provocada por la guerra en Irán. Pero trabaja para un presidente que le exige lealtad absoluta.`\
-https://www.nytimes.com/es/2026/05/14/espanol/estados-unidos/trump-guerra-iran-asesor-ejercito.html
 
