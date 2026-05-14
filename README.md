@@ -1,3 +1,7 @@
+**Why A.I. Safety Controls Are Not Very Effective**\
+`Three years after the debut of ChatGPT, fooling A.I. systems into bad behavior is almost trivial.`\
+https://www.nytimes.com/2026/05/14/technology/artificial-intelligence-safety-controls.html
+
 **A.I. Chip Maker Soars 89% in Market Debut, as Tech I.P.O.s Ramp Up**\
 `Cerebras, a Silicon Valley maker of artificial intelligence chips, began trading on the stock market on Thursday, as SpaceX, OpenAI and Anthropic also take steps to go public.`\
 https://www.nytimes.com/2026/05/14/technology/cerebras-ipo-ai.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/live/2026/05/14/technology/openai-trial-sam-altman-elon-
 **U.S. Set to Drop Charges Against Indian Billionaire Accused of Fraud**\
 `The decision came after a meeting in which a lawyer for the billionaire, Gautam Adani, made an unusual offer, according to people familiar with the matter.`\
 https://www.nytimes.com/2026/05/14/nyregion/gautam-adani-billionaire-doj-trump.html
-
-**Today, In Short**\
-`Biblical eating. Commencement speeches. And a taxidermist.`\
-https://www.nytimes.com/2026/05/14/briefing/today-in-short.html
 
