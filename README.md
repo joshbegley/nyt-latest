@@ -1,3 +1,27 @@
+**Midsize Cities Held Steady as U.S. Population Growth Declined**\
+`New census estimates show that the nation’s largest cities saw the sharpest slowdowns in population growth over the past year amid declines in immigration and plunging birthrates.`\
+https://www.nytimes.com/2026/05/14/us/us-population-growth-midsize-cities.html
+
+**Pedro Sánchez encabeza la oposición política a Donald Trump. Y está ganando**\
+`El líder de España ha establecido una filosofía de gobierno alternativa al trumpismo.`\
+https://www.nytimes.com/es/2026/05/14/espanol/opinion/espana-pedro-sanchez-trump.html
+
+**Corrections: May 14, 2026**\
+`Corrections that appeared in print on Thursday, May 14, 2026.`\
+https://www.nytimes.com/2026/05/14/pageoneplus/corrections-may-14-2026.html
+
+**Quote of the Day: Teenagers Get a Fresh Kick Out of Playing an Old Game**\
+`Quotation of the Day for Thursday, May 14, 2026.`\
+https://www.nytimes.com/2026/05/13/pageoneplus/quote-of-the-day-teenagers-get-a-fresh-kick-out-of-playing-an-old-game.html
+
+**A Watchful Beijing Tightens Security for Trump’s Visit**\
+`Historic sites and roads have been closed in the Chinese capital for President Trump’s state visit, resulting in severe traffic and disappointed tourists.`\
+https://www.nytimes.com/2026/05/13/world/asia/a-watchful-beijing-tightens-security-for-trumps-visit.html
+
+****\
+``\
+https://www.nytimes.com/video/embedded/world/asia/100000010902936/14vid-trump-xi-embeds-45012.html
+
 **South Carolina Governor Plans Special Session to Redraw House Maps**\
 `Gov. Henry McMaster, a Republican, appears prepared to thrust the state into the nation’s redistricting wars.`\
 https://www.nytimes.com/2026/05/13/us/south-carolina-special-session-redistricting.html
@@ -53,28 +77,4 @@ https://www.nytimes.com/2026/05/13/world/asia/taiwan-china-trump.html
 **Political Organizer Wins Democratic Primary in Key Nebraska House Race**\
 `Denise Powell prevailed in a close primary race for an Omaha-based seat, currently held by a retiring Republican, that could help determine control of the House.`\
 https://www.nytimes.com/2026/05/13/us/politics/denise-powell-nebrasaka-house-don-bacon.html
-
-**Trump Says He Will Raise Jimmy Lai’s Case to Xi, as Lawmakers Press for His Release**\
-`Mr. Trump has shown less appetite for wading into human rights issues than past U.S. presidents at summits with Beijing, but said he would raise the case of the imprisoned pro-democracy media mogul.`\
-https://www.nytimes.com/2026/05/13/world/asia/trump-says-he-will-raise-jimmy-lais-case-to-xi-as-lawmakers-press-for-his-release.html
-
-**Here’s the latest.**\
-``\
-https://www.nytimes.com/live/2026/05/13/world/trump-xi-summit-china/heres-the-latest
-
-**Canada and Alberta Agree to Raise Carbon Prices as Pipeline Tradeoff**\
-`But the agreement is the latest softening of carbon reduction measures introduced by Prime Minister Mark Carney since he took office last year.`\
-https://www.nytimes.com/2026/05/13/world/canada/alberta-carbon-pricing-bc-pipeline-carney.html
-
-**House Approves Year-Round Sale of Higher-Ethanol Gas**\
-`In a rare bipartisan vote, the House passed a bill allowing for the sale of an ethanol blend known as E15, over the objections of Republican hard-liners and some oil refiners.`\
-https://www.nytimes.com/2026/05/13/us/politics/house-approves-ethanol-sale.html
-
-**Giuliani Returns to Broadcasting After Illness: ‘I Feel 100 Percent’**\
-`Rudolph W. Giuliani, the 81-year-old former New York City mayor, was in critical condition with pneumonia in a Florida hospital earlier this month.`\
-https://www.nytimes.com/2026/05/13/nyregion/rudy-giuliani-interview-health.html
-
-**Second Venezuelan Doctor Is Released From Immigration Custody**\
-`At least five foreign-born doctors have been detained, according to a medical organization, raising fears that underserved rural areas reliant on them could be further strained.`\
-https://www.nytimes.com/2026/05/13/us/venezuelan-doctor-released-from-immigration-custody-texas.html
 
