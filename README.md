@@ -1,3 +1,7 @@
+**Medical Plane Crashes in New Mexico, Killing All 4 People Aboard**\
+`The plane was traveling from Roswell to Sierra Blanca Regional Airport, a trip of less than 30 minutes. The cause of the crash was not known, officials said.`\
+https://www.nytimes.com/2026/05/14/us/medical-plane-crash-new-mexico-four-dead.html
+
 **Climate Change as a 2026 Campaign Issue**\
 `Readers largely disagree with a guest essay that argued that Democrats should not focus on it. Also: Violence against Latinos; school closings.`\
 https://www.nytimes.com/2026/05/14/opinion/climate-change-2026-election.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/polls/president-democratic-primary-polls-202
 **How Nice Is This Gnocchi?**\
 `Hetty Lui McKinnon’s new gnocchi with peas and whipped feta looks (and tastes) restaurant-worthy, but is easy to assemble at home.`\
 https://www.nytimes.com/2026/05/14/dining/how-nice-is-this-gnocchi.html
-
-**Trump’s War Is Punishing the Poor, Starting at the Gas Pump**\
-`Higher fuel prices are a burden on low-income families.`\
-https://www.nytimes.com/2026/05/14/opinion/gas-prices-fuel-oil-trump-poor.html
 
