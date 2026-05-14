@@ -1,3 +1,7 @@
+**Trump and Xi Meet as Summit Begins**\
+`President Trump shook hands with President Xi Jinping of China at the start of a two-day summit in Beijing on Thursday. They are expected to discuss trade, Iran and Taiwan.`\
+https://www.nytimes.com/video/world/asia/100000010903139/trump-xi-china-summit.html
+
 **El auge y declive del AK-47**\
 `Una familia de armas que en su día fue omnipresente en el mercado estadounidense ha empezado a desaparecer por diversas razones.`\
 https://www.nytimes.com/es/2026/05/14/espanol/estados-unidos/ak47-menos-produccion.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/05/14/espanol/opinion/trump-china.html
 **Los países del Golfo detienen a ‘traidores’ chiíes en medio de la guerra con Irán**\
 `Decenas de ciudadanos del golfo Pérsico han sido acusados de pertenecer a células terroristas vinculadas a Irán mientras la guerra acelera un giro hacia un autoritarismo más profundo en la región.`\
 https://www.nytimes.com/es/2026/05/14/espanol/mundo/guerra-iran-golfo-chiitas-acusados-terrorismo.html
-
-**7 movimientos para prevenir el dolor de hombro**\
-`Estos ejercicios pueden ayudarte a evitar molestias al mejorar tu fuerza y movilidad.`\
-https://www.nytimes.com/es/2026/05/14/espanol/prevenir-dolor-hombro-ejercicios.html
 
