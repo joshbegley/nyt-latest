@@ -1,3 +1,15 @@
+**Climate Change as a 2026 Campaign Issue**\
+`Readers largely disagree with a guest essay that argued that Democrats should not focus on it. Also: Violence against Latinos; school closings.`\
+https://www.nytimes.com/2026/05/14/opinion/climate-change-2026-election.html
+
+**Deadly Storms Devastate Northern India**\
+`Officials said at least 111 people were killed and dozens more injured after severe storms hit the state of Uttar Pradesh.`\
+https://www.nytimes.com/video/world/asia/100000010903892/india-storms-video-uttar-pradesh-deaths.html
+
+**Hantavirus Doesn’t Spread Easily, but Officials May Be Downplaying Risks**\
+`The virus is clearly far less contagious than the coronavirus, scientists agree, but they have found cases where it spread among people without direct contact.`\
+https://www.nytimes.com/2026/05/14/health/hantavirus-spread-risk.html
+
 **Deadly Storms Devastate Northern India**\
 `Officials said at least 111 people were killed and dozens more injured after severe storms hit the state of Uttar Pradesh.`\
 https://www.nytimes.com/video/world/asia/100000010903892/india-deadly-storms.html
