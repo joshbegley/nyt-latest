@@ -2,8 +2,8 @@
 `The billionaire investor who predicted the 2008 financial crash is bearish on America’s future standing in the world. On “Interesting Times,” Ray Dalio tells the columnist Ross Douthat why.`\
 https://www.nytimes.com/video/opinion/100000010875155/is-america-still-no-1.html
 
-**Watch Live: Trump Meets Xi as U.S.-China Summit Kicks Off**\
-`China’s leader, Xi Jinping, welcomes President Trump at Beijing’s Great Hall of the People.`\
+**Watch Live: Trump to Meet Xi as U.S.-China Summit Kicks Off**\
+`China’s leader, Xi Jinping, was set to welcome President Trump at Beijing’s Great Hall of the People.`\
 https://www.nytimes.com/video/embedded/world/asia/100000010902714/watch-live-trump-meets-xi-as-us-china-summit-kicks-off.html
 
 **Judge Orders U.S. to Return Colombian Woman Deported to Congo**\
