@@ -1,3 +1,15 @@
+**Vance Blames Democrats as U.S. Halts Some Medicaid Payments, Claiming Fraud**\
+`Vice President JD Vance traveled to Maine for a speech, making a midterm election pitch that only Republicans could root out fraud in public benefits.`\
+https://www.nytimes.com/2026/05/14/us/politics/medicaid-fraud-vance-republicans-maine.html
+
+**El director de la CIA viaja a Cuba mientras EE. UU. intensifica la presión a la isla**\
+`John Ratcliffe, director de la CIA, es el funcionario de más alto rango del gobierno de Trump que ha visitado el país.`\
+https://www.nytimes.com/es/2026/05/14/espanol/estados-unidos/cia-cuba.html
+
+**Mail-Order Abortions Have Quickly Become Common**\
+`Pills shipped to states with bans are a reason abortion has increased since Roe v. Wade was overturned.`\
+https://www.nytimes.com/2026/05/14/upshot/abortion-pills-court.html
+
 **Why Trump’s Reflecting Pool Repairs Are in Trouble**\
 `Federal records show that the no-bid contract to repair the Lincoln Memorial Reflecting Pool and paint it blue now costs $13.1 million. That’s about seven times the amount President Trump initially said it would cost.`\
 https://www.nytimes.com/video/us/100000010897413/why-trumps-reflecting-pool-repairs-are-in-trouble.html
