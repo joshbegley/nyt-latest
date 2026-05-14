@@ -1,3 +1,23 @@
+**‘Be Like Satoshi’: We Unmask Scottie Pippen’s A.I. Crypto Slop**\
+`Why is the Bulls legend hawking “the Mona Lisa of sports” as a talking Web3 meme coin NFT?`\
+https://www.nytimes.com/2026/05/14/podcasts/be-like-satoshi-we-unmask-scottie-pippens-ai-crypto-slop.html
+
+**In Venice, the Passion of Life and the Ghost of Art**\
+`The 2026 edition of the world’s oldest art exhibition is a celebration of vitality — for better and indeed for worse.`\
+https://www.nytimes.com/2026/05/14/arts/venice-biennale-artworks.html
+
+**Elon Musk Returns to Trump’s Side in Beijing**\
+`Mr. Musk is part of a delegation of business leaders to China, where his interests include Tesla’s electric vehicle factory and solar panels.`\
+https://www.nytimes.com/2026/05/14/world/asia/musk-china-trump-xi-beijing.html
+
+**Tras la desaparición de sus dos hijos, su búsqueda la convirtió en la voz de las madres mexicanas**\
+`Una de las activistas más destacadas en la lucha por los desaparecidos en México encontró recientemente los restos de uno de sus hijos desaparecidos. Ahora ha centrado sus esfuerzos en encontrar al otro.`\
+https://www.nytimes.com/es/2026/05/14/espanol/america-latina/madre-buscadora-mexico.html
+
+**The Trump Dumpster Fire Is Lit**\
+`When MAHA turns into HAHA.`\
+https://www.nytimes.com/2026/05/14/opinion/trump-politics-maha.html
+
 **I Don’t Think You Can Even Call This Hypocrisy**\
 `The secrets of one of the architects of the religious right are being revealed. One of the secrets is that they weren’t really secrets.`\
 https://www.nytimes.com/2026/05/14/opinion/southern-baptist-convention-paul-pressler.html
