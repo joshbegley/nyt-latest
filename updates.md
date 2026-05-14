@@ -1,3 +1,11 @@
+**E.P.A. Moves to Weaken Water Pollution Rule for Coal Plants**\
+`The Biden-era regulation requires coal plants to release fewer toxic metals, including arsenic and mercury, into nearby waters.`\
+https://www.nytimes.com/2026/05/14/climate/epa-coal-plants-wastewater.html
+
+**Xi no deja dudas a Trump: Taiwán tiene alta prioridad**\
+`El líder chino, Xi Jinping, dijo que las relaciones entre ambos países podrían volverse una “situación extremadamente peligrosa” si Trump hace caso omiso de las exigencias chinas sobre Taiwán.`\
+https://www.nytimes.com/es/2026/05/14/espanol/mundo/china-taiwan-trump.html
+
 **Latino Groups Unite to Win Back Hispanic Voters for Democrats in Midterms**\
 `Four longtime Latino civil rights and political organizations are joining efforts to register voters and mobilize Hispanic Democrats in the wake of rising voting restrictions.`\
 https://www.nytimes.com/2026/05/14/us/politics/latino-voters-outreach.html

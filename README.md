@@ -1,3 +1,15 @@
+**Appeals Court Appears Skeptical of Trump Orders Targeting Law Firms**\
+`A three-judge panel showed few signs of siding with the president on his efforts to compel law firms to work for the administration or face threats.`\
+https://www.nytimes.com/2026/05/14/us/politics/trump-law-firms-appeals-court.html
+
+**Trump Was Flattering, Xi Was Resolute. The Difference Spoke Volumes.**\
+`In contrast to his rhetoric about China at home, President Trump spoke in conciliatory terms with Xi Jinping, the Chinese leader.`\
+https://www.nytimes.com/2026/05/14/world/asia/trump-xi-jinping-us-china.html
+
+**Justice Dept. Aims to Denaturalize Ex-Marine for Sex Crime**\
+`In recent decades, the federal authorities have generally revoked U.S. citizenship from people accused of wrongdoing on their citizenship applications. A new case focuses on a crime committed later.`\
+https://www.nytimes.com/2026/05/14/us/denaturalization-citizen-sex-crime.html
+
 **E.P.A. Moves to Weaken Water Pollution Rule for Coal Plants**\
 `The Biden-era regulation requires coal plants to release fewer toxic metals, including arsenic and mercury, into nearby waters.`\
 https://www.nytimes.com/2026/05/14/climate/epa-coal-plants-wastewater.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/14/theater/suffs-othello-theater-streaming.html
 **Strategist Tied to Becerra and Newsom Pleads Guilty in Corruption Case**\
 `Dana Williamson, a former political strategist for Xavier Becerra and a former aide to Gov. Gavin Newsom, appeared in federal court on Thursday.`\
 https://www.nytimes.com/2026/05/14/us/becerra-newsom-strategist-plea-california-governor-race.html
-
-**Hantavirus Doesn’t Spread Easily, but Officials May Be Downplaying Risks**\
-`The virus is clearly far less contagious than the coronavirus, scientists agree, but they have found cases where it spread among people without direct contact.`\
-https://www.nytimes.com/2026/05/14/health/hantavirus-spread-risk.html
-
-**White House Officials to Speak at Christian Prayer Festival**\
-`Secretary of State Marco Rubio and Defense Secretary Pete Hegseth are among the scheduled speakers at the event, part of festivities for the nation’s 250th birthday.`\
-https://www.nytimes.com/2026/05/14/us/politics/white-house-christian-prayer-festival-rubio-hegseth.html
-
-**Six Unforgettable Artists at the Biggest Independent Fair**\
-`A dependably stylish fair expands and reappears on the far side of Chinatown.`\
-https://www.nytimes.com/2026/05/14/arts/design/independent-art-fair-review.html
 

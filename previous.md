@@ -1,3 +1,11 @@
+**E.P.A. Moves to Weaken Water Pollution Rule for Coal Plants**\
+`The Biden-era regulation requires coal plants to release fewer toxic metals, including arsenic and mercury, into nearby waters.`\
+https://www.nytimes.com/2026/05/14/climate/epa-coal-plants-wastewater.html
+
+**Xi no deja dudas a Trump: Taiwán tiene alta prioridad**\
+`El líder chino, Xi Jinping, dijo que las relaciones entre ambos países podrían volverse una “situación extremadamente peligrosa” si Trump hace caso omiso de las exigencias chinas sobre Taiwán.`\
+https://www.nytimes.com/es/2026/05/14/espanol/mundo/china-taiwan-trump.html
+
 **Latino Groups Unite to Win Back Hispanic Voters for Democrats in Midterms**\
 `Four longtime Latino civil rights and political organizations are joining efforts to register voters and mobilize Hispanic Democrats in the wake of rising voting restrictions.`\
 https://www.nytimes.com/2026/05/14/us/politics/latino-voters-outreach.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/14/us/politics/white-house-christian-prayer-fest
 **Six Unforgettable Artists at the Biggest Independent Fair**\
 `A dependably stylish fair expands and reappears on the far side of Chinatown.`\
 https://www.nytimes.com/2026/05/14/arts/design/independent-art-fair-review.html
-
-**At TEFAF New York, Lesser-Known Artists Delight**\
-`At the Park Avenue Armory, home to the art fair with the deepest roots in Europe, five names wooed our critic, cutting through the star system.`\
-https://www.nytimes.com/2026/05/14/arts/design/tefaf-nyc-2026-artists-review.html
-
-**Body of Second U.S. Soldier Who Went Missing in Morocco Is Found**\
-`The body of Specialist Mariyah Symone Collington, 19, was retrieved from a coastal cave less than a week after the recovery of the body of First Lt. Kendrick Lamont Key Jr.`\
-https://www.nytimes.com/2026/05/14/us/us-soldier-missing-morocco-body-found.html
 
