@@ -75,6 +75,6 @@ https://static01.nyt.com/slideshow/2026/05/14/t-magazine/tk.html
 https://www.nytimes.com/2026/05/14/dining/freezable-grillable-party-worthy.html
 
 **Medical Plane Crashes in New Mexico, Killing All 4 People Aboard**\
-`The plane was traveling from Roswell to Sierra Blanca Regional Airport, a trip of less than 30 minutes. The cause of the crash was not known, officials said.`\
+`The plane was traveling from Roswell to Sierra Blanca Regional Airport, a trip of less than 30 minutes. Firefighters were working to contain a blaze associated with the crash, officials said.`\
 https://www.nytimes.com/2026/05/14/us/medical-plane-crash-new-mexico-four-dead.html
 
