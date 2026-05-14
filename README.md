@@ -1,3 +1,7 @@
+**U.S. Cruise Passenger Moved Out of Isolation**\
+`The passenger, who had tested positive once in the Canary Islands, was being monitored in a special biocontainment facility in Omaha, until a new test came back negative.`\
+https://www.nytimes.com/2026/05/13/us/us-cruise-passenger-moved-out-of-hantavirus-isolation.html
+
 **Pair for a Pool**\
 `Thirsty for a Thursday challenge? Simeon Seigel is here to help.`\
 https://www.nytimes.com/2026/05/13/crosswords/daily-puzzle-2026-05-14.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/13/us/politics/china-visits-nixon-to-trump.html
 **Man Convicted of Running Illegal Police Station Tied to China’s Government**\
 `Prosecutors say that Lu Jianwang opened a hub in Manhattan’s Chinatown to monitor outspoken critics of the Chinese Communist Party.`\
 https://www.nytimes.com/2026/05/13/nyregion/china-covert-police-nyc-verdict.html
-
-**New Mexico Diocese Tries to Block Government From Seizing Land for Border Wall**\
-`The diocese’s lawyers argued that the land, which is below a 29-foot-tall statue of Jesus Christ on a mountain peak, is a holy site protected under religious freedom.`\
-https://www.nytimes.com/2026/05/13/us/politics/new-mexico-diocese-border-wall.html
 
