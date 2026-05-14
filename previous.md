@@ -1,3 +1,19 @@
+**Can a Windbreaker Be Fashionable?**\
+`Whether it’s a little breezy or downright blustery outside, any of these jackets will serve you well this spring.`\
+https://www.nytimes.com/2026/05/14/t-magazine/windbreaker-jacket-fashion.html
+
+**Plane Crashes Into House in Ohio, Killing 2**\
+`No one on the ground was hurt when a small plane crashed into a house on a residential street south of downtown Akron, the authorities said.`\
+https://www.nytimes.com/2026/05/14/us/akron-ohio-plane-crash.html
+
+**Frank Stack, Painter Who Secretly Drew ‘The Adventures of Jesus,’ Dies at 88**\
+`For 20 years, he hid his identity behind the nom de plume Foolbert Sturgeon as he chronicled Christ’s encounters with modern-day hypocrites in comic-book form.`\
+https://www.nytimes.com/2026/05/14/books/frank-stack-dead.html
+
+**Congress Has Rejected 10 Chances to Assert Its War Powers in Iran**\
+`The vote was the latest in a series of 10 similar measures across the House and Senate since the war began in late February, all of which aimed — and failed — to insist on a role for Congress in authorizing the conflict.`\
+https://www.nytimes.com/interactive/2026/05/14/us/politics/congress-iran-war-powers.html
+
 **House Again Blocks War Powers Vote to Halt Iran Conflict**\
 `But two vulnerable Republicans joined Democrats in the effort to force President Trump to win authorization from Congress, in the latest sign of G.O.P. jitters over the war.`\
 https://www.nytimes.com/2026/05/14/us/politics/war-powers-vote-house-trump-iran.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/05/14/us/politics/civilian-deaths-strikes-iran.html
 **Microsoft’s C.E.O. testified about the company’s OpenAI investments.**\
 ``\
 https://www.nytimes.com/live/2026/05/14/technology/openai-trial-sam-altman-elon-musk/microsofts-ceo-testified-about-the-companys-openai-investments
-
-**Here’s What It Costs to Keep a Coal Plant Open**\
-`A regulatory filing explains just how much it costs to keep an aging coal plant open under the Trump administration’s orders.`\
-https://www.nytimes.com/2026/05/14/climate/heres-what-it-costs-to-keep-a-coal-plant-open.html
-
-**Another Trump Appointee Learns It’s Easier to Be a Critic Than a Leader**\
-`We have no F.D.A. director, no permanent C.D.C. director and no surgeon general.`\
-https://www.nytimes.com/2026/05/14/opinion/public-health-leaders-fda-cdc-surgeon-general.html
-
-**Should Every Party Be Allowed to Vote in a Primary?**\
-`New research claims that bipartisan primaries have broad societal benefit, but opposition is growing, and Louisiana voters this weekend will participate in the state’s first closed primary since 1978.`\
-https://www.nytimes.com/2026/05/14/us/politics/open-primaries-improve-lives.html
-
-**The Mystery of a Congressman’s Absence Deepens**\
-`Representative Thomas Kean Jr. last voted in Washington on March 5, citing a medical issue. An appearance planned for late May has been canceled.`\
-https://www.nytimes.com/2026/05/14/nyregion/tom-kean-congress-missing.html
 
