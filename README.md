@@ -46,7 +46,7 @@ https://www.nytimes.com/video/embedded/world/asia/100000010903350/watch-live-chi
 `From satellite phone check-ins to a borrowed royal plane, new details show how Taiwan’s leader’s team outwitted China and pulled off an audacious journey to southern Africa.`\
 https://www.nytimes.com/2026/05/14/world/asia/taiwan-eswatini-china-flight.html
 
-**Trump and Xi Discuss Chinese Role in Opening the Strait of Hormuz, U.S. Says**\
+**Trump and Xi Discuss the Need to Open the Strait of Hormuz, U.S. Says**\
 `Earlier, Secretary of State Marco Rubio said in an interview that China should take a more active role in resolving a standoff over the strait.`\
 https://www.nytimes.com/2026/05/14/world/asia/trump-xi-iran.html
 
