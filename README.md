@@ -1,3 +1,7 @@
+**¿Qué cenaron Trump y Xi?**\
+`Los chefs chinos trataron de apelar a las preferencias culinarias de Trump al tiempo que utilizaban ingredientes y técnicas de cocina tradicionales.`\
+https://www.nytimes.com/es/2026/05/14/espanol/mundo/trump-xi-reunion-que-cenaron.html
+
 **El síndrome de ovario poliquístico ahora será conocido como SOMP**\
 `La enfermedad ha sido rebautizada como síndrome ovárico metabólico poliendocrino para reflejar mejor sus amplios efectos sobre la salud.`\
 https://www.nytimes.com/es/2026/05/14/espanol/estilos-de-vida/sindrome-ovario-poliquistico-cambia-nombre.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/es/2026/05/14/espanol/estados-unidos/abogados-trump-etic
 `Becky Hughes is back to answer readers’ hyperspecific restaurant questions.`\
 https://www.nytimes.com/2026/05/14/dining/searching-for-an-actually-good-gluten-free-pizza-and-more-readers-questions.html
 
-**The Body Language of the Trump-Xi Summit Spoke Volumes**\
+**The Body Language of the Trump-Xi Summit Mirrored Their Styles**\
 `Although at odds over issues like trade and Taiwan, the U.S. and Chinese leaders met in Beijing with a show of friendly gestures.`\
 https://www.nytimes.com/2026/05/14/world/asia/trump-xi-body-language.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/14/books/review/new-recommended-books.html
 **Federal Chemical Safety Board Sends Warning on Trump Disaster Policy**\
 `The board said the administration is taking “a significant step backwards” on preventing chemical disasters.`\
 https://www.nytimes.com/2026/05/14/climate/chemical-safety-board-disaster-warning-letter.html
-
-**As Trump Meets Xi, Iran Lets Chinese Ships Through Strait of Hormuz**\
-`Iranian news agencies said some Chinese ships were being allowed through the strait, following diplomatic outreach to Iran from Beijing.`\
-https://www.nytimes.com/2026/05/14/world/middleeast/iran-strait-hormuz-china-ships.html
 
