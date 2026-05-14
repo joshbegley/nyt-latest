@@ -1,3 +1,15 @@
+**Trump no debe darle más victorias a China**\
+`La política de Trump hacia China ha debilitado a EE. UU., especialmente en su segundo mandato.`\
+https://www.nytimes.com/es/2026/05/14/espanol/opinion/trump-china.html
+
+**Los países del Golfo detienen a ‘traidores’ chiíes en medio de la guerra con Irán**\
+`Decenas de ciudadanos del golfo Pérsico han sido acusados de pertenecer a células terroristas vinculadas a Irán mientras la guerra acelera un giro hacia un autoritarismo más profundo en la región.`\
+https://www.nytimes.com/es/2026/05/14/espanol/mundo/guerra-iran-golfo-chiitas-acusados-terrorismo.html
+
+**President Trump Goes to China**\
+`His talks with Xi Jinping in Beijing could decide whether the United States and China maintain their uneasy truce on trade.`\
+https://www.nytimes.com/2026/05/14/world/asia/trump-china-photos.html
+
 **A Watchful Beijing Tightens Security for Trump’s Visit**\
 `Historic sites and roads have been closed in the Chinese capital for President Trump’s state visit, resulting in severe traffic and disappointed tourists.`\
 https://www.nytimes.com/2026/05/13/world/asia/trump-china-xi-beijing-security.html
