@@ -1,3 +1,7 @@
+**The C.E.O.s for Spencer Pratt**\
+`The former reality-TV star has shaken up the Los Angeles mayoral race, gaining support from deep-pocketed donors like the financier Daniel S. Loeb.`\
+https://www.nytimes.com/2026/05/14/business/dealbook/spencer-pratt-ceo-support.html
+
 ****\
 ``\
 https://www.nytimes.com/video/embedded/world/asia/100000010903414/14vid-xi-speech-embed.html
