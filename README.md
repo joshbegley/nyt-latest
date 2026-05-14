@@ -1,3 +1,11 @@
+**China’s State Dinner for Trump Includes Beef Ribs, Roast Duck and Tiramisu**\
+`A mixture of Chinese and international dishes were on the menu as Beijing’s chefs sought to appeal to President Trump’s tastes.`\
+https://www.nytimes.com/2026/05/14/world/asia/trump-xi-china-food-dinner-menu.html
+
+**What to Know About Day 1 of Trump and Xi’s Meeting**\
+`President Trump and China’s leader, Xi Jinping, exchanged pleasantries and also tackled areas of contention like Taiwan and trade.`\
+https://www.nytimes.com/2026/05/14/world/asia/trump-china-xi-meeting-what-happened.html
+
 **Russia Launches Heavy Drone and Missile Attack on Ukraine’s Capital**\
 `A Russian attack on Kyiv killed several people and wounded dozens, the city’s mayor said. President Vladimir V. Putin of Russia recently said that he believed the war with Ukraine was “coming to a close.”`\
 https://www.nytimes.com/video/world/europe/100000010903250/russia-ukraine-war-kyiv-attack.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/14/world/asia/philippines-dela-rosa-senate-icc-w
 **‘Be Like Satoshi’: We Unmask Scottie Pippen’s A.I. Crypto Slop**\
 `Why is the Bulls legend hawking “the Mona Lisa of sports” as a talking Web3 meme coin NFT?`\
 https://www.nytimes.com/2026/05/14/podcasts/be-like-satoshi-we-unmask-scottie-pippens-ai-crypto-slop.html
-
-**In Venice, the Passion of Life and the Ghost of Art**\
-`The 2026 edition of the world’s oldest art exhibition is a celebration of vitality — for better and indeed for worse.`\
-https://www.nytimes.com/2026/05/14/arts/venice-biennale-artworks.html
-
-**Elon Musk Returns to Trump’s Side in Beijing**\
-`Mr. Musk is part of a delegation of business leaders to China, where his interests include Tesla’s electric vehicle factory and solar panels.`\
-https://www.nytimes.com/2026/05/14/world/asia/musk-china-trump-xi-beijing.html
 
