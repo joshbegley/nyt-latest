@@ -1,3 +1,15 @@
+**A Republican U-Turn on Free Speech**\
+`The G.O.P. has long opposed government regulation of broadcasters. That has changed under Trump.`\
+https://www.nytimes.com/2026/05/14/us/politics/the-docket-republicans-speech-fcc.html
+
+**Rose Byrne and Kelli O’Hara in ‘Fallen Angels,’ and More Theater to Stream**\
+`The actresses both scored Tony nominations for their hilarious turns in Noël Coward’s 1925 farce. Also catch Ben Platt and Rachel Zegler in “The Last Five Years.”`\
+https://www.nytimes.com/2026/05/14/theater/suffs-othello-theater-streaming.html
+
+**Strategist Tied to Becerra Is Expected to Plead Guilty in Corruption Case**\
+`Dana Williamson, a former political strategist for Xavier Becerra and a former aide to Gov. Gavin Newsom, is scheduled to appear in federal court on Thursday.`\
+https://www.nytimes.com/2026/05/14/us/becerra-newsom-strategist-plea-california-governor-race.html
+
 **Hantavirus Doesn’t Spread Easily but Officials May Be Downplaying Risks**\
 `The virus is clearly far less contagious than the coronavirus, scientists agree, but they have found cases where it spread among people without direct contact.`\
 https://www.nytimes.com/2026/05/14/health/hantavirus-spread-risk.html
