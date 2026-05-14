@@ -1,3 +1,11 @@
+**Political Organizer Wins Democratic Primary in Key Nebraska House Race**\
+`Denise Powell prevailed in a close primary race for an Omaha-based seat, currently held by a retiring Republican, that could help determine control of the House.`\
+https://www.nytimes.com/2026/05/13/us/politics/denise-powell-nebrasaka-house-don-bacon.html
+
+**Trump Says He Will Raise Jimmy Lai’s Case to Xi, as Lawmakers Press for His Release**\
+`Mr. Trump has shown less appetite for wading into human rights issues than past U.S. presidents at summits with Beijing, but said he would raise the case of the imprisoned pro-democracy media mogul.`\
+https://www.nytimes.com/2026/05/13/world/asia/trump-says-he-will-raise-jimmy-lais-case-to-xi-as-lawmakers-press-for-his-release.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/05/13/world/trump-xi-summit-china/heres-the-latest
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/13/world/canada/alberta-seperation-secession-jud
 **Trump Administration Will Withhold $1.3 Billion in Medicaid Payments to California**\
 `Vice President JD Vance said the state had not done enough to fight fraud in the public health insurance program.`\
 https://www.nytimes.com/2026/05/13/us/politics/vance-medicaid-fraud-california.html
-
-**Two of the World’s Most Powerful Men Are About to Meet**\
-`Also, Kevin Warsh is confirmed as the next Fed chair. Here’s the latest at the end of Wednesday.`\
-https://www.nytimes.com/2026/05/13/briefing/trump-china-meeting-fed-chair.html
-
-**Miami Residents Sue Over Trump’s Plan to Make His Library a Hotel**\
-`The suit argues that the development on state-donated land would violate the Constitution’s domestic emoluments clause, which prohibits the president from accepting money or gifts from states.`\
-https://www.nytimes.com/2026/05/13/us/politics/miami-lawsuit-trump-library-hotel.html
 

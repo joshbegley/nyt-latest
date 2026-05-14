@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/05/13/world/trump-xi-summit-china/heres-the-latest
+
+**Alberta Petition to Break Away From Canada Is Dealt a Blow in Court**\
+`A judge sided with an Indigenous group that had asked for a petition by separatists to force a vote on the oil-rich province seceding from Canada to be thrown out.`\
+https://www.nytimes.com/2026/05/13/world/canada/alberta-seperation-secession-judge.html
+
 **Canada and Alberta Agree to Raise Carbon Prices as Pipeline Tradeoff**\
 `But the agreement is the latest softening of carbon reduction measures introduced by Prime Minister Mark Carney since he took office last year.`\
 https://www.nytimes.com/2026/05/13/world/canada/alberta-carbon-pricing-bc-pipeline-carney.html
