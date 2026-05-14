@@ -1,9 +1,13 @@
+**Pair for a Pool**\
+`Thirsty for a Thursday challenge? Simeon Seigel is here to help.`\
+https://www.nytimes.com/2026/05/13/crosswords/daily-puzzle-2026-05-14.html
+
 **Is America Still No. 1?**\
 `The billionaire investor who predicted the 2008 financial crash is bearish on America’s future standing in the world. On “Interesting Times,” Ray Dalio tells the columnist Ross Douthat why.`\
 https://www.nytimes.com/video/opinion/100000010875155/is-america-still-no-1.html
 
-**Watch Live: Trump to Meet Xi as U.S.-China Summit Kicks Off**\
-`China’s leader, Xi Jinping, was set to welcome President Trump at Beijing’s Great Hall of the People.`\
+**Watch Live: Trump Meets Xi as U.S.-China Summit Kicks Off**\
+`China’s leader, Xi Jinping, welcomes President Trump at Beijing’s Great Hall of the People.`\
 https://www.nytimes.com/video/embedded/world/asia/100000010902714/watch-live-trump-meets-xi-as-us-china-summit-kicks-off.html
 
 **Judge Orders U.S. to Return Colombian Woman Deported to Congo**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/13/nyregion/china-covert-police-nyc-verdict.html
 **New Mexico Diocese Tries to Block Government From Seizing Land for Border Wall**\
 `The diocese’s lawyers argued that the land, which is below a 29-foot-tall statue of Jesus Christ on a mountain peak, is a holy site protected under religious freedom.`\
 https://www.nytimes.com/2026/05/13/us/politics/new-mexico-diocese-border-wall.html
-
-**As Their Leaders Meet, American and Chinese People Are Drifting Apart**\
-`Past meetings between the presidents of the U.S. and China have involved friendly displays of cultural exchange. Those gestures have largely dried up.`\
-https://www.nytimes.com/2026/05/13/world/asia/trump-xi-summit-people-culture.html
 
