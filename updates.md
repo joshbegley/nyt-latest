@@ -1,3 +1,11 @@
+**The Ancient Beijing Temple at the Center of Trump’s Visit**\
+`The Temple of Heaven and Great Hall of the People embody distinct parts of China’s history, which Xi Jinping has sought to underscore while hosting state visits.`\
+https://www.nytimes.com/2026/05/14/world/asia/trump-xi-china-summit-temple-of-heaven-great-hall.html
+
+**Honda Posts First Ever Annual Loss After Pullback From E.V.s**\
+`Honda posted its first loss since 1957 as it took a multibillion-dollar hit from scaling back its electric-vehicle plans.`\
+https://www.nytimes.com/2026/05/14/business/honda-earnings-electric-vehicles.html
+
 **Dejar la casa atrás para vivir sobre ruedas**\
 `Con pocos motivos para quedarse atados a un hogar fijo, algunos padres con el nido vacío están optando por salir a la carretera.`\
 https://www.nytimes.com/es/2026/05/14/espanol/estados-unidos/jubilacion-casa-rodante.html
