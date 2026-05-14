@@ -1,3 +1,7 @@
+**Wes Streeting Resigns and Calls for Leadership Contest to Replace Starmer**\
+`The British health secretary stepped down on Thursday and issued an excoriating statement on the government of Prime Minister Keir Starmer.`\
+https://www.nytimes.com/2026/05/14/world/europe/wes-streeting-resigns-starmer-uk-prime-minister.html
+
 **U.S. Abruptly Cancels Deployment of 4,000 Troops to Poland**\
 `It was unclear why Defense Secretary Pete Hegseth called off the deployment to Poland, which has close relations with the United States.`\
 https://www.nytimes.com/2026/05/14/us/politics/us-army-poland-troops-hegseth-trump.html

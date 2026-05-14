@@ -54,8 +54,8 @@ https://www.nytimes.com/2026/05/14/world/asia/trump-china-people-street.html
 `President Trump and President Xi Jinping of China emphasized cooperation in their remarks after walking into the Great Hall of the People side by side.`\
 https://www.nytimes.com/2026/05/14/world/asia/trump-invites-xi-to-white-house-during-state-dinner-in-beijing.html
 
-**Wes Streeting Resigns, Setting Stage for Possible Leadership Challenge to Starmer**\
-`After days of speculation, the British health secretary said Thursday that he was resigning from the government of Prime Minister Keir Starmer.`\
+**Wes Streeting Resigns and Calls for Leadership Contest to Replace Starmer**\
+`The British health secretary stepped down on Thursday and issued an excoriating statement on the government of Prime Minister Keir Starmer.`\
 https://www.nytimes.com/2026/05/14/world/europe/wes-streeting-resigns-starmer-uk-prime-minister.html
 
 **China’s State Dinner for Trump Includes Beef Ribs, Roast Duck and Tiramisu**\

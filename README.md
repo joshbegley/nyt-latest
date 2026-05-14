@@ -1,3 +1,7 @@
+**Who Attended the U.S.-China State Banquet in Beijing?**\
+`Guests included top U.S. and Chinese officials and the chief executives of several major American companies.`\
+https://www.nytimes.com/2026/05/14/world/asia/trump-china-xi-state-dinner-who-attended.html
+
 **U.S. Abruptly Cancels Deployment of 4,000 Troops to Poland**\
 `It was unclear why Defense Secretary Pete Hegseth called off the deployment to Poland, which has close relations with the United States.`\
 https://www.nytimes.com/2026/05/14/us/politics/us-army-poland-troops-hegseth-trump.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/world/europe/100000010903250/russia-ukraine-war-ky
 ****\
 ``\
 https://www.nytimes.com/video/embedded/world/asia/100000010903430/14vid-trump-banquet-embed-1-77671.html
-
-****\
-``\
-https://www.nytimes.com/video/embedded/world/asia/100000010903474/14vid-xi-maga-subt-95416.html
 
