@@ -1,3 +1,7 @@
+**Here’s What It Costs to Keep a Coal Plant Open**\
+`A regulatory filing explains just how much it costs to keep an aging coal plant open under the Trump administration’s orders.`\
+https://www.nytimes.com/2026/05/14/climate/heres-what-it-costs-to-keep-a-coal-plant-open.html
+
 **Our Public Health Agencies Have No Leaders. What Could Possibly Go Wrong?**\
 `We have no F.D.A. director, no permanent C.D.C. director and no surgeon general.`\
 https://www.nytimes.com/2026/05/14/opinion/public-health-leaders-fda-cdc-surgeon-general.html
@@ -19,7 +23,7 @@ https://www.nytimes.com/2026/05/14/opinion/lowkey-slang-language-youth.html
 https://www.nytimes.com/2026/05/14/us/politics/green-cards-immigration-deportation-trump.html
 
 **N.Y.C. Second-Home Tax May Affect Homes With $1 Million ‘Market Value’**\
-`The new tax surcharge will be phased in over two stages, as the city and state work out a better way to identify which high-end pieds-à-terre will be affected.`\
+`The so-called market value is a government metric that often underestimates a home’s actual worth. The new tax will be phased in as the city and state work out which properties it will affect.`\
 https://www.nytimes.com/2026/05/14/nyregion/nyc-second-home-tax-rates.html
 
 **Leader of Reform U.K. Says £5 Million Gift Was ‘Reward’ for Brexit**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/14/us/politics/latino-voters-outreach.html
 **What Teenagers Are Saying About Writing By Hand in the Digital Age**\
 `Students react to a call for more handwritten letters and explore the cognitive and emotional differences between writing by hand and typing.`\
 https://www.nytimes.com/2026/05/14/learning/what-teenagers-are-saying-about-writing-by-hand-in-the-digital-age.html
-
-**Spies, Sanctions, Cyberattacks: China and the U.S. Clash Behind the Scenes**\
-`After months of avoiding confrontation, the Trump administration has taken recent steps to call out China on Iran, artificial intelligence and spying.`\
-https://www.nytimes.com/2026/05/14/us/politics/china-us-sanctions-ai-cybersecurity.html
 

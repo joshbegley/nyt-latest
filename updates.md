@@ -1,3 +1,11 @@
+**Here’s What It Costs to Keep a Coal Plant Open**\
+`A regulatory filing explains just how much it costs to keep an aging coal plant open under the Trump administration’s orders.`\
+https://www.nytimes.com/2026/05/14/climate/heres-what-it-costs-to-keep-a-coal-plant-open.html
+
+**N.Y.C. Second-Home Tax May Affect Homes With $1 Million ‘Market Value’**\
+`The so-called market value is a government metric that often underestimates a home’s actual worth. The new tax will be phased in as the city and state work out which properties it will affect.`\
+https://www.nytimes.com/2026/05/14/nyregion/nyc-second-home-tax-rates.html
+
 **Our Public Health Agencies Have No Leaders. What Could Possibly Go Wrong?**\
 `We have no F.D.A. director, no permanent C.D.C. director and no surgeon general.`\
 https://www.nytimes.com/2026/05/14/opinion/public-health-leaders-fda-cdc-surgeon-general.html
