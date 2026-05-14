@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/05/14/theater/suffs-othello-theater-streaming.html
 `Dana Williamson, a former political strategist for Xavier Becerra and a former aide to Gov. Gavin Newsom, is scheduled to appear in federal court on Thursday.`\
 https://www.nytimes.com/2026/05/14/us/becerra-newsom-strategist-plea-california-governor-race.html
 
-**Hantavirus Doesn’t Spread Easily but Officials May Be Downplaying Risks**\
+**Hantavirus Doesn’t Spread Easily, but Officials May Be Downplaying Risks**\
 `The virus is clearly far less contagious than the coronavirus, scientists agree, but they have found cases where it spread among people without direct contact.`\
 https://www.nytimes.com/2026/05/14/health/hantavirus-spread-risk.html
 
