@@ -1,3 +1,19 @@
+**El auge y declive del AK-47**\
+`Una familia de armas que en su día fue omnipresente en el mercado estadounidense ha empezado a desaparecer por diversas razones.`\
+https://www.nytimes.com/es/2026/05/14/espanol/estados-unidos/ak47-menos-produccion.html
+
+**¿Comer sano? No, ellos comen bíblicamente**\
+`Una dieta inspirada en las Escrituras ha encontrado nuevas audiencias en internet como sustento al movimiento de Hagamos a Estados Unidos saludable de nuevo.`\
+https://www.nytimes.com/es/2026/05/14/espanol/estilos-de-vida/comer-dieta-biblia.html
+
+**Xi referenced ‘great changes unseen in a century.’ Here’s what that means.**\
+``\
+https://www.nytimes.com/live/2026/05/13/world/trump-xi-summit-china/xi-referenced-great-changes-unseen-in-a-century-heres-what-that-means
+
+**Xi Lays Out Blunt Warning For Trump Over Taiwan.**\
+`China’s leader, Xi Jinping said relations between the two countries could enter an “extremely dangerous place” if Mr. Trump ignored China’s demands over Taiwan.`\
+https://www.nytimes.com/2026/05/14/world/asia/china-xi-trump-taiwan-warning.html
+
 **‘Rots Your Brain’**\
 `What do you think this image is communicating?`\
 https://www.nytimes.com/2026/05/14/learning/rots-your-brain.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/es/2026/05/14/espanol/mundo/guerra-iran-golfo-chiitas-ac
 **7 movimientos para prevenir el dolor de hombro**\
 `Estos ejercicios pueden ayudarte a evitar molestias al mejorar tu fuerza y movilidad.`\
 https://www.nytimes.com/es/2026/05/14/espanol/prevenir-dolor-hombro-ejercicios.html
-
-**President Trump Goes to China**\
-`His talks with Xi Jinping in Beijing could decide whether the United States and China maintain their uneasy truce on trade.`\
-https://www.nytimes.com/2026/05/14/world/asia/trump-china-photos.html
-
-**Shakira, Madonna and BTS Are First World Cup Final Halftime Show**\
-`The previous World Cup final drew more than 500 million live viewers. This year’s matchup is scheduled for July 19 at MetLife Stadium.`\
-https://www.nytimes.com/2026/05/14/arts/music/world-cup-halftime-shakira-madonna-bts.html
-
-**Midsize Cities Held Steady as U.S. Population Growth Declined**\
-`New census estimates show that the nation’s largest cities saw the sharpest slowdowns in population growth over the past year amid declines in immigration and plunging birthrates.`\
-https://www.nytimes.com/2026/05/14/us/us-population-growth-midsize-cities.html
-
-**Pedro Sánchez encabeza la oposición política a Donald Trump. Y está ganando**\
-`El líder de España ha establecido una filosofía de gobierno alternativa al trumpismo.`\
-https://www.nytimes.com/es/2026/05/14/espanol/opinion/espana-pedro-sanchez-trump.html
 
