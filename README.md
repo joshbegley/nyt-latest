@@ -18,7 +18,7 @@ https://www.nytimes.com/es/2026/05/14/espanol/america-latina/madre-buscadora-mex
 `The secrets of one of the architects of the religious right are being revealed. One of the secrets is that they weren’t really secrets.`\
 https://www.nytimes.com/2026/05/14/opinion/southern-baptist-convention-paul-pressler.html
 
-**In Some Other Universe, This Might Be Funny**\
+**The Trump Dumpster Fire Is Lit**\
 `When MAHA turns into HAHA.`\
 https://www.nytimes.com/2026/05/14/opinion/trump-politics-maha.html
 
