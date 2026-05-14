@@ -1,3 +1,7 @@
+**As Trump Meets Xi, Iran Lets Chinese Ships Through Strait of Hormuz**\
+`Iranian news agencies said some Chinese ships were being allowed through the strait, following diplomatic outreach to Iran from Beijing.`\
+https://www.nytimes.com/2026/05/14/world/middleeast/iran-strait-hormuz-china-ships.html
+
 **Appeals Court Appears Skeptical of Trump Orders Targeting Law Firms**\
 `A three-judge panel showed few signs of siding with the president on his efforts to compel law firms to work for the administration or face threats.`\
 https://www.nytimes.com/2026/05/14/us/politics/trump-law-firms-appeals-court.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/14/us/politics/the-docket-republicans-speech-fcc
 **Rose Byrne and Kelli O’Hara in ‘Fallen Angels,’ and More Theater to Stream**\
 `The actresses both scored Tony nominations for their hilarious turns in Noël Coward’s 1925 farce. Also catch Ben Platt and Rachel Zegler in “The Last Five Years.”`\
 https://www.nytimes.com/2026/05/14/theater/suffs-othello-theater-streaming.html
-
-**Strategist Tied to Becerra and Newsom Pleads Guilty in Corruption Case**\
-`Dana Williamson, a former political strategist for Xavier Becerra and a former aide to Gov. Gavin Newsom, appeared in federal court on Thursday.`\
-https://www.nytimes.com/2026/05/14/us/becerra-newsom-strategist-plea-california-governor-race.html
 
