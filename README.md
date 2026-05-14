@@ -1,6 +1,10 @@
+**Climate Change as a 2026 Campaign Issue**\
+`Readers largely disagree with a guest essay that argued that Democrats should not focus on it. Also: Violence against Latinos; school closings.`\
+https://www.nytimes.com/2026/05/14/opinion/climate-change-2026-election.html
+
 **Deadly Storms Devastate Northern India**\
 `Officials said at least 111 people were killed and dozens more injured after severe storms hit the state of Uttar Pradesh.`\
-https://www.nytimes.com/video/world/asia/100000010903892/india-deadly-storms.html
+https://www.nytimes.com/video/world/asia/100000010903892/india-storms-video-uttar-pradesh-deaths.html
 
 **A Republican U-Turn on Free Speech**\
 `The G.O.P. has long opposed government regulation of broadcasters. That has changed under Trump.`\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/14/dining/how-nice-is-this-gnocchi.html
 **Trump’s War Is Punishing the Poor, Starting at the Gas Pump**\
 `Higher fuel prices are a burden on low-income families.`\
 https://www.nytimes.com/2026/05/14/opinion/gas-prices-fuel-oil-trump-poor.html
-
-**Julio Torres’s Furniture Takes Inspiration From the JFK Customs Line**\
-`Plus: a renewed Paris nightclub, sunglasses from Debbie Harry and more recommendations from T Magazine.`\
-https://www.nytimes.com/2026/05/14/t-magazine/julio-torres-sabai-furniture-design.html
 

@@ -1,3 +1,7 @@
+**Deadly Storms Devastate Northern India**\
+`Officials said at least 111 people were killed and dozens more injured after severe storms hit the state of Uttar Pradesh.`\
+https://www.nytimes.com/video/world/asia/100000010903892/india-deadly-storms.html
+
 **Strategist Tied to Becerra and Newsom Is Expected to Plead Guilty to 3 Felonies**\
 `Dana Williamson, a former political strategist for Xavier Becerra and a former aide to Gov. Gavin Newsom, is scheduled to appear in federal court on Thursday.`\
 https://www.nytimes.com/2026/05/14/us/becerra-newsom-strategist-plea-california-governor-race.html
