@@ -1,3 +1,7 @@
+**Watch Live: Trump Meets Xi as U.S.-China Summit Kicks Off**\
+`China’s leader, Xi Jinping, welcomes President Trump at Beijing’s Great Hall of the People.`\
+https://www.nytimes.com/video/embedded/world/asia/100000010902714/watch-live-trump-meets-xi-as-us-china-summit-kicks-off.html
+
 **Judge Orders U.S. to Return Colombian Woman Deported to Congo**\
 `The unusual ruling came after the judge found that the Trump administration had most likely violated the law by deporting the 55-year-old woman to the African country despite its refusal to take her.`\
 https://www.nytimes.com/2026/05/13/world/africa/congo-colombia-deportee-return.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/13/world/asia/trump-xi-summit-people-culture.htm
 **Duffy’s ‘Great American Road Trip’ Prompts Ethical Concerns**\
 `A YouTube series starring Transportation Secretary Sean Duffy and his family is part of the nation’s 250th anniversary celebrations, but it doubled as a family excursion for them.`\
 https://www.nytimes.com/2026/05/13/us/road-trip-duffy.html
-
-**How Jerome Powell Managed a Chaotic Era**\
-`Our reporter Colby Smith, who covers the Federal Reserve and the economy, looks back at Jerome Powell’s tenure as chair of the Fed.`\
-https://www.nytimes.com/video/us/100000010884024/how-jerome-powell-managed-a-chaotic-era.html
 

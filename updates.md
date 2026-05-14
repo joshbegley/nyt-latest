@@ -1,3 +1,7 @@
+**Watch Live: Trump Meets Xi as U.S.-China Summit Kicks Off**\
+`China’s leader, Xi Jinping, welcomes President Trump at Beijing’s Great Hall of the People.`\
+https://www.nytimes.com/video/embedded/world/asia/100000010902714/watch-live-trump-meets-xi-as-us-china-summit-kicks-off.html
+
 **Judge Orders U.S. to Return Colombian Woman Deported to Congo**\
 `The unusual ruling came after the judge found that the Trump administration had most likely violated the law by deporting the 55-year-old woman to the African country despite its refusal to take her.`\
 https://www.nytimes.com/2026/05/13/world/africa/congo-colombia-deportee-return.html
