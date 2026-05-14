@@ -1,3 +1,19 @@
+**El silencio del principal asesor militar de Trump deja muchas preguntas**\
+`Como jefe del Estado Mayor Conjunto, el general Dan Caine está obligado a mantenerse al margen de la refriega política provocada por la guerra en Irán. Pero trabaja para un presidente que le exige lealtad absoluta.`\
+https://www.nytimes.com/es/2026/05/14/espanol/estados-unidos/trump-guerra-iran-asesor-ejercito.html
+
+**C.I.A. Director Travels to Cuba as U.S. Intensifies Pressure**\
+`John Ratcliffe, the C.I.A. director, is the highest-ranking official in the Trump administration to visit the country.`\
+https://www.nytimes.com/2026/05/14/us/politics/cia-director-visits-cuba.html
+
+**16 More People in the U.S. Are Being Monitored for Hantavirus, C.D.C. Says**\
+`They were passengers on a plane to Johannesburg with an infected Dutch woman who later died.`\
+https://www.nytimes.com/2026/05/14/health/hantavirus-outbreak-quarantine.html
+
+**Should Every Party Be Allowed to Vote in a Primary?**\
+`New research claims that bipartisan primaries have broad societal benefit, but opposition is growing, and Louisiana voters this weekend will participate in the state’s first closed primary since 1978.`\
+https://www.nytimes.com/2026/05/14/us/politics/open-primaries-improve-lives.html
+
 **Glitz and Boycotts at Eurovision**\
 `The song contest has camp, glitter and pyrotechnics. And, this year, protests over Israel’s participation.`\
 https://www.nytimes.com/2026/05/14/world/eurovision-israel-boycotts-china.html
