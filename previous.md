@@ -1,3 +1,7 @@
+**China Is Worried About A.I. Too**\
+`What if you weren’t worried about A.I. taking your job? That seems to be closer to the reality in China, where keeping pace with the new technology is a much bigger focus than economic disruption. On “Interesting Times,” Kyle Chan, a foreign policy fellow at the Brookings Institution, explains how the countries differ in their anxieties over artificial intelligence.`\
+https://www.nytimes.com/video/opinion/100000010892470/china-is-worried-about-ai-too.html
+
 **Top U.S. Commander Dismisses Reports of Civilian Deaths in Iran**\
 `Adm. Brad Cooper on Thursday dismissed reports of the U.S.’s role in civilian deaths in Iran. The commander said the U.S. military identified one potential incident involving a school, which Iranian officials said killed 175 people, most of them children. The New York Times has verified that 22 schools and 17 health care facilities were damaged in the war.`\
 https://www.nytimes.com/video/us/politics/100000010904740/civilian-deaths-strikes-iran.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/14/us/politics/war-powers-vote-house-trump-iran.
 **El silencio del principal asesor militar de Trump deja muchas preguntas**\
 `Como jefe del Estado Mayor Conjunto, el general Dan Caine está obligado a mantenerse al margen de la refriega política provocada por la guerra en Irán. Pero trabaja para un presidente que le exige lealtad absoluta.`\
 https://www.nytimes.com/es/2026/05/14/espanol/estados-unidos/trump-guerra-iran-asesor-ejercito.html
-
-**C.I.A. Director Travels to Cuba as U.S. Intensifies Pressure**\
-`John Ratcliffe, the C.I.A. director, is the highest-ranking official in the Trump administration to visit the country.`\
-https://www.nytimes.com/2026/05/14/us/politics/cia-director-visits-cuba.html
 
