@@ -1,3 +1,19 @@
+**El Mundial tendrá un espectáculo de medio tiempo por primera vez**\
+`La final anterior del Mundial atrajo a más de 500 millones de espectadores en directo. El partido de este año está programado para el 19 de julio en el estadio MetLife. Actuarán Shakira, BTS y Madonna.`\
+https://www.nytimes.com/es/2026/05/14/espanol/cultura/mundial-shakira-madonna-bts.html
+
+**The Family Branding of Sean Duffy’s New Reality Show Is a Trip**\
+`A trailer heralds the latest spinoff from the Trump administration.`\
+https://www.nytimes.com/2026/05/14/style/sean-duffy-great-american-road-trip.html
+
+**Trump Cites Inaccurate Data to Downplay Economic Toll of Iran War**\
+`He has minimized soaring gas prices, rising inflation and the American economy’s need for the Strait of Hormuz.`\
+https://www.nytimes.com/2026/05/14/us/politics/trump-iran-war-economy-cost.html
+
+**Who Owns These Artworks? A Museum Hopes Visitors Can Help Find Out.**\
+`A new room in the Musée d’Orsay’s permanent display includes 13 pieces that were recovered from Germany and Austria after World War II and whose provenance is unknown.`\
+https://www.nytimes.com/2026/05/14/arts/design/musee-dorsay-art-world-war-ii.html
+
 **Over 100 People Killed in India as Storms Wreak Destruction**\
 `The deaths were scattered across a swath of India’s most populous state, Uttar Pradesh, where many homes were destroyed.`\
 https://www.nytimes.com/2026/05/14/world/asia/india-storms-deaths-uttar-pradesh.html
