@@ -1,3 +1,11 @@
+**Julio Torres’s Furniture Takes Inspiration From the JFK Customs Line**\
+`Plus: a renewed Paris nightclub, sunglasses from Debbie Harry and more recommendations from T Magazine.`\
+https://www.nytimes.com/2026/05/14/t-magazine/julio-torres-sabai-furniture-design.html
+
+**Argentina está en una carrera por hallar el origen del brote de hantavirus**\
+`Las autoridades ya rastrean el itinerario de la pareja neerlandesa identificada como la fuente del brote de hantavirus en un crucero. La investigación se ha visto envuelta en acusaciones internacionales.`\
+https://www.nytimes.com/es/2026/05/14/espanol/america-latina/hantavirus-argentina.html
+
 **Saudi Arabia and U.A.E. Carried Out Secret Attacks in Iran, U.S. Officials Say**\
 `The Gulf Arab states have been grappling with how to deter Iran after the war made clear the limits of American security guarantees.`\
 https://www.nytimes.com/2026/05/14/world/middleeast/saudi-arabia-uae-iran-attacks.html
