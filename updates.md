@@ -1,3 +1,11 @@
+**U.S. Set to Drop Charges Against Indian Billionaire Accused of Fraud**\
+`The decision came after a meeting in which a lawyer for the billionaire, Gautam Adani, made an unusual offer, according to people familiar with the matter.`\
+https://www.nytimes.com/2026/05/14/nyregion/gautam-adani-billionaire-doj-trump.html
+
+**Flag With Swastikas and Star of David Flown at N.Y.U., Police Say**\
+`The flag appeared on a university building in the heart of Greenwich Village during a graduation week event, and resembled the purple N.Y.U. banners flying on campus.`\
+https://www.nytimes.com/2026/05/14/nyregion/swastika-flag-star-david-nyu.html
+
 **Today, In Short**\
 `Biblical eating. Commencement speeches. And a taxidermist.`\
 https://www.nytimes.com/2026/05/14/briefing/today-in-short.html
