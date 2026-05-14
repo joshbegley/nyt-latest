@@ -1,3 +1,7 @@
+**Un juez ordena devolver a EE. UU. a una mujer colombiana deportada a Congo-Kinsasa**\
+`El juez consideró que era muy probable que el gobierno de Donald Trump hubiera infringido la ley al deportar a la mujer al país africano a pesar de que este se negaba a acogerla.`\
+https://www.nytimes.com/es/2026/05/14/espanol/mundo/colombiana-deportada-congo-estados-unidos.html
+
 **Neo-Nazi Leader Who Plotted to Poison Children Is Sentenced to 15 Years**\
 `Michail Chkhikvishvili, 22, was the leader of Maniac Murder Cult, an extremist group that encouraged people to commit acts of hate and violence, prosecutors said.`\
 https://www.nytimes.com/2026/05/14/nyregion/neo-nazi-leader-sentenced-poisoned-candy.html
