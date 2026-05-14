@@ -1,3 +1,7 @@
+**Body of Second U.S. Soldier Who Went Missing in Morocco Is Found**\
+`The body of Specialist Mariyah Symone Collington, 19, was retrieved from a coastal cave less than a week after the recovery of the body of First Lt. Kendrick Lamont Key Jr.`\
+https://www.nytimes.com/2026/05/14/us/us-soldier-missing-morocco-body-found.html
+
 **‘Is God Is’ Review: The Fires This Time**\
 `Kara Young and Mallori Johnson play twins bent on revenge in the playwright Aleshea Harris’s powerhouse film debut.`\
 https://www.nytimes.com/2026/05/14/movies/is-god-is-review.html
