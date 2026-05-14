@@ -1,3 +1,19 @@
+**Trump Might Welcome Chinese Investment, but America Is Wary**\
+`A pledge for more Chinese investment could face backlash given longstanding national security concerns in the United States.`\
+https://www.nytimes.com/2026/05/14/business/trump-china-xi-investment.html
+
+**The Met Will Expand by Merging With the Nearby Neue Galerie**\
+`Beginning in 2028, the Metropolitan Museum of Art will own the Neue’s Fifth Avenue home and the prestige collection of 20th-century Austrian and German art built by Ronald S. Lauder.`\
+https://www.nytimes.com/2026/05/14/arts/design/met-museum-neue-galerie-merger-lauder.html
+
+**Former U.K. Deputy Prime Minister Cleared of Wrongdoing Over Tax Payment**\
+`Angela Rayner, who resigned last year after paying the wrong rate of tax on an apartment purchase, said an investigation found she had not done so deliberately.`\
+https://www.nytimes.com/2026/05/14/world/europe/angela-rayner-tax-uk-starmer.html
+
+**After Dressing Celebrities, This Designer Now Wants to Dress You**\
+`Joe Ando-Hirsh made a name for himself with bespoke gowns. The ambition of his new brand is to dress the average woman.`\
+https://www.nytimes.com/2026/05/14/style/joe-ando-hirsh-tiktok-designer-label.html
+
 **Who Attended the U.S.-China State Banquet in Beijing?**\
 `Guests included top U.S. and Chinese officials and the chief executives of several major American companies.`\
 https://www.nytimes.com/2026/05/14/world/asia/trump-china-xi-state-dinner-who-attended.html

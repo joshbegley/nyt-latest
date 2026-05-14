@@ -1,3 +1,15 @@
+**Judith Barnard, of Best-Selling ‘Judith Michael’ Fame, Dies at 94**\
+`At 50, on a lark, she published a romance-thriller with her husband, Michael Fain. Like the characters of their novel, they found themselves thrown into unexpected success.`\
+https://www.nytimes.com/2026/05/14/books/judith-barnard-dead.html
+
+**Consumers Spent More in April Despite High Gas Prices**\
+`Retail sales rose 0.5 percent despite higher prices for gas, food and other goods. But there are signs consumers are under some strain.`\
+https://www.nytimes.com/2026/05/14/business/retail-sales-consumer-spending-april.html
+
+**What to Know About Wes Streeting, Who Has Resigned as British Health Secretary**\
+`Mr. Streeting, a confident communicator from the right of the Labour Party, comes from a working-class background and said he was influenced by his Tory grandfather.`\
+https://www.nytimes.com/2026/05/14/world/europe/uk-who-is-wes-streeting.html
+
 **Trump Might Welcome Chinese Investment, but America Is Wary**\
 `A pledge for more Chinese investment could face backlash given longstanding national security concerns in the United States.`\
 https://www.nytimes.com/2026/05/14/business/trump-china-xi-investment.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/14/business/dealbook/spencer-pratt-ceo-support.h
 ****\
 ``\
 https://www.nytimes.com/video/embedded/world/asia/100000010903414/14vid-xi-speech-embed.html
-
-**‘Quite Brutal,’ ‘Not Friendly’: What People in China Say of Trump**\
-`Residents in four Chinese cities described a mixture of amusement and anger, blaming U.S. tensions for a slowing economy and rising fuel prices.`\
-https://www.nytimes.com/2026/05/14/world/asia/trump-china-people-street.html
-
-**Trump Invites Xi to White House During State Dinner in Beijing**\
-`President Trump and President Xi Jinping of China emphasized cooperation in their remarks after walking into the Great Hall of the People side by side.`\
-https://www.nytimes.com/2026/05/14/world/asia/trump-invites-xi-to-white-house-during-state-dinner-in-beijing.html
-
-**Wes Streeting Resigns and Calls for Leadership Contest to Replace Starmer**\
-`The British health secretary stepped down on Thursday and issued an excoriating statement on the government of Prime Minister Keir Starmer.`\
-https://www.nytimes.com/2026/05/14/world/europe/wes-streeting-resigns-starmer-uk-prime-minister.html
 

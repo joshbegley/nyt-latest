@@ -1,3 +1,19 @@
+**Trump Might Welcome Chinese Investment, but America Is Wary**\
+`A pledge for more Chinese investment could face backlash given longstanding national security concerns in the United States.`\
+https://www.nytimes.com/2026/05/14/business/trump-china-xi-investment.html
+
+**The Met Will Expand by Merging With the Nearby Neue Galerie**\
+`Beginning in 2028, the Metropolitan Museum of Art will own the Neue’s Fifth Avenue home and the prestige collection of 20th-century Austrian and German art built by Ronald S. Lauder.`\
+https://www.nytimes.com/2026/05/14/arts/design/met-museum-neue-galerie-merger-lauder.html
+
+**Former U.K. Deputy Prime Minister Cleared of Wrongdoing Over Tax Payment**\
+`Angela Rayner, who resigned last year after paying the wrong rate of tax on an apartment purchase, said an investigation found she had not done so deliberately.`\
+https://www.nytimes.com/2026/05/14/world/europe/angela-rayner-tax-uk-starmer.html
+
+**After Dressing Celebrities, This Designer Now Wants to Dress You**\
+`Joe Ando-Hirsh made a name for himself with bespoke gowns. The ambition of his new brand is to dress the average woman.`\
+https://www.nytimes.com/2026/05/14/style/joe-ando-hirsh-tiktok-designer-label.html
+
 **Who Attended the U.S.-China State Banquet in Beijing?**\
 `Guests included top U.S. and Chinese officials and the chief executives of several major American companies.`\
 https://www.nytimes.com/2026/05/14/world/asia/trump-china-xi-state-dinner-who-attended.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/05/14/world/asia/trump-invites-xi-to-white-house-du
 **Wes Streeting Resigns and Calls for Leadership Contest to Replace Starmer**\
 `The British health secretary stepped down on Thursday and issued an excoriating statement on the government of Prime Minister Keir Starmer.`\
 https://www.nytimes.com/2026/05/14/world/europe/wes-streeting-resigns-starmer-uk-prime-minister.html
-
-**China’s State Dinner for Trump Includes Beef Ribs, Roast Duck and Tiramisu**\
-`A mixture of Chinese and international dishes were on the menu as Beijing’s chefs sought to appeal to President Trump’s tastes.`\
-https://www.nytimes.com/2026/05/14/world/asia/trump-xi-china-food-dinner-menu.html
-
-**What to Know About Day 1 of Trump and Xi’s Meeting**\
-`President Trump and China’s leader, Xi Jinping, exchanged pleasantries and also tackled areas of contention like Taiwan and trade.`\
-https://www.nytimes.com/2026/05/14/world/asia/trump-china-xi-meeting-what-happened.html
-
-**Russia Launches Heavy Drone and Missile Attack on Ukraine’s Capital**\
-`A Russian attack on Kyiv killed several people and wounded dozens, the city’s mayor said. President Vladimir V. Putin of Russia recently said that he believed the war with Ukraine was “coming to a close.”`\
-https://www.nytimes.com/video/world/europe/100000010903250/russia-ukraine-war-kyiv-attack.html
-
-****\
-``\
-https://www.nytimes.com/video/embedded/world/asia/100000010903430/14vid-trump-banquet-embed-1-77671.html
 
