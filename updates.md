@@ -1,3 +1,7 @@
+**A Closer Look at Who’s in the U.S. Delegation to China**\
+`Some of Mr. Trump’s most influential cabinet members and the C.E.O.s of some of America’s biggest corporations accompanied him on his visit to Beijing.`\
+https://www.nytimes.com/interactive/2026/05/14/world/asia/trump-china-xi-delegation-business-leaders.html
+
 **Chinese Media Cast Trump’s Visit as a Sign of Beijing’s Rising Stature**\
 `Chinese state media is depicting the summit as an opportunity for the United States to accept that the “right way” for the two powers to engage is as equals.`\
 https://www.nytimes.com/2026/05/14/world/asia/china-trump-xi-media.html
