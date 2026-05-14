@@ -1,3 +1,7 @@
+**Freezable, Grillable, Party-Worthy**\
+`In my latest Recipe Matchmaker, I’ve got great vegetarian recipes for hyper-specific conditions.`\
+https://www.nytimes.com/2026/05/14/dining/freezable-grillable-party-worthy.html
+
 **Medical Plane Crashes in New Mexico, Killing All 4 People Aboard**\
 `The plane was traveling from Roswell to Sierra Blanca Regional Airport, a trip of less than 30 minutes. The cause of the crash was not known, officials said.`\
 https://www.nytimes.com/2026/05/14/us/medical-plane-crash-new-mexico-four-dead.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/polls/president-republican-primary-polls-202
 **2028 Democratic Presidential Primary: Latest Polls**\
 `Track the latest polls in the Democratic primary for President of the United States.`\
 https://www.nytimes.com/interactive/polls/president-democratic-primary-polls-2028.html
-
-**How Nice Is This Gnocchi?**\
-`Hetty Lui McKinnon’s new gnocchi with peas and whipped feta looks (and tastes) restaurant-worthy, but is easy to assemble at home.`\
-https://www.nytimes.com/2026/05/14/dining/how-nice-is-this-gnocchi.html
 
