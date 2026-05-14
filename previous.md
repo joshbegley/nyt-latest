@@ -1,3 +1,7 @@
+**China Restores Beef Trade With U.S. as Goodwill Gesture for Trump Visit**\
+`Beijing approved export licenses for hundreds of American slaughterhouses to resume beef shipments, ending a 15-month ban.`\
+https://www.nytimes.com/2026/05/14/world/asia/trump-china-beef.html
+
 **Trump and Xi Meet as Summit Begins**\
 `President Trump shook hands with President Xi Jinping of China at the start of a two-day summit in Beijing on Thursday. They are expected to discuss trade, Iran and Taiwan.`\
 https://www.nytimes.com/video/world/asia/100000010903139/trump-xi-china-summit.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/14/business/honda-earnings-electric-vehicles.htm
 **Trump no debe darle más victorias a China**\
 `La política de Trump hacia China ha debilitado a EE. UU., especialmente en su segundo mandato.`\
 https://www.nytimes.com/es/2026/05/14/espanol/opinion/trump-china.html
-
-**Los países del Golfo detienen a ‘traidores’ chiíes en medio de la guerra con Irán**\
-`Decenas de ciudadanos del golfo Pérsico han sido acusados de pertenecer a células terroristas vinculadas a Irán mientras la guerra acelera un giro hacia un autoritarismo más profundo en la región.`\
-https://www.nytimes.com/es/2026/05/14/espanol/mundo/guerra-iran-golfo-chiitas-acusados-terrorismo.html
 

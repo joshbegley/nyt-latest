@@ -1,3 +1,7 @@
+**Russia Pummels Kyiv After Putin Hints That War Could End Soon**\
+`At least one person was killed and dozens were wounded in a drone and missile strike, the latest in a series of attacks since a three-day truce expired on Monday.`\
+https://www.nytimes.com/2026/05/14/world/europe/ukraine-strike-kyiv-russia-putin.html
+
 **China Restores Beef Trade With U.S. as Goodwill Gesture for Trump Visit**\
 `Beijing approved export licenses for hundreds of American slaughterhouses to resume beef shipments, ending a 15-month ban.`\
 https://www.nytimes.com/2026/05/14/world/asia/trump-china-beef.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/14/arts/television/late-night-trump-china-musk.h
 **Honda Posts First Ever Annual Loss After Pullback From E.V.s**\
 `Honda posted its first loss since 1957 as it took a multibillion-dollar hit from scaling back its electric-vehicle plans.`\
 https://www.nytimes.com/2026/05/14/business/honda-earnings-electric-vehicles.html
-
-**Trump no debe darle más victorias a China**\
-`La política de Trump hacia China ha debilitado a EE. UU., especialmente en su segundo mandato.`\
-https://www.nytimes.com/es/2026/05/14/espanol/opinion/trump-china.html
 

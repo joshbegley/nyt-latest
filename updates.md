@@ -1,3 +1,7 @@
+**China Restores Beef Trade With U.S. as Goodwill Gesture for Trump Visit**\
+`Beijing approved export licenses for hundreds of American slaughterhouses to resume beef shipments, ending a 15-month ban.`\
+https://www.nytimes.com/2026/05/14/world/asia/trump-china-beef.html
+
 **Trump and Xi Meet as Summit Begins**\
 `President Trump shook hands with President Xi Jinping of China at the start of a two-day summit in Beijing on Thursday. They are expected to discuss trade, Iran and Taiwan.`\
 https://www.nytimes.com/video/world/asia/100000010903139/trump-xi-china-summit.html
