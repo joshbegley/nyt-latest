@@ -1,3 +1,19 @@
+****\
+``\
+https://www.nytimes.com/video/embedded/world/asia/100000010903414/14vid-xi-speech-embed.html
+
+**‘Quite Brutal,’ ‘Not Friendly’: What People in China Say of Trump**\
+`Residents in four Chinese cities described a mixture of amusement and anger, blaming U.S. tensions for a slowing economy and rising fuel prices.`\
+https://www.nytimes.com/2026/05/14/world/asia/trump-china-people-street.html
+
+**Trump Invites Xi to White House During State Dinner in Beijing**\
+`President Trump and President Xi Jinping of China emphasized cooperation in their remarks after walking into the Great Hall of the People side by side.`\
+https://www.nytimes.com/2026/05/14/world/asia/trump-invites-xi-to-white-house-during-state-dinner-in-beijing.html
+
+**Wes Streeting Resigns, Setting Stage for Possible Leadership Challenge to Starmer**\
+`After days of speculation, the British health secretary said Thursday that he was resigning from the government of Prime Minister Keir Starmer.`\
+https://www.nytimes.com/2026/05/14/world/europe/wes-streeting-resigns-starmer-uk-prime-minister.html
+
 **China’s State Dinner for Trump Includes Beef Ribs, Roast Duck and Tiramisu**\
 `A mixture of Chinese and international dishes were on the menu as Beijing’s chefs sought to appeal to President Trump’s tastes.`\
 https://www.nytimes.com/2026/05/14/world/asia/trump-xi-china-food-dinner-menu.html

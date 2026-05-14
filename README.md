@@ -1,3 +1,7 @@
+**The C.E.O.s for Spencer Pratt**\
+`The former reality-TV star has shaken up the Los Angeles mayoral race, gaining support from deep-pocketed donors like the financier Daniel S. Loeb.`\
+https://www.nytimes.com/2026/05/14/business/dealbook/spencer-pratt-ceo-support.html
+
 ****\
 ``\
 https://www.nytimes.com/video/embedded/world/asia/100000010903414/14vid-xi-speech-embed.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/14/crosswords/strands-sidekick-803.html
 **Connections Companion No. 1,069**\
 `Scroll down for hints and conversation about the puzzle for Friday, May 15, 2026.`\
 https://www.nytimes.com/2026/05/14/crosswords/connections-companion-1069.html
-
-**Watch Live: China’s Leader, Xi Jinping, Hosts President Trump for a State Banquet**\
-`China’s leader, Xi Jinping, is hosting a state banquet for President Trump during a summit in Beijing.`\
-https://www.nytimes.com/video/embedded/world/asia/100000010903350/watch-live-chinas-leader-xi-jinping-hosts-president-trump-for-a-state-banquet.html
 
