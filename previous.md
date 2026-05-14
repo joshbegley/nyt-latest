@@ -1,3 +1,7 @@
+**South Carolina Governor Plans Special Session to Redraw House Maps**\
+`Gov. Henry McMaster, a Republican, appears prepared to thrust the state into the nation’s redistricting wars.`\
+https://www.nytimes.com/2026/05/13/us/south-carolina-special-session-redistricting.html
+
 **Irán, Taiwán y la tregua comercial: las cartas de Xi para negociar con Trump**\
 `China quiere que continúe la tregua comercial con EE. UU. Eso significa que Xi negociará con Trump para que no se impongan más aranceles, ni controles a las exportaciones, ni sanciones a sus empresas.`\
 https://www.nytimes.com/es/2026/05/13/espanol/mundo/china-trump-xi-reunion.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/13/nyregion/rudy-giuliani-interview-health.html
 **Second Venezuelan Doctor Is Released From Immigration Custody**\
 `At least five foreign-born doctors have been detained, according to a medical organization, raising fears that underserved rural areas reliant on them could be further strained.`\
 https://www.nytimes.com/2026/05/13/us/venezuelan-doctor-released-from-immigration-custody-texas.html
-
-**The China Gambit: From Nixon to Trump**\
-`President Trump’s visit to Beijing comes as relations with China have become more combative.`\
-https://www.nytimes.com/2026/05/13/us/politics/china-visits-nixon-to-trump.html
 

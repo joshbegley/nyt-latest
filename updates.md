@@ -1,3 +1,7 @@
+**South Carolina Governor Plans Special Session to Redraw House Maps**\
+`Gov. Henry McMaster, a Republican, appears prepared to thrust the state into the nation’s redistricting wars.`\
+https://www.nytimes.com/2026/05/13/us/south-carolina-special-session-redistricting.html
+
 **Irán, Taiwán y la tregua comercial: las cartas de Xi para negociar con Trump**\
 `China quiere que continúe la tregua comercial con EE. UU. Eso significa que Xi negociará con Trump para que no se impongan más aranceles, ni controles a las exportaciones, ni sanciones a sus empresas.`\
 https://www.nytimes.com/es/2026/05/13/espanol/mundo/china-trump-xi-reunion.html
