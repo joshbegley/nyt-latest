@@ -1,3 +1,27 @@
+**Two Killed After Small Plane Crashes Into House in Ohio**\
+`On Thursday, two people were killed after a small plane crashed into a house on a suburban street in Akron, Ohio, and caught fire.`\
+https://www.nytimes.com/video/us/100000010905383/two-killed-small-plane-crash-ohio.html
+
+**What the jury must weigh to decide the case.**\
+``\
+https://www.nytimes.com/live/2026/05/14/technology/openai-trial-sam-altman-elon-musk/what-the-jury-must-weigh-to-decide-the-case
+
+**With Claim of Fraud, Vance Hammers Democrats as Trump Officials Halt Medicaid Payments**\
+`Vice President JD Vance traveled to Maine for a speech, making a midterm election pitch that only Republicans could root out fraud in public benefits.`\
+https://www.nytimes.com/2026/05/14/us/politics/medicaid-fraud-vance-republicans-maine.html
+
+**El director de la CIA viaja a Cuba mientras EE.UU. intensifica la presión a la isla**\
+`John Ratcliffe, director de la CIA, es el funcionario de más alto rango del gobierno de Trump que ha visitado el país.`\
+https://www.nytimes.com/es/2026/05/14/espanol/estados-unidos/cia-cuba.html
+
+**G. Robert Blakey Dies at 90; Drafted the RICO Anti-Racketeering Statute**\
+`He was also the chief counsel to the House Select Committee on Assassinations in the late 1970s and spent years as a Notre Dame law professor.`\
+https://www.nytimes.com/2026/05/14/us/george-robert-blakey-dead.html
+
+**A Top Connecticut Republican, Accused of Fraud, Ends Her Bid for Governor**\
+`Erin Stewart was facing intense scrutiny over her use of a city credit card when she was mayor of New Britain, Conn.`\
+https://www.nytimes.com/2026/05/14/nyregion/erin-stewart-suspends-governor-campaign-connecticut.html
+
 **More Than a Quarter of Abortions Are Done by Telehealth, Protected for Now by the Supreme Court**\
 `Mail-order pills shipped to states with bans are a reason abortion has increased since Roe v. Wade was overturned.`\
 https://www.nytimes.com/2026/05/14/upshot/abortion-pills-court.html
