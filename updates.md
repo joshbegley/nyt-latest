@@ -1,3 +1,15 @@
+**Russia Launches Heavy Drone and Missile Attack on Ukraine’s Capital**\
+`A Russian attack on Kyiv killed several people and wounded dozens, the city’s mayor said. President Vladimir V. Putin of Russia recently said that he believed the war with Ukraine was “coming to a close.”`\
+https://www.nytimes.com/video/world/europe/100000010903250/russia-ukraine-war-kyiv-attack.html
+
+****\
+``\
+https://www.nytimes.com/video/embedded/world/asia/100000010903430/14vid-trump-banquet-embed-1-77671.html
+
+****\
+``\
+https://www.nytimes.com/video/embedded/world/asia/100000010903474/14vid-xi-maga-subt-95416.html
+
 **Trump and Xi Discuss the Need to Open the Strait of Hormuz, U.S. Says**\
 `Earlier, Secretary of State Marco Rubio said in an interview that China should take a more active role in resolving a standoff over the strait.`\
 https://www.nytimes.com/2026/05/14/world/asia/trump-xi-iran.html

@@ -1,3 +1,15 @@
+**Russia Launches Heavy Drone and Missile Attack on Ukraine’s Capital**\
+`A Russian attack on Kyiv killed several people and wounded dozens, the city’s mayor said. President Vladimir V. Putin of Russia recently said that he believed the war with Ukraine was “coming to a close.”`\
+https://www.nytimes.com/video/world/europe/100000010903250/russia-ukraine-war-kyiv-attack.html
+
+****\
+``\
+https://www.nytimes.com/video/embedded/world/asia/100000010903430/14vid-trump-banquet-embed-1-77671.html
+
+****\
+``\
+https://www.nytimes.com/video/embedded/world/asia/100000010903474/14vid-xi-maga-subt-95416.html
+
 **Who’s Running in 2028?**\
 `We look at potential candidates for the nation’s top job.`\
 https://www.nytimes.com/2026/05/14/briefing/whos-running-for-president-in-2028.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/14/arts/venice-biennale-artworks.html
 **Elon Musk Returns to Trump’s Side in Beijing**\
 `Mr. Musk is part of a delegation of business leaders to China, where his interests include Tesla’s electric vehicle factory and solar panels.`\
 https://www.nytimes.com/2026/05/14/world/asia/musk-china-trump-xi-beijing.html
-
-**Tras la desaparición de sus dos hijos, su búsqueda la convirtió en la voz de las madres mexicanas**\
-`Una de las activistas más destacadas en la lucha por los desaparecidos en México encontró recientemente los restos de uno de sus hijos desaparecidos. Ahora ha centrado sus esfuerzos en encontrar al otro.`\
-https://www.nytimes.com/es/2026/05/14/espanol/america-latina/madre-buscadora-mexico.html
-
-**I Don’t Think You Can Even Call This Hypocrisy**\
-`The secrets of one of the architects of the religious right are being revealed. One of the secrets is that they weren’t really secrets.`\
-https://www.nytimes.com/2026/05/14/opinion/southern-baptist-convention-paul-pressler.html
-
-**The Trump Dumpster Fire Is Lit**\
-`When MAHA turns into HAHA.`\
-https://www.nytimes.com/2026/05/14/opinion/trump-politics-maha.html
 
