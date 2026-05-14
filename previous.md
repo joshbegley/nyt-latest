@@ -1,3 +1,7 @@
+**Supreme Court Allows Abortion Pill Access by Mail to Continue**\
+`A federal appeals court ruling against the Food and Drug Administration would have restricted access by mail to mifepristone.`\
+https://www.nytimes.com/2026/05/14/us/politics/supreme-court-abortion-pill.html
+
 **Can a Windbreaker Be Fashionable?**\
 `Whether it’s a little breezy or downright blustery outside, any of these jackets will serve you well this spring.`\
 https://www.nytimes.com/2026/05/14/t-magazine/windbreaker-jacket-fashion.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/14/us/politics/doj-lawsuit-yale-medical.html
 **A Top U.S. Commander Dismisses Reports of Civilian Deaths in Iran**\
 `Adm. Brad Cooper’s testimony suggested that he believed that the U.S. military had been near perfect in avoiding civilian casualties.`\
 https://www.nytimes.com/2026/05/14/us/politics/civilian-deaths-strikes-iran.html
-
-**Microsoft’s C.E.O. testified about the company’s OpenAI investments.**\
-``\
-https://www.nytimes.com/live/2026/05/14/technology/openai-trial-sam-altman-elon-musk/microsofts-ceo-testified-about-the-companys-openai-investments
 
