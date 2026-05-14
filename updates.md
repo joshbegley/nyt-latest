@@ -1,3 +1,11 @@
+**Over 100 People Killed in India as Storms Wreak Destruction**\
+`The deaths were scattered across a swath of India’s most populous state, Uttar Pradesh, where many homes were destroyed.`\
+https://www.nytimes.com/2026/05/14/world/asia/india-storms-deaths-uttar-pradesh.html
+
+****\
+``\
+https://www.nytimes.com/video/embedded/world/asia/100000010903523/14vid-trump-xi-blog-46762.html
+
 **Where Are the Women at the Trump-Xi Summit?**\
 `Nearly all the business leaders and officials accompanying President Trump in China are men. There are few women on the Chinese side, too.`\
 https://www.nytimes.com/2026/05/14/world/asia/trump-xi-meeting-china-women-melania.html
