@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/05/13/world/trump-xi-summit-china/heres-the-latest
+
 **Canada and Alberta Agree to Raise Carbon Prices as Pipeline Tradeoff**\
 `But the agreement is the latest softening of carbon reduction measures introduced by Prime Minister Mark Carney since he took office last year.`\
 https://www.nytimes.com/2026/05/13/world/canada/alberta-carbon-pricing-bc-pipeline-carney.html
