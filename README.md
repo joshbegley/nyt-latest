@@ -1,3 +1,7 @@
+**Deadly Storms Devastate Northern India**\
+`Officials said at least 111 people were killed and dozens more injured after severe storms hit the state of Uttar Pradesh.`\
+https://www.nytimes.com/video/world/asia/100000010903892/india-deadly-storms.html
+
 **A Republican U-Turn on Free Speech**\
 `The G.O.P. has long opposed government regulation of broadcasters. That has changed under Trump.`\
 https://www.nytimes.com/2026/05/14/us/politics/the-docket-republicans-speech-fcc.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/14/opinion/gas-prices-fuel-oil-trump-poor.html
 **Julio Torres’s Furniture Takes Inspiration From the JFK Customs Line**\
 `Plus: a renewed Paris nightclub, sunglasses from Debbie Harry and more recommendations from T Magazine.`\
 https://www.nytimes.com/2026/05/14/t-magazine/julio-torres-sabai-furniture-design.html
-
-**Argentina está en una carrera por hallar el origen del brote de hantavirus**\
-`Las autoridades ya rastrean el itinerario de la pareja neerlandesa identificada como la fuente del brote de hantavirus en un crucero. La investigación se ha visto envuelta en acusaciones internacionales.`\
-https://www.nytimes.com/es/2026/05/14/espanol/america-latina/hantavirus-argentina.html
 

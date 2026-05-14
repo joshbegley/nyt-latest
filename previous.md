@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/05/14/us/politics/the-docket-republicans-speech-fcc
 `The actresses both scored Tony nominations for their hilarious turns in Noël Coward’s 1925 farce. Also catch Ben Platt and Rachel Zegler in “The Last Five Years.”`\
 https://www.nytimes.com/2026/05/14/theater/suffs-othello-theater-streaming.html
 
-**Strategist Tied to Becerra Is Expected to Plead Guilty in Corruption Case**\
+**Strategist Tied to Becerra and Newsom Is Expected to Plead Guilty to 3 Felonies**\
 `Dana Williamson, a former political strategist for Xavier Becerra and a former aide to Gov. Gavin Newsom, is scheduled to appear in federal court on Thursday.`\
 https://www.nytimes.com/2026/05/14/us/becerra-newsom-strategist-plea-california-governor-race.html
 
