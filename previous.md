@@ -1,3 +1,15 @@
+**The Secret Behind the Solace of “Winnie-the-Pooh”**\
+`The best-selling author of “The Midnight Library,” Matt Haig, reflects on one of his favorite childhood books, the A.A. Milne classic “Winnie-the-Pooh.”`\
+https://www.nytimes.com/video/podcasts/100000010906475/the-secret-behind-the-solace-of-winnie-the-pooh.html
+
+**Snorkeling at Pearl Harbor: Kash Patel’s Travels Add to Focus on Ethical Issues**\
+`The F.B.I. director continues to come under scrutiny for mixing government business with dates, vacation and leisure time.`\
+https://www.nytimes.com/2026/05/15/us/politics/patel-fbi-travel-snorkeling-pearl-harbor.html
+
+**Israeli Strike Targeted Top Hamas Leader in Gaza, Officials Say**\
+`Izz al-Din al-Haddad, the target of an Israeli strike in Gaza City, took over the group’s military wing in Gaza last year. Israeli officials said he was also an architect of the Oct. 7 attack.`\
+https://www.nytimes.com/2026/05/15/world/middleeast/israel-gaza-haddad-hamas.html
+
 **El Departamento de Justicia de EE. UU. busca usar leyes sobre terrorismo para perseguir a funcionarios mexicanos**\
 `Esta semana, la agencia federal estadounidense dio instrucciones a los fiscales para que comiencen a establecer causas penales por narcotráfico contra funcionarios mexicanos usando nuevos estatutos sobre terrorismo.`\
 https://www.nytimes.com/es/2026/05/15/espanol/america-latina/mexico-ee-uu-gobierno-narco-terrorismo.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/15/us/elections/steve-cohen-retires-tennessee.ht
 **Executions Surge in Iran Since Cease-Fire, Rights Groups Say**\
 `Many were detained during January’s mass protests, according to a rights group, amid concerns the authorities are trying to intimidate Iranians from returning to the streets.`\
 https://www.nytimes.com/2026/05/15/world/middleeast/execution-iran-ceasefire.html
-
-**The Stock Market’s Winning Streak Is About to Be Tested**\
-`Despite accelerating inflation and possible interest rate increases, the S&P 500 has posted a long weekly winning streak, driven by strong corporate earnings. Can it last?`\
-https://www.nytimes.com/2026/05/15/business/stocks-bonds-interest-rates-inflation.html
-
-**Titulares de la ‘green card’ son el objetivo de deportación de un nuevo ‘aparato de expulsión’**\
-`El Departamento de Seguridad Nacional de EE. UU. creó una unidad encargada de revisar los antecedentes de miles de migrantes con residencia permanente.`\
-https://www.nytimes.com/es/2026/05/15/espanol/estados-unidos/green-card-residencia-deportaciones-trump.html
-
-**Militia Commander Tied to Iran Plotted Attacks in U.S., Prosecutors Say**\
-`Mohammad Baqer Saad Dawood Al-Saadi is accused of leading attacks in Europe and being part of a retaliation campaign by Iran. Prosecutors say he is a leader of Kataib Hezbollah, an Iraqi militia with ties to Iran.`\
-https://www.nytimes.com/2026/05/15/nyregion/hezbollah-arrest-nyc-jewish-targets.html
 

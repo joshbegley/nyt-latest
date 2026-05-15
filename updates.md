@@ -1,3 +1,15 @@
+**The Secret Behind the Solace of “Winnie-the-Pooh”**\
+`The best-selling author of “The Midnight Library,” Matt Haig, reflects on one of his favorite childhood books, the A.A. Milne classic “Winnie-the-Pooh.”`\
+https://www.nytimes.com/video/podcasts/100000010906475/the-secret-behind-the-solace-of-winnie-the-pooh.html
+
+**Snorkeling at Pearl Harbor: Kash Patel’s Travels Add to Focus on Ethical Issues**\
+`The F.B.I. director continues to come under scrutiny for mixing government business with dates, vacation and leisure time.`\
+https://www.nytimes.com/2026/05/15/us/politics/patel-fbi-travel-snorkeling-pearl-harbor.html
+
+**Israeli Strike Targeted Top Hamas Leader in Gaza, Officials Say**\
+`Izz al-Din al-Haddad, the target of an Israeli strike in Gaza City, took over the group’s military wing in Gaza last year. Israeli officials said he was also an architect of the Oct. 7 attack.`\
+https://www.nytimes.com/2026/05/15/world/middleeast/israel-gaza-haddad-hamas.html
+
 **Executions Surge in Iran Since Cease-Fire, Rights Groups Say**\
 `Many were detained during January’s mass protests, according to a rights group, amid concerns the authorities are trying to intimidate Iranians from returning to the streets.`\
 https://www.nytimes.com/2026/05/15/world/middleeast/execution-iran-ceasefire.html
