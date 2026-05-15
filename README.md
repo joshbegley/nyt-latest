@@ -1,3 +1,7 @@
+**‘The Devil Wears Prada 2’ | Anatomy of a Scene**\
+`The director David Frankel narrates a sequence from his film starring Meryl Streep and Anne Hathaway.`\
+https://www.nytimes.com/video/movies/100000010897447/the-devil-wears-prada-2-scene.html
+
 **Trump-Xi Summit Ends With No Major Breakthroughs**\
 `China’s leader, Xi Jinping, gave President Trump a tour of secretive Beijing compound toward the end of their two-day summit.`\
 https://www.nytimes.com/video/world/asia/100000010905580/trump-china-xi-zhongnanhai-garden.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/15/style/john-cook-sylvia-auton-wedding.html
 **They Found Love On and Off the Tennis Court**\
 `Dr. Jeffrey Petigrow and Emma Famili met in 2022 at a clinic that helps children with autism build skills through tennis.`\
 https://www.nytimes.com/2026/05/15/style/jeffrey-petigrow-emma-famili-wedding.html
-
-**How Two Bookworms Wrote Their Own Love Story**\
-`Stefanie Joseph and Christopher Richards, who met on a dating app three years ago, immediately bonded over their love of reading.`\
-https://www.nytimes.com/2026/05/15/style/stefanie-joseph-christopher-richards-wedding.html
 
