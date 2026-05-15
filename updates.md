@@ -1,3 +1,11 @@
+**Trump Announces Boeing Jet Order From China. Beijing Stays Silent.**\
+`The deal, if it materializes, would be a major win for Boeing, which has lost ground to Airbus in one of the world’s largest aviation markets.`\
+https://www.nytimes.com/2026/05/15/world/asia/trump-boeing-order-china.html
+
+**Watch Live: Trump Leaves Beijing as Summit Ends**\
+`President Trump departing Beijing after his summit with China’s leader, Xi Jinping, on Friday.`\
+https://www.nytimes.com/video/embedded/world/asia/100000010905581/watch-live-trump-and-xi-meet-on-second-day-of-summit.html
+
 **Keir Starmer and the End of the Old Certainties**\
 `The decade since Brexit has been one long, painful process of trying — and failing — to make sense of this new reality.`\
 https://www.nytimes.com/2026/05/15/opinion/keir-starmer-uk-brexit-politics.html

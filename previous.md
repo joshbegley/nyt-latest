@@ -1,3 +1,7 @@
+**Trump Announces Boeing Jet Order From China. Beijing Stays Silent.**\
+`The deal, if it materializes, would be a major win for Boeing, which has lost ground to Airbus in one of the world’s largest aviation markets.`\
+https://www.nytimes.com/2026/05/15/world/asia/trump-boeing-order-china.html
+
 **Keir Starmer and the End of the Old Certainties**\
 `The decade since Brexit has been one long, painful process of trying — and failing — to make sense of this new reality.`\
 https://www.nytimes.com/2026/05/15/opinion/keir-starmer-uk-brexit-politics.html
@@ -62,8 +66,8 @@ https://www.nytimes.com/2026/05/14/world/asia/trump-xi-summit-china-beijing-zhon
 `As President Trump and China’s leader, Xi Jinping, meet, the United States said China has promised to expand its purchases of farm goods and airplanes.`\
 https://www.nytimes.com/2026/05/14/world/asia/trump-china-us-trade.html
 
-**Watch Now: Trump and Xi Meet on Second Day of Summit**\
-`President Trump meeting with China’s leader, Xi Jinping, in Beijing’s Zhongnanhai compound on Friday.`\
+**Watch Live: Trump Leaves Beijing as Summit Ends**\
+`President Trump departing Beijing after his summit with China’s leader, Xi Jinping, on Friday.`\
 https://www.nytimes.com/video/embedded/world/asia/100000010905581/watch-live-trump-and-xi-meet-on-second-day-of-summit.html
 
 **Play Casually, Say**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/14/crosswords/daily-puzzle-2026-05-15.html
 **Former Oklahoma Death Row Prisoner Freed Before Retrial in a 1997 Killing**\
 `A lawyer for Richard Glossip said the ruling provided a step forward in his client’s efforts to escape a “decades-long nightmare” in a case that has faced substantial criticism.`\
 https://www.nytimes.com/2026/05/14/us/richard-glossip-release-death-row-bond.html
-
-**Man Charged With Posting Bomb Instructions Used in New Orleans Attack**\
-`The man, a former Army engineer, was accused of posting videos showing how to make explosives. Authorities said those videos were used by the man who carried out a deadly attack in New Orleans last year.`\
-https://www.nytimes.com/2026/05/14/us/man-charged-bomb-instructions-new-orleans-attack.html
 
