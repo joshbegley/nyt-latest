@@ -1,3 +1,11 @@
+**El Departamento de Justicia de EE. UU. busca usar leyes sobre terrorismo para perseguir a funcionarios mexicanos**\
+`Esta semana, la agencia federal estadounidense dio instrucciones a los fiscales para que comiencen a establecer causas penales por narcotráfico contra funcionarios mexicanos usando nuevos estatutos sobre terrorismo.`\
+https://www.nytimes.com/es/2026/05/15/espanol/america-latina/mexico-ee-uu-gobierno-narco-terrorismo.html
+
+**Judge Bars Kars4Kids From Broadcasting ‘Misleading’ Ads in California**\
+`The ads with a repetitive jingle encouraging people to donate cars do not disclose that most of the proceeds go to a Jewish organization in New Jersey, the judge ruled.`\
+https://www.nytimes.com/2026/05/15/us/kars4kids-advertising-banned-california.html
+
 **36 Hours to Air: Inside the Scramble to Film ‘S.N.L.’ Shorts**\
 `A rare glimpse behind the scenes reveals a frenetic process that has been refined across decades.`\
 https://www.nytimes.com/interactive/2026/05/15/arts/television/saturday-night-live-shorts-filming-process.html
