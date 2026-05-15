@@ -1,3 +1,15 @@
+**For Xi’s Critics, Summit Spectacle Is Fuel for Jokes They Can’t Tell**\
+`On Threads and other sites, liberal-minded Chinese accounts were mocking the proceedings and offering a rare window into opinions on Mr. Xi and his leadership style.`\
+https://www.nytimes.com/2026/05/15/business/trump-xi-meeting-china-social-media.html
+
+**Review: Frida Kahlo and Diego Rivera, Reunited on the Opera Stage**\
+`“El Último Sueño de Frida y Diego,” Gabriela Lena Frank and Nilo Cruz’s fantasy about two titans of Mexican art, arrives at the Metropolitan Opera.`\
+https://www.nytimes.com/2026/05/15/arts/music/frida-and-diego-met-opera-review.html
+
+**C.I.A. Director Visits Cuba Amid Energy Crisis**\
+`John Ratcliffe, the director of the Central Intelligence Agency, traveled to Cuba a day after its government announced that it had exhausted its oil supplies for power plants and domestic use.`\
+https://www.nytimes.com/video/world/americas/100000010906021/cia-director-cuba-fuel-shortage.html
+
 **Today, In Short**\
 `Dating apps. “Survivor.” And summer recipes.`\
 https://www.nytimes.com/2026/05/15/briefing/today-in-short.html
