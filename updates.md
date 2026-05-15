@@ -1,3 +1,31 @@
+**Trump Loyalist Leads Administration’s Hunt for Fraud in Elections**\
+`The loyalist, Dan Bishop, put his fealty to the president on display when he pressed the F.B.I. to chase investigative leads it had already rejected.`\
+https://www.nytimes.com/2026/05/15/us/dan-bishop-election-fraud-trump.html
+
+**Xi Pitches His Vision for Avoiding a Superpower Collision**\
+`Having fought the Trump administration to a draw, China’s Xi Jinping is proposing “constructive strategic stability,” aimed at drawing lines he thinks the U.S. should not cross.`\
+https://www.nytimes.com/2026/05/15/world/asia/xi-trump-superpower-thucydides-stability.html
+
+**Drake Releases ‘Iceman’ and Two Surprise Albums: What to Know**\
+`The chart-topping Canadian rapper released an anticipated new album, “Iceman,” on Friday and two previously unannounced LPs, “Habibti” and “Maid of Honour.”`\
+https://www.nytimes.com/2026/05/15/arts/music/drake-new-albums-iceman-habibti-maid-of-honour.html
+
+**Lisa Ann Walter Dishes It Out**\
+`During a midcareer renaissance, the “Abbott Elementary” and “Parent Trap” star is returning to stand-up, propelled by “the insanity of being a grown-ass woman.”`\
+https://www.nytimes.com/2026/05/15/arts/television/lisa-ann-walter-abbott-elementary-parent-trap.html
+
+**In Kentucky, the Iran War Complicates a Republican Primary**\
+`Representative Thomas Massie, the incumbent, has opposed President Trump’s military strikes on Iran. He is now facing the biggest challenge of his career.`\
+https://www.nytimes.com/2026/05/15/us/politics/kentucky-voters-iran-war.html
+
+**From Air Force One, Trump writes of ballrooms, a statue and TikTok.**\
+`In social media posts after the summit in Beijing, President Trump boasted about the ongoing construction of his ballroom and his TikTok reach.`\
+https://www.nytimes.com/live/2026/05/14/world/trump-xi-summit-beijing/from-air-force-one-trump-writes-of-ballrooms-a-statue-and-tiktok
+
+**In Italy, Princess Catherine Puts Her Wardrobe to Work**\
+`Suits her, sir.`\
+https://www.nytimes.com/2026/05/15/style/princess-catherine-italy-fashion.html
+
 **Despite Tensions, China Greets Trump With Pomp and Pageantry**\
 `There was no major breakthrough in Beijing, but China pulled out all the stops for President Trump, with extravagant ceremonies and a state banquet.`\
 https://www.nytimes.com/2026/05/15/world/asia/trump-xi-china-meeting-beijing-reception.html
