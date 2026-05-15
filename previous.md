@@ -1,3 +1,7 @@
+**‘In the Grey’ Review: Cavill and Gyllenhaal Bring the Ruckus**\
+`Guy Ritchie’s latest is a sleek, sun-drenched actioner in which morality is fuzzy but the fashion is sharp.`\
+https://www.nytimes.com/2026/05/15/movies/in-the-grey-review.html
+
 **Some Medicare Patients Can Now Get Free CBD**\
 `The Trump administration has authorized a test program to see if the cannabis compound can ease some symptoms and reduce health care costs among older patients.`\
 https://www.nytimes.com/2026/05/15/health/medicare-cbd.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/15/business/starbucks-layoffs-office-closures.ht
 **‘No Essay’ College Scholarships May Have Unseen Strings Attached**\
 `Unlike traditional financial aid, the prizes are awarded by random drawings. The websites, in turn, gain access to applicants’ personal information.`\
 https://www.nytimes.com/2026/05/15/your-money/no-essay-college-scholarships.html
-
-****\
-``\
-https://www.nytimes.com/video/embedded/world/asia/100000010906158/15vid-trump-plane-1035.html
 

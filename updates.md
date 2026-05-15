@@ -1,3 +1,7 @@
+**‘In the Grey’ Review: Cavill and Gyllenhaal Bring the Ruckus**\
+`Guy Ritchie’s latest is a sleek, sun-drenched actioner in which morality is fuzzy but the fashion is sharp.`\
+https://www.nytimes.com/2026/05/15/movies/in-the-grey-review.html
+
 **Some Medicare Patients Can Now Get Free CBD**\
 `The Trump administration has authorized a test program to see if the cannabis compound can ease some symptoms and reduce health care costs among older patients.`\
 https://www.nytimes.com/2026/05/15/health/medicare-cbd.html
