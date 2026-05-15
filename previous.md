@@ -1,3 +1,7 @@
+**The Audemars Piguet and Swatch Collab That Broke the Internet**\
+`For some watch fans, the Royal Pop was a royal letdown.`\
+https://www.nytimes.com/2026/05/15/style/the-audemars-piguet-and-swatch-collab-that-broke-the-internet.html
+
 **Trump’s ‘Learning Curve’ on China Ends With Conciliation at Summit**\
 `The president has shifted the foundations of American policy toward China, throwing aside the adversarial approach of recent years.`\
 https://www.nytimes.com/2026/05/15/world/europe/trump-xi-china-summit.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/15/insider/zach-caldwell-video-new-york-times.ht
 **Trump Loyalist Leads Administration’s Hunt for Fraud in Elections**\
 `The loyalist, Dan Bishop, put his fealty to the president on display when he pressed the F.B.I. to chase investigative leads it had already rejected.`\
 https://www.nytimes.com/2026/05/15/us/dan-bishop-election-fraud-trump.html
-
-**Xi Pitches His Vision for Avoiding a Superpower Collision**\
-`Having fought the Trump administration to a draw, China’s Xi Jinping is proposing “constructive strategic stability,” aimed at drawing lines he thinks the U.S. should not cross.`\
-https://www.nytimes.com/2026/05/15/world/asia/xi-trump-superpower-thucydides-stability.html
 

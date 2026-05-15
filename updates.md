@@ -1,3 +1,7 @@
+**The Audemars Piguet and Swatch Collab That Broke the Internet**\
+`For some watch fans, the Royal Pop was a royal letdown.`\
+https://www.nytimes.com/2026/05/15/style/the-audemars-piguet-and-swatch-collab-that-broke-the-internet.html
+
 **For Xi’s Critics, Summit Spectacle Is Fuel for Jokes They Can’t Tell**\
 `On Threads and other sites, liberal-minded Chinese accounts were mocking the proceedings and offering a rare window into opinions on Xi Jinping and his leadership style.`\
 https://www.nytimes.com/2026/05/15/business/trump-xi-meeting-china-social-media.html
