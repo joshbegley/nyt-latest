@@ -1,3 +1,7 @@
+**Nvidia’s Future in China Remains Unclear After Trump-Xi Summit**\
+`The standoff comes as Chinese firms increasingly turn to domestic chipmakers like Huawei, in a drive to reduce China’s dependence on Western technologies.`\
+https://www.nytimes.com/2026/05/15/world/asia/nvidia-china-chips.html
+
 **Word of the Day: fallible**\
 `This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/05/15/learning/word-of-the-day-fallible.html
