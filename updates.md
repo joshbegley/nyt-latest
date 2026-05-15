@@ -1,3 +1,7 @@
+**Watch Live: Trump and Xi Meet on Second Day of Summit**\
+`China’s leader, Xi Jinping, and President Trump have a bilateral meeting over tea and take part in a photo opportunity on the second day of a summit in Beijing.`\
+https://www.nytimes.com/video/embedded/world/asia/100000010905581/watch-live-trump-and-xi-meet-on-second-day-of-summit.html
+
 **Play Casually, Say**\
 `Maddy Ziegler’s second themeless is an instant hit.`\
 https://www.nytimes.com/2026/05/14/crosswords/daily-puzzle-2026-05-15.html
