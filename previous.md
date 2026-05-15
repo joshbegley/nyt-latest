@@ -1,3 +1,7 @@
+**OpenAI Considers Legal Action Against Apple in Strained Relationship**\
+`The A.I. company, which is in the middle of a court fight with Elon Musk, has been unhappy with how Apple has integrated ChatGPT into its devices.`\
+https://www.nytimes.com/2026/05/14/technology/openai-apple-legal-action.html
+
 **Las ambiciones de Trump chocan con el pragmatismo de Xi**\
 `A pesar de los problemas de China —deflación, despoblación, la burbuja inmobiliaria—, Xi dejó claro que había llegado el momento de que su país actuara como una superpotencia.`\
 https://www.nytimes.com/es/2026/05/14/espanol/mundo/trump-xi-china-estados-unidos.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/14/upshot/abortion-pills-court.html
 **N.Y.U. Class of 2026 Graduates After Studying Through Turbulent Years**\
 `The graduates from New York University witnessed protests and the Trump administration’s crackdown on higher education.`\
 https://www.nytimes.com/2026/05/14/nyregion/nyu-graduation-turbulent.html
-
-**Justices Allow Abortion Pill Access by Mail to Continue**\
-`Also, this is a big week for the art market. Here’s the latest at the end of Thursday.`\
-https://www.nytimes.com/2026/05/14/briefing/supreme-court-abortion-pills.html
 

@@ -1,3 +1,7 @@
+**OpenAI Considers Legal Action Against Apple in Strained Relationship**\
+`The A.I. company, which is in the middle of a court fight with Elon Musk, has been unhappy with how Apple has integrated ChatGPT into its devices.`\
+https://www.nytimes.com/2026/05/14/technology/openai-apple-legal-action.html
+
 **Las ambiciones de Trump chocan con el pragmatismo de Xi**\
 `A pesar de los problemas de China —deflación, despoblación, la burbuja inmobiliaria—, Xi dejó claro que había llegado el momento de que su país actuara como una superpotencia.`\
 https://www.nytimes.com/es/2026/05/14/espanol/mundo/trump-xi-china-estados-unidos.html
