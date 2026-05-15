@@ -1,3 +1,15 @@
+**Viewing the World Through a Wide-Angle Lens**\
+`Zach Caldwell, who manages The New York Times’s team of cinematographers, aims to shift worldviews and shake up perspectives.`\
+https://www.nytimes.com/2026/05/15/insider/zach-caldwell-video-new-york-times.html
+
+**Mothers and Daughters: Two Stories**\
+`Responses to a guest essay by Molly Jong-Fast, “I Tried to Become My Mother and Ended Up Becoming Myself.” Also: President Trump in China; a gift to Big Tobacco.`\
+https://www.nytimes.com/2026/05/15/opinion/mothers-daughters.html
+
+**Cornell Criticizes Students After Its President Bumps Them With His Car**\
+`After the president bumped into students with his car, an investigation by the university’s trustees said that the students’ actions were “inconsistent with university policies.”`\
+https://www.nytimes.com/2026/05/15/nyregion/cornell-students-confrontation.html
+
 **Explosion at Maine Lumber Mill Draws Large Emergency Response**\
 `Footage from the scene showed flames burning through the roof of a large structure as heavy, dark smoke billowed skyward.`\
 https://www.nytimes.com/2026/05/15/us/maine-searsmont-explosion-fire-lumber-mill.html
