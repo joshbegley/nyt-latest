@@ -1,3 +1,11 @@
+**Brillo y boicots en Eurovisión**\
+`El certamen tiene teatralidad, lentejuelas y pirotecnia. Y este año, también tiene protestas por la participación de Israel.`\
+https://www.nytimes.com/es/2026/05/15/espanol/mundo/eurovision-israel-boicot.html
+
+**What to Know About Day 2 of Trump and Xi’s Beijing Summit**\
+`President Trump and China’s leader, Xi Jinping, emphasized stability but announced no major breakthroughs on points of contention like trade, Taiwan and the war in Iran.`\
+https://www.nytimes.com/2026/05/15/world/asia/trump-china-xi-meeting-what-happened.html
+
 **Lessons From the Hantavirus Outbreak**\
 `Sixteen Americans are isolating at a special quarantine center in Omaha, including one person who tested “mildly” positive for the virus.`\
 https://www.nytimes.com/2026/05/15/podcasts/the-daily/hantavirus-outbreak.html
