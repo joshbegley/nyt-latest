@@ -1,3 +1,27 @@
+**Judge Declares Mistrial in Weinstein Rape Trial**\
+`This was the third time Harvey Weinstein was on trial accused of raping an aspiring actress at a hotel in Manhattan in 2013.`\
+https://www.nytimes.com/2026/05/15/nyregion/harvey-weinstein-hung-jury-mistrial.html
+
+**With Memphis District Gone, Another Democratic Mainstay Retires**\
+`Representative Steve Cohen, a Democrat who has represented Memphis since 2007, leaving the field possibly to his young rival, Justin J. Pearson, after Republicans redistrict his seat.`\
+https://www.nytimes.com/2026/05/15/us/elections/steve-cohen-retires-tennessee.html
+
+**Executions Surge in Iran Since Cease-fire, Rights Groups Say**\
+`Many were detained during January’s mass protests, according to a rights group, amid concerns the authorities are trying to intimidate Iranians from returning to the streets.`\
+https://www.nytimes.com/2026/05/15/world/middleeast/execution-iran-ceasefire.html
+
+**The Stock Market’s Winning Streak Is About to Be Tested**\
+`Despite accelerating inflation and possible interest rate increases, the S&P 500 has posted a long weekly winning streak, driven by strong corporate earnings. Can it last?`\
+https://www.nytimes.com/2026/05/15/business/stocks-bonds-interest-rates-inflation.html
+
+**Titulares de la ‘green card’ son el objetivo de deportación de un nuevo ‘aparato de expulsión’**\
+`El Departamento de Seguridad Nacional de EE. UU. creó una unidad encargada de revisar los antecedentes de miles de migrantes con residencia permanente.`\
+https://www.nytimes.com/es/2026/05/15/espanol/estados-unidos/green-card-residencia-deportaciones-trump.html
+
+**Commander of Iraqi Militia Accused of Plotting Attacks on Jewish Sites in U.S.**\
+`Mohammad Baqer Saad Dawood Al-Saadi is accused of directing and urging others to attack American and Israeli interests. Prosecutors say he is a leader of Kataib Hezbollah, an Iraqi militia with ties to Iran.`\
+https://www.nytimes.com/2026/05/15/nyregion/hezbollah-arrest-nyc-jewish-targets.html
+
 **Trump anuncia ‘fantásticos acuerdos comerciales’ con China, pero no da detalles**\
 `El presidente regresa a Estados Unidos tras una cumbre en China, en la que ambos países trataron de estabilizar sus relaciones económicas y políticas.`\
 https://www.nytimes.com/es/2026/05/15/espanol/estados-unidos/trump-china-xi-acuerdos.html
@@ -49,28 +73,4 @@ https://www.nytimes.com/2026/05/15/arts/music/frida-and-diego-met-opera-review.h
 **C.I.A. Director Visits Cuba Amid Energy Crisis**\
 `John Ratcliffe, the director of the Central Intelligence Agency, traveled to Cuba a day after its government announced that oil supplies for domestic use and for power plants had been exhausted.`\
 https://www.nytimes.com/video/world/americas/100000010906021/cia-director-cuba-fuel-shortage.html
-
-**Today, In Short**\
-`Dating apps. “Survivor.” And summer recipes.`\
-https://www.nytimes.com/2026/05/15/briefing/today-in-short.html
-
-**Washington National Opera Builds a New Chapter After Kennedy Center**\
-`The company announced that its next season would include a slate of five full-length operas at houses around the Washington area.`\
-https://www.nytimes.com/2026/05/15/arts/music/washington-opera-new-season-post-kennedy-center.html
-
-**This Three-Cup Chicken Isn’t Accurately Named, But It Is Very Delicious**\
-`And more of our most popular recipes from the week.`\
-https://www.nytimes.com/2026/05/15/dining/this-three-cup-chicken-isnt-accurately-named-but-it-is-very-delicious.html
-
-**Why We Keep Tricking Ourselves Into Thinking A.I. Is Conscious**\
-`Notable thinkers keep telling us they think A.I. is conscious. That doesn’t mean it’s true.`\
-https://www.nytimes.com/2026/05/15/opinion/ai-consciousness.html
-
-**Five Action Movies to Stream Now**\
-`This month’s picks include brawling teenagers, vengeful widowers and retired swordsmen.`\
-https://www.nytimes.com/2026/05/15/movies/five-action-movies-to-stream-now.html
-
-**‘In the Grey’ Review: Cavill and Gyllenhaal Bring the Ruckus**\
-`Guy Ritchie’s latest is a sleek, sun-drenched actioner in which morality is fuzzy but the fashion is sharp.`\
-https://www.nytimes.com/2026/05/15/movies/in-the-grey-review.html
 
