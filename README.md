@@ -1,3 +1,15 @@
+**Michigan Battles Trump Over His Order to Keep an Old Coal Plant Running**\
+`The Trump administration broke the law, Michigan and others told a court, by declaring an “energy emergency” and forcing an aging coal-burning plant to keep operating.`\
+https://www.nytimes.com/2026/05/15/climate/michigan-coal-plant-trump.html
+
+**A ‘Man With No Country,’ Cassidy Fights for Political Future**\
+`Senator Bill Cassidy, targeted by President Trump, is walking a political tightrope as he battles other Republicans for the chance to seek a third term.`\
+https://www.nytimes.com/2026/05/15/us/politics/senator-bill-cassidy-louisiana-primary.html
+
+**Back From China, Trump Faces Decision on Whether to Resume Strikes on Iran**\
+`Top aides have drafted battle plans as peace negotiations have stalled.`\
+https://www.nytimes.com/2026/05/15/us/politics/trump-iran.html
+
 **Viewing the World Through a Wide-Angle Lens**\
 `Zach Caldwell, who manages The New York Times’s team of cinematographers, aims to shift worldviews and shake up perspectives.`\
 https://www.nytimes.com/2026/05/15/insider/zach-caldwell-video-new-york-times.html
@@ -46,8 +58,8 @@ https://www.nytimes.com/2026/05/15/business/stocks-bonds-interest-rates-inflatio
 `El Departamento de Seguridad Nacional de EE. UU. creó una unidad encargada de revisar los antecedentes de miles de migrantes con residencia permanente.`\
 https://www.nytimes.com/es/2026/05/15/espanol/estados-unidos/green-card-residencia-deportaciones-trump.html
 
-**Commander of Iraqi Militia Accused of Plotting Attacks on Jewish Sites in U.S.**\
-`Mohammad Baqer Saad Dawood Al-Saadi is accused of directing and urging others to attack American and Israeli interests. Prosecutors say he is a leader of Kataib Hezbollah, an Iraqi militia with ties to Iran.`\
+**Militia Commander Tied to Iran Plotted Attacks in U.S., Prosecutors Say**\
+`Mohammad Baqer Saad Dawood Al-Saadi is accused of leading attacks in Europe and being part of a retaliation campaign by Iran. Prosecutors say he is a leader of Kataib Hezbollah, an Iraqi militia with ties to Iran.`\
 https://www.nytimes.com/2026/05/15/nyregion/hezbollah-arrest-nyc-jewish-targets.html
 
 **Trump anuncia ‘fantásticos acuerdos comerciales’ con China, pero da pocos detalles**\
@@ -61,16 +73,4 @@ https://www.nytimes.com/video/opinion/100000010887197/what-trumps-magic-math-cos
 **Five Italians Die While Scuba Diving Deep Caves in the Maldives**\
 `The divers, including a marine scientist and her daughter, were part of a research trip and were exploring an underwater cave system when they failed to resurface.`\
 https://www.nytimes.com/2026/05/15/world/asia/maldives-diving-italians.html
-
-**Men’s Fashion’s Big Idea? Muscles.**\
-`T Magazine’s Editor at Large Nick Haramis breaks down men’s fashion’s ongoing obsession with a chiseled physique.`\
-https://www.nytimes.com/video/t-magazine/100000010901620/mens-fashions-big-idea-muscles.html
-
-**Flashback: Your Weekly History Quiz, May 16, 2026**\
-`Can you sort 8 historical events?`\
-https://www.nytimes.com/interactive/2026/05/15/upshot/flashback.html
-
-**Republicans Waited to Challenge Trump on the Iran War. Now It May Be Too Late.**\
-`Having deferred to the president for months, G.O.P. lawmakers missed crucial milestones to try to limit his war powers. That has tied their hands in seeking parameters and exit criteria.`\
-https://www.nytimes.com/2026/05/15/us/politics/iran-war-powers-congress.html
 
