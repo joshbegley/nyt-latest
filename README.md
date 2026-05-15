@@ -1,3 +1,7 @@
+**Today, In Short**\
+`Dating apps. “Survivor.” And summer recipes.`\
+https://www.nytimes.com/2026/05/15/briefing/today-in-short.html
+
 **Washington Opera Builds Its New Chapter After the Kennedy Center**\
 `The company announced that its next season would include a slate of five full-length operas at houses around the Washington area.`\
 https://www.nytimes.com/2026/05/15/arts/music/washington-opera-new-season-post-kennedy-center.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/15/us/politics/kentucky-voters-iran-war.html
 **From Air Force One, Trump writes of ballrooms, a statue and TikTok.**\
 `In social media posts after the summit in Beijing, President Trump boasted about the ongoing construction of his ballroom and his TikTok reach.`\
 https://www.nytimes.com/live/2026/05/14/world/trump-xi-summit-beijing/from-air-force-one-trump-writes-of-ballrooms-a-statue-and-tiktok
-
-**In Italy, Princess Catherine Puts Her Wardrobe to Work**\
-`Suits her, sir.`\
-https://www.nytimes.com/2026/05/15/style/princess-catherine-italy-fashion.html
 
