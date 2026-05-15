@@ -1,3 +1,23 @@
+**Men’s Fashion’s Big Idea? Muscles.**\
+`T Magazine’s Editor at Large Nick Haramis breaks down men’s fashion’s ongoing obsession with a chiseled physique.`\
+https://www.nytimes.com/video/t-magazine/100000010901620/mens-fashions-big-idea-muscles.html
+
+**Flashback: Your Weekly History Quiz, May 16, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/05/15/upshot/flashback.html
+
+**Republicans Waited to Challenge Trump on the Iran War. Now It May Be Too Late.**\
+`Having deferred to the president for months, G.O.P. lawmakers missed crucial milestones to try to limit his war powers. That has tied their hands in seeking parameters and exit criteria.`\
+https://www.nytimes.com/2026/05/15/us/politics/iran-war-powers-congress.html
+
+**Justice Dept. Aims to Use Terrorism Laws to Target Mexican Officials**\
+`The Justice Department this week instructed federal prosecutors to build criminal drug cases against Mexican officials using new terrorism statutes.`\
+https://www.nytimes.com/2026/05/15/world/americas/doj-terrorism-charges-mexican-officials.html
+
+**German Chancellor, After Iran Spat With Trump, Reports ‘Good’ Phone Call**\
+`The call, initiated by Friedrich Merz, came soon after he told young people, “I am a great admirer of America. My admiration is not increasing at the moment.”`\
+https://www.nytimes.com/2026/05/15/world/europe/merz-trump-germany-us.html
+
 **The Audemars Piguet and Swatch Collab That Broke the Internet**\
 `For some watch fans, the Royal Pop was a royal letdown.`\
 https://www.nytimes.com/2026/05/15/style/the-audemars-piguet-and-swatch-collab-that-broke-the-internet.html
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/05/15/t-magazine/summer-travel-holiday-advice-ideas
 **How Two Criminal Cases Reflect America’s Tense Relations With China**\
 `The Trump-Xi summit emphasized stability. But China’s recruitment of foreign agents has fueled suspicion of Chinese Americans.`\
 https://www.nytimes.com/2026/05/15/us/politics/trump-xi-chinese-americans-foreign-agents-discrimination.html
-
-**Matt Dillon, the Actor and Artist, on His Favorite Artwork**\
-`The actor and artist Matt Dillon discusses his favorite artwork, Robert Rauschenberg’s “Erased de Kooning Drawing” (1953).`\
-https://www.nytimes.com/video/t-magazine/100000010899634/matt-dillon-the-actor-and-artist-on-his-favorite-artwork.html
-
-**With Drag Queens and Subway Chats, Candidates Vie for Key House Seats**\
-`Nancy Pelosi and Jerrold Nadler are retiring, sparking fierce fights in San Francisco and Manhattan to succeed them. Whoever wins their seats could tap big donors and shape the Democratic Party.`\
-https://www.nytimes.com/2026/05/15/us/house-candidates-democrats-pelosi-nadler.html
-
-**Trump Discussed U.S. Arms Sales With Xi ‘In Great Detail’**\
-`The engagement between the president and the Chinese leader may have tested a decades-old U.S. assurance to Taiwan not to consult Beijing on the topic.`\
-https://www.nytimes.com/2026/05/15/world/asia/trump-china-arms-sales.html
-
-**Viewing the World Through a Wide-Angle Lens**\
-`Zach Caldwell, who manages The New York Times’s team of cinematographers, aims to shift worldviews and shake up perspectives.`\
-https://www.nytimes.com/2026/05/15/insider/zach-caldwell-video-new-york-times.html
-
-**Trump Loyalist Leads Administration’s Hunt for Fraud in Elections**\
-`The loyalist, Dan Bishop, put his fealty to the president on display when he pressed the F.B.I. to chase investigative leads it had already rejected.`\
-https://www.nytimes.com/2026/05/15/us/dan-bishop-election-fraud-trump.html
 

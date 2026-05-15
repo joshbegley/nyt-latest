@@ -42,7 +42,7 @@ https://www.nytimes.com/video/world/americas/100000010906021/cia-director-cuba-f
 `Dating apps. “Survivor.” And summer recipes.`\
 https://www.nytimes.com/2026/05/15/briefing/today-in-short.html
 
-**Washington Opera Builds Its New Chapter After the Kennedy Center**\
+**Washington National Opera Builds a New Chapter After Kennedy Center**\
 `The company announced that its next season would include a slate of five full-length operas at houses around the Washington area.`\
 https://www.nytimes.com/2026/05/15/arts/music/washington-opera-new-season-post-kennedy-center.html
 
@@ -73,8 +73,4 @@ https://www.nytimes.com/2026/05/15/world/africa/congo-ebola-outbreak.html
 **I Want to Go Where Nature Is Winning**\
 `Read our travel expert’s answers to this and other questions from readers about where they should spend time this summer.`\
 https://www.nytimes.com/2026/05/15/t-magazine/summer-travel-holiday-advice-ideas.html
-
-**How Two Criminal Cases Reflect America’s Tense Relations With China**\
-`The Trump-Xi summit emphasized stability. But China’s recruitment of foreign agents has fueled suspicion of Chinese Americans.`\
-https://www.nytimes.com/2026/05/15/us/politics/trump-xi-chinese-americans-foreign-agents-discrimination.html
 

@@ -1,3 +1,23 @@
+**Men’s Fashion’s Big Idea? Muscles.**\
+`T Magazine’s Editor at Large Nick Haramis breaks down men’s fashion’s ongoing obsession with a chiseled physique.`\
+https://www.nytimes.com/video/t-magazine/100000010901620/mens-fashions-big-idea-muscles.html
+
+**Flashback: Your Weekly History Quiz, May 16, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/05/15/upshot/flashback.html
+
+**Republicans Waited to Challenge Trump on the Iran War. Now It May Be Too Late.**\
+`Having deferred to the president for months, G.O.P. lawmakers missed crucial milestones to try to limit his war powers. That has tied their hands in seeking parameters and exit criteria.`\
+https://www.nytimes.com/2026/05/15/us/politics/iran-war-powers-congress.html
+
+**Justice Dept. Aims to Use Terrorism Laws to Target Mexican Officials**\
+`The Justice Department this week instructed federal prosecutors to build criminal drug cases against Mexican officials using new terrorism statutes.`\
+https://www.nytimes.com/2026/05/15/world/americas/doj-terrorism-charges-mexican-officials.html
+
+**German Chancellor, After Iran Spat With Trump, Reports ‘Good’ Phone Call**\
+`The call, initiated by Friedrich Merz, came soon after he told young people, “I am a great admirer of America. My admiration is not increasing at the moment.”`\
+https://www.nytimes.com/2026/05/15/world/europe/merz-trump-germany-us.html
+
 **The Audemars Piguet and Swatch Collab That Broke the Internet**\
 `For some watch fans, the Royal Pop was a royal letdown.`\
 https://www.nytimes.com/2026/05/15/style/the-audemars-piguet-and-swatch-collab-that-broke-the-internet.html
