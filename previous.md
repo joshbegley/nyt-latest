@@ -1,3 +1,7 @@
+**Trump-Xi Summit Ends With No Major Breakthroughs**\
+`China’s leader, Xi Jinping, gave President Trump a tour of secretive Beijing compound toward the end of their two-day summit.`\
+https://www.nytimes.com/video/world/asia/100000010905580/trump-china-xi-zhongnanhai-garden.html
+
 **Un monumento al chocolate envuelto en capas de historia mexicana**\
 `Combinando una casa colonial y un añadido contemporáneo, el nuevo Museo del Cacao y el Chocolate se asienta sobre un espeluznante recuerdo azteca.`\
 https://www.nytimes.com/es/2026/05/15/espanol/america-latina/museo-chocolate-cacao-mexico-arquitectura.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/15/style/jeffrey-petigrow-emma-famili-wedding.ht
 **How Two Bookworms Wrote Their Own Love Story**\
 `Stefanie Joseph and Christopher Richards, who met on a dating app three years ago, immediately bonded over their love of reading.`\
 https://www.nytimes.com/2026/05/15/style/stefanie-joseph-christopher-richards-wedding.html
-
-**Quote of the Day: With Open Primaries in Retreat, Proponents Argue They Improve Lives**\
-`Quotation of the Day for Friday, May 15, 2026.`\
-https://www.nytimes.com/2026/05/14/pageoneplus/quote-of-the-day-with-open-primaries-in-retreat-proponents-argue-they-improve-lives.html
 

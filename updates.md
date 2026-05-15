@@ -1,3 +1,7 @@
+**Trump-Xi Summit Ends With No Major Breakthroughs**\
+`China’s leader, Xi Jinping, gave President Trump a tour of secretive Beijing compound toward the end of their two-day summit.`\
+https://www.nytimes.com/video/world/asia/100000010905580/trump-china-xi-zhongnanhai-garden.html
+
 **Un monumento al chocolate envuelto en capas de historia mexicana**\
 `Combinando una casa colonial y un añadido contemporáneo, el nuevo Museo del Cacao y el Chocolate se asienta sobre un espeluznante recuerdo azteca.`\
 https://www.nytimes.com/es/2026/05/15/espanol/america-latina/museo-chocolate-cacao-mexico-arquitectura.html
