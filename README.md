@@ -1,3 +1,11 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/15/crosswords/spelling-bee-forum.html
+
+**Phones and Conversation**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://www.nytimes.com/2026/05/15/learning/phones-and-conversation.html
+
 **Nvidia’s Future in China Remains Unclear After Trump-Xi Summit**\
 `The standoff comes as Chinese firms increasingly turn to domestic chipmakers like Huawei, in a drive to reduce China’s dependence on Western technologies.`\
 https://www.nytimes.com/2026/05/15/world/asia/nvidia-china-chips.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/14/world/asia/china-us-ai-safety.html
 **The Secretive Center of Power Where Trump Met Xi**\
 `China’s leader, Xi Jinping, was meeting with President Trump on Friday at Zhongnanhai, a heavily guarded Beijing compound where top Chinese officials live and work.`\
 https://www.nytimes.com/2026/05/14/world/asia/trump-xi-summit-china-beijing-zhongnanhai.html
-
-**China Starting to Fulfill ‘Promises,’ U.S. Trade Representative Says**\
-`As President Trump and China’s leader, Xi Jinping, meet, the United States said China has promised to expand its purchases of farm goods and airplanes.`\
-https://www.nytimes.com/2026/05/14/world/asia/trump-china-us-trade.html
-
-**Watch Live: Trump Leaves Beijing as Summit Ends**\
-`President Trump departing Beijing after his summit with China’s leader, Xi Jinping, on Friday.`\
-https://www.nytimes.com/video/embedded/world/asia/100000010905581/watch-live-trump-and-xi-meet-on-second-day-of-summit.html
 
