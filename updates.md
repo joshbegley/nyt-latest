@@ -1,3 +1,7 @@
+**Supreme Court Rejects Virginia Democrats’ Effort to Reinstate New Voting Map**\
+`State officials had asked the justices to step in to allow the state to use a congressional map in the midterms that was drawn by Democrats and recently approved by voters.`\
+https://www.nytimes.com/2026/05/15/us/politics/supreme-court-virginia-redistricting.html
+
 **Hospital Will Open First ‘Detransition’ Clinic in Legal Settlement With Texas**\
 `Texas Children’s Hospital was under investigation for billing practices on gender-transition treatments. The settlement was expected to end that inquiry.`\
 https://www.nytimes.com/2026/05/15/us/detransition-transgender-clinic.html
