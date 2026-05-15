@@ -1,3 +1,7 @@
+**The World According to Patricia Cornwell**\
+`On a recent episode of the “Book Review” podcast, the best-selling crime author Patricia Cornwell talks about how working in a morgue influenced her writing and how she sees the world. We spoke with her about her new memoir, “True Crime,” in which she tells the surprising story of her childhood and the events that led her to become a novelist. Video by Patricia Sulbarán/The New York Times`\
+https://www.nytimes.com/video/podcasts/100000010906450/patricia-cornwell-true-crime-memoir.html
+
 **The Secret Behind the Solace of “Winnie-the-Pooh”**\
 `The best-selling author of “The Midnight Library,” Matt Haig, reflects on one of his favorite childhood books, the A.A. Milne classic “Winnie-the-Pooh.”`\
 https://www.nytimes.com/video/podcasts/100000010906475/the-secret-behind-the-solace-of-winnie-the-pooh.html
@@ -46,7 +50,7 @@ https://www.nytimes.com/2026/05/15/insider/zach-caldwell-video-new-york-times.ht
 `Responses to a guest essay by Molly Jong-Fast, “I Tried to Become My Mother and Ended Up Becoming Myself.” Also: President Trump in China; a gift to Big Tobacco.`\
 https://www.nytimes.com/2026/05/15/opinion/mothers-daughters.html
 
-**Explosion at Maine Lumber Mill Draws Large Emergency Response**\
+**Explosion at Maine Lumber Mill Injures 10**\
 `Footage from the scene showed flames burning through the roof of a large structure as heavy, dark smoke billowed skyward.`\
 https://www.nytimes.com/2026/05/15/us/maine-searsmont-explosion-fire-lumber-mill.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/15/nyregion/harvey-weinstein-hung-jury-mistrial.
 **Republicans Redrew His District. Now This Democratic Stalwart Is Out.**\
 `Representative Steve Cohen has represented Memphis since 2007. After Republicans redistricted his seat, he is leaving the field, possibly to his young rival, Justin J. Pearson.`\
 https://www.nytimes.com/2026/05/15/us/elections/steve-cohen-retires-tennessee.html
-
-**Executions Surge in Iran Since Cease-Fire, Rights Groups Say**\
-`Many were detained during January’s mass protests, according to a rights group, amid concerns the authorities are trying to intimidate Iranians from returning to the streets.`\
-https://www.nytimes.com/2026/05/15/world/middleeast/execution-iran-ceasefire.html
 
