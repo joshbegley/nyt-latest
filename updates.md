@@ -1,3 +1,11 @@
+**Civilian Planes Shot Down by Cuba: A Push to Punish Raúl Castro 30 Years Later**\
+`Mr. Castro, Cuba’s former president, could soon face charges in the 1996 killings of four volunteer airmen who were members of a humanitarian group that searched for migrants at sea.`\
+https://www.nytimes.com/2026/05/15/world/americas/cuba-raul-castro-us-indictment.html
+
+**Ex-Texas Lottery Executive Charged in Scheme That Guaranteed a Win**\
+`Prosecutors in Travis County, Texas, filed charges against Gary Grief and the disbanded Texas Lottery Commission in connection with a 2023 plan that arranged a surefire jackpot.`\
+https://www.nytimes.com/2026/05/15/us/texas-lottery-commission-jackpot-charges.html
+
 **Arqueólogos hallan un fragmento de la ‘Ilíada’ enterrado con una momia egipcia**\
 `Para los difuntos del Egipto de la época romana, la literatura griega puede haber ofrecido una clave para una vida en el más allá más cómoda.`\
 https://www.nytimes.com/es/2026/05/15/espanol/ciencia-y-tecnologia/momia-egipto-iliada.html
