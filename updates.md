@@ -1,3 +1,15 @@
+**My Family’s American Secret**\
+`One fateful decision 100 years ago created parallel lives. How does a family broken by the bizarre rules of racism heal itself after three generations apart?`\
+https://www.nytimes.com/2026/05/15/us/degrange-family-history-race.html
+
+**André Cerdini, Judge in Trial of Nazi Klaus Barbie, Dies at 96**\
+`He calmly presided over the historic 1987 trial in which a French court, for the first time, convicted a Nazi official of crimes against humanity.`\
+https://www.nytimes.com/2026/05/15/world/europe/andre-cerdini-dead.html
+
+**Trump Administration Weighs $1.7 Billion Fund for Allies Investigated Under Biden**\
+`Critics denounced the highly unusual plan, which has yet to be finalized or approved, as a vast political slush fund financed by taxpayers.`\
+https://www.nytimes.com/2026/05/15/us/politics/trump-allies-weaponization-fund.html
+
 **What Is Kataib Hezbollah?**\
 `A commander of one of the most-hard line and powerful Iranian proxies in Iraq has been charged with plotting to attack Jewish sites in the United States.`\
 https://www.nytimes.com/2026/05/15/world/middleeast/what-is-kataib-hezbollah.html
