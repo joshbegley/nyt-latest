@@ -1,3 +1,7 @@
+**Man Charged With Posting Bomb Instructions Used in New Orleans Attack**\
+`The man, a former Army engineer, was accused of posting videos showing how to make explosives. Authorities said those videos were used by the man who carried out a deadly attack in New Orleans last year.`\
+https://www.nytimes.com/2026/05/14/us/man-charged-bomb-instructions-new-orleans-attack.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/05/14/world/trump-xi-summit-beijing/heres-the-latest
