@@ -1,3 +1,7 @@
+**Trump and Xi’s Different Approaches at the Summit**\
+`After President Trump’s meeting in Beijing with China’s leader, Xi Jinping, our reporter David Sanger examines the differences in their body language and style.`\
+https://www.nytimes.com/video/us/100000010905596/trump-and-xis-different-approaches-at-the-summit.html
+
 **Judge Declares Mistrial in Weinstein Rape Trial**\
 `This was the third time Harvey Weinstein was on trial accused of raping an aspiring actress at a hotel in Manhattan in 2013.`\
 https://www.nytimes.com/2026/05/15/nyregion/harvey-weinstein-hung-jury-mistrial.html
