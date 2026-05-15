@@ -1,3 +1,23 @@
+**Today, In Short**\
+`Dating apps. “Survivor.” And summer recipes.`\
+https://www.nytimes.com/2026/05/15/briefing/today-in-short.html
+
+**Washington Opera Builds Its New Chapter After the Kennedy Center**\
+`The company announced that its next season would include a slate of five full-length operas at houses around the Washington area.`\
+https://www.nytimes.com/2026/05/15/arts/music/washington-opera-new-season-post-kennedy-center.html
+
+**This Three-Cup Chicken Isn’t Accurately Named, But It Is Very Delicious**\
+`And more of our most popular recipes from the week.`\
+https://www.nytimes.com/2026/05/15/dining/this-three-cup-chicken-isnt-accurately-named-but-it-is-very-delicious.html
+
+**Why We Keep Tricking Ourselves Into Thinking A.I. Is Conscious**\
+`Notable thinkers keep telling us they think A.I. is conscious. That doesn’t mean it’s true.`\
+https://www.nytimes.com/2026/05/15/opinion/ai-consciousness.html
+
+**Five Action Movies to Stream Now**\
+`This month’s picks include brawling teenagers, vengeful widowers and retired swordsmen.`\
+https://www.nytimes.com/2026/05/15/movies/five-action-movies-to-stream-now.html
+
 **‘In the Grey’ Review: Cavill and Gyllenhaal Bring the Ruckus**\
 `Guy Ritchie’s latest is a sleek, sun-drenched actioner in which morality is fuzzy but the fashion is sharp.`\
 https://www.nytimes.com/2026/05/15/movies/in-the-grey-review.html

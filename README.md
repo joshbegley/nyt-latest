@@ -1,3 +1,7 @@
+**C.I.A. Director Visits Cuba Amid Energy Crisis**\
+`John Ratcliffe, the director of the Central Intelligence Agency, traveled to Cuba a day after its government announced that it had exhausted its oil supplies for power plants and domestic use.`\
+https://www.nytimes.com/video/world/americas/100000010906021/cia-director-cuba-fuel-shortage.html
+
 **Today, In Short**\
 `Dating apps. “Survivor.” And summer recipes.`\
 https://www.nytimes.com/2026/05/15/briefing/today-in-short.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/15/arts/television/lisa-ann-walter-abbott-elemen
 **In Kentucky, the Iran War Complicates a Republican Primary**\
 `Representative Thomas Massie, the incumbent, has opposed President Trump’s military strikes on Iran. He is now facing the biggest challenge of his career.`\
 https://www.nytimes.com/2026/05/15/us/politics/kentucky-voters-iran-war.html
-
-**From Air Force One, Trump writes of ballrooms, a statue and TikTok.**\
-`In social media posts after the summit in Beijing, President Trump boasted about the ongoing construction of his ballroom and his TikTok reach.`\
-https://www.nytimes.com/live/2026/05/14/world/trump-xi-summit-beijing/from-air-force-one-trump-writes-of-ballrooms-a-statue-and-tiktok
 

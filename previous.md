@@ -1,3 +1,23 @@
+**Today, In Short**\
+`Dating apps. “Survivor.” And summer recipes.`\
+https://www.nytimes.com/2026/05/15/briefing/today-in-short.html
+
+**Washington Opera Builds Its New Chapter After the Kennedy Center**\
+`The company announced that its next season would include a slate of five full-length operas at houses around the Washington area.`\
+https://www.nytimes.com/2026/05/15/arts/music/washington-opera-new-season-post-kennedy-center.html
+
+**This Three-Cup Chicken Isn’t Accurately Named, But It Is Very Delicious**\
+`And more of our most popular recipes from the week.`\
+https://www.nytimes.com/2026/05/15/dining/this-three-cup-chicken-isnt-accurately-named-but-it-is-very-delicious.html
+
+**Why We Keep Tricking Ourselves Into Thinking A.I. Is Conscious**\
+`Notable thinkers keep telling us they think A.I. is conscious. That doesn’t mean it’s true.`\
+https://www.nytimes.com/2026/05/15/opinion/ai-consciousness.html
+
+**Five Action Movies to Stream Now**\
+`This month’s picks include brawling teenagers, vengeful widowers and retired swordsmen.`\
+https://www.nytimes.com/2026/05/15/movies/five-action-movies-to-stream-now.html
+
 **‘In the Grey’ Review: Cavill and Gyllenhaal Bring the Ruckus**\
 `Guy Ritchie’s latest is a sleek, sun-drenched actioner in which morality is fuzzy but the fashion is sharp.`\
 https://www.nytimes.com/2026/05/15/movies/in-the-grey-review.html
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/05/15/us/politics/kentucky-voters-iran-war.html
 **From Air Force One, Trump writes of ballrooms, a statue and TikTok.**\
 `In social media posts after the summit in Beijing, President Trump boasted about the ongoing construction of his ballroom and his TikTok reach.`\
 https://www.nytimes.com/live/2026/05/14/world/trump-xi-summit-beijing/from-air-force-one-trump-writes-of-ballrooms-a-statue-and-tiktok
-
-**In Italy, Princess Catherine Puts Her Wardrobe to Work**\
-`Suits her, sir.`\
-https://www.nytimes.com/2026/05/15/style/princess-catherine-italy-fashion.html
-
-**Despite Tensions, China Greets Trump With Pomp and Pageantry**\
-`There was no major breakthrough in Beijing, but China pulled out all the stops for President Trump, with extravagant ceremonies and a state banquet.`\
-https://www.nytimes.com/2026/05/15/world/asia/trump-xi-china-meeting-beijing-reception.html
-
-**Replacing a Royal Hand-Me-Down That Finally Frayed**\
-`Three years after King Charles III was crowned, the Royal Opera House in London hung plush new stage curtains bearing the monarch’s insignia — but only after the old ones gave up the ghost.`\
-https://www.nytimes.com/2026/05/15/arts/music/london-royal-opera-house-curtains.html
-
-**Starbucks Cuts 300 Corporate Jobs in Turnaround Push**\
-`The company said it would close four regional offices and take a $400 million charge related to the changes.`\
-https://www.nytimes.com/2026/05/15/business/starbucks-layoffs-office-closures.html
-
-**‘No Essay’ College Scholarships May Have Unseen Strings Attached**\
-`Unlike traditional financial aid, the prizes are awarded by random drawings. The websites, in turn, gain access to applicants’ personal information.`\
-https://www.nytimes.com/2026/05/15/your-money/no-essay-college-scholarships.html
 
