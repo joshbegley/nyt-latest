@@ -1,3 +1,7 @@
+**‘The Devil Wears Prada 2’ | Anatomy of a Scene**\
+`The director David Frankel narrates a sequence from his film starring Meryl Streep and Anne Hathaway.`\
+https://www.nytimes.com/video/movies/100000010897447/the-devil-wears-prada-2-scene.html
+
 **Trump-Xi Summit Ends With No Major Breakthroughs**\
 `China’s leader, Xi Jinping, gave President Trump a tour of secretive Beijing compound toward the end of their two-day summit.`\
 https://www.nytimes.com/video/world/asia/100000010905580/trump-china-xi-zhongnanhai-garden.html
