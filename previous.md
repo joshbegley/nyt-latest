@@ -46,8 +46,8 @@ https://www.nytimes.com/2026/05/15/style/stefanie-joseph-christopher-richards-we
 `Quotation of the Day for Friday, May 15, 2026.`\
 https://www.nytimes.com/2026/05/14/pageoneplus/quote-of-the-day-with-open-primaries-in-retreat-proponents-argue-they-improve-lives.html
 
-**The United States and China will start discussing A.I. safety, Bessent says.**\
-``\
+**U.S. and China Will Start Discussing A.I. Safety, Bessent Says**\
+`Treasury Secretary Scott Bessent did not say when these talks would happen. There are fears in the United States and China about the threats from A.I., but neither side is willing to slow down its development.`\
 https://www.nytimes.com/2026/05/14/world/asia/china-us-ai-safety.html
 
 **The Secretive Center of Power Where Trump Met Xi**\

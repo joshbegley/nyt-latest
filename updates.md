@@ -1,3 +1,7 @@
+**U.S. and China Will Start Discussing A.I. Safety, Bessent Says**\
+`Treasury Secretary Scott Bessent did not say when these talks would happen. There are fears in the United States and China about the threats from A.I., but neither side is willing to slow down its development.`\
+https://www.nytimes.com/2026/05/14/world/asia/china-us-ai-safety.html
+
 **La vida en el hotel congoleño donde permanecen 15 migrantes deportados por Trump**\
 `Fueron retenidos y enviados a Kinsasa por el gobierno de Trump. Ahora se enfrentan a una peligrosa elección: volver a Latinoamérica o quedarse en África.`\
 https://www.nytimes.com/es/2026/05/15/espanol/mundo/deportados-trump-congo.html
