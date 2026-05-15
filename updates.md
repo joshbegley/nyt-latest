@@ -1,3 +1,15 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/05/14/world/trump-xi-summit-beijing/heres-the-latest
+
+**Trump-Ordered Citizenship Lists for Voting Are Likely Unreliable, Justice Dept. Says**\
+`At a court hearing over a presidential order seeking to exert more control over elections, a government lawyer said no “responsible state” should rely on the lists to update their voter rolls.`\
+https://www.nytimes.com/2026/05/14/us/politics/trump-citizenship-list-voting.html
+
+**Cuba afirma que se agotaron sus reservas de petróleo**\
+`El gobierno cubano lidia con una grave crisis energética debido al colapso de las infraestructuras y la disminución del suministro de Venezuela.`\
+https://www.nytimes.com/es/2026/05/14/espanol/america-latina/cuba-crisis-reservas-petroleo.html
+
 **OpenAI Considers Legal Action Against Apple in Strained Relationship**\
 `The A.I. company, which is in the middle of a court fight with Elon Musk, has been unhappy with how Apple has integrated ChatGPT into its devices.`\
 https://www.nytimes.com/2026/05/14/technology/openai-apple-legal-action.html
