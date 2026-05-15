@@ -1,3 +1,7 @@
+**Man Charged With Posting Bomb Instructions Used in New Orleans Attack**\
+`The man, a former Army engineer, was accused of posting videos showing how to make explosives. Authorities said those videos were used by the man who carried out a deadly attack in New Orleans last year.`\
+https://www.nytimes.com/2026/05/14/us/man-charged-bomb-instructions-new-orleans-attack.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/05/14/world/trump-xi-summit-beijing/heres-the-latest
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/14/us/politics/medicaid-fraud-vance-republicans-
 **El director de la CIA viaja a Cuba mientras EE. UU. intensifica la presión a la isla**\
 `John Ratcliffe, director de la CIA, es el funcionario de más alto rango del gobierno de Trump que ha visitado el país.`\
 https://www.nytimes.com/es/2026/05/14/espanol/estados-unidos/cia-cuba.html
-
-**G. Robert Blakey Dies at 90; Drafted the RICO Anti-Racketeering Statute**\
-`He was also the chief counsel to the House Select Committee on Assassinations in the late 1970s and spent years as a Notre Dame law professor.`\
-https://www.nytimes.com/2026/05/14/us/george-robert-blakey-dead.html
 
