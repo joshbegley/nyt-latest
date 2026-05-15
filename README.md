@@ -1,3 +1,7 @@
+**Supreme Court Rejects Virginia Democrats’ Effort to Reinstate New Voting Map**\
+`State officials had asked the justices to step in to allow the state to use a congressional map in the midterms that was drawn by Democrats and recently approved by voters.`\
+https://www.nytimes.com/2026/05/15/us/politics/supreme-court-virginia-redistricting.html
+
 **Hospital Will Open First ‘Detransition’ Clinic in Legal Settlement With Texas**\
 `Texas Children’s Hospital was under investigation for billing practices on gender-transition treatments. The settlement was expected to end that inquiry.`\
 https://www.nytimes.com/2026/05/15/us/detransition-transgender-clinic.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/15/us/uss-ford-long-deployment.html
 **Falling Chunks of Debris Are Endangering Drivers on a Busy N.Y.C. Road**\
 `After two incidents, crews made repairs and installed protective netting on the Trans-Manhattan Expressway, which leads to the George Washington Bridge.`\
 https://www.nytimes.com/2026/05/15/nyregion/nyc-highway-debris-falling.html
-
-**Fugitive Accused of Killing Punk Rock Singer in 1993 Is Arrested in Panama**\
-`Richard Werstine was detained in Panama City last month after more than 30 years on the run, according to the authorities. He is accused of murdering Rodney Barger of the Detroit band Cold as Life.`\
-https://www.nytimes.com/2026/05/15/us/rodney-barger-shooting-arrest-panama.html
 
