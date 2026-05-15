@@ -1,3 +1,7 @@
+**Arqueólogos hallan un fragmento de la ‘Ilíada’ enterrado con una momia egipcia**\
+`Para los difuntos del Egipto de la época romana, la literatura griega puede haber ofrecido una clave para una vida en el más allá más cómoda.`\
+https://www.nytimes.com/es/2026/05/15/espanol/ciencia-y-tecnologia/momia-egipto-iliada.html
+
 **Ukrainian Drone Attacks on Russian Apartment Building Kills 4**\
 `Ukrainian drones struck an apartment building and ignited a fire at an oil refinery in the Russian city of Ryazan on Friday. At least four people were killed in the attack on the residential building, according to the regional governor. The barrage follows a series of Russian drone strikes that killed at least 24 people in Kyiv, Ukraine.`\
 https://www.nytimes.com/video/world/europe/100000010906081/ukraine-drone-attack-russia.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/15/world/europe/andre-cerdini-dead.html
 **Trump Administration Weighs $1.7 Billion Fund for Allies Investigated Under Biden**\
 `Critics denounced the highly unusual plan, which has yet to be finalized or approved, as a vast political slush fund financed by taxpayers.`\
 https://www.nytimes.com/2026/05/15/us/politics/trump-allies-weaponization-fund.html
-
-**What Is Kataib Hezbollah?**\
-`A commander of one of the most-hard line and powerful Iranian proxies in Iraq has been charged with plotting to attack Jewish sites in the United States.`\
-https://www.nytimes.com/2026/05/15/world/middleeast/what-is-kataib-hezbollah.html
 
