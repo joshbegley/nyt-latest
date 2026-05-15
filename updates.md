@@ -1,3 +1,11 @@
+**Trump anuncia ‘fantásticos acuerdos comerciales’ con China, pero no da detalles**\
+`El presidente regresa a Estados Unidos tras una cumbre en China, en la que ambos países trataron de estabilizar sus relaciones económicas y políticas.`\
+https://www.nytimes.com/es/2026/05/15/espanol/estados-unidos/trump-china-xi-acuerdos.html
+
+**What Trump’s Magic Math Costs You**\
+`Trump is attacking the data that helps Americans understand reality itself. In this video from Times Opinion, we examine how his war on numbers follows a familiar authoritarian playbook.`\
+https://www.nytimes.com/video/opinion/100000010887197/what-trumps-magic-math-costs-you.html
+
 **Five Italians Die While Scuba Diving Deep Caves in the Maldives**\
 `The divers, including a marine scientist and her daughter, were part of a research trip and were exploring an underwater cave system when they failed to resurface.`\
 https://www.nytimes.com/2026/05/15/world/asia/maldives-diving-italians.html
