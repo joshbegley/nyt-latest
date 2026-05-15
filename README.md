@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/05/15/world/europe/trump-xi-china-summit.html
 
 **For Xi’s Critics, Summit Spectacle Is Fuel for Jokes They Can’t Tell**\
-`On Threads and other sites, liberal-minded Chinese accounts were mocking the proceedings and offering a rare window into opinions on Mr. Xi and his leadership style.`\
+`On Threads and other sites, liberal-minded Chinese accounts were mocking the proceedings and offering a rare window into opinions on Xi Jinping and his leadership style.`\
 https://www.nytimes.com/2026/05/15/business/trump-xi-meeting-china-social-media.html
 
 **Review: Frida Kahlo and Diego Rivera, Reunited on the Opera Stage**\

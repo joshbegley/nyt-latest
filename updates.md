@@ -1,3 +1,11 @@
+**Trump’s ‘Learning Curve’ on China Ends With Conciliation at Summit**\
+`The president has shifted the foundations of American policy toward China, throwing aside the adversarial approach of recent years.`\
+https://www.nytimes.com/2026/05/15/world/europe/trump-xi-china-summit.html
+
+**C.I.A. Director Visits Cuba Amid Energy Crisis**\
+`John Ratcliffe, the director of the Central Intelligence Agency, traveled to Cuba a day after its government announced that oil supplies for domestic use and for power plants had been exhausted.`\
+https://www.nytimes.com/video/world/americas/100000010906021/cia-director-cuba-fuel-shortage.html
+
 **For Xi’s Critics, Summit Spectacle Is Fuel for Jokes They Can’t Tell**\
 `On Threads and other sites, liberal-minded Chinese accounts were mocking the proceedings and offering a rare window into opinions on Mr. Xi and his leadership style.`\
 https://www.nytimes.com/2026/05/15/business/trump-xi-meeting-china-social-media.html
