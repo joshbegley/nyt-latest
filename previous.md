@@ -1,3 +1,15 @@
+****\
+``\
+https://www.nytimes.com/video/embedded/world/asia/100000010906158/15vid-trump-plane-1035.html
+
+**What Trump Gained, and Didn’t, From China**\
+`President Trump is returning home from Beijing after a two-day summit that achieved a few deals but left investors and analysts underwhelmed.`\
+https://www.nytimes.com/2026/05/15/business/dealbook/trump-china-summit-report-card.html
+
+**‘For Example, Putin’: How Xi Used a Private Garden Walk to Charm Trump**\
+`Watch an exchange between the two men in which the Chinese leader sought to signal exclusivity and name-dropped Russia’s president.`\
+https://www.nytimes.com/2026/05/15/world/asia/china-xi-trump-summit-garden-putin.html
+
 **Oil Prices Climb on Fears of Broader Energy Crunch**\
 `Hopes for an end to the war in Iran faded after President Trump failed to secure a commitment from China to help persuade Iran to reopen the Strait of Hormuz.`\
 https://www.nytimes.com/2026/05/15/business/oil-stocks-gas-trump-iran.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/video/world/europe/100000010847527/delivering-mail-on-uk
 **Palabra del día: ‘fallible’**\
 `Esta palabra ha aparecido en 31 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
 https://www.nytimes.com/es/2026/05/15/espanol/que-significa-fallible.html
-
-**Sanctioned by China, Rubio Enjoys a Trip to Beijing**\
-`There has been rampant speculation online about whether the Chinese government changed the transliteration of Marco Rubio’s name to overlook sanctions. But that theory is wrong.`\
-https://www.nytimes.com/2026/05/15/world/asia/china-rubio-sanctions.html
-
-**The Sporting Class: Is the N.F.L. Killing the Golden Goose?**\
-`Pablo on what the tech titans of Silicon Valley and the old heads of broadcast TV have in common.`\
-https://www.nytimes.com/2026/05/15/podcasts/the-sporting-class-is-the-nfl-killing-the-golden-goose.html
-
-**Cómo un cártel del narcotráfico convirtió al estado de Sinaloa en su herramienta**\
-`Durante años, una arquitectura invisible de protección dentro de varios niveles del gobierno mexicano permitió que el Cártel de Sinaloa operara a plena vista.`\
-https://www.nytimes.com/es/2026/05/15/espanol/america-latina/mexico-corrupcion-narco-carteles-gobierno.html
 

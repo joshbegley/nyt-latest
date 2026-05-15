@@ -1,3 +1,15 @@
+****\
+``\
+https://www.nytimes.com/video/embedded/world/asia/100000010906158/15vid-trump-plane-1035.html
+
+**What Trump Gained, and Didn’t, From China**\
+`President Trump is returning home from Beijing after a two-day summit that achieved a few deals but left investors and analysts underwhelmed.`\
+https://www.nytimes.com/2026/05/15/business/dealbook/trump-china-summit-report-card.html
+
+**‘For Example, Putin’: How Xi Used a Private Garden Walk to Charm Trump**\
+`Watch an exchange between the two men in which the Chinese leader sought to signal exclusivity and name-dropped Russia’s president.`\
+https://www.nytimes.com/2026/05/15/world/asia/china-xi-trump-summit-garden-putin.html
+
 **Oil Prices Climb on Fears of Broader Energy Crunch**\
 `Hopes for an end to the war in Iran faded after President Trump failed to secure a commitment from China to help persuade Iran to reopen the Strait of Hormuz.`\
 https://www.nytimes.com/2026/05/15/business/oil-stocks-gas-trump-iran.html
