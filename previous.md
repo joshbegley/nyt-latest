@@ -1,3 +1,11 @@
+**I Want to Go Where Nature Is Winning**\
+`Read our travel expert’s answers to this and other questions from readers about where they should spend time this summer.`\
+https://www.nytimes.com/2026/05/15/t-magazine/summer-travel-holiday-advice-ideas.html
+
+**How Two Criminal Cases Reflect America’s Tense Relations With China**\
+`The Trump-Xi summit emphasized stability. But China’s recruitment of foreign agents has fueled suspicion of Chinese Americans.`\
+https://www.nytimes.com/2026/05/15/us/politics/trump-xi-chinese-americans-foreign-agents-discrimination.html
+
 **Matt Dillon, the Actor and Artist, on His Favorite Artwork**\
 `The actor and artist Matt Dillon discusses his favorite artwork, Robert Rauschenberg’s “Erased de Kooning Drawing” (1953).`\
 https://www.nytimes.com/video/t-magazine/100000010899634/matt-dillon-the-actor-and-artist-on-his-favorite-artwork.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/15/business/dealbook/trump-china-summit-report-c
 **‘For Example, Putin’: How Xi Used a Private Garden Walk to Charm Trump**\
 `Watch an exchange between the two men in which the Chinese leader sought to signal exclusivity and name-dropped Russia’s president.`\
 https://www.nytimes.com/2026/05/15/world/asia/china-xi-trump-summit-garden-putin.html
-
-**Oil Prices Climb on Fears of Broader Energy Crunch**\
-`Hopes for an end to the war in Iran faded after President Trump failed to secure a commitment from China to help persuade Iran to reopen the Strait of Hormuz.`\
-https://www.nytimes.com/2026/05/15/business/oil-stocks-gas-trump-iran.html
-
-**Elon Musk’s Awkward Selfie Moment With a Chinese Billionaire in Beijing**\
-`A few seconds of selfie awkwardness between Elon Musk and Lei Jun, a prominent Chinese entrepreneur, has spread like wildfire on China’s social media.`\
-https://www.nytimes.com/2026/05/15/business/musk-lei-jun-xiaomi.html
 

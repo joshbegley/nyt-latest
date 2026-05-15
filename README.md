@@ -1,3 +1,11 @@
+**Some Medicare Patients Can Now Get Free CBD**\
+`The Trump administration has authorized a test program to see if the cannabis compound can ease some symptoms and reduce health care costs among older patients.`\
+https://www.nytimes.com/2026/05/15/health/medicare-cbd.html
+
+**Large Ebola Outbreak Is Declared in Congo**\
+`Dozens of deaths and hundreds of infections are suspected, an African agency said. Health experts were alarmed that the outbreak hadn’t been announced sooner.`\
+https://www.nytimes.com/2026/05/15/world/africa/congo-ebola-outbreak.html
+
 **I Want to Go Where Nature Is Winning**\
 `Read our travel expert’s answers to this and other questions from readers about where they should spend time this summer.`\
 https://www.nytimes.com/2026/05/15/t-magazine/summer-travel-holiday-advice-ideas.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/15/your-money/no-essay-college-scholarships.html
 ****\
 ``\
 https://www.nytimes.com/video/embedded/world/asia/100000010906158/15vid-trump-plane-1035.html
-
-**What Trump Gained, and Didn’t, From China**\
-`President Trump is returning home from Beijing after a two-day summit that achieved a few deals but left investors and analysts underwhelmed.`\
-https://www.nytimes.com/2026/05/15/business/dealbook/trump-china-summit-report-card.html
-
-**‘For Example, Putin’: How Xi Used a Private Garden Walk to Charm Trump**\
-`Watch an exchange between the two men in which the Chinese leader sought to signal exclusivity and name-dropped Russia’s president.`\
-https://www.nytimes.com/2026/05/15/world/asia/china-xi-trump-summit-garden-putin.html
 

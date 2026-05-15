@@ -1,3 +1,11 @@
+**I Want to Go Where Nature Is Winning**\
+`Read our travel expert’s answers to this and other questions from readers about where they should spend time this summer.`\
+https://www.nytimes.com/2026/05/15/t-magazine/summer-travel-holiday-advice-ideas.html
+
+**How Two Criminal Cases Reflect America’s Tense Relations With China**\
+`The Trump-Xi summit emphasized stability. But China’s recruitment of foreign agents has fueled suspicion of Chinese Americans.`\
+https://www.nytimes.com/2026/05/15/us/politics/trump-xi-chinese-americans-foreign-agents-discrimination.html
+
 **Matt Dillon, the Actor and Artist, on His Favorite Artwork**\
 `The actor and artist Matt Dillon discusses his favorite artwork, Robert Rauschenberg’s “Erased de Kooning Drawing” (1953).`\
 https://www.nytimes.com/video/t-magazine/100000010899634/matt-dillon-the-actor-and-artist-on-his-favorite-artwork.html
