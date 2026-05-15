@@ -1,3 +1,5 @@
+
+
 **Spat On, Egged, Threatened: Australian Jews Testify on Experiences of Antisemitism**\
 `As part of a public inquiry into the massacre at Bondi Beach, dozens have described being targeted for their Jewish identity in their daily lives.`\
 https://www.nytimes.com/2026/05/14/world/australia/jews-antisemitism-bondi-beach.html
