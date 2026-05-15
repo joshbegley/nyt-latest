@@ -1,3 +1,11 @@
+**Tina Peters, Colorado Election Denier, Will Be Freed by Governor**\
+`Gov. Jared Polis, a Democrat, commuted the sentence of Ms. Peters, a former county clerk serving a nine-year sentence for her role in a plot to examine voting machines after the 2020 election.`\
+https://www.nytimes.com/2026/05/15/us/politics/tina-peters-colorado-trump-polis.html
+
+**Navy Aircraft Carrier to Complete Longest Deployment Since Vietnam**\
+`After being diverted for combat with Venezuela and Iran, the U.S.S. Gerald R. Ford will return to Norfolk, Va., on Saturday after nearly a year at sea.`\
+https://www.nytimes.com/2026/05/15/us/uss-ford-long-deployment.html
+
 **Falling Chunks of Debris Are Endangering Drivers on a Busy N.Y.C. Road**\
 `After two incidents, crews made repairs and installed protective netting on the Trans-Manhattan Expressway, which leads to the George Washington Bridge.`\
 https://www.nytimes.com/2026/05/15/nyregion/nyc-highway-debris-falling.html
@@ -7,7 +15,7 @@ https://www.nytimes.com/2026/05/15/nyregion/nyc-highway-debris-falling.html
 https://www.nytimes.com/2026/05/15/us/rodney-barger-shooting-arrest-panama.html
 
 **A Nation Going Dark**\
-`The United States has choked off Cuba’s fuel supply, plunging the already-impoverished island into an acute energy crisis.`\
+`The United States has choked off Cuba’s fuel supply, plunging the already impoverished island into an acute energy crisis.`\
 https://www.nytimes.com/2026/05/15/world/americas/cuba-energy-crisis-photos.html
 
 **NPR Podcast Host Exits Amid Workplace Investigation**\
@@ -69,12 +77,4 @@ https://www.nytimes.com/interactive/2026/05/15/nyregion/al-saadi-complaint.html
 **Michigan Battles Trump Over His Order to Keep an Old Coal Plant Running**\
 `The Trump administration broke the law, Michigan and others told a court, by declaring an “energy emergency” and forcing an aging coal-burning plant to keep operating.`\
 https://www.nytimes.com/2026/05/15/climate/michigan-coal-plant-trump.html
-
-**A ‘Man With No Country,’ Cassidy Fights for Political Future**\
-`Senator Bill Cassidy, targeted by President Trump, is walking a political tightrope as he battles other Republicans for the chance to seek a third term.`\
-https://www.nytimes.com/2026/05/15/us/politics/senator-bill-cassidy-louisiana-primary.html
-
-**Back From China, Trump Faces Decision on Whether to Resume Strikes on Iran**\
-`Top aides have drafted battle plans as peace negotiations have stalled.`\
-https://www.nytimes.com/2026/05/15/us/politics/trump-iran.html
 
