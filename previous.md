@@ -1,3 +1,7 @@
+**Word of the Day: fallible**\
+`This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/05/15/learning/word-of-the-day-fallible.html
+
 **Trump Announces Boeing Jet Order From China. Beijing Stays Silent.**\
 `The deal, if it materializes, would be a major win for Boeing, which has lost ground to Airbus in one of the world’s largest aviation markets.`\
 https://www.nytimes.com/2026/05/15/world/asia/trump-boeing-order-china.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/embedded/world/asia/100000010905581/watch-live-tru
 **Play Casually, Say**\
 `Maddy Ziegler’s second themeless is an instant hit.`\
 https://www.nytimes.com/2026/05/14/crosswords/daily-puzzle-2026-05-15.html
-
-**Former Oklahoma Death Row Prisoner Freed Before Retrial in a 1997 Killing**\
-`A lawyer for Richard Glossip said the ruling provided a step forward in his client’s efforts to escape a “decades-long nightmare” in a case that has faced substantial criticism.`\
-https://www.nytimes.com/2026/05/14/us/richard-glossip-release-death-row-bond.html
 

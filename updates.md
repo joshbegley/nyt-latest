@@ -1,3 +1,7 @@
+**Word of the Day: fallible**\
+`This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/05/15/learning/word-of-the-day-fallible.html
+
 **Trump Announces Boeing Jet Order From China. Beijing Stays Silent.**\
 `The deal, if it materializes, would be a major win for Boeing, which has lost ground to Airbus in one of the world’s largest aviation markets.`\
 https://www.nytimes.com/2026/05/15/world/asia/trump-boeing-order-china.html
