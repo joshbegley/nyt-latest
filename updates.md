@@ -1,3 +1,7 @@
+**Viewing the World Through a Wide-Angle Lens**\
+`Zach Caldwell, who manages The New York Times’s team of cinematographers, aims to shift worldviews and shake up perspectives.`\
+https://www.nytimes.com/2026/05/15/insider/zach-caldwell-video-new-york-times.html
+
 **Trump Loyalist Leads Administration’s Hunt for Fraud in Elections**\
 `The loyalist, Dan Bishop, put his fealty to the president on display when he pressed the F.B.I. to chase investigative leads it had already rejected.`\
 https://www.nytimes.com/2026/05/15/us/dan-bishop-election-fraud-trump.html
