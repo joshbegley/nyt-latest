@@ -1,3 +1,7 @@
+**Cuba, un país a oscuras**\
+`Estados Unidos cortó el suministro de combustible a Cuba, sumiendo a la ya empobrecida isla en una aguda crisis energética.`\
+https://www.nytimes.com/es/2026/05/15/espanol/america-latina/cuba-fotos-apagon.html
+
 **Supreme Court Rejects Virginia Democrats’ Effort to Reinstate New Voting Map**\
 `State officials had asked the justices to step in to allow the state to use a congressional map in the midterms that was drawn by Democrats and recently approved by voters.`\
 https://www.nytimes.com/2026/05/15/us/politics/supreme-court-virginia-redistricting.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/15/us/politics/tina-peters-colorado-trump-polis.
 **Navy Aircraft Carrier to Complete Longest Deployment Since Vietnam**\
 `After being diverted for combat with Venezuela and Iran, the U.S.S. Gerald R. Ford will return to Norfolk, Va., on Saturday after nearly a year at sea.`\
 https://www.nytimes.com/2026/05/15/us/uss-ford-long-deployment.html
-
-**Falling Chunks of Debris Are Endangering Drivers on a Busy N.Y.C. Road**\
-`After two incidents, crews made repairs and installed protective netting on the Trans-Manhattan Expressway, which leads to the George Washington Bridge.`\
-https://www.nytimes.com/2026/05/15/nyregion/nyc-highway-debris-falling.html
 

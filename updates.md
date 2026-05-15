@@ -1,3 +1,7 @@
+**Cuba, un país a oscuras**\
+`Estados Unidos cortó el suministro de combustible a Cuba, sumiendo a la ya empobrecida isla en una aguda crisis energética.`\
+https://www.nytimes.com/es/2026/05/15/espanol/america-latina/cuba-fotos-apagon.html
+
 **Supreme Court Rejects Virginia Democrats’ Effort to Reinstate New Voting Map**\
 `State officials had asked the justices to step in to allow the state to use a congressional map in the midterms that was drawn by Democrats and recently approved by voters.`\
 https://www.nytimes.com/2026/05/15/us/politics/supreme-court-virginia-redistricting.html
