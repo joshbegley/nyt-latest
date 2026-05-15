@@ -1,3 +1,15 @@
+**My Family’s American Secret**\
+`One fateful decision 100 years ago created parallel lives. How does a family broken by the bizarre rules of racism heal itself after three generations apart?`\
+https://www.nytimes.com/2026/05/15/us/degrange-family-history-race.html
+
+**André Cerdini, Judge in Trial of Nazi Klaus Barbie, Dies at 96**\
+`He calmly presided over the historic 1987 trial in which a French court, for the first time, convicted a Nazi official of crimes against humanity.`\
+https://www.nytimes.com/2026/05/15/world/europe/andre-cerdini-dead.html
+
+**Trump Administration Weighs $1.7 Billion Fund for Allies Investigated Under Biden**\
+`Critics denounced the highly unusual plan, which has yet to be finalized or approved, as a vast political slush fund financed by taxpayers.`\
+https://www.nytimes.com/2026/05/15/us/politics/trump-allies-weaponization-fund.html
+
 **What Is Kataib Hezbollah?**\
 `A commander of one of the most-hard line and powerful Iranian proxies in Iraq has been charged with plotting to attack Jewish sites in the United States.`\
 https://www.nytimes.com/2026/05/15/world/middleeast/what-is-kataib-hezbollah.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/15/us/maine-searsmont-explosion-fire-lumber-mill
 **‘The Devil Wears Prada 2’ and the Invisible Working Class**\
 `Wesley Morris liked “The Devil Wears Prada 2,” but it reminded him of the stories he’s been missing — the ones where the focus is on the regular people doing the work, not the people at the top.`\
 https://www.nytimes.com/video/podcasts/100000010906697/the-devil-wears-prada-2-and-the-invisible-working-class.html
-
-**How Fights Over West Bank Settlements Are Unfolding at N.Y.C. Synagogues**\
-`Demonstrations outside synagogues have turned real estate sales in Israel and in the occupied territories into a political issue in the city. The protesters’ tactics have disturbed some New Yorkers.`\
-https://www.nytimes.com/2026/05/15/nyregion/west-bank-settlements-protests-nyc.html
-
-**Cornell Criticizes Students After Its President Bumps Them With His Car**\
-`After the president bumped into students with his car, an investigation by the university’s trustees said that the students’ actions were “inconsistent with university policies.”`\
-https://www.nytimes.com/2026/05/15/nyregion/cornell-students-confrontation.html
-
-**Trump and Xi’s Different Approaches at the Summit**\
-`After President Trump’s meeting in Beijing with China’s leader, Xi Jinping, our reporter David Sanger examines the differences in their body language and style.`\
-https://www.nytimes.com/video/us/100000010905596/trump-and-xis-different-approaches-at-the-summit.html
 
