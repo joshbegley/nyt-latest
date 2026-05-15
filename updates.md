@@ -1,3 +1,7 @@
+**Oil Prices Climb on Fears of Broader Energy Crunch**\
+`Hopes for an end to the war in Iran faded after President Trump failed to secure a commitment from China to help persuade Iran to reopen the Strait of Hormuz.`\
+https://www.nytimes.com/2026/05/15/business/oil-stocks-gas-trump-iran.html
+
 **Elon Musk’s Awkward Selfie Moment With a Chinese Billionaire in Beijing**\
 `A few seconds of selfie awkwardness between Elon Musk and Lei Jun, a prominent Chinese entrepreneur, has spread like wildfire on China’s social media.`\
 https://www.nytimes.com/2026/05/15/business/musk-lei-jun-xiaomi.html

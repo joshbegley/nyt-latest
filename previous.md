@@ -1,3 +1,7 @@
+**Oil Prices Climb on Fears of Broader Energy Crunch**\
+`Hopes for an end to the war in Iran faded after President Trump failed to secure a commitment from China to help persuade Iran to reopen the Strait of Hormuz.`\
+https://www.nytimes.com/2026/05/15/business/oil-stocks-gas-trump-iran.html
+
 **Elon Musk’s Awkward Selfie Moment With a Chinese Billionaire in Beijing**\
 `A few seconds of selfie awkwardness between Elon Musk and Lei Jun, a prominent Chinese entrepreneur, has spread like wildfire on China’s social media.`\
 https://www.nytimes.com/2026/05/15/business/musk-lei-jun-xiaomi.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/15/podcasts/the-sporting-class-is-the-nfl-killin
 **Cómo un cártel del narcotráfico convirtió al estado de Sinaloa en su herramienta**\
 `Durante años, una arquitectura invisible de protección dentro de varios niveles del gobierno mexicano permitió que el Cártel de Sinaloa operara a plena vista.`\
 https://www.nytimes.com/es/2026/05/15/espanol/america-latina/mexico-corrupcion-narco-carteles-gobierno.html
-
-**This Is Why I Find Pema Chödrön So Essential**\
-`The 89-year-old Buddhist nun teaches the power of agreeing with your anxiety, instead of trying to run from it.`\
-https://www.nytimes.com/2026/05/15/opinion/ezra-klein-podcast-pema-chodron.html
 
