@@ -1,3 +1,15 @@
+**A.I. Safety Is So Back + Mythos Mayhem with Nikesh Arora + Hot Mess Express**\
+`After several years of dismissing A.I. safety as doomer fear-mongering, parts of the Trump administration now seem ready to support regulation.`\
+https://www.nytimes.com/2026/05/15/podcasts/ai-safety-is-so-back-mythos-mayhem-with-nikesh-arora-hot-mess-express.html
+
+****\
+`Elon Musk squints to take a selfie with Chinese tech entrepreneur Lei Jun during a state banquet in Beijing on Thursday, May 14.`\
+https://www.nytimes.com/video/embedded/world/asia/100000010906090/15vid-musk-china-facemp4-92129.html
+
+**At the Summit**\
+`We wrap up President Trump’s visit to China.`\
+https://www.nytimes.com/2026/05/15/briefing/at-the-trump-xi-summit.html
+
 **Brillo y boicots en Eurovisión**\
 `El certamen tiene teatralidad, lentejuelas y pirotecnia. Y este año, también tiene protestas por la participación de Israel.`\
 https://www.nytimes.com/es/2026/05/15/espanol/mundo/eurovision-israel-boicot.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/15/well/have-difficult-conversation.html
 **The New York Times News Quiz, May 15, 2026**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://www.nytimes.com/interactive/2026/05/15/briefing/hantavirus-cruise-ship-trump-china-jason-collins-news-quiz.html
-
-**At Cannes, the Specter of Hollywood Always Looms Large (Even in Its Absence)**\
-`The lack of big studio movies is apparent in the festival’s quiet start, though the filmmakers James Gray and Jane Schoenbrun have made an impression.`\
-https://www.nytimes.com/2026/05/15/movies/cannes-film-festival-fast-furious.html
-
-**Does a House Really Need Rugs?**\
-`A ruling on a home-décor dispute.`\
-https://www.nytimes.com/interactive/2026/05/15/magazine/rugs-hardwood-floors-hodgman-quiz.html
-
-**A Guide to Medicare’s New Coverage for Obesity Drugs**\
-`What you should know about the federal government’s pilot program offering GLP-1s solely for weight loss.`\
-https://www.nytimes.com/2026/05/15/business/glp-1-weight-loss-drugs-cost-medicare.html
 
