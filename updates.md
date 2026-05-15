@@ -1,3 +1,7 @@
+**Starbucks Cuts 300 Corporate Jobs in Turnaround Push**\
+`The company said it would close four regional offices and take a $400 million charge related to the changes.`\
+https://www.nytimes.com/2026/05/15/business/starbucks-layoffs-office-closures.html
+
 **‘No Essay’ College Scholarships May Have Unseen Strings Attached**\
 `Unlike traditional financial aid, the prizes are awarded by random drawings. The websites, in turn, gain access to applicants’ personal information.`\
 https://www.nytimes.com/2026/05/15/your-money/no-essay-college-scholarships.html

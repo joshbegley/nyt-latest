@@ -1,3 +1,7 @@
+**Starbucks Cuts 300 Corporate Jobs in Turnaround Push**\
+`The company said it would close four regional offices and take a $400 million charge related to the changes.`\
+https://www.nytimes.com/2026/05/15/business/starbucks-layoffs-office-closures.html
+
 **‘No Essay’ College Scholarships May Have Unseen Strings Attached**\
 `Unlike traditional financial aid, the prizes are awarded by random drawings. The websites, in turn, gain access to applicants’ personal information.`\
 https://www.nytimes.com/2026/05/15/your-money/no-essay-college-scholarships.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/15/arts/music/eurovision-song-contest-favorites.
 **Trump Touts ‘Fantastic Trade Deals’ With China, but Details Are Scarce**\
 `The president left Beijing following a summit with China, during which the two countries sought to stabilize their economic and political relations.`\
 https://www.nytimes.com/2026/05/15/business/economy/trump-china-deals.html
-
-**Delivering Mail on Ukraine’s Front Line**\
-`Larysa Navrotska risks her life to deliver mail, retirement checks and medicine to remote Ukrainian communities under the constant threat of Russian drones from the nearby front line. Her service has become even more crucial than it was before the war.`\
-https://www.nytimes.com/video/world/europe/100000010847527/delivering-mail-on-ukraines-front-line.html
 
