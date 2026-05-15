@@ -1,3 +1,11 @@
+**Some Medicare Patients Can Now Get Free CBD**\
+`The Trump administration has authorized a test program to see if the cannabis compound can ease some symptoms and reduce health care costs among older patients.`\
+https://www.nytimes.com/2026/05/15/health/medicare-cbd.html
+
+**Large Ebola Outbreak Is Declared in Congo**\
+`Dozens of deaths and hundreds of infections are suspected, an African agency said. Health experts were alarmed that the outbreak hadn’t been announced sooner.`\
+https://www.nytimes.com/2026/05/15/world/africa/congo-ebola-outbreak.html
+
 **I Want to Go Where Nature Is Winning**\
 `Read our travel expert’s answers to this and other questions from readers about where they should spend time this summer.`\
 https://www.nytimes.com/2026/05/15/t-magazine/summer-travel-holiday-advice-ideas.html
