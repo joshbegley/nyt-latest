@@ -1,3 +1,15 @@
+**Elon Musk’s Awkward Selfie Moment With a Chinese Billionaire in Beijing**\
+`A few seconds of selfie awkwardness between Elon Musk and Lei Jun, a prominent Chinese entrepreneur, has spread like wildfire on China’s social media.`\
+https://www.nytimes.com/2026/05/15/business/musk-lei-jun-xiaomi.html
+
+**‘The Headlines’ News Quiz: May 15, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/05/15/podcasts/the-headlines/the-headlines-news-quiz-may-15-2026.html
+
+****\
+`Elon Musk took a selfie with the Chinese tech entrepreneur Lei Jun during a state banquet in Beijing on Thursday.`\
+https://www.nytimes.com/video/embedded/world/asia/100000010906090/15vid-musk-china-facemp4-92129.html
+
 **A.I. Safety Is So Back + Mythos Mayhem with Nikesh Arora + Hot Mess Express**\
 `After several years of dismissing A.I. safety as doomer fear-mongering, parts of the Trump administration now seem ready to support regulation.`\
 https://www.nytimes.com/2026/05/15/podcasts/ai-safety-is-so-back-mythos-mayhem-with-nikesh-arora-hot-mess-express.html
