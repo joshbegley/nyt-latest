@@ -1,3 +1,7 @@
+**Watch Live: Trump and Xi Meet on Second Day of Summit**\
+`China’s leader, Xi Jinping, and President Trump have a bilateral meeting over tea and take part in a photo opportunity on the second day of a summit in Beijing.`\
+https://www.nytimes.com/video/embedded/world/asia/100000010905581/watch-live-trump-and-xi-meet-on-second-day-of-summit.html
+
 **Play Casually, Say**\
 `Maddy Ziegler’s second themeless is an instant hit.`\
 https://www.nytimes.com/2026/05/14/crosswords/daily-puzzle-2026-05-15.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/14/climate/elon-musk-xai-data-center-doj.html
 **Two Killed After Small Plane Crashes Into House in Ohio**\
 `On Thursday, two people were killed after a small plane crashed into a house on a suburban street in Akron, Ohio, and caught fire.`\
 https://www.nytimes.com/video/us/100000010905383/two-killed-small-plane-crash-ohio.html
-
-**What the jury must weigh to decide the case.**\
-``\
-https://www.nytimes.com/live/2026/05/14/technology/openai-trial-sam-altman-elon-musk/what-the-jury-must-weigh-to-decide-the-case
 
