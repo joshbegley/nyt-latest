@@ -1,3 +1,7 @@
+**La vida en el hotel congoleño donde permanecen 15 migrantes deportados por Trump**\
+`Fueron retenidos y enviados a Kinsasa por el gobierno de Trump. Ahora se enfrentan a una peligrosa elección: volver a Latinoamérica o quedarse en África.`\
+https://www.nytimes.com/es/2026/05/15/espanol/mundo/deportados-trump-congo.html
+
 **5 Key Moments During the California Governor Debate**\
 `Candidates have become increasingly combative as they enter the final stretch before the June 2 primary. Once again, Xavier Becerra, a Democratic front-runner, drew most of the attacks.`\
 https://www.nytimes.com/2026/05/15/us/california-governor-debate-takeaways-san-francisco.html
@@ -44,7 +48,7 @@ https://www.nytimes.com/2026/05/14/pageoneplus/quote-of-the-day-with-open-primar
 
 **The United States and China will start discussing A.I. safety, Bessent says.**\
 ``\
-https://www.nytimes.com/live/2026/05/14/world/trump-xi-summit-beijing/china-us-ai-safety
+https://www.nytimes.com/2026/05/14/world/asia/china-us-ai-safety.html
 
 **The Secretive Center of Power Where Trump Met Xi**\
 `China’s leader, Xi Jinping, was meeting with President Trump on Friday at Zhongnanhai, a heavily guarded Beijing compound where top Chinese officials live and work.`\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/14/us/man-charged-bomb-instructions-new-orleans-
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/05/14/world/trump-xi-summit-beijing/heres-the-latest
-
-**Trump-Ordered Citizenship Lists for Voting Are Likely Unreliable, Justice Dept. Says**\
-`At a court hearing over a presidential order seeking to exert more control over elections, a government lawyer said no “responsible state” should rely on the lists to update their voter rolls.`\
-https://www.nytimes.com/2026/05/14/us/politics/trump-citizenship-list-voting.html
 
