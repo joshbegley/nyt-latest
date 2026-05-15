@@ -1,3 +1,11 @@
+**Hospital Will Open First ‘Detransition’ Clinic in Legal Settlement With Texas**\
+`Texas Children’s Hospital was under investigation for billing practices on gender-transition treatments. The settlement was expected to end that inquiry.`\
+https://www.nytimes.com/2026/05/15/us/detransition-transgender-clinic.html
+
+**Clavicular Strikes Plea Deal With Prosecutors After Alligator Shooting**\
+`The social media personality pleaded no contest and was sentenced to six months of probation. The deal allows him to avoid jail time.`\
+https://www.nytimes.com/2026/05/15/us/clavicular-plea-deal-alligator-shooting.html
+
 **Smithsonian Adds Back Impeachment Language to Label on Trump Portrait**\
 `The language had been removed from wall text in the National Portrait Gallery, but it’s back as the museum unveiled changes to its exhibition on U.S. presidents.`\
 https://www.nytimes.com/2026/05/15/arts/design/trump-impeachment-smithsonian-national-portrait-gallery.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/15/nyregion/nyc-highway-debris-falling.html
 **Fugitive Accused of Killing Punk Rock Singer in 1993 Is Arrested in Panama**\
 `Richard Werstine was detained in Panama City last month after more than 30 years on the run, according to the authorities. He is accused of murdering Rodney Barger of the Detroit band Cold as Life.`\
 https://www.nytimes.com/2026/05/15/us/rodney-barger-shooting-arrest-panama.html
-
-**A Nation Going Dark**\
-`The United States has choked off Cuba’s fuel supply, plunging the already impoverished island into an acute energy crisis.`\
-https://www.nytimes.com/2026/05/15/world/americas/cuba-energy-crisis-photos.html
-
-**NPR Podcast Host Exits Amid Workplace Investigation**\
-`Ramtin Arablouei, a co-host of “Throughline,” left the network after an employee made a human resources complaint about his behavior.`\
-https://www.nytimes.com/2026/05/15/business/media/npr-podcast-ramtin-arablouei-throughline.html
 
