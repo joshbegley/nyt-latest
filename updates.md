@@ -1,3 +1,7 @@
+**Falling Chunks of Debris Are Endangering Drivers on a Busy N.Y.C. Road**\
+`After two incidents, crews made repairs and installed protective netting on the Trans-Manhattan Expressway, which leads to the George Washington Bridge.`\
+https://www.nytimes.com/2026/05/15/nyregion/nyc-highway-debris-falling.html
+
 **Fugitive Accused of Killing Punk Rock Singer in 1993 Is Arrested in Panama**\
 `Richard Werstine was detained in Panama City last month after more than 30 years on the run, according to the authorities. He is accused of murdering Rodney Barger of the Detroit band Cold as Life.`\
 https://www.nytimes.com/2026/05/15/us/rodney-barger-shooting-arrest-panama.html
