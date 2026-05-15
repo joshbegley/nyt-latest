@@ -62,7 +62,7 @@ https://www.nytimes.com/2026/05/15/nyregion/harvey-weinstein-hung-jury-mistrial.
 `Representative Steve Cohen has represented Memphis since 2007. After Republicans redistricted his seat, he is leaving the field, possibly to his young rival, Justin J. Pearson.`\
 https://www.nytimes.com/2026/05/15/us/elections/steve-cohen-retires-tennessee.html
 
-**Executions Surge in Iran Since Cease-fire, Rights Groups Say**\
+**Executions Surge in Iran Since Cease-Fire, Rights Groups Say**\
 `Many were detained during January’s mass protests, according to a rights group, amid concerns the authorities are trying to intimidate Iranians from returning to the streets.`\
 https://www.nytimes.com/2026/05/15/world/middleeast/execution-iran-ceasefire.html
 
