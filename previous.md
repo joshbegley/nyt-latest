@@ -1,3 +1,27 @@
+**Lessons From the Hantavirus Outbreak**\
+`Sixteen Americans are isolating at a special quarantine center in Omaha, including one person who tested “mildly” positive for the virus.`\
+https://www.nytimes.com/2026/05/15/podcasts/the-daily/hantavirus-outbreak.html
+
+**A Surge of U.S. Spy Planes Over Cuba, and Retailers’ $20 Billion Bet on Physical Stores**\
+`Plus, the Friday news quiz.`\
+https://www.nytimes.com/2026/05/15/podcasts/the-headlines/spy-planes-cuba-physical-stores-retailers.html
+
+**Connections Companion No. 1,070**\
+`Scroll down for hints and conversation about the puzzle for Saturday, May 16, 2026.`\
+https://www.nytimes.com/2026/05/15/crosswords/connections-companion-1070.html
+
+**Wordle Review No. 1,792**\
+`Scroll down for hints and conversation about the puzzle for Saturday, May 16, 2026.`\
+https://www.nytimes.com/2026/05/15/crosswords/wordle-review-1792.html
+
+**Strands Sidekick No. 804**\
+`Scroll down for hints and conversation about the puzzle for Saturday, May 16, 2026.`\
+https://www.nytimes.com/2026/05/15/crosswords/strands-sidekick-804.html
+
+**Who Are the Favorites to Win Eurovision?**\
+`Finland is the favorite for prediction markets and bookmakers, but singers from Australia, Denmark, Greece and Israel are coming for the title, too.`\
+https://www.nytimes.com/2026/05/15/arts/music/eurovision-song-contest-favorites.html
+
 **Trump Touts ‘Fantastic Trade Deals’ With China, but Details Are Scarce**\
 `The president left Beijing following a summit with China, during which the two countries sought to stabilize their economic and political relations.`\
 https://www.nytimes.com/2026/05/15/business/economy/trump-china-deals.html
@@ -53,28 +77,4 @@ https://www.nytimes.com/2026/05/15/us/alex-murdaugh-murders-trial.html
 **A Republican’s Mysterious Absence Reflects Congress’s Silence on Health**\
 `Presidents are expected to tell the public basic health information, but members of the House and Senate often stay silent about medical conditions, even those that affect their ability to do their jobs.`\
 https://www.nytimes.com/2026/05/15/us/politics/thomas-kean-jr-congress-health.html
-
-**Bernie Sanders Backs Slate of Candidates in Bid to Cement Progressive Legacy**\
-`The five dozen endorsements mostly feature those seeking state or local office who have previously supported the Vermont senator.`\
-https://www.nytimes.com/2026/05/15/us/politics/bernie-sanders-endorsements-democrats-candidates.html
-
-**Nebraska Blocks Bar From Using ‘Barber Shop’ Name, Saying That’s Just for Haircuts**\
-`The Omaha establishment changed its name this week from the Barber Shop Blackstone to the Censored Shop Blackstone in protest while it is suing the state in federal court in a trademark fight.`\
-https://www.nytimes.com/2026/05/15/us/nebraska-barber-shop-bar-name-lawsuit.html
-
-**Martin Short and the Secret to Finding Joy While Surviving Tragedy**\
-`The comedy star, who is the subject of a new documentary, has faced a series of unimaginable losses. Yet he says there are always laughs to remember.`\
-https://www.nytimes.com/2026/05/15/movies/martin-short-marty-life-is-short.html
-
-**As Powell Steps Down, the Fed Confronts ‘Regime Change’**\
-`Jerome H. Powell is passing the chair’s baton to Kevin M. Warsh at the Federal Reserve, an institution that President Trump’s pick says needs an overhaul.`\
-https://www.nytimes.com/2026/05/15/us/politics/jerome-powell-kevin-warsh-federal-reserve.html
-
-**6 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://www.nytimes.com/2026/05/15/movies/new-movies-this-week-critics.html
-
-**​Want to Know What Is Going to Happen in the Midterms? So Does Amy Walter. ​**\
-`Two powerful forces in politics clash.`\
-https://www.nytimes.com/2026/05/15/opinion/supreme-court-redistricting.html
 

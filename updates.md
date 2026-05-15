@@ -1,3 +1,27 @@
+**Lessons From the Hantavirus Outbreak**\
+`Sixteen Americans are isolating at a special quarantine center in Omaha, including one person who tested “mildly” positive for the virus.`\
+https://www.nytimes.com/2026/05/15/podcasts/the-daily/hantavirus-outbreak.html
+
+**A Surge of U.S. Spy Planes Over Cuba, and Retailers’ $20 Billion Bet on Physical Stores**\
+`Plus, the Friday news quiz.`\
+https://www.nytimes.com/2026/05/15/podcasts/the-headlines/spy-planes-cuba-physical-stores-retailers.html
+
+**Connections Companion No. 1,070**\
+`Scroll down for hints and conversation about the puzzle for Saturday, May 16, 2026.`\
+https://www.nytimes.com/2026/05/15/crosswords/connections-companion-1070.html
+
+**Wordle Review No. 1,792**\
+`Scroll down for hints and conversation about the puzzle for Saturday, May 16, 2026.`\
+https://www.nytimes.com/2026/05/15/crosswords/wordle-review-1792.html
+
+**Strands Sidekick No. 804**\
+`Scroll down for hints and conversation about the puzzle for Saturday, May 16, 2026.`\
+https://www.nytimes.com/2026/05/15/crosswords/strands-sidekick-804.html
+
+**Who Are the Favorites to Win Eurovision?**\
+`Finland is the favorite for prediction markets and bookmakers, but singers from Australia, Denmark, Greece and Israel are coming for the title, too.`\
+https://www.nytimes.com/2026/05/15/arts/music/eurovision-song-contest-favorites.html
+
 **Trump Touts ‘Fantastic Trade Deals’ With China, but Details Are Scarce**\
 `The president left Beijing following a summit with China, during which the two countries sought to stabilize their economic and political relations.`\
 https://www.nytimes.com/2026/05/15/business/economy/trump-china-deals.html
