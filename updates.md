@@ -1,3 +1,7 @@
+**Washington National Opera Builds a New Chapter After Kennedy Center**\
+`The company announced that its next season would include a slate of five full-length operas at houses around the Washington area.`\
+https://www.nytimes.com/2026/05/15/arts/music/washington-opera-new-season-post-kennedy-center.html
+
 **Men’s Fashion’s Big Idea? Muscles.**\
 `T Magazine’s Editor at Large Nick Haramis breaks down men’s fashion’s ongoing obsession with a chiseled physique.`\
 https://www.nytimes.com/video/t-magazine/100000010901620/mens-fashions-big-idea-muscles.html
