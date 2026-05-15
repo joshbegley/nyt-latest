@@ -1,5 +1,5 @@
 **Delivering Mail on Ukraine’s Front Line**\
-`Larysa Navrotska risks her life to deliver mail, retirement checks and medicine to remote Ukrainian communities under the constant threat of Russian drones from the nearby frontline. Her service has become even more crucial than it was before the war.`\
+`Larysa Navrotska risks her life to deliver mail, retirement checks and medicine to remote Ukrainian communities under the constant threat of Russian drones from the nearby front line. Her service has become even more crucial than it was before the war.`\
 https://www.nytimes.com/video/world/europe/100000010847527/delivering-mail-on-ukraines-front-line.html
 
 **Palabra del día: ‘fallible’**\
