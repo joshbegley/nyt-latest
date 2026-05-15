@@ -1,3 +1,11 @@
+**Civilian Planes Shot Down by Cuba: A Push to Punish Raúl Castro 30 Years Later**\
+`Mr. Castro, Cuba’s former president, could soon face charges in the 1996 killings of four volunteer airmen who were members of a humanitarian group that searched for migrants at sea.`\
+https://www.nytimes.com/2026/05/15/world/americas/cuba-raul-castro-us-indictment.html
+
+**Ex-Texas Lottery Executive Charged in Scheme That Guaranteed a Win**\
+`Prosecutors in Travis County, Texas, filed charges against Gary Grief and the disbanded Texas Lottery Commission in connection with a 2023 plan that arranged a surefire jackpot.`\
+https://www.nytimes.com/2026/05/15/us/texas-lottery-commission-jackpot-charges.html
+
 **Arqueólogos hallan un fragmento de la ‘Ilíada’ enterrado con una momia egipcia**\
 `Para los difuntos del Egipto de la época romana, la literatura griega puede haber ofrecido una clave para una vida en el más allá más cómoda.`\
 https://www.nytimes.com/es/2026/05/15/espanol/ciencia-y-tecnologia/momia-egipto-iliada.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/15/business/media/npr-podcast-ramtin-arablouei-t
 **My Family’s American Secret**\
 `One fateful decision 100 years ago created parallel lives. How does a family broken by the bizarre rules of racism heal itself after three generations apart?`\
 https://www.nytimes.com/2026/05/15/us/degrange-family-history-race.html
-
-**André Cerdini, Judge in Trial of Nazi Klaus Barbie, Dies at 96**\
-`He calmly presided over the historic 1987 trial in which a French court, for the first time, convicted a Nazi official of crimes against humanity.`\
-https://www.nytimes.com/2026/05/15/world/europe/andre-cerdini-dead.html
-
-**Trump Administration Weighs $1.7 Billion Fund for Allies Investigated Under Biden**\
-`Critics denounced the highly unusual plan, which has yet to be finalized or approved, as a vast political slush fund financed by taxpayers.`\
-https://www.nytimes.com/2026/05/15/us/politics/trump-allies-weaponization-fund.html
 

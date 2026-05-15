@@ -1,3 +1,7 @@
+**Arqueólogos hallan un fragmento de la ‘Ilíada’ enterrado con una momia egipcia**\
+`Para los difuntos del Egipto de la época romana, la literatura griega puede haber ofrecido una clave para una vida en el más allá más cómoda.`\
+https://www.nytimes.com/es/2026/05/15/espanol/ciencia-y-tecnologia/momia-egipto-iliada.html
+
 **Ukrainian Drone Attacks on Russian Apartment Building Kills 4**\
 `Ukrainian drones struck an apartment building and ignited a fire at an oil refinery in the Russian city of Ryazan on Friday. At least four people were killed in the attack on the residential building, according to the regional governor. The barrage follows a series of Russian drone strikes that killed at least 24 people in Kyiv, Ukraine.`\
 https://www.nytimes.com/video/world/europe/100000010906081/ukraine-drone-attack-russia.html
