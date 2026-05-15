@@ -1,3 +1,11 @@
+**El Departamento de Justicia de EE. UU. busca usar leyes sobre terrorismo para perseguir a funcionarios mexicanos**\
+`Esta semana, la agencia federal estadounidense dio instrucciones a los fiscales para que comiencen a establecer causas penales por narcotráfico contra funcionarios mexicanos usando nuevos estatutos sobre terrorismo.`\
+https://www.nytimes.com/es/2026/05/15/espanol/america-latina/mexico-ee-uu-gobierno-narco-terrorismo.html
+
+**Judge Bars Kars4Kids From Broadcasting ‘Misleading’ Ads in California**\
+`The ads with a repetitive jingle encouraging people to donate cars do not disclose that most of the proceeds go to a Jewish organization in New Jersey, the judge ruled.`\
+https://www.nytimes.com/2026/05/15/us/kars4kids-advertising-banned-california.html
+
 **36 Hours to Air: Inside the Scramble to Film ‘S.N.L.’ Shorts**\
 `A rare glimpse behind the scenes reveals a frenetic process that has been refined across decades.`\
 https://www.nytimes.com/interactive/2026/05/15/arts/television/saturday-night-live-shorts-filming-process.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/es/2026/05/15/espanol/estados-unidos/green-card-residenc
 **Militia Commander Tied to Iran Plotted Attacks in U.S., Prosecutors Say**\
 `Mohammad Baqer Saad Dawood Al-Saadi is accused of leading attacks in Europe and being part of a retaliation campaign by Iran. Prosecutors say he is a leader of Kataib Hezbollah, an Iraqi militia with ties to Iran.`\
 https://www.nytimes.com/2026/05/15/nyregion/hezbollah-arrest-nyc-jewish-targets.html
-
-**Trump anuncia ‘fantásticos acuerdos comerciales’ con China, pero da pocos detalles**\
-`El presidente regresa a Estados Unidos tras una cumbre en China, en la que ambos países trataron de estabilizar sus relaciones económicas y políticas.`\
-https://www.nytimes.com/es/2026/05/15/espanol/estados-unidos/trump-china-xi-acuerdos.html
-
-**What Trump’s Magic Math Costs You**\
-`Trump is attacking the data that helps Americans understand reality itself. In this video from Times Opinion, we examine how his war on numbers follows a familiar authoritarian playbook.`\
-https://www.nytimes.com/video/opinion/100000010887197/what-trumps-magic-math-costs-you.html
 
