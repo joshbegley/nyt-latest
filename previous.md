@@ -1,3 +1,15 @@
+**Fugitive Accused of Killing Punk Rock Singer in 1993 Is Arrested in Panama**\
+`Richard Werstine was detained in Panama City last month after more than 30 years on the run, according to the authorities. He is accused of murdering Rodney Barger of the Detroit band Cold as Life.`\
+https://www.nytimes.com/2026/05/15/us/rodney-barger-shooting-arrest-panama.html
+
+**A Nation Going Dark**\
+`The United States has choked off Cuba’s fuel supply, plunging the already-impoverished island into an acute energy crisis.`\
+https://www.nytimes.com/2026/05/15/world/americas/cuba-energy-crisis-photos.html
+
+**NPR Podcast Host Exits Amid Workplace Investigation**\
+`Ramtin Arablouei, a co-host of “Throughline,” left the network after an employee made a human resources complaint about his behavior.`\
+https://www.nytimes.com/2026/05/15/business/media/npr-podcast-ramtin-arablouei-throughline.html
+
 **My Family’s American Secret**\
 `One fateful decision 100 years ago created parallel lives. How does a family broken by the bizarre rules of racism heal itself after three generations apart?`\
 https://www.nytimes.com/2026/05/15/us/degrange-family-history-race.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/15/us/politics/trump-iran.html
 **Viewing the World Through a Wide-Angle Lens**\
 `Zach Caldwell, who manages The New York Times’s team of cinematographers, aims to shift worldviews and shake up perspectives.`\
 https://www.nytimes.com/2026/05/15/insider/zach-caldwell-video-new-york-times.html
-
-**Mothers and Daughters: Two Stories**\
-`Responses to a guest essay by Molly Jong-Fast, “I Tried to Become My Mother and Ended Up Becoming Myself.” Also: President Trump in China; a gift to Big Tobacco.`\
-https://www.nytimes.com/2026/05/15/opinion/mothers-daughters.html
-
-**Explosion at Maine Lumber Mill Injures 10**\
-`Footage from the scene showed flames burning through the roof of a large structure as heavy, dark smoke billowed skyward.`\
-https://www.nytimes.com/2026/05/15/us/maine-searsmont-explosion-fire-lumber-mill.html
-
-**‘The Devil Wears Prada 2’ and the Invisible Working Class**\
-`Wesley Morris liked “The Devil Wears Prada 2,” but it reminded him of the stories he’s been missing — the ones where the focus is on the regular people doing the work, not the people at the top.`\
-https://www.nytimes.com/video/podcasts/100000010906697/the-devil-wears-prada-2-and-the-invisible-working-class.html
 

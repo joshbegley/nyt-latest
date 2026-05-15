@@ -1,3 +1,15 @@
+**Fugitive Accused of Killing Punk Rock Singer in 1993 Is Arrested in Panama**\
+`Richard Werstine was detained in Panama City last month after more than 30 years on the run, according to the authorities. He is accused of murdering Rodney Barger of the Detroit band Cold as Life.`\
+https://www.nytimes.com/2026/05/15/us/rodney-barger-shooting-arrest-panama.html
+
+**A Nation Going Dark**\
+`The United States has choked off Cuba’s fuel supply, plunging the already-impoverished island into an acute energy crisis.`\
+https://www.nytimes.com/2026/05/15/world/americas/cuba-energy-crisis-photos.html
+
+**NPR Podcast Host Exits Amid Workplace Investigation**\
+`Ramtin Arablouei, a co-host of “Throughline,” left the network after an employee made a human resources complaint about his behavior.`\
+https://www.nytimes.com/2026/05/15/business/media/npr-podcast-ramtin-arablouei-throughline.html
+
 **My Family’s American Secret**\
 `One fateful decision 100 years ago created parallel lives. How does a family broken by the bizarre rules of racism heal itself after three generations apart?`\
 https://www.nytimes.com/2026/05/15/us/degrange-family-history-race.html
