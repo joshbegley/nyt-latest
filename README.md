@@ -1,3 +1,15 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/05/14/world/trump-xi-summit-beijing/heres-the-latest
+
+**Trump-Ordered Citizenship Lists for Voting Are Likely Unreliable, Justice Dept. Says**\
+`At a court hearing over a presidential order seeking to exert more control over elections, a government lawyer said no “responsible state” should rely on the lists to update their voter rolls.`\
+https://www.nytimes.com/2026/05/14/us/politics/trump-citizenship-list-voting.html
+
+**Cuba afirma que se agotaron sus reservas de petróleo**\
+`El gobierno cubano lidia con una grave crisis energética debido al colapso de las infraestructuras y la disminución del suministro de Venezuela.`\
+https://www.nytimes.com/es/2026/05/14/espanol/america-latina/cuba-crisis-reservas-petroleo.html
+
 **OpenAI Considers Legal Action Against Apple in Strained Relationship**\
 `The A.I. company, which is in the middle of a court fight with Elon Musk, has been unhappy with how Apple has integrated ChatGPT into its devices.`\
 https://www.nytimes.com/2026/05/14/technology/openai-apple-legal-action.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/es/2026/05/14/espanol/estados-unidos/cia-cuba.html
 **G. Robert Blakey Dies at 90; Drafted the RICO Anti-Racketeering Statute**\
 `He was also the chief counsel to the House Select Committee on Assassinations in the late 1970s and spent years as a Notre Dame law professor.`\
 https://www.nytimes.com/2026/05/14/us/george-robert-blakey-dead.html
-
-**A Top Connecticut Republican, Accused of Fraud, Ends Her Bid for Governor**\
-`Erin Stewart was facing intense scrutiny over her use of a city credit card when she was mayor of New Britain, Conn.`\
-https://www.nytimes.com/2026/05/14/nyregion/erin-stewart-suspends-governor-campaign-connecticut.html
-
-**Mail-Order Abortions Have Quickly Become Common**\
-`Pills shipped to states with bans are a reason abortion has increased since Roe v. Wade was overturned.`\
-https://www.nytimes.com/2026/05/14/upshot/abortion-pills-court.html
-
-**N.Y.U. Class of 2026 Graduates After Studying Through Turbulent Years**\
-`The graduates from New York University witnessed protests and the Trump administration’s crackdown on higher education.`\
-https://www.nytimes.com/2026/05/14/nyregion/nyu-graduation-turbulent.html
 
