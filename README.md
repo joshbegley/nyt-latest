@@ -1,3 +1,7 @@
+**Don’t Run Away From Fear. ‘Agree’ With It.**\
+`What does it mean to “make friends” with fear? On “The Ezra Klein Show,” the beloved Buddhist teacher and author Pema Chödrön explores how to embrace uncertainty and loss, rather than avoiding them.`\
+https://www.nytimes.com/video/opinion/100000010899321/dont-run-away-from-fear-agree-with-it.html
+
 **You Should Sit With Boredom**\
 `Social media and smartphones have chipped away at our ability to tolerate stillness and boredom. But what gets lost in a world of constant distraction? On “The Ezra Klein Show,” the Buddhist teacher Pema Chödrön argues that the world becomes more alive in stillness.`\
 https://www.nytimes.com/video/opinion/100000010906723/you-should-sit-with-boredom.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/podcasts/100000010906475/the-secret-behind-the-sol
 **Snorkeling at Pearl Harbor: Kash Patel’s Travels Add to Focus on Ethical Issues**\
 `The F.B.I. director continues to come under scrutiny for mixing government business with dates, vacation and leisure time.`\
 https://www.nytimes.com/2026/05/15/us/politics/patel-fbi-travel-snorkeling-pearl-harbor.html
-
-**Israeli Strike Targeted Top Hamas Leader in Gaza, Officials Say**\
-`Izz al-Din al-Haddad, the target of an Israeli strike in Gaza City, took over the group’s military wing in Gaza last year. Israeli officials said he was also an architect of the Oct. 7 attack.`\
-https://www.nytimes.com/2026/05/15/world/middleeast/israel-gaza-haddad-hamas.html
 
