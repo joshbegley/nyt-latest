@@ -1,3 +1,7 @@
+**Don’t Run Away From Fear. ‘Agree’ With It.**\
+`What does it mean to “make friends” with fear? On “The Ezra Klein Show,” the beloved Buddhist teacher and author Pema Chödrön explores how to embrace uncertainty and loss, rather than avoiding them.`\
+https://www.nytimes.com/video/opinion/100000010899321/dont-run-away-from-fear-agree-with-it.html
+
 **You Should Sit With Boredom**\
 `Social media and smartphones have chipped away at our ability to tolerate stillness and boredom. But what gets lost in a world of constant distraction? On “The Ezra Klein Show,” the Buddhist teacher Pema Chödrön argues that the world becomes more alive in stillness.`\
 https://www.nytimes.com/video/opinion/100000010906723/you-should-sit-with-boredom.html
