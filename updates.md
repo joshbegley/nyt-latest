@@ -1,3 +1,11 @@
+**You Should Sit With Boredom**\
+`Social media and smartphones have chipped away at our ability to tolerate stillness and boredom. But what gets lost in a world of constant distraction? On “The Ezra Klein Show,” the Buddhist teacher Pema Chödrön argues that the world becomes more alive in stillness.`\
+https://www.nytimes.com/video/opinion/100000010906723/you-should-sit-with-boredom.html
+
+**Claudine Longet, Entertainer Who Shot Olympian Boyfriend, Dies at 84**\
+`A singer and actress, she drew wide attention for the fatal 1976 shooting of Spider Sabich. She was convicted of negligent homicide.`\
+https://www.nytimes.com/2026/05/15/us/claudine-longet-dead.html
+
 **Will the Iran War Backlash Save an Anti-Trump Republican?**\
 `A view from Thomas Massie’s district in Kentucky.`\
 https://www.nytimes.com/2026/05/15/us/politics/thomas-massie-kentucky-iran.html

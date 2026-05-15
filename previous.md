@@ -1,3 +1,11 @@
+**You Should Sit With Boredom**\
+`Social media and smartphones have chipped away at our ability to tolerate stillness and boredom. But what gets lost in a world of constant distraction? On “The Ezra Klein Show,” the Buddhist teacher Pema Chödrön argues that the world becomes more alive in stillness.`\
+https://www.nytimes.com/video/opinion/100000010906723/you-should-sit-with-boredom.html
+
+**Claudine Longet, Entertainer Who Shot Olympian Boyfriend, Dies at 84**\
+`A singer and actress, she drew wide attention for the fatal 1976 shooting of Spider Sabich. She was convicted of negligent homicide.`\
+https://www.nytimes.com/2026/05/15/us/claudine-longet-dead.html
+
 **Will the Iran War Backlash Save an Anti-Trump Republican?**\
 `A view from Thomas Massie’s district in Kentucky.`\
 https://www.nytimes.com/2026/05/15/us/politics/thomas-massie-kentucky-iran.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/15/us/politics/patel-fbi-travel-snorkeling-pearl
 **Israeli Strike Targeted Top Hamas Leader in Gaza, Officials Say**\
 `Izz al-Din al-Haddad, the target of an Israeli strike in Gaza City, took over the group’s military wing in Gaza last year. Israeli officials said he was also an architect of the Oct. 7 attack.`\
 https://www.nytimes.com/2026/05/15/world/middleeast/israel-gaza-haddad-hamas.html
-
-**El Departamento de Justicia de EE. UU. busca usar leyes sobre terrorismo para perseguir a funcionarios mexicanos**\
-`Esta semana, la agencia federal estadounidense dio instrucciones a los fiscales para que comiencen a establecer causas penales por narcotráfico contra funcionarios mexicanos usando nuevos estatutos sobre terrorismo.`\
-https://www.nytimes.com/es/2026/05/15/espanol/america-latina/mexico-ee-uu-gobierno-narco-terrorismo.html
-
-**Judge Bars Kars4Kids From Broadcasting ‘Misleading’ Ads in California**\
-`The ads with a repetitive jingle encouraging people to donate cars do not disclose that most of the proceeds go to a Jewish organization in New Jersey, the judge ruled.`\
-https://www.nytimes.com/2026/05/15/us/kars4kids-advertising-banned-california.html
 
