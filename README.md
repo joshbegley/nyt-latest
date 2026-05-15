@@ -1,3 +1,7 @@
+**Trump’s ‘Learning Curve’ on China Ends With Conciliation at Summit**\
+`The president has shifted the foundations of American policy toward China, throwing aside the adversarial approach of recent years.`\
+https://www.nytimes.com/2026/05/15/world/europe/trump-xi-china-summit.html
+
 **For Xi’s Critics, Summit Spectacle Is Fuel for Jokes They Can’t Tell**\
 `On Threads and other sites, liberal-minded Chinese accounts were mocking the proceedings and offering a rare window into opinions on Mr. Xi and his leadership style.`\
 https://www.nytimes.com/2026/05/15/business/trump-xi-meeting-china-social-media.html
@@ -7,7 +11,7 @@ https://www.nytimes.com/2026/05/15/business/trump-xi-meeting-china-social-media.
 https://www.nytimes.com/2026/05/15/arts/music/frida-and-diego-met-opera-review.html
 
 **C.I.A. Director Visits Cuba Amid Energy Crisis**\
-`John Ratcliffe, the director of the Central Intelligence Agency, traveled to Cuba a day after its government announced that it had exhausted its oil supplies for power plants and domestic use.`\
+`John Ratcliffe, the director of the Central Intelligence Agency, traveled to Cuba a day after its government announced that oil supplies for domestic use and for power plants had been exhausted.`\
 https://www.nytimes.com/video/world/americas/100000010906021/cia-director-cuba-fuel-shortage.html
 
 **Today, In Short**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/15/us/dan-bishop-election-fraud-trump.html
 **Xi Pitches His Vision for Avoiding a Superpower Collision**\
 `Having fought the Trump administration to a draw, China’s Xi Jinping is proposing “constructive strategic stability,” aimed at drawing lines he thinks the U.S. should not cross.`\
 https://www.nytimes.com/2026/05/15/world/asia/xi-trump-superpower-thucydides-stability.html
-
-**Drake Releases ‘Iceman’ and Two Surprise Albums: What to Know**\
-`The chart-topping Canadian rapper released an anticipated new album, “Iceman,” on Friday and two previously unannounced LPs, “Habibti” and “Maid of Honour.”`\
-https://www.nytimes.com/2026/05/15/arts/music/drake-new-albums-iceman-habibti-maid-of-honour.html
 
