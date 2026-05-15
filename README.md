@@ -1,3 +1,7 @@
+**A ‘Summer Surge’ of Law Enforcement Is Planned for D.C., Officials Say**\
+`Federal officials say that hundreds of additional agents, officers and National Guard troops will be deployed ahead of the nation’s 250th birthday celebration.`\
+https://www.nytimes.com/2026/05/15/us/politics/law-enforcement-agents-washington-dc.html
+
 **With Possible Raúl Castro Indictment, U.S. Eyes Venezuela Playbook**\
 `Amid stepped-up surveillance flights, a visit of the C.I.A. director and an energy embargo, the White House is trying to increase pressure on Cuba.`\
 https://www.nytimes.com/2026/05/15/us/politics/trump-cuba-pressue-castro.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/15/us/kars4kids-advertising-banned-california.ht
 **36 Hours to Air: Inside the Scramble to Film ‘S.N.L.’ Shorts**\
 `A rare glimpse behind the scenes reveals a frenetic process that has been refined across decades.`\
 https://www.nytimes.com/interactive/2026/05/15/arts/television/saturday-night-live-shorts-filming-process.html
-
-**Read the complaint filed against a top militia commander linked to Iran.**\
-`A commander of an Iraqi militia has been charged with plotting to attack Jewish sites in the United States, including a synagogue in New York, and carrying out attacks in Europe as part of a broader campaign of retaliation by Iran since the war began in February.`\
-https://www.nytimes.com/interactive/2026/05/15/nyregion/al-saadi-complaint.html
 
