@@ -1,3 +1,15 @@
+**Explosion at Maine Lumber Mill Draws Large Emergency Response**\
+`Footage from the scene showed flames burning through the roof of a large structure as heavy, dark smoke billowed skyward.`\
+https://www.nytimes.com/2026/05/15/us/maine-searsmont-explosion-fire-lumber-mill.html
+
+**‘The Devil Wears Prada 2’ and the Invisible Working Class**\
+`Wesley Morris liked “The Devil Wears Prada 2,” but it reminded him of the stories he’s been missing — the ones where the focus is on the regular people doing the work, not the people at the top.`\
+https://www.nytimes.com/video/podcasts/100000010906697/the-devil-wears-prada-2-and-the-invisible-working-class.html
+
+**How Fights Over West Bank Settlements Are Unfolding at N.Y.C. Synagogues**\
+`Demonstrations outside synagogues have turned real estate sales in Israel and in the occupied territories into a political issue in the city. The protesters’ tactics have disturbed some New Yorkers.`\
+https://www.nytimes.com/2026/05/15/nyregion/west-bank-settlements-protests-nyc.html
+
 **Cornell Blames Students for Confrontation With the School’s President**\
 `After the president bumped into students with his car, an investigation by the university’s trustees said that the students’ actions were “inconsistent with university policies.”`\
 https://www.nytimes.com/2026/05/15/nyregion/cornell-students-confrontation.html
@@ -61,16 +73,4 @@ https://www.nytimes.com/2026/05/15/world/americas/doj-terrorism-charges-mexican-
 **German Chancellor, After Iran Spat With Trump, Reports ‘Good’ Phone Call**\
 `The call, initiated by Friedrich Merz, came soon after he told young people, “I am a great admirer of America. My admiration is not increasing at the moment.”`\
 https://www.nytimes.com/2026/05/15/world/europe/merz-trump-germany-us.html
-
-**The Audemars Piguet and Swatch Collab That Broke the Internet**\
-`For some watch fans, the Royal Pop was a royal letdown.`\
-https://www.nytimes.com/2026/05/15/style/the-audemars-piguet-and-swatch-collab-that-broke-the-internet.html
-
-**Trump’s ‘Learning Curve’ on China Ends With Conciliation at Summit**\
-`The president has shifted the foundations of American policy toward China, throwing aside the adversarial approach of recent years.`\
-https://www.nytimes.com/2026/05/15/world/europe/trump-xi-china-summit.html
-
-**For Xi’s Critics, Summit Spectacle Is Fuel for Jokes They Can’t Tell**\
-`On Threads and other sites, liberal-minded Chinese accounts were mocking the proceedings and offering a rare window into opinions on Xi Jinping and his leadership style.`\
-https://www.nytimes.com/2026/05/15/business/trump-xi-meeting-china-social-media.html
 
