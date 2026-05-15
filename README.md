@@ -1,3 +1,11 @@
+**5 Key Moments During the California Governor Debate**\
+`Candidates have become increasingly combative as they enter the final stretch before the June 2 primary. Once again, Xavier Becerra, a Democratic front-runner, drew most of the attacks.`\
+https://www.nytimes.com/2026/05/15/us/california-governor-debate-takeaways-san-francisco.html
+
+**Así es como Israel convirtió Eurovisión en una herramienta de poder blando**\
+`Documentos y entrevistas revelan cómo el gobierno israelí utilizó el concurso musical más importante de Europa para fortalecer su imagen internacional.`\
+https://www.nytimes.com/es/2026/05/15/espanol/mundo/israel-eurovision-gaza-netanyahu.html
+
 **Aging Palestinian Leader Boosting His Son’s Political Rise, Officials Say**\
 `Mahmoud Abbas’s years in power have been dogged by accusations of corruption. Many Palestinians yearn for fresh leadership.`\
 https://www.nytimes.com/2026/05/15/world/middleeast/abbas-fatah-palestinian-authority.html
@@ -38,7 +46,7 @@ https://www.nytimes.com/2026/05/14/pageoneplus/quote-of-the-day-with-open-primar
 ``\
 https://www.nytimes.com/live/2026/05/14/world/trump-xi-summit-beijing/china-us-ai-safety
 
-**The Secretive Center of Power Where Trump Is Meeting Xi**\
+**The Secretive Center of Power Where Trump Met Xi**\
 `China’s leader, Xi Jinping, was meeting with President Trump on Friday at Zhongnanhai, a heavily guarded Beijing compound where top Chinese officials live and work.`\
 https://www.nytimes.com/2026/05/14/world/asia/trump-xi-summit-china-beijing-zhongnanhai.html
 
@@ -69,12 +77,4 @@ https://www.nytimes.com/live/2026/05/14/world/trump-xi-summit-beijing/heres-the-
 **Trump-Ordered Citizenship Lists for Voting Are Likely Unreliable, Justice Dept. Says**\
 `At a court hearing over a presidential order seeking to exert more control over elections, a government lawyer said no “responsible state” should rely on the lists to update their voter rolls.`\
 https://www.nytimes.com/2026/05/14/us/politics/trump-citizenship-list-voting.html
-
-**Cuba afirma que se agotaron sus reservas de petróleo**\
-`El gobierno cubano lidia con una grave crisis energética debido al colapso de las infraestructuras y la disminución del suministro de Venezuela.`\
-https://www.nytimes.com/es/2026/05/14/espanol/america-latina/cuba-crisis-reservas-petroleo.html
-
-**OpenAI Considers Legal Action Against Apple in Strained Relationship**\
-`The A.I. company, which is in the middle of a court fight with Elon Musk, has been unhappy with how Apple has integrated ChatGPT into its devices.`\
-https://www.nytimes.com/2026/05/14/technology/openai-apple-legal-action.html
 
