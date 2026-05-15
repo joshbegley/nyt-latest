@@ -1,3 +1,15 @@
+**Sanctioned by China, Rubio Enjoys a Trip to Beijing**\
+`There has been rampant speculation online about whether the Chinese government changed the transliteration of Marco Rubio’s name to overlook sanctions. But that theory is wrong.`\
+https://www.nytimes.com/live/2026/05/14/world/trump-xi-summit-beijing/china-rubio-sanctions
+
+**The Sporting Class: Is the N.F.L. Killing the Golden Goose?**\
+`Pablo on what the tech titans of Silicon Valley and the old heads of broadcast TV have in common.`\
+https://www.nytimes.com/2026/05/15/podcasts/the-sporting-class-is-the-nfl-killing-the-golden-goose.html
+
+**Cómo un cártel del narcotráfico convirtió al estado de Sinaloa en su herramienta**\
+`Durante años, una arquitectura invisible de protección dentro de varios niveles del gobierno mexicano permitió que el Cártel de Sinaloa operara a plena vista.`\
+https://www.nytimes.com/es/2026/05/15/espanol/america-latina/mexico-corrupcion-narco-carteles-gobierno.html
+
 **This Is Why I Find Pema Chödrön So Essential**\
 `The 89-year-old Buddhist nun teaches the power of agreeing with your anxiety, instead of trying to run from it.`\
 https://www.nytimes.com/2026/05/15/opinion/ezra-klein-podcast-pema-chodron.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/15/opinion/reese-witherspoon-mel-robbins-girlbos
 **Stop Looking for an ‘Offramp’ in Iran. There’s No Such Thing.**\
 `And no, an exit strategy won’t help you, either.`\
 https://www.nytimes.com/2026/05/15/opinion/iran-war-off-ramp.html
-
-**Joe Sedelmaier Dies at 92; Ad Auteur Behind ‘Where’s the Beef?’**\
-`He directed nearly 1,000 comedic commercials, including a much-quoted spot for Wendy’s and one for FedEx featuring a manic speed talker.`\
-https://www.nytimes.com/2026/05/15/business/media/joe-sedelmaier-dead.html
-
-**Five Free Movies to Stream Now**\
-`This month’s collection, including Richard Linklater’s “Before” trilogy, heralds the blooming of love, and all the turmoil that comes with it.`\
-https://www.nytimes.com/2026/05/15/movies/five-free-movies-to-stream-now.html
-
-**How to Watch the Eurovision Song Contest Final**\
-`The internationally popular event will be available to U.S. viewers, too, although not on domestic TV in some countries that are boycotting this year.`\
-https://www.nytimes.com/2026/05/15/arts/eurovision-final-how-to-watch.html
 
