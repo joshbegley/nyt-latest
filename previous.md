@@ -1,9 +1,21 @@
+**Quote of the Day: With Open Primaries in Retreat, Proponents Argue They Improve Lives**\
+`Quotation of the Day for Friday, May 15, 2026.`\
+https://www.nytimes.com/2026/05/14/pageoneplus/quote-of-the-day-with-open-primaries-in-retreat-proponents-argue-they-improve-lives.html
+
+**The United States and China will start discussing A.I. safety, Bessent says.**\
+``\
+https://www.nytimes.com/live/2026/05/14/world/trump-xi-summit-beijing/china-us-ai-safety
+
+**The Secretive Center of Power Where Trump Is Meeting Xi**\
+`China’s leader, Xi Jinping, was meeting with President Trump on Friday at Zhongnanhai, a heavily guarded Beijing compound where top Chinese officials live and work.`\
+https://www.nytimes.com/2026/05/14/world/asia/trump-xi-summit-china-beijing-zhongnanhai.html
+
 **China Starting to Fulfill ‘Promises,’ U.S. Trade Representative Says**\
 `As President Trump and China’s leader, Xi Jinping, meet, the United States said China has promised to expand its purchases of farm goods and airplanes.`\
 https://www.nytimes.com/2026/05/14/world/asia/trump-china-us-trade.html
 
 **Watch Now: Trump and Xi Meet on Second Day of Summit**\
-`China’s leader, Xi Jinping, and President Trump were set to meet over tea on Friday at a summit in Beijing.`\
+`China’s leader, Xi Jinping, and President Trump meet in Beijing’s Forbidden City on Friday at a summit.`\
 https://www.nytimes.com/video/embedded/world/asia/100000010905581/watch-live-trump-and-xi-meet-on-second-day-of-summit.html
 
 **Play Casually, Say**\
@@ -65,16 +77,4 @@ https://www.nytimes.com/video/opinion/100000010892482/why-china-fears-the-ai-gir
 **China Is Worried About A.I. Too**\
 `What if you weren’t worried about A.I. taking your job? That seems to be closer to the reality in China, where keeping pace with the new technology is a much bigger focus than economic disruption. On “Interesting Times,” Kyle Chan, a foreign policy fellow at the Brookings Institution, explains how the countries differ in their anxieties over artificial intelligence.`\
 https://www.nytimes.com/video/opinion/100000010892470/china-is-worried-about-ai-too.html
-
-**Top U.S. Commander Dismisses Reports of Civilian Deaths in Iran**\
-`Adm. Brad Cooper on Thursday dismissed reports of the U.S.’s role in civilian deaths in Iran. The commander said the U.S. military identified one potential incident involving a school, which Iranian officials said killed 175 people, most of them children. The New York Times has verified that 22 schools and 17 health care facilities were damaged in the war.`\
-https://www.nytimes.com/video/us/politics/100000010904740/civilian-deaths-strikes-iran.html
-
-**Why Trump’s Reflecting Pool Repairs Are in Trouble**\
-`Federal records show that the no-bid contract to repair the Lincoln Memorial Reflecting Pool and paint it blue now costs $13.1 million. That’s about seven times the amount President Trump initially said it would cost.`\
-https://www.nytimes.com/video/us/100000010897413/why-trumps-reflecting-pool-repairs-are-in-trouble.html
-
-**Is Musk Running an Illegal Power Plant? The D.O.J. Says It Might Weigh In.**\
-`In a court filing, the administration signaled support for Elon Musk’s artificial intelligence company in a lawsuit challenging xAI’s generators at a huge Mississippi data center.`\
-https://www.nytimes.com/2026/05/14/climate/elon-musk-xai-data-center-doj.html
 

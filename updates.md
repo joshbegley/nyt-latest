@@ -1,3 +1,19 @@
+**Quote of the Day: With Open Primaries in Retreat, Proponents Argue They Improve Lives**\
+`Quotation of the Day for Friday, May 15, 2026.`\
+https://www.nytimes.com/2026/05/14/pageoneplus/quote-of-the-day-with-open-primaries-in-retreat-proponents-argue-they-improve-lives.html
+
+**The United States and China will start discussing A.I. safety, Bessent says.**\
+``\
+https://www.nytimes.com/live/2026/05/14/world/trump-xi-summit-beijing/china-us-ai-safety
+
+**The Secretive Center of Power Where Trump Is Meeting Xi**\
+`China’s leader, Xi Jinping, was meeting with President Trump on Friday at Zhongnanhai, a heavily guarded Beijing compound where top Chinese officials live and work.`\
+https://www.nytimes.com/2026/05/14/world/asia/trump-xi-summit-china-beijing-zhongnanhai.html
+
+**Watch Now: Trump and Xi Meet on Second Day of Summit**\
+`China’s leader, Xi Jinping, and President Trump meet in Beijing’s Forbidden City on Friday at a summit.`\
+https://www.nytimes.com/video/embedded/world/asia/100000010905581/watch-live-trump-and-xi-meet-on-second-day-of-summit.html
+
 **China Starting to Fulfill ‘Promises,’ U.S. Trade Representative Says**\
 `As President Trump and China’s leader, Xi Jinping, meet, the United States said China has promised to expand its purchases of farm goods and airplanes.`\
 https://www.nytimes.com/2026/05/14/world/asia/trump-china-us-trade.html
