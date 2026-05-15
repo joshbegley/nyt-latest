@@ -1,3 +1,7 @@
+**Viewing the World Through a Wide-Angle Lens**\
+`Zach Caldwell, who manages The New York Times’s team of cinematographers, aims to shift worldviews and shake up perspectives.`\
+https://www.nytimes.com/2026/05/15/insider/zach-caldwell-video-new-york-times.html
+
 **Trump Loyalist Leads Administration’s Hunt for Fraud in Elections**\
 `The loyalist, Dan Bishop, put his fealty to the president on display when he pressed the F.B.I. to chase investigative leads it had already rejected.`\
 https://www.nytimes.com/2026/05/15/us/dan-bishop-election-fraud-trump.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/15/podcasts/ai-safety-is-so-back-mythos-mayhem-w
 ****\
 `Elon Musk took a selfie with the Chinese tech entrepreneur Lei Jun during a state banquet in Beijing on Thursday.`\
 https://www.nytimes.com/video/embedded/world/asia/100000010906090/15vid-musk-china-facemp4-92129.html
-
-**At the Summit**\
-`We wrap up President Trump’s visit to China.`\
-https://www.nytimes.com/2026/05/15/briefing/at-the-trump-xi-summit.html
 
