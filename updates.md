@@ -1,3 +1,15 @@
+**Cornell Blames Students for Confrontation With the School’s President**\
+`After the president bumped into students with his car, an investigation by the university’s trustees said that the students’ actions were “inconsistent with university policies.”`\
+https://www.nytimes.com/2026/05/15/nyregion/cornell-students-confrontation.html
+
+**Trump anuncia ‘fantásticos acuerdos comerciales’ con China, pero da pocos detalles**\
+`El presidente regresa a Estados Unidos tras una cumbre en China, en la que ambos países trataron de estabilizar sus relaciones económicas y políticas.`\
+https://www.nytimes.com/es/2026/05/15/espanol/estados-unidos/trump-china-xi-acuerdos.html
+
+**Justice Dept. Aims to Use Terrorism Laws to Target Mexican Officials**\
+`In a new tactic, the Justice Department this week instructed federal prosecutors to build criminal drug cases against Mexican officials using terrorism statutes.`\
+https://www.nytimes.com/2026/05/15/world/americas/doj-terrorism-charges-mexican-officials.html
+
 **Trump and Xi’s Different Approaches at the Summit**\
 `After President Trump’s meeting in Beijing with China’s leader, Xi Jinping, our reporter David Sanger examines the differences in their body language and style.`\
 https://www.nytimes.com/video/us/100000010905596/trump-and-xis-different-approaches-at-the-summit.html

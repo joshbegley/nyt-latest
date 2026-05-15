@@ -1,3 +1,7 @@
+**How Fights Over West Bank Settlements Are Unfolding at N.Y.C. Synagogues**\
+`Demonstrations outside synagogues have turned real estate sales in Israel and in the occupied territories into a political issue in the city. The protesters’ tactics have disturbed some New Yorkers.`\
+https://www.nytimes.com/2026/05/15/nyregion/west-bank-settlements-protests-nyc.html
+
 **Cornell Blames Students for Confrontation With the School’s President**\
 `After the president bumped into students with his car, an investigation by the university’s trustees said that the students’ actions were “inconsistent with university policies.”`\
 https://www.nytimes.com/2026/05/15/nyregion/cornell-students-confrontation.html
@@ -69,8 +73,4 @@ https://www.nytimes.com/2026/05/15/style/the-audemars-piguet-and-swatch-collab-t
 **Trump’s ‘Learning Curve’ on China Ends With Conciliation at Summit**\
 `The president has shifted the foundations of American policy toward China, throwing aside the adversarial approach of recent years.`\
 https://www.nytimes.com/2026/05/15/world/europe/trump-xi-china-summit.html
-
-**For Xi’s Critics, Summit Spectacle Is Fuel for Jokes They Can’t Tell**\
-`On Threads and other sites, liberal-minded Chinese accounts were mocking the proceedings and offering a rare window into opinions on Xi Jinping and his leadership style.`\
-https://www.nytimes.com/2026/05/15/business/trump-xi-meeting-china-social-media.html
 

@@ -1,3 +1,7 @@
+**Cornell Blames Students for Confrontation With the School’s President**\
+`After the president bumped into students with his car, an investigation by the university’s trustees said that the students’ actions were “inconsistent with university policies.”`\
+https://www.nytimes.com/2026/05/15/nyregion/cornell-students-confrontation.html
+
 **Trump and Xi’s Different Approaches at the Summit**\
 `After President Trump’s meeting in Beijing with China’s leader, Xi Jinping, our reporter David Sanger examines the differences in their body language and style.`\
 https://www.nytimes.com/video/us/100000010905596/trump-and-xis-different-approaches-at-the-summit.html
@@ -26,7 +30,7 @@ https://www.nytimes.com/es/2026/05/15/espanol/estados-unidos/green-card-residenc
 `Mohammad Baqer Saad Dawood Al-Saadi is accused of directing and urging others to attack American and Israeli interests. Prosecutors say he is a leader of Kataib Hezbollah, an Iraqi militia with ties to Iran.`\
 https://www.nytimes.com/2026/05/15/nyregion/hezbollah-arrest-nyc-jewish-targets.html
 
-**Trump anuncia ‘fantásticos acuerdos comerciales’ con China, pero no da detalles**\
+**Trump anuncia ‘fantásticos acuerdos comerciales’ con China, pero da pocos detalles**\
 `El presidente regresa a Estados Unidos tras una cumbre en China, en la que ambos países trataron de estabilizar sus relaciones económicas y políticas.`\
 https://www.nytimes.com/es/2026/05/15/espanol/estados-unidos/trump-china-xi-acuerdos.html
 
@@ -51,7 +55,7 @@ https://www.nytimes.com/interactive/2026/05/15/upshot/flashback.html
 https://www.nytimes.com/2026/05/15/us/politics/iran-war-powers-congress.html
 
 **Justice Dept. Aims to Use Terrorism Laws to Target Mexican Officials**\
-`The Justice Department this week instructed federal prosecutors to build criminal drug cases against Mexican officials using new terrorism statutes.`\
+`In a new tactic, the Justice Department this week instructed federal prosecutors to build criminal drug cases against Mexican officials using terrorism statutes.`\
 https://www.nytimes.com/2026/05/15/world/americas/doj-terrorism-charges-mexican-officials.html
 
 **German Chancellor, After Iran Spat With Trump, Reports ‘Good’ Phone Call**\
@@ -69,8 +73,4 @@ https://www.nytimes.com/2026/05/15/world/europe/trump-xi-china-summit.html
 **For Xi’s Critics, Summit Spectacle Is Fuel for Jokes They Can’t Tell**\
 `On Threads and other sites, liberal-minded Chinese accounts were mocking the proceedings and offering a rare window into opinions on Xi Jinping and his leadership style.`\
 https://www.nytimes.com/2026/05/15/business/trump-xi-meeting-china-social-media.html
-
-**Review: Frida Kahlo and Diego Rivera, Reunited on the Opera Stage**\
-`“El Último Sueño de Frida y Diego,” Gabriela Lena Frank and Nilo Cruz’s fantasy about two titans of Mexican art, arrives at the Metropolitan Opera.`\
-https://www.nytimes.com/2026/05/15/arts/music/frida-and-diego-met-opera-review.html
 
