@@ -1,3 +1,7 @@
+**Nvidia’s Future in China Remains Unclear After Trump-Xi Summit**\
+`The standoff comes as Chinese firms increasingly turn to domestic chipmakers like Huawei, in a drive to reduce China’s dependence on Western technologies.`\
+https://www.nytimes.com/live/2026/05/14/world/trump-xi-summit-beijing/nvidia-china-chips
+
 **Word of the Day: fallible**\
 `This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/05/15/learning/word-of-the-day-fallible.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/14/world/asia/trump-china-us-trade.html
 **Watch Live: Trump Leaves Beijing as Summit Ends**\
 `President Trump departing Beijing after his summit with China’s leader, Xi Jinping, on Friday.`\
 https://www.nytimes.com/video/embedded/world/asia/100000010905581/watch-live-trump-and-xi-meet-on-second-day-of-summit.html
-
-**Play Casually, Say**\
-`Maddy Ziegler’s second themeless is an instant hit.`\
-https://www.nytimes.com/2026/05/14/crosswords/daily-puzzle-2026-05-15.html
 
