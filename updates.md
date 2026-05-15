@@ -1,3 +1,11 @@
+**La vida en el hotel congoleño donde permanecen 15 migrantes deportados por Trump**\
+`Fueron retenidos y enviados a Kinsasa por el gobierno de Trump. Ahora se enfrentan a una peligrosa elección: volver a Latinoamérica o quedarse en África.`\
+https://www.nytimes.com/es/2026/05/15/espanol/mundo/deportados-trump-congo.html
+
+**The United States and China will start discussing A.I. safety, Bessent says.**\
+``\
+https://www.nytimes.com/2026/05/14/world/asia/china-us-ai-safety.html
+
 **5 Key Moments During the California Governor Debate**\
 `Candidates have become increasingly combative as they enter the final stretch before the June 2 primary. Once again, Xavier Becerra, a Democratic front-runner, drew most of the attacks.`\
 https://www.nytimes.com/2026/05/15/us/california-governor-debate-takeaways-san-francisco.html
