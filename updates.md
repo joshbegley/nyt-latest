@@ -1,3 +1,19 @@
+**With Possible Raúl Castro Indictment, U.S. Eyes Venezuela Playbook**\
+`Amid stepped-up surveillance flights, a visit of the C.I.A. director and an energy embargo, the White House is trying to increase pressure on Cuba.`\
+https://www.nytimes.com/2026/05/15/us/politics/trump-cuba-pressue-castro.html
+
+**Tina Peters, Colorado Election Denier, Will Be Freed by Governor**\
+`Gov. Jared Polis, a Democrat, commuted the sentence of Ms. Peters, a former county clerk serving a nine-year sentence for her role in a plot to examine voting machines after the 2020 election.`\
+https://www.nytimes.com/2026/05/15/us/politics/tina-peters-colorado-trump-polis.html
+
+**Navy Aircraft Carrier to Complete Longest Deployment Since Vietnam**\
+`After being diverted for combat with Venezuela and Iran, the U.S.S. Gerald R. Ford will return to Norfolk, Va., on Saturday after nearly a year at sea.`\
+https://www.nytimes.com/2026/05/15/us/uss-ford-long-deployment.html
+
+**A Nation Going Dark**\
+`The United States has choked off Cuba’s fuel supply, plunging the already impoverished island into an acute energy crisis.`\
+https://www.nytimes.com/2026/05/15/world/americas/cuba-energy-crisis-photos.html
+
 **Falling Chunks of Debris Are Endangering Drivers on a Busy N.Y.C. Road**\
 `After two incidents, crews made repairs and installed protective netting on the Trans-Manhattan Expressway, which leads to the George Washington Bridge.`\
 https://www.nytimes.com/2026/05/15/nyregion/nyc-highway-debris-falling.html
