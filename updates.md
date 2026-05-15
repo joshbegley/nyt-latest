@@ -1,3 +1,11 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/15/crosswords/spelling-bee-forum.html
+
+**Phones and Conversation**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://www.nytimes.com/2026/05/15/learning/phones-and-conversation.html
+
 **Nvidia’s Future in China Remains Unclear After Trump-Xi Summit**\
 `The standoff comes as Chinese firms increasingly turn to domestic chipmakers like Huawei, in a drive to reduce China’s dependence on Western technologies.`\
 https://www.nytimes.com/2026/05/15/world/asia/nvidia-china-chips.html
