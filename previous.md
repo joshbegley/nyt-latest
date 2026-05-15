@@ -1,3 +1,7 @@
+**China Starting to Fulfill ‘Promises,’ U.S. Trade Representative Says**\
+`As President Trump and China’s leader, Xi Jinping, meet, the United States said China has promised to expand its purchases of farm goods and airplanes.`\
+https://www.nytimes.com/2026/05/14/world/asia/trump-china-us-trade.html
+
 **Watch Now: Trump and Xi Meet on Second Day of Summit**\
 `China’s leader, Xi Jinping, and President Trump were set to meet over tea on Friday at a summit in Beijing.`\
 https://www.nytimes.com/video/embedded/world/asia/100000010905581/watch-live-trump-and-xi-meet-on-second-day-of-summit.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/us/100000010897413/why-trumps-reflecting-pool-repa
 **Is Musk Running an Illegal Power Plant? The D.O.J. Says It Might Weigh In.**\
 `In a court filing, the administration signaled support for Elon Musk’s artificial intelligence company in a lawsuit challenging xAI’s generators at a huge Mississippi data center.`\
 https://www.nytimes.com/2026/05/14/climate/elon-musk-xai-data-center-doj.html
-
-**Two Killed After Small Plane Crashes Into House in Ohio**\
-`On Thursday, two people were killed after a small plane crashed into a house on a suburban street in Akron, Ohio, and caught fire.`\
-https://www.nytimes.com/video/us/100000010905383/two-killed-small-plane-crash-ohio.html
 

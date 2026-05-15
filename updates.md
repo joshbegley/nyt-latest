@@ -1,3 +1,7 @@
+**China Starting to Fulfill ‘Promises,’ U.S. Trade Representative Says**\
+`As President Trump and China’s leader, Xi Jinping, meet, the United States said China has promised to expand its purchases of farm goods and airplanes.`\
+https://www.nytimes.com/2026/05/14/world/asia/trump-china-us-trade.html
+
 **Watch Now: Trump and Xi Meet on Second Day of Summit**\
 `China’s leader, Xi Jinping, and President Trump were set to meet over tea on Friday at a summit in Beijing.`\
 https://www.nytimes.com/video/embedded/world/asia/100000010905581/watch-live-trump-and-xi-meet-on-second-day-of-summit.html
