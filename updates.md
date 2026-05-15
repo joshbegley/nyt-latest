@@ -1,3 +1,7 @@
+**Republicans Redrew His District. Now This Democratic Stalwart Is Out.**\
+`Representative Steve Cohen has represented Memphis since 2007. After Republicans redistricted his seat, he is leaving the field, possibly to his young rival, Justin J. Pearson.`\
+https://www.nytimes.com/2026/05/15/us/elections/steve-cohen-retires-tennessee.html
+
 **El Departamento de Justicia de EE. UU. busca usar leyes sobre terrorismo para perseguir a funcionarios mexicanos**\
 `Esta semana, la agencia federal estadounidense dio instrucciones a los fiscales para que comiencen a establecer causas penales por narcotráfico contra funcionarios mexicanos usando nuevos estatutos sobre terrorismo.`\
 https://www.nytimes.com/es/2026/05/15/espanol/america-latina/mexico-ee-uu-gobierno-narco-terrorismo.html

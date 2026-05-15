@@ -58,8 +58,8 @@ https://www.nytimes.com/video/us/100000010905596/trump-and-xis-different-approac
 `This was the third time Harvey Weinstein was on trial accused of raping an aspiring actress at a hotel in Manhattan in 2013.`\
 https://www.nytimes.com/2026/05/15/nyregion/harvey-weinstein-hung-jury-mistrial.html
 
-**With Memphis District Gone, Another Democratic Mainstay Retires**\
-`Representative Steve Cohen, a Democrat who has represented Memphis since 2007, leaving the field possibly to his young rival, Justin J. Pearson, after Republicans redistrict his seat.`\
+**Republicans Redrew His District. Now This Democratic Stalwart Is Out.**\
+`Representative Steve Cohen has represented Memphis since 2007. After Republicans redistricted his seat, he is leaving the field, possibly to his young rival, Justin J. Pearson.`\
 https://www.nytimes.com/2026/05/15/us/elections/steve-cohen-retires-tennessee.html
 
 **Executions Surge in Iran Since Cease-fire, Rights Groups Say**\
