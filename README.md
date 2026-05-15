@@ -1,3 +1,11 @@
+**Viewing the World Through a Wide-Angle Lens**\
+`Zach Caldwell, who manages The New York Times’s team of cinematographers, aims to shift worldviews and shake up perspectives.`\
+https://www.nytimes.com/2026/05/15/insider/zach-caldwell-video-new-york-times.html
+
+**Mothers and Daughters: Two Stories**\
+`Responses to a guest essay by Molly Jong-Fast, “I Tried to Become My Mother and Ended Up Becoming Myself.” Also: President Trump in China; a gift to Big Tobacco.`\
+https://www.nytimes.com/2026/05/15/opinion/mothers-daughters.html
+
 **Explosion at Maine Lumber Mill Draws Large Emergency Response**\
 `Footage from the scene showed flames burning through the roof of a large structure as heavy, dark smoke billowed skyward.`\
 https://www.nytimes.com/2026/05/15/us/maine-searsmont-explosion-fire-lumber-mill.html
@@ -10,7 +18,7 @@ https://www.nytimes.com/video/podcasts/100000010906697/the-devil-wears-prada-2-a
 `Demonstrations outside synagogues have turned real estate sales in Israel and in the occupied territories into a political issue in the city. The protesters’ tactics have disturbed some New Yorkers.`\
 https://www.nytimes.com/2026/05/15/nyregion/west-bank-settlements-protests-nyc.html
 
-**Cornell Blames Students for Confrontation With the School’s President**\
+**Cornell Criticizes Students After Its President Bumps Them With His Car**\
 `After the president bumped into students with his car, an investigation by the university’s trustees said that the students’ actions were “inconsistent with university policies.”`\
 https://www.nytimes.com/2026/05/15/nyregion/cornell-students-confrontation.html
 
@@ -65,12 +73,4 @@ https://www.nytimes.com/interactive/2026/05/15/upshot/flashback.html
 **Republicans Waited to Challenge Trump on the Iran War. Now It May Be Too Late.**\
 `Having deferred to the president for months, G.O.P. lawmakers missed crucial milestones to try to limit his war powers. That has tied their hands in seeking parameters and exit criteria.`\
 https://www.nytimes.com/2026/05/15/us/politics/iran-war-powers-congress.html
-
-**Justice Dept. Aims to Use Terrorism Laws to Target Mexican Officials**\
-`In a new tactic, the Justice Department this week instructed federal prosecutors to build criminal drug cases against Mexican officials using terrorism statutes.`\
-https://www.nytimes.com/2026/05/15/world/americas/doj-terrorism-charges-mexican-officials.html
-
-**German Chancellor, After Iran Spat With Trump, Reports ‘Good’ Phone Call**\
-`The call, initiated by Friedrich Merz, came soon after he told young people, “I am a great admirer of America. My admiration is not increasing at the moment.”`\
-https://www.nytimes.com/2026/05/15/world/europe/merz-trump-germany-us.html
 
