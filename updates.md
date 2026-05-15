@@ -1,3 +1,7 @@
+**For Xi’s Critics, Summit Spectacle Is Fuel for Jokes They Can’t Tell**\
+`On Threads and other sites, liberal-minded Chinese accounts were mocking the proceedings and offering a rare window into opinions on Xi Jinping and his leadership style.`\
+https://www.nytimes.com/2026/05/15/business/trump-xi-meeting-china-social-media.html
+
 **Trump’s ‘Learning Curve’ on China Ends With Conciliation at Summit**\
 `The president has shifted the foundations of American policy toward China, throwing aside the adversarial approach of recent years.`\
 https://www.nytimes.com/2026/05/15/world/europe/trump-xi-china-summit.html
