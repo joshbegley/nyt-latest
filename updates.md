@@ -1,3 +1,19 @@
+**Michigan Battles Trump Over His Order to Keep an Old Coal Plant Running**\
+`The Trump administration broke the law, Michigan and others told a court, by declaring an “energy emergency” and forcing an aging coal-burning plant to keep operating.`\
+https://www.nytimes.com/2026/05/15/climate/michigan-coal-plant-trump.html
+
+**A ‘Man With No Country,’ Cassidy Fights for Political Future**\
+`Senator Bill Cassidy, targeted by President Trump, is walking a political tightrope as he battles other Republicans for the chance to seek a third term.`\
+https://www.nytimes.com/2026/05/15/us/politics/senator-bill-cassidy-louisiana-primary.html
+
+**Back From China, Trump Faces Decision on Whether to Resume Strikes on Iran**\
+`Top aides have drafted battle plans as peace negotiations have stalled.`\
+https://www.nytimes.com/2026/05/15/us/politics/trump-iran.html
+
+**Militia Commander Tied to Iran Plotted Attacks in U.S., Prosecutors Say**\
+`Mohammad Baqer Saad Dawood Al-Saadi is accused of leading attacks in Europe and being part of a retaliation campaign by Iran. Prosecutors say he is a leader of Kataib Hezbollah, an Iraqi militia with ties to Iran.`\
+https://www.nytimes.com/2026/05/15/nyregion/hezbollah-arrest-nyc-jewish-targets.html
+
 **Viewing the World Through a Wide-Angle Lens**\
 `Zach Caldwell, who manages The New York Times’s team of cinematographers, aims to shift worldviews and shake up perspectives.`\
 https://www.nytimes.com/2026/05/15/insider/zach-caldwell-video-new-york-times.html
