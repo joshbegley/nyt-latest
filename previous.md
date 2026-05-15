@@ -1,3 +1,11 @@
+**36 Hours to Air: Inside the Scramble to Film ‘S.N.L.’ Shorts**\
+`A rare glimpse behind the scenes reveals a frenetic process that has been refined across decades.`\
+https://www.nytimes.com/interactive/2026/05/15/arts/television/saturday-night-live-shorts-filming-process.html
+
+**Read the complaint filed against a top militia commander linked to Iran.**\
+`A commander of an Iraqi militia has been charged with plotting to attack Jewish sites in the United States, including a synagogue in New York, and carrying out attacks in Europe as part of a broader campaign of retaliation by Iran since the war began in February.`\
+https://www.nytimes.com/interactive/2026/05/15/nyregion/al-saadi-complaint.html
+
 **Michigan Battles Trump Over His Order to Keep an Old Coal Plant Running**\
 `The Trump administration broke the law, Michigan and others told a court, by declaring an “energy emergency” and forcing an aging coal-burning plant to keep operating.`\
 https://www.nytimes.com/2026/05/15/climate/michigan-coal-plant-trump.html
@@ -69,8 +77,4 @@ https://www.nytimes.com/es/2026/05/15/espanol/estados-unidos/trump-china-xi-acue
 **What Trump’s Magic Math Costs You**\
 `Trump is attacking the data that helps Americans understand reality itself. In this video from Times Opinion, we examine how his war on numbers follows a familiar authoritarian playbook.`\
 https://www.nytimes.com/video/opinion/100000010887197/what-trumps-magic-math-costs-you.html
-
-**Five Italians Die While Scuba Diving Deep Caves in the Maldives**\
-`The divers, including a marine scientist and her daughter, were part of a research trip and were exploring an underwater cave system when they failed to resurface.`\
-https://www.nytimes.com/2026/05/15/world/asia/maldives-diving-italians.html
 
