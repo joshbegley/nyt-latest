@@ -1,3 +1,7 @@
+**Watch Now: Trump and Xi Meet on Second Day of Summit**\
+`China’s leader, Xi Jinping, and President Trump were set to meet over tea on Friday at a summit in Beijing.`\
+https://www.nytimes.com/video/embedded/world/asia/100000010905581/watch-live-trump-and-xi-meet-on-second-day-of-summit.html
+
 **Watch Live: Trump and Xi Meet on Second Day of Summit**\
 `China’s leader, Xi Jinping, and President Trump have a bilateral meeting over tea and take part in a photo opportunity on the second day of a summit in Beijing.`\
 https://www.nytimes.com/video/embedded/world/asia/100000010905581/watch-live-trump-and-xi-meet-on-second-day-of-summit.html
