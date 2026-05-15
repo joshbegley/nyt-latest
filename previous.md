@@ -1,3 +1,7 @@
+**Trump Touts ‘Fantastic Trade Deals’ With China, but Details Are Scarce**\
+`The president left Beijing following a summit with China, during which the two countries sought to stabilize their economic and political relations.`\
+https://www.nytimes.com/2026/05/15/business/economy/trump-china-deals.html
+
 **Delivering Mail on Ukraine’s Front Line**\
 `Larysa Navrotska risks her life to deliver mail, retirement checks and medicine to remote Ukrainian communities under the constant threat of Russian drones from the nearby front line. Her service has become even more crucial than it was before the war.`\
 https://www.nytimes.com/video/world/europe/100000010847527/delivering-mail-on-ukraines-front-line.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/15/movies/new-movies-this-week-critics.html
 **​Want to Know What Is Going to Happen in the Midterms? So Does Amy Walter. ​**\
 `Two powerful forces in politics clash.`\
 https://www.nytimes.com/2026/05/15/opinion/supreme-court-redistricting.html
-
-**This Is Why I Find Pema Chödrön So Essential**\
-`The 89-year-old Buddhist nun teaches the power of agreeing with your anxiety, instead of trying to run from it.`\
-https://www.nytimes.com/video/opinion/100000010899063/this-is-why-i-find-pema-chodron-so-essential.html
 

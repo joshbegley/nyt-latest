@@ -1,3 +1,7 @@
+**Trump Touts ‘Fantastic Trade Deals’ With China, but Details Are Scarce**\
+`The president left Beijing following a summit with China, during which the two countries sought to stabilize their economic and political relations.`\
+https://www.nytimes.com/2026/05/15/business/economy/trump-china-deals.html
+
 **Delivering Mail on Ukraine’s Front Line**\
 `Larysa Navrotska risks her life to deliver mail, retirement checks and medicine to remote Ukrainian communities under the constant threat of Russian drones from the nearby front line. Her service has become even more crucial than it was before the war.`\
 https://www.nytimes.com/video/world/europe/100000010847527/delivering-mail-on-ukraines-front-line.html
