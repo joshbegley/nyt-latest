@@ -1,3 +1,7 @@
+**Five Italians Die While Scuba Diving Deep Caves in the Maldives**\
+`The divers, including a marine scientist and her daughter, were part of a research trip and were exploring an underwater cave system when they failed to resurface.`\
+https://www.nytimes.com/2026/05/15/world/asia/maldives-diving-italians.html
+
 **Men’s Fashion’s Big Idea? Muscles.**\
 `T Magazine’s Editor at Large Nick Haramis breaks down men’s fashion’s ongoing obsession with a chiseled physique.`\
 https://www.nytimes.com/video/t-magazine/100000010901620/mens-fashions-big-idea-muscles.html
@@ -69,8 +73,4 @@ https://www.nytimes.com/2026/05/15/health/medicare-cbd.html
 **Large Ebola Outbreak Is Declared in Congo**\
 `Dozens of deaths and hundreds of infections are suspected, an African agency said. Health experts were alarmed that the outbreak hadn’t been announced sooner.`\
 https://www.nytimes.com/2026/05/15/world/africa/congo-ebola-outbreak.html
-
-**I Want to Go Where Nature Is Winning**\
-`Read our travel expert’s answers to this and other questions from readers about where they should spend time this summer.`\
-https://www.nytimes.com/2026/05/15/t-magazine/summer-travel-holiday-advice-ideas.html
 

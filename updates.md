@@ -1,3 +1,7 @@
+**Five Italians Die While Scuba Diving Deep Caves in the Maldives**\
+`The divers, including a marine scientist and her daughter, were part of a research trip and were exploring an underwater cave system when they failed to resurface.`\
+https://www.nytimes.com/2026/05/15/world/asia/maldives-diving-italians.html
+
 **Washington National Opera Builds a New Chapter After Kennedy Center**\
 `The company announced that its next season would include a slate of five full-length operas at houses around the Washington area.`\
 https://www.nytimes.com/2026/05/15/arts/music/washington-opera-new-season-post-kennedy-center.html
