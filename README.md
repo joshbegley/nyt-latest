@@ -1,3 +1,11 @@
+**Las ambiciones de Trump chocan con el pragmatismo de Xi**\
+`A pesar de los problemas de China —deflación, despoblación, la burbuja inmobiliaria—, Xi dejó claro que había llegado el momento de que su país actuara como una superpotencia.`\
+https://www.nytimes.com/es/2026/05/14/espanol/mundo/trump-xi-china-estados-unidos.html
+
+**Dallas Asks Its Residents: What Should We Do With City Hall?**\
+`Faced with a billion-dollar repair bill and a desire to find a new arena for the Mavericks, the city is considering options that include demolishing the building. Residents submitted their own ideas.`\
+https://www.nytimes.com/2026/05/14/us/dallas-city-hall-mavericks-submissions.html
+
 **A Stolen Charity or Sour Grapes? Musk’s OpenAI Suit Is in Jury’s Hands.**\
 `Lawyers for Elon Musk and OpenAI made their closing arguments in the blockbuster federal trial on Thursday. Nine jurors are set to begin deliberations next week.`\
 https://www.nytimes.com/2026/05/14/technology/openai-trial-elon-musk-sam-altman.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/14/nyregion/nyu-graduation-turbulent.html
 **Justices Allow Abortion Pill Access by Mail to Continue**\
 `Also, this is a big week for the art market. Here’s the latest at the end of Thursday.`\
 https://www.nytimes.com/2026/05/14/briefing/supreme-court-abortion-pills.html
-
-**Supreme Court Allows Abortion Pill Access by Mail to Continue**\
-`A federal appeals court ruling against the Food and Drug Administration would have restricted access by mail to mifepristone.`\
-https://www.nytimes.com/2026/05/14/us/politics/supreme-court-abortion-pill.html
-
-**Can a Windbreaker Be Fashionable?**\
-`Whether it’s a little breezy or downright blustery outside, any of these jackets will serve you well this spring.`\
-https://www.nytimes.com/2026/05/14/t-magazine/windbreaker-jacket-fashion.html
 
