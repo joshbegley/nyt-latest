@@ -1,3 +1,11 @@
+**Hospital Will Open First ‘Detransition’ Clinic in Legal Settlement With Texas**\
+`Texas Children’s Hospital was under investigation for billing practices on gender-transition treatments. The settlement was expected to end that inquiry.`\
+https://www.nytimes.com/2026/05/15/us/detransition-transgender-clinic.html
+
+**Clavicular Strikes Plea Deal With Prosecutors After Alligator Shooting**\
+`The social media personality pleaded no contest and was sentenced to six months of probation. The deal allows him to avoid jail time.`\
+https://www.nytimes.com/2026/05/15/us/clavicular-plea-deal-alligator-shooting.html
+
 **Smithsonian Adds Back Impeachment Language to Label on Trump Portrait**\
 `The language had been removed from wall text in the National Portrait Gallery, but it’s back as the museum unveiled changes to its exhibition on U.S. presidents.`\
 https://www.nytimes.com/2026/05/15/arts/design/trump-impeachment-smithsonian-national-portrait-gallery.html
