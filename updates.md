@@ -1,3 +1,7 @@
+**A Stolen Charity or Sour Grapes? Musk’s OpenAI Suit Is in Jury’s Hands.**\
+`Lawyers for Elon Musk and OpenAI made their closing arguments in the blockbuster federal trial on Thursday. Nine jurors are set to begin deliberations next week.`\
+https://www.nytimes.com/2026/05/14/technology/openai-trial-elon-musk-sam-altman.html
+
 **Spat On, Egged, Threatened: Australian Jews Testify on Experiences of Antisemitism**\
 `As part of a public inquiry into the massacre at Bondi Beach, dozens have described being targeted for their Jewish identity in their daily lives.`\
 https://www.nytimes.com/2026/05/14/world/australia/jews-antisemitism-bondi-beach.html

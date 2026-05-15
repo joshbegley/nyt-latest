@@ -1,3 +1,7 @@
+**A Stolen Charity or Sour Grapes? Musk’s OpenAI Suit Is in Jury’s Hands.**\
+`Lawyers for Elon Musk and OpenAI made their closing arguments in the blockbuster federal trial on Thursday. Nine jurors are set to begin deliberations next week.`\
+https://www.nytimes.com/2026/05/14/technology/openai-trial-elon-musk-sam-altman.html
+
 **Spat On, Egged, Threatened: Australian Jews Testify on Experiences of Antisemitism**\
 `As part of a public inquiry into the massacre at Bondi Beach, dozens have described being targeted for their Jewish identity in their daily lives.`\
 https://www.nytimes.com/2026/05/14/world/australia/jews-antisemitism-bondi-beach.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/14/us/politics/supreme-court-abortion-pill.html
 **Can a Windbreaker Be Fashionable?**\
 `Whether it’s a little breezy or downright blustery outside, any of these jackets will serve you well this spring.`\
 https://www.nytimes.com/2026/05/14/t-magazine/windbreaker-jacket-fashion.html
-
-**Plane Crashes Into House in Ohio, Killing 2**\
-`No one on the ground was hurt when a small plane crashed into a house on a residential street south of downtown Akron, the authorities said.`\
-https://www.nytimes.com/2026/05/14/us/akron-ohio-plane-crash.html
 
