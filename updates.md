@@ -1,3 +1,11 @@
+**Play Casually, Say**\
+`Maddy Ziegler’s second themeless is an instant hit.`\
+https://www.nytimes.com/2026/05/14/crosswords/daily-puzzle-2026-05-15.html
+
+**Former Oklahoma Death Row Prisoner Freed Before Retrial in a 1997 Killing**\
+`A lawyer for Richard Glossip said the ruling provided a step forward in his client’s efforts to escape a “decades-long nightmare” in a case that has faced substantial criticism.`\
+https://www.nytimes.com/2026/05/14/us/richard-glossip-release-death-row-bond.html
+
 **Man Charged With Posting Bomb Instructions Used in New Orleans Attack**\
 `The man, a former Army engineer, was accused of posting videos showing how to make explosives. Authorities said those videos were used by the man who carried out a deadly attack in New Orleans last year.`\
 https://www.nytimes.com/2026/05/14/us/man-charged-bomb-instructions-new-orleans-attack.html

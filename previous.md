@@ -1,3 +1,11 @@
+**Play Casually, Say**\
+`Maddy Ziegler’s second themeless is an instant hit.`\
+https://www.nytimes.com/2026/05/14/crosswords/daily-puzzle-2026-05-15.html
+
+**Former Oklahoma Death Row Prisoner Freed Before Retrial in a 1997 Killing**\
+`A lawyer for Richard Glossip said the ruling provided a step forward in his client’s efforts to escape a “decades-long nightmare” in a case that has faced substantial criticism.`\
+https://www.nytimes.com/2026/05/14/us/richard-glossip-release-death-row-bond.html
+
 **Man Charged With Posting Bomb Instructions Used in New Orleans Attack**\
 `The man, a former Army engineer, was accused of posting videos showing how to make explosives. Authorities said those videos were used by the man who carried out a deadly attack in New Orleans last year.`\
 https://www.nytimes.com/2026/05/14/us/man-charged-bomb-instructions-new-orleans-attack.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/video/us/100000010905383/two-killed-small-plane-crash-oh
 **What the jury must weigh to decide the case.**\
 ``\
 https://www.nytimes.com/live/2026/05/14/technology/openai-trial-sam-altman-elon-musk/what-the-jury-must-weigh-to-decide-the-case
-
-**Vance Blames Democrats as U.S. Halts Some Medicaid Payments, Claiming Fraud**\
-`Vice President JD Vance traveled to Maine for a speech, making a midterm election pitch that only Republicans could root out fraud in public benefits.`\
-https://www.nytimes.com/2026/05/14/us/politics/medicaid-fraud-vance-republicans-maine.html
-
-**El director de la CIA viaja a Cuba mientras EE. UU. intensifica la presión a la isla**\
-`John Ratcliffe, director de la CIA, es el funcionario de más alto rango del gobierno de Trump que ha visitado el país.`\
-https://www.nytimes.com/es/2026/05/14/espanol/estados-unidos/cia-cuba.html
 
