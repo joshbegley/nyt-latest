@@ -1,3 +1,11 @@
+**Delivering Mail on Ukraine’s Front Line**\
+`Larysa Navrotska risks her life to deliver mail, retirement checks and medicine to remote Ukrainian communities under the constant threat of Russian drones from the nearby front line. Her service has become even more crucial than it was before the war.`\
+https://www.nytimes.com/video/world/europe/100000010847527/delivering-mail-on-ukraines-front-line.html
+
+**Palabra del día: ‘fallible’**\
+`Esta palabra ha aparecido en 31 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/05/15/espanol/que-significa-fallible.html
+
 **Sanctioned by China, Rubio Enjoys a Trip to Beijing**\
 `There has been rampant speculation online about whether the Chinese government changed the transliteration of Marco Rubio’s name to overlook sanctions. But that theory is wrong.`\
 https://www.nytimes.com/2026/05/15/world/asia/china-rubio-sanctions.html
