@@ -1,6 +1,6 @@
 **Sanctioned by China, Rubio Enjoys a Trip to Beijing**\
 `There has been rampant speculation online about whether the Chinese government changed the transliteration of Marco Rubio’s name to overlook sanctions. But that theory is wrong.`\
-https://www.nytimes.com/live/2026/05/14/world/trump-xi-summit-beijing/china-rubio-sanctions
+https://www.nytimes.com/2026/05/15/world/asia/china-rubio-sanctions.html
 
 **The Sporting Class: Is the N.F.L. Killing the Golden Goose?**\
 `Pablo on what the tech titans of Silicon Valley and the old heads of broadcast TV have in common.`\
