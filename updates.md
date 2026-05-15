@@ -1,3 +1,15 @@
+**Matt Dillon, the Actor and Artist, on His Favorite Artwork**\
+`The actor and artist Matt Dillon discusses his favorite artwork, Robert Rauschenberg’s “Erased de Kooning Drawing” (1953).`\
+https://www.nytimes.com/video/t-magazine/100000010899634/matt-dillon-the-actor-and-artist-on-his-favorite-artwork.html
+
+**With Drag Queens and Subway Chats, Candidates Vie for Key House Seats**\
+`Nancy Pelosi and Jerrold Nadler are retiring, sparking fierce fights in San Francisco and Manhattan to succeed them. Whoever wins their seats could tap big donors and shape the Democratic Party.`\
+https://www.nytimes.com/2026/05/15/us/house-candidates-democrats-pelosi-nadler.html
+
+**Trump Discussed U.S. Arms Sales With Xi ‘In Great Detail’**\
+`The engagement between the president and the Chinese leader may have tested a decades-old U.S. assurance to Taiwan not to consult Beijing on the topic.`\
+https://www.nytimes.com/2026/05/15/world/asia/trump-china-arms-sales.html
+
 **Viewing the World Through a Wide-Angle Lens**\
 `Zach Caldwell, who manages The New York Times’s team of cinematographers, aims to shift worldviews and shake up perspectives.`\
 https://www.nytimes.com/2026/05/15/insider/zach-caldwell-video-new-york-times.html
