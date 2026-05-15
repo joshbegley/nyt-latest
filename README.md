@@ -1,3 +1,7 @@
+**With Possible Raúl Castro Indictment, U.S. Eyes Venezuela Playbook**\
+`Amid stepped-up surveillance flights, a visit of the C.I.A. director and an energy embargo, the White House is trying to increase pressure on Cuba.`\
+https://www.nytimes.com/2026/05/15/us/politics/trump-cuba-pressue-castro.html
+
 **Tina Peters, Colorado Election Denier, Will Be Freed by Governor**\
 `Gov. Jared Polis, a Democrat, commuted the sentence of Ms. Peters, a former county clerk serving a nine-year sentence for her role in a plot to examine voting machines after the 2020 election.`\
 https://www.nytimes.com/2026/05/15/us/politics/tina-peters-colorado-trump-polis.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/05/15/arts/television/saturday-night-li
 **Read the complaint filed against a top militia commander linked to Iran.**\
 `A commander of an Iraqi militia has been charged with plotting to attack Jewish sites in the United States, including a synagogue in New York, and carrying out attacks in Europe as part of a broader campaign of retaliation by Iran since the war began in February.`\
 https://www.nytimes.com/interactive/2026/05/15/nyregion/al-saadi-complaint.html
-
-**Michigan Battles Trump Over His Order to Keep an Old Coal Plant Running**\
-`The Trump administration broke the law, Michigan and others told a court, by declaring an “energy emergency” and forcing an aging coal-burning plant to keep operating.`\
-https://www.nytimes.com/2026/05/15/climate/michigan-coal-plant-trump.html
 
