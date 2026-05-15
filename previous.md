@@ -1,3 +1,7 @@
+**‘No Essay’ College Scholarships May Have Unseen Strings Attached**\
+`Unlike traditional financial aid, the prizes are awarded by random drawings. The websites, in turn, gain access to applicants’ personal information.`\
+https://www.nytimes.com/2026/05/15/your-money/no-essay-college-scholarships.html
+
 ****\
 ``\
 https://www.nytimes.com/video/embedded/world/asia/100000010906158/15vid-trump-plane-1035.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/15/business/economy/trump-china-deals.html
 **Delivering Mail on Ukraine’s Front Line**\
 `Larysa Navrotska risks her life to deliver mail, retirement checks and medicine to remote Ukrainian communities under the constant threat of Russian drones from the nearby front line. Her service has become even more crucial than it was before the war.`\
 https://www.nytimes.com/video/world/europe/100000010847527/delivering-mail-on-ukraines-front-line.html
-
-**Palabra del día: ‘fallible’**\
-`Esta palabra ha aparecido en 31 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
-https://www.nytimes.com/es/2026/05/15/espanol/que-significa-fallible.html
 

@@ -1,3 +1,7 @@
+**‘No Essay’ College Scholarships May Have Unseen Strings Attached**\
+`Unlike traditional financial aid, the prizes are awarded by random drawings. The websites, in turn, gain access to applicants’ personal information.`\
+https://www.nytimes.com/2026/05/15/your-money/no-essay-college-scholarships.html
+
 ****\
 ``\
 https://www.nytimes.com/video/embedded/world/asia/100000010906158/15vid-trump-plane-1035.html
