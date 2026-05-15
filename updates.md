@@ -1,3 +1,11 @@
+**Un monumento al chocolate envuelto en capas de historia mexicana**\
+`Combinando una casa colonial y un añadido contemporáneo, el nuevo Museo del Cacao y el Chocolate se asienta sobre un espeluznante recuerdo azteca.`\
+https://www.nytimes.com/es/2026/05/15/espanol/america-latina/museo-chocolate-cacao-mexico-arquitectura.html
+
+**Late Night Pokes Fun at Trump in China**\
+`Jimmy Fallon joked that President Trump’s idea of a Temple of Heaven is very different from the one he toured in Beijing with China’s leader.`\
+https://www.nytimes.com/2026/05/15/arts/television/late-night-trump-china-xi.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/05/15/crosswords/spelling-bee-forum.html

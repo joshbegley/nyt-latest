@@ -1,3 +1,11 @@
+**Un monumento al chocolate envuelto en capas de historia mexicana**\
+`Combinando una casa colonial y un añadido contemporáneo, el nuevo Museo del Cacao y el Chocolate se asienta sobre un espeluznante recuerdo azteca.`\
+https://www.nytimes.com/es/2026/05/15/espanol/america-latina/museo-chocolate-cacao-mexico-arquitectura.html
+
+**Late Night Pokes Fun at Trump in China**\
+`Jimmy Fallon joked that President Trump’s idea of a Temple of Heaven is very different from the one he toured in Beijing with China’s leader.`\
+https://www.nytimes.com/2026/05/15/arts/television/late-night-trump-china-xi.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/05/15/crosswords/spelling-bee-forum.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/15/style/stefanie-joseph-christopher-richards-we
 **Quote of the Day: With Open Primaries in Retreat, Proponents Argue They Improve Lives**\
 `Quotation of the Day for Friday, May 15, 2026.`\
 https://www.nytimes.com/2026/05/14/pageoneplus/quote-of-the-day-with-open-primaries-in-retreat-proponents-argue-they-improve-lives.html
-
-**U.S. and China Will Start Discussing A.I. Safety, Bessent Says**\
-`Treasury Secretary Scott Bessent did not say when these talks would happen. There are fears in the United States and China about the threats from A.I., but neither side is willing to slow down its development.`\
-https://www.nytimes.com/2026/05/14/world/asia/china-us-ai-safety.html
-
-**The Secretive Center of Power Where Trump Met Xi**\
-`China’s leader, Xi Jinping, was meeting with President Trump on Friday at Zhongnanhai, a heavily guarded Beijing compound where top Chinese officials live and work.`\
-https://www.nytimes.com/2026/05/14/world/asia/trump-xi-summit-china-beijing-zhongnanhai.html
 
