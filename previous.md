@@ -1,3 +1,15 @@
+**Debris From Overpass Strikes Car on Busy N.Y.C. Road**\
+`Dashcam video caught the moment chunks of concrete and debris fell onto a car on the Trans-Manhattan Expressway. Port Authority officials say they are investigating the cause of the incident.`\
+https://www.nytimes.com/video/nyregion/100000010906755/nyc-debris-hits-car.html
+
+**Iran-Backed Commander Accused of Plotting U.S. Attacks**\
+`Also, the Eurovision finale. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/05/15/briefing/kataib-hezbollah-castro-eurovision.html
+
+**Jack Douglas, Producer for Aerosmith and Lennon, Dies at 80**\
+`A onetime Beatlemaniac, he helped shape the sound of hits like “Walk This Way” and “(Just Like) Starting Over.”`\
+https://www.nytimes.com/2026/05/15/arts/music/jack-douglas-dead.html
+
 **Don’t Run Away From Fear. ‘Agree’ With It.**\
 `What does it mean to “make friends” with fear? On “The Ezra Klein Show,” the beloved Buddhist teacher and author Pema Chödrön explores how to embrace uncertainty and loss, rather than avoiding them.`\
 https://www.nytimes.com/video/opinion/100000010899321/dont-run-away-from-fear-agree-with-it.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/15/world/middleeast/what-is-kataib-hezbollah.htm
 **Texas Supreme Court Rejects Abbott Effort to Remove Democrats From Office**\
 `Republican state leaders tried to expel Democratic lawmakers during their fight over redistricting last year. The court said it was not necessary.`\
 https://www.nytimes.com/2026/05/15/us/texas-supreme-court-abbott-democrats-walkout-redistricting.html
-
-**The World According to Patricia Cornwell**\
-`On a recent episode of the “Book Review” podcast, the best-selling crime author Patricia Cornwell talks about how working in a morgue influenced her writing and how she sees the world. We spoke with her about her new memoir, “True Crime,” in which she tells the surprising story of her childhood and the events that led her to become a novelist. Video by Patricia Sulbarán/The New York Times`\
-https://www.nytimes.com/video/podcasts/100000010906450/patricia-cornwell-true-crime-memoir.html
-
-**The Secret Behind the Solace of “Winnie-the-Pooh”**\
-`The best-selling author of “The Midnight Library,” Matt Haig, reflects on one of his favorite childhood books, the A.A. Milne classic “Winnie-the-Pooh.”`\
-https://www.nytimes.com/video/podcasts/100000010906475/the-secret-behind-the-solace-of-winnie-the-pooh.html
-
-**Snorkeling at Pearl Harbor: Kash Patel’s Travels Add to Focus on Ethical Issues**\
-`The F.B.I. director continues to come under scrutiny for mixing government business with dates, vacation and leisure time.`\
-https://www.nytimes.com/2026/05/15/us/politics/patel-fbi-travel-snorkeling-pearl-harbor.html
 

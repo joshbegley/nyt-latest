@@ -1,3 +1,7 @@
+**Ukrainian Drone Attacks on Russian Apartment Building Kills 4**\
+`Ukrainian drones struck an apartment building and ignited a fire at an oil refinery in the Russian city of Ryazan on Friday. At least four people were killed in the attack on the residential building, according to the regional governor. The barrage follows a series of Russian drone strikes that killed at least 24 people in Kyiv, Ukraine.`\
+https://www.nytimes.com/video/world/europe/100000010906081/ukraine-drone-attack-russia.html
+
 **Debris From Overpass Strikes Car on Busy N.Y.C. Road**\
 `Dashcam video caught the moment chunks of concrete and debris fell onto a car on the Trans-Manhattan Expressway. Port Authority officials say they are investigating the cause of the incident.`\
 https://www.nytimes.com/video/nyregion/100000010906755/nyc-debris-hits-car.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/15/us/politics/trump-allies-weaponization-fund.h
 **What Is Kataib Hezbollah?**\
 `A commander of one of the most-hard line and powerful Iranian proxies in Iraq has been charged with plotting to attack Jewish sites in the United States.`\
 https://www.nytimes.com/2026/05/15/world/middleeast/what-is-kataib-hezbollah.html
-
-**Texas Supreme Court Rejects Abbott Effort to Remove Democrats From Office**\
-`Republican state leaders tried to expel Democratic lawmakers during their fight over redistricting last year. The court said it was not necessary.`\
-https://www.nytimes.com/2026/05/15/us/texas-supreme-court-abbott-democrats-walkout-redistricting.html
 

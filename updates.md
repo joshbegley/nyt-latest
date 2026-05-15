@@ -1,3 +1,15 @@
+**Debris From Overpass Strikes Car on Busy N.Y.C. Road**\
+`Dashcam video caught the moment chunks of concrete and debris fell onto a car on the Trans-Manhattan Expressway. Port Authority officials say they are investigating the cause of the incident.`\
+https://www.nytimes.com/video/nyregion/100000010906755/nyc-debris-hits-car.html
+
+**Iran-Backed Commander Accused of Plotting U.S. Attacks**\
+`Also, the Eurovision finale. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/05/15/briefing/kataib-hezbollah-castro-eurovision.html
+
+**Jack Douglas, Producer for Aerosmith and Lennon, Dies at 80**\
+`A onetime Beatlemaniac, he helped shape the sound of hits like “Walk This Way” and “(Just Like) Starting Over.”`\
+https://www.nytimes.com/2026/05/15/arts/music/jack-douglas-dead.html
+
 **Don’t Run Away From Fear. ‘Agree’ With It.**\
 `What does it mean to “make friends” with fear? On “The Ezra Klein Show,” the beloved Buddhist teacher and author Pema Chödrön explores how to embrace uncertainty and loss, rather than avoiding them.`\
 https://www.nytimes.com/video/opinion/100000010899321/dont-run-away-from-fear-agree-with-it.html
