@@ -1,3 +1,7 @@
+**Keir Starmer and the End of the Old Certainties**\
+`The decade since Brexit has been one long, painful process of trying — and failing — to make sense of this new reality.`\
+https://www.nytimes.com/2026/05/15/opinion/keir-starmer-uk-brexit-politics.html
+
 **La vida en el hotel congoleño donde permanecen 15 migrantes deportados por Trump**\
 `Fueron retenidos y enviados a Kinsasa por el gobierno de Trump. Ahora se enfrentan a una peligrosa elección: volver a Latinoamérica o quedarse en África.`\
 https://www.nytimes.com/es/2026/05/15/espanol/mundo/deportados-trump-congo.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/14/us/richard-glossip-release-death-row-bond.htm
 **Man Charged With Posting Bomb Instructions Used in New Orleans Attack**\
 `The man, a former Army engineer, was accused of posting videos showing how to make explosives. Authorities said those videos were used by the man who carried out a deadly attack in New Orleans last year.`\
 https://www.nytimes.com/2026/05/14/us/man-charged-bomb-instructions-new-orleans-attack.html
-
-**Here’s the latest.**\
-``\
-https://www.nytimes.com/live/2026/05/14/world/trump-xi-summit-beijing/heres-the-latest
 

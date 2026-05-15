@@ -1,3 +1,7 @@
+**Keir Starmer and the End of the Old Certainties**\
+`The decade since Brexit has been one long, painful process of trying — and failing — to make sense of this new reality.`\
+https://www.nytimes.com/2026/05/15/opinion/keir-starmer-uk-brexit-politics.html
+
 **U.S. and China Will Start Discussing A.I. Safety, Bessent Says**\
 `Treasury Secretary Scott Bessent did not say when these talks would happen. There are fears in the United States and China about the threats from A.I., but neither side is willing to slow down its development.`\
 https://www.nytimes.com/2026/05/14/world/asia/china-us-ai-safety.html
