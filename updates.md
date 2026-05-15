@@ -1,3 +1,11 @@
+**Despite Tensions, China Greets Trump With Pomp and Pageantry**\
+`There was no major breakthrough in Beijing, but China pulled out all the stops for President Trump, with extravagant ceremonies and a state banquet.`\
+https://www.nytimes.com/2026/05/15/world/asia/trump-xi-china-meeting-beijing-reception.html
+
+**Replacing a Royal Hand-Me-Down That Finally Frayed**\
+`Three years after King Charles III was crowned, the Royal Opera House in London hung plush new stage curtains bearing the monarch’s insignia — but only after the old ones gave up the ghost.`\
+https://www.nytimes.com/2026/05/15/arts/music/london-royal-opera-house-curtains.html
+
 **Starbucks Cuts 300 Corporate Jobs in Turnaround Push**\
 `The company said it would close four regional offices and take a $400 million charge related to the changes.`\
 https://www.nytimes.com/2026/05/15/business/starbucks-layoffs-office-closures.html

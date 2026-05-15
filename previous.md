@@ -1,3 +1,11 @@
+**Despite Tensions, China Greets Trump With Pomp and Pageantry**\
+`There was no major breakthrough in Beijing, but China pulled out all the stops for President Trump, with extravagant ceremonies and a state banquet.`\
+https://www.nytimes.com/2026/05/15/world/asia/trump-xi-china-meeting-beijing-reception.html
+
+**Replacing a Royal Hand-Me-Down That Finally Frayed**\
+`Three years after King Charles III was crowned, the Royal Opera House in London hung plush new stage curtains bearing the monarch’s insignia — but only after the old ones gave up the ghost.`\
+https://www.nytimes.com/2026/05/15/arts/music/london-royal-opera-house-curtains.html
+
 **Starbucks Cuts 300 Corporate Jobs in Turnaround Push**\
 `The company said it would close four regional offices and take a $400 million charge related to the changes.`\
 https://www.nytimes.com/2026/05/15/business/starbucks-layoffs-office-closures.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/15/crosswords/wordle-review-1792.html
 **Strands Sidekick No. 804**\
 `Scroll down for hints and conversation about the puzzle for Saturday, May 16, 2026.`\
 https://www.nytimes.com/2026/05/15/crosswords/strands-sidekick-804.html
-
-**Who Are the Favorites to Win Eurovision?**\
-`Finland is the favorite for prediction markets and bookmakers, but singers from Australia, Denmark, Greece and Israel are coming for the title, too.`\
-https://www.nytimes.com/2026/05/15/arts/music/eurovision-song-contest-favorites.html
-
-**Trump Touts ‘Fantastic Trade Deals’ With China, but Details Are Scarce**\
-`The president left Beijing following a summit with China, during which the two countries sought to stabilize their economic and political relations.`\
-https://www.nytimes.com/2026/05/15/business/economy/trump-china-deals.html
 
