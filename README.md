@@ -1,3 +1,11 @@
+**Delivering Mail on Ukraine’s Front Line**\
+`Larysa Navrotska risks her life to deliver mail, retirement checks and medicine to remote Ukrainian communities under the constant threat of Russian drones from the nearby frontline. Her service has become even more crucial than it was before the war.`\
+https://www.nytimes.com/video/world/europe/100000010847527/delivering-mail-on-ukraines-front-line.html
+
+**Palabra del día: ‘fallible’**\
+`Esta palabra ha aparecido en 31 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/05/15/espanol/que-significa-fallible.html
+
 **Sanctioned by China, Rubio Enjoys a Trip to Beijing**\
 `There has been rampant speculation online about whether the Chinese government changed the transliteration of Marco Rubio’s name to overlook sanctions. But that theory is wrong.`\
 https://www.nytimes.com/2026/05/15/world/asia/china-rubio-sanctions.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/15/opinion/supreme-court-redistricting.html
 **This Is Why I Find Pema Chödrön So Essential**\
 `The 89-year-old Buddhist nun teaches the power of agreeing with your anxiety, instead of trying to run from it.`\
 https://www.nytimes.com/video/opinion/100000010899063/this-is-why-i-find-pema-chodron-so-essential.html
-
-**Is the Era of Gaslight, Gatekeep, Girlboss Finally Over?**\
-`Some of this country’s most prominent girl bosses sound like they don’t even know how to read the room.`\
-https://www.nytimes.com/2026/05/15/opinion/reese-witherspoon-mel-robbins-girlboss-ai.html
-
-**Stop Looking for an ‘Offramp’ in Iran. There’s No Such Thing.**\
-`And no, an exit strategy won’t help you, either.`\
-https://www.nytimes.com/2026/05/15/opinion/iran-war-off-ramp.html
 
