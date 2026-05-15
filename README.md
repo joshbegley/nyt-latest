@@ -1,3 +1,11 @@
+**Brillo y boicots en Eurovisión**\
+`El certamen tiene teatralidad, lentejuelas y pirotecnia. Y este año, también tiene protestas por la participación de Israel.`\
+https://www.nytimes.com/es/2026/05/15/espanol/mundo/eurovision-israel-boicot.html
+
+**What to Know About Day 2 of Trump and Xi’s Beijing Summit**\
+`President Trump and China’s leader, Xi Jinping, emphasized stability but announced no major breakthroughs on points of contention like trade, Taiwan and the war in Iran.`\
+https://www.nytimes.com/2026/05/15/world/asia/trump-china-xi-meeting-what-happened.html
+
 **Lessons From the Hantavirus Outbreak**\
 `Sixteen Americans are isolating at a special quarantine center in Omaha, including one person who tested “mildly” positive for the virus.`\
 https://www.nytimes.com/2026/05/15/podcasts/the-daily/hantavirus-outbreak.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/interactive/2026/05/15/magazine/rugs-hardwood-floors-hod
 **A Guide to Medicare’s New Coverage for Obesity Drugs**\
 `What you should know about the federal government’s pilot program offering GLP-1s solely for weight loss.`\
 https://www.nytimes.com/2026/05/15/business/glp-1-weight-loss-drugs-cost-medicare.html
-
-**Even Alex Murdaugh Didn’t Think His Convictions Would Be Overturned**\
-`His lawyers said he was stunned to learn that South Carolina’s top court had reversed the murder convictions. Prosecutors plan to retry the case, but a second trial could look very different.`\
-https://www.nytimes.com/2026/05/15/us/alex-murdaugh-murders-trial.html
-
-**A Republican’s Mysterious Absence Reflects Congress’s Silence on Health**\
-`Presidents are expected to tell the public basic health information, but members of the House and Senate often stay silent about medical conditions, even those that affect their ability to do their jobs.`\
-https://www.nytimes.com/2026/05/15/us/politics/thomas-kean-jr-congress-health.html
 
