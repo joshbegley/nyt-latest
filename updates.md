@@ -1,3 +1,7 @@
+**Triumphs Smoothly**\
+`Byron Walden’s latest themeless puzzle is a tough torrent.`\
+https://www.nytimes.com/2026/05/15/crosswords/daily-puzzle-2026-05-16.html
+
 **Plot Was ‘Targeting Heart’ of New York’s Jewish Community, Tisch Says**\
 `Police Commissioner Jessica S. Tisch spoke after prosecutors said they had arrested a man planning to attack a Manhattan synagogue.`\
 https://www.nytimes.com/2026/05/15/nyregion/nypd-synagogue-terror-plot-nyc.html

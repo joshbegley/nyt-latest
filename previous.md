@@ -1,3 +1,7 @@
+**Triumphs Smoothly**\
+`Byron Walden’s latest themeless puzzle is a tough torrent.`\
+https://www.nytimes.com/2026/05/15/crosswords/daily-puzzle-2026-05-16.html
+
 **Plot Was ‘Targeting Heart’ of New York’s Jewish Community, Tisch Says**\
 `Police Commissioner Jessica S. Tisch spoke after prosecutors said they had arrested a man planning to attack a Manhattan synagogue.`\
 https://www.nytimes.com/2026/05/15/nyregion/nypd-synagogue-terror-plot-nyc.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/nyregion/100000010906755/nyc-debris-hits-car.html
 **Iran-Backed Commander Accused of Plotting U.S. Attacks**\
 `Also, the Eurovision finale. Here’s the latest at the end of Friday.`\
 https://www.nytimes.com/2026/05/15/briefing/kataib-hezbollah-castro-eurovision.html
-
-**Jack Douglas, Producer for Aerosmith and Lennon, Dies at 80**\
-`A onetime Beatlemaniac, he helped shape the sound of hits like “Walk This Way” and “(Just Like) Starting Over.”`\
-https://www.nytimes.com/2026/05/15/arts/music/jack-douglas-dead.html
 
