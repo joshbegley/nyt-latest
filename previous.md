@@ -1,3 +1,15 @@
+**Israel’s Noam Bettan brings some French flair.**\
+``\
+https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/eurovision-israel-noam-bettan-michelle
+
+**Kansas Judge Blocks Law Banning Gender-Transition Treatments for Youths**\
+`Two transgender teenagers claimed that the ban, enacted last year over the Democratic governor’s veto, violated the Kansas Constitution.`\
+https://www.nytimes.com/2026/05/16/us/kansas-transgender-lawsuit.html
+
+**Severe Storms to Bring Strong Winds and Hail to Central U.S., Forecasters Say**\
+`A series of storms, including supercells, threatens to dump rain, hail and create a tornado risk for a vast section of the country. The most severe weather is expected on Monday.`\
+https://www.nytimes.com/2026/05/16/weather/storm-tornado-forecast-nebraska-minnesota.html
+
 **A Danish theater kid thinks the omens are good for him.**\
 ``\
 https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/denmark-eurovision-soren
@@ -65,16 +77,4 @@ https://www.nytimes.com/es/interactive/2026/05/16/espanol/america-latina/cuba-ej
 **Who’ll take the Eurovision title? Prediction markets give some clues.**\
 ``\
 https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/eurovision-favorites-betting-prediction-markets
-
-**Here’s the latest.**\
-``\
-https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/eurovision-song-contest-2026
-
-**The Law They Hate Was a High Point of Our History**\
-`The Voting Rights Act has more democratic legitimacy than the court that is trying to destroy it.`\
-https://www.nytimes.com/2026/05/16/opinion/voting-rights-act-supreme-court.html
-
-**Summer Is Coming!**\
-`And to welcome the season, we have 24 happy, must-make recipes, like Yewande Komolafe’s coconut-dill salmon with green beans and corn.`\
-https://www.nytimes.com/2026/05/16/dining/summer-is-coming.html
 
