@@ -1,3 +1,15 @@
+**Train Crashes Into Bangkok Traffic, Killing at Least 8 People**\
+`A freight train crashed into traffic on one of Bangkok’s busiest roads on Saturday. At least eight people were killed and dozens were injured, Thai officials said.`\
+https://www.nytimes.com/video/world/asia/100000010908241/bangkok-bus-train-crash.html
+
+**As the votes are cast, it’s a celebration of Eurovision’s 70th anniversary.**\
+``\
+https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/as-the-votes-are-cast-its-a-celebration-of-eurovisions-70th-anniversary
+
+**Car Rams into Pedestrians in Northern Italy, Injuring at Least 8**\
+`A driver rammed a car into a group of people on the main shopping street of Modena, in northern Italy. Four of the injured were in serious condition, the city’s mayor said.`\
+https://www.nytimes.com/video/world/europe/100000010908374/modena-italy-car-pedestrians-injured.html
+
 **Romania’s song gave us this year’s lyrics controversy.**\
 ``\
 https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/eurovision-romania-choke-me-anxiety-lyrics
