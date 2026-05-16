@@ -1,3 +1,7 @@
+**Long Island Rail Road Strike Shuts Down Busiest U.S. Passenger Rail Service**\
+`This is the first strike on the service in more than 30 years. It comes after three years of failed contract negotiations, two federal interventions and a volley of last-minute bargaining.`\
+https://www.nytimes.com/2026/05/16/nyregion/lirr-strike.html
+
 **Long Island Rail Road Workers Go on Strike**\
 `A contract dispute between transit officials and unions has shut down America’s busiest passenger rail service for the first time in more than 30 years.`\
 https://www.nytimes.com/2026/05/16/nyregion/lirr-strike.html
