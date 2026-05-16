@@ -1,3 +1,7 @@
+**Is America in Decline and China Rising? Not for Long.**\
+`Does Xi Jinping see the world this way?`\
+https://www.nytimes.com/2026/05/16/opinion/america-china-xi-peak.html
+
 **China Will Host Putin, Days After Trump’s Visit**\
 `The Russian leader will go to Beijing on Tuesday for talks with President Xi Jinping. The Kremlin said he had watched President Trump’s visit closely.`\
 https://www.nytimes.com/2026/05/16/world/europe/putin-china-visit-trump.html
