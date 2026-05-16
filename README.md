@@ -1,3 +1,15 @@
+**Xi plantea una ‘estabilidad estratégica constructiva’ para evitar una colisión con EE. UU.**\
+`Xi Jinping se ha pasado el último año haciendo frente al presidente Donald Trump. Ahora, tras dejar clara su posición y establecer a China como par de Estados Unidos, se está enfocando en redefinir su relación.`\
+https://www.nytimes.com/es/2026/05/16/espanol/mundo/xi-trump-relacion-china-eeuu.html
+
+**Este truco mental puede ayudarte a hacer más ejercicio**\
+`Tratar de cumplir con la filosofía de “todo o nada” puede impedirte lograr tus metas. Aquí te decimos qué puedes hacer en lugar de eso.`\
+https://www.nytimes.com/es/2026/05/16/espanol/truco-mental-ejercicio.html
+
+**La revolución de la IA te saturará de trabajo**\
+`Estamos ante un fenómeno similar a cuando el mundo conoció la lavadora automática: las lavanderas perdieron su trabajo y tú te convertiste en la lavandera.`\
+https://www.nytimes.com/es/2026/05/16/espanol/opinion/ia-trabajo-empleo.html
+
 **Trump Says a Top ISIS Leader Was Killed in a U.S.-Nigerian Mission**\
 `The leader, whom the State Department designated a terrorist in 2023, had been hiding in Africa, President Trump said.`\
 https://www.nytimes.com/2026/05/16/world/africa/trump-isis-nigeria-al-minuki.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/15/us/catholic-clergy-ice-illinois-trump.html
 **EE. UU. contempla la posible imputación de Raúl Castro**\
 `En medio de un aumento de los vuelos de vigilancia, una visita del director de la CIA y un embargo energético, la Casa Blanca intenta aumentar la presión sobre Cuba.`\
 https://www.nytimes.com/es/2026/05/15/espanol/estados-unidos/imputacion-raul-castro-cuba.html
-
-**Why Were These C.E.O.s in Beijing With Trump?**\
-`Some of America’s most powerful C.E.O.s accompanied President Trump to Beijing during his summit with President Xi Jinping of China. Our reporter Ana Swanson explains what they were hoping to gain from the trip.`\
-https://www.nytimes.com/video/us/politics/100000010906537/why-were-these-ceos-in-beijing-with-trump.html
-
-**OpenAI Bought Company That Offered A.I. Tools for Cloning Voices**\
-`The acquisition, Weights.gg, was a sort of social network for creating and sharing artificial intelligence algorithms.`\
-https://www.nytimes.com/2026/05/15/technology/openai-weightsgg-voice-cloning.html
-
-**Top Drug Regulator Is Fired From the F.D.A.**\
-`Dr. Tracy Beth Hoeg said she did not know who had fired her or why, but the dismissal came amid tumult at the agency in recent days.`\
-https://www.nytimes.com/2026/05/15/us/politics/fda-drug-regulator-fired.html
 
