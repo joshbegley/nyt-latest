@@ -1,3 +1,11 @@
+**F.A.A. Says Better Scheduling Can Address Air Traffic Control Staffing Issues**\
+`In a new report, the F.A.A. says that by increasing controllers’ active work hours per shift, it could reduce its target for a fully staffed work force by over 2,000 positions.`\
+https://www.nytimes.com/2026/05/15/us/politics/faa-air-traffic-control-staffing.html
+
+**Quiz: Wait, Is That Poison Ivy?**\
+`Test your ability to spot poison ivy and oak before they give you a rash.`\
+https://www.nytimes.com/interactive/2026/05/15/well/poison-ivy-oak-plant-quiz.html
+
 **Cuba, un país a oscuras**\
 `Estados Unidos cortó el suministro de combustible a Cuba, sumiendo a la ya empobrecida isla en una aguda crisis energética.`\
 https://www.nytimes.com/es/2026/05/15/espanol/america-latina/cuba-fotos-apagon.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/15/us/politics/law-enforcement-agents-washington
 **With Possible Raúl Castro Indictment, U.S. Eyes Venezuela Playbook**\
 `Amid stepped-up surveillance flights, a visit of the C.I.A. director and an energy embargo, the White House is trying to increase pressure on Cuba.`\
 https://www.nytimes.com/2026/05/15/us/politics/trump-cuba-pressue-castro.html
-
-**Tina Peters, Colorado Election Denier, Will Be Freed by Governor**\
-`Gov. Jared Polis, a Democrat, commuted the sentence of Ms. Peters, a former county clerk serving a nine-year sentence for her role in a plot to examine voting machines after the 2020 election.`\
-https://www.nytimes.com/2026/05/15/us/politics/tina-peters-colorado-trump-polis.html
-
-**Navy Aircraft Carrier to Complete Longest Deployment Since Vietnam**\
-`After being diverted for combat with Venezuela and Iran, the U.S.S. Gerald R. Ford will return to Norfolk, Va., on Saturday after nearly a year at sea.`\
-https://www.nytimes.com/2026/05/15/us/uss-ford-long-deployment.html
 

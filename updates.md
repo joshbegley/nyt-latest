@@ -1,3 +1,11 @@
+**F.A.A. Says Better Scheduling Can Address Air Traffic Control Staffing Issues**\
+`In a new report, the F.A.A. says that by increasing controllers’ active work hours per shift, it could reduce its target for a fully staffed work force by over 2,000 positions.`\
+https://www.nytimes.com/2026/05/15/us/politics/faa-air-traffic-control-staffing.html
+
+**Quiz: Wait, Is That Poison Ivy?**\
+`Test your ability to spot poison ivy and oak before they give you a rash.`\
+https://www.nytimes.com/interactive/2026/05/15/well/poison-ivy-oak-plant-quiz.html
+
 **Cuba, un país a oscuras**\
 `Estados Unidos cortó el suministro de combustible a Cuba, sumiendo a la ya empobrecida isla en una aguda crisis energética.`\
 https://www.nytimes.com/es/2026/05/15/espanol/america-latina/cuba-fotos-apagon.html
