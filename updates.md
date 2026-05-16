@@ -1,3 +1,23 @@
+**It’s Been a Wild Week in British Politics. What Happens Next?**\
+`Nobody has yet challenged Prime Minister Keir Starmer for the leadership, but his leading rival, Andy Burnham, finally has a route to Downing Street.`\
+https://www.nytimes.com/2026/05/16/world/europe/britain-politics-labour-whats-next.html
+
+**Corrections: May 16, 2026**\
+`Corrections that appeared in print on Saturday, May 16, 2026.`\
+https://www.nytimes.com/2026/05/16/pageoneplus/corrections-may-16-2026.html
+
+**Quote of the Day: From TV to T.P., Why Your Life Is Subscriptions**\
+`Quotation of the Day for Saturday, May 16, 2026.`\
+https://www.nytimes.com/2026/05/15/pageoneplus/quote-of-the-day-from-tv-to-tp-why-your-life-is-subscriptions.html
+
+**In the Opera World, a Loss of More Than Just a Role**\
+`The coloratura soprano Rainelle Krause, who died in March, was one of the most sought after performers of Queen of the Night in ‘The Magic Flute.’`\
+https://www.nytimes.com/2026/05/15/arts/music/rainelle-krause-queen-night-soprano.html
+
+**Two Killed as Car Slams Into Crowd on Sidewalk in Manhattan**\
+`A black Mercedes S.U.V. smashed into two parked cars, crossed a bike lane and crashed into a crowd of people, coming to a stop against a parking meter.`\
+https://www.nytimes.com/2026/05/15/nyregion/fatal-crash-nyc-upper-west-side.html
+
 **Triumphs Smoothly**\
 `Byron Walden’s latest themeless puzzle is a tough torrent.`\
 https://www.nytimes.com/2026/05/15/crosswords/daily-puzzle-2026-05-16.html
