@@ -1,3 +1,7 @@
+**The Law They Hate Was a High Point of Our History**\
+`The Voting Rights Act has more democratic legitimacy than the court that is trying to destroy it.`\
+https://www.nytimes.com/2026/05/16/opinion/voting-rights-act-supreme-court.html
+
 **Summer Is Coming!**\
 `And to welcome the season, we have 24 happy, must-make recipes, like Yewande Komolafe’s coconut-dill salmon with green beans and corn.`\
 https://www.nytimes.com/2026/05/16/dining/summer-is-coming.html
