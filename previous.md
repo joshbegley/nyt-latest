@@ -1,3 +1,15 @@
+**Plot Was ‘Targeting Heart’ of New York’s Jewish Community, Tisch Says**\
+`Police Commissioner Jessica S. Tisch spoke after prosecutors said they had arrested a man planning to attack a Manhattan synagogue.`\
+https://www.nytimes.com/2026/05/15/nyregion/nypd-synagogue-terror-plot-nyc.html
+
+**Catholic Clergy Can Minister Within ICE Facility After a Legal Agreement**\
+`Several clergy members and an advocacy group had sued the Trump administration, arguing that they were unlawfully denied access to detainees at an Illinois facility.`\
+https://www.nytimes.com/2026/05/15/us/catholic-clergy-ice-illinois-trump.html
+
+**EE. UU. contempla la posible imputación de Raúl Castro**\
+`En medio de un aumento de los vuelos de vigilancia, una visita del director de la CIA y un embargo energético, la Casa Blanca intenta aumentar la presión sobre Cuba.`\
+https://www.nytimes.com/es/2026/05/15/espanol/estados-unidos/imputacion-raul-castro-cuba.html
+
 **Why Were These C.E.O.s in Beijing With Trump?**\
 `Some of America’s most powerful C.E.O.s accompanied President Trump to Beijing during his summit with President Xi Jinping of China. Our reporter Ana Swanson explains what they were hoping to gain from the trip.`\
 https://www.nytimes.com/video/us/politics/100000010906537/why-were-these-ceos-in-beijing-with-trump.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/15/briefing/kataib-hezbollah-castro-eurovision.h
 **Jack Douglas, Producer for Aerosmith and Lennon, Dies at 80**\
 `A onetime Beatlemaniac, he helped shape the sound of hits like “Walk This Way” and “(Just Like) Starting Over.”`\
 https://www.nytimes.com/2026/05/15/arts/music/jack-douglas-dead.html
-
-**Don’t Run Away From Fear. ‘Agree’ With It.**\
-`What does it mean to “make friends” with fear? On “The Ezra Klein Show,” the beloved Buddhist teacher and author Pema Chödrön explores how to embrace uncertainty and loss, rather than avoiding them.`\
-https://www.nytimes.com/video/opinion/100000010899321/dont-run-away-from-fear-agree-with-it.html
-
-**You Should Sit With Boredom**\
-`Social media and smartphones have chipped away at our ability to tolerate stillness and boredom. But what gets lost in a world of constant distraction? On “The Ezra Klein Show,” the Buddhist teacher Pema Chödrön argues that the world becomes more alive in stillness.`\
-https://www.nytimes.com/video/opinion/100000010906723/you-should-sit-with-boredom.html
-
-**Claudine Longet, Entertainer Who Shot Olympian Boyfriend, Dies at 84**\
-`A singer and actress, she drew wide attention for the fatal 1976 shooting of Spider Sabich. She was convicted of negligent homicide.`\
-https://www.nytimes.com/2026/05/15/us/claudine-longet-dead.html
 

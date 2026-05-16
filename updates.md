@@ -1,3 +1,15 @@
+**Plot Was ‘Targeting Heart’ of New York’s Jewish Community, Tisch Says**\
+`Police Commissioner Jessica S. Tisch spoke after prosecutors said they had arrested a man planning to attack a Manhattan synagogue.`\
+https://www.nytimes.com/2026/05/15/nyregion/nypd-synagogue-terror-plot-nyc.html
+
+**Catholic Clergy Can Minister Within ICE Facility After a Legal Agreement**\
+`Several clergy members and an advocacy group had sued the Trump administration, arguing that they were unlawfully denied access to detainees at an Illinois facility.`\
+https://www.nytimes.com/2026/05/15/us/catholic-clergy-ice-illinois-trump.html
+
+**EE. UU. contempla la posible imputación de Raúl Castro**\
+`En medio de un aumento de los vuelos de vigilancia, una visita del director de la CIA y un embargo energético, la Casa Blanca intenta aumentar la presión sobre Cuba.`\
+https://www.nytimes.com/es/2026/05/15/espanol/estados-unidos/imputacion-raul-castro-cuba.html
+
 **Why Were These C.E.O.s in Beijing With Trump?**\
 `Some of America’s most powerful C.E.O.s accompanied President Trump to Beijing during his summit with President Xi Jinping of China. Our reporter Ana Swanson explains what they were hoping to gain from the trip.`\
 https://www.nytimes.com/video/us/politics/100000010906537/why-were-these-ceos-in-beijing-with-trump.html
