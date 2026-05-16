@@ -1,3 +1,11 @@
+**From Italy, a disco anthem about the joys of marriage.**\
+``\
+https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/italy-eurovision-sal-da-vinci-per-sempre-si
+
+**Israel’s Noam Bettan Brings Some French Flair to Eurovision**\
+`The singer performed a pop track largely in French, as the show faced boycotts from other countries over Israel’s military actions in Gaza.`\
+https://www.nytimes.com/2026/05/16/arts/music/eurovision-israel-noam-bettan-michelle.html
+
 **Long Island Rail Road Service Suspended as Workers Strike**\
 `For the first time in over 30 years, thousands of workers walked off the job, halting service on the Long Island Rail Road, the country’s busiest passenger rail service.`\
 https://www.nytimes.com/video/nyregion/100000010908169/long-island-lirr-shuts-down-strike.html

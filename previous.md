@@ -1,3 +1,7 @@
+**From Italy, a disco anthem about the joys of marriage.**\
+``\
+https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/italy-eurovision-sal-da-vinci-per-sempre-si
+
 **Long Island Rail Road Service Suspended as Workers Strike**\
 `For the first time in over 30 years, thousands of workers walked off the job, halting service on the Long Island Rail Road, the country’s busiest passenger rail service.`\
 https://www.nytimes.com/video/nyregion/100000010908169/long-island-lirr-shuts-down-strike.html
@@ -30,8 +34,8 @@ https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/austra
 ``\
 https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/greece-akylas-ferto-eurovision
 
-**Israel’s Noam Bettan brings some French flair.**\
-``\
+**Israel’s Noam Bettan Brings Some French Flair to Eurovision**\
+`The singer performed a pop track largely in French, as the show faced boycotts from other countries over Israel’s military actions in Gaza.`\
 https://www.nytimes.com/2026/05/16/arts/music/eurovision-israel-noam-bettan-michelle.html
 
 **Kansas Judge Blocks Law Banning Gender-Transition Treatments for Youths**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/eurovi
 **Louisiana Primary Election Results**\
 `Get live results and maps from the 2026 Louisiana primary elections.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-louisiana-primary.html
-
-**At Supreme Court, Virginia Democrats Pressed Legal Theory Embraced by Trump**\
-`A long-shot emergency request to restore a voting map was the latest salvo in an all-out legal war over control of the House.`\
-https://www.nytimes.com/2026/05/16/us/at-supreme-court-virginia-democrats-pressed-legal-theory-embraced-by-trump.html
 
