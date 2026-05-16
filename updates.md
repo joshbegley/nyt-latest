@@ -1,3 +1,5 @@
+
+
 **Louisiana Primary Election Results**\
 `Get live results and maps from the 2026 Louisiana primary elections.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-louisiana-primary.html
