@@ -27,7 +27,7 @@ https://www.nytimes.com/2026/05/16/world/europe/trump-calls-xi-a-friend-but-he-l
 https://www.nytimes.com/2026/05/16/us/politics/actblue-testify-congress-donors.html
 
 **Fears Grow That Iran May Be Using Proxy Groups Beyond Mideast**\
-`The arrest of Mohammad al-Saadi in the United States on Friday has raised concerns that Iran could be working with its proxies to stage attacks outside the region.`\
+`The charges against Mohammad al-Saadi in the United States have raised concerns that Iran could be working with its proxies to stage attacks outside the region.`\
 https://www.nytimes.com/2026/05/16/world/middleeast/iran-proxy-groups-us.html
 
 **How a few hundred voters could have swayed Eurovision results.**\
