@@ -1,3 +1,7 @@
+**France’s Eurovision act is just as much America’s.**\
+``\
+https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/frances-eurovision-monroe-opera
+
 **Woman Gives Birth to a ‘Bouncing Baby Boy’ in Brooklyn Courtroom**\
 `A court officer delivered the newborn after a woman who was nine months pregnant appeared in court on low-level charges.`\
 https://www.nytimes.com/2026/05/16/nyregion/birth-courtroom-baby-nyc.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/16/world/europe/trump-xi-china-summit.html
 **ActBlue C.E.O. Agrees to Testify Before Congress About Foreign Donor Vetting**\
 `The Democratic fund-raising group, which backs candidates up and down the ballot, has been the subject of scrutiny by Republicans.`\
 https://www.nytimes.com/2026/05/16/us/politics/actblue-testify-congress-donors.html
-
-**Fears Grow That Iran May Be Using Proxy Groups Beyond Mideast**\
-`The charges against Mohammad al-Saadi in the United States have raised concerns that Iran could be working with its proxies to stage attacks outside the region.`\
-https://www.nytimes.com/2026/05/16/world/middleeast/iran-proxy-groups-us.html
 

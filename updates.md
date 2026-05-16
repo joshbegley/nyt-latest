@@ -1,3 +1,7 @@
+**France’s Eurovision act is just as much America’s.**\
+``\
+https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/frances-eurovision-monroe-opera
+
 **Woman Gives Birth to a ‘Bouncing Baby Boy’ in Brooklyn Courtroom**\
 `A court officer delivered the newborn after a woman who was nine months pregnant appeared in court on low-level charges.`\
 https://www.nytimes.com/2026/05/16/nyregion/birth-courtroom-baby-nyc.html
