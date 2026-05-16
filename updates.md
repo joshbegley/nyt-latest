@@ -1,3 +1,7 @@
+**China Indicates Tariffs Were Discussed at Trump Summit**\
+`China’s Ministry of Commerce said Saturday that the countries had struck a preliminary agreement to reduce some tariffs, seemingly contradicting statements by President Trump`\
+https://www.nytimes.com/2026/05/16/business/economy/china-tariffs-trump-summit.html
+
 **Woman Gives Birth in Brooklyn Courtroom**\
 `A court officer delivered the newborn after a woman who was nine months pregnant appeared in court on low-level charges.`\
 https://www.nytimes.com/2026/05/16/nyregion/birth-courtroom-baby-nyc.html

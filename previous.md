@@ -1,3 +1,7 @@
+**China Indicates Tariffs Were Discussed at Trump Summit**\
+`China’s Ministry of Commerce said Saturday that the countries had struck a preliminary agreement to reduce some tariffs, seemingly contradicting statements by President Trump`\
+https://www.nytimes.com/2026/05/16/business/economy/china-tariffs-trump-summit.html
+
 **Thousands of FiveThirtyEight Articles Seemingly Vanish From the Internet**\
 `The influential polling analysis site was shut down last year, but an earlier archived version, fivethirtyeight.com, had lived on. Now the site is redirecting users to ABC News.`\
 https://www.nytimes.com/2026/05/16/business/media/fivethirtyeight-abc-removed.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/16/us/kansas-transgender-lawsuit.html
 **Severe Storms to Bring Strong Winds and Hail to Central U.S., Forecasters Say**\
 `A series of storms, including supercells, threatens to dump rain, hail and create a tornado risk for a vast section of the country. The most severe weather is expected on Monday.`\
 https://www.nytimes.com/2026/05/16/weather/storm-tornado-forecast-nebraska-minnesota.html
-
-**A Danish theater kid thinks the omens are good for him.**\
-``\
-https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/denmark-eurovision-soren
 
