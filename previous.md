@@ -50,7 +50,7 @@ https://www.nytimes.com/2026/05/16/arts/music/finland-eurovision-liekinheitin.ht
 ``\
 https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/frances-eurovision-monroe-opera
 
-**Woman Gives Birth to a ‘Bouncing Baby Boy’ in Brooklyn Courtroom**\
+**Woman Gives Birth in Brooklyn Courtroom**\
 `A court officer delivered the newborn after a woman who was nine months pregnant appeared in court on low-level charges.`\
 https://www.nytimes.com/2026/05/16/nyregion/birth-courtroom-baby-nyc.html
 

@@ -1,3 +1,7 @@
+**Woman Gives Birth in Brooklyn Courtroom**\
+`A court officer delivered the newborn after a woman who was nine months pregnant appeared in court on low-level charges.`\
+https://www.nytimes.com/2026/05/16/nyregion/birth-courtroom-baby-nyc.html
+
 **Thousands of FiveThirtyEight Articles Seemingly Vanish From the Internet**\
 `The influential polling analysis site was shut down last year, but an earlier archived version, fivethirtyeight.com, had lived on. Now the site is redirecting users to ABC News.`\
 https://www.nytimes.com/2026/05/16/business/media/fivethirtyeight-abc-removed.html
