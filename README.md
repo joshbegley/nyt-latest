@@ -1,3 +1,11 @@
+**Voters in Louisiana Head to the Polls, Uncertain but Determined**\
+`Votes cast for the House candidates on Saturday’s primary ballot won’t count after state officials moved the election to November to provide time to redraw congressional maps.`\
+https://www.nytimes.com/2026/05/16/us/voters-louisiana-primary-gerrymander.html
+
+**Vienna has a rich pop music scene, and it isn’t just ‘Rock Me Amadeus.’**\
+``\
+https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/vienna-has-a-rich-pop-music-scene-and-it-isnt-just-rock-me-amadeus
+
 **Why are five countries skipping Eurovision, and does it matter?**\
 ``\
 https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/eurovision-boycott
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/16/dining/all-about-the-blueberries.html
 **Cómo tener una conversación difícil**\
 `Las conversaciones complicadas son menos intimidantes si tenemos claros los pasos a seguir. Algunos expertos compartieron sus estrategias personales.`\
 https://www.nytimes.com/es/2026/05/16/espanol/como-tener-conversaciones-dificiles.html
-
-**Oysters, Champagne and Billionaires Buying Art**\
-`When the European Fine Art Foundation alights in Manhattan, it’s something like a billionaire version of the classic television game show “Supermarket Sweep.”`\
-https://www.nytimes.com/2026/05/16/style/tefaf-auction-nyc-art.html
-
-**U.S. Debt Is Now Bigger Than the Economy. That’s Not the Real Problem.**\
-`Washington quickly brushed off a startling milestone in a mounting problem.`\
-https://www.nytimes.com/2026/05/16/business/dealbook/debt-100-percent-gdp.html
 
