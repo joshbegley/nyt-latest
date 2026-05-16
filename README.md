@@ -1,3 +1,27 @@
+**Trump Says a Top ISIS Leader Was Killed in a U.S.-Nigerian Mission**\
+`The leader, whom the State Department designated a terrorist in 2023, had been hiding in Africa, President Trump said.`\
+https://www.nytimes.com/2026/05/16/world/africa/trump-isis-nigeria-al-minuki.html
+
+**Latest Weinstein Trial May Have Been ‘Best Shot,’ Former Prosecutors Say**\
+`The Manhattan district attorney said he was considering whether he would ask a jury to consider a rape charge against Harvey Weinstein for a fourth time after a mistrial on Friday.`\
+https://www.nytimes.com/2026/05/16/nyregion/latest-weinstein-trial-may-have-been-best-shot-former-prosecutors-say.html
+
+**Este reto de 4 semanas te ayudará a dejar el teléfono**\
+`Puede que incluso pases más tiempo al aire libre.`\
+https://www.nytimes.com/es/2026/05/16/espanol/como-dejar-celular-telefono-movil.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/16/crosswords/spelling-bee-forum.html
+
+**What’s on an Octogenarian’s Bucket List? A Tugboat Ride.**\
+`Older Americans are getting a chance to do something they’ve always wanted through programs designed to make dreams — from drinking soda to skydiving — come true.`\
+https://www.nytimes.com/2026/05/16/nyregion/older-adult-bucket-list-nyc.html
+
+**An Upper West Side Primary Presents a Test of Judaism and Politics**\
+`Stephanie Ruskay is seeking to become the first female rabbi to be elected to state office in New York, but the race may hinge on whether voters find her progressive enough.`\
+https://www.nytimes.com/2026/05/16/nyregion/ruskay-jewish-primary-northrup.html
+
 **Trump Turns Taiwan Arms Sales Into Bargaining Chip With China**\
 `The president said a potential arms deal for Taiwan was a “very good negotiating chip” in talks with Beijing. His words raise questions about the steadfastness of U.S. support.`\
 https://www.nytimes.com/2026/05/16/world/asia/trump-taiwan-arms-bargaining-chip-china.html
@@ -53,28 +77,4 @@ https://www.nytimes.com/2026/05/15/technology/openai-weightsgg-voice-cloning.htm
 **Top Drug Regulator Is Fired From the F.D.A.**\
 `Dr. Tracy Beth Hoeg said she did not know who had fired her or why, but the dismissal came amid tumult at the agency in recent days.`\
 https://www.nytimes.com/2026/05/15/us/politics/fda-drug-regulator-fired.html
-
-**F.A.A. Says Better Scheduling Can Address Air Traffic Control Staffing Issues**\
-`In a new report, the F.A.A. says that by increasing controllers’ active work hours per shift, it could reduce its target for a fully staffed work force by over 2,000 positions.`\
-https://www.nytimes.com/2026/05/15/us/politics/faa-air-traffic-control-staffing.html
-
-**Quiz: Wait, Is That Poison Ivy?**\
-`Test your ability to spot poison ivy and oak before they give you a rash.`\
-https://www.nytimes.com/interactive/2026/05/15/well/poison-ivy-oak-plant-quiz.html
-
-**Cuba, un país a oscuras**\
-`Estados Unidos cortó el suministro de combustible a Cuba, sumiendo a la ya empobrecida isla en una aguda crisis energética.`\
-https://www.nytimes.com/es/2026/05/15/espanol/america-latina/cuba-fotos-apagon.html
-
-**Supreme Court Rejects Virginia Democrats’ Effort to Reinstate New Voting Map**\
-`State officials had asked the justices to step in to allow the state to use a congressional map in the midterms that was drawn by Democrats and recently approved by voters.`\
-https://www.nytimes.com/2026/05/15/us/politics/supreme-court-virginia-redistricting.html
-
-**Hospital Will Open First ‘Detransition’ Clinic in Legal Settlement With Texas**\
-`Texas Children’s Hospital was under investigation for billing practices on gender-transition treatments. The settlement was expected to end that inquiry.`\
-https://www.nytimes.com/2026/05/15/us/detransition-transgender-clinic.html
-
-**Clavicular Strikes Plea Deal With Prosecutors After Alligator Shooting**\
-`The social media personality pleaded no contest and was sentenced to six months of probation. The deal allows him to avoid jail time.`\
-https://www.nytimes.com/2026/05/15/us/clavicular-plea-deal-alligator-shooting.html
 
