@@ -1,3 +1,7 @@
+**CBS Cancels Itself, Not Just Colbert**\
+`In shutting down a 33-year late-night franchise, CBS is assenting to its own diminishment.`\
+https://www.nytimes.com/2026/05/16/opinion/stephen-colbert-late-show-cbs.html
+
 **Is America in Decline and China Rising? Not for Long.**\
 `Does Xi Jinping see the world this way?`\
 https://www.nytimes.com/2026/05/16/opinion/america-china-xi-peak.html
