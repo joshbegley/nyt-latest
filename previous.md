@@ -1,5 +1,17 @@
-**Finland, the favorite, is here for revenge.**\
+**Long Island Rail Road Service Suspended as Workers Strike**\
+`For the first time in over 30 years, thousands of workers walked off the job, halting service on the Long Island Rail Road, the country’s busiest passenger rail service.`\
+https://www.nytimes.com/video/nyregion/100000010908169/long-island-lirr-shuts-down-strike.html
+
+**Can Felicia overcome the odds for Sweden?**\
 ``\
+https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/eurovision-sweden-felicia
+
+**Félicien Kabuga Dies; an Accused Mastermind of Rwanda’s Genocide**\
+`One of his country’s richest businessmen, he fled arrest and escaped prosecution for allegedly financing and directing the bloodletting that cost 800,000 lives in 1994.`\
+https://www.nytimes.com/2026/05/16/world/africa/felicien-kabuga-dead.html
+
+**Finland, the Eurovision Favorite, Is Here for Revenge**\
+`The pop star Pete Parkkonen and the violinist Linda Lampenius performed “Liekinheitin” on a stage covered in flames.`\
 https://www.nytimes.com/2026/05/16/arts/music/finland-eurovision-liekinheitin.html
 
 **France’s Eurovision act is just as much America’s.**\
@@ -20,7 +32,7 @@ https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/greece
 
 **Israel’s Noam Bettan brings some French flair.**\
 ``\
-https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/eurovision-israel-noam-bettan-michelle
+https://www.nytimes.com/2026/05/16/arts/music/eurovision-israel-noam-bettan-michelle.html
 
 **Kansas Judge Blocks Law Banning Gender-Transition Treatments for Youths**\
 `Two transgender teenagers claimed that the ban, enacted last year over the Democratic governor’s veto, violated the Kansas Constitution.`\
@@ -65,16 +77,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-louisiana-primary.
 **At Supreme Court, Virginia Democrats Pressed Legal Theory Embraced by Trump**\
 `A long-shot emergency request to restore a voting map was the latest salvo in an all-out legal war over control of the House.`\
 https://www.nytimes.com/2026/05/16/us/at-supreme-court-virginia-democrats-pressed-legal-theory-embraced-by-trump.html
-
-**Louisiana U.S. Senate Primary Election Results**\
-`Get live results and maps from the 2026 Louisiana primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-louisiana-us-senate-primary.html
-
-**A Times investigation tracked Israel’s efforts to gain soft power from Eurovision.**\
-``\
-https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/a-times-investigation-tracked-israels-efforts-to-gain-soft-power-from-eurovision
-
-**Trump Calls Xi a ‘Friend.’ But He Left China Without Any Breakthroughs.**\
-`The lack of concrete agreements with Beijing shows the risks of President Trump’s personality-driven foreign policy, which rests on the belief that he can defend U.S. interests through charm and force of will.`\
-https://www.nytimes.com/2026/05/16/world/europe/trump-xi-china-summit.html
 
