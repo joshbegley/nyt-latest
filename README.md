@@ -1,3 +1,15 @@
+**Fears Grow That Iran May Be Using Proxy Groups Beyond Mideast**\
+`The arrest of Mohammad al-Saadi in the United States on Friday has raised concerns that Iran could be working with its proxies to stage attacks outside the region.`\
+https://www.nytimes.com/2026/05/16/world/middleeast/iran-proxy-groups-us.html
+
+**How a few hundred voters could have swayed Eurovision results.**\
+``\
+https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/how-a-few-hundred-voters-could-have-swayed-eurovision-results
+
+**El conglomerado hermético que controla la economía de Cuba**\
+`GAESA, uno de los principales blancos de la campaña de presión de Washington contra Cuba, es una turbia empresa estatal manejada por los militares del país que controla al menos 40 por ciento de la economía.`\
+https://www.nytimes.com/es/interactive/2026/05/16/espanol/america-latina/cuba-ejercito-economia-castro.html
+
 **Who’ll take the Eurovision title? Prediction markets give some clues.**\
 ``\
 https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/eurovision-favorites-betting-prediction-markets
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/16/opinion/trump-lost-opportunities.html
 **Why So Many TV Bad Guys Come From Long Island**\
 `I noticed that a lot of TV villains come from the town I grew up in. I wasn’t surprised.`\
 https://www.nytimes.com/2026/05/16/opinion/long-island-tv-villains-politics.html
-
-**Why Does Health Care Cost So Much?**\
-`Readers, including health professionals, offer their analyses.`\
-https://www.nytimes.com/2026/05/16/opinion/health-care-costs.html
-
-**The Great Political Realignment of 2026**\
-`The country seems to be tiring of the Trump era. Now what?`\
-https://www.nytimes.com/video/opinion/100000010904188/the-great-political-realignment-of-2026.html
-
-**Aliens Abducted His Husband. Now What?**\
-`Steven Rowley’s new novel, “Take Me With You,” asks who we are without our partners.`\
-https://www.nytimes.com/2026/05/16/books/review/take-me-with-you-steven-rowley.html
 

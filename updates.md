@@ -1,3 +1,15 @@
+**Who’ll take the Eurovision title? Prediction markets give some clues.**\
+``\
+https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/eurovision-favorites-betting-prediction-markets
+
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/eurovision-song-contest-2026
+
+**Train Crashes Into Bangkok Traffic, Killing at Least 8**\
+`A freight train plowed into traffic on train tracks, starting a fire. The authorities did not immediately give a cause but said a barrier had not come down.`\
+https://www.nytimes.com/2026/05/16/world/asia/bangkok-bus-train-crash.html
+
 **The Law They Hate Was a High Point of Our History**\
 `The Voting Rights Act has more democratic legitimacy than the court that is trying to destroy it.`\
 https://www.nytimes.com/2026/05/16/opinion/voting-rights-act-supreme-court.html
