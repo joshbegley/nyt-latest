@@ -1,3 +1,7 @@
+**Finishing School**\
+`It’s graduation season, a time of aspiration and anxiety. Today is about the aspiration — the wisdom to be gleaned from great commencement addresses.`\
+https://www.nytimes.com/2026/05/16/briefing/finishing-school.html
+
 **I Think Someone Is Living in the Storage Unit Next to Mine. What Should I Do?**\
 `I was so uncomfortable I just threw my things inside and left.`\
 https://www.nytimes.com/2026/05/16/magazine/living-in-storage-unit-ethics.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/16/realestate/real-estate-offer-to-buy.html
 **How a Nature Cruise Turned Into a Nightmare**\
 `The hantavirus outbreak on the MV Hondius set off alarms for a world still traumatized by Covid. For those on board, the danger was much closer.`\
 https://www.nytimes.com/2026/05/16/world/europe/hantavirus-hondius-cruise.html
-
-**OpenAI and Khan Academy Made a Chatbot. What Can We Learn?**\
-`Inside a collaboration to bring artificial intelligence into the classroom.`\
-https://www.nytimes.com/2026/05/16/business/tyrangiel-ai-book-openai-khan-academy-khanmigo.html
 
