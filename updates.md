@@ -1,3 +1,27 @@
+**Trump Says a Top ISIS Leader Was Killed in a U.S.-Nigerian Mission**\
+`The leader, whom the State Department designated a terrorist in 2023, had been hiding in Africa, President Trump said.`\
+https://www.nytimes.com/2026/05/16/world/africa/trump-isis-nigeria-al-minuki.html
+
+**Latest Weinstein Trial May Have Been ‘Best Shot,’ Former Prosecutors Say**\
+`The Manhattan district attorney said he was considering whether he would ask a jury to consider a rape charge against Harvey Weinstein for a fourth time after a mistrial on Friday.`\
+https://www.nytimes.com/2026/05/16/nyregion/latest-weinstein-trial-may-have-been-best-shot-former-prosecutors-say.html
+
+**Este reto de 4 semanas te ayudará a dejar el teléfono**\
+`Puede que incluso pases más tiempo al aire libre.`\
+https://www.nytimes.com/es/2026/05/16/espanol/como-dejar-celular-telefono-movil.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/16/crosswords/spelling-bee-forum.html
+
+**What’s on an Octogenarian’s Bucket List? A Tugboat Ride.**\
+`Older Americans are getting a chance to do something they’ve always wanted through programs designed to make dreams — from drinking soda to skydiving — come true.`\
+https://www.nytimes.com/2026/05/16/nyregion/older-adult-bucket-list-nyc.html
+
+**An Upper West Side Primary Presents a Test of Judaism and Politics**\
+`Stephanie Ruskay is seeking to become the first female rabbi to be elected to state office in New York, but the race may hinge on whether voters find her progressive enough.`\
+https://www.nytimes.com/2026/05/16/nyregion/ruskay-jewish-primary-northrup.html
+
 **Trump Turns Taiwan Arms Sales Into Bargaining Chip With China**\
 `The president said a potential arms deal for Taiwan was a “very good negotiating chip” in talks with Beijing. His words raise questions about the steadfastness of U.S. support.`\
 https://www.nytimes.com/2026/05/16/world/asia/trump-taiwan-arms-bargaining-chip-china.html
