@@ -1,3 +1,7 @@
+**Long Island Rail Road Workers Go on Strike**\
+`A contract dispute between transit officials and unions has shut down America’s busiest passenger rail service for the first time in more than 30 years.`\
+https://www.nytimes.com/2026/05/16/nyregion/lirr-strike.html
+
 **It’s Been a Wild Week in British Politics. What Happens Next?**\
 `Nobody has yet challenged Prime Minister Keir Starmer for the leadership, but his leading rival, Andy Burnham, finally has a route to Downing Street.`\
 https://www.nytimes.com/2026/05/16/world/europe/britain-politics-labour-whats-next.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/15/us/clavicular-plea-deal-alligator-shooting.ht
 **Smithsonian Adds Back Impeachment Language to Label on Trump Portrait**\
 `The language had been removed from wall text in the National Portrait Gallery, but it’s back as the museum unveiled changes to its exhibition on U.S. presidents.`\
 https://www.nytimes.com/2026/05/15/arts/design/trump-impeachment-smithsonian-national-portrait-gallery.html
-
-**Civilian Planes Shot Down by Cuba: A Push to Punish Raúl Castro 30 Years Later**\
-`Mr. Castro, Cuba’s former president, could soon face charges in the 1996 killings of four volunteer airmen who were members of a humanitarian group that searched for migrants at sea.`\
-https://www.nytimes.com/2026/05/15/world/americas/cuba-raul-castro-us-indictment.html
 
