@@ -1,3 +1,11 @@
+**All About the Blueberries**\
+`Berry season’s arrival demands Jordan Marsh’s blueberry muffins — I don’t make the rules.`\
+https://www.nytimes.com/2026/05/16/dining/all-about-the-blueberries.html
+
+**Cómo tener una conversación difícil**\
+`Las conversaciones complicadas son menos intimidantes si tenemos claros los pasos a seguir. Algunos expertos compartieron sus estrategias personales.`\
+https://www.nytimes.com/es/2026/05/16/espanol/como-tener-conversaciones-dificiles.html
+
 **Oysters, Champagne and Billionaires Buying Art**\
 `When the European Fine Art Foundation alights in Manhattan, it’s something like a billionaire version of the classic television game show “Supermarket Sweep.”`\
 https://www.nytimes.com/2026/05/16/style/tefaf-auction-nyc-art.html

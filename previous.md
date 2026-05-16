@@ -1,3 +1,11 @@
+**All About the Blueberries**\
+`Berry season’s arrival demands Jordan Marsh’s blueberry muffins — I don’t make the rules.`\
+https://www.nytimes.com/2026/05/16/dining/all-about-the-blueberries.html
+
+**Cómo tener una conversación difícil**\
+`Las conversaciones complicadas son menos intimidantes si tenemos claros los pasos a seguir. Algunos expertos compartieron sus estrategias personales.`\
+https://www.nytimes.com/es/2026/05/16/espanol/como-tener-conversaciones-dificiles.html
+
 **Oysters, Champagne and Billionaires Buying Art**\
 `When the European Fine Art Foundation alights in Manhattan, it’s something like a billionaire version of the classic television game show “Supermarket Sweep.”`\
 https://www.nytimes.com/2026/05/16/style/tefaf-auction-nyc-art.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/16/crosswords/strands-sidekick-805.html
 **How a Times Reporter Found Cartel Gold at the Royal Canadian Mint**\
 `A conversation with Justin Scheck, who found that illegal Colombian gold transformed into legal North American gold through bureaucratic sleights of hand, and ended up in Canada.`\
 https://www.nytimes.com/2026/05/16/world/canada/cartel-gold-royal-canadian-mint.html
-
-**Graham Platner Thinks a Political Revolution Is Coming**\
-`The presumptive Democratic Senate nominee from Maine enters the general election fray. `\
-https://www.nytimes.com/2026/05/16/magazine/graham-platner-interview.html
-
-**They Fled to Safety in Palestinian Territory, Then Settlers Attacked Again**\
-`Violent settlers are not merely clearing Palestinians from land under Israel’s control. They are attacking areas where Israel agreed to Palestinian self-governance.`\
-https://www.nytimes.com/2026/05/16/world/middleeast/settler-attacks-palestinians-west-bank.html
 
