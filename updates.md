@@ -1,3 +1,7 @@
+**Long Island Rail Road Workers Go on Strike**\
+`A contract dispute between transit officials and unions has shut down America’s busiest passenger rail service for the first time in more than 30 years.`\
+https://www.nytimes.com/2026/05/16/nyregion/lirr-strike.html
+
 **It’s Been a Wild Week in British Politics. What Happens Next?**\
 `Nobody has yet challenged Prime Minister Keir Starmer for the leadership, but his leading rival, Andy Burnham, finally has a route to Downing Street.`\
 https://www.nytimes.com/2026/05/16/world/europe/britain-politics-labour-whats-next.html
