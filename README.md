@@ -1,3 +1,7 @@
+**Australia’s strategy: Go big. On everything.**\
+``\
+https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/australian-eurovison-delta-goodrem-eclipse
+
 **Greece’s Akylas wants it all.**\
 ``\
 https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/greece-akylas-ferto-eurovision
@@ -23,7 +27,7 @@ https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/denmar
 https://www.nytimes.com/2026/05/16/nyregion/nakba-video-mamdani-nyc.html
 
 **Who Is JJ? The 2025 Winner Starts the Eurovision Final With a Pop/Opera Mix.**\
-`JJ, from Austria, kicked off this year’s Eurovision grand final in Vienna.`\
+`JJ, from Austria, kicked off this year’s Eurovision grand final in Vienna as the contest celebrates its 70th anniversary.`\
 https://www.nytimes.com/2026/05/16/arts/who-is-jj-austria.html
 
 **Car Plows Into Pedestrians in Northern Italian Town, Injuring at Least 8**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/16/world/middleeast/iran-proxy-groups-us.html
 **How a few hundred voters could have swayed Eurovision results.**\
 ``\
 https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/how-a-few-hundred-voters-could-have-swayed-eurovision-results
-
-**El conglomerado hermético que controla la economía de Cuba**\
-`GAESA, uno de los principales blancos de la campaña de presión de Washington contra Cuba, es una turbia empresa estatal manejada por los militares del país que controla al menos 40 por ciento de la economía.`\
-https://www.nytimes.com/es/interactive/2026/05/16/espanol/america-latina/cuba-ejercito-economia-castro.html
 
