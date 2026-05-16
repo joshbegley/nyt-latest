@@ -1,3 +1,7 @@
+**The Law They Hate Was a High Point of Our History**\
+`The Voting Rights Act has more democratic legitimacy than the court that is trying to destroy it.`\
+https://www.nytimes.com/2026/05/16/opinion/voting-rights-act-supreme-court.html
+
 **Summer Is Coming!**\
 `And to welcome the season, we have 24 happy, must-make recipes, like Yewande Komolafe’s coconut-dill salmon with green beans and corn.`\
 https://www.nytimes.com/2026/05/16/dining/summer-is-coming.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/16/briefing/finishing-school.html
 **I Think Someone Is Living in the Storage Unit Next to Mine. What Should I Do?**\
 `I was so uncomfortable I just threw my things inside and left.`\
 https://www.nytimes.com/2026/05/16/magazine/living-in-storage-unit-ethics.html
-
-**Connections Companion No. 1,071**\
-`Scroll down for hints and conversation about the puzzle for Sunday, May 17, 2026.`\
-https://www.nytimes.com/2026/05/16/crosswords/connections-companion-1071.html
 
