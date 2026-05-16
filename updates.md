@@ -1,3 +1,7 @@
+**Félicien Kabuga Dies; Accused of Masterminding Rwanda’s Genocide**\
+`One of his country’s richest businessmen, he fled arrest and escaped prosecution for allegedly financing and directing the bloodletting that cost 800,000 lives in 1994.`\
+https://www.nytimes.com/2026/05/16/world/africa/felicien-kabuga-dead.html
+
 **Train Crashes Into Bangkok Traffic, Killing at Least 8 People**\
 `A freight train crashed into traffic on one of Bangkok’s busiest roads on Saturday. At least eight people were killed and dozens were injured, Thai officials said.`\
 https://www.nytimes.com/video/world/asia/100000010908241/bangkok-bus-train-crash.html

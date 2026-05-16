@@ -26,7 +26,7 @@ https://www.nytimes.com/video/nyregion/100000010908169/long-island-lirr-shuts-do
 ``\
 https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/eurovision-sweden-felicia
 
-**Félicien Kabuga Dies; an Accused Mastermind of Rwanda’s Genocide**\
+**Félicien Kabuga Dies; Accused of Masterminding Rwanda’s Genocide**\
 `One of his country’s richest businessmen, he fled arrest and escaped prosecution for allegedly financing and directing the bloodletting that cost 800,000 lives in 1994.`\
 https://www.nytimes.com/2026/05/16/world/africa/felicien-kabuga-dead.html
 
