@@ -1,3 +1,7 @@
+**U.S. Debt Is Now Bigger Than the Economy. That’s Not the Real Problem.**\
+`Washington quickly brushed off a startling milestone in a mounting problem.`\
+https://www.nytimes.com/2026/05/16/business/dealbook/debt-100-percent-gdp.html
+
 **China Will Host Putin, Days After Trump’s Visit**\
 `The Russian leader will go to Beijing on Tuesday for talks with President Xi Jinping. The Kremlin said he had watched President Trump’s visit closely.`\
 https://www.nytimes.com/2026/05/16/world/europe/putin-china-visit-trump.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/16/world/middleeast/settler-attacks-palestinians
 **Julieta Venegas regresa a casa con ‘Norteña’, su nuevo álbum**\
 `Tras una larga estadía en Argentina, la compositora mexicana está de vuelta en su país con una producción llena de referencias a Tijuana, la tierra que la vio crecer como artista.`\
 https://www.nytimes.com/es/2026/05/16/espanol/cultura/julieta-venegas-nuevo-album-nortena.html
-
-**Andie MacDowell Found Her Place on Kiawah Island**\
-`The actress on collecting shells and sterling silver and wearing Hermès scarves to the beach.`\
-https://www.nytimes.com/interactive/2026/05/16/realestate/andie-macdowell-home-tour.html
 
