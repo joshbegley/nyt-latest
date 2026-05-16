@@ -1,3 +1,7 @@
+**Man Stole Medieval Skull From Church and Sealed it in Concrete, Police Say**\
+`The man disagreed with the 800-year-old relic’s display in a church in the Czech Republic and planned to throw it into a river, police said.`\
+https://www.nytimes.com/2026/05/16/world/europe/czech-saint-skull-theft-stolen-church.html
+
 **All About the Blueberries**\
 `Berry season’s arrival demands Jordan Marsh’s blueberry muffins — I don’t make the rules.`\
 https://www.nytimes.com/2026/05/16/dining/all-about-the-blueberries.html
