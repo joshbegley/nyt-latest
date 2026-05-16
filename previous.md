@@ -1,3 +1,7 @@
+**Thousands of FiveThirtyEight Articles Seemingly Vanish From the Internet**\
+`The influential polling analysis site was shut down last year, but an earlier archived version, fivethirtyeight.com, had lived on. Now the site is redirecting users to ABC News.`\
+https://www.nytimes.com/2026/05/16/business/media/fivethirtyeight-abc-removed.html
+
 **Double Meanings**\
 `Derrick Niederman drops a heavy-duty Sunday crossword on us.`\
 https://www.nytimes.com/2026/05/16/crosswords/daily-puzzle-2026-05-17.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/16/weather/storm-tornado-forecast-nebraska-minne
 **A Danish theater kid thinks the omens are good for him.**\
 ``\
 https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/denmark-eurovision-soren
-
-**Mamdani’s Nakba Day Social Media Post Marks Shift for N.Y.C. Mayors**\
-`Pro-Palestinian New Yorkers celebrated Mayor Zohran Mamdani’s decision to post about the Palestinians’ day of remembrance, but the move was criticized by some Jewish leaders.`\
-https://www.nytimes.com/2026/05/16/nyregion/nakba-video-mamdani-nyc.html
 
