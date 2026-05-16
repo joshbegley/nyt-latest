@@ -1,3 +1,11 @@
+**OpenAI Bought Company That Offered A.I. Tools for Cloning Voices**\
+`The acquisition, Weights.gg, was a sort of social network for creating and sharing artificial intelligence algorithms.`\
+https://www.nytimes.com/2026/05/15/technology/openai-weightsgg-voice-cloning.html
+
+**Top Drug Regulator Is Fired From the F.D.A.**\
+`Dr. Tracy Beth Hoeg said she did not know who had fired her or why, but the dismissal came amid tumult at the agency in recent days.`\
+https://www.nytimes.com/2026/05/15/us/politics/fda-drug-regulator-fired.html
+
 **F.A.A. Says Better Scheduling Can Address Air Traffic Control Staffing Issues**\
 `In a new report, the F.A.A. says that by increasing controllers’ active work hours per shift, it could reduce its target for a fully staffed work force by over 2,000 positions.`\
 https://www.nytimes.com/2026/05/15/us/politics/faa-air-traffic-control-staffing.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/15/us/claudine-longet-dead.html
 **Will the Iran War Backlash Save an Anti-Trump Republican?**\
 `A view from Thomas Massie’s district in Kentucky.`\
 https://www.nytimes.com/2026/05/15/us/politics/thomas-massie-kentucky-iran.html
-
-**A ‘Summer Surge’ of Law Enforcement Is Planned for D.C., Officials Say**\
-`Federal officials say that hundreds of additional agents, officers and National Guard troops will be deployed ahead of the nation’s 250th birthday celebration.`\
-https://www.nytimes.com/2026/05/15/us/politics/law-enforcement-agents-washington-dc.html
-
-**With Possible Raúl Castro Indictment, U.S. Eyes Venezuela Playbook**\
-`Amid stepped-up surveillance flights, a visit of the C.I.A. director and an energy embargo, the White House is trying to increase pressure on Cuba.`\
-https://www.nytimes.com/2026/05/15/us/politics/trump-cuba-pressue-castro.html
 
