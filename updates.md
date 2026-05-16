@@ -1,3 +1,11 @@
+**Summer Is Coming!**\
+`And to welcome the season, we have 24 happy, must-make recipes, like Yewande Komolafe’s coconut-dill salmon with green beans and corn.`\
+https://www.nytimes.com/2026/05/16/dining/summer-is-coming.html
+
+**Train Crashes Into Bangkok Traffic, Killing at Least 8**\
+`A freight train plowed into traffic on train tracks, starting a fire. The authorities did not immediately give a cause but said a barrier had not come down.`\
+https://www.nytimes.com/2026/05/16/world/europe/bangkok-bus-train-crash.html
+
 **Man Stole Medieval Skull From Church and Sealed it in Concrete, Police Say**\
 `The man disagreed with the 800-year-old relic’s display in a church in the Czech Republic and planned to throw it into a river, police said.`\
 https://www.nytimes.com/2026/05/16/world/europe/czech-saint-skull-theft-stolen-church.html
