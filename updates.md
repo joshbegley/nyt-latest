@@ -1,3 +1,11 @@
+**Mamdani’s Nakba Day Social Media Post Marks Shift for N.Y.C. Mayors**\
+`Pro-Palestinian New Yorkers celebrated Mayor Zohran Mamdani’s decision to post about the Palestinians’ day of remembrance, but the move was criticized by some Jewish leaders.`\
+https://www.nytimes.com/2026/05/16/nyregion/nakba-video-mamdani-nyc.html
+
+**Who is JJ? Last year’s winner starts the show with a pop/opera mix.**\
+``\
+https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/who-is-jj-last-years-winner-starts-the-show-with-a-pop-opera-mix
+
 **Car Plows Into Pedestrians in Northern Italian Town, Injuring at Least 8**\
 `Four of the injured were in serious condition, the mayor of Modena said, praising residents who rushed to stop the car’s driver from escaping on foot.`\
 https://www.nytimes.com/2026/05/16/world/europe/car-crash-modena-italy.html

@@ -1,3 +1,11 @@
+**Mamdani’s Nakba Day Social Media Post Marks Shift for N.Y.C. Mayors**\
+`Pro-Palestinian New Yorkers celebrated Mayor Zohran Mamdani’s decision to post about the Palestinians’ day of remembrance, but the move was criticized by some Jewish leaders.`\
+https://www.nytimes.com/2026/05/16/nyregion/nakba-video-mamdani-nyc.html
+
+**Who is JJ? Last year’s winner starts the show with a pop/opera mix.**\
+``\
+https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/who-is-jj-last-years-winner-starts-the-show-with-a-pop-opera-mix
+
 **Car Plows Into Pedestrians in Northern Italian Town, Injuring at Least 8**\
 `Four of the injured were in serious condition, the mayor of Modena said, praising residents who rushed to stop the car’s driver from escaping on foot.`\
 https://www.nytimes.com/2026/05/16/world/europe/car-crash-modena-italy.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/16/dining/summer-is-coming.html
 **Train Crashes Into Bangkok Traffic, Killing at Least 8**\
 `A freight train plowed into traffic on train tracks, starting a fire. The authorities did not immediately give a cause but said a barrier had not come down.`\
 https://www.nytimes.com/2026/05/16/world/asia/bangkok-bus-train-crash.html
-
-**Man Stole Medieval Skull From Church and Sealed it in Concrete, Police Say**\
-`The man disagreed with the 800-year-old relic’s display in a church in the Czech Republic and planned to throw it into a river, police said.`\
-https://www.nytimes.com/2026/05/16/world/europe/czech-saint-skull-theft-stolen-church.html
-
-**All About the Blueberries**\
-`Berry season’s arrival demands Jordan Marsh’s blueberry muffins — I don’t make the rules.`\
-https://www.nytimes.com/2026/05/16/dining/all-about-the-blueberries.html
 

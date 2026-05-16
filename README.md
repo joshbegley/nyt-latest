@@ -1,3 +1,7 @@
+**A Danish theater kid thinks the omens are good for him.**\
+``\
+https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/denmark-eurovision-soren
+
 **Mamdani’s Nakba Day Social Media Post Marks Shift for N.Y.C. Mayors**\
 `Pro-Palestinian New Yorkers celebrated Mayor Zohran Mamdani’s decision to post about the Palestinians’ day of remembrance, but the move was criticized by some Jewish leaders.`\
 https://www.nytimes.com/2026/05/16/nyregion/nakba-video-mamdani-nyc.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/16/opinion/voting-rights-act-supreme-court.html
 **Summer Is Coming!**\
 `And to welcome the season, we have 24 happy, must-make recipes, like Yewande Komolafe’s coconut-dill salmon with green beans and corn.`\
 https://www.nytimes.com/2026/05/16/dining/summer-is-coming.html
-
-**Train Crashes Into Bangkok Traffic, Killing at Least 8**\
-`A freight train plowed into traffic on train tracks, starting a fire. The authorities did not immediately give a cause but said a barrier had not come down.`\
-https://www.nytimes.com/2026/05/16/world/asia/bangkok-bus-train-crash.html
 
