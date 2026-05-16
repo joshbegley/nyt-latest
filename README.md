@@ -1,3 +1,7 @@
+**Man Stole Medieval Skull From Church and Sealed it in Concrete, Police Say**\
+`The man disagreed with the 800-year-old relic’s display in a church in the Czech Republic and planned to throw it into a river, police said.`\
+https://www.nytimes.com/2026/05/16/world/europe/czech-saint-skull-theft-stolen-church.html
+
 **All About the Blueberries**\
 `Berry season’s arrival demands Jordan Marsh’s blueberry muffins — I don’t make the rules.`\
 https://www.nytimes.com/2026/05/16/dining/all-about-the-blueberries.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/16/crosswords/wordle-review-1793.html
 **Strands Sidekick No. 805**\
 `Scroll down for hints and conversation about the puzzle for Sunday, May 17, 2026.`\
 https://www.nytimes.com/2026/05/16/crosswords/strands-sidekick-805.html
-
-**How a Times Reporter Found Cartel Gold at the Royal Canadian Mint**\
-`A conversation with Justin Scheck, who found that illegal Colombian gold transformed into legal North American gold through bureaucratic sleights of hand, and ended up in Canada.`\
-https://www.nytimes.com/2026/05/16/world/canada/cartel-gold-royal-canadian-mint.html
 
