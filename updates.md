@@ -1,3 +1,11 @@
+**OpenAI Bought Company That Offered A.I. Tools for Cloning Voices**\
+`The acquisition, Weights.gg, was a sort of social network for creating and sharing artificial intelligence algorithms.`\
+https://www.nytimes.com/2026/05/15/technology/openai-weightsgg-voice-cloning.html
+
+**Top Drug Regulator Is Fired From the F.D.A.**\
+`Dr. Tracy Beth Hoeg said she did not know who had fired her or why, but the dismissal came amid tumult at the agency in recent days.`\
+https://www.nytimes.com/2026/05/15/us/politics/fda-drug-regulator-fired.html
+
 **F.A.A. Says Better Scheduling Can Address Air Traffic Control Staffing Issues**\
 `In a new report, the F.A.A. says that by increasing controllers’ active work hours per shift, it could reduce its target for a fully staffed work force by over 2,000 positions.`\
 https://www.nytimes.com/2026/05/15/us/politics/faa-air-traffic-control-staffing.html
