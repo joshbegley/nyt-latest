@@ -1,3 +1,7 @@
+**China Will Host Putin, Days After Trump’s Visit**\
+`The Russian leader will go to Beijing on Tuesday for talks with President Xi Jinping. The Kremlin said he had watched President Trump’s visit closely.`\
+https://www.nytimes.com/2026/05/16/world/europe/putin-china-visit-trump.html
+
 **CBS Will Miss Colbert When He’s Gone**\
 `In shutting down a 33-year late-night franchise, CBS is assenting to its own diminishment.`\
 https://www.nytimes.com/2026/05/16/opinion/stephen-colbert-late-show-cbs.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/05/16/espanol/cultura/julieta-venegas-nuevo-albu
 **Andie MacDowell Found Her Place on Kiawah Island**\
 `The actress on collecting shells and sterling silver and wearing Hermès scarves to the beach.`\
 https://www.nytimes.com/interactive/2026/05/16/realestate/andie-macdowell-home-tour.html
-
-**Rubio, Once a China Hawk, Strikes Softer Tone to Align With Trump**\
-`As a senator, Marco Rubio even hinted at the need for regime change in China. Now he talks about cooperation.`\
-https://www.nytimes.com/2026/05/16/us/politics/rubio-china-trump-trip.html
 
