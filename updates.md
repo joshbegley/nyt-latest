@@ -1,3 +1,15 @@
+**Voters in Louisiana Head to the Polls, Uncertain but Determined**\
+`Votes cast for the House candidates on Saturday’s primary ballot won’t count after state officials moved the election to November to provide time to redraw congressional maps.`\
+https://www.nytimes.com/2026/05/16/us/voters-louisiana-primary-gerrymander.html
+
+**Vienna has a rich pop music scene, and it isn’t just ‘Rock Me Amadeus.’**\
+``\
+https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/vienna-has-a-rich-pop-music-scene-and-it-isnt-just-rock-me-amadeus
+
+**Fears Grow That Iran May Be Using Proxy Groups Beyond Mideast**\
+`The charges against Mohammad al-Saadi in the United States have raised concerns that Iran could be working with its proxies to stage attacks outside the region.`\
+https://www.nytimes.com/2026/05/16/world/middleeast/iran-proxy-groups-us.html
+
 **At Supreme Court, Virginia Democrats Pressed Legal Theory Embraced by Trump**\
 `A long-shot emergency request to restore a voting map was the latest salvo in an all-out legal war over control of the House.`\
 https://www.nytimes.com/2026/05/16/us/at-supreme-court-virginia-democrats-pressed-legal-theory-embraced-by-trump.html
