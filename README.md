@@ -1,80 +1,80 @@
-**¿Fui una hija horrible o una simplemente honesta?**\
-`Necesitaba distancia para escribir con honestidad sobre mi infancia. Pero la ficción no nos protegió del dolor.`\
-https://www.nytimes.com/es/2026/05/16/espanol/estilos-de-vida/escritora-ficcion-realidad-madre.html
+**Graham Platner’s Plan to Dethrone Susan Collins — and the Establishment**\
+`The presumptive Democratic Senate nominee from Maine enters the general election fray. `\
+https://www.nytimes.com/2026/05/16/magazine/graham-platner-interview.html
 
-**Xi plantea una ‘estabilidad estratégica constructiva’ para evitar una colisión con EE. UU.**\
-`Xi Jinping se ha pasado el último año haciendo frente al presidente Donald Trump. Ahora, tras dejar clara su posición y establecer a China como par de Estados Unidos, se está enfocando en redefinir su relación.`\
-https://www.nytimes.com/es/2026/05/16/espanol/mundo/xi-trump-relacion-china-eeuu.html
+**They Fled to Safety in Palestinian Territory, Then Settlers Attacked Again**\
+`Violent settlers are not merely clearing Palestinians from land under Israel’s control. They are attacking areas where Israel agreed to Palestinian self-governance.`\
+https://www.nytimes.com/2026/05/16/world/middleeast/settler-attacks-palestinians-west-bank.html
 
-**Este truco mental puede ayudarte a hacer más ejercicio**\
-`Tratar de cumplir con la filosofía de “todo o nada” puede impedirte lograr tus metas. Aquí te decimos qué puedes hacer en lugar de eso.`\
-https://www.nytimes.com/es/2026/05/16/espanol/truco-mental-ejercicio.html
+**Julieta Venegas regresa a casa con ‘Norteña’, su nuevo álbum**\
+`Tras una larga estadía en Argentina, la compositora mexicana está de vuelta en su país con una producción llena de referencias a Tijuana, la tierra que la vio crecer como artista.`\
+https://www.nytimes.com/es/2026/05/16/espanol/cultura/julieta-venegas-nuevo-album-nortena.html
 
-**La revolución de la IA te saturará de trabajo**\
-`Estamos ante un fenómeno similar a cuando el mundo conoció la lavadora automática: las lavanderas perdieron su trabajo y tú te convertiste en la lavandera.`\
-https://www.nytimes.com/es/2026/05/16/espanol/opinion/ia-trabajo-empleo.html
+**Andie MacDowell Found Her Place on Kiawah Island**\
+`The actress on collecting shells and sterling silver and wearing Hermès scarves to the beach.`\
+https://www.nytimes.com/interactive/2026/05/16/realestate/andie-macdowell-home-tour.html
 
-**Trump Says a Top ISIS Leader Was Killed in a U.S.-Nigerian Mission**\
-`The leader, whom the State Department designated a terrorist in 2023, had been hiding in Africa, President Trump said.`\
-https://www.nytimes.com/2026/05/16/world/africa/trump-isis-nigeria-al-minuki.html
+**Rubio, Once a China Hawk, Strikes Softer Tone to Align With Trump**\
+`As a senator, Marco Rubio even hinted at the need for regime change in China. Now he talks about cooperation.`\
+https://www.nytimes.com/2026/05/16/us/politics/rubio-china-trump-trip.html
 
-**Latest Weinstein Trial May Have Been ‘Best Shot,’ Former Prosecutors Say**\
-`The Manhattan district attorney said he was considering whether he would ask a jury to consider a rape charge against Harvey Weinstein for a fourth time after a mistrial on Friday.`\
-https://www.nytimes.com/2026/05/16/nyregion/latest-weinstein-trial-may-have-been-best-shot-former-prosecutors-say.html
+**Did You Share a Chin Close-Up? What to Know About Instagram Instants.**\
+`Instagram’s new feature blasts photos to your mutual followers or close friends, immediately.`\
+https://www.nytimes.com/2026/05/16/technology/instagram-instants-feature.html
 
-**Este reto de 4 semanas te ayudará a dejar el teléfono**\
-`Puede que incluso pases más tiempo al aire libre.`\
-https://www.nytimes.com/es/2026/05/16/espanol/como-dejar-celular-telefono-movil.html
+**What to Watch in Saturday’s Republican Senate Primary in Louisiana**\
+`Senator Bill Cassidy, who has drawn President Trump’s ire, is fighting for political survival.`\
+https://www.nytimes.com/2026/05/16/us/politics/what-to-watch-louisiana-senate-primary.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/05/16/crosswords/spelling-bee-forum.html
+**London Prepares for Rival Protests, With a Major Security Effort**\
+`The police will deploy thousands of officers, partly to keep far-right and pro-Palestinian marchers separated. The opposing events are expected to draw tens of thousands of people to London.`\
+https://www.nytimes.com/2026/05/16/world/europe/london-rival-protests.html
 
-**What’s on an Octogenarian’s Bucket List? A Tugboat Ride.**\
-`Older Americans are getting a chance to do something they’ve always wanted through programs designed to make dreams — from drinking soda to skydiving — come true.`\
-https://www.nytimes.com/2026/05/16/nyregion/older-adult-bucket-list-nyc.html
+**How Rihanna and Revenge Plots Inspired a Playwright to Turn Director**\
+`Aleshea Harris won acclaim for her drama “Is God Is.” When it came time for a film adaptation, she saw cinematic possibilities far beyond her play.`\
+https://www.nytimes.com/2026/05/16/movies/is-god-is-aleshea-harris.html
 
-**An Upper West Side Primary Presents a Test of Judaism and Politics**\
-`Stephanie Ruskay is seeking to become the first female rabbi to be elected to state office in New York, but the race may hinge on whether voters find her progressive enough.`\
-https://www.nytimes.com/2026/05/16/nyregion/ruskay-jewish-primary-northrup.html
+**9 Songs We’re Talking About This Week**\
+`Shakira and Burna Boy’s World Cup theme, Gracie Abrams’s anxious new single, Genesis Owusu’s latest rabble-rouser and more.`\
+https://www.nytimes.com/2026/05/16/arts/music/shakira-burna-boy-gracie-abrams-songs.html
 
-**Trump Turns Taiwan Arms Sales Into Bargaining Chip With China**\
-`The president said a potential arms deal for Taiwan was a “very good negotiating chip” in talks with Beijing. His words raise questions about the steadfastness of U.S. support.`\
-https://www.nytimes.com/2026/05/16/world/asia/trump-taiwan-arms-bargaining-chip-china.html
+**The Countries Profiting From the War Oil Shock, as Others Lose Out**\
+`An analysis of oil export data offers clues about which nations have benefited from higher prices, and which have lost a lot of revenue.`\
+https://www.nytimes.com/2026/05/16/business/energy-environment/iran-war-oil-countries-winners-losers.html
 
-**Long Island Rail Road Strike Shuts Down Busiest U.S. Passenger Rail Service**\
-`This is the first strike on the service in more than 30 years. It comes after three years of failed contract negotiations, two federal interventions and a volley of last-minute bargaining.`\
-https://www.nytimes.com/2026/05/16/nyregion/lirr-strike.html
+**The Secretive Conglomerate That Controls Cuba’s Economy**\
+`A shadowy state enterprise run by the military is a focal point of Washington's pressure campaign against Cuba.`\
+https://www.nytimes.com/interactive/2026/05/16/world/americas/cuba-military-conglomerate-gaesa-economy-explained.html
 
-**It’s Been a Wild Week in British Politics. What Happens Next?**\
-`Nobody has yet challenged Prime Minister Keir Starmer for the leadership, but his leading rival, Andy Burnham, finally has a route to Downing Street.`\
-https://www.nytimes.com/2026/05/16/world/europe/britain-politics-labour-whats-next.html
+**When a Seller Accepts an Offer, Can They Still Look for a Better Deal?**\
+`Sales contracts are tricky things. Each side of a deal has some leverage — but the seller has more.`\
+https://www.nytimes.com/2026/05/16/realestate/real-estate-offer-to-buy.html
 
-**Corrections: May 16, 2026**\
-`Corrections that appeared in print on Saturday, May 16, 2026.`\
-https://www.nytimes.com/2026/05/16/pageoneplus/corrections-may-16-2026.html
+**How a Nature Cruise Turned Into a Nightmare**\
+`The hantavirus outbreak on the MV Hondius set off alarms for a world still traumatized by Covid. For those on board, the danger was much closer.`\
+https://www.nytimes.com/2026/05/16/world/europe/hantavirus-hondius-cruise.html
 
-**Quote of the Day: From TV to T.P., Why Your Life Is Subscriptions**\
-`Quotation of the Day for Saturday, May 16, 2026.`\
-https://www.nytimes.com/2026/05/15/pageoneplus/quote-of-the-day-from-tv-to-tp-why-your-life-is-subscriptions.html
+**OpenAI and Khan Academy Made a Chatbot. What Can We Learn?**\
+`Inside a collaboration to bring artificial intelligence into the classroom.`\
+https://www.nytimes.com/2026/05/16/business/tyrangiel-ai-book-openai-khan-academy-khanmigo.html
 
-**In the Opera World, a Loss of More Than Just a Role**\
-`The coloratura soprano Rainelle Krause, who died in March, was one of the most sought after performers of Queen of the Night in ‘The Magic Flute.’`\
-https://www.nytimes.com/2026/05/15/arts/music/rainelle-krause-queen-night-soprano.html
+**Brides Are No Longer Tossing the Bouquet. They’re Keeping It.**\
+`Some newlyweds, rethinking an old custom that puts a premium on marriage, are making more sustainable arrangements.`\
+https://www.nytimes.com/2026/05/16/style/wedding-bouquets-preservation-crochet-beads-glass.html
 
-**Two Killed as Car Slams Into Crowd on Sidewalk in Manhattan**\
-`A black Mercedes S.U.V. smashed into two parked cars, crossed a bike lane and crashed into a crowd of people, coming to a stop against a parking meter.`\
-https://www.nytimes.com/2026/05/15/nyregion/fatal-crash-nyc-upper-west-side.html
+**Neil deGrasse Tyson’s Ode to Aliens Fails to Launch**\
+`The popular astrophysicist can be witty and informative when making science accessible. You wouldn’t know it from his new book, “Take Me to Your Leader.”`\
+https://www.nytimes.com/2026/05/16/books/review/take-me-to-your-leader-neil-degrasse-tyson.html
 
-**Triumphs Smoothly**\
-`Byron Walden’s latest themeless puzzle is a tough torrent.`\
-https://www.nytimes.com/2026/05/15/crosswords/daily-puzzle-2026-05-16.html
+**On Capitol Hill, a Sexual Harassment ‘Minefield’ Persists**\
+`Nearly 10 years after Congress instituted measures to make it easier for women to lodge harassment complaints, lawmakers and aides say the behavior is still rampant.`\
+https://www.nytimes.com/2026/05/16/us/politics/on-capitol-hill-a-sexual-harassment-minefield-persists.html
 
-**Plot Was ‘Targeting Heart’ of New York’s Jewish Community, Tisch Says**\
-`Police Commissioner Jessica S. Tisch spoke after prosecutors said they had arrested a man planning to attack a Manhattan synagogue.`\
-https://www.nytimes.com/2026/05/15/nyregion/nypd-synagogue-terror-plot-nyc.html
+**How a ‘Model’ for Climate Migration Became a Cautionary Tale**\
+`The residents of Isle de Jean Charles in Louisiana found safety after moving to higher ground. But the experience left some of them warning others facing relocation: ‘Don’t do it.’`\
+https://www.nytimes.com/2026/05/16/climate/isle-jean-charles-relocation.html
 
-**Catholic Clergy Can Minister Within ICE Facility After a Legal Agreement**\
-`Several clergy members and an advocacy group had sued the Trump administration, arguing that they were unlawfully denied access to detainees at an Illinois facility.`\
-https://www.nytimes.com/2026/05/15/us/catholic-clergy-ice-illinois-trump.html
+**Sarah Sherman Took Lessons on Screaming**\
+`The “S.N.L.” comedian went to a coach who “taught all these famous screamo singing metal guys how to scream without hurting themselves.”`\
+https://www.nytimes.com/2026/05/16/arts/television/sarah-sherman-saturday-night-live.html
 
