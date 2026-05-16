@@ -1,3 +1,7 @@
+**Car Plows Into Pedestrians in Northern Italian Town, Injuring at Least 8**\
+`Four of the injured were in serious condition, the mayor of Modena said, praising residents who rushed to stop the car’s driver from escaping on foot.`\
+https://www.nytimes.com/2026/05/16/world/europe/car-crash-modena-italy.html
+
 **Voters in Louisiana Head to the Polls, Uncertain but Determined**\
 `Votes cast for the House candidates on Saturday’s primary ballot won’t count after state officials moved the election to November to provide time to redraw congressional maps.`\
 https://www.nytimes.com/2026/05/16/us/voters-louisiana-primary-gerrymander.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/16/world/europe/czech-saint-skull-theft-stolen-c
 **All About the Blueberries**\
 `Berry season’s arrival demands Jordan Marsh’s blueberry muffins — I don’t make the rules.`\
 https://www.nytimes.com/2026/05/16/dining/all-about-the-blueberries.html
-
-**Cómo tener una conversación difícil**\
-`Las conversaciones complicadas son menos intimidantes si tenemos claros los pasos a seguir. Algunos expertos compartieron sus estrategias personales.`\
-https://www.nytimes.com/es/2026/05/16/espanol/como-tener-conversaciones-dificiles.html
 
