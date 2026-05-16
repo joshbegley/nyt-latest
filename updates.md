@@ -1,3 +1,7 @@
+**Woman Gives Birth to a ‘Bouncing Baby Boy’ in Brooklyn Courtroom**\
+`A court officer delivered the newborn after a woman who was nine months pregnant appeared in court on low-level charges.`\
+https://www.nytimes.com/2026/05/16/nyregion/birth-courtroom-baby-nyc.html
+
 **Who Is JJ? The 2025 Winner Starts the Eurovision Final With a Pop/Opera Mix.**\
 `JJ, from Austria, kicked off this year’s Eurovision grand final in Vienna, as the contest celebrates its 70th anniversary.`\
 https://www.nytimes.com/2026/05/16/arts/who-is-jj-austria.html
