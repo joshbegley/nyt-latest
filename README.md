@@ -1,3 +1,15 @@
+**Train Crashes Into Bangkok Traffic, Killing at Least 8 People**\
+`A freight train crashed into traffic on one of Bangkok’s busiest roads on Saturday. At least eight people were killed and dozens were injured, Thai officials said.`\
+https://www.nytimes.com/video/world/asia/100000010908241/bangkok-bus-train-crash.html
+
+**As the votes are cast, it’s a celebration of Eurovision’s 70th anniversary.**\
+``\
+https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/as-the-votes-are-cast-its-a-celebration-of-eurovisions-70th-anniversary
+
+**Car Rams into Pedestrians in Northern Italy, Injuring at Least 8**\
+`A driver rammed a car into a group of people on the main shopping street of Modena, in northern Italy. Four of the injured were in serious condition, the city’s mayor said.`\
+https://www.nytimes.com/video/world/europe/100000010908374/modena-italy-car-pedestrians-injured.html
+
 **Romania’s song gave us this year’s lyrics controversy.**\
 ``\
 https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/eurovision-romania-choke-me-anxiety-lyrics
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/16/arts/who-is-jj-austria.html
 **Car Plows Into Pedestrians in Northern Italian Town, Injuring at Least 8**\
 `Four of the injured were in serious condition, the mayor of Modena said, praising residents who rushed to stop the car’s driver from escaping on foot.`\
 https://www.nytimes.com/2026/05/16/world/europe/car-crash-modena-italy.html
-
-**Voters in Louisiana Head to the Polls, Uncertain but Determined**\
-`Votes cast for the House candidates on Saturday’s primary ballot won’t count after state officials moved the election to November to provide time to redraw congressional maps.`\
-https://www.nytimes.com/2026/05/16/us/voters-louisiana-primary-gerrymander.html
-
-**Vienna has a rich pop music scene, and it isn’t just ‘Rock Me Amadeus.’**\
-``\
-https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/vienna-has-a-rich-pop-music-scene-and-it-isnt-just-rock-me-amadeus
-
-**Why are five countries skipping Eurovision, and does it matter?**\
-``\
-https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/eurovision-boycott
 
