@@ -1,3 +1,7 @@
+**Finishing School**\
+`It’s graduation season, a time of aspiration and anxiety. Today is about the aspiration — the wisdom to be gleaned from great commencement addresses.`\
+https://www.nytimes.com/2026/05/16/briefing/finishing-school.html
+
 **I Think Someone Is Living in the Storage Unit Next to Mine. What Should I Do?**\
 `I was so uncomfortable I just threw my things inside and left.`\
 https://www.nytimes.com/2026/05/16/magazine/living-in-storage-unit-ethics.html
