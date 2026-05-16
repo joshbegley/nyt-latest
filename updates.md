@@ -1,3 +1,15 @@
+**Fears Grow That Iran May Be Using Proxy Groups Beyond Mideast**\
+`The arrest of Mohammad al-Saadi in the United States on Friday has raised concerns that Iran could be working with its proxies to stage attacks outside the region.`\
+https://www.nytimes.com/2026/05/16/world/middleeast/iran-proxy-groups-us.html
+
+**How a few hundred voters could have swayed Eurovision results.**\
+``\
+https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/how-a-few-hundred-voters-could-have-swayed-eurovision-results
+
+**El conglomerado hermético que controla la economía de Cuba**\
+`GAESA, uno de los principales blancos de la campaña de presión de Washington contra Cuba, es una turbia empresa estatal manejada por los militares del país que controla al menos 40 por ciento de la economía.`\
+https://www.nytimes.com/es/interactive/2026/05/16/espanol/america-latina/cuba-ejercito-economia-castro.html
+
 **Who’ll take the Eurovision title? Prediction markets give some clues.**\
 ``\
 https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/eurovision-favorites-betting-prediction-markets
