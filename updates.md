@@ -1,3 +1,7 @@
+**¿Fui una hija horrible o una simplemente honesta?**\
+`Necesitaba distancia para escribir con honestidad sobre mi infancia. Pero la ficción no nos protegió del dolor.`\
+https://www.nytimes.com/es/2026/05/16/espanol/estilos-de-vida/escritora-ficcion-realidad-madre.html
+
 **Xi plantea una ‘estabilidad estratégica constructiva’ para evitar una colisión con EE. UU.**\
 `Xi Jinping se ha pasado el último año haciendo frente al presidente Donald Trump. Ahora, tras dejar clara su posición y establecer a China como par de Estados Unidos, se está enfocando en redefinir su relación.`\
 https://www.nytimes.com/es/2026/05/16/espanol/mundo/xi-trump-relacion-china-eeuu.html

@@ -1,3 +1,7 @@
+**¿Fui una hija horrible o una simplemente honesta?**\
+`Necesitaba distancia para escribir con honestidad sobre mi infancia. Pero la ficción no nos protegió del dolor.`\
+https://www.nytimes.com/es/2026/05/16/espanol/estilos-de-vida/escritora-ficcion-realidad-madre.html
+
 **Xi plantea una ‘estabilidad estratégica constructiva’ para evitar una colisión con EE. UU.**\
 `Xi Jinping se ha pasado el último año haciendo frente al presidente Donald Trump. Ahora, tras dejar clara su posición y establecer a China como par de Estados Unidos, se está enfocando en redefinir su relación.`\
 https://www.nytimes.com/es/2026/05/16/espanol/mundo/xi-trump-relacion-china-eeuu.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/15/nyregion/nypd-synagogue-terror-plot-nyc.html
 **Catholic Clergy Can Minister Within ICE Facility After a Legal Agreement**\
 `Several clergy members and an advocacy group had sued the Trump administration, arguing that they were unlawfully denied access to detainees at an Illinois facility.`\
 https://www.nytimes.com/2026/05/15/us/catholic-clergy-ice-illinois-trump.html
-
-**EE. UU. contempla la posible imputación de Raúl Castro**\
-`En medio de un aumento de los vuelos de vigilancia, una visita del director de la CIA y un embargo energético, la Casa Blanca intenta aumentar la presión sobre Cuba.`\
-https://www.nytimes.com/es/2026/05/15/espanol/estados-unidos/imputacion-raul-castro-cuba.html
 
