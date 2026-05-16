@@ -1,3 +1,11 @@
+**Who’ll take the Eurovision title? Prediction markets give some clues.**\
+``\
+https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/eurovision-favorites-betting-prediction-markets
+
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/eurovision-song-contest-2026
+
 **The Law They Hate Was a High Point of Our History**\
 `The Voting Rights Act has more democratic legitimacy than the court that is trying to destroy it.`\
 https://www.nytimes.com/2026/05/16/opinion/voting-rights-act-supreme-court.html
@@ -8,7 +16,7 @@ https://www.nytimes.com/2026/05/16/dining/summer-is-coming.html
 
 **Train Crashes Into Bangkok Traffic, Killing at Least 8**\
 `A freight train plowed into traffic on train tracks, starting a fire. The authorities did not immediately give a cause but said a barrier had not come down.`\
-https://www.nytimes.com/2026/05/16/world/europe/bangkok-bus-train-crash.html
+https://www.nytimes.com/2026/05/16/world/asia/bangkok-bus-train-crash.html
 
 **Man Stole Medieval Skull From Church and Sealed it in Concrete, Police Say**\
 `The man disagreed with the 800-year-old relic’s display in a church in the Czech Republic and planned to throw it into a river, police said.`\
@@ -69,12 +77,4 @@ https://www.nytimes.com/video/opinion/100000010904188/the-great-political-realig
 **Aliens Abducted His Husband. Now What?**\
 `Steven Rowley’s new novel, “Take Me With You,” asks who we are without our partners.`\
 https://www.nytimes.com/2026/05/16/books/review/take-me-with-you-steven-rowley.html
-
-**Finishing School**\
-`It’s graduation season, a time of aspiration and anxiety. Today is about the aspiration — the wisdom to be gleaned from great commencement addresses.`\
-https://www.nytimes.com/2026/05/16/briefing/finishing-school.html
-
-**I Think Someone Is Living in the Storage Unit Next to Mine. What Should I Do?**\
-`I was so uncomfortable I just threw my things inside and left.`\
-https://www.nytimes.com/2026/05/16/magazine/living-in-storage-unit-ethics.html
 
