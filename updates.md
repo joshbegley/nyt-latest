@@ -1,3 +1,7 @@
+**At Supreme Court, Virginia Democrats Pressed Legal Theory Embraced by Trump**\
+`A long-shot emergency request to restore a voting map was the latest salvo in an all-out legal war over control of the House.`\
+https://www.nytimes.com/2026/05/16/us/at-supreme-court-virginia-democrats-pressed-legal-theory-embraced-by-trump.html
+
 **Why are five countries skipping Eurovision, and does it matter?**\
 ``\
 https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/eurovision-boycott
