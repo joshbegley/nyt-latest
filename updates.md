@@ -1,3 +1,11 @@
+**Australia’s strategy: Go big. On everything.**\
+``\
+https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/australian-eurovison-delta-goodrem-eclipse
+
+**Who Is JJ? The 2025 Winner Starts the Eurovision Final With a Pop/Opera Mix.**\
+`JJ, from Austria, kicked off this year’s Eurovision grand final in Vienna as the contest celebrates its 70th anniversary.`\
+https://www.nytimes.com/2026/05/16/arts/who-is-jj-austria.html
+
 **Greece’s Akylas wants it all.**\
 ``\
 https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/greece-akylas-ferto-eurovision

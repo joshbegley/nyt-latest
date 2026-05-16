@@ -27,7 +27,7 @@ https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/denmar
 https://www.nytimes.com/2026/05/16/nyregion/nakba-video-mamdani-nyc.html
 
 **Who Is JJ? The 2025 Winner Starts the Eurovision Final With a Pop/Opera Mix.**\
-`JJ, from Austria, kicked off this year’s Eurovision grand final in Vienna as the contest celebrates its 70th anniversary.`\
+`JJ, from Austria, kicked off this year’s Eurovision grand final in Vienna, as the contest celebrates its 70th anniversary.`\
 https://www.nytimes.com/2026/05/16/arts/who-is-jj-austria.html
 
 **Car Plows Into Pedestrians in Northern Italian Town, Injuring at Least 8**\
