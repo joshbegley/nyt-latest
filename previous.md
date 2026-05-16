@@ -1,3 +1,19 @@
+**Louisiana Primary Election Results**\
+`Get live results and maps from the 2026 Louisiana primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-louisiana-primary.html
+
+**At Supreme Court, Virginia Democrats Pressed Legal Theory Embraced by Trump**\
+`A long-shot emergency request to restore a voting map was the latest salvo in all-out legal war over control of the House.`\
+https://www.nytimes.com/2026/05/16/us/at-supreme-court-virginia-democrats-pressed-legal-theory-embraced-by-trump.html
+
+**Louisiana U.S. Senate Primary Election Results**\
+`Get live results and maps from the 2026 Louisiana primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-louisiana-us-senate-primary.html
+
+**A Times investigation tracked Israel’s efforts to gain soft power from Eurovision.**\
+``\
+https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/a-times-investigation-tracked-israels-efforts-to-gain-soft-power-from-eurovision
+
 **Trump Calls Xi a ‘Friend.’ But He Left China Without Any Breakthroughs.**\
 `The lack of concrete agreements with Beijing shows the risks of President Trump’s personality-driven foreign policy, which rests on the belief that he can defend U.S. interests through charm and force of will.`\
 https://www.nytimes.com/2026/05/16/world/europe/trump-calls-xi-a-friend-but-he-left-china-without-any-breakthroughs.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/05/16/business/dealbook/debt-100-percent-gdp.html
 **China Will Host Putin, Days After Trump’s Visit**\
 `The Russian leader will go to Beijing on Tuesday for talks with President Xi Jinping. The Kremlin said he had watched President Trump’s visit closely.`\
 https://www.nytimes.com/2026/05/16/world/europe/putin-china-visit-trump.html
-
-**CBS Cancels Itself, Not Just Colbert**\
-`In shutting down a 33-year late-night franchise, CBS is assenting to its own diminishment.`\
-https://www.nytimes.com/2026/05/16/opinion/stephen-colbert-late-show-cbs.html
-
-**Is America in Decline and China Rising? Not for Long.**\
-`Does Xi Jinping see the world this way?`\
-https://www.nytimes.com/2026/05/16/opinion/america-china-xi-peak.html
-
-**The Great Political Realignment of 2026**\
-`The country seems to be tiring of the Trump era. Now what?`\
-https://www.nytimes.com/2026/05/16/opinion/supreme-court-midterms-politics.html
-
-**What A.I. Kant Do**\
-`Could we English majors have a future after all?`\
-https://www.nytimes.com/2026/05/16/opinion/ai-liberal-arts.html
 
