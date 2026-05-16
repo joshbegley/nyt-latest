@@ -1,3 +1,7 @@
+**Why Were These C.E.O.s in Beijing With Trump?**\
+`Some of America’s most powerful C.E.O.s accompanied President Trump to Beijing during his summit with President Xi Jinping of China. Our reporter Ana Swanson explains what they were hoping to gain from the trip.`\
+https://www.nytimes.com/video/us/politics/100000010906537/why-were-these-ceos-in-beijing-with-trump.html
+
 **OpenAI Bought Company That Offered A.I. Tools for Cloning Voices**\
 `The acquisition, Weights.gg, was a sort of social network for creating and sharing artificial intelligence algorithms.`\
 https://www.nytimes.com/2026/05/15/technology/openai-weightsgg-voice-cloning.html

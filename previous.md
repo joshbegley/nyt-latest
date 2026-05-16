@@ -1,3 +1,7 @@
+**Why Were These C.E.O.s in Beijing With Trump?**\
+`Some of America’s most powerful C.E.O.s accompanied President Trump to Beijing during his summit with President Xi Jinping of China. Our reporter Ana Swanson explains what they were hoping to gain from the trip.`\
+https://www.nytimes.com/video/us/politics/100000010906537/why-were-these-ceos-in-beijing-with-trump.html
+
 **OpenAI Bought Company That Offered A.I. Tools for Cloning Voices**\
 `The acquisition, Weights.gg, was a sort of social network for creating and sharing artificial intelligence algorithms.`\
 https://www.nytimes.com/2026/05/15/technology/openai-weightsgg-voice-cloning.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/opinion/100000010906723/you-should-sit-with-boredo
 **Claudine Longet, Entertainer Who Shot Olympian Boyfriend, Dies at 84**\
 `A singer and actress, she drew wide attention for the fatal 1976 shooting of Spider Sabich. She was convicted of negligent homicide.`\
 https://www.nytimes.com/2026/05/15/us/claudine-longet-dead.html
-
-**Will the Iran War Backlash Save an Anti-Trump Republican?**\
-`A view from Thomas Massie’s district in Kentucky.`\
-https://www.nytimes.com/2026/05/15/us/politics/thomas-massie-kentucky-iran.html
 
