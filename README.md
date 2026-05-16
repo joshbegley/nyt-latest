@@ -1,3 +1,39 @@
+**CBS Will Miss Colbert When He’s Gone**\
+`In shutting down a 33-year late-night franchise, CBS is assenting to its own diminishment.`\
+https://www.nytimes.com/2026/05/16/opinion/stephen-colbert-late-show-cbs.html
+
+**China’s Peak Is Now**\
+`Does Xi Jinping see the world this way?`\
+https://www.nytimes.com/2026/05/16/opinion/america-china-xi-peak.html
+
+**The Great Political Realignment of 2026**\
+`The country seems to be tiring of the Trump era. Now what?`\
+https://www.nytimes.com/2026/05/16/opinion/supreme-court-midterms-politics.html
+
+**What A.I. Kant Do**\
+`Could we English majors have a future after all?`\
+https://www.nytimes.com/2026/05/16/opinion/ai-liberal-arts.html
+
+**Trump Is the President of Lost Opportunities**\
+`We are in a moment when we need to build and think to the future.`\
+https://www.nytimes.com/2026/05/16/opinion/trump-lost-opportunities.html
+
+**Why So Many TV Bad Guys Come From Long Island**\
+`I noticed that a lot of TV villains come from the town I grew up in. I wasn’t surprised.`\
+https://www.nytimes.com/2026/05/16/opinion/long-island-tv-villains-politics.html
+
+**Why Does Health Care Cost So Much?**\
+`Readers, including health professionals, offer their analyses.`\
+https://www.nytimes.com/2026/05/16/opinion/health-care-costs.html
+
+**The Great Political Realignment of 2026**\
+`The country seems to be tiring of the Trump era. Now what?`\
+https://www.nytimes.com/video/opinion/100000010904188/the-great-political-realignment-of-2026.html
+
+**Aliens Abducted His Husband. Now What?**\
+`Steven Rowley’s new novel, “Take Me With You,” asks who we are without our partners.`\
+https://www.nytimes.com/2026/05/16/books/review/take-me-with-you-steven-rowley.html
+
 **Finishing School**\
 `It’s graduation season, a time of aspiration and anxiety. Today is about the aspiration — the wisdom to be gleaned from great commencement addresses.`\
 https://www.nytimes.com/2026/05/16/briefing/finishing-school.html
@@ -41,40 +77,4 @@ https://www.nytimes.com/interactive/2026/05/16/realestate/andie-macdowell-home-t
 **Rubio, Once a China Hawk, Strikes Softer Tone to Align With Trump**\
 `As a senator, Marco Rubio even hinted at the need for regime change in China. Now he talks about cooperation.`\
 https://www.nytimes.com/2026/05/16/us/politics/rubio-china-trump-trip.html
-
-**Did You Share a Chin Close-Up? What to Know About Instagram Instants.**\
-`Instagram’s new feature blasts photos to your mutual followers or close friends, immediately.`\
-https://www.nytimes.com/2026/05/16/technology/instagram-instants-feature.html
-
-**What to Watch in Saturday’s Republican Senate Primary in Louisiana**\
-`Senator Bill Cassidy, who has drawn President Trump’s ire, is fighting for political survival.`\
-https://www.nytimes.com/2026/05/16/us/politics/what-to-watch-louisiana-senate-primary.html
-
-**Rival Protests Begin in London, With a Major Security Effort**\
-`The police are deploying thousands of officers, partly to keep far-right and pro-Palestinian marchers separated. The opposing events are expected to draw tens of thousands of people to London.`\
-https://www.nytimes.com/2026/05/16/world/europe/london-rival-protests.html
-
-**How Rihanna and Revenge Plots Inspired a Playwright to Turn Director**\
-`Aleshea Harris won acclaim for her drama “Is God Is.” When it came time for a film adaptation, she saw cinematic possibilities far beyond her play.`\
-https://www.nytimes.com/2026/05/16/movies/is-god-is-aleshea-harris.html
-
-**9 Songs We’re Talking About This Week**\
-`Shakira and Burna Boy’s World Cup theme, Gracie Abrams’s anxious new single, Genesis Owusu’s latest rabble-rouser and more.`\
-https://www.nytimes.com/2026/05/16/arts/music/shakira-burna-boy-gracie-abrams-songs.html
-
-**The Countries Profiting From the War Oil Shock, as Others Lose Out**\
-`An analysis of oil export data offers clues about which nations have benefited from higher prices, and which have lost a lot of revenue.`\
-https://www.nytimes.com/2026/05/16/business/energy-environment/iran-war-oil-countries-winners-losers.html
-
-**The Secretive Conglomerate That Controls Cuba’s Economy**\
-`A shadowy state enterprise run by the military is a focal point of Washington's pressure campaign against Cuba.`\
-https://www.nytimes.com/interactive/2026/05/16/world/americas/cuba-military-conglomerate-gaesa-economy-explained.html
-
-**When a Seller Accepts an Offer, Can They Still Look for a Better Deal?**\
-`Sales contracts are tricky things. Each side of a deal has some leverage — but the seller has more.`\
-https://www.nytimes.com/2026/05/16/realestate/real-estate-offer-to-buy.html
-
-**How a Nature Cruise Turned Into a Nightmare**\
-`The hantavirus outbreak on the MV Hondius set off alarms for a world still traumatized by Covid. For those on board, the danger was much closer.`\
-https://www.nytimes.com/2026/05/16/world/europe/hantavirus-hondius-cruise.html
 
