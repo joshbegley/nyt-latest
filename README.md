@@ -7,7 +7,7 @@ https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/eurovi
 https://www.nytimes.com/interactive/2026/us/elections/results-louisiana-primary.html
 
 **At Supreme Court, Virginia Democrats Pressed Legal Theory Embraced by Trump**\
-`A long-shot emergency request to restore a voting map was the latest salvo in all-out legal war over control of the House.`\
+`A long-shot emergency request to restore a voting map was the latest salvo in an all-out legal war over control of the House.`\
 https://www.nytimes.com/2026/05/16/us/at-supreme-court-virginia-democrats-pressed-legal-theory-embraced-by-trump.html
 
 **Louisiana U.S. Senate Primary Election Results**\
