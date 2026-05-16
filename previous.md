@@ -1,3 +1,23 @@
+**I Think Someone Is Living in the Storage Unit Next to Mine. What Should I Do?**\
+`I was so uncomfortable I just threw my things inside and left.`\
+https://www.nytimes.com/2026/05/16/magazine/living-in-storage-unit-ethics.html
+
+**Connections Companion No. 1,071**\
+`Scroll down for hints and conversation about the puzzle for Sunday, May 17, 2026.`\
+https://www.nytimes.com/2026/05/16/crosswords/connections-companion-1071.html
+
+**Wordle Review No. 1,793**\
+`Scroll down for hints and conversation about the puzzle for Sunday, May 17, 2026.`\
+https://www.nytimes.com/2026/05/16/crosswords/wordle-review-1793.html
+
+**Strands Sidekick No. 805**\
+`Scroll down for hints and conversation about the puzzle for Sunday, May 17, 2026.`\
+https://www.nytimes.com/2026/05/16/crosswords/strands-sidekick-805.html
+
+**How a Times Reporter Found Cartel Gold at the Royal Canadian Mint**\
+`A conversation with Justin Scheck, who found that illegal Colombian gold transformed into legal North American gold through bureaucratic sleights of hand, and ended up in Canada.`\
+https://www.nytimes.com/2026/05/16/world/canada/cartel-gold-royal-canadian-mint.html
+
 **Graham Platner’s Plan to Dethrone Susan Collins — and the Establishment**\
 `The presumptive Democratic Senate nominee from Maine enters the general election fray. `\
 https://www.nytimes.com/2026/05/16/magazine/graham-platner-interview.html
@@ -26,8 +46,8 @@ https://www.nytimes.com/2026/05/16/technology/instagram-instants-feature.html
 `Senator Bill Cassidy, who has drawn President Trump’s ire, is fighting for political survival.`\
 https://www.nytimes.com/2026/05/16/us/politics/what-to-watch-louisiana-senate-primary.html
 
-**London Prepares for Rival Protests, With a Major Security Effort**\
-`The police will deploy thousands of officers, partly to keep far-right and pro-Palestinian marchers separated. The opposing events are expected to draw tens of thousands of people to London.`\
+**Rival Protests Begin in London, With a Major Security Effort**\
+`The police are deploying thousands of officers, partly to keep far-right and pro-Palestinian marchers separated. The opposing events are expected to draw tens of thousands of people to London.`\
 https://www.nytimes.com/2026/05/16/world/europe/london-rival-protests.html
 
 **How Rihanna and Revenge Plots Inspired a Playwright to Turn Director**\
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/05/16/world/europe/hantavirus-hondius-cruise.html
 **OpenAI and Khan Academy Made a Chatbot. What Can We Learn?**\
 `Inside a collaboration to bring artificial intelligence into the classroom.`\
 https://www.nytimes.com/2026/05/16/business/tyrangiel-ai-book-openai-khan-academy-khanmigo.html
-
-**Brides Are No Longer Tossing the Bouquet. They’re Keeping It.**\
-`Some newlyweds, rethinking an old custom that puts a premium on marriage, are making more sustainable arrangements.`\
-https://www.nytimes.com/2026/05/16/style/wedding-bouquets-preservation-crochet-beads-glass.html
-
-**Neil deGrasse Tyson’s Ode to Aliens Fails to Launch**\
-`The popular astrophysicist can be witty and informative when making science accessible. You wouldn’t know it from his new book, “Take Me to Your Leader.”`\
-https://www.nytimes.com/2026/05/16/books/review/take-me-to-your-leader-neil-degrasse-tyson.html
-
-**On Capitol Hill, a Sexual Harassment ‘Minefield’ Persists**\
-`Nearly 10 years after Congress instituted measures to make it easier for women to lodge harassment complaints, lawmakers and aides say the behavior is still rampant.`\
-https://www.nytimes.com/2026/05/16/us/politics/on-capitol-hill-a-sexual-harassment-minefield-persists.html
-
-**How a ‘Model’ for Climate Migration Became a Cautionary Tale**\
-`The residents of Isle de Jean Charles in Louisiana found safety after moving to higher ground. But the experience left some of them warning others facing relocation: ‘Don’t do it.’`\
-https://www.nytimes.com/2026/05/16/climate/isle-jean-charles-relocation.html
-
-**Sarah Sherman Took Lessons on Screaming**\
-`The “S.N.L.” comedian went to a coach who “taught all these famous screamo singing metal guys how to scream without hurting themselves.”`\
-https://www.nytimes.com/2026/05/16/arts/television/sarah-sherman-saturday-night-live.html
 
