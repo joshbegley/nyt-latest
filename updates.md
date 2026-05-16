@@ -1,3 +1,7 @@
+**A Danish theater kid thinks the omens are good for him.**\
+``\
+https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/denmark-eurovision-soren
+
 **Mamdani’s Nakba Day Social Media Post Marks Shift for N.Y.C. Mayors**\
 `Pro-Palestinian New Yorkers celebrated Mayor Zohran Mamdani’s decision to post about the Palestinians’ day of remembrance, but the move was criticized by some Jewish leaders.`\
 https://www.nytimes.com/2026/05/16/nyregion/nakba-video-mamdani-nyc.html
