@@ -1,3 +1,7 @@
+**Trump Calls Xi a ‘Friend.’ But He Left China Without Any Breakthroughs.**\
+`The lack of concrete agreements with Beijing shows the risks of President Trump’s personality-driven foreign policy, which rests on the belief that he can defend U.S. interests through charm and force of will.`\
+https://www.nytimes.com/2026/05/16/world/europe/trump-xi-china-summit.html
+
 **Voters in Louisiana Head to the Polls, Uncertain but Determined**\
 `Votes cast for the House candidates on Saturday’s primary ballot won’t count after state officials moved the election to November to provide time to redraw congressional maps.`\
 https://www.nytimes.com/2026/05/16/us/voters-louisiana-primary-gerrymander.html

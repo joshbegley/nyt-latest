@@ -28,7 +28,7 @@ https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/a-time
 
 **Trump Calls Xi a ‘Friend.’ But He Left China Without Any Breakthroughs.**\
 `The lack of concrete agreements with Beijing shows the risks of President Trump’s personality-driven foreign policy, which rests on the belief that he can defend U.S. interests through charm and force of will.`\
-https://www.nytimes.com/2026/05/16/world/europe/trump-calls-xi-a-friend-but-he-left-china-without-any-breakthroughs.html
+https://www.nytimes.com/2026/05/16/world/europe/trump-xi-china-summit.html
 
 **ActBlue C.E.O. Agrees to Testify Before Congress About Foreign Donor Vetting**\
 `The Democratic fund-raising group, which backs candidates up and down the ballot, has been the subject of scrutiny by Republicans.`\
