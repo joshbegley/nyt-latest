@@ -1,3 +1,7 @@
+**Woman Gives Birth to a ‘Bouncing Baby Boy’ in Brooklyn Courtroom**\
+`A court officer delivered the newborn after a woman who was nine months pregnant appeared in court on low-level charges.`\
+https://www.nytimes.com/2026/05/16/nyregion/birth-courtroom-baby-nyc.html
+
 **Australia’s strategy: Go big. On everything.**\
 ``\
 https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/australian-eurovison-delta-goodrem-eclipse
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/16/us/politics/actblue-testify-congress-donors.h
 **Fears Grow That Iran May Be Using Proxy Groups Beyond Mideast**\
 `The charges against Mohammad al-Saadi in the United States have raised concerns that Iran could be working with its proxies to stage attacks outside the region.`\
 https://www.nytimes.com/2026/05/16/world/middleeast/iran-proxy-groups-us.html
-
-**How a few hundred voters could have swayed Eurovision results.**\
-``\
-https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/how-a-few-hundred-voters-could-have-swayed-eurovision-results
 
