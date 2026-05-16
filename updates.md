@@ -1,3 +1,11 @@
+**Double Meanings**\
+`Derrick Niederman drops a heavy-duty Sunday crossword on us.`\
+https://www.nytimes.com/2026/05/16/crosswords/daily-puzzle-2026-05-17.html
+
+**Here’s how the voting works.**\
+``\
+https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/heres-how-the-voting-works
+
 **Félicien Kabuga Dies; Accused of Masterminding Rwanda’s Genocide**\
 `One of his country’s richest businessmen, he fled arrest and escaped prosecution for allegedly financing and directing the bloodletting that cost 800,000 lives in 1994.`\
 https://www.nytimes.com/2026/05/16/world/africa/felicien-kabuga-dead.html

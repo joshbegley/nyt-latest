@@ -1,3 +1,11 @@
+**Double Meanings**\
+`Derrick Niederman drops a heavy-duty Sunday crossword on us.`\
+https://www.nytimes.com/2026/05/16/crosswords/daily-puzzle-2026-05-17.html
+
+**Here’s how the voting works.**\
+``\
+https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/heres-how-the-voting-works
+
 **Train Crashes Into Bangkok Traffic, Killing at Least 8 People**\
 `A freight train crashed into traffic on one of Bangkok’s busiest roads on Saturday. At least eight people were killed and dozens were injured, Thai officials said.`\
 https://www.nytimes.com/video/world/asia/100000010908241/bangkok-bus-train-crash.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/denmar
 **Mamdani’s Nakba Day Social Media Post Marks Shift for N.Y.C. Mayors**\
 `Pro-Palestinian New Yorkers celebrated Mayor Zohran Mamdani’s decision to post about the Palestinians’ day of remembrance, but the move was criticized by some Jewish leaders.`\
 https://www.nytimes.com/2026/05/16/nyregion/nakba-video-mamdani-nyc.html
-
-**Who Is JJ? The 2025 Winner Starts the Eurovision Final With a Pop/Opera Mix.**\
-`JJ, from Austria, kicked off this year’s Eurovision grand final in Vienna, as the contest celebrates its 70th anniversary.`\
-https://www.nytimes.com/2026/05/16/arts/who-is-jj-austria.html
-
-**Car Plows Into Pedestrians in Northern Italian Town, Injuring at Least 8**\
-`Four of the injured were in serious condition, the mayor of Modena said, praising residents who rushed to stop the car’s driver from escaping on foot.`\
-https://www.nytimes.com/2026/05/16/world/europe/car-crash-modena-italy.html
 
