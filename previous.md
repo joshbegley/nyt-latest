@@ -1,3 +1,7 @@
+**Greece’s Akylas wants it all.**\
+``\
+https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/greece-akylas-ferto-eurovision
+
 **Israel’s Noam Bettan brings some French flair.**\
 ``\
 https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/eurovision-israel-noam-bettan-michelle
@@ -73,8 +77,4 @@ https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/how-a-
 **El conglomerado hermético que controla la economía de Cuba**\
 `GAESA, uno de los principales blancos de la campaña de presión de Washington contra Cuba, es una turbia empresa estatal manejada por los militares del país que controla al menos 40 por ciento de la economía.`\
 https://www.nytimes.com/es/interactive/2026/05/16/espanol/america-latina/cuba-ejercito-economia-castro.html
-
-**Who’ll take the Eurovision title? Prediction markets give some clues.**\
-``\
-https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/eurovision-favorites-betting-prediction-markets
 

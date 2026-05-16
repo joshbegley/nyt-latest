@@ -22,8 +22,8 @@ https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/denmar
 `Pro-Palestinian New Yorkers celebrated Mayor Zohran Mamdani’s decision to post about the Palestinians’ day of remembrance, but the move was criticized by some Jewish leaders.`\
 https://www.nytimes.com/2026/05/16/nyregion/nakba-video-mamdani-nyc.html
 
-**Who is JJ? Last year’s winner starts the show with a pop/opera mix.**\
-``\
+**Who Is JJ? The 2025 Winner Starts the Eurovision Final With a Pop/Opera Mix.**\
+`JJ, from Austria, kicked off this year’s Eurovision grand final in Vienna.`\
 https://www.nytimes.com/2026/05/16/arts/who-is-jj-austria.html
 
 **Car Plows Into Pedestrians in Northern Italian Town, Injuring at Least 8**\

@@ -1,3 +1,7 @@
+**Greece’s Akylas wants it all.**\
+``\
+https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/greece-akylas-ferto-eurovision
+
 **Who is JJ? Last year’s winner starts the show with a pop/opera mix.**\
 ``\
 https://www.nytimes.com/2026/05/16/arts/who-is-jj-austria.html
