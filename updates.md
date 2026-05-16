@@ -1,3 +1,11 @@
+**Oysters, Champagne and Billionaires Buying Art**\
+`When the European Fine Art Foundation alights in Manhattan, it’s something like a billionaire version of the classic television game show “Supermarket Sweep.”`\
+https://www.nytimes.com/2026/05/16/style/tefaf-auction-nyc-art.html
+
+**Graham Platner Thinks a Political Revolution Is Coming**\
+`The presumptive Democratic Senate nominee from Maine enters the general election fray. `\
+https://www.nytimes.com/2026/05/16/magazine/graham-platner-interview.html
+
 **U.S. Debt Is Now Bigger Than the Economy. That’s Not the Real Problem.**\
 `Washington quickly brushed off a startling milestone in a mounting problem.`\
 https://www.nytimes.com/2026/05/16/business/dealbook/debt-100-percent-gdp.html

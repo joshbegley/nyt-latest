@@ -1,3 +1,7 @@
+**Oysters, Champagne and Billionaires Buying Art**\
+`When the European Fine Art Foundation alights in Manhattan, it’s something like a billionaire version of the classic television game show “Supermarket Sweep.”`\
+https://www.nytimes.com/2026/05/16/style/tefaf-auction-nyc-art.html
+
 **U.S. Debt Is Now Bigger Than the Economy. That’s Not the Real Problem.**\
 `Washington quickly brushed off a startling milestone in a mounting problem.`\
 https://www.nytimes.com/2026/05/16/business/dealbook/debt-100-percent-gdp.html
@@ -66,15 +70,11 @@ https://www.nytimes.com/2026/05/16/crosswords/strands-sidekick-805.html
 `A conversation with Justin Scheck, who found that illegal Colombian gold transformed into legal North American gold through bureaucratic sleights of hand, and ended up in Canada.`\
 https://www.nytimes.com/2026/05/16/world/canada/cartel-gold-royal-canadian-mint.html
 
-**Graham Platner’s Plan to Dethrone Susan Collins — and the Establishment**\
+**Graham Platner Thinks a Political Revolution Is Coming**\
 `The presumptive Democratic Senate nominee from Maine enters the general election fray. `\
 https://www.nytimes.com/2026/05/16/magazine/graham-platner-interview.html
 
 **They Fled to Safety in Palestinian Territory, Then Settlers Attacked Again**\
 `Violent settlers are not merely clearing Palestinians from land under Israel’s control. They are attacking areas where Israel agreed to Palestinian self-governance.`\
 https://www.nytimes.com/2026/05/16/world/middleeast/settler-attacks-palestinians-west-bank.html
-
-**Julieta Venegas regresa a casa con ‘Norteña’, su nuevo álbum**\
-`Tras una larga estadía en Argentina, la compositora mexicana está de vuelta en su país con una producción llena de referencias a Tijuana, la tierra que la vio crecer como artista.`\
-https://www.nytimes.com/es/2026/05/16/espanol/cultura/julieta-venegas-nuevo-album-nortena.html
 
