@@ -35,7 +35,7 @@ https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/austra
 https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/greece-akylas-ferto-eurovision
 
 **Israel’s Noam Bettan Brings Some French Flair to Eurovision**\
-`Representing Israel, which has won Eurovision four times, Bettan performed an upbeat pop track largely in French.`\
+`The singer performed a pop track largely in French, as the show faced boycotts from other countries over Israel’s military actions in Gaza.`\
 https://www.nytimes.com/2026/05/16/arts/music/eurovision-israel-noam-bettan-michelle.html
 
 **Kansas Judge Blocks Law Banning Gender-Transition Treatments for Youths**\
