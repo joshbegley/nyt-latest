@@ -1,3 +1,7 @@
+**Romania’s song gave us this year’s lyrics controversy.**\
+``\
+https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/eurovision-romania-choke-me-anxiety-lyrics
+
 **From Italy, a disco anthem about the joys of marriage.**\
 ``\
 https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/italy-eurovision-sal-da-vinci-per-sempre-si
