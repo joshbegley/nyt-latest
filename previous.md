@@ -1,3 +1,7 @@
+**Trump Turns Taiwan Arms Sales Into Bargaining Chip With China**\
+`The president said a potential arms deal for Taiwan was a “very good negotiating chip” in talks with Beijing. His words raise questions about the steadfastness of U.S. support.`\
+https://www.nytimes.com/2026/05/16/world/asia/trump-taiwan-arms-bargaining-chip-china.html
+
 **Long Island Rail Road Strike Shuts Down Busiest U.S. Passenger Rail Service**\
 `This is the first strike on the service in more than 30 years. It comes after three years of failed contract negotiations, two federal interventions and a volley of last-minute bargaining.`\
 https://www.nytimes.com/2026/05/16/nyregion/lirr-strike.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/15/us/detransition-transgender-clinic.html
 **Clavicular Strikes Plea Deal With Prosecutors After Alligator Shooting**\
 `The social media personality pleaded no contest and was sentenced to six months of probation. The deal allows him to avoid jail time.`\
 https://www.nytimes.com/2026/05/15/us/clavicular-plea-deal-alligator-shooting.html
-
-**Smithsonian Adds Back Impeachment Language to Label on Trump Portrait**\
-`The language had been removed from wall text in the National Portrait Gallery, but it’s back as the museum unveiled changes to its exhibition on U.S. presidents.`\
-https://www.nytimes.com/2026/05/15/arts/design/trump-impeachment-smithsonian-national-portrait-gallery.html
 
