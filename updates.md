@@ -1,3 +1,7 @@
+**A North Korean Soccer Team Makes a Rare Visit to South Korea**\
+`The team’s trip, for a women’s soccer tournament, is unlikely to catalyze a diplomatic thaw between the two Koreas, although some sports events have.`\
+https://www.nytimes.com/2026/05/17/world/asia/north-korea-naegohyang-soccer-football.html
+
 **Cómo un crucero para admirar la naturaleza se volvió una pesadilla**\
 `El brote de hantavirus en el MV Hondius hizo saltar las alarmas en un mundo aún traumatizado por la covid. Para los que iban a bordo, el peligro estaba mucho más cerca.`\
 https://www.nytimes.com/es/2026/05/17/espanol/mundo/crucero-hantavirus-mv-hondius.html
