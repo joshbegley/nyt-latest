@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/05/17/arts/television/will-ferrell-epstein-snl-seas
 `I’m here to help you plan some very delicious (and doable) dinners for your week — hoisin garlic noodles, anyone?`\
 https://www.nytimes.com/2026/05/17/dining/five-weeknight-dishes-now-on-sundays.html
 
-**Opera Needs New Plutocrats**\
+**Getting Jeff Bezos to the Opera**\
 `Box office is waning. Donors are fading. Opera needs new lifeblood. The answer lies with tech fortunes.`\
 https://www.nytimes.com/2026/05/17/opinion/tech-billionaires-opera-funding-met.html
 
@@ -50,7 +50,7 @@ https://www.nytimes.com/2026/05/17/opinion/shane-massey-south-carolina-clyburn.h
 `Scroll down for hints and conversation about the puzzle for Monday, May 18, 2026.`\
 https://www.nytimes.com/2026/05/17/crosswords/connections-companion-1072.html
 
-**You Aren’t Crazy. The World Is Actually Getting Weirder.**\
+**We Are Sliding Back Into the Middle Ages**\
 `One of the oldest and most durable features of human experience is re-emerging.`\
 https://www.nytimes.com/2026/05/17/opinion/supernatural-religion-reality.html
 
@@ -58,7 +58,7 @@ https://www.nytimes.com/2026/05/17/opinion/supernatural-religion-reality.html
 `Scroll down for hints and conversation about the puzzle for Monday, May 18, 2026.`\
 https://www.nytimes.com/2026/05/17/crosswords/wordle-review-1794.html
 
-**Reports of the Death of Civics Are Greatly Exaggerated**\
+**Nothing Beats Polarization Like Civics Education**\
 `The decline of civic education hit bottom about a decade ago and is at last on the rebound. This fact brings me hope.`\
 https://www.nytimes.com/2026/05/17/opinion/civic-education-return.html
 
