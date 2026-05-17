@@ -1,3 +1,15 @@
+**Getting Jeff Bezos to the Opera**\
+`Box office is waning. Donors are fading. Opera needs new lifeblood. The answer lies with tech fortunes.`\
+https://www.nytimes.com/2026/05/17/opinion/tech-billionaires-opera-funding-met.html
+
+**We Are Sliding Back Into the Middle Ages**\
+`One of the oldest and most durable features of human experience is re-emerging.`\
+https://www.nytimes.com/2026/05/17/opinion/supernatural-religion-reality.html
+
+**Nothing Beats Polarization Like Civics Education**\
+`The decline of civic education hit bottom about a decade ago and is at last on the rebound. This fact brings me hope.`\
+https://www.nytimes.com/2026/05/17/opinion/civic-education-return.html
+
 **Organic Ice Cream Is Recalled Over Possible Contamination With Metal**\
 `Straus Family Creamery asked customers to throw out some tubs sold in May across 17 states. No injuries have been reported, the company said.`\
 https://www.nytimes.com/2026/05/17/health/ice-cream-recall-straus-family-creamery.html
