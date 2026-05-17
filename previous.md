@@ -1,3 +1,7 @@
+**Sex, Death and ‘Devils’ at Cannes**\
+`With the main slate making few waves, the biggest moments at the festival so far involve a new horror comedy and a restored horror provocation.`\
+https://www.nytimes.com/2026/05/17/movies/cannes-film-festival-teenage-sex-and-death-at-camp-miasma.html
+
 **Powerful Storms, Hail and Tornadoes Forecast for Central U.S.**\
 `Nebraska, Iowa and Kansas face the greatest risk of extreme weather, with the worst expected on Monday.`\
 https://www.nytimes.com/2026/05/17/weather/storm-tornado-forecast-nebraska-iowa-kansas.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/17/us/politics/kentuckys-curious-cast-of-politic
 **Does This Man Have the ‘Most Difficult Job on Earth’?**\
 `Peter Gelb, the general manager of the Metropolitan Opera, said he is not going anywhere as he struggles with financial crises and opera’s place in a changing arts landscape.`\
 https://www.nytimes.com/2026/05/17/arts/music/metropolitan-opera-general-manager-peter-gelb.html
-
-**In Iraqi Desert, Two Israeli Outposts Were Kept Secret for Months**\
-`Israel spent over a year preparing a covert site in Iraq for its operations against Iran, regional officials say. Iraqi officials later confirmed the existence of a second base.`\
-https://www.nytimes.com/2026/05/17/world/europe/israel-iraq-iran-bases.html
 

@@ -1,3 +1,7 @@
+**Sex, Death and ‘Devils’ at Cannes**\
+`With the main slate making few waves, the biggest moments at the festival so far involve a new horror comedy and a restored horror provocation.`\
+https://www.nytimes.com/2026/05/17/movies/cannes-film-festival-teenage-sex-and-death-at-camp-miasma.html
+
 **Powerful Storms, Hail and Tornadoes Forecast for Central U.S.**\
 `Nebraska, Iowa and Kansas face the greatest risk of extreme weather, with the worst expected on Monday.`\
 https://www.nytimes.com/2026/05/17/weather/storm-tornado-forecast-nebraska-iowa-kansas.html
