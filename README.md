@@ -1,3 +1,15 @@
+**Beverley Martyn, Whose Folk Music Breakthrough Took 50 Years, Dies at 79**\
+`As a rising star of the 1960s, she dated Paul Simon, brooded with Nick Drake and drew Barbra Streisand’s envy. Then she sank into an abusive marriage.`\
+https://www.nytimes.com/2026/05/17/obituaries/beverley-martyn-dead.html
+
+**NextEra Energy Said to Be in Talks to Acquire Dominion, Creating a Utility Giant**\
+`A deal, involving the utilities in Florida and Virginia, would come as demand for power is soaring, largely because of the rapid growth of A.I. data centers.`\
+https://www.nytimes.com/2026/05/17/business/nextera-dominion-deal.html
+
+**Isabel Leonard and Others Offer Tastings of ‘Frida y Diego’**\
+`The performers of a Met Opera production about Frida Kahlo and Diego Rivera have been promoting the show in decidedly unoperatic places, including a cemetery.`\
+https://www.nytimes.com/2026/05/17/arts/music/isabel-leonard-frida-y-diego-met.html
+
 **Stereotypically Antisocial Pets**\
 `Can I hear a little commotion for Rena Cohen’s latest puzzle?`\
 https://www.nytimes.com/2026/05/17/crosswords/daily-puzzle-2026-05-18.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/17/world/americas/peru-runoff-election.html
 **Organic Ice Cream Is Recalled Over Possible Contamination With Metal**\
 `Straus Family Creamery asked customers to throw out some tubs sold in May across 17 states. No injuries have been reported, the company said.`\
 https://www.nytimes.com/2026/05/17/health/ice-cream-recall-straus-family-creamery.html
-
-**What the Dickens? Will Ferrell Plays Ghost of Epstein on ‘S.N.L.’ Season Finale**\
-`Ferrell, the “Saturday Night Live” alum, appears with James Austin Johnson as President Trump in a sendup of “A Christmas Carol.” Paul McCartney provides the music.`\
-https://www.nytimes.com/2026/05/17/arts/television/will-ferrell-epstein-snl-season-finale.html
-
-**Five Weeknight Dishes, Now on Sundays**\
-`I’m here to help you plan some very delicious (and doable) dinners for your week — hoisin garlic noodles, anyone?`\
-https://www.nytimes.com/2026/05/17/dining/five-weeknight-dishes-now-on-sundays.html
-
-**Getting Jeff Bezos to the Opera**\
-`Box office is waning. Donors are fading. Opera needs new lifeblood. The answer lies with tech fortunes.`\
-https://www.nytimes.com/2026/05/17/opinion/tech-billionaires-opera-funding-met.html
 
