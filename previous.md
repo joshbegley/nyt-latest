@@ -1,10 +1,10 @@
-**Can We Reverse Aging?**\
-`Inside the billion-dollar bet on cellular rejuvenation.`\
-https://www.nytimes.com/2026/05/17/podcasts/the-daily/can-we-reverse-aging.html
-
 **Here’s the Trade Deal That Trump and Xi Should Have Reached**\
 `For this to happen, however, both men would need personality transplants.`\
 https://www.nytimes.com/2026/05/17/opinion/trump-china-xi-trade.html
+
+**Can We Reverse Aging?**\
+`Inside the billion-dollar bet on cellular rejuvenation.`\
+https://www.nytimes.com/2026/05/17/podcasts/the-daily/can-we-reverse-aging.html
 
 **We Need More ‘Rabid Partisans’ Like Shane Massey**\
 `Defeating a sclerotic rump of a party is no achievement. Instead, one-party rule enables corruption. It fosters stagnation.`\
