@@ -1,3 +1,15 @@
+**Five Weeknight Dishes, Now on Sundays**\
+`I’m here to help you plan some very delicious (and doable) dinners for your week — hoisin garlic noodles, anyone?`\
+https://www.nytimes.com/2026/05/17/dining/five-weeknight-dishes-now-on-sundays.html
+
+**Opera Needs New Plutocrats**\
+`Box office is waning. Donors are fading. Opera needs new lifeblood. The answer lies with tech fortunes.`\
+https://www.nytimes.com/2026/05/17/opinion/tech-billionaires-opera-funding-met.html
+
+**The Great Disruption: How A.I. Will Shape Our Future**\
+`Readers discuss ways in which artificial intelligence is reshaping our lives. Also: Frequent redistricting.`\
+https://www.nytimes.com/2026/05/17/opinion/ai-future.html
+
 **Sex, Death and ‘Devils’ at Cannes**\
 `With the main slate making few waves, the biggest moments at the festival so far involve a new horror comedy and a restored horror provocation.`\
 https://www.nytimes.com/2026/05/17/movies/cannes-film-festival-teenage-sex-and-death-at-camp-miasma.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/17/us/politics/trump-flexes-hold-on-gop-even-as-
 **Why Neutral Maps Could Empower Black Voters as Much as the Voting Rights Act**\
 `Our simulations show that the act isn’t needed for minority representation in the South, if partisan gerrymandering were checked.`\
 https://www.nytimes.com/2026/05/17/upshot/redistricting-race-court-gerrymanders-elections.html
-
-**App-Driven Birding Attracts Flocks of Enthusiasts to Colombia**\
-`Colombia is home to the most species of birds known to ornithologists. Merlin, an app, is helping to build an “avian tourism” industry there.`\
-https://www.nytimes.com/2026/05/17/world/americas/colombia-birding-app-merlin-ebird-tourism.html
-
-**Kentucky’s Curious Cast of Political Characters**\
-`The state, where a rebellious Republican faces a tough primary challenge on Tuesday, has an unpredictable political landscape that has produced a long list of surprising figures.`\
-https://www.nytimes.com/2026/05/17/us/politics/kentuckys-curious-cast-of-political-characters.html
-
-**Does This Man Have the ‘Most Difficult Job on Earth’?**\
-`Peter Gelb, the general manager of the Metropolitan Opera, said he is not going anywhere as he struggles with financial crises and opera’s place in a changing arts landscape.`\
-https://www.nytimes.com/2026/05/17/arts/music/metropolitan-opera-general-manager-peter-gelb.html
 
