@@ -1,3 +1,7 @@
+**The Quest for an Elusive Clean Fuel Is Moving Underground**\
+`The dream of clean hydrogen has tantalized energy experts for years, but producing it has been tough. Many start-ups think the answer could lie beneath our feet.`\
+https://www.nytimes.com/2026/05/17/climate/geologic-hydrogen-clean-energy-underground.html
+
 **Stereotypically Antisocial Pets**\
 `Can I hear a little commotion for Rena Cohen’s latest puzzle?`\
 https://www.nytimes.com/2026/05/17/crosswords/daily-puzzle-2026-05-18.html
