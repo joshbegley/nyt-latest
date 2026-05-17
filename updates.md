@@ -1,3 +1,11 @@
+**Corrections: May 17, 2026**\
+`Corrections that appeared in print on Sunday, May 17, 2026.`\
+https://www.nytimes.com/2026/05/17/pageoneplus/corrections-may-17-2026.html
+
+**Quote of the Day: For Migrants Deported to Congo, an ‘Unspoken Prison’**\
+`Quotation of the Day for Sunday, May 17, 2026.`\
+https://www.nytimes.com/2026/05/16/pageoneplus/quote-of-the-day-for-migrants-deported-to-congo-an-unspoken-prison.html
+
 **7 Republicans Voted to Convict Trump. Most Are No Longer in Office.**\
 `Senator Bill Cassidy’s defeat means no more than two of them will be left in Congress next year.`\
 https://www.nytimes.com/2026/05/16/us/politics/republicans-trump-cassidy-conviction-impeachment.html
