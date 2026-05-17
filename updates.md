@@ -1,3 +1,7 @@
+**The Fight for Voting Rights Returns to Selma**\
+`A crowd gathered at a pivotal site of defiance in the civil rights movement, this time in opposition to efforts by Republicans to eliminate majority-Black districts.`\
+https://www.nytimes.com/2026/05/16/us/selma-march-voting-rights-act-redistricting.html
+
 **China Indicates Tariffs Were Discussed at Trump Summit**\
 `China’s Ministry of Commerce said Saturday that the countries had struck a preliminary agreement to reduce some tariffs, seemingly contradicting statements by President Trump`\
 https://www.nytimes.com/2026/05/16/business/economy/china-tariffs-trump-summit.html

@@ -1,3 +1,7 @@
+**The Fight for Voting Rights Returns to Selma**\
+`A crowd gathered at a pivotal site of defiance in the civil rights movement, this time in opposition to efforts by Republicans to eliminate majority-Black districts.`\
+https://www.nytimes.com/2026/05/16/us/selma-march-voting-rights-act-redistricting.html
+
 **China Indicates Tariffs Were Discussed at Trump Summit**\
 `China’s Ministry of Commerce said Saturday that the countries had struck a preliminary agreement to reduce some tariffs, seemingly contradicting statements by President Trump`\
 https://www.nytimes.com/2026/05/16/business/economy/china-tariffs-trump-summit.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/16/arts/music/eurovision-israel-noam-bettan-mich
 **Kansas Judge Blocks Law Banning Gender-Transition Treatments for Youths**\
 `Two transgender teenagers claimed that the ban, enacted last year over the Democratic governor’s veto, violated the Kansas Constitution.`\
 https://www.nytimes.com/2026/05/16/us/kansas-transgender-lawsuit.html
-
-**Severe Storms to Bring Strong Winds and Hail to Central U.S., Forecasters Say**\
-`A series of storms, including supercells, threatens to dump rain, hail and create a tornado risk for a vast section of the country. The most severe weather is expected on Monday.`\
-https://www.nytimes.com/2026/05/16/weather/storm-tornado-forecast-nebraska-minnesota.html
 
