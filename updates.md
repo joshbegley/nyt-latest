@@ -1,3 +1,11 @@
+**Two Military Jets Collide in Midair at Idaho Air Show**\
+`Video shared on social media showed the jets striking each other and spinning toward the ground. At least four parachutes were deployed before the planes crashed.`\
+https://www.nytimes.com/2026/05/17/us/planes-crash-gunfighter-skies-show.html
+
+**How a Democratic Governor Came to Release an Election Denier From Prison**\
+`Gov. Jared Polis’s decision to commute the sentence of Tina Peters came after months of tense discussions, including one with President Trump.`\
+https://www.nytimes.com/2026/05/17/us/politics/jared-polis-trump-tina-peters.html
+
 **Review: In ‘Dad Don’t Read This’ a Playwright (Maybe?) Grows Up**\
 `Eliya Smith’s disturbing teen dramedy explores the ambivalence and confusion of life on the brink of adulthood.`\
 https://www.nytimes.com/2026/05/17/theater/dad-dont-read-this-review.html
