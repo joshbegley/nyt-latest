@@ -1,3 +1,11 @@
+**Chicken Paprikash, Generously Buttered Egg Noodles and a Cucumber Salad**\
+`There’s your Sunday supper, courtesy of Sam Sifton’s five-star recipe.`\
+https://www.nytimes.com/2026/05/17/dining/chicken-paprikash-generously-buttered-egg-noodles-and-a-cucumber-salad.html
+
+**Runoff in Peru Offers Two Starkly Differing Visions for the Nation**\
+`The presidential election pits Keiko Fujimori, a conservative, against Roberto Sánchez, a leftist, after a crisis marked by delays and protests.`\
+https://www.nytimes.com/2026/05/17/world/americas/peru-runoff-election.html
+
 **Getting Jeff Bezos to the Opera**\
 `Box office is waning. Donors are fading. Opera needs new lifeblood. The answer lies with tech fortunes.`\
 https://www.nytimes.com/2026/05/17/opinion/tech-billionaires-opera-funding-met.html

@@ -1,3 +1,11 @@
+**Chicken Paprikash, Generously Buttered Egg Noodles and a Cucumber Salad**\
+`There’s your Sunday supper, courtesy of Sam Sifton’s five-star recipe.`\
+https://www.nytimes.com/2026/05/17/dining/chicken-paprikash-generously-buttered-egg-noodles-and-a-cucumber-salad.html
+
+**Runoff in Peru Offers Two Starkly Differing Visions for the Nation**\
+`The presidential election pits Keiko Fujimori, a conservative, against Roberto Sánchez, a leftist, after a crisis marked by delays and protests.`\
+https://www.nytimes.com/2026/05/17/world/americas/peru-runoff-election.html
+
 **Organic Ice Cream Is Recalled Over Possible Contamination With Metal**\
 `Straus Family Creamery asked customers to throw out some tubs sold in May across 17 states. No injuries have been reported, the company said.`\
 https://www.nytimes.com/2026/05/17/health/ice-cream-recall-straus-family-creamery.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/17/crosswords/strands-sidekick-806.html
 **To Critics, Trump Remarks Reveal a Billionaire Out of Touch**\
 `The president has never pretended to be an ordinary American, but a recent “truth bomb” has opened him to criticism that he doesn’t grasp the economic strain of his war with Iran.`\
 https://www.nytimes.com/2026/05/17/us/politics/to-critics-trump-remarks-reveal-a-billionaire-out-of-touch.html
-
-**Dudamel sacude a la Filarmónica de Nueva York con salsa**\
-`El director venezolano llevó su experimento a nuevas audiencias, juntando el talento de músicos clásicos con el de la Spanish Harlem Orchestra para un repertorio fuera de lo común.`\
-https://www.nytimes.com/es/2026/05/17/espanol/cultura/dudamel-filarmonica-nueva-york-salsa.html
-
-**For Trump, Soaring Prices Test Voters’ Finances and Patience**\
-`Just months before another election that may hinge on the economy, the war in Iran has sent gas and other goods soaring.`\
-https://www.nytimes.com/2026/05/17/business/for-trump-soaring-prices-test-voters-finances-and-patience.html
 
