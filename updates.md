@@ -1,3 +1,11 @@
+**La observación de aves impulsada por aplicaciones atrae a multitudes de entusiastas a Colombia**\
+`Colombia alberga la mayor cantidad de especies de aves conocidas por los ornitólogos. La aplicación Merlin está ayudando a desarrollar una industria de “aviturismo” en el país.`\
+https://www.nytimes.com/es/2026/05/17/espanol/america-latina/colombia-observacion-aves-turismo.html
+
+**What to Know About the Republicans Vying to Replace Senator Bill Cassidy**\
+`He was defeated in the Republican primary in Louisiana on Saturday. Representative Julia Letlow and State Treasurer John Fleming are now in a runoff for the party’s nomination.`\
+https://www.nytimes.com/2026/05/17/us/politics/letlow-fleming-cassidy-louisiana-senate.html
+
 **Cassidy Loses Primary After Drawing Trump’s Ire**\
 `Republican Senator Bill Cassidy lost his Louisiana primary on Saturday after President Trump targeted him for voting to impeach him in 2021. The two-term senator took veiled swipes at the president in his concession speech.`\
 https://www.nytimes.com/video/us/politics/100000010908960/cassidy-louisiana-primary-trump-senate.html
