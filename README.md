@@ -1,3 +1,11 @@
+**Corrections: May 17, 2026**\
+`Corrections that appeared in print on Sunday, May 17, 2026.`\
+https://www.nytimes.com/2026/05/17/pageoneplus/corrections-may-17-2026.html
+
+**Quote of the Day: For Migrants Deported to Congo, an ‘Unspoken Prison’**\
+`Quotation of the Day for Sunday, May 17, 2026.`\
+https://www.nytimes.com/2026/05/16/pageoneplus/quote-of-the-day-for-migrants-deported-to-congo-an-unspoken-prison.html
+
 **7 Republicans Voted to Convict Trump. Most Are No Longer in Office.**\
 `Senator Bill Cassidy’s defeat means no more than two of them will be left in Congress next year.`\
 https://www.nytimes.com/2026/05/16/us/politics/republicans-trump-cassidy-conviction-impeachment.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/video/nyregion/100000010908169/long-island-lirr-shuts-do
 **Can Felicia overcome the odds for Sweden?**\
 ``\
 https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/eurovision-sweden-felicia
-
-**Félicien Kabuga Dies; Accused of Masterminding Rwanda’s Genocide**\
-`One of his country’s richest businessmen, he fled arrest and escaped prosecution for allegedly financing and directing the bloodletting that cost 800,000 lives in 1994.`\
-https://www.nytimes.com/2026/05/16/world/africa/felicien-kabuga-dead.html
-
-**Finland, the Eurovision Favorite, Is Here for Revenge**\
-`The pop star Pete Parkkonen and the violinist Linda Lampenius performed “Liekinheitin” on a stage covered in flames.`\
-https://www.nytimes.com/2026/05/16/arts/music/finland-eurovision-liekinheitin.html
 
