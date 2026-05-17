@@ -1,3 +1,7 @@
+**Organic Ice Cream Is Recalled Over Possible Contamination With Metal**\
+`Straus Family Creamery asked customers to throw out some tubs sold in May across 17 states. No injuries have been reported, the company said.`\
+https://www.nytimes.com/2026/05/17/health/ice-cream-recall-straus-family-creamery.html
+
 **What the Dickens? Will Ferrell Plays Ghost of Epstein on ‘S.N.L.’ Season Finale**\
 `Ferrell, the “Saturday Night Live” alum, appears with James Austin Johnson as President Trump in a sendup of “A Christmas Carol.” Paul McCartney provides the music.`\
 https://www.nytimes.com/2026/05/17/arts/television/will-ferrell-epstein-snl-season-finale.html
@@ -34,13 +38,13 @@ https://www.nytimes.com/2026/05/17/opinion/trump-china-xi-trade.html
 `Inside the billion-dollar bet on cellular rejuvenation.`\
 https://www.nytimes.com/2026/05/17/podcasts/the-daily/can-we-reverse-aging.html
 
+**Wave of Ukrainian Strikes Kills at Least 4, Russia Says**\
+`More than 550 drones were intercepted or shot down in more than a dozen regions, including Moscow, in one of largest attacks of the war.`\
+https://www.nytimes.com/2026/05/17/world/europe/russia-ukraine-strikes-moscow.html
+
 **The ‘Rabid Partisan’ Republican Who Defied Donald Trump**\
 `Defeating a sclerotic rump of a party is no achievement. Instead, one-party rule enables corruption. It fosters stagnation.`\
 https://www.nytimes.com/2026/05/17/opinion/shane-massey-south-carolina-clyburn.html
-
-**Wave of Ukrainian Strikes Kills at Least 4, Russia Says**\
-`More than 550 drones were intercepted or shot down in over a dozen regions, including Moscow, in one of largest attacks of the war.`\
-https://www.nytimes.com/2026/05/17/world/europe/russia-ukraine-strikes-moscow.html
 
 **Connections Companion No. 1,072**\
 `Scroll down for hints and conversation about the puzzle for Monday, May 18, 2026.`\
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/05/17/espanol/cultura/dudamel-filarmonica-nueva-
 **For Trump, Soaring Prices Test Voters’ Finances and Patience**\
 `Just months before another election that may hinge on the economy, the war in Iran has sent gas and other goods soaring.`\
 https://www.nytimes.com/2026/05/17/business/for-trump-soaring-prices-test-voters-finances-and-patience.html
-
-**Trump Tightens Grasp on G.O.P. as Cassidy Loss Shows Cost of Defiance**\
-`The defeat showed the president’s dominance in his party, even as a broader range of views about Mr. Trump could be a major Republican liability in the midterms.`\
-https://www.nytimes.com/2026/05/17/us/politics/trump-flexes-hold-on-gop-even-as-it-braces-for-midterm-backlash.html
 
