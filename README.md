@@ -1,3 +1,11 @@
+**Cómo un crucero para admirar la naturaleza se volvió una pesadilla**\
+`El brote de hantavirus en el MV Hondius hizo saltar las alarmas en un mundo aún traumatizado por la covid. Para los que iban a bordo, el peligro estaba mucho más cerca.`\
+https://www.nytimes.com/es/2026/05/17/espanol/mundo/crucero-hantavirus-mv-hondius.html
+
+**W.H.O. Declares Ebola Outbreak a Global Health Emergency**\
+`Just a day after the outbreak was announced, cases were confirmed in the capitals of Uganda and the Democratic Republic of Congo. There is no approved vaccine for the strain.`\
+https://www.nytimes.com/2026/05/17/world/africa/ebola-congo-uganda-who-public-health-emergency.html
+
 **The First Roundup of Jews in Paris, 1941**\
 `A new collection of photographs gives us a new picture of the Holocaust in France.`\
 https://www.nytimes.com/2026/05/17/opinion/holocaust-france-photographs-1941.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/as-the
 **Car Rams into Pedestrians in Northern Italy, Injuring at Least 8**\
 `A driver rammed a car into a group of people on the main shopping street of Modena, in northern Italy. Four of the injured were in serious condition, the city’s mayor said.`\
 https://www.nytimes.com/video/world/europe/100000010908374/modena-italy-car-pedestrians-injured.html
-
-**Romania’s song gave us this year’s lyrics controversy.**\
-``\
-https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/eurovision-romania-choke-me-anxiety-lyrics
-
-**From Italy, a disco anthem about the joys of marriage.**\
-``\
-https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/italy-eurovision-sal-da-vinci-per-sempre-si
 
