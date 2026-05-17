@@ -1,3 +1,11 @@
+**What the Dickens? Will Ferrell Plays Ghost of Epstein on ‘S.N.L.’ Season Finale**\
+`Ferrell, the “Saturday Night Live” alum, appears with James Austin Johnson as President Trump in a sendup of “A Christmas Carol.” Paul McCartney provides the music.`\
+https://www.nytimes.com/2026/05/17/arts/television/will-ferrell-epstein-snl-season-finale.html
+
+**Trump and Xi Would Need Personality Transplants to Get This Deal Done**\
+`For this to happen, however, both men would need personality transplants.`\
+https://www.nytimes.com/2026/05/17/opinion/trump-china-xi-trade.html
+
 **Trump Tightens Grasp on G.O.P. as Cassidy Loss Shows Cost of Defiance**\
 `The defeat showed the president’s dominance in his party, even as a broader range of views about Mr. Trump could be a major Republican liability in the midterms.`\
 https://www.nytimes.com/2026/05/17/us/politics/trump-flexes-hold-on-gop-even-as-it-braces-for-midterm-backlash.html

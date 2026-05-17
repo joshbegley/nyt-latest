@@ -1,3 +1,7 @@
+**What the Dickens? Will Ferrell Plays Ghost of Epstein on ‘S.N.L.’ Season Finale**\
+`Ferrell, the “Saturday Night Live” alum, appears with James Austin Johnson as President Trump in a sendup of “A Christmas Carol.” Paul McCartney provides the music.`\
+https://www.nytimes.com/2026/05/17/arts/television/will-ferrell-epstein-snl-season-finale.html
+
 **Five Weeknight Dishes, Now on Sundays**\
 `I’m here to help you plan some very delicious (and doable) dinners for your week — hoisin garlic noodles, anyone?`\
 https://www.nytimes.com/2026/05/17/dining/five-weeknight-dishes-now-on-sundays.html
@@ -22,7 +26,7 @@ https://www.nytimes.com/2026/05/17/weather/storm-tornado-forecast-nebraska-iowa-
 `Is the post-college job market as bad as it seems?`\
 https://www.nytimes.com/2026/05/17/briefing/good-luck-grads.html
 
-**Here’s the Trade Deal That Trump and Xi Should Have Reached**\
+**Trump and Xi Would Need Personality Transplants to Get This Deal Done**\
 `For this to happen, however, both men would need personality transplants.`\
 https://www.nytimes.com/2026/05/17/opinion/trump-china-xi-trade.html
 
@@ -42,13 +46,13 @@ https://www.nytimes.com/2026/05/17/world/europe/russia-ukraine-strikes-moscow.ht
 `Scroll down for hints and conversation about the puzzle for Monday, May 18, 2026.`\
 https://www.nytimes.com/2026/05/17/crosswords/connections-companion-1072.html
 
-**Wordle Review No. 1,794**\
-`Scroll down for hints and conversation about the puzzle for Monday, May 18, 2026.`\
-https://www.nytimes.com/2026/05/17/crosswords/wordle-review-1794.html
-
 **You Aren’t Crazy. The World Is Actually Getting Weirder.**\
 `One of the oldest and most durable features of human experience is re-emerging.`\
 https://www.nytimes.com/2026/05/17/opinion/supernatural-religion-reality.html
+
+**Wordle Review No. 1,794**\
+`Scroll down for hints and conversation about the puzzle for Monday, May 18, 2026.`\
+https://www.nytimes.com/2026/05/17/crosswords/wordle-review-1794.html
 
 **Reports of the Death of Civics Are Greatly Exaggerated**\
 `The decline of civic education hit bottom about a decade ago and is at last on the rebound. This fact brings me hope.`\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/17/business/for-trump-soaring-prices-test-voters
 **Trump Tightens Grasp on G.O.P. as Cassidy Loss Shows Cost of Defiance**\
 `The defeat showed the president’s dominance in his party, even as a broader range of views about Mr. Trump could be a major Republican liability in the midterms.`\
 https://www.nytimes.com/2026/05/17/us/politics/trump-flexes-hold-on-gop-even-as-it-braces-for-midterm-backlash.html
-
-**Why Neutral Maps Could Empower Black Voters as Much as the Voting Rights Act**\
-`Our simulations show that the act isn’t needed for minority representation in the South, if partisan gerrymandering were checked.`\
-https://www.nytimes.com/2026/05/17/upshot/redistricting-race-court-gerrymanders-elections.html
 
