@@ -19,7 +19,7 @@ https://www.nytimes.com/2026/05/17/us/a-federal-case-will-test-if-protesters-are
 https://www.nytimes.com/2026/05/17/world/killer-robots-ukraine-ebola-qatar.html
 
 **Two Military Jets Collide in Midair at Idaho Air Show**\
-`Video shared on social media showed the jets striking each other and spinning toward the ground. At least four parachutes were deployed before the planes crashed.`\
+`Video shared on social media showed the jets striking each other and spinning toward the ground. Four crew members safely ejected before the planes crashed, officials said.`\
 https://www.nytimes.com/2026/05/17/us/planes-crash-gunfighter-skies-show.html
 
 **How a Democratic Governor Came to Release an Election Denier From Prison**\

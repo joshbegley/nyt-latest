@@ -1,3 +1,7 @@
+**Two Military Jets Collide in Midair at Idaho Air Show**\
+`Video shared on social media showed the jets striking each other and spinning toward the ground. Four crew members safely ejected before the planes crashed, officials said.`\
+https://www.nytimes.com/2026/05/17/us/planes-crash-gunfighter-skies-show.html
+
 **The Quest for an Elusive Clean Fuel Is Moving Underground**\
 `The dream of clean hydrogen has tantalized energy experts for years, but producing it has been tough. Many start-ups think the answer could lie beneath our feet.`\
 https://www.nytimes.com/2026/05/17/climate/geologic-hydrogen-clean-energy-underground.html
