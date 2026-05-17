@@ -1,3 +1,7 @@
+**Trump Tightens Grasp on G.O.P. as Cassidy Loss Shows Cost of Defiance**\
+`The defeat showed the president’s dominance in his party, even as a broader range of views about Mr. Trump could be a major Republican liability in the midterms.`\
+https://www.nytimes.com/2026/05/17/us/politics/trump-flexes-hold-on-gop-even-as-it-braces-for-midterm-backlash.html
+
 **Five Weeknight Dishes, Now on Sundays**\
 `I’m here to help you plan some very delicious (and doable) dinners for your week — hoisin garlic noodles, anyone?`\
 https://www.nytimes.com/2026/05/17/dining/five-weeknight-dishes-now-on-sundays.html

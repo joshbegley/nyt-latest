@@ -71,7 +71,7 @@ https://www.nytimes.com/es/2026/05/17/espanol/cultura/dudamel-filarmonica-nueva-
 https://www.nytimes.com/2026/05/17/business/for-trump-soaring-prices-test-voters-finances-and-patience.html
 
 **Trump Tightens Grasp on G.O.P. as Cassidy Loss Shows Cost of Defiance**\
-`The defeat showed the president’s dominance in his party , even as a broader range of views about Mr. Trump could be a major Republican liability in the midterms.`\
+`The defeat showed the president’s dominance in his party, even as a broader range of views about Mr. Trump could be a major Republican liability in the midterms.`\
 https://www.nytimes.com/2026/05/17/us/politics/trump-flexes-hold-on-gop-even-as-it-braces-for-midterm-backlash.html
 
 **Why Neutral Maps Could Empower Black Voters as Much as the Voting Rights Act**\
