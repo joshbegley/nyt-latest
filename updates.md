@@ -1,3 +1,7 @@
+**To Critics, Trump Remarks Reveal a Billionaire Out of Touch**\
+`The president has never pretended to be an ordinary American, but a recent “truth bomb” has opened him to criticism that he doesn’t grasp the economic strain of his war with Iran.`\
+https://www.nytimes.com/2026/05/17/us/politics/trump-billionaire-iran-war-cost.html
+
 **Chicken Paprikash, Generously Buttered Egg Noodles and a Cucumber Salad**\
 `There’s your Sunday supper, courtesy of Sam Sifton’s five-star recipe.`\
 https://www.nytimes.com/2026/05/17/dining/chicken-paprikash-generously-buttered-egg-noodles-and-a-cucumber-salad.html
