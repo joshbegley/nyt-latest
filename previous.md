@@ -1,3 +1,7 @@
+**Powerful Storms, Hail and Tornadoes Forecast for Central U.S.**\
+`Nebraska, Iowa and Kansas face the greatest risk of extreme weather, with the worst expected on Monday.`\
+https://www.nytimes.com/2026/05/17/weather/storm-tornado-forecast-nebraska-iowa-kansas.html
+
 **Good Luck, Grads!**\
 `Is the post-college job market as bad as it seems?`\
 https://www.nytimes.com/2026/05/17/briefing/good-luck-grads.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/17/arts/music/metropolitan-opera-general-manager
 **In Iraqi Desert, Two Israeli Outposts Were Kept Secret for Months**\
 `Israel spent over a year preparing a covert site in Iraq for its operations against Iran, regional officials say. Iraqi officials later confirmed the existence of a second base.`\
 https://www.nytimes.com/2026/05/17/world/europe/israel-iraq-iran-bases.html
-
-**Trump Administration Pushes Narrative of Christian Founding at Rally**\
-`The nine-hour prayer event will feature speakers from President Trump’s cabinet and a program that connects the nation’s founding with Christianity.`\
-https://www.nytimes.com/2026/05/17/us/trump-prayer-rally-national-mall.html
 

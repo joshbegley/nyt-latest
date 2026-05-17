@@ -1,3 +1,7 @@
+**Powerful Storms, Hail and Tornadoes Forecast for Central U.S.**\
+`Nebraska, Iowa and Kansas face the greatest risk of extreme weather, with the worst expected on Monday.`\
+https://www.nytimes.com/2026/05/17/weather/storm-tornado-forecast-nebraska-iowa-kansas.html
+
 **Good Luck, Grads!**\
 `Is the post-college job market as bad as it seems?`\
 https://www.nytimes.com/2026/05/17/briefing/good-luck-grads.html
