@@ -1,3 +1,11 @@
+**Bulgaria Wins Eurovision Song Contest as Israel Takes Second**\
+`Five countries boycotted this year’s contest over Israel’s involvement, but politics took a back seat once the show in Vienna got underway.`\
+https://www.nytimes.com/2026/05/16/arts/music/dara-bulgaria-bangaranga-eurovision-winner.html
+
+**Shoppers’ Frenzy for ‘Royal Pop’ Pocket Watches Forces Swatch to Shut Stores**\
+`The pocket watches, a collaboration with the luxury timepiece maker Audemars Piguet, drew crowds to stores and malls around the world.`\
+https://www.nytimes.com/2026/05/16/business/swatch-audemars-piguet-watch-launch-closures.html
+
 **The Fight for Voting Rights Returns to Selma**\
 `A crowd gathered at a pivotal site of defiance in the civil rights movement, this time in opposition to efforts by Republicans to eliminate majority-Black districts.`\
 https://www.nytimes.com/2026/05/16/us/selma-march-voting-rights-act-redistricting.html
