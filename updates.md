@@ -1,3 +1,11 @@
+**The First Roundup of Jews in Paris, 1941**\
+`A new collection of photographs gives us a new picture of the Holocaust in France.`\
+https://www.nytimes.com/2026/05/17/opinion/holocaust-france-photographs-1941.html
+
+**My Classmate, ChatGPT**\
+`Lessons from the first graduating A.I. class.`\
+https://www.nytimes.com/2026/05/17/opinion/chatgpt-ai-college-school-graduation.html
+
 **Corrections: May 17, 2026**\
 `Corrections that appeared in print on Sunday, May 17, 2026.`\
 https://www.nytimes.com/2026/05/17/pageoneplus/corrections-may-17-2026.html

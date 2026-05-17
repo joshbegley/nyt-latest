@@ -1,3 +1,11 @@
+**The First Roundup of Jews in Paris, 1941**\
+`A new collection of photographs gives us a new picture of the Holocaust in France.`\
+https://www.nytimes.com/2026/05/17/opinion/holocaust-france-photographs-1941.html
+
+**My Classmate, ChatGPT**\
+`Lessons from the first graduating A.I. class.`\
+https://www.nytimes.com/2026/05/17/opinion/chatgpt-ai-college-school-graduation.html
+
 **Corrections: May 17, 2026**\
 `Corrections that appeared in print on Sunday, May 17, 2026.`\
 https://www.nytimes.com/2026/05/17/pageoneplus/corrections-may-17-2026.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/eurovi
 **From Italy, a disco anthem about the joys of marriage.**\
 ``\
 https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/italy-eurovision-sal-da-vinci-per-sempre-si
-
-**Long Island Rail Road Service Suspended as Workers Strike**\
-`For the first time in over 30 years, thousands of workers walked off the job, halting service on the Long Island Rail Road, the country’s busiest passenger rail service.`\
-https://www.nytimes.com/video/nyregion/100000010908169/long-island-lirr-shuts-down-strike.html
-
-**Can Felicia overcome the odds for Sweden?**\
-``\
-https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/eurovision-sweden-felicia
 
