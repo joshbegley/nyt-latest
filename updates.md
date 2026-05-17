@@ -1,3 +1,15 @@
+**Peter G. Neumann, Who Warned of Computer Security Risks, Dies at 93**\
+`For decades, he criticized the industry’s lax attitudes toward both computer security and individual digital privacy. And he developed solutions.`\
+https://www.nytimes.com/2026/05/17/obituaries/peter-g-neumann-dead.html
+
+**The Quest for an Elusive Clean Fuel is Moving Underground**\
+`The dream of clean hydrogen has tantalized energy experts for years, but producing it has been tough. Many start-ups think the answer could lie beneath our feet.`\
+https://www.nytimes.com/2026/05/17/climate/geologic-hydrogen-clean-energy-underground.html
+
+**Conspiracy Trial Will Test Trump’s Aggressive Tactics Against Protesters**\
+`Prosecutors in Spokane, Wash., are trying three activists who they say conspired to impede federal officers. Legal experts call it a stretch.`\
+https://www.nytimes.com/2026/05/17/us/a-federal-case-will-test-if-protesters-are-conspirators.html
+
 **A Federal Case Will Test if Protesters Are Conspirators**\
 `Prosecutors in Spokane, Wash., are trying three activists who they say conspired to impede federal officers. Legal experts call it a stretch.`\
 https://www.nytimes.com/2026/05/17/us/a-federal-case-will-test-if-protesters-are-conspirators.html
