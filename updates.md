@@ -1,3 +1,15 @@
+**7 Republicans Voted to Convict Trump. Most Are No Longer in Office.**\
+`Senator Bill Cassidy’s defeat means no more than two of them will be left in Congress next year.`\
+https://www.nytimes.com/2026/05/16/us/politics/republicans-trump-cassidy-conviction-impeachment.html
+
+**Senate Ruling Threatens Ballroom Funding in G.O.P. Budget Bill**\
+`Democrats announced Saturday night that the Senate’s top parliamentary referee had determined that the $1 billion provision did not comply with budget rules.`\
+https://www.nytimes.com/2026/05/16/us/politics/white-house-ballroom-senate.html
+
+**Cassidy Loses His Primary in Louisiana, as Trump Vanquishes Another G.O.P. Foe**\
+`Senator Bill Cassidy, a two-term Republican who voted to convict President Trump in his 2021 impeachment trial, could not muster enough votes to continue to a runoff next month.`\
+https://www.nytimes.com/2026/05/16/us/politics/cassidy-louisiana-race-trump.html
+
 **Venezuela Extradites Billionaire Tycoon to the U.S.**\
 `The extradition of Alex Saab, who is tied to a huge graft scheme, is part of a purge of powerful figures who helped the deposed president, Nicolás Maduro, stay in power.`\
 https://www.nytimes.com/2026/05/16/world/americas/venezuela-extradites-tycoon-alex-saab.html

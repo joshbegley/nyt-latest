@@ -1,3 +1,15 @@
+**7 Republicans Voted to Convict Trump. Most Are No Longer in Office.**\
+`Senator Bill Cassidy’s defeat means no more than two of them will be left in Congress next year.`\
+https://www.nytimes.com/2026/05/16/us/politics/republicans-trump-cassidy-conviction-impeachment.html
+
+**Senate Ruling Threatens Ballroom Funding in G.O.P. Budget Bill**\
+`Democrats announced Saturday night that the Senate’s top parliamentary referee had determined that the $1 billion provision did not comply with budget rules.`\
+https://www.nytimes.com/2026/05/16/us/politics/white-house-ballroom-senate.html
+
+**Cassidy Loses His Primary in Louisiana, as Trump Vanquishes Another G.O.P. Foe**\
+`Senator Bill Cassidy, a two-term Republican who voted to convict President Trump in his 2021 impeachment trial, could not muster enough votes to continue to a runoff next month.`\
+https://www.nytimes.com/2026/05/16/us/politics/cassidy-louisiana-race-trump.html
+
 **Venezuela Extradites Billionaire Tycoon to the U.S.**\
 `The extradition of Alex Saab, who is tied to a huge graft scheme, is part of a purge of powerful figures who helped the deposed president, Nicolás Maduro, stay in power.`\
 https://www.nytimes.com/2026/05/16/world/americas/venezuela-extradites-tycoon-alex-saab.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/16/world/africa/felicien-kabuga-dead.html
 **Finland, the Eurovision Favorite, Is Here for Revenge**\
 `The pop star Pete Parkkonen and the violinist Linda Lampenius performed “Liekinheitin” on a stage covered in flames.`\
 https://www.nytimes.com/2026/05/16/arts/music/finland-eurovision-liekinheitin.html
-
-**France’s Eurovision act is just as much America’s.**\
-``\
-https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/frances-eurovision-monroe-opera
-
-**Woman Gives Birth in Brooklyn Courtroom**\
-`A woman who was nine months pregnant was in court on low-level charges, raising questions about why she was discharged from a hospital before the hearing.`\
-https://www.nytimes.com/2026/05/16/nyregion/birth-courtroom-baby-nyc.html
-
-**Australia’s strategy: Go big. On everything.**\
-``\
-https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/australian-eurovison-delta-goodrem-eclipse
 
