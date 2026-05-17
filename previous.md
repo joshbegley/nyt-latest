@@ -1,0 +1,80 @@
+**China Indicates Tariffs Were Discussed at Trump Summit**\
+`China’s Ministry of Commerce said Saturday that the countries had struck a preliminary agreement to reduce some tariffs, seemingly contradicting statements by President Trump`\
+https://www.nytimes.com/2026/05/16/business/economy/china-tariffs-trump-summit.html
+
+**Thousands of FiveThirtyEight Articles Seemingly Vanish From the Internet**\
+`The influential polling analysis site was shut down last year, but an earlier archived version, fivethirtyeight.com, had lived on. Now the site is redirecting users to ABC News.`\
+https://www.nytimes.com/2026/05/16/business/media/fivethirtyeight-abc-removed.html
+
+**Double Meanings**\
+`Derrick Niederman drops a heavy-duty Sunday crossword on us.`\
+https://www.nytimes.com/2026/05/16/crosswords/daily-puzzle-2026-05-17.html
+
+**Here’s how the voting works.**\
+``\
+https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/heres-how-the-voting-works
+
+**Train Crashes Into Bangkok Traffic, Killing at Least 8 People**\
+`A freight train crashed into traffic on one of Bangkok’s busiest roads on Saturday. At least eight people were killed and dozens were injured, Thai officials said.`\
+https://www.nytimes.com/video/world/asia/100000010908241/bangkok-bus-train-crash.html
+
+**As the votes are cast, it’s a celebration of Eurovision’s 70th anniversary.**\
+``\
+https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/as-the-votes-are-cast-its-a-celebration-of-eurovisions-70th-anniversary
+
+**Car Rams into Pedestrians in Northern Italy, Injuring at Least 8**\
+`A driver rammed a car into a group of people on the main shopping street of Modena, in northern Italy. Four of the injured were in serious condition, the city’s mayor said.`\
+https://www.nytimes.com/video/world/europe/100000010908374/modena-italy-car-pedestrians-injured.html
+
+**Romania’s song gave us this year’s lyrics controversy.**\
+``\
+https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/eurovision-romania-choke-me-anxiety-lyrics
+
+**From Italy, a disco anthem about the joys of marriage.**\
+``\
+https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/italy-eurovision-sal-da-vinci-per-sempre-si
+
+**Long Island Rail Road Service Suspended as Workers Strike**\
+`For the first time in over 30 years, thousands of workers walked off the job, halting service on the Long Island Rail Road, the country’s busiest passenger rail service.`\
+https://www.nytimes.com/video/nyregion/100000010908169/long-island-lirr-shuts-down-strike.html
+
+**Can Felicia overcome the odds for Sweden?**\
+``\
+https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/eurovision-sweden-felicia
+
+**Félicien Kabuga Dies; Accused of Masterminding Rwanda’s Genocide**\
+`One of his country’s richest businessmen, he fled arrest and escaped prosecution for allegedly financing and directing the bloodletting that cost 800,000 lives in 1994.`\
+https://www.nytimes.com/2026/05/16/world/africa/felicien-kabuga-dead.html
+
+**Finland, the Eurovision Favorite, Is Here for Revenge**\
+`The pop star Pete Parkkonen and the violinist Linda Lampenius performed “Liekinheitin” on a stage covered in flames.`\
+https://www.nytimes.com/2026/05/16/arts/music/finland-eurovision-liekinheitin.html
+
+**France’s Eurovision act is just as much America’s.**\
+``\
+https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/frances-eurovision-monroe-opera
+
+**Woman Gives Birth in Brooklyn Courtroom**\
+`A court officer delivered the newborn after a woman who was nine months pregnant appeared in court on low-level charges.`\
+https://www.nytimes.com/2026/05/16/nyregion/birth-courtroom-baby-nyc.html
+
+**Australia’s strategy: Go big. On everything.**\
+``\
+https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/australian-eurovison-delta-goodrem-eclipse
+
+**Greece’s Akylas wants it all.**\
+``\
+https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/greece-akylas-ferto-eurovision
+
+**Israel’s Noam Bettan Brings Some French Flair to Eurovision**\
+`The singer performed a pop track largely in French, as the show faced boycotts from other countries over Israel’s military actions in Gaza.`\
+https://www.nytimes.com/2026/05/16/arts/music/eurovision-israel-noam-bettan-michelle.html
+
+**Kansas Judge Blocks Law Banning Gender-Transition Treatments for Youths**\
+`Two transgender teenagers claimed that the ban, enacted last year over the Democratic governor’s veto, violated the Kansas Constitution.`\
+https://www.nytimes.com/2026/05/16/us/kansas-transgender-lawsuit.html
+
+**Severe Storms to Bring Strong Winds and Hail to Central U.S., Forecasters Say**\
+`A series of storms, including supercells, threatens to dump rain, hail and create a tornado risk for a vast section of the country. The most severe weather is expected on Monday.`\
+https://www.nytimes.com/2026/05/16/weather/storm-tornado-forecast-nebraska-minnesota.html
+
