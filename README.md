@@ -1,3 +1,7 @@
+**Cassidy Loses Primary After Drawing Trump’s Ire**\
+`Republican Senator Bill Cassidy lost his Louisiana primary on Saturday after President Trump targeted him for voting to impeach him in 2021. The two-term senator took veiled swipes at the president in his concession speech.`\
+https://www.nytimes.com/video/us/politics/100000010908960/cassidy-louisiana-primary-trump-senate.html
+
 **La OMS declara el brote de ébola como emergencia de salud internacional**\
 `La magnitud del brote podría ser mucho mayor de lo que se ha detectado y comunicado hasta ahora, dijo la OMS. No hay vacuna ni tratamientos aprobados para la cepa.`\
 https://www.nytimes.com/es/2026/05/17/espanol/ciencia-y-tecnologia/ebola-brote-emergencia-salud-oms.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/17/opinion/supernatural-religion-reality.html
 **Wordle Review No. 1,794**\
 `Scroll down for hints and conversation about the puzzle for Monday, May 18, 2026.`\
 https://www.nytimes.com/2026/05/17/crosswords/wordle-review-1794.html
-
-**Nothing Beats Polarization Like Civics Education**\
-`The decline of civic education hit bottom about a decade ago and is at last on the rebound. This fact brings me hope.`\
-https://www.nytimes.com/2026/05/17/opinion/civic-education-return.html
 
