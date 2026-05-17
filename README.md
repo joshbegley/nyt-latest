@@ -1,80 +1,80 @@
-**El psicólogo ganador del Nobel que creyó encontrar el secreto de la felicidad**\
-`La necesidad de seguir buscando algo mejor ha envenenado hasta los momentos más mundanos.`\
-https://www.nytimes.com/es/2026/05/17/espanol/opinion/herbert-simon-felicidad-decisiones.html
+**To Critics, Trump Remarks Reveal a Billionaire Out of Touch**\
+`The president has never pretended to be an ordinary American, but a recent “truth bomb” has opened him to criticism that he doesn’t grasp the economic strain of his war with Iran.`\
+https://www.nytimes.com/2026/05/17/us/politics/to-critics-trump-remarks-reveal-a-billionaire-out-of-touch.html
 
-**‘He Didn’t Sound Like Someone to Be Messed With’**\
-`Extra effort to hail a cab, an apology for a subway encounter and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://www.nytimes.com/2026/05/17/nyregion/metropolitan-diary.html
+**Dudamel sacude a la Filarmónica de Nueva York con salsa**\
+`El director venezolano llevó su experimento a nuevas audiencias, juntando el talento de músicos clásicos con el de la Spanish Harlem Orchestra para un repertorio fuera de lo común.`\
+https://www.nytimes.com/es/2026/05/17/espanol/cultura/dudamel-filarmonica-nueva-york-salsa.html
 
-**After a Rough Start, Mamdani Focuses on Skeptical Black New Yorkers**\
-`Mayor Zohran Mamdani has more explicitly attempted to address specific concerns of Black New Yorkers with his policy agenda, but some remain wary.`\
-https://www.nytimes.com/2026/05/17/nyregion/mamdani-black-voters-nyc.html
+**For Trump, Soaring Prices Test Voters’ Finances and Patience**\
+`Just months before another election that may hinge on the economy, the war in Iran has sent gas and other goods soaring.`\
+https://www.nytimes.com/2026/05/17/business/for-trump-soaring-prices-test-voters-finances-and-patience.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/05/17/crosswords/spelling-bee-forum.html
+**Trump Flexes Hold on G.O.P., Even as It Braces for Midterm Backlash**\
+`The defeat of Senator Bill Cassidy showed the president’s dominance in his party at a moment when a broader range of views about Mr. Trump could be a major liability for November.`\
+https://www.nytimes.com/2026/05/17/us/politics/trump-flexes-hold-on-gop-even-as-it-braces-for-midterm-backlash.html
 
-**The Value in Recording Hard Conversations**\
-`How a tape can preserve a connection to reality — and each other.`\
-https://www.nytimes.com/2026/05/17/briefing/the-value-in-recording-hard-conversations.html
+**Why Neutral Maps Could Empower Black Voters as Much as the Voting Rights Act**\
+`Our simulations show that the act isn’t needed for minority representation in the South, if partisan gerrymandering were checked.`\
+https://www.nytimes.com/2026/05/17/upshot/redistricting-race-court-gerrymanders-elections.html
 
-**A North Korean Soccer Team Makes a Rare Visit to South Korea**\
-`The team’s trip, for a women’s soccer tournament, is unlikely to catalyze a diplomatic thaw between the two Koreas, although some sports events have.`\
-https://www.nytimes.com/2026/05/17/world/asia/north-korea-naegohyang-soccer-football.html
+**App-Driven Birding Attracts Flocks of Enthusiasts to Colombia**\
+`Colombia is home to the most species of birds known to ornithologists. Merlin, an app, is helping to build an “avian tourism” industry there.`\
+https://www.nytimes.com/2026/05/17/world/americas/colombia-birding-app-merlin-ebird-tourism.html
 
-**Cómo un crucero para admirar la naturaleza se volvió una pesadilla**\
-`El brote de hantavirus en el MV Hondius hizo saltar las alarmas en un mundo aún traumatizado por la covid. Para los que iban a bordo, el peligro estaba mucho más cerca.`\
-https://www.nytimes.com/es/2026/05/17/espanol/mundo/crucero-hantavirus-mv-hondius.html
+**Kentucky’s Curious Cast of Political Characters**\
+`The state, where a rebellious Republican faces a tough primary challenge on Tuesday, has an unpredictable political landscape that has produced a long list of surprising figures.`\
+https://www.nytimes.com/2026/05/17/us/politics/kentuckys-curious-cast-of-political-characters.html
 
-**W.H.O. Declares Ebola Outbreak a Global Health Emergency**\
-`Just a day after the outbreak was announced, cases were confirmed in the capitals of Uganda and the Democratic Republic of Congo. There is no approved vaccine for the strain.`\
-https://www.nytimes.com/2026/05/17/world/africa/ebola-congo-uganda-who-public-health-emergency.html
+**Does This Man Have the ‘Most Difficult Job on Earth’?**\
+`Peter Gelb, the general manager of the Metropolitan Opera, said he is not going anywhere as he struggles with financial crises and opera’s place in a changing arts landscape.`\
+https://www.nytimes.com/2026/05/17/arts/music/metropolitan-opera-general-manager-peter-gelb.html
 
-**The First Roundup of Jews in Paris, 1941**\
-`A new collection of photographs gives us a new picture of the Holocaust in France.`\
-https://www.nytimes.com/2026/05/17/opinion/holocaust-france-photographs-1941.html
+**In Iraqi Desert, Two Israeli Outposts Were Kept Secret for Months**\
+`Israel spent over a year preparing a covert site in Iraq for its operations against Iran, regional officials say. Iraqi officials later confirmed the existence of a second base.`\
+https://www.nytimes.com/2026/05/17/world/europe/israel-iraq-iran-bases.html
 
-**My Classmate, ChatGPT**\
-`Lessons from the first graduating A.I. class.`\
-https://www.nytimes.com/2026/05/17/opinion/chatgpt-ai-college-school-graduation.html
+**Trump Administration Pushes Narrative of Christian Founding at Rally**\
+`The nine-hour prayer event will feature speakers from President Trump’s cabinet and a program that connects the nation’s founding with Christianity.`\
+https://www.nytimes.com/2026/05/17/us/trump-prayer-rally-national-mall.html
 
-**Corrections: May 17, 2026**\
-`Corrections that appeared in print on Sunday, May 17, 2026.`\
-https://www.nytimes.com/2026/05/17/pageoneplus/corrections-may-17-2026.html
+**The Big Questions About Jeffrey Epstein: What The Times Has Learned**\
+`Here is what we know about the sexual predator whose secrets spurred an international reckoning over money, power and complicity. Check back for updates.`\
+https://www.nytimes.com/2026/05/17/us/the-big-questions-about-jeffrey-epstein-what-the-times-has-learned.html
 
-**Quote of the Day: For Migrants Deported to Congo, an ‘Unspoken Prison’**\
-`Quotation of the Day for Sunday, May 17, 2026.`\
-https://www.nytimes.com/2026/05/16/pageoneplus/quote-of-the-day-for-migrants-deported-to-congo-an-unspoken-prison.html
+**These Women Want to Dress Your Bed**\
+`Millaux sheets are made to order. But the designers don’t want the pillowcases to match. Ever.`\
+https://www.nytimes.com/2026/05/17/style/couture-bedding-millaux.html
 
-**7 Republicans Voted to Convict Trump. Most Are No Longer in Office.**\
-`Senator Bill Cassidy’s defeat means no more than two of them will be left in Congress next year.`\
-https://www.nytimes.com/2026/05/16/us/politics/republicans-trump-cassidy-conviction-impeachment.html
+**The Iran War Is Crippling One of the World’s Wealthiest Nations**\
+`Iranian attacks have paralyzed Qatar’s vital gas exports and are stalling the tourism and business pivots that were intended to anchor its future growth.`\
+https://www.nytimes.com/2026/05/17/business/qatar-economy-iran-war.html
 
-**Senate Ruling Threatens Ballroom Funding in G.O.P. Budget Bill**\
-`Democrats announced Saturday night that the Senate’s top parliamentary referee had determined that the $1 billion provision did not comply with budget rules.`\
-https://www.nytimes.com/2026/05/16/us/politics/white-house-ballroom-senate.html
+**The Pleasure of ‘The Devil Wears Prada 2’ Is in the Comparisons**\
+`The “before” and “after” versions of the cast are just the beginning.`\
+https://www.nytimes.com/2026/05/17/style/the-devil-wears-prada-2-cast.html
 
-**Cassidy Loses His Primary in Louisiana, as Trump Vanquishes Another G.O.P. Foe**\
-`Senator Bill Cassidy, a two-term Republican who voted to convict President Trump in his 2021 impeachment trial, could not muster enough votes to continue to a runoff next month.`\
-https://www.nytimes.com/2026/05/16/us/politics/cassidy-louisiana-race-trump.html
+**A Broadway Star Is the Savannah Bananas’ Phantom of the Bullpen**\
+`Derek Klena was a successful actor with a Tony nomination to his name. But he’s found a bigger audience with the barnstorming baseball sensation.`\
+https://www.nytimes.com/2026/05/17/arts/savannnah-bananas-derek-klena-broadway.html
 
-**Venezuela Extradites Billionaire Tycoon to the U.S.**\
-`The extradition of Alex Saab, who is tied to a huge graft scheme, is part of a purge of powerful figures who helped the deposed president, Nicolás Maduro, stay in power.`\
-https://www.nytimes.com/2026/05/16/world/americas/venezuela-extradites-tycoon-alex-saab.html
+**How a Secretive Firm Tried (and Failed) to Fix an Epstein Friend’s Tattered Image**\
+`Terakeet, a reputation management firm, used online tricks to downplay the friendship of the Goldman Sachs general counsel, Kathryn Ruemmler, with the sex offender Jeffrey Epstein. It wasn’t enough.`\
+https://www.nytimes.com/2026/05/17/us/politics/epstein-reummler-reputation-management.html
 
-**Bulgaria Wins Eurovision Song Contest as Israel Takes Second**\
-`Five countries boycotted this year’s contest over Israel’s involvement, but politics took a back seat once the show in Vienna got underway.`\
-https://www.nytimes.com/2026/05/16/arts/music/dara-bulgaria-bangaranga-eurovision-winner.html
+**Nobody Once Told Him the World Was Gonna Meme Shrek**\
+`The writer and illustrator William Steig lived several lives before his book about a surly ogre became a Hollywood hit.`\
+https://www.nytimes.com/2026/05/17/books/william-steig-shrek-anniversary.html
 
-**Shoppers’ Frenzy for ‘Royal Pop’ Pocket Watches Forces Swatch to Shut Stores**\
-`The pocket watches, a collaboration with the luxury timepiece maker Audemars Piguet, drew crowds to stores and malls around the world.`\
-https://www.nytimes.com/2026/05/16/business/swatch-audemars-piguet-watch-launch-closures.html
+**A Young Socialist Mayor, Starbucks and the Tension Over Soaking the Rich**\
+`Seattle voters elected Mayor Katie Wilson as tensions rose over wealth inequality, but as Starbucks, one of the city’s most iconic companies, expands in Nashville, she is finding her limits.`\
+https://www.nytimes.com/2026/05/17/us/politics/seattle-mayor-tax-the-rich-starbucks.html
 
-**The Fight for Voting Rights Returns to Selma**\
-`A crowd gathered at a pivotal site of defiance in the civil rights movement, this time in opposition to efforts by Republicans to eliminate majority-Black districts.`\
-https://www.nytimes.com/2026/05/16/us/selma-march-voting-rights-act-redistricting.html
+**Two of Susan Sontag’s Besties Get a Beautiful Biography of Their Own**\
+`In “The Wonderful World That Almost Was,” Andrew Durbin reconstructs the coterie that surrounded the artist-lovers Peter Hujar and Paul Thek.`\
+https://www.nytimes.com/2026/05/17/books/review/the-wonderful-world-that-almost-was-review-andrew-durbin.html
 
-**China Indicates Tariffs Were Discussed at Trump Summit**\
-`China’s Ministry of Commerce said Saturday that the countries had struck a preliminary agreement to reduce some tariffs, seemingly contradicting statements by President Trump`\
-https://www.nytimes.com/2026/05/16/business/economy/china-tariffs-trump-summit.html
+**A Newspaper’s Birches Bend and Occasionally Break**\
+`A stand of trees fights for survival in a glass atrium within the New York Times Building.`\
+https://www.nytimes.com/2026/05/17/insider/birch-trees-new-york-times-building.html
 
