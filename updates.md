@@ -1,3 +1,11 @@
+**A Federal Case Will Test if Protesters Are Conspirators**\
+`Prosecutors in Spokane, Wash., are trying three activists who they say conspired to impede federal officers. Legal experts call it a stretch.`\
+https://www.nytimes.com/2026/05/17/us/a-federal-case-will-test-if-protesters-are-conspirators.html
+
+**He’s Forging the Future of War**\
+`Meet the man who wants Ukraine to use autonomous drones that could decide on their own to use lethal force.`\
+https://www.nytimes.com/2026/05/17/world/killer-robots-ukraine-ebola-qatar.html
+
 **Two Military Jets Collide in Midair at Idaho Air Show**\
 `Video shared on social media showed the jets striking each other and spinning toward the ground. At least four parachutes were deployed before the planes crashed.`\
 https://www.nytimes.com/2026/05/17/us/planes-crash-gunfighter-skies-show.html

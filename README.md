@@ -1,4 +1,12 @@
-**A Federal Case Will Test if Protesters Are Conspirators**\
+**Peter G. Neumann, Who Warned of Computer Security Risks, Dies at 93**\
+`For decades, he criticized the industry’s lax attitudes toward both computer security and individual digital privacy. And he developed solutions.`\
+https://www.nytimes.com/2026/05/17/obituaries/peter-g-neumann-dead.html
+
+**The Quest for an Elusive Clean Fuel is Moving Underground**\
+`The dream of clean hydrogen has tantalized energy experts for years, but producing it has been tough. Many start-ups think the answer could lie beneath our feet.`\
+https://www.nytimes.com/2026/05/17/climate/geologic-hydrogen-clean-energy-underground.html
+
+**Conspiracy Trial Will Test Trump’s Aggressive Tactics Against Protesters**\
 `Prosecutors in Spokane, Wash., are trying three activists who they say conspired to impede federal officers. Legal experts call it a stretch.`\
 https://www.nytimes.com/2026/05/17/us/a-federal-case-will-test-if-protesters-are-conspirators.html
 
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/17/opinion/tech-billionaires-opera-funding-met.h
 **The Great Disruption: How A.I. Will Shape Our Future**\
 `Readers discuss ways in which artificial intelligence is reshaping our lives. Also: Frequent redistricting.`\
 https://www.nytimes.com/2026/05/17/opinion/ai-future.html
-
-**Sex, Death and ‘Devils’ at Cannes**\
-`With the main slate making few waves, the biggest moments at the festival so far involve a new horror comedy and a restored horror provocation.`\
-https://www.nytimes.com/2026/05/17/movies/cannes-film-festival-teenage-sex-and-death-at-camp-miasma.html
-
-**Powerful Storms, Hail and Tornadoes Forecast for Central U.S.**\
-`Nebraska, Iowa and Kansas face the greatest risk of extreme weather, with the worst expected on Monday.`\
-https://www.nytimes.com/2026/05/17/weather/storm-tornado-forecast-nebraska-iowa-kansas.html
 
