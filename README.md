@@ -1,3 +1,7 @@
+**Review: In ‘Dad Don’t Read This’ a Playwright (Maybe?) Grows Up**\
+`Eliya Smith’s disturbing teen dramedy explores the ambivalence and confusion of life on the brink of adulthood.`\
+https://www.nytimes.com/2026/05/17/theater/dad-dont-read-this-review.html
+
 **Perú va a una segunda vuelta con dos visiones distintas para el país**\
 `Las elecciones presidenciales enfrentan a Keiko Fujimori, conservadora, y Roberto Sánchez, político de izquierda, tras una crisis marcada por retrasos y protestas.`\
 https://www.nytimes.com/es/2026/05/17/espanol/america-latina/peru-elecciones-segunda-vuelta-keiko-fujimori-roberto-sanchez.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/17/podcasts/the-daily/can-we-reverse-aging.html
 **Wave of Ukrainian Strikes Kills at Least 4, Russia Says**\
 `More than 550 drones were intercepted or shot down in more than a dozen regions, including Moscow, in one of largest attacks of the war.`\
 https://www.nytimes.com/2026/05/17/world/europe/russia-ukraine-strikes-moscow.html
-
-**The ‘Rabid Partisan’ Republican Who Defied Donald Trump**\
-`Defeating a sclerotic rump of a party is no achievement. Instead, one-party rule enables corruption. It fosters stagnation.`\
-https://www.nytimes.com/2026/05/17/opinion/shane-massey-south-carolina-clyburn.html
 
