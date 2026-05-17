@@ -1,3 +1,15 @@
+**Beverley Martyn, Whose Folk Music Breakthrough Took 50 Years, Dies at 79**\
+`As a rising star of the 1960s, she dated Paul Simon, brooded with Nick Drake and drew Barbra Streisand’s envy. Then she sank into an abusive marriage.`\
+https://www.nytimes.com/2026/05/17/obituaries/beverley-martyn-dead.html
+
+**NextEra Energy Said to Be in Talks to Acquire Dominion, Creating a Utility Giant**\
+`A deal, involving the utilities in Florida and Virginia, would come as demand for power is soaring, largely because of the rapid growth of A.I. data centers.`\
+https://www.nytimes.com/2026/05/17/business/nextera-dominion-deal.html
+
+**Isabel Leonard and Others Offer Tastings of ‘Frida y Diego’**\
+`The performers of a Met Opera production about Frida Kahlo and Diego Rivera have been promoting the show in decidedly unoperatic places, including a cemetery.`\
+https://www.nytimes.com/2026/05/17/arts/music/isabel-leonard-frida-y-diego-met.html
+
 **Two Military Jets Collide in Midair at Idaho Air Show**\
 `Video shared on social media showed the jets striking each other and spinning toward the ground. Four crew members safely ejected before the planes crashed, officials said.`\
 https://www.nytimes.com/2026/05/17/us/planes-crash-gunfighter-skies-show.html
