@@ -1,3 +1,15 @@
+**Five Weeknight Dishes, Now on Sundays**\
+`I’m here to help you plan some very delicious (and doable) dinners for your week — hoisin garlic noodles, anyone?`\
+https://www.nytimes.com/2026/05/17/dining/five-weeknight-dishes-now-on-sundays.html
+
+**Opera Needs New Plutocrats**\
+`Box office is waning. Donors are fading. Opera needs new lifeblood. The answer lies with tech fortunes.`\
+https://www.nytimes.com/2026/05/17/opinion/tech-billionaires-opera-funding-met.html
+
+**The Great Disruption: How A.I. Will Shape Our Future**\
+`Readers discuss ways in which artificial intelligence is reshaping our lives. Also: Frequent redistricting.`\
+https://www.nytimes.com/2026/05/17/opinion/ai-future.html
+
 **The ‘Rabid Partisan’ Republican Who Defied Donald Trump**\
 `Defeating a sclerotic rump of a party is no achievement. Instead, one-party rule enables corruption. It fosters stagnation.`\
 https://www.nytimes.com/2026/05/17/opinion/shane-massey-south-carolina-clyburn.html
