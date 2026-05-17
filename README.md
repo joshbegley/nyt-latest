@@ -1,3 +1,11 @@
+**Two Military Jets Collide in Midair at Idaho Air Show**\
+`Video shared on social media showed the jets striking each other and spinning toward the ground. At least four parachutes were deployed before the planes crashed.`\
+https://www.nytimes.com/2026/05/17/us/planes-crash-gunfighter-skies-show.html
+
+**How a Democratic Governor Came to Release an Election Denier From Prison**\
+`Gov. Jared Polis’s decision to commute the sentence of Tina Peters came after months of tense discussions, including one with President Trump.`\
+https://www.nytimes.com/2026/05/17/us/politics/jared-polis-trump-tina-peters.html
+
 **Review: In ‘Dad Don’t Read This’ a Playwright (Maybe?) Grows Up**\
 `Eliya Smith’s disturbing teen dramedy explores the ambivalence and confusion of life on the brink of adulthood.`\
 https://www.nytimes.com/2026/05/17/theater/dad-dont-read-this-review.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/17/briefing/good-luck-grads.html
 **Trump and Xi Would Need Personality Transplants to Get This Deal Done**\
 `For this to happen, however, both men would need personality transplants.`\
 https://www.nytimes.com/2026/05/17/opinion/trump-china-xi-trade.html
-
-**Can We Reverse Aging?**\
-`Inside the billion-dollar bet on cellular rejuvenation.`\
-https://www.nytimes.com/2026/05/17/podcasts/the-daily/can-we-reverse-aging.html
-
-**Wave of Ukrainian Strikes Kills at Least 4, Russia Says**\
-`More than 550 drones were intercepted or shot down in more than a dozen regions, including Moscow, in one of largest attacks of the war.`\
-https://www.nytimes.com/2026/05/17/world/europe/russia-ukraine-strikes-moscow.html
 
