@@ -1,3 +1,7 @@
+**Venezuela Extradites Billionaire Tycoon to the U.S.**\
+`The extradition of Alex Saab, who is tied to a huge graft scheme, is part of a purge of powerful figures who helped the deposed president, Nicolás Maduro, stay in power.`\
+https://www.nytimes.com/2026/05/16/world/americas/venezuela-extradites-tycoon-alex-saab.html
+
 **Bulgaria Wins Eurovision Song Contest as Israel Takes Second**\
 `Five countries boycotted this year’s contest over Israel’s involvement, but politics took a back seat once the show in Vienna got underway.`\
 https://www.nytimes.com/2026/05/16/arts/music/dara-bulgaria-bangaranga-eurovision-winner.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/16/nyregion/birth-courtroom-baby-nyc.html
 **Australia’s strategy: Go big. On everything.**\
 ``\
 https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/australian-eurovison-delta-goodrem-eclipse
-
-**Greece’s Akylas wants it all.**\
-``\
-https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/greece-akylas-ferto-eurovision
 
