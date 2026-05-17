@@ -1,3 +1,7 @@
+**Perú va a una segunda vuelta con dos visiones distintas para el país**\
+`Las elecciones presidenciales enfrentan a Keiko Fujimori, conservadora, y Roberto Sánchez, político de izquierda, tras una crisis marcada por retrasos y protestas.`\
+https://www.nytimes.com/es/2026/05/17/espanol/america-latina/peru-elecciones-segunda-vuelta-keiko-fujimori-roberto-sanchez.html
+
 **La observación de aves impulsada por aplicaciones atrae a multitudes de entusiastas a Colombia**\
 `Colombia alberga la mayor cantidad de especies de aves conocidas por los ornitólogos. La aplicación Merlin está ayudando a desarrollar una industria de “aviturismo” en el país.`\
 https://www.nytimes.com/es/2026/05/17/espanol/america-latina/colombia-observacion-aves-turismo.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/17/world/europe/russia-ukraine-strikes-moscow.ht
 **The ‘Rabid Partisan’ Republican Who Defied Donald Trump**\
 `Defeating a sclerotic rump of a party is no achievement. Instead, one-party rule enables corruption. It fosters stagnation.`\
 https://www.nytimes.com/2026/05/17/opinion/shane-massey-south-carolina-clyburn.html
-
-**Connections Companion No. 1,072**\
-`Scroll down for hints and conversation about the puzzle for Monday, May 18, 2026.`\
-https://www.nytimes.com/2026/05/17/crosswords/connections-companion-1072.html
 
