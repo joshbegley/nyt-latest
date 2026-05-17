@@ -1,3 +1,7 @@
+**Good Luck, Grads!**\
+`Is the post-college job market as bad as it seems?`\
+https://www.nytimes.com/2026/05/17/briefing/good-luck-grads.html
+
 **Can We Reverse Aging?**\
 `Inside the billion-dollar bet on cellular rejuvenation.`\
 https://www.nytimes.com/2026/05/17/podcasts/the-daily/can-we-reverse-aging.html
