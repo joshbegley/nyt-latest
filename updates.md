@@ -1,3 +1,7 @@
+**Stereotypically Antisocial Pets**\
+`Can I hear a little commotion for Rena Cohen’s latest puzzle?`\
+https://www.nytimes.com/2026/05/17/crosswords/daily-puzzle-2026-05-18.html
+
 **Peter G. Neumann, Who Warned of Computer Security Risks, Dies at 93**\
 `For decades, he criticized the industry’s lax attitudes toward both computer security and individual digital privacy. And he developed solutions.`\
 https://www.nytimes.com/2026/05/17/obituaries/peter-g-neumann-dead.html
