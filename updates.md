@@ -1,3 +1,7 @@
+**Review: In ‘Dad Don’t Read This’ a Playwright (Maybe?) Grows Up**\
+`Eliya Smith’s disturbing teen dramedy explores the ambivalence and confusion of life on the brink of adulthood.`\
+https://www.nytimes.com/2026/05/17/theater/dad-dont-read-this-review.html
+
 **Perú va a una segunda vuelta con dos visiones distintas para el país**\
 `Las elecciones presidenciales enfrentan a Keiko Fujimori, conservadora, y Roberto Sánchez, político de izquierda, tras una crisis marcada por retrasos y protestas.`\
 https://www.nytimes.com/es/2026/05/17/espanol/america-latina/peru-elecciones-segunda-vuelta-keiko-fujimori-roberto-sanchez.html
