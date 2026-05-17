@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/05/17/opinion/trump-china-xi-trade.html
 `Inside the billion-dollar bet on cellular rejuvenation.`\
 https://www.nytimes.com/2026/05/17/podcasts/the-daily/can-we-reverse-aging.html
 
-**We Need More ‘Rabid Partisans’ Like Shane Massey**\
+**The ‘Rabid Partisan’ Republican Who Defied Donald Trump**\
 `Defeating a sclerotic rump of a party is no achievement. Instead, one-party rule enables corruption. It fosters stagnation.`\
 https://www.nytimes.com/2026/05/17/opinion/shane-massey-south-carolina-clyburn.html
 
@@ -58,8 +58,8 @@ https://www.nytimes.com/es/2026/05/17/espanol/cultura/dudamel-filarmonica-nueva-
 `Just months before another election that may hinge on the economy, the war in Iran has sent gas and other goods soaring.`\
 https://www.nytimes.com/2026/05/17/business/for-trump-soaring-prices-test-voters-finances-and-patience.html
 
-**Trump Flexes Hold on G.O.P., Even as It Braces for Midterm Backlash**\
-`The defeat of Senator Bill Cassidy showed the president’s dominance in his party at a moment when a broader range of views about Mr. Trump could be a major liability for November.`\
+**Trump Tightens Grasp on G.O.P. as Cassidy Loss Shows Cost of Defiance**\
+`The defeat showed the president’s dominance in his party , even as a broader range of views about Mr. Trump could be a major Republican liability in the midterms.`\
 https://www.nytimes.com/2026/05/17/us/politics/trump-flexes-hold-on-gop-even-as-it-braces-for-midterm-backlash.html
 
 **Why Neutral Maps Could Empower Black Voters as Much as the Voting Rights Act**\

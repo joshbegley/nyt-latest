@@ -1,3 +1,11 @@
+**The ‘Rabid Partisan’ Republican Who Defied Donald Trump**\
+`Defeating a sclerotic rump of a party is no achievement. Instead, one-party rule enables corruption. It fosters stagnation.`\
+https://www.nytimes.com/2026/05/17/opinion/shane-massey-south-carolina-clyburn.html
+
+**Trump Tightens Grasp on G.O.P. as Cassidy Loss Shows Cost of Defiance**\
+`The defeat showed the president’s dominance in his party , even as a broader range of views about Mr. Trump could be a major Republican liability in the midterms.`\
+https://www.nytimes.com/2026/05/17/us/politics/trump-flexes-hold-on-gop-even-as-it-braces-for-midterm-backlash.html
+
 **Sex, Death and ‘Devils’ at Cannes**\
 `With the main slate making few waves, the biggest moments at the festival so far involve a new horror comedy and a restored horror provocation.`\
 https://www.nytimes.com/2026/05/17/movies/cannes-film-festival-teenage-sex-and-death-at-camp-miasma.html
