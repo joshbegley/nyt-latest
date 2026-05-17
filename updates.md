@@ -1,3 +1,7 @@
+**Venezuela Extradites Billionaire Tycoon to the U.S.**\
+`The extradition of Alex Saab, who is tied to a huge graft scheme, is part of a purge of powerful figures who helped the deposed president, Nicolás Maduro, stay in power.`\
+https://www.nytimes.com/2026/05/16/world/americas/venezuela-extradites-tycoon-alex-saab.html
+
 **Woman Gives Birth in Brooklyn Courtroom**\
 `A woman who was nine months pregnant was in court on low-level charges, raising questions about why she was discharged from a hospital before the hearing.`\
 https://www.nytimes.com/2026/05/16/nyregion/birth-courtroom-baby-nyc.html
