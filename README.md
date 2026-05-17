@@ -46,13 +46,13 @@ https://www.nytimes.com/2026/05/17/world/europe/russia-ukraine-strikes-moscow.ht
 `Scroll down for hints and conversation about the puzzle for Monday, May 18, 2026.`\
 https://www.nytimes.com/2026/05/17/crosswords/connections-companion-1072.html
 
-**Wordle Review No. 1,794**\
-`Scroll down for hints and conversation about the puzzle for Monday, May 18, 2026.`\
-https://www.nytimes.com/2026/05/17/crosswords/wordle-review-1794.html
-
 **You Aren’t Crazy. The World Is Actually Getting Weirder.**\
 `One of the oldest and most durable features of human experience is re-emerging.`\
 https://www.nytimes.com/2026/05/17/opinion/supernatural-religion-reality.html
+
+**Wordle Review No. 1,794**\
+`Scroll down for hints and conversation about the puzzle for Monday, May 18, 2026.`\
+https://www.nytimes.com/2026/05/17/crosswords/wordle-review-1794.html
 
 **Reports of the Death of Civics Are Greatly Exaggerated**\
 `The decline of civic education hit bottom about a decade ago and is at last on the rebound. This fact brings me hope.`\
