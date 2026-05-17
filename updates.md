@@ -1,3 +1,39 @@
+**Can We Reverse Aging?**\
+`Inside the billion-dollar bet on cellular rejuvenation.`\
+https://www.nytimes.com/2026/05/17/podcasts/the-daily/can-we-reverse-aging.html
+
+**Here’s the Trade Deal That Trump and Xi Should Have Reached**\
+`For this to happen, however, both men would need personality transplants.`\
+https://www.nytimes.com/2026/05/17/opinion/trump-china-xi-trade.html
+
+**We Need More ‘Rabid Partisans’ Like Shane Massey**\
+`Defeating a sclerotic rump of a party is no achievement. Instead, one-party rule enables corruption. It fosters stagnation.`\
+https://www.nytimes.com/2026/05/17/opinion/shane-massey-south-carolina-clyburn.html
+
+**Wave of Ukrainian Strikes Kills at Least 4, Russia Says**\
+`More than 550 drones were intercepted or shot down in over a dozen regions, including Moscow, in one of largest attacks of the war.`\
+https://www.nytimes.com/2026/05/17/world/europe/russia-ukraine-strikes-moscow.html
+
+**Connections Companion No. 1,072**\
+`Scroll down for hints and conversation about the puzzle for Monday, May 18, 2026.`\
+https://www.nytimes.com/2026/05/17/crosswords/connections-companion-1072.html
+
+**Wordle Review No. 1,794**\
+`Scroll down for hints and conversation about the puzzle for Monday, May 18, 2026.`\
+https://www.nytimes.com/2026/05/17/crosswords/wordle-review-1794.html
+
+**You Aren’t Crazy. The World Is Actually Getting Weirder.**\
+`One of the oldest and most durable features of human experience is re-emerging.`\
+https://www.nytimes.com/2026/05/17/opinion/supernatural-religion-reality.html
+
+**Reports of the Death of Civics Are Greatly Exaggerated**\
+`The decline of civic education hit bottom about a decade ago and is at last on the rebound. This fact brings me hope.`\
+https://www.nytimes.com/2026/05/17/opinion/civic-education-return.html
+
+**Strands Sidekick No. 806**\
+`Scroll down for hints and conversation about the puzzle for Monday, May 18, 2026.`\
+https://www.nytimes.com/2026/05/17/crosswords/strands-sidekick-806.html
+
 **To Critics, Trump Remarks Reveal a Billionaire Out of Touch**\
 `The president has never pretended to be an ordinary American, but a recent “truth bomb” has opened him to criticism that he doesn’t grasp the economic strain of his war with Iran.`\
 https://www.nytimes.com/2026/05/17/us/politics/to-critics-trump-remarks-reveal-a-billionaire-out-of-touch.html

@@ -1,3 +1,39 @@
+**Can We Reverse Aging?**\
+`Inside the billion-dollar bet on cellular rejuvenation.`\
+https://www.nytimes.com/2026/05/17/podcasts/the-daily/can-we-reverse-aging.html
+
+**Here’s the Trade Deal That Trump and Xi Should Have Reached**\
+`For this to happen, however, both men would need personality transplants.`\
+https://www.nytimes.com/2026/05/17/opinion/trump-china-xi-trade.html
+
+**We Need More ‘Rabid Partisans’ Like Shane Massey**\
+`Defeating a sclerotic rump of a party is no achievement. Instead, one-party rule enables corruption. It fosters stagnation.`\
+https://www.nytimes.com/2026/05/17/opinion/shane-massey-south-carolina-clyburn.html
+
+**Wave of Ukrainian Strikes Kills at Least 4, Russia Says**\
+`More than 550 drones were intercepted or shot down in over a dozen regions, including Moscow, in one of largest attacks of the war.`\
+https://www.nytimes.com/2026/05/17/world/europe/russia-ukraine-strikes-moscow.html
+
+**Connections Companion No. 1,072**\
+`Scroll down for hints and conversation about the puzzle for Monday, May 18, 2026.`\
+https://www.nytimes.com/2026/05/17/crosswords/connections-companion-1072.html
+
+**Wordle Review No. 1,794**\
+`Scroll down for hints and conversation about the puzzle for Monday, May 18, 2026.`\
+https://www.nytimes.com/2026/05/17/crosswords/wordle-review-1794.html
+
+**You Aren’t Crazy. The World Is Actually Getting Weirder.**\
+`One of the oldest and most durable features of human experience is re-emerging.`\
+https://www.nytimes.com/2026/05/17/opinion/supernatural-religion-reality.html
+
+**Reports of the Death of Civics Are Greatly Exaggerated**\
+`The decline of civic education hit bottom about a decade ago and is at last on the rebound. This fact brings me hope.`\
+https://www.nytimes.com/2026/05/17/opinion/civic-education-return.html
+
+**Strands Sidekick No. 806**\
+`Scroll down for hints and conversation about the puzzle for Monday, May 18, 2026.`\
+https://www.nytimes.com/2026/05/17/crosswords/strands-sidekick-806.html
+
 **To Critics, Trump Remarks Reveal a Billionaire Out of Touch**\
 `The president has never pretended to be an ordinary American, but a recent “truth bomb” has opened him to criticism that he doesn’t grasp the economic strain of his war with Iran.`\
 https://www.nytimes.com/2026/05/17/us/politics/to-critics-trump-remarks-reveal-a-billionaire-out-of-touch.html
@@ -41,40 +77,4 @@ https://www.nytimes.com/2026/05/17/us/trump-prayer-rally-national-mall.html
 **The Big Questions About Jeffrey Epstein: What The Times Has Learned**\
 `Here is what we know about the sexual predator whose secrets spurred an international reckoning over money, power and complicity. Check back for updates.`\
 https://www.nytimes.com/2026/05/17/us/the-big-questions-about-jeffrey-epstein-what-the-times-has-learned.html
-
-**These Women Want to Dress Your Bed**\
-`Millaux sheets are made to order. But the designers don’t want the pillowcases to match. Ever.`\
-https://www.nytimes.com/2026/05/17/style/couture-bedding-millaux.html
-
-**The Iran War Is Crippling One of the World’s Wealthiest Nations**\
-`Iranian attacks have paralyzed Qatar’s vital gas exports and are stalling the tourism and business pivots that were intended to anchor its future growth.`\
-https://www.nytimes.com/2026/05/17/business/qatar-economy-iran-war.html
-
-**The Pleasure of ‘The Devil Wears Prada 2’ Is in the Comparisons**\
-`The “before” and “after” versions of the cast are just the beginning.`\
-https://www.nytimes.com/2026/05/17/style/the-devil-wears-prada-2-cast.html
-
-**A Broadway Star Is the Savannah Bananas’ Phantom of the Bullpen**\
-`Derek Klena was a successful actor with a Tony nomination to his name. But he’s found a bigger audience with the barnstorming baseball sensation.`\
-https://www.nytimes.com/2026/05/17/arts/savannnah-bananas-derek-klena-broadway.html
-
-**How a Secretive Firm Tried (and Failed) to Fix an Epstein Friend’s Tattered Image**\
-`Terakeet, a reputation management firm, used online tricks to downplay the friendship of the Goldman Sachs general counsel, Kathryn Ruemmler, with the sex offender Jeffrey Epstein. It wasn’t enough.`\
-https://www.nytimes.com/2026/05/17/us/politics/epstein-reummler-reputation-management.html
-
-**Nobody Once Told Him the World Was Gonna Meme Shrek**\
-`The writer and illustrator William Steig lived several lives before his book about a surly ogre became a Hollywood hit.`\
-https://www.nytimes.com/2026/05/17/books/william-steig-shrek-anniversary.html
-
-**A Young Socialist Mayor, Starbucks and the Tension Over Soaking the Rich**\
-`Seattle voters elected Mayor Katie Wilson as tensions rose over wealth inequality, but as Starbucks, one of the city’s most iconic companies, expands in Nashville, she is finding her limits.`\
-https://www.nytimes.com/2026/05/17/us/politics/seattle-mayor-tax-the-rich-starbucks.html
-
-**Two of Susan Sontag’s Besties Get a Beautiful Biography of Their Own**\
-`In “The Wonderful World That Almost Was,” Andrew Durbin reconstructs the coterie that surrounded the artist-lovers Peter Hujar and Paul Thek.`\
-https://www.nytimes.com/2026/05/17/books/review/the-wonderful-world-that-almost-was-review-andrew-durbin.html
-
-**A Newspaper’s Birches Bend and Occasionally Break**\
-`A stand of trees fights for survival in a glass atrium within the New York Times Building.`\
-https://www.nytimes.com/2026/05/17/insider/birch-trees-new-york-times-building.html
 
