@@ -1,4 +1,8 @@
 **Woman Gives Birth in Brooklyn Courtroom**\
+`A woman who was nine months pregnant was in court on low-level charges, raising questions about why she was discharged from a hospital before the hearing.`\
+https://www.nytimes.com/2026/05/16/nyregion/birth-courtroom-baby-nyc.html
+
+**Woman Gives Birth in Brooklyn Courtroom**\
 `A woman who was nine months pregnant was in court on low-level charges, raising questions about why she was discharged from a hospital to attend the hearing.`\
 https://www.nytimes.com/2026/05/16/nyregion/birth-courtroom-baby-nyc.html
 
