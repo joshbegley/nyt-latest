@@ -1,3 +1,7 @@
+**Good Luck, Grads!**\
+`Is the post-college job market as bad as it seems?`\
+https://www.nytimes.com/2026/05/17/briefing/good-luck-grads.html
+
 **Here’s the Trade Deal That Trump and Xi Should Have Reached**\
 `For this to happen, however, both men would need personality transplants.`\
 https://www.nytimes.com/2026/05/17/opinion/trump-china-xi-trade.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/17/world/europe/israel-iraq-iran-bases.html
 **Trump Administration Pushes Narrative of Christian Founding at Rally**\
 `The nine-hour prayer event will feature speakers from President Trump’s cabinet and a program that connects the nation’s founding with Christianity.`\
 https://www.nytimes.com/2026/05/17/us/trump-prayer-rally-national-mall.html
-
-**The Big Questions About Jeffrey Epstein: What The Times Has Learned**\
-`Here is what we know about the sexual predator whose secrets spurred an international reckoning over money, power and complicity. Check back for updates.`\
-https://www.nytimes.com/2026/05/17/us/the-big-questions-about-jeffrey-epstein-what-the-times-has-learned.html
 
