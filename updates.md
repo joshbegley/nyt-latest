@@ -1,3 +1,7 @@
+**El psicólogo ganador del Nobel que creyó encontrar el secreto de la felicidad**\
+`La necesidad de seguir buscando algo mejor ha envenenado hasta los momentos más mundanos.`\
+https://www.nytimes.com/es/2026/05/17/espanol/opinion/herbert-simon-felicidad-decisiones.html
+
 **‘He Didn’t Sound Like Someone to Be Messed With’**\
 `Extra effort to hail a cab, an apology for a subway encounter and more reader tales of New York City in this week’s Metropolitan Diary.`\
 https://www.nytimes.com/2026/05/17/nyregion/metropolitan-diary.html
