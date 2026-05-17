@@ -1,3 +1,19 @@
+**‘He Didn’t Sound Like Someone to Be Messed With’**\
+`Extra effort to hail a cab, an apology for a subway encounter and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://www.nytimes.com/2026/05/17/nyregion/metropolitan-diary.html
+
+**After a Rough Start, Mamdani Focuses on Skeptical Black New Yorkers**\
+`Mayor Zohran Mamdani has more explicitly attempted to address specific concerns of Black New Yorkers with his policy agenda, but some remain wary.`\
+https://www.nytimes.com/2026/05/17/nyregion/mamdani-black-voters-nyc.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/17/crosswords/spelling-bee-forum.html
+
+**The Value in Recording Hard Conversations**\
+`How a tape can preserve a connection to reality — and each other.`\
+https://www.nytimes.com/2026/05/17/briefing/the-value-in-recording-hard-conversations.html
+
 **A North Korean Soccer Team Makes a Rare Visit to South Korea**\
 `The team’s trip, for a women’s soccer tournament, is unlikely to catalyze a diplomatic thaw between the two Koreas, although some sports events have.`\
 https://www.nytimes.com/2026/05/17/world/asia/north-korea-naegohyang-soccer-football.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/05/16/business/economy/china-tariffs-trump-summit.h
 **Thousands of FiveThirtyEight Articles Seemingly Vanish From the Internet**\
 `The influential polling analysis site was shut down last year, but an earlier archived version, fivethirtyeight.com, had lived on. Now the site is redirecting users to ABC News.`\
 https://www.nytimes.com/2026/05/16/business/media/fivethirtyeight-abc-removed.html
-
-**Double Meanings**\
-`Derrick Niederman drops a heavy-duty Sunday crossword on us.`\
-https://www.nytimes.com/2026/05/16/crosswords/daily-puzzle-2026-05-17.html
-
-**Here’s how the voting works.**\
-``\
-https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/heres-how-the-voting-works
-
-**Train Crashes Into Bangkok Traffic, Killing at Least 8 People**\
-`A freight train crashed into traffic on one of Bangkok’s busiest roads on Saturday. At least eight people were killed and dozens were injured, Thai officials said.`\
-https://www.nytimes.com/video/world/asia/100000010908241/bangkok-bus-train-crash.html
-
-**As the votes are cast, it’s a celebration of Eurovision’s 70th anniversary.**\
-``\
-https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/as-the-votes-are-cast-its-a-celebration-of-eurovisions-70th-anniversary
 
