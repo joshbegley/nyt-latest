@@ -67,7 +67,7 @@ https://www.nytimes.com/2026/05/16/arts/music/finland-eurovision-liekinheitin.ht
 https://www.nytimes.com/live/2026/05/16/arts/eurovision-2026-final-winner/frances-eurovision-monroe-opera
 
 **Woman Gives Birth in Brooklyn Courtroom**\
-`A court officer delivered the newborn after a woman who was nine months pregnant appeared in court on low-level charges.`\
+`A woman who was nine months pregnant was in court on low-level charges, raising questions about why she was discharged from a hospital to attend the hearing.`\
 https://www.nytimes.com/2026/05/16/nyregion/birth-courtroom-baby-nyc.html
 
 **Australia’s strategy: Go big. On everything.**\

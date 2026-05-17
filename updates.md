@@ -1,3 +1,7 @@
+**Woman Gives Birth in Brooklyn Courtroom**\
+`A woman who was nine months pregnant was in court on low-level charges, raising questions about why she was discharged from a hospital to attend the hearing.`\
+https://www.nytimes.com/2026/05/16/nyregion/birth-courtroom-baby-nyc.html
+
 **Bulgaria Wins Eurovision Song Contest as Israel Takes Second**\
 `Five countries boycotted this year’s contest over Israel’s involvement, but politics took a back seat once the show in Vienna got underway.`\
 https://www.nytimes.com/2026/05/16/arts/music/dara-bulgaria-bangaranga-eurovision-winner.html
