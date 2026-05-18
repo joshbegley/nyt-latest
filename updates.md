@@ -1,3 +1,19 @@
+**Before Mass Layoffs, Meta Reassigns 7,000 Workers to Focus on A.I.**\
+`The company announced the changes two days before it plans to lay off 10 percent of its work force, or about 8,000 employees.`\
+https://www.nytimes.com/2026/05/18/technology/meta-reassigns-7000-employees-ai.html
+
+**L.I.R.R. Strike Could Play a Role in New York Governor’s Race**\
+`Gov. Kathy Hochul, a Democrat, is running for a second full term against the Nassau County executive, Bruce Blakeman, a Republican who has criticized her response to the labor dispute.`\
+https://www.nytimes.com/2026/05/18/nyregion/lirr-strike-hochul-blakeman-governor.html
+
+**A Sailor Shot Distress Flares. Now a California Island Is Burning.**\
+`The shipwrecked man was rescued from Channel Islands National Park, but the flares set off a 10,000-acre fire that has burned park buildings, forced evacuations and threatened rare Torrey pines.`\
+https://www.nytimes.com/2026/05/18/us/santa-rosa-channel-island-wildfire.html
+
+**Elon Musk Loses $150 Billion Suit Against OpenAI and Sam Altman**\
+`A nine-member jury found that Mr. Musk had waited too long to sue. The setback for the tech mogul frees OpenAI to continue in the artificial intelligence race.`\
+https://www.nytimes.com/2026/05/18/technology/elon-musk-lawsuit-openai-sam-altman.html
+
 **The End of Reality TV Politics**\
 `Reality TV politics is coming to an end because, Sarah Isgur argues, reality TV itself is dying. On “The Opinions,” she explains why she believes voters are now gravitating toward more optimistic, Ted Lasso-style candidates instead.`\
 https://www.nytimes.com/video/opinion/100000010904196/the-end-of-reality-tv-politics.html

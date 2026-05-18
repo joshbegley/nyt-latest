@@ -1,3 +1,19 @@
+**Before Mass Layoffs, Meta Reassigns 7,000 Workers to Focus on A.I.**\
+`The company announced the changes two days before it plans to lay off 10 percent of its work force, or about 8,000 employees.`\
+https://www.nytimes.com/2026/05/18/technology/meta-reassigns-7000-employees-ai.html
+
+**L.I.R.R. Strike Could Play a Role in New York Governor’s Race**\
+`Gov. Kathy Hochul, a Democrat, is running for a second full term against the Nassau County executive, Bruce Blakeman, a Republican who has criticized her response to the labor dispute.`\
+https://www.nytimes.com/2026/05/18/nyregion/lirr-strike-hochul-blakeman-governor.html
+
+**A Sailor Shot Distress Flares. Now a California Island Is Burning.**\
+`The shipwrecked man was rescued from Channel Islands National Park, but the flares set off a 10,000-acre fire that has burned park buildings, forced evacuations and threatened rare Torrey pines.`\
+https://www.nytimes.com/2026/05/18/us/santa-rosa-channel-island-wildfire.html
+
+**Elon Musk Loses $150 Billion Suit Against OpenAI and Sam Altman**\
+`A nine-member jury found that Mr. Musk had waited too long to sue. The setback for the tech mogul frees OpenAI to continue in the artificial intelligence race.`\
+https://www.nytimes.com/2026/05/18/technology/elon-musk-lawsuit-openai-sam-altman.html
+
 **The End of Reality TV Politics**\
 `Reality TV politics is coming to an end because, Sarah Isgur argues, reality TV itself is dying. On “The Opinions,” she explains why she believes voters are now gravitating toward more optimistic, Ted Lasso-style candidates instead.`\
 https://www.nytimes.com/video/opinion/100000010904196/the-end-of-reality-tv-politics.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/video/nyregion/100000010910127/luigi-mangione-evidence-s
 **E.P.A. to End Some Limits on ‘Forever Chemicals’ in Drinking Water**\
 `The rules were established by the Biden administration after research linked the compounds to a range of serious health problems.`\
 https://www.nytimes.com/2026/05/18/climate/epa-forever-chemicals-pfas-drinking-water.html
-
-**Passenger Ordered to Stay in Hantavirus Quarantine Despite Desire to Leave**\
-`An American from the hantavirus-infected cruise ship, who said she had tested negative for the disease, has been ordered to remain in an Omaha quarantine facility for two more weeks.`\
-https://www.nytimes.com/2026/05/18/us/hantavirus-ship-passenger-quarantine-order.html
-
-**Just Tuning In to Musk’s Blockbuster Trial Against OpenAI? Here’s What to Know.**\
-`A jury in Oakland, Calif., reached a decision after a three-week-long trial seen as pivotal for the future of OpenAI and the artificial intelligence race.`\
-https://www.nytimes.com/2026/05/18/technology/openai-trial-elon-musk-sam-altman.html
-
-**Ten people. Eight weeks. Three thousand feet through the ice.**\
-`Here’s the story of the expedition’s most ambitious project.`\
-https://www.nytimes.com/live/2025/climate/antarctica-thwaites-glacier/ten-people-eight-weeks-three-thousand-feet-through-the-ice
-
-**Red Carpet Looks From the 2026 Cannes Film Festival**\
-`Photos from the South of France, where Demi Moore, Ruth Negga, John Travolta and more went all out for the first week of the annual film festival.`\
-https://www.nytimes.com/article/cannes-red-carpet-photos.html
 
