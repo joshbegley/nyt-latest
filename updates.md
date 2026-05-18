@@ -1,3 +1,7 @@
+**Los comentarios de Trump sobre la economía revelan su desconexión de la realidad**\
+`El presidente nunca ha pretendido ser un estadounidense de a pie, pero una reciente “verdad incómoda” lo ha expuesto a críticas de que no comprende la tensión económica de su guerra en Irán.`\
+https://www.nytimes.com/es/2026/05/18/espanol/estados-unidos/trump-millonario-dinero.html
+
 **Catastrophe Is Emerging in the World’s Most Vulnerable Places**\
 `The humanitarian relief system, decimated by cuts, faces a grave challenge as the Middle East war causes soaring costs for food, fuel and fertilizer.`\
 https://www.nytimes.com/2026/05/18/business/iran-war-somalia-usaid.html

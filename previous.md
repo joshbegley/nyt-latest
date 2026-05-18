@@ -1,3 +1,7 @@
+**Los comentarios de Trump sobre la economía revelan su desconexión de la realidad**\
+`El presidente nunca ha pretendido ser un estadounidense de a pie, pero una reciente “verdad incómoda” lo ha expuesto a críticas de que no comprende la tensión económica de su guerra en Irán.`\
+https://www.nytimes.com/es/2026/05/18/espanol/estados-unidos/trump-millonario-dinero.html
+
 **Catastrophe Is Emerging in the World’s Most Vulnerable Places**\
 `The humanitarian relief system, decimated by cuts, faces a grave challenge as the Middle East war causes soaring costs for food, fuel and fertilizer.`\
 https://www.nytimes.com/2026/05/18/business/iran-war-somalia-usaid.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/05/17/espanol/america-latina/peru-elecciones-seg
 **La observación de aves impulsada por aplicaciones atrae a multitudes de entusiastas a Colombia**\
 `Colombia alberga la mayor cantidad de especies de aves conocidas por los ornitólogos. La aplicación Merlin está ayudando a desarrollar una industria de “aviturismo” en el país.`\
 https://www.nytimes.com/es/2026/05/17/espanol/america-latina/colombia-observacion-aves-turismo.html
-
-**What to Know About the Republicans Vying to Replace Senator Bill Cassidy**\
-`He was defeated in the Republican primary in Louisiana on Saturday. Representative Julia Letlow and State Treasurer John Fleming are now in a runoff for the party’s nomination.`\
-https://www.nytimes.com/2026/05/17/us/politics/letlow-fleming-cassidy-louisiana-senate.html
 
