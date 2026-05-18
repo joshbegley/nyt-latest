@@ -1,3 +1,11 @@
+**Two Americans Detained in Japan After Entering Punch the Monkey’s Enclosure**\
+`The men were charged with obstructing operations at a zoo, apparently as a stunt connected to a cryptocurrency. They denied the charges.`\
+https://www.nytimes.com/2026/05/18/world/asia/punch-monkey-japan-zoo-arrest.html
+
+**Bodies of Four Italian Divers Found in Maldives Cave**\
+`The discovery comes after days of searching by an international team of rescue divers. A fifth body was recovered last week.`\
+https://www.nytimes.com/2026/05/18/world/asia/maldives-divers-accident-bodies-found.html
+
 **Trump Threatens Iran as Tensions Surge Again in Middle East**\
 `The president has sought to force Iran to accept his terms on its nuclear program or else face renewed war. An emboldened Iran has rebuffed Trump’s demands.`\
 https://www.nytimes.com/2026/05/18/world/middleeast/trump-iran-war-talks.html
