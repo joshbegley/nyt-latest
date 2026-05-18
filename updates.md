@@ -1,3 +1,7 @@
+**A Search for Ways Around Blocked Strait Leads to Syria**\
+`The latest war in the Middle East has created new economic opportunities for Syria thanks to its geography.`\
+https://www.nytimes.com/2026/05/18/world/middleeast/strait-hormuz-blockade-iran-war-syria-oil.html
+
 **The Fighting Never Ends**\
 `We look at what happens when countries say they’re going to stop shooting at each other.`\
 https://www.nytimes.com/2026/05/18/briefing/the-fighting-never-stops.html

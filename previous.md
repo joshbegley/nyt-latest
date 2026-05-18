@@ -28,7 +28,7 @@ https://www.nytimes.com/2026/05/18/crosswords/wordle-review-1795.html
 
 **A Search for Ways Around Blocked Strait Leads to Syria**\
 `The latest war in the Middle East has created new economic opportunities for Syria thanks to its geography.`\
-https://www.nytimes.com/2026/05/18/world/middleeast/a-search-for-ways-around-blocked-strait-leads-to-syria.html
+https://www.nytimes.com/2026/05/18/world/middleeast/strait-hormuz-blockade-iran-war-syria-oil.html
 
 **Louvre Announces Architects for Expansion That Will Include New Mona Lisa Space**\
 `A team of French and German architects has been selected for the project, which is expected to increase the Paris museum’s capacity by three million visitors a year.`\
