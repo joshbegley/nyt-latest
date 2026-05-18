@@ -1,3 +1,7 @@
+**Here’s what was on the jury’s list for a decision.**\
+``\
+https://www.nytimes.com/live/2026/05/18/technology/openai-trial-verdict-altman-musk/heres-what-was-on-the-jurys-list-for-a-decision
+
 **Ebola Raged for Weeks in Congo Before Anyone Raised the Alarm**\
 `Early surveillance and testing failed to identify Bundibugyo, a rare species of Ebola responsible for the current outbreak.`\
 https://www.nytimes.com/2026/05/18/world/africa/congo-ebola-testing.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/18/business/economy/edmund-phelps-dead.html
 **El presidente de la Conmebol habría recibido dinero recuperado de un escándalo de corrupción**\
 `En vísperas del Mundial, el máximo directivo del fútbol sudamericano enfrenta una denuncia de ética que alega que se quedó con fondos recuperados de una investigación de 2015 que sacudió al fútbol mundial.`\
 https://www.nytimes.com/es/2026/05/18/espanol/mundo/fifa-conmebol-denuncia-dinero.html
-
-**Today, In Short**\
-`Instagram Instants. “Off Campus.” And the latest on the Long Island Rail Road strike.`\
-https://www.nytimes.com/2026/05/18/briefing/today-in-short.html
 
