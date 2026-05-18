@@ -47,7 +47,7 @@ https://www.nytimes.com/video/nyregion/100000010910127/luigi-mangione-evidence-s
 https://www.nytimes.com/2026/05/18/climate/epa-forever-chemicals-pfas-drinking-water.html
 
 **Passenger Ordered to Stay in Hantavirus Quarantine Despite Desire to Leave**\
-`An American from the hantavirus-infected cruise ship had wanted to depart an Omaha quarantine facility.`\
+`An American from the hantavirus-infected cruise ship, who said she had tested negative for the disease, has been ordered to remain in an Omaha quarantine facility for two more weeks.`\
 https://www.nytimes.com/2026/05/18/us/hantavirus-ship-passenger-quarantine-order.html
 
 **Just Tuning In to Musk’s Blockbuster Trial Against OpenAI? Here’s What to Know.**\
