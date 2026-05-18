@@ -1,3 +1,7 @@
+**Officials Investigating San Diego Mosque Shooting as Possible Hate Crime**\
+`Three people fatally shot at the Islamic Center of San Diego on Monday. The authorities said the security guard, who was fatally shot, may have prevented a more deadly massacre.`\
+https://www.nytimes.com/video/us/100000010911471/san-diego-islamic-center-mosque-shooting.html
+
 **Pollock and Brancusi Join the $100 Million Club at Auction**\
 `A “drip” painting by the Abstract Expressionist sold for $181.2 million with fees, while a bronze head by the Romanian sculptor, from the S.I. Newhouse collection, brought in  $107.6 million at Christie’s.`\
 https://www.nytimes.com/2026/05/18/arts/design/pollock-brancusi-christies-auction.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/18/arts/music/felicity-lott-dead.html
 **After Elon Musk’s Court Loss Comes the Long Hot A.I. Summer**\
 `Even as protests increase, the collapse of Mr. Musk’s suit against OpenAI and Sam Altman will speed up the artificial intelligence juggernaut.`\
 https://www.nytimes.com/2026/05/18/technology/elon-musk-openai-trial.html
-
-**Mark Fuhrman, Flawed Witness in O.J. Simpson Trial, Dies at 74**\
-`A Los Angeles police detective, he was discredited during Mr. Simpson’s 1995 murder trial by defense lawyers who pointed to his past use of racist language.`\
-https://www.nytimes.com/2026/05/18/us/mark-fuhrman-dead.html
 
