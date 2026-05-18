@@ -1,3 +1,15 @@
+**What to Know About San Diego’s Islamic Center**\
+`A visitor said that the mosque is highly diverse. Its services are in English, because attendees come from all over the world.`\
+https://www.nytimes.com/2026/05/18/us/islamic-center-san-diego-mosque.html
+
+**Tornadoes Reported in Kansas and Nebraska as Violent Storms Sweep the Midwest**\
+`Severe weather was expected to last into the evening on Monday.`\
+https://www.nytimes.com/2026/05/18/weather/tornado-nebraska-kansas-storm.html
+
+**Jury Rejects Elon Musk’s Lawsuit Against OpenAI and Microsoft**\
+`Elon Musk had accused OpenAI of “stealing a charity” by attaching a commercial company to Open AI, which was founded as a nonprofit. But a jury ruled that the statute of limitations had expired.`\
+https://www.nytimes.com/video/business/media/100000010911130/openai-musk-trial-vertict.html
+
 **Why Josh Shapiro Isn’t Acting Like Other Potential 2028 Candidates**\
 `The Pennsylvania governor’s in-state focus is a contrast with other possible presidential hopefuls.`\
 https://www.nytimes.com/2026/05/18/us/politics/josh-shapiro-pennsylvania-2028.html
