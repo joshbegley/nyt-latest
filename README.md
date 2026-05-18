@@ -1,6 +1,10 @@
+**Palestinian Accounts of Rape by Israelis**\
+`Readers respond to a column by Nicholas Kristof. Also: Imposing religion.`\
+https://www.nytimes.com/2026/05/18/opinion/palestinians-israelis-rape.html
+
 **The strike also affects many commuters in Queens.**\
 ``\
-https://www.nytimes.com/live/2026/05/18/nyregion/lirr-strike-update-long-island/lirr-strike-commuters-queens
+https://www.nytimes.com/2026/05/18/nyregion/lirr-strike-commuters-queens.html
 
 **The Ultimate N.B.A. Conference Finals Preview**\
 `A look at the stars, matchups and storylines shaping Knicks-Cavs and Thunder-Spurs.`\
@@ -73,8 +77,4 @@ https://www.nytimes.com/live/2026/05/18/nyregion/lirr-strike-update-long-island/
 **Some Evidence From Mangione’s Backpack Not Usable at Trial, Judge Says**\
 `Luigi Mangione’s lawyers argued that the evidence was inadmissible because the officers did not have a warrant to search their client’s backpack when he was arrested.`\
 https://www.nytimes.com/2026/05/18/nyregion/luigi-mangione-backpack-murder.html
-
-**Shakira Is Found Not Guilty of Tax Fraud in Spain**\
-`A Spanish court ruled that the pop star was not a tax resident of Spain in 2011 and ordered the country’s tax authorities to return tens of millions of dollars to her.`\
-https://www.nytimes.com/2026/05/18/world/europe/shakira-tax-fraud-spain.html
 
