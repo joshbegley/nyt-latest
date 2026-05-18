@@ -1,3 +1,7 @@
+**Officials Investigating San Diego Mosque Shooting as Possible Hate Crime**\
+`Three people fatally shot at the Islamic Center of San Diego on Monday. The authorities said the security guard, who was fatally shot, may have prevented a more deadly massacre.`\
+https://www.nytimes.com/video/us/100000010911471/san-diego-islamic-center-mosque-shooting.html
+
 **Pollock and Brancusi Join the $100 Million Club at Auction**\
 `A “drip” painting by the Abstract Expressionist sold for $181.2 million with fees, while a bronze head by the Romanian sculptor, from the S.I. Newhouse collection, brought in  $107.6 million at Christie’s.`\
 https://www.nytimes.com/2026/05/18/arts/design/pollock-brancusi-christies-auction.html
