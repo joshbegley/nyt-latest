@@ -1,3 +1,11 @@
+**Americans Affected in Ebola Outbreak, C.D.C. Says**\
+`An Ebola outbreak in Africa has affected some Americans, according to the C.D.C. There is no vaccine for the species of the deadly virus that has spread in the Democratic Republic of Congo and Uganda.`\
+https://www.nytimes.com/video/world/africa/100000010909481/ebola-outbreak-congo-americans.html
+
+**Oil Prices Edge Higher as Cease-Fire Remains Tenuous**\
+`Stocks and bonds wavered after President Trump issued a new warning to Iran.`\
+https://www.nytimes.com/2026/05/18/business/oil-gas-price-iran.html
+
 **Mamdani’s First City-Owned Grocery Store Planned for South Bronx**\
 `Mayor Zohran Mamdani plans to announce that the store will open in the Hunts Point neighborhood next year. Some merchants are pushing back.`\
 https://www.nytimes.com/2026/05/18/nyregion/mamdani-grocery-store-bronx-hunts-point.html
