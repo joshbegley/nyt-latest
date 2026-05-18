@@ -1,5 +1,5 @@
 **Officials Investigating San Diego Mosque Shooting as Possible Hate Crime**\
-`Three people fatally shot at the Islamic Center of San Diego on Monday. The authorities said the security guard, who was fatally shot, may have prevented a more deadly massacre.`\
+`Three people were killed at the Islamic Center of San Diego on Monday. The authorities said the security guard, who was fatally shot, may have prevented a more deadly massacre.`\
 https://www.nytimes.com/video/us/100000010911471/san-diego-islamic-center-mosque-shooting.html
 
 **Pollock and Brancusi Join the $100 Million Club at Auction**\
