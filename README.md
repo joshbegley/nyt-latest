@@ -1,3 +1,23 @@
+**Judge Grants Luigi Mangione’s Request to Supress Some Evidence**\
+`A New York State judge ruled prosecutors cannot use some of the evidence found inside Luigi Mangione’s backpack when he was arrested. Mr. Mangione is accused of killing UnitedHealthcare’s chief executive, Brian Thompson, outside a Manhattan hotel in 2024.`\
+https://www.nytimes.com/video/nyregion/100000010910127/luigi-mangione-evidence-suppressed-backpack.html
+
+**E.P.A. to End Some Limits on ‘Forever Chemicals’ in Drinking Water**\
+`The rules were established by the Biden administration after research linked the compounds to a range of serious health problems.`\
+https://www.nytimes.com/2026/05/18/climate/epa-forever-chemicals-pfas-drinking-water.html
+
+**Hantavirus Patient Ordered to Stay in Quarantine Despite Desire to Leave**\
+`An American passenger from the hantavirus-infected cruise ship had wanted to depart an Omaha quarantine facility.`\
+https://www.nytimes.com/2026/05/18/us/hantavirus-ship-passenger-quarantine-order.html
+
+**Just Tuning In? Here’s What to Know.**\
+`A jury in Oakland, Calif., reached a decision after a three-week long trial seen as pivotal for the future of OpenAI and the artificial intelligence race.`\
+https://www.nytimes.com/2026/05/18/technology/openai-trial-elon-musk-sam-altman.html
+
+**Ten people. Eight weeks. Three thousand feet through the ice.**\
+`Here’s the story of the expedition’s most ambitious project.`\
+https://www.nytimes.com/live/2025/climate/antarctica-thwaites-glacier/ten-people-eight-weeks-three-thousand-feet-through-the-ice
+
 **Red Carpet Looks From the 2026 Cannes Film Festival**\
 `Photos from the South of France, where Demi Moore, Ruth Negga, John Travolta and more went all out for the first week of the annual film festival.`\
 https://www.nytimes.com/article/cannes-red-carpet-photos.html
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/05/18/style/alex-cooper-pregnant-call-her-daddy.htm
 **Read the judge’s decision on evidence in the Luigi Mangione state murder trial.**\
 `A state judge in Manhattan said prosecutors can use a gun found in Luugi Mangione’s backpack as evidence during his murder trial.`\
 https://www.nytimes.com/interactive/2026/05/18/nyregion/mangione-gun-decision.html
-
-**España anula la sentencia de fraude fiscal contra Shakira**\
-`La Audiencia Nacional de España anunció que había absuelto a la cantante en un caso de hace más de una década, y ordenó a Hacienda que le devolviera decenas de millones de dólares.`\
-https://www.nytimes.com/es/2026/05/18/espanol/mundo/shakira-absuelta-fraude-fiscal-espana.html
-
-**Gucci Got Tom Brady and Cindy Crawford to Strut Their Stuff in Times Square**\
-`And other memorable moments, and clothes, from Demna’s first cruise show.`\
-https://www.nytimes.com/2026/05/18/style/gucci-times-square-cruise.html
-
-**She Was Atlanta’s Mayor in the Pandemic. Now She Wants to Lead the State.**\
-`Keisha Lance Bottoms is the Democrats’ front-runner as the Georgia primary for governor approaches. But her party rivals are trying to ensure she has to face a runoff.`\
-https://www.nytimes.com/2026/05/18/us/keisha-lance-bottoms-georgia-governor-primary.html
-
-**Federal Prosecutors Move to Drop Bribery Case Against Indian Magnate**\
-`Gautam Adani had been accused of lying to American investors about payoffs in India. The end of the case came as President Trump has signaled a transactional approach to justice.`\
-https://www.nytimes.com/2026/05/18/nyregion/gautam-adani-indictment-trump.html
-
-**Palestinian Accounts of Rape by Israelis**\
-`Readers respond to a column by Nicholas Kristof. Also: Imposing religion.`\
-https://www.nytimes.com/2026/05/18/opinion/palestinians-israelis-rape.html
 
