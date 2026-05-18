@@ -1,3 +1,19 @@
+**Why Josh Shapiro Isn’t Acting Like Other Potential 2028 Candidates**\
+`The Pennsylvania governor’s in-state focus is a contrast with other possible presidential hopefuls.`\
+https://www.nytimes.com/2026/05/18/us/politics/josh-shapiro-pennsylvania-2028.html
+
+**Around Penn Station, the strike is bad for business.**\
+``\
+https://www.nytimes.com/live/2026/05/18/nyregion/lirr-strike-update-long-island/around-penn-station-the-strike-is-bad-for-business
+
+**TrumpRx Adds Generic Drugs, With Mark Cuban, GoodRx and Amazon**\
+`President Trump announced the addition of 600 medicines to his online drugstore as he appeals to Americans concerned about high drug prices and affordability.`\
+https://www.nytimes.com/2026/05/18/business/trumprx-generic-drugs-mark-cuban.html
+
+**Pelosi Endorses San Francisco Supervisor Connie Chan to Succeed Her**\
+`Representative Nancy Pelosi, the first woman to serve as speaker of the House, broke her silence on Monday about the race to succeed her and endorsed Connie Chan, a San Francisco official.`\
+https://www.nytimes.com/2026/05/18/us/nancy-pelosi-endorses-connie-chan.html
+
 **Las grandes preguntas sobre Jeffrey Epstein**\
 `Qué revelaron los archivos, las investigaciones y los testimonios sobre la red de poder y complicidad que rodeó a Epstein.`\
 https://www.nytimes.com/es/2026/05/18/espanol/estados-unidos/jeffrey-epstein-archivos-preguntas-respuestas.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/05/18/technology/elon-musk-lawsuit-openai-sam-altma
 **The End of Reality TV Politics**\
 `Reality TV politics is coming to an end because, Sarah Isgur argues, reality TV itself is dying. On “The Opinions,” she explains why she believes voters are now gravitating toward more optimistic, Ted Lasso-style candidates instead.`\
 https://www.nytimes.com/video/opinion/100000010904196/the-end-of-reality-tv-politics.html
-
-**Retired Belgian Diplomat Dies Before Trial in 1961 Killing of Congolese Leader**\
-`Étienne Davignon had been set to stand trial in connection with the murder of Patrice Lumumba, the first prime minister of what is now the Democratic Republic of Congo.`\
-https://www.nytimes.com/2026/05/18/world/africa/etienne-davignon-patrice-lumumba-belgium-congo.html
-
-**Five Takeaways From the Blockbuster Trial Pitting Elon Musk Against OpenAI**\
-`It took a jury less than two hours to decide that Mr. Musk had waited too long to sue. But the testimony over three weeks was still illuminating.`\
-https://www.nytimes.com/2026/05/18/technology/elon-musk-openai-trial-takeaways.html
-
-**​Leaders With Very Different Political Leanings Became Fast Friends**\
-`Japan’s prime minister, Sanae Takaichi, and South Korea’s president, Lee Jae Myung, have surprised many observers by moving past their nations’ historical grievances.`\
-https://www.nytimes.com/2026/05/18/world/asia/lee-takaichi-meeting-korea-japan.html
-
-**Trump Says He Authorized New Strikes on Iran, but Has Decided to Hold Off**\
-`President Trump has repeatedly threatened new military action against Iran, only to pull back from resuming major fighting in a deeply unpopular, expensive conflict.`\
-https://www.nytimes.com/2026/05/18/us/politics/trump-iran-strikes.html
 

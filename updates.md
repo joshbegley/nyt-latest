@@ -1,3 +1,19 @@
+**Why Josh Shapiro Isn’t Acting Like Other Potential 2028 Candidates**\
+`The Pennsylvania governor’s in-state focus is a contrast with other possible presidential hopefuls.`\
+https://www.nytimes.com/2026/05/18/us/politics/josh-shapiro-pennsylvania-2028.html
+
+**Around Penn Station, the strike is bad for business.**\
+``\
+https://www.nytimes.com/live/2026/05/18/nyregion/lirr-strike-update-long-island/around-penn-station-the-strike-is-bad-for-business
+
+**TrumpRx Adds Generic Drugs, With Mark Cuban, GoodRx and Amazon**\
+`President Trump announced the addition of 600 medicines to his online drugstore as he appeals to Americans concerned about high drug prices and affordability.`\
+https://www.nytimes.com/2026/05/18/business/trumprx-generic-drugs-mark-cuban.html
+
+**Pelosi Endorses San Francisco Supervisor Connie Chan to Succeed Her**\
+`Representative Nancy Pelosi, the first woman to serve as speaker of the House, broke her silence on Monday about the race to succeed her and endorsed Connie Chan, a San Francisco official.`\
+https://www.nytimes.com/2026/05/18/us/nancy-pelosi-endorses-connie-chan.html
+
 **Las grandes preguntas sobre Jeffrey Epstein**\
 `Qué revelaron los archivos, las investigaciones y los testimonios sobre la red de poder y complicidad que rodeó a Epstein.`\
 https://www.nytimes.com/es/2026/05/18/espanol/estados-unidos/jeffrey-epstein-archivos-preguntas-respuestas.html
