@@ -1,3 +1,7 @@
+**2 Teenagers Arrested After Drive-By Shootings in Austin Injure at Least 4**\
+`The teenage boys were among three suspects taken into custody in connection with at least 12 shootings across the Texas capital. There was no apparent motive, the mayor said.`\
+https://www.nytimes.com/2026/05/18/us/austin-texas-shooting-arrest.html
+
 **Los comentarios de Trump sobre la economía revelan su desconexión de la realidad**\
 `El presidente nunca ha pretendido ser un estadounidense de a pie, pero una reciente “verdad incómoda” lo ha expuesto a críticas de que no comprende la tensión económica de su guerra en Irán.`\
 https://www.nytimes.com/es/2026/05/18/espanol/estados-unidos/trump-millonario-dinero.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/17/theater/dad-dont-read-this-review.html
 **Perú va a una segunda vuelta con dos visiones distintas para el país**\
 `Las elecciones presidenciales enfrentan a Keiko Fujimori, conservadora, y Roberto Sánchez, político de izquierda, tras una crisis marcada por retrasos y protestas.`\
 https://www.nytimes.com/es/2026/05/17/espanol/america-latina/peru-elecciones-segunda-vuelta-keiko-fujimori-roberto-sanchez.html
-
-**La observación de aves impulsada por aplicaciones atrae a multitudes de entusiastas a Colombia**\
-`Colombia alberga la mayor cantidad de especies de aves conocidas por los ornitólogos. La aplicación Merlin está ayudando a desarrollar una industria de “aviturismo” en el país.`\
-https://www.nytimes.com/es/2026/05/17/espanol/america-latina/colombia-observacion-aves-turismo.html
 
