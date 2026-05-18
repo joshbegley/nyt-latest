@@ -1,3 +1,19 @@
+**Catastrophe Is Emerging in the World’s Most Vulnerable Places**\
+`The humanitarian relief system, decimated by cuts, faces a grave challenge as the Middle East war causes soaring costs for food, fuel and fertilizer.`\
+https://www.nytimes.com/2026/05/18/business/iran-war-somalia-usaid.html
+
+**A French Soccer Star Faces Off Against a Surging Foe: The Far Right**\
+`Kylian Mbappé, the captain of France’s national team, set off a storm a month before the World Cup by suggesting that the National Rally party was a threat to France.`\
+https://www.nytimes.com/2026/05/18/world/europe/kylian-mbappe-national-rally-france.html
+
+**Quote of the Day: Judith Barnard, Part of a Couple Who Wrote Best Sellers, Is Dead at 94**\
+`Quotation of the Day for Monday, May 18, 2026.`\
+https://www.nytimes.com/2026/05/17/pageoneplus/quote-of-the-day-judith-barnard-part-of-a-couple-who-wrote-best-sellers-is-dead-at-94.html
+
+**A Hunger Crisis in Somalia Is Being Worsened by the Middle East War**\
+`Widespread malnutrition in Somalia, initially caused by drought, has been compounded from cuts to humanitarian aid and rising prices driven by the war in the Middle East.`\
+https://www.nytimes.com/video/world/africa/100000010889203/somalia-drought-hunger-crisis.html
+
 **What to Know About the Latest Ebola Outbreak**\
 `The World Health Organization declared a global health emergency after about 80 people died from the virus in the Democratic Republic of Congo.`\
 https://www.nytimes.com/2026/05/17/world/africa/what-to-know-ebola-africa.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/es/2026/05/17/espanol/america-latina/colombia-observacio
 **What to Know About the Republicans Vying to Replace Senator Bill Cassidy**\
 `He was defeated in the Republican primary in Louisiana on Saturday. Representative Julia Letlow and State Treasurer John Fleming are now in a runoff for the party’s nomination.`\
 https://www.nytimes.com/2026/05/17/us/politics/letlow-fleming-cassidy-louisiana-senate.html
-
-**Cassidy Loses Primary After Drawing Trump’s Ire**\
-`Republican Senator Bill Cassidy lost his Louisiana primary on Saturday after President Trump targeted him for voting to impeach him in 2021. The two-term senator took veiled swipes at the president in his concession speech.`\
-https://www.nytimes.com/video/us/politics/100000010908960/cassidy-louisiana-primary-trump-senate.html
-
-**La OMS declara el brote de ébola como emergencia de salud internacional**\
-`La magnitud del brote podría ser mucho mayor de lo que se ha detectado y comunicado hasta ahora, dijo la OMS. No hay vacuna ni tratamientos aprobados para la cepa.`\
-https://www.nytimes.com/es/2026/05/17/espanol/ciencia-y-tecnologia/ebola-brote-emergencia-salud-oms.html
-
-**Venezuela extradita a EE. UU. a Alex Saab, empresario cercano a Nicolás Maduro**\
-`La extradición del magnate multimillonario, vinculado a una enorme trama de corrupción, forma parte de una purga de figuras poderosas que ayudaron al presidente depuesto a mantenerse en el poder.`\
-https://www.nytimes.com/es/2026/05/17/espanol/america-latina/venezuela-alex-saab-extradicion-estados-unidos.html
-
-**Chicken Paprikash, Generously Buttered Egg Noodles and a Cucumber Salad**\
-`There’s your Sunday supper, courtesy of Sam Sifton’s five-star recipe.`\
-https://www.nytimes.com/2026/05/17/dining/chicken-paprikash-generously-buttered-egg-noodles-and-a-cucumber-salad.html
 
