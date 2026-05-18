@@ -1,3 +1,11 @@
+**Read the judge’s decision on evidence in the Luigi Mangione state murder trial.**\
+`A state judge in Manhattan said prosecutors can use a gun found in Luugi Mangione’s backpack as evidence during his murder trial.`\
+https://www.nytimes.com/interactive/2026/05/18/nyregion/mangione-gun-decision.html
+
+**She Was Atlanta’s Mayor in the Pandemic. Now She Wants to Lead the State.**\
+`Keisha Lance Bottoms is the Democrats’ front-runner as the Georgia primary for governor approaches. But her party rivals are trying to ensure she has to face a runoff.`\
+https://www.nytimes.com/2026/05/18/us/keisha-lance-bottoms-georgia-governor-primary.html
+
 **España anula la sentencia de fraude fiscal contra Shakira**\
 `La Audiencia Nacional de España anunció que había absuelto a la cantante en un caso de hace más de una década, y ordenó a Hacienda que le devolviera decenas de millones de dólares.`\
 https://www.nytimes.com/es/2026/05/18/espanol/mundo/shakira-absuelta-fraude-fiscal-espana.html
