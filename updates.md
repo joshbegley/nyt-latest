@@ -1,3 +1,7 @@
+**What to Know About the Latest Ebola Outbreak**\
+`The World Health Organization declared a global health emergency after about 80 people died from the virus in the Democratic Republic of Congo.`\
+https://www.nytimes.com/2026/05/17/world/africa/what-to-know-ebola-africa.html
+
 **Eager for Arms Deal, Taiwan Stresses Need for U.S. Support**\
 `After President Trump hinted that weapons sales to Taiwan could figure in negotiations with China, officials emphasized their island’s strategic importance.`\
 https://www.nytimes.com/2026/05/17/us/politics/taiwan-china-us-arms-deal.html
