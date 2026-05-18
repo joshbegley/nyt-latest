@@ -1,3 +1,7 @@
+**Here’s what was on the jury’s list for a decision.**\
+``\
+https://www.nytimes.com/live/2026/05/18/technology/openai-trial-verdict-altman-musk/heres-what-was-on-the-jurys-list-for-a-decision
+
 **Ebola Raged for Weeks in Congo Before Anyone Raised the Alarm**\
 `Early surveillance and testing failed to identify Bundibugyo, a rare species of Ebola responsible for the current outbreak.`\
 https://www.nytimes.com/2026/05/18/world/africa/congo-ebola-testing.html
