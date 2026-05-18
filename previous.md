@@ -1,3 +1,27 @@
+**L-I-R-R vs. Lurr: The Debate Splitting New York Commuters**\
+`Initialism or acronym? It doesn’t matter. No one can agree on how to pronounce it.`\
+https://www.nytimes.com/2026/05/18/nyregion/lirr-pronunciation-long-island.html
+
+**Elon Musk Loses His Blockbuster Case Against OpenAI**\
+`Also, a railroad strike disrupts commutes into New York City. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/05/18/briefing/elon-musk-openai-trial.html
+
+**Graham Platner: If You Work for a Living, You’re Working Class**\
+`Graham Platner is a Democrat in Maine hoping to defeat Susan Collins in the midterms this November. On “The Interview,” he talked about why he takes an expansive view of the working class.`\
+https://www.nytimes.com/video/podcasts/100000010911077/graham-platner-if-you-work-for-a-living-youre-working-class.html
+
+**Graham Platner: ‘We Need a Political Revolution’**\
+`Graham Platner, a Democrat, is hoping to defeat Susan Collins in Maine’s Senate race this fall. On “The Interview,” he talks about why the country needs to find a way to rebuild the political system.`\
+https://www.nytimes.com/video/podcasts/100000010911040/graham-platner-we-need-a-political-revolution.html
+
+**Graham Platner: ‘Susan Collins Voted to Send Me to Iraq’**\
+`Graham Platner, a Maine Democrat running for Susan Collins’s Senate seat, talks on “The Interview” about how his military service shaped his life and political views.`\
+https://www.nytimes.com/video/podcasts/100000010910966/graham-platner-susan-collins-voted-to-send-me-to-iraq.html
+
+**Felicity Lott, Elegant Soprano in Opera and Song, Dies at 79**\
+`Tall and self-possessed, with an air of wit and sophistication, she was superb in works by Mozart and Strauss, and was also a wide-ranging recitalist.`\
+https://www.nytimes.com/2026/05/18/arts/music/felicity-lott-dead.html
+
 **After Elon Musk’s Court Loss Comes the Long Hot A.I. Summer**\
 `Even as protests increase, the collapse of Mr. Musk’s suit against OpenAI and Sam Altman will speed up the artificial intelligence juggernaut.`\
 https://www.nytimes.com/2026/05/18/technology/elon-musk-openai-trial.html
@@ -53,28 +77,4 @@ https://www.nytimes.com/2026/05/18/us/politics/cdc-ebola-congo-uganda-south-suda
 **N.Y.C. Hotel Housekeepers Will Earn Over $100,000 Under New Contract**\
 `A deal between a powerful union and an industry group substantially boosts annual pay for workers coping with New York City’s high cost of living.`\
 https://www.nytimes.com/2026/05/18/nyregion/nyc-hotel-housekeepers-pay.html
-
-**Scientists Tweaked the Global Warming Outlook. So Trump Weighed In.**\
-`Renewable energy has helped make the worst-case scenario a bit less bad. The president said, falsely, it shows that climate scientists were wrong all along.`\
-https://www.nytimes.com/2026/05/18/climate/trump-global-warming-truth-social.html
-
-**Read the document**\
-`An ICE agent faces state charges in connection to the shooting of a Venezuelan immigrant in Minneapolis. The charges include second-degree assault and falsely reporting a crime.`\
-https://www.nytimes.com/interactive/2026/05/18/us/ice-agent-minnesota-criminal-complaint.html
-
-**This Redistricting Chaos Must End**\
-`First on Democrats’ to-do list must be banning gerrymandering, restoring voting rights protections and reforming the Supreme Court.`\
-https://www.nytimes.com/2026/05/18/opinion/redistricting-democrats-gerrymandering.html
-
-**Here’s the latest.**\
-`The police said that the threat had been “neutralized,” but did not confirm the report that the attack had been fatal.`\
-https://www.nytimes.com/live/2026/05/18/us/san-diego-islamic-center-shooting/san-diego-mosque-shooting
-
-**Fast-Moving Southern California Fire Forces Immediate Evacuations**\
-`Officials ordered more than 23,000 to evacuate after a brush fire broke out in Simi Valley, Calif.`\
-https://www.nytimes.com/2026/05/18/us/sandy-fire-simi-valley-california.html
-
-**Severe Weather Threatens Tens of Millions in Midwest**\
-`After days of heavy winds, hail and tornadoes, more storms are expected across the Midwest on Monday.`\
-https://www.nytimes.com/video/weather/100000010910565/midwest-storms-tornado-hail.html
 
