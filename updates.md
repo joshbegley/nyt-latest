@@ -1,3 +1,15 @@
+**Mamdani’s First City-Owned Grocery Store Planned for South Bronx**\
+`Mayor Zohran Mamdani plans to announce that the store will open in the Hunts Point neighborhood next year. Some merchants are pushing back.`\
+https://www.nytimes.com/2026/05/18/nyregion/mamdani-grocery-store-bronx-hunts-point.html
+
+**Commuters Brace for Chaos Amid Long Island Rail Strike**\
+`Passengers who take the Long Island Rail Road braced for disruptions to their Monday commute after workers walked off the job during failed contract negotiations.`\
+https://www.nytimes.com/video/nyregion/100000010909507/lirr-strike-long-island-train-commute.html
+
+**Americans Are Among Those Affected by Ebola Outbreak, C.D.C. Says**\
+`A small number of U.S. citizens have been directly affected by the outbreak in the Democratic Republic of Congo and Uganda, the C.D.C. said on Sunday.`\
+https://www.nytimes.com/2026/05/18/us/ebola-outbreak-congo-uganda-americans-cdc.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/05/18/crosswords/spelling-bee-forum.html
