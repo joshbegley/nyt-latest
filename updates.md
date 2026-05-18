@@ -1,3 +1,11 @@
+**A Search for Ways Around Blocked Strait Leads to Syria**\
+`The latest war in the Middle East has created new economic opportunities for Syria thanks to its geography.`\
+https://www.nytimes.com/2026/05/18/world/middleeast/a-search-for-ways-around-blocked-strait-leads-to-syria.html
+
+**G7 Finance Ministers Look to Contain Iran Economic Fallout**\
+`Top policymakers were expected to discuss rising energy prices and sanctions policy at a critical summit in Paris this week.`\
+https://www.nytimes.com/2026/05/18/business/g7-finance-ministers-meeting-iran-war-oil.html
+
 **Louvre Announces Architects for Expansion That Will Include New Mona Lisa Space**\
 `A team of French and German architects has been selected for the project, which is expected to increase the Paris museum’s capacity by three million visitors a year.`\
 https://www.nytimes.com/2026/05/18/arts/louvre-expansion-architect.html

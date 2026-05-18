@@ -1,3 +1,7 @@
+**A Search for Ways Around Blocked Strait Leads to Syria**\
+`The latest war in the Middle East has created new economic opportunities for Syria thanks to its geography.`\
+https://www.nytimes.com/2026/05/18/world/middleeast/a-search-for-ways-around-blocked-strait-leads-to-syria.html
+
 **Louvre Announces Architects for Expansion That Will Include New Mona Lisa Space**\
 `A team of French and German architects has been selected for the project, which is expected to increase the Paris museum’s capacity by three million visitors a year.`\
 https://www.nytimes.com/2026/05/18/arts/louvre-expansion-architect.html
@@ -28,7 +32,7 @@ https://www.nytimes.com/2026/05/18/us/south-carolina-redistricting-republicans-c
 
 **G7 Finance Ministers Look to Contain Iran Economic Fallout**\
 `Top policymakers were expected to discuss rising energy prices and sanctions policy at a critical summit in Paris this week.`\
-https://www.nytimes.com/2026/05/18/business/g7-finance-ministers-look-to-contain-iran-economic-fallout.html
+https://www.nytimes.com/2026/05/18/business/g7-finance-ministers-meeting-iran-war-oil.html
 
 **Over 100,000 Family Separations in Deportation Push, Report Estimates**\
 `The Brookings Institution suggests that federal statistics are an undercount because immigrant parents are not being asked about or not disclosing their American children.`\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/18/opinion/trump-xi-iran-war.html
 **My Boss Goes on Benders. What Are My Options?**\
 `Plus, a bona fide “kids say the darnedest things” moment at a company party.`\
 https://www.nytimes.com/2026/05/18/business/boss-alcoholic.html
-
-**Trump’s Approval Sinks Amid Unpopular War, Darkening G.O.P. Prospects**\
-`With the midterms nearing, President Trump’s approval rating has hit a second-term low as voters question his handling of the economy, according to the latest New York Times/Siena poll.`\
-https://www.nytimes.com/2026/05/18/us/politics/poll-trump-republicans-midterms-iran.html
 
