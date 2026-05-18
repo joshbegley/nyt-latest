@@ -1,3 +1,39 @@
+****\
+``\
+https://www.nytimes.com/video/embedded/us/100000010910067/18vidlirr-82214.html
+
+**Children’s Mental Health Visits Have Shot Up, Research Shows**\
+`Doctor’s visits for children’s anxiety rose by more than 250 percent over 10 years, according to a study of nearly two million children.`\
+https://www.nytimes.com/2026/05/18/science/anxiety-mental-health-children-increases-study.html
+
+**Page to Screen: Do You Know the Books That Inspired These Adaptations?**\
+`Try this short quiz to see how many titles you (or your children) can recall.`\
+https://www.nytimes.com/interactive/2026/05/18/books/review/novel-adaptations-quiz.html
+
+**My Dead-Simple Roasted Sausages With Chickpeas and Spinach**\
+`A speedy and sustaining dinner to get you through Maycember madness.`\
+https://www.nytimes.com/2026/05/18/dining/my-dead-simple-roasted-sausages-with-chickpeas-and-spinach.html
+
+**Marisa Anderson’s (Tunefully) Un-American Activities**\
+`The guitarist mined the scholar Harry Smith’s LP collection, recording her takes on songs rooted in regions the United States has been in conflict with since 1970.`\
+https://www.nytimes.com/2026/05/18/arts/music/marisa-anderson-unamerican-folk-music.html
+
+**Can Creatine Really Help With Menopause?**\
+`Influencers are promoting the supplement, long popular among athletes, for help with midlife muscle loss and memory.`\
+https://www.nytimes.com/2026/05/18/well/live/creatine-menopause-symptoms.html
+
+**Would-be L.I.R.R. riders face lengthy journeys: ‘This is going to be a long commute.’**\
+``\
+https://www.nytimes.com/live/2026/05/18/nyregion/lirr-strike-update-long-island/would-be-lirr-riders-face-lengthy-journeys-this-is-going-to-be-a-long-commute
+
+**Some Evidence From Mangione’s Backpack Not Usable at Trial, Judge Says**\
+`Luigi Mangione’s lawyers argued that the evidence was inadmissible because the officers did not have a warrant to search their client’s backpack when he was arrested.`\
+https://www.nytimes.com/2026/05/18/nyregion/luigi-mangione-backpack-murder.html
+
+**Shakira Is Found Not Guilty of Tax Fraud in Spain**\
+`A Spanish court ruled that the pop star was not a tax resident of Spain in 2011 and ordered the country’s tax authorities to return tens of millions of dollars to her.`\
+https://www.nytimes.com/2026/05/18/world/europe/shakira-tax-fraud-spain.html
+
 **Learning Network: Sorting Truth From Misinformation**\
 `In the latest Journalism Essentials newsletter, we share how to navigate a sea of false information.`\
 https://www.nytimes.com/2026/05/18/learning/learning-network-sorting-truth-from-misinformation.html

@@ -1,3 +1,39 @@
+****\
+``\
+https://www.nytimes.com/video/embedded/us/100000010910067/18vidlirr-82214.html
+
+**Children’s Mental Health Visits Have Shot Up, Research Shows**\
+`Doctor’s visits for children’s anxiety rose by more than 250 percent over 10 years, according to a study of nearly two million children.`\
+https://www.nytimes.com/2026/05/18/science/anxiety-mental-health-children-increases-study.html
+
+**Page to Screen: Do You Know the Books That Inspired These Adaptations?**\
+`Try this short quiz to see how many titles you (or your children) can recall.`\
+https://www.nytimes.com/interactive/2026/05/18/books/review/novel-adaptations-quiz.html
+
+**My Dead-Simple Roasted Sausages With Chickpeas and Spinach**\
+`A speedy and sustaining dinner to get you through Maycember madness.`\
+https://www.nytimes.com/2026/05/18/dining/my-dead-simple-roasted-sausages-with-chickpeas-and-spinach.html
+
+**Marisa Anderson’s (Tunefully) Un-American Activities**\
+`The guitarist mined the scholar Harry Smith’s LP collection, recording her takes on songs rooted in regions the United States has been in conflict with since 1970.`\
+https://www.nytimes.com/2026/05/18/arts/music/marisa-anderson-unamerican-folk-music.html
+
+**Can Creatine Really Help With Menopause?**\
+`Influencers are promoting the supplement, long popular among athletes, for help with midlife muscle loss and memory.`\
+https://www.nytimes.com/2026/05/18/well/live/creatine-menopause-symptoms.html
+
+**Would-be L.I.R.R. riders face lengthy journeys: ‘This is going to be a long commute.’**\
+``\
+https://www.nytimes.com/live/2026/05/18/nyregion/lirr-strike-update-long-island/would-be-lirr-riders-face-lengthy-journeys-this-is-going-to-be-a-long-commute
+
+**Some Evidence From Mangione’s Backpack Not Usable at Trial, Judge Says**\
+`Luigi Mangione’s lawyers argued that the evidence was inadmissible because the officers did not have a warrant to search their client’s backpack when he was arrested.`\
+https://www.nytimes.com/2026/05/18/nyregion/luigi-mangione-backpack-murder.html
+
+**Shakira Is Found Not Guilty of Tax Fraud in Spain**\
+`A Spanish court ruled that the pop star was not a tax resident of Spain in 2011 and ordered the country’s tax authorities to return tens of millions of dollars to her.`\
+https://www.nytimes.com/2026/05/18/world/europe/shakira-tax-fraud-spain.html
+
 **U.S. Airstrikes Kill ISIS Fighters in Nigeria, Officials Say**\
 `U.S. military launched attack in coordination with Nigerian forces days after President Trump said a joint operation had killed Islamic State’s global leader.`\
 https://www.nytimes.com/2026/05/18/world/africa/us-airstrikes-isis-nigeria.html
@@ -41,40 +77,4 @@ https://www.nytimes.com/2026/05/18/world/asia/trump-taiwan-china-weapons.html
 **The Villain of This Year’s Commencement Speeches: A.I.**\
 `College students have interrupted graduation ceremonies to voice their fears about artificial intelligence. They’re not the only ones who are worried.`\
 https://www.nytimes.com/2026/05/18/business/dealbook/university-commencement-speech-ai.html
-
-**Two Americans Detained in Japan After Entering Punch the Monkey’s Enclosure**\
-`The men were charged with obstructing operations at a zoo, apparently as a stunt connected to a cryptocurrency. They denied the charges.`\
-https://www.nytimes.com/2026/05/18/world/asia/punch-monkey-japan-zoo-arrest.html
-
-**Bodies of Four Italian Divers Found in Maldives Cave**\
-`The discovery comes after days of searching by an international team of rescue divers. A fifth body was recovered last week.`\
-https://www.nytimes.com/2026/05/18/world/asia/maldives-divers-accident-bodies-found.html
-
-**Trump Threatens Iran as Tensions Surge Again in Middle East**\
-`The president has sought to force Iran to accept his terms on its nuclear program or else face renewed war. An emboldened Iran has rebuffed Trump’s demands.`\
-https://www.nytimes.com/2026/05/18/world/middleeast/trump-iran-war-talks.html
-
-**Two Fighter Jets Collide During Idaho Air Show**\
-`Two EA-18G Growler jets collided during a demonstration at an Air Force base in Idaho, forcing the four crew members to eject before the planes crashed into the ground.`\
-https://www.nytimes.com/video/us/100000010909664/plane-crash-idaho-air-show.html
-
-**What happened the last time L.I.R.R. workers went on strike?**\
-``\
-https://www.nytimes.com/live/2026/05/18/nyregion/lirr-strike-update-long-island/lirr-workers-strike-1994
-
-**The Fighting Never Ends**\
-`We look at what happens when countries say they’re going to stop shooting at each other.`\
-https://www.nytimes.com/2026/05/18/briefing/the-fighting-never-stops.html
-
-**Here’s What the L.I.R.R. Workers Want, and What They Make**\
-`Members of the five unions that are on strike made more than $136,000 last year on average, according to M.T.A. figures. But they have not received a raise since 2022.`\
-https://www.nytimes.com/2026/05/18/nyregion/lirr-strike-mta-why-unions.html
-
-**The Courtroom Showdown Between Elon Musk and Sam Altman**\
-`The tech leaders have brought props to court and traded icy stares as their legal dispute reaches a denouement.`\
-https://www.nytimes.com/2026/05/18/podcasts/the-daily/trial-elon-musk-sam-altman.html
-
-**Connections Companion No. 1,073**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, May 19, 2026.`\
-https://www.nytimes.com/2026/05/18/crosswords/connections-companion-1073.html
 
