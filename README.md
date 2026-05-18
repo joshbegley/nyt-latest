@@ -1,5 +1,9 @@
+**Guard Killed in Shooting at San Diego Islamic Center, Mosque Leader Says**\
+`The police said the situation at the county’s largest mosque remained “active,” but did not confirm the report that at least one person had been killed.`\
+https://www.nytimes.com/2026/05/18/us/san-diego-mosque-shooting.html
+
 **Fast-Moving Southern California Fire Forces Immediate Evacuations**\
-`A brush fire in the hills adjacent to suburban neighborhoods in Simi Valley, Calif., forced more than 23,000 to evacuate.`\
+`Officials ordered more than 23,000 to evacuate after a brush fire broke out in Simi Valley, Calif.`\
 https://www.nytimes.com/2026/05/18/us/sandy-fire-simi-valley-california.html
 
 **Severe Weather Threatens Tens of Millions in Midwest**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/18/us/northwestern-president-mung-chiang.html
 **Abortion Pill Lawsuit Leaves Trump Silent, and in a Political Bind**\
 `Louisiana wants the Food and Drug Administration to curtail access to the medication. Doing so could cost Republicans at the polls.`\
 https://www.nytimes.com/2026/05/18/us/politics/abortion-pill-trump-politics.html
-
-**Here’s the latest.**\
-``\
-https://www.nytimes.com/live/2026/05/18/technology/openai-trial-verdict-altman-musk/heres-the-latest
 

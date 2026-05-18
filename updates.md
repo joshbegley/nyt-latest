@@ -1,3 +1,11 @@
+**Fast-Moving Southern California Fire Forces Immediate Evacuations**\
+`A brush fire in the hills adjacent to suburban neighborhoods in Simi Valley, Calif., forced more than 23,000 to evacuate.`\
+https://www.nytimes.com/2026/05/18/us/sandy-fire-simi-valley-california.html
+
+**Just Tuning In to Musk’s Blockbuster Trial Against OpenAI? Here’s What to Know.**\
+`A jury in Oakland, Calif., reached a decision after a three-week-long trial seen as pivotal for the future of OpenAI and the artificial intelligence race.`\
+https://www.nytimes.com/2026/05/18/technology/openai-trial-elon-musk-sam-altman.html
+
 **Severe Weather Threatens Tens of Millions in Midwest**\
 `After days of heavy winds, hail and tornadoes, more storms are expected across the Midwest on Monday.`\
 https://www.nytimes.com/video/weather/100000010910565/midwest-storms-tornado-hail.html
