@@ -1,3 +1,7 @@
+**Trump Says He Authorized New Strikes on Iran, but Has Decided to Hold Off**\
+`President Trump has repeatedly threatened new military action against Iran, only to pull back from resuming major fighting in a deeply unpopular, expensive conflict.`\
+https://www.nytimes.com/2026/05/18/us/politics/trump-iran-strikes.html
+
 **When Nationalism Beats Nationalism**\
 `A progressive, pluralistic nationalism has prevailed at the polls in Scotland and Wales. Could it gain traction elsewhere?`\
 https://www.nytimes.com/2026/05/18/world/welsh-scottish-nationalism-immigration.html
@@ -22,9 +26,9 @@ https://www.nytimes.com/interactive/2026/05/18/us/ice-agent-minnesota-criminal-c
 `First on Democrats’ to-do list must be banning gerrymandering, restoring voting rights protections and reforming the Supreme Court.`\
 https://www.nytimes.com/2026/05/18/opinion/redistricting-democrats-gerrymandering.html
 
-**Guard Killed in Shooting at San Diego Islamic Center, Mosque Leader Says**\
+**Here’s the latest.**\
 `The police said that the threat had been “neutralized,”  but did not confirm the report that the attack had been fatal.`\
-https://www.nytimes.com/2026/05/18/us/san-diego-mosque-shooting.html
+https://www.nytimes.com/live/2026/05/18/us/san-diego-islamic-center-shooting/san-diego-mosque-shooting
 
 **Fast-Moving Southern California Fire Forces Immediate Evacuations**\
 `Officials ordered more than 23,000 to evacuate after a brush fire broke out in Simi Valley, Calif.`\
@@ -43,7 +47,7 @@ https://www.nytimes.com/video/nyregion/100000010910127/luigi-mangione-evidence-s
 https://www.nytimes.com/2026/05/18/climate/epa-forever-chemicals-pfas-drinking-water.html
 
 **Passenger Ordered to Stay in Hantavirus Quarantine Despite Desire to Leave**\
-`An American from the hantavirus-infected cruise ship had wanted to depart an Omaha quarantine facility.`\
+`An American from the hantavirus-infected cruise ship, who said she had tested negative for the disease, has been ordered to remain in an Omaha quarantine facility for two more weeks.`\
 https://www.nytimes.com/2026/05/18/us/hantavirus-ship-passenger-quarantine-order.html
 
 **Just Tuning In to Musk’s Blockbuster Trial Against OpenAI? Here’s What to Know.**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/18/business/media/new-york-times-pentagon-lawsui
 **Here’s what was on the jury’s list for a decision.**\
 ``\
 https://www.nytimes.com/live/2026/05/18/technology/openai-trial-verdict-altman-musk/heres-what-was-on-the-jurys-list-for-a-decision
-
-**Ebola Raged for Weeks in Congo Before Anyone Raised the Alarm**\
-`Early surveillance and testing failed to identify the rare species of Ebola responsible for the current outbreak. An American doctor is among the confirmed cases.`\
-https://www.nytimes.com/2026/05/18/world/africa/congo-ebola-testing.html
 

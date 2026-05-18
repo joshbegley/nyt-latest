@@ -1,3 +1,15 @@
+**Trump Says He Authorized New Strikes on Iran, but Has Decided to Hold Off**\
+`President Trump has repeatedly threatened new military action against Iran, only to pull back from resuming major fighting in a deeply unpopular, expensive conflict.`\
+https://www.nytimes.com/2026/05/18/us/politics/trump-iran-strikes.html
+
+**Here’s the latest.**\
+`The police said that the threat had been “neutralized,”  but did not confirm the report that the attack had been fatal.`\
+https://www.nytimes.com/live/2026/05/18/us/san-diego-islamic-center-shooting/san-diego-mosque-shooting
+
+**Passenger Ordered to Stay in Hantavirus Quarantine Despite Desire to Leave**\
+`An American from the hantavirus-infected cruise ship, who said she had tested negative for the disease, has been ordered to remain in an Omaha quarantine facility for two more weeks.`\
+https://www.nytimes.com/2026/05/18/us/hantavirus-ship-passenger-quarantine-order.html
+
 **Scientists Tweaked the Global Warming Outlook. So Trump Weighed In.**\
 `Renewable energy has helped make the worst-case scenario a bit less bad. The president said, falsely, it shows that climate scientists were wrong all along.`\
 https://www.nytimes.com/2026/05/18/climate/trump-global-warming-truth-social.html
