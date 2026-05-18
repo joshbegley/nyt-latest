@@ -27,7 +27,7 @@ https://www.nytimes.com/2026/05/18/learning/word-of-the-day-efficacy.html
 https://www.nytimes.com/2026/05/18/us/ebola-outbreak-congo-uganda-americans-cdc.html
 
 **Oil Prices Edge Higher as Cease-Fire Remains Tenuous**\
-`Oil prices rose after President Trump issued a new warning to Iran, calling into question the tenuous cease-fire in the war.`\
+`Stocks and bonds wavered after President Trump issued a new warning to Iran.`\
 https://www.nytimes.com/2026/05/18/business/oil-gas-price-iran.html
 
 **The Tech Workers Building A.I. Are Scared of It, Too**\
