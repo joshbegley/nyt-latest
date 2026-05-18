@@ -1,3 +1,11 @@
+**Russia’s New Human Rights Commissioner Accused of Helping Kidnap Ukrainian Children**\
+`Yana Lantratova was instrumental in helping the chairman of her party to illegally adopt an infant girl from Russian-occupied Ukraine, the Ukrainian authorities say.`\
+https://www.nytimes.com/2026/05/18/world/europe/russia-ukraine-children-kidnapping.html
+
+**Palabra del día: ‘efficacy’**\
+`Esta palabra ha aparecido en 175 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/05/18/espanol/que-significa-efficacy.html
+
 **Lo que hay que saber sobre el más reciente brote de ébola**\
 `La Organización Mundial de la Salud declaró una emergencia mundial tras el fallecimiento de unas 80 personas a causa del virus en la República Democrática del Congo.`\
 https://www.nytimes.com/es/2026/05/18/espanol/mundo/brote-ebola-africa.html
