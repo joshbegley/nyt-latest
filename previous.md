@@ -1,3 +1,7 @@
+**Gucci Got Tom Brady and Cindy Crawford to Strut Their Stuff in Times Square**\
+`And other memorable moments, and clothes, from Demna’s first cruise show.`\
+https://www.nytimes.com/2026/05/18/style/gucci-times-square-cruise.html
+
 **She Was Atlanta’s Mayor in the Pandemic. Can She Win the Governor’s Race?**\
 `Some Democrats fear that Keisha Lance Bottoms, the front-runner in the primary, has vulnerabilities in what could otherwise be a good year for the party in Georgia.`\
 https://www.nytimes.com/2026/05/18/us/keisha-lance-bottoms-georgia-governor-primary.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/18/dining/my-dead-simple-roasted-sausages-with-c
 **Marisa Anderson’s (Tunefully) Un-American Activities**\
 `The guitarist mined the scholar Harry Smith’s LP collection, recording her takes on songs rooted in regions the United States has been in conflict with since 1970.`\
 https://www.nytimes.com/2026/05/18/arts/music/marisa-anderson-unamerican-folk-music.html
-
-**Can Creatine Really Help With Menopause?**\
-`Influencers are promoting the supplement, long popular among athletes, for help with midlife muscle loss and memory.`\
-https://www.nytimes.com/2026/05/18/well/live/creatine-menopause-symptoms.html
 

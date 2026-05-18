@@ -1,3 +1,7 @@
+**Gucci Got Tom Brady and Cindy Crawford to Strut Their Stuff in Times Square**\
+`And other memorable moments, and clothes, from Demna’s first cruise show.`\
+https://www.nytimes.com/2026/05/18/style/gucci-times-square-cruise.html
+
 **She Was Atlanta’s Mayor in the Pandemic. Can She Win the Governor’s Race?**\
 `Some Democrats fear that Keisha Lance Bottoms, the front-runner in the primary, has vulnerabilities in what could otherwise be a good year for the party in Georgia.`\
 https://www.nytimes.com/2026/05/18/us/keisha-lance-bottoms-georgia-governor-primary.html
