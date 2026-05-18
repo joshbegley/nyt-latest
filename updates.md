@@ -1,3 +1,11 @@
+**How a Funding Pause Derailed an Artificial Heart for Babies**\
+`James Antaki’s efforts to develop a baby’s heart were close to success when his federal funding was cut off. The grants were eventually restored; rebuilding what was lost wasn’t so easy.`\
+https://www.nytimes.com/2026/05/18/well/federal-cuts-artificial-baby-heart-cornell.html
+
+****\
+``\
+https://www.nytimes.com/video/embedded/us/100000010910131/18vidlirr-91625.html
+
 ****\
 ``\
 https://www.nytimes.com/video/embedded/us/100000010910067/18vidlirr-82214.html

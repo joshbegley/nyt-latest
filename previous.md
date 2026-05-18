@@ -1,3 +1,11 @@
+**How a Funding Pause Derailed an Artificial Heart for Babies**\
+`James Antaki’s efforts to develop a baby’s heart were close to success when his federal funding was cut off. The grants were eventually restored; rebuilding what was lost wasn’t so easy.`\
+https://www.nytimes.com/2026/05/18/well/federal-cuts-artificial-baby-heart-cornell.html
+
+****\
+``\
+https://www.nytimes.com/video/embedded/us/100000010910131/18vidlirr-91625.html
+
 ****\
 ``\
 https://www.nytimes.com/video/embedded/us/100000010910067/18vidlirr-82214.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/18/pageoneplus/no-corrections-may-18-2026.html
 **Bulgaria Hopes Eurovision Win Will Show Its Strength as a Continental Player**\
 `Recent months have brought remarkable change in the Eastern European nation, which has just adopted the euro and forced the resignation of a leader through major protests.`\
 https://www.nytimes.com/2026/05/18/arts/bulgaria-eurovision-europe.html
-
-**Trump’s Taiwan Gambit is Already a Gift to China**\
-`President Trump’s open willingness to hold up a $14 billion Taiwan arms package is a win for Beijing. Now China could be weighing how to keep the weapons on ice for as long as it can.`\
-https://www.nytimes.com/2026/05/18/world/asia/trump-taiwan-china-weapons.html
-
-**The Villain of This Year’s Commencement Speeches: A.I.**\
-`College students have interrupted graduation ceremonies to voice their fears about artificial intelligence. They’re not the only ones who are worried.`\
-https://www.nytimes.com/2026/05/18/business/dealbook/university-commencement-speech-ai.html
 

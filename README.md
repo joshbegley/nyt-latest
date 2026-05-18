@@ -1,3 +1,7 @@
+**Lo que hay que saber sobre el más reciente brote de ébola**\
+`La Organización Mundial de la Salud declaró una emergencia mundial tras el fallecimiento de unas 80 personas a causa del virus en la República Democrática del Congo.`\
+https://www.nytimes.com/es/2026/05/18/espanol/mundo/brote-ebola-africa.html
+
 **How a Funding Pause Derailed an Artificial Heart for Babies**\
 `James Antaki’s efforts to develop a baby’s heart were close to success when his federal funding was cut off. The grants were eventually restored; rebuilding what was lost wasn’t so easy.`\
 https://www.nytimes.com/2026/05/18/well/federal-cuts-artificial-baby-heart-cornell.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/18/us/politics/hegseth-gallrein-campaign.html
 **No Corrections: May 18, 2026**\
 `No corrections appeared in print on Monday, May 18, 2026.`\
 https://www.nytimes.com/2026/05/18/pageoneplus/no-corrections-may-18-2026.html
-
-**Bulgaria Hopes Eurovision Win Will Show Its Strength as a Continental Player**\
-`Recent months have brought remarkable change in the Eastern European nation, which has just adopted the euro and forced the resignation of a leader through major protests.`\
-https://www.nytimes.com/2026/05/18/arts/bulgaria-eurovision-europe.html
 
