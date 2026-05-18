@@ -1,3 +1,7 @@
+**Read the document**\
+`An ICE agent faces state charges in connection to the shooting of a Venezuelan immigrant in Minneapolis. The charges include second-degree assault and falsely reporting a crime.`\
+https://www.nytimes.com/interactive/2026/05/18/us/ice-agent-minnesota-criminal-complaint.html
+
 **This Redistricting Chaos Must End**\
 `First on Democrats’ to-do list must be banning gerrymandering, restoring voting rights protections and reforming the Supreme Court.`\
 https://www.nytimes.com/2026/05/18/opinion/redistricting-democrats-gerrymandering.html
@@ -22,8 +26,8 @@ https://www.nytimes.com/video/nyregion/100000010910127/luigi-mangione-evidence-s
 `The rules were established by the Biden administration after research linked the compounds to a range of serious health problems.`\
 https://www.nytimes.com/2026/05/18/climate/epa-forever-chemicals-pfas-drinking-water.html
 
-**Hantavirus Patient Ordered to Stay in Quarantine Despite Desire to Leave**\
-`An American passenger from the hantavirus-infected cruise ship had wanted to depart an Omaha quarantine facility.`\
+**Passenger Ordered to Stay in Hantavirus Quarantine Despite Desire to Leave**\
+`An American from the hantavirus-infected cruise ship had wanted to depart an Omaha quarantine facility.`\
 https://www.nytimes.com/2026/05/18/us/hantavirus-ship-passenger-quarantine-order.html
 
 **Just Tuning In to Musk’s Blockbuster Trial Against OpenAI? Here’s What to Know.**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/18/us/ice-agent-charges-venezuelan-immigrant.htm
 **El gobierno de Trump impulsa el relato de la fundación cristiana de EE. UU. en un mitin**\
 `El objetivo del acto de oración, que contó con miembros del gabinete, era consolidar la idea de que la fundación de EE. UU. fue un proyecto intencionalmente cristiano.`\
 https://www.nytimes.com/es/2026/05/18/espanol/estados-unidos/mitin-cristiano-trump-washington.html
-
-**Northwestern Names a New President After Tumult Over Protests**\
-`The previous president resigned after months of conflict over how the university handled protests. The new president, Mung Chiang, currently leads Purdue.`\
-https://www.nytimes.com/2026/05/18/us/northwestern-president-mung-chiang.html
 
