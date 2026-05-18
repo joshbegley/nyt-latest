@@ -1,80 +1,80 @@
-**Americans Affected in Ebola Outbreak, C.D.C. Says**\
-`An Ebola outbreak in Africa has affected some Americans, according to the C.D.C. There is no vaccine for the species of the deadly virus that has spread in the Democratic Republic of Congo and Uganda.`\
-https://www.nytimes.com/video/world/africa/100000010909481/ebola-outbreak-congo-americans.html
+**Louvre Announces Architects for Expansion That Will Include New Mona Lisa Space**\
+`A team of French and German architects has been selected for the project, which is expected to increase the Paris museum’s capacity by three million visitors a year.`\
+https://www.nytimes.com/2026/05/18/arts/louvre-expansion-architect.html
 
-**Mamdani’s First City-Owned Grocery Store Planned for South Bronx**\
-`Mayor Zohran Mamdani plans to announce that the store will open in the Hunts Point neighborhood next year. Some merchants are pushing back.`\
-https://www.nytimes.com/2026/05/18/nyregion/mamdani-grocery-store-bronx-hunts-point.html
+**Megan Fairchild’s Long, Joyful Goodbye to Ballet**\
+`After “Coppélia,” the New York City Ballet star will leave her dancing days behind. “I have an immense amount of peace about this whole thing,” she said.`\
+https://www.nytimes.com/2026/05/18/arts/dance/megan-fairchild-city-ballet-retiring.html
 
-**Commuters Brace for Chaos Amid Long Island Rail Strike**\
-`Passengers who take the Long Island Rail Road braced for disruptions to their Monday commute after workers walked off the job during failed contract negotiations.`\
-https://www.nytimes.com/video/nyregion/100000010909507/lirr-strike-long-island-train-commute.html
+**Intense Storms Could Rattle the U.S. Midwest, Monday’s Forecast Shows**\
+`Some of the most severe weather in days could hit Monday afternoon, meteorologists said. Tornadoes and large hail are possible.`\
+https://www.nytimes.com/2026/05/18/weather/storm-tornado-forecast-kansas-nebraska-iowa.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/05/18/crosswords/spelling-bee-forum.html
+**A Few Changes for the Times/Siena Poll**\
+`Starting with today’s survey, we’re introducing a new target for weighting called synthetic past vote.`\
+https://www.nytimes.com/2026/05/18/upshot/times-siena-poll-changes.html
 
-**EE. UU. y China comparten un sentimiento ante la IA**\
-`El futuro tecnológico está tomando forma a una velocidad vertiginosa, pero lo que promete no es para todos.`\
-https://www.nytimes.com/es/2026/05/18/espanol/opinion/china-estados-unidos-ia-futuro.html
+**A Crack in the Polling Floor Puts Trump in New Territory**\
+`A 37 percent approval rating in a new Times/Siena poll suggests the G.O.P. is facing a big midterm problem despite recent redistricting gains.`\
+https://www.nytimes.com/2026/05/18/upshot/trump-poll-times-siena-analyis.html
 
-**Word of the Day: efficacy**\
-`This word has appeared in 175 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/05/18/learning/word-of-the-day-efficacy.html
+**Breaking Down Drake’s Three-Album Surprise**\
+`Our hosts react to “Iceman,” “Habibti” and “Maid of Honour.”`\
+https://www.nytimes.com/2026/05/18/arts/music/breaking-down-drakes-three-album-surprise.html
 
-**Americans Are Among Those Affected by Ebola Outbreak, C.D.C. Says**\
-`A small number of U.S. citizens have been directly affected by the outbreak in the Democratic Republic of Congo and Uganda, the C.D.C. said on Sunday.`\
-https://www.nytimes.com/2026/05/18/us/ebola-outbreak-congo-uganda-americans-cdc.html
+**South Carolina Republicans to Debate New House Maps Despite Qualms**\
+`Under pressure from President Trump, the legislature will consider new House districts this week. Some in the G.O.P. worry changes would be too costly and could backfire.`\
+https://www.nytimes.com/2026/05/18/us/south-carolina-redistricting-republicans-clyburn.html
 
-**Oil Prices Edge Higher as Cease-Fire Remains Tenuous**\
-`Stocks and bonds wavered after President Trump issued a new warning to Iran.`\
-https://www.nytimes.com/2026/05/18/business/oil-gas-price-iran.html
+**G7 Finance Ministers Look to Contain Iran Economic Fallout**\
+`Top policymakers were expected to discuss rising energy prices and sanctions policy at a critical summit in Paris this week.`\
+https://www.nytimes.com/2026/05/18/business/g7-finance-ministers-look-to-contain-iran-economic-fallout.html
 
-**The Tech Workers Building A.I. Are Scared of It, Too**\
-`Even the developers of A.I. want regulation. They’re starting to take action.`\
-https://www.nytimes.com/2026/05/18/opinion/ai-tech-worker-organizing.html
+**Over 100,000 Family Separations in Deportation Push, Report Estimates**\
+`The Brookings Institution suggests that federal statistics are an undercount because immigrant parents are not being asked about or not disclosing their American children.`\
+https://www.nytimes.com/2026/05/18/us/brookings-institution-report-family-separations.html
 
-**‘In the City,’ and 7 More Things to Watch on TV This Week**\
-`A new Bravo show with “Summer House” alums premieres. And a documentary on Kylie Minogue airs.`\
-https://www.nytimes.com/2026/05/18/arts/television/in-the-city-things-to-watch-on-tv-this-week.html
+**The Trump Administration’s Lipstick and Lies**\
+`If you’re not strutting, you’re not selling`\
+https://www.nytimes.com/2026/05/18/opinion/trump-image-administration.html
 
-**2 Teenagers Arrested After Drive-By Shootings in Austin Injure at Least 4**\
-`The teenage boys were among three suspects taken into custody in connection with at least 12 shootings across the Texas capital. There was no apparent motive, the mayor said.`\
-https://www.nytimes.com/2026/05/18/us/austin-texas-shooting-arrest.html
+**How a Web Developer Lives on $45,000 in Far Rockaway**\
+`Karen Jeanne Radley has spent the last few years moving apartments after each rent increase. Now 51, she has landed in a senior living community.`\
+https://www.nytimes.com/interactive/2026/05/18/nyregion/nyc-budgeting-affordability-radley.html
 
-**Los comentarios de Trump sobre la economía revelan su desconexión de la realidad**\
-`El presidente nunca ha pretendido ser un estadounidense de a pie, pero una reciente “verdad incómoda” lo ha expuesto a críticas de que no comprende la tensión económica de su guerra en Irán.`\
-https://www.nytimes.com/es/2026/05/18/espanol/estados-unidos/trump-millonario-dinero.html
+**Willing to Take Risks in a Beach House on Lake Michigan**\
+`A couple looking for a second home fell for the architecture of one house, but not the interiors. Luckily, they had a “secret weapon.”`\
+https://www.nytimes.com/2026/05/18/realestate/willing-to-take-risks-in-a-beach-house-on-lake-michigan.html
 
-**Catastrophe Is Emerging in the World’s Most Vulnerable Places**\
-`The humanitarian relief system, decimated by cuts, faces a grave challenge as the Middle East war causes soaring costs for food, fuel and fertilizer.`\
-https://www.nytimes.com/2026/05/18/business/iran-war-somalia-usaid.html
+**For Jesmyn Ward, Tough Times Have Led to Some of Her Best Writing**\
+`The two-time National Book Award winner collects essays, profiles and appreciations in a new book, “On Witness and Respair.”`\
+https://www.nytimes.com/2026/05/18/books/review/jesmyn-ward-witness-and-respair.html
 
-**A French Soccer Star Faces Off Against a Surging Foe: The Far Right**\
-`Kylian Mbappé, the captain of France’s national team, set off a storm a month before the World Cup by suggesting that the National Rally party was a threat to France.`\
-https://www.nytimes.com/2026/05/18/world/europe/kylian-mbappe-national-rally-france.html
+**How Redistricting Is Making the Midterms Less Competitive**\
+`Across the states that have had their maps redrawn, partisan gerrymandering is eroding the number of competitive districts where elections are actually won and lost.`\
+https://www.nytimes.com/interactive/2026/05/18/us/politics/midterms-redistricting-maps-competitive.html
 
-**Quote of the Day: Judith Barnard, Part of a Couple Who Wrote Best Sellers, Is Dead at 94**\
-`Quotation of the Day for Monday, May 18, 2026.`\
-https://www.nytimes.com/2026/05/17/pageoneplus/quote-of-the-day-judith-barnard-part-of-a-couple-who-wrote-best-sellers-is-dead-at-94.html
+**In Kentucky, Fidelity to Trump Is Once Again on the Ballot**\
+`Representative Thomas Massie, the Republican who wears his rifts with President Trump as badges of honor, is battling Trump-backed challenger Ed Gallrein to keep his seat.`\
+https://www.nytimes.com/2026/05/18/us/politics/thomas-massie-kentucky-trump-election.html
 
-**A Hunger Crisis in Somalia Is Being Worsened by the Middle East War**\
-`Widespread malnutrition in Somalia, initially caused by drought, has been compounded from cuts to humanitarian aid and rising prices driven by the war in the Middle East.`\
-https://www.nytimes.com/video/world/africa/100000010889203/somalia-drought-hunger-crisis.html
+**America Needs to Build More Housing**\
+`Basic economic principles point to the solution for the housing affordability crisis.`\
+https://www.nytimes.com/interactive/2026/05/18/opinion/affordable-housing-america.html
 
-**What to Know About the Latest Ebola Outbreak**\
-`The World Health Organization declared a global health emergency after about 80 people died from the virus in the Democratic Republic of Congo.`\
-https://www.nytimes.com/2026/05/17/world/africa/what-to-know-ebola-africa.html
+**MAGA Women Are Leading a #Me2.0 in Washington**\
+`These G.O.P. crusaders might be the perfect people to fight sexual misconduct on Capitol Hill.`\
+https://www.nytimes.com/2026/05/18/opinion/maga-women-congress-metoo.html
 
-**Eager for Arms Deal, Taiwan Stresses Need for U.S. Support**\
-`After President Trump hinted that weapons sales to Taiwan could figure in negotiations with China, officials emphasized their island’s strategic importance.`\
-https://www.nytimes.com/2026/05/17/us/politics/taiwan-china-us-arms-deal.html
+**Trump Doesn’t Know What Power Is**\
+`His administration has done more than misjudge the wherewithal of its adversary.`\
+https://www.nytimes.com/2026/05/18/opinion/trump-xi-iran-war.html
 
-**Beverley Martyn, Whose Folk Music Breakthrough Took 50 Years, Dies at 79**\
-`As a rising star of the 1960s, she dated Paul Simon, brooded with Nick Drake and drew Barbra Streisand’s envy. Then she sank into an abusive marriage.`\
-https://www.nytimes.com/2026/05/17/obituaries/beverley-martyn-dead.html
+**My Boss Goes on Benders. What Are My Options?**\
+`Plus, a bona fide “kids say the darnedest things” moment at a company party.`\
+https://www.nytimes.com/2026/05/18/business/boss-alcoholic.html
 
-**NextEra Energy Said to Be in Talks to Acquire Dominion, Creating a Utility Giant**\
-`A deal, involving the utilities in Florida and Virginia, would come as demand for power is soaring, largely because of the rapid growth of A.I. data centers.`\
-https://www.nytimes.com/2026/05/17/business/nextera-dominion-deal.html
+**Trump’s Approval Sinks Amid Unpopular War, Darkening G.O.P. Prospects**\
+`With the midterms nearing, President Trump’s approval rating has hit a second-term low as voters question his handling of the economy, according to the latest New York Times/Siena poll.`\
+https://www.nytimes.com/2026/05/18/us/politics/poll-trump-republicans-midterms-iran.html
 
