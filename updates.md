@@ -1,3 +1,15 @@
+**Oil Prices Edge Higher as Cease-Fire Remains Tenuous**\
+`Oil prices rose after President Trump issued a new warning to Iran, calling into question the tenuous cease-fire in the war.`\
+https://www.nytimes.com/2026/05/18/business/oil-gas-price-iran.html
+
+**‘In the City,’ and 7 More Things to Watch on TV This Week**\
+`A new Bravo show with “Summer House” alums premieres. And a documentary on Kylie Minogue airs.`\
+https://www.nytimes.com/2026/05/18/arts/television/in-the-city-things-to-watch-on-tv-this-week.html
+
+**Tech Workers Have Fears About A.I., Too. They Can Do Something About It.**\
+`Even the developers of A.I. want regulation. They’re starting to take action.`\
+https://www.nytimes.com/2026/05/18/opinion/ai-tech-worker-organizing.html
+
 **2 Teenagers Arrested After Drive-By Shootings in Austin Injure at Least 4**\
 `The teenage boys were among three suspects taken into custody in connection with at least 12 shootings across the Texas capital. There was no apparent motive, the mayor said.`\
 https://www.nytimes.com/2026/05/18/us/austin-texas-shooting-arrest.html
