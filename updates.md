@@ -1,3 +1,15 @@
+**Bobby Darin Musical Reaches a Rare Broadway Milestone: Profit**\
+`“Just in Time,” which for a year starred Jonathan Groff, is the first new musical from last season to make money for investors.`\
+https://www.nytimes.com/2026/05/18/theater/just-in-time-broadway-profit.html
+
+**Hegseth to Campaign for a Republican House Candidate**\
+`Defense Department officials typically stay away from partisan politics to maintain the military’s apolitical image.`\
+https://www.nytimes.com/2026/05/18/us/politics/hegseth-gallrein-campaign.html
+
+**L.I.R.R. Negotiations Collapse Over Wages**\
+`Members of the five negotiating unions averaged over $136,000 last year, according to M.T.A. figures. They wanted a 5 percent raise for this year, a demand that has exceeded what the agency has offered to other unions.`\
+https://www.nytimes.com/2026/05/18/nyregion/lirr-strike-mta-why-unions.html
+
 **No Corrections: May 18, 2026**\
 `No corrections appeared in print on Monday, May 18, 2026.`\
 https://www.nytimes.com/2026/05/18/pageoneplus/no-corrections-may-18-2026.html

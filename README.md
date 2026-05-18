@@ -1,3 +1,7 @@
+**Trump Withdraws His $10 Billion Suit Against the I.R.S.**\
+`The dismissal appears to be part of the Trump administration’s effort to effectively settle the case, which stemmed from the leak of his tax returns in 2019.`\
+https://www.nytimes.com/2026/05/18/us/trump-irs-lawsuit.html
+
 **Bobby Darin Musical Reaches a Rare Broadway Milestone: Profit**\
 `“Just in Time,” which for a year starred Jonathan Groff, is the first new musical from last season to make money for investors.`\
 https://www.nytimes.com/2026/05/18/theater/just-in-time-broadway-profit.html
@@ -46,8 +50,8 @@ https://www.nytimes.com/live/2026/05/18/nyregion/lirr-strike-update-long-island/
 `We look at what happens when countries say they’re going to stop shooting at each other.`\
 https://www.nytimes.com/2026/05/18/briefing/the-fighting-never-stops.html
 
-**L.I.R.R. Negotiations Collapse Over Wages**\
-`Members of the five negotiating unions averaged over $136,000 last year, according to M.T.A. figures. They wanted a 5 percent raise for this year, a demand that has exceeded what the agency has offered to other unions.`\
+**Here’s What the L.I.R.R. Workers Want, and What They Make**\
+`Members of the five unions that are on strike made more than $136,000 last year on average, according to M.T.A. figures. But they have not received a raise since 2022.`\
 https://www.nytimes.com/2026/05/18/nyregion/lirr-strike-mta-why-unions.html
 
 **The Courtroom Showdown Between Elon Musk and Sam Altman**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/18/crosswords/wordle-review-1795.html
 **A Search for Ways Around Blocked Strait Leads to Syria**\
 `The latest war in the Middle East has created new economic opportunities for Syria thanks to its geography.`\
 https://www.nytimes.com/2026/05/18/world/middleeast/strait-hormuz-blockade-iran-war-syria-oil.html
-
-**Louvre Announces Architects for Expansion That Will Include New Mona Lisa Space**\
-`A team of French and German architects has been selected for the project, which is expected to increase the Paris museum’s capacity by three million visitors a year.`\
-https://www.nytimes.com/2026/05/18/arts/louvre-expansion-architect.html
 
