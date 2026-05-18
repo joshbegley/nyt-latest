@@ -1,3 +1,15 @@
+**U.S., Escalating Pressure on Cuba, Hits Top Officials With Sanctions**\
+`The Trump administration, ratcheting up its effort to cripple the Cuban government, also imposed sanctions on three government agencies, including the police.`\
+https://www.nytimes.com/2026/05/18/world/americas/cuba-sanctions-us.html
+
+**Las encuestas muestran la aprobación de Trump en un nuevo punto bajo**\
+`Un índice de aprobación del 37 por ciento en una nueva encuesta de Times/Siena sugiere que el Partido Republicano se enfrenta a un problema a mitad de legislatura.`\
+https://www.nytimes.com/es/2026/05/18/espanol/estados-unidos/trump-indice-aprobacion-encuestas.html
+
+**The Generation That Grew Up With A.I. Hates It**\
+`Why graduates are booing artificial intelligence.`\
+https://www.nytimes.com/2026/05/18/opinion/ai-boo-commencement-speeches.html
+
 **Officials Investigating San Diego Mosque Shooting as Possible Hate Crime**\
 `Three people were killed in an attack at the Islamic Center of San Diego on Monday. The authorities said a security guard who was fatally shot might have prevented a more deadly massacre.`\
 https://www.nytimes.com/video/us/100000010911471/san-diego-islamic-center-mosque-shooting.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/video/podcasts/100000010911077/graham-platner-if-you-wor
 **Graham Platner: ‘We Need a Political Revolution’**\
 `Graham Platner, a Democrat, is hoping to defeat Susan Collins in Maine’s Senate race this fall. On “The Interview,” he talks about why the country needs to find a way to rebuild the political system.`\
 https://www.nytimes.com/video/podcasts/100000010911040/graham-platner-we-need-a-political-revolution.html
-
-**Graham Platner: ‘Susan Collins Voted to Send Me to Iraq’**\
-`Graham Platner, a Maine Democrat running for Susan Collins’s Senate seat, talks on “The Interview” about how his military service shaped his life and political views.`\
-https://www.nytimes.com/video/podcasts/100000010910966/graham-platner-susan-collins-voted-to-send-me-to-iraq.html
-
-**Felicity Lott, Elegant Soprano in Opera and Song, Dies at 79**\
-`Tall and self-possessed, with an air of wit and sophistication, she was superb in works by Mozart and Strauss, and was also a wide-ranging recitalist.`\
-https://www.nytimes.com/2026/05/18/arts/music/felicity-lott-dead.html
-
-**After Elon Musk’s Court Loss Comes the Long Hot A.I. Summer**\
-`Even as protests increase, the collapse of Mr. Musk’s suit against OpenAI and Sam Altman will speed up the artificial intelligence juggernaut.`\
-https://www.nytimes.com/2026/05/18/technology/elon-musk-openai-trial.html
 
