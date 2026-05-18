@@ -1,3 +1,11 @@
+**The Ultimate N.B.A. Conference Finals Preview**\
+`A look at the stars, matchups and storylines shaping Knicks-Cavs and Thunder-Spurs.`\
+https://www.nytimes.com/2026/05/18/podcasts/the-ultimate-nba-conference-finals-preview.html
+
+**Edmund Phelps, Who Upended the Way We View Inflation, Dies at 92**\
+`He won a Nobel in 2006 for challenging the conventional wisdom among economists that higher inflation was a necessary price to pay for low unemployment.`\
+https://www.nytimes.com/2026/05/18/business/economy/edmund-phelps-dead.html
+
 **El presidente de la Conmebol habría recibido dinero recuperado de un escándalo de corrupción**\
 `En vísperas del Mundial, el máximo directivo del fútbol sudamericano enfrenta una denuncia de ética que alega que se quedó con fondos recuperados de una investigación de 2015 que sacudió al fútbol mundial.`\
 https://www.nytimes.com/es/2026/05/18/espanol/mundo/fifa-conmebol-denuncia-dinero.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/18/world/europe/shakira-tax-fraud-spain.html
 **U.S. Airstrikes Kill ISIS Fighters in Nigeria, Officials Say**\
 `U.S. military launched attack in coordination with Nigerian forces days after President Trump said a joint operation had killed Islamic State’s global leader.`\
 https://www.nytimes.com/2026/05/18/world/africa/us-airstrikes-isis-nigeria.html
-
-**Learning Network: Sorting Truth From Misinformation**\
-`In the latest Journalism Essentials newsletter, we share how to navigate a sea of false information.`\
-https://www.nytimes.com/2026/05/18/learning/learning-network-sorting-truth-from-misinformation.html
-
-**Soccer Official Took Millions Reclaimed After FIFA Scandal, Complaint Alleges**\
-`Ahead of the World Cup, the head of South American soccer faces an ethics complaint he received payments recovered from a 2015 investigation that shook global soccer.`\
-https://www.nytimes.com/2026/05/18/world/americas/fifa-south-america-conmebol-dominguez.html
 
