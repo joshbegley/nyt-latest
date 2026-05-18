@@ -1,3 +1,23 @@
+**The Courtroom Showdown Between Elon Musk and Sam Altman**\
+`The tech leaders have brought props to court and traded icy stares as their legal dispute reaches a denouement.`\
+https://www.nytimes.com/2026/05/18/podcasts/the-daily/trial-elon-musk-sam-altman.html
+
+**Connections Companion No. 1,073**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, May 19, 2026.`\
+https://www.nytimes.com/2026/05/18/crosswords/connections-companion-1073.html
+
+**Trump’s Approval Rating Hits New Low, and Ebola Outbreak Declared a Global Health Emergency**\
+`Plus, inside the closed-door talks over Greenland.`\
+https://www.nytimes.com/2026/05/18/podcasts/the-headlines/trumps-approval-rating-ebola-outbreak.html
+
+**Strands Sidekick No. 807**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, May 19, 2026.`\
+https://www.nytimes.com/2026/05/18/crosswords/strands-sidekick-807.html
+
+**Wordle Review No. 1,795**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, May 19, 2026.`\
+https://www.nytimes.com/2026/05/18/crosswords/wordle-review-1795.html
+
 **A Search for Ways Around Blocked Strait Leads to Syria**\
 `The latest war in the Middle East has created new economic opportunities for Syria thanks to its geography.`\
 https://www.nytimes.com/2026/05/18/world/middleeast/a-search-for-ways-around-blocked-strait-leads-to-syria.html

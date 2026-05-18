@@ -1,3 +1,23 @@
+**The Courtroom Showdown Between Elon Musk and Sam Altman**\
+`The tech leaders have brought props to court and traded icy stares as their legal dispute reaches a denouement.`\
+https://www.nytimes.com/2026/05/18/podcasts/the-daily/trial-elon-musk-sam-altman.html
+
+**Connections Companion No. 1,073**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, May 19, 2026.`\
+https://www.nytimes.com/2026/05/18/crosswords/connections-companion-1073.html
+
+**Trump’s Approval Rating Hits New Low, and Ebola Outbreak Declared a Global Health Emergency**\
+`Plus, inside the closed-door talks over Greenland.`\
+https://www.nytimes.com/2026/05/18/podcasts/the-headlines/trumps-approval-rating-ebola-outbreak.html
+
+**Strands Sidekick No. 807**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, May 19, 2026.`\
+https://www.nytimes.com/2026/05/18/crosswords/strands-sidekick-807.html
+
+**Wordle Review No. 1,795**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, May 19, 2026.`\
+https://www.nytimes.com/2026/05/18/crosswords/wordle-review-1795.html
+
 **A Search for Ways Around Blocked Strait Leads to Syria**\
 `The latest war in the Middle East has created new economic opportunities for Syria thanks to its geography.`\
 https://www.nytimes.com/2026/05/18/world/middleeast/a-search-for-ways-around-blocked-strait-leads-to-syria.html
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/05/18/books/review/jesmyn-ward-witness-and-respair.
 **How Redistricting Is Making the Midterms Less Competitive**\
 `Across the states that have had their maps redrawn, partisan gerrymandering is eroding the number of competitive districts where elections are actually won and lost.`\
 https://www.nytimes.com/interactive/2026/05/18/us/politics/midterms-redistricting-maps-competitive.html
-
-**In Kentucky, Fidelity to Trump Is Once Again on the Ballot**\
-`Representative Thomas Massie, the Republican who wears his rifts with President Trump as badges of honor, is battling Trump-backed challenger Ed Gallrein to keep his seat.`\
-https://www.nytimes.com/2026/05/18/us/politics/thomas-massie-kentucky-trump-election.html
-
-**America Needs to Build More Housing**\
-`Basic economic principles point to the solution for the housing affordability crisis.`\
-https://www.nytimes.com/interactive/2026/05/18/opinion/affordable-housing-america.html
-
-**MAGA Women Are Leading a #Me2.0 in Washington**\
-`These G.O.P. crusaders might be the perfect people to fight sexual misconduct on Capitol Hill.`\
-https://www.nytimes.com/2026/05/18/opinion/maga-women-congress-metoo.html
-
-**Trump Doesn’t Know What Power Is**\
-`His administration has done more than misjudge the wherewithal of its adversary.`\
-https://www.nytimes.com/2026/05/18/opinion/trump-xi-iran-war.html
-
-**My Boss Goes on Benders. What Are My Options?**\
-`Plus, a bona fide “kids say the darnedest things” moment at a company party.`\
-https://www.nytimes.com/2026/05/18/business/boss-alcoholic.html
 
