@@ -1,3 +1,7 @@
+**Severe Weather Threatens Tens of Millions in Midwest**\
+`After days of heavy winds, hail and tornadoes, more storms are expected across the Midwest on Monday.`\
+https://www.nytimes.com/video/weather/100000010910565/midwest-storms-tornado-hail.html
+
 **Judge Grants Luigi Mangione’s Request to Supress Some Evidence**\
 `A New York State judge ruled prosecutors cannot use some of the evidence found inside Luigi Mangione’s backpack when he was arrested. Mr. Mangione is accused of killing UnitedHealthcare’s chief executive, Brian Thompson, outside a Manhattan hotel in 2024.`\
 https://www.nytimes.com/video/nyregion/100000010910127/luigi-mangione-evidence-suppressed-backpack.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/2026/05/18/climate/epa-forever-chemicals-pfas-drinking-w
 `An American passenger from the hantavirus-infected cruise ship had wanted to depart an Omaha quarantine facility.`\
 https://www.nytimes.com/2026/05/18/us/hantavirus-ship-passenger-quarantine-order.html
 
-**Just Tuning In? Here’s What to Know.**\
+**Just Tuning In to Musk’s Blockbuster Trial Against OpenAI? Here’s What to Know.**\
 `A jury in Oakland, Calif., reached a decision after a three-week long trial seen as pivotal for the future of OpenAI and the artificial intelligence race.`\
 https://www.nytimes.com/2026/05/18/technology/openai-trial-elon-musk-sam-altman.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/live/2026/05/18/technology/openai-trial-verdict-altman-m
 **You May Now Call Her Mommy**\
 `Alex Cooper, the host of the popular podcast “Call Her Daddy,” announced in an Instagram post that she was expecting her first child. The news shook the internet.`\
 https://www.nytimes.com/2026/05/18/style/alex-cooper-pregnant-call-her-daddy.html
-
-**Read the judge’s decision on evidence in the Luigi Mangione state murder trial.**\
-`A state judge in Manhattan said prosecutors can use a gun found in Luugi Mangione’s backpack as evidence during his murder trial.`\
-https://www.nytimes.com/interactive/2026/05/18/nyregion/mangione-gun-decision.html
 
