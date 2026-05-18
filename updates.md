@@ -1,3 +1,11 @@
+**She Was Atlanta’s Mayor in the Pandemic. Can She Win the Governor’s Race?**\
+`Some Democrats fear that Keisha Lance Bottoms, the front-runner in the primary, has vulnerabilities in what could otherwise be a good year for the party in Georgia.`\
+https://www.nytimes.com/2026/05/18/us/keisha-lance-bottoms-georgia-governor-primary.html
+
+**Federal Prosecutors Move to Drop Bribery Case Against Indian Magnate**\
+`Gautam Adani had been accused of lying to American investors about payoffs in India. The end of the case came as President Trump has signaled a transactional approach to justice.`\
+https://www.nytimes.com/2026/05/18/nyregion/gautam-adani-indictment-trump.html
+
 **The L.I.R.R. Strike Affects Many Commuters in Queens, Too**\
 `The rail service has risen in popularity among Queens residents, particularly those in areas where subway service is scarce.`\
 https://www.nytimes.com/2026/05/18/nyregion/lirr-strike-commuters-queens.html

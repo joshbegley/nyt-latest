@@ -1,3 +1,11 @@
+**She Was Atlanta’s Mayor in the Pandemic. Can She Win the Governor’s Race?**\
+`Some Democrats fear that Keisha Lance Bottoms, the front-runner in the primary, has vulnerabilities in what could otherwise be a good year for the party in Georgia.`\
+https://www.nytimes.com/2026/05/18/us/keisha-lance-bottoms-georgia-governor-primary.html
+
+**Federal Prosecutors Move to Drop Bribery Case Against Indian Magnate**\
+`Gautam Adani had been accused of lying to American investors about payoffs in India. The end of the case came as President Trump has signaled a transactional approach to justice.`\
+https://www.nytimes.com/2026/05/18/nyregion/gautam-adani-indictment-trump.html
+
 **Palestinian Accounts of Rape by Israelis**\
 `Readers respond to a column by Nicholas Kristof. Also: Imposing religion.`\
 https://www.nytimes.com/2026/05/18/opinion/palestinians-israelis-rape.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/18/arts/music/marisa-anderson-unamerican-folk-mu
 **Can Creatine Really Help With Menopause?**\
 `Influencers are promoting the supplement, long popular among athletes, for help with midlife muscle loss and memory.`\
 https://www.nytimes.com/2026/05/18/well/live/creatine-menopause-symptoms.html
-
-**Would-be L.I.R.R. riders face lengthy journeys: ‘This is going to be a long commute.’**\
-``\
-https://www.nytimes.com/live/2026/05/18/nyregion/lirr-strike-update-long-island/would-be-lirr-riders-face-lengthy-journeys-this-is-going-to-be-a-long-commute
-
-**Gun Found in Mangione’s Backpack Can be Used as Evidence, Judge Says**\
-`The ruling was a partial victory for prosecutors in the murder trial of Luigi Mangione. A state judge ruled out some other evidence.`\
-https://www.nytimes.com/2026/05/18/nyregion/luigi-mangione-backpack-murder.html
 
