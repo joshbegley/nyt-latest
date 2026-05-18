@@ -1,3 +1,11 @@
+**Retired Belgian Diplomat Dies Before Trial in 1961 Killing of Congolese Leader**\
+`Étienne Davignon had been set to stand trial in connection with the murder of Patrice Lumumba, the first prime minister of what is now the Democratic Republic of Congo.`\
+https://www.nytimes.com/2026/05/18/world/africa/etienne-davignon-patrice-lumumba-belgium-congo.html
+
+**Five Takeaways From the Blockbuster Trial Pitting Elon Musk Against OpenAI**\
+`It took a jury less than two hours to decide that Mr. Musk had waited too long to sue. But the testimony over three weeks was still illuminating.`\
+https://www.nytimes.com/2026/05/18/technology/elon-musk-openai-trial-takeaways.html
+
 **​Leaders With Very Different Political Leanings Became Fast Friends**\
 `Japan’s prime minister, Sanae Takaichi, and South Korea’s president, Lee Jae Myung, have surprised many observers by moving past their nations’ historical grievances.`\
 https://www.nytimes.com/2026/05/18/world/asia/lee-takaichi-meeting-korea-japan.html
@@ -31,7 +39,7 @@ https://www.nytimes.com/interactive/2026/05/18/us/ice-agent-minnesota-criminal-c
 https://www.nytimes.com/2026/05/18/opinion/redistricting-democrats-gerrymandering.html
 
 **Here’s the latest.**\
-`The police said that the threat had been “neutralized,”  but did not confirm the report that the attack had been fatal.`\
+`The police said that the threat had been “neutralized,” but did not confirm the report that the attack had been fatal.`\
 https://www.nytimes.com/live/2026/05/18/us/san-diego-islamic-center-shooting/san-diego-mosque-shooting
 
 **Fast-Moving Southern California Fire Forces Immediate Evacuations**\
@@ -69,12 +77,4 @@ https://www.nytimes.com/article/cannes-red-carpet-photos.html
 **Los Angeles’s Response to Altadena Fire Hampered by Chaos, Report Finds**\
 `A county-commissioned examination of the disaster concluded that its efforts were muddled and confused, but said that it had not discriminated against Black residents.`\
 https://www.nytimes.com/2026/05/18/us/eaton-fire-los-angeles.html
-
-**Trump’s ‘Anti-Weaponization’ Fund, Explained**\
-`The Trump administration is creating a $1.8 billion fund to compensate people it says were wronged by the federal government, a group that could be largely made up of the president’s allies.`\
-https://www.nytimes.com/2026/05/18/us/politics/trump-anti-weaponization-fund.html
-
-**New York Times Sues Pentagon for a Second Time**\
-`The Times is challenging a new requirement that reporters covering the military complex have an official escort, part of a broader legal challenge to the Pentagon’s press restrictions.`\
-https://www.nytimes.com/2026/05/18/business/media/new-york-times-pentagon-lawsuit.html
 

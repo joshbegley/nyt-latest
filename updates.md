@@ -1,3 +1,15 @@
+**Retired Belgian Diplomat Dies Before Trial in 1961 Killing of Congolese Leader**\
+`Étienne Davignon had been set to stand trial in connection with the murder of Patrice Lumumba, the first prime minister of what is now the Democratic Republic of Congo.`\
+https://www.nytimes.com/2026/05/18/world/africa/etienne-davignon-patrice-lumumba-belgium-congo.html
+
+**Five Takeaways From the Blockbuster Trial Pitting Elon Musk Against OpenAI**\
+`It took a jury less than two hours to decide that Mr. Musk had waited too long to sue. But the testimony over three weeks was still illuminating.`\
+https://www.nytimes.com/2026/05/18/technology/elon-musk-openai-trial-takeaways.html
+
+**Here’s the latest.**\
+`The police said that the threat had been “neutralized,” but did not confirm the report that the attack had been fatal.`\
+https://www.nytimes.com/live/2026/05/18/us/san-diego-islamic-center-shooting/san-diego-mosque-shooting
+
 **​Leaders With Very Different Political Leanings Became Fast Friends**\
 `Japan’s prime minister, Sanae Takaichi, and South Korea’s president, Lee Jae Myung, have surprised many observers by moving past their nations’ historical grievances.`\
 https://www.nytimes.com/2026/05/18/world/asia/lee-takaichi-meeting-korea-japan.html
