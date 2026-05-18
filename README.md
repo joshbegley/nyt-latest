@@ -1,3 +1,7 @@
+**Eager for Arms Deal, Taiwan Stresses Need for U.S. Support**\
+`After President Trump hinted that weapons sales to Taiwan could figure in negotiations with China, officials emphasized their island’s strategic importance.`\
+https://www.nytimes.com/2026/05/17/us/politics/taiwan-china-us-arms-deal.html
+
 **Beverley Martyn, Whose Folk Music Breakthrough Took 50 Years, Dies at 79**\
 `As a rising star of the 1960s, she dated Paul Simon, brooded with Nick Drake and drew Barbra Streisand’s envy. Then she sank into an abusive marriage.`\
 https://www.nytimes.com/2026/05/17/obituaries/beverley-martyn-dead.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/17/dining/chicken-paprikash-generously-buttered-
 **Runoff in Peru Offers Two Starkly Differing Visions for the Nation**\
 `The presidential election pits Keiko Fujimori, a conservative, against Roberto Sánchez, a leftist, after a crisis marked by delays and protests.`\
 https://www.nytimes.com/2026/05/17/world/americas/peru-runoff-election.html
-
-**Organic Ice Cream Is Recalled Over Possible Contamination With Metal**\
-`Straus Family Creamery asked customers to throw out some tubs sold in May across 17 states. No injuries have been reported, the company said.`\
-https://www.nytimes.com/2026/05/17/health/ice-cream-recall-straus-family-creamery.html
 
