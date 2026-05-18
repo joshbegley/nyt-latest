@@ -1,3 +1,15 @@
+**Abortion Pill Lawsuit Leaves Trump Silent, and in a Political Bind**\
+`Louisiana wants the Food and Drug Administration to curtail access to the medication. Doing so could cost Republicans at the polls.`\
+https://www.nytimes.com/2026/05/18/us/politics/abortion-pill-trump-politics.html
+
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/05/18/technology/openai-trial-verdict-altman-musk/heres-the-latest
+
+**You May Now Call Her Mommy**\
+`Alex Cooper, the host of the popular podcast “Call Her Daddy,” announced in an Instagram post that she was expecting her first child. The news shook the internet.`\
+https://www.nytimes.com/2026/05/18/style/alex-cooper-pregnant-call-her-daddy.html
+
 **Read the judge’s decision on evidence in the Luigi Mangione state murder trial.**\
 `A state judge in Manhattan said prosecutors can use a gun found in Luugi Mangione’s backpack as evidence during his murder trial.`\
 https://www.nytimes.com/interactive/2026/05/18/nyregion/mangione-gun-decision.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/18/well/federal-cuts-artificial-baby-heart-corne
 ****\
 ``\
 https://www.nytimes.com/video/embedded/us/100000010910131/18vidlirr-91625.html
-
-****\
-``\
-https://www.nytimes.com/video/embedded/us/100000010910067/18vidlirr-82214.html
-
-**Children’s Mental Health Visits Have Shot Up, Research Shows**\
-`Doctor’s visits for children’s anxiety rose by more than 250 percent over 10 years, according to a study of nearly two million children.`\
-https://www.nytimes.com/2026/05/18/science/anxiety-mental-health-children-increases-study.html
-
-**Page to Screen: Do You Know the Books That Inspired These Adaptations?**\
-`Try this short quiz to see how many titles you (or your children) can recall.`\
-https://www.nytimes.com/interactive/2026/05/18/books/review/novel-adaptations-quiz.html
 

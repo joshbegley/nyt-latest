@@ -1,3 +1,15 @@
+**Abortion Pill Lawsuit Leaves Trump Silent, and in a Political Bind**\
+`Louisiana wants the Food and Drug Administration to curtail access to the medication. Doing so could cost Republicans at the polls.`\
+https://www.nytimes.com/2026/05/18/us/politics/abortion-pill-trump-politics.html
+
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/05/18/technology/openai-trial-verdict-altman-musk/heres-the-latest
+
+**You May Now Call Her Mommy**\
+`Alex Cooper, the host of the popular podcast “Call Her Daddy,” announced in an Instagram post that she was expecting her first child. The news shook the internet.`\
+https://www.nytimes.com/2026/05/18/style/alex-cooper-pregnant-call-her-daddy.html
+
 **Read the judge’s decision on evidence in the Luigi Mangione state murder trial.**\
 `A state judge in Manhattan said prosecutors can use a gun found in Luugi Mangione’s backpack as evidence during his murder trial.`\
 https://www.nytimes.com/interactive/2026/05/18/nyregion/mangione-gun-decision.html
