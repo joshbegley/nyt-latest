@@ -1,3 +1,11 @@
+**EE. UU. y China comparten un sentimiento ante la IA**\
+`El futuro tecnológico está tomando forma a una velocidad vertiginosa, pero lo que promete no es para todos.`\
+https://www.nytimes.com/es/2026/05/18/espanol/opinion/china-estados-unidos-ia-futuro.html
+
+**Word of the Day: efficacy**\
+`This word has appeared in 175 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/05/18/learning/word-of-the-day-efficacy.html
+
 **Americans Among Those Affected by Ebola Outbreak, C.D.C. Says**\
 `A small number of U.S. citizens have been directly affected by the outbreak in the Democratic Republic of Congo and Uganda, the C.D.C. said on Sunday.`\
 https://www.nytimes.com/2026/05/18/us/ebola-outbreak-congo-uganda-americans-cdc.html
