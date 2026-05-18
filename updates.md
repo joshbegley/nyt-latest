@@ -1,3 +1,11 @@
+**The L.I.R.R. Strike Affects Many Commuters in Queens, Too**\
+`The rail service has risen in popularity among Queens residents, particularly those in areas where subway service is scarce.`\
+https://www.nytimes.com/2026/05/18/nyregion/lirr-strike-commuters-queens.html
+
+**Gun Found in Mangione’s Backpack Can be Used as Evidence, Judge Says**\
+`The ruling was a partial victory for prosecutors in the murder trial of Luigi Mangione. A state judge ruled out some other evidence.`\
+https://www.nytimes.com/2026/05/18/nyregion/luigi-mangione-backpack-murder.html
+
 **Palestinian Accounts of Rape by Israelis**\
 `Readers respond to a column by Nicholas Kristof. Also: Imposing religion.`\
 https://www.nytimes.com/2026/05/18/opinion/palestinians-israelis-rape.html
