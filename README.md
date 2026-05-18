@@ -1,3 +1,7 @@
+**Scientists Tweaked the Global Warming Outlook. So Trump Weighed In.**\
+`Renewable energy has helped make the worst-case scenario a bit less bad. The president said, falsely, it shows that climate scientists were wrong.`\
+https://www.nytimes.com/2026/05/18/climate/trump-global-warming-truth-social.html
+
 **Read the document**\
 `An ICE agent faces state charges in connection to the shooting of a Venezuelan immigrant in Minneapolis. The charges include second-degree assault and falsely reporting a crime.`\
 https://www.nytimes.com/interactive/2026/05/18/us/ice-agent-minnesota-criminal-complaint.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/05/18/espanol/mundo/guerra-iran-economia-catar.h
 **ICE Agent Charged in Shooting of a Venezuelan Immigrant in Minnesota**\
 `The agent is the second federal officer to face felony charges in Minnesota stemming from Operation Metro Surge, the Trump administration’s immigration crackdown.`\
 https://www.nytimes.com/2026/05/18/us/ice-agent-charges-venezuelan-immigrant.html
-
-**El gobierno de Trump impulsa el relato de la fundación cristiana de EE. UU. en un mitin**\
-`El objetivo del acto de oración, que contó con miembros del gabinete, era consolidar la idea de que la fundación de EE. UU. fue un proyecto intencionalmente cristiano.`\
-https://www.nytimes.com/es/2026/05/18/espanol/estados-unidos/mitin-cristiano-trump-washington.html
 

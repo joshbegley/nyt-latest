@@ -1,3 +1,7 @@
+**Guard Killed in Shooting at San Diego Islamic Center, Mosque Leader Says**\
+`The police said that the threat had been “neutralized,”  but did not confirm the report that the attack had been fatal.`\
+https://www.nytimes.com/2026/05/18/us/san-diego-mosque-shooting.html
+
 **Read the document**\
 `An ICE agent faces state charges in connection to the shooting of a Venezuelan immigrant in Minneapolis. The charges include second-degree assault and falsely reporting a crime.`\
 https://www.nytimes.com/interactive/2026/05/18/us/ice-agent-minnesota-criminal-complaint.html
