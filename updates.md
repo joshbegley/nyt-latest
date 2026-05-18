@@ -1,3 +1,11 @@
+**Read the document**\
+`An ICE agent faces state charges in connection to the shooting of a Venezuelan immigrant in Minneapolis. The charges include second-degree assault and falsely reporting a crime.`\
+https://www.nytimes.com/interactive/2026/05/18/us/ice-agent-minnesota-criminal-complaint.html
+
+**Passenger Ordered to Stay in Hantavirus Quarantine Despite Desire to Leave**\
+`An American from the hantavirus-infected cruise ship had wanted to depart an Omaha quarantine facility.`\
+https://www.nytimes.com/2026/05/18/us/hantavirus-ship-passenger-quarantine-order.html
+
 **This Redistricting Chaos Must End**\
 `First on Democrats’ to-do list must be banning gerrymandering, restoring voting rights protections and reforming the Supreme Court.`\
 https://www.nytimes.com/2026/05/18/opinion/redistricting-democrats-gerrymandering.html

@@ -7,7 +7,7 @@ https://www.nytimes.com/interactive/2026/05/18/us/ice-agent-minnesota-criminal-c
 https://www.nytimes.com/2026/05/18/opinion/redistricting-democrats-gerrymandering.html
 
 **Guard Killed in Shooting at San Diego Islamic Center, Mosque Leader Says**\
-`The police said the situation at the county’s largest mosque remained “active,” but did not confirm the report that at least one person had been killed.`\
+`The police said that the threat had been “neutralized,”  but did not confirm the report that the attack had been fatal.`\
 https://www.nytimes.com/2026/05/18/us/san-diego-mosque-shooting.html
 
 **Fast-Moving Southern California Fire Forces Immediate Evacuations**\
