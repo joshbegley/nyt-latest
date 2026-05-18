@@ -1,3 +1,7 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/18/crosswords/spelling-bee-forum.html
+
 **EE. UU. y China comparten un sentimiento ante la IA**\
 `El futuro tecnológico está tomando forma a una velocidad vertiginosa, pero lo que promete no es para todos.`\
 https://www.nytimes.com/es/2026/05/18/espanol/opinion/china-estados-unidos-ia-futuro.html

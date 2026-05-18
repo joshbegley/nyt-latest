@@ -1,3 +1,7 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/18/crosswords/spelling-bee-forum.html
+
 **EE. UU. y China comparten un sentimiento ante la IA**\
 `El futuro tecnológico está tomando forma a una velocidad vertiginosa, pero lo que promete no es para todos.`\
 https://www.nytimes.com/es/2026/05/18/espanol/opinion/china-estados-unidos-ia-futuro.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/17/crosswords/daily-puzzle-2026-05-18.html
 **Peter G. Neumann, Who Warned of Computer Security Risks, Dies at 93**\
 `For decades, he criticized the industry’s lax attitudes toward both computer security and individual digital privacy. And he developed solutions.`\
 https://www.nytimes.com/2026/05/17/obituaries/peter-g-neumann-dead.html
-
-**The Quest for an Elusive Clean Fuel Is Moving Underground**\
-`The dream of clean hydrogen has tantalized energy experts for years, but producing it has been tough. Many start-ups think the answer could lie beneath our feet.`\
-https://www.nytimes.com/2026/05/17/climate/geologic-hydrogen-clean-energy-underground.html
 
