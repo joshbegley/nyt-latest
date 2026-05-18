@@ -1,3 +1,7 @@
+**2 Teenagers Arrested After Drive-By Shootings in Austin Injure at Least 4**\
+`The teenage boys were among three suspects taken into custody in connection with at least 12 shootings across the Texas capital. There was no apparent motive, the mayor said.`\
+https://www.nytimes.com/2026/05/18/us/austin-texas-shooting-arrest.html
+
 **Los comentarios de Trump sobre la economía revelan su desconexión de la realidad**\
 `El presidente nunca ha pretendido ser un estadounidense de a pie, pero una reciente “verdad incómoda” lo ha expuesto a críticas de que no comprende la tensión económica de su guerra en Irán.`\
 https://www.nytimes.com/es/2026/05/18/espanol/estados-unidos/trump-millonario-dinero.html
