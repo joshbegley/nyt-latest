@@ -1,3 +1,7 @@
+**The Fighting Never Ends**\
+`We look at what happens when countries say they’re going to stop shooting at each other.`\
+https://www.nytimes.com/2026/05/18/briefing/the-fighting-never-stops.html
+
 **Here’s why the negotiations fell apart.**\
 ``\
 https://www.nytimes.com/live/2026/05/18/nyregion/lirr-strike-update-long-island/heres-why-the-negotiations-fell-apart
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/05/18/nyregion/nyc-budgeting-affordabil
 **Willing to Take Risks in a Beach House on Lake Michigan**\
 `A couple looking for a second home fell for the architecture of one house, but not the interiors. Luckily, they had a “secret weapon.”`\
 https://www.nytimes.com/2026/05/18/realestate/willing-to-take-risks-in-a-beach-house-on-lake-michigan.html
-
-**For Jesmyn Ward, Tough Times Have Led to Some of Her Best Writing**\
-`The two-time National Book Award winner collects essays, profiles and appreciations in a new book, “On Witness and Respair.”`\
-https://www.nytimes.com/2026/05/18/books/review/jesmyn-ward-witness-and-respair.html
 

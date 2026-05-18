@@ -1,3 +1,7 @@
+**The Fighting Never Ends**\
+`We look at what happens when countries say they’re going to stop shooting at each other.`\
+https://www.nytimes.com/2026/05/18/briefing/the-fighting-never-stops.html
+
 **Here’s why the negotiations fell apart.**\
 ``\
 https://www.nytimes.com/live/2026/05/18/nyregion/lirr-strike-update-long-island/heres-why-the-negotiations-fell-apart
