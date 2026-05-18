@@ -10,8 +10,8 @@ https://www.nytimes.com/es/2026/05/18/espanol/mundo/shakira-absuelta-fraude-fisc
 `And other memorable moments, and clothes, from Demna’s first cruise show.`\
 https://www.nytimes.com/2026/05/18/style/gucci-times-square-cruise.html
 
-**She Was Atlanta’s Mayor in the Pandemic. Can She Win the Governor’s Race?**\
-`Some Democrats fear that Keisha Lance Bottoms, the front-runner in the primary, has vulnerabilities in what could otherwise be a good year for the party in Georgia.`\
+**She Was Atlanta’s Mayor in the Pandemic. Now She Wants to Lead the State.**\
+`Keisha Lance Bottoms is the Democrats’ front-runner as the Georgia primary for governor approaches. But her party rivals are trying to ensure she has to face a runoff.`\
 https://www.nytimes.com/2026/05/18/us/keisha-lance-bottoms-georgia-governor-primary.html
 
 **Federal Prosecutors Move to Drop Bribery Case Against Indian Magnate**\
