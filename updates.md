@@ -1,3 +1,7 @@
+**The Villain of This Year’s Commencement Speeches: A.I.**\
+`College students have interrupted graduation ceremonies to voice their fears about artificial intelligence. They’re not the only ones who are worried.`\
+https://www.nytimes.com/2026/05/18/business/dealbook/university-commencement-speech-ai.html
+
 **Two Americans Detained in Japan After Entering Punch the Monkey’s Enclosure**\
 `The men were charged with obstructing operations at a zoo, apparently as a stunt connected to a cryptocurrency. They denied the charges.`\
 https://www.nytimes.com/2026/05/18/world/asia/punch-monkey-japan-zoo-arrest.html
