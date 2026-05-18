@@ -1,3 +1,7 @@
+**El presidente de la Conmebol habría recibido dinero recuperado de un escándalo de corrupción**\
+`En vísperas del Mundial, el máximo directivo del fútbol sudamericano enfrenta una denuncia de ética que alega que se quedó con fondos recuperados de una investigación de 2015 que sacudió al fútbol mundial.`\
+https://www.nytimes.com/es/2026/05/18/espanol/mundo/fifa-conmebol-denuncia-dinero.html
+
 **Today, In Short**\
 `Instagram Instants. “Off Campus.” And the latest on the Long Island Rail Road strike.`\
 https://www.nytimes.com/2026/05/18/briefing/today-in-short.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/18/learning/learning-network-sorting-truth-from-
 **Soccer Official Took Millions Reclaimed After FIFA Scandal, Complaint Alleges**\
 `Ahead of the World Cup, the head of South American soccer faces an ethics complaint he received payments recovered from a 2015 investigation that shook global soccer.`\
 https://www.nytimes.com/2026/05/18/world/americas/fifa-south-america-conmebol-dominguez.html
-
-**Timmy the Whale Found Dead In Denmark**\
-`A humpback whale, nicknamed Timmy, was found dead in Denmark. For more than a month, Timmy had been at the center of a public frenzy and rescue effort.`\
-https://www.nytimes.com/video/world/europe/100000010908982/timmy-whale-found-dead-denmark-germany.html
 

@@ -1,3 +1,11 @@
+**Today, In Short**\
+`Instagram Instants. “Off Campus.” And the latest on the Long Island Rail Road strike.`\
+https://www.nytimes.com/2026/05/18/briefing/today-in-short.html
+
+**Review: Tyshawn Sorey Unveils a Wondrous New Piano Concerto**\
+`The Philadelphia Orchestra paired Sorey’s “For Marilyn Crispell” with Bruckner’s Third Symphony, an unusual bill that flattered both composers.`\
+https://www.nytimes.com/2026/05/18/arts/music/tyshawn-sorey-piano-concerto-philadelphia-orchestra-review.html
+
 **Russia’s New Human Rights Commissioner Accused of Helping Kidnap Ukrainian Children**\
 `Yana Lantratova was instrumental in helping the chairman of her party to illegally adopt an infant girl from Russian-occupied Ukraine, the Ukrainian authorities say.`\
 https://www.nytimes.com/2026/05/18/world/europe/russia-ukraine-children-kidnapping.html

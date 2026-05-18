@@ -1,3 +1,11 @@
+**Today, In Short**\
+`Instagram Instants. “Off Campus.” And the latest on the Long Island Rail Road strike.`\
+https://www.nytimes.com/2026/05/18/briefing/today-in-short.html
+
+**Review: Tyshawn Sorey Unveils a Wondrous New Piano Concerto**\
+`The Philadelphia Orchestra paired Sorey’s “For Marilyn Crispell” with Bruckner’s Third Symphony, an unusual bill that flattered both composers.`\
+https://www.nytimes.com/2026/05/18/arts/music/tyshawn-sorey-piano-concerto-philadelphia-orchestra-review.html
+
 **Russia’s New Human Rights Commissioner Accused of Helping Kidnap Ukrainian Children**\
 `Yana Lantratova was instrumental in helping the chairman of her party to illegally adopt an infant girl from Russian-occupied Ukraine, the Ukrainian authorities say.`\
 https://www.nytimes.com/2026/05/18/world/europe/russia-ukraine-children-kidnapping.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/18/world/americas/fifa-south-america-conmebol-do
 **Timmy the Whale Found Dead In Denmark**\
 `A humpback whale, nicknamed Timmy, was found dead in Denmark. For more than a month, Timmy had been at the center of a public frenzy and rescue effort.`\
 https://www.nytimes.com/video/world/europe/100000010908982/timmy-whale-found-dead-denmark-germany.html
-
-**Trump Withdraws His $10 Billion Suit Against the I.R.S.**\
-`The dismissal appears to be part of the Trump administration’s effort to effectively settle the case, which stemmed from the leak of his tax returns in 2019.`\
-https://www.nytimes.com/2026/05/18/us/trump-irs-lawsuit.html
-
-**Bobby Darin Musical Reaches a Rare Broadway Milestone: Profit**\
-`“Just in Time,” which for a year starred Jonathan Groff, is the first new musical from last season to make money for investors.`\
-https://www.nytimes.com/2026/05/18/theater/just-in-time-broadway-profit.html
 
