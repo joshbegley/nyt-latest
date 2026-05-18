@@ -1,6 +1,10 @@
+**Bobby Darin Musical Reaches a Rare Broadway Milestone: Profit**\
+`“Just in Time,” which for a year starred Jonathan Groff, is the first new musical from last season to make money for investors.`\
+https://www.nytimes.com/2026/05/18/theater/just-in-time-broadway-profit.html
+
 **Hegseth to Campaign for a Republican House Candidate**\
 `Defense Department officials typically stay away from partisan politics to maintain the military’s apolitical image.`\
-https://www.nytimes.com/live/2026/05/18/us/trump-news/hegseth-gallrein-campaign
+https://www.nytimes.com/2026/05/18/us/politics/hegseth-gallrein-campaign.html
 
 **No Corrections: May 18, 2026**\
 `No corrections appeared in print on Monday, May 18, 2026.`\
@@ -42,9 +46,9 @@ https://www.nytimes.com/live/2026/05/18/nyregion/lirr-strike-update-long-island/
 `We look at what happens when countries say they’re going to stop shooting at each other.`\
 https://www.nytimes.com/2026/05/18/briefing/the-fighting-never-stops.html
 
-**This is why the negotiations fell apart.**\
-``\
-https://www.nytimes.com/live/2026/05/18/nyregion/lirr-strike-update-long-island/heres-why-the-negotiations-fell-apart
+**L.I.R.R. Negotiations Collapse Over Wages**\
+`Members of the five negotiating unions averaged over $136,000 last year, according to M.T.A. figures. They wanted a 5 percent raise for this year, a demand that has exceeded what the agency has offered to other unions.`\
+https://www.nytimes.com/2026/05/18/nyregion/lirr-strike-mta-why-unions.html
 
 **The Courtroom Showdown Between Elon Musk and Sam Altman**\
 `The tech leaders have brought props to court and traded icy stares as their legal dispute reaches a denouement.`\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/18/world/middleeast/strait-hormuz-blockade-iran-
 **Louvre Announces Architects for Expansion That Will Include New Mona Lisa Space**\
 `A team of French and German architects has been selected for the project, which is expected to increase the Paris museum’s capacity by three million visitors a year.`\
 https://www.nytimes.com/2026/05/18/arts/louvre-expansion-architect.html
-
-**Megan Fairchild’s Long, Joyful Goodbye to Ballet**\
-`After “Coppélia,” the New York City Ballet star will leave her dancing days behind. “I have an immense amount of peace about this whole thing,” she said.`\
-https://www.nytimes.com/2026/05/18/arts/dance/megan-fairchild-city-ballet-retiring.html
 
