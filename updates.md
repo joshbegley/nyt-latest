@@ -1,3 +1,15 @@
+**Trump Withdraws His $10 Billion Suit Against the I.R.S.**\
+`The dismissal appears to be part of the Trump administration’s effort to effectively settle the case, which stemmed from the leak of his tax returns in 2019.`\
+https://www.nytimes.com/2026/05/18/us/trump-irs-lawsuit.html
+
+**Trump’s Taiwan Gambit is Already a Gift to China**\
+`President Trump’s open willingness to hold up a $14 billion Taiwan arms package is a win for Beijing. Now China could be weighing how to keep the weapons on ice for as long as it can.`\
+https://www.nytimes.com/2026/05/18/world/asia/trump-taiwan-china-weapons.html
+
+**Here’s What the L.I.R.R. Workers Want, and What They Make**\
+`Members of the five unions that are on strike made more than $136,000 last year on average, according to M.T.A. figures. But they have not received a raise since 2022.`\
+https://www.nytimes.com/2026/05/18/nyregion/lirr-strike-mta-why-unions.html
+
 **Bobby Darin Musical Reaches a Rare Broadway Milestone: Profit**\
 `“Just in Time,” which for a year starred Jonathan Groff, is the first new musical from last season to make money for investors.`\
 https://www.nytimes.com/2026/05/18/theater/just-in-time-broadway-profit.html
