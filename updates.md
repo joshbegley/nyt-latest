@@ -1,3 +1,11 @@
+**Pollock and Brancusi Join the $100 Million Club at Auction**\
+`A “drip” painting by the Abstract Expressionist sold for $181.2 million with fees, while a bronze head by the Romanian sculptor, from the S.I. Newhouse collection, brought in  $107.6 million at Christie’s.`\
+https://www.nytimes.com/2026/05/18/arts/design/pollock-brancusi-christies-auction.html
+
+**Frida Kahlo: un diccionario visual**\
+`Corsés de yeso, vestidos de tehuana, trajes masculinos y monos araña: estos son los elementos que hicieron de Frida Kahlo un ícono irrepetible.`\
+https://www.nytimes.com/es/2026/05/18/espanol/frida-kahlo-estilo.html
+
 **What to Know About San Diego’s Islamic Center**\
 `A visitor said that the mosque is highly diverse. Its services are in English, because attendees come from all over the world.`\
 https://www.nytimes.com/2026/05/18/us/islamic-center-san-diego-mosque.html
