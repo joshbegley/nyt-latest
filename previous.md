@@ -1,3 +1,19 @@
+**Ebola Raged for Weeks in Congo Before Anyone Raised the Alarm**\
+`Early surveillance and testing failed to identify Bundibugyo, a rare species of Ebola responsible for the current outbreak.`\
+https://www.nytimes.com/2026/05/18/world/africa/congo-ebola-testing.html
+
+**Can Anyone Beat Jon Ossoff? Georgia Republicans Grasp for a Contender.**\
+`On the eve of their primary, Republicans have grown nervous about their prospects in November against Mr. Ossoff, regarded as the most vulnerable Democratic senator in the fall midterms.`\
+https://www.nytimes.com/2026/05/18/us/politics/georgia-senate-election-ossoff-republicans.html
+
+**La guerra de Irán está incapacitando a una de las naciones más ricas del mundo**\
+`Los ataques iraníes y la interrupción del tránsito marítimo han afectado las vitales exportaciones de gas de Catar, y ha estancado los ejes económicos destinados a apuntalar el crecimiento del país.`\
+https://www.nytimes.com/es/2026/05/18/espanol/mundo/guerra-iran-economia-catar.html
+
+**ICE Agent Charged in Shooting of a Venezuelan Immigrant in Minnesota**\
+`The agent is the second federal officer to face felony charges in Minnesota stemming from Operation Metro Surge, the Trump administration’s immigration crackdown.`\
+https://www.nytimes.com/2026/05/18/us/ice-agent-charges-venezuelan-immigrant.html
+
 **El gobierno de Trump impulsa el relato de la fundación cristiana de EE. UU. en un mitin**\
 `El objetivo del acto de oración, que contó con miembros del gabinete, era consolidar la idea de que la fundación de EE. UU. fue un proyecto intencionalmente cristiano.`\
 https://www.nytimes.com/es/2026/05/18/espanol/estados-unidos/mitin-cristiano-trump-washington.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/es/2026/05/18/espanol/mundo/fifa-conmebol-denuncia-diner
 **Today, In Short**\
 `Instagram Instants. “Off Campus.” And the latest on the Long Island Rail Road strike.`\
 https://www.nytimes.com/2026/05/18/briefing/today-in-short.html
-
-**Review: Tyshawn Sorey Unveils a Wondrous New Piano Concerto**\
-`The Philadelphia Orchestra paired Sorey’s “For Marilyn Crispell” with Bruckner’s Third Symphony, an unusual bill that flattered both composers.`\
-https://www.nytimes.com/2026/05/18/arts/music/tyshawn-sorey-piano-concerto-philadelphia-orchestra-review.html
-
-**Russia’s New Human Rights Commissioner Accused of Helping Kidnap Ukrainian Children**\
-`Yana Lantratova was instrumental in helping the chairman of her party to illegally adopt an infant girl from Russian-occupied Ukraine, the Ukrainian authorities say.`\
-https://www.nytimes.com/2026/05/18/world/europe/russia-ukraine-children-kidnapping.html
-
-**Palabra del día: ‘efficacy’**\
-`Esta palabra ha aparecido en 175 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
-https://www.nytimes.com/es/2026/05/18/espanol/que-significa-efficacy.html
-
-**Lo que hay que saber sobre el más reciente brote de ébola**\
-`La Organización Mundial de la Salud declaró una emergencia mundial tras el fallecimiento de unas 80 personas a causa del virus en la República Democrática del Congo.`\
-https://www.nytimes.com/es/2026/05/18/espanol/mundo/brote-ebola-africa.html
 
