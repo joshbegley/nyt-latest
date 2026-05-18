@@ -55,7 +55,7 @@ https://www.nytimes.com/2026/05/18/business/media/new-york-times-pentagon-lawsui
 https://www.nytimes.com/live/2026/05/18/technology/openai-trial-verdict-altman-musk/heres-what-was-on-the-jurys-list-for-a-decision
 
 **Ebola Raged for Weeks in Congo Before Anyone Raised the Alarm**\
-`Early surveillance and testing failed to identify Bundibugyo, a rare species of Ebola responsible for the current outbreak.`\
+`Early surveillance and testing failed to identify the rare species of Ebola responsible for the current outbreak. An American doctor is among the confirmed cases.`\
 https://www.nytimes.com/2026/05/18/world/africa/congo-ebola-testing.html
 
 **Can Anyone Beat Jon Ossoff? Georgia Republicans Grasp for a Contender.**\
