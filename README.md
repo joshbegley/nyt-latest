@@ -1,3 +1,7 @@
+**Pollock and Brancusi Join the $100 Million Club at Auction**\
+`A “drip” painting by the Abstract Expressionist sold for $181.2 million with fees, while a bronze head by the Romanian sculptor, from the S.I. Newhouse collection, brought in  $107.6 million at Christie’s.`\
+https://www.nytimes.com/2026/05/18/arts/design/pollock-brancusi-christies-auction.html
+
 **Frida Kahlo: un diccionario visual**\
 `Corsés de yeso, vestidos de tehuana, trajes masculinos y monos araña: estos son los elementos que hicieron de Frida Kahlo un ícono irrepetible.`\
 https://www.nytimes.com/es/2026/05/18/espanol/frida-kahlo-estilo.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/18/technology/elon-musk-openai-trial.html
 **Mark Fuhrman, Flawed Witness in O.J. Simpson Trial, Dies at 74**\
 `A Los Angeles police detective, he was discredited during Mr. Simpson’s 1995 murder trial by defense lawyers who pointed to his past use of racist language.`\
 https://www.nytimes.com/2026/05/18/us/mark-fuhrman-dead.html
-
-**Before Mass Layoffs, Meta Reassigns 7,000 Workers to Focus on A.I.**\
-`The company announced the changes two days before it plans to lay off 10 percent of its work force, or about 8,000 employees.`\
-https://www.nytimes.com/2026/05/18/technology/meta-reassigns-7000-employees-ai.html
 
