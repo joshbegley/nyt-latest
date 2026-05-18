@@ -1,3 +1,7 @@
+**El gobierno de Trump impulsa el relato de la fundación cristiana de EE. UU. en un mitin**\
+`El objetivo del acto de oración, que contó con miembros del gabinete, era consolidar la idea de que la fundación de EE. UU. fue un proyecto intencionalmente cristiano.`\
+https://www.nytimes.com/es/2026/05/18/espanol/estados-unidos/mitin-cristiano-trump-washington.html
+
 **Northwestern Names a New President After Tumult Over Protests**\
 `The previous president resigned after months of conflict over how the university handled protests. The new president, Mung Chiang, currently leads Purdue.`\
 https://www.nytimes.com/2026/05/18/us/northwestern-president-mung-chiang.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/05/18/espanol/que-significa-efficacy.html
 **Lo que hay que saber sobre el más reciente brote de ébola**\
 `La Organización Mundial de la Salud declaró una emergencia mundial tras el fallecimiento de unas 80 personas a causa del virus en la República Democrática del Congo.`\
 https://www.nytimes.com/es/2026/05/18/espanol/mundo/brote-ebola-africa.html
-
-**How a Funding Pause Derailed an Artificial Heart for Babies**\
-`James Antaki’s efforts to develop a baby’s heart were close to success when his federal funding was cut off. The grants were eventually restored; rebuilding what was lost wasn’t so easy.`\
-https://www.nytimes.com/2026/05/18/well/federal-cuts-artificial-baby-heart-cornell.html
 
