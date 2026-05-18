@@ -1,3 +1,7 @@
+**Here’s why the negotiations fell apart.**\
+``\
+https://www.nytimes.com/live/2026/05/18/nyregion/lirr-strike-update-long-island/heres-why-the-negotiations-fell-apart
+
 **The Courtroom Showdown Between Elon Musk and Sam Altman**\
 `The tech leaders have brought props to court and traded icy stares as their legal dispute reaches a denouement.`\
 https://www.nytimes.com/2026/05/18/podcasts/the-daily/trial-elon-musk-sam-altman.html

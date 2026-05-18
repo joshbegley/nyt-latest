@@ -1,3 +1,7 @@
+**Here’s why the negotiations fell apart.**\
+``\
+https://www.nytimes.com/live/2026/05/18/nyregion/lirr-strike-update-long-island/heres-why-the-negotiations-fell-apart
+
 **The Courtroom Showdown Between Elon Musk and Sam Altman**\
 `The tech leaders have brought props to court and traded icy stares as their legal dispute reaches a denouement.`\
 https://www.nytimes.com/2026/05/18/podcasts/the-daily/trial-elon-musk-sam-altman.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/18/realestate/willing-to-take-risks-in-a-beach-h
 **For Jesmyn Ward, Tough Times Have Led to Some of Her Best Writing**\
 `The two-time National Book Award winner collects essays, profiles and appreciations in a new book, “On Witness and Respair.”`\
 https://www.nytimes.com/2026/05/18/books/review/jesmyn-ward-witness-and-respair.html
-
-**How Redistricting Is Making the Midterms Less Competitive**\
-`Across the states that have had their maps redrawn, partisan gerrymandering is eroding the number of competitive districts where elections are actually won and lost.`\
-https://www.nytimes.com/interactive/2026/05/18/us/politics/midterms-redistricting-maps-competitive.html
 
