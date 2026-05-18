@@ -20,7 +20,7 @@ https://www.nytimes.com/2026/05/18/arts/bulgaria-eurovision-europe.html
 
 **Trump’s Taiwan Gambit is Already a Gift to China**\
 `President Trump’s open willingness to hold up a $14 billion Taiwan arms package is a win for Beijing. Now China could be weighing how to keep the weapons on ice for as long as it can.`\
-https://www.nytimes.com/2026/05/18/world/asia/trumps-taiwan-china-weapons.html
+https://www.nytimes.com/2026/05/18/world/asia/trump-taiwan-china-weapons.html
 
 **The Villain of This Year’s Commencement Speeches: A.I.**\
 `College students have interrupted graduation ceremonies to voice their fears about artificial intelligence. They’re not the only ones who are worried.`\
