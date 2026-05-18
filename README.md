@@ -1,3 +1,11 @@
+**Red Carpet Looks From the 2026 Cannes Film Festival**\
+`Photos from the South of France, where Demi Moore, Ruth Negga, John Travolta and more went all out for the first week of the annual film festival.`\
+https://www.nytimes.com/article/cannes-red-carpet-photos.html
+
+**Los Angeles’s Response to Altadena Fire Hampered by Chaos, Report Finds**\
+`A county-commissioned examination of the disaster concluded that its efforts were muddled and confused, but said that it had not discriminated against Black residents.`\
+https://www.nytimes.com/2026/05/18/us/eaton-fire-los-angeles.html
+
 **Trump’s ‘Anti-Weaponization’ Fund, Explained**\
 `The Trump administration is creating a $1.8 billion fund to compensate people it says were wronged by the federal government, a group that could be largely made up of the president’s allies.`\
 https://www.nytimes.com/2026/05/18/us/politics/trump-anti-weaponization-fund.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/18/nyregion/gautam-adani-indictment-trump.html
 **Palestinian Accounts of Rape by Israelis**\
 `Readers respond to a column by Nicholas Kristof. Also: Imposing religion.`\
 https://www.nytimes.com/2026/05/18/opinion/palestinians-israelis-rape.html
-
-**The L.I.R.R. Strike Affects Many Commuters in Queens, Too**\
-`The rail service has risen in popularity among Queens residents, particularly those in areas where subway service is scarce.`\
-https://www.nytimes.com/2026/05/18/nyregion/lirr-strike-commuters-queens.html
-
-**The Ultimate N.B.A. Conference Finals Preview**\
-`A look at the stars, matchups and storylines shaping Knicks-Cavs and Thunder-Spurs.`\
-https://www.nytimes.com/2026/05/18/podcasts/the-ultimate-nba-conference-finals-preview.html
 

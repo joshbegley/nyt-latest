@@ -1,3 +1,11 @@
+**Trump’s ‘Anti-Weaponization’ Fund, Explained**\
+`The Trump administration is creating a $1.8 billion fund to compensate people it says were wronged by the federal government, a group that could be largely made up of the president’s allies.`\
+https://www.nytimes.com/2026/05/18/us/politics/trump-anti-weaponization-fund.html
+
+**New York Times Sues Pentagon for a Second Time**\
+`The Times is challenging a new requirement that reporters covering the military complex have an official escort, part of a broader legal challenge to the Pentagon’s press restrictions.`\
+https://www.nytimes.com/2026/05/18/business/media/new-york-times-pentagon-lawsuit.html
+
 **New York Times Sues Pentagon for a Second Time**\
 `The Times is challenging a new requirement that reporters covering the military complex have an official escort, part of a broader legal challenge to the Pentagon’s press restrictions.`\
 https://www.nytimes.com/2026/05/18/business/media/new-york-times-sues-pentagon-for-a-second-time.html
