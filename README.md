@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/05/18/us/politics/cdc-ebola-congo-uganda-south-suda
 https://www.nytimes.com/2026/05/18/nyregion/nyc-hotel-housekeepers-pay.html
 
 **Scientists Tweaked the Global Warming Outlook. So Trump Weighed In.**\
-`Renewable energy has helped make the worst-case scenario a bit less bad. The president said, falsely, it shows that climate scientists were wrong.`\
+`Renewable energy has helped make the worst-case scenario a bit less bad. The president said, falsely, it shows that climate scientists were wrong all along.`\
 https://www.nytimes.com/2026/05/18/climate/trump-global-warming-truth-social.html
 
 **Read the document**\
