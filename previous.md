@@ -1,3 +1,7 @@
+**This Redistricting Chaos Must End**\
+`First on Democrats’ to-do list must be banning gerrymandering, restoring voting rights protections and reforming the Supreme Court.`\
+https://www.nytimes.com/2026/05/18/opinion/redistricting-democrats-gerrymandering.html
+
 **Guard Killed in Shooting at San Diego Islamic Center, Mosque Leader Says**\
 `The police said the situation at the county’s largest mosque remained “active,” but did not confirm the report that at least one person had been killed.`\
 https://www.nytimes.com/2026/05/18/us/san-diego-mosque-shooting.html
@@ -51,7 +55,7 @@ https://www.nytimes.com/2026/05/18/business/media/new-york-times-pentagon-lawsui
 https://www.nytimes.com/live/2026/05/18/technology/openai-trial-verdict-altman-musk/heres-what-was-on-the-jurys-list-for-a-decision
 
 **Ebola Raged for Weeks in Congo Before Anyone Raised the Alarm**\
-`Early surveillance and testing failed to identify Bundibugyo, a rare species of Ebola responsible for the current outbreak.`\
+`Early surveillance and testing failed to identify the rare species of Ebola responsible for the current outbreak. An American doctor is among the confirmed cases.`\
 https://www.nytimes.com/2026/05/18/world/africa/congo-ebola-testing.html
 
 **Can Anyone Beat Jon Ossoff? Georgia Republicans Grasp for a Contender.**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/05/18/espanol/estados-unidos/mitin-cristiano-tru
 **Northwestern Names a New President After Tumult Over Protests**\
 `The previous president resigned after months of conflict over how the university handled protests. The new president, Mung Chiang, currently leads Purdue.`\
 https://www.nytimes.com/2026/05/18/us/northwestern-president-mung-chiang.html
-
-**Abortion Pill Lawsuit Leaves Trump Silent, and in a Political Bind**\
-`Louisiana wants the Food and Drug Administration to curtail access to the medication. Doing so could cost Republicans at the polls.`\
-https://www.nytimes.com/2026/05/18/us/politics/abortion-pill-trump-politics.html
 

@@ -1,3 +1,11 @@
+**This Redistricting Chaos Must End**\
+`First on Democrats’ to-do list must be banning gerrymandering, restoring voting rights protections and reforming the Supreme Court.`\
+https://www.nytimes.com/2026/05/18/opinion/redistricting-democrats-gerrymandering.html
+
+**Ebola Raged for Weeks in Congo Before Anyone Raised the Alarm**\
+`Early surveillance and testing failed to identify the rare species of Ebola responsible for the current outbreak. An American doctor is among the confirmed cases.`\
+https://www.nytimes.com/2026/05/18/world/africa/congo-ebola-testing.html
+
 **Guard Killed in Shooting at San Diego Islamic Center, Mosque Leader Says**\
 `The police said the situation at the county’s largest mosque remained “active,” but did not confirm the report that at least one person had been killed.`\
 https://www.nytimes.com/2026/05/18/us/san-diego-mosque-shooting.html
