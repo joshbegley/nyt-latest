@@ -1,3 +1,7 @@
+**Lo que hay que saber sobre el más reciente brote de ébola**\
+`La Organización Mundial de la Salud declaró una emergencia mundial tras el fallecimiento de unas 80 personas a causa del virus en la República Democrática del Congo.`\
+https://www.nytimes.com/es/2026/05/18/espanol/mundo/brote-ebola-africa.html
+
 **How a Funding Pause Derailed an Artificial Heart for Babies**\
 `James Antaki’s efforts to develop a baby’s heart were close to success when his federal funding was cut off. The grants were eventually restored; rebuilding what was lost wasn’t so easy.`\
 https://www.nytimes.com/2026/05/18/well/federal-cuts-artificial-baby-heart-cornell.html
