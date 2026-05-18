@@ -1,3 +1,7 @@
+**Eager for Arms Deal, Taiwan Stresses Need for U.S. Support**\
+`After President Trump hinted that weapons sales to Taiwan could figure in negotiations with China, officials emphasized their island’s strategic importance.`\
+https://www.nytimes.com/2026/05/17/us/politics/taiwan-china-us-arms-deal.html
+
 **Beverley Martyn, Whose Folk Music Breakthrough Took 50 Years, Dies at 79**\
 `As a rising star of the 1960s, she dated Paul Simon, brooded with Nick Drake and drew Barbra Streisand’s envy. Then she sank into an abusive marriage.`\
 https://www.nytimes.com/2026/05/17/obituaries/beverley-martyn-dead.html
