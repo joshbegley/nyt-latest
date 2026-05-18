@@ -1,3 +1,7 @@
+**España anula la sentencia de fraude fiscal contra Shakira**\
+`La Audiencia Nacional de España anunció que había absuelto a la cantante en un caso de hace más de una década, y ordenó a Hacienda que le devolviera decenas de millones de dólares.`\
+https://www.nytimes.com/es/2026/05/18/espanol/mundo/shakira-absuelta-fraude-fiscal-espana.html
+
 **Gucci Got Tom Brady and Cindy Crawford to Strut Their Stuff in Times Square**\
 `And other memorable moments, and clothes, from Demna’s first cruise show.`\
 https://www.nytimes.com/2026/05/18/style/gucci-times-square-cruise.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/05/18/books/review/novel-adaptations-qu
 **My Dead-Simple Roasted Sausages With Chickpeas and Spinach**\
 `A speedy and sustaining dinner to get you through Maycember madness.`\
 https://www.nytimes.com/2026/05/18/dining/my-dead-simple-roasted-sausages-with-chickpeas-and-spinach.html
-
-**Marisa Anderson’s (Tunefully) Un-American Activities**\
-`The guitarist mined the scholar Harry Smith’s LP collection, recording her takes on songs rooted in regions the United States has been in conflict with since 1970.`\
-https://www.nytimes.com/2026/05/18/arts/music/marisa-anderson-unamerican-folk-music.html
 

@@ -1,3 +1,7 @@
+**España anula la sentencia de fraude fiscal contra Shakira**\
+`La Audiencia Nacional de España anunció que había absuelto a la cantante en un caso de hace más de una década, y ordenó a Hacienda que le devolviera decenas de millones de dólares.`\
+https://www.nytimes.com/es/2026/05/18/espanol/mundo/shakira-absuelta-fraude-fiscal-espana.html
+
 **Gucci Got Tom Brady and Cindy Crawford to Strut Their Stuff in Times Square**\
 `And other memorable moments, and clothes, from Demna’s first cruise show.`\
 https://www.nytimes.com/2026/05/18/style/gucci-times-square-cruise.html

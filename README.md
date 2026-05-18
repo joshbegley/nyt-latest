@@ -1,3 +1,7 @@
+**Read the judge’s decision on evidence in the Luigi Mangione state murder trial.**\
+`A state judge in Manhattan said prosecutors can use a gun found in Luugi Mangione’s backpack as evidence during his murder trial.`\
+https://www.nytimes.com/interactive/2026/05/18/nyregion/mangione-gun-decision.html
+
 **España anula la sentencia de fraude fiscal contra Shakira**\
 `La Audiencia Nacional de España anunció que había absuelto a la cantante en un caso de hace más de una década, y ordenó a Hacienda que le devolviera decenas de millones de dólares.`\
 https://www.nytimes.com/es/2026/05/18/espanol/mundo/shakira-absuelta-fraude-fiscal-espana.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/18/science/anxiety-mental-health-children-increa
 **Page to Screen: Do You Know the Books That Inspired These Adaptations?**\
 `Try this short quiz to see how many titles you (or your children) can recall.`\
 https://www.nytimes.com/interactive/2026/05/18/books/review/novel-adaptations-quiz.html
-
-**My Dead-Simple Roasted Sausages With Chickpeas and Spinach**\
-`A speedy and sustaining dinner to get you through Maycember madness.`\
-https://www.nytimes.com/2026/05/18/dining/my-dead-simple-roasted-sausages-with-chickpeas-and-spinach.html
 
