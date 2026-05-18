@@ -1,3 +1,15 @@
+**Oil Prices Edge Higher as Cease-Fire Remains Tenuous**\
+`Oil prices rose after President Trump issued a new warning to Iran, calling into question the tenuous cease-fire in the war.`\
+https://www.nytimes.com/2026/05/18/business/oil-gas-price-iran.html
+
+**‘In the City,’ and 7 More Things to Watch on TV This Week**\
+`A new Bravo show with “Summer House” alums premieres. And a documentary on Kylie Minogue airs.`\
+https://www.nytimes.com/2026/05/18/arts/television/in-the-city-things-to-watch-on-tv-this-week.html
+
+**Tech Workers Have Fears About A.I., Too. They Can Do Something About It.**\
+`Even the developers of A.I. want regulation. They’re starting to take action.`\
+https://www.nytimes.com/2026/05/18/opinion/ai-tech-worker-organizing.html
+
 **2 Teenagers Arrested After Drive-By Shootings in Austin Injure at Least 4**\
 `The teenage boys were among three suspects taken into custody in connection with at least 12 shootings across the Texas capital. There was no apparent motive, the mayor said.`\
 https://www.nytimes.com/2026/05/18/us/austin-texas-shooting-arrest.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/17/world/killer-robots-ukraine-ebola-qatar.html
 **Two Military Jets Collide in Midair at Idaho Air Show**\
 `Video shared on social media showed the jets striking each other and spinning toward the ground. Four crew members safely ejected before the planes crashed, officials said.`\
 https://www.nytimes.com/2026/05/17/us/planes-crash-gunfighter-skies-show.html
-
-**How a Democratic Governor Came to Release an Election Denier From Prison**\
-`Gov. Jared Polis’s decision to commute the sentence of Tina Peters came after months of tense discussions, including one with President Trump.`\
-https://www.nytimes.com/2026/05/17/us/politics/jared-polis-trump-tina-peters.html
-
-**Review: In ‘Dad Don’t Read This’ a Playwright (Maybe?) Grows Up**\
-`Eliya Smith’s disturbing teen dramedy explores the ambivalence and confusion of life on the brink of adulthood.`\
-https://www.nytimes.com/2026/05/17/theater/dad-dont-read-this-review.html
-
-**Perú va a una segunda vuelta con dos visiones distintas para el país**\
-`Las elecciones presidenciales enfrentan a Keiko Fujimori, conservadora, y Roberto Sánchez, político de izquierda, tras una crisis marcada por retrasos y protestas.`\
-https://www.nytimes.com/es/2026/05/17/espanol/america-latina/peru-elecciones-segunda-vuelta-keiko-fujimori-roberto-sanchez.html
 
