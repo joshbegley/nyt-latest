@@ -1,3 +1,15 @@
+**The Ultimate N.B.A. Conference Finals Preview**\
+`A look at the stars, matchups and storylines shaping Knicks-Cavs and Thunder-Spurs.`\
+https://www.nytimes.com/2026/05/18/podcasts/the-ultimate-nba-conference-finals-preview.html
+
+**Edmund Phelps, Who Upended the Way We View Inflation, Dies at 92**\
+`He won a Nobel in 2006 for challenging the conventional wisdom among economists that higher inflation was a necessary price to pay for low unemployment.`\
+https://www.nytimes.com/2026/05/18/business/economy/edmund-phelps-dead.html
+
+**El presidente de la Conmebol habría recibido dinero recuperado de un escándalo de corrupción**\
+`En vísperas del Mundial, el máximo directivo del fútbol sudamericano enfrenta una denuncia de ética que alega que se quedó con fondos recuperados de una investigación de 2015 que sacudió al fútbol mundial.`\
+https://www.nytimes.com/es/2026/05/18/espanol/mundo/fifa-conmebol-denuncia-dinero.html
+
 **Today, In Short**\
 `Instagram Instants. “Off Campus.” And the latest on the Long Island Rail Road strike.`\
 https://www.nytimes.com/2026/05/18/briefing/today-in-short.html
