@@ -1,3 +1,7 @@
+**Scientists Tweaked the Global Warming Outlook. So Trump Weighed In.**\
+`Renewable energy has helped make the worst-case scenario a bit less bad. The president said, falsely, it shows that climate scientists were wrong all along.`\
+https://www.nytimes.com/2026/05/18/climate/trump-global-warming-truth-social.html
+
 **When Nationalism Beats Nationalism**\
 `A progressive, pluralistic nationalism has prevailed at the polls in Scotland and Wales. Could it gain traction elsewhere?`\
 https://www.nytimes.com/2026/05/18/world/welsh-scottish-nationalism-immigration.html
