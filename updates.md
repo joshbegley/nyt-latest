@@ -1,3 +1,27 @@
+**Severe Weather Threatens Tens of Millions in Midwest**\
+`After days of heavy winds, hail and tornadoes, more storms are expected across the Midwest on Monday.`\
+https://www.nytimes.com/video/weather/100000010910565/midwest-storms-tornado-hail.html
+
+**Judge Grants Luigi Mangione’s Request to Supress Some Evidence**\
+`A New York State judge ruled prosecutors cannot use some of the evidence found inside Luigi Mangione’s backpack when he was arrested. Mr. Mangione is accused of killing UnitedHealthcare’s chief executive, Brian Thompson, outside a Manhattan hotel in 2024.`\
+https://www.nytimes.com/video/nyregion/100000010910127/luigi-mangione-evidence-suppressed-backpack.html
+
+**E.P.A. to End Some Limits on ‘Forever Chemicals’ in Drinking Water**\
+`The rules were established by the Biden administration after research linked the compounds to a range of serious health problems.`\
+https://www.nytimes.com/2026/05/18/climate/epa-forever-chemicals-pfas-drinking-water.html
+
+**Hantavirus Patient Ordered to Stay in Quarantine Despite Desire to Leave**\
+`An American passenger from the hantavirus-infected cruise ship had wanted to depart an Omaha quarantine facility.`\
+https://www.nytimes.com/2026/05/18/us/hantavirus-ship-passenger-quarantine-order.html
+
+**Just Tuning In to Musk’s Blockbuster Trial Against OpenAI? Here’s What to Know.**\
+`A jury in Oakland, Calif., reached a decision after a three-week long trial seen as pivotal for the future of OpenAI and the artificial intelligence race.`\
+https://www.nytimes.com/2026/05/18/technology/openai-trial-elon-musk-sam-altman.html
+
+**Ten people. Eight weeks. Three thousand feet through the ice.**\
+`Here’s the story of the expedition’s most ambitious project.`\
+https://www.nytimes.com/live/2025/climate/antarctica-thwaites-glacier/ten-people-eight-weeks-three-thousand-feet-through-the-ice
+
 **Red Carpet Looks From the 2026 Cannes Film Festival**\
 `Photos from the South of France, where Demi Moore, Ruth Negga, John Travolta and more went all out for the first week of the annual film festival.`\
 https://www.nytimes.com/article/cannes-red-carpet-photos.html
