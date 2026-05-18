@@ -1,3 +1,7 @@
+**The End of Reality TV Politics**\
+`Reality TV politics is coming to an end because, Sarah Isgur argues, reality TV itself is dying. On “The Opinions,” she explains why she believes voters are now gravitating toward more optimistic, Ted Lasso-style candidates instead.`\
+https://www.nytimes.com/video/opinion/100000010904196/the-end-of-reality-tv-politics.html
+
 **Retired Belgian Diplomat Dies Before Trial in 1961 Killing of Congolese Leader**\
 `Étienne Davignon had been set to stand trial in connection with the murder of Patrice Lumumba, the first prime minister of what is now the Democratic Republic of Congo.`\
 https://www.nytimes.com/2026/05/18/world/africa/etienne-davignon-patrice-lumumba-belgium-congo.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/live/2025/climate/antarctica-thwaites-glacier/ten-people
 **Red Carpet Looks From the 2026 Cannes Film Festival**\
 `Photos from the South of France, where Demi Moore, Ruth Negga, John Travolta and more went all out for the first week of the annual film festival.`\
 https://www.nytimes.com/article/cannes-red-carpet-photos.html
-
-**Los Angeles’s Response to Altadena Fire Hampered by Chaos, Report Finds**\
-`A county-commissioned examination of the disaster concluded that its efforts were muddled and confused, but said that it had not discriminated against Black residents.`\
-https://www.nytimes.com/2026/05/18/us/eaton-fire-los-angeles.html
 
