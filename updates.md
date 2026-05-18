@@ -1,3 +1,11 @@
+**Guard Killed in Shooting at San Diego Islamic Center, Mosque Leader Says**\
+`The police said the situation at the county’s largest mosque remained “active,” but did not confirm the report that at least one person had been killed.`\
+https://www.nytimes.com/2026/05/18/us/san-diego-mosque-shooting.html
+
+**Fast-Moving Southern California Fire Forces Immediate Evacuations**\
+`Officials ordered more than 23,000 to evacuate after a brush fire broke out in Simi Valley, Calif.`\
+https://www.nytimes.com/2026/05/18/us/sandy-fire-simi-valley-california.html
+
 **Fast-Moving Southern California Fire Forces Immediate Evacuations**\
 `A brush fire in the hills adjacent to suburban neighborhoods in Simi Valley, Calif., forced more than 23,000 to evacuate.`\
 https://www.nytimes.com/2026/05/18/us/sandy-fire-simi-valley-california.html
