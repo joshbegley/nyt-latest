@@ -1,3 +1,11 @@
+**Two Americans Detained in Japan After Entering Punch the Monkey’s Enclosure**\
+`The men were charged with obstructing operations at a zoo, apparently as a stunt connected to a cryptocurrency. They denied the charges.`\
+https://www.nytimes.com/2026/05/18/world/asia/punch-monkey-japan-zoo-arrest.html
+
+**Bodies of Four Italian Divers Found in Maldives Cave**\
+`The discovery comes after days of searching by an international team of rescue divers. A fifth body was recovered last week.`\
+https://www.nytimes.com/2026/05/18/world/asia/maldives-divers-accident-bodies-found.html
+
 **Trump Threatens Iran as Tensions Surge Again in Middle East**\
 `The president has sought to force Iran to accept his terms on its nuclear program or else face renewed war. An emboldened Iran has rebuffed Trump’s demands.`\
 https://www.nytimes.com/2026/05/18/world/middleeast/trump-iran-war-talks.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/18/arts/music/breaking-down-drakes-three-album-s
 **South Carolina Republicans to Debate New House Maps Despite Qualms**\
 `Under pressure from President Trump, the legislature will consider new House districts this week. Some in the G.O.P. worry changes would be too costly and could backfire.`\
 https://www.nytimes.com/2026/05/18/us/south-carolina-redistricting-republicans-clyburn.html
-
-**G7 Finance Ministers Look to Contain Iran Economic Fallout**\
-`Top policymakers were expected to discuss rising energy prices and sanctions policy at a critical summit in Paris this week.`\
-https://www.nytimes.com/2026/05/18/business/g7-finance-ministers-meeting-iran-war-oil.html
-
-**Over 100,000 Family Separations in Deportation Push, Report Estimates**\
-`The Brookings Institution suggests that federal statistics are an undercount because immigrant parents are not being asked about or not disclosing their American children.`\
-https://www.nytimes.com/2026/05/18/us/brookings-institution-report-family-separations.html
 

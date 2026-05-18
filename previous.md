@@ -1,3 +1,15 @@
+**Trump Threatens Iran as Tensions Surge Again in Middle East**\
+`The president has sought to force Iran to accept his terms on its nuclear program or else face renewed war. An emboldened Iran has rebuffed Trump’s demands.`\
+https://www.nytimes.com/2026/05/18/world/middleeast/trump-iran-war-talks.html
+
+**Two Fighter Jets Collide During Idaho Air Show**\
+`Two EA-18G Growler jets collided during a demonstration at an Air Force base in Idaho, forcing the four crew members to eject before the planes crashed into the ground.`\
+https://www.nytimes.com/video/us/100000010909664/plane-crash-idaho-air-show.html
+
+**What happened the last time L.I.R.R. workers went on strike?**\
+``\
+https://www.nytimes.com/live/2026/05/18/nyregion/lirr-strike-update-long-island/lirr-workers-strike-1994
+
 **The Fighting Never Ends**\
 `We look at what happens when countries say they’re going to stop shooting at each other.`\
 https://www.nytimes.com/2026/05/18/briefing/the-fighting-never-stops.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/18/business/g7-finance-ministers-meeting-iran-wa
 **Over 100,000 Family Separations in Deportation Push, Report Estimates**\
 `The Brookings Institution suggests that federal statistics are an undercount because immigrant parents are not being asked about or not disclosing their American children.`\
 https://www.nytimes.com/2026/05/18/us/brookings-institution-report-family-separations.html
-
-**The Trump Administration’s Lipstick and Lies**\
-`If you’re not strutting, you’re not selling`\
-https://www.nytimes.com/2026/05/18/opinion/trump-image-administration.html
-
-**How a Web Developer Lives on $45,000 in Far Rockaway**\
-`Karen Jeanne Radley has spent the last few years moving apartments after each rent increase. Now 51, she has landed in a senior living community.`\
-https://www.nytimes.com/interactive/2026/05/18/nyregion/nyc-budgeting-affordability-radley.html
-
-**Willing to Take Risks in a Beach House on Lake Michigan**\
-`A couple looking for a second home fell for the architecture of one house, but not the interiors. Luckily, they had a “secret weapon.”`\
-https://www.nytimes.com/2026/05/18/realestate/willing-to-take-risks-in-a-beach-house-on-lake-michigan.html
 

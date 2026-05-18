@@ -1,3 +1,15 @@
+**Trump Threatens Iran as Tensions Surge Again in Middle East**\
+`The president has sought to force Iran to accept his terms on its nuclear program or else face renewed war. An emboldened Iran has rebuffed Trump’s demands.`\
+https://www.nytimes.com/2026/05/18/world/middleeast/trump-iran-war-talks.html
+
+**Two Fighter Jets Collide During Idaho Air Show**\
+`Two EA-18G Growler jets collided during a demonstration at an Air Force base in Idaho, forcing the four crew members to eject before the planes crashed into the ground.`\
+https://www.nytimes.com/video/us/100000010909664/plane-crash-idaho-air-show.html
+
+**What happened the last time L.I.R.R. workers went on strike?**\
+``\
+https://www.nytimes.com/live/2026/05/18/nyregion/lirr-strike-update-long-island/lirr-workers-strike-1994
+
 **A Search for Ways Around Blocked Strait Leads to Syria**\
 `The latest war in the Middle East has created new economic opportunities for Syria thanks to its geography.`\
 https://www.nytimes.com/2026/05/18/world/middleeast/strait-hormuz-blockade-iran-war-syria-oil.html
