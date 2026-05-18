@@ -1,3 +1,7 @@
+**Americans Affected in Ebola Outbreak, C.D.C. Says**\
+`An Ebola outbreak in Africa has affected some Americans, according to the C.D.C. There is no vaccine for the species of the deadly virus that has spread in the Democratic Republic of Congo and Uganda.`\
+https://www.nytimes.com/video/world/africa/100000010909481/ebola-outbreak-congo-americans.html
+
 **Mamdani’s First City-Owned Grocery Store Planned for South Bronx**\
 `Mayor Zohran Mamdani plans to announce that the store will open in the Hunts Point neighborhood next year. Some merchants are pushing back.`\
 https://www.nytimes.com/2026/05/18/nyregion/mamdani-grocery-store-bronx-hunts-point.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/17/obituaries/beverley-martyn-dead.html
 **NextEra Energy Said to Be in Talks to Acquire Dominion, Creating a Utility Giant**\
 `A deal, involving the utilities in Florida and Virginia, would come as demand for power is soaring, largely because of the rapid growth of A.I. data centers.`\
 https://www.nytimes.com/2026/05/17/business/nextera-dominion-deal.html
-
-**Isabel Leonard and Others Offer Tastings of ‘Frida y Diego’**\
-`The performers of a Met Opera production about Frida Kahlo and Diego Rivera have been promoting the show in decidedly unoperatic places, including a cemetery.`\
-https://www.nytimes.com/2026/05/17/arts/music/isabel-leonard-frida-y-diego-met.html
 
