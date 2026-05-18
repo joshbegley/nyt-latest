@@ -1,3 +1,11 @@
+**Palestinian Accounts of Rape by Israelis**\
+`Readers respond to a column by Nicholas Kristof. Also: Imposing religion.`\
+https://www.nytimes.com/2026/05/18/opinion/palestinians-israelis-rape.html
+
+**The strike also affects many commuters in Queens.**\
+``\
+https://www.nytimes.com/2026/05/18/nyregion/lirr-strike-commuters-queens.html
+
 **The Ultimate N.B.A. Conference Finals Preview**\
 `A look at the stars, matchups and storylines shaping Knicks-Cavs and Thunder-Spurs.`\
 https://www.nytimes.com/2026/05/18/podcasts/the-ultimate-nba-conference-finals-preview.html
