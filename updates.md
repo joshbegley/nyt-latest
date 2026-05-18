@@ -1,3 +1,11 @@
+**Americans Among Those Affected by Ebola Outbreak, C.D.C. Says**\
+`A small number of U.S. citizens have been directly affected by the outbreak in the Democratic Republic of Congo and Uganda, the C.D.C. said on Sunday.`\
+https://www.nytimes.com/2026/05/18/us/ebola-outbreak-congo-uganda-americans-cdc.html
+
+**The Tech Workers Building A.I. Are Scared of It, Too**\
+`Even the developers of A.I. want regulation. They’re starting to take action.`\
+https://www.nytimes.com/2026/05/18/opinion/ai-tech-worker-organizing.html
+
 **Oil Prices Edge Higher as Cease-Fire Remains Tenuous**\
 `Oil prices rose after President Trump issued a new warning to Iran, calling into question the tenuous cease-fire in the war.`\
 https://www.nytimes.com/2026/05/18/business/oil-gas-price-iran.html
