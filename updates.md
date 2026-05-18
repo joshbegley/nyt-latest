@@ -1,3 +1,7 @@
+**​Leaders With Very Different Political Leanings Became Fast Friends**\
+`Japan’s prime minister, Sanae Takaichi, and South Korea’s president, Lee Jae Myung, have surprised many observers by moving past their nations’ historical grievances.`\
+https://www.nytimes.com/2026/05/18/world/asia/lee-takaichi-meeting-korea-japan.html
+
 **Trump Says He Authorized New Strikes on Iran, but Has Decided to Hold Off**\
 `President Trump has repeatedly threatened new military action against Iran, only to pull back from resuming major fighting in a deeply unpopular, expensive conflict.`\
 https://www.nytimes.com/2026/05/18/us/politics/trump-iran-strikes.html

@@ -1,3 +1,7 @@
+**​Leaders With Very Different Political Leanings Became Fast Friends**\
+`Japan’s prime minister, Sanae Takaichi, and South Korea’s president, Lee Jae Myung, have surprised many observers by moving past their nations’ historical grievances.`\
+https://www.nytimes.com/2026/05/18/world/asia/lee-takaichi-meeting-korea-japan.html
+
 **Trump Says He Authorized New Strikes on Iran, but Has Decided to Hold Off**\
 `President Trump has repeatedly threatened new military action against Iran, only to pull back from resuming major fighting in a deeply unpopular, expensive conflict.`\
 https://www.nytimes.com/2026/05/18/us/politics/trump-iran-strikes.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/18/us/politics/trump-anti-weaponization-fund.htm
 **New York Times Sues Pentagon for a Second Time**\
 `The Times is challenging a new requirement that reporters covering the military complex have an official escort, part of a broader legal challenge to the Pentagon’s press restrictions.`\
 https://www.nytimes.com/2026/05/18/business/media/new-york-times-pentagon-lawsuit.html
-
-**Here’s what was on the jury’s list for a decision.**\
-``\
-https://www.nytimes.com/live/2026/05/18/technology/openai-trial-verdict-altman-musk/heres-what-was-on-the-jurys-list-for-a-decision
 
