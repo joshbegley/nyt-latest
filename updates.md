@@ -1,3 +1,19 @@
+**Learning Network: Sorting Truth From Misinformation**\
+`In the latest Journalism Essentials newsletter, we share how to navigate a sea of false information.`\
+https://www.nytimes.com/2026/05/18/learning/learning-network-sorting-truth-from-misinformation.html
+
+**Soccer Official Took Millions Reclaimed After FIFA Scandal, Complaint Alleges**\
+`Ahead of the World Cup, the head of South American soccer faces an ethics complaint he received payments recovered from a 2015 investigation that shook global soccer.`\
+https://www.nytimes.com/2026/05/18/world/americas/fifa-south-america-conmebol-dominguez.html
+
+**U.S. Airstrikes Kill ISIS Fighters in Nigeria, Officials Say**\
+`U.S. military launched attack in coordination with Nigerian forces days after President Trump said a joint operation had killed Islamic State’s global leader.`\
+https://www.nytimes.com/2026/05/18/world/africa/us-airstrikes-isis-nigeria.html
+
+**Timmy the Whale Found Dead In Denmark**\
+`A humpback whale, nicknamed Timmy, was found dead in Denmark. For more than a month, Timmy had been at the center of a public frenzy and rescue effort.`\
+https://www.nytimes.com/video/world/europe/100000010908982/timmy-whale-found-dead-denmark-germany.html
+
 **Trump Withdraws His $10 Billion Suit Against the I.R.S.**\
 `The dismissal appears to be part of the Trump administration’s effort to effectively settle the case, which stemmed from the leak of his tax returns in 2019.`\
 https://www.nytimes.com/2026/05/18/us/trump-irs-lawsuit.html
