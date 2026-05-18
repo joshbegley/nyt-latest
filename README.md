@@ -1,3 +1,7 @@
+**Hegseth to Campaign for a Republican House Candidate**\
+`Defense Department officials typically stay away from partisan politics to maintain the military’s apolitical image.`\
+https://www.nytimes.com/live/2026/05/18/us/trump-news/hegseth-gallrein-campaign
+
 **No Corrections: May 18, 2026**\
 `No corrections appeared in print on Monday, May 18, 2026.`\
 https://www.nytimes.com/2026/05/18/pageoneplus/no-corrections-may-18-2026.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/18/arts/louvre-expansion-architect.html
 **Megan Fairchild’s Long, Joyful Goodbye to Ballet**\
 `After “Coppélia,” the New York City Ballet star will leave her dancing days behind. “I have an immense amount of peace about this whole thing,” she said.`\
 https://www.nytimes.com/2026/05/18/arts/dance/megan-fairchild-city-ballet-retiring.html
-
-**Intense Storms Could Rattle the U.S. Midwest, Monday’s Forecast Shows**\
-`Some of the most severe weather in days could hit Monday afternoon, meteorologists said. Tornadoes and large hail are possible.`\
-https://www.nytimes.com/2026/05/18/weather/storm-tornado-forecast-kansas-nebraska-iowa.html
 

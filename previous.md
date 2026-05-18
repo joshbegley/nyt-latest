@@ -1,3 +1,7 @@
+**No Corrections: May 18, 2026**\
+`No corrections appeared in print on Monday, May 18, 2026.`\
+https://www.nytimes.com/2026/05/18/pageoneplus/no-corrections-may-18-2026.html
+
 **Bulgaria Hopes Eurovision Win Will Show Its Strength as a Continental Player**\
 `Recent months have brought remarkable change in the Eastern European nation, which has just adopted the euro and forced the resignation of a leader through major protests.`\
 https://www.nytimes.com/2026/05/18/arts/bulgaria-eurovision-europe.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/18/arts/dance/megan-fairchild-city-ballet-retiri
 **Intense Storms Could Rattle the U.S. Midwest, Monday’s Forecast Shows**\
 `Some of the most severe weather in days could hit Monday afternoon, meteorologists said. Tornadoes and large hail are possible.`\
 https://www.nytimes.com/2026/05/18/weather/storm-tornado-forecast-kansas-nebraska-iowa.html
-
-**A Few Changes for the Times/Siena Poll**\
-`Starting with today’s survey, we’re introducing a new target for weighting called synthetic past vote.`\
-https://www.nytimes.com/2026/05/18/upshot/times-siena-poll-changes.html
 

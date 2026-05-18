@@ -1,3 +1,7 @@
+**No Corrections: May 18, 2026**\
+`No corrections appeared in print on Monday, May 18, 2026.`\
+https://www.nytimes.com/2026/05/18/pageoneplus/no-corrections-may-18-2026.html
+
 **Bulgaria Hopes Eurovision Win Will Show Its Strength as a Continental Player**\
 `Recent months have brought remarkable change in the Eastern European nation, which has just adopted the euro and forced the resignation of a leader through major protests.`\
 https://www.nytimes.com/2026/05/18/arts/bulgaria-eurovision-europe.html
