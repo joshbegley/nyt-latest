@@ -1,3 +1,15 @@
+**Las grandes preguntas sobre Jeffrey Epstein**\
+`Qué revelaron los archivos, las investigaciones y los testimonios sobre la red de poder y complicidad que rodeó a Epstein.`\
+https://www.nytimes.com/es/2026/05/18/espanol/estados-unidos/jeffrey-epstein-archivos-preguntas-respuestas.html
+
+**As L.I.R.R. Strike Continues, Tens of Thousands Endure Painful Commutes**\
+`Commuters took lengthy detours as a strike by Long Island Rail Road workers, who have been without raises for years, extended into a third day.`\
+https://www.nytimes.com/2026/05/18/nyregion/lirr-strike-long-island.html
+
+**Harvard Asks Federal Judge to Dismiss Trump Lawsuit**\
+`The Trump administration sued Harvard earlier this year over allegations it had not done enough to combat antisemitism on campus.`\
+https://www.nytimes.com/2026/05/18/us/politics/harvard-trump-lawsuit.html
+
 **L-I-R-R vs. Lurr: The Debate Splitting New York Commuters**\
 `Initialism or acronym? It doesn’t matter. No one can agree on how to pronounce it.`\
 https://www.nytimes.com/2026/05/18/nyregion/lirr-pronunciation-long-island.html

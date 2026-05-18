@@ -1,3 +1,15 @@
+**Las grandes preguntas sobre Jeffrey Epstein**\
+`Qué revelaron los archivos, las investigaciones y los testimonios sobre la red de poder y complicidad que rodeó a Epstein.`\
+https://www.nytimes.com/es/2026/05/18/espanol/estados-unidos/jeffrey-epstein-archivos-preguntas-respuestas.html
+
+**As L.I.R.R. Strike Continues, Tens of Thousands Endure Painful Commutes**\
+`Commuters took lengthy detours as a strike by Long Island Rail Road workers, who have been without raises for years, extended into a third day.`\
+https://www.nytimes.com/2026/05/18/nyregion/lirr-strike-long-island.html
+
+**Harvard Asks Federal Judge to Dismiss Trump Lawsuit**\
+`The Trump administration sued Harvard earlier this year over allegations it had not done enough to combat antisemitism on campus.`\
+https://www.nytimes.com/2026/05/18/us/politics/harvard-trump-lawsuit.html
+
 **L-I-R-R vs. Lurr: The Debate Splitting New York Commuters**\
 `Initialism or acronym? It doesn’t matter. No one can agree on how to pronounce it.`\
 https://www.nytimes.com/2026/05/18/nyregion/lirr-pronunciation-long-island.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/18/world/asia/lee-takaichi-meeting-korea-japan.h
 **Trump Says He Authorized New Strikes on Iran, but Has Decided to Hold Off**\
 `President Trump has repeatedly threatened new military action against Iran, only to pull back from resuming major fighting in a deeply unpopular, expensive conflict.`\
 https://www.nytimes.com/2026/05/18/us/politics/trump-iran-strikes.html
-
-**When Nationalism Beats Nationalism**\
-`A progressive, pluralistic nationalism has prevailed at the polls in Scotland and Wales. Could it gain traction elsewhere?`\
-https://www.nytimes.com/2026/05/18/world/welsh-scottish-nationalism-immigration.html
-
-**Citing Ebola Outbreak, U.S. Restricts Entry From Congo, Uganda and South Sudan**\
-`The order is in effect for 30 days and does not apply to American citizens or U.S. service members.`\
-https://www.nytimes.com/2026/05/18/us/politics/cdc-ebola-congo-uganda-south-sudan.html
-
-**N.Y.C. Hotel Housekeepers Will Earn Over $100,000 Under New Contract**\
-`A deal between a powerful union and an industry group substantially boosts annual pay for workers coping with New York City’s high cost of living.`\
-https://www.nytimes.com/2026/05/18/nyregion/nyc-hotel-housekeepers-pay.html
 
