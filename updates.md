@@ -1,3 +1,7 @@
+**The End of Reality TV Politics**\
+`Reality TV politics is coming to an end because, Sarah Isgur argues, reality TV itself is dying. On “The Opinions,” she explains why she believes voters are now gravitating toward more optimistic, Ted Lasso-style candidates instead.`\
+https://www.nytimes.com/video/opinion/100000010904196/the-end-of-reality-tv-politics.html
+
 **Retired Belgian Diplomat Dies Before Trial in 1961 Killing of Congolese Leader**\
 `Étienne Davignon had been set to stand trial in connection with the murder of Patrice Lumumba, the first prime minister of what is now the Democratic Republic of Congo.`\
 https://www.nytimes.com/2026/05/18/world/africa/etienne-davignon-patrice-lumumba-belgium-congo.html
