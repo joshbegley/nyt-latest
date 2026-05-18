@@ -1,3 +1,7 @@
+**Northwestern Names a New President After Tumult Over Protests**\
+`The previous president resigned after months of conflict over how the university handled protests. The new president, Mung Chiang, currently leads Purdue.`\
+https://www.nytimes.com/2026/05/18/us/northwestern-president-mung-chiang.html
+
 **Abortion Pill Lawsuit Leaves Trump Silent, and in a Political Bind**\
 `Louisiana wants the Food and Drug Administration to curtail access to the medication. Doing so could cost Republicans at the polls.`\
 https://www.nytimes.com/2026/05/18/us/politics/abortion-pill-trump-politics.html
