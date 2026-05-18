@@ -39,7 +39,7 @@ https://www.nytimes.com/interactive/2026/05/18/us/ice-agent-minnesota-criminal-c
 https://www.nytimes.com/2026/05/18/opinion/redistricting-democrats-gerrymandering.html
 
 **Here’s the latest.**\
-`The police said that the threat had been “neutralized,”  but did not confirm the report that the attack had been fatal.`\
+`The police said that the threat had been “neutralized,” but did not confirm the report that the attack had been fatal.`\
 https://www.nytimes.com/live/2026/05/18/us/san-diego-islamic-center-shooting/san-diego-mosque-shooting
 
 **Fast-Moving Southern California Fire Forces Immediate Evacuations**\
