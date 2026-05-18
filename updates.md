@@ -1,3 +1,7 @@
+**New York Times Sues Pentagon for a Second Time**\
+`The Times is challenging a new requirement that reporters covering the military complex have an official escort, part of a broader legal challenge to the Pentagon’s press restrictions.`\
+https://www.nytimes.com/2026/05/18/business/media/new-york-times-sues-pentagon-for-a-second-time.html
+
 **Here’s what was on the jury’s list for a decision.**\
 ``\
 https://www.nytimes.com/live/2026/05/18/technology/openai-trial-verdict-altman-musk/heres-what-was-on-the-jurys-list-for-a-decision

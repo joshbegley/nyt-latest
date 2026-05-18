@@ -1,6 +1,10 @@
+**Trump’s ‘Anti-Weaponization’ Fund, Explained**\
+`The Trump administration is creating a $1.8 billion fund to compensate people it says were wronged by the federal government, a group that could be largely made up of the president’s allies.`\
+https://www.nytimes.com/2026/05/18/us/politics/trump-anti-weaponization-fund.html
+
 **New York Times Sues Pentagon for a Second Time**\
 `The Times is challenging a new requirement that reporters covering the military complex have an official escort, part of a broader legal challenge to the Pentagon’s press restrictions.`\
-https://www.nytimes.com/2026/05/18/business/media/new-york-times-sues-pentagon-for-a-second-time.html
+https://www.nytimes.com/2026/05/18/business/media/new-york-times-pentagon-lawsuit.html
 
 **Here’s what was on the jury’s list for a decision.**\
 ``\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/18/nyregion/lirr-strike-commuters-queens.html
 **The Ultimate N.B.A. Conference Finals Preview**\
 `A look at the stars, matchups and storylines shaping Knicks-Cavs and Thunder-Spurs.`\
 https://www.nytimes.com/2026/05/18/podcasts/the-ultimate-nba-conference-finals-preview.html
-
-**Edmund Phelps, Who Upended the Way We View Inflation, Dies at 92**\
-`He won a Nobel in 2006 for challenging the conventional wisdom among economists that higher inflation was a necessary price to pay for low unemployment.`\
-https://www.nytimes.com/2026/05/18/business/economy/edmund-phelps-dead.html
 
