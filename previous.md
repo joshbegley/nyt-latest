@@ -1,3 +1,19 @@
+**When Nationalism Beats Nationalism**\
+`A progressive, pluralistic nationalism has prevailed at the polls in Scotland and Wales. Could it gain traction elsewhere?`\
+https://www.nytimes.com/2026/05/18/world/welsh-scottish-nationalism-immigration.html
+
+**Citing Ebola Outbreak, U.S. Restricts Entry From Congo, Uganda and South Sudan**\
+`The order is in effect for 30 days and does not apply to American citizens or U.S. service members.`\
+https://www.nytimes.com/2026/05/18/us/politics/cdc-ebola-congo-uganda-south-sudan.html
+
+**N.Y.C. Hotel Housekeepers Will Earn Over $100,000 Under New Contract**\
+`A deal between a powerful union and an industry group substantially boosts annual pay for workers coping with New York City’s high cost of living.`\
+https://www.nytimes.com/2026/05/18/nyregion/nyc-hotel-housekeepers-pay.html
+
+**Scientists Tweaked the Global Warming Outlook. So Trump Weighed In.**\
+`Renewable energy has helped make the worst-case scenario a bit less bad. The president said, falsely, it shows that climate scientists were wrong.`\
+https://www.nytimes.com/2026/05/18/climate/trump-global-warming-truth-social.html
+
 **Read the document**\
 `An ICE agent faces state charges in connection to the shooting of a Venezuelan immigrant in Minneapolis. The charges include second-degree assault and falsely reporting a crime.`\
 https://www.nytimes.com/interactive/2026/05/18/us/ice-agent-minnesota-criminal-complaint.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/live/2026/05/18/technology/openai-trial-verdict-altman-m
 **Ebola Raged for Weeks in Congo Before Anyone Raised the Alarm**\
 `Early surveillance and testing failed to identify the rare species of Ebola responsible for the current outbreak. An American doctor is among the confirmed cases.`\
 https://www.nytimes.com/2026/05/18/world/africa/congo-ebola-testing.html
-
-**Can Anyone Beat Jon Ossoff? Georgia Republicans Grasp for a Contender.**\
-`On the eve of their primary, Republicans have grown nervous about their prospects in November against Mr. Ossoff, regarded as the most vulnerable Democratic senator in the fall midterms.`\
-https://www.nytimes.com/2026/05/18/us/politics/georgia-senate-election-ossoff-republicans.html
-
-**La guerra de Irán está incapacitando a una de las naciones más ricas del mundo**\
-`Los ataques iraníes y la interrupción del tránsito marítimo han afectado las vitales exportaciones de gas de Catar, y ha estancado los ejes económicos destinados a apuntalar el crecimiento del país.`\
-https://www.nytimes.com/es/2026/05/18/espanol/mundo/guerra-iran-economia-catar.html
-
-**ICE Agent Charged in Shooting of a Venezuelan Immigrant in Minnesota**\
-`The agent is the second federal officer to face felony charges in Minnesota stemming from Operation Metro Surge, the Trump administration’s immigration crackdown.`\
-https://www.nytimes.com/2026/05/18/us/ice-agent-charges-venezuelan-immigrant.html
-
-**El gobierno de Trump impulsa el relato de la fundación cristiana de EE. UU. en un mitin**\
-`El objetivo del acto de oración, que contó con miembros del gabinete, era consolidar la idea de que la fundación de EE. UU. fue un proyecto intencionalmente cristiano.`\
-https://www.nytimes.com/es/2026/05/18/espanol/estados-unidos/mitin-cristiano-trump-washington.html
 

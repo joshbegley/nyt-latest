@@ -1,3 +1,19 @@
+**When Nationalism Beats Nationalism**\
+`A progressive, pluralistic nationalism has prevailed at the polls in Scotland and Wales. Could it gain traction elsewhere?`\
+https://www.nytimes.com/2026/05/18/world/welsh-scottish-nationalism-immigration.html
+
+**Citing Ebola Outbreak, U.S. Restricts Entry From Congo, Uganda and South Sudan**\
+`The order is in effect for 30 days and does not apply to American citizens or U.S. service members.`\
+https://www.nytimes.com/2026/05/18/us/politics/cdc-ebola-congo-uganda-south-sudan.html
+
+**N.Y.C. Hotel Housekeepers Will Earn Over $100,000 Under New Contract**\
+`A deal between a powerful union and an industry group substantially boosts annual pay for workers coping with New York City’s high cost of living.`\
+https://www.nytimes.com/2026/05/18/nyregion/nyc-hotel-housekeepers-pay.html
+
+**Scientists Tweaked the Global Warming Outlook. So Trump Weighed In.**\
+`Renewable energy has helped make the worst-case scenario a bit less bad. The president said, falsely, it shows that climate scientists were wrong.`\
+https://www.nytimes.com/2026/05/18/climate/trump-global-warming-truth-social.html
+
 **Guard Killed in Shooting at San Diego Islamic Center, Mosque Leader Says**\
 `The police said that the threat had been “neutralized,”  but did not confirm the report that the attack had been fatal.`\
 https://www.nytimes.com/2026/05/18/us/san-diego-mosque-shooting.html
