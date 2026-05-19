@@ -1,3 +1,11 @@
+**Tickle Me Elmo and the Frenzy That Consumed America**\
+`In 1996, the giggling stuffed doll turned holiday shopping into chaos, a preview of every sneaker drop, PlayStation launch and Taylor Swift ticket rush to come.`\
+https://www.nytimes.com/2026/05/19/obituaries/tickle-me-elmo-greg-hyman.html
+
+**Greg Hyman, Co-Creator of Tickle Me Elmo, Dies at 78**\
+`An electronics wizard, he was already a veteran inventor when he collaborated with Ron Dubren on an idea for a toy that giggled. The rest is retail history.`\
+https://www.nytimes.com/2026/05/19/business/greg-hyman-dead.html
+
 **Polls in Kentucky’s 4th District Show an Extremely Tight Race**\
 `With support from President Trump, Ed Gallrein is challenging Representative Thomas Massie.`\
 https://www.nytimes.com/2026/05/19/us/elections/massie-polls-kentucky-4th-district.html
