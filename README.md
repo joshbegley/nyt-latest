@@ -1,3 +1,7 @@
+**Starbucks Korea C.E.O. Is Fired Over Ad That Stirred Memories of Brutal History**\
+`A marketing campaign called “Tank Day” coincided with the anniversary of a military dictatorship’s crackdown on pro-democracy demonstrators.`\
+https://www.nytimes.com/2026/05/19/world/asia/starbucks-korea-ceo-fired-tank-day.html
+
 **Kentucky has long been home to curious political characters.**\
 ``\
 https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/kentucky-has-long-been-home-to-curious-political-characters
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/19/crosswords/wordle-review-1796.html
 **Strands Sidekick No. 808**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, May 20, 2026.`\
 https://www.nytimes.com/2026/05/19/crosswords/strands-sidekick-808.html
-
-**Here’s the latest.**\
-``\
-https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/heres-the-latest
 
