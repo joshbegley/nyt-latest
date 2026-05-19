@@ -1,3 +1,5 @@
+
+
 **What the Senate Primary Polls Tell Us in Georgia, Alabama and Kentucky**\
 `The Republican primaries in all three states are expected to be competitive, with two of them likely to advance to runoff elections.`\
 https://www.nytimes.com/2026/05/19/us/elections/republican-senate-primaries-georgia-alabama-kentucky.html
