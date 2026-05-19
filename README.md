@@ -1,3 +1,7 @@
+**Twist in FIFA Corruption Case: 2 Fugitives Emerge, Seeking a Plea Deal**\
+`Federal prosecutors are negotiating with Hugo and Mariano Jinkis, a father and son from Argentina, who after more than a decade suddenly agreed to meet in Brooklyn.`\
+https://www.nytimes.com/2026/05/19/nyregion/fifa-argentina-bribery-brooklyn.html
+
 **Woman Dies After Falling Into Open Manhole in Manhattan**\
 `The woman had parked her S.U.V., then got out and plunged 10 feet into the uncovered hole managed by Con Edison, prompting an investigation.`\
 https://www.nytimes.com/2026/05/19/nyregion/woman-dies-manhole-manhattan.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/19/us/politics/reflecting-pool-trump-schutzenhof
 **Pennsylvania Primary Election Results**\
 `Get live results and maps from the 2026 Pennsylvania primary elections.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-pennsylvania-primary.html
-
-**Oregon Primary Election Results**\
-`Get live results and maps from the 2026 Oregon primary elections.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-oregon-primary.html
 
