@@ -1,3 +1,19 @@
+**Jon Stewart Asks What ‘Daddy’ Brought Back From China**\
+`“He was gone for a couple of days in China. We were scared,” Stewart said of President Trump on Monday’s “The Daily Show.” “But now he’s home, and I’m sure he brought us all the goodies.”`\
+https://www.nytimes.com/2026/05/19/arts/television/jon-stewart-trump-china.html
+
+**‘El señor de las moscas’ ya no nos asusta**\
+`La brutalidad contemporánea hace que la novela de William Golding ya no resulte tan perturbadora como alguna vez lo fue.`\
+https://www.nytimes.com/es/2026/05/19/espanol/senor-moscas-netflix.html
+
+**Word of the Day: altruistic**\
+`This word has appeared in 26 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/05/19/learning/word-of-the-day-altruistic.html
+
+**Startled Horse Topples a Carriage in Central Park, Injuring Its Driver**\
+`New York City’s horse-drawn carriages have been the subject of a long-running political debate over animal welfare, public safety and jobs.`\
+https://www.nytimes.com/2026/05/19/nyregion/central-park-nyc-horse-carriage-collision.html
+
 **Last-Minute Donation Could Upend G.O.P. Primary for Texas Attorney General**\
 `A single donor’s contribution of $2.75 million could help propel Representative Chip Roy in his clash with a self-funded state senator, Mayes Middleton.`\
 https://www.nytimes.com/2026/05/19/us/chip-roy-donation-texas-attorney-general.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/05/18/us/politics/trump-afrikaner-refugees.html
 **Judge Bars ICE From Making Immigration Arrests at Courts in New York**\
 `The Trump administration’s practice of detaining migrants at federal courthouses had stirred outrage.`\
 https://www.nytimes.com/2026/05/18/nyregion/ice-immigrant-arrests-nyc-courts.html
-
-**San Diego Mosque Attack Comes Amid Rising Reports of Islamophobia**\
-`The Council on American-Islamic Relations said complaints about bias against Muslims are at levels unseen in decades.`\
-https://www.nytimes.com/2026/05/18/us/san-diego-mosque-shooting-islamaphobia.html
-
-**EE. UU. aumenta la presión sobre Cuba y sanciona a altos funcionarios**\
-`La medida supone una importante escalada en la campaña del gobierno de Trump para obligar al gobierno comunista a revisar su sistema económico y político.`\
-https://www.nytimes.com/es/2026/05/18/espanol/america-latina/sanciones-cuba-trump.html
-
-**‘The Emporium’ Review: Thornton Wilder Doesn’t Make the Sale**\
-`This newly discovered play by Wilder is part picaresque, part fable, featuring a Midwestern boy who dreams of working at a department store in the big city.`\
-https://www.nytimes.com/2026/05/18/theater/the-emporium-review-thornton-wilder.html
-
-**New York to Review Press Credentialing After Mangione Backers’ Comments**\
-`After some of Luigi Mangione’s supporters made comments that were condemned as inflammatory, Mayor Zohran Mamdani’s office said it would review the process that gave them press passes.`\
-https://www.nytimes.com/2026/05/18/nyregion/mangione-supporters-press.html
 
