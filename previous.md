@@ -1,3 +1,27 @@
+**Trump Endorses Paxton in Final Week of G.O.P. Senate Runoff in Texas**\
+`The president had long considered backing Senator John Cornyn, but Ken Paxton, the state attorney general, carried the support of the MAGA base.`\
+https://www.nytimes.com/2026/05/19/us/politics/trump-paxton-endorsement-cornyn-texas-senate.html
+
+**Victims of Mosque Shooting Remembered as Heroes and Leaders**\
+`Muslim groups identified the three men killed in the shooting at the Islamic Center of San Diego.`\
+https://www.nytimes.com/2026/05/19/us/san-diego-mosque-shooting-victims.html
+
+**Inflation Fears Cloud G7 Economic Agenda as Iran War Persists**\
+`The United States and Europe were at odds over the Trump administration’s decision to ease oil sanctions on Russia.`\
+https://www.nytimes.com/2026/05/19/business/inflation-g7-economic-agenda-iran-war.html
+
+**Medio Oriente seguía en vilo luego de que Trump dijo que aplazó el ataque contra Irán**\
+`El presidente Trump dijo que había pospuesto un “ataque muy importante” contra Irán, mientras Pakistán proseguía sus esfuerzos de mediación para poner fin a la guerra.`\
+https://www.nytimes.com/es/2026/05/19/espanol/mundo/ataque-iran-trump.html
+
+**The I.R.S. Thought It Could Fight Trump’s Lawsuit, but It Reached a Deal Anyway**\
+`Officials wrote a memo outlining ways to challenge President Trump’s suit against the Internal Revenue Service. The administration is instead creating an “anti-weaponization” fund.`\
+https://www.nytimes.com/2026/05/19/admin/irs-trump-lawsuit-deal.html
+
+**Lamenting the End of Colbert’s ‘Late Show’**\
+`Readers will miss Stephen Colbert’s “joy, wit, nonsense and sanity,” in the words of one writer. Also: President Trump’s fund; Kash Patel’s snorkeling trip; Meta’s retort.`\
+https://www.nytimes.com/2026/05/19/opinion/colbert-late-show-cbs.html
+
 **El abogado principal del Tesoro renuncia tras el anuncio de un fondo que favorecería a aliados de Trump**\
 `Brian Morrissey, encargado jurídico principal del departamento, dejó su puesto horas después de que el gobierno de Trump diera a conocer el fondo de 1800 millones de dólares.`\
 https://www.nytimes.com/es/2026/05/19/espanol/estados-unidos/renuncia-abogado-tesoro.html
@@ -53,28 +77,4 @@ https://www.nytimes.com/2026/05/19/briefing/today-in-short.html
 **Trump’s Special Envoy to Greenland Receives a Cold Welcome From Locals**\
 `After President Trump’s threats to seize the island, Gov. Jeff Landry’s offers of MAGA hats and chocolate chip cookies fall flat.`\
 https://www.nytimes.com/2026/05/19/world/europe/us-envoy-greenland-visit.html
-
-**How Do You Stop Amazon From Double-Parking? E-Bikes.**\
-`Small companies that handle the final delivery are relying on them to skirt New York City traffic. Amazon plans to try the bikes elsewhere, too.`\
-https://www.nytimes.com/2026/05/19/business/amazon-cargo-bikes-delivery.html
-
-**Iran War Exposes Shortcomings in U.S. Military Industrial Base**\
-`Defense Secretary Pete Hegseth is taking on a problem that the Pentagon and Congress have tried, and mostly failed, to address for years.`\
-https://www.nytimes.com/2026/05/19/us/politics/pentagon-weapons-drones-iran-war-hegseth.html
-
-**Neanderthal Dentistry, and the Scientist Glad Not to Have Experienced It**\
-`The prehistoric hominins “apparently were very adept at what we would consider invasive medicine,” said the anthropologist John Olsen.`\
-https://www.nytimes.com/2026/05/19/science/neanderthal-tooth-dentistry.html
-
-**‘We Don’t Have a Choice’: Tough Commutes Persist After L.I.R.R. Strike Deal**\
-`Transit officials and unions representing Long Island Rail Road employees agreed to a new contract on Monday, ending a three-day strike. But service remained limited on Tuesday morning.`\
-https://www.nytimes.com/2026/05/19/nyregion/commute-lirr-strike-deal.html
-
-**How Trump Entrusted His World Cup to Another Giuliani**\
-`Andrew Giuliani, the son of Rudy and a longtime Trump loyalist, is overseeing American hosting duties for the World Cup next month. It’s a big promotion.`\
-https://www.nytimes.com/2026/05/19/us/politics/world-cup-trump-andrew-giuliani.html
-
-**China Wants A.I. to Flourish, but Not at the Expense of Jobs**\
-`A series of precedent-setting rulings signals that Chinese courts are being enlisted to shield workers from displacement by artificial intelligence.`\
-https://www.nytimes.com/2026/05/19/business/china-ai-unemployment.html
 

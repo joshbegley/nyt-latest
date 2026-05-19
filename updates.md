@@ -1,3 +1,27 @@
+**Trump Endorses Paxton in Final Week of G.O.P. Senate Runoff in Texas**\
+`The president had long considered backing Senator John Cornyn, but Ken Paxton, the state attorney general, carried the support of the MAGA base.`\
+https://www.nytimes.com/2026/05/19/us/politics/trump-paxton-endorsement-cornyn-texas-senate.html
+
+**Victims of Mosque Shooting Remembered as Heroes and Leaders**\
+`Muslim groups identified the three men killed in the shooting at the Islamic Center of San Diego.`\
+https://www.nytimes.com/2026/05/19/us/san-diego-mosque-shooting-victims.html
+
+**Inflation Fears Cloud G7 Economic Agenda as Iran War Persists**\
+`The United States and Europe were at odds over the Trump administration’s decision to ease oil sanctions on Russia.`\
+https://www.nytimes.com/2026/05/19/business/inflation-g7-economic-agenda-iran-war.html
+
+**Medio Oriente seguía en vilo luego de que Trump dijo que aplazó el ataque contra Irán**\
+`El presidente Trump dijo que había pospuesto un “ataque muy importante” contra Irán, mientras Pakistán proseguía sus esfuerzos de mediación para poner fin a la guerra.`\
+https://www.nytimes.com/es/2026/05/19/espanol/mundo/ataque-iran-trump.html
+
+**The I.R.S. Thought It Could Fight Trump’s Lawsuit, but It Reached a Deal Anyway**\
+`Officials wrote a memo outlining ways to challenge President Trump’s suit against the Internal Revenue Service. The administration is instead creating an “anti-weaponization” fund.`\
+https://www.nytimes.com/2026/05/19/admin/irs-trump-lawsuit-deal.html
+
+**Lamenting the End of Colbert’s ‘Late Show’**\
+`Readers will miss Stephen Colbert’s “joy, wit, nonsense and sanity,” in the words of one writer. Also: President Trump’s fund; Kash Patel’s snorkeling trip; Meta’s retort.`\
+https://www.nytimes.com/2026/05/19/opinion/colbert-late-show-cbs.html
+
 **El abogado principal del Tesoro renuncia tras el anuncio de un fondo que favorecería a aliados de Trump**\
 `Brian Morrissey, encargado jurídico principal del departamento, dejó su puesto horas después de que el gobierno de Trump diera a conocer el fondo de 1800 millones de dólares.`\
 https://www.nytimes.com/es/2026/05/19/espanol/estados-unidos/renuncia-abogado-tesoro.html
