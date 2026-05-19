@@ -1,3 +1,7 @@
+**Starbucks Korea C.E.O. Is Fired Over Ad That Stirred Memories of Brutal History**\
+`A marketing campaign called “Tank Day” coincided with the anniversary of a military dictatorship’s crackdown on pro-democracy demonstrators.`\
+https://www.nytimes.com/2026/05/19/world/asia/starbucks-korea-ceo-fired-tank-day.html
+
 **Kentucky has long been home to curious political characters.**\
 ``\
 https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/kentucky-has-long-been-home-to-curious-political-characters
