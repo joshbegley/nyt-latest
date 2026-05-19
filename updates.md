@@ -1,3 +1,7 @@
+**The Maximalist Couple Who Are Each Other’s Style Enablers**\
+`They found someone who will always say yes to a second (or fourth) belt.`\
+https://www.nytimes.com/2026/05/19/style/street-style-look-fringe.html
+
 **Trump’s Push to Defeat Massie Is the Most Expensive House Primary in Recent Years**\
 `The Republican primary in Representative Thomas Massie’s district has drawn vast spending, but it is just one of several contests on Tuesday that will test the power of big money.`\
 https://www.nytimes.com/2026/05/19/us/politics/trump-massie-kentucky-primary-spending.html
