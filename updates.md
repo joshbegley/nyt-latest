@@ -1,3 +1,11 @@
+**Student News Quiz: Political Summit, School Enrollment, Circulatory Systems**\
+`Have you been paying attention to current events recently? See how well you can do on this week’s news quiz for students.`\
+https://www.nytimes.com/interactive/2026/05/19/learning/19StudentNewsQuiz.html
+
+**A FOMO Moment for Mythos**\
+`Those without access to Anthropic’s artificial intelligence model worry they’re more vulnerable to cyber attacks, a concern the company is seeking to address.`\
+https://www.nytimes.com/2026/05/19/business/dealbook/mythos-ai-fomo-moment.html
+
 **A billionaire’s ad barrage upended the Georgia race for governor.**\
 ``\
 https://www.nytimes.com/live/2026/05/19/us/election-kentucky-pennsylvania-georgia/a-billionaires-ad-barrage-upended-the-georgia-race-for-governor
