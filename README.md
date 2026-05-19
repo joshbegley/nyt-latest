@@ -1,3 +1,7 @@
+**Under a Cloud of Uncertainty, Alabama Voters Head to the Polls**\
+`Voters in Alabama cast their ballots, unsure about whether a recent Supreme Court decision would change their congressional districts going forward.`\
+https://www.nytimes.com/2026/05/19/us/politics/uncertainty-alabama-voters.html
+
 **What the Senate Primary Polls Tell Us in Georgia, Alabama and Kentucky**\
 `The Republican primaries in all three states are expected to be competitive, with two of them likely to advance to runoff elections.`\
 https://www.nytimes.com/2026/05/19/us/elections/republican-senate-primaries-georgia-alabama-kentucky.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/19/well/ebola-bundibugyo-virus-symptoms.html
 **When to Expect Results in Tuesday’s Primaries**\
 `Polls begin closing in some states at 6 p.m. Eastern time, but the counting is already underway in some areas.`\
 https://www.nytimes.com/2026/05/19/us/politics/election-results-timing.html
-
-**The Police Clash with Anti-Government Protesters in Bolivia**\
-`The police fired tear gas at protesters who demanded the resignation of President Rodrigo Paz. Many of the voters who originally supported Mr. Paz, now say that they feel alienated by his actions and policies.`\
-https://www.nytimes.com/video/world/americas/100000010912715/bolivia-police-protest-president-paz.html
 
