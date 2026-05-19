@@ -1,3 +1,11 @@
+**‘Beaches’ Sinks on Broadway**\
+`A musical version of the 1980s tear-jerker will close months earlier than planned after opening in April to negative reviews and soft sales.`\
+https://www.nytimes.com/2026/05/19/theater/beaches-broadway-closing.html
+
+**With Trump’s Settlement, a Possible $100 Million I.R.S. Penalty Melts Away**\
+`The tax service argued that the Trump Organization tried to claim the same losses twice. The president said the audit was a “disgrace.”`\
+https://www.nytimes.com/2026/05/19/us/politics/trump-settlement-irs.html
+
 **Key Areas to Watch in Georgia’s Republican Senate Primary**\
 `Three candidates are jockeying for position in a race that is likely to result in a runoff.`\
 https://www.nytimes.com/2026/05/19/us/elections/georgia-senate-republican-primary-areas-to-watch.html

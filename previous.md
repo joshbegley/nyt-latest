@@ -1,3 +1,11 @@
+**‘Beaches’ Sinks on Broadway**\
+`A musical version of the 1980s tear-jerker will close months earlier than planned after opening in April to negative reviews and soft sales.`\
+https://www.nytimes.com/2026/05/19/theater/beaches-broadway-closing.html
+
+**With Trump’s Settlement, a Possible $100 Million I.R.S. Penalty Melts Away**\
+`The tax service argued that the Trump Organization tried to claim the same losses twice. The president said the audit was a “disgrace.”`\
+https://www.nytimes.com/2026/05/19/us/politics/trump-settlement-irs.html
+
 **Key Areas to Watch in Georgia’s Republican Senate Primary**\
 `Three candidates are jockeying for position in a race that is likely to result in a runoff.`\
 https://www.nytimes.com/2026/05/19/us/elections/georgia-senate-republican-primary-areas-to-watch.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/es/2026/05/19/espanol/america-latina/bolivia-protestas.h
 **Two friends are split over who should represent their Kentucky district.**\
 ``\
 https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/two-friends-are-split-over-who-should-represent-their-kentucky-district
-
-**Kentucky U.S. Senate Primary Election Results**\
-`Get live results and maps from the 2026 Kentucky primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-kentucky-us-senate-primary.html
-
-**Alabama Primary Election Results**\
-`Get live results and maps from the 2026 Alabama primary elections.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-alabama-primary.html
 
