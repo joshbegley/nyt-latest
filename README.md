@@ -1,3 +1,15 @@
+**EE. UU. aumenta la presión sobre Cuba y sanciona a altos funcionarios**\
+`La medida supone una importante escalada en la campaña del gobierno de Trump para obligar al gobierno comunista a revisar su sistema económico y político.`\
+https://www.nytimes.com/es/2026/05/18/espanol/america-latina/sanciones-cuba-trump.html
+
+**‘The Emporium’ Review: Thornton Wilder Doesn’t Make the Sale**\
+`This newly discovered play by Wilder is part picaresque, part fable, featuring a Midwestern boy who dreams of working at a department store in the big city.`\
+https://www.nytimes.com/2026/05/18/theater/the-emporium-review-thornton-wilder.html
+
+**New York to Review Press Credentialing After Mangione Backers’ Comments**\
+`After some of Luigi Mangione’s supporters made comments that were condemned as inflammatory, Mayor Zohran Mamdani’s office said it would review the process that gave them press passes.`\
+https://www.nytimes.com/2026/05/18/nyregion/mangione-supporters-press.html
+
 **La táctica de Trump sobre Taiwán ya es un regalo para China**\
 `La abierta disposición del presidente Trump a retrasar un paquete de armas para Taiwán por valor de 14.000 millones de dólares es una victoria para Pekín.`\
 https://www.nytimes.com/es/2026/05/18/espanol/mundo/trump-taiwan-armas-china.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/video/business/media/100000010911130/openai-musk-trial-v
 **Why Josh Shapiro Isn’t Acting Like Other Potential 2028 Candidates**\
 `The Pennsylvania governor’s in-state focus is a contrast with other possible presidential hopefuls.`\
 https://www.nytimes.com/2026/05/18/us/politics/josh-shapiro-pennsylvania-2028.html
-
-**Around Penn Station, the strike is bad for business.**\
-``\
-https://www.nytimes.com/live/2026/05/18/nyregion/lirr-strike-update-long-island/around-penn-station-the-strike-is-bad-for-business
-
-**TrumpRx Adds Generic Drugs, With Mark Cuban, GoodRx and Amazon**\
-`President Trump announced the addition of 600 medicines to his online drugstore as he appeals to Americans concerned about high drug prices and affordability.`\
-https://www.nytimes.com/2026/05/18/business/trumprx-generic-drugs-mark-cuban.html
-
-**Pelosi Endorses San Francisco Supervisor Connie Chan to Succeed Her**\
-`Representative Nancy Pelosi, the first woman to serve as speaker of the House, broke her silence on Monday about the race to succeed her and endorsed Connie Chan, a San Francisco official.`\
-https://www.nytimes.com/2026/05/18/us/nancy-pelosi-endorses-connie-chan.html
 
