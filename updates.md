@@ -1,3 +1,7 @@
+**Is There a Door No. 3 for Democrats?**\
+`Is there anything Democrats can do to break free of a deeply polarized political system in which parties are constantly winning and then losing office?`\
+https://www.nytimes.com/2026/05/19/opinion/trump-democrats-republicans-midterms-moderation.html
+
 **What to Know About the San Diego Mosque Shooting**\
 `Three men were killed in the attack at the Islamic Center of San Diego. Two teenage suspects were found dead in a car nearby, police said.`\
 https://www.nytimes.com/2026/05/19/us/san-diego-mosque-shooting.html
