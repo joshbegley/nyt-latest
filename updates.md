@@ -1,3 +1,15 @@
+**Ebola Cases Rise Sharply as Medical Workers Scramble for Supplies**\
+`Medical workers in the Democratic Republic of Congo are experiencing a shortage of supplies as the number of suspected Ebola cases has passed 500, according to officials.`\
+https://www.nytimes.com/video/world/africa/100000010911915/ebola-outbreak-congo-medical-supplies.html
+
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/05/19/nyregion/lirr-strike/heres-the-latest
+
+**En realidad, la democracia muere en RR. HH.**\
+`Una nueva investigación arroja luz sobre cómo empleados mediocres ayudan a los aspirantes a autoritarios a mantener el poder.`\
+https://www.nytimes.com/es/2026/05/19/espanol/mundo/democracia-muere-burocracia-leales.html
+
 **W.H.O. Chief Is ‘Deeply Concerned’ by Speed and Scale of Ebola Outbreak as Cases Rise**\
 `The warning came shortly after Congo officials reported more than 130 suspected deaths and 513 cases, a sharp rise since the outbreak was first reported over the weekend.`\
 https://www.nytimes.com/2026/05/19/world/africa/ebola-outbreak-deaths-congo-who.html
