@@ -1,3 +1,31 @@
+**Last-Minute Donation Could Upend G.O.P. Primary for Texas Attorney General**\
+`A single donor’s contribution of $2.75 million could help propel Representative Chip Roy in his clash with a self-funded state senator, Mayes Middleton.`\
+https://www.nytimes.com/2026/05/19/us/chip-roy-donation-texas-attorney-general.html
+
+**At Cannes, the Movies Are Divisive and the Arguments Heated**\
+`Without strong front-runners for the Palme d’Or, every movie is getting mixed reactions, especially the sci-fi action film “Hope.”`\
+https://www.nytimes.com/2026/05/19/movies/cannes-film-festival-hope-all-of-a-sudden-paper-tiger.html
+
+**Trump’s Portrait Now Branded on Rickshaws in Delhi**\
+`The president is popping up on the back of the iconic three-wheeler to kick off America’s 250th anniversary celebrations in India.`\
+https://www.nytimes.com/2026/05/19/world/asia/india-trump-auto-rickshaws.html
+
+**Oil Slick Reaches a Pristine Persian Gulf Island in Iran**\
+`Videos show birds, turtles and crabs trapped inside mounds of tar around Shidvar island, a protected wildlife sanctuary with turquoise waters and white sand beaches.`\
+https://www.nytimes.com/2026/05/19/world/europe/oil-slick-reaches-a-pristine-persian-gulf-island-in-iran.html
+
+****\
+`The campaign, organized by the U.S. Embassy in India, features President Trump on some auto rickshaws and the Statue of Liberty on others.`\
+https://www.nytimes.com/video/embedded/world/asia/100000010909658/19INT-INDIA-TRUMP-RICKSHAWS-49432.html
+
+**Corrections: May 19, 2026**\
+`Corrections that appeared in print on Tuesday, May 19, 2026.`\
+https://www.nytimes.com/2026/05/19/pageoneplus/corrections-may-19-2026.html
+
+**Quote of the Day: Spotlight Left Greenland, but U.S. Interest Hasn’t Wavered**\
+`Quotation of the Day for Tuesday, May 19, 2026.`\
+https://www.nytimes.com/2026/05/18/pageoneplus/quote-of-the-day-spotlight-left-greenland-but-us-interest-hasnt-wavered.html
+
 **Trump Is Said to Have Proposed a New Helipad at the White House**\
 `The exhaust from helicopters’ engines has been known to occasionally scorch the grass on their landing zones.`\
 https://www.nytimes.com/2026/05/18/us/politics/trump-helipad-white-house.html
@@ -49,32 +77,4 @@ https://www.nytimes.com/2026/05/18/theater/the-emporium-review-thornton-wilder.h
 **New York to Review Press Credentialing After Mangione Backers’ Comments**\
 `After some of Luigi Mangione’s supporters made comments that were condemned as inflammatory, Mayor Zohran Mamdani’s office said it would review the process that gave them press passes.`\
 https://www.nytimes.com/2026/05/18/nyregion/mangione-supporters-press.html
-
-**La táctica de Trump sobre Taiwán ya es un regalo para China**\
-`La abierta disposición del presidente Trump a retrasar un paquete de armas para Taiwán por valor de 14.000 millones de dólares es una victoria para Pekín.`\
-https://www.nytimes.com/es/2026/05/18/espanol/mundo/trump-taiwan-armas-china.html
-
-**Más de 100.000 niños han sido separados de sus padres en la oleada de deportaciones de Trump, dice informe**\
-`Tres cuartas partes de los niños separados de sus padres son probablemente ciudadanos estadounidenses, según estimaciones de la Institución Brookings que se compartieron con The New York Times.`\
-https://www.nytimes.com/es/2026/05/18/espanol/estados-unidos/separacion-familias-ninos-deportaciones-estados-unidos.html
-
-**Southern California Fire Forces More Than 29,000 to Evacuate**\
-`Hundreds of firefighters battled a fast-moving brush fire that broke out in Simi Valley, Calif., on Monday.`\
-https://www.nytimes.com/video/us/100000010911340/wildfire-simi-valley-evacuations.html
-
-**A Burst of Violence Shattered the Peace of an Idyllic Neighborhood**\
-`First came a series of pops, then a race to render aid. It was too late.`\
-https://www.nytimes.com/2026/05/18/us/san-diego-mosque-attack-scene.html
-
-**A Beloved Whale Mural in Dallas Is Painted Over Ahead of the World Cup**\
-`The artwork’s removal ahead of the World Cup has ignited a backlash over public art and what cities are willing to sacrifice for global events.`\
-https://www.nytimes.com/2026/05/18/us/dallas-world-cup-wyland-whale-mural-painted-over.html
-
-**Here’s How Iran Could Respond to Renewed U.S.-Israeli Strikes**\
-`In any new round of fighting, Iranian officials could adopt new tactics, including intensified strikes on neighbors and trying to close off a second strait.`\
-https://www.nytimes.com/2026/05/18/world/middleeast/iran-war-retaliation-options.html
-
-**Mamdani, the ‘Tax-the-Rich’ Mayor, Reaches Out to Titans of Finance**\
-`Mayor Zohran Mamdani, who has angered some corporate executives with his tax policies, has had a recent series of meetings with top business leaders.`\
-https://www.nytimes.com/2026/05/18/nyregion/mamdani-dimon-solomon-meeting.html
 
