@@ -1,3 +1,7 @@
+**Lemon Bars With Olive Oil and Sea Salt**\
+`Traditional lemon bars balance the tangy sweetness of lemon curd with a rich shortbread crust. This recipe adds extra notes of flavor to the mix: the compelling bitterness of good olive oil and a touch of sea salt sprinkled on top.`\
+https://www.nytimes.com/video/dining/100000010912786/lemon-bars-with-olive-oil-and-sea-salt.html
+
 **Results in Key Races: May 19th**\
 `See results in the most-watched races of the night.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-key-races-may-19.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-oregon-us-house-6-
 **Pennsylvania Ninth Congressional District Primary Election Results**\
 `Get live results and maps from the 2026 Pennsylvania primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-pennsylvania-us-house-9-primary.html
-
-**Pennsylvania First Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 Pennsylvania primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-pennsylvania-us-house-1-primary.html
 
