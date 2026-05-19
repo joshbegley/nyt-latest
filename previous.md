@@ -1,3 +1,7 @@
+**Protests Have Paralyzed Bolivia. Here’s Why.**\
+`After two decades of leftist rule, many voters who backed Bolivia’s new, more conservative president say he’s made their lives harder and are demanding his removal.`\
+https://www.nytimes.com/2026/05/19/world/americas/bolivia-protests-la-paz.html
+
 **Kentucky Primary Election Results**\
 `Get live results and maps from the 2026 Kentucky primary elections.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-kentucky-primary.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-alabama-public-ser
 **Idaho First Congressional District Primary Election Results**\
 `Get live results and maps from the 2026 Idaho primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-idaho-us-house-1-primary.html
-
-**Alabama Lieutenant Governor Primary Election Results**\
-`Get live results and maps from the 2026 Alabama primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-alabama-lieutenant-governor-primary.html
 
