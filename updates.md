@@ -1,3 +1,7 @@
+**Trump’s Push to Defeat Massie Is the Most Expensive House Primary in Recent Years**\
+`The Republican primary in Representative Thomas Massie’s district has drawn vast spending, but it is just one of several contests on Tuesday that will test the power of big money.`\
+https://www.nytimes.com/2026/05/19/us/politics/trump-massie-kentucky-primary-spending.html
+
 **A billionaire’s ad barrage upended the Georgia race for governor.**\
 ``\
 https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/a-billionaires-ad-barrage-upended-the-georgia-race-for-governor
