@@ -1,3 +1,11 @@
+**Escribió un libro sobre la verdad en tiempos de la IA… con citas inventadas por la IA**\
+`Steven Rosenbaum, autor de ‘The Future of Truth’, dijo que había iniciado su propia investigación después de que este diario lo contactara para preguntarle sobre los pasajes en cuestión.`\
+https://www.nytimes.com/es/2026/05/19/espanol/negocios/libro-ia-citas-inventadas.html
+
+**Her House Was 3 Weeks Old. A Tornado Destroyed It in Less Than a Minute.**\
+`The tornado in Nebraska stayed on the ground for 11 minutes. A new subdivision called Dirt Road was wiped out, while nearby homes went untouched.`\
+https://www.nytimes.com/2026/05/19/us/tornado-nebraska-new-home.html
+
 **Amid Global Turmoil, Trump Takes a Moment for ‘the Thing I Do Best in Life’**\
 `President Trump showed off the construction on his ballroom project, providing a deeper look at the things that matter to him.`\
 https://www.nytimes.com/2026/05/19/us/politics/trump-white-house-builder.html
