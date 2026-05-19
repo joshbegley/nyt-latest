@@ -1,3 +1,19 @@
+**5 Things to Know About the Kentucky House Challenger Ed Gallrein**\
+`Mr. Gallrein has President Trump’s support in his bid to oust Representative Thomas Massie.`\
+https://www.nytimes.com/2026/05/19/us/politics/ed-gallrein-kentucky-republican-house-election.html
+
+**Georgia Supreme Court Justice Warren Seat Election Results**\
+`Get live results and maps from the 2026 Georgia election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-georgia-supreme-court-justice-warren-seat.html
+
+**Georgia Supreme Court Justice Bethel Seat Election Results**\
+`Get live results and maps from the 2026 Georgia election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-georgia-supreme-court-justice-bethel-seat.html
+
+**Georgia Supreme Court Justice Land Seat Election Results**\
+`Get live results and maps from the 2026 Georgia election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-georgia-supreme-court-justice-land-seat.html
+
 **Read the Provision Involving Audits of Trump’s Returns**\
 `Officials have agreed not to pursue any matters, including those involving Mr. Trump’s tax returns, that are currently pending. Here is the document that outlines this.`\
 https://www.nytimes.com/interactive/2026/05/19/us/politics/trump-irs-doj-lawsuit-audit-addendum.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-oregon-us-house-3-
 **Pennsylvania 13th Congressional District Primary Election Results**\
 `Get live results and maps from the 2026 Pennsylvania primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-pennsylvania-us-house-13-primary.html
-
-**Oregon Fifth Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 Oregon primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-oregon-us-house-5-primary.html
-
-**Kentucky Sixth Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 Kentucky primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-kentucky-us-house-6-primary.html
-
-**Oregon First Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 Oregon primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-oregon-us-house-1-primary.html
-
-**Idaho Superintendent of Public Instruction Primary Election Results**\
-`Get live results and maps from the 2026 Idaho primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-idaho-superintendent-of-public-instruction-primary.html
 
