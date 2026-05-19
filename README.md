@@ -1,3 +1,7 @@
+**San Diego Mosque Attack Comes Amid Rising Reports of Islamophobia**\
+`The Council on American-Islamic Relations said complaints about bias against Muslims are at levels unseen in decades.`\
+https://www.nytimes.com/2026/05/18/us/san-diego-mosque-shooting-islamaphobia.html
+
 **EE. UU. aumenta la presión sobre Cuba y sanciona a altos funcionarios**\
 `La medida supone una importante escalada en la campaña del gobierno de Trump para obligar al gobierno comunista a revisar su sistema económico y político.`\
 https://www.nytimes.com/es/2026/05/18/espanol/america-latina/sanciones-cuba-trump.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/18/weather/tornado-nebraska-kansas-storm.html
 **Jury Rejects Elon Musk’s Lawsuit Against OpenAI and Microsoft**\
 `Elon Musk had accused OpenAI of “stealing a charity” by attaching a commercial company to Open AI, which was founded as a nonprofit. But a jury ruled that the statute of limitations had expired.`\
 https://www.nytimes.com/video/business/media/100000010911130/openai-musk-trial-vertict.html
-
-**Why Josh Shapiro Isn’t Acting Like Other Potential 2028 Candidates**\
-`The Pennsylvania governor’s in-state focus is a contrast with other possible presidential hopefuls.`\
-https://www.nytimes.com/2026/05/18/us/politics/josh-shapiro-pennsylvania-2028.html
 
