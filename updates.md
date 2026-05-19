@@ -1,3 +1,31 @@
+**Last-Minute Donation Could Upend G.O.P. Primary for Texas Attorney General**\
+`A single donor’s contribution of $2.75 million could help propel Representative Chip Roy in his clash with a self-funded state senator, Mayes Middleton.`\
+https://www.nytimes.com/2026/05/19/us/chip-roy-donation-texas-attorney-general.html
+
+**At Cannes, the Movies Are Divisive and the Arguments Heated**\
+`Without strong front-runners for the Palme d’Or, every movie is getting mixed reactions, especially the sci-fi action film “Hope.”`\
+https://www.nytimes.com/2026/05/19/movies/cannes-film-festival-hope-all-of-a-sudden-paper-tiger.html
+
+**Trump’s Portrait Now Branded on Rickshaws in Delhi**\
+`The president is popping up on the back of the iconic three-wheeler to kick off America’s 250th anniversary celebrations in India.`\
+https://www.nytimes.com/2026/05/19/world/asia/india-trump-auto-rickshaws.html
+
+**Oil Slick Reaches a Pristine Persian Gulf Island in Iran**\
+`Videos show birds, turtles and crabs trapped inside mounds of tar around Shidvar island, a protected wildlife sanctuary with turquoise waters and white sand beaches.`\
+https://www.nytimes.com/2026/05/19/world/europe/oil-slick-reaches-a-pristine-persian-gulf-island-in-iran.html
+
+****\
+`The campaign, organized by the U.S. Embassy in India, features President Trump on some auto rickshaws and the Statue of Liberty on others.`\
+https://www.nytimes.com/video/embedded/world/asia/100000010909658/19INT-INDIA-TRUMP-RICKSHAWS-49432.html
+
+**Corrections: May 19, 2026**\
+`Corrections that appeared in print on Tuesday, May 19, 2026.`\
+https://www.nytimes.com/2026/05/19/pageoneplus/corrections-may-19-2026.html
+
+**Quote of the Day: Spotlight Left Greenland, but U.S. Interest Hasn’t Wavered**\
+`Quotation of the Day for Tuesday, May 19, 2026.`\
+https://www.nytimes.com/2026/05/18/pageoneplus/quote-of-the-day-spotlight-left-greenland-but-us-interest-hasnt-wavered.html
+
 **Trump Is Said to Have Proposed a New Helipad at the White House**\
 `The exhaust from helicopters’ engines has been known to occasionally scorch the grass on their landing zones.`\
 https://www.nytimes.com/2026/05/18/us/politics/trump-helipad-white-house.html
