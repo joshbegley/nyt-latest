@@ -1,3 +1,7 @@
+**Kentucky has long been home to curious political characters.**\
+``\
+https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/kentucky-has-long-been-home-to-curious-political-characters
+
 **The Maximalist Couple Who Are Each Other’s Style Enablers**\
 `They found someone who will always say yes to a second (or fourth) belt.`\
 https://www.nytimes.com/2026/05/19/style/street-style-look-fringe.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/19/crosswords/strands-sidekick-808.html
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/heres-the-latest
-
-**Cheap Trick: Debunking the ‘Magic’ of Mentalist Oz Pearlman**\
-`Magician Stevie Baskin explains to Pablo why he thinks this brand of “mind-reading” amounts to fraud.`\
-https://www.nytimes.com/2026/05/19/podcasts/cheap-trick-debunking-the-magic-of-mentalist-oz-pearlman.html
 

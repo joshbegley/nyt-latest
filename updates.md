@@ -1,3 +1,7 @@
+**Kentucky has long been home to curious political characters.**\
+``\
+https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/kentucky-has-long-been-home-to-curious-political-characters
+
 **The Maximalist Couple Who Are Each Other’s Style Enablers**\
 `They found someone who will always say yes to a second (or fourth) belt.`\
 https://www.nytimes.com/2026/05/19/style/street-style-look-fringe.html
