@@ -1,3 +1,39 @@
+**Did Drake Release 3 Albums to Get Out of His Contact?**\
+`On Friday, Drake’s triple album drop sparked theories about his ongoing situation with his label, Universal Music Group. Our “Popcast” hosts, Joe Coscarelli and Jon Caramanica, discuss the complicated realities of that relationship.`\
+https://www.nytimes.com/video/podcasts/100000010912774/did-drake-release-3-albums-to-get-out-of-his-contact.html
+
+**The ‘Energy and Movement’ That Dance and Painting Share**\
+`Julie Mehretu and John Jasperse are collaborating at the Marian Goodman Gallery: “How do we bring something to each other’s work that feels productive?”`\
+https://www.nytimes.com/2026/05/19/arts/dance/julie-mehretu-john-jasperse-marian-goodman-gallery-wandering.html
+
+**Rising Energy Prices and Data Centers Are at Center of a Utility Deal**\
+`NextEra’s proposed acquisition of Dominion Energy comes as Americans are paying a lot more for electricity, and data centers are demanding a lot more power from utilities.`\
+https://www.nytimes.com/2026/05/19/business/energy-environment/nextera-dominion-electricity-rates-data-centers.html
+
+**As a Weakened Putin Follows Trump to Beijing, Iran War Offers an Opening**\
+`With the upheaval in the Persian Gulf disrupting oil and gas supplies, Russia is looking to deepen its energy ties to China.`\
+https://www.nytimes.com/2026/05/19/world/europe/putin-china-state-visit.html
+
+**At the Korean Restaurant in Our Top 5, It’s All About Fermentation**\
+`Meju, in Queens (No. 4 on The Times’s list of New York’s 100 best), focuses first on healing and nourishment. Bonus: The food tastes terrific.`\
+https://www.nytimes.com/2026/05/19/dining/restaurant-review-meju-queens-nyc.html
+
+**Senate Republicans Introduce Funding Measure to Combat Online Child Abuse**\
+`As part of the reconciliation bill, the senators have allocated $108 million over three years to add nearly 200 specialists at the Department of Homeland Security.`\
+https://www.nytimes.com/2026/05/19/technology/senate-republicans-funding-combat-online-child-abuse.html
+
+**Today, In Short**\
+`Poison ivy. The best ketchups. And Alex Cooper is pregnant.`\
+https://www.nytimes.com/2026/05/19/briefing/today-in-short.html
+
+**Trump’s Special Envoy to Greenland Receives a Cold Welcome From Locals**\
+`After President Trump’s threats to seize the island, Gov. Jeff Landry’s offers of MAGA hats and chocolate chip cookies falls flat.`\
+https://www.nytimes.com/2026/05/19/world/europe/us-envoy-greenland-visit.html
+
+**How Do You Stop Amazon From Double-Parking? E-Bikes.**\
+`Small companies that handle the final delivery are relying on them to skirt New York City traffic. Amazon plans to try the bikes elsewhere, too.`\
+https://www.nytimes.com/2026/05/19/business/amazon-cargo-bikes-delivery.html
+
 **Iran War Exposes Shortcomings in U.S. Military Industrial Base**\
 `Defense Secretary Pete Hegseth is taking on a problem that the Pentagon and Congress have tried, and mostly failed, to address for years.`\
 https://www.nytimes.com/2026/05/19/us/politics/pentagon-weapons-drones-iran-war-hegseth.html
@@ -41,40 +77,4 @@ https://www.nytimes.com/2026/05/19/style/elon-musk-sam-altman-open-ai-trial-suit
 **Is ‘Maid of Honour’ Drake’s Real Flex?**\
 `On Friday, Drake dropped his long-awaited album “Iceman” alongside two surprise albums. On “Popcast,” our hosts Joe Coscarelli and Jon Caramanica discuss whether one of the unexpected releases, “Maid of Honour,” is the real main event.`\
 https://www.nytimes.com/video/podcasts/100000010910652/is-maid-of-honour-drakes-real-flex.html
-
-**How Has Your Shopping Changed in the Era of Weight-Loss Drugs?**\
-`In the last few years, weight-loss drugs like Ozempic have altered how many Americans think about clothes and getting dressed.`\
-https://www.nytimes.com/2026/05/19/style/ozempic-glp1-shopping-clothes-changed.html
-
-**Starbucks Korea C.E.O. Is Fired Over Ad That Stirred Memories of Brutal History**\
-`A marketing campaign called “Tank Day” coincided with the anniversary of a military dictatorship’s crackdown on pro-democracy demonstrators.`\
-https://www.nytimes.com/2026/05/19/world/asia/starbucks-korea-ceo-fired-tank-day.html
-
-**Kentucky has long been home to curious political characters.**\
-``\
-https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/kentucky-has-long-been-home-to-curious-political-characters
-
-**The Maximalist Couple Who Are Each Other’s Style Enablers**\
-`They found someone who will always say yes to a second (or fourth) belt.`\
-https://www.nytimes.com/2026/05/19/style/street-style-look-fringe.html
-
-**Trump’s Push to Defeat Massie Is the Most Expensive House Primary in Recent Years**\
-`The Republican primary in Representative Thomas Massie’s district has drawn vast spending, but it is just one of several contests on Tuesday that will test the power of big money.`\
-https://www.nytimes.com/2026/05/19/us/politics/trump-massie-kentucky-primary-spending.html
-
-**Student News Quiz: Political Summit, School Enrollment, Circulatory Systems**\
-`Have you been paying attention to current events recently? See how well you can do on this week’s news quiz for students.`\
-https://www.nytimes.com/interactive/2026/05/19/learning/19StudentNewsQuiz.html
-
-**A FOMO Moment for Mythos**\
-`Those without access to Anthropic’s artificial intelligence model worry they’re more vulnerable to cyber attacks, a concern the company is seeking to address.`\
-https://www.nytimes.com/2026/05/19/business/dealbook/mythos-ai-fomo-moment.html
-
-**A billionaire’s ad barrage upended the Georgia race for governor.**\
-``\
-https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/a-billionaires-ad-barrage-upended-the-georgia-race-for-governor
-
-**Peltola Debuts First Television Ad in High-Profile Alaska Senate Contest**\
-`Democrats face an uphill battle to win the Senate. They see in Mary Peltola, the first Native Alaskan elected to Congress, their best chance to unseat Senator Dan Sullivan.`\
-https://www.nytimes.com/2026/05/19/us/politics/19peltola-alaska-senate-ads.html
 
