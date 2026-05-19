@@ -1,3 +1,11 @@
+**Southern California Fire Forces More Than 23,000 to Evacuate**\
+`Hundreds of firefighters battled a fast-moving brush fire that broke out in Simi Valley, Calif., on Monday.`\
+https://www.nytimes.com/video/us/100000010911340/wildfire-simi-valley-evacuations.html
+
+**A Burst of Violence Shattered the Peace of an Idyllic Neighborhood**\
+`First came a series of pops, then a race to render aid. It was too late.`\
+https://www.nytimes.com/2026/05/18/us/san-diego-mosque-attack-scene.html
+
 **A Beloved Whale Mural in Dallas Is Painted Over Ahead of the World Cup**\
 `The artwork’s removal ahead of the World Cup has ignited a backlash over public art and what cities are willing to sacrifice for global events.`\
 https://www.nytimes.com/2026/05/18/us/dallas-world-cup-wyland-whale-mural-painted-over.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/es/2026/05/18/espanol/estados-unidos/jeffrey-epstein-arc
 **As L.I.R.R. Strike Continues, Tens of Thousands Endure Painful Commutes**\
 `Commuters took lengthy detours as a strike by Long Island Rail Road workers, who have been without raises for years, extended into a third day.`\
 https://www.nytimes.com/2026/05/18/nyregion/lirr-strike-long-island.html
-
-**Harvard Asks Federal Judge to Dismiss Trump Lawsuit**\
-`The Trump administration sued Harvard earlier this year over allegations it had not done enough to combat antisemitism on campus.`\
-https://www.nytimes.com/2026/05/18/us/politics/harvard-trump-lawsuit.html
-
-**L-I-R-R vs. Lurr: The Debate Splitting New York Commuters**\
-`Initialism or acronym? It doesn’t matter. No one can agree on how to pronounce it.`\
-https://www.nytimes.com/2026/05/18/nyregion/lirr-pronunciation-long-island.html
 

@@ -1,3 +1,11 @@
+**Southern California Fire Forces More Than 23,000 to Evacuate**\
+`Hundreds of firefighters battled a fast-moving brush fire that broke out in Simi Valley, Calif., on Monday.`\
+https://www.nytimes.com/video/us/100000010911340/wildfire-simi-valley-evacuations.html
+
+**A Burst of Violence Shattered the Peace of an Idyllic Neighborhood**\
+`First came a series of pops, then a race to render aid. It was too late.`\
+https://www.nytimes.com/2026/05/18/us/san-diego-mosque-attack-scene.html
+
 **A Beloved Whale Mural in Dallas Is Painted Over Ahead of the World Cup**\
 `The artwork’s removal ahead of the World Cup has ignited a backlash over public art and what cities are willing to sacrifice for global events.`\
 https://www.nytimes.com/2026/05/18/us/dallas-world-cup-wyland-whale-mural-painted-over.html
