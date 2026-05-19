@@ -66,7 +66,7 @@ https://www.nytimes.com/es/2026/05/19/espanol/mundo/democracia-muere-burocracia-
 `The political scientist Lee Drutman argues that we should switch to a system of proportional representation and put an end to our “trench warfare politics.”`\
 https://www.nytimes.com/2026/05/19/opinion/ezra-klein-podcast-lee-drutman.html
 
-**Trump Is Down. Can Democrats Go Up?**\
+**Is There a Door No. 3 for Democrats?**\
 `Is there anything Democrats can do to break free of a deeply polarized political system in which parties are constantly winning and then losing office?`\
 https://www.nytimes.com/2026/05/19/opinion/trump-democrats-republicans-midterms-moderation.html
 
