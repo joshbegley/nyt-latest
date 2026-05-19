@@ -1,3 +1,15 @@
+**Trump amenaza a Irán y luego se retracta, todo en el mismo día**\
+`El presidente de EE. UU. parece atrapado entre dos impulsos contrapuestos: obligar a Irán a someterse y declarar la victoria y seguir adelante.`\
+https://www.nytimes.com/es/2026/05/19/espanol/estados-unidos/trump-ataques-iran.html
+
+**3 Ways Operas Speak to the Moment, With Success and Failure**\
+`New works, “The Post Office” and “Constance: A Confession,” and a revival of Barber’s “Vanessa” show companies attempting to capture these nebulous times.`\
+https://www.nytimes.com/2026/05/19/arts/music/american-opera-projects-experiments-in-opera-heartbeat-opera.html
+
+**As Trump weighs in on primaries, his approval rating has sunk to a second-term low.**\
+``\
+https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/as-trump-weighs-in-on-primaries-his-approval-rating-has-sunk-to-a-second-term-low
+
 **Trump’s Special Envoy to Greenland Receives a Cold Welcome From Locals**\
 `After President Trump’s threats to seize the island, Gov. Jeff Landry’s offers of MAGA hats and chocolate chip cookies fall flat.`\
 https://www.nytimes.com/2026/05/19/world/europe/us-envoy-greenland-visit.html

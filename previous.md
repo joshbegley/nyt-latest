@@ -1,3 +1,15 @@
+**Trump amenaza a Irán y luego se retracta, todo en el mismo día**\
+`El presidente de EE. UU. parece atrapado entre dos impulsos contrapuestos: obligar a Irán a someterse y declarar la victoria y seguir adelante.`\
+https://www.nytimes.com/es/2026/05/19/espanol/estados-unidos/trump-ataques-iran.html
+
+**3 Ways Operas Speak to the Moment, With Success and Failure**\
+`New works, “The Post Office” and “Constance: A Confession,” and a revival of Barber’s “Vanessa” show companies attempting to capture these nebulous times.`\
+https://www.nytimes.com/2026/05/19/arts/music/american-opera-projects-experiments-in-opera-heartbeat-opera.html
+
+**As Trump weighs in on primaries, his approval rating has sunk to a second-term low.**\
+``\
+https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/as-trump-weighs-in-on-primaries-his-approval-rating-has-sunk-to-a-second-term-low
+
 **Did Drake Release 3 Albums to Get Out of His Contact?**\
 `On Friday, Drake’s triple album drop sparked theories about his ongoing situation with his label, Universal Music Group. Our “Popcast” hosts, Joe Coscarelli and Jon Caramanica, discuss the complicated realities of that relationship.`\
 https://www.nytimes.com/video/podcasts/100000010912774/did-drake-release-3-albums-to-get-out-of-his-contact.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/when-does-y
 **Book on Truth in the Age of A.I. Contains Quotes Made Up by A.I.**\
 `Steven Rosenbaum, author of “The Future of Truth,” said he had started his own investigation after The New York Times asked about the fake quotes.`\
 https://www.nytimes.com/2026/05/19/business/media/future-of-truth-ai-quotes.html
-
-**Broadway’s ‘Giant,’ With John Lithgow, Turns a Profit in 10 Weeks**\
-`The fast success of this play, about the children’s author Roald Dahl, is a rarity on Broadway, where most shows lose money.`\
-https://www.nytimes.com/2026/05/19/theater/giant-lithgow-broadway-recoup.html
-
-**In Musk vs. OpenAI, the Real Winner was the Suit**\
-`It was the one thing on which every major player could agree.`\
-https://www.nytimes.com/2026/05/19/style/elon-musk-sam-altman-open-ai-trial-suit.html
-
-**Is ‘Maid of Honour’ Drake’s Real Flex?**\
-`On Friday, Drake dropped his long-awaited album “Iceman” alongside two surprise albums. On “Popcast,” our hosts Joe Coscarelli and Jon Caramanica discuss whether one of the unexpected releases, “Maid of Honour,” is the real main event.`\
-https://www.nytimes.com/video/podcasts/100000010910652/is-maid-of-honour-drakes-real-flex.html
 
