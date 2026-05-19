@@ -1,3 +1,19 @@
+**The N.A.A.C.P. calls on Black athletes to boycott Southern states after redistricting.**\
+``\
+https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/the-naacp-calls-on-black-athletes-to-boycott-southern-states-after-redistricting
+
+**Así podría responder Irán si se reanudan los ataques de EE. UU. e Israel**\
+`En cualquier nueva ronda de combates, las autoridades iraníes podrían adoptar otras tácticas, como intensificar los ataques contra sus vecinos e intentar cerrar un segundo estrecho.`\
+https://www.nytimes.com/es/2026/05/19/espanol/mundo/ataques-iran-respuesta.html
+
+**Zapatero, expresidente del gobierno de España, es investigado por corrupción**\
+`José Luis Rodríguez Zapatero, quien dirigió España de 2004 a 2011, es acusado de tráfico de influencias tras dejar el cargo. Él ha negado haber cometido delito alguno.`\
+https://www.nytimes.com/es/2026/05/19/espanol/mundo/zapatero-espana-imputado.html
+
+**Google Changes Its Search Box for the First Time in 25 Years**\
+`Using a new Gemini A.I. model, the tech giant is overhauling its search box dimensions to answer longer queries, adding a video-generation tool and simplifying online shopping.`\
+https://www.nytimes.com/2026/05/19/business/google-seach-bar-ai-gemini.html
+
 **Worried About War’s Impact, Bond Investors Push Rates to Highest Level Since 2007**\
 `The 30-year U.S. Treasury yield hasn’t been this high since the lead up to the global financial crisis. Across Europe and Asia, yields are also elevated.`\
 https://www.nytimes.com/2026/05/19/business/bond-market-iran-war-inflation.html
