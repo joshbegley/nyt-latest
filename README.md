@@ -1,3 +1,15 @@
+**Pentagon Inspector General to Assess U.S. Boat Strikes**\
+`The inspector general’s office said it would evaluate whether U.S. Southern Command followed a six-part process for carrying out airstrikes.`\
+https://www.nytimes.com/2026/05/19/us/politics/pentagon-boat-strikes.html
+
+**In Georgia, a Target of Trump’s Ire Defends Election Workers**\
+`Brad Raffensperger, state’s top election official, is hoping to qualify for a runoff in the Republican primary for governor.`\
+https://www.nytimes.com/2026/05/19/us/politics/georgia-raffensperger-trump-election-workers.html
+
+**Deal on Compensation Fund Blocks I.R.S. Audits of Trump and His Family**\
+`In a one-page document quietly posted on the Justice Department’s website, officials vowed not to pursue any matters, including those involving President Trump’s tax returns, that are pending.`\
+https://www.nytimes.com/2026/05/19/us/trump-irs-doj-lawsuit-audit.html
+
 **E.P.A. Clears a Weedkiller, Saying It Won’t Push Species to Extinction**\
 `The finding effectively paves the way for continued use of atrazine, a widely used herbicide that has been linked to birth defects and cancer in humans.`\
 https://www.nytimes.com/2026/05/19/climate/epa-atrazine-endangered-species-maha.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/es/2026/05/19/espanol/mundo/andic-mango-hijo-muerte-padr
 **Original Plum Torte**\
 `First published in 1983, Marian Burros’s plum torte has become one of the most popular recipes in the history of The Times, and it’s no mystery why. There are so many things to love: It’s easy, it’s practically no-fail and it’s endlessly adaptable.`\
 https://www.nytimes.com/video/dining/100000010912790/original-plum-torte.html
-
-**6-Year-Old Twins Hurt in Bronx Fire Have Died, Father Says**\
-`The children’s 1-year-old brother, Liam, also died as a result of the fire. Officials said there has been a sharp increase in fire deaths this year.`\
-https://www.nytimes.com/2026/05/19/nyregion/bronx-fire-twins-death.html
-
-**Via Carota’s Insalata Verde**\
-`At Via Carota in Manhattan’s West Village, the menu description for insalata verde does little to give away any details about what makes it so unbelievably, mouth-smackingly perfect. In truth, all the secrets of this otherworldly salad lay in the graceful, unlikely application of a flavorless one: water.`\
-https://www.nytimes.com/video/dining/100000010912799/via-carotas-insalata-verde.html
-
-**Yum Yum Sauce**\
-`This mayonnaise-based Japanese steakhouse sauce tastes glorious with grilled shrimp, chicken and vegetables, or drizzled over a plate of fried rice.`\
-https://www.nytimes.com/video/dining/100000010912803/yum-yum-sauce.html
 
