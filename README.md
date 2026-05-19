@@ -1,3 +1,7 @@
+**The Police Clash with Anti-Government Protesters in Bolivia**\
+`The police fired tear gas at protesters who demanded the resignation of President Rodrigo Paz. Many of the voters who originally supported Mr. Paz, now say that they feel alienated by his actions and policies.`\
+https://www.nytimes.com/video/world/americas/100000010912715/bolivia-police-protest-president-paz.html
+
 **International Booker Prize Goes to a Love Story Out of Taiwan**\
 `“Taiwan Travelogue” is the first novel originally written in Mandarin to win the major award for fiction translated into English.`\
 https://www.nytimes.com/2026/05/19/books/international-booker-prize-taiwan-travelogue.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-idaho-us-senate-pr
 **Idaho Lieutenant Governor Primary Election Results**\
 `Get live results and maps from the 2026 Idaho primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-idaho-lieutenant-governor-primary.html
-
-**Oregon Second Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 Oregon primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-oregon-us-house-2-primary.html
 
