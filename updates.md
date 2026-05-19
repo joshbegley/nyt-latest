@@ -1,3 +1,7 @@
+**Blanche Defends $1.8 Billion Fund as Skepticism Mounts**\
+`The acting attorney general told lawmakers the fund would review claims from an array of people, not just Republicans.`\
+https://www.nytimes.com/2026/05/19/us/politics/blanche-congress-compensation-fund.html
+
 **Key Areas to Watch in Kentucky’s Republican Primaries**\
 `In a contentious House race, Representative Thomas Massie will look for strength in the Cincinnati suburbs.`\
 https://www.nytimes.com/2026/05/19/us/elections/kentucky-republican-primary-elections-counties.html

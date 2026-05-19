@@ -1,3 +1,7 @@
+**Blanche Defends $1.8 Billion Fund as Skepticism Mounts**\
+`The acting attorney general told lawmakers the fund would review claims from an array of people, not just Republicans.`\
+https://www.nytimes.com/2026/05/19/us/politics/blanche-congress-compensation-fund.html
+
 **Key Areas to Watch in Kentucky’s Republican Primaries**\
 `In a contentious House race, Representative Thomas Massie will look for strength in the Cincinnati suburbs.`\
 https://www.nytimes.com/2026/05/19/us/elections/kentucky-republican-primary-elections-counties.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/world/americas/100000010912715/bolivia-police-prot
 **International Booker Prize Goes to a Love Story Out of Taiwan**\
 `“Taiwan Travelogue” is the first novel originally written in Mandarin to win the major award for fiction translated into English.`\
 https://www.nytimes.com/2026/05/19/books/international-booker-prize-taiwan-travelogue.html
-
-**Trump’s Stock Trades Raise Eyebrows. The Family Says He Keeps His Hands Off.**\
-`The Trump Organization says the president’s financial investments are handled by outside firms and that it has no control over the timing or selection of transactions.`\
-https://www.nytimes.com/2026/05/19/us/politics/trump-stock-trades.html
 
