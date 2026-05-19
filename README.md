@@ -1,3 +1,11 @@
+**Las protestas han paralizado Bolivia. Estos son los motivos**\
+`El apoyo al presidente Rodrigo Paz ha ido menguando después de que tomó una serie de medidas que han sido consideradas como un distanciamiento con los sectores populares.`\
+https://www.nytimes.com/es/2026/05/19/espanol/america-latina/bolivia-protestas.html
+
+**Two friends are split over who should represent their Kentucky district.**\
+``\
+https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/two-friends-are-split-over-who-should-represent-their-kentucky-district
+
 **Kentucky U.S. Senate Primary Election Results**\
 `Get live results and maps from the 2026 Kentucky primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-kentucky-us-senate-primary.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/19/us/politics/trump-settlement-fund-congress.ht
 **Idaho Primary Election Results**\
 `Get live results and maps from the 2026 Idaho primary elections.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-idaho-primary.html
-
-**Oregon Primary Election Results**\
-`Get live results and maps from the 2026 Oregon primary elections.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-oregon-primary.html
-
-**What to Know About Tuesday’s Most Interesting House Primaries**\
-`In Kentucky, Thomas Massie is fighting off a Trump-backed challenger. Democrats in Pennsylvania have a big decision to make.`\
-https://www.nytimes.com/2026/05/19/us/politics/house-primaries-what-to-know.html
 
