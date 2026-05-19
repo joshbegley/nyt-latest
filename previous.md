@@ -1,3 +1,11 @@
+**This Pacific Island Nation Hopes You Will Call It by a New Name**\
+`Tiny Nauru could soon be called Naoero.`\
+https://www.nytimes.com/2026/05/18/world/nauru-naoero-country-name-change.html
+
+**Campfire Confection**\
+`Cheers to you, Brad Wiegmann.`\
+https://www.nytimes.com/2026/05/18/crosswords/daily-puzzle-2026-05-19.html
+
 **Colorado Supreme Court Orders Hospital to Restart Care for Transgender Minors**\
 `Children’s Hospital Colorado had halted hormone therapy and puberty blockers for transgender youths amid threats from the Trump administration to withhold funding from institutions that provide it.`\
 https://www.nytimes.com/2026/05/18/us/colorado-supreme-court-transgender-ruling.html
@@ -54,7 +62,7 @@ https://www.nytimes.com/2026/05/18/us/dallas-world-cup-wyland-whale-mural-painte
 `In any new round of fighting, Iranian officials could adopt new tactics, including intensified strikes on neighbors and trying to close off a second strait.`\
 https://www.nytimes.com/2026/05/18/world/middleeast/iran-war-retaliation-options.html
 
-**Mamdani, the ‘Tax-the-Rich’ Mayor, Meets With Titans of Finance**\
+**Mamdani, the ‘Tax-the-Rich’ Mayor, Reaches Out to Titans of Finance**\
 `Mayor Zohran Mamdani, who has angered some corporate executives with his tax policies, has had a recent series of meetings with top business leaders.`\
 https://www.nytimes.com/2026/05/18/nyregion/mamdani-dimon-solomon-meeting.html
 
@@ -69,12 +77,4 @@ https://www.nytimes.com/es/2026/05/18/espanol/estados-unidos/trump-indice-aproba
 **The Generation That Grew Up With A.I. Hates It**\
 `Why graduates are booing artificial intelligence.`\
 https://www.nytimes.com/2026/05/18/opinion/ai-boo-commencement-speeches.html
-
-**Officials Investigating San Diego Mosque Shooting as Possible Hate Crime**\
-`Three people were killed in an attack at the Islamic Center of San Diego on Monday. The authorities said a security guard who was fatally shot might have prevented a more deadly massacre.`\
-https://www.nytimes.com/video/us/100000010911471/san-diego-islamic-center-mosque-shooting.html
-
-**Pollock and Brancusi Join the $100 Million Club at Auction**\
-`A “drip” painting by the Abstract Expressionist sold for $181.2 million with fees, while a bronze head by the Romanian sculptor brought in $107.6 million at Christie’s, both from the S.I. Newhouse collection.`\
-https://www.nytimes.com/2026/05/18/arts/design/pollock-brancusi-christies-auction.html
 

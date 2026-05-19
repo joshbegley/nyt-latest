@@ -1,3 +1,15 @@
+**This Pacific Island Nation Hopes You Will Call It by a New Name**\
+`Tiny Nauru could soon be called Naoero.`\
+https://www.nytimes.com/2026/05/18/world/nauru-naoero-country-name-change.html
+
+**Campfire Confection**\
+`Cheers to you, Brad Wiegmann.`\
+https://www.nytimes.com/2026/05/18/crosswords/daily-puzzle-2026-05-19.html
+
+**Mamdani, the ‘Tax-the-Rich’ Mayor, Reaches Out to Titans of Finance**\
+`Mayor Zohran Mamdani, who has angered some corporate executives with his tax policies, has had a recent series of meetings with top business leaders.`\
+https://www.nytimes.com/2026/05/18/nyregion/mamdani-dimon-solomon-meeting.html
+
 **Colorado Supreme Court Orders Hospital to Restart Care for Transgender Minors**\
 `Children’s Hospital Colorado had halted hormone therapy and puberty blockers for transgender youths amid threats from the Trump administration to withhold funding from institutions that provide it.`\
 https://www.nytimes.com/2026/05/18/us/colorado-supreme-court-transgender-ruling.html
