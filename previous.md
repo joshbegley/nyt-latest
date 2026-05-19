@@ -1,3 +1,7 @@
+**El abogado principal del Tesoro renuncia tras el anuncio de un fondo que favorecería a aliados de Trump**\
+`Brian Morrissey, encargado jurídico principal del departamento, dejó su puesto horas después de que el gobierno de Trump diera a conocer el fondo de 1800 millones de dólares.`\
+https://www.nytimes.com/es/2026/05/19/espanol/estados-unidos/renuncia-abogado-tesoro.html
+
 **A New Brasserie Tempts With French Delights**\
 `Michel Lomonaco offers the classics at Brasserie Cognac Américain, Drāvida brings new tastes from the Indian diaspora, free Champagne dinners and more restaurant news.`\
 https://www.nytimes.com/2026/05/19/dining/nyc-restaurant-news.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/19/us/politics/world-cup-trump-andrew-giuliani.h
 **China Wants A.I. to Flourish, but Not at the Expense of Jobs**\
 `A series of precedent-setting rulings signals that Chinese courts are being enlisted to shield workers from displacement by artificial intelligence.`\
 https://www.nytimes.com/2026/05/19/business/china-ai-unemployment.html
-
-**Tesla’s Newest Electric Vehicle Could Jolt the Trucking Industry**\
-`California truckers have expressed strong interest in the Tesla Semi because it costs much less and can travel further on a charge than electric trucks sold by established manufacturers.`\
-https://www.nytimes.com/2026/05/19/business/energy-environment/teslas-semi-truck.html
 
