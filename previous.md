@@ -1,3 +1,31 @@
+**El hijo del fundador de Mango es detenido como sospechoso de la muerte de su padre**\
+`Isak Andic, el multimillonario que creó la marca española, murió mientras hacía senderismo con su hijo Jonathan en 2024.`\
+https://www.nytimes.com/es/2026/05/19/espanol/mundo/andic-mango-hijo-muerte-padre.html
+
+**Original Plum Torte**\
+`First published in 1983, Marian Burros’s plum torte has become one of the most popular recipes in the history of The Times, and it’s no mystery why. There are so many things to love: It’s easy, it’s practically no-fail and it’s endlessly adaptable.`\
+https://www.nytimes.com/video/dining/100000010912790/original-plum-torte.html
+
+**6-Year-Old Twins Hurt in Bronx Fire Have Died, Father Says**\
+`The children’s 1-year-old brother, Liam, also died as a result of the fire. Officials said there has been a sharp increase in fire deaths this year.`\
+https://www.nytimes.com/2026/05/19/nyregion/bronx-fire-twins-death.html
+
+**Via Carota’s Insalata Verde**\
+`At Via Carota in Manhattan’s West Village, the menu description for insalata verde does little to give away any details about what makes it so unbelievably, mouth-smackingly perfect. In truth, all the secrets of this otherworldly salad lay in the graceful, unlikely application of a flavorless one: water.`\
+https://www.nytimes.com/video/dining/100000010912799/via-carotas-insalata-verde.html
+
+**Yum Yum Sauce**\
+`This mayonnaise-based Japanese steakhouse sauce tastes glorious with grilled shrimp, chicken and vegetables, or drizzled over a plate of fried rice.`\
+https://www.nytimes.com/video/dining/100000010912803/yum-yum-sauce.html
+
+**Shrimp Scampi With Orzo**\
+`The universal appeal of shrimp scampi, frankly, isn’t the shrimp but the pan sauce: garlicky butter lightened with white wine and bursts of lemon, parsley and red-pepper flakes.`\
+https://www.nytimes.com/video/dining/100000010912793/shrimp-scampi-with-orzo.html
+
+**Baked Creole Tetrazzini**\
+`This spicy Creole tetrazzini was inspired by Cooking contributor Jerrelle Guy’s Auntie Nae’s special recipe.`\
+https://www.nytimes.com/video/dining/100000010912801/baked-creole-tetrazzini.html
+
 **Lemon Bars With Olive Oil and Sea Salt**\
 `Traditional lemon bars balance the tangy sweetness of lemon curd with a rich shortbread crust. This recipe adds extra notes of flavor to the mix: the compelling bitterness of good olive oil and a touch of sea salt sprinkled on top.`\
 https://www.nytimes.com/video/dining/100000010912786/lemon-bars-with-olive-oil-and-sea-salt.html
@@ -49,32 +77,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-key-races-may-19.h
 **Idaho Primary Election Results**\
 `Get live results and maps from the 2026 Idaho primary elections.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-idaho-primary.html
-
-**Georgia Primary Election Results**\
-`Get live results and maps from the 2026 Georgia primary elections.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-georgia-primary.html
-
-**Siria se ofrece como alternativa ante el bloqueo del estrecho de Ormuz**\
-`Con múltiples puertos mediterráneos y fronteras con Turquía, Irak, Jordania y Líbano, el país ofrece una alternativa desesperadamente necesaria al canal bloqueado.`\
-https://www.nytimes.com/es/2026/05/19/espanol/mundo/siria-estrecho-de-ormuz.html
-
-**Alabama Primary Election Results**\
-`Get live results and maps from the 2026 Alabama primary elections.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-alabama-primary.html
-
-**Georgia Governor Primary Election Results**\
-`Get live results and maps from the 2026 Georgia primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-georgia-governor-primary.html
-
-**Pennsylvania Governor Primary Election Results**\
-`Get live results and maps from the 2026 Pennsylvania primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-pennsylvania-governor-primary.html
-
-**Oregon Sixth Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 Oregon primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-oregon-us-house-6-primary.html
-
-**Pennsylvania Ninth Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 Pennsylvania primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-pennsylvania-us-house-9-primary.html
 

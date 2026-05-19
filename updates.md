@@ -1,3 +1,31 @@
+**El hijo del fundador de Mango es detenido como sospechoso de la muerte de su padre**\
+`Isak Andic, el multimillonario que creó la marca española, murió mientras hacía senderismo con su hijo Jonathan en 2024.`\
+https://www.nytimes.com/es/2026/05/19/espanol/mundo/andic-mango-hijo-muerte-padre.html
+
+**Original Plum Torte**\
+`First published in 1983, Marian Burros’s plum torte has become one of the most popular recipes in the history of The Times, and it’s no mystery why. There are so many things to love: It’s easy, it’s practically no-fail and it’s endlessly adaptable.`\
+https://www.nytimes.com/video/dining/100000010912790/original-plum-torte.html
+
+**6-Year-Old Twins Hurt in Bronx Fire Have Died, Father Says**\
+`The children’s 1-year-old brother, Liam, also died as a result of the fire. Officials said there has been a sharp increase in fire deaths this year.`\
+https://www.nytimes.com/2026/05/19/nyregion/bronx-fire-twins-death.html
+
+**Via Carota’s Insalata Verde**\
+`At Via Carota in Manhattan’s West Village, the menu description for insalata verde does little to give away any details about what makes it so unbelievably, mouth-smackingly perfect. In truth, all the secrets of this otherworldly salad lay in the graceful, unlikely application of a flavorless one: water.`\
+https://www.nytimes.com/video/dining/100000010912799/via-carotas-insalata-verde.html
+
+**Yum Yum Sauce**\
+`This mayonnaise-based Japanese steakhouse sauce tastes glorious with grilled shrimp, chicken and vegetables, or drizzled over a plate of fried rice.`\
+https://www.nytimes.com/video/dining/100000010912803/yum-yum-sauce.html
+
+**Shrimp Scampi With Orzo**\
+`The universal appeal of shrimp scampi, frankly, isn’t the shrimp but the pan sauce: garlicky butter lightened with white wine and bursts of lemon, parsley and red-pepper flakes.`\
+https://www.nytimes.com/video/dining/100000010912793/shrimp-scampi-with-orzo.html
+
+**Baked Creole Tetrazzini**\
+`This spicy Creole tetrazzini was inspired by Cooking contributor Jerrelle Guy’s Auntie Nae’s special recipe.`\
+https://www.nytimes.com/video/dining/100000010912801/baked-creole-tetrazzini.html
+
 **Lemon Bars With Olive Oil and Sea Salt**\
 `Traditional lemon bars balance the tangy sweetness of lemon curd with a rich shortbread crust. This recipe adds extra notes of flavor to the mix: the compelling bitterness of good olive oil and a touch of sea salt sprinkled on top.`\
 https://www.nytimes.com/video/dining/100000010912786/lemon-bars-with-olive-oil-and-sea-salt.html
