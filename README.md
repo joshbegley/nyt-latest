@@ -1,3 +1,7 @@
+**Colorado Supreme Court Orders Hospital to Restart Care for Transgender Minors**\
+`Children’s Hospital Colorado had halted hormone therapy and puberty blockers for transgender youths amid threats from the Trump administration to withhold funding from institutions that provide it.`\
+https://www.nytimes.com/2026/05/18/us/colorado-supreme-court-transgender-ruling.html
+
 **Top Treasury Lawyer Resigns After Creation of ‘Anti-Weaponization Fund’**\
 `Brian Morrissey, the department’s general counsel, stepped down hours after the Trump administration announced the $1.8 billion fund.`\
 https://www.nytimes.com/2026/05/18/business/anti-weaponization-fund-brian-morrissey-treasury.html
@@ -71,10 +75,6 @@ https://www.nytimes.com/2026/05/18/opinion/ai-boo-commencement-speeches.html
 https://www.nytimes.com/video/us/100000010911471/san-diego-islamic-center-mosque-shooting.html
 
 **Pollock and Brancusi Join the $100 Million Club at Auction**\
-`A “drip” painting by the Abstract Expressionist sold for $181.2 million with fees, while a bronze head by the Romanian sculptor, from the S.I. Newhouse collection, brought in  $107.6 million at Christie’s.`\
+`A “drip” painting by the Abstract Expressionist sold for $181.2 million with fees, while a bronze head by the Romanian sculptor brought in $107.6 million at Christie’s, both from the S.I. Newhouse collection.`\
 https://www.nytimes.com/2026/05/18/arts/design/pollock-brancusi-christies-auction.html
-
-**Frida Kahlo: un diccionario visual**\
-`Corsés de yeso, vestidos de tehuana, trajes masculinos y monos araña: estos son los elementos que hicieron de Frida Kahlo un ícono irrepetible.`\
-https://www.nytimes.com/es/2026/05/18/espanol/frida-kahlo-estilo.html
 
