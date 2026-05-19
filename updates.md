@@ -1,3 +1,11 @@
+**E.P.A. Clears a Weedkiller, Saying It Won’t Push Species to Extinction**\
+`The finding effectively paves the way for continued use of atrazine, a widely used herbicide that has been linked to birth defects and cancer in humans.`\
+https://www.nytimes.com/2026/05/19/climate/epa-atrazine-endangered-species-maha.html
+
+**Who is Ken Paxton, Trump’s pick in the Texas Senate race?**\
+``\
+https://www.nytimes.com/2026/05/19/us/politics/who-is-ken-paxton-trumps-pick-in-the-texas-senate-race.html
+
 **The N.A.A.C.P. calls on Black athletes to boycott Southern states after redistricting.**\
 ``\
 https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/the-naacp-calls-on-black-athletes-to-boycott-southern-states-after-redistricting

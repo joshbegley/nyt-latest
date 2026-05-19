@@ -1,3 +1,7 @@
+**E.P.A. Clears a Weedkiller, Saying It Won’t Push Species to Extinction**\
+`The finding effectively paves the way for continued use of atrazine, a widely used herbicide that has been linked to birth defects and cancer in humans.`\
+https://www.nytimes.com/2026/05/19/climate/epa-atrazine-endangered-species-maha.html
+
 **The N.A.A.C.P. calls on Black athletes to boycott Southern states after redistricting.**\
 ``\
 https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/the-naacp-calls-on-black-athletes-to-boycott-southern-states-after-redistricting
@@ -28,7 +32,7 @@ https://www.nytimes.com/2026/05/19/arts/music/amplifier-newsletter-kurt-vile-mik
 
 **Who is Ken Paxton, Trump’s pick in the Texas Senate race?**\
 ``\
-https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/who-is-ken-paxton-trumps-pick-in-the-texas-senate-race
+https://www.nytimes.com/2026/05/19/us/politics/who-is-ken-paxton-trumps-pick-in-the-texas-senate-race.html
 
 **Google Changes Its Search Box for the First Time in 25 Years**\
 `Using a new Gemini A.I. model, the tech giant is overhauling its search box dimensions to answer longer queries, adding a video-generation tool and simplifying online shopping.`\
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/dining/100000010912799/via-carotas-insalata-verde.
 **Yum Yum Sauce**\
 `This mayonnaise-based Japanese steakhouse sauce tastes glorious with grilled shrimp, chicken and vegetables, or drizzled over a plate of fried rice.`\
 https://www.nytimes.com/video/dining/100000010912803/yum-yum-sauce.html
-
-**Shrimp Scampi With Orzo**\
-`The universal appeal of shrimp scampi, frankly, isn’t the shrimp but the pan sauce: garlicky butter lightened with white wine and bursts of lemon, parsley and red-pepper flakes.`\
-https://www.nytimes.com/video/dining/100000010912793/shrimp-scampi-with-orzo.html
 
