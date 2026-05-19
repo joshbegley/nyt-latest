@@ -1,3 +1,7 @@
+**Nacionalismo vs. nacionalismo**\
+`Un nacionalismo progresista y pluralista se impuso en las urnas en Escocia y Gales. ¿Podría cobrar fuerza en otros lugares?`\
+https://www.nytimes.com/es/2026/05/19/espanol/mundo/nacionalismo-escocia-gales.html
+
 **A Trump Dissenter Fights for His Political Life**\
 `In a Republican primary for a House seat in Kentucky, Rep. Thomas Massie is facing off against Ed Gallrein, who is backed by the president.`\
 https://www.nytimes.com/2026/05/19/podcasts/the-daily/kentucky-primary-masse-gallerin.html
