@@ -1,3 +1,7 @@
+**A Beloved Whale Mural in Dallas Is Painted Over Ahead of the World Cup**\
+`The artwork’s removal ahead of the World Cup has ignited a backlash over public art and what cities are willing to sacrifice for global events.`\
+https://www.nytimes.com/2026/05/18/us/dallas-world-cup-wyland-whale-mural-painted-over.html
+
 **Here’s How Iran Could Respond to Renewed U.S.-Israeli Strikes**\
 `In any new round of fighting, Iranian officials could adopt new tactics, including intensified strikes on neighbors and trying to close off a second strait.`\
 https://www.nytimes.com/2026/05/18/world/middleeast/iran-war-retaliation-options.html

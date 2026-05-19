@@ -1,3 +1,7 @@
+**A Beloved Whale Mural in Dallas Is Painted Over Ahead of the World Cup**\
+`The artwork’s removal ahead of the World Cup has ignited a backlash over public art and what cities are willing to sacrifice for global events.`\
+https://www.nytimes.com/2026/05/18/us/dallas-world-cup-wyland-whale-mural-painted-over.html
+
 **Here’s How Iran Could Respond to Renewed U.S.-Israeli Strikes**\
 `In any new round of fighting, Iranian officials could adopt new tactics, including intensified strikes on neighbors and trying to close off a second strait.`\
 https://www.nytimes.com/2026/05/18/world/middleeast/iran-war-retaliation-options.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/18/us/politics/harvard-trump-lawsuit.html
 **L-I-R-R vs. Lurr: The Debate Splitting New York Commuters**\
 `Initialism or acronym? It doesn’t matter. No one can agree on how to pronounce it.`\
 https://www.nytimes.com/2026/05/18/nyregion/lirr-pronunciation-long-island.html
-
-**Elon Musk Loses His Blockbuster Case Against OpenAI**\
-`Also, a railroad strike disrupts commutes into New York City. Here’s the latest at the end of Monday.`\
-https://www.nytimes.com/2026/05/18/briefing/elon-musk-openai-trial.html
 
