@@ -1,3 +1,23 @@
+**La búsqueda subterránea de un combustible limpio**\
+`El sueño del hidrógeno limpio ha seducido a los expertos en energía durante años, pero producirlo ha sido difícil. Muchas empresas emergentes creen que la respuesta podría estar bajo nuestros pies.`\
+https://www.nytimes.com/es/2026/05/19/espanol/tiempo-y-clima/hidrogeno-energia-limpia.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/19/crosswords/spelling-bee-forum.html
+
+**Clubs**\
+`Do you belong to any? If you could start a club around anything, what would it be, and why?`\
+https://www.nytimes.com/2026/05/19/learning/clubs.html
+
+**Interest in N.Y.C. Pre-K Programs Is Flat, Despite Mamdani’s Outreach**\
+`Expanding child care is a pillar of Mayor Zohran Mamdani’s affordability agenda. Newly released application numbers may raise questions about strategy and demand.`\
+https://www.nytimes.com/2026/05/19/nyregion/nyc-prek-enrollment-mamdani.html
+
+**Motherhood Changed Ilana Glazer. A Reporter Knew What That Felt Like.**\
+`Sometimes a reporter and subject can converse on a common ground.`\
+https://www.nytimes.com/2026/05/19/us/ilana-glazer-motherhood.html
+
 **Deal Ends Long Island Rail Road Strike**\
 `The Long Island Rail Road strike ended after transit officials and union representatives reached a deal. Tuesday’s commute was expected to be disrupted even as regular train service resumed.`\
 https://www.nytimes.com/video/us/100000010910715/long-island-railroad-union-strike-nyc.html
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/05/18/us/san-diego-mosque-shooting-search.html
 **Justices Hint at Strains as Supreme Court Comes Under Scrutiny**\
 `Traveling across the country, justices defend the role of the court even as strained relations among its members emerge in writing and remarks.`\
 https://www.nytimes.com/2026/05/18/us/politics/supreme-court-political-tensions.html
-
-**This Pacific Island Nation Hopes You Will Call It by a New Name**\
-`Tiny Nauru could soon be called Naoero.`\
-https://www.nytimes.com/2026/05/18/world/nauru-naoero-country-name-change.html
-
-**Campfire Confection**\
-`Cheers to you, Brad Wiegmann.`\
-https://www.nytimes.com/2026/05/18/crosswords/daily-puzzle-2026-05-19.html
-
-**Colorado Supreme Court Orders Hospital to Restart Care for Transgender Minors**\
-`Children’s Hospital Colorado had halted hormone therapy and puberty blockers for transgender youths amid threats from the Trump administration to withhold funding from institutions that provide it.`\
-https://www.nytimes.com/2026/05/18/us/colorado-supreme-court-transgender-ruling.html
-
-**Top Treasury Lawyer Resigns After Creation of ‘Anti-Weaponization Fund’**\
-`Brian Morrissey, the department’s general counsel, stepped down hours after the Trump administration announced the $1.8 billion fund.`\
-https://www.nytimes.com/2026/05/18/business/anti-weaponization-fund-brian-morrissey-treasury.html
-
-**Trump Moves to Admit 10,000 More White South Africans as Refugees**\
-`The Trump administration argues that an “emergency refugee situation” in South Africa merits bringing more Afrikaners to America, at a cost of some $100 million.`\
-https://www.nytimes.com/2026/05/18/us/politics/trump-afrikaner-refugees.html
 
