@@ -1,3 +1,11 @@
+**Read the Provision Involving Audits of Trump’s Returns**\
+`Officials have agreed not to pursue any matters, including those involving Mr. Trump’s tax returns, that are currently pending. Here is the document that outlines this.`\
+https://www.nytimes.com/interactive/2026/05/19/us/politics/trump-irs-doj-lawsuit-audit-addendum.html
+
+**What is the Bundibugyo Virus Involved in the Ebola Outbreak?**\
+`Here’s what to know about the symptoms and spread of the virus, which has sickened people in the Democratic Republic of Congo and Uganda.`\
+https://www.nytimes.com/2026/05/19/well/ebola-bundibugyo-virus-symptoms.html
+
 **When to Expect Results in Tuesday’s Primaries**\
 `Polls begin closing in some states at 6 p.m. Eastern time, but the counting is already underway in some areas.`\
 https://www.nytimes.com/2026/05/19/us/politics/election-results-timing.html
