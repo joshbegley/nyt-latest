@@ -1,3 +1,7 @@
+**Deal Ends Long Island Rail Road Strike**\
+`The Long Island Rail Road strike ended after transit officials and union representatives reached a deal. Tuesday’s commute was expected to be disrupted even as regular train service resumed.`\
+https://www.nytimes.com/video/us/100000010910715/long-island-railroad-union-strike-nyc.html
+
 **Jon Stewart Asks What ‘Daddy’ Brought Back From China**\
 `“He was gone for a couple of days in China. We were scared,” Stewart said of President Trump on Monday’s “The Daily Show.” “But now he’s home, and I’m sure he brought us all the goodies.”`\
 https://www.nytimes.com/2026/05/19/arts/television/jon-stewart-trump-china.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/18/business/anti-weaponization-fund-brian-morris
 **Trump Moves to Admit 10,000 More White South Africans as Refugees**\
 `The Trump administration argues that an “emergency refugee situation” in South Africa merits bringing more Afrikaners to America, at a cost of some $100 million.`\
 https://www.nytimes.com/2026/05/18/us/politics/trump-afrikaner-refugees.html
-
-**Judge Bars ICE From Making Immigration Arrests at Courts in New York**\
-`The Trump administration’s practice of detaining migrants at federal courthouses had stirred outrage.`\
-https://www.nytimes.com/2026/05/18/nyregion/ice-immigrant-arrests-nyc-courts.html
 
