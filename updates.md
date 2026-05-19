@@ -1,3 +1,7 @@
+**6 New Songs You Should Hear Now**\
+`Listen to Kurt Vile’s poetic rock, Nia Archives’s electric earworm and a new tune from Mike D.`\
+https://www.nytimes.com/2026/05/19/arts/music/amplifier-newsletter-kurt-vile-mike-d.html
+
 **Who is Ken Paxton, Trump’s pick in the Texas Senate race?**\
 ``\
 https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/who-is-ken-paxton-trumps-pick-in-the-texas-senate-race
