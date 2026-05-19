@@ -10,13 +10,13 @@ https://www.nytimes.com/2026/05/19/crosswords/spelling-bee-forum.html
 `Do you belong to any? If you could start a club around anything, what would it be, and why?`\
 https://www.nytimes.com/2026/05/19/learning/clubs.html
 
-**Interest in N.Y.C. Pre-K Programs Is Flat, Despite Mamdani’s Outreach**\
-`Expanding child care is a pillar of Mayor Zohran Mamdani’s affordability agenda. Newly released application numbers may raise questions about strategy and demand.`\
-https://www.nytimes.com/2026/05/19/nyregion/nyc-prek-enrollment-mamdani.html
-
 **Motherhood Changed Ilana Glazer. A Reporter Knew What That Felt Like.**\
 `Sometimes a reporter and subject can converse on a common ground.`\
 https://www.nytimes.com/2026/05/19/us/ilana-glazer-motherhood.html
+
+**Interest in N.Y.C. Pre-K Programs Is Flat, Despite Mamdani’s Outreach**\
+`Expanding child care is a pillar of Mayor Zohran Mamdani’s affordability agenda. Newly released application numbers may raise questions about strategy and demand.`\
+https://www.nytimes.com/2026/05/19/nyregion/nyc-prek-enrollment-mamdani.html
 
 **Deal Ends Long Island Rail Road Strike**\
 `The Long Island Rail Road strike ended after transit officials and union representatives reached a deal. Tuesday’s commute was expected to be disrupted even as regular train service resumed.`\
