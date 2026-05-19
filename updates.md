@@ -1,3 +1,7 @@
+**Trump’s Special Envoy to Greenland Receives a Cold Welcome From Locals**\
+`After President Trump’s threats to seize the island, Gov. Jeff Landry’s offers of MAGA hats and chocolate chip cookies fall flat.`\
+https://www.nytimes.com/2026/05/19/world/europe/us-envoy-greenland-visit.html
+
 **Did Drake Release 3 Albums to Get Out of His Contact?**\
 `On Friday, Drake’s triple album drop sparked theories about his ongoing situation with his label, Universal Music Group. Our “Popcast” hosts, Joe Coscarelli and Jon Caramanica, discuss the complicated realities of that relationship.`\
 https://www.nytimes.com/video/podcasts/100000010912774/did-drake-release-3-albums-to-get-out-of-his-contact.html
