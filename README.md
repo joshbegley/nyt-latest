@@ -1,3 +1,7 @@
+**L.I.R.R. Workers Are in Line for Raises, but at What Cost to New York?**\
+`Details are still emerging about the contract reached after a three-day strike that shut down America’s busiest passenger rail service. But the fallout could be felt for years.`\
+https://www.nytimes.com/2026/05/19/nyregion/lirr-strike-contract-fallout.html
+
 **Who Are the Suspects in the San Diego Mosque Shooting?**\
 `Authorities identified the teenagers they say killed three men, and then themselves, in an attack on the largest mosque in the county.`\
 https://www.nytimes.com/2026/05/19/us/san-diego-mosque-cain-clark-caleb-vazquez.html
@@ -69,8 +73,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-alabama-treasurer-
 **Alabama Supreme Court Primary Election Results**\
 `Get live results and maps from the 2026 Alabama primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-alabama-supreme-court-primary.html
-
-**Oregon U.S. Senate Primary Election Results**\
-`Get live results and maps from the 2026 Oregon primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-oregon-us-senate-primary.html
 

@@ -74,7 +74,3 @@ https://www.nytimes.com/interactive/2026/us/elections/results-alabama-supreme-co
 `Get live results and maps from the 2026 Oregon primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-oregon-us-senate-primary.html
 
-**Oregon Labor Commissioner Election Results**\
-`Get live results and maps from the 2026 Oregon election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-oregon-labor-commissioner.html
-
