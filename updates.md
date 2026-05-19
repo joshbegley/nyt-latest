@@ -1,3 +1,19 @@
+**A billionaire’s ad barrage upended the Georgia race for governor.**\
+``\
+https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/a-billionaires-ad-barrage-upended-the-georgia-race-for-governor
+
+**Georgia Republicans are grasping for a contender to challenge Senator Jon Ossoff.**\
+``\
+https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/georgia-republicans-are-grasping-for-a-contender-to-challenge-senator-jon-ossoff
+
+**The war on Iran has complicated a closely watched Republican primary.**\
+``\
+https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/the-war-on-iran-has-complicated-a-closely-watched-republican-primary
+
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/heres-the-latest
+
 **Student News Quiz: Political Summit, School Enrollment, Circulatory Systems**\
 `Have you been paying attention to current events recently? See how well you can do on this week’s news quiz for students.`\
 https://www.nytimes.com/interactive/2026/05/19/learning/19StudentNewsQuiz.html
