@@ -1,3 +1,7 @@
+**El hijo del fundador de Mango es detenido como sospechoso de la muerte de su padre**\
+`Isak Andic, el multimillonario que creó la marca española, murió mientras hacía senderismo con su hijo Jonathan en 2024.`\
+https://www.nytimes.com/es/2026/05/19/espanol/mundo/andic-mango-hijo-muerte-padre.html
+
 **Original Plum Torte**\
 `First published in 1983, Marian Burros’s plum torte has become one of the most popular recipes in the history of The Times, and it’s no mystery why. There are so many things to love: It’s easy, it’s practically no-fail and it’s endlessly adaptable.`\
 https://www.nytimes.com/video/dining/100000010912790/original-plum-torte.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-key-races-may-19.h
 **Idaho Primary Election Results**\
 `Get live results and maps from the 2026 Idaho primary elections.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-idaho-primary.html
-
-**Georgia Primary Election Results**\
-`Get live results and maps from the 2026 Georgia primary elections.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-georgia-primary.html
 
