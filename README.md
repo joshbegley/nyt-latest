@@ -1,3 +1,7 @@
+**Trump’s Push to Defeat Massie Is the Most Expensive House Primary in Recent Years**\
+`The Republican primary in Representative Thomas Massie’s district has drawn vast spending, but it is just one of several contests on Tuesday that will test the power of big money.`\
+https://www.nytimes.com/2026/05/19/us/politics/trump-massie-kentucky-primary-spending.html
+
 **Student News Quiz: Political Summit, School Enrollment, Circulatory Systems**\
 `Have you been paying attention to current events recently? See how well you can do on this week’s news quiz for students.`\
 https://www.nytimes.com/interactive/2026/05/19/learning/19StudentNewsQuiz.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/19/podcasts/cheap-trick-debunking-the-magic-of-m
 **Ebola Cases Rise Sharply as Medical Workers Scramble for Supplies**\
 `Medical workers in the Democratic Republic of Congo are experiencing a shortage of supplies as the number of suspected Ebola cases has passed 500, according to officials.`\
 https://www.nytimes.com/video/world/africa/100000010911915/ebola-outbreak-congo-medical-supplies.html
-
-**Here’s the latest.**\
-``\
-https://www.nytimes.com/live/2026/05/19/nyregion/lirr-strike/heres-the-latest
 
