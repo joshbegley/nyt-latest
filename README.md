@@ -1,3 +1,7 @@
+**A Fearful Phone Call and a Frantic Search Preceded Mosque Shooting**\
+`San Diego police arrived to find three people dead. Nearby, they found two teenagers, the attackers, dead in a car. The violence shattered an idyllic Southern California city.`\
+https://www.nytimes.com/2026/05/18/us/san-diego-mosque-shooting-search.html
+
 **Justices Hint at Strains as Supreme Court Comes Under Scrutiny**\
 `Traveling across the country, justices defend the role of the court even as strained relations among its members emerge in writing and remarks.`\
 https://www.nytimes.com/2026/05/18/us/politics/supreme-court-political-tensions.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/18/nyregion/mamdani-dimon-solomon-meeting.html
 **U.S., Escalating Pressure on Cuba, Hits Top Officials With Sanctions**\
 `The Trump administration, ratcheting up its effort to cripple the Cuban government, also imposed sanctions on three government agencies, including the police.`\
 https://www.nytimes.com/2026/05/18/world/americas/cuba-sanctions-us.html
-
-**Las encuestas muestran la aprobación de Trump en un nuevo punto bajo**\
-`Un índice de aprobación del 37 por ciento en una nueva encuesta de Times/Siena sugiere que el Partido Republicano se enfrenta a un problema a mitad de legislatura.`\
-https://www.nytimes.com/es/2026/05/18/espanol/estados-unidos/trump-indice-aprobacion-encuestas.html
 
