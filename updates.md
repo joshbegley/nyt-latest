@@ -1,3 +1,11 @@
+**Here’s How Iran Could Respond to Renewed U.S.-Israeli Strikes**\
+`In any new round of fighting, Iranian officials could adopt new tactics, including intensified strikes on neighbors and trying to close off a second strait.`\
+https://www.nytimes.com/2026/05/18/world/middleeast/iran-war-retaliation-options.html
+
+**Mamdani, the ‘Tax-the-Rich’ Mayor, Meets With Titans of Finance**\
+`Mayor Zohran Mamdani, who has angered some corporate executives with his tax policies, has had a recent series of meetings with top business leaders.`\
+https://www.nytimes.com/2026/05/18/nyregion/mamdani-dimon-solomon-meeting.html
+
 **U.S., Escalating Pressure on Cuba, Hits Top Officials With Sanctions**\
 `The Trump administration, ratcheting up its effort to cripple the Cuban government, also imposed sanctions on three government agencies, including the police.`\
 https://www.nytimes.com/2026/05/18/world/americas/cuba-sanctions-us.html
