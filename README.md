@@ -1,3 +1,7 @@
+**Trump’s Stock Trades Raise Eyebrows. The Family Says He Keeps His Hands Off.**\
+`The Trump Organization says the president’s financial investments are handled by outside firms and that it has no control over the timing or selection of transactions.`\
+https://www.nytimes.com/2026/05/19/us/politics/trump-stock-trades.html
+
 **What the End of Aid Looks Like**\
 `The United States and other countries are cutting humanitarian relief. Our reporter went to Somalia to see the impact.`\
 https://www.nytimes.com/2026/05/19/world/aid-cuts-somalia-putin-china.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-oregon-us-house-2-
 **Pennsylvania Fourth Congressional District Primary Election Results**\
 `Get live results and maps from the 2026 Pennsylvania primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-pennsylvania-us-house-4-primary.html
-
-**Pennsylvania Lieutenant Governor Primary Election Results**\
-`Get live results and maps from the 2026 Pennsylvania primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-pennsylvania-lieutenant-governor-primary.html
 
