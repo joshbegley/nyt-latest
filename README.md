@@ -15,7 +15,7 @@ https://www.nytimes.com/es/2026/05/19/espanol/mundo/ataques-iran-respuesta.html
 https://www.nytimes.com/es/2026/05/19/espanol/mundo/zapatero-espana-imputado.html
 
 **Worried About War’s Impact, Bond Investors Push Rates to Highest Level Since 2007**\
-`The 30-year U.S. Treasury yield hasn’t been this high since the lead up to the global financial crisis. Across Europe and Asia, yields are also elevated.`\
+`The 30-year U.S. Treasury yield hasn’t been this high since the lead-up to the global financial crisis. Across Europe and Asia, yields are also elevated.`\
 https://www.nytimes.com/2026/05/19/business/bond-market-iran-war-inflation.html
 
 **Republican Senators Are Livid at Trump’s Endorsement of Paxton**\
