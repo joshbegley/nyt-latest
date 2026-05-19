@@ -1,3 +1,23 @@
+**5 Things to Know About the Georgia Senate Candidate Mike Collins**\
+`The congressman is a Trump acolyte who has a history of incendiary social media posts.`\
+https://www.nytimes.com/2026/05/19/us/politics/mike-collins-georgia-republican-senate-election.html
+
+**5 Things to Know About the Georgia Senate Candidate Derek Dooley**\
+`Mr. Dooley is a former football coach running in the Republican primary with the support of Gov. Brian Kemp.`\
+https://www.nytimes.com/2026/05/19/us/politics/derek-dooley-georgia-republican-senate-election.html
+
+**5 Things to Know About the Georgia Senate Candidate Buddy Carter**\
+`The congressman is a Trump acolyte who has found some common ground with Democrats on energy issues.`\
+https://www.nytimes.com/2026/05/19/us/politics/buddy-carter-georgia-republican-senate-election.html
+
+**5 Things to Know About Senator Jon Ossoff of Georgia**\
+`He is the youngest member of the Senate and once volunteered for the civil rights leader John Lewis’s congressional office.`\
+https://www.nytimes.com/2026/05/19/us/politics/jon-ossoff-georgia-democrat-senate-election.html
+
+**Under a Cloud of Uncertainty, Alabama Voters Head to the Polls**\
+`Voters in Alabama cast their ballots, unsure about whether a recent Supreme Court decision would change their congressional districts going forward.`\
+https://www.nytimes.com/2026/05/19/us/politics/uncertainty-alabama-voters.html
+
 **What the Senate Primary Polls Tell Us in Georgia, Alabama and Kentucky**\
 `The Republican primaries in all three states are expected to be competitive, with two of them likely to advance to runoff elections.`\
 https://www.nytimes.com/2026/05/19/us/elections/republican-senate-primaries-georgia-alabama-kentucky.html
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/05/19/briefing/irs-audits-trump-deal.html
 **5 Things to Know About Representative Thomas Massie of Kentucky**\
 `President Trump has backed his primary challenger, seeking to oust the libertarian-leaning congressman and longtime antagonist.`\
 https://www.nytimes.com/2026/05/19/us/politics/thomas-massie-kentucky-republican-house-election.html
-
-**5 Things to Know About the Kentucky House Challenger Ed Gallrein**\
-`Mr. Gallrein has President Trump’s support in his bid to oust Representative Thomas Massie.`\
-https://www.nytimes.com/2026/05/19/us/politics/ed-gallrein-kentucky-republican-house-election.html
-
-**Read the Provision Involving Audits of Trump’s Returns**\
-`Officials have agreed not to pursue any matters, including those involving Mr. Trump’s tax returns, that are currently pending. Here is the document that outlines this.`\
-https://www.nytimes.com/interactive/2026/05/19/us/politics/trump-irs-doj-lawsuit-audit-addendum.html
-
-**What is the Bundibugyo Virus Involved in the Ebola Outbreak?**\
-`Here’s what to know about the symptoms and spread of the virus, which has sickened people in the Democratic Republic of Congo and Uganda.`\
-https://www.nytimes.com/2026/05/19/well/ebola-bundibugyo-virus-symptoms.html
-
-**When to Expect Results in Tuesday’s Primaries**\
-`Polls begin closing in some states at 6 p.m. Eastern time, but the counting is already underway in some areas.`\
-https://www.nytimes.com/2026/05/19/us/politics/election-results-timing.html
-
-**The Police Clash with Anti-Government Protesters in Bolivia**\
-`The police fired tear gas at protesters who demanded the resignation of President Rodrigo Paz. Many of the voters who originally supported Mr. Paz, now say that they feel alienated by his actions and policies.`\
-https://www.nytimes.com/video/world/americas/100000010912715/bolivia-police-protest-president-paz.html
 
