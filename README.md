@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/05/19/us/election-kentucky-pennsylvania-georgia/heres-the-latest
+
+**Cheap Trick: Debunking the ‘Magic’ of Mentalist Oz Pearlman**\
+`Magician Stevie Baskin explains to Pablo why he thinks this brand of “mind-reading” amounts to fraud.`\
+https://www.nytimes.com/2026/05/19/podcasts/cheap-trick-debunking-the-magic-of-mentalist-oz-pearlman.html
+
 **Ebola Cases Rise Sharply as Medical Workers Scramble for Supplies**\
 `Medical workers in the Democratic Republic of Congo are experiencing a shortage of supplies as the number of suspected Ebola cases has passed 500, according to officials.`\
 https://www.nytimes.com/video/world/africa/100000010911915/ebola-outbreak-congo-medical-supplies.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/19/world/europe/russia-ukraine-oil-attacks-war-t
 **What Retro Hobby Would You Like to See Make a Comeback?**\
 `Hacky sack, a popular game from the ’80s and ’90s, is back in a big way with Gen Z. Are there other old games or activities you think teens would enjoy?`\
 https://www.nytimes.com/2026/05/19/learning/what-retro-hobby-would-you-like-to-see-make-a-comeback.html
-
-**Three Decades on the Supreme Court Is Too Long**\
-`In a representative democracy, no one should hold so much power for so long.`\
-https://www.nytimes.com/2026/05/19/opinion/supreme-court-tenure.html
-
-**Calls for ‘No Seed Oil’ Push Companies to Order Up Butter and Beef Tallow**\
-`Businesses are finding different (and more costly) ways to fry foods as shoppers demand alternatives to seed oils as part of the Make America Healthy Again movement.`\
-https://www.nytimes.com/2026/05/19/business/calls-for-no-seed-oil-push-companies-to-order-up-butter-and-beef-tallow.html
 
