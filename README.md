@@ -1,3 +1,7 @@
+**Justices Hint at Strains as Supreme Court Comes Under Scrutiny**\
+`Traveling across the country, justices defend the role of the court even as strained relations among its members emerge in writing and remarks.`\
+https://www.nytimes.com/2026/05/18/us/politics/supreme-court-political-tensions.html
+
 **This Pacific Island Nation Hopes You Will Call It by a New Name**\
 `Tiny Nauru could soon be called Naoero.`\
 https://www.nytimes.com/2026/05/18/world/nauru-naoero-country-name-change.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/18/world/americas/cuba-sanctions-us.html
 **Las encuestas muestran la aprobación de Trump en un nuevo punto bajo**\
 `Un índice de aprobación del 37 por ciento en una nueva encuesta de Times/Siena sugiere que el Partido Republicano se enfrenta a un problema a mitad de legislatura.`\
 https://www.nytimes.com/es/2026/05/18/espanol/estados-unidos/trump-indice-aprobacion-encuestas.html
-
-**The Generation That Grew Up With A.I. Hates It**\
-`Why graduates are booing artificial intelligence.`\
-https://www.nytimes.com/2026/05/18/opinion/ai-boo-commencement-speeches.html
 
