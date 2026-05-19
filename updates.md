@@ -1,3 +1,11 @@
+**Who is Ken Paxton, Trump’s pick in the Texas Senate race?**\
+``\
+https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/who-is-ken-paxton-trumps-pick-in-the-texas-senate-race
+
+**Israeli Minister Threatens to Evict Palestinians From West Bank Hamlet**\
+`Bezalel Smotrich, the hard-line minister, said he was retaliating for the International Criminal Court prosecutor seeking his arrest, something the court did not confirm nor deny.`\
+https://www.nytimes.com/2026/05/19/world/middleeast/smotrich-icc-west-bank.html
+
 **Google Changes Its Search Box for the First Time in 25 Years**\
 `Powered by a new Gemini A.I. model, the tech giant is overhauling its search box to answer longer queries, introducing a video-generation and video-editing tool and simplifying online shopping.`\
 https://www.nytimes.com/2026/05/19/business/google-seach-bar-ai-gemini.html

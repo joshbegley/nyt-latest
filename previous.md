@@ -1,3 +1,7 @@
+**Who is Ken Paxton, Trump’s pick in the Texas Senate race?**\
+``\
+https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/who-is-ken-paxton-trumps-pick-in-the-texas-senate-race
+
 **Google Changes Its Search Box for the First Time in 25 Years**\
 `Powered by a new Gemini A.I. model, the tech giant is overhauling its search box to answer longer queries, introducing a video-generation and video-editing tool and simplifying online shopping.`\
 https://www.nytimes.com/2026/05/19/business/google-seach-bar-ai-gemini.html
@@ -19,7 +23,7 @@ https://www.nytimes.com/2026/05/19/nyregion/woman-dies-manhole-manhattan.html
 https://www.nytimes.com/2026/05/19/style/rupaul-stop-that-train-premiere.html
 
 **Israeli Minister Threatens to Evict Palestinians From West Bank Hamlet**\
-`Bezalel Smotrich, the hard-line minister, said he was retaliating for the International Criminal Court seeking his arrest, something the court did not confirm nor deny.`\
+`Bezalel Smotrich, the hard-line minister, said he was retaliating for the International Criminal Court prosecutor seeking his arrest, something the court did not confirm nor deny.`\
 https://www.nytimes.com/2026/05/19/world/middleeast/smotrich-icc-west-bank.html
 
 **El hijo del fundador de Mango es detenido como sospechoso de la muerte de su padre**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-kentucky-us-house-
 **‘Married at First Sight’ Rape Allegations Lead to Call for U.K. Investigation**\
 `Two women told the BBC that they were sexually assaulted during the filming of the popular show. The accusations have reignited a debate in Britain about the ethics of reality TV.`\
 https://www.nytimes.com/2026/05/19/world/europe/married-at-first-sight-uk-rape-investigation.html
-
-**Georgia Governor Primary Election Results**\
-`Get live results and maps from the 2026 Georgia primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-georgia-governor-primary.html
 

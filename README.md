@@ -1,3 +1,7 @@
+**6 New Songs You Should Hear Now**\
+`Listen to Kurt Vile’s poetic rock, Nia Archives’s electric earworm and a new tune from Mike D.`\
+https://www.nytimes.com/2026/05/19/arts/music/amplifier-newsletter-kurt-vile-mike-d.html
+
 **Who is Ken Paxton, Trump’s pick in the Texas Senate race?**\
 ``\
 https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/who-is-ken-paxton-trumps-pick-in-the-texas-senate-race
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/19/world/europe/spain-zapatero-indicted-corrupti
 **Kentucky Fourth Congressional District Primary Election Results**\
 `Get live results and maps from the 2026 Kentucky primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-kentucky-us-house-4-primary.html
-
-**‘Married at First Sight’ Rape Allegations Lead to Call for U.K. Investigation**\
-`Two women told the BBC that they were sexually assaulted during the filming of the popular show. The accusations have reignited a debate in Britain about the ethics of reality TV.`\
-https://www.nytimes.com/2026/05/19/world/europe/married-at-first-sight-uk-rape-investigation.html
 
