@@ -1,3 +1,7 @@
+**A Generational Fracture Emerges for Republicans Over Foreign Policy**\
+`Younger Republicans are less likely to support overseas interventions and aid, a Times/Siena poll shows.`\
+https://www.nytimes.com/2026/05/19/upshot/republicans-times-siena-poll-iran.html
+
 **Son of Mango Fashion Chain’s Founder Is Arrested as Suspect in His Death**\
 `Isak Andic, the billionaire who built the Spanish brand, died while hiking with his son in 2024. News outlets had reported that the son was under investigation.`\
 https://www.nytimes.com/2026/05/19/world/europe/mango-son-arrest-andic.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/19/dining/restaurant-review-meju-queens-nyc.html
 **Senate Republicans Introduce Funding Measure to Combat Online Child Abuse**\
 `As part of the reconciliation bill, the senators have allocated $108 million over three years to add nearly 200 specialists at the Department of Homeland Security.`\
 https://www.nytimes.com/2026/05/19/technology/senate-republicans-funding-combat-online-child-abuse.html
-
-**Today, In Short**\
-`Poison ivy. The best ketchups. And Alex Cooper is pregnant.`\
-https://www.nytimes.com/2026/05/19/briefing/today-in-short.html
 

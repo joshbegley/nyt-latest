@@ -1,3 +1,7 @@
+**A Generational Fracture Emerges for Republicans Over Foreign Policy**\
+`Younger Republicans are less likely to support overseas interventions and aid, a Times/Siena poll shows.`\
+https://www.nytimes.com/2026/05/19/upshot/republicans-times-siena-poll-iran.html
+
 **Son of Mango Fashion Chain’s Founder Is Arrested as Suspect in His Death**\
 `Isak Andic, the billionaire who built the Spanish brand, died while hiking with his son in 2024. News outlets had reported that the son was under investigation.`\
 https://www.nytimes.com/2026/05/19/world/europe/mango-son-arrest-andic.html
