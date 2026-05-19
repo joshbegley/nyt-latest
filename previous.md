@@ -15,7 +15,7 @@ https://www.nytimes.com/es/2026/05/19/espanol/mundo/ataques-iran-respuesta.html
 https://www.nytimes.com/es/2026/05/19/espanol/mundo/zapatero-espana-imputado.html
 
 **Worried About War’s Impact, Bond Investors Push Rates to Highest Level Since 2007**\
-`The 30-year U.S. Treasury yield hasn’t been this high since the lead up to the global financial crisis. Across Europe and Asia, yields are also elevated.`\
+`The 30-year U.S. Treasury yield hasn’t been this high since the lead-up to the global financial crisis. Across Europe and Asia, yields are also elevated.`\
 https://www.nytimes.com/2026/05/19/business/bond-market-iran-war-inflation.html
 
 **Republican Senators Are Livid at Trump’s Endorsement of Paxton**\
@@ -30,8 +30,8 @@ https://www.nytimes.com/2026/05/19/us/politics/sean-duffy-senate-testimony.html
 `Listen to Kurt Vile’s poetic rock, Nia Archives’s electric earworm and a new tune from Mike D.`\
 https://www.nytimes.com/2026/05/19/arts/music/amplifier-newsletter-kurt-vile-mike-d.html
 
-**Who is Ken Paxton, Trump’s pick in the Texas Senate race?**\
-``\
+**Who Is Ken Paxton, Trump’s Pick in the Texas Senate Race?**\
+`Ken Paxton, the Texas attorney general, seems poised to defeat Senator John Cornyn, a four-term incumbent.`\
 https://www.nytimes.com/2026/05/19/us/politics/who-is-ken-paxton-trumps-pick-in-the-texas-senate-race.html
 
 **Google Changes Its Search Box for the First Time in 25 Years**\

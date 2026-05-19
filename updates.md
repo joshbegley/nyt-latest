@@ -1,3 +1,11 @@
+**Worried About War’s Impact, Bond Investors Push Rates to Highest Level Since 2007**\
+`The 30-year U.S. Treasury yield hasn’t been this high since the lead-up to the global financial crisis. Across Europe and Asia, yields are also elevated.`\
+https://www.nytimes.com/2026/05/19/business/bond-market-iran-war-inflation.html
+
+**Who Is Ken Paxton, Trump’s Pick in the Texas Senate Race?**\
+`Ken Paxton, the Texas attorney general, seems poised to defeat Senator John Cornyn, a four-term incumbent.`\
+https://www.nytimes.com/2026/05/19/us/politics/who-is-ken-paxton-trumps-pick-in-the-texas-senate-race.html
+
 **E.P.A. Clears a Weedkiller, Saying It Won’t Push Species to Extinction**\
 `The finding effectively paves the way for continued use of atrazine, a widely used herbicide that has been linked to birth defects and cancer in humans.`\
 https://www.nytimes.com/2026/05/19/climate/epa-atrazine-endangered-species-maha.html
