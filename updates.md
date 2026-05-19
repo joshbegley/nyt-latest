@@ -1,3 +1,27 @@
+**Andy Barr Wins Republican Primary for McConnell’s Seat in Kentucky**\
+`Mr. Barr, who serves in the House, consolidated support among Republicans in part by securing the endorsement of President Trump.`\
+https://www.nytimes.com/2026/05/19/us/politics/andy-barr-republican-primary-mcconnell-kentucky.html
+
+**5 Things to Know About the Georgia Senate Candidate Mike Collins**\
+`The congressman is a Trump acolyte who has a history of incendiary social media posts.`\
+https://www.nytimes.com/2026/05/19/us/politics/mike-collins-georgia-republican-senate-election.html
+
+**5 Things to Know About the Georgia Senate Candidate Derek Dooley**\
+`Mr. Dooley is a former football coach running in the Republican primary with the support of Gov. Brian Kemp.`\
+https://www.nytimes.com/2026/05/19/us/politics/derek-dooley-georgia-republican-senate-election.html
+
+**5 Things to Know About the Georgia Senate Candidate Buddy Carter**\
+`The congressman is a Trump acolyte who has found some common ground with Democrats on energy issues.`\
+https://www.nytimes.com/2026/05/19/us/politics/buddy-carter-georgia-republican-senate-election.html
+
+**5 Things to Know About Senator Jon Ossoff of Georgia**\
+`He is the youngest member of the Senate and once volunteered for the civil rights leader John Lewis’s congressional office.`\
+https://www.nytimes.com/2026/05/19/us/politics/jon-ossoff-georgia-democrat-senate-election.html
+
+**Under a Cloud of Uncertainty, Alabama Voters Head to the Polls**\
+`Voters in Alabama cast their ballots, unsure about whether a recent Supreme Court decision would change their congressional districts going forward.`\
+https://www.nytimes.com/2026/05/19/us/politics/uncertainty-alabama-voters.html
+
 **What the Senate Primary Polls Tell Us in Georgia, Alabama and Kentucky**\
 `The Republican primaries in all three states are expected to be competitive, with two of them likely to advance to runoff elections.`\
 https://www.nytimes.com/2026/05/19/us/elections/republican-senate-primaries-georgia-alabama-kentucky.html
