@@ -1,3 +1,23 @@
+**Lemon Bars With Olive Oil and Sea Salt**\
+`Traditional lemon bars balance the tangy sweetness of lemon curd with a rich shortbread crust. This recipe adds extra notes of flavor to the mix: the compelling bitterness of good olive oil and a touch of sea salt sprinkled on top.`\
+https://www.nytimes.com/video/dining/100000010912786/lemon-bars-with-olive-oil-and-sea-salt.html
+
+**Georgia U.S. Senate Primary Election Results**\
+`Get live results and maps from the 2026 Georgia primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-georgia-us-senate-primary.html
+
+**Zapatero, Spain’s Former Leader, Investigated for Graft**\
+`José Luis Rodríguez Zapatero, who led Spain from 2004 to 2011, is accused of influence peddling after he left office. He has denied wrongdoing.`\
+https://www.nytimes.com/2026/05/19/world/europe/spain-zapatero-indicted-corruption.html
+
+**Kentucky Fourth Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Kentucky primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-kentucky-us-house-4-primary.html
+
+**‘Married at First Sight’ Rape Allegations Lead to Call for U.K. Investigation**\
+`Two women told the BBC that they were sexually assaulted during the filming of the popular show. The accusations have reignited a debate in Britain about the ethics of reality TV.`\
+https://www.nytimes.com/2026/05/19/world/europe/married-at-first-sight-uk-rape-investigation.html
+
 **Georgia Governor Primary Election Results**\
 `Get live results and maps from the 2026 Georgia primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-georgia-governor-primary.html
