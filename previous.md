@@ -1,3 +1,7 @@
+**International Booker Prize Goes to a Love Story Out of Taiwan**\
+`“Taiwan Travelogue” is the first novel originally written in Mandarin to win the major award for fiction translated into English.`\
+https://www.nytimes.com/2026/05/19/books/international-booker-prize-taiwan-travelogue.html
+
 **Trump’s Stock Trades Raise Eyebrows. The Family Says He Keeps His Hands Off.**\
 `The Trump Organization says the president’s financial investments are handled by outside firms and that it has no control over the timing or selection of transactions.`\
 https://www.nytimes.com/2026/05/19/us/politics/trump-stock-trades.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-idaho-lieutenant-g
 **Oregon Second Congressional District Primary Election Results**\
 `Get live results and maps from the 2026 Oregon primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-oregon-us-house-2-primary.html
-
-**Pennsylvania Fourth Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 Pennsylvania primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-pennsylvania-us-house-4-primary.html
 

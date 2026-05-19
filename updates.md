@@ -1,3 +1,7 @@
+**International Booker Prize Goes to a Love Story Out of Taiwan**\
+`“Taiwan Travelogue” is the first novel originally written in Mandarin to win the major award for fiction translated into English.`\
+https://www.nytimes.com/2026/05/19/books/international-booker-prize-taiwan-travelogue.html
+
 **Trump’s Stock Trades Raise Eyebrows. The Family Says He Keeps His Hands Off.**\
 `The Trump Organization says the president’s financial investments are handled by outside firms and that it has no control over the timing or selection of transactions.`\
 https://www.nytimes.com/2026/05/19/us/politics/trump-stock-trades.html
