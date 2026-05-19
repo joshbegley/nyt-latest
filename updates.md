@@ -1,3 +1,11 @@
+**What to Know About the San Diego Mosque Shooting**\
+`Three men were killed in the attack at the Islamic Center of San Diego. Two teenage suspects were found dead in a car nearby, police said.`\
+https://www.nytimes.com/2026/05/19/us/san-diego-mosque-shooting.html
+
+**Georgia Republicans are grasping for a contender to challenge Senator Jon Ossoff.**\
+``\
+https://www.nytimes.com/live/2026/05/19/us/election-kentucky-pennsylvania-georgia/georgia-republicans-are-grasping-for-a-contender-to-challenge-senator-jon-ossoff
+
 **The Race to Control Congress**\
 `We look at where the parties stand leading up to the midterms.`\
 https://www.nytimes.com/2026/05/19/briefing/the-race-to-control-congress.html

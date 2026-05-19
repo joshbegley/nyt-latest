@@ -1,3 +1,11 @@
+**What to Know About the San Diego Mosque Shooting**\
+`Three men were killed in the attack at the Islamic Center of San Diego. Two teenage suspects were found dead in a car nearby, police said.`\
+https://www.nytimes.com/2026/05/19/us/san-diego-mosque-shooting.html
+
+**Georgia Republicans are grasping for a contender to challenge Senator Jon Ossoff.**\
+``\
+https://www.nytimes.com/live/2026/05/19/us/election-kentucky-pennsylvania-georgia/georgia-republicans-are-grasping-for-a-contender-to-challenge-senator-jon-ossoff
+
 **The Race to Control Congress**\
 `We look at where the parties stand leading up to the midterms.`\
 https://www.nytimes.com/2026/05/19/briefing/the-race-to-control-congress.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/es/2026/05/19/espanol/bumble-swipeless.html
 **As OpenAI Celebrates Court Win Against Musk, Other Challenges Lie Ahead**\
 `A jury’s rejection of Elon Musk’s $150 billion lawsuit against OpenAI was a major hurdle crossed. But the maker of ChatGPT faces a list of other problems.`\
 https://www.nytimes.com/2026/05/19/technology/openai-musk-legal-challenges.html
-
-**W.H.O. Chief Is ‘Deeply Concerned’ by Speed and Scale of Ebola Outbreak as Cases Rise**\
-`The warning came shortly after Congo officials reported more than 130 suspected deaths and 513 cases, a sharp rise since the outbreak was first reported over the weekend.`\
-https://www.nytimes.com/2026/05/19/world/africa/ebola-outbreak-deaths-congo-who.html
-
-**The Best of ‘S.N.L.’ Season 51: Sensitive Strippers and Regretful Moms**\
-`This season “Saturday Night Live” found new ways to satirize the Trump administration and said goodbye to one of its most valuable cast members.`\
-https://www.nytimes.com/2026/05/19/arts/television/saturday-night-live-snl-season-51-highlights.html
 
