@@ -1,3 +1,7 @@
+**W.H.O. Chief Is ‘Deeply Concerned’ by Speed and Scale of Ebola Outbreak as Cases Rise**\
+`The warning came shortly after Congo officials reported more than 130 suspected deaths and 513 cases, a sharp rise since the outbreak was first reported over the weekend.`\
+https://www.nytimes.com/2026/05/19/world/africa/ebola-outbreak-deaths-congo-who.html
+
 **How to End the Gerrymandering Doom Loop Forever**\
 `The political scientist Lee Drutman argues that we should switch to a system of proportional representation and put an end to our “trench warfare politics.”`\
 https://www.nytimes.com/2026/05/19/opinion/ezra-klein-podcast-lee-drutman.html

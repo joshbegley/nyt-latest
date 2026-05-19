@@ -14,7 +14,7 @@ https://www.nytimes.com/es/2026/05/19/espanol/bumble-swipeless.html
 `A jury’s rejection of Elon Musk’s $150 billion lawsuit against OpenAI was a major hurdle crossed. But the maker of ChatGPT faces a list of other problems.`\
 https://www.nytimes.com/2026/05/19/technology/openai-musk-legal-challenges.html
 
-**W.H.O. Chief Is ‘Deeply Concerned’ By Speed and Scale of Ebola Outbreak As Cases Rise**\
+**W.H.O. Chief Is ‘Deeply Concerned’ by Speed and Scale of Ebola Outbreak as Cases Rise**\
 `The warning came shortly after Congo officials reported more than 130 suspected deaths and 513 cases, a sharp rise since the outbreak was first reported over the weekend.`\
 https://www.nytimes.com/2026/05/19/world/africa/ebola-outbreak-deaths-congo-who.html
 
