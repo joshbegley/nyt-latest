@@ -1,3 +1,7 @@
+**Key Areas to Watch in Kentucky’s Republican Primaries**\
+`In a contentious House race, Representative Thomas Massie will look for strength in the Cincinnati suburbs.`\
+https://www.nytimes.com/2026/05/19/us/elections/kentucky-republican-primary-elections-counties.html
+
 **Senate Votes to Take Up Measure to Force Trump to End Iran War**\
 `With four Republican backers, Democrats won a vote to advance a resolution that would force the president to end hostilities or win authorization from Congress.`\
 https://www.nytimes.com/2026/05/19/us/politics/senate-iran-war-authorization.html
