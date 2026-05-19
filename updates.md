@@ -1,3 +1,11 @@
+**Republican Senators Are Livid at Trump’s Endorsement of Paxton**\
+`News that President Trump had snubbed Senator John Cornyn of Texas, the four-term incumbent, was met with shock, anger and fear that the G.O.P. could lose his seat.`\
+https://www.nytimes.com/2026/05/19/us/politics/republican-senators-trump-paxton.html
+
+**Google Changes Its Search Box for the First Time in 25 Years**\
+`Using a new Gemini A.I. model, the tech giant is overhauling its search box to answer longer queries, introducing a video-generation and video-editing tool and simplifying online shopping.`\
+https://www.nytimes.com/2026/05/19/business/google-seach-bar-ai-gemini.html
+
 **Sean Duffy to Testify Amid Questions About Road Trip YouTube Series**\
 `The transportation secretary’s reality-show-like series is meant to commemorate the nation’s 250th birthday but has faced questions about its funding.`\
 https://www.nytimes.com/2026/05/19/us/politics/sean-duffy-senate-testimony.html

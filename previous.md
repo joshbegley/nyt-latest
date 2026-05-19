@@ -1,3 +1,7 @@
+**Republican Senators Are Livid at Trump’s Endorsement of Paxton**\
+`News that President Trump had snubbed Senator John Cornyn of Texas, the four-term incumbent, was met with shock, anger and fear that the G.O.P. could lose his seat.`\
+https://www.nytimes.com/2026/05/19/us/politics/republican-senators-trump-paxton.html
+
 **Sean Duffy to Testify Amid Questions About Road Trip YouTube Series**\
 `The transportation secretary’s reality-show-like series is meant to commemorate the nation’s 250th birthday but has faced questions about its funding.`\
 https://www.nytimes.com/2026/05/19/us/politics/sean-duffy-senate-testimony.html
@@ -11,7 +15,7 @@ https://www.nytimes.com/2026/05/19/arts/music/amplifier-newsletter-kurt-vile-mik
 https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/who-is-ken-paxton-trumps-pick-in-the-texas-senate-race
 
 **Google Changes Its Search Box for the First Time in 25 Years**\
-`Powered by a new Gemini A.I. model, the tech giant is overhauling its search box to answer longer queries, introducing a video-generation and video-editing tool and simplifying online shopping.`\
+`Using a new Gemini A.I. model, the tech giant is overhauling its search box to answer longer queries, introducing a video-generation and video-editing tool and simplifying online shopping.`\
 https://www.nytimes.com/2026/05/19/business/google-seach-bar-ai-gemini.html
 
 **How Google Is Starting to Win the A.I. Race**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-key-races-may-19.h
 **Georgia U.S. Senate Primary Election Results**\
 `Get live results and maps from the 2026 Georgia primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-georgia-us-senate-primary.html
-
-**Zapatero, Spain’s Former Leader, Investigated for Graft**\
-`José Luis Rodríguez Zapatero, who led Spain from 2004 to 2011, is accused of influence peddling after he left office. He has denied wrongdoing.`\
-https://www.nytimes.com/2026/05/19/world/europe/spain-zapatero-indicted-corruption.html
 
