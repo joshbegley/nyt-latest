@@ -27,7 +27,7 @@ https://www.nytimes.com/2026/05/19/technology/senate-republicans-funding-combat-
 https://www.nytimes.com/2026/05/19/briefing/today-in-short.html
 
 **Trump’s Special Envoy to Greenland Receives a Cold Welcome From Locals**\
-`After President Trump’s threats to seize the island, Gov. Jeff Landry’s offers of MAGA hats and chocolate chip cookies falls flat.`\
+`After President Trump’s threats to seize the island, Gov. Jeff Landry’s offers of MAGA hats and chocolate chip cookies fall flat.`\
 https://www.nytimes.com/2026/05/19/world/europe/us-envoy-greenland-visit.html
 
 **How Do You Stop Amazon From Double-Parking? E-Bikes.**\
