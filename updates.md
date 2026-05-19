@@ -1,3 +1,11 @@
+**‘Strangers’ Author Belle Burden Doesn’t Want Eggs Outside Breakfast**\
+`The New York City native on her food life, from a childhood on the Upper East Side to an adulthood in TriBeCa.`\
+https://www.nytimes.com/2026/05/19/dining/strangers-author-belle-burden.html
+
+**L.I.R.R. Workers Are in Line for Raises, but at What Cost to New York?**\
+`Details are still emerging about the contract reached after a three-day strike that shut down America’s busiest passenger rail service. But the fallout could be felt for years.`\
+https://www.nytimes.com/2026/05/19/nyregion/lirr-strike-contract-fallout.html
+
 **Who Are the Suspects in the San Diego Mosque Shooting?**\
 `Authorities identified the teenagers they say killed three men, and then themselves, in an attack on the largest mosque in the county.`\
 https://www.nytimes.com/2026/05/19/us/san-diego-mosque-cain-clark-caleb-vazquez.html
