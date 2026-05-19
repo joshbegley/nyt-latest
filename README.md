@@ -1,80 +1,80 @@
-**Pentagon Inspector General to Assess U.S. Boat Strikes**\
-`The inspector general’s office said it would evaluate whether U.S. Southern Command followed a six-part process for carrying out airstrikes.`\
-https://www.nytimes.com/2026/05/19/us/politics/pentagon-boat-strikes.html
+**Kentucky Primary Election Results**\
+`Get live results and maps from the 2026 Kentucky primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-kentucky-primary.html
 
-**In Georgia, a Target of Trump’s Ire Defends Election Workers**\
-`Brad Raffensperger, state’s top election official, is hoping to qualify for a runoff in the Republican primary for governor.`\
-https://www.nytimes.com/2026/05/19/us/politics/georgia-raffensperger-trump-election-workers.html
+**Pennsylvania Primary Election Results**\
+`Get live results and maps from the 2026 Pennsylvania primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-pennsylvania-primary.html
 
-**Deal on Compensation Fund Blocks I.R.S. Audits of Trump and His Family**\
-`In a one-page document quietly posted on the Justice Department’s website, officials vowed not to pursue any matters, including those involving President Trump’s tax returns, that are pending.`\
-https://www.nytimes.com/2026/05/19/us/trump-irs-doj-lawsuit-audit.html
+**Alabama Primary Election Results**\
+`Get live results and maps from the 2026 Alabama primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-alabama-primary.html
 
-**E.P.A. Clears a Weedkiller, Saying It Won’t Push Species to Extinction**\
-`The finding effectively paves the way for continued use of atrazine, a widely used herbicide that has been linked to birth defects and cancer in humans.`\
-https://www.nytimes.com/2026/05/19/climate/epa-atrazine-endangered-species-maha.html
+**Georgia Primary Election Results**\
+`Get live results and maps from the 2026 Georgia primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-georgia-primary.html
 
-**The N.A.A.C.P. calls on Black athletes to boycott Southern states after redistricting.**\
-``\
-https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/the-naacp-calls-on-black-athletes-to-boycott-southern-states-after-redistricting
+**Tornado Rips Through Rural Community in Nebraska**\
+`A tornado left a trail of destruction in a rural community in Howard County, Neb., destroying four newly-built homes, according to a local official.`\
+https://www.nytimes.com/video/us/100000010913692/nebraska-tornado-howard-county.html
 
-**Así podría responder Irán si se reanudan los ataques de EE. UU. e Israel**\
-`En cualquier nueva ronda de combates, las autoridades iraníes podrían adoptar otras tácticas, como intensificar los ataques contra sus vecinos e intentar cerrar un segundo estrecho.`\
-https://www.nytimes.com/es/2026/05/19/espanol/mundo/ataques-iran-respuesta.html
+**Georgia 10th Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Georgia primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-georgia-us-house-10-primary.html
 
-**Zapatero, expresidente del gobierno de España, es investigado por corrupción**\
-`José Luis Rodríguez Zapatero, quien dirigió España de 2004 a 2011, es acusado de tráfico de influencias tras dejar el cargo. Él ha negado haber cometido delito alguno.`\
-https://www.nytimes.com/es/2026/05/19/espanol/mundo/zapatero-espana-imputado.html
+**Georgia Agriculture Commissioner Primary Election Results**\
+`Get live results and maps from the 2026 Georgia primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-georgia-agriculture-commissioner-primary.html
 
-**Worried About War’s Impact, Bond Investors Push Rates to Highest Level Since 2007**\
-`The 30-year U.S. Treasury yield hasn’t been this high since the lead-up to the global financial crisis. Across Europe and Asia, yields are also elevated.`\
-https://www.nytimes.com/2026/05/19/business/bond-market-iran-war-inflation.html
+**Georgia Attorney General Primary Election Results**\
+`Get live results and maps from the 2026 Georgia primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-georgia-attorney-general-primary.html
 
-**Republican Senators Are Livid at Trump’s Endorsement of Paxton**\
-`News that President Trump had snubbed Senator John Cornyn of Texas, the four-term incumbent, was met with shock, anger and fear that the G.O.P. could lose his seat.`\
-https://www.nytimes.com/2026/05/19/us/politics/republican-senators-trump-paxton.html
+**Georgia Public Service Commission Primary Election Results**\
+`Get live results and maps from the 2026 Georgia primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-georgia-public-service-commission-primary.html
 
-**Sean Duffy to Testify Amid Questions About Road Trip YouTube Series**\
-`The transportation secretary’s reality-show-like series is meant to commemorate the nation’s 250th birthday but has faced questions about its funding.`\
-https://www.nytimes.com/2026/05/19/us/politics/sean-duffy-senate-testimony.html
+**Alabama Fourth Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Alabama primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-alabama-us-house-4-primary.html
 
-**6 New Songs You Should Hear Now**\
-`Listen to Kurt Vile’s poetic rock, Nia Archives’s electric earworm and a new tune from Mike D.`\
-https://www.nytimes.com/2026/05/19/arts/music/amplifier-newsletter-kurt-vile-mike-d.html
+**Alabama Treasurer Primary Election Results**\
+`Get live results and maps from the 2026 Alabama primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-alabama-treasurer-primary.html
 
-**Who Is Ken Paxton, Trump’s Pick in the Texas Senate Race?**\
-`Ken Paxton, the Texas attorney general, seems poised to defeat Senator John Cornyn, a four-term incumbent.`\
-https://www.nytimes.com/2026/05/19/us/politics/who-is-ken-paxton-trumps-pick-in-the-texas-senate-race.html
+**Alabama Supreme Court Primary Election Results**\
+`Get live results and maps from the 2026 Alabama primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-alabama-supreme-court-primary.html
 
-**Google Changes Its Search Box for the First Time in 25 Years**\
-`Using a new Gemini A.I. model, the tech giant is overhauling its search box dimensions to answer longer queries, adding a video-generation tool and simplifying online shopping.`\
-https://www.nytimes.com/2026/05/19/business/google-seach-bar-ai-gemini.html
+**Oregon U.S. Senate Primary Election Results**\
+`Get live results and maps from the 2026 Oregon primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oregon-us-senate-primary.html
 
-**How Google Is Starting to Win the A.I. Race**\
-`Despite its early stumbles, Google’s Gemini has leapfrogged ChatGPT in relevance and usefulness. Soon, it will be ubiquitous.`\
-https://www.nytimes.com/2026/05/19/technology/personaltech/google-gemini-ai.html
+**Oregon Labor Commissioner Election Results**\
+`Get live results and maps from the 2026 Oregon election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oregon-labor-commissioner.html
 
-**Twist in FIFA Corruption Case: 2 Fugitives Emerge, Seeking a Plea Deal**\
-`Federal prosecutors are negotiating with Hugo and Mariano Jinkis, a father and son from Argentina, who after more than a decade suddenly agreed to meet in Brooklyn.`\
-https://www.nytimes.com/2026/05/19/nyregion/fifa-argentina-bribery-brooklyn.html
+**Georgia Lieutenant Governor Primary Election Results**\
+`Get live results and maps from the 2026 Georgia primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-georgia-lieutenant-governor-primary.html
 
-**Woman Dies After Falling Into Open Manhole in Manhattan**\
-`The woman had parked her S.U.V., then got out and plunged 10 feet into the uncovered hole managed by Con Edison, prompting an investigation.`\
-https://www.nytimes.com/2026/05/19/nyregion/woman-dies-manhole-manhattan.html
+**Kentucky Second Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Kentucky primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-kentucky-us-house-2-primary.html
 
-**At RuPaul’s Hollywood Premiere, Drag Queens Save the Day**\
-`In Los Angeles, at the premiere of “Stop! That! Train!” a disaster film parody set on the runaway Glamazonian Express, the dress code was “choo-choo realness.”`\
-https://www.nytimes.com/2026/05/19/style/rupaul-stop-that-train-premiere.html
+**Alabama Secretary of State Primary Election Results**\
+`Get live results and maps from the 2026 Alabama primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-alabama-secretary-of-state-primary.html
 
-**Israeli Minister Threatens to Evict Palestinians From West Bank Hamlet**\
-`Bezalel Smotrich, the hard-line minister, said he was retaliating for the International Criminal Court prosecutor seeking his arrest, something the court did not confirm nor deny.`\
-https://www.nytimes.com/2026/05/19/world/middleeast/smotrich-icc-west-bank.html
+**Alabama Public Service Commission Primary Election Results**\
+`Get live results and maps from the 2026 Alabama primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-alabama-public-service-commission-primary.html
 
-**El hijo del fundador de Mango es detenido como sospechoso de la muerte de su padre**\
-`Isak Andic, el multimillonario que creó la marca española, murió mientras hacía senderismo con su hijo Jonathan en 2024.`\
-https://www.nytimes.com/es/2026/05/19/espanol/mundo/andic-mango-hijo-muerte-padre.html
+**Idaho First Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Idaho primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-idaho-us-house-1-primary.html
 
-**Original Plum Torte**\
-`First published in 1983, Marian Burros’s plum torte has become one of the most popular recipes in the history of The Times, and it’s no mystery why. There are so many things to love: It’s easy, it’s practically no-fail and it’s endlessly adaptable.`\
-https://www.nytimes.com/video/dining/100000010912790/original-plum-torte.html
+**Alabama Lieutenant Governor Primary Election Results**\
+`Get live results and maps from the 2026 Alabama primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-alabama-lieutenant-governor-primary.html
 
