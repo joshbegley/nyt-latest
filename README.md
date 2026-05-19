@@ -1,3 +1,15 @@
+**Top Treasury Lawyer Resigns After Creation of ‘Anti-Weaponization Fund’**\
+`Brian Morrissey, the department’s general counsel, stepped down hours after the Trump administration announced the $1.8 billion fund.`\
+https://www.nytimes.com/2026/05/18/business/anti-weaponization-fund-brian-morrissey-treasury.html
+
+**Trump Moves to Admit 10,000 More White South Africans as Refugees**\
+`The Trump administration argues that an “emergency refugee situation” in South Africa merits bringing more Afrikaners to America, at a cost of some $100 million.`\
+https://www.nytimes.com/2026/05/18/us/politics/trump-afrikaner-refugees.html
+
+**Judge Bars ICE From Making Immigration Arrests at Courts in New York**\
+`The Trump administration’s practice of detaining migrants at federal courthouses had stirred outrage.`\
+https://www.nytimes.com/2026/05/18/nyregion/ice-immigrant-arrests-nyc-courts.html
+
 **San Diego Mosque Attack Comes Amid Rising Reports of Islamophobia**\
 `The Council on American-Islamic Relations said complaints about bias against Muslims are at levels unseen in decades.`\
 https://www.nytimes.com/2026/05/18/us/san-diego-mosque-shooting-islamaphobia.html
@@ -22,7 +34,7 @@ https://www.nytimes.com/es/2026/05/18/espanol/mundo/trump-taiwan-armas-china.htm
 `Tres cuartas partes de los niños separados de sus padres son probablemente ciudadanos estadounidenses, según estimaciones de la Institución Brookings que se compartieron con The New York Times.`\
 https://www.nytimes.com/es/2026/05/18/espanol/estados-unidos/separacion-familias-ninos-deportaciones-estados-unidos.html
 
-**Southern California Fire Forces More Than 23,000 to Evacuate**\
+**Southern California Fire Forces More Than 29,000 to Evacuate**\
 `Hundreds of firefighters battled a fast-moving brush fire that broke out in Simi Valley, Calif., on Monday.`\
 https://www.nytimes.com/video/us/100000010911340/wildfire-simi-valley-evacuations.html
 
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/18/arts/design/pollock-brancusi-christies-auctio
 **Frida Kahlo: un diccionario visual**\
 `Corsés de yeso, vestidos de tehuana, trajes masculinos y monos araña: estos son los elementos que hicieron de Frida Kahlo un ícono irrepetible.`\
 https://www.nytimes.com/es/2026/05/18/espanol/frida-kahlo-estilo.html
-
-**What to Know About San Diego’s Islamic Center**\
-`A visitor said that the mosque is highly diverse. Its services are in English, because attendees come from all over the world.`\
-https://www.nytimes.com/2026/05/18/us/islamic-center-san-diego-mosque.html
-
-**Tornadoes Reported in Kansas and Nebraska as Violent Storms Sweep the Midwest**\
-`Severe weather was expected to last into the evening on Monday.`\
-https://www.nytimes.com/2026/05/18/weather/tornado-nebraska-kansas-storm.html
-
-**Jury Rejects Elon Musk’s Lawsuit Against OpenAI and Microsoft**\
-`Elon Musk had accused OpenAI of “stealing a charity” by attaching a commercial company to Open AI, which was founded as a nonprofit. But a jury ruled that the statute of limitations had expired.`\
-https://www.nytimes.com/video/business/media/100000010911130/openai-musk-trial-vertict.html
 
