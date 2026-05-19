@@ -1,3 +1,23 @@
+**A Trump Dissenter Fights for His Political Life**\
+`In a Republican primary for a House seat in Kentucky, Rep. Thomas Massie is facing off against Ed Gallrein, who is backed by the president.`\
+https://www.nytimes.com/2026/05/19/podcasts/the-daily/kentucky-primary-masse-gallerin.html
+
+**Trump’s New $1.8 Billion Pot of Money, and a Deadly Mosque Attack in California**\
+`Plus, a North Korean soccer team hits the road.`\
+https://www.nytimes.com/2026/05/19/podcasts/the-headlines/trump-irs-mosque-attack-california.html
+
+**Connections Companion No. 1,074**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, May 20, 2026.`\
+https://www.nytimes.com/2026/05/19/crosswords/connections-companion-1074.html
+
+**Wordle Review No. 1,796**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, May 20, 2026.`\
+https://www.nytimes.com/2026/05/19/crosswords/wordle-review-1796.html
+
+**Strands Sidekick No. 808**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, May 20, 2026.`\
+https://www.nytimes.com/2026/05/19/crosswords/strands-sidekick-808.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/05/19/us/election-kentucky-pennsylvania-georgia/heres-the-latest

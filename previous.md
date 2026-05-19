@@ -1,3 +1,23 @@
+**A Trump Dissenter Fights for His Political Life**\
+`In a Republican primary for a House seat in Kentucky, Rep. Thomas Massie is facing off against Ed Gallrein, who is backed by the president.`\
+https://www.nytimes.com/2026/05/19/podcasts/the-daily/kentucky-primary-masse-gallerin.html
+
+**Trump’s New $1.8 Billion Pot of Money, and a Deadly Mosque Attack in California**\
+`Plus, a North Korean soccer team hits the road.`\
+https://www.nytimes.com/2026/05/19/podcasts/the-headlines/trump-irs-mosque-attack-california.html
+
+**Connections Companion No. 1,074**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, May 20, 2026.`\
+https://www.nytimes.com/2026/05/19/crosswords/connections-companion-1074.html
+
+**Wordle Review No. 1,796**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, May 20, 2026.`\
+https://www.nytimes.com/2026/05/19/crosswords/wordle-review-1796.html
+
+**Strands Sidekick No. 808**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, May 20, 2026.`\
+https://www.nytimes.com/2026/05/19/crosswords/strands-sidekick-808.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/05/19/us/election-kentucky-pennsylvania-georgia/heres-the-latest
@@ -57,24 +77,4 @@ https://www.nytimes.com/es/2026/05/19/espanol/ejercicios-coordinacion-longevidad
 **Do You Know What a Luthier Is? He’s One of the Best.**\
 `Sam Zygmuntowicz, who is being honored by the Chamber Music Society, is an instrument maker who crafts many of the string instruments used by its performers.`\
 https://www.nytimes.com/2026/05/19/nyregion/instrument-maker-sam-zygmuntowicz.html
-
-**A 16th-Century Sketch Claims to Depict Anne Boleyn. A.I. Says It’s Her Mom.**\
-`Using facial-recognition technology, scholars have concluded that a 500-year-old drawing labeled “Anna Bollein Queen” more likely showed her mother, Elizabeth Howard.`\
-https://www.nytimes.com/2026/05/19/science/ai-art-anne-boleyn.html
-
-**Filling a Lenox Hill Living Room With Objects That Inspire**\
-`The designer Josh Greene splurged on a sexy ’70s credenza and found the perfect display for heirloom antiques in his one-bedroom co-op.`\
-https://www.nytimes.com/2026/05/19/realestate/filling-a-lenox-hill-living-room-with-objects-that-inspire.html
-
-**How to End the Gerrymandering Doom Loop Forever**\
-`The political scientist Lee Drutman argues that we should switch to a system of proportional representation and put an end to our “trench warfare politics.”`\
-https://www.nytimes.com/video/opinion/100000010905496/how-to-end-the-gerrymandering-doom-loop-forever.html
-
-**As Ukraine Hits Oil Refineries, Russians Pay a Heavy Environmental Toll**\
-`After invading more than four years ago, Moscow has usually been the one causing ecological disaster. But Kyiv’s strikes, intended to cut into the Kremlin’s oil revenue, have flipped the script.`\
-https://www.nytimes.com/2026/05/19/world/europe/russia-ukraine-oil-attacks-war-tuapse.html
-
-**What Retro Hobby Would You Like to See Make a Comeback?**\
-`Hacky sack, a popular game from the ’80s and ’90s, is back in a big way with Gen Z. Are there other old games or activities you think teens would enjoy?`\
-https://www.nytimes.com/2026/05/19/learning/what-retro-hobby-would-you-like-to-see-make-a-comeback.html
 
