@@ -1,3 +1,7 @@
+**La táctica de Trump sobre Taiwán ya es un regalo para China**\
+`La abierta disposición del presidente Trump a retrasar un paquete de armas para Taiwán por valor de 14.000 millones de dólares es una victoria para Pekín.`\
+https://www.nytimes.com/es/2026/05/18/espanol/mundo/trump-taiwan-armas-china.html
+
 **Más de 100.000 niños han sido separados de sus padres en la oleada de deportaciones de Trump, dice informe**\
 `Tres cuartas partes de los niños separados de sus padres son probablemente ciudadanos estadounidenses, según estimaciones de la Institución Brookings que se compartieron con The New York Times.`\
 https://www.nytimes.com/es/2026/05/18/espanol/estados-unidos/separacion-familias-ninos-deportaciones-estados-unidos.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/18/business/trumprx-generic-drugs-mark-cuban.htm
 **Pelosi Endorses San Francisco Supervisor Connie Chan to Succeed Her**\
 `Representative Nancy Pelosi, the first woman to serve as speaker of the House, broke her silence on Monday about the race to succeed her and endorsed Connie Chan, a San Francisco official.`\
 https://www.nytimes.com/2026/05/18/us/nancy-pelosi-endorses-connie-chan.html
-
-**Las grandes preguntas sobre Jeffrey Epstein**\
-`Qué revelaron los archivos, las investigaciones y los testimonios sobre la red de poder y complicidad que rodeó a Epstein.`\
-https://www.nytimes.com/es/2026/05/18/espanol/estados-unidos/jeffrey-epstein-archivos-preguntas-respuestas.html
 
