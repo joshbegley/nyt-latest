@@ -1,3 +1,15 @@
+**The Race to Control Congress**\
+`We look at where the parties stand leading up to the midterms.`\
+https://www.nytimes.com/2026/05/19/briefing/the-race-to-control-congress.html
+
+**The war on Iran has complicated a closely watched Republican primary.**\
+``\
+https://www.nytimes.com/live/2026/05/19/us/election-kentucky-pennsylvania-georgia/the-war-on-iran-has-complicated-a-closely-watched-republican-primary
+
+**Francia tiene una nueva imagen del Holocausto**\
+`Una colección inédita de fotografías de propaganda nazi revela la primera gran redada de judíos en París en 1941.`\
+https://www.nytimes.com/es/2026/05/19/espanol/opinion/fotos-nazi-holocausto-francia.html
+
 **Nacionalismo vs. nacionalismo**\
 `Un nacionalismo progresista y pluralista se impuso en las urnas en Escocia y Gales. ¿Podría cobrar fuerza en otros lugares?`\
 https://www.nytimes.com/es/2026/05/19/espanol/mundo/nacionalismo-escocia-gales.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/19/world/africa/ebola-outbreak-deaths-congo-who.
 **The Best of ‘S.N.L.’ Season 51: Sensitive Strippers and Regretful Moms**\
 `This season “Saturday Night Live” found new ways to satirize the Trump administration and said goodbye to one of its most valuable cast members.`\
 https://www.nytimes.com/2026/05/19/arts/television/saturday-night-live-snl-season-51-highlights.html
-
-**Bipartisan Bill Would Impose New Annual Fee on Electric Vehicles**\
-`A House transportation bill introduced this week would require owners of electric cars to pay $130 to cover the cost of road repairs.`\
-https://www.nytimes.com/2026/05/19/business/energy-environment/electrc-vehicles-annual-fee-congress.html
-
-**Who Should Be the Next Governor of California?**\
-`Times Opinion convened a panel of state experts to weigh in on the primary.`\
-https://www.nytimes.com/interactive/2026/05/19/opinion/california-governor-primary-election.html
-
-**6 ejercicios para mejorar tu coordinación**\
-`Estos peculiares movimientos activarán simultáneamente tus músculos, sentidos y sistema nervioso.`\
-https://www.nytimes.com/es/2026/05/19/espanol/ejercicios-coordinacion-longevidad-vivir-mas.html
 

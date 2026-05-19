@@ -1,3 +1,15 @@
+**The Race to Control Congress**\
+`We look at where the parties stand leading up to the midterms.`\
+https://www.nytimes.com/2026/05/19/briefing/the-race-to-control-congress.html
+
+**The war on Iran has complicated a closely watched Republican primary.**\
+``\
+https://www.nytimes.com/live/2026/05/19/us/election-kentucky-pennsylvania-georgia/the-war-on-iran-has-complicated-a-closely-watched-republican-primary
+
+**Francia tiene una nueva imagen del Holocausto**\
+`Una colección inédita de fotografías de propaganda nazi revela la primera gran redada de judíos en París en 1941.`\
+https://www.nytimes.com/es/2026/05/19/espanol/opinion/fotos-nazi-holocausto-francia.html
+
 **Nacionalismo vs. nacionalismo**\
 `Un nacionalismo progresista y pluralista se impuso en las urnas en Escocia y Gales. ¿Podría cobrar fuerza en otros lugares?`\
 https://www.nytimes.com/es/2026/05/19/espanol/mundo/nacionalismo-escocia-gales.html
