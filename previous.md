@@ -1,3 +1,7 @@
+**Who Are the Suspects in the San Diego Mosque Shooting?**\
+`Authorities identified the teenagers they say killed three men, and then themselves, in an attack on the largest mosque in the county.`\
+https://www.nytimes.com/2026/05/19/us/san-diego-mosque-cain-clark-caleb-vazquez.html
+
 **Tickle Me Elmo and the Frenzy That Consumed America**\
 `In 1996, the giggling stuffed doll turned holiday shopping into chaos, a preview of every sneaker drop, PlayStation launch and Taylor Swift ticket rush to come.`\
 https://www.nytimes.com/2026/05/19/obituaries/tickle-me-elmo-greg-hyman.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-oregon-us-senate-p
 **Oregon Labor Commissioner Election Results**\
 `Get live results and maps from the 2026 Oregon election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-oregon-labor-commissioner.html
-
-**Georgia Lieutenant Governor Primary Election Results**\
-`Get live results and maps from the 2026 Georgia primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-georgia-lieutenant-governor-primary.html
 
