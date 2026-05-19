@@ -1,3 +1,7 @@
+**Trump Is Said to Have Proposed a New Helipad at the White House**\
+`The exhaust from helicopters’ engines has been known to occasionally scorch the grass on their landing zones.`\
+https://www.nytimes.com/2026/05/18/us/politics/trump-helipad-white-house.html
+
 **A Fearful Phone Call and a Frantic Search Preceded Mosque Shooting**\
 `San Diego police arrived to find three people dead. Nearby, they found two teenagers, the attackers, dead in a car. The violence shattered an idyllic Southern California city.`\
 https://www.nytimes.com/2026/05/18/us/san-diego-mosque-shooting-search.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/18/world/middleeast/iran-war-retaliation-options
 **Mamdani, the ‘Tax-the-Rich’ Mayor, Reaches Out to Titans of Finance**\
 `Mayor Zohran Mamdani, who has angered some corporate executives with his tax policies, has had a recent series of meetings with top business leaders.`\
 https://www.nytimes.com/2026/05/18/nyregion/mamdani-dimon-solomon-meeting.html
-
-**U.S., Escalating Pressure on Cuba, Hits Top Officials With Sanctions**\
-`The Trump administration, ratcheting up its effort to cripple the Cuban government, also imposed sanctions on three government agencies, including the police.`\
-https://www.nytimes.com/2026/05/18/world/americas/cuba-sanctions-us.html
 

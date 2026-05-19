@@ -1,3 +1,7 @@
+**Trump Is Said to Have Proposed a New Helipad at the White House**\
+`The exhaust from helicopters’ engines has been known to occasionally scorch the grass on their landing zones.`\
+https://www.nytimes.com/2026/05/18/us/politics/trump-helipad-white-house.html
+
 **A Fearful Phone Call and a Frantic Search Preceded Mosque Shooting**\
 `San Diego police arrived to find three people dead. Nearby, they found two teenagers, the attackers, dead in a car. The violence shattered an idyllic Southern California city.`\
 https://www.nytimes.com/2026/05/18/us/san-diego-mosque-shooting-search.html
