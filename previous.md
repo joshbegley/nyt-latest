@@ -1,3 +1,7 @@
+**What to Know About the Republican Senate Primary in Alabama**\
+`Three leading contenders, including a Trump-backed congressman, are aiming to replace Senator Tommy Tuberville. The winner will be favored in November.`\
+https://www.nytimes.com/2026/05/19/us/politics/alabama-senate-primaries-midterms.html
+
 **‘Beaches’ Sinks on Broadway**\
 `A musical version of the 1980s tear-jerker will close months earlier than planned after opening in April to negative reviews and soft sales.`\
 https://www.nytimes.com/2026/05/19/theater/beaches-broadway-closing.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/19/opinion/baseball-fandom.html
 **Las protestas han paralizado Bolivia. Estos son los motivos**\
 `El apoyo al presidente Rodrigo Paz ha ido menguando después de que tomó una serie de medidas que han sido consideradas como un distanciamiento con los sectores populares.`\
 https://www.nytimes.com/es/2026/05/19/espanol/america-latina/bolivia-protestas.html
-
-**Two friends are split over who should represent their Kentucky district.**\
-``\
-https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/two-friends-are-split-over-who-should-represent-their-kentucky-district
 

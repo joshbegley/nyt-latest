@@ -1,47 +1,3 @@
-**What to Know About the Republican Senate Primary in Alabama**\
-`Three leading contenders, including a Trump-backed congressman, are aiming to replace Senator Tommy Tuberville. The winner will be favored in November.`\
-https://www.nytimes.com/2026/05/19/us/politics/alabama-senate-primaries-midterms.html
-
-**‘Beaches’ Sinks on Broadway**\
-`A musical version of the 1980s tear-jerker will close months earlier than planned after opening in April to negative reviews and soft sales.`\
-https://www.nytimes.com/2026/05/19/theater/beaches-broadway-closing.html
-
-**With Trump’s Settlement, a Possible $100 Million I.R.S. Penalty Melts Away**\
-`The tax service argued that the Trump Organization tried to claim the same losses twice. The president said the audit was a “disgrace.”`\
-https://www.nytimes.com/2026/05/19/us/politics/trump-settlement-irs.html
-
-**Key Areas to Watch in Georgia’s Republican Senate Primary**\
-`Three candidates are jockeying for position in a race that is likely to result in a runoff.`\
-https://www.nytimes.com/2026/05/19/us/elections/georgia-senate-republican-primary-areas-to-watch.html
-
-**Andy Barr Wins Republican Primary for McConnell’s Seat in Kentucky**\
-`Mr. Barr, who serves in the House, consolidated support among Republicans in part by securing the endorsement of President Trump.`\
-https://www.nytimes.com/2026/05/19/us/politics/andy-barr-republican-primary-mcconnell-kentucky.html
-
-**5 Things to Know About the Georgia Senate Candidate Mike Collins**\
-`The congressman is a Trump acolyte who has a history of incendiary social media posts.`\
-https://www.nytimes.com/2026/05/19/us/politics/mike-collins-georgia-republican-senate-election.html
-
-**5 Things to Know About the Georgia Senate Candidate Derek Dooley**\
-`Mr. Dooley is a former football coach running in the Republican primary with the support of Gov. Brian Kemp.`\
-https://www.nytimes.com/2026/05/19/us/politics/derek-dooley-georgia-republican-senate-election.html
-
-**5 Things to Know About the Georgia Senate Candidate Buddy Carter**\
-`The congressman is a Trump acolyte who has found some common ground with Democrats on energy issues.`\
-https://www.nytimes.com/2026/05/19/us/politics/buddy-carter-georgia-republican-senate-election.html
-
-**5 Things to Know About Senator Jon Ossoff of Georgia**\
-`He is the youngest member of the Senate and once volunteered for the civil rights leader John Lewis’s congressional office.`\
-https://www.nytimes.com/2026/05/19/us/politics/jon-ossoff-georgia-democrat-senate-election.html
-
-**Under a Cloud of Uncertainty, Alabama Voters Head to the Polls**\
-`Voters in Alabama cast their ballots, unsure about whether a recent Supreme Court decision would change their congressional districts going forward.`\
-https://www.nytimes.com/2026/05/19/us/politics/uncertainty-alabama-voters.html
-
-**What the Senate Primary Polls Tell Us in Georgia, Alabama and Kentucky**\
-`The Republican primaries in all three states are expected to be competitive, with two of them likely to advance to runoff elections.`\
-https://www.nytimes.com/2026/05/19/us/elections/republican-senate-primaries-georgia-alabama-kentucky.html
-
 **Blanche Defends $1.8 Billion Fund as Skepticism Mounts**\
 `The acting attorney general told lawmakers the fund would review claims from an array of people, not just Republicans.`\
 https://www.nytimes.com/2026/05/19/us/politics/blanche-congress-compensation-fund.html
@@ -77,4 +33,48 @@ https://www.nytimes.com/2026/05/19/opinion/baseball-fandom.html
 **Las protestas han paralizado Bolivia. Estos son los motivos**\
 `El apoyo al presidente Rodrigo Paz ha ido menguando después de que tomó una serie de medidas que han sido consideradas como un distanciamiento con los sectores populares.`\
 https://www.nytimes.com/es/2026/05/19/espanol/america-latina/bolivia-protestas.html
+
+**Two friends are split over who should represent their Kentucky district.**\
+``\
+https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/two-friends-are-split-over-who-should-represent-their-kentucky-district
+
+**Kentucky U.S. Senate Primary Election Results**\
+`Get live results and maps from the 2026 Kentucky primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-kentucky-us-senate-primary.html
+
+**Alabama Primary Election Results**\
+`Get live results and maps from the 2026 Alabama primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-alabama-primary.html
+
+**The I.R.S. Will Drop Audits of Trump and His Family**\
+`Also, voters cast ballots in key primaries. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/05/19/briefing/irs-audits-trump-deal.html
+
+**5 Things to Know About Representative Thomas Massie of Kentucky**\
+`President Trump has backed his primary challenger, seeking to oust the libertarian-leaning congressman and longtime antagonist.`\
+https://www.nytimes.com/2026/05/19/us/politics/thomas-massie-kentucky-republican-house-election.html
+
+**5 Things to Know About the Kentucky House Challenger Ed Gallrein**\
+`Mr. Gallrein has President Trump’s support in his bid to oust Representative Thomas Massie.`\
+https://www.nytimes.com/2026/05/19/us/politics/ed-gallrein-kentucky-republican-house-election.html
+
+**Read the Provision Involving Audits of Trump’s Returns**\
+`Officials have agreed not to pursue any matters, including those involving Mr. Trump’s tax returns, that are currently pending. Here is the document that outlines this.`\
+https://www.nytimes.com/interactive/2026/05/19/us/politics/trump-irs-doj-lawsuit-audit-addendum.html
+
+**What is the Bundibugyo Virus Involved in the Ebola Outbreak?**\
+`Here’s what to know about the symptoms and spread of the virus, which has sickened people in the Democratic Republic of Congo and Uganda.`\
+https://www.nytimes.com/2026/05/19/well/ebola-bundibugyo-virus-symptoms.html
+
+**When to Expect Results in Tuesday’s Primaries**\
+`Polls begin closing in some states at 6 p.m. Eastern time, but the counting is already underway in some areas.`\
+https://www.nytimes.com/2026/05/19/us/politics/election-results-timing.html
+
+**The Police Clash with Anti-Government Protesters in Bolivia**\
+`The police fired tear gas at protesters who demanded the resignation of President Rodrigo Paz. Many of the voters who originally supported Mr. Paz, now say that they feel alienated by his actions and policies.`\
+https://www.nytimes.com/video/world/americas/100000010912715/bolivia-police-protest-president-paz.html
+
+**International Booker Prize Goes to a Love Story Out of Taiwan**\
+`“Taiwan Travelogue” is the first novel originally written in Mandarin to win the major award for fiction translated into English.`\
+https://www.nytimes.com/2026/05/19/books/international-booker-prize-taiwan-travelogue.html
 

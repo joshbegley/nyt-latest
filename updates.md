@@ -1,3 +1,7 @@
+**What to Know About the Republican Senate Primary in Alabama**\
+`Three leading contenders, including a Trump-backed congressman, are aiming to replace Senator Tommy Tuberville. The winner will be favored in November.`\
+https://www.nytimes.com/2026/05/19/us/politics/alabama-senate-primaries-midterms.html
+
 **‘Beaches’ Sinks on Broadway**\
 `A musical version of the 1980s tear-jerker will close months earlier than planned after opening in April to negative reviews and soft sales.`\
 https://www.nytimes.com/2026/05/19/theater/beaches-broadway-closing.html
