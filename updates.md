@@ -1,3 +1,11 @@
+**Polls in Kentucky’s 4th District Show an Extremely Tight Race**\
+`With support from President Trump, Ed Gallrein is challenging Representative Thomas Massie.`\
+https://www.nytimes.com/2026/05/19/us/elections/massie-polls-kentucky-4th-district.html
+
+**The New ‘Gold Rush’ of Geothermal Energy**\
+`A new wave of start-ups are trying to harvest emissions-free energy from inside the Earth, but the industry still faces significant challenges.`\
+https://www.nytimes.com/2026/05/19/climate/the-new-gold-rush-of-geothermal-energy.html
+
 **Protests Have Paralyzed Bolivia. Here’s Why.**\
 `After two decades of leftist rule, many voters who backed Bolivia’s new, more conservative president say he’s made their lives harder and are demanding his removal.`\
 https://www.nytimes.com/2026/05/19/world/americas/bolivia-protests-la-paz.html

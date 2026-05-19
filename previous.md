@@ -1,3 +1,11 @@
+**Polls in Kentucky’s 4th District Show an Extremely Tight Race**\
+`With support from President Trump, Ed Gallrein is challenging Representative Thomas Massie.`\
+https://www.nytimes.com/2026/05/19/us/elections/massie-polls-kentucky-4th-district.html
+
+**The New ‘Gold Rush’ of Geothermal Energy**\
+`A new wave of start-ups are trying to harvest emissions-free energy from inside the Earth, but the industry still faces significant challenges.`\
+https://www.nytimes.com/2026/05/19/climate/the-new-gold-rush-of-geothermal-energy.html
+
 **Protests Have Paralyzed Bolivia. Here’s Why.**\
 `After two decades of leftist rule, many voters who backed Bolivia’s new, more conservative president say he’s made their lives harder and are demanding his removal.`\
 https://www.nytimes.com/2026/05/19/world/americas/bolivia-protests-la-paz.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-kentucky-us-house-
 **Alabama Secretary of State Primary Election Results**\
 `Get live results and maps from the 2026 Alabama primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-alabama-secretary-of-state-primary.html
-
-**Alabama Public Service Commission Primary Election Results**\
-`Get live results and maps from the 2026 Alabama primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-alabama-public-service-commission-primary.html
-
-**Idaho First Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 Idaho primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-idaho-us-house-1-primary.html
 
