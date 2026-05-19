@@ -1,3 +1,7 @@
+**Key Areas to Watch in Kentucky’s Republican Primaries**\
+`In a contentious House race, Representative Thomas Massie will look for strength in the Cincinnati suburbs.`\
+https://www.nytimes.com/2026/05/19/us/elections/kentucky-republican-primary-elections-counties.html
+
 **Senate Votes to Take Up Measure to Force Trump to End Iran War**\
 `With four Republican backers, Democrats won a vote to advance a resolution that would force the president to end hostilities or win authorization from Congress.`\
 https://www.nytimes.com/2026/05/19/us/politics/senate-iran-war-authorization.html
@@ -5,6 +9,18 @@ https://www.nytimes.com/2026/05/19/us/politics/senate-iran-war-authorization.htm
 **El IRS no podrá auditar a Trump ni a su familia**\
 `Como parte del acuerdo del fondo de compensación del Departamento de Justicia, la agencia prometió no emprender ninguna acción pendiente, incluidas aquellas que involucren las declaraciones de impuestos del presidente Trump.`\
 https://www.nytimes.com/es/2026/05/19/espanol/estados-unidos/trump-impuestos-irs.html
+
+**Georgia Supreme Court Justice Bethel Seat Election Results**\
+`Get live results and maps from the 2026 Georgia election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-georgia-supreme-court-justice-bethel-seat.html
+
+**Georgia Supreme Court Justice Land Seat Election Results**\
+`Get live results and maps from the 2026 Georgia election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-georgia-supreme-court-justice-land-seat.html
+
+**Georgia Supreme Court Justice Warren Seat Election Results**\
+`Get live results and maps from the 2026 Georgia election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-georgia-supreme-court-justice-warren-seat.html
 
 **How I Lost a Religion**\
 `Lessons from sports fandom on why traditions fade.`\
@@ -38,18 +54,6 @@ https://www.nytimes.com/2026/05/19/us/politics/thomas-massie-kentucky-republican
 `Mr. Gallrein has President Trump’s support in his bid to oust Representative Thomas Massie.`\
 https://www.nytimes.com/2026/05/19/us/politics/ed-gallrein-kentucky-republican-house-election.html
 
-**Georgia Supreme Court Justice Warren Seat Election Results**\
-`Get live results and maps from the 2026 Georgia election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-georgia-supreme-court-justice-warren-seat.html
-
-**Georgia Supreme Court Justice Bethel Seat Election Results**\
-`Get live results and maps from the 2026 Georgia election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-georgia-supreme-court-justice-bethel-seat.html
-
-**Georgia Supreme Court Justice Land Seat Election Results**\
-`Get live results and maps from the 2026 Georgia election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-georgia-supreme-court-justice-land-seat.html
-
 **Read the Provision Involving Audits of Trump’s Returns**\
 `Officials have agreed not to pursue any matters, including those involving Mr. Trump’s tax returns, that are currently pending. Here is the document that outlines this.`\
 https://www.nytimes.com/interactive/2026/05/19/us/politics/trump-irs-doj-lawsuit-audit-addendum.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/19/books/international-booker-prize-taiwan-trave
 **Trump’s Stock Trades Raise Eyebrows. The Family Says He Keeps His Hands Off.**\
 `The Trump Organization says the president’s financial investments are handled by outside firms and that it has no control over the timing or selection of transactions.`\
 https://www.nytimes.com/2026/05/19/us/politics/trump-stock-trades.html
-
-**What the End of Aid Looks Like**\
-`The United States and other countries are cutting humanitarian relief. Our reporter went to Somalia to see the impact.`\
-https://www.nytimes.com/2026/05/19/world/aid-cuts-somalia-putin-china.html
 

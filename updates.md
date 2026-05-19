@@ -1,3 +1,15 @@
+**Senate Votes to Take Up Measure to Force Trump to End Iran War**\
+`With four Republican backers, Democrats won a vote to advance a resolution that would force the president to end hostilities or win authorization from Congress.`\
+https://www.nytimes.com/2026/05/19/us/politics/senate-iran-war-authorization.html
+
+**El IRS no podrá auditar a Trump ni a su familia**\
+`Como parte del acuerdo del fondo de compensación del Departamento de Justicia, la agencia prometió no emprender ninguna acción pendiente, incluidas aquellas que involucren las declaraciones de impuestos del presidente Trump.`\
+https://www.nytimes.com/es/2026/05/19/espanol/estados-unidos/trump-impuestos-irs.html
+
+**How I Lost a Religion**\
+`Lessons from sports fandom on why traditions fade.`\
+https://www.nytimes.com/2026/05/19/opinion/baseball-fandom.html
+
 **Las protestas han paralizado Bolivia. Estos son los motivos**\
 `El apoyo al presidente Rodrigo Paz ha ido menguando después de que tomó una serie de medidas que han sido consideradas como un distanciamiento con los sectores populares.`\
 https://www.nytimes.com/es/2026/05/19/espanol/america-latina/bolivia-protestas.html
