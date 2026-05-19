@@ -1,3 +1,7 @@
+**Key Areas to Watch in Georgia’s Republican Senate Primary**\
+`Three candidates are jockeying for position in a race that is likely to result in a runoff.`\
+https://www.nytimes.com/2026/05/19/us/elections/georgia-senate-republican-primary-areas-to-watch.html
+
 **Andy Barr Wins Republican Primary for McConnell’s Seat in Kentucky**\
 `Mr. Barr, who serves in the House, consolidated support among Republicans in part by securing the endorsement of President Trump.`\
 https://www.nytimes.com/2026/05/19/us/politics/andy-barr-republican-primary-mcconnell-kentucky.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-kentucky-us-senate
 **Alabama Primary Election Results**\
 `Get live results and maps from the 2026 Alabama primary elections.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-alabama-primary.html
-
-**The I.R.S. Will Drop Audits of Trump and His Family**\
-`Also, voters cast ballots in key primaries. Here’s the latest at the end of Tuesday.`\
-https://www.nytimes.com/2026/05/19/briefing/irs-audits-trump-deal.html
 

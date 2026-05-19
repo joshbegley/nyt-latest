@@ -1,3 +1,7 @@
+**Key Areas to Watch in Georgia’s Republican Senate Primary**\
+`Three candidates are jockeying for position in a race that is likely to result in a runoff.`\
+https://www.nytimes.com/2026/05/19/us/elections/georgia-senate-republican-primary-areas-to-watch.html
+
 **Andy Barr Wins Republican Primary for McConnell’s Seat in Kentucky**\
 `Mr. Barr, who serves in the House, consolidated support among Republicans in part by securing the endorsement of President Trump.`\
 https://www.nytimes.com/2026/05/19/us/politics/andy-barr-republican-primary-mcconnell-kentucky.html
