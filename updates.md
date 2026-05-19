@@ -1,3 +1,19 @@
+**Top Treasury Lawyer Resigns After Creation of ‘Anti-Weaponization Fund’**\
+`Brian Morrissey, the department’s general counsel, stepped down hours after the Trump administration announced the $1.8 billion fund.`\
+https://www.nytimes.com/2026/05/18/business/anti-weaponization-fund-brian-morrissey-treasury.html
+
+**Trump Moves to Admit 10,000 More White South Africans as Refugees**\
+`The Trump administration argues that an “emergency refugee situation” in South Africa merits bringing more Afrikaners to America, at a cost of some $100 million.`\
+https://www.nytimes.com/2026/05/18/us/politics/trump-afrikaner-refugees.html
+
+**Judge Bars ICE From Making Immigration Arrests at Courts in New York**\
+`The Trump administration’s practice of detaining migrants at federal courthouses had stirred outrage.`\
+https://www.nytimes.com/2026/05/18/nyregion/ice-immigrant-arrests-nyc-courts.html
+
+**Southern California Fire Forces More Than 29,000 to Evacuate**\
+`Hundreds of firefighters battled a fast-moving brush fire that broke out in Simi Valley, Calif., on Monday.`\
+https://www.nytimes.com/video/us/100000010911340/wildfire-simi-valley-evacuations.html
+
 **San Diego Mosque Attack Comes Amid Rising Reports of Islamophobia**\
 `The Council on American-Islamic Relations said complaints about bias against Muslims are at levels unseen in decades.`\
 https://www.nytimes.com/2026/05/18/us/san-diego-mosque-shooting-islamaphobia.html
