@@ -8,7 +8,7 @@ https://www.nytimes.com/2026/05/19/business/dealbook/mythos-ai-fomo-moment.html
 
 **A billionaire’s ad barrage upended the Georgia race for governor.**\
 ``\
-https://www.nytimes.com/live/2026/05/19/us/election-kentucky-pennsylvania-georgia/a-billionaires-ad-barrage-upended-the-georgia-race-for-governor
+https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/a-billionaires-ad-barrage-upended-the-georgia-race-for-governor
 
 **Peltola Debuts First Television Ad in High-Profile Alaska Senate Contest**\
 `Democrats face an uphill battle to win the Senate. They see in Mary Peltola, the first Native Alaskan elected to Congress, their best chance to unseat Senator Dan Sullivan.`\
@@ -24,7 +24,7 @@ https://www.nytimes.com/2026/05/19/us/san-diego-mosque-shooting.html
 
 **Georgia Republicans are grasping for a contender to challenge Senator Jon Ossoff.**\
 ``\
-https://www.nytimes.com/live/2026/05/19/us/election-kentucky-pennsylvania-georgia/georgia-republicans-are-grasping-for-a-contender-to-challenge-senator-jon-ossoff
+https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/georgia-republicans-are-grasping-for-a-contender-to-challenge-senator-jon-ossoff
 
 **The Race to Control Congress**\
 `We look at where the parties stand leading up to the midterms.`\
@@ -32,7 +32,7 @@ https://www.nytimes.com/2026/05/19/briefing/the-race-to-control-congress.html
 
 **The war on Iran has complicated a closely watched Republican primary.**\
 ``\
-https://www.nytimes.com/live/2026/05/19/us/election-kentucky-pennsylvania-georgia/the-war-on-iran-has-complicated-a-closely-watched-republican-primary
+https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/the-war-on-iran-has-complicated-a-closely-watched-republican-primary
 
 **Francia tiene una nueva imagen del Holocausto**\
 `Una colección inédita de fotografías de propaganda nazi revela la primera gran redada de judíos en París en 1941.`\
@@ -64,7 +64,7 @@ https://www.nytimes.com/2026/05/19/crosswords/strands-sidekick-808.html
 
 **Here’s the latest.**\
 ``\
-https://www.nytimes.com/live/2026/05/19/us/election-kentucky-pennsylvania-georgia/heres-the-latest
+https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/heres-the-latest
 
 **Cheap Trick: Debunking the ‘Magic’ of Mentalist Oz Pearlman**\
 `Magician Stevie Baskin explains to Pablo why he thinks this brand of “mind-reading” amounts to fraud.`\
