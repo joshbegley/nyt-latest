@@ -1,3 +1,7 @@
+**Nacionalismo vs. nacionalismo**\
+`Un nacionalismo progresista y pluralista se impuso en las urnas en Escocia y Gales. ¿Podría cobrar fuerza en otros lugares?`\
+https://www.nytimes.com/es/2026/05/19/espanol/mundo/nacionalismo-escocia-gales.html
+
 **A Trump Dissenter Fights for His Political Life**\
 `In a Republican primary for a House seat in Kentucky, Rep. Thomas Massie is facing off against Ed Gallrein, who is backed by the president.`\
 https://www.nytimes.com/2026/05/19/podcasts/the-daily/kentucky-primary-masse-gallerin.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/05/19/opinion/california-governor-prima
 **6 ejercicios para mejorar tu coordinación**\
 `Estos peculiares movimientos activarán simultáneamente tus músculos, sentidos y sistema nervioso.`\
 https://www.nytimes.com/es/2026/05/19/espanol/ejercicios-coordinacion-longevidad-vivir-mas.html
-
-**Do You Know What a Luthier Is? He’s One of the Best.**\
-`Sam Zygmuntowicz, who is being honored by the Chamber Music Society, is an instrument maker who crafts many of the string instruments used by its performers.`\
-https://www.nytimes.com/2026/05/19/nyregion/instrument-maker-sam-zygmuntowicz.html
 
