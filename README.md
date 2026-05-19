@@ -1,3 +1,7 @@
+**Andy Barr Wins Republican Primary for McConnell’s Seat in Kentucky**\
+`Mr. Barr, who serves in the House, consolidated support among Republicans in part by securing the endorsement of President Trump.`\
+https://www.nytimes.com/2026/05/19/us/politics/andy-barr-republican-primary-mcconnell-kentucky.html
+
 **5 Things to Know About the Georgia Senate Candidate Mike Collins**\
 `The congressman is a Trump acolyte who has a history of incendiary social media posts.`\
 https://www.nytimes.com/2026/05/19/us/politics/mike-collins-georgia-republican-senate-election.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-alabama-primary.ht
 **The I.R.S. Will Drop Audits of Trump and His Family**\
 `Also, voters cast ballots in key primaries. Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/05/19/briefing/irs-audits-trump-deal.html
-
-**5 Things to Know About Representative Thomas Massie of Kentucky**\
-`President Trump has backed his primary challenger, seeking to oust the libertarian-leaning congressman and longtime antagonist.`\
-https://www.nytimes.com/2026/05/19/us/politics/thomas-massie-kentucky-republican-house-election.html
 
