@@ -1,3 +1,27 @@
+**Las protestas han paralizado Bolivia. Estos son los motivos**\
+`El apoyo al presidente Rodrigo Paz ha ido menguando después de que tomó una serie de medidas que han sido consideradas como un distanciamiento con los sectores populares.`\
+https://www.nytimes.com/es/2026/05/19/espanol/america-latina/bolivia-protestas.html
+
+**Two friends are split over who should represent their Kentucky district.**\
+``\
+https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/two-friends-are-split-over-who-should-represent-their-kentucky-district
+
+**Kentucky U.S. Senate Primary Election Results**\
+`Get live results and maps from the 2026 Kentucky primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-kentucky-us-senate-primary.html
+
+**Alabama Primary Election Results**\
+`Get live results and maps from the 2026 Alabama primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-alabama-primary.html
+
+**The I.R.S. Will Drop Audits of Trump and His Family**\
+`Also, voters cast ballots in key primaries. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/05/19/briefing/irs-audits-trump-deal.html
+
+**5 Things to Know About Representative Thomas Massie of Kentucky**\
+`President Trump has backed his primary challenger, seeking to oust the libertarian-leaning congressman and longtime antagonist.`\
+https://www.nytimes.com/2026/05/19/us/politics/thomas-massie-kentucky-republican-house-election.html
+
 **5 Things to Know About the Kentucky House Challenger Ed Gallrein**\
 `Mr. Gallrein has President Trump’s support in his bid to oust Representative Thomas Massie.`\
 https://www.nytimes.com/2026/05/19/us/politics/ed-gallrein-kentucky-republican-house-election.html
