@@ -1,3 +1,7 @@
+**Sean Duffy to Testify Amid Questions About Road Trip YouTube Series**\
+`The transportation secretary’s reality-show-like series is meant to commemorate the nation’s 250th birthday but has faced questions about its funding.`\
+https://www.nytimes.com/2026/05/19/us/politics/sean-duffy-senate-testimony.html
+
 **6 New Songs You Should Hear Now**\
 `Listen to Kurt Vile’s poetic rock, Nia Archives’s electric earworm and a new tune from Mike D.`\
 https://www.nytimes.com/2026/05/19/arts/music/amplifier-newsletter-kurt-vile-mike-d.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-georgia-us-senate-
 **Zapatero, Spain’s Former Leader, Investigated for Graft**\
 `José Luis Rodríguez Zapatero, who led Spain from 2004 to 2011, is accused of influence peddling after he left office. He has denied wrongdoing.`\
 https://www.nytimes.com/2026/05/19/world/europe/spain-zapatero-indicted-corruption.html
-
-**Kentucky Fourth Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 Kentucky primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-kentucky-us-house-4-primary.html
 

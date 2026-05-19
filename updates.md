@@ -1,3 +1,7 @@
+**Sean Duffy to Testify Amid Questions About Road Trip YouTube Series**\
+`The transportation secretary’s reality-show-like series is meant to commemorate the nation’s 250th birthday but has faced questions about its funding.`\
+https://www.nytimes.com/2026/05/19/us/politics/sean-duffy-senate-testimony.html
+
 **6 New Songs You Should Hear Now**\
 `Listen to Kurt Vile’s poetic rock, Nia Archives’s electric earworm and a new tune from Mike D.`\
 https://www.nytimes.com/2026/05/19/arts/music/amplifier-newsletter-kurt-vile-mike-d.html
