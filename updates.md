@@ -1,3 +1,7 @@
+**San Diego Mosque Attack Comes Amid Rising Reports of Islamophobia**\
+`The Council on American-Islamic Relations said complaints about bias against Muslims are at levels unseen in decades.`\
+https://www.nytimes.com/2026/05/18/us/san-diego-mosque-shooting-islamaphobia.html
+
 **EE. UU. aumenta la presión sobre Cuba y sanciona a altos funcionarios**\
 `La medida supone una importante escalada en la campaña del gobierno de Trump para obligar al gobierno comunista a revisar su sistema económico y político.`\
 https://www.nytimes.com/es/2026/05/18/espanol/america-latina/sanciones-cuba-trump.html
