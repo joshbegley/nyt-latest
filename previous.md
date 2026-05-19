@@ -1,3 +1,27 @@
+**Iran War Exposes Shortcomings in U.S. Military Industrial Base**\
+`Defense Secretary Pete Hegseth is taking on a problem that the Pentagon and Congress have tried, and mostly failed, to address for years.`\
+https://www.nytimes.com/2026/05/19/us/politics/pentagon-weapons-drones-iran-war-hegseth.html
+
+**Neanderthal Dentistry, and the Scientist Glad Not to Have Experienced It**\
+`The prehistoric hominins “apparently were very adept at what we would consider invasive medicine,” said the anthropologist John Olsen.`\
+https://www.nytimes.com/2026/05/19/science/neanderthal-tooth-dentistry.html
+
+**‘We Don’t Have a Choice’: Tough Commutes Persist After L.I.R.R. Strike Deal**\
+`Transit officials and unions representing Long Island Rail Road employees agreed to a new contract on Monday, ending a three-day strike. But service remained limited on Tuesday morning.`\
+https://www.nytimes.com/2026/05/19/nyregion/commute-lirr-strike-deal.html
+
+**How Trump Entrusted His World Cup to Another Giuliani**\
+`Andrew Giuliani, the son of Rudy and a longtime Trump loyalist, is overseeing American hosting duties for the World Cup next month. It’s a big promotion.`\
+https://www.nytimes.com/2026/05/19/us/politics/world-cup-trump-andrew-giuliani.html
+
+**China Wants A.I. to Flourish, but Not at the Expense of Jobs**\
+`A series of precedent-setting rulings signals that Chinese courts are being enlisted to shield workers from displacement by artificial intelligence.`\
+https://www.nytimes.com/2026/05/19/business/china-ai-unemployment.html
+
+**Tesla’s Newest Electric Vehicle Could Jolt the Trucking Industry**\
+`California truckers have expressed strong interest in the Tesla Semi because it costs much less and can travel further on a charge than electric trucks sold by established manufacturers.`\
+https://www.nytimes.com/2026/05/19/business/energy-environment/teslas-semi-truck.html
+
 **When does your state vote? Here’s the 2026 primary calendar.**\
 ``\
 https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/when-does-your-state-vote-heres-the-2026-primary-calendar
@@ -53,28 +77,4 @@ https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/a-billionai
 **Peltola Debuts First Television Ad in High-Profile Alaska Senate Contest**\
 `Democrats face an uphill battle to win the Senate. They see in Mary Peltola, the first Native Alaskan elected to Congress, their best chance to unseat Senator Dan Sullivan.`\
 https://www.nytimes.com/2026/05/19/us/politics/19peltola-alaska-senate-ads.html
-
-**Middle East on Edge After Trump Says He Delayed Attack on Iran**\
-`President Trump said he had postponed a “very major attack” against Iran, as Pakistan continued its mediation efforts to end the war.`\
-https://www.nytimes.com/2026/05/19/world/middleeast/iran-trump-tension.html
-
-**What to Know About the San Diego Mosque Shooting**\
-`Three men were killed in the attack at the Islamic Center of San Diego. Two teenage suspects were found dead in a car nearby, police said.`\
-https://www.nytimes.com/2026/05/19/us/san-diego-mosque-shooting.html
-
-**Georgia Republicans are grasping for a contender to challenge Senator Jon Ossoff.**\
-``\
-https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/georgia-republicans-are-grasping-for-a-contender-to-challenge-senator-jon-ossoff
-
-**The Race to Control Congress**\
-`We look at where the parties stand leading up to the midterms.`\
-https://www.nytimes.com/2026/05/19/briefing/the-race-to-control-congress.html
-
-**The war on Iran has complicated a closely watched Republican primary.**\
-``\
-https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/the-war-on-iran-has-complicated-a-closely-watched-republican-primary
-
-**Francia tiene una nueva imagen del Holocausto**\
-`Una colección inédita de fotografías de propaganda nazi revela la primera gran redada de judíos en París en 1941.`\
-https://www.nytimes.com/es/2026/05/19/espanol/opinion/fotos-nazi-holocausto-francia.html
 
