@@ -1,80 +1,80 @@
-**La búsqueda subterránea de un combustible limpio**\
-`El sueño del hidrógeno limpio ha seducido a los expertos en energía durante años, pero producirlo ha sido difícil. Muchas empresas emergentes creen que la respuesta podría estar bajo nuestros pies.`\
-https://www.nytimes.com/es/2026/05/19/espanol/tiempo-y-clima/hidrogeno-energia-limpia.html
+**How to End the Gerrymandering Doom Loop Forever**\
+`The political scientist Lee Drutman argues that we should switch to a system of proportional representation and put an end to our “trench warfare politics.”`\
+https://www.nytimes.com/2026/05/19/opinion/ezra-klein-podcast-lee-drutman.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/05/19/crosswords/spelling-bee-forum.html
+**Trump Is Down. Can Democrats Go Up?**\
+`Is there anything Democrats can do to break free of a deeply polarized political system in which parties are constantly winning and then losing office?`\
+https://www.nytimes.com/2026/05/19/opinion/trump-democrats-republicans-midterms-moderation.html
 
-**Clubs**\
-`Do you belong to any? If you could start a club around anything, what would it be, and why?`\
-https://www.nytimes.com/2026/05/19/learning/clubs.html
+**El mundo de las aplicaciones de citas está a punto de cambiar**\
+`Bumble eliminará la función que reconfiguró nuestra forma de buscar el amor. Puede que quienes busquen pareja estén preparados para algo más intencionado.`\
+https://www.nytimes.com/es/2026/05/19/espanol/bumble-swipeless.html
 
-**Motherhood Changed Ilana Glazer. A Reporter Knew What That Felt Like.**\
-`Sometimes a reporter and subject can converse on a common ground.`\
-https://www.nytimes.com/2026/05/19/us/ilana-glazer-motherhood.html
+**As OpenAI Celebrates Court Win Against Musk, Other Challenges Lie Ahead**\
+`A jury’s rejection of Elon Musk’s $150 billion lawsuit against OpenAI was a major hurdle crossed. But the maker of ChatGPT faces a list of other problems.`\
+https://www.nytimes.com/2026/05/19/technology/openai-musk-legal-challenges.html
 
-**Interest in N.Y.C. Pre-K Programs Is Flat, Despite Mamdani’s Outreach**\
-`Expanding child care is a pillar of Mayor Zohran Mamdani’s affordability agenda. Newly released application numbers may raise questions about strategy and demand.`\
-https://www.nytimes.com/2026/05/19/nyregion/nyc-prek-enrollment-mamdani.html
+**W.H.O. Chief Is ‘Deeply Concerned’ By Speed and Scale of Ebola Outbreak As Cases Rise**\
+`The warning came shortly after Congo officials reported more than 130 suspected deaths and 513 cases, a sharp rise since the outbreak was first reported over the weekend.`\
+https://www.nytimes.com/2026/05/19/world/africa/ebola-outbreak-deaths-congo-who.html
 
-**Deal Ends Long Island Rail Road Strike**\
-`The Long Island Rail Road strike ended after transit officials and union representatives reached a deal. Tuesday’s commute was expected to be disrupted even as regular train service resumed.`\
-https://www.nytimes.com/video/us/100000010910715/long-island-railroad-union-strike-nyc.html
+**The Best of ‘S.N.L.’ Season 51: Sensitive Strippers and Regretful Moms**\
+`This season “Saturday Night Live” found new ways to satirize the Trump administration and said goodbye to one of its most valuable cast members.`\
+https://www.nytimes.com/2026/05/19/arts/television/saturday-night-live-snl-season-51-highlights.html
 
-**Jon Stewart Asks What ‘Daddy’ Brought Back From China**\
-`“He was gone for a couple of days in China. We were scared,” Stewart said of President Trump on Monday’s “The Daily Show.” “But now he’s home, and I’m sure he brought us all the goodies.”`\
-https://www.nytimes.com/2026/05/19/arts/television/jon-stewart-trump-china.html
+**Bipartisan Bill Would Impose New Annual Fee on Electric Vehicles**\
+`A House transportation bill introduced this week would require owners of electric cars to pay $130 to cover the cost of road repairs.`\
+https://www.nytimes.com/2026/05/19/business/energy-environment/electrc-vehicles-annual-fee-congress.html
 
-**‘El señor de las moscas’ ya no nos asusta**\
-`La brutalidad contemporánea hace que la novela de William Golding ya no resulte tan perturbadora como alguna vez lo fue.`\
-https://www.nytimes.com/es/2026/05/19/espanol/senor-moscas-netflix.html
+**Who Should Be the Next Governor of California?**\
+`Times Opinion convened a panel of state experts to weigh in on the primary.`\
+https://www.nytimes.com/interactive/2026/05/19/opinion/california-governor-primary-election.html
 
-**Word of the Day: altruistic**\
-`This word has appeared in 26 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/05/19/learning/word-of-the-day-altruistic.html
+**6 ejercicios para mejorar tu coordinación**\
+`Estos peculiares movimientos activarán simultáneamente tus músculos, sentidos y sistema nervioso.`\
+https://www.nytimes.com/es/2026/05/19/espanol/ejercicios-coordinacion-longevidad-vivir-mas.html
 
-**Startled Horse Topples a Carriage in Central Park, Injuring Its Driver**\
-`New York City’s horse-drawn carriages have been the subject of a long-running political debate over animal welfare, public safety and jobs.`\
-https://www.nytimes.com/2026/05/19/nyregion/central-park-nyc-horse-carriage-collision.html
+**Do You Know What a Luthier Is? He’s One of the Best.**\
+`Sam Zygmuntowicz, who is being honored by the Chamber Music Society, is an instrument maker who crafts many of the string instruments used by its performers.`\
+https://www.nytimes.com/2026/05/19/nyregion/instrument-maker-sam-zygmuntowicz.html
 
-**Last-Minute Donation Could Upend G.O.P. Primary for Texas Attorney General**\
-`A single donor’s contribution of $2.75 million could help propel Representative Chip Roy in his clash with a self-funded state senator, Mayes Middleton.`\
-https://www.nytimes.com/2026/05/19/us/chip-roy-donation-texas-attorney-general.html
+**A 16th-Century Sketch Claims to Depict Anne Boleyn. A.I. Says It’s Her Mom.**\
+`Using facial-recognition technology, scholars have concluded that a 500-year-old drawing labeled “Anna Bollein Queen” more likely showed her mother, Elizabeth Howard.`\
+https://www.nytimes.com/2026/05/19/science/ai-art-anne-boleyn.html
 
-**At Cannes, the Movies Are Divisive and the Arguments Heated**\
-`Without strong front-runners for the Palme d’Or, every movie is getting mixed reactions, especially the sci-fi action film “Hope.”`\
-https://www.nytimes.com/2026/05/19/movies/cannes-film-festival-hope-all-of-a-sudden-paper-tiger.html
+**Filling a Lenox Hill Living Room With Objects That Inspire**\
+`The designer Josh Greene splurged on a sexy ’70s credenza and found the perfect display for heirloom antiques in his one-bedroom co-op.`\
+https://www.nytimes.com/2026/05/19/realestate/filling-a-lenox-hill-living-room-with-objects-that-inspire.html
 
-**Trump’s Portrait Now Branded on Rickshaws in Delhi**\
-`The president is popping up on the back of the iconic three-wheeler to kick off America’s 250th anniversary celebrations in India.`\
-https://www.nytimes.com/2026/05/19/world/asia/india-trump-auto-rickshaws.html
+**How to End the Gerrymandering Doom Loop Forever**\
+`The political scientist Lee Drutman argues that we should switch to a system of proportional representation and put an end to our “trench warfare politics.”`\
+https://www.nytimes.com/video/opinion/100000010905496/how-to-end-the-gerrymandering-doom-loop-forever.html
 
-**Oil Slick Reaches a Pristine Persian Gulf Island in Iran**\
-`Videos show birds, turtles and crabs trapped inside mounds of tar around Shidvar island, a protected wildlife sanctuary with turquoise waters and white sand beaches.`\
-https://www.nytimes.com/2026/05/19/world/europe/oil-slick-reaches-a-pristine-persian-gulf-island-in-iran.html
+**As Ukraine Hits Oil Refineries, Russians Pay a Heavy Environmental Toll**\
+`After invading more than four years ago, Moscow has usually been the one causing ecological disaster. But Kyiv’s strikes, intended to cut into the Kremlin’s oil revenue, have flipped the script.`\
+https://www.nytimes.com/2026/05/19/world/europe/russia-ukraine-oil-attacks-war-tuapse.html
 
-****\
-`The campaign, organized by the U.S. Embassy in India, features President Trump on some auto rickshaws and the Statue of Liberty on others.`\
-https://www.nytimes.com/video/embedded/world/asia/100000010909658/19INT-INDIA-TRUMP-RICKSHAWS-49432.html
+**What Retro Hobby Would You Like to See Make a Comeback?**\
+`Hacky sack, a popular game from the ’80s and ’90s, is back in a big way with Gen Z. Are there other old games or activities you think teens would enjoy?`\
+https://www.nytimes.com/2026/05/19/learning/what-retro-hobby-would-you-like-to-see-make-a-comeback.html
 
-**Corrections: May 19, 2026**\
-`Corrections that appeared in print on Tuesday, May 19, 2026.`\
-https://www.nytimes.com/2026/05/19/pageoneplus/corrections-may-19-2026.html
+**Three Decades on the Supreme Court Is Too Long**\
+`In a representative democracy, no one should hold so much power for so long.`\
+https://www.nytimes.com/2026/05/19/opinion/supreme-court-tenure.html
 
-**Quote of the Day: Spotlight Left Greenland, but U.S. Interest Hasn’t Wavered**\
-`Quotation of the Day for Tuesday, May 19, 2026.`\
-https://www.nytimes.com/2026/05/18/pageoneplus/quote-of-the-day-spotlight-left-greenland-but-us-interest-hasnt-wavered.html
+**Calls for ‘No Seed Oil’ Push Companies to Order Up Butter and Beef Tallow**\
+`Businesses are finding different (and more costly) ways to fry foods as shoppers demand alternatives to seed oils as part of the Make America Healthy Again movement.`\
+https://www.nytimes.com/2026/05/19/business/calls-for-no-seed-oil-push-companies-to-order-up-butter-and-beef-tallow.html
 
-**Trump Is Said to Have Proposed a New Helipad at the White House**\
-`The exhaust from helicopters’ engines has been known to occasionally scorch the grass on their landing zones.`\
-https://www.nytimes.com/2026/05/18/us/politics/trump-helipad-white-house.html
+**Silicon Valley’s Answer to Declining Male Fertility? Sperm Racing.**\
+`A San Francisco biotech start-up races sex cells on tiny tracks. Can an internet joke become a serious business?`\
+https://www.nytimes.com/2026/05/19/magazine/sperm-racing-silicon-valley.html
 
-**A Fearful Phone Call and a Frantic Search Preceded Mosque Shooting**\
-`San Diego police arrived to find three people dead. Nearby, they found two teenagers, the attackers, dead in a car. The violence shattered an idyllic Southern California city.`\
-https://www.nytimes.com/2026/05/18/us/san-diego-mosque-shooting-search.html
+**The World’s Rarest Pasta Is Hidden in the Mountains of Sardinia**\
+`In the mountains of Northern Sardinia, a 300-year-old pilgrimage comes with a serving of the world’s rarest pasta.`\
+https://www.nytimes.com/interactive/2026/05/19/dining/sardinia-rare-pasta-food-travel.html
 
-**Justices Hint at Strains as Supreme Court Comes Under Scrutiny**\
-`Traveling across the country, justices defend the role of the court even as strained relations among its members emerge in writing and remarks.`\
-https://www.nytimes.com/2026/05/18/us/politics/supreme-court-political-tensions.html
+**Trump’s Deportations Are Costing Americans Jobs**\
+`According to a new study, construction was impacted more than any other industry studied, with American-born workers losing more jobs than immigrants as a result of the deportations.`\
+https://www.nytimes.com/2026/05/19/realestate/trumps-deportations-are-costing-americans-jobs.html
 
