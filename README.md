@@ -1,3 +1,27 @@
+**When does your state vote? Here’s the 2026 primary calendar.**\
+``\
+https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/when-does-your-state-vote-heres-the-2026-primary-calendar
+
+**Book on Truth in the Age of A.I. Contains Quotes Made Up by A.I.**\
+`Steven Rosenbaum, author of “The Future of Truth,” said he had started his own investigation after The New York Times asked about the fake quotes.`\
+https://www.nytimes.com/2026/05/19/business/media/future-of-truth-ai-quotes.html
+
+**Broadway’s ‘Giant,’ With John Lithgow, Turns a Profit in 10 Weeks**\
+`The fast success of this play, about the children’s author Roald Dahl, is a rarity on Broadway, where most shows lose money.`\
+https://www.nytimes.com/2026/05/19/theater/giant-lithgow-broadway-recoup.html
+
+**In Musk vs. OpenAI, the Real Winner was the Suit**\
+`It was the one thing on which every major player could agree.`\
+https://www.nytimes.com/2026/05/19/style/elon-musk-sam-altman-open-ai-trial-suit.html
+
+**Is ‘Maid of Honour’ Drake’s Real Flex?**\
+`On Friday, Drake dropped his long-awaited album “Iceman” alongside two surprise albums. On “Popcast,” our hosts Joe Coscarelli and Jon Caramanica discuss whether one of the unexpected releases, “Maid of Honour,” is the real main event.`\
+https://www.nytimes.com/video/podcasts/100000010910652/is-maid-of-honour-drakes-real-flex.html
+
+**How Has Your Shopping Changed in the Era of Weight-Loss Drugs?**\
+`In the last few years, weight-loss drugs like Ozempic have altered how many Americans think about clothes and getting dressed.`\
+https://www.nytimes.com/2026/05/19/style/ozempic-glp1-shopping-clothes-changed.html
+
 **Starbucks Korea C.E.O. Is Fired Over Ad That Stirred Memories of Brutal History**\
 `A marketing campaign called “Tank Day” coincided with the anniversary of a military dictatorship’s crackdown on pro-democracy demonstrators.`\
 https://www.nytimes.com/2026/05/19/world/asia/starbucks-korea-ceo-fired-tank-day.html
@@ -53,28 +77,4 @@ https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/the-war-on-
 **Francia tiene una nueva imagen del Holocausto**\
 `Una colección inédita de fotografías de propaganda nazi revela la primera gran redada de judíos en París en 1941.`\
 https://www.nytimes.com/es/2026/05/19/espanol/opinion/fotos-nazi-holocausto-francia.html
-
-**Nacionalismo vs. nacionalismo**\
-`Un nacionalismo progresista y pluralista se impuso en las urnas en Escocia y Gales. ¿Podría cobrar fuerza en otros lugares?`\
-https://www.nytimes.com/es/2026/05/19/espanol/mundo/nacionalismo-escocia-gales.html
-
-**A Trump Dissenter Fights for His Political Life**\
-`In a Republican primary for a House seat in Kentucky, Rep. Thomas Massie is facing off against Ed Gallrein, who is backed by the president.`\
-https://www.nytimes.com/2026/05/19/podcasts/the-daily/kentucky-primary-masse-gallerin.html
-
-**Trump’s New $1.8 Billion Pot of Money, and a Deadly Mosque Attack in California**\
-`Plus, a North Korean soccer team hits the road.`\
-https://www.nytimes.com/2026/05/19/podcasts/the-headlines/trump-irs-mosque-attack-california.html
-
-**Connections Companion No. 1,074**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, May 20, 2026.`\
-https://www.nytimes.com/2026/05/19/crosswords/connections-companion-1074.html
-
-**Wordle Review No. 1,796**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, May 20, 2026.`\
-https://www.nytimes.com/2026/05/19/crosswords/wordle-review-1796.html
-
-**Strands Sidekick No. 808**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, May 20, 2026.`\
-https://www.nytimes.com/2026/05/19/crosswords/strands-sidekick-808.html
 
