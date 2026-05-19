@@ -1,3 +1,11 @@
+**Son of Mango Fashion Chain’s Founder Is Arrested as Suspect in His Death**\
+`Isak Andic, the billionaire who built the Spanish brand, died while hiking with his son in 2024. News outlets had reported that the son was under investigation.`\
+https://www.nytimes.com/2026/05/19/world/europe/mango-son-arrest-andic.html
+
+**A New Brasserie Tempts With French Delights**\
+`Michael Lomonaco offers the classics at Brasserie Cognac Américain, Drāvida brings new tastes from the Indian diaspora, free Champagne dinners and more restaurant news.`\
+https://www.nytimes.com/2026/05/19/dining/nyc-restaurant-news.html
+
 **Trump Endorses Paxton in Final Week of G.O.P. Senate Runoff in Texas**\
 `The president had long considered backing Senator John Cornyn, but Ken Paxton, the state attorney general, carried the support of the MAGA base.`\
 https://www.nytimes.com/2026/05/19/us/politics/trump-paxton-endorsement-cornyn-texas-senate.html
