@@ -1,3 +1,7 @@
+**Meta Begins Laying Off 8,000 Employees Amid A.I. Transformation**\
+`Meta told employees last month that it would carry out mass layoffs on May 20, as the Silicon Valley giant tries to transform into an A.I.-first company.`\
+https://www.nytimes.com/2026/05/19/technology/meta-layoffs-ai.html
+
 **‘Strangers’ Author Belle Burden Doesn’t Want Eggs Outside Breakfast**\
 `The New York City native on her food life, from a childhood on the Upper East Side to an adulthood in TriBeCa.`\
 https://www.nytimes.com/2026/05/19/dining/strangers-author-belle-burden.html
@@ -69,8 +73,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-georgia-public-ser
 **Alabama Fourth Congressional District Primary Election Results**\
 `Get live results and maps from the 2026 Alabama primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-alabama-us-house-4-primary.html
-
-**Alabama Treasurer Primary Election Results**\
-`Get live results and maps from the 2026 Alabama primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-alabama-treasurer-primary.html
 
