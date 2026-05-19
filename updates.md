@@ -1,3 +1,15 @@
+**A billionaire’s ad barrage upended the Georgia race for governor.**\
+``\
+https://www.nytimes.com/live/2026/05/19/us/election-kentucky-pennsylvania-georgia/a-billionaires-ad-barrage-upended-the-georgia-race-for-governor
+
+**Peltola Debuts First Television Ad in High-Profile Alaska Senate Contest**\
+`Democrats face an uphill battle to win the Senate. They see in Mary Peltola, the first Native Alaskan elected to Congress, their best chance to unseat Senator Dan Sullivan.`\
+https://www.nytimes.com/2026/05/19/us/politics/19peltola-alaska-senate-ads.html
+
+**Middle East on Edge After Trump Says He Delayed Attack on Iran**\
+`President Trump said he had postponed a “very major attack” against Iran, as Pakistan continued its mediation efforts to end the war.`\
+https://www.nytimes.com/2026/05/19/world/middleeast/iran-trump-tension.html
+
 **Is There a Door No. 3 for Democrats?**\
 `Is there anything Democrats can do to break free of a deeply polarized political system in which parties are constantly winning and then losing office?`\
 https://www.nytimes.com/2026/05/19/opinion/trump-democrats-republicans-midterms-moderation.html

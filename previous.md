@@ -1,3 +1,15 @@
+**A billionaire’s ad barrage upended the Georgia race for governor.**\
+``\
+https://www.nytimes.com/live/2026/05/19/us/election-kentucky-pennsylvania-georgia/a-billionaires-ad-barrage-upended-the-georgia-race-for-governor
+
+**Peltola Debuts First Television Ad in High-Profile Alaska Senate Contest**\
+`Democrats face an uphill battle to win the Senate. They see in Mary Peltola, the first Native Alaskan elected to Congress, their best chance to unseat Senator Dan Sullivan.`\
+https://www.nytimes.com/2026/05/19/us/politics/19peltola-alaska-senate-ads.html
+
+**Middle East on Edge After Trump Says He Delayed Attack on Iran**\
+`President Trump said he had postponed a “very major attack” against Iran, as Pakistan continued its mediation efforts to end the war.`\
+https://www.nytimes.com/2026/05/19/world/middleeast/iran-trump-tension.html
+
 **What to Know About the San Diego Mosque Shooting**\
 `Three men were killed in the attack at the Islamic Center of San Diego. Two teenage suspects were found dead in a car nearby, police said.`\
 https://www.nytimes.com/2026/05/19/us/san-diego-mosque-shooting.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/es/2026/05/19/espanol/mundo/democracia-muere-burocracia-
 **How to End the Gerrymandering Doom Loop Forever**\
 `The political scientist Lee Drutman argues that we should switch to a system of proportional representation and put an end to our “trench warfare politics.”`\
 https://www.nytimes.com/2026/05/19/opinion/ezra-klein-podcast-lee-drutman.html
-
-**Is There a Door No. 3 for Democrats?**\
-`Is there anything Democrats can do to break free of a deeply polarized political system in which parties are constantly winning and then losing office?`\
-https://www.nytimes.com/2026/05/19/opinion/trump-democrats-republicans-midterms-moderation.html
-
-**El mundo de las aplicaciones de citas está a punto de cambiar**\
-`Bumble eliminará la función que reconfiguró nuestra forma de buscar el amor. Puede que quienes busquen pareja estén preparados para algo más intencionado.`\
-https://www.nytimes.com/es/2026/05/19/espanol/bumble-swipeless.html
-
-**As OpenAI Celebrates Court Win Against Musk, Other Challenges Lie Ahead**\
-`A jury’s rejection of Elon Musk’s $150 billion lawsuit against OpenAI was a major hurdle crossed. But the maker of ChatGPT faces a list of other problems.`\
-https://www.nytimes.com/2026/05/19/technology/openai-musk-legal-challenges.html
 

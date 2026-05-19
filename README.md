@@ -1,3 +1,11 @@
+**Student News Quiz: Political Summit, School Enrollment, Circulatory Systems**\
+`Have you been paying attention to current events recently? See how well you can do on this week’s news quiz for students.`\
+https://www.nytimes.com/interactive/2026/05/19/learning/19StudentNewsQuiz.html
+
+**A FOMO Moment for Mythos**\
+`Those without access to Anthropic’s artificial intelligence model worry they’re more vulnerable to cyber attacks, a concern the company is seeking to address.`\
+https://www.nytimes.com/2026/05/19/business/dealbook/mythos-ai-fomo-moment.html
+
 **A billionaire’s ad barrage upended the Georgia race for governor.**\
 ``\
 https://www.nytimes.com/live/2026/05/19/us/election-kentucky-pennsylvania-georgia/a-billionaires-ad-barrage-upended-the-georgia-race-for-governor
@@ -69,12 +77,4 @@ https://www.nytimes.com/video/world/africa/100000010911915/ebola-outbreak-congo-
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/05/19/nyregion/lirr-strike/heres-the-latest
-
-**En realidad, la democracia muere en RR. HH.**\
-`Una nueva investigación arroja luz sobre cómo empleados mediocres ayudan a los aspirantes a autoritarios a mantener el poder.`\
-https://www.nytimes.com/es/2026/05/19/espanol/mundo/democracia-muere-burocracia-leales.html
-
-**How to End the Gerrymandering Doom Loop Forever**\
-`The political scientist Lee Drutman argues that we should switch to a system of proportional representation and put an end to our “trench warfare politics.”`\
-https://www.nytimes.com/2026/05/19/opinion/ezra-klein-podcast-lee-drutman.html
 
