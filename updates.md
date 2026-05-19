@@ -1,3 +1,15 @@
+**Amid Global Turmoil, Trump Takes a Moment for ‘the Thing I Do Best in Life’**\
+`President Trump showed off the construction on his ballroom project, providing a deeper look at the things that matter to him.`\
+https://www.nytimes.com/2026/05/19/us/politics/trump-white-house-builder.html
+
+**Caso de corrupción de la FIFA: dos empresarios argentinos buscan un acuerdo en EE. UU.**\
+`Fiscales federales están negociando con Hugo y Mariano Jinkis, quienes después de estar más de una década prófugos, accedieron repentinamente a reunirse en Brooklyn.`\
+https://www.nytimes.com/es/2026/05/19/espanol/estados-unidos/argentina-fifa-corrupcion-caso-jinkis.html
+
+**Meta Begins Laying Off 8,000 Employees Amid A.I. Transformation**\
+`Meta told employees last month that it would carry out mass layoffs on May 20, as the Silicon Valley giant tries to transform into an A.I.-first company.`\
+https://www.nytimes.com/2026/05/19/technology/meta-layoffs-ai.html
+
 **‘Strangers’ Author Belle Burden Doesn’t Want Eggs Outside Breakfast**\
 `The New York City native on her food life, from a childhood on the Upper East Side to an adulthood in TriBeCa.`\
 https://www.nytimes.com/2026/05/19/dining/strangers-author-belle-burden.html
