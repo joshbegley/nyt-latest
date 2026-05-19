@@ -1,3 +1,7 @@
+**Más de 100.000 niños han sido separados de sus padres en la oleada de deportaciones de Trump, dice informe**\
+`Tres cuartas partes de los niños separados de sus padres son probablemente ciudadanos estadounidenses, según estimaciones de la Institución Brookings que se compartieron con The New York Times.`\
+https://www.nytimes.com/es/2026/05/18/espanol/estados-unidos/separacion-familias-ninos-deportaciones-estados-unidos.html
+
 **Southern California Fire Forces More Than 23,000 to Evacuate**\
 `Hundreds of firefighters battled a fast-moving brush fire that broke out in Simi Valley, Calif., on Monday.`\
 https://www.nytimes.com/video/us/100000010911340/wildfire-simi-valley-evacuations.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/18/us/nancy-pelosi-endorses-connie-chan.html
 **Las grandes preguntas sobre Jeffrey Epstein**\
 `Qué revelaron los archivos, las investigaciones y los testimonios sobre la red de poder y complicidad que rodeó a Epstein.`\
 https://www.nytimes.com/es/2026/05/18/espanol/estados-unidos/jeffrey-epstein-archivos-preguntas-respuestas.html
-
-**As L.I.R.R. Strike Continues, Tens of Thousands Endure Painful Commutes**\
-`Commuters took lengthy detours as a strike by Long Island Rail Road workers, who have been without raises for years, extended into a third day.`\
-https://www.nytimes.com/2026/05/18/nyregion/lirr-strike-long-island.html
 
