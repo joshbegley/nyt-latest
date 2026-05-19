@@ -1,3 +1,7 @@
+**Two friends are split over who should represent their Kentucky district.**\
+``\
+https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/two-friends-are-split-over-who-should-represent-their-kentucky-district
+
 **What to Know About the Republican Senate Primary in Alabama**\
 `Three leading contenders, including a Trump-backed congressman, are aiming to replace Senator Tommy Tuberville. The winner will be favored in November.`\
 https://www.nytimes.com/2026/05/19/us/politics/alabama-senate-primaries-midterms.html
