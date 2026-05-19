@@ -1,3 +1,15 @@
+**Ebola Cases Rise Sharply as Medical Workers Scramble for Supplies**\
+`Medical workers in the Democratic Republic of Congo are experiencing a shortage of supplies as the number of suspected Ebola cases has passed 500, according to officials.`\
+https://www.nytimes.com/video/world/africa/100000010911915/ebola-outbreak-congo-medical-supplies.html
+
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/05/19/nyregion/lirr-strike/heres-the-latest
+
+**En realidad, la democracia muere en RR. HH.**\
+`Una nueva investigación arroja luz sobre cómo empleados mediocres ayudan a los aspirantes a autoritarios a mantener el poder.`\
+https://www.nytimes.com/es/2026/05/19/espanol/mundo/democracia-muere-burocracia-leales.html
+
 **How to End the Gerrymandering Doom Loop Forever**\
 `The political scientist Lee Drutman argues that we should switch to a system of proportional representation and put an end to our “trench warfare politics.”`\
 https://www.nytimes.com/2026/05/19/opinion/ezra-klein-podcast-lee-drutman.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/19/opinion/supreme-court-tenure.html
 **Calls for ‘No Seed Oil’ Push Companies to Order Up Butter and Beef Tallow**\
 `Businesses are finding different (and more costly) ways to fry foods as shoppers demand alternatives to seed oils as part of the Make America Healthy Again movement.`\
 https://www.nytimes.com/2026/05/19/business/calls-for-no-seed-oil-push-companies-to-order-up-butter-and-beef-tallow.html
-
-**Silicon Valley’s Answer to Declining Male Fertility? Sperm Racing.**\
-`A San Francisco biotech start-up races sex cells on tiny tracks. Can an internet joke become a serious business?`\
-https://www.nytimes.com/2026/05/19/magazine/sperm-racing-silicon-valley.html
-
-**The World’s Rarest Pasta Is Hidden in the Mountains of Sardinia**\
-`In the mountains of Northern Sardinia, a 300-year-old pilgrimage comes with a serving of the world’s rarest pasta.`\
-https://www.nytimes.com/interactive/2026/05/19/dining/sardinia-rare-pasta-food-travel.html
-
-**Trump’s Deportations Are Costing Americans Jobs**\
-`According to a new study, construction was impacted more than any other industry studied, with American-born workers losing more jobs than immigrants as a result of the deportations.`\
-https://www.nytimes.com/2026/05/19/realestate/trumps-deportations-are-costing-americans-jobs.html
 
