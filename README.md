@@ -1,80 +1,80 @@
-**Protests Have Paralyzed Bolivia. Here’s Why.**\
-`After two decades of leftist rule, many voters who backed Bolivia’s new, more conservative president say he’s made their lives harder and are demanding his removal.`\
-https://www.nytimes.com/2026/05/19/world/americas/bolivia-protests-la-paz.html
+**El hijo del fundador de Mango es detenido como sospechoso de la muerte de su padre**\
+`Isak Andic, el multimillonario que creó la marca española, murió mientras hacía senderismo con su hijo Jonathan en 2024.`\
+https://www.nytimes.com/es/2026/05/19/espanol/mundo/andic-mango-hijo-muerte-padre.html
 
-**Kentucky Primary Election Results**\
-`Get live results and maps from the 2026 Kentucky primary elections.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-kentucky-primary.html
+**Original Plum Torte**\
+`First published in 1983, Marian Burros’s plum torte has become one of the most popular recipes in the history of The Times, and it’s no mystery why. There are so many things to love: It’s easy, it’s practically no-fail and it’s endlessly adaptable.`\
+https://www.nytimes.com/video/dining/100000010912790/original-plum-torte.html
+
+**6-Year-Old Twins Hurt in Bronx Fire Have Died, Father Says**\
+`The children’s 1-year-old brother, Liam, also died as a result of the fire. Officials said there has been a sharp increase in fire deaths this year.`\
+https://www.nytimes.com/2026/05/19/nyregion/bronx-fire-twins-death.html
+
+**Via Carota’s Insalata Verde**\
+`At Via Carota in Manhattan’s West Village, the menu description for insalata verde does little to give away any details about what makes it so unbelievably, mouth-smackingly perfect. In truth, all the secrets of this otherworldly salad lay in the graceful, unlikely application of a flavorless one: water.`\
+https://www.nytimes.com/video/dining/100000010912799/via-carotas-insalata-verde.html
+
+**Yum Yum Sauce**\
+`This mayonnaise-based Japanese steakhouse sauce tastes glorious with grilled shrimp, chicken and vegetables, or drizzled over a plate of fried rice.`\
+https://www.nytimes.com/video/dining/100000010912803/yum-yum-sauce.html
+
+**Shrimp Scampi With Orzo**\
+`The universal appeal of shrimp scampi, frankly, isn’t the shrimp but the pan sauce: garlicky butter lightened with white wine and bursts of lemon, parsley and red-pepper flakes.`\
+https://www.nytimes.com/video/dining/100000010912793/shrimp-scampi-with-orzo.html
+
+**Baked Creole Tetrazzini**\
+`This spicy Creole tetrazzini was inspired by Cooking contributor Jerrelle Guy’s Auntie Nae’s special recipe.`\
+https://www.nytimes.com/video/dining/100000010912801/baked-creole-tetrazzini.html
+
+**Lemon Bars With Olive Oil and Sea Salt**\
+`Traditional lemon bars balance the tangy sweetness of lemon curd with a rich shortbread crust. This recipe adds extra notes of flavor to the mix: the compelling bitterness of good olive oil and a touch of sea salt sprinkled on top.`\
+https://www.nytimes.com/video/dining/100000010912786/lemon-bars-with-olive-oil-and-sea-salt.html
+
+**Results in Key Races: May 19th**\
+`See results in the most-watched races of the night.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-key-races-may-19.html
+
+**Georgia U.S. Senate Primary Election Results**\
+`Get live results and maps from the 2026 Georgia primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-georgia-us-senate-primary.html
+
+**Zapatero, Spain’s Former Leader, Investigated for Graft**\
+`José Luis Rodríguez Zapatero, who led Spain from 2004 to 2011, is accused of influence peddling after he left office. He has denied wrongdoing.`\
+https://www.nytimes.com/2026/05/19/world/europe/spain-zapatero-indicted-corruption.html
+
+**Kentucky Fourth Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Kentucky primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-kentucky-us-house-4-primary.html
+
+**‘Married at First Sight’ Rape Allegations Lead to Call for U.K. Investigation**\
+`Two women told the BBC that they were sexually assaulted during the filming of the popular show. The accusations have reignited a debate in Britain about the ethics of reality TV.`\
+https://www.nytimes.com/2026/05/19/world/europe/married-at-first-sight-uk-rape-investigation.html
+
+**Georgia Governor Primary Election Results**\
+`Get live results and maps from the 2026 Georgia primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-georgia-governor-primary.html
+
+**Manager at Trump’s N.J. Golf Club Helped Plan Reflecting Pool Repairs**\
+`David Schutzenhofer, a Trump Organization employee, reached out to one of the vendors the government later hired for the iconic site near the Lincoln Memorial, documents show.`\
+https://www.nytimes.com/2026/05/19/us/politics/reflecting-pool-trump-schutzenhofer.html
 
 **Pennsylvania Primary Election Results**\
 `Get live results and maps from the 2026 Pennsylvania primary elections.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-pennsylvania-primary.html
 
-**Alabama Primary Election Results**\
-`Get live results and maps from the 2026 Alabama primary elections.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-alabama-primary.html
+**Oregon Primary Election Results**\
+`Get live results and maps from the 2026 Oregon primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oregon-primary.html
 
-**Georgia Primary Election Results**\
-`Get live results and maps from the 2026 Georgia primary elections.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-georgia-primary.html
+**Kentucky Primary Election Results**\
+`Get live results and maps from the 2026 Kentucky primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-kentucky-primary.html
 
-**Tornado Rips Through Rural Community in Nebraska**\
-`A tornado left a trail of destruction in a rural community in Howard County, Neb., destroying four newly-built homes, according to a local official.`\
-https://www.nytimes.com/video/us/100000010913692/nebraska-tornado-howard-county.html
+**Results in Key Races: May 19th**\
+`See results in the most-watched races of the night.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-key-races-may-19.html
 
-**Georgia 10th Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 Georgia primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-georgia-us-house-10-primary.html
-
-**Georgia Agriculture Commissioner Primary Election Results**\
-`Get live results and maps from the 2026 Georgia primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-georgia-agriculture-commissioner-primary.html
-
-**Georgia Attorney General Primary Election Results**\
-`Get live results and maps from the 2026 Georgia primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-georgia-attorney-general-primary.html
-
-**Georgia Public Service Commission Primary Election Results**\
-`Get live results and maps from the 2026 Georgia primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-georgia-public-service-commission-primary.html
-
-**Alabama Fourth Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 Alabama primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-alabama-us-house-4-primary.html
-
-**Alabama Treasurer Primary Election Results**\
-`Get live results and maps from the 2026 Alabama primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-alabama-treasurer-primary.html
-
-**Alabama Supreme Court Primary Election Results**\
-`Get live results and maps from the 2026 Alabama primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-alabama-supreme-court-primary.html
-
-**Oregon U.S. Senate Primary Election Results**\
-`Get live results and maps from the 2026 Oregon primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-oregon-us-senate-primary.html
-
-**Oregon Labor Commissioner Election Results**\
-`Get live results and maps from the 2026 Oregon election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-oregon-labor-commissioner.html
-
-**Georgia Lieutenant Governor Primary Election Results**\
-`Get live results and maps from the 2026 Georgia primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-georgia-lieutenant-governor-primary.html
-
-**Kentucky Second Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 Kentucky primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-kentucky-us-house-2-primary.html
-
-**Alabama Secretary of State Primary Election Results**\
-`Get live results and maps from the 2026 Alabama primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-alabama-secretary-of-state-primary.html
-
-**Alabama Public Service Commission Primary Election Results**\
-`Get live results and maps from the 2026 Alabama primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-alabama-public-service-commission-primary.html
-
-**Idaho First Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 Idaho primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-idaho-us-house-1-primary.html
+**Idaho Primary Election Results**\
+`Get live results and maps from the 2026 Idaho primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-idaho-primary.html
 
