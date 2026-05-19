@@ -1,3 +1,7 @@
+**Zapatero, expresidente del gobierno de España, es investigado por corrupción**\
+`José Luis Rodríguez Zapatero, quien dirigió España de 2004 a 2011, es acusado de tráfico de influencias tras dejar el cargo. Él ha negado haber cometido delito alguno.`\
+https://www.nytimes.com/es/2026/05/19/espanol/mundo/zapatero-espana-imputado.html
+
 **Worried About War’s Impact, Bond Investors Push Rates to Highest Level Since 2007**\
 `The 30-year U.S. Treasury yield hasn’t been this high since the lead up to the global financial crisis. Across Europe and Asia, yields are also elevated.`\
 https://www.nytimes.com/2026/05/19/business/bond-market-iran-war-inflation.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/dining/100000010912801/baked-creole-tetrazzini.htm
 **Lemon Bars With Olive Oil and Sea Salt**\
 `Traditional lemon bars balance the tangy sweetness of lemon curd with a rich shortbread crust. This recipe adds extra notes of flavor to the mix: the compelling bitterness of good olive oil and a touch of sea salt sprinkled on top.`\
 https://www.nytimes.com/video/dining/100000010912786/lemon-bars-with-olive-oil-and-sea-salt.html
-
-**Results in Key Races: May 19th**\
-`See results in the most-watched races of the night.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-key-races-may-19.html
 

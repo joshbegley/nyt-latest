@@ -1,3 +1,7 @@
+**Worried About War’s Impact, Bond Investors Push Rates to Highest Level Since 2007**\
+`The 30-year U.S. Treasury yield hasn’t been this high since the lead up to the global financial crisis. Across Europe and Asia, yields are also elevated.`\
+https://www.nytimes.com/2026/05/19/business/bond-market-iran-war-inflation.html
+
 **Republican Senators Are Livid at Trump’s Endorsement of Paxton**\
 `News that President Trump had snubbed Senator John Cornyn of Texas, the four-term incumbent, was met with shock, anger and fear that the G.O.P. could lose his seat.`\
 https://www.nytimes.com/2026/05/19/us/politics/republican-senators-trump-paxton.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/dining/100000010912786/lemon-bars-with-olive-oil-a
 **Results in Key Races: May 19th**\
 `See results in the most-watched races of the night.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-key-races-may-19.html
-
-**Georgia U.S. Senate Primary Election Results**\
-`Get live results and maps from the 2026 Georgia primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-georgia-us-senate-primary.html
 

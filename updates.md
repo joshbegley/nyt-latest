@@ -1,3 +1,7 @@
+**Worried About War’s Impact, Bond Investors Push Rates to Highest Level Since 2007**\
+`The 30-year U.S. Treasury yield hasn’t been this high since the lead up to the global financial crisis. Across Europe and Asia, yields are also elevated.`\
+https://www.nytimes.com/2026/05/19/business/bond-market-iran-war-inflation.html
+
 **Republican Senators Are Livid at Trump’s Endorsement of Paxton**\
 `News that President Trump had snubbed Senator John Cornyn of Texas, the four-term incumbent, was met with shock, anger and fear that the G.O.P. could lose his seat.`\
 https://www.nytimes.com/2026/05/19/us/politics/republican-senators-trump-paxton.html
