@@ -1,3 +1,11 @@
+**A New Brasserie Tempts With French Delights**\
+`Michel Lomonaco offers the classics at Brasserie Cognac Américain, Drāvida brings new tastes from the Indian diaspora, free Champagne dinners and more restaurant news.`\
+https://www.nytimes.com/2026/05/19/dining/nyc-restaurant-news.html
+
+**Everlane Represented a Millennial Ideal. Is It Dead?**\
+`The ‘radically transparent’ company is reportedly being bought by Shein, a fast fashion behemoth.`\
+https://www.nytimes.com/2026/05/19/style/the-fashions-shein-everlane-gucci-times-square.html
+
 **Trump amenaza a Irán y luego se retracta, todo en el mismo día**\
 `El presidente de EE. UU. parece atrapado entre dos impulsos contrapuestos: obligar a Irán a someterse y declarar la victoria y seguir adelante.`\
 https://www.nytimes.com/es/2026/05/19/espanol/estados-unidos/trump-ataques-iran.html

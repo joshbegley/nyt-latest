@@ -1,3 +1,11 @@
+**A New Brasserie Tempts With French Delights**\
+`Michel Lomonaco offers the classics at Brasserie Cognac Américain, Drāvida brings new tastes from the Indian diaspora, free Champagne dinners and more restaurant news.`\
+https://www.nytimes.com/2026/05/19/dining/nyc-restaurant-news.html
+
+**Everlane Represented a Millennial Ideal. Is It Dead?**\
+`The ‘radically transparent’ company is reportedly being bought by Shein, a fast fashion behemoth.`\
+https://www.nytimes.com/2026/05/19/style/the-fashions-shein-everlane-gucci-times-square.html
+
 **Trump amenaza a Irán y luego se retracta, todo en el mismo día**\
 `El presidente de EE. UU. parece atrapado entre dos impulsos contrapuestos: obligar a Irán a someterse y declarar la victoria y seguir adelante.`\
 https://www.nytimes.com/es/2026/05/19/espanol/estados-unidos/trump-ataques-iran.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/19/business/china-ai-unemployment.html
 **Tesla’s Newest Electric Vehicle Could Jolt the Trucking Industry**\
 `California truckers have expressed strong interest in the Tesla Semi because it costs much less and can travel further on a charge than electric trucks sold by established manufacturers.`\
 https://www.nytimes.com/2026/05/19/business/energy-environment/teslas-semi-truck.html
-
-**When does your state vote? Here’s the 2026 primary calendar.**\
-``\
-https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/when-does-your-state-vote-heres-the-2026-primary-calendar
-
-**Book on Truth in the Age of A.I. Contains Quotes Made Up by A.I.**\
-`Steven Rosenbaum, author of “The Future of Truth,” said he had started his own investigation after The New York Times asked about the fake quotes.`\
-https://www.nytimes.com/2026/05/19/business/media/future-of-truth-ai-quotes.html
 
