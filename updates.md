@@ -1,3 +1,7 @@
+**Justices Hint at Strains as Supreme Court Comes Under Scrutiny**\
+`Traveling across the country, justices defend the role of the court even as strained relations among its members emerge in writing and remarks.`\
+https://www.nytimes.com/2026/05/18/us/politics/supreme-court-political-tensions.html
+
 **This Pacific Island Nation Hopes You Will Call It by a New Name**\
 `Tiny Nauru could soon be called Naoero.`\
 https://www.nytimes.com/2026/05/18/world/nauru-naoero-country-name-change.html
