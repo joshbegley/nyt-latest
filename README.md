@@ -1,3 +1,11 @@
+**The N.A.A.C.P. calls on Black athletes to boycott Southern states after redistricting.**\
+``\
+https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/the-naacp-calls-on-black-athletes-to-boycott-southern-states-after-redistricting
+
+**Así podría responder Irán si se reanudan los ataques de EE. UU. e Israel**\
+`En cualquier nueva ronda de combates, las autoridades iraníes podrían adoptar otras tácticas, como intensificar los ataques contra sus vecinos e intentar cerrar un segundo estrecho.`\
+https://www.nytimes.com/es/2026/05/19/espanol/mundo/ataques-iran-respuesta.html
+
 **Zapatero, expresidente del gobierno de España, es investigado por corrupción**\
 `José Luis Rodríguez Zapatero, quien dirigió España de 2004 a 2011, es acusado de tráfico de influencias tras dejar el cargo. Él ha negado haber cometido delito alguno.`\
 https://www.nytimes.com/es/2026/05/19/espanol/mundo/zapatero-espana-imputado.html
@@ -23,7 +31,7 @@ https://www.nytimes.com/2026/05/19/arts/music/amplifier-newsletter-kurt-vile-mik
 https://www.nytimes.com/live/2026/05/19/us/midterms-georgia-kentucky/who-is-ken-paxton-trumps-pick-in-the-texas-senate-race
 
 **Google Changes Its Search Box for the First Time in 25 Years**\
-`Using a new Gemini A.I. model, the tech giant is overhauling its search box to answer longer queries, introducing a video-generation and video-editing tool and simplifying online shopping.`\
+`Using a new Gemini A.I. model, the tech giant is overhauling its search box dimensions to answer longer queries, adding a video-generation tool and simplifying online shopping.`\
 https://www.nytimes.com/2026/05/19/business/google-seach-bar-ai-gemini.html
 
 **How Google Is Starting to Win the A.I. Race**\
@@ -69,12 +77,4 @@ https://www.nytimes.com/video/dining/100000010912803/yum-yum-sauce.html
 **Shrimp Scampi With Orzo**\
 `The universal appeal of shrimp scampi, frankly, isn’t the shrimp but the pan sauce: garlicky butter lightened with white wine and bursts of lemon, parsley and red-pepper flakes.`\
 https://www.nytimes.com/video/dining/100000010912793/shrimp-scampi-with-orzo.html
-
-**Baked Creole Tetrazzini**\
-`This spicy Creole tetrazzini was inspired by Cooking contributor Jerrelle Guy’s Auntie Nae’s special recipe.`\
-https://www.nytimes.com/video/dining/100000010912801/baked-creole-tetrazzini.html
-
-**Lemon Bars With Olive Oil and Sea Salt**\
-`Traditional lemon bars balance the tangy sweetness of lemon curd with a rich shortbread crust. This recipe adds extra notes of flavor to the mix: the compelling bitterness of good olive oil and a touch of sea salt sprinkled on top.`\
-https://www.nytimes.com/video/dining/100000010912786/lemon-bars-with-olive-oil-and-sea-salt.html
 
