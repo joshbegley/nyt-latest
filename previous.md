@@ -1,3 +1,11 @@
+**Google Changes Its Search Box for the First Time in 25 Years**\
+`Powered by a new Gemini A.I. model, the tech giant is overhauling its search box to answer longer queries, introducing a video-generation and video-editing tool and simplifying online shopping.`\
+https://www.nytimes.com/2026/05/19/business/google-seach-bar-ai-gemini.html
+
+**How Google Is Starting to Win the A.I. Race**\
+`Despite its early stumbles, Google’s Gemini has leapfrogged ChatGPT in relevance and usefulness. Soon, it will be ubiquitous.`\
+https://www.nytimes.com/2026/05/19/technology/personaltech/google-gemini-ai.html
+
 **Twist in FIFA Corruption Case: 2 Fugitives Emerge, Seeking a Plea Deal**\
 `Federal prosecutors are negotiating with Hugo and Mariano Jinkis, a father and son from Argentina, who after more than a decade suddenly agreed to meet in Brooklyn.`\
 https://www.nytimes.com/2026/05/19/nyregion/fifa-argentina-bribery-brooklyn.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/19/world/europe/married-at-first-sight-uk-rape-i
 **Georgia Governor Primary Election Results**\
 `Get live results and maps from the 2026 Georgia primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-georgia-governor-primary.html
-
-**Manager at Trump’s N.J. Golf Club Helped Plan Reflecting Pool Repairs**\
-`David Schutzenhofer, a Trump Organization employee, reached out to one of the vendors the government later hired for the iconic site near the Lincoln Memorial, documents show.`\
-https://www.nytimes.com/2026/05/19/us/politics/reflecting-pool-trump-schutzenhofer.html
-
-**Pennsylvania Primary Election Results**\
-`Get live results and maps from the 2026 Pennsylvania primary elections.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-pennsylvania-primary.html
 
