@@ -1,3 +1,83 @@
+**How to End the Gerrymandering Doom Loop Forever**\
+`The political scientist Lee Drutman argues that we should switch to a system of proportional representation and put an end to our “trench warfare politics.”`\
+https://www.nytimes.com/2026/05/19/opinion/ezra-klein-podcast-lee-drutman.html
+
+**Trump Is Down. Can Democrats Go Up?**\
+`Is there anything Democrats can do to break free of a deeply polarized political system in which parties are constantly winning and then losing office?`\
+https://www.nytimes.com/2026/05/19/opinion/trump-democrats-republicans-midterms-moderation.html
+
+**El mundo de las aplicaciones de citas está a punto de cambiar**\
+`Bumble eliminará la función que reconfiguró nuestra forma de buscar el amor. Puede que quienes busquen pareja estén preparados para algo más intencionado.`\
+https://www.nytimes.com/es/2026/05/19/espanol/bumble-swipeless.html
+
+**As OpenAI Celebrates Court Win Against Musk, Other Challenges Lie Ahead**\
+`A jury’s rejection of Elon Musk’s $150 billion lawsuit against OpenAI was a major hurdle crossed. But the maker of ChatGPT faces a list of other problems.`\
+https://www.nytimes.com/2026/05/19/technology/openai-musk-legal-challenges.html
+
+**W.H.O. Chief Is ‘Deeply Concerned’ By Speed and Scale of Ebola Outbreak As Cases Rise**\
+`The warning came shortly after Congo officials reported more than 130 suspected deaths and 513 cases, a sharp rise since the outbreak was first reported over the weekend.`\
+https://www.nytimes.com/2026/05/19/world/africa/ebola-outbreak-deaths-congo-who.html
+
+**The Best of ‘S.N.L.’ Season 51: Sensitive Strippers and Regretful Moms**\
+`This season “Saturday Night Live” found new ways to satirize the Trump administration and said goodbye to one of its most valuable cast members.`\
+https://www.nytimes.com/2026/05/19/arts/television/saturday-night-live-snl-season-51-highlights.html
+
+**Bipartisan Bill Would Impose New Annual Fee on Electric Vehicles**\
+`A House transportation bill introduced this week would require owners of electric cars to pay $130 to cover the cost of road repairs.`\
+https://www.nytimes.com/2026/05/19/business/energy-environment/electrc-vehicles-annual-fee-congress.html
+
+**Who Should Be the Next Governor of California?**\
+`Times Opinion convened a panel of state experts to weigh in on the primary.`\
+https://www.nytimes.com/interactive/2026/05/19/opinion/california-governor-primary-election.html
+
+**6 ejercicios para mejorar tu coordinación**\
+`Estos peculiares movimientos activarán simultáneamente tus músculos, sentidos y sistema nervioso.`\
+https://www.nytimes.com/es/2026/05/19/espanol/ejercicios-coordinacion-longevidad-vivir-mas.html
+
+**Do You Know What a Luthier Is? He’s One of the Best.**\
+`Sam Zygmuntowicz, who is being honored by the Chamber Music Society, is an instrument maker who crafts many of the string instruments used by its performers.`\
+https://www.nytimes.com/2026/05/19/nyregion/instrument-maker-sam-zygmuntowicz.html
+
+**A 16th-Century Sketch Claims to Depict Anne Boleyn. A.I. Says It’s Her Mom.**\
+`Using facial-recognition technology, scholars have concluded that a 500-year-old drawing labeled “Anna Bollein Queen” more likely showed her mother, Elizabeth Howard.`\
+https://www.nytimes.com/2026/05/19/science/ai-art-anne-boleyn.html
+
+**Filling a Lenox Hill Living Room With Objects That Inspire**\
+`The designer Josh Greene splurged on a sexy ’70s credenza and found the perfect display for heirloom antiques in his one-bedroom co-op.`\
+https://www.nytimes.com/2026/05/19/realestate/filling-a-lenox-hill-living-room-with-objects-that-inspire.html
+
+**How to End the Gerrymandering Doom Loop Forever**\
+`The political scientist Lee Drutman argues that we should switch to a system of proportional representation and put an end to our “trench warfare politics.”`\
+https://www.nytimes.com/video/opinion/100000010905496/how-to-end-the-gerrymandering-doom-loop-forever.html
+
+**As Ukraine Hits Oil Refineries, Russians Pay a Heavy Environmental Toll**\
+`After invading more than four years ago, Moscow has usually been the one causing ecological disaster. But Kyiv’s strikes, intended to cut into the Kremlin’s oil revenue, have flipped the script.`\
+https://www.nytimes.com/2026/05/19/world/europe/russia-ukraine-oil-attacks-war-tuapse.html
+
+**What Retro Hobby Would You Like to See Make a Comeback?**\
+`Hacky sack, a popular game from the ’80s and ’90s, is back in a big way with Gen Z. Are there other old games or activities you think teens would enjoy?`\
+https://www.nytimes.com/2026/05/19/learning/what-retro-hobby-would-you-like-to-see-make-a-comeback.html
+
+**Three Decades on the Supreme Court Is Too Long**\
+`In a representative democracy, no one should hold so much power for so long.`\
+https://www.nytimes.com/2026/05/19/opinion/supreme-court-tenure.html
+
+**Calls for ‘No Seed Oil’ Push Companies to Order Up Butter and Beef Tallow**\
+`Businesses are finding different (and more costly) ways to fry foods as shoppers demand alternatives to seed oils as part of the Make America Healthy Again movement.`\
+https://www.nytimes.com/2026/05/19/business/calls-for-no-seed-oil-push-companies-to-order-up-butter-and-beef-tallow.html
+
+**Silicon Valley’s Answer to Declining Male Fertility? Sperm Racing.**\
+`A San Francisco biotech start-up races sex cells on tiny tracks. Can an internet joke become a serious business?`\
+https://www.nytimes.com/2026/05/19/magazine/sperm-racing-silicon-valley.html
+
+**The World’s Rarest Pasta Is Hidden in the Mountains of Sardinia**\
+`In the mountains of Northern Sardinia, a 300-year-old pilgrimage comes with a serving of the world’s rarest pasta.`\
+https://www.nytimes.com/interactive/2026/05/19/dining/sardinia-rare-pasta-food-travel.html
+
+**Trump’s Deportations Are Costing Americans Jobs**\
+`According to a new study, construction was impacted more than any other industry studied, with American-born workers losing more jobs than immigrants as a result of the deportations.`\
+https://www.nytimes.com/2026/05/19/realestate/trumps-deportations-are-costing-americans-jobs.html
+
 **La búsqueda subterránea de un combustible limpio**\
 `El sueño del hidrógeno limpio ha seducido a los expertos en energía durante años, pero producirlo ha sido difícil. Muchas empresas emergentes creen que la respuesta podría estar bajo nuestros pies.`\
 https://www.nytimes.com/es/2026/05/19/espanol/tiempo-y-clima/hidrogeno-energia-limpia.html
