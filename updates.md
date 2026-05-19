@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/05/19/us/election-kentucky-pennsylvania-georgia/heres-the-latest
+
+**Cheap Trick: Debunking the ‘Magic’ of Mentalist Oz Pearlman**\
+`Magician Stevie Baskin explains to Pablo why he thinks this brand of “mind-reading” amounts to fraud.`\
+https://www.nytimes.com/2026/05/19/podcasts/cheap-trick-debunking-the-magic-of-mentalist-oz-pearlman.html
+
 **Ebola Cases Rise Sharply as Medical Workers Scramble for Supplies**\
 `Medical workers in the Democratic Republic of Congo are experiencing a shortage of supplies as the number of suspected Ebola cases has passed 500, according to officials.`\
 https://www.nytimes.com/video/world/africa/100000010911915/ebola-outbreak-congo-medical-supplies.html
