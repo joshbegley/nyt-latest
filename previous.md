@@ -1,3 +1,19 @@
+**Twist in FIFA Corruption Case: 2 Fugitives Emerge, Seeking a Plea Deal**\
+`Federal prosecutors are negotiating with Hugo and Mariano Jinkis, a father and son from Argentina, who after more than a decade suddenly agreed to meet in Brooklyn.`\
+https://www.nytimes.com/2026/05/19/nyregion/fifa-argentina-bribery-brooklyn.html
+
+**Woman Dies After Falling Into Open Manhole in Manhattan**\
+`The woman had parked her S.U.V., then got out and plunged 10 feet into the uncovered hole managed by Con Edison, prompting an investigation.`\
+https://www.nytimes.com/2026/05/19/nyregion/woman-dies-manhole-manhattan.html
+
+**At RuPaul’s Hollywood Premiere, Drag Queens Save the Day**\
+`In Los Angeles, at the premiere of “Stop! That! Train!” a disaster film parody set on the runaway Glamazonian Express, the dress code was “choo-choo realness.”`\
+https://www.nytimes.com/2026/05/19/style/rupaul-stop-that-train-premiere.html
+
+**Israeli Minister Threatens to Evict Palestinians From West Bank Hamlet**\
+`Bezalel Smotrich, the hard-line minister, said he was retaliating for the International Criminal Court seeking his arrest, something the court did not confirm nor deny.`\
+https://www.nytimes.com/2026/05/19/world/middleeast/smotrich-icc-west-bank.html
+
 **El hijo del fundador de Mango es detenido como sospechoso de la muerte de su padre**\
 `Isak Andic, el multimillonario que creó la marca española, murió mientras hacía senderismo con su hijo Jonathan en 2024.`\
 https://www.nytimes.com/es/2026/05/19/espanol/mundo/andic-mango-hijo-muerte-padre.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/05/19/us/politics/reflecting-pool-trump-schutzenhof
 **Pennsylvania Primary Election Results**\
 `Get live results and maps from the 2026 Pennsylvania primary elections.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-pennsylvania-primary.html
-
-**Oregon Primary Election Results**\
-`Get live results and maps from the 2026 Oregon primary elections.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-oregon-primary.html
-
-**Kentucky Primary Election Results**\
-`Get live results and maps from the 2026 Kentucky primary elections.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-kentucky-primary.html
-
-**Results in Key Races: May 19th**\
-`See results in the most-watched races of the night.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-key-races-may-19.html
-
-**Idaho Primary Election Results**\
-`Get live results and maps from the 2026 Idaho primary elections.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-idaho-primary.html
 
