@@ -1,3 +1,7 @@
+**Más de 100.000 niños han sido separados de sus padres en la oleada de deportaciones de Trump, dice informe**\
+`Tres cuartas partes de los niños separados de sus padres son probablemente ciudadanos estadounidenses, según estimaciones de la Institución Brookings que se compartieron con The New York Times.`\
+https://www.nytimes.com/es/2026/05/18/espanol/estados-unidos/separacion-familias-ninos-deportaciones-estados-unidos.html
+
 **Southern California Fire Forces More Than 23,000 to Evacuate**\
 `Hundreds of firefighters battled a fast-moving brush fire that broke out in Simi Valley, Calif., on Monday.`\
 https://www.nytimes.com/video/us/100000010911340/wildfire-simi-valley-evacuations.html
