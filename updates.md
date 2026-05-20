@@ -1,3 +1,19 @@
+**Oregon Fifth Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Oregon primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oregon-us-house-5-primary.html
+
+**Kentucky Sixth Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Kentucky primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-kentucky-us-house-6-primary.html
+
+**Oregon First Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Oregon primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oregon-us-house-1-primary.html
+
+**Idaho Superintendent of Public Instruction Primary Election Results**\
+`Get live results and maps from the 2026 Idaho primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-idaho-superintendent-of-public-instruction-primary.html
+
 **5 Things to Know About the Ed Gallrein, Who Ousted Massie**\
 `Mr. Gallrein ran with President Trump’s support.`\
 https://www.nytimes.com/2026/05/19/us/politics/ed-gallrein-kentucky-republican-house-election.html
