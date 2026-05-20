@@ -1,3 +1,75 @@
+**‘Strangers’ Author Belle Burden Doesn’t Want Eggs Outside Breakfast**\
+`The New York City native on her food life, from a childhood on the Upper East Side to an adulthood in TriBeCa.`\
+https://www.nytimes.com/2026/05/19/dining/strangers-author-belle-burden.html
+
+**L.I.R.R. Workers Are in Line for Raises, but at What Cost to New York?**\
+`Details are still emerging about the contract reached after a three-day strike that shut down America’s busiest passenger rail service. But the fallout could be felt for years.`\
+https://www.nytimes.com/2026/05/19/nyregion/lirr-strike-contract-fallout.html
+
+**The San Diego Mosque Shootings Were Terror Made for and by the Internet**\
+`Authorities said the teenagers who killed three men met online, posted their writings there and livestreamed the killings.`\
+https://www.nytimes.com/2026/05/19/us/san-diego-mosque-cain-clark-caleb-vazquez.html
+
+**Tickle Me Elmo and the Frenzy That Consumed America**\
+`In 1996, the giggling stuffed doll turned holiday shopping into chaos, a preview of every sneaker drop, PlayStation launch and Taylor Swift ticket rush to come.`\
+https://www.nytimes.com/2026/05/19/obituaries/tickle-me-elmo-greg-hyman.html
+
+**Greg Hyman, Co-Creator of Tickle Me Elmo, Dies at 78**\
+`An electronics wizard, he was already a veteran inventor when he collaborated with Ron Dubren on an idea for a toy that giggled. The rest is retail history.`\
+https://www.nytimes.com/2026/05/19/business/greg-hyman-dead.html
+
+**Polls in Kentucky’s 4th District Show an Extremely Tight Race**\
+`With support from President Trump, Ed Gallrein is challenging Representative Thomas Massie.`\
+https://www.nytimes.com/2026/05/19/us/elections/massie-polls-kentucky-4th-district.html
+
+**The New ‘Gold Rush’ of Geothermal Energy**\
+`A new wave of start-ups are trying to harvest emissions-free energy from inside the Earth, but the industry still faces significant challenges.`\
+https://www.nytimes.com/2026/05/19/climate/the-new-gold-rush-of-geothermal-energy.html
+
+**Protests Have Paralyzed Bolivia. Here’s Why.**\
+`After two decades of leftist rule, many voters who backed Bolivia’s new, more conservative president say he’s made their lives harder and are demanding his removal.`\
+https://www.nytimes.com/2026/05/19/world/americas/bolivia-protests-la-paz.html
+
+**Kentucky Primary Election Results**\
+`Get live results and maps from the 2026 Kentucky primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-kentucky-primary.html
+
+**Pennsylvania Primary Election Results**\
+`Get live results and maps from the 2026 Pennsylvania primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-pennsylvania-primary.html
+
+**Georgia Primary Election Results**\
+`Get live results and maps from the 2026 Georgia primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-georgia-primary.html
+
+**Tornado Rips Through Rural Community in Nebraska**\
+`A tornado left a trail of destruction in a rural community in Howard County, Neb., destroying four newly-built homes, according to a local official.`\
+https://www.nytimes.com/video/us/100000010913692/nebraska-tornado-howard-county.html
+
+**Georgia 10th Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Georgia primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-georgia-us-house-10-primary.html
+
+**Georgia Agriculture Commissioner Primary Election Results**\
+`Get live results and maps from the 2026 Georgia primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-georgia-agriculture-commissioner-primary.html
+
+**Georgia Attorney General Primary Election Results**\
+`Get live results and maps from the 2026 Georgia primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-georgia-attorney-general-primary.html
+
+**Georgia Public Service Commission Primary Election Results**\
+`Get live results and maps from the 2026 Georgia primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-georgia-public-service-commission-primary.html
+
+**Alabama Fourth Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Alabama primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-alabama-us-house-4-primary.html
+
+**Alabama Treasurer Primary Election Results**\
+`Get live results and maps from the 2026 Alabama primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-alabama-treasurer-primary.html
+
 **Blanche Defends $1.8 Billion Fund as Skepticism Mounts**\
 `The acting attorney general told lawmakers the fund would review claims from an array of people, not just Republicans.`\
 https://www.nytimes.com/2026/05/19/us/politics/blanche-congress-compensation-fund.html
