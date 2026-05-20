@@ -1,3 +1,5 @@
+
+
 **Las protestas han paralizado Bolivia. Estos son los motivos**\
 `El apoyo al presidente Rodrigo Paz ha ido menguando después de que tomó una serie de medidas que han sido consideradas como un distanciamiento con los sectores populares.`\
 https://www.nytimes.com/es/2026/05/19/espanol/america-latina/bolivia-protestas.html
