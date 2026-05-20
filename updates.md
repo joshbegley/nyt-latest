@@ -1,3 +1,5 @@
+
+
 **Oregon Fifth Congressional District Primary Election Results**\
 `Get live results and maps from the 2026 Oregon primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-oregon-us-house-5-primary.html
