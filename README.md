@@ -1,80 +1,76 @@
-**What the End of Aid Looks Like**\
-`The United States and other countries are cutting humanitarian relief. Our reporter went to Somalia to see the impact.`\
-https://www.nytimes.com/2026/05/19/world/aid-cuts-somalia-putin-china.html
+**‘Strangers’ Author Belle Burden Doesn’t Want Eggs Outside Breakfast**\
+`The New York City native on her food life, from a childhood on the Upper East Side to an adulthood in TriBeCa.`\
+https://www.nytimes.com/2026/05/19/dining/strangers-author-belle-burden.html
 
-**Where Are the Republicans Who Put America First?**\
-`The “Trump First” wing of the G.O.P. is in ascendance. The rest of the party needs to fight back.`\
-https://www.nytimes.com/2026/05/19/opinion/trump-republican-party-gerrymandering.html
+**L.I.R.R. Workers Are in Line for Raises, but at What Cost to New York?**\
+`Details are still emerging about the contract reached after a three-day strike that shut down America’s busiest passenger rail service. But the fallout could be felt for years.`\
+https://www.nytimes.com/2026/05/19/nyregion/lirr-strike-contract-fallout.html
 
-**Thune Casts Doubt on Trump Settlement Fund Plan**\
-`The top Senate Republican cited “blowback” to the idea, while the chairwoman of the Senate Appropriations Committee questioned its legal basis.`\
-https://www.nytimes.com/2026/05/19/us/politics/trump-settlement-fund-congress.html
+**The San Diego Mosque Shootings Were Terror Made for and by the Internet**\
+`Authorities said the teenagers who killed three men met online, posted their writings there and livestreamed the killings.`\
+https://www.nytimes.com/2026/05/19/us/san-diego-mosque-cain-clark-caleb-vazquez.html
 
-**Idaho Primary Election Results**\
-`Get live results and maps from the 2026 Idaho primary elections.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-idaho-primary.html
+**Tickle Me Elmo and the Frenzy That Consumed America**\
+`In 1996, the giggling stuffed doll turned holiday shopping into chaos, a preview of every sneaker drop, PlayStation launch and Taylor Swift ticket rush to come.`\
+https://www.nytimes.com/2026/05/19/obituaries/tickle-me-elmo-greg-hyman.html
 
-**Oregon Primary Election Results**\
-`Get live results and maps from the 2026 Oregon primary elections.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-oregon-primary.html
+**Greg Hyman, Co-Creator of Tickle Me Elmo, Dies at 78**\
+`An electronics wizard, he was already a veteran inventor when he collaborated with Ron Dubren on an idea for a toy that giggled. The rest is retail history.`\
+https://www.nytimes.com/2026/05/19/business/greg-hyman-dead.html
 
-**What to Know About Tuesday’s Most Interesting House Primaries**\
-`In Kentucky, Thomas Massie is fighting off a Trump-backed challenger. Democrats in Pennsylvania have a big decision to make.`\
-https://www.nytimes.com/2026/05/19/us/politics/house-primaries-what-to-know.html
+**Polls in Kentucky’s 4th District Show an Extremely Tight Race**\
+`With support from President Trump, Ed Gallrein is challenging Representative Thomas Massie.`\
+https://www.nytimes.com/2026/05/19/us/elections/massie-polls-kentucky-4th-district.html
 
-**Pennsylvania 12th Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 Pennsylvania primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-pennsylvania-us-house-12-primary.html
+**The New ‘Gold Rush’ of Geothermal Energy**\
+`A new wave of start-ups are trying to harvest emissions-free energy from inside the Earth, but the industry still faces significant challenges.`\
+https://www.nytimes.com/2026/05/19/climate/the-new-gold-rush-of-geothermal-energy.html
 
-**Pennsylvania 14th Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 Pennsylvania primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-pennsylvania-us-house-14-primary.html
+**Protests Have Paralyzed Bolivia. Here’s Why.**\
+`After two decades of leftist rule, many voters who backed Bolivia’s new, more conservative president say he’s made their lives harder and are demanding his removal.`\
+https://www.nytimes.com/2026/05/19/world/americas/bolivia-protests-la-paz.html
 
-**Oregon Third Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 Oregon primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-oregon-us-house-3-primary.html
+**Kentucky Primary Election Results**\
+`Get live results and maps from the 2026 Kentucky primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-kentucky-primary.html
 
-**Pennsylvania 13th Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 Pennsylvania primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-pennsylvania-us-house-13-primary.html
+**Pennsylvania Primary Election Results**\
+`Get live results and maps from the 2026 Pennsylvania primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-pennsylvania-primary.html
 
-**Oregon Fifth Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 Oregon primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-oregon-us-house-5-primary.html
+**Alabama Primary Election Results**\
+`Get live results and maps from the 2026 Alabama primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-alabama-primary.html
 
-**Kentucky Sixth Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 Kentucky primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-kentucky-us-house-6-primary.html
+**Georgia Primary Election Results**\
+`Get live results and maps from the 2026 Georgia primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-georgia-primary.html
 
-**Oregon First Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 Oregon primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-oregon-us-house-1-primary.html
+**Tornado Rips Through Rural Community in Nebraska**\
+`A tornado left a trail of destruction in a rural community in Howard County, Neb., destroying four newly-built homes, according to a local official.`\
+https://www.nytimes.com/video/us/100000010913692/nebraska-tornado-howard-county.html
 
-**Idaho Superintendent of Public Instruction Primary Election Results**\
-`Get live results and maps from the 2026 Idaho primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-idaho-superintendent-of-public-instruction-primary.html
+**Georgia 10th Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Georgia primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-georgia-us-house-10-primary.html
 
-**Idaho Supreme Court Election Results**\
-`Get live results and maps from the 2026 Idaho general election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-idaho-supreme-court.html
+**Georgia Agriculture Commissioner Primary Election Results**\
+`Get live results and maps from the 2026 Georgia primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-georgia-agriculture-commissioner-primary.html
 
-**Idaho U.S. Senate Primary Election Results**\
-`Get live results and maps from the 2026 Idaho primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-idaho-us-senate-primary.html
+**Georgia Attorney General Primary Election Results**\
+`Get live results and maps from the 2026 Georgia primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-georgia-attorney-general-primary.html
 
-**Idaho Lieutenant Governor Primary Election Results**\
-`Get live results and maps from the 2026 Idaho primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-idaho-lieutenant-governor-primary.html
+**Georgia Public Service Commission Primary Election Results**\
+`Get live results and maps from the 2026 Georgia primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-georgia-public-service-commission-primary.html
 
-**Oregon Second Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 Oregon primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-oregon-us-house-2-primary.html
+**Alabama Fourth Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Alabama primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-alabama-us-house-4-primary.html
 
-**Pennsylvania Fourth Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 Pennsylvania primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-pennsylvania-us-house-4-primary.html
-
-**Pennsylvania Lieutenant Governor Primary Election Results**\
-`Get live results and maps from the 2026 Pennsylvania primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-pennsylvania-lieutenant-governor-primary.html
+**Alabama Treasurer Primary Election Results**\
+`Get live results and maps from the 2026 Alabama primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-alabama-treasurer-primary.html
 
