@@ -1,3 +1,7 @@
+**Europeans Remain Wary as Trump Promises to Deploy Troops to Poland**\
+`President Trump has promised to deploy 5,000 U.S. troops to Poland, seemingly reversing course from his previous statements. NATO allies responded cautiously during a summit on Friday and pushed for greater military self-reliance.`\
+https://www.nytimes.com/video/world/europe/100000010921016/europeans-remain-wary-as-trump-promises-to-deploy-troops-to-poland.html
+
 **White House Approves $9 Billion for Spy Agencies to Catch Up on A.I.**\
 `The C.I.A. and N.S.A. cannot fully deploy the latest models on their classified systems because of a shortage of cutting-edge chips.`\
 https://www.nytimes.com/2026/05/22/us/politics/spy-agencies-ai-chips-shortage.html
