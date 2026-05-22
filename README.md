@@ -1,3 +1,11 @@
+**Tulsi Gabbard Resigns as Intelligence Chief**\
+`Tulsi Gabbard, the director of national intelligence, announced on social media on Friday that she would be leaving her post to care for her husband, who is battling an “extremely rare form of bone cancer.”`\
+https://www.nytimes.com/video/us/politics/100000010921362/tulsi-gabbard-resigns-as-intelligence-chief.html
+
+**Quienes soliciten la ‘green card’ deberán hacerlo fuera de EE. UU.**\
+`Es probable que el cambio afecte a cientos de miles de personas. También podría provocar más separaciones familiares mientras las parejas o los parientes esperan la decisión sobre la solicitud.`\
+https://www.nytimes.com/es/2026/05/22/espanol/estados-unidos/green-card-residencia-trump.html
+
 **U.S. to Block Entry to More Noncitizens Who May Have Been Exposed to Ebola**\
 `The Trump administration announced plans to expand a ban on entering the United States to legal permanent residents who had been in the Democratic Republic of Congo, Uganda or South Sudan.`\
 https://www.nytimes.com/2026/05/22/us/politics/trump-cdc-noncitizens-ebola.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/05/22/opinion/money-speech-politics-campaign-financ
 **Wasserman Schultz Will Run in Majority-Black District in South Florida**\
 `Republicans drew the former D.N.C. chairwoman out of her district. Her decision to run in Florida’s 20th Congressional District, however, has stoked tensions with Black Democrats.`\
 https://www.nytimes.com/2026/05/22/us/politics/wasserman-schultz-redistricting.html
-
-**Fact-Checking the Trump Administration’s Inaccurate Claims About the $1.8 Billion Fund**\
-`The president, vice president and acting attorney general have offered a series of inaccurate claims to defend an unusual fund announced this week.`\
-https://www.nytimes.com/2026/05/22/us/politics/trump-fund-irs-fact-check.html
-
-**Free Theater in NYC: 15 Live Shows to See This Spring and Summer**\
-`Chekhov, Broadway stars and, yes, Shakespeare. There’s no shortage of free productions in the city this time of year. Here are 15 shows worth seeing.`\
-https://www.nytimes.com/2026/05/22/theater/free-theater-nyc-summer-plays.html
 
 **Trump Administration Live Updates: Tulsi Gabbard Resigns as Intelligence Chief**\
 `(No description)`\

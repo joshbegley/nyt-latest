@@ -1,3 +1,7 @@
+**SpaceX Starship Test Flight Coasting in Space After Mostly Successful Launch**\
+`SpaceX’s gargantuan rocket started its 12th test flight on Friday evening.`\
+https://www.nytimes.com/2026/05/22/science/spacex-starship-launch-nasa.html
+
 **U.S. to Block Entry to More Noncitizens Who May Have Been Exposed to Ebola**\
 `The Trump administration announced plans to expand a ban on entering the United States to legal permanent residents who had been in the Democratic Republic of Congo, Uganda or South Sudan.`\
 https://www.nytimes.com/2026/05/22/us/politics/trump-cdc-noncitizens-ebola.html
