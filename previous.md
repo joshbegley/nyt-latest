@@ -1,3 +1,7 @@
+**Live Updates: Gas Explosion Feared at California Chemical Plant**\
+`Evacuation orders were issued to 40,000 Orange County residents. A fire official said a major spill or an explosion were the only expected outcomes.`\
+https://www.nytimes.com/live/2026/05/22/us/chemical-leak-evacuation-orange-county
+
 **Carlo Petrini, Whose Slow Food Movement Transformed How We Eat, Dies at 76**\
 `Through his Slow Food organization, he spurred a worldwide shift toward sustainability and thoughtful cuisine.`\
 https://www.nytimes.com/2026/05/22/dining/carlo-petrini-dead.html
@@ -34,10 +38,6 @@ https://www.nytimes.com/2026/05/22/us/politics/dnc-chairman-ken-martin-lutnick-.
 `Education Secretary Linda McMahon has said she wants to hire more civil rights lawyers, but the White House has proposed cutting that office in half.`\
 https://www.nytimes.com/2026/05/22/us/politics/mcmahon-education-cuts.html
 
-**Thousands in Southern California Urged to Evacuate After Chemical Leak**\
-`Officials warned of a possible explosion or spill in Orange County on Friday after a tank that leaked a toxic substance grew more unstable.`\
-https://www.nytimes.com/2026/05/22/us/california-chemical-leak-evacuation-orange-county.html
-
 **Maryland Democrats Plan to Eliminate State’s Lone Republican Seat in Time for 2028**\
 `A top state lawmaker who opposed drawing new districts for the fall elections now says he supports producing an all-Democrat map for the next cycle.`\
 https://www.nytimes.com/2026/05/22/us/politics/maryland-redistricting.html
@@ -66,7 +66,7 @@ https://www.nytimes.com/2026/05/22/us/politics/abrego-garcia-case-dismissed-trum
 `President Trump’s eldest son was married in Palm Beach, Fla. The president described celebrations this weekend as a “small, little private affair.”`\
 https://www.nytimes.com/2026/05/22/style/donald-trump-jr-bettina-anderson-wedding-bahamas-florida.html
 
-**SpaceX Gives a Go to Loading of Propellants Ahead of Launch Attempt of Starship Rocket**\
+**SpaceX Starship Countdown Proceeding Smoothly for On-Time Launch**\
 `If a problem with the launch tower is fixed, SpaceX will try to launch on Friday evening.`\
 https://www.nytimes.com/2026/05/22/science/spacex-starship-launch-nasa.html
 

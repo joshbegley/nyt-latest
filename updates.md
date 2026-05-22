@@ -1,3 +1,11 @@
+**Live Updates: Gas Explosion Feared at California Chemical Plant**\
+`Evacuation orders were issued to 40,000 Orange County residents. A fire official said a major spill or an explosion were the only expected outcomes.`\
+https://www.nytimes.com/live/2026/05/22/us/chemical-leak-evacuation-orange-county
+
+**SpaceX Starship Countdown Proceeding Smoothly for On-Time Launch**\
+`If a problem with the launch tower is fixed, SpaceX will try to launch on Friday evening.`\
+https://www.nytimes.com/2026/05/22/science/spacex-starship-launch-nasa.html
+
 **Carlo Petrini, Whose Slow Food Movement Transformed How We Eat, Dies at 76**\
 `Through his Slow Food organization, he spurred a worldwide shift toward sustainability and thoughtful cuisine.`\
 https://www.nytimes.com/2026/05/22/dining/carlo-petrini-dead.html
