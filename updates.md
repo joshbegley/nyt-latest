@@ -1,3 +1,11 @@
+**Tulsi Gabbard Resigns as Intelligence Chief**\
+`Tulsi Gabbard, the director of national intelligence, announced on social media on Friday that she would be leaving her post to care for her husband, who is battling an “extremely rare form of bone cancer.”`\
+https://www.nytimes.com/video/us/politics/100000010921362/tulsi-gabbard-resigns-as-intelligence-chief.html
+
+**Quienes soliciten la ‘green card’ deberán hacerlo fuera de EE. UU.**\
+`Es probable que el cambio afecte a cientos de miles de personas. También podría provocar más separaciones familiares mientras las parejas o los parientes esperan la decisión sobre la solicitud.`\
+https://www.nytimes.com/es/2026/05/22/espanol/estados-unidos/green-card-residencia-trump.html
+
 **SpaceX Starship Test Flight Coasting in Space After Mostly Successful Launch**\
 `SpaceX’s gargantuan rocket started its 12th test flight on Friday evening.`\
 https://www.nytimes.com/2026/05/22/science/spacex-starship-launch-nasa.html
