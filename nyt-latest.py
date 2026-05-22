@@ -1,22 +1,25 @@
-import os
+import sys
+import xml.etree.ElementTree as ET
 import requests
 
-API_KEY = os.environ.get("NYT_API_KEY", "")
+FEED_URL = "https://rss.nytimes.com/services/xml/rss/nyt/recent.xml"
 
-url = "https://api.nytimes.com/svc/news/v3/content/all/all.json"
-params = {"api-key": API_KEY}
+r = requests.get(FEED_URL, timeout=15)
+r.raise_for_status()
+root = ET.fromstring(r.content)
 
-r = requests.get(url, params=params)
-data = r.json()
+items = root.findall(".//item")
+if not items:
+    sys.exit(f"no <item> elements in feed (got {len(r.content)} bytes)")
 
 print('<html><head><style>html,body,p,h4{margin:0;font-family:avenir;font-weight:normal;font-size:1em;line-height:1.4em}a{font-size:0.8em;}h4{font-size:1.6em;}body{margin-left:20px}</style></head><body>')
 
-for doc in data["results"]:
-    if "cooking.nytimes.com" in doc["url"]:
+for item in items:
+    link = (item.findtext("link") or "").strip()
+    if "cooking.nytimes.com" in link:
         continue
-    headline = doc["title"]
-    web_url = doc["url"]
-    print(f"<h4>{headline}</h4>")
-    print(f'<a href="{web_url}">{web_url}</a><br><br>')
+    title = (item.findtext("title") or "").strip()
+    print(f"<h4>{title}</h4>")
+    print(f'<a href="{link}">{link}</a><br><br>')
 
 print("</body></html>")
