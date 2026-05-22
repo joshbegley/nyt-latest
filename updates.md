@@ -1,3 +1,11 @@
+**Lawsuit Argues Trump’s $1.8 Billion Fund Excludes Those He Targeted**\
+`The constellation of individuals and groups involved claims to have suffered partisan attacks by the federal government under Trump, yet would not be compensated.`\
+https://www.nytimes.com/2026/05/22/us/politics/common-cause-lawsuit-trump-fund.html
+
+**Explosions Injure 13 Firefighters on Staten Island Barge**\
+`Two explosions happened within an hour of each other along the North Shore of Staten Island, leaving 16 people injured, the police said.`\
+https://www.nytimes.com/2026/05/22/nyregion/staten-island-explosion.html
+
 **Maryland Democrats Plan to Eliminate State’s Lone Republican Seat in Time for 2028**\
 `A top state lawmaker who opposed drawing new districts for the fall election now says he supports a constitutional amendment that could pave the way to an all-Democrat map for the next cycle.`\
 https://www.nytimes.com/2026/05/22/us/politics/maryland-redistricting.html
