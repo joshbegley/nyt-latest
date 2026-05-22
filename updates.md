@@ -1,3 +1,7 @@
+**The D.N.C. Chairman, Trump’s $1.8 Billion Fund and More Politics News**\
+`He has focused on internal politics, building a loyal base despite tactical disputes.`\
+https://www.nytimes.com/2026/05/22/us/politics/dnc-chairman-ken-martin-lutnick-.html
+
 **Trump Administration Offers Conflicting View of Civil Rights Cuts**\
 `Education Secretary Linda McMahon has said she wants to hire more civil rights lawyers, but the White House has proposed cutting that office in half.`\
 https://www.nytimes.com/2026/05/22/us/politics/mcmahon-education-cuts.html
