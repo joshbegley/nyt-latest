@@ -1,3 +1,7 @@
+**Explosions Injure 13 Firefighters on Staten Island Barge**\
+`Two explosions happened within an hour of each other along the North Shore of Staten Island, leaving 16 people injured, the police said.`\
+https://www.nytimes.com/2026/05/22/nyregion/staten-island-explosion.html
+
 **A Ford Truck, Home to Newborn Robins, Is Stuck at a Kansas Car Dealer**\
 `Employees of a dealership in Olathe, Kan., found the nest, which is protected under federal law, on top of one of the truck’s tires.`\
 https://www.nytimes.com/2026/05/22/us/ford-f-250-robin-nest-kansas.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/video/podcasts/100000010913320/what-could-be-next-for-co
 **México podría anular elecciones en caso de ‘injerencia extranjera’**\
 `México tomará medidas para añadir protecciones contra la “injerencia extranjera” en las elecciones. Las normas parecen dirigidas a Washington, pero suscitan preocupación por la democracia mexicana.`\
 https://www.nytimes.com/es/2026/05/22/espanol/america-latina/mexico-elecciones-injerencia-extranjera-trump.html
-
-**Europeans Remain Wary After Trump Promises to Send Troops to Poland**\
-`President Trump said he would send 5,000 troops to Poland, part of a back-and-forth that has left European leaders reeling.`\
-https://www.nytimes.com/2026/05/22/world/europe/poland-troops-trump.html
 
 **Trump Administration Live Updates: Tulsi Gabbard Resigns as Intelligence Chief**\
 `(No description)`\
