@@ -58,7 +58,7 @@ https://www.nytimes.com/2026/05/22/us/politics/abrego-garcia-case-dismissed-trum
 `President Trump’s eldest son was married in Palm Beach, Fla. The president described celebrations this weekend as a “small, little private affair.”`\
 https://www.nytimes.com/2026/05/22/style/donald-trump-jr-bettina-anderson-wedding-bahamas-florida.html
 
-**SpaceX to Attempt Launch of Updated Starship Rocket**\
+**SpaceX Gives a Go to Loading of Propellants Ahead of Launch Attempt of Starship Rocket**\
 `If a problem with the launch tower is fixed, SpaceX will try to launch on Friday evening.`\
 https://www.nytimes.com/2026/05/22/science/spacex-starship-launch-nasa.html
 
