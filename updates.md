@@ -1,3 +1,19 @@
+**Carlo Petrini, Whose Slow Food Movement Transformed How We Eat, Dies at 76**\
+`Through his Slow Food organization, he spurred a worldwide shift toward sustainability and thoughtful cuisine.`\
+https://www.nytimes.com/2026/05/22/dining/carlo-petrini-dead.html
+
+**In Dissecting 2024 Loss, Democrats’ Report Ignores Gaza, Biden’s Age**\
+`The nearly 200-page draft autopsy indicated that the party had failed to fully grapple with why Kamala Harris had lost to Donald J. Trump.`\
+https://www.nytimes.com/2026/05/22/us/democrats-autopsy-gaza-biden.html
+
+**Thousands in Southern California Urged to Evacuate After Chemical Leak**\
+`Officials warned of a possible explosion or spill in Orange County on Friday after a tank that leaked a toxic substance grew more unstable.`\
+https://www.nytimes.com/2026/05/22/us/california-chemical-leak-evacuation-orange-county.html
+
+**SpaceX Gives a Go to Loading of Propellants Ahead of Launch Attempt of Starship Rocket**\
+`If a problem with the launch tower is fixed, SpaceX will try to launch on Friday evening.`\
+https://www.nytimes.com/2026/05/22/science/spacex-starship-launch-nasa.html
+
 **Europeans Remain Wary as Trump Promises to Deploy Troops to Poland**\
 `President Trump has promised to deploy 5,000 U.S. troops to Poland, seemingly reversing course from his previous statements. NATO allies responded cautiously during a summit on Friday and pushed for greater military self-reliance.`\
 https://www.nytimes.com/video/world/europe/100000010921016/europeans-remain-wary-as-trump-promises-to-deploy-troops-to-poland.html

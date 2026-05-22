@@ -1,3 +1,11 @@
+**Carlo Petrini, Whose Slow Food Movement Transformed How We Eat, Dies at 76**\
+`Through his Slow Food organization, he spurred a worldwide shift toward sustainability and thoughtful cuisine.`\
+https://www.nytimes.com/2026/05/22/dining/carlo-petrini-dead.html
+
+**In Dissecting 2024 Loss, Democrats’ Report Ignores Gaza, Biden’s Age**\
+`The nearly 200-page draft autopsy indicated that the party had failed to fully grapple with why Kamala Harris had lost to Donald J. Trump.`\
+https://www.nytimes.com/2026/05/22/us/democrats-autopsy-gaza-biden.html
+
 **Europeans Remain Wary as Trump Promises to Deploy Troops to Poland**\
 `President Trump has promised to deploy 5,000 U.S. troops to Poland, seemingly reversing course from his previous statements. NATO allies responded cautiously during a summit on Friday and pushed for greater military self-reliance.`\
 https://www.nytimes.com/video/world/europe/100000010921016/europeans-remain-wary-as-trump-promises-to-deploy-troops-to-poland.html
@@ -26,8 +34,8 @@ https://www.nytimes.com/2026/05/22/us/politics/dnc-chairman-ken-martin-lutnick-.
 `Education Secretary Linda McMahon has said she wants to hire more civil rights lawyers, but the White House has proposed cutting that office in half.`\
 https://www.nytimes.com/2026/05/22/us/politics/mcmahon-education-cuts.html
 
-**Officials Warn of Possible Gas Explosion at California Plant**\
-`Evacuation orders were issued to residents in parts of Orange County after a chemical leak that was initially reported on Thursday grew more serious.`\
+**Thousands in Southern California Urged to Evacuate After Chemical Leak**\
+`Officials warned of a possible explosion or spill in Orange County on Friday after a tank that leaked a toxic substance grew more unstable.`\
 https://www.nytimes.com/2026/05/22/us/california-chemical-leak-evacuation-orange-county.html
 
 **Maryland Democrats Plan to Eliminate State’s Lone Republican Seat in Time for 2028**\
@@ -58,7 +66,7 @@ https://www.nytimes.com/2026/05/22/us/politics/abrego-garcia-case-dismissed-trum
 `President Trump’s eldest son was married in Palm Beach, Fla. The president described celebrations this weekend as a “small, little private affair.”`\
 https://www.nytimes.com/2026/05/22/style/donald-trump-jr-bettina-anderson-wedding-bahamas-florida.html
 
-**SpaceX to Attempt Launch of Updated Starship Rocket**\
+**SpaceX Gives a Go to Loading of Propellants Ahead of Launch Attempt of Starship Rocket**\
 `If a problem with the launch tower is fixed, SpaceX will try to launch on Friday evening.`\
 https://www.nytimes.com/2026/05/22/science/spacex-starship-launch-nasa.html
 
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/05/22/world/europe/poland-troops-trump.html
 **Disconnect Widens Between Mamdani and Pro-Israel Jewish Leaders**\
 `In recent days, Mayor Zohran Mamdani has taken actions that have made the relationship between his office and some Jewish New York leaders more fraught.`\
 https://www.nytimes.com/2026/05/22/nyregion/mamdani-jews-relationship.html
-
-**A.I. Is a Job Creator**\
-`A.I. will create more jobs than it will kill.`\
-https://www.nytimes.com/2026/05/22/opinion/ai-job-crisis-goldman-sachs.html
-
-**Five Horror Movies to Stream Now**\
-`Evil this month looks just plain weird, from a despairing children’s TV show to a demonic buffet.`\
-https://www.nytimes.com/2026/05/22/movies/horror-movies-streaming.html
 
 **Trump Administration Live Updates: Tulsi Gabbard Resigns as Intelligence Chief**\
 `(No description)`\
