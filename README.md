@@ -1,3 +1,11 @@
+**White House Approves $9 Billion for Spy Agencies to Catch Up on A.I.**\
+`The C.I.A. and N.S.A. cannot fully deploy the latest models on their classified systems because of a shortage of cutting-edge chips.`\
+https://www.nytimes.com/2026/05/22/us/politics/spy-agencies-ai-chips-shortage.html
+
+**Waymo Pauses Service in 6 Cities After Cars Drive Into Floodwaters**\
+`Waymo has paused its driverless taxi service in six cities after video emerged showing an empty car stuck on a flooded road in Atlanta.`\
+https://www.nytimes.com/video/us/100000010920866/waymo-atlanta-flooded-road.html
+
 **Trump’s Intelligence Chief Resigns**\
 `Also, mediators rush to save the U.S.-Iran cease-fire. Here’s the latest at the end of Friday.`\
 https://www.nytimes.com/2026/05/22/briefing/trump-intelligence-chief-resigns.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/05/22/movies/horror-movies-streaming.html
 **Everlane Finalizes Sale to Shein, the Fast Fashion Giant**\
 `The ultra low priced retailer has purchased Everlane, the millennial standby that promised transparency.`\
 https://www.nytimes.com/2026/05/22/style/shein-everlane-fast-fashion-sustainability.html
-
-**Is Long Beach Island’s Audacious Architecture Being Washed Away?**\
-`The beloved summer getaway off the Jersey Shore has been a playground for modernism. But a new wave of Hamptons-style mansions may steal its identity.`\
-https://www.nytimes.com/2026/05/22/realestate/long-beach-island-new-jersey-shore-architecture.html
-
-**Why This Ebola Outbreak Could Be One of the Worst**\
-`An Ebola outbreak is spreading in parts of Africa with over 170 deaths and about 750 infections, according to the World Health Organization. Our global health reporter Apoorva Mandavilli explains how the suspension of vital channels of U.S. aid is turning a bad situation much worse.`\
-https://www.nytimes.com/video/us/100000010911616/us-aid-suspension-impact-ebola-outbreak.html
 
 **Trump Administration Live Updates: Tulsi Gabbard Resigns as Intelligence Chief**\
 `(No description)`\
