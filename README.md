@@ -1,3 +1,7 @@
+**The D.N.C. Chairman, Trump’s $1.8 Billion Fund and More Politics News**\
+`He has focused on internal politics, building a loyal base despite tactical disputes.`\
+https://www.nytimes.com/2026/05/22/us/politics/dnc-chairman-ken-martin-lutnick-.html
+
 **Trump Administration Offers Conflicting View of Civil Rights Cuts**\
 `Education Secretary Linda McMahon has said she wants to hire more civil rights lawyers, but the White House has proposed cutting that office in half.`\
 https://www.nytimes.com/2026/05/22/us/politics/mcmahon-education-cuts.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/05/22/your-money/preapproved-plans-houses-cost.html
 **Stephen Colbert’s Last ‘Late Show’: Laughing Well Is the Best Revenge**\
 `The “Late Show” cancellation was a disappointment. But a surreally lovely final episode turned it into a cancellebration.`\
 https://www.nytimes.com/2026/05/22/arts/television/colbert-last-late-show.html
-
-**Sundar Pichai Understands Why People Are Anxious About A.I.**\
-`After a busy Google I/O, the company’s chief executive sits down with the hosts of “Hard Fork” to discuss the future of Google Search, how he’s using A.I. agents and his advice for college graduates.`\
-https://www.nytimes.com/2026/05/22/podcasts/sundar-pichai-understands-why-people-are-anxious-about-ai.html
 
 **Trump Administration Live Updates: Tulsi Gabbard Resigns as Intelligence Chief**\
 `(No description)`\
