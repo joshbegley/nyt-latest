@@ -1,3 +1,7 @@
+**Europeans Remain Wary as Trump Promises to Deploy Troops to Poland**\
+`President Trump has promised to deploy 5,000 U.S. troops to Poland, seemingly reversing course from his previous statements. NATO allies responded cautiously during a summit on Friday and pushed for greater military self-reliance.`\
+https://www.nytimes.com/video/world/europe/100000010921016/europeans-remain-wary-as-trump-promises-to-deploy-troops-to-poland.html
+
 **White House Approves $9 Billion for Spy Agencies to Catch Up on A.I.**\
 `The C.I.A. and N.S.A. cannot fully deploy the latest models on their classified systems because of a shortage of cutting-edge chips.`\
 https://www.nytimes.com/2026/05/22/us/politics/spy-agencies-ai-chips-shortage.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/05/22/opinion/ai-job-crisis-goldman-sachs.html
 **Five Horror Movies to Stream Now**\
 `Evil this month looks just plain weird, from a despairing children’s TV show to a demonic buffet.`\
 https://www.nytimes.com/2026/05/22/movies/horror-movies-streaming.html
-
-**Everlane Finalizes Sale to Shein, the Fast Fashion Giant**\
-`The ultra low priced retailer has purchased Everlane, the millennial standby that promised transparency.`\
-https://www.nytimes.com/2026/05/22/style/shein-everlane-fast-fashion-sustainability.html
 
 **Trump Administration Live Updates: Tulsi Gabbard Resigns as Intelligence Chief**\
 `(No description)`\
