@@ -1,6 +1,6 @@
 **What is methyl methacrylate, the chemical at the center of the Orange County crisis?**\
-`(No description)`\
-https://www.nytimes.com/2026/05/22/us/what-is-the-chemical-at-the-center-of-the-orange-county-crisis.html
+`The E.P.A. warns that short-term exposure to the compound, methyl methacrylate, can cause skin and eye irritation and respiratory issues.`\
+https://www.nytimes.com/2026/05/22/us/methyl-methacrylate-garden-grove-chemical-leak.html
 
 **Meth and Fentanyl Found in Home Where Emergency Responders Fell Ill**\
 `More than a dozen emergency workers were treated after responding to a report of an overdose at a New Mexico home.`\
@@ -103,7 +103,7 @@ https://www.nytimes.com/2026/05/22/us/politics/abrego-garcia-case-dismissed-trum
 https://www.nytimes.com/2026/05/22/style/donald-trump-jr-bettina-anderson-wedding-bahamas-florida.html
 
 **SpaceX Starship Test Flight Re-entering Atmosphere Over Indian Ocean**\
-`SpaceX’s gargantuan rocket started its 12th test flight on Friday evening.`\
+`SpaceX’s gargantuan rocket launched its 12th test flight on Friday evening and ended its journey in the Indian Ocean just over an hour later.`\
 https://www.nytimes.com/2026/05/22/science/spacex-starship-launch-nasa.html
 
 **World Cup Fans Are Saying No to $98 Train Rides**\
