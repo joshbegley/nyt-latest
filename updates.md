@@ -1,3 +1,19 @@
+**White House Approves $9 Billion for Spy Agencies to Catch Up on A.I.**\
+`The C.I.A. and N.S.A. cannot fully deploy the latest models on their classified systems because of a shortage of cutting-edge chips.`\
+https://www.nytimes.com/2026/05/22/us/politics/spy-agencies-ai-chips-shortage.html
+
+**Waymo Pauses Service in 6 Cities After Cars Drive Into Floodwaters**\
+`Waymo has paused its driverless taxi service in six cities after video emerged showing an empty car stuck on a flooded road in Atlanta.`\
+https://www.nytimes.com/video/us/100000010920866/waymo-atlanta-flooded-road.html
+
+**Trump’s Intelligence Chief Resigns**\
+`Also, mediators rush to save the U.S.-Iran cease-fire. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/05/22/briefing/trump-intelligence-chief-resigns.html
+
+**Warsh Is Sworn in as Fed Chair**\
+`Kevin M. Warsh, President Trump’s pick for Fed chair, said he would lead a “reform-oriented” Federal Reserve in his first remarks after being sworn in.`\
+https://www.nytimes.com/video/us/politics/100000010920880/warsh-fed-chair-swearing-in-trump.html
+
 **The D.N.C. Chairman, Trump’s $1.8 Billion Fund and More Politics News**\
 `He has focused on internal politics, building a loyal base despite tactical disputes.`\
 https://www.nytimes.com/2026/05/22/us/politics/dnc-chairman-ken-martin-lutnick-.html

@@ -1,3 +1,19 @@
+**White House Approves $9 Billion for Spy Agencies to Catch Up on A.I.**\
+`The C.I.A. and N.S.A. cannot fully deploy the latest models on their classified systems because of a shortage of cutting-edge chips.`\
+https://www.nytimes.com/2026/05/22/us/politics/spy-agencies-ai-chips-shortage.html
+
+**Waymo Pauses Service in 6 Cities After Cars Drive Into Floodwaters**\
+`Waymo has paused its driverless taxi service in six cities after video emerged showing an empty car stuck on a flooded road in Atlanta.`\
+https://www.nytimes.com/video/us/100000010920866/waymo-atlanta-flooded-road.html
+
+**Trump’s Intelligence Chief Resigns**\
+`Also, mediators rush to save the U.S.-Iran cease-fire. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/05/22/briefing/trump-intelligence-chief-resigns.html
+
+**Warsh Is Sworn in as Fed Chair**\
+`Kevin M. Warsh, President Trump’s pick for Fed chair, said he would lead a “reform-oriented” Federal Reserve in his first remarks after being sworn in.`\
+https://www.nytimes.com/video/us/politics/100000010920880/warsh-fed-chair-swearing-in-trump.html
+
 **The D.N.C. Chairman, Trump’s $1.8 Billion Fund and More Politics News**\
 `He has focused on internal politics, building a loyal base despite tactical disputes.`\
 https://www.nytimes.com/2026/05/22/us/politics/dnc-chairman-ken-martin-lutnick-.html
@@ -169,22 +185,6 @@ https://www.nytimes.com/2026/05/22/movies/horror-movies-streaming.html
 **Everlane Finalizes Sale to Shein, the Fast Fashion Giant**\
 `The ultra low priced retailer has purchased Everlane, the millennial standby that promised transparency.`\
 https://www.nytimes.com/2026/05/22/style/shein-everlane-fast-fashion-sustainability.html
-
-**Is Long Beach Island’s Audacious Architecture Being Washed Away?**\
-`The beloved summer getaway off the Jersey Shore has been a playground for modernism. But a new wave of Hamptons-style mansions may steal its identity.`\
-https://www.nytimes.com/2026/05/22/realestate/long-beach-island-new-jersey-shore-architecture.html
-
-**Why This Ebola Outbreak Could Be One of the Worst**\
-`An Ebola outbreak is spreading in parts of Africa with over 170 deaths and about 750 infections, according to the World Health Organization. Our global health reporter Apoorva Mandavilli explains how the suspension of vital channels of U.S. aid is turning a bad situation much worse.`\
-https://www.nytimes.com/video/us/100000010911616/us-aid-suspension-impact-ebola-outbreak.html
-
-**An Option That Can Help Cut Housing Prices Catches On**\
-`Preapproved plans trim weeks or months off the process of getting a building permit. “Every month of delay adds costs that ultimately land on the buyer,” one housing expert said.`\
-https://www.nytimes.com/2026/05/22/your-money/preapproved-plans-houses-cost.html
-
-**Stephen Colbert’s Last ‘Late Show’: Laughing Well Is the Best Revenge**\
-`The “Late Show” cancellation was a disappointment. But a surreally lovely final episode turned it into a cancellebration.`\
-https://www.nytimes.com/2026/05/22/arts/television/colbert-last-late-show.html
 
 **Trump Administration Live Updates: Tulsi Gabbard Resigns as Intelligence Chief**\
 `(No description)`\
