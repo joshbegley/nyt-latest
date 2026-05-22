@@ -1,4 +1,8 @@
-**Live Updates: Gas Explosion Feared at California Chemical Plant**\
+**A Ford Truck, Home to Newborn Robins, Is Stuck at a Kansas Car Dealer**\
+`Employees of a dealership in Olathe, Kan., found the nest, which is protected under federal law, on top of one of the truck’s tires.`\
+https://www.nytimes.com/2026/05/22/us/ford-f-250-robin-nest-kansas.html
+
+**Live Updates: Toxic Explosion Feared at California Chemical Plant**\
 `Evacuation orders were issued to 40,000 Orange County residents. A fire official said a major spill or an explosion were the only expected outcomes.`\
 https://www.nytimes.com/live/2026/05/22/us/chemical-leak-evacuation-orange-county
 
@@ -181,10 +185,6 @@ https://www.nytimes.com/es/2026/05/22/espanol/america-latina/mexico-elecciones-i
 **Europeans Remain Wary After Trump Promises to Send Troops to Poland**\
 `President Trump said he would send 5,000 troops to Poland, part of a back-and-forth that has left European leaders reeling.`\
 https://www.nytimes.com/2026/05/22/world/europe/poland-troops-trump.html
-
-**Disconnect Widens Between Mamdani and Pro-Israel Jewish Leaders**\
-`In recent days, Mayor Zohran Mamdani has taken actions that have made the relationship between his office and some Jewish New York leaders more fraught.`\
-https://www.nytimes.com/2026/05/22/nyregion/mamdani-jews-relationship.html
 
 **Trump Administration Live Updates: Tulsi Gabbard Resigns as Intelligence Chief**\
 `(No description)`\

@@ -1,3 +1,11 @@
+**A Ford Truck, Home to Newborn Robins, Is Stuck at a Kansas Car Dealer**\
+`Employees of a dealership in Olathe, Kan., found the nest, which is protected under federal law, on top of one of the truck’s tires.`\
+https://www.nytimes.com/2026/05/22/us/ford-f-250-robin-nest-kansas.html
+
+**Live Updates: Toxic Explosion Feared at California Chemical Plant**\
+`Evacuation orders were issued to 40,000 Orange County residents. A fire official said a major spill or an explosion were the only expected outcomes.`\
+https://www.nytimes.com/live/2026/05/22/us/chemical-leak-evacuation-orange-county
+
 **Live Updates: Gas Explosion Feared at California Chemical Plant**\
 `Evacuation orders were issued to 40,000 Orange County residents. A fire official said a major spill or an explosion were the only expected outcomes.`\
 https://www.nytimes.com/live/2026/05/22/us/chemical-leak-evacuation-orange-county

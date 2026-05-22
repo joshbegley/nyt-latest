@@ -43,7 +43,7 @@ https://www.nytimes.com/2026/05/22/us/politics/dnc-chairman-ken-martin-lutnick-.
 https://www.nytimes.com/2026/05/22/us/politics/mcmahon-education-cuts.html
 
 **Maryland Democrats Plan to Eliminate State’s Lone Republican Seat in Time for 2028**\
-`A top state lawmaker who opposed drawing new districts for the fall elections now says he supports producing an all-Democrat map for the next cycle.`\
+`A top state lawmaker who opposed drawing new districts for the fall election now says he supports a constitutional amendment that could pave the way to an all-Democrat map for the next cycle.`\
 https://www.nytimes.com/2026/05/22/us/politics/maryland-redistricting.html
 
 **G.O.P. Break With Trump Reflects Limits of Party’s Post-Jan. 6 Truce**\
@@ -70,8 +70,8 @@ https://www.nytimes.com/2026/05/22/us/politics/abrego-garcia-case-dismissed-trum
 `President Trump’s eldest son was married in Palm Beach, Fla. The president described celebrations this weekend as a “small, little private affair.”`\
 https://www.nytimes.com/2026/05/22/style/donald-trump-jr-bettina-anderson-wedding-bahamas-florida.html
 
-**SpaceX Starship Countdown Proceeding Smoothly for On-Time Launch**\
-`If a problem with the launch tower is fixed, SpaceX will try to launch on Friday evening.`\
+**SpaceX Starship Launches on 12th Test Flight**\
+`SpaceX’s gargantuan rocket started its 12th test flight on Friday evening.`\
 https://www.nytimes.com/2026/05/22/science/spacex-starship-launch-nasa.html
 
 **World Cup Fans Are Saying No to $98 Train Rides**\
