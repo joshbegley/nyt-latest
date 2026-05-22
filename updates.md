@@ -1,3 +1,15 @@
+**Meth and Fentanyl Found in Home Where Emergency Responders Fell Ill**\
+`More than a dozen emergency workers were treated after responding to a report of an overdose at a New Mexico home.`\
+https://www.nytimes.com/2026/05/22/us/new-mexico-meth-fentanyl-overdose-sick.html
+
+**Rob Base, Rapper Known for ‘It Takes Two,’ Dies at 59**\
+`The singer died on Friday after a “private battle with cancer,” according to his official Instagram account.`\
+https://www.nytimes.com/2026/05/22/arts/music/rob-base-dead.html
+
+**SpaceX Starship Test Flight Re-entering Atmosphere Over Indian Ocean**\
+`SpaceX’s gargantuan rocket started its 12th test flight on Friday evening.`\
+https://www.nytimes.com/2026/05/22/science/spacex-starship-launch-nasa.html
+
 **Tulsi Gabbard Resigns as Intelligence Chief**\
 `Tulsi Gabbard, the director of national intelligence, announced on social media on Friday that she would be leaving her post to care for her husband, who is battling an “extremely rare form of bone cancer.”`\
 https://www.nytimes.com/video/us/politics/100000010921362/tulsi-gabbard-resigns-as-intelligence-chief.html
