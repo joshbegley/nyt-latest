@@ -1,3 +1,7 @@
+**Lawsuit Argues Trump’s $1.8 Billion Fund Excludes Those He Targeted**\
+`The constellation of individuals and groups involved claims to have suffered partisan attacks by the federal government under Trump, yet would not be compensated.`\
+https://www.nytimes.com/2026/05/22/us/politics/common-cause-lawsuit-trump-fund.html
+
 **Explosions Injure 13 Firefighters on Staten Island Barge**\
 `Two explosions happened within an hour of each other along the North Shore of Staten Island, leaving 16 people injured, the police said.`\
 https://www.nytimes.com/2026/05/22/nyregion/staten-island-explosion.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/05/22/theater/free-theater-nyc-summer-plays.html
 **What Could Be Next for Colbert and Late-Night TV?**\
 `Wesley Morris and Jason Zinoman consider Stephen Colbert’s next move and the future of late-night tv.`\
 https://www.nytimes.com/video/podcasts/100000010913320/what-could-be-next-for-colbert-and-late-night-tv.html
-
-**México podría anular elecciones en caso de ‘injerencia extranjera’**\
-`México tomará medidas para añadir protecciones contra la “injerencia extranjera” en las elecciones. Las normas parecen dirigidas a Washington, pero suscitan preocupación por la democracia mexicana.`\
-https://www.nytimes.com/es/2026/05/22/espanol/america-latina/mexico-elecciones-injerencia-extranjera-trump.html
 
 **Trump Administration Live Updates: Tulsi Gabbard Resigns as Intelligence Chief**\
 `(No description)`\
