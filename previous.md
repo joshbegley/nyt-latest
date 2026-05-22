@@ -1,3 +1,7 @@
+**U.S. to Block Entry to More Noncitizens Who May Have Been Exposed to Ebola**\
+`The Trump administration announced plans to expand a ban on entering the United States to legal permanent residents who had been in the Democratic Republic of Congo, Uganda or South Sudan.`\
+https://www.nytimes.com/2026/05/22/us/politics/trump-cdc-noncitizens-ebola.html
+
 **Lawsuit Argues Trump’s $1.8 Billion Fund Excludes Those He Targeted**\
 `The constellation of individuals and groups involved claims to have suffered partisan attacks by the federal government under Trump, yet would not be compensated.`\
 https://www.nytimes.com/2026/05/22/us/politics/common-cause-lawsuit-trump-fund.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/05/22/us/politics/trump-fund-irs-fact-check.html
 **Free Theater in NYC: 15 Live Shows to See This Spring and Summer**\
 `Chekhov, Broadway stars and, yes, Shakespeare. There’s no shortage of free productions in the city this time of year. Here are 15 shows worth seeing.`\
 https://www.nytimes.com/2026/05/22/theater/free-theater-nyc-summer-plays.html
-
-**What Could Be Next for Colbert and Late-Night TV?**\
-`Wesley Morris and Jason Zinoman consider Stephen Colbert’s next move and the future of late-night tv.`\
-https://www.nytimes.com/video/podcasts/100000010913320/what-could-be-next-for-colbert-and-late-night-tv.html
 
 **Trump Administration Live Updates: Tulsi Gabbard Resigns as Intelligence Chief**\
 `(No description)`\

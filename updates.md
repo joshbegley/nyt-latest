@@ -1,3 +1,7 @@
+**U.S. to Block Entry to More Noncitizens Who May Have Been Exposed to Ebola**\
+`The Trump administration announced plans to expand a ban on entering the United States to legal permanent residents who had been in the Democratic Republic of Congo, Uganda or South Sudan.`\
+https://www.nytimes.com/2026/05/22/us/politics/trump-cdc-noncitizens-ebola.html
+
 **Lawsuit Argues Trump’s $1.8 Billion Fund Excludes Those He Targeted**\
 `The constellation of individuals and groups involved claims to have suffered partisan attacks by the federal government under Trump, yet would not be compensated.`\
 https://www.nytimes.com/2026/05/22/us/politics/common-cause-lawsuit-trump-fund.html
