@@ -1,3 +1,11 @@
+**Cuba merece una nueva historia nacional**\
+`¿Cómo pueden avanzar los cubanos si no están dispuestos a asumir su pasado?`\
+https://www.nytimes.com/es/2026/05/23/espanol/opinion/cuba-estados-unidos-castro-futuro.html
+
+**Toxic Explosion Feared at California Chemical Plant**\
+`Evacuation orders were issued to 40,000 Orange County residents as firefighters tried to prevent a spill or an explosion. Health officials said they couldn’t predict the impact of a toxic release.`\
+https://www.nytimes.com/live/2026/05/22/us/chemical-leak-evacuation-orange-county
+
 **Australia’s ‘Prettiest Street’ Is Grappling With TikTok and Instagram Fame**\
 `For many years, Tasman Drive in Gerringong was a secret held by locals. Now residents must coexist with tourists hungry for the perfect shot.`\
 https://www.nytimes.com/2026/05/23/world/australia/gerringong-tasman-drive-tourists-beautiful-street.html
