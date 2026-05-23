@@ -1,3 +1,7 @@
+**Donald Trump Jr. and Bettina Anderson Celebrate Marriage on Bahamas Private Island**\
+`After getting legally married in Palm Beach, the couple plans to exchange vows in the Bahamas this weekend, and later hold a celebration at the White House, a representative for the bride said.`\
+https://www.nytimes.com/2026/05/23/style/donald-trump-jr-bettina-anderson-wedding.html
+
 **A Lull in Fighting Gave Time to Bury Their Dead**\
 `The human toll of the war has spared few parts of southern Lebanon. Temporary graves sprang up across the south as fighting made village cemeteries impossible to reach. When the temporary cease-fire took hold, those graves were exhumed. And families finally returned to their villages to bury their dead.`\
 https://www.nytimes.com/2026/05/23/world/europe/lebanon-war-burials.html

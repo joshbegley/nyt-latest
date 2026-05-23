@@ -1,3 +1,7 @@
+**Donald Trump Jr. and Bettina Anderson Celebrate Marriage on Bahamas Private Island**\
+`After getting legally married in Palm Beach, the couple plans to exchange vows in the Bahamas this weekend, and later hold a celebration at the White House, a representative for the bride said.`\
+https://www.nytimes.com/2026/05/23/style/donald-trump-jr-bettina-anderson-wedding.html
+
 **A Lull in Fighting Gave Time to Bury Their Dead**\
 `The human toll of the war has spared few parts of southern Lebanon. Temporary graves sprang up across the south as fighting made village cemeteries impossible to reach. When the temporary cease-fire took hold, those graves were exhumed. And families finally returned to their villages to bury their dead.`\
 https://www.nytimes.com/2026/05/23/world/europe/lebanon-war-burials.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/23/style/the-necklace-youn-yuh-jung-loved-lost-a
 **A Route 66 Road Trip in Cars of the Past, Present and Future**\
 `Before cars could drive themselves, the Mother Road beckoned Americans westward. We drove a long stretch of it to assess the health of the old road while sizing up the next automotive century.`\
 https://www.nytimes.com/2026/05/23/us/route-66-100-years-cars.html
-
-**5 Takeaways From a Times Investigation on Autism Therapy Clinics**\
-`A rapidly growing industry often overprescribes treatment to young children with autism, who spend as many as 40 hours a week at the facilities.`\
-https://www.nytimes.com/2026/05/23/health/autisim-clinics-investigation.html
 
