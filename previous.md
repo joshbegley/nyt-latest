@@ -1,3 +1,7 @@
+**Nicolas Cage Made Himself a Legend. Then He Had to Live With It.**\
+`The iconic actor on becoming a meme, a myth and larger than life.`\
+https://www.nytimes.com/2026/05/23/magazine/nicolas-cage-interview.html
+
 **As Draco Malfoy on Broadway, Tom Felton Draws a Crowd**\
 `Fans are traveling great distances for the chance to meet Tom Felton, who has revived a now grown-up Draco Malfoy on Broadway in “Harry Potter and The Cursed Child.”`\
 https://www.nytimes.com/2026/05/23/arts/harry-potter-cursed-child-stage-door.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/05/22/us/politics/hud-assistance-animals-disabled.h
 **Choice for the Undecided**\
 `Kameron Austin Collins’s latest themeless puzzle: hilarious or nefarious? Why not both?`\
 https://www.nytimes.com/2026/05/22/crosswords/daily-puzzle-2026-05-23.html
-
-**Garden Grove Is a Suburban City Near Theme Parks**\
-`The city is home to part of Little Saigon, the cultural heart of the Vietnamese American population in California.`\
-https://www.nytimes.com/2026/05/22/us/where-is-the-california-chemical-leak.html
 
 **Toxic Explosion Feared at California Chemical Plant**\
 `Evacuation orders were issued to 40,000 Orange County residents as firefighters tried to prevent a spill or an explosion. Health officials said they couldn’t predict the impact of a toxic release.`\

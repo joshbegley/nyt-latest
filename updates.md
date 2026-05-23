@@ -1,3 +1,7 @@
+**Nicolas Cage Made Himself a Legend. Then He Had to Live With It.**\
+`The iconic actor on becoming a meme, a myth and larger than life.`\
+https://www.nytimes.com/2026/05/23/magazine/nicolas-cage-interview.html
+
 **As Draco Malfoy on Broadway, Tom Felton Draws a Crowd**\
 `Fans are traveling great distances for the chance to meet Tom Felton, who has revived a now grown-up Draco Malfoy on Broadway in “Harry Potter and The Cursed Child.”`\
 https://www.nytimes.com/2026/05/23/arts/harry-potter-cursed-child-stage-door.html
