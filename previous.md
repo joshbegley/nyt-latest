@@ -1,3 +1,15 @@
+**Keeping Black Brooklyn Alive, One Drink at a Time**\
+`As the departure of New York’s Black residents changes neighborhood culture, one gathering paid tribute to one of its remaining Black institutions, the Tip-Top Bar and Grill.`\
+https://www.nytimes.com/2026/05/23/nyregion/black-brooklyn-residents-businesses.html
+
+**How Stars From ‘The Morning Show’ and ‘The League’ Keep Their Love Alive**\
+`Mark Duplass and his wife, Katie Aselton, make movies together, but they also make time to cuddle on the subway.`\
+https://www.nytimes.com/interactive/2026/05/23/nyregion/23routine-morning-show.html
+
+**NYT Spelling Bee Answers for May 23, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/23/crosswords/spelling-bee-forum.html
+
 **El mercado de la salud vaginal crece cada vez más**\
 `Los vacíos en el conocimiento y cuidado de la salud femenina han generado una oportunidad de negocio. ¿Qué puede salir mal?`\
 https://www.nytimes.com/es/2026/05/23/espanol/estilos-de-vida/salud-vagina.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/05/22/style/donald-trump-jr-bettina-anderson-weddin
 **SpaceX Completes Mostly Successful Starship Rocket Flight**\
 `The 12th test flight of SpaceX’s gargantuan rocket launched on Friday evening and ended its journey in the Indian Ocean just over an hour later.`\
 https://www.nytimes.com/2026/05/22/science/spacex-starship-launch-nasa.html
-
-**World Cup Fans Are Saying No to $98 Train Rides**\
-`World Cup fans, some of whom are already spending thousands of dollars, seem to prefer the $20 bus to get to MetLife Stadium.`\
-https://www.nytimes.com/2026/05/22/nyregion/world-cup-transportation-tickets-nyc.html
-
-**Read Tulsi Gabbard’s Resignation Letter**\
-`Tulsi Gabbard, the director of national intelligence, told President Trump in a letter on Friday that she was stepping down to support her husband after his diagnosis with a rare form of bone cancer.`\
-https://www.nytimes.com/interactive/2026/05/22/us/tulsi-gabbard-resignation-letter.html
-
-**Tulsi Gabbard Resigns as Intelligence Chief**\
-`(No description)`\
-https://www.nytimes.com/live/2026/05/22/us/trump-news
 

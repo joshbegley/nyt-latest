@@ -1,3 +1,15 @@
+**Keeping Black Brooklyn Alive, One Drink at a Time**\
+`As the departure of New York’s Black residents changes neighborhood culture, one gathering paid tribute to one of its remaining Black institutions, the Tip-Top Bar and Grill.`\
+https://www.nytimes.com/2026/05/23/nyregion/black-brooklyn-residents-businesses.html
+
+**How Stars From ‘The Morning Show’ and ‘The League’ Keep Their Love Alive**\
+`Mark Duplass and his wife, Katie Aselton, make movies together, but they also make time to cuddle on the subway.`\
+https://www.nytimes.com/interactive/2026/05/23/nyregion/23routine-morning-show.html
+
+**NYT Spelling Bee Answers for May 23, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/23/crosswords/spelling-bee-forum.html
+
 **Xi Calls for All-Out Rescue After Coal Mine Explosion Kills at Least 90 in China**\
 `The death count rose drastically on Saturday as the Chinese leader, Xi Jinping, called for an investigation and emphasized the need to “hold those responsible to account.”`\
 https://www.nytimes.com/2026/05/23/world/asia/xi-coal-mine-explosion-rescue.html
