@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+`President Trump provided few details on social media about a memorandum of understanding being negotiated between the United States and Iran.`\
+https://www.nytimes.com/2026/05/23/world/middleeast/heres-the-latest.html
+
 **Grizz Chapman, Actor Known for His Role on ’30 Rock,’ Dies at 52**\
 `Mr. Chapman, who played a member of Tracy Morgan’s entourage on the show, died on Friday, according to his cousin.`\
 https://www.nytimes.com/2026/05/23/arts/television/grizz-chapman-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/23/arts/music/olivia-rodrigo-charli-xcx-songs.ht
 **U.S. Ebola Travel Ban Faces Criticism From Congo Health Officials**\
 `Kinshasa residents continue to pack markets, bars and public transportation, despite growing international concern about the spread of the virus.`\
 https://www.nytimes.com/2026/05/23/world/africa/ebola-outbreak-congo-shrug.html
-
-**Trump’s Pursuit of a Partnership With China Raises Concerns in India**\
-`Secretary of State Marco Rubio has a “gargantuan task” during his visit to Delhi: defuse tensions over President Trump’s anti-India aggression and overtures to China.`\
-https://www.nytimes.com/2026/05/23/us/politics/trump-rubio-india-china.html
 

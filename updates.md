@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+`President Trump provided few details on social media about a memorandum of understanding being negotiated between the United States and Iran.`\
+https://www.nytimes.com/2026/05/23/world/middleeast/heres-the-latest.html
+
 **Grizz Chapman, Actor Known for His Role on ’30 Rock,’ Dies at 52**\
 `Mr. Chapman, who played a member of Tracy Morgan’s entourage on the show, died on Friday, according to his cousin.`\
 https://www.nytimes.com/2026/05/23/arts/television/grizz-chapman-dead.html
