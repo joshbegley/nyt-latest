@@ -1,3 +1,11 @@
+**Trump Administration Chips Away at Last Traces of Broad Inquiry Into Jan. 6**\
+`Two recent moves aligned the department ever more closely with President Trump’s own efforts to whitewash the events of that day.`\
+https://www.nytimes.com/2026/05/23/us/politics/trump-prosecutors-jan-6.html
+
+**Inside the $1.8 Billion MAGA Payout Fund**\
+`Americans should be cleareyed about what President Trump is doing: He is taking $1.8 billion worth of taxpayer money and rewarding loyalists willing to defy the law and commit violence. The Times editorial board explains in this video.`\
+https://www.nytimes.com/video/opinion/100000010919618/inside-the-1-8-billion-maga-payout-fund.html
+
 **Donald Trump Jr. and Bettina Anderson Celebrate Marriage on Bahamas Private Island**\
 `After getting legally married in Palm Beach, the couple plans to exchange vows in the Bahamas this weekend, and later hold a celebration at the White House, a representative for the bride said.`\
 https://www.nytimes.com/2026/05/23/style/donald-trump-jr-bettina-anderson-wedding.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/05/23/theater/dog-day-afternoon-broadway-tonys.html
 **My HOA Neighbor Is Breaking the Rules. What Can I Do?**\
 `There are contracts between property owners, and also between owners and the community.`\
 https://www.nytimes.com/2026/05/23/realestate/hoa-rules-neighbors.html
-
-**Youn Yuh-jung of “Beef” on the Tiffany Necklace She Loved, Lost and Replaced**\
-`After a robbery, the Oscar-winning actress, now starring in the second season of “Beef,” replaced the heart-shaped necklace she adored.`\
-https://www.nytimes.com/2026/05/23/style/the-necklace-youn-yuh-jung-loved-lost-and-replaced.html
-
-**A Route 66 Road Trip in Cars of the Past, Present and Future**\
-`Before cars could drive themselves, the Mother Road beckoned Americans westward. We drove a long stretch of it to assess the health of the old road while sizing up the next automotive century.`\
-https://www.nytimes.com/2026/05/23/us/route-66-100-years-cars.html
 
