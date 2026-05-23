@@ -2,7 +2,7 @@
 `David Steinberg returns to the Sunday puzzle with a new switcheroo.`\
 https://www.nytimes.com/2026/05/23/crosswords/daily-puzzle-2026-05-24.html
 
-**Multilingual Drama ‘Fjord’ Wins Palme d’Or at Cannes Film Festival**\
+**Director Cristian Mungiu’s ‘Fjord’ Wins Palme d’Or at Cannes Film Festival**\
 `The film, from the Romanian director Cristian Mungiu, explores the tension between religious conservatism and social liberalism. The award closed a festival that felt comparatively muted to many.`\
 https://www.nytimes.com/2026/05/23/movies/cannes-palme-dor-winner-fjord.html
 
