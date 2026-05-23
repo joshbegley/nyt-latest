@@ -1,3 +1,11 @@
+**Israeli Strikes Pummel Lebanon, Killing Medics Amid Fragile Truce**\
+`Saturday’s strikes damaged a main hospital in the Lebanese city of Tyre, as funerals for paramedics killed a day earlier were held.`\
+https://www.nytimes.com/2026/05/23/world/middleeast/israel-strikes-lebanon-killing-medis.html
+
+**A Fresher, Brighter Macaroni Salad**\
+`Alexa Weibel’s macaroni salad with lemon and herbs complements anything off the grill (and will get you compliments).`\
+https://www.nytimes.com/2026/05/23/dining/a-fresher-brighter-macaroni-salad.html
+
 **Alexandros Giotopoulos of November 17, Greek Militant Group, Is Freed**\
 `The release of Alexandros Giotopoulos was denounced by relatives of people killed by November 17, a Greek far-left group that was active between 1975 and 2002.`\
 https://www.nytimes.com/2026/05/23/world/europe/greece-november-17-alexandros-giotopoulos.html

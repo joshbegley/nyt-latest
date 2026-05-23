@@ -1,3 +1,11 @@
+**Israeli Strikes Pummel Lebanon, Killing Medics Amid Fragile Truce**\
+`Saturday’s strikes damaged a main hospital in the Lebanese city of Tyre, as funerals for paramedics killed a day earlier were held.`\
+https://www.nytimes.com/2026/05/23/world/middleeast/israel-strikes-lebanon-killing-medis.html
+
+**A Fresher, Brighter Macaroni Salad**\
+`Alexa Weibel’s macaroni salad with lemon and herbs complements anything off the grill (and will get you compliments).`\
+https://www.nytimes.com/2026/05/23/dining/a-fresher-brighter-macaroni-salad.html
+
 **Alexandros Giotopoulos of November 17, Greek Militant Group, Is Freed**\
 `The release of Alexandros Giotopoulos was denounced by relatives of people killed by November 17, a Greek far-left group that was active between 1975 and 2002.`\
 https://www.nytimes.com/2026/05/23/world/europe/greece-november-17-alexandros-giotopoulos.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/05/23/well/move/summer-workout-ideas-exercise-advic
 **How to Stay Safe Around Jellyfish This Beach Season**\
 `Jellyfish myths and misconceptions abound. Here’s how to stay safe this beach season around these gelatinous wonders.`\
 https://www.nytimes.com/2026/05/23/us/jellyfish-facts-beach-sting-safety.html
-
-**Travel Through the Looking Glass in Yoshi and the Mysterious Book**\
-`This year’s new Nintendo Switch 2 games include a wonderful adventure for Yoshi, magic tennis rackets for Baby Mario and Baby Luigi, and a Sims-Animal Crossing mashup.`\
-https://www.nytimes.com/2026/05/23/arts/yoshi-mysterious-book-review.html
-
-**Nicole Polizzi of ‘Jersey Shore’ Relaxes by Watching Zombies**\
-`“My favorite horror movies are with zombies and watching the end of the world happen and people having to live in this new world of zombies.”`\
-https://www.nytimes.com/2026/05/23/arts/television/nicole-polizzi-snooki-jersey-shore.html
 
