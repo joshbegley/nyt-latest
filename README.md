@@ -1,3 +1,7 @@
+**A Lull in Fighting Gave Time to Bury Their Dead**\
+`The human toll of the war has spared few parts of southern Lebanon. Temporary graves sprang up across the south as fighting made village cemeteries impossible to reach. When the temporary cease-fire took hold, those graves were exhumed. And families finally returned to their villages to bury their dead.`\
+https://www.nytimes.com/2026/05/23/world/europe/lebanon-war-burials.html
+
 **Husband of Prominent New York Gallerist Convicted in Murder-for-Hire Plot**\
 `Brent Sikkema, who championed artists like Kara Walker, was found stabbed to death in his apartment in Brazil in 2024 amid divorce proceedings with his spouse.`\
 https://www.nytimes.com/2026/05/23/arts/design/brent-sikkema-murder-guilty.html
@@ -42,7 +46,7 @@ https://www.nytimes.com/2026/05/23/arts/design/yiadom-boakye-shainman-art.html
 `As people across the Middle East braced for the possibility of renewed fighting, officials from both sides said there were signs that they were moving closer to an agreement.`\
 https://www.nytimes.com/2026/05/23/world/middleeast/iran-us-israel-ceasefire-talks.html
 
-**Americans Don’t Talk to Their Neighbors. That’s a Problem for Kids.**\
+**Why Americans Are Afraid of Their Neighbors**\
 `‘Stranger danger’ was always a misleading idea, and it’s bad for our children.`\
 https://www.nytimes.com/2026/05/23/opinion/kids-fear-strangers.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/23/us/route-66-100-years-cars.html
 **5 Takeaways From a Times Investigation on Autism Therapy Clinics**\
 `A rapidly growing industry often overprescribes treatment to young children with autism, who spend as many as 40 hours a week at the facilities.`\
 https://www.nytimes.com/2026/05/23/health/autisim-clinics-investigation.html
-
-**How Profit-Seeking Autism Clinics Can Harm Kids**\
-`Profit motives are shaping the care inside an expanding autism therapy industry, creating conditions that can harm some children. Our health reporter Sarah Kliff explains her new investigation, co-authored with Margot Sanger-Katz.`\
-https://www.nytimes.com/video/health/100000010889107/how-profit-seeking-autism-clinics-can-harm-kids.html
 
