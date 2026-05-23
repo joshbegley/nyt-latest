@@ -1,3 +1,7 @@
+**HUD Moves to Limit Assistance Animals for Disabled Tenants in Public Housing**\
+`Housing officials were told to exclude emotional support animals and tighten the definition of a service animal when granting accommodations for disabled tenants.`\
+https://www.nytimes.com/2026/05/22/us/politics/hud-assistance-animals-disabled.html
+
 **Choice for the Undecided**\
 `Kameron Austin Collins’s latest themeless puzzle: hilarious or nefarious? Why not both?`\
 https://www.nytimes.com/2026/05/22/crosswords/daily-puzzle-2026-05-23.html
