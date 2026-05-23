@@ -1,4 +1,8 @@
-**What Is GKN Aerospace?**\
+**Mob Burns Congo Ebola Center Amid Rare Strain Outbreak**\
+`Several hundred people massed at the gates of a hospital to demand the body a suspected Ebola victim. Violence broke out when staff refused the request.`\
+https://www.nytimes.com/2026/05/22/world/africa/ebola-congo-clinic-burned-protests.html
+
+**What is GKN Aerospace, the Company Whose California Plant Is at Risk of Exploding?**\
 `A chemical leak occurred at one of the company’s manufacturing plants in California, raising concerns about an explosion.`\
 https://www.nytimes.com/2026/05/22/us/what-is-gkn-aerospace.html
 
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/05/22/world/middleeast/iran-ceasefire-us-qatar-paki
 **Un piloto cubano acusado junto con Castro se encuentra en EE. UU.**\
 `El piloto, Luis González-Pardo, era uno de los acusados en el acta de imputación que incluía al expresidente cubano Raúl Castro.`\
 https://www.nytimes.com/es/2026/05/22/espanol/america-latina/cuba-ee-uu-acusacion-piloto-castro.html
-
-**Flashback: Your Weekly History Quiz, May 23, 2026**\
-`Can you sort 8 historical events?`\
-https://www.nytimes.com/interactive/2026/05/22/upshot/flashback.html
 
 **Tulsi Gabbard Resigns as Intelligence Chief**\
 `(No description)`\
