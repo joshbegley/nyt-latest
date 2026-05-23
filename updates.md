@@ -1,3 +1,7 @@
+**What to Know About the Garden Grove Chemical Plant Crisis**\
+`Firefighters continue to cool a chemical storage tank with water to prevent it from breaching or exploding. Some 40,000 residents near the Orange County plant have been evacuated to shelters.`\
+https://www.nytimes.com/2026/05/23/us/garden-grove-chemical-plant-explosion.html
+
 **What to Know About Lifeguards as New York City’s Beaches Open for Summer**\
 `City beaches are back open, though outdoor pools won’t open for another month. Here’s where things stand at the unofficial start of summer.`\
 https://www.nytimes.com/2026/05/23/nyregion/nyc-beaches-pools-lifeguards.html
