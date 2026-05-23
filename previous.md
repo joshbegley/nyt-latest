@@ -1,3 +1,7 @@
+**How ‘Sentinel Gardens’ Help Spot Dangerous Bugs Abroad**\
+`Scientists have planted American trees in China, Korea and elsewhere to attract hungry insects. Their hope is to identify the most damaging bugs before they cross the ocean.`\
+https://www.nytimes.com/2026/05/23/climate/sentinel-gardens-invasive-species-bugs-trees.html
+
 **Track Changes**\
 `It’s a holiday weekend, three days to ease from one seasonal mind-set into the next, even if it feels too soon.`\
 https://www.nytimes.com/2026/05/23/briefing/track-changes.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/23/world/europe/phone-theft-threats-london.html
 **Once Trump’s Co-Pilot Against Iran, Netanyahu Is Now a Mere Passenger**\
 `A partner in the war, Israel has been largely left out of the peace talks, a humbling setback for its prime minister with significant risks for the country.`\
 https://www.nytimes.com/2026/05/23/world/middleeast/israel-trump-iran.html
-
-**The Risks of Iran’s Threat to Control the Strait of Hormuz**\
-`Iran is trying to assert its control over the strait by charging for passage. Experts say it is unlikely to happen, but the threat has unsettled the shipping industry.`\
-https://www.nytimes.com/2026/05/23/business/iran-toll-strait-hormuz.html
 

@@ -1,3 +1,7 @@
+**How ‘Sentinel Gardens’ Help Spot Dangerous Bugs Abroad**\
+`Scientists have planted American trees in China, Korea and elsewhere to attract hungry insects. Their hope is to identify the most damaging bugs before they cross the ocean.`\
+https://www.nytimes.com/2026/05/23/climate/sentinel-gardens-invasive-species-bugs-trees.html
+
 **Track Changes**\
 `It’s a holiday weekend, three days to ease from one seasonal mind-set into the next, even if it feels too soon.`\
 https://www.nytimes.com/2026/05/23/briefing/track-changes.html
