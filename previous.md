@@ -1,3 +1,15 @@
+**Grizz Chapman, Actor Known for His Role on ’30 Rock,’ Dies at 52**\
+`Mr. Chapman, who played a member of Tracy Morgan’s entourage on the show, died on Friday, according to his cousin.`\
+https://www.nytimes.com/2026/05/23/arts/television/grizz-chapman-dead.html
+
+**Colbert’s Sudden Return to Late Night? It Happened on Public Access.**\
+`A day after the comedian hosted the final episode of “The Late Show With Stephen Colbert” on CBS, he hosted “Only in Monroe,” a community-access program in Monroe, Mich.`\
+https://www.nytimes.com/2026/05/23/arts/television/stephen-colbert-michigan-public-access.html
+
+**Dozens Killed in Coal Mine Explosion, China State Media Says**\
+`A gas explosion at a coal mine in northern China killed dozens on Friday, according to Xinhua, a Chinese state news agency. In 2024, China’s National Mine Safety Administration cited the coal mine for “severe safety hazards” and high gas levels. As of Saturday morning, the cause of the explosion was still unknown, according to CCTV, the Chinese state broadcaster.`\
+https://www.nytimes.com/video/world/asia/100000010922659/china-coal-mine-explosion-deaths.html
+
 **Los cubanoestadounidenses de Florida aumentan la ayuda a sus familiares en Cuba**\
 `Meses después del inicio del bloqueo petrolero impuesto por el presidente Trump, muchos cubanos dependen más que nunca de sus familiares en EE. UU. para cubrir sus necesidades diarias.`\
 https://www.nytimes.com/es/2026/05/23/espanol/estados-unidos/florida-envios-ayuda-cuba.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/05/23/world/africa/ebola-outbreak-congo-shrug.html
 **Trump’s Pursuit of a Partnership With China Raises Concerns in India**\
 `Secretary of State Marco Rubio has a “gargantuan task” during his visit to Delhi: defuse tensions over President Trump’s anti-India aggression and overtures to China.`\
 https://www.nytimes.com/2026/05/23/us/politics/trump-rubio-india-china.html
-
-**Trump, Defiant After Bad Week, Pushes Ahead on Politically Unpopular Ideas**\
-`President Trump continues to act like he’s politically all-powerful, even in the face of indications that he is not.`\
-https://www.nytimes.com/2026/05/23/us/politics/trump-republicans-fund-ballroom-iran.html
-
-**‘A Total Nightmare’: Voices From a Moscow Hit by Ukrainian Drones**\
-`Residents who experienced attacks in recent days were shaken deeply by the conflict coming home to the capital region, the seat of the Kremlin’s power.`\
-https://www.nytimes.com/2026/05/23/world/europe/moscow-drone-attacks-ukraine.html
-
-**Should You Lend Money to Friends? More People Are Open to the Arrangement.**\
-`Friendship and money don’t always mix. But many Americans feel comfortable discussing financial issues with their friends and lending them money.`\
-https://www.nytimes.com/2026/05/23/business/loans-money-friends.html
 
