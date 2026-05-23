@@ -1,3 +1,11 @@
+**Graduating Into A.I. Pessimism**\
+`Backlash to artificial intelligence is here, and digital natives are leading the charge. The Opinion columnist Michelle Goldberg argues that the A.I. pessimism in America stems from a lack of responsible regulation.`\
+https://www.nytimes.com/video/opinion/100000010918890/graduating-into-ai-pessimism.html
+
+**Donald Trump Jr. and Bettina Anderson Celebrate Marriage on Bahamas Private Island**\
+`After getting legally married in Palm Beach, the couple exchanged vows in the Caribbean this weekend, according to a spokesman.`\
+https://www.nytimes.com/2026/05/23/style/donald-trump-jr-bettina-anderson-wedding.html
+
 **Shipyard Worker Killed and Dozens Injured in Staten Island Blasts**\
 `The explosions at May Ship Repair Contracting Corporation, which erupted after a fire on a dock, killed one of the company’s subcontractors, a representative said.`\
 https://www.nytimes.com/2026/05/23/nyregion/explosions-worker-killed-staten-island.html
