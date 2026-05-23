@@ -1,3 +1,7 @@
+**France Bans Israeli Minister Over Treatment of Detained Flotilla Activists**\
+`Itamar Ben-Gvir, the Israeli national security minister, has long drawn criticism for his hard-line statements and harsh policies against Palestinian prisoners.`\
+https://www.nytimes.com/2026/05/23/world/middleeast/ben-gvir-travel-ban-france.html
+
 **Garden Grove Chemical Tank Could Be Inching Toward Explosion, Authorities Say**\
 `Firefighters still have few options to prevent a tank of toxic chemicals in Garden Grove, Calif., from leaking or exploding.`\
 https://www.nytimes.com/2026/05/23/us/garden-grove-chemical-tank-orange-county.html
