@@ -1,3 +1,11 @@
+**Garden Grove Is a Suburban City Near Theme Parks**\
+`The city is home to part of Little Saigon, the cultural heart of the Vietnamese American population in California.`\
+https://www.nytimes.com/2026/05/22/us/where-is-the-california-chemical-leak.html
+
+**Deadly Explosions Injure Dozens of Firefighters on Staten Island Barge**\
+`Two explosions rocked a barge on the North Shore of Staten Island, injuring 34 people. The resulting fire was under control, but was still burning.`\
+https://www.nytimes.com/2026/05/22/nyregion/staten-island-explosion.html
+
 **Deadly Explosions Injure Dozens of Firefighters on Staten Island Barge**\
 `Two explosions happened within an hour of each other along the North Shore of Staten Island, injuring 34 firefighters and emergency workers.`\
 https://www.nytimes.com/2026/05/22/nyregion/staten-island-explosion.html

@@ -127,7 +127,7 @@ https://www.nytimes.com/2026/05/22/us/politics/abrego-garcia-case-dismissed-trum
 https://www.nytimes.com/2026/05/22/style/donald-trump-jr-bettina-anderson-wedding-bahamas-florida.html
 
 **SpaceX Completes Mostly Successful Starship Rocket Flight**\
-`The company’s gargantuan rocket launched its 12th test flight on Friday evening and ended its journey in the Indian Ocean just over an hour later.`\
+`The 12th test flight of SpaceX’s gargantuan rocket launched on Friday evening and ended its journey in the Indian Ocean just over an hour later.`\
 https://www.nytimes.com/2026/05/22/science/spacex-starship-launch-nasa.html
 
 **World Cup Fans Are Saying No to $98 Train Rides**\
