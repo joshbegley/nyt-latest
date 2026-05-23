@@ -1,3 +1,7 @@
+**Now Is Not the Time to Play Political Make-Believe**\
+`Voters want to dictate which offices their preferred politicians hold, what positions they take, and even where and how they live. It is fantasy football: political edition.`\
+https://www.nytimes.com/2026/05/23/opinion/politics-michelle-obama-president.html
+
 **Can MAGA Survive Without Its Moms?**\
 `The moms are not happy.`\
 https://www.nytimes.com/2026/05/23/opinion/maha-moms-fertility-underbabied.html

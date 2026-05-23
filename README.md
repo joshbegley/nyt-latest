@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/05/23/opinion/artificial-intelligence-philanthropy-
 `The future of health advice is uncertain.`\
 https://www.nytimes.com/2026/05/23/opinion/rfk-prevention-experts-health-advice.html
 
-**Now Is Not the Time to Play Political Make-Believe**\
+**Don’t Play Political Make-Believe**\
 `Voters want to dictate which offices their preferred politicians hold, what positions they take, and even where and how they live. It is fantasy football: political edition.`\
 https://www.nytimes.com/2026/05/23/opinion/politics-michelle-obama-president.html
 
