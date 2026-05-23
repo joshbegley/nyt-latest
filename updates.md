@@ -1,3 +1,7 @@
+**Xi Calls for All-Out Rescue After Coal Mine Explosion Kills at Least 90 in China**\
+`The death count rose drastically on Saturday as the Chinese leader, Xi Jinping, called for an investigation and emphasized the need to “hold those responsible to account.”`\
+https://www.nytimes.com/2026/05/23/world/asia/xi-coal-mine-explosion-rescue.html
+
 **El mercado de la salud vaginal crece cada vez más**\
 `Los vacíos en el conocimiento y cuidado de la salud femenina han generado una oportunidad de negocio. ¿Qué puede salir mal?`\
 https://www.nytimes.com/es/2026/05/23/espanol/estilos-de-vida/salud-vagina.html
