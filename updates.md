@@ -1,3 +1,7 @@
+**What to Know About the Garden Grove Chemical Plant Crisis**\
+`Firefighters continue to cool a chemical storage tank with water to prevent it from breaching or exploding. Some 40,000 residents near the Orange County plant have been evacuated to shelters.`\
+https://www.nytimes.com/2026/05/23/us/garden-grove-chemical-plant-leak-evacuations.html
+
 **Husband of Prominent New York Gallerist Convicted in Murder-for-Hire Plot**\
 `Brent Sikkema, who championed artists like Kara Walker, was found stabbed to death in his apartment in Brazil in 2024 amid divorce proceedings with his spouse.`\
 https://www.nytimes.com/2026/05/23/arts/design/brent-sikkema-murder-guilty.html
