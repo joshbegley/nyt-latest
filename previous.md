@@ -74,7 +74,7 @@ https://www.nytimes.com/2026/05/23/opinion/trump-slush-fund-republicans.html
 `Leave a physical legacy to future generations, not just a record of programs and disbursements.`\
 https://www.nytimes.com/2026/05/23/opinion/artificial-intelligence-philanthropy-beauty.html
 
-**Firing Prevention Experts Will Not Make Us Healthy Again**\
+**Firing Cancer Screening Experts Will Not Make Us Healthy Again**\
 `The future of health advice is uncertain.`\
 https://www.nytimes.com/2026/05/23/opinion/rfk-prevention-experts-health-advice.html
 
