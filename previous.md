@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/05/23/us/politics/britain-strait-of-hormuz-iran.html
 
 **Gunshots Reported Near White House, F.B.I. Says**\
-`A witness reported hearing dozens of shots. It was not immediately clear what led up to the shooting or whether anyone had been injured.`\
+`A witness reported hearing dozens of shots. It was not immediately clear what had led up to the shooting or whether anyone had been injured.`\
 https://www.nytimes.com/2026/05/23/us/politics/white-house-shooting.html
 
 **Next, Please!**\
