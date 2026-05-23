@@ -1,3 +1,7 @@
+**How a Chemical Tank in Southern California Came to the Brink of Disaster**\
+`Firefighters are left without any options to prevent the tank, filled with a toxic chemical, from collapsing or exploding. The authorities have urged thousands of people to evacuate their homes.`\
+https://www.nytimes.com/2026/05/22/us/southern-california-chemical-tank-emergency.html
+
 **HUD Moves to Limit Assistance Animals for Disabled Tenants**\
 `Housing officials were told to exclude emotional support animals and tighten the definition of a service animal when granting accommodations for disabled tenants.`\
 https://www.nytimes.com/2026/05/22/us/politics/hud-assistance-animals-disabled.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/05/22/style/cannes-red-carpet-best-dressed.html
 **Kitty Bruce, Caretaker of Lenny Bruce’s Legacy, Dies at 70**\
 `As Mr. Bruce’s daughter, she maintained boxes of video and audio of his groundbreaking and often scandalous work.`\
 https://www.nytimes.com/2026/05/22/us/kitty-bruce-dead.html
-
-**Today, In Short**\
-`Hooters. Museum blurbs. Memorial Day hot dogs.`\
-https://www.nytimes.com/2026/05/22/briefing/today-in-short.html
 
 **Tulsi Gabbard Resigns as Intelligence Chief**\
 `(No description)`\
