@@ -1,3 +1,7 @@
+**Donald Trump Jr. and Bettina Anderson Celebrate Marriage on Bahamas Private Island**\
+`After getting legally married in Palm Beach, the couple plans to exchange vows in the Bahamas this weekend, followed by what is expected to be a larger celebration at the White House later this year.`\
+https://www.nytimes.com/2026/05/23/style/donald-trump-jr-bettina-anderson-wedding.html
+
 **Here’s the latest.**\
 `President Trump provided few details on social media about a memorandum of understanding being negotiated between the United States and Iran.`\
 https://www.nytimes.com/2026/05/23/world/middleeast/heres-the-latest.html
