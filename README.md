@@ -1,3 +1,7 @@
+**Husband of Prominent New York Gallerist Convicted in Murder-for-Hire Plot**\
+`Brent Sikkema, who championed artists like Kara Walker, was found stabbed to death in his apartment in Brazil in 2024 amid divorce proceedings with his spouse.`\
+https://www.nytimes.com/2026/05/23/arts/design/brent-sikkema-murder-guilty.html
+
 **What to Know About the Garden Grove Chemical Plant Crisis**\
 `Firefighters continue to cool a chemical storage tank with water to prevent it from breaching or exploding. Some 40,000 residents near the Orange County plant have been evacuated to shelters.`\
 https://www.nytimes.com/2026/05/23/us/garden-grove-chemical-plant-explosion.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/23/health/autisim-clinics-investigation.html
 **How Profit-Seeking Autism Clinics Can Harm Kids**\
 `Profit motives are shaping the care inside an expanding autism therapy industry, creating conditions that can harm some children. Our health reporter Sarah Kliff explains her new investigation, co-authored with Margot Sanger-Katz.`\
 https://www.nytimes.com/video/health/100000010889107/how-profit-seeking-autism-clinics-can-harm-kids.html
-
-**A Haitian Mother Waits for Court’s Ruling on TPS — and Her Future**\
-`As the Supreme Court considers whether to end temporary protections for hundreds of thousands of Haitians, we meet a Florida nurse at risk of losing work — and her son — if she’s deported back to Haiti.`\
-https://www.nytimes.com/video/us/100000010887153/supreme-court-tps-haitian-mom-florida.html
 
