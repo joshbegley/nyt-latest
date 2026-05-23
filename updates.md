@@ -1,3 +1,11 @@
+**HUD Moves to Limit Assistance Animals for Disabled Tenants**\
+`Housing officials were told to exclude emotional support animals and tighten the definition of a service animal when granting accommodations for disabled tenants.`\
+https://www.nytimes.com/2026/05/22/us/politics/hud-assistance-animals-disabled.html
+
+**Trump Weighs His Options in Carrying Out New Strikes in Iran**\
+`There is no shortage of targets if he decides to strike: Energy facilities left untouched, the deep underground nuclear storage site at Isfahan and missile sites that appear to have been dug out.`\
+https://www.nytimes.com/2026/05/22/us/politics/trump-iran-targets.html
+
 **HUD Moves to Limit Assistance Animals for Disabled Tenants in Public Housing**\
 `Housing officials were told to exclude emotional support animals and tighten the definition of a service animal when granting accommodations for disabled tenants.`\
 https://www.nytimes.com/2026/05/22/us/politics/hud-assistance-animals-disabled.html
