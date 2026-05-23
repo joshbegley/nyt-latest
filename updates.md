@@ -1,3 +1,7 @@
+**As Trump Weighs Return to Conflict in Iran, Here’s What Could Be Targeted Next**\
+`There is no shortage of targets should President Trump, in coordination with Israel, decide to resume the assault on Iran.`\
+https://www.nytimes.com/2026/05/22/us/politics/trump-iran-targets.html
+
 **Trump Visits New York to Boost House Republican’s Re-election Hopes**\
 `The visit by President Trump was meant to promote Representative Mike Lawler’s bid to defend his swing seat in New York, but it had the earmarks of a Trump rally.`\
 https://www.nytimes.com/2026/05/22/nyregion/trump-lawler-rockland-ny.html
