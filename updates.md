@@ -1,3 +1,11 @@
+**Shipyard Worker Killed and Dozens Injured in Staten Island Blasts**\
+`The explosions at May Ship Repair Contracting Corporation, which erupted after a fire on a dock, killed one of the company’s subcontractors, a representative said.`\
+https://www.nytimes.com/2026/05/23/nyregion/explosions-worker-killed-staten-island.html
+
+**Here’s the latest.**\
+`President Trump provided few details about the preliminary agreement, which he said was “largely negotiated.”`\
+https://www.nytimes.com/2026/05/23/world/middleeast/heres-the-latest.html
+
 **Donald Trump Jr. and Bettina Anderson Celebrate Marriage on Bahamas Private Island**\
 `After getting legally married in Palm Beach, the couple plans to exchange vows in the Bahamas this weekend, followed by what is expected to be a larger celebration at the White House later this year.`\
 https://www.nytimes.com/2026/05/23/style/donald-trump-jr-bettina-anderson-wedding.html

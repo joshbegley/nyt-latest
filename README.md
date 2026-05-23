@@ -1,3 +1,7 @@
+**Graduating Into A.I. Pessimism**\
+`Backlash to artificial intelligence is here, and digital natives are leading the charge. The Opinion columnist Michelle Goldberg argues that the A.I. pessimism in America stems from a lack of responsible regulation.`\
+https://www.nytimes.com/video/opinion/100000010918890/graduating-into-ai-pessimism.html
+
 **Shipyard Worker Killed and Dozens Injured in Staten Island Blasts**\
 `The explosions at May Ship Repair Contracting Corporation, which erupted after a fire on a dock, killed one of the company’s subcontractors, a representative said.`\
 https://www.nytimes.com/2026/05/23/nyregion/explosions-worker-killed-staten-island.html
@@ -47,7 +51,7 @@ https://www.nytimes.com/2026/05/23/us/politics/trump-prosecutors-jan-6.html
 https://www.nytimes.com/video/opinion/100000010919618/inside-the-1-8-billion-maga-payout-fund.html
 
 **Donald Trump Jr. and Bettina Anderson Celebrate Marriage on Bahamas Private Island**\
-`After getting legally married in Palm Beach, the couple plans to exchange vows in the Bahamas this weekend, followed by what is expected to be a larger celebration at the White House later this year.`\
+`After getting legally married in Palm Beach, the couple exchanged vows in the Caribbean this weekend, according to a spokesman.`\
 https://www.nytimes.com/2026/05/23/style/donald-trump-jr-bettina-anderson-wedding.html
 
 **A Lull in Fighting Gave Time to Bury Their Dead**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/23/movies/cannes-film-festival-oscar-contenders.
 **John Marion, the ‘God of Auctioneers in America,’ Dies at 92**\
 `For three decades, he was the face of the auction house Sotheby’s, presiding over an era in which art evolved from an object of passion into a commodity.`\
 https://www.nytimes.com/2026/05/23/arts/john-marion-dead.html
-
-**Olivia Rodrigo, Vince Staples: 8 Songs We’re Talking About This Week**\
-`Olivia Rodrigo’s orchestral angst, Charli XCX’s fashion crisis and Vince Staples’s frustrated sing-rap.`\
-https://www.nytimes.com/2026/05/23/arts/music/olivia-rodrigo-charli-xcx-songs.html
 
