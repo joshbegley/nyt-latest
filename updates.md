@@ -1,3 +1,11 @@
+**El gobierno de Cuba celebra el legado de Raúl Castro tras la imputación de EE. UU.**\
+`Las autoridades y los medios de comunicación estatales recurrieron a las redes sociales para proyectar la imagen de una nación unida en torno a un anciano estadista venerado.`\
+https://www.nytimes.com/es/2026/05/23/espanol/america-latina/cuba-raul-castro-cargos.html
+
+**¿Una Helena de Troya negra? OK. ¿Un Obama blanco? Todavía no.**\
+`Hay buenas razones por las que los actores blancos no deberían interpretar a personajes negros en nuestro momento.`\
+https://www.nytimes.com/es/2026/05/23/espanol/opinion/odisea-helena-lupita-nyongo.html
+
 **Keeping Black Brooklyn Alive, One Drink at a Time**\
 `As the departure of New York’s Black residents changes neighborhood culture, one gathering paid tribute to one of its remaining Black institutions, the Tip-Top Bar and Grill.`\
 https://www.nytimes.com/2026/05/23/nyregion/black-brooklyn-residents-businesses.html
