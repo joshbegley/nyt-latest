@@ -1,3 +1,7 @@
+**Los cubanoestadounidenses de Florida aumentan la ayuda a sus familiares en Cuba**\
+`Meses después del inicio del bloqueo petrolero impuesto por el presidente Trump, muchos cubanos dependen más que nunca de sus familiares en EE. UU. para cubrir sus necesidades diarias.`\
+https://www.nytimes.com/es/2026/05/23/espanol/estados-unidos/florida-envios-ayuda-cuba.html
+
 **Trump Is Setting His Sights on Restricting Legal Immigration**\
 `After a year focused on immigrants here illegally, the Trump administration is now making it harder for legal migrants to stay in the country. It is a risky pivot.`\
 https://www.nytimes.com/2026/05/23/us/politics/trump-legal-immigration.html

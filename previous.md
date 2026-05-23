@@ -1,3 +1,7 @@
+**Los cubanoestadounidenses de Florida aumentan la ayuda a sus familiares en Cuba**\
+`Meses después del inicio del bloqueo petrolero impuesto por el presidente Trump, muchos cubanos dependen más que nunca de sus familiares en EE. UU. para cubrir sus necesidades diarias.`\
+https://www.nytimes.com/es/2026/05/23/espanol/estados-unidos/florida-envios-ayuda-cuba.html
+
 **Trump Is Setting His Sights on Restricting Legal Immigration**\
 `After a year focused on immigrants here illegally, the Trump administration is now making it harder for legal migrants to stay in the country. It is a risky pivot.`\
 https://www.nytimes.com/2026/05/23/us/politics/trump-legal-immigration.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/23/world/europe/moscow-drone-attacks-ukraine.htm
 **Should You Lend Money to Friends? More People Are Open to the Arrangement.**\
 `Friendship and money don’t always mix. But many Americans feel comfortable discussing financial issues with their friends and lending them money.`\
 https://www.nytimes.com/2026/05/23/business/loans-money-friends.html
-
-**Food, Flashlights and Fans: Floridians Step Up Aid to Cuban Relatives**\
-`Months into the oil blockade imposed by President Trump, many Cubans are relying more than ever on relatives in the U.S. for help meeting their daily needs.`\
-https://www.nytimes.com/2026/05/23/us/south-florida-cuba-family.html
 
