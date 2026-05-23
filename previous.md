@@ -14,13 +14,13 @@ https://www.nytimes.com/2026/05/23/opinion/trump-slush-fund-republicans.html
 `Leave a physical legacy to future generations, not just a record of programs and disbursements.`\
 https://www.nytimes.com/2026/05/23/opinion/artificial-intelligence-philanthropy-beauty.html
 
-**Don’t Play Political Make-Believe**\
-`Voters want to dictate which offices their preferred politicians hold, what positions they take, and even where and how they live. It is fantasy football: political edition.`\
-https://www.nytimes.com/2026/05/23/opinion/politics-michelle-obama-president.html
-
 **Firing Prevention Experts Will Not Make Us Healthy Again**\
 `The future of health advice is uncertain.`\
 https://www.nytimes.com/2026/05/23/opinion/rfk-prevention-experts-health-advice.html
+
+**Don’t Play Political Make-Believe**\
+`Voters want to dictate which offices their preferred politicians hold, what positions they take, and even where and how they live. It is fantasy football: political edition.`\
+https://www.nytimes.com/2026/05/23/opinion/politics-michelle-obama-president.html
 
 **Has Trump Gone Full ‘Mob Boss’?**\
 `The president’s $1.8 billion slush fund is causing further cracks in the Republican Party.`\
