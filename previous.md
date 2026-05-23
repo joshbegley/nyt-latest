@@ -1,3 +1,7 @@
+**Trump Says U.S. Close to Peace Agreement With Iran**\
+`President Trump said on Saturday the United States was close to reaching a deal with Iran toward ending the war there. The deal, which he said would reopen the Strait of Hormuz, was subject to finalization by the U.S., Iran, and other countries.`\
+https://www.nytimes.com/video/us/politics/100000010922833/trump-iran-war-deal.html
+
 **Britain Preparing for Mission That Could Clear Strait of Hormuz**\
 `At Gibraltar, at the tip of Spain, British forces are ready to deploy autonomous mine-hunting equipment if a peace agreement is achieved.`\
 https://www.nytimes.com/2026/05/23/us/politics/britain-strait-of-hormuz-iran.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/23/world/canada/canada-arctic-olympics-yellowkni
 **Nicolas Cage Made Himself a Legend. Then He Had to Live With It.**\
 `The iconic actor on becoming a meme, a myth and larger than life.`\
 https://www.nytimes.com/2026/05/23/magazine/nicolas-cage-interview.html
-
-**As Draco Malfoy on Broadway, Tom Felton Draws a Crowd**\
-`Fans are traveling great distances for the chance to meet Tom Felton, who has revived a now grown-up Draco Malfoy on Broadway in “Harry Potter and The Cursed Child.”`\
-https://www.nytimes.com/2026/05/23/arts/harry-potter-cursed-child-stage-door.html
 

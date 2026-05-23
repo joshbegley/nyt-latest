@@ -1,3 +1,7 @@
+**Trump Says U.S. Close to Peace Agreement With Iran**\
+`President Trump said on Saturday the United States was close to reaching a deal with Iran toward ending the war there. The deal, which he said would reopen the Strait of Hormuz, was subject to finalization by the U.S., Iran, and other countries.`\
+https://www.nytimes.com/video/us/politics/100000010922833/trump-iran-war-deal.html
+
 **Gunshots Reported Near White House, F.B.I. Says**\
 `A witness reported hearing dozens of shots. It was not immediately clear what had led up to the shooting or whether anyone had been injured.`\
 https://www.nytimes.com/2026/05/23/us/politics/white-house-shooting.html
