@@ -1,3 +1,7 @@
+**Cuba merece una nueva historia nacional**\
+`¿Cómo pueden avanzar los cubanos si no están dispuestos a asumir su pasado?`\
+https://www.nytimes.com/es/2026/05/23/espanol/opinion/cuba-estados-unidos-castro-futuro.html
+
 **Australia’s ‘Prettiest Street’ Is Grappling With TikTok and Instagram Fame**\
 `For many years, Tasman Drive in Gerringong was a secret held by locals. Now residents must coexist with tourists hungry for the perfect shot.`\
 https://www.nytimes.com/2026/05/23/world/australia/gerringong-tasman-drive-tourists-beautiful-street.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/05/22/us/biden-becerra-california-governor.html
 **La directora de inteligencia nacional de EE. UU. renuncia**\
 `Gabbard tuvo un cargo difícil en el gobierno de Trump y rara vez se la veía en la sala cuando el presidente tomaba medidas importantes en materia de seguridad nacional.`\
 https://www.nytimes.com/es/2026/05/22/espanol/estados-unidos/trump-tulsi-gabbard-renuncia-inteligencia.html
-
-**Kyle Busch, ‘Rowdy’ NASCAR Star, Dies at 41**\
-`The versatile (and at times intemperate) Busch was unsurpassed with 234 cumulative victories in the organization’s three national racing series.`\
-https://www.nytimes.com/2026/05/22/sports/autoracing/kyle-busch-dead.html
 
 **Tulsi Gabbard Resigns as Intelligence Chief**\
 `(No description)`\
