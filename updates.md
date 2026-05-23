@@ -1,3 +1,7 @@
+**No Diamond Ring? Put a String on It.**\
+`Proposals, whether on-the-spot or well thought out, can occur without a traditional ring, and sometimes with just words alone.`\
+https://www.nytimes.com/2026/05/23/style/no-engagement-ring-proposals.html
+
 **Letting Her Art (and Birds) Do the Talking**\
 `Lynette Yiadom-Boakye prefers to remain unseen, but her intriguing new canvases, drawings and writings speak volumes.`\
 https://www.nytimes.com/2026/05/23/arts/design/yiadom-boakye-shainman-art.html
