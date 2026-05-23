@@ -1,3 +1,7 @@
+**Choice for the Undecided**\
+`Kameron Austin Collins’s latest themeless puzzle: hilarious or nefarious? Why not both?`\
+https://www.nytimes.com/2026/05/22/crosswords/daily-puzzle-2026-05-23.html
+
 **Garden Grove Is a Suburban City Near Theme Parks**\
 `The city is home to part of Little Saigon, the cultural heart of the Vietnamese American population in California.`\
 https://www.nytimes.com/2026/05/22/us/where-is-the-california-chemical-leak.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/05/22/us/ebola-american-doctor-peter-stafford.html
 **Crowd Burns Ebola Treatment Center in Congo Over Burial Dispute**\
 `A crowd in the Democratic Republic of Congo set fire to an Ebola treatment center after officials refused to give them the body of a suspected victim that they wanted to bury according to local customs.`\
 https://www.nytimes.com/video/world/asia/100000010920445/ebola-treatment-center-congo-dispute.html
-
-**Google Appeals Landmark Ruling Declaring It a Monopolist in Search**\
-`Google asked a federal appeals court on Friday to reverse a judge’s ruling that it had violated antitrust laws, as well as a requirement it share some data with rivals.`\
-https://www.nytimes.com/2026/05/22/technology/google-appeals-search-case.html
 
 **Tulsi Gabbard Resigns as Intelligence Chief**\
 `(No description)`\

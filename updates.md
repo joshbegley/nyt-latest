@@ -1,3 +1,7 @@
+**Choice for the Undecided**\
+`Kameron Austin Collins’s latest themeless puzzle: hilarious or nefarious? Why not both?`\
+https://www.nytimes.com/2026/05/22/crosswords/daily-puzzle-2026-05-23.html
+
 **SpaceX Completes Mostly Successful Starship Rocket Flight**\
 `The 12th test flight of SpaceX’s gargantuan rocket launched on Friday evening and ended its journey in the Indian Ocean just over an hour later.`\
 https://www.nytimes.com/2026/05/22/science/spacex-starship-launch-nasa.html

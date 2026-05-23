@@ -1,3 +1,7 @@
+**HUD Moves to Limit Assistance Animals for Disabled Tenants in Public Housing**\
+`Housing officials were told to exclude emotional support animals and tighten the definition of a service animal when granting accommodations for disabled tenants.`\
+https://www.nytimes.com/2026/05/22/us/politics/hud-assistance-animals-disabled.html
+
 **Choice for the Undecided**\
 `Kameron Austin Collins’s latest themeless puzzle: hilarious or nefarious? Why not both?`\
 https://www.nytimes.com/2026/05/22/crosswords/daily-puzzle-2026-05-23.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/05/22/briefing/today-in-short.html
 **American Doctor With Ebola Says He Is ‘Optimistic’ for Recovery**\
 `Dr. Peter Stafford, a medical missionary in the Democratic Republic of Congo, tested positive for Ebola on Sunday. He is receiving treatment in Germany.`\
 https://www.nytimes.com/2026/05/22/us/ebola-american-doctor-peter-stafford.html
-
-**Crowd Burns Ebola Treatment Center in Congo Over Burial Dispute**\
-`A crowd in the Democratic Republic of Congo set fire to an Ebola treatment center after officials refused to give them the body of a suspected victim that they wanted to bury according to local customs.`\
-https://www.nytimes.com/video/world/asia/100000010920445/ebola-treatment-center-congo-dispute.html
 
 **Tulsi Gabbard Resigns as Intelligence Chief**\
 `(No description)`\
