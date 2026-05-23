@@ -186,10 +186,6 @@ https://www.nytimes.com/2026/05/22/us/kitty-bruce-dead.html
 `Hooters. Museum blurbs. Memorial Day hot dogs.`\
 https://www.nytimes.com/2026/05/22/briefing/today-in-short.html
 
-**American Doctor With Ebola Says He Is ‘Optimistic’ for Recovery**\
-`Dr. Peter Stafford, a medical missionary in the Democratic Republic of Congo, tested positive for Ebola on Sunday. He is receiving treatment in Germany.`\
-https://www.nytimes.com/2026/05/22/us/ebola-american-doctor-peter-stafford.html
-
 **Tulsi Gabbard Resigns as Intelligence Chief**\
 `(No description)`\
 https://www.nytimes.com/live/2026/05/22/us/trump-news
