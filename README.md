@@ -1,4 +1,4 @@
-**HUD Moves to Limit Assistance Animals for Disabled Tenants in Public Housing**\
+**HUD Moves to Limit Assistance Animals for Disabled Tenants**\
 `Housing officials were told to exclude emotional support animals and tighten the definition of a service animal when granting accommodations for disabled tenants.`\
 https://www.nytimes.com/2026/05/22/us/politics/hud-assistance-animals-disabled.html
 
@@ -10,8 +10,8 @@ https://www.nytimes.com/2026/05/22/crosswords/daily-puzzle-2026-05-23.html
 `The city is home to part of Little Saigon, the cultural heart of the Vietnamese American population in California.`\
 https://www.nytimes.com/2026/05/22/us/where-is-the-california-chemical-leak.html
 
-**As Trump Weighs Return to Conflict in Iran, Here’s What Could Be Targeted Next**\
-`There is no shortage of targets should President Trump, in coordination with Israel, decide to resume the assault on Iran.`\
+**Trump Weighs His Options in Carrying Out New Strikes in Iran**\
+`There is no shortage of targets if he decides to strike: Energy facilities left untouched, the deep underground nuclear storage site at Isfahan and missile sites that appear to have been dug out.`\
 https://www.nytimes.com/2026/05/22/us/politics/trump-iran-targets.html
 
 **Trump Visits New York to Boost House Republican’s Re-election Hopes**\
