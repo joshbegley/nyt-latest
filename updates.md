@@ -1,3 +1,11 @@
+**A Lull in Fighting Gave Time to Bury Their Dead**\
+`The human toll of the war has spared few parts of southern Lebanon. Temporary graves sprang up across the south as fighting made village cemeteries impossible to reach. When the temporary cease-fire took hold, those graves were exhumed. And families finally returned to their villages to bury their dead.`\
+https://www.nytimes.com/2026/05/23/world/europe/lebanon-war-burials.html
+
+**Why Americans Are Afraid of Their Neighbors**\
+`‘Stranger danger’ was always a misleading idea, and it’s bad for our children.`\
+https://www.nytimes.com/2026/05/23/opinion/kids-fear-strangers.html
+
 **Garden Grove Chemical Plant Crisis: What to Know and Evacuation Map**\
 `Firefighters continue to cool a chemical storage tank with water to prevent it from breaching or exploding. Some 40,000 residents near the Orange County plant have been evacuated to shelters.`\
 https://www.nytimes.com/2026/05/23/us/garden-grove-chemical-plant-leak-evacuations.html
