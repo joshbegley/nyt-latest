@@ -1,3 +1,7 @@
+**Garden Grove Is a Suburban City Near Theme Parks**\
+`The city is home to part of Little Saigon, the cultural heart of the Vietnamese American population in California.`\
+https://www.nytimes.com/2026/05/22/us/where-is-the-california-chemical-leak.html
+
 **As Trump Weighs Return to Conflict in Iran, Here’s What Could Be Targeted Next**\
 `There is no shortage of targets should President Trump, in coordination with Israel, decide to resume the assault on Iran.`\
 https://www.nytimes.com/2026/05/22/us/politics/trump-iran-targets.html
@@ -47,7 +51,7 @@ https://www.nytimes.com/2026/05/22/us/politics/trump-cdc-noncitizens-ebola.html
 https://www.nytimes.com/2026/05/22/us/politics/common-cause-lawsuit-trump-fund.html
 
 **Deadly Explosions Injure Dozens of Firefighters on Staten Island Barge**\
-`Two explosions happened within an hour of each other along the North Shore of Staten Island, injuring 34 firefighters and emergency workers.`\
+`Two explosions rocked a barge on the North Shore of Staten Island, injuring 34 people. The resulting fire was under control, but was still burning.`\
 https://www.nytimes.com/2026/05/22/nyregion/staten-island-explosion.html
 
 **A Ford Truck, Home to Newborn Robins, Is Stuck at a Kansas Car Dealer**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/video/world/asia/100000010920445/ebola-treatment-center-
 **Google Appeals Landmark Ruling Declaring It a Monopolist in Search**\
 `Google asked a federal appeals court on Friday to reverse a judge’s ruling that it had violated antitrust laws, as well as a requirement it share some data with rivals.`\
 https://www.nytimes.com/2026/05/22/technology/google-appeals-search-case.html
-
-**Sinkhole Keeps LaGuardia Runway Closed for a 3rd Day, Causing Delays**\
-`The Port Authority, which said the runway would reopen Saturday, urged holiday travelers to check with their airlines for travel updates.`\
-https://www.nytimes.com/2026/05/22/nyregion/laguardia-airport-runway-sinkhole-delays.html
 
 **Tulsi Gabbard Resigns as Intelligence Chief**\
 `(No description)`\
