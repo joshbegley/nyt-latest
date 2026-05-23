@@ -1,3 +1,7 @@
+**40,000 Ordered to Evacuate in California Amid Toxic Chemical Tank Crisis**\
+`Firefighters worked on Saturday at the GKN Aerospace aircraft components plant in Garden Grove, Calif., to stop a storage tank filled with a toxic chemical from failing, risking a major explosion or a toxic spill.`\
+https://www.nytimes.com/video/us/100000010922667/chemical-leak-orange-county.html
+
 **Investigators Look Into Staten Island Blasts That Killed Shipyard Worker**\
 `The explosions at May Ship Repair Contracting Corporation, which erupted after a fire on a dock, killed one of the company’s subcontractors, a representative said.`\
 https://www.nytimes.com/2026/05/23/nyregion/explosions-worker-killed-staten-island.html

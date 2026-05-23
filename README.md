@@ -1,3 +1,7 @@
+**Gunfire Reported Near the White House, F.B.I. Says**\
+`A witness reported hearing dozens of shots. It was not immediately clear what led up to the shooting or whether anyone had been injured.`\
+https://www.nytimes.com/2026/05/23/us/politics/white-house-shooting.html
+
 **Next, Please!**\
 `David Steinberg returns to the Sunday puzzle with a new switcheroo.`\
 https://www.nytimes.com/2026/05/23/crosswords/daily-puzzle-2026-05-24.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/23/arts/harry-potter-cursed-child-stage-door.htm
 **La inmunidad de auditorías para los Trump es un reto para el IRS**\
 `La ley federal prohíbe al Servicio de Impuestos Internos detener una auditoría por orden del presidente o de sus ayudantes.`\
 https://www.nytimes.com/es/2026/05/23/espanol/estados-unidos/impuestos-inmunidad-trump-familia.html
-
-**Shooting Stars at the amfAR Cannes Gala**\
-`Our photographer took in the art and fashion on display as guests gathered in seaside Antibes, France, to raise money for AIDS research.`\
-https://www.nytimes.com/2026/05/23/movies/amfar-cannes-gala-photographs.html
 
