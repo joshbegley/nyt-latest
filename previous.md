@@ -102,7 +102,7 @@ https://www.nytimes.com/2026/05/22/us/politics/abrego-garcia-case-dismissed-trum
 `President Trump’s eldest son was married in Palm Beach, Fla. The president described celebrations this weekend as a “small, little private affair.”`\
 https://www.nytimes.com/2026/05/22/style/donald-trump-jr-bettina-anderson-wedding-bahamas-florida.html
 
-**SpaceX Starship Test Flight Re-entering Atmosphere Over Indian Ocean**\
+**SpaceX Completes Mostly Successful Starship Rocket Flight**\
 `SpaceX’s gargantuan rocket launched its 12th test flight on Friday evening and ended its journey in the Indian Ocean just over an hour later.`\
 https://www.nytimes.com/2026/05/22/science/spacex-starship-launch-nasa.html
 
@@ -190,7 +190,7 @@ https://www.nytimes.com/2026/05/22/us/politics/howard-lutnick-donation-house-rep
 `Plus: Louis Vuitton’s cruise show at the Frick and a smoked-fish deli makes merch.`\
 https://www.nytimes.com/2026/05/22/style/john-travolta-louis-vuitton-frick.html
 
-**Trump Administration Live Updates: Tulsi Gabbard Resigns as Intelligence Chief**\
+**Tulsi Gabbard Resigns as Intelligence Chief**\
 `(No description)`\
 https://www.nytimes.com/live/2026/05/22/us/trump-news
 

@@ -1,5 +1,13 @@
-**What is methyl methacrylate, the chemical at the center of the Orange County crisis?**\
-`The E.P.A. warns that short-term exposure to the compound, methyl methacrylate, can cause skin and eye irritation and respiratory issues.`\
+**What Is GKN Aerospace?**\
+`A chemical leak occurred at one of the company’s manufacturing plants in California, raising concerns about an explosion.`\
+https://www.nytimes.com/2026/05/22/us/what-is-gkn-aerospace.html
+
+**Muere Kyle Busch, piloto bicampeón de NASCAR**\
+`Busch murió tras ser hospitalizado por una “enfermedad grave”, según dijeron en un comunicado conjunto su familia, su escudería y la NASCAR. No se detalló ninguna causa concreta.`\
+https://www.nytimes.com/es/2026/05/22/espanol/cultura/muere-kyle-busch.html
+
+**What Is Methyl Methacrylate, the Chemical at the Center of the Garden Grove Crisis?**\
+`The E.P.A. warns that short-term exposure to the compound can cause skin and eye irritation and respiratory issues.`\
 https://www.nytimes.com/2026/05/22/us/methyl-methacrylate-garden-grove-chemical-leak.html
 
 **Meth and Fentanyl Found in Home Where Emergency Responders Fell Ill**\
@@ -35,7 +43,7 @@ https://www.nytimes.com/2026/05/22/nyregion/staten-island-explosion.html
 https://www.nytimes.com/2026/05/22/us/ford-f-250-robin-nest-kansas.html
 
 **Live Updates: Toxic Explosion Feared at California Chemical Plant**\
-`Evacuation orders were issued to 40,000 Orange County residents. A fire official said a major spill or an explosion were the only expected outcomes.`\
+`Evacuation orders were issued to 40,000 Orange County residents as firefighters tried to prevent a spill or an explosion. Health officials said they couldn’t predict the impact of a toxic release.`\
 https://www.nytimes.com/live/2026/05/22/us/chemical-leak-evacuation-orange-county
 
 **Carlo Petrini, Whose Slow Food Movement Transformed How We Eat, Dies at 76**\
@@ -103,7 +111,7 @@ https://www.nytimes.com/2026/05/22/us/politics/abrego-garcia-case-dismissed-trum
 https://www.nytimes.com/2026/05/22/style/donald-trump-jr-bettina-anderson-wedding-bahamas-florida.html
 
 **SpaceX Completes Mostly Successful Starship Rocket Flight**\
-`SpaceX’s gargantuan rocket launched its 12th test flight on Friday evening and ended its journey in the Indian Ocean just over an hour later.`\
+`The company’s gargantuan rocket launched its 12th test flight on Friday evening and ended its journey in the Indian Ocean just over an hour later.`\
 https://www.nytimes.com/2026/05/22/science/spacex-starship-launch-nasa.html
 
 **World Cup Fans Are Saying No to $98 Train Rides**\
@@ -181,14 +189,6 @@ https://www.nytimes.com/es/2026/05/22/espanol/america-latina/cuba-ee-uu-acusacio
 **Flashback: Your Weekly History Quiz, May 23, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/05/22/upshot/flashback.html
-
-**Lutnick Donated $5 Million to House Republicans Before Epstein Testimony**\
-`Howard Lutnick, the commerce secretary, made the donation after agreeing to an interview with lawmakers about his relationship with Jeffrey Epstein.`\
-https://www.nytimes.com/2026/05/22/us/politics/howard-lutnick-donation-house-republicans.html
-
-**John Travolta Pulled Off a Beret. Could You?**\
-`Plus: Louis Vuitton’s cruise show at the Frick and a smoked-fish deli makes merch.`\
-https://www.nytimes.com/2026/05/22/style/john-travolta-louis-vuitton-frick.html
 
 **Tulsi Gabbard Resigns as Intelligence Chief**\
 `(No description)`\
