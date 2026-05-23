@@ -1,4 +1,8 @@
-**Gunfire Reported Near the White House, F.B.I. Says**\
+**Britain Preparing for Mission That Could Clear Strait of Hormuz**\
+`At Gibraltar, at the tip of Spain, British forces are ready to deploy autonomous mine-hunting equipment if a peace agreement is achieved.`\
+https://www.nytimes.com/2026/05/23/us/politics/britain-strait-of-hormuz-iran.html
+
+**Gunshots Reported Near White House, F.B.I. Says**\
 `A witness reported hearing dozens of shots. It was not immediately clear what led up to the shooting or whether anyone had been injured.`\
 https://www.nytimes.com/2026/05/23/us/politics/white-house-shooting.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/23/magazine/nicolas-cage-interview.html
 **As Draco Malfoy on Broadway, Tom Felton Draws a Crowd**\
 `Fans are traveling great distances for the chance to meet Tom Felton, who has revived a now grown-up Draco Malfoy on Broadway in “Harry Potter and The Cursed Child.”`\
 https://www.nytimes.com/2026/05/23/arts/harry-potter-cursed-child-stage-door.html
-
-**La inmunidad de auditorías para los Trump es un reto para el IRS**\
-`La ley federal prohíbe al Servicio de Impuestos Internos detener una auditoría por orden del presidente o de sus ayudantes.`\
-https://www.nytimes.com/es/2026/05/23/espanol/estados-unidos/impuestos-inmunidad-trump-familia.html
 
