@@ -1,3 +1,7 @@
+**Trump Visits New York to Boost House Republican’s Re-election Hopes**\
+`The visit by President Trump was meant to promote Representative Mike Lawler’s bid to defend his swing seat in New York, but it had the earmarks of a Trump rally.`\
+https://www.nytimes.com/2026/05/22/nyregion/trump-lawler-rockland-ny.html
+
 **Mob Burns Congo Ebola Center Amid Rare Strain Outbreak**\
 `Several hundred people massed at the gates of a hospital to demand the body of a suspected Ebola victim. Violence broke out when staff refused the request.`\
 https://www.nytimes.com/2026/05/22/world/africa/ebola-congo-clinic-burned-protests.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/05/22/nyregion/laguardia-airport-runway-sinkhole-de
 **Regional Mediators Rush to Save U.S.-Iran Cease-Fire**\
 `Pakistan and Qatar have dispatched teams to Iran under the looming threat of resumed war, after weeks of diplomacy failed to produce an agreement.`\
 https://www.nytimes.com/2026/05/22/world/middleeast/iran-ceasefire-us-qatar-pakistan.html
-
-**Un piloto cubano acusado junto con Castro se encuentra en EE. UU.**\
-`El piloto, Luis González-Pardo, era uno de los acusados en el acta de imputación que incluía al expresidente cubano Raúl Castro.`\
-https://www.nytimes.com/es/2026/05/22/espanol/america-latina/cuba-ee-uu-acusacion-piloto-castro.html
 
 **Tulsi Gabbard Resigns as Intelligence Chief**\
 `(No description)`\
