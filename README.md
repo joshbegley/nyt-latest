@@ -46,8 +46,8 @@ https://www.nytimes.com/2026/05/22/us/politics/trump-cdc-noncitizens-ebola.html
 `The constellation of individuals and groups involved claims to have suffered partisan attacks by the federal government under Trump, yet would not be compensated.`\
 https://www.nytimes.com/2026/05/22/us/politics/common-cause-lawsuit-trump-fund.html
 
-**Explosions Injure 13 Firefighters on Staten Island Barge**\
-`Two explosions happened within an hour of each other along the North Shore of Staten Island, leaving 16 people injured, the police said.`\
+**Deadly Explosions Injure Dozens of Firefighters on Staten Island Barge**\
+`Two explosions happened within an hour of each other along the North Shore of Staten Island, injuring 34 firefighters and emergency workers.`\
 https://www.nytimes.com/2026/05/22/nyregion/staten-island-explosion.html
 
 **A Ford Truck, Home to Newborn Robins, Is Stuck at a Kansas Car Dealer**\
