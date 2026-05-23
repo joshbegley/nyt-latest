@@ -26,8 +26,8 @@ https://www.nytimes.com/2026/05/23/style/no-engagement-ring-proposals.html
 `Lynette Yiadom-Boakye prefers to remain unseen, but her intriguing new canvases, drawings and writings speak volumes.`\
 https://www.nytimes.com/2026/05/23/arts/design/yiadom-boakye-shainman-art.html
 
-**Iran Meets Mediators for Talks as Cease-Fire Hangs in Balance**\
-`People across the Middle East were bracing for the possibility of renewed fighting between the U.S. and Iran as mediation efforts continue in Tehran without a clear sign of a breakthrough.`\
+**Iran and U.S. Officials Signal Progress as Cease-Fire Hangs in Balance**\
+`As people across the Middle East braced for the possibility of renewed fighting, officials from both sides said there were signs that they were moving closer to an agreement.`\
 https://www.nytimes.com/2026/05/23/world/middleeast/iran-us-israel-ceasefire-talks.html
 
 **Americans Don’t Talk to Their Neighbors. That’s a Problem for Kids.**\
