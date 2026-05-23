@@ -1,3 +1,7 @@
+**As Trump Weighs Return to Conflict in Iran, Here’s What Could Be Targeted Next**\
+`There is no shortage of targets should President Trump, in coordination with Israel, decide to resume the assault on Iran.`\
+https://www.nytimes.com/2026/05/22/us/politics/trump-iran-targets.html
+
 **Trump Visits New York to Boost House Republican’s Re-election Hopes**\
 `The visit by President Trump was meant to promote Representative Mike Lawler’s bid to defend his swing seat in New York, but it had the earmarks of a Trump rally.`\
 https://www.nytimes.com/2026/05/22/nyregion/trump-lawler-rockland-ny.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/05/22/technology/google-appeals-search-case.html
 **Sinkhole Keeps LaGuardia Runway Closed for a 3rd Day, Causing Delays**\
 `The Port Authority, which said the runway would reopen Saturday, urged holiday travelers to check with their airlines for travel updates.`\
 https://www.nytimes.com/2026/05/22/nyregion/laguardia-airport-runway-sinkhole-delays.html
-
-**Regional Mediators Rush to Save U.S.-Iran Cease-Fire**\
-`Pakistan and Qatar have dispatched teams to Iran under the looming threat of resumed war, after weeks of diplomacy failed to produce an agreement.`\
-https://www.nytimes.com/2026/05/22/world/middleeast/iran-ceasefire-us-qatar-pakistan.html
 
 **Tulsi Gabbard Resigns as Intelligence Chief**\
 `(No description)`\
