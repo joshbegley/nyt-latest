@@ -1,3 +1,7 @@
+**Has Trump Gone Full ‘Mob Boss’?**\
+`The president’s $1.8 billion slush fund is causing further cracks in the Republican Party.`\
+https://www.nytimes.com/video/opinion/100000010918056/has-trump-gone-full-mob-boss.html
+
 **White House Tells Congo’s Soccer Team to Isolate, Citing Ebola Outbreak**\
 `The team, now in Belgium, must isolate there for 21 days or risk being denied permission to come to Houston for the World Cup, an official said.`\
 https://www.nytimes.com/2026/05/23/world/africa/congo-soccer-ebola-world-cup.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/23/world/australia/gerringong-tasman-drive-touri
 **‘Amazon.com of South Korea’ Is New Source of Tension With U.S.**\
 `A corporate compliance dispute between South Korea’s government and the online retailer Coupang is testing the resilience of U.S.-South Korean ties.`\
 https://www.nytimes.com/2026/05/23/world/asia/coupang-south-korea-us.html
-
-**Their Phones Were Stolen in London. Then the Threats Started.**\
-`Tens of thousands of smartphones were reported stolen in the British capital in recent years. For some victims, losing their phone was only the beginning.`\
-https://www.nytimes.com/2026/05/23/world/europe/phone-theft-threats-london.html
 
