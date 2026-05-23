@@ -1,3 +1,11 @@
+**Iran Meets Mediators for Talks as Cease-Fire Hangs in Balance**\
+`People across the Middle East were bracing for the possibility of renewed fighting between the U.S. and Iran as mediation efforts continue in Tehran without a clear sign of a breakthrough.`\
+https://www.nytimes.com/2026/05/23/world/middleeast/iran-us-israel-ceasefire-talks.html
+
+**Americans Don’t Talk to Their Neighbors. That’s a Problem for Kids.**\
+`‘Stranger danger’ was always a misleading idea, and it’s bad for our children.`\
+https://www.nytimes.com/2026/05/23/opinion/kids-fear-strangers.html
+
 **61% of Americans Said They Had to Cut Back on Groceries**\
 `More than three quarters of Americans, including 55 percent of Republicans, said President Trump’s policies have increased the cost of living in their community.`\
 https://www.nytimes.com/2026/05/23/us/politics/americans-groceries-inflation-affordability.html

@@ -1,3 +1,11 @@
+**Iran Meets Mediators for Talks as Cease-Fire Hangs in Balance**\
+`People across the Middle East were bracing for the possibility of renewed fighting between the U.S. and Iran as mediation efforts continue in Tehran without a clear sign of a breakthrough.`\
+https://www.nytimes.com/2026/05/23/world/middleeast/iran-us-israel-ceasefire-talks.html
+
+**Americans Don’t Talk to Their Neighbors. That’s a Problem for Kids.**\
+`‘Stranger danger’ was always a misleading idea, and it’s bad for our children.`\
+https://www.nytimes.com/2026/05/23/opinion/kids-fear-strangers.html
+
 **61% of Americans Said They Had to Cut Back on Groceries**\
 `More than three quarters of Americans, including 55 percent of Republicans, said President Trump’s policies have increased the cost of living in their community.`\
 https://www.nytimes.com/2026/05/23/us/politics/americans-groceries-inflation-affordability.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/05/23/us/gas-prices-california.html
 **El gobierno de Cuba celebra el legado de Raúl Castro tras la imputación de EE. UU.**\
 `Las autoridades y los medios de comunicación estatales recurrieron a las redes sociales para proyectar la imagen de una nación unida en torno a un anciano estadista venerado.`\
 https://www.nytimes.com/es/2026/05/23/espanol/america-latina/cuba-raul-castro-cargos.html
-
-**¿Una Helena de Troya negra? OK. ¿Un Obama blanco? Todavía no.**\
-`Hay buenas razones por las que los actores blancos no deberían interpretar a personajes negros en nuestro momento.`\
-https://www.nytimes.com/es/2026/05/23/espanol/opinion/odisea-helena-lupita-nyongo.html
-
-**Keeping Black Brooklyn Alive, One Drink at a Time**\
-`As the departure of New York’s Black residents changes neighborhood culture, one gathering paid tribute to one of its remaining Black institutions, the Tip-Top Bar and Grill.`\
-https://www.nytimes.com/2026/05/23/nyregion/black-brooklyn-residents-businesses.html
 
