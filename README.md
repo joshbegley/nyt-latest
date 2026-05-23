@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/05/23/style/donald-trump-jr-bettina-anderson-wedding.html
 
 **A Lull in Fighting Gave Time to Bury Their Dead**\
-`The human toll of the war has spared few parts of southern Lebanon. Temporary graves sprang up across the south as fighting made village cemeteries impossible to reach. When the temporary cease-fire took hold, those graves were exhumed. And families finally returned to their villages to bury their dead.`\
+`In the relative calm of the early days of a cease-fire, there were heart-rending scenes as people exhumed their loved ones from temporary graves and reburied them.`\
 https://www.nytimes.com/2026/05/23/world/europe/lebanon-war-burials.html
 
 **Husband of Prominent New York Gallerist Convicted in Murder-for-Hire Plot**\
