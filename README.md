@@ -1,3 +1,11 @@
+**El gobierno de Cuba celebra el legado de Raúl Castro tras la imputación de EE. UU.**\
+`Las autoridades y los medios de comunicación estatales recurrieron a las redes sociales para proyectar la imagen de una nación unida en torno a un anciano estadista venerado.`\
+https://www.nytimes.com/es/2026/05/23/espanol/america-latina/cuba-raul-castro-cargos.html
+
+**¿Una Helena de Troya negra? OK. ¿Un Obama blanco? Todavía no.**\
+`Hay buenas razones por las que los actores blancos no deberían interpretar a personajes negros en nuestro momento.`\
+https://www.nytimes.com/es/2026/05/23/espanol/opinion/odisea-helena-lupita-nyongo.html
+
 **Keeping Black Brooklyn Alive, One Drink at a Time**\
 `As the departure of New York’s Black residents changes neighborhood culture, one gathering paid tribute to one of its remaining Black institutions, the Tip-Top Bar and Grill.`\
 https://www.nytimes.com/2026/05/23/nyregion/black-brooklyn-residents-businesses.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/05/22/us/waymo-taxi-suspended-atlanta.html
 **Judge Dismisses Criminal Case Against Kilmar Armando Abrego Garcia**\
 `The move deals an embarrassing blow to the Trump administration, which made the Maryland man, Kilmar Armando Abrego Garcia, the face of its deportation campaign.`\
 https://www.nytimes.com/2026/05/22/us/politics/abrego-garcia-case-dismissed-trump-administration.html
-
-**Donald Trump Jr. and Bettina Anderson Wed in West Palm Beach**\
-`President Trump’s eldest son was married in Palm Beach, Fla. The president described celebrations this weekend as a “small, little private affair.”`\
-https://www.nytimes.com/2026/05/22/style/donald-trump-jr-bettina-anderson-wedding-bahamas-florida.html
-
-**SpaceX Completes Mostly Successful Starship Rocket Flight**\
-`The 12th test flight of SpaceX’s gargantuan rocket launched on Friday evening and ended its journey in the Indian Ocean just over an hour later.`\
-https://www.nytimes.com/2026/05/22/science/spacex-starship-launch-nasa.html
 
