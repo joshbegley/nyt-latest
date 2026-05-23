@@ -1,5 +1,9 @@
+**Shipyard Worker Killed and Dozens Injured in Staten Island Blasts**\
+`The explosions at May Ship Repair Contracting Corporation, which erupted after a fire on a dock, killed one of the company’s subcontractors, a representative said.`\
+https://www.nytimes.com/2026/05/23/nyregion/explosions-worker-killed-staten-island.html
+
 **Here’s the latest.**\
-`President Trump provided few details on social media about a memorandum of understanding being negotiated between the United States and Iran.`\
+`President Trump provided few details about the preliminary agreement, which he said was “largely negotiated.”`\
 https://www.nytimes.com/2026/05/23/world/middleeast/heres-the-latest.html
 
 **Grizz Chapman, Actor Known for His Role on ’30 Rock,’ Dies at 52**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/23/arts/john-marion-dead.html
 **Olivia Rodrigo, Vince Staples: 8 Songs We’re Talking About This Week**\
 `Olivia Rodrigo’s orchestral angst, Charli XCX’s fashion crisis and Vince Staples’s frustrated sing-rap.`\
 https://www.nytimes.com/2026/05/23/arts/music/olivia-rodrigo-charli-xcx-songs.html
-
-**U.S. Ebola Travel Ban Faces Criticism From Congo Health Officials**\
-`Kinshasa residents continue to pack markets, bars and public transportation, despite growing international concern about the spread of the virus.`\
-https://www.nytimes.com/2026/05/23/world/africa/ebola-outbreak-congo-shrug.html
 
