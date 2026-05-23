@@ -1,3 +1,7 @@
+**Letting Her Art (and Birds) Do the Talking**\
+`Lynette Yiadom-Boakye prefers to remain unseen, but her intriguing new canvases, drawings and writings speak volumes.`\
+https://www.nytimes.com/2026/05/23/arts/design/yiadom-boakye-shainman-art.html
+
 **Iran Meets Mediators for Talks as Cease-Fire Hangs in Balance**\
 `People across the Middle East were bracing for the possibility of renewed fighting between the U.S. and Iran as mediation efforts continue in Tehran without a clear sign of a breakthrough.`\
 https://www.nytimes.com/2026/05/23/world/middleeast/iran-us-israel-ceasefire-talks.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/23/health/autism-therapy-clinics.html
 **How $6 Gas Prices Are Affecting the Lives of Californians**\
 `California is the nation’s most expensive state for gasoline. The latest spike has forced more residents to change their habits.`\
 https://www.nytimes.com/2026/05/23/us/gas-prices-california.html
-
-**El gobierno de Cuba celebra el legado de Raúl Castro tras la imputación de EE. UU.**\
-`Las autoridades y los medios de comunicación estatales recurrieron a las redes sociales para proyectar la imagen de una nación unida en torno a un anciano estadista venerado.`\
-https://www.nytimes.com/es/2026/05/23/espanol/america-latina/cuba-raul-castro-cargos.html
 

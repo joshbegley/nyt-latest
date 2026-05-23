@@ -1,3 +1,7 @@
+**Letting Her Art (and Birds) Do the Talking**\
+`Lynette Yiadom-Boakye prefers to remain unseen, but her intriguing new canvases, drawings and writings speak volumes.`\
+https://www.nytimes.com/2026/05/23/arts/design/yiadom-boakye-shainman-art.html
+
 **Iran Meets Mediators for Talks as Cease-Fire Hangs in Balance**\
 `People across the Middle East were bracing for the possibility of renewed fighting between the U.S. and Iran as mediation efforts continue in Tehran without a clear sign of a breakthrough.`\
 https://www.nytimes.com/2026/05/23/world/middleeast/iran-us-israel-ceasefire-talks.html
