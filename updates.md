@@ -1,3 +1,7 @@
+**Garden Grove Chemical Tank Could Be Inching Toward Explosion, Authorities Say**\
+`Firefighters still have few options to prevent a tank of toxic chemicals in Garden Grove, Calif., from leaking or exploding.`\
+https://www.nytimes.com/2026/05/23/us/garden-grove-chemical-tank-orange-county.html
+
 **Trump Administration Chips Away at Last Traces of Broad Inquiry Into Jan. 6**\
 `Two recent moves aligned the department ever more closely with President Trump’s own efforts to whitewash the events of that day.`\
 https://www.nytimes.com/2026/05/23/us/politics/trump-prosecutors-jan-6.html
