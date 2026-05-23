@@ -1,3 +1,11 @@
+**These Are a Few of My Favorite Picnic Treats**\
+`Chewy brownie cookies, peanut butter blackberry bars and pistachio halvah Rice Krispies treats travel well and hold up in the sun.`\
+https://www.nytimes.com/2026/05/23/dining/these-are-a-few-of-my-favorite-picnic-treats.html
+
+**Cómo disminuir el estrés con 3 preguntas**\
+`Conseguir una perspectiva más real sobre las dificultades de la vida suele reducir la ansiedad.`\
+https://www.nytimes.com/es/2026/05/23/espanol/estilos-de-vida/estres-que-hacer.html
+
 **No Diamond Ring? Put a String on It.**\
 `Proposals, whether on-the-spot or well thought out, can occur without a traditional ring, and sometimes with just words alone.`\
 https://www.nytimes.com/2026/05/23/style/no-engagement-ring-proposals.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/05/23/arts/television/nicole-polizzi-snooki-jersey-
 **Boots Riley Takes on Fast Fashion in a Surreal Comedy**\
 `Alissa Wilkinson, a New York Times film critic, reviews the very political “I Love Boosters.”`\
 https://www.nytimes.com/video/movies/100000010860393/boots-riley-takes-on-fast-fashion-in-a-surreal-comedy.html
-
-**Book Review: ‘The Danger to Be Sane,’ by Rosa Montero**\
-`In “The Danger to Be Sane,” the journalist Rosa Montero delves into the connections between psychic turbulence and creative work — including her own.`\
-https://www.nytimes.com/2026/05/23/books/review/rosa-montero-the-danger-to-be-sane.html
-
-**Short Naps, Long Hours: How Autism Clinics Squeeze Medicaid Dollars Out of Preschoolers**\
-`The industry has grown rapidly, straining state budgets. A focus on finances has led to overbilling, fraud and even harm.`\
-https://www.nytimes.com/2026/05/23/health/autism-therapy-clinics.html
 
