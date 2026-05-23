@@ -1,3 +1,7 @@
+**Garden Grove Chemical Plant Crisis: What to Know and Evacuation Map**\
+`Firefighters continue to cool a chemical storage tank with water to prevent it from breaching or exploding. Some 40,000 residents near the Orange County plant have been evacuated to shelters.`\
+https://www.nytimes.com/2026/05/23/us/garden-grove-chemical-plant-leak-evacuations.html
+
 **What to Know About the Garden Grove Chemical Plant Crisis**\
 `Firefighters continue to cool a chemical storage tank with water to prevent it from breaching or exploding. Some 40,000 residents near the Orange County plant have been evacuated to shelters.`\
 https://www.nytimes.com/2026/05/23/us/garden-grove-chemical-plant-leak-evacuations.html
