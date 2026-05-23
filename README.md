@@ -1,3 +1,7 @@
+**Quote of the Day: Kyle Busch, NASCAR’s Often Unbeatable Bad Boy, Dies at 41**\
+`Quotation of the Day for Saturday, May 23, 2026`\
+https://www.nytimes.com/2026/05/22/pageoneplus/quote-of-the-day-kyle-busch-nascars-often-unbeatable-bad-boy-dies-at-41.html
+
 **How a Chemical Tank in Southern California Came to the Brink of Disaster**\
 `Firefighters are left without any options to prevent the tank, filled with a toxic chemical, from collapsing or exploding. The authorities have urged thousands of people to evacuate their homes.`\
 https://www.nytimes.com/2026/05/22/us/southern-california-chemical-tank-emergency.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/05/22/t-magazine/eyebrow-grooming-at-home.html
 **Unforgettable Red Carpet Looks at Cannes: Demi Moore, John Travolta and More**\
 `From John Travolta’s beret to Barbara Palvin’s elegant pregnancy style, the red carpets from the festival in France had many memorable moments.`\
 https://www.nytimes.com/2026/05/22/style/cannes-red-carpet-best-dressed.html
-
-**Kitty Bruce, Caretaker of Lenny Bruce’s Legacy, Dies at 70**\
-`As Mr. Bruce’s daughter, she maintained boxes of video and audio of his groundbreaking and often scandalous work.`\
-https://www.nytimes.com/2026/05/22/us/kitty-bruce-dead.html
 
 **Tulsi Gabbard Resigns as Intelligence Chief**\
 `(No description)`\
