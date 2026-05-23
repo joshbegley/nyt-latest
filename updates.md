@@ -1,3 +1,7 @@
+**White House Tells Congo’s Soccer Team to Isolate, Citing Ebola Outbreak**\
+`The team, now in Belgium, must isolate there for 21 days or risk being denied permission to come to Houston for the World Cup, an official said.`\
+https://www.nytimes.com/2026/05/23/world/africa/congo-soccer-ebola-world-cup.html
+
 **How ‘Sentinel Gardens’ Help Spot Dangerous Bugs Abroad**\
 `Scientists have planted American trees in China, Korea and elsewhere to attract hungry insects. Their hope is to identify the most damaging bugs before they cross the ocean.`\
 https://www.nytimes.com/2026/05/23/climate/sentinel-gardens-invasive-species-bugs-trees.html

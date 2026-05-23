@@ -1,3 +1,7 @@
+**White House Tells Congo’s Soccer Team to Isolate, Citing Ebola Outbreak**\
+`The team, now in Belgium, must isolate there for 21 days or risk being denied permission to come to Houston for the World Cup, an official said.`\
+https://www.nytimes.com/2026/05/23/world/africa/congo-soccer-ebola-world-cup.html
+
 **How ‘Sentinel Gardens’ Help Spot Dangerous Bugs Abroad**\
 `Scientists have planted American trees in China, Korea and elsewhere to attract hungry insects. Their hope is to identify the most damaging bugs before they cross the ocean.`\
 https://www.nytimes.com/2026/05/23/climate/sentinel-gardens-invasive-species-bugs-trees.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/23/world/asia/coupang-south-korea-us.html
 **Their Phones Were Stolen in London. Then the Threats Started.**\
 `Tens of thousands of smartphones were reported stolen in the British capital in recent years. For some victims, losing their phone was only the beginning.`\
 https://www.nytimes.com/2026/05/23/world/europe/phone-theft-threats-london.html
-
-**Once Trump’s Co-Pilot Against Iran, Netanyahu Is Now a Mere Passenger**\
-`A partner in the war, Israel has been largely left out of the peace talks, a humbling setback for its prime minister with significant risks for the country.`\
-https://www.nytimes.com/2026/05/23/world/middleeast/israel-trump-iran.html
 
