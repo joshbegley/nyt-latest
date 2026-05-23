@@ -1,3 +1,15 @@
+**Next, Please!**\
+`David Steinberg returns to the Sunday puzzle with a new switcheroo.`\
+https://www.nytimes.com/2026/05/23/crosswords/daily-puzzle-2026-05-24.html
+
+**Multilingual Drama ‘Fjord’ Wins Palme d’Or at Cannes Film Festival**\
+`The film, from the Romanian director Cristian Mungiu, explores the tension between religious conservatism and social liberalism. The award closed a festival that felt comparatively muted to many.`\
+https://www.nytimes.com/2026/05/23/movies/cannes-palme-dor-winner-fjord.html
+
+**40,000 Ordered to Evacuate in California Amid Toxic Chemical Tank Crisis**\
+`Firefighters kept working on Saturday at the GKN Aerospace aircraft components plant to stop a storage tank filled with a toxic chemical from failing in Garden Grove, Calif., risking a major explosion or a toxic spill.`\
+https://www.nytimes.com/video/us/100000010922667/chemical-leak-orange-county.html
+
 **Graduating Into A.I. Pessimism**\
 `Backlash to artificial intelligence is here, and digital natives are leading the charge. The Opinion columnist Michelle Goldberg argues that the A.I. pessimism in America stems from a lack of responsible regulation.`\
 https://www.nytimes.com/video/opinion/100000010918890/graduating-into-ai-pessimism.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/es/2026/05/23/espanol/estados-unidos/impuestos-inmunidad
 **Shooting Stars at the amfAR Cannes Gala**\
 `Our photographer took in the art and fashion on display as guests gathered in seaside Antibes, France, to raise money for AIDS research.`\
 https://www.nytimes.com/2026/05/23/movies/amfar-cannes-gala-photographs.html
-
-**Le puse un GPS a mi esposo por amor**\
-`Mientras veía en mi teléfono cómo el punto que lo simbolizaba se desplazaba hacia sus lugares favoritos, volví a sentir una conexión entre nosotros. Pero ¿podría protegerlo?`\
-https://www.nytimes.com/es/2026/05/23/espanol/estilos-de-vida/modern-love-rastrear-marido-matrimonio.html
-
-**Which Cannes Films Could Become Oscar Contenders?**\
-`The American “Club Kid” and Spanish “Black Ball” are among the most likely to impress academy voters, while Scarlett Johansson and Javier Bardem also stood out.`\
-https://www.nytimes.com/2026/05/23/movies/cannes-film-festival-oscar-contenders.html
-
-**John Marion, the ‘God of Auctioneers in America,’ Dies at 92**\
-`For three decades, he was the face of the auction house Sotheby’s, presiding over an era in which art evolved from an object of passion into a commodity.`\
-https://www.nytimes.com/2026/05/23/arts/john-marion-dead.html
 
