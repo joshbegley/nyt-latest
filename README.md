@@ -1,3 +1,7 @@
+**Garden Grove Chemical Tank Could Be Inching Toward Explosion, Authorities Say**\
+`Firefighters still have few options to prevent a tank of toxic chemicals in Garden Grove, Calif., from leaking or exploding.`\
+https://www.nytimes.com/2026/05/23/us/garden-grove-chemical-tank-orange-county.html
+
 **Trump Administration Chips Away at Last Traces of Broad Inquiry Into Jan. 6**\
 `Two recent moves aligned the department ever more closely with President Trump’s own efforts to whitewash the events of that day.`\
 https://www.nytimes.com/2026/05/23/us/politics/trump-prosecutors-jan-6.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/23/arts/thomas-dambo-garbage-man-trolls.html
 **This Is How You Steal a Scene Using Only a Bank**\
 `Deposit slips, vintage ledgers and more: David Korins’s Tony-nominated, 27,000-pound set for “Dog Day Afternoon” is as much a technical feat as a 1970s throwback.`\
 https://www.nytimes.com/2026/05/23/theater/dog-day-afternoon-broadway-tonys.html
-
-**My HOA Neighbor Is Breaking the Rules. What Can I Do?**\
-`There are contracts between property owners, and also between owners and the community.`\
-https://www.nytimes.com/2026/05/23/realestate/hoa-rules-neighbors.html
 
