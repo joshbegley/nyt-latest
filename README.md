@@ -1,3 +1,7 @@
+**Xi Calls for All-Out Rescue After Coal Mine Explosion Kills Over 80 in China**\
+`The death count rose drastically on Saturday as the Chinese leader, Xi Jinping, called for an investigation and emphasized the need to “hold those responsible to account.”`\
+https://www.nytimes.com/2026/05/23/world/asia/xi-coal-mine-explosion-rescue.html
+
 **Cuba merece una nueva historia nacional**\
 `¿Cómo pueden avanzar los cubanos si no están dispuestos a asumir su pasado?`\
 https://www.nytimes.com/es/2026/05/23/espanol/opinion/cuba-estados-unidos-castro-futuro.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/interactive/2026/05/22/us/tulsi-gabbard-resignation-lett
 **Biden Won’t Endorse Becerra, or Anyone Else, in California Governor Race**\
 `Former President Joseph R. Biden Jr. is not planning to endorse his health and human services secretary, Xavier Becerra, or any other candidates in the race.`\
 https://www.nytimes.com/2026/05/22/us/biden-becerra-california-governor.html
-
-**La directora de inteligencia nacional de EE. UU. renuncia**\
-`Gabbard tuvo un cargo difícil en el gobierno de Trump y rara vez se la veía en la sala cuando el presidente tomaba medidas importantes en materia de seguridad nacional.`\
-https://www.nytimes.com/es/2026/05/22/espanol/estados-unidos/trump-tulsi-gabbard-renuncia-inteligencia.html
 
 **Tulsi Gabbard Resigns as Intelligence Chief**\
 `(No description)`\
