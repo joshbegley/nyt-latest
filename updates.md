@@ -1,3 +1,31 @@
+**Can MAGA Survive Without Its Moms?**\
+`The moms are not happy.`\
+https://www.nytimes.com/2026/05/23/opinion/maha-moms-fertility-underbabied.html
+
+**‘We Should All Apply’ to Trump’s Slush Fund**\
+`Trump’s proposed $1.8 billion compensation fund tied to Jan. 6 is drawing scrutiny. On “The Opinions,” David French explains why he sees a double standard between how rioters and ordinary Americans would be treated under the system.`\
+https://www.nytimes.com/video/opinion/100000010918060/we-should-all-apply-to-trumps-slush-fund.html
+
+**Has Trump Gone Full ‘Mob Boss’?**\
+`The president’s $1.8 billion slush fund is causing further cracks in the Republican Party.`\
+https://www.nytimes.com/2026/05/23/opinion/trump-slush-fund-republicans.html
+
+**What A.I. Philanthropists Can Learn From the Gilded Age**\
+`Leave a physical legacy to future generations, not just a record of programs and disbursements.`\
+https://www.nytimes.com/2026/05/23/opinion/artificial-intelligence-philanthropy-beauty.html
+
+**Don’t Play Political Make-Believe**\
+`Voters want to dictate which offices their preferred politicians hold, what positions they take, and even where and how they live. It is fantasy football: political edition.`\
+https://www.nytimes.com/2026/05/23/opinion/politics-michelle-obama-president.html
+
+**Firing Prevention Experts Will Not Make Us Healthy Again**\
+`The future of health advice is uncertain.`\
+https://www.nytimes.com/2026/05/23/opinion/rfk-prevention-experts-health-advice.html
+
+**Has Trump Gone Full ‘Mob Boss’?**\
+`The president’s $1.8 billion slush fund is causing further cracks in the Republican Party.`\
+https://www.nytimes.com/video/opinion/100000010918056/has-trump-gone-full-mob-boss.html
+
 **White House Tells Congo’s Soccer Team to Isolate, Citing Ebola Outbreak**\
 `The team, now in Belgium, must isolate there for 21 days or risk being denied permission to come to Houston for the World Cup, an official said.`\
 https://www.nytimes.com/2026/05/23/world/africa/congo-soccer-ebola-world-cup.html
