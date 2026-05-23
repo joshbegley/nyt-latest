@@ -1,3 +1,123 @@
+**As Draco Malfoy on Broadway, Tom Felton Draws a Crowd**\
+`Fans are traveling great distances for the chance to meet Tom Felton, who has revived a now grown-up Draco Malfoy on Broadway in “Harry Potter and The Cursed Child.”`\
+https://www.nytimes.com/2026/05/23/arts/harry-potter-cursed-child-stage-door.html
+
+**La inmunidad de auditorías para los Trump es un reto para el IRS**\
+`La ley federal prohíbe al Servicio de Impuestos Internos detener una auditoría por orden del presidente o de sus ayudantes.`\
+https://www.nytimes.com/es/2026/05/23/espanol/estados-unidos/impuestos-inmunidad-trump-familia.html
+
+**Shooting Stars at the amfAR Cannes Gala**\
+`Our photographer took in the art and fashion on display as guests gathered in seaside Antibes, France, to raise money for AIDS research.`\
+https://www.nytimes.com/2026/05/23/movies/amfar-cannes-gala-photographs.html
+
+**Le puse un GPS a mi esposo por amor**\
+`Mientras veía en mi teléfono cómo el punto que lo simbolizaba se desplazaba hacia sus lugares favoritos, volví a sentir una conexión entre nosotros. Pero ¿podría protegerlo?`\
+https://www.nytimes.com/es/2026/05/23/espanol/estilos-de-vida/modern-love-rastrear-marido-matrimonio.html
+
+**Which Cannes Films Could Become Oscar Contenders?**\
+`The American “Club Kid” and Spanish “Black Ball” are among the most likely to impress academy voters, while Scarlett Johansson and Javier Bardem also stood out.`\
+https://www.nytimes.com/2026/05/23/movies/cannes-film-festival-oscar-contenders.html
+
+**John Marion, the ‘God of Auctioneers in America,’ Dies at 92**\
+`For three decades, he was the face of the auction house Sotheby’s, presiding over an era in which art evolved from an object of passion into a commodity.`\
+https://www.nytimes.com/2026/05/23/arts/john-marion-dead.html
+
+**Olivia Rodrigo, Vince Staples: 8 Songs We’re Talking About This Week**\
+`Olivia Rodrigo’s orchestral angst, Charli XCX’s fashion crisis and Vince Staples’s frustrated sing-rap.`\
+https://www.nytimes.com/2026/05/23/arts/music/olivia-rodrigo-charli-xcx-songs.html
+
+**U.S. Ebola Travel Ban Faces Criticism From Congo Health Officials**\
+`Kinshasa residents continue to pack markets, bars and public transportation, despite growing international concern about the spread of the virus.`\
+https://www.nytimes.com/2026/05/23/world/africa/ebola-outbreak-congo-shrug.html
+
+**Trump’s Pursuit of a Partnership With China Raises Concerns in India**\
+`Secretary of State Marco Rubio has a “gargantuan task” during his visit to Delhi: defuse tensions over President Trump’s anti-India aggression and overtures to China.`\
+https://www.nytimes.com/2026/05/23/us/politics/trump-rubio-india-china.html
+
+**Trump, Defiant After Bad Week, Pushes Ahead on Politically Unpopular Ideas**\
+`President Trump continues to act like he’s politically all-powerful, even in the face of indications that he is not.`\
+https://www.nytimes.com/2026/05/23/us/politics/defiant-after-bad-week-trump-pushes-ahead-on-politically-unpopular-ideas.html
+
+**‘A Total Nightmare’: Voices From a Moscow Hit by Ukrainian Drones**\
+`Residents who experienced attacks in recent days were shaken deeply by the conflict coming home to the capital region, the seat of the Kremlin’s power.`\
+https://www.nytimes.com/2026/05/23/world/europe/moscow-drone-attacks-ukraine.html
+
+**Should You Lend Money to Friends? More People Are Open to the Arrangement.**\
+`Friendship and money don’t always mix. But many Americans feel comfortable discussing financial issues with their friends and lending them money.`\
+https://www.nytimes.com/2026/05/23/business/loans-money-friends.html
+
+**Food, Flashlights and Fans: Floridians Step Up Aid to Cuban Relatives**\
+`Months into the oil blockade imposed by President Trump, many Cubans are relying more than ever on relatives in the U.S. for help meeting their daily needs.`\
+https://www.nytimes.com/2026/05/23/us/south-florida-cuba-family.html
+
+**Celebs and Influencers Tout N.A.D.+. But Is the Supplement Effective?**\
+`A central claim about N.A.D.+ isn’t as straightforward as influencers make it out to be.`\
+https://www.nytimes.com/2026/05/23/well/nad-longevity-supplement-antiaging.html
+
+**He’s Trolling Your Trash, and Turning It Into Art**\
+`Thomas Dambo built a global following by turning Denmark’s scrap into giant, hidden forest creatures. Now, the art world is finally letting him inside.`\
+https://www.nytimes.com/2026/05/23/arts/thomas-dambo-garbage-man-trolls.html
+
+**This Is How You Steal a Scene Using Only a Bank**\
+`Deposit slips, vintage ledgers and more: David Korins’s Tony-nominated, 27,000-pound set for “Dog Day Afternoon” is as much a technical feat as a 1970s throwback.`\
+https://www.nytimes.com/2026/05/23/theater/dog-day-afternoon-broadway-tonys.html
+
+**My HOA Neighbor Is Breaking the Rules. What Can I Do?**\
+`There are contracts between property owners, and also between owners and the community.`\
+https://www.nytimes.com/2026/05/23/realestate/hoa-rules-neighbors.html
+
+**Youn Yuh-jung of “Beef” on the Tiffany Necklace She Loved, Lost and Replaced**\
+`After a robbery, the Oscar-winning actress, now starring in the second season of “Beef,” replaced the heart-shaped necklace she adored.`\
+https://www.nytimes.com/2026/05/23/style/the-necklace-youn-yuh-jung-loved-lost-and-replaced.html
+
+**A Route 66 Road Trip in Cars of the Past, Present and Future**\
+`Before cars could drive themselves, the Mother Road beckoned Americans westward. We drove a long stretch of it to assess the health of the old road while sizing up the next automotive century.`\
+https://www.nytimes.com/2026/05/23/us/route-66-100-years-cars.html
+
+**5 Takeaways From a Times Investigation on Autism Therapy Clinics**\
+`A rapidly growing industry often overprescribes treatment to young children with autism, who spend as many as 40 hours a week at the facilities.`\
+https://www.nytimes.com/2026/05/23/health/autisim-clinics-investigation.html
+
+**How Profit-Seeking Autism Clinics Can Harm Kids**\
+`Profit motives are shaping the care inside an expanding autism therapy industry, creating conditions that can harm some children. Our health reporter Sarah Kliff explains her new investigation, co-authored with Margot Sanger-Katz.`\
+https://www.nytimes.com/video/health/100000010889107/how-profit-seeking-autism-clinics-can-harm-kids.html
+
+**A Haitian Mother Waits for Court’s Ruling on TPS — and Her Future**\
+`As the Supreme Court considers whether to end temporary protections for hundreds of thousands of Haitians, we meet a Florida nurse at risk of losing work — and her son — if she’s deported back to Haiti.`\
+https://www.nytimes.com/video/us/100000010887153/supreme-court-tps-haitian-mom-florida.html
+
+**Summer Workout Tips: Fun Ways to Shake Up Your Exercise Routine**\
+`If your workout feels tedious, try these ideas for something new.`\
+https://www.nytimes.com/2026/05/23/well/move/summer-workout-ideas-exercise-advice.html
+
+**How to Stay Safe Around Jellyfish This Beach Season**\
+`Jellyfish myths and misconceptions abound. Here’s how to stay safe this beach season around these gelatinous wonders.`\
+https://www.nytimes.com/2026/05/23/us/jellyfish-facts-beach-sting-safety.html
+
+**Travel Through the Looking Glass in Yoshi and the Mysterious Book**\
+`This year’s new Nintendo Switch 2 games include a wonderful adventure for Yoshi, magic tennis rackets for Baby Mario and Baby Luigi, and a Sims-Animal Crossing mashup.`\
+https://www.nytimes.com/2026/05/23/arts/yoshi-mysterious-book-review.html
+
+**Nicole Polizzi of ‘Jersey Shore’ Relaxes by Watching Zombies**\
+`“My favorite horror movies are with zombies and watching the end of the world happen and people having to live in this new world of zombies.”`\
+https://www.nytimes.com/2026/05/23/arts/television/nicole-polizzi-snooki-jersey-shore.html
+
+**Boots Riley Takes on Fast Fashion in a Surreal Comedy**\
+`Alissa Wilkinson, a New York Times film critic, reviews the very political “I Love Boosters.”`\
+https://www.nytimes.com/video/movies/100000010860393/boots-riley-takes-on-fast-fashion-in-a-surreal-comedy.html
+
+**Book Review: ‘The Danger to Be Sane,’ by Rosa Montero**\
+`In “The Danger to Be Sane,” the journalist Rosa Montero delves into the connections between psychic turbulence and creative work — including her own.`\
+https://www.nytimes.com/2026/05/23/books/review/rosa-montero-the-danger-to-be-sane.html
+
+**Short Naps, Long Hours: How Autism Clinics Squeeze Medicaid Dollars Out of Preschoolers**\
+`The industry has grown rapidly, straining state budgets. A focus on finances has led to overbilling, fraud and even harm.`\
+https://www.nytimes.com/2026/05/23/health/autism-therapy-clinics.html
+
+**How $6 Gas Prices Are Affecting the Lives of Californians**\
+`California is the nation’s most expensive state for gasoline. The latest spike has forced more residents to change their habits.`\
+https://www.nytimes.com/2026/05/23/us/gas-prices-california.html
+
 **El gobierno de Cuba celebra el legado de Raúl Castro tras la imputación de EE. UU.**\
 `Las autoridades y los medios de comunicación estatales recurrieron a las redes sociales para proyectar la imagen de una nación unida en torno a un anciano estadista venerado.`\
 https://www.nytimes.com/es/2026/05/23/espanol/america-latina/cuba-raul-castro-cargos.html
@@ -74,123 +194,7 @@ https://www.nytimes.com/2026/05/22/crosswords/daily-puzzle-2026-05-23.html
 `The city is home to part of Little Saigon, the cultural heart of the Vietnamese American population in California.`\
 https://www.nytimes.com/2026/05/22/us/where-is-the-california-chemical-leak.html
 
-**Trump Weighs His Options in Carrying Out New Strikes in Iran**\
-`There is no shortage of targets if he decides to strike: Energy facilities left untouched, the deep underground nuclear storage site at Isfahan and missile sites that appear to have been dug out.`\
-https://www.nytimes.com/2026/05/22/us/politics/trump-iran-targets.html
-
-**Trump Visits New York to Boost House Republican’s Re-election Hopes**\
-`The visit by President Trump was meant to promote Representative Mike Lawler’s bid to defend his swing seat in New York, but it had the earmarks of a Trump rally.`\
-https://www.nytimes.com/2026/05/22/nyregion/trump-lawler-rockland-ny.html
-
-**Mob Burns Congo Ebola Center Amid Rare Strain Outbreak**\
-`Several hundred people massed at the gates of a hospital to demand the body of a suspected Ebola victim. Violence broke out when staff refused the request.`\
-https://www.nytimes.com/2026/05/22/world/africa/ebola-congo-clinic-burned-protests.html
-
-**What is GKN Aerospace, the Company Whose California Plant Is at Risk of Exploding?**\
-`A chemical leak occurred at one of the company’s manufacturing plants in California, raising concerns about an explosion.`\
-https://www.nytimes.com/2026/05/22/us/what-is-gkn-aerospace.html
-
-**Muere Kyle Busch, piloto bicampeón de NASCAR**\
-`Busch murió tras ser hospitalizado por una “enfermedad grave”, según dijeron en un comunicado conjunto su familia, su escudería y la NASCAR. No se detalló ninguna causa concreta.`\
-https://www.nytimes.com/es/2026/05/22/espanol/cultura/muere-kyle-busch.html
-
-**What Is Methyl Methacrylate, the Chemical at the Center of the Garden Grove Crisis?**\
-`The E.P.A. warns that short-term exposure to the compound can cause skin and eye irritation and respiratory issues.`\
-https://www.nytimes.com/2026/05/22/us/methyl-methacrylate-garden-grove-chemical-leak.html
-
-**Meth and Fentanyl Found in Home Where Emergency Responders Fell Ill**\
-`More than a dozen emergency workers were treated after responding to a report of an overdose at a New Mexico home.`\
-https://www.nytimes.com/2026/05/22/us/new-mexico-meth-fentanyl-overdose-sick.html
-
-**Rob Base, Rapper Known for ‘It Takes Two,’ Dies at 59**\
-`The singer died on Friday after a “private battle with cancer,” according to his official Instagram account.`\
-https://www.nytimes.com/2026/05/22/arts/music/rob-base-dead.html
-
-**Tulsi Gabbard Resigns as Intelligence Chief**\
-`Tulsi Gabbard, the director of national intelligence, announced on social media on Friday that she would be leaving her post to care for her husband, who is battling an “extremely rare form of bone cancer.”`\
-https://www.nytimes.com/video/us/politics/100000010921362/tulsi-gabbard-resigns-as-intelligence-chief.html
-
-**Quienes soliciten la ‘green card’ deberán hacerlo fuera de EE. UU.**\
-`Es probable que el cambio afecte a cientos de miles de personas. También podría provocar más separaciones familiares mientras las parejas o los parientes esperan la decisión sobre la solicitud.`\
-https://www.nytimes.com/es/2026/05/22/espanol/estados-unidos/green-card-residencia-trump.html
-
-**U.S. to Block Entry to More Noncitizens Who May Have Been Exposed to Ebola**\
-`The Trump administration announced plans to expand a ban on entering the United States to legal permanent residents who had been in the Democratic Republic of Congo, Uganda or South Sudan.`\
-https://www.nytimes.com/2026/05/22/us/politics/trump-cdc-noncitizens-ebola.html
-
-**Lawsuit Argues Trump’s $1.8 Billion Fund Excludes Those He Targeted**\
-`The constellation of individuals and groups involved claims to have suffered partisan attacks by the federal government under Trump, yet would not be compensated.`\
-https://www.nytimes.com/2026/05/22/us/politics/common-cause-lawsuit-trump-fund.html
-
-**Deadly Explosions Injure Dozens of Firefighters on Staten Island Barge**\
-`Two explosions rocked a barge on the North Shore of Staten Island, injuring 34 people. The resulting fire was under control, but was still burning.`\
-https://www.nytimes.com/2026/05/22/nyregion/staten-island-explosion.html
-
-**A Ford Truck, Home to Newborn Robins, Is Stuck at a Kansas Car Dealer**\
-`Employees of a dealership in Olathe, Kan., found the nest, which is protected under federal law, on top of one of the truck’s tires.`\
-https://www.nytimes.com/2026/05/22/us/ford-f-250-robin-nest-kansas.html
-
 **Toxic Explosion Feared at California Chemical Plant**\
 `Evacuation orders were issued to 40,000 Orange County residents as firefighters tried to prevent a spill or an explosion. Health officials said they couldn’t predict the impact of a toxic release.`\
 https://www.nytimes.com/live/2026/05/22/us/chemical-leak-evacuation-orange-county
-
-**Carlo Petrini, Whose Slow Food Movement Transformed How We Eat, Dies at 76**\
-`Through his Slow Food organization, he spurred a worldwide shift toward sustainability and thoughtful cuisine.`\
-https://www.nytimes.com/2026/05/22/dining/carlo-petrini-dead.html
-
-**In Dissecting 2024 Loss, Democrats’ Report Ignores Gaza, Biden’s Age**\
-`The nearly 200-page draft autopsy indicated that the party had failed to fully grapple with why Kamala Harris had lost to Donald J. Trump.`\
-https://www.nytimes.com/2026/05/22/us/democrats-autopsy-gaza-biden.html
-
-**Europeans Remain Wary as Trump Promises to Deploy Troops to Poland**\
-`President Trump has promised to deploy 5,000 U.S. troops to Poland, seemingly reversing course from his previous statements. NATO allies responded cautiously during a summit on Friday and pushed for greater military self-reliance.`\
-https://www.nytimes.com/video/world/europe/100000010921016/europeans-remain-wary-as-trump-promises-to-deploy-troops-to-poland.html
-
-**White House Approves $9 Billion for Spy Agencies to Catch Up on A.I.**\
-`The C.I.A. and N.S.A. cannot fully deploy the latest models on their classified systems because of a shortage of cutting-edge chips.`\
-https://www.nytimes.com/2026/05/22/us/politics/spy-agencies-ai-chips-shortage.html
-
-**Waymo Pauses Service in 6 Cities After Cars Drive Into Floodwaters**\
-`Waymo has paused its driverless taxi service in six cities after video emerged showing an empty car stuck on a flooded road in Atlanta.`\
-https://www.nytimes.com/video/us/100000010920866/waymo-atlanta-flooded-road.html
-
-**Trump’s Intelligence Chief Resigns**\
-`Also, mediators rush to save the U.S.-Iran cease-fire. Here’s the latest at the end of Friday.`\
-https://www.nytimes.com/2026/05/22/briefing/trump-intelligence-chief-resigns.html
-
-**Warsh Is Sworn in as Fed Chair**\
-`Kevin M. Warsh, President Trump’s pick for Fed chair, said he would lead a “reform-oriented” Federal Reserve in his first remarks after being sworn in.`\
-https://www.nytimes.com/video/us/politics/100000010920880/warsh-fed-chair-swearing-in-trump.html
-
-**The D.N.C. Chairman, Trump’s $1.8 Billion Fund and More Politics News**\
-`He has focused on internal politics, building a loyal base despite tactical disputes.`\
-https://www.nytimes.com/2026/05/22/us/politics/dnc-chairman-ken-martin-lutnick-.html
-
-**Trump Administration Offers Conflicting View of Civil Rights Cuts**\
-`Education Secretary Linda McMahon has said she wants to hire more civil rights lawyers, but the White House has proposed cutting that office in half.`\
-https://www.nytimes.com/2026/05/22/us/politics/mcmahon-education-cuts.html
-
-**Maryland Democrats Plan to Eliminate State’s Lone Republican Seat in Time for 2028**\
-`A top state lawmaker who opposed drawing new districts for the fall election now says he supports a constitutional amendment that could pave the way to an all-Democrat map for the next cycle.`\
-https://www.nytimes.com/2026/05/22/us/politics/maryland-redistricting.html
-
-**G.O.P. Break With Trump Reflects Limits of Party’s Post-Jan. 6 Truce**\
-`Republicans, seeing President Trump’s personal agenda diverging from their political interests, vented their outrage about paying those who threatened their lives on Jan. 6, 2021.`\
-https://www.nytimes.com/2026/05/22/us/politics/republicans-congress-senate-trump.html
-
-**Green Card Seekers Must Leave U.S. to Apply, Trump Administration Says**\
-`The change is likely to affect hundreds of thousands of people. It could also lead to more family separations as spouses or relatives wait for application decisions, immigration lawyers said.`\
-https://www.nytimes.com/2026/05/22/us/politics/green-card-changes-trump.html
-
-**Colbert’s Final ‘Late Show’ Draws 6.7 Million Viewers**\
-`The total tripled his usual audience this season. But it is only about half of what Jay Leno and David Letterman attracted for their final episodes.`\
-https://www.nytimes.com/2026/05/22/business/media/colbert-late-show-ratings-finale.html
-
-**Waymo Suspends Service in Six Cities After Cars Drove Into Flooded Roads**\
-`The temporary shutdowns came after videos emerged showing two Waymo cars stopped on swamped streets in Atlanta on Wednesday.`\
-https://www.nytimes.com/2026/05/22/us/waymo-taxi-suspended-atlanta.html
-
-**Judge Dismisses Criminal Case Against Kilmar Armando Abrego Garcia**\
-`The move deals an embarrassing blow to the Trump administration, which made the Maryland man, Kilmar Armando Abrego Garcia, the face of its deportation campaign.`\
-https://www.nytimes.com/2026/05/22/us/politics/abrego-garcia-case-dismissed-trump-administration.html
 
