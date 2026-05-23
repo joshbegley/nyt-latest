@@ -1,3 +1,11 @@
+**What to Know About Lifeguards as New York City’s Beaches Open for Summer**\
+`City beaches are back open, though outdoor pools won’t open for another month. Here’s where things stand at the unofficial start of summer.`\
+https://www.nytimes.com/2026/05/23/nyregion/nyc-beaches-pools-lifeguards.html
+
+**Iran and U.S. Officials Signal Progress as Cease-Fire Hangs in Balance**\
+`As people across the Middle East braced for the possibility of renewed fighting, officials from both sides said there were signs that they were moving closer to an agreement.`\
+https://www.nytimes.com/2026/05/23/world/middleeast/iran-us-israel-ceasefire-talks.html
+
 **Israeli Strikes Pummel Lebanon, Killing Medics Amid Fragile Truce**\
 `Saturday’s strikes damaged a main hospital in the Lebanese city of Tyre, as funerals for paramedics killed a day earlier were held.`\
 https://www.nytimes.com/2026/05/23/world/middleeast/israel-strikes-lebanon-medics.html

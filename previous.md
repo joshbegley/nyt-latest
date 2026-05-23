@@ -1,3 +1,7 @@
+**What to Know About Lifeguards as New York City’s Beaches Open for Summer**\
+`City beaches are back open, though outdoor pools won’t open for another month. Here’s where things stand at the unofficial start of summer.`\
+https://www.nytimes.com/2026/05/23/nyregion/nyc-beaches-pools-lifeguards.html
+
 **Israeli Strikes Pummel Lebanon, Killing Medics Amid Fragile Truce**\
 `Saturday’s strikes damaged a main hospital in the Lebanese city of Tyre, as funerals for paramedics killed a day earlier were held.`\
 https://www.nytimes.com/2026/05/23/world/middleeast/israel-strikes-lebanon-medics.html
@@ -26,8 +30,8 @@ https://www.nytimes.com/2026/05/23/style/no-engagement-ring-proposals.html
 `Lynette Yiadom-Boakye prefers to remain unseen, but her intriguing new canvases, drawings and writings speak volumes.`\
 https://www.nytimes.com/2026/05/23/arts/design/yiadom-boakye-shainman-art.html
 
-**Iran Meets Mediators for Talks as Cease-Fire Hangs in Balance**\
-`People across the Middle East were bracing for the possibility of renewed fighting between the U.S. and Iran as mediation efforts continue in Tehran without a clear sign of a breakthrough.`\
+**Iran and U.S. Officials Signal Progress as Cease-Fire Hangs in Balance**\
+`As people across the Middle East braced for the possibility of renewed fighting, officials from both sides said there were signs that they were moving closer to an agreement.`\
 https://www.nytimes.com/2026/05/23/world/middleeast/iran-us-israel-ceasefire-talks.html
 
 **Americans Don’t Talk to Their Neighbors. That’s a Problem for Kids.**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/100000010887153/supreme-court-tps-haitian-mom-f
 **Summer Workout Tips: Fun Ways to Shake Up Your Exercise Routine**\
 `If your workout feels tedious, try these ideas for something new.`\
 https://www.nytimes.com/2026/05/23/well/move/summer-workout-ideas-exercise-advice.html
-
-**How to Stay Safe Around Jellyfish This Beach Season**\
-`Jellyfish myths and misconceptions abound. Here’s how to stay safe this beach season around these gelatinous wonders.`\
-https://www.nytimes.com/2026/05/23/us/jellyfish-facts-beach-sting-safety.html
 
