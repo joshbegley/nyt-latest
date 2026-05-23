@@ -1,3 +1,27 @@
+**Track Changes**\
+`It’s a holiday weekend, three days to ease from one seasonal mind-set into the next, even if it feels too soon.`\
+https://www.nytimes.com/2026/05/23/briefing/track-changes.html
+
+**My Partner Won’t Tell Me Who Will Get ‘Our’ House If He Dies. Can I Press Him?**\
+`I need the security of knowing that I will not be forced to leave the home we have shared for so many years.`\
+https://www.nytimes.com/2026/05/23/magazine/who-will-get-our-house-ethics.html
+
+**NYT Connections Answers for May 24, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, May 24, 2026.`\
+https://www.nytimes.com/2026/05/23/crosswords/connections-companion-1078.html
+
+**Today’s Wordle Hints for May 24, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, May 24, 2026.`\
+https://www.nytimes.com/2026/05/23/crosswords/wordle-review-1800.html
+
+**NYT Strands Hints for May 24, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, May 24, 2026.`\
+https://www.nytimes.com/2026/05/23/crosswords/strands-sidekick-812.html
+
+**At the Arctic Games, Canada and Greenland vs. Trump Feels Like Its Own Sport**\
+`Geopolitics found its way to the podium in Whitehorse as athletes from the circumpolar North competed in sports as mainstream as hockey and as unusual as the two-foot high kick.`\
+https://www.nytimes.com/2026/05/23/world/canada/canada-arctic-olympics-yellowknife.html
+
 **Nicolas Cage Made Himself a Legend. Then He Had to Live With It.**\
 `The iconic actor on becoming a meme, a myth and larger than life.`\
 https://www.nytimes.com/2026/05/23/magazine/nicolas-cage-interview.html

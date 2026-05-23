@@ -1,3 +1,27 @@
+**Track Changes**\
+`It’s a holiday weekend, three days to ease from one seasonal mind-set into the next, even if it feels too soon.`\
+https://www.nytimes.com/2026/05/23/briefing/track-changes.html
+
+**My Partner Won’t Tell Me Who Will Get ‘Our’ House If He Dies. Can I Press Him?**\
+`I need the security of knowing that I will not be forced to leave the home we have shared for so many years.`\
+https://www.nytimes.com/2026/05/23/magazine/who-will-get-our-house-ethics.html
+
+**NYT Connections Answers for May 24, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, May 24, 2026.`\
+https://www.nytimes.com/2026/05/23/crosswords/connections-companion-1078.html
+
+**Today’s Wordle Hints for May 24, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, May 24, 2026.`\
+https://www.nytimes.com/2026/05/23/crosswords/wordle-review-1800.html
+
+**NYT Strands Hints for May 24, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, May 24, 2026.`\
+https://www.nytimes.com/2026/05/23/crosswords/strands-sidekick-812.html
+
+**At the Arctic Games, Canada and Greenland vs. Trump Feels Like Its Own Sport**\
+`Geopolitics found its way to the podium in Whitehorse as athletes from the circumpolar North competed in sports as mainstream as hockey and as unusual as the two-foot high kick.`\
+https://www.nytimes.com/2026/05/23/world/canada/canada-arctic-olympics-yellowknife.html
+
 **Nicolas Cage Made Himself a Legend. Then He Had to Live With It.**\
 `The iconic actor on becoming a meme, a myth and larger than life.`\
 https://www.nytimes.com/2026/05/23/magazine/nicolas-cage-interview.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/05/23/world/middleeast/israel-trump-iran.html
 **The Risks of Iran’s Threat to Control the Strait of Hormuz**\
 `Iran is trying to assert its control over the strait by charging for passage. Experts say it is unlikely to happen, but the threat has unsettled the shipping industry.`\
 https://www.nytimes.com/2026/05/23/business/iran-toll-strait-hormuz.html
-
-**Corrections: May 23, 2026**\
-`Corrections that appeared in print on Saturday, May 23, 2026.`\
-https://www.nytimes.com/2026/05/23/pageoneplus/corrections-may-23-2026.html
-
-**Quote of the Day: Kyle Busch, NASCAR’s Often Unbeatable Bad Boy, Dies at 41**\
-`Quotation of the Day for Saturday, May 23, 2026`\
-https://www.nytimes.com/2026/05/22/pageoneplus/quote-of-the-day-kyle-busch-nascars-often-unbeatable-bad-boy-dies-at-41.html
-
-**How a Chemical Tank in Southern California Came to the Brink of Disaster**\
-`Firefighters are left without any options to prevent the tank, filled with a toxic chemical, from collapsing or exploding. The authorities have urged thousands of people to evacuate their homes.`\
-https://www.nytimes.com/2026/05/22/us/southern-california-chemical-tank-emergency.html
-
-**HUD Moves to Limit Assistance Animals for Disabled Tenants**\
-`Housing officials were told to exclude emotional support animals and tighten the definition of a service animal when granting accommodations for disabled tenants.`\
-https://www.nytimes.com/2026/05/22/us/politics/hud-assistance-animals-disabled.html
-
-**Choice for the Undecided**\
-`Kameron Austin Collins’s latest themeless puzzle: hilarious or nefarious? Why not both?`\
-https://www.nytimes.com/2026/05/22/crosswords/daily-puzzle-2026-05-23.html
-
-**Toxic Explosion Feared at California Chemical Plant**\
-`Evacuation orders were issued to 40,000 Orange County residents as firefighters tried to prevent a spill or an explosion. Health officials said they couldn’t predict the impact of a toxic release.`\
-https://www.nytimes.com/live/2026/05/22/us/chemical-leak-evacuation-orange-county
 
