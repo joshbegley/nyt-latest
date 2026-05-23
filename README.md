@@ -1,3 +1,7 @@
+**Track Changes**\
+`It’s a holiday weekend, three days to ease from one seasonal mind-set into the next, even if it feels too soon.`\
+https://www.nytimes.com/2026/05/23/briefing/track-changes.html
+
 **My Partner Won’t Tell Me Who Will Get ‘Our’ House If He Dies. Can I Press Him?**\
 `I need the security of knowing that I will not be forced to leave the home we have shared for so many years.`\
 https://www.nytimes.com/2026/05/23/magazine/who-will-get-our-house-ethics.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/23/world/middleeast/israel-trump-iran.html
 **The Risks of Iran’s Threat to Control the Strait of Hormuz**\
 `Iran is trying to assert its control over the strait by charging for passage. Experts say it is unlikely to happen, but the threat has unsettled the shipping industry.`\
 https://www.nytimes.com/2026/05/23/business/iran-toll-strait-hormuz.html
-
-**Corrections: May 23, 2026**\
-`Corrections that appeared in print on Saturday, May 23, 2026.`\
-https://www.nytimes.com/2026/05/23/pageoneplus/corrections-may-23-2026.html
 
