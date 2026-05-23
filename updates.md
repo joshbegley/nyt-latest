@@ -1,3 +1,7 @@
+**A Lull in Fighting Gave Time to Bury Their Dead**\
+`In the relative calm of the early days of a cease-fire, there were heart-rending scenes as people exhumed their loved ones from temporary graves and reburied them.`\
+https://www.nytimes.com/2026/05/23/world/europe/lebanon-war-burials.html
+
 **Donald Trump Jr. and Bettina Anderson Celebrate Marriage on Bahamas Private Island**\
 `After getting legally married in Palm Beach, the couple plans to exchange vows in the Bahamas this weekend, and later hold a celebration at the White House, a representative for the bride said.`\
 https://www.nytimes.com/2026/05/23/style/donald-trump-jr-bettina-anderson-wedding.html
