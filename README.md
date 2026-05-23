@@ -1,3 +1,7 @@
+**No Diamond Ring? Put a String on It.**\
+`Proposals, whether on-the-spot or well thought out, can occur without a traditional ring, and sometimes with just words alone.`\
+https://www.nytimes.com/2026/05/23/style/no-engagement-ring-proposals.html
+
 **Letting Her Art (and Birds) Do the Talking**\
 `Lynette Yiadom-Boakye prefers to remain unseen, but her intriguing new canvases, drawings and writings speak volumes.`\
 https://www.nytimes.com/2026/05/23/arts/design/yiadom-boakye-shainman-art.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/23/books/review/rosa-montero-the-danger-to-be-sa
 **Short Naps, Long Hours: How Autism Clinics Squeeze Medicaid Dollars Out of Preschoolers**\
 `The industry has grown rapidly, straining state budgets. A focus on finances has led to overbilling, fraud and even harm.`\
 https://www.nytimes.com/2026/05/23/health/autism-therapy-clinics.html
-
-**How $6 Gas Prices Are Affecting the Lives of Californians**\
-`California is the nation’s most expensive state for gasoline. The latest spike has forced more residents to change their habits.`\
-https://www.nytimes.com/2026/05/23/us/gas-prices-california.html
 
