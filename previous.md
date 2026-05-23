@@ -1,3 +1,7 @@
+**Alexandros Giotopoulos of November 17, Greek Militant Group, Is Freed**\
+`The release of Alexandros Giotopoulos was denounced by relatives of people killed by November 17, a Greek far-left group that was active between 1975 and 2002.`\
+https://www.nytimes.com/2026/05/23/world/europe/greece-november-17-alexandros-giotopoulos.html
+
 **These Are a Few of My Favorite Picnic Treats**\
 `Chewy brownie cookies, peanut butter blackberry bars and pistachio halvah Rice Krispies treats travel well and hold up in the sun.`\
 https://www.nytimes.com/2026/05/23/dining/these-are-a-few-of-my-favorite-picnic-treats.html
@@ -26,7 +30,7 @@ https://www.nytimes.com/2026/05/23/opinion/kids-fear-strangers.html
 `More than three quarters of Americans, including 55 percent of Republicans, said President Trump’s policies have increased the cost of living in their community.`\
 https://www.nytimes.com/2026/05/23/us/politics/americans-groceries-inflation-affordability.html
 
-**Can MAGA Survive Without Its Moms?**\
+**The Moms Delivered for Trump. Now He’s Scamming Them.**\
 `The moms are not happy.`\
 https://www.nytimes.com/2026/05/23/opinion/maha-moms-fertility-underbabied.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/23/arts/yoshi-mysterious-book-review.html
 **Nicole Polizzi of ‘Jersey Shore’ Relaxes by Watching Zombies**\
 `“My favorite horror movies are with zombies and watching the end of the world happen and people having to live in this new world of zombies.”`\
 https://www.nytimes.com/2026/05/23/arts/television/nicole-polizzi-snooki-jersey-shore.html
-
-**Boots Riley Takes on Fast Fashion in a Surreal Comedy**\
-`Alissa Wilkinson, a New York Times film critic, reviews the very political “I Love Boosters.”`\
-https://www.nytimes.com/video/movies/100000010860393/boots-riley-takes-on-fast-fashion-in-a-surreal-comedy.html
 

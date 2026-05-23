@@ -1,3 +1,11 @@
+**Alexandros Giotopoulos of November 17, Greek Militant Group, Is Freed**\
+`The release of Alexandros Giotopoulos was denounced by relatives of people killed by November 17, a Greek far-left group that was active between 1975 and 2002.`\
+https://www.nytimes.com/2026/05/23/world/europe/greece-november-17-alexandros-giotopoulos.html
+
+**The Moms Delivered for Trump. Now He’s Scamming Them.**\
+`The moms are not happy.`\
+https://www.nytimes.com/2026/05/23/opinion/maha-moms-fertility-underbabied.html
+
 **These Are a Few of My Favorite Picnic Treats**\
 `Chewy brownie cookies, peanut butter blackberry bars and pistachio halvah Rice Krispies treats travel well and hold up in the sun.`\
 https://www.nytimes.com/2026/05/23/dining/these-are-a-few-of-my-favorite-picnic-treats.html
