@@ -1,3 +1,23 @@
+**What Is GKN Aerospace?**\
+`A chemical leak occurred at one of the company’s manufacturing plants in California, raising concerns about an explosion.`\
+https://www.nytimes.com/2026/05/22/us/what-is-gkn-aerospace.html
+
+**Muere Kyle Busch, piloto bicampeón de NASCAR**\
+`Busch murió tras ser hospitalizado por una “enfermedad grave”, según dijeron en un comunicado conjunto su familia, su escudería y la NASCAR. No se detalló ninguna causa concreta.`\
+https://www.nytimes.com/es/2026/05/22/espanol/cultura/muere-kyle-busch.html
+
+**What Is Methyl Methacrylate, the Chemical at the Center of the Garden Grove Crisis?**\
+`The E.P.A. warns that short-term exposure to the compound can cause skin and eye irritation and respiratory issues.`\
+https://www.nytimes.com/2026/05/22/us/methyl-methacrylate-garden-grove-chemical-leak.html
+
+**Live Updates: Toxic Explosion Feared at California Chemical Plant**\
+`Evacuation orders were issued to 40,000 Orange County residents as firefighters tried to prevent a spill or an explosion. Health officials said they couldn’t predict the impact of a toxic release.`\
+https://www.nytimes.com/live/2026/05/22/us/chemical-leak-evacuation-orange-county
+
+**SpaceX Completes Mostly Successful Starship Rocket Flight**\
+`The company’s gargantuan rocket launched its 12th test flight on Friday evening and ended its journey in the Indian Ocean just over an hour later.`\
+https://www.nytimes.com/2026/05/22/science/spacex-starship-launch-nasa.html
+
 **SpaceX Completes Mostly Successful Starship Rocket Flight**\
 `SpaceX’s gargantuan rocket launched its 12th test flight on Friday evening and ended its journey in the Indian Ocean just over an hour later.`\
 https://www.nytimes.com/2026/05/22/science/spacex-starship-launch-nasa.html
