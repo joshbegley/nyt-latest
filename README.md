@@ -1,3 +1,27 @@
+**Can MAGA Survive Without Its Moms?**\
+`The moms are not happy.`\
+https://www.nytimes.com/2026/05/23/opinion/maha-moms-fertility-underbabied.html
+
+**‘We Should All Apply’ to Trump’s Slush Fund**\
+`Trump’s proposed $1.8 billion compensation fund tied to Jan. 6 is drawing scrutiny. On “The Opinions,” David French explains why he sees a double standard between how rioters and ordinary Americans would be treated under the system.`\
+https://www.nytimes.com/video/opinion/100000010918060/we-should-all-apply-to-trumps-slush-fund.html
+
+**Has Trump Gone Full ‘Mob Boss’?**\
+`The president’s $1.8 billion slush fund is causing further cracks in the Republican Party.`\
+https://www.nytimes.com/2026/05/23/opinion/trump-slush-fund-republicans.html
+
+**What A.I. Philanthropists Can Learn From the Gilded Age**\
+`Leave a physical legacy to future generations, not just a record of programs and disbursements.`\
+https://www.nytimes.com/2026/05/23/opinion/artificial-intelligence-philanthropy-beauty.html
+
+**Don’t Play Political Make-Believe**\
+`Voters want to dictate which offices their preferred politicians hold, what positions they take, and even where and how they live. It is fantasy football: political edition.`\
+https://www.nytimes.com/2026/05/23/opinion/politics-michelle-obama-president.html
+
+**Firing Prevention Experts Will Not Make Us Healthy Again**\
+`The future of health advice is uncertain.`\
+https://www.nytimes.com/2026/05/23/opinion/rfk-prevention-experts-health-advice.html
+
 **Has Trump Gone Full ‘Mob Boss’?**\
 `The president’s $1.8 billion slush fund is causing further cracks in the Republican Party.`\
 https://www.nytimes.com/video/opinion/100000010918056/has-trump-gone-full-mob-boss.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/05/23/nyregion/black-brooklyn-residents-businesses.
 **How Stars From ‘The Morning Show’ and ‘The League’ Keep Their Love Alive**\
 `Mark Duplass and his wife, Katie Aselton, make movies together, but they also make time to cuddle on the subway.`\
 https://www.nytimes.com/interactive/2026/05/23/nyregion/23routine-morning-show.html
-
-**NYT Spelling Bee Answers for May 23, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/05/23/crosswords/spelling-bee-forum.html
-
-**El mercado de la salud vaginal crece cada vez más**\
-`Los vacíos en el conocimiento y cuidado de la salud femenina han generado una oportunidad de negocio. ¿Qué puede salir mal?`\
-https://www.nytimes.com/es/2026/05/23/espanol/estilos-de-vida/salud-vagina.html
-
-**Xi Calls for All-Out Rescue After Coal Mine Explosion Kills at Least 90 in China**\
-`The death count rose drastically on Saturday as the Chinese leader, Xi Jinping, called for an investigation and emphasized the need to “hold those responsible to account.”`\
-https://www.nytimes.com/2026/05/23/world/asia/xi-coal-mine-explosion-rescue.html
-
-**Cuba merece una nueva historia nacional**\
-`¿Cómo pueden avanzar los cubanos si no están dispuestos a asumir su pasado?`\
-https://www.nytimes.com/es/2026/05/23/espanol/opinion/cuba-estados-unidos-castro-futuro.html
-
-**Australia’s ‘Prettiest Street’ Is Grappling With TikTok and Instagram Fame**\
-`For many years, Tasman Drive in Gerringong was a secret held by locals. Now residents must coexist with tourists hungry for the perfect shot.`\
-https://www.nytimes.com/2026/05/23/world/australia/gerringong-tasman-drive-tourists-beautiful-street.html
-
-**‘Amazon.com of South Korea’ Is New Source of Tension With U.S.**\
-`A corporate compliance dispute between South Korea’s government and the online retailer Coupang is testing the resilience of U.S.-South Korean ties.`\
-https://www.nytimes.com/2026/05/23/world/asia/coupang-south-korea-us.html
 
