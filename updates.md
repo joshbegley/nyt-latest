@@ -1,3 +1,7 @@
+**Trump Visits New York to Boost House Republican’s Re-election Hopes**\
+`The visit by President Trump was meant to promote Representative Mike Lawler’s bid to defend his swing seat in New York, but it had the earmarks of a Trump rally.`\
+https://www.nytimes.com/2026/05/22/nyregion/trump-lawler-rockland-ny.html
+
 **Mob Burns Congo Ebola Center Amid Rare Strain Outbreak**\
 `Several hundred people massed at the gates of a hospital to demand the body of a suspected Ebola victim. Violence broke out when staff refused the request.`\
 https://www.nytimes.com/2026/05/22/world/africa/ebola-congo-clinic-burned-protests.html
