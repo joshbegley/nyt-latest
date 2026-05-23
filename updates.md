@@ -1,3 +1,15 @@
+**Next, Please!**\
+`David Steinberg returns to the Sunday puzzle with a new switcheroo.`\
+https://www.nytimes.com/2026/05/23/crosswords/daily-puzzle-2026-05-24.html
+
+**Director Cristian Mungiu’s ‘Fjord’ Wins Palme d’Or at Cannes Film Festival**\
+`The film, from the Romanian director Cristian Mungiu, explores the tension between religious conservatism and social liberalism. The award closed a festival that felt comparatively muted to many.`\
+https://www.nytimes.com/2026/05/23/movies/cannes-palme-dor-winner-fjord.html
+
+**40,000 Ordered to Evacuate in California Amid Toxic Chemical Tank Crisis**\
+`Firefighters kept working on Saturday at the GKN Aerospace aircraft components plant to stop a storage tank filled with a toxic chemical from failing in Garden Grove, Calif., risking a major explosion or a toxic spill.`\
+https://www.nytimes.com/video/us/100000010922667/chemical-leak-orange-county.html
+
 **Graduating Into A.I. Pessimism**\
 `Backlash to artificial intelligence is here, and digital natives are leading the charge. The Opinion columnist Michelle Goldberg argues that the A.I. pessimism in America stems from a lack of responsible regulation.`\
 https://www.nytimes.com/video/opinion/100000010918890/graduating-into-ai-pessimism.html

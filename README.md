@@ -14,7 +14,7 @@ https://www.nytimes.com/video/us/100000010922667/chemical-leak-orange-county.htm
 `Backlash to artificial intelligence is here, and digital natives are leading the charge. The Opinion columnist Michelle Goldberg argues that the A.I. pessimism in America stems from a lack of responsible regulation.`\
 https://www.nytimes.com/video/opinion/100000010918890/graduating-into-ai-pessimism.html
 
-**Shipyard Worker Killed and Dozens Injured in Staten Island Blasts**\
+**Investigators Look Into Staten Island Blasts That Killed Shipyard Worker**\
 `The explosions at May Ship Repair Contracting Corporation, which erupted after a fire on a dock, killed one of the company’s subcontractors, a representative said.`\
 https://www.nytimes.com/2026/05/23/nyregion/explosions-worker-killed-staten-island.html
 
