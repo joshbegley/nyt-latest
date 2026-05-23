@@ -7,7 +7,7 @@ https://www.nytimes.com/2026/05/23/crosswords/daily-puzzle-2026-05-24.html
 https://www.nytimes.com/2026/05/23/movies/cannes-palme-dor-winner-fjord.html
 
 **40,000 Ordered to Evacuate in California Amid Toxic Chemical Tank Crisis**\
-`Firefighters kept working on Saturday at the GKN Aerospace aircraft components plant to stop a storage tank filled with a toxic chemical from failing in Garden Grove, Calif., risking a major explosion or a toxic spill.`\
+`Firefighters worked on Saturday at the GKN Aerospace aircraft components plant in Garden Grove, Calif., to stop a storage tank filled with a toxic chemical from failing, risking a major explosion or a toxic spill.`\
 https://www.nytimes.com/video/us/100000010922667/chemical-leak-orange-county.html
 
 **Graduating Into A.I. Pessimism**\
