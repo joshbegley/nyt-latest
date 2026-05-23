@@ -1,3 +1,7 @@
+**Deadly Explosions Injure Dozens of Firefighters on Staten Island Barge**\
+`Two explosions happened within an hour of each other along the North Shore of Staten Island, injuring 34 firefighters and emergency workers.`\
+https://www.nytimes.com/2026/05/22/nyregion/staten-island-explosion.html
+
 **As Trump Weighs Return to Conflict in Iran, Here’s What Could Be Targeted Next**\
 `There is no shortage of targets should President Trump, in coordination with Israel, decide to resume the assault on Iran.`\
 https://www.nytimes.com/2026/05/22/us/politics/trump-iran-targets.html
