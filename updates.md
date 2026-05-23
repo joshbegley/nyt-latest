@@ -1,3 +1,11 @@
+**These Are a Few of My Favorite Picnic Treats**\
+`Chewy brownie cookies, peanut butter blackberry bars and pistachio halvah Rice Krispies treats travel well and hold up in the sun.`\
+https://www.nytimes.com/2026/05/23/dining/these-are-a-few-of-my-favorite-picnic-treats.html
+
+**Cómo disminuir el estrés con 3 preguntas**\
+`Conseguir una perspectiva más real sobre las dificultades de la vida suele reducir la ansiedad.`\
+https://www.nytimes.com/es/2026/05/23/espanol/estilos-de-vida/estres-que-hacer.html
+
 **No Diamond Ring? Put a String on It.**\
 `Proposals, whether on-the-spot or well thought out, can occur without a traditional ring, and sometimes with just words alone.`\
 https://www.nytimes.com/2026/05/23/style/no-engagement-ring-proposals.html
