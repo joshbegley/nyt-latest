@@ -1,3 +1,11 @@
+**Trump Administration Chips Away at Last Traces of Broad Inquiry Into Jan. 6**\
+`Two recent moves aligned the department ever more closely with President Trump’s own efforts to whitewash the events of that day.`\
+https://www.nytimes.com/2026/05/23/us/politics/trump-prosecutors-jan-6.html
+
+**Inside the $1.8 Billion MAGA Payout Fund**\
+`Americans should be cleareyed about what President Trump is doing: He is taking $1.8 billion worth of taxpayer money and rewarding loyalists willing to defy the law and commit violence. The Times editorial board explains in this video.`\
+https://www.nytimes.com/video/opinion/100000010919618/inside-the-1-8-billion-maga-payout-fund.html
+
 **Firing Cancer Screening Experts Will Not Make Us Healthy Again**\
 `The future of health advice is uncertain.`\
 https://www.nytimes.com/2026/05/23/opinion/rfk-prevention-experts-health-advice.html
