@@ -1,3 +1,11 @@
+**Britain Preparing for Mission That Could Clear Strait of Hormuz**\
+`At Gibraltar, at the tip of Spain, British forces are ready to deploy autonomous mine-hunting equipment if a peace agreement is achieved.`\
+https://www.nytimes.com/2026/05/23/us/politics/britain-strait-of-hormuz-iran.html
+
+**Gunshots Reported Near White House, F.B.I. Says**\
+`A witness reported hearing dozens of shots. It was not immediately clear what led up to the shooting or whether anyone had been injured.`\
+https://www.nytimes.com/2026/05/23/us/politics/white-house-shooting.html
+
 **40,000 Ordered to Evacuate in California Amid Toxic Chemical Tank Crisis**\
 `Firefighters worked on Saturday at the GKN Aerospace aircraft components plant in Garden Grove, Calif., to stop a storage tank filled with a toxic chemical from failing, risking a major explosion or a toxic spill.`\
 https://www.nytimes.com/video/us/100000010922667/chemical-leak-orange-county.html
