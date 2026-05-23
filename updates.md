@@ -1,3 +1,7 @@
+**Xi Calls for All-Out Rescue After Coal Mine Explosion Kills Over 80 in China**\
+`The death count rose drastically on Saturday as the Chinese leader, Xi Jinping, called for an investigation and emphasized the need to “hold those responsible to account.”`\
+https://www.nytimes.com/2026/05/23/world/asia/xi-coal-mine-explosion-rescue.html
+
 **Cuba merece una nueva historia nacional**\
 `¿Cómo pueden avanzar los cubanos si no están dispuestos a asumir su pasado?`\
 https://www.nytimes.com/es/2026/05/23/espanol/opinion/cuba-estados-unidos-castro-futuro.html
