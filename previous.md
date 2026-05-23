@@ -1,6 +1,6 @@
 **Israeli Strikes Pummel Lebanon, Killing Medics Amid Fragile Truce**\
 `Saturday’s strikes damaged a main hospital in the Lebanese city of Tyre, as funerals for paramedics killed a day earlier were held.`\
-https://www.nytimes.com/2026/05/23/world/middleeast/israel-strikes-lebanon-killing-medis.html
+https://www.nytimes.com/2026/05/23/world/middleeast/israel-strikes-lebanon-medics.html
 
 **A Fresher, Brighter Macaroni Salad**\
 `Alexa Weibel’s macaroni salad with lemon and herbs complements anything off the grill (and will get you compliments).`\
@@ -140,7 +140,7 @@ https://www.nytimes.com/2026/05/23/us/politics/trump-rubio-india-china.html
 
 **Trump, Defiant After Bad Week, Pushes Ahead on Politically Unpopular Ideas**\
 `President Trump continues to act like he’s politically all-powerful, even in the face of indications that he is not.`\
-https://www.nytimes.com/2026/05/23/us/politics/defiant-after-bad-week-trump-pushes-ahead-on-politically-unpopular-ideas.html
+https://www.nytimes.com/2026/05/23/us/politics/trump-republicans-fund-ballroom-iran.html
 
 **‘A Total Nightmare’: Voices From a Moscow Hit by Ukrainian Drones**\
 `Residents who experienced attacks in recent days were shaken deeply by the conflict coming home to the capital region, the seat of the Kremlin’s power.`\

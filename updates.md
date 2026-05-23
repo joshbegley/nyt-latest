@@ -1,5 +1,13 @@
 **Israeli Strikes Pummel Lebanon, Killing Medics Amid Fragile Truce**\
 `Saturday’s strikes damaged a main hospital in the Lebanese city of Tyre, as funerals for paramedics killed a day earlier were held.`\
+https://www.nytimes.com/2026/05/23/world/middleeast/israel-strikes-lebanon-medics.html
+
+**Trump, Defiant After Bad Week, Pushes Ahead on Politically Unpopular Ideas**\
+`President Trump continues to act like he’s politically all-powerful, even in the face of indications that he is not.`\
+https://www.nytimes.com/2026/05/23/us/politics/trump-republicans-fund-ballroom-iran.html
+
+**Israeli Strikes Pummel Lebanon, Killing Medics Amid Fragile Truce**\
+`Saturday’s strikes damaged a main hospital in the Lebanese city of Tyre, as funerals for paramedics killed a day earlier were held.`\
 https://www.nytimes.com/2026/05/23/world/middleeast/israel-strikes-lebanon-killing-medis.html
 
 **A Fresher, Brighter Macaroni Salad**\
