@@ -1,3 +1,7 @@
+**Investigators Look Into Staten Island Blasts That Killed Shipyard Worker**\
+`The explosions at May Ship Repair Contracting Corporation, which erupted after a fire on a dock, killed one of the company’s subcontractors, a representative said.`\
+https://www.nytimes.com/2026/05/23/nyregion/explosions-worker-killed-staten-island.html
+
 **Next, Please!**\
 `David Steinberg returns to the Sunday puzzle with a new switcheroo.`\
 https://www.nytimes.com/2026/05/23/crosswords/daily-puzzle-2026-05-24.html
