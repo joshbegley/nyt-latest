@@ -1,3 +1,7 @@
+**61% of Americans Said They Had to Cut Back on Groceries**\
+`More than three quarters of Americans, including 55 percent of Republicans, said President Trump’s policies have increased the cost of living in their community.`\
+https://www.nytimes.com/2026/05/23/us/politics/americans-groceries-inflation-affordability.html
+
 **Can MAGA Survive Without Its Moms?**\
 `The moms are not happy.`\
 https://www.nytimes.com/2026/05/23/opinion/maha-moms-fertility-underbabied.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/05/23/espanol/opinion/odisea-helena-lupita-nyong
 **Keeping Black Brooklyn Alive, One Drink at a Time**\
 `As the departure of New York’s Black residents changes neighborhood culture, one gathering paid tribute to one of its remaining Black institutions, the Tip-Top Bar and Grill.`\
 https://www.nytimes.com/2026/05/23/nyregion/black-brooklyn-residents-businesses.html
-
-**How Stars From ‘The Morning Show’ and ‘The League’ Keep Their Love Alive**\
-`Mark Duplass and his wife, Katie Aselton, make movies together, but they also make time to cuddle on the subway.`\
-https://www.nytimes.com/interactive/2026/05/23/nyregion/23routine-morning-show.html
 
