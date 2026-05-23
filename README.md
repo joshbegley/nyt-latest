@@ -43,7 +43,7 @@ https://www.nytimes.com/2026/05/23/us/politics/trump-prosecutors-jan-6.html
 https://www.nytimes.com/video/opinion/100000010919618/inside-the-1-8-billion-maga-payout-fund.html
 
 **Donald Trump Jr. and Bettina Anderson Celebrate Marriage on Bahamas Private Island**\
-`After getting legally married in Palm Beach, the couple plans to exchange vows in the Bahamas this weekend, and later hold a celebration at the White House, a representative for the bride said.`\
+`After getting legally married in Palm Beach, the couple plans to exchange vows in the Bahamas this weekend, followed by what is expected to be a larger celebration at the White House later this year.`\
 https://www.nytimes.com/2026/05/23/style/donald-trump-jr-bettina-anderson-wedding.html
 
 **A Lull in Fighting Gave Time to Bury Their Dead**\
