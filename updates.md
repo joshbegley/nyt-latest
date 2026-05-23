@@ -1,3 +1,7 @@
+**Quote of the Day: Kyle Busch, NASCAR’s Often Unbeatable Bad Boy, Dies at 41**\
+`Quotation of the Day for Saturday, May 23, 2026`\
+https://www.nytimes.com/2026/05/22/pageoneplus/quote-of-the-day-kyle-busch-nascars-often-unbeatable-bad-boy-dies-at-41.html
+
 **How a Chemical Tank in Southern California Came to the Brink of Disaster**\
 `Firefighters are left without any options to prevent the tank, filled with a toxic chemical, from collapsing or exploding. The authorities have urged thousands of people to evacuate their homes.`\
 https://www.nytimes.com/2026/05/22/us/southern-california-chemical-tank-emergency.html
