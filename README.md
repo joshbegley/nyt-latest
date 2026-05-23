@@ -1,3 +1,7 @@
+**What to Know About the Garden Grove Chemical Plant Crisis**\
+`Firefighters continue to cool a chemical storage tank with water to prevent it from breaching or exploding. Some 40,000 residents near the Orange County plant have been evacuated to shelters.`\
+https://www.nytimes.com/2026/05/23/us/garden-grove-chemical-plant-explosion.html
+
 **What to Know About Lifeguards as New York City’s Beaches Open for Summer**\
 `City beaches are back open, though outdoor pools won’t open for another month. Here’s where things stand at the unofficial start of summer.`\
 https://www.nytimes.com/2026/05/23/nyregion/nyc-beaches-pools-lifeguards.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/health/100000010889107/how-profit-seeking-autism-c
 **A Haitian Mother Waits for Court’s Ruling on TPS — and Her Future**\
 `As the Supreme Court considers whether to end temporary protections for hundreds of thousands of Haitians, we meet a Florida nurse at risk of losing work — and her son — if she’s deported back to Haiti.`\
 https://www.nytimes.com/video/us/100000010887153/supreme-court-tps-haitian-mom-florida.html
-
-**Summer Workout Tips: Fun Ways to Shake Up Your Exercise Routine**\
-`If your workout feels tedious, try these ideas for something new.`\
-https://www.nytimes.com/2026/05/23/well/move/summer-workout-ideas-exercise-advice.html
 
