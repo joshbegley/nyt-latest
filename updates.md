@@ -1,3 +1,7 @@
+**SpaceX Completes Mostly Successful Starship Rocket Flight**\
+`The 12th test flight of SpaceX’s gargantuan rocket launched on Friday evening and ended its journey in the Indian Ocean just over an hour later.`\
+https://www.nytimes.com/2026/05/22/science/spacex-starship-launch-nasa.html
+
 **Garden Grove Is a Suburban City Near Theme Parks**\
 `The city is home to part of Little Saigon, the cultural heart of the Vietnamese American population in California.`\
 https://www.nytimes.com/2026/05/22/us/where-is-the-california-chemical-leak.html
