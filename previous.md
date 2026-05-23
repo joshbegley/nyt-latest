@@ -1,3 +1,11 @@
+**Trump Is Setting His Sights on Restricting Legal Immigration**\
+`After a year focused on immigrants here illegally, the Trump administration is now making it harder for legal migrants to stay in the country. It is a risky pivot.`\
+https://www.nytimes.com/2026/05/23/us/politics/trump-legal-immigration.html
+
+**Brooklyn Man Wedged in Upstate New York Cave Is Rescued After 6 Hours**\
+`A cave explorer got stuck in a narrow crevice and developed hypothermia. Rescuers brought him miniature Reese’s Peanut Butter Cups to keep his energy up.`\
+https://www.nytimes.com/2026/05/23/nyregion/merlin-cave-rescue-new-york.html
+
 **France Bans Israeli Minister Over Treatment of Detained Flotilla Activists**\
 `Itamar Ben-Gvir, the Israeli national security minister, has long drawn criticism for his hard-line statements and harsh policies against Palestinian prisoners.`\
 https://www.nytimes.com/2026/05/23/world/middleeast/ben-gvir-travel-ban-france.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/05/23/business/loans-money-friends.html
 **Food, Flashlights and Fans: Floridians Step Up Aid to Cuban Relatives**\
 `Months into the oil blockade imposed by President Trump, many Cubans are relying more than ever on relatives in the U.S. for help meeting their daily needs.`\
 https://www.nytimes.com/2026/05/23/us/south-florida-cuba-family.html
-
-**Celebs and Influencers Tout N.A.D.+. But Is the Supplement Effective?**\
-`A central claim about N.A.D.+ isn’t as straightforward as influencers make it out to be.`\
-https://www.nytimes.com/2026/05/23/well/nad-longevity-supplement-antiaging.html
-
-**He’s Trolling Your Trash, and Turning It Into Art**\
-`Thomas Dambo built a global following by turning Denmark’s scrap into giant, hidden forest creatures. Now, the art world is finally letting him inside.`\
-https://www.nytimes.com/2026/05/23/arts/thomas-dambo-garbage-man-trolls.html
 

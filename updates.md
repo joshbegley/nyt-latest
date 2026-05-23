@@ -1,3 +1,11 @@
+**Trump Is Setting His Sights on Restricting Legal Immigration**\
+`After a year focused on immigrants here illegally, the Trump administration is now making it harder for legal migrants to stay in the country. It is a risky pivot.`\
+https://www.nytimes.com/2026/05/23/us/politics/trump-legal-immigration.html
+
+**Brooklyn Man Wedged in Upstate New York Cave Is Rescued After 6 Hours**\
+`A cave explorer got stuck in a narrow crevice and developed hypothermia. Rescuers brought him miniature Reese’s Peanut Butter Cups to keep his energy up.`\
+https://www.nytimes.com/2026/05/23/nyregion/merlin-cave-rescue-new-york.html
+
 **France Bans Israeli Minister Over Treatment of Detained Flotilla Activists**\
 `Itamar Ben-Gvir, the Israeli national security minister, has long drawn criticism for his hard-line statements and harsh policies against Palestinian prisoners.`\
 https://www.nytimes.com/2026/05/23/world/middleeast/ben-gvir-travel-ban-france.html
