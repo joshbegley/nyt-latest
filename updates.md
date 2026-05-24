@@ -1,3 +1,7 @@
+**Oil Prices Fall on News of Possible Iran Deal**\
+`S&P 500 futures were up slightly in what may be a sign that investors and analysts are waiting to see if a deal is finalized.`\
+https://www.nytimes.com/2026/05/24/business/oil-stocks-gas.html
+
 **What to Know About the Citizenship Lists Trump Wants to Create**\
 `President Trump is trying to create individual lists of citizens by state to determine who can vote, even as his administration acknowledges they would be unreliable.`\
 https://www.nytimes.com/2026/05/24/us/politics/trump-lists-noncitizens-states.html

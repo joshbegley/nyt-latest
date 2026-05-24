@@ -1,3 +1,7 @@
+**Oil Prices Fall on News of Possible Iran Deal**\
+`S&P 500 futures were up slightly in what may be a sign that investors and analysts are waiting to see if a deal is finalized.`\
+https://www.nytimes.com/2026/05/24/business/oil-stocks-gas.html
+
 **What to Know About the Citizenship Lists Trump Wants to Create**\
 `President Trump is trying to create individual lists of citizens by state to determine who can vote, even as his administration acknowledges they would be unreliable.`\
 https://www.nytimes.com/2026/05/24/us/politics/trump-lists-noncitizens-states.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/24/movies/summer-movies-toy-products-star-wars-t
 **Nick Kroll Keeps It Raunchy and Animated with “Mating Season”**\
 `With “Mating Season,” Nick Kroll continues to lead the pack when it comes to the booming genre of cartoons that revel in their raciness.`\
 https://www.nytimes.com/2026/05/24/arts/hes-the-modern-master-of-raunchy-animation.html
-
-**UK Institute Is Hunting for Dangers Lurking in AI**\
-`The government’s A.I. Security Institute, staffed by alumni from OpenAI and Google, is becoming a model for countries grappling with A.I.’s emerging risks.`\
-https://www.nytimes.com/2026/05/24/technology/uk-ai-safety-institute.html
 
