@@ -1,3 +1,23 @@
+**The War-Driven Supply Shock Already Roiling Manufacturing in Asia**\
+`A shortage of naphtha, stemming from the blockade of the Strait of Hormuz, is disrupting manufacturing and retail goods in Japan and South Korea.`\
+https://www.nytimes.com/2026/05/24/business/what-is-naphtha.html
+
+**Can Concrete Molds Revive Coral Reefs Ruined by Bombs and Climate Change?**\
+`In a devastated section of the Coral Triangle in the Pacific Ocean, a conservation group is trying to build an artificial reef.`\
+https://www.nytimes.com/2026/05/24/world/asia/can-concrete-molds-revive-coral-reefs-ruined-by-bombs-and-climate-change.html
+
+**‘Debbie Downer’ Is Enjoying an Upswing**\
+`With her popular mystical podcast, a return to Broadway in “The Rocky Horror Show” and a second Tony nomination, Rachel Dratch is finally getting her due.`\
+https://www.nytimes.com/2026/05/24/style/debbie-downer-is-enjoying-an-upswing.html
+
+**Corrections: May 24, 2026**\
+`Corrections that appeared in print on Sunday, May 24, 2026.`\
+https://www.nytimes.com/2026/05/24/pageoneplus/corrections-may-24-2026.html
+
+**Quote of the Day: Europe Has Interest in Talking Peace With Putin, but Questions Remain**\
+`Quotation of the Day for Sunday, May 24, 2026.`\
+https://www.nytimes.com/2026/05/23/pageoneplus/quote-of-the-day-europe-has-interest-in-talking-peace-with-putin-but-questions-remain.html
+
 **A Refuge in the Arctic**\
 `A postcard from the northernmost church on Earth.`\
 https://www.nytimes.com/2026/05/23/briefing/svalbard.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/05/23/opinion/politics-michelle-obama-president.htm
 **Has Trump Gone Full ‘Mob Boss’?**\
 `The president’s $1.8 billion slush fund is causing further cracks in the Republican Party.`\
 https://www.nytimes.com/video/opinion/100000010918056/has-trump-gone-full-mob-boss.html
-
-**White House Tells Congo’s Soccer Team to Isolate, Citing Ebola Outbreak**\
-`The team, now in Belgium, must isolate there for 21 days or risk being denied permission to come to Houston for the World Cup, an official said.`\
-https://www.nytimes.com/2026/05/23/world/africa/congo-soccer-ebola-world-cup.html
-
-**How ‘Sentinel Gardens’ Help Spot Dangerous Bugs Abroad**\
-`Scientists have planted American trees in China, Korea and elsewhere to attract hungry insects. Their hope is to identify the most damaging bugs before they cross the ocean.`\
-https://www.nytimes.com/2026/05/23/climate/sentinel-gardens-invasive-species-bugs-trees.html
-
-**Track Changes**\
-`It’s a holiday weekend, three days to ease from one seasonal mind-set into the next, even if it feels too soon.`\
-https://www.nytimes.com/2026/05/23/briefing/track-changes.html
-
-**My Partner Won’t Tell Me Who Will Get ‘Our’ House If He Dies. Can I Press Him?**\
-`I need the security of knowing that I will not be forced to leave the home we have shared for so many years.`\
-https://www.nytimes.com/2026/05/23/magazine/who-will-get-our-house-ethics.html
-
-**NYT Connections Answers for May 24, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, May 24, 2026.`\
-https://www.nytimes.com/2026/05/23/crosswords/connections-companion-1078.html
 
