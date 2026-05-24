@@ -1,3 +1,11 @@
+**At Least 14 Killed in Bombing Attack That Derailed a Train in Pakistan**\
+`The explosion was so powerful that several nearby buildings were damaged and a resident 15 miles away was jolted awake by the blast. A separatist group claimed responsibility.`\
+https://www.nytimes.com/2026/05/24/world/asia/pakistan-train-bomb-attack-derailment.html
+
+**Israeli Leaders Say Little About Trump’s Potential Iran Deal**\
+`Analysts said the silence reflected Israeli worries that an agreement will not significantly degrade Iran’s nuclear and missile capabilities.`\
+https://www.nytimes.com/2026/05/24/world/middleeast/iran-deal-israel-reaction.html
+
 **Mets Fans Are Struggling. Be Gentle.**\
 `The Mets keep finding ways to disappoint us. And we still keep finding ways to never give up hope.`\
 https://www.nytimes.com/2026/05/24/opinion/mets-fans-baseball-lose.html
