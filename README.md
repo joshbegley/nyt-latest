@@ -1,3 +1,11 @@
+**Reopening of Strait of Hormuz Still a Question Mark**\
+`Without the details of a formal agreement, it is unclear how soon normal shipping will resume and when oil prices will start to come down.`\
+https://www.nytimes.com/2026/05/24/business/strait-of-hormuz-reopen-iran.html
+
+**The Oscars Start at Cannes**\
+`Glamorous and a touch old-fashioned, the French film festival increasingly defines what Hollywood celebrates each year.`\
+https://www.nytimes.com/2026/05/24/world/cannes-festival-fjord-iran-deal.html
+
 **Israel’s President, Isaac Herzog, Denounces Israeli Violence**\
 `In a speech, Isaac Herzog, whose role is largely ceremonial, delivered a grave indictment of settler attacks in the West Bank and abuse of prisoners.`\
 https://www.nytimes.com/2026/05/24/world/middleeast/israel-herzog-violence.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/05/24/magazine/radical-parents-books-weather-underg
 **To A.I. Executives, We’re All Just ‘Meat Computers’**\
 `A term first used in philosophy and cognitive science circles has lately taken on a more ominous cast. Moo.`\
 https://www.nytimes.com/2026/05/24/business/meat-computer-brain-artificial-intelligence.html
-
-**How Marilyn Monroe Gave a Smart Gloss to Her Image**\
-`It was all about self-improvement for the actress, who was born a century ago next week. Two new volumes shed light on the books she collected and the intellectual she married.`\
-https://www.nytimes.com/2026/05/24/books/review/marilyn-monroe-books-arthur-miller.html
-
-**They Started I.V.F., Then Split. Now Who Gets Custody of the Embryos?**\
-`For 47-year-old Erin Millender, this will likely be her last chance to become a mother. Her husband no longer wants to have a child with her.`\
-https://www.nytimes.com/2026/05/24/us/ivf-embryos-custody.html
 
