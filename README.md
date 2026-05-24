@@ -1,3 +1,7 @@
+**Lo que hay que saber sobre el posible acuerdo de paz entre EE. UU. e Irán**\
+`El presidente Trump dijo que estaba cerca de alcanzar un acuerdo con Irán. Sin embargo, hasta el domingo por la mañana no estaba claro qué habían acordado EE. UU. e Irán.`\
+https://www.nytimes.com/es/2026/05/24/espanol/estados-unidos/ee-uu-iran-acuerdo-paz.html
+
 **Sobreviví al ébola. Esto es lo que más me asusta de este brote**\
 `El gobierno de Donald Trump recortó los programas destinados a coordinar una respuesta a esta enfermedad.`\
 https://www.nytimes.com/es/2026/05/24/espanol/opinion/ebola-sobreviviente-brote.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/24/books/review/summer-beach-reads.html
 **In Homeless Crisis, California ‘Is Waging a War on R.V.s’**\
 `The R.V.s are seen as an eyesore — the most visible sign of the state’s homelessness crisis. Neighbors and politicians want them gone. The people who call them home feel under siege.`\
 https://www.nytimes.com/2026/05/24/us/california-homeless-cars-rvs.html
-
-**How a Curious FIFA Deal Gave Fox a Huge Bargain for World Cup Broadcast Rights**\
-`A decision to stave off litigation between Fox and FIFA turned into a bonanza worth hundreds of millions of dollars in discounted World Cup rights to the broadcaster.`\
-https://www.nytimes.com/2026/05/24/world/europe/fifa-world-cup-fox-broadcast-rights.html
 
