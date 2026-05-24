@@ -1,3 +1,7 @@
+**‘Mandalorian and Grogu’ Tops Box Office as Disney Bets on ‘Star Wars’ Revival**\
+`The movie, which cost $300 million to make and market, was expected to collect about $102 million from Thursday through Monday at domestic theaters.`\
+https://www.nytimes.com/2026/05/24/business/media/mandalorian-and-grogu-box-office.html
+
 **Rafe Pomerance, the Paul Revere of Climate Change, Dies at 79**\
 `An environmental lobbyist and activist, he was a pivotal figure in drawing public attention and political support to the existential issue.`\
 https://www.nytimes.com/2026/05/24/science/rafe-pomerance-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/24/world/europe/london-guardianships-rent-cost-o
 **At an LA Costco, Skateboarding and Learning About Loss**\
 `We’re all going to die. But first — just one more trick.`\
 https://www.nytimes.com/2026/05/24/business/economy/costco-curbs-skateboarding-genx.html
-
-**Martin Short y el secreto para encontrar la alegría en los momentos difíciles**\
-`La estrella de la comedia, quien es objeto de un nuevo documental, se ha enfrentado a una serie de pérdidas inimaginables. Sin embargo, dice que siempre hay risas que recordar.`\
-https://www.nytimes.com/es/2026/05/24/espanol/cultura/martin-short-entrevista.html
 

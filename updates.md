@@ -1,3 +1,7 @@
+**‘Mandalorian and Grogu’ Tops Box Office as Disney Bets on ‘Star Wars’ Revival**\
+`The movie, which cost $300 million to make and market, was expected to collect about $102 million from Thursday through Monday at domestic theaters.`\
+https://www.nytimes.com/2026/05/24/business/media/mandalorian-and-grogu-box-office.html
+
 **Rafe Pomerance, the Paul Revere of Climate Change, Dies at 79**\
 `An environmental lobbyist and activist, he was a pivotal figure in drawing public attention and political support to the existential issue.`\
 https://www.nytimes.com/2026/05/24/science/rafe-pomerance-dead.html

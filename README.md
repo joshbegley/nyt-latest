@@ -1,3 +1,7 @@
+**Bystander Wounded in White House Shooting Is in Stable Condition**\
+`The Metropolitan Police Department is investigating to determine who shot the bystander, who underwent surgery, and how many bullets were fired.`\
+https://www.nytimes.com/2026/05/24/us/politics/white-house-bystander-shooting-secret-service.html
+
 **‘Mandalorian and Grogu’ Tops Box Office as Disney Bets on ‘Star Wars’ Revival**\
 `The movie, which cost $300 million to make and market, was expected to collect about $102 million from Thursday through Monday at domestic theaters.`\
 https://www.nytimes.com/2026/05/24/business/media/mandalorian-and-grogu-box-office.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/24/world/canada/auto-industry-canada-detroit-ont
 **As Rents Soar, Londoners Turn to Vacant Pubs, Offices and Police Stations**\
 `Property guardianship, in which residents live in otherwise vacant buildings, used to be considered edgy. But as the rental market tightens, more people are embracing the arrangement.`\
 https://www.nytimes.com/2026/05/24/world/europe/london-guardianships-rent-cost-of-living.html
-
-**At an LA Costco, Skateboarding and Learning About Loss**\
-`We’re all going to die. But first — just one more trick.`\
-https://www.nytimes.com/2026/05/24/business/economy/costco-curbs-skateboarding-genx.html
 
