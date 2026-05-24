@@ -1,3 +1,7 @@
+**Three Drake Albums, Three Songs of the Week**\
+`On this triple-track edition of the “Popcast” Song of the Week, our critic Jon Caramanica unpacks the themes of Drake’s latest era.`\
+https://www.nytimes.com/video/podcasts/100000010922000/three-drake-albums-three-songs-of-the-week.html
+
 **Gunman in Shooting Near White House Killed in Exchange of Fire With Secret Service**\
 `A gunman known to the U.S. Secret Service opened fire near the White House and was shot and killed by federal officers. President Trump was in the White House at the time.`\
 https://www.nytimes.com/2026/05/23/us/politics/white-house-shooting.html
