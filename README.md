@@ -1,3 +1,7 @@
+**Sobreviví al ébola. Esto es lo que más me asusta de este brote**\
+`El gobierno de Donald Trump recortó los programas destinados a coordinar una respuesta a esta enfermedad.`\
+https://www.nytimes.com/es/2026/05/24/espanol/opinion/ebola-sobreviviente-brote.html
+
 **For Carlo Petrini, the Point of ‘Slow Food’ Wasn’t the Food. It Was Us.**\
 `The Italian activist, who died on Thursday, built his global movement on the idea that eating well could make modern life more meaningful.`\
 https://www.nytimes.com/2026/05/24/dining/carlo-petrini-slow-food.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/24/us/california-homeless-cars-rvs.html
 **How a Curious FIFA Deal Gave Fox a Huge Bargain for World Cup Broadcast Rights**\
 `A decision to stave off litigation between Fox and FIFA turned into a bonanza worth hundreds of millions of dollars in discounted World Cup rights to the broadcaster.`\
 https://www.nytimes.com/2026/05/24/world/europe/fifa-world-cup-fox-broadcast-rights.html
-
-**How Prediction Markets and Crypto Firms Steamrolled a Watchdog Agency**\
-`The Commodity Futures Trading Commission purged its ranks, dialed back its enforcement and boosted industries in which President Trump’s family is heavily invested.`\
-https://www.nytimes.com/2026/05/24/us/how-prediction-markets-and-crypto-firms-steamrolled-a-watchdog-agency.html
 
