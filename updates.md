@@ -1,3 +1,7 @@
+**Mets Fans Are Struggling. Be Gentle.**\
+`The Mets keep finding ways to disappoint us. And we still keep finding ways to never give up hope.`\
+https://www.nytimes.com/2026/05/24/opinion/mets-fans-baseball-lose.html
+
 **Sites Unseen: What’s Revealed by Traveling With the Blind**\
 `How an extraordinary trip to India changed one photographer’s perspective on travel`\
 https://www.nytimes.com/2026/05/24/podcasts/the-daily/sites-unseen-whats-revealed-by-traveling-with-the-blind.html
