@@ -1,3 +1,7 @@
+**Firefighters Still Working to Cool Chemical Tank in Southern California**\
+`The tank, filled with a toxic chemical, is at risk of explosion or breach. More than 40,000 residents remain under evacuation orders.`\
+https://www.nytimes.com/2026/05/24/us/chemical-tank-garden-grove-southern-california.html
+
 **Israeli Leader Says He and Trump Agree on Blocking an Iranian Nuclear Weapon**\
 `Analysts said Israel is worried that a potential agreement will not significantly degrade Iran’s nuclear and missile capabilities.`\
 https://www.nytimes.com/2026/05/24/world/middleeast/iran-deal-israel-reaction.html

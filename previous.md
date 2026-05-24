@@ -1,3 +1,7 @@
+**Firefighters Still Working to Cool Chemical Tank in Southern California**\
+`The tank, filled with a toxic chemical, is at risk of explosion or breach. More than 40,000 residents remain under evacuation orders.`\
+https://www.nytimes.com/2026/05/24/us/chemical-tank-garden-grove-southern-california.html
+
 **What to Know About the White House Shooting on Memorial Day Weekend**\
 `Shots were fired near the northwestern corner of the White House complex, while President Trump was inside the building. The Secret Service returned fire, killing the gunman.`\
 https://www.nytimes.com/2026/05/24/us/white-house-shooting.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/05/24/espanol/cultura/martin-short-entrevista.ht
 **Trump, desafiante tras una mala semana, insiste en sus ideas políticamente impopulares**\
 `El presidente Trump continúa actuando como si fuera políticamente todopoderoso, incluso ante los indicios de que no lo es.`\
 https://www.nytimes.com/es/2026/05/24/espanol/estados-unidos/trump-popularidad.html
-
-**Un nuevo decreto talibán formaliza el matrimonio infantil, advierte la ONU**\
-`Una nueva ley afgana exige que las niñas esperen hasta la pubertad antes de intentar salir de un matrimonio. También exige la mediación para las mujeres que intentan escapar de un esposo maltratador.`\
-https://www.nytimes.com/es/2026/05/24/espanol/mundo/decreto-taliban-matrimonio-infantil.html
 
