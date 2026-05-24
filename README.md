@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/05/24/world/middleeast/rubio-iran-nuclear.html
 `President Trump says the U.S. and Iran could be close to a peace deal. The big issues at stake include the fate of Iran’s nuclear program and reopening the Strait of Hormuz.`\
 https://www.nytimes.com/2026/05/24/world/middleeast/five-main-issues-iran-israel-nuclear.html
 
-**U.S. and Iran Agree in Principle to a Deal to Reopen the Strait of Hormuz, U.S. Official Says**\
+**U.S. and Iran Agree in Principle to Reopen the Strait of Hormuz, U.S. Official Says**\
 `The deal does not address Iran’s missile stockpile nor does it stipulate a moratorium on enrichment.`\
 https://www.nytimes.com/2026/05/24/us/strait-of-hormuz-reopen-iran-deal.html
 
