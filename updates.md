@@ -1,3 +1,7 @@
+**Israeli Leaders Say Little About Trump’s Potential Iran Deal**\
+`Analysts said the near silence reflected worries that an agreement will not significantly degrade Iran’s nuclear and missile capabilities.`\
+https://www.nytimes.com/2026/05/24/world/middleeast/iran-deal-israel-reaction.html
+
 **Iran Projects Victory in Potential Deal With Washington**\
 `Iran’s leaders argue that the possible preliminary agreement has not extracted any major concessions.`\
 https://www.nytimes.com/2026/05/24/world/europe/iran-war-leaders-peace-deal.html
