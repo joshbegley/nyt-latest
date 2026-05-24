@@ -1,3 +1,7 @@
+**Israeli Leader Says He and Trump Agree On Blocking an Iranian Nuclear Weapon**\
+`Analysts said Israel was worried that a potential agreement would not significantly degrade Iran’s nuclear and missile capabilities.`\
+https://www.nytimes.com/2026/05/24/world/middleeast/iran-deal-israel-reaction.html
+
 **Lo que hay que saber sobre el posible acuerdo de paz entre EE. UU. e Irán**\
 `El presidente Trump dijo que estaba cerca de alcanzar un acuerdo con Irán. Sin embargo, hasta el domingo por la mañana no estaba claro qué habían acordado EE. UU. e Irán.`\
 https://www.nytimes.com/es/2026/05/24/espanol/estados-unidos/ee-uu-iran-acuerdo-paz.html
