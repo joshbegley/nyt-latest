@@ -1,3 +1,91 @@
+**A Deciding Factor in Congress Right Now: Who Shows Up to Vote**\
+`Vacant seats, and consistently poor attendance on both sides of the aisle, have exacerbated the challenges of already razor-thin margins in the House and Senate.`\
+https://www.nytimes.com/2026/05/24/us/congress-vote-absence-vacancy-math.html
+
+**With Big Decisions Ahead, the Supreme Court Collides With a Testy Trump**\
+`President Trump has alternated between bullying the justices and cozying up to them as the court prepares to announce major decisions that will determine the fate of the key aspects of his agenda.`\
+https://www.nytimes.com/2026/05/24/us/politics/supreme-court-trump-vance.html
+
+**Alamo Drafthouse Instituted Mobile Ordering. Super Fans Are Not Pleased.**\
+`Known for its strict no-phones policy, the Alamo Drafthouse has instituted mobile ordering for its in-seat meals, upsetting some of its biggest fans.`\
+https://www.nytimes.com/2026/05/24/movies/alamo-drafthouse-mobile-ordering.html
+
+**Sanders and Ocasio-Cortez Try Boosting Progressives in Red Districts**\
+`In highly competitive House races that Democrats need to flip in November, the left is betting that calls for universal health care and taxing the wealthy will resonate — even among Republicans.`\
+https://www.nytimes.com/2026/05/24/us/politics/bernie-sanders-swing-district-liberals.html
+
+**RFK Jr.’s Push to Curb Antidepressants Has Shaken Psychiatry**\
+`An annual psychiatric meeting was abuzz over Robert F. Kennedy Jr.’s call to rein in the use of depression medications. Some fear it will drive patients away from care.`\
+https://www.nytimes.com/2026/05/24/science/rfk-jr-antidepressants-ssri-psychiatry.html
+
+**How This Summer’s Movies Shift the Connection With Their Related Toys**\
+`“The Mandalorian and Grogu,” “Masters of the Universe” and “Toy Story 5” hail from franchises that are shifting the connection with related products.`\
+https://www.nytimes.com/2026/05/24/movies/summer-movies-toy-products-star-wars-toy-story.html
+
+**Nick Kroll Keeps It Raunchy and Animated with “Mating Season”**\
+`With “Mating Season,” Nick Kroll continues to lead the pack when it comes to the booming genre of cartoons that revel in their raciness.`\
+https://www.nytimes.com/2026/05/24/arts/hes-the-modern-master-of-raunchy-animation.html
+
+**UK Institute Is Hunting for Dangers Lurking in AI**\
+`The government’s A.I. Security Institute, staffed by alumni from OpenAI and Google, is becoming a model for countries grappling with A.I.’s emerging risks.`\
+https://www.nytimes.com/2026/05/24/technology/uk-ai-safety-institute.html
+
+**One Job That Is Growing in the A.I. Era? Cybersecurity Experts.**\
+`Demand for security engineers has surged as artificial intelligence generates a glut of new code and models like Anthropic’s Mythos create new concerns.`\
+https://www.nytimes.com/2026/05/24/technology/one-job-that-is-growing-in-the-ai-era-cybersecurity-experts.html
+
+**What Happens When Militancy Conflicts With Motherhood**\
+`Two “Weather kids” reckon with the unyielding political convictions that compromised their parents’ domestic duties.`\
+https://www.nytimes.com/2026/05/24/magazine/radical-parents-books-weather-underground.html
+
+**To A.I. Executives, We’re All Just ‘Meat Computers’**\
+`A term first used in philosophy and cognitive science circles has lately taken on a more ominous cast. Moo.`\
+https://www.nytimes.com/2026/05/24/business/meat-computer-brain-artificial-intelligence.html
+
+**How Marilyn Monroe Gave a Smart Gloss to Her Image**\
+`It was all about self-improvement for the actress, who was born a century ago next week. Two new volumes shed light on the books she collected and the intellectual she married.`\
+https://www.nytimes.com/2026/05/24/books/review/marilyn-monroe-books-arthur-miller.html
+
+**They Started I.V.F., Then Split. Now Who Gets Custody of the Embryos?**\
+`For 47-year-old Erin Millender, this will likely be her last chance to become a mother. Her husband no longer wants to have a child with her.`\
+https://www.nytimes.com/2026/05/24/us/ivf-embryos-custody.html
+
+**Trump Endorsement Shakes John Cornyn in Texas Senate Runoff Against Ken Paxton**\
+`A tough re-election race grew more daunting after President Trump backed Mr. Cornyn’s opponent, Ken Paxton. The Texas senator has vowed to fight to the end.`\
+https://www.nytimes.com/2026/05/24/us/john-cornyn-ken-paxton-texas-runoff.html
+
+**Blind Waymo Users Revel in the Joy of Riding Alone**\
+`Waymo has been an object of frustration to some in California. For visually impaired people, it can also bring a rare feeling of independence.`\
+https://www.nytimes.com/2026/05/24/us/waymo-robot-taxis-blind.html
+
+**Summer’s Best Beach Reads**\
+`If you happen to be near a body of water (salt, fresh, chlorinated or otherwise), here are the books you’ll need.`\
+https://www.nytimes.com/2026/05/24/books/review/summer-beach-reads.html
+
+**In Homeless Crisis, California ‘Is Waging a War on R.V.s’**\
+`The R.V.s are seen as an eyesore — the most visible sign of the state’s homelessness crisis. Neighbors and politicians want them gone. The people who call them home feel under siege.`\
+https://www.nytimes.com/2026/05/24/us/california-homeless-cars-rvs.html
+
+**How a Curious FIFA Deal Gave Fox a Huge Bargain for World Cup Broadcast Rights**\
+`A decision to stave off litigation between Fox and FIFA turned into a bonanza worth hundreds of millions of dollars in discounted World Cup rights to the broadcaster.`\
+https://www.nytimes.com/2026/05/24/world/europe/fifa-world-cup-fox-broadcast-rights.html
+
+**How Prediction Markets and Crypto Firms Steamrolled a Watchdog Agency**\
+`The Commodity Futures Trading Commission purged its ranks, dialed back its enforcement and boosted industries in which President Trump’s family is heavily invested.`\
+https://www.nytimes.com/2026/05/24/us/how-prediction-markets-and-crypto-firms-steamrolled-a-watchdog-agency.html
+
+**Do U.S. Automakers Have a Future in Canada?**\
+`Detroit-based automakers pioneered open trade between Canada and the United States, benefiting both countries. President Trump’s trade war now leaves their future in the country in question.`\
+https://www.nytimes.com/2026/05/24/world/canada/auto-industry-canada-detroit-ontario-car-tariffs.html
+
+**As Rents Soar, Londoners Turn to Vacant Pubs, Offices and Police Stations**\
+`Property guardianship, in which residents live in otherwise vacant buildings, used to be considered edgy. But as the rental market tightens, more people are embracing the arrangement.`\
+https://www.nytimes.com/2026/05/24/world/europe/london-guardianships-rent-cost-of-living.html
+
+**At an LA Costco, Skateboarding and Learning About Loss**\
+`We’re all going to die. But first — just one more trick.`\
+https://www.nytimes.com/2026/05/24/business/economy/costco-curbs-skateboarding-genx.html
+
 **Martin Short y el secreto para encontrar la alegría en los momentos difíciles**\
 `La estrella de la comedia, quien es objeto de un nuevo documental, se ha enfrentado a una serie de pérdidas inimaginables. Sin embargo, dice que siempre hay risas que recordar.`\
 https://www.nytimes.com/es/2026/05/24/espanol/cultura/martin-short-entrevista.html
@@ -109,92 +197,4 @@ https://www.nytimes.com/2026/05/23/movies/cannes-palme-dor-winner-fjord.html
 **40,000 Ordered to Evacuate in California Amid Toxic Chemical Tank Crisis**\
 `Firefighters worked on Saturday at the GKN Aerospace aircraft components plant in Garden Grove, Calif., to stop a storage tank filled with a toxic chemical from failing, risking a major explosion or a toxic spill.`\
 https://www.nytimes.com/video/us/100000010922667/chemical-leak-orange-county.html
-
-**Graduating Into A.I. Pessimism**\
-`Backlash to artificial intelligence is here, and digital natives are leading the charge. The Opinion columnist Michelle Goldberg argues that the A.I. pessimism in America stems from a lack of responsible regulation.`\
-https://www.nytimes.com/video/opinion/100000010918890/graduating-into-ai-pessimism.html
-
-**Investigators Look Into Staten Island Blasts That Killed Shipyard Worker**\
-`The explosions at May Ship Repair Contracting Corporation, which erupted after a fire on a dock, killed one of the company’s subcontractors, a representative said.`\
-https://www.nytimes.com/2026/05/23/nyregion/explosions-worker-killed-staten-island.html
-
-**Here’s the latest.**\
-`PresidTrump provided few details about the preliminary agreement, which he said was “largely negotiated.”`\
-https://www.nytimes.com/2026/05/23/world/middleeast/heres-the-latest.html
-
-**Grizz Chapman, Actor Known for His Role on ’30 Rock,’ Dies at 52**\
-`Mr. Chapman, who played a member of Tracy Morgan’s entourage on the show, died on Friday, according to his cousin.`\
-https://www.nytimes.com/2026/05/23/arts/television/grizz-chapman-dead.html
-
-**Colbert’s Sudden Return to Late Night? It Happened on Public Access.**\
-`A day after the comedian hosted the final episode of “The Late Show With Stephen Colbert” on CBS, he hosted “Only in Monroe,” a community-access program in Monroe, Mich.`\
-https://www.nytimes.com/2026/05/23/arts/television/stephen-colbert-michigan-public-access.html
-
-**Dozens Killed in Coal Mine Explosion, China State Media Says**\
-`A gas explosion at a coal mine in northern China killed dozens on Friday, according to Xinhua, a Chinese state news agency. In 2024, China’s National Mine Safety Administration cited the coal mine for “severe safety hazards” and high gas levels. As of Saturday morning, the cause of the explosion was still unknown, according to CCTV, the Chinese state broadcaster.`\
-https://www.nytimes.com/video/world/asia/100000010922659/china-coal-mine-explosion-deaths.html
-
-**Los cubanoestadounidenses de Florida aumentan la ayuda a sus familiares en Cuba**\
-`Meses después del inicio del bloqueo petrolero impuesto por el presidente Trump, muchos cubanos dependen más que nunca de sus familiares en EE. UU. para cubrir sus necesidades diarias.`\
-https://www.nytimes.com/es/2026/05/23/espanol/estados-unidos/florida-envios-ayuda-cuba.html
-
-**Trump Is Setting His Sights on Restricting Legal Immigration**\
-`After a year focused on immigrants here illegally, the Trump administration is now making it harder for legal migrants to stay in the country. It is a risky pivot.`\
-https://www.nytimes.com/2026/05/23/us/politics/trump-legal-immigration.html
-
-**Brooklyn Man Wedged in Upstate New York Cave Is Rescued After 6 Hours**\
-`A cave explorer got stuck in a narrow crevice and developed hypothermia. Rescuers brought him miniature Reese’s Peanut Butter Cups to keep his energy up.`\
-https://www.nytimes.com/2026/05/23/nyregion/merlin-cave-rescue-new-york.html
-
-**France Bans Israeli Minister Over Treatment of Detained Flotilla Activists**\
-`Itamar Ben-Gvir, the Israeli national security minister, has long drawn criticism for his hard-line statements and harsh policies against Palestinian prisoners.`\
-https://www.nytimes.com/2026/05/23/world/middleeast/ben-gvir-travel-ban-france.html
-
-**Garden Grove Chemical Tank Could Be Inching Toward Explosion, Authorities Say**\
-`Firefighters still have few options to prevent a tank of toxic chemicals in Garden Grove, Calif., from leaking or exploding.`\
-https://www.nytimes.com/2026/05/23/us/garden-grove-chemical-tank-orange-county.html
-
-**Trump Administration Chips Away at Last Traces of Broad Inquiry Into Jan. 6**\
-`Two recent moves aligned the department ever more closely with President Trump’s own efforts to whitewash the events of that day.`\
-https://www.nytimes.com/2026/05/23/us/politics/trump-prosecutors-jan-6.html
-
-**Inside the $1.8 Billion MAGA Payout Fund**\
-`Americans should be cleareyed about what President Trump is doing: He is taking $1.8 billion worth of taxpayer money and rewarding loyalists willing to defy the law and commit violence. The Times editorial board explains in this video.`\
-https://www.nytimes.com/video/opinion/100000010919618/inside-the-1-8-billion-maga-payout-fund.html
-
-**Donald Trump Jr. and Bettina Anderson Celebrate Marriage on Bahamas Private Island**\
-`After getting legally married in Palm Beach, the couple exchanged vows in the Caribbean this weekend, according to a spokesman.`\
-https://www.nytimes.com/2026/05/23/style/donald-trump-jr-bettina-anderson-wedding.html
-
-**A Lull in Fighting Gave Time to Bury Their Dead**\
-`In the relative calm of the early days of a cease-fire, there were heart-rending scenes as people exhumed their loved ones from temporary graves and reburied them.`\
-https://www.nytimes.com/2026/05/23/world/europe/lebanon-war-burials.html
-
-**Husband of Prominent New York Gallerist Convicted in Murder-for-Hire Plot**\
-`Brent Sikkema, who championed artists like Kara Walker, was found stabbed to death in his apartment in Brazil in 2024 amid divorce proceedings with his spouse.`\
-https://www.nytimes.com/2026/05/23/arts/design/brent-sikkema-murder-guilty.html
-
-**Garden Grove Chemical Plant Crisis: What to Know and Evacuation Map**\
-`Firefighters continue to cool a chemical storage tank with water to prevent it from breaching or exploding. Some 40,000 residents near the Orange County plant have been evacuated to shelters.`\
-https://www.nytimes.com/2026/05/23/us/garden-grove-chemical-plant-leak-evacuations.html
-
-**What to Know About Lifeguards as New York City’s Beaches Open for Summer**\
-`City beaches are back open, though outdoor pools won’t open for another month. Here’s where things stand at the unofficial start of summer.`\
-https://www.nytimes.com/2026/05/23/nyregion/nyc-beaches-pools-lifeguards.html
-
-**Israeli Strikes Pummel Lebanon, Killing Medics Amid Fragile Truce**\
-`Saturday’s strikes damaged a main hospital in the Lebanese city of Tyre, as funerals for paramedics killed a day earlier were held.`\
-https://www.nytimes.com/2026/05/23/world/middleeast/israel-strikes-lebanon-medics.html
-
-**A Fresher, Brighter Macaroni Salad**\
-`Alexa Weibel’s macaroni salad with lemon and herbs complements anything off the grill (and will get you compliments).`\
-https://www.nytimes.com/2026/05/23/dining/a-fresher-brighter-macaroni-salad.html
-
-**Alexandros Giotopoulos of November 17, Greek Militant Group, Is Freed**\
-`The release of Alexandros Giotopoulos was denounced by relatives of people killed by November 17, a Greek far-left group that was active between 1975 and 2002.`\
-https://www.nytimes.com/2026/05/23/world/europe/greece-november-17-alexandros-giotopoulos.html
-
-**These Are a Few of My Favorite Picnic Treats**\
-`Chewy brownie cookies, peanut butter blackberry bars and pistachio halvah Rice Krispies treats travel well and hold up in the sun.`\
-https://www.nytimes.com/2026/05/23/dining/these-are-a-few-of-my-favorite-picnic-treats.html
 
