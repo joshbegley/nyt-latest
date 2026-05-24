@@ -1,3 +1,11 @@
+**Caught Flat-Footed, a City Races to Catch Up With Ebola**\
+`The deadly virus has spread alarmingly in Congo for months. Only now is the response taking shape.`\
+https://www.nytimes.com/2026/05/24/world/africa/ebola-virus-congo-response.html
+
+**Iran War Live Updates: U.S.-Iran Peace Deal Nearer, But Could Take Days to Nail Down, U.S. Official Says**\
+`The official said the sides had agreed in principle to reopen the Strait of Hormuz and commit Iran to disposing of its highly enriched uranium, but stressed that a deal had not yet been signed.`\
+https://www.nytimes.com/live/2026/05/24/world/iran-war-trump
+
 **The Art of the Incomplete Deal: the Hard Issues on Iran Come Later**\
 `President Trump is hailing is agreement with Iran as groundbreaking, even as he admits is “isn’t even fully negotiated.” But the nuclear stockpile, enrichment and missiles have not been discussed.`\
 https://www.nytimes.com/2026/05/24/us/strait-of-hormuz-reopen-iran-deal.html

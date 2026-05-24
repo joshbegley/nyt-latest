@@ -1,3 +1,7 @@
+**Caught Flat-Footed, a City Races to Catch Up With Ebola**\
+`The deadly virus has spread alarmingly in Congo for months. Only now is the response taking shape.`\
+https://www.nytimes.com/2026/05/24/world/africa/ebola-virus-congo-response.html
+
 **Manny Nosowsky, Waggish Crossword Constructor for The New York Times, Dies at 94**\
 `For nearly two decades, the prolific puzzle maker, a retired urologist, charmed solvers with his penchant for witty, waggish puns.`\
 https://www.nytimes.com/2026/05/24/us/manny-nosowsky-dead.html
@@ -130,8 +134,8 @@ https://www.nytimes.com/2026/05/24/opinion/doctor-ai-chatgpt.html
 `Scroll down for hints and conversation about the puzzle for Monday, May 25, 2026.`\
 https://www.nytimes.com/2026/05/24/crosswords/strands-sidekick-813.html
 
-**Iran War Live Updates: U.S. and Iran Agree in Principle to Reopen Strait of Hormuz, U.S. Official Says**\
-`The official said Iran had also agreed to dispose of highly enriched uranium, but stressed that a deal had not yet been signed. American and Iranian officials have described the terms differently.`\
+**Iran War Live Updates: U.S.-Iran Peace Deal Nearer, But Could Take Days to Nail Down, U.S. Official Says**\
+`The official said the sides had agreed in principle to reopen the Strait of Hormuz and commit Iran to disposing of its highly enriched uranium, but stressed that a deal had not yet been signed.`\
 https://www.nytimes.com/live/2026/05/24/world/iran-war-trump
 
 **What to Know About the Potential U.S.-Iran Peace Deal**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/24/us/ivf-embryos-custody.html
 **Trump Endorsement Shakes John Cornyn in Texas Senate Runoff Against Ken Paxton**\
 `A tough re-election race grew more daunting after President Trump backed Mr. Cornyn’s opponent, Ken Paxton. The Texas senator has vowed to fight to the end.`\
 https://www.nytimes.com/2026/05/24/us/john-cornyn-ken-paxton-texas-runoff.html
-
-**Blind Waymo Users Revel in the Joy of Riding Alone**\
-`Waymo has been an object of frustration to some in California. For visually impaired people, it can also bring a rare feeling of independence.`\
-https://www.nytimes.com/2026/05/24/us/waymo-robot-taxis-blind.html
 
