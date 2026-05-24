@@ -19,11 +19,11 @@ https://www.nytimes.com/2026/05/24/dining/grilled-salmon-salad-with-lime-chiles-
 https://www.nytimes.com/2026/05/24/us/politics/rubio-india-trump-visit.html
 
 **Iran Projects Victory in Potential Deal With Washington**\
-`Iran’s leaders are playing up the positives, saying the war proved that an underdog could take on the world’s superpower. But Tehran faces big challenges after a devastating conflict.`\
+`Iran’s leaders argue that the possible preliminary agreement has not extracted any major concessions.`\
 https://www.nytimes.com/2026/05/24/world/europe/iran-war-leaders-peace-deal.html
 
-**Fate of War in Lebanon Rests With Outside Powers**\
-`A day after President Trump announced an emerging initial peace deal with Iran, Lebanese people wondered what it meant for the war between Israel and Hezbollah, the Iran-backed militant group.`\
+**Fate of War in Lebanon Rests Mostly With Outside Powers**\
+`A U.S.-Iran peace deal could calm the conflict in Lebanon between Israel and Hezbollah. But that will depend mainly on what the United States, Iran and Israel decide.`\
 https://www.nytimes.com/2026/05/24/world/middleeast/lebanon-hezbollah-us-iran-israel.html
 
 **Colbert’s Connection**\
@@ -35,7 +35,7 @@ https://www.nytimes.com/2026/05/24/briefing/colberts-connection.html
 https://www.nytimes.com/2026/05/24/world/asia/pakistan-train-bomb-attack-derailment.html
 
 **Israeli Leaders Say Little About Trump’s Potential Iran Deal**\
-`Analysts said the silence reflected Israeli worries that an agreement will not significantly degrade Iran’s nuclear and missile capabilities.`\
+`Analysts said the silence reflected worries that an agreement will not significantly degrade Iran’s nuclear and missile capabilities.`\
 https://www.nytimes.com/2026/05/24/world/middleeast/iran-deal-israel-reaction.html
 
 **Mets Fans Are Struggling. Be Gentle.**\

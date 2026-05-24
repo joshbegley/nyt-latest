@@ -1,4 +1,16 @@
 **Iran Projects Victory in Potential Deal With Washington**\
+`Iran’s leaders argue that the possible preliminary agreement has not extracted any major concessions.`\
+https://www.nytimes.com/2026/05/24/world/europe/iran-war-leaders-peace-deal.html
+
+**Fate of War in Lebanon Rests Mostly With Outside Powers**\
+`A U.S.-Iran peace deal could calm the conflict in Lebanon between Israel and Hezbollah. But that will depend mainly on what the United States, Iran and Israel decide.`\
+https://www.nytimes.com/2026/05/24/world/middleeast/lebanon-hezbollah-us-iran-israel.html
+
+**Israeli Leaders Say Little About Trump’s Potential Iran Deal**\
+`Analysts said the silence reflected worries that an agreement will not significantly degrade Iran’s nuclear and missile capabilities.`\
+https://www.nytimes.com/2026/05/24/world/middleeast/iran-deal-israel-reaction.html
+
+**Iran Projects Victory in Potential Deal With Washington**\
 `Iran’s leaders are playing up the positives, saying the war proved that an underdog could take on the world’s superpower. But Tehran faces big challenges after a devastating conflict.`\
 https://www.nytimes.com/2026/05/24/world/europe/iran-war-leaders-peace-deal.html
 
