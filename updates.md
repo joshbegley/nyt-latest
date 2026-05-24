@@ -1,3 +1,7 @@
+**Iran Projects Victory in Potential Deal With Washington**\
+`Iran’s leaders are playing up the positives — an underdog proved capable of taking on two nuclear armed powers.`\
+https://www.nytimes.com/2026/05/24/world/europe/iran-projects-victory-in-potential-deal-with-washington.html
+
 **Fate of War in Lebanon Rests With Outside Powers**\
 `A day after President Trump announced an emerging initial peace deal with Iran, Lebanese people wondered what it meant for the war between Israel and Hezbollah, the Iran-backed militant group.`\
 https://www.nytimes.com/2026/05/24/world/middleeast/lebanon-hezbollah-us-iran-israel.html
