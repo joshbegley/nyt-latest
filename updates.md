@@ -1,3 +1,7 @@
+**To Get the Strait Open, Trump Had to Leave the Hardest Issues for Later**\
+`President Trump is hailing is agreement with Iran as groundbreaking, even as he admits is “isn’t even fully negotiated.” But the nuclear stockpile, enrichment and missiles have not been discussed.`\
+https://www.nytimes.com/2026/05/24/us/strait-of-hormuz-reopen-iran-deal.html
+
 **Reopening of Strait of Hormuz Still a Question Mark**\
 `Without the details of a formal agreement, it is unclear how soon normal shipping will resume and when oil prices will start to come down.`\
 https://www.nytimes.com/2026/05/24/business/strait-of-hormuz-reopen-iran.html
