@@ -1,3 +1,15 @@
+**What to Know About the Citizenship Lists Trump Wants to Create**\
+`President Trump is trying to create individual lists of citizens by state to determine who can vote, even as his administration acknowledges they would be unreliable.`\
+https://www.nytimes.com/2026/05/24/us/politics/trump-lists-noncitizens-states.html
+
+**Secretary Rubio Says U.S. Made “Significant Progress” Toward Interim Deal with Iran**\
+`Secretary of State Marco Rubio said the Trump administration made “significant progress” toward a deal with Iran. A senior U.S. official also said that the U.S. and Iran had agreed in principle to reopen the Strait of Hormuz and to have Iran dispose of its nuclear material. Iran has not commented publicly on the potential agreement.`\
+https://www.nytimes.com/video/world/middleeast/100000010923453/marco-rubio-iran-peace-deal.html
+
+**NYT Crossword Answers for May 25, 2026**\
+`Looking for answers to Anthony Grubb’s puzzle? You’re getting warmer.`\
+https://www.nytimes.com/2026/05/24/crosswords/daily-puzzle-2026-05-25.html
+
 **To Get the Strait Open, Trump Had to Leave the Hardest Issues for Later**\
 `President Trump is hailing is agreement with Iran as groundbreaking, even as he admits is “isn’t even fully negotiated.” But the nuclear stockpile, enrichment and missiles have not been discussed.`\
 https://www.nytimes.com/2026/05/24/us/strait-of-hormuz-reopen-iran-deal.html
