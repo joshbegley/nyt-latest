@@ -1,3 +1,7 @@
+**Israeli Leaders Say Little About Trump’s Potential Iran Deal**\
+`Analysts said the silence reflected Israeli worries that an agreement will not significantly degrade Iran’s nuclear and missile capabilities.`\
+https://www.nytimes.com/2026/05/24/world/middleeast/iran-deal-israel-reaction.html
+
 **Mets Fans Are Struggling. Be Gentle.**\
 `The Mets keep finding ways to disappoint us. And we still keep finding ways to never give up hope.`\
 https://www.nytimes.com/2026/05/24/opinion/mets-fans-baseball-lose.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/24/style/debbie-downer-is-enjoying-an-upswing.ht
 **Corrections: May 24, 2026**\
 `Corrections that appeared in print on Sunday, May 24, 2026.`\
 https://www.nytimes.com/2026/05/24/pageoneplus/corrections-may-24-2026.html
-
-**Quote of the Day: Europe Has Interest in Talking Peace With Putin, but Questions Remain**\
-`Quotation of the Day for Sunday, May 24, 2026.`\
-https://www.nytimes.com/2026/05/23/pageoneplus/quote-of-the-day-europe-has-interest-in-talking-peace-with-putin-but-questions-remain.html
 
