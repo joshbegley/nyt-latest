@@ -1,3 +1,7 @@
+**Israel’s President, Isaac Herzog, Denounces Israeli Violence**\
+`In a speech, Isaac Herzog, whose role is largely ceremonial, delivered a grave indictment of settler attacks in the West Bank and abuse of prisoners.`\
+https://www.nytimes.com/2026/05/24/world/middleeast/israel-herzog-violence.html
+
 **Caught Flat-Footed, a City Races to Catch Up With Ebola**\
 `The deadly virus has spread alarmingly in Congo for months. Only now is the response taking shape.`\
 https://www.nytimes.com/2026/05/24/world/africa/ebola-virus-congo-response.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/24/books/review/marilyn-monroe-books-arthur-mill
 **They Started I.V.F., Then Split. Now Who Gets Custody of the Embryos?**\
 `For 47-year-old Erin Millender, this will likely be her last chance to become a mother. Her husband no longer wants to have a child with her.`\
 https://www.nytimes.com/2026/05/24/us/ivf-embryos-custody.html
-
-**Trump Endorsement Shakes John Cornyn in Texas Senate Runoff Against Ken Paxton**\
-`A tough re-election race grew more daunting after President Trump backed Mr. Cornyn’s opponent, Ken Paxton. The Texas senator has vowed to fight to the end.`\
-https://www.nytimes.com/2026/05/24/us/john-cornyn-ken-paxton-texas-runoff.html
 
