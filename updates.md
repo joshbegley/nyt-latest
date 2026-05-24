@@ -1,3 +1,39 @@
+**Sites Unseen: What’s Revealed by Traveling With the Blind**\
+`How an extraordinary trip to India changed one photographer’s perspective on travel`\
+https://www.nytimes.com/2026/05/24/podcasts/the-daily/sites-unseen-whats-revealed-by-traveling-with-the-blind.html
+
+**Stop Whining About Guardrails. Become One Yourself.**\
+`Let’s put the sovereign back Into popular sovereignty.`\
+https://www.nytimes.com/2026/05/24/opinion/trump-guardrails-popular-sovereignty.html
+
+**NYT Connections Answers for May 25, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, May 25, 2026.`\
+https://www.nytimes.com/2026/05/24/crosswords/connections-companion-1079.html
+
+**Today’s Wordle Hints for May 25, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, May 25, 2026.`\
+https://www.nytimes.com/2026/05/24/crosswords/wordle-review-1801.html
+
+**How Democrats Can Improve Their Odds, According to a Nobel Economist**\
+`An expert in human behavior explains how Democrats can change their primary process to improve their chances in 2028.`\
+https://www.nytimes.com/2026/05/24/opinion/democrats-2028-election-expert.html
+
+**As a Doctor, I Can Understand the Allure of ChatGPT**\
+`Even doctors can learn something from A.I.`\
+https://www.nytimes.com/2026/05/24/opinion/doctor-ai-chatgpt.html
+
+**NYT Strands Hints for May 25, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, May 25, 2026.`\
+https://www.nytimes.com/2026/05/24/crosswords/strands-sidekick-813.html
+
+**Iran War Live Updates: U.S. and Iran Signal Move Toward Initial Peace Deal, but Details Remain Murky**\
+`President Trump said the United States and Iran had “largely negotiated” an agreement, even as American and Iranian officials described the terms differently.`\
+https://www.nytimes.com/live/2026/05/24/world/iran-war-trump
+
+**What to Know About the Potential U.S.-Iran Peace Deal**\
+`President Trump said on Saturday that an agreement to end the war was “largely negotiated,” but neither the United States nor Iran released many details of the proposal.`\
+https://www.nytimes.com/2026/05/24/world/middleeast/what-to-know-about-the-potential-iran-peace-deal.html
+
 **What to Know About the Potential Iran Peace Deal**\
 `President Trump said on Saturday that an agreement to end the war was “largely negotiated,” but neither the United States nor Iran released many details of the proposal.`\
 https://www.nytimes.com/2026/05/24/world/middleeast/what-to-know-about-the-potential-iran-peace-deal.html
