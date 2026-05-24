@@ -1,3 +1,11 @@
+**Lo que hay que saber sobre el posible acuerdo de paz entre EE. UU. e Irán**\
+`El presidente Trump dijo que estaba cerca de alcanzar un acuerdo con Irán. Sin embargo, hasta el domingo por la mañana no estaba claro qué habían acordado EE. UU. e Irán.`\
+https://www.nytimes.com/es/2026/05/24/espanol/estados-unidos/ee-uu-iran-acuerdo-paz.html
+
+**Sobreviví al ébola. Esto es lo que más me asusta de este brote**\
+`El gobierno de Donald Trump recortó los programas destinados a coordinar una respuesta a esta enfermedad.`\
+https://www.nytimes.com/es/2026/05/24/espanol/opinion/ebola-sobreviviente-brote.html
+
 **For Carlo Petrini, the Point of ‘Slow Food’ Wasn’t the Food. It Was Us.**\
 `The Italian activist, who died on Thursday, built his global movement on the idea that eating well could make modern life more meaningful.`\
 https://www.nytimes.com/2026/05/24/dining/carlo-petrini-slow-food.html
