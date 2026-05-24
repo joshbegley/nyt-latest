@@ -1,3 +1,7 @@
+**A Refuge in the Arctic**\
+`A postcard from the northernmost church on Earth.`\
+https://www.nytimes.com/2026/05/23/briefing/svalbard.html
+
 **Three Drake Albums, Three Songs of the Week**\
 `On this triple-track edition of the “Popcast” Song of the Week, our critic Jon Caramanica unpacks the themes of Drake’s latest era.`\
 https://www.nytimes.com/video/podcasts/100000010922000/three-drake-albums-three-songs-of-the-week.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/23/magazine/who-will-get-our-house-ethics.html
 **NYT Connections Answers for May 24, 2026**\
 `Scroll down for hints and conversation about the puzzle for Sunday, May 24, 2026.`\
 https://www.nytimes.com/2026/05/23/crosswords/connections-companion-1078.html
-
-**Today’s Wordle Hints for May 24, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, May 24, 2026.`\
-https://www.nytimes.com/2026/05/23/crosswords/wordle-review-1800.html
 
