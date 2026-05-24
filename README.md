@@ -27,7 +27,7 @@ https://www.nytimes.com/2026/05/24/business/media/mandalorian-and-grogu-box-offi
 https://www.nytimes.com/2026/05/24/science/rafe-pomerance-dead.html
 
 **Firefighters Still Working to Cool Garden Grove Chemical Tank**\
-`The tank, filled with a toxic chemical, is at risk of explosion or breach. More than 40,000 residents remain under evacuation orders.`\
+`The tank, filled with a toxic chemical, may have formed a crack, officials said. More than 40,000 residents remain under evacuation orders because of the potential for a breach or explosion.`\
 https://www.nytimes.com/2026/05/24/us/chemical-tank-garden-grove-southern-california.html
 
 **What to Know About the White House Shooting on Memorial Day Weekend**\
