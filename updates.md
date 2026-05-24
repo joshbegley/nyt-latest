@@ -1,3 +1,7 @@
+**Firefighters Still Working to Cool Garden Grove Chemical Tank**\
+`The tank in Southern California has been building in temperature and pressure for days, which could lead to an explosive release. The crack may reduce some of that pressure, officials said.`\
+https://www.nytimes.com/2026/05/24/us/chemical-tank-garden-grove-southern-california.html
+
 **Senate Republicans Cast Doubt on a Potential Peace Deal With Iran**\
 `Lawmakers, including some of President Trump’s closest allies, slammed the emerging agreement as effectively undermining the president’s own war goals.`\
 https://www.nytimes.com/2026/05/24/world/middleeast/senate-republicans-iran-deal-trump.html
