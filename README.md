@@ -86,8 +86,8 @@ https://www.nytimes.com/2026/05/24/briefing/colberts-connection.html
 `The explosion was so powerful that several nearby buildings were damaged and a resident 15 miles away was jolted awake by the blast. A separatist group claimed responsibility.`\
 https://www.nytimes.com/2026/05/24/world/asia/pakistan-train-bomb-attack-derailment.html
 
-**Israeli Leader Says He and Trump Agree on Blocking an Iranian Nuclear Weapon**\
-`Analysts said Israel is worried that a potential agreement will not significantly degrade Iran’s nuclear and missile capabilities.`\
+**Israeli Leader Says He and Trump Agree On Blocking an Iranian Nuclear Weapon**\
+`Analysts said Israel was worried that a potential agreement would not significantly degrade Iran’s nuclear and missile capabilities.`\
 https://www.nytimes.com/2026/05/24/world/middleeast/iran-deal-israel-reaction.html
 
 **Mets Fans Are Struggling. Be Gentle.**\
