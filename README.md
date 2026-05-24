@@ -1,8 +1,36 @@
+**Sites Unseen: What’s Revealed by Traveling With the Blind**\
+`How an extraordinary trip to India changed one photographer’s perspective on travel`\
+https://www.nytimes.com/2026/05/24/podcasts/the-daily/sites-unseen-whats-revealed-by-traveling-with-the-blind.html
+
+**Stop Whining About Guardrails. Become One Yourself.**\
+`Let’s put the sovereign back Into popular sovereignty.`\
+https://www.nytimes.com/2026/05/24/opinion/trump-guardrails-popular-sovereignty.html
+
+**NYT Connections Answers for May 25, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, May 25, 2026.`\
+https://www.nytimes.com/2026/05/24/crosswords/connections-companion-1079.html
+
+**Today’s Wordle Hints for May 25, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, May 25, 2026.`\
+https://www.nytimes.com/2026/05/24/crosswords/wordle-review-1801.html
+
+**How Democrats Can Improve Their Odds, According to a Nobel Economist**\
+`An expert in human behavior explains how Democrats can change their primary process to improve their chances in 2028.`\
+https://www.nytimes.com/2026/05/24/opinion/democrats-2028-election-expert.html
+
+**As a Doctor, I Can Understand the Allure of ChatGPT**\
+`Even doctors can learn something from A.I.`\
+https://www.nytimes.com/2026/05/24/opinion/doctor-ai-chatgpt.html
+
+**NYT Strands Hints for May 25, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, May 25, 2026.`\
+https://www.nytimes.com/2026/05/24/crosswords/strands-sidekick-813.html
+
 **Iran War Live Updates: U.S. and Iran Signal Move Toward Initial Peace Deal, but Details Remain Murky**\
 `President Trump said the United States and Iran had “largely negotiated” an agreement, even as American and Iranian officials described the terms differently.`\
 https://www.nytimes.com/live/2026/05/24/world/iran-war-trump
 
-**What to Know About the Potential Iran Peace Deal**\
+**What to Know About the Potential U.S.-Iran Peace Deal**\
 `President Trump said on Saturday that an agreement to end the war was “largely negotiated,” but neither the United States nor Iran released many details of the proposal.`\
 https://www.nytimes.com/2026/05/24/world/middleeast/what-to-know-about-the-potential-iran-peace-deal.html
 
@@ -169,32 +197,4 @@ https://www.nytimes.com/2026/05/23/pageoneplus/quote-of-the-day-europe-has-inter
 **A Refuge in the Arctic**\
 `A postcard from the northernmost church on Earth.`\
 https://www.nytimes.com/2026/05/23/briefing/svalbard.html
-
-**Three Drake Albums, Three Songs of the Week**\
-`On this triple-track edition of the “Popcast” Song of the Week, our critic Jon Caramanica unpacks the themes of Drake’s latest era.`\
-https://www.nytimes.com/video/podcasts/100000010922000/three-drake-albums-three-songs-of-the-week.html
-
-**Iran Agreed to Give Up Enriched Uranium in Deal Announced by Trump, U.S. Officials Say**\
-`Precise details were unclear but the officials said the U.S. demanded a commitment from Iran on uranium as part of any initial agreement.`\
-https://www.nytimes.com/2026/05/23/world/middleeast/iran-deal-uranium-nuclear.html
-
-**Many Questions, Few Details in Latest Iran Peace Proposal**\
-`It is too early to tell what exactly Trump and Iran have agreed to, or if they have agreed to much at all.`\
-https://www.nytimes.com/2026/05/23/world/middleeast/iran-peace-deal-trump-proposal.html
-
-**Trump Says U.S. Close to Peace Agreement With Iran**\
-`President Trump said on Saturday the United States was close to reaching a deal with Iran toward ending the war there. The deal, which he said would reopen the Strait of Hormuz, was subject to finalization by the U.S., Iran, and other countries.`\
-https://www.nytimes.com/video/us/politics/100000010922833/trump-iran-war-deal.html
-
-**Britain Preparing for Mission That Could Clear Strait of Hormuz**\
-`At Gibraltar, at the tip of Spain, British forces are ready to deploy autonomous mine-hunting equipment if a peace agreement is achieved.`\
-https://www.nytimes.com/2026/05/23/us/politics/britain-strait-of-hormuz-iran.html
-
-**Gunman in Shooting Near White House Killed in Exchange of Fire With Secret Service**\
-`A gunman known to the U.S. Secret Service opened fire near the White House and was shot and killed by federal officers. President Trump was in the White House at the time.`\
-https://www.nytimes.com/2026/05/23/us/politics/white-house-shooting.html
-
-**Next, Please!**\
-`David Steinberg returns to the Sunday puzzle with a new switcheroo.`\
-https://www.nytimes.com/2026/05/23/crosswords/daily-puzzle-2026-05-24.html
 
