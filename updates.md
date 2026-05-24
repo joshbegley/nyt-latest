@@ -1,3 +1,15 @@
+**YouTube tiene un problema con la piratería hecha con IA**\
+`Narradas de forma robótica, copias ilegales generadas con IA de ‘Los juegos del hambre’ y otros títulos exitosos son cada vez más comunes en la plataforma.`\
+https://www.nytimes.com/es/2026/05/24/espanol/cultura/youtube-pirateria-audiolibros.html
+
+**The 15-Year-Old Keeping War Memories Alive**\
+`Luke Morrison may be the youngest person keeping alive an age-old tradition: to process war through the memories and mementos of those who experienced it.`\
+https://www.nytimes.com/2026/05/24/opinion/war-memories-memorial-day.html
+
+**I Need an Escape From Travel**\
+`If I cannot get an upgrade — and I cannot, as I have no status, in any aspect of my life — I would like us to suffer more equally when we travel.`\
+https://www.nytimes.com/2026/05/24/opinion/summer-travel-delays-flights.html
+
 **The War-Driven Supply Shock Already Roiling Manufacturing in Asia**\
 `A shortage of naphtha, stemming from the blockade of the Strait of Hormuz, is disrupting manufacturing and retail goods in Japan and South Korea.`\
 https://www.nytimes.com/2026/05/24/business/what-is-naphtha.html
