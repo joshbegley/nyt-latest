@@ -1,3 +1,11 @@
+**A Democrat Took on Red Sox Ownership in an Ad. A Network Pulled it.**\
+`Graham Platner, a Senate candidate in Maine, blamed private equity for destroying “our favorite baseball team.” NESN, which is owned by the team, pulled his campaign ad, citing an intellectual property violation.`\
+https://www.nytimes.com/2026/05/24/us/politics/platner-ad-red-sox-midterms.html
+
+**In Ukraine, a Divisive 20th-Century Hero Comes Home**\
+`Andriy Melnyk, criticized as a Nazi collaborator and lionized as an anti-Soviet resistance leader, was given state honors for his reburial near Kyiv.`\
+https://www.nytimes.com/2026/05/24/world/europe/ukraine-melnyk-nationalist-collaborator.html
+
 **Crack Forms in Garden Grove Chemical Tank, a Positive Sign for Firefighters**\
 `The tank in Southern California has been building in temperature and pressure for days, which could lead to an explosive release. The crack may reduce some of that pressure, officials said.`\
 https://www.nytimes.com/2026/05/24/us/chemical-tank-garden-grove-southern-california.html

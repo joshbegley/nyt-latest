@@ -1,3 +1,11 @@
+**A Democrat Took on Red Sox Ownership in an Ad. A Network Pulled it.**\
+`Graham Platner, a Senate candidate in Maine, blamed private equity for destroying “our favorite baseball team.” NESN, which is owned by the team, pulled his campaign ad, citing an intellectual property violation.`\
+https://www.nytimes.com/2026/05/24/us/politics/platner-ad-red-sox-midterms.html
+
+**In Ukraine, a Divisive 20th-Century Hero Comes Home**\
+`Andriy Melnyk, criticized as a Nazi collaborator and lionized as an anti-Soviet resistance leader, was given state honors for his reburial near Kyiv.`\
+https://www.nytimes.com/2026/05/24/world/europe/ukraine-melnyk-nationalist-collaborator.html
+
 **Confusion and Worry After Trump Administration’s Abrupt Green Card Changes**\
 `Immigrants and their advocates and lawyers are trying to interpret a new Trump administration rule that requires people to be in their native country to apply for a green card.`\
 https://www.nytimes.com/2026/05/24/us/green-card-application-changes-trump.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/05/24/movies/alamo-drafthouse-mobile-ordering.html
 **Sanders and Ocasio-Cortez Try Boosting Progressives in Red Districts**\
 `In highly competitive House races that Democrats need to flip in November, the left is betting that calls for universal health care and taxing the wealthy will resonate — even among Republicans.`\
 https://www.nytimes.com/2026/05/24/us/politics/bernie-sanders-swing-district-liberals.html
-
-**RFK Jr.’s Push to Curb Antidepressants Has Shaken Psychiatry**\
-`An annual psychiatric meeting was abuzz over Robert F. Kennedy Jr.’s call to rein in the use of depression medications. Some fear it will drive patients away from care.`\
-https://www.nytimes.com/2026/05/24/science/rfk-jr-antidepressants-ssri-psychiatry.html
-
-**How This Summer’s Movies Shift the Connection With Their Related Toys**\
-`“The Mandalorian and Grogu,” “Masters of the Universe” and “Toy Story 5” hail from franchises that are shifting the connection with related products.`\
-https://www.nytimes.com/2026/05/24/movies/summer-movies-toy-products-star-wars-toy-story.html
 
