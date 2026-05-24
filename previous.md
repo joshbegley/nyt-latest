@@ -1,3 +1,7 @@
+**Colbert’s Connection**\
+`A reflection on Stephen Colbert’s relationship with his audience.`\
+https://www.nytimes.com/2026/05/24/briefing/colberts-connection.html
+
 **At Least 14 Killed in Bombing Attack That Derailed a Train in Pakistan**\
 `The explosion was so powerful that several nearby buildings were damaged and a resident 15 miles away was jolted awake by the blast. A separatist group claimed responsibility.`\
 https://www.nytimes.com/2026/05/24/world/asia/pakistan-train-bomb-attack-derailment.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/24/business/what-is-naphtha.html
 **Can Concrete Molds Revive Coral Reefs Ruined by Bombs and Climate Change?**\
 `In a devastated section of the Coral Triangle in the Pacific Ocean, a conservation group is trying to build an artificial reef.`\
 https://www.nytimes.com/2026/05/24/world/asia/can-concrete-molds-revive-coral-reefs-ruined-by-bombs-and-climate-change.html
-
-**‘Debbie Downer’ Is Enjoying an Upswing**\
-`With her popular mystical podcast, a return to Broadway in “The Rocky Horror Show” and a second Tony nomination, Rachel Dratch is finally getting her due.`\
-https://www.nytimes.com/2026/05/24/style/debbie-downer-is-enjoying-an-upswing.html
 

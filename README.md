@@ -1,3 +1,7 @@
+**Fate of War in Lebanon Rests With Outside Powers**\
+`A day after President Trump announced an emerging initial peace deal with Iran, Lebanese people wondered what it meant for the war between Israel and Hezbollah, the Iran-backed militant group.`\
+https://www.nytimes.com/2026/05/24/world/middleeast/lebanon-hezbollah-us-iran-israel.html
+
 **Colbert’s Connection**\
 `A reflection on Stephen Colbert’s relationship with his audience.`\
 https://www.nytimes.com/2026/05/24/briefing/colberts-connection.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/24/opinion/summer-travel-delays-flights.html
 **The War-Driven Supply Shock Already Roiling Manufacturing in Asia**\
 `A shortage of naphtha, stemming from the blockade of the Strait of Hormuz, is disrupting manufacturing and retail goods in Japan and South Korea.`\
 https://www.nytimes.com/2026/05/24/business/what-is-naphtha.html
-
-**Can Concrete Molds Revive Coral Reefs Ruined by Bombs and Climate Change?**\
-`In a devastated section of the Coral Triangle in the Pacific Ocean, a conservation group is trying to build an artificial reef.`\
-https://www.nytimes.com/2026/05/24/world/asia/can-concrete-molds-revive-coral-reefs-ruined-by-bombs-and-climate-change.html
 

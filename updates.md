@@ -1,3 +1,7 @@
+**Colbert’s Connection**\
+`A reflection on Stephen Colbert’s relationship with his audience.`\
+https://www.nytimes.com/2026/05/24/briefing/colberts-connection.html
+
 **At Least 14 Killed in Bombing Attack That Derailed a Train in Pakistan**\
 `The explosion was so powerful that several nearby buildings were damaged and a resident 15 miles away was jolted awake by the blast. A separatist group claimed responsibility.`\
 https://www.nytimes.com/2026/05/24/world/asia/pakistan-train-bomb-attack-derailment.html
