@@ -1,3 +1,7 @@
+**At Least 14 Killed in Bombing Attack That Derailed a Train in Pakistan**\
+`The explosion was so powerful that several nearby buildings were damaged and a resident 15 miles away was jolted awake by the blast. A separatist group claimed responsibility.`\
+https://www.nytimes.com/2026/05/24/world/asia/pakistan-train-bomb-attack-derailment.html
+
 **Israeli Leaders Say Little About Trump’s Potential Iran Deal**\
 `Analysts said the silence reflected Israeli worries that an agreement will not significantly degrade Iran’s nuclear and missile capabilities.`\
 https://www.nytimes.com/2026/05/24/world/middleeast/iran-deal-israel-reaction.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/24/world/asia/can-concrete-molds-revive-coral-re
 **‘Debbie Downer’ Is Enjoying an Upswing**\
 `With her popular mystical podcast, a return to Broadway in “The Rocky Horror Show” and a second Tony nomination, Rachel Dratch is finally getting her due.`\
 https://www.nytimes.com/2026/05/24/style/debbie-downer-is-enjoying-an-upswing.html
-
-**Corrections: May 24, 2026**\
-`Corrections that appeared in print on Sunday, May 24, 2026.`\
-https://www.nytimes.com/2026/05/24/pageoneplus/corrections-may-24-2026.html
 
