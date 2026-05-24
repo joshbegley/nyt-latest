@@ -1,3 +1,11 @@
+**Reopening of Strait of Hormuz Still a Question Mark**\
+`Without the details of a formal agreement, it is unclear how soon normal shipping will resume and when oil prices will start to come down.`\
+https://www.nytimes.com/2026/05/24/business/strait-of-hormuz-reopen-iran.html
+
+**The Oscars Start at Cannes**\
+`Glamorous and a touch old-fashioned, the French film festival increasingly defines what Hollywood celebrates each year.`\
+https://www.nytimes.com/2026/05/24/world/cannes-festival-fjord-iran-deal.html
+
 **Israel’s President, Isaac Herzog, Denounces Israeli Violence**\
 `In a speech, Isaac Herzog, whose role is largely ceremonial, delivered a grave indictment of settler attacks in the West Bank and abuse of prisoners.`\
 https://www.nytimes.com/2026/05/24/world/middleeast/israel-herzog-violence.html
