@@ -1,3 +1,15 @@
+**What to Know About the Citizenship Lists Trump Wants to Create**\
+`President Trump is trying to create individual lists of citizens by state to determine who can vote, even as his administration acknowledges they would be unreliable.`\
+https://www.nytimes.com/2026/05/24/us/politics/trump-lists-noncitizens-states.html
+
+**Secretary Rubio Says U.S. Made “Significant Progress” Toward Interim Deal with Iran**\
+`Secretary of State Marco Rubio said the Trump administration made “significant progress” toward a deal with Iran. A senior U.S. official also said that the U.S. and Iran had agreed in principle to reopen the Strait of Hormuz and to have Iran dispose of its nuclear material. Iran has not commented publicly on the potential agreement.`\
+https://www.nytimes.com/video/world/middleeast/100000010923453/marco-rubio-iran-peace-deal.html
+
+**NYT Crossword Answers for May 25, 2026**\
+`Looking for answers to Anthony Grubb’s puzzle? You’re getting warmer.`\
+https://www.nytimes.com/2026/05/24/crosswords/daily-puzzle-2026-05-25.html
+
 **Reopening of Strait of Hormuz Still a Question Mark**\
 `Without the details of a formal agreement, it is unclear how soon normal shipping will resume and when oil prices will start to come down.`\
 https://www.nytimes.com/2026/05/24/business/strait-of-hormuz-reopen-iran.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/05/24/arts/hes-the-modern-master-of-raunchy-animati
 **UK Institute Is Hunting for Dangers Lurking in AI**\
 `The government’s A.I. Security Institute, staffed by alumni from OpenAI and Google, is becoming a model for countries grappling with A.I.’s emerging risks.`\
 https://www.nytimes.com/2026/05/24/technology/uk-ai-safety-institute.html
-
-**One Job That Is Growing in the A.I. Era? Cybersecurity Experts.**\
-`Demand for security engineers has surged as artificial intelligence generates a glut of new code and models like Anthropic’s Mythos create new concerns.`\
-https://www.nytimes.com/2026/05/24/technology/one-job-that-is-growing-in-the-ai-era-cybersecurity-experts.html
-
-**What Happens When Militancy Conflicts With Motherhood**\
-`Two “Weather kids” reckon with the unyielding political convictions that compromised their parents’ domestic duties.`\
-https://www.nytimes.com/2026/05/24/magazine/radical-parents-books-weather-underground.html
-
-**To A.I. Executives, We’re All Just ‘Meat Computers’**\
-`A term first used in philosophy and cognitive science circles has lately taken on a more ominous cast. Moo.`\
-https://www.nytimes.com/2026/05/24/business/meat-computer-brain-artificial-intelligence.html
 
