@@ -1,3 +1,7 @@
+**Iranian Officials Say Proposed Peace Deal Would Open Strait of Hormuz**\
+`Iran has not formally responded to President Trump’s announcement that a peace deal was close. But officials suggested the oil choke point in the Strait of Hormuz could reopen.`\
+https://www.nytimes.com/2026/05/24/world/middleeast/trump-iran-peace-deal-strait-hormuz.html
+
 **Kyiv, Ukraine, Hit in Russian Missile Attack**\
 `Buildings rattled in the Ukrainian capital for hours early Sunday. It was unclear if Russia’s Oreshnik intermediate-range ballistic missile had been used.`\
 https://www.nytimes.com/2026/05/24/world/europe/russia-ukraine-kyiv-attack-oreshnik-missile.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/23/opinion/maha-moms-fertility-underbabied.html
 **‘We Should All Apply’ to Trump’s Slush Fund**\
 `Trump’s proposed $1.8 billion compensation fund tied to Jan. 6 is drawing scrutiny. On “The Opinions,” David French explains why he sees a double standard between how rioters and ordinary Americans would be treated under the system.`\
 https://www.nytimes.com/video/opinion/100000010918060/we-should-all-apply-to-trumps-slush-fund.html
-
-**Has Trump Gone Full ‘Mob Boss’?**\
-`The president’s $1.8 billion slush fund is causing further cracks in the Republican Party.`\
-https://www.nytimes.com/2026/05/23/opinion/trump-slush-fund-republicans.html
 
