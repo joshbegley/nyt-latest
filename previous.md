@@ -39,7 +39,7 @@ https://www.nytimes.com/video/opinion/100000010918890/graduating-into-ai-pessimi
 https://www.nytimes.com/2026/05/23/nyregion/explosions-worker-killed-staten-island.html
 
 **Here’s the latest.**\
-`President Trump provided few details about the preliminary agreement, which he said was “largely negotiated.”`\
+`PresidTrump provided few details about the preliminary agreement, which he said was “largely negotiated.”`\
 https://www.nytimes.com/2026/05/23/world/middleeast/heres-the-latest.html
 
 **Grizz Chapman, Actor Known for His Role on ’30 Rock,’ Dies at 52**\

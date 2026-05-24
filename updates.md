@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+`PresidTrump provided few details about the preliminary agreement, which he said was “largely negotiated.”`\
+https://www.nytimes.com/2026/05/23/world/middleeast/heres-the-latest.html
+
 **Iran Agreed to Give Up Enriched Uranium in Deal Announced by Trump, U.S. Officials Say**\
 `Precise details were unclear but the officials said the U.S. demanded a commitment from Iran on uranium as part of any initial agreement.`\
 https://www.nytimes.com/2026/05/23/world/middleeast/iran-deal-uranium-nuclear.html
