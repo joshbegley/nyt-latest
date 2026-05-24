@@ -1,3 +1,7 @@
+**Iran Projects Victory in Potential Deal With Washington**\
+`Iran’s leaders are playing up the positives — an underdog proved capable of taking on two nuclear-armed powers.`\
+https://www.nytimes.com/2026/05/24/world/europe/iran-projects-victory-in-potential-deal-with-washington.html
+
 **Memories of Growing Up on Long Island**\
 `A guest essayist wrote that Long Island produced “more than its share of villainous, dead-eyed jerks.” Readers offer their perspectives. Also: Honor at Stanford.`\
 https://www.nytimes.com/2026/05/24/opinion/growing-up-long-island.html
