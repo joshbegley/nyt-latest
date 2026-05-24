@@ -1,3 +1,7 @@
+**Firefighters Still Working to Cool Garden Grove Chemical Tank**\
+`The tank, filled with a toxic chemical, may have formed a crack, officials said. More than 40,000 residents remain under evacuation orders because of the potential for a breach or explosion.`\
+https://www.nytimes.com/2026/05/24/us/chemical-tank-garden-grove-southern-california.html
+
 **Israeli Leader Says He and Trump Agree On Blocking an Iranian Nuclear Weapon**\
 `Analysts said Israel was worried that a potential agreement would not significantly degrade Iran’s nuclear and missile capabilities.`\
 https://www.nytimes.com/2026/05/24/world/middleeast/iran-deal-israel-reaction.html
