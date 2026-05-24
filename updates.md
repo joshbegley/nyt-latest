@@ -1,3 +1,7 @@
+**Senate Republicans Cast Doubt on a Potential Peace Deal With Iran**\
+`Lawmakers, including some of President Trump’s closest allies, slammed the emerging agreement as effectively undermining the president’s own war goals.`\
+https://www.nytimes.com/2026/05/24/world/middleeast/senate-republicans-iran-deal-trump.html
+
 **Firefighters Still Working to Cool Garden Grove Chemical Tank**\
 `The tank, filled with a toxic chemical, may have formed a crack, officials said. More than 40,000 residents remain under evacuation orders because of the potential for a breach or explosion.`\
 https://www.nytimes.com/2026/05/24/us/chemical-tank-garden-grove-southern-california.html

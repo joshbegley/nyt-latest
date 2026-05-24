@@ -1,3 +1,7 @@
+**Senate Republicans Cast Doubt on a Potential Peace Deal With Iran**\
+`Lawmakers, including some of President Trump’s closest allies, slammed the emerging agreement as effectively undermining the president’s own war goals.`\
+https://www.nytimes.com/2026/05/24/world/middleeast/senate-republicans-iran-deal-trump.html
+
 **Lo que hay que saber sobre el posible acuerdo de paz entre EE. UU. e Irán**\
 `El presidente Trump dijo que estaba cerca de alcanzar un acuerdo con Irán. Sin embargo, hasta el domingo por la mañana no estaba claro qué habían acordado EE. UU. e Irán.`\
 https://www.nytimes.com/es/2026/05/24/espanol/estados-unidos/ee-uu-iran-acuerdo-paz.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/24/us/waymo-robot-taxis-blind.html
 **Summer’s Best Beach Reads**\
 `If you happen to be near a body of water (salt, fresh, chlorinated or otherwise), here are the books you’ll need.`\
 https://www.nytimes.com/2026/05/24/books/review/summer-beach-reads.html
-
-**In Homeless Crisis, California ‘Is Waging a War on R.V.s’**\
-`The R.V.s are seen as an eyesore — the most visible sign of the state’s homelessness crisis. Neighbors and politicians want them gone. The people who call them home feel under siege.`\
-https://www.nytimes.com/2026/05/24/us/california-homeless-cars-rvs.html
 
