@@ -1,3 +1,11 @@
+**Many Questions, Few Details in Latest Iran Peace Proposal**\
+`It is too early to tell what exactly Trump and Iran have agreed to, or if they have agreed to much at all.`\
+https://www.nytimes.com/2026/05/23/world/middleeast/iran-peace-deal-trump-proposal.html
+
+**Iran War Live Updates: Trump Says Peace Deal Is Near**\
+`President Trump said Iran and the United States had “largely negotiated” an agreement “pertaining to PEACE.” Three senior Iranian officials said Tehran had agreed to a memorandum of understanding, but there was no public statement from Iran’s government.`\
+https://www.nytimes.com/live/2026/05/23/world/us-iran-war-trump
+
 **Gunman in Shooting Near White House Killed in Exchange of Fire With Secret Service**\
 `A gunman who opened fire near the White House was shot and killed by federal officers, and another person was wounded by gunfire. President Trump was in the White House at the time.`\
 https://www.nytimes.com/2026/05/23/us/politics/white-house-shooting.html

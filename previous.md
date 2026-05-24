@@ -1,3 +1,7 @@
+**Many Questions, Few Details in Latest Iran Peace Proposal**\
+`It is too early to tell what exactly Trump and Iran have agreed to, or if they have agreed to much at all.`\
+https://www.nytimes.com/2026/05/23/world/middleeast/iran-peace-deal-trump-proposal.html
+
 **Trump Says U.S. Close to Peace Agreement With Iran**\
 `President Trump said on Saturday the United States was close to reaching a deal with Iran toward ending the war there. The deal, which he said would reopen the Strait of Hormuz, was subject to finalization by the U.S., Iran, and other countries.`\
 https://www.nytimes.com/video/us/politics/100000010922833/trump-iran-war-deal.html
@@ -33,6 +37,10 @@ https://www.nytimes.com/2026/05/23/nyregion/explosions-worker-killed-staten-isla
 **Here’s the latest.**\
 `President Trump provided few details about the preliminary agreement, which he said was “largely negotiated.”`\
 https://www.nytimes.com/2026/05/23/world/middleeast/heres-the-latest.html
+
+**Iran War Live Updates: Trump Says Peace Deal Is Near**\
+`President Trump said Iran and the United States had “largely negotiated” an agreement “pertaining to PEACE.” Three senior Iranian officials said Tehran had agreed to a memorandum of understanding, but there was no public statement from Iran’s government.`\
+https://www.nytimes.com/live/2026/05/23/world/us-iran-war-trump
 
 **Grizz Chapman, Actor Known for His Role on ’30 Rock,’ Dies at 52**\
 `Mr. Chapman, who played a member of Tracy Morgan’s entourage on the show, died on Friday, according to his cousin.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/05/23/crosswords/wordle-review-1800.html
 **NYT Strands Hints for May 24, 2026**\
 `Scroll down for hints and conversation about the puzzle for Sunday, May 24, 2026.`\
 https://www.nytimes.com/2026/05/23/crosswords/strands-sidekick-812.html
-
-**At the Arctic Games, Canada and Greenland vs. Trump Feels Like Its Own Sport**\
-`Geopolitics found its way to the podium in Whitehorse as athletes from the circumpolar North competed in sports as mainstream as hockey and as unusual as the two-foot high kick.`\
-https://www.nytimes.com/2026/05/23/world/canada/canada-arctic-olympics-yellowknife.html
-
-**Nicolas Cage Made Himself a Legend. Then He Had to Live With It.**\
-`The iconic actor on becoming a meme, a myth and larger than life.`\
-https://www.nytimes.com/2026/05/23/magazine/nicolas-cage-interview.html
 

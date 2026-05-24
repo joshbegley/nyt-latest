@@ -1,3 +1,7 @@
+**Iran Agreed to Give Up Enriched Uranium in Deal Announced by Trump, U.S. Officials Say**\
+`Precise details were unclear but the officials said the U.S. demanded a commitment from Iran on uranium as part of any initial agreement.`\
+https://www.nytimes.com/2026/05/23/world/middleeast/iran-deal-uranium-nuclear.html
+
 **Many Questions, Few Details in Latest Iran Peace Proposal**\
 `It is too early to tell what exactly Trump and Iran have agreed to, or if they have agreed to much at all.`\
 https://www.nytimes.com/2026/05/23/world/middleeast/iran-peace-deal-trump-proposal.html
@@ -37,10 +41,6 @@ https://www.nytimes.com/2026/05/23/nyregion/explosions-worker-killed-staten-isla
 **Here’s the latest.**\
 `President Trump provided few details about the preliminary agreement, which he said was “largely negotiated.”`\
 https://www.nytimes.com/2026/05/23/world/middleeast/heres-the-latest.html
-
-**Iran War Live Updates: Trump Says Peace Deal Is Near**\
-`President Trump said Iran and the United States had “largely negotiated” an agreement “pertaining to PEACE.” Three senior Iranian officials said Tehran had agreed to a memorandum of understanding, but there was no public statement from Iran’s government.`\
-https://www.nytimes.com/live/2026/05/23/world/us-iran-war-trump
 
 **Grizz Chapman, Actor Known for His Role on ’30 Rock,’ Dies at 52**\
 `Mr. Chapman, who played a member of Tracy Morgan’s entourage on the show, died on Friday, according to his cousin.`\
