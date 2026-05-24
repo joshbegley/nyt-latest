@@ -1,3 +1,7 @@
+**Bonnaroo, Governors Ball and 7 More Summer Music Festivals Not to Miss**\
+`Can’t get to Lollapalooza or Outside Lands this year? Want to see Lizzo play flute with the Chicago Symphony Orchestra? Here are some options.`\
+https://www.nytimes.com/2026/05/24/arts/music/summer-music-festivals-bonnaroo-gov-ball-cma-fest.html
+
 **Storms Expected Across Eastern U.S. Through Memorial Day**\
 `Rain and thunderstorms were forecast from the Gulf Coast northeastward through the Southeast and into parts of the Northeast.`\
 https://www.nytimes.com/2026/05/24/weather/memorial-day-weather-storms.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/24/nyregion/new-york-rape-laws.html
 **NYT Spelling Bee Answers for May 24, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/05/24/crosswords/spelling-bee-forum.html
-
-**Iranian Officials Say Proposed Peace Deal Would Open Strait of Hormuz**\
-`Iran has not formally responded to President Trump’s announcement that a peace deal was close. But officials suggested the oil choke point in the Strait of Hormuz could reopen.`\
-https://www.nytimes.com/2026/05/24/world/middleeast/trump-iran-peace-deal-strait-hormuz.html
 

@@ -1,3 +1,7 @@
+**Bonnaroo, Governors Ball and 7 More Summer Music Festivals Not to Miss**\
+`Can’t get to Lollapalooza or Outside Lands this year? Want to see Lizzo play flute with the Chicago Symphony Orchestra? Here are some options.`\
+https://www.nytimes.com/2026/05/24/arts/music/summer-music-festivals-bonnaroo-gov-ball-cma-fest.html
+
 **Storms Expected Across Eastern U.S. Through Memorial Day**\
 `Rain and thunderstorms were forecast from the Gulf Coast northeastward through the Southeast and into parts of the Northeast.`\
 https://www.nytimes.com/2026/05/24/weather/memorial-day-weather-storms.html
