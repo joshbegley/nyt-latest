@@ -1,3 +1,7 @@
+**The Art of the Incomplete Deal: the Hard Issues on Iran Come Later**\
+`President Trump is hailing is agreement with Iran as groundbreaking, even as he admits is “isn’t even fully negotiated.” But the nuclear stockpile, enrichment and missiles have not been discussed.`\
+https://www.nytimes.com/2026/05/24/us/strait-of-hormuz-reopen-iran-deal.html
+
 **Manny Nosowsky, Waggish Crossword Constructor for The New York Times, Dies at 94**\
 `For nearly two decades, the prolific puzzle maker, a retired urologist, charmed solvers with his penchant for witty, waggish puns.`\
 https://www.nytimes.com/2026/05/24/us/manny-nosowsky-dead.html

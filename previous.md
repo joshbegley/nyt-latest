@@ -50,7 +50,7 @@ https://www.nytimes.com/2026/05/24/world/middleeast/rubio-iran-nuclear.html
 `President Trump says the U.S. and Iran could be close to a peace deal. The big issues at stake include the fate of Iran’s nuclear program and reopening the Strait of Hormuz.`\
 https://www.nytimes.com/2026/05/24/world/middleeast/five-main-issues-iran-israel-nuclear.html
 
-**The Art of the Incomplete Deal: The Strait May Open, but the Hardest Issues Come Later**\
+**The Art of the Incomplete Deal: the Hard Issues on Iran Come Later**\
 `President Trump is hailing is agreement with Iran as groundbreaking, even as he admits is “isn’t even fully negotiated.” But the nuclear stockpile, enrichment and missiles have not been discussed.`\
 https://www.nytimes.com/2026/05/24/us/strait-of-hormuz-reopen-iran-deal.html
 
