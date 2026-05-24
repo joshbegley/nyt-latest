@@ -1,3 +1,7 @@
+**One Killed in Exchange of Gunfire With Secret Service Near White House**\
+`A gunman who opened fire near the White House was killed and another person wounded by shots fired from federal officers. President Trump was in the White House at the time.`\
+https://www.nytimes.com/2026/05/23/us/politics/white-house-shooting.html
+
 **Two Wounded in Exchange of Gunfire Near White House**\
 `The gunman and another person were wounded by shots fired from federal officers. President Trump was in the White House at the time shots were fired.`\
 https://www.nytimes.com/2026/05/23/us/politics/white-house-shooting.html
