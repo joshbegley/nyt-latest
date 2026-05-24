@@ -1,3 +1,7 @@
+**U.S. and Iran Agree in Principle to a Deal to Reopen the Strait of Hormuz, U.S. Official Says**\
+`The deal does not address Iran’s missile stockpile nor does it stipulate a moratorium on enrichment.`\
+https://www.nytimes.com/2026/05/24/us/strait-of-hormuz-reopen-iran-deal.html
+
 **What to Know About the White House Shooting on Memorial Day Weekend**\
 `Shots were fired near the northwestern corner of the White House complex, while President Trump was inside the building. The Secret Service returned fire, killing the gunman.`\
 https://www.nytimes.com/2026/05/24/us/white-house-shooting.html
