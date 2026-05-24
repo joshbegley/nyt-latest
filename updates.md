@@ -1,3 +1,11 @@
+**Iran Projects Victory in Potential Deal With Washington**\
+`Iran’s leaders are playing up the positives, saying the war proved that an underdog could take on the world’s superpower. But Tehran faces big challenges after a devastating conflict.`\
+https://www.nytimes.com/2026/05/24/world/europe/iran-war-leaders-peace-deal.html
+
+**What to Know About the Potential U.S.-Iran Peace Deal**\
+`President Trump said on Saturday that an agreement to end the war was “largely negotiated,” but neither the United States nor Iran released many details of the proposal.`\
+https://www.nytimes.com/2026/05/24/world/middleeast/us-iran-peace-deal-proposal.html
+
 **Bonnaroo, Governors Ball and 7 More Summer Music Festivals Not to Miss**\
 `Can’t get to Lollapalooza or Outside Lands this year? Want to see Lizzo play flute with the Chicago Symphony Orchestra? Here are some options.`\
 https://www.nytimes.com/2026/05/24/arts/music/summer-music-festivals-bonnaroo-gov-ball-cma-fest.html

@@ -19,8 +19,8 @@ https://www.nytimes.com/2026/05/24/dining/grilled-salmon-salad-with-lime-chiles-
 https://www.nytimes.com/2026/05/24/us/politics/rubio-india-trump-visit.html
 
 **Iran Projects Victory in Potential Deal With Washington**\
-`Iran’s leaders are playing up the positives — an underdog proved capable of taking on two nuclear-armed powers.`\
-https://www.nytimes.com/2026/05/24/world/europe/iran-projects-victory-in-potential-deal-with-washington.html
+`Iran’s leaders are playing up the positives, saying the war proved that an underdog could take on the world’s superpower. But Tehran faces big challenges after a devastating conflict.`\
+https://www.nytimes.com/2026/05/24/world/europe/iran-war-leaders-peace-deal.html
 
 **Fate of War in Lebanon Rests With Outside Powers**\
 `A day after President Trump announced an emerging initial peace deal with Iran, Lebanese people wondered what it meant for the war between Israel and Hezbollah, the Iran-backed militant group.`\
@@ -76,7 +76,7 @@ https://www.nytimes.com/live/2026/05/24/world/iran-war-trump
 
 **What to Know About the Potential U.S.-Iran Peace Deal**\
 `President Trump said on Saturday that an agreement to end the war was “largely negotiated,” but neither the United States nor Iran released many details of the proposal.`\
-https://www.nytimes.com/2026/05/24/world/middleeast/what-to-know-about-the-potential-iran-peace-deal.html
+https://www.nytimes.com/2026/05/24/world/middleeast/us-iran-peace-deal-proposal.html
 
 **A Deciding Factor in Congress Right Now: Who Shows Up to Vote**\
 `Vacant seats, and consistently poor attendance on both sides of the aisle, have exacerbated the challenges of already razor-thin margins in the House and Senate.`\
