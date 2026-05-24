@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/05/24/dining/grilled-salmon-salad-with-lime-chiles-
 https://www.nytimes.com/2026/05/24/us/politics/rubio-india-trump-visit.html
 
 **Iran Projects Victory in Potential Deal With Washington**\
-`Iran’s leaders are playing up the positives — an underdog proved capable of taking on two nuclear armed powers.`\
+`Iran’s leaders are playing up the positives — an underdog proved capable of taking on two nuclear-armed powers.`\
 https://www.nytimes.com/2026/05/24/world/europe/iran-projects-victory-in-potential-deal-with-washington.html
 
 **Fate of War in Lebanon Rests With Outside Powers**\

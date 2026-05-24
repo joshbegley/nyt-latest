@@ -1,3 +1,15 @@
+**Memories of Growing Up on Long Island**\
+`A guest essayist wrote that Long Island produced “more than its share of villainous, dead-eyed jerks.” Readers offer their perspectives. Also: Honor at Stanford.`\
+https://www.nytimes.com/2026/05/24/opinion/growing-up-long-island.html
+
+**Grilled Salmon Salad With Lime, Chiles and Herbs**\
+`And four more bright, easy recipes for your post-holiday week.`\
+https://www.nytimes.com/2026/05/24/dining/grilled-salmon-salad-with-lime-chiles-and-herbs.html
+
+**Rubio Says U.S.-India Ties Are Strong, Despite Fury Over Trump’s Actions**\
+`In New Delhi, Secretary of State Marco Rubio tried to explain why President Trump has pushed aggressive trade and immigration policies affecting India and Indians in the United States.`\
+https://www.nytimes.com/2026/05/24/us/politics/rubio-india-trump-visit.html
+
 **Iran Projects Victory in Potential Deal With Washington**\
 `Iran’s leaders are playing up the positives — an underdog proved capable of taking on two nuclear armed powers.`\
 https://www.nytimes.com/2026/05/24/world/europe/iran-projects-victory-in-potential-deal-with-washington.html
