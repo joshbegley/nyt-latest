@@ -1,3 +1,7 @@
+**Two Wounded in Exchange of Gunfire Near White House**\
+`The gunman and another person were wounded by shots fired from federal officers. President Trump was in the White House at the time shots were fired.`\
+https://www.nytimes.com/2026/05/23/us/politics/white-house-shooting.html
+
 **Trump Says U.S. Close to Peace Agreement With Iran**\
 `President Trump said on Saturday the United States was close to reaching a deal with Iran toward ending the war there. The deal, which he said would reopen the Strait of Hormuz, was subject to finalization by the U.S., Iran, and other countries.`\
 https://www.nytimes.com/video/us/politics/100000010922833/trump-iran-war-deal.html

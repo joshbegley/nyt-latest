@@ -6,8 +6,8 @@ https://www.nytimes.com/video/us/politics/100000010922833/trump-iran-war-deal.ht
 `At Gibraltar, at the tip of Spain, British forces are ready to deploy autonomous mine-hunting equipment if a peace agreement is achieved.`\
 https://www.nytimes.com/2026/05/23/us/politics/britain-strait-of-hormuz-iran.html
 
-**Gunshots Reported Near White House, F.B.I. Says**\
-`A witness reported hearing dozens of shots. It was not immediately clear what had led up to the shooting or whether anyone had been injured.`\
+**Two Wounded in Exchange of Gunfire Near White House**\
+`The gunman and another person were wounded by shots fired from federal officers. President Trump was in the White House at the time shots were fired.`\
 https://www.nytimes.com/2026/05/23/us/politics/white-house-shooting.html
 
 **Next, Please!**\
