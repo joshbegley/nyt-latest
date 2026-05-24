@@ -82,8 +82,8 @@ https://www.nytimes.com/2026/05/24/opinion/doctor-ai-chatgpt.html
 `Scroll down for hints and conversation about the puzzle for Monday, May 25, 2026.`\
 https://www.nytimes.com/2026/05/24/crosswords/strands-sidekick-813.html
 
-**Iran War Live Updates: U.S. and Iran Signal Move Toward Initial Peace Deal, but Details Remain Murky**\
-`President Trump said the United States and Iran had “largely negotiated” an agreement, even as American and Iranian officials described the terms differently.`\
+**Iran War Live Updates: U.S. and Iran Agree in Principle to Reopen Strait of Hormuz, U.S. Official Says**\
+`The official said Iran had also agreed to dispose of highly enriched uranium, but stressed that a deal had not yet been signed. American and Iranian officials have described the terms differently.`\
 https://www.nytimes.com/live/2026/05/24/world/iran-war-trump
 
 **What to Know About the Potential U.S.-Iran Peace Deal**\

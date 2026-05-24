@@ -1,3 +1,7 @@
+**Iran War Live Updates: U.S. and Iran Agree in Principle to Reopen Strait of Hormuz, U.S. Official Says**\
+`The official said Iran had also agreed to dispose of highly enriched uranium, but stressed that a deal had not yet been signed. American and Iranian officials have described the terms differently.`\
+https://www.nytimes.com/live/2026/05/24/world/iran-war-trump
+
 **These Are 5 of the Main Issues to Be Resolved in an Iran-U.S. Peace Deal**\
 `President Trump says the U.S. and Iran could be close to a peace deal. The big issues at stake include the fate of Iran’s nuclear program and reopening the Strait of Hormuz.`\
 https://www.nytimes.com/2026/05/24/world/middleeast/five-main-issues-iran-israel-nuclear.html
