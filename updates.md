@@ -1,3 +1,7 @@
+**Kyiv, Ukraine, Hit in Russian Missile Attack**\
+`Buildings rattled in the Ukrainian capital for hours early Sunday. It was unclear if Russia’s Oreshnik intermediate-range ballistic missile had been used.`\
+https://www.nytimes.com/2026/05/24/world/europe/russia-ukraine-kyiv-attack-oreshnik-missile.html
+
 **YouTube tiene un problema con la piratería hecha con IA**\
 `Narradas de forma robótica, copias ilegales generadas con IA de ‘Los juegos del hambre’ y otros títulos exitosos son cada vez más comunes en la plataforma.`\
 https://www.nytimes.com/es/2026/05/24/espanol/cultura/youtube-pirateria-audiolibros.html

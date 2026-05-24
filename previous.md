@@ -1,3 +1,7 @@
+**Kyiv, Ukraine, Hit in Russian Missile Attack**\
+`Buildings rattled in the Ukrainian capital for hours early Sunday. It was unclear if Russia’s Oreshnik intermediate-range ballistic missile had been used.`\
+https://www.nytimes.com/2026/05/24/world/europe/russia-ukraine-kyiv-attack-oreshnik-missile.html
+
 **YouTube tiene un problema con la piratería hecha con IA**\
 `Narradas de forma robótica, copias ilegales generadas con IA de ‘Los juegos del hambre’ y otros títulos exitosos son cada vez más comunes en la plataforma.`\
 https://www.nytimes.com/es/2026/05/24/espanol/cultura/youtube-pirateria-audiolibros.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/opinion/100000010918060/we-should-all-apply-to-tru
 **Has Trump Gone Full ‘Mob Boss’?**\
 `The president’s $1.8 billion slush fund is causing further cracks in the Republican Party.`\
 https://www.nytimes.com/2026/05/23/opinion/trump-slush-fund-republicans.html
-
-**What A.I. Philanthropists Can Learn From the Gilded Age**\
-`Leave a physical legacy to future generations, not just a record of programs and disbursements.`\
-https://www.nytimes.com/2026/05/23/opinion/artificial-intelligence-philanthropy-beauty.html
 
