@@ -1,3 +1,7 @@
+**What to Know About the Potential Iran Peace Deal**\
+`President Trump said on Saturday that an agreement to end the war was “largely negotiated,” but neither the United States nor Iran released many details of the proposal.`\
+https://www.nytimes.com/2026/05/24/world/middleeast/what-to-know-about-the-potential-iran-peace-deal.html
+
 **A Deciding Factor in Congress Right Now: Who Shows Up to Vote**\
 `Vacant seats, and consistently poor attendance on both sides of the aisle, have exacerbated the challenges of already razor-thin margins in the House and Senate.`\
 https://www.nytimes.com/2026/05/24/us/congress-vote-absence-vacancy-math.html
