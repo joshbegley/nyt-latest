@@ -1,3 +1,19 @@
+**As Easy as Riding a Bike? Adult Learners Give It a Try.**\
+`At Bike New York’s free classes for adults, many novice riders are nervous. Many are embarrassed. And many are women.`\
+https://www.nytimes.com/2026/05/24/nyregion/bike-new-york-classes-nyc.html
+
+**‘I Was Prepared for a Long Wait and Surly Interactions’**\
+`A trip to the D.M.V., an unusual place to buy fruit and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://www.nytimes.com/2026/05/24/nyregion/metropolitan-diary.html
+
+**New York’s Rape Laws Leave Out Many Victims Who Drank Willingly**\
+`Prosecutors say accusers who chose to drink or get high have a “very high burden” of proving they were physically helpless and unable to consent. There is a push to change the law.`\
+https://www.nytimes.com/2026/05/24/nyregion/new-york-rape-laws.html
+
+**NYT Spelling Bee Answers for May 24, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/24/crosswords/spelling-bee-forum.html
+
 **Iranian Officials Say Proposed Peace Deal Would Open Strait of Hormuz**\
 `Iran has not formally responded to President Trump’s announcement that a peace deal was close. But officials suggested the oil choke point in the Strait of Hormuz could reopen.`\
 https://www.nytimes.com/2026/05/24/world/middleeast/trump-iran-peace-deal-strait-hormuz.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/05/23/arts/design/yiadom-boakye-shainman-art.html
 **Iran and U.S. Officials Signal Progress as Cease-Fire Hangs in Balance**\
 `As people across the Middle East braced for the possibility of renewed fighting, officials from both sides said there were signs that they were moving closer to an agreement.`\
 https://www.nytimes.com/2026/05/23/world/middleeast/iran-us-israel-ceasefire-talks.html
-
-**Why Americans Are Afraid of Their Neighbors**\
-`‘Stranger danger’ was always a misleading idea, and it’s bad for our children.`\
-https://www.nytimes.com/2026/05/23/opinion/kids-fear-strangers.html
-
-**61% of Americans Said They Had to Cut Back on Groceries**\
-`More than three quarters of Americans, including 55 percent of Republicans, said President Trump’s policies have increased the cost of living in their community.`\
-https://www.nytimes.com/2026/05/23/us/politics/americans-groceries-inflation-affordability.html
-
-**The Moms Delivered for Trump. Now He’s Scamming Them.**\
-`The moms are not happy.`\
-https://www.nytimes.com/2026/05/23/opinion/maha-moms-fertility-underbabied.html
-
-**‘We Should All Apply’ to Trump’s Slush Fund**\
-`Trump’s proposed $1.8 billion compensation fund tied to Jan. 6 is drawing scrutiny. On “The Opinions,” David French explains why he sees a double standard between how rioters and ordinary Americans would be treated under the system.`\
-https://www.nytimes.com/video/opinion/100000010918060/we-should-all-apply-to-trumps-slush-fund.html
 
