@@ -1,3 +1,7 @@
+**Crack Forms in Garden Grove Chemical Tank, a Positive Sign for Firefighters**\
+`The tank in Southern California has been building in temperature and pressure for days, which could lead to an explosive release. The crack may reduce some of that pressure, officials said.`\
+https://www.nytimes.com/2026/05/24/us/chemical-tank-garden-grove-southern-california.html
+
 **Confusion and Worry After Trump Administration’s Abrupt Green Card Changes**\
 `Immigrants and their advocates and lawyers are trying to interpret a new Trump administration rule that requires people to be in their native country to apply for a green card.`\
 https://www.nytimes.com/2026/05/24/us/green-card-application-changes-trump.html

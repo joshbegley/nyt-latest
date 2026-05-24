@@ -70,7 +70,7 @@ https://www.nytimes.com/2026/05/24/business/media/mandalorian-and-grogu-box-offi
 `An environmental lobbyist and activist, he was a pivotal figure in drawing public attention and political support to the existential issue.`\
 https://www.nytimes.com/2026/05/24/science/rafe-pomerance-dead.html
 
-**Firefighters Still Working to Cool Garden Grove Chemical Tank**\
+**Crack Forms in Garden Grove Chemical Tank, a Positive Sign for Firefighters**\
 `The tank in Southern California has been building in temperature and pressure for days, which could lead to an explosive release. The crack may reduce some of that pressure, officials said.`\
 https://www.nytimes.com/2026/05/24/us/chemical-tank-garden-grove-southern-california.html
 
