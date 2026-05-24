@@ -1,3 +1,19 @@
+**As Easy as Riding a Bike? Adult Learners Give It a Try.**\
+`At Bike New York’s free classes for adults, many novice riders are nervous. Many are embarrassed. And many are women.`\
+https://www.nytimes.com/2026/05/24/nyregion/bike-new-york-classes-nyc.html
+
+**‘I Was Prepared for a Long Wait and Surly Interactions’**\
+`A trip to the D.M.V., an unusual place to buy fruit and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://www.nytimes.com/2026/05/24/nyregion/metropolitan-diary.html
+
+**New York’s Rape Laws Leave Out Many Victims Who Drank Willingly**\
+`Prosecutors say accusers who chose to drink or get high have a “very high burden” of proving they were physically helpless and unable to consent. There is a push to change the law.`\
+https://www.nytimes.com/2026/05/24/nyregion/new-york-rape-laws.html
+
+**NYT Spelling Bee Answers for May 24, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/24/crosswords/spelling-bee-forum.html
+
 **Iranian Officials Say Proposed Peace Deal Would Open Strait of Hormuz**\
 `Iran has not formally responded to President Trump’s announcement that a peace deal was close. But officials suggested the oil choke point in the Strait of Hormuz could reopen.`\
 https://www.nytimes.com/2026/05/24/world/middleeast/trump-iran-peace-deal-strait-hormuz.html
