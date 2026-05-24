@@ -1,3 +1,23 @@
+**The War-Driven Supply Shock Already Roiling Manufacturing in Asia**\
+`A shortage of naphtha, stemming from the blockade of the Strait of Hormuz, is disrupting manufacturing and retail goods in Japan and South Korea.`\
+https://www.nytimes.com/2026/05/24/business/what-is-naphtha.html
+
+**Can Concrete Molds Revive Coral Reefs Ruined by Bombs and Climate Change?**\
+`In a devastated section of the Coral Triangle in the Pacific Ocean, a conservation group is trying to build an artificial reef.`\
+https://www.nytimes.com/2026/05/24/world/asia/can-concrete-molds-revive-coral-reefs-ruined-by-bombs-and-climate-change.html
+
+**‘Debbie Downer’ Is Enjoying an Upswing**\
+`With her popular mystical podcast, a return to Broadway in “The Rocky Horror Show” and a second Tony nomination, Rachel Dratch is finally getting her due.`\
+https://www.nytimes.com/2026/05/24/style/debbie-downer-is-enjoying-an-upswing.html
+
+**Corrections: May 24, 2026**\
+`Corrections that appeared in print on Sunday, May 24, 2026.`\
+https://www.nytimes.com/2026/05/24/pageoneplus/corrections-may-24-2026.html
+
+**Quote of the Day: Europe Has Interest in Talking Peace With Putin, but Questions Remain**\
+`Quotation of the Day for Sunday, May 24, 2026.`\
+https://www.nytimes.com/2026/05/23/pageoneplus/quote-of-the-day-europe-has-interest-in-talking-peace-with-putin-but-questions-remain.html
+
 **A Refuge in the Arctic**\
 `A postcard from the northernmost church on Earth.`\
 https://www.nytimes.com/2026/05/23/briefing/svalbard.html
