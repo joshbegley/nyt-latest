@@ -1,3 +1,7 @@
+**A Refuge in the Arctic**\
+`A postcard from the northernmost church on Earth.`\
+https://www.nytimes.com/2026/05/23/briefing/svalbard.html
+
 **Three Drake Albums, Three Songs of the Week**\
 `On this triple-track edition of the “Popcast” Song of the Week, our critic Jon Caramanica unpacks the themes of Drake’s latest era.`\
 https://www.nytimes.com/video/podcasts/100000010922000/three-drake-albums-three-songs-of-the-week.html
