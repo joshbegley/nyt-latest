@@ -1,3 +1,7 @@
+**Rubio Says Details on Iran Nuclear Program Still to Be Negotiated**\
+`The Secretary of State said the United States was prepared to begin those talks if Iran opens the Strait of Hormuz as part of an apparently emerging deal on the war.`\
+https://www.nytimes.com/2026/05/24/world/middleeast/rubio-iran-nuclear.html
+
 **Iran War Live Updates: U.S. and Iran Agree in Principle to Reopen Strait of Hormuz, U.S. Official Says**\
 `The official said Iran had also agreed to dispose of highly enriched uranium, but stressed that a deal had not yet been signed. American and Iranian officials have described the terms differently.`\
 https://www.nytimes.com/live/2026/05/24/world/iran-war-trump

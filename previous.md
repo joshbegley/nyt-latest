@@ -1,3 +1,7 @@
+**Rubio Says Details on Iran Nuclear Program Still to Be Negotiated**\
+`The Secretary of State said the United States was prepared to begin those talks if Iran opens the Strait of Hormuz as part of an apparently emerging deal on the war.`\
+https://www.nytimes.com/2026/05/24/world/middleeast/rubio-iran-nuclear.html
+
 **These Are 5 of the Main Issues to Be Resolved in an Iran-U.S. Peace Deal**\
 `President Trump says the U.S. and Iran could be close to a peace deal. The big issues at stake include the fate of Iran’s nuclear program and reopening the Strait of Hormuz.`\
 https://www.nytimes.com/2026/05/24/world/middleeast/five-main-issues-iran-israel-nuclear.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/05/24/espanol/mundo/decreto-taliban-matrimonio-i
 **6 consejos de expertos para dormir si sufres alergias estacionales**\
 `Cuando cuesta respirar, cuesta descansar.`\
 https://www.nytimes.com/es/2026/05/24/espanol/alergias-como-dormir.html
-
-**As Easy as Riding a Bike? Adult Learners Give It a Try.**\
-`At Bike New York’s free classes for adults, many novice riders are nervous. Many are embarrassed. And many are women.`\
-https://www.nytimes.com/2026/05/24/nyregion/bike-new-york-classes-nyc.html
 
