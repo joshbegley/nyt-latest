@@ -1,3 +1,7 @@
+**Israeli Leader Says He and Trump Agree on Blocking an Iranian Nuclear Weapon**\
+`Analysts said Israel is worried that a potential agreement will not significantly degrade Iran’s nuclear and missile capabilities.`\
+https://www.nytimes.com/2026/05/24/world/middleeast/iran-deal-israel-reaction.html
+
 **U.S. and Iran Agree in Principle to Reopen the Strait of Hormuz, U.S. Official Says**\
 `The deal does not address Iran’s missile stockpile nor does it stipulate a moratorium on enrichment.`\
 https://www.nytimes.com/2026/05/24/us/strait-of-hormuz-reopen-iran-deal.html
