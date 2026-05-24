@@ -1,3 +1,7 @@
+**Storms Expected Across Eastern U.S. Through Memorial Day**\
+`Rain and thunderstorms were forecast from the Gulf Coast northeastward through the Southeast and into parts of the Northeast.`\
+https://www.nytimes.com/2026/05/24/weather/memorial-day-weather-storms.html
+
 **Iran Projects Victory in Potential Deal With Washington**\
 `Iran’s leaders are playing up the positives — an underdog proved capable of taking on two nuclear-armed powers.`\
 https://www.nytimes.com/2026/05/24/world/europe/iran-projects-victory-in-potential-deal-with-washington.html
