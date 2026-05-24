@@ -1,3 +1,7 @@
+**Three Drake Albums, Three Songs of the Week**\
+`On this triple-track edition of the “Popcast” Song of the Week, our critic Jon Caramanica unpacks the themes of Drake’s latest era.`\
+https://www.nytimes.com/video/podcasts/100000010922000/three-drake-albums-three-songs-of-the-week.html
+
 **Iran Agreed to Give Up Enriched Uranium in Deal Announced by Trump, U.S. Officials Say**\
 `Precise details were unclear but the officials said the U.S. demanded a commitment from Iran on uranium as part of any initial agreement.`\
 https://www.nytimes.com/2026/05/23/world/middleeast/iran-deal-uranium-nuclear.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/23/crosswords/connections-companion-1078.html
 **Today’s Wordle Hints for May 24, 2026**\
 `Scroll down for hints and conversation about the puzzle for Sunday, May 24, 2026.`\
 https://www.nytimes.com/2026/05/23/crosswords/wordle-review-1800.html
-
-**NYT Strands Hints for May 24, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, May 24, 2026.`\
-https://www.nytimes.com/2026/05/23/crosswords/strands-sidekick-812.html
 
