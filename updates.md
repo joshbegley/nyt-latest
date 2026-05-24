@@ -1,3 +1,91 @@
+**A Deciding Factor in Congress Right Now: Who Shows Up to Vote**\
+`Vacant seats, and consistently poor attendance on both sides of the aisle, have exacerbated the challenges of already razor-thin margins in the House and Senate.`\
+https://www.nytimes.com/2026/05/24/us/congress-vote-absence-vacancy-math.html
+
+**With Big Decisions Ahead, the Supreme Court Collides With a Testy Trump**\
+`President Trump has alternated between bullying the justices and cozying up to them as the court prepares to announce major decisions that will determine the fate of the key aspects of his agenda.`\
+https://www.nytimes.com/2026/05/24/us/politics/supreme-court-trump-vance.html
+
+**Alamo Drafthouse Instituted Mobile Ordering. Super Fans Are Not Pleased.**\
+`Known for its strict no-phones policy, the Alamo Drafthouse has instituted mobile ordering for its in-seat meals, upsetting some of its biggest fans.`\
+https://www.nytimes.com/2026/05/24/movies/alamo-drafthouse-mobile-ordering.html
+
+**Sanders and Ocasio-Cortez Try Boosting Progressives in Red Districts**\
+`In highly competitive House races that Democrats need to flip in November, the left is betting that calls for universal health care and taxing the wealthy will resonate — even among Republicans.`\
+https://www.nytimes.com/2026/05/24/us/politics/bernie-sanders-swing-district-liberals.html
+
+**RFK Jr.’s Push to Curb Antidepressants Has Shaken Psychiatry**\
+`An annual psychiatric meeting was abuzz over Robert F. Kennedy Jr.’s call to rein in the use of depression medications. Some fear it will drive patients away from care.`\
+https://www.nytimes.com/2026/05/24/science/rfk-jr-antidepressants-ssri-psychiatry.html
+
+**How This Summer’s Movies Shift the Connection With Their Related Toys**\
+`“The Mandalorian and Grogu,” “Masters of the Universe” and “Toy Story 5” hail from franchises that are shifting the connection with related products.`\
+https://www.nytimes.com/2026/05/24/movies/summer-movies-toy-products-star-wars-toy-story.html
+
+**Nick Kroll Keeps It Raunchy and Animated with “Mating Season”**\
+`With “Mating Season,” Nick Kroll continues to lead the pack when it comes to the booming genre of cartoons that revel in their raciness.`\
+https://www.nytimes.com/2026/05/24/arts/hes-the-modern-master-of-raunchy-animation.html
+
+**UK Institute Is Hunting for Dangers Lurking in AI**\
+`The government’s A.I. Security Institute, staffed by alumni from OpenAI and Google, is becoming a model for countries grappling with A.I.’s emerging risks.`\
+https://www.nytimes.com/2026/05/24/technology/uk-ai-safety-institute.html
+
+**One Job That Is Growing in the A.I. Era? Cybersecurity Experts.**\
+`Demand for security engineers has surged as artificial intelligence generates a glut of new code and models like Anthropic’s Mythos create new concerns.`\
+https://www.nytimes.com/2026/05/24/technology/one-job-that-is-growing-in-the-ai-era-cybersecurity-experts.html
+
+**What Happens When Militancy Conflicts With Motherhood**\
+`Two “Weather kids” reckon with the unyielding political convictions that compromised their parents’ domestic duties.`\
+https://www.nytimes.com/2026/05/24/magazine/radical-parents-books-weather-underground.html
+
+**To A.I. Executives, We’re All Just ‘Meat Computers’**\
+`A term first used in philosophy and cognitive science circles has lately taken on a more ominous cast. Moo.`\
+https://www.nytimes.com/2026/05/24/business/meat-computer-brain-artificial-intelligence.html
+
+**How Marilyn Monroe Gave a Smart Gloss to Her Image**\
+`It was all about self-improvement for the actress, who was born a century ago next week. Two new volumes shed light on the books she collected and the intellectual she married.`\
+https://www.nytimes.com/2026/05/24/books/review/marilyn-monroe-books-arthur-miller.html
+
+**They Started I.V.F., Then Split. Now Who Gets Custody of the Embryos?**\
+`For 47-year-old Erin Millender, this will likely be her last chance to become a mother. Her husband no longer wants to have a child with her.`\
+https://www.nytimes.com/2026/05/24/us/ivf-embryos-custody.html
+
+**Trump Endorsement Shakes John Cornyn in Texas Senate Runoff Against Ken Paxton**\
+`A tough re-election race grew more daunting after President Trump backed Mr. Cornyn’s opponent, Ken Paxton. The Texas senator has vowed to fight to the end.`\
+https://www.nytimes.com/2026/05/24/us/john-cornyn-ken-paxton-texas-runoff.html
+
+**Blind Waymo Users Revel in the Joy of Riding Alone**\
+`Waymo has been an object of frustration to some in California. For visually impaired people, it can also bring a rare feeling of independence.`\
+https://www.nytimes.com/2026/05/24/us/waymo-robot-taxis-blind.html
+
+**Summer’s Best Beach Reads**\
+`If you happen to be near a body of water (salt, fresh, chlorinated or otherwise), here are the books you’ll need.`\
+https://www.nytimes.com/2026/05/24/books/review/summer-beach-reads.html
+
+**In Homeless Crisis, California ‘Is Waging a War on R.V.s’**\
+`The R.V.s are seen as an eyesore — the most visible sign of the state’s homelessness crisis. Neighbors and politicians want them gone. The people who call them home feel under siege.`\
+https://www.nytimes.com/2026/05/24/us/california-homeless-cars-rvs.html
+
+**How a Curious FIFA Deal Gave Fox a Huge Bargain for World Cup Broadcast Rights**\
+`A decision to stave off litigation between Fox and FIFA turned into a bonanza worth hundreds of millions of dollars in discounted World Cup rights to the broadcaster.`\
+https://www.nytimes.com/2026/05/24/world/europe/fifa-world-cup-fox-broadcast-rights.html
+
+**How Prediction Markets and Crypto Firms Steamrolled a Watchdog Agency**\
+`The Commodity Futures Trading Commission purged its ranks, dialed back its enforcement and boosted industries in which President Trump’s family is heavily invested.`\
+https://www.nytimes.com/2026/05/24/us/how-prediction-markets-and-crypto-firms-steamrolled-a-watchdog-agency.html
+
+**Do U.S. Automakers Have a Future in Canada?**\
+`Detroit-based automakers pioneered open trade between Canada and the United States, benefiting both countries. President Trump’s trade war now leaves their future in the country in question.`\
+https://www.nytimes.com/2026/05/24/world/canada/auto-industry-canada-detroit-ontario-car-tariffs.html
+
+**As Rents Soar, Londoners Turn to Vacant Pubs, Offices and Police Stations**\
+`Property guardianship, in which residents live in otherwise vacant buildings, used to be considered edgy. But as the rental market tightens, more people are embracing the arrangement.`\
+https://www.nytimes.com/2026/05/24/world/europe/london-guardianships-rent-cost-of-living.html
+
+**At an LA Costco, Skateboarding and Learning About Loss**\
+`We’re all going to die. But first — just one more trick.`\
+https://www.nytimes.com/2026/05/24/business/economy/costco-curbs-skateboarding-genx.html
+
 **Martin Short y el secreto para encontrar la alegría en los momentos difíciles**\
 `La estrella de la comedia, quien es objeto de un nuevo documental, se ha enfrentado a una serie de pérdidas inimaginables. Sin embargo, dice que siempre hay risas que recordar.`\
 https://www.nytimes.com/es/2026/05/24/espanol/cultura/martin-short-entrevista.html
