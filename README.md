@@ -1,3 +1,7 @@
+**Storms Expected Across Eastern U.S. Through Memorial Day**\
+`Rain and thunderstorms were forecast from the Gulf Coast northeastward through the Southeast and into parts of the Northeast.`\
+https://www.nytimes.com/2026/05/24/weather/memorial-day-weather-storms.html
+
 **Memories of Growing Up on Long Island**\
 `A guest essayist wrote that Long Island produced “more than its share of villainous, dead-eyed jerks.” Readers offer their perspectives. Also: Honor at Stanford.`\
 https://www.nytimes.com/2026/05/24/opinion/growing-up-long-island.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/24/crosswords/spelling-bee-forum.html
 **Iranian Officials Say Proposed Peace Deal Would Open Strait of Hormuz**\
 `Iran has not formally responded to President Trump’s announcement that a peace deal was close. But officials suggested the oil choke point in the Strait of Hormuz could reopen.`\
 https://www.nytimes.com/2026/05/24/world/middleeast/trump-iran-peace-deal-strait-hormuz.html
-
-**Kyiv, Ukraine, Hit in Russian Missile Attack**\
-`Buildings rattled in the Ukrainian capital for hours early Sunday. It was unclear if Russia’s Oreshnik intermediate-range ballistic missile had been used.`\
-https://www.nytimes.com/2026/05/24/world/europe/russia-ukraine-kyiv-attack-oreshnik-missile.html
 
