@@ -1,3 +1,15 @@
+**These Are 5 of the Main Issues to Be Resolved in an Iran-U.S. Peace Deal**\
+`President Trump says the U.S. and Iran could be close to a peace deal. The big issues at stake include the fate of Iran’s nuclear program and reopening the Strait of Hormuz.`\
+https://www.nytimes.com/2026/05/24/world/middleeast/five-main-issues-iran-israel-nuclear.html
+
+**U.S. and Iran Agree in Principle to a Deal to Reopen the Strait of Hormuz, U.S. Official Says**\
+`The deal does not address Iran’s missile stockpile nor does it stipulate a moratorium on enrichment.`\
+https://www.nytimes.com/2026/05/24/us/us-and-iran-agree-in-principle-to-a-deal-to-reopen-the-strait-of-hormuz-us-official-says.html
+
+**Pulled Pork at the Push of a Button**\
+`Assembling this hands-off slow cooker BBQ pulled pork this morning means you can revel in the complex, sweet-spicy dish tonight (and enjoy leftovers all week).`\
+https://www.nytimes.com/2026/05/24/dining/pulled-pork-at-the-push-of-a-button.html
+
 **Israeli Leaders Say Little About Trump’s Potential Iran Deal**\
 `Analysts said the near silence reflected worries that an agreement will not significantly degrade Iran’s nuclear and missile capabilities.`\
 https://www.nytimes.com/2026/05/24/world/middleeast/iran-deal-israel-reaction.html

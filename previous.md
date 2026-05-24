@@ -1,3 +1,15 @@
+**These Are 5 of the Main Issues to Be Resolved in an Iran-U.S. Peace Deal**\
+`President Trump says the U.S. and Iran could be close to a peace deal. The big issues at stake include the fate of Iran’s nuclear program and reopening the Strait of Hormuz.`\
+https://www.nytimes.com/2026/05/24/world/middleeast/five-main-issues-iran-israel-nuclear.html
+
+**U.S. and Iran Agree in Principle to a Deal to Reopen the Strait of Hormuz, U.S. Official Says**\
+`The deal does not address Iran’s missile stockpile nor does it stipulate a moratorium on enrichment.`\
+https://www.nytimes.com/2026/05/24/us/us-and-iran-agree-in-principle-to-a-deal-to-reopen-the-strait-of-hormuz-us-official-says.html
+
+**Pulled Pork at the Push of a Button**\
+`Assembling this hands-off slow cooker BBQ pulled pork this morning means you can revel in the complex, sweet-spicy dish tonight (and enjoy leftovers all week).`\
+https://www.nytimes.com/2026/05/24/dining/pulled-pork-at-the-push-of-a-button.html
+
 **Bonnaroo, Governors Ball and 7 More Summer Music Festivals Not to Miss**\
 `Can’t get to Lollapalooza or Outside Lands this year? Want to see Lizzo play flute with the Chicago Symphony Orchestra? Here are some options.`\
 https://www.nytimes.com/2026/05/24/arts/music/summer-music-festivals-bonnaroo-gov-ball-cma-fest.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/es/2026/05/24/espanol/alergias-como-dormir.html
 **As Easy as Riding a Bike? Adult Learners Give It a Try.**\
 `At Bike New York’s free classes for adults, many novice riders are nervous. Many are embarrassed. And many are women.`\
 https://www.nytimes.com/2026/05/24/nyregion/bike-new-york-classes-nyc.html
-
-**‘I Was Prepared for a Long Wait and Surly Interactions’**\
-`A trip to the D.M.V., an unusual place to buy fruit and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://www.nytimes.com/2026/05/24/nyregion/metropolitan-diary.html
-
-**New York’s Rape Laws Leave Out Many Victims Who Drank Willingly**\
-`Prosecutors say accusers who chose to drink or get high have a “very high burden” of proving they were physically helpless and unable to consent. There is a push to change the law.`\
-https://www.nytimes.com/2026/05/24/nyregion/new-york-rape-laws.html
-
-**NYT Spelling Bee Answers for May 24, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/05/24/crosswords/spelling-bee-forum.html
 
