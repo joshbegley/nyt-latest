@@ -1,3 +1,7 @@
+**Gunman in Shooting Near White House Killed in Exchange of Fire With Secret Service**\
+`A gunman known to the U.S. Secret Service opened fire near the White House and was shot and killed by federal officers. President Trump was in the White House at the time.`\
+https://www.nytimes.com/2026/05/23/us/politics/white-house-shooting.html
+
 **Here’s the latest.**\
 `PresidTrump provided few details about the preliminary agreement, which he said was “largely negotiated.”`\
 https://www.nytimes.com/2026/05/23/world/middleeast/heres-the-latest.html

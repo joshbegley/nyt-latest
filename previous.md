@@ -15,7 +15,7 @@ https://www.nytimes.com/video/us/politics/100000010922833/trump-iran-war-deal.ht
 https://www.nytimes.com/2026/05/23/us/politics/britain-strait-of-hormuz-iran.html
 
 **Gunman in Shooting Near White House Killed in Exchange of Fire With Secret Service**\
-`A gunman who opened fire near the White House was shot and killed by federal officers, and another person was wounded by gunfire. President Trump was in the White House at the time.`\
+`A gunman known to the U.S. Secret Service opened fire near the White House and was shot and killed by federal officers. President Trump was in the White House at the time.`\
 https://www.nytimes.com/2026/05/23/us/politics/white-house-shooting.html
 
 **Next, Please!**\
