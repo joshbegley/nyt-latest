@@ -1,3 +1,11 @@
+**For Carlo Petrini, the Point of ‘Slow Food’ Wasn’t the Food. It Was Us.**\
+`The Italian activist, who died on Thursday, built his global movement on the idea that eating well could make modern life more meaningful.`\
+https://www.nytimes.com/2026/05/24/dining/carlo-petrini-slow-food.html
+
+**Gunman Shot and Killed by Secret Service Near White House**\
+`A gunman known to the U.S. Secret Service opened fire near the White House and was shot and killed by federal officers on Saturday evening.`\
+https://www.nytimes.com/video/us/100000010923246/gunman-shot-and-killed-by-secret-service-near-white-house.html
+
 **Bystander Wounded in White House Shooting Is in Stable Condition**\
 `The Metropolitan Police Department is investigating to determine who shot the bystander, who underwent surgery, and how many bullets were fired.`\
 https://www.nytimes.com/2026/05/24/us/politics/white-house-bystander-shooting-secret-service.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/05/24/world/europe/fifa-world-cup-fox-broadcast-rig
 **How Prediction Markets and Crypto Firms Steamrolled a Watchdog Agency**\
 `The Commodity Futures Trading Commission purged its ranks, dialed back its enforcement and boosted industries in which President Trump’s family is heavily invested.`\
 https://www.nytimes.com/2026/05/24/us/how-prediction-markets-and-crypto-firms-steamrolled-a-watchdog-agency.html
-
-**Do U.S. Automakers Have a Future in Canada?**\
-`Detroit-based automakers pioneered open trade between Canada and the United States, benefiting both countries. President Trump’s trade war now leaves their future in the country in question.`\
-https://www.nytimes.com/2026/05/24/world/canada/auto-industry-canada-detroit-ontario-car-tariffs.html
-
-**As Rents Soar, Londoners Turn to Vacant Pubs, Offices and Police Stations**\
-`Property guardianship, in which residents live in otherwise vacant buildings, used to be considered edgy. But as the rental market tightens, more people are embracing the arrangement.`\
-https://www.nytimes.com/2026/05/24/world/europe/london-guardianships-rent-cost-of-living.html
 

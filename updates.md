@@ -1,3 +1,11 @@
+**For Carlo Petrini, the Point of ‘Slow Food’ Wasn’t the Food. It Was Us.**\
+`The Italian activist, who died on Thursday, built his global movement on the idea that eating well could make modern life more meaningful.`\
+https://www.nytimes.com/2026/05/24/dining/carlo-petrini-slow-food.html
+
+**Gunman Shot and Killed by Secret Service Near White House**\
+`A gunman known to the U.S. Secret Service opened fire near the White House and was shot and killed by federal officers on Saturday evening.`\
+https://www.nytimes.com/video/us/100000010923246/gunman-shot-and-killed-by-secret-service-near-white-house.html
+
 **Bystander Wounded in White House Shooting Is in Stable Condition**\
 `The Metropolitan Police Department is investigating to determine who shot the bystander, who underwent surgery, and how many bullets were fired.`\
 https://www.nytimes.com/2026/05/24/us/politics/white-house-bystander-shooting-secret-service.html
