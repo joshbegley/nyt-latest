@@ -1,3 +1,7 @@
+**Iran War Live Updates: U.S. and Iran Signal Move Toward Initial Peace Deal, but Details Remain Murky**\
+`President Trump said the United States and Iran had “largely negotiated” an agreement, even as American and Iranian officials described the terms differently.`\
+https://www.nytimes.com/live/2026/05/24/world/iran-war-trump
+
 **What to Know About the Potential Iran Peace Deal**\
 `President Trump said on Saturday that an agreement to end the war was “largely negotiated,” but neither the United States nor Iran released many details of the proposal.`\
 https://www.nytimes.com/2026/05/24/world/middleeast/what-to-know-about-the-potential-iran-peace-deal.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/23/us/politics/white-house-shooting.html
 **Next, Please!**\
 `David Steinberg returns to the Sunday puzzle with a new switcheroo.`\
 https://www.nytimes.com/2026/05/23/crosswords/daily-puzzle-2026-05-24.html
-
-**Director Cristian Mungiu’s ‘Fjord’ Wins Palme d’Or at Cannes Film Festival**\
-`The film, from the Romanian director Cristian Mungiu, explores the tension between religious conservatism and social liberalism. The award closed a festival that felt comparatively muted to many.`\
-https://www.nytimes.com/2026/05/23/movies/cannes-palme-dor-winner-fjord.html
 
