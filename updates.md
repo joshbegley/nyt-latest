@@ -1,3 +1,7 @@
+**U.S. and Iran Agree in Principle to Reopen the Strait of Hormuz, U.S. Official Says**\
+`The deal does not address Iran’s missile stockpile nor does it stipulate a moratorium on enrichment.`\
+https://www.nytimes.com/2026/05/24/us/strait-of-hormuz-reopen-iran-deal.html
+
 **U.S. and Iran Agree in Principle to a Deal to Reopen the Strait of Hormuz, U.S. Official Says**\
 `The deal does not address Iran’s missile stockpile nor does it stipulate a moratorium on enrichment.`\
 https://www.nytimes.com/2026/05/24/us/strait-of-hormuz-reopen-iran-deal.html
