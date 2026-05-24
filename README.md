@@ -1,3 +1,7 @@
+**What to Know About the Potential Iran Peace Deal**\
+`President Trump said on Saturday that an agreement to end the war was “largely negotiated,” but neither the United States nor Iran released many details of the proposal.`\
+https://www.nytimes.com/2026/05/24/world/middleeast/what-to-know-about-the-potential-iran-peace-deal.html
+
 **A Deciding Factor in Congress Right Now: Who Shows Up to Vote**\
 `Vacant seats, and consistently poor attendance on both sides of the aisle, have exacerbated the challenges of already razor-thin margins in the House and Senate.`\
 https://www.nytimes.com/2026/05/24/us/congress-vote-absence-vacancy-math.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/23/crosswords/daily-puzzle-2026-05-24.html
 **Director Cristian Mungiu’s ‘Fjord’ Wins Palme d’Or at Cannes Film Festival**\
 `The film, from the Romanian director Cristian Mungiu, explores the tension between religious conservatism and social liberalism. The award closed a festival that felt comparatively muted to many.`\
 https://www.nytimes.com/2026/05/23/movies/cannes-palme-dor-winner-fjord.html
-
-**40,000 Ordered to Evacuate in California Amid Toxic Chemical Tank Crisis**\
-`Firefighters worked on Saturday at the GKN Aerospace aircraft components plant in Garden Grove, Calif., to stop a storage tank filled with a toxic chemical from failing, risking a major explosion or a toxic spill.`\
-https://www.nytimes.com/video/us/100000010922667/chemical-leak-orange-county.html
 
