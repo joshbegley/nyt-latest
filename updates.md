@@ -1,3 +1,7 @@
+**What to Know About the White House Shooting on Memorial Day Weekend**\
+`Shots were fired near the northwestern corner of the White House complex, while President Trump was inside the building. The Secret Service returned fire, killing the gunman.`\
+https://www.nytimes.com/2026/05/24/us/white-house-shooting.html
+
 **Rubio Says Details on Iran Nuclear Program Still to Be Negotiated**\
 `The Secretary of State said the United States was prepared to begin those talks if Iran opens the Strait of Hormuz as part of an apparently emerging deal on the war.`\
 https://www.nytimes.com/2026/05/24/world/middleeast/rubio-iran-nuclear.html
