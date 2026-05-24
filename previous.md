@@ -1,3 +1,7 @@
+**Manny Nosowsky, Waggish Crossword Constructor for The New York Times, Dies at 94**\
+`For nearly two decades, the prolific puzzle maker, a retired urologist, charmed solvers with his penchant for witty, waggish puns.`\
+https://www.nytimes.com/2026/05/24/us/manny-nosowsky-dead.html
+
 **Senate Republicans Cast Doubt on a Potential Peace Deal With Iran**\
 `Lawmakers, including some of President Trump’s closest allies, slammed the emerging agreement as effectively undermining the president’s own war goals.`\
 https://www.nytimes.com/2026/05/24/world/middleeast/senate-republicans-iran-deal-trump.html
@@ -46,8 +50,8 @@ https://www.nytimes.com/2026/05/24/world/middleeast/rubio-iran-nuclear.html
 `President Trump says the U.S. and Iran could be close to a peace deal. The big issues at stake include the fate of Iran’s nuclear program and reopening the Strait of Hormuz.`\
 https://www.nytimes.com/2026/05/24/world/middleeast/five-main-issues-iran-israel-nuclear.html
 
-**U.S. and Iran Agree in Principle to Reopen the Strait of Hormuz, U.S. Official Says**\
-`The deal does not address Iran’s missile stockpile nor does it stipulate a moratorium on enrichment.`\
+**The Art of the Incomplete Deal: The Strait May Open, but the Hardest Issues Come Later**\
+`President Trump is hailing is agreement with Iran as groundbreaking, even as he admits is “isn’t even fully negotiated.” But the nuclear stockpile, enrichment and missiles have not been discussed.`\
 https://www.nytimes.com/2026/05/24/us/strait-of-hormuz-reopen-iran-deal.html
 
 **Pulled Pork at the Push of a Button**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/24/us/john-cornyn-ken-paxton-texas-runoff.html
 **Blind Waymo Users Revel in the Joy of Riding Alone**\
 `Waymo has been an object of frustration to some in California. For visually impaired people, it can also bring a rare feeling of independence.`\
 https://www.nytimes.com/2026/05/24/us/waymo-robot-taxis-blind.html
-
-**Summer’s Best Beach Reads**\
-`If you happen to be near a body of water (salt, fresh, chlorinated or otherwise), here are the books you’ll need.`\
-https://www.nytimes.com/2026/05/24/books/review/summer-beach-reads.html
 
