@@ -1,3 +1,7 @@
+**Manny Nosowsky, Waggish Crossword Constructor for The New York Times, Dies at 94**\
+`For nearly two decades, the prolific puzzle maker, a retired urologist, charmed solvers with his penchant for witty, waggish puns.`\
+https://www.nytimes.com/2026/05/24/us/manny-nosowsky-dead.html
+
 **Senate Republicans Cast Doubt on a Potential Peace Deal With Iran**\
 `Lawmakers, including some of President Trump’s closest allies, slammed the emerging agreement as effectively undermining the president’s own war goals.`\
 https://www.nytimes.com/2026/05/24/world/middleeast/senate-republicans-iran-deal-trump.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/24/us/john-cornyn-ken-paxton-texas-runoff.html
 **Blind Waymo Users Revel in the Joy of Riding Alone**\
 `Waymo has been an object of frustration to some in California. For visually impaired people, it can also bring a rare feeling of independence.`\
 https://www.nytimes.com/2026/05/24/us/waymo-robot-taxis-blind.html
-
-**Summer’s Best Beach Reads**\
-`If you happen to be near a body of water (salt, fresh, chlorinated or otherwise), here are the books you’ll need.`\
-https://www.nytimes.com/2026/05/24/books/review/summer-beach-reads.html
 
