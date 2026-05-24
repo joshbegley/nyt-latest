@@ -1,3 +1,15 @@
+**Memories of Growing Up on Long Island**\
+`A guest essayist wrote that Long Island produced “more than its share of villainous, dead-eyed jerks.” Readers offer their perspectives. Also: Honor at Stanford.`\
+https://www.nytimes.com/2026/05/24/opinion/growing-up-long-island.html
+
+**Grilled Salmon Salad With Lime, Chiles and Herbs**\
+`And four more bright, easy recipes for your post-holiday week.`\
+https://www.nytimes.com/2026/05/24/dining/grilled-salmon-salad-with-lime-chiles-and-herbs.html
+
+**Rubio Says U.S.-India Ties Are Strong, Despite Fury Over Trump’s Actions**\
+`In New Delhi, Secretary of State Marco Rubio tried to explain why President Trump has pushed aggressive trade and immigration policies affecting India and Indians in the United States.`\
+https://www.nytimes.com/2026/05/24/us/politics/rubio-india-trump-visit.html
+
 **Iran Projects Victory in Potential Deal With Washington**\
 `Iran’s leaders are playing up the positives — an underdog proved capable of taking on two nuclear armed powers.`\
 https://www.nytimes.com/2026/05/24/world/europe/iran-projects-victory-in-potential-deal-with-washington.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/05/24/world/middleeast/trump-iran-peace-deal-strait
 **Kyiv, Ukraine, Hit in Russian Missile Attack**\
 `Buildings rattled in the Ukrainian capital for hours early Sunday. It was unclear if Russia’s Oreshnik intermediate-range ballistic missile had been used.`\
 https://www.nytimes.com/2026/05/24/world/europe/russia-ukraine-kyiv-attack-oreshnik-missile.html
-
-**YouTube tiene un problema con la piratería hecha con IA**\
-`Narradas de forma robótica, copias ilegales generadas con IA de ‘Los juegos del hambre’ y otros títulos exitosos son cada vez más comunes en la plataforma.`\
-https://www.nytimes.com/es/2026/05/24/espanol/cultura/youtube-pirateria-audiolibros.html
-
-**The 15-Year-Old Keeping War Memories Alive**\
-`Luke Morrison may be the youngest person keeping alive an age-old tradition: to process war through the memories and mementos of those who experienced it.`\
-https://www.nytimes.com/2026/05/24/opinion/war-memories-memorial-day.html
-
-**I Need an Escape From Travel**\
-`If I cannot get an upgrade — and I cannot, as I have no status, in any aspect of my life — I would like us to suffer more equally when we travel.`\
-https://www.nytimes.com/2026/05/24/opinion/summer-travel-delays-flights.html
 
