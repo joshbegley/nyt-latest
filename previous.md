@@ -1,3 +1,7 @@
+**Martin Short y el secreto para encontrar la alegría en los momentos difíciles**\
+`La estrella de la comedia, quien es objeto de un nuevo documental, se ha enfrentado a una serie de pérdidas inimaginables. Sin embargo, dice que siempre hay risas que recordar.`\
+https://www.nytimes.com/es/2026/05/24/espanol/cultura/martin-short-entrevista.html
+
 **Trump, desafiante tras una mala semana, insiste en sus ideas políticamente impopulares**\
 `El presidente Trump continúa actuando como si fuera políticamente todopoderoso, incluso ante los indicios de que no lo es.`\
 https://www.nytimes.com/es/2026/05/24/espanol/estados-unidos/trump-popularidad.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/23/world/europe/greece-november-17-alexandros-gi
 **These Are a Few of My Favorite Picnic Treats**\
 `Chewy brownie cookies, peanut butter blackberry bars and pistachio halvah Rice Krispies treats travel well and hold up in the sun.`\
 https://www.nytimes.com/2026/05/23/dining/these-are-a-few-of-my-favorite-picnic-treats.html
-
-**Cómo disminuir el estrés con 3 preguntas**\
-`Conseguir una perspectiva más real sobre las dificultades de la vida suele reducir la ansiedad.`\
-https://www.nytimes.com/es/2026/05/23/espanol/estilos-de-vida/estres-que-hacer.html
 

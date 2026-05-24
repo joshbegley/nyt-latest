@@ -1,3 +1,7 @@
+**Martin Short y el secreto para encontrar la alegría en los momentos difíciles**\
+`La estrella de la comedia, quien es objeto de un nuevo documental, se ha enfrentado a una serie de pérdidas inimaginables. Sin embargo, dice que siempre hay risas que recordar.`\
+https://www.nytimes.com/es/2026/05/24/espanol/cultura/martin-short-entrevista.html
+
 **Trump, desafiante tras una mala semana, insiste en sus ideas políticamente impopulares**\
 `El presidente Trump continúa actuando como si fuera políticamente todopoderoso, incluso ante los indicios de que no lo es.`\
 https://www.nytimes.com/es/2026/05/24/espanol/estados-unidos/trump-popularidad.html
