@@ -6,8 +6,8 @@ https://www.nytimes.com/video/us/politics/100000010922833/trump-iran-war-deal.ht
 `At Gibraltar, at the tip of Spain, British forces are ready to deploy autonomous mine-hunting equipment if a peace agreement is achieved.`\
 https://www.nytimes.com/2026/05/23/us/politics/britain-strait-of-hormuz-iran.html
 
-**One Killed in Exchange of Gunfire With Secret Service Near White House**\
-`A gunman who opened fire near the White House was killed and another person wounded by shots fired from federal officers. President Trump was in the White House at the time.`\
+**Gunman in Shooting Near White House Killed in Exchange of Fire With Secret Service**\
+`A gunman who opened fire near the White House was shot and killed by federal officers, and another person was wounded by gunfire. President Trump was in the White House at the time.`\
 https://www.nytimes.com/2026/05/23/us/politics/white-house-shooting.html
 
 **Next, Please!**\
