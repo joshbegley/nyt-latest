@@ -1,3 +1,7 @@
+**Iran Projects Victory in Potential Deal With Washington**\
+`Iran’s leaders are playing up the positives — an underdog proved capable of taking on two nuclear armed powers.`\
+https://www.nytimes.com/2026/05/24/world/europe/iran-projects-victory-in-potential-deal-with-washington.html
+
 **Fate of War in Lebanon Rests With Outside Powers**\
 `A day after President Trump announced an emerging initial peace deal with Iran, Lebanese people wondered what it meant for the war between Israel and Hezbollah, the Iran-backed militant group.`\
 https://www.nytimes.com/2026/05/24/world/middleeast/lebanon-hezbollah-us-iran-israel.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/24/opinion/war-memories-memorial-day.html
 **I Need an Escape From Travel**\
 `If I cannot get an upgrade — and I cannot, as I have no status, in any aspect of my life — I would like us to suffer more equally when we travel.`\
 https://www.nytimes.com/2026/05/24/opinion/summer-travel-delays-flights.html
-
-**The War-Driven Supply Shock Already Roiling Manufacturing in Asia**\
-`A shortage of naphtha, stemming from the blockade of the Strait of Hormuz, is disrupting manufacturing and retail goods in Japan and South Korea.`\
-https://www.nytimes.com/2026/05/24/business/what-is-naphtha.html
 
