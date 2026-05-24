@@ -1,3 +1,7 @@
+**Bystander Wounded in White House Shooting Is in Stable Condition**\
+`The Metropolitan Police Department is investigating to determine who shot the bystander, who underwent surgery, and how many bullets were fired.`\
+https://www.nytimes.com/2026/05/24/us/politics/white-house-bystander-shooting-secret-service.html
+
 **‘Mandalorian and Grogu’ Tops Box Office as Disney Bets on ‘Star Wars’ Revival**\
 `The movie, which cost $300 million to make and market, was expected to collect about $102 million from Thursday through Monday at domestic theaters.`\
 https://www.nytimes.com/2026/05/24/business/media/mandalorian-and-grogu-box-office.html
