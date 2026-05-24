@@ -1,3 +1,15 @@
+**Trump, desafiante tras una mala semana, insiste en sus ideas políticamente impopulares**\
+`El presidente Trump continúa actuando como si fuera políticamente todopoderoso, incluso ante los indicios de que no lo es.`\
+https://www.nytimes.com/es/2026/05/24/espanol/estados-unidos/trump-popularidad.html
+
+**Un nuevo decreto talibán formaliza el matrimonio infantil, advierte la ONU**\
+`Una nueva ley afgana exige que las niñas esperen hasta la pubertad antes de intentar salir de un matrimonio. También exige la mediación para las mujeres que intentan escapar de un esposo maltratador.`\
+https://www.nytimes.com/es/2026/05/24/espanol/mundo/decreto-taliban-matrimonio-infantil.html
+
+**6 consejos de expertos para dormir si sufres alergias estacionales**\
+`Cuando cuesta respirar, cuesta descansar.`\
+https://www.nytimes.com/es/2026/05/24/espanol/alergias-como-dormir.html
+
 **As Easy as Riding a Bike? Adult Learners Give It a Try.**\
 `At Bike New York’s free classes for adults, many novice riders are nervous. Many are embarrassed. And many are women.`\
 https://www.nytimes.com/2026/05/24/nyregion/bike-new-york-classes-nyc.html
