@@ -35,7 +35,7 @@ https://www.nytimes.com/2026/05/24/briefing/colberts-connection.html
 https://www.nytimes.com/2026/05/24/world/asia/pakistan-train-bomb-attack-derailment.html
 
 **Israeli Leaders Say Little About Trump’s Potential Iran Deal**\
-`Analysts said the silence reflected worries that an agreement will not significantly degrade Iran’s nuclear and missile capabilities.`\
+`Analysts said the near silence reflected worries that an agreement will not significantly degrade Iran’s nuclear and missile capabilities.`\
 https://www.nytimes.com/2026/05/24/world/middleeast/iran-deal-israel-reaction.html
 
 **Mets Fans Are Struggling. Be Gentle.**\
