@@ -1,4 +1,8 @@
-**Firefighters Still Working to Cool Chemical Tank in Southern California**\
+**Rafe Pomerance, the Paul Revere of Climate Change, Dies at 79**\
+`An environmental lobbyist and activist, he was a pivotal figure in drawing public attention and political support to the existential issue.`\
+https://www.nytimes.com/2026/05/24/science/rafe-pomerance-dead.html
+
+**Firefighters Still Working to Cool Garden Grove Chemical Tank**\
 `The tank, filled with a toxic chemical, is at risk of explosion or breach. More than 40,000 residents remain under evacuation orders.`\
 https://www.nytimes.com/2026/05/24/us/chemical-tank-garden-grove-southern-california.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/24/business/economy/costco-curbs-skateboarding-g
 **Martin Short y el secreto para encontrar la alegría en los momentos difíciles**\
 `La estrella de la comedia, quien es objeto de un nuevo documental, se ha enfrentado a una serie de pérdidas inimaginables. Sin embargo, dice que siempre hay risas que recordar.`\
 https://www.nytimes.com/es/2026/05/24/espanol/cultura/martin-short-entrevista.html
-
-**Trump, desafiante tras una mala semana, insiste en sus ideas políticamente impopulares**\
-`El presidente Trump continúa actuando como si fuera políticamente todopoderoso, incluso ante los indicios de que no lo es.`\
-https://www.nytimes.com/es/2026/05/24/espanol/estados-unidos/trump-popularidad.html
 

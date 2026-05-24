@@ -1,3 +1,11 @@
+**Rafe Pomerance, the Paul Revere of Climate Change, Dies at 79**\
+`An environmental lobbyist and activist, he was a pivotal figure in drawing public attention and political support to the existential issue.`\
+https://www.nytimes.com/2026/05/24/science/rafe-pomerance-dead.html
+
+**Firefighters Still Working to Cool Garden Grove Chemical Tank**\
+`The tank, filled with a toxic chemical, is at risk of explosion or breach. More than 40,000 residents remain under evacuation orders.`\
+https://www.nytimes.com/2026/05/24/us/chemical-tank-garden-grove-southern-california.html
+
 **Firefighters Still Working to Cool Chemical Tank in Southern California**\
 `The tank, filled with a toxic chemical, is at risk of explosion or breach. More than 40,000 residents remain under evacuation orders.`\
 https://www.nytimes.com/2026/05/24/us/chemical-tank-garden-grove-southern-california.html
