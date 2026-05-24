@@ -1,3 +1,7 @@
+**Confusion and Worry After Trump Administration’s Abrupt Green Card Changes**\
+`Immigrants and their advocates and lawyers are trying to interpret a new Trump administration rule that requires people to be in their native country to apply for a green card.`\
+https://www.nytimes.com/2026/05/24/us/green-card-application-changes-trump.html
+
 **Oil Prices Fall on News of Possible Iran Deal**\
 `S&P 500 futures were up slightly in what may be a sign that investors and analysts are waiting to see if a deal is finalized.`\
 https://www.nytimes.com/2026/05/24/business/oil-stocks-gas.html
