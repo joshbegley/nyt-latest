@@ -1,3 +1,7 @@
+**Fate of War in Lebanon Rests With Outside Powers**\
+`A day after President Trump announced an emerging initial peace deal with Iran, Lebanese people wondered what it meant for the war between Israel and Hezbollah, the Iran-backed militant group.`\
+https://www.nytimes.com/2026/05/24/world/middleeast/lebanon-hezbollah-us-iran-israel.html
+
 **Colbert’s Connection**\
 `A reflection on Stephen Colbert’s relationship with his audience.`\
 https://www.nytimes.com/2026/05/24/briefing/colberts-connection.html
