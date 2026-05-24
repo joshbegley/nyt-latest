@@ -1,3 +1,7 @@
+**Iranian Officials Say Proposed Peace Deal Would Open Strait of Hormuz**\
+`Iran has not formally responded to President Trump’s announcement that a peace deal was close. But officials suggested the oil choke point in the Strait of Hormuz could reopen.`\
+https://www.nytimes.com/2026/05/24/world/middleeast/trump-iran-peace-deal-strait-hormuz.html
+
 **Kyiv, Ukraine, Hit in Russian Missile Attack**\
 `Buildings rattled in the Ukrainian capital for hours early Sunday. It was unclear if Russia’s Oreshnik intermediate-range ballistic missile had been used.`\
 https://www.nytimes.com/2026/05/24/world/europe/russia-ukraine-kyiv-attack-oreshnik-missile.html
