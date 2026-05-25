@@ -1,3 +1,7 @@
+**He Name-Drops Ocasio-Cortez in His Bid for Congress. She Doesn’t Talk About Him at All.**\
+`Saikat Chakrabarti, Alexandria Ocasio-Cortez’s former chief of staff, is running in San Francisco to succeed Representative Nancy Pelosi, whom Mr. Chakrabarti irked with an incendiary tweet seven years ago.`\
+https://www.nytimes.com/2026/05/25/us/politics/saikat-chakrabarti-aoc-sf-pelosi-seat.html
+
 **A Poem for Memorial Day**\
 `We remember those who gave their lives in service to the United States.`\
 https://www.nytimes.com/2026/05/25/briefing/a-poem-for-memorial-day.html
