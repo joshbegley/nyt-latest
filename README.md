@@ -1,3 +1,27 @@
+**El papa León está a punto de hacer una declaración sobre la IA. Por qué es importante**\
+`León XIV va a emitir sus pensamientos sobre la inteligencia artificial mediante una forma de comunicación papal centenaria llamada encíclica, la primera desde que es papa.`\
+https://www.nytimes.com/es/2026/05/25/espanol/mundo/papa-leon-enciclica-ia.html
+
+**How Wine, Truffles and Honey Could Help Europe Fight Wildfires**\
+`Countries are learning that the finer things in life sometimes have a serendipitous side benefit.`\
+https://www.nytimes.com/2026/05/25/world/europe/wine-truffles-firefighting-climate-change.html
+
+**Quote of the Day: Advice in a Bleak Job Market From Those Who Can Relate**\
+`Quotation of the Day for Monday, May 25, 2026.`\
+https://www.nytimes.com/2026/05/25/pageoneplus/quote-of-the-day-advice-in-a-bleak-job-market-from-those-who-can-relate.html
+
+**$140,000 E.V.s and Heritage Gold: The Rise of China’s Homegrown Luxury Market**\
+`As China’s economy slows, consumers are increasingly turning to domestic luxury products, challenging the dominance of long-established European brands.`\
+https://www.nytimes.com/2026/05/25/business/chinese-luxury-brands.html
+
+**Pope Leo Is Set to Release an Encyclical About A.I. Why Is That Important?**\
+`Leo XIV is to issue his thoughts about artificial intelligence in the modern world, using a centuries-old form of papal communication called an encyclical, the first since he became pope.`\
+https://www.nytimes.com/2026/05/25/world/europe/pope-leo-encyclical-ai.html
+
+**No Corrections: May 25, 2026**\
+`No corrections appeared in print on Monday, May 25, 2026.`\
+https://www.nytimes.com/2026/05/25/corrections/no-corrections-may-25-2026.html
+
 **Rubio Rebukes Hezbollah Chief Over Call for Lebanese to ‘Take to the Streets’**\
 `The militant leader, in a speech, had criticized the Lebanese government for engaging in direct talks with Israel.`\
 https://www.nytimes.com/2026/05/24/world/middleeast/naim-qassem-hezbollah-rubio.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/05/24/opinion/democrats-2028-election-expert.html
 **As a Doctor, I Can Understand the Allure of ChatGPT**\
 `Even doctors can learn something from A.I.`\
 https://www.nytimes.com/2026/05/24/opinion/doctor-ai-chatgpt.html
-
-**NYT Strands Hints for May 25, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, May 25, 2026.`\
-https://www.nytimes.com/2026/05/24/crosswords/strands-sidekick-813.html
-
-**Iran War Live Updates: U.S.-Iran Peace Deal Nearer, But Could Take Days to Nail Down, U.S. Official Says**\
-`The official said the sides had agreed in principle to reopen the Strait of Hormuz and commit Iran to disposing of its highly enriched uranium, but stressed that a deal had not yet been signed.`\
-https://www.nytimes.com/live/2026/05/24/world/iran-war-trump
-
-**What to Know About the Potential U.S.-Iran Peace Deal**\
-`President Trump said on Saturday that an agreement to end the war was “largely negotiated,” but neither the United States nor Iran released many details of the proposal.`\
-https://www.nytimes.com/2026/05/24/world/middleeast/us-iran-peace-deal-proposal.html
-
-**A Deciding Factor in Congress Right Now: Who Shows Up to Vote**\
-`Vacant seats, and consistently poor attendance on both sides of the aisle, have exacerbated the challenges of already razor-thin margins in the House and Senate.`\
-https://www.nytimes.com/2026/05/24/us/congress-vote-absence-vacancy-math.html
-
-**With Big Decisions Ahead, the Supreme Court Collides With a Testy Trump**\
-`President Trump has alternated between bullying the justices and cozying up to them as the court prepares to announce major decisions that will determine the fate of the key aspects of his agenda.`\
-https://www.nytimes.com/2026/05/24/us/politics/supreme-court-trump-vance.html
-
-**Alamo Drafthouse Instituted Mobile Ordering. Super Fans Are Not Pleased.**\
-`Known for its strict no-phones policy, the Alamo Drafthouse has instituted mobile ordering for its in-seat meals, upsetting some of its biggest fans.`\
-https://www.nytimes.com/2026/05/24/movies/alamo-drafthouse-mobile-ordering.html
 
