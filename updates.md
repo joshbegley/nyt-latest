@@ -1,3 +1,7 @@
+**Secretary Rubio Says U.S. Made ‘Significant Progress’ Toward Interim Deal with Iran**\
+`Secretary of State Marco Rubio said the Trump administration made “significant progress” toward a deal with Iran. A senior U.S. official also said that the U.S. and Iran had agreed in principle to reopen the Strait of Hormuz and to have Iran dispose of its nuclear material. Iran has not commented publicly on the potential agreement.`\
+https://www.nytimes.com/video/world/middleeast/100000010923453/marco-rubio-iran-peace-deal.html
+
 **Evacuees Cope With Uncertainty After California Chemical Plant Crisis**\
 `Displaced residents sheltering in Huntington Beach, Calif., helped one other amid uncertainty after a chemical tank began overheating at an industrial complex, prompting evacuation orders.`\
 https://www.nytimes.com/video/us/100000010923932/chemical-tank-garden-grove-evacuee.html
