@@ -76,7 +76,7 @@ https://www.nytimes.com/2026/05/25/us/memorial-day-arlington-national-cemetery.h
 
 **A Striking Costa Rican Beach House Pays Tribute to Latin America**\
 `A builder and an architect collaborated on a family beach compound using local materials and with a patio and a pool at the center.`\
-https://www.nytimes.com/2026/05/25/realestate/costarica-santa-teresa-home-renovation.html
+https://www.nytimes.com/2026/05/25/realestate/costa-rica-santa-teresa-home-renovation.html
 
 **Will Maureen Galindo’s ‘Zionists’ Comments Matter in Texas House Runoff Election?**\
 `Democratic leaders accused Maureen Galindo of antisemitism and are trying to stop her from winning the party’s primary in a contested U.S. House district.`\
