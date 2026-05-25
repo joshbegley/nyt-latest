@@ -1,3 +1,7 @@
+**Threat of Explosion From Toxic Chemical Tank Lessened, Officials Say**\
+`Residents who live near the site in Garden Grove, Calif., want to know when they can return home. Some complained about confusing messages from officials.`\
+https://www.nytimes.com/2026/05/25/us/chemical-tank-garden-grove.html
+
 **En la ciudad en el centro de la crisis del ébola, ‘el virus nos lleva mucha ventaja’**\
 `El virus mortal se ha propagado de forma alarmante en la República Democrática del Congo durante meses. La respuesta apenas está tomando forma.`\
 https://www.nytimes.com/es/2026/05/25/espanol/mundo/ebola-virus-propagacion.html
