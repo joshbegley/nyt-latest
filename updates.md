@@ -1,3 +1,7 @@
+**Toshifumi Suzuki, Who Made 7-Eleven a Giant in Japan, Dies at 93**\
+`He spent four decades building the convenience store chain into a cornerstone of daily life.`\
+https://www.nytimes.com/2026/05/25/business/toshifumi-suzuki-dead.html
+
 **As A.I. Fever Rises in Silicon Valley, Pope Leo Has a Few Words**\
 `The American pope wants to take artificial intelligence down a notch. Is he challenging the tech companies, or will tech take over the papacy?`\
 https://www.nytimes.com/2026/05/25/technology/pope-ai-silicon-valley.html

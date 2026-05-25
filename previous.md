@@ -30,9 +30,9 @@ https://www.nytimes.com/2026/05/25/business/iran-strait-hormuz-shipping-traffic.
 `Forecasters warned that temperatures could climb to the highest level ever recorded in the month of May, reaching 35 degrees Celsius (95 degrees Fahrenheit) in some areas of England.`\
 https://www.nytimes.com/2026/05/25/weather/uk-heat-wave-may-weather-record.html
 
-**Toshifumi Suzuki, Japan’s ‘God’ of Convenience Stores, Dies at 93**\
-`Toshifumi Suzuki spent four decades building 7-Eleven into a cornerstone of daily life in Japan.`\
-https://www.nytimes.com/2026/05/25/business/seven-eleven-ceo-obit.html
+**Toshifumi Suzuki, Who Made 7-Eleven a Giant in Japan, Dies at 93**\
+`He spent four decades building the convenience store chain into a cornerstone of daily life.`\
+https://www.nytimes.com/2026/05/25/business/toshifumi-suzuki-dead.html
 
 **Falling Test Scores: Reasons and Fixes**\
 `Readers discuss data showing lower reading and math scores. Also: The yuppie factor.`\
