@@ -1,3 +1,7 @@
+**Evacuees Cope With Uncertainty After California Chemical Plant Crisis**\
+`Displaced residents sheltering in Huntington Beach, Calif., helped one other amid uncertainty after a chemical tank began overheating at an industrial complex, prompting evacuation orders.`\
+https://www.nytimes.com/video/us/100000010923932/chemical-tank-garden-grove-evacuee.html
+
 **Brooklyn Co-op Divided Over Push to Boycott Israeli Products**\
 `The Park Slope Food Co-op, a socially conscious grocery store in a liberal neighborhood, has devolved into dysfunction ahead of a Tuesday vote on the proposed boycott.`\
 https://www.nytimes.com/2026/05/25/nyregion/park-slope-coop-israel-boycott.html
