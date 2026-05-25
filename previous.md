@@ -31,7 +31,7 @@ https://www.nytimes.com/2026/05/25/business/ferrari-luce-electric-vehicle.html
 https://www.nytimes.com/es/2026/05/25/espanol/mundo/papa-leon-enciclica-que-dice.html
 
 **Gov. Sherrill Demands Access to ICE Facility as Hunger Strike Widens**\
-`Gov. Mikie Sherrill joined protesters at an immigration jail in New Jersey, the latest standoff between her and President Trump over his immigration policies.`\
+`After Gov. Mikie Sherrill joined protesters at an immigration jail in New Jersey, the standoff grew tense, with ICE agents deploying pepper balls and spray.`\
 https://www.nytimes.com/2026/05/25/nyregion/sherrill-ice-delaney-hunger-strike.html
 
 **‘A Dangerous Bluff’: Carney Likens Alberta Referendum to Brexit**\

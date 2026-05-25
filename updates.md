@@ -1,3 +1,7 @@
+**Gov. Sherrill Demands Access to ICE Facility as Hunger Strike Widens**\
+`After Gov. Mikie Sherrill joined protesters at an immigration jail in New Jersey, the standoff grew tense, with ICE agents deploying pepper balls and spray.`\
+https://www.nytimes.com/2026/05/25/nyregion/sherrill-ice-delaney-hunger-strike.html
+
 **Netanyahu Says Israel Plans to Intensify Attacks on Hezbollah in Lebanon**\
 `After the prime minister made the announcement, the Israeli military said it had struck more than 70 Hezbollah sites in the past day.`\
 https://www.nytimes.com/2026/05/25/world/middleeast/netanyahu-israel-hezbollah-lebanon.html
