@@ -1,3 +1,7 @@
+**To Get the Strait Open, Trump Had to Leave the Hardest Issues for Later**\
+`President Trump is hailing the agreement with Iran as groundbreaking, even as he admits it “isn’t even fully negotiated.” But the nuclear stockpile, enrichment and missiles have not been discussed.`\
+https://www.nytimes.com/2026/05/24/us/strait-of-hormuz-reopen-iran-deal.html
+
 **A Democrat Took on Red Sox Ownership in an Ad. A Network Pulled it.**\
 `Graham Platner, a Senate candidate in Maine, blamed private equity for destroying “our favorite baseball team.” NESN, which is owned by the team, pulled his campaign ad, citing an intellectual property violation.`\
 https://www.nytimes.com/2026/05/24/us/politics/platner-ad-red-sox-midterms.html
