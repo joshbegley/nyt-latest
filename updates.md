@@ -1,3 +1,19 @@
+**Gov. Sherrill Demands Access to ICE Facility as Hunger Strike Widens**\
+`Gov. Mikie Sherrill joined protesters at an immigration jail in New Jersey, the latest standoff between her and President Trump over his immigration policies.`\
+https://www.nytimes.com/2026/05/25/nyregion/sherrill-ice-delaney-hunger-strike.html
+
+**‘A Dangerous Bluff’: Carney Likens Alberta Referendum to Brexit**\
+`The Canadian prime minister, who was the governor of the Bank of England when Britain voted to leave the European Union, said the Alberta referendum on separating from Canada could backfire.`\
+https://www.nytimes.com/2026/05/25/world/canada/mark-carney-alberta-referendum-brexit.html
+
+**Threat of Explosion From Toxic Chemical Tank Lessened, Officials Say**\
+`Evacuation orders remained in place for more than 40,000 residents around Garden Grove, Calif., the location of an industrial site containing an unstable tank of toxic chemical.`\
+https://www.nytimes.com/2026/05/25/us/chemical-tank-garden-grove.html
+
+**Iran War Live Updates: Negotiations to End the War Resume in Qatar**\
+`Top Iranian officials arrived in Doha. President Trump gave conflicting signals over how much progress had been made. Prime Minister Benjamin Netanyahu said Israel intends to intensify attacks against Hezbollah, Iran’s ally, in Lebanon.`\
+https://www.nytimes.com/live/2026/05/25/world/iran-war-trump
+
 **‘Bing Bong!’ The Knicks’ Watch Party Outside the Garden Is Dead.**\
 `The police say that celebrations outside of Madison Square Garden have gotten out of control. Fans and insiders say the chaos has been driven by social media influencers.`\
 https://www.nytimes.com/2026/05/25/nyregion/knicks-watch-party-garden.html
