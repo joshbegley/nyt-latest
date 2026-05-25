@@ -1,3 +1,11 @@
+**Are We Pandemic Ready?**\
+`Hantavirus and Ebola are reminders that outbreaks are inevitable, and that the world must work together to contain them and prevent the next pandemic.`\
+https://www.nytimes.com/2026/05/25/world/pandemic-ebola-outbreak-iran-qatar.html
+
+**Main Takeaways From Pope Leo’s Encyclical on A.I.**\
+`In his letter, the first American pontiff called for putting care for humans at the heart of technological change.`\
+https://www.nytimes.com/2026/05/25/us/pope-leo-encyclical-highlights.html
+
 **Guerra en Irán: Trump pospone los temas más difíciles para reabrir el estrecho de Ormuz**\
 `El presidente Trump aclama el acuerdo con Irán como innovador, aunque admite que no se ha negociado del todo. El arsenal nuclear, el enriquecimiento y los misiles no se han discutido.`\
 https://www.nytimes.com/es/2026/05/25/espanol/estados-unidos/iran-acuerdo-estrecho-ormuz-trump.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/05/25/arts/television/spider-noir-spider-man.html
 **Amid Iran War, Remembering the Losses From Another Middle East Conflict**\
 `On this Memorial Day, families of those killed in the Iraq War reflected on the sacrifice and offered advice to today’s military families.`\
 https://www.nytimes.com/2026/05/25/us/memorial-day-arlington-national-cemetery.html
-
-**A Striking Costa Rican Beach House Pays Tribute to Latin America**\
-`A builder and an architect collaborated on a family beach compound using local materials and with a patio and a pool at the center.`\
-https://www.nytimes.com/2026/05/25/realestate/costa-rica-santa-teresa-home-renovation.html
-
-**Will Maureen Galindo’s ‘Zionists’ Comments Matter in Texas House Runoff Election?**\
-`Democratic leaders accused Maureen Galindo of antisemitism and are trying to stop her from winning the party’s primary in a contested U.S. House district.`\
-https://www.nytimes.com/2026/05/25/us/maureen-galindo-texas-runoff-antisemitism.html
 
