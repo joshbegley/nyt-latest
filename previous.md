@@ -1,3 +1,11 @@
+**Parts of Britain Hit With First Heat Wave of the Year**\
+`Large areas of Britain were hit with their first heat wave of the year on Monday. Temperatures in Greater London’s suburb of Teddington matched a 1944 record for the hottest day in May.`\
+https://www.nytimes.com/video/weather/100000010924330/britain-london-heat-wave-weather.html
+
+**Lizzo Addresses the Backlash and Performs Live at The New York Times**\
+`During a special edition of “Popcast,” the singer discussed her new album and the public fallout from a series of lawsuits. Then she performed a stripped-down set.`\
+https://www.nytimes.com/2026/05/25/arts/music/lizzo-new-york-times-live-performance.html
+
 **Threat of Toxic Explosion in Orange County, Calif., Eliminated, Officials Say**\
 `Evacuation orders remained in place for more than 40,000 residents around Garden Grove, Calif., the location of an industrial site containing an unstable tank of toxic chemical.`\
 https://www.nytimes.com/2026/05/25/us/chemical-tank-garden-grove.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/05/25/us/politics/saikat-chakrabarti-aoc-sf-pelosi-
 **New Waterside Getaways for the Summer**\
 `From the Hamptons to Majorca, here are six getaways that invite you to eat, drink, lounge and enjoy idyllic surroundings.`\
 https://www.nytimes.com/2026/05/25/travel/new-summer-retreats-and-hotels.html
-
-**Iran Is Trolling Us and We’re Not Doing Anything About It**\
-`This is a novel form of propaganda.`\
-https://www.nytimes.com/2026/05/25/opinion/iran-trolling-propaganda.html
-
-**Broadway’s ‘The Lost Boys’ and Its Flying Vampire Spectacle**\
-`The Broadway production takes full advantage of the Palace Theater’s abundant height and depth, making the show feel like “a massive trust fall.”`\
-https://www.nytimes.com/2026/05/25/theater/lost-boys-flying-broadway-vampires.html
 

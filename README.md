@@ -1,3 +1,7 @@
+**Trump Urges More Countries to Normalize Relations With Israel as Part of Iran Deal**\
+`President Trump called for countries in the Middle East to join the Abraham Accords as part of a peace deal with Iran. Analysts say it is unlikely.`\
+https://www.nytimes.com/2026/05/25/us/politics/trump-israel-iran-abraham-accords.html
+
 **Parts of Britain Hit With First Heat Wave of the Year**\
 `Large areas of Britain were hit with their first heat wave of the year on Monday. Temperatures in Greater London’s suburb of Teddington matched a 1944 record for the hottest day in May.`\
 https://www.nytimes.com/video/weather/100000010924330/britain-london-heat-wave-weather.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/05/25/crosswords/crosswords-visual-art.html
 **He Name-Drops Ocasio-Cortez in His Bid for Congress. She Doesn’t Talk About Him at All.**\
 `Saikat Chakrabarti, Alexandria Ocasio-Cortez’s former chief of staff, is running in San Francisco to succeed Representative Nancy Pelosi, whom Mr. Chakrabarti irked with an incendiary tweet seven years ago.`\
 https://www.nytimes.com/2026/05/25/us/politics/saikat-chakrabarti-aoc-sf-pelosi-seat.html
-
-**New Waterside Getaways for the Summer**\
-`From the Hamptons to Majorca, here are six getaways that invite you to eat, drink, lounge and enjoy idyllic surroundings.`\
-https://www.nytimes.com/2026/05/25/travel/new-summer-retreats-and-hotels.html
 
