@@ -1,3 +1,7 @@
+**¿Qué dice la primera encíclica del papa León XIV?**\
+`El documento marca una poderosa incursión del líder de la Iglesia católica romana en el debate sobre el uso indebido o excesivo de la inteligencia artificial.`\
+https://www.nytimes.com/es/2026/05/25/espanol/mundo/papa-leon-enciclica-que-dice.html
+
 **Gov. Sherrill Demands Access to ICE Facility as Hunger Strike Widens**\
 `Gov. Mikie Sherrill joined protesters at an immigration jail in New Jersey, the latest standoff between her and President Trump over his immigration policies.`\
 https://www.nytimes.com/2026/05/25/nyregion/sherrill-ice-delaney-hunger-strike.html
