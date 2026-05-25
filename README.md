@@ -1,3 +1,15 @@
+**Guerra en Irán: Trump pospone los temas más difíciles para reabrir el estrecho de Ormuz**\
+`El presidente Trump aclama el acuerdo con Irán como innovador, aunque admite que no se ha negociado del todo. El arsenal nuclear, el enriquecimiento y los misiles no se han discutido.`\
+https://www.nytimes.com/es/2026/05/25/espanol/estados-unidos/iran-acuerdo-estrecho-ormuz-trump.html
+
+**After Defeat, Massie Opens Door to a 2028 Run. Which Office Is Unclear.**\
+`Representative Thomas Massie of Kentucky, a critic of President Trump who lost his primary last week, filed papers for another candidacy but said he was not sure which office he might seek.`\
+https://www.nytimes.com/2026/05/25/us/politics/thomas-massie-2028-race.html
+
+**Ferrari Unveils Luce, Its First Fully Electric Car**\
+`The Italian sports car maker unveiled Luce, its first all-electric model, on Monday amid wider worries about the luxury E.V. market.`\
+https://www.nytimes.com/2026/05/25/business/ferrari-luce-electric-vehicle.html
+
 **¿Qué dice la primera encíclica del papa León XIV?**\
 `El documento marca una poderosa incursión del líder de la Iglesia católica romana en el debate sobre el uso indebido o excesivo de la inteligencia artificial.`\
 https://www.nytimes.com/es/2026/05/25/espanol/mundo/papa-leon-enciclica-que-dice.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/05/25/realestate/costa-rica-santa-teresa-home-renov
 **Will Maureen Galindo’s ‘Zionists’ Comments Matter in Texas House Runoff Election?**\
 `Democratic leaders accused Maureen Galindo of antisemitism and are trying to stop her from winning the party’s primary in a contested U.S. House district.`\
 https://www.nytimes.com/2026/05/25/us/maureen-galindo-texas-runoff-antisemitism.html
-
-**5 Big Moments in the Texas Republican Senate Race**\
-`The contest between the incumbent John Cornyn and his challenger Ken Paxton will culminate in a Tuesday runoff. Here are the developments that shaped the campaign.`\
-https://www.nytimes.com/2026/05/25/us/politics/texas-cornyn-paxton-senate-campaign.html
-
-**The International Dance League Wants to Be the ‘NBA of Dance’**\
-`The International Dance League wants to give dancers a career path and to create stars. “Commercialization is good,” said a founder of the league.`\
-https://www.nytimes.com/2026/05/25/arts/dance/international-dance-league-competition.html
-
-**Twenty Years After His Film, Al Gore Tweaks the Climate Script**\
-`Mr. Gore is still giving the slide show that “An Inconvenient Truth” was built around, but with changes that reflect a shift in the discussion of climate change.`\
-https://www.nytimes.com/2026/05/25/climate/al-gore-an-inconvenient-truth.html
 
