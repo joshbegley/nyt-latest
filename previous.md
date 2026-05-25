@@ -1,5 +1,13 @@
-**Still Out of Sight, Tom Kean Jr. Calls Allies to Ease Doubts Amid Absence**\
-`Republican officials said they have talked to the congressman, who has been absent from Congress for weeks. His office said Mr. Kean will eventually explain his absence.`\
+**Cambodia’s Leader Pardons Top Opposition Politician Kem Sokha**\
+`The decision to release Kem Sokha is being seen as a likely attempt to recalibrate frayed ties with Western countries.`\
+https://www.nytimes.com/2026/05/25/world/asia/cambodia-pardon-kem-sokha.html
+
+**How Lizzo Is Navigating Public Backlash As a Pop Star**\
+`Lizzo spoke to “Popcast” about making positive music amid a couple of turbulent years in the public eye.`\
+https://www.nytimes.com/video/podcasts/100000010883864/how-lizzo-is-navigating-public-backlash-as-a-pop-star.html
+
+**Absent Congressman Calls Allies, but Stops Short of Public Appearance**\
+`Republican officials said they have talked to Tom Kean Jr., who has been absent from Congress for weeks. His office said Mr. Kean will eventually explain his absence.`\
 https://www.nytimes.com/2026/05/25/nyregion/tom-kean-new-jersey-missing.html
 
 **As A.I. Fever Rises in Silicon Valley, Pope Leo Has a Few Words**\
@@ -95,7 +103,7 @@ https://www.nytimes.com/es/2026/05/25/espanol/mundo/moscu-ataque-drones-ucrania.
 https://www.nytimes.com/2026/05/25/world/americas/cuba-blackouts-fire-energy-oil.html
 
 **How Art Auctions Choreographed a $2.5 Billion Comeback**\
-`After four years of uneven sales, the auction houses engineered a successful season by redefining the expectations of buyers and sellers.`\
+`After four years of uneven sales, the auction houses engineered a successful season by redefining the expectations of buyers and sellers—and avoiding flops.`\
 https://www.nytimes.com/2026/05/25/arts/design/art-auctions-comeback-sothebys-christies.html
 
 **Por qué las mujeres están probando antialérgicos para los síntomas menstruales y de la perimenopausia**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/05/25/us/constitution-framers-president-executive-m
 **Student Loan Repayments Are Being Overhauled. What Borrowers Should Know.**\
 `Starting July 1, millions of borrowers will need to choose from a new menu of repayment options as the Trump administration enacts major changes to the student loan system.`\
 https://www.nytimes.com/2026/05/25/your-money/student-loans-repayment-save-biden.html
-
-**The Medical System Abandons Women When They Are Most Vulnerable**\
-`One year after my daughter’s birth, I’m still experiencing health complications.`\
-https://www.nytimes.com/2026/05/25/opinion/women-childbirth-postpartum-care.html
-
-**Book Review: ‘America, U.S.A.,’ by Eddie S. Glaude Jr.**\
-`In “America, U.S.A.,” Eddie Glaude Jr. looks back at the country’s past anniversaries with skepticism and pain.`\
-https://www.nytimes.com/2026/05/25/books/review/america-usa-eddie-s-glaude-jr.html
 
