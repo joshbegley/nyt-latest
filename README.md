@@ -14,7 +14,7 @@ https://www.nytimes.com/video/weather/100000010924330/britain-london-heat-wave-w
 `During a special edition of “Popcast,” the singer discussed her new album and the public fallout from a series of lawsuits. Then she performed a stripped-down set.`\
 https://www.nytimes.com/2026/05/25/arts/music/lizzo-new-york-times-live-performance.html
 
-**Threat of Toxic Explosion in Orange County, Calif., Eliminated, Officials Say**\
+**Threat of Explosion From Toxic Chemical Tank Lessened, Officials Say**\
 `Evacuation orders remained in place for more than 40,000 residents around Garden Grove, Calif., the location of an industrial site containing an unstable tank of toxic chemical.`\
 https://www.nytimes.com/2026/05/25/us/chemical-tank-garden-grove.html
 
