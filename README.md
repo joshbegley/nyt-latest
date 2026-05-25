@@ -1,3 +1,15 @@
+**NYT Connections Answers for May 26, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, May 26, 2026.`\
+https://www.nytimes.com/2026/05/25/crosswords/connections-companion-1080.html
+
+**Today’s Wordle Hints for May 26, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, May 26, 2026.`\
+https://www.nytimes.com/2026/05/25/crosswords/wordle-review-1802.html
+
+**NYT Strands Hints for May 26, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, May 26, 2026.`\
+https://www.nytimes.com/2026/05/25/crosswords/strands-sidekick-814.html
+
 **Lo que hay que saber sobre la crisis de la planta química de California**\
 `Los bomberos siguen enfriando con agua un tanque de almacenamiento de productos químicos para evitar que se rompa o explote. Unos 40.000 residentes cercanos a la planta del condado de Orange han sido evacuados a refugios.`\
 https://www.nytimes.com/es/2026/05/25/espanol/estados-unidos/garden-grove-planta-quimicos-evacuacion.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/05/25/nyregion/lawmakers-pay-budget-ny.html
 **NYT Spelling Bee Answers for May 25, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/05/25/crosswords/spelling-bee-forum.html
-
-**‘Star City,’ and 5 More Things to Watch on TV This Week**\
-`A spinoff of “For All Mankind” airs on Apple TV, and a new Netflix series tells the incredible story of Brazil’s win at the 1970 World Cup.`\
-https://www.nytimes.com/2026/05/25/arts/television/star-city-things-to-watch-on-tv-this-week.html
-
-**The Ghosts of France’s Slave Trade Will Be Silenced No More**\
-`Three centuries late and not a moment too soon.`\
-https://www.nytimes.com/2026/05/25/opinion/france-slave-trade.html
-
-**My Wife Fought Corruption in El Salvador. Then She Vanished Into Its Prisons.**\
-`The cost of Nayib Bukele’s crackdown on crime is too high.`\
-https://www.nytimes.com/2026/05/25/opinion/el-salvador-ruth-lopez-bukele.html
 
