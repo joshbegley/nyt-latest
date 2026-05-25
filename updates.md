@@ -1,3 +1,7 @@
+**One-and-Done Heart Disease Prevention? Scientists Show It May Be Possible.**\
+`A single infusion of an experimental gene-editing drug seemed to reduce LDL long-term in a small trial. The results may point to something “curative,” one expert said.`\
+https://www.nytimes.com/2026/05/25/health/cholesterol-ldl-gene-therapy.html
+
 **A Striking Costa Rican Beach House Pays Tribute to Latin America**\
 `A builder and an architect collaborated on a family beach compound using local materials and with a patio and a pool at the center.`\
 https://www.nytimes.com/2026/05/25/realestate/costa-rica-santa-teresa-home-renovation.html
