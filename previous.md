@@ -1,3 +1,15 @@
+**‘Star City,’ and 5 More Things to Watch on TV This Week**\
+`A spinoff of “For All Mankind” airs on Apple TV, and a new Netflix series tells the incredible story of Brazil’s win at the 1970 World Cup.`\
+https://www.nytimes.com/2026/05/25/arts/television/star-city-things-to-watch-on-tv-this-week.html
+
+**The Ghosts of France’s Slave Trade Will Be Silenced No More**\
+`Three centuries late and not a moment too soon.`\
+https://www.nytimes.com/2026/05/25/opinion/france-slave-trade.html
+
+**My Wife Fought Corruption in El Salvador. Then She Vanished Into Its Prisons.**\
+`The cost of Nayib Bukele’s crackdown on crime is too high.`\
+https://www.nytimes.com/2026/05/25/opinion/el-salvador-ruth-lopez-bukele.html
+
 **El papa León está a punto de hacer una declaración sobre la IA. Por qué es importante**\
 `León XIV va a emitir sus pensamientos sobre la inteligencia artificial mediante una forma de comunicación papal centenaria llamada encíclica, la primera desde que es papa.`\
 https://www.nytimes.com/es/2026/05/25/espanol/mundo/papa-leon-enciclica-ia.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/05/24/opinion/trump-guardrails-popular-sovereignty.
 **NYT Connections Answers for May 25, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, May 25, 2026.`\
 https://www.nytimes.com/2026/05/24/crosswords/connections-companion-1079.html
-
-**Today’s Wordle Hints for May 25, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, May 25, 2026.`\
-https://www.nytimes.com/2026/05/24/crosswords/wordle-review-1801.html
-
-**How Democrats Can Win, According to This Nobel Economist**\
-`An expert in human behavior explains how Democrats can change their primary process to improve their chances in 2028.`\
-https://www.nytimes.com/2026/05/24/opinion/democrats-2028-election-expert.html
-
-**As a Doctor, I Can Understand the Allure of ChatGPT**\
-`Even doctors can learn something from A.I.`\
-https://www.nytimes.com/2026/05/24/opinion/doctor-ai-chatgpt.html
 
