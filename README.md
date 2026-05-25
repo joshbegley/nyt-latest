@@ -1,3 +1,11 @@
+**Gov. Sherrill Demands Access to ICE Facility as Hunger Strike Widens**\
+`Gov. Mikie Sherrill joined protesters at an immigration jail in New Jersey, the latest standoff between her and President Trump over his immigration policies.`\
+https://www.nytimes.com/2026/05/25/nyregion/sherrill-ice-delaney-hunger-strike.html
+
+**‘A Dangerous Bluff’: Carney Likens Alberta Referendum to Brexit**\
+`The Canadian prime minister, who was the governor of the Bank of England when Britain voted to leave the European Union, said the Alberta referendum on separating from Canada could backfire.`\
+https://www.nytimes.com/2026/05/25/world/canada/mark-carney-alberta-referendum-brexit.html
+
 **‘Bing Bong!’ The Knicks’ Watch Party Outside the Garden Is Dead.**\
 `The police say that celebrations outside of Madison Square Garden have gotten out of control. Fans and insiders say the chaos has been driven by social media influencers.`\
 https://www.nytimes.com/2026/05/25/nyregion/knicks-watch-party-garden.html
@@ -110,8 +118,8 @@ https://www.nytimes.com/2026/05/25/crosswords/strands-sidekick-814.html
 `Los bomberos siguen enfriando con agua un tanque de almacenamiento de productos químicos para evitar que se rompa o explote. Unos 40.000 residentes cercanos a la planta del condado de Orange han sido evacuados a refugios.`\
 https://www.nytimes.com/es/2026/05/25/espanol/estados-unidos/garden-grove-planta-quimicos-evacuacion.html
 
-**Iran War Live Updates: Top Iranian Negotiators Arrive in Qatar for Talks on Peace Deal**\
-`President Trump gave conflicting signals over how much progress had been made in the talks. Both the United States and Iran suggested that a breakthrough was not imminent.`\
+**Iran War Live Updates: Negotiations to End the War Resume in Qatar**\
+`Top Iranian officials arrived in Doha. President Trump gave conflicting signals over how much progress had been made. Prime Minister Benjamin Netanyahu said Israel intends to intensify attacks against Hezbollah, Iran’s ally, in Lebanon.`\
 https://www.nytimes.com/live/2026/05/25/world/iran-war-trump
 
 **Preocupación tras un cambio brusco en el proceso de la green card**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/05/25/climate/al-gore-an-inconvenient-truth.html
 **This Memorial Day Starts a Summer That Is Longer Than Most**\
 `A calendar quirk brings more days of lemonade, glamping and difficult-to-open beach umbrellas to 2026.`\
 https://www.nytimes.com/2026/05/25/us/long-summer-memorial-day-labor-day.html
-
-**Oldest Baobab Tree in Madagascar is Dying, Experts Say**\
-`The largest and oldest baobab tree in Madagascar, known locally as Tsitakakantsa, is dying, according to experts and local stewards. With cracks in its trunk and dark liquid seeping from its base, the tree appears to have entered its final phase and will eventually collapse and disintegrate.`\
-https://www.nytimes.com/video/climate/100000010915791/baobab-tree-madagascar-tsitakakantsa-climate.html
-
-**Meet The Artists Who Use Crossword Puzzles In Their Work**\
-`Whether used to explore aesthetics, provocation or memory, the black-and-white puzzle grid is anything but square.`\
-https://www.nytimes.com/2026/05/25/crosswords/crosswords-visual-art.html
 
