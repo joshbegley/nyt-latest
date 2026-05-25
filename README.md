@@ -150,8 +150,8 @@ https://www.nytimes.com/2026/05/25/crosswords/strands-sidekick-814.html
 `Los bomberos siguen enfriando con agua un tanque de almacenamiento de productos químicos para evitar que se rompa o explote. Unos 40.000 residentes cercanos a la planta del condado de Orange han sido evacuados a refugios.`\
 https://www.nytimes.com/es/2026/05/25/espanol/estados-unidos/garden-grove-planta-quimicos-evacuacion.html
 
-**Iran War Live Updates: Negotiations to End the War Resume in Qatar**\
-`Top Iranian officials arrived in Doha. President Trump gave conflicting signals over how much progress had been made. Prime Minister Benjamin Netanyahu said Israel intends to intensify attacks against Hezbollah, Iran’s ally, in Lebanon.`\
+**Iran War Live Updates: As Talks to End War Resume in Qatar, U.S. Conducts Strikes on Iran’s Gulf Coast**\
+`Iranian officials went to Doha on Monday for the negotiations, hours before the U.S. military announced the strikes it said were in “self defense” to protect troops. Israel’s leader said his country plans to intensify attacks against Hezbollah, Iran’s ally, in Lebanon.`\
 https://www.nytimes.com/live/2026/05/25/world/iran-war-trump
 
 **Preocupación tras un cambio brusco en el proceso de la green card**\
