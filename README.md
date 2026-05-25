@@ -1,3 +1,7 @@
+**‘Bing Bong!’ The Knicks’ Watch Party Outside the Garden Is Dead.**\
+`The police say that celebrations outside of Madison Square Garden have gotten out of control. Fans and insiders say the chaos has been driven by social media influencers.`\
+https://www.nytimes.com/2026/05/25/nyregion/knicks-watch-party-garden.html
+
 **Trump Urges More Countries to Normalize Relations With Israel as Part of Iran Deal**\
 `President Trump called for countries in the Middle East to join the Abraham Accords as part of a peace deal with Iran. Analysts say it is unlikely.`\
 https://www.nytimes.com/2026/05/25/us/politics/trump-israel-iran-abraham-accords.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/climate/100000010915791/baobab-tree-madagascar-tsi
 **Meet The Artists Who Use Crossword Puzzles In Their Work**\
 `Whether used to explore aesthetics, provocation or memory, the black-and-white puzzle grid is anything but square.`\
 https://www.nytimes.com/2026/05/25/crosswords/crosswords-visual-art.html
-
-**He Name-Drops Ocasio-Cortez in His Bid for Congress. She Doesn’t Talk About Him at All.**\
-`Saikat Chakrabarti, Alexandria Ocasio-Cortez’s former chief of staff, is running in San Francisco to succeed Representative Nancy Pelosi, whom Mr. Chakrabarti irked with an incendiary tweet seven years ago.`\
-https://www.nytimes.com/2026/05/25/us/politics/saikat-chakrabarti-aoc-sf-pelosi-seat.html
 
