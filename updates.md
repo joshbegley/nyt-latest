@@ -1,3 +1,11 @@
+**U.S.-Iran Peace Deal Is Still a ‘Work in Progress,’ Rubio Says**\
+`Secretary of State Marco Rubio said that peace talks between the United States and Iran were still ongoing after the Trump administration signaled earlier that an agreement could be imminent.`\
+https://www.nytimes.com/video/world/middleeast/100000010924056/us-iran-peace-deal-rubio.html
+
+**Trump’s Self-Indulgent Streak Deepens G.O.P. Fears He Is Risking Losses in Midterms**\
+`“The stupid stuff is killing our chances,” said a retiring Republican senator.`\
+https://www.nytimes.com/2026/05/25/us/politics/trump-gop-fears-midterms.html
+
 **NYT Connections Answers for May 26, 2026**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, May 26, 2026.`\
 https://www.nytimes.com/2026/05/25/crosswords/connections-companion-1080.html

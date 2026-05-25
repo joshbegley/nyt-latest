@@ -1,3 +1,7 @@
+**U.S.-Iran Peace Deal Is Still a ‘Work in Progress,’ Rubio Says**\
+`Secretary of State Marco Rubio said that peace talks between the United States and Iran were still ongoing after the Trump administration signaled earlier that an agreement could be imminent.`\
+https://www.nytimes.com/video/world/middleeast/100000010924056/us-iran-peace-deal-rubio.html
+
 **NYT Connections Answers for May 26, 2026**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, May 26, 2026.`\
 https://www.nytimes.com/2026/05/25/crosswords/connections-companion-1080.html
@@ -50,7 +54,7 @@ https://www.nytimes.com/es/2026/05/25/espanol/estilos-de-vida/antialergicos-mens
 `We’ve never been so mindful of our minds`\
 https://www.nytimes.com/2026/05/25/opinion/brain-cognitive-health-trend.html
 
-**Trump’s Self-Indulgent Streak Deepens G.O.P. Fears He is Risking Losses in Midterms**\
+**Trump’s Self-Indulgent Streak Deepens G.O.P. Fears He Is Risking Losses in Midterms**\
 `“The stupid stuff is killing our chances,” said a retiring Republican senator.`\
 https://www.nytimes.com/2026/05/25/us/politics/trump-gop-fears-midterms.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/25/nyregion/uws-car-crash-victims.html
 **Lawmakers Face a Personal Fiscal Crisis: No Budget, No Paycheck**\
 `New York State’s budget is the most delayed it’s been since 2010. That means legislators have gone without pay, creating financial hardships familiar to many New Yorkers.`\
 https://www.nytimes.com/2026/05/25/nyregion/lawmakers-pay-budget-ny.html
-
-**NYT Spelling Bee Answers for May 25, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/05/25/crosswords/spelling-bee-forum.html
 
