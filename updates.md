@@ -1,3 +1,19 @@
+**Brooklyn Co-op Divided Over Push to Boycott Israeli Products**\
+`The Park Slope Food Co-op, a socially conscious grocery store in a liberal neighborhood, has devolved into dysfunction ahead of a Tuesday vote on the proposed boycott.`\
+https://www.nytimes.com/2026/05/25/nyregion/park-slope-coop-israel-boycott.html
+
+**Everyone Knew Them on the Block. Then a Friday Ritual Ended in Tragedy.**\
+`The group of friends had used the same corner on the Upper West Side to unwind for years. By the end of the night, two people would be dead after a speeding S.U.V. drove into a crowd.`\
+https://www.nytimes.com/2026/05/25/nyregion/uws-car-crash-victims.html
+
+**Lawmakers Face a Personal Fiscal Crisis: No Budget, No Paycheck**\
+`New York State’s budget is the most delayed it’s been since 2010. That means legislators have gone without pay, creating financial hardships familiar to many New Yorkers.`\
+https://www.nytimes.com/2026/05/25/nyregion/lawmakers-pay-budget-ny.html
+
+**NYT Spelling Bee Answers for May 25, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/25/crosswords/spelling-bee-forum.html
+
 **Oil Prices Fall Sharply on News of Possible Iran Deal**\
 `S&P 500 futures were up slightly in what may be a sign that investors and analysts are waiting to see if a deal is finalized.`\
 https://www.nytimes.com/2026/05/24/business/oil-stocks-gas.html

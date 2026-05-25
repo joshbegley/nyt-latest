@@ -1,3 +1,19 @@
+**Brooklyn Co-op Divided Over Push to Boycott Israeli Products**\
+`The Park Slope Food Co-op, a socially conscious grocery store in a liberal neighborhood, has devolved into dysfunction ahead of a Tuesday vote on the proposed boycott.`\
+https://www.nytimes.com/2026/05/25/nyregion/park-slope-coop-israel-boycott.html
+
+**Everyone Knew Them on the Block. Then a Friday Ritual Ended in Tragedy.**\
+`The group of friends had used the same corner on the Upper West Side to unwind for years. By the end of the night, two people would be dead after a speeding S.U.V. drove into a crowd.`\
+https://www.nytimes.com/2026/05/25/nyregion/uws-car-crash-victims.html
+
+**Lawmakers Face a Personal Fiscal Crisis: No Budget, No Paycheck**\
+`New York State’s budget is the most delayed it’s been since 2010. That means legislators have gone without pay, creating financial hardships familiar to many New Yorkers.`\
+https://www.nytimes.com/2026/05/25/nyregion/lawmakers-pay-budget-ny.html
+
+**NYT Spelling Bee Answers for May 25, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/25/crosswords/spelling-bee-forum.html
+
 **‘Star City,’ and 5 More Things to Watch on TV This Week**\
 `A spinoff of “For All Mankind” airs on Apple TV, and a new Netflix series tells the incredible story of Brazil’s win at the 1970 World Cup.`\
 https://www.nytimes.com/2026/05/25/arts/television/star-city-things-to-watch-on-tv-this-week.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/05/24/world/asia/pakistan-train-bomb-attack-derailm
 **Israeli Leader Says He and Trump Agree On Blocking an Iranian Nuclear Weapon**\
 `Analysts said Israel was worried that a potential agreement would not significantly degrade Iran’s nuclear and missile capabilities.`\
 https://www.nytimes.com/2026/05/24/world/middleeast/iran-deal-israel-reaction.html
-
-**Mets Fans Are Struggling. Be Gentle.**\
-`The Mets keep finding ways to disappoint us. And we still keep finding ways to never give up hope.`\
-https://www.nytimes.com/2026/05/24/opinion/mets-fans-baseball-lose.html
-
-**Sites Unseen: What’s Revealed by Traveling With the Blind**\
-`How an extraordinary trip to India changed one photographer’s perspective on travel`\
-https://www.nytimes.com/2026/05/24/podcasts/the-daily/sites-unseen-whats-revealed-by-traveling-with-the-blind.html
-
-**Stop Whining About Guardrails. Become One Yourself.**\
-`Let’s put the sovereign back Into popular sovereignty.`\
-https://www.nytimes.com/2026/05/24/opinion/trump-guardrails-popular-sovereignty.html
-
-**NYT Connections Answers for May 25, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, May 25, 2026.`\
-https://www.nytimes.com/2026/05/24/crosswords/connections-companion-1079.html
 
