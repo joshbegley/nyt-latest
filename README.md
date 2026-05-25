@@ -78,7 +78,7 @@ https://www.nytimes.com/2026/05/24/business/oil-stocks-gas.html
 `President Trump is trying to create individual lists of citizens by state to determine who can vote, even as his administration acknowledges they would be unreliable.`\
 https://www.nytimes.com/2026/05/24/us/politics/trump-lists-noncitizens-states.html
 
-**Secretary Rubio Says U.S. Made “Significant Progress” Toward Interim Deal with Iran**\
+**Secretary Rubio Says U.S. Made ‘Significant Progress’ Toward Interim Deal with Iran**\
 `Secretary of State Marco Rubio said the Trump administration made “significant progress” toward a deal with Iran. A senior U.S. official also said that the U.S. and Iran had agreed in principle to reopen the Strait of Hormuz and to have Iran dispose of its nuclear material. Iran has not commented publicly on the potential agreement.`\
 https://www.nytimes.com/video/world/middleeast/100000010923453/marco-rubio-iran-peace-deal.html
 
