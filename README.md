@@ -1,3 +1,7 @@
+**En la ciudad en el centro de la crisis del ébola, ‘el virus nos lleva mucha ventaja’**\
+`El virus mortal se ha propagado de forma alarmante en la República Democrática del Congo durante meses. La respuesta apenas está tomando forma.`\
+https://www.nytimes.com/es/2026/05/25/espanol/mundo/ebola-virus-propagacion.html
+
 **Netanyahu Says Israel Plans to Intensify Attacks on Hezbollah in Lebanon**\
 `After the prime minister made the announcement, the Israeli military said it had struck more than 70 Hezbollah sites in the past day.`\
 https://www.nytimes.com/2026/05/25/world/middleeast/netanyahu-israel-hezbollah-lebanon.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/05/25/opinion/brain-cognitive-health-trend.html
 **Trump’s Self-Indulgent Streak Deepens G.O.P. Fears He Is Risking Losses in Midterms**\
 `“The stupid stuff is killing our chances,” said a retiring Republican senator.`\
 https://www.nytimes.com/2026/05/25/us/politics/trump-gop-fears-midterms.html
-
-**Book Review: ‘Trudeau & Doonesbury,’ by Joshua Kendall**\
-`A new biography of Garry Trudeau tracks the rise of a comic strip that brought counterculture and political opinions to the funny pages.`\
-https://www.nytimes.com/2026/05/25/books/review/trudeau-doonesbury-joshua-kendall.html
 
