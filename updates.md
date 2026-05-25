@@ -1,3 +1,7 @@
+**Iran War Live Updates: Peace Deal Could Take Days to Nail Down**\
+`Oil prices fell sharply Monday, as negotiations between the United States and Iran appeared to continue. But both sides have offered conflicting accounts of the emerging agreement.`\
+https://www.nytimes.com/live/2026/05/25/world/iran-war-trump
+
 **He Name-Drops Ocasio-Cortez in His Bid for Congress. She Doesn’t Talk About Him at All.**\
 `Saikat Chakrabarti, Alexandria Ocasio-Cortez’s former chief of staff, is running in San Francisco to succeed Representative Nancy Pelosi, whom Mr. Chakrabarti irked with an incendiary tweet seven years ago.`\
 https://www.nytimes.com/2026/05/25/us/politics/saikat-chakrabarti-aoc-sf-pelosi-seat.html

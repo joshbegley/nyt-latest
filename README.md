@@ -194,7 +194,3 @@ https://www.nytimes.com/video/us/100000010923932/chemical-tank-garden-grove-evac
 `The Park Slope Food Co-op, a socially conscious grocery store in a liberal neighborhood, has devolved into dysfunction ahead of a Tuesday vote on the proposed boycott.`\
 https://www.nytimes.com/2026/05/25/nyregion/park-slope-coop-israel-boycott.html
 
-**Everyone Knew Them on the Block. Then a Friday Ritual Ended in Tragedy.**\
-`The group of friends had used the same corner on the Upper West Side to unwind for years. By the end of the night, two people would be dead after a speeding S.U.V. drove into a crowd.`\
-https://www.nytimes.com/2026/05/25/nyregion/uws-car-crash-victims.html
-
