@@ -1,3 +1,7 @@
+**One-and-Done Heart Disease Prevention? Scientists Show It May Be Possible.**\
+`A single infusion of an experimental gene-editing drug seemed to reduce LDL long-term in a small trial. The results may point to something “curative,” one expert said.`\
+https://www.nytimes.com/2026/05/25/health/cholesterol-ldl-gene-therapy.html
+
 **A Poem for Memorial Day**\
 `We remember those who gave their lives in service to the United States.`\
 https://www.nytimes.com/2026/05/25/briefing/a-poem-for-memorial-day.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/interactive/2026/05/25/nyregion/nyc-budgeting-affordabil
 **Evacuees Cope With Uncertainty After California Chemical Plant Crisis**\
 `Displaced residents sheltering in Huntington Beach, Calif., helped one other amid uncertainty after a chemical tank began overheating at an industrial complex, prompting evacuation orders.`\
 https://www.nytimes.com/video/us/100000010923932/chemical-tank-garden-grove-evacuee.html
-
-**Brooklyn Co-op Divided Over Push to Boycott Israeli Products**\
-`The Park Slope Food Co-op, a socially conscious grocery store in a liberal neighborhood, has devolved into dysfunction ahead of a Tuesday vote on the proposed boycott.`\
-https://www.nytimes.com/2026/05/25/nyregion/park-slope-coop-israel-boycott.html
 
