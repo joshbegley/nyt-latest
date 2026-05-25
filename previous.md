@@ -1,3 +1,11 @@
+**As A.I. Fever Rises in Silicon Valley, Pope Leo Has a Few Words**\
+`The American pope wants to take artificial intelligence down a notch. Is he challenging the tech companies, or will tech take over the papacy?`\
+https://www.nytimes.com/2026/05/25/technology/pope-ai-silicon-valley.html
+
+**Pope Leo Warns of A.I. Risks in His First Papal Encyclical**\
+`Pope Leo XIV presented his first encyclical, “Magnifica Humanitas,” in which he outlined his desire to protect human dignity and agency in an age when technology threatens to replace people in many professional and social roles.`\
+https://www.nytimes.com/video/world/europe/100000010924143/pope-leo-ai-encyclical-risks.html
+
 **Roasted Rhubarb, Harissa Shrimp and the Only Ice Cream Recipe You’ll Ever Need**\
 `Delicious, simple recipes to close out the holiday weekend.`\
 https://www.nytimes.com/2026/05/25/dining/roasted-rhubarb-harissa-shrimp-and-the-only-ice-cream-recipe-youll-ever-need.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/05/25/books/review/america-usa-eddie-s-glaude-jr.ht
 **The Man Behind the People Gallery Wants to Hear About Your Fit**\
 `Maurice Kamara has a gift for getting people to stop for his man-on-the-street style interviews. That includes A-listers who usually couldn’t be bothered.`\
 https://www.nytimes.com/2026/05/25/style/maurice-kamara-people-gallery.html
-
-**Artificial Intelligence Floods Court Dockets with Home-Brewed Lawsuits**\
-`For years, courts have welcomed cases brought by self-represented litigants. Now those plaintiffs have A.I., and their filings are consuming more and more bandwidth.`\
-https://www.nytimes.com/2026/05/25/us/politics/artificial-intelliegence-courts.html
-
-**Traveling the Hudson River Valley With Art as a Guide**\
-`Artists like Thomas Cole and Frederic Church left us evidence of what America’s landscape was like 200 years ago. Using science, and art history, a writer follows their trail through the Hudson River Valley to better understand how our world has changed.`\
-https://www.nytimes.com/2026/05/25/travel/hudson-valley-painting-thomas-cole-frederic-church.html
 

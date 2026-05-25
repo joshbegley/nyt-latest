@@ -1,3 +1,11 @@
+**As A.I. Fever Rises in Silicon Valley, Pope Leo Has a Few Words**\
+`The American pope wants to take artificial intelligence down a notch. Is he challenging the tech companies, or will tech take over the papacy?`\
+https://www.nytimes.com/2026/05/25/technology/pope-ai-silicon-valley.html
+
+**Pope Leo Warns of A.I. Risks in His First Papal Encyclical**\
+`Pope Leo XIV presented his first encyclical, “Magnifica Humanitas,” in which he outlined his desire to protect human dignity and agency in an age when technology threatens to replace people in many professional and social roles.`\
+https://www.nytimes.com/video/world/europe/100000010924143/pope-leo-ai-encyclical-risks.html
+
 **Roasted Rhubarb, Harissa Shrimp and the Only Ice Cream Recipe You’ll Ever Need**\
 `Delicious, simple recipes to close out the holiday weekend.`\
 https://www.nytimes.com/2026/05/25/dining/roasted-rhubarb-harissa-shrimp-and-the-only-ice-cream-recipe-youll-ever-need.html
