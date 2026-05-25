@@ -23,7 +23,7 @@ https://www.nytimes.com/2026/05/25/crosswords/strands-sidekick-814.html
 https://www.nytimes.com/es/2026/05/25/espanol/estados-unidos/garden-grove-planta-quimicos-evacuacion.html
 
 **Iran War Live Updates: Peace Deal Could Take Days to Nail Down**\
-`Oil prices fell Monday, as negotiations between the United States and Iran appeared to continue. American and Iranian officials have offered conflicting accounts of the emerging agreement.`\
+`Oil prices fell sharply Monday, as negotiations between the United States and Iran appeared to continue. But both sides have offered conflicting accounts of the emerging agreement.`\
 https://www.nytimes.com/live/2026/05/25/world/iran-war-trump
 
 **Preocupación tras un cambio brusco en el proceso de la green card**\
