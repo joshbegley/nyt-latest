@@ -1,3 +1,7 @@
+**Ride-Share Drivers in Massachusetts Formally Unionize**\
+`The App Drivers Union said it was the first organization in the country to be formally certified to represent drivers for apps such as Uber and Lyft.`\
+https://www.nytimes.com/2026/05/25/business/uber-lyft-app-drivers-union-massachusetts.html
+
 **Are We Pandemic Ready?**\
 `Hantavirus and Ebola are reminders that outbreaks are inevitable, and that the world must work together to contain them and prevent the next pandemic.`\
 https://www.nytimes.com/2026/05/25/world/pandemic-ebola-outbreak-iran-qatar.html
