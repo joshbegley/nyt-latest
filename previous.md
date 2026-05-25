@@ -1,5 +1,5 @@
 **Rubio Rebukes Hezbollah Chief Over Call for Lebanese to ‘Take to the Streets’**\
-`The militant chief, in a speech, criticized the Lebanese government for engaging in direct talks with Israel.`\
+`The militant leader, in a speech, had criticized the Lebanese government for engaging in direct talks with Israel.`\
 https://www.nytimes.com/2026/05/24/world/middleeast/naim-qassem-hezbollah-rubio.html
 
 **A Democrat Took on Red Sox Ownership in an Ad. A Network Pulled it.**\
