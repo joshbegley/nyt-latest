@@ -166,7 +166,7 @@ https://www.nytimes.com/2026/05/24/crosswords/connections-companion-1079.html
 `Scroll down for hints and conversation about the puzzle for Monday, May 25, 2026.`\
 https://www.nytimes.com/2026/05/24/crosswords/wordle-review-1801.html
 
-**How Democrats Can Improve Their Odds, According to a Nobel Economist**\
+**How Democrats Can Win, According to This Nobel Economist**\
 `An expert in human behavior explains how Democrats can change their primary process to improve their chances in 2028.`\
 https://www.nytimes.com/2026/05/24/opinion/democrats-2028-election-expert.html
 

@@ -1,3 +1,7 @@
+**How Democrats Can Win, According to This Nobel Economist**\
+`An expert in human behavior explains how Democrats can change their primary process to improve their chances in 2028.`\
+https://www.nytimes.com/2026/05/24/opinion/democrats-2028-election-expert.html
+
 **Rubio Rebukes Hezbollah Chief Over Call for Lebanese to ‘Take to the Streets’**\
 `The militant chief, in a speech, criticized the Lebanese government for engaging in direct talks with Israel.`\
 https://www.nytimes.com/2026/05/24/world/middleeast/naim-qassem-hezbollah-rubio.html
