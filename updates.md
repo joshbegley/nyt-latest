@@ -1,3 +1,15 @@
+**Threat of Toxic Explosion in Orange County, Calif., Eliminated, Officials Say**\
+`Evacuation orders remained in place for more than 40,000 residents around Garden Grove, Calif., the location of an industrial site containing an unstable tank of toxic chemical.`\
+https://www.nytimes.com/2026/05/25/us/chemical-tank-garden-grove.html
+
+**Trump busca hacer listas de ciudadanos en EE. UU: lo que hay que saber**\
+`El presidente Trump intenta crear listas para determinar quién puede votar, aunque su gobierno reconoce que no serían fiables.`\
+https://www.nytimes.com/es/2026/05/25/espanol/estados-unidos/listas-ciudadanos-votar-trump.html
+
+**En Cuba cocinan con carbón y leña para sobrevivir**\
+`La vida en Santiago de Cuba y otras partes de la isla ha empeorado desde que EE. UU. inició su campaña de presión contra el gobierno comunista del país.`\
+https://www.nytimes.com/es/2026/05/25/espanol/america-latina/cuba-bloqueo-gas-electricidad.html
+
 **Clarence B. Jones, Who Helped Shape ‘I Have a Dream’ Speech, Dies at 95**\
 `A confidant and lawyer for Martin Luther King, he was an unseen hand behind major civil rights events, including the 1963 March on Washington.`\
 https://www.nytimes.com/2026/05/25/us/clarence-b-jones-dead.html
