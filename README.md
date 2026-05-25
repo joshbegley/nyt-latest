@@ -1,3 +1,7 @@
+**Rubio Rebukes Hezbollah Chief Over Call for Lebanese to ‘Take to the Streets’**\
+`The militant chief, in a speech, criticized the Lebanese government for engaging in direct talks with Israel.`\
+https://www.nytimes.com/2026/05/24/world/middleeast/naim-qassem-hezbollah-rubio.html
+
 **A Democrat Took on Red Sox Ownership in an Ad. A Network Pulled it.**\
 `Graham Platner, a Senate candidate in Maine, blamed private equity for destroying “our favorite baseball team.” NESN, which is owned by the team, pulled his campaign ad, citing an intellectual property violation.`\
 https://www.nytimes.com/2026/05/24/us/politics/platner-ad-red-sox-midterms.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/24/us/politics/supreme-court-trump-vance.html
 **Alamo Drafthouse Instituted Mobile Ordering. Super Fans Are Not Pleased.**\
 `Known for its strict no-phones policy, the Alamo Drafthouse has instituted mobile ordering for its in-seat meals, upsetting some of its biggest fans.`\
 https://www.nytimes.com/2026/05/24/movies/alamo-drafthouse-mobile-ordering.html
-
-**Sanders and Ocasio-Cortez Try Boosting Progressives in Red Districts**\
-`In highly competitive House races that Democrats need to flip in November, the left is betting that calls for universal health care and taxing the wealthy will resonate — even among Republicans.`\
-https://www.nytimes.com/2026/05/24/us/politics/bernie-sanders-swing-district-liberals.html
 
