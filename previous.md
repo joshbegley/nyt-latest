@@ -140,7 +140,7 @@ https://www.nytimes.com/2026/05/25/arts/television/for-all-mankind.html
 
 **A City in the Kill Zone**\
 `Little is left of Kostiantynivka, a city on the front lines. Rescuers risk their lives to ferry out the few who remain.`\
-https://www.nytimes.com/2026/05/25/us/a-city-in-the-kill-zone.html
+https://www.nytimes.com/2026/05/25/world/europe/a-city-in-the-kill-zone.html
 
 **All Quiet at the Kennedy Center**\
 `David Jones has been the principal clarinetist of the Kennedy Center’s orchestra for five presidents. A cascade of cancellations means he hasn’t played there since February.`\
