@@ -1,3 +1,11 @@
+**Ryan Speedo Green in ‘Die Walküre’: Preview of the Met Opera**\
+`Ryan Speedo Green has been previewing his take on Wotan, ruler of the gods, with Gustavo Dudamel and the Los Angeles Philharmonic.`\
+https://www.nytimes.com/2026/05/25/arts/music/die-walkure-la-philharmonic-review.html
+
+**Trump pressured Iran to change its terms for a deal, but had little success.**\
+`(No description)`\
+https://www.nytimes.com/2026/05/25/world/middleeast/trump-pressured-iran-to-change-its-terms-for-a-deal-but-had-little-success.html
+
 **How Trump’s Cabinet Speaks to Him: Praise, Accolades and Lots of Criticizing Opponents**\
 `The New York Times reviewed over a dozen hours of cabinet meeting footage to analyze how President Trump’s administration speaks to him. Many pack their speaking time with praise and flattery.`\
 https://www.nytimes.com/interactive/2026/us/politics/trump-cabinet-meetings.html
