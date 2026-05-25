@@ -1,3 +1,15 @@
+**NYT Connections Answers for May 26, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, May 26, 2026.`\
+https://www.nytimes.com/2026/05/25/crosswords/connections-companion-1080.html
+
+**Today’s Wordle Hints for May 26, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, May 26, 2026.`\
+https://www.nytimes.com/2026/05/25/crosswords/wordle-review-1802.html
+
+**NYT Strands Hints for May 26, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, May 26, 2026.`\
+https://www.nytimes.com/2026/05/25/crosswords/strands-sidekick-814.html
+
 **Lo que hay que saber sobre la crisis de la planta química de California**\
 `Los bomberos siguen enfriando con agua un tanque de almacenamiento de productos químicos para evitar que se rompa o explote. Unos 40.000 residentes cercanos a la planta del condado de Orange han sido evacuados a refugios.`\
 https://www.nytimes.com/es/2026/05/25/espanol/estados-unidos/garden-grove-planta-quimicos-evacuacion.html
