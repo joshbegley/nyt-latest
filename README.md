@@ -1,3 +1,7 @@
+**Still Out of Sight, Tom Kean Jr. Calls Allies to Ease Doubts Amid Absence**\
+`Republican officials said they have talked to the congressman, who has been absent from Congress for weeks. His office said Mr. Kean will eventually explain his absence.`\
+https://www.nytimes.com/2026/05/25/nyregion/tom-kean-new-jersey-missing.html
+
 **As A.I. Fever Rises in Silicon Valley, Pope Leo Has a Few Words**\
 `The American pope wants to take artificial intelligence down a notch. Is he challenging the tech companies, or will tech take over the papacy?`\
 https://www.nytimes.com/2026/05/25/technology/pope-ai-silicon-valley.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/05/25/opinion/women-childbirth-postpartum-care.html
 **Book Review: ‘America, U.S.A.,’ by Eddie S. Glaude Jr.**\
 `In “America, U.S.A.,” Eddie Glaude Jr. looks back at the country’s past anniversaries with skepticism and pain.`\
 https://www.nytimes.com/2026/05/25/books/review/america-usa-eddie-s-glaude-jr.html
-
-**The Man Behind the People Gallery Wants to Hear About Your Fit**\
-`Maurice Kamara has a gift for getting people to stop for his man-on-the-street style interviews. That includes A-listers who usually couldn’t be bothered.`\
-https://www.nytimes.com/2026/05/25/style/maurice-kamara-people-gallery.html
 
