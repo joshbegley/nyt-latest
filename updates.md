@@ -1,3 +1,7 @@
+**A Striking Costa Rican Beach House Pays Tribute to Latin America**\
+`A builder and an architect collaborated on a family beach compound using local materials and with a patio and a pool at the center.`\
+https://www.nytimes.com/2026/05/25/realestate/costa-rica-santa-teresa-home-renovation.html
+
 **Pope Leo Warns of Risks From A.I. in 42,300-Word Encyclical**\
 `The document marks a powerful foray by the leader of the Roman Catholic Church into the debate about the misuse or overuse of artificial intelligence.`\
 https://www.nytimes.com/2026/05/25/world/europe/pope-leo-encyclical.html
