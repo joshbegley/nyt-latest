@@ -1,3 +1,11 @@
+**Are We Pandemic Ready?**\
+`Hantavirus and Ebola are reminders that outbreaks are inevitable, and that the world must work together to contain them and prevent the next pandemic.`\
+https://www.nytimes.com/2026/05/25/world/pandemic-ebola-outbreak-iran-qatar.html
+
+**Main Takeaways From Pope Leo’s Encyclical on A.I.**\
+`In his letter, the first American pontiff called for putting care for humans at the heart of technological change.`\
+https://www.nytimes.com/2026/05/25/us/pope-leo-encyclical-highlights.html
+
 **Guerra en Irán: Trump pospone los temas más difíciles para reabrir el estrecho de Ormuz**\
 `El presidente Trump aclama el acuerdo con Irán como innovador, aunque admite que no se ha negociado del todo. El arsenal nuclear, el enriquecimiento y los misiles no se han discutido.`\
 https://www.nytimes.com/es/2026/05/25/espanol/estados-unidos/iran-acuerdo-estrecho-ormuz-trump.html
