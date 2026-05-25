@@ -1,3 +1,7 @@
+**A Poem for Memorial Day**\
+`We remember those who gave their lives in service to the United States.`\
+https://www.nytimes.com/2026/05/25/briefing/a-poem-for-memorial-day.html
+
 **U.S.-Iran Peace Deal Is Still a ‘Work in Progress,’ Rubio Says**\
 `Secretary of State Marco Rubio said that peace talks between the United States and Iran were still ongoing after the Trump administration signaled earlier that an agreement could be imminent.`\
 https://www.nytimes.com/video/world/middleeast/100000010924056/us-iran-peace-deal-rubio.html

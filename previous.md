@@ -1,3 +1,7 @@
+**A Poem for Memorial Day**\
+`We remember those who gave their lives in service to the United States.`\
+https://www.nytimes.com/2026/05/25/briefing/a-poem-for-memorial-day.html
+
 **U.S.-Iran Peace Deal Is Still a ‘Work in Progress,’ Rubio Says**\
 `Secretary of State Marco Rubio said that peace talks between the United States and Iran were still ongoing after the Trump administration signaled earlier that an agreement could be imminent.`\
 https://www.nytimes.com/video/world/middleeast/100000010924056/us-iran-peace-deal-rubio.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/25/nyregion/park-slope-coop-israel-boycott.html
 **Everyone Knew Them on the Block. Then a Friday Ritual Ended in Tragedy.**\
 `The group of friends had used the same corner on the Upper West Side to unwind for years. By the end of the night, two people would be dead after a speeding S.U.V. drove into a crowd.`\
 https://www.nytimes.com/2026/05/25/nyregion/uws-car-crash-victims.html
-
-**Lawmakers Face a Personal Fiscal Crisis: No Budget, No Paycheck**\
-`New York State’s budget is the most delayed it’s been since 2010. That means legislators have gone without pay, creating financial hardships familiar to many New Yorkers.`\
-https://www.nytimes.com/2026/05/25/nyregion/lawmakers-pay-budget-ny.html
 
