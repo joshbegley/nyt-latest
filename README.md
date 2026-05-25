@@ -1,3 +1,7 @@
+**¿Qué dice la primera encíclica del papa León XIV?**\
+`El documento marca una poderosa incursión del líder de la Iglesia católica romana en el debate sobre el uso indebido o excesivo de la inteligencia artificial.`\
+https://www.nytimes.com/es/2026/05/25/espanol/mundo/papa-leon-enciclica-que-dice.html
+
 **Gov. Sherrill Demands Access to ICE Facility as Hunger Strike Widens**\
 `Gov. Mikie Sherrill joined protesters at an immigration jail in New Jersey, the latest standoff between her and President Trump over his immigration policies.`\
 https://www.nytimes.com/2026/05/25/nyregion/sherrill-ice-delaney-hunger-strike.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/05/25/arts/dance/international-dance-league-competi
 **Twenty Years After His Film, Al Gore Tweaks the Climate Script**\
 `Mr. Gore is still giving the slide show that “An Inconvenient Truth” was built around, but with changes that reflect a shift in the discussion of climate change.`\
 https://www.nytimes.com/2026/05/25/climate/al-gore-an-inconvenient-truth.html
-
-**This Memorial Day Starts a Summer That Is Longer Than Most**\
-`A calendar quirk brings more days of lemonade, glamping and difficult-to-open beach umbrellas to 2026.`\
-https://www.nytimes.com/2026/05/25/us/long-summer-memorial-day-labor-day.html
 
