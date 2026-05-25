@@ -1,3 +1,7 @@
+**Netanyahu Says Israel Plans to Intensify Attacks on Hezbollah in Lebanon**\
+`After the prime minister made the announcement, the Israeli military said it had struck more than 70 Hezbollah sites in the past day.`\
+https://www.nytimes.com/2026/05/25/world/middleeast/netanyahu-israel-hezbollah-lebanon.html
+
 **Ride-Share Drivers in Massachusetts Formally Unionize**\
 `The App Drivers Union said it was the first organization in the country to be formally certified to represent drivers for apps such as Uber and Lyft.`\
 https://www.nytimes.com/2026/05/25/business/uber-lyft-app-drivers-union-massachusetts.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/05/25/us/politics/trump-gop-fears-midterms.html
 **Book Review: ‘Trudeau & Doonesbury,’ by Joshua Kendall**\
 `A new biography of Garry Trudeau tracks the rise of a comic strip that brought counterculture and political opinions to the funny pages.`\
 https://www.nytimes.com/2026/05/25/books/review/trudeau-doonesbury-joshua-kendall.html
-
-**‘Spider-Noir’ Is a Multicolor Spin on ‘Spider-Man’**\
-`The new Spider-series stars Nicolas Cage as a hard-boiled investigator and former web slinger. It comes in both black-and-white and color versions.`\
-https://www.nytimes.com/2026/05/25/arts/television/spider-noir-spider-man.html
 
