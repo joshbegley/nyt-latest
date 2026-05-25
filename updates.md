@@ -1,3 +1,7 @@
+**UK Heat Wave Could Break May Temperature Record**\
+`Forecasters warned that temperatures could climb to the highest level ever recorded in the month of May, reaching 35 degrees Celsius (95 degrees Fahrenheit) in some areas of England.`\
+https://www.nytimes.com/2026/05/25/weather/uk-heat-wave-may-weather-record.html
+
 **Toshifumi Suzuki, Japan’s ‘God’ of Convenience Stores Dies at 93**\
 `Toshifumi Suzuki spent four decades building 7-Eleven into a cornerstone of daily life in Japan.`\
 https://www.nytimes.com/2026/05/25/business/seven-eleven-ceo-obit.html

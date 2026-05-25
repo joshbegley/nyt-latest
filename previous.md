@@ -1,3 +1,7 @@
+**UK Heat Wave Could Break May Temperature Record**\
+`Forecasters warned that temperatures could climb to the highest level ever recorded in the month of May, reaching 35 degrees Celsius (95 degrees Fahrenheit) in some areas of England.`\
+https://www.nytimes.com/2026/05/25/weather/uk-heat-wave-may-weather-record.html
+
 **Toshifumi Suzuki, Japan’s ‘God’ of Convenience Stores Dies at 93**\
 `Toshifumi Suzuki spent four decades building 7-Eleven into a cornerstone of daily life in Japan.`\
 https://www.nytimes.com/2026/05/25/business/seven-eleven-ceo-obit.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/05/25/arts/television/for-all-mankind.html
 **A City in the Kill Zone**\
 `Little is left of Kostiantynivka, a city on the front lines. Rescuers risk their lives to ferry out the few who remain.`\
 https://www.nytimes.com/2026/05/25/world/europe/a-city-in-the-kill-zone.html
-
-**All Quiet at the Kennedy Center**\
-`David Jones has been the principal clarinetist of the Kennedy Center’s orchestra for five presidents. A cascade of cancellations means he hasn’t played there since February.`\
-https://www.nytimes.com/2026/05/25/arts/music/kennedy-center-house-orchestra.html
 
