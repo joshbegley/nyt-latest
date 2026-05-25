@@ -1,3 +1,35 @@
+**One of Madagascar’s Oldest Sacred Trees Is Slowly Dying**\
+`In a forest in Madagascar, the demise of a centuries-old baobab points to the fraying of a fragile ecosystem.`\
+https://www.nytimes.com/2026/05/25/world/africa/baobab-tree-dying-madagascar-africa.html
+
+**‘Una auténtica pesadilla’: voces de un Moscú golpeado por los drones ucranianos**\
+`Los residentes que sufrieron ataques en los últimos días se sintieron profundamente sacudidos por el conflicto que llegó a la región de la capital, sede del poder del Kremlin.`\
+https://www.nytimes.com/es/2026/05/25/espanol/mundo/moscu-ataque-drones-ucrania.html
+
+**Cubans Cook With Charcoal and Wood Fires to Survive During Energy Crisis**\
+`The U.S. oil blockade has left millions without cooking gas. In Santiago de Cuba, the cradle of the Cuban revolution, apartment tower residents resort to charcoal and firewood.`\
+https://www.nytimes.com/2026/05/25/world/americas/cuba-blackouts-fire-energy-oil.html
+
+**How Art Auctions Choreographed a $2.5 Billion Comeback**\
+`After four years of uneven sales, the auction houses engineered a successful season by redefining the expectations of buyers and sellers.`\
+https://www.nytimes.com/2026/05/25/arts/design/art-auctions-comeback-sothebys-christies.html
+
+**Por qué las mujeres están probando antialérgicos para los síntomas menstruales y de la perimenopausia**\
+`Preguntamos a los expertos si tomar juntos fármacos como Allegra y Pepcid AC realmente puede aliviar el dolor, la niebla mental y otros problemas de salud.`\
+https://www.nytimes.com/es/2026/05/25/espanol/estilos-de-vida/antialergicos-menstruacion-perimenopausia.html
+
+**Forget Ozempic. Brain Health Is the New Wellness Frontier.**\
+`We’ve never been so mindful of our minds`\
+https://www.nytimes.com/2026/05/25/opinion/brain-cognitive-health-trend.html
+
+**Trump’s Self-Indulgent Streak Deepens G.O.P. Fears He is Risking Losses in Midterms**\
+`“The stupid stuff is killing our chances,” said a retiring Republican senator.`\
+https://www.nytimes.com/2026/05/25/us/politics/trump-gop-fears-midterms.html
+
+**Book Review: ‘Trudeau & Doonesbury,’ by Joshua Kendall**\
+`A new biography of Garry Trudeau tracks the rise of a comic strip that brought counterculture and political opinions to the funny pages.`\
+https://www.nytimes.com/2026/05/25/books/review/trudeau-doonesbury-joshua-kendall.html
+
 **‘Spider-Noir’ Is a Multicolor Spin on ‘Spider-Man’**\
 `The new Spider-series stars Nicolas Cage as a hard-boiled investigator and former web slinger. It comes in both black-and-white and color versions.`\
 https://www.nytimes.com/2026/05/25/arts/television/spider-noir-spider-man.html
@@ -165,36 +197,4 @@ https://www.nytimes.com/2026/05/25/pageoneplus/quote-of-the-day-advice-in-a-blea
 **$140,000 E.V.s and Heritage Gold: The Rise of China’s Homegrown Luxury Market**\
 `As China’s economy slows, consumers are increasingly turning to domestic luxury products, challenging the dominance of long-established European brands.`\
 https://www.nytimes.com/2026/05/25/business/chinese-luxury-brands.html
-
-**Pope Leo Is Set to Release an Encyclical About A.I. Why Is That Important?**\
-`Leo XIV is to issue his thoughts about artificial intelligence in the modern world, using a centuries-old form of papal communication called an encyclical, the first since he became pope.`\
-https://www.nytimes.com/2026/05/25/world/europe/pope-leo-encyclical-ai.html
-
-**No Corrections: May 25, 2026**\
-`No corrections appeared in print on Monday, May 25, 2026.`\
-https://www.nytimes.com/2026/05/25/corrections/no-corrections-may-25-2026.html
-
-**Rubio Rebukes Hezbollah Chief Over Call for Lebanese to ‘Take to the Streets’**\
-`The militant leader, in a speech, had criticized the Lebanese government for engaging in direct talks with Israel.`\
-https://www.nytimes.com/2026/05/24/world/middleeast/naim-qassem-hezbollah-rubio.html
-
-**A Democrat Took on Red Sox Ownership in an Ad. A Network Pulled it.**\
-`Graham Platner, a Senate candidate in Maine, blamed private equity for destroying “our favorite baseball team.” NESN, which is owned by the team, pulled his campaign ad, citing an intellectual property violation.`\
-https://www.nytimes.com/2026/05/24/us/politics/platner-ad-red-sox-midterms.html
-
-**In Ukraine, a Divisive 20th-Century Hero Comes Home**\
-`Andriy Melnyk, criticized as a Nazi collaborator and lionized as an anti-Soviet resistance leader, was given state honors for his reburial near Kyiv.`\
-https://www.nytimes.com/2026/05/24/world/europe/ukraine-melnyk-nationalist-collaborator.html
-
-**Confusion and Worry After Trump Administration’s Abrupt Green Card Changes**\
-`Immigrants and their advocates and lawyers are trying to interpret a new Trump administration rule that requires people to be in their native country to apply for a green card.`\
-https://www.nytimes.com/2026/05/24/us/green-card-application-changes-trump.html
-
-**Oil Prices Fall Sharply on News of Possible Iran Deal**\
-`S&P 500 futures were up slightly in what may be a sign that investors and analysts are waiting to see if a deal is finalized.`\
-https://www.nytimes.com/2026/05/24/business/oil-stocks-gas.html
-
-**What to Know About the Citizenship Lists Trump Wants to Create**\
-`President Trump is trying to create individual lists of citizens by state to determine who can vote, even as his administration acknowledges they would be unreliable.`\
-https://www.nytimes.com/2026/05/24/us/politics/trump-lists-noncitizens-states.html
 
