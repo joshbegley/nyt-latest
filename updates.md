@@ -1,3 +1,7 @@
+**Still Out of Sight, Tom Kean Jr. Calls Allies to Ease Doubts Amid Absence**\
+`Republican officials said they have talked to the congressman, who has been absent from Congress for weeks. His office said Mr. Kean will eventually explain his absence.`\
+https://www.nytimes.com/2026/05/25/nyregion/tom-kean-new-jersey-missing.html
+
 **Toshifumi Suzuki, Who Made 7-Eleven a Giant in Japan, Dies at 93**\
 `He spent four decades building the convenience store chain into a cornerstone of daily life.`\
 https://www.nytimes.com/2026/05/25/business/toshifumi-suzuki-dead.html
