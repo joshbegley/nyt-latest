@@ -1,5 +1,9 @@
-**Still Out of Sight, Tom Kean Jr. Calls Allies to Ease Doubts Amid Absence**\
-`Republican officials said they have talked to the congressman, who has been absent from Congress for weeks. His office said Mr. Kean will eventually explain his absence.`\
+**How Lizzo Is Navigating Public Backlash As a Pop Star**\
+`Lizzo spoke to “Popcast” about making positive music amid a couple of turbulent years in the public eye.`\
+https://www.nytimes.com/video/podcasts/100000010883864/how-lizzo-is-navigating-public-backlash-as-a-pop-star.html
+
+**Absent Congressman Calls Allies, but Stops Short of Public Appearance**\
+`Republican officials said they have talked to Tom Kean Jr., who has been absent from Congress for weeks. His office said Mr. Kean will eventually explain his absence.`\
 https://www.nytimes.com/2026/05/25/nyregion/tom-kean-new-jersey-missing.html
 
 **As A.I. Fever Rises in Silicon Valley, Pope Leo Has a Few Words**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/05/25/your-money/student-loans-repayment-save-biden
 **The Medical System Abandons Women When They Are Most Vulnerable**\
 `One year after my daughter’s birth, I’m still experiencing health complications.`\
 https://www.nytimes.com/2026/05/25/opinion/women-childbirth-postpartum-care.html
-
-**Book Review: ‘America, U.S.A.,’ by Eddie S. Glaude Jr.**\
-`In “America, U.S.A.,” Eddie Glaude Jr. looks back at the country’s past anniversaries with skepticism and pain.`\
-https://www.nytimes.com/2026/05/25/books/review/america-usa-eddie-s-glaude-jr.html
 
