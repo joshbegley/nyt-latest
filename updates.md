@@ -1,3 +1,7 @@
+**Lo que hay que saber sobre la crisis de la planta química de California**\
+`Los bomberos siguen enfriando con agua un tanque de almacenamiento de productos químicos para evitar que se rompa o explote. Unos 40.000 residentes cercanos a la planta del condado de Orange han sido evacuados a refugios.`\
+https://www.nytimes.com/es/2026/05/25/espanol/estados-unidos/garden-grove-planta-quimicos-evacuacion.html
+
 **Iran War Live Updates: Peace Deal Could Take Days to Nail Down**\
 `Oil prices fell Monday, as negotiations between the United States and Iran appeared to continue. American and Iranian officials have offered conflicting accounts of the emerging agreement.`\
 https://www.nytimes.com/live/2026/05/25/world/iran-war-trump
