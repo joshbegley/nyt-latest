@@ -1,3 +1,15 @@
+**Iran War Live Updates: Peace Deal Could Take Days to Nail Down**\
+`Oil prices fell Monday, as negotiations between the United States and Iran appeared to continue. American and Iranian officials have offered conflicting accounts of the emerging agreement.`\
+https://www.nytimes.com/live/2026/05/25/world/iran-war-trump
+
+**Preocupación tras un cambio brusco en el proceso de la green card**\
+`Los migrantes y sus defensores y abogados intentan interpretar una nueva norma del gobierno de Trump que exige a las personas que estén en su país de origen para solicitar la residencia permanente.`\
+https://www.nytimes.com/es/2026/05/25/espanol/estados-unidos/cambios-proceso-green-card.html
+
+**Pope Leo Warns of Risks From A.I. in 42,300-Word Encyclical**\
+`The document marks a powerful foray by the leader of the Roman Catholic church into the debate about the misuse or overuse of artificial intelligence.`\
+https://www.nytimes.com/2026/05/25/world/europe/pope-leo-encyclical.html
+
 **One of Madagascar’s Oldest Sacred Trees Is Slowly Dying**\
 `In a forest in Madagascar, the demise of a centuries-old baobab points to the fraying of a fragile ecosystem.`\
 https://www.nytimes.com/2026/05/25/world/africa/baobab-tree-dying-madagascar-africa.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/05/25/opinion/el-salvador-ruth-lopez-bukele.html
 **El papa León está a punto de hacer una declaración sobre la IA. Por qué es importante**\
 `León XIV va a emitir sus pensamientos sobre la inteligencia artificial mediante una forma de comunicación papal centenaria llamada encíclica, la primera desde que es papa.`\
 https://www.nytimes.com/es/2026/05/25/espanol/mundo/papa-leon-enciclica-ia.html
-
-**How Wine, Truffles and Honey Could Help Europe Fight Wildfires**\
-`Countries are learning that the finer things in life sometimes have a serendipitous side benefit.`\
-https://www.nytimes.com/2026/05/25/world/europe/wine-truffles-firefighting-climate-change.html
-
-**Quote of the Day: Advice in a Bleak Job Market From Those Who Can Relate**\
-`Quotation of the Day for Monday, May 25, 2026.`\
-https://www.nytimes.com/2026/05/25/pageoneplus/quote-of-the-day-advice-in-a-bleak-job-market-from-those-who-can-relate.html
-
-**$140,000 E.V.s and Heritage Gold: The Rise of China’s Homegrown Luxury Market**\
-`As China’s economy slows, consumers are increasingly turning to domestic luxury products, challenging the dominance of long-established European brands.`\
-https://www.nytimes.com/2026/05/25/business/chinese-luxury-brands.html
 
