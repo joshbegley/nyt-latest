@@ -59,7 +59,7 @@ https://www.nytimes.com/video/weather/100000010924330/britain-london-heat-wave-w
 https://www.nytimes.com/2026/05/25/arts/music/lizzo-new-york-times-live-performance.html
 
 **Threat of Explosion From Toxic Chemical Tank Lessened, Officials Say**\
-`Evacuation orders remained in place for more than 40,000 residents around Garden Grove, Calif., the location of an industrial site containing an unstable tank of toxic chemical.`\
+`Residents who live near the site in Garden Grove, Calif., want to know when they can return home. Some complained about confusing messages from officials.`\
 https://www.nytimes.com/2026/05/25/us/chemical-tank-garden-grove.html
 
 **Trump busca hacer listas de ciudadanos en EE. UU: lo que hay que saber**\
