@@ -6,6 +6,10 @@ https://www.nytimes.com/2026/05/25/arts/music/die-walkure-la-philharmonic-review
 `The New York Times reviewed over a dozen hours of cabinet meeting footage to analyze how President Trump’s administration speaks to him. Many pack their speaking time with praise and flattery.`\
 https://www.nytimes.com/interactive/2026/us/politics/trump-cabinet-meetings.html
 
+**Trump pressured Iran to change its terms for a deal, but had little success.**\
+`(No description)`\
+https://www.nytimes.com/2026/05/25/world/middleeast/trump-pressured-iran-to-change-its-terms-for-a-deal-but-had-little-success.html
+
 **Even After a Strait of Hormuz Deal, Moving 1,500 Ships Won’t Be Easy**\
 `An agreement to reopen the waterway would be followed by a complicated process of navigating a backlog of vessels stranded for nearly three months.`\
 https://www.nytimes.com/2026/05/25/business/iran-strait-hormuz-shipping-traffic.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/05/25/travel/hudson-valley-painting-thomas-cole-fre
 **How to Be Old**\
 `My advice for how to keep living.`\
 https://www.nytimes.com/2026/05/25/opinion/aging-advice.html
-
-**Trump Says Peace Deal Is Near**\
-`President Trump said the United States and Iran had “largely negotiated” an agreement, but American and Iranian officials described the terms differently.`\
-https://www.nytimes.com/live/2026/05/23/world/us-iran-war-trump
 
