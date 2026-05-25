@@ -1,3 +1,7 @@
+**Clarence B. Jones, Who Helped Shape ‘I Have a Dream’ Speech, Dies at 95**\
+`A confidant and lawyer for Martin Luther King, he was an unseen hand behind major civil rights events, including the 1963 March on Washington.`\
+https://www.nytimes.com/2026/05/25/us/clarence-b-jones-dead.html
+
 **Cambodia’s Leader Pardons Top Opposition Politician Kem Sokha**\
 `The decision to release Kem Sokha is being seen as a likely attempt to recalibrate frayed ties with Western countries.`\
 https://www.nytimes.com/2026/05/25/world/asia/cambodia-pardon-kem-sokha.html

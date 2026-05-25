@@ -1,3 +1,7 @@
+**Clarence B. Jones, Who Helped Shape ‘I Have a Dream’ Speech, Dies at 95**\
+`A confidant and lawyer for Martin Luther King, he was an unseen hand behind major civil rights events, including the 1963 March on Washington.`\
+https://www.nytimes.com/2026/05/25/us/clarence-b-jones-dead.html
+
 **Cambodia’s Leader Pardons Top Opposition Politician Kem Sokha**\
 `The decision to release Kem Sokha is being seen as a likely attempt to recalibrate frayed ties with Western countries.`\
 https://www.nytimes.com/2026/05/25/world/asia/cambodia-pardon-kem-sokha.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/05/25/us/snow-pack-summer-drought.html
 **Were the Constitution’s Authors a Little Too Optimistic?**\
 `The nation’s founding document has a blind spot. Trump is making it visible.`\
 https://www.nytimes.com/2026/05/25/us/constitution-framers-president-executive-monarch.html
-
-**Student Loan Repayments Are Being Overhauled. What Borrowers Should Know.**\
-`Starting July 1, millions of borrowers will need to choose from a new menu of repayment options as the Trump administration enacts major changes to the student loan system.`\
-https://www.nytimes.com/2026/05/25/your-money/student-loans-repayment-save-biden.html
 
