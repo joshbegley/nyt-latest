@@ -1,3 +1,7 @@
+**Netanyahu Says Israel Plans to Intensify Attacks on Hezbollah in Lebanon**\
+`After the prime minister made the announcement, the Israeli military said it had struck more than 70 Hezbollah sites in the past day.`\
+https://www.nytimes.com/2026/05/25/world/middleeast/netanyahu-israel-hezbollah-lebanon.html
+
 **Ride-Share Drivers in Massachusetts Formally Unionize**\
 `The App Drivers Union said it was the first organization in the country to be formally certified to represent drivers for apps such as Uber and Lyft.`\
 https://www.nytimes.com/2026/05/25/business/uber-lyft-app-drivers-union-massachusetts.html
