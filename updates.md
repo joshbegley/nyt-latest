@@ -1,3 +1,7 @@
+**Oil Prices Fall Sharply on News of Possible Iran Deal**\
+`S&P 500 futures were up slightly in what may be a sign that investors and analysts are waiting to see if a deal is finalized.`\
+https://www.nytimes.com/2026/05/24/business/oil-stocks-gas.html
+
 **‘Star City,’ and 5 More Things to Watch on TV This Week**\
 `A spinoff of “For All Mankind” airs on Apple TV, and a new Netflix series tells the incredible story of Brazil’s win at the 1970 World Cup.`\
 https://www.nytimes.com/2026/05/25/arts/television/star-city-things-to-watch-on-tv-this-week.html
