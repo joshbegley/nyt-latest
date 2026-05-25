@@ -1,3 +1,7 @@
+**Toshifumi Suzuki, Japan’s ‘God’ of Convenience Stores Dies at 93**\
+`Toshifumi Suzuki spent four decades building 7-Eleven into a cornerstone of daily life in Japan.`\
+https://www.nytimes.com/2026/05/25/business/seven-eleven-ceo-obit.html
+
 **Falling Test Scores: Reasons and Fixes**\
 `Readers discuss data showing lower reading and math scores. Also: The yuppie factor.`\
 https://www.nytimes.com/2026/05/25/opinion/test-scores.html
@@ -30,8 +34,8 @@ https://www.nytimes.com/2026/05/25/crosswords/strands-sidekick-814.html
 `Los bomberos siguen enfriando con agua un tanque de almacenamiento de productos químicos para evitar que se rompa o explote. Unos 40.000 residentes cercanos a la planta del condado de Orange han sido evacuados a refugios.`\
 https://www.nytimes.com/es/2026/05/25/espanol/estados-unidos/garden-grove-planta-quimicos-evacuacion.html
 
-**Iran War Live Updates: Peace Deal Could Take Days to Nail Down**\
-`Oil prices fell sharply Monday, as negotiations between the United States and Iran appeared to continue. But both sides have offered conflicting accounts of the emerging agreement.`\
+**Iran War Live Updates: Top Iranian Negotiators Arrive in Qatar for Talks on Peace Deal**\
+`President Trump gave conflicting signals over how much progress had been made in the talks. Both the United States and Iran suggested that a breakthrough was not imminent.`\
 https://www.nytimes.com/live/2026/05/25/world/iran-war-trump
 
 **Preocupación tras un cambio brusco en el proceso de la green card**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/05/25/world/europe/a-city-in-the-kill-zone.html
 **All Quiet at the Kennedy Center**\
 `David Jones has been the principal clarinetist of the Kennedy Center’s orchestra for five presidents. A cascade of cancellations means he hasn’t played there since February.`\
 https://www.nytimes.com/2026/05/25/arts/music/kennedy-center-house-orchestra.html
-
-**How a Family of 4 Lives on $225,000 a Year in Washington Heights**\
-`Ellen Hagan and David Flores use freelance work to boost their budget and have found that homeownership does not solve all financial woes.`\
-https://www.nytimes.com/interactive/2026/05/25/nyregion/nyc-budgeting-affordability-hagan.html
 

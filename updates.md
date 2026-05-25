@@ -1,3 +1,11 @@
+**Toshifumi Suzuki, Japan’s ‘God’ of Convenience Stores Dies at 93**\
+`Toshifumi Suzuki spent four decades building 7-Eleven into a cornerstone of daily life in Japan.`\
+https://www.nytimes.com/2026/05/25/business/seven-eleven-ceo-obit.html
+
+**Iran War Live Updates: Top Iranian Negotiators Arrive in Qatar for Talks on Peace Deal**\
+`President Trump gave conflicting signals over how much progress had been made in the talks. Both the United States and Iran suggested that a breakthrough was not imminent.`\
+https://www.nytimes.com/live/2026/05/25/world/iran-war-trump
+
 **Falling Test Scores: Reasons and Fixes**\
 `Readers discuss data showing lower reading and math scores. Also: The yuppie factor.`\
 https://www.nytimes.com/2026/05/25/opinion/test-scores.html
