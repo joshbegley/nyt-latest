@@ -1,3 +1,15 @@
+**Roasted Rhubarb, Harissa Shrimp and the Only Ice Cream Recipe You’ll Ever Need**\
+`Delicious, simple recipes to close out the holiday weekend.`\
+https://www.nytimes.com/2026/05/25/dining/roasted-rhubarb-harissa-shrimp-and-the-only-ice-cream-recipe-youll-ever-need.html
+
+**Trump’s Pressure Had Little Effect on Iran’s Terms for a Peace Deal**\
+`President Trump had sought to force Tehran to accept American demands for a peace deal with a mixture of threats and military operations.`\
+https://www.nytimes.com/2026/05/25/world/middleeast/iran-deal-trump-pressure.html
+
+**Toshifumi Suzuki, Japan’s ‘God’ of Convenience Stores, Dies at 93**\
+`Toshifumi Suzuki spent four decades building 7-Eleven into a cornerstone of daily life in Japan.`\
+https://www.nytimes.com/2026/05/25/business/seven-eleven-ceo-obit.html
+
 **Ryan Speedo Green in ‘Die Walküre’: Preview of the Met Opera**\
 `Ryan Speedo Green has been previewing his take on Wotan, ruler of the gods, with Gustavo Dudamel and the Los Angeles Philharmonic.`\
 https://www.nytimes.com/2026/05/25/arts/music/die-walkure-la-philharmonic-review.html

@@ -1,3 +1,7 @@
+**Roasted Rhubarb, Harissa Shrimp and the Only Ice Cream Recipe You’ll Ever Need**\
+`Delicious, simple recipes to close out the holiday weekend.`\
+https://www.nytimes.com/2026/05/25/dining/roasted-rhubarb-harissa-shrimp-and-the-only-ice-cream-recipe-youll-ever-need.html
+
 **Ryan Speedo Green in ‘Die Walküre’: Preview of the Met Opera**\
 `Ryan Speedo Green has been previewing his take on Wotan, ruler of the gods, with Gustavo Dudamel and the Los Angeles Philharmonic.`\
 https://www.nytimes.com/2026/05/25/arts/music/die-walkure-la-philharmonic-review.html
@@ -6,9 +10,9 @@ https://www.nytimes.com/2026/05/25/arts/music/die-walkure-la-philharmonic-review
 `The New York Times reviewed over a dozen hours of cabinet meeting footage to analyze how President Trump’s administration speaks to him. Many pack their speaking time with praise and flattery.`\
 https://www.nytimes.com/interactive/2026/us/politics/trump-cabinet-meetings.html
 
-**Trump pressured Iran to change its terms for a deal, but had little success.**\
-`(No description)`\
-https://www.nytimes.com/2026/05/25/world/middleeast/trump-pressured-iran-to-change-its-terms-for-a-deal-but-had-little-success.html
+**Trump’s Pressure Had Little Effect on Iran’s Terms for a Peace Deal**\
+`President Trump had sought to force Tehran to accept American demands for a peace deal with a mixture of threats and military operations.`\
+https://www.nytimes.com/2026/05/25/world/middleeast/iran-deal-trump-pressure.html
 
 **Even After a Strait of Hormuz Deal, Moving 1,500 Ships Won’t Be Easy**\
 `An agreement to reopen the waterway would be followed by a complicated process of navigating a backlog of vessels stranded for nearly three months.`\
@@ -18,7 +22,7 @@ https://www.nytimes.com/2026/05/25/business/iran-strait-hormuz-shipping-traffic.
 `Forecasters warned that temperatures could climb to the highest level ever recorded in the month of May, reaching 35 degrees Celsius (95 degrees Fahrenheit) in some areas of England.`\
 https://www.nytimes.com/2026/05/25/weather/uk-heat-wave-may-weather-record.html
 
-**Toshifumi Suzuki, Japan’s ‘God’ of Convenience Stores Dies at 93**\
+**Toshifumi Suzuki, Japan’s ‘God’ of Convenience Stores, Dies at 93**\
 `Toshifumi Suzuki spent four decades building 7-Eleven into a cornerstone of daily life in Japan.`\
 https://www.nytimes.com/2026/05/25/business/seven-eleven-ceo-obit.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/05/25/us/politics/artificial-intelliegence-courts.h
 **Traveling the Hudson River Valley With Art as a Guide**\
 `Artists like Thomas Cole and Frederic Church left us evidence of what America’s landscape was like 200 years ago. Using science, and art history, a writer follows their trail through the Hudson River Valley to better understand how our world has changed.`\
 https://www.nytimes.com/2026/05/25/travel/hudson-valley-painting-thomas-cole-frederic-church.html
-
-**How to Be Old**\
-`My advice for how to keep living.`\
-https://www.nytimes.com/2026/05/25/opinion/aging-advice.html
 
