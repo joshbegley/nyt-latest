@@ -1,3 +1,7 @@
+**Trump Urges More Countries to Normalize Relations With Israel as Part of Iran Deal**\
+`President Trump called for countries in the Middle East to join the Abraham Accords as part of a peace deal with Iran. Analysts say it is unlikely.`\
+https://www.nytimes.com/2026/05/25/us/politics/trump-israel-iran-abraham-accords.html
+
 **Parts of Britain Hit With First Heat Wave of the Year**\
 `Large areas of Britain were hit with their first heat wave of the year on Monday. Temperatures in Greater London’s suburb of Teddington matched a 1944 record for the hottest day in May.`\
 https://www.nytimes.com/video/weather/100000010924330/britain-london-heat-wave-weather.html
