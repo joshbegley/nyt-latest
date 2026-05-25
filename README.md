@@ -31,7 +31,7 @@ https://www.nytimes.com/live/2026/05/25/world/iran-war-trump
 https://www.nytimes.com/es/2026/05/25/espanol/estados-unidos/cambios-proceso-green-card.html
 
 **Pope Leo Warns of Risks From A.I. in 42,300-Word Encyclical**\
-`The document marks a powerful foray by the leader of the Roman Catholic church into the debate about the misuse or overuse of artificial intelligence.`\
+`The document marks a powerful foray by the leader of the Roman Catholic Church into the debate about the misuse or overuse of artificial intelligence.`\
 https://www.nytimes.com/2026/05/25/world/europe/pope-leo-encyclical.html
 
 **One of Madagascar’s Oldest Sacred Trees Is Slowly Dying**\
