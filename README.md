@@ -1,3 +1,7 @@
+**Even After a Strait of Hormuz Deal, Moving 1,500 Ships Won’t Be Easy**\
+`An agreement to reopen the waterway would be followed by a complicated process of navigating a backlog of vessels stranded for nearly three months.`\
+https://www.nytimes.com/2026/05/25/business/iran-strait-hormuz-shipping-traffic.html
+
 **UK Heat Wave Could Break May Temperature Record**\
 `Forecasters warned that temperatures could climb to the highest level ever recorded in the month of May, reaching 35 degrees Celsius (95 degrees Fahrenheit) in some areas of England.`\
 https://www.nytimes.com/2026/05/25/weather/uk-heat-wave-may-weather-record.html
@@ -186,11 +190,7 @@ https://www.nytimes.com/2026/05/25/well/gen-z-sun-tanning-dermatologists.html
 `A reader has noticed a different kind of trend.`\
 https://www.nytimes.com/2026/05/25/style/is-the-handbag-over.html
 
-**In ‘For All Mankind,’ America Wins by Losing**\
-`The current season of this space drama is set largely on Mars. The creators say this alternate world could have been possible if the nation had stayed focused on the stars.`\
-https://www.nytimes.com/2026/05/25/arts/television/for-all-mankind.html
-
-**A City in the Kill Zone**\
-`Little is left of Kostiantynivka, a city on the front lines. Rescuers risk their lives to ferry out the few who remain.`\
-https://www.nytimes.com/2026/05/25/world/europe/a-city-in-the-kill-zone.html
+**Trump Says Peace Deal Is Near**\
+`President Trump said the United States and Iran had “largely negotiated” an agreement, but American and Iranian officials described the terms differently.`\
+https://www.nytimes.com/live/2026/05/23/world/us-iran-war-trump
 
