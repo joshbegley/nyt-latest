@@ -1,3 +1,15 @@
+**Guerra en Irán: Trump pospone los temas más difíciles para reabrir el estrecho de Ormuz**\
+`El presidente Trump aclama el acuerdo con Irán como innovador, aunque admite que no se ha negociado del todo. El arsenal nuclear, el enriquecimiento y los misiles no se han discutido.`\
+https://www.nytimes.com/es/2026/05/25/espanol/estados-unidos/iran-acuerdo-estrecho-ormuz-trump.html
+
+**After Defeat, Massie Opens Door to a 2028 Run. Which Office Is Unclear.**\
+`Representative Thomas Massie of Kentucky, a critic of President Trump who lost his primary last week, filed papers for another candidacy but said he was not sure which office he might seek.`\
+https://www.nytimes.com/2026/05/25/us/politics/thomas-massie-2028-race.html
+
+**Ferrari Unveils Luce, Its First Fully Electric Car**\
+`The Italian sports car maker unveiled Luce, its first all-electric model, on Monday amid wider worries about the luxury E.V. market.`\
+https://www.nytimes.com/2026/05/25/business/ferrari-luce-electric-vehicle.html
+
 **¿Qué dice la primera encíclica del papa León XIV?**\
 `El documento marca una poderosa incursión del líder de la Iglesia católica romana en el debate sobre el uso indebido o excesivo de la inteligencia artificial.`\
 https://www.nytimes.com/es/2026/05/25/espanol/mundo/papa-leon-enciclica-que-dice.html
