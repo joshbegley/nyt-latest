@@ -1,3 +1,7 @@
+**Pope Leo Warns of Risks From A.I. in 42,300-Word Encyclical**\
+`The document marks a powerful foray by the leader of the Roman Catholic Church into the debate about the misuse or overuse of artificial intelligence.`\
+https://www.nytimes.com/2026/05/25/world/europe/pope-leo-encyclical.html
+
 **Iran War Live Updates: Peace Deal Could Take Days to Nail Down**\
 `Oil prices fell sharply Monday, as negotiations between the United States and Iran appeared to continue. But both sides have offered conflicting accounts of the emerging agreement.`\
 https://www.nytimes.com/live/2026/05/25/world/iran-war-trump
