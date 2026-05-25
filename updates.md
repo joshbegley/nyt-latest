@@ -1,3 +1,27 @@
+**El papa León está a punto de hacer una declaración sobre la IA. Por qué es importante**\
+`León XIV va a emitir sus pensamientos sobre la inteligencia artificial mediante una forma de comunicación papal centenaria llamada encíclica, la primera desde que es papa.`\
+https://www.nytimes.com/es/2026/05/25/espanol/mundo/papa-leon-enciclica-ia.html
+
+**How Wine, Truffles and Honey Could Help Europe Fight Wildfires**\
+`Countries are learning that the finer things in life sometimes have a serendipitous side benefit.`\
+https://www.nytimes.com/2026/05/25/world/europe/wine-truffles-firefighting-climate-change.html
+
+**Quote of the Day: Advice in a Bleak Job Market From Those Who Can Relate**\
+`Quotation of the Day for Monday, May 25, 2026.`\
+https://www.nytimes.com/2026/05/25/pageoneplus/quote-of-the-day-advice-in-a-bleak-job-market-from-those-who-can-relate.html
+
+**$140,000 E.V.s and Heritage Gold: The Rise of China’s Homegrown Luxury Market**\
+`As China’s economy slows, consumers are increasingly turning to domestic luxury products, challenging the dominance of long-established European brands.`\
+https://www.nytimes.com/2026/05/25/business/chinese-luxury-brands.html
+
+**Pope Leo Is Set to Release an Encyclical About A.I. Why Is That Important?**\
+`Leo XIV is to issue his thoughts about artificial intelligence in the modern world, using a centuries-old form of papal communication called an encyclical, the first since he became pope.`\
+https://www.nytimes.com/2026/05/25/world/europe/pope-leo-encyclical-ai.html
+
+**No Corrections: May 25, 2026**\
+`No corrections appeared in print on Monday, May 25, 2026.`\
+https://www.nytimes.com/2026/05/25/corrections/no-corrections-may-25-2026.html
+
 **Rubio Rebukes Hezbollah Chief Over Call for Lebanese to ‘Take to the Streets’**\
 `The militant leader, in a speech, had criticized the Lebanese government for engaging in direct talks with Israel.`\
 https://www.nytimes.com/2026/05/24/world/middleeast/naim-qassem-hezbollah-rubio.html
