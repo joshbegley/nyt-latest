@@ -1,3 +1,7 @@
+**Falling Test Scores: Reasons and Fixes**\
+`Readers discuss data showing lower reading and math scores. Also: The yuppie factor.`\
+https://www.nytimes.com/2026/05/25/opinion/test-scores.html
+
 **One-and-Done Heart Disease Prevention? Scientists Show It May Be Possible.**\
 `A single infusion of an experimental gene-editing drug seemed to reduce LDL long-term in a small trial. The results may point to something “curative,” one expert said.`\
 https://www.nytimes.com/2026/05/25/health/cholesterol-ldl-gene-therapy.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/05/25/arts/music/kennedy-center-house-orchestra.htm
 **How a Family of 4 Lives on $225,000 a Year in Washington Heights**\
 `Ellen Hagan and David Flores use freelance work to boost their budget and have found that homeownership does not solve all financial woes.`\
 https://www.nytimes.com/interactive/2026/05/25/nyregion/nyc-budgeting-affordability-hagan.html
-
-**Evacuees Cope With Uncertainty After California Chemical Plant Crisis**\
-`Displaced residents sheltering in Huntington Beach, Calif., helped one other amid uncertainty after a chemical tank began overheating at an industrial complex, prompting evacuation orders.`\
-https://www.nytimes.com/video/us/100000010923932/chemical-tank-garden-grove-evacuee.html
 
