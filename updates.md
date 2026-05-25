@@ -1,3 +1,15 @@
+**Iran War Live Updates: Peace Deal Could Take Days to Nail Down**\
+`Oil prices fell Monday, as negotiations between the United States and Iran appeared to continue. American and Iranian officials have offered conflicting accounts of the emerging agreement.`\
+https://www.nytimes.com/live/2026/05/25/world/iran-war-trump
+
+**Preocupación tras un cambio brusco en el proceso de la green card**\
+`Los migrantes y sus defensores y abogados intentan interpretar una nueva norma del gobierno de Trump que exige a las personas que estén en su país de origen para solicitar la residencia permanente.`\
+https://www.nytimes.com/es/2026/05/25/espanol/estados-unidos/cambios-proceso-green-card.html
+
+**Pope Leo Warns of Risks From A.I. in 42,300-Word Encyclical**\
+`The document marks a powerful foray by the leader of the Roman Catholic church into the debate about the misuse or overuse of artificial intelligence.`\
+https://www.nytimes.com/2026/05/25/world/europe/pope-leo-encyclical.html
+
 **A City in the Kill Zone**\
 `Little is left of Kostiantynivka, a city on the front lines. Rescuers risk their lives to ferry out the few who remain.`\
 https://www.nytimes.com/2026/05/25/world/europe/a-city-in-the-kill-zone.html

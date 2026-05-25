@@ -1,3 +1,7 @@
+**Lo que hay que saber sobre la crisis de la planta química de California**\
+`Los bomberos siguen enfriando con agua un tanque de almacenamiento de productos químicos para evitar que se rompa o explote. Unos 40.000 residentes cercanos a la planta del condado de Orange han sido evacuados a refugios.`\
+https://www.nytimes.com/es/2026/05/25/espanol/estados-unidos/garden-grove-planta-quimicos-evacuacion.html
+
 **Iran War Live Updates: Peace Deal Could Take Days to Nail Down**\
 `Oil prices fell Monday, as negotiations between the United States and Iran appeared to continue. American and Iranian officials have offered conflicting accounts of the emerging agreement.`\
 https://www.nytimes.com/live/2026/05/25/world/iran-war-trump
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/25/opinion/france-slave-trade.html
 **My Wife Fought Corruption in El Salvador. Then She Vanished Into Its Prisons.**\
 `The cost of Nayib Bukele’s crackdown on crime is too high.`\
 https://www.nytimes.com/2026/05/25/opinion/el-salvador-ruth-lopez-bukele.html
-
-**El papa León está a punto de hacer una declaración sobre la IA. Por qué es importante**\
-`León XIV va a emitir sus pensamientos sobre la inteligencia artificial mediante una forma de comunicación papal centenaria llamada encíclica, la primera desde que es papa.`\
-https://www.nytimes.com/es/2026/05/25/espanol/mundo/papa-leon-enciclica-ia.html
 
