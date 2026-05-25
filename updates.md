@@ -1,3 +1,7 @@
+**Iran War Live Updates: As Talks to End War Resume in Qatar, U.S. Conducts Strikes on Iran’s Gulf Coast**\
+`Iranian officials went to Doha on Monday for the negotiations, hours before the U.S. military announced the strikes it said were in “self defense” to protect troops. Israel’s leader said his country plans to intensify attacks against Hezbollah, Iran’s ally, in Lebanon.`\
+https://www.nytimes.com/live/2026/05/25/world/iran-war-trump
+
 **Gov. Sherrill Demands Access to ICE Facility as Hunger Strike Widens**\
 `After Gov. Mikie Sherrill joined protesters at an immigration jail in New Jersey, the standoff grew tense, with ICE agents deploying pepper balls and spray.`\
 https://www.nytimes.com/2026/05/25/nyregion/sherrill-ice-delaney-hunger-strike.html
