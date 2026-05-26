@@ -1,3 +1,11 @@
+**Efforts to End the War Continue as Tensions Between the U.S. and Iran Escalate**\
+`Secretary of State Marco Rubio said Tuesday that negotiations to end the war in Iran were continuing. His comments came after the United States conducted what it said were “self-defense strikes” in southern Iran.`\
+https://www.nytimes.com/video/world/middleeast/100000010925397/iran-war-talks-negotiations-strikes.html
+
+**Election Live Updates: Texas Republicans Battle for Senate Nomination in Runoff**\
+`Ken Paxton was endorsed by President Trump in his campaign against John Cornyn, a four-term Republican senator. The winner will face James Talarico, a Democrat, in November.`\
+https://www.nytimes.com/live/2026/05/26/us/texas-primary-runoff-elections
+
 **Belgium Crash Kills 4 as Train Hits School Van**\
 `Two children, 12 and 15, were among those killed in the crash near Brussels, officials said. The students in the van attended a special education school.`\
 https://www.nytimes.com/2026/05/26/world/europe/belgium-minibus-train-collision-children.html

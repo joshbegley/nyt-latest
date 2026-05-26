@@ -1,3 +1,7 @@
+**Efforts to End the War Continue as Tensions Between the U.S. and Iran Escalate**\
+`Secretary of State Marco Rubio said Tuesday that negotiations to end the war in Iran were continuing. His comments came after the United States conducted what it said were “self-defense strikes” in southern Iran.`\
+https://www.nytimes.com/video/world/middleeast/100000010925397/iran-war-talks-negotiations-strikes.html
+
 **A Dissident Escapes China by Rubber Boat and Lands in South Korea**\
 `Dong Guangping, 68, fled China at least three other times but was always sent back. His friends hope things might be different this time.`\
 https://www.nytimes.com/2026/05/26/world/asia/china-dissident-dong-guangping-south-korea.html
@@ -19,7 +23,7 @@ https://www.nytimes.com/2026/05/26/business/bp-chairman-manifold.html
 https://www.nytimes.com/interactive/2026/05/26/books/review/author-towns-quiz.html
 
 **Election Live Updates: Texas Republicans Battle for Senate Nomination in Runoff**\
-`Ken Paxton was endorsed by President Trump in his campaign against  John Cornyn, a four-term Republican senator. The winner will face James Talarico, a Democrat, in November.`\
+`Ken Paxton was endorsed by President Trump in his campaign against John Cornyn, a four-term Republican senator. The winner will face James Talarico, a Democrat, in November.`\
 https://www.nytimes.com/live/2026/05/26/us/texas-primary-runoff-elections
 
 **Your Questions, Answered**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/26/books/review/the-midnight-train-matt-haig.htm
 **‘Armageddon’: The Blockbuster Melodrama That Left Our Heads Spinning**\
 `Michael Bay wasn’t remotely worried about the science in his 1998 science-fiction action hit that launched an elite ensemble cast to space.`\
 https://www.nytimes.com/2026/05/26/movies/armageddon-1998-michael-bay.html
-
-**Threat of Deportations Leads to Risky Childbirth for Haitian Mothers**\
-`Haitian women are having babies in squalid, unsupervised settings after the Dominican Republic started sending immigration agents to detain migrants at hospitals.`\
-https://www.nytimes.com/2026/05/26/world/americas/dominican-republic-haiti-hospital-deportations.html
 
