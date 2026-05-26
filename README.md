@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/05/26/arts/television/john-barbour-dead.html
 `Get live results and maps from the 2026 Texas primary runoff election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-senate-runoff.html
 
-**Texas’s Redistricting Creates Intraparty Clashes Over House Seats**\
+**Texas’ Redistricting Creates Intraparty Clashes Over House Seats**\
 `The new congressional map Texas Republicans drew to favor the party has led to several contentious primary runoffs.`\
 https://www.nytimes.com/2026/05/26/us/politics/texas-congress-redistricting.html
 
@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/05/26/theater/dreyfus-harris-janney-keery-other-des
 `President Trump’s proposal to end the war with Iran would delay tackling the most contentious issues — a tactic that has had mixed results in Gaza.`\
 https://www.nytimes.com/2026/05/26/world/middleeast/trump-middle-east-peace-deals.html
 
-**Texas Elections Live Updates: Cornyn and Paxton Battle for Senate Nomination**\
-`Ken Paxton was endorsed by President Trump in his campaign against John Cornyn, a four-term Republican senator. The winner will face James Talarico, a Democrat, in November.`\
+**Texas Elections Live Updates: Republican Voters Choosing Nominee for Key Senate Battle**\
+`Ken Paxton, the Texas attorney general, was endorsed by President Trump in his campaign against John Cornyn, a four-term Republican senator. The winner will face the Democratic nominee, James Talarico, in a race with major nationwide implications.`\
 https://www.nytimes.com/live/2026/05/26/us/texas-primary-runoff-elections
 
