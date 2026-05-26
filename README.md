@@ -1,3 +1,7 @@
+**Trump’s Iran Proposal Has Echoes of Half-Finished Gaza Deal**\
+`President Trump’s proposal to end the war with Iran would delay tackling the most contentious issues — a tactic that has had mixed results in Gaza.`\
+https://www.nytimes.com/2026/05/26/world/middleeast/trump-middle-east-peace-deals.html
+
 **Rahm Emanuel, a Possible 2028 Contender, Calls for Higher Education Reforms**\
 `Republicans have made gains with voters on education issues. A plan championed by Mr. Emanuel, a Democratic former mayor of Chicago, centers on college affordability.`\
 https://www.nytimes.com/2026/05/26/us/politics/rahm-emanuel-education.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/26/opinion/grades-school-test-scores.html
 **The New Drug Crisis No One's Ready For**\
 `The Daily host Natalie Kitroeff speaks with New York Times investigative reporter Azam Ahmed about the need for a new framework to address the new synthetic drug crisis.`\
 https://www.nytimes.com/video/podcasts/100000010865724/the-new-drug-crisis-no-ones-ready-for.html
-
-**A Deadly Drug Cocktail Made of Paper Is Killing Inmates**\
-`The Daily host Natalie Kitroeff speaks with New York Times investigative reporter Azam Ahmed about his reporting about a deadly paper-based drug making its way through Cook County Jail.`\
-https://www.nytimes.com/video/podcasts/100000010865703/a-deadly-drug-cocktail-made-of-paper-is-killing-inmates.html
 
