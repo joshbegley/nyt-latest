@@ -1,3 +1,63 @@
+**Texas U.S. Senate Runoff Live Election Results 2026: Cornyn vs. Paxton**\
+`Get live results and maps from the 2026 Texas primary runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-senate-runoff.html
+
+**Texas’s Redistricting Creates Intraparty Clashes Over House Seats**\
+`The new congressional map Texas Republicans drew to favor the party has led to several contentious primary runoffs.`\
+https://www.nytimes.com/2026/05/26/us/politics/texas-congress-redistricting.html
+
+**Texas 2026: Live Election Results**\
+`Get live results and maps from the 2026 Texas elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-primary-runoff.html
+
+**Texas Seventh Congressional District Runoff 2026: Live Election Results, Cohen vs. Hale**\
+`Get live results and maps from the 2026 Texas runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-7-runoff.html
+
+**Texas Ninth Congressional District Runoff 2026: Live Election Results, Cain vs. Mealer**\
+`Get live results and maps from the 2026 Texas runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-9-runoff.html
+
+**Texas 33rd Congressional District Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Texas runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-33-runoff.html
+
+**Texas 37th Congressional District Runoff 2026: Live Election Results, Gary vs. Pena**\
+`Get live results and maps from the 2026 Texas runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-37-runoff.html
+
+**Texas 19th Congressional District Runoff 2026: Live Election Results, Enriquez vs. Sell**\
+`Get live results and maps from the 2026 Texas runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-19-runoff.html
+
+**Texas 35th Congressional District Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Texas runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-35-runoff.html
+
+**Texas First Congressional District Runoff 2026: Live Election Results, Alexander vs. Prince**\
+`Get live results and maps from the 2026 Texas runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-1-runoff.html
+
+**Texas 30th Congressional District Runoff 2026: Live Election Results, Daniels vs. Jackson**\
+`Get live results and maps from the 2026 Texas runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-30-runoff.html
+
+**Texas 18th Congressional District Runoff 2026: Live Election Results, Green vs. Menefee**\
+`Get live results and maps from the 2026 Texas runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-18-runoff.html
+
+**Texas 38th Congressional District Runoff 2026: Live Election Results, Bonck vs. deZevallos**\
+`Get live results and maps from the 2026 Texas runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-38-runoff.html
+
+**Texas 24th Congressional District Runoff 2026: Live Election Results, Burge vs. Ware**\
+`Get live results and maps from the 2026 Texas runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-24-runoff.html
+
+**Texas Fifth Congressional District Runoff 2026: Live Election Results, Hockett vs. Torres**\
+`Get live results and maps from the 2026 Texas runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-5-runoff.html
+
 **Texas Attorney General Runoff 2026: Live Election Results**\
 `Get live results and maps from the 2026 Texas runoff election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-texas-attorney-general-runoff.html

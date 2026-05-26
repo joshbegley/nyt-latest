@@ -1,30 +1,90 @@
-**Texas Attorney General Runoff 2026: Live Election Results**\
-`Get live results and maps from the 2026 Texas runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-texas-attorney-general-runoff.html
+**Texas U.S. Senate Runoff Live Election Results 2026: Cornyn vs. Paxton**\
+`Get live results and maps from the 2026 Texas primary runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-senate-runoff.html
 
-**Texas Criminal Appeals Court Runoff 2026: Live Election Results**\
+**Texas’s Redistricting Creates Intraparty Clashes Over House Seats**\
+`The new congressional map Texas Republicans drew to favor the party has led to several contentious primary runoffs.`\
+https://www.nytimes.com/2026/05/26/us/politics/texas-congress-redistricting.html
+
+**Texas 2026: Live Election Results**\
+`Get live results and maps from the 2026 Texas elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-primary-runoff.html
+
+**Texas Seventh Congressional District Runoff 2026: Live Election Results, Cohen vs. Hale**\
 `Get live results and maps from the 2026 Texas runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-texas-criminal-appeals-court-runoff.html
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-7-runoff.html
+
+**Texas Ninth Congressional District Runoff 2026: Live Election Results, Cain vs. Mealer**\
+`Get live results and maps from the 2026 Texas runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-9-runoff.html
+
+**Texas 33rd Congressional District Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Texas runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-33-runoff.html
+
+**Texas 37th Congressional District Runoff 2026: Live Election Results, Gary vs. Pena**\
+`Get live results and maps from the 2026 Texas runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-37-runoff.html
+
+**Texas 19th Congressional District Runoff 2026: Live Election Results, Enriquez vs. Sell**\
+`Get live results and maps from the 2026 Texas runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-19-runoff.html
+
+**Texas 35th Congressional District Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Texas runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-35-runoff.html
+
+**Texas First Congressional District Runoff 2026: Live Election Results, Alexander vs. Prince**\
+`Get live results and maps from the 2026 Texas runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-1-runoff.html
 
 **Texas Lieutenant Governor Runoff 2026: Live Election Results**\
 `Get live results and maps from the 2026 Texas runoff election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-texas-lieutenant-governor-runoff.html
 
-**Texas 17th Congressional District Runoff 2026: Live Election Results, Flores vs. Shepard**\
+**Texas 30th Congressional District Runoff 2026: Live Election Results, Daniels vs. Jackson**\
 `Get live results and maps from the 2026 Texas runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-17-runoff.html
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-30-runoff.html
+
+**Texas 18th Congressional District Runoff 2026: Live Election Results, Green vs. Menefee**\
+`Get live results and maps from the 2026 Texas runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-18-runoff.html
 
 **Texas 16th Congressional District Runoff 2026: Live Election Results, Barraza vs. Bauman**\
 `Get live results and maps from the 2026 Texas runoff election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-16-runoff.html
 
-**Texas Railroad Commissioner Runoff 2026: Live Election Results**\
+**Texas 38th Congressional District Runoff 2026: Live Election Results, Bonck vs. deZevallos**\
 `Get live results and maps from the 2026 Texas runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-texas-railroad-commissioner-runoff.html
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-38-runoff.html
 
 **Texas 14th Congressional District Runoff 2026: Live Election Results, Bartie vs. Davis**\
 `Get live results and maps from the 2026 Texas runoff election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-14-runoff.html
+
+**Texas 24th Congressional District Runoff 2026: Live Election Results, Burge vs. Ware**\
+`Get live results and maps from the 2026 Texas runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-24-runoff.html
+
+**Texas 17th Congressional District Runoff 2026: Live Election Results, Flores vs. Shepard**\
+`Get live results and maps from the 2026 Texas runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-17-runoff.html
+
+**Texas Attorney General Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Texas runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-attorney-general-runoff.html
+
+**Texas Railroad Commissioner Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Texas runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-railroad-commissioner-runoff.html
+
+**Texas Criminal Appeals Court Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Texas runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-criminal-appeals-court-runoff.html
+
+**Texas Fifth Congressional District Runoff 2026: Live Election Results, Hockett vs. Torres**\
+`Get live results and maps from the 2026 Texas runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-5-runoff.html
 
 **Ben Morea, Principal Provocateur of 1960s Anarchist Group, Dies at 84**\
 `An abstract painter who wanted to creatively destroy the gap between art and revolution, he loosely led a band of radicals with a profane name.`\
@@ -134,63 +194,7 @@ https://www.nytimes.com/2026/05/26/us/politics/rahm-emanuel-education.html
 `Hezbollah, the Iran-backed militant group, has also kept up rocket and drone attacks on Israeli troops, as the escalation threatens to complicate diplomatic efforts.`\
 https://www.nytimes.com/2026/05/26/world/middleeast/israel-strikes-escalation-lebanon.html
 
-**L.A. Philharmonic Names Daniel Harding as Music Director**\
-`The Philharmonic, taking a more traditional route than in the past, has named the British-born conductor Daniel Harding as its next music director.`\
-https://www.nytimes.com/2026/05/26/arts/music/daniel-harding-la-philharmonic.html
-
-**Street Style Look of the Week: A Harlem Doyenne’s Head-Turning Dress**\
-`A Harlem doyenne with a fondness for “a 1950s silhouette” took matters into her own hands and merged two skirts into one head-turning dress.`\
-https://www.nytimes.com/2026/05/26/style/street-style-look-harlem-dress.html
-
-**Efforts to End the War Continue as Tensions Between the U.S. and Iran Escalate**\
-`Secretary of State Marco Rubio said Tuesday that negotiations to end the war in Iran were continuing. His comments came after the United States conducted what it said were “self-defense strikes” in southern Iran.`\
-https://www.nytimes.com/video/world/middleeast/100000010925397/iran-war-talks-negotiations-strikes.html
-
-**A Dissident Escapes China by Rubber Boat and Lands in South Korea**\
-`Dong Guangping, 68, fled China at least three other times but was always sent back. His friends hope things might be different this time.`\
-https://www.nytimes.com/2026/05/26/world/asia/china-dissident-dong-guangping-south-korea.html
-
-**The Vatican Takes on Silicon Valley With an A.I. Warning**\
-`Pope Leo XIV’s encyclical on artificial intelligence puts technology giants on notice. But will it slow down the A.I. race?`\
-https://www.nytimes.com/2026/05/26/business/dealbook/vatican-ai-silicon-valley.html
-
-**OpenRouter, an Exchange for A.I. Models, Raises $113 Million**\
-`An investment arm of Alphabet is backing OpenRouter, which helps companies choose among hundreds of models for different software tasks.`\
-https://www.nytimes.com/2026/05/26/business/dealbook/openrouter-ai-models-fundraising.html
-
-**BP Ousts Chairman, Citing ‘Serious Concerns’ Over Conduct**\
-`The British oil group said that Albert Manifold had been removed, after concerns were raised “related to important governance standards, oversight and conduct.”`\
-https://www.nytimes.com/2026/05/26/business/bp-chairman-manifold.html
-
-**Can You Match the Places These Authors Lived With Settings in Their Books?**\
-`Home is where the heart is — and sometimes where writers set their books. Try this quiz to see how many locations you recognize.`\
-https://www.nytimes.com/interactive/2026/05/26/books/review/author-towns-quiz.html
-
 **Texas Elections Live Updates: Cornyn and Paxton Battle for Senate Nomination**\
 `Ken Paxton was endorsed by President Trump in his campaign against John Cornyn, a four-term Republican senator. The winner will face James Talarico, a Democrat, in November.`\
 https://www.nytimes.com/live/2026/05/26/us/texas-primary-runoff-elections
-
-**Your Questions, Answered**\
-`We respond to reader queries about weapons sales, the national debt and more.`\
-https://www.nytimes.com/2026/05/26/briefing/your-questions-answered.html
-
-**¿Estamos preparados para otra pandemia?**\
-`El hantavirus y el ébola nos recuerdan que los brotes son inevitables, y que el mundo debe trabajar en conjunto para contenerlos y prevenir la próxima pandemia.`\
-https://www.nytimes.com/es/2026/05/26/espanol/mundo/preparados-pandemia-hantavirus-ebola.html
-
-**Belgium Crash Kills 4 as Train Hits School Van**\
-`Two children, 12 and 15, were among those killed in the crash near Brussels, officials said. The students in the van attended a special education school.`\
-https://www.nytimes.com/2026/05/26/world/europe/belgium-minibus-train-collision-children.html
-
-**White House Shakes Up Green Card Policy, and the Pope Takes On A.I.**\
-`Plus, will anyone want an electric Ferrari?`\
-https://www.nytimes.com/2026/05/26/podcasts/the-headlines/white-house-green-card-pope-ai.html
-
-**A Flood of New, Deadlier Drugs**\
-`“The Daily” speaks with Azam Ahmed, a New York Times international investigative correspondent, about his latest piece on the synthetic drug crisis.`\
-https://www.nytimes.com/2026/05/26/podcasts/the-daily/deadly-synthetic-drugs.html
-
-**NYT Connections Answers for May 26, 2025**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, May 27, 2026.`\
-https://www.nytimes.com/2026/05/26/crosswords/connections-companion-1081.html
 
