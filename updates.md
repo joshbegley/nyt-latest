@@ -1,3 +1,7 @@
+**Just Tuning In? Here’s What to Know About the Midterms.**\
+`President Trump has sought revenge in G.O.P. primaries. Democrats have turned out to vote in large numbers. Republicans have gained a redistricting advantage.`\
+https://www.nytimes.com/2026/05/26/us/politics/midterm-primaries-primer.html
+
 **Fireball Falls From Space Over Erupting Volcano in the Philippines**\
 `Livestream video captured fireball falling from space on Monday, over the most active volcano in the Philippines.`\
 https://www.nytimes.com/video/science/space/100000010926624/volcano-eruption-fireball-mayon-philippines.html

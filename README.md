@@ -1,3 +1,7 @@
+**¿Qué busca el papa León con sus esfuerzos en materia de IA? Mira a quién le da la mano**\
+`Christopher Olah, pionero de la inteligencia artificial y cofundador de la empresa Anthropic, asistió a la presentación. Su invitación simbolizó un intento de ampliar la influencia de León.`\
+https://www.nytimes.com/es/2026/05/26/espanol/estados-unidos/papa-enciclica-inteligencia-artificial.html
+
 **Just Tuning In? Here’s What to Know About the Midterms.**\
 `President Trump has sought revenge in G.O.P. primaries. Democrats have turned out to vote in large numbers. Republicans have gained a redistricting advantage.`\
 https://www.nytimes.com/2026/05/26/us/politics/midterm-primaries-primer.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-37-
 **Texas 19th Congressional District Runoff 2026: Live Election Results, Enriquez vs. Sell**\
 `Get live results and maps from the 2026 Texas runoff election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-19-runoff.html
-
-**Texas 35th Congressional District Runoff 2026: Live Election Results**\
-`Get live results and maps from the 2026 Texas runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-35-runoff.html
 
 **Texas Elections Live Updates: Republicans Vote in Senate Race Pitting Incumbency Against Trump Endorsement**\
 `Ken Paxton, the Texas attorney general, was endorsed by President Trump in his campaign against John Cornyn, a four-term Republican senator. The winner will face the Democratic nominee, James Talarico, in a race with nationwide implications.`\
