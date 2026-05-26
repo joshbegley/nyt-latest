@@ -1,3 +1,11 @@
+**Iran War Live Updates: Khamenei Says U.S. Military Bases in Middle East No Longer Safe**\
+`Mojtaba Khamenei, Iran’s supreme leader, said that after the war Gulf nations would no longer be “shields” for U.S. bases.`\
+https://www.nytimes.com/live/2026/05/26/world/iran-war-trump-deal
+
+**Las películas de este verano cambian la relación con sus juguetes promocionales**\
+`‘The Mandalorian and Grogu’, ‘Amos del universo’ y ‘Toy Story 5’ pertenecen a franquicias que están cambiando la conexión con sus productos relacionados.`\
+https://www.nytimes.com/es/2026/05/26/espanol/cultura/juguetes-peliculas.html
+
 **Texas Republican Candidates Face Off in Key Senate Race**\
 `Voters in Texas head to the polls on Tuesday for a Republican Senate runoff between the incumbent, John Cornyn, and a Trump-backed challenger, Ken Paxton.`\
 https://www.nytimes.com/video/us/100000010925127/texas-election-senate-republican-paxton-cornyn.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/us/politics/trump-cabinet-meetings.html
 **Trump’s Pressure Had Little Effect on Iran’s Terms for a Peace Deal**\
 `President Trump had sought to force Tehran to accept American demands for a peace deal with a mixture of threats and military operations.`\
 https://www.nytimes.com/2026/05/25/world/middleeast/iran-deal-trump-pressure.html
-
-**Even After a Strait of Hormuz Deal, Moving 1,500 Ships Won’t Be Easy**\
-`An agreement to reopen the waterway would be followed by a complicated process of navigating a backlog of vessels stranded for nearly three months.`\
-https://www.nytimes.com/2026/05/25/business/iran-strait-hormuz-shipping-traffic.html
-
-**UK Heat Wave Could Break May Temperature Record**\
-`Forecasters warned that temperatures could climb to the highest level ever recorded in the month of May, reaching 35 degrees Celsius (95 degrees Fahrenheit) in some areas of England.`\
-https://www.nytimes.com/2026/05/25/weather/uk-heat-wave-may-weather-record.html
 
