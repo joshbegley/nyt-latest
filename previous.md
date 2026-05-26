@@ -1,3 +1,7 @@
+**U.S. Aims to Give Cold War Plutonium to Start-Ups for Nuclear Fuel**\
+`Companies say it’s a better way to dispose of the Cold War-era material — and fix a shortage of nuclear fuel. But the plan has also faced criticism.`\
+https://www.nytimes.com/2026/05/26/climate/plutonium-nuclear-weapons-fuel.html
+
 **U.S. Said to Observe Escalating Threats From Iran Before Latest Strikes**\
 `Two U.S. officials said Iran launched drones near American ships, sent speedboats to mine the Strait of Hormuz, and stepped up activity at some of its missile sites.`\
 https://www.nytimes.com/2026/05/26/world/middleeast/us-iran-strikes.html
@@ -166,8 +170,8 @@ https://www.nytimes.com/2026/05/26/dining/restaurant-review-komal-los-angeles.ht
 `Miles of coral reef around Pom Pom Island in Malaysia have been ruined by climate change and blast fishing. A conservation group hopes to restore the area by installing concrete structures that mimic natural reefs.`\
 https://www.nytimes.com/video/world/asia/100000010925558/coral-reefs-conservation-artificial.html
 
-**Trump Undergoes a Physical Exam at Walter Reed**\
-`President Trump, who will turn 80 next month, said after the exam that he was deemed in good health.`\
+**Trump Declares Himself in Good Health After Physical Exam at Walter Reed**\
+`President Trump, who will turn 80 next month, did not give details on the exam.`\
 https://www.nytimes.com/2026/05/26/us/politics/trump-physical-walter-reed.html
 
 **G.D.P. Is a Flawed Measure of Prosperity. Alternatives Are On the Way.**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/05/26/us/politics/september-11-case-torture.html
 **Julia Louis-Dreyfus to Star in ‘Other Desert Cities’ on Broadway**\
 `The revival, also featuring Ed Harris, Allison Janney, Lily Rabe and Joe Keery, will begin performances in September at the Hudson Theater.`\
 https://www.nytimes.com/2026/05/26/theater/dreyfus-harris-janney-keery-other-desert-cities-broadway.html
-
-**Trump’s Iran Proposal Has Echoes of Half-Finished Gaza Deal**\
-`President Trump’s proposal to end the war with Iran would delay tackling the most contentious issues — a tactic that has had mixed results in Gaza.`\
-https://www.nytimes.com/2026/05/26/world/middleeast/trump-middle-east-peace-deals.html
 
 **Texas Elections Live Updates: Republican Voters Choosing Nominee for Key Senate Battle**\
 `Ken Paxton, the Texas attorney general, was endorsed by President Trump in his campaign against John Cornyn, a four-term Republican senator. The winner will face the Democratic nominee, James Talarico, in a race with major nationwide implications.`\

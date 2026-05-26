@@ -1,3 +1,11 @@
+**U.S. Aims to Give Cold War Plutonium to Start-Ups for Nuclear Fuel**\
+`Companies say it’s a better way to dispose of the Cold War-era material — and fix a shortage of nuclear fuel. But the plan has also faced criticism.`\
+https://www.nytimes.com/2026/05/26/climate/plutonium-nuclear-weapons-fuel.html
+
+**Trump Declares Himself in Good Health After Physical Exam at Walter Reed**\
+`President Trump, who will turn 80 next month, did not give details on the exam.`\
+https://www.nytimes.com/2026/05/26/us/politics/trump-physical-walter-reed.html
+
 **U.S. Said to Observe Escalating Threats From Iran Before Latest Strikes**\
 `Two U.S. officials said Iran launched drones near American ships, sent speedboats to mine the Strait of Hormuz, and stepped up activity at some of its missile sites.`\
 https://www.nytimes.com/2026/05/26/world/middleeast/us-iran-strikes.html
