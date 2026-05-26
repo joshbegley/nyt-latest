@@ -1,3 +1,15 @@
+**Southern Poverty Law Center Accuses Justice Dept. of Vindictive Prosecution**\
+`Defense lawyers are increasingly accusing the Justice Department under President Trump of using its powers to prioritize the president’s political imperatives above the pursuit of actual justice.`\
+https://www.nytimes.com/2026/05/26/us/politics/southern-poverty-law-center-doj.html
+
+**Iceland Warms to Europe**\
+`The country has always stood apart from the continent. Then President Trump started threatening Greenland.`\
+https://www.nytimes.com/2026/05/26/world/iceland-europe-iran-us-strikes.html
+
+**How Much Crow Will Trump Have to Eat on Iran?**\
+`Whatever deal is reached between the United States and Iran, Trump will have to make a big concession: A murderous regime remains intact.`\
+https://www.nytimes.com/2026/05/26/opinion/iran-deal-trump-us.html
+
 **The Jaw-Dropping Cost of the Texas Senate Primary: Nearly $130 Million**\
 `The race between Senator John Cornyn and his right-wing rival, Ken Paxton, has cost mountains of cash. More of it has gone to help Mr. Cornyn — but that money may not be enough.`\
 https://www.nytimes.com/2026/05/26/us/politics/cornyn-paxton-texas-senate-primary-spending.html
@@ -54,7 +66,7 @@ https://www.nytimes.com/2026/05/26/technology/pope-leo-ai-religion.html
 `Florida officials had asked the justices to hear a lawsuit accusing California and Washington of improperly granting licenses to an immigrant accused in a fatal crash.`\
 https://www.nytimes.com/2026/05/26/us/politics/supreme-court-drivers-licenses-migrants.html
 
-**Thousands of Knicks Fans Celebrate As Team Heads to N.B.A. Finals**\
+**Thousands of Knicks Fans Celebrate as Team Heads to N.B.A. Finals**\
 `Fans celebrated the New York Knicks’ win after they swept the Cleveland Cavaliers on Monday, leading them to the N.B.A. Finals. The win sets the Knicks up for their first Finals appearance since 1999.`\
 https://www.nytimes.com/video/sports/basketball/100000010926060/thousands-of-knicks-fans-celebrate-as-team-heads-to-nba-finals.html
 
@@ -173,18 +185,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-38-
 **Texas 14th Congressional District Runoff 2026: Live Election Results, Bartie vs. Davis**\
 `Get live results and maps from the 2026 Texas runoff election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-14-runoff.html
-
-**Texas 24th Congressional District Runoff 2026: Live Election Results, Burge vs. Ware**\
-`Get live results and maps from the 2026 Texas runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-24-runoff.html
-
-**Texas 17th Congressional District Runoff 2026: Live Election Results, Flores vs. Shepard**\
-`Get live results and maps from the 2026 Texas runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-17-runoff.html
-
-**Texas Attorney General Runoff 2026: Live Election Results**\
-`Get live results and maps from the 2026 Texas runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-texas-attorney-general-runoff.html
 
 **Texas Elections Live Updates: Republicans Vote in Senate Race Pitting Incumbency Against Trump Endorsement**\
 `Ken Paxton, the Texas attorney general, was endorsed by President Trump in his campaign against John Cornyn, a four-term Republican senator. The winner will face the Democratic nominee, James Talarico, in a race with nationwide implications.`\

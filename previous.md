@@ -187,6 +187,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-17-
 https://www.nytimes.com/interactive/2026/us/elections/results-texas-attorney-general-runoff.html
 
 **Texas Elections Live Updates: Republicans Vote in Senate Race Pitting Incumbency Against Trump Endorsement**\
-`Ken Paxton, the Texas attorney general, was endorsed by President Trump in his campaign against John Cornyn, a four-term Republican senator. The winner will face the Democratic nominee, James Talarico, in a race with major nationwide implications.`\
+`Ken Paxton, the Texas attorney general, was endorsed by President Trump in his campaign against John Cornyn, a four-term Republican senator. The winner will face the Democratic nominee, James Talarico, in a race with nationwide implications.`\
 https://www.nytimes.com/live/2026/05/26/us/texas-primary-runoff-elections
 

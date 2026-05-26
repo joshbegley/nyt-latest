@@ -1,3 +1,7 @@
+**Texas Elections Live Updates: Republicans Vote in Senate Race Pitting Incumbency Against Trump Endorsement**\
+`Ken Paxton, the Texas attorney general, was endorsed by President Trump in his campaign against John Cornyn, a four-term Republican senator. The winner will face the Democratic nominee, James Talarico, in a race with nationwide implications.`\
+https://www.nytimes.com/live/2026/05/26/us/texas-primary-runoff-elections
+
 **The Jaw-Dropping Cost of the Texas Senate Primary: Nearly $130 Million**\
 `The race between Senator John Cornyn and his right-wing rival, Ken Paxton, has cost mountains of cash. More of it has gone to help Mr. Cornyn — but that money may not be enough.`\
 https://www.nytimes.com/2026/05/26/us/politics/cornyn-paxton-texas-senate-primary-spending.html
