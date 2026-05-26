@@ -1,3 +1,11 @@
+**Texas Republican Candidates Face Off in Key Senate Race**\
+`Voters in Texas head to the polls on Tuesday for a Republican Senate runoff between the incumbent, John Cornyn, and a Trump-backed challenger, Ken Paxton.`\
+https://www.nytimes.com/video/us/100000010925127/texas-election-senate-republican-paxton-cornyn.html
+
+**Evolving Warfare Connects the Conflicts in Ukraine and Iran**\
+`Aspects such as drone technology and diplomacy show how the wars intersect on the battlefield and in global alignments, providing a model for future conflicts.`\
+https://www.nytimes.com/2026/05/26/world/middleeast/iran-ukraine-wars-similarities.html
+
 **Global Oil Price Rises After U.S. Strikes in Iran Cloud Peace Deal**\
 `Optimism for a resolution to the conflict and the reopening of the Strait of Hormuz was checked after the United States said it had carried out strikes on missile launch sites in Iran.`\
 https://www.nytimes.com/2026/05/26/business/oil-gas-price-iran.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/05/25/business/iran-strait-hormuz-shipping-traffic.
 **UK Heat Wave Could Break May Temperature Record**\
 `Forecasters warned that temperatures could climb to the highest level ever recorded in the month of May, reaching 35 degrees Celsius (95 degrees Fahrenheit) in some areas of England.`\
 https://www.nytimes.com/2026/05/25/weather/uk-heat-wave-may-weather-record.html
-
-**Toshifumi Suzuki, Who Made 7-Eleven a Giant in Japan, Dies at 93**\
-`He spent four decades building the convenience store chain into a cornerstone of daily life.`\
-https://www.nytimes.com/2026/05/25/business/toshifumi-suzuki-dead.html
-
-**Falling Test Scores: Reasons and Fixes**\
-`Readers discuss data showing lower reading and math scores. Also: The yuppie factor.`\
-https://www.nytimes.com/2026/05/25/opinion/test-scores.html
 
