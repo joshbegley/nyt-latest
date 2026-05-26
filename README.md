@@ -1,3 +1,7 @@
+**Sonny Rollins: 12 Essential Albums**\
+`The towering saxophonist, who died at 95, was a master of living in the moment. Listen to some of his most compelling work, onstage and in the studio.`\
+https://www.nytimes.com/2026/05/25/arts/music/sonny-rollins-albums.html
+
 **NYT Crossword Answers for May 26, 2026**\
 `Brad Lively shows us the anatomy of a good crossword puzzle.`\
 https://www.nytimes.com/2026/05/25/crosswords/daily-puzzle-2026-05-26.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/05/25/world/europe/pope-leo-encyclical.html
 **One of Madagascar’s Oldest Sacred Trees Is Slowly Dying**\
 `In a forest in Madagascar, the demise of a centuries-old baobab points to the fraying of a fragile ecosystem.`\
 https://www.nytimes.com/2026/05/25/world/africa/baobab-tree-dying-madagascar-africa.html
-
-**‘Una auténtica pesadilla’: voces de un Moscú golpeado por los drones ucranianos**\
-`Los residentes que sufrieron ataques en los últimos días se sintieron profundamente sacudidos por el conflicto que llegó a la región de la capital, sede del poder del Kremlin.`\
-https://www.nytimes.com/es/2026/05/25/espanol/mundo/moscu-ataque-drones-ucrania.html
 
