@@ -1,3 +1,19 @@
+**Eli Lilly to Buy 3 Vaccine Developers**\
+`The drugmaker said it would spend up to $4 billion to acquire small companies exploring vaccines for shingles, Epstein-Barr virus and other pathogens.`\
+https://www.nytimes.com/2026/05/26/business/eli-lilly-vaccines-shingles-epstein-barr.html
+
+**Court Rejects Alabama House Map, Calling It Unfair to Black Voters**\
+`Alabama is likely to appeal the ruling, which stops an effort to use a new congressional map that would redraw one majority-Black district.`\
+https://www.nytimes.com/2026/05/26/us/politics/alabama-congress-map-redistricting.html
+
+**Judge to Decide How Long Torture’s Taint Infected the Sept. 11 Case**\
+`Eight days of legal arguments at Guantánamo have brought the long-running terrorism case to a moment of truth in the long wait for justice.`\
+https://www.nytimes.com/2026/05/26/us/politics/september-11-case-torture.html
+
+**Julia Louis-Dreyfus to Star in ‘Other Desert Cities’ on Broadway**\
+`The revival, also featuring Ed Harris, Allison Janney, Lily Rabe and Joe Keery, will begin performances in September at the Hudson Theater.`\
+https://www.nytimes.com/2026/05/26/theater/dreyfus-harris-janney-keery-other-desert-cities-broadway.html
+
 **Trump’s Iran Proposal Has Echoes of Half-Finished Gaza Deal**\
 `President Trump’s proposal to end the war with Iran would delay tackling the most contentious issues — a tactic that has had mixed results in Gaza.`\
 https://www.nytimes.com/2026/05/26/world/middleeast/trump-middle-east-peace-deals.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/05/26/books/review/freedom-round-the-globe-sarah-m-
 **Cycling in the Dutch Countryside, With a Riverboat as a Base**\
 `A weeklong, self-guided Netherlands biking tour, whose base is a riverboat, offers participants plenty of opportunities to get hopelessly, and entertainingly, lost.`\
 https://www.nytimes.com/2026/05/26/travel/bike-riding-in-the-netherlands.html
-
-**Book Review: ‘Babylon, South Dakota,’ by Tom Lin**\
-`Tom Lin’s new novel, “Babylon, South Dakota,” reimagines the western with surreal elements.`\
-https://www.nytimes.com/2026/05/26/books/review/babylon-south-dakota-tom-lin.html
-
-**Book Review: ‘The Vivisectors,’ by Missouri Williams**\
-`The stoic narrator of “The Vivisectors” befriends a student embroiled in a cultural politics debate.`\
-https://www.nytimes.com/2026/05/26/books/review/missouri-williams-vivisectors.html
-
-**What Your Kid’s Report Card Isn’t Telling You**\
-`Grades are going up and test scores are going down.`\
-https://www.nytimes.com/2026/05/26/opinion/grades-school-test-scores.html
-
-**The New Drug Crisis No One's Ready For**\
-`The Daily host Natalie Kitroeff speaks with New York Times investigative reporter Azam Ahmed about the need for a new framework to address the new synthetic drug crisis.`\
-https://www.nytimes.com/video/podcasts/100000010865724/the-new-drug-crisis-no-ones-ready-for.html
 
