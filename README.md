@@ -1,3 +1,11 @@
+**Robert Daley, Multifaceted Author of ‘Prince of the City,’ Dies at 96**\
+`He wrote 31 books, often drawing on his experiences as a pro football publicist, a foreign correspondent and a gun-toting spokesman for the N.Y.P.D.`\
+https://www.nytimes.com/2026/05/26/nyregion/robert-daley-dead.html
+
+**Judge Allows Florida House Map That Could Add 4 Republican Seats to Stand**\
+`The plaintiffs had argued that the map violated a state ban on partisan gerrymandering that the state’s voters passed in 2010.`\
+https://www.nytimes.com/2026/05/26/us/florida-congress-map-redistricting.html
+
 **A Cod Boat, a Coast Guard Flight and a Lot of Debate About the E.U.**\
 `Iceland may try to join the European Union. A reporter battled seasickness on a fishing trip and strapped herself into a Coast Guard plane to understand how Icelanders felt about the prospect.`\
 https://www.nytimes.com/2026/05/26/insider/iceland-eu.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/05/26/dining/nyc-restaurant-news.html
 **Supreme Court Reverses Ruling in Immigration Judges’ Free Speech Lawsuit**\
 `A group of immigration judges in 2020 challenged work-related restrictions on their public speaking engagements, saying they violated their free speech rights.`\
 https://www.nytimes.com/2026/05/26/us/politics/supreme-court-immigration-judges.html
-
-**Record Heat Grips Parts of Europe**\
-`Heat records in parts of Western Europe have been smashed, with weather agencies describing the spring heat wave as “unprecedented” and “remarkable.”`\
-https://www.nytimes.com/video/world/europe/100000010925435/europe-heat-wave-spring.html
-
-**A Spring Heat Wave is Breaking Records in the U.K., Spain and France**\
-`Authorities in Britain and France warned that “unprecedented” temperatures — at a time when few expected them — could persist. Climate change has made heat waves more frequent and more intense.`\
-https://www.nytimes.com/2026/05/26/world/europe/europe-heatwave-uk-spain-france.html
 
 **Texas Elections Live Updates: Republicans Vote in Senate Race Pitting Incumbency Against Trump Endorsement**\
 `Ken Paxton, the Texas attorney general, was endorsed by President Trump in his campaign against John Cornyn, a four-term Republican senator. The winner will face the Democratic nominee, James Talarico, in a race with major nationwide implications.`\

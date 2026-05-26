@@ -1,3 +1,7 @@
+**A Cod Boat, a Coast Guard Flight and a Lot of Debate About the E.U.**\
+`Iceland may try to join the European Union. A reporter battled seasickness on a fishing trip and strapped herself into a Coast Guard plane to understand how Icelanders felt about the prospect.`\
+https://www.nytimes.com/2026/05/26/insider/iceland-eu.html
+
 **How a New U.S. Weapon Killed 21 Civilians in Iran**\
 `Evidence shows a new missile championed by the U.S. military struck a residential neighborhood in Iran in February, unleashing thousands of deadly pellets on homes, schools and streets. Here’s what that looked like on the ground.`\
 https://www.nytimes.com/video/world/middleeast/100000010916281/us-missile-iran-deaths-civilians.html
