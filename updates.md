@@ -1,3 +1,7 @@
+**Map: 6.9-Magnitude Earthquake Shakes Chile**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/05/25/world/americas/quake-tracker-chile.html
+
 **Reglas para envejecer bien**\
 `Mantenerse vivo en la vejez es un arte que por lo general requiere evitar los pasos en falso.`\
 https://www.nytimes.com/es/2026/05/25/espanol/opinion/como-envejecer-reglas-consejos.html
