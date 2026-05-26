@@ -1,3 +1,11 @@
+**Supreme Court Reverses Ruling in Immigration Judges’ Free Speech Lawsuit**\
+`A group of immigration judges in 2020 challenged work-related restrictions on their public speaking engagements, saying they violated their free speech rights.`\
+https://www.nytimes.com/2026/05/26/us/politics/supreme-court-immigration-judges.html
+
+**Record Heat Grips Parts of Europe**\
+`Heat records in parts of Western Europe have been smashed, with weather agencies describing the spring heat wave as “unprecedented” and “remarkable.”`\
+https://www.nytimes.com/video/world/europe/100000010925435/europe-heat-wave-spring.html
+
 **It’s Still Spring in Europe, but the Heat is Already Breaking Records**\
 `Authorities in Britain and France warned that “unprecedented” temperatures — at a time when few expected them — could persist. Climate change has made heat waves more frequent and more intense.`\
 https://www.nytimes.com/2026/05/26/world/europe/its-still-spring-in-europe-but-the-heat-is-already-breaking-records.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/05/26/world/europe/chelsea-flower-show-gnomes-uk.ht
 **Mamdani’s Public Housing Plan Partly Relies on Private Sector**\
 `Mayor Zohran Mamdani’s new housing plan will include measures to improve New York City’s crumbling public housing system.`\
 https://www.nytimes.com/2026/05/26/nyregion/mamdani-housing-plan-nycha.html
-
-**Radisson Hotel Sued by Parents Who Say 11-Year-Old Daughter Was Groped in Pool**\
-`A man, who was not a guest at the Miami Beach hotel, was accused of assaulting the girl in the hotel’s outdoor pool.`\
-https://www.nytimes.com/2026/05/26/travel/miami-beach-radisson-hotel-lawsuit.html
-
-**As Trump Politicizes Justice Dept., Prosecutors Struggle With Grand Juries**\
-`Judges and grand juries have increasingly lost faith in the Justice Department as the president uses it to reward his friends and go after his opponents.`\
-https://www.nytimes.com/2026/05/26/us/politics/trump-justice-department-grand-juries.html
 
