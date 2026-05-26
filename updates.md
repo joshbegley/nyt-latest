@@ -1,3 +1,7 @@
+**Incumbents Green and Menefee Fault Republicans Over Texas Redistricting**\
+`A Republican-led redistricting effort forced Representative Al Green, who has served 11 terms, and Christian Menefee, one of the newest members of Congress, into a battle for the same seat.`\
+https://www.nytimes.com/2026/05/26/us/politics/texas-runoff-al-green-christian-menefee.html
+
 **Texas U.S. Senate Republican Runoff Live Election Results 2026: Cornyn vs. Paxton**\
 `Get live results and maps from the 2026 Texas primary runoff election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-senate-runoff.html

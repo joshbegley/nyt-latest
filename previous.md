@@ -1,3 +1,7 @@
+**Incumbents Green and Menefee Fault Republicans Over Texas Redistricting**\
+`A Republican-led redistricting effort forced Representative Al Green, who has served 11 terms, and Christian Menefee, one of the newest members of Congress, into a battle for the same seat.`\
+https://www.nytimes.com/2026/05/26/us/politics/texas-runoff-al-green-christian-menefee.html
+
 **Trump Administration Sues U.C.L.A. Again Over Antisemitism**\
 `The lawsuit is the second the government has filed this year against the school that has focused on pro-Palestinian protests in 2024.`\
 https://www.nytimes.com/2026/05/26/us/trump-lawsuit-ucla-antisemitism.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-30-
 **Texas 18th Congressional District Runoff 2026: Live Election Results, Green vs. Menefee**\
 `Get live results and maps from the 2026 Texas runoff election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-18-runoff.html
-
-**Texas 16th Congressional District Runoff 2026: Live Election Results, Barraza vs. Bauman**\
-`Get live results and maps from the 2026 Texas runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-16-runoff.html
 
 **Texas Elections Live Updates: Republicans Vote in Senate Race Pitting Incumbency Against Trump Endorsement**\
 `Ken Paxton, the Texas attorney general, was endorsed by President Trump in his campaign against John Cornyn, a four-term Republican senator. The winner will face the Democratic nominee, James Talarico, in a race with nationwide implications.`\
