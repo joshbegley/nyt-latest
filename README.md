@@ -115,7 +115,7 @@ https://www.nytimes.com/es/2026/05/25/espanol/estados-unidos/iran-acuerdo-estrec
 https://www.nytimes.com/2026/05/25/us/politics/thomas-massie-2028-race.html
 
 **Ferrari Unveils Luce, Its First Fully Electric Car**\
-`The Italian sports car maker unveiled Luce, its first all-electric model, on Monday amid wider worries about the luxury E.V. market.`\
+`The Italian sports car maker unveiled Luce, its first all-electric model, amid wider worries about the luxury E.V. market.`\
 https://www.nytimes.com/2026/05/25/business/ferrari-luce-electric-vehicle.html
 
 **¿Qué dice la primera encíclica del papa León XIV?**\
