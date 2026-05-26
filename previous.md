@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/05/25/crosswords/strands-sidekick-814.html
 `Los bomberos siguen enfriando con agua un tanque de almacenamiento de productos químicos para evitar que se rompa o explote. Unos 40.000 residentes cercanos a la planta del condado de Orange han sido evacuados a refugios.`\
 https://www.nytimes.com/es/2026/05/25/espanol/estados-unidos/garden-grove-planta-quimicos-evacuacion.html
 
-**Iran War Live Updates: As Talks to End War Resume in Qatar, U.S. Conducts Strikes on Iran’s Gulf Coast**\
+**As Delegations Gather in Qatar For Talks, U.S. Strikes Iran’s Gulf Coast**\
 `Iranian officials went to Doha on Monday for the negotiations, hours before the U.S. military announced the strikes it said were intended to protect troops. Israel’s leader said his country plans to intensify attacks against Hezbollah, Iran’s ally, in Lebanon.`\
 https://www.nytimes.com/live/2026/05/25/world/iran-war-trump
 

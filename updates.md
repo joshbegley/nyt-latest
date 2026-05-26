@@ -1,3 +1,7 @@
+**As Delegations Gather in Qatar For Talks, U.S. Strikes Iran’s Gulf Coast**\
+`Iranian officials went to Doha on Monday for the negotiations, hours before the U.S. military announced the strikes it said were intended to protect troops. Israel’s leader said his country plans to intensify attacks against Hezbollah, Iran’s ally, in Lebanon.`\
+https://www.nytimes.com/live/2026/05/25/world/iran-war-trump
+
 **Iceland, Rattled by Trump’s Greenland Threats, Weighs Joining the E.U.**\
 `Iceland has stood apart from the rest of Europe. But President Trump’s threats to Greenland have provoked a reconsideration.`\
 https://www.nytimes.com/2026/05/26/world/europe/iceland-eu-membership-trump.html
