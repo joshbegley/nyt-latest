@@ -1,3 +1,7 @@
+**Texas U.S. Senate Republican Runoff Live Election Results 2026: Cornyn vs. Paxton**\
+`Get live results and maps from the 2026 Texas primary runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-senate-runoff.html
+
 **Trump Administration Sues U.C.L.A. Again Over Antisemitism**\
 `The lawsuit is the second the government has filed this year against the school that has focused on pro-Palestinian protests in 2024.`\
 https://www.nytimes.com/2026/05/26/us/trump-lawsuit-ucla-antisemitism.html

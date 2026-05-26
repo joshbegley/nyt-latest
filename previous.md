@@ -126,7 +126,7 @@ https://www.nytimes.com/2026/05/26/world/middleeast/us-iran-strikes.html
 `He was a creator and producer of “Real People,” a hit NBC series about eccentrics and unusual lifestyles, which spawned imitators like “That’s Incredible!”`\
 https://www.nytimes.com/2026/05/26/arts/television/john-barbour-dead.html
 
-**Texas U.S. Senate Runoff Live Election Results 2026: Cornyn vs. Paxton**\
+**Texas U.S. Senate Republican Runoff Live Election Results 2026: Cornyn vs. Paxton**\
 `Get live results and maps from the 2026 Texas primary runoff election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-senate-runoff.html
 
