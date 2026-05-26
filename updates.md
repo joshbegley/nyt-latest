@@ -1,3 +1,7 @@
+**Restaurant Review: Komal in Los Angeles**\
+`At Komal, a molino and restaurant inside Mercado La Paloma, the chef Fátima Júarez dials in the rich beauty of Mexican antojitos.`\
+https://www.nytimes.com/2026/05/26/dining/restaurant-review-komal-los-angeles.html
+
 **Conservationists Install Artificial Reefs Where Corals Once Stood**\
 `Miles of coral reef around Pom Pom Island in Malaysia have been ruined by climate change and blast fishing. A conservation group hopes to restore the area by installing concrete structures that mimic natural reefs.`\
 https://www.nytimes.com/video/world/asia/100000010925558/coral-reefs-conservation-artificial.html
