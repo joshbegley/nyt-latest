@@ -1,3 +1,15 @@
+**Trump May Appear at N.B.A. Finals in New York**\
+`President Trump is said to be considering the appearance after his hometown team, the Knicks, clinched a championship spot.`\
+https://www.nytimes.com/2026/05/26/us/politics/trump-nba-finals.html
+
+**Robert F. Kennedy Jr. Keeps Picking Up Snakes. Is He Doing It Right?**\
+`The health secretary wrangled two nonvenomous snakes while visiting Florida in a video that drew widespread attention.`\
+https://www.nytimes.com/2026/05/26/us/rfk-jr-snakes-video-safety.html
+
+**When to Expect Results in the Texas Primary Runoff**\
+`Unofficial results will start coming in after polls close at 7 p.m. local time. They will be posted on the state’s voter portal.`\
+https://www.nytimes.com/2026/05/26/us/politics/when-to-expect-results-in-the-texas-primary-runoff.html
+
 **Trump Administration Wants Employees to Sign NDAs**\
 `Lawyers representing federal workers said the move is intended to chill speech and could be challenged on First Amendment grounds.`\
 https://www.nytimes.com/2026/05/26/us/politics/trump-administration-nondisclosure-agreements.html
@@ -19,7 +31,7 @@ https://www.nytimes.com/2026/05/26/theater/broadway-chess-closing-lea-michele.ht
 https://www.nytimes.com/2026/05/26/us/politics/runoff-polls-texas-paxton-cornyn.html
 
 **Judge Lifts West Point’s Restrictions on Civilian Professors’ Speech**\
-`A federal judge also said that the government had offered no real justification for limiting the ability of a professor who sued to express opinions in the classroom at the U.S. Military Academy.`\
+`A federal judge also said that the government had offered no real justification for limiting the ability of a professor who sued to express opinions in a Military Academy classroom.`\
 https://www.nytimes.com/2026/05/26/nyregion/west-point-trump-free-speech.html
 
 **How Cannes Is Grappling With Changes**\
@@ -170,19 +182,7 @@ https://www.nytimes.com/2026/05/26/us/south-carolina-redistricting-map.html
 `A deal to end the current blockade is merely an enticement for the next blockade and the one after that.`\
 https://www.nytimes.com/2026/05/26/opinion/iran-deal-truce-trump.html
 
-**Knicks Fans Celebrate the Team’s First NBA Finals Appearance Since 1999**\
-`After a 27-year drought, the New York Knicks are headed to the N.B.A. finals. Fans flooded the streets of the city in celebration.`\
-https://www.nytimes.com/2026/05/26/nyregion/knicks-eastern-conference-nyc.html
-
-**5 Great Songs I Encountered This Week**\
-`Hear Mick Taylor’s swan song, Grace Ives’s exuberant crushing and a foundational hip-hop sample.`\
-https://www.nytimes.com/2026/05/26/arts/music/amplifier-newsletter-rolling-stones-grace-ives.html
-
-**Islandia considera unirse a la Unión Europea**\
-`El país nórdico se ha mantenido al margen del resto de Europa. Pero las amenazas del presidente Trump a Groenlandia han provocado una reconsideración.`\
-https://www.nytimes.com/es/2026/05/26/espanol/mundo/islandia-union-europea.html
-
-**Texas Elections Live Updates: Republicans Vote in Senate Race Pitting Incumbency Against Trump Endorsement**\
-`Ken Paxton, the Texas attorney general, was endorsed by President Trump in his campaign against John Cornyn, a four-term Republican senator. The winner will face the Democratic nominee, James Talarico, in a race with nationwide implications.`\
+**Texas Election Live Updates: Polls Begin Closing Soon as Republicans Vote in Key Senate Runoff**\
+`Ken Paxton, the Texas attorney general, was endorsed by President Trump over against John Cornyn, a four-term Republican senator. The winner will face the Democratic nominee, James Talarico, in a race with national implications.`\
 https://www.nytimes.com/live/2026/05/26/us/texas-primary-runoff-elections
 

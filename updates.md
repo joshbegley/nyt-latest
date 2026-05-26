@@ -1,3 +1,23 @@
+**Trump May Appear at N.B.A. Finals in New York**\
+`President Trump is said to be considering the appearance after his hometown team, the Knicks, clinched a championship spot.`\
+https://www.nytimes.com/2026/05/26/us/politics/trump-nba-finals.html
+
+**Robert F. Kennedy Jr. Keeps Picking Up Snakes. Is He Doing It Right?**\
+`The health secretary wrangled two nonvenomous snakes while visiting Florida in a video that drew widespread attention.`\
+https://www.nytimes.com/2026/05/26/us/rfk-jr-snakes-video-safety.html
+
+**When to Expect Results in the Texas Primary Runoff**\
+`Unofficial results will start coming in after polls close at 7 p.m. local time. They will be posted on the state’s voter portal.`\
+https://www.nytimes.com/2026/05/26/us/politics/when-to-expect-results-in-the-texas-primary-runoff.html
+
+**Judge Lifts West Point’s Restrictions on Civilian Professors’ Speech**\
+`A federal judge also said that the government had offered no real justification for limiting the ability of a professor who sued to express opinions in a Military Academy classroom.`\
+https://www.nytimes.com/2026/05/26/nyregion/west-point-trump-free-speech.html
+
+**Texas Election Live Updates: Polls Begin Closing Soon as Republicans Vote in Key Senate Runoff**\
+`Ken Paxton, the Texas attorney general, was endorsed by President Trump over against John Cornyn, a four-term Republican senator. The winner will face the Democratic nominee, James Talarico, in a race with national implications.`\
+https://www.nytimes.com/live/2026/05/26/us/texas-primary-runoff-elections
+
 **Trump Administration Wants Employees to Sign NDAs**\
 `Lawyers representing federal workers said the move is intended to chill speech and could be challenged on First Amendment grounds.`\
 https://www.nytimes.com/2026/05/26/us/politics/trump-administration-nondisclosure-agreements.html

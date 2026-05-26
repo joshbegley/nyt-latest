@@ -1,3 +1,7 @@
+**Donald E. Newhouse, Low-Profile Heir to a Media Empire, Dies at 96**\
+`He ran the newspaper division of Advance Publications, while his older brother, Si, ran the Condé Nast magazine operation.`\
+https://www.nytimes.com/2026/05/26/business/media/donald-e-newhouse-dead.html
+
 **Trump May Appear at N.B.A. Finals in New York**\
 `President Trump is said to be considering the appearance after his hometown team, the Knicks, clinched a championship spot.`\
 https://www.nytimes.com/2026/05/26/us/politics/trump-nba-finals.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/05/26/us/chemical-explosion-nippon-longview-washing
 **South Carolina Redistricting: Senate Passes on New Map, Defying Trump**\
 `With early voting already underway, it became clear there was no longer enough support to use new lines before the November midterm elections.`\
 https://www.nytimes.com/2026/05/26/us/south-carolina-redistricting-map.html
-
-**Deal or No Deal With Iran**\
-`A deal to end the current blockade is merely an enticement for the next blockade and the one after that.`\
-https://www.nytimes.com/2026/05/26/opinion/iran-deal-truce-trump.html
 
 **Texas Election Live Updates: Polls Begin Closing Soon as Republicans Vote in Key Senate Runoff**\
 `Ken Paxton, the Texas attorney general, was endorsed by President Trump over against John Cornyn, a four-term Republican senator. The winner will face the Democratic nominee, James Talarico, in a race with national implications.`\
