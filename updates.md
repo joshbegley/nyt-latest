@@ -1,3 +1,15 @@
+**The 10 Best Men’s Swim Trunks for Summer**\
+`Whether you’re paddling or lounging, these are the bathing suits you’ll need this summer.`\
+https://www.nytimes.com/2026/05/26/t-magazine/mens-swim-trunks.html
+
+**Trump Administration to Send Americans Exposed to Ebola to Kenya**\
+`In past outbreaks, Americans exposed to the virus were sent home to be treated in state-of-the-art facilities. The Trump administration has already flown some U.S. citizens to Europe for treatment.`\
+https://www.nytimes.com/2026/05/26/us/politics/trump-ebola-kenya.html
+
+**The Factors Shaping the 2026 Midterm Elections**\
+`President Trump has sought revenge in G.O.P. primaries. Democrats have turned out to vote in large numbers. Republicans have gained a redistricting advantage.`\
+https://www.nytimes.com/2026/05/26/us/politics/midterm-primaries-primer.html
+
 **NASA’s Moon Base Plan Adds Two Rovers for Its Astronauts**\
 `The contracts, announced on Tuesday, are part of the space agency’s efforts to establish a moon base.`\
 https://www.nytimes.com/2026/05/26/science/space/nasa-rovers-moon-base-contracts.html
