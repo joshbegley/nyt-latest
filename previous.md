@@ -2,8 +2,8 @@
 `El hantavirus y el ébola nos recuerdan que los brotes son inevitables, y que el mundo debe trabajar en conjunto para contenerlos y prevenir la próxima pandemia.`\
 https://www.nytimes.com/es/2026/05/26/espanol/mundo/preparados-pandemia-hantavirus-ebola.html
 
-**Minibus Transporting Schoolchildren Is Hit by Train in Belgium**\
-`A Belgian official reacted with dismay after the vehicle carrying children, reportedly to a special needs school, was hit by a train.`\
+**Train Hits School Minibus in Belgium, Leaving at Least 4 Dead**\
+`A Belgian government minister said two young teenagers and two adults were killed in the crash on Tuesday, in a small town outside Brussels.`\
 https://www.nytimes.com/2026/05/26/world/europe/belgium-minibus-train-collision-children.html
 
 **White House Shakes Up Green Card Policy, and the Pope Takes On A.I.**\
