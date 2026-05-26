@@ -1,3 +1,7 @@
+**Your Questions, Answered**\
+`We respond to reader queries about weapons sales, the national debt and more.`\
+https://www.nytimes.com/2026/05/26/briefing/your-questions-answered.html
+
 **Train Hits School Minibus in Belgium, Leaving at Least 4 Dead**\
 `A Belgian government minister said two young teenagers and two adults were killed in the crash on Tuesday, in a small town outside Brussels.`\
 https://www.nytimes.com/2026/05/26/world/europe/belgium-minibus-train-collision-children.html

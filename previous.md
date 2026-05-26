@@ -1,3 +1,7 @@
+**Your Questions, Answered**\
+`We respond to reader queries about weapons sales, the national debt and more.`\
+https://www.nytimes.com/2026/05/26/briefing/your-questions-answered.html
+
 **¿Estamos preparados para otra pandemia?**\
 `El hantavirus y el ébola nos recuerdan que los brotes son inevitables, y que el mundo debe trabajar en conjunto para contenerlos y prevenir la próxima pandemia.`\
 https://www.nytimes.com/es/2026/05/26/espanol/mundo/preparados-pandemia-hantavirus-ebola.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/26/arts/matthew-perry-personal-assistant-ketamin
 **Iran War Live Updates: Tensions Rise as Iran Threatens to Retaliate Against U.S. Strikes**\
 `The threat came hours after American military forces renewed attacks in southern Iran, even as fragile diplomacy efforts to end the war continued.`\
 https://www.nytimes.com/live/2026/05/26/world/iran-war-trump-deal
-
-**Las películas de este verano cambian la relación con sus juguetes promocionales**\
-`‘The Mandalorian and Grogu’, ‘Amos del universo’ y ‘Toy Story 5’ pertenecen a franquicias que están cambiando la conexión con sus productos relacionados.`\
-https://www.nytimes.com/es/2026/05/26/espanol/cultura/juguetes-peliculas.html
 
