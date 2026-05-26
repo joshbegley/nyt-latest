@@ -1,9 +1,29 @@
+**White House Shakes Up Green Card Policy, and the Pope Takes On A.I.**\
+`Plus, will anyone want an electric Ferrari?`\
+https://www.nytimes.com/2026/05/26/podcasts/the-headlines/white-house-green-card-pope-ai.html
+
+**A Flood of New, Deadlier Drugs**\
+`“The Daily” speaks with Azam Ahmed, a New York Times international investigative correspondent, about his latest piece on the synthetic drug crisis.`\
+https://www.nytimes.com/2026/05/26/podcasts/the-daily/deadly-synthetic-drugs.html
+
+**NYT Connections Answers for May 26, 2025**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, May 27, 2026.`\
+https://www.nytimes.com/2026/05/26/crosswords/connections-companion-1081.html
+
+**NYT Strands Hints for May 27, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, May 27, 2026.`\
+https://www.nytimes.com/2026/05/26/crosswords/strands-sidekick-815.html
+
+**Today’s Wordle Hints for May 27, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, May 27, 2026.`\
+https://www.nytimes.com/2026/05/26/crosswords/wordle-review-1803.html
+
 **Rescuers in Laos Scramble to Reach 7 People Trapped in Flooded Cave**\
 `The group, which was searching for gold, has been trapped for almost a week. Divers who were involved in the 2018 rescue of a Thai youth soccer team have joined the operation.`\
 https://www.nytimes.com/2026/05/26/world/asia/laos-cave-rescue.html
 
 **‘Celebrity Jeopardy!’ Film Study (Championship Edition)**\
-`ESPN football analyst Mina Kimes explains how she dominated the tournament.`\
+`ESPN football analyst Mina Kimes explains how she dominated the game show.`\
 https://www.nytimes.com/2026/05/26/podcasts/celebrity-jeopardy-film-study-championship-edition.html
 
 **Las deportaciones desde hospitales obligan a mujeres a tener partos riesgosos en casa**\
@@ -162,8 +182,8 @@ https://www.nytimes.com/2026/05/26/world/asia/russians-phuket-thailand.html
 `Matthew Perry’s assistant injected the ketamine that killed his employer. His sentencing has some in the demanding profession considering the power dynamics involved.`\
 https://www.nytimes.com/2026/05/26/arts/matthew-perry-personal-assistant-ketamine.html
 
-**Iran War Live Updates: Khamenei Says U.S. Military Bases in Middle East No Longer Safe**\
-`Mojtaba Khamenei, Iran’s supreme leader, said that after the war Gulf nations would no longer be “shields” for U.S. bases.`\
+**Iran War Live Updates: Tensions Rise as Iran Threatens to Retaliate Against U.S. Strikes**\
+`The threat came hours after American military forces renewed attacks in southern Iran, even as fragile diplomacy efforts to end the war continued.`\
 https://www.nytimes.com/live/2026/05/26/world/iran-war-trump-deal
 
 **Las películas de este verano cambian la relación con sus juguetes promocionales**\
@@ -177,24 +197,4 @@ https://www.nytimes.com/video/us/100000010925127/texas-election-senate-republica
 **Evolving Warfare Connects the Conflicts in Ukraine and Iran**\
 `Aspects such as drone technology and diplomacy show how the wars intersect on the battlefield and in global alignments, providing a model for future conflicts.`\
 https://www.nytimes.com/2026/05/26/world/middleeast/iran-ukraine-wars-similarities.html
-
-**Global Oil Price Rises After U.S. Strikes in Iran Cloud Peace Deal**\
-`Optimism for a resolution to the conflict and the reopening of the Strait of Hormuz was checked after the United States said it had carried out strikes on missile launch sites in Iran.`\
-https://www.nytimes.com/2026/05/26/business/oil-gas-price-iran.html
-
-**Vehículos eléctricos de 140.000 dólares y oro: el auge del mercado de lujo nacional chino**\
-`A medida que la economía china se ralentiza, los consumidores se decantan cada vez más por los productos de lujo nacionales, desafiando el dominio de las marcas europeas establecidas desde hace tiempo.`\
-https://www.nytimes.com/es/2026/05/26/espanol/negocios/china-lujo-millonarios.html
-
-**New York Leads in Controlling Heat-Trapping Methane. That Could Change.**\
-`An overhaul of the state’s 2019 climate law proposed by Gov. Kathy Hochul would alter how the potent greenhouse gas is measured.`\
-https://www.nytimes.com/2026/05/26/nyregion/new-york-hochul-methane-climate-law.html
-
-**NYT Spelling Bee Answers for May 26, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/05/26/crosswords/spelling-bee-forum.html
-
-**Palabra del día en inglés: ‘inchoate’**\
-`Esta palabra ha aparecido en 31 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
-https://www.nytimes.com/es/2026/05/26/espanol/que-significa-inchoate.html
 

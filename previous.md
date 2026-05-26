@@ -90,7 +90,7 @@ https://www.nytimes.com/2026/05/26/us/politics/georgia-governor-race-burt-jones-
 `An obsession with the most doomer prospects of A.I. is blinding progressives from thinking about serious, realistic policies.`\
 https://www.nytimes.com/2026/05/26/opinion/progressives-left-ai.html
 
-**We Democrats Need to Change Course on Israel**\
+**The Hard Truth My Party Needs to Face**\
 `We must use our leverage to end Israel’s occupation and establish two states with full political and legal rights for all.`\
 https://www.nytimes.com/2026/05/26/opinion/democrats-israel.html
 

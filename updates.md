@@ -1,3 +1,7 @@
+**The Hard Truth My Party Needs to Face**\
+`We must use our leverage to end Israel’s occupation and establish two states with full political and legal rights for all.`\
+https://www.nytimes.com/2026/05/26/opinion/democrats-israel.html
+
 **Rescuers in Laos Scramble to Reach 7 People Trapped in Flooded Cave**\
 `The group, which was searching for gold, has been trapped for almost a week. Divers who were involved in the 2018 rescue of a Thai youth soccer team have joined the operation.`\
 https://www.nytimes.com/2026/05/26/world/asia/laos-cave-rescue.html
