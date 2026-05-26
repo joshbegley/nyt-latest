@@ -1,3 +1,7 @@
+**Islandia considera unirse a la Unión Europea**\
+`El país nórdico se ha mantenido al margen del resto de Europa. Pero las amenazas del presidente Trump a Groenlandia han provocado una reconsideración.`\
+https://www.nytimes.com/es/2026/05/26/espanol/mundo/islandia-union-europea.html
+
 **U.S. Aims to Give Cold War Plutonium to Start-Ups for Nuclear Fuel**\
 `Companies say it’s a better way to dispose of the Cold War-era material — and fix a shortage of nuclear fuel. But the plan has also faced criticism.`\
 https://www.nytimes.com/2026/05/26/climate/plutonium-nuclear-weapons-fuel.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/05/26/us/politics/alabama-congress-map-redistrictin
 **Judge to Decide How Long Torture’s Taint Infected the Sept. 11 Case**\
 `Eight days of legal arguments at Guantánamo have brought the long-running terrorism case to a moment of truth in the long wait for justice.`\
 https://www.nytimes.com/2026/05/26/us/politics/september-11-case-torture.html
-
-**Julia Louis-Dreyfus to Star in ‘Other Desert Cities’ on Broadway**\
-`The revival, also featuring Ed Harris, Allison Janney, Lily Rabe and Joe Keery, will begin performances in September at the Hudson Theater.`\
-https://www.nytimes.com/2026/05/26/theater/dreyfus-harris-janney-keery-other-desert-cities-broadway.html
 
 **Texas Elections Live Updates: Republican Voters Choosing Nominee for Key Senate Battle**\
 `Ken Paxton, the Texas attorney general, was endorsed by President Trump in his campaign against John Cornyn, a four-term Republican senator. The winner will face the Democratic nominee, James Talarico, in a race with major nationwide implications.`\
