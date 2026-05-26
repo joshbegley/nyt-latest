@@ -1,3 +1,11 @@
+**BP Ousts Chairman, Citing ‘Serious Concerns’ Over Conduct**\
+`The British oil group said that Albert Manifold had been removed, after concerns were raised “related to important governance standards, oversight and conduct.”`\
+https://www.nytimes.com/2026/05/26/business/bp-chairman-manifold.html
+
+**Can You Match the Places These Authors Lived With Settings in Their Books?**\
+`Home is where the heart is — and sometimes where authors set their books. Try this quiz to see how many locations you recognize.`\
+https://www.nytimes.com/interactive/2026/05/26/books/review/author-towns-quiz.html
+
 **Election Live Updates: Texas Republicans Battle for Senate Nomination in Runoff**\
 `Ken Paxton was endorsed by President Trump in his campaign against  John Cornyn, a four-term Republican senator. The winner will face James Talarico, a Democrat, in November.`\
 https://www.nytimes.com/live/2026/05/26/us/texas-primary-runoff-elections
