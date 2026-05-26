@@ -1,3 +1,7 @@
+**Global Oil Price Rises After U.S. Strikes in Iran Cloud Peace Deal**\
+`Optimism for a resolution to the conflict and the reopening of the Strait of Hormuz was checked after the United States said it had carried out strikes on missile launch sites in Iran.`\
+https://www.nytimes.com/2026/05/26/business/oil-gas-price-iran.html
+
 **Vehículos eléctricos de 140.000 dólares y oro: el auge del mercado de lujo nacional chino**\
 `A medida que la economía china se ralentiza, los consumidores se decantan cada vez más por los productos de lujo nacionales, desafiando el dominio de las marcas europeas establecidas desde hace tiempo.`\
 https://www.nytimes.com/es/2026/05/26/espanol/negocios/china-lujo-millonarios.html

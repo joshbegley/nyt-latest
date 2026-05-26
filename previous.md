@@ -1,3 +1,7 @@
+**Global Oil Price Rises After U.S. Strikes in Iran Cloud Peace Deal**\
+`Optimism for a resolution to the conflict and the reopening of the Strait of Hormuz was checked after the United States said it had carried out strikes on missile launch sites in Iran.`\
+https://www.nytimes.com/2026/05/26/business/oil-gas-price-iran.html
+
 **Vehículos eléctricos de 140.000 dólares y oro: el auge del mercado de lujo nacional chino**\
 `A medida que la economía china se ralentiza, los consumidores se decantan cada vez más por los productos de lujo nacionales, desafiando el dominio de las marcas europeas establecidas desde hace tiempo.`\
 https://www.nytimes.com/es/2026/05/26/espanol/negocios/china-lujo-millonarios.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/25/business/toshifumi-suzuki-dead.html
 **Falling Test Scores: Reasons and Fixes**\
 `Readers discuss data showing lower reading and math scores. Also: The yuppie factor.`\
 https://www.nytimes.com/2026/05/25/opinion/test-scores.html
-
-**One-and-Done Heart Disease Prevention? Scientists Show It May Be Possible.**\
-`A single infusion of an experimental gene-editing drug seemed to reduce LDL long-term in a small trial. The results may point to something “curative,” one expert said.`\
-https://www.nytimes.com/2026/05/25/health/cholesterol-ldl-gene-therapy.html
 
