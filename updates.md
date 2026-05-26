@@ -1,3 +1,7 @@
+**Israel Steps Up Strikes in Lebanon as U.S. Pushes for Iran Peace Deal**\
+`Hezbollah, the Iran-backed militant group, has also kept up rocket and drone attacks on Israeli troops, as the escalations threaten to complicate diplomatic efforts.`\
+https://www.nytimes.com/2026/05/26/world/middleeast/israel-strikes-escalation-lebanon.html
+
 **To Understand Pope Leo’s Efforts on A.I., Look at the Man Shaking His Hand**\
 `The co-founder of a prominent A.I. company was nearby as the pope implored A.I. leaders to slow down and consider the technology’s possible perils.`\
 https://www.nytimes.com/2026/05/26/us/pope-leo-ai-anthropic.html

@@ -1,3 +1,7 @@
+**Israel Steps Up Strikes in Lebanon as U.S. Pushes for Iran Peace Deal**\
+`Hezbollah, the Iran-backed militant group, has also kept up rocket and drone attacks on Israeli troops, as the escalations threaten to complicate diplomatic efforts.`\
+https://www.nytimes.com/2026/05/26/world/middleeast/israel-strikes-escalation-lebanon.html
+
 **L.A. Philharmonic Names Daniel Harding as Music Director**\
 `The Philharmonic, taking a more traditional route than in the past, has named the British-born conductor Daniel Harding as its next music director.`\
 https://www.nytimes.com/2026/05/26/arts/music/daniel-harding-la-philharmonic.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000010865703/a-deadly-drug-cocktail-ma
 **Inside the Evolution of Synthetic Drugs**\
 `Natalie Kitroeff from “The Daily” speaks with Azam Ahmed, a New York Times international investigative correspondent, about his latest piece on the synthetic drug crisis.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000010852322/inside-the-evolution-of-synthetic-drugs.html
-
-**Should You Take Nutrition Advice From a Chatbot?**\
-`Many people are turning to artificial intelligence for help with their diet. Experts weigh the potential pros and cons.`\
-https://www.nytimes.com/2026/05/26/well/eat/ai-chatbots-nutrition-advice.html
 
