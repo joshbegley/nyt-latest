@@ -1,3 +1,15 @@
+**NASA’s Moon Base Plan Adds Two Rovers for Its Astronauts**\
+`The contracts, announced on Tuesday, are part of the space agency’s efforts to establish a moon base.`\
+https://www.nytimes.com/2026/05/26/science/space/nasa-rovers-moon-base-contracts.html
+
+**¿Qué busca el papa León con sus esfuerzos en materia de IA? Mira a quién le da la mano**\
+`Christopher Olah, pionero de la inteligencia artificial y cofundador de la empresa Anthropic, asistió a la presentación. Su invitación simbolizó un intento de ampliar la influencia de León.`\
+https://www.nytimes.com/es/2026/05/26/espanol/estados-unidos/papa-enciclica-inteligencia-artificial.html
+
+****\
+`The moment when the AfarTV YouTube livestream captured the fireball as the Mayon volcano erupted on May 25.`\
+https://www.nytimes.com/video/embedded/science/space/100000010927341/26vid-topart-volcano.html
+
 **Just Tuning In? Here’s What to Know About the Midterms.**\
 `President Trump has sought revenge in G.O.P. primaries. Democrats have turned out to vote in large numbers. Republicans have gained a redistricting advantage.`\
 https://www.nytimes.com/2026/05/26/us/politics/midterm-primaries-primer.html
