@@ -1,3 +1,23 @@
+**Eli Lilly to Buy 3 Vaccine Developers**\
+`The drugmaker said it would spend up to $4 billion to acquire small companies exploring vaccines for shingles, Epstein-Barr virus and other pathogens.`\
+https://www.nytimes.com/2026/05/26/business/eli-lilly-vaccines-shingles-epstein-barr.html
+
+**Court Rejects Alabama House Map, Calling It Unfair to Black Voters**\
+`Alabama is likely to appeal the ruling, which stops an effort to use a new congressional map that would redraw one majority-Black district.`\
+https://www.nytimes.com/2026/05/26/us/politics/alabama-congress-map-redistricting.html
+
+**Judge to Decide How Long Torture’s Taint Infected the Sept. 11 Case**\
+`Eight days of legal arguments at Guantánamo have brought the long-running terrorism case to a moment of truth in the long wait for justice.`\
+https://www.nytimes.com/2026/05/26/us/politics/september-11-case-torture.html
+
+**Julia Louis-Dreyfus to Star in ‘Other Desert Cities’ on Broadway**\
+`The revival, also featuring Ed Harris, Allison Janney, Lily Rabe and Joe Keery, will begin performances in September at the Hudson Theater.`\
+https://www.nytimes.com/2026/05/26/theater/dreyfus-harris-janney-keery-other-desert-cities-broadway.html
+
+**Trump’s Iran Proposal Has Echoes of Half-Finished Gaza Deal**\
+`President Trump’s proposal to end the war with Iran would delay tackling the most contentious issues — a tactic that has had mixed results in Gaza.`\
+https://www.nytimes.com/2026/05/26/world/middleeast/trump-middle-east-peace-deals.html
+
 **Rahm Emanuel, a Possible 2028 Contender, Calls for Higher Education Reforms**\
 `Republicans have made gains with voters on education issues. A plan championed by Mr. Emanuel, a Democratic former mayor of Chicago, centers on college affordability.`\
 https://www.nytimes.com/2026/05/26/us/politics/rahm-emanuel-education.html
