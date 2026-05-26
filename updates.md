@@ -1,3 +1,19 @@
+**A Dissident Escapes China by Rubber Boat and Lands in South Korea**\
+`Dong Guangping, 68, fled China at least three other times but was always sent back. His friends hope things might be different this time.`\
+https://www.nytimes.com/2026/05/26/world/asia/china-dissident-dong-guangping-south-korea.html
+
+**The Vatican Takes on Silicon Valley With an A.I. Warning**\
+`Pope Leo XIV’s encyclical on artificial intelligence puts technology giants on notice. But will it slow down the A.I. race?`\
+https://www.nytimes.com/2026/05/26/business/dealbook/vatican-ai-silicon-valley.html
+
+**OpenRouter, an Exchange for A.I. Models, Raises $113 Million**\
+`An investment arm of Alphabet is backing OpenRouter, which helps companies choose among hundreds of models for different software tasks.`\
+https://www.nytimes.com/2026/05/26/business/dealbook/openrouter-ai-models-fundraising.html
+
+**Can You Match the Places These Authors Lived With Settings in Their Books?**\
+`Home is where the heart is — and sometimes where writers set their books. Try this quiz to see how many locations you recognize.`\
+https://www.nytimes.com/interactive/2026/05/26/books/review/author-towns-quiz.html
+
 **BP Ousts Chairman, Citing ‘Serious Concerns’ Over Conduct**\
 `The British oil group said that Albert Manifold had been removed, after concerns were raised “related to important governance standards, oversight and conduct.”`\
 https://www.nytimes.com/2026/05/26/business/bp-chairman-manifold.html
