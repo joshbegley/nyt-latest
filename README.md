@@ -1,3 +1,7 @@
+**It’s Still Spring in Europe, but the Heat is Already Breaking Records**\
+`Authorities in Britain and France warned that “unprecedented” temperatures — at a time when few expected them — could persist. Climate change has made heat waves more frequent and more intense.`\
+https://www.nytimes.com/2026/05/26/world/europe/its-still-spring-in-europe-but-the-heat-is-already-breaking-records.html
+
 **Paris School Worker Tried for Child Abuse in Widespread Assault Inquiry**\
 `The 36-year-old, named in the French news media as David G., is among more than 70 employees at schools in the capital who have been recently suspended or fired over allegations of sexual abuse and other misconduct.`\
 https://www.nytimes.com/2026/05/26/world/europe/child-abuse-trial-school-paris.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/05/26/travel/miami-beach-radisson-hotel-lawsuit.htm
 **As Trump Politicizes Justice Dept., Prosecutors Struggle With Grand Juries**\
 `Judges and grand juries have increasingly lost faith in the Justice Department as the president uses it to reward his friends and go after his opponents.`\
 https://www.nytimes.com/2026/05/26/us/politics/trump-justice-department-grand-juries.html
-
-**‘The Maids,’ With Yerin Ha, Asks: Has Life Become One Big Performance?**\
-`In his rethinking of Jean Genet’s classic work about class and power, Kip Williams ponders “a world that gives you every opportunity not to be yourself.”`\
-https://www.nytimes.com/2026/05/26/theater/the-maids-play-nyc-genet-yerin-ha-kip-williams.html
 
