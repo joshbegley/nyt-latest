@@ -1,3 +1,11 @@
+**Knicks Fans, ‘a Specific Species of Human,’ Erupt Again**\
+`After a 27-year drought, the New York Knicks are headed to the N.B.A. Finals. Fans flooded the streets of the city in celebration.`\
+https://www.nytimes.com/2026/05/26/nyregion/knicks-eastern-conference-nyc.html
+
+**5 Great Songs I Encountered This Week**\
+`Hear Mick Taylor’s swan song, Grace Ives’s exuberant crushing and a foundational hip-hop sample.`\
+https://www.nytimes.com/2026/05/26/arts/music/amplifier-newsletter-rolling-stones-grace-ives.html
+
 **Islandia considera unirse a la Unión Europea**\
 `El país nórdico se ha mantenido al margen del resto de Europa. Pero las amenazas del presidente Trump a Groenlandia han provocado una reconsideración.`\
 https://www.nytimes.com/es/2026/05/26/espanol/mundo/islandia-union-europea.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/05/26/business/economy/gdp-united-nations-prosperit
 **Eli Lilly to Buy 3 Vaccine Developers**\
 `The drugmaker said it would spend up to $4 billion to acquire small companies exploring vaccines for shingles, Epstein-Barr virus and other pathogens.`\
 https://www.nytimes.com/2026/05/26/business/eli-lilly-vaccines-shingles-epstein-barr.html
-
-**Court Rejects Alabama House Map, Calling It Unfair to Black Voters**\
-`Alabama is likely to appeal the ruling, which stops an effort to use a new congressional map that would likely cost Democrats a majority-Black district.`\
-https://www.nytimes.com/2026/05/26/us/politics/alabama-congress-map-redistricting.html
-
-**Judge to Decide How Long Torture’s Taint Infected the Sept. 11 Case**\
-`Eight days of legal arguments at Guantánamo have brought the long-running terrorism case to a moment of truth in the long wait for justice.`\
-https://www.nytimes.com/2026/05/26/us/politics/september-11-case-torture.html
 
 **Texas Elections Live Updates: Republican Voters Choosing Nominee for Key Senate Battle**\
 `Ken Paxton, the Texas attorney general, was endorsed by President Trump in his campaign against John Cornyn, a four-term Republican senator. The winner will face the Democratic nominee, James Talarico, in a race with major nationwide implications.`\

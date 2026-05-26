@@ -1,3 +1,7 @@
+**Islandia considera unirse a la Unión Europea**\
+`El país nórdico se ha mantenido al margen del resto de Europa. Pero las amenazas del presidente Trump a Groenlandia han provocado una reconsideración.`\
+https://www.nytimes.com/es/2026/05/26/espanol/mundo/islandia-union-europea.html
+
 **U.S. Aims to Give Cold War Plutonium to Start-Ups for Nuclear Fuel**\
 `Companies say it’s a better way to dispose of the Cold War-era material — and fix a shortage of nuclear fuel. But the plan has also faced criticism.`\
 https://www.nytimes.com/2026/05/26/climate/plutonium-nuclear-weapons-fuel.html
