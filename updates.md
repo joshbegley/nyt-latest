@@ -1,3 +1,7 @@
+**La autocomplacencia de Trump ahonda los temores su partido en las elecciones intermedias**\
+`“Las estupideces están acabando con nuestras posibilidades”, dijo un senador republicano.`\
+https://www.nytimes.com/es/2026/05/26/espanol/estados-unidos/partido-republicano-elecciones-intermedias.html
+
 **As Delegations Gather in Qatar For Talks, U.S. Strikes Iran’s Gulf Coast**\
 `Iranian officials went to Doha on Monday for the negotiations, hours before the U.S. military announced the strikes it said were intended to protect troops. Israel’s leader said his country plans to intensify attacks against Hezbollah, Iran’s ally, in Lebanon.`\
 https://www.nytimes.com/live/2026/05/25/world/iran-war-trump
