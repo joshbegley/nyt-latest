@@ -186,7 +186,7 @@ https://www.nytimes.com/2026/05/26/world/europe/europe-heatwave-uk-spain-france.
 `The 36-year-old, named in the French news media as David G., is among more than 70 employees at schools in the capital who have been recently suspended or fired over allegations of sexual abuse and other misconduct.`\
 https://www.nytimes.com/2026/05/26/world/europe/child-abuse-trial-school-paris.html
 
-**Texas Elections Live Updates: Republican Voters Choosing Nominee for Key Senate Battle**\
+**Texas Elections Live Updates: Republicans Vote in Senate Race Pitting Incumbency Against Trump Endorsement**\
 `Ken Paxton, the Texas attorney general, was endorsed by President Trump in his campaign against John Cornyn, a four-term Republican senator. The winner will face the Democratic nominee, James Talarico, in a race with major nationwide implications.`\
 https://www.nytimes.com/live/2026/05/26/us/texas-primary-runoff-elections
 
