@@ -1,3 +1,7 @@
+**Rahm Emanuel, a Possible 2028 Contender, Calls for Higher Education Reforms**\
+`Republicans have made gains with voters on education issues. A plan championed by Mr. Emanuel, a Democratic former mayor of Chicago, centers on college affordability.`\
+https://www.nytimes.com/2026/05/26/us/politics/rahm-emanuel-education.html
+
 **Israel Steps Up Strikes in Lebanon as U.S. Pushes for Iran Peace Deal**\
 `Hezbollah, the Iran-backed militant group, has also kept up rocket and drone attacks on Israeli troops, as the escalations threaten to complicate diplomatic efforts.`\
 https://www.nytimes.com/2026/05/26/world/middleeast/israel-strikes-escalation-lebanon.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000010865724/the-new-drug-crisis-no-on
 **A Deadly Drug Cocktail Made of Paper Is Killing Inmates**\
 `The Daily host Natalie Kitroeff speaks with New York Times investigative reporter Azam Ahmed about his reporting about a deadly paper-based drug making its way through Cook County Jail.`\
 https://www.nytimes.com/video/podcasts/100000010865703/a-deadly-drug-cocktail-made-of-paper-is-killing-inmates.html
-
-**Inside the Evolution of Synthetic Drugs**\
-`Natalie Kitroeff from “The Daily” speaks with Azam Ahmed, a New York Times international investigative correspondent, about his latest piece on the synthetic drug crisis.`\
-https://www.nytimes.com/video/podcasts/the-daily/100000010852322/inside-the-evolution-of-synthetic-drugs.html
 
