@@ -1,3 +1,19 @@
+**Iceland, Rattled by Trump’s Greenland Threats, Weighs Joining the E.U.**\
+`Iceland has stood apart from the rest of Europe. But President Trump’s threats to Greenland have provoked a reconsideration.`\
+https://www.nytimes.com/2026/05/26/world/europe/iceland-eu-membership-trump.html
+
+**Inside India’s Manipur State, Where Violence and Division Are Routine**\
+`Three years after riots tore apart Manipur, the state remains in disarray. Barbed wire and armed checkpoints made it difficult for Times reporters to cross, even before the recent clashes.`\
+https://www.nytimes.com/2026/05/26/world/asia/india-manipur-violence-ethnic-conflict.html
+
+**Corrections: May 26, 2026**\
+`Corrections that appeared in print on Tuesday, May 26, 2026.`\
+https://www.nytimes.com/2026/05/26/pageoneplus/corrections-may-26-2026.html
+
+**Quote of the Day: In New World, Gore Rethinks How to Save It**\
+`Quotation of the Day for Tuesday, May 26, 2026.`\
+https://www.nytimes.com/2026/05/25/pageoneplus/quote-of-the-day-in-new-world-gore-rethinks-how-to-save-it.html
+
 **Threat of Explosion From Toxic Chemical Tank Lessened, Officials Say**\
 `The risk of a large explosion has been averted, officials say. But a smaller blast remains possible, and 16,000 people remain displaced.`\
 https://www.nytimes.com/2026/05/25/us/chemical-tank-garden-grove.html
