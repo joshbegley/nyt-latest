@@ -1,3 +1,7 @@
+**Belgium Crash Kills 4 as Train Hits School Van**\
+`Two children, 12 and 15, were among those killed in the crash near Brussels, officials said. The students on the van attended a special education school.`\
+https://www.nytimes.com/2026/05/26/world/europe/belgium-minibus-train-collision-children.html
+
 **Your Questions, Answered**\
 `We respond to reader queries about weapons sales, the national debt and more.`\
 https://www.nytimes.com/2026/05/26/briefing/your-questions-answered.html
