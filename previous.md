@@ -114,7 +114,7 @@ https://www.nytimes.com/2026/05/26/business/delta-airlines-ed-bastian.html
 `Anthony Roth Costanzo took over Opera Philadelphia when it was “three weeks away from stopping payroll.” Now, it is rebounding with a surplus.`\
 https://www.nytimes.com/2026/05/26/arts/music/anthony-roth-costanzo-opera-philadelphia.html
 
-**To Understand Pope Leo’s Efforts on A.I., Look at the Man 3 Seats Away**\
+**To Understand Pope Leo’s Efforts on A.I., Look at the Man Shaking His Hand**\
 `The co-founder of a prominent A.I. company was nearby as the pope implored A.I. leaders to slow down and consider the technology’s possible perils.`\
 https://www.nytimes.com/2026/05/26/us/pope-leo-ai-anthropic.html
 

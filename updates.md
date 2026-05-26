@@ -1,3 +1,7 @@
+**To Understand Pope Leo’s Efforts on A.I., Look at the Man Shaking His Hand**\
+`The co-founder of a prominent A.I. company was nearby as the pope implored A.I. leaders to slow down and consider the technology’s possible perils.`\
+https://www.nytimes.com/2026/05/26/us/pope-leo-ai-anthropic.html
+
 **L.A. Philharmonic Names Daniel Harding as Music Director**\
 `The Philharmonic, taking a more traditional route than in the past, has named the British-born conductor Daniel Harding as its next music director.`\
 https://www.nytimes.com/2026/05/26/arts/music/daniel-harding-la-philharmonic.html
