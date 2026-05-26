@@ -1,3 +1,7 @@
+**NYT Crossword Answers for May 26, 2026**\
+`Brad Lively shows us the anatomy of a good crossword puzzle.`\
+https://www.nytimes.com/2026/05/25/crosswords/daily-puzzle-2026-05-26.html
+
 **Sonny Rollins, Giant of the Jazz Saxophone, Is Dead at 95**\
 `Even by the standards of a music that prizes individuality, he stood out, as both a musician and a personality.`\
 https://www.nytimes.com/2026/05/25/arts/music/sonny-rollins-dead.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/05/25/world/africa/baobab-tree-dying-madagascar-afr
 **‘Una auténtica pesadilla’: voces de un Moscú golpeado por los drones ucranianos**\
 `Los residentes que sufrieron ataques en los últimos días se sintieron profundamente sacudidos por el conflicto que llegó a la región de la capital, sede del poder del Kremlin.`\
 https://www.nytimes.com/es/2026/05/25/espanol/mundo/moscu-ataque-drones-ucrania.html
-
-**Cubans Cook With Charcoal and Wood Fires to Survive During Energy Crisis**\
-`The U.S. oil blockade has left millions without cooking gas. In Santiago de Cuba, the cradle of the Cuban revolution, apartment tower residents resort to charcoal and firewood.`\
-https://www.nytimes.com/2026/05/25/world/americas/cuba-blackouts-fire-energy-oil.html
 
