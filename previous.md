@@ -1,3 +1,7 @@
+**Vehículos eléctricos de 140.000 dólares y oro: el auge del mercado de lujo nacional chino**\
+`A medida que la economía china se ralentiza, los consumidores se decantan cada vez más por los productos de lujo nacionales, desafiando el dominio de las marcas europeas establecidas desde hace tiempo.`\
+https://www.nytimes.com/es/2026/05/26/espanol/negocios/china-lujo-millonarios.html
+
 **New York Leads in Controlling Heat-Trapping Methane. That Could Change.**\
 `An overhaul of the state’s 2019 climate law proposed by Gov. Kathy Hochul would alter how the potent greenhouse gas is measured.`\
 https://www.nytimes.com/2026/05/26/nyregion/new-york-hochul-methane-climate-law.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/25/opinion/test-scores.html
 **One-and-Done Heart Disease Prevention? Scientists Show It May Be Possible.**\
 `A single infusion of an experimental gene-editing drug seemed to reduce LDL long-term in a small trial. The results may point to something “curative,” one expert said.`\
 https://www.nytimes.com/2026/05/25/health/cholesterol-ldl-gene-therapy.html
-
-**As Delegations Gather in Qatar For Talks, U.S. Strikes Iran’s Gulf Coast**\
-`Iranian officials went to Doha on Monday for the negotiations, hours before the U.S. military announced the strikes it said were intended to protect troops. Israel’s leader said his country plans to intensify attacks against Hezbollah, Iran’s ally, in Lebanon.`\
-https://www.nytimes.com/live/2026/05/25/world/iran-war-trump
 
