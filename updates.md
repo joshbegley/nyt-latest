@@ -1,3 +1,7 @@
+**‘Celebrity Jeopardy!’ Film Study (Championship Edition)**\
+`ESPN football analyst Mina Kimes explains how she dominated the tournament.`\
+https://www.nytimes.com/2026/05/26/podcasts/celebrity-jeopardy-film-study-championship-edition.html
+
 **Las deportaciones desde hospitales obligan a mujeres a tener partos riesgosos en casa**\
 `República Dominicana está enviando agentes migratorios a hospitales para detener migrantes, lo que orilla a las mujeres haitianas a dar a luz en condiciones insalubres y sin supervisión médica.`\
 https://www.nytimes.com/es/2026/05/26/espanol/america-latina/haiti-deportaciones-embarazadas-republica-dominicana.html
