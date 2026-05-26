@@ -1,3 +1,15 @@
+**Palabra del día en inglés: ‘inchoate’**\
+`Esta palabra ha aparecido en 31 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/05/26/espanol/que-significa-inchoate.html
+
+**Por qué no puedo dejar a mi esposo infiel serial**\
+`Nuestra columnista de Pregúntale a la terapeuta, Lori Gottlieb, aconseja a una lectora que se siente atrapada a pesar de una serie de infidelidades.`\
+https://www.nytimes.com/es/2026/05/26/espanol/estilos-de-vida/infidelidad-esposo.html
+
+**Word of the Day: inchoate**\
+`This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/05/26/learning/word-of-the-day-inchoate.html
+
 **La autocomplacencia de Trump ahonda los temores su partido en las elecciones intermedias**\
 `“Las estupideces están acabando con nuestras posibilidades”, dijo un senador republicano.`\
 https://www.nytimes.com/es/2026/05/26/espanol/estados-unidos/partido-republicano-elecciones-intermedias.html
