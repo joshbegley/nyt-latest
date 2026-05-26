@@ -1,3 +1,11 @@
+**The G.O.P. Race for Texas Attorney General Grew Heated, and Expensive**\
+`In the last weeks of the contest, Representative Chip Roy reported raising more than $8 million, and he intensified his attacks on Mayes Middleton, a state senator.`\
+https://www.nytimes.com/2026/05/26/us/politics/texas-attorney-general-donations.html
+
+**UFC Unveils Plans for White House Fight on Trump’s Birthday**\
+`The Ultimate Fighting Championship bout is scheduled for June 14, President Trump’s 80th birthday.`\
+https://www.nytimes.com/2026/05/26/us/politics/ufc-fight-trump-white-house.html
+
 **White House Unveils Plans for UFC Fight on Trump’s Birthday**\
 `The Ultimate Fighting Championship bout is scheduled for June 14, President Trump’s 80th birthday.`\
 https://www.nytimes.com/2026/05/26/us/politics/ufc-fight-trump-white-house.html

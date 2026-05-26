@@ -1,4 +1,8 @@
-**White House Unveils Plans for UFC Fight on Trump’s Birthday**\
+**The G.O.P. Race for Texas Attorney General Grew Heated, and Expensive**\
+`In the last weeks of the contest, Representative Chip Roy reported raising more than $8 million, and he intensified his attacks on Mayes Middleton, a state senator.`\
+https://www.nytimes.com/2026/05/26/us/politics/texas-attorney-general-donations.html
+
+**UFC Unveils Plans for White House Fight on Trump’s Birthday**\
 `The Ultimate Fighting Championship bout is scheduled for June 14, President Trump’s 80th birthday.`\
 https://www.nytimes.com/2026/05/26/us/politics/ufc-fight-trump-white-house.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/05/26/business/delta-airlines-ed-bastian.html
 **Opera Philadelphia: Behind Its Comeback**\
 `Anthony Roth Costanzo took over Opera Philadelphia when it was “three weeks away from stopping payroll.” Now, it is rebounding with a surplus.`\
 https://www.nytimes.com/2026/05/26/arts/music/anthony-roth-costanzo-opera-philadelphia.html
-
-**To Understand Pope Leo’s Efforts on A.I., Look at the Man Shaking His Hand**\
-`The co-founder of a prominent A.I. company was nearby as the pope implored A.I. leaders to slow down and consider the technology’s possible perils.`\
-https://www.nytimes.com/2026/05/26/us/pope-leo-ai-anthropic.html
 

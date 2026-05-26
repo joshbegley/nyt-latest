@@ -1,3 +1,11 @@
+**Paris School Worker Tried for Child Abuse in Widespread Assault Inquiry**\
+`The 36-year-old, named in the French news media as David G., is among more than 70 employees at schools in the capital who have been recently suspended or fired over allegations of sexual abuse and other misconduct.`\
+https://www.nytimes.com/2026/05/26/world/europe/child-abuse-trial-school-paris.html
+
+**Outrage Over Trump’s $1.8 Billion Fund**\
+`Readers praise the opposition from some Republicans, call the fund a legal “travesty” and discuss the culture of corruption. Also: Living with dementia.`\
+https://www.nytimes.com/2026/05/26/opinion/trump-fund.html
+
 **The G.O.P. Race for Texas Attorney General Grew Heated, and Expensive**\
 `In the last weeks of the contest, Representative Chip Roy reported raising more than $8 million, and he intensified his attacks on Mayes Middleton, a state senator.`\
 https://www.nytimes.com/2026/05/26/us/politics/texas-attorney-general-donations.html
@@ -18,7 +26,7 @@ https://www.nytimes.com/video/world/europe/100000010925480/belgium-bus-train-cra
 `“Tanmaxxing.” The New York Knicks. And the best beach reads.`\
 https://www.nytimes.com/2026/05/26/briefing/today-in-short.html
 
-**Alabama Federal Judges Reject House Map**\
+**Read the Judge’s Ruling Striking Down Alabama’s New House Map**\
 `A panel of federal judges on Tuesday rejected Alabama’s effort to use a new voting map for the November midterm elections, a decision that is likely to be appealed to the Supreme Court.`\
 https://www.nytimes.com/interactive/2026/05/26/us/alabama-house-map-ruling-doc.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/05/26/us/politics/trump-justice-department-grand-ju
 **‘The Maids,’ With Yerin Ha, Asks: Has Life Become One Big Performance?**\
 `In his rethinking of Jean Genet’s classic work about class and power, Kip Williams ponders “a world that gives you every opportunity not to be yourself.”`\
 https://www.nytimes.com/2026/05/26/theater/the-maids-play-nyc-genet-yerin-ha-kip-williams.html
-
-**How Delta Steered Around Airline Industry Chaos**\
-`The carrier has become the country’s most profitable by catering to affluent travelers, but it is facing stiffer competition from United.`\
-https://www.nytimes.com/2026/05/26/business/delta-airlines-ed-bastian.html
-
-**Opera Philadelphia: Behind Its Comeback**\
-`Anthony Roth Costanzo took over Opera Philadelphia when it was “three weeks away from stopping payroll.” Now, it is rebounding with a surplus.`\
-https://www.nytimes.com/2026/05/26/arts/music/anthony-roth-costanzo-opera-philadelphia.html
 
