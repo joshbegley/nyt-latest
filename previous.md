@@ -1,3 +1,7 @@
+**Reglas para envejecer bien**\
+`Mantenerse vivo en la vejez es un arte que por lo general requiere evitar los pasos en falso.`\
+https://www.nytimes.com/es/2026/05/25/espanol/opinion/como-envejecer-reglas-consejos.html
+
 **En la ciudad en el centro de la crisis del ébola, ‘el virus nos lleva mucha ventaja’**\
 `El virus mortal se ha propagado de forma alarmante en la República Democrática del Congo durante meses. La respuesta apenas está tomando forma.`\
 https://www.nytimes.com/es/2026/05/25/espanol/mundo/ebola-virus-propagacion.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/es/2026/05/25/espanol/estilos-de-vida/antialergicos-mens
 **Forget Ozempic. Brain Health Is the New Wellness Frontier.**\
 `We’ve never been so mindful of our minds`\
 https://www.nytimes.com/2026/05/25/opinion/brain-cognitive-health-trend.html
-
-**Trump’s Self-Indulgent Streak Deepens G.O.P. Fears He Is Risking Losses in Midterms**\
-`“The stupid stuff is killing our chances,” said a retiring Republican senator.`\
-https://www.nytimes.com/2026/05/25/us/politics/trump-gop-fears-midterms.html
 
