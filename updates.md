@@ -1,3 +1,7 @@
+**Threat of Explosion From Toxic Chemical Tank Lessened, Officials Say**\
+`The risk of a large explosion has been averted, officials say. But a smaller blast remains possible, and 16,000 people remain displaced.`\
+https://www.nytimes.com/2026/05/25/us/chemical-tank-garden-grove.html
+
 **Sonny Rollins: 12 Essential Albums**\
 `The towering saxophonist, who died at 95, was a master of living in the moment. Listen to some of his most compelling work, onstage and in the studio.`\
 https://www.nytimes.com/2026/05/25/arts/music/sonny-rollins-albums.html
