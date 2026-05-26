@@ -1,3 +1,7 @@
+**Supreme Court Rejects Lawsuit Over Commercial Driver’s Licenses for Migrants**\
+`Florida officials had asked the justices to hear a lawsuit accusing California and Washington of improperly granting licenses to an immigrant accused in a fatal crash.`\
+https://www.nytimes.com/2026/05/26/us/politics/supreme-court-drivers-licenses-migrants.html
+
 **Thousands of Knicks Fans Celebrate As Team Heads to N.B.A. Finals**\
 `Fans celebrated the New York Knicks’ win after they swept the Cleveland Cavaliers on Monday, leading them to the N.B.A. Finals. The win sets the Knicks up for their first Finals appearance since 1999.`\
 https://www.nytimes.com/video/sports/basketball/100000010926060/thousands-of-knicks-fans-celebrate-as-team-heads-to-nba-finals.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/es/2026/05/26/espanol/negocios/ferrari-electrico.html
 **Four Killed in Belgium After Train Collides With School Van**\
 `A train struck a van carrying schoolchildren in Belgium, killing two children and two adults, officials said. Five more children were taken to the hospital in critical condition.`\
 https://www.nytimes.com/video/world/europe/100000010925480/belgium-bus-train-crash-deaths.html
-
-**Today, In Short**\
-`“Tanmaxxing.” The New York Knicks. And the best beach reads.`\
-https://www.nytimes.com/2026/05/26/briefing/today-in-short.html
 
 **Texas Elections Live Updates: Republican Voters Choosing Nominee for Key Senate Battle**\
 `Ken Paxton, the Texas attorney general, was endorsed by President Trump in his campaign against John Cornyn, a four-term Republican senator. The winner will face the Democratic nominee, James Talarico, in a race with major nationwide implications.`\
