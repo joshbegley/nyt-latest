@@ -1,3 +1,7 @@
+**Sonny Rollins: 12 Essential Albums**\
+`The towering saxophonist, who died at 95, was a master of living in the moment. Listen to some of his most compelling work, onstage and in the studio.`\
+https://www.nytimes.com/2026/05/25/arts/music/sonny-rollins-albums.html
+
 **NYT Crossword Answers for May 26, 2026**\
 `Brad Lively shows us the anatomy of a good crossword puzzle.`\
 https://www.nytimes.com/2026/05/25/crosswords/daily-puzzle-2026-05-26.html
