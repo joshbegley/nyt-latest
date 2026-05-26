@@ -1,3 +1,11 @@
+**A Fiery Visitor From Space Photo-Bombs an Erupting Volcano**\
+`For a split second, a fireball outshone the rivers of molten lava flowing from the Philippines’ most active volcano.`\
+https://www.nytimes.com/2026/05/26/science/volcano-eruption-fireball-philippines.html
+
+****\
+`AfarTV YouTube livestream captured the moment when the fireball appeared, during an eruption of the Mayon volcano in the Philippines on May 25.`\
+https://www.nytimes.com/video/embedded/science/space/100000010927341/26vid-topart-volcano.html
+
 **The 10 Best Men’s Swim Trunks for Summer**\
 `Whether you’re paddling or lounging, these are the bathing suits you’ll need this summer.`\
 https://www.nytimes.com/2026/05/26/t-magazine/mens-swim-trunks.html

@@ -1,3 +1,7 @@
+**A Fiery Visitor From Space Photo-Bombs an Erupting Volcano**\
+`For a split second, a fireball outshone the rivers of molten lava flowing from the Philippines’ most active volcano.`\
+https://www.nytimes.com/2026/05/26/science/volcano-eruption-fireball-philippines.html
+
 **The 10 Best Men’s Swim Trunks for Summer**\
 `Whether you’re paddling or lounging, these are the bathing suits you’ll need this summer.`\
 https://www.nytimes.com/2026/05/26/t-magazine/mens-swim-trunks.html
@@ -23,7 +27,7 @@ https://www.nytimes.com/2026/05/26/us/politics/midterm-primaries-primer.html
 https://www.nytimes.com/video/science/space/100000010926624/volcano-eruption-fireball-mayon-philippines.html
 
 ****\
-`The moment when the AfarTV YouTube livestream captured the fireball as the Mayon volcano erupted on May 25.`\
+`AfarTV YouTube livestream captured the moment when the fireball appeared, during an eruption of the Mayon volcano in the Philippines on May 25.`\
 https://www.nytimes.com/video/embedded/science/space/100000010927341/26vid-topart-volcano.html
 
 **Texans Head to the Polls, Again**\
@@ -177,10 +181,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-texas-primary-runo
 **Texas Seventh Congressional District Runoff 2026: Live Election Results, Cohen vs. Hale**\
 `Get live results and maps from the 2026 Texas runoff election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-7-runoff.html
-
-**Texas Ninth Congressional District Runoff 2026: Live Election Results, Cain vs. Mealer**\
-`Get live results and maps from the 2026 Texas runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-9-runoff.html
 
 **Texas Elections Live Updates: Republicans Vote in Senate Race Pitting Incumbency Against Trump Endorsement**\
 `Ken Paxton, the Texas attorney general, was endorsed by President Trump in his campaign against John Cornyn, a four-term Republican senator. The winner will face the Democratic nominee, James Talarico, in a race with nationwide implications.`\
