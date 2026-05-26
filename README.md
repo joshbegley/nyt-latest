@@ -1,3 +1,35 @@
+**Texas Attorney General Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Texas runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-attorney-general-runoff.html
+
+**Texas Criminal Appeals Court Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Texas runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-criminal-appeals-court-runoff.html
+
+**Texas Lieutenant Governor Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Texas runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-lieutenant-governor-runoff.html
+
+**Texas 17th Congressional District Runoff 2026: Live Election Results, Flores vs. Shepard**\
+`Get live results and maps from the 2026 Texas runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-17-runoff.html
+
+**Texas 16th Congressional District Runoff 2026: Live Election Results, Barraza vs. Bauman**\
+`Get live results and maps from the 2026 Texas runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-16-runoff.html
+
+**Texas Railroad Commissioner Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Texas runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-railroad-commissioner-runoff.html
+
+**Texas 14th Congressional District Runoff 2026: Live Election Results, Bartie vs. Davis**\
+`Get live results and maps from the 2026 Texas runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-14-runoff.html
+
+**Ben Morea, Principal Provocateur of 1960s Anarchist Group, Dies at 84**\
+`An abstract painter who wanted to creatively destroy the gap between art and revolution, he loosely led a band of radicals with a profane name.`\
+https://www.nytimes.com/2026/05/26/us/ben-morea-dead.html
+
 **Find Hokkaido Scallop Wellington From an Atomix Alumnus at 28 Nomad**\
 `The Silent Sea brings more seafood to City Island, the Ludlow Room provides more seating for Katz’s and more restaurant news.`\
 https://www.nytimes.com/2026/05/26/dining/nyc-restaurant-news.html
@@ -67,7 +99,7 @@ https://www.nytimes.com/2026/05/26/dining/restaurant-review-komal-los-angeles.ht
 https://www.nytimes.com/video/world/asia/100000010925558/coral-reefs-conservation-artificial.html
 
 **Trump Undergoes a Physical Exam at Walter Reed**\
-`President Trump, whose health has been a subject of public scrutiny, will turn 80 next month.`\
+`President Trump, who will turn 80 next month, said after the exam that he was deemed in good health.`\
 https://www.nytimes.com/2026/05/26/us/politics/trump-physical-walter-reed.html
 
 **G.D.P. Is a Flawed Measure of Prosperity. Alternatives Are On the Way.**\
@@ -161,36 +193,4 @@ https://www.nytimes.com/2026/05/26/podcasts/the-daily/deadly-synthetic-drugs.htm
 **NYT Connections Answers for May 26, 2025**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, May 27, 2026.`\
 https://www.nytimes.com/2026/05/26/crosswords/connections-companion-1081.html
-
-**NYT Strands Hints for May 27, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, May 27, 2026.`\
-https://www.nytimes.com/2026/05/26/crosswords/strands-sidekick-815.html
-
-**Today’s Wordle Hints for May 27, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, May 27, 2026.`\
-https://www.nytimes.com/2026/05/26/crosswords/wordle-review-1803.html
-
-**Rescuers in Laos Scramble to Reach 7 People Trapped in Flooded Cave**\
-`The group, which was searching for gold, has been trapped for almost a week. Divers who were involved in the 2018 rescue of a Thai youth soccer team have joined the operation.`\
-https://www.nytimes.com/2026/05/26/world/asia/laos-cave-rescue.html
-
-**‘Celebrity Jeopardy!’ Film Study (Championship Edition)**\
-`ESPN football analyst Mina Kimes explains how she dominated the game show.`\
-https://www.nytimes.com/2026/05/26/podcasts/celebrity-jeopardy-film-study-championship-edition.html
-
-**Las deportaciones desde hospitales obligan a mujeres a tener partos riesgosos en casa**\
-`República Dominicana está enviando agentes migratorios a hospitales para detener migrantes, lo que orilla a las mujeres haitianas a dar a luz en condiciones insalubres y sin supervisión médica.`\
-https://www.nytimes.com/es/2026/05/26/espanol/america-latina/haiti-deportaciones-embarazadas-republica-dominicana.html
-
-**Yuval Noah Harari on the Mistake Strongmen Keep Making**\
-`The best-selling author of “Sapiens” and “Nexus” discusses the core delusions deranging our politics.`\
-https://www.nytimes.com/2026/05/26/opinion/ezra-klein-podcast-yuval-noah-harari.html
-
-**Al morir un árbol sagrado, su pueblo pierde una parte de sí mismo**\
-`Para una comunidad en Madagascar, que ha venerado durante mucho tiempo al árbol Tsitakakantsa, su posible desaparición representa la pérdida de un ancla espiritual.`\
-https://www.nytimes.com/es/2026/05/26/espanol/mundo/muere-baobab-madagascar.html
-
-**At Chelsea Flower Show, a Gnome Controversy and Some ‘Good British Madness’**\
-`At the prestigious garden show, attendees jockeyed to buy prizewinning blooms and debated the role of whimsy as a ban on garden gnomes was temporarily lifted.`\
-https://www.nytimes.com/2026/05/26/world/europe/chelsea-flower-show-gnomes-uk.html
 
