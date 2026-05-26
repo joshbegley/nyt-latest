@@ -1,3 +1,7 @@
+**Restaurant Review: Komal in Los Angeles**\
+`At Komal, a molino and restaurant inside Mercado La Paloma, the chef Fátima Júarez dials in the rich beauty of Mexican antojitos.`\
+https://www.nytimes.com/2026/05/26/dining/restaurant-review-komal-los-angeles.html
+
 **Conservationists Install Artificial Reefs Where Corals Once Stood**\
 `Miles of coral reef around Pom Pom Island in Malaysia have been ruined by climate change and blast fishing. A conservation group hopes to restore the area by installing concrete structures that mimic natural reefs.`\
 https://www.nytimes.com/video/world/asia/100000010925558/coral-reefs-conservation-artificial.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/05/26/opinion/wealth-tax-california-bil
 **In the Georgia Governor’s Race, an Election Denier is the G.O.P. Front-Runner**\
 `Burt Jones, the leading G.O.P. candidate for governor, worked with Trump allies to try to overturn the election, and even talked to the president himself.`\
 https://www.nytimes.com/2026/05/26/us/politics/georgia-governor-race-burt-jones-trump.html
-
-**Progressives Are Listening to the Wrong People on A.I.**\
-`An obsession with the most doomer prospects of A.I. is blinding progressives from thinking about serious, realistic policies.`\
-https://www.nytimes.com/2026/05/26/opinion/progressives-left-ai.html
 

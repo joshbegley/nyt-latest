@@ -1,3 +1,7 @@
+**Conservationists Install Artificial Reefs Where Corals Once Stood**\
+`Miles of coral reef around Pom Pom Island in Malaysia have been ruined by climate change and blast fishing. A conservation group hopes to restore the area by installing concrete structures that mimic natural reefs.`\
+https://www.nytimes.com/video/world/asia/100000010925558/coral-reefs-conservation-artificial.html
+
 **Trump Undergoes a Physical Exam at Walter Reed**\
 `President Trump, whose health has been a subject of public scrutiny, will turn 80 next month.`\
 https://www.nytimes.com/2026/05/26/us/politics/trump-physical-walter-reed.html
