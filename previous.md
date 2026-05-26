@@ -1,3 +1,11 @@
+**How a New U.S. Weapon Killed 21 Civilians in Iran**\
+`Evidence shows a new missile championed by the U.S. military struck a residential neighborhood in Iran in February, unleashing thousands of deadly pellets on homes, schools and streets. Here’s what that looked like on the ground.`\
+https://www.nytimes.com/video/world/middleeast/100000010916281/us-missile-iran-deaths-civilians.html
+
+**Iran Threatens to Renew Strikes Against U.S. Amid Push for Diplomatic Deal**\
+`The warnings came after U.S. forces struck military sites in Iran. Secretary of State Marco Rubio said on Tuesday that negotiations to end the war were continuing.`\
+https://www.nytimes.com/2026/05/26/world/middleeast/iran-threats-strikes-us-ceasefire.html
+
 **When Will Emissions From Air Travel Start to Fall?**\
 `How the war in Iran is affecting greenhouse gas emissions from air travel, a look back at “An Inconvenient Truth” and more climate news.`\
 https://www.nytimes.com/2026/05/26/climate/air-travel-emissions.html
@@ -30,7 +38,7 @@ https://www.nytimes.com/es/2026/05/26/espanol/mundo/israel-ataques-libano-hizbul
 `Shiny, wraparound, functional — Oakleys at the French Open. Plus other tennis style moments and more.`\
 https://www.nytimes.com/2026/05/26/style/oakley-osaka-french-open.html
 
-**Deaths Are Reported After Chemical Tank Ruptures at Washington State Paper Mill**\
+**Deaths Reported After Chemical Tank Ruptures at Longview Nippon Facility**\
 `An unknown number of injuries were also reported at the Nippon Dynawave Packaging Company in Longview, Wash., the authorities said.`\
 https://www.nytimes.com/2026/05/26/us/chemical-explosion-nippon-longview-washington.html
 
@@ -74,7 +82,7 @@ https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-senate-ru
 `The new congressional map Texas Republicans drew to favor the party has led to several contentious primary runoffs.`\
 https://www.nytimes.com/2026/05/26/us/politics/texas-congress-redistricting.html
 
-**Texas 2026: Live Election Results**\
+**Texas Runoff 2026: Live Primary Election Results**\
 `Get live results and maps from the 2026 Texas elections.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-texas-primary-runoff.html
 
@@ -178,15 +186,7 @@ https://www.nytimes.com/2026/05/26/world/europe/europe-heatwave-uk-spain-france.
 `The 36-year-old, named in the French news media as David G., is among more than 70 employees at schools in the capital who have been recently suspended or fired over allegations of sexual abuse and other misconduct.`\
 https://www.nytimes.com/2026/05/26/world/europe/child-abuse-trial-school-paris.html
 
-**Outrage Over Trump’s $1.8 Billion Fund**\
-`Readers praise the opposition from some Republicans, call the fund a legal “travesty” and discuss the culture of corruption. Also: Living with dementia.`\
-https://www.nytimes.com/2026/05/26/opinion/trump-fund.html
-
-**The G.O.P. Race for Texas Attorney General Grew Heated, and Expensive**\
-`In the last weeks of the contest, Representative Chip Roy reported raising more than $8 million, and he intensified his attacks on Mayes Middleton, a state senator.`\
-https://www.nytimes.com/2026/05/26/us/politics/texas-attorney-general-donations.html
-
-**Texas Elections Live Updates: Republican Voters Choosing Nominee for Key Senate Battle**\
+**Texas Elections Live Updates: Republicans Vote in Senate Race Pitting Incumbency Against Trump Endorsement**\
 `Ken Paxton, the Texas attorney general, was endorsed by President Trump in his campaign against John Cornyn, a four-term Republican senator. The winner will face the Democratic nominee, James Talarico, in a race with major nationwide implications.`\
 https://www.nytimes.com/live/2026/05/26/us/texas-primary-runoff-elections
 

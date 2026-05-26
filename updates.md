@@ -1,3 +1,23 @@
+**How a New U.S. Weapon Killed 21 Civilians in Iran**\
+`Evidence shows a new missile championed by the U.S. military struck a residential neighborhood in Iran in February, unleashing thousands of deadly pellets on homes, schools and streets. Here’s what that looked like on the ground.`\
+https://www.nytimes.com/video/world/middleeast/100000010916281/us-missile-iran-deaths-civilians.html
+
+**Iran Threatens to Renew Strikes Against U.S. Amid Push for Diplomatic Deal**\
+`The warnings came after U.S. forces struck military sites in Iran. Secretary of State Marco Rubio said on Tuesday that negotiations to end the war were continuing.`\
+https://www.nytimes.com/2026/05/26/world/middleeast/iran-threats-strikes-us-ceasefire.html
+
+**Deaths Reported After Chemical Tank Ruptures at Longview Nippon Facility**\
+`An unknown number of injuries were also reported at the Nippon Dynawave Packaging Company in Longview, Wash., the authorities said.`\
+https://www.nytimes.com/2026/05/26/us/chemical-explosion-nippon-longview-washington.html
+
+**Texas Runoff 2026: Live Primary Election Results**\
+`Get live results and maps from the 2026 Texas elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-primary-runoff.html
+
+**Texas Elections Live Updates: Republicans Vote in Senate Race Pitting Incumbency Against Trump Endorsement**\
+`Ken Paxton, the Texas attorney general, was endorsed by President Trump in his campaign against John Cornyn, a four-term Republican senator. The winner will face the Democratic nominee, James Talarico, in a race with major nationwide implications.`\
+https://www.nytimes.com/live/2026/05/26/us/texas-primary-runoff-elections
+
 **When Will Emissions From Air Travel Start to Fall?**\
 `How the war in Iran is affecting greenhouse gas emissions from air travel, a look back at “An Inconvenient Truth” and more climate news.`\
 https://www.nytimes.com/2026/05/26/climate/air-travel-emissions.html
