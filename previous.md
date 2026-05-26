@@ -31,7 +31,7 @@ https://www.nytimes.com/2026/05/26/business/economy/gdp-united-nations-prosperit
 https://www.nytimes.com/2026/05/26/business/eli-lilly-vaccines-shingles-epstein-barr.html
 
 **Court Rejects Alabama House Map, Calling It Unfair to Black Voters**\
-`Alabama is likely to appeal the ruling, which stops an effort to use a new congressional map that would redraw one majority-Black district.`\
+`Alabama is likely to appeal the ruling, which stops an effort to use a new congressional map that would likely cost Democrats a majority-Black district.`\
 https://www.nytimes.com/2026/05/26/us/politics/alabama-congress-map-redistricting.html
 
 **Judge to Decide How Long Torture’s Taint Infected the Sept. 11 Case**\

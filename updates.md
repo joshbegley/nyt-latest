@@ -1,3 +1,7 @@
+**Court Rejects Alabama House Map, Calling It Unfair to Black Voters**\
+`Alabama is likely to appeal the ruling, which stops an effort to use a new congressional map that would likely cost Democrats a majority-Black district.`\
+https://www.nytimes.com/2026/05/26/us/politics/alabama-congress-map-redistricting.html
+
 **SpaceX’s Unconventional Corporate Arrangements Favor Elon Musk**\
 `The ways it set up its board and Mr. Musk’s pay appear to benefit him at the expense of other shareholders, corporate governance experts said.`\
 https://www.nytimes.com/2026/05/26/technology/spacex-elon-musk-pay-board-governance.html
