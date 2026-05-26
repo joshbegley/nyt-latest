@@ -1,3 +1,7 @@
+**Election Live Updates: Texas Republicans Battle for Senate Nomination in Runoff**\
+`Ken Paxton was endorsed by President Trump in his campaign against  John Cornyn, a four-term Republican senator. The winner will face James Talarico, a Democrat, in November.`\
+https://www.nytimes.com/live/2026/05/26/us/texas-primary-runoff-elections
+
 **Your Questions, Answered**\
 `We respond to reader queries about weapons sales, the national debt and more.`\
 https://www.nytimes.com/2026/05/26/briefing/your-questions-answered.html
@@ -80,7 +84,7 @@ https://www.nytimes.com/2026/05/26/arts/music/anthony-roth-costanzo-opera-philad
 
 **To Understand Pope Leo’s Efforts on A.I., Look at the Man 3 Seats Away**\
 `The co-founder of a prominent A.I. company was nearby as the pope implored A.I. leaders to slow down and consider the technology’s possible perils.`\
-https://www.nytimes.com/2026/05/26/us/26nat-pope-leo-ai.html
+https://www.nytimes.com/2026/05/26/us/pope-leo-ai-anthropic.html
 
 **Yuval Noah Harari on the Mistake Strongmen Keep Making**\
 `The best-selling author of “Sapiens” and “Nexus” discusses the core delusions deranging our politics.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/26/world/asia/russians-phuket-thailand.html
 **Celebrity Assistants Exist to Indulge Their Bosses, but When Does Duty Cross a Line?**\
 `Matthew Perry’s assistant injected the ketamine that killed his employer. His sentencing has some in the demanding profession considering the power dynamics involved.`\
 https://www.nytimes.com/2026/05/26/arts/matthew-perry-personal-assistant-ketamine.html
-
-**Iran War Live Updates: Tensions Rise as Iran Threatens to Retaliate Against U.S. Strikes**\
-`The threat came hours after American military forces renewed attacks in southern Iran, even as fragile diplomacy efforts to end the war continued.`\
-https://www.nytimes.com/live/2026/05/26/world/iran-war-trump-deal
 

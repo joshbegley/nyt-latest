@@ -1,3 +1,11 @@
+**BP Ousts Chairman, Citing ‘Serious Concerns’ Over Conduct**\
+`The British oil group said that Albert Manifold had been removed, after concerns were raised “related to important governance standards, oversight and conduct.”`\
+https://www.nytimes.com/2026/05/26/business/bp-chairman-manifold.html
+
+**Can You Match the Places These Authors Lived With Settings in Their Books?**\
+`Home is where the heart is — and sometimes where authors set their books. Try this quiz to see how many locations you recognize.`\
+https://www.nytimes.com/interactive/2026/05/26/books/review/author-towns-quiz.html
+
 **Election Live Updates: Texas Republicans Battle for Senate Nomination in Runoff**\
 `Ken Paxton was endorsed by President Trump in his campaign against  John Cornyn, a four-term Republican senator. The winner will face James Talarico, a Democrat, in November.`\
 https://www.nytimes.com/live/2026/05/26/us/texas-primary-runoff-elections
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/05/26/well/i-drool-in-my-sleep-is-that-normal.html
 **Where to See the Total Solar Eclipse on Aug. 12**\
 `On Aug. 12, parts of Greenland, Iceland, Spain and Portugal will experience the thrill of daytime darkness. Here’s where you can witness the cosmic spectacle.`\
 https://www.nytimes.com/2026/05/26/travel/solar-eclipse-spain-iceland-greenland.html
-
-**Russians Are Thriving on This Thai Island, but the Scene Feels Fleeting**\
-`Thousands who fled Russia after the invasion of Ukraine have built an enclave in Phuket. An air of impermanence hangs over their community.`\
-https://www.nytimes.com/2026/05/26/world/asia/russians-phuket-thailand.html
-
-**Celebrity Assistants Exist to Indulge Their Bosses, but When Does Duty Cross a Line?**\
-`Matthew Perry’s assistant injected the ketamine that killed his employer. His sentencing has some in the demanding profession considering the power dynamics involved.`\
-https://www.nytimes.com/2026/05/26/arts/matthew-perry-personal-assistant-ketamine.html
 

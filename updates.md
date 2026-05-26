@@ -1,3 +1,11 @@
+**Election Live Updates: Texas Republicans Battle for Senate Nomination in Runoff**\
+`Ken Paxton was endorsed by President Trump in his campaign against  John Cornyn, a four-term Republican senator. The winner will face James Talarico, a Democrat, in November.`\
+https://www.nytimes.com/live/2026/05/26/us/texas-primary-runoff-elections
+
+**To Understand Pope Leo’s Efforts on A.I., Look at the Man 3 Seats Away**\
+`The co-founder of a prominent A.I. company was nearby as the pope implored A.I. leaders to slow down and consider the technology’s possible perils.`\
+https://www.nytimes.com/2026/05/26/us/pope-leo-ai-anthropic.html
+
 **Belgium Crash Kills 4 as Train Hits School Van**\
 `Two children, 12 and 15, were among those killed in the crash near Brussels, officials said. The students on the van attended a special education school.`\
 https://www.nytimes.com/2026/05/26/world/europe/belgium-minibus-train-collision-children.html
