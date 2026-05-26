@@ -1,3 +1,15 @@
+**South Carolina Senate Does Not Act on New Midterm Map, Defying Trump**\
+`With early voting already underway, it became clear there was no longer enough support to use new lines before the November midterm elections.`\
+https://www.nytimes.com/2026/05/26/us/south-carolina-redistricting-map.html
+
+**Deal or No Deal With Iran**\
+`A deal to end the current blockade is merely an enticement for the next blockade and the one after that.`\
+https://www.nytimes.com/2026/05/26/opinion/iran-deal-truce-trump.html
+
+**Knicks Fans Celebrate the Team’s First NBA Finals Appearance Since 1999**\
+`After a 27-year drought, the New York Knicks are headed to the N.B.A. Finals. Fans flooded the streets of the city in celebration.`\
+https://www.nytimes.com/2026/05/26/nyregion/knicks-eastern-conference-nyc.html
+
 **Knicks Fans, ‘a Specific Species of Human,’ Erupt Again**\
 `After a 27-year drought, the New York Knicks are headed to the N.B.A. Finals. Fans flooded the streets of the city in celebration.`\
 https://www.nytimes.com/2026/05/26/nyregion/knicks-eastern-conference-nyc.html
