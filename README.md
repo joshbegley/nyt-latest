@@ -1,4 +1,12 @@
-**Knicks Fans, ‘a Specific Species of Human,’ Erupt Again**\
+**South Carolina Senate Does Not Act on New Midterm Map, Defying Trump**\
+`With early voting already underway, it became clear there was no longer enough support to use new lines before the November midterm elections.`\
+https://www.nytimes.com/2026/05/26/us/south-carolina-redistricting-map.html
+
+**Deal or No Deal With Iran**\
+`A deal to end the current blockade is merely an enticement for the next blockade and the one after that.`\
+https://www.nytimes.com/2026/05/26/opinion/iran-deal-truce-trump.html
+
+**Knicks Fans Celebrate the Team’s First NBA Finals Appearance Since 1999**\
 `After a 27-year drought, the New York Knicks are headed to the N.B.A. Finals. Fans flooded the streets of the city in celebration.`\
 https://www.nytimes.com/2026/05/26/nyregion/knicks-eastern-conference-nyc.html
 
@@ -185,14 +193,6 @@ https://www.nytimes.com/video/world/asia/100000010925558/coral-reefs-conservatio
 **Trump Declares Himself in Good Health After Physical Exam at Walter Reed**\
 `President Trump, who will turn 80 next month, did not give details on the exam.`\
 https://www.nytimes.com/2026/05/26/us/politics/trump-physical-walter-reed.html
-
-**G.D.P. Is a Flawed Measure of Prosperity. Alternatives Are On the Way.**\
-`The United Nations has a new plan for weighing economic gains alongside health and environmental progress. But consensus is elusive.`\
-https://www.nytimes.com/2026/05/26/business/economy/gdp-united-nations-prosperity-measures.html
-
-**Eli Lilly to Buy 3 Vaccine Developers**\
-`The drugmaker said it would spend up to $4 billion to acquire small companies exploring vaccines for shingles, Epstein-Barr virus and other pathogens.`\
-https://www.nytimes.com/2026/05/26/business/eli-lilly-vaccines-shingles-epstein-barr.html
 
 **Texas Elections Live Updates: Republican Voters Choosing Nominee for Key Senate Battle**\
 `Ken Paxton, the Texas attorney general, was endorsed by President Trump in his campaign against John Cornyn, a four-term Republican senator. The winner will face the Democratic nominee, James Talarico, in a race with major nationwide implications.`\

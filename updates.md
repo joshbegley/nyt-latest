@@ -1,3 +1,11 @@
+**Knicks Fans, ‘a Specific Species of Human,’ Erupt Again**\
+`After a 27-year drought, the New York Knicks are headed to the N.B.A. Finals. Fans flooded the streets of the city in celebration.`\
+https://www.nytimes.com/2026/05/26/nyregion/knicks-eastern-conference-nyc.html
+
+**5 Great Songs I Encountered This Week**\
+`Hear Mick Taylor’s swan song, Grace Ives’s exuberant crushing and a foundational hip-hop sample.`\
+https://www.nytimes.com/2026/05/26/arts/music/amplifier-newsletter-rolling-stones-grace-ives.html
+
 **Islandia considera unirse a la Unión Europea**\
 `El país nórdico se ha mantenido al margen del resto de Europa. Pero las amenazas del presidente Trump a Groenlandia han provocado una reconsideración.`\
 https://www.nytimes.com/es/2026/05/26/espanol/mundo/islandia-union-europea.html
