@@ -1,3 +1,11 @@
+**L.A. Philharmonic Names Daniel Harding as Music Director**\
+`The Philharmonic, taking a more traditional route than in the past, has named the British-born conductor Daniel Harding as its next music director.`\
+https://www.nytimes.com/2026/05/26/arts/music/daniel-harding-la-philharmonic.html
+
+**Street Style Look of the Week: A Harlem Doyenne’s Head-Turning Dress**\
+`A Harlem doyenne with a fondness for “a 1950s silhouette” took matters into her own hands and merged two skirts into one head-turning dress.`\
+https://www.nytimes.com/2026/05/26/style/street-style-look-harlem-dress.html
+
 **Efforts to End the War Continue as Tensions Between the U.S. and Iran Escalate**\
 `Secretary of State Marco Rubio said Tuesday that negotiations to end the war in Iran were continuing. His comments came after the United States conducted what it said were “self-defense strikes” in southern Iran.`\
 https://www.nytimes.com/video/world/middleeast/100000010925397/iran-war-talks-negotiations-strikes.html

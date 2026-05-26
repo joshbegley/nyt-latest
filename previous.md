@@ -1,3 +1,11 @@
+**L.A. Philharmonic Names Daniel Harding as Music Director**\
+`The Philharmonic, taking a more traditional route than in the past, has named the British-born conductor Daniel Harding as its next music director.`\
+https://www.nytimes.com/2026/05/26/arts/music/daniel-harding-la-philharmonic.html
+
+**Street Style Look of the Week: A Harlem Doyenne’s Head-Turning Dress**\
+`A Harlem doyenne with a fondness for “a 1950s silhouette” took matters into her own hands and merged two skirts into one head-turning dress.`\
+https://www.nytimes.com/2026/05/26/style/street-style-look-harlem-dress.html
+
 **Efforts to End the War Continue as Tensions Between the U.S. and Iran Escalate**\
 `Secretary of State Marco Rubio said Tuesday that negotiations to end the war in Iran were continuing. His comments came after the United States conducted what it said were “self-defense strikes” in southern Iran.`\
 https://www.nytimes.com/video/world/middleeast/100000010925397/iran-war-talks-negotiations-strikes.html
@@ -134,13 +142,13 @@ https://www.nytimes.com/2026/05/26/us/politics/texas-runoffs-cornyn-paxton.html
 `“Magnifica Humanitas” was measured and cautious.`\
 https://www.nytimes.com/2026/05/26/opinion/pope-leo-encyclical-ai.html
 
-**The Case for California’s Billionaire Wealth Tax**\
-`Silicon Valley’s growth over recent decades has made California rich — and one of the most unequal places in America.`\
-https://www.nytimes.com/interactive/2026/05/26/opinion/wealth-tax-california-billionaire.html
-
 **The Average Guys Outsmarting Wall Street on Prediction Markets**\
 `How prediction-market ‘sharps’ have made millions wagering on everything from war to Rotten Tomatoes.`\
 https://www.nytimes.com/2026/05/26/magazine/polymarket-prediction-wall-street.html
+
+**The Case for California’s Billionaire Wealth Tax**\
+`Silicon Valley’s growth over recent decades has made California rich — and one of the most unequal places in America.`\
+https://www.nytimes.com/interactive/2026/05/26/opinion/wealth-tax-california-billionaire.html
 
 **In the Georgia Governor’s Race, an Election Denier is the G.O.P. Front-Runner**\
 `Burt Jones, the leading G.O.P. candidate for governor, worked with Trump allies to try to overturn the election, and even talked to the president himself.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/podcasts/the-daily/100000010852322/inside-the-evol
 **Should You Take Nutrition Advice From a Chatbot?**\
 `Many people are turning to artificial intelligence for help with their diet. Experts weigh the potential pros and cons.`\
 https://www.nytimes.com/2026/05/26/well/eat/ai-chatbots-nutrition-advice.html
-
-**Book Review: ‘The Midnight Train,’ by Matt Haig**\
-`Matt Haig returns with another life-affirming novel, this one about a man on a magical train that helps him revisit key moments of his life.`\
-https://www.nytimes.com/2026/05/26/books/review/the-midnight-train-matt-haig.html
-
-**‘Armageddon’: The Blockbuster Melodrama That Left Our Heads Spinning**\
-`Michael Bay wasn’t remotely worried about the science in his 1998 science-fiction action hit that launched an elite ensemble cast to space.`\
-https://www.nytimes.com/2026/05/26/movies/armageddon-1998-michael-bay.html
 
