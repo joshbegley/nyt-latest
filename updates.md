@@ -1,3 +1,15 @@
+**When Will Emissions From Air Travel Start to Fall?**\
+`How the war in Iran is affecting greenhouse gas emissions from air travel, a look back at “An Inconvenient Truth” and more climate news.`\
+https://www.nytimes.com/2026/05/26/climate/air-travel-emissions.html
+
+**At the A.I. Epicenter, Technologists Dismiss Pope Leo’s Warnings About the New Technology**\
+`Pope Leo XIV’s spiritual message on artificial intelligence arrived as Silicon Valley’s A.I. enthusiasts pursue their own spirituality through technology.`\
+https://www.nytimes.com/2026/05/26/technology/pope-leo-ai-religion.html
+
+**South Carolina Redistricting: Senate Passes on New Map, Defying Trump**\
+`With early voting already underway, it became clear there was no longer enough support to use new lines before the November midterm elections.`\
+https://www.nytimes.com/2026/05/26/us/south-carolina-redistricting-map.html
+
 **Supreme Court Rejects Lawsuit Over Commercial Driver’s Licenses for Migrants**\
 `Florida officials had asked the justices to hear a lawsuit accusing California and Washington of improperly granting licenses to an immigrant accused in a fatal crash.`\
 https://www.nytimes.com/2026/05/26/us/politics/supreme-court-drivers-licenses-migrants.html

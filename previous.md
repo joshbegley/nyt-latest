@@ -1,3 +1,11 @@
+**When Will Emissions From Air Travel Start to Fall?**\
+`How the war in Iran is affecting greenhouse gas emissions from air travel, a look back at “An Inconvenient Truth” and more climate news.`\
+https://www.nytimes.com/2026/05/26/climate/air-travel-emissions.html
+
+**At the A.I. Epicenter, Technologists Dismiss Pope Leo’s Warnings About the New Technology**\
+`Pope Leo XIV’s spiritual message on artificial intelligence arrived as Silicon Valley’s A.I. enthusiasts pursue their own spirituality through technology.`\
+https://www.nytimes.com/2026/05/26/technology/pope-leo-ai-religion.html
+
 **Supreme Court Rejects Lawsuit Over Commercial Driver’s Licenses for Migrants**\
 `Florida officials had asked the justices to hear a lawsuit accusing California and Washington of improperly granting licenses to an immigrant accused in a fatal crash.`\
 https://www.nytimes.com/2026/05/26/us/politics/supreme-court-drivers-licenses-migrants.html
@@ -26,7 +34,7 @@ https://www.nytimes.com/2026/05/26/style/oakley-osaka-french-open.html
 `An unknown number of injuries were also reported at the Nippon Dynawave Packaging Company in Longview, Wash., the authorities said.`\
 https://www.nytimes.com/2026/05/26/us/chemical-explosion-nippon-longview-washington.html
 
-**South Carolina Senate Does Not Act on New Midterm Map, Defying Trump**\
+**South Carolina Redistricting: Senate Passes on New Map, Defying Trump**\
 `With early voting already underway, it became clear there was no longer enough support to use new lines before the November midterm elections.`\
 https://www.nytimes.com/2026/05/26/us/south-carolina-redistricting-map.html
 
@@ -177,18 +185,6 @@ https://www.nytimes.com/2026/05/26/opinion/trump-fund.html
 **The G.O.P. Race for Texas Attorney General Grew Heated, and Expensive**\
 `In the last weeks of the contest, Representative Chip Roy reported raising more than $8 million, and he intensified his attacks on Mayes Middleton, a state senator.`\
 https://www.nytimes.com/2026/05/26/us/politics/texas-attorney-general-donations.html
-
-**UFC Unveils Plans for White House Fight on Trump’s Birthday**\
-`The Ultimate Fighting Championship bout is scheduled for June 14, President Trump’s 80th birthday.`\
-https://www.nytimes.com/2026/05/26/us/politics/ufc-fight-trump-white-house.html
-
-**Ferrari presenta el Luce, su primer coche eléctrico**\
-`El fabricante italiano de coches deportivos presentó el Luce, su primer modelo 100% eléctrico. El vehículo representa una de las mayores apuestas en la historia de la compañía.`\
-https://www.nytimes.com/es/2026/05/26/espanol/negocios/ferrari-electrico.html
-
-**Four Killed in Belgium After Train Collides With School Van**\
-`A train struck a van carrying schoolchildren in Belgium, killing two children and two adults, officials said. Five more children were taken to the hospital in critical condition.`\
-https://www.nytimes.com/video/world/europe/100000010925480/belgium-bus-train-crash-deaths.html
 
 **Texas Elections Live Updates: Republican Voters Choosing Nominee for Key Senate Battle**\
 `Ken Paxton, the Texas attorney general, was endorsed by President Trump in his campaign against John Cornyn, a four-term Republican senator. The winner will face the Democratic nominee, James Talarico, in a race with major nationwide implications.`\
