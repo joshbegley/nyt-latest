@@ -1,3 +1,19 @@
+**Iceland, Rattled by Trump’s Greenland Threats, Weighs Joining the E.U.**\
+`Iceland has stood apart from the rest of Europe. But President Trump’s threats to Greenland have provoked a reconsideration.`\
+https://www.nytimes.com/2026/05/26/world/europe/iceland-eu-membership-trump.html
+
+**Inside India’s Manipur State, Where Violence and Division Are Routine**\
+`Three years after riots tore apart Manipur, the state remains in disarray. Barbed wire and armed checkpoints made it difficult for Times reporters to cross, even before the recent clashes.`\
+https://www.nytimes.com/2026/05/26/world/asia/india-manipur-violence-ethnic-conflict.html
+
+**Corrections: May 26, 2026**\
+`Corrections that appeared in print on Tuesday, May 26, 2026.`\
+https://www.nytimes.com/2026/05/26/pageoneplus/corrections-may-26-2026.html
+
+**Quote of the Day: In New World, Gore Rethinks How to Save It**\
+`Quotation of the Day for Tuesday, May 26, 2026.`\
+https://www.nytimes.com/2026/05/25/pageoneplus/quote-of-the-day-in-new-world-gore-rethinks-how-to-save-it.html
+
 **Sonny Rollins: 12 Essential Albums**\
 `The towering saxophonist, who died at 95, was a master of living in the moment. Listen to some of his most compelling work, onstage and in the studio.`\
 https://www.nytimes.com/2026/05/25/arts/music/sonny-rollins-albums.html
@@ -181,16 +197,4 @@ https://www.nytimes.com/es/2026/05/25/espanol/estados-unidos/garden-grove-planta
 **Iran War Live Updates: As Talks to End War Resume in Qatar, U.S. Conducts Strikes on Iran’s Gulf Coast**\
 `Iranian officials went to Doha on Monday for the negotiations, hours before the U.S. military announced the strikes it said were intended to protect troops. Israel’s leader said his country plans to intensify attacks against Hezbollah, Iran’s ally, in Lebanon.`\
 https://www.nytimes.com/live/2026/05/25/world/iran-war-trump
-
-**Preocupación tras un cambio brusco en el proceso de la green card**\
-`Los migrantes y sus defensores y abogados intentan interpretar una nueva norma del gobierno de Trump que exige a las personas que estén en su país de origen para solicitar la residencia permanente.`\
-https://www.nytimes.com/es/2026/05/25/espanol/estados-unidos/cambios-proceso-green-card.html
-
-**Pope Leo Warns of Risks From A.I. in 42,300-Word Encyclical**\
-`The document marks a powerful foray by the leader of the Roman Catholic Church into the debate about the misuse or overuse of artificial intelligence.`\
-https://www.nytimes.com/2026/05/25/world/europe/pope-leo-encyclical.html
-
-**One of Madagascar’s Oldest Sacred Trees Is Slowly Dying**\
-`In a forest in Madagascar, the demise of a centuries-old baobab points to the fraying of a fragile ecosystem.`\
-https://www.nytimes.com/2026/05/25/world/africa/baobab-tree-dying-madagascar-africa.html
 
