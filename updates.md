@@ -1,3 +1,7 @@
+**Minibus Transporting Schoolchildren Is Hit by Train in Belgium**\
+`A Belgian official reacted with dismay after the vehicle carrying children, reportedly to a special needs school, was hit by a train.`\
+https://www.nytimes.com/2026/05/26/world/europe/belgium-minibus-train-collision-children.html
+
 **White House Shakes Up Green Card Policy, and the Pope Takes On A.I.**\
 `Plus, will anyone want an electric Ferrari?`\
 https://www.nytimes.com/2026/05/26/podcasts/the-headlines/white-house-green-card-pope-ai.html
