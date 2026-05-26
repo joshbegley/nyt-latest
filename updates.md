@@ -1,3 +1,23 @@
+**Thousands of Knicks Fans Celebrate As Team Heads to N.B.A. Finals**\
+`Fans celebrated the New York Knicks’ win after they swept the Cleveland Cavaliers on Monday, leading them to the N.B.A. Finals. The win sets the Knicks up for their first Finals appearance since 1999.`\
+https://www.nytimes.com/video/sports/basketball/100000010926060/thousands-of-knicks-fans-celebrate-as-team-heads-to-nba-finals.html
+
+**Canada Strikes Landmark Deal to Export Liquefied Natural Gas to Germany**\
+`The agreement is important for both nations, as Canada seeks new markets away from the United States and Germany tries to diversify its energy supply.`\
+https://www.nytimes.com/2026/05/26/world/canada/canada-germany-natural-gas-lng.html
+
+**Weeklong Effort to Rescue 7 People From Flooded Cave Continues**\
+`Seven people have been trapped in a cave since last Wednesday in Laos, when heavy rain triggered flooding that blocked the cave entrance with gravel and dirt.`\
+https://www.nytimes.com/video/world/asia/100000010925670/laos-cave-rescue-divers.html
+
+**Deaths Are Reported After Chemical Tank Ruptures at Washington State Paper Mill**\
+`An unknown number of injuries were also reported at the Nippon Dynawave Packaging Company in Longview, Wash., the authorities said.`\
+https://www.nytimes.com/2026/05/26/us/chemical-explosion-nippon-longview-washington.html
+
+**U.S. Aims to Give Cold War Plutonium to Start-Ups for Nuclear Fuel**\
+`Companies say it’s a better way to dispose of the Cold War-era material — and fix a shortage of nuclear fuel. But the plan has also faced criticism from nonproliferation experts.`\
+https://www.nytimes.com/2026/05/26/climate/plutonium-nuclear-weapons-fuel.html
+
 **Israel intensifica la ofensiva en Líbano cuando EE. UU. busca un acuerdo con Irán**\
 `Hizbulá, el grupo con respaldo iraní también mantiene los ataques con cohetes y drones a soldados israelíes. La escalada complicaría los esfuerzos diplomáticos.`\
 https://www.nytimes.com/es/2026/05/26/espanol/mundo/israel-ataques-libano-hizbula.html

@@ -1,3 +1,15 @@
+**Thousands of Knicks Fans Celebrate As Team Heads to N.B.A. Finals**\
+`Fans celebrated the New York Knicks’ win after they swept the Cleveland Cavaliers on Monday, leading them to the N.B.A. Finals. The win sets the Knicks up for their first Finals appearance since 1999.`\
+https://www.nytimes.com/video/sports/basketball/100000010926060/thousands-of-knicks-fans-celebrate-as-team-heads-to-nba-finals.html
+
+**Canada Strikes Landmark Deal to Export Liquefied Natural Gas to Germany**\
+`The agreement is important for both nations, as Canada seeks new markets away from the United States and Germany tries to diversify its energy supply.`\
+https://www.nytimes.com/2026/05/26/world/canada/canada-germany-natural-gas-lng.html
+
+**Weeklong Effort to Rescue 7 People From Flooded Cave Continues**\
+`Seven people have been trapped in a cave since last Wednesday in Laos, when heavy rain triggered flooding that blocked the cave entrance with gravel and dirt.`\
+https://www.nytimes.com/video/world/asia/100000010925670/laos-cave-rescue-divers.html
+
 **Israel intensifica la ofensiva en Líbano cuando EE. UU. busca un acuerdo con Irán**\
 `Hizbulá, el grupo con respaldo iraní también mantiene los ataques con cohetes y drones a soldados israelíes. La escalada complicaría los esfuerzos diplomáticos.`\
 https://www.nytimes.com/es/2026/05/26/espanol/mundo/israel-ataques-libano-hizbula.html
@@ -6,8 +18,8 @@ https://www.nytimes.com/es/2026/05/26/espanol/mundo/israel-ataques-libano-hizbul
 `Shiny, wraparound, functional — Oakleys at the French Open. Plus other tennis style moments and more.`\
 https://www.nytimes.com/2026/05/26/style/oakley-osaka-french-open.html
 
-**Injuries Reported After Chemical Implosion at Washington State Paper Mill**\
-`The episode at the Nippon Dynawave Packaging Company plant in Longview, Wash., involved a vat of a chemical treatment product, the authorities said.`\
+**Deaths Are Reported After Chemical Tank Ruptures at Washington State Paper Mill**\
+`An unknown number of injuries were also reported at the Nippon Dynawave Packaging Company in Longview, Wash., the authorities said.`\
 https://www.nytimes.com/2026/05/26/us/chemical-explosion-nippon-longview-washington.html
 
 **South Carolina Senate Does Not Act on New Midterm Map, Defying Trump**\
@@ -31,7 +43,7 @@ https://www.nytimes.com/2026/05/26/arts/music/amplifier-newsletter-rolling-stone
 https://www.nytimes.com/es/2026/05/26/espanol/mundo/islandia-union-europea.html
 
 **U.S. Aims to Give Cold War Plutonium to Start-Ups for Nuclear Fuel**\
-`Companies say it’s a better way to dispose of the Cold War-era material — and fix a shortage of nuclear fuel. But the plan has also faced criticism.`\
+`Companies say it’s a better way to dispose of the Cold War-era material — and fix a shortage of nuclear fuel. But the plan has also faced criticism from nonproliferation experts.`\
 https://www.nytimes.com/2026/05/26/climate/plutonium-nuclear-weapons-fuel.html
 
 **U.S. Said to Have Observed Series of Iranian Threats Before Latest Strikes**\
@@ -177,14 +189,6 @@ https://www.nytimes.com/video/world/europe/100000010925480/belgium-bus-train-cra
 **Today, In Short**\
 `“Tanmaxxing.” The New York Knicks. And the best beach reads.`\
 https://www.nytimes.com/2026/05/26/briefing/today-in-short.html
-
-**Read the Judge’s Ruling Striking Down Alabama’s New House Map**\
-`A panel of federal judges on Tuesday rejected Alabama’s effort to use a new voting map for the November midterm elections, a decision that is likely to be appealed to the Supreme Court.`\
-https://www.nytimes.com/interactive/2026/05/26/us/alabama-house-map-ruling-doc.html
-
-**SpaceX IPO Filing Reveals Favorable Terms for Elon Musk**\
-`The ways it set up its board and Mr. Musk’s pay appear to benefit him at the expense of other shareholders, corporate governance experts said.`\
-https://www.nytimes.com/2026/05/26/technology/spacex-elon-musk-pay-board-governance.html
 
 **Texas Elections Live Updates: Republican Voters Choosing Nominee for Key Senate Battle**\
 `Ken Paxton, the Texas attorney general, was endorsed by President Trump in his campaign against John Cornyn, a four-term Republican senator. The winner will face the Democratic nominee, James Talarico, in a race with major nationwide implications.`\
