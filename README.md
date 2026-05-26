@@ -1,3 +1,11 @@
+**New York Leads in Controlling Heat-Trapping Methane. That Could Change.**\
+`An overhaul of the state’s 2019 climate law proposed by Gov. Kathy Hochul would alter how the potent greenhouse gas is measured.`\
+https://www.nytimes.com/2026/05/26/nyregion/new-york-hochul-methane-climate-law.html
+
+**NYT Spelling Bee Answers for May 26, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/26/crosswords/spelling-bee-forum.html
+
 **Palabra del día en inglés: ‘inchoate’**\
 `Esta palabra ha aparecido en 31 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
 https://www.nytimes.com/es/2026/05/26/espanol/que-significa-inchoate.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/05/25/opinion/test-scores.html
 **One-and-Done Heart Disease Prevention? Scientists Show It May Be Possible.**\
 `A single infusion of an experimental gene-editing drug seemed to reduce LDL long-term in a small trial. The results may point to something “curative,” one expert said.`\
 https://www.nytimes.com/2026/05/25/health/cholesterol-ldl-gene-therapy.html
-
-**A Poem for Memorial Day**\
-`We remember those who gave their lives in service to the United States.`\
-https://www.nytimes.com/2026/05/25/briefing/a-poem-for-memorial-day.html
-
-**U.S.-Iran Peace Deal Is Still a ‘Work in Progress,’ Rubio Says**\
-`Secretary of State Marco Rubio said that peace talks between the United States and Iran were still ongoing after the Trump administration signaled earlier that an agreement could be imminent.`\
-https://www.nytimes.com/video/world/middleeast/100000010924056/us-iran-peace-deal-rubio.html
 
 **As Delegations Gather in Qatar For Talks, U.S. Strikes Iran’s Gulf Coast**\
 `Iranian officials went to Doha on Monday for the negotiations, hours before the U.S. military announced the strikes it said were intended to protect troops. Israel’s leader said his country plans to intensify attacks against Hezbollah, Iran’s ally, in Lebanon.`\
