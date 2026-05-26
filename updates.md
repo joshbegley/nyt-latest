@@ -1,3 +1,15 @@
+**Fireball Falls From Space Over Erupting Volcano in the Philippines**\
+`Livestream video captured fireball falling from space on Monday, over the most active volcano in the Philippines.`\
+https://www.nytimes.com/video/science/space/100000010926624/volcano-eruption-fireball-mayon-philippines.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/science/space/100000010927341/26vid-topart-volcano.html
+
+**Texans Head to the Polls, Again**\
+`Plus, Ferrari’s first fully electric car. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/05/26/briefing/texas-primaries-iran.html
+
 **Democratic Incumbents Run Against Each Other After Republican Redistricting in Texas**\
 `A Republican-led redistricting effort forced Representative Al Green, who has served 11 terms, and Christian Menefee, one of the newest members of Congress, into a battle for the same seat.`\
 https://www.nytimes.com/2026/05/26/us/politics/texas-runoff-al-green-christian-menefee.html

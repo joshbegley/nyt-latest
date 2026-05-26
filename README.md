@@ -1,3 +1,7 @@
+**Just Tuning In? Here’s What to Know About the Midterms.**\
+`President Trump has sought revenge in G.O.P. primaries. Democrats have turned out to vote in large numbers. Republicans have gained a redistricting advantage.`\
+https://www.nytimes.com/2026/05/26/us/politics/midterm-primaries-primer.html
+
 **Fireball Falls From Space Over Erupting Volcano in the Philippines**\
 `Livestream video captured fireball falling from space on Monday, over the most active volcano in the Philippines.`\
 https://www.nytimes.com/video/science/space/100000010926624/volcano-eruption-fireball-mayon-philippines.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-19-
 **Texas 35th Congressional District Runoff 2026: Live Election Results**\
 `Get live results and maps from the 2026 Texas runoff election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-35-runoff.html
-
-**Texas First Congressional District Runoff 2026: Live Election Results, Alexander vs. Prince**\
-`Get live results and maps from the 2026 Texas runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-1-runoff.html
 
 **Texas Elections Live Updates: Republicans Vote in Senate Race Pitting Incumbency Against Trump Endorsement**\
 `Ken Paxton, the Texas attorney general, was endorsed by President Trump in his campaign against John Cornyn, a four-term Republican senator. The winner will face the Democratic nominee, James Talarico, in a race with nationwide implications.`\
