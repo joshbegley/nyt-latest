@@ -1,3 +1,7 @@
+**¿Estamos preparados para otra pandemia?**\
+`El hantavirus y el ébola nos recuerdan que los brotes son inevitables, y que el mundo debe trabajar en conjunto para contenerlos y prevenir la próxima pandemia.`\
+https://www.nytimes.com/es/2026/05/26/espanol/mundo/preparados-pandemia-hantavirus-ebola.html
+
 **Minibus Transporting Schoolchildren Is Hit by Train in Belgium**\
 `A Belgian official reacted with dismay after the vehicle carrying children, reportedly to a special needs school, was hit by a train.`\
 https://www.nytimes.com/2026/05/26/world/europe/belgium-minibus-train-collision-children.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/live/2026/05/26/world/iran-war-trump-deal
 **Las películas de este verano cambian la relación con sus juguetes promocionales**\
 `‘The Mandalorian and Grogu’, ‘Amos del universo’ y ‘Toy Story 5’ pertenecen a franquicias que están cambiando la conexión con sus productos relacionados.`\
 https://www.nytimes.com/es/2026/05/26/espanol/cultura/juguetes-peliculas.html
-
-**Texas Republican Candidates Face Off in Key Senate Race**\
-`Voters in Texas head to the polls on Tuesday for a Republican Senate runoff between the incumbent, John Cornyn, and a Trump-backed challenger, Ken Paxton.`\
-https://www.nytimes.com/video/us/100000010925127/texas-election-senate-republican-paxton-cornyn.html
 
