@@ -1,3 +1,7 @@
+**La autocomplacencia de Trump ahonda los temores su partido en las elecciones intermedias**\
+`“Las estupideces están acabando con nuestras posibilidades”, dijo un senador republicano.`\
+https://www.nytimes.com/es/2026/05/26/espanol/estados-unidos/partido-republicano-elecciones-intermedias.html
+
 **Iceland, Rattled by Trump’s Greenland Threats, Weighs Joining the E.U.**\
 `Iceland has stood apart from the rest of Europe. But President Trump’s threats to Greenland have provoked a reconsideration.`\
 https://www.nytimes.com/2026/05/26/world/europe/iceland-eu-membership-trump.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/05/25/crosswords/wordle-review-1802.html
 **NYT Strands Hints for May 26, 2026**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, May 26, 2026.`\
 https://www.nytimes.com/2026/05/25/crosswords/strands-sidekick-814.html
-
-**Lo que hay que saber sobre la crisis de la planta química de California**\
-`Los bomberos siguen enfriando con agua un tanque de almacenamiento de productos químicos para evitar que se rompa o explote. Unos 40.000 residentes cercanos a la planta del condado de Orange han sido evacuados a refugios.`\
-https://www.nytimes.com/es/2026/05/25/espanol/estados-unidos/garden-grove-planta-quimicos-evacuacion.html
 
 **As Delegations Gather in Qatar For Talks, U.S. Strikes Iran’s Gulf Coast**\
 `Iranian officials went to Doha on Monday for the negotiations, hours before the U.S. military announced the strikes it said were intended to protect troops. Israel’s leader said his country plans to intensify attacks against Hezbollah, Iran’s ally, in Lebanon.`\
