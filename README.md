@@ -1,9 +1,21 @@
+**A Dissident Escapes China by Rubber Boat and Lands in South Korea**\
+`Dong Guangping, 68, escaped China by sea at least three other times but was always sent back. His friends hope things might be different this time.`\
+https://www.nytimes.com/2026/05/26/world/asia/china-dissident-dong-guangping-south-korea.html
+
+**The Vatican Takes on Silicon Valley With an A.I. Warning**\
+`Pope Leo XIV’s encyclical on artificial intelligence puts technology giants on notice. But will it slow down the A.I. race?`\
+https://www.nytimes.com/2026/05/26/business/dealbook/vatican-ai-silicon-valley.html
+
+**OpenRouter, an Exchange for A.I. Models, Raises $113 Million**\
+`An investment arm of Alphabet is backing OpenRouter, which helps companies choose among hundreds of models for different software tasks.`\
+https://www.nytimes.com/2026/05/26/business/dealbook/openrouter-ai-models-fundraising.html
+
 **BP Ousts Chairman, Citing ‘Serious Concerns’ Over Conduct**\
 `The British oil group said that Albert Manifold had been removed, after concerns were raised “related to important governance standards, oversight and conduct.”`\
 https://www.nytimes.com/2026/05/26/business/bp-chairman-manifold.html
 
 **Can You Match the Places These Authors Lived With Settings in Their Books?**\
-`Home is where the heart is — and sometimes where authors set their books. Try this quiz to see how many locations you recognize.`\
+`Home is where the heart is — and sometimes where writers set their books. Try this quiz to see how many locations you recognize.`\
 https://www.nytimes.com/interactive/2026/05/26/books/review/author-towns-quiz.html
 
 **Election Live Updates: Texas Republicans Battle for Senate Nomination in Runoff**\
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/05/26/movies/armageddon-1998-michael-bay.html
 **Threat of Deportations Leads to Risky Childbirth for Haitian Mothers**\
 `Haitian women are having babies in squalid, unsupervised settings after the Dominican Republic started sending immigration agents to detain migrants at hospitals.`\
 https://www.nytimes.com/2026/05/26/world/americas/dominican-republic-haiti-hospital-deportations.html
-
-**A Powerful H.I.V. Drug Lands in Zambia. But Will It Reach Those Who Need It?**\
-`Lenacapavir, which protects people from H.I.V. infection with twice-yearly shots, is arriving in a country where the health system has been hollowed out by American aid cuts.`\
-https://www.nytimes.com/2026/05/26/health/lenacapavir-hiv-zambia.html
-
-**I Drool in My Sleep. Is That Normal?**\
-`Saliva is important for our health, but even a little dribble can be embarrassing. Experts explain why it happens.`\
-https://www.nytimes.com/2026/05/26/well/i-drool-in-my-sleep-is-that-normal.html
-
-**Where to See the Total Solar Eclipse on Aug. 12**\
-`On Aug. 12, parts of Greenland, Iceland, Spain and Portugal will experience the thrill of daytime darkness. Here’s where you can witness the cosmic spectacle.`\
-https://www.nytimes.com/2026/05/26/travel/solar-eclipse-spain-iceland-greenland.html
 
