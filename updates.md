@@ -1,3 +1,11 @@
+**Four Killed in Belgium After Train Collides With School Van**\
+`A train struck a van carrying schoolchildren in Belgium, killing two children and two adults, officials said. Five more children were taken to the hospital in critical condition.`\
+https://www.nytimes.com/video/world/europe/100000010925480/belgium-bus-train-crash-deaths.html
+
+**Today, In Short**\
+`“Tanmaxxing.” The New York Knicks. And the best beach reads.`\
+https://www.nytimes.com/2026/05/26/briefing/today-in-short.html
+
 **Alabama Federal Judges Reject House Map**\
 `A panel of federal judges on Tuesday rejected Alabama’s effort to use a new voting map for the November midterm elections, a decision that is likely to be appealed to the Supreme Court.`\
 https://www.nytimes.com/interactive/2026/05/26/us/alabama-house-map-ruling-doc.html
