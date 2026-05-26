@@ -1,3 +1,23 @@
+**After Being Deported Back to the Country They Fled, Can a Family Build a New Life?**\
+`After being removed from the United States, a family tries to rebuild their life back in Colombia.`\
+https://www.nytimes.com/interactive/2026/05/26/magazine/us-immigration-family-deportation-colombia.html
+
+**How Nicolas Cage Escaped His Tumultuous Childhood**\
+`“TV was the savior of my childhood,” Nicolas Cage says on “The Interview.” He also spent time digging a hole to China and performing tricks on his Huffy bike — until they took it away.`\
+https://www.nytimes.com/video/podcasts/100000010926773/how-nicolas-cage-escaped-his-tumultuous-childhood.html
+
+**What Nicolas Cage Thinks of Becoming a Meme**\
+`Nicolas Cage’s outsized acting style has led to his work being frequently memed on the Internet. On “The Interview,” He talked about what it’s like to see his memorable acting moments turned into GIFs.`\
+https://www.nytimes.com/video/podcasts/100000010926740/what-nicolas-cage-thinks-of-becoming-a-meme.html
+
+**Robert Daley, Multifaceted Author of ‘Prince of the City,’ Dies at 96**\
+`He wrote 31 books, often drawing on his experiences as a pro football publicist, a foreign correspondent and a gun-toting spokesman for the N.Y.P.D.`\
+https://www.nytimes.com/2026/05/26/nyregion/robert-daley-dead.html
+
+**Judge Lets Stand a Florida House Map That Could Add 4 Republican Seats**\
+`The plaintiffs had argued that the map violated a state ban on partisan gerrymandering that the state’s voters passed in 2010.`\
+https://www.nytimes.com/2026/05/26/us/florida-congress-map-redistricting.html
+
 **A Cod Boat, a Coast Guard Flight and a Lot of Debate About the E.U.**\
 `Iceland may try to join the European Union. A reporter battled seasickness on a fishing trip and strapped herself into a Coast Guard plane to understand how Icelanders felt about the prospect.`\
 https://www.nytimes.com/2026/05/26/insider/iceland-eu.html
@@ -165,26 +185,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-texas-criminal-app
 **Texas Fifth Congressional District Runoff 2026: Live Election Results, Hockett vs. Torres**\
 `Get live results and maps from the 2026 Texas runoff election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-5-runoff.html
-
-**Ben Morea, Principal Provocateur of 1960s Anarchist Group, Dies at 84**\
-`An abstract painter who wanted to creatively destroy the gap between art and revolution, he loosely led a band of radicals with a profane name.`\
-https://www.nytimes.com/2026/05/26/us/ben-morea-dead.html
-
-**Find Hokkaido Scallop Wellington From an Atomix Alumnus at 28 Nomad**\
-`The Silent Sea brings more seafood to City Island, the Ludlow Room provides more seating for Katz’s and more restaurant news.`\
-https://www.nytimes.com/2026/05/26/dining/nyc-restaurant-news.html
-
-**Supreme Court Reverses Ruling in Immigration Judges’ Free Speech Lawsuit**\
-`A group of immigration judges in 2020 challenged work-related restrictions on their public speaking engagements, saying they violated their free speech rights.`\
-https://www.nytimes.com/2026/05/26/us/politics/supreme-court-immigration-judges.html
-
-**Record Heat Grips Parts of Europe**\
-`Heat records in parts of Western Europe have been smashed, with weather agencies describing the spring heat wave as “unprecedented” and “remarkable.”`\
-https://www.nytimes.com/video/world/europe/100000010925435/europe-heat-wave-spring.html
-
-**A Spring Heat Wave is Breaking Records in the U.K., Spain and France**\
-`Authorities in Britain and France warned that “unprecedented” temperatures — at a time when few expected them — could persist. Climate change has made heat waves more frequent and more intense.`\
-https://www.nytimes.com/2026/05/26/world/europe/europe-heatwave-uk-spain-france.html
 
 **Texas Elections Live Updates: Republicans Vote in Senate Race Pitting Incumbency Against Trump Endorsement**\
 `Ken Paxton, the Texas attorney general, was endorsed by President Trump in his campaign against John Cornyn, a four-term Republican senator. The winner will face the Democratic nominee, James Talarico, in a race with major nationwide implications.`\

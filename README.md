@@ -1,3 +1,15 @@
+**The Jaw-Dropping Cost of the Texas Senate Primary: Nearly $130 Million**\
+`The race between Senator John Cornyn and his right-wing rival, Ken Paxton, has cost mountains of cash. More of it has gone to help Mr. Cornyn — but that money may not be enough.`\
+https://www.nytimes.com/2026/05/26/us/politics/cornyn-paxton-texas-senate-primary-spending.html
+
+**La primera encíclica del papa León XIV: puntos clave**\
+`En su carta, el primer pontífice estadounidense pide que se sitúe el cuidado de los seres humanos en el centro del cambio tecnológico.`\
+https://www.nytimes.com/es/2026/05/26/espanol/estados-unidos/enciclica-papa-leon-ia.html
+
+**Nicolas Cage Fact-Checks Wild Stories About Nicolas Cage**\
+`Is that Nicolas Cage story you heard fact or fiction? David Marchese asked the actor to clear up some of the stories that have circulated about him over the years on “The Interview.”`\
+https://www.nytimes.com/video/podcasts/100000010926809/nicolas-cage-fact-checks-wild-stories-about-nicolas-cage.html
+
 **After Being Deported Back to the Country They Fled, Can a Family Build a New Life?**\
 `After being removed from the United States, a family tries to rebuild their life back in Colombia.`\
 https://www.nytimes.com/interactive/2026/05/26/magazine/us-immigration-family-deportation-colombia.html
@@ -63,7 +75,7 @@ https://www.nytimes.com/es/2026/05/26/espanol/mundo/israel-ataques-libano-hizbul
 https://www.nytimes.com/2026/05/26/style/oakley-osaka-french-open.html
 
 **Deaths Reported After Chemical Tank Ruptures at Longview Nippon Facility**\
-`An unknown number of injuries were also reported at the Nippon Dynawave Packaging Company in Longview, Wash., the authorities said.`\
+`Ten people, including a firefighter, were injured after the rupture at the Nippon Dynawave Packaging Company in Longview, Wash., the authorities said.`\
 https://www.nytimes.com/2026/05/26/us/chemical-explosion-nippon-longview-washington.html
 
 **South Carolina Redistricting: Senate Passes on New Map, Defying Trump**\
@@ -173,18 +185,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-17-
 **Texas Attorney General Runoff 2026: Live Election Results**\
 `Get live results and maps from the 2026 Texas runoff election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-texas-attorney-general-runoff.html
-
-**Texas Railroad Commissioner Runoff 2026: Live Election Results**\
-`Get live results and maps from the 2026 Texas runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-texas-railroad-commissioner-runoff.html
-
-**Texas Criminal Appeals Court Runoff 2026: Live Election Results**\
-`Get live results and maps from the 2026 Texas runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-texas-criminal-appeals-court-runoff.html
-
-**Texas Fifth Congressional District Runoff 2026: Live Election Results, Hockett vs. Torres**\
-`Get live results and maps from the 2026 Texas runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-5-runoff.html
 
 **Texas Elections Live Updates: Republicans Vote in Senate Race Pitting Incumbency Against Trump Endorsement**\
 `Ken Paxton, the Texas attorney general, was endorsed by President Trump in his campaign against John Cornyn, a four-term Republican senator. The winner will face the Democratic nominee, James Talarico, in a race with major nationwide implications.`\

@@ -1,3 +1,23 @@
+**After Being Deported Back to the Country They Fled, Can a Family Build a New Life?**\
+`After being removed from the United States, a family tries to rebuild their life back in Colombia.`\
+https://www.nytimes.com/interactive/2026/05/26/magazine/us-immigration-family-deportation-colombia.html
+
+**How Nicolas Cage Escaped His Tumultuous Childhood**\
+`“TV was the savior of my childhood,” Nicolas Cage says on “The Interview.” He also spent time digging a hole to China and performing tricks on his Huffy bike — until they took it away.`\
+https://www.nytimes.com/video/podcasts/100000010926773/how-nicolas-cage-escaped-his-tumultuous-childhood.html
+
+**What Nicolas Cage Thinks of Becoming a Meme**\
+`Nicolas Cage’s outsized acting style has led to his work being frequently memed on the Internet. On “The Interview,” He talked about what it’s like to see his memorable acting moments turned into GIFs.`\
+https://www.nytimes.com/video/podcasts/100000010926740/what-nicolas-cage-thinks-of-becoming-a-meme.html
+
+**Robert Daley, Multifaceted Author of ‘Prince of the City,’ Dies at 96**\
+`He wrote 31 books, often drawing on his experiences as a pro football publicist, a foreign correspondent and a gun-toting spokesman for the N.Y.P.D.`\
+https://www.nytimes.com/2026/05/26/nyregion/robert-daley-dead.html
+
+**Judge Lets Stand a Florida House Map That Could Add 4 Republican Seats**\
+`The plaintiffs had argued that the map violated a state ban on partisan gerrymandering that the state’s voters passed in 2010.`\
+https://www.nytimes.com/2026/05/26/us/florida-congress-map-redistricting.html
+
 **A Cod Boat, a Coast Guard Flight and a Lot of Debate About the E.U.**\
 `Iceland may try to join the European Union. A reporter battled seasickness on a fishing trip and strapped herself into a Coast Guard plane to understand how Icelanders felt about the prospect.`\
 https://www.nytimes.com/2026/05/26/insider/iceland-eu.html
