@@ -1,3 +1,23 @@
+**Manny Fernandez, Bulwark of Dolphins’ Defense, Dies at 79**\
+`He played a critical part in Miami’s 17-0 season in 1972, which ended with his spectacular defense in Super Bowl VII against Washington.`\
+https://www.nytimes.com/2026/05/26/us/manny-fernandez-dead.html
+
+**High-Level British Spy Warns of Expanding Russia Threat**\
+`The director of Britain’s electronic surveillance agency warns that Russia is only getting more brazen as battlefield losses in Ukraine mount.`\
+https://www.nytimes.com/2026/05/26/world/europe/britain-gchq-spying-russia.html
+
+**‘Chess’ Will Close With Lea Michele’s Departure, in a Change of Plans**\
+`The Broadway musical had planned to keep going, but box-office sales made clear Michele’s appeal was essential. It will now close June 21.`\
+https://www.nytimes.com/2026/05/26/theater/broadway-chess-closing-lea-michele.html
+
+**Runoff Polls in Texas Senate Contest Have Favored Ken Paxton**\
+`Mr. Paxton, a Texas Senate candidate, has led Senator John Cornyn in all but one independent poll in the Republican primary runoff.`\
+https://www.nytimes.com/2026/05/26/us/politics/runoff-polls-texas-paxton-cornyn.html
+
+**It’s Crow, Mr. Trump, Not Lobster**\
+`Whatever deal is reached between the United States and Iran, Trump will have to make a big concession: A murderous regime remains intact.`\
+https://www.nytimes.com/2026/05/26/opinion/iran-deal-trump-us.html
+
 **Judge Lifts West Point’s Restrictions on Civilian Professors’ Speech**\
 `A federal judge also said that the government had offered no real justification for limiting a professor’s ability to express opinions in the classroom at the U.S. Military Academy.`\
 https://www.nytimes.com/2026/05/26/nyregion/west-point-trump-free-speech.html
