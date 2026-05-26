@@ -1,3 +1,7 @@
+**Rescuers in Laos Scramble to Reach 7 People Trapped in Flooded Cave**\
+`The group, which was searching for gold, has been trapped for almost a week. Divers who were involved in the 2018 rescue of a Thai youth soccer team have joined the operation.`\
+https://www.nytimes.com/2026/05/26/world/asia/laos-cave-rescue.html
+
 **‘Celebrity Jeopardy!’ Film Study (Championship Edition)**\
 `ESPN football analyst Mina Kimes explains how she dominated the tournament.`\
 https://www.nytimes.com/2026/05/26/podcasts/celebrity-jeopardy-film-study-championship-edition.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/26/crosswords/spelling-bee-forum.html
 **Palabra del día en inglés: ‘inchoate’**\
 `Esta palabra ha aparecido en 31 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
 https://www.nytimes.com/es/2026/05/26/espanol/que-significa-inchoate.html
-
-**Por qué no puedo dejar a mi esposo infiel serial**\
-`Nuestra columnista de Pregúntale a la terapeuta, Lori Gottlieb, aconseja a una lectora que se siente atrapada a pesar de una serie de infidelidades.`\
-https://www.nytimes.com/es/2026/05/26/espanol/estilos-de-vida/infidelidad-esposo.html
 
