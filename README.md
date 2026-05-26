@@ -1,5 +1,5 @@
 **A Dissident Escapes China by Rubber Boat and Lands in South Korea**\
-`Dong Guangping, 68, escaped China by sea at least three other times but was always sent back. His friends hope things might be different this time.`\
+`Dong Guangping, 68, fled China at least three other times but was always sent back. His friends hope things might be different this time.`\
 https://www.nytimes.com/2026/05/26/world/asia/china-dissident-dong-guangping-south-korea.html
 
 **The Vatican Takes on Silicon Valley With an A.I. Warning**\
