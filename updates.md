@@ -1,3 +1,31 @@
+**White House Shakes Up Green Card Policy, and the Pope Takes On A.I.**\
+`Plus, will anyone want an electric Ferrari?`\
+https://www.nytimes.com/2026/05/26/podcasts/the-headlines/white-house-green-card-pope-ai.html
+
+**A Flood of New, Deadlier Drugs**\
+`“The Daily” speaks with Azam Ahmed, a New York Times international investigative correspondent, about his latest piece on the synthetic drug crisis.`\
+https://www.nytimes.com/2026/05/26/podcasts/the-daily/deadly-synthetic-drugs.html
+
+**NYT Connections Answers for May 26, 2025**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, May 27, 2026.`\
+https://www.nytimes.com/2026/05/26/crosswords/connections-companion-1081.html
+
+**NYT Strands Hints for May 27, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, May 27, 2026.`\
+https://www.nytimes.com/2026/05/26/crosswords/strands-sidekick-815.html
+
+**Today’s Wordle Hints for May 27, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, May 27, 2026.`\
+https://www.nytimes.com/2026/05/26/crosswords/wordle-review-1803.html
+
+**‘Celebrity Jeopardy!’ Film Study (Championship Edition)**\
+`ESPN football analyst Mina Kimes explains how she dominated the game show.`\
+https://www.nytimes.com/2026/05/26/podcasts/celebrity-jeopardy-film-study-championship-edition.html
+
+**Iran War Live Updates: Tensions Rise as Iran Threatens to Retaliate Against U.S. Strikes**\
+`The threat came hours after American military forces renewed attacks in southern Iran, even as fragile diplomacy efforts to end the war continued.`\
+https://www.nytimes.com/live/2026/05/26/world/iran-war-trump-deal
+
 **The Hard Truth My Party Needs to Face**\
 `We must use our leverage to end Israel’s occupation and establish two states with full political and legal rights for all.`\
 https://www.nytimes.com/2026/05/26/opinion/democrats-israel.html
