@@ -1,3 +1,15 @@
+**Palabra del día en inglés: ‘inchoate’**\
+`Esta palabra ha aparecido en 31 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/05/26/espanol/que-significa-inchoate.html
+
+**Por qué no puedo dejar a mi esposo infiel serial**\
+`Nuestra columnista de Pregúntale a la terapeuta, Lori Gottlieb, aconseja a una lectora que se siente atrapada a pesar de una serie de infidelidades.`\
+https://www.nytimes.com/es/2026/05/26/espanol/estilos-de-vida/infidelidad-esposo.html
+
+**Word of the Day: inchoate**\
+`This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/05/26/learning/word-of-the-day-inchoate.html
+
 **La autocomplacencia de Trump ahonda los temores su partido en las elecciones intermedias**\
 `“Las estupideces están acabando con nuestras posibilidades”, dijo un senador republicano.`\
 https://www.nytimes.com/es/2026/05/26/espanol/estados-unidos/partido-republicano-elecciones-intermedias.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/2026/05/25/briefing/a-poem-for-memorial-day.html
 **U.S.-Iran Peace Deal Is Still a ‘Work in Progress,’ Rubio Says**\
 `Secretary of State Marco Rubio said that peace talks between the United States and Iran were still ongoing after the Trump administration signaled earlier that an agreement could be imminent.`\
 https://www.nytimes.com/video/world/middleeast/100000010924056/us-iran-peace-deal-rubio.html
-
-**NYT Connections Answers for May 26, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, May 26, 2026.`\
-https://www.nytimes.com/2026/05/25/crosswords/connections-companion-1080.html
-
-**Today’s Wordle Hints for May 26, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, May 26, 2026.`\
-https://www.nytimes.com/2026/05/25/crosswords/wordle-review-1802.html
-
-**NYT Strands Hints for May 26, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, May 26, 2026.`\
-https://www.nytimes.com/2026/05/25/crosswords/strands-sidekick-814.html
 
 **As Delegations Gather in Qatar For Talks, U.S. Strikes Iran’s Gulf Coast**\
 `Iranian officials went to Doha on Monday for the negotiations, hours before the U.S. military announced the strikes it said were intended to protect troops. Israel’s leader said his country plans to intensify attacks against Hezbollah, Iran’s ally, in Lebanon.`\
