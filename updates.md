@@ -1,3 +1,19 @@
+**White House Unveils Plans for UFC Fight on Trump’s Birthday**\
+`The Ultimate Fighting Championship bout is scheduled for June 14, President Trump’s 80th birthday.`\
+https://www.nytimes.com/2026/05/26/us/politics/ufc-fight-trump-white-house.html
+
+**Ferrari presenta el Luce, su primer coche eléctrico**\
+`El fabricante italiano de coches deportivos presentó el Luce, su primer modelo 100% eléctrico. El vehículo representa una de las mayores apuestas en la historia de la compañía.`\
+https://www.nytimes.com/es/2026/05/26/espanol/negocios/ferrari-electrico.html
+
+**SpaceX IPO Filing Reveals Favorable Terms for Elon Musk**\
+`The ways it set up its board and Mr. Musk’s pay appear to benefit him at the expense of other shareholders, corporate governance experts said.`\
+https://www.nytimes.com/2026/05/26/technology/spacex-elon-musk-pay-board-governance.html
+
+**Israel Steps Up Lebanon Offensive as U.S. Pushes for Iran Peace Deal**\
+`Hezbollah, the Iran-backed militant group, has also kept up rocket and drone attacks on Israeli troops, as the escalation threatens to complicate diplomatic efforts.`\
+https://www.nytimes.com/2026/05/26/world/middleeast/israel-strikes-escalation-lebanon.html
+
 **Four Killed in Belgium After Train Collides With School Van**\
 `A train struck a van carrying schoolchildren in Belgium, killing two children and two adults, officials said. Five more children were taken to the hospital in critical condition.`\
 https://www.nytimes.com/video/world/europe/100000010925480/belgium-bus-train-crash-deaths.html
