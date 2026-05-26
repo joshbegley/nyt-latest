@@ -1,3 +1,11 @@
+**The Case for Ugly-Cool Sunglasses**\
+`Shiny, wraparound, functional — Oakleys at the French Open. Plus other tennis style moments and more.`\
+https://www.nytimes.com/2026/05/26/style/oakley-osaka-french-open.html
+
+**Injuries Reported After Chemical Implosion at Washington State Paper Mill**\
+`The episode at the Nippon Dynawave Packaging Company plant in Longview, Wash., involved a vat of a chemical treatment product, the authorities said.`\
+https://www.nytimes.com/2026/05/26/us/chemical-explosion-nippon-longview-washington.html
+
 **South Carolina Senate Does Not Act on New Midterm Map, Defying Trump**\
 `With early voting already underway, it became clear there was no longer enough support to use new lines before the November midterm elections.`\
 https://www.nytimes.com/2026/05/26/us/south-carolina-redistricting-map.html
@@ -7,7 +15,7 @@ https://www.nytimes.com/2026/05/26/us/south-carolina-redistricting-map.html
 https://www.nytimes.com/2026/05/26/opinion/iran-deal-truce-trump.html
 
 **Knicks Fans Celebrate the Team’s First NBA Finals Appearance Since 1999**\
-`After a 27-year drought, the New York Knicks are headed to the N.B.A. Finals. Fans flooded the streets of the city in celebration.`\
+`After a 27-year drought, the New York Knicks are headed to the N.B.A. finals. Fans flooded the streets of the city in celebration.`\
 https://www.nytimes.com/2026/05/26/nyregion/knicks-eastern-conference-nyc.html
 
 **5 Great Songs I Encountered This Week**\
@@ -177,22 +185,6 @@ https://www.nytimes.com/2026/05/26/technology/spacex-elon-musk-pay-board-governa
 **Eclipse solar total en agosto: cómo y dónde verlo**\
 `Partes de Groenlandia, Islandia, España y Portugal experimentarán la emoción de la oscuridad diurna. Aquí tienes dónde puedes presenciar el espectáculo cósmico.`\
 https://www.nytimes.com/es/2026/05/26/espanol/eclipse-solar-total-2026.html
-
-**Iran Begins Lifting Monthslong Internet Blackout, Officials Say**\
-`Organizations that track online traffic confirmed an uptick in activity on Tuesday, as Iranians reconnected to the global internet after a government-imposed shutdown.`\
-https://www.nytimes.com/2026/05/26/world/middleeast/iran-internet-blackout-lifting.html
-
-**Restaurant Review: Komal in Los Angeles**\
-`At Komal, a molino and restaurant inside Mercado La Paloma, the chef Fátima Júarez dials in the rich beauty of Mexican antojitos.`\
-https://www.nytimes.com/2026/05/26/dining/restaurant-review-komal-los-angeles.html
-
-**Conservationists Install Artificial Reefs Where Corals Once Stood**\
-`Miles of coral reef around Pom Pom Island in Malaysia have been ruined by climate change and blast fishing. A conservation group hopes to restore the area by installing concrete structures that mimic natural reefs.`\
-https://www.nytimes.com/video/world/asia/100000010925558/coral-reefs-conservation-artificial.html
-
-**Trump Declares Himself in Good Health After Physical Exam at Walter Reed**\
-`President Trump, who will turn 80 next month, did not give details on the exam.`\
-https://www.nytimes.com/2026/05/26/us/politics/trump-physical-walter-reed.html
 
 **Texas Elections Live Updates: Republican Voters Choosing Nominee for Key Senate Battle**\
 `Ken Paxton, the Texas attorney general, was endorsed by President Trump in his campaign against John Cornyn, a four-term Republican senator. The winner will face the Democratic nominee, James Talarico, in a race with major nationwide implications.`\

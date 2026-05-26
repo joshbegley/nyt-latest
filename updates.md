@@ -1,3 +1,15 @@
+**The Case for Ugly-Cool Sunglasses**\
+`Shiny, wraparound, functional — Oakleys at the French Open. Plus other tennis style moments and more.`\
+https://www.nytimes.com/2026/05/26/style/oakley-osaka-french-open.html
+
+**Injuries Reported After Chemical Implosion at Washington State Paper Mill**\
+`The episode at the Nippon Dynawave Packaging Company plant in Longview, Wash., involved a vat of a chemical treatment product, the authorities said.`\
+https://www.nytimes.com/2026/05/26/us/chemical-explosion-nippon-longview-washington.html
+
+**Knicks Fans Celebrate the Team’s First NBA Finals Appearance Since 1999**\
+`After a 27-year drought, the New York Knicks are headed to the N.B.A. finals. Fans flooded the streets of the city in celebration.`\
+https://www.nytimes.com/2026/05/26/nyregion/knicks-eastern-conference-nyc.html
+
 **South Carolina Senate Does Not Act on New Midterm Map, Defying Trump**\
 `With early voting already underway, it became clear there was no longer enough support to use new lines before the November midterm elections.`\
 https://www.nytimes.com/2026/05/26/us/south-carolina-redistricting-map.html
