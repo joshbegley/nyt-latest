@@ -1,3 +1,11 @@
+**White House Unveils Plans for UFC Fight on Trump’s Birthday**\
+`The Ultimate Fighting Championship bout is scheduled for June 14, President Trump’s 80th birthday.`\
+https://www.nytimes.com/2026/05/26/us/politics/ufc-fight-trump-white-house.html
+
+**Ferrari presenta el Luce, su primer coche eléctrico**\
+`El fabricante italiano de coches deportivos presentó el Luce, su primer modelo 100% eléctrico. El vehículo representa una de las mayores apuestas en la historia de la compañía.`\
+https://www.nytimes.com/es/2026/05/26/espanol/negocios/ferrari-electrico.html
+
 **Four Killed in Belgium After Train Collides With School Van**\
 `A train struck a van carrying schoolchildren in Belgium, killing two children and two adults, officials said. Five more children were taken to the hospital in critical condition.`\
 https://www.nytimes.com/video/world/europe/100000010925480/belgium-bus-train-crash-deaths.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/05/26/arts/music/anthony-roth-costanzo-opera-philad
 **To Understand Pope Leo’s Efforts on A.I., Look at the Man Shaking His Hand**\
 `The co-founder of a prominent A.I. company was nearby as the pope implored A.I. leaders to slow down and consider the technology’s possible perils.`\
 https://www.nytimes.com/2026/05/26/us/pope-leo-ai-anthropic.html
-
-**Yuval Noah Harari on the Mistake Strongmen Keep Making**\
-`The best-selling author of “Sapiens” and “Nexus” discusses the core delusions deranging our politics.`\
-https://www.nytimes.com/video/opinion/100000010916807/yuval-noah-harari-on-the-mistake-strongmen-keep-making.html
-
-**Scientists Ditched a Scary Climate Scenario. What Now?**\
-`While global warming is still a threat, the decision to back away from a worst-case outlook raises questions about whether some risks have been overstated.`\
-https://www.nytimes.com/2026/05/26/climate/emissions-worst-case-scenario-rcp.html
 
