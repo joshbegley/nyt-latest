@@ -1,3 +1,15 @@
+**Trump Undergoes a Physical Exam at Walter Reed**\
+`President Trump, whose health has been a subject of public scrutiny, will turn 80 next month.`\
+https://www.nytimes.com/2026/05/26/us/politics/trump-physical-walter-reed.html
+
+**G.D.P. Is a Flawed Measure of Prosperity. Alternatives Are On the Way.**\
+`The United Nations has a new plan for weighing economic gains alongside health and environmental progress. But consensus is elusive.`\
+https://www.nytimes.com/2026/05/26/business/economy/gdp-united-nations-prosperity-measures.html
+
+**Texas Elections Live Updates: Cornyn and Paxton Battle for Senate Nomination**\
+`Ken Paxton was endorsed by President Trump in his campaign against John Cornyn, a four-term Republican senator. The winner will face James Talarico, a Democrat, in November.`\
+https://www.nytimes.com/live/2026/05/26/us/texas-primary-runoff-elections
+
 **Eli Lilly to Buy 3 Vaccine Developers**\
 `The drugmaker said it would spend up to $4 billion to acquire small companies exploring vaccines for shingles, Epstein-Barr virus and other pathogens.`\
 https://www.nytimes.com/2026/05/26/business/eli-lilly-vaccines-shingles-epstein-barr.html

@@ -1,3 +1,11 @@
+**Trump Undergoes a Physical Exam at Walter Reed**\
+`President Trump, whose health has been a subject of public scrutiny, will turn 80 next month.`\
+https://www.nytimes.com/2026/05/26/us/politics/trump-physical-walter-reed.html
+
+**G.D.P. Is a Flawed Measure of Prosperity. Alternatives Are On the Way.**\
+`The United Nations has a new plan for weighing economic gains alongside health and environmental progress. But consensus is elusive.`\
+https://www.nytimes.com/2026/05/26/business/economy/gdp-united-nations-prosperity-measures.html
+
 **Eli Lilly to Buy 3 Vaccine Developers**\
 `The drugmaker said it would spend up to $4 billion to acquire small companies exploring vaccines for shingles, Epstein-Barr virus and other pathogens.`\
 https://www.nytimes.com/2026/05/26/business/eli-lilly-vaccines-shingles-epstein-barr.html
@@ -58,7 +66,7 @@ https://www.nytimes.com/2026/05/26/business/bp-chairman-manifold.html
 `Home is where the heart is — and sometimes where writers set their books. Try this quiz to see how many locations you recognize.`\
 https://www.nytimes.com/interactive/2026/05/26/books/review/author-towns-quiz.html
 
-**Election Live Updates: Texas Republicans Battle for Senate Nomination in Runoff**\
+**Texas Elections Live Updates: Cornyn and Paxton Battle for Senate Nomination**\
 `Ken Paxton was endorsed by President Trump in his campaign against John Cornyn, a four-term Republican senator. The winner will face James Talarico, a Democrat, in November.`\
 https://www.nytimes.com/live/2026/05/26/us/texas-primary-runoff-elections
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/05/26/opinion/progressives-left-ai.html
 **The Hard Truth My Party Needs to Face**\
 `We must use our leverage to end Israel’s occupation and establish two states with full political and legal rights for all.`\
 https://www.nytimes.com/2026/05/26/opinion/democrats-israel.html
-
-**Book Review: ‘Freedom Round the Globe,’ by Sarah M.S. Pearsall**\
-`In “Freedom Round the Globe,” Sarah M.S. Pearsall tracks the stirrings of liberty beyond the British colonies that became the United States.`\
-https://www.nytimes.com/2026/05/26/books/review/freedom-round-the-globe-sarah-m-s-pearsall.html
-
-**Cycling in the Dutch Countryside, With a Riverboat as a Base**\
-`A weeklong, self-guided Netherlands biking tour, whose base is a riverboat, offers participants plenty of opportunities to get hopelessly, and entertainingly, lost.`\
-https://www.nytimes.com/2026/05/26/travel/bike-riding-in-the-netherlands.html
 
