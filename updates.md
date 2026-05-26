@@ -1,3 +1,11 @@
+**Find Hokkaido Scallop Wellington From an Atomix Alumnus at 28 Nomad**\
+`The Silent Sea brings more seafood to City Island, the Ludlow Room provides more seating for Katz’s and more restaurant news.`\
+https://www.nytimes.com/2026/05/26/dining/nyc-restaurant-news.html
+
+**A Spring Heat Wave is Breaking Records in the U.K., Spain and France**\
+`Authorities in Britain and France warned that “unprecedented” temperatures — at a time when few expected them — could persist. Climate change has made heat waves more frequent and more intense.`\
+https://www.nytimes.com/2026/05/26/world/europe/europe-heatwave-uk-spain-france.html
+
 **Supreme Court Reverses Ruling in Immigration Judges’ Free Speech Lawsuit**\
 `A group of immigration judges in 2020 challenged work-related restrictions on their public speaking engagements, saying they violated their free speech rights.`\
 https://www.nytimes.com/2026/05/26/us/politics/supreme-court-immigration-judges.html

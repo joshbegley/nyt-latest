@@ -1,3 +1,7 @@
+**Find Hokkaido Scallop Wellington From an Atomix Alumnus at 28 Nomad**\
+`The Silent Sea brings more seafood to City Island, the Ludlow Room provides more seating for Katz’s and more restaurant news.`\
+https://www.nytimes.com/2026/05/26/dining/nyc-restaurant-news.html
+
 **Supreme Court Reverses Ruling in Immigration Judges’ Free Speech Lawsuit**\
 `A group of immigration judges in 2020 challenged work-related restrictions on their public speaking engagements, saying they violated their free speech rights.`\
 https://www.nytimes.com/2026/05/26/us/politics/supreme-court-immigration-judges.html
@@ -6,9 +10,9 @@ https://www.nytimes.com/2026/05/26/us/politics/supreme-court-immigration-judges.
 `Heat records in parts of Western Europe have been smashed, with weather agencies describing the spring heat wave as “unprecedented” and “remarkable.”`\
 https://www.nytimes.com/video/world/europe/100000010925435/europe-heat-wave-spring.html
 
-**It’s Still Spring in Europe, but the Heat is Already Breaking Records**\
+**A Spring Heat Wave is Breaking Records in the U.K., Spain and France**\
 `Authorities in Britain and France warned that “unprecedented” temperatures — at a time when few expected them — could persist. Climate change has made heat waves more frequent and more intense.`\
-https://www.nytimes.com/2026/05/26/world/europe/its-still-spring-in-europe-but-the-heat-is-already-breaking-records.html
+https://www.nytimes.com/2026/05/26/world/europe/europe-heatwave-uk-spain-france.html
 
 **Paris School Worker Tried for Child Abuse in Widespread Assault Inquiry**\
 `The 36-year-old, named in the French news media as David G., is among more than 70 employees at schools in the capital who have been recently suspended or fired over allegations of sexual abuse and other misconduct.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/es/2026/05/26/espanol/mundo/muere-baobab-madagascar.html
 **At Chelsea Flower Show, a Gnome Controversy and Some ‘Good British Madness’**\
 `At the prestigious garden show, attendees jockeyed to buy prizewinning blooms and debated the role of whimsy as a ban on garden gnomes was temporarily lifted.`\
 https://www.nytimes.com/2026/05/26/world/europe/chelsea-flower-show-gnomes-uk.html
-
-**Mamdani’s Public Housing Plan Partly Relies on Private Sector**\
-`Mayor Zohran Mamdani’s new housing plan will include measures to improve New York City’s crumbling public housing system.`\
-https://www.nytimes.com/2026/05/26/nyregion/mamdani-housing-plan-nycha.html
 
