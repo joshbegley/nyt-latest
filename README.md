@@ -1,3 +1,7 @@
+**Thousands of Knicks Fans Celebrate As Team Heads to N.B.A. Finals**\
+`Fans celebrated the New York Knicks’ win after they swept the Cleveland Cavaliers on Monday, leading them to the N.B.A. Finals. The win sets the Knicks up for their first Finals appearance since 1999.`\
+https://www.nytimes.com/video/sports/basketball/100000010926060/thousands-of-knicks-fans-celebrate-as-team-heads-to-nba-finals.html
+
 **Canada Strikes Landmark Deal to Export Liquefied Natural Gas to Germany**\
 `The agreement is important for both nations, as Canada seeks new markets away from the United States and Germany tries to diversify its energy supply.`\
 https://www.nytimes.com/2026/05/26/world/canada/canada-germany-natural-gas-lng.html
@@ -14,8 +18,8 @@ https://www.nytimes.com/es/2026/05/26/espanol/mundo/israel-ataques-libano-hizbul
 `Shiny, wraparound, functional — Oakleys at the French Open. Plus other tennis style moments and more.`\
 https://www.nytimes.com/2026/05/26/style/oakley-osaka-french-open.html
 
-**Injuries Reported After Chemical Implosion at Washington State Paper Mill**\
-`The episode at the Nippon Dynawave Packaging Company plant in Longview, Wash., involved a vat of a chemical treatment product, the authorities said.`\
+**Deaths Are Reported After Chemical Tank Ruptures at Washington State Paper Mill**\
+`An unknown number of injuries were also reported at the Nippon Dynawave Packaging Company in Longview, Wash., the authorities said.`\
 https://www.nytimes.com/2026/05/26/us/chemical-explosion-nippon-longview-washington.html
 
 **South Carolina Senate Does Not Act on New Midterm Map, Defying Trump**\
