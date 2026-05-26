@@ -1,3 +1,11 @@
+**Belgium Crash Kills 4 as Train Hits School Van**\
+`Two children, 12 and 15, were among those killed in the crash near Brussels, officials said. The students in the van attended a special education school.`\
+https://www.nytimes.com/2026/05/26/world/europe/belgium-minibus-train-collision-children.html
+
+**What to Watch in Texas Runoff Elections: Trump Endorsements, Democratic Incumbents and More**\
+`All eyes will be on the Republican Senate runoff between the incumbent John Cornyn and Attorney General Ken Paxton. But Tuesday’s runoffs in Texas will feature other key contests.`\
+https://www.nytimes.com/2026/05/26/us/politics/texas-runoffs-cornyn-paxton.html
+
 **A Dissident Escapes China by Rubber Boat and Lands in South Korea**\
 `Dong Guangping, 68, fled China at least three other times but was always sent back. His friends hope things might be different this time.`\
 https://www.nytimes.com/2026/05/26/world/asia/china-dissident-dong-guangping-south-korea.html
