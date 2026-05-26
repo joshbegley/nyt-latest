@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/05/26/briefing/today-in-short.html
 `A panel of federal judges on Tuesday rejected Alabama’s effort to use a new voting map for the November midterm elections, a decision that is likely to be appealed to the Supreme Court.`\
 https://www.nytimes.com/interactive/2026/05/26/us/alabama-house-map-ruling-doc.html
 
-**SpaceX’s Unconventional Corporate Arrangements Favor Elon Musk**\
+**SpaceX IPO Filing Reveals Favorable Terms for Elon Musk**\
 `The ways it set up its board and Mr. Musk’s pay appear to benefit him at the expense of other shareholders, corporate governance experts said.`\
 https://www.nytimes.com/2026/05/26/technology/spacex-elon-musk-pay-board-governance.html
 
@@ -62,8 +62,8 @@ https://www.nytimes.com/2026/05/26/world/middleeast/trump-middle-east-peace-deal
 `Republicans have made gains with voters on education issues. A plan championed by Mr. Emanuel, a Democratic former mayor of Chicago, centers on college affordability.`\
 https://www.nytimes.com/2026/05/26/us/politics/rahm-emanuel-education.html
 
-**Israel Steps Up Strikes in Lebanon as U.S. Pushes for Iran Peace Deal**\
-`Hezbollah, the Iran-backed militant group, has also kept up rocket and drone attacks on Israeli troops, as the escalations threaten to complicate diplomatic efforts.`\
+**Israel Steps Up Lebanon Offensive as U.S. Pushes for Iran Peace Deal**\
+`Hezbollah, the Iran-backed militant group, has also kept up rocket and drone attacks on Israeli troops, as the escalation threatens to complicate diplomatic efforts.`\
 https://www.nytimes.com/2026/05/26/world/middleeast/israel-strikes-escalation-lebanon.html
 
 **L.A. Philharmonic Names Daniel Harding as Music Director**\
