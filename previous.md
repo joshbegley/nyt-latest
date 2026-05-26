@@ -1,3 +1,7 @@
+**Sonny Rollins, Giant of the Jazz Saxophone, Is Dead at 95**\
+`Even by the standards of a music that prizes individuality, he stood out, as both a musician and a personality.`\
+https://www.nytimes.com/2026/05/25/arts/music/sonny-rollins-dead.html
+
 **U.S. Carries Out ‘Self-Defense Strikes’ in Southern Iran**\
 `Military officials said that the strikes targeted missile sites near a major Iranian port that threatened U.S. ships.`\
 https://www.nytimes.com/2026/05/25/world/middleeast/us-iran-strikes.html
@@ -71,7 +75,7 @@ https://www.nytimes.com/video/weather/100000010924330/britain-london-heat-wave-w
 https://www.nytimes.com/2026/05/25/arts/music/lizzo-new-york-times-live-performance.html
 
 **Threat of Explosion From Toxic Chemical Tank Lessened, Officials Say**\
-`Residents who live near the site in Garden Grove, Calif., want to know when they can return home. Some complained about confusing messages from officials.`\
+`Officials announced that more than half of the 40,000 displaced residents could return home.`\
 https://www.nytimes.com/2026/05/25/us/chemical-tank-garden-grove.html
 
 **Trump busca hacer listas de ciudadanos en EE. UU: lo que hay que saber**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/es/2026/05/25/espanol/mundo/moscu-ataque-drones-ucrania.
 **Cubans Cook With Charcoal and Wood Fires to Survive During Energy Crisis**\
 `The U.S. oil blockade has left millions without cooking gas. In Santiago de Cuba, the cradle of the Cuban revolution, apartment tower residents resort to charcoal and firewood.`\
 https://www.nytimes.com/2026/05/25/world/americas/cuba-blackouts-fire-energy-oil.html
-
-**How Art Auctions Choreographed a $2.5 Billion Comeback**\
-`After four years of uneven sales, the auction houses engineered a successful season by redefining the expectations of buyers and sellers—and avoiding flops.`\
-https://www.nytimes.com/2026/05/25/arts/design/art-auctions-comeback-sothebys-christies.html
 

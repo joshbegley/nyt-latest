@@ -1,3 +1,11 @@
+**Sonny Rollins, Giant of the Jazz Saxophone, Is Dead at 95**\
+`Even by the standards of a music that prizes individuality, he stood out, as both a musician and a personality.`\
+https://www.nytimes.com/2026/05/25/arts/music/sonny-rollins-dead.html
+
+**Threat of Explosion From Toxic Chemical Tank Lessened, Officials Say**\
+`Officials announced that more than half of the 40,000 displaced residents could return home.`\
+https://www.nytimes.com/2026/05/25/us/chemical-tank-garden-grove.html
+
 **U.S. Carries Out ‘Self-Defense Strikes’ in Southern Iran**\
 `Military officials said that the strikes targeted missile sites near a major Iranian port that threatened U.S. ships.`\
 https://www.nytimes.com/2026/05/25/world/middleeast/us-iran-strikes.html
