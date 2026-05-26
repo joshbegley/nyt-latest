@@ -1,3 +1,7 @@
+**Alabama Federal Judges Reject House Map**\
+`A panel of federal judges on Tuesday rejected Alabama’s effort to use a new voting map for the November midterm elections, a decision that is likely to be appealed to the Supreme Court.`\
+https://www.nytimes.com/interactive/2026/05/26/us/alabama-house-map-ruling-doc.html
+
 **SpaceX’s Unconventional Corporate Arrangements Favor Elon Musk**\
 `The ways it set up its board and Mr. Musk’s pay appear to benefit him at the expense of other shareholders, corporate governance experts said.`\
 https://www.nytimes.com/2026/05/26/technology/spacex-elon-musk-pay-board-governance.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/26/realestate/gardening-madoo-sagaponack-bob-das
 **What to Watch in Texas Runoff Elections: Trump Endorsements, Democratic Incumbents and More**\
 `All eyes will be on the Republican Senate runoff between the incumbent John Cornyn and Attorney General Ken Paxton. But Tuesday’s runoffs in Texas will feature other key contests.`\
 https://www.nytimes.com/2026/05/26/us/politics/texas-runoffs-cornyn-paxton.html
-
-**Pope Leo’s Encyclical on A.I. Is Disappointingly Mild**\
-`“Magnifica Humanitas” was measured and cautious.`\
-https://www.nytimes.com/2026/05/26/opinion/pope-leo-encyclical-ai.html
 

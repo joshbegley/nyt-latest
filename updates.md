@@ -1,3 +1,7 @@
+**Alabama Federal Judges Reject House Map**\
+`A panel of federal judges on Tuesday rejected Alabama’s effort to use a new voting map for the November midterm elections, a decision that is likely to be appealed to the Supreme Court.`\
+https://www.nytimes.com/interactive/2026/05/26/us/alabama-house-map-ruling-doc.html
+
 **Court Rejects Alabama House Map, Calling It Unfair to Black Voters**\
 `Alabama is likely to appeal the ruling, which stops an effort to use a new congressional map that would likely cost Democrats a majority-Black district.`\
 https://www.nytimes.com/2026/05/26/us/politics/alabama-congress-map-redistricting.html
