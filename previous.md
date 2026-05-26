@@ -1,8 +1,16 @@
+**U.S. Said to Observe Escalating Threats From Iran Before Latest Strikes**\
+`Two U.S. officials said Iran launched drones near American ships, sent speedboats to mine the Strait of Hormuz, and stepped up activity at some of its missile sites.`\
+https://www.nytimes.com/2026/05/26/world/middleeast/us-iran-strikes.html
+
+**John Barbour, Who Played Key Role in the Rise of Reality TV, Dies at 93**\
+`He was a creator and producer of “Real People,” a hit NBC series about eccentrics and unusual lifestyles, which spawned imitators like “That’s Incredible!”`\
+https://www.nytimes.com/2026/05/26/arts/television/john-barbour-dead.html
+
 **Texas U.S. Senate Runoff Live Election Results 2026: Cornyn vs. Paxton**\
 `Get live results and maps from the 2026 Texas primary runoff election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-senate-runoff.html
 
-**Texas’s Redistricting Creates Intraparty Clashes Over House Seats**\
+**Texas’ Redistricting Creates Intraparty Clashes Over House Seats**\
 `The new congressional map Texas Republicans drew to favor the party has led to several contentious primary runoffs.`\
 https://www.nytimes.com/2026/05/26/us/politics/texas-congress-redistricting.html
 
@@ -186,15 +194,7 @@ https://www.nytimes.com/2026/05/26/theater/dreyfus-harris-janney-keery-other-des
 `President Trump’s proposal to end the war with Iran would delay tackling the most contentious issues — a tactic that has had mixed results in Gaza.`\
 https://www.nytimes.com/2026/05/26/world/middleeast/trump-middle-east-peace-deals.html
 
-**Rahm Emanuel, a Possible 2028 Contender, Calls for Higher Education Reforms**\
-`Republicans have made gains with voters on education issues. A plan championed by Mr. Emanuel, a Democratic former mayor of Chicago, centers on college affordability.`\
-https://www.nytimes.com/2026/05/26/us/politics/rahm-emanuel-education.html
-
-**Israel Steps Up Lebanon Offensive as U.S. Pushes for Iran Peace Deal**\
-`Hezbollah, the Iran-backed militant group, has also kept up rocket and drone attacks on Israeli troops, as the escalation threatens to complicate diplomatic efforts.`\
-https://www.nytimes.com/2026/05/26/world/middleeast/israel-strikes-escalation-lebanon.html
-
-**Texas Elections Live Updates: Cornyn and Paxton Battle for Senate Nomination**\
-`Ken Paxton was endorsed by President Trump in his campaign against John Cornyn, a four-term Republican senator. The winner will face James Talarico, a Democrat, in November.`\
+**Texas Elections Live Updates: Republican Voters Choosing Nominee for Key Senate Battle**\
+`Ken Paxton, the Texas attorney general, was endorsed by President Trump in his campaign against John Cornyn, a four-term Republican senator. The winner will face the Democratic nominee, James Talarico, in a race with major nationwide implications.`\
 https://www.nytimes.com/live/2026/05/26/us/texas-primary-runoff-elections
 
