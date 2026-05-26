@@ -1,3 +1,7 @@
+**Minibus Transporting Schoolchildren Is Hit by Train in Belgium**\
+`A Belgian official reacted with dismay after the vehicle carrying children, reportedly to a special needs school, was hit by a train.`\
+https://www.nytimes.com/2026/05/26/world/europe/belgium-minibus-train-collision-children.html
+
 **White House Shakes Up Green Card Policy, and the Pope Takes On A.I.**\
 `Plus, will anyone want an electric Ferrari?`\
 https://www.nytimes.com/2026/05/26/podcasts/the-headlines/white-house-green-card-pope-ai.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/05/26/espanol/cultura/juguetes-peliculas.html
 **Texas Republican Candidates Face Off in Key Senate Race**\
 `Voters in Texas head to the polls on Tuesday for a Republican Senate runoff between the incumbent, John Cornyn, and a Trump-backed challenger, Ken Paxton.`\
 https://www.nytimes.com/video/us/100000010925127/texas-election-senate-republican-paxton-cornyn.html
-
-**Evolving Warfare Connects the Conflicts in Ukraine and Iran**\
-`Aspects such as drone technology and diplomacy show how the wars intersect on the battlefield and in global alignments, providing a model for future conflicts.`\
-https://www.nytimes.com/2026/05/26/world/middleeast/iran-ukraine-wars-similarities.html
 
