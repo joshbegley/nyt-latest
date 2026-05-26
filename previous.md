@@ -194,7 +194,3 @@ https://www.nytimes.com/2026/05/26/us/data-centers-kassi-solberg.html
 `Madoo, in Sagaponack, N.Y., is giving visitors a different way to view a garden, with outdoor seating in a variety of styles and colors.`\
 https://www.nytimes.com/2026/05/26/realestate/gardening-madoo-sagaponack-bob-dash.html
 
-**What to Watch in Texas Runoff Elections: Trump Endorsements, Democratic Incumbents and More**\
-`All eyes will be on the Republican Senate runoff between the incumbent John Cornyn and Attorney General Ken Paxton. But Tuesday’s runoffs in Texas will feature other key contests.`\
-https://www.nytimes.com/2026/05/26/us/politics/texas-runoffs-cornyn-paxton.html
-

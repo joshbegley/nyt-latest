@@ -1,3 +1,11 @@
+**Four Killed in Belgium After Train Collides With School Van**\
+`A train struck a van carrying schoolchildren in Belgium, killing two children and two adults, officials said. Five more children were taken to the hospital in critical condition.`\
+https://www.nytimes.com/video/world/europe/100000010925480/belgium-bus-train-crash-deaths.html
+
+**Today, In Short**\
+`“Tanmaxxing.” The New York Knicks. And the best beach reads.`\
+https://www.nytimes.com/2026/05/26/briefing/today-in-short.html
+
 **Alabama Federal Judges Reject House Map**\
 `A panel of federal judges on Tuesday rejected Alabama’s effort to use a new voting map for the November midterm elections, a decision that is likely to be appealed to the Supreme Court.`\
 https://www.nytimes.com/interactive/2026/05/26/us/alabama-house-map-ruling-doc.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/video/opinion/100000010916807/yuval-noah-harari-on-the-m
 **Scientists Ditched a Scary Climate Scenario. What Now?**\
 `While global warming is still a threat, the decision to back away from a worst-case outlook raises questions about whether some risks have been overstated.`\
 https://www.nytimes.com/2026/05/26/climate/emissions-worst-case-scenario-rcp.html
-
-**The Homesteading Mother of 6 Taking On Big Tech**\
-`Kassi Solberg has concerns about a proposed data center complex, the size of 3,800 football fields, near her home. Trust us, the developer says.`\
-https://www.nytimes.com/2026/05/26/us/data-centers-kassi-solberg.html
-
-**Sometimes, the Best Way to Explore a Landscape Is to Sit Down**\
-`Madoo, in Sagaponack, N.Y., is giving visitors a different way to view a garden, with outdoor seating in a variety of styles and colors.`\
-https://www.nytimes.com/2026/05/26/realestate/gardening-madoo-sagaponack-bob-dash.html
 
