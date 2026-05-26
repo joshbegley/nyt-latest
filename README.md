@@ -58,7 +58,7 @@ https://www.nytimes.com/2026/05/26/us/politics/southern-poverty-law-center-doj.h
 `The country has always stood apart from the continent. Then President Trump started threatening Greenland.`\
 https://www.nytimes.com/2026/05/26/world/iceland-europe-iran-us-strikes.html
 
-**How Much Crow Will Trump Have to Eat on Iran?**\
+**It’s Crow, Mr. Trump, Not Lobster**\
 `Whatever deal is reached between the United States and Iran, Trump will have to make a big concession: A murderous regime remains intact.`\
 https://www.nytimes.com/2026/05/26/opinion/iran-deal-trump-us.html
 

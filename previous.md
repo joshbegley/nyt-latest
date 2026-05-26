@@ -1,3 +1,11 @@
+**Judge Lifts West Point’s Restrictions on Civilian Professors’ Speech**\
+`A federal judge also said that the government had offered no real justification for limiting a professor’s ability to express opinions in the classroom at the U.S. Military Academy.`\
+https://www.nytimes.com/2026/05/26/nyregion/west-point-trump-free-speech.html
+
+**How Cannes Is Grappling With Changes**\
+`Reporting from the Cannes Film Festival, our film critic Alissa Wilkinson describes how the event is both fending off and embracing aspects of artificial intelligence.`\
+https://www.nytimes.com/video/movies/100000010860400/alissa-reviews-cannes.html
+
 **A Fiery Visitor From Space Photo-Bombs an Erupting Volcano**\
 `For a split second, a fireball outshone the rivers of molten lava flowing from the Philippines’ most active volcano.`\
 https://www.nytimes.com/2026/05/26/science/volcano-eruption-fireball-philippines.html
@@ -173,14 +181,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-senate-ru
 **Texas’ Redistricting Creates Intraparty Clashes Over House Seats**\
 `The new congressional map Texas Republicans drew to favor the party has led to several contentious primary runoffs.`\
 https://www.nytimes.com/2026/05/26/us/politics/texas-congress-redistricting.html
-
-**Texas Runoff 2026: Live Primary Election Results**\
-`Get live results and maps from the 2026 Texas elections.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-texas-primary-runoff.html
-
-**Texas Seventh Congressional District Runoff 2026: Live Election Results, Cohen vs. Hale**\
-`Get live results and maps from the 2026 Texas runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-7-runoff.html
 
 **Texas Elections Live Updates: Republicans Vote in Senate Race Pitting Incumbency Against Trump Endorsement**\
 `Ken Paxton, the Texas attorney general, was endorsed by President Trump in his campaign against John Cornyn, a four-term Republican senator. The winner will face the Democratic nominee, James Talarico, in a race with nationwide implications.`\

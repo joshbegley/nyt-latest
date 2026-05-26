@@ -1,3 +1,11 @@
+**Judge Lifts West Point’s Restrictions on Civilian Professors’ Speech**\
+`A federal judge also said that the government had offered no real justification for limiting a professor’s ability to express opinions in the classroom at the U.S. Military Academy.`\
+https://www.nytimes.com/2026/05/26/nyregion/west-point-trump-free-speech.html
+
+**How Cannes Is Grappling With Changes**\
+`Reporting from the Cannes Film Festival, our film critic Alissa Wilkinson describes how the event is both fending off and embracing aspects of artificial intelligence.`\
+https://www.nytimes.com/video/movies/100000010860400/alissa-reviews-cannes.html
+
 **A Fiery Visitor From Space Photo-Bombs an Erupting Volcano**\
 `For a split second, a fireball outshone the rivers of molten lava flowing from the Philippines’ most active volcano.`\
 https://www.nytimes.com/2026/05/26/science/volcano-eruption-fireball-philippines.html
