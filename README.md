@@ -31,7 +31,7 @@ https://www.nytimes.com/2026/05/26/briefing/your-questions-answered.html
 https://www.nytimes.com/es/2026/05/26/espanol/mundo/preparados-pandemia-hantavirus-ebola.html
 
 **Belgium Crash Kills 4 as Train Hits School Van**\
-`Two children, 12 and 15, were among those killed in the crash near Brussels, officials said. The students on the van attended a special education school.`\
+`Two children, 12 and 15, were among those killed in the crash near Brussels, officials said. The students in the van attended a special education school.`\
 https://www.nytimes.com/2026/05/26/world/europe/belgium-minibus-train-collision-children.html
 
 **White House Shakes Up Green Card Policy, and the Pope Takes On A.I.**\
@@ -122,7 +122,7 @@ https://www.nytimes.com/2026/05/26/us/data-centers-kassi-solberg.html
 `Madoo, in Sagaponack, N.Y., is giving visitors a different way to view a garden, with outdoor seating in a variety of styles and colors.`\
 https://www.nytimes.com/2026/05/26/realestate/gardening-madoo-sagaponack-bob-dash.html
 
-**5 Races to Watch in Texas Runoffs on Tuesday**\
+**What to Watch in Texas Runoff Elections: Trump Endorsements, Democratic Incumbents and More**\
 `All eyes will be on the Republican Senate runoff between the incumbent John Cornyn and Attorney General Ken Paxton. But Tuesday’s runoffs in Texas will feature other key contests.`\
 https://www.nytimes.com/2026/05/26/us/politics/texas-runoffs-cornyn-paxton.html
 
