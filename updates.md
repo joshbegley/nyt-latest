@@ -1,3 +1,7 @@
+**Trump Administration Sues U.C.L.A. Again Over Antisemitism**\
+`The lawsuit is the second the government has filed this year against the school that has focused on pro-Palestinian protests in 2024.`\
+https://www.nytimes.com/2026/05/26/us/trump-lawsuit-ucla-antisemitism.html
+
 **Southern Poverty Law Center Accuses Justice Dept. of Vindictive Prosecution**\
 `Defense lawyers are increasingly accusing the Justice Department under President Trump of using its powers to prioritize the president’s political imperatives above the pursuit of actual justice.`\
 https://www.nytimes.com/2026/05/26/us/politics/southern-poverty-law-center-doj.html

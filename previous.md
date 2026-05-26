@@ -1,3 +1,7 @@
+**Trump Administration Sues U.C.L.A. Again Over Antisemitism**\
+`The lawsuit is the second the government has filed this year against the school that has focused on pro-Palestinian protests in 2024.`\
+https://www.nytimes.com/2026/05/26/us/trump-lawsuit-ucla-antisemitism.html
+
 **Southern Poverty Law Center Accuses Justice Dept. of Vindictive Prosecution**\
 `Defense lawyers are increasingly accusing the Justice Department under President Trump of using its powers to prioritize the president’s political imperatives above the pursuit of actual justice.`\
 https://www.nytimes.com/2026/05/26/us/politics/southern-poverty-law-center-doj.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-18-
 **Texas 16th Congressional District Runoff 2026: Live Election Results, Barraza vs. Bauman**\
 `Get live results and maps from the 2026 Texas runoff election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-16-runoff.html
-
-**Texas 38th Congressional District Runoff 2026: Live Election Results, Bonck vs. deZevallos**\
-`Get live results and maps from the 2026 Texas runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-38-runoff.html
 
 **Texas Elections Live Updates: Republicans Vote in Senate Race Pitting Incumbency Against Trump Endorsement**\
 `Ken Paxton, the Texas attorney general, was endorsed by President Trump in his campaign against John Cornyn, a four-term Republican senator. The winner will face the Democratic nominee, James Talarico, in a race with nationwide implications.`\
