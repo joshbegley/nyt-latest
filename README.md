@@ -1,3 +1,27 @@
+**Las deportaciones desde hospitales obligan a mujeres a tener partos riesgosos en casa**\
+`República Dominicana está enviando agentes migratorios a hospitales para detener migrantes, lo que orilla a las mujeres haitianas a dar a luz en condiciones insalubres y sin supervisión médica.`\
+https://www.nytimes.com/es/2026/05/26/espanol/america-latina/haiti-deportaciones-embarazadas-republica-dominicana.html
+
+**Yuval Noah Harari on the Mistake Strongmen Keep Making**\
+`The best-selling author of “Sapiens” and “Nexus” discusses the core delusions deranging our politics.`\
+https://www.nytimes.com/2026/05/26/opinion/ezra-klein-podcast-yuval-noah-harari.html
+
+**Al morir un árbol sagrado, su pueblo pierde una parte de sí mismo**\
+`Para una comunidad en Madagascar, que ha venerado durante mucho tiempo al árbol Tsitakakantsa, su posible desaparición representa la pérdida de un ancla espiritual.`\
+https://www.nytimes.com/es/2026/05/26/espanol/mundo/muere-baobab-madagascar.html
+
+**At Chelsea Flower Show, a Gnome Controversy and Some ‘Good British Madness’**\
+`At the prestigious garden show, attendees jockeyed to buy prizewinning blooms and debated the role of whimsy as a ban on garden gnomes was temporarily lifted.`\
+https://www.nytimes.com/2026/05/26/world/europe/chelsea-flower-show-gnomes-uk.html
+
+**Mamdani’s Public Housing Plan Partly Relies on Private Sector**\
+`Mayor Zohran Mamdani’s new housing plan will include measures to improve New York City’s crumbling public housing system.`\
+https://www.nytimes.com/2026/05/26/nyregion/mamdani-housing-plan-nycha.html
+
+**Radisson Hotel Sued by Parents Who Say 11-Year-Old Daughter Was Groped in Pool**\
+`A man, who was not a guest at the Miami Beach hotel, was accused of assaulting the girl in the hotel’s outdoor pool.`\
+https://www.nytimes.com/2026/05/26/travel/miami-beach-radisson-hotel-lawsuit.html
+
 **As Trump Politicizes Justice Dept., Prosecutors Struggle With Grand Juries**\
 `Judges and grand juries have increasingly lost faith in the Justice Department as the president uses it to reward his friends and go after his opponents.`\
 https://www.nytimes.com/2026/05/26/us/politics/trump-justice-department-grand-juries.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/es/2026/05/26/espanol/estilos-de-vida/infidelidad-esposo
 **Word of the Day: inchoate**\
 `This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/05/26/learning/word-of-the-day-inchoate.html
-
-**La autocomplacencia de Trump ahonda los temores su partido en las elecciones intermedias**\
-`“Las estupideces están acabando con nuestras posibilidades”, dijo un senador republicano.`\
-https://www.nytimes.com/es/2026/05/26/espanol/estados-unidos/partido-republicano-elecciones-intermedias.html
-
-**Iceland, Rattled by Trump’s Greenland Threats, Weighs Joining the E.U.**\
-`Iceland has stood apart from the rest of Europe. But President Trump’s threats to Greenland have provoked a reconsideration.`\
-https://www.nytimes.com/2026/05/26/world/europe/iceland-eu-membership-trump.html
-
-**Inside India’s Manipur State, Where Violence and Division Are Routine**\
-`Three years after riots tore apart Manipur, the state remains in disarray. Barbed wire and armed checkpoints made it difficult for Times reporters to cross, even before the recent clashes.`\
-https://www.nytimes.com/2026/05/26/world/asia/india-manipur-violence-ethnic-conflict.html
-
-**Corrections: May 26, 2026**\
-`Corrections that appeared in print on Tuesday, May 26, 2026.`\
-https://www.nytimes.com/2026/05/26/pageoneplus/corrections-may-26-2026.html
-
-**Quote of the Day: In New World, Gore Rethinks How to Save It**\
-`Quotation of the Day for Tuesday, May 26, 2026.`\
-https://www.nytimes.com/2026/05/25/pageoneplus/quote-of-the-day-in-new-world-gore-rethinks-how-to-save-it.html
-
-**Sonny Rollins: 12 Essential Albums**\
-`The towering saxophonist, who died at 95, was a master of living in the moment. Listen to some of his most compelling work, onstage and in the studio.`\
-https://www.nytimes.com/2026/05/25/arts/music/sonny-rollins-albums.html
 
