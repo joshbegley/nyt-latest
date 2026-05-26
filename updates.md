@@ -1,3 +1,23 @@
+**Southern Poverty Law Center Accuses Justice Dept. of Vindictive Prosecution**\
+`Defense lawyers are increasingly accusing the Justice Department under President Trump of using its powers to prioritize the president’s political imperatives above the pursuit of actual justice.`\
+https://www.nytimes.com/2026/05/26/us/politics/southern-poverty-law-center-doj.html
+
+**Iceland Warms to Europe**\
+`The country has always stood apart from the continent. Then President Trump started threatening Greenland.`\
+https://www.nytimes.com/2026/05/26/world/iceland-europe-iran-us-strikes.html
+
+**How Much Crow Will Trump Have to Eat on Iran?**\
+`Whatever deal is reached between the United States and Iran, Trump will have to make a big concession: A murderous regime remains intact.`\
+https://www.nytimes.com/2026/05/26/opinion/iran-deal-trump-us.html
+
+**Judge Allows Florida House Map That Could Add 4 Republican Seats**\
+`The plaintiffs had sought a temporary restraining order, arguing that the map violated a state ban on partisan gerrymandering that voters passed in 2010.`\
+https://www.nytimes.com/2026/05/26/us/florida-congress-map-redistricting.html
+
+**Thousands of Knicks Fans Celebrate as Team Heads to N.B.A. Finals**\
+`Fans celebrated the New York Knicks’ win after they swept the Cleveland Cavaliers on Monday, leading them to the N.B.A. Finals. The win sets the Knicks up for their first Finals appearance since 1999.`\
+https://www.nytimes.com/video/sports/basketball/100000010926060/thousands-of-knicks-fans-celebrate-as-team-heads-to-nba-finals.html
+
 **Texas Elections Live Updates: Republicans Vote in Senate Race Pitting Incumbency Against Trump Endorsement**\
 `Ken Paxton, the Texas attorney general, was endorsed by President Trump in his campaign against John Cornyn, a four-term Republican senator. The winner will face the Democratic nominee, James Talarico, in a race with nationwide implications.`\
 https://www.nytimes.com/live/2026/05/26/us/texas-primary-runoff-elections
