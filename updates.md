@@ -1,3 +1,11 @@
+**New York Leads in Controlling Heat-Trapping Methane. That Could Change.**\
+`An overhaul of the state’s 2019 climate law proposed by Gov. Kathy Hochul would alter how the potent greenhouse gas is measured.`\
+https://www.nytimes.com/2026/05/26/nyregion/new-york-hochul-methane-climate-law.html
+
+**NYT Spelling Bee Answers for May 26, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/26/crosswords/spelling-bee-forum.html
+
 **Palabra del día en inglés: ‘inchoate’**\
 `Esta palabra ha aparecido en 31 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
 https://www.nytimes.com/es/2026/05/26/espanol/que-significa-inchoate.html
