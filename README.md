@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/science/space/100000010927341/26vid-topart-volcano.html
+
+**Texans Head to the Polls, Again**\
+`Plus, Ferrari’s first fully electric car. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/05/26/briefing/texas-primaries-iran.html
+
 **Democratic Incumbents Run Against Each Other After Republican Redistricting in Texas**\
 `A Republican-led redistricting effort forced Representative Al Green, who has served 11 terms, and Christian Menefee, one of the newest members of Congress, into a battle for the same seat.`\
 https://www.nytimes.com/2026/05/26/us/politics/texas-runoff-al-green-christian-menefee.html
@@ -173,14 +181,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-1-r
 **Texas Lieutenant Governor Runoff 2026: Live Election Results**\
 `Get live results and maps from the 2026 Texas runoff election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-texas-lieutenant-governor-runoff.html
-
-**Texas 30th Congressional District Runoff 2026: Live Election Results, Daniels vs. Jackson**\
-`Get live results and maps from the 2026 Texas runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-30-runoff.html
-
-**Texas 18th Congressional District Runoff 2026: Live Election Results, Green vs. Menefee**\
-`Get live results and maps from the 2026 Texas runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-18-runoff.html
 
 **Texas Elections Live Updates: Republicans Vote in Senate Race Pitting Incumbency Against Trump Endorsement**\
 `Ken Paxton, the Texas attorney general, was endorsed by President Trump in his campaign against John Cornyn, a four-term Republican senator. The winner will face the Democratic nominee, James Talarico, in a race with nationwide implications.`\
