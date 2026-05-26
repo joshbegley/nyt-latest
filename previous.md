@@ -1,3 +1,7 @@
+**Iran Begins Lifting Monthslong Internet Blackout, Officials Say**\
+`Organizations that track online traffic confirmed an uptick in activity on Tuesday, as Iranians reconnected to the global internet after a government-imposed shutdown.`\
+https://www.nytimes.com/2026/05/26/world/middleeast/iran-internet-blackout-lifting.html
+
 **Restaurant Review: Komal in Los Angeles**\
 `At Komal, a molino and restaurant inside Mercado La Paloma, the chef Fátima Júarez dials in the rich beauty of Mexican antojitos.`\
 https://www.nytimes.com/2026/05/26/dining/restaurant-review-komal-los-angeles.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/26/magazine/polymarket-prediction-wall-street.ht
 **The Case for California’s Billionaire Wealth Tax**\
 `Silicon Valley’s growth over recent decades has made California rich — and one of the most unequal places in America.`\
 https://www.nytimes.com/interactive/2026/05/26/opinion/wealth-tax-california-billionaire.html
-
-**In the Georgia Governor’s Race, an Election Denier is the G.O.P. Front-Runner**\
-`Burt Jones, the leading G.O.P. candidate for governor, worked with Trump allies to try to overturn the election, and even talked to the president himself.`\
-https://www.nytimes.com/2026/05/26/us/politics/georgia-governor-race-burt-jones-trump.html
 

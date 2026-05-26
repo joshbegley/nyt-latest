@@ -1,3 +1,11 @@
+**SpaceX’s Unconventional Corporate Arrangements Favor Elon Musk**\
+`The ways it set up its board and Mr. Musk’s pay appear to benefit him at the expense of other shareholders, corporate governance experts said.`\
+https://www.nytimes.com/2026/05/26/technology/spacex-elon-musk-pay-board-governance.html
+
+**Eclipse solar total en agosto: cómo y dónde verlo**\
+`Partes de Groenlandia, Islandia, España y Portugal experimentarán la emoción de la oscuridad diurna. Aquí tienes dónde puedes presenciar el espectáculo cósmico.`\
+https://www.nytimes.com/es/2026/05/26/espanol/eclipse-solar-total-2026.html
+
 **Iran Begins Lifting Monthslong Internet Blackout, Officials Say**\
 `Organizations that track online traffic confirmed an uptick in activity on Tuesday, as Iranians reconnected to the global internet after a government-imposed shutdown.`\
 https://www.nytimes.com/2026/05/26/world/middleeast/iran-internet-blackout-lifting.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/05/26/us/politics/texas-runoffs-cornyn-paxton.html
 **Pope Leo’s Encyclical on A.I. Is Disappointingly Mild**\
 `“Magnifica Humanitas” was measured and cautious.`\
 https://www.nytimes.com/2026/05/26/opinion/pope-leo-encyclical-ai.html
-
-**The Average Guys Outsmarting Wall Street on Prediction Markets**\
-`How prediction-market ‘sharps’ have made millions wagering on everything from war to Rotten Tomatoes.`\
-https://www.nytimes.com/2026/05/26/magazine/polymarket-prediction-wall-street.html
-
-**The Case for California’s Billionaire Wealth Tax**\
-`Silicon Valley’s growth over recent decades has made California rich — and one of the most unequal places in America.`\
-https://www.nytimes.com/interactive/2026/05/26/opinion/wealth-tax-california-billionaire.html
 
