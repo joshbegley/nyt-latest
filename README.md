@@ -1,3 +1,19 @@
+**Manny Fernandez, Bulwark of Dolphins’ Defense, Dies at 79**\
+`He played a critical part in Miami’s 17-0 season in 1972, which ended with his spectacular defense in Super Bowl VII against Washington.`\
+https://www.nytimes.com/2026/05/26/us/manny-fernandez-dead.html
+
+**High-Level British Spy Warns of Expanding Russia Threat**\
+`The director of Britain’s electronic surveillance agency warns that Russia is only getting more brazen as battlefield losses in Ukraine mount.`\
+https://www.nytimes.com/2026/05/26/world/europe/britain-gchq-spying-russia.html
+
+**‘Chess’ Will Close With Lea Michele’s Departure, in a Change of Plans**\
+`The Broadway musical had planned to keep going, but box-office sales made clear Michele’s appeal was essential. It will now close June 21.`\
+https://www.nytimes.com/2026/05/26/theater/broadway-chess-closing-lea-michele.html
+
+**Runoff Polls in Texas Senate Contest Have Favored Ken Paxton**\
+`Mr. Paxton, a Texas Senate candidate, has led Senator John Cornyn in all but one independent poll in the Republican primary runoff.`\
+https://www.nytimes.com/2026/05/26/us/politics/runoff-polls-texas-paxton-cornyn.html
+
 **Judge Lifts West Point’s Restrictions on Civilian Professors’ Speech**\
 `A federal judge also said that the government had offered no real justification for limiting a professor’s ability to express opinions in the classroom at the U.S. Military Academy.`\
 https://www.nytimes.com/2026/05/26/nyregion/west-point-trump-free-speech.html
@@ -165,22 +181,6 @@ https://www.nytimes.com/es/2026/05/26/espanol/mundo/islandia-union-europea.html
 **U.S. Aims to Give Cold War Plutonium to Start-Ups for Nuclear Fuel**\
 `Companies say it’s a better way to dispose of the Cold War-era material — and fix a shortage of nuclear fuel. But the plan has also faced criticism from nonproliferation experts.`\
 https://www.nytimes.com/2026/05/26/climate/plutonium-nuclear-weapons-fuel.html
-
-**U.S. Said to Have Observed Series of Iranian Threats Before Latest Strikes**\
-`Two U.S. officials said Iran launched drones near American ships, sent speedboats to mine the Strait of Hormuz and stepped up activity at some of its missile sites.`\
-https://www.nytimes.com/2026/05/26/world/middleeast/us-iran-strikes.html
-
-**John Barbour, Who Played Key Role in the Rise of Reality TV, Dies at 93**\
-`He was a creator and producer of “Real People,” a hit NBC series about eccentrics and unusual lifestyles, which spawned imitators like “That’s Incredible!”`\
-https://www.nytimes.com/2026/05/26/arts/television/john-barbour-dead.html
-
-**Texas U.S. Senate Republican Runoff Live Election Results 2026: Cornyn vs. Paxton**\
-`Get live results and maps from the 2026 Texas primary runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-senate-runoff.html
-
-**Texas’ Redistricting Creates Intraparty Clashes Over House Seats**\
-`The new congressional map Texas Republicans drew to favor the party has led to several contentious primary runoffs.`\
-https://www.nytimes.com/2026/05/26/us/politics/texas-congress-redistricting.html
 
 **Texas Elections Live Updates: Republicans Vote in Senate Race Pitting Incumbency Against Trump Endorsement**\
 `Ken Paxton, the Texas attorney general, was endorsed by President Trump in his campaign against John Cornyn, a four-term Republican senator. The winner will face the Democratic nominee, James Talarico, in a race with nationwide implications.`\
