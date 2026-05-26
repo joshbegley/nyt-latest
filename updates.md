@@ -1,3 +1,15 @@
+**NYT Crossword Answers for May 26, 2026**\
+`Brad Lively shows us the anatomy of a good crossword puzzle.`\
+https://www.nytimes.com/2026/05/25/crosswords/daily-puzzle-2026-05-26.html
+
+**U.S. Carries Out Renewed Strikes in Southern Iran**\
+`Military officials said that the strikes targeted missile sites near a major Iranian port that threatened U.S. ships.`\
+https://www.nytimes.com/2026/05/25/world/middleeast/us-iran-strikes.html
+
+**Iran War Live Updates: As Talks to End War Resume in Qatar, U.S. Conducts Strikes on Iran’s Gulf Coast**\
+`Iranian officials went to Doha on Monday for the negotiations, hours before the U.S. military announced the strikes it said were intended to protect troops. Israel’s leader said his country plans to intensify attacks against Hezbollah, Iran’s ally, in Lebanon.`\
+https://www.nytimes.com/live/2026/05/25/world/iran-war-trump
+
 **Sonny Rollins, Giant of the Jazz Saxophone, Is Dead at 95**\
 `Even by the standards of a music that prizes individuality, he stood out, as both a musician and a personality.`\
 https://www.nytimes.com/2026/05/25/arts/music/sonny-rollins-dead.html
