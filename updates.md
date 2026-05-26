@@ -1,3 +1,7 @@
+**U.S. Carries Out ‘Self-Defense Strikes’ in Southern Iran**\
+`Military officials said that the strikes targeted missile sites near a major Iranian port that threatened U.S. ships.`\
+https://www.nytimes.com/2026/05/25/world/middleeast/us-iran-strikes.html
+
 **Map: 6.9-Magnitude Earthquake Shakes Chile**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/05/25/world/americas/quake-tracker-chile.html

@@ -1,3 +1,7 @@
+**U.S. Carries Out ‘Self-Defense Strikes’ in Southern Iran**\
+`Military officials said that the strikes targeted missile sites near a major Iranian port that threatened U.S. ships.`\
+https://www.nytimes.com/2026/05/25/world/middleeast/us-iran-strikes.html
+
 **Map: 6.9-Magnitude Earthquake Shakes Chile**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/05/25/world/americas/quake-tracker-chile.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/05/25/world/americas/cuba-blackouts-fire-energy-oil
 **How Art Auctions Choreographed a $2.5 Billion Comeback**\
 `After four years of uneven sales, the auction houses engineered a successful season by redefining the expectations of buyers and sellers—and avoiding flops.`\
 https://www.nytimes.com/2026/05/25/arts/design/art-auctions-comeback-sothebys-christies.html
-
-**Por qué las mujeres están probando antialérgicos para los síntomas menstruales y de la perimenopausia**\
-`Preguntamos a los expertos si tomar juntos fármacos como Allegra y Pepcid AC realmente puede aliviar el dolor, la niebla mental y otros problemas de salud.`\
-https://www.nytimes.com/es/2026/05/25/espanol/estilos-de-vida/antialergicos-menstruacion-perimenopausia.html
 
