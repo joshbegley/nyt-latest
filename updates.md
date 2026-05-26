@@ -1,3 +1,15 @@
+**Paris School Worker Tried for Child Abuse in Widespread Assault Inquiry**\
+`The 36-year-old, named in the French news media as David G., is among more than 70 employees at schools in the capital who have been recently suspended or fired over allegations of sexual abuse and other misconduct.`\
+https://www.nytimes.com/2026/05/26/world/europe/child-abuse-trial-school-paris.html
+
+**Outrage Over Trump’s $1.8 Billion Fund**\
+`Readers praise the opposition from some Republicans, call the fund a legal “travesty” and discuss the culture of corruption. Also: Living with dementia.`\
+https://www.nytimes.com/2026/05/26/opinion/trump-fund.html
+
+**Read the Judge’s Ruling Striking Down Alabama’s New House Map**\
+`A panel of federal judges on Tuesday rejected Alabama’s effort to use a new voting map for the November midterm elections, a decision that is likely to be appealed to the Supreme Court.`\
+https://www.nytimes.com/interactive/2026/05/26/us/alabama-house-map-ruling-doc.html
+
 **The G.O.P. Race for Texas Attorney General Grew Heated, and Expensive**\
 `In the last weeks of the contest, Representative Chip Roy reported raising more than $8 million, and he intensified his attacks on Mayes Middleton, a state senator.`\
 https://www.nytimes.com/2026/05/26/us/politics/texas-attorney-general-donations.html
