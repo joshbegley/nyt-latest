@@ -1,3 +1,7 @@
+**Trump Administration Wants Employees to Sign NDAs**\
+`Lawyers representing federal workers said the move is intended to chill speech and could be challenged on First Amendment grounds.`\
+https://www.nytimes.com/2026/05/26/us/politics/trump-administration-nondisclosure-agreements.html
+
 **Manny Fernandez, Bulwark of Dolphins’ Defense, Dies at 79**\
 `He played a critical part in Miami’s 17-0 season in 1972, which ended with his spectacular defense in Super Bowl VII against Washington.`\
 https://www.nytimes.com/2026/05/26/us/manny-fernandez-dead.html
@@ -15,7 +19,7 @@ https://www.nytimes.com/2026/05/26/theater/broadway-chess-closing-lea-michele.ht
 https://www.nytimes.com/2026/05/26/us/politics/runoff-polls-texas-paxton-cornyn.html
 
 **Judge Lifts West Point’s Restrictions on Civilian Professors’ Speech**\
-`A federal judge also said that the government had offered no real justification for limiting a professor’s ability to express opinions in the classroom at the U.S. Military Academy.`\
+`A federal judge also said that the government had offered no real justification for limiting the ability of a professor who sued to express opinions in the classroom at the U.S. Military Academy.`\
 https://www.nytimes.com/2026/05/26/nyregion/west-point-trump-free-speech.html
 
 **How Cannes Is Grappling With Changes**\
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/05/26/arts/music/amplifier-newsletter-rolling-stone
 **Islandia considera unirse a la Unión Europea**\
 `El país nórdico se ha mantenido al margen del resto de Europa. Pero las amenazas del presidente Trump a Groenlandia han provocado una reconsideración.`\
 https://www.nytimes.com/es/2026/05/26/espanol/mundo/islandia-union-europea.html
-
-**U.S. Aims to Give Cold War Plutonium to Start-Ups for Nuclear Fuel**\
-`Companies say it’s a better way to dispose of the Cold War-era material — and fix a shortage of nuclear fuel. But the plan has also faced criticism from nonproliferation experts.`\
-https://www.nytimes.com/2026/05/26/climate/plutonium-nuclear-weapons-fuel.html
 
 **Texas Elections Live Updates: Republicans Vote in Senate Race Pitting Incumbency Against Trump Endorsement**\
 `Ken Paxton, the Texas attorney general, was endorsed by President Trump in his campaign against John Cornyn, a four-term Republican senator. The winner will face the Democratic nominee, James Talarico, in a race with nationwide implications.`\

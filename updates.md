@@ -1,3 +1,11 @@
+**Trump Administration Wants Employees to Sign NDAs**\
+`Lawyers representing federal workers said the move is intended to chill speech and could be challenged on First Amendment grounds.`\
+https://www.nytimes.com/2026/05/26/us/politics/trump-administration-nondisclosure-agreements.html
+
+**Judge Lifts West Point’s Restrictions on Civilian Professors’ Speech**\
+`A federal judge also said that the government had offered no real justification for limiting the ability of a professor who sued to express opinions in the classroom at the U.S. Military Academy.`\
+https://www.nytimes.com/2026/05/26/nyregion/west-point-trump-free-speech.html
+
 **Manny Fernandez, Bulwark of Dolphins’ Defense, Dies at 79**\
 `He played a critical part in Miami’s 17-0 season in 1972, which ended with his spectacular defense in Super Bowl VII against Washington.`\
 https://www.nytimes.com/2026/05/26/us/manny-fernandez-dead.html
