@@ -38,8 +38,8 @@ https://www.nytimes.com/video/podcasts/100000010926740/what-nicolas-cage-thinks-
 `He wrote 31 books, often drawing on his experiences as a pro football publicist, a foreign correspondent and a gun-toting spokesman for the N.Y.P.D.`\
 https://www.nytimes.com/2026/05/26/nyregion/robert-daley-dead.html
 
-**Judge Lets Stand a Florida House Map That Could Add 4 Republican Seats**\
-`The plaintiffs had argued that the map violated a state ban on partisan gerrymandering that the state’s voters passed in 2010.`\
+**Judge Allows Florida House Map That Could Add 4 Republican Seats**\
+`The plaintiffs had sought a temporary restraining order, arguing that the map violated a state ban on partisan gerrymandering that voters passed in 2010.`\
 https://www.nytimes.com/2026/05/26/us/florida-congress-map-redistricting.html
 
 **A Cod Boat, a Coast Guard Flight and a Lot of Debate About the E.U.**\
@@ -181,10 +181,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-16-
 **Texas 38th Congressional District Runoff 2026: Live Election Results, Bonck vs. deZevallos**\
 `Get live results and maps from the 2026 Texas runoff election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-38-runoff.html
-
-**Texas 14th Congressional District Runoff 2026: Live Election Results, Bartie vs. Davis**\
-`Get live results and maps from the 2026 Texas runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-14-runoff.html
 
 **Texas Elections Live Updates: Republicans Vote in Senate Race Pitting Incumbency Against Trump Endorsement**\
 `Ken Paxton, the Texas attorney general, was endorsed by President Trump in his campaign against John Cornyn, a four-term Republican senator. The winner will face the Democratic nominee, James Talarico, in a race with nationwide implications.`\
