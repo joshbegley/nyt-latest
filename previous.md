@@ -1,3 +1,7 @@
+**Israel intensifica la ofensiva en Líbano cuando EE. UU. busca un acuerdo con Irán**\
+`Hizbulá, el grupo con respaldo iraní también mantiene los ataques con cohetes y drones a soldados israelíes. La escalada complicaría los esfuerzos diplomáticos.`\
+https://www.nytimes.com/es/2026/05/26/espanol/mundo/israel-ataques-libano-hizbula.html
+
 **The Case for Ugly-Cool Sunglasses**\
 `Shiny, wraparound, functional — Oakleys at the French Open. Plus other tennis style moments and more.`\
 https://www.nytimes.com/2026/05/26/style/oakley-osaka-french-open.html
@@ -30,8 +34,8 @@ https://www.nytimes.com/es/2026/05/26/espanol/mundo/islandia-union-europea.html
 `Companies say it’s a better way to dispose of the Cold War-era material — and fix a shortage of nuclear fuel. But the plan has also faced criticism.`\
 https://www.nytimes.com/2026/05/26/climate/plutonium-nuclear-weapons-fuel.html
 
-**U.S. Said to Observe Escalating Threats From Iran Before Latest Strikes**\
-`Two U.S. officials said Iran launched drones near American ships, sent speedboats to mine the Strait of Hormuz, and stepped up activity at some of its missile sites.`\
+**U.S. Said to Have Observed Series of Iranian Threats Before Latest Strikes**\
+`Two U.S. officials said Iran launched drones near American ships, sent speedboats to mine the Strait of Hormuz and stepped up activity at some of its missile sites.`\
 https://www.nytimes.com/2026/05/26/world/middleeast/us-iran-strikes.html
 
 **John Barbour, Who Played Key Role in the Rise of Reality TV, Dies at 93**\
@@ -181,10 +185,6 @@ https://www.nytimes.com/interactive/2026/05/26/us/alabama-house-map-ruling-doc.h
 **SpaceX IPO Filing Reveals Favorable Terms for Elon Musk**\
 `The ways it set up its board and Mr. Musk’s pay appear to benefit him at the expense of other shareholders, corporate governance experts said.`\
 https://www.nytimes.com/2026/05/26/technology/spacex-elon-musk-pay-board-governance.html
-
-**Eclipse solar total en agosto: cómo y dónde verlo**\
-`Partes de Groenlandia, Islandia, España y Portugal experimentarán la emoción de la oscuridad diurna. Aquí tienes dónde puedes presenciar el espectáculo cósmico.`\
-https://www.nytimes.com/es/2026/05/26/espanol/eclipse-solar-total-2026.html
 
 **Texas Elections Live Updates: Republican Voters Choosing Nominee for Key Senate Battle**\
 `Ken Paxton, the Texas attorney general, was endorsed by President Trump in his campaign against John Cornyn, a four-term Republican senator. The winner will face the Democratic nominee, James Talarico, in a race with major nationwide implications.`\
