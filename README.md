@@ -1,9 +1,13 @@
+**Fireball Falls From Space Over Erupting Volcano in the Philippines**\
+`Livestream video captured fireball falling from space on Monday, over the most active volcano in the Philippines.`\
+https://www.nytimes.com/video/science/space/100000010926624/volcano-eruption-fireball-mayon-philippines.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/science/space/100000010927341/26vid-topart-volcano.html
 
 **Texans Head to the Polls, Again**\
-`Plus, Ferrari’s first fully electric car. Here’s the latest at the end of Monday.`\
+`Plus, Ferrari’s first fully electric car. Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/05/26/briefing/texas-primaries-iran.html
 
 **Democratic Incumbents Run Against Each Other After Republican Redistricting in Texas**\
@@ -177,10 +181,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-35-
 **Texas First Congressional District Runoff 2026: Live Election Results, Alexander vs. Prince**\
 `Get live results and maps from the 2026 Texas runoff election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-1-runoff.html
-
-**Texas Lieutenant Governor Runoff 2026: Live Election Results**\
-`Get live results and maps from the 2026 Texas runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-texas-lieutenant-governor-runoff.html
 
 **Texas Elections Live Updates: Republicans Vote in Senate Race Pitting Incumbency Against Trump Endorsement**\
 `Ken Paxton, the Texas attorney general, was endorsed by President Trump in his campaign against John Cornyn, a four-term Republican senator. The winner will face the Democratic nominee, James Talarico, in a race with nationwide implications.`\
