@@ -1,4 +1,4 @@
-**Incumbents Green and Menefee Fault Republicans Over Texas Redistricting**\
+**Democratic Incumbents Run Against Each Other After Republican Redistricting in Texas**\
 `A Republican-led redistricting effort forced Representative Al Green, who has served 11 terms, and Christian Menefee, one of the newest members of Congress, into a battle for the same seat.`\
 https://www.nytimes.com/2026/05/26/us/politics/texas-runoff-al-green-christian-menefee.html
 
