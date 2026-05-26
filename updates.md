@@ -1,3 +1,39 @@
+**Texas Attorney General Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Texas runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-attorney-general-runoff.html
+
+**Texas Criminal Appeals Court Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Texas runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-criminal-appeals-court-runoff.html
+
+**Texas Lieutenant Governor Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Texas runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-lieutenant-governor-runoff.html
+
+**Texas 17th Congressional District Runoff 2026: Live Election Results, Flores vs. Shepard**\
+`Get live results and maps from the 2026 Texas runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-17-runoff.html
+
+**Texas 16th Congressional District Runoff 2026: Live Election Results, Barraza vs. Bauman**\
+`Get live results and maps from the 2026 Texas runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-16-runoff.html
+
+**Texas Railroad Commissioner Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Texas runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-railroad-commissioner-runoff.html
+
+**Texas 14th Congressional District Runoff 2026: Live Election Results, Bartie vs. Davis**\
+`Get live results and maps from the 2026 Texas runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-texas-us-house-14-runoff.html
+
+**Ben Morea, Principal Provocateur of 1960s Anarchist Group, Dies at 84**\
+`An abstract painter who wanted to creatively destroy the gap between art and revolution, he loosely led a band of radicals with a profane name.`\
+https://www.nytimes.com/2026/05/26/us/ben-morea-dead.html
+
+**Trump Undergoes a Physical Exam at Walter Reed**\
+`President Trump, who will turn 80 next month, said after the exam that he was deemed in good health.`\
+https://www.nytimes.com/2026/05/26/us/politics/trump-physical-walter-reed.html
+
 **Find Hokkaido Scallop Wellington From an Atomix Alumnus at 28 Nomad**\
 `The Silent Sea brings more seafood to City Island, the Ludlow Room provides more seating for Katz’s and more restaurant news.`\
 https://www.nytimes.com/2026/05/26/dining/nyc-restaurant-news.html
