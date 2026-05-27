@@ -1,10 +1,14 @@
-**To Make a Deal With Trump, Iran Wants Billions of Its Money Unfrozen**\
-`The money has become a sticking point in talks, with Iran insisting that meaningful negotiations cannot begin without the funds’ release.`\
-https://www.nytimes.com/2026/05/27/world/middleeast/iran-frozen-funds-trump-deal.html
-
 **Canada Rejects U.S. Military Suppliers in Favor of Swedish Aircraft**\
 `Prime Minister Mark Carney chose a Saab surveillance and control plane after vowing to reduce military spending with the United States.`\
 https://www.nytimes.com/2026/05/27/world/canada/carney-canada-military-spending-saab-air-force.html
+
+**Matthew Perry’s Personal Assistant, Kenneth Iwamasa, Sentenced to TK Years**\
+`Kenneth Iwamasa injected Mr. Perry with the ketamine that killed him. He is the last of five defendants to be sentenced in the case.`\
+https://www.nytimes.com/2026/05/27/arts/matthew-perry-personal-assistant-ketamine.html
+
+**To Make a Deal With Trump, Iran Wants Billions of Its Money Unfrozen**\
+`The money has become a sticking point in talks, with Iran insisting that meaningful negotiations cannot begin without the funds’ release.`\
+https://www.nytimes.com/2026/05/27/world/middleeast/iran-frozen-funds-trump-deal.html
 
 **Deadly Explosion Was Caused by Paint Vapors, Fire Dept. Says**\
 `A series of explosions at a Staten Island shipyard killed one man and injured more than 30 firefighters on Friday. The accident occurred when paint vapors ignited in a confined space, the department said.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/05/27/business/bp-albert-manifold.html
 **At the Enhanced Games, Rules Are for Suckers**\
 `The company seems to want a world where nobody tells it no.`\
 https://www.nytimes.com/2026/05/27/opinion/enhanced-games-athletes-steroids-drugs.html
-
-**Heat Wave Hits Canada With Warnings in Alberta, Manitoba and Saskatchewan**\
-`Canada’s first big heat wave of the year was expected to bring prolonged warm weather to southern Alberta, Saskatchewan and Manitoba.`\
-https://www.nytimes.com/2026/05/27/weather/canada-heat-warnings.html
 
