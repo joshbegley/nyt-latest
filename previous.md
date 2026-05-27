@@ -1,3 +1,27 @@
+**At the Enhanced Games, Rules Are for Suckers**\
+`The company seems to want a world where nobody tells it no.`\
+https://www.nytimes.com/2026/05/27/opinion/enhanced-games-athletes-steroids-drugs.html
+
+**Heat Warnings Are Issued Across Canada’s Prairies**\
+`Canada’s first big heat wave of the year was expected to bring prolonged warm weather to southern Saskatchewan and Manitoba.`\
+https://www.nytimes.com/2026/05/27/weather/heat-warnings-are-issued-across-canadas-prairies.html
+
+**My Partner’s Irresponsible Mother Asked Him to Guarantee Her Lease. Help!**\
+`A reader worries that her partner could be jeopardizing their future life together by helping out relatives he knows to be terrible with money.`\
+https://www.nytimes.com/2026/05/27/style/family-co-sign-lease-guarantor.html
+
+**Teachers Union Urges Schools to Curb A.I. Chatbots and Screen Time**\
+`The American Federation of Teachers recommended “no screens” at all for those in second grade or younger, and no A.I. chatbots for students in elementary school.`\
+https://www.nytimes.com/2026/05/27/technology/ai-screens-schools-weingarten.html
+
+**Cornyn’s Defeat Fuels Tensions With President Trump in Senate G.O.P.**\
+`Senators are angry President Trump turned on a respected former leader whom they consider a loyal Republican. Now Mr. Trump faces resistance from his own embittered ranks.`\
+https://www.nytimes.com/2026/05/27/us/trump-cornyn-paxton-senate-republicans.html
+
+**Iran Begins Restoring Internet Access**\
+`Iranians started to reconnect to the global internet after the government began lifting a monthslong shutdown, an official said on Tuesday.`\
+https://www.nytimes.com/video/world/middleeast/100000010927921/iran-internet-restored.html
+
 **Residents Watch as Israeli War Planes Circle Over Southern Lebanon**\
 `Israel has intensified its deadly military campaign against Hezbollah, the Iran-backed militant group, in recent days, striking targets across Lebanon.`\
 https://www.nytimes.com/2026/05/27/world/middleeast/lebanon-israel-hezbollah-military-campaign.html
@@ -43,7 +67,7 @@ https://www.nytimes.com/2026/05/27/crosswords/wordle-review-1804.html
 https://www.nytimes.com/2026/05/27/world/asia/samsung-ai-profit-bonus-workers.html
 
 **Iran War Live Updates: Fighting Flares in Lebanon, Complicating U.S.-Iran Peace Talks**\
-`Israeli strikes killed at least 31 people in Lebanon on Tuesday, the country’s health ministry said, as Israel intensified attacks against Hezbollah. The fighting cast further doubt on fragile negotiations to end the U.S.-Israeli war with Iran.`\
+`Israeli strikes pounded southern Lebanon as the country’s attacks against Hezbollah intensified. The fighting cast further doubt on fragile negotiations to end the U.S.-Israeli war with Iran.`\
 https://www.nytimes.com/live/2026/05/27/world/iran-war-trump-deal
 
 **Santiago Rivera inventó la tarta de queso vasca, pero prefiere el chocolate**\
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/05/27/books/why-is-tiktok-in-this-book-from-2006.ht
 **To Understand the American Revolution, a Writer Went to Barbados**\
 `It’s where the British perfected their system of enslaved labor, George Washington visited and colonialism’s legacy can still be felt. And, as a writer found on this small island, freedom is still cause for celebration.`\
 https://www.nytimes.com/2026/05/27/travel/american-revolution-barbados.html
-
-**Hunting a ‘Frankenfish’ With a Bow and Arrow**\
-`Invasive snakeheads are proliferating in waterways from New York to Florida. Wildlife officials around the Chesapeake Bay are recommending a solution: high-powered compound bows.`\
-https://www.nytimes.com/2026/05/27/climate/hunting-a-frankenfish-with-a-bow-and-arrow.html
-
-**The $400 Million Showdown Between a Billionaire and a California Mayor**\
-`The owner of the Los Angeles Rams and the City of Inglewood are in a dispute over Hollywood Park and SoFi Stadium, which is about to host World Cup matches.`\
-https://www.nytimes.com/2026/05/27/arts/music/inglewood-hollywood-park-sofi-stadium.html
-
-**A Quiet Pacific Village Becomes China’s Security Testing Ground**\
-`When a remote Pacific village asked for help with rowdy youth, the Chinese police arrived with a surveillance system. Then came the backlash.`\
-https://www.nytimes.com/2026/05/27/world/asia/china-solomons-pacific-security-threats.html
-
-**Go Ask Alice Why Tech Start-Ups Are Spending Big on Hype Videos**\
-`A Mad Hatter and a giant rabbit sit around a table discussing an A.I. start-up. This is normal behavior around the Bay Area these days.`\
-https://www.nytimes.com/2026/05/27/technology/ai-startups-videos-marketing.html
-
-**Oil Prices Fall as Uneasy Truce Holds Between U.S. and Iran**\
-`Traders are weighing signals that a more lasting agreement may be within reach against recent flare-ups in hostilities.`\
-https://www.nytimes.com/2026/05/27/business/oil-gas-price-iran.html
-
-**Prison and Time**\
-`A formerly incarcerated writer reflects on how the prison system didn’t foster change, but befriending time did.`\
-https://www.nytimes.com/video/opinion/100000010910796/prison-and-time.html
 
