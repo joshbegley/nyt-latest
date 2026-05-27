@@ -1,3 +1,11 @@
+**Christian Menefee Defeats Al Green in Houston-Area House Seat**\
+`The showdown, manufactured by a Republican gerrymander, created one of many generational clashes consuming Democrats this cycle.`\
+https://www.nytimes.com/2026/05/26/us/politics/texas-democratic-primary-menefee-green.html
+
+**Texas Election Live Updates: Paxton Builds Lead Over Cornyn in Senate Runoff**\
+`Ken Paxton, the Texas attorney general, was endorsed by President Trump over John Cornyn, a four-term Republican senator. Representative Christian Menefee won a Democratic primary pitting two incumbents against each other.`\
+https://www.nytimes.com/live/2026/05/26/us/texas-primary-runoff-elections
+
 **Chemical Tank Cools, But 16,000 in Garden Grove Can’t Go Home Yet**\
 `The risk of an explosion or spill has fallen, the authorities said, but residents closest to the plant cannot yet return. Some have begun to ask who should be held accountable.`\
 https://www.nytimes.com/2026/05/26/us/chemical-tank-orange-county-california.html
