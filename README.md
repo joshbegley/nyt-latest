@@ -1,3 +1,7 @@
+**Jimmy Kimmel Slams Trump for Missing His Son’s Wedding**\
+`“It was a small ceremony with about 40 guests, none of whom were his father,” the late-night host said of Donald Trump Jr.’s wedding in the Bahamas over the weekend.`\
+https://www.nytimes.com/2026/05/27/arts/television/jimmy-kimmel-trump-son-wedding.html
+
 **Every New Cease-Fire in Lebanon Brings Hope — Until It Doesn’t**\
 `In Lebanon, each new cease-fire is met with blind optimism — as if it hails the end of a conflict instead of what it actually is: an admission ticket to the next war.`\
 https://www.nytimes.com/2026/05/27/opinion/lebanon-israel-hezbollah-cease-fire.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/26/us/politics/texas-runoff-al-green-christian-m
 **Trump Administration Sues U.C.L.A. Again Over Antisemitism**\
 `The lawsuit is the second the government has filed this year against the school that has focused on pro-Palestinian protests in 2024.`\
 https://www.nytimes.com/2026/05/26/us/trump-lawsuit-ucla-antisemitism.html
-
-**With Trump’s Backing, Paxton Routs Cornyn in Texas Senate G.O.P. Runoff**\
-`Ken Paxton, the Texas attorney general, defeated John Cornyn, a four-term Republican senator, in a runoff that confirmed the president’s hold on his party’s voters. Mr. Paxton will face the Democratic nominee, James Talarico, in a race with national implications.`\
-https://www.nytimes.com/live/2026/05/26/us/texas-primary-runoff-elections
 
