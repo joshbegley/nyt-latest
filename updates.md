@@ -1,3 +1,7 @@
+**Nigel Farage’s Far-Right Party Is Now Central to British Politics**\
+`Nigel Farage’s anti-immigrant, populist agenda has helped his Reform U.K. Party emerge from the fringe of politics in Britain. But it faces an uphill climb to win power.`\
+https://www.nytimes.com/2026/05/27/world/europe/britain-reform-party-farage.html
+
 **Palabra del día en inglés: ‘shibboleth’**\
 `Esta palabra ha aparecido en 4 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
 https://www.nytimes.com/es/2026/05/27/espanol/que-significa-shibboleth.html
