@@ -1,4 +1,12 @@
-**Uganda Closes Border with Congo**\
+**Israel Intensifies Military Campaign Against Hezbollah in Lebanon**\
+`Israeli strikes pounded southern Lebanon on Wednesday, escalating Israel’s campaign against Hezbollah and complicating talks to end the U.S.-Israeli war with Iran.`\
+https://www.nytimes.com/video/world/middleeast/100000010928024/israel-lebanon-strikes-hezbollah.html
+
+**‘60 Minutes’ Journalist Who Accused CBS of Political Meddling Loses Her Deal**\
+`Sharyn Alfonsi, whose segment on a brutal Salvadoran prison was pulled abruptly in December, said that CBS News and its top editor, Bari Weiss, had let her contract expire.`\
+https://www.nytimes.com/2026/05/27/business/media/cbs-sharyn-alfonsi-bari-weiss.html
+
+**Uganda Closes Border With Congo Over Ebola Fears**\
 `Ebola response teams and a few others are exempt and will undergo “strict health screening,” a top Ugandan official said.`\
 https://www.nytimes.com/2026/05/27/world/africa/ebola-congo-uganda.html
 
@@ -66,7 +74,7 @@ https://www.nytimes.com/2026/05/27/business/bp-albert-manifold.html
 `The company seems to want a world where nobody tells it no.`\
 https://www.nytimes.com/2026/05/27/opinion/enhanced-games-athletes-steroids-drugs.html
 
-**Heat wave hits Canada’s prairies, with warnings in Alberta, Saskatchewan and Manitoba**\
+**Heat Wave Hits Canada With Warnings in Alberta, Manitoba and Saskatchewan**\
 `Canada’s first big heat wave of the year was expected to bring prolonged warm weather to southern Alberta, Saskatchewan and Manitoba.`\
 https://www.nytimes.com/2026/05/27/weather/canada-heat-warnings.html
 
@@ -130,8 +138,8 @@ https://www.nytimes.com/2026/05/27/crosswords/wordle-review-1804.html
 `The agreement all but guarantees hefty bonuses for employees in the top-performing chip unit. Other workers say they feel left out.`\
 https://www.nytimes.com/2026/05/27/world/asia/samsung-ai-profit-bonus-workers.html
 
-**Iran War Live Updates: Iranian State Media Outlines ‘Initial, Unofficial’ Deal to Reopen Strait of Hormuz**\
-`The draft agreement says Iran would have control of the waterway in cooperation with Oman and requires the U.S. to lift its naval blockade. The U.S. did not immediately comment.`\
+**Iran War Live Updates: White House Denies Iranian State Media’s Outline of ‘Unofficial’ Deal**\
+`The reported draft agreement said Iran would reopen the Strait of Hormuz in return for the United States lifting its naval blockade.`\
 https://www.nytimes.com/live/2026/05/27/world/iran-war-trump-deal
 
 **Santiago Rivera inventó la tarta de queso vasca, pero prefiere el chocolate**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/05/27/arts/design/courbet-a-burian-at-ornans-musee-
 **Trump Is Remaking the World Map. What Could Go Wrong?**\
 `A system of fuzzy borders, in which powerful states treat territory as negotiable and sovereignty as conditional, is not a viable alternative to the liberal world order.`\
 https://www.nytimes.com/2026/05/27/opinion/trump-world-map-borders-countries.html
-
-**Spencer Pratt Wants to Be Mayor. His Fans Want Him to Be Batman.**\
-`What an A.I.-generated video of the former reality TV star teaches us about the future of political ads.`\
-https://www.nytimes.com/2026/05/27/magazine/spencer-pratt-batman-ads-mayor.html
-
-**Crypto Firms and Automakers Are Looking to Open Banks, at Trump’s Urging**\
-`Urged on by the White House and a reduction in regulatory oversight, crypto companies and automakers are among those that have applied for banking charters.`\
-https://www.nytimes.com/2026/05/27/business/bank-charters-fintech-crypto.html
 
