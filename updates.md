@@ -1,3 +1,15 @@
+**The Return of the Apprentice**\
+`Why more young people are considering careers in the trades.`\
+https://www.nytimes.com/2026/05/27/headway/young-americans-apprentice-labor-economy.html
+
+**Armed With Bows and Arrows, Hunters Fight the Invasive ‘Frankenfish’**\
+`Wildlife officials in Chesapeake Bay are encouraging hunters and anglers to target the invasive, predatory northern snakeheads – known as the “Frankenfish” – using a bow and arrow.`\
+https://www.nytimes.com/video/us/100000010928426/hunting-frankenfish-with-a-bow-and-arrow.html
+
+**How Democrats Can Avoid the Mistakes of 2024**\
+`Readers discuss the Democratic Party’s autopsy of the presidential election. Also: Single at a party.`\
+https://www.nytimes.com/2026/05/27/opinion/democrats-autopsy-2024-election.html
+
 **How Democrats Can Avoid the Mistakes of 2024**\
 `Readers discuss the Democratic Party’s autopsy of the presidential election.`\
 https://www.nytimes.com/2026/05/27/opinion/democrats-autopsy-2024-election.html

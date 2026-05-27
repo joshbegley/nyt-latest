@@ -1,5 +1,13 @@
+**The Return of the Apprentice**\
+`Why more young people are considering careers in the trades.`\
+https://www.nytimes.com/2026/05/27/headway/young-americans-apprentice-labor-economy.html
+
+**Armed With Bows and Arrows, Hunters Fight the Invasive ‘Frankenfish’**\
+`Wildlife officials in Chesapeake Bay are encouraging hunters and anglers to target the invasive, predatory northern snakeheads – known as the “Frankenfish” – using a bow and arrow.`\
+https://www.nytimes.com/video/us/100000010928426/hunting-frankenfish-with-a-bow-and-arrow.html
+
 **How Democrats Can Avoid the Mistakes of 2024**\
-`Readers discuss the Democratic Party’s autopsy of the presidential election.`\
+`Readers discuss the Democratic Party’s autopsy of the presidential election. Also: Single at a party.`\
 https://www.nytimes.com/2026/05/27/opinion/democrats-autopsy-2024-election.html
 
 **Reflecting Pool Contract Has ‘Inflated’ Profit Margin, Government Analysis Finds**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/05/27/nyregion/margot-wellington-dead.html
 **War. Heat. Cigarettes.**\
 `Updates on stories from around the world.`\
 https://www.nytimes.com/2026/05/27/briefing/war-heat-cigarettes.html
-
-**After 88 Days of Censored News, TV and Chat, Iranians Are Coming Back Online**\
-`The government is letting people connect with the world after a near-total internet shutdown. But not everyone has access, and those who do wonder how long it will last.`\
-https://www.nytimes.com/2026/05/27/world/europe/iran-internet.html
-
-**A MAGA Victory in Texas, and the Trump Administration’s New Ebola Plan**\
-`Plus, Iran begins lifting an internet blackout.`\
-https://www.nytimes.com/2026/05/27/podcasts/the-headlines/texas-election-ebola-plan.html
 
