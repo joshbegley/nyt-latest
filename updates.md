@@ -1,3 +1,11 @@
+**Court Orders Customs Chief to Address Compliance on Refunding Tariffs**\
+`The surprising demand to appear at a hearing suggested new concern about the Trump administration’s efforts to repay the full $166 billion owed from illegally imposed tariffs.`\
+https://www.nytimes.com/2026/05/27/us/politics/trade-court-customs-chief-tariff-refunds.html
+
+**Pope Leo’s A.I. Vision Might Not Be Strange Enough**\
+`He is both a critic and a normalizer of artificial intelligence.`\
+https://www.nytimes.com/2026/05/27/opinion/pope-leo-ai-encyclical.html
+
 **Jill Biden’s Reaction to Biden’s 2024 Debate: ‘He’s Having a Stroke’**\
 `“I had never, ever seen Joe like that,” the former first lady told CBS News in an interview. “Before or since.”`\
 https://www.nytimes.com/2026/05/27/us/politics/jill-biden-joe-biden-2024-debate.html
