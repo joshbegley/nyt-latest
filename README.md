@@ -1,3 +1,7 @@
+**Judge Dismisses 2 Indictments in FIFA Bribery Case**\
+`The decision marked an end to a significant part of a broader corruption investigation that rocked the soccer world more than a decade ago.`\
+https://www.nytimes.com/2026/05/27/nyregion/fifa-indictments-soccer-dismissed.html
+
 **KFF’s Chief Executive to Retire**\
 `Drew Altman, who transformed KFF from a little-known family foundation to a major source of U.S. health policy research, will step down at the end of the year.`\
 https://www.nytimes.com/2026/05/27/business/media/kff-drew-altman.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/05/27/theater/heated-rivalry-parody-theater-off-bro
 **Global Supply Shortages Deepen as War Drags On, Risking Jobs and Growth**\
 `After three months, the fallout of the closure of the Strait of Hormuz is spreading, with developing countries bearing the brunt of the shortfall.`\
 https://www.nytimes.com/2026/05/27/business/hormuz-global-shortages-gas.html
-
-**Two Survivors Left at Sea After U.S. Attacks Boat in Pacific**\
-`One person was killed in the U.S. military’s 58th strike against vessels it accused of smuggling drugs.`\
-https://www.nytimes.com/2026/05/27/us/politics/two-survivors-boat-strike.html
 
