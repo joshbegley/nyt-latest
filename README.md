@@ -1,3 +1,11 @@
+**Mayes Middleton Defeats Chip Roy in the Runoff for Texas Attorney General**\
+`After connecting his opponent to past criticism of President Trump, the conservative state senator now advances to the general election.`\
+https://www.nytimes.com/2026/05/26/us/politics/texas-attorney-general.html
+
+**NYT Crossword Answers for May 27, 2026**\
+`Dario Salvucci meets us halfway.`\
+https://www.nytimes.com/2026/05/26/crosswords/daily-puzzle-2026-05-27.html
+
 **What Ken Paxton’s Win Means for James Talarico**\
 `The Texas senate race will come down to the Democratic candidate’s strengths — and the Republican’s weaknesses.`\
 https://www.nytimes.com/2026/05/26/opinion/paxton-talarico-texas-senate.html
@@ -185,10 +193,6 @@ https://www.nytimes.com/2026/05/26/world/middleeast/iran-threats-strikes-us-ceas
 **When Will Emissions From Air Travel Start to Fall?**\
 `How the war in Iran is affecting greenhouse gas emissions from air travel, a look back at “An Inconvenient Truth” and more climate news.`\
 https://www.nytimes.com/2026/05/26/climate/air-travel-emissions.html
-
-**At the A.I. Epicenter, Technologists Dismiss Pope Leo’s Warnings About the New Technology**\
-`Pope Leo XIV’s spiritual message on artificial intelligence arrived as Silicon Valley’s A.I. enthusiasts pursue their own spirituality through technology.`\
-https://www.nytimes.com/2026/05/26/technology/pope-leo-ai-religion.html
 
 **Texas Election Live Updates: Paxton Routs Cornyn in Senate G.O.P. Runoff With Trump’s Backing**\
 `Ken Paxton, the Texas attorney general, defeated John Cornyn, a four-term Republican senator, in a runoff that confirmed the president’s hold on his party’s voters. Mr. Paxton will face the Democratic nominee, James Talarico, in a race with national implications.`\
