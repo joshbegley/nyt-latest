@@ -1,3 +1,19 @@
+**Colin Allred, Former Lawmaker, Wins Democratic Runoff for House Seat**\
+`Mr. Allred beat the incumbent, Representative Julie Johnson, and is now favored to win the general election in a heavily Democratic Dallas-based district.`\
+https://www.nytimes.com/2026/05/26/us/politics/texas-democratic-primary-allred-johnson.html
+
+**4 Takeaways From the ‘Summer House’ Season 10 Reunion**\
+`The highly anticipated episode delved into the timeline of the relationship between Amanda Batula and West Wilson and the pair’s confrontation with Ciara Miller and the rest of their housemates.`\
+https://www.nytimes.com/2026/05/26/arts/television/summer-house-reunion-takeaways.html
+
+**Cornyn Crushed: 6 Takeaways From Tuesday’s Runoffs in Texas**\
+`President Trump’s record of ousting those he sees as disloyal continued apace with Senator John Cornyn’s defeat. Whether his relationship with Senate Republicans can be repaired is another question.`\
+https://www.nytimes.com/2026/05/26/us/politics/texas-runoff-senate-cornyn-paxton.html
+
+**Evacuation Orders Lifted as Southern California Chemical Tank Cools**\
+`The risk of an explosion or spill has fallen, and the authorities said late Tuesday that all evacuated residents can go home. Some have begun to ask who should be held accountable.`\
+https://www.nytimes.com/2026/05/26/us/chemical-tank-orange-county-california.html
+
 **A Cod Boat, a Coast Guard Flight and a Lot of Debate About the E.U.**\
 `Iceland may try to join the European Union. A reporter battled seasickness on a fishing trip and strapped herself into a Coast Guard plane to understand how Icelanders felt about the prospect.`\
 https://www.nytimes.com/2026/05/26/insider/iceland-eu.html
