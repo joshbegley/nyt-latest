@@ -1,3 +1,7 @@
+**Ken Paxton Ousts John Cornyn, Solidifying Trump’s Grip on the Republican Party**\
+`Ken Paxton, the Texas attorney general, overcame scandals and a significant fund-raising disadvantage to win. His victory sets up the general-election clash that Democrats had hoped for.`\
+https://www.nytimes.com/2026/05/26/us/politics/texas-republican-senate-cornyn-paxton.html
+
 **5 Things to Know About Ken Paxton, Republican Senate Hopeful in Texas**\
 `With the support of President Trump, Mr. Paxton is trying to unseat Senator John Cornyn in a high-profile Republican runoff.`\
 https://www.nytimes.com/2026/05/26/us/politics/ken-paxton-republican-senate-candidate.html
@@ -186,11 +190,7 @@ https://www.nytimes.com/2026/05/26/us/politics/supreme-court-drivers-licenses-mi
 `Fans celebrated the New York Knicks’ win after they swept the Cleveland Cavaliers on Monday, leading them to the N.B.A. Finals. The win sets the Knicks up for their first Finals appearance since 1999.`\
 https://www.nytimes.com/video/sports/basketball/100000010926060/thousands-of-knicks-fans-celebrate-as-team-heads-to-nba-finals.html
 
-**Canada Strikes Landmark Deal to Export Liquefied Natural Gas to Germany**\
-`The agreement is important for both nations, as Canada seeks new markets away from the United States and Germany tries to diversify its energy supply.`\
-https://www.nytimes.com/2026/05/26/world/canada/canada-germany-natural-gas-lng.html
-
-**Texas Election Live Updates: Paxton Builds Lead Over Cornyn in Senate Runoff**\
-`Ken Paxton, the Texas attorney general, was endorsed by President Trump over John Cornyn, a four-term Republican senator. Representative Christian Menefee won a Democratic primary pitting two incumbents against each other.`\
+**Texas Election Live Updates: Paxton Cruises to Senate Nomination With Trump’s Backing**\
+`Ken Paxton, the Texas attorney general, defeated John Cornyn, a four-term Republican senator, in a runoff that confirmed the president’s grip on his party. Mr. Paxton will face the Democratic nominee, James Talarico, in a race with national implications.`\
 https://www.nytimes.com/live/2026/05/26/us/texas-primary-runoff-elections
 

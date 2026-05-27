@@ -1,3 +1,11 @@
+**Ken Paxton Ousts John Cornyn, Solidifying Trump’s Grip on the Republican Party**\
+`Ken Paxton, the Texas attorney general, overcame scandals and a significant fund-raising disadvantage to win. His victory sets up the general-election clash that Democrats had hoped for.`\
+https://www.nytimes.com/2026/05/26/us/politics/texas-republican-senate-cornyn-paxton.html
+
+**Texas Election Live Updates: Paxton Cruises to Senate Nomination With Trump’s Backing**\
+`Ken Paxton, the Texas attorney general, defeated John Cornyn, a four-term Republican senator, in a runoff that confirmed the president’s grip on his party. Mr. Paxton will face the Democratic nominee, James Talarico, in a race with national implications.`\
+https://www.nytimes.com/live/2026/05/26/us/texas-primary-runoff-elections
+
 **5 Things to Know About Ken Paxton, Republican Senate Hopeful in Texas**\
 `With the support of President Trump, Mr. Paxton is trying to unseat Senator John Cornyn in a high-profile Republican runoff.`\
 https://www.nytimes.com/2026/05/26/us/politics/ken-paxton-republican-senate-candidate.html
