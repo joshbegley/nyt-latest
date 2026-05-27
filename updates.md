@@ -1,3 +1,11 @@
+**Nine Workers Missing After Tank Implosion at Paper Mill in Washington**\
+`Officials were trying to find out whether they had been at work or were merely unreachable. Officials said the implosion has left at least one person dead and nine others injured.`\
+https://www.nytimes.com/2026/05/27/us/longview-washington-paper-mill-implosion.html
+
+**Meeting Voters, a Republican Tries to Outrun His Party’s Woes**\
+`Representative Mike Flood of Nebraska is still meeting with constituents long after most G.O.P. members of Congress have concluded it is too politically dangerous to do so.`\
+https://www.nytimes.com/2026/05/27/us/politics/mike-flood-gop-town-hall.html
+
 **U.F.C. Arena Takes Shape on White House Lawn**\
 `Construction for the Ultimate Fighting Championship arena continues on the South Lawn of The White House ahead of the June 14th fight planned for President Trump’s 80th birthday.`\
 https://www.nytimes.com/video/us/politics/100000010928330/ufc-white-house-trump.html
