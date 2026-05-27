@@ -1,3 +1,7 @@
+**Why Memory Chips Are Dominating the A.I. Rally**\
+`Three major producers — Micron, Samsung and SK Hynix — are now trillion-dollar companies. Politicians and Wall Street have taken notice.`\
+https://www.nytimes.com/2026/05/27/business/dealbook/ai-chips-war-samsung-micron.html
+
 **Margot Wellington, Who Helped Save Grand Central Terminal, Dies at 91**\
 `As the director of the Municipal Art Society, she led the fight to save countless New York City landmarks from the wrecking ball.`\
 https://www.nytimes.com/2026/05/27/nyregion/margot-wellington-dead.html
@@ -146,7 +150,7 @@ https://www.nytimes.com/2026/05/27/theater/thornton-wilder-emporium-last-play.ht
 `Carrying multiple cellphones, whether for cybersecurity or work-life balance, comes with some quirks and style challenges.`\
 https://www.nytimes.com/2026/05/27/style/two-phones-work-personal.html
 
-**The Prison System Doesn’t Encourage Change. Time Does.**\
+**Befriending Time Changed My Life**\
 `A formerly incarcerated writer reflects on how the prison system didn’t foster change, but befriending time did.`\
 https://www.nytimes.com/2026/05/27/opinion/america-incarceration-prison-time-film.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/opinion/100000010910796/prison-and-time.html
 **Reseña de ‘The Boroughs’: como ‘Stranger Things’, pero con adultos mayores**\
 `En una nueva serie de Netflix de la productora de los hermanos Duffer, los que luchan contra los monstruos ya no se mueven tan rápido como antes.`\
 https://www.nytimes.com/es/2026/05/27/espanol/cultura/resena-the-boroughs-netflix-duffer-brothers.html
-
-**Trump-Backed Ken Paxton Ousts Incumbent Senator in Texas**\
-`Ken Paxton, the Texas attorney general endorsed by President Trump, defeated John Cornyn, a four-term Republican senator, in a runoff. The race’s results reflected Trump’s influence over the party.`\
-https://www.nytimes.com/video/us/100000010927738/texas-senate-paxton-cornyn-trump.html
 

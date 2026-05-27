@@ -1,3 +1,7 @@
+**Margot Wellington, Who Helped Save Grand Central Terminal, Dies at 91**\
+`As the director of the Municipal Art Society, she led the fight to save countless New York City landmarks from the wrecking ball.`\
+https://www.nytimes.com/2026/05/27/nyregion/margot-wellington-dead.html
+
 **Samsung Unions Approve Pay Deal That Highlights Inequality of A.I. Age**\
 `The agreement all but guarantees hefty bonuses for employees in the top-performing chip unit. Other workers say they feel left out.`\
 https://www.nytimes.com/2026/05/27/world/asia/samsung-ai-profit-bonus-workers.html

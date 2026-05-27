@@ -1,3 +1,7 @@
+**Margot Wellington, Who Helped Save Grand Central Terminal, Dies at 91**\
+`As the director of the Municipal Art Society, she led the fight to save countless New York City landmarks from the wrecking ball.`\
+https://www.nytimes.com/2026/05/27/nyregion/margot-wellington-dead.html
+
 **War. Heat. Cigarettes.**\
 `Updates on stories from around the world.`\
 https://www.nytimes.com/2026/05/27/briefing/war-heat-cigarettes.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/05/27/espanol/cultura/resena-the-boroughs-netfli
 **Trump-Backed Ken Paxton Ousts Incumbent Senator in Texas**\
 `Ken Paxton, the Texas attorney general endorsed by President Trump, defeated John Cornyn, a four-term Republican senator, in a runoff. The race’s results reflected Trump’s influence over the party.`\
 https://www.nytimes.com/video/us/100000010927738/texas-senate-paxton-cornyn-trump.html
-
-**Los científicos descartaron un escenario climático alarmante. ¿Y ahora qué?**\
-`Un equipo internacional de investigadores publicó una revisión de los escenarios de emisiones empleados para estudiar el calentamiento global. Esto provocó un intenso debate público.`\
-https://www.nytimes.com/es/2026/05/27/espanol/tiempo-y-clima/cambio-climatico-efectos.html
 
