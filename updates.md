@@ -1,3 +1,7 @@
+**Cornyn Crushed: 7 Takeaways From Tuesday’s Runoffs in Texas**\
+`President Trump’s record of ousting those he sees as disloyal continued apace with Senator John Cornyn’s defeat. Whether his relationship with Senate Republicans can be repaired is another question.`\
+https://www.nytimes.com/2026/05/26/us/politics/texas-runoff-senate-cornyn-paxton.html
+
 **Colin Allred, Former Lawmaker, Wins Democratic Runoff for House Seat**\
 `Mr. Allred beat the incumbent, Representative Julie Johnson, and is now favored to win the general election in a heavily Democratic Dallas-based district.`\
 https://www.nytimes.com/2026/05/26/us/politics/texas-democratic-primary-allred-johnson.html
