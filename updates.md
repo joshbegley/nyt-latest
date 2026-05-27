@@ -1,3 +1,11 @@
+**See Where the Gerrymandering Wars Have Redrawn U.S. Congressional Maps**\
+`Eight states have redrawn their district lines since last summer, and two more are pushing to use new maps ahead of the midterm elections.`\
+https://www.nytimes.com/interactive/2026/us/politics/states-gerrymandering-redistricting-maps.html
+
+**9 Missing After Tank Implosion at a Paper Mill in Longview, Washington**\
+`Officials said they did not believe anyone was still alive inside the facility. The implosion has left at least two people dead and several others injured.`\
+https://www.nytimes.com/2026/05/27/us/longview-washington-paper-mill-implosion.html
+
 **Canadá exportará gas natural licuado a Alemania**\
 `El acuerdo es importante para ambas naciones, ya que Canadá busca nuevos mercados lejos de Estados Unidos mientras que Alemania intenta diversificar su suministro energético.`\
 https://www.nytimes.com/es/2026/05/27/espanol/mundo/canada-alemania-gas.html

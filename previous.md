@@ -1,3 +1,7 @@
+**See Where the Gerrymandering Wars Have Redrawn U.S. Congressional Maps**\
+`Eight states have redrawn their district lines since last summer, and two more are pushing to use new maps ahead of the midterm elections.`\
+https://www.nytimes.com/interactive/2026/us/politics/states-gerrymandering-redistricting-maps.html
+
 **Canadá exportará gas natural licuado a Alemania**\
 `El acuerdo es importante para ambas naciones, ya que Canadá busca nuevos mercados lejos de Estados Unidos mientras que Alemania intenta diversificar su suministro energético.`\
 https://www.nytimes.com/es/2026/05/27/espanol/mundo/canada-alemania-gas.html
@@ -43,7 +47,7 @@ https://www.nytimes.com/2026/05/27/world/middleeast/lebaon-war-deal-iran-us.html
 https://www.nytimes.com/2026/05/27/nyregion/knicks-finals-ticket-prices.html
 
 **9 Missing After Tank Implosion at a Paper Mill in Longview, Washington**\
-`Officials were trying to find out whether they had been at work or were merely unreachable. Officials said the implosion has left at least one person dead and nine others injured.`\
+`Officials said they did not believe anyone was still alive inside the facility. The implosion has left at least two people dead and several others injured.`\
 https://www.nytimes.com/2026/05/27/us/longview-washington-paper-mill-implosion.html
 
 **Meeting Voters, a Republican Tries to Outrun His Party’s Woes**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/world/asia/100000010928052/laos-cave-flooding-resc
 **Ferrari’s First Electric Car Runs Into Backlash in Italy and Beyond**\
 `Memes mocked the new model, analysts questioned its appeal and investors sold the automaker’s stock. A former Ferrari chairman warned of “the destruction of a legend.”`\
 https://www.nytimes.com/2026/05/27/business/ferrari-luce-electric-ev-backlash.html
-
-**The Viruses Causing New Outbreaks Are Much Less Familiar to Science**\
-`The types of Ebola and hantavirus worrying officials are very different from the species identified decades ago, raising new questions about how to respond.`\
-https://www.nytimes.com/2026/05/27/science/ebola-hantavirus-species-strains.html
 
