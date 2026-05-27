@@ -1,4 +1,20 @@
-**Could Russia Go Further? It at Least Wants Ukraine to Think So.**\
+**What’s Your ‘Mom Aesthetic’? TikTok Wants to Know.**\
+`Motherhood has become just another vibe to brand.`\
+https://www.nytimes.com/2026/05/27/style/mom-aesthetic-parenting-tiktok.html
+
+**My Parents Suspect I’ve Lost My Faith. Should I Tell Them the Truth?**\
+`My mother sent me a long voicemail saying she believes I no longer pray, and implied that my wife may be to blame.`\
+https://www.nytimes.com/2026/05/27/magazine/parents-suspect-ive-lost-my-faith-ethics.html
+
+**At the ‘Summer House’ Reunion Screening in NYC, Fans Got Emotional**\
+`The Bravo show ran alongside off-camera drama. And at an AMC screening of the reunion in New York City, viewers were ready to process it together.`\
+https://www.nytimes.com/2026/05/27/style/summer-house-reunion-bravo-amc-screening.html
+
+**Ball State Settles With Ex-Employee for $225,000 Over Charlie Kirk Posts**\
+`Ball State University is the latest institution to agree to pay workers who lost their jobs over their posts about the conservative activist.`\
+https://www.nytimes.com/2026/05/27/us/politics/ball-state-charlie-kirk-settlement.html
+
+**Could Russia Hit Harder? It at Least Wants Ukraine to Think So.**\
 `Major attacks on Kyiv, followed by warnings of more, come as Moscow is stalled on the battlefield and at the negotiating table.`\
 https://www.nytimes.com/2026/05/27/world/europe/russia-ukraine-kyiv-attacks.html
 
@@ -177,20 +193,4 @@ https://www.nytimes.com/es/2026/05/27/espanol/opinion/verano-vuelos-retrasos.htm
 **A House That Adapts to Party Mode, Private Mode and Guest Mode**\
 `A London couple turned their four-bedroom house into a one-bedroom shape-shifter — and got a lot more room for living.`\
 https://www.nytimes.com/2026/05/27/realestate/hackney-london-renovation-small.html
-
-**How to Find Tickets to the 2026 Tony Award-Nominated Plays and Musicals**\
-`Many of the top contenders are onstage right now. Here’s a guide to help you navigate the field and find tickets.`\
-https://www.nytimes.com/2026/05/27/theater/tony-nominated-broadway-shows-tickets.html
-
-**The ‘Yogurt Shop Murders’ Case Was Solved, but the Story Hasn’t Changed**\
-`The true culprit was identified soon after this HBO documentary came out. A new episode shows that the series was less about who did the killings than about the agony of uncertainty.`\
-https://www.nytimes.com/2026/05/27/arts/television/yogurt-shop-murders-new-episode.html
-
-**Tiler Peck’s New Ballet Expands the Idea of What Female and Male Dancers Can Be**\
-`The idea of sisterhood and brotherhood flows through “Symphonie Espagnole,” Peck’s new work for New York City Ballet. We dissect two sections.`\
-https://www.nytimes.com/2026/05/27/arts/dance/tiler-peck-symphonie-espagnole-city-ballet.html
-
-**America’s Last Surviving Wallace Neff Bubble House Is for Sale**\
-`Located in Pasadena, Calif., this futuristic dome — and affordable housing prototype — still stuns.`\
-https://www.nytimes.com/2026/05/27/realestate/the-last-bubble-house-wallace-neff.html
 

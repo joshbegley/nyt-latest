@@ -1,3 +1,23 @@
+**What’s Your ‘Mom Aesthetic’? TikTok Wants to Know.**\
+`Motherhood has become just another vibe to brand.`\
+https://www.nytimes.com/2026/05/27/style/mom-aesthetic-parenting-tiktok.html
+
+**My Parents Suspect I’ve Lost My Faith. Should I Tell Them the Truth?**\
+`My mother sent me a long voicemail saying she believes I no longer pray, and implied that my wife may be to blame.`\
+https://www.nytimes.com/2026/05/27/magazine/parents-suspect-ive-lost-my-faith-ethics.html
+
+**At the ‘Summer House’ Reunion Screening in NYC, Fans Got Emotional**\
+`The Bravo show ran alongside off-camera drama. And at an AMC screening of the reunion in New York City, viewers were ready to process it together.`\
+https://www.nytimes.com/2026/05/27/style/summer-house-reunion-bravo-amc-screening.html
+
+**Ball State Settles With Ex-Employee for $225,000 Over Charlie Kirk Posts**\
+`Ball State University is the latest institution to agree to pay workers who lost their jobs over their posts about the conservative activist.`\
+https://www.nytimes.com/2026/05/27/us/politics/ball-state-charlie-kirk-settlement.html
+
+**Could Russia Hit Harder? It at Least Wants Ukraine to Think So.**\
+`Major attacks on Kyiv, followed by warnings of more, come as Moscow is stalled on the battlefield and at the negotiating table.`\
+https://www.nytimes.com/2026/05/27/world/europe/russia-ukraine-kyiv-attacks.html
+
 **Could Russia Go Further? It at Least Wants Ukraine to Think So.**\
 `Major attacks on Kyiv, followed by warnings of more, come as Moscow is stalled on the battlefield and at the negotiating table.`\
 https://www.nytimes.com/2026/05/27/world/europe/russia-ukraine-kyiv-attacks.html
