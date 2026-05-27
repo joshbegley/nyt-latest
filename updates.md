@@ -1,3 +1,11 @@
+**Ferrari’s Newest Car Drives Stock Down Automaker’s Stock Prices**\
+`The Italian sports car manufacturer received significant backlash after it unveiled its first electric vehicle, the Luce, earlier this week.`\
+https://www.nytimes.com/video/business/100000010928530/ferrari-luce-stock-fall.html
+
+**Trump Threatens Oman Over the Strait, Then Says, ‘They’ll Be Fine.’**\
+`(No description)`\
+https://www.nytimes.com/2026/05/27/world/middleeast/trump-oman-strait-hormuz.html
+
 **David Henderson, Innovative Poet and Hendrix Biographer, Dies at 83**\
 `Part of the Black Arts Movement of the 1960s, he went on to reclaim a leading musician of the psychedelic era as a distinctly African American artist.`\
 https://www.nytimes.com/2026/05/27/books/david-henderson-dead.html
