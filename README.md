@@ -19,7 +19,7 @@ https://www.nytimes.com/2026/05/27/well/utah-measles-unvaccinated-babies.html
 https://www.nytimes.com/2026/05/27/us/politics/fbi-arrest-cia-official-gold-bars.html
 
 **Pope Leo’s A.I. Vision Might Not Be Strange Enough**\
-`He is both a critic and a normalizer of the technology.`\
+`He is both a critic and a normalizer of artificial intelligence.`\
 https://www.nytimes.com/2026/05/27/opinion/pope-leo-ai-encyclical.html
 
 **Why Democrats Think They Can Flip Texas**\
