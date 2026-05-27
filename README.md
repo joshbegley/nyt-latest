@@ -1,3 +1,7 @@
+**Maps: Tracking Tropical Depression Jangmi**\
+`See the likely path and wind arrival times for Jangmi`\
+https://www.nytimes.com/interactive/2026/05/27/weather/jangmi-map-path-tracker.html
+
 **Israel Continues Its Escalation in Lebanon, Ordering Evacuations**\
 `The Israeli military issued sweeping evacuation orders for two southern cities, indicating that more airstrikes were imminent.`\
 https://www.nytimes.com/2026/05/27/world/middleeast/israel-hezbollah-lebanon.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/05/27/upshot/paxton-talarico-texas-polling.html
 **Paxton’s Texas Victory Opens a New Front in the Battle for the Senate**\
 `Many Democrats and some Republicans said the scandal-plagued Ken Paxton’s victory could turn Texas into a battleground state that will determine Senate control.`\
 https://www.nytimes.com/2026/05/27/us/politics/paxton-talarico-texas-senate-race.html
-
-**Mamdani Turns to the Private Sector to Help With Public Housing**\
-`Mayor Zohran Mamdani focused on freezing the rent for private housing tenants during his campaign. Now he is considering the problems in the city’s public housing developments.`\
-https://www.nytimes.com/2026/05/27/nyregion/mamdani-turns-to-the-private-sector-to-help-with-public-housing.html
 

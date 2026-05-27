@@ -1,3 +1,15 @@
+**Israel Continues Its Escalation in Lebanon, Ordering Evacuations**\
+`The Israeli military issued sweeping evacuation orders for two southern cities, indicating that more airstrikes were imminent.`\
+https://www.nytimes.com/2026/05/27/world/middleeast/israel-hezbollah-lebanon.html
+
+**National Park Entrance Fees Are Funding Trump’s D.C. Projects**\
+`The administration is spending at least $67 million worth of fees paid by visitors to national parks on fixing D.C. fountains and the Reflecting Pool.`\
+https://www.nytimes.com/2026/05/27/climate/park-service-fees-washington-trump.html
+
+**’60 Minutes’ Journalist Sharyn Alfonsi Loses Deal After Dispute With Bari Weiss**\
+`Sharyn Alfonsi, whose segment on a brutal Salvadoran prison was pulled abruptly in December, said that CBS News and its top editor, Bari Weiss, had let her contract expire.`\
+https://www.nytimes.com/2026/05/27/business/media/cbs-sharyn-alfonsi-bari-weiss.html
+
 **What’s Your ‘Mom Aesthetic’? TikTok Wants to Know.**\
 `Motherhood has become just another vibe to brand.`\
 https://www.nytimes.com/2026/05/27/style/mom-aesthetic-parenting-tiktok.html

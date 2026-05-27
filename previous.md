@@ -1,3 +1,11 @@
+**Israel Continues Its Escalation in Lebanon, Ordering Evacuations**\
+`The Israeli military issued sweeping evacuation orders for two southern cities, indicating that more airstrikes were imminent.`\
+https://www.nytimes.com/2026/05/27/world/middleeast/israel-hezbollah-lebanon.html
+
+**National Park Entrance Fees Are Funding Trump’s D.C. Projects**\
+`The administration is spending at least $67 million worth of fees paid by visitors to national parks on fixing D.C. fountains and the Reflecting Pool.`\
+https://www.nytimes.com/2026/05/27/climate/park-service-fees-washington-trump.html
+
 **What’s Your ‘Mom Aesthetic’? TikTok Wants to Know.**\
 `Motherhood has become just another vibe to brand.`\
 https://www.nytimes.com/2026/05/27/style/mom-aesthetic-parenting-tiktok.html
@@ -30,7 +38,7 @@ https://www.nytimes.com/2026/05/27/briefing/today-in-short.html
 `Israeli strikes pounded southern Lebanon on Wednesday, escalating Israel’s campaign against Hezbollah and complicating talks to end the U.S.-Israeli war with Iran.`\
 https://www.nytimes.com/video/world/middleeast/100000010928024/israel-lebanon-strikes-hezbollah.html
 
-**‘60 Minutes’ Journalist Who Accused CBS of Political Meddling Loses Her Deal**\
+**’60 Minutes’ Journalist Sharyn Alfonsi Loses Deal After Dispute With Bari Weiss**\
 `Sharyn Alfonsi, whose segment on a brutal Salvadoran prison was pulled abruptly in December, said that CBS News and its top editor, Bari Weiss, had let her contract expire.`\
 https://www.nytimes.com/2026/05/27/business/media/cbs-sharyn-alfonsi-bari-weiss.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/05/27/us/politics/paxton-talarico-texas-senate-race
 **Mamdani Turns to the Private Sector to Help With Public Housing**\
 `Mayor Zohran Mamdani focused on freezing the rent for private housing tenants during his campaign. Now he is considering the problems in the city’s public housing developments.`\
 https://www.nytimes.com/2026/05/27/nyregion/mamdani-turns-to-the-private-sector-to-help-with-public-housing.html
-
-**Viajar en avión: de malo a peor en la era del caos**\
-`Si no puedo conseguir una mejora –y no puedo, ya que no tengo estatus, en ningún aspecto de mi vida—, me gustaría que sufriéramos más por igual cuando viajamos.`\
-https://www.nytimes.com/es/2026/05/27/espanol/opinion/verano-vuelos-retrasos.html
-
-**A House That Adapts to Party Mode, Private Mode and Guest Mode**\
-`A London couple turned their four-bedroom house into a one-bedroom shape-shifter — and got a lot more room for living.`\
-https://www.nytimes.com/2026/05/27/realestate/hackney-london-renovation-small.html
 
