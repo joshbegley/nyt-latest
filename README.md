@@ -1,3 +1,7 @@
+**To Make a Deal With Trump, Iran Wants Billions of Its Money Unfrozen**\
+`The money has become a sticking point in talks, with Iran insisting that meaningful negotiations cannot begin without the funds’ release.`\
+https://www.nytimes.com/2026/05/27/world/middleeast/iran-frozen-funds-trump-deal.html
+
 **Canada Rejects U.S. Military Suppliers in Favor of Swedish Aircraft**\
 `Prime Minister Mark Carney chose a Saab surveillance and control plane after vowing to reduce military spending with the United States.`\
 https://www.nytimes.com/2026/05/27/world/canada/carney-canada-military-spending-saab-air-force.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/05/27/opinion/enhanced-games-athletes-steroids-drug
 **Heat Wave Hits Canada With Warnings in Alberta, Manitoba and Saskatchewan**\
 `Canada’s first big heat wave of the year was expected to bring prolonged warm weather to southern Alberta, Saskatchewan and Manitoba.`\
 https://www.nytimes.com/2026/05/27/weather/canada-heat-warnings.html
-
-**My Partner’s Irresponsible Mother Asked Him to Guarantee Her Lease. Help!**\
-`A reader worries that her partner could be jeopardizing their future life together by helping out relatives he knows to be terrible with money.`\
-https://www.nytimes.com/2026/05/27/style/family-co-sign-lease-guarantor.html
 
