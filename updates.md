@@ -1,3 +1,7 @@
+**Ferrari’s First Electric Car Runs Into Backlash in Italy and Beyond**\
+`Memes mocked the new model, analysts questioned its appeal and investors sold the automaker’s stock. A former Ferrari chairman warned of “the destruction of a legend.”`\
+https://www.nytimes.com/2026/05/27/business/ferrari-luce-electric-ev-backlash.html
+
 **The Viruses Causing New Outbreaks Are Much Less Familiar to Science**\
 `The types of Ebola and hantavirus panicking officials are very different from the species identified decades ago, raising new questions about how to respond.`\
 https://www.nytimes.com/2026/05/27/science/ebola-hantavirus-species-strains.html
