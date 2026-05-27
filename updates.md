@@ -1,3 +1,15 @@
+**Minneapolis Police Chief Brian O’Hara Resigns After Investigation**\
+`The chief, Brian O’Hara, began leading the department in 2022 as it reeled in the aftermath of the police killing of George Floyd.`\
+https://www.nytimes.com/2026/05/26/us/minneapolis-police-chief-resigns.html
+
+**Ken Paxton Ousts John Cornyn, Solidifying Trump’s Grip on Republican Party Voters**\
+`Ken Paxton, the Texas attorney general, overcame scandals and a significant fund-raising disadvantage to win. His victory sets up the general-election clash that Democrats had hoped for.`\
+https://www.nytimes.com/2026/05/26/us/politics/texas-republican-senate-cornyn-paxton.html
+
+**Texas Election Live Updates: Paxton Routs Cornyn in Senate G.O.P. Runoff With Trump’s Backing**\
+`Ken Paxton, the Texas attorney general, defeated John Cornyn, a four-term Republican senator, in a runoff that confirmed the president’s hold on his party’s voters. Mr. Paxton will face the Democratic nominee, James Talarico, in a race with national implications.`\
+https://www.nytimes.com/live/2026/05/26/us/texas-primary-runoff-elections
+
 **Ken Paxton Ousts John Cornyn, Solidifying Trump’s Grip on the Republican Party**\
 `Ken Paxton, the Texas attorney general, overcame scandals and a significant fund-raising disadvantage to win. His victory sets up the general-election clash that Democrats had hoped for.`\
 https://www.nytimes.com/2026/05/26/us/politics/texas-republican-senate-cornyn-paxton.html

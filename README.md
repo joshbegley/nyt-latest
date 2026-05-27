@@ -1,3 +1,7 @@
+**The Winner of the Cornyn-Paxton Runoff? James Talarico.**\
+`The Texas senate race will come down to the Democratic candidate’s strengths — and the Republican’s weaknesses.`\
+https://www.nytimes.com/2026/05/26/opinion/paxton-talarico-texas-senate.html
+
 **Minneapolis Police Chief Brian O’Hara Resigns After Investigation**\
 `The chief, Brian O’Hara, began leading the department in 2022 as it reeled in the aftermath of the police killing of George Floyd.`\
 https://www.nytimes.com/2026/05/26/us/minneapolis-police-chief-resigns.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/05/26/climate/air-travel-emissions.html
 **At the A.I. Epicenter, Technologists Dismiss Pope Leo’s Warnings About the New Technology**\
 `Pope Leo XIV’s spiritual message on artificial intelligence arrived as Silicon Valley’s A.I. enthusiasts pursue their own spirituality through technology.`\
 https://www.nytimes.com/2026/05/26/technology/pope-leo-ai-religion.html
-
-**Supreme Court Rejects Lawsuit Over Commercial Driver’s Licenses for Migrants**\
-`Florida officials had asked the justices to hear a lawsuit accusing California and Washington of improperly granting licenses to an immigrant accused in a fatal crash.`\
-https://www.nytimes.com/2026/05/26/us/politics/supreme-court-drivers-licenses-migrants.html
 
 **Texas Election Live Updates: Paxton Routs Cornyn in Senate G.O.P. Runoff With Trump’s Backing**\
 `Ken Paxton, the Texas attorney general, defeated John Cornyn, a four-term Republican senator, in a runoff that confirmed the president’s hold on his party’s voters. Mr. Paxton will face the Democratic nominee, James Talarico, in a race with national implications.`\
