@@ -1,3 +1,11 @@
+**Two Survivors Left at Sea After U.S. Attacks Boat in Pacific**\
+`One person was killed in the U.S. military’s 58th strike against vessels it accused of smuggling drugs.`\
+https://www.nytimes.com/2026/05/27/us/politics/two-survivors-boat-strike.html
+
+**BP’s Former Chairman, Albert Manifold, Disputes How Company Characterized His Dismissal**\
+`Albert Manifold, who was abruptly fired less than a year after he was appointed, said he was let go “without explanation.”`\
+https://www.nytimes.com/2026/05/27/business/bp-albert-manifold.html
+
 **At the Enhanced Games, Rules Are for Suckers**\
 `The company seems to want a world where nobody tells it no.`\
 https://www.nytimes.com/2026/05/27/opinion/enhanced-games-athletes-steroids-drugs.html
