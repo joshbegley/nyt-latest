@@ -1,3 +1,7 @@
+**Iranians Emerge From a ‘Black Hole’ as Internet Shutdown Eases**\
+`After three months, the government is letting people connect with the world again. But not everyone has access, and those who do wonder how long it will last.`\
+https://www.nytimes.com/2026/05/27/world/europe/iran-internet.html
+
 **A MAGA Victory in Texas, and the Trump Administration’s New Ebola Plan**\
 `Plus, Iran begins lifting an internet blackout.`\
 https://www.nytimes.com/2026/05/27/podcasts/the-headlines/texas-election-ebola-plan.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/05/27/espanol/tiempo-y-clima/cambio-climatico-ef
 **¿Qué hacer si tienes una picadura de medusa? Orinar sobre ella quizá no sea la respuesta**\
 `Abundan los mitos y conceptos erróneos sobre las medusas. Aquí te explicamos cómo mantenerte a salvo esta temporada de playa cerca de estas maravillas gelatinosas.`\
 https://www.nytimes.com/es/2026/05/27/espanol/ciencia-y-tecnologia/medusas-picadura-orinar-tratamiento.html
-
-**El Centro Kennedy se queda en silencio**\
-`Las cancelaciones por motivos políticos y un cierre previsto para renovar el edificio han golpeado a la orquesta del Centro Kennedy, cuyos miembros no han recibido un salario completo en meses.`\
-https://www.nytimes.com/es/2026/05/27/espanol/cultura/centro-kennedy-trabajadores-musicos.html
 
