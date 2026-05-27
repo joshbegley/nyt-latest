@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/05/27/world/africa/south-africa-ghana-immigration-protests.html
 
 **La policía escolar de Texas roció con gas pimienta, golpeó y dio descargas eléctricas a varios alumnos**\
-`La presencia de agentes en las escuelas de Texas ha aumentado como medida para prevenir tiroteos. Sin embargo, una investigación reciente del Times demuestra que recurren a tácticas de mano dura con los niños.`\
+`La presencia de agentes  en las escuelas de Texas ha aumentado como medida para prevenir tiroteos. Sin embargo, una investigación reciente del Times demuestra que  recurren a tácticas de mano dura con los niños.`\
 https://www.nytimes.com/interactive/2026/05/27/espanol/estados-unidos/texas-escuelas-agentes-policia-estudiantes-uvalde.html
 
 **Texas School Police Pepper-Sprayed, Tackled and Tasered Students**\
