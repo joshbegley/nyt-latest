@@ -194,7 +194,7 @@ https://www.nytimes.com/video/podcasts/100000010926773/how-nicolas-cage-escaped-
 `Nicolas Cage’s outsized acting style has led to his work being frequently memed on the Internet. On “The Interview,” He talked about what it’s like to see his memorable acting moments turned into GIFs.`\
 https://www.nytimes.com/video/podcasts/100000010926740/what-nicolas-cage-thinks-of-becoming-a-meme.html
 
-**Texas Election Live Updates: Paxton Routs Cornyn in Senate G.O.P. Runoff With Trump’s Backing**\
+**With Trump’s Backing, Paxton Routs Cornyn in Texas Senate G.O.P. Runoff**\
 `Ken Paxton, the Texas attorney general, defeated John Cornyn, a four-term Republican senator, in a runoff that confirmed the president’s hold on his party’s voters. Mr. Paxton will face the Democratic nominee, James Talarico, in a race with national implications.`\
 https://www.nytimes.com/live/2026/05/26/us/texas-primary-runoff-elections
 

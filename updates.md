@@ -1,3 +1,7 @@
+**With Trump’s Backing, Paxton Routs Cornyn in Texas Senate G.O.P. Runoff**\
+`Ken Paxton, the Texas attorney general, defeated John Cornyn, a four-term Republican senator, in a runoff that confirmed the president’s hold on his party’s voters. Mr. Paxton will face the Democratic nominee, James Talarico, in a race with national implications.`\
+https://www.nytimes.com/live/2026/05/26/us/texas-primary-runoff-elections
+
 **Cornyn Crushed: 7 Takeaways From Tuesday’s Runoffs in Texas**\
 `President Trump’s record of ousting those he sees as disloyal continued apace with Senator John Cornyn’s defeat. Whether his relationship with Senate Republicans can be repaired is another question.`\
 https://www.nytimes.com/2026/05/26/us/politics/texas-runoff-senate-cornyn-paxton.html
