@@ -1,4 +1,8 @@
-**Ken Paxton Ousts John Cornyn, Solidifying Trump’s Grip on the Republican Party**\
+**Minneapolis Police Chief Brian O’Hara Resigns After Investigation**\
+`The chief, Brian O’Hara, began leading the department in 2022 as it reeled in the aftermath of the police killing of George Floyd.`\
+https://www.nytimes.com/2026/05/26/us/minneapolis-police-chief-resigns.html
+
+**Ken Paxton Ousts John Cornyn, Solidifying Trump’s Grip on Republican Party Voters**\
 `Ken Paxton, the Texas attorney general, overcame scandals and a significant fund-raising disadvantage to win. His victory sets up the general-election clash that Democrats had hoped for.`\
 https://www.nytimes.com/2026/05/26/us/politics/texas-republican-senate-cornyn-paxton.html
 
@@ -186,11 +190,7 @@ https://www.nytimes.com/2026/05/26/technology/pope-leo-ai-religion.html
 `Florida officials had asked the justices to hear a lawsuit accusing California and Washington of improperly granting licenses to an immigrant accused in a fatal crash.`\
 https://www.nytimes.com/2026/05/26/us/politics/supreme-court-drivers-licenses-migrants.html
 
-**Thousands of Knicks Fans Celebrate as Team Heads to N.B.A. Finals**\
-`Fans celebrated the New York Knicks’ win after they swept the Cleveland Cavaliers on Monday, leading them to the N.B.A. Finals. The win sets the Knicks up for their first Finals appearance since 1999.`\
-https://www.nytimes.com/video/sports/basketball/100000010926060/thousands-of-knicks-fans-celebrate-as-team-heads-to-nba-finals.html
-
-**Texas Election Live Updates: Paxton Cruises to Senate Nomination With Trump’s Backing**\
-`Ken Paxton, the Texas attorney general, defeated John Cornyn, a four-term Republican senator, in a runoff that confirmed the president’s grip on his party. Mr. Paxton will face the Democratic nominee, James Talarico, in a race with national implications.`\
+**Texas Election Live Updates: Paxton Routs Cornyn in Senate G.O.P. Runoff With Trump’s Backing**\
+`Ken Paxton, the Texas attorney general, defeated John Cornyn, a four-term Republican senator, in a runoff that confirmed the president’s hold on his party’s voters. Mr. Paxton will face the Democratic nominee, James Talarico, in a race with national implications.`\
 https://www.nytimes.com/live/2026/05/26/us/texas-primary-runoff-elections
 
