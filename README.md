@@ -1,3 +1,11 @@
+**The Viruses Causing New Outbreaks Are Much Less Familiar to Science**\
+`The types of Ebola and hantavirus panicking officials are very different from the species identified decades ago, raising new questions about how to respond.`\
+https://www.nytimes.com/2026/05/27/science/ebola-hantavirus-species-strains.html
+
+**My Starring Role in ‘Heated Rivalry’ — for One Night Only**\
+`The unauthorized musical parody of the hit TV show gives the role of Scott Hunter to an unsuspecting audience member — and one recent night that was me.`\
+https://www.nytimes.com/2026/05/27/theater/heated-rivalry-parody-theater-off-broadway.html
+
 **Global Supply Shortages Deepen as War Drags On, Risking Jobs and Growth**\
 `After three months, the fallout of the closure of the Strait of Hormuz is spreading, with developing countries bearing the brunt of the shortfall.`\
 https://www.nytimes.com/2026/05/27/business/hormuz-global-shortages-gas.html
@@ -51,7 +59,7 @@ https://www.nytimes.com/2026/05/27/nyregion/margot-wellington-dead.html
 https://www.nytimes.com/2026/05/27/briefing/war-heat-cigarettes.html
 
 **After 88 Days of Censored News, TV and Chat, Iranians Are Coming Back Online**\
-`After three months, the government is letting people connect with the world again. But not everyone has access, and those who do wonder how long it will last.`\
+`The government is letting people connect with the world after a near-total internet shutdown. But not everyone has access, and those who do wonder how long it will last.`\
 https://www.nytimes.com/2026/05/27/world/europe/iran-internet.html
 
 **A MAGA Victory in Texas, and the Trump Administration’s New Ebola Plan**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/05/27/theater/thornton-wilder-emporium-last-play.ht
 **It Takes Two (or Three) Phones to Make a Thing Go Right**\
 `Carrying multiple cellphones, whether for cybersecurity or work-life balance, comes with some quirks and style challenges.`\
 https://www.nytimes.com/2026/05/27/style/two-phones-work-personal.html
-
-**Time Gave Me Back What Prison Took Away**\
-`A formerly incarcerated writer reflects on how the prison system didn’t foster change, but befriending time did.`\
-https://www.nytimes.com/2026/05/27/opinion/america-incarceration-prison-time-film.html
-
-**New Romance Books for Summer**\
-`Our critic on three standout May books.`\
-https://www.nytimes.com/2026/05/27/books/review/new-romance-books.html
 
