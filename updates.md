@@ -1,3 +1,15 @@
+**Mayes Middleton Defeats Chip Roy in the Runoff for Texas Attorney General**\
+`After connecting his opponent to past criticism of President Trump, the conservative state senator now advances to the general election.`\
+https://www.nytimes.com/2026/05/26/us/politics/texas-attorney-general.html
+
+**NYT Crossword Answers for May 27, 2026**\
+`Dario Salvucci meets us halfway.`\
+https://www.nytimes.com/2026/05/26/crosswords/daily-puzzle-2026-05-27.html
+
+**Fireball Falls From Space Over Erupting Volcano in the Philippines**\
+`Livestream video captured the fireball falling from space on Monday, over the most active volcano in the Philippines.`\
+https://www.nytimes.com/video/science/space/100000010926624/volcano-eruption-fireball-mayon-philippines.html
+
 **What Ken Paxton’s Win Means for James Talarico**\
 `The Texas senate race will come down to the Democratic candidate’s strengths — and the Republican’s weaknesses.`\
 https://www.nytimes.com/2026/05/26/opinion/paxton-talarico-texas-senate.html
