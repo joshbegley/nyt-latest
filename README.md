@@ -1,3 +1,7 @@
+**In Alabama Case, Supreme Court Faces First Major Test of Voting Rights Act Ruling**\
+`Republican leaders in the state have asked the justices to clear the way for a congressional map that a lower court found discriminated against Black voters.`\
+https://www.nytimes.com/2026/05/27/us/politics/supreme-court-alabama-voting-maps.html
+
 **Tiny Love Stories: ‘Dad Tried Hard to Look Offended’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/05/27/style/tiny-modern-love-stories-dad-tried-hard-to-look-offended.html
@@ -76,7 +80,7 @@ https://www.nytimes.com/2026/05/27/arts/television/blake-lively-justin-baldoni-d
 
 **A 15-Minute Beginner Jump Rope Workout**\
 `Skipping rope isn’t just for kids. Try this routine to get started.`\
-https://www.nytimes.com/2026/05/27/well/beginner-jump-rope-workout.html
+https://www.nytimes.com/2026/05/27/well/move/beginner-jump-rope-workout.html
 
 **What Five Years in Big Law at WilmerHale Taught Me**\
 `Despite all our good intentions, the legal system — that thing we were charged to protect — kept getting worse.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/05/27/world/asia/samsung-ai-profit-bonus-workers.ht
 **Iran War Live Updates: White House Denies Iranian State Media’s Outline of ‘Unofficial’ Deal**\
 `The reported draft agreement said Iran would reopen the Strait of Hormuz in return for the United States’ lifting its naval blockade.`\
 https://www.nytimes.com/live/2026/05/27/world/iran-war-trump-deal
-
-**Santiago Rivera inventó la tarta de queso vasca, pero prefiere el chocolate**\
-`A Santiago Rivera se le atribuye la creación del pastel de queso “quemado” en la década de 1980, aunque no le gustan los derivados que ha engendrado. Décadas después, se prepara para ceder su cocina a sus hijos.`\
-https://www.nytimes.com/es/2026/05/27/espanol/mundo/santiago-rivera-tarta-queso-vasca.html
 

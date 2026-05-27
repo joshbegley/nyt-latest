@@ -1,3 +1,11 @@
+**Tiny Love Stories: ‘Dad Tried Hard to Look Offended’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/05/27/style/tiny-modern-love-stories-dad-tried-hard-to-look-offended.html
+
+**After Decades on the Run, a Leftist Militant Is Sentenced in Germany**\
+`Daniela Klette, 67, was part of the Red Army Faction, which attacked American and capitalist interests until the 1990s. She was convicted of robberies committed later to finance life as a fugitive.`\
+https://www.nytimes.com/2026/05/27/world/europe/daniela-klette-jailed-red-army-faction.html
+
 **Maps: Tracking Tropical Depression Jangmi**\
 `See the likely path and wind arrival times for Jangmi`\
 https://www.nytimes.com/interactive/2026/05/27/weather/jangmi-map-path-tracker.html
