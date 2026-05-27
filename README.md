@@ -150,7 +150,7 @@ https://www.nytimes.com/2026/05/27/theater/thornton-wilder-emporium-last-play.ht
 `Carrying multiple cellphones, whether for cybersecurity or work-life balance, comes with some quirks and style challenges.`\
 https://www.nytimes.com/2026/05/27/style/two-phones-work-personal.html
 
-**Befriending Time Changed My Life**\
+**Time Gave Me Back What Prison Took Away**\
 `A formerly incarcerated writer reflects on how the prison system didn’t foster change, but befriending time did.`\
 https://www.nytimes.com/2026/05/27/opinion/america-incarceration-prison-time-film.html
 

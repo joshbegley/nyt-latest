@@ -1,3 +1,7 @@
+**Two of America’s Thorniest Political Issues Are Dividing an Arizona Town**\
+`Marana, Ariz., is used to placid local politics, but the town, in a congressional swing district held by Juan Ciscomani, has been convulsed by two national issues, A.I. and immigration detention.`\
+https://www.nytimes.com/2026/05/27/us/politics/marana-arizona-data-center-ice-detention.html
+
 **Why Memory Chips Are Dominating the A.I. Rally**\
 `Three major producers — Micron, Samsung and SK Hynix — are now trillion-dollar companies. Politicians and Wall Street have taken notice.`\
 https://www.nytimes.com/2026/05/27/business/dealbook/ai-chips-war-samsung-micron.html
