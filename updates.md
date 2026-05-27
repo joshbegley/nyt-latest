@@ -1,3 +1,7 @@
+**What Ken Paxton’s Win Means for James Talarico**\
+`The Texas senate race will come down to the Democratic candidate’s strengths — and the Republican’s weaknesses.`\
+https://www.nytimes.com/2026/05/26/opinion/paxton-talarico-texas-senate.html
+
 **5 Things to Know About Christian Menefee, Democratic House Nominee in Texas**\
 `Mr. Menefee, one of the newest members of Congress, beat Representative Al Green, a Democrat who is more than twice his age, in a primary runoff.`\
 https://www.nytimes.com/2026/05/26/us/politics/christian-menefee-democrat-house-candidate.html

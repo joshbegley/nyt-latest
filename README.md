@@ -107,7 +107,7 @@ https://www.nytimes.com/es/2026/05/26/espanol/estados-unidos/papa-enciclica-inte
 https://www.nytimes.com/2026/05/26/us/politics/midterm-primaries-primer.html
 
 **Fireball Falls From Space Over Erupting Volcano in the Philippines**\
-`Livestream video captured fireball falling from space on Monday, over the most active volcano in the Philippines.`\
+`Livestream video captured the fireball falling from space on Monday, over the most active volcano in the Philippines.`\
 https://www.nytimes.com/video/science/space/100000010926624/volcano-eruption-fireball-mayon-philippines.html
 
 ****\
