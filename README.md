@@ -1,3 +1,7 @@
+**Palabra del día en inglés: ‘shibboleth’**\
+`Esta palabra ha aparecido en 4 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/05/27/espanol/que-significa-shibboleth.html
+
 **El silencio ante la violación de palestinos**\
 `Hombres y mujeres palestinos describen abusos sexuales brutales a manos de guardias de prisiones, soldados, colonos e interrogadores israelíes.`\
 https://www.nytimes.com/es/2026/05/27/espanol/opinion/abuso-sexual-palestinos-israel.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/science/space/100000010926624/volcano-eruption-fir
 ****\
 `AfarTV YouTube livestream captured the moment when the fireball appeared, during an eruption of the Mayon volcano in the Philippines on May 25.`\
 https://www.nytimes.com/video/embedded/science/space/100000010927341/26vid-topart-volcano.html
-
-**Texans Head to the Polls, Again**\
-`Plus, Ferrari’s first fully electric car. Here’s the latest at the end of Tuesday.`\
-https://www.nytimes.com/2026/05/26/briefing/texas-primaries-iran.html
 
