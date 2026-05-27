@@ -1,3 +1,7 @@
+**9 Missing After Deadly Implosion at Washington State Paper Mill**\
+`At least two people were killed, and eight others were injured after a tank imploded at the Nippon Dynawave Packaging plant in Longview, Washington, on Tuesday.`\
+https://www.nytimes.com/video/us/100000010929438/washington-paper-mill-chemical-implosion.html
+
 **In Flint, Cash for Pregnant Women Leads to Better Outcomes for Babies**\
 `New research suggests money with no strings attached can promote better health, but other studies have seen mixed results.`\
 https://www.nytimes.com/2026/05/27/well/pregnancy-money-assistance-flint.html
