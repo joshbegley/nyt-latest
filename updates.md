@@ -1,4 +1,8 @@
 **Nigel Farage’s Far-Right Party Is Now Central to British Politics**\
+`Nigel Farage’s anti-immigrant, populist agenda has helped his party, Reform U.K., emerge from the fringe of politics in Britain. But it faces an uphill climb to win power.`\
+https://www.nytimes.com/2026/05/27/world/europe/britain-reform-party-farage.html
+
+**Nigel Farage’s Far-Right Party Is Now Central to British Politics**\
 `Nigel Farage’s anti-immigrant, populist agenda has helped his Reform U.K. party emerge from the fringe of politics in Britain. But it faces an uphill climb to win power.`\
 https://www.nytimes.com/2026/05/27/world/europe/britain-reform-party-farage.html
 
