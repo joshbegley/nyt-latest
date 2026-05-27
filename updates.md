@@ -1,3 +1,7 @@
+**Every New Cease-Fire in Lebanon Brings Hope — Until It Doesn’t**\
+`In Lebanon, each new cease-fire is met with blind optimism — as if it hails the end of a conflict instead of what it actually is: an admission ticket to the next war.`\
+https://www.nytimes.com/2026/05/27/opinion/lebanon-israel-hezbollah-cease-fire.html
+
 **Evacuation Orders Lifted as Southern California Chemical Tank Cools**\
 `The risk of an explosion or spill has fallen significantly, the authorities said late Tuesday, and all evacuated residents can now go home. Some have begun to ask who should be held accountable.`\
 https://www.nytimes.com/2026/05/26/us/chemical-tank-orange-county-california.html
