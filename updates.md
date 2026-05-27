@@ -1,3 +1,11 @@
+**How Democrats Can Avoid the Mistakes of 2024**\
+`Readers discuss the Democratic Party’s autopsy of the presidential election.`\
+https://www.nytimes.com/2026/05/27/opinion/democrats-autopsy-2024-election.html
+
+**Reflecting Pool Contract Has ‘Inflated’ Profit Margin, Government Analysis Finds**\
+`The firm that was given a no-bid contract to fix the troubled landmark is charging 20 percent. The typical profit margin is 6 percent to 12 percent, internal records show.`\
+https://www.nytimes.com/2026/05/27/us/politics/reflecting-pool-contractor-trump.html
+
 **Biden Sues Justice Dept. to Block Release of Tapes**\
 `The former president argued that the Justice Department has a responsibility to protect the privacy of conversations he had with a former ghostwriter.`\
 https://www.nytimes.com/2026/05/27/us/politics/biden-justice-dept-tapes.html
