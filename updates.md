@@ -1,3 +1,7 @@
+**Matthew Perry’s Personal Assistant, Kenneth Iwamasa, Sentenced to TK Years**\
+`Kenneth Iwamasa injected Mr. Perry with the ketamine that killed him. He is the last of five defendants to be sentenced in the case.`\
+https://www.nytimes.com/2026/05/27/arts/matthew-perry-personal-assistant-ketamine.html
+
 **To Make a Deal With Trump, Iran Wants Billions of Its Money Unfrozen**\
 `The money has become a sticking point in talks, with Iran insisting that meaningful negotiations cannot begin without the funds’ release.`\
 https://www.nytimes.com/2026/05/27/world/middleeast/iran-frozen-funds-trump-deal.html
