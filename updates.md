@@ -1,3 +1,19 @@
+**Why Ghana Is Evacuating Hundreds of Its Citizens From South Africa**\
+`Anti-immigrant protests have increased across South Africa, drawing forceful condemnation from several African leaders.`\
+https://www.nytimes.com/2026/05/27/world/africa/south-africa-ghana-immigration-protests.html
+
+**La policía escolar de Texas roció con gas pimienta, golpeó y dio descargas eléctricas a varios alumnos**\
+`La presencia de agentes en las escuelas de Texas ha aumentado como medida para prevenir tiroteos. Sin embargo, una investigación reciente del Times demuestra que recurren a tácticas de mano dura con los niños.`\
+https://www.nytimes.com/interactive/2026/05/27/espanol/estados-unidos/texas-escuelas-agentes-policia-estudiantes-uvalde.html
+
+**Texas School Police Pepper-Sprayed, Tackled and Tasered Students**\
+`School officers across the state turned to heavy-handed tactics on children, often in response to minor misbehavior, our investigation shows.`\
+https://www.nytimes.com/interactive/2026/05/27/us/texas-schools-police-force-students-uvalde.html
+
+**Bribery Indictments Are Dismissed in Case That Shook Soccer World**\
+`The decision marked an end to a significant part of a broader corruption investigation that rocked the soccer world more than a decade ago.`\
+https://www.nytimes.com/2026/05/27/nyregion/fifa-indictments-soccer-dismissed.html
+
 **Iran War Live Updates: As Talks Drag On, Trump Says ‘I Don’t Care’ About Midterms Pressure**\
 `President Trump said U.S. politics would not affect his strategy in the unpopular war and was open to protracted peace talks. He also insisted that Iran would not control the Strait of Hormuz.`\
 https://www.nytimes.com/live/2026/05/27/world/iran-war-trump-deal
