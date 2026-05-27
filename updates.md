@@ -1,3 +1,11 @@
+**Residents Watch as Israeli War Planes Circle Over Southern Lebanon**\
+`Israel has intensified its deadly military campaign against Hezbollah, the Iran-backed militant group, in recent days, striking targets across Lebanon.`\
+https://www.nytimes.com/2026/05/27/world/middleeast/lebanon-israel-hezbollah-military-campaign.html
+
+**After 88 Days of Censored News, TV and Chat, Iranians Are Coming Back Online**\
+`After three months, the government is letting people connect with the world again. But not everyone has access, and those who do wonder how long it will last.`\
+https://www.nytimes.com/2026/05/27/world/europe/iran-internet.html
+
 **Margot Wellington, Who Helped Save Grand Central Terminal, Dies at 91**\
 `As the director of the Municipal Art Society, she led the fight to rescue countless New York City landmarks from the wrecking ball.`\
 https://www.nytimes.com/2026/05/27/nyregion/margot-wellington-dead.html
