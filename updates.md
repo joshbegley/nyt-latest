@@ -1,3 +1,7 @@
+**In Flint, Cash for Pregnant Women Leads to Better Outcomes for Babies**\
+`New research suggests money with no strings attached can promote better health, but other studies have seen mixed results.`\
+https://www.nytimes.com/2026/05/27/well/pregnancy-money-assistance-flint.html
+
 **Escándalo FIFA: juez desestima 2 acusaciones**\
 `Hernán López, un exejecutivo de Fox, y la empresa argentina Full Play Group, eludieron los cargos tras ser acusados de haber participado en una trama para entregar dinero a representantes de la FIFA a cambio de derechos de transmisión.`\
 https://www.nytimes.com/es/2026/05/27/espanol/fifa-acusaciones-corrupcion.html

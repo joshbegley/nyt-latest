@@ -1,3 +1,7 @@
+**In Flint, Cash for Pregnant Women Leads to Better Outcomes for Babies**\
+`New research suggests money with no strings attached can promote better health, but other studies have seen mixed results.`\
+https://www.nytimes.com/2026/05/27/well/pregnancy-money-assistance-flint.html
+
 **Escándalo FIFA: juez desestima 2 acusaciones**\
 `Hernán López, un exejecutivo de Fox, y la empresa argentina Full Play Group, eludieron los cargos tras ser acusados de haber participado en una trama para entregar dinero a representantes de la FIFA a cambio de derechos de transmisión.`\
 https://www.nytimes.com/es/2026/05/27/espanol/fifa-acusaciones-corrupcion.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/27/style/tiny-modern-love-stories-dad-tried-hard
 **After Decades on the Run, a Leftist Militant Is Sentenced in Germany**\
 `Daniela Klette, 67, was part of the Red Army Faction, which attacked American and capitalist interests until the 1990s. She was convicted of robberies committed later to finance life as a fugitive.`\
 https://www.nytimes.com/2026/05/27/world/europe/daniela-klette-jailed-red-army-faction.html
-
-**Maps: Tracking Tropical Depression Jangmi**\
-`See the likely path and wind arrival times for Jangmi`\
-https://www.nytimes.com/interactive/2026/05/27/weather/jangmi-map-path-tracker.html
 
