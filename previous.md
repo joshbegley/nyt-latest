@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/05/27/business/dealbook/ai-chips-war-samsung-micron.html
 
 **Margot Wellington, Who Helped Save Grand Central Terminal, Dies at 91**\
-`As the director of the Municipal Art Society, she led the fight to save countless New York City landmarks from the wrecking ball.`\
+`As the director of the Municipal Art Society, she led the fight to rescue countless New York City landmarks from the wrecking ball.`\
 https://www.nytimes.com/2026/05/27/nyregion/margot-wellington-dead.html
 
 **War. Heat. Cigarettes.**\
@@ -150,7 +150,7 @@ https://www.nytimes.com/2026/05/27/theater/thornton-wilder-emporium-last-play.ht
 `Carrying multiple cellphones, whether for cybersecurity or work-life balance, comes with some quirks and style challenges.`\
 https://www.nytimes.com/2026/05/27/style/two-phones-work-personal.html
 
-**Befriending Time Changed My Life**\
+**Time Gave Me Back What Prison Took Away**\
 `A formerly incarcerated writer reflects on how the prison system didn’t foster change, but befriending time did.`\
 https://www.nytimes.com/2026/05/27/opinion/america-incarceration-prison-time-film.html
 

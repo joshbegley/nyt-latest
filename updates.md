@@ -1,3 +1,11 @@
+**Margot Wellington, Who Helped Save Grand Central Terminal, Dies at 91**\
+`As the director of the Municipal Art Society, she led the fight to rescue countless New York City landmarks from the wrecking ball.`\
+https://www.nytimes.com/2026/05/27/nyregion/margot-wellington-dead.html
+
+**Time Gave Me Back What Prison Took Away**\
+`A formerly incarcerated writer reflects on how the prison system didn’t foster change, but befriending time did.`\
+https://www.nytimes.com/2026/05/27/opinion/america-incarceration-prison-time-film.html
+
 **Two of America’s Thorniest Political Issues Are Dividing an Arizona Town**\
 `Marana, Ariz., is used to placid local politics, but the town, in a congressional swing district held by Juan Ciscomani, has been convulsed by two national issues, A.I. and immigration detention.`\
 https://www.nytimes.com/2026/05/27/us/politics/marana-arizona-data-center-ice-detention.html

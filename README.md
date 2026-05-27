@@ -1,3 +1,7 @@
+**Residents Watch as Israeli War Planes Circle Over Southern Lebanon**\
+`Israel has intensified its deadly military campaign against Hezbollah, the Iran-backed militant group, in recent days, striking targets across Lebanon.`\
+https://www.nytimes.com/2026/05/27/world/middleeast/lebanon-israel-hezbollah-military-campaign.html
+
 **Why Memory Chips Are Dominating the A.I. Rally**\
 `Three major producers — Micron, Samsung and SK Hynix — are now trillion-dollar companies. Politicians and Wall Street have taken notice.`\
 https://www.nytimes.com/2026/05/27/business/dealbook/ai-chips-war-samsung-micron.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/2026/05/27/nyregion/margot-wellington-dead.html
 `Updates on stories from around the world.`\
 https://www.nytimes.com/2026/05/27/briefing/war-heat-cigarettes.html
 
-**Iranians Emerge From a ‘Black Hole’ as Internet Shutdown Eases**\
+**After 88 Days of Censored News, TV and Chat, Iranians Are Coming Back Online**\
 `After three months, the government is letting people connect with the world again. But not everyone has access, and those who do wonder how long it will last.`\
 https://www.nytimes.com/2026/05/27/world/europe/iran-internet.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/27/business/oil-gas-price-iran.html
 **Prison and Time**\
 `A formerly incarcerated writer reflects on how the prison system didn’t foster change, but befriending time did.`\
 https://www.nytimes.com/video/opinion/100000010910796/prison-and-time.html
-
-**Reseña de ‘The Boroughs’: como ‘Stranger Things’, pero con adultos mayores**\
-`En una nueva serie de Netflix de la productora de los hermanos Duffer, los que luchan contra los monstruos ya no se mueven tan rápido como antes.`\
-https://www.nytimes.com/es/2026/05/27/espanol/cultura/resena-the-boroughs-netflix-duffer-brothers.html
 
