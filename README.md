@@ -110,8 +110,8 @@ https://www.nytimes.com/video/world/middleeast/100000010928024/israel-lebanon-st
 `Sharyn Alfonsi, whose segment on a brutal Salvadoran prison was pulled abruptly in December, said that CBS News and its top editor, Bari Weiss, had let her contract expire.`\
 https://www.nytimes.com/2026/05/27/business/media/cbs-sharyn-alfonsi-bari-weiss.html
 
-**Uganda Closes Border With Congo Over Ebola Fears**\
-`Ebola response teams and a few others are exempt and will undergo “strict health screening,” a top Ugandan official said.`\
+**Uganda Closes Border With Congo as Ebola Fears Rise**\
+`Seven confirmed cases of the virus have already been reported in Kampala, the capital, but officials say the country has robust disease surveillance.`\
 https://www.nytimes.com/2026/05/27/world/africa/ebola-congo-uganda.html
 
 **Bo French, Anti-Muslim Candidate, Wins G.O.P. Runoff for Texas Oil Job**\
