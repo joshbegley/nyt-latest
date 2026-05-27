@@ -1,3 +1,15 @@
+**Trump Says He Feels No Political Pressure to Make an Iran Deal**\
+`President Trump held out hope for a peace agreement, but said high oil prices would not force his hand,`\
+https://www.nytimes.com/2026/05/27/world/middleeast/trump-iran-peace-talks.html
+
+**Cornyn’s Defeat in Texas Runoff Underscores Trump's Grip on the G.O.P.**\
+`Senator John Cornyn lost to his MAGA-aligned challenger, Ken Paxton, by 28 percentage points. It was a historically poor showing.`\
+https://www.nytimes.com/2026/05/27/us/politics/paxton-cornyn-texas-republican-primary.html
+
+**Matthew Perry’s Assistant, Kenneth Iwamasa, Sentenced to More Than 3 Years in Prison**\
+`Kenneth Iwamasa injected Mr. Perry with the ketamine that killed him. He is the last of five defendants to be sentenced in the case.`\
+https://www.nytimes.com/2026/05/27/arts/matthew-perry-personal-assistant-ketamine.html
+
 **Los asistentes de los famosos están para complacer a sus jefes, pero ¿cuál es el límite?**\
 `El asistente de Matthew Perry le inyectó la ketamina que lo mató. Su sentencia ha hecho que algunos en esta exigente profesión reflexionen sobre esta dinámica de poder.`\
 https://www.nytimes.com/es/2026/05/27/espanol/cultura/matthew-perry-asistente.html
