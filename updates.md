@@ -1,3 +1,7 @@
+**Nigel Farage’s Far-Right Party Is Now Central to British Politics**\
+`Nigel Farage’s anti-immigrant, populist agenda has helped his Reform U.K. party emerge from the fringe of politics in Britain. But it faces an uphill climb to win power.`\
+https://www.nytimes.com/2026/05/27/world/europe/britain-reform-party-farage.html
+
 **The Battle Over Trump’s Immigration Crackdown Comes to a Newark ICE Facility Parking Lot**\
 `For five days, activists have gathered outside a detention center in New Jersey to denounce conditions inside. Federal officials have rejected those concerns.`\
 https://www.nytimes.com/2026/05/27/nyregion/delaney-hall-nj-detention-center-protests.html
