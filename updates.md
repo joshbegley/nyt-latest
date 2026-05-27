@@ -1,3 +1,15 @@
+**Man Charged With Hate-Crime Killing of Gay Dancer Claims Self-Defense**\
+`Dmitriy Popov was 17 when he stabbed O’Shae Sibley, a 28-year-old dancer, at a gas station. Mr. Popov has been charged with murder as a hate crime.`\
+https://www.nytimes.com/2026/05/27/nyregion/oshae-sibley-brooklyn-murder-trial.html
+
+**Maine Secretary of State Tosses Ballot Question on Transgender Athletes**\
+`The secretary of state, a Democrat, cited evidence that thousands of petition signatures submitted by the measure’s proponents were not valid.`\
+https://www.nytimes.com/2026/05/27/us/maine-transgender-sports-ballot-question.html
+
+**Former Judges Urge Inquiry Into Deal Trump Struck With I.R.S.**\
+`The motion was particularly significant because it asked the judge overseeing the initial suit against the I.R.S. to examine the terms of the deal.`\
+https://www.nytimes.com/2026/05/27/us/politics/judges-trump-deal-irs.html
+
 **See Where the Gerrymandering Wars Have Redrawn U.S. Congressional Maps**\
 `Eight states have redrawn their district lines since last summer, and two more are pushing to use new maps ahead of the midterm elections.`\
 https://www.nytimes.com/interactive/2026/us/politics/states-gerrymandering-redistricting-maps.html
