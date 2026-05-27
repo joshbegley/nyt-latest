@@ -67,7 +67,7 @@ https://www.nytimes.com/2026/05/27/crosswords/wordle-review-1804.html
 https://www.nytimes.com/2026/05/27/world/asia/samsung-ai-profit-bonus-workers.html
 
 **Iran War Live Updates: Fighting Flares in Lebanon, Complicating U.S.-Iran Peace Talks**\
-`Israeli strikes killed at least 31 people in Lebanon on Tuesday, the country’s health ministry said, as Israel intensified attacks against Hezbollah. The fighting cast further doubt on fragile negotiations to end the U.S.-Israeli war with Iran.`\
+`Israeli strikes pounded southern Lebanon as the country’s attacks against Hezbollah intensified. The fighting cast further doubt on fragile negotiations to end the U.S.-Israeli war with Iran.`\
 https://www.nytimes.com/live/2026/05/27/world/iran-war-trump-deal
 
 **Santiago Rivera inventó la tarta de queso vasca, pero prefiere el chocolate**\
