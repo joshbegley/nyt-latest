@@ -1,3 +1,7 @@
+**Reseña de ‘The Boroughs’: como ‘Stranger Things’, pero con adultos mayores**\
+`En una nueva serie de Netflix de la productora de los hermanos Duffer, los que luchan contra los monstruos ya no se mueven tan rápido como antes.`\
+https://www.nytimes.com/es/2026/05/27/espanol/cultura/resena-the-boroughs-netflix-duffer-brothers.html
+
 **Trump-Backed Ken Paxton Ousts Incumbent Senator in Texas**\
 `Ken Paxton, the Texas attorney general endorsed by President Trump, defeated John Cornyn, a four-term Republican senator, in a runoff. The race’s results reflected Trump’s influence over the party.`\
 https://www.nytimes.com/video/us/100000010927738/texas-senate-paxton-cornyn-trump.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/26/us/politics/runoff-polls-texas-paxton-cornyn.
 **Judge Lifts West Point’s Restrictions on Civilian Professors’ Speech**\
 `A federal judge also said that the government had offered no real justification for limiting the ability of a professor who sued to express opinions in a Military Academy classroom.`\
 https://www.nytimes.com/2026/05/26/nyregion/west-point-trump-free-speech.html
-
-**How Cannes Is Grappling With Changes**\
-`Reporting from the Cannes Film Festival, our film critic Alissa Wilkinson describes how the event is both fending off and embracing aspects of artificial intelligence.`\
-https://www.nytimes.com/video/movies/100000010860400/alissa-reviews-cannes.html
 

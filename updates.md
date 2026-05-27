@@ -1,3 +1,7 @@
+**Reseña de ‘The Boroughs’: como ‘Stranger Things’, pero con adultos mayores**\
+`En una nueva serie de Netflix de la productora de los hermanos Duffer, los que luchan contra los monstruos ya no se mueven tan rápido como antes.`\
+https://www.nytimes.com/es/2026/05/27/espanol/cultura/resena-the-boroughs-netflix-duffer-brothers.html
+
 **Trump-Backed Ken Paxton Ousts Incumbent Senator in Texas**\
 `Ken Paxton, the Texas attorney general endorsed by President Trump, defeated John Cornyn, a four-term Republican senator, in a runoff. The race’s results reflected Trump’s influence over the party.`\
 https://www.nytimes.com/video/us/100000010927738/texas-senate-paxton-cornyn-trump.html
