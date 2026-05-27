@@ -1,3 +1,7 @@
+**Uganda Closes Border with Congo Over Ebola Fears**\
+`Uganda closed its border with the Democratic Republic of Congo over growing concerns about the possible spread of Ebola on Wednesday. Seven confirmed cases have been reported in the Ugandan capital.`\
+https://www.nytimes.com/video/world/africa/100000010928797/uganda-closes-border-with-congo-over-ebola-fears.html
+
 **9 Missing After Deadly Implosion at Washington State Paper Mill**\
 `At least two people were killed, and eight others were injured after a tank imploded at the Nippon Dynawave Packaging plant in Longview, Washington, on Tuesday.`\
 https://www.nytimes.com/video/us/100000010929438/washington-paper-mill-chemical-implosion.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/27/world/asia/marco-rubio-visit-india-modi-trump
 **Alabama Republicans Ask Supreme Court to Allow New Congressional Map in Redistricting Fight**\
 `Republican leaders in the state have asked the justices to clear the way for a congressional map that a lower court found discriminated against Black voters.`\
 https://www.nytimes.com/2026/05/27/us/politics/supreme-court-alabama-voting-maps.html
-
-**Tiny Love Stories: ‘Dad Tried Hard to Look Offended’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://www.nytimes.com/2026/05/27/style/tiny-modern-love-stories-dad-tried-hard-to-look-offended.html
 
