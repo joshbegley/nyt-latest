@@ -1,3 +1,15 @@
+**To Make a Deal With Trump, Iran Wants Billions of Its Money Unfrozen**\
+`The money has become a sticking point in talks, with Iran insisting that meaningful negotiations cannot begin without the funds’ release.`\
+https://www.nytimes.com/2026/05/27/world/middleeast/iran-frozen-funds-trump-deal.html
+
+**Canada Rejects U.S. Military Suppliers in Favor of Swedish Aircraft**\
+`Prime Minister Mark Carney chose a Saab surveillance and control plane after vowing to reduce military spending with the United States.`\
+https://www.nytimes.com/2026/05/27/world/canada/carney-canada-military-spending-saab-air-force.html
+
+**Deadly Explosion Was Caused by Paint Vapors, Fire Dept. Says**\
+`A series of explosions at a Staten Island shipyard killed one man and injured more than 30 firefighters on Friday. The accident occurred when paint vapors ignited in a confined space, the department said.`\
+https://www.nytimes.com/2026/05/27/nyregion/staten-island-explosion-cause.html
+
 **Lebanese Resigned to a Long War, Even if U.S. and Iran Make a Deal**\
 `Few in Lebanon believe that diplomatic efforts to end the wider war will bring peace to their country, as clashes between Israel and Hezbollah intensify in the south.`\
 https://www.nytimes.com/2026/05/27/world/middleeast/lebaon-war-deal-iran-us.html
