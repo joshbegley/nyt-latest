@@ -22,8 +22,8 @@ https://www.nytimes.com/2026/05/27/opinion/lebanon-israel-hezbollah-cease-fire.h
 `El evento de la Ultimate Fighting Championship está previsto para el 14 de junio, día del cumpleaños 80 del presidente Trump.`\
 https://www.nytimes.com/es/2026/05/27/espanol/estados-unidos/pelea-ufc-casa-blanca-trump.html
 
-**Can Nigel Farage’s Right-Wing Party Win It All in Britain?**\
-`Nigel Farage’s anti-immigrant, populist agenda has helped his Reform U.K. Party emerge from the fringe of British politics. But it faces an uphill climb to win power.`\
+**Nigel Farage’s Far-Right Party Is Now Central to British Politics**\
+`Nigel Farage’s anti-immigrant, populist agenda has helped his Reform U.K. Party emerge from the fringe of politics in Britain. But it faces an uphill climb to win power.`\
 https://www.nytimes.com/2026/05/27/world/europe/britain-reform-party-farage.html
 
 **Cubans Deported to Mexico Live a Precarious Existence, Report Finds**\
