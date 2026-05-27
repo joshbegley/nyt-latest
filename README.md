@@ -1,3 +1,7 @@
+**Chemical Tank Cools, But 16,000 in Garden Grove Can’t Go Home Yet**\
+`The risk of an explosion or spill has fallen, the authorities said, but residents closest to the plant cannot yet return. Some have begun to ask who should be held accountable.`\
+https://www.nytimes.com/2026/05/26/us/chemical-tank-orange-county-california.html
+
 **As Republicans Battled in the Runoff, Talarico Sought to Unify Democrats**\
 `James Talarico, the Democratic nominee for U.S. Senate, has been raising money and looking to unite his party for the general election.`\
 https://www.nytimes.com/2026/05/26/us/politics/talarico-texas-democrats.html
@@ -182,11 +186,7 @@ https://www.nytimes.com/video/world/asia/100000010925670/laos-cave-rescue-divers
 `Hizbulá, el grupo con respaldo iraní también mantiene los ataques con cohetes y drones a soldados israelíes. La escalada complicaría los esfuerzos diplomáticos.`\
 https://www.nytimes.com/es/2026/05/26/espanol/mundo/israel-ataques-libano-hizbula.html
 
-**The Case for Ugly-Cool Sunglasses**\
-`Shiny, wraparound, functional — Oakleys at the French Open. Plus other tennis style moments and more.`\
-https://www.nytimes.com/2026/05/26/style/oakley-osaka-french-open.html
-
-**Texas Election Live Updates: Polls Begin Closing as Republicans Vote in Key Senate Runoff**\
+**Texas Election Live Updates: Paxton Builds Lead Over Cornyn in Early Returns**\
 `Ken Paxton, the Texas attorney general, was endorsed by President Trump over John Cornyn, a four-term Republican senator. The winner will face the Democratic nominee, James Talarico, in a race with national implications.`\
 https://www.nytimes.com/live/2026/05/26/us/texas-primary-runoff-elections
 
