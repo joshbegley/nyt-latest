@@ -1,3 +1,23 @@
+**Israel Intensifies Military Campaign Against Hezbollah in Lebanon**\
+`Israeli strikes pounded southern Lebanon on Wednesday, escalating Israel’s campaign against Hezbollah and complicating talks to end the U.S.-Israeli war with Iran.`\
+https://www.nytimes.com/video/world/middleeast/100000010928024/israel-lebanon-strikes-hezbollah.html
+
+**‘60 Minutes’ Journalist Who Accused CBS of Political Meddling Loses Her Deal**\
+`Sharyn Alfonsi, whose segment on a brutal Salvadoran prison was pulled abruptly in December, said that CBS News and its top editor, Bari Weiss, had let her contract expire.`\
+https://www.nytimes.com/2026/05/27/business/media/cbs-sharyn-alfonsi-bari-weiss.html
+
+**Uganda Closes Border With Congo Over Ebola Fears**\
+`Ebola response teams and a few others are exempt and will undergo “strict health screening,” a top Ugandan official said.`\
+https://www.nytimes.com/2026/05/27/world/africa/ebola-congo-uganda.html
+
+**Heat Wave Hits Canada With Warnings in Alberta, Manitoba and Saskatchewan**\
+`Canada’s first big heat wave of the year was expected to bring prolonged warm weather to southern Alberta, Saskatchewan and Manitoba.`\
+https://www.nytimes.com/2026/05/27/weather/canada-heat-warnings.html
+
+**Iran War Live Updates: White House Denies Iranian State Media’s Outline of ‘Unofficial’ Deal**\
+`The reported draft agreement said Iran would reopen the Strait of Hormuz in return for the United States’ lifting its naval blockade.`\
+https://www.nytimes.com/live/2026/05/27/world/iran-war-trump-deal
+
 **Uganda Closes Border with Congo**\
 `Ebola response teams and a few others are exempt and will undergo “strict health screening,” a top Ugandan official said.`\
 https://www.nytimes.com/2026/05/27/world/africa/ebola-congo-uganda.html
