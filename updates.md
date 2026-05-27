@@ -1,3 +1,11 @@
+**5 Things to Know About Al Green, Democratic House Candidate in Texas**\
+`He is a veteran lawmaker and a vocal critic of President Trump who is facing a runoff against a fellow Democratic member espousing generational change.`\
+https://www.nytimes.com/2026/05/26/us/politics/al-green-democrat-house-candidate.html
+
+**5 Things to Know About Christian Menefee, Democratic House Candidate in Texas**\
+`He is one of the newest members of Congress, running on a message of generational change against a fellow Democratic member who is more than twice his age.`\
+https://www.nytimes.com/2026/05/26/us/politics/christian-menefee-democrat-house-candidate.html
+
 **Texas Election Live Updates: Polls Begin Closing as Republicans Vote in Key Senate Runoff**\
 `Ken Paxton, the Texas attorney general, was endorsed by President Trump over John Cornyn, a four-term Republican senator. The winner will face the Democratic nominee, James Talarico, in a race with national implications.`\
 https://www.nytimes.com/live/2026/05/26/us/texas-primary-runoff-elections

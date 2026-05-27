@@ -1,3 +1,11 @@
+**5 Things to Know About Al Green, Democratic House Candidate in Texas**\
+`He is a veteran lawmaker and a vocal critic of President Trump who is facing a runoff against a fellow Democratic member espousing generational change.`\
+https://www.nytimes.com/2026/05/26/us/politics/al-green-democrat-house-candidate.html
+
+**5 Things to Know About Christian Menefee, Democratic House Candidate in Texas**\
+`He is one of the newest members of Congress, running on a message of generational change against a fellow Democratic member who is more than twice his age.`\
+https://www.nytimes.com/2026/05/26/us/politics/christian-menefee-democrat-house-candidate.html
+
 **Donald E. Newhouse, Low-Profile Heir to a Media Empire, Dies at 96**\
 `He ran the newspaper division of Advance Publications, while his older brother, Si, ran the Condé Nast magazine operation.`\
 https://www.nytimes.com/2026/05/26/business/media/donald-e-newhouse-dead.html
@@ -173,14 +181,6 @@ https://www.nytimes.com/es/2026/05/26/espanol/mundo/israel-ataques-libano-hizbul
 **The Case for Ugly-Cool Sunglasses**\
 `Shiny, wraparound, functional — Oakleys at the French Open. Plus other tennis style moments and more.`\
 https://www.nytimes.com/2026/05/26/style/oakley-osaka-french-open.html
-
-**Deaths Reported After Chemical Tank Ruptures at Longview Nippon Facility**\
-`Ten people, including a firefighter, were injured after the rupture at the Nippon Dynawave Packaging Company in Longview, Wash., the authorities said.`\
-https://www.nytimes.com/2026/05/26/us/chemical-explosion-nippon-longview-washington.html
-
-**South Carolina Redistricting: Senate Passes on New Map, Defying Trump**\
-`With early voting already underway, it became clear there was no longer enough support to use new lines before the November midterm elections.`\
-https://www.nytimes.com/2026/05/26/us/south-carolina-redistricting-map.html
 
 **Texas Election Live Updates: Polls Begin Closing as Republicans Vote in Key Senate Runoff**\
 `Ken Paxton, the Texas attorney general, was endorsed by President Trump over John Cornyn, a four-term Republican senator. The winner will face the Democratic nominee, James Talarico, in a race with national implications.`\
