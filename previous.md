@@ -1,3 +1,15 @@
+**Los asistentes de los famosos están para complacer a sus jefes, pero ¿cuál es el límite?**\
+`El asistente de Matthew Perry le inyectó la ketamina que lo mató. Su sentencia ha hecho que algunos en esta exigente profesión reflexionen sobre esta dinámica de poder.`\
+https://www.nytimes.com/es/2026/05/27/espanol/cultura/matthew-perry-asistente.html
+
+**Kids Review ‘Sarniezz’ by Angine de Poitrine**\
+`These children have a lot of thoughts about Angine de Poitrine’s song “Sarniezz (Live on KEXP),” which has been receiving loads of attention on TikTok. Is it disturbing? Creative? Nonsensical? They discuss it all with our critic, Jon Caramanica, on this special edition of Song of the Week.`\
+https://www.nytimes.com/video/podcasts/100000010929288/kids-review-sarniezz-by-angine-de-poitrine.html
+
+**In Cornyn’s Enormous Loss, Proof of Trump’s Hold Over G.O.P. Base**\
+`Senator John Cornyn lost to his MAGA-aligned challenger, Ken Paxton, by 28 percentage points. It was a historically poor showing.`\
+https://www.nytimes.com/2026/05/27/us/politics/paxton-cornyn-texas-republican-primary.html
+
 **Man Charged With Hate-Crime Killing of Gay Dancer Claims Self-Defense**\
 `Dmitriy Popov was 17 when he stabbed O’Shae Sibley, a 28-year-old dancer, at a gas station. Mr. Popov has been charged with murder as a hate crime.`\
 https://www.nytimes.com/2026/05/27/nyregion/oshae-sibley-brooklyn-murder-trial.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/05/27/arts/television/blake-lively-justin-baldoni-d
 **A 15-Minute Beginner Jump Rope Workout**\
 `Skipping rope isn’t just for kids. Try this routine to get started.`\
 https://www.nytimes.com/2026/05/27/well/move/beginner-jump-rope-workout.html
-
-**What Five Years in Big Law at WilmerHale Taught Me**\
-`Despite all our good intentions, the legal system — that thing we were charged to protect — kept getting worse.`\
-https://www.nytimes.com/2026/05/27/opinion/big-law-legal-system.html
-
-**En México, los cubanos deportados por Trump viven con dificultades**\
-`Un informe de Human Rights Watch revela que muchos cubanos deportados a suelo mexicano por el gobierno de Trump viven en un “limbo legal indefinido” y tienen dificultades para salir adelante.`\
-https://www.nytimes.com/es/2026/05/27/espanol/cubanos-deportados-mexico.html
-
-**Five People Stuck in Flooded Laos Cave Are Found Alive**\
-`The five men, stranded while looking for gold, were found alive after a week in a narrow, muddy chamber. Two people remain missing.`\
-https://www.nytimes.com/2026/05/27/world/asia/five-rescued-laos-cave.html
 
