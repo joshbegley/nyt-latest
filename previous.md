@@ -1,9 +1,13 @@
+**David Henderson, Innovative Poet and Hendrix Biographer, Dies at 83**\
+`Part of the Black Arts Movement of the 1960s, he went on to reclaim a leading musician of the psychedelic era as a distinctly African American artist.`\
+https://www.nytimes.com/2026/05/27/books/david-henderson-dead.html
+
 **Court Orders Customs Chief to Address Compliance on Refunding Tariffs**\
 `The surprising demand to appear at a hearing suggested new concern about the Trump administration’s efforts to repay the full $166 billion owed from illegally imposed tariffs.`\
 https://www.nytimes.com/2026/05/27/us/politics/trade-court-customs-chief-tariff-refunds.html
 
 **Jill Biden’s Reaction to Biden’s 2024 Debate: ‘He’s Having a Stroke’**\
-`“I had never, ever seen Joe like that,” the former first lady told CBS News in an interview. “Before or since.”`\
+`“I had never, ever seen Joe like that,” the former first lady told CBS News. “Before or since.”`\
 https://www.nytimes.com/2026/05/27/us/politics/jill-biden-joe-biden-2024-debate.html
 
 **Cease-Fires, but No Peace**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/05/27/climate/park-service-fees-washington-trump.ht
 **What’s Your ‘Mom Aesthetic’? TikTok Wants to Know.**\
 `Motherhood has become just another vibe to brand.`\
 https://www.nytimes.com/2026/05/27/style/mom-aesthetic-parenting-tiktok.html
-
-**My Parents Suspect I’ve Lost My Faith. Should I Tell Them the Truth?**\
-`My mother sent me a long voicemail saying she believes I no longer pray, and implied that my wife may be to blame.`\
-https://www.nytimes.com/2026/05/27/magazine/parents-suspect-ive-lost-my-faith-ethics.html
 
 **Iran War Live Updates: As Talks Drag On, Trump Says ‘I Don’t Care’ About Midterms Pressure**\
 `President Trump said U.S. politics would not affect his strategy in the unpopular war and was open to protracted peace talks. He also insisted that Iran would not control the Strait of Hormuz.`\

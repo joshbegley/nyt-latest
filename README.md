@@ -1,3 +1,7 @@
+**Ferrari’s Newest Car Drives Stock Down Automaker’s Stock Prices**\
+`The Italian sports car manufacturer received significant backlash after it unveiled its first electric vehicle, the Luce, earlier this week.`\
+https://www.nytimes.com/video/business/100000010928530/ferrari-luce-stock-fall.html
+
 **David Henderson, Innovative Poet and Hendrix Biographer, Dies at 83**\
 `Part of the Black Arts Movement of the 1960s, he went on to reclaim a leading musician of the psychedelic era as a distinctly African American artist.`\
 https://www.nytimes.com/2026/05/27/books/david-henderson-dead.html
@@ -45,6 +49,10 @@ https://www.nytimes.com/interactive/2026/05/27/espanol/estados-unidos/texas-escu
 **Texas School Police Pepper-Sprayed, Tackled and Tasered Students**\
 `School officers across the state turned to heavy-handed tactics on children, often in response to minor misbehavior, our investigation shows.`\
 https://www.nytimes.com/interactive/2026/05/27/us/texas-schools-police-force-students-uvalde.html
+
+**Trump Threatens Oman Over the Strait, Then Says, ‘They’ll Be Fine.’**\
+`(No description)`\
+https://www.nytimes.com/2026/05/27/world/middleeast/trump-oman-strait-hormuz.html
 
 **Trump Says He Feels No Political Pressure to Make an Iran Deal**\
 `President Trump held out hope for a peace agreement, but said high oil prices would not force his hand,`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/05/27/world/middleeast/israel-hezbollah-lebanon.htm
 **National Park Entrance Fees Are Funding Trump’s D.C. Projects**\
 `The administration is spending at least $67 million worth of fees paid by visitors to national parks on fixing D.C. fountains and the Reflecting Pool.`\
 https://www.nytimes.com/2026/05/27/climate/park-service-fees-washington-trump.html
-
-**What’s Your ‘Mom Aesthetic’? TikTok Wants to Know.**\
-`Motherhood has become just another vibe to brand.`\
-https://www.nytimes.com/2026/05/27/style/mom-aesthetic-parenting-tiktok.html
-
-**Iran War Live Updates: As Talks Drag On, Trump Says ‘I Don’t Care’ About Midterms Pressure**\
-`President Trump said U.S. politics would not affect his strategy in the unpopular war and was open to protracted peace talks. He also insisted that Iran would not control the Strait of Hormuz.`\
-https://www.nytimes.com/live/2026/05/27/world/iran-war-trump-deal
 

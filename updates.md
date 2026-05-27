@@ -1,3 +1,11 @@
+**David Henderson, Innovative Poet and Hendrix Biographer, Dies at 83**\
+`Part of the Black Arts Movement of the 1960s, he went on to reclaim a leading musician of the psychedelic era as a distinctly African American artist.`\
+https://www.nytimes.com/2026/05/27/books/david-henderson-dead.html
+
+**Jill Biden’s Reaction to Biden’s 2024 Debate: ‘He’s Having a Stroke’**\
+`“I had never, ever seen Joe like that,” the former first lady told CBS News. “Before or since.”`\
+https://www.nytimes.com/2026/05/27/us/politics/jill-biden-joe-biden-2024-debate.html
+
 **Court Orders Customs Chief to Address Compliance on Refunding Tariffs**\
 `The surprising demand to appear at a hearing suggested new concern about the Trump administration’s efforts to repay the full $166 billion owed from illegally imposed tariffs.`\
 https://www.nytimes.com/2026/05/27/us/politics/trade-court-customs-chief-tariff-refunds.html
