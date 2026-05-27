@@ -1,3 +1,7 @@
+**A Cod Boat, a Coast Guard Flight and a Lot of Debate About the E.U.**\
+`Iceland may try to join the European Union. A reporter battled seasickness on a fishing trip and strapped herself into a Coast Guard plane to understand how Icelanders felt about the prospect.`\
+https://www.nytimes.com/2026/05/26/insider/iceland-eu.html
+
 **Cornyn Crushed: 6 Takeaways From Tuesday’s Runoffs in Texas**\
 `President Trump’s record of ousting those he sees as disloyal continued apace with Senator John Cornyn’s defeat. Whether his relationship with Senate Republicans can be repaired is another question.`\
 https://www.nytimes.com/2026/05/26/us/politics/texas-runoff-senate-cornyn-paxton.html
