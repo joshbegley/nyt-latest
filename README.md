@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/05/27/world/middleeast/iran-unofficial-deal-strait.
 `The secretary of state visited India to reassure the South Asian giant that it can still rely on the United States. India did not gain much from the visit.`\
 https://www.nytimes.com/2026/05/27/world/asia/marco-rubio-visit-india-modi-trump.html
 
-**In Alabama Case, Supreme Court Faces First Major Test of Voting Rights Act Ruling**\
+**Alabama Republicans Ask Supreme Court to Allow New Congressional Map in Redistricting Fight**\
 `Republican leaders in the state have asked the justices to clear the way for a congressional map that a lower court found discriminated against Black voters.`\
 https://www.nytimes.com/2026/05/27/us/politics/supreme-court-alabama-voting-maps.html
 
