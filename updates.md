@@ -1,3 +1,7 @@
+**A.I. Money From I.P.O.s Will Change Philanthropy**\
+`Silicon Valley is about to get a lot more liquid. What will it spend its money on?`\
+https://www.nytimes.com/2026/05/27/opinion/ai-philanthropy-charity.html
+
 **Judge Dismisses 2 Indictments in FIFA Bribery Case**\
 `The decision marked an end to a significant part of a broader corruption investigation that rocked the soccer world more than a decade ago.`\
 https://www.nytimes.com/2026/05/27/nyregion/fifa-indictments-soccer-dismissed.html
