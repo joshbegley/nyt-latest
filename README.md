@@ -1,3 +1,147 @@
+**A Blue Texas May Be More Than a Dream for Democrats**\
+`Paxton’s victory and a big shift among Hispanic voters have put the state’s Senate seat within reach.`\
+https://www.nytimes.com/2026/05/27/upshot/paxton-talarico-texas-polling.html
+
+**Paxton’s Texas Victory Opens a New Front in the Battle for the Senate**\
+`Many Democrats and some Republicans said the scandal-plagued Ken Paxton’s victory could turn Texas into a battleground state that will determine Senate control.`\
+https://www.nytimes.com/2026/05/27/us/politics/paxton-talarico-texas-senate-race.html
+
+**Mamdani Turns to the Private Sector to Help With Public Housing**\
+`Mayor Zohran Mamdani focused on freezing the rent for private housing tenants during his campaign. Now he is considering the problems in the city’s public housing developments.`\
+https://www.nytimes.com/2026/05/27/nyregion/mamdani-turns-to-the-private-sector-to-help-with-public-housing.html
+
+**Viajar en avión: de malo a peor en la era del caos**\
+`Si no puedo conseguir una mejora –y no puedo, ya que no tengo estatus, en ningún aspecto de mi vida—, me gustaría que sufriéramos más por igual cuando viajamos.`\
+https://www.nytimes.com/es/2026/05/27/espanol/opinion/verano-vuelos-retrasos.html
+
+**A House That Adapts to Party Mode, Private Mode and Guest Mode**\
+`A London couple turned their four-bedroom house into a one-bedroom shape-shifter — and got a lot more room for living.`\
+https://www.nytimes.com/2026/05/27/realestate/hackney-london-renovation-small.html
+
+**How to Find Tickets to the 2026 Tony Award-Nominated Plays and Musicals**\
+`Many of the top contenders are onstage right now. Here’s a guide to help you navigate the field and find tickets.`\
+https://www.nytimes.com/2026/05/27/theater/tony-nominated-broadway-shows-tickets.html
+
+**The ‘Yogurt Shop Murders’ Case Was Solved, but the Story Hasn’t Changed**\
+`The true culprit was identified soon after this HBO documentary came out. A new episode shows that the series was less about who did the killings than about the agony of uncertainty.`\
+https://www.nytimes.com/2026/05/27/arts/television/yogurt-shop-murders-new-episode.html
+
+**Tiler Peck’s New Ballet Expands the Idea of What Female and Male Dancers Can Be**\
+`The idea of sisterhood and brotherhood flows through “Symphonie Espagnole,” Peck’s new work for New York City Ballet. We dissect two sections.`\
+https://www.nytimes.com/2026/05/27/arts/dance/tiler-peck-symphonie-espagnole-city-ballet.html
+
+**America’s Last Surviving Wallace Neff Bubble House Is for Sale**\
+`Located in Pasadena, Calif., this futuristic dome — and affordable housing prototype — still stuns.`\
+https://www.nytimes.com/2026/05/27/realestate/the-last-bubble-house-wallace-neff.html
+
+**Ken Paxton Victory Tests Whether Texas Republicans Can Reunite for November**\
+`Republican voters made a familiar bet, that Texas is conservative enough that any Republican, even the most conservative, will beat a Democrat.`\
+https://www.nytimes.com/2026/05/27/us/texas-republicans-ken-paxton-primary-aftermath.html
+
+**Bringing Courbet’s ‘A Burial at Ornans’ Back to Life, While Visitors Watch**\
+`The Musée d’Orsay demystified art conservation by turning the meticulous, yearlong restoration of a 22-foot Gustave Courbet painting into a public event.`\
+https://www.nytimes.com/2026/05/27/arts/design/courbet-a-burian-at-ornans-musee-dorsay.html
+
+**Trump Is Remaking the World Map. What Could Go Wrong?**\
+`A system of fuzzy borders, in which powerful states treat territory as negotiable and sovereignty as conditional, is not a viable alternative to the liberal world order.`\
+https://www.nytimes.com/2026/05/27/opinion/trump-world-map-borders-countries.html
+
+**Spencer Pratt Wants to Be Mayor. His Fans Want Him to Be Batman.**\
+`What an A.I.-generated video of the former reality TV star teaches us about the future of political ads.`\
+https://www.nytimes.com/2026/05/27/magazine/spencer-pratt-batman-ads-mayor.html
+
+**Crypto Firms and Automakers Are Looking to Open Banks, at Trump’s Urging**\
+`Urged on by the White House and a reduction in regulatory oversight, crypto companies and automakers are among those that have applied for banking charters.`\
+https://www.nytimes.com/2026/05/27/business/bank-charters-fintech-crypto.html
+
+**Is Codependency Good? This Duo Thinks So.**\
+`The filmmaking duo Mark Duplass and Katie Aselton sure think so.`\
+https://www.nytimes.com/2026/05/27/podcasts/relationships-codependent.html
+
+**$2.8 Million Homes in New York, Pennsylvania and Tennessee**\
+`A 19th-century farmhouse in Red Hook, N.Y., a Frank Lloyd Wright-inspired cottage in Port Allegany, Pa., and a 1949 house in Franklin, Tenn.`\
+https://www.nytimes.com/2026/05/27/realestate/red-hook-new-york-franklin-tennessee-port-allegany-pennslyvania-homes-for-sale.html
+
+**The Cast of ‘I Love Boosters’ Want You to Think Critically**\
+`Four cast members from Boots Riley’s working-class comedy discuss capitalism, art, protest and trying to change the world (with some laughs thrown in).`\
+https://www.nytimes.com/2026/05/27/movies/i-love-boosters-cast-interview.html
+
+**Writing Is Fundamental to How We Think**\
+`A.I. can be a crutch that hurts our ability to think creatively.`\
+https://www.nytimes.com/2026/05/27/opinion/writing-creativity-ai.html
+
+**The ‘Becky Shaw’ Star Who ‘Does Horrible Things’ Oh So Well**\
+`The Tony nominee Alden Ehrenreich has been making audiences cry at this Broadway comedy in which he portrays a cynical money manager.`\
+https://www.nytimes.com/2026/05/27/theater/alden-ehrenreich-becky-shaw-tonys-broadway.html
+
+**A Wellness Cruise for the Overstimulated and Totally Stressed**\
+`Our writer kept an open mind as she signed up for sound baths, face yoga and meditation sessions on a wellness retreat aboard a luxury Mediterranean cruise. But was it all a bit too woo-woo?`\
+https://www.nytimes.com/2026/05/27/travel/explora-journeys-wellness-cruise.html
+
+**The Two Issues That Could Swing This District**\
+`Two national controversies — A.I. data centers and ICE detention centers — are converging in one swing congressional district. Our Southwest reporter Reis Thebault visits the town of Marana, Ariz., where some people are angry about both potential projects.`\
+https://www.nytimes.com/video/us/100000010903992/the-two-issues-that-could-swing-this-district.html
+
+**Russ Hodge Dies at 86; an Olympian, Like His Mother**\
+`Nicknamed Russell the Muscle, he finished ninth in the decathlon at the 1964 Games. His mother, Alice Arden, placed the same as a high jumper in 1936.`\
+https://www.nytimes.com/2026/05/27/sports/russ-hodge-dead.html
+
+**When Two Heated Political Issues Descended on One Swing District Town**\
+`Marana, Ariz., is used to placid local politics, but the town, in a congressional district held by Juan Ciscomani, has been convulsed by two national issues, A.I. and immigration detention.`\
+https://www.nytimes.com/2026/05/27/us/politics/marana-arizona-data-center-ice-detention.html
+
+**Book Review: ‘Stalin’s Apostles,’ by Antonia Senior**\
+`A new book by Antonia Senior chronicles the careers of five men who betrayed their country — with devastating results.`\
+https://www.nytimes.com/2026/05/27/books/review/stalins-apostles-antonia-senior.html
+
+**Thornton Wilder’s Last Play Vanished Into Thin Air. Or Did It?**\
+`Decades after “The Emporium” failed to open on Broadway in 1954, one man went on a quest to find it.`\
+https://www.nytimes.com/2026/05/27/theater/thornton-wilder-emporium-last-play.html
+
+**It Takes Two (or Three) Phones to Make a Thing Go Right**\
+`Carrying multiple cellphones, whether for cybersecurity or work-life balance, comes with some quirks and style challenges.`\
+https://www.nytimes.com/2026/05/27/style/two-phones-work-personal.html
+
+**The Prison System Doesn’t Encourage Change. Time Does.**\
+`A formerly incarcerated writer reflects on how the prison system didn’t foster change, but befriending time did.`\
+https://www.nytimes.com/2026/05/27/opinion/america-incarceration-prison-time-film.html
+
+**New Romance Books for Summer**\
+`Our critic on three standout May books.`\
+https://www.nytimes.com/2026/05/27/books/review/new-romance-books.html
+
+**Poetry Review: ‘Killing Spree,’ by Jorie Graham**\
+`In “Killing Spree,” Jorie Graham confronts a world living through apocalyptic times.`\
+https://www.nytimes.com/2026/05/27/books/review/jorie-graham-killing-spree-poems.html
+
+**Why Is TikTok in This Book from 2006?**\
+`For decades, publishers have swapped out cultural references in new editions of books to appeal to younger readers. Fans aren’t always thrilled.`\
+https://www.nytimes.com/2026/05/27/books/why-is-tiktok-in-this-book-from-2006.html
+
+**To Understand the American Revolution, a Writer Went to Barbados**\
+`It’s where the British perfected their system of enslaved labor, George Washington visited and colonialism’s legacy can still be felt. And, as a writer found on this small island, freedom is still cause for celebration.`\
+https://www.nytimes.com/2026/05/27/travel/american-revolution-barbados.html
+
+**Hunting a ‘Frankenfish’ With a Bow and Arrow**\
+`Invasive snakeheads are proliferating in waterways from New York to Florida. Wildlife officials around the Chesapeake Bay are recommending a solution: high-powered compound bows.`\
+https://www.nytimes.com/2026/05/27/climate/hunting-a-frankenfish-with-a-bow-and-arrow.html
+
+**The $400 Million Showdown Between a Billionaire and a California Mayor**\
+`The owner of the Los Angeles Rams and the City of Inglewood are in a dispute over Hollywood Park and SoFi Stadium, which is about to host World Cup matches.`\
+https://www.nytimes.com/2026/05/27/arts/music/inglewood-hollywood-park-sofi-stadium.html
+
+**A Quiet Pacific Village Becomes China’s Security Testing Ground**\
+`When a remote Pacific village asked for help with rowdy youth, the Chinese police arrived with a surveillance system. Then came the backlash.`\
+https://www.nytimes.com/2026/05/27/world/asia/china-solomons-pacific-security-threats.html
+
+**Go Ask Alice Why Tech Start-Ups Are Spending Big on Hype Videos**\
+`A Mad Hatter and a giant rabbit sit around a table discussing an A.I. start-up. This is normal behavior around the Bay Area these days.`\
+https://www.nytimes.com/2026/05/27/technology/ai-startups-videos-marketing.html
+
+**Oil Prices Fall as Uneasy Truce Holds Between U.S. and Iran**\
+`Oil/Stocks/Gas hed`\
+https://www.nytimes.com/2026/05/27/business/oil-gas-price-iran.html
+
 **Prison and Time**\
 `A formerly incarcerated writer reflects on how the prison system didn’t foster change, but befriending time did.`\
 https://www.nytimes.com/video/opinion/100000010910796/prison-and-time.html
@@ -53,148 +197,4 @@ https://www.nytimes.com/2026/05/27/learning/word-of-the-day-shibboleth.html
 **Jimmy Kimmel Slams Trump for Missing His Son’s Wedding**\
 `“It was a small ceremony with about 40 guests, none of whom were his father,” the late-night host said of Donald Trump Jr.’s wedding in the Bahamas over the weekend.`\
 https://www.nytimes.com/2026/05/27/arts/television/jimmy-kimmel-trump-son-wedding.html
-
-**Every New Cease-Fire in Lebanon Brings Hope — Until It Doesn’t**\
-`In Lebanon, each new cease-fire is met with blind optimism — as if it hails the end of a conflict instead of what it actually is: an admission ticket to the next war.`\
-https://www.nytimes.com/2026/05/27/opinion/lebanon-israel-hezbollah-cease-fire.html
-
-**La arena temporal de la UFC comienza a tomar forma en el jardín de la Casa Blanca**\
-`El evento de la Ultimate Fighting Championship está previsto para el 14 de junio, día del cumpleaños 80 del presidente Trump.`\
-https://www.nytimes.com/es/2026/05/27/espanol/estados-unidos/pelea-ufc-casa-blanca-trump.html
-
-**Cubans Deported to Mexico Live a Precarious Existence, Report Finds**\
-`A Human Rights Watch report found that many Cubans deported to Mexico by the Trump administration are living in an “indefinite legal limbo” and struggling to get by.`\
-https://www.nytimes.com/2026/05/27/us/cuba-deport-mexico.html
-
-**Nigel Farage’s Far-Right Party Is Now Central to British Politics**\
-`Nigel Farage’s anti-immigrant, populist agenda has helped his party, Reform U.K., emerge from the fringe of politics in Britain. But it faces an uphill climb to win power.`\
-https://www.nytimes.com/2026/05/27/world/europe/britain-reform-party-farage.html
-
-**Where Time Is Always 15 Minutes Apart From Everywhere Else**\
-`In Nepal, a nation wedged between India and China, a unique time zone is just one expression of a singular national identity.`\
-https://www.nytimes.com/2026/05/27/world/asia/nepal-time-15-minutes.html
-
-**Inventor of the Basque Cheesecake Plans to Retire. His Secret: He Prefers Chocolate**\
-`Santiago Rivera is widely credited with creating the “burnt” cheesecake in the 1980s, though he doesn’t love the spinoffs it has spawned. Decades later, he’s preparing to hand over his kitchen to his children.`\
-https://www.nytimes.com/2026/05/27/world/europe/basque-cheesecake-inventor-rivera-spain.html
-
-**Xi Jinping Quit Smoking. China Still Cannot.**\
-`China’s tobacco monopoly has become so financially vital to the government that even its powerful leader has failed to curb the country’s smoking habit.`\
-https://www.nytimes.com/2026/05/27/business/china-smoking-economy.html
-
-**Corrections: May 27, 2026**\
-`Corrections that appeared in print on Wednesday, May 27, 2026.`\
-https://www.nytimes.com/2026/05/27/pageoneplus/corrections-may-27-2026.html
-
-**Quote of the Day: A 21st-Century First Has the Knicks’ Fans Caught Up in Euphoria**\
-`Quotation of the Day for Wednesday, May 27, 2026.`\
-https://www.nytimes.com/2026/05/26/pageoneplus/quote-of-the-day-a-21st-century-first-has-the-knicks-fans-caught-up-in-euphoria.html
-
-**Colin Allred, Former Lawmaker, Wins Democratic Runoff for House Seat**\
-`Mr. Allred beat the incumbent, Representative Julie Johnson, and is now favored to win the general election in a heavily Democratic Dallas-based district.`\
-https://www.nytimes.com/2026/05/26/us/politics/texas-democratic-primary-allred-johnson.html
-
-**4 Takeaways From the ‘Summer House’ Season 10 Reunion**\
-`The highly anticipated episode delved into the timeline of the relationship between Amanda Batula and West Wilson and the pair’s confrontation with Ciara Miller and the rest of their housemates.`\
-https://www.nytimes.com/2026/05/26/arts/television/summer-house-reunion-takeaways.html
-
-**Cornyn Crushed: 7 Takeaways From Tuesday’s Runoffs in Texas**\
-`President Trump’s record of ousting those he sees as disloyal continued apace with Senator John Cornyn’s defeat. Whether his relationship with Senate Republicans can be repaired is another question.`\
-https://www.nytimes.com/2026/05/26/us/politics/texas-runoff-senate-cornyn-paxton.html
-
-**Trump-Backed Candidate Wins G.O.P. Race in San Antonio District**\
-`Carlos De La Cruz, a first-time candidate, defeated a moderate rival in a U.S. House district that was redrawn to favor Republicans, but where Democrats see an opportunity.`\
-https://www.nytimes.com/2026/05/26/us/politics/texas-republican-primary-lujan-de-la-cruz.html
-
-**Park Slope Food Co-op Votes to Boycott Israeli Products**\
-`In a three-hour meeting, members of the grocery cooperative voted by a margin of more than 2 to 1 in favor of a boycott.`\
-https://www.nytimes.com/2026/05/26/nyregion/park-slope-food-coop-boycott.html
-
-**Johnny Garcia Beats Texas Democrat Accused of Being Antisemitic in House Runoff**\
-`The victory by Johnny Garcia, a sheriff’s deputy, brought relief to Democrats, who hope to hold onto a seat that Republicans redrew to flip it.`\
-https://www.nytimes.com/2026/05/26/us/politics/texas-democratic-primary-garcia-galindo.html
-
-**Mayes Middleton Defeats Chip Roy in the Runoff for Texas Attorney General**\
-`After connecting his opponent to past criticism of President Trump, the conservative state senator now advances to the general election.`\
-https://www.nytimes.com/2026/05/26/us/politics/texas-attorney-general.html
-
-**NYT Crossword Answers for May 27, 2026**\
-`Dario Salvucci meets us halfway.`\
-https://www.nytimes.com/2026/05/26/crosswords/daily-puzzle-2026-05-27.html
-
-**What Ken Paxton’s Win Means for James Talarico**\
-`The Texas senate race will come down to the Democratic candidate’s strengths — and the Republican’s weaknesses.`\
-https://www.nytimes.com/2026/05/26/opinion/paxton-talarico-texas-senate.html
-
-**Minneapolis Police Chief Brian O’Hara Resigns After Investigation**\
-`The chief, Brian O’Hara, began leading the department in 2022 as it reeled in the aftermath of the police killing of George Floyd.`\
-https://www.nytimes.com/2026/05/26/us/minneapolis-police-chief-resigns.html
-
-**Ken Paxton Ousts John Cornyn, Solidifying Trump’s Grip on Republican Party Voters**\
-`Ken Paxton, the Texas attorney general, overcame scandals and a significant fund-raising disadvantage to win. His victory sets up the general-election clash that Democrats had hoped for.`\
-https://www.nytimes.com/2026/05/26/us/politics/texas-republican-senate-cornyn-paxton.html
-
-**5 Things to Know About Ken Paxton, the Republican Senate Nominee in Texas**\
-`With the support of President Trump, Mr. Paxton unseated Senator John Cornyn in a high-profile Republican runoff.`\
-https://www.nytimes.com/2026/05/26/us/politics/ken-paxton-republican-senate-candidate.html
-
-**5 Things to Know About John Cornyn, Republican Senate Hopeful in Texas**\
-`He is fighting for political survival against a primary challenger backed by President Trump.`\
-https://www.nytimes.com/2026/05/26/us/politics/john-cornyn-republican-senate-candidate.html
-
-**Christian Menefee Defeats Al Green in Texas Democratic House Runoff**\
-`The showdown, manufactured by a Republican gerrymander, created one of many generational clashes consuming Democrats this cycle.`\
-https://www.nytimes.com/2026/05/26/us/politics/texas-democratic-primary-menefee-green.html
-
-**Evacuation Orders Lifted as Southern California Chemical Tank Cools**\
-`The risk of an explosion or spill has fallen significantly, the authorities said late Tuesday, and all evacuated residents can now go home. Some have begun to ask who should be held accountable.`\
-https://www.nytimes.com/2026/05/26/us/chemical-tank-orange-county-california.html
-
-**As Republicans Battled in the Runoff, Talarico Sought to Unify Democrats**\
-`James Talarico, the Democratic nominee for U.S. Senate, has been raising money and looking to unite his party for the general election.`\
-https://www.nytimes.com/2026/05/26/us/politics/talarico-texas-democrats.html
-
-**5 Things to Know About Al Green, Democratic House Candidate in Texas**\
-`He is a veteran lawmaker and a vocal critic of President Trump who is facing a runoff against a fellow Democratic member espousing generational change.`\
-https://www.nytimes.com/2026/05/26/us/politics/al-green-democrat-house-candidate.html
-
-**5 Things to Know About Christian Menefee, Democratic House Nominee in Texas**\
-`Mr. Menefee, one of the newest members of Congress, beat Representative Al Green, a Democrat who is more than twice his age, in a primary runoff.`\
-https://www.nytimes.com/2026/05/26/us/politics/christian-menefee-democrat-house-candidate.html
-
-**Donald E. Newhouse, Low-Profile Heir to a Media Empire, Dies at 96**\
-`He ran the newspaper division of Advance Publications, while his older brother, Si, ran the Condé Nast magazine operation.`\
-https://www.nytimes.com/2026/05/26/business/media/donald-e-newhouse-dead.html
-
-**Trump May Appear at N.B.A. Finals in New York**\
-`President Trump is said to be considering the appearance after his hometown team, the Knicks, clinched a championship spot.`\
-https://www.nytimes.com/2026/05/26/us/politics/trump-nba-finals.html
-
-**Robert F. Kennedy Jr. Keeps Picking Up Snakes. Is He Doing It Right?**\
-`The health secretary wrangled two nonvenomous snakes while visiting Florida in a video that drew widespread attention.`\
-https://www.nytimes.com/2026/05/26/us/rfk-jr-snakes-video-safety.html
-
-**When to Expect Results in the Texas Primary Runoff**\
-`Unofficial results will start coming in after polls close at 7 p.m. local time. They will be posted on the state’s voter portal.`\
-https://www.nytimes.com/2026/05/26/us/politics/texas-primary-runoff-results-timing.html
-
-**Trump Administration Wants Employees to Sign NDAs**\
-`Lawyers representing federal workers said the move is intended to chill speech and could be challenged on First Amendment grounds.`\
-https://www.nytimes.com/2026/05/26/us/politics/trump-administration-nondisclosure-agreements.html
-
-**Manny Fernandez, Bulwark of Dolphins’ Defense, Dies at 79**\
-`He played a critical part in Miami’s 17-0 season in 1972, which ended with his spectacular defense in Super Bowl VII against Washington.`\
-https://www.nytimes.com/2026/05/26/us/manny-fernandez-dead.html
-
-**High-Level British Spy Warns of Expanding Russia Threat**\
-`The director of Britain’s electronic surveillance agency warns that Russia is only getting more brazen as battlefield losses in Ukraine mount.`\
-https://www.nytimes.com/2026/05/26/world/europe/britain-gchq-spying-russia.html
-
-**‘Chess’ Will Close With Lea Michele’s Departure, in a Change of Plans**\
-`The Broadway musical had planned to keep going, but box-office sales made clear Michele’s appeal was essential. It will now close June 21.`\
-https://www.nytimes.com/2026/05/26/theater/broadway-chess-closing-lea-michele.html
-
-**Runoff Polls in Texas Senate Contest Have Favored Ken Paxton**\
-`Mr. Paxton, a Texas Senate candidate, has led Senator John Cornyn in all but one independent poll in the Republican primary runoff.`\
-https://www.nytimes.com/2026/05/26/us/politics/runoff-polls-texas-paxton-cornyn.html
 
