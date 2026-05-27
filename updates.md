@@ -1,3 +1,11 @@
+**Why Memory Chips Are Dominating the A.I. Rally**\
+`Three major producers — Micron, Samsung and SK Hynix — are now trillion-dollar companies. Politicians and Wall Street have taken notice.`\
+https://www.nytimes.com/2026/05/27/business/dealbook/ai-chips-war-samsung-micron.html
+
+**Befriending Time Changed My Life**\
+`A formerly incarcerated writer reflects on how the prison system didn’t foster change, but befriending time did.`\
+https://www.nytimes.com/2026/05/27/opinion/america-incarceration-prison-time-film.html
+
 **Margot Wellington, Who Helped Save Grand Central Terminal, Dies at 91**\
 `As the director of the Municipal Art Society, she led the fight to save countless New York City landmarks from the wrecking ball.`\
 https://www.nytimes.com/2026/05/27/nyregion/margot-wellington-dead.html

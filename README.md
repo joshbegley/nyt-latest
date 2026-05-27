@@ -134,8 +134,8 @@ https://www.nytimes.com/video/us/100000010903992/the-two-issues-that-could-swing
 `Nicknamed Russell the Muscle, he finished ninth in the decathlon at the 1964 Games. His mother, Alice Arden, placed the same as a high jumper in 1936.`\
 https://www.nytimes.com/2026/05/27/sports/russ-hodge-dead.html
 
-**When Two Heated Political Issues Descended on One Swing District Town**\
-`Marana, Ariz., is used to placid local politics, but the town, in a congressional district held by Juan Ciscomani, has been convulsed by two national issues, A.I. and immigration detention.`\
+**Two of America’s Thorniest Political Issues Are Dividing an Arizona Town**\
+`Marana, Ariz., is used to placid local politics, but the town, in a congressional swing district held by Juan Ciscomani, has been convulsed by two national issues, A.I. and immigration detention.`\
 https://www.nytimes.com/2026/05/27/us/politics/marana-arizona-data-center-ice-detention.html
 
 **Book Review: ‘Stalin’s Apostles,’ by Antonia Senior**\
