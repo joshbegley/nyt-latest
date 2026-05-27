@@ -1,3 +1,11 @@
+**El silencio ante la violación de palestinos**\
+`Hombres y mujeres palestinos describen abusos sexuales brutales a manos de guardias de prisiones, soldados, colonos e interrogadores israelíes.`\
+https://www.nytimes.com/es/2026/05/27/espanol/opinion/abuso-sexual-palestinos-israel.html
+
+**Word of the Day: shibboleth**\
+`This word has appeared in 4 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/05/27/learning/word-of-the-day-shibboleth.html
+
 **Jimmy Kimmel Slams Trump for Missing His Son’s Wedding**\
 `“It was a small ceremony with about 40 guests, none of whom were his father,” the late-night host said of Donald Trump Jr.’s wedding in the Bahamas over the weekend.`\
 https://www.nytimes.com/2026/05/27/arts/television/jimmy-kimmel-trump-son-wedding.html
