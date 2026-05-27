@@ -1,3 +1,19 @@
+**Cornyn Crushed: 6 Takeaways From Tuesday’s Runoffs in Texas**\
+`President Trump’s record of ousting those he sees as disloyal continued apace with Senator John Cornyn’s defeat. Whether his relationship with Senate Republicans can be repaired is another question.`\
+https://www.nytimes.com/2026/05/26/us/politics/texas-runoff-senate-cornyn-paxton.html
+
+**Trump-Backed Candidate Wins G.O.P. Race in San Antonio District**\
+`Carlos De La Cruz, a first-time candidate, defeated a moderate rival in a U.S. House district that was redrawn to favor Republicans, but where Democrats see an opportunity.`\
+https://www.nytimes.com/2026/05/26/us/politics/texas-republican-primary-lujan-de-la-cruz.html
+
+**Park Slope Food Co-op Votes to Boycott Israeli Products**\
+`In a three-hour meeting, members of the grocery cooperative voted by a margin of more than 2 to 1 in favor of a boycott.`\
+https://www.nytimes.com/2026/05/26/nyregion/park-slope-food-coop-boycott.html
+
+**Johnny Garcia Beats Texas Democrat Accused of Being Antisemitic in House Runoff**\
+`The victory by Johnny Garcia, a sheriff’s deputy, brought relief to Democrats, who hope to hold onto a seat that Republicans redrew to flip it.`\
+https://www.nytimes.com/2026/05/26/us/politics/texas-democratic-primary-garcia-galindo.html
+
 **Mayes Middleton Defeats Chip Roy in the Runoff for Texas Attorney General**\
 `After connecting his opponent to past criticism of President Trump, the conservative state senator now advances to the general election.`\
 https://www.nytimes.com/2026/05/26/us/politics/texas-attorney-general.html
@@ -177,22 +193,6 @@ https://www.nytimes.com/2026/05/26/nyregion/robert-daley-dead.html
 **Judge Allows Florida House Map That Could Add 4 Republican Seats**\
 `The plaintiffs had sought a temporary restraining order, arguing that the map violated a state ban on partisan gerrymandering that voters passed in 2010.`\
 https://www.nytimes.com/2026/05/26/us/florida-congress-map-redistricting.html
-
-**A Cod Boat, a Coast Guard Flight and a Lot of Debate About the E.U.**\
-`Iceland may try to join the European Union. A reporter battled seasickness on a fishing trip and strapped herself into a Coast Guard plane to understand how Icelanders felt about the prospect.`\
-https://www.nytimes.com/2026/05/26/insider/iceland-eu.html
-
-**How a New U.S. Weapon Killed 21 Civilians in Iran**\
-`Evidence shows a new missile championed by the U.S. military struck a residential neighborhood in Iran in February, unleashing thousands of deadly pellets on homes, schools and streets. Here’s what that looked like on the ground.`\
-https://www.nytimes.com/video/world/middleeast/100000010916281/us-missile-iran-deaths-civilians.html
-
-**Iran Threatens to Renew Strikes Against U.S. Amid Push for Diplomatic Deal**\
-`The warnings came after U.S. forces struck military sites in Iran. Secretary of State Marco Rubio said on Tuesday that negotiations to end the war were continuing.`\
-https://www.nytimes.com/2026/05/26/world/middleeast/iran-threats-strikes-us-ceasefire.html
-
-**When Will Emissions From Air Travel Start to Fall?**\
-`How the war in Iran is affecting greenhouse gas emissions from air travel, a look back at “An Inconvenient Truth” and more climate news.`\
-https://www.nytimes.com/2026/05/26/climate/air-travel-emissions.html
 
 **Texas Election Live Updates: Paxton Routs Cornyn in Senate G.O.P. Runoff With Trump’s Backing**\
 `Ken Paxton, the Texas attorney general, defeated John Cornyn, a four-term Republican senator, in a runoff that confirmed the president’s hold on his party’s voters. Mr. Paxton will face the Democratic nominee, James Talarico, in a race with national implications.`\

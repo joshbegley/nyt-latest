@@ -1,3 +1,19 @@
+**Cornyn Crushed: 6 Takeaways From Tuesday’s Runoffs in Texas**\
+`President Trump’s record of ousting those he sees as disloyal continued apace with Senator John Cornyn’s defeat. Whether his relationship with Senate Republicans can be repaired is another question.`\
+https://www.nytimes.com/2026/05/26/us/politics/texas-runoff-senate-cornyn-paxton.html
+
+**Trump-Backed Candidate Wins G.O.P. Race in San Antonio District**\
+`Carlos De La Cruz, a first-time candidate, defeated a moderate rival in a U.S. House district that was redrawn to favor Republicans, but where Democrats see an opportunity.`\
+https://www.nytimes.com/2026/05/26/us/politics/texas-republican-primary-lujan-de-la-cruz.html
+
+**Park Slope Food Co-op Votes to Boycott Israeli Products**\
+`In a three-hour meeting, members of the grocery cooperative voted by a margin of more than 2 to 1 in favor of a boycott.`\
+https://www.nytimes.com/2026/05/26/nyregion/park-slope-food-coop-boycott.html
+
+**Johnny Garcia Beats Texas Democrat Accused of Being Antisemitic in House Runoff**\
+`The victory by Johnny Garcia, a sheriff’s deputy, brought relief to Democrats, who hope to hold onto a seat that Republicans redrew to flip it.`\
+https://www.nytimes.com/2026/05/26/us/politics/texas-democratic-primary-garcia-galindo.html
+
 **Mayes Middleton Defeats Chip Roy in the Runoff for Texas Attorney General**\
 `After connecting his opponent to past criticism of President Trump, the conservative state senator now advances to the general election.`\
 https://www.nytimes.com/2026/05/26/us/politics/texas-attorney-general.html
