@@ -1,3 +1,15 @@
+**Could Russia Go Further? It at Least Wants Ukraine to Think So.**\
+`Major attacks on Kyiv, followed by warnings of more, come as Moscow is stalled on the battlefield and at the negotiating table.`\
+https://www.nytimes.com/2026/05/27/world/europe/russia-ukraine-kyiv-attacks.html
+
+**This Year at the May Festival, Julia Bullock Took Charge**\
+`The May Festival in Cincinnati was led this time by the soprano Julia Bullock, who wove her experiences as a Black artist through two weeks of concerts.`\
+https://www.nytimes.com/2026/05/27/arts/music/may-festival-julia-bullock.html
+
+**Today, In Short**\
+`Garden gnomes. Nutrition. And the latest from the Texas runoffs.`\
+https://www.nytimes.com/2026/05/27/briefing/today-in-short.html
+
 **Israel Intensifies Military Campaign Against Hezbollah in Lebanon**\
 `Israeli strikes pounded southern Lebanon on Wednesday, escalating Israel’s campaign against Hezbollah and complicating talks to end the U.S.-Israeli war with Iran.`\
 https://www.nytimes.com/video/world/middleeast/100000010928024/israel-lebanon-strikes-hezbollah.html

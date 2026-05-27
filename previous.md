@@ -1,3 +1,15 @@
+**Could Russia Go Further? It at Least Wants Ukraine to Think So.**\
+`Major attacks on Kyiv, followed by warnings of more, come as Moscow is stalled on the battlefield and at the negotiating table.`\
+https://www.nytimes.com/2026/05/27/world/europe/russia-ukraine-kyiv-attacks.html
+
+**This Year at the May Festival, Julia Bullock Took Charge**\
+`The May Festival in Cincinnati was led this time by the soprano Julia Bullock, who wove her experiences as a Black artist through two weeks of concerts.`\
+https://www.nytimes.com/2026/05/27/arts/music/may-festival-julia-bullock.html
+
+**Today, In Short**\
+`Garden gnomes. Nutrition. And the latest from the Texas runoffs.`\
+https://www.nytimes.com/2026/05/27/briefing/today-in-short.html
+
 **Israel Intensifies Military Campaign Against Hezbollah in Lebanon**\
 `Israeli strikes pounded southern Lebanon on Wednesday, escalating Israel’s campaign against Hezbollah and complicating talks to end the U.S.-Israeli war with Iran.`\
 https://www.nytimes.com/video/world/middleeast/100000010928024/israel-lebanon-strikes-hezbollah.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/05/27/arts/dance/tiler-peck-symphonie-espagnole-cit
 **America’s Last Surviving Wallace Neff Bubble House Is for Sale**\
 `Located in Pasadena, Calif., this futuristic dome — and affordable housing prototype — still stuns.`\
 https://www.nytimes.com/2026/05/27/realestate/the-last-bubble-house-wallace-neff.html
-
-**Ken Paxton Victory Tests Whether Texas Republicans Can Reunite for November**\
-`Republican voters made a familiar bet, that Texas is conservative enough that any Republican, even the most conservative, will beat a Democrat.`\
-https://www.nytimes.com/2026/05/27/us/texas-republicans-ken-paxton-primary-aftermath.html
-
-**Bringing Courbet’s ‘A Burial at Ornans’ Back to Life, While Visitors Watch**\
-`The Musée d’Orsay demystified art conservation by turning the meticulous, yearlong restoration of a 22-foot Gustave Courbet painting into a public event.`\
-https://www.nytimes.com/2026/05/27/arts/design/courbet-a-burian-at-ornans-musee-dorsay.html
-
-**Trump Is Remaking the World Map. What Could Go Wrong?**\
-`A system of fuzzy borders, in which powerful states treat territory as negotiable and sovereignty as conditional, is not a viable alternative to the liberal world order.`\
-https://www.nytimes.com/2026/05/27/opinion/trump-world-map-borders-countries.html
 
