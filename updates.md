@@ -1,3 +1,7 @@
+**Maps: Tracking Tropical Depression Jangmi**\
+`See the likely path and wind arrival times for Jangmi`\
+https://www.nytimes.com/interactive/2026/05/27/weather/jangmi-map-path-tracker.html
+
 **Israel Continues Its Escalation in Lebanon, Ordering Evacuations**\
 `The Israeli military issued sweeping evacuation orders for two southern cities, indicating that more airstrikes were imminent.`\
 https://www.nytimes.com/2026/05/27/world/middleeast/israel-hezbollah-lebanon.html

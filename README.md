@@ -1,3 +1,11 @@
+**Tiny Love Stories: ‘Dad Tried Hard to Look Offended’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/05/27/style/tiny-modern-love-stories-dad-tried-hard-to-look-offended.html
+
+**After Decades on the Run, a Leftist Militant Is Sentenced in Germany**\
+`Daniela Klette, 67, was part of the Red Army Faction, which attacked American and capitalist interests until the 1990s. She was convicted of robberies committed later to finance life as a fugitive.`\
+https://www.nytimes.com/2026/05/27/world/europe/daniela-klette-jailed-red-army-faction.html
+
 **Maps: Tracking Tropical Depression Jangmi**\
 `See the likely path and wind arrival times for Jangmi`\
 https://www.nytimes.com/interactive/2026/05/27/weather/jangmi-map-path-tracker.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/live/2026/05/27/world/iran-war-trump-deal
 **Santiago Rivera inventó la tarta de queso vasca, pero prefiere el chocolate**\
 `A Santiago Rivera se le atribuye la creación del pastel de queso “quemado” en la década de 1980, aunque no le gustan los derivados que ha engendrado. Décadas después, se prepara para ceder su cocina a sus hijos.`\
 https://www.nytimes.com/es/2026/05/27/espanol/mundo/santiago-rivera-tarta-queso-vasca.html
-
-**A Blue Texas May Be More Than a Dream for Democrats**\
-`Ken Paxton’s victory for the Republican nomination and a big shift among Hispanic voters have put a Senate seat within reach.`\
-https://www.nytimes.com/2026/05/27/upshot/paxton-talarico-texas-polling.html
-
-**Paxton’s Texas Victory Opens a New Front in the Battle for the Senate**\
-`Many Democrats and some Republicans said the scandal-plagued Ken Paxton’s victory could turn Texas into a battleground state that will determine Senate control.`\
-https://www.nytimes.com/2026/05/27/us/politics/paxton-talarico-texas-senate-race.html
 
