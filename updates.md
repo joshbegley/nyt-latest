@@ -1,3 +1,7 @@
+**Heat wave hits Canada’s prairies, with warnings in Alberta, Saskatchewan and Manitoba**\
+`Canada’s first big heat wave of the year was expected to bring prolonged warm weather to southern Alberta, Saskatchewan and Manitoba.`\
+https://www.nytimes.com/2026/05/27/weather/canada-heat-warnings.html
+
 **Global Supply Shortages Deepen as War Drags On, Risking Jobs and Growth**\
 `After three months, the fallout of the closure of the Strait of Hormuz is spreading, with developing countries bearing the brunt of the shortfall.`\
 https://www.nytimes.com/2026/05/27/business/hormuz-global-shortages-gas.html
