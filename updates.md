@@ -1,3 +1,23 @@
+**Escándalo FIFA: juez desestima 2 acusaciones**\
+`Hernán López, un exejecutivo de Fox, y la empresa argentina Full Play Group, eludieron los cargos tras ser acusados de haber participado en una trama para entregar dinero a representantes de la FIFA a cambio de derechos de transmisión.`\
+https://www.nytimes.com/es/2026/05/27/espanol/fifa-acusaciones-corrupcion.html
+
+**White House Dismisses Outline of ‘Unofficial’ Iran Deal**\
+`Plus, hunting fish with a bow and arrow. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/05/27/briefing/iran-reflecting-pool.html
+
+**Ferrari’s Stock Falls After It Unveils Its Latest Car**\
+`The Italian sports car manufacturer received significant backlash after it unveiled its first electric vehicle, the Luce, earlier this week.`\
+https://www.nytimes.com/video/business/100000010928530/ferrari-luce-stock-fall.html
+
+**Trump Threatens Oman Over the Strait, Then Says, ‘They’ll Be Fine.’**\
+`President Trump said there would be serious repercussions if Iran and Oman move forward with a deal to open the Strait of Hormuz.`\
+https://www.nytimes.com/2026/05/27/world/middleeast/trump-oman-strait-hormuz.html
+
+**9 Missing After Tank Implosion at a Paper Mill in Longview, Washington**\
+`Officials said they did not believe anyone was still alive inside the facility. The explosion has left at least two people dead and several others injured.`\
+https://www.nytimes.com/2026/05/27/us/longview-washington-paper-mill-implosion.html
+
 **Ferrari’s Newest Car Drives Stock Down Automaker’s Stock Prices**\
 `The Italian sports car manufacturer received significant backlash after it unveiled its first electric vehicle, the Luce, earlier this week.`\
 https://www.nytimes.com/video/business/100000010928530/ferrari-luce-stock-fall.html

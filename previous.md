@@ -1,4 +1,12 @@
-**Ferrari’s Newest Car Drives Stock Down Automaker’s Stock Prices**\
+**Escándalo FIFA: juez desestima 2 acusaciones**\
+`Hernán López, un exejecutivo de Fox, y la empresa argentina Full Play Group, eludieron los cargos tras ser acusados de haber participado en una trama para entregar dinero a representantes de la FIFA a cambio de derechos de transmisión.`\
+https://www.nytimes.com/es/2026/05/27/espanol/fifa-acusaciones-corrupcion.html
+
+**White House Dismisses Outline of ‘Unofficial’ Iran Deal**\
+`Plus, hunting fish with a bow and arrow. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/05/27/briefing/iran-reflecting-pool.html
+
+**Ferrari’s Stock Falls After It Unveils Its Latest Car**\
 `The Italian sports car manufacturer received significant backlash after it unveiled its first electric vehicle, the Luce, earlier this week.`\
 https://www.nytimes.com/video/business/100000010928530/ferrari-luce-stock-fall.html
 
@@ -51,7 +59,7 @@ https://www.nytimes.com/interactive/2026/05/27/espanol/estados-unidos/texas-escu
 https://www.nytimes.com/interactive/2026/05/27/us/texas-schools-police-force-students-uvalde.html
 
 **Trump Threatens Oman Over the Strait, Then Says, ‘They’ll Be Fine.’**\
-`(No description)`\
+`President Trump said there would be serious repercussions if Iran and Oman move forward with a deal to open the Strait of Hormuz.`\
 https://www.nytimes.com/2026/05/27/world/middleeast/trump-oman-strait-hormuz.html
 
 **Trump Says He Feels No Political Pressure to Make an Iran Deal**\
@@ -131,7 +139,7 @@ https://www.nytimes.com/2026/05/27/world/middleeast/lebaon-war-deal-iran-us.html
 https://www.nytimes.com/2026/05/27/nyregion/knicks-finals-ticket-prices.html
 
 **9 Missing After Tank Implosion at a Paper Mill in Longview, Washington**\
-`Officials said they did not believe anyone was still alive inside the facility. The implosion has left at least two people dead and several others injured.`\
+`Officials said they did not believe anyone was still alive inside the facility. The explosion has left at least two people dead and several others injured.`\
 https://www.nytimes.com/2026/05/27/us/longview-washington-paper-mill-implosion.html
 
 **Meeting Voters, a Republican Tries to Outrun His Party’s Woes**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/05/27/world/europe/daniela-klette-jailed-red-army-f
 **Maps: Tracking Tropical Depression Jangmi**\
 `See the likely path and wind arrival times for Jangmi`\
 https://www.nytimes.com/interactive/2026/05/27/weather/jangmi-map-path-tracker.html
-
-**Israel Continues Its Escalation in Lebanon, Ordering Evacuations**\
-`The Israeli military issued sweeping evacuation orders for two southern cities, indicating that more airstrikes were imminent.`\
-https://www.nytimes.com/2026/05/27/world/middleeast/israel-hezbollah-lebanon.html
-
-**National Park Entrance Fees Are Funding Trump’s D.C. Projects**\
-`The administration is spending at least $67 million worth of fees paid by visitors to national parks on fixing D.C. fountains and the Reflecting Pool.`\
-https://www.nytimes.com/2026/05/27/climate/park-service-fees-washington-trump.html
 
