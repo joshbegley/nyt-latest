@@ -1,3 +1,7 @@
+**Global Supply Shortages Deepen as War Drags On, Risking Jobs and Growth**\
+`After three months, the fallout of the closure of the Strait of Hormuz is spreading, with developing countries bearing the brunt of the shortfall.`\
+https://www.nytimes.com/2026/05/27/business/hormuz-global-shortages-gas.html
+
 **Two Survivors Left at Sea After U.S. Attacks Boat in Pacific**\
 `One person was killed in the U.S. military’s 58th strike against vessels it accused of smuggling drugs.`\
 https://www.nytimes.com/2026/05/27/us/politics/two-survivors-boat-strike.html
