@@ -1,3 +1,7 @@
+**Canadá exportará gas natural licuado a Alemania**\
+`El acuerdo es importante para ambas naciones, ya que Canadá busca nuevos mercados lejos de Estados Unidos mientras que Alemania intenta diversificar su suministro energético.`\
+https://www.nytimes.com/es/2026/05/27/espanol/mundo/canada-alemania-gas.html
+
 **A.I. Money From I.P.O.s Will Change Philanthropy**\
 `Silicon Valley is about to get a lot more liquid. What will it spend its money on?`\
 https://www.nytimes.com/2026/05/27/opinion/ai-philanthropy-charity.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/05/27/business/ferrari-luce-electric-ev-backlash.ht
 **The Viruses Causing New Outbreaks Are Much Less Familiar to Science**\
 `The types of Ebola and hantavirus worrying officials are very different from the species identified decades ago, raising new questions about how to respond.`\
 https://www.nytimes.com/2026/05/27/science/ebola-hantavirus-species-strains.html
-
-**My Starring Role in ‘Heated Rivalry’ — for One Night Only**\
-`The unauthorized musical parody of the hit TV show gives the role of Scott Hunter to an unsuspecting audience member — and one recent night that was me.`\
-https://www.nytimes.com/2026/05/27/theater/heated-rivalry-parody-theater-off-broadway.html
 
