@@ -1,3 +1,7 @@
+**Uganda Closes Border with Congo**\
+`Ebola response teams and a few others are exempt and will undergo “strict health screening,” a top Ugandan official said.`\
+https://www.nytimes.com/2026/05/27/world/africa/ebola-congo-uganda.html
+
 **Bo French, Anti-Muslim Candidate, Wins G.O.P. Runoff for Texas Oil Job**\
 `Bo French’s runoff victory gave Democrats fresh hope that they could compete for a seat regulating the state’s powerful oil and gas industry.`\
 https://www.nytimes.com/2026/05/27/us/politics/bo-french-texas-rail-commissioner.html
@@ -12,7 +16,7 @@ https://www.nytimes.com/2026/05/27/science/fish-sleep-a-lot-like-us-they-even-na
 
 **Blake Lively’s Last Chance: A U.S. Judge’s Take on an Untested State Law**\
 `After the settlement with Justin Baldoni’s company, one potentially thorny legal issue remains: whether she is due damages under a new California law.`\
-https://www.nytimes.com/2026/05/27/arts/television/blake-livelys-last-chance-a-us-judges-take-on-an-untested-state-law.html
+https://www.nytimes.com/2026/05/27/arts/television/blake-lively-justin-baldoni-defamation.html
 
 **A 15-Minute Beginner Jump Rope Workout**\
 `Skipping rope isn’t just for kids. Try this routine to get started.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/05/27/magazine/spencer-pratt-batman-ads-mayor.html
 **Crypto Firms and Automakers Are Looking to Open Banks, at Trump’s Urging**\
 `Urged on by the White House and a reduction in regulatory oversight, crypto companies and automakers are among those that have applied for banking charters.`\
 https://www.nytimes.com/2026/05/27/business/bank-charters-fintech-crypto.html
-
-**Is Codependency Good? This Duo Thinks So.**\
-`The filmmaking duo Mark Duplass and Katie Aselton sure think so.`\
-https://www.nytimes.com/2026/05/27/podcasts/relationships-codependent.html
 
