@@ -1,3 +1,23 @@
+**Biden Sues Justice Dept. to Block Release of Tapes**\
+`The former president argued that the Justice Department has a responsibility to protect the privacy of conversations he had with a former ghostwriter.`\
+https://www.nytimes.com/2026/05/27/us/politics/biden-justice-dept-tapes.html
+
+**Elecciones en Texas: resultados, la derrota de Cornyn y otras claves**\
+`El historial del presidente Trump de hacer a un lado a quienes considera desleales continuó con la derrota del senador John Cornyn. Otra cuestión es si puede repararse su relación con los republicanos del Senado.`\
+https://www.nytimes.com/es/2026/05/27/espanol/estados-unidos/elecciones-texas-resultados-cornyn.html
+
+**What Iranian State Media Says Is in Outline of ‘Unofficial’ Deal With U.S.**\
+`The White House immediately dismissed the report, which detailed terms for reopening the Strait of Hormuz, as a “complete fabrication.”`\
+https://www.nytimes.com/2026/05/27/world/middleeast/iran-unofficial-deal-strait.html
+
+**Rubio’s India Visit Yields No Major Deals to Repair U.S.-India Relations**\
+`The secretary of state visited India to reassure the South Asian giant that it can still rely on the United States. India did not gain much from the visit.`\
+https://www.nytimes.com/2026/05/27/world/asia/marco-rubio-visit-india-modi-trump.html
+
+**Alabama Republicans Ask Supreme Court to Allow New Congressional Map in Redistricting Fight**\
+`Republican leaders in the state have asked the justices to clear the way for a congressional map that a lower court found discriminated against Black voters.`\
+https://www.nytimes.com/2026/05/27/us/politics/supreme-court-alabama-voting-maps.html
+
 **In Alabama Case, Supreme Court Faces First Major Test of Voting Rights Act Ruling**\
 `Republican leaders in the state have asked the justices to clear the way for a congressional map that a lower court found discriminated against Black voters.`\
 https://www.nytimes.com/2026/05/27/us/politics/supreme-court-alabama-voting-maps.html

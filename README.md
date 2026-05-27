@@ -1,3 +1,7 @@
+**Reflecting Pool Contract Has ‘Inflated’ Profit Margin, Government Analysis Finds**\
+`The firm that was given a no-bid contract to fix the troubled landmark is charging 20 percent. The typical profit margin is 6 percent to 12 percent, internal records show.`\
+https://www.nytimes.com/2026/05/27/us/politics/reflecting-pool-contractor-trump.html
+
 **Biden Sues Justice Dept. to Block Release of Tapes**\
 `The former president argued that the Justice Department has a responsibility to protect the privacy of conversations he had with a former ghostwriter.`\
 https://www.nytimes.com/2026/05/27/us/politics/biden-justice-dept-tapes.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/05/27/podcasts/the-headlines/texas-election-ebola-p
 **The Whiplash Over a Possible Peace Deal With Iran**\
 `President Trump is hailing an agreement with Iran as groundbreaking, but the nuclear stockpile, enrichment and missiles have not been discussed.`\
 https://www.nytimes.com/2026/05/27/podcasts/the-daily/peace-deal-iran.html
-
-**NYT Connections Answers for May 28, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, May 28, 2026.`\
-https://www.nytimes.com/2026/05/27/crosswords/connections-companion-1082.html
 
