@@ -1,3 +1,7 @@
+**Jill Biden’s Reaction to Biden’s 2024 Debate: ‘He’s Having a Stroke’**\
+`“I had never, ever seen Joe like that,” the former first lady told CBS News in an interview. “Before or since.”`\
+https://www.nytimes.com/2026/05/27/us/politics/jill-biden-joe-biden-2024-debate.html
+
 **Cease-Fires, but No Peace**\
 `A truce isn’t necessarily doomed if the missiles are still flying. Here’s why.`\
 https://www.nytimes.com/2026/05/27/world/cease-fires-peace-lebanon-israel-iran.html
@@ -54,7 +58,7 @@ https://www.nytimes.com/2026/05/27/us/politics/paxton-cornyn-texas-republican-pr
 `Dmitriy Popov was 17 when he stabbed O’Shae Sibley, a 28-year-old dancer, at a gas station. Mr. Popov has been charged with murder as a hate crime.`\
 https://www.nytimes.com/2026/05/27/nyregion/oshae-sibley-brooklyn-murder-trial.html
 
-**Maine Secretary of State Tosses Ballot Question on Transgender Athletes**\
+**Vote on Trans Athlete Ban Is Canceled Over Suspect Signatures**\
 `The secretary of state, a Democrat, cited evidence that thousands of petition signatures submitted by the measure’s proponents were not valid.`\
 https://www.nytimes.com/2026/05/27/us/maine-transgender-sports-ballot-question.html
 
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/05/27/magazine/parents-suspect-ive-lost-my-faith-et
 **At the ‘Summer House’ Reunion Screening in NYC, Fans Got Emotional**\
 `The Bravo show ran alongside off-camera drama. And at an AMC screening of the reunion in New York City, viewers were ready to process it together.`\
 https://www.nytimes.com/2026/05/27/style/summer-house-reunion-bravo-amc-screening.html
-
-**Ball State Settles With Ex-Employee for $225,000 Over Charlie Kirk Posts**\
-`Ball State University is the latest institution to agree to pay workers who lost their jobs over their posts about the conservative activist.`\
-https://www.nytimes.com/2026/05/27/us/politics/ball-state-charlie-kirk-settlement.html
 
 **Iran War Live Updates: As Talks Drag On, Trump Says ‘I Don’t Care’ About Midterms Pressure**\
 `President Trump said U.S. politics would not affect his strategy in the unpopular war and was open to protracted peace talks. He also insisted that Iran would not control the Strait of Hormuz.`\

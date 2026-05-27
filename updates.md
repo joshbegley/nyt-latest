@@ -1,3 +1,11 @@
+**Jill Biden’s Reaction to Biden’s 2024 Debate: ‘He’s Having a Stroke’**\
+`“I had never, ever seen Joe like that,” the former first lady told CBS News in an interview. “Before or since.”`\
+https://www.nytimes.com/2026/05/27/us/politics/jill-biden-joe-biden-2024-debate.html
+
+**Vote on Trans Athlete Ban Is Canceled Over Suspect Signatures**\
+`The secretary of state, a Democrat, cited evidence that thousands of petition signatures submitted by the measure’s proponents were not valid.`\
+https://www.nytimes.com/2026/05/27/us/maine-transgender-sports-ballot-question.html
+
 **Cease-Fires, but No Peace**\
 `A truce isn’t necessarily doomed if the missiles are still flying. Here’s why.`\
 https://www.nytimes.com/2026/05/27/world/cease-fires-peace-lebanon-israel-iran.html
