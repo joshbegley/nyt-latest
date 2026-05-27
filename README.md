@@ -1,3 +1,11 @@
+**El silencio ante la violación de palestinos**\
+`Hombres y mujeres palestinos describen abusos sexuales brutales a manos de guardias de prisiones, soldados, colonos e interrogadores israelíes.`\
+https://www.nytimes.com/es/2026/05/27/espanol/opinion/abuso-sexual-palestinos-israel.html
+
+**Word of the Day: shibboleth**\
+`This word has appeared in 4 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/05/27/learning/word-of-the-day-shibboleth.html
+
 **Jimmy Kimmel Slams Trump for Missing His Son’s Wedding**\
 `“It was a small ceremony with about 40 guests, none of whom were his father,” the late-night host said of Donald Trump Jr.’s wedding in the Bahamas over the weekend.`\
 https://www.nytimes.com/2026/05/27/arts/television/jimmy-kimmel-trump-son-wedding.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/embedded/science/space/100000010927341/26vid-topar
 **Texans Head to the Polls, Again**\
 `Plus, Ferrari’s first fully electric car. Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/05/26/briefing/texas-primaries-iran.html
-
-**Democratic Incumbents Run Against Each Other After Republican Redistricting in Texas**\
-`A Republican-led redistricting effort forced Representative Al Green, who has served 11 terms, and Christian Menefee, one of the newest members of Congress, into a battle for the same seat.`\
-https://www.nytimes.com/2026/05/26/us/politics/texas-runoff-al-green-christian-menefee.html
-
-**Trump Administration Sues U.C.L.A. Again Over Antisemitism**\
-`The lawsuit is the second the government has filed this year against the school that has focused on pro-Palestinian protests in 2024.`\
-https://www.nytimes.com/2026/05/26/us/trump-lawsuit-ucla-antisemitism.html
 
