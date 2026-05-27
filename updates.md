@@ -1,3 +1,7 @@
+**Knicks Fans Are Stunned by Four-Figure Ticket Prices**\
+`New York Knicks fans, still celebrating the team making it to the N.B.A. finals, are confronting high ticket prices for the games at Madison Square Garden.`\
+https://www.nytimes.com/2026/05/27/nyregion/knicks-finals-ticket-prices.html
+
 **Nine Workers Missing After Tank Implosion at Paper Mill in Washington**\
 `Officials were trying to find out whether they had been at work or were merely unreachable. Officials said the implosion has left at least one person dead and nine others injured.`\
 https://www.nytimes.com/2026/05/27/us/longview-washington-paper-mill-implosion.html
