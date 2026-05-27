@@ -14,9 +14,9 @@ https://www.nytimes.com/2026/05/27/business/bp-albert-manifold.html
 `The company seems to want a world where nobody tells it no.`\
 https://www.nytimes.com/2026/05/27/opinion/enhanced-games-athletes-steroids-drugs.html
 
-**Heat Warnings Are Issued Across Canada’s Prairies**\
-`Canada’s first big heat wave of the year was expected to bring prolonged warm weather to southern Saskatchewan and Manitoba.`\
-https://www.nytimes.com/2026/05/27/weather/heat-warnings-are-issued-across-canadas-prairies.html
+**Heat wave hits Canada’s prairies, with warnings in Alberta, Saskatchewan and Manitoba**\
+`Canada’s first big heat wave of the year was expected to bring prolonged warm weather to southern Alberta, Saskatchewan and Manitoba.`\
+https://www.nytimes.com/2026/05/27/weather/canada-heat-warnings.html
 
 **My Partner’s Irresponsible Mother Asked Him to Guarantee Her Lease. Help!**\
 `A reader worries that her partner could be jeopardizing their future life together by helping out relatives he knows to be terrible with money.`\
