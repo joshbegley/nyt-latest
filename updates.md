@@ -1,3 +1,11 @@
+**In Alabama Case, Supreme Court Faces First Major Test of Voting Rights Act Ruling**\
+`Republican leaders in the state have asked the justices to clear the way for a congressional map that a lower court found discriminated against Black voters.`\
+https://www.nytimes.com/2026/05/27/us/politics/supreme-court-alabama-voting-maps.html
+
+**A 15-Minute Beginner Jump Rope Workout**\
+`Skipping rope isn’t just for kids. Try this routine to get started.`\
+https://www.nytimes.com/2026/05/27/well/move/beginner-jump-rope-workout.html
+
 **Tiny Love Stories: ‘Dad Tried Hard to Look Offended’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/05/27/style/tiny-modern-love-stories-dad-tried-hard-to-look-offended.html
