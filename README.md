@@ -1,3 +1,7 @@
+**As Republicans Battled in the Runoff, Talarico Sought to Unify Democrats**\
+`James Talarico, the Democratic nominee for U.S. Senate, has been raising money and looking to unite his party for the general election.`\
+https://www.nytimes.com/2026/05/26/us/politics/talarico-texas-democrats.html
+
 **5 Things to Know About Al Green, Democratic House Candidate in Texas**\
 `He is a veteran lawmaker and a vocal critic of President Trump who is facing a runoff against a fellow Democratic member espousing generational change.`\
 https://www.nytimes.com/2026/05/26/us/politics/al-green-democrat-house-candidate.html

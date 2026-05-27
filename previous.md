@@ -20,7 +20,7 @@ https://www.nytimes.com/2026/05/26/us/rfk-jr-snakes-video-safety.html
 
 **When to Expect Results in the Texas Primary Runoff**\
 `Unofficial results will start coming in after polls close at 7 p.m. local time. They will be posted on the state’s voter portal.`\
-https://www.nytimes.com/2026/05/26/us/politics/when-to-expect-results-in-the-texas-primary-runoff.html
+https://www.nytimes.com/2026/05/26/us/politics/texas-primary-runoff-results-timing.html
 
 **Trump Administration Wants Employees to Sign NDAs**\
 `Lawyers representing federal workers said the move is intended to chill speech and could be challenged on First Amendment grounds.`\
