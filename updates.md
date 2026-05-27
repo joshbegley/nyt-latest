@@ -1,3 +1,7 @@
+**A Blue Texas May Be More Than a Dream for Democrats**\
+`Ken Paxton’s victory for the Republican nomination and a big shift among Hispanic voters have put a Senate seat within reach.`\
+https://www.nytimes.com/2026/05/27/upshot/paxton-talarico-texas-polling.html
+
 **Santiago Rivera inventó la tarta de queso vasca, pero prefiere el chocolate**\
 `A Santiago Rivera se le atribuye la creación del pastel de queso “quemado” en la década de 1980, aunque no le gustan los derivados que ha engendrado. Décadas después, se prepara para ceder su cocina a sus hijos.`\
 https://www.nytimes.com/es/2026/05/27/espanol/mundo/santiago-rivera-tarta-queso-vasca.html
