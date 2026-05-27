@@ -1,3 +1,7 @@
+**Jimmy Kimmel Slams Trump for Missing His Son’s Wedding**\
+`“It was a small ceremony with about 40 guests, none of whom were his father,” the late-night host said of Donald Trump Jr.’s wedding in the Bahamas over the weekend.`\
+https://www.nytimes.com/2026/05/27/arts/television/jimmy-kimmel-trump-son-wedding.html
+
 **Every New Cease-Fire in Lebanon Brings Hope — Until It Doesn’t**\
 `In Lebanon, each new cease-fire is met with blind optimism — as if it hails the end of a conflict instead of what it actually is: an admission ticket to the next war.`\
 https://www.nytimes.com/2026/05/27/opinion/lebanon-israel-hezbollah-cease-fire.html
