@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/05/26/us/politics/texas-democratic-primary-allred-j
 `The highly anticipated episode delved into the timeline of the relationship between Amanda Batula and West Wilson and the pair’s confrontation with Ciara Miller and the rest of their housemates.`\
 https://www.nytimes.com/2026/05/26/arts/television/summer-house-reunion-takeaways.html
 
-**Cornyn Crushed: 6 Takeaways From Tuesday’s Runoffs in Texas**\
+**Cornyn Crushed: 7 Takeaways From Tuesday’s Runoffs in Texas**\
 `President Trump’s record of ousting those he sees as disloyal continued apace with Senator John Cornyn’s defeat. Whether his relationship with Senate Republicans can be repaired is another question.`\
 https://www.nytimes.com/2026/05/26/us/politics/texas-runoff-senate-cornyn-paxton.html
 
