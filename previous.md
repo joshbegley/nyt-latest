@@ -1,3 +1,7 @@
+**War. Heat. Cigarettes.**\
+`Updates on stories from around the world.`\
+https://www.nytimes.com/2026/05/27/briefing/war-heat-cigarettes.html
+
 **Iranians Emerge From a ‘Black Hole’ as Internet Shutdown Eases**\
 `After three months, the government is letting people connect with the world again. But not everyone has access, and those who do wonder how long it will last.`\
 https://www.nytimes.com/2026/05/27/world/europe/iran-internet.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/100000010927738/texas-senate-paxton-cornyn-trum
 **Los científicos descartaron un escenario climático alarmante. ¿Y ahora qué?**\
 `Un equipo internacional de investigadores publicó una revisión de los escenarios de emisiones empleados para estudiar el calentamiento global. Esto provocó un intenso debate público.`\
 https://www.nytimes.com/es/2026/05/27/espanol/tiempo-y-clima/cambio-climatico-efectos.html
-
-**¿Qué hacer si tienes una picadura de medusa? Orinar sobre ella quizá no sea la respuesta**\
-`Abundan los mitos y conceptos erróneos sobre las medusas. Aquí te explicamos cómo mantenerte a salvo esta temporada de playa cerca de estas maravillas gelatinosas.`\
-https://www.nytimes.com/es/2026/05/27/espanol/ciencia-y-tecnologia/medusas-picadura-orinar-tratamiento.html
 
