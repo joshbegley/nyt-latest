@@ -180,7 +180,7 @@ https://www.nytimes.com/2026/05/27/travel/explora-journeys-wellness-cruise.html
 
 **The Two Issues That Could Swing This District**\
 `Two national controversies — A.I. data centers and ICE detention centers — are converging in one swing congressional district. Our Southwest reporter Reis Thebault visits the town of Marana, Ariz., where some people are angry about both potential projects.`\
-https://www.nytimes.com/video/us/100000010903992/the-two-issues-that-could-swing-this-district.html
+https://www.nytimes.com/video/us/100000010903992/ai-data-center-ice-detention-center-arizona.html
 
 **Russ Hodge Dies at 86; an Olympian, Like His Mother**\
 `Nicknamed Russell the Muscle, he finished ninth in the decathlon at the 1964 Games. His mother, Alice Arden, placed the same as a high jumper in 1936.`\
