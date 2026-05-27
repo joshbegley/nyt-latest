@@ -1,3 +1,7 @@
+**5 Things to Know About Christian Menefee, Democratic House Nominee in Texas**\
+`Mr. Menefee, one of the newest members of Congress, beat Representative Al Green, a Democrat who is more than twice his age, in a primary runoff.`\
+https://www.nytimes.com/2026/05/26/us/politics/christian-menefee-democrat-house-candidate.html
+
 **5 Things to Know About Ken Paxton, the Republican Senate Nominee in Texas**\
 `With the support of President Trump, Mr. Paxton unseated Senator John Cornyn in a high-profile Republican runoff.`\
 https://www.nytimes.com/2026/05/26/us/politics/ken-paxton-republican-senate-candidate.html
