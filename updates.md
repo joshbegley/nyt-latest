@@ -1,3 +1,7 @@
+**Trump-Backed Ken Paxton Ousts Incumbent Senator in Texas**\
+`Ken Paxton, the Texas attorney general endorsed by President Trump, defeated John Cornyn, a four-term Republican senator, in a runoff. The race’s results reflected Trump’s influence over the party.`\
+https://www.nytimes.com/video/us/100000010927738/texas-senate-paxton-cornyn-trump.html
+
 **Los científicos descartaron un escenario climático alarmante. ¿Y ahora qué?**\
 `Un equipo internacional de investigadores publicó una revisión de los escenarios de emisiones empleados para estudiar el calentamiento global. Esto provocó un intenso debate público.`\
 https://www.nytimes.com/es/2026/05/27/espanol/tiempo-y-clima/cambio-climatico-efectos.html
