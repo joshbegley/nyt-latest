@@ -1,3 +1,35 @@
+**Uganda Closes Border with Congo**\
+`Ebola response teams and a few others are exempt and will undergo “strict health screening,” a top Ugandan official said.`\
+https://www.nytimes.com/2026/05/27/world/africa/ebola-congo-uganda.html
+
+**Bo French, Anti-Muslim Candidate, Wins G.O.P. Runoff for Texas Oil Job**\
+`Bo French’s runoff victory gave Democrats fresh hope that they could compete for a seat regulating the state’s powerful oil and gas industry.`\
+https://www.nytimes.com/2026/05/27/us/politics/bo-french-texas-rail-commissioner.html
+
+**A Lightning-Fast Stir-Fry to Ease the Short Workweek**\
+`And more salves for the post-holiday slump, like sardine pasta and spicy shrimp salad.`\
+https://www.nytimes.com/2026/05/27/dining/a-lightning-fast-stir-fry-to-ease-the-short-workweek.html
+
+**Fish Sleep a Lot Like Us. (They Even Nap.)**\
+`By tracking eye movements in zebrafish, researchers identified four different types of sleep, analogous to the complex sleep patterns of humans and other animals.`\
+https://www.nytimes.com/2026/05/27/science/fish-sleep-a-lot-like-us-they-even-nap.html
+
+**Blake Lively’s Last Chance: A U.S. Judge’s Take on an Untested State Law**\
+`After the settlement with Justin Baldoni’s company, one potentially thorny legal issue remains: whether she is due damages under a new California law.`\
+https://www.nytimes.com/2026/05/27/arts/television/blake-lively-justin-baldoni-defamation.html
+
+**A 15-Minute Beginner Jump Rope Workout**\
+`Skipping rope isn’t just for kids. Try this routine to get started.`\
+https://www.nytimes.com/2026/05/27/well/beginner-jump-rope-workout.html
+
+**What Five Years in Big Law at WilmerHale Taught Me**\
+`Despite all our good intentions, the legal system — that thing we were charged to protect — kept getting worse.`\
+https://www.nytimes.com/2026/05/27/opinion/big-law-legal-system.html
+
+**En México, los cubanos deportados por Trump viven con dificultades**\
+`Un informe de Human Rights Watch revela que muchos cubanos deportados a suelo mexicano por el gobierno de Trump viven en un “limbo legal indefinido” y tienen dificultades para salir adelante.`\
+https://www.nytimes.com/es/2026/05/27/espanol/cubanos-deportados-mexico.html
+
 **Five People Stuck in Flooded Laos Cave Are Found Alive**\
 `The five men, stranded while looking for gold, were found alive after a week in a narrow, muddy chamber. Two people remain missing.`\
 https://www.nytimes.com/2026/05/27/world/asia/five-rescued-laos-cave.html
