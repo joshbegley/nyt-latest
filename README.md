@@ -1,5 +1,5 @@
 **A Blue Texas May Be More Than a Dream for Democrats**\
-`Paxton’s victory and a big shift among Hispanic voters have put the state’s Senate seat within reach.`\
+`Paxton’s victory for the Republican nomination and a big shift among Hispanic voters have put a Senate seat within reach.`\
 https://www.nytimes.com/2026/05/27/upshot/paxton-talarico-texas-polling.html
 
 **Paxton’s Texas Victory Opens a New Front in the Battle for the Senate**\
