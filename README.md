@@ -1,3 +1,15 @@
+**The Battle Over Trump’s Immigration Crackdown Comes to a Newark ICE Facility Parking Lot**\
+`For five days, activists have gathered outside a detention center in New Jersey to denounce conditions inside. Federal officials have rejected those concerns.`\
+https://www.nytimes.com/2026/05/27/nyregion/delaney-hall-nj-detention-center-protests.html
+
+**For Years, Democrats Refused to Primary Him. This Year Is Different.**\
+`Thomas DiNapoli, the state comptroller in New York since 2007, now faces his first primary challenge, as two Democrats hope to capitalize on anti-incumbent fervor.`\
+https://www.nytimes.com/2026/05/27/nyregion/ny-comptroller-dinapoli-primary-challenge.html
+
+**NYT Spelling Bee Answers for May 27, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/27/crosswords/spelling-bee-forum.html
+
 **Palabra del día en inglés: ‘shibboleth’**\
 `Esta palabra ha aparecido en 4 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
 https://www.nytimes.com/es/2026/05/27/espanol/que-significa-shibboleth.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/05/26/science/space/nasa-rovers-moon-base-contracts
 **¿Qué busca el papa León con sus esfuerzos en materia de IA? Mira a quién le da la mano**\
 `Christopher Olah, pionero de la inteligencia artificial y cofundador de la empresa Anthropic, asistió a la presentación. Su invitación simbolizó un intento de ampliar la influencia de León.`\
 https://www.nytimes.com/es/2026/05/26/espanol/estados-unidos/papa-enciclica-inteligencia-artificial.html
-
-**The Factors Shaping the 2026 Midterm Elections**\
-`President Trump has sought revenge in G.O.P. primaries. Democrats have turned out to vote in large numbers. Republicans have gained a redistricting advantage.`\
-https://www.nytimes.com/2026/05/26/us/politics/midterm-primaries-primer.html
-
-**Fireball Falls From Space Over Erupting Volcano in the Philippines**\
-`Livestream video captured the fireball falling from space on Monday, over the most active volcano in the Philippines.`\
-https://www.nytimes.com/video/science/space/100000010926624/volcano-eruption-fireball-mayon-philippines.html
-
-****\
-`AfarTV YouTube livestream captured the moment when the fireball appeared, during an eruption of the Mayon volcano in the Philippines on May 25.`\
-https://www.nytimes.com/video/embedded/science/space/100000010927341/26vid-topart-volcano.html
 
