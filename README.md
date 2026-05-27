@@ -139,7 +139,7 @@ https://www.nytimes.com/2026/05/27/crosswords/wordle-review-1804.html
 https://www.nytimes.com/2026/05/27/world/asia/samsung-ai-profit-bonus-workers.html
 
 **Iran War Live Updates: White House Denies Iranian State Media’s Outline of ‘Unofficial’ Deal**\
-`The reported draft agreement said Iran would reopen the Strait of Hormuz in return for the United States lifting its naval blockade.`\
+`The reported draft agreement said Iran would reopen the Strait of Hormuz in return for the United States’ lifting its naval blockade.`\
 https://www.nytimes.com/live/2026/05/27/world/iran-war-trump-deal
 
 **Santiago Rivera inventó la tarta de queso vasca, pero prefiere el chocolate**\
