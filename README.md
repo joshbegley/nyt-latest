@@ -1,3 +1,7 @@
+**Ferrari’s First Electric Car Runs Into Backlash in Italy and Beyond**\
+`Memes mocked the new model, analysts questioned its appeal and investors sold the automaker’s stock. A former Ferrari chairman warned of “the destruction of a legend.”`\
+https://www.nytimes.com/2026/05/27/business/ferrari-luce-electric-ev-backlash.html
+
 **The Viruses Causing New Outbreaks Are Much Less Familiar to Science**\
 `The types of Ebola and hantavirus panicking officials are very different from the species identified decades ago, raising new questions about how to respond.`\
 https://www.nytimes.com/2026/05/27/science/ebola-hantavirus-species-strains.html
@@ -189,12 +193,4 @@ https://www.nytimes.com/2026/05/27/us/politics/marana-arizona-data-center-ice-de
 **Book Review: ‘Stalin’s Apostles,’ by Antonia Senior**\
 `A new book by Antonia Senior chronicles the careers of five men who betrayed their country — with devastating results.`\
 https://www.nytimes.com/2026/05/27/books/review/stalins-apostles-antonia-senior.html
-
-**Thornton Wilder’s Last Play Vanished Into Thin Air. Or Did It?**\
-`Decades after “The Emporium” failed to open on Broadway in 1954, one man went on a quest to find it.`\
-https://www.nytimes.com/2026/05/27/theater/thornton-wilder-emporium-last-play.html
-
-**It Takes Two (or Three) Phones to Make a Thing Go Right**\
-`Carrying multiple cellphones, whether for cybersecurity or work-life balance, comes with some quirks and style challenges.`\
-https://www.nytimes.com/2026/05/27/style/two-phones-work-personal.html
 
