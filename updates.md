@@ -1,3 +1,7 @@
+**Texas Election Live Updates: Polls Begin Closing as Republicans Vote in Key Senate Runoff**\
+`Ken Paxton, the Texas attorney general, was endorsed by President Trump over John Cornyn, a four-term Republican senator. The winner will face the Democratic nominee, James Talarico, in a race with national implications.`\
+https://www.nytimes.com/live/2026/05/26/us/texas-primary-runoff-elections
+
 **Donald E. Newhouse, Low-Profile Heir to a Media Empire, Dies at 96**\
 `He ran the newspaper division of Advance Publications, while his older brother, Si, ran the Condé Nast magazine operation.`\
 https://www.nytimes.com/2026/05/26/business/media/donald-e-newhouse-dead.html

@@ -182,7 +182,7 @@ https://www.nytimes.com/2026/05/26/us/chemical-explosion-nippon-longview-washing
 `With early voting already underway, it became clear there was no longer enough support to use new lines before the November midterm elections.`\
 https://www.nytimes.com/2026/05/26/us/south-carolina-redistricting-map.html
 
-**Texas Election Live Updates: Polls Begin Closing Soon as Republicans Vote in Key Senate Runoff**\
-`Ken Paxton, the Texas attorney general, was endorsed by President Trump over against John Cornyn, a four-term Republican senator. The winner will face the Democratic nominee, James Talarico, in a race with national implications.`\
+**Texas Election Live Updates: Polls Begin Closing as Republicans Vote in Key Senate Runoff**\
+`Ken Paxton, the Texas attorney general, was endorsed by President Trump over John Cornyn, a four-term Republican senator. The winner will face the Democratic nominee, James Talarico, in a race with national implications.`\
 https://www.nytimes.com/live/2026/05/26/us/texas-primary-runoff-elections
 
