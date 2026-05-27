@@ -1,8 +1,12 @@
+**Lebanese Resigned to a Long War, Even if U.S. and Iran Make a Deal**\
+`Few in Lebanon believe that diplomatic efforts to end the wider war will bring peace to their country, as clashes between Israel and Hezbollah intensify in the south.`\
+https://www.nytimes.com/2026/05/27/world/middleeast/lebaon-war-deal-iran-us.html
+
 **Knicks Fans Confront High Ticket Prices for NBA Finals Games at MSG**\
 `New York Knicks fans, still celebrating the team making it to the N.B.A. finals, are confronting high ticket prices for the games at Madison Square Garden.`\
 https://www.nytimes.com/2026/05/27/nyregion/knicks-finals-ticket-prices.html
 
-**Nine Workers Missing After Tank Implosion at Paper Mill in Washington**\
+**9 Missing After Tank Implosion at a Paper Mill in Longview, Washington**\
 `Officials were trying to find out whether they had been at work or were merely unreachable. Officials said the implosion has left at least one person dead and nine others injured.`\
 https://www.nytimes.com/2026/05/27/us/longview-washington-paper-mill-implosion.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/05/27/technology/ai-screens-schools-weingarten.html
 **Cornyn’s Defeat Fuels Tensions With President Trump in Senate G.O.P.**\
 `Senators are angry President Trump turned on a respected former leader whom they consider a loyal Republican. Now Mr. Trump faces resistance from his own embittered ranks.`\
 https://www.nytimes.com/2026/05/27/us/trump-cornyn-paxton-senate-republicans.html
-
-**Iran Begins Restoring Internet Access**\
-`Iranians started to reconnect to the global internet after the government began lifting a monthslong shutdown, an official said on Tuesday.`\
-https://www.nytimes.com/video/world/middleeast/100000010927921/iran-internet-restored.html
 

@@ -1,4 +1,4 @@
-**Knicks Fans Are Stunned by Four-Figure Ticket Prices**\
+**Knicks Fans Confront High Ticket Prices for NBA Finals Games at MSG**\
 `New York Knicks fans, still celebrating the team making it to the N.B.A. finals, are confronting high ticket prices for the games at Madison Square Garden.`\
 https://www.nytimes.com/2026/05/27/nyregion/knicks-finals-ticket-prices.html
 
@@ -151,7 +151,7 @@ https://www.nytimes.com/video/world/asia/100000010928052/laos-cave-flooding-resc
 https://www.nytimes.com/2026/05/27/business/ferrari-luce-electric-ev-backlash.html
 
 **The Viruses Causing New Outbreaks Are Much Less Familiar to Science**\
-`The types of Ebola and hantavirus panicking officials are very different from the species identified decades ago, raising new questions about how to respond.`\
+`The types of Ebola and hantavirus worrying officials are very different from the species identified decades ago, raising new questions about how to respond.`\
 https://www.nytimes.com/2026/05/27/science/ebola-hantavirus-species-strains.html
 
 **My Starring Role in ‘Heated Rivalry’ — for One Night Only**\
