@@ -1,3 +1,7 @@
+**Samsung Unions Approve Pay Deal That Highlights Inequality of A.I. Age**\
+`The agreement all but guarantees hefty bonuses for employees in the top-performing chip unit. Other workers say they feel left out.`\
+https://www.nytimes.com/2026/05/27/world/asia/samsung-ai-profit-bonus-workers.html
+
 **War. Heat. Cigarettes.**\
 `Updates on stories from around the world.`\
 https://www.nytimes.com/2026/05/27/briefing/war-heat-cigarettes.html
