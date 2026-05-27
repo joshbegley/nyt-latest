@@ -1,5 +1,9 @@
+**Santiago Rivera inventó la tarta de queso vasca, pero prefiere el chocolate**\
+`A Santiago Rivera se le atribuye la creación del pastel de queso “quemado” en la década de 1980, aunque no le gustan los derivados que ha engendrado. Décadas después, se prepara para ceder su cocina a sus hijos.`\
+https://www.nytimes.com/es/2026/05/27/espanol/mundo/santiago-rivera-tarta-queso-vasca.html
+
 **A Blue Texas May Be More Than a Dream for Democrats**\
-`Paxton’s victory and a big shift among Hispanic voters have put the state’s Senate seat within reach.`\
+`Paxton’s victory for the Republican nomination and a big shift among Hispanic voters have put a Senate seat within reach.`\
 https://www.nytimes.com/2026/05/27/upshot/paxton-talarico-texas-polling.html
 
 **Paxton’s Texas Victory Opens a New Front in the Battle for the Senate**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/05/27/espanol/opinion/abuso-sexual-palestinos-is
 **Word of the Day: shibboleth**\
 `This word has appeared in 4 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/05/27/learning/word-of-the-day-shibboleth.html
-
-**Jimmy Kimmel Slams Trump for Missing His Son’s Wedding**\
-`“It was a small ceremony with about 40 guests, none of whom were his father,” the late-night host said of Donald Trump Jr.’s wedding in the Bahamas over the weekend.`\
-https://www.nytimes.com/2026/05/27/arts/television/jimmy-kimmel-trump-son-wedding.html
 
