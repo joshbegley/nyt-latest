@@ -1,3 +1,7 @@
+**Evacuation Orders Lifted as Southern California Chemical Tank Cools**\
+`The risk of an explosion or spill has fallen significantly, the authorities said late Tuesday, and all evacuated residents can now go home. Some have begun to ask who should be held accountable.`\
+https://www.nytimes.com/2026/05/26/us/chemical-tank-orange-county-california.html
+
 **La arena temporal de la UFC comienza a tomar forma en el jardín de la Casa Blanca**\
 `El evento de la Ultimate Fighting Championship está previsto para el 14 de junio, día del cumpleaños 80 del presidente Trump.`\
 https://www.nytimes.com/es/2026/05/27/espanol/estados-unidos/pelea-ufc-casa-blanca-trump.html

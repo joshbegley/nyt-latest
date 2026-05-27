@@ -87,7 +87,7 @@ https://www.nytimes.com/2026/05/26/us/politics/john-cornyn-republican-senate-can
 https://www.nytimes.com/2026/05/26/us/politics/texas-democratic-primary-menefee-green.html
 
 **Evacuation Orders Lifted as Southern California Chemical Tank Cools**\
-`The risk of an explosion or spill has fallen, and the authorities said late Tuesday that all evacuated residents can go home. Some have begun to ask who should be held accountable.`\
+`The risk of an explosion or spill has fallen significantly, the authorities said late Tuesday, and all evacuated residents can now go home. Some have begun to ask who should be held accountable.`\
 https://www.nytimes.com/2026/05/26/us/chemical-tank-orange-county-california.html
 
 **As Republicans Battled in the Runoff, Talarico Sought to Unify Democrats**\
