@@ -1,3 +1,7 @@
+**Escándalo FIFA: juez desestima 2 acusaciones**\
+`Hernán López, un exejecutivo de Fox, y la empresa argentina Full Play Group, eludieron los cargos tras ser acusados de haber participado en una trama para entregar dinero a representantes de la FIFA a cambio de derechos de transmisión.`\
+https://www.nytimes.com/es/2026/05/27/espanol/fifa-acusaciones-corrupcion.html
+
 **White House Dismisses Outline of ‘Unofficial’ Iran Deal**\
 `Plus, hunting fish with a bow and arrow. Here’s the latest at the end of Wednesday.`\
 https://www.nytimes.com/2026/05/27/briefing/iran-reflecting-pool.html
@@ -135,7 +139,7 @@ https://www.nytimes.com/2026/05/27/world/middleeast/lebaon-war-deal-iran-us.html
 https://www.nytimes.com/2026/05/27/nyregion/knicks-finals-ticket-prices.html
 
 **9 Missing After Tank Implosion at a Paper Mill in Longview, Washington**\
-`Officials said they did not believe anyone was still alive inside the facility. The implosion has left at least two people dead and several others injured.`\
+`Officials said they did not believe anyone was still alive inside the facility. The explosion has left at least two people dead and several others injured.`\
 https://www.nytimes.com/2026/05/27/us/longview-washington-paper-mill-implosion.html
 
 **Meeting Voters, a Republican Tries to Outrun His Party’s Woes**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/27/world/europe/daniela-klette-jailed-red-army-f
 **Maps: Tracking Tropical Depression Jangmi**\
 `See the likely path and wind arrival times for Jangmi`\
 https://www.nytimes.com/interactive/2026/05/27/weather/jangmi-map-path-tracker.html
-
-**Israel Continues Its Escalation in Lebanon, Ordering Evacuations**\
-`The Israeli military issued sweeping evacuation orders for two southern cities, indicating that more airstrikes were imminent.`\
-https://www.nytimes.com/2026/05/27/world/middleeast/israel-hezbollah-lebanon.html
 
