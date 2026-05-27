@@ -1,3 +1,27 @@
+**Cease-Fires, but No Peace**\
+`A truce isn’t necessarily doomed if the missiles are still flying. Here’s why.`\
+https://www.nytimes.com/2026/05/27/world/cease-fires-peace-lebanon-israel-iran.html
+
+**Condé Nast Pays Over $400,000 to 3 Journalists Fired Over Protest**\
+`The former workers were among a group of employees who confronted the company’s head of human resources about layoffs last fall.`\
+https://www.nytimes.com/2026/05/27/business/media/conde-nast-fired-journalists-settlement.html
+
+**In Utah, Measles Sickens Babies and Others Who Can’t Be Vaccinated**\
+`Many of those who can’t be vaccinated, including pregnant women and immunocompromised people, are also at high risk of serious complications.`\
+https://www.nytimes.com/2026/05/27/well/utah-measles-unvaccinated-babies.html
+
+**F.B.I. Arrests C.I.A. Official With $40 Million in Gold Bars in His Home**\
+`The only charge lodged against David Rush is that he inflated his academic credentials and obtained military leave pay worth tens of thousands of dollars.`\
+https://www.nytimes.com/2026/05/27/us/politics/fbi-arrest-cia-official-gold-bars.html
+
+**Pope Leo’s A.I. Vision Might Not Be Strange Enough**\
+`He is both a critic and a normalizer of the technology.`\
+https://www.nytimes.com/2026/05/27/opinion/pope-leo-ai-encyclical.html
+
+**Why Democrats Think They Can Flip Texas**\
+`With Ken Paxton defeating John Cornyn in Texas’ Republican runoff for the Senate, The New York Times’s national political correspondent Shane Goldmacher explains why Democrats may now see their best chance in years to flip the seat.`\
+https://www.nytimes.com/video/us/100000010921466/paxton-talarico-texas-senate-race.html
+
 **La policía escolar de Texas roció con gas pimienta, golpeó y dio descargas eléctricas a varios alumnos**\
 `La presencia de agentes  en las escuelas de Texas ha aumentado como medida para prevenir tiroteos. Sin embargo, una investigación reciente del Times demuestra que  recurren a tácticas de mano dura con los niños.`\
 https://www.nytimes.com/interactive/2026/05/27/espanol/estados-unidos/texas-escuelas-agentes-policia-estudiantes-uvalde.html
