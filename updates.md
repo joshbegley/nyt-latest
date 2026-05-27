@@ -1,3 +1,7 @@
+**Canadá exportará gas natural licuado a Alemania**\
+`El acuerdo es importante para ambas naciones, ya que Canadá busca nuevos mercados lejos de Estados Unidos mientras que Alemania intenta diversificar su suministro energético.`\
+https://www.nytimes.com/es/2026/05/27/espanol/mundo/canada-alemania-gas.html
+
 **A.I. Money From I.P.O.s Will Change Philanthropy**\
 `Silicon Valley is about to get a lot more liquid. What will it spend its money on?`\
 https://www.nytimes.com/2026/05/27/opinion/ai-philanthropy-charity.html
