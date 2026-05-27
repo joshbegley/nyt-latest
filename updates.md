@@ -1,3 +1,15 @@
+**Lebanese Resigned to a Long War, Even if U.S. and Iran Make a Deal**\
+`Few in Lebanon believe that diplomatic efforts to end the wider war will bring peace to their country, as clashes between Israel and Hezbollah intensify in the south.`\
+https://www.nytimes.com/2026/05/27/world/middleeast/lebaon-war-deal-iran-us.html
+
+**9 Missing After Tank Implosion at a Paper Mill in Longview, Washington**\
+`Officials were trying to find out whether they had been at work or were merely unreachable. Officials said the implosion has left at least one person dead and nine others injured.`\
+https://www.nytimes.com/2026/05/27/us/longview-washington-paper-mill-implosion.html
+
+**Uganda Closes Border With Congo as Ebola Fears Rise**\
+`Seven confirmed cases of the virus have already been reported in Kampala, the capital, but officials say the country has robust disease surveillance.`\
+https://www.nytimes.com/2026/05/27/world/africa/ebola-congo-uganda.html
+
 **Knicks Fans Confront High Ticket Prices for NBA Finals Games at MSG**\
 `New York Knicks fans, still celebrating the team making it to the N.B.A. finals, are confronting high ticket prices for the games at Madison Square Garden.`\
 https://www.nytimes.com/2026/05/27/nyregion/knicks-finals-ticket-prices.html
