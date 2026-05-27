@@ -10,8 +10,8 @@ https://www.nytimes.com/2026/05/26/us/minneapolis-police-chief-resigns.html
 `Ken Paxton, the Texas attorney general, overcame scandals and a significant fund-raising disadvantage to win. His victory sets up the general-election clash that Democrats had hoped for.`\
 https://www.nytimes.com/2026/05/26/us/politics/texas-republican-senate-cornyn-paxton.html
 
-**5 Things to Know About Ken Paxton, Republican Senate Hopeful in Texas**\
-`With the support of President Trump, Mr. Paxton is trying to unseat Senator John Cornyn in a high-profile Republican runoff.`\
+**5 Things to Know About Ken Paxton, the Republican Senate Nominee in Texas**\
+`With the support of President Trump, Mr. Paxton unseated Senator John Cornyn in a high-profile Republican runoff.`\
 https://www.nytimes.com/2026/05/26/us/politics/ken-paxton-republican-senate-candidate.html
 
 **5 Things to Know About John Cornyn, Republican Senate Hopeful in Texas**\

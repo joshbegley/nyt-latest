@@ -34,8 +34,8 @@ https://www.nytimes.com/2026/05/26/us/politics/talarico-texas-democrats.html
 `He is a veteran lawmaker and a vocal critic of President Trump who is facing a runoff against a fellow Democratic member espousing generational change.`\
 https://www.nytimes.com/2026/05/26/us/politics/al-green-democrat-house-candidate.html
 
-**5 Things to Know About Christian Menefee, Democratic House Candidate in Texas**\
-`He is one of the newest members of Congress, running on a message of generational change against a fellow Democratic member who is more than twice his age.`\
+**5 Things to Know About Christian Menefee, Democratic House Nominee in Texas**\
+`Mr. Menefee, one of the newest members of Congress, beat Representative Al Green, a Democrat who is more than twice his age, in a primary runoff.`\
 https://www.nytimes.com/2026/05/26/us/politics/christian-menefee-democrat-house-candidate.html
 
 **Donald E. Newhouse, Low-Profile Heir to a Media Empire, Dies at 96**\

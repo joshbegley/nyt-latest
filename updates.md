@@ -1,3 +1,7 @@
+**5 Things to Know About Ken Paxton, the Republican Senate Nominee in Texas**\
+`With the support of President Trump, Mr. Paxton unseated Senator John Cornyn in a high-profile Republican runoff.`\
+https://www.nytimes.com/2026/05/26/us/politics/ken-paxton-republican-senate-candidate.html
+
 **The Winner of the Cornyn-Paxton Runoff? James Talarico.**\
 `The Texas senate race will come down to the Democratic candidate’s strengths — and the Republican’s weaknesses.`\
 https://www.nytimes.com/2026/05/26/opinion/paxton-talarico-texas-senate.html
