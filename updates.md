@@ -1,3 +1,7 @@
+**The Winner of the Cornyn-Paxton Runoff? James Talarico.**\
+`The Texas senate race will come down to the Democratic candidate’s strengths — and the Republican’s weaknesses.`\
+https://www.nytimes.com/2026/05/26/opinion/paxton-talarico-texas-senate.html
+
 **Minneapolis Police Chief Brian O’Hara Resigns After Investigation**\
 `The chief, Brian O’Hara, began leading the department in 2022 as it reeled in the aftermath of the police killing of George Floyd.`\
 https://www.nytimes.com/2026/05/26/us/minneapolis-police-chief-resigns.html
