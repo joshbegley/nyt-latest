@@ -1,3 +1,15 @@
+**The Battle Over Trump’s Immigration Crackdown Comes to a Newark ICE Facility Parking Lot**\
+`For five days, activists have gathered outside a detention center in New Jersey to denounce conditions inside. Federal officials have rejected those concerns.`\
+https://www.nytimes.com/2026/05/27/nyregion/delaney-hall-nj-detention-center-protests.html
+
+**For Years, Democrats Refused to Primary Him. This Year Is Different.**\
+`Thomas DiNapoli, the state comptroller in New York since 2007, now faces his first primary challenge, as two Democrats hope to capitalize on anti-incumbent fervor.`\
+https://www.nytimes.com/2026/05/27/nyregion/ny-comptroller-dinapoli-primary-challenge.html
+
+**NYT Spelling Bee Answers for May 27, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/27/crosswords/spelling-bee-forum.html
+
 **Nigel Farage’s Far-Right Party Is Now Central to British Politics**\
 `Nigel Farage’s anti-immigrant, populist agenda has helped his Reform U.K. Party emerge from the fringe of politics in Britain. But it faces an uphill climb to win power.`\
 https://www.nytimes.com/2026/05/27/world/europe/britain-reform-party-farage.html
