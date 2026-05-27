@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/05/27/business/dealbook/ai-chips-war-samsung-micron.html
 
 **Margot Wellington, Who Helped Save Grand Central Terminal, Dies at 91**\
-`As the director of the Municipal Art Society, she led the fight to save countless New York City landmarks from the wrecking ball.`\
+`As the director of the Municipal Art Society, she led the fight to rescue countless New York City landmarks from the wrecking ball.`\
 https://www.nytimes.com/2026/05/27/nyregion/margot-wellington-dead.html
 
 **War. Heat. Cigarettes.**\
