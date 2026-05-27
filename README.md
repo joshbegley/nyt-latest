@@ -1,3 +1,27 @@
+**Cease-Fires, but No Peace**\
+`A truce isn’t necessarily doomed if the missiles are still flying. Here’s why.`\
+https://www.nytimes.com/2026/05/27/world/cease-fires-peace-lebanon-israel-iran.html
+
+**Condé Nast Pays Over $400,000 to 3 Journalists Fired Over Protest**\
+`The former workers were among a group of employees who confronted the company’s head of human resources about layoffs last fall.`\
+https://www.nytimes.com/2026/05/27/business/media/conde-nast-fired-journalists-settlement.html
+
+**In Utah, Measles Sickens Babies and Others Who Can’t Be Vaccinated**\
+`Many of those who can’t be vaccinated, including pregnant women and immunocompromised people, are also at high risk of serious complications.`\
+https://www.nytimes.com/2026/05/27/well/utah-measles-unvaccinated-babies.html
+
+**F.B.I. Arrests C.I.A. Official With $40 Million in Gold Bars in His Home**\
+`The only charge lodged against David Rush is that he inflated his academic credentials and obtained military leave pay worth tens of thousands of dollars.`\
+https://www.nytimes.com/2026/05/27/us/politics/fbi-arrest-cia-official-gold-bars.html
+
+**Pope Leo’s A.I. Vision Might Not Be Strange Enough**\
+`He is both a critic and a normalizer of the technology.`\
+https://www.nytimes.com/2026/05/27/opinion/pope-leo-ai-encyclical.html
+
+**Why Democrats Think They Can Flip Texas**\
+`With Ken Paxton defeating John Cornyn in Texas’ Republican runoff for the Senate, The New York Times’s national political correspondent Shane Goldmacher explains why Democrats may now see their best chance in years to flip the seat.`\
+https://www.nytimes.com/video/us/100000010921466/paxton-talarico-texas-senate-race.html
+
 **Why Ghana Is Evacuating Hundreds of Its Citizens From South Africa**\
 `Anti-immigrant protests have increased across South Africa, drawing forceful condemnation from several African leaders.`\
 https://www.nytimes.com/2026/05/27/world/africa/south-africa-ghana-immigration-protests.html
@@ -169,30 +193,6 @@ https://www.nytimes.com/2026/05/27/style/summer-house-reunion-bravo-amc-screenin
 **Ball State Settles With Ex-Employee for $225,000 Over Charlie Kirk Posts**\
 `Ball State University is the latest institution to agree to pay workers who lost their jobs over their posts about the conservative activist.`\
 https://www.nytimes.com/2026/05/27/us/politics/ball-state-charlie-kirk-settlement.html
-
-**Could Russia Hit Harder? It at Least Wants Ukraine to Think So.**\
-`Major attacks on Kyiv, followed by warnings of more, come as Moscow is stalled on the battlefield and at the negotiating table.`\
-https://www.nytimes.com/2026/05/27/world/europe/russia-ukraine-kyiv-attacks.html
-
-**This Year at the May Festival, Julia Bullock Took Charge**\
-`The May Festival in Cincinnati was led this time by the soprano Julia Bullock, who wove her experiences as a Black artist through two weeks of concerts.`\
-https://www.nytimes.com/2026/05/27/arts/music/may-festival-julia-bullock.html
-
-**Today, In Short**\
-`Garden gnomes. Nutrition. And the latest from the Texas runoffs.`\
-https://www.nytimes.com/2026/05/27/briefing/today-in-short.html
-
-**Israel Intensifies Military Campaign Against Hezbollah in Lebanon**\
-`Israeli strikes pounded southern Lebanon on Wednesday, escalating Israel’s campaign against Hezbollah and complicating talks to end the U.S.-Israeli war with Iran.`\
-https://www.nytimes.com/video/world/middleeast/100000010928024/israel-lebanon-strikes-hezbollah.html
-
-**’60 Minutes’ Journalist Sharyn Alfonsi Loses Deal After Dispute With Bari Weiss**\
-`Sharyn Alfonsi, whose segment on a brutal Salvadoran prison was pulled abruptly in December, said that CBS News and its top editor, Bari Weiss, had let her contract expire.`\
-https://www.nytimes.com/2026/05/27/business/media/cbs-sharyn-alfonsi-bari-weiss.html
-
-**Uganda Closes Border With Congo as Ebola Fears Rise**\
-`Seven confirmed cases of the virus have already been reported in Kampala, the capital, but officials say the country has robust disease surveillance.`\
-https://www.nytimes.com/2026/05/27/world/africa/ebola-congo-uganda.html
 
 **Iran War Live Updates: As Talks Drag On, Trump Says ‘I Don’t Care’ About Midterms Pressure**\
 `President Trump said U.S. politics would not affect his strategy in the unpopular war and was open to protracted peace talks. He also insisted that Iran would not control the Strait of Hormuz.`\
