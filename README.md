@@ -2,7 +2,7 @@
 `El asistente de Matthew Perry le inyectó la ketamina que lo mató. Su sentencia ha hecho que algunos en esta exigente profesión reflexionen sobre esta dinámica de poder.`\
 https://www.nytimes.com/es/2026/05/27/espanol/cultura/matthew-perry-asistente.html
 
-**Kids Review “Sarniezz” by Angine de Poitrine**\
+**Kids Review ‘Sarniezz’ by Angine de Poitrine**\
 `These children have a lot of thoughts about Angine de Poitrine’s song “Sarniezz (Live on KEXP),” which has been receiving loads of attention on TikTok. Is it disturbing? Creative? Nonsensical? They discuss it all with our critic, Jon Caramanica, on this special edition of Song of the Week.`\
 https://www.nytimes.com/video/podcasts/100000010929288/kids-review-sarniezz-by-angine-de-poitrine.html
 
