@@ -1,3 +1,7 @@
+**National Park Entrance Fees Are Funding Trump’s D.C. Projects**\
+`The administration is spending at least $67 million worth of fees paid by visitors to national parks on fixing D.C. fountains and the Reflecting Pool.`\
+https://www.nytimes.com/2026/05/27/climate/park-service-fees-washington-trump.html
+
 **What’s Your ‘Mom Aesthetic’? TikTok Wants to Know.**\
 `Motherhood has become just another vibe to brand.`\
 https://www.nytimes.com/2026/05/27/style/mom-aesthetic-parenting-tiktok.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/05/27/nyregion/mamdani-turns-to-the-private-sector-
 **Viajar en avión: de malo a peor en la era del caos**\
 `Si no puedo conseguir una mejora –y no puedo, ya que no tengo estatus, en ningún aspecto de mi vida—, me gustaría que sufriéramos más por igual cuando viajamos.`\
 https://www.nytimes.com/es/2026/05/27/espanol/opinion/verano-vuelos-retrasos.html
-
-**A House That Adapts to Party Mode, Private Mode and Guest Mode**\
-`A London couple turned their four-bedroom house into a one-bedroom shape-shifter — and got a lot more room for living.`\
-https://www.nytimes.com/2026/05/27/realestate/hackney-london-renovation-small.html
 
