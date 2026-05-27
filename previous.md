@@ -1,3 +1,35 @@
+**La arena temporal de la UFC comienza a tomar forma en el jardín de la Casa Blanca**\
+`El evento de la Ultimate Fighting Championship está previsto para el 14 de junio, día del cumpleaños 80 del presidente Trump.`\
+https://www.nytimes.com/es/2026/05/27/espanol/estados-unidos/pelea-ufc-casa-blanca-trump.html
+
+**Can Nigel Farage’s Right-Wing Party Win It All in Britain?**\
+`Nigel Farage’s anti-immigrant, populist agenda has helped his Reform U.K. Party emerge from the fringe of British politics. But it faces an uphill climb to win power.`\
+https://www.nytimes.com/2026/05/27/world/europe/britain-reform-party-farage.html
+
+**Cubans Deported to Mexico Live a Precarious Existence, Report Finds**\
+`A Human Rights Watch report found that many Cubans deported to Mexico by the Trump administration are living in an “indefinite legal limbo” and struggling to get by.`\
+https://www.nytimes.com/2026/05/27/us/cuba-deport-mexico.html
+
+**Where Time Is Always 15 Minutes Apart From Everywhere Else**\
+`In Nepal, a nation wedged between India and China, a unique time zone is just one expression of a singular national identity.`\
+https://www.nytimes.com/2026/05/27/world/asia/nepal-time-15-minutes.html
+
+**Inventor of the Basque Cheesecake Plans to Retire. His Secret: He Prefers Chocolate**\
+`Santiago Rivera is widely credited with creating the “burnt” cheesecake in the 1980s, though he doesn’t love the spinoffs it has spawned. Decades later, he’s preparing to hand over his kitchen to his children.`\
+https://www.nytimes.com/2026/05/27/world/europe/basque-cheesecake-inventor-rivera-spain.html
+
+**Xi Jinping Quit Smoking. China Still Cannot.**\
+`China’s tobacco monopoly has become so financially vital to the government that even its powerful leader has failed to curb the country’s smoking habit.`\
+https://www.nytimes.com/2026/05/27/business/china-smoking-economy.html
+
+**Corrections: May 27, 2026**\
+`Corrections that appeared in print on Wednesday, May 27, 2026.`\
+https://www.nytimes.com/2026/05/27/pageoneplus/corrections-may-27-2026.html
+
+**Quote of the Day: A 21st-Century First Has the Knicks’ Fans Caught Up in Euphoria**\
+`Quotation of the Day for Wednesday, May 27, 2026.`\
+https://www.nytimes.com/2026/05/26/pageoneplus/quote-of-the-day-a-21st-century-first-has-the-knicks-fans-caught-up-in-euphoria.html
+
 **Colin Allred, Former Lawmaker, Wins Democratic Runoff for House Seat**\
 `Mr. Allred beat the incumbent, Representative Julie Johnson, and is now favored to win the general election in a heavily Democratic Dallas-based district.`\
 https://www.nytimes.com/2026/05/26/us/politics/texas-democratic-primary-allred-johnson.html
@@ -161,38 +193,6 @@ https://www.nytimes.com/2026/05/26/us/trump-lawsuit-ucla-antisemitism.html
 **Southern Poverty Law Center Accuses Justice Dept. of Vindictive Prosecution**\
 `Defense lawyers are increasingly accusing the Justice Department under President Trump of using its powers to prioritize the president’s political imperatives above the pursuit of actual justice.`\
 https://www.nytimes.com/2026/05/26/us/politics/southern-poverty-law-center-doj.html
-
-**Iceland Warms to Europe**\
-`The country has always stood apart from the continent. Then President Trump started threatening Greenland.`\
-https://www.nytimes.com/2026/05/26/world/iceland-europe-iran-us-strikes.html
-
-**It’s Crow, Mr. Trump, Not Lobster**\
-`Whatever deal is reached between the United States and Iran, Trump will have to make a big concession: A murderous regime remains intact.`\
-https://www.nytimes.com/2026/05/26/opinion/iran-deal-trump-us.html
-
-**The Jaw-Dropping Cost of the Texas Senate Primary: Nearly $130 Million**\
-`The race between Senator John Cornyn and his right-wing rival, Ken Paxton, has cost mountains of cash. More of it has gone to help Mr. Cornyn — but that money may not be enough.`\
-https://www.nytimes.com/2026/05/26/us/politics/cornyn-paxton-texas-senate-primary-spending.html
-
-**La primera encíclica del papa León XIV: puntos clave**\
-`En su carta, el primer pontífice estadounidense pide que se sitúe el cuidado de los seres humanos en el centro del cambio tecnológico.`\
-https://www.nytimes.com/es/2026/05/26/espanol/estados-unidos/enciclica-papa-leon-ia.html
-
-**Nicolas Cage Fact-Checks Wild Stories About Nicolas Cage**\
-`Is that Nicolas Cage story you heard fact or fiction? David Marchese asked the actor to clear up some of the stories that have circulated about him over the years on “The Interview.”`\
-https://www.nytimes.com/video/podcasts/100000010926809/nicolas-cage-fact-checks-wild-stories-about-nicolas-cage.html
-
-**After Being Deported Back to the Country They Fled, Can a Family Build a New Life?**\
-`After being removed from the United States, a family tries to rebuild their life back in Colombia.`\
-https://www.nytimes.com/interactive/2026/05/26/magazine/us-immigration-family-deportation-colombia.html
-
-**How Nicolas Cage Escaped His Tumultuous Childhood**\
-`“TV was the savior of my childhood,” Nicolas Cage says on “The Interview.” He also spent time digging a hole to China and performing tricks on his Huffy bike — until they took it away.`\
-https://www.nytimes.com/video/podcasts/100000010926773/how-nicolas-cage-escaped-his-tumultuous-childhood.html
-
-**What Nicolas Cage Thinks of Becoming a Meme**\
-`Nicolas Cage’s outsized acting style has led to his work being frequently memed on the Internet. On “The Interview,” He talked about what it’s like to see his memorable acting moments turned into GIFs.`\
-https://www.nytimes.com/video/podcasts/100000010926740/what-nicolas-cage-thinks-of-becoming-a-meme.html
 
 **With Trump’s Backing, Paxton Routs Cornyn in Texas Senate G.O.P. Runoff**\
 `Ken Paxton, the Texas attorney general, defeated John Cornyn, a four-term Republican senator, in a runoff that confirmed the president’s hold on his party’s voters. Mr. Paxton will face the Democratic nominee, James Talarico, in a race with national implications.`\

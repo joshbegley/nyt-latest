@@ -1,3 +1,35 @@
+**La arena temporal de la UFC comienza a tomar forma en el jardín de la Casa Blanca**\
+`El evento de la Ultimate Fighting Championship está previsto para el 14 de junio, día del cumpleaños 80 del presidente Trump.`\
+https://www.nytimes.com/es/2026/05/27/espanol/estados-unidos/pelea-ufc-casa-blanca-trump.html
+
+**Can Nigel Farage’s Right-Wing Party Win It All in Britain?**\
+`Nigel Farage’s anti-immigrant, populist agenda has helped his Reform U.K. Party emerge from the fringe of British politics. But it faces an uphill climb to win power.`\
+https://www.nytimes.com/2026/05/27/world/europe/britain-reform-party-farage.html
+
+**Cubans Deported to Mexico Live a Precarious Existence, Report Finds**\
+`A Human Rights Watch report found that many Cubans deported to Mexico by the Trump administration are living in an “indefinite legal limbo” and struggling to get by.`\
+https://www.nytimes.com/2026/05/27/us/cuba-deport-mexico.html
+
+**Where Time Is Always 15 Minutes Apart From Everywhere Else**\
+`In Nepal, a nation wedged between India and China, a unique time zone is just one expression of a singular national identity.`\
+https://www.nytimes.com/2026/05/27/world/asia/nepal-time-15-minutes.html
+
+**Inventor of the Basque Cheesecake Plans to Retire. His Secret: He Prefers Chocolate**\
+`Santiago Rivera is widely credited with creating the “burnt” cheesecake in the 1980s, though he doesn’t love the spinoffs it has spawned. Decades later, he’s preparing to hand over his kitchen to his children.`\
+https://www.nytimes.com/2026/05/27/world/europe/basque-cheesecake-inventor-rivera-spain.html
+
+**Xi Jinping Quit Smoking. China Still Cannot.**\
+`China’s tobacco monopoly has become so financially vital to the government that even its powerful leader has failed to curb the country’s smoking habit.`\
+https://www.nytimes.com/2026/05/27/business/china-smoking-economy.html
+
+**Corrections: May 27, 2026**\
+`Corrections that appeared in print on Wednesday, May 27, 2026.`\
+https://www.nytimes.com/2026/05/27/pageoneplus/corrections-may-27-2026.html
+
+**Quote of the Day: A 21st-Century First Has the Knicks’ Fans Caught Up in Euphoria**\
+`Quotation of the Day for Wednesday, May 27, 2026.`\
+https://www.nytimes.com/2026/05/26/pageoneplus/quote-of-the-day-a-21st-century-first-has-the-knicks-fans-caught-up-in-euphoria.html
+
 **With Trump’s Backing, Paxton Routs Cornyn in Texas Senate G.O.P. Runoff**\
 `Ken Paxton, the Texas attorney general, defeated John Cornyn, a four-term Republican senator, in a runoff that confirmed the president’s hold on his party’s voters. Mr. Paxton will face the Democratic nominee, James Talarico, in a race with national implications.`\
 https://www.nytimes.com/live/2026/05/26/us/texas-primary-runoff-elections
