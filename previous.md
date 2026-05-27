@@ -1,8 +1,20 @@
+**Judge Dismisses 2 Indictments in FIFA Bribery Case**\
+`The decision marked an end to a significant part of a broader corruption investigation that rocked the soccer world more than a decade ago.`\
+https://www.nytimes.com/2026/05/27/nyregion/fifa-indictments-soccer-dismissed.html
+
+**KFF’s Chief Executive to Retire**\
+`Drew Altman, who transformed KFF from a little-known family foundation to a major source of U.S. health policy research, will step down at the end of the year.`\
+https://www.nytimes.com/2026/05/27/business/media/kff-drew-altman.html
+
+**The Good List: 6 Things to Add Some Joy to Your Day**\
+`Aggression cookies, dancing the seasons and typing ‘Mrs. Dalloway.’`\
+https://www.nytimes.com/2026/05/27/briefing/the-good-list-nelkin-aggression-cookies.html
+
 **Canada Rejects U.S. Military Suppliers in Favor of Swedish Aircraft**\
 `Prime Minister Mark Carney chose a Saab surveillance and control plane after vowing to reduce military spending with the United States.`\
 https://www.nytimes.com/2026/05/27/world/canada/carney-canada-military-spending-saab-air-force.html
 
-**Matthew Perry’s Personal Assistant, Kenneth Iwamasa, Sentenced to TK Years**\
+**Matthew Perry’s Personal Assistant, Kenneth Iwamasa, Sentenced to More Than 3 Years in Prison**\
 `Kenneth Iwamasa injected Mr. Perry with the ketamine that killed him. He is the last of five defendants to be sentenced in the case.`\
 https://www.nytimes.com/2026/05/27/arts/matthew-perry-personal-assistant-ketamine.html
 
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/05/27/theater/heated-rivalry-parody-theater-off-bro
 **Global Supply Shortages Deepen as War Drags On, Risking Jobs and Growth**\
 `After three months, the fallout of the closure of the Strait of Hormuz is spreading, with developing countries bearing the brunt of the shortfall.`\
 https://www.nytimes.com/2026/05/27/business/hormuz-global-shortages-gas.html
-
-**Two Survivors Left at Sea After U.S. Attacks Boat in Pacific**\
-`One person was killed in the U.S. military’s 58th strike against vessels it accused of smuggling drugs.`\
-https://www.nytimes.com/2026/05/27/us/politics/two-survivors-boat-strike.html
-
-**BP’s Former Chairman, Albert Manifold, Disputes How Company Characterized His Dismissal**\
-`Albert Manifold, who was abruptly fired less than a year after he was appointed, said he was let go “without explanation.”`\
-https://www.nytimes.com/2026/05/27/business/bp-albert-manifold.html
-
-**At the Enhanced Games, Rules Are for Suckers**\
-`The company seems to want a world where nobody tells it no.`\
-https://www.nytimes.com/2026/05/27/opinion/enhanced-games-athletes-steroids-drugs.html
 

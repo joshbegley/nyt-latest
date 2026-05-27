@@ -1,3 +1,19 @@
+**Judge Dismisses 2 Indictments in FIFA Bribery Case**\
+`The decision marked an end to a significant part of a broader corruption investigation that rocked the soccer world more than a decade ago.`\
+https://www.nytimes.com/2026/05/27/nyregion/fifa-indictments-soccer-dismissed.html
+
+**KFF’s Chief Executive to Retire**\
+`Drew Altman, who transformed KFF from a little-known family foundation to a major source of U.S. health policy research, will step down at the end of the year.`\
+https://www.nytimes.com/2026/05/27/business/media/kff-drew-altman.html
+
+**The Good List: 6 Things to Add Some Joy to Your Day**\
+`Aggression cookies, dancing the seasons and typing ‘Mrs. Dalloway.’`\
+https://www.nytimes.com/2026/05/27/briefing/the-good-list-nelkin-aggression-cookies.html
+
+**Matthew Perry’s Personal Assistant, Kenneth Iwamasa, Sentenced to More Than 3 Years in Prison**\
+`Kenneth Iwamasa injected Mr. Perry with the ketamine that killed him. He is the last of five defendants to be sentenced in the case.`\
+https://www.nytimes.com/2026/05/27/arts/matthew-perry-personal-assistant-ketamine.html
+
 **Matthew Perry’s Personal Assistant, Kenneth Iwamasa, Sentenced to TK Years**\
 `Kenneth Iwamasa injected Mr. Perry with the ketamine that killed him. He is the last of five defendants to be sentenced in the case.`\
 https://www.nytimes.com/2026/05/27/arts/matthew-perry-personal-assistant-ketamine.html

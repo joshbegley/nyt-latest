@@ -1,3 +1,7 @@
+**A.I. Money From I.P.O.s Are About to Change Philanthropy**\
+`Silicon Valley is about to get a lot more liquid. What will it spend its money on?`\
+https://www.nytimes.com/2026/05/27/opinion/ai-philanthropy-charity.html
+
 **Judge Dismisses 2 Indictments in FIFA Bribery Case**\
 `The decision marked an end to a significant part of a broader corruption investigation that rocked the soccer world more than a decade ago.`\
 https://www.nytimes.com/2026/05/27/nyregion/fifa-indictments-soccer-dismissed.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/05/27/science/ebola-hantavirus-species-strains.html
 **My Starring Role in ‘Heated Rivalry’ — for One Night Only**\
 `The unauthorized musical parody of the hit TV show gives the role of Scott Hunter to an unsuspecting audience member — and one recent night that was me.`\
 https://www.nytimes.com/2026/05/27/theater/heated-rivalry-parody-theater-off-broadway.html
-
-**Global Supply Shortages Deepen as War Drags On, Risking Jobs and Growth**\
-`After three months, the fallout of the closure of the Strait of Hormuz is spreading, with developing countries bearing the brunt of the shortfall.`\
-https://www.nytimes.com/2026/05/27/business/hormuz-global-shortages-gas.html
 
