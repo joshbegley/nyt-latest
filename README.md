@@ -1,3 +1,7 @@
+**How Democrats Can Avoid the Mistakes of 2024**\
+`Readers discuss the Democratic Party’s autopsy of the presidential election.`\
+https://www.nytimes.com/2026/05/27/opinion/democrats-autopsy-2024-election.html
+
 **Reflecting Pool Contract Has ‘Inflated’ Profit Margin, Government Analysis Finds**\
 `The firm that was given a no-bid contract to fix the troubled landmark is charging 20 percent. The typical profit margin is 6 percent to 12 percent, internal records show.`\
 https://www.nytimes.com/2026/05/27/us/politics/reflecting-pool-contractor-trump.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/05/27/world/europe/iran-internet.html
 **A MAGA Victory in Texas, and the Trump Administration’s New Ebola Plan**\
 `Plus, Iran begins lifting an internet blackout.`\
 https://www.nytimes.com/2026/05/27/podcasts/the-headlines/texas-election-ebola-plan.html
-
-**The Whiplash Over a Possible Peace Deal With Iran**\
-`President Trump is hailing an agreement with Iran as groundbreaking, but the nuclear stockpile, enrichment and missiles have not been discussed.`\
-https://www.nytimes.com/2026/05/27/podcasts/the-daily/peace-deal-iran.html
 
