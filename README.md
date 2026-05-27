@@ -1,3 +1,7 @@
+**Trump Says He Feels No Political Pressure to Make an Iran Deal**\
+`President Trump held out hope for a peace agreement, but said high oil prices would not force his hand,`\
+https://www.nytimes.com/2026/05/27/world/middleeast/trump-iran-peace-talks.html
+
 **Los asistentes de los famosos están para complacer a sus jefes, pero ¿cuál es el límite?**\
 `El asistente de Matthew Perry le inyectó la ketamina que lo mató. Su sentencia ha hecho que algunos en esta exigente profesión reflexionen sobre esta dinámica de poder.`\
 https://www.nytimes.com/es/2026/05/27/espanol/cultura/matthew-perry-asistente.html
@@ -6,7 +10,7 @@ https://www.nytimes.com/es/2026/05/27/espanol/cultura/matthew-perry-asistente.ht
 `These children have a lot of thoughts about Angine de Poitrine’s song “Sarniezz (Live on KEXP),” which has been receiving loads of attention on TikTok. Is it disturbing? Creative? Nonsensical? They discuss it all with our critic, Jon Caramanica, on this special edition of Song of the Week.`\
 https://www.nytimes.com/video/podcasts/100000010929288/kids-review-sarniezz-by-angine-de-poitrine.html
 
-**In Cornyn’s Enormous Loss, Proof of Trump’s Hold Over G.O.P. Base**\
+**Cornyn’s Defeat in Texas Runoff Underscores Trump's Grip on the G.O.P.**\
 `Senator John Cornyn lost to his MAGA-aligned challenger, Ken Paxton, by 28 percentage points. It was a historically poor showing.`\
 https://www.nytimes.com/2026/05/27/us/politics/paxton-cornyn-texas-republican-primary.html
 
@@ -50,7 +54,7 @@ https://www.nytimes.com/2026/05/27/briefing/the-good-list-nelkin-aggression-cook
 `Prime Minister Mark Carney chose a Saab surveillance and control plane after vowing to reduce military spending with the United States.`\
 https://www.nytimes.com/2026/05/27/world/canada/carney-canada-military-spending-saab-air-force.html
 
-**Matthew Perry’s Personal Assistant, Kenneth Iwamasa, Sentenced to More Than 3 Years in Prison**\
+**Matthew Perry’s Assistant, Kenneth Iwamasa, Sentenced to More Than 3 Years in Prison**\
 `Kenneth Iwamasa injected Mr. Perry with the ketamine that killed him. He is the last of five defendants to be sentenced in the case.`\
 https://www.nytimes.com/2026/05/27/arts/matthew-perry-personal-assistant-ketamine.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/27/science/fish-sleep-a-lot-like-us-they-even-na
 **Blake Lively’s Last Chance: A U.S. Judge’s Take on an Untested State Law**\
 `After the settlement with Justin Baldoni’s company, one potentially thorny legal issue remains: whether she is due damages under a new California law.`\
 https://www.nytimes.com/2026/05/27/arts/television/blake-lively-justin-baldoni-defamation.html
-
-**A 15-Minute Beginner Jump Rope Workout**\
-`Skipping rope isn’t just for kids. Try this routine to get started.`\
-https://www.nytimes.com/2026/05/27/well/move/beginner-jump-rope-workout.html
 
