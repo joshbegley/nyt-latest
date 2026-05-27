@@ -1,3 +1,7 @@
+**Oil Prices Fall as Uneasy Truce Holds Between U.S. and Iran**\
+`Traders are weighing signals that a more lasting agreement may be within reach against recent flare-ups in hostilities.`\
+https://www.nytimes.com/2026/05/27/business/oil-gas-price-iran.html
+
 **Iranians Emerge From a ‘Black Hole’ as Internet Shutdown Eases**\
 `After three months, the government is letting people connect with the world again. But not everyone has access, and those who do wonder how long it will last.`\
 https://www.nytimes.com/2026/05/27/world/europe/iran-internet.html
