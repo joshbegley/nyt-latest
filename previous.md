@@ -1,3 +1,7 @@
+**U.F.C. Arena Takes Shape on White House Lawn**\
+`Construction for the Ultimate Fighting Championship arena continues on the South Lawn of The White House ahead of the June 14th fight planned for President Trump’s 80th birthday.`\
+https://www.nytimes.com/video/us/politics/100000010928330/ufc-white-house-trump.html
+
 **The Return of the Apprentice**\
 `Why more young people are considering careers in the trades.`\
 https://www.nytimes.com/2026/05/27/headway/young-americans-apprentice-labor-economy.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/05/27/business/dealbook/ai-chips-war-samsung-micron
 **Margot Wellington, Who Helped Save Grand Central Terminal, Dies at 91**\
 `As the director of the Municipal Art Society, she led the fight to rescue countless New York City landmarks from the wrecking ball.`\
 https://www.nytimes.com/2026/05/27/nyregion/margot-wellington-dead.html
-
-**War. Heat. Cigarettes.**\
-`Updates on stories from around the world.`\
-https://www.nytimes.com/2026/05/27/briefing/war-heat-cigarettes.html
 
