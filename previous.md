@@ -1,3 +1,31 @@
+**A MAGA Victory in Texas, and the Trump Administration’s New Ebola Plan**\
+`Plus, Iran begins lifting an internet blackout.`\
+https://www.nytimes.com/2026/05/27/podcasts/the-headlines/texas-election-ebola-plan.html
+
+**The Whiplash Over a Possible Peace Deal With Iran**\
+`President Trump is hailing an agreement with Iran as groundbreaking, but the nuclear stockpile, enrichment and missiles have not been discussed.`\
+https://www.nytimes.com/2026/05/27/podcasts/the-daily/peace-deal-iran.html
+
+**NYT Connections Answers for May 28, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, May 28, 2026.`\
+https://www.nytimes.com/2026/05/27/crosswords/connections-companion-1082.html
+
+**NYT Strands Hints for May 28, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, May 28, 2026.`\
+https://www.nytimes.com/2026/05/27/crosswords/strands-sidekick-816.html
+
+**Today’s Wordle Hints for May 28, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, May 28, 2026.`\
+https://www.nytimes.com/2026/05/27/crosswords/wordle-review-1804.html
+
+**Samsung Unions Approve A.I. Profit-Sharing Deal as Infighting Escalates**\
+`The agreement all but guarantees hefty bonuses for employees in the top-performing chip unit. Other workers say they feel left out.`\
+https://www.nytimes.com/2026/05/27/world/asia/samsung-ai-profit-bonus-workers.html
+
+**Iran War Live Updates: Fighting Flares in Lebanon, Complicating U.S.-Iran Peace Talks**\
+`Israeli strikes killed at least 31 people in Lebanon on Tuesday, the country’s health ministry said, as Israel intensified attacks against Hezbollah. The fighting cast further doubt on fragile negotiations to end the U.S.-Israeli war with Iran.`\
+https://www.nytimes.com/live/2026/05/27/world/iran-war-trump-deal
+
 **Santiago Rivera inventó la tarta de queso vasca, pero prefiere el chocolate**\
 `A Santiago Rivera se le atribuye la creación del pastel de queso “quemado” en la década de 1980, aunque no le gustan los derivados que ha engendrado. Décadas después, se prepara para ceder su cocina a sus hijos.`\
 https://www.nytimes.com/es/2026/05/27/espanol/mundo/santiago-rivera-tarta-queso-vasca.html
@@ -169,32 +197,4 @@ https://www.nytimes.com/es/2026/05/27/espanol/ciencia-y-tecnologia/medusas-picad
 **El Centro Kennedy se queda en silencio**\
 `Las cancelaciones por motivos políticos y un cierre previsto para renovar el edificio han golpeado a la orquesta del Centro Kennedy, cuyos miembros no han recibido un salario completo en meses.`\
 https://www.nytimes.com/es/2026/05/27/espanol/cultura/centro-kennedy-trabajadores-musicos.html
-
-**Las guerras en Ucrania e Irán son más parecidas de lo que crees**\
-`Las incursiones de Rusia en Ucrania, y las operaciones de Israel y EE. UU. en Irán proporcionan lecciones sobre la evolución de la guerra moderna.`\
-https://www.nytimes.com/es/2026/05/27/espanol/mundo/guerra-ucrania-iran-rusia.html
-
-**The Battle Over Trump’s Immigration Crackdown Comes to a Newark ICE Facility Parking Lot**\
-`For five days, activists have gathered outside a detention center in New Jersey to denounce conditions inside. Federal officials have rejected those concerns.`\
-https://www.nytimes.com/2026/05/27/nyregion/delaney-hall-nj-detention-center-protests.html
-
-**For Years, Democrats Refused to Primary Him. This Year Is Different.**\
-`Thomas DiNapoli, the state comptroller in New York since 2007, now faces his first primary challenge, as two Democrats hope to capitalize on anti-incumbent fervor.`\
-https://www.nytimes.com/2026/05/27/nyregion/ny-comptroller-dinapoli-primary-challenge.html
-
-**NYT Spelling Bee Answers for May 27, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/05/27/crosswords/spelling-bee-forum.html
-
-**Palabra del día en inglés: ‘shibboleth’**\
-`Esta palabra ha aparecido en 4 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
-https://www.nytimes.com/es/2026/05/27/espanol/que-significa-shibboleth.html
-
-**El silencio ante la violación de palestinos**\
-`Hombres y mujeres palestinos describen abusos sexuales brutales a manos de guardias de prisiones, soldados, colonos e interrogadores israelíes.`\
-https://www.nytimes.com/es/2026/05/27/espanol/opinion/abuso-sexual-palestinos-israel.html
-
-**Word of the Day: shibboleth**\
-`This word has appeared in 4 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/05/27/learning/word-of-the-day-shibboleth.html
 

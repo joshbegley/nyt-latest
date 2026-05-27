@@ -1,3 +1,31 @@
+**A MAGA Victory in Texas, and the Trump Administration’s New Ebola Plan**\
+`Plus, Iran begins lifting an internet blackout.`\
+https://www.nytimes.com/2026/05/27/podcasts/the-headlines/texas-election-ebola-plan.html
+
+**The Whiplash Over a Possible Peace Deal With Iran**\
+`President Trump is hailing an agreement with Iran as groundbreaking, but the nuclear stockpile, enrichment and missiles have not been discussed.`\
+https://www.nytimes.com/2026/05/27/podcasts/the-daily/peace-deal-iran.html
+
+**NYT Connections Answers for May 28, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, May 28, 2026.`\
+https://www.nytimes.com/2026/05/27/crosswords/connections-companion-1082.html
+
+**NYT Strands Hints for May 28, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, May 28, 2026.`\
+https://www.nytimes.com/2026/05/27/crosswords/strands-sidekick-816.html
+
+**Today’s Wordle Hints for May 28, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, May 28, 2026.`\
+https://www.nytimes.com/2026/05/27/crosswords/wordle-review-1804.html
+
+**Samsung Unions Approve A.I. Profit-Sharing Deal as Infighting Escalates**\
+`The agreement all but guarantees hefty bonuses for employees in the top-performing chip unit. Other workers say they feel left out.`\
+https://www.nytimes.com/2026/05/27/world/asia/samsung-ai-profit-bonus-workers.html
+
+**Iran War Live Updates: Fighting Flares in Lebanon, Complicating U.S.-Iran Peace Talks**\
+`Israeli strikes killed at least 31 people in Lebanon on Tuesday, the country’s health ministry said, as Israel intensified attacks against Hezbollah. The fighting cast further doubt on fragile negotiations to end the U.S.-Israeli war with Iran.`\
+https://www.nytimes.com/live/2026/05/27/world/iran-war-trump-deal
+
 **A Blue Texas May Be More Than a Dream for Democrats**\
 `Ken Paxton’s victory for the Republican nomination and a big shift among Hispanic voters have put a Senate seat within reach.`\
 https://www.nytimes.com/2026/05/27/upshot/paxton-talarico-texas-polling.html
