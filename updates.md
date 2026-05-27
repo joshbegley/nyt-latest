@@ -1,3 +1,7 @@
+**Palabra del día en inglés: ‘shibboleth’**\
+`Esta palabra ha aparecido en 4 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/05/27/espanol/que-significa-shibboleth.html
+
 **El silencio ante la violación de palestinos**\
 `Hombres y mujeres palestinos describen abusos sexuales brutales a manos de guardias de prisiones, soldados, colonos e interrogadores israelíes.`\
 https://www.nytimes.com/es/2026/05/27/espanol/opinion/abuso-sexual-palestinos-israel.html
