@@ -90,8 +90,8 @@ https://www.nytimes.com/2026/05/27/crosswords/wordle-review-1804.html
 `The agreement all but guarantees hefty bonuses for employees in the top-performing chip unit. Other workers say they feel left out.`\
 https://www.nytimes.com/2026/05/27/world/asia/samsung-ai-profit-bonus-workers.html
 
-**Iran War Live Updates: Fighting Flares in Lebanon, Complicating U.S.-Iran Peace Talks**\
-`Israeli strikes pounded southern Lebanon as the country’s attacks against Hezbollah intensified. The fighting cast further doubt on fragile negotiations to end the U.S.-Israeli war with Iran.`\
+**Iran War Live Updates: Iranian State Media Outlines ‘Initial, Unofficial’ Deal to Reopen Strait of Hormuz**\
+`The draft agreement says Iran would have control of the waterway in cooperation with Oman and requires the U.S. to lift its naval blockade. The U.S. did not immediately comment.`\
 https://www.nytimes.com/live/2026/05/27/world/iran-war-trump-deal
 
 **Santiago Rivera inventó la tarta de queso vasca, pero prefiere el chocolate**\
@@ -180,7 +180,7 @@ https://www.nytimes.com/2026/05/27/travel/explora-journeys-wellness-cruise.html
 
 **The Two Issues That Could Swing This District**\
 `Two national controversies — A.I. data centers and ICE detention centers — are converging in one swing congressional district. Our Southwest reporter Reis Thebault visits the town of Marana, Ariz., where some people are angry about both potential projects.`\
-https://www.nytimes.com/video/us/100000010903992/the-two-issues-that-could-swing-this-district.html
+https://www.nytimes.com/video/us/100000010903992/ai-data-center-ice-detention-center-arizona.html
 
 **Russ Hodge Dies at 86; an Olympian, Like His Mother**\
 `Nicknamed Russell the Muscle, he finished ninth in the decathlon at the 1964 Games. His mother, Alice Arden, placed the same as a high jumper in 1936.`\

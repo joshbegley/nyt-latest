@@ -1,3 +1,11 @@
+**Iran War Live Updates: Iranian State Media Outlines ‘Initial, Unofficial’ Deal to Reopen Strait of Hormuz**\
+`The draft agreement says Iran would have control of the waterway in cooperation with Oman and requires the U.S. to lift its naval blockade. The U.S. did not immediately comment.`\
+https://www.nytimes.com/live/2026/05/27/world/iran-war-trump-deal
+
+**The Two Issues That Could Swing This District**\
+`Two national controversies — A.I. data centers and ICE detention centers — are converging in one swing congressional district. Our Southwest reporter Reis Thebault visits the town of Marana, Ariz., where some people are angry about both potential projects.`\
+https://www.nytimes.com/video/us/100000010903992/ai-data-center-ice-detention-center-arizona.html
+
 **Ferrari’s First Electric Car Runs Into Backlash in Italy and Beyond**\
 `Memes mocked the new model, analysts questioned its appeal and investors sold the automaker’s stock. A former Ferrari chairman warned of “the destruction of a legend.”`\
 https://www.nytimes.com/2026/05/27/business/ferrari-luce-electric-ev-backlash.html
