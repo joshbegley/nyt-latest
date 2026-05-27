@@ -1,3 +1,15 @@
+**Chemical Tank Cools, But 16,000 in Garden Grove Can’t Go Home Yet**\
+`The risk of an explosion or spill has fallen, the authorities said, but residents closest to the plant cannot yet return. Some have begun to ask who should be held accountable.`\
+https://www.nytimes.com/2026/05/26/us/chemical-tank-orange-county-california.html
+
+**As Republicans Battled in the Runoff, Talarico Sought to Unify Democrats**\
+`James Talarico, the Democratic nominee for U.S. Senate, has been raising money and looking to unite his party for the general election.`\
+https://www.nytimes.com/2026/05/26/us/politics/talarico-texas-democrats.html
+
+**Texas Election Live Updates: Paxton Builds Lead Over Cornyn in Early Returns**\
+`Ken Paxton, the Texas attorney general, was endorsed by President Trump over John Cornyn, a four-term Republican senator. The winner will face the Democratic nominee, James Talarico, in a race with national implications.`\
+https://www.nytimes.com/live/2026/05/26/us/texas-primary-runoff-elections
+
 **When to Expect Results in the Texas Primary Runoff**\
 `Unofficial results will start coming in after polls close at 7 p.m. local time. They will be posted on the state’s voter portal.`\
 https://www.nytimes.com/2026/05/26/us/politics/texas-primary-runoff-results-timing.html
