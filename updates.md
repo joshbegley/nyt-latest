@@ -1,3 +1,7 @@
+**Iran War Live Updates: As Talks Drag On, Trump Says ‘I Don’t Care’ About Midterms Pressure**\
+`President Trump said U.S. politics would not affect his strategy in the unpopular war and was open to protracted peace talks. He also insisted that Iran would not control the Strait of Hormuz.`\
+https://www.nytimes.com/live/2026/05/27/world/iran-war-trump-deal
+
 **Trump Says He Feels No Political Pressure to Make an Iran Deal**\
 `President Trump held out hope for a peace agreement, but said high oil prices would not force his hand,`\
 https://www.nytimes.com/2026/05/27/world/middleeast/trump-iran-peace-talks.html

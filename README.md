@@ -1,3 +1,15 @@
+**Why Ghana Is Evacuating Hundreds of Its Citizens From South Africa**\
+`Anti-immigrant protests have increased across South Africa, drawing forceful condemnation from several African leaders.`\
+https://www.nytimes.com/2026/05/27/world/africa/south-africa-ghana-immigration-protests.html
+
+**La policía escolar de Texas roció con gas pimienta, golpeó y dio descargas eléctricas a varios alumnos**\
+`La presencia de agentes en las escuelas de Texas ha aumentado como medida para prevenir tiroteos. Sin embargo, una investigación reciente del Times demuestra que recurren a tácticas de mano dura con los niños.`\
+https://www.nytimes.com/interactive/2026/05/27/espanol/estados-unidos/texas-escuelas-agentes-policia-estudiantes-uvalde.html
+
+**Texas School Police Pepper-Sprayed, Tackled and Tasered Students**\
+`School officers across the state turned to heavy-handed tactics on children, often in response to minor misbehavior, our investigation shows.`\
+https://www.nytimes.com/interactive/2026/05/27/us/texas-schools-police-force-students-uvalde.html
+
 **Trump Says He Feels No Political Pressure to Make an Iran Deal**\
 `President Trump held out hope for a peace agreement, but said high oil prices would not force his hand,`\
 https://www.nytimes.com/2026/05/27/world/middleeast/trump-iran-peace-talks.html
@@ -38,7 +50,7 @@ https://www.nytimes.com/es/2026/05/27/espanol/mundo/canada-alemania-gas.html
 `Silicon Valley is about to get a lot more liquid. What will it spend its money on?`\
 https://www.nytimes.com/2026/05/27/opinion/ai-philanthropy-charity.html
 
-**Judge Dismisses 2 Indictments in FIFA Bribery Case**\
+**Bribery Indictments Are Dismissed in Case That Shook Soccer World**\
 `The decision marked an end to a significant part of a broader corruption investigation that rocked the soccer world more than a decade ago.`\
 https://www.nytimes.com/2026/05/27/nyregion/fifa-indictments-soccer-dismissed.html
 
@@ -181,18 +193,6 @@ https://www.nytimes.com/2026/05/27/business/media/cbs-sharyn-alfonsi-bari-weiss.
 **Uganda Closes Border With Congo as Ebola Fears Rise**\
 `Seven confirmed cases of the virus have already been reported in Kampala, the capital, but officials say the country has robust disease surveillance.`\
 https://www.nytimes.com/2026/05/27/world/africa/ebola-congo-uganda.html
-
-**Bo French, Anti-Muslim Candidate, Wins G.O.P. Runoff for Texas Oil Job**\
-`Bo French’s runoff victory gave Democrats fresh hope that they could compete for a seat regulating the state’s powerful oil and gas industry.`\
-https://www.nytimes.com/2026/05/27/us/politics/bo-french-texas-rail-commissioner.html
-
-**A Lightning-Fast Stir-Fry to Ease the Short Workweek**\
-`And more salves for the post-holiday slump, like sardine pasta and spicy shrimp salad.`\
-https://www.nytimes.com/2026/05/27/dining/a-lightning-fast-stir-fry-to-ease-the-short-workweek.html
-
-**Fish Sleep a Lot Like Us. (They Even Nap.)**\
-`By tracking eye movements in zebrafish, researchers identified four different types of sleep, analogous to the complex sleep patterns of humans and other animals.`\
-https://www.nytimes.com/2026/05/27/science/fish-sleep-a-lot-like-us-they-even-nap.html
 
 **Iran War Live Updates: As Talks Drag On, Trump Says ‘I Don’t Care’ About Midterms Pressure**\
 `President Trump said U.S. politics would not affect his strategy in the unpopular war and was open to protracted peace talks. He also insisted that Iran would not control the Strait of Hormuz.`\

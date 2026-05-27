@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/05/27/dining/a-lightning-fast-stir-fry-to-ease-the-
 `By tracking eye movements in zebrafish, researchers identified four different types of sleep, analogous to the complex sleep patterns of humans and other animals.`\
 https://www.nytimes.com/2026/05/27/science/fish-sleep-a-lot-like-us-they-even-nap.html
 
-**Blake Lively’s Last Chance: A U.S. Judge’s Take on an Untested State Law**\
-`After the settlement with Justin Baldoni’s company, one potentially thorny legal issue remains: whether she is due damages under a new California law.`\
-https://www.nytimes.com/2026/05/27/arts/television/blake-lively-justin-baldoni-defamation.html
+**Iran War Live Updates: As Talks Drag On, Trump Says ‘I Don’t Care’ About Midterms Pressure**\
+`President Trump said U.S. politics would not affect his strategy in the unpopular war and was open to protracted peace talks. He also insisted that Iran would not control the Strait of Hormuz.`\
+https://www.nytimes.com/live/2026/05/27/world/iran-war-trump-deal
 
