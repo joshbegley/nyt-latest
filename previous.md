@@ -1,4 +1,12 @@
-**Christian Menefee Defeats Al Green in Houston-Area House Seat**\
+**5 Things to Know About Ken Paxton, Republican Senate Hopeful in Texas**\
+`With the support of President Trump, Mr. Paxton is trying to unseat Senator John Cornyn in a high-profile Republican runoff.`\
+https://www.nytimes.com/2026/05/26/us/politics/ken-paxton-republican-senate-candidate.html
+
+**5 Things to Know About John Cornyn, Republican Senate Hopeful in Texas**\
+`He is fighting for political survival against a primary challenger backed by President Trump.`\
+https://www.nytimes.com/2026/05/26/us/politics/john-cornyn-republican-senate-candidate.html
+
+**Christian Menefee Defeats Al Green in Texas Democratic House Runoff**\
 `The showdown, manufactured by a Republican gerrymander, created one of many generational clashes consuming Democrats this cycle.`\
 https://www.nytimes.com/2026/05/26/us/politics/texas-democratic-primary-menefee-green.html
 
@@ -181,14 +189,6 @@ https://www.nytimes.com/video/sports/basketball/100000010926060/thousands-of-kni
 **Canada Strikes Landmark Deal to Export Liquefied Natural Gas to Germany**\
 `The agreement is important for both nations, as Canada seeks new markets away from the United States and Germany tries to diversify its energy supply.`\
 https://www.nytimes.com/2026/05/26/world/canada/canada-germany-natural-gas-lng.html
-
-**Weeklong Effort to Rescue 7 People From Flooded Cave Continues**\
-`Seven people have been trapped in a cave since last Wednesday in Laos, when heavy rain triggered flooding that blocked the cave entrance with gravel and dirt.`\
-https://www.nytimes.com/video/world/asia/100000010925670/laos-cave-rescue-divers.html
-
-**Israel intensifica la ofensiva en Líbano cuando EE. UU. busca un acuerdo con Irán**\
-`Hizbulá, el grupo con respaldo iraní también mantiene los ataques con cohetes y drones a soldados israelíes. La escalada complicaría los esfuerzos diplomáticos.`\
-https://www.nytimes.com/es/2026/05/26/espanol/mundo/israel-ataques-libano-hizbula.html
 
 **Texas Election Live Updates: Paxton Builds Lead Over Cornyn in Senate Runoff**\
 `Ken Paxton, the Texas attorney general, was endorsed by President Trump over John Cornyn, a four-term Republican senator. Representative Christian Menefee won a Democratic primary pitting two incumbents against each other.`\

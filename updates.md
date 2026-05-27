@@ -1,3 +1,15 @@
+**5 Things to Know About Ken Paxton, Republican Senate Hopeful in Texas**\
+`With the support of President Trump, Mr. Paxton is trying to unseat Senator John Cornyn in a high-profile Republican runoff.`\
+https://www.nytimes.com/2026/05/26/us/politics/ken-paxton-republican-senate-candidate.html
+
+**5 Things to Know About John Cornyn, Republican Senate Hopeful in Texas**\
+`He is fighting for political survival against a primary challenger backed by President Trump.`\
+https://www.nytimes.com/2026/05/26/us/politics/john-cornyn-republican-senate-candidate.html
+
+**Christian Menefee Defeats Al Green in Texas Democratic House Runoff**\
+`The showdown, manufactured by a Republican gerrymander, created one of many generational clashes consuming Democrats this cycle.`\
+https://www.nytimes.com/2026/05/26/us/politics/texas-democratic-primary-menefee-green.html
+
 **Christian Menefee Defeats Al Green in Houston-Area House Seat**\
 `The showdown, manufactured by a Republican gerrymander, created one of many generational clashes consuming Democrats this cycle.`\
 https://www.nytimes.com/2026/05/26/us/politics/texas-democratic-primary-menefee-green.html
