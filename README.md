@@ -1,4 +1,4 @@
-**A.I. Money From I.P.O.s Are About to Change Philanthropy**\
+**A.I. Money From I.P.O.s Will Change Philanthropy**\
 `Silicon Valley is about to get a lot more liquid. What will it spend its money on?`\
 https://www.nytimes.com/2026/05/27/opinion/ai-philanthropy-charity.html
 
