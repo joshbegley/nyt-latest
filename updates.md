@@ -1,3 +1,11 @@
+**Five People Stuck in Flooded Laos Cave Are Found Alive**\
+`The five men, stranded while looking for gold, were found alive after a week in a narrow, muddy chamber. Two people remain missing.`\
+https://www.nytimes.com/2026/05/27/world/asia/five-rescued-laos-cave.html
+
+**Rescuers Reach Five Miners Trapped in Laos Cave**\
+`Rescuers on Wednesday reached five of the seven miners trapped in a flooded cave in Laos. The search is still ongoing for two missing miners.`\
+https://www.nytimes.com/video/world/asia/100000010928052/laos-cave-flooding-rescue.html
+
 **Iran War Live Updates: Iranian State Media Outlines ‘Initial, Unofficial’ Deal to Reopen Strait of Hormuz**\
 `The draft agreement says Iran would have control of the waterway in cooperation with Oman and requires the U.S. to lift its naval blockade. The U.S. did not immediately comment.`\
 https://www.nytimes.com/live/2026/05/27/world/iran-war-trump-deal

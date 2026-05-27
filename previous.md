@@ -1,3 +1,11 @@
+**Five People Stuck in Flooded Laos Cave Are Found Alive**\
+`The five men, stranded while looking for gold, were found alive after a week in a narrow, muddy chamber. Two people remain missing.`\
+https://www.nytimes.com/2026/05/27/world/asia/five-rescued-laos-cave.html
+
+**Rescuers Reach Five Miners Trapped in Laos Cave**\
+`Rescuers on Wednesday reached five of the seven miners trapped in a flooded cave in Laos. The search is still ongoing for two missing miners.`\
+https://www.nytimes.com/video/world/asia/100000010928052/laos-cave-flooding-rescue.html
+
 **Ferrari’s First Electric Car Runs Into Backlash in Italy and Beyond**\
 `Memes mocked the new model, analysts questioned its appeal and investors sold the automaker’s stock. A former Ferrari chairman warned of “the destruction of a legend.”`\
 https://www.nytimes.com/2026/05/27/business/ferrari-luce-electric-ev-backlash.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/video/us/100000010903992/ai-data-center-ice-detention-ce
 **Russ Hodge Dies at 86; an Olympian, Like His Mother**\
 `Nicknamed Russell the Muscle, he finished ninth in the decathlon at the 1964 Games. His mother, Alice Arden, placed the same as a high jumper in 1936.`\
 https://www.nytimes.com/2026/05/27/sports/russ-hodge-dead.html
-
-**Two of America’s Thorniest Political Issues Are Dividing an Arizona Town**\
-`Marana, Ariz., is used to placid local politics, but the town, in a congressional swing district held by Juan Ciscomani, has been convulsed by two national issues, A.I. and immigration detention.`\
-https://www.nytimes.com/2026/05/27/us/politics/marana-arizona-data-center-ice-detention.html
-
-**Book Review: ‘Stalin’s Apostles,’ by Antonia Senior**\
-`A new book by Antonia Senior chronicles the careers of five men who betrayed their country — with devastating results.`\
-https://www.nytimes.com/2026/05/27/books/review/stalins-apostles-antonia-senior.html
 
