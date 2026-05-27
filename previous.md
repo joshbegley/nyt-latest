@@ -1,3 +1,19 @@
+**Los científicos descartaron un escenario climático alarmante. ¿Y ahora qué?**\
+`Un equipo internacional de investigadores publicó una revisión de los escenarios de emisiones empleados para estudiar el calentamiento global. Esto provocó un intenso debate público.`\
+https://www.nytimes.com/es/2026/05/27/espanol/tiempo-y-clima/cambio-climatico-efectos.html
+
+**¿Qué hacer si tienes una picadura de medusa? Orinar sobre ella quizá no sea la respuesta**\
+`Abundan los mitos y conceptos erróneos sobre las medusas. Aquí te explicamos cómo mantenerte a salvo esta temporada de playa cerca de estas maravillas gelatinosas.`\
+https://www.nytimes.com/es/2026/05/27/espanol/ciencia-y-tecnologia/medusas-picadura-orinar-tratamiento.html
+
+**El Centro Kennedy se queda en silencio**\
+`Las cancelaciones por motivos políticos y un cierre previsto para renovar el edificio han golpeado a la orquesta del Centro Kennedy, cuyos miembros no han recibido un salario completo en meses.`\
+https://www.nytimes.com/es/2026/05/27/espanol/cultura/centro-kennedy-trabajadores-musicos.html
+
+**Las guerras en Ucrania e Irán son más parecidas de lo que crees**\
+`Las incursiones de Rusia en Ucrania, y las operaciones de Israel y EE. UU. en Irán proporcionan lecciones sobre la evolución de la guerra moderna.`\
+https://www.nytimes.com/es/2026/05/27/espanol/mundo/guerra-ucrania-iran-rusia.html
+
 **The Battle Over Trump’s Immigration Crackdown Comes to a Newark ICE Facility Parking Lot**\
 `For five days, activists have gathered outside a detention center in New Jersey to denounce conditions inside. Federal officials have rejected those concerns.`\
 https://www.nytimes.com/2026/05/27/nyregion/delaney-hall-nj-detention-center-protests.html
@@ -34,13 +50,13 @@ https://www.nytimes.com/2026/05/27/opinion/lebanon-israel-hezbollah-cease-fire.h
 `El evento de la Ultimate Fighting Championship está previsto para el 14 de junio, día del cumpleaños 80 del presidente Trump.`\
 https://www.nytimes.com/es/2026/05/27/espanol/estados-unidos/pelea-ufc-casa-blanca-trump.html
 
-**Nigel Farage’s Far-Right Party Is Now Central to British Politics**\
-`Nigel Farage’s anti-immigrant, populist agenda has helped his party, Reform U.K., emerge from the fringe of politics in Britain. But it faces an uphill climb to win power.`\
-https://www.nytimes.com/2026/05/27/world/europe/britain-reform-party-farage.html
-
 **Cubans Deported to Mexico Live a Precarious Existence, Report Finds**\
 `A Human Rights Watch report found that many Cubans deported to Mexico by the Trump administration are living in an “indefinite legal limbo” and struggling to get by.`\
 https://www.nytimes.com/2026/05/27/us/cuba-deport-mexico.html
+
+**Nigel Farage’s Far-Right Party Is Now Central to British Politics**\
+`Nigel Farage’s anti-immigrant, populist agenda has helped his party, Reform U.K., emerge from the fringe of politics in Britain. But it faces an uphill climb to win power.`\
+https://www.nytimes.com/2026/05/27/world/europe/britain-reform-party-farage.html
 
 **Where Time Is Always 15 Minutes Apart From Everywhere Else**\
 `In Nepal, a nation wedged between India and China, a unique time zone is just one expression of a singular national identity.`\
@@ -181,20 +197,4 @@ https://www.nytimes.com/video/movies/100000010860400/alissa-reviews-cannes.html
 **A Fiery Visitor From Space Photo-Bombs an Erupting Volcano**\
 `For a split second, a fireball outshone the rivers of molten lava flowing from the Philippines’ most active volcano.`\
 https://www.nytimes.com/2026/05/26/science/volcano-eruption-fireball-philippines.html
-
-**The 10 Best Men’s Swim Trunks for Summer**\
-`Whether you’re paddling or lounging, these are the bathing suits you’ll need this summer.`\
-https://www.nytimes.com/2026/05/26/t-magazine/mens-swim-trunks.html
-
-**Trump Administration to Send Americans Exposed to Ebola to Kenya**\
-`In past outbreaks, Americans exposed to the virus were sent home to be treated in state-of-the-art facilities. The Trump administration has already flown some U.S. citizens to Europe for treatment.`\
-https://www.nytimes.com/2026/05/26/us/politics/trump-ebola-kenya.html
-
-**NASA’s Moon Base Plan Adds Two Rovers for Its Astronauts**\
-`The contracts, announced on Tuesday, are part of the space agency’s efforts to establish a moon base.`\
-https://www.nytimes.com/2026/05/26/science/space/nasa-rovers-moon-base-contracts.html
-
-**¿Qué busca el papa León con sus esfuerzos en materia de IA? Mira a quién le da la mano**\
-`Christopher Olah, pionero de la inteligencia artificial y cofundador de la empresa Anthropic, asistió a la presentación. Su invitación simbolizó un intento de ampliar la influencia de León.`\
-https://www.nytimes.com/es/2026/05/26/espanol/estados-unidos/papa-enciclica-inteligencia-artificial.html
 

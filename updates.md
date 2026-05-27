@@ -1,3 +1,19 @@
+**Los científicos descartaron un escenario climático alarmante. ¿Y ahora qué?**\
+`Un equipo internacional de investigadores publicó una revisión de los escenarios de emisiones empleados para estudiar el calentamiento global. Esto provocó un intenso debate público.`\
+https://www.nytimes.com/es/2026/05/27/espanol/tiempo-y-clima/cambio-climatico-efectos.html
+
+**¿Qué hacer si tienes una picadura de medusa? Orinar sobre ella quizá no sea la respuesta**\
+`Abundan los mitos y conceptos erróneos sobre las medusas. Aquí te explicamos cómo mantenerte a salvo esta temporada de playa cerca de estas maravillas gelatinosas.`\
+https://www.nytimes.com/es/2026/05/27/espanol/ciencia-y-tecnologia/medusas-picadura-orinar-tratamiento.html
+
+**El Centro Kennedy se queda en silencio**\
+`Las cancelaciones por motivos políticos y un cierre previsto para renovar el edificio han golpeado a la orquesta del Centro Kennedy, cuyos miembros no han recibido un salario completo en meses.`\
+https://www.nytimes.com/es/2026/05/27/espanol/cultura/centro-kennedy-trabajadores-musicos.html
+
+**Las guerras en Ucrania e Irán son más parecidas de lo que crees**\
+`Las incursiones de Rusia en Ucrania, y las operaciones de Israel y EE. UU. en Irán proporcionan lecciones sobre la evolución de la guerra moderna.`\
+https://www.nytimes.com/es/2026/05/27/espanol/mundo/guerra-ucrania-iran-rusia.html
+
 **Nigel Farage’s Far-Right Party Is Now Central to British Politics**\
 `Nigel Farage’s anti-immigrant, populist agenda has helped his party, Reform U.K., emerge from the fringe of politics in Britain. But it faces an uphill climb to win power.`\
 https://www.nytimes.com/2026/05/27/world/europe/britain-reform-party-farage.html
