@@ -1,3 +1,15 @@
+**The Viruses Causing New Outbreaks Are Much Less Familiar to Science**\
+`The types of Ebola and hantavirus panicking officials are very different from the species identified decades ago, raising new questions about how to respond.`\
+https://www.nytimes.com/2026/05/27/science/ebola-hantavirus-species-strains.html
+
+**My Starring Role in ‘Heated Rivalry’ — for One Night Only**\
+`The unauthorized musical parody of the hit TV show gives the role of Scott Hunter to an unsuspecting audience member — and one recent night that was me.`\
+https://www.nytimes.com/2026/05/27/theater/heated-rivalry-parody-theater-off-broadway.html
+
+**After 88 Days of Censored News, TV and Chat, Iranians Are Coming Back Online**\
+`The government is letting people connect with the world after a near-total internet shutdown. But not everyone has access, and those who do wonder how long it will last.`\
+https://www.nytimes.com/2026/05/27/world/europe/iran-internet.html
+
 **Heat wave hits Canada’s prairies, with warnings in Alberta, Saskatchewan and Manitoba**\
 `Canada’s first big heat wave of the year was expected to bring prolonged warm weather to southern Alberta, Saskatchewan and Manitoba.`\
 https://www.nytimes.com/2026/05/27/weather/canada-heat-warnings.html
