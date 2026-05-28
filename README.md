@@ -1,3 +1,7 @@
+**Shrimp and White Beans, but on Vacation**\
+`Garlicky shrimp with summer squash and beans puts a seasonal twist on a classic, can’t-miss combination.`\
+https://www.nytimes.com/2026/05/28/dining/shrimp-and-white-beans-but-on-vacation.html
+
 **Michigan Governor Gretchen Whitmer Will Not Run for President in 2028**\
 `Ms. Whitmer had been viewed as part of a field of possible Democratic candidates. She has been governor for two terms, and is barred from running again.`\
 https://www.nytimes.com/2026/05/28/us/gretchen-whitmer-rules-out-2028.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/05/28/arts/design/art-desert-housing-coyote-new-mex
 **‘Pressure’ Review: The Weather of War**\
 `Amid the chaos of World War II, this dull film centers on dueling weather reports in the period leading up to D-Day.`\
 https://www.nytimes.com/2026/05/28/movies/pressure-review.html
-
-**In Argentina, U.S. Tech Billionaire Peter Thiel Finds An Escape**\
-`The billionaire’s new roots in Argentina are said to be partly motivated by concerns about the future of the United States and shared beliefs with Argentina’s right-wing leader.`\
-https://www.nytimes.com/2026/05/28/world/americas/peter-thiel-argentina.html
 
 **Journey to the Melting Continent**\
 `The New York Times went on an expedition to study Antarctica’s fastest-thinning glaciers.`\
