@@ -1,3 +1,7 @@
+**Treasury Prepares to Make Trump the Face of a New $250 Bill**\
+`Treasury Secretary Bessent backed the idea, which would require legislation allowing a living person to appear on currency.`\
+https://www.nytimes.com/2026/05/28/business/treasury-trump-250-bill.html
+
 **Israel to Cut Ties With U.N. Chief Over Its Inclusion on Sexual Violence Blacklist**\
 `The United Nations secretary general, António Guterres, told Israel there had been an “increasing number of cases” of sexual violence against Palestinian detainees, according to a letter shared by Israel’s U.N. ambassador.`\
 https://www.nytimes.com/2026/05/28/world/middleeast/israel-un-abuse-report.html

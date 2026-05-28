@@ -178,7 +178,7 @@ https://www.nytimes.com/es/2026/05/28/espanol/mundo/pedro-sanchez-psoe-registro.
 `The drafters of the Constitution hoped for energetic but accountable presidents.`\
 https://www.nytimes.com/2026/05/28/us/politics/the-docket-trump-founders.html
 
-**Bari Weiss Names Nick Bilton to Lead CBS’s ’60 Minutes’ in Major Shake-Up**\
+**Bari Weiss Names Nick Bilton to Lead CBS’s ‘60 Minutes’ in Major Shake-Up**\
 `Bari Weiss, CBS’s editor in chief, named Nick Bilton, a tech journalist and filmmaker, as the show’s executive producer. The network also fired two on-air correspondents.`\
 https://www.nytimes.com/2026/05/28/business/media/nick-bilton-60-minutes-bari-weiss.html
 
