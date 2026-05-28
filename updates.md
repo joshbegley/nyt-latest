@@ -1,3 +1,7 @@
+**Guatemala Agrees to Joint Drug Gang Strikes With U.S., Expanding Trump’s Campaign**\
+`The deal is part of a broader effort by the Trump administration to press Latin American countries to agree to joint operations inside their borders.`\
+https://www.nytimes.com/2026/05/28/world/americas/guatemala-us-joint-strikes.html
+
 **Shrimp and White Beans, but on Vacation**\
 `Garlicky shrimp with summer squash and beans puts a seasonal twist on a classic, can’t-miss combination.`\
 https://www.nytimes.com/2026/05/28/dining/shrimp-and-white-beans-but-on-vacation.html
