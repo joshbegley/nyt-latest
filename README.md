@@ -1,3 +1,7 @@
+**Quarantine Unit for Americans Exposed to Ebola to Open in Kenya Friday**\
+`But U.S. officials are still working to find centers in Europe to accept Americans who need advanced treatment, seen as critical to improving odds of survival.`\
+https://www.nytimes.com/2026/05/28/us/quarantine-americans-ebola-kenya.html
+
 **Europe’s Heat Wave Has the ‘Fingerprints of Climate Change All Over It’**\
 `An unusually early heat wave in Europe, new technology to save whales and more climate news.`\
 https://www.nytimes.com/2026/05/28/climate/europe-heat-wave-climate-change.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/05/28/business/dealbook/insider-trading-polymarket.
 **Pressure Grows on Spain’s Leader After Police Search His Party Office**\
 `After a judge accused his party of corruption, Prime Minister Pedro Sánchez of Spain has faced mounting calls to resign.`\
 https://www.nytimes.com/2026/05/28/world/europe/spain-sanchez-socialist-party-raid.html
-
-**YouTuber Defamed Movie Star Using A.I., South Korean Police Say**\
-`They arrested the man, accusing him of fabricating a voice recording to implicate Kim Soo-hyun in dating a minor.`\
-https://www.nytimes.com/2026/05/28/world/asia/kim-soo-hyun-youtube-arrest.html
 
 **Iran War Live Updates: U.S. Officials Say They Are Closing In on Arrangement to Reopen Strait of Hormuz**\
 `President Trump has not signed off on the emerging framework, according to U.S. officials. But it could set the table for extending the cease-fire and more substantive negotiations.`\

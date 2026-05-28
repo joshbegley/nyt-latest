@@ -1,3 +1,7 @@
+**Europe’s Heat Wave Has the ‘Fingerprints of Climate Change All Over It’**\
+`An unusually early heat wave in Europe, new technology to save whales and more climate news.`\
+https://www.nytimes.com/2026/05/28/climate/europe-heat-wave-climate-change.html
+
 **El Departamento de Justicia pone la mira sobre E. Jean Carroll de nuevo**\
 `Carroll, quien ganó un juicio civil tras acusar al presidente de los EE. UU. de abuso sexual, es objeto de una campaña de un gobierno que quiere cazar a supuestos enemigos.`\
 https://www.nytimes.com/es/2026/05/28/espanol/estados-unidos/trump-carroll-abuso-sexual.html

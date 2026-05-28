@@ -1,3 +1,7 @@
+**Europe’s Heat Wave Has the ‘Fingerprints of Climate Change All Over It’**\
+`An unusually early heat wave in Europe, new technology to save whales and more climate news.`\
+https://www.nytimes.com/2026/05/28/climate/europe-heat-wave-climate-change.html
+
 **El Departamento de Justicia pone la mira sobre E. Jean Carroll de nuevo**\
 `Carroll, quien ganó un juicio civil tras acusar al presidente de los EE. UU. de abuso sexual, es objeto de una campaña de un gobierno que quiere cazar a supuestos enemigos.`\
 https://www.nytimes.com/es/2026/05/28/espanol/estados-unidos/trump-carroll-abuso-sexual.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/05/28/world/europe/spain-sanchez-socialist-party-ra
 **YouTuber Defamed Movie Star Using A.I., South Korean Police Say**\
 `They arrested the man, accusing him of fabricating a voice recording to implicate Kim Soo-hyun in dating a minor.`\
 https://www.nytimes.com/2026/05/28/world/asia/kim-soo-hyun-youtube-arrest.html
-
-**A Violent Education**\
-`We look at an extraordinary investigation into police officers in Texas schools.`\
-https://www.nytimes.com/2026/05/28/briefing/a-violent-education.html
 
 **Iran War Live Updates: U.S. Officials Say They Are Closing In on Arrangement to Reopen Strait of Hormuz**\
 `President Trump has not signed off on the emerging framework, according to U.S. officials. But it could set the table for extending the cease-fire and more substantive negotiations.`\
