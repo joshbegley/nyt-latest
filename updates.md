@@ -1,3 +1,11 @@
+**Por qué los brotes de ébola y hantavirus han confundido a los científicos**\
+`Las noticias sobre los más recientes brotes de virus en el mundo no solo han sido aterradoras, sino también confusas, incluso para los científicos.`\
+https://www.nytimes.com/es/2026/05/28/espanol/ciencia-y-tecnologia/ebola-hantavirus-tratamiento-tipos.html
+
+**Oil Prices Climb on Renewed Hostilities in Middle East**\
+`Oil prices jumped after the U.S. said it shot down four Iranian attack drones, casting doubt once again on the prospects for a peace deal.`\
+https://www.nytimes.com/2026/05/28/business/oil-gas-price-iran.html
+
 **Oil Prices Climb Renewed Hostilities in Middle East**\
 `Oil prices jumped after the U.S. said it shot down four Iranian attack drones, casting doubt once again on the prospects for a peace deal.`\
 https://www.nytimes.com/2026/05/28/business/oil-gas-price-iran.html
