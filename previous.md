@@ -99,7 +99,7 @@ https://www.nytimes.com/interactive/2026/05/27/us/texas-schools-police-force-stu
 https://www.nytimes.com/2026/05/27/world/middleeast/trump-oman-strait-hormuz.html
 
 **Trump Says He Feels No Political Pressure to Make an Iran Deal**\
-`President Trump held out hope for a peace agreement, but said high oil prices would not force his hand,`\
+`President Trump held out hope for a peace agreement, but said high oil prices would not force his hand.`\
 https://www.nytimes.com/2026/05/27/world/middleeast/trump-iran-peace-talks.html
 
 **Los asistentes de los famosos están para complacer a sus jefes, pero ¿cuál es el límite?**\

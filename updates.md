@@ -1,3 +1,7 @@
+**Trump Says He Feels No Political Pressure to Make an Iran Deal**\
+`President Trump held out hope for a peace agreement, but said high oil prices would not force his hand.`\
+https://www.nytimes.com/2026/05/27/world/middleeast/trump-iran-peace-talks.html
+
 **U.S. Conducts New Strikes in Southern Iran**\
 `For the second time in three days, the military hit targets in what it called acts of self-defense, as a potential cease-fire hangs in the balance.`\
 https://www.nytimes.com/2026/05/27/world/middleeast/military-strikes-southern-iran.html
