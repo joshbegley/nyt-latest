@@ -1,3 +1,7 @@
+**Deadly Heat Wave Sweeps Across Western Europe**\
+`A deadly heat wave in Europe this month brought record-breaking temperatures. Scientists linked the extreme heat to man-made global warming.`\
+https://www.nytimes.com/video/climate/100000010931267/deadly-heat-wave-sweeps-across-western-europe.html
+
 **Carney Outlines Plan for New U.S.-Canada Relationship**\
 `Prime Minister Mark Carney of Canada called for a new, more distant relationship with the United States on Thursday, but maintained that reducing his country’s diplomatic and economic dependency on the U.S. would benefit Americans.`\
 https://www.nytimes.com/video/world/canada/100000010931622/carney-us-canada-relations.html
@@ -181,14 +185,6 @@ https://www.nytimes.com/2026/05/28/dining/if-tahini-has-no-fans-im-dead.html
 **Everlane Co-Founder, Shocked by Shein Acquisition, Wants a Redo**\
 `Michael Preysman, who ran the brand for a decade, can’t believe what happened to the company he built. Can he start over?`\
 https://www.nytimes.com/2026/05/28/business/everlane-co-founder-shein-acquisition.html
-
-**El FBI detiene a un funcionario de la CIA con 40 millones de dólares en lingotes de oro**\
-`El único cargo presentado contra David Rush es que infló sus credenciales académicas y obtuvo pagos por licencia militar por valor de decenas de miles de dólares.`\
-https://www.nytimes.com/es/2026/05/28/espanol/estados-unidos/fbi-arresta-cia-lingotes-oro.html
-
-**Trump Refiles $10 Billion Lawsuit Against The Wall Street Journal**\
-`An earlier version of the defamation suit, which focused on an article about a birthday note to Jeffrey Epstein, was dismissed by a judge.`\
-https://www.nytimes.com/2026/05/28/business/media/trump-wsj-defamation-suit-10-billion.html
 
 **Iran War Live Updates: U.S. Officials Say They Are Closing In on Arrangement to Reopen Strait of Hormuz**\
 `President Trump has not signed off on the emerging framework, according to U.S. officials. But it could set the table for extending the cease-fire and more substantive negotiations.`\
