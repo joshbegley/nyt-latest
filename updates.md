@@ -1,3 +1,7 @@
+**U.S. Launches Fresh Strikes in Iran, Testing Fragile Ceasefire**\
+`The U.S. conducted what a U.S. official said were self-defense strikes in southern Iran on Wednesday as Trump signaled readiness for a prolonged negotiation process.`\
+https://www.nytimes.com/video/world/americas/100000010929878/iran-war-us-strikes-trump.html
+
 **China prueba su modelo de vigilancia estatal en el extranjero**\
 `Bajo el mandato de Xi Jinping, China ha intentado exportar al mundo sus ideas sobre seguridad y ha llegado a países como las Islas Salomón.`\
 https://www.nytimes.com/es/2026/05/28/espanol/mundo/china-vigilancia-xi.html
