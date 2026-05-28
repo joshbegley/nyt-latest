@@ -1,3 +1,15 @@
+**Supreme Court Says Death Row Inmate Can Challenge Exclusion of Black Jurors**\
+`Terry Pitchford was convicted in 2006 for his role in the murder of a shopkeeper by a 12-member jury that included one Black member.`\
+https://www.nytimes.com/2026/05/28/us/politics/supreme-court-black-jurors.html
+
+**Two Papers Named ‘Star’ Will Duel in D.C. to Win Readers From The Washington Post**\
+`First, The Star was born. Now, The Washington Star is reborn. Both are hoping to win readers ceded by recent layoffs at The Washington Post.`\
+https://www.nytimes.com/2026/05/28/business/media/the-washington-star-newspaper-rivalry-washington-post.html
+
+**Commas, Common Sense and Justice**\
+`The ancients developed punctuation to create clarity, the Supreme Court used it to create confusion.`\
+https://www.nytimes.com/2026/05/28/opinion/punctuation-supreme-court-guns.html
+
 **Watchdog Agency Seeks to Reverse Its Own Win Against a Crypto Firm**\
 `The Commodity Futures Trading Commission filed jointly with a company run by the Winklevoss twins to overturn their settlement.`\
 https://www.nytimes.com/2026/05/28/us/politics/cftc-gemini-winklevoss-lawsuit.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/2026/05/28/arts/design/florentina-holzinger-pentecost-pl
 **Temu Hit With Fine in E.U. Over Sales of Unsafe Goods**\
 `The Chinese e-commerce platform faces a penalty of more than $230 million for selling baby toys and other products the European Commission said could harm consumers.`\
 https://www.nytimes.com/2026/05/28/business/temu-fine-european-union.html
-
-**Why Texas Students Are Being Tackled and Tasered, and Trump’s Latest Target for Retribution**\
-`Plus, inside the hunt for cheap gas.`\
-https://www.nytimes.com/2026/05/28/podcasts/the-headlines/texas-students-tasered-trump-retribution.html
-
-**Can A.I. Make People Feel Less Lonely?**\
-`The story of one woman who let a robot move into her home.`\
-https://www.nytimes.com/2026/05/28/podcasts/the-daily/ai-robot-elderly-loneliness.html
-
-**NYT Connections Answers for May 29, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, May 29, 2026.`\
-https://www.nytimes.com/2026/05/28/crosswords/connections-companion-1083.html
 
 **Journey to the Melting Continent**\
 `The New York Times went on an expedition to study Antarctica’s fastest-thinning glaciers.`\

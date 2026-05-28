@@ -1,3 +1,7 @@
+**Watchdog Agency Seeks to Reverse Its Own Win Against a Crypto Firm**\
+`The Commodity Futures Trading Commission filed jointly with a company run by the Winklevoss twins to overturn their settlement.`\
+https://www.nytimes.com/2026/05/28/us/politics/cftc-gemini-winklevoss-lawsuit.html
+
 **Dell Gets a $9.7 Billion Defense Contract. Trump’s Portfolio Stands to Benefit.**\
 `The president’s family says his stock purchases are automatically timed, but recent acquisitions of the computer company’s shares raise questions.`\
 https://www.nytimes.com/2026/05/28/us/politics/trump-dell-stock-purchases.html
