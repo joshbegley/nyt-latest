@@ -1,3 +1,27 @@
+**Judge Declines, for Now, to Block Mail-In Voting Changes Ordered by Trump**\
+`The ruling allowed the Trump administration to continue to pursue changes that include enlisting the Postal Service in checking voters against a national database.`\
+https://www.nytimes.com/2026/05/28/us/politics/trump-voting-executive-order.html
+
+**Mamdani May Endorse in Tightening House Race in Upper Manhattan**\
+`The mayor is giving serious thought to getting behind Darializa Avila Chevalier, a democratic socialist who is challenging Representative Adriano Espaillat.`\
+https://www.nytimes.com/2026/05/28/nyregion/adriano-espaillat-darializa-avila-chevalier-mamdani.html
+
+**Much More Than Money: Inside New York’s $269 Billion Budget**\
+`Gov. Kathy Hochul used the budget as a vehicle for policy initiatives, including a new second-home tax and a push to make the state less hospitable to ICE agents.`\
+https://www.nytimes.com/2026/05/28/nyregion/budget-late-new-york.html
+
+**5 Health Risks From Consuming Too Much Protein**\
+`Most Americans eat more protein than they need. We asked experts what can happen if people have too much of a good thing.`\
+https://www.nytimes.com/2026/05/28/well/eat/health-risks-excess-protein.html
+
+**Palabra del día: ‘risible’**\
+`Esta palabra ha aparecido en cinco artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/05/28/espanol/que-significa-risible.html
+
+**Journey to the Melting Continent**\
+`The New York Times went on an expedition to study Antarctica’s fastest-thinning glaciers.`\
+https://www.nytimes.com/live/2025/climate/antarctica-thwaites-glacier
+
 **Israel Launches Fresh Strikes on Lebanon**\
 `On Thursday, the Israeli military launched airstrikes on the southern outskirts of Beirut, Lebanon, for the first time in three weeks. Israel said it also targeted Hezbollah sites in southern Lebanon.`\
 https://www.nytimes.com/video/world/middleeast/100000010930257/israel-strikes-lebanon-beirut.html
