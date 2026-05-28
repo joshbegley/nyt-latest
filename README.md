@@ -1,3 +1,15 @@
+**Much More Than Money: Inside New York’s $269 Billion Budget**\
+`Gov. Kathy Hochul used the budget as a vehicle for policy initiatives, including a new second-home tax and a push to make the state less hospitable to ICE agents.`\
+https://www.nytimes.com/2026/05/28/nyregion/budget-late-new-york.html
+
+**5 Health Risks From Consuming Too Much Protein**\
+`Most Americans eat more protein than they need. We asked experts what can happen if people have too much of a good thing.`\
+https://www.nytimes.com/2026/05/28/well/eat/health-risks-excess-protein.html
+
+**Palabra del día: ‘risible’**\
+`Esta palabra ha aparecido en cinco artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/05/28/espanol/que-significa-risible.html
+
 **Israel Launches Fresh Strikes on Lebanon**\
 `On Thursday, the Israeli military launched airstrikes on the southern outskirts of Beirut, Lebanon, for the first time in three weeks. Israel said it also targeted Hezbollah sites in southern Lebanon.`\
 https://www.nytimes.com/video/world/middleeast/100000010930257/israel-strikes-lebanon-beirut.html
@@ -182,19 +194,7 @@ https://www.nytimes.com/2026/05/28/style/nabela-noor-home-influencer-pennsylvani
 `The state’s ambitious school policing initiative has few safeguards to prevent overreach by officers.`\
 https://www.nytimes.com/2026/05/28/us/5-takeaways-from-our-investigation-into-texas-school-police.html
 
-**Genetic Scores are Booming. But Will Anti-Discrimination Laws Cover Your DNA?**\
-`As predictive medicine advances, legal scholars warn that decades-old federal guidelines could set up a potential clash between your genes and your job.`\
-https://www.nytimes.com/2026/05/28/health/polygenic-risk-scores-workplace.html
-
-**These Drivers Found Cheap Gas**\
-`It’s in Valley Center, Calif., on tribal land. Customers relish every penny saved.`\
-https://www.nytimes.com/2026/05/28/us/cheap-gas-prices.html
-
-**Review: ‘The Maids’ Makes a Ruckus but Not Enough Mess**\
-`Jean Genet’s psychosexual drama gets a social-media-heavy update. But what does it say beyond “internet=bad”?`\
-https://www.nytimes.com/2026/05/28/theater/the-maids-review-yerin-ha-kip-williams.html
-
-**My $7,300 United Business Class Seat Was Broken, and I Got a Pittance**\
-`A woman splurged for a lie-flat seat, but it got jammed in the horizontal position for most of the 14-hour flight. How much should United compensate her?`\
-https://www.nytimes.com/2026/05/28/travel/united-broken-business-class-seat.html
+**Journey to the Melting Continent**\
+`The New York Times went on an expedition to study Antarctica’s fastest-thinning glaciers.`\
+https://www.nytimes.com/live/2025/climate/antarctica-thwaites-glacier
 

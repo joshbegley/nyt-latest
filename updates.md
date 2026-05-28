@@ -1,3 +1,7 @@
+**Israel Launches Fresh Strikes on Lebanon**\
+`On Thursday, the Israeli military launched airstrikes on the southern outskirts of Beirut, Lebanon, for the first time in three weeks. Israel said it also targeted Hezbollah sites in southern Lebanon.`\
+https://www.nytimes.com/video/world/middleeast/100000010930257/israel-strikes-lebanon-beirut.html
+
 **3 Weeks After Fire, ‘The Book of Mormon’ Reopens on Broadway**\
 `The satirical musical, which is celebrating its 15th anniversary this year, missed 25 performances during the shutdown.`\
 https://www.nytimes.com/2026/05/28/theater/book-of-mormon-broadway-fire-reopening.html
