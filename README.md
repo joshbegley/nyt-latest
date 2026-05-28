@@ -1,3 +1,11 @@
+**Florentina Holzinger’s 9-Hour Spectacle Pushes the Limits of Body Art**\
+`The choreographer-provocateur followed a hit show at the Venice Biennale with one in Vienna. “Violence is something we’re used to,” she said.`\
+https://www.nytimes.com/2026/05/28/arts/design/florentina-holzinger-pentecost-play-vienna.html
+
+**Temu Hit With Fine in E.U. Over Sales of Unsafe Goods**\
+`The Chinese e-commerce platform faces a penalty of more than $230 million for selling baby toys and other products the European Commission said could harm consumers.`\
+https://www.nytimes.com/2026/05/28/business/temu-fine-european-union.html
+
 **Why Texas Students Are Being Tackled and Tasered, and Trump’s Latest Target for Retribution**\
 `Plus, inside the hunt for cheap gas.`\
 https://www.nytimes.com/2026/05/28/podcasts/the-headlines/texas-students-tasered-trump-retribution.html
@@ -90,7 +98,7 @@ https://www.nytimes.com/2026/05/28/world/americas/guatemala-us-joint-strikes.htm
 `Our critics cherry-pick highlights from the “100 Best Restaurants” list.`\
 https://www.nytimes.com/2026/05/28/podcasts/over-20000-restaurants-in-new-york-city-only-one-list.html
 
-**Trump Wants to ‘Take Cuba.’ These Cubans Have Thoughts.**\
+**What Cubans Really Think About Trump**\
 `A filmmaker asks residents of the embattled island what they would say to the U.S. president.`\
 https://www.nytimes.com/2026/05/28/opinion/cuba-government-us-trump.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/05/28/movies/miss-you-love-you-review-a-son-outsour
 **‘The Last Viking’ Review: Imagine Mads Mikkelsen**\
 `Mikkelsen plays a man convinced he’s John Lennon in a darkly comic crime film from the Danish auteur Anders Thomas Jensen.`\
 https://www.nytimes.com/2026/05/28/movies/the-last-viking-review.html
-
-**‘Forastera’ Review: An Exquisitely Deconstructed Ghost Story**\
-`A teenager affects aspects of her late grandmother in this beguiling first feature set on the island of Mallorca.`\
-https://www.nytimes.com/2026/05/28/movies/forastera-review.html
-
-**Not Every Language Has Spelling Bees. Here’s Why English Is Perfect for Them.**\
-`English’s hybrid history, silent letters and overcomplicated rules are what make the competition fierce.`\
-https://www.nytimes.com/2026/05/28/magazine/spelling-bee-scripps-english-language.html
 
