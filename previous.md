@@ -91,7 +91,7 @@ https://www.nytimes.com/2026/05/28/us/politics/trump-voting-executive-order.html
 https://www.nytimes.com/2026/05/28/nyregion/adriano-espaillat-darializa-avila-chevalier-mamdani.html
 
 **What’s Inside New York’s $269 Billion Budget: Second-Home Tax, Restrictions on ICE and More**\
-`Gov. Kathy Hochul used the budget as a vehicle for policy initiatives, including a new second-home tax and a push to make the state less hospitable to ICE agents.`\
+`Gov. Kathy Hochul used the state budget as a vehicle for policy initiatives, including a new second-home tax and a push to make the state less hospitable to immigration agents.`\
 https://www.nytimes.com/2026/05/28/nyregion/budget-late-new-york.html
 
 **5 Health Risks From Consuming Too Much Protein**\

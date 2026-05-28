@@ -1,3 +1,7 @@
+**What’s Inside New York’s $269 Billion Budget: Second-Home Tax, Restrictions on ICE and More**\
+`Gov. Kathy Hochul used the state budget as a vehicle for policy initiatives, including a new second-home tax and a push to make the state less hospitable to immigration agents.`\
+https://www.nytimes.com/2026/05/28/nyregion/budget-late-new-york.html
+
 **Bari Weiss Names Nick Bilton to Lead CBS’s ’60 Minutes’ in Major Shake-Up**\
 `Bari Weiss, CBS’s editor in chief, named Nick Bilton, a tech journalist and filmmaker, as the show’s executive producer. The network also fired two on-air correspondents.`\
 https://www.nytimes.com/2026/05/28/business/media/nick-bilton-60-minutes-bari-weiss.html
