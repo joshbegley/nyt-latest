@@ -1,3 +1,7 @@
+**The Dream of a $50 Dinner Is Still Alive at These Restaurants**\
+`Drinks, two entrees and an appetizer or dessert don’t have to break the bank.`\
+https://www.nytimes.com/2026/05/28/dining/the-dream-of-a-50-dinner-is-still-alive-at-these-restaurants.html
+
 **Finding Wisdom in a Poem by Wendy Cope**\
 `A.O. Scott seeks practical advice in a villanelle by Wendy Cope.`\
 https://www.nytimes.com/interactive/2026/05/28/books/poem-wisdom-wendy-cope.html
