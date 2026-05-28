@@ -1,3 +1,11 @@
+**20 Joyous Wines, All Under $20**\
+`The price of almost everything is rising, including wine. But distinctive, delicious bottles can still be found in the $15 to $20 range.`\
+https://www.nytimes.com/2026/05/28/dining/drinks/wines-under-20-dollars.html
+
+**Israel Strikes Beirut, Expanding Offensive in Lebanon**\
+`It was the first attack by Israel on the Lebanese capital in weeks and could complicate efforts by the United States and Iran to agree to a peace deal to end the war in Iran.`\
+https://www.nytimes.com/2026/05/28/world/middleeast/israel-strikes-beirut-lebanon.html
+
 **Israel Strikes Beirut, Expanding Offensive in Lebanon**\
 `It was the first attack by Israel on the Lebanese capital in weeks and could complicate efforts by the United States and Iran to agree to a peace deal to end the war in Iran.`\
 https://www.nytimes.com/2026/05/28/world/middleeast/israel-expands-lebanon-offensive.html
