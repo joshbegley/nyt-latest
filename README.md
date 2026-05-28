@@ -1,3 +1,7 @@
+**Carney Outlines Plan for New U.S.-Canada Relationship**\
+`Prime Minister Mark Carney of Canada called for a new, more distant relationship with the United States on Thursday, but maintained that reducing his country’s diplomatic and economic dependency on the U.S. would benefit Americans.`\
+https://www.nytimes.com/video/world/canada/100000010931622/carney-us-canada-relations.html
+
 **Late May Storm Brings Rain and Snow to Northern California**\
 `San Francisco received nearly as much rain one morning as it would typically see for the month, and a slope in the Sierra Nevada remained open for skiing.`\
 https://www.nytimes.com/2026/05/28/weather/may-snow-rain-california.html
@@ -18,7 +22,7 @@ https://www.nytimes.com/video/us/politics/100000010931638/bessent-treasury-trump
 `Video captured flames engulfing an apartment building in Dallas on Thursday.`\
 https://www.nytimes.com/video/us/100000010931758/fire-dallas-apartment-building.html
 
-**Scripps Spelling Bee Live Updates: Students Vie for Top Prize**\
+**Scripps Spelling Bee Live Updates: Students Battle for Word Domination**\
 `Nine contestants will compete against one another — and the dictionary. The finals begin at 8 p.m. Eastern time.`\
 https://www.nytimes.com/live/2026/05/28/us/scripps-spelling-bee
 
@@ -138,8 +142,8 @@ https://www.nytimes.com/2026/05/28/us/politics/cftc-gemini-winklevoss-lawsuit.ht
 `The president’s family says his stock purchases are automatically timed, but recent acquisitions of the computer company’s shares raise questions.`\
 https://www.nytimes.com/2026/05/28/us/politics/trump-dell-stock-purchases.html
 
-**U.S. and Iran Move Toward Arrangement to Reopen the Strait of Hormuz**\
-`President Trump has yet to sign off on an emerging agreement that would extend the cease-fire while they negotiate nuclear and other issues.`\
+**U.S. and Iran Move Toward Agreement to Reopen the Strait of Hormuz**\
+`President Trump has yet to sign off on an extension of the cease-fire that would allow the two sides to negotiate nuclear and other issues.`\
 https://www.nytimes.com/2026/05/28/world/middleeast/us-iran-war-strait.html
 
 **Man Sentenced to 40 Years in Murders of 4 Sleeping Homeless Men**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/es/2026/05/28/espanol/estados-unidos/fbi-arresta-cia-lin
 **Trump Refiles $10 Billion Lawsuit Against The Wall Street Journal**\
 `An earlier version of the defamation suit, which focused on an article about a birthday note to Jeffrey Epstein, was dismissed by a judge.`\
 https://www.nytimes.com/2026/05/28/business/media/trump-wsj-defamation-suit-10-billion.html
-
-**Trump’s Retribution Comes to Texas as Paxton Defeats Cornyn**\
-`Readers discuss Senator John Cornyn’s loss to Ken Paxton in Tuesday’s Republican primary. Also: Investigating E. Jean Carroll; Mets and Knicks; religion and A.I.`\
-https://www.nytimes.com/2026/05/28/opinion/trump-texas-paxton-cornyn.html
 
 **Iran War Live Updates: U.S. Officials Say They Are Closing In on Arrangement to Reopen Strait of Hormuz**\
 `President Trump has not signed off on the emerging framework, according to U.S. officials. But it could set the table for extending the cease-fire and more substantive negotiations.`\
