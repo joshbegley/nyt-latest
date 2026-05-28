@@ -1,3 +1,7 @@
+**Brownie Brittle**\
+`Brownie brittle is the perfect treat for that person in your life who loves the edges of the brownie. It’s deeply chocolaty and gives a satisfying crunch with every bite.`\
+https://www.nytimes.com/video/dining/100000010929027/brownie-brittle.html
+
 **NYT Crossword Answers for May 28, 2026**\
 `John Kugelman gives us some choices to make.`\
 https://www.nytimes.com/2026/05/27/crosswords/daily-puzzle-2026-05-28.html
