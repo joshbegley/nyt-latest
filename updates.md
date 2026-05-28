@@ -1,3 +1,11 @@
+**Michigan Governor Gretchen Whitmer Will Not Run for President in 2028**\
+`Ms. Whitmer had been viewed as part of a field of possible Democratic candidates. She has been governor for two terms, and is barred from running again.`\
+https://www.nytimes.com/2026/05/28/us/gretchen-whitmer-rules-out-2028.html
+
+**Mamdani Vowed to Back Espaillat. Now He May Endorse a D.S.A. Challenger.**\
+`The mayor is seriously considering getting behind Darializa Avila Chevalier, a democratic socialist challenging Representative Adriano Espaillat in an Upper Manhattan House primary.`\
+https://www.nytimes.com/2026/05/28/nyregion/adriano-espaillat-darializa-avila-chevalier-mamdani.html
+
 **In Mexico, a House Built Around a Circular Pool**\
 `Plus: bags embellished with urchin spines, modular furniture and more recommendations from T Magazine.`\
 https://www.nytimes.com/2026/05/28/t-magazine/baja-california-sur-mexico-vacation-house.html

@@ -1,3 +1,7 @@
+**Michigan Governor Gretchen Whitmer Will Not Run for President in 2028**\
+`Ms. Whitmer had been viewed as part of a field of possible Democratic candidates. She has been governor for two terms, and is barred from running again.`\
+https://www.nytimes.com/2026/05/28/us/gretchen-whitmer-rules-out-2028.html
+
 **In Mexico, a House Built Around a Circular Pool**\
 `Plus: bags embellished with urchin spines, modular furniture and more recommendations from T Magazine.`\
 https://www.nytimes.com/2026/05/28/t-magazine/baja-california-sur-mexico-vacation-house.html
@@ -6,8 +10,8 @@ https://www.nytimes.com/2026/05/28/t-magazine/baja-california-sur-mexico-vacatio
 `The ruling allowed the Trump administration to continue to pursue changes that include enlisting the Postal Service in checking voters against a national database.`\
 https://www.nytimes.com/2026/05/28/us/politics/trump-voting-executive-order.html
 
-**Mamdani Gets Closer to Endorsing in Tightening Manhattan House Race**\
-`The mayor is giving serious thought to getting behind Darializa Avila Chevalier, a democratic socialist who is challenging Representative Adriano Espaillat.`\
+**Mamdani Vowed to Back Espaillat. Now He May Endorse a D.S.A. Challenger.**\
+`The mayor is seriously considering getting behind Darializa Avila Chevalier, a democratic socialist challenging Representative Adriano Espaillat in an Upper Manhattan House primary.`\
 https://www.nytimes.com/2026/05/28/nyregion/adriano-espaillat-darializa-avila-chevalier-mamdani.html
 
 **Much More Than Money: Inside New York’s $269 Billion Budget**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/05/28/movies/pressure-review.html
 **In Argentina, U.S. Tech Billionaire Peter Thiel Finds An Escape**\
 `The billionaire’s new roots in Argentina are said to be partly motivated by concerns about the future of the United States and shared beliefs with Argentina’s right-wing leader.`\
 https://www.nytimes.com/2026/05/28/world/americas/peter-thiel-argentina.html
-
-**The Long, Bitter Fight at the Park Slope Food Co-op**\
-`The grocery store voted overwhelmingly to boycott Israeli products. A leading rabbi said it was “a really sad night for a lot of Jews in Park Slope.”`\
-https://www.nytimes.com/2026/05/28/nyregion/the-long-bitter-fight-at-the-park-slope-food-co-op.html
 
 **Journey to the Melting Continent**\
 `The New York Times went on an expedition to study Antarctica’s fastest-thinning glaciers.`\
