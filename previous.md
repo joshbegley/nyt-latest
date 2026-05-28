@@ -1,3 +1,7 @@
+**NYT Crossword Answers for May 28, 2026**\
+`John Kugelman gives us some choices to make.`\
+https://www.nytimes.com/2026/05/27/crosswords/daily-puzzle-2026-05-28.html
+
 **Massie Visits Greene in Costa Rica for Fishing and ‘Spicy’ Political Talks**\
 `The two Republican critics of President Trump – Thomas Massie, who lost his House primary last week, and Marjorie Taylor Greene, who resigned from Congress – met up in the tropics.`\
 https://www.nytimes.com/2026/05/27/us/politics/massie-marjorie-taylor-greene-costa-rica.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/politics/100000010928330/ufc-white-house-trump.
 **The Return of the Apprentice**\
 `Why more young people are considering careers in the trades.`\
 https://www.nytimes.com/2026/05/27/headway/young-americans-apprentice-labor-economy.html
-
-**Armed With Bows and Arrows, Hunters Fight the Invasive ‘Frankenfish’**\
-`Wildlife officials in Chesapeake Bay are encouraging hunters and anglers to target the invasive, predatory northern snakeheads – known as the “Frankenfish” – using a bow and arrow.`\
-https://www.nytimes.com/video/us/100000010928426/hunting-frankenfish-with-a-bow-and-arrow.html
 

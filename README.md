@@ -1,3 +1,7 @@
+**Brownie Brittle**\
+`Brownie brittle is the perfect treat for that person in your life who loves the edges of the brownie. It’s deeply chocolaty and gives a satisfying crunch with every bite.`\
+https://www.nytimes.com/video/dining/100000010929027/brownie-brittle.html
+
 **NYT Crossword Answers for May 28, 2026**\
 `John Kugelman gives us some choices to make.`\
 https://www.nytimes.com/2026/05/27/crosswords/daily-puzzle-2026-05-28.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/27/us/politics/mike-flood-gop-town-hall.html
 **U.F.C. Arena Takes Shape on White House Lawn**\
 `Construction for the Ultimate Fighting Championship arena continues on the South Lawn of The White House ahead of the June 14th fight planned for President Trump’s 80th birthday.`\
 https://www.nytimes.com/video/us/politics/100000010928330/ufc-white-house-trump.html
-
-**The Return of the Apprentice**\
-`Why more young people are considering careers in the trades.`\
-https://www.nytimes.com/2026/05/27/headway/young-americans-apprentice-labor-economy.html
 
