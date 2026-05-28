@@ -1,3 +1,23 @@
+**Happy, Bronx Zoo Elephant at Center of Animal Rights Case, Is Dead at 55**\
+`Activists had sued in a bid to secure her the fundamental human right to bodily liberty. Zoo officials said she was well cared for and called the lawsuit frivolous.`\
+https://www.nytimes.com/2026/05/28/nyregion/happy-elephant-bronx-zoo-dead.html
+
+**Heated Battle for U.S. Senate in Texas Begins**\
+`The candidates for U.S. Senate in Texas, the Democrat James Talarico and the Republican Ken Paxton, traded barbs this week in what is expected to be a bitter general election campaign.`\
+https://www.nytimes.com/video/us/politics/100000010930106/texas-talarico-paxton-senate-campaign.html
+
+**Fired BP Chair Manifold Rejects ‘Lies’ About His Ouster**\
+`Albert Manifold, who was abruptly dismissed by the oil company this week, hit back in a new statement that admitted he “pushed hard” but never crossed a line.`\
+https://www.nytimes.com/2026/05/28/business/bp-chair-albert-manifold.html
+
+**Who is Ahead in Florida's 13th Congressional District?**\
+`Track the latest polls in Florida's 13th Congressional District.`\
+https://www.nytimes.com/interactive/polls/florida-us-house-13-polls-2026.html
+
+**Iran War Lifts a Second Inflation Reading to Highest Level Since 2023**\
+`Officials at the central bank have embraced the possibility of higher interest rates to get resurgent price pressures under control.`\
+https://www.nytimes.com/2026/05/28/business/inflation-pce-gauge.html
+
 **Deadly Fire Breaks Out in Boarding School Dormitory in Kenya**\
 `A deadly fire tore through the dormitory of a girls’ boarding school in Kenya on Thursday, officials said.`\
 https://www.nytimes.com/video/world/africa/100000010930112/kenya-fire-school-gilgil.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/05/28/business/media/streaming-tv-hulu-disney-hbo.h
 **New York City’s Manhattanhenge is Back: When, Where and How to Watch**\
 `On Thursday and Friday, some streets in Manhattan will get a lot more crowded as people gather to watch the city’s unique solar spectacle.`\
 https://www.nytimes.com/2026/05/28/science/manhattanhenge-new-york-city.html
-
-**He’s Entitled and Nepotistic. This Is Not What Democrats Need.**\
-`Members of the country’s grandest political dynasty are not inherently qualified to hold office.`\
-https://www.nytimes.com/2026/05/28/opinion/kennedy-jack-schlossberg-political-dynasty.html
-
-**Can New Technology Help Save North Atlantic Right Whales?**\
-`Innovative systems to keep ships from hitting North Atlantic right whales are coming into use. The Trump administration is weighing whether they can replace a bedrock protection.`\
-https://www.nytimes.com/2026/05/28/climate/northern-right-whales-protection-technology.html
-
-**Jane Austen Snubbed This Character. ‘The Other Bennet Sister’ Loves Her.**\
-`As the star of “The Other Bennet Sister,” this actress is redeeming a “Pride and Prejudice” character Austen cast as a tedious prig.`\
-https://www.nytimes.com/2026/05/28/arts/television/the-other-bennet-sister-ella-bruccoleri.html
-
-**Paul McCartney on His New Album and the Beatles’ Earliest Days**\
-`On his new album, the ex-Beatle revisits his past and revels in simply continuing to create.`\
-https://www.nytimes.com/2026/05/28/arts/music/paul-mccartney-interview.html
-
-**What Is Mogging? The Gen Z and Gen Alpha Term, Explained.**\
-`The term can mean outdoing oneself or others, and it has jumped far from its incel chatroom origins. Where did it come from?`\
-https://www.nytimes.com/2026/05/28/style/mogging-looksmaxxing-gen-alpha.html
 

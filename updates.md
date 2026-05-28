@@ -1,3 +1,23 @@
+**Happy, Bronx Zoo Elephant at Center of Animal Rights Case, Is Dead at 55**\
+`Activists had sued in a bid to secure her the fundamental human right to bodily liberty. Zoo officials said she was well cared for and called the lawsuit frivolous.`\
+https://www.nytimes.com/2026/05/28/nyregion/happy-elephant-bronx-zoo-dead.html
+
+**Heated Battle for U.S. Senate in Texas Begins**\
+`The candidates for U.S. Senate in Texas, the Democrat James Talarico and the Republican Ken Paxton, traded barbs this week in what is expected to be a bitter general election campaign.`\
+https://www.nytimes.com/video/us/politics/100000010930106/texas-talarico-paxton-senate-campaign.html
+
+**Fired BP Chair Manifold Rejects ‘Lies’ About His Ouster**\
+`Albert Manifold, who was abruptly dismissed by the oil company this week, hit back in a new statement that admitted he “pushed hard” but never crossed a line.`\
+https://www.nytimes.com/2026/05/28/business/bp-chair-albert-manifold.html
+
+**Who is Ahead in Florida's 13th Congressional District?**\
+`Track the latest polls in Florida's 13th Congressional District.`\
+https://www.nytimes.com/interactive/polls/florida-us-house-13-polls-2026.html
+
+**Iran War Lifts a Second Inflation Reading to Highest Level Since 2023**\
+`Officials at the central bank have embraced the possibility of higher interest rates to get resurgent price pressures under control.`\
+https://www.nytimes.com/2026/05/28/business/inflation-pce-gauge.html
+
 **Big Swells of Rancor Are Capsizing America**\
 `Texas just got a lot more interesting.`\
 https://www.nytimes.com/2026/05/28/opinion/texas-paxton-talarico-marilyn-monroe.html
