@@ -1,3 +1,11 @@
+**Oil Prices Climb and Stocks Fall After U.S. Strikes Iranian Drones**\
+`Oil prices jumped after the U.S. said it shot down four Iranian attack drones, casting doubt once again on the prospects for a peace deal.`\
+https://www.nytimes.com/2026/05/28/business/oil-gas-price-iran.html
+
+**Israel’s Isolation Is Deepening Fast. It Doesn’t Have to Be This Way.**\
+`Elections this year hold out the promise that the state can change policies in a way to recover some international good will.`\
+https://www.nytimes.com/2026/05/28/opinion/israel-palestinians-boycott-eurovision.html
+
 **Over 20,000 Restaurants in New York City. Only One List.**\
 `Wesley Morris and co-chief restaurant critic, Ligaya Mishan, cherry-pick highlights from the 2026 “Best Restuarants in NYC” list.`\
 https://www.nytimes.com/video/podcasts/100000010926457/over-20000-restaurants-in-new-york-city-only-one-list.html
