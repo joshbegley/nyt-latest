@@ -19,7 +19,7 @@ https://www.nytimes.com/video/podcasts/100000010931291/how-olivia-rodrigos-love-
 https://www.nytimes.com/es/2026/05/28/espanol/cultura/toto-la-momposina-murio.html
 
 **ABC Accuses Media Regulator of Threatening Its Licenses**\
-`The TV network on Thursday slammed the Federal Communications Commission, saying it was targeting its station licenses in a campaign of “unconstitutional retaliation.”`\
+`The TV network slammed the Federal Communications Commission, saying the regulator was targeting its station licenses in a campaign of “unconstitutional retaliation.”`\
 https://www.nytimes.com/2026/05/28/business/media/abc-licenses-fcc-brendan-carr.html
 
 **N.B.A. Player Took $70,000 Bribe to Leave Game Early, U.S. Says**\
