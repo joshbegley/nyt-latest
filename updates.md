@@ -1,3 +1,11 @@
+**What’s Inside New York’s $269 Billion Budget: Second-Home Tax, Restrictions on ICE and More**\
+`Gov. Kathy Hochul used the budget as a vehicle for policy initiatives, including a new second-home tax and a push to make the state less hospitable to ICE agents.`\
+https://www.nytimes.com/2026/05/28/nyregion/budget-late-new-york.html
+
+**Three Ways Trump Is Losing the War in Iran**\
+`Three reasons Trump is losing the war in Iran.`\
+https://www.nytimes.com/2026/05/28/opinion/trump-iran-war.html
+
 **Michigan Governor Gretchen Whitmer Will Not Run for President in 2028**\
 `Ms. Whitmer had been viewed as part of a field of possible Democratic candidates. She has been governor for two terms, and is barred from running again.`\
 https://www.nytimes.com/2026/05/28/us/gretchen-whitmer-rules-out-2028.html
