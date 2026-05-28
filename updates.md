@@ -1,3 +1,7 @@
+**Oil Prices Climb Renewed Hostilities in Middle East**\
+`Oil prices jumped after the U.S. said it shot down four Iranian attack drones, casting doubt once again on the prospects for a peace deal.`\
+https://www.nytimes.com/2026/05/28/business/oil-gas-price-iran.html
+
 **U.S. Launches Fresh Strikes in Iran, Testing Fragile Ceasefire**\
 `The U.S. conducted what a U.S. official said were self-defense strikes in southern Iran on Wednesday as Trump signaled readiness for a prolonged negotiation process.`\
 https://www.nytimes.com/video/world/americas/100000010929878/iran-war-us-strikes-trump.html

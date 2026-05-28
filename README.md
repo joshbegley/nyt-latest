@@ -1,3 +1,7 @@
+**Por qué los brotes de ébola y hantavirus han confundido a los científicos**\
+`Las noticias sobre los más recientes brotes de virus en el mundo no solo han sido aterradoras, sino también confusas, incluso para los científicos.`\
+https://www.nytimes.com/es/2026/05/28/espanol/ciencia-y-tecnologia/ebola-hantavirus-tratamiento-tipos.html
+
 **U.S. Launches Fresh Strikes in Iran, Testing Fragile Ceasefire**\
 `The U.S. conducted what a U.S. official said were self-defense strikes in southern Iran on Wednesday as Trump signaled readiness for a prolonged negotiation process.`\
 https://www.nytimes.com/video/world/americas/100000010929878/iran-war-us-strikes-trump.html
@@ -30,7 +34,7 @@ https://www.nytimes.com/2026/05/28/learning/word-of-the-day-risible.html
 `Iran’s Islamic Revolutionary Guards Corps did not say which base it had targeted early Thursday, after U.S. strikes in the country’s south. The exchanges threaten a fragile cease-fire.`\
 https://www.nytimes.com/live/2026/05/28/world/iran-war-us-trump-deal
 
-**Oil Prices Climb Renewed Hostilities in Middle East**\
+**Oil Prices Climb on Renewed Hostilities in Middle East**\
 `Oil prices jumped after the U.S. said it shot down four Iranian attack drones, casting doubt once again on the prospects for a peace deal.`\
 https://www.nytimes.com/2026/05/28/business/oil-gas-price-iran.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/05/27/espanol/cultura/matthew-perry-asistente.ht
 **Kids Review ‘Sarniezz’ by Angine de Poitrine**\
 `These children have a lot of thoughts about Angine de Poitrine’s song “Sarniezz (Live on KEXP),” which has been receiving loads of attention on TikTok. Is it disturbing? Creative? Nonsensical? They discuss it all with our critic, Jon Caramanica, on this special edition of Song of the Week.`\
 https://www.nytimes.com/video/podcasts/100000010929288/kids-review-sarniezz-by-angine-de-poitrine.html
-
-**Cornyn’s Defeat in Texas Runoff Underscores Trump's Grip on the G.O.P.**\
-`Senator John Cornyn lost to his MAGA-aligned challenger, Ken Paxton, by 28 percentage points. It was a historically poor showing.`\
-https://www.nytimes.com/2026/05/27/us/politics/paxton-cornyn-texas-republican-primary.html
 

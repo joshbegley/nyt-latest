@@ -30,7 +30,7 @@ https://www.nytimes.com/2026/05/28/learning/word-of-the-day-risible.html
 `Iran’s Islamic Revolutionary Guards Corps did not say which base it had targeted early Thursday, after U.S. strikes in the country’s south. The exchanges threaten a fragile cease-fire.`\
 https://www.nytimes.com/live/2026/05/28/world/iran-war-us-trump-deal
 
-**Oil Prices Climb and Stocks Fall After U.S. Strikes Iranian Drones**\
+**Oil Prices Climb Renewed Hostilities in Middle East**\
 `Oil prices jumped after the U.S. said it shot down four Iranian attack drones, casting doubt once again on the prospects for a peace deal.`\
 https://www.nytimes.com/2026/05/28/business/oil-gas-price-iran.html
 
