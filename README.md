@@ -1,3 +1,7 @@
+**With Pitchford v. Cain, The Supreme Court Protected Jury Rights. Now It Must Go Further.**\
+`All Americans benefit from the outcome of this case. And yet the decision highlights just how much work still needs to be done.`\
+https://www.nytimes.com/2026/05/28/opinion/supreme-court-jury-discrimination.html
+
 **Does a Taco Truck Belong on ‘The 100 Best Restaurants in N.Y.C.’ List?**\
 `Wesley Morris and The Times’s restaurant critic Ligaya Mishan discuss why a fine-dining establishment could be ranked alongside a taco truck on the “100 Best Restaurants” list.`\
 https://www.nytimes.com/video/podcasts/100000010931924/does-a-taco-truck-belong-on-the-100-best-restaurants-in-nyc-list.html
@@ -173,14 +177,6 @@ https://www.nytimes.com/2026/05/28/us/politics/trump-dell-stock-purchases.html
 **U.S. and Iran Move Toward Agreement to Reopen the Strait of Hormuz**\
 `President Trump has yet to sign off on an extension of the cease-fire that would allow the two sides to negotiate nuclear and other issues.`\
 https://www.nytimes.com/2026/05/28/world/middleeast/us-iran-war-strait.html
-
-**Man Sentenced to 40 Years in Murders of 4 Sleeping Homeless Men**\
-`The judge who sentenced Randy Rodriguez Santos said his case exemplified the “coming together of three horrible symptoms of this city: homelessness, mental illness and narcotics abuse.”`\
-https://www.nytimes.com/2026/05/28/nyregion/santos-chinatown-homeless-murder.html
-
-**Books Our Editors Loved This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://www.nytimes.com/2026/05/28/books/review/new-recommended-books.html
 
 **Iran War Live Updates: U.S. Officials Say They Are Closing In on Arrangement to Reopen Strait of Hormuz**\
 `President Trump has not signed off on the emerging framework, according to U.S. officials. But it could set the table for extending the cease-fire and more substantive negotiations.`\
