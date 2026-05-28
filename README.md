@@ -1,3 +1,11 @@
+**Today, In Short**\
+`Mogging. Skateboarding. And an investigation into police conduct in Texas schools.`\
+https://www.nytimes.com/2026/05/28/briefing/today-in-short.html
+
+**Three Great Documentaries to Stream**\
+`This month’s picks explore the French legal system, a neighborhood conflict in Florida and the cinema legacy of the Lumière brothers.`\
+https://www.nytimes.com/2026/05/28/movies/documentaries-streaming.html
+
 **Shrimp and White Beans, but on Vacation**\
 `Garlicky shrimp with summer squash and beans puts a seasonal twist on a classic, can’t-miss combination.`\
 https://www.nytimes.com/2026/05/28/dining/shrimp-and-white-beans-but-on-vacation.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/05/28/podcasts/over-20000-restaurants-in-new-york-c
 **What Cubans Really Think About Trump**\
 `A filmmaker asks residents of the embattled island what they would say to the U.S. president.`\
 https://www.nytimes.com/2026/05/28/opinion/cuba-government-us-trump.html
-
-**For Rent: A One-Bedroom Coyote House**\
-`The artist Johnny DeFeo reimagined his wildlife paintings as a tiny adventure house that he constructed high in the New Mexican desert. (Vacationers, check Airbnb.)`\
-https://www.nytimes.com/2026/05/28/arts/design/art-desert-housing-coyote-new-mexico.html
-
-**‘Pressure’ Review: The Weather of War**\
-`Amid the chaos of World War II, this dull film centers on dueling weather reports in the period leading up to D-Day.`\
-https://www.nytimes.com/2026/05/28/movies/pressure-review.html
 
 **Journey to the Melting Continent**\
 `The New York Times went on an expedition to study Antarctica’s fastest-thinning glaciers.`\
