@@ -1,3 +1,7 @@
+**A.I. Is Making Scams Hard to Spot. Here’s How to Protect Yourself.**\
+`A criminal could be masquerading as a celebrity, web store or family member asking for your money. Detecting scams requires a new approach.`\
+https://www.nytimes.com/2026/05/28/technology/personaltech/scams-ai.html
+
 **Today, In Short**\
 `Mogging. Skateboarding. And an investigation into police conduct in Texas schools.`\
 https://www.nytimes.com/2026/05/28/briefing/today-in-short.html

@@ -162,7 +162,7 @@ https://www.nytimes.com/es/2026/05/28/espanol/consejos-nutricion-ia.html
 `A Russian tanker seemingly en route to Cuba with a lifeline of fuel has changed direction, a painful development for the island suffering under a U.S. oil blockade.`\
 https://www.nytimes.com/2026/05/28/world/americas/cuba-oil-russia-tanker.html
 
-**Online Scams Have Evolved in the A.I. Era. Here’s What to Do.**\
+**A.I. Is Making Scams Hard to Spot. Here’s How to Protect Yourself.**\
 `A criminal could be masquerading as a celebrity, web store or family member asking for your money. Detecting scams requires a new approach.`\
 https://www.nytimes.com/2026/05/28/technology/personaltech/scams-ai.html
 

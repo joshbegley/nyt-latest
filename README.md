@@ -1,3 +1,19 @@
+**Pedro Sánchez está más presionado tras el registro policial de la sede del PSOE**\
+`Después de que un juez acusara a su partido de corrupción, el presidente del gobierno español se enfrenta a crecientes peticiones de dimisión.`\
+https://www.nytimes.com/es/2026/05/28/espanol/mundo/pedro-sanchez-psoe-registro.html
+
+**Is Trump the President the Framers Feared?**\
+`The drafters of the Constitution hoped for energetic but accountable presidents.`\
+https://www.nytimes.com/2026/05/28/us/politics/the-docket-trump-founders.html
+
+**Bari Weiss Names Nick Bilton to Lead CBS’s ’60 Minutes’**\
+`Mr. Bilton, a documentarian and former New York Times columnist, said he would bring new voices to the show, which he said was the most important news program in America.`\
+https://www.nytimes.com/2026/05/28/business/media/nick-bilton-60-minutes-bari-weiss.html
+
+**‘Power Ballad’ Review: Hitting All the Wrong Notes**\
+`There are some promising themes in this comedy-drama about an American musician in Dublin, featuring Nick Jonas and Paul Rudd, but the movie never develops them.`\
+https://www.nytimes.com/2026/05/28/movies/power-ballad-review.html
+
 **Today, In Short**\
 `Mogging. Skateboarding. And an investigation into police conduct in Texas schools.`\
 https://www.nytimes.com/2026/05/28/briefing/today-in-short.html
@@ -177,22 +193,6 @@ https://www.nytimes.com/2026/05/28/opinion/military-iran-ukraine-russia-war-dron
 **Cuba acaba de perder una gran oportunidad de obtener combustible**\
 `Un buque petrolero ruso que parecía dirigirse a Cuba con un suministro vital de combustible ha cambiado de dirección, un hecho doloroso para la isla, que sufre un bloqueo petrolero estadounidense.`\
 https://www.nytimes.com/es/2026/05/28/espanol/america-latina/cuba-buque-petroleo-ruso-apagones.html
-
-**Guatemala acuerda ataques conjuntos con EE. UU. contra el narcotráfico**\
-`El acuerdo forma parte de un esfuerzo más ambicioso del gobierno de Trump para presionar a los países latinoamericanos a que acepten operaciones conjuntas dentro de sus territorios.`\
-https://www.nytimes.com/es/2026/05/28/espanol/america-latina/guatemala-ataques-narco-estados-unidos.html
-
-**Guatemala Agrees to Joint Drug Gang Strikes With U.S., Expanding Trump’s Campaign**\
-`The deal is part of a broader effort by the Trump administration to press Latin American countries to agree to joint operations inside their borders.`\
-https://www.nytimes.com/2026/05/28/world/americas/guatemala-us-joint-strikes.html
-
-**The 100 Best NYC Restaurants | Cannonball With Wesley Morris**\
-`Our critics cherry-pick highlights from the “100 Best Restaurants” list.`\
-https://www.nytimes.com/2026/05/28/podcasts/over-20000-restaurants-in-new-york-city-only-one-list.html
-
-**What Cubans Really Think About Trump**\
-`A filmmaker asks residents of the embattled island what they would say to the U.S. president.`\
-https://www.nytimes.com/2026/05/28/opinion/cuba-government-us-trump.html
 
 **Journey to the Melting Continent**\
 `The New York Times went on an expedition to study Antarctica’s fastest-thinning glaciers.`\
