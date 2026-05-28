@@ -1,3 +1,7 @@
+**Justice Dept. Is Said to Open Criminal Inquiry of E. Jean Carroll, Who Accused Trump of Rape**\
+`Ms. Carroll, who prevailed in a civil trial after accusing President Trump of sexual abuse, is the latest target in a Justice Department campaign going after his perceived enemies.`\
+https://www.nytimes.com/2026/05/27/us/politics/criminal-inquiry-e-jean-carroll-trump-accusations.html
+
 **Massie Visits Greene in Costa Rica for Fishing and ‘Spicy’ Political Talks**\
 `The two Republican critics of President Trump — Thomas Massie, who lost his House primary last week, and Marjorie Taylor Greene, who resigned from Congress — met up in the tropics.`\
 https://www.nytimes.com/2026/05/27/us/politics/massie-marjorie-taylor-greene-costa-rica.html

@@ -27,7 +27,7 @@ https://www.nytimes.com/video/opinion/100000010916850/the-ai-tipping-point.html
 https://www.nytimes.com/video/opinion/100000010916816/why-the-liberal-narrative-is-collapsing.html
 
 **Justice Dept. Is Said to Open Criminal Inquiry of E. Jean Carroll, Who Accused Trump of Rape**\
-`The investigation is said to center on whether Ms. Carroll committed perjury in civil lawsuits against Donald J. Trump, whom she accused of sexual assault.`\
+`Ms. Carroll, who prevailed in a civil trial after accusing President Trump of sexual abuse, is the latest target in a Justice Department campaign going after his perceived enemies.`\
 https://www.nytimes.com/2026/05/27/us/politics/criminal-inquiry-e-jean-carroll-trump-accusations.html
 
 **California Tries to Block Trump Involvement in Election Procedures**\
