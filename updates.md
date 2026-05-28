@@ -1,3 +1,15 @@
+**The A.I. Tipping Point?**\
+`A.I. agents are already being used in workplaces. But what happens when they are granted legal personhood? Yuval Noah Harari, the author of “Nexus: A Brief History of Information Networks From the Stone Age to A.I.,” explains on “The Ezra Klein Show.”`\
+https://www.nytimes.com/video/opinion/100000010916850/the-ai-tipping-point.html
+
+**Why the Liberal Narrative Is ‘Collapsing’**\
+`The historian and philosopher Yuval Noah Harari is interested in how stories shape societies. On “The Ezra Klein Show,” he describes the dominant storylines of fascism, Communism and liberalism, and why the liberal narrative is struggling to hold.`\
+https://www.nytimes.com/video/opinion/100000010916816/why-the-liberal-narrative-is-collapsing.html
+
+**U.S. Is Said to Open Criminal Inquiry of E. Jean Carroll Over Accusations Against Trump**\
+`The investigation is said to center on whether Ms. Carroll committed perjury in civil lawsuits against Donald J. Trump, whom she accused of sexual assault.`\
+https://www.nytimes.com/2026/05/27/us/politics/criminal-inquiry-e-jean-carroll-trump-accusations.html
+
 **California Tries to Block Trump Involvement in Election Procedures**\
 `Gov. Gavin Newsom signed legislation that tries to stop outside officials from taking ballots or getting involved in ballot processing.`\
 https://www.nytimes.com/2026/05/27/us/california-election-security-newsom.html

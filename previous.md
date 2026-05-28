@@ -1,3 +1,15 @@
+**The A.I. Tipping Point?**\
+`A.I. agents are already being used in workplaces. But what happens when they are granted legal personhood? Yuval Noah Harari, the author of “Nexus: A Brief History of Information Networks From the Stone Age to A.I.,” explains on “The Ezra Klein Show.”`\
+https://www.nytimes.com/video/opinion/100000010916850/the-ai-tipping-point.html
+
+**Why the Liberal Narrative Is ‘Collapsing’**\
+`The historian and philosopher Yuval Noah Harari is interested in how stories shape societies. On “The Ezra Klein Show,” he describes the dominant storylines of fascism, Communism and liberalism, and why the liberal narrative is struggling to hold.`\
+https://www.nytimes.com/video/opinion/100000010916816/why-the-liberal-narrative-is-collapsing.html
+
+**U.S. Is Said to Open Criminal Inquiry of E. Jean Carroll Over Accusations Against Trump**\
+`The investigation is said to center on whether Ms. Carroll committed perjury in civil lawsuits against Donald J. Trump, whom she accused of sexual assault.`\
+https://www.nytimes.com/2026/05/27/us/politics/criminal-inquiry-e-jean-carroll-trump-accusations.html
+
 **California Tries to Block Trump Involvement in Election Procedures**\
 `Gov. Gavin Newsom signed legislation that tries to stop outside officials from taking ballots or getting involved in ballot processing.`\
 https://www.nytimes.com/2026/05/27/us/california-election-security-newsom.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/05/27/us/politics/reflecting-pool-contractor-trump.
 **Biden Sues Justice Dept. to Block Release of Tapes**\
 `The former president argued that the Justice Department has a responsibility to protect the privacy of conversations he had with a former ghostwriter.`\
 https://www.nytimes.com/2026/05/27/us/politics/biden-justice-dept-tapes.html
-
-**Elecciones en Texas: resultados, la derrota de Cornyn y otras claves**\
-`El historial del presidente Trump de hacer a un lado a quienes considera desleales continuó con la derrota del senador John Cornyn. Otra cuestión es si puede repararse su relación con los republicanos del Senado.`\
-https://www.nytimes.com/es/2026/05/27/espanol/estados-unidos/elecciones-texas-resultados-cornyn.html
-
-**What Iranian State Media Says Is in Outline of ‘Unofficial’ Deal With U.S.**\
-`The White House immediately dismissed the report, which detailed terms for reopening the Strait of Hormuz, as a “complete fabrication.”`\
-https://www.nytimes.com/2026/05/27/world/middleeast/iran-unofficial-deal-strait.html
-
-**Rubio’s India Visit Yields No Major Deals to Repair U.S.-India Relations**\
-`The secretary of state visited India to reassure the South Asian giant that it can still rely on the United States. India did not gain much from the visit.`\
-https://www.nytimes.com/2026/05/27/world/asia/marco-rubio-visit-india-modi-trump.html
 
