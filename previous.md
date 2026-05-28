@@ -1,3 +1,19 @@
+**China prueba su modelo de vigilancia estatal en el extranjero**\
+`Bajo el mandato de Xi Jinping, China ha intentado exportar al mundo sus ideas sobre seguridad y ha llegado a países como las Islas Salomón.`\
+https://www.nytimes.com/es/2026/05/28/espanol/mundo/china-vigilancia-xi.html
+
+**Bare-Knuckle Tactics and Brash Promises: How Howard Lutnick Operates**\
+`Before becoming U.S. commerce secretary, Mr. Lutnick controlled 818 companies. A review of their dealings sheds light on his freewheeling first year in government.`\
+https://www.nytimes.com/2026/05/28/nyregion/lutnick-commerce-companies-business.html
+
+**NYT Spelling Bee Answers for May 28, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/28/crosswords/spelling-bee-forum.html
+
+**4 Takeaways From The Times’s Reporting on Howard Lutnick**\
+`The New York Times examined the dealings of 818 companies controlled by the U.S. commerce secretary, documenting a history of bare-knuckle tactics that extended into his time in government.`\
+https://www.nytimes.com/2026/05/28/nyregion/lutnick-business-takeaways.html
+
 **Jimmy Kimmel Can Hardly Believe the Reality of L.A.’s Mayoral Race**\
 `“Mayor should not be your first job,” the host said of the former reality show star and mayoral candidate Spencer Pratt, who is polling in second place.`\
 https://www.nytimes.com/2026/05/28/arts/television/late-night-trump-spencer-pratt-mayor.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/05/27/us/politics/paxton-cornyn-texas-republican-pr
 **Man Charged With Hate-Crime Killing of Gay Dancer Claims Self-Defense**\
 `Dmitriy Popov was 17 when he stabbed O’Shae Sibley, a 28-year-old dancer, at a gas station. Mr. Popov has been charged with murder as a hate crime.`\
 https://www.nytimes.com/2026/05/27/nyregion/oshae-sibley-brooklyn-murder-trial.html
-
-**Vote on Trans Athlete Ban Is Canceled Over Suspect Signatures**\
-`The secretary of state, a Democrat, cited evidence that thousands of petition signatures submitted by the measure’s proponents were not valid.`\
-https://www.nytimes.com/2026/05/27/us/maine-transgender-sports-ballot-question.html
-
-**Former Judges Urge Inquiry Into Deal Trump Struck With I.R.S.**\
-`The motion was particularly significant because it asked the judge overseeing the initial suit against the I.R.S. to examine the terms of the deal.`\
-https://www.nytimes.com/2026/05/27/us/politics/judges-trump-deal-irs.html
-
-**See Where the Gerrymandering Wars Have Redrawn U.S. Congressional Maps**\
-`Eight states have redrawn their district lines since last summer, and two more are pushing to use new maps ahead of the midterm elections.`\
-https://www.nytimes.com/interactive/2026/us/politics/states-gerrymandering-redistricting-maps.html
-
-**Canadá exportará gas natural licuado a Alemania**\
-`El acuerdo es importante para ambas naciones, ya que Canadá busca nuevos mercados lejos de Estados Unidos mientras que Alemania intenta diversificar su suministro energético.`\
-https://www.nytimes.com/es/2026/05/27/espanol/mundo/canada-alemania-gas.html
 

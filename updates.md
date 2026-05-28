@@ -1,3 +1,19 @@
+**China prueba su modelo de vigilancia estatal en el extranjero**\
+`Bajo el mandato de Xi Jinping, China ha intentado exportar al mundo sus ideas sobre seguridad y ha llegado a países como las Islas Salomón.`\
+https://www.nytimes.com/es/2026/05/28/espanol/mundo/china-vigilancia-xi.html
+
+**Bare-Knuckle Tactics and Brash Promises: How Howard Lutnick Operates**\
+`Before becoming U.S. commerce secretary, Mr. Lutnick controlled 818 companies. A review of their dealings sheds light on his freewheeling first year in government.`\
+https://www.nytimes.com/2026/05/28/nyregion/lutnick-commerce-companies-business.html
+
+**NYT Spelling Bee Answers for May 28, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/28/crosswords/spelling-bee-forum.html
+
+**4 Takeaways From The Times’s Reporting on Howard Lutnick**\
+`The New York Times examined the dealings of 818 companies controlled by the U.S. commerce secretary, documenting a history of bare-knuckle tactics that extended into his time in government.`\
+https://www.nytimes.com/2026/05/28/nyregion/lutnick-business-takeaways.html
+
 **Jimmy Kimmel Can Hardly Believe the Reality of L.A.’s Mayoral Race**\
 `“Mayor should not be your first job,” the host said of the former reality show star and mayoral candidate Spencer Pratt, who is polling in second place.`\
 https://www.nytimes.com/2026/05/28/arts/television/late-night-trump-spencer-pratt-mayor.html
