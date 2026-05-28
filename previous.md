@@ -1,3 +1,7 @@
+**¿Rusia podría atacar con más fuerza? Al menos quiere que eso piense Ucrania**\
+`Los grandes ataques contra Kiev, seguidos de advertencias de que habrá más, se producen mientras Moscú está estancado en el campo de batalla y en la mesa de negociaciones.`\
+https://www.nytimes.com/es/2026/05/28/espanol/mundo/rusia-ataques-ucrania.html
+
 **The Harambe Tapes: Unearthing a Viral Gorilla’s Hidden Last Days**\
 `Ten years after Harambe’s death, a whistleblower from the Cincinnati Zoo tells all.`\
 https://www.nytimes.com/2026/05/28/podcasts/the-harambe-tapes-unearthing-a-viral-gorillas-hidden-last-days.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/28/movies/backrooms-review-lost-in-the-expansion
 **36 Hours in Dallas, Texas: Things to Do and See**\
 `Between Tex-Mex restaurants, dive bars with live music, shopping and art museums, there’s plenty to keep you busy.`\
 https://www.nytimes.com/interactive/2026/05/28/travel/things-to-do-dallas.html
-
-**Why Garry Trudeau Finally O.K.’d a Biography**\
-`Back at the Yale library that holds his archive, the low-key creator of “Doonesbury” reunites with the journalist who pieced together his life story.`\
-https://www.nytimes.com/2026/05/28/books/review/garry-trudeau-doonesbury-biography.html
 
