@@ -8,7 +8,7 @@ https://www.nytimes.com/2026/05/28/briefing/iran-inflation-spelling-bee.html
 
 **A Draft U.S.-Iran Plan Is Said to Be on the Table. Here’s What to Know.**\
 `U.S. and Iranian officials say they are closing in on the terms of a preliminary agreement. Yet sticking points, particularly over the Strait of Hormuz, remain.`\
-https://www.nytimes.com/2026/05/28/world/middleeast/draft-agreement-iran-us.html
+https://www.nytimes.com/2026/05/28/world/middleeast/iran-us-agreement-plan.html
 
 **Trump Administration Shows Off $250 Bill Featuring Trump**\
 `During a press conference at the White House on Thursday, Treasury Secretary Scott Bessent displayed a mocked-up $250 bill bearing President Trump’s likeness.`\

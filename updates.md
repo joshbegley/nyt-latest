@@ -1,3 +1,15 @@
+**Late May Storm Brings Rain and Snow to Northern California**\
+`San Francisco received nearly as much rain one morning as it would typically see for the month, and a slope in the Sierra Nevada remained open for skiing.`\
+https://www.nytimes.com/2026/05/28/weather/may-snow-rain-california.html
+
+**U.S. and Iran Draft Cease-Fire Extension**\
+`Plus, the Scripps National Spelling Bee. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/05/28/briefing/iran-inflation-spelling-bee.html
+
+**A Draft U.S.-Iran Plan Is Said to Be on the Table. Here’s What to Know.**\
+`U.S. and Iranian officials say they are closing in on the terms of a preliminary agreement. Yet sticking points, particularly over the Strait of Hormuz, remain.`\
+https://www.nytimes.com/2026/05/28/world/middleeast/draft-agreement-iran-us.html
+
 **Trump Administration Shows Off $250 Bill Featuring Trump**\
 `During a press conference at the White House on Thursday, Treasury Secretary Scott Bessent displayed a mocked-up $250 bill bearing President Trump’s likeness.`\
 https://www.nytimes.com/video/us/politics/100000010931638/bessent-treasury-trump-250-bill.html

@@ -1,3 +1,15 @@
+**Late May Storm Brings Rain and Snow to Northern California**\
+`San Francisco received nearly as much rain one morning as it would typically see for the month, and a slope in the Sierra Nevada remained open for skiing.`\
+https://www.nytimes.com/2026/05/28/weather/may-snow-rain-california.html
+
+**U.S. and Iran Draft Cease-Fire Extension**\
+`Plus, the Scripps National Spelling Bee. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/05/28/briefing/iran-inflation-spelling-bee.html
+
+**A Draft U.S.-Iran Plan Is Said to Be on the Table. Here’s What to Know.**\
+`U.S. and Iranian officials say they are closing in on the terms of a preliminary agreement. Yet sticking points, particularly over the Strait of Hormuz, remain.`\
+https://www.nytimes.com/2026/05/28/world/middleeast/draft-agreement-iran-us.html
+
 **Trump Administration Shows Off $250 Bill Featuring Trump**\
 `During a press conference at the White House on Thursday, Treasury Secretary Scott Bessent displayed a mocked-up $250 bill bearing President Trump’s likeness.`\
 https://www.nytimes.com/video/us/politics/100000010931638/bessent-treasury-trump-250-bill.html
@@ -177,18 +189,6 @@ https://www.nytimes.com/2026/05/28/business/media/trump-wsj-defamation-suit-10-b
 **Trump’s Retribution Comes to Texas as Paxton Defeats Cornyn**\
 `Readers discuss Senator John Cornyn’s loss to Ken Paxton in Tuesday’s Republican primary. Also: Investigating E. Jean Carroll; Mets and Knicks; religion and A.I.`\
 https://www.nytimes.com/2026/05/28/opinion/trump-texas-paxton-cornyn.html
-
-**Carney Says That Canada’s Distancing is Good for U.S. in New York Speech**\
-`Speaking in New York, the Canadian prime minister called for a new relationship between Canada and United States.`\
-https://www.nytimes.com/2026/05/28/world/canada/carney-united-states-canada-trump.html
-
-**How We Investigated Police Use of Force in Texas Schools**\
-`Reporters tallied thousands of incidents and read hundreds of police reports documenting the heavy-handed tactics used on students.`\
-https://www.nytimes.com/2026/05/28/insider/police-force-texas-schools.html
-
-**Pedro Sánchez está más presionado tras el registro policial de la sede del PSOE**\
-`Después de que un juez acusara a su partido de corrupción, el presidente del gobierno español se enfrenta a crecientes peticiones de dimisión.`\
-https://www.nytimes.com/es/2026/05/28/espanol/mundo/pedro-sanchez-psoe-registro.html
 
 **Iran War Live Updates: U.S. Officials Say They Are Closing In on Arrangement to Reopen Strait of Hormuz**\
 `President Trump has not signed off on the emerging framework, according to U.S. officials. But it could set the table for extending the cease-fire and more substantive negotiations.`\
