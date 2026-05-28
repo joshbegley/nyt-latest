@@ -1,3 +1,7 @@
+**Trump Administration Shows Off $250 Bill Featuring Trump**\
+`During a press conference at the White House on Thursday, Treasury Secretary Scott Bessent displayed a mocked-up $250 bill bearing President Trump’s likeness.`\
+https://www.nytimes.com/video/us/politics/100000010931638/bessent-treasury-trump-250-bill.html
+
 **Fire Erupts in Dallas Apartment Building**\
 `Video captured flames engulfing an apartment building in Dallas on Thursday.`\
 https://www.nytimes.com/video/us/100000010931758/fire-dallas-apartment-building.html
@@ -185,14 +189,6 @@ https://www.nytimes.com/2026/05/28/insider/police-force-texas-schools.html
 **Pedro Sánchez está más presionado tras el registro policial de la sede del PSOE**\
 `Después de que un juez acusara a su partido de corrupción, el presidente del gobierno español se enfrenta a crecientes peticiones de dimisión.`\
 https://www.nytimes.com/es/2026/05/28/espanol/mundo/pedro-sanchez-psoe-registro.html
-
-**Is Trump the President the Framers Feared?**\
-`The drafters of the Constitution hoped for energetic but accountable presidents.`\
-https://www.nytimes.com/2026/05/28/us/politics/the-docket-trump-founders.html
-
-**Bari Weiss Names Nick Bilton to Lead CBS’s ‘60 Minutes’ in Major Shake-Up**\
-`Bari Weiss, CBS’s editor in chief, named Nick Bilton, a tech journalist and filmmaker, as the show’s executive producer. The network also fired two on-air correspondents.`\
-https://www.nytimes.com/2026/05/28/business/media/nick-bilton-60-minutes-bari-weiss.html
 
 **Iran War Live Updates: U.S. Officials Say They Are Closing In on Arrangement to Reopen Strait of Hormuz**\
 `President Trump has not signed off on the emerging framework, according to U.S. officials. But it could set the table for extending the cease-fire and more substantive negotiations.`\

@@ -1,3 +1,15 @@
+**Fire Erupts in Dallas Apartment Building**\
+`Video captured flames engulfing an apartment building in Dallas on Thursday.`\
+https://www.nytimes.com/video/us/100000010931758/fire-dallas-apartment-building.html
+
+**Scripps Spelling Bee Live Updates: Students Vie for Top Prize**\
+`Nine contestants will compete against one another — and the dictionary. The finals begin at 8 p.m. Eastern time.`\
+https://www.nytimes.com/live/2026/05/28/us/scripps-spelling-bee
+
+**A Democrat’s Dodge on AIPAC Points to the Party’s Tensions Over Israel**\
+`A key moment at a Senate primary debate in Michigan showed how pro-Israel Democrats are approaching the issue with caution.`\
+https://www.nytimes.com/2026/05/28/us/politics/el-sayed-stevens-mcmorrow-democrats-senate-israel.html
+
 **Bari Weiss Names Nick Bilton to Lead CBS’s ‘60 Minutes’ in Major Shake-Up**\
 `Bari Weiss, CBS’s editor in chief, named Nick Bilton, a tech journalist and filmmaker, as the show’s executive producer. The network also fired two on-air correspondents.`\
 https://www.nytimes.com/2026/05/28/business/media/nick-bilton-60-minutes-bari-weiss.html
