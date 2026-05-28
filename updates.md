@@ -1,3 +1,11 @@
+**With Pitchford v. Cain, The Supreme Court Protected Jury Rights. Now It Must Go Further.**\
+`All Americans benefit from the outcome of this case. And yet the decision highlights just how much work still needs to be done.`\
+https://www.nytimes.com/2026/05/28/opinion/supreme-court-jury-discrimination.html
+
+**ABC Accuses Media Regulator of Threatening Its Licenses**\
+`The TV network slammed the Federal Communications Commission, saying the regulator was targeting its station licenses in a campaign of “unconstitutional retaliation.”`\
+https://www.nytimes.com/2026/05/28/business/media/abc-licenses-fcc-brendan-carr.html
+
 **Does a Taco Truck Belong on ‘The 100 Best Restaurants in N.Y.C.’ List?**\
 `Wesley Morris and The Times’s restaurant critic Ligaya Mishan discuss why a fine-dining establishment could be ranked alongside a taco truck on the “100 Best Restaurants” list.`\
 https://www.nytimes.com/video/podcasts/100000010931924/does-a-taco-truck-belong-on-the-100-best-restaurants-in-nyc-list.html
