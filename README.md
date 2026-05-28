@@ -1,3 +1,11 @@
+**El Departamento de Justicia pone la mira sobre E. Jean Carroll de nuevo**\
+`Carroll, quien ganó un juicio civil tras acusar al presidente de los EE. UU. de abuso sexual, es objeto de una campaña de un gobierno que quiere cazar a supuestos enemigos.`\
+https://www.nytimes.com/es/2026/05/28/espanol/estados-unidos/trump-carroll-abuso-sexual.html
+
+**Memphis Residents Sue Federal Agents Over Arrest Tactics Amid Crime and Immigration Crackdown**\
+`A federal task force in the city has been targeting crime and undocumented immigrants since October. Observers say they have faced retaliation for trying to track the agents’ work.`\
+https://www.nytimes.com/2026/05/28/us/memphis-arrest-tactics-lawsuit.html
+
 **Supreme Court Says Death Row Inmate Can Challenge Exclusion of Black Jurors**\
 `Terry Pitchford was convicted in 2006 for his role in the murder of a shopkeeper by a 12-member jury that included one Black member.`\
 https://www.nytimes.com/2026/05/28/us/politics/supreme-court-black-jurors.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/05/28/world/asia/kim-soo-hyun-youtube-arrest.html
 **A Violent Education**\
 `We look at an extraordinary investigation into police officers in Texas schools.`\
 https://www.nytimes.com/2026/05/28/briefing/a-violent-education.html
-
-**These Are Some of the Trump Justice Dept.’s Targets**\
-`When he returned to office, President Trump vowed revenge against those he said had challenged or defied him. Here’s an incomplete list of the people his Justice Department has targeted.`\
-https://www.nytimes.com/2026/05/28/us/trump-justice-dept-criminal-investigations.html
-
-**Florentina Holzinger’s 9-Hour Spectacle Pushes the Limits of Body Art**\
-`The choreographer-provocateur followed a hit show at the Venice Biennale with one in Vienna. “Violence is something we’re used to,” she said.`\
-https://www.nytimes.com/2026/05/28/arts/design/florentina-holzinger-pentecost-play-vienna.html
 
 **Iran War Live Updates: U.S. Officials Say They Are Closing In on Arrangement to Reopen Strait of Hormuz**\
 `President Trump has not signed off on the emerging framework, according to U.S. officials. But it could set the table for extending the cease-fire and more substantive negotiations.`\
