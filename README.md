@@ -1,3 +1,7 @@
+**Totó la Momposina, Colombian Folk Music Star, Dies at 85**\
+`Timbaland, Jay-Z and Major Lazer sampled her work, and she received a lifetime achievement award from the Latin Grammys in 2013.`\
+https://www.nytimes.com/2026/05/28/arts/music/toto-la-momposina-dead.html
+
 **Anthropic Unveils Claude Opus 4.8, a New, More Powerful Model**\
 `The new system, called Opus 4.8, tops industry standard benchmarks in areas related to computer programming.`\
 https://www.nytimes.com/2026/05/28/technology/anthropic-claude-opus-48.html
@@ -6,7 +10,7 @@ https://www.nytimes.com/2026/05/28/technology/anthropic-claude-opus-48.html
 `Sweet potatoes slathered in tahini butter, tahini and chocolate chunk cake and more vehicles for my ride-or-die ingredient.`\
 https://www.nytimes.com/2026/05/28/dining/if-tahini-has-no-fans-im-dead.html
 
-**Everlane Co-founder, Shocked by Shein Acquisition, Wants a Redo**\
+**Everlane Co-Founder, Shocked by Shein Acquisition, Wants a Redo**\
 `Michael Preysman, who ran the brand for a decade, can’t believe what happened to the company he built. Can he start over?`\
 https://www.nytimes.com/2026/05/28/business/everlane-co-founder-shein-acquisition.html
 
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/05/28/world/europe/ukraine-war-street-style-fashion
 **El multimillonario tecnológico Peter Thiel encuentra un nuevo refugio: Argentina**\
 `Se ha dicho que la llegada del empresario al país sudamericano está motivado en parte por su preocupación por el futuro de Estados Unidos y por compartir ideología con el presidente Javier Milei.`\
 https://www.nytimes.com/es/2026/05/28/espanol/america-latina/peter-thiel-argentina-milei.html
-
-**What Orchestras and Singers Gain Through Operas in Concert**\
-`The Cleveland Orchestra’s recent performances of Beethoven’s “Fidelio” join concerts that fill a gap in American opera.`\
-https://www.nytimes.com/2026/05/28/arts/music/fidelio-cleveland-orchestra.html
 
 **Journey to the Melting Continent**\
 `The New York Times went on an expedition to study Antarctica’s fastest-thinning glaciers.`\
