@@ -1,3 +1,11 @@
+**Fire at School Dormitory in Kenya Kills Several Students**\
+`It was not immediately clear what caused the blaze, which was the latest in a series of deadly fires at schools in the country in recent years.`\
+https://www.nytimes.com/2026/05/28/world/africa/kenya-school-fire.html
+
+**Scientists Find a Potential Cure for Chronic Hepatitis B**\
+`Most people recover from the infection, but it poses great risks for those who don’t. A new drug may cure 1 in 5 of these patients.`\
+https://www.nytimes.com/2026/05/28/health/hepatitis-b-chronic-bepirovirsen.html
+
 **Por qué los brotes de ébola y hantavirus han confundido a los científicos**\
 `Las noticias sobre los más recientes brotes de virus en el mundo no solo han sido aterradoras, sino también confusas, incluso para los científicos.`\
 https://www.nytimes.com/es/2026/05/28/espanol/ciencia-y-tecnologia/ebola-hantavirus-tratamiento-tipos.html
