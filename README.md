@@ -1,3 +1,7 @@
+**Trump Wants to ‘Take Cuba.’ These Cubans Have Thoughts.**\
+`A filmmaker asks residents of the embattled island what they would say to the U.S. president.`\
+https://www.nytimes.com/video/opinion/editorials/100000010926338/trump-wants-to-take-cuba-these-cubans-have-thoughts.html
+
 **Australia Sues 3M for $1.4 Billion Over ‘Forever Chemicals’**\
 `The lawsuit, the largest ever filed by the Australian government, claims 3M hid information about the harmful effects of PFAS used at military bases.`\
 https://www.nytimes.com/2026/05/28/business/australia-lawsuit-3m-psas.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/05/27/espanol/estados-unidos/texas-escu
 **Texas School Police Pepper-Sprayed, Tackled and Tasered Students**\
 `School officers across the state turned to heavy-handed tactics on children, often in response to minor misbehavior, our investigation shows.`\
 https://www.nytimes.com/interactive/2026/05/27/us/texas-schools-police-force-students-uvalde.html
-
-**Trump Threatens Oman Over the Strait, Then Says, ‘They’ll Be Fine.’**\
-`President Trump said there would be serious repercussions if Iran and Oman move forward with a deal to open the Strait of Hormuz.`\
-https://www.nytimes.com/2026/05/27/world/middleeast/trump-oman-strait-hormuz.html
 
