@@ -1,3 +1,7 @@
+**Word of the Day: risible**\
+`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/05/28/learning/word-of-the-day-risible.html
+
 **Iran War Live Updates: Iranian Military Says It Targeted a U.S. Base in Retaliation for Strikes**\
 `Iran’s Islamic Revolutionary Guards Corps did not say which base it had targeted early Thursday, after U.S. strikes in the country’s south. The exchanges threaten a fragile cease-fire.`\
 https://www.nytimes.com/live/2026/05/28/world/iran-war-us-trump-deal
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/05/27/espanol/mundo/canada-alemania-gas.html
 **A.I. Money From I.P.O.s Will Change Philanthropy**\
 `Silicon Valley is about to get a lot more liquid. What will it spend its money on?`\
 https://www.nytimes.com/2026/05/27/opinion/ai-philanthropy-charity.html
-
-**Bribery Indictments Are Dismissed in Case That Shook Soccer World**\
-`The decision marked an end to a significant part of a broader corruption investigation that rocked the soccer world more than a decade ago.`\
-https://www.nytimes.com/2026/05/27/nyregion/fifa-indictments-soccer-dismissed.html
 
