@@ -1,3 +1,7 @@
+**Watchdog Agency Seeks to Reverse Its Win Against Firm Run by Winklevoss Twins**\
+`The Commodity Futures Trading Commission filed jointly with a company run by the Winklevoss twins to overturn their settlement.`\
+https://www.nytimes.com/2026/05/28/us/politics/cftc-gemini-winklevoss-lawsuit.html
+
 **Supreme Court Says Death Row Inmate Can Challenge Exclusion of Black Jurors**\
 `Terry Pitchford was convicted in 2006 for his role in the murder of a shopkeeper by a 12-member jury that included one Black member.`\
 https://www.nytimes.com/2026/05/28/us/politics/supreme-court-black-jurors.html

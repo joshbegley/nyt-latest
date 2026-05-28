@@ -190,9 +190,9 @@ https://www.nytimes.com/2026/05/28/us/trump-justice-dept-criminal-investigations
 `The choreographer-provocateur followed a hit show at the Venice Biennale with one in Vienna. “Violence is something we’re used to,” she said.`\
 https://www.nytimes.com/2026/05/28/arts/design/florentina-holzinger-pentecost-play-vienna.html
 
-**Temu Hit With Fine in E.U. Over Sales of Unsafe Goods**\
-`The Chinese e-commerce platform faces a penalty of more than $230 million for selling baby toys and other products the European Commission said could harm consumers.`\
-https://www.nytimes.com/2026/05/28/business/temu-fine-european-union.html
+**Iran War Live Updates: U.S. Officials Say They Are Closing In on Arrangement to Reopen Strait of Hormuz**\
+`President Trump has not signed off on the emerging framework, according to U.S. officials. But it could set the table for extending the cease-fire and more substantive negotiations.`\
+https://www.nytimes.com/live/2026/05/28/world/iran-war-us-trump-deal
 
 **Journey to the Melting Continent**\
 `The New York Times went on an expedition to study Antarctica’s fastest-thinning glaciers.`\

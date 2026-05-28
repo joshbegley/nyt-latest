@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/05/28/business/media/the-washington-star-newspaper-
 `The ancients developed punctuation to create clarity, the Supreme Court used it to create confusion.`\
 https://www.nytimes.com/2026/05/28/opinion/punctuation-supreme-court-guns.html
 
-**Watchdog Agency Seeks to Reverse Its Own Win Against a Crypto Firm**\
+**Watchdog Agency Seeks to Reverse Its Win Against Firm Run by Winklevoss Twins**\
 `The Commodity Futures Trading Commission filed jointly with a company run by the Winklevoss twins to overturn their settlement.`\
 https://www.nytimes.com/2026/05/28/us/politics/cftc-gemini-winklevoss-lawsuit.html
 
