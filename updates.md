@@ -1,3 +1,23 @@
+**These Are Some of the Trump Justice Dept.’s Targets**\
+`When he returned to office, President Trump vowed revenge against those he said had challenged or defied him. Here’s an incomplete list of the people his Justice Department has targeted.`\
+https://www.nytimes.com/2026/05/28/us/trump-justice-dept-criminal-investigations.html
+
+**Florentina Holzinger’s 9-Hour Spectacle Pushes the Limits of Body Art**\
+`The choreographer-provocateur followed a hit show at the Venice Biennale with one in Vienna. “Violence is something we’re used to,” she said.`\
+https://www.nytimes.com/2026/05/28/arts/design/florentina-holzinger-pentecost-play-vienna.html
+
+**Temu Hit With Fine in E.U. Over Sales of Unsafe Goods**\
+`The Chinese e-commerce platform faces a penalty of more than $230 million for selling baby toys and other products the European Commission said could harm consumers.`\
+https://www.nytimes.com/2026/05/28/business/temu-fine-european-union.html
+
+**What Cubans Really Think About Trump**\
+`A filmmaker asks residents of the embattled island what they would say to the U.S. president.`\
+https://www.nytimes.com/2026/05/28/opinion/cuba-government-us-trump.html
+
+**He’s Entitled and Nepotistic. This Is Not What Democrats Need.**\
+`Members of the country’s grandest political dynasty are not inherently qualified to hold office.`\
+https://www.nytimes.com/2026/05/28/opinion/kennedy-jack-schlossberg-political-dynasty.html
+
 **Why Texas Students Are Being Tackled and Tasered, and Trump’s Latest Target for Retribution**\
 `Plus, inside the hunt for cheap gas.`\
 https://www.nytimes.com/2026/05/28/podcasts/the-headlines/texas-students-tasered-trump-retribution.html

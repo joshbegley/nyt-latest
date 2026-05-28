@@ -1,3 +1,15 @@
+**These Are Some of the Trump Justice Dept.’s Targets**\
+`When he returned to office, President Trump vowed revenge against those he said had challenged or defied him. Here’s an incomplete list of the people his Justice Department has targeted.`\
+https://www.nytimes.com/2026/05/28/us/trump-justice-dept-criminal-investigations.html
+
+**Florentina Holzinger’s 9-Hour Spectacle Pushes the Limits of Body Art**\
+`The choreographer-provocateur followed a hit show at the Venice Biennale with one in Vienna. “Violence is something we’re used to,” she said.`\
+https://www.nytimes.com/2026/05/28/arts/design/florentina-holzinger-pentecost-play-vienna.html
+
+**Temu Hit With Fine in E.U. Over Sales of Unsafe Goods**\
+`The Chinese e-commerce platform faces a penalty of more than $230 million for selling baby toys and other products the European Commission said could harm consumers.`\
+https://www.nytimes.com/2026/05/28/business/temu-fine-european-union.html
+
 **Why Texas Students Are Being Tackled and Tasered, and Trump’s Latest Target for Retribution**\
 `Plus, inside the hunt for cheap gas.`\
 https://www.nytimes.com/2026/05/28/podcasts/the-headlines/texas-students-tasered-trump-retribution.html
@@ -90,7 +102,7 @@ https://www.nytimes.com/2026/05/28/world/americas/guatemala-us-joint-strikes.htm
 `Our critics cherry-pick highlights from the “100 Best Restaurants” list.`\
 https://www.nytimes.com/2026/05/28/podcasts/over-20000-restaurants-in-new-york-city-only-one-list.html
 
-**Trump Wants to ‘Take Cuba.’ These Cubans Have Thoughts.**\
+**What Cubans Really Think About Trump**\
 `A filmmaker asks residents of the embattled island what they would say to the U.S. president.`\
 https://www.nytimes.com/2026/05/28/opinion/cuba-government-us-trump.html
 
@@ -146,7 +158,7 @@ https://www.nytimes.com/2026/05/28/business/media/streaming-tv-hulu-disney-hbo.h
 `On Thursday and Friday, some streets in Manhattan will get a lot more crowded as people gather to watch the city’s unique solar spectacle.`\
 https://www.nytimes.com/2026/05/28/science/manhattanhenge-new-york-city.html
 
-**Enough With the Kennedys**\
+**He’s Entitled and Nepotistic. This Is Not What Democrats Need.**\
 `Members of the country’s grandest political dynasty are not inherently qualified to hold office.`\
 https://www.nytimes.com/2026/05/28/opinion/kennedy-jack-schlossberg-political-dynasty.html
 
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/05/28/movies/propeller-one-way-night-coach-review.h
 **‘Miss You, Love You’ Review: A Son Outsources His Solace**\
 `The mourning process feels theatrical in this dramedy starring Allison Janney as a new widow estranged from her son.`\
 https://www.nytimes.com/2026/05/28/movies/miss-you-love-you-review-a-son-outsources-his-solace.html
-
-**‘The Last Viking’ Review: Imagine Mads Mikkelsen**\
-`Mikkelsen plays a man convinced he’s John Lennon in a darkly comic crime film from the Danish auteur Anders Thomas Jensen.`\
-https://www.nytimes.com/2026/05/28/movies/the-last-viking-review.html
-
-**‘Forastera’ Review: An Exquisitely Deconstructed Ghost Story**\
-`A teenager affects aspects of her late grandmother in this beguiling first feature set on the island of Mallorca.`\
-https://www.nytimes.com/2026/05/28/movies/forastera-review.html
-
-**Not Every Language Has Spelling Bees. Here’s Why English Is Perfect for Them.**\
-`English’s hybrid history, silent letters and overcomplicated rules are what make the competition fierce.`\
-https://www.nytimes.com/2026/05/28/magazine/spelling-bee-scripps-english-language.html
 
