@@ -1,3 +1,7 @@
+**Iran War Live Updates: Iranian Military Says It Targeted a U.S. Base in Retaliation for Strikes**\
+`Iran’s Islamic Revolutionary Guards Corps did not say which base it had targeted early Thursday, after U.S. strikes in the country’s south. The exchanges threaten a fragile cease-fire.`\
+https://www.nytimes.com/live/2026/05/28/world/iran-war-us-trump-deal
+
 **Oil Prices Climb and Stocks Fall After U.S. Strikes Iranian Drones**\
 `Oil prices jumped after the U.S. said it shot down four Iranian attack drones, casting doubt once again on the prospects for a peace deal.`\
 https://www.nytimes.com/2026/05/28/business/oil-gas-price-iran.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/27/opinion/ai-philanthropy-charity.html
 **Bribery Indictments Are Dismissed in Case That Shook Soccer World**\
 `The decision marked an end to a significant part of a broader corruption investigation that rocked the soccer world more than a decade ago.`\
 https://www.nytimes.com/2026/05/27/nyregion/fifa-indictments-soccer-dismissed.html
-
-**KFF’s Chief Executive to Retire**\
-`Drew Altman, who transformed KFF from a little-known family foundation to a major source of U.S. health policy research, will step down at the end of the year.`\
-https://www.nytimes.com/2026/05/27/business/media/kff-drew-altman.html
 
