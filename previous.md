@@ -15,7 +15,7 @@ https://www.nytimes.com/2026/05/28/business/bp-chair-albert-manifold.html
 https://www.nytimes.com/interactive/polls/florida-us-house-13-polls-2026.html
 
 **Iran War Lifts a Second Inflation Reading to Highest Level Since 2023**\
-`Officials at the central bank have embraced the possibility of higher interest rates to get resurgent price pressures under control.`\
+`Officials at the central bank have embraced the possibility of higher interest rates to get resurgent inflation under control.`\
 https://www.nytimes.com/2026/05/28/business/inflation-pce-gauge.html
 
 **Deadly Fire Breaks Out in Boarding School Dormitory in Kenya**\

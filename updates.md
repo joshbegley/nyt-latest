@@ -1,3 +1,7 @@
+**Iran War Lifts a Second Inflation Reading to Highest Level Since 2023**\
+`Officials at the central bank have embraced the possibility of higher interest rates to get resurgent inflation under control.`\
+https://www.nytimes.com/2026/05/28/business/inflation-pce-gauge.html
+
 **Pressure Grows on Spain’s Leader After Police Search His Party Office**\
 `After a judge accused his party of corruption, Prime Minister Pedro Sánchez of Spain has faced mounting calls to resign.`\
 https://www.nytimes.com/2026/05/28/world/europe/spain-sanchez-socialist-party-raid.html
