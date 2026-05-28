@@ -1,3 +1,11 @@
+**Trump’s Retribution Comes to Texas as Paxton Defeats Cornyn**\
+`Readers discuss Senator John Cornyn’s loss to Ken Paxton in Tuesday’s Republican primary. Also: Investigating E. Jean Carroll; Mets and Knicks; religion and A.I.`\
+https://www.nytimes.com/2026/05/28/opinion/trump-texas-paxton-cornyn.html
+
+**Mark Carney Says Canada’s Distancing from the U.S. is Good for Both Nations**\
+`Speaking in New York, the Canadian prime minister called for a new relationship between Canada and United States.`\
+https://www.nytimes.com/2026/05/28/world/canada/carney-united-states-canada-trump.html
+
 **How We Investigated Police Use of Force in Texas Schools**\
 `Reporters tallied thousands of incidents and read hundreds of police reports documenting the heavy-handed tactics used on students.`\
 https://www.nytimes.com/2026/05/28/insider/police-force-texas-schools.html
@@ -11,7 +19,7 @@ https://www.nytimes.com/es/2026/05/28/espanol/mundo/pedro-sanchez-psoe-registro.
 https://www.nytimes.com/2026/05/28/us/politics/the-docket-trump-founders.html
 
 **Bari Weiss Names Nick Bilton to Lead CBS’s ’60 Minutes’**\
-`Mr. Bilton, a documentarian and former New York Times columnist, said he would bring new voices to the show, which he said was the most important news program in America.`\
+`Mr. Bilton, a tech journalist and filmmaker, said he would bring new voices to the show. The overhaul by Bari Weiss, CBS’s editor in chief, included the firing of the correspondent Cecilia Vega.`\
 https://www.nytimes.com/2026/05/28/business/media/nick-bilton-60-minutes-bari-weiss.html
 
 **‘Power Ballad’ Review: Hitting All the Wrong Notes**\
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/05/28/world/americas/cuba-oil-russia-tanker.html
 **A.I. Is Making Scams Hard to Spot. Here’s How to Protect Yourself.**\
 `A criminal could be masquerading as a celebrity, web store or family member asking for your money. Detecting scams requires a new approach.`\
 https://www.nytimes.com/2026/05/28/technology/personaltech/scams-ai.html
-
-**After a Breakup, an American Started Fresh in Amsterdam**\
-`Needing a new place fast, an art curator who’d been living in Utrecht decamped to the Dutch capital with about $350,000 to spend. She saw studios in three intriguing neighborhoods.`\
-https://www.nytimes.com/interactive/2026/05/28/realestate/amsterdam-real-estate.html
-
-**Our Military Is Built for the Wrong Century**\
-`Ukraine and Iran have shown us that war as we’ve known it is over.`\
-https://www.nytimes.com/2026/05/28/opinion/military-iran-ukraine-russia-war-drones.html
 
 **Journey to the Melting Continent**\
 `The New York Times went on an expedition to study Antarctica’s fastest-thinning glaciers.`\

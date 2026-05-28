@@ -1,3 +1,15 @@
+**Trump’s Retribution Comes to Texas as Paxton Defeats Cornyn**\
+`Readers discuss Senator John Cornyn’s loss to Ken Paxton in Tuesday’s Republican primary. Also: Investigating E. Jean Carroll; Mets and Knicks; religion and A.I.`\
+https://www.nytimes.com/2026/05/28/opinion/trump-texas-paxton-cornyn.html
+
+**Mark Carney Says Canada’s Distancing from the U.S. is Good for Both Nations**\
+`Speaking in New York, the Canadian prime minister called for a new relationship between Canada and United States.`\
+https://www.nytimes.com/2026/05/28/world/canada/carney-united-states-canada-trump.html
+
+**Bari Weiss Names Nick Bilton to Lead CBS’s ’60 Minutes’**\
+`Mr. Bilton, a tech journalist and filmmaker, said he would bring new voices to the show. The overhaul by Bari Weiss, CBS’s editor in chief, included the firing of the correspondent Cecilia Vega.`\
+https://www.nytimes.com/2026/05/28/business/media/nick-bilton-60-minutes-bari-weiss.html
+
 **How We Investigated Police Use of Force in Texas Schools**\
 `Reporters tallied thousands of incidents and read hundreds of police reports documenting the heavy-handed tactics used on students.`\
 https://www.nytimes.com/2026/05/28/insider/police-force-texas-schools.html
