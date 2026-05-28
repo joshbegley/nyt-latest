@@ -1,3 +1,23 @@
+**Diesel Fuel Spilled on National Mall During 250th Event Setup**\
+`The Trump administration blamed the two spills on vandalism, though the U.S. Park Police is still investigating the incidents.`\
+https://www.nytimes.com/2026/05/28/climate/diesel-fuel-spill-national-mall.html
+
+**Austrian Man Convicted of Planning Attack at Taylor Swift Concert in Vienna**\
+`Prosecutors said the defendant plotted in 2024 to set off a bomb outside the concert, which was later canceled. He and another man were also convicted on separate terrorist charges.`\
+https://www.nytimes.com/2026/05/28/world/europe/taylor-swift-concert-vienna-guilty.html
+
+**Netanyahu Says Israel Will Control 70 Percent of Gaza, Squeezing Hamas**\
+`Israel’s military continues to conduct strikes and seize territory despite a cease-fire with Hamas. Many of Prime Minister Benjamin Netanyahu’s supporters see the war as unfinished business.`\
+https://www.nytimes.com/2026/05/28/world/middleeast/israel-gaza-hamas-70-percent.html
+
+**Young MC and Morris Day Pull Out of Freedom 250 Concerts**\
+`Young MC and Morris Day said they would not perform at the series on the National Mall that is part of the summer celebration of America’s founding.`\
+https://www.nytimes.com/2026/05/28/arts/music/freedom-concerts-young-mc-milli-vanilli.html
+
+**Scooter Rider and Cyclist Are Killed in Head-On Crash on N.Y.C. Bridge**\
+`The collision on the Queensboro Bridge involved an e-scooter that is not legally allowed to be used on the streets of New York.`\
+https://www.nytimes.com/2026/05/28/nyregion/queensboro-bridge-nyc-bike-scooter-crash-deaths.html
+
 **Scooter Rider and Cyclist Are Killed In Head-On Crash on N.Y.C. Bridge**\
 `The collision on the Queensboro Bridge involved an e-scooter that is not legally allowed to be used on the streets of New York.`\
 https://www.nytimes.com/2026/05/28/nyregion/queensboro-bridge-nyc-bike-scooter-crash-deaths.html

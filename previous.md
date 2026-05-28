@@ -1,4 +1,20 @@
-**Scooter Rider and Cyclist Are Killed In Head-On Crash on N.Y.C. Bridge**\
+**Diesel Fuel Spilled on National Mall During 250th Event Setup**\
+`The Trump administration blamed the two spills on vandalism, though the U.S. Park Police is still investigating the incidents.`\
+https://www.nytimes.com/2026/05/28/climate/diesel-fuel-spill-national-mall.html
+
+**Austrian Man Convicted of Planning Attack at Taylor Swift Concert in Vienna**\
+`Prosecutors said the defendant plotted in 2024 to set off a bomb outside the concert, which was later canceled. He and another man were also convicted on separate terrorist charges.`\
+https://www.nytimes.com/2026/05/28/world/europe/taylor-swift-concert-vienna-guilty.html
+
+**Netanyahu Says Israel Will Control 70 Percent of Gaza, Squeezing Hamas**\
+`Israel’s military continues to conduct strikes and seize territory despite a cease-fire with Hamas. Many of Prime Minister Benjamin Netanyahu’s supporters see the war as unfinished business.`\
+https://www.nytimes.com/2026/05/28/world/middleeast/israel-gaza-hamas-70-percent.html
+
+**Young MC and Morris Day Pull Out of Freedom 250 Concerts**\
+`Young MC and Morris Day said they would not perform at the series on the National Mall that is part of the summer celebration of America’s founding.`\
+https://www.nytimes.com/2026/05/28/arts/music/freedom-concerts-young-mc-milli-vanilli.html
+
+**Scooter Rider and Cyclist Are Killed in Head-On Crash on N.Y.C. Bridge**\
 `The collision on the Queensboro Bridge involved an e-scooter that is not legally allowed to be used on the streets of New York.`\
 https://www.nytimes.com/2026/05/28/nyregion/queensboro-bridge-nyc-bike-scooter-crash-deaths.html
 
@@ -173,22 +189,6 @@ https://www.nytimes.com/video/world/middleeast/100000010930257/israel-strikes-le
 **3 Weeks After Fire, ‘The Book of Mormon’ Reopens on Broadway**\
 `The satirical musical, which is celebrating its 15th anniversary this year, missed 25 performances during the shutdown.`\
 https://www.nytimes.com/2026/05/28/theater/book-of-mormon-broadway-fire-reopening.html
-
-**Happy, Bronx Zoo Elephant at Center of Animal Rights Case, Is Dead at 55**\
-`Activists had sued in a bid to secure her the fundamental human right to bodily liberty. Zoo officials said she was well cared for and called the lawsuit frivolous.`\
-https://www.nytimes.com/2026/05/28/nyregion/happy-elephant-bronx-zoo-dead.html
-
-**Heated Battle for U.S. Senate in Texas Begins**\
-`The candidates for U.S. Senate in Texas, the Democrat James Talarico and the Republican Ken Paxton, traded barbs this week in what is expected to be a bitter general election campaign.`\
-https://www.nytimes.com/video/us/politics/100000010930106/texas-talarico-paxton-senate-campaign.html
-
-**Fired BP Chair Manifold Rejects ‘Lies’ About His Ouster**\
-`Albert Manifold, who was abruptly dismissed by the oil company this week, hit back in a new statement that admitted he “pushed hard” but never crossed a line.`\
-https://www.nytimes.com/2026/05/28/business/bp-chair-albert-manifold.html
-
-**Who is Ahead in Florida's 13th Congressional District?**\
-`Track the latest polls in Florida's 13th Congressional District.`\
-https://www.nytimes.com/interactive/polls/florida-us-house-13-polls-2026.html
 
 **Iran War Live Updates: U.S. Officials Say They Are Closing In on Arrangement to Reopen Strait of Hormuz**\
 `President Trump has not signed off on the emerging framework, according to U.S. officials. But it could set the table for extending the cease-fire and more substantive negotiations.`\
