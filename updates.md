@@ -1,3 +1,15 @@
+**How Olivia Rodrigo’s Love Songs Became a Breakup Album**\
+`The punk-leaning pop star spoke to Popcast about tapping the vibrancy of 1980s new wave and the sentiment of “Sex and the City” on her new album “You Seem Pretty Sad For a Girl So in Love.”`\
+https://www.nytimes.com/video/podcasts/100000010931291/how-olivia-rodrigos-love-songs-became-a-breakup-album.html
+
+**Totó la Momposina, estrella colombiana de la música folclórica, muere a los 85 años**\
+`Timbaland, Jay-Z y Major Lazer samplearon su trabajo y recibió el premio Grammy a la excelencia musical en 2013.`\
+https://www.nytimes.com/es/2026/05/28/espanol/cultura/toto-la-momposina-murio.html
+
+**After an Explosion at a Washington Paper Mill, Mourning Mixes With Dread**\
+`The disaster at the mill in Longview, Wash., which took at least eight lives, was greeted with sadness but not surprise by a community that knew cutbacks and other pressures had raised risks.`\
+https://www.nytimes.com/2026/05/28/us/longview-washington-paper-mill-chemical-explosion.html
+
 **ABC Accuses Media Regulator of Threatening Its Licenses**\
 `The TV network on Thursday slammed the Federal Communications Commission, saying it was targeting its station licenses in a campaign of “unconstitutional retaliation.”`\
 https://www.nytimes.com/2026/05/28/business/media/abc-licenses-fcc-brendan-carr.html

@@ -1,3 +1,11 @@
+**How Olivia Rodrigo’s Love Songs Became a Breakup Album**\
+`The punk-leaning pop star spoke to Popcast about tapping the vibrancy of 1980s new wave and the sentiment of “Sex and the City” on her new album “You Seem Pretty Sad For a Girl So in Love.”`\
+https://www.nytimes.com/video/podcasts/100000010931291/how-olivia-rodrigos-love-songs-became-a-breakup-album.html
+
+**Totó la Momposina, estrella colombiana de la música folclórica, muere a los 85 años**\
+`Timbaland, Jay-Z y Major Lazer samplearon su trabajo y recibió el premio Grammy a la excelencia musical en 2013.`\
+https://www.nytimes.com/es/2026/05/28/espanol/cultura/toto-la-momposina-murio.html
+
 **ABC Accuses Media Regulator of Threatening Its Licenses**\
 `The TV network on Thursday slammed the Federal Communications Commission, saying it was targeting its station licenses in a campaign of “unconstitutional retaliation.”`\
 https://www.nytimes.com/2026/05/28/business/media/abc-licenses-fcc-brendan-carr.html
@@ -55,7 +63,7 @@ https://www.nytimes.com/2026/05/28/world/middleeast/israel-un-abuse-report.html
 https://www.nytimes.com/2026/05/28/sports/baseball/bob-horner-dead.html
 
 **After an Explosion at a Washington Paper Mill, Mourning Mixes With Dread**\
-`The disaster at the mill in Longview, Wash., that took at least two lives was greeted with sadness but not surprise by a community that knew cutbacks and other pressures had raised risks.`\
+`The disaster at the mill in Longview, Wash., which took at least eight lives, was greeted with sadness but not surprise by a community that knew cutbacks and other pressures had raised risks.`\
 https://www.nytimes.com/2026/05/28/us/longview-washington-paper-mill-chemical-explosion.html
 
 **Iran, Gas Prices, the Ballroom: Trump Professes Indifference Over Fallout**\
@@ -173,18 +181,6 @@ https://www.nytimes.com/2026/05/28/dining/drinks/wines-under-20-dollars.html
 **Israel Strikes Beirut, Expanding Offensive in Lebanon**\
 `It was the first attack by Israel on the Lebanese capital in weeks and could complicate efforts by the United States and Iran to agree to a peace deal to end the war in Iran.`\
 https://www.nytimes.com/2026/05/28/world/middleeast/israel-strikes-beirut-lebanon.html
-
-**Greenpeace’s Long War With a Pipeline Titan Enters a Strange New Phase**\
-`This month, a North Dakota court barred Greenpeace from saying what it wanted in a European court, an unusual move. The environmental group says it is forging ahead.`\
-https://www.nytimes.com/2026/05/28/climate/greenpeace-energy-transfer-north-dakota-injunction.html
-
-**Totó la Momposina, Colombian Folk Music Star, Dies at 85**\
-`Timbaland, Jay-Z and Major Lazer sampled her work, and she received a lifetime achievement award from the Latin Grammys in 2013.`\
-https://www.nytimes.com/2026/05/28/arts/music/toto-la-momposina-dead.html
-
-**Anthropic Tops OpenAI to Become the World’s Most Valuable A.I. Start-Up**\
-`Anthropic raised $65 billion in new fund-raising that put its value at $900 billion, ahead of OpenAI’s last valuation of $730 billion, as the companies duel for A.I. dominance.`\
-https://www.nytimes.com/2026/05/28/technology/anthropic-tops-openai-valuation.html
 
 **Iran War Live Updates: U.S. Officials Say They Are Closing In on Arrangement to Reopen Strait of Hormuz**\
 `President Trump has not signed off on the emerging framework, according to U.S. officials. But it could set the table for extending the cease-fire and more substantive negotiations.`\

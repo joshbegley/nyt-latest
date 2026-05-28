@@ -43,7 +43,7 @@ https://www.nytimes.com/video/us/politics/100000010931638/bessent-treasury-trump
 https://www.nytimes.com/video/us/100000010931758/fire-dallas-apartment-building.html
 
 **Scripps Spelling Bee Live Updates: Students Battle for Word Domination**\
-`Nine contestants will compete against one another — and the dictionary. The finals begin at 8 p.m. Eastern time.`\
+`The nine finalists competing against one another — and the dictionary — will take the stage at 8 p.m.`\
 https://www.nytimes.com/live/2026/05/28/us/scripps-spelling-bee
 
 **A Democrat’s Dodge on AIPAC Points to the Party’s Tensions Over Israel**\
