@@ -1,3 +1,15 @@
+**After an Explosion at a Washington Paper Mill, Mourning Mixes With Dread**\
+`The disaster at the mill in Longview, Wash., that took at least two lives was greeted with sadness but not surprise by a community that knew cutbacks and other pressures had raised risks.`\
+https://www.nytimes.com/2026/05/28/us/longview-washington-paper-mill-chemical-explosion.html
+
+**Iran, Gas Prices, the Ballroom: Trump Professes Indifference Over Fallout**\
+`President Trump has increasingly adopted a posture of nonchalance when pushed on the political consequences of his actions.`\
+https://www.nytimes.com/2026/05/28/us/politics/trump-iran-economy-ballroom-midterms.html
+
+**In Strait of Hormuz Standoff, U.S. and Iran Deploy Economic Warfare**\
+`The American blockade and Iran’s control of the Strait of Hormuz have created a stalemate that is neither peace nor raging conflict, with both sides attempting economic strangulation on the water.`\
+https://www.nytimes.com/2026/05/28/world/middleeast/iran-us-blockade-strait-hormuz.html
+
 **Swallowing Concerns, G.O.P. Senators Rally Behind Paxton**\
 `After attacking the Texas attorney general, who won the G.O.P. nomination, Senate Republicans are pivoting sharply to support him in what is now a competitive race.`\
 https://www.nytimes.com/2026/05/28/us/politics/republican-senators-support-paxton.html
