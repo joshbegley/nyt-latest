@@ -1,3 +1,11 @@
+**Pressure Grows on Spain’s Leader After Police Raid His Party Office**\
+`After a judge accused his party of corruption, Prime Minister Pedro Sánchez of Spain has faced mounting calls to resign.`\
+https://www.nytimes.com/2026/05/28/world/europe/spain-sanchez-socialist-party-raid.html
+
+**YouTuber Defamed Movie Star Using A.I., South Korean Police Say**\
+`They arrested the man, accusing him of fabricating a voice recording to implicate Kim Soo-hyun in dating a minor.`\
+https://www.nytimes.com/2026/05/28/world/asia/kim-soo-hyun-youtube-arrest.html
+
 **A Violent Education**\
 `We look at an extraordinary investigation into police officers in Texas schools.`\
 https://www.nytimes.com/2026/05/28/briefing/a-violent-education.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/05/28/realestate/housing-market-near-nyc.html
 **Homes for Sale in Brooklyn and Manhattan**\
 `This week’s properties are in Williamsburg, on the Upper West Side and in Hudson Heights.`\
 https://www.nytimes.com/2026/05/28/realestate/housing-market-nyc.html
-
-**‘With Hasan in Gaza’ Review: An Elusive Search**\
-`The Palestinian filmmaker Kamal Aljafari has constructed this elliptical documentary out of material filmed in Gaza in 2001, when he was searching for a friend.`\
-https://www.nytimes.com/2026/05/28/movies/with-hasan-in-gaza-review.html
-
-**‘Propeller One-Way Night Coach’: John Travolta’s Directing Debut**\
-`John Travolta makes his directing debut with this short and sentimental coming-of-age film about a son’s first plane trip taken with his single mother.`\
-https://www.nytimes.com/2026/05/28/movies/propeller-one-way-night-coach-review.html
 
