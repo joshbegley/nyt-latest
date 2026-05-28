@@ -1,3 +1,7 @@
+**Pressure Grows on Spain’s Leader After Police Search His Party Office**\
+`After a judge accused his party of corruption, Prime Minister Pedro Sánchez of Spain has faced mounting calls to resign.`\
+https://www.nytimes.com/2026/05/28/world/europe/spain-sanchez-socialist-party-raid.html
+
 **Happy, Bronx Zoo Elephant at Center of Animal Rights Case, Is Dead at 55**\
 `Activists had sued in a bid to secure her the fundamental human right to bodily liberty. Zoo officials said she was well cared for and called the lawsuit frivolous.`\
 https://www.nytimes.com/2026/05/28/nyregion/happy-elephant-bronx-zoo-dead.html
