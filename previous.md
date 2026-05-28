@@ -1,3 +1,7 @@
+**Over 20,000 Restaurants in New York City. Only One List.**\
+`Wesley Morris and co-chief restaurant critic, Ligaya Mishan, cherry-pick highlights from the 2026 “Best Restuarants in NYC” list.`\
+https://www.nytimes.com/video/podcasts/100000010926457/over-20000-restaurants-in-new-york-city-only-one-list.html
+
 **James Talarico Opens Texas Senate Campaign Against Ken Paxton With Houston Rally**\
 `Personal attacks and a packed campaign rally set the tone for what is likely to be a rancorous contest for U.S. Senate between James Talarico and Ken Paxton in Texas.`\
 https://www.nytimes.com/2026/05/28/us/politics/ken-paxton-james-talarico-texas-senate-race.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/27/briefing/the-good-list-nelkin-aggression-cook
 **Canada Rejects U.S. Military Suppliers in Favor of Swedish Aircraft**\
 `Prime Minister Mark Carney chose a Saab surveillance and control plane after vowing to reduce military spending with the United States.`\
 https://www.nytimes.com/2026/05/27/world/canada/carney-canada-military-spending-saab-air-force.html
-
-**Matthew Perry’s Assistant, Kenneth Iwamasa, Sentenced to More Than 3 Years in Prison**\
-`Kenneth Iwamasa injected Mr. Perry with the ketamine that killed him. He is the last of five defendants to be sentenced in the case.`\
-https://www.nytimes.com/2026/05/27/arts/matthew-perry-personal-assistant-ketamine.html
 
