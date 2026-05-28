@@ -1,3 +1,23 @@
+**U.S. and Iran Standoff at Sea: A Test of ‘Who Will Blink First’**\
+`The American blockade and Iran’s control of the Strait of Hormuz have created a stalemate that is neither peace nor raging conflict, with both sides attempting economic strangulation on the water.`\
+https://www.nytimes.com/2026/05/28/world/middleeast/iran-us-blockade-strait-hormuz.html
+
+**Columbia Demotes Official for Helping Epstein’s Girlfriend Enter Program**\
+`A top administrator at the university’s College of Dental Medicine recommended Karyna Shuliak for an advanced residency program, which he oversaw.`\
+https://www.nytimes.com/2026/05/28/nyregion/columbia-university-epstein-girlfriend-dental-college.html
+
+**A.I.’s Big Next Step**\
+`Three major companies are planning to go public with share sales in the coming months. They could be some of the biggest market debuts in history.`\
+https://www.nytimes.com/2026/05/28/world/ai-ipo-anthropic-openai-spacex-iran.html
+
+**The Man Turning the Cockroach Into a Gen-Z Movement in India**\
+`Abhijeet Dipke’s “Cockroach Janta Party” has emerged as the unexpected voice of young people feeling let down by the government and struggling to find jobs.`\
+https://www.nytimes.com/2026/05/28/world/asia/cockroach-janta-party-india-movement.html
+
+**Protesters Clash with Federal Agents Outside ICE Detention Center in New Jersey**\
+`Protesters and immigration agents clashed outside Delaney Hall detention center in Newark, where activists have gathered for days to denounce conditions inside.`\
+https://www.nytimes.com/video/nyregion/100000010930447/newark-immigration-center-protest.html
+
 **Diesel Fuel Spilled on National Mall During 250th Event Setup**\
 `The Trump administration blamed the two spills on vandalism, though the U.S. Park Police is still investigating the incidents.`\
 https://www.nytimes.com/2026/05/28/climate/diesel-fuel-spill-national-mall.html
@@ -174,27 +194,7 @@ https://www.nytimes.com/2026/05/28/nyregion/adriano-espaillat-darializa-avila-ch
 `Gov. Kathy Hochul used the state budget as a vehicle for policy initiatives, including a new second-home tax and a push to make the state less hospitable to immigration agents.`\
 https://www.nytimes.com/2026/05/28/nyregion/budget-late-new-york.html
 
-**5 Health Risks From Consuming Too Much Protein**\
-`Most Americans eat more protein than they need. We asked experts what can happen if people have too much of a good thing.`\
-https://www.nytimes.com/2026/05/28/well/eat/health-risks-excess-protein.html
-
-**Palabra del día: ‘risible’**\
-`Esta palabra ha aparecido en cinco artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
-https://www.nytimes.com/es/2026/05/28/espanol/que-significa-risible.html
-
-**Israel Launches Fresh Strikes on Lebanon**\
-`On Thursday, the Israeli military launched airstrikes on the southern outskirts of Beirut, Lebanon, for the first time in three weeks. Israel said it also targeted Hezbollah sites in southern Lebanon.`\
-https://www.nytimes.com/video/world/middleeast/100000010930257/israel-strikes-lebanon-beirut.html
-
-**3 Weeks After Fire, ‘The Book of Mormon’ Reopens on Broadway**\
-`The satirical musical, which is celebrating its 15th anniversary this year, missed 25 performances during the shutdown.`\
-https://www.nytimes.com/2026/05/28/theater/book-of-mormon-broadway-fire-reopening.html
-
 **Iran War Live Updates: U.S. Officials Say They Are Closing In on Arrangement to Reopen Strait of Hormuz**\
 `President Trump has not signed off on the emerging framework, according to U.S. officials. But it could set the table for extending the cease-fire and more substantive negotiations.`\
 https://www.nytimes.com/live/2026/05/28/world/iran-war-us-trump-deal
-
-**Journey to the Melting Continent**\
-`The New York Times went on an expedition to study Antarctica’s fastest-thinning glaciers.`\
-https://www.nytimes.com/live/2025/climate/antarctica-thwaites-glacier
 

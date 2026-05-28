@@ -1,3 +1,23 @@
+**U.S. and Iran Standoff at Sea: A Test of ‘Who Will Blink First’**\
+`The American blockade and Iran’s control of the Strait of Hormuz have created a stalemate that is neither peace nor raging conflict, with both sides attempting economic strangulation on the water.`\
+https://www.nytimes.com/2026/05/28/world/middleeast/iran-us-blockade-strait-hormuz.html
+
+**Columbia Demotes Official for Helping Epstein’s Girlfriend Enter Program**\
+`A top administrator at the university’s College of Dental Medicine recommended Karyna Shuliak for an advanced residency program, which he oversaw.`\
+https://www.nytimes.com/2026/05/28/nyregion/columbia-university-epstein-girlfriend-dental-college.html
+
+**A.I.’s Big Next Step**\
+`Three major companies are planning to go public with share sales in the coming months. They could be some of the biggest market debuts in history.`\
+https://www.nytimes.com/2026/05/28/world/ai-ipo-anthropic-openai-spacex-iran.html
+
+**The Man Turning the Cockroach Into a Gen-Z Movement in India**\
+`Abhijeet Dipke’s “Cockroach Janta Party” has emerged as the unexpected voice of young people feeling let down by the government and struggling to find jobs.`\
+https://www.nytimes.com/2026/05/28/world/asia/cockroach-janta-party-india-movement.html
+
+**Protesters Clash with Federal Agents Outside ICE Detention Center in New Jersey**\
+`Protesters and immigration agents clashed outside Delaney Hall detention center in Newark, where activists have gathered for days to denounce conditions inside.`\
+https://www.nytimes.com/video/nyregion/100000010930447/newark-immigration-center-protest.html
+
 **Diesel Fuel Spilled on National Mall During 250th Event Setup**\
 `The Trump administration blamed the two spills on vandalism, though the U.S. Park Police is still investigating the incidents.`\
 https://www.nytimes.com/2026/05/28/climate/diesel-fuel-spill-national-mall.html

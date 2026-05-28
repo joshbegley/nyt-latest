@@ -1,3 +1,7 @@
+**Swallowing Concerns, G.O.P. Senators Rally Behind Paxton**\
+`After attacking the Texas attorney general, who won the G.O.P. nomination, Senate Republicans are pivoting sharply to support him in what is now a competitive race.`\
+https://www.nytimes.com/2026/05/28/us/politics/republican-senators-support-paxton.html
+
 **U.S. and Iran Standoff at Sea: A Test of ‘Who Will Blink First’**\
 `The American blockade and Iran’s control of the Strait of Hormuz have created a stalemate that is neither peace nor raging conflict, with both sides attempting economic strangulation on the water.`\
 https://www.nytimes.com/2026/05/28/world/middleeast/iran-us-blockade-strait-hormuz.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/05/28/us/politics/trump-voting-executive-order.html
 **Mamdani Vowed to Back Espaillat. Now He May Endorse a D.S.A. Challenger.**\
 `The mayor is seriously considering getting behind Darializa Avila Chevalier, a democratic socialist challenging Representative Adriano Espaillat in an Upper Manhattan House primary.`\
 https://www.nytimes.com/2026/05/28/nyregion/adriano-espaillat-darializa-avila-chevalier-mamdani.html
-
-**What’s Inside New York’s $269 Billion Budget: Second-Home Tax, Restrictions on ICE and More**\
-`Gov. Kathy Hochul used the state budget as a vehicle for policy initiatives, including a new second-home tax and a push to make the state less hospitable to immigration agents.`\
-https://www.nytimes.com/2026/05/28/nyregion/budget-late-new-york.html
 
 **Iran War Live Updates: U.S. Officials Say They Are Closing In on Arrangement to Reopen Strait of Hormuz**\
 `President Trump has not signed off on the emerging framework, according to U.S. officials. But it could set the table for extending the cease-fire and more substantive negotiations.`\
