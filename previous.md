@@ -1,3 +1,7 @@
+**Where Do E. Jean Carroll’s Lawsuits Against President Trump Stand?**\
+`Two monetary judgments against Mr. Trump are winding their way through the legal system, with the Supreme Court likely to be the final word on both.`\
+https://www.nytimes.com/2026/05/28/us/politics/e-jean-carroll-trump-lawsuits.html
+
 **The Dream of a $50 Dinner Is Still Alive at These Restaurants**\
 `Drinks, two entrees and an appetizer or dessert don’t have to break the bank.`\
 https://www.nytimes.com/2026/05/28/dining/the-dream-of-a-50-dinner-is-still-alive-at-these-restaurants.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/interactive/polls/florida-us-house-13-polls-2026.html
 **Iran War Lifts a Second Inflation Reading to Highest Level Since 2023**\
 `Officials at the central bank have embraced the possibility of higher interest rates to get resurgent inflation under control.`\
 https://www.nytimes.com/2026/05/28/business/inflation-pce-gauge.html
-
-**Deadly Fire Breaks Out in Boarding School Dormitory in Kenya**\
-`A deadly fire tore through the dormitory of a girls’ boarding school in Kenya on Thursday, officials said.`\
-https://www.nytimes.com/video/world/africa/100000010930112/kenya-fire-school-gilgil.html
 
 **Iran War Live Updates: U.S. Officials Say They Are Closing In on Arrangement to Reopen Strait of Hormuz**\
 `President Trump has not signed off on the emerging framework, according to U.S. officials. But it could set the table for extending the cease-fire and more substantive negotiations.`\

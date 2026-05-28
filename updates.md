@@ -1,3 +1,7 @@
+**Where Do E. Jean Carroll’s Lawsuits Against President Trump Stand?**\
+`Two monetary judgments against Mr. Trump are winding their way through the legal system, with the Supreme Court likely to be the final word on both.`\
+https://www.nytimes.com/2026/05/28/us/politics/e-jean-carroll-trump-lawsuits.html
+
 **The Dream of a $50 Dinner Is Still Alive at These Restaurants**\
 `Drinks, two entrees and an appetizer or dessert don’t have to break the bank.`\
 https://www.nytimes.com/2026/05/28/dining/the-dream-of-a-50-dinner-is-still-alive-at-these-restaurants.html
