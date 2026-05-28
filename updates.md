@@ -1,3 +1,7 @@
+**A Violent Education**\
+`We look at an extraordinary investigation into police officers in Texas schools.`\
+https://www.nytimes.com/2026/05/28/briefing/a-violent-education.html
+
 **These Are Some of the Trump Justice Dept.’s Targets**\
 `When he returned to office, President Trump vowed revenge against those he said had challenged or defied him. Here’s an incomplete list of the people his Justice Department has targeted.`\
 https://www.nytimes.com/2026/05/28/us/trump-justice-dept-criminal-investigations.html
