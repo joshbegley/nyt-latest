@@ -1,3 +1,7 @@
+**Trump’s Retribution Comes to Texas as Paxton Defeats Cornyn**\
+`Readers discuss Senator John Cornyn’s loss to Ken Paxton in Tuesday’s Republican primary. Also: Investigating E. Jean Carroll; Mets and Knicks; religion and A.I.`\
+https://www.nytimes.com/2026/05/28/opinion/trump-texas-paxton-cornyn.html
+
 **Mark Carney Says Canada’s Distancing from the U.S. is Good for Both Nations**\
 `Speaking in New York, the Canadian prime minister called for a new relationship between Canada and United States.`\
 https://www.nytimes.com/2026/05/28/world/canada/carney-united-states-canada-trump.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/05/28/world/americas/cuba-oil-russia-tanker.html
 **A.I. Is Making Scams Hard to Spot. Here’s How to Protect Yourself.**\
 `A criminal could be masquerading as a celebrity, web store or family member asking for your money. Detecting scams requires a new approach.`\
 https://www.nytimes.com/2026/05/28/technology/personaltech/scams-ai.html
-
-**After a Breakup, an American Started Fresh in Amsterdam**\
-`Needing a new place fast, an art curator who’d been living in Utrecht decamped to the Dutch capital with about $350,000 to spend. She saw studios in three intriguing neighborhoods.`\
-https://www.nytimes.com/interactive/2026/05/28/realestate/amsterdam-real-estate.html
 
 **Journey to the Melting Continent**\
 `The New York Times went on an expedition to study Antarctica’s fastest-thinning glaciers.`\
