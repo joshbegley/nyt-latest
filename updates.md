@@ -1,3 +1,11 @@
+**How ‘New Yorkiness’ Shaped List of the Best N.Y.C. Restaurants**\
+`Wesley Morris and Ligaya Mishan, The Times’s co-chief restaurant critic, discuss what makes Mama Lee, one the 2026 best restaurants in New York City, idiosyncratic and “scrappy.”`\
+https://www.nytimes.com/video/podcasts/100000010926515/how-new-yorkiness-shaped-list-of-the-best-nyc-restaurants.html
+
+**Scripps Spelling Bee Live Updates: Students Battle for Word Domination**\
+`The nine finalists competing against one another — and the dictionary — will take the stage at 8 p.m.`\
+https://www.nytimes.com/live/2026/05/28/us/scripps-spelling-bee
+
 **How Olivia Rodrigo’s Love Songs Became a Breakup Album**\
 `The punk-leaning pop star spoke to Popcast about tapping the vibrancy of 1980s new wave and the sentiment of “Sex and the City” on her new album “You Seem Pretty Sad For a Girl So in Love.”`\
 https://www.nytimes.com/video/podcasts/100000010931291/how-olivia-rodrigos-love-songs-became-a-breakup-album.html
