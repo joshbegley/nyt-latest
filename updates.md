@@ -1,3 +1,11 @@
+**Israel to Cut Ties With U.N. Chief Over Its Inclusion on Sexual Violence Blacklist**\
+`The United Nations secretary general, António Guterres, told Israel there had been an “increasing number of cases” of sexual violence against Palestinian detainees, according to a letter shared by Israel’s U.N. ambassador.`\
+https://www.nytimes.com/2026/05/28/world/middleeast/israel-un-abuse-report.html
+
+**Bob Horner, Powerful Slugger in Atlanta and Japan, Dies at 68**\
+`With the Braves, he hit a home run in his major league debut, won the Rookie of the Year Award, and later hit four home runs in a game.`\
+https://www.nytimes.com/2026/05/28/sports/baseball/bob-horner-dead.html
+
 **After an Explosion at a Washington Paper Mill, Mourning Mixes With Dread**\
 `The disaster at the mill in Longview, Wash., that took at least two lives was greeted with sadness but not surprise by a community that knew cutbacks and other pressures had raised risks.`\
 https://www.nytimes.com/2026/05/28/us/longview-washington-paper-mill-chemical-explosion.html

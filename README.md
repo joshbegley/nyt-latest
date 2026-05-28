@@ -1,3 +1,7 @@
+**Treasury Prepares to Make Trump the Face of a New $250 Bill**\
+`Treasury Secretary Bessent backed the idea, which would require legislation allowing a living person to appear on currency.`\
+https://www.nytimes.com/2026/05/28/business/treasury-trump-250-bill.html
+
 **Israel to Cut Ties With U.N. Chief Over Its Inclusion on Sexual Violence Blacklist**\
 `The United Nations secretary general, António Guterres, told Israel there had been an “increasing number of cases” of sexual violence against Palestinian detainees, according to a letter shared by Israel’s U.N. ambassador.`\
 https://www.nytimes.com/2026/05/28/world/middleeast/israel-un-abuse-report.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/05/28/briefing/today-in-short.html
 **Three Great Documentaries to Stream**\
 `This month’s picks explore the French legal system, a neighborhood conflict in Florida and the cinema legacy of the Lumière brothers.`\
 https://www.nytimes.com/2026/05/28/movies/documentaries-streaming.html
-
-**Shrimp and White Beans, but on Vacation**\
-`Garlicky shrimp with summer squash and beans puts a seasonal twist on a classic, can’t-miss combination.`\
-https://www.nytimes.com/2026/05/28/dining/shrimp-and-white-beans-but-on-vacation.html
 
 **Iran War Live Updates: U.S. Officials Say They Are Closing In on Arrangement to Reopen Strait of Hormuz**\
 `President Trump has not signed off on the emerging framework, according to U.S. officials. But it could set the table for extending the cease-fire and more substantive negotiations.`\
