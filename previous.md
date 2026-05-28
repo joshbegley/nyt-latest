@@ -6,7 +6,7 @@ https://www.nytimes.com/video/opinion/100000010916850/the-ai-tipping-point.html
 `The historian and philosopher Yuval Noah Harari is interested in how stories shape societies. On “The Ezra Klein Show,” he describes the dominant storylines of fascism, Communism and liberalism, and why the liberal narrative is struggling to hold.`\
 https://www.nytimes.com/video/opinion/100000010916816/why-the-liberal-narrative-is-collapsing.html
 
-**U.S. Is Said to Open Criminal Inquiry of E. Jean Carroll Over Accusations Against Trump**\
+**Justice Dept. Is Said to Open Criminal Inquiry of E. Jean Carroll**\
 `The investigation is said to center on whether Ms. Carroll committed perjury in civil lawsuits against Donald J. Trump, whom she accused of sexual assault.`\
 https://www.nytimes.com/2026/05/27/us/politics/criminal-inquiry-e-jean-carroll-trump-accusations.html
 

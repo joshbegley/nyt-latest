@@ -1,3 +1,7 @@
+**Justice Dept. Is Said to Open Criminal Inquiry of E. Jean Carroll**\
+`The investigation is said to center on whether Ms. Carroll committed perjury in civil lawsuits against Donald J. Trump, whom she accused of sexual assault.`\
+https://www.nytimes.com/2026/05/27/us/politics/criminal-inquiry-e-jean-carroll-trump-accusations.html
+
 **The A.I. Tipping Point?**\
 `A.I. agents are already being used in workplaces. But what happens when they are granted legal personhood? Yuval Noah Harari, the author of “Nexus: A Brief History of Information Networks From the Stone Age to A.I.,” explains on “The Ezra Klein Show.”`\
 https://www.nytimes.com/video/opinion/100000010916850/the-ai-tipping-point.html

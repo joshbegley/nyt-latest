@@ -1,3 +1,7 @@
+**They Fought for the Voting Rights Act. Now They’re Fighting Its Unraveling.**\
+`At just eight years old, Sheyann Webb-Christburg marched for Black voting rights in Selma, alongside Martin Luther King, Jr. Now, as Southern Republicans race to redraw voting district maps before the Midterm elections, Sheyann and other Black voters are protesting what they fear is the erasure of their voices.`\
+https://www.nytimes.com/video/us/elections/100000010898759/voting-rights-act-selma-black-voters.html
+
 **The A.I. Tipping Point?**\
 `A.I. agents are already being used in workplaces. But what happens when they are granted legal personhood? Yuval Noah Harari, the author of “Nexus: A Brief History of Information Networks From the Stone Age to A.I.,” explains on “The Ezra Klein Show.”`\
 https://www.nytimes.com/video/opinion/100000010916850/the-ai-tipping-point.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/27/opinion/democrats-autopsy-2024-election.html
 **Reflecting Pool Contract Has ‘Inflated’ Profit Margin, Government Analysis Finds**\
 `The firm that was given a no-bid contract to fix the troubled landmark is charging 20 percent. The typical profit margin is 6 percent to 12 percent, internal records show.`\
 https://www.nytimes.com/2026/05/27/us/politics/reflecting-pool-contractor-trump.html
-
-**Biden Sues Justice Dept. to Block Release of Tapes**\
-`The former president argued that the Justice Department has a responsibility to protect the privacy of conversations he had with a former ghostwriter.`\
-https://www.nytimes.com/2026/05/27/us/politics/biden-justice-dept-tapes.html
 
