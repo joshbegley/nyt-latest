@@ -1,3 +1,7 @@
+**Bari Weiss Names Nick Bilton to Lead CBS’s ’60 Minutes’ in Major Shake-Up**\
+`Bari Weiss, CBS’s editor in chief, named Nick Bilton, a tech journalist and filmmaker, as the show’s executive producer. The network also fired two on-air correspondents.`\
+https://www.nytimes.com/2026/05/28/business/media/nick-bilton-60-minutes-bari-weiss.html
+
 **20 Joyous Wines, All Under $20**\
 `The price of almost everything is rising, including wine. But distinctive, delicious bottles can still be found in the $15 to $20 range.`\
 https://www.nytimes.com/2026/05/28/dining/drinks/wines-under-20-dollars.html
