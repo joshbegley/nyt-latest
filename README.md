@@ -1,3 +1,7 @@
+**In Mexico, a House Built Around a Circular Pool**\
+`Plus: bags embellished with urchin spines, modular furniture and more recommendations from T Magazine.`\
+https://www.nytimes.com/2026/05/28/t-magazine/baja-california-sur-mexico-vacation-house.html
+
 **Judge Declines, for Now, to Block Mail-In Voting Changes Ordered by Trump**\
 `The ruling allowed the Trump administration to continue to pursue changes that include enlisting the Postal Service in checking voters against a national database.`\
 https://www.nytimes.com/2026/05/28/us/politics/trump-voting-executive-order.html
@@ -144,7 +148,7 @@ https://www.nytimes.com/2026/05/28/world/americas/cuba-oil-russia-tanker.html
 
 **Online Scams Have Evolved in the A.I. Era. Here’s What to Do.**\
 `A criminal could be masquerading as a celebrity, web store or family member asking for your money. Detecting scams requires a new approach.`\
-https://www.nytimes.com/2026/05/28/technology/personaltech/online-scams-have-evolved-in-the-ai-era-heres-what-to-do.html
+https://www.nytimes.com/2026/05/28/technology/personaltech/scams-ai.html
 
 **After a Breakup, an American Started Fresh in Amsterdam**\
 `Needing a new place fast, an art curator who’d been living in Utrecht decamped to the Dutch capital with about $350,000 to spend. She saw studios in three intriguing neighborhoods.`\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/05/28/world/americas/peter-thiel-argentina.html
 **The Long, Bitter Fight at the Park Slope Food Co-op**\
 `The grocery store voted overwhelmingly to boycott Israeli products. A leading rabbi said it was “a really sad night for a lot of Jews in Park Slope.”`\
 https://www.nytimes.com/2026/05/28/nyregion/the-long-bitter-fight-at-the-park-slope-food-co-op.html
-
-**Our Military Is Built for the Wrong Century**\
-`Ukraine and Iran have shown us that war as we’ve known it is over.`\
-https://www.nytimes.com/video/opinion/100000010921303/our-military-is-built-for-the-wrong-century.html
 
 **Journey to the Melting Continent**\
 `The New York Times went on an expedition to study Antarctica’s fastest-thinning glaciers.`\
