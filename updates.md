@@ -1,3 +1,7 @@
+**The Google Insider Trading Case Hits Polymarket**\
+`Charges against a Google employee who bet on Polymarket have raised concerns that the issue may dent momentum in the fast-growing sector.`\
+https://www.nytimes.com/2026/05/28/business/dealbook/insider-trading-polymarket.html
+
 **Pressure Grows on Spain’s Leader After Police Raid His Party Office**\
 `After a judge accused his party of corruption, Prime Minister Pedro Sánchez of Spain has faced mounting calls to resign.`\
 https://www.nytimes.com/2026/05/28/world/europe/spain-sanchez-socialist-party-raid.html
