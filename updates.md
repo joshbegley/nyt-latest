@@ -1,3 +1,7 @@
+**U.S. Conducts New Strikes in Southern Iran**\
+`For the second time in three days, the military hit targets in what it called acts of self-defense, as a potential cease-fire hangs in the balance.`\
+https://www.nytimes.com/2026/05/27/world/middleeast/military-strikes-southern-iran.html
+
 **They Fought for the Voting Rights Act. Now They’re Fighting Its Unraveling.**\
 `At just eight years old, Sheyann Webb-Christburg marched for Black voting rights in Selma, alongside Martin Luther King, Jr. Now, as Southern Republicans race to redraw voting district maps before the Midterm elections, Sheyann and other Black voters are protesting what they fear is the erasure of their voices.`\
 https://www.nytimes.com/video/us/elections/100000010898759/voting-rights-act-selma-black-voters.html
