@@ -1,3 +1,11 @@
+**Judge Declines, for Now, to Block Mail-In Voting Changes Ordered by Trump**\
+`The ruling allowed the Trump administration to continue to pursue changes that include enlisting the Postal Service in checking voters against a national database.`\
+https://www.nytimes.com/2026/05/28/us/politics/trump-voting-executive-order.html
+
+**Mamdani May Endorse in Tightening House Race in Upper Manhattan**\
+`The mayor is giving serious thought to getting behind Darializa Avila Chevalier, a democratic socialist who is challenging Representative Adriano Espaillat.`\
+https://www.nytimes.com/2026/05/28/nyregion/adriano-espaillat-darializa-avila-chevalier-mamdani.html
+
 **Much More Than Money: Inside New York’s $269 Billion Budget**\
 `Gov. Kathy Hochul used the budget as a vehicle for policy initiatives, including a new second-home tax and a push to make the state less hospitable to ICE agents.`\
 https://www.nytimes.com/2026/05/28/nyregion/budget-late-new-york.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/05/28/nyregion/the-long-bitter-fight-at-the-park-sl
 **Our Military Is Built for the Wrong Century**\
 `Ukraine and Iran have shown us that war as we’ve known it is over.`\
 https://www.nytimes.com/video/opinion/100000010921303/our-military-is-built-for-the-wrong-century.html
-
-**For Nabela Noor, Home Is Where the Clicks Are**\
-`With her idealized take on family life, Nabela Noor is moving beyond the social media platforms where she gained 12 million followers.`\
-https://www.nytimes.com/2026/05/28/style/nabela-noor-home-influencer-pennsylvania.html
-
-**Texas School Police Investigation: 5 Takeaways**\
-`The state’s ambitious school policing initiative has few safeguards to prevent overreach by officers.`\
-https://www.nytimes.com/2026/05/28/us/5-takeaways-from-our-investigation-into-texas-school-police.html
 
 **Journey to the Melting Continent**\
 `The New York Times went on an expedition to study Antarctica’s fastest-thinning glaciers.`\
