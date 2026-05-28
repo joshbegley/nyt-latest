@@ -1,3 +1,135 @@
+**Review: ‘The Maids’ Makes a Ruckus but Not Enough Mess**\
+`Jean Genet’s psychosexual drama gets a social-media-heavy update. But what does it say beyond “internet=bad”?`\
+https://www.nytimes.com/2026/05/28/theater/the-maids-review-yerin-ha-kip-williams.html
+
+**My $7,300 United Business Class Seat Was Broken, and I Got a Pittance**\
+`A woman splurged for a lie-flat seat, but it got jammed in the horizontal position for most of the 14-hour flight. How much should United compensate her?`\
+https://www.nytimes.com/2026/05/28/travel/united-broken-business-class-seat.html
+
+**Streaming TV Bundles Grow in Popularity**\
+`Companies and their customers are embracing bundled streaming packages — but for different reasons.`\
+https://www.nytimes.com/2026/05/28/business/media/streaming-tv-hulu-disney-hbo.html
+
+**New York City’s Manhattanhenge is Back: When, Where and How to Watch**\
+`On Thursday and Friday, some streets in Manhattan will get a lot more crowded as people gather to watch the city’s unique solar spectacle.`\
+https://www.nytimes.com/2026/05/28/science/manhattanhenge-new-york-city.html
+
+**Enough With the Kennedys**\
+`Members of the country’s grandest political dynasty are not inherently qualified to hold office.`\
+https://www.nytimes.com/2026/05/28/opinion/kennedy-jack-schlossberg-political-dynasty.html
+
+**Can New Technology Help Save North Atlantic Right Whales?**\
+`Innovative systems to keep ships from hitting North Atlantic right whales are coming into use. The Trump administration is weighing whether they can replace a bedrock protection.`\
+https://www.nytimes.com/2026/05/28/climate/northern-right-whales-protection-technology.html
+
+**Jane Austen Snubbed This Character. ‘The Other Bennet Sister’ Loves Her.**\
+`As the star of “The Other Bennet Sister,” this actress is redeeming a “Pride and Prejudice” character Austen cast as a tedious prig.`\
+https://www.nytimes.com/2026/05/28/arts/television/the-other-bennet-sister-ella-bruccoleri.html
+
+**Paul McCartney on His New Album and the Beatles’ Earliest Days**\
+`On his new album, the ex-Beatle revisits his past and revels in simply continuing to create.`\
+https://www.nytimes.com/2026/05/28/arts/music/paul-mccartney-interview.html
+
+**What Is Mogging? The Gen Z and Gen Alpha Term, Explained.**\
+`The term can mean outdoing oneself or others, and it has jumped far from its incel chatroom origins. Where did it come from?`\
+https://www.nytimes.com/2026/05/28/style/mogging-looksmaxxing-gen-alpha.html
+
+**Homes for Sale in New York and New Jersey**\
+`This week’s properties are a four-bedroom in Laurel, N.Y., and a five-bedroom in Bridgewater, N.J.`\
+https://www.nytimes.com/2026/05/28/realestate/housing-market-near-nyc.html
+
+**Homes for Sale in Brooklyn and Manhattan**\
+`This week’s properties are in Williamsburg, on the Upper West Side and in Hudson Heights.`\
+https://www.nytimes.com/2026/05/28/realestate/housing-market-nyc.html
+
+**‘With Hasan in Gaza’ Review: An Elusive Search**\
+`The Palestinian filmmaker Kamal Aljafari has constructed this elliptical documentary out of material filmed in Gaza in 2001, when he was searching for a friend.`\
+https://www.nytimes.com/2026/05/28/movies/with-hasan-in-gaza-review.html
+
+**‘Propeller One-Way Night Coach’: John Travolta’s Directing Debut**\
+`John Travolta makes his directing debut with this short and sentimental coming-of-age film about a son’s first plane trip taken with his single mother.`\
+https://www.nytimes.com/2026/05/28/movies/propeller-one-way-night-coach-review.html
+
+**‘Miss You, Love You’ Review: A Son Outsources His Solace**\
+`The mourning process feels theatrical in this dramedy starring Allison Janney as a new widow estranged from her son.`\
+https://www.nytimes.com/2026/05/28/movies/miss-you-love-you-review-a-son-outsources-his-solace.html
+
+**‘The Last Viking’ Review: Imagine Mads Mikkelsen**\
+`Mikkelsen plays a man convinced he’s John Lennon in a darkly comic crime film from the Danish auteur Anders Thomas Jensen.`\
+https://www.nytimes.com/2026/05/28/movies/the-last-viking-review.html
+
+**‘Forastera’ Review: An Exquisitely Deconstructed Ghost Story**\
+`A teenager affects aspects of her late grandmother in this beguiling first feature set on the island of Mallorca.`\
+https://www.nytimes.com/2026/05/28/movies/forastera-review.html
+
+**Not Every Language Has Spelling Bees. Here’s Why English Is Perfect for Them.**\
+`English’s hybrid history, silent letters and overcomplicated rules are what make the competition fierce.`\
+https://www.nytimes.com/2026/05/28/magazine/spelling-bee-scripps-english-language.html
+
+**‘The Currents’ Review: Lost and Found**\
+`Milagros Mumenthaler’s superb, sensuously realized film follows an Argentine fashion stylist trying to overcome a deep sense of destabilization.`\
+https://www.nytimes.com/2026/05/28/movies/the-currents-review.html
+
+**‘The Breadwinner’ Review:**\
+`The comedian Nate Bargatze makes a big swing with this movie about a stay-at-home dad, and gets a big assist from three funny kids.`\
+https://www.nytimes.com/2026/05/28/movies/the-breadwinner-review.html
+
+**Finally, a Bookstore That Sells Mesh Underwear**\
+`The book and fashion worlds have been flirting. At Climax, they’re making out.`\
+https://www.nytimes.com/2026/05/28/style/climax-books-isabella-burley.html
+
+**‘Backrooms’ Review: Lost in the Expansion**\
+`Born from a single unsettling image, this viral horror concept from Kane Parsons wears thin under the weight of a full feature.`\
+https://www.nytimes.com/2026/05/28/movies/backrooms-review-lost-in-the-expansion.html
+
+**36 Hours in Dallas, Texas: Things to Do and See**\
+`Between Tex-Mex restaurants, dive bars with live music, shopping and art museums, there’s plenty to keep you busy.`\
+https://www.nytimes.com/interactive/2026/05/28/travel/things-to-do-dallas.html
+
+**Why Garry Trudeau Finally O.K.’d a Biography**\
+`Back at the Yale library that holds his archive, the low-key creator of “Doonesbury” reunites with the journalist who pieced together his life story.`\
+https://www.nytimes.com/2026/05/28/books/review/garry-trudeau-doonesbury-biography.html
+
+**Still Mailing Your Rent? You’re Hardly Alone.**\
+`Those who pay their rent online are now the majority — but just barely.`\
+https://www.nytimes.com/2026/05/28/realestate/still-mailing-your-rent-youre-hardly-alone.html
+
+**‘Vibrant as Ever’: Harvard’s Jewish Life Thrives as Trump Investigates**\
+`Trump officials have focused on episodes during protests over the war in Gaza at Harvard and other schools. Jews on campus describe a changed atmosphere.`\
+https://www.nytimes.com/2026/05/28/us/trump-harvard-antisemitism-improvement.html
+
+**Firelei Báez Harvests Trickster Energy to Remap Stories of the World**\
+`In her new exhibition, the Dominican painter retooled graphics from the past to reimagine the future.`\
+https://www.nytimes.com/2026/05/28/arts/firelei-baez-harvests-trickster-energy-to-remap-stories-of-the-world.html
+
+**Veronica Roth on Her Favorite Books and Her New Novel, ‘Seek the Traitor’s Son’**\
+`“I love a clever puppet master,” says the author of the Divergent series and the new “Seek the Traitor’s Son.” Her favorite hero? Antigone.`\
+https://www.nytimes.com/2026/05/28/books/review/veronica-roth-seek-the-traitors-son.html
+
+**The Real Story Behind “Pressure,” the Film About the D-Day Weather Forecast**\
+`The new film “Pressure” tells the story of the fateful D-Day weather forecast. Here’s what it got right and wrong from the historical record.`\
+https://www.nytimes.com/2026/05/28/movies/pressure-movie-fact-fiction-james-stagg.html
+
+**Our Reporter on What Happened When Texas Increased School Police**\
+`After the 2022 mass shooting in Uvalde, Texas, the state passed a law mandating police presence in schools. Our reporter Clare Amari describes how some students in Texas have experienced physical force by school police officers since then.`\
+https://www.nytimes.com/video/us/100000010838874/our-reporter-on-what-happened-when-texas-increased-school-police.html
+
+**The Nonfiction Everyone Will Be Reading This Summer**\
+`Memoirs, histories, true crime, investigations and much more.`\
+https://www.nytimes.com/2026/05/28/books/review/the-nonfiction-everyone-will-be-reading-this-summer.html
+
+**The Novels Everyone Will Be Reading This Summer**\
+`New fiction from Maggie O’Farrell, Ann Patchett, Colson Whitehead, Silvia Moreno-Garcia and much more.`\
+https://www.nytimes.com/2026/05/28/books/review/summer-fiction-preview.html
+
+**‘Up for Grabs’: Can Democrats Sway Young Men Who Have Soured on Trump?**\
+`Many Gen Z men who voted for the president are dismayed by his time in office. But they are not hearing an appealing pitch from Democrats, either: “Both parties kind of get it wrong.”`\
+https://www.nytimes.com/2026/05/28/us/politics/up-for-grabs-can-democrats-sway-young-men-who-have-soured-on-trump.html
+
+**I Tried to Sell My House With A.I.**\
+`Over five frantic days, I gambled my family’s life savings on a hunch that A.I. could outperform a real estate agent.`\
+https://www.nytimes.com/2026/05/28/technology/sell-house-with-ai-no-realtor.html
+
 **Trump Wants to ‘Take Cuba.’ These Cubans Have Thoughts.**\
 `A filmmaker asks residents of the embattled island what they would say to the U.S. president.`\
 https://www.nytimes.com/video/opinion/editorials/100000010926338/trump-wants-to-take-cuba-these-cubans-have-thoughts.html
@@ -65,136 +197,4 @@ https://www.nytimes.com/video/podcasts/100000010926457/over-20000-restaurants-in
 **James Talarico Opens Texas Senate Campaign Against Ken Paxton With Houston Rally**\
 `Personal attacks and a packed campaign rally set the tone for what is likely to be a rancorous contest for U.S. Senate between James Talarico and Ken Paxton in Texas.`\
 https://www.nytimes.com/2026/05/28/us/politics/ken-paxton-james-talarico-texas-senate-race.html
-
-**En Europa, una ola de calor primaveral rompe récords**\
-`Las autoridades de Francia y el Reino Unido advirtieron que podrían persistir unas temperaturas “sin precedentes”, en un momento en que pocos las esperaban.`\
-https://www.nytimes.com/es/2026/05/28/espanol/mundo/europa-espana-ola-calor.html
-
-**Why Pakistan and Afghanistan Are Still Fighting**\
-`Months after Pakistan declared “open war” on Afghanistan, neither side appears ready to back down, despite China’s efforts to mediate.`\
-https://www.nytimes.com/2026/05/28/world/asia/pakistan-afghanistan-conflict.html
-
-**How to Watch the Scripps National Spelling Bee**\
-`Nearly 250 contestants from around the nation and the world traveled to Washington for a chance at glory and a $50,000 cash prize.`\
-https://www.nytimes.com/2026/05/28/us/how-to-watch-scripps-national-spelling-bee-2026.html
-
-**What Plunging Pork Prices Say About China’s Economy**\
-`A key measure of inflation in China, they hit a 16-year low, driven by anemic consumer spending and an oversupply of hogs.`\
-https://www.nytimes.com/2026/05/28/business/china-pork-prices-economy.html
-
-**Corrections: May 28, 2026**\
-`Corrections that appeared in print on Thursday, May 28, 2026.`\
-https://www.nytimes.com/2026/05/28/pageoneplus/corrections-may-28-2026.html
-
-**Quote of the Day: Farage’s Far-Right Party Has Surged to the Fore**\
-`Quotation of the Day for Thursday, May 28, 2026.`\
-https://www.nytimes.com/2026/05/27/pageoneplus/quote-of-the-day-farages-far-right-party-has-surged-to-the-fore.html
-
-**Brownie Brittle**\
-`Brownie brittle is the perfect treat for that person in your life who loves the edges of the brownie. It’s deeply chocolaty and gives a satisfying crunch with every bite.`\
-https://www.nytimes.com/video/dining/100000010929027/brownie-brittle.html
-
-**NYT Crossword Answers for May 28, 2026**\
-`John Kugelman gives us some choices to make.`\
-https://www.nytimes.com/2026/05/27/crosswords/daily-puzzle-2026-05-28.html
-
-**Massie Visits Greene in Costa Rica for Fishing and ‘Spicy’ Political Talks**\
-`The two Republican critics of President Trump — Thomas Massie, who lost his House primary last week, and Marjorie Taylor Greene, who resigned from Congress — met up in the tropics.`\
-https://www.nytimes.com/2026/05/27/us/politics/massie-marjorie-taylor-greene-costa-rica.html
-
-**U.S. Strikes Military Sites in Iran for Second Time in 3 Days**\
-`As a potential cease-fire hangs in the balance, an official said the strikes were in self-defense, with targets including four one-way attack drones launched by Iran.`\
-https://www.nytimes.com/2026/05/27/world/middleeast/military-strikes-southern-iran.html
-
-**They Fought for the Voting Rights Act. Now They’re Fighting Its Unraveling.**\
-`At just eight years old, Sheyann Webb-Christburg marched for Black voting rights in Selma, alongside Martin Luther King, Jr. Now, as Southern Republicans race to redraw voting district maps before the Midterm elections, Sheyann and other Black voters are protesting what they fear is the erasure of their voices.`\
-https://www.nytimes.com/video/us/elections/100000010898759/voting-rights-act-selma-black-voters.html
-
-**The A.I. Tipping Point?**\
-`A.I. agents are already being used in workplaces. But what happens when they are granted legal personhood? Yuval Noah Harari, the author of “Nexus: A Brief History of Information Networks From the Stone Age to A.I.,” explains on “The Ezra Klein Show.”`\
-https://www.nytimes.com/video/opinion/100000010916850/the-ai-tipping-point.html
-
-**Why the Liberal Narrative Is ‘Collapsing’**\
-`The historian and philosopher Yuval Noah Harari is interested in how stories shape societies. On “The Ezra Klein Show,” he describes the dominant storylines of fascism, Communism and liberalism, and why the liberal narrative is struggling to hold.`\
-https://www.nytimes.com/video/opinion/100000010916816/why-the-liberal-narrative-is-collapsing.html
-
-**Justice Dept. Is Said to Open Criminal Inquiry of E. Jean Carroll, Who Accused Trump of Rape**\
-`Ms. Carroll, who prevailed in a civil trial after accusing President Trump of sexual abuse, is the latest target in a Justice Department campaign going after his perceived enemies.`\
-https://www.nytimes.com/2026/05/27/us/politics/criminal-inquiry-e-jean-carroll-trump-accusations.html
-
-**California Tries to Block Trump Involvement in Election Procedures**\
-`Gov. Gavin Newsom signed legislation that tries to stop outside officials from taking ballots or getting involved in ballot processing.`\
-https://www.nytimes.com/2026/05/27/us/california-election-security-newsom.html
-
-**Uganda Closes Border with Congo Over Ebola Fears**\
-`Uganda closed its border with the Democratic Republic of Congo over growing concerns about the possible spread of Ebola on Wednesday. Seven confirmed cases have been reported in the Ugandan capital.`\
-https://www.nytimes.com/video/world/africa/100000010928797/uganda-closes-border-with-congo-over-ebola-fears.html
-
-**9 Missing After Deadly Implosion at Washington State Paper Mill**\
-`At least two people were killed, and eight others were injured after a tank imploded at the Nippon Dynawave Packaging plant in Longview, Washington, on Tuesday.`\
-https://www.nytimes.com/video/us/100000010929438/washington-paper-mill-chemical-implosion.html
-
-**In Flint, Cash for Pregnant Women Leads to Better Outcomes for Babies**\
-`New research suggests money with no strings attached can promote better health, but other studies have seen mixed results.`\
-https://www.nytimes.com/2026/05/27/well/pregnancy-money-assistance-flint.html
-
-**Escándalo FIFA: juez desestima 2 acusaciones**\
-`Hernán López, un exejecutivo de Fox, y la empresa argentina Full Play Group, eludieron los cargos tras ser acusados de haber participado en una trama para entregar dinero a representantes de la FIFA a cambio de derechos de transmisión.`\
-https://www.nytimes.com/es/2026/05/27/espanol/fifa-acusaciones-corrupcion.html
-
-**White House Dismisses Outline of ‘Unofficial’ Iran Deal**\
-`Plus, hunting fish with a bow and arrow. Here’s the latest at the end of Wednesday.`\
-https://www.nytimes.com/2026/05/27/briefing/iran-reflecting-pool.html
-
-**Ferrari’s Stock Falls After It Unveils Its Latest Car**\
-`The Italian sports car manufacturer received significant backlash after it unveiled its first electric vehicle, the Luce, earlier this week.`\
-https://www.nytimes.com/video/business/100000010928530/ferrari-luce-stock-fall.html
-
-**David Henderson, Innovative Poet and Hendrix Biographer, Dies at 83**\
-`Part of the Black Arts Movement of the 1960s, he went on to reclaim a leading musician of the psychedelic era as a distinctly African American artist.`\
-https://www.nytimes.com/2026/05/27/books/david-henderson-dead.html
-
-**Court Orders Customs Chief to Address Compliance on Refunding Tariffs**\
-`The surprising demand to appear at a hearing suggested new concern about the Trump administration’s efforts to repay the full $166 billion owed from illegally imposed tariffs.`\
-https://www.nytimes.com/2026/05/27/us/politics/trade-court-customs-chief-tariff-refunds.html
-
-**Jill Biden’s Reaction to Biden’s 2024 Debate: ‘He’s Having a Stroke’**\
-`“I had never, ever seen Joe like that,” the former first lady told CBS News. “Before or since.”`\
-https://www.nytimes.com/2026/05/27/us/politics/jill-biden-joe-biden-2024-debate.html
-
-**Cease-Fires, but No Peace**\
-`A truce isn’t necessarily doomed if the missiles are still flying. Here’s why.`\
-https://www.nytimes.com/2026/05/27/world/cease-fires-peace-lebanon-israel-iran.html
-
-**Condé Nast Pays Over $400,000 to 3 Journalists Fired Over Protest**\
-`The former workers were among a group of employees who confronted the company’s head of human resources about layoffs last fall.`\
-https://www.nytimes.com/2026/05/27/business/media/conde-nast-fired-journalists-settlement.html
-
-**In Utah, Measles Sickens Babies and Others Who Can’t Be Vaccinated**\
-`Many of those who can’t be vaccinated, including pregnant women and immunocompromised people, are also at high risk of serious complications.`\
-https://www.nytimes.com/2026/05/27/well/utah-measles-unvaccinated-babies.html
-
-**F.B.I. Arrests C.I.A. Official With $40 Million in Gold Bars in His Home**\
-`The only charge lodged against David Rush is that he inflated his academic credentials and obtained military leave pay worth tens of thousands of dollars.`\
-https://www.nytimes.com/2026/05/27/us/politics/fbi-arrest-cia-official-gold-bars.html
-
-**Pope Leo’s A.I. Vision Might Not Be Strange Enough**\
-`He is both a critic and a normalizer of artificial intelligence.`\
-https://www.nytimes.com/2026/05/27/opinion/pope-leo-ai-encyclical.html
-
-**Why Democrats Think They Can Flip Texas**\
-`With Ken Paxton defeating John Cornyn in Texas’ Republican runoff for the Senate, The New York Times’s national political correspondent Shane Goldmacher explains why Democrats may now see their best chance in years to flip the seat.`\
-https://www.nytimes.com/video/us/100000010921466/paxton-talarico-texas-senate-race.html
-
-**Why Ghana Is Evacuating Hundreds of Its Citizens From South Africa**\
-`Anti-immigrant protests have increased across South Africa, drawing forceful condemnation from several African leaders.`\
-https://www.nytimes.com/2026/05/27/world/africa/south-africa-ghana-immigration-protests.html
-
-**La policía escolar de Texas roció con gas pimienta, golpeó y dio descargas eléctricas a varios alumnos**\
-`La presencia de agentes  en las escuelas de Texas ha aumentado como medida para prevenir tiroteos. Sin embargo, una investigación reciente del Times demuestra que  recurren a tácticas de mano dura con los niños.`\
-https://www.nytimes.com/interactive/2026/05/27/espanol/estados-unidos/texas-escuelas-agentes-policia-estudiantes-uvalde.html
-
-**Texas School Police Pepper-Sprayed, Tackled and Tasered Students**\
-`School officers across the state turned to heavy-handed tactics on children, often in response to minor misbehavior, our investigation shows.`\
-https://www.nytimes.com/interactive/2026/05/27/us/texas-schools-police-force-students-uvalde.html
 
