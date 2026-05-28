@@ -1,3 +1,7 @@
+**Jimmy Kimmel Can Hardly Believe the Reality of L.A.’s Mayoral Race**\
+`“Mayor should not be your first job,” the host said of the former reality show star and mayoral candidate Spencer Pratt, who is polling in second place.`\
+https://www.nytimes.com/2026/05/28/arts/television/late-night-trump-spencer-pratt-mayor.html
+
 **Word of the Day: risible**\
 `This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/05/28/learning/word-of-the-day-risible.html
