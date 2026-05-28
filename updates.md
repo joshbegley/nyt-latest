@@ -1,3 +1,7 @@
+**Iran War Live Updates: U.S. Officials Say They Are Closing In on Arrangement to Reopen Strait of Hormuz**\
+`President Trump has not signed off on the emerging framework, according to U.S. officials. But it could set the table for extending the cease-fire and more substantive negotiations.`\
+https://www.nytimes.com/live/2026/05/28/world/iran-war-us-trump-deal
+
 **Watchdog Agency Seeks to Reverse Its Win Against Firm Run by Winklevoss Twins**\
 `The Commodity Futures Trading Commission filed jointly with a company run by the Winklevoss twins to overturn their settlement.`\
 https://www.nytimes.com/2026/05/28/us/politics/cftc-gemini-winklevoss-lawsuit.html
