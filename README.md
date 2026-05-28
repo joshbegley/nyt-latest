@@ -1,3 +1,27 @@
+**En Europa, una ola de calor primaveral rompe récords**\
+`Las autoridades de Francia y el Reino Unido advirtieron que podrían persistir unas temperaturas “sin precedentes”, en un momento en que pocos las esperaban.`\
+https://www.nytimes.com/es/2026/05/28/espanol/mundo/europa-espana-ola-calor.html
+
+**Why Pakistan and Afghanistan Are Still Fighting**\
+`Months after Pakistan declared “open war” on Afghanistan, neither side appears ready to back down, despite China’s efforts to mediate.`\
+https://www.nytimes.com/2026/05/28/world/asia/pakistan-afghanistan-conflict.html
+
+**How to Watch the Scripps National Spelling Bee**\
+`Nearly 250 contestants from around the nation and the world traveled to Washington for a chance at glory and a $50,000 cash prize.`\
+https://www.nytimes.com/2026/05/28/us/how-to-watch-scripps-national-spelling-bee-2026.html
+
+**What Plunging Pork Prices Say About China’s Economy**\
+`A key measure of inflation in China, they hit a 16-year low, driven by anemic consumer spending and an oversupply of hogs.`\
+https://www.nytimes.com/2026/05/28/business/china-pork-prices-economy.html
+
+**Corrections: May 28, 2026**\
+`Corrections that appeared in print on Thursday, May 28, 2026.`\
+https://www.nytimes.com/2026/05/28/pageoneplus/corrections-may-28-2026.html
+
+**Quote of the Day: Farage’s Far-Right Party Has Surged to the Fore**\
+`Quotation of the Day for Thursday, May 28, 2026.`\
+https://www.nytimes.com/2026/05/27/pageoneplus/quote-of-the-day-farages-far-right-party-has-surged-to-the-fore.html
+
 **Brownie Brittle**\
 `Brownie brittle is the perfect treat for that person in your life who loves the edges of the brownie. It’s deeply chocolaty and gives a satisfying crunch with every bite.`\
 https://www.nytimes.com/video/dining/100000010929027/brownie-brittle.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/05/27/arts/matthew-perry-personal-assistant-ketamin
 **To Make a Deal With Trump, Iran Wants Billions of Its Money Unfrozen**\
 `The money has become a sticking point in talks, with Iran insisting that meaningful negotiations cannot begin without the funds’ release.`\
 https://www.nytimes.com/2026/05/27/world/middleeast/iran-frozen-funds-trump-deal.html
-
-**Deadly Explosion Was Caused by Paint Vapors, Fire Dept. Says**\
-`A series of explosions at a Staten Island shipyard killed one man and injured more than 30 firefighters on Friday. The accident occurred when paint vapors ignited in a confined space, the department said.`\
-https://www.nytimes.com/2026/05/27/nyregion/staten-island-explosion-cause.html
-
-**Lebanese Resigned to a Long War, Even if U.S. and Iran Make a Deal**\
-`Few in Lebanon believe that diplomatic efforts to end the wider war will bring peace to their country, as clashes between Israel and Hezbollah intensify in the south.`\
-https://www.nytimes.com/2026/05/27/world/middleeast/lebaon-war-deal-iran-us.html
-
-**Knicks Fans Confront High Ticket Prices for NBA Finals Games at MSG**\
-`New York Knicks fans, still celebrating the team making it to the N.B.A. finals, are confronting high ticket prices for the games at Madison Square Garden.`\
-https://www.nytimes.com/2026/05/27/nyregion/knicks-finals-ticket-prices.html
-
-**9 Missing After Tank Implosion at a Paper Mill in Longview, Washington**\
-`Officials said they did not believe anyone was still alive inside the facility. The explosion has left at least two people dead and several others injured.`\
-https://www.nytimes.com/2026/05/27/us/longview-washington-paper-mill-implosion.html
-
-**Meeting Voters, a Republican Tries to Outrun His Party’s Woes**\
-`Representative Mike Flood of Nebraska is still meeting with constituents long after most G.O.P. members of Congress have concluded it is too politically dangerous to do so.`\
-https://www.nytimes.com/2026/05/27/us/politics/mike-flood-gop-town-hall.html
-
-**U.F.C. Arena Takes Shape on White House Lawn**\
-`Construction for the Ultimate Fighting Championship arena continues on the South Lawn of The White House ahead of the June 14th fight planned for President Trump’s 80th birthday.`\
-https://www.nytimes.com/video/us/politics/100000010928330/ufc-white-house-trump.html
 
