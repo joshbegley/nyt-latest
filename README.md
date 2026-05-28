@@ -1,3 +1,7 @@
+**Massie Visits Greene in Costa Rica for Fishing and ‘Spicy’ Political Talks**\
+`The two Republican critics of President Trump – Thomas Massie, who lost his House primary last week, and Marjorie Taylor Greene, who resigned from Congress – met up in the tropics.`\
+https://www.nytimes.com/2026/05/27/us/politics/massie-marjorie-taylor-greene-costa-rica.html
+
 **U.S. Strikes Military Sites in Iran for Second Time in 3 Days**\
 `As a potential cease-fire hangs in the balance, an official said the strikes were in self-defense, with targets including four one-way attack drones launched by Iran.`\
 https://www.nytimes.com/2026/05/27/world/middleeast/military-strikes-southern-iran.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/27/headway/young-americans-apprentice-labor-econ
 **Armed With Bows and Arrows, Hunters Fight the Invasive ‘Frankenfish’**\
 `Wildlife officials in Chesapeake Bay are encouraging hunters and anglers to target the invasive, predatory northern snakeheads – known as the “Frankenfish” – using a bow and arrow.`\
 https://www.nytimes.com/video/us/100000010928426/hunting-frankenfish-with-a-bow-and-arrow.html
-
-**How Democrats Can Avoid the Mistakes of 2024**\
-`Readers discuss the Democratic Party’s autopsy of the presidential election. Also: Single at a party.`\
-https://www.nytimes.com/2026/05/27/opinion/democrats-autopsy-2024-election.html
 
