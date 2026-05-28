@@ -1,3 +1,7 @@
+**Australia Sues 3M for $1.4 Billion Over ‘Forever Chemicals’**\
+`The lawsuit, the largest ever filed by the Australian government, claims 3M hid information about the harmful effects of PFAS used at military bases.`\
+https://www.nytimes.com/2026/05/28/business/australia-lawsuit-3m-psas.html
+
 **Fire at School Dormitory in Kenya Kills Several Students**\
 `It was not immediately clear what caused the blaze, which was the latest in a series of deadly fires at schools in the country in recent years.`\
 https://www.nytimes.com/2026/05/28/world/africa/kenya-school-fire.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/05/27/us/texas-schools-police-force-stu
 **Trump Threatens Oman Over the Strait, Then Says, ‘They’ll Be Fine.’**\
 `President Trump said there would be serious repercussions if Iran and Oman move forward with a deal to open the Strait of Hormuz.`\
 https://www.nytimes.com/2026/05/27/world/middleeast/trump-oman-strait-hormuz.html
-
-**Trump Says He Feels No Political Pressure to Make an Iran Deal**\
-`President Trump held out hope for a peace agreement, but said high oil prices would not force his hand.`\
-https://www.nytimes.com/2026/05/27/world/middleeast/trump-iran-peace-talks.html
 
