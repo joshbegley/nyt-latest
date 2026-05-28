@@ -1,3 +1,19 @@
+**Pedro Sánchez está más presionado tras el registro policial de la sede del PSOE**\
+`Después de que un juez acusara a su partido de corrupción, el presidente del gobierno español se enfrenta a crecientes peticiones de dimisión.`\
+https://www.nytimes.com/es/2026/05/28/espanol/mundo/pedro-sanchez-psoe-registro.html
+
+**Is Trump the President the Framers Feared?**\
+`The drafters of the Constitution hoped for energetic but accountable presidents.`\
+https://www.nytimes.com/2026/05/28/us/politics/the-docket-trump-founders.html
+
+**Bari Weiss Names Nick Bilton to Lead CBS’s ’60 Minutes’**\
+`Mr. Bilton, a documentarian and former New York Times columnist, said he would bring new voices to the show, which he said was the most important news program in America.`\
+https://www.nytimes.com/2026/05/28/business/media/nick-bilton-60-minutes-bari-weiss.html
+
+**‘Power Ballad’ Review: Hitting All the Wrong Notes**\
+`There are some promising themes in this comedy-drama about an American musician in Dublin, featuring Nick Jonas and Paul Rudd, but the movie never develops them.`\
+https://www.nytimes.com/2026/05/28/movies/power-ballad-review.html
+
 **A.I. Is Making Scams Hard to Spot. Here’s How to Protect Yourself.**\
 `A criminal could be masquerading as a celebrity, web store or family member asking for your money. Detecting scams requires a new approach.`\
 https://www.nytimes.com/2026/05/28/technology/personaltech/scams-ai.html
