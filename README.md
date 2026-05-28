@@ -1,3 +1,7 @@
+**How ‘New Yorkiness’ Shaped List of the Best N.Y.C. Restaurants**\
+`Wesley Morris and Ligaya Mishan, The Times’s co-chief restaurant critic, discuss what makes Mama Lee, one the 2026 best restaurants in New York City, idiosyncratic and “scrappy.”`\
+https://www.nytimes.com/video/podcasts/100000010926515/how-new-yorkiness-shaped-list-of-the-best-nyc-restaurants.html
+
 **How Olivia Rodrigo’s Love Songs Became a Breakup Album**\
 `The punk-leaning pop star spoke to Popcast about tapping the vibrancy of 1980s new wave and the sentiment of “Sex and the City” on her new album “You Seem Pretty Sad For a Girl So in Love.”`\
 https://www.nytimes.com/video/podcasts/100000010931291/how-olivia-rodrigos-love-songs-became-a-breakup-album.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/05/28/books/review/new-recommended-books.html
 **20 Joyous Wines, All Under $20**\
 `The price of almost everything is rising, including wine. But distinctive, delicious bottles can still be found in the $15 to $20 range.`\
 https://www.nytimes.com/2026/05/28/dining/drinks/wines-under-20-dollars.html
-
-**Israel Strikes Beirut, Expanding Offensive in Lebanon**\
-`It was the first attack by Israel on the Lebanese capital in weeks and could complicate efforts by the United States and Iran to agree to a peace deal to end the war in Iran.`\
-https://www.nytimes.com/2026/05/28/world/middleeast/israel-strikes-beirut-lebanon.html
 
 **Iran War Live Updates: U.S. Officials Say They Are Closing In on Arrangement to Reopen Strait of Hormuz**\
 `President Trump has not signed off on the emerging framework, according to U.S. officials. But it could set the table for extending the cease-fire and more substantive negotiations.`\
