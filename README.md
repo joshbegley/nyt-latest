@@ -1,3 +1,7 @@
+**Man Sentenced to 40 Years in Murders of 4 Sleeping Homeless Men**\
+`The judge who sentenced Randy Rodriguez Santos said his case exemplified the “coming together of three horrible symptoms of this city: homelessness, mental illness and narcotics abuse.”`\
+https://www.nytimes.com/2026/05/28/nyregion/santos-chinatown-homeless-murder.html
+
 **Books Our Editors Loved This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/05/28/books/review/new-recommended-books.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/05/28/crosswords/wordle-review-1805.html
 **¿Rusia podría atacar con más fuerza? Al menos quiere que eso piense Ucrania**\
 `Los grandes ataques contra Kiev, seguidos de advertencias de que habrá más, se producen mientras Moscú está estancado en el campo de batalla y en la mesa de negociaciones.`\
 https://www.nytimes.com/es/2026/05/28/espanol/mundo/rusia-ataques-ucrania.html
-
-**The Harambe Tapes: Unearthing a Viral Gorilla’s Hidden Last Days**\
-`Ten years after Harambe’s death, a whistleblower from the Cincinnati Zoo tells all.`\
-https://www.nytimes.com/2026/05/28/podcasts/the-harambe-tapes-unearthing-a-viral-gorillas-hidden-last-days.html
 
 **Journey to the Melting Continent**\
 `The New York Times went on an expedition to study Antarctica’s fastest-thinning glaciers.`\

@@ -1,3 +1,7 @@
+**Books Our Editors Loved This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/05/28/books/review/new-recommended-books.html
+
 **20 Joyous Wines, All Under $20**\
 `The price of almost everything is rising, including wine. But distinctive, delicious bottles can still be found in the $15 to $20 range.`\
 https://www.nytimes.com/2026/05/28/dining/drinks/wines-under-20-dollars.html
@@ -14,9 +18,9 @@ https://www.nytimes.com/2026/05/28/climate/greenpeace-energy-transfer-north-dako
 `Timbaland, Jay-Z and Major Lazer sampled her work, and she received a lifetime achievement award from the Latin Grammys in 2013.`\
 https://www.nytimes.com/2026/05/28/arts/music/toto-la-momposina-dead.html
 
-**Anthropic Unveils Claude Opus 4.8, a New, More Powerful Model**\
-`The new system, called Opus 4.8, tops industry standard benchmarks in areas related to computer programming.`\
-https://www.nytimes.com/2026/05/28/technology/anthropic-claude-opus-48.html
+**Anthropic Tops OpenAI to Become the World’s Most Valuable A.I. Start-Up**\
+`Anthropic raised $65 billion in new fund-raising that put its value at $900 billion, ahead of OpenAI’s last valuation of $730 billion, as the companies duel for A.I. dominance.`\
+https://www.nytimes.com/2026/05/28/technology/anthropic-tops-openai-valuation.html
 
 **If Tahini Has No Fans, I’m Dead**\
 `Sweet potatoes slathered in tahini butter, tahini and chocolate chunk cake and more vehicles for my ride-or-die ingredient.`\
@@ -189,10 +193,6 @@ https://www.nytimes.com/es/2026/05/28/espanol/mundo/rusia-ataques-ucrania.html
 **The Harambe Tapes: Unearthing a Viral Gorilla’s Hidden Last Days**\
 `Ten years after Harambe’s death, a whistleblower from the Cincinnati Zoo tells all.`\
 https://www.nytimes.com/2026/05/28/podcasts/the-harambe-tapes-unearthing-a-viral-gorillas-hidden-last-days.html
-
-**The Mideast Is Baffled by Trump’s Call to Expand Abraham Accords**\
-`The president said more countries should be required to recognize Israel as part of a deal to end the war with Iran. Analysts say the chances of that happening are close to zero.`\
-https://www.nytimes.com/2026/05/28/world/middleeast/trump-abraham-accords.html
 
 **Journey to the Melting Continent**\
 `The New York Times went on an expedition to study Antarctica’s fastest-thinning glaciers.`\

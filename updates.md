@@ -1,3 +1,11 @@
+**Books Our Editors Loved This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/05/28/books/review/new-recommended-books.html
+
+**Anthropic Tops OpenAI to Become the World’s Most Valuable A.I. Start-Up**\
+`Anthropic raised $65 billion in new fund-raising that put its value at $900 billion, ahead of OpenAI’s last valuation of $730 billion, as the companies duel for A.I. dominance.`\
+https://www.nytimes.com/2026/05/28/technology/anthropic-tops-openai-valuation.html
+
 **What’s Inside New York’s $269 Billion Budget: Second-Home Tax, Restrictions on ICE and More**\
 `Gov. Kathy Hochul used the state budget as a vehicle for policy initiatives, including a new second-home tax and a push to make the state less hospitable to immigration agents.`\
 https://www.nytimes.com/2026/05/28/nyregion/budget-late-new-york.html
