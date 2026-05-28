@@ -1,3 +1,7 @@
+**ABC Accuses Media Regulator of Threatening Its Licenses**\
+`The TV network on Thursday slammed the Federal Communications Commission, saying it was targeting its station licenses in a campaign of “unconstitutional retaliation.”`\
+https://www.nytimes.com/2026/05/28/business/media/abc-licenses-fcc-brendan-carr.html
+
 **N.B.A. Player Took $70,000 Bribe to Leave Game Early, U.S. Says**\
 `Terry Rozier faces new charges for his role in a betting scheme that prosecutors say involves former and current professional basketball players.`\
 https://www.nytimes.com/2026/05/28/nyregion/terry-rozier-nba-betting-scandal.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/05/28/arts/music/toto-la-momposina-dead.html
 **Anthropic Tops OpenAI to Become the World’s Most Valuable A.I. Start-Up**\
 `Anthropic raised $65 billion in new fund-raising that put its value at $900 billion, ahead of OpenAI’s last valuation of $730 billion, as the companies duel for A.I. dominance.`\
 https://www.nytimes.com/2026/05/28/technology/anthropic-tops-openai-valuation.html
-
-**If Tahini Has No Fans, I’m Dead**\
-`Sweet potatoes slathered in tahini butter, tahini and chocolate chunk cake and more vehicles for my ride-or-die ingredient.`\
-https://www.nytimes.com/2026/05/28/dining/if-tahini-has-no-fans-im-dead.html
 
 **Iran War Live Updates: U.S. Officials Say They Are Closing In on Arrangement to Reopen Strait of Hormuz**\
 `President Trump has not signed off on the emerging framework, according to U.S. officials. But it could set the table for extending the cease-fire and more substantive negotiations.`\
