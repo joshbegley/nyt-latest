@@ -1,3 +1,7 @@
+**They Fought for the Voting Rights Act. Now They’re Fighting Its Unraveling.**\
+`At just eight years old, Sheyann Webb-Christburg marched for Black voting rights in Selma, alongside Martin Luther King, Jr. Now, as Southern Republicans race to redraw voting district maps before the Midterm elections, Sheyann and other Black voters are protesting what they fear is the erasure of their voices.`\
+https://www.nytimes.com/video/us/elections/100000010898759/voting-rights-act-selma-black-voters.html
+
 **Justice Dept. Is Said to Open Criminal Inquiry of E. Jean Carroll**\
 `The investigation is said to center on whether Ms. Carroll committed perjury in civil lawsuits against Donald J. Trump, whom she accused of sexual assault.`\
 https://www.nytimes.com/2026/05/27/us/politics/criminal-inquiry-e-jean-carroll-trump-accusations.html
