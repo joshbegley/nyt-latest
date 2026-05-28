@@ -1,3 +1,7 @@
+**Scooter Rider and Cyclist Are Killed In Head-On Crash on N.Y.C. Bridge**\
+`The collision on the Queensboro Bridge involved an e-scooter that is not legally allowed to be used on the streets of New York.`\
+https://www.nytimes.com/2026/05/28/nyregion/queensboro-bridge-nyc-bike-scooter-crash-deaths.html
+
 **Where Do E. Jean Carroll’s Lawsuits Against President Trump Stand?**\
 `Two monetary judgments against Mr. Trump are winding their way through the legal system, with the Supreme Court likely to be the final word on both.`\
 https://www.nytimes.com/2026/05/28/us/politics/e-jean-carroll-trump-lawsuits.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/05/28/business/bp-chair-albert-manifold.html
 **Who is Ahead in Florida's 13th Congressional District?**\
 `Track the latest polls in Florida's 13th Congressional District.`\
 https://www.nytimes.com/interactive/polls/florida-us-house-13-polls-2026.html
-
-**Iran War Lifts a Second Inflation Reading to Highest Level Since 2023**\
-`Officials at the central bank have embraced the possibility of higher interest rates to get resurgent inflation under control.`\
-https://www.nytimes.com/2026/05/28/business/inflation-pce-gauge.html
 
 **Iran War Live Updates: U.S. Officials Say They Are Closing In on Arrangement to Reopen Strait of Hormuz**\
 `President Trump has not signed off on the emerging framework, according to U.S. officials. But it could set the table for extending the cease-fire and more substantive negotiations.`\

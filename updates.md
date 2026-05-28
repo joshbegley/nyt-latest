@@ -1,3 +1,7 @@
+**Scooter Rider and Cyclist Are Killed In Head-On Crash on N.Y.C. Bridge**\
+`The collision on the Queensboro Bridge involved an e-scooter that is not legally allowed to be used on the streets of New York.`\
+https://www.nytimes.com/2026/05/28/nyregion/queensboro-bridge-nyc-bike-scooter-crash-deaths.html
+
 **Where Do E. Jean Carroll’s Lawsuits Against President Trump Stand?**\
 `Two monetary judgments against Mr. Trump are winding their way through the legal system, with the Supreme Court likely to be the final word on both.`\
 https://www.nytimes.com/2026/05/28/us/politics/e-jean-carroll-trump-lawsuits.html
