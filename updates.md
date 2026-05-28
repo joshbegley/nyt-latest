@@ -1,3 +1,11 @@
+**Trump Wants to ‘Take Cuba.’ These Cubans Have Thoughts.**\
+`A filmmaker asks residents of the embattled island what they would say to the U.S. president.`\
+https://www.nytimes.com/video/opinion/editorials/100000010926338/trump-wants-to-take-cuba-these-cubans-have-thoughts.html
+
+**Australia Sues 3M for $1.4 Billion Over ‘Forever Chemicals’**\
+`The lawsuit, the largest ever filed by the Australian government, claims 3M hid information about the harmful effects of PFAS used at military bases.`\
+https://www.nytimes.com/2026/05/28/business/australia-lawsuit-3m-psas.html
+
 **Fire at School Dormitory in Kenya Kills Several Students**\
 `It was not immediately clear what caused the blaze, which was the latest in a series of deadly fires at schools in the country in recent years.`\
 https://www.nytimes.com/2026/05/28/world/africa/kenya-school-fire.html
