@@ -1,3 +1,7 @@
+**Word of the Day: risible**\
+`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/05/28/learning/word-of-the-day-risible.html
+
 **Iran War Live Updates: Iranian Military Says It Targeted a U.S. Base in Retaliation for Strikes**\
 `Iran’s Islamic Revolutionary Guards Corps did not say which base it had targeted early Thursday, after U.S. strikes in the country’s south. The exchanges threaten a fragile cease-fire.`\
 https://www.nytimes.com/live/2026/05/28/world/iran-war-us-trump-deal
