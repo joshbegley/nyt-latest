@@ -1,3 +1,7 @@
+**3 Weeks After Fire, ‘The Book of Mormon’ Reopens on Broadway**\
+`The satirical musical, which is celebrating its 15th anniversary this year, missed 25 performances during the shutdown.`\
+https://www.nytimes.com/2026/05/28/theater/book-of-mormon-broadway-fire-reopening.html
+
 **Iran War Lifts a Second Inflation Reading to Highest Level Since 2023**\
 `Officials at the central bank have embraced the possibility of higher interest rates to get resurgent inflation under control.`\
 https://www.nytimes.com/2026/05/28/business/inflation-pce-gauge.html
