@@ -1,3 +1,15 @@
+**Everlane Co-founder, Shocked by Shein Acquisition, Wants a Redo**\
+`Michael Preysman, who ran the brand for a decade, can’t believe what happened to the company he built. Can he start over?`\
+https://www.nytimes.com/2026/05/28/business/everlane-co-founder-shein-acquisition.html
+
+**El FBI detiene a un funcionario de la CIA con 40 millones de dólares en lingotes de oro**\
+`El único cargo presentado contra David Rush es que infló sus credenciales académicas y obtuvo pagos por licencia militar por valor de decenas de miles de dólares.`\
+https://www.nytimes.com/es/2026/05/28/espanol/estados-unidos/fbi-arresta-cia-lingotes-oro.html
+
+**Trump Refiles $10 Billion Lawsuit Against The Wall Street Journal**\
+`An earlier version of the defamation suit, which focused on an article about a birthday note to Jeffrey Epstein, was dismissed by a judge.`\
+https://www.nytimes.com/2026/05/28/business/media/trump-wsj-defamation-suit-10-billion.html
+
 **Trump’s Retribution Comes to Texas as Paxton Defeats Cornyn**\
 `Readers discuss Senator John Cornyn’s loss to Ken Paxton in Tuesday’s Republican primary. Also: Investigating E. Jean Carroll; Mets and Knicks; religion and A.I.`\
 https://www.nytimes.com/2026/05/28/opinion/trump-texas-paxton-cornyn.html
@@ -39,7 +51,7 @@ https://www.nytimes.com/2026/05/28/movies/documentaries-streaming.html
 https://www.nytimes.com/2026/05/28/dining/shrimp-and-white-beans-but-on-vacation.html
 
 **Michigan Governor Gretchen Whitmer Will Not Run for President in 2028**\
-`Ms. Whitmer had been viewed as part of a field of possible Democratic candidates. She has been governor for two terms, and is barred from running again.`\
+`Governor Whitmer of Michigan had been viewed as part of a field of possible Democratic candidates. She has been governor for two terms, and is barred from running again.`\
 https://www.nytimes.com/2026/05/28/us/gretchen-whitmer-rules-out-2028.html
 
 **In Mexico, a House Built Around a Circular Pool**\
@@ -181,18 +193,6 @@ https://www.nytimes.com/2026/05/28/opinion/trump-iran-war.html
 **Big Swells of Rancor Are Capsizing America**\
 `Texas just got a lot more interesting.`\
 https://www.nytimes.com/2026/05/28/opinion/texas-paxton-talarico-marilyn-monroe.html
-
-**¿Deberías seguir los consejos de nutrición de un chatbot?**\
-`Muchas personas recurren a la inteligencia artificial para que les ayude con su dieta. Los expertos sopesan los posibles pros y contras.`\
-https://www.nytimes.com/es/2026/05/28/espanol/consejos-nutricion-ia.html
-
-**Cuba Loses Its Chance at Fuel After Russian Tanker Changes Route**\
-`A Russian tanker seemingly en route to Cuba with a lifeline of fuel has changed direction, a painful development for the island suffering under a U.S. oil blockade.`\
-https://www.nytimes.com/2026/05/28/world/americas/cuba-oil-russia-tanker.html
-
-**A.I. Is Making Scams Hard to Spot. Here’s How to Protect Yourself.**\
-`A criminal could be masquerading as a celebrity, web store or family member asking for your money. Detecting scams requires a new approach.`\
-https://www.nytimes.com/2026/05/28/technology/personaltech/scams-ai.html
 
 **Journey to the Melting Continent**\
 `The New York Times went on an expedition to study Antarctica’s fastest-thinning glaciers.`\
