@@ -1,3 +1,7 @@
+**Deadly Fire Breaks Out in Boarding School Dormitory in Kenya**\
+`A deadly fire tore through the dormitory of a girls’ boarding school in Kenya on Thursday, officials said.`\
+https://www.nytimes.com/video/world/africa/100000010930112/kenya-fire-school-gilgil.html
+
 **The Google Insider Trading Case Hits Polymarket**\
 `Charges against a Google employee who bet on Polymarket have raised concerns that the issue may dent momentum in the fast-growing sector.`\
 https://www.nytimes.com/2026/05/28/business/dealbook/insider-trading-polymarket.html
@@ -131,7 +135,7 @@ https://www.nytimes.com/2026/05/28/arts/design/art-desert-housing-coyote-new-mex
 https://www.nytimes.com/2026/05/28/movies/pressure-review.html
 
 **In Argentina, U.S. Tech Billionaire Peter Thiel Finds An Escape**\
-`The billionaire’s new roots in Argentina are said to be partly motivated by concerns about the future of the United States and a shared ideology with Argentina’s right-wing leader.`\
+`The billionaire’s new roots in Argentina are said to be partly motivated by concerns about the future of the United States and shared beliefs with Argentina’s right-wing leader.`\
 https://www.nytimes.com/2026/05/28/world/americas/peter-thiel-argentina.html
 
 **The Long, Bitter Fight at the Park Slope Food Co-op**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/28/arts/music/paul-mccartney-interview.html
 **What Is Mogging? The Gen Z and Gen Alpha Term, Explained.**\
 `The term can mean outdoing oneself or others, and it has jumped far from its incel chatroom origins. Where did it come from?`\
 https://www.nytimes.com/2026/05/28/style/mogging-looksmaxxing-gen-alpha.html
-
-**Homes for Sale in New York and New Jersey**\
-`This week’s properties are a four-bedroom in Laurel, N.Y., and a five-bedroom in Bridgewater, N.J.`\
-https://www.nytimes.com/2026/05/28/realestate/housing-market-near-nyc.html
 

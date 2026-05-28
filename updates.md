@@ -1,3 +1,11 @@
+**Deadly Fire Breaks Out in Boarding School Dormitory in Kenya**\
+`A deadly fire tore through the dormitory of a girls’ boarding school in Kenya on Thursday, officials said.`\
+https://www.nytimes.com/video/world/africa/100000010930112/kenya-fire-school-gilgil.html
+
+**In Argentina, U.S. Tech Billionaire Peter Thiel Finds An Escape**\
+`The billionaire’s new roots in Argentina are said to be partly motivated by concerns about the future of the United States and shared beliefs with Argentina’s right-wing leader.`\
+https://www.nytimes.com/2026/05/28/world/americas/peter-thiel-argentina.html
+
 **The Google Insider Trading Case Hits Polymarket**\
 `Charges against a Google employee who bet on Polymarket have raised concerns that the issue may dent momentum in the fast-growing sector.`\
 https://www.nytimes.com/2026/05/28/business/dealbook/insider-trading-polymarket.html
