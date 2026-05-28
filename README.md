@@ -1,3 +1,7 @@
+**N.B.A. Player Took $70,000 Bribe to Leave Game Early, U.S. Says**\
+`Terry Rozier faces new charges for his role in a betting scheme that prosecutors say involves former and current professional basketball players.`\
+https://www.nytimes.com/2026/05/28/nyregion/terry-rozier-nba-betting-scandal.html
+
 **Deadly Heat Wave Sweeps Across Western Europe**\
 `A deadly heat wave in Europe this month brought record-breaking temperatures. Scientists linked the extreme heat to man-made global warming.`\
 https://www.nytimes.com/video/climate/100000010931267/deadly-heat-wave-sweeps-across-western-europe.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/05/28/technology/anthropic-tops-openai-valuation.ht
 **If Tahini Has No Fans, I’m Dead**\
 `Sweet potatoes slathered in tahini butter, tahini and chocolate chunk cake and more vehicles for my ride-or-die ingredient.`\
 https://www.nytimes.com/2026/05/28/dining/if-tahini-has-no-fans-im-dead.html
-
-**Everlane Co-Founder, Shocked by Shein Acquisition, Wants a Redo**\
-`Michael Preysman, who ran the brand for a decade, can’t believe what happened to the company he built. Can he start over?`\
-https://www.nytimes.com/2026/05/28/business/everlane-co-founder-shein-acquisition.html
 
 **Iran War Live Updates: U.S. Officials Say They Are Closing In on Arrangement to Reopen Strait of Hormuz**\
 `President Trump has not signed off on the emerging framework, according to U.S. officials. But it could set the table for extending the cease-fire and more substantive negotiations.`\
