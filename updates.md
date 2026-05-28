@@ -1,3 +1,7 @@
+**Justice Dept. Is Said to Open Criminal Inquiry of E. Jean Carroll, Who Accused Trump of Rape**\
+`The investigation is said to center on whether Ms. Carroll committed perjury in civil lawsuits against Donald J. Trump, whom she accused of sexual assault.`\
+https://www.nytimes.com/2026/05/27/us/politics/criminal-inquiry-e-jean-carroll-trump-accusations.html
+
 **U.S. Strikes Military Sites in Iran for Second Time in 3 Days**\
 `As a potential cease-fire hangs in the balance, an official said the strikes were in self-defense, with targets including four one-way attack drones launched by Iran.`\
 https://www.nytimes.com/2026/05/27/world/middleeast/military-strikes-southern-iran.html
