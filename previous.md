@@ -7,7 +7,7 @@ https://www.nytimes.com/video/dining/100000010929027/brownie-brittle.html
 https://www.nytimes.com/2026/05/27/crosswords/daily-puzzle-2026-05-28.html
 
 **Massie Visits Greene in Costa Rica for Fishing and ‘Spicy’ Political Talks**\
-`The two Republican critics of President Trump – Thomas Massie, who lost his House primary last week, and Marjorie Taylor Greene, who resigned from Congress – met up in the tropics.`\
+`The two Republican critics of President Trump — Thomas Massie, who lost his House primary last week, and Marjorie Taylor Greene, who resigned from Congress — met up in the tropics.`\
 https://www.nytimes.com/2026/05/27/us/politics/massie-marjorie-taylor-greene-costa-rica.html
 
 **U.S. Strikes Military Sites in Iran for Second Time in 3 Days**\

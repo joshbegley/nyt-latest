@@ -1,3 +1,7 @@
+**Massie Visits Greene in Costa Rica for Fishing and ‘Spicy’ Political Talks**\
+`The two Republican critics of President Trump — Thomas Massie, who lost his House primary last week, and Marjorie Taylor Greene, who resigned from Congress — met up in the tropics.`\
+https://www.nytimes.com/2026/05/27/us/politics/massie-marjorie-taylor-greene-costa-rica.html
+
 **Brownie Brittle**\
 `Brownie brittle is the perfect treat for that person in your life who loves the edges of the brownie. It’s deeply chocolaty and gives a satisfying crunch with every bite.`\
 https://www.nytimes.com/video/dining/100000010929027/brownie-brittle.html
