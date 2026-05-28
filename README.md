@@ -1,3 +1,11 @@
+**Fire at School Dormitory in Kenya Kills Several Students**\
+`It was not immediately clear what caused the blaze, which was the latest in a series of deadly fires at schools in the country in recent years.`\
+https://www.nytimes.com/2026/05/28/world/africa/kenya-school-fire.html
+
+**Scientists Find a Potential Cure for Chronic Hepatitis B**\
+`Most people recover from the infection, but it poses great risks for those who don’t. A new drug may cure 1 in 5 of these patients.`\
+https://www.nytimes.com/2026/05/28/health/hepatitis-b-chronic-bepirovirsen.html
+
 **Por qué los brotes de ébola y hantavirus han confundido a los científicos**\
 `Las noticias sobre los más recientes brotes de virus en el mundo no solo han sido aterradoras, sino también confusas, incluso para los científicos.`\
 https://www.nytimes.com/es/2026/05/28/espanol/ciencia-y-tecnologia/ebola-hantavirus-tratamiento-tipos.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/05/27/world/middleeast/trump-oman-strait-hormuz.htm
 **Trump Says He Feels No Political Pressure to Make an Iran Deal**\
 `President Trump held out hope for a peace agreement, but said high oil prices would not force his hand.`\
 https://www.nytimes.com/2026/05/27/world/middleeast/trump-iran-peace-talks.html
-
-**Los asistentes de los famosos están para complacer a sus jefes, pero ¿cuál es el límite?**\
-`El asistente de Matthew Perry le inyectó la ketamina que lo mató. Su sentencia ha hecho que algunos en esta exigente profesión reflexionen sobre esta dinámica de poder.`\
-https://www.nytimes.com/es/2026/05/27/espanol/cultura/matthew-perry-asistente.html
-
-**Kids Review ‘Sarniezz’ by Angine de Poitrine**\
-`These children have a lot of thoughts about Angine de Poitrine’s song “Sarniezz (Live on KEXP),” which has been receiving loads of attention on TikTok. Is it disturbing? Creative? Nonsensical? They discuss it all with our critic, Jon Caramanica, on this special edition of Song of the Week.`\
-https://www.nytimes.com/video/podcasts/100000010929288/kids-review-sarniezz-by-angine-de-poitrine.html
 
