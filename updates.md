@@ -1,3 +1,19 @@
+**Carney Outlines Plan for New U.S.-Canada Relationship**\
+`Prime Minister Mark Carney of Canada called for a new, more distant relationship with the United States on Thursday, but maintained that reducing his country’s diplomatic and economic dependency on the U.S. would benefit Americans.`\
+https://www.nytimes.com/video/world/canada/100000010931622/carney-us-canada-relations.html
+
+**A Draft U.S.-Iran Plan Is Said to Be on the Table. Here’s What to Know.**\
+`U.S. and Iranian officials say they are closing in on the terms of a preliminary agreement. Yet sticking points, particularly over the Strait of Hormuz, remain.`\
+https://www.nytimes.com/2026/05/28/world/middleeast/iran-us-agreement-plan.html
+
+**Scripps Spelling Bee Live Updates: Students Battle for Word Domination**\
+`Nine contestants will compete against one another — and the dictionary. The finals begin at 8 p.m. Eastern time.`\
+https://www.nytimes.com/live/2026/05/28/us/scripps-spelling-bee
+
+**U.S. and Iran Move Toward Agreement to Reopen the Strait of Hormuz**\
+`President Trump has yet to sign off on an extension of the cease-fire that would allow the two sides to negotiate nuclear and other issues.`\
+https://www.nytimes.com/2026/05/28/world/middleeast/us-iran-war-strait.html
+
 **Late May Storm Brings Rain and Snow to Northern California**\
 `San Francisco received nearly as much rain one morning as it would typically see for the month, and a slope in the Sierra Nevada remained open for skiing.`\
 https://www.nytimes.com/2026/05/28/weather/may-snow-rain-california.html
