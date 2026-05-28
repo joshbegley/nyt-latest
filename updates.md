@@ -1,3 +1,11 @@
+**N.B.A. Player Took $70,000 Bribe to Leave Game Early, U.S. Says**\
+`Terry Rozier faces new charges for his role in a betting scheme that prosecutors say involves former and current professional basketball players.`\
+https://www.nytimes.com/2026/05/28/nyregion/terry-rozier-nba-betting-scandal.html
+
+**Deadly Heat Wave Sweeps Across Western Europe**\
+`A deadly heat wave in Europe this month brought record-breaking temperatures. Scientists linked the extreme heat to man-made global warming.`\
+https://www.nytimes.com/video/climate/100000010931267/deadly-heat-wave-sweeps-across-western-europe.html
+
 **Carney Outlines Plan for New U.S.-Canada Relationship**\
 `Prime Minister Mark Carney of Canada called for a new, more distant relationship with the United States on Thursday, but maintained that reducing his country’s diplomatic and economic dependency on the U.S. would benefit Americans.`\
 https://www.nytimes.com/video/world/canada/100000010931622/carney-us-canada-relations.html
