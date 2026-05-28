@@ -1,3 +1,11 @@
+**El Departamento de Justicia pone la mira sobre E. Jean Carroll de nuevo**\
+`Carroll, quien ganó un juicio civil tras acusar al presidente de los EE. UU. de abuso sexual, es objeto de una campaña de un gobierno que quiere cazar a supuestos enemigos.`\
+https://www.nytimes.com/es/2026/05/28/espanol/estados-unidos/trump-carroll-abuso-sexual.html
+
+**Memphis Residents Sue Federal Agents Over Arrest Tactics Amid Crime and Immigration Crackdown**\
+`A federal task force in the city has been targeting crime and undocumented immigrants since October. Observers say they have faced retaliation for trying to track the agents’ work.`\
+https://www.nytimes.com/2026/05/28/us/memphis-arrest-tactics-lawsuit.html
+
 **Iran War Live Updates: U.S. Officials Say They Are Closing In on Arrangement to Reopen Strait of Hormuz**\
 `President Trump has not signed off on the emerging framework, according to U.S. officials. But it could set the table for extending the cease-fire and more substantive negotiations.`\
 https://www.nytimes.com/live/2026/05/28/world/iran-war-us-trump-deal
