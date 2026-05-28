@@ -1,3 +1,11 @@
+**Today, In Short**\
+`Mogging. Skateboarding. And an investigation into police conduct in Texas schools.`\
+https://www.nytimes.com/2026/05/28/briefing/today-in-short.html
+
+**Three Great Documentaries to Stream**\
+`This month’s picks explore the French legal system, a neighborhood conflict in Florida and the cinema legacy of the Lumière brothers.`\
+https://www.nytimes.com/2026/05/28/movies/documentaries-streaming.html
+
 **Guatemala Agrees to Joint Drug Gang Strikes With U.S., Expanding Trump’s Campaign**\
 `The deal is part of a broader effort by the Trump administration to press Latin American countries to agree to joint operations inside their borders.`\
 https://www.nytimes.com/2026/05/28/world/americas/guatemala-us-joint-strikes.html
