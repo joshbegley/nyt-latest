@@ -1,3 +1,27 @@
+**En Europa, una ola de calor primaveral rompe récords**\
+`Las autoridades de Francia y el Reino Unido advirtieron que podrían persistir unas temperaturas “sin precedentes”, en un momento en que pocos las esperaban.`\
+https://www.nytimes.com/es/2026/05/28/espanol/mundo/europa-espana-ola-calor.html
+
+**Why Pakistan and Afghanistan Are Still Fighting**\
+`Months after Pakistan declared “open war” on Afghanistan, neither side appears ready to back down, despite China’s efforts to mediate.`\
+https://www.nytimes.com/2026/05/28/world/asia/pakistan-afghanistan-conflict.html
+
+**How to Watch the Scripps National Spelling Bee**\
+`Nearly 250 contestants from around the nation and the world traveled to Washington for a chance at glory and a $50,000 cash prize.`\
+https://www.nytimes.com/2026/05/28/us/how-to-watch-scripps-national-spelling-bee-2026.html
+
+**What Plunging Pork Prices Say About China’s Economy**\
+`A key measure of inflation in China, they hit a 16-year low, driven by anemic consumer spending and an oversupply of hogs.`\
+https://www.nytimes.com/2026/05/28/business/china-pork-prices-economy.html
+
+**Corrections: May 28, 2026**\
+`Corrections that appeared in print on Thursday, May 28, 2026.`\
+https://www.nytimes.com/2026/05/28/pageoneplus/corrections-may-28-2026.html
+
+**Quote of the Day: Farage’s Far-Right Party Has Surged to the Fore**\
+`Quotation of the Day for Thursday, May 28, 2026.`\
+https://www.nytimes.com/2026/05/27/pageoneplus/quote-of-the-day-farages-far-right-party-has-surged-to-the-fore.html
+
 **Justice Dept. Is Said to Open Criminal Inquiry of E. Jean Carroll, Who Accused Trump of Rape**\
 `Ms. Carroll, who prevailed in a civil trial after accusing President Trump of sexual abuse, is the latest target in a Justice Department campaign going after his perceived enemies.`\
 https://www.nytimes.com/2026/05/27/us/politics/criminal-inquiry-e-jean-carroll-trump-accusations.html
