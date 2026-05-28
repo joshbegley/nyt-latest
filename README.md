@@ -1,3 +1,11 @@
+**Fire Erupts in Dallas Apartment Building**\
+`Video captured flames engulfing an apartment building in Dallas on Thursday.`\
+https://www.nytimes.com/video/us/100000010931758/fire-dallas-apartment-building.html
+
+**Scripps Spelling Bee Live Updates: Students Vie for Top Prize**\
+`Nine contestants will compete against one another — and the dictionary. The finals begin at 8 p.m. Eastern time.`\
+https://www.nytimes.com/live/2026/05/28/us/scripps-spelling-bee
+
 **A Democrat’s Dodge on AIPAC Points to the Party’s Tensions Over Israel**\
 `A key moment at a Senate primary debate in Michigan showed how pro-Israel Democrats are approaching the issue with caution.`\
 https://www.nytimes.com/2026/05/28/us/politics/el-sayed-stevens-mcmorrow-democrats-senate-israel.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/05/28/us/politics/the-docket-trump-founders.html
 **Bari Weiss Names Nick Bilton to Lead CBS’s ‘60 Minutes’ in Major Shake-Up**\
 `Bari Weiss, CBS’s editor in chief, named Nick Bilton, a tech journalist and filmmaker, as the show’s executive producer. The network also fired two on-air correspondents.`\
 https://www.nytimes.com/2026/05/28/business/media/nick-bilton-60-minutes-bari-weiss.html
-
-**‘Power Ballad’ Review: Hitting All the Wrong Notes**\
-`There are some promising themes in this comedy-drama about an American musician in Dublin, featuring Nick Jonas and Paul Rudd, but the movie never develops them.`\
-https://www.nytimes.com/2026/05/28/movies/power-ballad-review.html
-
-**Today, In Short**\
-`Mogging. Skateboarding. And an investigation into police conduct in Texas schools.`\
-https://www.nytimes.com/2026/05/28/briefing/today-in-short.html
 
 **Iran War Live Updates: U.S. Officials Say They Are Closing In on Arrangement to Reopen Strait of Hormuz**\
 `President Trump has not signed off on the emerging framework, according to U.S. officials. But it could set the table for extending the cease-fire and more substantive negotiations.`\
