@@ -1,3 +1,7 @@
+**Man Sentenced to 40 Years in Murders of 4 Sleeping Homeless Men**\
+`The judge who sentenced Randy Rodriguez Santos said his case exemplified the “coming together of three horrible symptoms of this city: homelessness, mental illness and narcotics abuse.”`\
+https://www.nytimes.com/2026/05/28/nyregion/santos-chinatown-homeless-murder.html
+
 **Books Our Editors Loved This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/05/28/books/review/new-recommended-books.html
