@@ -1,3 +1,7 @@
+**U.S. Conducts New Strikes in Southern Iran**\
+`For the second time in three days, the military hit targets in what it called acts of self-defense, as a potential cease-fire hangs in the balance.`\
+https://www.nytimes.com/2026/05/27/world/middleeast/military-strikes-southern-iran.html
+
 **They Fought for the Voting Rights Act. Now They’re Fighting Its Unraveling.**\
 `At just eight years old, Sheyann Webb-Christburg marched for Black voting rights in Selma, alongside Martin Luther King, Jr. Now, as Southern Republicans race to redraw voting district maps before the Midterm elections, Sheyann and other Black voters are protesting what they fear is the erasure of their voices.`\
 https://www.nytimes.com/video/us/elections/100000010898759/voting-rights-act-selma-black-voters.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/100000010928426/hunting-frankenfish-with-a-bow-
 **How Democrats Can Avoid the Mistakes of 2024**\
 `Readers discuss the Democratic Party’s autopsy of the presidential election. Also: Single at a party.`\
 https://www.nytimes.com/2026/05/27/opinion/democrats-autopsy-2024-election.html
-
-**Reflecting Pool Contract Has ‘Inflated’ Profit Margin, Government Analysis Finds**\
-`The firm that was given a no-bid contract to fix the troubled landmark is charging 20 percent. The typical profit margin is 6 percent to 12 percent, internal records show.`\
-https://www.nytimes.com/2026/05/27/us/politics/reflecting-pool-contractor-trump.html
 
