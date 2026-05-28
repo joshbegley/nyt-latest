@@ -1,3 +1,7 @@
+**Finding Wisdom in a Poem by Wendy Cope**\
+`A.O. Scott seeks practical advice in a villanelle by Wendy Cope.`\
+https://www.nytimes.com/interactive/2026/05/28/books/poem-wisdom-wendy-cope.html
+
 **Quarantine Unit for Americans Exposed to Ebola to Open in Kenya Friday**\
 `But U.S. officials are still working to find centers in Europe to accept Americans who need advanced treatment, seen as critical to improving odds of survival.`\
 https://www.nytimes.com/2026/05/28/us/quarantine-americans-ebola-kenya.html

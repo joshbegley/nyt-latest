@@ -1,3 +1,7 @@
+**Finding Wisdom in a Poem by Wendy Cope**\
+`A.O. Scott seeks practical advice in a villanelle by Wendy Cope.`\
+https://www.nytimes.com/interactive/2026/05/28/books/poem-wisdom-wendy-cope.html
+
 **Quarantine Unit for Americans Exposed to Ebola to Open in Kenya Friday**\
 `But U.S. officials are still working to find centers in Europe to accept Americans who need advanced treatment, seen as critical to improving odds of survival.`\
 https://www.nytimes.com/2026/05/28/us/quarantine-americans-ebola-kenya.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/video/world/africa/100000010930112/kenya-fire-school-gil
 **The Google Insider Trading Case Hits Polymarket**\
 `Charges against a Google employee who bet on Polymarket have raised concerns that the issue may dent momentum in the fast-growing sector.`\
 https://www.nytimes.com/2026/05/28/business/dealbook/insider-trading-polymarket.html
-
-**Pressure Grows on Spain’s Leader After Police Search His Party Office**\
-`After a judge accused his party of corruption, Prime Minister Pedro Sánchez of Spain has faced mounting calls to resign.`\
-https://www.nytimes.com/2026/05/28/world/europe/spain-sanchez-socialist-party-raid.html
 
 **Iran War Live Updates: U.S. Officials Say They Are Closing In on Arrangement to Reopen Strait of Hormuz**\
 `President Trump has not signed off on the emerging framework, according to U.S. officials. But it could set the table for extending the cease-fire and more substantive negotiations.`\
