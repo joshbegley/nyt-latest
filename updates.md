@@ -1,3 +1,99 @@
+**How Ukraine’s Street Style Is Shaped by the War**\
+`In Kyiv, military-inspired fashion can be seen everywhere. Soldiers and civilians alike say it’s a show of solidarity, not a fad.`\
+https://www.nytimes.com/2026/05/28/world/europe/ukraine-war-street-style-fashion-military.html
+
+**El multimillonario tecnológico Peter Thiel encuentra un nuevo refugio: Argentina**\
+`Se ha dicho que la llegada del empresario al país sudamericano está motivado en parte por su preocupación por el futuro de Estados Unidos y por compartir ideología con el presidente Javier Milei.`\
+https://www.nytimes.com/es/2026/05/28/espanol/america-latina/peter-thiel-argentina-milei.html
+
+**What Orchestras and Singers Gain Through Operas in Concert**\
+`The Cleveland Orchestra’s recent performances of Beethoven’s “Fidelio” join concerts that fill a gap in American opera.`\
+https://www.nytimes.com/2026/05/28/arts/music/fidelio-cleveland-orchestra.html
+
+**Three Ways Trump Is Losing the War**\
+`The president is giving a master class in what not to do in Iran.`\
+https://www.nytimes.com/2026/05/28/opinion/trump-iran-war.html
+
+**Saints and Sinners, From the Vatican to the Alamo**\
+`Texas just got a lot more interesting.`\
+https://www.nytimes.com/2026/05/28/opinion/texas-paxton-talarico-marilyn-monroe.html
+
+**¿Deberías seguir los consejos de nutrición de un chatbot?**\
+`Muchas personas recurren a la inteligencia artificial para que les ayude con su dieta. Los expertos sopesan los posibles pros y contras.`\
+https://www.nytimes.com/es/2026/05/28/espanol/consejos-nutricion-ia.html
+
+**Cuba Loses Its Chance at Fuel After Russian Tanker Changes Route**\
+`A Russian tanker seemingly en route to Cuba with a lifeline of fuel has changed direction, a painful development for the island suffering under a U.S. oil blockade.`\
+https://www.nytimes.com/2026/05/28/world/americas/cuba-oil-russia-tanker.html
+
+**Online Scams Have Evolved in the A.I. Era. Here’s What to Do.**\
+`A criminal could be masquerading as a celebrity, web store or family member asking for your money. Detecting scams requires a new approach.`\
+https://www.nytimes.com/2026/05/28/technology/personaltech/online-scams-have-evolved-in-the-ai-era-heres-what-to-do.html
+
+**After a Breakup, an American Started Fresh in Amsterdam**\
+`Needing a new place fast, an art curator who’d been living in Utrecht decamped to the Dutch capital with about $350,000 to spend. She saw studios in three intriguing neighborhoods.`\
+https://www.nytimes.com/interactive/2026/05/28/realestate/amsterdam-real-estate.html
+
+**Our Military Is Built for the Wrong Century**\
+`Ukraine and Iran have shown us that war as we’ve known it is over.`\
+https://www.nytimes.com/2026/05/28/opinion/military-iran-ukraine-russia-war-drones.html
+
+**Cuba acaba de perder una gran oportunidad de obtener combustible**\
+`Un buque petrolero ruso que parecía dirigirse a Cuba con un suministro vital de combustible ha cambiado de dirección, un hecho doloroso para la isla, que sufre un bloqueo petrolero estadounidense.`\
+https://www.nytimes.com/es/2026/05/28/espanol/america-latina/cuba-buque-petroleo-ruso-apagones.html
+
+**Guatemala acuerda ataques conjuntos con EE. UU. contra el narcotráfico**\
+`El acuerdo forma parte de un esfuerzo más ambicioso del gobierno de Trump para presionar a los países latinoamericanos a que acepten operaciones conjuntas dentro de sus territorios.`\
+https://www.nytimes.com/es/2026/05/28/espanol/america-latina/guatemala-ataques-narco-estados-unidos.html
+
+**Guatemala Agrees to Joint Strikes With U.S. Against Drug Gangs**\
+`The deal is part of a broader effort by the Trump administration to press Latin American countries to agree to joint operations inside their borders.`\
+https://www.nytimes.com/2026/05/28/world/americas/guatemala-us-joint-strikes.html
+
+**The 100 Best NYC Restaurants | Cannonball With Wesley Morris**\
+`Our critics cherry-pick highlights from the “100 Best Restaurants” list.`\
+https://www.nytimes.com/2026/05/28/podcasts/over-20000-restaurants-in-new-york-city-only-one-list.html
+
+**Trump Wants to ‘Take Cuba.’ These Cubans Have Thoughts.**\
+`A filmmaker asks residents of the embattled island what they would say to the U.S. president.`\
+https://www.nytimes.com/2026/05/28/opinion/cuba-government-us-trump.html
+
+**For Rent: A One-Bedroom Coyote House**\
+`The artist Johnny DeFeo reimagined his wildlife paintings as a tiny adventure house that he constructed high in the New Mexican desert. (Vacationers, check Airbnb.)`\
+https://www.nytimes.com/2026/05/28/arts/design/art-desert-housing-coyote-new-mexico.html
+
+**‘Pressure’ Review: The Weather of War**\
+`Amid the chaos of World War II, this dull film centers on dueling weather reports in the period leading up to D-Day.`\
+https://www.nytimes.com/2026/05/28/movies/pressure-review.html
+
+**In Argentina, U.S. Tech Billionaire Peter Thiel Finds An Escape**\
+`The billionaire’s new roots in Argentina are said to be partly motivated by concerns about the future of the United States and a shared ideology with Argentina’s right-wing leader.`\
+https://www.nytimes.com/2026/05/28/world/americas/peter-thiel-argentina.html
+
+**The Long, Bitter Fight at the Park Slope Food Co-op**\
+`The grocery store voted overwhelmingly to boycott Israeli products. A leading rabbi said it was “a really sad night for a lot of Jews in Park Slope.”`\
+https://www.nytimes.com/2026/05/28/nyregion/the-long-bitter-fight-at-the-park-slope-food-co-op.html
+
+**Our Military Is Built for the Wrong Century**\
+`Ukraine and Iran have shown us that war as we’ve known it is over.`\
+https://www.nytimes.com/video/opinion/100000010921303/our-military-is-built-for-the-wrong-century.html
+
+**For Nabela Noor, Home Is Where the Clicks Are**\
+`With her idealized take on family life, Nabela Noor is moving beyond the social media platforms where she gained 12 million followers.`\
+https://www.nytimes.com/2026/05/28/style/nabela-noor-home-influencer-pennsylvania.html
+
+**Texas School Police Investigation: 5 Takeaways**\
+`The state’s ambitious school policing initiative has few safeguards to prevent overreach by officers.`\
+https://www.nytimes.com/2026/05/28/us/5-takeaways-from-our-investigation-into-texas-school-police.html
+
+**Genetic Scores are Booming. But Will Anti-Discrimination Laws Cover Your DNA?**\
+`As predictive medicine advances, legal scholars warn that decades-old federal guidelines could set up a potential clash between your genes and your job.`\
+https://www.nytimes.com/2026/05/28/health/polygenic-risk-scores-workplace.html
+
+**These Drivers Found Cheap Gas**\
+`It’s in Valley Center, Calif., on tribal land. Customers relish every penny saved.`\
+https://www.nytimes.com/2026/05/28/us/cheap-gas-prices.html
+
 **Review: ‘The Maids’ Makes a Ruckus but Not Enough Mess**\
 `Jean Genet’s psychosexual drama gets a social-media-heavy update. But what does it say beyond “internet=bad”?`\
 https://www.nytimes.com/2026/05/28/theater/the-maids-review-yerin-ha-kip-williams.html

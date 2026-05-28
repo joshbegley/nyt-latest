@@ -1,3 +1,99 @@
+**How Ukraine’s Street Style Is Shaped by the War**\
+`In Kyiv, military-inspired fashion can be seen everywhere. Soldiers and civilians alike say it’s a show of solidarity, not a fad.`\
+https://www.nytimes.com/2026/05/28/world/europe/ukraine-war-street-style-fashion-military.html
+
+**El multimillonario tecnológico Peter Thiel encuentra un nuevo refugio: Argentina**\
+`Se ha dicho que la llegada del empresario al país sudamericano está motivado en parte por su preocupación por el futuro de Estados Unidos y por compartir ideología con el presidente Javier Milei.`\
+https://www.nytimes.com/es/2026/05/28/espanol/america-latina/peter-thiel-argentina-milei.html
+
+**What Orchestras and Singers Gain Through Operas in Concert**\
+`The Cleveland Orchestra’s recent performances of Beethoven’s “Fidelio” join concerts that fill a gap in American opera.`\
+https://www.nytimes.com/2026/05/28/arts/music/fidelio-cleveland-orchestra.html
+
+**Three Ways Trump Is Losing the War**\
+`The president is giving a master class in what not to do in Iran.`\
+https://www.nytimes.com/2026/05/28/opinion/trump-iran-war.html
+
+**Saints and Sinners, From the Vatican to the Alamo**\
+`Texas just got a lot more interesting.`\
+https://www.nytimes.com/2026/05/28/opinion/texas-paxton-talarico-marilyn-monroe.html
+
+**¿Deberías seguir los consejos de nutrición de un chatbot?**\
+`Muchas personas recurren a la inteligencia artificial para que les ayude con su dieta. Los expertos sopesan los posibles pros y contras.`\
+https://www.nytimes.com/es/2026/05/28/espanol/consejos-nutricion-ia.html
+
+**Cuba Loses Its Chance at Fuel After Russian Tanker Changes Route**\
+`A Russian tanker seemingly en route to Cuba with a lifeline of fuel has changed direction, a painful development for the island suffering under a U.S. oil blockade.`\
+https://www.nytimes.com/2026/05/28/world/americas/cuba-oil-russia-tanker.html
+
+**Online Scams Have Evolved in the A.I. Era. Here’s What to Do.**\
+`A criminal could be masquerading as a celebrity, web store or family member asking for your money. Detecting scams requires a new approach.`\
+https://www.nytimes.com/2026/05/28/technology/personaltech/online-scams-have-evolved-in-the-ai-era-heres-what-to-do.html
+
+**After a Breakup, an American Started Fresh in Amsterdam**\
+`Needing a new place fast, an art curator who’d been living in Utrecht decamped to the Dutch capital with about $350,000 to spend. She saw studios in three intriguing neighborhoods.`\
+https://www.nytimes.com/interactive/2026/05/28/realestate/amsterdam-real-estate.html
+
+**Our Military Is Built for the Wrong Century**\
+`Ukraine and Iran have shown us that war as we’ve known it is over.`\
+https://www.nytimes.com/2026/05/28/opinion/military-iran-ukraine-russia-war-drones.html
+
+**Cuba acaba de perder una gran oportunidad de obtener combustible**\
+`Un buque petrolero ruso que parecía dirigirse a Cuba con un suministro vital de combustible ha cambiado de dirección, un hecho doloroso para la isla, que sufre un bloqueo petrolero estadounidense.`\
+https://www.nytimes.com/es/2026/05/28/espanol/america-latina/cuba-buque-petroleo-ruso-apagones.html
+
+**Guatemala acuerda ataques conjuntos con EE. UU. contra el narcotráfico**\
+`El acuerdo forma parte de un esfuerzo más ambicioso del gobierno de Trump para presionar a los países latinoamericanos a que acepten operaciones conjuntas dentro de sus territorios.`\
+https://www.nytimes.com/es/2026/05/28/espanol/america-latina/guatemala-ataques-narco-estados-unidos.html
+
+**Guatemala Agrees to Joint Strikes With U.S. Against Drug Gangs**\
+`The deal is part of a broader effort by the Trump administration to press Latin American countries to agree to joint operations inside their borders.`\
+https://www.nytimes.com/2026/05/28/world/americas/guatemala-us-joint-strikes.html
+
+**The 100 Best NYC Restaurants | Cannonball With Wesley Morris**\
+`Our critics cherry-pick highlights from the “100 Best Restaurants” list.`\
+https://www.nytimes.com/2026/05/28/podcasts/over-20000-restaurants-in-new-york-city-only-one-list.html
+
+**Trump Wants to ‘Take Cuba.’ These Cubans Have Thoughts.**\
+`A filmmaker asks residents of the embattled island what they would say to the U.S. president.`\
+https://www.nytimes.com/2026/05/28/opinion/cuba-government-us-trump.html
+
+**For Rent: A One-Bedroom Coyote House**\
+`The artist Johnny DeFeo reimagined his wildlife paintings as a tiny adventure house that he constructed high in the New Mexican desert. (Vacationers, check Airbnb.)`\
+https://www.nytimes.com/2026/05/28/arts/design/art-desert-housing-coyote-new-mexico.html
+
+**‘Pressure’ Review: The Weather of War**\
+`Amid the chaos of World War II, this dull film centers on dueling weather reports in the period leading up to D-Day.`\
+https://www.nytimes.com/2026/05/28/movies/pressure-review.html
+
+**In Argentina, U.S. Tech Billionaire Peter Thiel Finds An Escape**\
+`The billionaire’s new roots in Argentina are said to be partly motivated by concerns about the future of the United States and a shared ideology with Argentina’s right-wing leader.`\
+https://www.nytimes.com/2026/05/28/world/americas/peter-thiel-argentina.html
+
+**The Long, Bitter Fight at the Park Slope Food Co-op**\
+`The grocery store voted overwhelmingly to boycott Israeli products. A leading rabbi said it was “a really sad night for a lot of Jews in Park Slope.”`\
+https://www.nytimes.com/2026/05/28/nyregion/the-long-bitter-fight-at-the-park-slope-food-co-op.html
+
+**Our Military Is Built for the Wrong Century**\
+`Ukraine and Iran have shown us that war as we’ve known it is over.`\
+https://www.nytimes.com/video/opinion/100000010921303/our-military-is-built-for-the-wrong-century.html
+
+**For Nabela Noor, Home Is Where the Clicks Are**\
+`With her idealized take on family life, Nabela Noor is moving beyond the social media platforms where she gained 12 million followers.`\
+https://www.nytimes.com/2026/05/28/style/nabela-noor-home-influencer-pennsylvania.html
+
+**Texas School Police Investigation: 5 Takeaways**\
+`The state’s ambitious school policing initiative has few safeguards to prevent overreach by officers.`\
+https://www.nytimes.com/2026/05/28/us/5-takeaways-from-our-investigation-into-texas-school-police.html
+
+**Genetic Scores are Booming. But Will Anti-Discrimination Laws Cover Your DNA?**\
+`As predictive medicine advances, legal scholars warn that decades-old federal guidelines could set up a potential clash between your genes and your job.`\
+https://www.nytimes.com/2026/05/28/health/polygenic-risk-scores-workplace.html
+
+**These Drivers Found Cheap Gas**\
+`It’s in Valley Center, Calif., on tribal land. Customers relish every penny saved.`\
+https://www.nytimes.com/2026/05/28/us/cheap-gas-prices.html
+
 **Review: ‘The Maids’ Makes a Ruckus but Not Enough Mess**\
 `Jean Genet’s psychosexual drama gets a social-media-heavy update. But what does it say beyond “internet=bad”?`\
 https://www.nytimes.com/2026/05/28/theater/the-maids-review-yerin-ha-kip-williams.html
@@ -101,100 +197,4 @@ https://www.nytimes.com/2026/05/28/us/trump-harvard-antisemitism-improvement.htm
 **Firelei Báez Harvests Trickster Energy to Remap Stories of the World**\
 `In her new exhibition, the Dominican painter retooled graphics from the past to reimagine the future.`\
 https://www.nytimes.com/2026/05/28/arts/firelei-baez-harvests-trickster-energy-to-remap-stories-of-the-world.html
-
-**Veronica Roth on Her Favorite Books and Her New Novel, ‘Seek the Traitor’s Son’**\
-`“I love a clever puppet master,” says the author of the Divergent series and the new “Seek the Traitor’s Son.” Her favorite hero? Antigone.`\
-https://www.nytimes.com/2026/05/28/books/review/veronica-roth-seek-the-traitors-son.html
-
-**The Real Story Behind “Pressure,” the Film About the D-Day Weather Forecast**\
-`The new film “Pressure” tells the story of the fateful D-Day weather forecast. Here’s what it got right and wrong from the historical record.`\
-https://www.nytimes.com/2026/05/28/movies/pressure-movie-fact-fiction-james-stagg.html
-
-**Our Reporter on What Happened When Texas Increased School Police**\
-`After the 2022 mass shooting in Uvalde, Texas, the state passed a law mandating police presence in schools. Our reporter Clare Amari describes how some students in Texas have experienced physical force by school police officers since then.`\
-https://www.nytimes.com/video/us/100000010838874/our-reporter-on-what-happened-when-texas-increased-school-police.html
-
-**The Nonfiction Everyone Will Be Reading This Summer**\
-`Memoirs, histories, true crime, investigations and much more.`\
-https://www.nytimes.com/2026/05/28/books/review/the-nonfiction-everyone-will-be-reading-this-summer.html
-
-**The Novels Everyone Will Be Reading This Summer**\
-`New fiction from Maggie O’Farrell, Ann Patchett, Colson Whitehead, Silvia Moreno-Garcia and much more.`\
-https://www.nytimes.com/2026/05/28/books/review/summer-fiction-preview.html
-
-**‘Up for Grabs’: Can Democrats Sway Young Men Who Have Soured on Trump?**\
-`Many Gen Z men who voted for the president are dismayed by his time in office. But they are not hearing an appealing pitch from Democrats, either: “Both parties kind of get it wrong.”`\
-https://www.nytimes.com/2026/05/28/us/politics/up-for-grabs-can-democrats-sway-young-men-who-have-soured-on-trump.html
-
-**I Tried to Sell My House With A.I.**\
-`Over five frantic days, I gambled my family’s life savings on a hunch that A.I. could outperform a real estate agent.`\
-https://www.nytimes.com/2026/05/28/technology/sell-house-with-ai-no-realtor.html
-
-**Trump Wants to ‘Take Cuba.’ These Cubans Have Thoughts.**\
-`A filmmaker asks residents of the embattled island what they would say to the U.S. president.`\
-https://www.nytimes.com/video/opinion/editorials/100000010926338/trump-wants-to-take-cuba-these-cubans-have-thoughts.html
-
-**Australia Sues 3M for $1.4 Billion Over ‘Forever Chemicals’**\
-`The lawsuit, the largest ever filed by the Australian government, claims 3M hid information about the harmful effects of PFAS used at military bases.`\
-https://www.nytimes.com/2026/05/28/business/australia-lawsuit-3m-psas.html
-
-**Fire at School Dormitory in Kenya Kills Several Students**\
-`It was not immediately clear what caused the blaze, which was the latest in a series of deadly fires at schools in the country in recent years.`\
-https://www.nytimes.com/2026/05/28/world/africa/kenya-school-fire.html
-
-**Scientists Find a Potential Cure for Chronic Hepatitis B**\
-`Most people recover from the infection, but it poses great risks for those who don’t. A new drug may cure 1 in 5 of these patients.`\
-https://www.nytimes.com/2026/05/28/health/hepatitis-b-chronic-bepirovirsen.html
-
-**Por qué los brotes de ébola y hantavirus han confundido a los científicos**\
-`Las noticias sobre los más recientes brotes de virus en el mundo no solo han sido aterradoras, sino también confusas, incluso para los científicos.`\
-https://www.nytimes.com/es/2026/05/28/espanol/ciencia-y-tecnologia/ebola-hantavirus-tratamiento-tipos.html
-
-**U.S. Launches Fresh Strikes in Iran, Testing Fragile Ceasefire**\
-`The U.S. conducted what a U.S. official said were self-defense strikes in southern Iran on Wednesday as Trump signaled readiness for a prolonged negotiation process.`\
-https://www.nytimes.com/video/world/americas/100000010929878/iran-war-us-strikes-trump.html
-
-**China prueba su modelo de vigilancia estatal en el extranjero**\
-`Bajo el mandato de Xi Jinping, China ha intentado exportar al mundo sus ideas sobre seguridad y ha llegado a países como las Islas Salomón.`\
-https://www.nytimes.com/es/2026/05/28/espanol/mundo/china-vigilancia-xi.html
-
-**Bare-Knuckle Tactics and Brash Promises: How Howard Lutnick Operates**\
-`Before becoming U.S. commerce secretary, Mr. Lutnick controlled 818 companies. A review of their dealings sheds light on his freewheeling first year in government.`\
-https://www.nytimes.com/2026/05/28/nyregion/lutnick-commerce-companies-business.html
-
-**NYT Spelling Bee Answers for May 28, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/05/28/crosswords/spelling-bee-forum.html
-
-**4 Takeaways From The Times’s Reporting on Howard Lutnick**\
-`The New York Times examined the dealings of 818 companies controlled by the U.S. commerce secretary, documenting a history of bare-knuckle tactics that extended into his time in government.`\
-https://www.nytimes.com/2026/05/28/nyregion/lutnick-business-takeaways.html
-
-**Jimmy Kimmel Can Hardly Believe the Reality of L.A.’s Mayoral Race**\
-`“Mayor should not be your first job,” the host said of the former reality show star and mayoral candidate Spencer Pratt, who is polling in second place.`\
-https://www.nytimes.com/2026/05/28/arts/television/late-night-trump-spencer-pratt-mayor.html
-
-**Word of the Day: risible**\
-`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/05/28/learning/word-of-the-day-risible.html
-
-**Iran War Live Updates: Iranian Military Says It Targeted a U.S. Base in Retaliation for Strikes**\
-`Iran’s Islamic Revolutionary Guards Corps did not say which base it had targeted early Thursday, after U.S. strikes in the country’s south. The exchanges threaten a fragile cease-fire.`\
-https://www.nytimes.com/live/2026/05/28/world/iran-war-us-trump-deal
-
-**Oil Prices Climb on Renewed Hostilities in Middle East**\
-`Oil prices jumped after the U.S. said it shot down four Iranian attack drones, casting doubt once again on the prospects for a peace deal.`\
-https://www.nytimes.com/2026/05/28/business/oil-gas-price-iran.html
-
-**Israel’s Isolation Is Deepening Fast. It Doesn’t Have to Be This Way.**\
-`Elections this year hold out the promise that the state can change policies in a way to recover some international good will.`\
-https://www.nytimes.com/2026/05/28/opinion/israel-palestinians-boycott-eurovision.html
-
-**Over 20,000 Restaurants in New York City. Only One List.**\
-`Wesley Morris and co-chief restaurant critic, Ligaya Mishan, cherry-pick highlights from the 2026 “Best Restuarants in NYC” list.`\
-https://www.nytimes.com/video/podcasts/100000010926457/over-20000-restaurants-in-new-york-city-only-one-list.html
-
-**James Talarico Opens Texas Senate Campaign Against Ken Paxton With Houston Rally**\
-`Personal attacks and a packed campaign rally set the tone for what is likely to be a rancorous contest for U.S. Senate between James Talarico and Ken Paxton in Texas.`\
-https://www.nytimes.com/2026/05/28/us/politics/ken-paxton-james-talarico-texas-senate-race.html
 
