@@ -1,3 +1,11 @@
+**The Harambe Tapes: Unearthing a Viral Gorilla’s Hidden Last Days**\
+`Ten years after Harambe’s death, a whistleblower from the Cincinnati Zoo tells all.`\
+https://www.nytimes.com/2026/05/28/podcasts/the-harambe-tapes-unearthing-a-viral-gorillas-hidden-last-days.html
+
+**‘Just Bizarre’: The Mideast Is Baffled by Trump’s Call to Expand Abraham Accords**\
+`The president said more countries should be required to recognize Israel as part of a deal to end the war with Iran. Analysts say the chances of that happening are close to zero.`\
+https://www.nytimes.com/2026/05/28/world/middleeast/trump-abraham-accords.html
+
 **Jill Biden pensó que su esposo tuvo un derrame cerebral durante el debate de 2024**\
 `‘Nunca, jamás había visto a Joe así’, dijo la ex primera dama a CBS News. ‘Ni antes ni después’.`\
 https://www.nytimes.com/es/2026/05/28/espanol/estados-unidos/jill-biden-2024-debate-libro.html
