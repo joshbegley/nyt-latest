@@ -1,3 +1,23 @@
+**Why Texas Students Are Being Tackled and Tasered, and Trump’s Latest Target for Retribution**\
+`Plus, inside the hunt for cheap gas.`\
+https://www.nytimes.com/2026/05/28/podcasts/the-headlines/texas-students-tasered-trump-retribution.html
+
+**Can A.I. Make People Feel Less Lonely?**\
+`The story of one woman who let a robot move into her home.`\
+https://www.nytimes.com/2026/05/28/podcasts/the-daily/ai-robot-elderly-loneliness.html
+
+**NYT Connections Answers for May 29, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, May 29, 2026.`\
+https://www.nytimes.com/2026/05/28/crosswords/connections-companion-1083.html
+
+**NYT Strands Hints for May 29, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, May 29, 2026.`\
+https://www.nytimes.com/2026/05/28/crosswords/strands-sidekick-817.html
+
+**Today’s Wordle Hints for May 29, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, May 29, 2026.`\
+https://www.nytimes.com/2026/05/28/crosswords/wordle-review-1805.html
+
 **¿Rusia podría atacar con más fuerza? Al menos quiere que eso piense Ucrania**\
 `Los grandes ataques contra Kiev, seguidos de advertencias de que habrá más, se producen mientras Moscú está estancado en el campo de batalla y en la mesa de negociaciones.`\
 https://www.nytimes.com/es/2026/05/28/espanol/mundo/rusia-ataques-ucrania.html
