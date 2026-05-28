@@ -1,3 +1,23 @@
+**Why Texas Students Are Being Tackled and Tasered, and Trump’s Latest Target for Retribution**\
+`Plus, inside the hunt for cheap gas.`\
+https://www.nytimes.com/2026/05/28/podcasts/the-headlines/texas-students-tasered-trump-retribution.html
+
+**Can A.I. Make People Feel Less Lonely?**\
+`The story of one woman who let a robot move into her home.`\
+https://www.nytimes.com/2026/05/28/podcasts/the-daily/ai-robot-elderly-loneliness.html
+
+**NYT Connections Answers for May 29, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, May 29, 2026.`\
+https://www.nytimes.com/2026/05/28/crosswords/connections-companion-1083.html
+
+**NYT Strands Hints for May 29, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, May 29, 2026.`\
+https://www.nytimes.com/2026/05/28/crosswords/strands-sidekick-817.html
+
+**Today’s Wordle Hints for May 29, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, May 29, 2026.`\
+https://www.nytimes.com/2026/05/28/crosswords/wordle-review-1805.html
+
 **¿Rusia podría atacar con más fuerza? Al menos quiere que eso piense Ucrania**\
 `Los grandes ataques contra Kiev, seguidos de advertencias de que habrá más, se producen mientras Moscú está estancado en el campo de batalla y en la mesa de negociaciones.`\
 https://www.nytimes.com/es/2026/05/28/espanol/mundo/rusia-ataques-ucrania.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/05/28/movies/forastera-review.html
 **Not Every Language Has Spelling Bees. Here’s Why English Is Perfect for Them.**\
 `English’s hybrid history, silent letters and overcomplicated rules are what make the competition fierce.`\
 https://www.nytimes.com/2026/05/28/magazine/spelling-bee-scripps-english-language.html
-
-**‘The Currents’ Review: Lost and Found**\
-`Milagros Mumenthaler’s superb, sensuously realized film follows an Argentine fashion stylist trying to overcome a deep sense of destabilization.`\
-https://www.nytimes.com/2026/05/28/movies/the-currents-review.html
-
-**‘The Breadwinner’ Review:**\
-`The comedian Nate Bargatze makes a big swing with this movie about a stay-at-home dad, and gets a big assist from three funny kids.`\
-https://www.nytimes.com/2026/05/28/movies/the-breadwinner-review.html
-
-**Finally, a Bookstore That Sells Mesh Underwear**\
-`The book and fashion worlds have been flirting. At Climax, they’re making out.`\
-https://www.nytimes.com/2026/05/28/style/climax-books-isabella-burley.html
-
-**‘Backrooms’ Review: Lost in the Expansion**\
-`Born from a single unsettling image, this viral horror concept from Kane Parsons wears thin under the weight of a full feature.`\
-https://www.nytimes.com/2026/05/28/movies/backrooms-review-lost-in-the-expansion.html
-
-**36 Hours in Dallas, Texas: Things to Do and See**\
-`Between Tex-Mex restaurants, dive bars with live music, shopping and art museums, there’s plenty to keep you busy.`\
-https://www.nytimes.com/interactive/2026/05/28/travel/things-to-do-dallas.html
 
