@@ -1,3 +1,7 @@
+**A Democrat’s Dodge on AIPAC Points to the Party’s Tensions Over Israel**\
+`A key moment at a Senate primary debate in Michigan showed how pro-Israel Democrats are approaching the issue with caution.`\
+https://www.nytimes.com/2026/05/28/us/politics/el-sayed-stevens-mcmorrow-democrats-senate-israel.html
+
 **Treasury Prepares to Make Trump the Face of a New $250 Bill**\
 `Treasury Secretary Bessent backed the idea, which would require legislation allowing a living person to appear on currency.`\
 https://www.nytimes.com/2026/05/28/business/treasury-trump-250-bill.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/05/28/movies/power-ballad-review.html
 **Today, In Short**\
 `Mogging. Skateboarding. And an investigation into police conduct in Texas schools.`\
 https://www.nytimes.com/2026/05/28/briefing/today-in-short.html
-
-**Three Great Documentaries to Stream**\
-`This month’s picks explore the French legal system, a neighborhood conflict in Florida and the cinema legacy of the Lumière brothers.`\
-https://www.nytimes.com/2026/05/28/movies/documentaries-streaming.html
 
 **Iran War Live Updates: U.S. Officials Say They Are Closing In on Arrangement to Reopen Strait of Hormuz**\
 `President Trump has not signed off on the emerging framework, according to U.S. officials. But it could set the table for extending the cease-fire and more substantive negotiations.`\

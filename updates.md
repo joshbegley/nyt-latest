@@ -1,3 +1,7 @@
+**Bari Weiss Names Nick Bilton to Lead CBS’s ‘60 Minutes’ in Major Shake-Up**\
+`Bari Weiss, CBS’s editor in chief, named Nick Bilton, a tech journalist and filmmaker, as the show’s executive producer. The network also fired two on-air correspondents.`\
+https://www.nytimes.com/2026/05/28/business/media/nick-bilton-60-minutes-bari-weiss.html
+
 **Treasury Prepares to Make Trump the Face of a New $250 Bill**\
 `Treasury Secretary Bessent backed the idea, which would require legislation allowing a living person to appear on currency.`\
 https://www.nytimes.com/2026/05/28/business/treasury-trump-250-bill.html
