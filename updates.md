@@ -1,3 +1,7 @@
+**Jill Biden pensó que su esposo tuvo un derrame cerebral durante el debate de 2024**\
+`‘Nunca, jamás había visto a Joe así’, dijo la ex primera dama a CBS News. ‘Ni antes ni después’.`\
+https://www.nytimes.com/es/2026/05/28/espanol/estados-unidos/jill-biden-2024-debate-libro.html
+
 **How Ukraine’s Street Style Is Shaped by the War**\
 `In Kyiv, military-inspired fashion can be seen everywhere. Soldiers and civilians alike say it’s a show of solidarity, not a fad.`\
 https://www.nytimes.com/2026/05/28/world/europe/ukraine-war-street-style-fashion-military.html
