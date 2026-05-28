@@ -1,3 +1,7 @@
+**U.S. Launches Fresh Strikes in Iran, Testing Fragile Ceasefire**\
+`The U.S. conducted what a U.S. official said were self-defense strikes in southern Iran on Wednesday as Trump signaled readiness for a prolonged negotiation process.`\
+https://www.nytimes.com/video/world/americas/100000010929878/iran-war-us-strikes-trump.html
+
 **China prueba su modelo de vigilancia estatal en el extranjero**\
 `Bajo el mandato de Xi Jinping, China ha intentado exportar al mundo sus ideas sobre seguridad y ha llegado a países como las Islas Salomón.`\
 https://www.nytimes.com/es/2026/05/28/espanol/mundo/china-vigilancia-xi.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000010929288/kids-review-sarniezz-by-a
 **Cornyn’s Defeat in Texas Runoff Underscores Trump's Grip on the G.O.P.**\
 `Senator John Cornyn lost to his MAGA-aligned challenger, Ken Paxton, by 28 percentage points. It was a historically poor showing.`\
 https://www.nytimes.com/2026/05/27/us/politics/paxton-cornyn-texas-republican-primary.html
-
-**Man Charged With Hate-Crime Killing of Gay Dancer Claims Self-Defense**\
-`Dmitriy Popov was 17 when he stabbed O’Shae Sibley, a 28-year-old dancer, at a gas station. Mr. Popov has been charged with murder as a hate crime.`\
-https://www.nytimes.com/2026/05/27/nyregion/oshae-sibley-brooklyn-murder-trial.html
 
