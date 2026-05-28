@@ -1,3 +1,7 @@
+**California Tries to Block Trump Involvement in Election Procedures**\
+`Gov. Gavin Newsom signed legislation that tries to stop outside officials from taking ballots or getting involved in ballot processing.`\
+https://www.nytimes.com/2026/05/27/us/california-election-security-newsom.html
+
 **Uganda Closes Border with Congo Over Ebola Fears**\
 `Uganda closed its border with the Democratic Republic of Congo over growing concerns about the possible spread of Ebola on Wednesday. Seven confirmed cases have been reported in the Ugandan capital.`\
 https://www.nytimes.com/video/world/africa/100000010928797/uganda-closes-border-with-congo-over-ebola-fears.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/27/world/middleeast/iran-unofficial-deal-strait.
 **Rubio’s India Visit Yields No Major Deals to Repair U.S.-India Relations**\
 `The secretary of state visited India to reassure the South Asian giant that it can still rely on the United States. India did not gain much from the visit.`\
 https://www.nytimes.com/2026/05/27/world/asia/marco-rubio-visit-india-modi-trump.html
-
-**Alabama Republicans Ask Supreme Court to Allow New Congressional Map in Redistricting Fight**\
-`Republican leaders in the state have asked the justices to clear the way for a congressional map that a lower court found discriminated against Black voters.`\
-https://www.nytimes.com/2026/05/27/us/politics/supreme-court-alabama-voting-maps.html
 
