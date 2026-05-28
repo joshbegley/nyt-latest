@@ -1,3 +1,7 @@
+**Diesel Fuel Spilled on National Mall During 250th Event Setup**\
+`The Trump administration blamed the two spills on vandalism, though the U.S. Park Police is still investigating the incidents.`\
+https://www.nytimes.com/2026/05/28/climate/diesel-fuel-spill-national-mall.html
+
 **Austrian Man Convicted of Planning Attack at Taylor Swift Concert in Vienna**\
 `Prosecutors said the defendant plotted in 2024 to set off a bomb outside the concert, which was later canceled. He and another man were also convicted on separate terrorist charges.`\
 https://www.nytimes.com/2026/05/28/world/europe/taylor-swift-concert-vienna-guilty.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/2026/05/28/world/middleeast/israel-gaza-hamas-70-percent
 `Young MC and Morris Day said they would not perform at the series on the National Mall that is part of the summer celebration of America’s founding.`\
 https://www.nytimes.com/2026/05/28/arts/music/freedom-concerts-young-mc-milli-vanilli.html
 
-**Scooter Rider and Cyclist Are Killed In Head-On Crash on N.Y.C. Bridge**\
+**Scooter Rider and Cyclist Are Killed in Head-On Crash on N.Y.C. Bridge**\
 `The collision on the Queensboro Bridge involved an e-scooter that is not legally allowed to be used on the streets of New York.`\
 https://www.nytimes.com/2026/05/28/nyregion/queensboro-bridge-nyc-bike-scooter-crash-deaths.html
 
@@ -185,10 +189,6 @@ https://www.nytimes.com/video/world/middleeast/100000010930257/israel-strikes-le
 **3 Weeks After Fire, ‘The Book of Mormon’ Reopens on Broadway**\
 `The satirical musical, which is celebrating its 15th anniversary this year, missed 25 performances during the shutdown.`\
 https://www.nytimes.com/2026/05/28/theater/book-of-mormon-broadway-fire-reopening.html
-
-**Happy, Bronx Zoo Elephant at Center of Animal Rights Case, Is Dead at 55**\
-`Activists had sued in a bid to secure her the fundamental human right to bodily liberty. Zoo officials said she was well cared for and called the lawsuit frivolous.`\
-https://www.nytimes.com/2026/05/28/nyregion/happy-elephant-bronx-zoo-dead.html
 
 **Iran War Live Updates: U.S. Officials Say They Are Closing In on Arrangement to Reopen Strait of Hormuz**\
 `President Trump has not signed off on the emerging framework, according to U.S. officials. But it could set the table for extending the cease-fire and more substantive negotiations.`\
