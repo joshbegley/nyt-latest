@@ -1,3 +1,7 @@
+**Massie Visits Greene in Costa Rica for Fishing and ‘Spicy’ Political Talks**\
+`The two Republican critics of President Trump – Thomas Massie, who lost his House primary last week, and Marjorie Taylor Greene, who resigned from Congress – met up in the tropics.`\
+https://www.nytimes.com/2026/05/27/us/politics/massie-marjorie-taylor-greene-costa-rica.html
+
 **Justice Dept. Is Said to Open Criminal Inquiry of E. Jean Carroll, Who Accused Trump of Rape**\
 `The investigation is said to center on whether Ms. Carroll committed perjury in civil lawsuits against Donald J. Trump, whom she accused of sexual assault.`\
 https://www.nytimes.com/2026/05/27/us/politics/criminal-inquiry-e-jean-carroll-trump-accusations.html
