@@ -1,3 +1,7 @@
+**Trump Administration Shows Off $250 Bill Featuring Trump**\
+`During a press conference at the White House on Thursday, Treasury Secretary Scott Bessent displayed a mocked-up $250 bill bearing President Trump’s likeness.`\
+https://www.nytimes.com/video/us/politics/100000010931638/bessent-treasury-trump-250-bill.html
+
 **Fire Erupts in Dallas Apartment Building**\
 `Video captured flames engulfing an apartment building in Dallas on Thursday.`\
 https://www.nytimes.com/video/us/100000010931758/fire-dallas-apartment-building.html
