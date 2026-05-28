@@ -1,3 +1,7 @@
+**Who are the nine finalists?**\
+`(No description)`\
+https://www.nytimes.com/2026/05/28/us/who-are-the-nine-finalists.html
+
 **With Pitchford v. Cain, The Supreme Court Protected Jury Rights. Now It Must Go Further.**\
 `All Americans benefit from the outcome of this case. And yet the decision highlights just how much work still needs to be done.`\
 https://www.nytimes.com/2026/05/28/opinion/supreme-court-jury-discrimination.html

@@ -1,6 +1,10 @@
-**Who are the nine finalists?**\
-`(No description)`\
-https://www.nytimes.com/2026/05/28/us/who-are-the-nine-finalists.html
+**Alaska Authorities Race to Rescue 4 Climbers Who Fell on Mount McKinley**\
+`The condition of the climbers was not immediately known.`\
+https://www.nytimes.com/2026/05/28/us/mount-mckinley-rescue-alaska.html
+
+**Who Are the 9 Scripps Spelling Bee Finalists?**\
+`The remaining spellers are 12 to 14, and represent five states as well as the District of Columbia.`\
+https://www.nytimes.com/2026/05/28/us/scripps-spelling-bee-finalists.html
 
 **With Pitchford v. Cain, The Supreme Court Protected Jury Rights. Now It Must Go Further.**\
 `All Americans benefit from the outcome of this case. And yet the decision highlights just how much work still needs to be done.`\
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/05/28/us/politics/cftc-gemini-winklevoss-lawsuit.ht
 **Dell Gets a $9.7 Billion Defense Contract. Trump’s Portfolio Stands to Benefit.**\
 `The president’s family says his stock purchases are automatically timed, but recent acquisitions of the computer company’s shares raise questions.`\
 https://www.nytimes.com/2026/05/28/us/politics/trump-dell-stock-purchases.html
-
-**U.S. and Iran Move Toward Agreement to Reopen the Strait of Hormuz**\
-`President Trump has yet to sign off on an extension of the cease-fire that would allow the two sides to negotiate nuclear and other issues.`\
-https://www.nytimes.com/2026/05/28/world/middleeast/us-iran-war-strait.html
 
 **Iran War Live Updates: U.S. Officials Say They Are Closing In on Arrangement to Reopen Strait of Hormuz**\
 `President Trump has not signed off on the emerging framework, according to U.S. officials. But it could set the table for extending the cease-fire and more substantive negotiations.`\
