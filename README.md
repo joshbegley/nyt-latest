@@ -82,7 +82,7 @@ https://www.nytimes.com/2026/05/28/arts/music/fidelio-cleveland-orchestra.html
 `The president is giving a master class in what not to do in Iran.`\
 https://www.nytimes.com/2026/05/28/opinion/trump-iran-war.html
 
-**Saints and Sinners, From the Vatican to the Alamo**\
+**Big Swells of Rancor Are Capsizing America**\
 `Texas just got a lot more interesting.`\
 https://www.nytimes.com/2026/05/28/opinion/texas-paxton-talarico-marilyn-monroe.html
 
