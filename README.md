@@ -1,3 +1,7 @@
+**These Are Some of the Trump Justice Dept.’s Targets**\
+`When he returned to office, President Trump vowed revenge against those he said had challenged or defied him. Here’s an incomplete list of the people his Justice Department has targeted.`\
+https://www.nytimes.com/2026/05/28/us/trump-justice-dept-criminal-investigations.html
+
 **Florentina Holzinger’s 9-Hour Spectacle Pushes the Limits of Body Art**\
 `The choreographer-provocateur followed a hit show at the Venice Biennale with one in Vienna. “Violence is something we’re used to,” she said.`\
 https://www.nytimes.com/2026/05/28/arts/design/florentina-holzinger-pentecost-play-vienna.html
@@ -154,7 +158,7 @@ https://www.nytimes.com/2026/05/28/business/media/streaming-tv-hulu-disney-hbo.h
 `On Thursday and Friday, some streets in Manhattan will get a lot more crowded as people gather to watch the city’s unique solar spectacle.`\
 https://www.nytimes.com/2026/05/28/science/manhattanhenge-new-york-city.html
 
-**Enough With the Kennedys**\
+**He’s Entitled and Nepotistic. This Is Not What Democrats Need.**\
 `Members of the country’s grandest political dynasty are not inherently qualified to hold office.`\
 https://www.nytimes.com/2026/05/28/opinion/kennedy-jack-schlossberg-political-dynasty.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/28/movies/propeller-one-way-night-coach-review.h
 **‘Miss You, Love You’ Review: A Son Outsources His Solace**\
 `The mourning process feels theatrical in this dramedy starring Allison Janney as a new widow estranged from her son.`\
 https://www.nytimes.com/2026/05/28/movies/miss-you-love-you-review-a-son-outsources-his-solace.html
-
-**‘The Last Viking’ Review: Imagine Mads Mikkelsen**\
-`Mikkelsen plays a man convinced he’s John Lennon in a darkly comic crime film from the Danish auteur Anders Thomas Jensen.`\
-https://www.nytimes.com/2026/05/28/movies/the-last-viking-review.html
 
