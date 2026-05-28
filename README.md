@@ -2,7 +2,7 @@
 `The ruling allowed the Trump administration to continue to pursue changes that include enlisting the Postal Service in checking voters against a national database.`\
 https://www.nytimes.com/2026/05/28/us/politics/trump-voting-executive-order.html
 
-**Mamdani May Endorse in Tightening House Race in Upper Manhattan**\
+**Mamdani Gets Closer to Endorsing in Tightening Manhattan House Race**\
 `The mayor is giving serious thought to getting behind Darializa Avila Chevalier, a democratic socialist who is challenging Representative Adriano Espaillat.`\
 https://www.nytimes.com/2026/05/28/nyregion/adriano-espaillat-darializa-avila-chevalier-mamdani.html
 
