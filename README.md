@@ -1,3 +1,7 @@
+**Iran, Gas Prices, the Ballroom: Trump Professes Indifference Over Fallout**\
+`President Trump has increasingly adopted a posture of nonchalance when pushed on the political consequences of his actions.`\
+https://www.nytimes.com/2026/05/28/us/politics/trump-fallout-indifference.html
+
 **Swallowing Concerns, G.O.P. Senators Rally Behind Paxton**\
 `After attacking the Texas attorney general, who won the G.O.P. nomination, Senate Republicans are pivoting sharply to support him in what is now a competitive race.`\
 https://www.nytimes.com/2026/05/28/us/politics/republican-senators-support-paxton.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/05/28/t-magazine/baja-california-sur-mexico-vacatio
 **Judge Declines, for Now, to Block Mail-In Voting Changes Ordered by Trump**\
 `The ruling allowed the Trump administration to continue to pursue changes that include enlisting the Postal Service in checking voters against a national database.`\
 https://www.nytimes.com/2026/05/28/us/politics/trump-voting-executive-order.html
-
-**Mamdani Vowed to Back Espaillat. Now He May Endorse a D.S.A. Challenger.**\
-`The mayor is seriously considering getting behind Darializa Avila Chevalier, a democratic socialist challenging Representative Adriano Espaillat in an Upper Manhattan House primary.`\
-https://www.nytimes.com/2026/05/28/nyregion/adriano-espaillat-darializa-avila-chevalier-mamdani.html
 
 **Iran War Live Updates: U.S. Officials Say They Are Closing In on Arrangement to Reopen Strait of Hormuz**\
 `President Trump has not signed off on the emerging framework, according to U.S. officials. But it could set the table for extending the cease-fire and more substantive negotiations.`\

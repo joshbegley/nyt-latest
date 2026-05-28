@@ -1,3 +1,7 @@
+**Swallowing Concerns, G.O.P. Senators Rally Behind Paxton**\
+`After attacking the Texas attorney general, who won the G.O.P. nomination, Senate Republicans are pivoting sharply to support him in what is now a competitive race.`\
+https://www.nytimes.com/2026/05/28/us/politics/republican-senators-support-paxton.html
+
 **U.S. and Iran Standoff at Sea: A Test of ‘Who Will Blink First’**\
 `The American blockade and Iran’s control of the Strait of Hormuz have created a stalemate that is neither peace nor raging conflict, with both sides attempting economic strangulation on the water.`\
 https://www.nytimes.com/2026/05/28/world/middleeast/iran-us-blockade-strait-hormuz.html
