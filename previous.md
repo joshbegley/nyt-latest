@@ -1,5 +1,5 @@
-**U.S. Conducts New Strikes in Southern Iran**\
-`For the second time in three days, the military hit targets in what it called acts of self-defense, as a potential cease-fire hangs in the balance.`\
+**U.S. Strikes Military Sites in Iran for Second Time in 3 Days**\
+`As a potential cease-fire hangs in the balance, an official said the strikes were in self-defense, with targets including four one-way attack drones launched by Iran.`\
 https://www.nytimes.com/2026/05/27/world/middleeast/military-strikes-southern-iran.html
 
 **They Fought for the Voting Rights Act. Now They’re Fighting Its Unraveling.**\

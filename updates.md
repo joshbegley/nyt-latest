@@ -1,3 +1,7 @@
+**U.S. Strikes Military Sites in Iran for Second Time in 3 Days**\
+`As a potential cease-fire hangs in the balance, an official said the strikes were in self-defense, with targets including four one-way attack drones launched by Iran.`\
+https://www.nytimes.com/2026/05/27/world/middleeast/military-strikes-southern-iran.html
+
 **Trump Says He Feels No Political Pressure to Make an Iran Deal**\
 `President Trump held out hope for a peace agreement, but said high oil prices would not force his hand.`\
 https://www.nytimes.com/2026/05/27/world/middleeast/trump-iran-peace-talks.html
