@@ -1,3 +1,19 @@
+**Everlane Co-founder, Shocked by Shein Acquisition, Wants a Redo**\
+`Michael Preysman, who ran the brand for a decade, can’t believe what happened to the company he built. Can he start over?`\
+https://www.nytimes.com/2026/05/28/business/everlane-co-founder-shein-acquisition.html
+
+**El FBI detiene a un funcionario de la CIA con 40 millones de dólares en lingotes de oro**\
+`El único cargo presentado contra David Rush es que infló sus credenciales académicas y obtuvo pagos por licencia militar por valor de decenas de miles de dólares.`\
+https://www.nytimes.com/es/2026/05/28/espanol/estados-unidos/fbi-arresta-cia-lingotes-oro.html
+
+**Trump Refiles $10 Billion Lawsuit Against The Wall Street Journal**\
+`An earlier version of the defamation suit, which focused on an article about a birthday note to Jeffrey Epstein, was dismissed by a judge.`\
+https://www.nytimes.com/2026/05/28/business/media/trump-wsj-defamation-suit-10-billion.html
+
+**Michigan Governor Gretchen Whitmer Will Not Run for President in 2028**\
+`Governor Whitmer of Michigan had been viewed as part of a field of possible Democratic candidates. She has been governor for two terms, and is barred from running again.`\
+https://www.nytimes.com/2026/05/28/us/gretchen-whitmer-rules-out-2028.html
+
 **Trump’s Retribution Comes to Texas as Paxton Defeats Cornyn**\
 `Readers discuss Senator John Cornyn’s loss to Ken Paxton in Tuesday’s Republican primary. Also: Investigating E. Jean Carroll; Mets and Knicks; religion and A.I.`\
 https://www.nytimes.com/2026/05/28/opinion/trump-texas-paxton-cornyn.html

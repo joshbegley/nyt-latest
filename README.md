@@ -1,3 +1,11 @@
+**Anthropic Unveils Claude Opus 4.8, a New, More Powerful Model**\
+`The new system, called Opus 4.8, tops industry standard benchmarks in areas related to computer programming.`\
+https://www.nytimes.com/2026/05/28/technology/anthropic-claude-opus-48.html
+
+**If Tahini Has No Fans, I’m Dead**\
+`Sweet potatoes slathered in tahini butter, tahini and chocolate chunk cake and more vehicles for my ride-or-die ingredient.`\
+https://www.nytimes.com/2026/05/28/dining/if-tahini-has-no-fans-im-dead.html
+
 **Everlane Co-founder, Shocked by Shein Acquisition, Wants a Redo**\
 `Michael Preysman, who ran the brand for a decade, can’t believe what happened to the company he built. Can he start over?`\
 https://www.nytimes.com/2026/05/28/business/everlane-co-founder-shein-acquisition.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/es/2026/05/28/espanol/america-latina/peter-thiel-argenti
 **What Orchestras and Singers Gain Through Operas in Concert**\
 `The Cleveland Orchestra’s recent performances of Beethoven’s “Fidelio” join concerts that fill a gap in American opera.`\
 https://www.nytimes.com/2026/05/28/arts/music/fidelio-cleveland-orchestra.html
-
-**Three Ways Trump Is Losing the War in Iran**\
-`Three reasons Trump is losing the war in Iran.`\
-https://www.nytimes.com/2026/05/28/opinion/trump-iran-war.html
-
-**Big Swells of Rancor Are Capsizing America**\
-`Texas just got a lot more interesting.`\
-https://www.nytimes.com/2026/05/28/opinion/texas-paxton-talarico-marilyn-monroe.html
 
 **Journey to the Melting Continent**\
 `The New York Times went on an expedition to study Antarctica’s fastest-thinning glaciers.`\
