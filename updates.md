@@ -1,3 +1,11 @@
+**Greenpeace’s Long War With a Pipeline Titan Enters a Strange New Phase**\
+`This month, a North Dakota court barred Greenpeace from saying what it wanted in a European court, an unusual move. The environmental group says it is forging ahead.`\
+https://www.nytimes.com/2026/05/28/climate/greenpeace-energy-transfer-north-dakota-injunction.html
+
+**Carney Says That Canada’s Distancing is Good for U.S. in New York Speech**\
+`Speaking in New York, the Canadian prime minister called for a new relationship between Canada and United States.`\
+https://www.nytimes.com/2026/05/28/world/canada/carney-united-states-canada-trump.html
+
 **Totó la Momposina, Colombian Folk Music Star, Dies at 85**\
 `Timbaland, Jay-Z and Major Lazer sampled her work, and she received a lifetime achievement award from the Latin Grammys in 2013.`\
 https://www.nytimes.com/2026/05/28/arts/music/toto-la-momposina-dead.html
