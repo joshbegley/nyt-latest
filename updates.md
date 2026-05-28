@@ -1,3 +1,15 @@
+**Supreme Court Says Death Row Inmate Can Challenge Exclusion of Black Jurors**\
+`Terry Pitchford was convicted in 2006 for his role in the murder of a shopkeeper by a 12-member jury that included one Black member.`\
+https://www.nytimes.com/2026/05/28/us/politics/supreme-court-black-jurors.html
+
+**Two Papers Named ‘Star’ Will Duel in D.C. to Win Readers From The Washington Post**\
+`First, The Star was born. Now, The Washington Star is reborn. Both are hoping to win readers ceded by recent layoffs at The Washington Post.`\
+https://www.nytimes.com/2026/05/28/business/media/the-washington-star-newspaper-rivalry-washington-post.html
+
+**Commas, Common Sense and Justice**\
+`The ancients developed punctuation to create clarity, the Supreme Court used it to create confusion.`\
+https://www.nytimes.com/2026/05/28/opinion/punctuation-supreme-court-guns.html
+
 **Watchdog Agency Seeks to Reverse Its Own Win Against a Crypto Firm**\
 `The Commodity Futures Trading Commission filed jointly with a company run by the Winklevoss twins to overturn their settlement.`\
 https://www.nytimes.com/2026/05/28/us/politics/cftc-gemini-winklevoss-lawsuit.html
