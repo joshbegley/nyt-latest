@@ -1,3 +1,7 @@
+**Big Swells of Rancor Are Capsizing America**\
+`Texas just got a lot more interesting.`\
+https://www.nytimes.com/2026/05/28/opinion/texas-paxton-talarico-marilyn-monroe.html
+
 **Deadly Fire Breaks Out in Boarding School Dormitory in Kenya**\
 `A deadly fire tore through the dormitory of a girls’ boarding school in Kenya on Thursday, officials said.`\
 https://www.nytimes.com/video/world/africa/100000010930112/kenya-fire-school-gilgil.html
