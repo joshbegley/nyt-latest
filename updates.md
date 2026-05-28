@@ -1,3 +1,7 @@
+**Shrimp and White Beans, but on Vacation**\
+`Garlicky shrimp with summer squash and beans puts a seasonal twist on a classic, can’t-miss combination.`\
+https://www.nytimes.com/2026/05/28/dining/shrimp-and-white-beans-but-on-vacation.html
+
 **What’s Inside New York’s $269 Billion Budget: Second-Home Tax, Restrictions on ICE and More**\
 `Gov. Kathy Hochul used the budget as a vehicle for policy initiatives, including a new second-home tax and a push to make the state less hospitable to ICE agents.`\
 https://www.nytimes.com/2026/05/28/nyregion/budget-late-new-york.html
