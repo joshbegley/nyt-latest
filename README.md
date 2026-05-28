@@ -174,7 +174,7 @@ https://www.nytimes.com/es/2026/05/28/espanol/america-latina/cuba-buque-petroleo
 `El acuerdo forma parte de un esfuerzo más ambicioso del gobierno de Trump para presionar a los países latinoamericanos a que acepten operaciones conjuntas dentro de sus territorios.`\
 https://www.nytimes.com/es/2026/05/28/espanol/america-latina/guatemala-ataques-narco-estados-unidos.html
 
-**Guatemala Agrees to Joint Strikes With U.S. Against Drug Gangs**\
+**Guatemala Agrees to Joint Drug Gang Strikes With U.S., Expanding Trump’s Campaign**\
 `The deal is part of a broader effort by the Trump administration to press Latin American countries to agree to joint operations inside their borders.`\
 https://www.nytimes.com/2026/05/28/world/americas/guatemala-us-joint-strikes.html
 
