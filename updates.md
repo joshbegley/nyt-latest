@@ -1,3 +1,7 @@
+**James Talarico Opens Texas Senate Campaign Against Ken Paxton With Houston Rally**\
+`Personal attacks and a packed campaign rally set the tone for what is likely to be a rancorous contest for U.S. Senate between James Talarico and Ken Paxton in Texas.`\
+https://www.nytimes.com/2026/05/28/us/politics/ken-paxton-james-talarico-texas-senate-race.html
+
 **En Europa, una ola de calor primaveral rompe récords**\
 `Las autoridades de Francia y el Reino Unido advirtieron que podrían persistir unas temperaturas “sin precedentes”, en un momento en que pocos las esperaban.`\
 https://www.nytimes.com/es/2026/05/28/espanol/mundo/europa-espana-ola-calor.html
