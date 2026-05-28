@@ -1,3 +1,7 @@
+**California Tries to Block Trump Involvement in Election Procedures**\
+`Gov. Gavin Newsom signed legislation that tries to stop outside officials from taking ballots or getting involved in ballot processing.`\
+https://www.nytimes.com/2026/05/27/us/california-election-security-newsom.html
+
 **Uganda Closes Border with Congo Over Ebola Fears**\
 `Uganda closed its border with the Democratic Republic of Congo over growing concerns about the possible spread of Ebola on Wednesday. Seven confirmed cases have been reported in the Ugandan capital.`\
 https://www.nytimes.com/video/world/africa/100000010928797/uganda-closes-border-with-congo-over-ebola-fears.html
