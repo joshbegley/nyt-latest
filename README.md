@@ -1,3 +1,7 @@
+**Dell Gets a $9.7 Billion Defense Contract. Trump’s Portfolio Stands to Benefit.**\
+`The president’s family says his stock purchases are automatically timed, but recent acquisitions of the computer company’s shares raise questions.`\
+https://www.nytimes.com/2026/05/28/us/politics/trump-dell-stock-purchases.html
+
 **U.S. and Iran Move Toward Arrangement to Reopen the Strait of Hormuz**\
 `President Trump has yet to sign off on an emerging agreement that would extend the cease-fire while they negotiate nuclear and other issues.`\
 https://www.nytimes.com/2026/05/28/world/middleeast/us-iran-war-strait.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/05/28/crosswords/connections-companion-1083.html
 **NYT Strands Hints for May 29, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, May 29, 2026.`\
 https://www.nytimes.com/2026/05/28/crosswords/strands-sidekick-817.html
-
-**Today’s Wordle Hints for May 29, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, May 29, 2026.`\
-https://www.nytimes.com/2026/05/28/crosswords/wordle-review-1805.html
 
 **Journey to the Melting Continent**\
 `The New York Times went on an expedition to study Antarctica’s fastest-thinning glaciers.`\
