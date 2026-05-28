@@ -1,3 +1,7 @@
+**3 Weeks After Fire, ‘The Book of Mormon’ Reopens on Broadway**\
+`The satirical musical, which is celebrating its 15th anniversary this year, missed 25 performances during the shutdown.`\
+https://www.nytimes.com/2026/05/28/theater/book-of-mormon-broadway-fire-reopening.html
+
 **Happy, Bronx Zoo Elephant at Center of Animal Rights Case, Is Dead at 55**\
 `Activists had sued in a bid to secure her the fundamental human right to bodily liberty. Zoo officials said she was well cared for and called the lawsuit frivolous.`\
 https://www.nytimes.com/2026/05/28/nyregion/happy-elephant-bronx-zoo-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/28/travel/united-broken-business-class-seat.html
 **Streaming TV Bundles Grow in Popularity**\
 `Companies and their customers are embracing bundled streaming packages — but for different reasons.`\
 https://www.nytimes.com/2026/05/28/business/media/streaming-tv-hulu-disney-hbo.html
-
-**New York City’s Manhattanhenge is Back: When, Where and How to Watch**\
-`On Thursday and Friday, some streets in Manhattan will get a lot more crowded as people gather to watch the city’s unique solar spectacle.`\
-https://www.nytimes.com/2026/05/28/science/manhattanhenge-new-york-city.html
 
