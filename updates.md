@@ -1,3 +1,7 @@
+**Israel Strikes Beirut, Expanding Offensive in Lebanon**\
+`It was the first attack by Israel on the Lebanese capital in weeks and could complicate efforts by the United States and Iran to agree to a peace deal to end the war in Iran.`\
+https://www.nytimes.com/2026/05/28/world/middleeast/israel-expands-lebanon-offensive.html
+
 **Greenpeace’s Long War With a Pipeline Titan Enters a Strange New Phase**\
 `This month, a North Dakota court barred Greenpeace from saying what it wanted in a European court, an unusual move. The environmental group says it is forging ahead.`\
 https://www.nytimes.com/2026/05/28/climate/greenpeace-energy-transfer-north-dakota-injunction.html

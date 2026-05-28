@@ -1,3 +1,7 @@
+**Israel Strikes Beirut, Expanding Offensive in Lebanon**\
+`It was the first attack by Israel on the Lebanese capital in weeks and could complicate efforts by the United States and Iran to agree to a peace deal to end the war in Iran.`\
+https://www.nytimes.com/2026/05/28/world/middleeast/israel-expands-lebanon-offensive.html
+
 **Greenpeace’s Long War With a Pipeline Titan Enters a Strange New Phase**\
 `This month, a North Dakota court barred Greenpeace from saying what it wanted in a European court, an unusual move. The environmental group says it is forging ahead.`\
 https://www.nytimes.com/2026/05/28/climate/greenpeace-energy-transfer-north-dakota-injunction.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/05/28/world/middleeast/trump-abraham-accords.html
 **Jill Biden pensó que su esposo tuvo un derrame cerebral durante el debate de 2024**\
 `‘Nunca, jamás había visto a Joe así’, dijo la ex primera dama a CBS News. ‘Ni antes ni después’.`\
 https://www.nytimes.com/es/2026/05/28/espanol/estados-unidos/jill-biden-2024-debate-libro.html
-
-**How Ukraine’s Street Style Is Shaped by the War**\
-`In Kyiv, military-inspired fashion can be seen everywhere. Soldiers and civilians alike say it’s a show of solidarity, not a fad.`\
-https://www.nytimes.com/2026/05/28/world/europe/ukraine-war-street-style-fashion-military.html
 
 **Journey to the Melting Continent**\
 `The New York Times went on an expedition to study Antarctica’s fastest-thinning glaciers.`\

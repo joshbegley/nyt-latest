@@ -1,6 +1,10 @@
+**20 Joyous Wines, All Under $20**\
+`The price of almost everything is rising, including wine. But distinctive, delicious bottles can still be found in the $15 to $20 range.`\
+https://www.nytimes.com/2026/05/28/dining/drinks/wines-under-20-dollars.html
+
 **Israel Strikes Beirut, Expanding Offensive in Lebanon**\
 `It was the first attack by Israel on the Lebanese capital in weeks and could complicate efforts by the United States and Iran to agree to a peace deal to end the war in Iran.`\
-https://www.nytimes.com/2026/05/28/world/middleeast/israel-expands-lebanon-offensive.html
+https://www.nytimes.com/2026/05/28/world/middleeast/israel-strikes-beirut-lebanon.html
 
 **Greenpeace’s Long War With a Pipeline Titan Enters a Strange New Phase**\
 `This month, a North Dakota court barred Greenpeace from saying what it wanted in a European court, an unusual move. The environmental group says it is forging ahead.`\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/05/28/podcasts/the-harambe-tapes-unearthing-a-viral
 **The Mideast Is Baffled by Trump’s Call to Expand Abraham Accords**\
 `The president said more countries should be required to recognize Israel as part of a deal to end the war with Iran. Analysts say the chances of that happening are close to zero.`\
 https://www.nytimes.com/2026/05/28/world/middleeast/trump-abraham-accords.html
-
-**Jill Biden pensó que su esposo tuvo un derrame cerebral durante el debate de 2024**\
-`‘Nunca, jamás había visto a Joe así’, dijo la ex primera dama a CBS News. ‘Ni antes ni después’.`\
-https://www.nytimes.com/es/2026/05/28/espanol/estados-unidos/jill-biden-2024-debate-libro.html
 
 **Journey to the Melting Continent**\
 `The New York Times went on an expedition to study Antarctica’s fastest-thinning glaciers.`\
