@@ -1,3 +1,7 @@
+**How We Investigated Police Use of Force in Texas Schools**\
+`Reporters tallied thousands of incidents and read hundreds of police reports documenting the heavy-handed tactics used on students.`\
+https://www.nytimes.com/2026/05/28/insider/police-force-texas-schools.html
+
 **Pedro Sánchez está más presionado tras el registro policial de la sede del PSOE**\
 `Después de que un juez acusara a su partido de corrupción, el presidente del gobierno español se enfrenta a crecientes peticiones de dimisión.`\
 https://www.nytimes.com/es/2026/05/28/espanol/mundo/pedro-sanchez-psoe-registro.html

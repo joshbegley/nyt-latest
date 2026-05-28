@@ -1,3 +1,7 @@
+**How We Investigated Police Use of Force in Texas Schools**\
+`Reporters tallied thousands of incidents and read hundreds of police reports documenting the heavy-handed tactics used on students.`\
+https://www.nytimes.com/2026/05/28/insider/police-force-texas-schools.html
+
 **Pedro Sánchez está más presionado tras el registro policial de la sede del PSOE**\
 `Después de que un juez acusara a su partido de corrupción, el presidente del gobierno español se enfrenta a crecientes peticiones de dimisión.`\
 https://www.nytimes.com/es/2026/05/28/espanol/mundo/pedro-sanchez-psoe-registro.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/interactive/2026/05/28/realestate/amsterdam-real-estate.
 **Our Military Is Built for the Wrong Century**\
 `Ukraine and Iran have shown us that war as we’ve known it is over.`\
 https://www.nytimes.com/2026/05/28/opinion/military-iran-ukraine-russia-war-drones.html
-
-**Cuba acaba de perder una gran oportunidad de obtener combustible**\
-`Un buque petrolero ruso que parecía dirigirse a Cuba con un suministro vital de combustible ha cambiado de dirección, un hecho doloroso para la isla, que sufre un bloqueo petrolero estadounidense.`\
-https://www.nytimes.com/es/2026/05/28/espanol/america-latina/cuba-buque-petroleo-ruso-apagones.html
 
 **Journey to the Melting Continent**\
 `The New York Times went on an expedition to study Antarctica’s fastest-thinning glaciers.`\
