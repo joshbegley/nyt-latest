@@ -1,9 +1,13 @@
+**After New Push by the Bolsonaros, U.S. Labels Brazilian Gangs as Terrorist Groups**\
+`Following through on threats, the Trump administration has designated Brazil’s two largest drug gangs as terrorist groups.`\
+https://www.nytimes.com/2026/05/28/world/americas/brazil-gangs-terrorist-bolsonaro-trump.html
+
 **Families Settle Suit Over Deaths in Baltimore Bridge Collapse**\
 `The owner and the operator of the cargo ship that crashed into the Key Bridge settled cases brought by several victims’ families, but other claims are headed to trial.`\
 https://www.nytimes.com/2026/05/28/us/baltimore-key-bridge-lawsuit-settlements.html
 
 **Blue Origin Rocket Blows Up on Florida Launchpad During Test**\
-`The rocket, built by Jeff Bezos’ space company, was to carry 48 satellites for Amazon’s Leo internet constellation, a competitor to SpaceX’s Starlink network.`\
+`The rocket, built by Jeff Bezos’ space company, was to carry 48 satellites into space. Blue Origin reported on social media that “all personnel  have been accounted for.”`\
 https://www.nytimes.com/2026/05/28/science/blue-origin-explosion-rocket.html
 
 **NYT Crossword Answers for May 29, 2026**\
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/05/28/world/middleeast/israel-gaza-hamas-70-percent
 **Young MC and Morris Day Pull Out of Freedom 250 Concerts**\
 `Young MC, Martina McBride and Morris Day were among those who said they would not perform at the series on the National Mall.`\
 https://www.nytimes.com/2026/05/28/arts/music/freedom-concerts-young-mc-milli-vanilli.html
-
-**Scooter Rider and Cyclist Are Killed in Head-On Crash on N.Y.C. Bridge**\
-`The collision on the Queensboro Bridge involved an e-scooter that is not legally allowed to be used on the streets of New York.`\
-https://www.nytimes.com/2026/05/28/nyregion/queensboro-bridge-nyc-bike-scooter-crash-deaths.html
 

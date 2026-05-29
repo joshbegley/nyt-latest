@@ -1,3 +1,11 @@
+**After New Push by the Bolsonaros, U.S. Labels Brazilian Gangs as Terrorist Groups**\
+`Following through on threats, the Trump administration has designated Brazil’s two largest drug gangs as terrorist groups.`\
+https://www.nytimes.com/2026/05/28/world/americas/brazil-gangs-terrorist-bolsonaro-trump.html
+
+**Blue Origin Rocket Blows Up on Florida Launchpad During Test**\
+`The rocket, built by Jeff Bezos’ space company, was to carry 48 satellites into space. Blue Origin reported on social media that “all personnel  have been accounted for.”`\
+https://www.nytimes.com/2026/05/28/science/blue-origin-explosion-rocket.html
+
 **Blue Origin Rocket Blows Up on Florida Launchpad During Test**\
 `The rocket, built by Jeff Bezos’ space company, was to carry 48 satellites for Amazon’s Leo internet constellation, a competitor to SpaceX’s Starlink network.`\
 https://www.nytimes.com/2026/05/28/science/blue-origin-explosion-rocket.html
