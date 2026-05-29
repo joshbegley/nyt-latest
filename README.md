@@ -1,3 +1,7 @@
+**Who Is Ahead in Missouri's 1st Congressional District?**\
+`Track the latest polls in Missouri's 1st Congressional District.`\
+https://www.nytimes.com/interactive/polls/missouri-us-house-1-polls-2026.html
+
 **Federal Judge Bars Trump From Immediately Setting Up $1.8 Billion Fund**\
 `A judge in Virginia temporarily blocked the Trump administration from transferring money in or out of the fund until the court could hear arguments in June.`\
 https://www.nytimes.com/2026/05/29/us/politics/federal-judge-trump-fund.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/05/29/realestate/1-3-million-homes-in-sweden.html
 **‘Hacks’ Was Always a Love Story**\
 `In its finale, this comedy about comedy circled back to the romance of creative partnership and the saving power of laughs.`\
 https://www.nytimes.com/2026/05/29/arts/television/hacks-series-finale.html
-
-**The Politics of the Downwardly Mobile Professional Class**\
-`The debate over whether Graham Platner is “working class” comes at a time when more and more people are at risk of falling into it.`\
-https://www.nytimes.com/2026/05/29/magazine/the-politics-of-the-downwardly-mobile-professional-class.html
 
