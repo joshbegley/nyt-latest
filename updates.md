@@ -1,4 +1,8 @@
 **J.F.K. Airport to Begin Screening Some Passengers for Ebola**\
+`The U.S. has begun rerouting travelers from the Democratic Republic of Congo, South Sudan and Uganda to select airports for enhanced health screenings, to identify those who may have been exposed to the Ebola virus.`\
+https://www.nytimes.com/2026/05/28/us/politics/jfk-airport-ebola-screening-cdc.html
+
+**J.F.K. Airport to Begin Screening Some Passengers for Ebola**\
 `Such screenings are already being conducted at Washington Dulles International Airport, Hartsfield-Jackson Atlanta International Airport and George Bush Intercontinental Airport in Houston.`\
 https://www.nytimes.com/2026/05/28/us/politics/jfk-airport-ebola-screening-cdc.html
 

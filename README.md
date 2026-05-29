@@ -1,3 +1,7 @@
+**In Carroll Lawsuits Inquiry, Scrutiny Turns Toward Private Citizens Who Antagonized Trump**\
+`The Justice Department is said to be examining the funding of lawsuits brought by E. Jean Carroll, an author who has never sought a public role, political power or governmental authority.`\
+https://www.nytimes.com/2026/05/28/us/politics/justice-department-carroll-hoffman-lawsuit-trump.html
+
 **J.F.K. Airport to Begin Screening Some Passengers for Ebola**\
 `The U.S. has begun rerouting travelers from the Democratic Republic of Congo, South Sudan and Uganda to select airports for enhanced health screenings, to identify those who may have been exposed to the Ebola virus.`\
 https://www.nytimes.com/2026/05/28/us/politics/jfk-airport-ebola-screening-cdc.html
@@ -90,8 +94,8 @@ https://www.nytimes.com/video/us/politics/100000010931638/bessent-treasury-trump
 `Video captured flames engulfing an apartment building in Dallas on Thursday.`\
 https://www.nytimes.com/video/us/100000010931758/fire-dallas-apartment-building.html
 
-**Scripps Spelling Bee Live Updates: Students Battle for Word Domination**\
-`The night’s third round claimed four contestants, eliminating them with words like “catometope,” “vaesite” and “oconee bells.”`\
+**Scripps Spelling Bee Live Updates: 4 Spellers Remain in the Quest for Word Domination**\
+`A devastating round ousted four contestants in quick succession, while a fifth was eliminated by “Quincke tube.”`\
 https://www.nytimes.com/live/2026/05/28/us/scripps-spelling-bee
 
 **A Democrat’s Dodge on AIPAC Points to the Party’s Tensions Over Israel**\
@@ -155,7 +159,7 @@ https://www.nytimes.com/2026/05/28/world/europe/taylor-swift-concert-vienna-guil
 https://www.nytimes.com/2026/05/28/world/middleeast/israel-gaza-hamas-70-percent.html
 
 **Young MC and Morris Day Pull Out of Freedom 250 Concerts**\
-`Young MC, Morris Day and the Commodores said they would not perform at the series on the National Mall that is part of the summer celebration of America’s founding.`\
+`Young MC, Martina McBride and Morris Day were among those who said they would not perform at the series on the National Mall.`\
 https://www.nytimes.com/2026/05/28/arts/music/freedom-concerts-young-mc-milli-vanilli.html
 
 **Scooter Rider and Cyclist Are Killed in Head-On Crash on N.Y.C. Bridge**\
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/05/28/us/quarantine-americans-ebola-kenya.html
 **Europe’s Heat Wave Has the ‘Fingerprints of Climate Change All Over It’**\
 `An unusually early heat wave in Europe, new technology to save whales and more climate news.`\
 https://www.nytimes.com/2026/05/28/climate/europe-heat-wave-climate-change.html
-
-**El Departamento de Justicia pone la mira sobre E. Jean Carroll de nuevo**\
-`Carroll, quien ganó un juicio civil tras acusar al presidente de los EE. UU. de abuso sexual, es objeto de una campaña de un gobierno que quiere cazar a supuestos enemigos.`\
-https://www.nytimes.com/es/2026/05/28/espanol/estados-unidos/trump-carroll-abuso-sexual.html
 
