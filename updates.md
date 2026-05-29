@@ -1,3 +1,7 @@
+**Markets Wary as U.S. and Iran Edge Closer to Agreement**\
+`Oil prices and stock markets fluctuated as investors assessed tentative signs of a pact to extend a cease-fire.`\
+https://www.nytimes.com/2026/05/29/business/oil-gas-stocks-iran.html
+
 **How Japan Lost 3 Million People in Five Years**\
 `Japan’s population fell by more than 3 million over the past five years, a record drop that underscores the depths of the country’s accelerating demographic crisis.`\
 https://www.nytimes.com/interactive/2026/05/29/world/asia/japan-census-population-decline.html
