@@ -1,3 +1,11 @@
+**Can Talarico win over some of Cornyn’s voters in Texas?**\
+`Democrats hope so, but there are good reasons to be skeptical.`\
+https://www.nytimes.com/2026/05/29/us/politics/talarico-cornyn-texas-voters.html
+
+**Skin Care Brand’s Free Bus Connecting Domino and Prospect Parks Stops Running**\
+`A two-week marketing stunt by the Ordinary appeared to stop abruptly on Friday, stranding riders.`\
+https://www.nytimes.com/2026/05/29/style/ordinary-bus-route-brooklyn-stop-running.html
+
 **Bondi, Pressed Over Epstein Files, Places Responsibility on Blanche and Patel**\
 `Her remarks, delivered during a closed-door interview before the House Oversight Committee, were a candid admission of her own powerlessness.`\
 https://www.nytimes.com/2026/05/29/us/politics/pam-bondi-epstein-files-testimony.html

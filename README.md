@@ -1,3 +1,7 @@
+**Judge Reopens Trump’s Lawsuit Demanding $10 Billion From IRS**\
+`The ruling was a blow to both President Trump, who had voluntarily dismissed the suit last week, and to the Justice Department, which used the suit to establish a fund likely intended for Trump allies.`\
+https://www.nytimes.com/2026/05/29/us/politics/trump-irs-lawsuit-ruling.html
+
 **Can Talarico win over some of Cornyn’s voters in Texas?**\
 `Democrats hope so, but there are good reasons to be skeptical.`\
 https://www.nytimes.com/2026/05/29/us/politics/talarico-cornyn-texas-voters.html
@@ -142,7 +146,7 @@ https://www.nytimes.com/2026/05/29/world/middleeast/israel-lebanon-litani-troops
 `A Supreme Court court ruling last month rejected the state’s previous congressional map as an illegal racial gerrymander and set off a redistricting race across the South.`\
 https://www.nytimes.com/2026/05/29/us/politics/louisiana-redistricting-map-majority-black-district.html
 
-**Un agente del ICE acusado por un tiroteo en Minnesota es detenido en Texas**\
+**Un agente del ICE buscado por un tiroteo en Mineápolis es aprehendido en Texas**\
 `Christian Castro, quien había sido imputado con cargos de asalto en el tiroteo a un hombre venezolano durante la represión de la inmigración en Minnesota, fue puesto bajo custodia el viernes por la mañana.`\
 https://www.nytimes.com/es/2026/05/29/espanol/estados-unidos/ice-agente-tiroteo-arresto.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/29/us/politics/china-expels-times-reporter.html
 **Flashback: Your Weekly History Quiz, May 30, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/05/29/upshot/flashback.html
-
-**After Orban’s Defeat, Hungary Is Poised to Get Billions From E.U.**\
-`The European Union is set to release 16 billion euros it had withheld, as Hungary moves to enact anti-corruption and rule of law policies.`\
-https://www.nytimes.com/2026/05/29/world/europe/eu-hungary-funds.html
 
