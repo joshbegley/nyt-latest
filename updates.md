@@ -1,3 +1,7 @@
+**Kenya Arrests 8 Students After Fire at School Dorm Kills 16**\
+`The students could be charged next week, Kenya’s education minister said, after the blaze broke out on Thursday at a school run by Kenya’s police.`\
+https://www.nytimes.com/2026/05/29/world/africa/kenya-school-fire-arrests-students.html
+
 **EE. UU. e Irán se acercan a un acuerdo provisional: lo que hay que saber**\
 `Funcionarios estadounidenses e iraníes afirman que se acercan a los términos de un acuerdo preliminar. Sin embargo, aún existen puntos conflictivos, sobre todo en relación con el estrecho de Ormuz.`\
 https://www.nytimes.com/es/2026/05/29/espanol/mundo/trump-iran-acuerdo-estados-unidos.html

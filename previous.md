@@ -1,3 +1,7 @@
+**Kenya Arrests 8 Students After Fire at School Dorm Kills 16**\
+`The students could be charged next week, Kenya’s education minister said, after the blaze broke out on Thursday at a school run by Kenya’s police.`\
+https://www.nytimes.com/2026/05/29/world/africa/kenya-school-fire-arrests-students.html
+
 **EE. UU. e Irán se acercan a un acuerdo provisional: lo que hay que saber**\
 `Funcionarios estadounidenses e iraníes afirman que se acercan a los términos de un acuerdo preliminar. Sin embargo, aún existen puntos conflictivos, sobre todo en relación con el estrecho de Ormuz.`\
 https://www.nytimes.com/es/2026/05/29/espanol/mundo/trump-iran-acuerdo-estados-unidos.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/us/100000010932527/woman-pulled-over-phone-no-hand
 **Romania Says It Could Invoke NATO’s Article 4. What Would That Do?**\
 `The clause in NATO’s founding treaty is an “instrument” Romania can use, the foreign minister said after a drone, alleged to be Russian, wounded two civilians.`\
 https://www.nytimes.com/2026/05/29/world/europe/nato-article-4-romania-russia.html
-
-**The $900 Billion Giant: How Anthropic Got So Big, So Fast**\
-`The artificial intelligence giant was just valued at $900 billion, surpassing OpenAI. Here are the numbers behind its rise — and headwinds it faces.`\
-https://www.nytimes.com/2026/05/29/business/dealbook/anthropic-ai-openai.html
 
 **Maintenance Train Fire at Penn Station Injures 5 and Disrupts Rail Service**\
 `An overnight fire on a maintenance train was still affecting service on NJ Transit and Amtrak as of midmorning on Friday.`\

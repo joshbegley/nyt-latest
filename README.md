@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/05/29/world/middleeast/israel-lebanon-litani-troops
 `A Supreme Court court ruling last month rejected the state’s previous congressional map as an illegal racial gerrymander and set off a redistricting race across the South.`\
 https://www.nytimes.com/2026/05/29/us/politics/louisiana-redistricting-map-majority-black-district.html
 
-**Un agente del ICE imputado por un tiroteo en Minnesota es arrestado en Texas**\
+**Un agente del ICE acusado por un tiroteo en Minnesota es detenido en Texas**\
 `Christian Castro, quien había sido imputado con cargos de asalto en el tiroteo a un hombre venezolano durante la represión de la inmigración en Minnesota, fue puesto bajo custodia el viernes por la mañana.`\
 https://www.nytimes.com/es/2026/05/29/espanol/estados-unidos/ice-agente-tiroteo-arresto.html
 
