@@ -1,3 +1,7 @@
+**Times/Siena Poll: 43% of Voters Dissatisfied With Both Parties**\
+`Persistent frustration over the economy and foreign policy has left many Americans feeling politically homeless, and young voters are particularly frustrated.`\
+https://www.nytimes.com/2026/05/29/polls/dissatisfied-voters.html
+
 **‘The Headlines’ News Quiz: May 29, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/05/29/podcasts/the-headlines/the-headlines-news-quiz-may-29-2026.html
