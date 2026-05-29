@@ -2,7 +2,7 @@
 `The owner and the operator of the cargo ship that crashed into the Key Bridge settled cases brought by several victims’ families, but other claims are headed to trial.`\
 https://www.nytimes.com/2026/05/28/us/baltimore-key-bridge-lawsuit-settlements.html
 
-**In Massive Explosion, a Blue Origin Rocket Blows Up on the Launchpad**\
+**Blue Origin Rocket Blows Up on Florida Launchpad During Test**\
 `The rocket, built by Jeff Bezos’ space company, was to carry 48 satellites for Amazon’s Leo internet constellation, a competitor to SpaceX’s Starlink network.`\
 https://www.nytimes.com/2026/05/28/science/blue-origin-explosion-rocket.html
 
@@ -114,8 +114,8 @@ https://www.nytimes.com/video/us/politics/100000010931638/bessent-treasury-trump
 `Video captured flames engulfing an apartment building in Dallas on Thursday.`\
 https://www.nytimes.com/video/us/100000010931758/fire-dallas-apartment-building.html
 
-**Scripps Spelling Bee Live Updates: 2 Spellers Head to a High-Speed Spell-Off**\
-`The remaining finalists, Shrey Parikh and Ishaan Gupta, have 90 seconds to spell as many words correctly as possible.`\
+**Scripps Spelling Bee Live Updates: Shrey Parikh Triumphs After Tense Spell-Off**\
+`The 14-year-old from Rancho Cucamonga, Calif., spelled 32 words correctly in 90 seconds to prevail in the three-day competition.`\
 https://www.nytimes.com/live/2026/05/28/us/scripps-spelling-bee
 
 **A Democrat’s Dodge on AIPAC Points to the Party’s Tensions Over Israel**\

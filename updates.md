@@ -1,3 +1,11 @@
+**Blue Origin Rocket Blows Up on Florida Launchpad During Test**\
+`The rocket, built by Jeff Bezos’ space company, was to carry 48 satellites for Amazon’s Leo internet constellation, a competitor to SpaceX’s Starlink network.`\
+https://www.nytimes.com/2026/05/28/science/blue-origin-explosion-rocket.html
+
+**Scripps Spelling Bee Live Updates: Shrey Parikh Triumphs After Tense Spell-Off**\
+`The 14-year-old from Rancho Cucamonga, Calif., spelled 32 words correctly in 90 seconds to prevail in the three-day competition.`\
+https://www.nytimes.com/live/2026/05/28/us/scripps-spelling-bee
+
 **Families Settle Suit Over Deaths in Baltimore Bridge Collapse**\
 `The owner and the operator of the cargo ship that crashed into the Key Bridge settled cases brought by several victims’ families, but other claims are headed to trial.`\
 https://www.nytimes.com/2026/05/28/us/baltimore-key-bridge-lawsuit-settlements.html
