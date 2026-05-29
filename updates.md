@@ -1,3 +1,7 @@
+**Nicolas Cage Made Himself a Legend. Then He Had to Live With It.**\
+`Nicolas Cage discusses many of the roles that make up his storied career, along with his most recent project, “Spider-Noir,” his first big foray into TV.`\
+https://www.nytimes.com/video/podcasts/100000010921467/nicolas-cage-made-himself-a-legend-then-he-had-to-live-with-it.html
+
 **Un agente del ICE acusado por un tiroteo en Minnesota es detenido en Texas**\
 `Christian Castro, quien había sido imputado con cargos de asalto en el tiroteo a un hombre venezolano durante la represión de la inmigración en Minnesota, fue puesto bajo custodia el viernes por la mañana.`\
 https://www.nytimes.com/es/2026/05/29/espanol/estados-unidos/ice-agente-tiroteo-arresto.html
