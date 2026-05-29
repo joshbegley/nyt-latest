@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000010933618/29vid-Robert-Garcia-embeds-69364.html
+
+**Gretchen Whitmer’s Approach to Trump Was Working With the President**\
+`Ms. Whitmer, the Michigan governor and one of the country’s most prominent Democrats, has been conciliatory with Mr. Trump. As she mulls the future, her party is split on that approach.`\
+https://www.nytimes.com/2026/05/29/us/gretchen-whitmer-donald-trump-2028.html
+
 **3 Latvian Climbers Die in Fall on Mt. McKinley**\
 `The accident occurred at about 18,000 feet in the area of Denali Pass.`\
 https://www.nytimes.com/2026/05/29/us/mt-mckinley-denali-climbers-latvia.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/05/29/espanol/creatina-menopausia.html
 **Review: ‘Girls Girls Chance Chance Music Music’ Loves a Good Riff**\
 `In Eisa Davis’s new play with live music, at the Vineyard Theater, gifted teenagers find their own rhythms at a summer music program.`\
 https://www.nytimes.com/2026/05/29/theater/girls-girls-chance-chance-music-music-review-eisa-davis.html
-
-**‘Hacks’: Why Friends Don’t Have to Be the Same Age**\
-`In an era of weakened social connections, experts say, bonding with an older or younger friend offers unique benefits.`\
-https://www.nytimes.com/2026/05/29/well/family/hacks-age-gap-intergenerational-friendship.html
-
-**TK**\
-`TK`\
-https://static01.nyt.com/slideshow/2026/05/29/t-magazine/food/tk.html
 
