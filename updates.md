@@ -1,3 +1,23 @@
+**Who Is Ahead in Missouri's 1st Congressional District?**\
+`Track the latest polls in Missouri's 1st Congressional District.`\
+https://www.nytimes.com/interactive/polls/missouri-us-house-1-polls-2026.html
+
+**Federal Judge Bars Trump From Immediately Setting Up $1.8 Billion Fund**\
+`A judge in Virginia temporarily blocked the Trump administration from transferring money in or out of the fund until the court could hear arguments in June.`\
+https://www.nytimes.com/2026/05/29/us/politics/federal-judge-trump-fund.html
+
+**Trump Clears Way for Companies to Avoid Taxes in Havens Including Malta and Cyprus**\
+`U.S. companies skirted at least $40 billion in taxes since the beginning of 2025 thanks to schemes in places like Malta, Bermuda and Cyprus.`\
+https://www.nytimes.com/2026/05/29/business/economy/offshore-tax-havens-trump.html
+
+**What to Know About the Drones That Have Been Crossing Into Romania**\
+`The strike on Friday, near the Ukrainian border, was the first to injure civilians in Romania, officials say. But drones from the nearby war have been a growing threat.`\
+https://www.nytimes.com/2026/05/29/world/europe/romania-drone-strike-what-to-know.html
+
+**Is Spencer Pratt for Real?**\
+`The former reality star’s dark visions of Los Angeles are resonating in a heated mayoral race, even if they’re far from the truth.`\
+https://www.nytimes.com/2026/05/29/style/spencer-pratt-los-angeles-mayor.html
+
 **tk**\
 `tk`\
 https://static01.nyt.com/slideshow/2026/05/29/arts/tk.html
