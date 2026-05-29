@@ -1,3 +1,11 @@
+**Trump Endorses Pamela Evette in South Carolina Governor’s Race**\
+`Pamela Evette had been among the more vocal proponents of redrawing the state’s congressional map to help Republicans in the midterms.`\
+https://www.nytimes.com/2026/05/29/us/trump-pamela-evette-south-carolina-governor.html
+
+**Justice Department Lurches Toward Trump’s Goals**\
+`Plus, the Kennedy Center must remove Trump’s name. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/05/29/briefing/trump-irs-kennedy-center.html
+
 **Canadian Man Pleads Guilty to Aiding 14 Suicides**\
 `Kenneth Law, who ran an online business that shipped toxic salt to customers in 40 countries, also admitted to causing the deaths of 79 people in Britain, prosecutors said.`\
 https://www.nytimes.com/2026/05/29/world/canada/kenneth-law-canada-poison.html

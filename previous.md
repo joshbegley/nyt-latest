@@ -1,3 +1,11 @@
+**Trump Endorses Pamela Evette in South Carolina Governor’s Race**\
+`Pamela Evette had been among the more vocal proponents of redrawing the state’s congressional map to help Republicans in the midterms.`\
+https://www.nytimes.com/2026/05/29/us/trump-pamela-evette-south-carolina-governor.html
+
+**Justice Department Lurches Toward Trump’s Goals**\
+`Plus, the Kennedy Center must remove Trump’s name. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/05/29/briefing/trump-irs-kennedy-center.html
+
 **Canadian Man Pleads Guilty to Aiding 14 Suicides**\
 `Kenneth Law, who ran an online business that shipped toxic salt to customers in 40 countries, also admitted to causing the deaths of 79 people in Britain, prosecutors said.`\
 https://www.nytimes.com/2026/05/29/world/canada/kenneth-law-canada-poison.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/05/29/style/fit-check-videos.html
 **Research Funding Slows Again for Universities Targeted by White House**\
 `The National Science Foundation lifted a hold on some grants for Harvard and other universities this week after inquiries from media outlets, including The New York Times.`\
 https://www.nytimes.com/2026/05/29/us/politics/trump-university-research-funding.html
-
-**Overlooked No More: Nancy Sheung, Whose Camera Captured Women on Their Own Terms**\
-`In 1960s Hong Kong, she used photography to portray women as bold, self-possessed and unconstrained by traditional expectations.`\
-https://www.nytimes.com/2026/05/29/obituaries/nancy-sheung-overlooked.html
-
-**S.E.C. Proposes to Kill Climate Change Disclosure Rule**\
-`The regulation would have required all publicly traded companies to disclose whether they faced significant risks from climate change and its effects.`\
-https://www.nytimes.com/2026/05/29/climate/sec-climate-disclosure-rule.html
 
