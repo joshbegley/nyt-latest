@@ -1,3 +1,7 @@
+**Kennedy Center Must Remove Trump’s Name From Building, Judge Orders**\
+`The U.S. district judge also ruled that the institution’s board had not done its due diligence when voting to close for renovations.`\
+https://www.nytimes.com/2026/05/29/arts/kennedy-center-trump-name-remove.html
+
 **Book Club: Let’s Talk About ‘Transcription,’ by Ben Lerner**\
 `Lerner’s new novel is a cerebral exploration of technology, family, truth and existence.`\
 https://www.nytimes.com/2026/05/29/books/review/podcast-book-club-ben-lerner-transcription.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/polls/virginia-us-house-7-polls-2026.html
 **Who Is Ahead in Virginia's 1st Congressional District?**\
 `Track the latest polls in Virginia's 1st Congressional District.`\
 https://www.nytimes.com/interactive/polls/virginia-us-house-1-polls-2026.html
-
-**Who Is Ahead in Washington's 3rd Congressional District?**\
-`Track the latest polls in Washington's 3rd Congressional District.`\
-https://www.nytimes.com/interactive/polls/washington-us-house-3-polls-2026.html
 
