@@ -1,3 +1,15 @@
+**Inside the Room Where War Insurance Is Bought and Sold**\
+`Many of the ships stranded in the Persian Gulf depend on coverage negotiated at Lloyd’s, the center of marine insurance for more than 300 years.`\
+https://www.nytimes.com/2026/05/29/business/strait-hormuz-shipping-insurance-iran.html
+
+**Live Updates: Maintenance Train Fire at Penn Station Injures 5 and Disrupts Rail Service**\
+`An overnight fire on a maintenance train was still affecting service on NJ Transit and Amtrak as of midmorning on Friday.`\
+https://www.nytimes.com/live/2026/05/29/nyregion/penn-station-fire-amtrak-nyc
+
+**Iran War Live Updates: Uncertainty Hangs Over Talks as U.S. Says It Is Close to Agreement**\
+`An emerging “memorandum of understanding” could lead to the reopening of the Strait of Hormuz. But it still needs approval from President Trump, and Iran has not confirmed any commitments.`\
+https://www.nytimes.com/live/2026/05/29/world/iran-war-us-trump-deal
+
 **Who Is Ahead in Missouri's 1st Congressional District?**\
 `Track the latest polls in Missouri's 1st Congressional District.`\
 https://www.nytimes.com/interactive/polls/missouri-us-house-1-polls-2026.html

@@ -106,8 +106,8 @@ https://www.nytimes.com/2026/05/29/crosswords/strands-sidekick-818.html
 `Scroll down for hints and conversation about the puzzle for Saturday, May 30, 2026.`\
 https://www.nytimes.com/2026/05/29/crosswords/wordle-review-1806.html
 
-**Iran War Live Updates: Uncertainty Hangs Over Talks as U.S. Says It Is Close to Agreement**\
-`An emerging “memorandum of understanding” could lead to the reopening of the Strait of Hormuz. But it still needs approval from President Trump, and Iran has not confirmed any commitments.`\
+**Iran War Live Updates: Uncertainty Hangs Over Talks as Sticking Points Remain**\
+`U.S. officials said the sides were discussing a “memorandum of understanding” that could lead to the reopening of the Strait of Hormuz, but it still needs President Trump’s sign-off. Iran has not confirmed any commitments.`\
 https://www.nytimes.com/live/2026/05/29/world/iran-war-us-trump-deal
 
 **Share & Eat the Rich & Tell with Tim Miller and Stephanie Ruhle**\
