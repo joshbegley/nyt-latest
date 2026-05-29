@@ -1,3 +1,11 @@
+**Who is Ahead in Hawaii's 1st Congressional District?**\
+`Track the latest polls in Hawaii's 1st Congressional District.`\
+https://www.nytimes.com/interactive/polls/hawaii-us-house-1-polls-2026.html
+
+**ICE Agent Charged in Minnesota Shooting Is Arrested in Texas**\
+`Christian Castro, who had been charged with assault in the shooting of a Venezuelan man during the immigration crackdown in Minnesota, was taken into custody Friday morning.`\
+https://www.nytimes.com/2026/05/29/us/ice-agent-arrested-minnesota-shooting-immigrant.html
+
 **Who Is Ahead in Virginia's 6th Congressional District?**\
 `Track the latest polls in Virginia's 6th Congressional District.`\
 https://www.nytimes.com/interactive/polls/virginia-us-house-6-polls-2026.html
@@ -19,7 +27,7 @@ https://www.nytimes.com/2026/05/29/arts/randall-bourscheidt-dead.html
 https://www.nytimes.com/video/science/earth/100000010932609/manhattanhenge-nyc-sky-crowds.html
 
 **As the SpaceX Hype Machine Steamrolls Ahead, Wall Street Jumps Aboard**\
-`Elon Musk and his bankers are working to create a self-fulfilling prophesy for SpaceX’s massive initial public offering: Make investors feel that the risks of passing up the stock outweigh those of buying into it.`\
+`Elon Musk and his bankers are working to create a self-fulfilling prophecy for SpaceX’s massive initial public offering: Make investors feel that the risks of passing up the stock outweigh those of buying into it.`\
 https://www.nytimes.com/2026/05/29/business/spacex-ipo-wall-street.html
 
 **How Bad Are President Trump’s Approval Ratings?**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/es/2026/05/29/espanol/ciencia-y-tecnologia/ecuadore-serp
 **Los ataques a embarcaciones no han detenido el tráfico de cocaína a EE. UU., según expertos**\
 `El número de muertes aumenta en las costas sudamericanas, pero los especialistas aseguran que la cocaína es tan fácil de conseguir en muchas partes de Estados Unidos como antes de que comenzara la campaña.`\
 https://www.nytimes.com/es/2026/05/29/espanol/america-latina/ataques-embarcaciones-flujo-cocaina.html
-
-**Court in Kenya Suspends Plans for U.S. Ebola Quarantine Unit**\
-`The order came after U.S. officials said that a 50-bed facility was being established in the African country to house American citizens exposed to the virus.`\
-https://www.nytimes.com/2026/05/29/world/africa/us-kenya-quarantine-unit-ebola.html
-
-**Does Trump Want to Lose the Midterms?**\
-`The president doesn’t seem that concerned that his party could lose control of Congress. Ezra Klein and the Republican strategist Liam Donovan discuss Trump’s midterm strategy and Democratic paths to victory.`\
-https://www.nytimes.com/2026/05/29/opinion/ezra-klein-podcast-liam-donovan.html
 

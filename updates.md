@@ -1,3 +1,15 @@
+**Who Is Ahead in Virginia's 6th Congressional District?**\
+`Track the latest polls in Virginia's 6th Congressional District.`\
+https://www.nytimes.com/interactive/polls/virginia-us-house-6-polls-2026.html
+
+**British Museum Postpones Jewish Cultural Event, Citing Threat of Disruption**\
+`The cancellation comes amid a rise in racial and religious crimes in Britain as well as growing sense of unease for some of London’s Jews.`\
+https://www.nytimes.com/2026/05/29/world/europe/london-british-museum-antisemitsm.html
+
+**Today, In Short**\
+`Olivia Rodrigo. Everlane. And more from Harvard.`\
+https://www.nytimes.com/2026/05/29/briefing/today-in-short.html
+
 **Randall Bourscheidt, Wide-Ranging Arts Advocate, Dies at 81**\
 `He helped triple New York City’s arts budget, led research to promote cultural funding and supported artists with H.I.V. and AIDS.`\
 https://www.nytimes.com/2026/05/29/arts/randall-bourscheidt-dead.html
