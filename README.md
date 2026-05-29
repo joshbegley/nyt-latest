@@ -135,7 +135,7 @@ https://www.nytimes.com/2026/05/28/world/europe/taylor-swift-concert-vienna-guil
 https://www.nytimes.com/2026/05/28/world/middleeast/israel-gaza-hamas-70-percent.html
 
 **Young MC and Morris Day Pull Out of Freedom 250 Concerts**\
-`Young MC and Morris Day said they would not perform at the series on the National Mall that is part of the summer celebration of America’s founding.`\
+`Young MC, Morris Day and the Commodores said they would not perform at the series on the National Mall that is part of the summer celebration of America’s founding.`\
 https://www.nytimes.com/2026/05/28/arts/music/freedom-concerts-young-mc-milli-vanilli.html
 
 **Scooter Rider and Cyclist Are Killed in Head-On Crash on N.Y.C. Bridge**\

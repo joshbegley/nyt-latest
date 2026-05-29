@@ -1,3 +1,23 @@
+**Suit Says Black Infants Were Subjected to Experimental Vaccine Without Consent**\
+`The babies were part of a vaccine trial for a respiratory virus in the 1960s and died shortly after. Their families said they had been unaware of the trial until recently.`\
+https://www.nytimes.com/2026/05/28/us/rsv-vaccine-testing-lawsuit.html
+
+**Trump’s Iran Approach Sows Confusion**\
+`President Trump’s pendulum swings on Iran have often seemed driven by mood and moment rather than any discernible strategy.`\
+https://www.nytimes.com/2026/05/28/us/politics/trump-approach-iran-war.html
+
+**ABC Accuses Trump Administration of Threatening Its Broadcast Licenses**\
+`The TV network slammed the Federal Communications Commission, saying the regulator was targeting its station licenses in a campaign of “unconstitutional retaliation.”`\
+https://www.nytimes.com/2026/05/28/business/media/abc-licenses-fcc-brendan-carr.html
+
+**Terry Rozier Took $70,000 Bribe to Leave NBA Game Early, U.S. Says**\
+`Terry Rozier faces new charges for his role in a betting scheme that prosecutors say involves former and current professional basketball players.`\
+https://www.nytimes.com/2026/05/28/nyregion/terry-rozier-nba-betting-scandal.html
+
+**Scripps Spelling Bee Live Updates: Students Battle for Word Domination**\
+`The nine finalists competing against one another — and the dictionary — have taken the stage. The competition will begin shortly.`\
+https://www.nytimes.com/live/2026/05/28/us/scripps-spelling-bee
+
 **Alaska Authorities Race to Rescue 4 Climbers Who Fell on Mount McKinley**\
 `The condition of the climbers was not immediately known.`\
 https://www.nytimes.com/2026/05/28/us/mount-mckinley-rescue-alaska.html
