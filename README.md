@@ -1,3 +1,7 @@
+**TK**\
+`TK`\
+https://static01.nyt.com/slideshow/2026/05/29/t-magazine/food/tk.html
+
 **Woman With No Right Hand Pulled Over for Using Phone in Her Right Hand**\
 `A sheriff’s deputy in Florida pulled a woman over for holding a phone in her right hand, which turned out to be impossible.`\
 https://www.nytimes.com/video/us/100000010932527/woman-pulled-over-phone-no-hand.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/05/29/nyregion/happy-an-elephant-of-distinction.htm
 **France’s Far Right Has 2 Leaders. They Don’t Always Have One Voice.**\
 `Marine Le Pen and her protégé, Jordan Bardella, lead presidential polls. They are united on curbing immigration but split recently on economic policy.`\
 https://www.nytimes.com/2026/05/29/world/europe/france-presidential-election-le-pen-bardella.html
-
-**This Is Why Your Groceries Are So Expensive**\
-`We need to confront America’s highly concentrated food sector, one that has feasted on oligopolistic behavior for more than a century.`\
-https://www.nytimes.com/2026/05/29/opinion/business-economics/groceries-expensive-price-fixing-consolidation.html
 

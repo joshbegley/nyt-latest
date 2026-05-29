@@ -1,3 +1,7 @@
+**Woman With No Right Hand Pulled Over for Using Phone in Her Right Hand**\
+`A sheriff’s deputy in Florida pulled a woman over for holding a phone in her right hand, which turned out to be impossible.`\
+https://www.nytimes.com/video/us/100000010932527/woman-pulled-over-phone-no-hand.html
+
 **Romania Says It Could Invoke NATO’s Article 4. What Would That Do?**\
 `The clause in NATO’s founding treaty is an “instrument” Romania can use, the foreign minister said after a drone, alleged to be Russian, wounded two civilians.`\
 https://www.nytimes.com/2026/05/29/world/europe/nato-article-4-romania-russia.html
