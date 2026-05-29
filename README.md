@@ -154,7 +154,7 @@ https://www.nytimes.com/interactive/2026/05/29/upshot/flashback.html
 `The European Union is set to release 16 billion euros it had withheld, as Hungary moves to enact anti-corruption and rule of law policies.`\
 https://www.nytimes.com/2026/05/29/world/europe/eu-hungary-funds.html
 
-**Bus Crash in Virginia Kills 5 and Injures More Than 30**\
+**Bus Crash in Virginia Kills 5 and Injures More Than 40**\
 `The bus was traveling in a southbound lane on I-95 near Quantico, Va., when it failed to slow for traffic in a work zone, the authorities said.`\
 https://www.nytimes.com/2026/05/29/us/bus-crash-virginia.html
 
