@@ -1,3 +1,7 @@
+**The Confusion Around Modern Masculinity**\
+`In the wake of #MeToo, changing workplace norms left many men unsure of how to behave. But was that confusion genuine — or just an excuse? On “The Opinions,” Frederick Joseph argues that many men became “childlike during that time.”`\
+https://www.nytimes.com/video/opinion/100000010918071/the-confusion-around-modern-masculinity.html
+
 **Strict Monitoring Could Delay Homecoming of Hantavirus Ship Passengers**\
 `Trump administration officials want local health authorities to constantly monitor the 18 passengers for another three weeks, a requirement that far exceeds typical protocols.`\
 https://www.nytimes.com/2026/05/29/us/hantavirus-ship-quarantine.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/polls/hawaii-us-house-1-polls-2026.html
 **ICE Agent Wanted in Minneapolis Shooting Is Captured in Texas**\
 `Christian Castro, who had been charged with assault in the shooting of a Venezuelan man during the immigration crackdown in Minnesota, was taken into custody Friday morning.`\
 https://www.nytimes.com/2026/05/29/us/ice-agent-arrested-minnesota-shooting-immigrant.html
-
-**Who Is Ahead in Virginia's 6th Congressional District?**\
-`Track the latest polls in Virginia's 6th Congressional District.`\
-https://www.nytimes.com/interactive/polls/virginia-us-house-6-polls-2026.html
 
