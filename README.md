@@ -1,3 +1,11 @@
+**Review: ‘Girls Girls Chance Chance Music Music’ Loves a Good Riff**\
+`In Eisa Davis’s new play with live music, at the Vineyard Theater, gifted teenagers find their own rhythms at a summer music program.`\
+https://www.nytimes.com/2026/05/29/theater/girls-girls-chance-chance-music-music-review-eisa-davis.html
+
+**‘Hacks’: Why Friends Don’t Have to Be the Same Age**\
+`In an era of weakened social connections, experts say, bonding with an older or younger friend offers unique benefits.`\
+https://www.nytimes.com/2026/05/29/well/family/hacks-age-gap-intergenerational-friendship.html
+
 **TK**\
 `TK`\
 https://static01.nyt.com/slideshow/2026/05/29/t-magazine/food/tk.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/05/29/business/media/backrooms-film-youtube.html
 **In ‘Fallen Angels,’ Kelli O’Hara and Rose Byrne Get Laughs Getting Sloshed**\
 `The Tony-nominated stars of “Fallen Angels” demonstrate how to act drunk onstage and have a hilarious hangover.`\
 https://www.nytimes.com/2026/05/29/theater/kelli-ohara-rose-byrne-fallen-angels-broadway.html
-
-**Happy, an Elephant of Distinction**\
-`The Asian elephant, who had lived at the Bronx Zoo for decades, had been the center of an animal rights lawsuit based on her high level of cognitive ability and social isolation.`\
-https://www.nytimes.com/2026/05/29/nyregion/happy-an-elephant-of-distinction.html
-
-**France’s Far Right Has 2 Leaders. They Don’t Always Have One Voice.**\
-`Marine Le Pen and her protégé, Jordan Bardella, lead presidential polls. They are united on curbing immigration but split recently on economic policy.`\
-https://www.nytimes.com/2026/05/29/world/europe/france-presidential-election-le-pen-bardella.html
 
