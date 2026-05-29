@@ -1,3 +1,11 @@
+**Drones rusos han entrado en Rumanía: lo que hay que saber**\
+`El ataque del viernes, cerca de la frontera ucraniana, fue el primero que hirió a civiles en Rumanía, según las autoridades. Pero los drones de la guerra cercana han sido una amenaza creciente.`\
+https://www.nytimes.com/es/2026/05/29/espanol/mundo/drones-rusia-rumania-otan.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000010933608/29vid-Robert-Garcia-embeds-33842.html
+
 **Marc Johnson, Street Skateboarder Who Shaped a Sport’s Culture, Dies at 49**\
 `His appearance in the 2007 film “Fully Flared” helped earn him one of the sport’s most prestigious honors: Thrasher Magazine’s skater of the year.`\
 https://www.nytimes.com/2026/05/29/sports/marc-johnson-skateboarder-dead.html

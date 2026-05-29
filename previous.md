@@ -1,3 +1,11 @@
+**Drones rusos han entrado en Rumanía: lo que hay que saber**\
+`El ataque del viernes, cerca de la frontera ucraniana, fue el primero que hirió a civiles en Rumanía, según las autoridades. Pero los drones de la guerra cercana han sido una amenaza creciente.`\
+https://www.nytimes.com/es/2026/05/29/espanol/mundo/drones-rusia-rumania-otan.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000010933608/29vid-Robert-Garcia-embeds-33842.html
+
 **Marc Johnson, Street Skateboarder Who Shaped a Sport’s Culture, Dies at 49**\
 `His appearance in the 2007 film “Fully Flared” helped earn him one of the sport’s most prestigious honors: Thrasher Magazine’s skater of the year.`\
 https://www.nytimes.com/2026/05/29/sports/marc-johnson-skateboarder-dead.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/polls/missouri-us-house-1-polls-2026.html
 **Federal Judge Bars Trump From Immediately Setting Up $1.8 Billion Fund**\
 `A judge in Virginia temporarily blocked the Trump administration from transferring money in or out of the fund until the court could hear arguments in June.`\
 https://www.nytimes.com/2026/05/29/us/politics/federal-judge-trump-fund.html
-
-**Trump Clears Way for Companies to Avoid Taxes in Havens Including Malta and Cyprus**\
-`U.S. companies skirted at least $40 billion in taxes since the beginning of 2025 thanks to schemes in places like Malta, Bermuda and Cyprus.`\
-https://www.nytimes.com/2026/05/29/business/economy/offshore-tax-havens-trump.html
-
-**tk**\
-`tk`\
-https://static01.nyt.com/slideshow/2026/05/29/arts/tk.html
 
