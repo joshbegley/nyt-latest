@@ -1,3 +1,15 @@
+**Bondi, Pressed Over Epstein Files, Places Responsibility on Blanche and Patel**\
+`Her remarks, delivered during a closed-door interview before the House Oversight Committee, were a candid admission of her own powerlessness.`\
+https://www.nytimes.com/2026/05/29/us/politics/pam-bondi-epstein-files-testimony.html
+
+**Mexican Senate Votes to Allow Voiding Elections Over Foreign Interference**\
+`The legislation, which comes amid growing tensions between Mexico and the White House, must be approved by a majority of state legislatures and sent to the president.`\
+https://www.nytimes.com/2026/05/29/world/americas/mexico-ban-election-meddling-foreign-powers.html
+
+**You Be the Ump**\
+`Major league umpires are facing video review on balls and strikes for the first time. How would you do?`\
+https://www.nytimes.com/interactive/2026/05/29/upshot/you-be-the-ump-abs.html
+
 **The Confusion Around Modern Masculinity**\
 `In the wake of #MeToo, changing workplace norms left many men unsure of how to behave. But was that confusion genuine — or just an excuse? On “The Opinions,” Frederick Joseph argues that many men became “childlike during that time.”`\
 https://www.nytimes.com/video/opinion/100000010918071/the-confusion-around-modern-masculinity.html
