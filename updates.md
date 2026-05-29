@@ -1,3 +1,19 @@
+**‘The Headlines’ News Quiz: May 29, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/05/29/podcasts/the-headlines/the-headlines-news-quiz-may-29-2026.html
+
+**Uber to Offer Shuttles for Fans Leaving World Cup Matches**\
+`Soccer lovers frustrated by public transportation will have another option to return to Boston, Dallas, Miami and New York from hard-to-reach stadiums.`\
+https://www.nytimes.com/2026/05/29/travel/uber-soccer-world-cup-shuttles.html
+
+**Providence Isn’t an Official World Cup Host but It Sure Is Acting Like One**\
+`A stadium outside Boston that will host seven World Cup games is actually closer to Providence, R.I., prompting officials there to capitalize on that proximity to lure fans.`\
+https://www.nytimes.com/2026/05/29/us/boston-providence-world-cup.html
+
+**Interesting Times: Why Are We Still Driving?**\
+`Confronting the weirdness of a Waymo future.`\
+https://www.nytimes.com/2026/05/29/podcasts/29hardfork-waymo-interesting-times.html
+
 **Pool Problems**\
 `What’s happening with the paint on the National Mall?`\
 https://www.nytimes.com/2026/05/29/briefing/pool-problems.html
