@@ -1,3 +1,15 @@
+**ICE Protesters Convicted in a Case That Tested a Trump Strategy**\
+`The three demonstrators in Spokane, Wash., had been accused of conspiracy, charges that the region’s former top prosecutor has said were unwarranted.`\
+https://www.nytimes.com/2026/05/29/us/ice-protesters-convicted-spokane.html
+
+**How Olivia Rodrigo’s Love Songs Became a Breakup Album**\
+`The pop star Olivia Rodrigo spoke to “Popcast” about the writing process for her new album, “you seem pretty sad for a girl so in love.”`\
+https://www.nytimes.com/video/podcasts/100000010931445/how-olivia-rodrigos-love-songs-became-a-breakup-album.html
+
+**Kennedy Center Must Remove Trump’s Name From Building, Judge Orders**\
+`In an incensed social media post, President Trump suggested that the ruling might prompt him to cast the center aside after more than a year at its helm.`\
+https://www.nytimes.com/2026/05/29/arts/kennedy-center-trump-name-remove.html
+
 **ICE Agents to Leave Site of Volatile Protests at Detention Center**\
 `Clashes between protesters and armed federal agents have erupted at the parking lot of Delaney Hall in Newark since the Memorial Day weekend.`\
 https://www.nytimes.com/2026/05/29/nyregion/ice-protests-delaney-hall-nj.html

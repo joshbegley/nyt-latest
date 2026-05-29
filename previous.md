@@ -1,3 +1,11 @@
+**ICE Protesters Convicted in a Case That Tested a Trump Strategy**\
+`The three demonstrators in Spokane, Wash., had been accused of conspiracy, charges that the region’s former top prosecutor has said were unwarranted.`\
+https://www.nytimes.com/2026/05/29/us/ice-protesters-convicted-spokane.html
+
+**How Olivia Rodrigo’s Love Songs Became a Breakup Album**\
+`The pop star Olivia Rodrigo spoke to “Popcast” about the writing process for her new album, “you seem pretty sad for a girl so in love.”`\
+https://www.nytimes.com/video/podcasts/100000010931445/how-olivia-rodrigos-love-songs-became-a-breakup-album.html
+
 **ICE Agents to Leave Site of Volatile Protests at Detention Center**\
 `Clashes between protesters and armed federal agents have erupted at the parking lot of Delaney Hall in Newark since the Memorial Day weekend.`\
 https://www.nytimes.com/2026/05/29/nyregion/ice-protests-delaney-hall-nj.html
@@ -99,7 +107,7 @@ https://www.nytimes.com/2026/05/29/world/middleeast/israel-russia-un-sexual-viol
 https://www.nytimes.com/2026/05/29/world/africa/abdrabbuh-mansour-hadi-dead.html
 
 **Kennedy Center Must Remove Trump’s Name From Building, Judge Orders**\
-`The U.S. district judge also ruled that the institution’s board had not done its due diligence when voting to close for renovations.`\
+`In an incensed social media post, President Trump suggested that the ruling might prompt him to cast the center aside after more than a year at its helm.`\
 https://www.nytimes.com/2026/05/29/arts/kennedy-center-trump-name-remove.html
 
 **Book Club: Let’s Talk About ‘Transcription,’ by Ben Lerner**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/05/29/world/europe/london-british-museum-antisemits
 **Loud Boom Sends Animals Running at Rescue Shelter in S.C.**\
 `At about 5:30 p.m. on Thursday, a loud noise rattled parts of South Carolina, sending animals running at Frisky Business Rescue.`\
 https://www.nytimes.com/video/us/100000010933136/south-carolina-boom-animals.html
-
-**Vietnam’s Leader Warns Asia About the Risks of Superpower Conflict**\
-`In a speech to military leaders from the region, To Lam said that distrust and a lack of respect for established rules had created a culture of “the big fish swallowing the small fish.”`\
-https://www.nytimes.com/2026/05/29/world/asia/vietnam-to-lam-shangri-la-dialogue.html
-
-**What Exactly Caused That Loud Boom in South Carolina?**\
-`A huge noise rattled part of the state on Thursday. Multiple theories have been put forward, but the mystery remains.`\
-https://www.nytimes.com/2026/05/29/us/south-carolina-sonic-boom.html
 
