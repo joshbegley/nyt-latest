@@ -1,3 +1,7 @@
+**‘Hacks’ Leaves Them Laughing**\
+`In an interview, Jean Smart and Hannah Einbinder discuss the series finale, their offscreen relationship and why comedy is just like sex.`\
+https://www.nytimes.com/2026/05/28/arts/television/hacks-ends-jean-smart-hannah-einbinder.html
+
 **Scripps Spelling Bee Live Updates: 3 Spellers Remain in the Quest for Word Domination**\
 `A devastating round ousted four contestants in quick succession, while two others were eliminated by “Quincke tube” and “cara sposa.”`\
 https://www.nytimes.com/live/2026/05/28/us/scripps-spelling-bee
