@@ -1,3 +1,7 @@
+**Iran War Live Updates: Uncertainty Hangs Over Talks as U.S. Says It Is Close to Agreement**\
+`An emerging “memorandum of understanding,” which could lead to the reopening of the Strait of Hormuz, still needs approval from President Trump, and Iran has not confirmed any commitments.`\
+https://www.nytimes.com/live/2026/05/29/world/iran-war-us-trump-deal
+
 **Share & Eat the Rich & Tell with Tim Miller and Stephanie Ruhle**\
 `Regulating the billionaire class — with a little help from Pope Leo XIV.`\
 https://www.nytimes.com/2026/05/29/podcasts/share-eat-the-rich-tell-with-tim-miller-and-stephanie-ruhle.html
