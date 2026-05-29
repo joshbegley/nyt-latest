@@ -1,3 +1,27 @@
+**Stranded in the Strait of Hormuz**\
+`We hear from two of the thousands of seafarers who became stuck in the middle of the war.`\
+https://www.nytimes.com/2026/05/29/podcasts/the-daily/iran-strait-of-hormuz-ships.html
+
+**Can You Use Dirty Rubber Bands in the Kitchen?**\
+`A ruling on a cleanliness dispute.`\
+https://www.nytimes.com/interactive/2026/05/29/magazine/washing-rubber-bands-hodgman-quiz.html
+
+**U.S. Ramps Up Deadly Boat Strikes, and What Trump’s Stock Trades Show**\
+`Plus, the Friday news quiz.`\
+https://www.nytimes.com/2026/05/29/podcasts/the-headlines/us-ramps-up-deadly-boat-strikes-and-what-trumps-stock-trades-show.html
+
+**NYT Connections Answers for May 30, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, May 30, 2026.`\
+https://www.nytimes.com/2026/05/29/crosswords/connections-companion-1084.html
+
+**NYT Strands Hints for May 30, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, May 30, 2026.`\
+https://www.nytimes.com/2026/05/29/crosswords/strands-sidekick-818.html
+
+**Today’s Wordle Review for May 30, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, May 30, 2026.`\
+https://www.nytimes.com/2026/05/29/crosswords/wordle-review-1806.html
+
 **Iran War Live Updates: Uncertainty Hangs Over Talks as U.S. Says It Is Close to Agreement**\
 `An emerging “memorandum of understanding,” which could lead to the reopening of the Strait of Hormuz, still needs approval from President Trump, and Iran has not confirmed any commitments.`\
 https://www.nytimes.com/live/2026/05/29/world/iran-war-us-trump-deal
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/05/29/world/americas/us-boat-strikes-cocaine-trump-
 **Kane Parsons: From YouTube Sensation to A24’s Youngest Director**\
 `Now 20, the viral creator Kane Parsons is releasing “Backrooms,” a feature-length expansion of his web series.`\
 https://www.nytimes.com/2026/05/29/movies/kane-parsons-24-youngest-director-backrooms.html
-
-**A Hidden Treasure of Rare Snake Specimens**\
-`In the foothills of the Ecuadorean Amazon, a 101-year-old farmer and a young scientist turned an amateur collection into a scientific survey of one of the most diverse snake habitats on Earth.`\
-https://www.nytimes.com/2026/05/29/science/snake-collector-mera-ecuador.html
-
-**The Newest James Bond Game, 007 First Light, Is a Mix of Hitman and Uncharted**\
-`There are high-tech gadgets and delightful moments in 007 First Light. But too often it becomes an action hero’s linear journey.`\
-https://www.nytimes.com/2026/05/29/arts/007-first-light-review-james-bond.html
-
-**How Fuel Price Shocks Rattled a Remote New Zealand Village**\
-`The prices of diesel and gasoline soared after the Iran war started, piling more hardship on people in Ruatahuna, one of New Zealand’s most remote villages.`\
-https://www.nytimes.com/2026/05/29/world/australia/iran-war-fuel-price-new-zealand-village.html
-
-**No, Not That Georgia. A.I. Compounds a Nation’s Identity Woes.**\
-`Online queries are more likely to turn up references to the U.S. state — a problem for the republic in the Caucasus and its people. But a move to drop the name “Georgia” has lost steam.`\
-https://www.nytimes.com/2026/05/29/world/europe/georgia-name-confusion.html
-
-**In a World That Enabled Epstein, What Makes a Good Man?**\
-`A much-needed, nuanced conversation about masculinity and feminism today.`\
-https://www.nytimes.com/video/opinion/100000010918066/in-a-world-that-enabled-epstein-what-makes-a-good-man.html
-
-**Markets Wary as U.S. and Iran Edge Closer to Agreement**\
-`Oil prices and stock markets fluctuated as investors assessed tentative signs of a pact to extend a cease-fire.`\
-https://www.nytimes.com/2026/05/29/business/oil-gas-stocks-iran.html
 
