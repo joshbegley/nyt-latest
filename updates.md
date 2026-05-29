@@ -1,3 +1,7 @@
+**Live Updates: Train Fire at Penn Station Injures 5 and Disrupts Rail Service**\
+`A fire on a maintenance train affected Friday morning service on NJ Transit, Amtrak and the L.I.R.R. Two people were hospitalized with serious injuries.`\
+https://www.nytimes.com/live/2026/05/29/nyregion/penn-station-fire-amtrak-nyc
+
 **Russian Drone Hits Romanian Apartment Building**\
 `Romanian officials said a Russian attack drone hit an apartment building in the city of Galati on Friday, injuring two people.`\
 https://www.nytimes.com/video/world/europe/100000010932571/russian-drone-romania-apartments.html
