@@ -1,3 +1,11 @@
+**Can Talarico win over some of Cornyn’s voters in Texas?**\
+`Democrats hope so, but there are good reasons to be skeptical.`\
+https://www.nytimes.com/2026/05/29/us/politics/talarico-cornyn-texas-voters.html
+
+**Skin Care Brand’s Free Bus Connecting Domino and Prospect Parks Stops Running**\
+`A two-week marketing stunt by the Ordinary appeared to stop abruptly on Friday, stranding riders.`\
+https://www.nytimes.com/2026/05/29/style/ordinary-bus-route-brooklyn-stop-running.html
+
 **Bondi, Pressed Over Epstein Files, Places Responsibility on Blanche and Patel**\
 `Her remarks, delivered during a closed-door interview before the House Oversight Committee, were a candid admission of her own powerlessness.`\
 https://www.nytimes.com/2026/05/29/us/politics/pam-bondi-epstein-files-testimony.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/05/29/upshot/flashback.html
 **After Orban’s Defeat, Hungary Is Poised to Get Billions From E.U.**\
 `The European Union is set to release 16 billion euros it had withheld, as Hungary moves to enact anti-corruption and rule of law policies.`\
 https://www.nytimes.com/2026/05/29/world/europe/eu-hungary-funds.html
-
-**Bus Crash in Virginia Kills 5 and Injures More Than 40**\
-`The bus was traveling in a southbound lane on I-95 near Quantico, Va., when it failed to slow for traffic in a work zone, the authorities said.`\
-https://www.nytimes.com/2026/05/29/us/bus-crash-virginia.html
-
-**One of Five Gold Miners Is Rescued From Laos Cave After More Than a Week**\
-`An international effort to free the trapped men brought attention to the country’s informal mines, where panning for gold can pay more than minimum wage.`\
-https://www.nytimes.com/2026/05/29/world/asia/laos-cave-rescue.html
 
