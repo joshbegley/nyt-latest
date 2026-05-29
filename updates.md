@@ -1,3 +1,7 @@
+**Russian Drone Hits Romanian Apartment Building, Officials Say**\
+`NATO condemned “Russia’s recklessness” and confirmed that it was in touch with the Romanian authorities.`\
+https://www.nytimes.com/2026/05/29/world/europe/romania-drone-russia-ukraine.html
+
 **Blue Origin Rocket Explodes on Florida Launchpad**\
 `A rocket built by the Jeff Bezos-owned space company, Blue Origin, blew up during a test at the Cape Canaveral Space Force Station in Florida.`\
 https://www.nytimes.com/video/science/space/100000010932440/blue-origin-rocket-explosion-florida.html
