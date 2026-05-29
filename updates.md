@@ -1,3 +1,15 @@
+**In Carroll Lawsuits Inquiry, Scrutiny Turns Toward Private Citizens Who Antagonized Trump**\
+`The Justice Department is said to be examining the funding of lawsuits brought by E. Jean Carroll, an author who has never sought a public role, political power or governmental authority.`\
+https://www.nytimes.com/2026/05/28/us/politics/justice-department-carroll-hoffman-lawsuit-trump.html
+
+**Scripps Spelling Bee Live Updates: 4 Spellers Remain in the Quest for Word Domination**\
+`A devastating round ousted four contestants in quick succession, while a fifth was eliminated by “Quincke tube.”`\
+https://www.nytimes.com/live/2026/05/28/us/scripps-spelling-bee
+
+**Young MC and Morris Day Pull Out of Freedom 250 Concerts**\
+`Young MC, Martina McBride and Morris Day were among those who said they would not perform at the series on the National Mall.`\
+https://www.nytimes.com/2026/05/28/arts/music/freedom-concerts-young-mc-milli-vanilli.html
+
 **J.F.K. Airport to Begin Screening Some Passengers for Ebola**\
 `The U.S. has begun rerouting travelers from the Democratic Republic of Congo, South Sudan and Uganda to select airports for enhanced health screenings, to identify those who may have been exposed to the Ebola virus.`\
 https://www.nytimes.com/2026/05/28/us/politics/jfk-airport-ebola-screening-cdc.html
