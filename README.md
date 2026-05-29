@@ -1,3 +1,11 @@
+**Strict Monitoring Could Delay Homecoming of Hantavirus Ship Passengers**\
+`Trump administration officials want local health authorities to constantly monitor the 18 passengers for another three weeks, a requirement that far exceeds typical protocols.`\
+https://www.nytimes.com/2026/05/29/us/hantavirus-ship-quarantine.html
+
+**What This Pixar Film Gets Wrong About Boys**\
+`Films like “Inside Out” raise questions about how we portray boys’ emotional lives. “It just felt like every time that a male character appeared onscreen in that movie, they were an emotional idiot,” Ruth Whippman says on “The Opinions.”`\
+https://www.nytimes.com/video/opinion/100000010933482/what-this-pixar-film-gets-wrong-about-boys.html
+
 **Claude Bessy, Who Ruled Paris Opera Ballet School, Dies at 93**\
 `A tall, commanding ballerina, she led one of the world’s top dance institutions for decades, though her rigorous methods eventually drew criticism.`\
 https://www.nytimes.com/2026/05/29/arts/dance/claude-bessy-dead.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/05/29/us/ice-agent-arrested-minnesota-shooting-immi
 **Who Is Ahead in Virginia's 6th Congressional District?**\
 `Track the latest polls in Virginia's 6th Congressional District.`\
 https://www.nytimes.com/interactive/polls/virginia-us-house-6-polls-2026.html
-
-**Today, In Short**\
-`Olivia Rodrigo. Everlane. And more from Harvard.`\
-https://www.nytimes.com/2026/05/29/briefing/today-in-short.html
-
-**Randall Bourscheidt, Wide-Ranging Arts Advocate, Dies at 81**\
-`He helped triple New York City’s arts budget, led research to promote cultural funding and supported artists with H.I.V. and AIDS.`\
-https://www.nytimes.com/2026/05/29/arts/randall-bourscheidt-dead.html
 
