@@ -1,3 +1,7 @@
+**A Clean Energy PAC Helped Beat Chip Roy, and Now It Has New Targets**\
+`A PAC representing wind and solar energy interests spent $1.1 million to boost the Republican primary opponent of Chip Roy, an opponent of renewables. Now they are trying to save a Republican ally in Iowa.`\
+https://www.nytimes.com/2026/05/29/climate/clean-energy-pac-chip-roy.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000010933618/29vid-Robert-Garcia-embeds-69364.html
@@ -193,8 +197,4 @@ https://static01.nyt.com/slideshow/2026/05/29/arts/tk.html
 **¿La creatina puede ayudar durante la menopausia?**\
 `Los influentes están promocionando la creatina, un suplemento muy popular entre los atletas y culturistas, para ayudar a combatir la pérdida de masa muscular y el deterioro de la memoria en esta época de la vida.`\
 https://www.nytimes.com/es/2026/05/29/espanol/creatina-menopausia.html
-
-**Review: ‘Girls Girls Chance Chance Music Music’ Loves a Good Riff**\
-`In Eisa Davis’s new play with live music, at the Vineyard Theater, gifted teenagers find their own rhythms at a summer music program.`\
-https://www.nytimes.com/2026/05/29/theater/girls-girls-chance-chance-music-music-review-eisa-davis.html
 
