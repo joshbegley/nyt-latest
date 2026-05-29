@@ -38,7 +38,7 @@ https://www.nytimes.com/es/2026/05/28/espanol/cultura/toto-la-momposina-murio.ht
 `The TV network slammed the Federal Communications Commission, saying the regulator was targeting its station licenses in a campaign of “unconstitutional retaliation.”`\
 https://www.nytimes.com/2026/05/28/business/media/abc-licenses-fcc-brendan-carr.html
 
-**N.B.A. Player Took $70,000 Bribe to Leave Game Early, U.S. Says**\
+**Terry Rozier Took $70,000 Bribe to Leave NBA Game Early, U.S. Says**\
 `Terry Rozier faces new charges for his role in a betting scheme that prosecutors say involves former and current professional basketball players.`\
 https://www.nytimes.com/2026/05/28/nyregion/terry-rozier-nba-betting-scandal.html
 
@@ -71,7 +71,7 @@ https://www.nytimes.com/video/us/politics/100000010931638/bessent-treasury-trump
 https://www.nytimes.com/video/us/100000010931758/fire-dallas-apartment-building.html
 
 **Scripps Spelling Bee Live Updates: Students Battle for Word Domination**\
-`The nine finalists competing against one another — and the dictionary — will take the stage at 8 p.m. Eastern time.`\
+`The nine finalists competing against one another — and the dictionary — have taken the stage. The competition will begin shortly.`\
 https://www.nytimes.com/live/2026/05/28/us/scripps-spelling-bee
 
 **A Democrat’s Dodge on AIPAC Points to the Party’s Tensions Over Israel**\
