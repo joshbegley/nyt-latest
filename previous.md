@@ -194,7 +194,3 @@ https://www.nytimes.com/2026/05/29/opinion/business-economics/groceries-expensiv
 `Start out with a low-stakes installation on an art canvas. You’ll learn the basics, and you can easily undo it.`\
 https://www.nytimes.com/2026/05/29/realestate/wallpaper-art-without-the-work.html
 
-**America Has a Masculinity Crisis**\
-`A much-needed, nuanced conversation about masculinity and feminism today.`\
-https://www.nytimes.com/2026/05/29/opinion/young-men-masculinity-crisis.html
-
