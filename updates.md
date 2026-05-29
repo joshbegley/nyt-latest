@@ -1,11 +1,3 @@
-**Suit Says Black Infants Were Subjected to Experimental Vaccine Without Consent**\
-`The babies were part of a vaccine trial for a respiratory virus in the 1960s and died shortly after. Their families said they had been unaware of the trial until recently.`\
-https://www.nytimes.com/2026/05/28/us/rsv-vaccine-testing-lawsuit.html
-
-**Trump’s Iran Approach Sows Confusion**\
-`President Trump’s pendulum swings on Iran have often seemed driven by mood and moment rather than any discernible strategy.`\
-https://www.nytimes.com/2026/05/28/us/politics/trump-approach-iran-war.html
-
 **Alaska Authorities Race to Rescue 4 Climbers Who Fell on Mount McKinley**\
 `The condition of the climbers was not immediately known.`\
 https://www.nytimes.com/2026/05/28/us/mount-mckinley-rescue-alaska.html
@@ -34,7 +26,7 @@ https://www.nytimes.com/video/podcasts/100000010931291/how-olivia-rodrigos-love-
 `Timbaland, Jay-Z y Major Lazer samplearon su trabajo y recibió el premio Grammy a la excelencia musical en 2013.`\
 https://www.nytimes.com/es/2026/05/28/espanol/cultura/toto-la-momposina-murio.html
 
-**ABC Accuses Trump Administration of Threatening Its Broadcast Licenses**\
+**ABC Accuses Media Regulator of Threatening Its Licenses**\
 `The TV network slammed the Federal Communications Commission, saying the regulator was targeting its station licenses in a campaign of “unconstitutional retaliation.”`\
 https://www.nytimes.com/2026/05/28/business/media/abc-licenses-fcc-brendan-carr.html
 
@@ -71,7 +63,7 @@ https://www.nytimes.com/video/us/politics/100000010931638/bessent-treasury-trump
 https://www.nytimes.com/video/us/100000010931758/fire-dallas-apartment-building.html
 
 **Scripps Spelling Bee Live Updates: Students Battle for Word Domination**\
-`The nine finalists competing against one another — and the dictionary — will take the stage at 8 p.m. Eastern time.`\
+`The nine finalists competing against one another — and the dictionary — will take the stage at 8 p.m.`\
 https://www.nytimes.com/live/2026/05/28/us/scripps-spelling-bee
 
 **A Democrat’s Dodge on AIPAC Points to the Party’s Tensions Over Israel**\
@@ -181,6 +173,14 @@ https://www.nytimes.com/2026/05/28/business/media/the-washington-star-newspaper-
 **Commas, Common Sense and Justice**\
 `The ancients developed punctuation to create clarity, the Supreme Court used it to create confusion.`\
 https://www.nytimes.com/2026/05/28/opinion/punctuation-supreme-court-guns.html
+
+**Watchdog Agency Seeks to Reverse Its Win Against Firm Run by Winklevoss Twins**\
+`The Commodity Futures Trading Commission filed jointly with a company run by the Winklevoss twins to overturn their settlement.`\
+https://www.nytimes.com/2026/05/28/us/politics/cftc-gemini-winklevoss-lawsuit.html
+
+**Dell Gets a $9.7 Billion Defense Contract. Trump’s Portfolio Stands to Benefit.**\
+`The president’s family says his stock purchases are automatically timed, but recent acquisitions of the computer company’s shares raise questions.`\
+https://www.nytimes.com/2026/05/28/us/politics/trump-dell-stock-purchases.html
 
 **Iran War Live Updates: U.S. Officials Say They Are Closing In on Arrangement to Reopen Strait of Hormuz**\
 `President Trump has not signed off on the emerging framework, according to U.S. officials. But it could set the table for extending the cease-fire and more substantive negotiations.`\
