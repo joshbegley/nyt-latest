@@ -1,3 +1,7 @@
+**The Cruelty of Family Separation**\
+`Readers respond to a news article, “Push to Deport Splits Over 100,000 Families.” Also: The trolling war.`\
+https://www.nytimes.com/2026/05/29/opinion/family-separation-immigation.html
+
 **British Museum Postpones Jewish Cultural Event, Citing Threat of Disruption**\
 `The cancellation comes amid a rise in racial and religious crimes in Britain as well as growing sense of unease for some of London’s Jews.`\
 https://www.nytimes.com/2026/05/29/world/europe/london-british-museum-antisemitsm.html
@@ -170,7 +174,7 @@ https://www.nytimes.com/2026/05/29/business/dealbook/anthropic-ai-openai.html
 `The superstar is part of group that has bought a basketball team in Italy, with a plan to move the club to Rome in hopes of making it part of a new league.`\
 https://www.nytimes.com/2026/05/29/business/media/luka-doncic-nba-owner-rome.html
 
-**Live Updates: Maintenance Train Fire at Penn Station Injures 5 and Disrupts Rail Service**\
+**Maintenance Train Fire at Penn Station Injures 5 and Disrupts Rail Service**\
 `An overnight fire on a maintenance train was still affecting service on NJ Transit and Amtrak as of midmorning on Friday.`\
 https://www.nytimes.com/live/2026/05/29/nyregion/penn-station-fire-amtrak-nyc
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/29/us/boston-providence-world-cup.html
 **Interesting Times: Why Are We Still Driving?**\
 `Confronting the weirdness of a Waymo future.`\
 https://www.nytimes.com/2026/05/29/podcasts/29hardfork-waymo-interesting-times.html
-
-**Pool Problems**\
-`What’s happening with the paint on the National Mall?`\
-https://www.nytimes.com/2026/05/29/briefing/pool-problems.html
 
