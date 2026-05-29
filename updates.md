@@ -1,3 +1,11 @@
+**Review: ‘Girls Girls Chance Chance Music Music’ Loves a Good Riff**\
+`In Eisa Davis’s new play with live music, at the Vineyard Theater, gifted teenagers find their own rhythms at a summer music program.`\
+https://www.nytimes.com/2026/05/29/theater/girls-girls-chance-chance-music-music-review-eisa-davis.html
+
+**‘Hacks’: Why Friends Don’t Have to Be the Same Age**\
+`In an era of weakened social connections, experts say, bonding with an older or younger friend offers unique benefits.`\
+https://www.nytimes.com/2026/05/29/well/family/hacks-age-gap-intergenerational-friendship.html
+
 **TK**\
 `TK`\
 https://static01.nyt.com/slideshow/2026/05/29/t-magazine/food/tk.html
