@@ -1,3 +1,7 @@
+**Un agente del ICE imputado por un tiroteo en Minnesota es arrestado en Texas**\
+`Christian Castro, quien había sido imputado con cargos de asalto en el tiroteo a un hombre venezolano durante la represión de la inmigración en Minnesota, fue puesto bajo custodia el viernes por la mañana.`\
+https://www.nytimes.com/es/2026/05/29/espanol/estados-unidos/ice-agente-tiroteo-arresto.html
+
 **Trump’s Counterterror Strategy Focuses on the Left**\
 `President Trump’s new counterterrorism strategy focuses on “violent left-wing extremists,” as well as narcoterrorists and Islamic terror groups. Our White House correspondent Zolan Kanno-Youngs explains what it means.`\
 https://www.nytimes.com/video/us/politics/100000010907491/who-trump-2026-counterterror-strategy-focuses-on.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/29/podcasts/the-headlines/the-headlines-news-qui
 **Uber to Offer Shuttles for Fans Leaving World Cup Matches**\
 `Soccer lovers frustrated by public transportation will have another option to return to Boston, Dallas, Miami and New York from hard-to-reach stadiums.`\
 https://www.nytimes.com/2026/05/29/travel/uber-soccer-world-cup-shuttles.html
-
-**Providence Isn’t an Official World Cup Host but It Sure Is Acting Like One**\
-`A stadium outside Boston that will host seven World Cup games is actually closer to Providence, R.I., prompting officials there to capitalize on that proximity to lure fans.`\
-https://www.nytimes.com/2026/05/29/us/boston-providence-world-cup.html
 

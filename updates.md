@@ -1,3 +1,11 @@
+**Trump’s Counterterror Strategy Focuses on the Left**\
+`President Trump’s new counterterrorism strategy focuses on “violent left-wing extremists,” as well as narcoterrorists and Islamic terror groups. Our White House correspondent Zolan Kanno-Youngs explains what it means.`\
+https://www.nytimes.com/video/us/politics/100000010907491/who-trump-2026-counterterror-strategy-focuses-on.html
+
+**ICE Agent Wanted in Minneapolis Shooting Is Captured in Texas**\
+`Christian Castro, who had been charged with assault in the shooting of a Venezuelan man during the immigration crackdown in Minnesota, was taken into custody Friday morning.`\
+https://www.nytimes.com/2026/05/29/us/ice-agent-arrested-minnesota-shooting-immigrant.html
+
 **The Cruelty of Family Separation**\
 `Readers respond to a news article, “Push to Deport Splits Over 100,000 Families.” Also: The trolling war.`\
 https://www.nytimes.com/2026/05/29/opinion/family-separation-immigation.html
