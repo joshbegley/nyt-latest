@@ -1,3 +1,7 @@
+**Romania Says It Could Invoke NATO’s Article 4. What Would That Do?**\
+`The clause in NATO’s founding treaty is an “instrument” Romania can use, the foreign minister said after a drone, alleged to be Russian, wounded two civilians.`\
+https://www.nytimes.com/2026/05/29/world/europe/nato-article-4-romania-russia.html
+
 **The $900 Billion Giant: How Anthropic Got So Big, So Fast**\
 `The artificial intelligence giant was just valued at $900 billion, surpassing OpenAI. Here are the numbers behind its rise — and headwinds it faces.`\
 https://www.nytimes.com/2026/05/29/business/dealbook/anthropic-ai-openai.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/29/realestate/wallpaper-art-without-the-work.htm
 **America Has a Masculinity Crisis**\
 `A much-needed, nuanced conversation about masculinity and feminism today.`\
 https://www.nytimes.com/2026/05/29/opinion/young-men-masculinity-crisis.html
-
-**How NextEra Energy Wielded Political Power in Florida**\
-`NextEra, which is seeking to buy Dominion Energy, has often butted heads with consumer groups, residents and journalists in its home state.`\
-https://www.nytimes.com/2026/05/29/business/energy-environment/nextera-energy-florida-politics-dominion.html
 
