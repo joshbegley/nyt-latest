@@ -1,3 +1,15 @@
+**British Museum Postpones Jewish Cultural Event, Citing Threat of Disruption**\
+`The cancellation comes amid a rise in racial and religious crimes in Britain as well as growing sense of unease for some of London’s Jews.`\
+https://www.nytimes.com/2026/05/29/world/europe/london-british-museum-antisemitsm.html
+
+**Loud Boom Sends Animals Running at Rescue Shelter in S.C.**\
+`At about 5:30 p.m. on Thursday, a loud noise rattled parts of South Carolina, sending animals running at Frisky Business Rescue.`\
+https://www.nytimes.com/video/us/100000010933136/south-carolina-boom-animals.html
+
+**Vietnam’s Leader Warns Asia About the Risks of Superpower Conflict**\
+`In a speech to military leaders from the region, To Lam said that distrust and a lack of respect for established rules had created a culture of “the big fish swallowing the small fish.”`\
+https://www.nytimes.com/2026/05/29/world/asia/vietnam-to-lam-shangri-la-dialogue.html
+
 **What Exactly Caused That Loud Boom in South Carolina?**\
 `A huge noise rattled part of the state on Thursday. Multiple theories have been put forward, but the mystery remains.`\
 https://www.nytimes.com/2026/05/29/us/south-carolina-sonic-boom.html
@@ -53,10 +65,6 @@ https://www.nytimes.com/2026/05/29/us/ice-agent-arrested-minnesota-shooting-immi
 **Who Is Ahead in Virginia's 6th Congressional District?**\
 `Track the latest polls in Virginia's 6th Congressional District.`\
 https://www.nytimes.com/interactive/polls/virginia-us-house-6-polls-2026.html
-
-**British Museum Postpones Jewish Cultural Event, Citing Threat of Disruption**\
-`The cancellation comes amid a rise in racial and religious crimes in Britain as well as growing sense of unease for some of London’s Jews.`\
-https://www.nytimes.com/2026/05/29/world/europe/london-british-museum-antisemitsm.html
 
 **Today, In Short**\
 `Olivia Rodrigo. Everlane. And more from Harvard.`\
@@ -189,8 +197,4 @@ https://www.nytimes.com/2026/05/29/podcasts/29hardfork-waymo-interesting-times.h
 **Pool Problems**\
 `What’s happening with the paint on the National Mall?`\
 https://www.nytimes.com/2026/05/29/briefing/pool-problems.html
-
-**What to Know About the Drones That Have Been Crossing Into Romania**\
-`The strike on Friday, near the Ukrainian border, was the first to injure civilians in Romania, officials say. But drones from the nearby war have been a growing threat.`\
-https://www.nytimes.com/2026/05/29/world/europe/romania-drone-strike-what-to-know.html
 
