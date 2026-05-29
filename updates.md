@@ -1,3 +1,7 @@
+**Scripps Spelling Bee Live Updates: 3 Spellers Remain in the Quest for Word Domination**\
+`A devastating round ousted four contestants in quick succession, while two others were eliminated by “Quincke tube” and “cara sposa.”`\
+https://www.nytimes.com/live/2026/05/28/us/scripps-spelling-bee
+
 **In Carroll Lawsuits Inquiry, Scrutiny Turns Toward Private Citizens Who Antagonized Trump**\
 `The Justice Department is said to be examining the funding of lawsuits brought by E. Jean Carroll, an author who has never sought a public role, political power or governmental authority.`\
 https://www.nytimes.com/2026/05/28/us/politics/justice-department-carroll-hoffman-lawsuit-trump.html

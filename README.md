@@ -1,3 +1,7 @@
+**‘Hacks’ Leaves Them Laughing**\
+`In an interview, Jean Smart and Hannah Einbinder discuss the series finale, their offscreen relationship and why comedy is just like sex.`\
+https://www.nytimes.com/2026/05/28/arts/television/hacks-ends-jean-smart-hannah-einbinder.html
+
 **In Carroll Lawsuits Inquiry, Scrutiny Turns Toward Private Citizens Who Antagonized Trump**\
 `The Justice Department is said to be examining the funding of lawsuits brought by E. Jean Carroll, an author who has never sought a public role, political power or governmental authority.`\
 https://www.nytimes.com/2026/05/28/us/politics/justice-department-carroll-hoffman-lawsuit-trump.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/interactive/2026/05/28/books/poem-wisdom-wendy-cope.html
 **Quarantine Unit for Americans Exposed to Ebola to Open in Kenya Friday**\
 `But U.S. officials are still working to find centers in Europe to accept Americans who need advanced treatment, seen as critical to improving odds of survival.`\
 https://www.nytimes.com/2026/05/28/us/quarantine-americans-ebola-kenya.html
-
-**Europe’s Heat Wave Has the ‘Fingerprints of Climate Change All Over It’**\
-`An unusually early heat wave in Europe, new technology to save whales and more climate news.`\
-https://www.nytimes.com/2026/05/28/climate/europe-heat-wave-climate-change.html
 
