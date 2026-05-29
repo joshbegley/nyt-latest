@@ -1,3 +1,7 @@
+**Pool Problems**\
+`What’s happening with the paint on the National Mall?`\
+https://www.nytimes.com/2026/05/29/briefing/pool-problems.html
+
 **Were Romanian Casualties From a Russian Drone Strike Inevitable?**\
 `The strike on Friday, near the Ukrainian border, was the first to injure civilians in Romania, officials say. But drones from the nearby war have been a growing threat.`\
 https://www.nytimes.com/2026/05/29/world/europe/romania-drone-strike-what-to-know.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/29/travel/how-to-travel-if-you-have-panic-attack
 **Book Review: ‘Found Sound,’ by Meg Wolitzer and Charlie Panek, and ‘Stream,’ by Aida Salazar**\
 `Meg Wolitzer and Charlie Panek’s “Found Sound” and Aida Salazar’s “Stream” send their protagonists on a listening (and healing) tour of real life.`\
 https://www.nytimes.com/2026/05/29/books/review/meg-wolitzer-charlie-panek-found-sound-aida-salazar-stream.html
-
-**Fiber-Rich Dates Are the Latest ‘It Girl’ of the Snack Aisle**\
-`Grocery stores aisles are bursting with stuffed, sugared, blended, rolled and coated dates as a new wave of snack brands glorify the wrinkly fruit.`\
-https://www.nytimes.com/2026/05/29/dining/fiber-rich-dates-snacks.html
 
