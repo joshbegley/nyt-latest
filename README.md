@@ -1,3 +1,7 @@
+**Hungary Showed How to Defeat an Autocrat**\
+`Hungary did it. The United States can, too.`\
+https://www.nytimes.com/2026/05/29/opinion/hungary-win-election-viktor-orban.html
+
 **8 Are Rescued From Texas Roller Coaster Stuck Almost 100 Feet Off the Ground**\
 `The riders waited for about four hours, facing up, on the roller coaster at the Pleasure Pier park in Galveston. There were no injuries, the authorities said.`\
 https://www.nytimes.com/2026/05/29/us/galveston-texas-iron-shark-rollercoaster-stuck.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/live/2026/05/28/us/scripps-spelling-bee
 **Here’s the latest.**\
 `(No description)`\
 https://www.nytimes.com/2026/05/28/us/heres-the-latest.html
-
-**A Democrat’s Dodge on AIPAC Points to the Party’s Tensions Over Israel**\
-`A key moment at a Senate primary debate in Michigan showed how pro-Israel Democrats are approaching the issue with caution.`\
-https://www.nytimes.com/2026/05/28/us/politics/el-sayed-stevens-mcmorrow-democrats-senate-israel.html
 
