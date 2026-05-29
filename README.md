@@ -1,3 +1,7 @@
+**As the SpaceX Hype Machine Steamrolls Ahead, Wall Street Jumps Aboard**\
+`Elon Musk and his bankers are working to create a self-fulfilling prophesy for SpaceX’s massive initial public offering: Make investors feel that the risks of passing up the stock outweigh those of buying into it.`\
+https://www.nytimes.com/2026/05/29/business/spacex-ipo-wall-street.html
+
 **How Bad Are President Trump’s Approval Ratings?**\
 `Our chief political analyst, Nate Cohn, looks at President Trump’s sinking approval ratings. How do they compare with polling from other recent presidencies?`\
 https://www.nytimes.com/video/us/politics/100000010916352/how-bad-are-president-trumps-approval-ratings.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/es/2026/05/29/espanol/estilos-de-vida/generacion-z-cance
 **Olivia Rodrigo Discusses the Inspiration Behind Her New Album**\
 `The punk-leaning pop star tapped the vibrancy of 1980s new wave and the sentiment of “Sex and the City” on her new album “You Seem Pretty Sad For a Girl So in Love.”`\
 https://www.nytimes.com/2026/05/29/arts/music/olivia-rodrigo-new-album-interview-popcast.html
-
-**Trump juega con el mapa. El mundo ya pagó ese precio**\
-`Cuando los países poderosos tratan algunos territorios como un botín y consideran la soberanía como algo provisional, el orden mundial no se reforma, se destruye.`\
-https://www.nytimes.com/es/2026/05/29/espanol/opinion/trump-fronteras-paises.html
 
