@@ -1,3 +1,7 @@
+**Is the U.S. Prepared for a Major War?**\
+`America has fired “something like eight years’ worth of Tomahawk missile production” in Iran, Christian Brose, the chief strategy officer of Anduril Industries, says on “Interesting Times,” where he and the Opinion columnist Ross Douthat discuss the limitations of America’s arsenal of “luxury” weapons.`\
+https://www.nytimes.com/video/opinion/100000010921317/is-the-us-prepared-for-a-major-war.html
+
 **After New Push by the Bolsonaros, U.S. Labels Brazilian Gangs as Terrorist Groups**\
 `Following through on threats, the Trump administration has designated Brazil’s two largest drug gangs as terrorist groups.`\
 https://www.nytimes.com/2026/05/28/world/americas/brazil-gangs-terrorist-bolsonaro-trump.html
