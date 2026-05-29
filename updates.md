@@ -1,3 +1,15 @@
+**The Confusion Around Modern Masculinity**\
+`In the wake of #MeToo, changing workplace norms left many men unsure of how to behave. But was that confusion genuine — or just an excuse? On “The Opinions,” Frederick Joseph argues that many men became “childlike during that time.”`\
+https://www.nytimes.com/video/opinion/100000010918071/the-confusion-around-modern-masculinity.html
+
+**Strict Monitoring Could Delay Homecoming of Hantavirus Ship Passengers**\
+`Trump administration officials want local health authorities to constantly monitor the 18 passengers for another three weeks, a requirement that far exceeds typical protocols.`\
+https://www.nytimes.com/2026/05/29/us/hantavirus-ship-quarantine.html
+
+**What This Pixar Film Gets Wrong About Boys**\
+`Films like “Inside Out” raise questions about how we portray boys’ emotional lives. “It just felt like every time that a male character appeared onscreen in that movie, they were an emotional idiot,” Ruth Whippman says on “The Opinions.”`\
+https://www.nytimes.com/video/opinion/100000010933482/what-this-pixar-film-gets-wrong-about-boys.html
+
 **Claude Bessy, Who Ruled Paris Opera Ballet School, Dies at 93**\
 `A tall, commanding ballerina, she led one of the world’s top dance institutions for decades, though her rigorous methods eventually drew criticism.`\
 https://www.nytimes.com/2026/05/29/arts/dance/claude-bessy-dead.html
