@@ -1,3 +1,7 @@
+**The $900 Billion Giant: How Anthropic Got So Big, So Fast**\
+`The artificial intelligence giant was just valued at $900 billion, surpassing OpenAI. Here are the numbers behind its rise — and headwinds it faces.`\
+https://www.nytimes.com/2026/05/29/business/dealbook/anthropic-ai-openai.html
+
 **America Has a Masculinity Crisis**\
 `A much-needed, nuanced conversation about masculinity and feminism today.`\
 https://www.nytimes.com/2026/05/29/opinion/young-men-masculinity-crisis.html
