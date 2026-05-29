@@ -1,3 +1,7 @@
+**Iran War Live Updates: Uncertainty Hangs Over Talks as U.S. Says It Is Close to Agreement**\
+`An emerging “memorandum of understanding,” which could lead to the reopening of the Strait of Hormuz, still needs approval from President Trump, and Iran has not confirmed any commitments.`\
+https://www.nytimes.com/live/2026/05/29/world/iran-war-us-trump-deal
+
 **Share & Eat the Rich & Tell with Tim Miller and Stephanie Ruhle**\
 `Regulating the billionaire class — with a little help from Pope Leo XIV.`\
 https://www.nytimes.com/2026/05/29/podcasts/share-eat-the-rich-tell-with-tim-miller-and-stephanie-ruhle.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/opinion/100000010918066/in-a-world-that-enabled-ep
 **Markets Wary as U.S. and Iran Edge Closer to Agreement**\
 `Oil prices and stock markets fluctuated as investors assessed tentative signs of a pact to extend a cease-fire.`\
 https://www.nytimes.com/2026/05/29/business/oil-gas-stocks-iran.html
-
-**How Japan Lost 3 Million People in Five Years**\
-`Japan’s population fell by more than 3 million over the past five years, a record drop that underscores the depths of the country’s accelerating demographic crisis.`\
-https://www.nytimes.com/interactive/2026/05/29/world/asia/japan-census-population-decline.html
 
