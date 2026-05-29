@@ -1,3 +1,7 @@
+**Who Is Ahead in Washington's 3rd Congressional District?**\
+`Track the latest polls in Washington's 3rd Congressional District.`\
+https://www.nytimes.com/interactive/polls/washington-us-house-3-polls-2026.html
+
 **Inside the Room Where War Insurance Is Bought and Sold**\
 `Many of the ships stranded in the Persian Gulf depend on coverage negotiated at Lloyd’s, the center of marine insurance for more than 300 years.`\
 https://www.nytimes.com/2026/05/29/business/strait-hormuz-shipping-insurance-iran.html
@@ -106,8 +110,8 @@ https://www.nytimes.com/2026/05/29/crosswords/strands-sidekick-818.html
 `Scroll down for hints and conversation about the puzzle for Saturday, May 30, 2026.`\
 https://www.nytimes.com/2026/05/29/crosswords/wordle-review-1806.html
 
-**Iran War Live Updates: Uncertainty Hangs Over Talks as U.S. Says It Is Close to Agreement**\
-`An emerging “memorandum of understanding” could lead to the reopening of the Strait of Hormuz. But it still needs approval from President Trump, and Iran has not confirmed any commitments.`\
+**Iran War Live Updates: Uncertainty Hangs Over Talks as Sticking Points Remain**\
+`U.S. officials said the sides were discussing a “memorandum of understanding” that could lead to the reopening of the Strait of Hormuz, but it still needs President Trump’s sign-off. Iran has not confirmed any commitments.`\
 https://www.nytimes.com/live/2026/05/29/world/iran-war-us-trump-deal
 
 **Share & Eat the Rich & Tell with Tim Miller and Stephanie Ruhle**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/05/29/us/doris-matsui-mai-vang-congress.html
 **9 New Movies Our Critics Are Talking About This Week**\
 `Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
 https://www.nytimes.com/2026/05/29/movies/new-movie-releases.html
-
-**$1.3 Million Homes in Sweden**\
-`A 10-bedroom manor from 1806, a 25-acre farm estate near the Baltic Sea, and a five-bedroom modern farmhouse.`\
-https://www.nytimes.com/2026/05/29/realestate/1-3-million-homes-in-sweden.html
 

@@ -1,3 +1,11 @@
+**Who Is Ahead in Washington's 3rd Congressional District?**\
+`Track the latest polls in Washington's 3rd Congressional District.`\
+https://www.nytimes.com/interactive/polls/washington-us-house-3-polls-2026.html
+
+**Iran War Live Updates: Uncertainty Hangs Over Talks as Sticking Points Remain**\
+`U.S. officials said the sides were discussing a “memorandum of understanding” that could lead to the reopening of the Strait of Hormuz, but it still needs President Trump’s sign-off. Iran has not confirmed any commitments.`\
+https://www.nytimes.com/live/2026/05/29/world/iran-war-us-trump-deal
+
 **Inside the Room Where War Insurance Is Bought and Sold**\
 `Many of the ships stranded in the Persian Gulf depend on coverage negotiated at Lloyd’s, the center of marine insurance for more than 300 years.`\
 https://www.nytimes.com/2026/05/29/business/strait-hormuz-shipping-insurance-iran.html
