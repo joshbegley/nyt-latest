@@ -1,3 +1,11 @@
+**Families Settle Suit Over Deaths in Baltimore Bridge Collapse**\
+`The owner and the operator of the cargo ship that crashed into the Key Bridge settled cases brought by several victims’ families, but other claims are headed to trial.`\
+https://www.nytimes.com/2026/05/28/us/baltimore-key-bridge-lawsuit-settlements.html
+
+**In Massive Explosion, a Blue Origin Rocket Blows Up on the Launchpad**\
+`The rocket, built by Jeff Bezos’ space company, was to carry 48 satellites for Amazon’s Leo internet constellation, a competitor to SpaceX’s Starlink network.`\
+https://www.nytimes.com/2026/05/28/science/blue-origin-explosion-rocket.html
+
 **NYT Crossword Answers for May 29, 2026**\
 `Hemant Mehta opens our solving weekend.`\
 https://www.nytimes.com/2026/05/28/crosswords/daily-puzzle-2026-05-29.html
@@ -177,12 +185,4 @@ https://www.nytimes.com/2026/05/28/arts/music/freedom-concerts-young-mc-milli-va
 **Scooter Rider and Cyclist Are Killed in Head-On Crash on N.Y.C. Bridge**\
 `The collision on the Queensboro Bridge involved an e-scooter that is not legally allowed to be used on the streets of New York.`\
 https://www.nytimes.com/2026/05/28/nyregion/queensboro-bridge-nyc-bike-scooter-crash-deaths.html
-
-**Where Do E. Jean Carroll’s Lawsuits Against President Trump Stand?**\
-`Two monetary judgments against Mr. Trump are winding their way through the legal system, with the Supreme Court likely to be the final word on both.`\
-https://www.nytimes.com/2026/05/28/us/politics/e-jean-carroll-trump-lawsuits.html
-
-**The Dream of a $50 Dinner Is Still Alive at These Restaurants**\
-`Drinks, two entrees and an appetizer or dessert don’t have to break the bank.`\
-https://www.nytimes.com/2026/05/28/dining/the-dream-of-a-50-dinner-is-still-alive-at-these-restaurants.html
 
