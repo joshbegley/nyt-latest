@@ -1,3 +1,7 @@
+**What Exactly Caused That Loud Boom in South Carolina?**\
+`A huge noise rattled part of the state on Thursday. Multiple theories have been put forward, but the mystery remains.`\
+https://www.nytimes.com/2026/05/29/us/south-carolina-sonic-boom.html
+
 **Why ‘What Are You Wearing?’ Videos Are Everywhere**\
 `Plus an Everlane founder’s next venture, a streetwear tux and yet another toe-baring shoe.`\
 https://www.nytimes.com/2026/05/29/style/fit-check-videos.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/05/29/briefing/pool-problems.html
 **What to Know About the Drones That Have Been Crossing Into Romania**\
 `The strike on Friday, near the Ukrainian border, was the first to injure civilians in Romania, officials say. But drones from the nearby war have been a growing threat.`\
 https://www.nytimes.com/2026/05/29/world/europe/romania-drone-strike-what-to-know.html
-
-**Stranded in the Strait of Hormuz**\
-`We hear from two of the thousands of seafarers who became stuck in the middle of the war.`\
-https://www.nytimes.com/2026/05/29/podcasts/the-daily/iran-strait-of-hormuz-ships.html
 

@@ -1,3 +1,7 @@
+**What Exactly Caused That Loud Boom in South Carolina?**\
+`A huge noise rattled part of the state on Thursday. Multiple theories have been put forward, but the mystery remains.`\
+https://www.nytimes.com/2026/05/29/us/south-carolina-sonic-boom.html
+
 **Why ‘What Are You Wearing?’ Videos Are Everywhere**\
 `Plus an Everlane founder’s next venture, a streetwear tux and yet another toe-baring shoe.`\
 https://www.nytimes.com/2026/05/29/style/fit-check-videos.html
