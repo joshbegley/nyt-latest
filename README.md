@@ -1,3 +1,7 @@
+**Blue Origin Rocket Explodes on Florida Launchpad**\
+`A rocket built by the Jeff Bezos-owned space company, Blue Origin, blew up during a test at the Cape Canaveral Space Force Station in Florida.`\
+https://www.nytimes.com/video/science/space/100000010932440/blue-origin-rocket-explosion-florida.html
+
 **These Parents Wanted Their Children’s Park Back. They Finally Got It.**\
 `George Washington Bridge Park, also known as Dolphin Park, had been closed for nearly a decade, but residents in Manhattan pushed relentlessly for its reopening.`\
 https://www.nytimes.com/2026/05/29/nyregion/dolphin-park-reopens-washington-heights.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/podcasts/100000010931291/how-olivia-rodrigos-love-
 **Totó la Momposina, estrella colombiana de la música folclórica, muere a los 85 años**\
 `Timbaland, Jay-Z y Major Lazer samplearon su trabajo y recibió el premio Grammy a la excelencia musical en 2013.`\
 https://www.nytimes.com/es/2026/05/28/espanol/cultura/toto-la-momposina-murio.html
-
-**ABC Accuses Trump Administration of Threatening Its Broadcast Licenses**\
-`The TV network slammed the Federal Communications Commission, saying the regulator was targeting its station licenses in a campaign of “unconstitutional retaliation.”`\
-https://www.nytimes.com/2026/05/28/business/media/abc-licenses-fcc-brendan-carr.html
 
 **Shrey Parikh Triumphs After Tense Spell-Off**\
 `The 14-year-old from California spelled a record 32 words correctly in 90 seconds to prevail in the Scripps National Spelling Bee, clinching the victory with the winning word “bromocriptine.”`\
