@@ -1,3 +1,11 @@
+**Death Toll Rises in Washington Paper Mill Explosion**\
+`At least eight are now confirmed dead, and firefighters believe there are three more bodies they have yet to reach, making the crisis the worst industrial disaster in the state’s modern history.`\
+https://www.nytimes.com/2026/05/28/us/longview-washington-paper-mill-death-toll.html
+
+**Italian Police Uncover Dead Mob Boss’s $230 Million Business Empire**\
+`When Matteo Messina Denaro died in 2023, many of his secrets died with him. That began to change with a tip about a wealthy Sicilian woman’s significant assets in a tiny European principality.`\
+https://www.nytimes.com/2026/05/28/world/europe/messina-denaro-mafia-assets.html
+
 **Italian Police Uncover Dead Mob Boss’ $230 Million Business Empire**\
 `When Matteo Messina Denaro died in 2023, many of his secrets died with him. That began to change with a tip about a wealthy Sicilian woman’s significant assets in a tiny European principality.`\
 https://www.nytimes.com/2026/05/28/world/europe/messina-denaro-mafia-assets.html
