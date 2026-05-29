@@ -1,3 +1,15 @@
+**Italian Police Uncover Dead Mob Boss’ $230 Million Business Empire**\
+`When Matteo Messina Denaro died in 2023, many of his secrets died with him. That began to change with a tip about a wealthy Sicilian woman’s significant assets in a tiny European principality.`\
+https://www.nytimes.com/2026/05/28/world/europe/messina-denaro-mafia-assets.html
+
+**Curating in the Cross Hairs: Is This the Smithsonian Chief’s Last Show?**\
+`Lonnie G. Bunch III, the Smithsonian secretary under pressure from the White House, organized an exhibit exploring America’s founding ideals.`\
+https://www.nytimes.com/2026/05/28/arts/design/lonnie-bunch-smithsonian-american-aspirations.html
+
+**Scripps Spelling Bee Live Updates: Students Battle for Word Domination**\
+`The nine spellers competing against one another — and the dictionary — have taken the stage, and the finals are underway.`\
+https://www.nytimes.com/live/2026/05/28/us/scripps-spelling-bee
+
 **Young MC and Morris Day Pull Out of Freedom 250 Concerts**\
 `Young MC, Morris Day and the Commodores said they would not perform at the series on the National Mall that is part of the summer celebration of America’s founding.`\
 https://www.nytimes.com/2026/05/28/arts/music/freedom-concerts-young-mc-milli-vanilli.html
