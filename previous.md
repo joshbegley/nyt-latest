@@ -1,3 +1,7 @@
+**Los hombres jóvenes que pueden influir en las elecciones intermedias de EE. UU.**\
+`Muchos hombres de la generación Z que votaron por Donald Trump están consternados por su mandato. Pero dicen que tampoco escuchan un discurso atractivo de los demócratas.`\
+https://www.nytimes.com/es/2026/05/29/espanol/estados-unidos/trump-elecciones-intermedias-aprobacion-jovenes.html
+
 **Blue Origin Rocket Explodes on Florida Launchpad**\
 `A rocket built by the Jeff Bezos-owned space company, Blue Origin, blew up during a test at the Cape Canaveral Space Force Station in Florida.`\
 https://www.nytimes.com/video/science/space/100000010932440/blue-origin-rocket-explosion-florida.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000010931291/how-olivia-rodrigos-love-
 **Totó la Momposina, estrella colombiana de la música folclórica, muere a los 85 años**\
 `Timbaland, Jay-Z y Major Lazer samplearon su trabajo y recibió el premio Grammy a la excelencia musical en 2013.`\
 https://www.nytimes.com/es/2026/05/28/espanol/cultura/toto-la-momposina-murio.html
-
-**Shrey Parikh Triumphs After Tense Spell-Off**\
-`The 14-year-old from California spelled a record 32 words correctly in 90 seconds to prevail in the Scripps National Spelling Bee, clinching the victory with the winning word “bromocriptine.”`\
-https://www.nytimes.com/live/2026/05/28/us/scripps-spelling-bee
 

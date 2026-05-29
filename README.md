@@ -1,3 +1,11 @@
+**How Japan Lost 3 Million People in Five Years**\
+`Japan’s population fell by more than 3 million over the past five years, a record drop that underscores the depths of the country’s accelerating demographic crisis.`\
+https://www.nytimes.com/interactive/2026/05/29/world/asia/japan-census-population-decline.html
+
+**Shrey Parikh Wins Scripps National Spelling Bee After Tense Spell-Off**\
+`Shrey Parikh, a 14-year-old from California, claimed the 2026 Scripps National Spelling Bee title on Thursday in a dramatic spell-off that tested his speed and precision.`\
+https://www.nytimes.com/video/us/100000010932226/spelling-bee-shrey-parikh.html
+
 **Los hombres jóvenes que pueden influir en las elecciones intermedias de EE. UU.**\
 `Muchos hombres de la generación Z que votaron por Donald Trump están consternados por su mandato. Pero dicen que tampoco escuchan un discurso atractivo de los demócratas.`\
 https://www.nytimes.com/es/2026/05/29/espanol/estados-unidos/trump-elecciones-intermedias-aprobacion-jovenes.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/podcasts/100000010931924/does-a-taco-truck-belong-
 **How ‘New Yorkiness’ Shaped List of the Best N.Y.C. Restaurants**\
 `Wesley Morris and Ligaya Mishan, The Times’s co-chief restaurant critic, discuss what makes Mama Lee, one the 2026 best restaurants in New York City, idiosyncratic and “scrappy.”`\
 https://www.nytimes.com/video/podcasts/100000010926515/how-new-yorkiness-shaped-list-of-the-best-nyc-restaurants.html
-
-**How Olivia Rodrigo’s Love Songs Became a Breakup Album**\
-`The punk-leaning pop star spoke to Popcast about tapping the vibrancy of 1980s new wave and the sentiment of “Sex and the City” on her new album “You Seem Pretty Sad For a Girl So in Love.”`\
-https://www.nytimes.com/video/podcasts/100000010931291/how-olivia-rodrigos-love-songs-became-a-breakup-album.html
-
-**Totó la Momposina, estrella colombiana de la música folclórica, muere a los 85 años**\
-`Timbaland, Jay-Z y Major Lazer samplearon su trabajo y recibió el premio Grammy a la excelencia musical en 2013.`\
-https://www.nytimes.com/es/2026/05/28/espanol/cultura/toto-la-momposina-murio.html
 

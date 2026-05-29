@@ -1,3 +1,7 @@
+**Los hombres jóvenes que pueden influir en las elecciones intermedias de EE. UU.**\
+`Muchos hombres de la generación Z que votaron por Donald Trump están consternados por su mandato. Pero dicen que tampoco escuchan un discurso atractivo de los demócratas.`\
+https://www.nytimes.com/es/2026/05/29/espanol/estados-unidos/trump-elecciones-intermedias-aprobacion-jovenes.html
+
 **Russian Drone Hits Romanian Apartment Building, Officials Say**\
 `NATO condemned “Russia’s recklessness” and confirmed that it was in touch with the Romanian authorities.`\
 https://www.nytimes.com/2026/05/29/world/europe/romania-drone-russia-ukraine.html
