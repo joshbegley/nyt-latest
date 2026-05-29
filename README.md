@@ -1,3 +1,15 @@
+**Hooters se reinventa como restaurante familiar**\
+`La cadena conocida por sus pequeños uniformes y sus “noches en bikini” intenta cambiar su imagen. ¿Alguien quiere un pañalero de Hooters?`\
+https://www.nytimes.com/es/2026/05/29/espanol/estilos-de-vida/hooters-familias-ninos.html
+
+**Palabra del día en inglés: ‘diatribe’**\
+`Esta palabra ha aparecido en 31 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/05/29/espanol/que-significa-diatribe.html
+
+**Word of the Day: diatribe**\
+`This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/05/29/learning/word-of-the-day-diatribe.html
+
 **Hungary Showed How to Defeat an Autocrat**\
 `Hungary did it. The United States can, too.`\
 https://www.nytimes.com/2026/05/29/opinion/hungary-win-election-viktor-orban.html
@@ -178,15 +190,7 @@ https://www.nytimes.com/2026/05/28/world/middleeast/iran-us-agreement-plan.html
 `During a press conference at the White House on Thursday, Treasury Secretary Scott Bessent displayed a mocked-up $250 bill bearing President Trump’s likeness.`\
 https://www.nytimes.com/video/us/politics/100000010931638/bessent-treasury-trump-250-bill.html
 
-**Fire Erupts in Dallas Apartment Building**\
-`Video captured flames engulfing an apartment building in Dallas on Thursday.`\
-https://www.nytimes.com/video/us/100000010931758/fire-dallas-apartment-building.html
-
 **Shrey Parikh Triumphs After Tense Spell-Off**\
 `The 14-year-old from California spelled a record 32 words correctly in 90 seconds to prevail in the Scripps National Spelling Bee, clinching the victory with the winning word “bromocriptine.”`\
 https://www.nytimes.com/live/2026/05/28/us/scripps-spelling-bee
-
-**Here’s the latest.**\
-`(No description)`\
-https://www.nytimes.com/2026/05/28/us/heres-the-latest.html
 
