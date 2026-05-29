@@ -1,3 +1,11 @@
+**After Traffic Stop for Phone in Right Hand, She Called Out the Problem**\
+`The deputy insisted he saw a driver with a phone in her right hand. That turned out to be impossible, and the case was dropped.`\
+https://www.nytimes.com/2026/05/28/us/a-deputy-saw-a-phone-in-a-hand-that-was-not-there.html
+
+**Scripps Spelling Bee Live Updates: Students Battle for Word Domination**\
+`The night’s third round claimed four contestants, eliminating them with words like “catometope,” “vaesite” and “oconee bells.”`\
+https://www.nytimes.com/live/2026/05/28/us/scripps-spelling-bee
+
 **Scripps Spelling Bee Live Updates: Students Battle for Word Domination**\
 `Six contestants remained after “catometope,” “Faesulae” and “vaesite” eliminated three students in near succession.`\
 https://www.nytimes.com/live/2026/05/28/us/scripps-spelling-bee
