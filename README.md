@@ -1,3 +1,7 @@
+**Journalist Favored by Trump Is in Talks to Join White House in Temporary Role**\
+`John Solomon said he was being vetted for a role as a “special government employee,” a status given to part-time, outside advisers to the federal government.`\
+https://www.nytimes.com/2026/05/29/us/politics/john-solomon-trump-white-house.html
+
 **Sugar Cookie Bars**\
 `These sugar cookie bars, which are adapted from “American Girl Cookies,” are happiness in a 9-by-13 pan according to Margaux Laskey, a recipes editor for NYT Cooking. The addition of cream cheese in the batter makes them very tender and slightly tangy, a perfect counterpoint to the sweet buttercream frosting.`\
 https://www.nytimes.com/video/dining/100000010933539/sugar-cookie-bars.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/29/business/spacex-ipo-wall-street.html
 **How Bad Are President Trump’s Approval Ratings?**\
 `Our chief political analyst, Nate Cohn, looks at President Trump’s sinking approval ratings. How do they compare with polling from other recent presidencies?`\
 https://www.nytimes.com/video/us/politics/100000010916352/how-bad-are-president-trumps-approval-ratings.html
-
-**Sky-High I.P.O. Pricing Isn’t Great for Real People**\
-`When newly public companies have been valued as richly as SpaceX, OpenAI and Anthropic seem likely to be, the outlook for ordinary investors has been poor.`\
-https://www.nytimes.com/2026/05/29/business/spacex-openai-anthropic-ipo-invest.html
 
