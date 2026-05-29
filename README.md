@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/05/29/us/politics/trump-irs-lawsuit-ruling.html
 `Democrats hope so, but there are good reasons to be skeptical.`\
 https://www.nytimes.com/2026/05/29/us/politics/talarico-cornyn-texas-voters.html
 
-**Skin Care Brand’s Free Bus Connecting Domino and Prospect Parks Stops Running**\
+**Free Bus From Skin Care Brand the Ordinary Connecting Domino and Prospect Parks Stops Running**\
 `A two-week marketing stunt by the Ordinary appeared to stop abruptly on Friday, stranding riders.`\
 https://www.nytimes.com/2026/05/29/style/ordinary-bus-route-brooklyn-stop-running.html
 

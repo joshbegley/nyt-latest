@@ -1,3 +1,7 @@
+**What We Know — and Don’t — About the E. Jean Carroll Lawsuits Inquiry**\
+`Prosecutors would face substantial hurdles in potentially pursuing charges against Ms. Carroll, who twice won cases against Donald Trump, or the billionaire who helped pay her lawyers.`\
+https://www.nytimes.com/2026/05/29/us/politics/carroll-hoffman-legal-explainer.html
+
 **Judge Reopens Trump’s Lawsuit Demanding $10 Billion From IRS**\
 `The ruling was a blow to both President Trump, who had voluntarily dismissed the suit last week, and to the Justice Department, which used the suit to establish a fund likely intended for Trump allies.`\
 https://www.nytimes.com/2026/05/29/us/politics/trump-irs-lawsuit-ruling.html
