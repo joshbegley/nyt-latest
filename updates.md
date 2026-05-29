@@ -1,3 +1,11 @@
+**Pool Problems**\
+`What’s happening with the paint on the National Mall?`\
+https://www.nytimes.com/2026/05/29/briefing/pool-problems.html
+
+**Were Romanian Casualties From a Russian Drone Strike Inevitable?**\
+`The strike on Friday, near the Ukrainian border, was the first to injure civilians in Romania, officials say. But drones from the nearby war have been a growing threat.`\
+https://www.nytimes.com/2026/05/29/world/europe/romania-drone-strike-what-to-know.html
+
 **Train Fire at Penn Station Injures 5 and Disrupts Rail Service**\
 `A fire on a maintenance train affected Friday morning service on NJ Transit, Amtrak and the L.I.R.R. Two people were hospitalized with serious injuries.`\
 https://www.nytimes.com/2026/05/29/nyregion/penn-station-fire-amtrak-nyc-nj-transit.html

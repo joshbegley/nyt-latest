@@ -1,3 +1,19 @@
+**‘The Headlines’ News Quiz: May 29, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/05/29/podcasts/the-headlines/the-headlines-news-quiz-may-29-2026.html
+
+**Uber to Offer Shuttles for Fans Leaving World Cup Matches**\
+`Soccer lovers frustrated by public transportation will have another option to return to Boston, Dallas, Miami and New York from hard-to-reach stadiums.`\
+https://www.nytimes.com/2026/05/29/travel/uber-soccer-world-cup-shuttles.html
+
+**Providence Isn’t an Official World Cup Host but It Sure Is Acting Like One**\
+`A stadium outside Boston that will host seven World Cup games is actually closer to Providence, R.I., prompting officials there to capitalize on that proximity to lure fans.`\
+https://www.nytimes.com/2026/05/29/us/boston-providence-world-cup.html
+
+**Interesting Times: Why Are We Still Driving?**\
+`Confronting the weirdness of a Waymo future.`\
+https://www.nytimes.com/2026/05/29/podcasts/29hardfork-waymo-interesting-times.html
+
 **Pool Problems**\
 `What’s happening with the paint on the National Mall?`\
 https://www.nytimes.com/2026/05/29/briefing/pool-problems.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/05/29/arts/dance/olivia-book-ballet-west-limb-diffe
 **This Is How to Stop Trump’s Vindictive Prosecutions**\
 `We need a law that raises the legal standard for bringing federal criminal charges.`\
 https://www.nytimes.com/2026/05/29/opinion/carroll-comey-trump-blanche.html
-
-**Book Review: ‘View From the East Wing,’ by Jill Biden**\
-`Beyond a few pointed digs at her husband’s successor, “View From the East Wing” largely sticks to the head-spinning details of first lady-hood.`\
-https://www.nytimes.com/2026/05/29/books/review/jill-biden-memoir-view-from-the-east-wing.html
-
-**Why Hasn’t California Elected a Woman Governor?**\
-`Most states have had a woman serve as governor, but California is in the minority despite its progressive-minded electorate. Women who have reached the top elsewhere saw familiar roadblocks.`\
-https://www.nytimes.com/2026/05/29/us/california-governor-woman.html
-
-**How to Travel if You Have Panic Attacks**\
-`You don’t have to let severe anxiety keep you from exploring the world. Here’s how to manage your panic on vacation.`\
-https://www.nytimes.com/2026/05/29/travel/how-to-travel-if-you-have-panic-attacks.html
-
-**Book Review: ‘Found Sound,’ by Meg Wolitzer and Charlie Panek, and ‘Stream,’ by Aida Salazar**\
-`Meg Wolitzer and Charlie Panek’s “Found Sound” and Aida Salazar’s “Stream” send their protagonists on a listening (and healing) tour of real life.`\
-https://www.nytimes.com/2026/05/29/books/review/meg-wolitzer-charlie-panek-found-sound-aida-salazar-stream.html
 
