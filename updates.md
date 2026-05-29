@@ -1,3 +1,7 @@
+**U.N. Adds Israeli and Russian Forces to Sexual Violence List**\
+`Israel has denied the accusations and condemned the report, which listed dozens of countries and nonstate groups as “credibly suspected” of patterns of rape and sexual violence.`\
+https://www.nytimes.com/2026/05/29/world/middleeast/israel-russia-un-sexual-violence.html
+
 **Abdu Rabbu Mansour Hadi, Exiled Ex-President of Yemen, Dies at 80**\
 `In a country fractured by civil war and other crises, he held the title of president from 2012 to 2022 and was widely seen as an ineffective ruler.`\
 https://www.nytimes.com/2026/05/29/world/africa/abdrabbuh-mansour-hadi-dead.html
