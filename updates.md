@@ -1,3 +1,7 @@
+**Protesters Arrested at Immigration Detention Center as Tensions Rise**\
+`For nearly a week, relatives of migrants at Delaney Hall have said that some detainees have been on a hunger strike at the New Jersey facility.`\
+https://www.nytimes.com/2026/05/28/nyregion/delaney-hall-newark-ice-protesters-arrest.html
+
 **Scripps Spelling Bee Live Updates: Shrey Parikh Triumphs After Tense Spell-Off**\
 `The 14-year-old from California spelled a record 32 words correctly in 90 seconds to prevail in the competition, clinching the victory with the winning word “bromocriptine.”`\
 https://www.nytimes.com/live/2026/05/28/us/scripps-spelling-bee
