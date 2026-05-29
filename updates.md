@@ -1,3 +1,7 @@
+**Bus Crash in Virginia Kills 5 and Injures More Than 40**\
+`The bus was traveling in a southbound lane on I-95 near Quantico, Va., when it failed to slow for traffic in a work zone, the authorities said.`\
+https://www.nytimes.com/2026/05/29/us/bus-crash-virginia.html
+
 **Journalist Favored by Trump Is in Talks to Join White House in Temporary Role**\
 `John Solomon said he was being vetted for a role as a “special government employee,” a status given to part-time, outside advisers to the federal government.`\
 https://www.nytimes.com/2026/05/29/us/politics/john-solomon-trump-white-house.html
