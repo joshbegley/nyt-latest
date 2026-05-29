@@ -1,3 +1,43 @@
+**How to Travel if You Have Panic Attacks**\
+`You don’t have to let severe anxiety keep you from exploring the world. Here’s how to manage your panic on vacation.`\
+https://www.nytimes.com/2026/05/29/travel/how-to-travel-if-you-have-panic-attacks.html
+
+**Book Review: ‘Found Sound,’ by Meg Wolitzer and Charlie Panek, and ‘Stream,’ by Aida Salazar**\
+`Meg Wolitzer and Charlie Panek’s “Found Sound” and Aida Salazar’s “Stream” send their protagonists on a listening (and healing) tour of real life.`\
+https://www.nytimes.com/2026/05/29/books/review/meg-wolitzer-charlie-panek-found-sound-aida-salazar-stream.html
+
+**Fiber-Rich Dates Are the Latest ‘It Girl’ of the Snack Aisle**\
+`Grocery stores aisles are bursting with stuffed, sugared, blended, rolled and coated dates as a new wave of snack brands glorify the wrinkly fruit.`\
+https://www.nytimes.com/2026/05/29/dining/fiber-rich-dates-snacks.html
+
+**Trump’s Boat Strikes Have Failed to Curb Cocaine Flow to U.S., Experts Say**\
+`Despite the rising body count off the South American coast, researchers say cocaine is as easy to get in many parts of the United States as it was before the strikes began.`\
+https://www.nytimes.com/2026/05/29/world/americas/us-boat-strikes-cocaine-trump-south-america.html
+
+**Kane Parsons: From YouTube Sensation to A24’s Youngest Director**\
+`Now 20, the viral creator Kane Parsons is releasing “Backrooms,” a feature-length expansion of his web series.`\
+https://www.nytimes.com/2026/05/29/movies/kane-parsons-24-youngest-director-backrooms.html
+
+**A Hidden Treasure of Rare Snake Specimens**\
+`In the foothills of the Ecuadorean Amazon, a 101-year-old farmer and a young scientist turned an amateur collection into a scientific survey of one of the most diverse snake habitats on Earth.`\
+https://www.nytimes.com/2026/05/29/science/snake-collector-mera-ecuador.html
+
+**The Newest James Bond Game, 007 First Light, Is a Mix of Hitman and Uncharted**\
+`There are high-tech gadgets and delightful moments in 007 First Light. But too often it becomes an action hero’s linear journey.`\
+https://www.nytimes.com/2026/05/29/arts/007-first-light-review-james-bond.html
+
+**How Fuel Price Shocks Rattled a Remote New Zealand Village**\
+`The prices of diesel and gasoline soared after the Iran war started, piling more hardship on people in Ruatahuna, one of New Zealand’s most remote villages.`\
+https://www.nytimes.com/2026/05/29/world/australia/iran-war-fuel-price-new-zealand-village.html
+
+**No, Not That Georgia. A.I. Compounds a Nation’s Identity Woes.**\
+`Online queries are more likely to turn up references to the U.S. state — a problem for the republic in the Caucasus and its people. But a move to drop the name “Georgia” has lost steam.`\
+https://www.nytimes.com/2026/05/29/world/europe/georgia-name-confusion.html
+
+**In a World That Enabled Epstein, What Makes a Good Man?**\
+`A much-needed, nuanced conversation about masculinity and feminism today.`\
+https://www.nytimes.com/video/opinion/100000010918066/in-a-world-that-enabled-epstein-what-makes-a-good-man.html
+
 **Markets Wary as U.S. and Iran Edge Closer to Agreement**\
 `Oil prices and stock markets fluctuated as investors assessed tentative signs of a pact to extend a cease-fire.`\
 https://www.nytimes.com/2026/05/29/business/oil-gas-stocks-iran.html
@@ -157,44 +197,4 @@ https://www.nytimes.com/2026/05/28/us/politics/justice-department-carroll-hoffma
 **J.F.K. Airport to Begin Screening Some Passengers for Ebola**\
 `The U.S. has begun rerouting travelers from the Democratic Republic of Congo, South Sudan and Uganda to select airports for enhanced health screenings, to identify those who may have been exposed to the Ebola virus.`\
 https://www.nytimes.com/2026/05/28/us/politics/jfk-airport-ebola-screening-cdc.html
-
-**After Traffic Stop for Phone in Right Hand, She Called Out the Problem**\
-`The deputy insisted he saw a driver with a phone in her right hand. That turned out to be impossible, and the case was dropped.`\
-https://www.nytimes.com/2026/05/28/us/florida-deputy-tickets-woman-missing-hand.html
-
-**Death Toll Rises in Washington Paper Mill Explosion**\
-`At least eight are now confirmed dead, and firefighters believe there are three more bodies they have yet to reach, making the crisis the worst industrial disaster in the state’s modern history.`\
-https://www.nytimes.com/2026/05/28/us/longview-washington-paper-mill-death-toll.html
-
-**Italian Police Uncover Dead Mob Boss’s $230 Million Business Empire**\
-`When Matteo Messina Denaro died in 2023, many of his secrets died with him. That began to change with a tip about a wealthy Sicilian woman’s significant assets in a tiny European principality.`\
-https://www.nytimes.com/2026/05/28/world/europe/messina-denaro-mafia-assets.html
-
-**Curating in the Cross Hairs: Is This the Smithsonian Chief’s Last Show?**\
-`Lonnie G. Bunch III, the Smithsonian secretary under pressure from the White House, organized an exhibit exploring America’s founding ideals.`\
-https://www.nytimes.com/2026/05/28/arts/design/lonnie-bunch-smithsonian-american-aspirations.html
-
-**Suit Says Black Infants Were Subjected to Experimental Vaccine Without Consent**\
-`The babies were part of a vaccine trial for a respiratory virus in the 1960s and died shortly after. Their families said they had been unaware of the trial until recently.`\
-https://www.nytimes.com/2026/05/28/us/rsv-vaccine-testing-lawsuit.html
-
-**Trump’s Iran Approach Sows Confusion**\
-`President Trump’s pendulum swings on Iran have often seemed driven by mood and moment rather than any discernible strategy.`\
-https://www.nytimes.com/2026/05/28/us/politics/trump-approach-iran-war.html
-
-**Alaska Authorities Race to Rescue 4 Climbers Who Fell on Mount McKinley**\
-`The condition of the climbers was not immediately known.`\
-https://www.nytimes.com/2026/05/28/us/mount-mckinley-rescue-alaska.html
-
-**Who Are the 9 Scripps Spelling Bee Finalists?**\
-`The remaining spellers are 12 to 14, and represent five states as well as the District of Columbia.`\
-https://www.nytimes.com/2026/05/28/us/scripps-spelling-bee-finalists.html
-
-**With Pitchford v. Cain, The Supreme Court Protected Jury Rights. Now It Must Go Further.**\
-`All Americans benefit from the outcome of this case. And yet the decision highlights just how much work still needs to be done.`\
-https://www.nytimes.com/2026/05/28/opinion/supreme-court-jury-discrimination.html
-
-**Does a Taco Truck Belong on ‘The 100 Best Restaurants in N.Y.C.’ List?**\
-`Wesley Morris and The Times’s restaurant critic Ligaya Mishan discuss why a fine-dining establishment could be ranked alongside a taco truck on the “100 Best Restaurants” list.`\
-https://www.nytimes.com/video/podcasts/100000010931924/does-a-taco-truck-belong-on-the-100-best-restaurants-in-nyc-list.html
 

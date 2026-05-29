@@ -1,3 +1,139 @@
+**Court in Kenya Suspends Plans for U.S. Ebola Quarantine Unit**\
+`The order came after U.S. officials said that a 50-bed facility was being established in the African country to house American citizens exposed to the virus.`\
+https://www.nytimes.com/2026/05/29/world/africa/us-kenya-quarantine-unit-ebola.html
+
+**Does Trump Want to Lose the Midterms?**\
+`The president doesn’t seem that concerned that his party could lose control of Congress. Ezra Klein and the Republican strategist Liam Donovan discuss Trump’s midterm strategy and Democratic paths to victory.`\
+https://www.nytimes.com/2026/05/29/opinion/ezra-klein-podcast-liam-donovan.html
+
+**How to Get Grandparents and Grandkids to Connect**\
+`Chatting has benefits for both generations. Experts share ideas.`\
+https://www.nytimes.com/2026/05/29/well/grandparents-grandchildren-connect-texts.html
+
+**The New York Times News Quiz, May 29, 2026**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://www.nytimes.com/interactive/2026/05/29/briefing/news-quiz-trump-paxton-knicks-iran.html
+
+**There’s No Escaping the Rot in This Justice Department**\
+`How long can decent people continue to work for such a corrupted institution?`\
+https://www.nytimes.com/2026/05/29/opinion/doj-e-jean-carroll.html
+
+**Los jóvenes siguen tomando el sol para broncearse, a pesar de los riesgos**\
+`Los dermatólogos no logran explicar por qué estos jóvenes, que priorizan la salud en otros aspectos, desafían las advertencias sobre la exposición al sol y el uso de cámaras de bronceado.`\
+https://www.nytimes.com/es/2026/05/29/espanol/estilos-de-vida/generacion-z-cancer-de-piel.html
+
+**Olivia Rodrigo Discusses the Inspiration Behind Her New Album**\
+`The punk-leaning pop star tapped the vibrancy of 1980s new wave and the sentiment of “Sex and the City” on her new album “You Seem Pretty Sad For a Girl So in Love.”`\
+https://www.nytimes.com/2026/05/29/arts/music/olivia-rodrigo-new-album-interview-popcast.html
+
+**Trump juega con el mapa. El mundo ya pagó ese precio**\
+`Cuando los países poderosos tratan algunos territorios como un botín y consideran la soberanía como algo provisional, el orden mundial no se reforma, se destruye.`\
+https://www.nytimes.com/es/2026/05/29/espanol/opinion/trump-fronteras-paises.html
+
+**When a Reluctant Songwriting Star Found Refuge on a New York Stage**\
+`A reissue chronicles the Joe’s Pub performances of Allen Toussaint, who wrote “Lady Marmalade” and “Working in the Coal Mine,” after Hurricane Katrina forced him out of New Orleans.`\
+https://www.nytimes.com/2026/05/29/arts/music/allen-toussaint-songbook-reissue.html
+
+**Is Spencer Pratt For Real?**\
+`The former reality star’s dark visions of Los Angeles are resonating in a heated mayoral race, even if they’re far from the truth.`\
+https://www.nytimes.com/2026/05/29/style/spencer-pratt-los-angeles-mayor.html
+
+**Trans Athlete Could Repeat as State Champion at California Meet**\
+`Special rules will again be in place. Podium spots might be shared.`\
+https://www.nytimes.com/2026/05/29/us/transgender-athlete-track-california.html
+
+**Por qué los jubilados pierden al vender su casa**\
+`Los propietarios de edad avanzada a menudo carecen de recursos para mantener sus casas o no entienden el valor de renovarlas. Eso podría representar una pérdida de miles de dólares al momento de vender.`\
+https://www.nytimes.com/es/2026/05/29/espanol/negocios/venta-casa-jubilacion.html
+
+**Does Trump Want to Lose the Midterms?**\
+`The president doesn’t seem that concerned that his party could lose control of Congress. Ezra Klein and the Republican strategist Liam Donovan discuss Trump’s midterm strategy and Democratic paths to victory.`\
+https://www.nytimes.com/video/opinion/100000010928420/does-trump-want-to-lose-the-midterms.html
+
+**Book Club: Read ‘Yesteryear,’ by Caro Claire Burke, With the Book Review**\
+`In June, the Book Review Book Club will read and discuss a novel about a tradwife who wakes up in 1855, living the pioneer life she has been performing online.`\
+https://www.nytimes.com/2026/05/29/books/review/yesteryear-caro-claire-burke-book-club.html
+
+**California House Primary in Sacramento Displays Democrats’ Fierce Generational Battle**\
+`Representative Doris Matsui has been re-elected 10 times with ease. But an upstart Democrat is threatening to end her run in Congress.`\
+https://www.nytimes.com/2026/05/29/us/doris-matsui-mai-vang-congress.html
+
+**9 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://www.nytimes.com/2026/05/29/movies/new-movie-releases.html
+
+**$1.3 Million Homes in Sweden**\
+`A 10-bedroom manor from 1806, a 25-acre farm estate near the Baltic Sea, and a five-bedroom modern farmhouse.`\
+https://www.nytimes.com/2026/05/29/realestate/1-3-million-homes-in-sweden.html
+
+**‘Hacks’ Was Always a Love Story**\
+`In its finale, this comedy about comedy circled back to the romance of creative partnership and the saving power of laughs.`\
+https://www.nytimes.com/2026/05/29/arts/television/hacks-series-finale.html
+
+**The Politics of the Downwardly Mobile Professional Class**\
+`The debate over whether Graham Platner is “working class” comes at a time when more and more people are at risk of falling into it.`\
+https://www.nytimes.com/2026/05/29/magazine/the-politics-of-the-downwardly-mobile-professional-class.html
+
+**A.I. Boom Leads to Record Home Prices in San Francisco**\
+`The Bay Area boasts the highest median home prices in the country and experienced the sharpest annual price increases.`\
+https://www.nytimes.com/2026/05/29/realestate/san-francisco-ai-housing-market.html
+
+**NYC Pride Events 2026: Where to Celebrate**\
+`Get ready for drag shows, marches, musicals, parades and a “Heated Rivalry” parody.`\
+https://www.nytimes.com/2026/05/29/arts/pride-events-nyc.html
+
+**‘Backrooms’ Is Part of a Boomlet in Movies From YouTube Creators**\
+`“Backrooms,” a psychological horror flick opening this weekend, is part of a wave of breakout films from fledgling directors who honed their instincts on YouTube.`\
+https://www.nytimes.com/2026/05/29/business/media/backrooms-film-youtube.html
+
+**In ‘Fallen Angels,’ Kelli O’Hara and Rose Byrne Get Laughs Getting Sloshed**\
+`The Tony-nominated stars of “Fallen Angels” demonstrate how to act drunk onstage and have a hilarious hangover.`\
+https://www.nytimes.com/2026/05/29/theater/kelli-ohara-rose-byrne-fallen-angels-broadway.html
+
+**Happy, an Elephant of Distinction**\
+`The Asian elephant, who had lived at the Bronx Zoo for decades, had been the center of an animal rights lawsuit based on her high level of cognitive ability and social isolation.`\
+https://www.nytimes.com/2026/05/29/nyregion/happy-an-elephant-of-distinction.html
+
+**France’s Far Right Has 2 Leaders. They Don’t Always Have One Voice.**\
+`Marine Le Pen and her protégé, Jordan Bardella, lead presidential polls. They are united on curbing immigration but split recently on economic policy.`\
+https://www.nytimes.com/2026/05/29/world/europe/france-presidential-election-le-pen-bardella.html
+
+**This Is Why Your Groceries Are So Expensive**\
+`We need to confront America’s highly concentrated food sector, one that has feasted on oligopolistic behavior for more than a century.`\
+https://www.nytimes.com/2026/05/29/opinion/business-economics/groceries-expensive-price-fixing-consolidation.html
+
+**How to Make Wallpaper Art**\
+`Start out with a low-stakes installation on an art canvas. You’ll learn the basics, and you can easily undo it.`\
+https://www.nytimes.com/2026/05/29/realestate/wallpaper-art-without-the-work.html
+
+**In a World That Enabled Epstein, What Makes a Good Man?**\
+`A much-needed, nuanced conversation about masculinity and feminism today.`\
+https://www.nytimes.com/2026/05/29/opinion/young-men-masculinity-crisis.html
+
+**How NextEra Energy Wielded Political Power in Florida**\
+`NextEra, which is seeking to buy Dominion Energy, has often butted heads with consumer groups, residents and journalists in its home state.`\
+https://www.nytimes.com/2026/05/29/business/energy-environment/nextera-energy-florida-politics-dominion.html
+
+**Latest Indicator of Political Discontent: 43% of Voters Dissatisfied With Both Parties**\
+`Persistent frustration over the economy and foreign policy have left many Americans feeling politically homeless, and young voters are particularly frustrated.`\
+https://www.nytimes.com/2026/05/29/polls/latest-indicator-of-political-discontent-43-of-voters-dissatisfied-with-both-parties.html
+
+**This Dancer Is Helping to Expand What a Ballet Body Can Be**\
+`Olivia Book of Ballet West is one of the first professional ballet dancers to have a limb difference.`\
+https://www.nytimes.com/2026/05/29/arts/dance/olivia-book-ballet-west-limb-difference.html
+
+**This Is How to Stop Trump’s Vindictive Prosecutions**\
+`We need a law that raises the legal standard for bringing federal criminal charges.`\
+https://www.nytimes.com/2026/05/29/opinion/carroll-comey-trump-blanche.html
+
+**Book Review: ‘View From the East Wing,’ by Jill Biden**\
+`Beyond a few pointed digs at her husband’s successor, “View From the East Wing” largely sticks to the head-spinning details of first lady-hood.`\
+https://www.nytimes.com/2026/05/29/books/review/jill-biden-memoir-view-from-the-east-wing.html
+
+**Why Hasn’t California Elected a Woman Governor?**\
+`Most states have had a woman serve as governor, but California is in the minority despite its progressive-minded electorate. Women who have reached the top elsewhere saw familiar roadblocks.`\
+https://www.nytimes.com/2026/05/29/us/california-governor-woman.html
+
 **How to Travel if You Have Panic Attacks**\
 `You don’t have to let severe anxiety keep you from exploring the world. Here’s how to manage your panic on vacation.`\
 https://www.nytimes.com/2026/05/29/travel/how-to-travel-if-you-have-panic-attacks.html
@@ -61,140 +197,4 @@ https://www.nytimes.com/video/science/space/100000010932440/blue-origin-rocket-e
 **These Parents Wanted Their Children’s Park Back. They Finally Got It.**\
 `George Washington Bridge Park, also known as Dolphin Park, had been closed for nearly a decade, but residents in Manhattan pushed relentlessly for its reopening.`\
 https://www.nytimes.com/2026/05/29/nyregion/dolphin-park-reopens-washington-heights.html
-
-**The Knicks’ Playoff Run Has Brought a Peculiar Harmony to New York**\
-`The team’s playoff run has brought a curious sense of amity to the city.`\
-https://www.nytimes.com/2026/05/29/nyregion/knicks-nba-finals-nyc.html
-
-**Natural Light. Soaring Ceilings. At Penn Station? That’s the Plan.**\
-`A week after Amtrak selected a developer to remake the dreary rail hub, details of its rebirth are emerging. The cost is less clear.`\
-https://www.nytimes.com/2026/05/29/nyregion/nyc-penn-station-renovation.html
-
-**New York Wants to Restrict ICE Enforcement. ICE Has Other Ideas.**\
-`New York leaders changed state immigration laws to hold federal agents accountable for their deportation tactics, but their efforts will face opposition from the Trump administration.`\
-https://www.nytimes.com/2026/05/29/nyregion/ice-masks-hochul-ny.html
-
-**NYT Spelling Bee Answers for May 29, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/05/29/crosswords/spelling-bee-forum.html
-
-**Russian Drone Hits Romanian Apartment Building, Officials Say**\
-`NATO condemned “Russia’s recklessness” and confirmed that it was in touch with the Romanian authorities.`\
-https://www.nytimes.com/2026/05/29/world/europe/romania-drone-russia-ukraine.html
-
-**Jimmy Kimmel Finds Glee in President Trump’s Approval Rating**\
-`A new poll shows it sitting at 34 percent. “He has the same approval rating as ‘Paul Blart: Mall Cop,’” Kimmel said on Thursday.`\
-https://www.nytimes.com/2026/05/29/arts/television/jimmy-kimmel-trump-approval-rating.html
-
-**Europa se acerca a una guerra comercial con China. Estas son las razones**\
-`A medida que Pekín adopta políticas comerciales más agresivas, los dirigentes y las empresas europeas se inquietan por su dependencia de los productos chinos.`\
-https://www.nytimes.com/es/2026/05/29/espanol/mundo/europa-china-guerra-comercial-economia.html
-
-**Hooters se reinventa como restaurante familiar**\
-`La cadena conocida por sus pequeños uniformes y sus “noches en bikini” intenta cambiar su imagen. ¿Alguien quiere un pañalero de Hooters?`\
-https://www.nytimes.com/es/2026/05/29/espanol/estilos-de-vida/hooters-familias-ninos.html
-
-**Palabra del día en inglés: ‘diatribe’**\
-`Esta palabra ha aparecido en 31 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
-https://www.nytimes.com/es/2026/05/29/espanol/que-significa-diatribe.html
-
-**Word of the Day: diatribe**\
-`This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/05/29/learning/word-of-the-day-diatribe.html
-
-**Hungary Showed How to Defeat an Autocrat**\
-`Hungary did it. The United States can, too.`\
-https://www.nytimes.com/2026/05/29/opinion/hungary-win-election-viktor-orban.html
-
-**8 Are Rescued From Texas Roller Coaster Stuck Almost 100 Feet Off the Ground**\
-`The riders waited for about four hours, facing up, on the roller coaster at the Pleasure Pier park in Galveston. There were no injuries, the authorities said.`\
-https://www.nytimes.com/2026/05/29/us/galveston-texas-iron-shark-rollercoaster-stuck.html
-
-**The World’s 50 Best Restaurants Announces Its 2026 North America List**\
-`At a ceremony in New Orleans on Thursday, a Midwestern fine-dining standout took the top spot.`\
-https://www.nytimes.com/2026/05/29/dining/worlds-50-best-restaurants-north-america-winners-list.html
-
-**Europe Is Edging Closer to a Trade War With China. Here’s Why.**\
-`As cheap goods pour in, threatening the continent’s manufacturing sector, a search for solutions is becoming increasingly urgent.`\
-https://www.nytimes.com/2026/05/29/world/europe/europe-china-trade-war-electric-cars.html
-
-**She Said Yes. Then a Crowd at Madison Square Garden Cheered.**\
-`Owen Brown met Sophie Everhard 11 years ago at an event where she was working the door. He proposed before a Billie Eilish concert last fall.`\
-https://www.nytimes.com/2026/05/29/style/owen-brown-sophie-everhard-wedding.html
-
-**Corrections: May 29, 2026**\
-`Corrections that appeared in print on Friday, May 29, 2026.`\
-https://www.nytimes.com/2026/05/29/pageoneplus/corrections-may-29-2026.html
-
-**He Wanted to Kiss a Million Times. Could We Do It?**\
-`My optimistic, romantic husband never would have guessed what would happen to us.`\
-https://www.nytimes.com/2026/05/29/style/modern-love-he-wanted-to-kiss-a-million-times.html
-
-**She Dreamed of Getting Married at Grandma’s ‘Pink Castle’**\
-`Korren Campbell wed Jake Degler along the Miles River at her ‘Oma’s’ Alhambra-style pink house, in Easton, Md.`\
-https://www.nytimes.com/2026/05/29/style/korren-campbell-jake-degler-wedding.html
-
-**From Investor to Royal, Then Came a Wedding Fit for a Queen**\
-`When Arian Reed, a founder of an Atlanta-based venture-capital firm built by and for women of color, became a queen in Africa’s Ivory Coast, Benjamin Mougarbel, a Ghanaian businessman, took notice.`\
-https://www.nytimes.com/2026/05/29/style/arian-reed-benjamin-mougarbel-wedding.html
-
-**Finding Someone to ‘Conquer the World’ With**\
-`Elsa Alvarado and Hunter Stoll instantly clicked over politics and a shared love of dogs. Since then, they have fostered four together.`\
-https://www.nytimes.com/2026/05/29/style/elsa-alvarado-hunter-stoll-wedding.html
-
-**Taylor and Travis (Different Ones) Step Into the Spotlight**\
-`Taylor Hayes and Travis Wickboldt of Wisconsin became the face of Zola’s “Wedding of the Year” campaign, appearing on a billboard in Times Square.`\
-https://www.nytimes.com/2026/05/29/style/taylor-hayes-travis-wickboldt-wedding.html
-
-**Quote of the Day: A.I. Now Gives Scams a Slick Disguise. Here’s How to Tear It Off.**\
-`Quotation of the Day for Friday, May TK, 2026.`\
-https://www.nytimes.com/2026/05/28/pageoneplus/quote-of-the-day-ai-now-gives-scams-a-slick-disguise-heres-how-to-tear-it-off.html
-
-**Scripps Spelling Bee 2026 Takeaways: Shrey Parikh Wins in Spell-Off**\
-`The competition came down to a spell-off. Contestants were eliminated early, and a sixth grader became a crowd favorite.`\
-https://www.nytimes.com/2026/05/28/us/scripps-spelling-bee-takeaways-winner.html
-
-**Protesters Arrested at Immigration Detention Center as Tensions Rise**\
-`For nearly a week, relatives of migrants at Delaney Hall have said that some detainees have been on a hunger strike at the New Jersey facility.`\
-https://www.nytimes.com/2026/05/28/nyregion/delaney-hall-newark-ice-protesters-arrest.html
-
-**Should We Let Robots Kill People?**\
-`Are we ready for autonomous drones to make life-and-death decisions on the battlefield? Christian Brose, the chief strategy officer of Anduril Industries, explains on “Interesting Times” that the Pentagon’s official policy leaves the door for autonomous weapons wide open.`\
-https://www.nytimes.com/video/opinion/100000010921316/should-we-let-robots-kill-people.html
-
-**Is the U.S. Prepared for a Major War?**\
-`America has fired “something like eight years’ worth of Tomahawk missile production” in Iran, Christian Brose, the chief strategy officer of Anduril Industries, says on “Interesting Times,” where he and the Opinion columnist Ross Douthat discuss the limitations of America’s arsenal of “luxury” weapons.`\
-https://www.nytimes.com/video/opinion/100000010921317/is-the-us-prepared-for-a-major-war.html
-
-**After New Push by the Bolsonaros, U.S. Labels Brazilian Gangs as Terrorist Groups**\
-`Following through on threats, the Trump administration has designated Brazil’s two largest drug gangs as terrorist groups.`\
-https://www.nytimes.com/2026/05/28/world/americas/brazil-gangs-terrorist-bolsonaro-trump.html
-
-**Families Settle Suit Over Deaths in Baltimore Bridge Collapse**\
-`The owner and the operator of the cargo ship that crashed into the Key Bridge settled cases brought by several victims’ families, but other claims are headed to trial.`\
-https://www.nytimes.com/2026/05/28/us/baltimore-key-bridge-lawsuit-settlements.html
-
-**Blue Origin Rocket Blows Up on Florida Launchpad During Test**\
-`The rocket, built by the Jeff Bezos-owned space company, was to carry 48 satellites into space. Blue Origin reported on social media that “all personnel have been accounted for.”`\
-https://www.nytimes.com/2026/05/28/science/blue-origin-explosion-rocket.html
-
-**NYT Crossword Answers for May 29, 2026**\
-`Hemant Mehta opens our solving weekend.`\
-https://www.nytimes.com/2026/05/28/crosswords/daily-puzzle-2026-05-29.html
-
-**3 Dead After Large Fire at Dallas Apartment Building**\
-`A damaged gas line led to a five-alarm fire in the Oak Cliff neighborhood. At least four were injured, and firefighters believe they may find more victims.`\
-https://www.nytimes.com/2026/05/28/us/3-dead-after-large-fire-at-dallas-apartment-building.html
-
-**‘Hacks’ Leaves Them Laughing**\
-`In an interview, Jean Smart and Hannah Einbinder discuss the series finale, their offscreen relationship and why comedy is just like sex.`\
-https://www.nytimes.com/2026/05/28/arts/television/hacks-ends-jean-smart-hannah-einbinder.html
-
-**In Carroll Lawsuits Inquiry, Scrutiny Turns Toward Private Citizens Who Antagonized Trump**\
-`The Justice Department is said to be examining the funding of lawsuits brought by E. Jean Carroll, an author who has never sought a public role, political power or governmental authority.`\
-https://www.nytimes.com/2026/05/28/us/politics/justice-department-carroll-hoffman-lawsuit-trump.html
-
-**J.F.K. Airport to Begin Screening Some Passengers for Ebola**\
-`The U.S. has begun rerouting travelers from the Democratic Republic of Congo, South Sudan and Uganda to select airports for enhanced health screenings, to identify those who may have been exposed to the Ebola virus.`\
-https://www.nytimes.com/2026/05/28/us/politics/jfk-airport-ebola-screening-cdc.html
 
