@@ -1,3 +1,7 @@
+**TK**\
+`TK`\
+https://static01.nyt.com/slideshow/2026/05/29/t-magazine/food/tk.html
+
 **Woman With No Right Hand Pulled Over for Using Phone in Her Right Hand**\
 `A sheriff’s deputy in Florida pulled a woman over for holding a phone in her right hand, which turned out to be impossible.`\
 https://www.nytimes.com/video/us/100000010932527/woman-pulled-over-phone-no-hand.html
