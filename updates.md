@@ -1,3 +1,27 @@
+**Stranded in the Strait of Hormuz**\
+`We hear from two of the thousands of seafarers who became stuck in the middle of the war.`\
+https://www.nytimes.com/2026/05/29/podcasts/the-daily/iran-strait-of-hormuz-ships.html
+
+**Can You Use Dirty Rubber Bands in the Kitchen?**\
+`A ruling on a cleanliness dispute.`\
+https://www.nytimes.com/interactive/2026/05/29/magazine/washing-rubber-bands-hodgman-quiz.html
+
+**U.S. Ramps Up Deadly Boat Strikes, and What Trump’s Stock Trades Show**\
+`Plus, the Friday news quiz.`\
+https://www.nytimes.com/2026/05/29/podcasts/the-headlines/us-ramps-up-deadly-boat-strikes-and-what-trumps-stock-trades-show.html
+
+**NYT Connections Answers for May 30, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, May 30, 2026.`\
+https://www.nytimes.com/2026/05/29/crosswords/connections-companion-1084.html
+
+**NYT Strands Hints for May 30, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, May 30, 2026.`\
+https://www.nytimes.com/2026/05/29/crosswords/strands-sidekick-818.html
+
+**Today’s Wordle Review for May 30, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, May 30, 2026.`\
+https://www.nytimes.com/2026/05/29/crosswords/wordle-review-1806.html
+
 **Iran War Live Updates: Uncertainty Hangs Over Talks as U.S. Says It Is Close to Agreement**\
 `An emerging “memorandum of understanding,” which could lead to the reopening of the Strait of Hormuz, still needs approval from President Trump, and Iran has not confirmed any commitments.`\
 https://www.nytimes.com/live/2026/05/29/world/iran-war-us-trump-deal
