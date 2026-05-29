@@ -1,3 +1,7 @@
+**Actually, Most Immigrants Won’t Need to Leave U.S. to Get Green Cards, D.H.S. Says**\
+`But details remained scant after officials said last week that, with “extraordinary” exceptions, people seeking permanent residency must first leave the country.`\
+https://www.nytimes.com/2026/05/29/us/politics/green-cards-dhs.html
+
 **Trump Endorses Pamela Evette in South Carolina Governor’s Race**\
 `Pamela Evette had been among the more vocal proponents of redrawing the state’s congressional map to help Republicans in the midterms.`\
 https://www.nytimes.com/2026/05/29/us/trump-pamela-evette-south-carolina-governor.html

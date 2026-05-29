@@ -1,3 +1,7 @@
+**Actually, Most Immigrants Won’t Need to Leave U.S. to Get Green Cards, D.H.S. Says**\
+`But details remained scant after officials said last week that, with “extraordinary” exceptions, people seeking permanent residency must first leave the country.`\
+https://www.nytimes.com/2026/05/29/us/politics/green-cards-dhs.html
+
 **Trump Endorses Pamela Evette in South Carolina Governor’s Race**\
 `Pamela Evette had been among the more vocal proponents of redrawing the state’s congressional map to help Republicans in the midterms.`\
 https://www.nytimes.com/2026/05/29/us/trump-pamela-evette-south-carolina-governor.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/29/us/south-carolina-sonic-boom.html
 **Why ‘What Are You Wearing?’ Videos Are Everywhere**\
 `Plus an Everlane founder’s next venture, a streetwear tux and yet another toe-baring shoe.`\
 https://www.nytimes.com/2026/05/29/style/fit-check-videos.html
-
-**Research Funding Slows Again for Universities Targeted by White House**\
-`The National Science Foundation lifted a hold on some grants for Harvard and other universities this week after inquiries from media outlets, including The New York Times.`\
-https://www.nytimes.com/2026/05/29/us/politics/trump-university-research-funding.html
 
