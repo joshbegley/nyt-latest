@@ -1,3 +1,7 @@
+**Europe Is Edging Closer to a Trade War With China. Here’s Why.**\
+`As cheap goods pour in, threatening the continent’s manufacturing sector, a search for solutions is becoming increasingly urgent.`\
+https://www.nytimes.com/2026/05/29/world/europe/europe-china-trade-war-electric-cars.html
+
 **Hooters se reinventa como restaurante familiar**\
 `La cadena conocida por sus pequeños uniformes y sus “noches en bikini” intenta cambiar su imagen. ¿Alguien quiere un pañalero de Hooters?`\
 https://www.nytimes.com/es/2026/05/29/espanol/estilos-de-vida/hooters-familias-ninos.html
