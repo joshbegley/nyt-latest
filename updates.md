@@ -1,3 +1,7 @@
+**Young MC and Morris Day Pull Out of Freedom 250 Concerts**\
+`Young MC, Morris Day and the Commodores said they would not perform at the series on the National Mall that is part of the summer celebration of America’s founding.`\
+https://www.nytimes.com/2026/05/28/arts/music/freedom-concerts-young-mc-milli-vanilli.html
+
 **Suit Says Black Infants Were Subjected to Experimental Vaccine Without Consent**\
 `The babies were part of a vaccine trial for a respiratory virus in the 1960s and died shortly after. Their families said they had been unaware of the trial until recently.`\
 https://www.nytimes.com/2026/05/28/us/rsv-vaccine-testing-lawsuit.html

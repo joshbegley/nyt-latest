@@ -1,3 +1,11 @@
+**Italian Police Uncover Dead Mob Boss’ $230 Million Business Empire**\
+`When Matteo Messina Denaro died in 2023, many of his secrets died with him. That began to change with a tip about a wealthy Sicilian woman’s significant assets in a tiny European principality.`\
+https://www.nytimes.com/2026/05/28/world/europe/messina-denaro-mafia-assets.html
+
+**Curating in the Cross Hairs: Is This the Smithsonian Chief’s Last Show?**\
+`Lonnie G. Bunch III, the Smithsonian secretary under pressure from the White House, organized an exhibit exploring America’s founding ideals.`\
+https://www.nytimes.com/2026/05/28/arts/design/lonnie-bunch-smithsonian-american-aspirations.html
+
 **Suit Says Black Infants Were Subjected to Experimental Vaccine Without Consent**\
 `The babies were part of a vaccine trial for a respiratory virus in the 1960s and died shortly after. Their families said they had been unaware of the trial until recently.`\
 https://www.nytimes.com/2026/05/28/us/rsv-vaccine-testing-lawsuit.html
@@ -71,7 +79,7 @@ https://www.nytimes.com/video/us/politics/100000010931638/bessent-treasury-trump
 https://www.nytimes.com/video/us/100000010931758/fire-dallas-apartment-building.html
 
 **Scripps Spelling Bee Live Updates: Students Battle for Word Domination**\
-`The nine finalists competing against one another — and the dictionary — have taken the stage. The competition will begin shortly.`\
+`The nine spellers competing against one another — and the dictionary — have taken the stage, and the finals are underway.`\
 https://www.nytimes.com/live/2026/05/28/us/scripps-spelling-bee
 
 **A Democrat’s Dodge on AIPAC Points to the Party’s Tensions Over Israel**\
@@ -173,14 +181,6 @@ https://www.nytimes.com/2026/05/28/us/memphis-arrest-tactics-lawsuit.html
 **Supreme Court Says Death Row Inmate Can Challenge Exclusion of Black Jurors**\
 `Terry Pitchford was convicted in 2006 for his role in the murder of a shopkeeper by a 12-member jury that included one Black member.`\
 https://www.nytimes.com/2026/05/28/us/politics/supreme-court-black-jurors.html
-
-**Two Papers Named ‘Star’ Will Duel in D.C. to Win Readers From The Washington Post**\
-`First, The Star was born. Now, The Washington Star is reborn. Both are hoping to win readers ceded by recent layoffs at The Washington Post.`\
-https://www.nytimes.com/2026/05/28/business/media/the-washington-star-newspaper-rivalry-washington-post.html
-
-**Commas, Common Sense and Justice**\
-`The ancients developed punctuation to create clarity, the Supreme Court used it to create confusion.`\
-https://www.nytimes.com/2026/05/28/opinion/punctuation-supreme-court-guns.html
 
 **Iran War Live Updates: U.S. Officials Say They Are Closing In on Arrangement to Reopen Strait of Hormuz**\
 `President Trump has not signed off on the emerging framework, according to U.S. officials. But it could set the table for extending the cease-fire and more substantive negotiations.`\
