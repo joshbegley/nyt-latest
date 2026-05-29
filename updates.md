@@ -1,3 +1,11 @@
+**ICE Protesters Convicted in a Spokane Case That Tested a Trump Strategy**\
+`The three demonstrators in Spokane, Wash., had been accused of conspiracy, charges that the region’s former top prosecutor has said were unwarranted.`\
+https://www.nytimes.com/2026/05/29/us/ice-protesters-convicted-spokane.html
+
+**Trump Endorses Pamela Evette in South Carolina Governor’s Race**\
+`Pamela Evette had been among the most vocal proponents of redrawing the state’s congressional map to help Republicans in the midterms.`\
+https://www.nytimes.com/2026/05/29/us/trump-pamela-evette-south-carolina-governor.html
+
 **Iran’s Hard-Liners Try to Derail Potential Deal With the U.S.**\
 `A political fight is playing out in Iran, where the small but loud faction of hard-liners has used rallies, state media and private and public statements to try to undermine negotiations.`\
 https://www.nytimes.com/2026/05/29/world/middleeast/irans-hard-liners-deal.html
