@@ -1,3 +1,7 @@
+**Abdu Rabbu Mansour Hadi, Exiled Ex-President of Yemen, Dies at 80**\
+`In a country fractured by civil war and other crises, he held the title of president from 2012 to 2022 and was widely seen as an ineffective ruler.`\
+https://www.nytimes.com/2026/05/29/world/africa/abdrabbuh-mansour-hadi-dead.html
+
 **Kennedy Center Must Remove Trump’s Name From Building, Judge Orders**\
 `The U.S. district judge also ruled that the institution’s board had not done its due diligence when voting to close for renovations.`\
 https://www.nytimes.com/2026/05/29/arts/kennedy-center-trump-name-remove.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/29/movies/international-movies-streaming.html
 **Who Is Ahead in Virginia's 7th Congressional District?**\
 `Track the latest polls in Virginia's 7th Congressional District.`\
 https://www.nytimes.com/interactive/polls/virginia-us-house-7-polls-2026.html
-
-**Who Is Ahead in Virginia's 1st Congressional District?**\
-`Track the latest polls in Virginia's 1st Congressional District.`\
-https://www.nytimes.com/interactive/polls/virginia-us-house-1-polls-2026.html
 
