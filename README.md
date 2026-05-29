@@ -1,4 +1,4 @@
-**A Deputy Saw a Phone in a Hand That Was Not There**\
+**After Traffic Stop for Phone in Right Hand, She Called Out the Problem**\
 `The deputy insisted he saw a driver with a phone in her right hand. That turned out to be impossible, and the case was dropped.`\
 https://www.nytimes.com/2026/05/28/us/a-deputy-saw-a-phone-in-a-hand-that-was-not-there.html
 
@@ -87,7 +87,7 @@ https://www.nytimes.com/video/us/politics/100000010931638/bessent-treasury-trump
 https://www.nytimes.com/video/us/100000010931758/fire-dallas-apartment-building.html
 
 **Scripps Spelling Bee Live Updates: Students Battle for Word Domination**\
-`Six contestants remained after “catometope,” “Faesulae” and “vaesite” eliminated three students in near succession.`\
+`The night’s third round claimed four contestants, eliminating them with words like “catometope,” “vaesite” and “oconee bells.”`\
 https://www.nytimes.com/live/2026/05/28/us/scripps-spelling-bee
 
 **A Democrat’s Dodge on AIPAC Points to the Party’s Tensions Over Israel**\
