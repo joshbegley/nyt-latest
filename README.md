@@ -1,3 +1,23 @@
+**These Parents Wanted Their Children’s Park Back. They Finally Got It.**\
+`George Washington Bridge Park, also known as Dolphin Park, had been closed for nearly a decade, but residents in Manhattan pushed relentlessly for its reopening.`\
+https://www.nytimes.com/2026/05/29/nyregion/dolphin-park-reopens-washington-heights.html
+
+**The Knicks’ Playoff Run Has Brought a Peculiar Harmony to New York**\
+`The team’s playoff run has brought a curious sense of amity to the city.`\
+https://www.nytimes.com/2026/05/29/nyregion/knicks-nba-finals-nyc.html
+
+**Natural Light. Soaring Ceilings. At Penn Station? That’s the Plan.**\
+`A week after Amtrak selected a developer to remake the dreary rail hub, details of its rebirth are emerging. The cost is less clear.`\
+https://www.nytimes.com/2026/05/29/nyregion/nyc-penn-station-renovation.html
+
+**New York Wants to Restrict ICE Enforcement. ICE Has Other Ideas.**\
+`New York leaders changed state immigration laws to hold federal agents accountable for their deportation tactics, but their efforts will face opposition from the Trump administration.`\
+https://www.nytimes.com/2026/05/29/nyregion/ice-masks-hochul-ny.html
+
+**NYT Spelling Bee Answers for May 29, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/29/crosswords/spelling-bee-forum.html
+
 **Russian Drone Hits Romanian Apartment Building**\
 `NATO condemned “Russia’s recklessness” and confirmed that it was in touch with the Romanian authorities.`\
 https://www.nytimes.com/2026/05/29/world/europe/romania-drone-russia-ukraine.html
@@ -173,22 +193,6 @@ https://www.nytimes.com/es/2026/05/28/espanol/cultura/toto-la-momposina-murio.ht
 **ABC Accuses Trump Administration of Threatening Its Broadcast Licenses**\
 `The TV network slammed the Federal Communications Commission, saying the regulator was targeting its station licenses in a campaign of “unconstitutional retaliation.”`\
 https://www.nytimes.com/2026/05/28/business/media/abc-licenses-fcc-brendan-carr.html
-
-**Terry Rozier Took $70,000 Bribe to Leave NBA Game Early, U.S. Says**\
-`Terry Rozier faces new charges for his role in a betting scheme that prosecutors say involves former and current professional basketball players.`\
-https://www.nytimes.com/2026/05/28/nyregion/terry-rozier-nba-betting-scandal.html
-
-**Deadly Heat Wave Sweeps Across Western Europe**\
-`A deadly heat wave in Europe this month brought record-breaking temperatures. Scientists linked the extreme heat to man-made global warming.`\
-https://www.nytimes.com/video/climate/100000010931267/deadly-heat-wave-sweeps-across-western-europe.html
-
-**Carney Outlines Plan for New U.S.-Canada Relationship**\
-`Prime Minister Mark Carney of Canada called for a new, more distant relationship with the United States on Thursday, but maintained that reducing his country’s diplomatic and economic dependency on the U.S. would benefit Americans.`\
-https://www.nytimes.com/video/world/canada/100000010931622/carney-us-canada-relations.html
-
-**Late May Storm Brings Rain and Snow to Northern California**\
-`San Francisco received nearly as much rain one morning as it would typically see for the month, and a slope in the Sierra Nevada remained open for skiing.`\
-https://www.nytimes.com/2026/05/28/weather/may-snow-rain-california.html
 
 **Shrey Parikh Triumphs After Tense Spell-Off**\
 `The 14-year-old from California spelled a record 32 words correctly in 90 seconds to prevail in the Scripps National Spelling Bee, clinching the victory with the winning word “bromocriptine.”`\

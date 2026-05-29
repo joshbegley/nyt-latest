@@ -1,3 +1,7 @@
+**Russian Drone Hits Romanian Apartment Building**\
+`NATO condemned “Russia’s recklessness” and confirmed that it was in touch with the Romanian authorities.`\
+https://www.nytimes.com/2026/05/29/world/europe/romania-drone-russia-ukraine.html
+
 **Jimmy Kimmel Finds Glee in President Trump’s Approval Rating**\
 `A new poll shows it sitting at 34 percent. “He has the same approval rating as ‘Paul Blart: Mall Cop,’” Kimmel said on Thursday.`\
 https://www.nytimes.com/2026/05/29/arts/television/jimmy-kimmel-trump-approval-rating.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/video/world/canada/100000010931622/carney-us-canada-rela
 **Late May Storm Brings Rain and Snow to Northern California**\
 `San Francisco received nearly as much rain one morning as it would typically see for the month, and a slope in the Sierra Nevada remained open for skiing.`\
 https://www.nytimes.com/2026/05/28/weather/may-snow-rain-california.html
-
-**U.S. and Iran Draft Cease-Fire Extension**\
-`Plus, the Scripps National Spelling Bee. Here’s the latest at the end of Thursday.`\
-https://www.nytimes.com/2026/05/28/briefing/iran-inflation-spelling-bee.html
 
 **Shrey Parikh Triumphs After Tense Spell-Off**\
 `The 14-year-old from California spelled a record 32 words correctly in 90 seconds to prevail in the Scripps National Spelling Bee, clinching the victory with the winning word “bromocriptine.”`\

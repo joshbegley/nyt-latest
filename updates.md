@@ -1,3 +1,7 @@
+**Russian Drone Hits Romanian Apartment Building**\
+`NATO condemned “Russia’s recklessness” and confirmed that it was in touch with the Romanian authorities.`\
+https://www.nytimes.com/2026/05/29/world/europe/romania-drone-russia-ukraine.html
+
 **Jimmy Kimmel Finds Glee in President Trump’s Approval Rating**\
 `A new poll shows it sitting at 34 percent. “He has the same approval rating as ‘Paul Blart: Mall Cop,’” Kimmel said on Thursday.`\
 https://www.nytimes.com/2026/05/29/arts/television/jimmy-kimmel-trump-approval-rating.html
