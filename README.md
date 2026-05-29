@@ -1,3 +1,7 @@
+**Randall Bourscheidt, Wide-Ranging Arts Advocate, Dies at 81**\
+`He helped triple New York City’s arts budget, led research to promote cultural funding and supported artists with H.I.V. and AIDS.`\
+https://www.nytimes.com/2026/05/29/arts/randall-bourscheidt-dead.html
+
 **Crowds Flood New York City Streets for First Day of Manhattanhenge**\
 `People filled the streets of New York on Thursday to get a glimpse of this year’s first Manhattanhenge. The spectacular view of the sun setting, flanked by the city’s streetscapes, will also occur on Friday and July 11 and 12.`\
 https://www.nytimes.com/video/science/earth/100000010932609/manhattanhenge-nyc-sky-crowds.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/interactive/2026/05/29/briefing/news-quiz-trump-paxton-k
 **There’s No Escaping the Rot in This Justice Department**\
 `How long can decent people continue to work for such a corrupted institution?`\
 https://www.nytimes.com/2026/05/29/opinion/doj-e-jean-carroll.html
-
-**Los jóvenes siguen tomando el sol para broncearse, a pesar de los riesgos**\
-`Los dermatólogos no logran explicar por qué estos jóvenes, que priorizan la salud en otros aspectos, desafían las advertencias sobre la exposición al sol y el uso de cámaras de bronceado.`\
-https://www.nytimes.com/es/2026/05/29/espanol/estilos-de-vida/generacion-z-cancer-de-piel.html
 
