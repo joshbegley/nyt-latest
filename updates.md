@@ -1,3 +1,7 @@
+**Luka Doncic on Trying to Bring an N.B.A. Team to Rome**\
+`The superstar is part of group that has bought a basketball team in Italy, with a plan to move the club to Rome in hopes of making it part of a new league.`\
+https://www.nytimes.com/2026/05/29/business/media/luka-doncic-nba-owner-rome.html
+
 **Live Updates: Train Fire at Penn Station Injures 5 and Disrupts Rail Service**\
 `A fire on a maintenance train affected Friday morning service on NJ Transit, Amtrak and the L.I.R.R. Two people were hospitalized with serious injuries.`\
 https://www.nytimes.com/live/2026/05/29/nyregion/penn-station-fire-amtrak-nyc

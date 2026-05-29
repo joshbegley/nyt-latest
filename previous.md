@@ -1,3 +1,7 @@
+**Luka Doncic on Trying to Bring an N.B.A. Team to Rome**\
+`The superstar is part of group that has bought a basketball team in Italy, with a plan to move the club to Rome in hopes of making it part of a new league.`\
+https://www.nytimes.com/2026/05/29/business/media/luka-doncic-nba-owner-rome.html
+
 **Live Updates: Train Fire at Penn Station Injures 5 and Disrupts Rail Service**\
 `A fire on a maintenance train affected Friday morning service on NJ Transit, Amtrak and the L.I.R.R. Two people were hospitalized with serious injuries.`\
 https://www.nytimes.com/live/2026/05/29/nyregion/penn-station-fire-amtrak-nyc
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/29/business/energy-environment/nextera-energy-fl
 **Times/Siena Poll: 43% of Voters Dissatisfied With Both Parties**\
 `Persistent frustration over the economy and foreign policy has left many Americans feeling politically homeless, and young voters are particularly frustrated.`\
 https://www.nytimes.com/2026/05/29/polls/dissatisfied-voters.html
-
-**This Dancer Is Helping to Expand What a Ballet Body Can Be**\
-`Olivia Book of Ballet West is one of the first professional ballet dancers to have a limb difference.`\
-https://www.nytimes.com/2026/05/29/arts/dance/olivia-book-ballet-west-limb-difference.html
 
