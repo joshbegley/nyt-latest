@@ -1,3 +1,11 @@
+**Share & Eat the Rich & Tell with Tim Miller and Stephanie Ruhle**\
+`Regulating the billionaire class — with a little help from Pope Leo XIV.`\
+https://www.nytimes.com/2026/05/29/podcasts/share-eat-the-rich-tell-with-tim-miller-and-stephanie-ruhle.html
+
+**A.I. Doesn’t Have to Mean Layoffs**\
+`A French multinational, Schneider Electric, decided to use artificial intelligence in manufacturing to make workers more productive, rather than to replace them. Here’s how that’s going.`\
+https://www.nytimes.com/2026/05/29/business/economy/ai-jobs-productivity.html
+
 **Ecuador alberga un tesoro secreto de serpientes raras**\
 `En las zonas bajas de la Amazonía ecuatoriana, un agricultor de 101 años y un joven científico convirtieron una colección informal en un estudio científico de uno de los hábitats de serpientes más diversos del planeta.`\
 https://www.nytimes.com/es/2026/05/29/espanol/ciencia-y-tecnologia/ecuadore-serpientes-raras.html
@@ -122,9 +130,9 @@ https://www.nytimes.com/2026/05/29/opinion/young-men-masculinity-crisis.html
 `NextEra, which is seeking to buy Dominion Energy, has often butted heads with consumer groups, residents and journalists in its home state.`\
 https://www.nytimes.com/2026/05/29/business/energy-environment/nextera-energy-florida-politics-dominion.html
 
-**Latest Indicator of Political Discontent: 43% of Voters Dissatisfied With Both Parties**\
+**Times/Siena Poll: 43% of Voters Dissatisfied With Both Parties**\
 `Persistent frustration over the economy and foreign policy have left many Americans feeling politically homeless, and young voters are particularly frustrated.`\
-https://www.nytimes.com/2026/05/29/polls/latest-indicator-of-political-discontent-43-of-voters-dissatisfied-with-both-parties.html
+https://www.nytimes.com/2026/05/29/polls/dissatisfied-voters.html
 
 **This Dancer Is Helping to Expand What a Ballet Body Can Be**\
 `Olivia Book of Ballet West is one of the first professional ballet dancers to have a limb difference.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/05/29/business/oil-gas-stocks-iran.html
 **How Japan Lost 3 Million People in Five Years**\
 `Japan’s population fell by more than 3 million over the past five years, a record drop that underscores the depths of the country’s accelerating demographic crisis.`\
 https://www.nytimes.com/interactive/2026/05/29/world/asia/japan-census-population-decline.html
-
-**Shrey Parikh Wins Scripps National Spelling Bee After Tense Spell-Off**\
-`Shrey Parikh, a 14-year-old from California, claimed the 2026 Scripps National Spelling Bee title on Thursday in a dramatic spell-off that tested his speed and precision.`\
-https://www.nytimes.com/video/us/100000010932226/spelling-bee-shrey-parikh.html
-
-**Los hombres jóvenes que pueden influir en las elecciones intermedias de EE. UU.**\
-`Muchos hombres de la generación Z que votaron por Donald Trump están consternados por su mandato. Pero dicen que tampoco escuchan un discurso atractivo de los demócratas.`\
-https://www.nytimes.com/es/2026/05/29/espanol/estados-unidos/trump-elecciones-intermedias-aprobacion-jovenes.html
 

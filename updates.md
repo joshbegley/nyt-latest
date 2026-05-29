@@ -1,3 +1,15 @@
+**Share & Eat the Rich & Tell with Tim Miller and Stephanie Ruhle**\
+`Regulating the billionaire class — with a little help from Pope Leo XIV.`\
+https://www.nytimes.com/2026/05/29/podcasts/share-eat-the-rich-tell-with-tim-miller-and-stephanie-ruhle.html
+
+**A.I. Doesn’t Have to Mean Layoffs**\
+`A French multinational, Schneider Electric, decided to use artificial intelligence in manufacturing to make workers more productive, rather than to replace them. Here’s how that’s going.`\
+https://www.nytimes.com/2026/05/29/business/economy/ai-jobs-productivity.html
+
+**Times/Siena Poll: 43% of Voters Dissatisfied With Both Parties**\
+`Persistent frustration over the economy and foreign policy have left many Americans feeling politically homeless, and young voters are particularly frustrated.`\
+https://www.nytimes.com/2026/05/29/polls/dissatisfied-voters.html
+
 **Ecuador alberga un tesoro secreto de serpientes raras**\
 `En las zonas bajas de la Amazonía ecuatoriana, un agricultor de 101 años y un joven científico convirtieron una colección informal en un estudio científico de uno de los hábitats de serpientes más diversos del planeta.`\
 https://www.nytimes.com/es/2026/05/29/espanol/ciencia-y-tecnologia/ecuadore-serpientes-raras.html
