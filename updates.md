@@ -1,3 +1,7 @@
+**Russian Drone Hits Romanian Apartment Building**\
+`Romanian officials said a Russian attack drone hit an apartment building in the city of Galati on Friday, injuring two people.`\
+https://www.nytimes.com/video/world/europe/100000010932571/russian-drone-romania-apartments.html
+
 **Times/Siena Poll: 43% of Voters Dissatisfied With Both Parties**\
 `Persistent frustration over the economy and foreign policy has left many Americans feeling politically homeless, and young voters are particularly frustrated.`\
 https://www.nytimes.com/2026/05/29/polls/dissatisfied-voters.html

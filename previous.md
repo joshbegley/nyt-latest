@@ -1,3 +1,7 @@
+**Russian Drone Hits Romanian Apartment Building**\
+`Romanian officials said a Russian attack drone hit an apartment building in the city of Galati on Friday, injuring two people.`\
+https://www.nytimes.com/video/world/europe/100000010932571/russian-drone-romania-apartments.html
+
 **‘The Headlines’ News Quiz: May 29, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/05/29/podcasts/the-headlines/the-headlines-news-quiz-may-29-2026.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/29/polls/dissatisfied-voters.html
 **This Dancer Is Helping to Expand What a Ballet Body Can Be**\
 `Olivia Book of Ballet West is one of the first professional ballet dancers to have a limb difference.`\
 https://www.nytimes.com/2026/05/29/arts/dance/olivia-book-ballet-west-limb-difference.html
-
-**This Is How to Stop Trump’s Vindictive Prosecutions**\
-`We need a law that raises the legal standard for bringing federal criminal charges.`\
-https://www.nytimes.com/2026/05/29/opinion/carroll-comey-trump-blanche.html
 

@@ -1,3 +1,7 @@
+**Live Updates: Train Fire at Penn Station Injures 5 and Disrupts Rail Service**\
+`A fire on a maintenance train affected Friday morning service on NJ Transit, Amtrak and the L.I.R.R. Two people were hospitalized with serious injuries.`\
+https://www.nytimes.com/live/2026/05/29/nyregion/penn-station-fire-amtrak-nyc
+
 **Russian Drone Hits Romanian Apartment Building**\
 `Romanian officials said a Russian attack drone hit an apartment building in the city of Galati on Friday, injuring two people.`\
 https://www.nytimes.com/video/world/europe/100000010932571/russian-drone-romania-apartments.html
@@ -25,10 +29,6 @@ https://www.nytimes.com/2026/05/29/briefing/pool-problems.html
 **Were Romanian Casualties From a Russian Drone Strike Inevitable?**\
 `The strike on Friday, near the Ukrainian border, was the first to injure civilians in Romania, officials say. But drones from the nearby war have been a growing threat.`\
 https://www.nytimes.com/2026/05/29/world/europe/romania-drone-strike-what-to-know.html
-
-**Train Fire at Penn Station Injures 5 and Disrupts Rail Service**\
-`A fire on a maintenance train affected Friday morning service on NJ Transit, Amtrak and the L.I.R.R. Two people were hospitalized with serious injuries.`\
-https://www.nytimes.com/2026/05/29/nyregion/penn-station-fire-amtrak-nyc-nj-transit.html
 
 **Stranded in the Strait of Hormuz**\
 `We hear from two of the thousands of seafarers who became stuck in the middle of the war.`\
