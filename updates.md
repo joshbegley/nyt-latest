@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000010933618/29vid-Robert-Garcia-embeds-69364.html
+
+**Gretchen Whitmer’s Approach to Trump Was Working With the President**\
+`Ms. Whitmer, the Michigan governor and one of the country’s most prominent Democrats, has been conciliatory with Mr. Trump. As she mulls the future, her party is split on that approach.`\
+https://www.nytimes.com/2026/05/29/us/gretchen-whitmer-donald-trump-2028.html
+
 **3 Latvian Climbers Die in Fall on Mt. McKinley**\
 `The accident occurred at about 18,000 feet in the area of Denali Pass.`\
 https://www.nytimes.com/2026/05/29/us/mt-mckinley-denali-climbers-latvia.html
