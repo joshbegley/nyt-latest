@@ -1,3 +1,15 @@
+**Overlooked No More: Nancy Sheung, Whose Camera Captured Women on Their Own Terms**\
+`In 1960s Hong Kong, she used photography to portray women as bold, self-possessed and unconstrained by traditional expectations.`\
+https://www.nytimes.com/2026/05/29/obituaries/nancy-sheung-overlooked.html
+
+**S.E.C. Proposes to Kill Climate Change Disclosure Rule**\
+`The regulation would have required all publicly traded companies to disclose whether they faced significant risks from climate change and its effects.`\
+https://www.nytimes.com/2026/05/29/climate/sec-climate-disclosure-rule.html
+
+**After China Orders a Times Reporter to Leave the Country, the U.S. Reciprocates**\
+`The Trump administration ejected a Chinese journalist amid fresh concerns about Beijing’s growing pressure on foreign correspondents.`\
+https://www.nytimes.com/2026/05/29/us/politics/china-expels-times-reporter.html
+
 **Flashback: Your Weekly History Quiz, May 30, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/05/29/upshot/flashback.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/interactive/2026/05/29/magazine/washing-rubber-bands-hod
 **U.S. Ramps Up Deadly Boat Strikes, and What Trump’s Stock Trades Show**\
 `Plus, the Friday news quiz.`\
 https://www.nytimes.com/2026/05/29/podcasts/the-headlines/us-ramps-up-deadly-boat-strikes-and-what-trumps-stock-trades-show.html
-
-**NYT Connections Answers for May 30, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, May 30, 2026.`\
-https://www.nytimes.com/2026/05/29/crosswords/connections-companion-1084.html
-
-**NYT Strands Hints for May 30, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, May 30, 2026.`\
-https://www.nytimes.com/2026/05/29/crosswords/strands-sidekick-818.html
-
-**Today’s Wordle Review for May 30, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, May 30, 2026.`\
-https://www.nytimes.com/2026/05/29/crosswords/wordle-review-1806.html
 

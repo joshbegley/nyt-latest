@@ -1,3 +1,27 @@
+**Flashback: Your Weekly History Quiz, May 30, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/05/29/upshot/flashback.html
+
+**After Orban’s Defeat, Hungary Is Poised to Get Billions From E.U.**\
+`The European Union is set to release 16 billion euros it had withheld, as Hungary moves to enact anti-corruption and rule of law policies.`\
+https://www.nytimes.com/2026/05/29/world/europe/eu-hungary-funds.html
+
+**Bus Crash in Virginia Kills 5 and Injures More Than 30**\
+`The bus was traveling in a southbound lane on I-95 near Quantico, Va., when it failed to slow for traffic in a work zone, the authorities said.`\
+https://www.nytimes.com/2026/05/29/us/bus-crash-virginia.html
+
+**One of Five Gold Miners Is Rescued From Laos Cave After More Than a Week**\
+`An international effort to free the trapped men brought attention to the country’s informal mines, where panning for gold can pay more than minimum wage.`\
+https://www.nytimes.com/2026/05/29/world/asia/laos-cave-rescue.html
+
+**Who is Ahead in Tennessee's 9th Congressional District?**\
+`Track the latest polls in Tennessee's 9th Congressional District.`\
+https://www.nytimes.com/interactive/polls/tennessee-us-house-9-polls-2026.html
+
+**As the SpaceX Hype Machine Steamrolls Ahead, Wall Street Jumps Aboard**\
+`Elon Musk and his bankers are working to create a self-fulfilling prophecy for the massive public offering: Make investors feel that the risks of passing it up outweigh those of buying into it.`\
+https://www.nytimes.com/2026/05/29/business/spacex-ipo-wall-street.html
+
 **Who is Ahead in Hawaii's 1st Congressional District?**\
 `Track the latest polls in Hawaii's 1st Congressional District.`\
 https://www.nytimes.com/interactive/polls/hawaii-us-house-1-polls-2026.html
