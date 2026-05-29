@@ -1,3 +1,7 @@
+**Rescuers Free Miner Trapped Inside a Cave in Laos**\
+`One of the miners trapped inside a cave for more than a week was freed on Friday. Rescue crews are still working to pull out four more miners and find two others who are missing.`\
+https://www.nytimes.com/video/world/asia/100000010933491/laos-cave-rescue.html
+
 **What’s Next for Blue Origin After Rocket Explosion**\
 `Jeff Bezos was gaining ground on Elon Musk’s SpaceX and Starlink. Thursday’s rocket explosion on a launchpad creates a major setback.`\
 https://www.nytimes.com/2026/05/29/technology/blue-origin-amazon-rocket-explosion.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/29/arts/randall-bourscheidt-dead.html
 **Crowds Flood New York City Streets for First Day of Manhattanhenge**\
 `People filled the streets of New York on Thursday to get a glimpse of this year’s first Manhattanhenge. The spectacular view of the sun setting, flanked by the city’s streetscapes, will also occur on Friday and July 11 and 12.`\
 https://www.nytimes.com/video/science/earth/100000010932609/manhattanhenge-nyc-sky-crowds.html
-
-**For Wall Street, the Only Thing Worse Than SpaceX Flopping Is Missing Out**\
-`Elon Musk and his bankers are working to create a self-fulfilling prophecy for the massive public offering: Make investors feel that the risks of passing it up outweigh those of buying into it.`\
-https://www.nytimes.com/2026/05/29/business/spacex-ipo-wall-street.html
 
