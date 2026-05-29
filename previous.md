@@ -1,3 +1,11 @@
+**Israeli Troops Push Deeper Into Lebanon as Cease-Fire Talks Continue**\
+`Prime Minister Benjamin Netanyahu said Israeli ground forces had crossed Lebanon’s Litani River, as military officials from the two countries were set to meet for U.S.-brokered talks.`\
+https://www.nytimes.com/2026/05/29/world/middleeast/israel-lebanon-litani-troops-talks.html
+
+**Louisiana Approves Map Eliminating a Majority-Black District**\
+`A Supreme Court court ruling last month rejected the state’s previous congressional map as an illegal racial gerrymander and set off a redistricting race across the South.`\
+https://www.nytimes.com/2026/05/29/us/politics/louisiana-redistricting-map-majority-black-district.html
+
 **Un agente del ICE imputado por un tiroteo en Minnesota es arrestado en Texas**\
 `Christian Castro, quien había sido imputado con cargos de asalto en el tiroteo a un hombre venezolano durante la represión de la inmigración en Minnesota, fue puesto bajo custodia el viernes por la mañana.`\
 https://www.nytimes.com/es/2026/05/29/espanol/estados-unidos/ice-agente-tiroteo-arresto.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/live/2026/05/29/nyregion/penn-station-fire-amtrak-nyc
 **Russian Drone Hits Romanian Apartment Building**\
 `Romanian officials said a Russian attack drone hit an apartment building in the city of Galati on Friday, injuring two people.`\
 https://www.nytimes.com/video/world/europe/100000010932571/russian-drone-romania-apartments.html
-
-**‘The Headlines’ News Quiz: May 29, 2026**\
-`Following the news? Tracy Mumford has some questions for you.`\
-https://www.nytimes.com/2026/05/29/podcasts/the-headlines/the-headlines-news-quiz-may-29-2026.html
-
-**Uber to Offer Shuttles for Fans Leaving World Cup Matches**\
-`Soccer lovers frustrated by public transportation will have another option to return to Boston, Dallas, Miami and New York from hard-to-reach stadiums.`\
-https://www.nytimes.com/2026/05/29/travel/uber-soccer-world-cup-shuttles.html
 
