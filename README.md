@@ -1,3 +1,7 @@
+**A.I. Doesn’t Have to Mean Layoffs**\
+`A French multinational, Schneider Electric, decided to use artificial intelligence in manufacturing to make workers more productive, rather than to replace them. Here’s how that’s going.`\
+https://www.nytimes.com/2026/05/29/business/economy/ai-jobs-productivity.html
+
 **Ecuador alberga un tesoro secreto de serpientes raras**\
 `En las zonas bajas de la Amazonía ecuatoriana, un agricultor de 101 años y un joven científico convirtieron una colección informal en un estudio científico de uno de los hábitats de serpientes más diversos del planeta.`\
 https://www.nytimes.com/es/2026/05/29/espanol/ciencia-y-tecnologia/ecuadore-serpientes-raras.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/05/29/world/asia/japan-census-populatio
 **Shrey Parikh Wins Scripps National Spelling Bee After Tense Spell-Off**\
 `Shrey Parikh, a 14-year-old from California, claimed the 2026 Scripps National Spelling Bee title on Thursday in a dramatic spell-off that tested his speed and precision.`\
 https://www.nytimes.com/video/us/100000010932226/spelling-bee-shrey-parikh.html
-
-**Los hombres jóvenes que pueden influir en las elecciones intermedias de EE. UU.**\
-`Muchos hombres de la generación Z que votaron por Donald Trump están consternados por su mandato. Pero dicen que tampoco escuchan un discurso atractivo de los demócratas.`\
-https://www.nytimes.com/es/2026/05/29/espanol/estados-unidos/trump-elecciones-intermedias-aprobacion-jovenes.html
 
