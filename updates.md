@@ -1,3 +1,7 @@
+**Scripps Spelling Bee Live Updates: Shrey Parikh Triumphs After Tense Spell-Off**\
+`The 14-year-old from California spelled a record 32 words correctly in 90 seconds to prevail in the competition, clinching the victory with the winning word “bromocriptine.”`\
+https://www.nytimes.com/live/2026/05/28/us/scripps-spelling-bee
+
 **Should We Let Robots Kill People?**\
 `Are we ready for autonomous drones to make life-and-death decisions on the battlefield? Christian Brose, the chief strategy officer of Anduril Industries, explains on “Interesting Times” that the Pentagon’s official policy leaves the door for autonomous weapons wide open.`\
 https://www.nytimes.com/video/opinion/100000010921316/should-we-let-robots-kill-people.html
