@@ -1,3 +1,11 @@
+**tk**\
+`tk`\
+https://static01.nyt.com/slideshow/2026/05/29/arts/tk.html
+
+**¿La creatina puede ayudar durante la menopausia?**\
+`Los influentes están promocionando la creatina, un suplemento muy popular entre los atletas y culturistas, para ayudar a combatir la pérdida de masa muscular y el deterioro de la memoria en esta época de la vida.`\
+https://www.nytimes.com/es/2026/05/29/espanol/creatina-menopausia.html
+
 **Review: ‘Girls Girls Chance Chance Music Music’ Loves a Good Riff**\
 `In Eisa Davis’s new play with live music, at the Vineyard Theater, gifted teenagers find their own rhythms at a summer music program.`\
 https://www.nytimes.com/2026/05/29/theater/girls-girls-chance-chance-music-music-review-eisa-davis.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/05/29/realestate/san-francisco-ai-housing-market.ht
 **NYC Pride Events 2026: Where to Celebrate**\
 `Get ready for drag shows, marches, musicals, parades and a “Heated Rivalry” parody.`\
 https://www.nytimes.com/2026/05/29/arts/pride-events-nyc.html
-
-**‘Backrooms’ Is Part of a Boomlet in Movies From YouTube Creators**\
-`“Backrooms,” a psychological horror flick opening this weekend, is part of a wave of breakout films from fledgling directors who honed their instincts on YouTube.`\
-https://www.nytimes.com/2026/05/29/business/media/backrooms-film-youtube.html
-
-**In ‘Fallen Angels,’ Kelli O’Hara and Rose Byrne Get Laughs Getting Sloshed**\
-`The Tony-nominated stars of “Fallen Angels” demonstrate how to act drunk onstage and have a hilarious hangover.`\
-https://www.nytimes.com/2026/05/29/theater/kelli-ohara-rose-byrne-fallen-angels-broadway.html
 
