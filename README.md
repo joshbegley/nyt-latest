@@ -1,3 +1,7 @@
+**Claude Bessy, Who Ruled Paris Opera Ballet School, Dies at 93**\
+`A tall, commanding ballerina, she led one of the world’s top dance institutions for decades, though her rigorous methods eventually drew criticism.`\
+https://www.nytimes.com/2026/05/29/arts/dance/claude-bessy-dead.html
+
 **Rescuers Free Miner Trapped Inside a Cave in Laos**\
 `One of the miners trapped inside a cave for more than a week was freed on Friday. Rescue crews are still working to pull out four more miners and find two others who are missing.`\
 https://www.nytimes.com/video/world/asia/100000010933491/laos-cave-rescue.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/29/briefing/today-in-short.html
 **Randall Bourscheidt, Wide-Ranging Arts Advocate, Dies at 81**\
 `He helped triple New York City’s arts budget, led research to promote cultural funding and supported artists with H.I.V. and AIDS.`\
 https://www.nytimes.com/2026/05/29/arts/randall-bourscheidt-dead.html
-
-**Crowds Flood New York City Streets for First Day of Manhattanhenge**\
-`People filled the streets of New York on Thursday to get a glimpse of this year’s first Manhattanhenge. The spectacular view of the sun setting, flanked by the city’s streetscapes, will also occur on Friday and July 11 and 12.`\
-https://www.nytimes.com/video/science/earth/100000010932609/manhattanhenge-nyc-sky-crowds.html
 
