@@ -94,8 +94,8 @@ https://www.nytimes.com/video/us/politics/100000010931638/bessent-treasury-trump
 `Video captured flames engulfing an apartment building in Dallas on Thursday.`\
 https://www.nytimes.com/video/us/100000010931758/fire-dallas-apartment-building.html
 
-**Scripps Spelling Bee Live Updates: 4 Spellers Remain in the Quest for Word Domination**\
-`A devastating round ousted four contestants in quick succession, while a fifth was eliminated by “Quincke tube.”`\
+**Scripps Spelling Bee Live Updates: 3 Spellers Remain in the Quest for Word Domination**\
+`A devastating round ousted four contestants in quick succession, while two others were eliminated by “Quincke tube” and “cara sposa.”`\
 https://www.nytimes.com/live/2026/05/28/us/scripps-spelling-bee
 
 **A Democrat’s Dodge on AIPAC Points to the Party’s Tensions Over Israel**\
