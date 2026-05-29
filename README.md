@@ -187,7 +187,7 @@ https://www.nytimes.com/2026/05/29/opinion/young-men-masculinity-crisis.html
 https://www.nytimes.com/2026/05/29/business/energy-environment/nextera-energy-florida-politics-dominion.html
 
 **Times/Siena Poll: 43% of Voters Dissatisfied With Both Parties**\
-`Persistent frustration over the economy and foreign policy have left many Americans feeling politically homeless, and young voters are particularly frustrated.`\
+`Persistent frustration over the economy and foreign policy has left many Americans feeling politically homeless, and young voters are particularly frustrated.`\
 https://www.nytimes.com/2026/05/29/polls/dissatisfied-voters.html
 
 **This Dancer Is Helping to Expand What a Ballet Body Can Be**\
