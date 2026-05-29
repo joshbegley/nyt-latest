@@ -22,7 +22,7 @@ https://www.nytimes.com/2026/05/29/nyregion/ice-masks-hochul-ny.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/05/29/crosswords/spelling-bee-forum.html
 
-**Russian Drone Hits Romanian Apartment Building**\
+**Russian Drone Hits Romanian Apartment Building, Officials Say**\
 `NATO condemned “Russia’s recklessness” and confirmed that it was in touch with the Romanian authorities.`\
 https://www.nytimes.com/2026/05/29/world/europe/romania-drone-russia-ukraine.html
 
