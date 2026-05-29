@@ -1,3 +1,15 @@
+**Hooters se reinventa como restaurante familiar**\
+`La cadena conocida por sus pequeños uniformes y sus “noches en bikini” intenta cambiar su imagen. ¿Alguien quiere un pañalero de Hooters?`\
+https://www.nytimes.com/es/2026/05/29/espanol/estilos-de-vida/hooters-familias-ninos.html
+
+**Palabra del día en inglés: ‘diatribe’**\
+`Esta palabra ha aparecido en 31 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/05/29/espanol/que-significa-diatribe.html
+
+**Word of the Day: diatribe**\
+`This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/05/29/learning/word-of-the-day-diatribe.html
+
 **Hungary Showed How to Defeat an Autocrat**\
 `Hungary did it. The United States can, too.`\
 https://www.nytimes.com/2026/05/29/opinion/hungary-win-election-viktor-orban.html
