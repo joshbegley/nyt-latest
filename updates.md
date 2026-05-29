@@ -1,3 +1,27 @@
+**Blue Origin Rocket Explodes on Florida Launchpad**\
+`A rocket built by the Jeff Bezos-owned space company, Blue Origin, blew up during a test at the Cape Canaveral Space Force Station in Florida.`\
+https://www.nytimes.com/video/science/space/100000010932440/blue-origin-rocket-explosion-florida.html
+
+**These Parents Wanted Their Children’s Park Back. They Finally Got It.**\
+`George Washington Bridge Park, also known as Dolphin Park, had been closed for nearly a decade, but residents in Manhattan pushed relentlessly for its reopening.`\
+https://www.nytimes.com/2026/05/29/nyregion/dolphin-park-reopens-washington-heights.html
+
+**The Knicks’ Playoff Run Has Brought a Peculiar Harmony to New York**\
+`The team’s playoff run has brought a curious sense of amity to the city.`\
+https://www.nytimes.com/2026/05/29/nyregion/knicks-nba-finals-nyc.html
+
+**Natural Light. Soaring Ceilings. At Penn Station? That’s the Plan.**\
+`A week after Amtrak selected a developer to remake the dreary rail hub, details of its rebirth are emerging. The cost is less clear.`\
+https://www.nytimes.com/2026/05/29/nyregion/nyc-penn-station-renovation.html
+
+**New York Wants to Restrict ICE Enforcement. ICE Has Other Ideas.**\
+`New York leaders changed state immigration laws to hold federal agents accountable for their deportation tactics, but their efforts will face opposition from the Trump administration.`\
+https://www.nytimes.com/2026/05/29/nyregion/ice-masks-hochul-ny.html
+
+**NYT Spelling Bee Answers for May 29, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/29/crosswords/spelling-bee-forum.html
+
 **Russian Drone Hits Romanian Apartment Building**\
 `NATO condemned “Russia’s recklessness” and confirmed that it was in touch with the Romanian authorities.`\
 https://www.nytimes.com/2026/05/29/world/europe/romania-drone-russia-ukraine.html
