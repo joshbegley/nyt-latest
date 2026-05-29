@@ -1,3 +1,11 @@
+**Why ‘What Are You Wearing?’ Videos Are Everywhere**\
+`Plus an Everlane founder’s next venture, a streetwear tux and yet another toe-baring shoe.`\
+https://www.nytimes.com/2026/05/29/style/fit-check-videos.html
+
+**Research Funding Slows Again for Universities Targeted by White House**\
+`The National Science Foundation lifted a hold on some grants for Harvard and other universities this week after inquiries from media outlets, including The New York Times.`\
+https://www.nytimes.com/2026/05/29/us/politics/trump-university-research-funding.html
+
 **Overlooked No More: Nancy Sheung, Whose Camera Captured Women on Their Own Terms**\
 `In 1960s Hong Kong, she used photography to portray women as bold, self-possessed and unconstrained by traditional expectations.`\
 https://www.nytimes.com/2026/05/29/obituaries/nancy-sheung-overlooked.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/05/29/world/europe/romania-drone-strike-what-to-kno
 **Stranded in the Strait of Hormuz**\
 `We hear from two of the thousands of seafarers who became stuck in the middle of the war.`\
 https://www.nytimes.com/2026/05/29/podcasts/the-daily/iran-strait-of-hormuz-ships.html
-
-**Can You Use Dirty Rubber Bands in the Kitchen?**\
-`A ruling on a cleanliness dispute.`\
-https://www.nytimes.com/interactive/2026/05/29/magazine/washing-rubber-bands-hodgman-quiz.html
-
-**U.S. Ramps Up Deadly Boat Strikes, and What Trump’s Stock Trades Show**\
-`Plus, the Friday news quiz.`\
-https://www.nytimes.com/2026/05/29/podcasts/the-headlines/us-ramps-up-deadly-boat-strikes-and-what-trumps-stock-trades-show.html
 
