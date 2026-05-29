@@ -1,3 +1,7 @@
+**Flashback: Your Weekly History Quiz, May 30, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/05/29/upshot/flashback.html
+
 **After Orban’s Defeat, Hungary Is Poised to Get Billions From E.U.**\
 `The European Union is set to release 16 billion euros it had withheld, as Hungary moves to enact anti-corruption and rule of law policies.`\
 https://www.nytimes.com/2026/05/29/world/europe/eu-hungary-funds.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/05/29/crosswords/strands-sidekick-818.html
 **Today’s Wordle Review for May 30, 2026**\
 `Scroll down for hints and conversation about the puzzle for Saturday, May 30, 2026.`\
 https://www.nytimes.com/2026/05/29/crosswords/wordle-review-1806.html
-
-**Iran War Live Updates: Trump Says He’ll Soon Make ‘Final Determination’ on Iran Proposal**\
-`The president said on social media that Iran must agree to concessions he has demanded, and that he was poised to lift the naval blockade of the Strait of Hormuz. Iran has not confirmed any commitments.`\
-https://www.nytimes.com/live/2026/05/29/world/iran-war-us-trump-deal
 
