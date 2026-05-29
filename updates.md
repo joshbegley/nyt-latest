@@ -1,3 +1,7 @@
+**America Has a Masculinity Crisis**\
+`A much-needed, nuanced conversation about masculinity and feminism today.`\
+https://www.nytimes.com/2026/05/29/opinion/young-men-masculinity-crisis.html
+
 **Luka Doncic on Trying to Bring an N.B.A. Team to Rome**\
 `The superstar is part of group that has bought a basketball team in Italy, with a plan to move the club to Rome in hopes of making it part of a new league.`\
 https://www.nytimes.com/2026/05/29/business/media/luka-doncic-nba-owner-rome.html
