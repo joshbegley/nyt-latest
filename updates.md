@@ -1,3 +1,7 @@
+**What’s Next for Blue Origin After Rocket Explosion**\
+`Jeff Bezos was gaining ground on Elon Musk’s SpaceX and Starlink. Thursday’s rocket explosion on a launchpad creates a major setback.`\
+https://www.nytimes.com/2026/05/29/technology/blue-origin-amazon-rocket-explosion.html
+
 **Bus Crash in Virginia Kills 5 and Injures More Than 40**\
 `The bus was traveling in a southbound lane on I-95 near Quantico, Va., when it failed to slow for traffic in a work zone, the authorities said.`\
 https://www.nytimes.com/2026/05/29/us/bus-crash-virginia.html
