@@ -1,3 +1,19 @@
+**Families Settle Suit Over Deaths in Baltimore Bridge Collapse**\
+`The owner and the operator of the cargo ship that crashed into the Key Bridge settled cases brought by several victims’ families, but other claims are headed to trial.`\
+https://www.nytimes.com/2026/05/28/us/baltimore-key-bridge-lawsuit-settlements.html
+
+**In Massive Explosion, a Blue Origin Rocket Blows Up on the Launchpad**\
+`The rocket, built by Jeff Bezos’ space company, was to carry 48 satellites for Amazon’s Leo internet constellation, a competitor to SpaceX’s Starlink network.`\
+https://www.nytimes.com/2026/05/28/science/blue-origin-explosion-rocket.html
+
+**NYT Crossword Answers for May 29, 2026**\
+`Hemant Mehta opens our solving weekend.`\
+https://www.nytimes.com/2026/05/28/crosswords/daily-puzzle-2026-05-29.html
+
+**3 Dead After Large Fire at Dallas Apartment Building**\
+`A damaged gas line led to a five-alarm fire in the Oak Cliff neighborhood. At least four were injured, and firefighters believe they may find more victims.`\
+https://www.nytimes.com/2026/05/28/us/3-dead-after-large-fire-at-dallas-apartment-building.html
+
 **‘Hacks’ Leaves Them Laughing**\
 `In an interview, Jean Smart and Hannah Einbinder discuss the series finale, their offscreen relationship and why comedy is just like sex.`\
 https://www.nytimes.com/2026/05/28/arts/television/hacks-ends-jean-smart-hannah-einbinder.html
@@ -98,8 +114,8 @@ https://www.nytimes.com/video/us/politics/100000010931638/bessent-treasury-trump
 `Video captured flames engulfing an apartment building in Dallas on Thursday.`\
 https://www.nytimes.com/video/us/100000010931758/fire-dallas-apartment-building.html
 
-**Scripps Spelling Bee Live Updates: 2 Spellers Remain in the Quest for Word Domination**\
-`A devastating round ousted four contestants in quick succession, while three others were eliminated by “Quincke tube,” “cara sposa” and “disa.”`\
+**Scripps Spelling Bee Live Updates: 2 Spellers Head to a High-Speed Spell-Off**\
+`The remaining finalists, Shrey Parikh and Ishaan Gupta, have 90 seconds to spell as many words correctly as possible.`\
 https://www.nytimes.com/live/2026/05/28/us/scripps-spelling-bee
 
 **A Democrat’s Dodge on AIPAC Points to the Party’s Tensions Over Israel**\
@@ -169,20 +185,4 @@ https://www.nytimes.com/2026/05/28/arts/music/freedom-concerts-young-mc-milli-va
 **Scooter Rider and Cyclist Are Killed in Head-On Crash on N.Y.C. Bridge**\
 `The collision on the Queensboro Bridge involved an e-scooter that is not legally allowed to be used on the streets of New York.`\
 https://www.nytimes.com/2026/05/28/nyregion/queensboro-bridge-nyc-bike-scooter-crash-deaths.html
-
-**Where Do E. Jean Carroll’s Lawsuits Against President Trump Stand?**\
-`Two monetary judgments against Mr. Trump are winding their way through the legal system, with the Supreme Court likely to be the final word on both.`\
-https://www.nytimes.com/2026/05/28/us/politics/e-jean-carroll-trump-lawsuits.html
-
-**The Dream of a $50 Dinner Is Still Alive at These Restaurants**\
-`Drinks, two entrees and an appetizer or dessert don’t have to break the bank.`\
-https://www.nytimes.com/2026/05/28/dining/the-dream-of-a-50-dinner-is-still-alive-at-these-restaurants.html
-
-**Finding Wisdom in a Poem by Wendy Cope**\
-`A.O. Scott seeks practical advice in a villanelle by Wendy Cope.`\
-https://www.nytimes.com/interactive/2026/05/28/books/poem-wisdom-wendy-cope.html
-
-**Quarantine Unit for Americans Exposed to Ebola to Open in Kenya Friday**\
-`But U.S. officials are still working to find centers in Europe to accept Americans who need advanced treatment, seen as critical to improving odds of survival.`\
-https://www.nytimes.com/2026/05/28/us/quarantine-americans-ebola-kenya.html
 
