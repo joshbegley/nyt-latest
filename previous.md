@@ -1,3 +1,7 @@
+**EE. UU. e Irán se acercan a un acuerdo provisional: lo que hay que saber**\
+`Funcionarios estadounidenses e iraníes afirman que se acercan a los términos de un acuerdo preliminar. Sin embargo, aún existen puntos conflictivos, sobre todo en relación con el estrecho de Ormuz.`\
+https://www.nytimes.com/es/2026/05/29/espanol/mundo/trump-iran-acuerdo-estados-unidos.html
+
 **Roller Coaster Breaks, Stranding 8 Riders Nearly 100 Feet in the Air**\
 `The Iron Shark roller coaster at the Galveston Island Historic Pleasure Pier malfunctioned on Thursday, trapping eight people almost 100 feet in the air for around four hours.`\
 https://www.nytimes.com/video/us/100000010932939/texas-roller-coaster-breaks.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/05/29/world/europe/nato-article-4-romania-russia.ht
 **The $900 Billion Giant: How Anthropic Got So Big, So Fast**\
 `The artificial intelligence giant was just valued at $900 billion, surpassing OpenAI. Here are the numbers behind its rise — and headwinds it faces.`\
 https://www.nytimes.com/2026/05/29/business/dealbook/anthropic-ai-openai.html
-
-**Luka Doncic on Trying to Bring an N.B.A. Team to Rome**\
-`The superstar is part of group that has bought a basketball team in Italy, with a plan to move the club to Rome in hopes of making it part of a new league.`\
-https://www.nytimes.com/2026/05/29/business/media/luka-doncic-nba-owner-rome.html
 
 **Maintenance Train Fire at Penn Station Injures 5 and Disrupts Rail Service**\
 `An overnight fire on a maintenance train was still affecting service on NJ Transit and Amtrak as of midmorning on Friday.`\

@@ -1,3 +1,7 @@
+**EE. UU. e Irán se acercan a un acuerdo provisional: lo que hay que saber**\
+`Funcionarios estadounidenses e iraníes afirman que se acercan a los términos de un acuerdo preliminar. Sin embargo, aún existen puntos conflictivos, sobre todo en relación con el estrecho de Ormuz.`\
+https://www.nytimes.com/es/2026/05/29/espanol/mundo/trump-iran-acuerdo-estados-unidos.html
+
 **Roller Coaster Breaks, Stranding 8 Riders Nearly 100 Feet in the Air**\
 `The Iron Shark roller coaster at the Galveston Island Historic Pleasure Pier malfunctioned on Thursday, trapping eight people almost 100 feet in the air for around four hours.`\
 https://www.nytimes.com/video/us/100000010932939/texas-roller-coaster-breaks.html
