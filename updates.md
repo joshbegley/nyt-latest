@@ -1,3 +1,7 @@
+**Hungary Showed How to Defeat an Autocrat**\
+`Hungary did it. The United States can, too.`\
+https://www.nytimes.com/2026/05/29/opinion/hungary-win-election-viktor-orban.html
+
 **Scripps Spelling Bee 2026 Takeaways: Shrey Parikh Wins in Spell-Off**\
 `The competition came down to a spell-off. Contestants were eliminated early, and a sixth grader became a crowd favorite.`\
 https://www.nytimes.com/2026/05/28/us/scripps-spelling-bee-takeaways-winner.html
