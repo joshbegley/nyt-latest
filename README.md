@@ -1,4 +1,8 @@
-**Italian Police Uncover Dead Mob Boss’ $230 Million Business Empire**\
+**Death Toll Rises in Washington Paper Mill Explosion**\
+`At least eight are now confirmed dead, and firefighters believe there are three more bodies they have yet to reach, making the crisis the worst industrial disaster in the state’s modern history.`\
+https://www.nytimes.com/2026/05/28/us/longview-washington-paper-mill-death-toll.html
+
+**Italian Police Uncover Dead Mob Boss’s $230 Million Business Empire**\
 `When Matteo Messina Denaro died in 2023, many of his secrets died with him. That began to change with a tip about a wealthy Sicilian woman’s significant assets in a tiny European principality.`\
 https://www.nytimes.com/2026/05/28/world/europe/messina-denaro-mafia-assets.html
 
@@ -177,10 +181,6 @@ https://www.nytimes.com/es/2026/05/28/espanol/estados-unidos/trump-carroll-abuso
 **Memphis Residents Sue Federal Agents Over Arrest Tactics Amid Crime and Immigration Crackdown**\
 `A federal task force in the city has been targeting crime and undocumented immigrants since October. Observers say they have faced retaliation for trying to track the agents’ work.`\
 https://www.nytimes.com/2026/05/28/us/memphis-arrest-tactics-lawsuit.html
-
-**Supreme Court Says Death Row Inmate Can Challenge Exclusion of Black Jurors**\
-`Terry Pitchford was convicted in 2006 for his role in the murder of a shopkeeper by a 12-member jury that included one Black member.`\
-https://www.nytimes.com/2026/05/28/us/politics/supreme-court-black-jurors.html
 
 **Iran War Live Updates: U.S. Officials Say They Are Closing In on Arrangement to Reopen Strait of Hormuz**\
 `President Trump has not signed off on the emerging framework, according to U.S. officials. But it could set the table for extending the cease-fire and more substantive negotiations.`\
