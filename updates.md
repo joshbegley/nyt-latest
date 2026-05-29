@@ -1,3 +1,15 @@
+**Who is Ahead in Hawaii's 1st Congressional District?**\
+`Track the latest polls in Hawaii's 1st Congressional District.`\
+https://www.nytimes.com/interactive/polls/hawaii-us-house-1-polls-2026.html
+
+**ICE Agent Charged in Minnesota Shooting Is Arrested in Texas**\
+`Christian Castro, who had been charged with assault in the shooting of a Venezuelan man during the immigration crackdown in Minnesota, was taken into custody Friday morning.`\
+https://www.nytimes.com/2026/05/29/us/ice-agent-arrested-minnesota-shooting-immigrant.html
+
+**As the SpaceX Hype Machine Steamrolls Ahead, Wall Street Jumps Aboard**\
+`Elon Musk and his bankers are working to create a self-fulfilling prophecy for SpaceX’s massive initial public offering: Make investors feel that the risks of passing up the stock outweigh those of buying into it.`\
+https://www.nytimes.com/2026/05/29/business/spacex-ipo-wall-street.html
+
 **Who Is Ahead in Virginia's 6th Congressional District?**\
 `Track the latest polls in Virginia's 6th Congressional District.`\
 https://www.nytimes.com/interactive/polls/virginia-us-house-6-polls-2026.html

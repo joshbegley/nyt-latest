@@ -1,3 +1,19 @@
+**After Orban’s Defeat, Hungary Is Poised to Get Billions From E.U.**\
+`The European Union is set to release 16 billion euros it had withheld, as Hungary moves to enact anti-corruption and rule of law policies.`\
+https://www.nytimes.com/2026/05/29/world/europe/eu-hungary-funds.html
+
+**Bus Crash in Virginia Kills 5 and Injures More Than 30**\
+`The bus was traveling in a southbound lane on I-95 near Quantico, Va., when it failed to slow for traffic in a work zone, the authorities said.`\
+https://www.nytimes.com/2026/05/29/us/bus-crash-virginia.html
+
+**One of Five Gold Miners Is Rescued From Laos Cave After More Than a Week**\
+`An international effort to free the trapped men brought attention to the country’s informal mines, where panning for gold can pay more than minimum wage.`\
+https://www.nytimes.com/2026/05/29/world/asia/laos-cave-rescue.html
+
+**Who is Ahead in Tennessee's 9th Congressional District?**\
+`Track the latest polls in Tennessee's 9th Congressional District.`\
+https://www.nytimes.com/interactive/polls/tennessee-us-house-9-polls-2026.html
+
 **Who is Ahead in Hawaii's 1st Congressional District?**\
 `Track the latest polls in Hawaii's 1st Congressional District.`\
 https://www.nytimes.com/interactive/polls/hawaii-us-house-1-polls-2026.html
@@ -27,7 +43,7 @@ https://www.nytimes.com/2026/05/29/arts/randall-bourscheidt-dead.html
 https://www.nytimes.com/video/science/earth/100000010932609/manhattanhenge-nyc-sky-crowds.html
 
 **As the SpaceX Hype Machine Steamrolls Ahead, Wall Street Jumps Aboard**\
-`Elon Musk and his bankers are working to create a self-fulfilling prophecy for SpaceX’s massive initial public offering: Make investors feel that the risks of passing up the stock outweigh those of buying into it.`\
+`Elon Musk and his bankers are working to create a self-fulfilling prophecy for the massive public offering: Make investors feel that the risks of passing it up outweigh those of buying into it.`\
 https://www.nytimes.com/2026/05/29/business/spacex-ipo-wall-street.html
 
 **How Bad Are President Trump’s Approval Ratings?**\
@@ -177,20 +193,4 @@ https://www.nytimes.com/2026/05/29/crosswords/wordle-review-1806.html
 **Iran War Live Updates: Trump Says He’ll Soon Make ‘Final Determination’ on Iran Proposal**\
 `The president said on social media that Iran must agree to concessions he has demanded, and that he was poised to lift the naval blockade of the Strait of Hormuz. Iran has not confirmed any commitments.`\
 https://www.nytimes.com/live/2026/05/29/world/iran-war-us-trump-deal
-
-**Share & Eat the Rich & Tell with Tim Miller and Stephanie Ruhle**\
-`Regulating the billionaire class — with a little help from Pope Leo XIV.`\
-https://www.nytimes.com/2026/05/29/podcasts/share-eat-the-rich-tell-with-tim-miller-and-stephanie-ruhle.html
-
-**A.I. Doesn’t Have to Mean Layoffs**\
-`A French multinational, Schneider Electric, decided to use artificial intelligence in manufacturing to make workers more productive, rather than to replace them. Here’s how that’s going.`\
-https://www.nytimes.com/2026/05/29/business/economy/ai-jobs-productivity.html
-
-**Ecuador alberga un tesoro secreto de serpientes raras**\
-`En las zonas bajas de la Amazonía ecuatoriana, un agricultor de 101 años y un joven científico convirtieron una colección informal en un estudio científico de uno de los hábitats de serpientes más diversos del planeta.`\
-https://www.nytimes.com/es/2026/05/29/espanol/ciencia-y-tecnologia/ecuadore-serpientes-raras.html
-
-**Los ataques a embarcaciones no han detenido el tráfico de cocaína a EE. UU., según expertos**\
-`El número de muertes aumenta en las costas sudamericanas, pero los especialistas aseguran que la cocaína es tan fácil de conseguir en muchas partes de Estados Unidos como antes de que comenzara la campaña.`\
-https://www.nytimes.com/es/2026/05/29/espanol/america-latina/ataques-embarcaciones-flujo-cocaina.html
 
