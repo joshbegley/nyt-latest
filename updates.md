@@ -1,3 +1,11 @@
+**Should We Let Robots Kill People?**\
+`Are we ready for autonomous drones to make life-and-death decisions on the battlefield? Christian Brose, the chief strategy officer of Anduril Industries, explains on “Interesting Times” that the Pentagon’s official policy leaves the door for autonomous weapons wide open.`\
+https://www.nytimes.com/video/opinion/100000010921316/should-we-let-robots-kill-people.html
+
+**Blue Origin Rocket Blows Up on Florida Launchpad During Test**\
+`The rocket, built by the Jeff Bezos-owned space company, was to carry 48 satellites into space. Blue Origin reported on social media that “all personnel have been accounted for.”`\
+https://www.nytimes.com/2026/05/28/science/blue-origin-explosion-rocket.html
+
 **Is the U.S. Prepared for a Major War?**\
 `America has fired “something like eight years’ worth of Tomahawk missile production” in Iran, Christian Brose, the chief strategy officer of Anduril Industries, says on “Interesting Times,” where he and the Opinion columnist Ross Douthat discuss the limitations of America’s arsenal of “luxury” weapons.`\
 https://www.nytimes.com/video/opinion/100000010921317/is-the-us-prepared-for-a-major-war.html
