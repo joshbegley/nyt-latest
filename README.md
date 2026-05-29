@@ -1,3 +1,11 @@
+**Federal Judge Bars Trump From Immediately Setting Up $1.8 Billion Fund**\
+`A judge in Virginia temporarily blocked the Trump administration from transferring money in or out of the fund until the court could hear arguments in June.`\
+https://www.nytimes.com/2026/05/29/us/politics/federal-judge-trump-fund.html
+
+**Trump Clears Way for Companies to Avoid Taxes in Havens Including Malta and Cyprus**\
+`U.S. companies skirted at least $40 billion in taxes since the beginning of 2025 thanks to schemes in places like Malta, Bermuda and Cyprus.`\
+https://www.nytimes.com/2026/05/29/business/economy/offshore-tax-havens-trump.html
+
 **tk**\
 `tk`\
 https://static01.nyt.com/slideshow/2026/05/29/arts/tk.html
@@ -62,7 +70,7 @@ https://www.nytimes.com/2026/05/29/podcasts/29hardfork-waymo-interesting-times.h
 `What’s happening with the paint on the National Mall?`\
 https://www.nytimes.com/2026/05/29/briefing/pool-problems.html
 
-**Were Romanian Casualties From a Russian Drone Strike Inevitable?**\
+**What to Know About the Drones That Have Been Crossing Into Romania**\
 `The strike on Friday, near the Ukrainian border, was the first to injure civilians in Romania, officials say. But drones from the nearby war have been a growing threat.`\
 https://www.nytimes.com/2026/05/29/world/europe/romania-drone-strike-what-to-know.html
 
@@ -146,7 +154,7 @@ https://www.nytimes.com/es/2026/05/29/espanol/opinion/trump-fronteras-paises.htm
 `A reissue chronicles the Joe’s Pub performances of Allen Toussaint, who wrote “Lady Marmalade” and “Working in the Coal Mine,” after Hurricane Katrina forced him out of New Orleans.`\
 https://www.nytimes.com/2026/05/29/arts/music/allen-toussaint-songbook-reissue.html
 
-**Is Spencer Pratt For Real?**\
+**Is Spencer Pratt for Real?**\
 `The former reality star’s dark visions of Los Angeles are resonating in a heated mayoral race, even if they’re far from the truth.`\
 https://www.nytimes.com/2026/05/29/style/spencer-pratt-los-angeles-mayor.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/05/29/arts/television/hacks-series-finale.html
 **The Politics of the Downwardly Mobile Professional Class**\
 `The debate over whether Graham Platner is “working class” comes at a time when more and more people are at risk of falling into it.`\
 https://www.nytimes.com/2026/05/29/magazine/the-politics-of-the-downwardly-mobile-professional-class.html
-
-**A.I. Boom Leads to Record Home Prices in San Francisco**\
-`The Bay Area boasts the highest median home prices in the country and experienced the sharpest annual price increases.`\
-https://www.nytimes.com/2026/05/29/realestate/san-francisco-ai-housing-market.html
-
-**NYC Pride Events 2026: Where to Celebrate**\
-`Get ready for drag shows, marches, musicals, parades and a “Heated Rivalry” parody.`\
-https://www.nytimes.com/2026/05/29/arts/pride-events-nyc.html
 
