@@ -1,3 +1,11 @@
+**3 Latvian Climbers Die in Fall on Mt. McKinley**\
+`The accident occurred at about 18,000 feet in the area of Denali Pass.`\
+https://www.nytimes.com/2026/05/29/us/mt-mckinley-denali-climbers-latvia.html
+
+**Ex-Iowa School Leader Who Was in the U.S. Illegally Sentenced to 2 Years**\
+`Ian Roberts, the former Des Moines superintendent, climbed high in the American education system without legal status in the country.`\
+https://www.nytimes.com/2026/05/29/us/ian-roberts-des-moines-schools-sentence.html
+
 **Nicolas Cage Made Himself a Legend. Then He Had to Live With It.**\
 `Nicolas Cage discusses many of the roles that make up his storied career, along with his most recent project, “Spider-Noir,” his first big foray into TV.`\
 https://www.nytimes.com/video/podcasts/100000010921467/nicolas-cage-made-himself-a-legend-then-he-had-to-live-with-it.html

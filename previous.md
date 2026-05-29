@@ -1,3 +1,11 @@
+**3 Latvian Climbers Die in Fall on Mt. McKinley**\
+`The accident occurred at about 18,000 feet in the area of Denali Pass.`\
+https://www.nytimes.com/2026/05/29/us/mt-mckinley-denali-climbers-latvia.html
+
+**Ex-Iowa School Leader Who Was in the U.S. Illegally Sentenced to 2 Years**\
+`Ian Roberts, the former Des Moines superintendent, climbed high in the American education system without legal status in the country.`\
+https://www.nytimes.com/2026/05/29/us/ian-roberts-des-moines-schools-sentence.html
+
 **Nicolas Cage Made Himself a Legend. Then He Had to Live With It.**\
 `Nicolas Cage discusses many of the roles that make up his storied career, along with his most recent project, “Spider-Noir,” his first big foray into TV.`\
 https://www.nytimes.com/video/podcasts/100000010921467/nicolas-cage-made-himself-a-legend-then-he-had-to-live-with-it.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/05/29/well/family/hacks-age-gap-intergenerational-f
 **TK**\
 `TK`\
 https://static01.nyt.com/slideshow/2026/05/29/t-magazine/food/tk.html
-
-**Woman With No Right Hand Pulled Over for Using Phone in Her Right Hand**\
-`A sheriff’s deputy in Florida pulled a woman over for holding a phone in her right hand, which turned out to be impossible.`\
-https://www.nytimes.com/video/us/100000010932527/woman-pulled-over-phone-no-hand.html
-
-**Maintenance Train Fire at Penn Station Injures 5 and Disrupts Rail Service**\
-`An overnight fire on a maintenance train was still affecting service on NJ Transit and Amtrak as of midmorning on Friday.`\
-https://www.nytimes.com/live/2026/05/29/nyregion/penn-station-fire-amtrak-nyc
 
