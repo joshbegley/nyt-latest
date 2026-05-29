@@ -1,3 +1,15 @@
+**Marc Johnson, Street Skateboarder Who Shaped a Sport’s Culture, Dies at 49**\
+`His appearance in the 2007 film “Fully Flared” helped earn him one of the sport’s most prestigious honors: Thrasher Magazine’s skater of the year.`\
+https://www.nytimes.com/2026/05/29/sports/marc-johnson-skateboarder-dead.html
+
+**A Clean Energy PAC Helped Beat Chip Roy, and Now It Has New Targets**\
+`A PAC representing wind and solar energy interests spent $1.1 million to boost the Republican primary opponent of Chip Roy, an opponent of renewables. Now they are trying to save a Republican ally in Iowa.`\
+https://www.nytimes.com/2026/05/29/climate/clean-energy-pac-chip-roy.html
+
+**For Wall Street, the Only Thing Worse Than SpaceX Flopping Is Missing Out**\
+`Elon Musk and his bankers are working to create a self-fulfilling prophecy for the massive public offering: Make investors feel that the risks of passing it up outweigh those of buying into it.`\
+https://www.nytimes.com/2026/05/29/business/spacex-ipo-wall-street.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000010933618/29vid-Robert-Garcia-embeds-69364.html
