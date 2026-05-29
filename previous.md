@@ -42,6 +42,10 @@ https://www.nytimes.com/2026/05/29/style/taylor-hayes-travis-wickboldt-wedding.h
 `Quotation of the Day for Friday, May TK, 2026.`\
 https://www.nytimes.com/2026/05/28/pageoneplus/quote-of-the-day-ai-now-gives-scams-a-slick-disguise-heres-how-to-tear-it-off.html
 
+**Scripps Spelling Bee 2026 Takeaways: Shrey Parikh Wins in Spell-Off**\
+`The competition came down to a spell-off. Contestants were eliminated early, and a sixth grader became a crowd favorite.`\
+https://www.nytimes.com/2026/05/28/us/scripps-spelling-bee-takeaways-winner.html
+
 **Protesters Arrested at Immigration Detention Center as Tensions Rise**\
 `For nearly a week, relatives of migrants at Delaney Hall have said that some detainees have been on a hunger strike at the New Jersey facility.`\
 https://www.nytimes.com/2026/05/28/nyregion/delaney-hall-newark-ice-protesters-arrest.html

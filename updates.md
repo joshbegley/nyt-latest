@@ -1,3 +1,7 @@
+**Scripps Spelling Bee 2026 Takeaways: Shrey Parikh Wins in Spell-Off**\
+`The competition came down to a spell-off. Contestants were eliminated early, and a sixth grader became a crowd favorite.`\
+https://www.nytimes.com/2026/05/28/us/scripps-spelling-bee-takeaways-winner.html
+
 **8 Are Rescued From Texas Roller Coaster Stuck Almost 100 Feet Off the Ground**\
 `The riders waited for about four hours, facing up, on the roller coaster at the Pleasure Pier park in Galveston. There were no injuries, the authorities said.`\
 https://www.nytimes.com/2026/05/29/us/galveston-texas-iron-shark-rollercoaster-stuck.html
