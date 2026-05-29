@@ -1,3 +1,7 @@
+**A Deputy Saw a Phone in a Hand That Was Not There**\
+`The deputy insisted he saw a driver with a phone in her right hand. That turned out to be impossible, and the case was dropped.`\
+https://www.nytimes.com/2026/05/28/us/a-deputy-saw-a-phone-in-a-hand-that-was-not-there.html
+
 **Death Toll Rises in Washington Paper Mill Explosion**\
 `At least eight are now confirmed dead, and firefighters believe there are three more bodies they have yet to reach, making the crisis the worst industrial disaster in the state’s modern history.`\
 https://www.nytimes.com/2026/05/28/us/longview-washington-paper-mill-death-toll.html

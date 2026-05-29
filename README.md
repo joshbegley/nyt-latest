@@ -87,7 +87,7 @@ https://www.nytimes.com/video/us/politics/100000010931638/bessent-treasury-trump
 https://www.nytimes.com/video/us/100000010931758/fire-dallas-apartment-building.html
 
 **Scripps Spelling Bee Live Updates: Students Battle for Word Domination**\
-`The nine spellers competing against one another — and the dictionary — have taken the stage, and the finals are underway.`\
+`The nine spellers competing against one another — and the dictionary — were perfect through two rounds.`\
 https://www.nytimes.com/live/2026/05/28/us/scripps-spelling-bee
 
 **A Democrat’s Dodge on AIPAC Points to the Party’s Tensions Over Israel**\
