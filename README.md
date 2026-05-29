@@ -1,3 +1,39 @@
+**Europe is Edging Closer to a Trade War With China. Here’s Why.**\
+`As cheap goods pour in, threatening the continent’s manufacturing sector, a search for solutions is becoming increasingly urgent.`\
+https://www.nytimes.com/2026/05/29/world/europe/europe-china-trade-war-electric-cars.html
+
+**She Said Yes. Then a Crowd at Madison Square Garden Cheered.**\
+`Owen Brown met Sophie Everhard 11 years ago at an event where she was working the door. He proposed before a Billie Eilish concert last fall.`\
+https://www.nytimes.com/2026/05/29/style/owen-brown-sophie-everhard-wedding.html
+
+**Corrections: May 29, 2026**\
+`Corrections that appeared in print on Friday, May 29, 2026.`\
+https://www.nytimes.com/2026/05/29/pageoneplus/corrections-may-29-2026.html
+
+**He Wanted to Kiss a Million Times. Could We Do It?**\
+`My optimistic, romantic husband never would have guessed what would happen to us.`\
+https://www.nytimes.com/2026/05/29/style/modern-love-he-wanted-to-kiss-a-million-times.html
+
+**She Dreamed of Getting Married at Grandma’s ‘Pink Castle’**\
+`Korren Campbell wed Jake Degler along the Miles River at her ‘Oma’s’ Alhambra-style pink house, in Easton, Md.`\
+https://www.nytimes.com/2026/05/29/style/korren-campbell-jake-degler-wedding.html
+
+**From Investor to Royal, Then Came a Wedding Fit for a Queen**\
+`When Arian Reed, a founder of an Atlanta-based venture-capital firm built by and for women of color, became a queen in Africa’s Ivory Coast, Benjamin Mougarbel, a Ghanaian businessman, took notice.`\
+https://www.nytimes.com/2026/05/29/style/arian-reed-benjamin-mougarbel-wedding.html
+
+**Finding Someone to ‘Conquer the World’ With**\
+`Elsa Alvarado and Hunter Stoll instantly clicked over politics and a shared love of dogs. Since then, they have fostered four together.`\
+https://www.nytimes.com/2026/05/29/style/elsa-alvarado-hunter-stoll-wedding.html
+
+**Taylor and Travis (Different Ones) Step Into the Spotlight**\
+`Taylor Hayes and Travis Wickboldt of Wisconsin became the face of Zola’s “Wedding of the Year” campaign, appearing on a billboard in Times Square.`\
+https://www.nytimes.com/2026/05/29/style/taylor-hayes-travis-wickboldt-wedding.html
+
+**Quote of the Day: A.I. Now Gives Scams a Slick Disguise. Here’s How to Tear It Off.**\
+`Quotation of the Day for Friday, May TK, 2026.`\
+https://www.nytimes.com/2026/05/28/pageoneplus/quote-of-the-day-ai-now-gives-scams-a-slick-disguise-heres-how-to-tear-it-off.html
+
 **Protesters Arrested at Immigration Detention Center as Tensions Rise**\
 `For nearly a week, relatives of migrants at Delaney Hall have said that some detainees have been on a hunger strike at the New Jersey facility.`\
 https://www.nytimes.com/2026/05/28/nyregion/delaney-hall-newark-ice-protesters-arrest.html
@@ -130,8 +166,8 @@ https://www.nytimes.com/video/us/politics/100000010931638/bessent-treasury-trump
 `Video captured flames engulfing an apartment building in Dallas on Thursday.`\
 https://www.nytimes.com/video/us/100000010931758/fire-dallas-apartment-building.html
 
-**Scripps Spelling Bee Live Updates: Shrey Parikh Triumphs After Tense Spell-Off**\
-`The 14-year-old from California spelled a record 32 words correctly in 90 seconds to prevail in the competition, clinching the victory with the winning word “bromocriptine.”`\
+**Shrey Parikh Triumphs After Tense Spell-Off**\
+`The 14-year-old from California spelled a record 32 words correctly in 90 seconds to prevail in the Scripps National Spelling Bee, clinching the victory with the winning word “bromocriptine.”`\
 https://www.nytimes.com/live/2026/05/28/us/scripps-spelling-bee
 
 **A Democrat’s Dodge on AIPAC Points to the Party’s Tensions Over Israel**\
@@ -145,44 +181,4 @@ https://www.nytimes.com/2026/05/28/business/treasury-trump-250-bill.html
 **Israel to Cut Ties With U.N. Chief Over Its Inclusion on Sexual Violence Blacklist**\
 `The United Nations secretary general, António Guterres, told Israel there had been an “increasing number of cases” of sexual violence against Palestinian detainees, according to a letter shared by Israel’s U.N. ambassador.`\
 https://www.nytimes.com/2026/05/28/world/middleeast/israel-un-abuse-report.html
-
-**Bob Horner, Powerful Slugger in Atlanta and Japan, Dies at 68**\
-`With the Braves, he hit a home run in his major league debut, won the Rookie of the Year Award, and later hit four home runs in a game.`\
-https://www.nytimes.com/2026/05/28/sports/baseball/bob-horner-dead.html
-
-**After an Explosion at a Washington Paper Mill, Mourning Mixes With Dread**\
-`The disaster at the mill in Longview, Wash., which took at least eight lives, was greeted with sadness but not surprise by a community that knew cutbacks and other pressures had raised risks.`\
-https://www.nytimes.com/2026/05/28/us/longview-washington-paper-mill-chemical-explosion.html
-
-**Iran, Gas Prices, the Ballroom: Trump Professes Indifference Over Fallout**\
-`President Trump has increasingly adopted a posture of nonchalance when pushed on the political consequences of his actions.`\
-https://www.nytimes.com/2026/05/28/us/politics/trump-iran-economy-ballroom-midterms.html
-
-**Swallowing Concerns, G.O.P. Senators Rally Behind Paxton**\
-`After attacking the Texas attorney general, who won the G.O.P. nomination, Senate Republicans are pivoting sharply to support him in what is now a competitive race.`\
-https://www.nytimes.com/2026/05/28/us/politics/republican-senators-support-paxton.html
-
-**In Strait of Hormuz Standoff, U.S. and Iran Deploy Economic Warfare**\
-`The American blockade and Iran’s control of the Strait of Hormuz have created a stalemate that is neither peace nor raging conflict, with both sides attempting economic strangulation on the water.`\
-https://www.nytimes.com/2026/05/28/world/middleeast/iran-us-blockade-strait-hormuz.html
-
-**Columbia Demotes Official for Helping Epstein’s Girlfriend Enter Program**\
-`A top administrator at the university’s College of Dental Medicine recommended Karyna Shuliak for an advanced residency program, which he oversaw.`\
-https://www.nytimes.com/2026/05/28/nyregion/columbia-university-epstein-girlfriend-dental-college.html
-
-**A.I.’s Big Next Step**\
-`Three major companies are planning to go public with share sales in the coming months. They could be some of the biggest market debuts in history.`\
-https://www.nytimes.com/2026/05/28/world/ai-ipo-anthropic-openai-spacex-iran.html
-
-**The Man Turning the Cockroach Into a Gen-Z Movement in India**\
-`Abhijeet Dipke’s “Cockroach Janta Party” has emerged as the unexpected voice of young people feeling let down by the government and struggling to find jobs.`\
-https://www.nytimes.com/2026/05/28/world/asia/cockroach-janta-party-india-movement.html
-
-**Protesters Clash with Federal Agents Outside ICE Detention Center in New Jersey**\
-`Protesters and immigration agents clashed outside Delaney Hall detention center in Newark, where activists have gathered for days to denounce conditions inside.`\
-https://www.nytimes.com/video/nyregion/100000010930447/newark-immigration-center-protest.html
-
-**Diesel Fuel Spilled on National Mall During 250th Event Setup**\
-`The Trump administration blamed the two spills on vandalism, though the U.S. Park Police is still investigating the incidents.`\
-https://www.nytimes.com/2026/05/28/climate/diesel-fuel-spill-national-mall.html
 
