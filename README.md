@@ -1,3 +1,7 @@
+**Judge Orders Removal of Trump’s Name From Kennedy Center**\
+`A federal judge in Washington on Friday ordered that the John F. Kennedy Center for the Performing Arts remove President Trump’s name from the building’s facade.`\
+https://www.nytimes.com/video/us/100000010934243/kennedy-center-trump-name-removal.html
+
 **Iran’s Hard-Liners Try to Derail Potential Deal With the U.S.**\
 `A political fight is playing out in Iran, where the small but loud faction of hard-liners has used rallies, state media and private and public statements to try to undermine negotiations.`\
 https://www.nytimes.com/2026/05/29/world/middleeast/irans-hard-liners-deal.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/politics/100000010907491/who-trump-2026-counter
 **The Cruelty of Family Separation**\
 `Readers respond to a news article, “Push to Deport Splits Over 100,000 Families.” Also: The trolling war.`\
 https://www.nytimes.com/2026/05/29/opinion/family-separation-immigation.html
-
-**British Museum Postpones Jewish Cultural Event, Citing Threat of Disruption**\
-`The cancellation comes amid a rise in racial and religious crimes in Britain as well as growing sense of unease for some of London’s Jews.`\
-https://www.nytimes.com/2026/05/29/world/europe/london-british-museum-antisemitsm.html
 
