@@ -1,3 +1,43 @@
+**Europe is Edging Closer to a Trade War With China. Here’s Why.**\
+`As cheap goods pour in, threatening the continent’s manufacturing sector, a search for solutions is becoming increasingly urgent.`\
+https://www.nytimes.com/2026/05/29/world/europe/europe-china-trade-war-electric-cars.html
+
+**She Said Yes. Then a Crowd at Madison Square Garden Cheered.**\
+`Owen Brown met Sophie Everhard 11 years ago at an event where she was working the door. He proposed before a Billie Eilish concert last fall.`\
+https://www.nytimes.com/2026/05/29/style/owen-brown-sophie-everhard-wedding.html
+
+**Corrections: May 29, 2026**\
+`Corrections that appeared in print on Friday, May 29, 2026.`\
+https://www.nytimes.com/2026/05/29/pageoneplus/corrections-may-29-2026.html
+
+**He Wanted to Kiss a Million Times. Could We Do It?**\
+`My optimistic, romantic husband never would have guessed what would happen to us.`\
+https://www.nytimes.com/2026/05/29/style/modern-love-he-wanted-to-kiss-a-million-times.html
+
+**She Dreamed of Getting Married at Grandma’s ‘Pink Castle’**\
+`Korren Campbell wed Jake Degler along the Miles River at her ‘Oma’s’ Alhambra-style pink house, in Easton, Md.`\
+https://www.nytimes.com/2026/05/29/style/korren-campbell-jake-degler-wedding.html
+
+**From Investor to Royal, Then Came a Wedding Fit for a Queen**\
+`When Arian Reed, a founder of an Atlanta-based venture-capital firm built by and for women of color, became a queen in Africa’s Ivory Coast, Benjamin Mougarbel, a Ghanaian businessman, took notice.`\
+https://www.nytimes.com/2026/05/29/style/arian-reed-benjamin-mougarbel-wedding.html
+
+**Finding Someone to ‘Conquer the World’ With**\
+`Elsa Alvarado and Hunter Stoll instantly clicked over politics and a shared love of dogs. Since then, they have fostered four together.`\
+https://www.nytimes.com/2026/05/29/style/elsa-alvarado-hunter-stoll-wedding.html
+
+**Taylor and Travis (Different Ones) Step Into the Spotlight**\
+`Taylor Hayes and Travis Wickboldt of Wisconsin became the face of Zola’s “Wedding of the Year” campaign, appearing on a billboard in Times Square.`\
+https://www.nytimes.com/2026/05/29/style/taylor-hayes-travis-wickboldt-wedding.html
+
+**Quote of the Day: A.I. Now Gives Scams a Slick Disguise. Here’s How to Tear It Off.**\
+`Quotation of the Day for Friday, May TK, 2026.`\
+https://www.nytimes.com/2026/05/28/pageoneplus/quote-of-the-day-ai-now-gives-scams-a-slick-disguise-heres-how-to-tear-it-off.html
+
+**Shrey Parikh Triumphs After Tense Spell-Off**\
+`The 14-year-old from California spelled a record 32 words correctly in 90 seconds to prevail in the Scripps National Spelling Bee, clinching the victory with the winning word “bromocriptine.”`\
+https://www.nytimes.com/live/2026/05/28/us/scripps-spelling-bee
+
 **Protesters Arrested at Immigration Detention Center as Tensions Rise**\
 `For nearly a week, relatives of migrants at Delaney Hall have said that some detainees have been on a hunger strike at the New Jersey facility.`\
 https://www.nytimes.com/2026/05/28/nyregion/delaney-hall-newark-ice-protesters-arrest.html
