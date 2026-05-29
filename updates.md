@@ -1,3 +1,11 @@
+**Judge Reopens Trump’s Lawsuit Demanding $10 Billion From IRS**\
+`The ruling was a blow to both President Trump, who had voluntarily dismissed the suit last week, and to the Justice Department, which used the suit to establish a fund likely intended for Trump allies.`\
+https://www.nytimes.com/2026/05/29/us/politics/trump-irs-lawsuit-ruling.html
+
+**Un agente del ICE buscado por un tiroteo en Mineápolis es aprehendido en Texas**\
+`Christian Castro, quien había sido imputado con cargos de asalto en el tiroteo a un hombre venezolano durante la represión de la inmigración en Minnesota, fue puesto bajo custodia el viernes por la mañana.`\
+https://www.nytimes.com/es/2026/05/29/espanol/estados-unidos/ice-agente-tiroteo-arresto.html
+
 **Can Talarico win over some of Cornyn’s voters in Texas?**\
 `Democrats hope so, but there are good reasons to be skeptical.`\
 https://www.nytimes.com/2026/05/29/us/politics/talarico-cornyn-texas-voters.html
