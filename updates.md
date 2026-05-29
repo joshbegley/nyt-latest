@@ -1,3 +1,19 @@
+**Sugar Cookie Bars**\
+`These sugar cookie bars, which are adapted from “American Girl Cookies,” are happiness in a 9-by-13 pan according to Margaux Laskey, a recipes editor for NYT Cooking. The addition of cream cheese in the batter makes them very tender and slightly tangy, a perfect counterpoint to the sweet buttercream frosting.`\
+https://www.nytimes.com/video/dining/100000010933539/sugar-cookie-bars.html
+
+**Basil Tofu**\
+`Inspired by the savory heat of pad krapow, the popular Thai dish of stir-fried ground chicken or pork with chiles, garlic and basil, this tofu version is just as robustly seasoned and satiating.`\
+https://www.nytimes.com/video/dining/100000010933512/basil-tofu.html
+
+**Coconut Saag**\
+`Saag paneer is a classic North Indian dish — but it’s also endlessly riffable. This is a particularly stellar riff, in which coconut milk enriches an already aromatic and verdant sauce that can be paired with either the traditional paneer, or extra-firm tofu.`\
+https://www.nytimes.com/video/dining/100000010933452/coconut-saag.html
+
+**Cottage Cheese Egg Bites**\
+`Egg bites are a perfect, protein-rich snack to have on hand for busy mornings. Blending eggs with cottage cheese and shredded cheese, dividing the mixture among muffin cups and baking in a water bath result in a soft, delicate texture.`\
+https://www.nytimes.com/video/dining/100000010933421/cottage-cheese-egg-bites.html
+
 **U.N. Adds Israeli and Russian Forces to Sexual Violence List**\
 `Israel has denied the accusations and condemned the report, which listed dozens of countries and nonstate groups as “credibly suspected” of patterns of rape and sexual violence.`\
 https://www.nytimes.com/2026/05/29/world/middleeast/israel-russia-un-sexual-violence.html
