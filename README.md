@@ -1,3 +1,15 @@
+**Bondi, Pressed Over Epstein Files, Places Responsibility on Blanche and Patel**\
+`Her remarks, delivered during a closed-door interview before the House Oversight Committee, were a candid admission of her own powerlessness.`\
+https://www.nytimes.com/2026/05/29/us/politics/pam-bondi-epstein-files-testimony.html
+
+**Mexican Senate Votes to Allow Voiding Elections Over Foreign Interference**\
+`The legislation, which comes amid growing tensions between Mexico and the White House, must be approved by a majority of state legislatures and sent to the president.`\
+https://www.nytimes.com/2026/05/29/world/americas/mexico-ban-election-meddling-foreign-powers.html
+
+**You Be the Ump**\
+`Major league umpires are facing video review on balls and strikes for the first time. How would you do?`\
+https://www.nytimes.com/interactive/2026/05/29/upshot/you-be-the-ump-abs.html
+
 **The Confusion Around Modern Masculinity**\
 `In the wake of #MeToo, changing workplace norms left many men unsure of how to behave. But was that confusion genuine — or just an excuse? On “The Opinions,” Frederick Joseph argues that many men became “childlike during that time.”`\
 https://www.nytimes.com/video/opinion/100000010918071/the-confusion-around-modern-masculinity.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/05/29/us/bus-crash-virginia.html
 **One of Five Gold Miners Is Rescued From Laos Cave After More Than a Week**\
 `An international effort to free the trapped men brought attention to the country’s informal mines, where panning for gold can pay more than minimum wage.`\
 https://www.nytimes.com/2026/05/29/world/asia/laos-cave-rescue.html
-
-**Who is Ahead in Tennessee's 9th Congressional District?**\
-`Track the latest polls in Tennessee's 9th Congressional District.`\
-https://www.nytimes.com/interactive/polls/tennessee-us-house-9-polls-2026.html
-
-**Who is Ahead in Hawaii's 1st Congressional District?**\
-`Track the latest polls in Hawaii's 1st Congressional District.`\
-https://www.nytimes.com/interactive/polls/hawaii-us-house-1-polls-2026.html
-
-**ICE Agent Wanted in Minneapolis Shooting Is Captured in Texas**\
-`Christian Castro, who had been charged with assault in the shooting of a Venezuelan man during the immigration crackdown in Minnesota, was taken into custody Friday morning.`\
-https://www.nytimes.com/2026/05/29/us/ice-agent-arrested-minnesota-shooting-immigrant.html
 
