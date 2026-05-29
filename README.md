@@ -1,3 +1,7 @@
+**Trump’s Counterterror Strategy Focuses on the Left**\
+`President Trump’s new counterterrorism strategy focuses on “violent left-wing extremists,” as well as narcoterrorists and Islamic terror groups. Our White House correspondent Zolan Kanno-Youngs explains what it means.`\
+https://www.nytimes.com/video/us/politics/100000010907491/who-trump-2026-counterterror-strategy-focuses-on.html
+
 **The Cruelty of Family Separation**\
 `Readers respond to a news article, “Push to Deport Splits Over 100,000 Families.” Also: The trolling war.`\
 https://www.nytimes.com/2026/05/29/opinion/family-separation-immigation.html
@@ -62,7 +66,7 @@ https://www.nytimes.com/interactive/polls/tennessee-us-house-9-polls-2026.html
 `Track the latest polls in Hawaii's 1st Congressional District.`\
 https://www.nytimes.com/interactive/polls/hawaii-us-house-1-polls-2026.html
 
-**ICE Agent Charged in Minnesota Shooting Is Arrested in Texas**\
+**ICE Agent Wanted in Minneapolis Shooting Is Captured in Texas**\
 `Christian Castro, who had been charged with assault in the shooting of a Venezuelan man during the immigration crackdown in Minnesota, was taken into custody Friday morning.`\
 https://www.nytimes.com/2026/05/29/us/ice-agent-arrested-minnesota-shooting-immigrant.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/29/travel/uber-soccer-world-cup-shuttles.html
 **Providence Isn’t an Official World Cup Host but It Sure Is Acting Like One**\
 `A stadium outside Boston that will host seven World Cup games is actually closer to Providence, R.I., prompting officials there to capitalize on that proximity to lure fans.`\
 https://www.nytimes.com/2026/05/29/us/boston-providence-world-cup.html
-
-**Interesting Times: Why Are We Still Driving?**\
-`Confronting the weirdness of a Waymo future.`\
-https://www.nytimes.com/2026/05/29/podcasts/29hardfork-waymo-interesting-times.html
 
