@@ -1,3 +1,11 @@
+**8 Are Rescued From Texas Roller Coaster Stuck Almost 100 Feet Off the Ground**\
+`The riders waited for about four hours, facing up, on the roller coaster at the Pleasure Pier park in Galveston. There were no injuries, the authorities said.`\
+https://www.nytimes.com/2026/05/29/us/galveston-texas-iron-shark-rollercoaster-stuck.html
+
+**Here’s the latest.**\
+`(No description)`\
+https://www.nytimes.com/2026/05/28/us/heres-the-latest.html
+
 **The World’s 50 Best Restaurants Announces Its 2026 North America List**\
 `At a ceremony in New Orleans on Thursday, a Midwestern fine-dining standout took the top spot.`\
 https://www.nytimes.com/2026/05/29/dining/worlds-50-best-restaurants-north-america-winners-list.html
