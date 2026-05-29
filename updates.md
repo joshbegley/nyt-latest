@@ -1,3 +1,7 @@
+**Scripps Spelling Bee Live Updates: 2 Spellers Remain in the Quest for Word Domination**\
+`A devastating round ousted four contestants in quick succession, while three others were eliminated by “Quincke tube,” “cara sposa” and “disa.”`\
+https://www.nytimes.com/live/2026/05/28/us/scripps-spelling-bee
+
 **‘Hacks’ Leaves Them Laughing**\
 `In an interview, Jean Smart and Hannah Einbinder discuss the series finale, their offscreen relationship and why comedy is just like sex.`\
 https://www.nytimes.com/2026/05/28/arts/television/hacks-ends-jean-smart-hannah-einbinder.html
