@@ -1,3 +1,7 @@
+**Un agente del ICE acusado por un tiroteo en Minnesota es detenido en Texas**\
+`Christian Castro, quien había sido imputado con cargos de asalto en el tiroteo a un hombre venezolano durante la represión de la inmigración en Minnesota, fue puesto bajo custodia el viernes por la mañana.`\
+https://www.nytimes.com/es/2026/05/29/espanol/estados-unidos/ice-agente-tiroteo-arresto.html
+
 **Kenya Arrests 8 Students After Fire at School Dorm Kills 16**\
 `The students could be charged next week, Kenya’s education minister said, after the blaze broke out on Thursday at a school run by Kenya’s police.`\
 https://www.nytimes.com/2026/05/29/world/africa/kenya-school-fire-arrests-students.html
