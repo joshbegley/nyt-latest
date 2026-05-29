@@ -1,3 +1,7 @@
+**Should We Let Robots Kill People?**\
+`Are we ready for autonomous drones to make life-and-death decisions on the battlefield? Christian Brose, the chief strategy officer of Anduril Industries, explains on “Interesting Times” that the Pentagon’s official policy leaves the door for autonomous weapons wide open.`\
+https://www.nytimes.com/video/opinion/100000010921316/should-we-let-robots-kill-people.html
+
 **Is the U.S. Prepared for a Major War?**\
 `America has fired “something like eight years’ worth of Tomahawk missile production” in Iran, Christian Brose, the chief strategy officer of Anduril Industries, says on “Interesting Times,” where he and the Opinion columnist Ross Douthat discuss the limitations of America’s arsenal of “luxury” weapons.`\
 https://www.nytimes.com/video/opinion/100000010921317/is-the-us-prepared-for-a-major-war.html
@@ -11,7 +15,7 @@ https://www.nytimes.com/2026/05/28/world/americas/brazil-gangs-terrorist-bolsona
 https://www.nytimes.com/2026/05/28/us/baltimore-key-bridge-lawsuit-settlements.html
 
 **Blue Origin Rocket Blows Up on Florida Launchpad During Test**\
-`The rocket, built by Jeff Bezos’ space company, was to carry 48 satellites into space. Blue Origin reported on social media that “all personnel  have been accounted for.”`\
+`The rocket, built by the Jeff Bezos-owned space company, was to carry 48 satellites into space. Blue Origin reported on social media that “all personnel have been accounted for.”`\
 https://www.nytimes.com/2026/05/28/science/blue-origin-explosion-rocket.html
 
 **NYT Crossword Answers for May 29, 2026**\
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/05/28/climate/diesel-fuel-spill-national-mall.html
 **Austrian Man Convicted of Planning Attack at Taylor Swift Concert in Vienna**\
 `Prosecutors said the defendant plotted in 2024 to set off a bomb outside the concert, which was later canceled. He and another man were also convicted on separate terrorist charges.`\
 https://www.nytimes.com/2026/05/28/world/europe/taylor-swift-concert-vienna-guilty.html
-
-**Netanyahu Says Israel Will Control 70 Percent of Gaza, Squeezing Hamas**\
-`Israel’s military continues to conduct strikes and seize territory despite a cease-fire with Hamas. Many of Prime Minister Benjamin Netanyahu’s supporters see the war as unfinished business.`\
-https://www.nytimes.com/2026/05/28/world/middleeast/israel-gaza-hamas-70-percent.html
 
