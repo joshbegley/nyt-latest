@@ -1,3 +1,39 @@
+**As the SpaceX Hype Machine Steamrolls Ahead, Wall Street Jumps Aboard**\
+`Elon Musk and his bankers are working to create a self-fulfilling prophesy for SpaceX’s massive initial public offering: Make investors feel that the risks of passing up the stock outweigh those of buying into it.`\
+https://www.nytimes.com/2026/05/29/business/spacex-ipo-wall-street.html
+
+**How Bad Are President Trump’s Approval Ratings?**\
+`Our chief political analyst, Nate Cohn, looks at President Trump’s sinking approval ratings. How do they compare with polling from other recent presidencies?`\
+https://www.nytimes.com/video/us/politics/100000010916352/how-bad-are-president-trumps-approval-ratings.html
+
+**Sky-High I.P.O. Pricing Isn’t Great for Real People**\
+`When newly public companies have been valued as richly as SpaceX, OpenAI and Anthropic seem likely to be, the outlook for ordinary investors has been poor.`\
+https://www.nytimes.com/2026/05/29/business/spacex-openai-anthropic-ipo-invest.html
+
+**Frank Hayden, Who Led Global Growth of the Special Olympics, Dies at 96**\
+`His research showing the positive effects of athletics on intellectually disabled children led Eunice Kennedy Shriver to ask him to help stage the Games.`\
+https://www.nytimes.com/2026/05/29/sports/frank-hayden-dead.html
+
+**Where the Swedes Go in Summer**\
+`The pastoral region of Österlen has some of Sweden’s most stunning scenery and a new creative energy.`\
+https://www.nytimes.com/2026/05/29/t-magazine/osterlen-sweden-travel-guide-hotels-restaurants.html
+
+**This Conservative Is Not Afraid to Be a ‘Beautiful Loser’**\
+`What exactly is conservatism in the Trump era?`\
+https://www.nytimes.com/2026/05/29/opinion/trump-conservatism-republicans.html
+
+**Five International Movies to Stream Now**\
+`This month’s picks include an Argentine comedy based on a real-life incident, a queer story set in 1980s Chile, a documentary about the aftermath of the Troubles in Belfast and more.`\
+https://www.nytimes.com/2026/05/29/movies/five-international-movies-to-stream-now.html
+
+**Who Is Ahead in Virginia's 7th Congressional District?**\
+`Track the latest polls in Virginia's 7th Congressional District.`\
+https://www.nytimes.com/interactive/polls/virginia-us-house-7-polls-2026.html
+
+**Who Is Ahead in Virginia's 1st Congressional District?**\
+`Track the latest polls in Virginia's 1st Congressional District.`\
+https://www.nytimes.com/interactive/polls/virginia-us-house-1-polls-2026.html
+
 **Who Is Ahead in Washington's 3rd Congressional District?**\
 `Track the latest polls in Washington's 3rd Congressional District.`\
 https://www.nytimes.com/interactive/polls/washington-us-house-3-polls-2026.html
