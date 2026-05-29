@@ -1,3 +1,7 @@
+**The $900 Billion Giant: How Anthropic Got So Big, So Fast**\
+`The artificial intelligence giant was just valued at $900 billion, surpassing OpenAI. Here are the numbers behind its rise — and headwinds it faces.`\
+https://www.nytimes.com/2026/05/29/business/dealbook/anthropic-ai-openai.html
+
 **Luka Doncic on Trying to Bring an N.B.A. Team to Rome**\
 `The superstar is part of group that has bought a basketball team in Italy, with a plan to move the club to Rome in hopes of making it part of a new league.`\
 https://www.nytimes.com/2026/05/29/business/media/luka-doncic-nba-owner-rome.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/29/opinion/young-men-masculinity-crisis.html
 **How NextEra Energy Wielded Political Power in Florida**\
 `NextEra, which is seeking to buy Dominion Energy, has often butted heads with consumer groups, residents and journalists in its home state.`\
 https://www.nytimes.com/2026/05/29/business/energy-environment/nextera-energy-florida-politics-dominion.html
-
-**Times/Siena Poll: 43% of Voters Dissatisfied With Both Parties**\
-`Persistent frustration over the economy and foreign policy has left many Americans feeling politically homeless, and young voters are particularly frustrated.`\
-https://www.nytimes.com/2026/05/29/polls/dissatisfied-voters.html
 
