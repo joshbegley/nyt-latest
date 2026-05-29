@@ -1,3 +1,7 @@
+**Train Fire at Penn Station Injures 5 and Disrupts Rail Service**\
+`A fire on a maintenance train affected Friday morning service on NJ Transit, Amtrak and the L.I.R.R. Two people were hospitalized with serious injuries.`\
+https://www.nytimes.com/2026/05/29/nyregion/penn-station-fire-amtrak-nyc-nj-transit.html
+
 **Stranded in the Strait of Hormuz**\
 `We hear from two of the thousands of seafarers who became stuck in the middle of the war.`\
 https://www.nytimes.com/2026/05/29/podcasts/the-daily/iran-strait-of-hormuz-ships.html

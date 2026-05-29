@@ -1,3 +1,7 @@
+**Train Fire at Penn Station Injures 5 and Disrupts Rail Service**\
+`A fire on a maintenance train affected Friday morning service on NJ Transit, Amtrak and the L.I.R.R. Two people were hospitalized with serious injuries.`\
+https://www.nytimes.com/2026/05/29/nyregion/penn-station-fire-amtrak-nyc-nj-transit.html
+
 **Stranded in the Strait of Hormuz**\
 `We hear from two of the thousands of seafarers who became stuck in the middle of the war.`\
 https://www.nytimes.com/2026/05/29/podcasts/the-daily/iran-strait-of-hormuz-ships.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/29/dining/fiber-rich-dates-snacks.html
 **Trump’s Boat Strikes Have Failed to Curb Cocaine Flow to U.S., Experts Say**\
 `Despite the rising body count off the South American coast, researchers say cocaine is as easy to get in many parts of the United States as it was before the strikes began.`\
 https://www.nytimes.com/2026/05/29/world/americas/us-boat-strikes-cocaine-trump-south-america.html
-
-**Kane Parsons: From YouTube Sensation to A24’s Youngest Director**\
-`Now 20, the viral creator Kane Parsons is releasing “Backrooms,” a feature-length expansion of his web series.`\
-https://www.nytimes.com/2026/05/29/movies/kane-parsons-24-youngest-director-backrooms.html
 

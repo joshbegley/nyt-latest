@@ -1,3 +1,7 @@
+**Were Romanian Casualties From a Russian Drone Strike Inevitable?**\
+`The strike on Friday, near the Ukrainian border, was the first to injure civilians in Romania, officials say. But drones from the nearby war have been a growing threat.`\
+https://www.nytimes.com/2026/05/29/world/europe/romania-drone-strike-what-to-know.html
+
 **Train Fire at Penn Station Injures 5 and Disrupts Rail Service**\
 `A fire on a maintenance train affected Friday morning service on NJ Transit, Amtrak and the L.I.R.R. Two people were hospitalized with serious injuries.`\
 https://www.nytimes.com/2026/05/29/nyregion/penn-station-fire-amtrak-nyc-nj-transit.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/29/books/review/meg-wolitzer-charlie-panek-found
 **Fiber-Rich Dates Are the Latest ‘It Girl’ of the Snack Aisle**\
 `Grocery stores aisles are bursting with stuffed, sugared, blended, rolled and coated dates as a new wave of snack brands glorify the wrinkly fruit.`\
 https://www.nytimes.com/2026/05/29/dining/fiber-rich-dates-snacks.html
-
-**Trump’s Boat Strikes Have Failed to Curb Cocaine Flow to U.S., Experts Say**\
-`Despite the rising body count off the South American coast, researchers say cocaine is as easy to get in many parts of the United States as it was before the strikes began.`\
-https://www.nytimes.com/2026/05/29/world/americas/us-boat-strikes-cocaine-trump-south-america.html
 
