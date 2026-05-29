@@ -1,3 +1,11 @@
+**Randall Bourscheidt, Wide-Ranging Arts Advocate, Dies at 81**\
+`He helped triple New York City’s arts budget, led research to promote cultural funding and supported artists with H.I.V. and AIDS.`\
+https://www.nytimes.com/2026/05/29/arts/randall-bourscheidt-dead.html
+
+**Iran War Live Updates: Trump Says He’ll Soon Make ‘Final Determination’ on Iran Proposal**\
+`The president said on social media that Iran must agree to concessions he has demanded, and that he was poised to lift the naval blockade of the Strait of Hormuz. Iran has not confirmed any commitments.`\
+https://www.nytimes.com/live/2026/05/29/world/iran-war-us-trump-deal
+
 **Crowds Flood New York City Streets for First Day of Manhattanhenge**\
 `People filled the streets of New York on Thursday to get a glimpse of this year’s first Manhattanhenge. The spectacular view of the sun setting, flanked by the city’s streetscapes, will also occur on Friday and July 11 and 12.`\
 https://www.nytimes.com/video/science/earth/100000010932609/manhattanhenge-nyc-sky-crowds.html

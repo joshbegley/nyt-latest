@@ -1,3 +1,15 @@
+**Who Is Ahead in Virginia's 6th Congressional District?**\
+`Track the latest polls in Virginia's 6th Congressional District.`\
+https://www.nytimes.com/interactive/polls/virginia-us-house-6-polls-2026.html
+
+**British Museum Postpones Jewish Cultural Event, Citing Threat of Disruption**\
+`The cancellation comes amid a rise in racial and religious crimes in Britain as well as growing sense of unease for some of London’s Jews.`\
+https://www.nytimes.com/2026/05/29/world/europe/london-british-museum-antisemitsm.html
+
+**Today, In Short**\
+`Olivia Rodrigo. Everlane. And more from Harvard.`\
+https://www.nytimes.com/2026/05/29/briefing/today-in-short.html
+
 **Randall Bourscheidt, Wide-Ranging Arts Advocate, Dies at 81**\
 `He helped triple New York City’s arts budget, led research to promote cultural funding and supported artists with H.I.V. and AIDS.`\
 https://www.nytimes.com/2026/05/29/arts/randall-bourscheidt-dead.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/05/29/world/africa/us-kenya-quarantine-unit-ebola.h
 **Does Trump Want to Lose the Midterms?**\
 `The president doesn’t seem that concerned that his party could lose control of Congress. Ezra Klein and the Republican strategist Liam Donovan discuss Trump’s midterm strategy and Democratic paths to victory.`\
 https://www.nytimes.com/2026/05/29/opinion/ezra-klein-podcast-liam-donovan.html
-
-**How to Get Grandparents and Grandkids to Connect**\
-`Chatting has benefits for both generations. Experts share ideas.`\
-https://www.nytimes.com/2026/05/29/well/grandparents-grandchildren-connect-texts.html
-
-**The New York Times News Quiz, May 29, 2026**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://www.nytimes.com/interactive/2026/05/29/briefing/news-quiz-trump-paxton-knicks-iran.html
-
-**There’s No Escaping the Rot in This Justice Department**\
-`How long can decent people continue to work for such a corrupted institution?`\
-https://www.nytimes.com/2026/05/29/opinion/doj-e-jean-carroll.html
 
