@@ -1,3 +1,7 @@
+**Roller Coaster Breaks, Stranding 8 Riders Nearly 100 Feet in the Air**\
+`The Iron Shark roller coaster at the Galveston Island Historic Pleasure Pier malfunctioned on Thursday, trapping eight people almost 100 feet in the air for around four hours.`\
+https://www.nytimes.com/video/us/100000010932939/texas-roller-coaster-breaks.html
+
 **Israeli Troops Push Deeper Into Lebanon as Cease-Fire Talks Continue**\
 `Prime Minister Benjamin Netanyahu said Israeli ground forces had crossed Lebanon’s Litani River, as military officials from the two countries were set to meet for U.S.-brokered talks.`\
 https://www.nytimes.com/2026/05/29/world/middleeast/israel-lebanon-litani-troops-talks.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/29/business/media/luka-doncic-nba-owner-rome.htm
 **Maintenance Train Fire at Penn Station Injures 5 and Disrupts Rail Service**\
 `An overnight fire on a maintenance train was still affecting service on NJ Transit and Amtrak as of midmorning on Friday.`\
 https://www.nytimes.com/live/2026/05/29/nyregion/penn-station-fire-amtrak-nyc
-
-**Russian Drone Hits Romanian Apartment Building**\
-`Romanian officials said a Russian attack drone hit an apartment building in the city of Galati on Friday, injuring two people.`\
-https://www.nytimes.com/video/world/europe/100000010932571/russian-drone-romania-apartments.html
 
