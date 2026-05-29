@@ -1,3 +1,7 @@
+**8 Are Rescued From Texas Roller Coaster Stuck Almost 100 Feet Off the Ground**\
+`The riders waited for about four hours, facing up, on the roller coaster at the Pleasure Pier park in Galveston. There were no injuries, the authorities said.`\
+https://www.nytimes.com/2026/05/29/us/galveston-texas-iron-shark-rollercoaster-stuck.html
+
 **The World’s 50 Best Restaurants Announces Its 2026 North America List**\
 `At a ceremony in New Orleans on Thursday, a Midwestern fine-dining standout took the top spot.`\
 https://www.nytimes.com/2026/05/29/dining/worlds-50-best-restaurants-north-america-winners-list.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/05/28/us/heres-the-latest.html
 **A Democrat’s Dodge on AIPAC Points to the Party’s Tensions Over Israel**\
 `A key moment at a Senate primary debate in Michigan showed how pro-Israel Democrats are approaching the issue with caution.`\
 https://www.nytimes.com/2026/05/28/us/politics/el-sayed-stevens-mcmorrow-democrats-senate-israel.html
-
-**Treasury Prepares to Make Trump the Face of a New $250 Bill**\
-`Treasury Secretary Bessent backed the idea, which would require legislation allowing a living person to appear on currency.`\
-https://www.nytimes.com/2026/05/28/business/treasury-trump-250-bill.html
 
