@@ -1,3 +1,7 @@
+**Jimmy Kimmel Finds Glee in President Trump’s Approval Rating**\
+`A new poll shows it sitting at 34 percent. “He has the same approval rating as ‘Paul Blart: Mall Cop,’” Kimmel said on Thursday.`\
+https://www.nytimes.com/2026/05/29/arts/television/jimmy-kimmel-trump-approval-rating.html
+
 **Europa se acerca a una guerra comercial con China. Estas son las razones**\
 `A medida que Pekín adopta políticas comerciales más agresivas, los dirigentes y las empresas europeas se inquietan por su dependencia de los productos chinos.`\
 https://www.nytimes.com/es/2026/05/29/espanol/mundo/europa-china-guerra-comercial-economia.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/05/28/weather/may-snow-rain-california.html
 **U.S. and Iran Draft Cease-Fire Extension**\
 `Plus, the Scripps National Spelling Bee. Here’s the latest at the end of Thursday.`\
 https://www.nytimes.com/2026/05/28/briefing/iran-inflation-spelling-bee.html
-
-**A Draft U.S.-Iran Plan Is Said to Be on the Table. Here’s What to Know.**\
-`U.S. and Iranian officials say they are closing in on the terms of a preliminary agreement. Yet sticking points, particularly over the Strait of Hormuz, remain.`\
-https://www.nytimes.com/2026/05/28/world/middleeast/iran-us-agreement-plan.html
 
 **Shrey Parikh Triumphs After Tense Spell-Off**\
 `The 14-year-old from California spelled a record 32 words correctly in 90 seconds to prevail in the Scripps National Spelling Bee, clinching the victory with the winning word “bromocriptine.”`\
