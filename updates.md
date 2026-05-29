@@ -1,3 +1,11 @@
+**Crowds Flood New York City Streets for First Day of Manhattanhenge**\
+`People filled the streets of New York on Thursday to get a glimpse of this year’s first Manhattanhenge. The spectacular view of the sun setting, flanked by the city’s streetscapes, will also occur on Friday and July 11 and 12.`\
+https://www.nytimes.com/video/science/earth/100000010932609/manhattanhenge-nyc-sky-crowds.html
+
+**Five International Movies to Stream Now**\
+`This month’s picks include an Argentine comedy based on a real-life incident, a queer story set in 1980s Chile, a documentary about the aftermath of the Troubles in Belfast and more.`\
+https://www.nytimes.com/2026/05/29/movies/international-movies-streaming.html
+
 **As the SpaceX Hype Machine Steamrolls Ahead, Wall Street Jumps Aboard**\
 `Elon Musk and his bankers are working to create a self-fulfilling prophesy for SpaceX’s massive initial public offering: Make investors feel that the risks of passing up the stock outweigh those of buying into it.`\
 https://www.nytimes.com/2026/05/29/business/spacex-ipo-wall-street.html

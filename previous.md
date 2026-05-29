@@ -1,3 +1,7 @@
+**Crowds Flood New York City Streets for First Day of Manhattanhenge**\
+`People filled the streets of New York on Thursday to get a glimpse of this year’s first Manhattanhenge. The spectacular view of the sun setting, flanked by the city’s streetscapes, will also occur on Friday and July 11 and 12.`\
+https://www.nytimes.com/video/science/earth/100000010932609/manhattanhenge-nyc-sky-crowds.html
+
 **As the SpaceX Hype Machine Steamrolls Ahead, Wall Street Jumps Aboard**\
 `Elon Musk and his bankers are working to create a self-fulfilling prophesy for SpaceX’s massive initial public offering: Make investors feel that the risks of passing up the stock outweigh those of buying into it.`\
 https://www.nytimes.com/2026/05/29/business/spacex-ipo-wall-street.html
@@ -24,7 +28,7 @@ https://www.nytimes.com/2026/05/29/opinion/trump-conservatism-republicans.html
 
 **Five International Movies to Stream Now**\
 `This month’s picks include an Argentine comedy based on a real-life incident, a queer story set in 1980s Chile, a documentary about the aftermath of the Troubles in Belfast and more.`\
-https://www.nytimes.com/2026/05/29/movies/five-international-movies-to-stream-now.html
+https://www.nytimes.com/2026/05/29/movies/international-movies-streaming.html
 
 **Who Is Ahead in Virginia's 7th Congressional District?**\
 `Track the latest polls in Virginia's 7th Congressional District.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/05/29/opinion/doj-e-jean-carroll.html
 **Los jóvenes siguen tomando el sol para broncearse, a pesar de los riesgos**\
 `Los dermatólogos no logran explicar por qué estos jóvenes, que priorizan la salud en otros aspectos, desafían las advertencias sobre la exposición al sol y el uso de cámaras de bronceado.`\
 https://www.nytimes.com/es/2026/05/29/espanol/estilos-de-vida/generacion-z-cancer-de-piel.html
-
-**Olivia Rodrigo Discusses the Inspiration Behind Her New Album**\
-`The punk-leaning pop star tapped the vibrancy of 1980s new wave and the sentiment of “Sex and the City” on her new album “You Seem Pretty Sad For a Girl So in Love.”`\
-https://www.nytimes.com/2026/05/29/arts/music/olivia-rodrigo-new-album-interview-popcast.html
 
