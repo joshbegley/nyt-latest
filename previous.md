@@ -1,3 +1,7 @@
+**The World’s 50 Best Restaurants Announces Its 2026 North America List**\
+`At a ceremony in New Orleans on Thursday, a Midwestern fine-dining standout took the top spot.`\
+https://www.nytimes.com/2026/05/29/dining/worlds-50-best-restaurants-north-america-winners-list.html
+
 **Europe is Edging Closer to a Trade War With China. Here’s Why.**\
 `As cheap goods pour in, threatening the continent’s manufacturing sector, a search for solutions is becoming increasingly urgent.`\
 https://www.nytimes.com/2026/05/29/world/europe/europe-china-trade-war-electric-cars.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/05/28/us/politics/el-sayed-stevens-mcmorrow-democra
 **Treasury Prepares to Make Trump the Face of a New $250 Bill**\
 `Treasury Secretary Bessent backed the idea, which would require legislation allowing a living person to appear on currency.`\
 https://www.nytimes.com/2026/05/28/business/treasury-trump-250-bill.html
-
-**Israel to Cut Ties With U.N. Chief Over Its Inclusion on Sexual Violence Blacklist**\
-`The United Nations secretary general, António Guterres, told Israel there had been an “increasing number of cases” of sexual violence against Palestinian detainees, according to a letter shared by Israel’s U.N. ambassador.`\
-https://www.nytimes.com/2026/05/28/world/middleeast/israel-un-abuse-report.html
 

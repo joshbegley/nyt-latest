@@ -174,6 +174,10 @@ https://www.nytimes.com/video/us/100000010931758/fire-dallas-apartment-building.
 `The 14-year-old from California spelled a record 32 words correctly in 90 seconds to prevail in the Scripps National Spelling Bee, clinching the victory with the winning word “bromocriptine.”`\
 https://www.nytimes.com/live/2026/05/28/us/scripps-spelling-bee
 
+**Here’s the latest.**\
+`(No description)`\
+https://www.nytimes.com/2026/05/28/us/heres-the-latest.html
+
 **A Democrat’s Dodge on AIPAC Points to the Party’s Tensions Over Israel**\
 `A key moment at a Senate primary debate in Michigan showed how pro-Israel Democrats are approaching the issue with caution.`\
 https://www.nytimes.com/2026/05/28/us/politics/el-sayed-stevens-mcmorrow-democrats-senate-israel.html

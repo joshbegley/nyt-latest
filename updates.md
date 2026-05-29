@@ -1,3 +1,7 @@
+**The World’s 50 Best Restaurants Announces Its 2026 North America List**\
+`At a ceremony in New Orleans on Thursday, a Midwestern fine-dining standout took the top spot.`\
+https://www.nytimes.com/2026/05/29/dining/worlds-50-best-restaurants-north-america-winners-list.html
+
 **Europe is Edging Closer to a Trade War With China. Here’s Why.**\
 `As cheap goods pour in, threatening the continent’s manufacturing sector, a search for solutions is becoming increasingly urgent.`\
 https://www.nytimes.com/2026/05/29/world/europe/europe-china-trade-war-electric-cars.html
