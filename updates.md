@@ -1,3 +1,11 @@
+**Canadian Man Pleads Guilty to Aiding 14 Suicides**\
+`Kenneth Law, who ran an online business that shipped toxic salt to customers in 40 countries, also admitted to causing the deaths of 79 people in Britain, prosecutors said.`\
+https://www.nytimes.com/2026/05/29/world/canada/kenneth-law-canada-poison.html
+
+**Free Bus From Skin Care Brand the Ordinary Connecting Domino and Prospect Parks Stops Running**\
+`A two-week marketing stunt by the Ordinary appeared to stop abruptly on Friday, stranding riders.`\
+https://www.nytimes.com/2026/05/29/style/ordinary-bus-route-brooklyn-stop-running.html
+
 **What We Know — and Don’t — About the E. Jean Carroll Lawsuits Inquiry**\
 `Prosecutors would face substantial hurdles in potentially pursuing charges against Ms. Carroll, who twice won cases against Donald Trump, or the billionaire who helped pay her lawyers.`\
 https://www.nytimes.com/2026/05/29/us/politics/carroll-hoffman-legal-explainer.html
