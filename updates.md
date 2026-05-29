@@ -1,3 +1,11 @@
+**J.F.K. Airport to Begin Screening Some Passengers for Ebola**\
+`Such screenings are already being conducted at Washington Dulles International Airport, Hartsfield-Jackson Atlanta International Airport and George Bush Intercontinental Airport in Houston.`\
+https://www.nytimes.com/2026/05/28/us/politics/jfk-airport-ebola-screening-cdc.html
+
+**After Traffic Stop for Phone in Right Hand, She Called Out the Problem**\
+`The deputy insisted he saw a driver with a phone in her right hand. That turned out to be impossible, and the case was dropped.`\
+https://www.nytimes.com/2026/05/28/us/florida-deputy-tickets-woman-missing-hand.html
+
 **After Traffic Stop for Phone in Right Hand, She Called Out the Problem**\
 `The deputy insisted he saw a driver with a phone in her right hand. That turned out to be impossible, and the case was dropped.`\
 https://www.nytimes.com/2026/05/28/us/a-deputy-saw-a-phone-in-a-hand-that-was-not-there.html

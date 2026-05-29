@@ -1,6 +1,10 @@
+**J.F.K. Airport to Begin Screening Some Passengers for Ebola**\
+`Such screenings are already being conducted at Washington Dulles International Airport, Hartsfield-Jackson Atlanta International Airport and George Bush Intercontinental Airport in Houston.`\
+https://www.nytimes.com/2026/05/28/us/politics/jfk-airport-ebola-screening-cdc.html
+
 **After Traffic Stop for Phone in Right Hand, She Called Out the Problem**\
 `The deputy insisted he saw a driver with a phone in her right hand. That turned out to be impossible, and the case was dropped.`\
-https://www.nytimes.com/2026/05/28/us/a-deputy-saw-a-phone-in-a-hand-that-was-not-there.html
+https://www.nytimes.com/2026/05/28/us/florida-deputy-tickets-woman-missing-hand.html
 
 **Death Toll Rises in Washington Paper Mill Explosion**\
 `At least eight are now confirmed dead, and firefighters believe there are three more bodies they have yet to reach, making the crisis the worst industrial disaster in the state’s modern history.`\
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/05/28/climate/europe-heat-wave-climate-change.html
 **El Departamento de Justicia pone la mira sobre E. Jean Carroll de nuevo**\
 `Carroll, quien ganó un juicio civil tras acusar al presidente de los EE. UU. de abuso sexual, es objeto de una campaña de un gobierno que quiere cazar a supuestos enemigos.`\
 https://www.nytimes.com/es/2026/05/28/espanol/estados-unidos/trump-carroll-abuso-sexual.html
-
-**Memphis Residents Sue Federal Agents Over Arrest Tactics Amid Crime and Immigration Crackdown**\
-`A federal task force in the city has been targeting crime and undocumented immigrants since October. Observers say they have faced retaliation for trying to track the agents’ work.`\
-https://www.nytimes.com/2026/05/28/us/memphis-arrest-tactics-lawsuit.html
 
