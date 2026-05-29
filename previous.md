@@ -1,3 +1,15 @@
+**Book Club: Let’s Talk About ‘Transcription,’ by Ben Lerner**\
+`Lerner’s new novel is a cerebral exploration of technology, family, truth and existence.`\
+https://www.nytimes.com/2026/05/29/books/review/podcast-book-club-ben-lerner-transcription.html
+
+**Judge Tosses Citizenship Law Aimed at New Voters in New Hampshire**\
+`The judge said the 2024 law “constitutes an unjustifiable burden on the right to vote,” and that new voters should be able to prove their citizenship with a sworn affidavit.`\
+https://www.nytimes.com/2026/05/29/us/new-hampshire-citizenship-law-voters.html
+
+**Who Is the Prosecutor Investigating E. Jean Carroll’s Lawsuits?**\
+`Andrew S. Boutros, the Trump-appointed U.S. attorney for the Northern District of Illinois, is said to be overseeing the criminal investigation.`\
+https://www.nytimes.com/2026/05/29/us/chicago-prosecutor-andrew-boutros.html
+
 **Drones rusos han entrado en Rumanía: lo que hay que saber**\
 `El ataque del viernes, cerca de la frontera ucraniana, fue el primero que hirió a civiles en Rumanía, según las autoridades. Pero los drones de la guerra cercana han sido una amenaza creciente.`\
 https://www.nytimes.com/es/2026/05/29/espanol/mundo/drones-rusia-rumania-otan.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/interactive/polls/virginia-us-house-1-polls-2026.html
 **Who Is Ahead in Washington's 3rd Congressional District?**\
 `Track the latest polls in Washington's 3rd Congressional District.`\
 https://www.nytimes.com/interactive/polls/washington-us-house-3-polls-2026.html
-
-**Inside the Room Where War Insurance Is Bought and Sold**\
-`Many of the ships stranded in the Persian Gulf depend on coverage negotiated at Lloyd’s, the center of marine insurance for more than 300 years.`\
-https://www.nytimes.com/2026/05/29/business/strait-hormuz-shipping-insurance-iran.html
-
-**Who Is Ahead in Missouri's 1st Congressional District?**\
-`Track the latest polls in Missouri's 1st Congressional District.`\
-https://www.nytimes.com/interactive/polls/missouri-us-house-1-polls-2026.html
-
-**Federal Judge Bars Trump From Immediately Setting Up $1.8 Billion Fund**\
-`A judge in Virginia temporarily blocked the Trump administration from transferring money in or out of the fund until the court could hear arguments in June.`\
-https://www.nytimes.com/2026/05/29/us/politics/federal-judge-trump-fund.html
 

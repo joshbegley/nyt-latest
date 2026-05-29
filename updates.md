@@ -1,3 +1,15 @@
+**Book Club: Let’s Talk About ‘Transcription,’ by Ben Lerner**\
+`Lerner’s new novel is a cerebral exploration of technology, family, truth and existence.`\
+https://www.nytimes.com/2026/05/29/books/review/podcast-book-club-ben-lerner-transcription.html
+
+**Judge Tosses Citizenship Law Aimed at New Voters in New Hampshire**\
+`The judge said the 2024 law “constitutes an unjustifiable burden on the right to vote,” and that new voters should be able to prove their citizenship with a sworn affidavit.`\
+https://www.nytimes.com/2026/05/29/us/new-hampshire-citizenship-law-voters.html
+
+**Who Is the Prosecutor Investigating E. Jean Carroll’s Lawsuits?**\
+`Andrew S. Boutros, the Trump-appointed U.S. attorney for the Northern District of Illinois, is said to be overseeing the criminal investigation.`\
+https://www.nytimes.com/2026/05/29/us/chicago-prosecutor-andrew-boutros.html
+
 **Drones rusos han entrado en Rumanía: lo que hay que saber**\
 `El ataque del viernes, cerca de la frontera ucraniana, fue el primero que hirió a civiles en Rumanía, según las autoridades. Pero los drones de la guerra cercana han sido una amenaza creciente.`\
 https://www.nytimes.com/es/2026/05/29/espanol/mundo/drones-rusia-rumania-otan.html
