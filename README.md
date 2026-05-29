@@ -1,3 +1,11 @@
+**Ecuador alberga un tesoro secreto de serpientes raras**\
+`En las zonas bajas de la Amazonía ecuatoriana, un agricultor de 101 años y un joven científico convirtieron una colección informal en un estudio científico de uno de los hábitats de serpientes más diversos del planeta.`\
+https://www.nytimes.com/es/2026/05/29/espanol/ciencia-y-tecnologia/ecuadore-serpientes-raras.html
+
+**Los ataques a embarcaciones no han detenido el tráfico de cocaína a EE. UU., según expertos**\
+`El número de muertes aumenta en las costas sudamericanas, pero los especialistas aseguran que la cocaína es tan fácil de conseguir en muchas partes de Estados Unidos como antes de que comenzara la campaña.`\
+https://www.nytimes.com/es/2026/05/29/espanol/america-latina/ataques-embarcaciones-flujo-cocaina.html
+
 **Court in Kenya Suspends Plans for U.S. Ebola Quarantine Unit**\
 `The order came after U.S. officials said that a 50-bed facility was being established in the African country to house American citizens exposed to the virus.`\
 https://www.nytimes.com/2026/05/29/world/africa/us-kenya-quarantine-unit-ebola.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/us/100000010932226/spelling-bee-shrey-parikh.html
 **Los hombres jóvenes que pueden influir en las elecciones intermedias de EE. UU.**\
 `Muchos hombres de la generación Z que votaron por Donald Trump están consternados por su mandato. Pero dicen que tampoco escuchan un discurso atractivo de los demócratas.`\
 https://www.nytimes.com/es/2026/05/29/espanol/estados-unidos/trump-elecciones-intermedias-aprobacion-jovenes.html
-
-**Blue Origin Rocket Explodes on Florida Launchpad**\
-`A rocket built by the Jeff Bezos-owned space company, Blue Origin, blew up during a test at the Cape Canaveral Space Force Station in Florida.`\
-https://www.nytimes.com/video/science/space/100000010932440/blue-origin-rocket-explosion-florida.html
-
-**These Parents Wanted Their Children’s Park Back. They Finally Got It.**\
-`George Washington Bridge Park, also known as Dolphin Park, had been closed for nearly a decade, but residents in Manhattan pushed relentlessly for its reopening.`\
-https://www.nytimes.com/2026/05/29/nyregion/dolphin-park-reopens-washington-heights.html
 
