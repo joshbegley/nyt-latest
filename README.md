@@ -1,3 +1,7 @@
+**Protesters Arrested at Immigration Detention Center as Tensions Rise**\
+`For nearly a week, relatives of migrants at Delaney Hall have said that some detainees have been on a hunger strike at the New Jersey facility.`\
+https://www.nytimes.com/2026/05/28/nyregion/delaney-hall-newark-ice-protesters-arrest.html
+
 **Should We Let Robots Kill People?**\
 `Are we ready for autonomous drones to make life-and-death decisions on the battlefield? Christian Brose, the chief strategy officer of Anduril Industries, explains on “Interesting Times” that the Pentagon’s official policy leaves the door for autonomous weapons wide open.`\
 https://www.nytimes.com/video/opinion/100000010921316/should-we-let-robots-kill-people.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/video/nyregion/100000010930447/newark-immigration-center
 **Diesel Fuel Spilled on National Mall During 250th Event Setup**\
 `The Trump administration blamed the two spills on vandalism, though the U.S. Park Police is still investigating the incidents.`\
 https://www.nytimes.com/2026/05/28/climate/diesel-fuel-spill-national-mall.html
-
-**Austrian Man Convicted of Planning Attack at Taylor Swift Concert in Vienna**\
-`Prosecutors said the defendant plotted in 2024 to set off a bomb outside the concert, which was later canceled. He and another man were also convicted on separate terrorist charges.`\
-https://www.nytimes.com/2026/05/28/world/europe/taylor-swift-concert-vienna-guilty.html
 
