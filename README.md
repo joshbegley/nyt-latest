@@ -19,7 +19,7 @@ https://www.nytimes.com/2026/05/29/nyregion/ice-protests-delaney-hall-nj.html
 https://www.nytimes.com/2026/05/29/us/politics/green-cards-dhs.html
 
 **Trump Endorses Pamela Evette in South Carolina Governor’s Race**\
-`Pamela Evette had been among the more vocal proponents of redrawing the state’s congressional map to help Republicans in the midterms.`\
+`Pamela Evette had been among the most vocal proponents of redrawing the state’s congressional map to help Republicans in the midterms.`\
 https://www.nytimes.com/2026/05/29/us/trump-pamela-evette-south-carolina-governor.html
 
 **Justice Department Lurches Toward Trump’s Goals**\
