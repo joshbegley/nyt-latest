@@ -1,3 +1,11 @@
+**The Cruelty of Family Separation**\
+`Readers respond to a news article, “Push to Deport Splits Over 100,000 Families.” Also: The trolling war.`\
+https://www.nytimes.com/2026/05/29/opinion/family-separation-immigation.html
+
+**Maintenance Train Fire at Penn Station Injures 5 and Disrupts Rail Service**\
+`An overnight fire on a maintenance train was still affecting service on NJ Transit and Amtrak as of midmorning on Friday.`\
+https://www.nytimes.com/live/2026/05/29/nyregion/penn-station-fire-amtrak-nyc
+
 **Loud Boom Sends Animals Running at Rescue Shelter in S.C.**\
 `At about 5:30 p.m. on Thursday, a loud noise rattled parts of South Carolina, sending animals running at Frisky Business Rescue.`\
 https://www.nytimes.com/video/us/100000010933136/south-carolina-boom-animals.html
