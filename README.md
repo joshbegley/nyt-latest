@@ -127,7 +127,7 @@ https://www.nytimes.com/video/us/politics/100000010931638/bessent-treasury-trump
 https://www.nytimes.com/video/us/100000010931758/fire-dallas-apartment-building.html
 
 **Scripps Spelling Bee Live Updates: Shrey Parikh Triumphs After Tense Spell-Off**\
-`The 14-year-old from Rancho Cucamonga, Calif., spelled 32 words correctly in 90 seconds to prevail in the three-day competition.`\
+`The 14-year-old from California spelled a record 32 words correctly in 90 seconds to prevail in the competition, clinching the victory with the winning word “bromocriptine.”`\
 https://www.nytimes.com/live/2026/05/28/us/scripps-spelling-bee
 
 **A Democrat’s Dodge on AIPAC Points to the Party’s Tensions Over Israel**\
