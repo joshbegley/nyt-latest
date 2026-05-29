@@ -1,3 +1,7 @@
+**ICE Agents to Leave Site of Volatile Protests at Detention Center**\
+`Clashes between protesters and armed federal agents have erupted at the parking lot of Delaney Hall in Newark since the Memorial Day weekend.`\
+https://www.nytimes.com/2026/05/29/nyregion/ice-protests-delaney-hall-nj.html
+
 **Actually, Most Immigrants Won’t Need to Leave U.S. to Get Green Cards, D.H.S. Says**\
 `But details remained scant after officials said last week that, with “extraordinary” exceptions, people seeking permanent residency must first leave the country.`\
 https://www.nytimes.com/2026/05/29/us/politics/green-cards-dhs.html

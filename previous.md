@@ -1,3 +1,7 @@
+**ICE Agents to Leave Site of Volatile Protests at Detention Center**\
+`Clashes between protesters and armed federal agents have erupted at the parking lot of Delaney Hall in Newark since the Memorial Day weekend.`\
+https://www.nytimes.com/2026/05/29/nyregion/ice-protests-delaney-hall-nj.html
+
 **Actually, Most Immigrants Won’t Need to Leave U.S. to Get Green Cards, D.H.S. Says**\
 `But details remained scant after officials said last week that, with “extraordinary” exceptions, people seeking permanent residency must first leave the country.`\
 https://www.nytimes.com/2026/05/29/us/politics/green-cards-dhs.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/29/world/asia/vietnam-to-lam-shangri-la-dialogue
 **What Exactly Caused That Loud Boom in South Carolina?**\
 `A huge noise rattled part of the state on Thursday. Multiple theories have been put forward, but the mystery remains.`\
 https://www.nytimes.com/2026/05/29/us/south-carolina-sonic-boom.html
-
-**Why ‘What Are You Wearing?’ Videos Are Everywhere**\
-`Plus an Everlane founder’s next venture, a streetwear tux and yet another toe-baring shoe.`\
-https://www.nytimes.com/2026/05/29/style/fit-check-videos.html
 
