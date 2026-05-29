@@ -1,3 +1,7 @@
+**Who Is Ahead in Washington's 3rd Congressional District?**\
+`Track the latest polls in Washington's 3rd Congressional District.`\
+https://www.nytimes.com/interactive/polls/washington-us-house-3-polls-2026.html
+
 **Inside the Room Where War Insurance Is Bought and Sold**\
 `Many of the ships stranded in the Persian Gulf depend on coverage negotiated at Lloyd’s, the center of marine insurance for more than 300 years.`\
 https://www.nytimes.com/2026/05/29/business/strait-hormuz-shipping-insurance-iran.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/05/29/us/doris-matsui-mai-vang-congress.html
 **9 New Movies Our Critics Are Talking About This Week**\
 `Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
 https://www.nytimes.com/2026/05/29/movies/new-movie-releases.html
-
-**$1.3 Million Homes in Sweden**\
-`A 10-bedroom manor from 1806, a 25-acre farm estate near the Baltic Sea, and a five-bedroom modern farmhouse.`\
-https://www.nytimes.com/2026/05/29/realestate/1-3-million-homes-in-sweden.html
 
