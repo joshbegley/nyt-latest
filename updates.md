@@ -1,3 +1,7 @@
+**Europa se acerca a una guerra comercial con China. Estas son las razones**\
+`A medida que Pekín adopta políticas comerciales más agresivas, los dirigentes y las empresas europeas se inquietan por su dependencia de los productos chinos.`\
+https://www.nytimes.com/es/2026/05/29/espanol/mundo/europa-china-guerra-comercial-economia.html
+
 **Europe Is Edging Closer to a Trade War With China. Here’s Why.**\
 `As cheap goods pour in, threatening the continent’s manufacturing sector, a search for solutions is becoming increasingly urgent.`\
 https://www.nytimes.com/2026/05/29/world/europe/europe-china-trade-war-electric-cars.html

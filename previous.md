@@ -1,3 +1,7 @@
+**Europa se acerca a una guerra comercial con China. Estas son las razones**\
+`A medida que Pekín adopta políticas comerciales más agresivas, los dirigentes y las empresas europeas se inquietan por su dependencia de los productos chinos.`\
+https://www.nytimes.com/es/2026/05/29/espanol/mundo/europa-china-guerra-comercial-economia.html
+
 **Hooters se reinventa como restaurante familiar**\
 `La cadena conocida por sus pequeños uniformes y sus “noches en bikini” intenta cambiar su imagen. ¿Alguien quiere un pañalero de Hooters?`\
 https://www.nytimes.com/es/2026/05/29/espanol/estilos-de-vida/hooters-familias-ninos.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/05/28/briefing/iran-inflation-spelling-bee.html
 **A Draft U.S.-Iran Plan Is Said to Be on the Table. Here’s What to Know.**\
 `U.S. and Iranian officials say they are closing in on the terms of a preliminary agreement. Yet sticking points, particularly over the Strait of Hormuz, remain.`\
 https://www.nytimes.com/2026/05/28/world/middleeast/iran-us-agreement-plan.html
-
-**Trump Administration Shows Off $250 Bill Featuring Trump**\
-`During a press conference at the White House on Thursday, Treasury Secretary Scott Bessent displayed a mocked-up $250 bill bearing President Trump’s likeness.`\
-https://www.nytimes.com/video/us/politics/100000010931638/bessent-treasury-trump-250-bill.html
 
 **Shrey Parikh Triumphs After Tense Spell-Off**\
 `The 14-year-old from California spelled a record 32 words correctly in 90 seconds to prevail in the Scripps National Spelling Bee, clinching the victory with the winning word “bromocriptine.”`\
