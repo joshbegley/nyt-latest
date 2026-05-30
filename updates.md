@@ -1,3 +1,7 @@
+**Want to ‘Optimize’ Your Happiness? This Happiness Expert Says: Don’t.**\
+`Dr. Laurie Santos is a cognitive scientist, podcaster and professor whose class on happiness quickly became the most popular in Yale’s history. She tells Lulu Garcia-Navarro what history and science say happiness really is.`\
+https://www.nytimes.com/video/podcasts/100000010932794/want-to-optimize-your-happiness-this-happiness-expert-says-dont.html
+
 **Hombres, escondan a sus gatos**\
 `O, al menos, no los pongan en la foto de su perfil de citas en línea.`\
 https://www.nytimes.com/es/2026/05/30/espanol/estilos-de-vida/modern-love-hombres-gatos-citas.html
