@@ -1,3 +1,7 @@
+**How to Make Cosmic Blondies**\
+`These easy bars are crowned with swooshes of colorful white chocolate ganache and showers of glitter.`\
+https://www.nytimes.com/2026/05/30/dining/how-to-make-cosmic-blondies-june-bake-time.html
+
 **Cómo lograr que tus hijos se acerquen más a sus abuelos**\
 `Intercambiar mensajes de texto o audios tiene beneficios para ambas generaciones. Los expertos comparten ideas.`\
 https://www.nytimes.com/es/2026/05/30/espanol/estilos-de-vida/nietos-abuelos-comunicacion.html
@@ -142,7 +146,7 @@ https://www.nytimes.com/2026/05/30/arts/london-southbank-undercroft-skate-park.h
 `Tom Steyer wants to address California’s housing crisis if he becomes governor. He is also a billionaire with extensive personal real estate holdings.`\
 https://www.nytimes.com/2026/05/30/us/tom-steyer-housing-wealthy.html
 
-**ask**\
+**How Do I Stop a Bad Landlord From Ruining My Neighborhood?**\
 `A well-organized group of neighbors is often the most powerful force.`\
 https://www.nytimes.com/2026/05/30/realestate/how-to-stop-a-bad-landlord-from-ruining-a-neighborhood.html
 
@@ -171,7 +175,7 @@ https://www.nytimes.com/2026/05/30/well/medical-aid-in-dying.html
 https://www.nytimes.com/2026/05/30/arts/bird-watching-podcasts-sean-bean.html
 
 **Powerful A.I. Super PACs Duel Over the Midterms: ‘This Is a War’**\
-`One is allied with Anthropic. The other is tied to OpenAI. They’re both spending millions to influence the midterms, and they’re leaving a trail of fearful candidates and canceled ads in their wake.`\
+`One super PAC is allied with Anthropic. The other is tied to OpenAI. They’re both spending millions to influence this year’s elections.`\
 https://www.nytimes.com/2026/05/30/us/politics/anthropic-openai-super-pacs-midterms.html
 
 **Can California Convince Teens to Work in Construction?**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/30/us/politics/trump-immigrants-health-housing.h
 **In a Quiet Corner of America, Greyhound Racing Hangs On. For Now.**\
 `West Virginia is home to the country’s last greyhound races, a sport that once drew millions of spectators each year but may soon be banned nationwide.`\
 https://www.nytimes.com/2026/05/30/us/in-a-quiet-corner-of-america-greyhound-racing-hangs-on-for-now.html
-
-**These Tiny, Mighty Kid Influencers Are Changing the Face of Fitness**\
-`Think a 10-year-old can’t pump serious iron?`\
-https://www.nytimes.com/2026/05/30/well/move/kid-fitness-influencers.html
 

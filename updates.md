@@ -1,3 +1,15 @@
+**How to Make Cosmic Blondies**\
+`These easy bars are crowned with swooshes of colorful white chocolate ganache and showers of glitter.`\
+https://www.nytimes.com/2026/05/30/dining/how-to-make-cosmic-blondies-june-bake-time.html
+
+**How Do I Stop a Bad Landlord From Ruining My Neighborhood?**\
+`A well-organized group of neighbors is often the most powerful force.`\
+https://www.nytimes.com/2026/05/30/realestate/how-to-stop-a-bad-landlord-from-ruining-a-neighborhood.html
+
+**Powerful A.I. Super PACs Duel Over the Midterms: ‘This Is a War’**\
+`One super PAC is allied with Anthropic. The other is tied to OpenAI. They’re both spending millions to influence this year’s elections.`\
+https://www.nytimes.com/2026/05/30/us/politics/anthropic-openai-super-pacs-midterms.html
+
 **Cómo lograr que tus hijos se acerquen más a sus abuelos**\
 `Intercambiar mensajes de texto o audios tiene beneficios para ambas generaciones. Los expertos comparten ideas.`\
 https://www.nytimes.com/es/2026/05/30/espanol/estilos-de-vida/nietos-abuelos-comunicacion.html
