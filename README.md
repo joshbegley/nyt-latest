@@ -1,3 +1,23 @@
+**Ginger Minj Knows You Can Never Go Wrong With Rhinestones**\
+`“I blame Dolly Parton for this in some way,” the “RuPaul’s Drag Race” star said, “but it’s just right, it’s fun and it’s eye-catching.”`\
+https://www.nytimes.com/2026/05/30/movies/ginger-minj-drag-race-stop-that-train.html
+
+**Making Motherhood and a Long Tennis Career Possible**\
+`Tennis is a solitary sport, but with new fertility benefits, a sisterhood of egg freezers is emerging in locker rooms and players’ lounges.`\
+https://www.nytimes.com/2026/05/30/business/tennis-wta-in-vitro-fertilization.html
+
+**Trump on His Presidential Library: He’ll Write His Own History**\
+`In his determination to own and control every document in his future library, the president is working to shield his administration’s inner workings from public view.`\
+https://www.nytimes.com/2026/05/30/us/politics/trump-library.html
+
+**The World Capital of French Fries Has a Problem: Too Many Potatoes**\
+`Belgium’s potato harvest set a record, just as tariffs hit U.S. demand for frozen fries and as competition from suppliers in Asia intensified.`\
+https://www.nytimes.com/2026/05/30/world/europe/europe-belgium-potato-surplus.html
+
+**Mary Trump Talks Love and Marriage**\
+`The president’s niece is newly married and ready to open up about her life with Ronda Cress.`\
+https://www.nytimes.com/2026/05/30/fashion/weddings/mary-trumps-married-ronda-cress.html
+
 **Want to ‘Optimize’ Your Happiness? This Happiness Expert Says: Don’t.**\
 `Dr. Laurie Santos is a cognitive scientist, podcaster and professor whose class on happiness quickly became the most popular in Yale’s history. She tells Lulu Garcia-Navarro what history and science say happiness really is.`\
 https://www.nytimes.com/video/podcasts/100000010932794/want-to-optimize-your-happiness-this-happiness-expert-says-dont.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/05/29/arts/dance/claude-bessy-dead.html
 **Rescuers Free Miner Trapped Inside a Cave in Laos**\
 `One of the miners trapped inside a cave for more than a week was freed on Friday. Rescue crews are still working to pull out four more miners and find two others who are missing.`\
 https://www.nytimes.com/video/world/asia/100000010933491/laos-cave-rescue.html
-
-**What’s Next for Blue Origin After Rocket Explosion**\
-`Jeff Bezos was gaining ground on Elon Musk’s SpaceX and Starlink. Thursday’s rocket explosion on a launchpad creates a major setback.`\
-https://www.nytimes.com/2026/05/29/technology/blue-origin-amazon-rocket-explosion.html
-
-**Journalist Favored by Trump Is in Talks to Join White House in Temporary Role**\
-`John Solomon said he was being vetted for a role as a “special government employee,” a status given to part-time, outside advisers to the federal government.`\
-https://www.nytimes.com/2026/05/29/us/politics/john-solomon-trump-white-house.html
-
-**Sugar Cookie Bars**\
-`These sugar cookie bars, which are adapted from “American Girl Cookies,” are happiness in a 9-by-13 pan according to Margaux Laskey, a recipes editor for NYT Cooking. The addition of cream cheese in the batter makes them very tender and slightly tangy, a perfect counterpoint to the sweet buttercream frosting.`\
-https://www.nytimes.com/video/dining/100000010933539/sugar-cookie-bars.html
-
-**Basil Tofu**\
-`Inspired by the savory heat of pad krapow, the popular Thai dish of stir-fried ground chicken or pork with chiles, garlic and basil, this tofu version is just as robustly seasoned and satiating.`\
-https://www.nytimes.com/video/dining/100000010933512/basil-tofu.html
-
-**Coconut Saag**\
-`Saag paneer is a classic North Indian dish — but it’s also endlessly riffable. This is a particularly stellar riff, in which coconut milk enriches an already aromatic and verdant sauce that can be paired with either the traditional paneer, or extra-firm tofu.`\
-https://www.nytimes.com/video/dining/100000010933452/coconut-saag.html
 
