@@ -1,3 +1,7 @@
+**Ye and Travis Scott Concerts Canceled in Italy Over Security Fears**\
+`The events were canceled “to ensure public order and safety,” the authorities said. Jewish leaders had objected to the concert by Ye, formerly known as Kanye West, who has a history of antisemitic remarks.`\
+https://www.nytimes.com/2026/05/30/world/europe/ye-travis-scott-italy-concerts.html
+
 **When War Breaks Out Over the Family Business, They Get the Call**\
 `As baby boomers begin passing down trillions in assets, advisers who specialize in navigating the process — and the emotions around it — have never been busier.`\
 https://www.nytimes.com/2026/05/30/business/dealbook/family-business-counselors.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/30/business/tennis-wta-in-vitro-fertilization.ht
 **Trump on His Presidential Library: He’ll Write His Own History**\
 `In his determination to own and control every document in his future library, the president is working to shield his administration’s inner workings from public view.`\
 https://www.nytimes.com/2026/05/30/us/politics/trump-library.html
-
-**The World Capital of French Fries Has a Problem: Too Many Potatoes**\
-`Belgium’s potato harvest set a record, just as tariffs hit U.S. demand for frozen fries and as competition from suppliers in Asia intensified.`\
-https://www.nytimes.com/2026/05/30/world/europe/europe-belgium-potato-surplus.html
 

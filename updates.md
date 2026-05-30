@@ -1,3 +1,7 @@
+**Ye and Travis Scott Concerts Canceled in Italy Over Security Fears**\
+`The events were canceled “to ensure public order and safety,” the authorities said. Jewish leaders had objected to the concert by Ye, formerly known as Kanye West, who has a history of antisemitic remarks.`\
+https://www.nytimes.com/2026/05/30/world/europe/ye-travis-scott-italy-concerts.html
+
 **When War Breaks Out Over the Family Business, They Get the Call**\
 `As baby boomers begin passing down trillions in assets, advisers who specialize in navigating the process — and the emotions around it — have never been busier.`\
 https://www.nytimes.com/2026/05/30/business/dealbook/family-business-counselors.html
