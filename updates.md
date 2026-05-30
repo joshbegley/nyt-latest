@@ -1,3 +1,7 @@
+**Iran’s Team Trains in Limbo for World Cup Overshadowed by War**\
+`The Iranian soccer players, still awaiting visas to the U.S., are practicing in Turkey and making backup plans.`\
+https://www.nytimes.com/2026/05/30/world/middleeast/iran-mens-soccer-team-world-cup.html
+
 **As Trump Mulls Decision About Iran War Deal, a Restive Middle East Waits to Hear**\
 `The president has wavered on whether to move ahead with an agreement with Iran to end the war. On Friday, he vowed to make a “final determination” soon.`\
 https://www.nytimes.com/2026/05/30/world/middleeast/trump-deal-middle-east-iran.html
