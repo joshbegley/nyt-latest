@@ -1,3 +1,7 @@
+**White House Releases Results of Trump’s Latest Physical Exam**\
+`The report by President Trump’s physician said he was in “excellent health.” It showed that he had gained weight and that neurological and heart tests had come back “normal.”`\
+https://www.nytimes.com/2026/05/30/us/politics/trump-health-medical-physical-exam.html
+
 **Lo que 370.000 ensayos universitarios nos dicen sobre los efectos de la IA en la creatividad**\
 `La IA puede ser una muleta que perjudique nuestra capacidad de pensar creativamente.`\
 https://www.nytimes.com/es/2026/05/30/espanol/opinion/escribir-ia-creatividad.html
