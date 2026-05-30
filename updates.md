@@ -1,3 +1,7 @@
+**Militares de EE. UU. y de Cuba se reúnen fuera de la base de Guantánamo**\
+`La reunión fue el encuentro militar de más alto nivel desde que el gobierno de Donald Trump comenzó a aumentar la presión sobre el gobierno cubano este año.`\
+https://www.nytimes.com/es/2026/05/30/espanol/estados-unidos/reunion-militares-cuba-guantanamo.html
+
 **U.S. and Cuban Military Officials Meet Outside of Guantánamo Base**\
 `The meeting was the highest-level military engagement since the Trump administration began ratcheting up pressure on the Cuban government this year.`\
 https://www.nytimes.com/2026/05/30/us/politics/cuba-trump-military-officials-guantanamo.html
