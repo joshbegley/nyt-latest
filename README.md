@@ -1,3 +1,7 @@
+**Rolling in It**\
+`Malaika Handa and Erik Agard present a puzzle that’s dripping with great details.`\
+https://www.nytimes.com/2026/05/29/crosswords/daily-puzzle-2026-05-30.html
+
 **Homelessness Declined in 2024, According to Delayed Federal Report**\
 `The modest drop marked the first decrease in homelessness in nearly a decade. The Housing and Urban Development report was published months later than usual.`\
 https://www.nytimes.com/2026/05/29/us/politics/homelessness-declined-in-2024-according-to-delayed-federal-report.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/100000010932939/texas-roller-coaster-breaks.htm
 **Israeli Troops Push Deeper Into Lebanon as Cease-Fire Talks Continue**\
 `Prime Minister Benjamin Netanyahu said Israeli ground forces had crossed Lebanon’s Litani River, as military officials from the two countries were set to meet for U.S.-brokered talks.`\
 https://www.nytimes.com/2026/05/29/world/middleeast/israel-lebanon-litani-troops-talks.html
-
-**Louisiana Approves Map Eliminating a Majority-Black District**\
-`A Supreme Court court ruling last month rejected the state’s previous congressional map as an illegal racial gerrymander and set off a redistricting race across the South.`\
-https://www.nytimes.com/2026/05/29/us/politics/louisiana-redistricting-map-majority-black-district.html
 
