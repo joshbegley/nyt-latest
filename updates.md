@@ -1,3 +1,7 @@
+**Season Pass**\
+`Today, let’s set our ambitions for summer reading.`\
+https://www.nytimes.com/2026/05/30/briefing/season-pass.html
+
 **Hegseth’s Message to Asian Partners: Do More to Get More**\
 `At a security conference in Singapore, Defense Secretary Pete Hegseth told Asian military leaders how they could get to “the front of the line” for U.S. assistance.`\
 https://www.nytimes.com/2026/05/30/world/asia/hegseth-asia-security-shangri-la.html
