@@ -1,3 +1,15 @@
+**Want to ‘Optimize’ Your Happiness? This Happiness Expert Says: Don’t.**\
+`Laurie Santos on what will really bring meaning and fulfillment to your life, and what won’t.`\
+https://www.nytimes.com/2026/05/30/magazine/laurie-santos-interview.html
+
+**Elecciones presidenciales en Colombia: la seguridad es el tema principal**\
+`Las encuestas sugieren que la contienda será una decisión entre la izquierda, liderada por Iván Cepeda, que representa la continuidad de Petro, y la extrema derecha, cuyo candidato, Abelardo De La Espriella, ha suscitado comparaciones con Nayib Bukele.`\
+https://www.nytimes.com/es/2026/05/30/espanol/america-latina/elecciones-presidenciales-colombia-seguridad.html
+
+**5 Takeaways From a Kennedy Center Ruling That Angered Trump**\
+`A federal judge ordered the Kennedy Center to take President Trump’s name off the building. What happens next?`\
+https://www.nytimes.com/2026/05/30/arts/kennedy-center-trump-name-takeaways.html
+
 **Ariana Grande, Ravyn Lenae: 7 Songs We’re Talking About This Week**\
 `Ariana Grande moves back into pop, Iceage crashes into the cosmos, Ravyn Lenae channels the 1980s and more.`\
 https://www.nytimes.com/2026/05/30/arts/music/ariana-grande-ravyn-lenae-songs.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/05/30/world/europe/germany-lithuania-military-deplo
 **Who’s the Vegas Retiree With the Big Offer for Greenland?**\
 `Clifford E. Stanley, a retired broker, explains his unusual mission, which caught a lot of people by surprise.`\
 https://www.nytimes.com/2026/05/30/world/europe/greenland-trump-clifford-stanley.html
-
-**Corrections: May 31, 2026**\
-`Corrections that appeared in print on Sunday, May 31, 2026.`\
-https://www.nytimes.com/2026/05/30/pageoneplus/corrections-may-31-2026.html
-
-**Corrections: May 30, 2026**\
-`Corrections that appeared in print on Saturday, May 30, 2026.`\
-https://www.nytimes.com/2026/05/30/pageoneplus/corrections-may-30-2026.html
-
-**China’s Rise in Drug Development Looms Over U.S.**\
-`Clinical trials in China are getting attention at an international oncology gathering in Chicago. China’s surging biotechnology industry is fueling alarm that U.S. dominance in the field is waning.`\
-https://www.nytimes.com/2026/05/30/business/china-lung-cancer-drugs-asco.html
 
