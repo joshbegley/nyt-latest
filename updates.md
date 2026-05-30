@@ -1,3 +1,23 @@
+**U.S. and Cuban Military Officials Meet Outside of Guantánamo Base**\
+`The meeting was the highest-level military engagement since the Trump administration began ratcheting up pressure on the Cuban government this year.`\
+https://www.nytimes.com/2026/05/30/us/politics/cuba-trump-military-officials-guantanamo.html
+
+**Iran’s Team Trains in Limbo for World Cup Overshadowed by War**\
+`The Iranian soccer players, still awaiting visas to the U.S., are practicing in Turkey and making backup plans.`\
+https://www.nytimes.com/2026/05/30/world/middleeast/iran-mens-soccer-team-world-cup.html
+
+****\
+`School children chanting praise to Shivaji, the Maratha king, by his statue in Malvan, Maharashtra, in January.`\
+https://www.nytimes.com/video/embedded/world/asia/100000010675619/00INT-INDIA-WARRIOR-30291.html
+
+**A Frosty Glass of Greens**\
+`Ali Slagle’s green smoothie is my favorite low-effort way to get my greens.`\
+https://www.nytimes.com/2026/05/30/dining/a-frosty-glass-of-greens.html
+
+**Elecciones presidenciales en Colombia: la seguridad es el tema principal**\
+`Las encuestas sugieren que la contienda será una decisión entre la izquierda, liderada por Iván Cepeda, que representa la continuidad de Petro, y la extrema derecha, cuyo candidato, Abelardo de la Espriella, ha suscitado comparaciones con Nayib Bukele.`\
+https://www.nytimes.com/es/2026/05/30/espanol/america-latina/elecciones-presidenciales-colombia-seguridad.html
+
 **Powerful A.I. Super PACs Duel Over the Midterms: ‘This Is a War’**\
 `One super PAC is allied with Anthropic. The other is tied to OpenAI. They’re both spending millions to influence this year’s elections.`\
 https://www.nytimes.com/2026/05/30/us/politics/anthropic-openai-super-pacs-midterms.html
