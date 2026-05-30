@@ -1,3 +1,7 @@
+**Rolling in It**\
+`Malaika Handa and Erik Agard present a puzzle that’s dripping with great details.`\
+https://www.nytimes.com/2026/05/29/crosswords/daily-puzzle-2026-05-30.html
+
 **Homelessness Declined in 2024, According to Delayed Federal Report**\
 `The modest drop marked the first decrease in homelessness in nearly a decade. The Housing and Urban Development report was published months later than usual.`\
 https://www.nytimes.com/2026/05/29/us/politics/homelessness-declined-in-2024-according-to-delayed-federal-report.html
