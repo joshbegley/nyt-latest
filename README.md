@@ -1,3 +1,7 @@
+**Militares de EE. UU. y de Cuba se reúnen fuera de la base de Guantánamo**\
+`La reunión fue el encuentro militar de más alto nivel desde que el gobierno de Donald Trump comenzó a aumentar la presión sobre el gobierno cubano este año.`\
+https://www.nytimes.com/es/2026/05/30/espanol/estados-unidos/reunion-militares-cuba-guantanamo.html
+
 **U.S. and Cuban Military Officials Meet Outside of Guantánamo Base**\
 `The meeting was the highest-level military engagement since the Trump administration began ratcheting up pressure on the Cuban government this year.`\
 https://www.nytimes.com/2026/05/30/us/politics/cuba-trump-military-officials-guantanamo.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/30/arts/television/euphoria-sex-cam.html
 **By September, Nearly a Third of Americans Will Live in States With Legal Aid in Dying**\
 `Despite widespread support in polls, the number of people who actually go through with the practice remains very small.`\
 https://www.nytimes.com/2026/05/30/well/medical-aid-in-dying.html
-
-**7 Podcasts About the Joys of Bird-Watching**\
-`These shows offer expert advice and fun facts that will help both novices and enthusiasts get the most out of tuning into the winged world.`\
-https://www.nytimes.com/2026/05/30/arts/bird-watching-podcasts-sean-bean.html
 
