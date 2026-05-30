@@ -1,3 +1,35 @@
+**Platner’s Texts With Women Concerned Campaign as Senate Race Took Off**\
+`The wife of Graham Platner, the Democratic candidate in Maine, told the campaign he had sent sexual messages to other women.`\
+https://www.nytimes.com/2026/05/30/us/politics/graham-platner-maine-senate-texts.html
+
+**Four More Miners Rescued From Flooded Cave in Laos**\
+`Four more miners were rescued from a flooded cave in Laos on Saturday after being trapped for more than a week. Five miners in total have been rescued, and crews are still searching for two more.`\
+https://www.nytimes.com/video/world/asia/100000010934880/laos-cave-rescue-four.html
+
+**Who Is Ahead in Washington's 5th Congressional District?**\
+`Track the latest polls in Washington's 5th Congressional District.`\
+https://www.nytimes.com/interactive/polls/washington-us-house-5-polls-2026.html
+
+**U.S. Military Kills 3 on Boat Suspected of Drug Trafficking**\
+`Around 200 people have now been killed in the attacks since last year, in an operation critics say has failed to slow the smuggling of cocaine.`\
+https://www.nytimes.com/2026/05/30/us/politics/military-boat-strike.html
+
+**Who Is Ahead in Alaska's At-Large Congressional District?**\
+`Track the latest polls in Alaska's At-Large Congressional District.`\
+https://www.nytimes.com/interactive/polls/alaska-us-house-at-large-polls-2026.html
+
+**Militares de EE. UU. y de Cuba se reúnen fuera de la base de Guantánamo**\
+`La reunión fue el encuentro militar de más alto nivel desde que el gobierno de Donald Trump comenzó a aumentar la presión sobre el gobierno cubano este año.`\
+https://www.nytimes.com/es/2026/05/30/espanol/estados-unidos/reunion-militares-cuba-guantanamo.html
+
+**U.S. and Cuban Military Officials Meet Outside of Guantánamo Base**\
+`The meeting was the highest-level military engagement since the Trump administration began ratcheting up pressure on the Cuban government this year.`\
+https://www.nytimes.com/2026/05/30/us/politics/cuba-trump-military-officials-guantanamo.html
+
+**Iran’s Team Trains in Limbo for World Cup Overshadowed by War**\
+`The Iranian soccer players, still awaiting visas to the U.S., are practicing in Turkey and making backup plans.`\
+https://www.nytimes.com/2026/05/30/world/middleeast/iran-mens-soccer-team-world-cup.html
+
 **Colombia’s Elections Are a Crucial Test for the Left in Latin America**\
 `Colombia’s leftist candidate for president leads in polls, but his main rival — a far-right outsider who calls himself “The Tiger” — has gained momentum. Elections are Sunday.`\
 https://www.nytimes.com/2026/05/30/world/americas/colombia-election-latin-america-left.html

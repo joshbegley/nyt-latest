@@ -1,3 +1,35 @@
+**Platner’s Texts With Women Concerned Campaign as Senate Race Took Off**\
+`The wife of Graham Platner, the Democratic candidate in Maine, told the campaign he had sent sexual messages to other women.`\
+https://www.nytimes.com/2026/05/30/us/politics/graham-platner-maine-senate-texts.html
+
+**Four More Miners Rescued From Flooded Cave in Laos**\
+`Four more miners were rescued from a flooded cave in Laos on Saturday after being trapped for more than a week. Five miners in total have been rescued, and crews are still searching for two more.`\
+https://www.nytimes.com/video/world/asia/100000010934880/laos-cave-rescue-four.html
+
+**Who Is Ahead in Washington's 5th Congressional District?**\
+`Track the latest polls in Washington's 5th Congressional District.`\
+https://www.nytimes.com/interactive/polls/washington-us-house-5-polls-2026.html
+
+**U.S. Military Kills 3 on Boat Suspected of Drug Trafficking**\
+`Around 200 people have now been killed in the attacks since last year, in an operation critics say has failed to slow the smuggling of cocaine.`\
+https://www.nytimes.com/2026/05/30/us/politics/military-boat-strike.html
+
+**Who Is Ahead in Alaska's At-Large Congressional District?**\
+`Track the latest polls in Alaska's At-Large Congressional District.`\
+https://www.nytimes.com/interactive/polls/alaska-us-house-at-large-polls-2026.html
+
+**Militares de EE. UU. y de Cuba se reúnen fuera de la base de Guantánamo**\
+`La reunión fue el encuentro militar de más alto nivel desde que el gobierno de Donald Trump comenzó a aumentar la presión sobre el gobierno cubano este año.`\
+https://www.nytimes.com/es/2026/05/30/espanol/estados-unidos/reunion-militares-cuba-guantanamo.html
+
+**U.S. and Cuban Military Officials Meet Outside of Guantánamo Base**\
+`The meeting was the highest-level military engagement since the Trump administration began ratcheting up pressure on the Cuban government this year.`\
+https://www.nytimes.com/2026/05/30/us/politics/cuba-trump-military-officials-guantanamo.html
+
+**Iran’s Team Trains in Limbo for World Cup Overshadowed by War**\
+`The Iranian soccer players, still awaiting visas to the U.S., are practicing in Turkey and making backup plans.`\
+https://www.nytimes.com/2026/05/30/world/middleeast/iran-mens-soccer-team-world-cup.html
+
 ****\
 `School children chanting praise to Shivaji, the Maratha king, by his statue in Malvan, Maharashtra, in January.`\
 https://www.nytimes.com/video/embedded/world/asia/100000010675619/00INT-INDIA-WARRIOR-30291.html
@@ -165,36 +197,4 @@ https://www.nytimes.com/2026/05/30/us/tom-steyer-housing-wealthy.html
 **How Do I Stop a Bad Landlord From Ruining My Neighborhood?**\
 `A well-organized group of neighbors is often the most powerful force.`\
 https://www.nytimes.com/2026/05/30/realestate/how-to-stop-a-bad-landlord-from-ruining-a-neighborhood.html
-
-**Is JD Vance the 2028 Front Runner? Trump Has Questions.**\
-`President Trump appears to see the matter of his heir as unsettled, adding a layer of tension to his relationship with Vice President JD Vance.`\
-https://www.nytimes.com/2026/05/30/us/politics/is-jd-vance-the-2028-front-runner-trump-has-questions.html
-
-**9 U.S. Voters Tell Us How They’re Coping With Higher Prices**\
-`The spiraling cost of everyday necessities — gas, utilities, groceries, housing, child care and health care — have forced many Americans to do more with less.`\
-https://www.nytimes.com/2026/05/30/us/midterm-voters-affordability.html
-
-**Colombia’s Elections Are a Crucial Test for the Left in Latin America**\
-`Colombia’s leftist candidate for president leads in polls, but his main rival — a far-right outsider who calls himself “The Tiger” — has gained momentum. Elections are Sunday.`\
-https://www.nytimes.com/2026/05/30/world/americas/colombia-election-latin-america-left.html
-
-**On ‘Euphoria’ and Elsewhere, TV Is Having a Sex Cam Spring**\
-`Virtual sex work is nothing new on TV. But this year it is more visible, central to series like “Euphoria,” “Margo’s Got Money Troubles” and “Maximum Pleasure Guaranteed.”`\
-https://www.nytimes.com/2026/05/30/arts/television/euphoria-sex-cam.html
-
-**By September, Nearly a Third of Americans Will Live in States With Legal Aid in Dying**\
-`Despite widespread support in polls, the number of people who actually go through with the practice remains very small.`\
-https://www.nytimes.com/2026/05/30/well/medical-aid-in-dying.html
-
-**7 Podcasts About the Joys of Bird-Watching**\
-`These shows offer expert advice and fun facts that will help both novices and enthusiasts get the most out of tuning into the winged world.`\
-https://www.nytimes.com/2026/05/30/arts/bird-watching-podcasts-sean-bean.html
-
-**Powerful A.I. Super PACs Duel Over the Midterms: ‘This Is a War’**\
-`One super PAC is allied with Anthropic. The other is tied to OpenAI. They’re both spending millions to influence this year’s elections.`\
-https://www.nytimes.com/2026/05/30/us/politics/anthropic-openai-super-pacs-midterms.html
-
-**Can California Convince Teens to Work in Construction?**\
-`Facing an uncertain job market and the looming threat of A.I., graduating high school seniors in America’s tech capital are increasingly rethinking their career plans. Job demand in fields like construction, along with the allure of potential six-figure salaries, have some high schools investing in hands-on classes that are redefining what success looks like for the class of 2026.`\
-https://www.nytimes.com/video/us/100000010907463/california-high-schools-construction-trade-classes.html
 
