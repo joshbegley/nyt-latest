@@ -1,3 +1,7 @@
+**Middle East on Edge as Trump Mulls Decision About Iran Deal**\
+`The president has wavered on whether to move ahead with an agreement with Iran to end the war. On Friday, he vowed to make a “final determination” soon.`\
+https://www.nytimes.com/2026/05/30/world/middleeast/trump-deal-middle-east-iran.html
+
 **Ye and Travis Scott Concerts Canceled in Italy Over Security Fears**\
 `The events were canceled “to ensure public order and safety,” the authorities said. Jewish leaders had objected to the concert by Ye, formerly known as Kanye West, who has a history of antisemitic remarks.`\
 https://www.nytimes.com/2026/05/30/world/europe/ye-travis-scott-italy-concerts.html

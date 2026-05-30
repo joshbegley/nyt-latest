@@ -1,3 +1,7 @@
+**What I Saw Inside an Ebola Ward**\
+`Our chief Africa correspondent, Declan Walsh, walked inside an Ebola ward where both adults and children were being treated, and where someone had recently died of the disease amid a spiraling outbreak in the region. This is what he saw.`\
+https://www.nytimes.com/video/world/africa/100000010929380/what-i-saw-inside-an-ebola-ward.html
+
 **Middle East on Edge as Trump Mulls Decision About Iran Deal**\
 `The president has wavered on whether to move ahead with an agreement with Iran to end the war. On Friday, he vowed to make a “final determination” soon.`\
 https://www.nytimes.com/2026/05/30/world/middleeast/trump-deal-middle-east-iran.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/30/well/move/kid-fitness-influencers.html
 **Ginger Minj Knows You Can Never Go Wrong With Rhinestones**\
 `“I blame Dolly Parton for this in some way,” the “RuPaul’s Drag Race” star said, “but it’s just right, it’s fun and it’s eye-catching.”`\
 https://www.nytimes.com/2026/05/30/movies/ginger-minj-drag-race-stop-that-train.html
-
-**Making Motherhood and a Long Tennis Career Possible**\
-`Tennis is a solitary sport, but with new fertility benefits, a sisterhood of egg freezers is emerging in locker rooms and players’ lounges.`\
-https://www.nytimes.com/2026/05/30/business/tennis-wta-in-vitro-fertilization.html
 

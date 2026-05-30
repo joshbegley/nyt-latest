@@ -1,3 +1,7 @@
+**Middle East on Edge as Trump Mulls Decision About Iran Deal**\
+`The president has wavered on whether to move ahead with an agreement with Iran to end the war. On Friday, he vowed to make a “final determination” soon.`\
+https://www.nytimes.com/2026/05/30/world/middleeast/trump-deal-middle-east-iran.html
+
 **Ye and Travis Scott Concerts Canceled in Italy Over Security Fears**\
 `The events were canceled “to ensure public order and safety,” the authorities said. Jewish leaders had objected to the concert by Ye, formerly known as Kanye West, who has a history of antisemitic remarks.`\
 https://www.nytimes.com/2026/05/30/world/europe/ye-travis-scott-italy-concerts.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/30/movies/ginger-minj-drag-race-stop-that-train.
 **Making Motherhood and a Long Tennis Career Possible**\
 `Tennis is a solitary sport, but with new fertility benefits, a sisterhood of egg freezers is emerging in locker rooms and players’ lounges.`\
 https://www.nytimes.com/2026/05/30/business/tennis-wta-in-vitro-fertilization.html
-
-**Trump on His Presidential Library: He’ll Write His Own History**\
-`In his determination to own and control every document in his future library, the president is working to shield his administration’s inner workings from public view.`\
-https://www.nytimes.com/2026/05/30/us/politics/trump-library.html
 
