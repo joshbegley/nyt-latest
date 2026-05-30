@@ -1,3 +1,11 @@
+**Loud Boom in Boston Area Puzzles Residents**\
+`The reverberation came two days after a similar event in South Carolina had caused alarm. This time, it could have been a meteorite.`\
+https://www.nytimes.com/2026/05/30/us/boston-area-boom.html
+
+**Trump Suggests He’ll Headline Freedom 250 Concerts After Artists Drop Off**\
+`The president said on social media that he should replace “these highly paid, Third Rate ‘Artists,’” calling himself “the man who gets much larger audiences than Elvis.”`\
+https://www.nytimes.com/2026/05/30/arts/music/trump-freedom-250-concert-cancellations.html
+
 **What to Know About the ICE Agent Arrested in Texas for a Shooting in Minnesota**\
 `The agent was charged in Minnesota with assault and filing a false police report in the shooting of an immigrant from Venezuela.`\
 https://www.nytimes.com/2026/05/30/us/ice-agent-arrested-texas-minnesota-shooting.html
