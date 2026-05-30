@@ -12,7 +12,7 @@ https://www.nytimes.com/2026/05/30/us/politics/dan-sullivan-election-senate-alas
 
 **Loud Booms Heard Along the East Coast This Week**\
 `Loud booms were heard in the Boston area on Saturday and in South Carolina on Thursday. Weather officials said the noise in Boston may have been a meteorite; the cause of the South Carolina boom is still unknown.`\
-https://www.nytimes.com/video/us/100000010935131/loud-booms-heard-along-the-east-coast-this-week.html
+https://www.nytimes.com/video/us/100000010935131/loud-booms-boston-south-carolina.html
 
 **Target Practice**\
 `Jeffrey Martinovic and Evan Park hit the bull’s-eye with their Sunday puzzle collaboration.`\

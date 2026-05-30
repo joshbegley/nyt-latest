@@ -1,3 +1,7 @@
+**Loud Booms Heard Along the East Coast This Week**\
+`Loud booms were heard in the Boston area on Saturday and in South Carolina on Thursday. Weather officials said the noise in Boston may have been a meteorite; the cause of the South Carolina boom is still unknown.`\
+https://www.nytimes.com/video/us/100000010935131/loud-booms-boston-south-carolina.html
+
 **C.I.A. Officer Arrested With Gold Once Worked With No. 2 Pentagon Official**\
 `David Rush, a longtime C.I.A. officer, appears to have first had contact with Stephen A. Feinberg during President Trump’s first term. Some officials said the two men were not close.`\
 https://www.nytimes.com/2026/05/30/us/politics/cia-gold-bars-stephen-feinberg.html
