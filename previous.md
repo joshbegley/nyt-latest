@@ -1,3 +1,7 @@
+**Who Is Ahead in Alaska's At-Large Congressional District?**\
+`Track the latest polls in Alaska's At-Large Congressional District.`\
+https://www.nytimes.com/interactive/polls/alaska-us-house-at-large-polls-2026.html
+
 **Militares de EE. UU. y de Cuba se reúnen fuera de la base de Guantánamo**\
 `La reunión fue el encuentro militar de más alto nivel desde que el gobierno de Donald Trump comenzó a aumentar la presión sobre el gobierno cubano este año.`\
 https://www.nytimes.com/es/2026/05/30/espanol/estados-unidos/reunion-militares-cuba-guantanamo.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/30/world/americas/colombia-election-latin-americ
 **On ‘Euphoria’ and Elsewhere, TV Is Having a Sex Cam Spring**\
 `Virtual sex work is nothing new on TV. But this year it is more visible, central to series like “Euphoria,” “Margo’s Got Money Troubles” and “Maximum Pleasure Guaranteed.”`\
 https://www.nytimes.com/2026/05/30/arts/television/euphoria-sex-cam.html
-
-**By September, Nearly a Third of Americans Will Live in States With Legal Aid in Dying**\
-`Despite widespread support in polls, the number of people who actually go through with the practice remains very small.`\
-https://www.nytimes.com/2026/05/30/well/medical-aid-in-dying.html
 
