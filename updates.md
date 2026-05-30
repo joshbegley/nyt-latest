@@ -1,3 +1,27 @@
+**Sorry, Republicans, Trump Doesn’t Love You Back**\
+`The president is acting as if the midterms no longer matter.`\
+https://www.nytimes.com/2026/05/30/opinion/yolo-republicans-texas-primary.html
+
+**The Best News in America**\
+`A low murder rate is by no means the only measure of a good society. But it’s a pretty good measure of a society’s underlying stability.`\
+https://www.nytimes.com/2026/05/30/opinion/murder-crime-rate-america.html
+
+**What the Meat Industry Doesn’t Want You to Know**\
+`I once raised pigs. And factory farms raise them today in conditions that are as unconscionable as they are invisible.`\
+https://www.nytimes.com/2026/05/30/opinion/pigs-farm-bill-meat-industry.html
+
+**The First A.I. High School in the U.S. Is Surprisingly Human**\
+`Schools are not like start-ups, because children’s minds should not be tied to the whims of the marketplace.`\
+https://www.nytimes.com/2026/05/30/opinion/ai-high-school.html
+
+**How to Legalize Starter Homes**\
+`Blue states like Massachusetts need to be part of the solution.`\
+https://www.nytimes.com/2026/05/30/opinion/affordable-housing-lot-size-ballot-initiative.html
+
+**Sorry, Republicans, Trump Doesn’t Love You Back**\
+`The president is acting as if the midterms no longer matter.`\
+https://www.nytimes.com/video/opinion/100000010931483/sorry-republicans-trump-doesnt-love-you-back.html
+
 **Season Pass**\
 `Today, let’s set our ambitions for summer reading.`\
 https://www.nytimes.com/2026/05/30/briefing/season-pass.html

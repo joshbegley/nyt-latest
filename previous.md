@@ -1,3 +1,27 @@
+**Sorry, Republicans, Trump Doesn’t Love You Back**\
+`The president is acting as if the midterms no longer matter.`\
+https://www.nytimes.com/2026/05/30/opinion/yolo-republicans-texas-primary.html
+
+**The Best News in America**\
+`A low murder rate is by no means the only measure of a good society. But it’s a pretty good measure of a society’s underlying stability.`\
+https://www.nytimes.com/2026/05/30/opinion/murder-crime-rate-america.html
+
+**What the Meat Industry Doesn’t Want You to Know**\
+`I once raised pigs. And factory farms raise them today in conditions that are as unconscionable as they are invisible.`\
+https://www.nytimes.com/2026/05/30/opinion/pigs-farm-bill-meat-industry.html
+
+**The First A.I. High School in the U.S. Is Surprisingly Human**\
+`Schools are not like start-ups, because children’s minds should not be tied to the whims of the marketplace.`\
+https://www.nytimes.com/2026/05/30/opinion/ai-high-school.html
+
+**How to Legalize Starter Homes**\
+`Blue states like Massachusetts need to be part of the solution.`\
+https://www.nytimes.com/2026/05/30/opinion/affordable-housing-lot-size-ballot-initiative.html
+
+**Sorry, Republicans, Trump Doesn’t Love You Back**\
+`The president is acting as if the midterms no longer matter.`\
+https://www.nytimes.com/video/opinion/100000010931483/sorry-republicans-trump-doesnt-love-you-back.html
+
 **Season Pass**\
 `Today, let’s set our ambitions for summer reading.`\
 https://www.nytimes.com/2026/05/30/briefing/season-pass.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/05/30/fashion/weddings/mary-trumps-married-ronda-cr
 **Want to ‘Optimize’ Your Happiness? This Happiness Expert Says: Don’t.**\
 `Dr. Laurie Santos is a cognitive scientist, podcaster and professor whose class on happiness quickly became the most popular in Yale’s history. She tells Lulu Garcia-Navarro what history and science say happiness really is.`\
 https://www.nytimes.com/video/podcasts/100000010932794/want-to-optimize-your-happiness-this-happiness-expert-says-dont.html
-
-**Hombres, escondan a sus gatos**\
-`O, al menos, no los pongan en la foto de su perfil de citas en línea.`\
-https://www.nytimes.com/es/2026/05/30/espanol/estilos-de-vida/modern-love-hombres-gatos-citas.html
-
-**Paul McCartney ya no necesita hacer música. Pero le encanta**\
-`Con un nuevo disco que recupera sus raíces en Liverpool y los métodos analógicos de los Beatles, McCartney demuestra que la música nunca fue un trabajo: es una adicción.`\
-https://www.nytimes.com/es/2026/05/30/espanol/cultura/paul-mccartney-nuevo-disco.html
-
-**Un suplemento de longevidad podría estar basado en un principio erróneo**\
-`Una nueva investigación plantea que la idea que impulsó el consumo de NAD+ como suplemento contra el envejecimiento puede no ser precisa.`\
-https://www.nytimes.com/es/2026/05/30/espanol/nad-suplemento-longevidad.html
-
-**NYT Spelling Bee Answers for May 30, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/05/30/crosswords/spelling-bee-forum.html
-
-**Inside Humorist David Sedaris’s Two Upper East Side Apartments**\
-`The humorist on art collecting, interacting with fans and a surprising upside of the Upper East Side.`\
-https://www.nytimes.com/interactive/2026/05/30/realestate/david-sedaris-home-tour-new-york.html
-
-**‘Partying With a Purpose’: The Dance Party Making Millions for Parks**\
-`Concerts under the Kosciuszko Bridge in north Brooklyn have drawn more than 350,000 people since 2022 and raised millions to maintain local parks and open spaces.`\
-https://www.nytimes.com/2026/05/30/nyregion/partying-with-a-purpose-the-dance-party-making-millions-for-parks.html
 
