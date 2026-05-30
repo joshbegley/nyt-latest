@@ -1,3 +1,7 @@
+****\
+`School children chanting praise to Shivaji, the Maratha king, by his statue in Malvan, Maharashtra, in January.`\
+https://www.nytimes.com/video/embedded/world/asia/100000010675619/00INT-INDIA-WARRIOR-30291.html
+
 **When Wedding Guests Don’t Bring a Gift**\
 `For some couples, gifts, especially cash, are a way to recoup expenses. For others, they’re a cultural vestige of a time when people tended to marry at the start of their adult lives.`\
 https://www.nytimes.com/2026/05/30/fashion/weddings/when-wedding-guests-dont-bring-a-gift.html
