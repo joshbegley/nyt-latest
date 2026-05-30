@@ -1,3 +1,7 @@
+**A Big Bang, a Fire and Panic as War Enters Romanian Homes**\
+`When a drone crashed into an apartment building in eastern Romania, residents were reminded that the Russia-Ukraine war makes for a dangerous neighbor.`\
+https://www.nytimes.com/2026/05/30/world/europe/romania-drone-russia-ukraine.html
+
 **Living With Cancer: Personal Stories**\
 `Readers react to a guest essay about how some patients are living longer with advanced cancer.`\
 https://www.nytimes.com/2026/05/30/opinion/letters/cancer-personal-stories.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/30/fashion/weddings/when-wedding-guests-dont-bri
 **Book Review: ‘Sublimation,’ by Isabel J. Kim**\
 `In her book “Sublimation,” Isabel J. Kim reimagines the dilemmas of immigration through a science fiction story about scheming clones.`\
 https://www.nytimes.com/2026/05/30/books/review/sublimation-isabel-j-kim.html
-
-**Trump Squeezes Immigrants by Cutting Them Off From Jobs, Health Care and Housing**\
-`The methodically planned strategy is intended to pressure noncitizens, including many with legal status, to leave the United States.`\
-https://www.nytimes.com/2026/05/30/us/politics/trump-immigrants-health-housing.html
 
