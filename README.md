@@ -1,19 +1,3 @@
-**U.S. and Cuban Military Officials Meet Outside of Guantánamo Base**\
-`The meeting was the highest-level military engagement since the Trump administration began ratcheting up pressure on the Cuban government this year.`\
-https://www.nytimes.com/2026/05/30/us/politics/cuba-trump-military-officials-guantanamo.html
-
-**Iran’s Team Trains in Limbo for World Cup Overshadowed by War**\
-`The Iranian soccer players, still awaiting visas to the U.S., are practicing in Turkey and making backup plans.`\
-https://www.nytimes.com/2026/05/30/world/middleeast/iran-mens-soccer-team-world-cup.html
-
-****\
-`School children chanting praise to Shivaji, the Maratha king, by his statue in Malvan, Maharashtra, in January.`\
-https://www.nytimes.com/video/embedded/world/asia/100000010675619/00INT-INDIA-WARRIOR-30291.html
-
-**A Frosty Glass of Greens**\
-`Ali Slagle’s green smoothie is my favorite low-effort way to get my greens.`\
-https://www.nytimes.com/2026/05/30/dining/a-frosty-glass-of-greens.html
-
 **A Big Bang, a Fire and Panic as War Enters Romanian Homes**\
 `When a drone crashed into an apartment building in eastern Romania, residents were reminded that the Russia-Ukraine war makes for a dangerous neighbor.`\
 https://www.nytimes.com/2026/05/30/world/europe/romania-drone-russia-ukraine.html
@@ -197,4 +181,20 @@ https://www.nytimes.com/2026/05/30/well/medical-aid-in-dying.html
 **7 Podcasts About the Joys of Bird-Watching**\
 `These shows offer expert advice and fun facts that will help both novices and enthusiasts get the most out of tuning into the winged world.`\
 https://www.nytimes.com/2026/05/30/arts/bird-watching-podcasts-sean-bean.html
+
+**Powerful A.I. Super PACs Duel Over the Midterms: ‘This Is a War’**\
+`One super PAC is allied with Anthropic. The other is tied to OpenAI. They’re both spending millions to influence this year’s elections.`\
+https://www.nytimes.com/2026/05/30/us/politics/anthropic-openai-super-pacs-midterms.html
+
+**Can California Convince Teens to Work in Construction?**\
+`Facing an uncertain job market and the looming threat of A.I., graduating high school seniors in America’s tech capital are increasingly rethinking their career plans. Job demand in fields like construction, along with the allure of potential six-figure salaries, have some high schools investing in hands-on classes that are redefining what success looks like for the class of 2026.`\
+https://www.nytimes.com/video/us/100000010907463/california-high-schools-construction-trade-classes.html
+
+**When Wedding Guests Don’t Bring a Gift**\
+`For some couples, gifts, especially cash, are a way to recoup expenses. For others, they’re a cultural vestige of a time when people tended to marry at the start of their adult lives.`\
+https://www.nytimes.com/2026/05/30/fashion/weddings/when-wedding-guests-dont-bring-a-gift.html
+
+**Book Review: ‘Sublimation,’ by Isabel J. Kim**\
+`In her book “Sublimation,” Isabel J. Kim reimagines the dilemmas of immigration through a science fiction story about scheming clones.`\
+https://www.nytimes.com/2026/05/30/books/review/sublimation-isabel-j-kim.html
 
