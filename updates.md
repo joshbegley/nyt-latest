@@ -1,3 +1,7 @@
+**Trump Squeezes Immigrants by Cutting Them Off From Jobs, Health Care and Housing**\
+`The methodically planned strategy is intended to pressure noncitizens, including many with legal status, to leave the United States.`\
+https://www.nytimes.com/2026/05/30/us/politics/trump-immigrants-health-housing.html
+
 **5 Are Freed in Laos Cave Rescue After More Than a Week**\
 `Rescuers pumped water from the flooded cave, enabling four miners to crawl out. One used diving gear to escape earlier, and two remain missing.`\
 https://www.nytimes.com/2026/05/30/world/asia/laos-cave-rescue-four.html
