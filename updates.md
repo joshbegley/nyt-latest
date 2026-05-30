@@ -1,3 +1,19 @@
+**Powerful A.I. Super PACs Duel Over the Midterms: ‘This Is a War’**\
+`One super PAC is allied with Anthropic. The other is tied to OpenAI. They’re both spending millions to influence this year’s elections.`\
+https://www.nytimes.com/2026/05/30/us/politics/anthropic-openai-super-pacs-midterms.html
+
+**Can California Convince Teens to Work in Construction?**\
+`Facing an uncertain job market and the looming threat of A.I., graduating high school seniors in America’s tech capital are increasingly rethinking their career plans. Job demand in fields like construction, along with the allure of potential six-figure salaries, have some high schools investing in hands-on classes that are redefining what success looks like for the class of 2026.`\
+https://www.nytimes.com/video/us/100000010907463/california-high-schools-construction-trade-classes.html
+
+**When Wedding Guests Don’t Bring a Gift**\
+`For some couples, gifts, especially cash, are a way to recoup expenses. For others, they’re a cultural vestige of a time when people tended to marry at the start of their adult lives.`\
+https://www.nytimes.com/2026/05/30/fashion/weddings/when-wedding-guests-dont-bring-a-gift.html
+
+**Book Review: ‘Sublimation,’ by Isabel J. Kim**\
+`In her book “Sublimation,” Isabel J. Kim reimagines the dilemmas of immigration through a science fiction story about scheming clones.`\
+https://www.nytimes.com/2026/05/30/books/review/sublimation-isabel-j-kim.html
+
 **U.S. and Cuban Military Officials Meet Outside of Guantánamo Base**\
 `The meeting was the highest-level military engagement since the Trump administration began ratcheting up pressure on the Cuban government this year.`\
 https://www.nytimes.com/2026/05/30/us/politics/cuba-trump-military-officials-guantanamo.html
