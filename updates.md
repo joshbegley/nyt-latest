@@ -1,3 +1,11 @@
+**What to Know About the ICE Agent Arrested in Texas for a Shooting in Minnesota**\
+`The agent was charged in Minnesota with assault and filing a false police report in the shooting of an immigrant from Venezuela.`\
+https://www.nytimes.com/2026/05/30/us/ice-agent-arrested-texas-minnesota-shooting.html
+
+**Una jueza reabre la demanda de Trump al IRS y cuestiona su fondo ‘antinstrumentalización’**\
+`La orden fue un golpe tanto para el presidente Trump, quien había desestimado voluntariamente la demanda la semana pasada, como para el Departamento de Justicia, que utilizó la demanda para establecer un fondo que podría estar destinado a los aliados de Trump.`\
+https://www.nytimes.com/es/2026/05/30/espanol/estados-unidos/demanda-trump-irs.html
+
 **Storm Blasts New England With Cold and Wind**\
 `Residents ready for summer lamented the unusual late May weather as tens of thousands of customers lost power in multiple states, including Connecticut and Massachusetts.`\
 https://www.nytimes.com/2026/05/30/weather/new-england-cold-weather-storm-power-outages.html
