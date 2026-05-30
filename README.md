@@ -182,7 +182,7 @@ https://www.nytimes.com/2026/05/30/fashion/weddings/when-wedding-guests-dont-bri
 `In her book “Sublimation,” Isabel J. Kim reimagines the dilemmas of immigration through a science fiction story about scheming clones.`\
 https://www.nytimes.com/2026/05/30/books/review/sublimation-isabel-j-kim.html
 
-**Trump Squeezes Immigrants by Cutting Them Off From Jobs, Healthcare and Housing**\
+**Trump Squeezes Immigrants by Cutting Them Off From Jobs, Health Care and Housing**\
 `The methodically planned strategy is intended to pressure noncitizens, including many with legal status, to leave the United States.`\
 https://www.nytimes.com/2026/05/30/us/politics/trump-immigrants-health-housing.html
 
