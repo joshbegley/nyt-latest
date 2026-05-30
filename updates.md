@@ -1,3 +1,7 @@
+**Among Mamdani’s Priorities, Economic Development Seems Low on the List**\
+`Mayor Zohran Mamdani has not filled the vacant role of president of the Economic Development Corporation, deepening concern over his attention to the New York City economy.`\
+https://www.nytimes.com/2026/05/29/nyregion/mamdani-edc-economy-nyc.html
+
 **Rolling in It**\
 `Malaika Handa and Erik Agard present a puzzle that’s dripping with great details.`\
 https://www.nytimes.com/2026/05/29/crosswords/daily-puzzle-2026-05-30.html
