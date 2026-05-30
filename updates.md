@@ -1,3 +1,7 @@
+****\
+`School children chanting praise to Shivaji, the Maratha king, by his statue in Malvan, Maharashtra, in January.`\
+https://www.nytimes.com/video/embedded/world/asia/100000010675619/00INT-INDIA-WARRIOR-30291.html
+
 **A Frosty Glass of Greens**\
 `Ali Slagle’s green smoothie is my favorite low-effort way to get my greens.`\
 https://www.nytimes.com/2026/05/30/dining/a-frosty-glass-of-greens.html
