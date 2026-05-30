@@ -1,3 +1,7 @@
+**A Frosty Glass of Greens**\
+`Ali Slagle’s green smoothie is my favorite low-effort way to get my greens.`\
+https://www.nytimes.com/2026/05/30/dining/a-frosty-glass-of-greens.html
+
 **A Big Bang, a Fire and Panic as War Enters Romanian Homes**\
 `When a drone crashed into an apartment building in eastern Romania, residents were reminded that the Russia-Ukraine war makes for a dangerous neighbor.`\
 https://www.nytimes.com/2026/05/30/world/europe/romania-drone-russia-ukraine.html
@@ -18,7 +22,7 @@ https://www.nytimes.com/es/2026/05/30/espanol/estilos-de-vida/nietos-abuelos-com
 `Our chief Africa correspondent, Declan Walsh, walked inside an Ebola ward where both adults and children were being treated, and where someone had recently died of the disease amid a spiraling outbreak in the region. This is what he saw.`\
 https://www.nytimes.com/video/world/africa/100000010929380/what-i-saw-inside-an-ebola-ward.html
 
-**Middle East on Edge as Trump Mulls Decision About Iran Deal**\
+**As Trump Mulls Decision About Iran War Deal, the Middle East Remains on Edge**\
 `The president has wavered on whether to move ahead with an agreement with Iran to end the war. On Friday, he vowed to make a “final determination” soon.`\
 https://www.nytimes.com/2026/05/30/world/middleeast/trump-deal-middle-east-iran.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/100000010907463/california-high-schools-constru
 **When Wedding Guests Don’t Bring a Gift**\
 `For some couples, gifts, especially cash, are a way to recoup expenses. For others, they’re a cultural vestige of a time when people tended to marry at the start of their adult lives.`\
 https://www.nytimes.com/2026/05/30/fashion/weddings/when-wedding-guests-dont-bring-a-gift.html
-
-**Book Review: ‘Sublimation,’ by Isabel J. Kim**\
-`In her book “Sublimation,” Isabel J. Kim reimagines the dilemmas of immigration through a science fiction story about scheming clones.`\
-https://www.nytimes.com/2026/05/30/books/review/sublimation-isabel-j-kim.html
 

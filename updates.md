@@ -1,3 +1,11 @@
+**A Frosty Glass of Greens**\
+`Ali Slagle’s green smoothie is my favorite low-effort way to get my greens.`\
+https://www.nytimes.com/2026/05/30/dining/a-frosty-glass-of-greens.html
+
+**As Trump Mulls Decision About Iran War Deal, the Middle East Remains on Edge**\
+`The president has wavered on whether to move ahead with an agreement with Iran to end the war. On Friday, he vowed to make a “final determination” soon.`\
+https://www.nytimes.com/2026/05/30/world/middleeast/trump-deal-middle-east-iran.html
+
 **A Big Bang, a Fire and Panic as War Enters Romanian Homes**\
 `When a drone crashed into an apartment building in eastern Romania, residents were reminded that the Russia-Ukraine war makes for a dangerous neighbor.`\
 https://www.nytimes.com/2026/05/30/world/europe/romania-drone-russia-ukraine.html
