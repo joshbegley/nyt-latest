@@ -1,3 +1,15 @@
+**C.I.A. Officer Arrested With Gold Once Worked With No. 2 Pentagon Official**\
+`David Rush, a longtime C.I.A. officer, appears to have first had contact with Stephen A. Feinberg during President Trump’s first term. Some officials said the two men were not close.`\
+https://www.nytimes.com/2026/05/30/us/politics/cia-gold-bars-stephen-feinberg.html
+
+**W.H.O. Chief Visits Ebola-Struck Region: ‘It’s Time to Move Fast’**\
+`Dr. Tedros Adhanom Ghebreyesus, the director general of the World Health Organization, told The New York Times on a flight to the Democratic Republic of Congo that swift international support was necessary to contain the Ebola virus, which is spreading rapidly there.`\
+https://www.nytimes.com/video/world/africa/100000010934879/who-chief-visits-ebola-struck-region-its-time-to-move-fast.html
+
+**Boom in Boston Area Puzzles Residents. There Are ‘Hints’ It Was a Meteorite.**\
+`A fireball reached 75,000 miles per hour before breaking up miles above New England, NASA said, causing a boom that alarmed residents. The incident followed a similar event in South Carolina.`\
+https://www.nytimes.com/2026/05/30/us/boston-area-boom.html
+
 **Senator Dan Sullivan Has a New Challenger in Alaska: Dan Sullivan**\
 `Two candidates with the same name will be on the ballot seeking the same seat in the state’s primary. “It’s going to be confusing,” one Republican said.`\
 https://www.nytimes.com/2026/05/30/us/politics/dan-sullivan-election-senate-alaska.html
