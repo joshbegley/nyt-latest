@@ -1,3 +1,27 @@
+**My Partner’s Dependence on Chatbots Is Becoming a Problem. How Do I Tell Him?**\
+`One reason I love my partner is his sharp mind and critical thinking. Using A.I. for every decision is something I don’t understand.`\
+https://www.nytimes.com/2026/05/30/magazine/partner-chatbot-dependence-ethics.html
+
+**Today’s Wordle Hints for May, 31 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, May, 31 2026.`\
+https://www.nytimes.com/2026/05/30/crosswords/wordle-review-1807.html
+
+**NYT Connections Answers for May 31, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, May 31, 2026.`\
+https://www.nytimes.com/2026/05/30/crosswords/connections-companion-1085.html
+
+**NYT Strands Hints for May 31, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, May 31, 2026.`\
+https://www.nytimes.com/2026/05/30/crosswords/strands-sidekick-819.html
+
+**Is a Canadian Car the Answer to Trump’s Tariffs? The Bricklin Shows the Risks.**\
+`A sports car made in New Brunswick and mostly funded by the province lasted only about 18 months.`\
+https://www.nytimes.com/2026/05/30/world/canada/carney-auto-tariffs-bricklin-car.html
+
+**Inside the Ebola Epicenter, the Virus Rages With Little to Stop It**\
+`A remote gold mining town is under siege, as medical workers struggle to beat back a surge of deaths and infections.`\
+https://www.nytimes.com/2026/05/30/world/africa/ebola-epicenter-congo.html
+
 **Want to ‘Optimize’ Your Happiness? This Happiness Expert Says: Don’t.**\
 `Laurie Santos on what will really bring meaning and fulfillment to your life, and what won’t.`\
 https://www.nytimes.com/2026/05/30/magazine/laurie-santos-interview.html

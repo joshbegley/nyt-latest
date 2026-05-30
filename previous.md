@@ -1,3 +1,27 @@
+**My Partner’s Dependence on Chatbots Is Becoming a Problem. How Do I Tell Him?**\
+`One reason I love my partner is his sharp mind and critical thinking. Using A.I. for every decision is something I don’t understand.`\
+https://www.nytimes.com/2026/05/30/magazine/partner-chatbot-dependence-ethics.html
+
+**Today’s Wordle Hints for May, 31 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, May, 31 2026.`\
+https://www.nytimes.com/2026/05/30/crosswords/wordle-review-1807.html
+
+**NYT Connections Answers for May 31, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, May 31, 2026.`\
+https://www.nytimes.com/2026/05/30/crosswords/connections-companion-1085.html
+
+**NYT Strands Hints for May 31, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, May 31, 2026.`\
+https://www.nytimes.com/2026/05/30/crosswords/strands-sidekick-819.html
+
+**Is a Canadian Car the Answer to Trump’s Tariffs? The Bricklin Shows the Risks.**\
+`A sports car made in New Brunswick and mostly funded by the province lasted only about 18 months.`\
+https://www.nytimes.com/2026/05/30/world/canada/carney-auto-tariffs-bricklin-car.html
+
+**Inside the Ebola Epicenter, the Virus Rages With Little to Stop It**\
+`A remote gold mining town is under siege, as medical workers struggle to beat back a surge of deaths and infections.`\
+https://www.nytimes.com/2026/05/30/world/africa/ebola-epicenter-congo.html
+
 **Want to ‘Optimize’ Your Happiness? This Happiness Expert Says: Don’t.**\
 `Laurie Santos on what will really bring meaning and fulfillment to your life, and what won’t.`\
 https://www.nytimes.com/2026/05/30/magazine/laurie-santos-interview.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/05/30/nyregion/adam-hamawy-election-nj.html
 **¿Es normal babear mientras duermo?**\
 `La saliva es importante para nuestra salud, pero incluso un pequeño goteo puede ser embarazoso. Los expertos explican por qué ocurre.`\
 https://www.nytimes.com/es/2026/05/30/espanol/normal-babear-dormir.html
-
-**White House Releases Results of Trump’s Latest Physical Exam**\
-`The report by President Trump’s physician said he was in “excellent health.” It showed that he had gained weight and that neurological and heart tests had come back “normal.”`\
-https://www.nytimes.com/2026/05/30/us/politics/trump-health-medical-physical-exam.html
-
-**Lo que 370.000 ensayos universitarios nos dicen sobre los efectos de la IA en la creatividad**\
-`La IA puede ser una muleta que perjudique nuestra capacidad de pensar creativamente.`\
-https://www.nytimes.com/es/2026/05/30/espanol/opinion/escribir-ia-creatividad.html
-
-**How Curry Shops Got Caught in Japan’s Immigration Crackdown**\
-`Under Prime Minister Sanae Takaichi, new visa rules are forcing some foreign business owners, who have put down roots in Japan, to leave.`\
-https://www.nytimes.com/2026/05/30/world/asia/japan-immigration-curry-shops.html
-
-**Quote of the Day: Invasive Species? A Top Flower Show Buzzes Over Gnomes.**\
-`Quotation of the Day for Saturday, May 30, 2026.`\
-https://www.nytimes.com/2026/05/30/pageoneplus/quote-of-the-day-invasive-species-a-top-flower-show-buzzes-over-gnomes.html
-
-**Lithuania, Once Occupied by Germany, Is Glad German Troops Are Back**\
-`Berlin has deployed forces to protect the Baltic country amid fears of increased Russian aggression in Europe. This time, the soldiers were welcomed.`\
-https://www.nytimes.com/2026/05/30/world/europe/germany-lithuania-military-deployment.html
-
-**Who’s the Vegas Retiree With the Big Offer for Greenland?**\
-`Clifford E. Stanley, a retired broker, explains his unusual mission, which caught a lot of people by surprise.`\
-https://www.nytimes.com/2026/05/30/world/europe/greenland-trump-clifford-stanley.html
 
