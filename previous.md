@@ -1,3 +1,7 @@
+**Cómo lograr que tus hijos se acerquen más a sus abuelos**\
+`Intercambiar mensajes de texto o audios tiene beneficios para ambas generaciones. Los expertos comparten ideas.`\
+https://www.nytimes.com/es/2026/05/30/espanol/estilos-de-vida/nietos-abuelos-comunicacion.html
+
 **What I Saw Inside an Ebola Ward**\
 `Our chief Africa correspondent, Declan Walsh, walked inside an Ebola ward where both adults and children were being treated, and where someone had recently died of the disease amid a spiraling outbreak in the region. This is what he saw.`\
 https://www.nytimes.com/video/world/africa/100000010929380/what-i-saw-inside-an-ebola-ward.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/30/us/in-a-quiet-corner-of-america-greyhound-rac
 **These Tiny, Mighty Kid Influencers Are Changing the Face of Fitness**\
 `Think a 10-year-old can’t pump serious iron?`\
 https://www.nytimes.com/2026/05/30/well/move/kid-fitness-influencers.html
-
-**Ginger Minj Knows You Can Never Go Wrong With Rhinestones**\
-`“I blame Dolly Parton for this in some way,” the “RuPaul’s Drag Race” star said, “but it’s just right, it’s fun and it’s eye-catching.”`\
-https://www.nytimes.com/2026/05/30/movies/ginger-minj-drag-race-stop-that-train.html
 

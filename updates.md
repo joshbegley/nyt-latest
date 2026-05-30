@@ -1,3 +1,7 @@
+**Cómo lograr que tus hijos se acerquen más a sus abuelos**\
+`Intercambiar mensajes de texto o audios tiene beneficios para ambas generaciones. Los expertos comparten ideas.`\
+https://www.nytimes.com/es/2026/05/30/espanol/estilos-de-vida/nietos-abuelos-comunicacion.html
+
 **Trump Squeezes Immigrants by Cutting Them Off From Jobs, Health Care and Housing**\
 `The methodically planned strategy is intended to pressure noncitizens, including many with legal status, to leave the United States.`\
 https://www.nytimes.com/2026/05/30/us/politics/trump-immigrants-health-housing.html
