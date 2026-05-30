@@ -1,3 +1,7 @@
+**Lo que 370.000 ensayos universitarios nos dicen sobre los efectos de la IA en la creatividad**\
+`La IA puede ser una muleta que perjudique nuestra capacidad de pensar creativamente.`\
+https://www.nytimes.com/es/2026/05/30/espanol/opinion/escribir-ia-creatividad.html
+
 **How Curry Shops Got Caught in Japan’s Immigration Crackdown**\
 `Under Prime Minister Sanae Takaichi, new visa rules are forcing some foreign business owners, who have put down roots in Japan, to leave.`\
 https://www.nytimes.com/2026/05/30/world/asia/japan-immigration-curry-shops.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/embedded/us/politics/100000010933608/29vid-Robert-
 **Marc Johnson, Street Skateboarder Who Shaped a Sport’s Culture, Dies at 49**\
 `His appearance in the 2007 film “Fully Flared” helped earn him one of the sport’s most prestigious honors: Thrasher Magazine’s skater of the year.`\
 https://www.nytimes.com/2026/05/29/sports/marc-johnson-skateboarder-dead.html
-
-**A Clean Energy PAC Helped Beat Chip Roy, and Now It Has New Targets**\
-`A PAC representing wind and solar energy interests spent $1.1 million to boost the Republican primary opponent of Chip Roy, an opponent of renewables. Now they are trying to save a Republican ally in Iowa.`\
-https://www.nytimes.com/2026/05/29/climate/clean-energy-pac-chip-roy.html
 
