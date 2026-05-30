@@ -1,3 +1,7 @@
+**Loud Booms Heard Along the East Coast This Week**\
+`Loud booms were heard in the Boston area on Saturday and in South Carolina on Thursday. Weather officials said the noise in Boston may have been a meteorite; the cause of the South Carolina boom is still unknown.`\
+https://www.nytimes.com/video/us/100000010935131/loud-booms-heard-along-the-east-coast-this-week.html
+
 **Target Practice**\
 `Jeffrey Martinovic and Evan Park hit the bull’s-eye with their Sunday puzzle collaboration.`\
 https://www.nytimes.com/2026/05/30/crosswords/daily-puzzle-2026-05-31.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/30/dining/los-angeles-mayoral-race-restaurants.h
 **How Your Friend Group Influences How You Spend and Save**\
 `Our spending habits are often influenced by our social circles. You can help shape what it looks like.`\
 https://www.nytimes.com/2026/05/30/business/friends-spending-habits.html
-
-**‘Spider-Noir’ Review: Your Friendly Neighborhood Nicolas Cage**\
-`An often unbridled actor gets to play a mutant in a mash-up of superheroes and film noir on Amazon Prime Video.`\
-https://www.nytimes.com/2026/05/30/arts/television/spider-noir-review.html
 
