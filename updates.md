@@ -1,3 +1,7 @@
+**5 Are Freed in Laos Cave Rescue After More Than a Week**\
+`Rescuers pumped water from the flooded cave, enabling four miners to crawl out. One used diving gear to escape earlier, and two remain missing.`\
+https://www.nytimes.com/2026/05/30/world/asia/laos-cave-rescue-four.html
+
 **What I Saw Inside an Ebola Ward**\
 `Our chief Africa correspondent, Declan Walsh, walked inside an Ebola ward where both adults and children were being treated, and where someone had recently died of the disease amid a spiraling outbreak in the region. This is what he saw.`\
 https://www.nytimes.com/video/world/africa/100000010929380/what-i-saw-inside-an-ebola-ward.html

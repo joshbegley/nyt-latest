@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/05/30/world/europe/ye-travis-scott-italy-concerts.h
 `As baby boomers begin passing down trillions in assets, advisers who specialize in navigating the process — and the emotions around it — have never been busier.`\
 https://www.nytimes.com/2026/05/30/business/dealbook/family-business-counselors.html
 
-**Five Miners Are Rescued After Week Trapped in Flooded Laos Cave**\
+**5 Are Freed in Laos Cave Rescue After More Than a Week**\
 `Rescuers pumped water from the flooded cave, enabling four miners to crawl out. One used diving gear to escape earlier, and two remain missing.`\
 https://www.nytimes.com/2026/05/30/world/asia/laos-cave-rescue-four.html
 
