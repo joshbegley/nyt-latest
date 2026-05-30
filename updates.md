@@ -1,3 +1,7 @@
+**Target Practice**\
+`Jeffrey Martinovic and Evan Park hit the bull’s-eye with their Sunday puzzle collaboration.`\
+https://www.nytimes.com/2026/05/30/crosswords/daily-puzzle-2026-05-31.html
+
 **Trump Suggests He’ll Headline Freedom 250 Concerts After Artists Drop Out**\
 `The president said on social media that he should replace “these highly paid, Third Rate ‘Artists,’” calling himself “the man who gets much larger audiences than Elvis.”`\
 https://www.nytimes.com/2026/05/30/arts/music/trump-freedom-250-concert-cancellations.html

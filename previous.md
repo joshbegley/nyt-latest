@@ -1,3 +1,7 @@
+**Target Practice**\
+`Jeffrey Martinovic and Evan Park hit the bull’s-eye with their Sunday puzzle collaboration.`\
+https://www.nytimes.com/2026/05/30/crosswords/daily-puzzle-2026-05-31.html
+
 **Boom in Boston Area Puzzles Residents. There Are ‘Hints’ It Was a Meteorite.**\
 `The reverberation came two days after a similar event in South Carolina had caused alarm. This time, it could have been a meteorite.`\
 https://www.nytimes.com/2026/05/30/us/boston-area-boom.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/30/business/friends-spending-habits.html
 **‘Spider-Noir’ Review: Your Friendly Neighborhood Nicolas Cage**\
 `An often unbridled actor gets to play a mutant in a mash-up of superheroes and film noir on Amazon Prime Video.`\
 https://www.nytimes.com/2026/05/30/arts/television/spider-noir-review.html
-
-**Cómo perderse en los Países Bajos y pasarla bien**\
-`Un tour de ocho días que combina un barco fluvial como campamento base y rutas ciclistas autoguiadas ofrece a los viajeros la posibilidad de extraviarse de manera agradable mientras descubren la campiña neerlandesa.`\
-https://www.nytimes.com/es/2026/05/30/espanol/cultura/vacaciones-tulipanes-paises-bajos.html
 
