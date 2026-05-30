@@ -1,3 +1,7 @@
+**Gov. Sherrill Calls for Calm at Delaney Hall as Counterprotesters Arrive**\
+`The governor said she wanted to avoid escalating federal immigration enforcement operations amid protests at the immigration detention center, Delaney Hall.`\
+https://www.nytimes.com/2026/05/30/nyregion/delaney-hall-mikie-sherrill.html
+
 **Edgar Morin, ‘Grandfather’ of French Intellectuals, Dies at 104**\
 `A former member of the Resistance, he went on to a career spanning eras and disciplines. His books and pronouncements carried moral authority.`\
 https://www.nytimes.com/2026/05/30/world/europe/edgar-morin-dead.html
