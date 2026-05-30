@@ -1,3 +1,7 @@
+**Trump Lifts Restrictions on Off-Road Vehicles on Public Lands**\
+`The president rescinded two executive orders that led to prohibitions on the use of the vehicles in most national parks.`\
+https://www.nytimes.com/2026/05/29/climate/trump-off-road-vehicles-public-lands.html
+
 **El Senado de México vota a favor de permitir que las autoridades anulen elecciones por ‘injerencia extranjera’**\
 `La legislación, que llega en medio de crecientes tensiones entre México y la Casa Blanca, ahora debe ser aprobada por la mayoría de las legislaturas estatales y enviada a la presidenta.`\
 https://www.nytimes.com/es/2026/05/29/espanol/america-latina/senado-mexico-anular-elecciones-injerencia.html
