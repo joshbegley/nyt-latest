@@ -1,3 +1,7 @@
+**¿Es normal babear mientras duermo?**\
+`La saliva es importante para nuestra salud, pero incluso un pequeño goteo puede ser embarazoso. Los expertos explican por qué ocurre.`\
+https://www.nytimes.com/es/2026/05/30/espanol/normal-babear-dormir.html
+
 **White House Releases Results of Trump’s Latest Physical Exam**\
 `The report by President Trump’s physician said he was in “excellent health.” It showed that he had gained weight and that neurological and heart tests had come back “normal.”`\
 https://www.nytimes.com/2026/05/30/us/politics/trump-health-medical-physical-exam.html
