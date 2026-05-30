@@ -1,3 +1,7 @@
+**Living With Cancer: Personal Stories**\
+`Readers react to a guest essay about how some patients are living longer with advanced cancer.`\
+https://www.nytimes.com/2026/05/30/opinion/letters/cancer-personal-stories.html
+
 **How to Make Cosmic Blondies**\
 `These easy bars are crowned with swooshes of colorful white chocolate ganache and showers of glitter.`\
 https://www.nytimes.com/2026/05/30/dining/how-to-make-cosmic-blondies-june-bake-time.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/30/books/review/sublimation-isabel-j-kim.html
 **Trump Squeezes Immigrants by Cutting Them Off From Jobs, Health Care and Housing**\
 `The methodically planned strategy is intended to pressure noncitizens, including many with legal status, to leave the United States.`\
 https://www.nytimes.com/2026/05/30/us/politics/trump-immigrants-health-housing.html
-
-**In a Quiet Corner of America, Greyhound Racing Hangs On. For Now.**\
-`West Virginia is home to the country’s last greyhound races, a sport that once drew millions of spectators each year but may soon be banned nationwide.`\
-https://www.nytimes.com/2026/05/30/us/in-a-quiet-corner-of-america-greyhound-racing-hangs-on-for-now.html
 

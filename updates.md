@@ -1,3 +1,7 @@
+**Living With Cancer: Personal Stories**\
+`Readers react to a guest essay about how some patients are living longer with advanced cancer.`\
+https://www.nytimes.com/2026/05/30/opinion/letters/cancer-personal-stories.html
+
 **How to Make Cosmic Blondies**\
 `These easy bars are crowned with swooshes of colorful white chocolate ganache and showers of glitter.`\
 https://www.nytimes.com/2026/05/30/dining/how-to-make-cosmic-blondies-june-bake-time.html
