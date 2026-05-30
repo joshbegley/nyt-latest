@@ -1,8 +1,12 @@
+**Storm Blasts New England With Cold and Wind**\
+`Residents ready for summer lamented the unusual late May weather as tens of thousands of customers lost power in multiple states, including Connecticut and Massachusetts.`\
+https://www.nytimes.com/2026/05/30/weather/new-england-cold-weather-storm-power-outages.html
+
 **Dang Van Phuoc Dies at 90; Intrepid Photojournalist in Vietnam War**\
 `A photographer for The Associated Press, he spent a decade on the front lines of combat in his native Vietnam and lost his right eye in a grenade explosion.`\
 https://www.nytimes.com/2026/05/30/business/media/dang-van-phuoc-dead.html
 
-**Platner’s Texts With Women Concerned Campaign as Senate Race Took Off**\
+**Platner’s Wife Flagged His Sexual Texts With Other Women as Maine Senate Race Began**\
 `The wife of Graham Platner, the Democratic candidate in Maine, told the campaign he had sent sexual messages to other women.`\
 https://www.nytimes.com/2026/05/30/us/politics/graham-platner-maine-senate-texts.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/30/science/blue-micromoon.html
 **50 Years of Skateboarding at London’s Southbank Undercroft**\
 `Skateboarders make pilgrimages from around the world to a “found” London space that a grass-roots campaign saved from redevelopment.`\
 https://www.nytimes.com/2026/05/30/arts/london-southbank-undercroft-skate-park.html
-
-**Steyer Campaigns on Affordability. Does His Own Mansion Portfolio Matter?**\
-`Tom Steyer wants to address California’s housing crisis if he becomes governor. He is also a billionaire with extensive personal real estate holdings.`\
-https://www.nytimes.com/2026/05/30/us/tom-steyer-housing-wealthy.html
 
