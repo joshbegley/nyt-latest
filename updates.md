@@ -1,3 +1,11 @@
+**Who Is Ahead in Washington's 5th Congressional District?**\
+`Track the latest polls in Washington's 5th Congressional District.`\
+https://www.nytimes.com/interactive/polls/washington-us-house-5-polls-2026.html
+
+**U.S. Military Kills 3 on Boat Suspected of Drug Trafficking**\
+`Around 200 people have now been killed in the attacks since last year, in an operation critics say has failed to slow the smuggling of cocaine.`\
+https://www.nytimes.com/2026/05/30/us/politics/military-boat-strike.html
+
 **Who Is Ahead in Alaska's At-Large Congressional District?**\
 `Track the latest polls in Alaska's At-Large Congressional District.`\
 https://www.nytimes.com/interactive/polls/alaska-us-house-at-large-polls-2026.html

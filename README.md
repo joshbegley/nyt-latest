@@ -1,3 +1,7 @@
+**Four More Miners Rescued From Flooded Cave in Laos**\
+`Four more miners were rescued from a flooded cave in Laos on Saturday after being trapped for more than a week. Five miners in total have been rescued, and crews are still searching for two more.`\
+https://www.nytimes.com/video/world/asia/100000010934880/laos-cave-rescue-four.html
+
 **Who Is Ahead in Washington's 5th Congressional District?**\
 `Track the latest polls in Washington's 5th Congressional District.`\
 https://www.nytimes.com/interactive/polls/washington-us-house-5-polls-2026.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/30/realestate/how-to-stop-a-bad-landlord-from-ru
 **Is JD Vance the 2028 Front Runner? Trump Has Questions.**\
 `President Trump appears to see the matter of his heir as unsettled, adding a layer of tension to his relationship with Vice President JD Vance.`\
 https://www.nytimes.com/2026/05/30/us/politics/is-jd-vance-the-2028-front-runner-trump-has-questions.html
-
-**9 U.S. Voters Tell Us How They’re Coping With Higher Prices**\
-`The spiraling cost of everyday necessities — gas, utilities, groceries, housing, child care and health care — have forced many Americans to do more with less.`\
-https://www.nytimes.com/2026/05/30/us/midterm-voters-affordability.html
 
