@@ -1,3 +1,7 @@
+**Homelessness Declined in 2024, According to Delayed Federal Report**\
+`The modest drop marked the first decrease in homelessness in nearly a decade. The Housing and Urban Development report was published months later than usual.`\
+https://www.nytimes.com/2026/05/29/us/politics/homelessness-declined-in-2024-according-to-delayed-federal-report.html
+
 **Surveillance Ordered for Hantavirus Ship Passengers Who Go Home**\
 `Trump administration officials want local health authorities to constantly monitor the 18 passengers for another three weeks, a requirement that far exceeds typical protocols.`\
 https://www.nytimes.com/2026/05/29/us/hantavirus-ship-quarantine.html
