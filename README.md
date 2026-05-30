@@ -54,7 +54,7 @@ https://www.nytimes.com/2026/05/29/briefing/trump-irs-kennedy-center.html
 `Kenneth Law, who ran an online business that shipped toxic salt to customers in 40 countries, also admitted to causing the deaths of 79 people in Britain, prosecutors said.`\
 https://www.nytimes.com/2026/05/29/world/canada/kenneth-law-canada-poison.html
 
-**What We Know — and Don’t — About the E. Jean Carroll Lawsuits Inquiry**\
+**What We Know (and Don’t) About the E. Jean Carroll Lawsuits Inquiry**\
 `Prosecutors would face substantial hurdles in potentially pursuing charges against Ms. Carroll, who twice won cases against Donald Trump, or the billionaire who helped pay her lawyers.`\
 https://www.nytimes.com/2026/05/29/us/politics/carroll-hoffman-legal-explainer.html
 
