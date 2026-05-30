@@ -1,4 +1,4 @@
-**Sorry, Republicans, Trump Doesn’t Love You Back**\
+**The YOLO Republicans**\
 `The president is acting as if the midterms no longer matter.`\
 https://www.nytimes.com/2026/05/30/opinion/yolo-republicans-texas-primary.html
 
