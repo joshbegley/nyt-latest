@@ -1,4 +1,4 @@
-**Loud Boom in Boston Area Puzzles Residents**\
+**Boom in Boston Area Puzzles Residents. There Are ‘Hints’ It Was a Meteorite.**\
 `The reverberation came two days after a similar event in South Carolina had caused alarm. This time, it could have been a meteorite.`\
 https://www.nytimes.com/2026/05/30/us/boston-area-boom.html
 
