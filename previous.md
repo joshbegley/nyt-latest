@@ -11,7 +11,7 @@ https://www.nytimes.com/video/world/africa/100000010934879/who-chief-visits-ebol
 https://www.nytimes.com/2026/05/30/us/politics/dan-sullivan-election-senate-alaska.html
 
 **Loud Booms Heard Along the East Coast This Week**\
-`Loud booms were heard in the Boston area on Saturday and in South Carolina on Thursday. Weather officials said the noise in Boston may have been a meteorite; the cause of the South Carolina boom is still unknown.`\
+`Loud booms were heard in the Boston area on Saturday and in South Carolina on Thursday. NASA said the noise in Boston was caused by a fireball piercing the air; the cause of the South Carolina boom is still unknown.`\
 https://www.nytimes.com/video/us/100000010935131/loud-booms-boston-south-carolina.html
 
 **Target Practice**\
