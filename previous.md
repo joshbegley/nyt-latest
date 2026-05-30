@@ -1,3 +1,11 @@
+**Hombres, escondan a sus gatos**\
+`O, al menos, no los pongan en la foto de su perfil de citas en línea.`\
+https://www.nytimes.com/es/2026/05/30/espanol/estilos-de-vida/modern-love-hombres-gatos-citas.html
+
+**Paul McCartney ya no necesita hacer música. Pero le encanta**\
+`Con un nuevo disco que recupera sus raíces en Liverpool y los métodos analógicos de los Beatles, McCartney demuestra que la música nunca fue un trabajo: es una adicción.`\
+https://www.nytimes.com/es/2026/05/30/espanol/cultura/paul-mccartney-nuevo-disco.html
+
 **Un suplemento de longevidad podría estar basado en un principio erróneo**\
 `Una nueva investigación plantea que la idea que impulsó el consumo de NAD+ como suplemento contra el envejecimiento puede no ser precisa.`\
 https://www.nytimes.com/es/2026/05/30/espanol/nad-suplemento-longevidad.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/dining/100000010933452/coconut-saag.html
 **Cottage Cheese Egg Bites**\
 `Egg bites are a perfect, protein-rich snack to have on hand for busy mornings. Blending eggs with cottage cheese and shredded cheese, dividing the mixture among muffin cups and baking in a water bath result in a soft, delicate texture.`\
 https://www.nytimes.com/video/dining/100000010933421/cottage-cheese-egg-bites.html
-
-**U.N. Adds Israeli and Russian Forces to Sexual Violence List**\
-`Israel has denied the accusations and condemned the report, which listed dozens of countries and nonstate groups as “credibly suspected” of patterns of rape and sexual violence.`\
-https://www.nytimes.com/2026/05/29/world/middleeast/israel-russia-un-sexual-violence.html
-
-**Abdu Rabbu Mansour Hadi, Exiled Ex-President of Yemen, Dies at 80**\
-`In a country fractured by civil war and other crises, he held the title of president from 2012 to 2022 and was widely seen as an ineffective ruler.`\
-https://www.nytimes.com/2026/05/29/world/africa/abdrabbuh-mansour-hadi-dead.html
 

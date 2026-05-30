@@ -1,3 +1,11 @@
+**Hombres, escondan a sus gatos**\
+`O, al menos, no los pongan en la foto de su perfil de citas en línea.`\
+https://www.nytimes.com/es/2026/05/30/espanol/estilos-de-vida/modern-love-hombres-gatos-citas.html
+
+**Paul McCartney ya no necesita hacer música. Pero le encanta**\
+`Con un nuevo disco que recupera sus raíces en Liverpool y los métodos analógicos de los Beatles, McCartney demuestra que la música nunca fue un trabajo: es una adicción.`\
+https://www.nytimes.com/es/2026/05/30/espanol/cultura/paul-mccartney-nuevo-disco.html
+
 **Un suplemento de longevidad podría estar basado en un principio erróneo**\
 `Una nueva investigación plantea que la idea que impulsó el consumo de NAD+ como suplemento contra el envejecimiento puede no ser precisa.`\
 https://www.nytimes.com/es/2026/05/30/espanol/nad-suplemento-longevidad.html
