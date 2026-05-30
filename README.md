@@ -1,3 +1,11 @@
+**What to Know About the ICE Agent Arrested in Texas for a Shooting in Minnesota**\
+`The agent was charged in Minnesota with assault and filing a false police report in the shooting of an immigrant from Venezuela.`\
+https://www.nytimes.com/2026/05/30/us/ice-agent-arrested-texas-minnesota-shooting.html
+
+**Una jueza reabre la demanda de Trump al IRS y cuestiona su fondo ‘antinstrumentalización’**\
+`La orden fue un golpe tanto para el presidente Trump, quien había desestimado voluntariamente la demanda la semana pasada, como para el Departamento de Justicia, que utilizó la demanda para establecer un fondo que podría estar destinado a los aliados de Trump.`\
+https://www.nytimes.com/es/2026/05/30/espanol/estados-unidos/demanda-trump-irs.html
+
 **Storm Blasts New England With Cold and Wind**\
 `Residents ready for summer lamented the unusual late May weather as tens of thousands of customers lost power in multiple states, including Connecticut and Massachusetts.`\
 https://www.nytimes.com/2026/05/30/weather/new-england-cold-weather-storm-power-outages.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/05/30/world/middleeast/eid-al-adha-iran-gaza-lebano
 **Lo que aprendí sobre el duelo mientras patinaba en Costco**\
 `Todos vamos a morir. Pero primero, un último truco.`\
 https://www.nytimes.com/es/2026/05/30/espanol/negocios/duelo-perdida-skate.html
-
-**The Blue Micromoon Rises in Sunday’s Early Skies**\
-`The second full moon of May will look smaller and dimmer than usual.`\
-https://www.nytimes.com/2026/05/30/science/blue-micromoon.html
-
-**50 Years of Skateboarding at London’s Southbank Undercroft**\
-`Skateboarders make pilgrimages from around the world to a “found” London space that a grass-roots campaign saved from redevelopment.`\
-https://www.nytimes.com/2026/05/30/arts/london-southbank-undercroft-skate-park.html
 
