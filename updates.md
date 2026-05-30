@@ -1,3 +1,7 @@
+**U.S. and Cuban Military Officials Meet Outside of Guantánamo Base**\
+`The meeting was the highest-level military engagement since the Trump administration began ratcheting up pressure on the Cuban government this year.`\
+https://www.nytimes.com/2026/05/30/us/politics/cuba-trump-military-officials-guantanamo.html
+
 **Iran’s Team Trains in Limbo for World Cup Overshadowed by War**\
 `The Iranian soccer players, still awaiting visas to the U.S., are practicing in Turkey and making backup plans.`\
 https://www.nytimes.com/2026/05/30/world/middleeast/iran-mens-soccer-team-world-cup.html
