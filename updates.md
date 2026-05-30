@@ -1,3 +1,7 @@
+**A Big Bang, a Fire and Panic as War Enters Romanian Homes**\
+`When a drone crashed into an apartment building in eastern Romania, residents were reminded that the Russia-Ukraine war makes for a dangerous neighbor.`\
+https://www.nytimes.com/2026/05/30/world/europe/romania-drone-russia-ukraine.html
+
 **Living With Cancer: Personal Stories**\
 `Readers react to a guest essay about how some patients are living longer with advanced cancer.`\
 https://www.nytimes.com/2026/05/30/opinion/letters/cancer-personal-stories.html
