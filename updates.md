@@ -1,3 +1,7 @@
+**What We Know (and Don’t) About the E. Jean Carroll Lawsuits Inquiry**\
+`Prosecutors would face substantial hurdles in potentially pursuing charges against Ms. Carroll, who twice won cases against Donald Trump, or the billionaire who helped pay her lawyers.`\
+https://www.nytimes.com/2026/05/29/us/politics/carroll-hoffman-legal-explainer.html
+
 **Among Mamdani’s Priorities, Economic Development Seems Low on the List**\
 `Mayor Zohran Mamdani has not filled the vacant role of president of the Economic Development Corporation, deepening concern over his attention to the New York City economy.`\
 https://www.nytimes.com/2026/05/29/nyregion/mamdani-edc-economy-nyc.html
