@@ -1,7 +1,3 @@
-**El Senado de México vota a favor de permitir que las autoridades anulen elecciones por ‘injerencia extranjera’**\
-`La legislación, que llega en medio de crecientes tensiones entre México y la Casa Blanca, ahora debe ser aprobada por la mayoría de las legislaturas estatales y enviada a la presidenta.`\
-https://www.nytimes.com/es/2026/05/29/espanol/america-latina/senado-mexico-anular-elecciones-injerencia.html
-
 **Judge Orders Removal of Trump’s Name From Kennedy Center**\
 `A federal judge in Washington on Friday ordered that the John F. Kennedy Center for the Performing Arts remove President Trump’s name from the building’s facade.`\
 https://www.nytimes.com/video/us/100000010934243/kennedy-center-trump-name-removal.html
@@ -197,4 +193,8 @@ https://www.nytimes.com/es/2026/05/29/espanol/estados-unidos/ice-agente-tiroteo-
 **Trump’s Counterterror Strategy Focuses on the Left**\
 `President Trump’s new counterterrorism strategy focuses on “violent left-wing extremists,” as well as narcoterrorists and Islamic terror groups. Our White House correspondent Zolan Kanno-Youngs explains what it means.`\
 https://www.nytimes.com/video/us/politics/100000010907491/who-trump-2026-counterterror-strategy-focuses-on.html
+
+**The Cruelty of Family Separation**\
+`Readers respond to a news article, “Push to Deport Splits Over 100,000 Families.” Also: The trolling war.`\
+https://www.nytimes.com/2026/05/29/opinion/family-separation-immigation.html
 
