@@ -1,3 +1,11 @@
+**C.I.A. Officer Arrested With Gold Once Worked With No. 2 Pentagon Official**\
+`David Rush, a longtime C.I.A. officer, appears to have first had contact with Stephen A. Feinberg during President Trump’s first term. Some officials said the two men were not close.`\
+https://www.nytimes.com/2026/05/30/us/politics/cia-gold-bars-stephen-feinberg.html
+
+**W.H.O. Chief Visits Ebola-Struck Region: ‘It’s Time to Move Fast’**\
+`Dr. Tedros Adhanom Ghebreyesus, the director general of the World Health Organization, told The New York Times on a flight to the Democratic Republic of Congo that swift international support was necessary to contain the Ebola virus, which is spreading rapidly there.`\
+https://www.nytimes.com/video/world/africa/100000010934879/who-chief-visits-ebola-struck-region-its-time-to-move-fast.html
+
 **Senator Dan Sullivan Has a New Challenger in Alaska: Dan Sullivan**\
 `Two candidates with the same name will be on the ballot seeking the same seat in the state’s primary. “It’s going to be confusing,” one Republican said.`\
 https://www.nytimes.com/2026/05/30/us/politics/dan-sullivan-election-senate-alaska.html
@@ -11,7 +19,7 @@ https://www.nytimes.com/video/us/100000010935131/loud-booms-heard-along-the-east
 https://www.nytimes.com/2026/05/30/crosswords/daily-puzzle-2026-05-31.html
 
 **Boom in Boston Area Puzzles Residents. There Are ‘Hints’ It Was a Meteorite.**\
-`The reverberation came two days after a similar event in South Carolina had caused alarm. This time, it could have been a meteorite.`\
+`A fireball reached 75,000 miles per hour before breaking up miles above New England, NASA said, causing a boom that alarmed residents. The incident followed a similar event in South Carolina.`\
 https://www.nytimes.com/2026/05/30/us/boston-area-boom.html
 
 **Trump Suggests He’ll Headline Freedom 250 Concerts After Artists Drop Out**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/05/30/world/europe/europe-nato-russia-anxiety.html
 **How to Protect 529 College Savings in Case of Divorce or Death**\
 `Many couples don’t consider 529 accounts carefully when splitting up, and other families make a crucial mistake that can leave a mess if somebody dies.`\
 https://www.nytimes.com/2026/05/30/your-money/529-divorce-successor.html
-
-**Skaters Are Still Flocking to This London Skate Park After 50 Years**\
-`Skateboarders make pilgrimages from around the world to the Undercroft Skate Space, part of the Southbank Center in London. It is recognized as the world’s oldest continually used skate spot.`\
-https://www.nytimes.com/video/arts/100000010932499/skaters-are-still-flocking-to-this-london-skate-park-after-50-years.html
-
-**In the Los Angeles Mayoral Race, Restaurants Are One of the Hottest Issues**\
-`In advance of Tuesday’s down-to-the-wire mayoral primary, several candidates have made the hospitality industry part of their platforms.`\
-https://www.nytimes.com/2026/05/30/dining/los-angeles-mayoral-race-restaurants.html
 
