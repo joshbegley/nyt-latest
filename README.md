@@ -1,3 +1,7 @@
+**Homelessness Declined in 2024, According to Delayed Federal Report**\
+`The modest drop marked the first decrease in homelessness in nearly a decade. The Housing and Urban Development report was published months later than usual.`\
+https://www.nytimes.com/2026/05/29/us/politics/homelessness-declined-in-2024-according-to-delayed-federal-report.html
+
 **Trump Lifts Restrictions on Off-Road Vehicles on Public Lands**\
 `The president rescinded two executive orders that led to prohibitions on the use of the vehicles in most national parks.`\
 https://www.nytimes.com/2026/05/29/climate/trump-off-road-vehicles-public-lands.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/29/world/middleeast/israel-lebanon-litani-troops
 **Louisiana Approves Map Eliminating a Majority-Black District**\
 `A Supreme Court court ruling last month rejected the state’s previous congressional map as an illegal racial gerrymander and set off a redistricting race across the South.`\
 https://www.nytimes.com/2026/05/29/us/politics/louisiana-redistricting-map-majority-black-district.html
-
-**Un agente del ICE buscado por un tiroteo en Mineápolis es aprehendido en Texas**\
-`Christian Castro, quien había sido imputado con cargos de asalto en el tiroteo a un hombre venezolano durante la represión de la inmigración en Minnesota, fue puesto bajo custodia el viernes por la mañana.`\
-https://www.nytimes.com/es/2026/05/29/espanol/estados-unidos/ice-agente-tiroteo-arresto.html
 
