@@ -1,3 +1,7 @@
+**Inside Trump’s Deal With the I.R.S. to Drop His $10 Billion Lawsuit**\
+`Discussions among a group of lawyers with allegiance to the president were closely held; some senior White House officials were said to have felt blindsided as the agreement took shape.`\
+https://www.nytimes.com/2026/05/30/us/politics/trump-irs-lawsuit-deal.html
+
 **Gov. Sherrill Calls for Calm at Delaney Hall as Counterprotesters Arrive**\
 `The governor said she wanted to avoid escalating federal immigration enforcement operations amid protests at the immigration detention center, Delaney Hall.`\
 https://www.nytimes.com/2026/05/30/nyregion/delaney-hall-mikie-sherrill.html
@@ -26,7 +30,7 @@ https://www.nytimes.com/video/us/100000010935131/loud-booms-boston-south-carolin
 `Jeffrey Martinovic and Evan Park hit the bull’s-eye with their Sunday puzzle collaboration.`\
 https://www.nytimes.com/2026/05/30/crosswords/daily-puzzle-2026-05-31.html
 
-**Boom in Boston Area Puzzles Residents. There Are ‘Hints’ It Was a Meteorite.**\
+**Meteor Over Boston Area Causes Loud Boom That Puzzled Residents**\
 `A fireball reached 75,000 miles per hour before breaking up miles above New England, NASA said, causing a boom that alarmed residents. The incident followed a similar event in South Carolina.`\
 https://www.nytimes.com/2026/05/30/us/boston-area-boom.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/05/30/espanol/america-latina/elecciones-presiden
 **5 Takeaways From a Kennedy Center Ruling That Angered Trump**\
 `A federal judge ordered the Kennedy Center to take President Trump’s name off the building. What happens next?`\
 https://www.nytimes.com/2026/05/30/arts/kennedy-center-trump-name-takeaways.html
-
-**Ariana Grande, Ravyn Lenae: 7 Songs We’re Talking About This Week**\
-`Ariana Grande moves back into pop, Iceage crashes into the cosmos, Ravyn Lenae channels the 1980s and more.`\
-https://www.nytimes.com/2026/05/30/arts/music/ariana-grande-ravyn-lenae-songs.html
 
