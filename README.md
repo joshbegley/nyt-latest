@@ -3,7 +3,7 @@
 https://www.nytimes.com/es/2026/05/29/espanol/america-latina/senado-mexico-anular-elecciones-injerencia.html
 
 **Judge Orders Removal of Trump’s Name From Kennedy Center**\
-`A federal judge in Washington on Friday ordered that the John F. Kennedy Center for the Performing Arts remove President Trump’s name from the building’s facade.`\
+`A federal judge in Washington on Friday ordered that President Trump’s name be removed from the facade of the John F. Kennedy Center for the Performing Arts.`\
 https://www.nytimes.com/video/us/100000010934243/kennedy-center-trump-name-removal.html
 
 **Iran’s Hard-Liners Try to Derail Potential Deal With the U.S.**\
