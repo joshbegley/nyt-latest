@@ -1,3 +1,11 @@
+**Loud Boom in Boston Area Puzzles Residents**\
+`The reverberation came two days after a similar event in South Carolina had caused alarm. This time, it could have been a meteorite.`\
+https://www.nytimes.com/2026/05/30/us/boston-area-boom.html
+
+**Trump Suggests He’ll Headline Freedom 250 Concerts After Artists Drop Off**\
+`The president said on social media that he should replace “these highly paid, Third Rate ‘Artists,’” calling himself “the man who gets much larger audiences than Elvis.”`\
+https://www.nytimes.com/2026/05/30/arts/music/trump-freedom-250-concert-cancellations.html
+
 **What to Know About the ICE Agent Arrested in Texas for a Shooting in Minnesota**\
 `The agent was charged in Minnesota with assault and filing a false police report in the shooting of an immigrant from Venezuela.`\
 https://www.nytimes.com/2026/05/30/us/ice-agent-arrested-texas-minnesota-shooting.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/05/30/arts/television/spider-noir-review.html
 **Cómo perderse en los Países Bajos y pasarla bien**\
 `Un tour de ocho días que combina un barco fluvial como campamento base y rutas ciclistas autoguiadas ofrece a los viajeros la posibilidad de extraviarse de manera agradable mientras descubren la campiña neerlandesa.`\
 https://www.nytimes.com/es/2026/05/30/espanol/cultura/vacaciones-tulipanes-paises-bajos.html
-
-**Across the Middle East, Muslims Mark Eid Amid War and Crisis**\
-`From Iran to Gaza, Eid al-Adha celebrations were muted as war dragged on and shortages of food and fuel roiled the region.`\
-https://www.nytimes.com/2026/05/30/world/middleeast/eid-al-adha-iran-gaza-lebanon.html
-
-**Lo que aprendí sobre el duelo mientras patinaba en Costco**\
-`Todos vamos a morir. Pero primero, un último truco.`\
-https://www.nytimes.com/es/2026/05/30/espanol/negocios/duelo-perdida-skate.html
 
