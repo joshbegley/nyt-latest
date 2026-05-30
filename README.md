@@ -1,3 +1,7 @@
+****\
+`School children chanting praise to Shivaji, the Maratha king, by his statue in Malvan, Maharashtra, in January.`\
+https://www.nytimes.com/video/embedded/world/asia/100000010675619/00INT-INDIA-WARRIOR-30291.html
+
 **A Frosty Glass of Greens**\
 `Ali Slagle’s green smoothie is my favorite low-effort way to get my greens.`\
 https://www.nytimes.com/2026/05/30/dining/a-frosty-glass-of-greens.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/30/us/politics/anthropic-openai-super-pacs-midte
 **Can California Convince Teens to Work in Construction?**\
 `Facing an uncertain job market and the looming threat of A.I., graduating high school seniors in America’s tech capital are increasingly rethinking their career plans. Job demand in fields like construction, along with the allure of potential six-figure salaries, have some high schools investing in hands-on classes that are redefining what success looks like for the class of 2026.`\
 https://www.nytimes.com/video/us/100000010907463/california-high-schools-construction-trade-classes.html
-
-**When Wedding Guests Don’t Bring a Gift**\
-`For some couples, gifts, especially cash, are a way to recoup expenses. For others, they’re a cultural vestige of a time when people tended to marry at the start of their adult lives.`\
-https://www.nytimes.com/2026/05/30/fashion/weddings/when-wedding-guests-dont-bring-a-gift.html
 
