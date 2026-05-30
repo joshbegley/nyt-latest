@@ -1,3 +1,7 @@
+**Hegseth’s Message to Asian Partners: Do More to Get More**\
+`At a security conference in Singapore, Defense Secretary Pete Hegseth told Asian military leaders how they could get to “the front of the line” for U.S. assistance.`\
+https://www.nytimes.com/2026/05/30/world/asia/hegseth-asia-security-shangri-la.html
+
 **My Partner’s Dependence on Chatbots Is Becoming a Problem. How Do I Tell Him?**\
 `One reason I love my partner is his sharp mind and critical thinking. Using A.I. for every decision is something I don’t understand.`\
 https://www.nytimes.com/2026/05/30/magazine/partner-chatbot-dependence-ethics.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/30/nyregion/partying-with-a-purpose-the-dance-pa
 **His Opponents Keep Talking About His Past Ties to a Militant Cleric**\
 `Dr. Adam Hamawy, a New Jersey Democrat with big-name support on the left, has touted his humanitarian work, but some want to talk about a person he met in 1991.`\
 https://www.nytimes.com/2026/05/30/nyregion/adam-hamawy-election-nj.html
-
-**¿Es normal babear mientras duermo?**\
-`La saliva es importante para nuestra salud, pero incluso un pequeño goteo puede ser embarazoso. Los expertos explican por qué ocurre.`\
-https://www.nytimes.com/es/2026/05/30/espanol/normal-babear-dormir.html
 
