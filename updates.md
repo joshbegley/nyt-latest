@@ -1,3 +1,7 @@
+**Surveillance Ordered for Hantavirus Ship Passengers Who Go Home**\
+`Trump administration officials want local health authorities to constantly monitor the 18 passengers for another three weeks, a requirement that far exceeds typical protocols.`\
+https://www.nytimes.com/2026/05/29/us/hantavirus-ship-quarantine.html
+
 **Trump Lifts Restrictions on Off-Road Vehicles on Public Lands**\
 `The president rescinded two executive orders that led to prohibitions on the use of the vehicles in most national parks.`\
 https://www.nytimes.com/2026/05/29/climate/trump-off-road-vehicles-public-lands.html
