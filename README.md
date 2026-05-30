@@ -74,7 +74,7 @@ https://www.nytimes.com/interactive/2026/05/29/upshot/you-be-the-ump-abs.html
 `In the wake of #MeToo, changing workplace norms left many men unsure of how to behave. But was that confusion genuine — or just an excuse? On “The Opinions,” Frederick Joseph argues that many men became “childlike during that time.”`\
 https://www.nytimes.com/video/opinion/100000010918071/the-confusion-around-modern-masculinity.html
 
-**Strict Monitoring Could Delay Homecoming of Hantavirus Ship Passengers**\
+**Surveillance Ordered for Hantavirus Ship Passengers Who Go Home**\
 `Trump administration officials want local health authorities to constantly monitor the 18 passengers for another three weeks, a requirement that far exceeds typical protocols.`\
 https://www.nytimes.com/2026/05/29/us/hantavirus-ship-quarantine.html
 
