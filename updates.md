@@ -1,3 +1,35 @@
+**How Curry Shops Got Caught in Japan’s Immigration Crackdown**\
+`Under Prime Minister Sanae Takaichi, new visa rules are forcing some foreign business owners, who have put down roots in Japan, to leave.`\
+https://www.nytimes.com/2026/05/30/world/asia/japan-immigration-curry-shops.html
+
+**Quote of the Day: Invasive Species? A Top Flower Show Buzzes Over Gnomes.**\
+`Quotation of the Day for Saturday, May 30, 2026.`\
+https://www.nytimes.com/2026/05/30/pageoneplus/quote-of-the-day-invasive-species-a-top-flower-show-buzzes-over-gnomes.html
+
+**Lithuania, Once Occupied by Germany, Is Glad German Troops Are Back**\
+`Berlin has deployed forces to protect the Baltic country amid fears of increased Russian aggression in Europe. This time, the soldiers were welcomed.`\
+https://www.nytimes.com/2026/05/30/world/europe/germany-lithuania-military-deployment.html
+
+**Who’s the Vegas Retiree With the Big Offer for Greenland?**\
+`Clifford E. Stanley, a retired broker, explains his unusual mission, which caught a lot of people by surprise.`\
+https://www.nytimes.com/2026/05/30/world/europe/greenland-trump-clifford-stanley.html
+
+**Corrections: May 31, 2026**\
+`Corrections that appeared in print on Sunday, May 31, 2026.`\
+https://www.nytimes.com/2026/05/30/pageoneplus/corrections-may-31-2026.html
+
+**Corrections: May 30, 2026**\
+`Corrections that appeared in print on Saturday, May 30, 2026.`\
+https://www.nytimes.com/2026/05/30/pageoneplus/corrections-may-30-2026.html
+
+**China’s Rise in Drug Development Looms Over U.S.**\
+`Clinical trials in China are getting attention at an international oncology gathering in Chicago. China’s surging biotechnology industry is fueling alarm that U.S. dominance in the field is waning.`\
+https://www.nytimes.com/2026/05/30/business/china-lung-cancer-drugs-asco.html
+
+**As Climate Change Extends Europe’s Heat Season, Schools Bake**\
+`Classrooms can be particularly vulnerable amid climate change, as the hottest times of the year increasingly overlap with the academic calendar.`\
+https://www.nytimes.com/2026/05/30/climate/europe-heat-wave-schools.html
+
 **What We Know (and Don’t) About the E. Jean Carroll Lawsuits Inquiry**\
 `Prosecutors would face substantial hurdles in potentially pursuing charges against Ms. Carroll, who twice won cases against Donald Trump, or the billionaire who helped pay her lawyers.`\
 https://www.nytimes.com/2026/05/29/us/politics/carroll-hoffman-legal-explainer.html

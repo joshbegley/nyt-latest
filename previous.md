@@ -1,3 +1,35 @@
+**How Curry Shops Got Caught in Japan’s Immigration Crackdown**\
+`Under Prime Minister Sanae Takaichi, new visa rules are forcing some foreign business owners, who have put down roots in Japan, to leave.`\
+https://www.nytimes.com/2026/05/30/world/asia/japan-immigration-curry-shops.html
+
+**Quote of the Day: Invasive Species? A Top Flower Show Buzzes Over Gnomes.**\
+`Quotation of the Day for Saturday, May 30, 2026.`\
+https://www.nytimes.com/2026/05/30/pageoneplus/quote-of-the-day-invasive-species-a-top-flower-show-buzzes-over-gnomes.html
+
+**Lithuania, Once Occupied by Germany, Is Glad German Troops Are Back**\
+`Berlin has deployed forces to protect the Baltic country amid fears of increased Russian aggression in Europe. This time, the soldiers were welcomed.`\
+https://www.nytimes.com/2026/05/30/world/europe/germany-lithuania-military-deployment.html
+
+**Who’s the Vegas Retiree With the Big Offer for Greenland?**\
+`Clifford E. Stanley, a retired broker, explains his unusual mission, which caught a lot of people by surprise.`\
+https://www.nytimes.com/2026/05/30/world/europe/greenland-trump-clifford-stanley.html
+
+**Corrections: May 31, 2026**\
+`Corrections that appeared in print on Sunday, May 31, 2026.`\
+https://www.nytimes.com/2026/05/30/pageoneplus/corrections-may-31-2026.html
+
+**Corrections: May 30, 2026**\
+`Corrections that appeared in print on Saturday, May 30, 2026.`\
+https://www.nytimes.com/2026/05/30/pageoneplus/corrections-may-30-2026.html
+
+**China’s Rise in Drug Development Looms Over U.S.**\
+`Clinical trials in China are getting attention at an international oncology gathering in Chicago. China’s surging biotechnology industry is fueling alarm that U.S. dominance in the field is waning.`\
+https://www.nytimes.com/2026/05/30/business/china-lung-cancer-drugs-asco.html
+
+**As Climate Change Extends Europe’s Heat Season, Schools Bake**\
+`Classrooms can be particularly vulnerable amid climate change, as the hottest times of the year increasingly overlap with the academic calendar.`\
+https://www.nytimes.com/2026/05/30/climate/europe-heat-wave-schools.html
+
 **Among Mamdani’s Priorities, Economic Development Seems Low on the List**\
 `Mayor Zohran Mamdani has not filled the vacant role of president of the Economic Development Corporation, deepening concern over his attention to the New York City economy.`\
 https://www.nytimes.com/2026/05/29/nyregion/mamdani-edc-economy-nyc.html
@@ -165,36 +197,4 @@ https://www.nytimes.com/2026/05/29/sports/marc-johnson-skateboarder-dead.html
 **A Clean Energy PAC Helped Beat Chip Roy, and Now It Has New Targets**\
 `A PAC representing wind and solar energy interests spent $1.1 million to boost the Republican primary opponent of Chip Roy, an opponent of renewables. Now they are trying to save a Republican ally in Iowa.`\
 https://www.nytimes.com/2026/05/29/climate/clean-energy-pac-chip-roy.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/politics/100000010933618/29vid-Robert-Garcia-embeds-69364.html
-
-**Gretchen Whitmer’s Approach to Trump Was Working With the President**\
-`Ms. Whitmer, the Michigan governor and one of the country’s most prominent Democrats, has been conciliatory with Mr. Trump. As she mulls the future, her party is split on that approach.`\
-https://www.nytimes.com/2026/05/29/us/gretchen-whitmer-donald-trump-2028.html
-
-**3 Latvian Climbers Die in Fall on Mt. McKinley**\
-`The accident occurred at about 18,000 feet in the area of Denali Pass.`\
-https://www.nytimes.com/2026/05/29/us/mt-mckinley-denali-climbers-latvia.html
-
-**Ex-Iowa School Leader Who Was in the U.S. Illegally Sentenced to 2 Years**\
-`Ian Roberts, the former Des Moines superintendent, climbed high in the American education system without legal status in the country.`\
-https://www.nytimes.com/2026/05/29/us/ian-roberts-des-moines-schools-sentence.html
-
-**Nicolas Cage Made Himself a Legend. Then He Had to Live With It.**\
-`Nicolas Cage discusses many of the roles that make up his storied career, along with his most recent project, “Spider-Noir,” his first big foray into TV.`\
-https://www.nytimes.com/video/podcasts/100000010921467/nicolas-cage-made-himself-a-legend-then-he-had-to-live-with-it.html
-
-**Kenya Arrests 8 Students After Fire at School Dorm Kills 16**\
-`The students could be charged next week, Kenya’s education minister said, after the blaze broke out on Thursday at a school run by Kenya’s police.`\
-https://www.nytimes.com/2026/05/29/world/africa/kenya-school-fire-arrests-students.html
-
-**EE. UU. e Irán se acercan a un acuerdo provisional: lo que hay que saber**\
-`Funcionarios estadounidenses e iraníes afirman que se acercan a los términos de un acuerdo preliminar. Sin embargo, aún existen puntos conflictivos, sobre todo en relación con el estrecho de Ormuz.`\
-https://www.nytimes.com/es/2026/05/29/espanol/mundo/trump-iran-acuerdo-estados-unidos.html
-
-**Roller Coaster Breaks, Stranding 8 Riders Nearly 100 Feet in the Air**\
-`The Iron Shark roller coaster at the Galveston Island Historic Pleasure Pier malfunctioned on Thursday, trapping eight people almost 100 feet in the air for around four hours.`\
-https://www.nytimes.com/video/us/100000010932939/texas-roller-coaster-breaks.html
 
