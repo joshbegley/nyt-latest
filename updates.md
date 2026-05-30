@@ -1,3 +1,11 @@
+**When War Breaks Out Over the Family Business, They Get the Call**\
+`As baby boomers begin passing down trillions in assets, advisers who specialize in navigating the process — and the emotions around it — have never been busier.`\
+https://www.nytimes.com/2026/05/30/business/dealbook/family-business-counselors.html
+
+**Five Miners Are Rescued After Week Trapped in Flooded Laos Cave**\
+`Rescuers pumped water from the flooded cave, enabling four miners to crawl out. One used diving gear to escape earlier, and two remain missing.`\
+https://www.nytimes.com/2026/05/30/world/asia/laos-cave-rescue-four.html
+
 **The YOLO Republicans**\
 `The president is acting as if the midterms no longer matter.`\
 https://www.nytimes.com/2026/05/30/opinion/yolo-republicans-texas-primary.html

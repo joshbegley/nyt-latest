@@ -1,3 +1,11 @@
+**When War Breaks Out Over the Family Business, They Get the Call**\
+`As baby boomers begin passing down trillions in assets, advisers who specialize in navigating the process — and the emotions around it — have never been busier.`\
+https://www.nytimes.com/2026/05/30/business/dealbook/family-business-counselors.html
+
+**Five Miners Are Rescued After Week Trapped in Flooded Laos Cave**\
+`Rescuers pumped water from the flooded cave, enabling four miners to crawl out. One used diving gear to escape earlier, and two remain missing.`\
+https://www.nytimes.com/2026/05/30/world/asia/laos-cave-rescue-four.html
+
 **The YOLO Republicans**\
 `The president is acting as if the midterms no longer matter.`\
 https://www.nytimes.com/2026/05/30/opinion/yolo-republicans-texas-primary.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/05/30/us/politics/trump-library.html
 **The World Capital of French Fries Has a Problem: Too Many Potatoes**\
 `Belgium’s potato harvest set a record, just as tariffs hit U.S. demand for frozen fries and as competition from suppliers in Asia intensified.`\
 https://www.nytimes.com/2026/05/30/world/europe/europe-belgium-potato-surplus.html
-
-**Mary Trump Talks Love and Marriage**\
-`The president’s niece is newly married and ready to open up about her life with Ronda Cress.`\
-https://www.nytimes.com/2026/05/30/fashion/weddings/mary-trumps-married-ronda-cress.html
-
-**Want to ‘Optimize’ Your Happiness? This Happiness Expert Says: Don’t.**\
-`Dr. Laurie Santos is a cognitive scientist, podcaster and professor whose class on happiness quickly became the most popular in Yale’s history. She tells Lulu Garcia-Navarro what history and science say happiness really is.`\
-https://www.nytimes.com/video/podcasts/100000010932794/want-to-optimize-your-happiness-this-happiness-expert-says-dont.html
 
