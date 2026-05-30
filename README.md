@@ -1,3 +1,7 @@
+**Trump Lifts Restrictions on Off-Road Vehicles on Public Lands**\
+`The president rescinded two executive orders that led to prohibitions on the use of the vehicles in most national parks.`\
+https://www.nytimes.com/2026/05/29/climate/trump-off-road-vehicles-public-lands.html
+
 **El Senado de México vota a favor de permitir que las autoridades anulen elecciones por ‘injerencia extranjera’**\
 `La legislación, que llega en medio de crecientes tensiones entre México y la Casa Blanca, ahora debe ser aprobada por la mayoría de las legislaturas estatales y enviada a la presidenta.`\
 https://www.nytimes.com/es/2026/05/29/espanol/america-latina/senado-mexico-anular-elecciones-injerencia.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/29/us/politics/louisiana-redistricting-map-major
 **Un agente del ICE buscado por un tiroteo en Mineápolis es aprehendido en Texas**\
 `Christian Castro, quien había sido imputado con cargos de asalto en el tiroteo a un hombre venezolano durante la represión de la inmigración en Minnesota, fue puesto bajo custodia el viernes por la mañana.`\
 https://www.nytimes.com/es/2026/05/29/espanol/estados-unidos/ice-agente-tiroteo-arresto.html
-
-**Trump’s Counterterror Strategy Focuses on the Left**\
-`President Trump’s new counterterrorism strategy focuses on “violent left-wing extremists,” as well as narcoterrorists and Islamic terror groups. Our White House correspondent Zolan Kanno-Youngs explains what it means.`\
-https://www.nytimes.com/video/us/politics/100000010907491/who-trump-2026-counterterror-strategy-focuses-on.html
 
