@@ -1,3 +1,7 @@
+**Hegseth’s Message to Asian Partners: Do More to Get More**\
+`At a security conference in Singapore, Defense Secretary Pete Hegseth told Asian military leaders how they could get to “the front of the line” for U.S. assistance.`\
+https://www.nytimes.com/2026/05/30/world/asia/hegseth-asia-security-shangri-la.html
+
 **My Partner’s Dependence on Chatbots Is Becoming a Problem. How Do I Tell Him?**\
 `One reason I love my partner is his sharp mind and critical thinking. Using A.I. for every decision is something I don’t understand.`\
 https://www.nytimes.com/2026/05/30/magazine/partner-chatbot-dependence-ethics.html
