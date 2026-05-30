@@ -1,3 +1,7 @@
+**As Trump Mulls Decision About Iran War Deal, a Restive Middle East Waits to Hear**\
+`The president has wavered on whether to move ahead with an agreement with Iran to end the war. On Friday, he vowed to make a “final determination” soon.`\
+https://www.nytimes.com/2026/05/30/world/middleeast/trump-deal-middle-east-iran.html
+
 ****\
 `School children chanting praise to Shivaji, the Maratha king, by his statue in Malvan, Maharashtra, in January.`\
 https://www.nytimes.com/video/embedded/world/asia/100000010675619/00INT-INDIA-WARRIOR-30291.html

@@ -1,3 +1,7 @@
+**Iran’s Team Trains in Limbo for World Cup Overshadowed by War**\
+`The Iranian soccer players, still awaiting visas to the U.S., are practicing in Turkey and making backup plans.`\
+https://www.nytimes.com/2026/05/30/world/middleeast/iran-mens-soccer-team-world-cup.html
+
 ****\
 `School children chanting praise to Shivaji, the Maratha king, by his statue in Malvan, Maharashtra, in January.`\
 https://www.nytimes.com/video/embedded/world/asia/100000010675619/00INT-INDIA-WARRIOR-30291.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/30/arts/bird-watching-podcasts-sean-bean.html
 **Powerful A.I. Super PACs Duel Over the Midterms: ‘This Is a War’**\
 `One super PAC is allied with Anthropic. The other is tied to OpenAI. They’re both spending millions to influence this year’s elections.`\
 https://www.nytimes.com/2026/05/30/us/politics/anthropic-openai-super-pacs-midterms.html
-
-**Can California Convince Teens to Work in Construction?**\
-`Facing an uncertain job market and the looming threat of A.I., graduating high school seniors in America’s tech capital are increasingly rethinking their career plans. Job demand in fields like construction, along with the allure of potential six-figure salaries, have some high schools investing in hands-on classes that are redefining what success looks like for the class of 2026.`\
-https://www.nytimes.com/video/us/100000010907463/california-high-schools-construction-trade-classes.html
 

@@ -26,7 +26,7 @@ https://www.nytimes.com/es/2026/05/30/espanol/estilos-de-vida/nietos-abuelos-com
 `Our chief Africa correspondent, Declan Walsh, walked inside an Ebola ward where both adults and children were being treated, and where someone had recently died of the disease amid a spiraling outbreak in the region. This is what he saw.`\
 https://www.nytimes.com/video/world/africa/100000010929380/what-i-saw-inside-an-ebola-ward.html
 
-**As Trump Mulls Decision About Iran War Deal, the Middle East Remains on Edge**\
+**As Trump Mulls Decision About Iran War Deal, a Restive Middle East Waits to Hear**\
 `The president has wavered on whether to move ahead with an agreement with Iran to end the war. On Friday, he vowed to make a “final determination” soon.`\
 https://www.nytimes.com/2026/05/30/world/middleeast/trump-deal-middle-east-iran.html
 
