@@ -1,3 +1,7 @@
+**What I Saw Inside an Ebola Ward**\
+`Our chief Africa correspondent, Declan Walsh, walked inside an Ebola ward where both adults and children were being treated, and where someone had recently died of the disease amid a spiraling outbreak in the region. This is what he saw.`\
+https://www.nytimes.com/video/world/africa/100000010929380/what-i-saw-inside-an-ebola-ward.html
+
 **Middle East on Edge as Trump Mulls Decision About Iran Deal**\
 `The president has wavered on whether to move ahead with an agreement with Iran to end the war. On Friday, he vowed to make a “final determination” soon.`\
 https://www.nytimes.com/2026/05/30/world/middleeast/trump-deal-middle-east-iran.html
