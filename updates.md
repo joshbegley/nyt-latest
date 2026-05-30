@@ -1,3 +1,15 @@
+**Want to ‘Optimize’ Your Happiness? This Happiness Expert Says: Don’t.**\
+`Laurie Santos on what will really bring meaning and fulfillment to your life, and what won’t.`\
+https://www.nytimes.com/2026/05/30/magazine/laurie-santos-interview.html
+
+**Elecciones presidenciales en Colombia: la seguridad es el tema principal**\
+`Las encuestas sugieren que la contienda será una decisión entre la izquierda, liderada por Iván Cepeda, que representa la continuidad de Petro, y la extrema derecha, cuyo candidato, Abelardo De La Espriella, ha suscitado comparaciones con Nayib Bukele.`\
+https://www.nytimes.com/es/2026/05/30/espanol/america-latina/elecciones-presidenciales-colombia-seguridad.html
+
+**5 Takeaways From a Kennedy Center Ruling That Angered Trump**\
+`A federal judge ordered the Kennedy Center to take President Trump’s name off the building. What happens next?`\
+https://www.nytimes.com/2026/05/30/arts/kennedy-center-trump-name-takeaways.html
+
 **Ariana Grande, Ravyn Lenae: 7 Songs We’re Talking About This Week**\
 `Ariana Grande moves back into pop, Iceage crashes into the cosmos, Ravyn Lenae channels the 1980s and more.`\
 https://www.nytimes.com/2026/05/30/arts/music/ariana-grande-ravyn-lenae-songs.html
