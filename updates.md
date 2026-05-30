@@ -1,3 +1,7 @@
+**Dang Van Phuoc Dies at 90; Intrepid Photojournalist in Vietnam War**\
+`A photographer for The Associated Press, he spent a decade on the front lines of combat in his native Vietnam and lost his right eye in a grenade explosion.`\
+https://www.nytimes.com/2026/05/30/business/media/dang-van-phuoc-dead.html
+
 **Platner’s Texts With Women Concerned Campaign as Senate Race Took Off**\
 `The wife of Graham Platner, the Democratic candidate in Maine, told the campaign he had sent sexual messages to other women.`\
 https://www.nytimes.com/2026/05/30/us/politics/graham-platner-maine-senate-texts.html
