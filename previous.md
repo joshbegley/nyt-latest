@@ -1,3 +1,7 @@
+**Edgar Morin, ‘Grandfather’ of French Intellectuals, Dies at 104**\
+`A former member of the Resistance, he went on to a career spanning eras and disciplines. His books and pronouncements carried moral authority.`\
+https://www.nytimes.com/2026/05/30/world/europe/edgar-morin-dead.html
+
 **C.I.A. Officer Arrested With Gold Once Worked With No. 2 Pentagon Official**\
 `David Rush, a longtime C.I.A. officer, appears to have first had contact with Stephen A. Feinberg during President Trump’s first term. Some officials said the two men were not close.`\
 https://www.nytimes.com/2026/05/30/us/politics/cia-gold-bars-stephen-feinberg.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/30/arts/music/ariana-grande-ravyn-lenae-songs.ht
 **The Russian Drone That Hit Romania Also Hit European Confidence**\
 `The failure to protect NATO territory further increased anxiety about alliance solidarity, Russia’s intentions and Washington’s commitment to collective defense.`\
 https://www.nytimes.com/2026/05/30/world/europe/europe-nato-russia-anxiety.html
-
-**How to Protect 529 College Savings in Case of Divorce or Death**\
-`Many couples don’t consider 529 accounts carefully when splitting up, and other families make a crucial mistake that can leave a mess if somebody dies.`\
-https://www.nytimes.com/2026/05/30/your-money/529-divorce-successor.html
 

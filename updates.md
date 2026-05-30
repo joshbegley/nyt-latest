@@ -1,3 +1,7 @@
+**Edgar Morin, ‘Grandfather’ of French Intellectuals, Dies at 104**\
+`A former member of the Resistance, he went on to a career spanning eras and disciplines. His books and pronouncements carried moral authority.`\
+https://www.nytimes.com/2026/05/30/world/europe/edgar-morin-dead.html
+
 **Loud Booms Heard Along the East Coast This Week**\
 `Loud booms were heard in the Boston area on Saturday and in South Carolina on Thursday. NASA said the noise in Boston was caused by a fireball piercing the air; the cause of the South Carolina boom is still unknown.`\
 https://www.nytimes.com/video/us/100000010935131/loud-booms-boston-south-carolina.html
