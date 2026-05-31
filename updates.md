@@ -1,3 +1,7 @@
+**Book Review: ‘Girl’s Girl,’ by Sonia Feldman**\
+`In Sonia Feldman’s novel, “Girl’s Girl,” the delicate balance of a Gen Z friend group is unsettled over one Ohio summer.`\
+https://www.nytimes.com/2026/05/30/books/review/girls-girl-sonia-feldman.html
+
 **An Afternoon in Brooklyn with Mayor Mamdani and a Bar Full of Arsenal Fans**\
 `Zohran Mamdani watched his favorite team, Arsenal, compete for the Champions League title with fans at a bar, getting a rare taste of his old life after a meteoric rise in politics.`\
 https://www.nytimes.com/2026/05/30/nyregion/champions-league-arsenal-mamdani-nyc.html
