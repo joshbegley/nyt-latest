@@ -1,3 +1,7 @@
+**Vasana Montgomery, ‘Love Island USA’ Contestant, Dismissed After Using Racial Slur**\
+`Last season, two contestants were also kicked off the reality show when videos showing them using racial slurs surfaced during filming.`\
+https://www.nytimes.com/2026/05/31/arts/television/love-island-usa-contestant-dismissed-racist-slur.html
+
 **Trump Is Dominating GOP Primary Elections. Does That Mean Victory in the Midterms?**\
 `Come November, the Republican Party will need the support of voters outside of President Trump’s base, many of whom are deeply dissatisfied with the economy and the Iran war.`\
 https://www.nytimes.com/2026/05/31/us/politics/trump-republican-primary-elections-midterms.html

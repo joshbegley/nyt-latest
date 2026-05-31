@@ -1,3 +1,7 @@
+**Vasana Montgomery, ‘Love Island USA’ Contestant, Dismissed After Using Racial Slur**\
+`Last season, two contestants were also kicked off the reality show when videos showing them using racial slurs surfaced during filming.`\
+https://www.nytimes.com/2026/05/31/arts/television/love-island-usa-contestant-dismissed-racist-slur.html
+
 **Young Moviegoers Power ‘Backrooms’ to $82 Million in Ticket Sales**\
 `The horror film, which cost $10 million and came from a 20-year-old filmmaker, added to evidence that young people will go to theaters for the right offering.`\
 https://www.nytimes.com/2026/05/31/business/media/young-moviegoers-backrooms-a24-box-office.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/05/31/espanol/opinion/hungria-derrota-viktor-orb
 **‘Backrooms’ y el auge de las películas de creadores de Youtube**\
 `Durante años, Hollywood se preguntó si el éxito de plataformas como YouTube podría trasladarse a la pantalla grande. La respuesta está resonando en las taquillas.`\
 https://www.nytimes.com/es/2026/05/31/espanol/negocios/backrooms-obsesion-directores-youtube.html
-
-**Israel Day Parade to Return to New York Against a Changed Backdrop**\
-`Mayor Zohran Mamdani did not attend the annual Israel Day Parade, which is taking place amid a deterioration of public support for the country and rising antisemitism across the United States.`\
-https://www.nytimes.com/2026/05/31/nyregion/israel-day-parade-nyc.html
 
