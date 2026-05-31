@@ -1,5 +1,5 @@
 **‘Othello’ Review: Wendell Pierce Steps Into Iago’s Twisted Web**\
-`This production in the nation’s capital, with an enticingly opaque Iago,  attempts to make Shakespeare’s tragedy relevant to our age of conspiracies.`\
+`This production in the nation’s capital, with an enticingly opaque Iago, attempts to make Shakespeare’s tragedy relevant to our age of conspiracies.`\
 https://www.nytimes.com/2026/05/31/theater/othello-review-wendell-pierce.html
 
 **Grilled Za’atar Chicken, Lemon Sorbet and More Alfresco Daydreams**\
@@ -183,7 +183,7 @@ https://www.nytimes.com/es/2026/05/31/espanol/opinion/hungria-derrota-viktor-orb
 https://www.nytimes.com/es/2026/05/31/espanol/negocios/backrooms-obsesion-directores-youtube.html
 
 **Israel Day Parade to Return to New York Against a Changed Backdrop**\
-`Mayor Zohran Mamdani does not plan to attend the annual Israel Day Parade, which is taking place amid a deterioration of public support for the country and rising antisemitism across the United States.`\
+`Mayor Zohran Mamdani did not attend the annual Israel Day Parade, which is taking place amid a deterioration of public support for the country and rising antisemitism across the United States.`\
 https://www.nytimes.com/2026/05/31/nyregion/israel-day-parade-nyc.html
 
 **‘The Ingredients Looked Good, So I Told Him He Should Go for It’**\
