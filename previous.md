@@ -6,9 +6,9 @@ https://www.nytimes.com/video/us/100000010935695/another-night-of-violent-protes
 `Nearly 800 people were arrested in France after Paris St.-Germain won the Champions League on Saturday, French officials said. Thousands in Paris took to the streets to celebrate, leading to some violent clashes with police officers.`\
 https://www.nytimes.com/video/world/europe/100000010935693/arrests-paris-saint-germain-champions.html
 
-**Trump Hits the Stalemate Phase of His International Interventions, and It Stings**\
+**Trump Hits the Stalemate Phase of His Interventions in Gaza, Ukraine and Now Iran**\
 `In Ukraine, Gaza and now Iran, President Trump’s early declarations of easy wins have given way to harsh reality.`\
-https://www.nytimes.com/2026/05/31/us/politics/trump-the-stalemate-international-interventions.html
+https://www.nytimes.com/2026/05/31/us/politics/trump-iran-stalemate-ukraine-gaza.html
 
 **Cory Booker Has ‘Concerns’ About Platner Revelations in Maine Senate Race**\
 `Mr. Booker and other Senate Democrats faced questions Sunday about reports that Mr. Platner’s wife previously told his campaign he had exchanged sexual messages with women outside his marriage.`\

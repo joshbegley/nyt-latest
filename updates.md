@@ -1,3 +1,7 @@
+**Trump Hits the Stalemate Phase of His Interventions in Gaza, Ukraine and Now Iran**\
+`In Ukraine, Gaza and now Iran, President Trump’s early declarations of easy wins have given way to harsh reality.`\
+https://www.nytimes.com/2026/05/31/us/politics/trump-iran-stalemate-ukraine-gaza.html
+
 **Another Night of Violent Protests Outside a Newark ICE Detention Center**\
 `Protesters and the police clashed again outside of an ICE detention center in New Jersey on Saturday night.`\
 https://www.nytimes.com/video/us/100000010935695/another-night-of-violent-protests-outside-a-newark-ice-detention-center.html
