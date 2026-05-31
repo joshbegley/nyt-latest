@@ -1,3 +1,11 @@
+**An Afternoon in Brooklyn with Mayor Mamdani and a Bar Full of Arsenal Fans**\
+`Zohran Mamdani watched his favorite team, Arsenal, compete for the Champions League title with fans at a bar, getting a rare taste of his old life after a meteoric rise in politics.`\
+https://www.nytimes.com/2026/05/30/nyregion/champions-league-arsenal-mamdani-nyc.html
+
+**Trump Sends Tougher Terms to Iran for Peace Framework, Officials Say**\
+`His changes to the proposed deal were potentially designed to speed up the process by putting pressure Iran to accept the current framework, one official said.`\
+https://www.nytimes.com/2026/05/30/us/politics/trump-iran-peace-framework.html
+
 **Inside Trump’s Deal With the I.R.S. to Drop His $10 Billion Lawsuit**\
 `Discussions among a group of lawyers with allegiance to the president were closely held. Some senior White House officials were said to have felt blindsided as the agreement took shape.`\
 https://www.nytimes.com/2026/05/30/us/politics/trump-irs-lawsuit-deal.html
