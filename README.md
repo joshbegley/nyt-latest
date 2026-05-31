@@ -1,3 +1,7 @@
+**La otra crisis de Cuba: basura, dengue y chikunguña**\
+`El bloqueo petrolero del gobierno Trump dejó a La Habana sin combustible para recoger la basura, pero el problema tiene raíces más profundas: décadas de ineficiencia estatal.`\
+https://www.nytimes.com/es/2026/05/31/espanol/america-latina/cuba-basura-dengue-chikunguna.html
+
 **10-Minute Challenge: ‘The Painted Room’ by Lois Dodd**\
 `We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
 https://www.nytimes.com/interactive/2026/05/31/upshot/ten-minute-challenge-dodd.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/31/style/the-woman-who-beat-zero-bond.html
 **What Is Airbnb For, Exactly?**\
 `The home-sharing app recently added car rentals, groceries and — perhaps most surprisingly — hotels. Brian Chesky, the co-founder and chief executive, is always thinking about how to redesign it.`\
 https://www.nytimes.com/2026/05/31/business/airbnb-brian-chesky.html
-
-**Lights, Camera … I Do**\
-`Movie theaters are emerging as an unexpected and inexpensive wedding venue — seating, stage and (some) entertainment included.`\
-https://www.nytimes.com/2026/05/31/style/movie-theater-weddings.html
 
