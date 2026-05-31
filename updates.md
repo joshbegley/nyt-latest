@@ -1,3 +1,7 @@
+**Release of Tina Peters, Election Denier and Former County Clerk, Divides Colorado City**\
+`The former clerk of Mesa County is scheduled to be set free on Monday, after her nine-year prison sentence was commuted by Gov. Jared Polis.`\
+https://www.nytimes.com/2026/05/31/us/tina-peters-release-election-tampering-colorado.html
+
 **NYT Crossword Answers for June 1, 2026**\
 `Kenneth Cortes does the crossword proud.`\
 https://www.nytimes.com/2026/05/31/crosswords/daily-puzzle-2026-06-01.html

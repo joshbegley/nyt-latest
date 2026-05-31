@@ -1,3 +1,7 @@
+**Map: 6.0-Magnitude Earthquake Strikes off the Coast of Chile**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/05/31/world/chile-quake-tracker.html
+
 **NYT Crossword Answers for June 1, 2026**\
 `Kenneth Cortes does the crossword proud.`\
 https://www.nytimes.com/2026/05/31/crosswords/daily-puzzle-2026-06-01.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/business/100000010859133/is-this-the-future-of-air
 **A Long History of Handwritten Police Logs Comes to an End**\
 `Command logs date back as far as the 1860s, bearing witness to everything from the Civil War draft riots to the Sept. 11 terror attacks. The Police Department will soon replace the analog system with a digital one.`\
 https://www.nytimes.com/2026/05/31/nyregion/nypd-log-books.html
-
-**The Month’s Best New Mystery Novels**\
-`Our critic on four terrific new mysteries.`\
-https://www.nytimes.com/2026/05/31/books/review/new-mystery-books.html
 

@@ -39,7 +39,7 @@ https://www.nytimes.com/2026/05/31/us/politics/booker-platner-democrats-senate-m
 https://www.nytimes.com/video/world/middleeast/100000010935630/israel-lebanon-war-beaufort-castle.html
 
 **Release of Tina Peters, Election Denier and Former County Clerk, Divides Colorado City**\
-`The former clerk of Mesa County, Colo., is scheduled to be set free on Monday, after her nine-year prison sentence was commuted by Gov. Jared Polis.`\
+`The former clerk of Mesa County is scheduled to be set free on Monday, after her nine-year prison sentence was commuted by Gov. Jared Polis.`\
 https://www.nytimes.com/2026/05/31/us/tina-peters-release-election-tampering-colorado.html
 
 **Vasana Montgomery, ‘Love Island USA’ Contestant, Dismissed After Using Racial Slur**\
