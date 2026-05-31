@@ -1,3 +1,11 @@
+**Grilled Za’atar Chicken, Lemon Sorbet and More Alfresco Daydreams**\
+`After a long stretch of dining out on the road, I’m fantasizing about enjoying these recipes at home, in the fresh air.`\
+https://www.nytimes.com/2026/05/31/dining/grilled-zaatar-chicken-lemon-sorbet-and-more-alfresco-daydreams.html
+
+**Israel Captures Crusader Castle That Symbolized Its Long Lebanon Occupation**\
+`The seizure of Beaufort in southern Lebanon called up bitter memories in both countries amid a widening Israeli conflict with Hezbollah that seems far from over.`\
+https://www.nytimes.com/2026/05/31/world/middleeast/israel-lebanon-beaufort-iran.html
+
 **To Improve Ukraine’s Military, She Calls Out the Ugly Parts**\
 `Olha Reshetylova has been tasked by the government with overseeing soldiers’ rights. Some commanders resent her, but she says her work makes the armed forces stronger.`\
 https://www.nytimes.com/2026/05/31/world/europe/ukraine-military-soldiers-ombudsman.html
