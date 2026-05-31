@@ -1,3 +1,7 @@
+**Release of Tina Peters, Election Denier and Former County Clerk, Divides Colorado City**\
+`The former clerk of Mesa County, Colo., is scheduled to be set free on Monday, after her nine-year prison sentence was commuted by Gov. Jared Polis.`\
+https://www.nytimes.com/2026/05/31/us/tina-peters-release-election-tampering-colorado.html
+
 **Vasana Montgomery, ‘Love Island USA’ Contestant, Dismissed After Using Racial Slur**\
 `Last season, two contestants were also kicked off the reality show when videos showing them using racial slurs surfaced during filming.`\
 https://www.nytimes.com/2026/05/31/arts/television/love-island-usa-contestant-dismissed-racist-slur.html

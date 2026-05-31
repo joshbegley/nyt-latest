@@ -1,3 +1,7 @@
+**Release of Tina Peters, Election Denier and Former County Clerk, Divides Colorado City**\
+`The former clerk of Mesa County, Colo., is scheduled to be set free on Monday, after her nine-year prison sentence was commuted by Gov. Jared Polis.`\
+https://www.nytimes.com/2026/05/31/us/tina-peters-release-election-tampering-colorado.html
+
 **Vasana Montgomery, ‘Love Island USA’ Contestant, Dismissed After Using Racial Slur**\
 `Last season, two contestants were also kicked off the reality show when videos showing them using racial slurs surfaced during filming.`\
 https://www.nytimes.com/2026/05/31/arts/television/love-island-usa-contestant-dismissed-racist-slur.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/05/31/espanol/cultura/nicolas-cage-entrevista-sp
 **Hungría demostró cómo derrotar a un autócrata**\
 `Vencer a Viktor Orbán tras 16 años en el poder parecía una misión imposible; su derrota encierra lecciones claras para Estados Unidos.`\
 https://www.nytimes.com/es/2026/05/31/espanol/opinion/hungria-derrota-viktor-orban.html
-
-**‘Backrooms’ y el auge de las películas de creadores de Youtube**\
-`Durante años, Hollywood se preguntó si el éxito de plataformas como YouTube podría trasladarse a la pantalla grande. La respuesta está resonando en las taquillas.`\
-https://www.nytimes.com/es/2026/05/31/espanol/negocios/backrooms-obsesion-directores-youtube.html
 
