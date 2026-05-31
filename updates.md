@@ -1,3 +1,7 @@
+**The Wars, Raids and Airstrikes Under Trump**\
+`The United States has been involved in many military operations around the world since President Trump returned to office.`\
+https://www.nytimes.com/2026/05/31/us/politics/trumps-military-wars.html
+
 **‘Othello’ Review: Wendell Pierce Steps Into Iago’s Twisted Web**\
 `This production in the nation’s capital, with an enticingly opaque Iago, attempts to make Shakespeare’s tragedy relevant to our age of conspiracies.`\
 https://www.nytimes.com/2026/05/31/theater/othello-review-wendell-pierce.html

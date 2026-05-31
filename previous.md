@@ -1,3 +1,7 @@
+**The Wars, Raids and Airstrikes Under Trump**\
+`The United States has been involved in many military operations around the world since President Trump returned to office.`\
+https://www.nytimes.com/2026/05/31/us/politics/trumps-military-wars.html
+
 **‘Othello’ Review: Wendell Pierce Steps Into Iago’s Twisted Web**\
 `This production in the nation’s capital, with an enticingly opaque Iago, attempts to make Shakespeare’s tragedy relevant to our age of conspiracies.`\
 https://www.nytimes.com/2026/05/31/theater/othello-review-wendell-pierce.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/31/nyregion/metropolitan-diary.html
 **NYT Spelling Bee Answers for May 31, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/05/31/crosswords/spelling-bee-forum.html
-
-**High-Speed Sailboats Race Past the New York Skyline**\
-`SailGP, a two-day competition some say is like Formula 1 on the water, has replaced part of the normal traffic in New York Harbor with high-tech catamarans.`\
-https://www.nytimes.com/2026/05/31/nyregion/new-york-harbor-sail-grand-prix.html
 
