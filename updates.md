@@ -1,4 +1,8 @@
 **Inside Trump’s Deal With the I.R.S. to Drop His $10 Billion Lawsuit**\
+`Discussions among a group of lawyers with allegiance to the president were closely held. Some senior White House officials were said to have felt blindsided as the agreement took shape.`\
+https://www.nytimes.com/2026/05/30/us/politics/trump-irs-lawsuit-deal.html
+
+**Inside Trump’s Deal With the I.R.S. to Drop His $10 Billion Lawsuit**\
 `Discussions among a group of lawyers with allegiance to the president were closely held; some senior White House officials were said to have felt blindsided as the agreement took shape.`\
 https://www.nytimes.com/2026/05/30/us/politics/trump-irs-lawsuit-deal.html
 
