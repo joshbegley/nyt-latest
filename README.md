@@ -1,3 +1,15 @@
+**Another Night of Violent Protests Outside a Newark ICE Detention Center**\
+`Protesters and the police clashed again outside of an ICE detention center in New Jersey on Saturday night.`\
+https://www.nytimes.com/video/us/100000010935695/another-night-of-violent-protests-outside-a-newark-ice-detention-center.html
+
+**Nearly 800 Arrested in France After Champions League Final, French Officials Said**\
+`Nearly 800 people were arrested in France after Paris St.-Germain won the Champions League on Saturday, French officials said. Thousands in Paris took to the streets to celebrate, leading to some violent clashes with police officers.`\
+https://www.nytimes.com/video/world/europe/100000010935693/arrests-paris-saint-germain-champions.html
+
+**Trump Hits the Stalemate Phase of His International Interventions, and It Stings**\
+`In Ukraine, Gaza and now Iran, President Trump’s early declarations of easy wins have given way to harsh reality.`\
+https://www.nytimes.com/2026/05/31/us/politics/trump-the-stalemate-international-interventions.html
+
 **Cory Booker Has ‘Concerns’ About Platner Revelations in Maine Senate Race**\
 `Mr. Booker and other Senate Democrats faced questions Sunday about reports that Mr. Platner’s wife previously told his campaign he had exchanged sexual messages with women outside his marriage.`\
 https://www.nytimes.com/2026/05/31/us/politics/booker-platner-democrats-senate-midterms.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/video/embedded/world/asia/100000010675488/00INT-INDIA-WA
 ****\
 `The statue of Shivaji in Ladakh, sword out, ready to attack, is facing the Chinese border with Pangong Tso lake in the background.`\
 https://www.nytimes.com/video/embedded/world/asia/100000010675486/00INT-INDIA-WARRIOR-90516.html
-
-**Joby Demonstrated its Air Taxi in Manhattan, but You Can’t Fly in It Yet**\
-`Aviation start-ups and the Trump administration want to replace helicopters with electric aircraft, but the new vehicles still have to pass arduous tests before the public can use them.`\
-https://www.nytimes.com/2026/05/31/business/air-taxis-joby-helicopters.html
-
-**As Deaths From U.S. Boat Strikes Pass 200, Locals Tally an Even Greater Cost**\
-`Residents of coastal communities in Colombia and Ecuador said the airstrike campaign was making many reconsider anything involving the ocean as a livelihood.`\
-https://www.nytimes.com/2026/05/31/world/americas/us-boat-strikes-colombia-ecuador.html
-
-**Los libros de no ficción más esperados del verano**\
-`Memorias, historias, crímenes reales, investigaciones y mucho más.`\
-https://www.nytimes.com/es/2026/05/31/espanol/cultura/libros-no-ficcion-verano.html
 
