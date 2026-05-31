@@ -1,3 +1,7 @@
+**NYT Crossword Answers for June 1, 2026**\
+`Kenneth Cortes does the crossword proud.`\
+https://www.nytimes.com/2026/05/31/crosswords/daily-puzzle-2026-06-01.html
+
 **Notre Dame Students Abused by Priest in ‘Weighing Scheme,’ Report Finds**\
 `An investigation commissioned by Notre Dame found that the Catholic university could have done more to respond to allegations of sexual misconduct.`\
 https://www.nytimes.com/2026/05/31/us/notre-dame-students-abused-by-priest-in-weighing-scheme-report-finds.html
