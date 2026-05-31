@@ -22,8 +22,8 @@ https://www.nytimes.com/2026/05/30/us/politics/trump-iran-peace-framework.html
 `Discussions among a group of lawyers with allegiance to the president were closely held. Some senior White House officials were said to have felt blindsided as the agreement took shape.`\
 https://www.nytimes.com/2026/05/30/us/politics/trump-irs-lawsuit-deal.html
 
-**Gov. Sherrill Calls for Calm at Delaney Hall as Counterprotesters Arrive**\
-`The governor said she wanted to avoid escalating federal immigration enforcement operations amid protests at the immigration detention center, Delaney Hall.`\
+**After N.J. Governor’s Call for Calm, Protesters Clash With Police at Delaney Hall**\
+`Protesters and the New Jersey State Police clashed outside the immigration detention center Saturday night, hours after Gov. Mikie Sherrill urged demonstrators to lower the temperature.`\
 https://www.nytimes.com/2026/05/30/nyregion/delaney-hall-mikie-sherrill.html
 
 **Edgar Morin, ‘Grandfather’ of French Intellectuals, Dies at 104**\
