@@ -1,3 +1,7 @@
+**Mapa: un terremoto de magnitud 6,0 se registra en la costa de Chile**\
+`Mira la localización del epicentro del sismo y el área de movimiento.`\
+https://www.nytimes.com/es/interactive/2026/05/31/espanol/sismo-chile-valparaiso.html
+
 **How Should You Use A.I. Ethically?**\
 `The response to Pope Leo’s encyclical on A.I. was intense, a sign of an acute hunger for moral direction.`\
 https://www.nytimes.com/2026/05/31/briefing/pope-leo-encyclical-ai-ethics.html

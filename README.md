@@ -1,3 +1,7 @@
+**2025 Wildfires Were the Costliest Ever, Researchers Say**\
+`Severe, hard-to-control blazes in densely populated areas like Los Angeles drove the year’s record losses.`\
+https://www.nytimes.com/2026/05/31/climate/2025-wildfire-damage.html
+
 **Mapa: un terremoto de magnitud 6,0 se registra en la costa de Chile**\
 `Mira la localización del epicentro del sismo y el área de movimiento.`\
 https://www.nytimes.com/es/interactive/2026/05/31/espanol/sismo-chile-valparaiso.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/31/style/movie-theater-weddings.html
 **Book Review: ‘Rabbit, Fox, Tar,’ by P.C. Verrone**\
 `In “Rabbit, Fox, Tar,” a white neighborhood’s local election is complicated when a mysterious, dark-skinned woman suddenly appears in town.`\
 https://www.nytimes.com/2026/05/31/books/review/rabbit-fox-tar-pc-verrone.html
-
-**To Improve Ukraine’s Military, She Calls Out the Ugly Parts**\
-`Olha Reshetylova has been tasked by the government with overseeing soldiers’ rights. Some commanders resent her, but she says her work makes the armed forces stronger.`\
-https://www.nytimes.com/2026/05/31/world/europe/ukraine-military-soldiers-ombudsman.html
 

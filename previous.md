@@ -1,3 +1,7 @@
+**Mapa: un terremoto de magnitud 6,0 se registra en la costa de Chile**\
+`Mira la localización del epicentro del sismo y el área de movimiento.`\
+https://www.nytimes.com/es/interactive/2026/05/31/espanol/sismo-chile-valparaiso.html
+
 **Brote de ébola: así es el epicentro en República Democrática del Congo**\
 `A remote gold mining town is under siege, as medical workers struggle to beat back a surge of deaths and infections.`\
 https://www.nytimes.com/es/2026/05/31/espanol/mundo/ebola-epicentro-mongbwalu-congo.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/31/books/review/rabbit-fox-tar-pc-verrone.html
 **To Improve Ukraine’s Military, She Calls Out the Ugly Parts**\
 `Olha Reshetylova has been tasked by the government with overseeing soldiers’ rights. Some commanders resent her, but she says her work makes the armed forces stronger.`\
 https://www.nytimes.com/2026/05/31/world/europe/ukraine-military-soldiers-ombudsman.html
-
-**Is This the Future of Air Travel?**\
-`A new all-electric aircraft made a test flight in New York City. Our transportation reporter Niraj Chokshi describes what to know.`\
-https://www.nytimes.com/video/business/100000010859133/is-this-the-future-of-air-travel.html
 
