@@ -1,3 +1,7 @@
+**What Trump Actually Wants From the G.O.P.**\
+`“You can be the kingmaker even when you’re not the king,” argues the Opinion columnist Ezra Klein. The Republican strategist Liam Donovan joins “The Ezra Klein Show” to explain that Trump’s core strategy is ensuring a vulnerable G.O.P. can never abandon him.`\
+https://www.nytimes.com/video/opinion/100000010928424/what-trump-actually-wants-from-the-gop.html
+
 **Trump Urges Canceling Freedom 250 Concerts After Artists Drop Out**\
 `The president had earlier said on social media that he should take the place of “these highly paid, Third Rate ‘Artists,’” saying he gets “larger audiences than Elvis.”`\
 https://www.nytimes.com/2026/05/30/arts/music/trump-freedom-250-concert-cancellations.html

@@ -1,3 +1,7 @@
+**What Trump Actually Wants From the G.O.P.**\
+`“You can be the kingmaker even when you’re not the king,” argues the Opinion columnist Ezra Klein. The Republican strategist Liam Donovan joins “The Ezra Klein Show” to explain that Trump’s core strategy is ensuring a vulnerable G.O.P. can never abandon him.`\
+https://www.nytimes.com/video/opinion/100000010928424/what-trump-actually-wants-from-the-gop.html
+
 **Book Review: ‘Girl’s Girl,’ by Sonia Feldman**\
 `In Sonia Feldman’s novel, “Girl’s Girl,” the delicate balance of a Gen Z friend group is unsettled over one Ohio summer.`\
 https://www.nytimes.com/2026/05/30/books/review/girls-girl-sonia-feldman.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/30/crosswords/strands-sidekick-819.html
 **Is a Canadian Car the Answer to Trump’s Tariffs? The Bricklin Shows the Risks.**\
 `A sports car made in New Brunswick and mostly funded by the province lasted only about 18 months.`\
 https://www.nytimes.com/2026/05/30/world/canada/carney-auto-tariffs-bricklin-car.html
-
-**Inside the Ebola Epicenter, the Virus Rages With Little to Stop It**\
-`A remote gold mining town is under siege, as medical workers struggle to beat back a surge of deaths and infections.`\
-https://www.nytimes.com/2026/05/30/world/africa/ebola-epicenter-congo.html
 
