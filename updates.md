@@ -1,4 +1,12 @@
 **‘Othello’ Review: Wendell Pierce Steps Into Iago’s Twisted Web**\
+`This production in the nation’s capital, with an enticingly opaque Iago, attempts to make Shakespeare’s tragedy relevant to our age of conspiracies.`\
+https://www.nytimes.com/2026/05/31/theater/othello-review-wendell-pierce.html
+
+**Israel Day Parade to Return to New York Against a Changed Backdrop**\
+`Mayor Zohran Mamdani did not attend the annual Israel Day Parade, which is taking place amid a deterioration of public support for the country and rising antisemitism across the United States.`\
+https://www.nytimes.com/2026/05/31/nyregion/israel-day-parade-nyc.html
+
+**‘Othello’ Review: Wendell Pierce Steps Into Iago’s Twisted Web**\
 `This production in the nation’s capital, with an enticingly opaque Iago,  attempts to make Shakespeare’s tragedy relevant to our age of conspiracies.`\
 https://www.nytimes.com/2026/05/31/theater/othello-review-wendell-pierce.html
 
