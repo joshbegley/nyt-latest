@@ -1,3 +1,55 @@
+**Pulling Customs From ‘Sanctuary’ City Airports Would Cause Chaos, Business Groups Say**\
+`Homeland Security Secretary Markwayne Mullin’s proposal could block hubs like Boston, New York and Los Angeles from accepting international flights.`\
+https://www.nytimes.com/2026/05/31/us/customs-airports-markwayne-mullin.html
+
+**A Festival of Black Culture With a ’90s Vibe**\
+`The brothers behind the London party organizers Recess decamped to a seaside amusement park for a two-day event channeling an earlier era of Black British nightlife.`\
+https://www.nytimes.com/2026/05/31/arts/music/recess-festival-margate-london.html
+
+**Colombia Presidential Election: What to Know About the Candidates and Main Issues**\
+`The election tests the legacy of the country’s first leftist leader against a rising far-right outsider and a traditional conservative.`\
+https://www.nytimes.com/2026/05/31/world/americas/colombia-election-president-candidates.html
+
+**See the Reflecting Pool's Problems That Trump's Renovations May Not Fix**\
+`See the problems that have plagued the Lincoln Memorial pool for decades and why President Trump’s repairs might not fix them.`\
+https://www.nytimes.com/interactive/2026/05/31/us/trump-reflecting-pool-problems.html
+
+**The Growing Movement for Shelters to Make Room for Pets**\
+`Shelters recognize that many would rather sleep on the street than leave their animals behind.`\
+https://www.nytimes.com/2026/05/31/realestate/homeless-shelter-pets.html
+
+**Even Havana’s Street Sweepers Can’t Escape the Impact of the Fuel Blockade**\
+`A fuel blockade on Cuba has aggravated a lack of consistent garbage pickup and produced enormous trash piles.`\
+https://www.nytimes.com/2026/05/31/world/americas/cuba-trash-fuel-blockade.html
+
+**Trump Administration Sees Striking Exodus of Legal Talent**\
+`The departure of more than 10,000 federal lawyers has left some agencies without sufficient staff and has boosted the ranks of state attorneys general offices and advocacy groups.`\
+https://www.nytimes.com/2026/05/31/us/politics/trump-administration-exodus-of-lawyers.html
+
+**Can the World Cup Help the U.S. Beer Industry Kick Its Slump?**\
+`Bars and stores are uncertain if the soccer tournament will boost beer sales. Still, the maker of Budweiser and Michelob Ultra is going all in.`\
+https://www.nytimes.com/2026/05/31/business/world-cup-beer.html
+
+**He Was Satirized on British TV. Now He’s Trump’s Pick to Lead California.**\
+`Steve Hilton grabbed headlines when he worked in conservative politics in Britain. His American political renaissance in the California governor’s race has bemused former British colleagues and rivals.`\
+https://www.nytimes.com/2026/05/31/us/steve-hilton-california-governor.html
+
+**District Lines Are Shifting Fast in the South. Voters Are Rattled.**\
+`Republican officials are jubilant, some voters are confused and concerned, and civil rights activists are gearing up for the fight of a generation.`\
+https://www.nytimes.com/2026/05/31/us/voting-rights-act-redistricting-southern-states.html
+
+**Tilly Norwood, A.I. Actress, Wants to Know Why Everyone’s Mad at Her**\
+`The A.I. actress on her craft, the future of film and how she definitely does not intend to murder us.`\
+https://www.nytimes.com/2026/05/31/magazine/ai-actress-tilly-norwood.html
+
+**In U.F.O. Files, Some Christians See Vexing Questions — and Demons**\
+`The prospect of intelligent life elsewhere in the universe raises unsettling theological implications.`\
+https://www.nytimes.com/2026/05/31/us/ufo-files-pentagon.html
+
+**The Woman Who Beat Zero Bond**\
+`When a buyer sought to convert the historic Hedges Inn in East Hampton into a sceney private club, Sarah Wetenhall had a different idea.`\
+https://www.nytimes.com/2026/05/31/style/the-woman-who-beat-zero-bond.html
+
 **What Is Airbnb For, Exactly?**\
 `The home-sharing app recently added car rentals, groceries and — perhaps most surprisingly — hotels. Brian Chesky, the co-founder and chief executive, is always thinking about how to redesign it.`\
 https://www.nytimes.com/2026/05/31/business/airbnb-brian-chesky.html
