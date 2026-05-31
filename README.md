@@ -1,3 +1,27 @@
+**Israel Day Parade to Return to New York Against a Changed Backdrop**\
+`Mayor Zohran Mamdani does not plan to attend the annual Israel Day Parade, which is taking place amid a deterioration of public support for the country and rising antisemitism across the United States.`\
+https://www.nytimes.com/2026/05/31/nyregion/israel-day-parade-nyc.html
+
+**‘The Ingredients Looked Good, So I Told Him He Should Go for It’**\
+`Help with a hamburger, getting a look under a stranger’s hood and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://www.nytimes.com/2026/05/31/nyregion/metropolitan-diary.html
+
+**NYT Spelling Bee Answers for May 31, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/31/crosswords/spelling-bee-forum.html
+
+**High-Speed Sailboats Race Past the New York Skyline**\
+`SailGP, a two-day competition some say is like Formula 1 on the water, has replaced part of the normal traffic in New York Harbor with high-tech catamarans.`\
+https://www.nytimes.com/2026/05/31/nyregion/new-york-harbor-sail-grand-prix.html
+
+**Where Is Toronto’s Best Party? Try the Basement.**\
+`Millennials who yearn for a bygone era of dancing that feels pure and more organic are bringing back the basement jam, popularized decades ago by Toronto’s Caribbean diaspora.`\
+https://www.nytimes.com/2026/05/31/world/canada/toronto-basement-jams-caribbean-diaspora.html
+
+**Looking Back on a Year as Co-Chief Restaurant Critics**\
+`Tejal Rao and Ligaya Mishan, who were appointed last June, discuss some of their culinary highlights, including barbecue in Texas and Bangladeshi food in New Jersey.`\
+https://www.nytimes.com/2026/05/31/insider/new-york-times-chief-restaurant-critics.html
+
 **5 riesgos de consumir demasiada proteína**\
 `Desde enfermedades cardíacas hasta problemas renales, los expertos explican los riesgos de consumir mucho más proteína de la que el cuerpo necesita.`\
 https://www.nytimes.com/es/2026/05/31/espanol/demasiada-proteina-riesgos-salud.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/05/30/opinion/murder-crime-rate-america.html
 **What the Meat Industry Doesn’t Want You to Know**\
 `I once raised pigs. And factory farms raise them today in conditions that are as unconscionable as they are invisible.`\
 https://www.nytimes.com/2026/05/30/opinion/pigs-farm-bill-meat-industry.html
-
-**The First A.I. High School in the U.S. Is Surprisingly Human**\
-`Schools are not like start-ups, because children’s minds should not be tied to the whims of the marketplace.`\
-https://www.nytimes.com/2026/05/30/opinion/ai-high-school.html
-
-**How to Legalize Starter Homes**\
-`Blue states like Massachusetts need to be part of the solution.`\
-https://www.nytimes.com/2026/05/30/opinion/affordable-housing-lot-size-ballot-initiative.html
-
-**Sorry, Republicans, Trump Doesn’t Love You Back**\
-`The president is acting as if the midterms no longer matter.`\
-https://www.nytimes.com/video/opinion/100000010931483/sorry-republicans-trump-doesnt-love-you-back.html
-
-**Season Pass**\
-`Today, let’s set our ambitions for summer reading.`\
-https://www.nytimes.com/2026/05/30/briefing/season-pass.html
-
-**Hegseth’s Message to Asian Partners: Do More to Get More**\
-`At a security conference in Singapore, Defense Secretary Pete Hegseth told Asian military leaders how they could get to “the front of the line” for U.S. assistance.`\
-https://www.nytimes.com/2026/05/30/world/asia/hegseth-asia-security-shangri-la.html
-
-**My Partner’s Dependence on Chatbots Is Becoming a Problem. How Do I Tell Him?**\
-`One reason I love my partner is his sharp mind and critical thinking. Using A.I. for every decision is something I don’t understand.`\
-https://www.nytimes.com/2026/05/30/magazine/partner-chatbot-dependence-ethics.html
 
