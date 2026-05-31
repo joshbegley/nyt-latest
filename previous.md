@@ -1,4 +1,12 @@
-**The Wars, Raids and Airstrikes Under Trump**\
+**Young Moviegoers Power ‘Backrooms’ to $82 Million in Ticket Sales**\
+`The horror film, which cost $10 million and came from a 20-year-old filmmaker, added to evidence that young people will go to theaters for the right offering.`\
+https://www.nytimes.com/2026/05/31/business/media/young-moviegoers-backrooms-a24-box-office.html
+
+**Trump Is Dominating G.O.P. Primaries. Does That Mean Victory in the Midterms?**\
+`Come November, the Republican Party will need the support of voters outside of President Trump’s base, many of whom are deeply dissatisfied with the economy and the Iran war.`\
+https://www.nytimes.com/2026/05/31/us/politics/trump-is-dominating-gop-primaries-does-that-mean-victory-in-the-midterms.html
+
+**Timeline: Where and When Trump Has Involved the U.S. Military in International Conflicts**\
 `The United States has been involved in many military operations around the world since President Trump returned to office.`\
 https://www.nytimes.com/2026/05/31/us/politics/trumps-military-wars.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/05/31/espanol/negocios/backrooms-obsesion-direct
 **Israel Day Parade to Return to New York Against a Changed Backdrop**\
 `Mayor Zohran Mamdani did not attend the annual Israel Day Parade, which is taking place amid a deterioration of public support for the country and rising antisemitism across the United States.`\
 https://www.nytimes.com/2026/05/31/nyregion/israel-day-parade-nyc.html
-
-**‘The Ingredients Looked Good, So I Told Him He Should Go for It’**\
-`Help with a hamburger, getting a look under a stranger’s hood and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://www.nytimes.com/2026/05/31/nyregion/metropolitan-diary.html
-
-**NYT Spelling Bee Answers for May 31, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/05/31/crosswords/spelling-bee-forum.html
 
