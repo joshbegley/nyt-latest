@@ -1,3 +1,7 @@
+**After Voting Decision, a Month of Political Earthquakes Across the South**\
+`Republican officials are jubilant, some voters are confused and concerned, and civil rights activists are gearing up for the fight of a generation.`\
+https://www.nytimes.com/2026/05/31/us/voting-rights-act-redistricting-southern-states.html
+
 **Scene Stealer**\
 `What happens when a reporter who has interviewed some of the biggest names in Hollywood sits down with the first A.I. actress?`\
 https://www.nytimes.com/2026/05/31/briefing/ai-actress-tilly-norwood.html

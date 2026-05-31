@@ -70,7 +70,7 @@ https://www.nytimes.com/2026/05/31/business/world-cup-beer.html
 `Steve Hilton grabbed headlines when he worked in conservative politics in Britain. His American political renaissance in the California governor’s race has bemused former British colleagues and rivals.`\
 https://www.nytimes.com/2026/05/31/us/steve-hilton-california-governor.html
 
-**District Lines Are Shifting Fast in the South. Voters Are Rattled.**\
+**After Voting Decision, a Month of Political Earthquakes Across the South**\
 `Republican officials are jubilant, some voters are confused and concerned, and civil rights activists are gearing up for the fight of a generation.`\
 https://www.nytimes.com/2026/05/31/us/voting-rights-act-redistricting-southern-states.html
 
