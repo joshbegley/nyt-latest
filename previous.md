@@ -1,3 +1,11 @@
+**5 riesgos de consumir demasiada proteína**\
+`Desde enfermedades cardíacas hasta problemas renales, los expertos explican los riesgos de consumir mucho más proteína de la que el cuerpo necesita.`\
+https://www.nytimes.com/es/2026/05/31/espanol/demasiada-proteina-riesgos-salud.html
+
+**Men and Women Should Be Optimists About Love, Not Heteropessimists**\
+`“Heteropessimism” is all the rage — but really, there’s never been a better time to be looking for love. Go on, be a hetero-optimist.`\
+https://www.nytimes.com/2026/05/31/opinion/heteropessimism-straight-dating-love.html
+
 **In Taiwan, ‘Mainland Spouses’ From China Become a Focus of Infiltration Fears**\
 `A Chinese-born woman accused of infiltration has set off a debate over how Taiwan defends its democracy without profiling migrants from China.`\
 https://www.nytimes.com/2026/05/31/world/asia/taiwan-china-mainland-spouses-infiltration.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/05/30/world/asia/hegseth-asia-security-shangri-la.h
 **My Partner’s Dependence on Chatbots Is Becoming a Problem. How Do I Tell Him?**\
 `One reason I love my partner is his sharp mind and critical thinking. Using A.I. for every decision is something I don’t understand.`\
 https://www.nytimes.com/2026/05/30/magazine/partner-chatbot-dependence-ethics.html
-
-**Today’s Wordle Hints for May, 31 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, May, 31 2026.`\
-https://www.nytimes.com/2026/05/30/crosswords/wordle-review-1807.html
-
-**NYT Connections Answers for May 31, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, May 31, 2026.`\
-https://www.nytimes.com/2026/05/30/crosswords/connections-companion-1085.html
 
