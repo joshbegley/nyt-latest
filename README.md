@@ -1,3 +1,7 @@
+**Brote de ébola: así es el epicentro en República Democrática del Congo**\
+`A remote gold mining town is under siege, as medical workers struggle to beat back a surge of deaths and infections.`\
+https://www.nytimes.com/es/2026/05/31/espanol/mundo/ebola-epicentro-mongbwalu-congo.html
+
 **Map: 6.0-Magnitude Earthquake Strikes off the Coast of Chile**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/05/31/world/chile-quake-tracker.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/31/world/europe/ukraine-military-soldiers-ombuds
 **Is This the Future of Air Travel?**\
 `A new all-electric aircraft made a test flight in New York City. Our transportation reporter Niraj Chokshi describes what to know.`\
 https://www.nytimes.com/video/business/100000010859133/is-this-the-future-of-air-travel.html
-
-**A Long History of Handwritten Police Logs Comes to an End**\
-`Command logs date back as far as the 1860s, bearing witness to everything from the Civil War draft riots to the Sept. 11 terror attacks. The Police Department will soon replace the analog system with a digital one.`\
-https://www.nytimes.com/2026/05/31/nyregion/nypd-log-books.html
 
