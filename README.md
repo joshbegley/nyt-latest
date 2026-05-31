@@ -1,3 +1,55 @@
+**What Is Airbnb For, Exactly?**\
+`The home-sharing app recently added car rentals, groceries and — perhaps most surprisingly — hotels. Brian Chesky, the co-founder and chief executive, is always thinking about how to redesign it.`\
+https://www.nytimes.com/2026/05/31/business/airbnb-brian-chesky.html
+
+**Lights, Camera … I Do**\
+`Movie theaters are emerging as an unexpected and inexpensive wedding venue — seating, stage and (some) entertainment included.`\
+https://www.nytimes.com/2026/05/31/style/movie-theater-weddings.html
+
+**Book Review: ‘Rabbit, Fox, Tar,’ by P.C. Verrone**\
+`In “Rabbit, Fox, Tar,” a white neighborhood’s local election is complicated when a mysterious, dark-skinned woman suddenly appears in town.`\
+https://www.nytimes.com/2026/05/31/books/review/rabbit-fox-tar-pc-verrone.html
+
+**Ukraine’s Military Doesn’t Always Welcome Criticism. But That’s Her Job.**\
+`Olha Reshetylova has been tasked by the government with overseeing soldiers’ rights. Some commanders resent her, but she says her work makes the armed forces stronger.`\
+https://www.nytimes.com/2026/05/31/world/europe/ukraine-military-soldiers-ombudsman.html
+
+**Is This the Future of Air Travel?**\
+`A new all-electric aircraft made a test flight in New York City. Our transportation reporter Niraj Chokshi describes what to know.`\
+https://www.nytimes.com/video/business/100000010859133/is-this-the-future-of-air-travel.html
+
+**A Long History of Handwritten Police Logs Comes to an End**\
+`Command logs date back as far as the 1860s, bearing witness to everything from the Civil War draft riots to the Sept. 11 terror attacks. The Police Department will soon replace the analog system with a digital one.`\
+https://www.nytimes.com/2026/05/31/nyregion/nypd-log-books.html
+
+**The Month’s Best New Mystery Novels**\
+`Our critic on four terrific new mysteries.`\
+https://www.nytimes.com/2026/05/31/books/review/new-mystery-books.html
+
+**India’s Hindu Right Has a New Hero: A 17th-Century Warrior King**\
+`Statues of Shivaji are rising everywhere. The founder of the Maratha empire who fought against the Mughal dynasty is now a symbol for nationalists remaking the country.`\
+https://www.nytimes.com/2026/05/31/world/asia/india-hindu-king-shivaji.html
+
+**The Sculptor Riding India’s Shivaji Craze**\
+`Demand has soared for his figurines and statues of the warrior king. It started with a video he posted online.`\
+https://www.nytimes.com/2026/05/31/world/asia/india-shivaji-statue-sculptor.html
+
+****\
+`Finished statues waiting for buyers in Mr. Chougule’s studio.`\
+https://www.nytimes.com/video/embedded/world/asia/100000010678372/10INDIA-WARRIOR-SCULPTOR-27550.html
+
+****\
+`Mr. Chavan cleaning one of the Shivaji statues from his collection.`\
+https://www.nytimes.com/video/embedded/world/asia/100000010675488/00INT-INDIA-WARRIOR-78451.html
+
+****\
+`The statue of Shivaji in Ladakh, sword out, ready to attack, is facing the Chinese border with Pangong Tso lake in the background.`\
+https://www.nytimes.com/video/embedded/world/asia/100000010675486/00INT-INDIA-WARRIOR-90516.html
+
+**Joby Demonstrated its Air Taxi in Manhattan, but You Can’t Fly in It Yet**\
+`Aviation start-ups and the Trump administration want to replace helicopters with electric aircraft, but the new vehicles still have to pass arduous tests before the public can use them.`\
+https://www.nytimes.com/2026/05/31/business/air-taxis-joby-helicopters.html
+
 **As Deaths From U.S. Boat Strikes Pass 200, Locals Tally an Even Greater Cost**\
 `Residents of coastal communities in Colombia and Ecuador said the airstrike campaign was making many reconsider anything involving the ocean as a livelihood.`\
 https://www.nytimes.com/2026/05/31/world/americas/us-boat-strikes-colombia-ecuador.html
@@ -145,56 +197,4 @@ https://www.nytimes.com/interactive/polls/washington-us-house-5-polls-2026.html
 **U.S. Military Kills 3 on Boat Suspected of Drug Trafficking**\
 `Around 200 people have now been killed in the attacks since last year, in an operation critics say has failed to slow the smuggling of cocaine.`\
 https://www.nytimes.com/2026/05/30/us/politics/military-boat-strike.html
-
-**Who Is Ahead in Alaska's At-Large Congressional District?**\
-`Track the latest polls in Alaska's At-Large Congressional District.`\
-https://www.nytimes.com/interactive/polls/alaska-us-house-at-large-polls-2026.html
-
-**Militares de EE. UU. y de Cuba se reúnen fuera de la base de Guantánamo**\
-`La reunión fue el encuentro militar de más alto nivel desde que el gobierno de Donald Trump comenzó a aumentar la presión sobre el gobierno cubano este año.`\
-https://www.nytimes.com/es/2026/05/30/espanol/estados-unidos/reunion-militares-cuba-guantanamo.html
-
-**U.S. and Cuban Military Officials Meet Outside of Guantánamo Base**\
-`The meeting was the highest-level military engagement since the Trump administration began ratcheting up pressure on the Cuban government this year.`\
-https://www.nytimes.com/2026/05/30/us/politics/cuba-trump-military-officials-guantanamo.html
-
-**Iran’s Team Trains in Limbo for World Cup Overshadowed by War**\
-`The Iranian soccer players, still awaiting visas to the U.S., are practicing in Turkey and making backup plans.`\
-https://www.nytimes.com/2026/05/30/world/middleeast/iran-mens-soccer-team-world-cup.html
-
-****\
-`School children chanting praise to Shivaji, the Maratha king, by his statue in Malvan, Maharashtra, in January.`\
-https://www.nytimes.com/video/embedded/world/asia/100000010675619/00INT-INDIA-WARRIOR-30291.html
-
-**A Frosty Glass of Greens**\
-`Ali Slagle’s green smoothie is my favorite low-effort way to get my greens.`\
-https://www.nytimes.com/2026/05/30/dining/a-frosty-glass-of-greens.html
-
-**A Big Bang, a Fire and Panic as War Enters Romanian Homes**\
-`When a drone crashed into an apartment building in eastern Romania, residents were reminded that the Russia-Ukraine war makes for a dangerous neighbor.`\
-https://www.nytimes.com/2026/05/30/world/europe/romania-drone-russia-ukraine.html
-
-**Living With Cancer: Personal Stories**\
-`Readers react to a guest essay about how some patients are living longer with advanced cancer.`\
-https://www.nytimes.com/2026/05/30/opinion/letters/cancer-personal-stories.html
-
-**How to Make Cosmic Blondies**\
-`These easy bars are crowned with swooshes of colorful white chocolate ganache and showers of glitter.`\
-https://www.nytimes.com/2026/05/30/dining/how-to-make-cosmic-blondies-june-bake-time.html
-
-**Cómo lograr que tus hijos se acerquen más a sus abuelos**\
-`Intercambiar mensajes de texto o audios tiene beneficios para ambas generaciones. Los expertos comparten ideas.`\
-https://www.nytimes.com/es/2026/05/30/espanol/estilos-de-vida/nietos-abuelos-comunicacion.html
-
-**What I Saw Inside an Ebola Ward**\
-`Our chief Africa correspondent, Declan Walsh, walked inside an Ebola ward where both adults and children were being treated, and where someone had recently died of the disease amid a spiraling outbreak in the region. This is what he saw.`\
-https://www.nytimes.com/video/world/africa/100000010929380/what-i-saw-inside-an-ebola-ward.html
-
-**As Trump Mulls Decision About Iran War Deal, a Restive Middle East Waits to Hear**\
-`The president has wavered on whether to move ahead with an agreement with Iran to end the war. On Friday, he vowed to make a “final determination” soon.`\
-https://www.nytimes.com/2026/05/30/world/middleeast/trump-deal-middle-east-iran.html
-
-**Ye and Travis Scott Concerts Canceled in Italy Over Security Fears**\
-`The events were canceled “to ensure public order and safety,” the authorities said. Jewish leaders had objected to the concert by Ye, formerly known as Kanye West, who has a history of antisemitic remarks.`\
-https://www.nytimes.com/2026/05/30/world/europe/ye-travis-scott-italy-concerts.html
 
