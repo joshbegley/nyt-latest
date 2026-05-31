@@ -1,3 +1,19 @@
+**Los libros de no ficción más esperados del verano**\
+`Memorias, historias, crímenes reales, investigaciones y mucho más.`\
+https://www.nytimes.com/es/2026/05/31/espanol/cultura/libros-no-ficcion-verano.html
+
+**Nicolas Cage habla sobre convertirse en un meme**\
+`El icónico actor se convirtió en un meme, en un mito y en alguien extraordinario.`\
+https://www.nytimes.com/es/2026/05/31/espanol/cultura/nicolas-cage-entrevista-spider-noir.html
+
+**Hungría demostró cómo derrotar a un autócrata**\
+`Vencer a Viktor Orbán tras 16 años en el poder parecía una misión imposible; su derrota encierra lecciones claras para Estados Unidos.`\
+https://www.nytimes.com/es/2026/05/31/espanol/opinion/hungria-derrota-viktor-orban.html
+
+**‘Backrooms’ y el auge de las películas de creadores de Youtube**\
+`Durante años, Hollywood se preguntó si el éxito de plataformas como YouTube podría trasladarse a la pantalla grande. La respuesta está resonando en las taquillas.`\
+https://www.nytimes.com/es/2026/05/31/espanol/negocios/backrooms-obsesion-directores-youtube.html
+
 **Israel Day Parade to Return to New York Against a Changed Backdrop**\
 `Mayor Zohran Mamdani does not plan to attend the annual Israel Day Parade, which is taking place amid a deterioration of public support for the country and rising antisemitism across the United States.`\
 https://www.nytimes.com/2026/05/31/nyregion/israel-day-parade-nyc.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/05/30/world/europe/ye-travis-scott-italy-concerts.h
 **When War Breaks Out Over the Family Business, They Get the Call**\
 `As baby boomers begin passing down trillions in assets, advisers who specialize in navigating the process — and the emotions around it — have never been busier.`\
 https://www.nytimes.com/2026/05/30/business/dealbook/family-business-counselors.html
-
-**5 Are Freed in Laos Cave Rescue After More Than a Week**\
-`Rescuers pumped water from the flooded cave, enabling four miners to crawl out. One used diving gear to escape earlier, and two remain missing.`\
-https://www.nytimes.com/2026/05/30/world/asia/laos-cave-rescue-four.html
-
-**The YOLO Republicans**\
-`The president is acting as if the midterms no longer matter.`\
-https://www.nytimes.com/2026/05/30/opinion/yolo-republicans-texas-primary.html
-
-**The Best News in America**\
-`A low murder rate is by no means the only measure of a good society. But it’s a pretty good measure of a society’s underlying stability.`\
-https://www.nytimes.com/2026/05/30/opinion/murder-crime-rate-america.html
-
-**What the Meat Industry Doesn’t Want You to Know**\
-`I once raised pigs. And factory farms raise them today in conditions that are as unconscionable as they are invisible.`\
-https://www.nytimes.com/2026/05/30/opinion/pigs-farm-bill-meat-industry.html
 
