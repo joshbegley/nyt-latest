@@ -46,8 +46,8 @@ https://www.nytimes.com/2026/05/30/crosswords/daily-puzzle-2026-05-31.html
 `A fireball reached 75,000 miles per hour before breaking up miles above New England, NASA said, causing a boom that alarmed residents. The incident followed a similar event in South Carolina.`\
 https://www.nytimes.com/2026/05/30/us/boston-area-boom.html
 
-**Trump Suggests He’ll Headline Freedom 250 Concerts After Artists Drop Out**\
-`The president said on social media that he should replace “these highly paid, Third Rate ‘Artists,’” calling himself “the man who gets much larger audiences than Elvis.”`\
+**Trump Urges Canceling Freedom 250 Concerts After Artists Drop Out**\
+`The president had earlier said on social media that he should take the place of “these highly paid, Third Rate ‘Artists,’” saying he gets “larger audiences than Elvis.”`\
 https://www.nytimes.com/2026/05/30/arts/music/trump-freedom-250-concert-cancellations.html
 
 **What to Know About the ICE Agent Arrested in Texas for a Shooting in Minnesota**\

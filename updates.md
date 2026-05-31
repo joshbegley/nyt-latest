@@ -1,3 +1,7 @@
+**Trump Urges Canceling Freedom 250 Concerts After Artists Drop Out**\
+`The president had earlier said on social media that he should take the place of “these highly paid, Third Rate ‘Artists,’” saying he gets “larger audiences than Elvis.”`\
+https://www.nytimes.com/2026/05/30/arts/music/trump-freedom-250-concert-cancellations.html
+
 **Book Review: ‘Girl’s Girl,’ by Sonia Feldman**\
 `In Sonia Feldman’s novel, “Girl’s Girl,” the delicate balance of a Gen Z friend group is unsettled over one Ohio summer.`\
 https://www.nytimes.com/2026/05/30/books/review/girls-girl-sonia-feldman.html
