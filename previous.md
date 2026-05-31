@@ -35,7 +35,7 @@ https://www.nytimes.com/2026/05/30/us/politics/trump-iran-peace-framework.html
 https://www.nytimes.com/2026/05/30/us/politics/trump-irs-lawsuit-deal.html
 
 **After N.J. Governor’s Call for Calm, Protesters Clash With Police at Delaney Hall**\
-`Protesters and the New Jersey State Police clashed outside the immigration detention center Saturday night, hours after Gov. Mikie Sherrill urged demonstrators to lower the temperature.`\
+`Protesters clashed with the New Jersey State Police and Newark police officers outside the immigration detention center Saturday night.`\
 https://www.nytimes.com/2026/05/30/nyregion/delaney-hall-mikie-sherrill.html
 
 **Edgar Morin, ‘Grandfather’ of French Intellectuals, Dies at 104**\
