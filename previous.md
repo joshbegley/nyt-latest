@@ -1,3 +1,19 @@
+**The Museum of Wretched Ideas Has Reopened**\
+`We seem to have forgotten more or less everything.`\
+https://www.nytimes.com/2026/05/31/opinion/communism-fascism-authoritarianism-democracy.html
+
+**We Have to Take the Future of A.I. Into Our Own Hands**\
+`We’ve heard a lot about what it can do for businesses, and for individuals, but what about society?`\
+https://www.nytimes.com/2026/05/31/opinion/artificial-intelligence-public-good.html
+
+**How to Make Americans Read Again**\
+`The reading crisis is real, but the solution does not require new inventions.`\
+https://www.nytimes.com/2026/05/31/opinion/books-reading-crisis-libraries.html
+
+**The Problem With Martin Luther King Jr.’s Origin Story**\
+`A civil-rights leader’s friendship with a white boy sits at the heart of his account of how he encountered racism.`\
+https://www.nytimes.com/2026/05/31/opinion/mlk-racism-origin-myth.html
+
 **NYT Connections Answers for June 1, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, June 1, 2026.`\
 https://www.nytimes.com/2026/05/31/crosswords/connections-companion-1086.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/05/30/us/11-dead-longview-washington-chemical-explo
 **What Trump Actually Wants From the G.O.P.**\
 `“You can be the kingmaker even when you’re not the king,” argues the Opinion columnist Ezra Klein. The Republican strategist Liam Donovan joins “The Ezra Klein Show” to explain that Trump’s core strategy is ensuring a vulnerable G.O.P. can never abandon him.`\
 https://www.nytimes.com/video/opinion/100000010928424/what-trump-actually-wants-from-the-gop.html
-
-**Book Review: ‘Girl’s Girl,’ by Sonia Feldman**\
-`In Sonia Feldman’s novel, “Girl’s Girl,” the delicate balance of a Gen Z friend group is unsettled over one Ohio summer.`\
-https://www.nytimes.com/2026/05/30/books/review/girls-girl-sonia-feldman.html
-
-**An Afternoon in Brooklyn with Mayor Mamdani and a Bar Full of Arsenal Fans**\
-`Zohran Mamdani watched his favorite team, Arsenal, compete for the Champions League title with fans at a bar, getting a rare taste of his old life after a meteoric rise in politics.`\
-https://www.nytimes.com/2026/05/30/nyregion/champions-league-arsenal-mamdani-nyc.html
-
-**Trump Sends Tougher Terms to Iran for Peace Framework, Officials Say**\
-`His changes to the proposed deal were potentially designed to speed up the process by putting pressure Iran to accept the current framework, one official said.`\
-https://www.nytimes.com/2026/05/30/us/politics/trump-iran-peace-framework.html
-
-**Inside Trump’s Deal With the I.R.S. to Drop His $10 Billion Lawsuit**\
-`Discussions among a group of lawyers with allegiance to the president were closely held. Some senior White House officials were said to have felt blindsided as the agreement took shape.`\
-https://www.nytimes.com/2026/05/30/us/politics/trump-irs-lawsuit-deal.html
 

@@ -1,3 +1,19 @@
+**The Museum of Wretched Ideas Has Reopened**\
+`We seem to have forgotten more or less everything.`\
+https://www.nytimes.com/2026/05/31/opinion/communism-fascism-authoritarianism-democracy.html
+
+**We Have to Take the Future of A.I. Into Our Own Hands**\
+`We’ve heard a lot about what it can do for businesses, and for individuals, but what about society?`\
+https://www.nytimes.com/2026/05/31/opinion/artificial-intelligence-public-good.html
+
+**How to Make Americans Read Again**\
+`The reading crisis is real, but the solution does not require new inventions.`\
+https://www.nytimes.com/2026/05/31/opinion/books-reading-crisis-libraries.html
+
+**The Problem With Martin Luther King Jr.’s Origin Story**\
+`A civil-rights leader’s friendship with a white boy sits at the heart of his account of how he encountered racism.`\
+https://www.nytimes.com/2026/05/31/opinion/mlk-racism-origin-myth.html
+
 **NYT Connections Answers for June 1, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, June 1, 2026.`\
 https://www.nytimes.com/2026/05/31/crosswords/connections-companion-1086.html
