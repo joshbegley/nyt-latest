@@ -1,3 +1,15 @@
+**NYT Connections Answers for June 1, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, June 1, 2026.`\
+https://www.nytimes.com/2026/05/31/crosswords/connections-companion-1086.html
+
+**NYT Strands Hints for June 1, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, June 1, 2026.`\
+https://www.nytimes.com/2026/05/31/crosswords/strands-sidekick-820.html
+
+**Today’s Wordle Hints for June 1, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, June 1, 2026.`\
+https://www.nytimes.com/2026/05/31/crosswords/wordle-review-1808.html
+
 **Elecciones presidenciales en Colombia: ¿quiénes son los candidatos?**\
 `La elección pone a prueba el legado del primer presidente de izquierda del país frente a un candidato independiente de extrema derecha en ascenso y una conservadora tradicional.`\
 https://www.nytimes.com/es/2026/05/31/espanol/america-latina/elecciones-presidenciales-colombia-candidatos.html

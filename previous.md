@@ -1,3 +1,15 @@
+**NYT Connections Answers for June 1, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, June 1, 2026.`\
+https://www.nytimes.com/2026/05/31/crosswords/connections-companion-1086.html
+
+**NYT Strands Hints for June 1, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, June 1, 2026.`\
+https://www.nytimes.com/2026/05/31/crosswords/strands-sidekick-820.html
+
+**Today’s Wordle Hints for June 1, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, June 1, 2026.`\
+https://www.nytimes.com/2026/05/31/crosswords/wordle-review-1808.html
+
 **Elecciones presidenciales en Colombia: ¿quiénes son los candidatos?**\
 `La elección pone a prueba el legado del primer presidente de izquierda del país frente a un candidato independiente de extrema derecha en ascenso y una conservadora tradicional.`\
 https://www.nytimes.com/es/2026/05/31/espanol/america-latina/elecciones-presidenciales-colombia-candidatos.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/05/30/us/politics/trump-iran-peace-framework.html
 **Inside Trump’s Deal With the I.R.S. to Drop His $10 Billion Lawsuit**\
 `Discussions among a group of lawyers with allegiance to the president were closely held. Some senior White House officials were said to have felt blindsided as the agreement took shape.`\
 https://www.nytimes.com/2026/05/30/us/politics/trump-irs-lawsuit-deal.html
-
-**After N.J. Governor’s Call for Calm, Protesters Clash With Police at Delaney Hall**\
-`Protesters clashed with the New Jersey State Police and Newark police officers outside the immigration detention center Saturday night.`\
-https://www.nytimes.com/2026/05/30/nyregion/delaney-hall-mikie-sherrill.html
-
-**Edgar Morin, ‘Grandfather’ of French Intellectuals, Dies at 104**\
-`A former member of the Resistance, he went on to a career spanning eras and disciplines. His books and pronouncements carried moral authority.`\
-https://www.nytimes.com/2026/05/30/world/europe/edgar-morin-dead.html
-
-**C.I.A. Officer Arrested With Gold Once Worked With No. 2 Pentagon Official**\
-`David Rush, a longtime C.I.A. officer, appears to have first had contact with Stephen A. Feinberg during President Trump’s first term. Some officials said the two men were not close.`\
-https://www.nytimes.com/2026/05/30/us/politics/cia-gold-bars-stephen-feinberg.html
 
