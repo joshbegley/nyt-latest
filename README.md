@@ -1,3 +1,11 @@
+**Grilled Za’atar Chicken, Lemon Sorbet and More Alfresco Daydreams**\
+`After a long stretch of dining out on the road, I’m fantasizing about enjoying these recipes at home, in the fresh air.`\
+https://www.nytimes.com/2026/05/31/dining/grilled-zaatar-chicken-lemon-sorbet-and-more-alfresco-daydreams.html
+
+**Israel Captures Crusader Castle That Symbolized Its Long Lebanon Occupation**\
+`The seizure of Beaufort in southern Lebanon called up bitter memories in both countries amid a widening Israeli conflict with Hezbollah that seems far from over.`\
+https://www.nytimes.com/2026/05/31/world/middleeast/israel-lebanon-beaufort-iran.html
+
 **Dijon Chicken, Tomatoes and Scallions**\
 `And more recipes to harness a fresh jar of eye-watering-in-a-good-way mustard.`\
 https://www.nytimes.com/2026/05/31/dining/dijon-chicken-tomatoes-and-scallions.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/05/31/nyregion/new-york-harbor-sail-grand-prix.html
 **Where Is Toronto’s Best Party? Try the Basement.**\
 `Millennials who yearn for a bygone era of dancing that feels pure and more organic are bringing back the basement jam, popularized decades ago by Toronto’s Caribbean diaspora.`\
 https://www.nytimes.com/2026/05/31/world/canada/toronto-basement-jams-caribbean-diaspora.html
-
-**Looking Back on a Year as Co-Chief Restaurant Critics**\
-`Tejal Rao and Ligaya Mishan, who were appointed last June, discuss some of their culinary highlights, including barbecue in Texas and Bangladeshi food in New Jersey.`\
-https://www.nytimes.com/2026/05/31/insider/new-york-times-chief-restaurant-critics.html
-
-**5 riesgos de consumir demasiada proteína**\
-`Desde enfermedades cardíacas hasta problemas renales, los expertos explican los riesgos de consumir mucho más proteína de la que el cuerpo necesita.`\
-https://www.nytimes.com/es/2026/05/31/espanol/demasiada-proteina-riesgos-salud.html
 
