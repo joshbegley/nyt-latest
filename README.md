@@ -1,3 +1,11 @@
+**Cory Booker Has ‘Concerns’ About Platner Revelations in Maine Senate Race**\
+`Mr. Booker and other Senate Democrats faced questions Sunday about reports that Mr. Platner’s wife previously told his campaign he had exchanged sexual messages with women outside his marriage.`\
+https://www.nytimes.com/2026/05/31/us/politics/booker-platner-democrats-senate-midterms.html
+
+**Israel Captures Beaufort Castle as It Advances Into Lebanon**\
+`The seizure of Beaufort Castle evoked bitter memories, in both countries, of the deadly fighting there during Israel’s nearly two-decade occupation of southern Lebanon.`\
+https://www.nytimes.com/video/world/middleeast/100000010935630/israel-lebanon-war-beaufort-castle.html
+
 **Release of Tina Peters, Election Denier and Former County Clerk, Divides Colorado City**\
 `The former clerk of Mesa County, Colo., is scheduled to be set free on Monday, after her nine-year prison sentence was commuted by Gov. Jared Polis.`\
 https://www.nytimes.com/2026/05/31/us/tina-peters-release-election-tampering-colorado.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/05/31/world/americas/us-boat-strikes-colombia-ecuad
 **Los libros de no ficción más esperados del verano**\
 `Memorias, historias, crímenes reales, investigaciones y mucho más.`\
 https://www.nytimes.com/es/2026/05/31/espanol/cultura/libros-no-ficcion-verano.html
-
-**Nicolas Cage habla sobre convertirse en un meme**\
-`El icónico actor se convirtió en un meme, en un mito y en alguien extraordinario.`\
-https://www.nytimes.com/es/2026/05/31/espanol/cultura/nicolas-cage-entrevista-spider-noir.html
-
-**Hungría demostró cómo derrotar a un autócrata**\
-`Vencer a Viktor Orbán tras 16 años en el poder parecía una misión imposible; su derrota encierra lecciones claras para Estados Unidos.`\
-https://www.nytimes.com/es/2026/05/31/espanol/opinion/hungria-derrota-viktor-orban.html
 
