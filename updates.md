@@ -1,3 +1,7 @@
+**Scene Stealer**\
+`What happens when a reporter who has interviewed some of the biggest names in Hollywood sits down with the first A.I. actress?`\
+https://www.nytimes.com/2026/05/31/briefing/ai-actress-tilly-norwood.html
+
 **The Museum of Wretched Ideas Has Reopened**\
 `We seem to have forgotten more or less everything.`\
 https://www.nytimes.com/2026/05/31/opinion/communism-fascism-authoritarianism-democracy.html
