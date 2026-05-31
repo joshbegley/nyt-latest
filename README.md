@@ -1,3 +1,7 @@
+**11 Dead as All Bodies Recovered After Washington Chemical Explosion**\
+`The remains of the two workers who were still missing after the blast this week at a Washington State paper mill were recovered on Saturday, officials said.`\
+https://www.nytimes.com/2026/05/30/us/11-dead-longview-washington-chemical-explosion.html
+
 **What Trump Actually Wants From the G.O.P.**\
 `“You can be the kingmaker even when you’re not the king,” argues the Opinion columnist Ezra Klein. The Republican strategist Liam Donovan joins “The Ezra Klein Show” to explain that Trump’s core strategy is ensuring a vulnerable G.O.P. can never abandon him.`\
 https://www.nytimes.com/video/opinion/100000010928424/what-trump-actually-wants-from-the-gop.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/30/crosswords/connections-companion-1085.html
 **NYT Strands Hints for May 31, 2026**\
 `Scroll down for hints and conversation about the puzzle for Sunday, May 31, 2026.`\
 https://www.nytimes.com/2026/05/30/crosswords/strands-sidekick-819.html
-
-**Is a Canadian Car the Answer to Trump’s Tariffs? The Bricklin Shows the Risks.**\
-`A sports car made in New Brunswick and mostly funded by the province lasted only about 18 months.`\
-https://www.nytimes.com/2026/05/30/world/canada/carney-auto-tariffs-bricklin-car.html
 
