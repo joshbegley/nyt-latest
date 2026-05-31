@@ -1,3 +1,7 @@
+**After N.J. Governor’s Call for Calm, Protesters Clash With Police at Delaney Hall**\
+`Protesters and the New Jersey State Police clashed outside the immigration detention center Saturday night, hours after Gov. Mikie Sherrill urged demonstrators to lower the temperature.`\
+https://www.nytimes.com/2026/05/30/nyregion/delaney-hall-mikie-sherrill.html
+
 **11 Dead as All Bodies Recovered After Washington Chemical Explosion**\
 `The remains of the two workers who were still missing after the blast this week at a Washington State paper mill were recovered on Saturday, officials said.`\
 https://www.nytimes.com/2026/05/30/us/11-dead-longview-washington-chemical-explosion.html
