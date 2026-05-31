@@ -1,3 +1,7 @@
+**10-Minute Challenge: ‘The Painted Room’ by Lois Dodd**\
+`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
+https://www.nytimes.com/interactive/2026/05/31/upshot/ten-minute-challenge-dodd.html
+
 **2025 Wildfires Were the Costliest Ever, Researchers Say**\
 `Severe, hard-to-control blazes in densely populated areas like Los Angeles drove the year’s record losses.`\
 https://www.nytimes.com/2026/05/31/climate/2025-wildfire-damage.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/31/business/airbnb-brian-chesky.html
 **Lights, Camera … I Do**\
 `Movie theaters are emerging as an unexpected and inexpensive wedding venue — seating, stage and (some) entertainment included.`\
 https://www.nytimes.com/2026/05/31/style/movie-theater-weddings.html
-
-**Book Review: ‘Rabbit, Fox, Tar,’ by P.C. Verrone**\
-`In “Rabbit, Fox, Tar,” a white neighborhood’s local election is complicated when a mysterious, dark-skinned woman suddenly appears in town.`\
-https://www.nytimes.com/2026/05/31/books/review/rabbit-fox-tar-pc-verrone.html
 
