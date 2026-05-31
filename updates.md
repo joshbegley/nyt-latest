@@ -1,3 +1,7 @@
+**Map: 6.0-Magnitude Earthquake Strikes off the Coast of Chile**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/05/31/world/chile-quake-tracker.html
+
 **Release of Tina Peters, Election Denier and Former County Clerk, Divides Colorado City**\
 `The former clerk of Mesa County is scheduled to be set free on Monday, after her nine-year prison sentence was commuted by Gov. Jared Polis.`\
 https://www.nytimes.com/2026/05/31/us/tina-peters-release-election-tampering-colorado.html
