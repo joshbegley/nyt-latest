@@ -1,3 +1,11 @@
+**How Should You Use A.I. Ethically?**\
+`The response to Pope Leo’s encyclical was intense, which I read as an acute hunger for moral direction. But what direction did people receive?`\
+https://www.nytimes.com/2026/05/31/briefing/pope-leo-encyclical-ai-ethics.html
+
+**The Barriers to Building More Housing**\
+`Readers respond to an editorial about the need for more affordable housing. Also: El Niño and famine; Luke Morrison’s military museum.`\
+https://www.nytimes.com/2026/05/31/opinion/affordable-housing.html
+
 **Scene Stealer**\
 `What happens when a reporter who has interviewed some of the biggest names in Hollywood sits down with the first A.I. actress?`\
 https://www.nytimes.com/2026/05/31/briefing/ai-actress-tilly-norwood.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/05/31/espanol/demasiada-proteina-riesgos-salud.h
 **Men and Women Should Be Optimists About Love, Not Heteropessimists**\
 `“Heteropessimism” is all the rage — but really, there’s never been a better time to be looking for love. Go on, be a hetero-optimist.`\
 https://www.nytimes.com/2026/05/31/opinion/heteropessimism-straight-dating-love.html
-
-**In Taiwan, ‘Mainland Spouses’ From China Become a Focus of Infiltration Fears**\
-`A Chinese-born woman accused of infiltration has set off a debate over how Taiwan defends its democracy without profiling migrants from China.`\
-https://www.nytimes.com/2026/05/31/world/asia/taiwan-china-mainland-spouses-infiltration.html
-
-**11 Dead as All Bodies Recovered After Washington Chemical Explosion**\
-`The remains of the two workers who were still missing after the blast this week at a Washington State paper mill were recovered on Saturday, officials said.`\
-https://www.nytimes.com/2026/05/30/us/11-dead-longview-washington-chemical-explosion.html
 
