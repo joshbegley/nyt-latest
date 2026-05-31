@@ -1,3 +1,11 @@
+**How Should You Use A.I. Ethically?**\
+`The response to Pope Leo’s encyclical was intense, which I read as an acute hunger for moral direction. But what direction did people receive?`\
+https://www.nytimes.com/2026/05/31/briefing/pope-leo-encyclical-ai-ethics.html
+
+**The Barriers to Building More Housing**\
+`Readers respond to an editorial about the need for more affordable housing. Also: El Niño and famine; Luke Morrison’s military museum.`\
+https://www.nytimes.com/2026/05/31/opinion/affordable-housing.html
+
 **After Voting Decision, a Month of Political Earthquakes Across the South**\
 `Republican officials are jubilant, some voters are confused and concerned, and civil rights activists are gearing up for the fight of a generation.`\
 https://www.nytimes.com/2026/05/31/us/voting-rights-act-redistricting-southern-states.html
