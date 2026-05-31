@@ -2,9 +2,9 @@
 `The horror film, which cost $10 million and came from a 20-year-old filmmaker, added to evidence that young people will go to theaters for the right offering.`\
 https://www.nytimes.com/2026/05/31/business/media/young-moviegoers-backrooms-a24-box-office.html
 
-**Trump Is Dominating G.O.P. Primaries. Does That Mean Victory in the Midterms?**\
+**Trump Is Dominating GOP Primary Elections. Does That Mean Victory in the Midterms?**\
 `Come November, the Republican Party will need the support of voters outside of President Trump’s base, many of whom are deeply dissatisfied with the economy and the Iran war.`\
-https://www.nytimes.com/2026/05/31/us/politics/trump-is-dominating-gop-primaries-does-that-mean-victory-in-the-midterms.html
+https://www.nytimes.com/2026/05/31/us/politics/trump-republican-primary-elections-midterms.html
 
 **Timeline: Where and When Trump Has Involved the U.S. Military in International Conflicts**\
 `The United States has been involved in many military operations around the world since President Trump returned to office.`\
