@@ -1,3 +1,7 @@
+**Notre Dame Students Abused by Priest in ‘Weighing Scheme,’ Report Finds**\
+`An investigation commissioned by Notre Dame found that the Catholic university could have done more to respond to allegations of sexual misconduct.`\
+https://www.nytimes.com/2026/05/31/us/notre-dame-students-abused-by-priest-in-weighing-scheme-report-finds.html
+
 **Havoc in Hawaii’s Coffee Fields After an Earthquake Destroyed Water Collection Tanks**\
 `An earthquake destroyed many water catchment systems on Hawaii’s Big Island, capping a spring filled with devastating floods.`\
 https://www.nytimes.com/2026/05/31/us/kona-hawaii-coffee-fields-water.html

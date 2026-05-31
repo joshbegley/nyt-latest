@@ -1,3 +1,7 @@
+**Notre Dame Students Abused by Priest in ‘Weighing Scheme,’ Report Finds**\
+`An investigation commissioned by Notre Dame found that the Catholic university could have done more to respond to allegations of sexual misconduct.`\
+https://www.nytimes.com/2026/05/31/us/notre-dame-students-abused-by-priest-in-weighing-scheme-report-finds.html
+
 **Havoc in Hawaii’s Coffee Fields After an Earthquake Destroyed Water Collection Tanks**\
 `An earthquake destroyed many water catchment systems on Hawaii’s Big Island, capping a spring filled with devastating floods.`\
 https://www.nytimes.com/2026/05/31/us/kona-hawaii-coffee-fields-water.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/31/books/review/new-mystery-books.html
 **India’s Hindu Right Has a New Hero: A 17th-Century Warrior King**\
 `Statues of Shivaji are rising everywhere. The founder of the Maratha empire who fought against the Mughal dynasty is now a symbol for nationalists remaking the country.`\
 https://www.nytimes.com/2026/05/31/world/asia/india-hindu-king-shivaji.html
-
-**The Sculptor Riding India’s Shivaji Craze**\
-`Demand has soared for his figurines and statues of the warrior king. It started with a video he posted online.`\
-https://www.nytimes.com/2026/05/31/world/asia/india-shivaji-statue-sculptor.html
 
