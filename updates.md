@@ -1,3 +1,7 @@
+**‘Othello’ Review: Wendell Pierce Steps Into Iago’s Twisted Web**\
+`This production in the nation’s capital, with an enticingly opaque Iago,  attempts to make Shakespeare’s tragedy relevant to our age of conspiracies.`\
+https://www.nytimes.com/2026/05/31/theater/othello-review-wendell-pierce.html
+
 **Grilled Za’atar Chicken, Lemon Sorbet and More Alfresco Daydreams**\
 `After a long stretch of dining out on the road, I’m fantasizing about enjoying these recipes at home, in the fresh air.`\
 https://www.nytimes.com/2026/05/31/dining/grilled-zaatar-chicken-lemon-sorbet-and-more-alfresco-daydreams.html
