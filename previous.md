@@ -79,7 +79,7 @@ https://www.nytimes.com/2026/05/31/business/world-cup-beer.html
 https://www.nytimes.com/2026/05/31/us/steve-hilton-california-governor.html
 
 **After Voting Decision, a Month of Political Earthquakes Across the South**\
-`Republican officials are jubilant, some voters are confused and concerned, and civil rights activists are gearing up for the fight of a generation.`\
+`As Republicans rush to redraw the region’s congressional maps, some voters are confused and concerned, and civil rights activists are gearing up for the fight of a generation.`\
 https://www.nytimes.com/2026/05/31/us/voting-rights-act-redistricting-southern-states.html
 
 **Tilly Norwood, A.I. Actress, Wants to Know Why Everyone’s Mad at Her**\

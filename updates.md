@@ -1,3 +1,7 @@
+**After Voting Decision, a Month of Political Earthquakes Across the South**\
+`As Republicans rush to redraw the region’s congressional maps, some voters are confused and concerned, and civil rights activists are gearing up for the fight of a generation.`\
+https://www.nytimes.com/2026/05/31/us/voting-rights-act-redistricting-southern-states.html
+
 **How Should You Use A.I. Ethically?**\
 `The response to Pope Leo’s encyclical was intense, which I read as an acute hunger for moral direction. But what direction did people receive?`\
 https://www.nytimes.com/2026/05/31/briefing/pope-leo-encyclical-ai-ethics.html
