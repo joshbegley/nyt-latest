@@ -1,3 +1,27 @@
+**Israel Day Parade to Return to New York Against a Changed Backdrop**\
+`Mayor Zohran Mamdani does not plan to attend the annual Israel Day Parade, which is taking place amid a deterioration of public support for the country and rising antisemitism across the United States.`\
+https://www.nytimes.com/2026/05/31/nyregion/israel-day-parade-nyc.html
+
+**‘The Ingredients Looked Good, So I Told Him He Should Go for It’**\
+`Help with a hamburger, getting a look under a stranger’s hood and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://www.nytimes.com/2026/05/31/nyregion/metropolitan-diary.html
+
+**NYT Spelling Bee Answers for May 31, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/31/crosswords/spelling-bee-forum.html
+
+**High-Speed Sailboats Race Past the New York Skyline**\
+`SailGP, a two-day competition some say is like Formula 1 on the water, has replaced part of the normal traffic in New York Harbor with high-tech catamarans.`\
+https://www.nytimes.com/2026/05/31/nyregion/new-york-harbor-sail-grand-prix.html
+
+**Where Is Toronto’s Best Party? Try the Basement.**\
+`Millennials who yearn for a bygone era of dancing that feels pure and more organic are bringing back the basement jam, popularized decades ago by Toronto’s Caribbean diaspora.`\
+https://www.nytimes.com/2026/05/31/world/canada/toronto-basement-jams-caribbean-diaspora.html
+
+**Looking Back on a Year as Co-Chief Restaurant Critics**\
+`Tejal Rao and Ligaya Mishan, who were appointed last June, discuss some of their culinary highlights, including barbecue in Texas and Bangladeshi food in New Jersey.`\
+https://www.nytimes.com/2026/05/31/insider/new-york-times-chief-restaurant-critics.html
+
 **After N.J. Governor’s Call for Calm, Protesters Clash With Police at Delaney Hall**\
 `Protesters clashed with the New Jersey State Police and Newark police officers outside the immigration detention center Saturday night.`\
 https://www.nytimes.com/2026/05/30/nyregion/delaney-hall-mikie-sherrill.html
