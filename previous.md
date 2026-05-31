@@ -83,7 +83,7 @@ https://www.nytimes.com/2026/05/31/world/middleeast/israel-lebanon-beaufort-iran
 https://www.nytimes.com/2026/05/31/dining/dijon-chicken-tomatoes-and-scallions.html
 
 **How Should You Use A.I. Ethically?**\
-`The response to Pope Leo’s encyclical was intense, which I read as an acute hunger for moral direction. But what direction did people receive?`\
+`The response to Pope Leo’s encyclical on A.I. was intense, a sign of an acute hunger for moral direction.`\
 https://www.nytimes.com/2026/05/31/briefing/pope-leo-encyclical-ai-ethics.html
 
 **The Barriers to Building More Housing**\

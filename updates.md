@@ -1,3 +1,7 @@
+**How Should You Use A.I. Ethically?**\
+`The response to Pope Leo’s encyclical on A.I. was intense, a sign of an acute hunger for moral direction.`\
+https://www.nytimes.com/2026/05/31/briefing/pope-leo-encyclical-ai-ethics.html
+
 **Brote de ébola: así es el epicentro en República Democrática del Congo**\
 `A remote gold mining town is under siege, as medical workers struggle to beat back a surge of deaths and infections.`\
 https://www.nytimes.com/es/2026/05/31/espanol/mundo/ebola-epicentro-mongbwalu-congo.html
