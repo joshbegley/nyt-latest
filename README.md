@@ -1,3 +1,7 @@
+**Elecciones presidenciales en Colombia: ¿quiénes son los candidatos?**\
+`La elección pone a prueba el legado del primer presidente de izquierda del país frente a un candidato independiente de extrema derecha en ascenso y una conservadora tradicional.`\
+https://www.nytimes.com/es/2026/05/31/espanol/america-latina/elecciones-presidenciales-colombia-candidatos.html
+
 **Pulling Customs From ‘Sanctuary’ City Airports Would Cause Chaos, Business Groups Say**\
 `Homeland Security Secretary Markwayne Mullin’s proposal could block hubs like Boston, New York and Los Angeles from accepting international flights.`\
 https://www.nytimes.com/2026/05/31/us/customs-airports-markwayne-mullin.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/30/world/europe/edgar-morin-dead.html
 **C.I.A. Officer Arrested With Gold Once Worked With No. 2 Pentagon Official**\
 `David Rush, a longtime C.I.A. officer, appears to have first had contact with Stephen A. Feinberg during President Trump’s first term. Some officials said the two men were not close.`\
 https://www.nytimes.com/2026/05/30/us/politics/cia-gold-bars-stephen-feinberg.html
-
-**W.H.O. Chief Visits Ebola-Struck Region: ‘It’s Time to Move Fast’**\
-`Dr. Tedros Adhanom Ghebreyesus, the director general of the World Health Organization, told The New York Times on a flight to the Democratic Republic of Congo that swift international support was necessary to contain the Ebola virus, which is spreading rapidly there.`\
-https://www.nytimes.com/video/world/africa/100000010934879/who-chief-visits-ebola-struck-region-its-time-to-move-fast.html
 
