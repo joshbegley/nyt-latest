@@ -1,3 +1,11 @@
+**Cory Booker Has ‘Concerns’ About Platner Revelations in Maine Senate Race**\
+`Mr. Booker and other Senate Democrats faced questions Sunday about reports that Mr. Platner’s wife previously told his campaign he had exchanged sexual messages with women outside his marriage.`\
+https://www.nytimes.com/2026/05/31/us/politics/booker-platner-democrats-senate-midterms.html
+
+**Israel Captures Beaufort Castle as It Advances Into Lebanon**\
+`The seizure of Beaufort Castle evoked bitter memories, in both countries, of the deadly fighting there during Israel’s nearly two-decade occupation of southern Lebanon.`\
+https://www.nytimes.com/video/world/middleeast/100000010935630/israel-lebanon-war-beaufort-castle.html
+
 **Release of Tina Peters, Election Denier and Former County Clerk, Divides Colorado City**\
 `The former clerk of Mesa County, Colo., is scheduled to be set free on Monday, after her nine-year prison sentence was commuted by Gov. Jared Polis.`\
 https://www.nytimes.com/2026/05/31/us/tina-peters-release-election-tampering-colorado.html
