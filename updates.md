@@ -1,3 +1,7 @@
+**Havoc in Hawaii’s Coffee Fields After an Earthquake Destroyed Water Collection Tanks**\
+`An earthquake destroyed many water catchment systems on Hawaii’s Big Island, capping a spring filled with devastating floods.`\
+https://www.nytimes.com/2026/05/31/us/kona-hawaii-coffee-fields-water.html
+
 **China Exports Surveillance**\
 `The country has spent decades perfecting a surveillance state at home. Now it’s promoting its ideology of state control, and the technology to enforce it, abroad.`\
 https://www.nytimes.com/2026/05/31/world/china-surveillance-solomon-islands-trump-nepal.html

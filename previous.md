@@ -1,3 +1,7 @@
+**Havoc in Hawaii’s Coffee Fields After an Earthquake Destroyed Water Collection Tanks**\
+`An earthquake destroyed many water catchment systems on Hawaii’s Big Island, capping a spring filled with devastating floods.`\
+https://www.nytimes.com/2026/05/31/us/kona-hawaii-coffee-fields-water.html
+
 **China Exports Surveillance**\
 `The country has spent decades perfecting a surveillance state at home. Now it’s promoting its ideology of state control, and the technology to enforce it, abroad.`\
 https://www.nytimes.com/2026/05/31/world/china-surveillance-solomon-islands-trump-nepal.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/31/world/asia/india-hindu-king-shivaji.html
 **The Sculptor Riding India’s Shivaji Craze**\
 `Demand has soared for his figurines and statues of the warrior king. It started with a video he posted online.`\
 https://www.nytimes.com/2026/05/31/world/asia/india-shivaji-statue-sculptor.html
-
-****\
-`Finished statues waiting for buyers in Mr. Chougule’s studio.`\
-https://www.nytimes.com/video/embedded/world/asia/100000010678372/10INDIA-WARRIOR-SCULPTOR-27550.html
 
