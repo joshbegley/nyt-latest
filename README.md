@@ -1,3 +1,11 @@
+**China Exports Surveillance**\
+`The country has spent decades perfecting a surveillance state at home. Now it’s promoting its ideology of state control, and the technology to enforce it, abroad.`\
+https://www.nytimes.com/2026/05/31/world/china-surveillance-solomon-islands-trump-nepal.html
+
+**U.S. Military Is Quietly Guiding Ships Through the Strait of Hormuz**\
+`U.S. Central Command has helped around 70 commercial ships pass through the strait in the last three weeks, an official said.`\
+https://www.nytimes.com/2026/05/31/business/us-military-guides-strait-of-hormuz.html
+
 **Another Night of Violent Protests Outside a Newark ICE Detention Center**\
 `Protesters and the police clashed again outside of an ICE detention center in New Jersey on Saturday night.`\
 https://www.nytimes.com/video/us/100000010935695/another-night-of-violent-protests-outside-a-newark-ice-detention-center.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/05/31/world/asia/india-shivaji-statue-sculptor.html
 ****\
 `Finished statues waiting for buyers in Mr. Chougule’s studio.`\
 https://www.nytimes.com/video/embedded/world/asia/100000010678372/10INDIA-WARRIOR-SCULPTOR-27550.html
-
-****\
-`Mr. Chavan cleaning one of the Shivaji statues from his collection.`\
-https://www.nytimes.com/video/embedded/world/asia/100000010675488/00INT-INDIA-WARRIOR-78451.html
-
-****\
-`The statue of Shivaji in Ladakh, sword out, ready to attack, is facing the Chinese border with Pangong Tso lake in the background.`\
-https://www.nytimes.com/video/embedded/world/asia/100000010675486/00INT-INDIA-WARRIOR-90516.html
 
