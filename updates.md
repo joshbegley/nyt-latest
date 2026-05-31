@@ -1,3 +1,7 @@
+**Brote de ébola: así es el epicentro en República Democrática del Congo**\
+`A remote gold mining town is under siege, as medical workers struggle to beat back a surge of deaths and infections.`\
+https://www.nytimes.com/es/2026/05/31/espanol/mundo/ebola-epicentro-mongbwalu-congo.html
+
 **Map: 6.0-Magnitude Earthquake Strikes off the Coast of Chile**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/05/31/world/chile-quake-tracker.html
