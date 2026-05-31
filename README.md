@@ -1,3 +1,7 @@
+**As Deaths From U.S. Boat Strikes Pass 200, Locals Tally an Even Greater Cost**\
+`Residents of coastal communities in Colombia and Ecuador said the airstrike campaign was making many reconsider anything involving the ocean as a livelihood.`\
+https://www.nytimes.com/2026/05/31/world/americas/us-boat-strikes-colombia-ecuador.html
+
 **Los libros de no ficción más esperados del verano**\
 `Memorias, historias, crímenes reales, investigaciones y mucho más.`\
 https://www.nytimes.com/es/2026/05/31/espanol/cultura/libros-no-ficcion-verano.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/30/world/middleeast/trump-deal-middle-east-iran.
 **Ye and Travis Scott Concerts Canceled in Italy Over Security Fears**\
 `The events were canceled “to ensure public order and safety,” the authorities said. Jewish leaders had objected to the concert by Ye, formerly known as Kanye West, who has a history of antisemitic remarks.`\
 https://www.nytimes.com/2026/05/30/world/europe/ye-travis-scott-italy-concerts.html
-
-**When War Breaks Out Over the Family Business, They Get the Call**\
-`As baby boomers begin passing down trillions in assets, advisers who specialize in navigating the process — and the emotions around it — have never been busier.`\
-https://www.nytimes.com/2026/05/30/business/dealbook/family-business-counselors.html
 
