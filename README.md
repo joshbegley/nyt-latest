@@ -1,3 +1,55 @@
+**Pulling Customs From ‘Sanctuary’ City Airports Would Cause Chaos, Business Groups Say**\
+`Homeland Security Secretary Markwayne Mullin’s proposal could block hubs like Boston, New York and Los Angeles from accepting international flights.`\
+https://www.nytimes.com/2026/05/31/us/customs-airports-markwayne-mullin.html
+
+**A Festival of Black Culture With a ’90s Vibe**\
+`The brothers behind the London party organizers Recess decamped to a seaside amusement park for a two-day event channeling an earlier era of Black British nightlife.`\
+https://www.nytimes.com/2026/05/31/arts/music/recess-festival-margate-london.html
+
+**Colombia Presidential Election: What to Know About the Candidates and Main Issues**\
+`The election tests the legacy of the country’s first leftist leader against a rising far-right outsider and a traditional conservative.`\
+https://www.nytimes.com/2026/05/31/world/americas/colombia-election-president-candidates.html
+
+**See the Reflecting Pool's Problems That Trump's Renovations May Not Fix**\
+`See the problems that have plagued the Lincoln Memorial pool for decades and why President Trump’s repairs might not fix them.`\
+https://www.nytimes.com/interactive/2026/05/31/us/trump-reflecting-pool-problems.html
+
+**The Growing Movement for Shelters to Make Room for Pets**\
+`Shelters recognize that many would rather sleep on the street than leave their animals behind.`\
+https://www.nytimes.com/2026/05/31/realestate/homeless-shelter-pets.html
+
+**Even Havana’s Street Sweepers Can’t Escape the Impact of the Fuel Blockade**\
+`A fuel blockade on Cuba has aggravated a lack of consistent garbage pickup and produced enormous trash piles.`\
+https://www.nytimes.com/2026/05/31/world/americas/cuba-trash-fuel-blockade.html
+
+**Trump Administration Sees Striking Exodus of Legal Talent**\
+`The departure of more than 10,000 federal lawyers has left some agencies without sufficient staff and has boosted the ranks of state attorneys general offices and advocacy groups.`\
+https://www.nytimes.com/2026/05/31/us/politics/trump-administration-exodus-of-lawyers.html
+
+**Can the World Cup Help the U.S. Beer Industry Kick Its Slump?**\
+`Bars and stores are uncertain if the soccer tournament will boost beer sales. Still, the maker of Budweiser and Michelob Ultra is going all in.`\
+https://www.nytimes.com/2026/05/31/business/world-cup-beer.html
+
+**He Was Satirized on British TV. Now He’s Trump’s Pick to Lead California.**\
+`Steve Hilton grabbed headlines when he worked in conservative politics in Britain. His American political renaissance in the California governor’s race has bemused former British colleagues and rivals.`\
+https://www.nytimes.com/2026/05/31/us/steve-hilton-california-governor.html
+
+**District Lines Are Shifting Fast in the South. Voters Are Rattled.**\
+`Republican officials are jubilant, some voters are confused and concerned, and civil rights activists are gearing up for the fight of a generation.`\
+https://www.nytimes.com/2026/05/31/us/voting-rights-act-redistricting-southern-states.html
+
+**Tilly Norwood, A.I. Actress, Wants to Know Why Everyone’s Mad at Her**\
+`The A.I. actress on her craft, the future of film and how she definitely does not intend to murder us.`\
+https://www.nytimes.com/2026/05/31/magazine/ai-actress-tilly-norwood.html
+
+**In U.F.O. Files, Some Christians See Vexing Questions — and Demons**\
+`The prospect of intelligent life elsewhere in the universe raises unsettling theological implications.`\
+https://www.nytimes.com/2026/05/31/us/ufo-files-pentagon.html
+
+**The Woman Who Beat Zero Bond**\
+`When a buyer sought to convert the historic Hedges Inn in East Hampton into a sceney private club, Sarah Wetenhall had a different idea.`\
+https://www.nytimes.com/2026/05/31/style/the-woman-who-beat-zero-bond.html
+
 **What Is Airbnb For, Exactly?**\
 `The home-sharing app recently added car rentals, groceries and — perhaps most surprisingly — hotels. Brian Chesky, the co-founder and chief executive, is always thinking about how to redesign it.`\
 https://www.nytimes.com/2026/05/31/business/airbnb-brian-chesky.html
@@ -145,56 +197,4 @@ https://www.nytimes.com/2026/05/30/us/politics/cia-gold-bars-stephen-feinberg.ht
 **W.H.O. Chief Visits Ebola-Struck Region: ‘It’s Time to Move Fast’**\
 `Dr. Tedros Adhanom Ghebreyesus, the director general of the World Health Organization, told The New York Times on a flight to the Democratic Republic of Congo that swift international support was necessary to contain the Ebola virus, which is spreading rapidly there.`\
 https://www.nytimes.com/video/world/africa/100000010934879/who-chief-visits-ebola-struck-region-its-time-to-move-fast.html
-
-**Senator Dan Sullivan Has a New Challenger in Alaska: Dan Sullivan**\
-`Two candidates with the same name will be on the ballot seeking the same seat in the state’s primary. “It’s going to be confusing,” one Republican said.`\
-https://www.nytimes.com/2026/05/30/us/politics/dan-sullivan-election-senate-alaska.html
-
-**Loud Booms Heard Along the East Coast This Week**\
-`Loud booms were heard in the Boston area on Saturday and in South Carolina on Thursday. NASA said the noise in Boston was caused by a fireball piercing the air; the cause of the South Carolina boom is still unknown.`\
-https://www.nytimes.com/video/us/100000010935131/loud-booms-boston-south-carolina.html
-
-**Target Practice**\
-`Jeffrey Martinovic and Evan Park hit the bull’s-eye with their Sunday puzzle collaboration.`\
-https://www.nytimes.com/2026/05/30/crosswords/daily-puzzle-2026-05-31.html
-
-**Meteor Over Boston Area Causes Loud Boom That Puzzled Residents**\
-`A fireball reached 75,000 miles per hour before breaking up miles above New England, NASA said, causing a boom that alarmed residents. The incident followed a similar event in South Carolina.`\
-https://www.nytimes.com/2026/05/30/us/boston-area-boom.html
-
-**Trump Urges Canceling Freedom 250 Concerts After Artists Drop Out**\
-`The president had earlier said on social media that he should take the place of “these highly paid, Third Rate ‘Artists,’” saying he gets “larger audiences than Elvis.”`\
-https://www.nytimes.com/2026/05/30/arts/music/trump-freedom-250-concert-cancellations.html
-
-**What to Know About the ICE Agent Arrested in Texas for a Shooting in Minnesota**\
-`The agent was charged in Minnesota with assault and filing a false police report in the shooting of an immigrant from Venezuela.`\
-https://www.nytimes.com/2026/05/30/us/ice-agent-arrested-texas-minnesota-shooting.html
-
-**Una jueza reabre la demanda de Trump al IRS y cuestiona su fondo ‘antinstrumentalización’**\
-`La orden fue un golpe tanto para el presidente Trump, quien había desestimado voluntariamente la demanda la semana pasada, como para el Departamento de Justicia, que utilizó la demanda para establecer un fondo que podría estar destinado a los aliados de Trump.`\
-https://www.nytimes.com/es/2026/05/30/espanol/estados-unidos/demanda-trump-irs.html
-
-**Storm Blasts New England With Cold and Wind**\
-`Residents ready for summer lamented the unusual late May weather as tens of thousands of customers lost power in multiple states, including Connecticut and Massachusetts.`\
-https://www.nytimes.com/2026/05/30/weather/new-england-cold-weather-storm-power-outages.html
-
-**Dang Van Phuoc Dies at 90; Intrepid Photojournalist in Vietnam War**\
-`A photographer for The Associated Press, he spent a decade on the front lines of combat in his native Vietnam and lost his right eye in a grenade explosion.`\
-https://www.nytimes.com/2026/05/30/business/media/dang-van-phuoc-dead.html
-
-**Platner’s Wife Flagged His Sexual Texts With Other Women as Maine Senate Race Began**\
-`The wife of Graham Platner, the Democratic candidate in Maine, told the campaign he had sent sexual messages to other women.`\
-https://www.nytimes.com/2026/05/30/us/politics/graham-platner-maine-senate-texts.html
-
-**Four More Miners Rescued From Flooded Cave in Laos**\
-`Four more miners were rescued from a flooded cave in Laos on Saturday after being trapped for more than a week. Five miners in total have been rescued, and crews are still searching for two more.`\
-https://www.nytimes.com/video/world/asia/100000010934880/laos-cave-rescue-four.html
-
-**Who Is Ahead in Washington's 5th Congressional District?**\
-`Track the latest polls in Washington's 5th Congressional District.`\
-https://www.nytimes.com/interactive/polls/washington-us-house-5-polls-2026.html
-
-**U.S. Military Kills 3 on Boat Suspected of Drug Trafficking**\
-`Around 200 people have now been killed in the attacks since last year, in an operation critics say has failed to slow the smuggling of cocaine.`\
-https://www.nytimes.com/2026/05/30/us/politics/military-boat-strike.html
 

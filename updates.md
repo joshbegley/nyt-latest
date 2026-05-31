@@ -1,3 +1,55 @@
+**What Is Airbnb For, Exactly?**\
+`The home-sharing app recently added car rentals, groceries and — perhaps most surprisingly — hotels. Brian Chesky, the co-founder and chief executive, is always thinking about how to redesign it.`\
+https://www.nytimes.com/2026/05/31/business/airbnb-brian-chesky.html
+
+**Lights, Camera … I Do**\
+`Movie theaters are emerging as an unexpected and inexpensive wedding venue — seating, stage and (some) entertainment included.`\
+https://www.nytimes.com/2026/05/31/style/movie-theater-weddings.html
+
+**Book Review: ‘Rabbit, Fox, Tar,’ by P.C. Verrone**\
+`In “Rabbit, Fox, Tar,” a white neighborhood’s local election is complicated when a mysterious, dark-skinned woman suddenly appears in town.`\
+https://www.nytimes.com/2026/05/31/books/review/rabbit-fox-tar-pc-verrone.html
+
+**Ukraine’s Military Doesn’t Always Welcome Criticism. But That’s Her Job.**\
+`Olha Reshetylova has been tasked by the government with overseeing soldiers’ rights. Some commanders resent her, but she says her work makes the armed forces stronger.`\
+https://www.nytimes.com/2026/05/31/world/europe/ukraine-military-soldiers-ombudsman.html
+
+**Is This the Future of Air Travel?**\
+`A new all-electric aircraft made a test flight in New York City. Our transportation reporter Niraj Chokshi describes what to know.`\
+https://www.nytimes.com/video/business/100000010859133/is-this-the-future-of-air-travel.html
+
+**A Long History of Handwritten Police Logs Comes to an End**\
+`Command logs date back as far as the 1860s, bearing witness to everything from the Civil War draft riots to the Sept. 11 terror attacks. The Police Department will soon replace the analog system with a digital one.`\
+https://www.nytimes.com/2026/05/31/nyregion/nypd-log-books.html
+
+**The Month’s Best New Mystery Novels**\
+`Our critic on four terrific new mysteries.`\
+https://www.nytimes.com/2026/05/31/books/review/new-mystery-books.html
+
+**India’s Hindu Right Has a New Hero: A 17th-Century Warrior King**\
+`Statues of Shivaji are rising everywhere. The founder of the Maratha empire who fought against the Mughal dynasty is now a symbol for nationalists remaking the country.`\
+https://www.nytimes.com/2026/05/31/world/asia/india-hindu-king-shivaji.html
+
+**The Sculptor Riding India’s Shivaji Craze**\
+`Demand has soared for his figurines and statues of the warrior king. It started with a video he posted online.`\
+https://www.nytimes.com/2026/05/31/world/asia/india-shivaji-statue-sculptor.html
+
+****\
+`Finished statues waiting for buyers in Mr. Chougule’s studio.`\
+https://www.nytimes.com/video/embedded/world/asia/100000010678372/10INDIA-WARRIOR-SCULPTOR-27550.html
+
+****\
+`Mr. Chavan cleaning one of the Shivaji statues from his collection.`\
+https://www.nytimes.com/video/embedded/world/asia/100000010675488/00INT-INDIA-WARRIOR-78451.html
+
+****\
+`The statue of Shivaji in Ladakh, sword out, ready to attack, is facing the Chinese border with Pangong Tso lake in the background.`\
+https://www.nytimes.com/video/embedded/world/asia/100000010675486/00INT-INDIA-WARRIOR-90516.html
+
+**Joby Demonstrated its Air Taxi in Manhattan, but You Can’t Fly in It Yet**\
+`Aviation start-ups and the Trump administration want to replace helicopters with electric aircraft, but the new vehicles still have to pass arduous tests before the public can use them.`\
+https://www.nytimes.com/2026/05/31/business/air-taxis-joby-helicopters.html
+
 **As Deaths From U.S. Boat Strikes Pass 200, Locals Tally an Even Greater Cost**\
 `Residents of coastal communities in Colombia and Ecuador said the airstrike campaign was making many reconsider anything involving the ocean as a livelihood.`\
 https://www.nytimes.com/2026/05/31/world/americas/us-boat-strikes-colombia-ecuador.html
