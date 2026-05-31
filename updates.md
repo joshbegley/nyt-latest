@@ -1,3 +1,11 @@
+**China Exports Surveillance**\
+`The country has spent decades perfecting a surveillance state at home. Now it’s promoting its ideology of state control, and the technology to enforce it, abroad.`\
+https://www.nytimes.com/2026/05/31/world/china-surveillance-solomon-islands-trump-nepal.html
+
+**U.S. Military Is Quietly Guiding Ships Through the Strait of Hormuz**\
+`U.S. Central Command has helped around 70 commercial ships pass through the strait in the last three weeks, an official said.`\
+https://www.nytimes.com/2026/05/31/business/us-military-guides-strait-of-hormuz.html
+
 **Trump Hits the Stalemate Phase of His Interventions in Gaza, Ukraine and Now Iran**\
 `In Ukraine, Gaza and now Iran, President Trump’s early declarations of easy wins have given way to harsh reality.`\
 https://www.nytimes.com/2026/05/31/us/politics/trump-iran-stalemate-ukraine-gaza.html
