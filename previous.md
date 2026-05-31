@@ -1,3 +1,7 @@
+**Dijon Chicken, Tomatoes and Scallions**\
+`And more recipes to harness a fresh jar of eye-watering-in-a-good-way mustard.`\
+https://www.nytimes.com/2026/05/31/dining/dijon-chicken-tomatoes-and-scallions.html
+
 **How Should You Use A.I. Ethically?**\
 `The response to Pope Leo’s encyclical was intense, which I read as an acute hunger for moral direction. But what direction did people receive?`\
 https://www.nytimes.com/2026/05/31/briefing/pope-leo-encyclical-ai-ethics.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/31/insider/new-york-times-chief-restaurant-criti
 **5 riesgos de consumir demasiada proteína**\
 `Desde enfermedades cardíacas hasta problemas renales, los expertos explican los riesgos de consumir mucho más proteína de la que el cuerpo necesita.`\
 https://www.nytimes.com/es/2026/05/31/espanol/demasiada-proteina-riesgos-salud.html
-
-**Men and Women Should Be Optimists About Love, Not Heteropessimists**\
-`“Heteropessimism” is all the rage — but really, there’s never been a better time to be looking for love. Go on, be a hetero-optimist.`\
-https://www.nytimes.com/2026/05/31/opinion/heteropessimism-straight-dating-love.html
 

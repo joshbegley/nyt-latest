@@ -1,3 +1,7 @@
+**Dijon Chicken, Tomatoes and Scallions**\
+`And more recipes to harness a fresh jar of eye-watering-in-a-good-way mustard.`\
+https://www.nytimes.com/2026/05/31/dining/dijon-chicken-tomatoes-and-scallions.html
+
 **After Voting Decision, a Month of Political Earthquakes Across the South**\
 `As Republicans rush to redraw the region’s congressional maps, some voters are confused and concerned, and civil rights activists are gearing up for the fight of a generation.`\
 https://www.nytimes.com/2026/05/31/us/voting-rights-act-redistricting-southern-states.html
