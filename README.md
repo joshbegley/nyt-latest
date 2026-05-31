@@ -110,7 +110,7 @@ https://www.nytimes.com/2026/05/31/style/movie-theater-weddings.html
 `In “Rabbit, Fox, Tar,” a white neighborhood’s local election is complicated when a mysterious, dark-skinned woman suddenly appears in town.`\
 https://www.nytimes.com/2026/05/31/books/review/rabbit-fox-tar-pc-verrone.html
 
-**Ukraine’s Military Doesn’t Always Welcome Criticism. But That’s Her Job.**\
+**To Improve Ukraine’s Military, She Calls Out the Ugly Parts**\
 `Olha Reshetylova has been tasked by the government with overseeing soldiers’ rights. Some commanders resent her, but she says her work makes the armed forces stronger.`\
 https://www.nytimes.com/2026/05/31/world/europe/ukraine-military-soldiers-ombudsman.html
 
