@@ -1,3 +1,23 @@
+**N.Y.C. Children May Get Up to $3,000 From City for College Accounts**\
+`The city’s current savings plan starts with $100. A City Council proposal would make the initial contributions among the highest anywhere.`\
+https://www.nytimes.com/2026/06/01/nyregion/nyc-college-savings-account-children.html
+
+**NYT Spelling Bee Answers for June 1, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/01/crosswords/spelling-bee-forum.html
+
+**World Cup 2026 Schedule: Where to Watch in the U.S., Canada and Mexico**\
+`The biggest party on earth is about to kick off. Here’s how to enjoy every thrilling minute.`\
+https://www.nytimes.com/interactive/2026/06/01/travel/world-cup-2026-city-guide.html
+
+**What to Watch For in the NY Primary: Key Races and Why They Matter**\
+`Congressional primaries in Manhattan, Brooklyn and beyond could test the strength of Mayor Zohran Mamdani’s socialist movement and reverberate across the country.`\
+https://www.nytimes.com/2026/06/01/nyregion/new-york-primary-midterm-elections.html
+
+**The Congressional Primary Tearing the Mamdani Coalition in Two**\
+`The Democratic battle over a House seat in New York City has reignited old tensions over gentrification, identity and who gets to define the left.`\
+https://www.nytimes.com/2026/06/01/nyregion/nyc-primary-antonio-reynoso-claire-valdez-mamdani.html
+
 **U.S. Says It Hit More Military Targets in Southern Iran**\
 `The U.S. military said it carried out ‘self-defense strikes’ over the weekend. Iran’s military said it had targeted a military base in retaliation for an American strike.`\
 https://www.nytimes.com/2026/06/01/world/middleeast/us-strikes-iran-goruk-qeshm.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/05/31/briefing/pope-leo-encyclical-ai-ethics.html
 **The Barriers to Building More Housing**\
 `Readers respond to an editorial about the need for more affordable housing. Also: El Niño and famine; Luke Morrison’s military museum.`\
 https://www.nytimes.com/2026/05/31/opinion/affordable-housing.html
-
-**Scene Stealer**\
-`What happens when a reporter who has interviewed some of the biggest names in Hollywood sits down with the first A.I. actress?`\
-https://www.nytimes.com/2026/05/31/briefing/ai-actress-tilly-norwood.html
-
-**The Museum of Wretched Ideas Has Reopened**\
-`We seem to have forgotten more or less everything.`\
-https://www.nytimes.com/2026/05/31/opinion/communism-fascism-authoritarianism-democracy.html
-
-**We Have to Take the Future of A.I. Into Our Own Hands**\
-`We’ve heard a lot about what it can do for businesses, and for individuals, but what about society?`\
-https://www.nytimes.com/2026/05/31/opinion/artificial-intelligence-public-good.html
-
-**How to Make Americans Read Again**\
-`The reading crisis is real, but the solution does not require new inventions.`\
-https://www.nytimes.com/2026/05/31/opinion/books-reading-crisis-libraries.html
-
-**The Problem With Martin Luther King Jr.’s Origin Story**\
-`A civil-rights leader’s friendship with a white boy sits at the heart of his account of how he encountered racism.`\
-https://www.nytimes.com/2026/05/31/opinion/mlk-racism-origin-myth.html
 
