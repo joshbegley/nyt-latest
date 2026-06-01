@@ -1,3 +1,11 @@
+**Tribeca Festival: Andre Holland’s Ability to Connect to Audiences Is on Display**\
+`The actor’s ability to connect to roles is on display in two films, “The Revisionist” and “They Fight,” premiering at this year’s Tribeca Festival.`\
+https://www.nytimes.com/2026/06/01/movies/andre-holland-tribeca-festival.html
+
+**At Tribeca, a New Look at an ’80s Thriller About New York’s Gay Underground**\
+`The troubled legacy of “Cruising” is the subject of “Mineshaft: The Cruising Murders,” a documentary premiering at the Tribeca Festival.`\
+https://www.nytimes.com/2026/06/01/movies/cruising-gay-tribeca-documentary.html
+
 **Judge Rejects Defense Request to Close Hearings in Charlie Kirk Murder Case**\
 `A Utah judge, Tony Graf, ruled against the defense’s effort to bar the public from a preliminary hearing but did restrict access to some evidence`\
 https://www.nytimes.com/2026/06/01/us/tyler-robinson-charlie-kirk-hearings-media-access.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/01/opinion/botched-execution-tony-carruthers.htm
 **Book Review: ‘The Man Who Read Everything: The Literary Letters of Harold Bloom’**\
 `A collection of Harold Bloom’s letters details the working life of one of America’s most influential intellects.`\
 https://www.nytimes.com/2026/06/01/books/review/harold-bloom-man-who-read-everything.html
-
-**How California’s New Congressional Map Is Reshaping Tuesday’s Primaries**\
-`The state now has just four congressional districts considered safe for Republicans, and four seen as competitive. The rest of its 52 members of Congress are all but certain to be Democrats.`\
-https://www.nytimes.com/2026/06/01/us/politics/california-redistricting-maps.html
-
-**Mark and Joaquin Consuelos, Father and Son, Make Broadway Debuts Together**\
-`This spring the talk-show host and his youngest child made simultaneous debuts, three weeks and eight blocks apart.`\
-https://www.nytimes.com/2026/06/01/theater/joaquin-mark-consuelos-broadway-salesman-fallen-angels.html
 
