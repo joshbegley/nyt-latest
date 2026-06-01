@@ -1,3 +1,7 @@
+**Iran War Live Updates: U.S. and Iran Exchange New Attacks**\
+`U.S. Central Command said it attacked military targets in southern Iran over the weekend. Kuwait, which hosts U.S. military bases, accused Iran of attacking it.`\
+https://www.nytimes.com/live/2026/06/01/world/iran-war-us-trump-israel-lebanon
+
 **Starmer Braces for Release of More Files About Mandelson and Epstein**\
 `A second batch of documents about the former U.S. ambassador Peter Mandelson, who was fired over his links to Jeffrey Epstein, could create more problems for Prime Minister Keir Starmer.`\
 https://www.nytimes.com/2026/06/01/world/europe/mandelson-files-epstein-starmer-uk.html
