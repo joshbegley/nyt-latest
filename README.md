@@ -1,3 +1,11 @@
+**Crested Ibises Get the Royal Treatment in Japan as They Fly Again**\
+`Once widespread in Japan, the colorful birds went from being fairly commonplace in the country to being on the verge of extinction.`\
+https://www.nytimes.com/2026/06/01/world/asia/japan-crested-ibis.html
+
+**California Prepares for Governor Primary Race**\
+`On Tuesday, Californians will head to the polls to vote in the state’s primary election for governor and other offices. There are dozens of candidates for governor, but one Republican and a couple of Democrats have risen to the top of the polls.`\
+https://www.nytimes.com/video/us/elections/100000010937083/california-governor-primary-election.html
+
 **Trump Stands to Gain a Key Ally in Colombia’s Upcoming Election**\
 `Abelardo De La Espriella, a hard-line candidate on the right facing a left-wing rival in a presidential runoff, has pledged to crush drug traffickers.`\
 https://www.nytimes.com/2026/06/01/world/trump-colombia-election-abelardo-de-la-espriella.html
@@ -179,18 +187,10 @@ https://www.nytimes.com/video/podcasts/100000010937140/are-we-really-too-busy-la
 https://www.nytimes.com/2026/06/01/world/europe/dua-lipa-callum-turner-wedding-old-marylebone-town-hall.html
 
 **Hegseth Strikes Female and Black Navy Officers From Promotion List**\
-`The defense secretary’s decision to block the officers’ promotions appears driven by his anti-diversity stance rather than based on merit.`\
+`The defense secretary’s decision to block the officers’ promotions appears driven by his anti-woke stance rather than based on merit.`\
 https://www.nytimes.com/2026/06/01/us/politics/hegseth-navy-promotion-list.html
 
 **U.S. and Iran Trade Strikes as Thousands Flee Southern Beirut**\
 `The United States and Iran traded attacks, and Israel warned about attacks against Hezbollah in Beirut, heavily straining the fragile Middle East cease-fire on Monday.`\
 https://www.nytimes.com/video/world/middleeast/100000010936606/us-and-iran-trade-strikes-as-thousands-flee-southern-beirut-amid-israeli-threats.html
-
-**Anthropic Files to Go Public, Setting Stage for Huge I.P.O.**\
-`The artificial intelligence company, which is racing OpenAI to the stock market, has seen explosive growth over the last year thanks largely to technology that can automatically write computer code.`\
-https://www.nytimes.com/2026/06/01/technology/anthropic-ipo.html
-
-**Giant Stone Urns Hint at the Death Rites of a Lost People in Laos**\
-`Thousands of mysterious containers lie scattered across northern Laos. These “death jars” may have provided a form of communal interment, archaeologists reported.`\
-https://www.nytimes.com/2026/06/01/science/death-jars-internment-laos.html
 

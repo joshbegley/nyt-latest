@@ -1,4 +1,8 @@
-**Right-Wing Officials’ Appearance at Israel Day Parade Angers Lawmakers**\
+**Trump Stands to Gain a Key Ally in Colombia’s Upcoming Election**\
+`Abelardo De La Espriella, a hard-line candidate on the right facing a left-wing rival in a presidential runoff, has pledged to crush drug traffickers.`\
+https://www.nytimes.com/2026/06/01/world/trump-colombia-election-abelardo-de-la-espriella.html
+
+**Right-Wing Officials’ Appearance at Israel Day Parade Leads to Backlash**\
 `Parade organizers and New York lawmakers who marched in the parade sought to distance themselves from Bezalel Smotrich, a hard-line Israeli official who attended.`\
 https://www.nytimes.com/2026/06/01/nyregion/nyc-israel-parade-smotrich-mamdani.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/01/technology/anthropic-ipo.html
 **Giant Stone Urns Hint at the Death Rites of a Lost People in Laos**\
 `Thousands of mysterious containers lie scattered across northern Laos. These “death jars” may have provided a form of communal interment, archaeologists reported.`\
 https://www.nytimes.com/2026/06/01/science/death-jars-internment-laos.html
-
-**Muere Brooklyn Rivera, líder indígena de Nicaragua, en custodia del gobierno de Ortega**\
-`Rivera, de 73 años, destacado dirigente miskito fue detenido por el gobierno de Nicaragua en 2023. Su familia y otros grupos cuestionan las circunstancias que rodearon su muerte.`\
-https://www.nytimes.com/es/2026/06/01/espanol/america-latina/muere-brooklyn-rivera-nicaragua-ortega.html
 
