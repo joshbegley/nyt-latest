@@ -1,3 +1,11 @@
+**Raymond Berry, Hall of Fame Receiver for Champion Colts, Dies at 93**\
+`He was the quarterback Johnny Unitas’s secret weapon with flypaper hands, who rose — leaped, actually — to big occasions.`\
+https://www.nytimes.com/2026/06/01/sports/football/raymond-berry-dead.html
+
+**Britain Denies Entry to Hasan Piker and Cenk Uygur**\
+`The authorities did not say why they had barred Cenk Uygur and Hasan Piker, who have popular social media channels, but said their presence “may not be conducive to the public good.”`\
+https://www.nytimes.com/2026/06/01/world/europe/uk-hasan-piker-cenk-uygur-visa-israel.html
+
 **Alberta’s Movement to Separate from Canada Gets Its Moment**\
 `In October, Albertans will get to say if they want to stay in Canada, or hold a referendum to leave. Will it settle the matter, or deepen the rift?`\
 https://www.nytimes.com/2026/06/01/world/canada/canada-alberta-separation-referendum-vote.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/01/books/new-books-june.html
 **2026 Midterms Tracker: The Key Senate and House Races**\
 `Here are the places that are expected to decide the midterm elections, according to the most recent ratings by the Cook Political Report.`\
 https://www.nytimes.com/interactive/2026/us/elections/midterms-house-senate-key-races.html
-
-**What We Saw Driving Through Venezuela**\
-`Our reporter Simon Romero takes a roadtrip from Caracas to Cumaná in Venezuela, showing the multiple military checkpoints the regime has along the coast, a constant reminder of the state’s presence.`\
-https://www.nytimes.com/video/world/americas/100000010902264/what-we-saw-driving-through-venezuela.html
-
-**Book Review: ‘1873,’ by Liaquat Ahamed**\
-`In “1873,” the historian and financier Liaquat Ahamed traces the political consequences of booming markets that left a lot of people behind.`\
-https://www.nytimes.com/2026/06/01/books/review/1873-liaquat-ahamed.html
 
