@@ -50,8 +50,8 @@ https://www.nytimes.com/2026/06/01/crosswords/strands-sidekick-821.html
 `Scroll down for hints and conversation about the puzzle for Tuesday, June 2, 2026.`\
 https://www.nytimes.com/2026/06/01/crosswords/wordle-review-1809.html
 
-**Starmer Braces for More Files About Mandelson, Ex-Diplomat With Ties to Epstein**\
-`A second batch of documents about the former U.S. ambassador Peter Mandelson, who was fired over his links to Jeffrey Epstein, could create more problems for Prime Minister Keir Starmer.`\
+**UK Releases More Files About Mandelson, Ex-Diplomat With Ties to Epstein**\
+`A second batch of documents about the former U.S. ambassador Peter Mandelson, who was fired over his links to Jeffrey Epstein, was published on Monday.`\
 https://www.nytimes.com/2026/06/01/world/europe/mandelson-files-epstein-starmer-uk.html
 
 **How Lebanon’s Best Chance to Disarm Hezbollah Failed**\

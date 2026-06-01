@@ -1,3 +1,7 @@
+**33 Fun Things to Do in N.Y.C. in June**\
+`This month brings an improv all-nighter, James Taylor, “Fraggle Rock” and Puerto Rican pride.`\
+https://www.nytimes.com/2026/06/01/arts/fun-things-to-do-nyc-june.html
+
 **How California’s New Congressional Map Is Reshaping Tuesday’s Primaries**\
 `The state now has just four congressional districts considered safe for Republicans, and four seen as competitive. The rest of its 52 members of Congress are all but certain to be Democrats.`\
 https://www.nytimes.com/2026/06/01/us/politics/california-redistricting-maps.html
