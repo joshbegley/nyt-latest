@@ -1,9 +1,13 @@
+**Are We Really Too Busy? Laurie Santos on the ‘Time Crisis’**\
+`Do people have enough time to build a happy life? Are they making the right choices with the time they have? Laurie Santos, a professor at Yale, tackled those questions on “The Interview.”`\
+https://www.nytimes.com/video/podcasts/100000010937140/are-we-really-too-busy-laurie-santos-on-the-time-crisis.html
+
 **Dua Lipa and Callum Turner Get Married at London’s Old Marylebone Town Hall**\
 `The Old Marylebone Town Hall, among the busiest wedding venues in Britain, has hosted nuptials for A-listers, including Sylvester Stallone, Paul McCartney and Lena Dunham.`\
 https://www.nytimes.com/2026/06/01/world/europe/dua-lipa-callum-turner-wedding-old-marylebone-town-hall.html
 
 **Hegseth Strikes Female and Black Navy Officers From Promotion List**\
-`The defense secretary’s decision to block the officers’ promotions appears driven by his anti-woke stance rather than based on merit.`\
+`The defense secretary’s decision to block the officers’ promotions appears driven by his anti-diversity stance rather than based on merit.`\
 https://www.nytimes.com/2026/06/01/us/politics/hegseth-navy-promotion-list.html
 
 **U.S. and Iran Trade Strikes as Thousands Flee Southern Beirut**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/01/magazine/pov-gen-z-linguistics.html
 **Are We Supposed to Wear Socks With Sandals Now?**\
 `A teacher wonders about the etiquette rules of contemporary footwear.`\
 https://www.nytimes.com/2026/06/01/fashion/sandals-sock-style.html
-
-**China Aims A.I. at Predicting Who Could Pose a Political Risk**\
-`New research examines how a Chinese company struggled to develop its predictive surveillance technology while U.S. restrictions were in place.`\
-https://www.nytimes.com/2026/06/01/us/politics/china-ai-predicting-dissent.html
 
