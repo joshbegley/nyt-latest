@@ -1,3 +1,11 @@
+**Giant Stone Urns Hint at the Death Rites of a Lost People in Laos**\
+`Hundreds of mysterious containers lie scattered across northern Laos. These “death jars” may have provided a form of communal interment, archaeologists reported.`\
+https://www.nytimes.com/2026/06/01/science/death-jars-internment-laos.html
+
+**Book Surfaces 120 Years After a San Francisco Library Lost Almost Everything**\
+`A book of poetry that survived the catastrophic 1906 earthquake and fire has been returned to the Mechanics’ Institute.`\
+https://www.nytimes.com/2026/06/01/us/library-book-san-francisco-fire-returned.html
+
 **Muere Brooklyn Rivera, líder indígena de Nicaragua, en custodia del gobierno de Ortega**\
 `Rivera, de 73 años, destacado dirigente miskito fue detenido por el gobierno de Nicaragua en 2023. Su familia y otros grupos cuestionan las circunstancias que rodearon su muerte.`\
 https://www.nytimes.com/es/2026/06/01/espanol/america-latina/muere-brooklyn-rivera-nicaragua-ortega.html
