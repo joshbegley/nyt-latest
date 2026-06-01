@@ -1,3 +1,19 @@
+**Inside the Ebola Outbreak**\
+`A Times correspondent is reporting from the Ebola epicenter in the Democratic Republic of Congo. Here’s what he saw.`\
+https://www.nytimes.com/2026/06/01/world/ebola-epicenter-congo-alberta-referendum.html
+
+**Can Content Creators Get Rich Off A.I. Slop Like Tung Tung Tung Sahur?**\
+`Brainrot videos are mind-bendingly, bafflingly weird. They can also be a financial bonanza for their creators.`\
+https://www.nytimes.com/interactive/2026/06/01/magazine/ai-slop-viral-videos.html
+
+**Appeals Court Says 28 Transgender Troops Who Sued Can Remain in Military**\
+`The ruling gives a temporary reprieve to a group of service members while their lawsuit proceeds. The plaintiffs plan to ask the court to extend the ruling to all transgender troops.`\
+https://www.nytimes.com/2026/06/01/us/transgender-troops-appeals-court-ruling.html
+
+**Obesity May Be More Prevalent Than Previously Thought**\
+`A new study suggests using body mass index alone may miss many people with the disease, but the findings come with caveats.`\
+https://www.nytimes.com/2026/06/01/well/obesity-bmi-definition.html
+
 **Four Men Break Out of an Alabama Jail, Setting Off a Broad Dragnet**\
 `The Dallas County sheriff said they had overpowered guards. Two were recaptured by Monday, but the search continued for the others.`\
 https://www.nytimes.com/2026/06/01/us/four-men-alabama-jail-escape-dallas-county.html
