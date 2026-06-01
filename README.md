@@ -19,7 +19,7 @@ https://www.nytimes.com/video/us/politics/100000010937289/charlie-kirk-shooting-
 https://www.nytimes.com/2026/06/01/world/ebola-epicenter-congo-alberta-referendum.html
 
 **Can Content Creators Get Rich Off A.I. Slop Like Tung Tung Tung Sahur?**\
-`Brainrot videos are mind-bendingly, bafflingly weird. They can also be a financial bonanza for their creators.`\
+`Brainrot videos are specifically designed to confuse us. They can also be a financial bonanza for their creators.`\
 https://www.nytimes.com/interactive/2026/06/01/magazine/ai-slop-viral-videos.html
 
 **Appeals Court Says 28 Transgender Troops Who Sued Can Remain in Military**\
