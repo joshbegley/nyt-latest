@@ -147,7 +147,7 @@ https://www.nytimes.com/2026/06/01/books/review/whistler-ann-patchett.html
 https://www.nytimes.com/2026/06/01/well/the-return-of-blaming-and-shaming-in-public-health.html
 
 **Iran War Live Updates: U.S. and Iran Exchange New Attacks**\
-`U.S. Central Command said it conducted a round of “self-defense strikes” on military targets in southern Iran over the weekend. Iran’s military later said it had targeted a base in retaliation.`\
+`U.S. Central Command said it conducted a round of “self-defense strikes” on military targets in southern Iran over the weekend. Kuwait, which hosts U.S. military bases, accused Iran of attacking it.`\
 https://www.nytimes.com/live/2026/06/01/world/iran-war-us-trump-israel-lebanon
 
 **Dozens Killed as Explosion Flattens Rebel-Held Village in Myanmar**\
