@@ -1,3 +1,7 @@
+**Spurs vs. Knicks N.B.A. Finals Preview**\
+`Zena Keita, Dave DuFour, and Es Baraheni give their thoughts on the key matchups.`\
+https://www.nytimes.com/2026/06/01/podcasts/spurs-vs-knicks-nba-finals-preview.html
+
 **Death from Above**\
 `We look at U.S. boat strikes in the Caribbean Sea and eastern Pacific Ocean.`\
 https://www.nytimes.com/2026/06/01/briefing/boat-strikes.html

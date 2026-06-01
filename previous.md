@@ -1,3 +1,7 @@
+**Spurs vs. Knicks N.B.A. Finals Preview**\
+`Zena Keita, Dave DuFour, and Es Baraheni give their thoughts on the key matchups.`\
+https://www.nytimes.com/2026/06/01/podcasts/spurs-vs-knicks-nba-finals-preview.html
+
 **Death from Above**\
 `We look at U.S. boat strikes in the Caribbean Sea and eastern Pacific Ocean.`\
 https://www.nytimes.com/2026/06/01/briefing/boat-strikes.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/americas/100000010936340/colombia-election-r
 **Después de la deportación: una familia de Colombia se despide del sueño americano**\
 `¿Qué ocurre con los cientos de miles de personas que han sido enviadas de vuelta a los lugares que desesperadamente querían dejar atrás?`\
 https://www.nytimes.com/es/interactive/2026/06/01/espanol/ee-uu-deportacion-familia-colombia.html
-
-**Syrian Officers Who Hid in Plain Sight Face War Crime Charges in Austria**\
-`The trial, Austria’s first against Assad regime officials, will be a rare chance for Syrian witnesses to confront two men they have accused of torture.`\
-https://www.nytimes.com/2026/06/01/world/syria-war-crimes-trial-austria.html
 
