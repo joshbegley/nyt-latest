@@ -1,3 +1,7 @@
+**El sueño de los peces se parece mucho al nuestro**\
+`Un nuevo estudio encontró que los peces cebra tienen cuatro diferentes tipos de sueño, análogos a las fases con las que se describe el sueño de los seres humanos.`\
+https://www.nytimes.com/es/2026/06/01/espanol/ciencia-y-tecnologia/sueno-peces.html
+
 **De joya industrial a ruinas: una ciudad revela la decadencia de Venezuela**\
 `Cumaná fue una vez un centro económico, que producía Toyota Land Cruisers y exportaba alimentos a toda Sudamérica. Ahora está al borde del desastre debido al colapso de los servicios públicos.`\
 https://www.nytimes.com/es/2026/06/01/espanol/america-latina/cumana-venezuela-decadencia.html

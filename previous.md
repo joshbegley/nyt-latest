@@ -1,3 +1,7 @@
+**El sueño de los peces se parece mucho al nuestro**\
+`Un nuevo estudio encontró que los peces cebra tienen cuatro diferentes tipos de sueño, análogos a las fases con las que se describe el sueño de los seres humanos.`\
+https://www.nytimes.com/es/2026/06/01/espanol/ciencia-y-tecnologia/sueno-peces.html
+
 **Barry Diller’s People Inc. Plans a Takeover Bid for MGM Resorts**\
 `The mogul’s People Inc. is preparing an offer to buy the portion of the casino giant that it doesn’t already own, at an $18 billion valuation.`\
 https://www.nytimes.com/2026/06/01/business/dealbook/diller-people-mgm-resorts.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/01/books/review/whistler-ann-patchett.html
 **The Return of Blaming and Shaming in Public Health**\
 `For years, medicine has tried to eliminate stigma. Now, Robert F. Kennedy Jr. is bringing back the language of personal responsibility.`\
 https://www.nytimes.com/2026/06/01/well/public-health-stigma-shame-rfk-jr.html
-
-**Iran War Live Updates: U.S. Military Says Iran Targeted American Forces in Kuwait**\
-`U.S. Central Command said the military intercepted two Iranian missiles overnight on Monday and no personnel were harmed. The attacks threatened to further complicate talks to end the war.`\
-https://www.nytimes.com/live/2026/06/01/world/iran-war-us-trump-israel-lebanon
 
