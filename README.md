@@ -1,3 +1,19 @@
+**Inside the Ebola Outbreak**\
+`A Times correspondent is reporting from the Ebola epicenter in the Democratic Republic of Congo. Here’s what he saw.`\
+https://www.nytimes.com/2026/06/01/world/ebola-epicenter-congo-alberta-referendum.html
+
+**Can Content Creators Get Rich Off A.I. Slop Like Tung Tung Tung Sahur?**\
+`Brainrot videos are mind-bendingly, bafflingly weird. They can also be a financial bonanza for their creators.`\
+https://www.nytimes.com/interactive/2026/06/01/magazine/ai-slop-viral-videos.html
+
+**Appeals Court Says 28 Transgender Troops Who Sued Can Remain in Military**\
+`The ruling gives a temporary reprieve to a group of service members while their lawsuit proceeds. The plaintiffs plan to ask the court to extend the ruling to all transgender troops.`\
+https://www.nytimes.com/2026/06/01/us/transgender-troops-appeals-court-ruling.html
+
+**Obesity May Be More Prevalent Than Previously Thought**\
+`A new study suggests using body mass index alone may miss many people with the disease, but the findings come with caveats.`\
+https://www.nytimes.com/2026/06/01/well/obesity-bmi-definition.html
+
 **Mills Reminds Maine Voters She’s ‘Still on the Ballot’ for Senate Amid Platner Controversy**\
 `A month after withdrawing from the state’s Senate race, Gov. Janet Mills suggested she remained an option after the likely Democratic nominee, Graham Platner, faced a new scandal.`\
 https://www.nytimes.com/2026/06/01/us/politics/mills-platner-maine-democratic-senate-primary.html
@@ -177,20 +193,4 @@ https://www.nytimes.com/es/2026/06/01/espanol/ciencia-y-tecnologia/sueno-peces.h
 **Barry Diller’s People Inc. Plans a Takeover Bid for MGM Resorts**\
 `The mogul’s People Inc. is preparing an offer to buy the portion of the casino giant that it doesn’t already own, at an $18 billion valuation.`\
 https://www.nytimes.com/2026/06/01/business/dealbook/diller-people-mgm-resorts.html
-
-**Ethiopia’s Election Comes at a Critical Moment for the Country: What to Know**\
-`The vote comes at a critical moment for the country, which faces fears of renewed conflict in the Tigray region and tensions with Eritrea over access to the Red Sea.`\
-https://www.nytimes.com/2026/06/01/world/africa/ethiopia-election-abiy-ahmed-explained.html
-
-**‘Awake and Sing!’ Heads to Broadway With Danny Burstein and Jessica Hecht**\
-`Danny Burstein, Jessica Hecht and Jeremy Shamos will star in the Manhattan Theater Club production of Clifford Odets’s 1935 play.`\
-https://www.nytimes.com/2026/06/01/theater/awake-and-sing-broadway-burstein-hecht-shamos.html
-
-**Spurs vs. Knicks N.B.A. Finals Preview**\
-`Zena Keita, Dave DuFour, and Es Baraheni give their thoughts on the key matchups.`\
-https://www.nytimes.com/2026/06/01/podcasts/spurs-vs-knicks-nba-finals-preview.html
-
-**Death from Above**\
-`We look at U.S. boat strikes in the Caribbean Sea and eastern Pacific Ocean.`\
-https://www.nytimes.com/2026/06/01/briefing/boat-strikes.html
 
