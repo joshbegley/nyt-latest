@@ -1,3 +1,7 @@
+**U.S. and Iran Trade Strikes as Thousands Flee Southern Beirut**\
+`The shaky cease-fire in the Middle East was tested on Monday after the United States and Iran traded attacks and Israel issued an evacuation warning for the southern suburbs of Beirut, Lebanon, as it threatened to escalate attacks on Iran-backed Hezbollah militants.`\
+https://www.nytimes.com/video/world/middleeast/100000010936606/us-and-iran-trade-strikes-as-thousands-flee-southern-beirut-amid-israeli-threats.html
+
 **U.S. and Iran Trade Strikes as Thousands Flee Southern Beirut Amid Israeli Threats**\
 `The shaky cease-fire in the Middle East was tested on Monday after the United States and Iran traded attacks and Israel issued an evacuation warning for the southern suburbs of Beirut, Lebanon, as it threatened to escalate attacks on Iran-backed Hezbollah militants.`\
 https://www.nytimes.com/video/world/middleeast/100000010936606/us-and-iran-trade-strikes-as-thousands-flee-southern-beirut-amid-israeli-threats.html
