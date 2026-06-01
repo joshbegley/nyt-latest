@@ -1,3 +1,7 @@
+**Iran War Live Updates: U.S. and Iran Exchange New Attacks, Straining Peace Talks**\
+`U.S. Central Command said it conducted strikes against military targets in southern Iran over the weekend. Kuwait, which hosts U.S. military bases, accused Iran of attacking its territory.`\
+https://www.nytimes.com/live/2026/06/01/world/iran-war-us-trump-israel-lebanon
+
 **Spurs vs. Knicks N.B.A. Finals Preview**\
 `Zena Keita, Dave DuFour, and Es Baraheni give their thoughts on the key matchups.`\
 https://www.nytimes.com/2026/06/01/podcasts/spurs-vs-knicks-nba-finals-preview.html
