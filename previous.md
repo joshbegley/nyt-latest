@@ -1,3 +1,7 @@
+**Rick Adelman, Hall of Fame N.B.A. Coach, Dies at 79**\
+`His teams made the playoffs 16 times in 23 seasons, and he twice steered the Portland Trail Blazers to the league finals.`\
+https://www.nytimes.com/2026/06/01/sports/basketball/rick-adelman-dead.html
+
 **Crested Ibises Get the Royal Treatment in Japan as They Fly Again**\
 `Once widespread in Japan, the colorful birds went from being fairly commonplace in the country to being on the verge of extinction.`\
 https://www.nytimes.com/2026/06/01/world/asia/japan-crested-ibis.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/01/world/europe/dua-lipa-callum-turner-wedding-o
 **Hegseth Strikes Female and Black Navy Officers From Promotion List**\
 `The defense secretary’s decision to block the officers’ promotions appears driven by his anti-woke stance rather than based on merit.`\
 https://www.nytimes.com/2026/06/01/us/politics/hegseth-navy-promotion-list.html
-
-**U.S. and Iran Trade Strikes as Thousands Flee Southern Beirut**\
-`The United States and Iran traded attacks, and Israel warned about attacks against Hezbollah in Beirut, heavily straining the fragile Middle East cease-fire on Monday.`\
-https://www.nytimes.com/video/world/middleeast/100000010936606/us-and-iran-trade-strikes-as-thousands-flee-southern-beirut-amid-israeli-threats.html
 

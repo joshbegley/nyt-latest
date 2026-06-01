@@ -1,3 +1,7 @@
+**Rick Adelman, Hall of Fame N.B.A. Coach, Dies at 79**\
+`His teams made the playoffs 16 times in 23 seasons, and he twice steered the Portland Trail Blazers to the league finals.`\
+https://www.nytimes.com/2026/06/01/sports/basketball/rick-adelman-dead.html
+
 **Crested Ibises Get the Royal Treatment in Japan as They Fly Again**\
 `Once widespread in Japan, the colorful birds went from being fairly commonplace in the country to being on the verge of extinction.`\
 https://www.nytimes.com/2026/06/01/world/asia/japan-crested-ibis.html
