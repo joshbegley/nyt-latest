@@ -19,7 +19,7 @@ https://www.nytimes.com/2026/06/01/crosswords/strands-sidekick-821.html
 https://www.nytimes.com/2026/06/01/crosswords/wordle-review-1809.html
 
 **Starmer Braces for Release of More Files About Mandelson and Epstein**\
-`The British government is to publish a second batch of documents about Prime Minister Keir Starmer’s appointment of Peter Mandelson as U.S. ambassador.`\
+`A second batch of documents about the former U.S. ambassador Peter Mandelson, who was fired over his links to Jeffrey Epstein, could create more problems for Prime Minister Keir Starmer.`\
 https://www.nytimes.com/2026/06/01/world/europe/mandelson-files-epstein-starmer-uk.html
 
 **How Lebanon’s Best Chance to Disarm Hezbollah Failed**\
@@ -172,7 +172,7 @@ https://www.nytimes.com/2026/06/01/books/review/whistler-ann-patchett.html
 
 **The Return of Blaming and Shaming in Public Health**\
 `For years, medicine has tried to eliminate stigma. Now, Robert F. Kennedy Jr. is bringing back the language personal responsibility.`\
-https://www.nytimes.com/2026/06/01/well/the-return-of-blaming-and-shaming-in-public-health.html
+https://www.nytimes.com/2026/06/01/well/public-health-stigma-shame-rfk-jr.html
 
 **Iran War Live Updates: U.S. and Iran Exchange New Attacks**\
 `U.S. Central Command said it conducted a round of “self-defense strikes” on military targets in southern Iran over the weekend. Kuwait, which hosts U.S. military bases, accused Iran of attacking it.`\

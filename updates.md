@@ -1,3 +1,11 @@
+**Starmer Braces for Release of More Files About Mandelson and Epstein**\
+`A second batch of documents about the former U.S. ambassador Peter Mandelson, who was fired over his links to Jeffrey Epstein, could create more problems for Prime Minister Keir Starmer.`\
+https://www.nytimes.com/2026/06/01/world/europe/mandelson-files-epstein-starmer-uk.html
+
+**The Return of Blaming and Shaming in Public Health**\
+`For years, medicine has tried to eliminate stigma. Now, Robert F. Kennedy Jr. is bringing back the language personal responsibility.`\
+https://www.nytimes.com/2026/06/01/well/public-health-stigma-shame-rfk-jr.html
+
 **Inside Trump’s Mad Dash to Renovate Washington**\
 `Depending on where you sit, the projects are either boldly cutting red tape or blowing through every regulation designed to protect taxpayer dollars.`\
 https://www.nytimes.com/2026/06/01/podcasts/the-daily/inside-trumps-mad-dash-to-renovate-washington.html
