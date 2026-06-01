@@ -1,3 +1,11 @@
+**Trump Finds High-Wire Iran Negotiations ‘Very Boring’**\
+`President Trump told CNBC that he “couldn’t care less” if the negotiations with Iran break down.`\
+https://www.nytimes.com/2026/06/01/us/politics/trump-iran-negotiations-boring.html
+
+**Mette Frederiksen Forms New Government in Denmark**\
+`Mette Frederiksen may not be nearly as popular as she once was, but she remains the Danes' most dominant leader in decades.`\
+https://www.nytimes.com/2026/06/01/world/europe/denmark-mette-frederiksen.html
+
 **Trump Administration to Dismantle Ocean Monitoring System**\
 `The $368 million network of instruments collecting data in both the Atlantic and Pacific has been critical to climate and ocean research.`\
 https://www.nytimes.com/2026/06/01/climate/ocean-observatories-initiative.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/01/briefing/today-in-short.html
 **Test Your Memory of These Books That Changed the World**\
 `Try this short quiz on written works that were persuasive enough to influence American life and law.`\
 https://www.nytimes.com/interactive/2026/06/01/books/review/world-changing-books.html
-
-**Bright and Colorful Fish and Lentils**\
-`Yewande Komolafe’s one-pot meal layers everything together with the herbal, lemony flavors of Senegalese sauce rof.`\
-https://www.nytimes.com/2026/06/01/dining/bright-and-colorful-fish-and-lentils.html
-
-**It’s Never Been Easier in America to Get Buzzed**\
-`Evidence suggests that people would drink and use illegal drugs less if the prices were higher.`\
-https://www.nytimes.com/2026/06/01/opinion/illegal-drugs-cheap-prices.html
 

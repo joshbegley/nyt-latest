@@ -1,3 +1,11 @@
+**Trump Finds High-Wire Iran Negotiations ‘Very Boring’**\
+`President Trump told CNBC that he “couldn’t care less” if the negotiations with Iran break down.`\
+https://www.nytimes.com/2026/06/01/us/politics/trump-iran-negotiations-boring.html
+
+**Mette Frederiksen Forms New Government in Denmark**\
+`Mette Frederiksen may not be nearly as popular as she once was, but she remains the Danes' most dominant leader in decades.`\
+https://www.nytimes.com/2026/06/01/world/europe/denmark-mette-frederiksen.html
+
 **Trump Administration to Dismantle Ocean Monitoring System**\
 `The $368 million network of instruments collecting data in both the Atlantic and Pacific has been critical to climate and ocean research.`\
 https://www.nytimes.com/2026/06/01/climate/ocean-observatories-initiative.html
