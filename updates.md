@@ -1,3 +1,7 @@
+**Dozens Killed as Explosion Flattens Rebel-Held Village in Myanmar**\
+`The local authorities said the cause was an accident at a warehouse that held explosives for mining operations.`\
+https://www.nytimes.com/2026/06/01/world/asia/myanmar-explosion-blast-warehouse-deaths.html
+
 **Far-Right Candidate Advances to Runoff in Colombia’s Presidential Election**\
 `Abelardo De La Espriella, a right-wing outsider, will face Iván Cepeda, a progressive senator, in Colombia’s presidential election runoff.`\
 https://www.nytimes.com/video/world/americas/100000010936340/colombia-election-results-runoff.html
