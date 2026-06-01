@@ -1,3 +1,11 @@
+**Ethiopia’s Election Comes at a Critical Moment for the Country: What to Know**\
+`The vote comes at a critical moment for the country, which faces fears of renewed conflict in the Tigray region and tensions with Eritrea over access to the Red Sea.`\
+https://www.nytimes.com/2026/06/01/world/africa/ethiopia-election-abiy-ahmed-explained.html
+
+**‘Awake and Sing!’ Heads to Broadway With Danny Burstein and Jessica Hecht**\
+`Danny Burstein, Jessica Hecht and Jeremy Shamos will star in the Manhattan Theater Club production of Clifford Odets’s 1935 play.`\
+https://www.nytimes.com/2026/06/01/theater/awake-and-sing-broadway-burstein-hecht-shamos.html
+
 **Spurs vs. Knicks N.B.A. Finals Preview**\
 `Zena Keita, Dave DuFour, and Es Baraheni give their thoughts on the key matchups.`\
 https://www.nytimes.com/2026/06/01/podcasts/spurs-vs-knicks-nba-finals-preview.html
@@ -26,7 +34,7 @@ https://www.nytimes.com/2026/06/01/crosswords/strands-sidekick-821.html
 `Scroll down for hints and conversation about the puzzle for Tuesday, June 2, 2026.`\
 https://www.nytimes.com/2026/06/01/crosswords/wordle-review-1809.html
 
-**Starmer Braces for Release of More Files About Mandelson and Epstein**\
+**Starmer Braces for More Files About Mandelson, Ex-Diplomat With Ties to Epstein**\
 `A second batch of documents about the former U.S. ambassador Peter Mandelson, who was fired over his links to Jeffrey Epstein, could create more problems for Prime Minister Keir Starmer.`\
 https://www.nytimes.com/2026/06/01/world/europe/mandelson-files-epstein-starmer-uk.html
 
@@ -170,8 +178,8 @@ https://www.nytimes.com/2026/06/01/well/jeffrey-epstein-sperm-cryobank.html
 `James Talarico, the Democrat running for U.S. Senate in Texas, has connected his political positions to his Christian faith. Our religion reporter Ruth Graham discusses how his perspective differs from the politically conservative Christianity dominant in Republican politics in Texas.`\
 https://www.nytimes.com/video/us/politics/100000010887861/could-talaricos-religious-approach-win-texas.html
 
-**The Progressive Pastor Who Helped Shape James Talarico**\
-`Jim Rigby, who rarely uses the word “God,” is a key to understanding the Senate candidate trying to pull off something unusual in Texas.`\
+**Are Texans Ready for Talarico’s Kind of Christianity?**\
+`Jim Rigby, a pastor who rarely uses the word “God,” is a key to understanding the Senate candidate trying to pull off something unusual in Texas.`\
 https://www.nytimes.com/2026/06/01/us/politics/james-talarico-christian.html
 
 **Book Review: ‘Whistler,’ by Ann Patchett**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/live/2026/06/01/world/iran-war-us-trump-israel-lebanon
 **Dozens Killed as Explosion Flattens Rebel-Held Village in Myanmar**\
 `The local authorities said the cause was an accident at a warehouse that held explosives for mining operations.`\
 https://www.nytimes.com/2026/06/01/world/asia/myanmar-explosion-blast-warehouse-deaths.html
-
-**Far-Right Candidate Advances to Runoff in Colombia’s Presidential Election**\
-`Abelardo De La Espriella, a right-wing outsider, will face Iván Cepeda, a progressive senator, in Colombia’s presidential election runoff.`\
-https://www.nytimes.com/video/world/americas/100000010936340/colombia-election-results-runoff.html
-
-**Después de la deportación: una familia de Colombia se despide del sueño americano**\
-`¿Qué ocurre con los cientos de miles de personas que han sido enviadas de vuelta a los lugares que desesperadamente querían dejar atrás?`\
-https://www.nytimes.com/es/interactive/2026/06/01/espanol/ee-uu-deportacion-familia-colombia.html
 
