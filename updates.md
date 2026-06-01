@@ -1,3 +1,7 @@
+**Trump Administration to Dismantle Ocean Monitoring System**\
+`The $368 million network of instruments collecting data in both the Atlantic and Pacific has been critical to climate and ocean research.`\
+https://www.nytimes.com/2026/06/01/climate/ocean-observatories-initiative.html
+
 **5 People Leave Hantavirus Quarantine in Omaha**\
 `Thirteen people remain at the facility in Nebraska. Those who returned to their home states may be under constant surveillance for three more weeks.`\
 https://www.nytimes.com/2026/06/01/us/hantavirus-quarantine-omaha-nebraska.html
