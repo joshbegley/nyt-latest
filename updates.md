@@ -1,3 +1,7 @@
+**Oil Prices Jump as Middle East Tensions Build**\
+`Some analysts said the main international oil price, which was up 6 percent on Monday, could climb much higher in the coming weeks if the Strait of Hormuz doesn’t reopen.`\
+https://www.nytimes.com/2026/06/01/business/energy-environment/iran-war-oil-prices.html
+
 **Anthropic Files to Go Public, Setting Stage for Huge I.P.O.**\
 `The artificial intelligence company, which is racing OpenAI to the stock market, has seen explosive growth over the last year thanks largely to technology that can automatically write computer code.`\
 https://www.nytimes.com/2026/06/01/technology/anthropic-ipo.html
