@@ -1,3 +1,79 @@
+**Dua Lipa y Callum Turner se casan en Londres**\
+`El Old Marylebone Town Hall, uno de los lugares más concurridos del Reino Unido para celebrar bodas, ha sido el escenario de las nupcias de estrellas como Sylvester Stallone, Paul McCartney y Lena Dunham.`\
+https://www.nytimes.com/es/2026/06/01/espanol/estados-unidos/dua-lipa-callum-turner-se-casan-londres.html
+
+**I.R.A. Rebates for Appliance Swaps Could Be Phased Out**\
+`New guidance from the Energy Department would prevent people from receiving rebates after making such swaps.`\
+https://www.nytimes.com/2026/06/01/climate/energy-rebates-home-appliances.html
+
+**Dua Lipa Wears Bianca Jagger-Inspired Wedding Look to Marry Callum Turner**\
+`The bride wore a wedding suit look inspired by Bianca Jagger, and the groom wore a double-breasted Ferragamo suit.`\
+https://www.nytimes.com/2026/06/01/style/dua-lipa-callum-turner-wedding-dress.html
+
+**The Best Movies and TV Shows Coming to Disney+, Amazon, AMC+, Apple TV and More in June**\
+`“The Vampire Lestat,” “Hoppers” and “Not Suitable for Work” arrive and “The Bear” returns.`\
+https://www.nytimes.com/2026/06/01/arts/television/movies-tv-shows-june-2026-streaming.html
+
+**Oil Prices Jump as Middle East Tensions Build**\
+`Some analysts said the main international oil price, which was up 6 percent on Monday, could climb much higher in the coming weeks if the Strait of Hormuz doesn’t reopen.`\
+https://www.nytimes.com/2026/06/01/business/energy-environment/iran-war-oil-prices.html
+
+**Scott Pelley Accuses CBS News Boss of ‘Murdering’ ‘60 Minutes’**\
+`In an explosive staff meeting, Mr. Pelley, a correspondent for the long-running Sunday news show, blasted Bari Weiss, the CBS editor in chief, and Nick Bilton, the show’s new executive producer.`\
+https://www.nytimes.com/2026/06/01/business/media/cbs-60-minutes-scott-pelley-nick-bilton.html
+
+**Tribeca Festival 25th Anniversary: An Interview With Robert De Niro, Jane Rosenthal, Rebecca Glashow**\
+`Robert De Niro and Jane Rosenthal, who founded the event, and Rebecca Glashow, the new leader of Tribeca Enterprises, reflected on the festival’s legacy and ambitions.`\
+https://www.nytimes.com/2026/06/01/movies/tribeca-festival-25-deniro-rosenthal-glashow.html
+
+**Wise and Not So Wise Tips for Being Old**\
+`Readers respond to a guest essay by Roger Rosenblatt. Also: A fight spectacle at the White House.`\
+https://www.nytimes.com/2026/06/01/opinion/old-elderly.html
+
+**Edward Burns on What It’s like to Be a Tribeca Festival Veteran**\
+`The filmmaker, who is screening his ninth film at the festival, talked about the importance of Tribeca and what he has learned about sustaining an independent filmmaking career.`\
+https://www.nytimes.com/2026/06/01/movies/edward-burns-tribeca-film-festival.html
+
+**Tribeca Festival: Andre Holland’s Ability to Connect to Audiences Is on Display**\
+`The actor’s ability to connect to roles is on display in two films, “The Revisionist” and “They Fight,” premiering at this year’s Tribeca Festival.`\
+https://www.nytimes.com/2026/06/01/movies/andre-holland-tribeca-festival.html
+
+**At Tribeca, a New Look at an ’80s Thriller About New York’s Gay Underground**\
+`The troubled legacy of “Cruising” is the subject of “Mineshaft: The Cruising Murders,” a documentary premiering at the Tribeca Festival.`\
+https://www.nytimes.com/2026/06/01/movies/cruising-gay-tribeca-documentary.html
+
+**Judge Rejects Defense Request to Close Hearings in Charlie Kirk Murder Case**\
+`A Utah judge, Tony Graf, ruled against the defense’s effort to bar the public from a preliminary hearing but did restrict access to some evidence.`\
+https://www.nytimes.com/2026/06/01/us/tyler-robinson-charlie-kirk-hearings-media-access.html
+
+**In the ‘Euphoria’ Finale, the HBO Show Goes Out With a Whimper**\
+`In the end, a show defined by its excesses seemed to be straining for a redemption that it didn’t need.`\
+https://www.nytimes.com/2026/06/01/arts/television/euphoria-season-3-finale-rue.html
+
+**Florida Sues OpenAI Over Chatbot Safety Concerns**\
+`The state became the first to sue the ChatGPT maker over claims that its technology posed a risk to children and that the company had failed to warn the public of dangers.`\
+https://www.nytimes.com/2026/06/01/technology/florida-sues-openai-chatgpt-safety.html
+
+**El agente de la CIA detenido con oro trabajó con el segundo al mando del Pentágono**\
+`David Rush, funcionario de la CIA, parece haber tenido contacto por primera vez con Stephen A. Feinberg durante el primer mandato del presidente Trump. Algunos funcionarios dijeron que no eran cercanos.`\
+https://www.nytimes.com/es/2026/06/01/espanol/estados-unidos/cia-agente-oro-pentagono.html
+
+**Azniv Korkejian on Bedouine’s ‘Neon Summer Skin’**\
+`Azniv Korkejian, the recording artist known as Bedouine, turns her own nomadic history and family survival into comforting, classic folk.`\
+https://www.nytimes.com/2026/06/01/arts/music/bedouine-neon-summer-skin.html
+
+**Are We Really Too Busy? Laurie Santos on the ‘Time Crisis’**\
+`Do people have enough time to build a happy life? Are they making the right choices with the time they have? Laurie Santos, a professor at Yale, tackled those questions on “The Interview.”`\
+https://www.nytimes.com/video/podcasts/100000010937140/are-we-really-too-busy-laurie-santos-on-the-time-crisis.html
+
+**Dua Lipa and Callum Turner Get Married at London’s Old Marylebone Town Hall**\
+`The Old Marylebone Town Hall, among the busiest wedding venues in Britain, has hosted nuptials for A-listers, including Sylvester Stallone, Paul McCartney and Lena Dunham.`\
+https://www.nytimes.com/2026/06/01/world/europe/dua-lipa-callum-turner-wedding-old-marylebone-town-hall.html
+
+**Hegseth Strikes Female and Black Navy Officers From Promotion List**\
+`The defense secretary’s decision to block the officers’ promotions appears driven by his anti-diversity stance rather than based on merit.`\
+https://www.nytimes.com/2026/06/01/us/politics/hegseth-navy-promotion-list.html
+
 **How a Recent College Graduate Lives on $18 Per Hour in the East Bronx**\
 `At 20 years old, Jaden Baldeon is trying to help his family with money from a part-time job while also thinking about what’s next.`\
 https://www.nytimes.com/interactive/2026/06/01/nyregion/nyc-budgeting-affordability-baldeon.html
