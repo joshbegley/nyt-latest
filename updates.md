@@ -1,3 +1,7 @@
+**Four Men Break Out of an Alabama Jail, Setting Off a Broad Dragnet**\
+`The Dallas County sheriff said they had overpowered guards. Two were recaptured by Monday, but the search continued for the others.`\
+https://www.nytimes.com/2026/06/01/us/four-men-alabama-jail-escape-dallas-county.html
+
 **Mills Reminds Maine Voters She’s ‘Still on the Ballot’ for Senate Amid Platner Controversy**\
 `A month after withdrawing from the state’s Senate race, Gov. Janet Mills suggested she remained an option after the likely Democratic nominee, Graham Platner, faced a new scandal.`\
 https://www.nytimes.com/2026/06/01/us/politics/mills-platner-maine-democratic-senate-primary.html
