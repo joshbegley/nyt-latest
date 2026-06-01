@@ -27,7 +27,7 @@ https://www.nytimes.com/2026/06/01/us/politics/hegseth-navy-promotion-list.html
 https://www.nytimes.com/video/world/middleeast/100000010936606/us-and-iran-trade-strikes-as-thousands-flee-southern-beirut-amid-israeli-threats.html
 
 **Anthropic Files to Go Public, Setting Stage for Huge I.P.O.**\
-`The artificial intelligence company has seen explosive growth over the last year thanks largely to new technology that can automatically write computer code.`\
+`The artificial intelligence company, which is racing rival OpenAI to the stock market, has seen explosive growth over the last year thanks largely to technology that can automatically write computer code.`\
 https://www.nytimes.com/2026/06/01/technology/anthropic-ipo.html
 
 **Giant Stone Urns Hint at the Death Rites of a Lost People in Laos**\
