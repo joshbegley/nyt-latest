@@ -1,3 +1,7 @@
+**Mette Frederiksen Forms New Government in Denmark**\
+`Mette Frederiksen may not be nearly as popular as she once was, but she remains the Danes’ most dominant leader in decades.`\
+https://www.nytimes.com/2026/06/01/world/europe/denmark-mette-frederiksen.html
+
 **Right-Wing Officials’ Appearance at Israel Day Parade Angers Lawmakers**\
 `Parade organizers and New York lawmakers who marched in the parade sought to distance themselves from Bezalel Smotrich, a hard-line Israeli official who attended.`\
 https://www.nytimes.com/2026/06/01/nyregion/nyc-israel-parade-smotrich-mamdani.html
