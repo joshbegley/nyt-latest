@@ -1,3 +1,19 @@
+**Today, In Short**\
+`“Euphoria.” Protein. And kidfluencers.`\
+https://www.nytimes.com/2026/06/01/briefing/today-in-short.html
+
+**Test Your Memory of These Books That Changed the World**\
+`Try this short quiz on written works that were persuasive enough to influence American life and law.`\
+https://www.nytimes.com/interactive/2026/06/01/books/review/world-changing-books.html
+
+**Bright and Colorful Fish and Lentils**\
+`Yewande Komolafe’s one-pot meal layers everything together with the herbal, lemony flavors of Senegalese sauce rof.`\
+https://www.nytimes.com/2026/06/01/dining/bright-and-colorful-fish-and-lentils.html
+
+**It’s Never Been Easier in America to Get Buzzed**\
+`Evidence suggests that people would drink and use illegal drugs less if the prices were higher.`\
+https://www.nytimes.com/2026/06/01/opinion/illegal-drugs-cheap-prices.html
+
 **Raymond Berry, Hall of Fame Receiver for Champion Colts, Dies at 93**\
 `He was the quarterback Johnny Unitas’s secret weapon with flypaper hands, who rose — leaped, actually — to big occasions.`\
 https://www.nytimes.com/2026/06/01/sports/football/raymond-berry-dead.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/06/01/opinion/artificial-intelligence-bernie-sander
 **An Industrial Gem in Venezuela Now Embodies the Country’s Decay**\
 `Cumaná was once an economic hub, producing Toyota Land Cruisers and exporting food across South America. Now it’s on the brink of disaster as public services collapse.`\
 https://www.nytimes.com/2026/06/01/world/americas/venezuela-economy-cumana.html
-
-**Marco Rubio: Florida Centrist, Tea Party Darling, MAGA Warrior, President?**\
-`The secret to the Secretary of State’s success.`\
-https://www.nytimes.com/2026/06/01/opinion/marco-rubio-florida.html
-
-**9 Comic Books and Graphic Novels to Celebrate Pride Month**\
-`Historical chronicles and flights of fancy, all with L.G.B.T.Q. protagonists, arrive starting in June.`\
-https://www.nytimes.com/2026/06/01/arts/pride-month-comic-books-graphic-novels.html
-
-**28 New Books to Read in June: Ann Patchett, Maggie O’Farrell, Daniel Kraus and More**\
-`Novels by Ann Patchett, Maggie O’Farrell and Dave Eggers; memoirs by Jill Biden and Laverne Cox; sci-fi adventures by a Pulitzer Prize winner; and more.`\
-https://www.nytimes.com/2026/06/01/books/new-books-june.html
-
-**2026 Midterms Tracker: The Key Senate and House Races**\
-`Here are the places that are expected to decide the midterm elections, according to the most recent ratings by the Cook Political Report.`\
-https://www.nytimes.com/interactive/2026/us/elections/midterms-house-senate-key-races.html
 
