@@ -1,3 +1,11 @@
+**U.S. and Iran Trade Strikes as Thousands Flee Southern Beirut Amid Israeli Threats**\
+`The shaky cease-fire in the Middle East was tested on Monday after the United States and Iran traded attacks and Israel issued an evacuation warning for the southern suburbs of Beirut, Lebanon, as it threatened to escalate attacks on Iran-backed Hezbollah militants.`\
+https://www.nytimes.com/video/world/middleeast/100000010936606/us-and-iran-trade-strikes-as-thousands-flee-southern-beirut-amid-israeli-threats.html
+
+**Anthropic Files to Go Public, Setting Stage for Huge I.P.O.**\
+`The artificial intelligence company has seen explosive growth over the last year thanks largely to new technology that can automatically write computer code.`\
+https://www.nytimes.com/2026/06/01/technology/anthropic-ipo.html
+
 **Giant Stone Urns Hint at the Death Rites of a Lost People in Laos**\
 `Thousands of mysterious containers lie scattered across northern Laos. These “death jars” may have provided a form of communal interment, archaeologists reported.`\
 https://www.nytimes.com/2026/06/01/science/death-jars-internment-laos.html
