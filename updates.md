@@ -1,3 +1,7 @@
+**Markets Rise as U.S. and Iran Exchange Fire but Keep Talking**\
+`Oil prices climbed as investors weighed a renewed exchange of military strikes between the United States and Iran against signs that both sides remain engaged in negotiations.`\
+https://www.nytimes.com/2026/06/01/business/oil-gas-price-iran.html
+
 **Taiwan Criticizes China Over Expulsion of Times Reporter**\
 `The Taiwan president’s spokeswoman said China used “baseless pretexts” to punish journalists, which she called evidence that Beijing was a “troublemaker.”`\
 https://www.nytimes.com/2026/06/01/world/asia/taiwan-china-new-york-times-expulsion.html

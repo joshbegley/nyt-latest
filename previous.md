@@ -1,3 +1,7 @@
+**Markets Rise as U.S. and Iran Exchange Fire but Keep Talking**\
+`Oil prices climbed as investors weighed a renewed exchange of military strikes between the United States and Iran against signs that both sides remain engaged in negotiations.`\
+https://www.nytimes.com/2026/06/01/business/oil-gas-price-iran.html
+
 **Taiwan Criticizes China Over Expulsion of Times Reporter**\
 `The Taiwan president’s spokeswoman said China used “baseless pretexts” to punish journalists, which she called evidence that Beijing was a “troublemaker.”`\
 https://www.nytimes.com/2026/06/01/world/asia/taiwan-china-new-york-times-expulsion.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/31/opinion/mlk-racism-origin-myth.html
 **NYT Connections Answers for June 1, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, June 1, 2026.`\
 https://www.nytimes.com/2026/05/31/crosswords/connections-companion-1086.html
-
-**NYT Strands Hints for June 1, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, June 1, 2026.`\
-https://www.nytimes.com/2026/05/31/crosswords/strands-sidekick-820.html
 
