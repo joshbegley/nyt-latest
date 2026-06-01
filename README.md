@@ -1,3 +1,7 @@
+**Dua Lipa and Callum Turner Get Married at London’s Old Marylebone Town Hall**\
+`The Old Marylebone Town Hall, among the busiest wedding venues in Britain, has hosted nuptials for A-listers, including Sylvester Stallone, Paul McCartney and Lena Dunham.`\
+https://www.nytimes.com/2026/06/01/world/europe/dua-lipa-callum-turner-wedding-old-marylebone-town-hall.html
+
 **Hegseth Strikes Female and Black Navy Officers From Promotion List**\
 `The defense secretary’s decision to block the officers’ promotions appears driven by his anti-woke stance rather than based on merit.`\
 https://www.nytimes.com/2026/06/01/us/politics/hegseth-navy-promotion-list.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/01/fashion/sandals-sock-style.html
 **China Aims A.I. at Predicting Who Could Pose a Political Risk**\
 `New research examines how a Chinese company struggled to develop its predictive surveillance technology while U.S. restrictions were in place.`\
 https://www.nytimes.com/2026/06/01/us/politics/china-ai-predicting-dissent.html
-
-**A Paralympic Champion and an Eagle Scout Give Democrats Hope in Deep-Red Iowa**\
-`Tuesday’s Senate primary features two candidates with compelling personal stories. Both have stressed their independence.`\
-https://www.nytimes.com/2026/06/01/us/politics/iowa-senate-primary-turek-wahls.html
 

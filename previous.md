@@ -1,3 +1,7 @@
+**Hegseth Strikes Female and Black Navy Officers From Promotion List**\
+`The defense secretary’s decision to block the officers’ promotions appears driven by his anti-woke stance rather than based on merit.`\
+https://www.nytimes.com/2026/06/01/us/politics/hegseth-navy-promotion-list.html
+
 **U.S. and Iran Trade Strikes as Thousands Flee Southern Beirut**\
 `The shaky cease-fire in the Middle East was tested on Monday after the United States and Iran traded attacks and Israel issued an evacuation warning for the southern suburbs of Beirut, Lebanon, as it threatened to escalate attacks on Iran-backed Hezbollah militants.`\
 https://www.nytimes.com/video/world/middleeast/100000010936606/us-and-iran-trade-strikes-as-thousands-flee-southern-beirut-amid-israeli-threats.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/01/us/politics/china-ai-predicting-dissent.html
 **A Paralympic Champion and an Eagle Scout Give Democrats Hope in Deep-Red Iowa**\
 `Tuesday’s Senate primary features two candidates with compelling personal stories. Both have stressed their independence.`\
 https://www.nytimes.com/2026/06/01/us/politics/iowa-senate-primary-turek-wahls.html
-
-**Prized by ‘MAHA’ Influencers and Chefs Alike, Craft Flour Is on the Rise**\
-`Growing demand for fiber-rich grains is boosting the premium flour industry, which offers less processed, but pricier, alternatives to the classic grocery store brands.`\
-https://www.nytimes.com/2026/06/01/business/craft-flour-maha.html
 
