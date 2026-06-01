@@ -1,3 +1,7 @@
+**Nvidia Has a Plan to Put Its Chips in Personal Computers**\
+`The world’s most valuable company is chasing Intel and Apple as it tries to bring A.I. agents to laptops and desktops.`\
+https://www.nytimes.com/2026/06/01/technology/nvidia-chips-personal-computers.html
+
 **¿Extraterrestres o demonios? La divulgación ovni divide a los cristianos conservadores de EE. UU.**\
 `Cuando el gobierno de Trump ordenó publicar archivos sobre vida extraterrestre, una red de pastores y presentadores de pódcast ya tenía su respuesta lista.`\
 https://www.nytimes.com/es/2026/06/01/espanol/estados-unidos/ovnis-pentagono-religion.html
