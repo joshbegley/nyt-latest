@@ -1,3 +1,7 @@
+**UK Releases More Files About Mandelson, Ex-Diplomat With Ties to Epstein**\
+`A second batch of documents about the former U.S. ambassador Peter Mandelson, who was fired over his links to Jeffrey Epstein, was published on Monday.`\
+https://www.nytimes.com/2026/06/01/world/europe/mandelson-files-epstein-starmer-uk.html
+
 **33 Fun Things to Do in N.Y.C. in June**\
 `This month brings an improv all-nighter, James Taylor, “Fraggle Rock” and Puerto Rican pride.`\
 https://www.nytimes.com/2026/06/01/arts/fun-things-to-do-nyc-june.html
