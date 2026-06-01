@@ -1,3 +1,7 @@
+**Esto dicen los votantes de Trump sobre el precio de la gasolina**\
+`A cinco meses de las elecciones intermedias, muchos estadounidenses que apoyaron al presidente Trump lidian con la guerra en Irán y sus repercusiones en la economía.`\
+https://www.nytimes.com/es/2026/06/01/espanol/estados-unidos/trump-precio-gasolina-votantes.html
+
 **Marilyn Monroe Fans Descended on Palm Springs For Her 100th Birthday**\
 `To honor her centennial, over 1,000 Marilyn Monroe fans came together to dress as the screen legend in Palm Springs, where her Hollywood career began.`\
 https://www.nytimes.com/2026/06/01/style/marilyn-monroe-100th-birthday.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/01/podcasts/the-headlines/ebola-ward-trump-1-8-b
 **NYT Connections Answers for June 2, 2026**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, June 2, 2026.`\
 https://www.nytimes.com/2026/06/01/crosswords/connections-companion-1087.html
-
-**NYT Strands Hints for June 2, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, June 2, 2026.`\
-https://www.nytimes.com/2026/06/01/crosswords/strands-sidekick-821.html
 
