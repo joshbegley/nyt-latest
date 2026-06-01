@@ -1,3 +1,7 @@
+**Anthropic Files to Go Public, Setting Stage for Huge I.P.O.**\
+`The artificial intelligence company, which is racing OpenAI to the stock market, has seen explosive growth over the last year thanks largely to technology that can automatically write computer code.`\
+https://www.nytimes.com/2026/06/01/technology/anthropic-ipo.html
+
 **Judge Rejects Defense Request to Close Hearings in Charlie Kirk Murder Case**\
 `A Utah judge, Tony Graf, ruled against the defense’s effort to bar the public from a preliminary hearing but did restrict access to some evidence.`\
 https://www.nytimes.com/2026/06/01/us/tyler-robinson-charlie-kirk-hearings-media-access.html
