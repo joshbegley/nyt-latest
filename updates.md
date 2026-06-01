@@ -1,3 +1,7 @@
+**How California’s New Congressional Map Is Reshaping Tuesday’s Primaries**\
+`The state now has just four congressional districts considered safe for Republicans, and four seen as competitive. The rest of its 52 members of Congress are all but certain to be Democrats.`\
+https://www.nytimes.com/2026/06/01/us/politics/california-redistricting-maps.html
+
 **Ex-F.B.I. Officials Form New Group to Help Agents Grapple With Patel’s Changes**\
 `The F.B.I. Support Network offers legal, mental health and job search services to current agency employees. Its founders say the work force is incredibly strained under Kash Patel.`\
 https://www.nytimes.com/2026/06/01/us/politics/fbi-support-network-agents-trump-patel.html

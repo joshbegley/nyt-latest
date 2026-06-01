@@ -94,7 +94,7 @@ https://www.nytimes.com/2026/06/01/opinion/botched-execution-tony-carruthers.htm
 `A collection of Harold Bloom’s letters details the working life of one of America’s most influential intellects.`\
 https://www.nytimes.com/2026/06/01/books/review/harold-bloom-man-who-read-everything.html
 
-**How California Redistricting Shrunk the Competitive Map**\
+**How California’s New Congressional Map Is Reshaping Tuesday’s Primaries**\
 `The state now has just four congressional districts considered safe for Republicans, and four seen as competitive. The rest of its 52 members of Congress are all but certain to be Democrats.`\
 https://www.nytimes.com/2026/06/01/us/politics/california-redistricting-maps.html
 
