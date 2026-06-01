@@ -1,3 +1,7 @@
+**Ex-F.B.I. Officials Form New Group to Help Agents Grapple With Patel’s Changes**\
+`The F.B.I. Support Network offers legal, mental health and job search services to current agency employees. Its founders say the work force is incredibly strained under Kash Patel.`\
+https://www.nytimes.com/2026/06/01/us/politics/fbi-support-network-agents-trump-patel.html
+
 **El sueño de los peces se parece mucho al nuestro**\
 `Un nuevo estudio encontró que los peces cebra tienen cuatro diferentes tipos de sueño, análogos a las fases con las que se describe el sueño de los seres humanos.`\
 https://www.nytimes.com/es/2026/06/01/espanol/ciencia-y-tecnologia/sueno-peces.html
