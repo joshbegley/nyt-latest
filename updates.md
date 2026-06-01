@@ -1,3 +1,7 @@
+**Colombia Presidential Election Heads to a Runoff**\
+`The candidate forced a runoff on Sunday in what could herald another gain for the right-wing wave sweeping Latin America.`\
+https://www.nytimes.com/2026/05/31/world/americas/colombia-election-president-candidates.html
+
 **La otra crisis de Cuba: basura, dengue y chikunguña**\
 `El bloqueo petrolero del gobierno Trump dejó a La Habana sin combustible para recoger la basura, pero el problema tiene raíces más profundas: décadas de ineficiencia estatal.`\
 https://www.nytimes.com/es/2026/05/31/espanol/america-latina/cuba-basura-dengue-chikunguna.html

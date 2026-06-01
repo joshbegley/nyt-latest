@@ -150,8 +150,8 @@ https://www.nytimes.com/2026/05/31/us/customs-airports-markwayne-mullin.html
 `The brothers behind the London party organizers Recess decamped to a seaside amusement park for a two-day event channeling an earlier era of Black British nightlife.`\
 https://www.nytimes.com/2026/05/31/arts/music/recess-festival-margate-london.html
 
-**Colombia Presidential Election: What to Know About the Candidates and Main Issues**\
-`The election tests the legacy of the country’s first leftist leader against a rising far-right outsider and a traditional conservative.`\
+**Colombia Presidential Election Heads to a Runoff**\
+`The candidate forced a runoff on Sunday in what could herald another gain for the right-wing wave sweeping Latin America.`\
 https://www.nytimes.com/2026/05/31/world/americas/colombia-election-president-candidates.html
 
 **See the Reflecting Pool's Problems That Trump's Renovations May Not Fix**\
