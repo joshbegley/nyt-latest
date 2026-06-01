@@ -32,7 +32,7 @@ https://www.nytimes.com/2026/06/01/world/canada/canada-alberta-separation-refere
 
 **Is A.I. Replacing Tech Workers or Providing an Excuse for Job Cuts?**\
 `Tech industry layoffs are accelerating, and executives have been quick to say it’s because their companies are doing more with artificial intelligence, even when there may be more to it.`\
-https://www.nytimes.com/2026/06/01/technology/is-ai-replacing-tech-workers-or-providing-an-excuse-for-job-cuts.html
+https://www.nytimes.com/2026/06/01/technology/ai-tech-job-cuts.html
 
 **How Box Created 13 New Types of Jobs Because of A.I.**\
 `Box, a Silicon Valley software maker, expects to have more employees, not fewer, as it hires A.I. architects, A.I. solutions managers and other new A.I.-related positions.`\
