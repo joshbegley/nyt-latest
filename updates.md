@@ -1,3 +1,23 @@
+**Trump Backs Off Plan for $1.8 Billion Fund That Drew Political Backlash**\
+`The fund has drawn backlash from critics who said it was a scheme to reward President Trump’s political allies with public benefits.`\
+https://www.nytimes.com/2026/06/01/us/politics/trump-drop-weaponization-fund.html
+
+**Demonstrators Cannot Be Forced to Take Down ‘86-47’ Flag, Judge Rules**\
+`A federal judge wrote that the phrase, which also led to charges against the former F.B.I. director, James Comey, did not appear to constitute a true threat.`\
+https://www.nytimes.com/2026/06/01/us/politics/demonstrators-8647-trump-judge.html
+
+**Pentagon Bars Reporters From Its Press Office**\
+`Defense Secretary Pete Hegseth has repeatedly curtailed journalists’ access in the Pentagon.`\
+https://www.nytimes.com/2026/06/01/us/politics/pentagon-reporters-hegseth.html
+
+**Judge Decides to Keep Charlie Kirk Hearings Open to Public**\
+`Utah district judge, Tony Graf, rejected the defense’s bid to close the hearings in the Charlie Kirk murder case. The defendant, Tyler J. Robinson, is accused of fatally shooting Mr. Kirk, the conservative activist.`\
+https://www.nytimes.com/video/us/politics/100000010937289/charlie-kirk-shooting-hearing-ruling.html
+
+**Dozens Killed by Explosion in Rebel-Held Myanmar Territory**\
+`The blast occurred around noon on Sunday in Kaung Tup, a village in Shan State near the Chinese border, at a warehouse that stored explosives for mining, local officials said.`\
+https://www.nytimes.com/video/world/asia/100000010937322/myanmar-explosion-kaung-tat-village.html
+
 **Inside the Ebola Outbreak**\
 `A Times correspondent is reporting from the Ebola epicenter in the Democratic Republic of Congo. Here’s what he saw.`\
 https://www.nytimes.com/2026/06/01/world/ebola-epicenter-congo-alberta-referendum.html
