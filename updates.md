@@ -1,3 +1,11 @@
+**Death from Above**\
+`We look at U.S. boat strikes in the Caribbean Sea and eastern Pacific Ocean.`\
+https://www.nytimes.com/2026/06/01/briefing/boat-strikes.html
+
+**Iran War Live Updates: U.S. and Iran Exchange New Attacks**\
+`U.S. Central Command said it conducted strikes against military targets in southern Iran over the weekend. Kuwait, which hosts U.S. military bases, accused Iran of attacking its territory.`\
+https://www.nytimes.com/live/2026/06/01/world/iran-war-us-trump-israel-lebanon
+
 **Iran War Live Updates: U.S. and Iran Exchange New Attacks**\
 `U.S. Central Command said it attacked military targets in southern Iran over the weekend. Kuwait, which hosts U.S. military bases, accused Iran of attacking it.`\
 https://www.nytimes.com/live/2026/06/01/world/iran-war-us-trump-israel-lebanon
