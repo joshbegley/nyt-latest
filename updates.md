@@ -1,3 +1,11 @@
+**Judge Rejects Defense Request to Close Hearings in Charlie Kirk Murder Case**\
+`A Utah judge, Tony Graf, ruled against the defense’s effort to bar the public from a preliminary hearing but did restrict access to some evidence`\
+https://www.nytimes.com/2026/06/01/us/tyler-robinson-charlie-kirk-hearings-media-access.html
+
+**In the ‘Euphoria’ Finale, the HBO Show Goes Out With a Whimper**\
+`In the end, a show defined by its excesses seemed to be straining for a redemption that it didn’t need.`\
+https://www.nytimes.com/2026/06/01/arts/television/euphoria-season-3-finale-rue.html
+
 **Florida Sues OpenAI Over Chatbot Safety Concerns**\
 `The state became the first to sue the ChatGPT maker over claims that its technology posed a risk to children and that the company had failed to warn the public of dangers.`\
 https://www.nytimes.com/2026/06/01/technology/florida-sues-openai-chatgpt-safety.html

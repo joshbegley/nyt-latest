@@ -1,3 +1,11 @@
+**Judge Rejects Defense Request to Close Hearings in Charlie Kirk Murder Case**\
+`A Utah judge, Tony Graf, ruled against the defense’s effort to bar the public from a preliminary hearing but did restrict access to some evidence`\
+https://www.nytimes.com/2026/06/01/us/tyler-robinson-charlie-kirk-hearings-media-access.html
+
+**In the ‘Euphoria’ Finale, the HBO Show Goes Out With a Whimper**\
+`In the end, a show defined by its excesses seemed to be straining for a redemption that it didn’t need.`\
+https://www.nytimes.com/2026/06/01/arts/television/euphoria-season-3-finale-rue.html
+
 **Florida Sues OpenAI Over Chatbot Safety Concerns**\
 `The state became the first to sue the ChatGPT maker over claims that its technology posed a risk to children and that the company had failed to warn the public of dangers.`\
 https://www.nytimes.com/2026/06/01/technology/florida-sues-openai-chatgpt-safety.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/01/us/politics/california-redistricting-maps.htm
 **Mark and Joaquin Consuelos, Father and Son, Make Broadway Debuts Together**\
 `This spring the talk-show host and his youngest child made simultaneous debuts, three weeks and eight blocks apart.`\
 https://www.nytimes.com/2026/06/01/theater/joaquin-mark-consuelos-broadway-salesman-fallen-angels.html
-
-**Why This Summer Travel Season Will Be a Nightmare**\
-`Air travel could be disrupted into next year because of high jet fuel prices.`\
-https://www.nytimes.com/2026/06/01/opinion/summer-travel-planes.html
-
-**What’s On in London Theaters This Summer**\
-`Catherine Tate, Greek classics and plenty in between — here’s our selection of West End productions for Londoners and visitors to check out over the coming months.`\
-https://www.nytimes.com/2026/06/01/arts/west-end-london-whats-on.html
 
