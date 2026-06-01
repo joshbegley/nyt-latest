@@ -1,3 +1,15 @@
+**Florida Sues OpenAI Over Chatbot Safety Concerns**\
+`The state became the first to sue the ChatGPT maker over claims that its technology posed a risk to children and that the company had failed to warn the public of dangers.`\
+https://www.nytimes.com/2026/06/01/technology/florida-sues-openai-chatgpt-safety.html
+
+**El agente de la CIA detenido con oro trabajó con el segundo al mando del Pentágono**\
+`David Rush, funcionario de la CIA, parece haber tenido contacto por primera vez con Stephen A. Feinberg durante el primer mandato del presidente Trump. Algunos funcionarios dijeron que no eran cercanos.`\
+https://www.nytimes.com/es/2026/06/01/espanol/estados-unidos/cia-agente-oro-pentagono.html
+
+**Azniv Korkejian on Bedouine’s ‘Neon Summer Skin’**\
+`Azniv Korkejian, the recording artist known as Bedouine, turns her own nomadic history and family survival into comforting, classic folk.`\
+https://www.nytimes.com/2026/06/01/arts/music/bedouine-neon-summer-skin.html
+
 **Are We Really Too Busy? Laurie Santos on the ‘Time Crisis’**\
 `Do people have enough time to build a happy life? Are they making the right choices with the time they have? Laurie Santos, a professor at Yale, tackled those questions on “The Interview.”`\
 https://www.nytimes.com/video/podcasts/100000010937140/are-we-really-too-busy-laurie-santos-on-the-time-crisis.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/01/opinion/summer-travel-planes.html
 **What’s On in London Theaters This Summer**\
 `Catherine Tate, Greek classics and plenty in between — here’s our selection of West End productions for Londoners and visitors to check out over the coming months.`\
 https://www.nytimes.com/2026/06/01/arts/west-end-london-whats-on.html
-
-**Chinese Military Sought Nvidia Chips for Years, Report Says**\
-`An analysis of six years of procurement records suggests that the People’s Liberation Army has openly tried to acquire restricted U.S. technology.`\
-https://www.nytimes.com/2026/06/01/business/economy/china-military-nvidia-chips.html
-
-**A Whole Generation Seems to Be Using ‘POV’ Wrong**\
-`Gen Z might be using the abbreviation for “point of view” incorrectly. But linguists think it’s exciting.`\
-https://www.nytimes.com/2026/06/01/magazine/pov-gen-z-linguistics.html
-
-**Are We Supposed to Wear Socks With Sandals Now?**\
-`A teacher wonders about the etiquette rules of contemporary footwear.`\
-https://www.nytimes.com/2026/06/01/fashion/sandals-sock-style.html
 
