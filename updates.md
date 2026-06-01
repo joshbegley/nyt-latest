@@ -1,3 +1,7 @@
+**As Democrats Worry About Senate Race, Platner Attacks Reports About Sexual Messages**\
+`Graham Platner, whose contest in Maine is a key to Democrats’ hopes of winning the Senate, sought to discredit reports that he had exchanged sexual messages with women outside his marriage.`\
+https://www.nytimes.com/2026/05/31/us/politics/booker-platner-democrats-senate-midterms.html
+
 **Elecciones en Colombia: Abelardo de la Espriella e Iván Cepeda van a segunda vuelta**\
 `Abelardo de la Espriella llegó a la segunda vuelta el domingo, con el oficialista Iván Cepeda, en lo que podría anunciar otra victoria de la ola derechista que recorre América Latina.`\
 https://www.nytimes.com/es/2026/05/31/espanol/america-latina/colombia-elecciones-resultados.html

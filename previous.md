@@ -58,8 +58,8 @@ https://www.nytimes.com/video/world/europe/100000010935693/arrests-paris-saint-g
 `In Ukraine, Gaza and now Iran, President Trump’s early declarations of easy wins have given way to harsh reality.`\
 https://www.nytimes.com/2026/05/31/us/politics/trump-iran-stalemate-ukraine-gaza.html
 
-**Cory Booker Has ‘Concerns’ About Platner Revelations in Maine Senate Race**\
-`Mr. Booker and other Senate Democrats faced questions Sunday about reports that Mr. Platner’s wife previously told his campaign he had exchanged sexual messages with women outside his marriage.`\
+**As Democrats Worry About Senate Race, Platner Attacks Reports About Sexual Messages**\
+`Graham Platner, whose contest in Maine is a key to Democrats’ hopes of winning the Senate, sought to discredit reports that he had exchanged sexual messages with women outside his marriage.`\
 https://www.nytimes.com/2026/05/31/us/politics/booker-platner-democrats-senate-midterms.html
 
 **Israel Captures Beaufort Castle as It Advances Into Lebanon**\
