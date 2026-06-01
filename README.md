@@ -1,3 +1,7 @@
+**Scott Pelley Accuses CBS News Boss of ‘Murdering’ ‘60 Minutes’**\
+`In an explosive staff meeting, Mr. Pelley, a correspondent for the long-running Sunday news show, blasted Bari Weiss, the CBS editor in chief, and Nick Bilton, the show’s new executive producer.`\
+https://www.nytimes.com/2026/06/01/business/media/cbs-60-minutes-scott-pelley-nick-bilton.html
+
 **Tribeca Festival 25th Anniversary: An Interview With Robert De Niro, Jane Rosenthal, Rebecca Glashow**\
 `Robert De Niro and Jane Rosenthal, who founded the event, and Rebecca Glashow, the new leader of Tribeca Enterprises, reflected on the festival’s legacy and ambitions.`\
 https://www.nytimes.com/2026/06/01/movies/tribeca-festival-25-deniro-rosenthal-glashow.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/01/arts/television/hoyt-richards-bring-me-the-be
 **How a Recent College Graduate Lives on $18 Per Hour in the East Bronx**\
 `At 20 years old, Jaden Baldeon is trying to help his family with money from a part-time job while also thinking about what’s next.`\
 https://www.nytimes.com/interactive/2026/06/01/nyregion/nyc-budgeting-affordability-baldeon.html
-
-**Beer From George Washington’s Recipe**\
-`To celebrate the nation’s 250th birthday, the New York Public Library brewed “small beer” from a founding father’s instructions.`\
-https://www.nytimes.com/2026/06/01/nyregion/beer-from-george-washingtons-recipe.html
 

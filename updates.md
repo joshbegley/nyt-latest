@@ -1,3 +1,15 @@
+**Tribeca Festival 25th Anniversary: An Interview With Robert De Niro, Jane Rosenthal, Rebecca Glashow**\
+`Robert De Niro and Jane Rosenthal, who founded the event, and Rebecca Glashow, the new leader of Tribeca Enterprises, reflected on the festival’s legacy and ambitions.`\
+https://www.nytimes.com/2026/06/01/movies/tribeca-festival-25-deniro-rosenthal-glashow.html
+
+**Wise and Not So Wise Tips for Being Old**\
+`Readers respond to a guest essay by Roger Rosenblatt. Also: A fight spectacle at the White House.`\
+https://www.nytimes.com/2026/06/01/opinion/old-elderly.html
+
+**Edward Burns on What It’s like to Be a Tribeca Festival Veteran**\
+`The filmmaker, who is screening his ninth film at the festival, talked about the importance of Tribeca and what he has learned about sustaining an independent filmmaking career.`\
+https://www.nytimes.com/2026/06/01/movies/edward-burns-tribeca-film-festival.html
+
 **Tribeca Festival: Andre Holland’s Ability to Connect to Audiences Is on Display**\
 `The actor’s ability to connect to roles is on display in two films, “The Revisionist” and “They Fight,” premiering at this year’s Tribeca Festival.`\
 https://www.nytimes.com/2026/06/01/movies/andre-holland-tribeca-festival.html
