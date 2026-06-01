@@ -1,3 +1,7 @@
+**5 People Leave Hantavirus Quarantine in Omaha**\
+`Thirteen people remain at the facility in Nebraska. Those who returned to their home states may be under constant surveillance for three more weeks.`\
+https://www.nytimes.com/2026/06/01/us/hantavirus-quarantine-omaha-nebraska.html
+
 **Previewing California’s Primary Elections and High-Stakes Governor’s Race**\
 `The deep-blue state’s primary elections will show how angry voters are at the status quo.`\
 https://www.nytimes.com/2026/06/01/us/politics/california-primary-elections-governor-preview.html

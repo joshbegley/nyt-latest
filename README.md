@@ -1,3 +1,7 @@
+**Trump Administration to Dismantle Ocean Monitoring System**\
+`The $368 million network of instruments collecting data in both the Atlantic and Pacific has been critical to climate and ocean research.`\
+https://www.nytimes.com/2026/06/01/climate/ocean-observatories-initiative.html
+
 **5 People Leave Hantavirus Quarantine in Omaha**\
 `Thirteen people remain at the facility in Nebraska. Those who returned to their home states may be under constant surveillance for three more weeks.`\
 https://www.nytimes.com/2026/06/01/us/hantavirus-quarantine-omaha-nebraska.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/01/dining/bright-and-colorful-fish-and-lentils.h
 **It’s Never Been Easier in America to Get Buzzed**\
 `Evidence suggests that people would drink and use illegal drugs less if the prices were higher.`\
 https://www.nytimes.com/2026/06/01/opinion/illegal-drugs-cheap-prices.html
-
-**Raymond Berry, Hall of Fame Receiver for Champion Colts, Dies at 93**\
-`He was the quarterback Johnny Unitas’s secret weapon with flypaper hands, who rose — leaped, actually — to big occasions.`\
-https://www.nytimes.com/2026/06/01/sports/football/raymond-berry-dead.html
 
