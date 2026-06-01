@@ -111,7 +111,7 @@ https://www.nytimes.com/2026/06/01/world/middleeast/lebanon-hezbollah-disarm.htm
 https://www.nytimes.com/es/2026/06/01/espanol/america-latina/cumana-venezuela-decadencia.html
 
 **Book Surfaces 120 Years After a San Francisco Library Lost Almost Everything**\
-`A book of poetry that survived the catastrophic 1906 earthquake and fire has been returned to the Mechanics’ Institute Library.`\
+`A book of poetry that survived the catastrophic 1906 earthquake and fire has been returned to the Mechanics’ Institute.`\
 https://www.nytimes.com/2026/06/01/us/library-book-san-francisco-fire-returned.html
 
 **Trump’s Moves Illustrate How Much He Cares About the Midterms**\

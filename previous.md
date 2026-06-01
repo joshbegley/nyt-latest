@@ -1,3 +1,7 @@
+**Muere Brooklyn Rivera, líder indígena de Nicaragua, en custodia del gobierno de Ortega**\
+`Rivera, de 73 años, destacado dirigente miskito fue detenido por el gobierno de Nicaragua en 2023. Su familia y otros grupos cuestionan las circunstancias que rodearon su muerte.`\
+https://www.nytimes.com/es/2026/06/01/espanol/america-latina/muere-brooklyn-rivera-nicaragua-ortega.html
+
 **Today, In Short**\
 `“Euphoria.” Protein. And kidfluencers.`\
 https://www.nytimes.com/2026/06/01/briefing/today-in-short.html
@@ -28,7 +32,7 @@ https://www.nytimes.com/2026/06/01/world/canada/canada-alberta-separation-refere
 
 **Is A.I. Replacing Tech Workers or Providing an Excuse for Job Cuts?**\
 `Tech industry layoffs are accelerating, and executives have been quick to say it’s because their companies are doing more with artificial intelligence, even when there may be more to it.`\
-https://www.nytimes.com/2026/06/01/technology/is-ai-replacing-tech-workers-or-providing-an-excuse-for-job-cuts.html
+https://www.nytimes.com/2026/06/01/technology/ai-tech-job-cuts.html
 
 **How Box Created 13 New Types of Jobs Because of A.I.**\
 `Box, a Silicon Valley software maker, expects to have more employees, not fewer, as it hires A.I. architects, A.I. solutions managers and other new A.I.-related positions.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/01/realestate/kathie-lee-ken-griffey-celebrity-h
 **Bernie Sanders: A.I. Belongs to the People, Not to Billionaires**\
 `All Americans should have a stake in the future of this technology.`\
 https://www.nytimes.com/2026/06/01/opinion/artificial-intelligence-bernie-sanders.html
-
-**An Industrial Gem in Venezuela Now Embodies the Country’s Decay**\
-`Cumaná was once an economic hub, producing Toyota Land Cruisers and exporting food across South America. Now it’s on the brink of disaster as public services collapse.`\
-https://www.nytimes.com/2026/06/01/world/americas/venezuela-economy-cumana.html
 
