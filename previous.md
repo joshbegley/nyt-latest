@@ -1,3 +1,11 @@
+**Mills Reminds Maine Voters She’s ‘Still on the Ballot’ for Senate Amid Platner Controversy**\
+`A month after withdrawing from the state’s Senate race, Gov. Janet Mills suggested she remained an option after the likely Democratic nominee, Graham Platner, faced a new scandal.`\
+https://www.nytimes.com/2026/06/01/us/politics/mills-platner-maine-democratic-senate-primary.html
+
+**Dive Into a Very Noisy Sea With Some Very Rare Whales**\
+`Fewer than 100 Rice’s whales remain on Earth. Researchers say sonic blasts from oil exploration are a top threat to the species. See and hear why.`\
+https://www.nytimes.com/interactive/2026/06/01/climate/gulf-oil-gas-whale-sounds.html
+
 **Four Men Break Out of an Alabama Jail, Setting Off a Broad Dragnet**\
 `The Dallas County sheriff said they had overpowered guards. Two were recaptured Monday, but the search continued for the others.`\
 https://www.nytimes.com/2026/06/01/us/four-men-alabama-jail-escape-dallas-county.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/01/podcasts/spurs-vs-knicks-nba-finals-preview.h
 **Death from Above**\
 `We look at U.S. boat strikes in the Caribbean Sea and eastern Pacific Ocean.`\
 https://www.nytimes.com/2026/06/01/briefing/boat-strikes.html
-
-**Inside Trump’s Mad Dash to Renovate Washington**\
-`Depending on where you sit, the projects are either boldly cutting red tape or blowing through every regulation designed to protect taxpayer dollars.`\
-https://www.nytimes.com/2026/06/01/podcasts/the-daily/inside-trumps-mad-dash-to-renovate-washington.html
-
-**Inside an Ebola Ward, and a Roadblock for Trump’s $1.8 Billion Fund**\
-`Plus, the 20-year-old director with the No. 1 movie.`\
-https://www.nytimes.com/2026/06/01/podcasts/the-headlines/ebola-ward-trump-1-8-billion-fund.html
 
