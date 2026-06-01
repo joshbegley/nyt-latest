@@ -1,3 +1,7 @@
+**Can Content Creators Get Rich Off A.I. Slop Like Tung Tung Tung Sahur?**\
+`Brainrot videos are specifically designed to confuse us. They can also be a financial bonanza for their creators.`\
+https://www.nytimes.com/interactive/2026/06/01/magazine/ai-slop-viral-videos.html
+
 **Trump Backs Off Plan for $1.8 Billion Fund That Drew Political Backlash**\
 `The fund has drawn backlash from critics who said it was a scheme to reward President Trump’s political allies with public benefits.`\
 https://www.nytimes.com/2026/06/01/us/politics/trump-drop-weaponization-fund.html
