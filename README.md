@@ -11,7 +11,7 @@ https://www.nytimes.com/interactive/2026/06/01/world/italy-quake-tracker.html
 https://www.nytimes.com/2026/06/01/us/politics/trump-iran-negotiations-boring.html
 
 **Mette Frederiksen Forms New Government in Denmark**\
-`Mette Frederiksen may not be nearly as popular as she once was, but she remains the Danes' most dominant leader in decades.`\
+`Mette Frederiksen may not be nearly as popular as she once was, but she remains the Danes’ most dominant leader in decades.`\
 https://www.nytimes.com/2026/06/01/world/europe/denmark-mette-frederiksen.html
 
 **Trump Administration to Dismantle Ocean Monitoring System**\

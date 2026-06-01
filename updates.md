@@ -1,3 +1,11 @@
+**Right-Wing Officials’ Appearance at Israel Day Parade Angers Lawmakers**\
+`Parade organizers and New York lawmakers who marched in the parade sought to distance themselves from Bezalel Smotrich, a hard-line Israeli official who attended.`\
+https://www.nytimes.com/2026/06/01/nyregion/nyc-israel-parade-smotrich-mamdani.html
+
+**Map: 6.2-Magnitude Earthquake Strikes off the Coast of Italy**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/01/world/italy-quake-tracker.html
+
 **Trump Finds High-Wire Iran Negotiations ‘Very Boring’**\
 `President Trump told CNBC that he “couldn’t care less” if the negotiations with Iran break down.`\
 https://www.nytimes.com/2026/06/01/us/politics/trump-iran-negotiations-boring.html

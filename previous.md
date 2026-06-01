@@ -1,3 +1,11 @@
+**Right-Wing Officials’ Appearance at Israel Day Parade Angers Lawmakers**\
+`Parade organizers and New York lawmakers who marched in the parade sought to distance themselves from Bezalel Smotrich, a hard-line Israeli official who attended.`\
+https://www.nytimes.com/2026/06/01/nyregion/nyc-israel-parade-smotrich-mamdani.html
+
+**Map: 6.2-Magnitude Earthquake Strikes off the Coast of Italy**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/01/world/italy-quake-tracker.html
+
 **Trump Finds High-Wire Iran Negotiations ‘Very Boring’**\
 `President Trump told CNBC that he “couldn’t care less” if the negotiations with Iran break down.`\
 https://www.nytimes.com/2026/06/01/us/politics/trump-iran-negotiations-boring.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/01/science/death-jars-internment-laos.html
 **Muere Brooklyn Rivera, líder indígena de Nicaragua, en custodia del gobierno de Ortega**\
 `Rivera, de 73 años, destacado dirigente miskito fue detenido por el gobierno de Nicaragua en 2023. Su familia y otros grupos cuestionan las circunstancias que rodearon su muerte.`\
 https://www.nytimes.com/es/2026/06/01/espanol/america-latina/muere-brooklyn-rivera-nicaragua-ortega.html
-
-**Today, In Short**\
-`“Euphoria.” Protein. And kidfluencers.`\
-https://www.nytimes.com/2026/06/01/briefing/today-in-short.html
-
-**Test Your Memory of These Books That Changed the World**\
-`Try this short quiz on written works that were persuasive enough to influence American life and law.`\
-https://www.nytimes.com/interactive/2026/06/01/books/review/world-changing-books.html
 
