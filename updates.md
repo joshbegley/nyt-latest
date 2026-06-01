@@ -1,3 +1,19 @@
+**Previewing California’s Primary Elections and High-Stakes Governor’s Race**\
+`The deep-blue state’s primary elections will show how angry voters are at the status quo.`\
+https://www.nytimes.com/2026/06/01/us/politics/california-primary-elections-governor-preview.html
+
+**Trump Says Israel and Hezbollah Will Hold Off on New Military Action**\
+`A statement from Prime Minister Benjamin Netanyahu of Israel did not mention a new cease-fire, but the Lebanese government said one was taking shape.`\
+https://www.nytimes.com/2026/06/01/world/middleeast/trump-iran-israel-hezbollah.html
+
+**Minnesota Republicans Hold Moment of Silence for Derek Chauvin**\
+`Delegates to the Minnesota Republican Party’s convention voted to hold a moment of silent prayer for Derek Chauvin, who was convicted of murdering George Floyd.`\
+https://www.nytimes.com/2026/06/01/us/republicans-minnesota-derek-chauvin-george-floyd.html
+
+**Trump Backs Off Plans for $1.8 Billion Fund After Backlash**\
+`Also, Serena Williams is making a comeback. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/06/01/briefing/trump-fund-back-off-serena-williams.html
+
 **Andy Halliday, a Star of ‘Vampire Lesbians of Sodom,’ Dies at 73**\
 `A beloved member of Charles Busch’s Theater in Limbo repertory, he had an irrepressibly comic stage presence that masked a shy, tender disposition.`\
 https://www.nytimes.com/2026/06/01/arts/andy-halliday-dead.html
