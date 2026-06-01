@@ -1,3 +1,7 @@
+**The Return of Blaming and Shaming in Public Health**\
+`For years, medicine has tried to eliminate stigma. Now, Robert F. Kennedy Jr. is bringing back the language of personal responsibility.`\
+https://www.nytimes.com/2026/06/01/well/public-health-stigma-shame-rfk-jr.html
+
 **Iran War Live Updates: U.S. Military Says Iran Targeted American Forces in Kuwait**\
 `U.S. Central Command said the military intercepted two Iranian missiles overnight on Monday and no personnel were harmed. The attacks threatened to further complicate talks to end the war.`\
 https://www.nytimes.com/live/2026/06/01/world/iran-war-us-trump-israel-lebanon
