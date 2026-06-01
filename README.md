@@ -8,7 +8,7 @@ https://www.nytimes.com/2026/06/01/world/middleeast/hezbollah-israel-truce.html
 
 **Dua Lipa y Callum Turner se casan en Londres**\
 `El Old Marylebone Town Hall, uno de los lugares más concurridos del Reino Unido para celebrar bodas, ha sido el escenario de las nupcias de estrellas como Sylvester Stallone, Paul McCartney y Lena Dunham.`\
-https://www.nytimes.com/es/2026/06/01/espanol/estados-unidos/dua-lipa-callum-turner-se-casan-londres.html
+https://www.nytimes.com/es/2026/06/01/espanol/cultura/dua-lipa-callum-turner-se-casan-londres.html
 
 **I.R.A. Rebates for Appliance Swaps Could Be Phased Out**\
 `New guidance from the Energy Department would prevent people from receiving rebates after making such swaps.`\
