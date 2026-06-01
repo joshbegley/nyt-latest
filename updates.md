@@ -1,3 +1,7 @@
+**Andy Halliday, a Star of ‘Vampire Lesbians of Sodom,’ Dies at 73**\
+`A beloved member of Charles Busch’s Theater in Limbo repertory, he had an irrepressibly comic stage presence that masked a shy, tender disposition.`\
+https://www.nytimes.com/2026/06/01/arts/andy-halliday-dead.html
+
 **Can Content Creators Get Rich Off A.I. Slop Like Tung Tung Tung Sahur?**\
 `Brainrot videos are specifically designed to confuse us. They can also be a financial bonanza for their creators.`\
 https://www.nytimes.com/interactive/2026/06/01/magazine/ai-slop-viral-videos.html

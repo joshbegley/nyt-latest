@@ -1,3 +1,7 @@
+**Andy Halliday, a Star of ‘Vampire Lesbians of Sodom,’ Dies at 73**\
+`A beloved member of Charles Busch’s Theater in Limbo repertory, he had an irrepressibly comic stage presence that masked a shy, tender disposition.`\
+https://www.nytimes.com/2026/06/01/arts/andy-halliday-dead.html
+
 **Trump Backs Off Plan for $1.8 Billion Fund That Drew Political Backlash**\
 `The fund has drawn backlash from critics who said it was a scheme to reward President Trump’s political allies with public benefits.`\
 https://www.nytimes.com/2026/06/01/us/politics/trump-drop-weaponization-fund.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/01/technology/box-13-new-types-jobs-ai.html
 **Netanyahu Orders Israeli Military to Attack Beirut Suburbs**\
 `Thousands fled the southern suburbs of Lebanon’s capital after Prime Minister Benjamin Netanyahu of Israel announced the widening of the military campaign against Hezbollah.`\
 https://www.nytimes.com/2026/06/01/world/middleeast/netanyahu-israel-attack-beirut-lebanon.html
-
-**Losing Trust in Justice Dept., Judges Call Out Its Lawyers’ Behavior**\
-`The federal courts have long assumed that the government’s lawyers are trustworthy. Now judges across the country are criticizing their lack of candor.`\
-https://www.nytimes.com/2026/06/01/us/justice-department-lawyers-judges-trump.html
 
