@@ -1,3 +1,7 @@
+**‘Euphoria’ Creator Sam Levinson Explains Why This Is The End**\
+`In an exclusive interview with Popcast, ‘Euphoria’ creator, Sam Levinson, explains why he felt it was time to bring the series to a close.`\
+https://www.nytimes.com/video/podcasts/100000010933876/sam-levinson-euphoria-finale.html
+
 **Sam Levinson on Why ‘Euphoria’ Had to End This Way. For Good.**\
 `In an exclusive interview, Sam Levinson explained why he felt it was time to bring the series to a close and responded to its detractors.`\
 https://www.nytimes.com/2026/06/01/arts/television/popcast-euphoria-sam-levinson-interview.html

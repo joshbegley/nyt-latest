@@ -1,3 +1,7 @@
+**‘Euphoria’ Creator Sam Levinson Explains Why This Is The End**\
+`In an exclusive interview with Popcast, ‘Euphoria’ creator, Sam Levinson, explains why he felt it was time to bring the series to a close.`\
+https://www.nytimes.com/video/podcasts/100000010933876/sam-levinson-euphoria-finale.html
+
 **Sam Levinson on Why ‘Euphoria’ Had to End This Way. For Good.**\
 `In an exclusive interview, Sam Levinson explained why he felt it was time to bring the series to a close and responded to its detractors.`\
 https://www.nytimes.com/2026/06/01/arts/television/popcast-euphoria-sam-levinson-interview.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/31/world/americas/cuba-trash-fuel-blockade.html
 **Trump Administration Sees Striking Exodus of Legal Talent**\
 `The departure of more than 10,000 federal lawyers has left some agencies without sufficient staff and has boosted the ranks of state attorneys general offices and advocacy groups.`\
 https://www.nytimes.com/2026/05/31/us/politics/trump-administration-exodus-of-lawyers.html
-
-**Can the World Cup Help the U.S. Beer Industry Kick Its Slump?**\
-`Bars and stores are uncertain if the soccer tournament will boost beer sales. Still, the maker of Budweiser and Michelob Ultra is going all in.`\
-https://www.nytimes.com/2026/05/31/business/world-cup-beer.html
 
