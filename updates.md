@@ -1,3 +1,7 @@
+**Brooklyn Rivera, Nicaraguan Indigenous Leader, Dies in Government Custody**\
+`Brooklyn Rivera, 73, one of the most prominent Miskito political leaders in recent history, was arrested by the government in 2023. His family and other groups dispute the circumstances surrounding his death.`\
+https://www.nytimes.com/2026/06/01/world/americas/brooklyn-rivera-nicaragua-dead.html
+
 **Nvidia Has a Plan to Put Its Chips in Personal Computers**\
 `The world’s most valuable company is chasing Intel and Apple as it tries to bring A.I. agents to laptops and desktops.`\
 https://www.nytimes.com/2026/06/01/technology/nvidia-chips-personal-computers.html

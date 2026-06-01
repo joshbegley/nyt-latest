@@ -1,3 +1,7 @@
+**Brooklyn Rivera, Nicaraguan Indigenous Leader, Dies in Government Custody**\
+`Brooklyn Rivera, 73, one of the most prominent Miskito political leaders in recent history, was arrested by the government in 2023. His family and other groups dispute the circumstances surrounding his death.`\
+https://www.nytimes.com/2026/06/01/world/americas/brooklyn-rivera-nicaragua-dead.html
+
 **Nvidia Has a Plan to Put Its Chips in Personal Computers**\
 `The world’s most valuable company is chasing Intel and Apple as it tries to bring A.I. agents to laptops and desktops.`\
 https://www.nytimes.com/2026/06/01/technology/nvidia-chips-personal-computers.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/05/31/espanol/america-latina/colombia-elecciones
 **Pulling Customs From ‘Sanctuary’ City Airports Would Cause Chaos, Business Groups Say**\
 `Homeland Security Secretary Markwayne Mullin’s proposal could block hubs like Boston, New York and Los Angeles from accepting international flights.`\
 https://www.nytimes.com/2026/05/31/us/customs-airports-markwayne-mullin.html
-
-**A Festival of Black Culture With a ’90s Vibe**\
-`The brothers behind the London party organizers Recess decamped to a seaside amusement park for a two-day event channeling an earlier era of Black British nightlife.`\
-https://www.nytimes.com/2026/05/31/arts/music/recess-festival-margate-london.html
 
