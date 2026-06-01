@@ -1,3 +1,7 @@
+**Dozens Killed By Explosion in Rebel-Held Myanmar Territory**\
+`The blast occurred around noon on Sunday in Kaung Tup, a village in Shan State near the Chinese border, at a warehouse that stored explosives for mining, local officials said.`\
+https://www.nytimes.com/video/world/asia/100000010937322/myanmar-explosion-kaung-tat-village.html
+
 **Hezbollah Ally Says the Iran-Backed Group Wants a New Truce With Israel**\
 `In an interview with The Times, Nabih Berri, an influential Lebanese lawmaker close to Hezbollah, called on President Trump to broker a new cease-fire, as Israel threatened fresh attacks on a Beirut suburb.`\
 https://www.nytimes.com/2026/06/01/world/middleeast/hezbollah-israel-truce.html

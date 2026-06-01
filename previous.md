@@ -1,3 +1,7 @@
+**Dozens Killed By Explosion in Rebel-Held Myanmar Territory**\
+`The blast occurred around noon on Sunday in Kaung Tup, a village in Shan State near the Chinese border, at a warehouse that stored explosives for mining, local officials said.`\
+https://www.nytimes.com/video/world/asia/100000010937322/myanmar-explosion-kaung-tat-village.html
+
 **Hezbollah Ally Says the Iran-Backed Group Wants a New Truce With Israel**\
 `In an interview with The Times, Nabih Berri, an influential Lebanese lawmaker close to Hezbollah, called on President Trump to broker a new cease-fire, as Israel threatened fresh attacks on a Beirut suburb.`\
 https://www.nytimes.com/2026/06/01/world/middleeast/hezbollah-israel-truce.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/01/crosswords/strands-sidekick-821.html
 **Today’s Wordle Hints for June 2, 2026**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, June 2, 2026.`\
 https://www.nytimes.com/2026/06/01/crosswords/wordle-review-1809.html
-
-**UK Releases More Files About Mandelson, Ex-Diplomat With Ties to Epstein**\
-`Peter Mandelson, who was fired over his links to Jeffrey Epstein, made the claim in a letter among more than a thousand pages of documents released on Monday.`\
-https://www.nytimes.com/2026/06/01/world/europe/mandelson-files-epstein-starmer-uk.html
 
