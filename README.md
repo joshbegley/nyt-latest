@@ -179,7 +179,7 @@ https://www.nytimes.com/2026/05/31/us/customs-airports-markwayne-mullin.html
 https://www.nytimes.com/2026/05/31/arts/music/recess-festival-margate-london.html
 
 **Colombia Presidential Election Heads to a Runoff**\
-`The candidate forced a runoff on Sunday in what could herald another gain for the right-wing wave sweeping Latin America.`\
+`The candidate, Abelardo de la Espriella, will face a senator from the left-wing party of the outgoing president, Gustavo Petro, in a June runoff.`\
 https://www.nytimes.com/2026/05/31/world/americas/colombia-election-president-candidates.html
 
 **See the Reflecting Pool's Problems That Trump's Renovations May Not Fix**\
