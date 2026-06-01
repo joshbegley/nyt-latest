@@ -1,3 +1,11 @@
+**Tribeca Festival 25th Anniversary: An Interview With Robert De Niro, Jane Rosenthal, Rebecca Glashow**\
+`Robert De Niro and Jane Rosenthal, who founded the event, and Rebecca Glashow, the new leader of Tribeca Enterprises, reflected on the festival’s legacy and ambitions.`\
+https://www.nytimes.com/2026/06/01/movies/tribeca-festival-25-deniro-rosenthal-glashow.html
+
+**Wise and Not So Wise Tips for Being Old**\
+`Readers respond to a guest essay by Roger Rosenblatt. Also: A fight spectacle at the White House.`\
+https://www.nytimes.com/2026/06/01/opinion/old-elderly.html
+
 **Edward Burns on What It’s like to Be a Tribeca Festival Veteran**\
 `The filmmaker, who is screening his ninth film at the festival, talked about the importance of Tribeca and what he has learned about sustaining an independent filmmaking career.`\
 https://www.nytimes.com/2026/06/01/movies/edward-burns-tribeca-film-festival.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/06/01/nyregion/nyc-budgeting-affordabil
 **Beer From George Washington’s Recipe**\
 `To celebrate the nation’s 250th birthday, the New York Public Library brewed “small beer” from a founding father’s instructions.`\
 https://www.nytimes.com/2026/06/01/nyregion/beer-from-george-washingtons-recipe.html
-
-**Andriy Yermak, Once the Muscle Behind Zelensky, Is Now Crowdfunding Bail Money**\
-`Volodymyr Zelensky’s onetime right-hand man is accused of embezzling millions of dollars and consulting a fortuneteller on political decisions.`\
-https://www.nytimes.com/2026/06/01/world/europe/ukraine-corruption-yermak-zelensky.html
-
-**The Botched Execution of Tony Carruthers**\
-`Nothing prepared me to witness the agony that my client experienced in the execution chamber.`\
-https://www.nytimes.com/2026/06/01/opinion/botched-execution-tony-carruthers.html
 
