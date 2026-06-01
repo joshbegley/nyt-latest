@@ -1,63 +1,3 @@
-**Oil Prices Jump as Middle East Tensions Build**\
-`Some analysts said the main international oil price, which was up 6 percent on Monday, could climb much higher in the coming weeks if the Strait of Hormuz doesn’t reopen.`\
-https://www.nytimes.com/2026/06/01/business/energy-environment/iran-war-oil-prices.html
-
-**Scott Pelley Accuses CBS News Boss of ‘Murdering’ ‘60 Minutes’**\
-`In an explosive staff meeting, Mr. Pelley, a correspondent for the long-running Sunday news show, blasted Bari Weiss, the CBS editor in chief, and Nick Bilton, the show’s new executive producer.`\
-https://www.nytimes.com/2026/06/01/business/media/cbs-60-minutes-scott-pelley-nick-bilton.html
-
-**Tribeca Festival 25th Anniversary: An Interview With Robert De Niro, Jane Rosenthal, Rebecca Glashow**\
-`Robert De Niro and Jane Rosenthal, who founded the event, and Rebecca Glashow, the new leader of Tribeca Enterprises, reflected on the festival’s legacy and ambitions.`\
-https://www.nytimes.com/2026/06/01/movies/tribeca-festival-25-deniro-rosenthal-glashow.html
-
-**Wise and Not So Wise Tips for Being Old**\
-`Readers respond to a guest essay by Roger Rosenblatt. Also: A fight spectacle at the White House.`\
-https://www.nytimes.com/2026/06/01/opinion/old-elderly.html
-
-**Edward Burns on What It’s like to Be a Tribeca Festival Veteran**\
-`The filmmaker, who is screening his ninth film at the festival, talked about the importance of Tribeca and what he has learned about sustaining an independent filmmaking career.`\
-https://www.nytimes.com/2026/06/01/movies/edward-burns-tribeca-film-festival.html
-
-**Tribeca Festival: Andre Holland’s Ability to Connect to Audiences Is on Display**\
-`The actor’s ability to connect to roles is on display in two films, “The Revisionist” and “They Fight,” premiering at this year’s Tribeca Festival.`\
-https://www.nytimes.com/2026/06/01/movies/andre-holland-tribeca-festival.html
-
-**At Tribeca, a New Look at an ’80s Thriller About New York’s Gay Underground**\
-`The troubled legacy of “Cruising” is the subject of “Mineshaft: The Cruising Murders,” a documentary premiering at the Tribeca Festival.`\
-https://www.nytimes.com/2026/06/01/movies/cruising-gay-tribeca-documentary.html
-
-**Judge Rejects Defense Request to Close Hearings in Charlie Kirk Murder Case**\
-`A Utah judge, Tony Graf, ruled against the defense’s effort to bar the public from a preliminary hearing but did restrict access to some evidence.`\
-https://www.nytimes.com/2026/06/01/us/tyler-robinson-charlie-kirk-hearings-media-access.html
-
-**In the ‘Euphoria’ Finale, the HBO Show Goes Out With a Whimper**\
-`In the end, a show defined by its excesses seemed to be straining for a redemption that it didn’t need.`\
-https://www.nytimes.com/2026/06/01/arts/television/euphoria-season-3-finale-rue.html
-
-**Florida Sues OpenAI Over Chatbot Safety Concerns**\
-`The state became the first to sue the ChatGPT maker over claims that its technology posed a risk to children and that the company had failed to warn the public of dangers.`\
-https://www.nytimes.com/2026/06/01/technology/florida-sues-openai-chatgpt-safety.html
-
-**El agente de la CIA detenido con oro trabajó con el segundo al mando del Pentágono**\
-`David Rush, funcionario de la CIA, parece haber tenido contacto por primera vez con Stephen A. Feinberg durante el primer mandato del presidente Trump. Algunos funcionarios dijeron que no eran cercanos.`\
-https://www.nytimes.com/es/2026/06/01/espanol/estados-unidos/cia-agente-oro-pentagono.html
-
-**Azniv Korkejian on Bedouine’s ‘Neon Summer Skin’**\
-`Azniv Korkejian, the recording artist known as Bedouine, turns her own nomadic history and family survival into comforting, classic folk.`\
-https://www.nytimes.com/2026/06/01/arts/music/bedouine-neon-summer-skin.html
-
-**Are We Really Too Busy? Laurie Santos on the ‘Time Crisis’**\
-`Do people have enough time to build a happy life? Are they making the right choices with the time they have? Laurie Santos, a professor at Yale, tackled those questions on “The Interview.”`\
-https://www.nytimes.com/video/podcasts/100000010937140/are-we-really-too-busy-laurie-santos-on-the-time-crisis.html
-
-**Dua Lipa and Callum Turner Get Married at London’s Old Marylebone Town Hall**\
-`The Old Marylebone Town Hall, among the busiest wedding venues in Britain, has hosted nuptials for A-listers, including Sylvester Stallone, Paul McCartney and Lena Dunham.`\
-https://www.nytimes.com/2026/06/01/world/europe/dua-lipa-callum-turner-wedding-old-marylebone-town-hall.html
-
-**Hegseth Strikes Female and Black Navy Officers From Promotion List**\
-`The defense secretary’s decision to block the officers’ promotions appears driven by his anti-diversity stance rather than based on merit.`\
-https://www.nytimes.com/2026/06/01/us/politics/hegseth-navy-promotion-list.html
-
 **U.S. and Iran Trade Strikes as Thousands Flee Southern Beirut**\
 `The United States and Iran traded attacks, and Israel warned about attacks against Hezbollah in Beirut, heavily straining the fragile Middle East cease-fire on Monday.`\
 https://www.nytimes.com/video/world/middleeast/100000010936606/us-and-iran-trade-strikes-as-thousands-flee-southern-beirut-amid-israeli-threats.html
@@ -197,4 +137,64 @@ https://www.nytimes.com/2026/06/01/realestate/in-memphis-an-italianate-home-drip
 **Hoyt Richards, Former Model, on ‘Bring Me The Beauties’ and How to Escape a Cult**\
 `Richards, a globe-trotting former model, discusses “Bring Me the Beauties: A Model Cult,” a new three-part docuseries on HBO.`\
 https://www.nytimes.com/2026/06/01/arts/television/hoyt-richards-bring-me-the-beauties-model-cult-interview.html
+
+**How a Recent College Graduate Lives on $18 Per Hour in the East Bronx**\
+`At 20 years old, Jaden Baldeon is trying to help his family with money from a part-time job while also thinking about what’s next.`\
+https://www.nytimes.com/interactive/2026/06/01/nyregion/nyc-budgeting-affordability-baldeon.html
+
+**A Beer Like the One That George Washington Drank**\
+`To celebrate the nation’s 250th birthday, the New York Public Library brewed “small beer” from a founding father’s instructions.`\
+https://www.nytimes.com/2026/06/01/nyregion/beer-from-george-washingtons-recipe.html
+
+**Andriy Yermak, Once the Muscle Behind Zelensky, Is Now Crowdfunding Bail Money**\
+`Volodymyr Zelensky’s onetime right-hand man is accused of embezzling millions of dollars and consulting a fortuneteller on political decisions.`\
+https://www.nytimes.com/2026/06/01/world/europe/ukraine-corruption-yermak-zelensky.html
+
+**The Botched Execution of Tony Carruthers**\
+`Nothing prepared me to witness the agony that my client experienced in the execution chamber.`\
+https://www.nytimes.com/2026/06/01/opinion/botched-execution-tony-carruthers.html
+
+**Book Review: ‘The Man Who Read Everything: The Literary Letters of Harold Bloom’**\
+`A collection of Harold Bloom’s letters details the working life of one of America’s most influential intellects.`\
+https://www.nytimes.com/2026/06/01/books/review/harold-bloom-man-who-read-everything.html
+
+**How California’s New Congressional Map Is Reshaping Tuesday’s Primaries**\
+`The state now has just four congressional districts considered safe for Republicans, and four seen as competitive. The rest of its 52 members of Congress are all but certain to be Democrats.`\
+https://www.nytimes.com/2026/06/01/us/politics/california-redistricting-maps.html
+
+**Mark and Joaquin Consuelos, Father and Son, Make Broadway Debuts Together**\
+`This spring the talk-show host and his youngest child made simultaneous debuts, three weeks and eight blocks apart.`\
+https://www.nytimes.com/2026/06/01/theater/joaquin-mark-consuelos-broadway-salesman-fallen-angels.html
+
+**Why This Summer Travel Season Will Be a Nightmare**\
+`Air travel could be disrupted into next year because of high jet fuel prices.`\
+https://www.nytimes.com/2026/06/01/opinion/summer-travel-planes.html
+
+**What’s On in London Theaters This Summer**\
+`Catherine Tate, Greek classics and plenty in between — here’s our selection of West End productions for Londoners and visitors to check out over the coming months.`\
+https://www.nytimes.com/2026/06/01/arts/west-end-london-whats-on.html
+
+**Chinese Military Sought Nvidia Chips for Years, Report Says**\
+`An analysis of six years of procurement records suggests that the People’s Liberation Army has openly tried to acquire restricted U.S. technology.`\
+https://www.nytimes.com/2026/06/01/business/economy/china-military-nvidia-chips.html
+
+**A Whole Generation Seems to Be Using ‘POV’ Wrong**\
+`Gen Z might be using the abbreviation for “point of view” incorrectly. But linguists think it’s exciting.`\
+https://www.nytimes.com/2026/06/01/magazine/pov-gen-z-linguistics.html
+
+**Are We Supposed to Wear Socks With Sandals Now?**\
+`A teacher wonders about the etiquette rules of contemporary footwear.`\
+https://www.nytimes.com/2026/06/01/fashion/sandals-sock-style.html
+
+**China Aims A.I. at Predicting Who Could Pose a Political Risk**\
+`New research examines how a Chinese company struggled to develop its predictive surveillance technology while U.S. restrictions were in place.`\
+https://www.nytimes.com/2026/06/01/us/politics/china-ai-predicting-dissent.html
+
+**A Paralympic Champion and an Eagle Scout Give Democrats Hope in Deep-Red Iowa**\
+`Tuesday’s Senate primary features two candidates with compelling personal stories. Both have stressed their independence.`\
+https://www.nytimes.com/2026/06/01/us/politics/iowa-senate-primary-turek-wahls.html
+
+**Prized by ‘MAHA’ Influencers and Chefs Alike, Craft Flour Is on the Rise**\
+`Growing demand for fiber-rich grains is boosting the premium flour industry, which offers less processed, but pricier, alternatives to the classic grocery store brands.`\
+https://www.nytimes.com/2026/06/01/business/craft-flour-maha.html
 
