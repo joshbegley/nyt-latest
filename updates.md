@@ -1,3 +1,27 @@
+**Inside Trump’s Mad Dash to Renovate Washington**\
+`Depending on where you sit, the projects are either boldly cutting red tape or blowing through every regulation designed to protect taxpayer dollars.`\
+https://www.nytimes.com/2026/06/01/podcasts/the-daily/inside-trumps-mad-dash-to-renovate-washington.html
+
+**Inside an Ebola Ward, and a Roadblock for Trump’s $1.8 Billion Fund**\
+`Plus, the 20-year-old director with the No. 1 movie.`\
+https://www.nytimes.com/2026/06/01/podcasts/the-headlines/ebola-ward-trump-1-8-billion-fund.html
+
+**NYT Connections Answers for June 2, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, June 2, 2026.`\
+https://www.nytimes.com/2026/06/01/crosswords/connections-companion-1087.html
+
+**NYT Strands Hints for June 2, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, June 2, 2026.`\
+https://www.nytimes.com/2026/06/01/crosswords/strands-sidekick-821.html
+
+**Today’s Wordle Hints for June 2, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, June 2, 2026.`\
+https://www.nytimes.com/2026/06/01/crosswords/wordle-review-1809.html
+
+**Starmer Braces for Release of More Files About Mandelson and Epstein**\
+`The British government is to publish a second batch of documents about Prime Minister Keir Starmer’s appointment of Peter Mandelson as U.S. ambassador.`\
+https://www.nytimes.com/2026/06/01/world/europe/mandelson-files-epstein-starmer-uk.html
+
 **How Lebanon’s Best Chance to Disarm Hezbollah Failed**\
 `Lebanon’s government has long wanted the powerful militia to give up its weapons. Before the Iran war began, there were signs of progress toward that goal.`\
 https://www.nytimes.com/2026/06/01/world/middleeast/lebanon-hezbollah-disarm.html

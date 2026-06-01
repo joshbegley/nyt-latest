@@ -172,7 +172,7 @@ https://www.nytimes.com/2026/06/01/books/review/whistler-ann-patchett.html
 
 **The Return of Blaming and Shaming in Public Health**\
 `For years, medicine has tried to eliminate stigma. Now, Robert F. Kennedy Jr. is bringing back the language personal responsibility.`\
-https://www.nytimes.com/2026/06/01/well/the-return-of-blaming-and-shaming-in-public-health.html
+https://www.nytimes.com/2026/06/01/well/public-health-stigma-shame-rfk-jr.html
 
 **Iran War Live Updates: U.S. and Iran Exchange New Attacks**\
 `U.S. Central Command said it conducted a round of “self-defense strikes” on military targets in southern Iran over the weekend. Kuwait, which hosts U.S. military bases, accused Iran of attacking it.`\

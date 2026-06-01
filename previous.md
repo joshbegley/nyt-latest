@@ -1,3 +1,27 @@
+**Inside Trump’s Mad Dash to Renovate Washington**\
+`Depending on where you sit, the projects are either boldly cutting red tape or blowing through every regulation designed to protect taxpayer dollars.`\
+https://www.nytimes.com/2026/06/01/podcasts/the-daily/inside-trumps-mad-dash-to-renovate-washington.html
+
+**Inside an Ebola Ward, and a Roadblock for Trump’s $1.8 Billion Fund**\
+`Plus, the 20-year-old director with the No. 1 movie.`\
+https://www.nytimes.com/2026/06/01/podcasts/the-headlines/ebola-ward-trump-1-8-billion-fund.html
+
+**NYT Connections Answers for June 2, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, June 2, 2026.`\
+https://www.nytimes.com/2026/06/01/crosswords/connections-companion-1087.html
+
+**NYT Strands Hints for June 2, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, June 2, 2026.`\
+https://www.nytimes.com/2026/06/01/crosswords/strands-sidekick-821.html
+
+**Today’s Wordle Hints for June 2, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, June 2, 2026.`\
+https://www.nytimes.com/2026/06/01/crosswords/wordle-review-1809.html
+
+**Starmer Braces for Release of More Files About Mandelson and Epstein**\
+`The British government is to publish a second batch of documents about Prime Minister Keir Starmer’s appointment of Peter Mandelson as U.S. ambassador.`\
+https://www.nytimes.com/2026/06/01/world/europe/mandelson-files-epstein-starmer-uk.html
+
 **How Lebanon’s Best Chance to Disarm Hezbollah Failed**\
 `Lebanon’s government has long wanted the powerful militia to give up its weapons. Before the Iran war began, there were signs of progress toward that goal.`\
 https://www.nytimes.com/2026/06/01/world/middleeast/lebanon-hezbollah-disarm.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/06/01/world/syria-war-crimes-trial-austria.html
 **N.Y.C. Children May Get Up to $3,000 From City for College Accounts**\
 `The city’s current savings plan starts with $100. A City Council proposal would make the initial contributions among the highest anywhere.`\
 https://www.nytimes.com/2026/06/01/nyregion/nyc-college-savings-account-children.html
-
-**NYT Spelling Bee Answers for June 1, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/06/01/crosswords/spelling-bee-forum.html
-
-**World Cup 2026 Schedule: Where to Watch in the U.S., Canada and Mexico**\
-`The biggest party on earth is about to kick off. Here’s how to enjoy every thrilling minute.`\
-https://www.nytimes.com/interactive/2026/06/01/travel/world-cup-2026-city-guide.html
-
-**What to Watch For in the NY Primary: Key Races and Why They Matter**\
-`Congressional primaries in Manhattan, Brooklyn and beyond could test the strength of Mayor Zohran Mamdani’s socialist movement and reverberate across the country.`\
-https://www.nytimes.com/2026/06/01/nyregion/new-york-primary-midterm-elections.html
-
-**The Congressional Primary Tearing the Mamdani Coalition in Two**\
-`The Democratic battle over a House seat in New York City has reignited old tensions over gentrification, identity and who gets to define the left.`\
-https://www.nytimes.com/2026/06/01/nyregion/nyc-primary-antonio-reynoso-claire-valdez-mamdani.html
-
-**U.S. Says It Hit More Military Targets in Southern Iran**\
-`The U.S. military said it carried out ‘self-defense strikes’ over the weekend. Iran’s military said it had targeted a military base in retaliation for an American strike.`\
-https://www.nytimes.com/2026/06/01/world/middleeast/us-strikes-iran-goruk-qeshm.html
-
-**Oil Prices Jump as U.S. and Iran Exchange Fire**\
-`Oil prices climbed as investors weighed a renewed exchange of military strikes between the United States and Iran against signs that both sides remain engaged in negotiations.`\
-https://www.nytimes.com/2026/06/01/business/oil-gas-price-iran.html
 
