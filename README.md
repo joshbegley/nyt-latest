@@ -1,3 +1,7 @@
+**Iran War Live Updates: U.S. and Iran Exchange New Attacks**\
+`U.S. Central Command said it conducted a round of “self-defense strikes” on military targets in southern Iran over the weekend. Iran’s military later said it had targeted a base in retaliation.`\
+https://www.nytimes.com/live/2026/06/01/world/iran-war-us-trump-israel-lebanon
+
 **Dozens Killed as Explosion Flattens Rebel-Held Village in Myanmar**\
 `The local authorities said the cause was an accident at a warehouse that held explosives for mining operations.`\
 https://www.nytimes.com/2026/06/01/world/asia/myanmar-explosion-blast-warehouse-deaths.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/31/us/politics/trumps-military-wars.html
 **‘Othello’ Review: Wendell Pierce Steps Into Iago’s Twisted Web**\
 `This production in the nation’s capital, with an enticingly opaque Iago, attempts to make Shakespeare’s tragedy relevant to our age of conspiracies.`\
 https://www.nytimes.com/2026/05/31/theater/othello-review-wendell-pierce.html
-
-**Grilled Za’atar Chicken, Lemon Sorbet and More Alfresco Daydreams**\
-`After a long stretch of dining out on the road, I’m fantasizing about enjoying these recipes at home, in the fresh air.`\
-https://www.nytimes.com/2026/05/31/dining/grilled-zaatar-chicken-lemon-sorbet-and-more-alfresco-daydreams.html
 
