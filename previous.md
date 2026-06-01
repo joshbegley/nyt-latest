@@ -1,5 +1,5 @@
 **Giant Stone Urns Hint at the Death Rites of a Lost People in Laos**\
-`Hundreds of mysterious containers lie scattered across northern Laos. These “death jars” may have provided a form of communal interment, archaeologists reported.`\
+`Thousands of mysterious containers lie scattered across northern Laos. These “death jars” may have provided a form of communal interment, archaeologists reported.`\
 https://www.nytimes.com/2026/06/01/science/death-jars-internment-laos.html
 
 **Muere Brooklyn Rivera, líder indígena de Nicaragua, en custodia del gobierno de Ortega**\
