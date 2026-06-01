@@ -7,7 +7,7 @@ https://www.nytimes.com/2026/06/01/us/politics/mills-platner-maine-democratic-se
 https://www.nytimes.com/interactive/2026/06/01/climate/gulf-oil-gas-whale-sounds.html
 
 **Four Men Break Out of an Alabama Jail, Setting Off a Broad Dragnet**\
-`The Dallas County sheriff said they had overpowered guards. Two were recaptured Monday, but the search continued for the others.`\
+`The Dallas County sheriff said they had overpowered guards. Two were recaptured by Monday, but the search continued for the others.`\
 https://www.nytimes.com/2026/06/01/us/four-men-alabama-jail-escape-dallas-county.html
 
 **Esto dicen los votantes de Trump sobre el precio de la gasolina**\
