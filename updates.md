@@ -1,3 +1,7 @@
+**Losing Trust in Justice Dept., Judges Call Out Its Lawyers’ Behavior**\
+`The federal courts have long assumed that the government’s lawyers are trustworthy. Now judges across the country are criticizing their lack of candor.`\
+https://www.nytimes.com/2026/06/01/us/justice-department-lawyers-judges-trump.html
+
 **UK Releases More Files About Mandelson, Ex-Diplomat With Ties to Epstein**\
 `A second batch of documents about the former U.S. ambassador Peter Mandelson, who was fired over his links to Jeffrey Epstein, was published on Monday.`\
 https://www.nytimes.com/2026/06/01/world/europe/mandelson-files-epstein-starmer-uk.html

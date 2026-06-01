@@ -1,3 +1,7 @@
+**Losing Trust in Justice Dept., Judges Call Out Its Lawyers’ Behavior**\
+`The federal courts have long assumed that the government’s lawyers are trustworthy. Now judges across the country are criticizing their lack of candor.`\
+https://www.nytimes.com/2026/06/01/us/justice-department-lawyers-judges-trump.html
+
 **33 Fun Things to Do in N.Y.C. in June**\
 `This month brings an improv all-nighter, James Taylor, “Fraggle Rock” and Puerto Rican pride.`\
 https://www.nytimes.com/2026/06/01/arts/fun-things-to-do-nyc-june.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/01/well/jeffrey-epstein-sperm-cryobank.html
 **Could Talarico’s Religious Approach Win Texas?**\
 `James Talarico, the Democrat running for U.S. Senate in Texas, has connected his political positions to his Christian faith. Our religion reporter Ruth Graham discusses how his perspective differs from the politically conservative Christianity dominant in Republican politics in Texas.`\
 https://www.nytimes.com/video/us/politics/100000010887861/could-talaricos-religious-approach-win-texas.html
-
-**Are Texans Ready for Talarico’s Kind of Christianity?**\
-`Jim Rigby, a pastor who rarely uses the word “God,” is a key to understanding the Senate candidate trying to pull off something unusual in Texas.`\
-https://www.nytimes.com/2026/06/01/us/politics/james-talarico-christian.html
 

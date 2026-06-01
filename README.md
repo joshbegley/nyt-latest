@@ -1,3 +1,7 @@
+**Netanyahu Orders Israeli Military to Attack Beirut Suburbs**\
+`Thousands fled the southern suburbs of Lebanon’s capital after Prime Minister Benjamin Netanyahu of Israel announced the widening of the military campaign against Hezbollah.`\
+https://www.nytimes.com/2026/06/01/world/middleeast/netanyahu-israel-attack-beirut-lebanon.html
+
 **Losing Trust in Justice Dept., Judges Call Out Its Lawyers’ Behavior**\
 `The federal courts have long assumed that the government’s lawyers are trustworthy. Now judges across the country are criticizing their lack of candor.`\
 https://www.nytimes.com/2026/06/01/us/justice-department-lawyers-judges-trump.html
@@ -55,7 +59,7 @@ https://www.nytimes.com/2026/06/01/crosswords/strands-sidekick-821.html
 https://www.nytimes.com/2026/06/01/crosswords/wordle-review-1809.html
 
 **UK Releases More Files About Mandelson, Ex-Diplomat With Ties to Epstein**\
-`A second batch of documents about the former U.S. ambassador Peter Mandelson, who was fired over his links to Jeffrey Epstein, was published on Monday.`\
+`Peter Mandelson, who was fired over his links to Jeffrey Epstein, made the claim in a letter that was revealed in more than a thousand pages of documents released on Monday.`\
 https://www.nytimes.com/2026/06/01/world/europe/mandelson-files-epstein-starmer-uk.html
 
 **How Lebanon’s Best Chance to Disarm Hezbollah Failed**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/01/style/joana-avillez-joseph-mitchell-illustrat
 **Jeffrey Epstein’s Sperm May Have Survived Him**\
 `Mr. Epstein banked his sperm several years before his death and said that if he died, it should be left in the control of his estate.`\
 https://www.nytimes.com/2026/06/01/well/jeffrey-epstein-sperm-cryobank.html
-
-**Could Talarico’s Religious Approach Win Texas?**\
-`James Talarico, the Democrat running for U.S. Senate in Texas, has connected his political positions to his Christian faith. Our religion reporter Ruth Graham discusses how his perspective differs from the politically conservative Christianity dominant in Republican politics in Texas.`\
-https://www.nytimes.com/video/us/politics/100000010887861/could-talaricos-religious-approach-win-texas.html
 
