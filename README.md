@@ -1,3 +1,7 @@
+**5 People Leave Hantavirus Quarantine in Omaha**\
+`Thirteen people remain at the facility in Nebraska. Those who returned to their home states may be under constant surveillance for three more weeks.`\
+https://www.nytimes.com/2026/06/01/us/hantavirus-quarantine-omaha-nebraska.html
+
 **Previewing California’s Primary Elections and High-Stakes Governor’s Race**\
 `The deep-blue state’s primary elections will show how angry voters are at the status quo.`\
 https://www.nytimes.com/2026/06/01/us/politics/california-primary-elections-governor-preview.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/01/opinion/illegal-drugs-cheap-prices.html
 **Raymond Berry, Hall of Fame Receiver for Champion Colts, Dies at 93**\
 `He was the quarterback Johnny Unitas’s secret weapon with flypaper hands, who rose — leaped, actually — to big occasions.`\
 https://www.nytimes.com/2026/06/01/sports/football/raymond-berry-dead.html
-
-**Britain Denies Entry to Hasan Piker and Cenk Uygur**\
-`The authorities did not say why they had barred Cenk Uygur and Hasan Piker, who have popular social media channels, but said their presence “may not be conducive to the public good.”`\
-https://www.nytimes.com/2026/06/01/world/europe/uk-hasan-piker-cenk-uygur-visa-israel.html
 
