@@ -1,3 +1,7 @@
+**Hezbollah Ally Says the Iran-Backed Group Wants a New Truce With Israel**\
+`In an interview with The Times, Nabih Berri, an influential Lebanese lawmaker close to Hezbollah, called on President Trump to broker a new cease-fire, as Israel threatened fresh attacks on a Beirut suburb.`\
+https://www.nytimes.com/2026/06/01/world/middleeast/hezbollah-israel-truce.html
+
 **Dua Lipa y Callum Turner se casan en Londres**\
 `El Old Marylebone Town Hall, uno de los lugares más concurridos del Reino Unido para celebrar bodas, ha sido el escenario de las nupcias de estrellas como Sylvester Stallone, Paul McCartney y Lena Dunham.`\
 https://www.nytimes.com/es/2026/06/01/espanol/estados-unidos/dua-lipa-callum-turner-se-casan-londres.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/01/crosswords/wordle-review-1809.html
 **UK Releases More Files About Mandelson, Ex-Diplomat With Ties to Epstein**\
 `Peter Mandelson, who was fired over his links to Jeffrey Epstein, made the claim in a letter among more than a thousand pages of documents released on Monday.`\
 https://www.nytimes.com/2026/06/01/world/europe/mandelson-files-epstein-starmer-uk.html
-
-**How Lebanon’s Best Chance to Disarm Hezbollah Failed**\
-`Lebanon’s government has long wanted the powerful militia to give up its weapons. Before the Iran war began, there were signs of progress toward that goal.`\
-https://www.nytimes.com/2026/06/01/world/middleeast/lebanon-hezbollah-disarm.html
 
