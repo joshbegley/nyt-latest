@@ -1,3 +1,19 @@
+**Florida Sues OpenAI Over Chatbot Safety Concerns**\
+`The state became the first to sue the ChatGPT maker over claims that its technology posed a risk to children and that the company had failed to warn the public of dangers.`\
+https://www.nytimes.com/2026/06/01/technology/florida-sues-openai-chatgpt-safety.html
+
+**El agente de la CIA detenido con oro trabajó con el segundo al mando del Pentágono**\
+`David Rush, funcionario de la CIA, parece haber tenido contacto por primera vez con Stephen A. Feinberg durante el primer mandato del presidente Trump. Algunos funcionarios dijeron que no eran cercanos.`\
+https://www.nytimes.com/es/2026/06/01/espanol/estados-unidos/cia-agente-oro-pentagono.html
+
+**Azniv Korkejian on Bedouine’s ‘Neon Summer Skin’**\
+`Azniv Korkejian, the recording artist known as Bedouine, turns her own nomadic history and family survival into comforting, classic folk.`\
+https://www.nytimes.com/2026/06/01/arts/music/bedouine-neon-summer-skin.html
+
+**Anthropic Files to Go Public, Setting Stage for Huge I.P.O.**\
+`The artificial intelligence company, which is racing rival OpenAI to the stock market, has seen explosive growth over the last year thanks largely to technology that can automatically write computer code.`\
+https://www.nytimes.com/2026/06/01/technology/anthropic-ipo.html
+
 **Are We Really Too Busy? Laurie Santos on the ‘Time Crisis’**\
 `Do people have enough time to build a happy life? Are they making the right choices with the time they have? Laurie Santos, a professor at Yale, tackled those questions on “The Interview.”`\
 https://www.nytimes.com/video/podcasts/100000010937140/are-we-really-too-busy-laurie-santos-on-the-time-crisis.html
