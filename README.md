@@ -1,3 +1,7 @@
+**33 Fun Things to Do in N.Y.C. in June**\
+`This month brings an improv all-nighter, James Taylor, “Fraggle Rock” and Puerto Rican pride.`\
+https://www.nytimes.com/2026/06/01/arts/fun-things-to-do-nyc-june.html
+
 **Ex-F.B.I. Officials Form New Group to Help Agents Grapple With Patel’s Changes**\
 `The F.B.I. Support Network offers legal, mental health and job search services to current agency employees. Its founders say the work force is incredibly strained under Kash Patel.`\
 https://www.nytimes.com/2026/06/01/us/politics/fbi-support-network-agents-trump-patel.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/politics/100000010887861/could-talaricos-religi
 **Are Texans Ready for Talarico’s Kind of Christianity?**\
 `Jim Rigby, a pastor who rarely uses the word “God,” is a key to understanding the Senate candidate trying to pull off something unusual in Texas.`\
 https://www.nytimes.com/2026/06/01/us/politics/james-talarico-christian.html
-
-**Book Review: ‘Whistler,’ by Ann Patchett**\
-`In “Whistler,” a surprise encounter at the Met changes the course of their lives.`\
-https://www.nytimes.com/2026/06/01/books/review/whistler-ann-patchett.html
 
