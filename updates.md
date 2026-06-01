@@ -1,3 +1,7 @@
+**Syrian Officers Who Hid in Plain Sight Face War Crime Charges in Austria**\
+`The trial, Austria’s first against Assad regime officials, will be a rare chance for Syrian witnesses to confront two men they have accused of torture.`\
+https://www.nytimes.com/2026/06/01/world/syria-war-crimes-trial-austria.html
+
 **Taiwan Criticizes China’s Expulsion of New York Times Reporter**\
 `The Taiwan president’s spokeswoman said China used “baseless pretexts” to punish journalists, which she called evidence that Beijing was a “troublemaker.”`\
 https://www.nytimes.com/2026/06/01/world/asia/taiwan-china-new-york-times-expulsion.html

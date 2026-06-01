@@ -1,3 +1,7 @@
+**Syrian Officers Who Hid in Plain Sight Face War Crime Charges in Austria**\
+`The trial, Austria’s first against Assad regime officials, will be a rare chance for Syrian witnesses to confront two men they have accused of torture.`\
+https://www.nytimes.com/2026/06/01/world/syria-war-crimes-trial-austria.html
+
 **N.Y.C. Children May Get Up to $3,000 From City for College Accounts**\
 `The city’s current savings plan starts with $100. A City Council proposal would make the initial contributions among the highest anywhere.`\
 https://www.nytimes.com/2026/06/01/nyregion/nyc-college-savings-account-children.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/31/dining/dijon-chicken-tomatoes-and-scallions.h
 **How Should You Use A.I. Ethically?**\
 `The response to Pope Leo’s encyclical on A.I. was intense, a sign of an acute hunger for moral direction.`\
 https://www.nytimes.com/2026/05/31/briefing/pope-leo-encyclical-ai-ethics.html
-
-**The Barriers to Building More Housing**\
-`Readers respond to an editorial about the need for more affordable housing. Also: El Niño and famine; Luke Morrison’s military museum.`\
-https://www.nytimes.com/2026/05/31/opinion/affordable-housing.html
 
