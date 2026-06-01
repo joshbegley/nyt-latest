@@ -1,3 +1,15 @@
+**Crested Ibises Get the Royal Treatment in Japan as They Fly Again**\
+`Once widespread in Japan, the colorful birds went from being fairly commonplace in the country to being on the verge of extinction.`\
+https://www.nytimes.com/2026/06/01/world/asia/japan-crested-ibis.html
+
+**California Prepares for Governor Primary Race**\
+`On Tuesday, Californians will head to the polls to vote in the state’s primary election for governor and other offices. There are dozens of candidates for governor, but one Republican and a couple of Democrats have risen to the top of the polls.`\
+https://www.nytimes.com/video/us/elections/100000010937083/california-governor-primary-election.html
+
+**Hegseth Strikes Female and Black Navy Officers From Promotion List**\
+`The defense secretary’s decision to block the officers’ promotions appears driven by his anti-woke stance rather than based on merit.`\
+https://www.nytimes.com/2026/06/01/us/politics/hegseth-navy-promotion-list.html
+
 **Trump Stands to Gain a Key Ally in Colombia’s Upcoming Election**\
 `Abelardo De La Espriella, a hard-line candidate on the right facing a left-wing rival in a presidential runoff, has pledged to crush drug traffickers.`\
 https://www.nytimes.com/2026/06/01/world/trump-colombia-election-abelardo-de-la-espriella.html
