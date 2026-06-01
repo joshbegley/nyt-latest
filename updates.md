@@ -1,3 +1,7 @@
+**Elecciones en Colombia: Abelardo de la Espriella e Iván Cepeda van a segunda vuelta**\
+`Abelardo de la Espriella llegó a la segunda vuelta el domingo, con el oficialista Iván Cepeda, en lo que podría anunciar otra victoria de la ola derechista que recorre América Latina.`\
+https://www.nytimes.com/es/2026/05/31/espanol/america-latina/elecciones-presidenciales-colombia-candidatos.html
+
 **‘And Then the Rodeo Burned Down’ Review: Tenderness as Transgression**\
 `In their Off Broadway debut at Ars Nova, Xhloe and Natasha play two rodeo clowns, until the lights go out and the show takes a turn.`\
 https://www.nytimes.com/2026/05/31/theater/and-then-the-rodeo-burned-down-review.html

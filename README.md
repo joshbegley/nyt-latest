@@ -144,7 +144,7 @@ https://www.nytimes.com/2026/05/31/crosswords/wordle-review-1808.html
 
 **Elecciones en Colombia: Abelardo de la Espriella e Iván Cepeda van a segunda vuelta**\
 `Abelardo de la Espriella llegó a la segunda vuelta el domingo, con el oficialista Iván Cepeda, en lo que podría anunciar otra victoria de la ola derechista que recorre América Latina.`\
-https://www.nytimes.com/es/2026/05/31/espanol/america-latina/elecciones-presidenciales-colombia-candidatos.html
+https://www.nytimes.com/es/2026/05/31/espanol/america-latina/colombia-elecciones-resultados.html
 
 **Pulling Customs From ‘Sanctuary’ City Airports Would Cause Chaos, Business Groups Say**\
 `Homeland Security Secretary Markwayne Mullin’s proposal could block hubs like Boston, New York and Los Angeles from accepting international flights.`\
