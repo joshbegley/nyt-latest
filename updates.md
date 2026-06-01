@@ -1,3 +1,11 @@
+**Raymond Berry, Hall of Fame Receiver for Champion Colts, Dies at 93**\
+`He was the quarterback Johnny Unitas’s secret weapon with flypaper hands, who rose — leaped, actually — to big occasions.`\
+https://www.nytimes.com/2026/06/01/sports/football/raymond-berry-dead.html
+
+**Britain Denies Entry to Hasan Piker and Cenk Uygur**\
+`The authorities did not say why they had barred Cenk Uygur and Hasan Piker, who have popular social media channels, but said their presence “may not be conducive to the public good.”`\
+https://www.nytimes.com/2026/06/01/world/europe/uk-hasan-piker-cenk-uygur-visa-israel.html
+
 **Alberta’s Movement to Separate from Canada Gets Its Moment**\
 `In October, Albertans will get to say if they want to stay in Canada, or hold a referendum to leave. Will it settle the matter, or deepen the rift?`\
 https://www.nytimes.com/2026/06/01/world/canada/canada-alberta-separation-referendum-vote.html
