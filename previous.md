@@ -1,3 +1,7 @@
+**How Lebanon’s Best Chance to Disarm Hezbollah Failed**\
+`Lebanon’s government has long wanted the powerful militia to give up its weapons. Before the Iran war began, there were signs of progress toward that goal.`\
+https://www.nytimes.com/2026/06/01/world/middleeast/lebanon-hezbollah-disarm.html
+
 **De joya industrial a ruinas: una ciudad revela la decadencia de Venezuela**\
 `Cumaná fue una vez un centro económico, que producía Toyota Land Cruisers y exportaba alimentos a toda Sudamérica. Ahora está al borde del desastre debido al colapso de los servicios públicos.`\
 https://www.nytimes.com/es/2026/06/01/espanol/america-latina/de-joya-industrial-a-ruinas-una-ciudad-revela-la-decadencia-de-venezuela.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/01/world/middleeast/us-strikes-iran-goruk-qeshm.
 **Oil Prices Jump as U.S. and Iran Exchange Fire**\
 `Oil prices climbed as investors weighed a renewed exchange of military strikes between the United States and Iran against signs that both sides remain engaged in negotiations.`\
 https://www.nytimes.com/2026/06/01/business/oil-gas-price-iran.html
-
-**Taiwan Criticizes China’s Expulsion of New York Times Reporter**\
-`The Taiwan president’s spokeswoman said China used “baseless pretexts” to punish journalists, which she called evidence that Beijing was a “troublemaker.”`\
-https://www.nytimes.com/2026/06/01/world/asia/taiwan-china-new-york-times-expulsion.html
 
