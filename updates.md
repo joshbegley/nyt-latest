@@ -1,3 +1,7 @@
+**Hezbollah Ally Says the Iran-Backed Group Wants a New Truce With Israel**\
+`In an interview with The Times, Nabih Berri, an influential Lebanese lawmaker close to Hezbollah, called on President Trump to broker a new cease-fire.`\
+https://www.nytimes.com/2026/06/01/world/middleeast/hezbollah-israel-truce.html
+
 **Marilyn Monroe Fans Descended on Palm Springs For Her 100th Birthday**\
 `To honor her centennial, over 1,000 Marilyn Monroe fans came together to dress as the screen legend in Palm Springs, where her Hollywood career began.`\
 https://www.nytimes.com/2026/06/01/style/marilyn-monroe-100th-birthday.html
