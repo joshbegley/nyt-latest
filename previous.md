@@ -1,3 +1,11 @@
+**Far-Right Candidate Advances to Runoff in Colombia’s Presidential Election**\
+`Abelardo De La Espriella, a right-wing outsider, will face Iván Cepeda, a progressive senator, in Colombia’s presidential election runoff.`\
+https://www.nytimes.com/video/world/americas/100000010936340/colombia-election-results-runoff.html
+
+**Después de la deportación: una familia de Colombia se despide del sueño americano**\
+`¿Qué ocurre con los cientos de miles de personas que han sido enviadas de vuelta a los lugares que desesperadamente querían dejar atrás?`\
+https://www.nytimes.com/es/interactive/2026/06/01/espanol/ee-uu-deportacion-familia-colombia.html
+
 **Syrian Officers Who Hid in Plain Sight Face War Crime Charges in Austria**\
 `The trial, Austria’s first against Assad regime officials, will be a rare chance for Syrian witnesses to confront two men they have accused of torture.`\
 https://www.nytimes.com/2026/06/01/world/syria-war-crimes-trial-austria.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/05/31/dining/grilled-zaatar-chicken-lemon-sorbet-an
 **Israel Captures Crusader Castle That Symbolized Its Long Lebanon Occupation**\
 `The seizure of Beaufort in southern Lebanon called up bitter memories in both countries amid a widening Israeli conflict with Hezbollah that seems far from over.`\
 https://www.nytimes.com/2026/05/31/world/middleeast/israel-lebanon-beaufort-iran.html
-
-**Dijon Chicken, Tomatoes and Scallions**\
-`And more recipes to harness a fresh jar of eye-watering-in-a-good-way mustard.`\
-https://www.nytimes.com/2026/05/31/dining/dijon-chicken-tomatoes-and-scallions.html
-
-**How Should You Use A.I. Ethically?**\
-`The response to Pope Leo’s encyclical on A.I. was intense, a sign of an acute hunger for moral direction.`\
-https://www.nytimes.com/2026/05/31/briefing/pope-leo-encyclical-ai-ethics.html
 

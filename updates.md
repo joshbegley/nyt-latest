@@ -1,3 +1,11 @@
+**Far-Right Candidate Advances to Runoff in Colombia’s Presidential Election**\
+`Abelardo De La Espriella, a right-wing outsider, will face Iván Cepeda, a progressive senator, in Colombia’s presidential election runoff.`\
+https://www.nytimes.com/video/world/americas/100000010936340/colombia-election-results-runoff.html
+
+**Después de la deportación: una familia de Colombia se despide del sueño americano**\
+`¿Qué ocurre con los cientos de miles de personas que han sido enviadas de vuelta a los lugares que desesperadamente querían dejar atrás?`\
+https://www.nytimes.com/es/interactive/2026/06/01/espanol/ee-uu-deportacion-familia-colombia.html
+
 **Germany Has Lost What It Did Best**\
 `The economy is in a terrible mess.`\
 https://www.nytimes.com/2026/06/01/opinion/germany-economy-merz-trump.html

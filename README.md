@@ -1,3 +1,7 @@
+**Dozens Killed as Explosion Flattens Rebel-Held Village in Myanmar**\
+`The local authorities said the cause was an accident at a warehouse that held explosives for mining operations.`\
+https://www.nytimes.com/2026/06/01/world/asia/myanmar-explosion-blast-warehouse-deaths.html
+
 **Far-Right Candidate Advances to Runoff in Colombia’s Presidential Election**\
 `Abelardo De La Espriella, a right-wing outsider, will face Iván Cepeda, a progressive senator, in Colombia’s presidential election runoff.`\
 https://www.nytimes.com/video/world/americas/100000010936340/colombia-election-results-runoff.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/31/theater/othello-review-wendell-pierce.html
 **Grilled Za’atar Chicken, Lemon Sorbet and More Alfresco Daydreams**\
 `After a long stretch of dining out on the road, I’m fantasizing about enjoying these recipes at home, in the fresh air.`\
 https://www.nytimes.com/2026/05/31/dining/grilled-zaatar-chicken-lemon-sorbet-and-more-alfresco-daydreams.html
-
-**Israel Captures Crusader Castle That Symbolized Its Long Lebanon Occupation**\
-`The seizure of Beaufort in southern Lebanon called up bitter memories in both countries amid a widening Israeli conflict with Hezbollah that seems far from over.`\
-https://www.nytimes.com/2026/05/31/world/middleeast/israel-lebanon-beaufort-iran.html
 
