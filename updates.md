@@ -1,3 +1,7 @@
+**Iran War Live Updates: U.S. and Iran Exchange New Attacks**\
+`U.S. Central Command said it conducted a round of “self-defense strikes” on military targets in southern Iran over the weekend. Kuwait, which hosts U.S. military bases, accused Iran of attacking it.`\
+https://www.nytimes.com/live/2026/06/01/world/iran-war-us-trump-israel-lebanon
+
 **De joya industrial a ruinas: una ciudad revela la decadencia de Venezuela**\
 `Cumaná fue una vez un centro económico, que producía Toyota Land Cruisers y exportaba alimentos a toda Sudamérica. Ahora está al borde del desastre debido al colapso de los servicios públicos.`\
 https://www.nytimes.com/es/2026/06/01/espanol/america-latina/de-joya-industrial-a-ruinas-una-ciudad-revela-la-decadencia-de-venezuela.html
