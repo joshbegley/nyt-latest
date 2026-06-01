@@ -1,3 +1,11 @@
+**Marilyn Monroe Fans Descended on Palm Springs For Her 100th Birthday**\
+`To honor her centennial, over 1,000 Marilyn Monroe fans came together to dress as the screen legend in Palm Springs, where her Hollywood career began.`\
+https://www.nytimes.com/2026/06/01/style/marilyn-monroe-100th-birthday.html
+
+**Dua Lipa y Callum Turner se casan en Londres**\
+`El Old Marylebone Town Hall, uno de los lugares más concurridos del Reino Unido para celebrar bodas, ha sido el escenario de las nupcias de estrellas como Sylvester Stallone, Paul McCartney y Lena Dunham.`\
+https://www.nytimes.com/es/2026/06/01/espanol/cultura/dua-lipa-callum-turner-se-casan-londres.html
+
 **Dozens Killed By Explosion in Rebel-Held Myanmar Territory**\
 `The blast occurred around noon on Sunday in Kaung Tup, a village in Shan State near the Chinese border, at a warehouse that stored explosives for mining, local officials said.`\
 https://www.nytimes.com/video/world/asia/100000010937322/myanmar-explosion-kaung-tat-village.html
