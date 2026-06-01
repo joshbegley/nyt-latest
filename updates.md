@@ -1,3 +1,23 @@
+**Sam Levinson on Why ‘Euphoria’ Had to End This Way. For Good.**\
+`In an exclusive interview, Sam Levinson explained why he felt it was time to bring the series to a close and responded to its detractors.`\
+https://www.nytimes.com/2026/06/01/arts/television/popcast-euphoria-sam-levinson-interview.html
+
+**‘Euphoria’ Creator Sam Levinson Explains Why This Is The End**\
+`In an exclusive interview with Popcast, Sam Levinson explains why he felt it was time to bring the series to a close and responded to its detractors.`\
+https://www.nytimes.com/video/podcasts/100000010933875/euphoria-finale-sam-levinson.html
+
+**How an Act of Vandalism Helped a Dissident Find His Voice**\
+`Li Ying, known as Teacher Li to his 2.2 million followers on X, doesn’t live in China but still faces smear campaigns and death threats. He is not letting that stop him.`\
+https://www.nytimes.com/2026/06/01/business/teacher-li-transnational-repression.html
+
+**No Corrections: June 1, 2026**\
+`No corrections appeared in print on Monday, June 1, 2026.`\
+https://www.nytimes.com/2026/06/01/corrections/no-corrections-june-1-2026.html
+
+**Quote of the Day: Garbage Trucks Have No Fuel, Worsening Cuba’s Trouble With Trash**\
+`Quotation of the Day for Monday, June 1, 2026.`\
+https://www.nytimes.com/2026/06/01/pageoneplus/quote-of-the-day-garbage-trucks-have-no-fuel-worsening-cubas-trouble-with-trash.html
+
 **As Democrats Worry About Senate Race, Platner Attacks Reports About Sexual Messages**\
 `Graham Platner, whose contest in Maine is a key to Democrats’ hopes of winning the Senate, sought to discredit reports that he had exchanged sexual messages with women outside his marriage.`\
 https://www.nytimes.com/2026/05/31/us/politics/booker-platner-democrats-senate-midterms.html

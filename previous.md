@@ -1,3 +1,23 @@
+**Sam Levinson on Why ‘Euphoria’ Had to End This Way. For Good.**\
+`In an exclusive interview, Sam Levinson explained why he felt it was time to bring the series to a close and responded to its detractors.`\
+https://www.nytimes.com/2026/06/01/arts/television/popcast-euphoria-sam-levinson-interview.html
+
+**‘Euphoria’ Creator Sam Levinson Explains Why This Is The End**\
+`In an exclusive interview with Popcast, Sam Levinson explains why he felt it was time to bring the series to a close and responded to its detractors.`\
+https://www.nytimes.com/video/podcasts/100000010933875/euphoria-finale-sam-levinson.html
+
+**How an Act of Vandalism Helped a Dissident Find His Voice**\
+`Li Ying, known as Teacher Li to his 2.2 million followers on X, doesn’t live in China but still faces smear campaigns and death threats. He is not letting that stop him.`\
+https://www.nytimes.com/2026/06/01/business/teacher-li-transnational-repression.html
+
+**No Corrections: June 1, 2026**\
+`No corrections appeared in print on Monday, June 1, 2026.`\
+https://www.nytimes.com/2026/06/01/corrections/no-corrections-june-1-2026.html
+
+**Quote of the Day: Garbage Trucks Have No Fuel, Worsening Cuba’s Trouble With Trash**\
+`Quotation of the Day for Monday, June 1, 2026.`\
+https://www.nytimes.com/2026/06/01/pageoneplus/quote-of-the-day-garbage-trucks-have-no-fuel-worsening-cubas-trouble-with-trash.html
+
 **‘And Then the Rodeo Burned Down’ Review: Tenderness as Transgression**\
 `In their Off Broadway debut at Ars Nova, Xhloe and Natasha play two rodeo clowns, until the lights go out and the show takes a turn.`\
 https://www.nytimes.com/2026/05/31/theater/and-then-the-rodeo-burned-down-review.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/05/31/us/politics/trump-administration-exodus-of-la
 **Can the World Cup Help the U.S. Beer Industry Kick Its Slump?**\
 `Bars and stores are uncertain if the soccer tournament will boost beer sales. Still, the maker of Budweiser and Michelob Ultra is going all in.`\
 https://www.nytimes.com/2026/05/31/business/world-cup-beer.html
-
-**He Was Satirized on British TV. Now He’s Trump’s Pick to Lead California.**\
-`Steve Hilton grabbed headlines when he worked in conservative politics in Britain. His American political renaissance in the California governor’s race has bemused former British colleagues and rivals.`\
-https://www.nytimes.com/2026/05/31/us/steve-hilton-california-governor.html
-
-**After Voting Decision, a Month of Political Earthquakes Across the South**\
-`As Republicans rush to redraw the region’s congressional maps, some voters are confused and concerned, and civil rights activists are gearing up for the fight of a generation.`\
-https://www.nytimes.com/2026/05/31/us/voting-rights-act-redistricting-southern-states.html
-
-**Tilly Norwood, A.I. Actress, Wants to Know Why Everyone’s Mad at Her**\
-`The A.I. actress on her craft, the future of film and how she definitely does not intend to murder us.`\
-https://www.nytimes.com/2026/05/31/magazine/ai-actress-tilly-norwood.html
-
-**In U.F.O. Files, Some Christians See Vexing Questions — and Demons**\
-`The prospect of intelligent life elsewhere in the universe raises unsettling theological implications.`\
-https://www.nytimes.com/2026/05/31/us/ufo-files-pentagon.html
-
-**The Woman Who Beat Zero Bond**\
-`When a buyer sought to convert the historic Hedges Inn in East Hampton into a sceney private club, Sarah Wetenhall had a different idea.`\
-https://www.nytimes.com/2026/05/31/style/the-woman-who-beat-zero-bond.html
 
