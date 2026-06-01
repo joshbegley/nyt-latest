@@ -1,3 +1,7 @@
+**Barry Diller’s People Inc. Plans a Takeover Bid for MGM Resorts**\
+`The mogul’s People Inc. is preparing an offer to buy the portion of the casino giant that it doesn’t already own, at an $18 billion valuation.`\
+https://www.nytimes.com/2026/06/01/business/dealbook/diller-people-mgm-resorts.html
+
 **Ethiopia’s Election Comes at a Critical Moment for the Country: What to Know**\
 `The vote comes at a critical moment for the country, which faces fears of renewed conflict in the Tigray region and tensions with Eritrea over access to the Red Sea.`\
 https://www.nytimes.com/2026/06/01/world/africa/ethiopia-election-abiy-ahmed-explained.html
