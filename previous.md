@@ -1,3 +1,19 @@
+**¿Extraterrestres o demonios? La divulgación ovni divide a los cristianos conservadores de EE. UU.**\
+`Cuando el gobierno de Trump ordenó publicar archivos sobre vida extraterrestre, una red de pastores y presentadores de pódcast ya tenía su respuesta lista.`\
+https://www.nytimes.com/es/2026/06/01/espanol/estados-unidos/ovnis-pentagono-religion.html
+
+**‘Cape Fear’ and 7 More Shows to Watch on TV This Week**\
+`A new Apple TV series premieres, and the 79th Tony Awards ceremony will be broadcast live.`\
+https://www.nytimes.com/2026/06/01/arts/television/cape-fear-tv-this-week.html
+
+**The Joy of Hate-Watching A.I. Slop**\
+`A.I. slop is reconstituting a shared cultural base line.`\
+https://www.nytimes.com/2026/06/01/opinion/fruit-love-island-ai-slop.html
+
+**Germany Has Lots of Problems. This Is Its Biggest.**\
+`The economy is in a terrible mess.`\
+https://www.nytimes.com/2026/06/01/opinion/germany-economy-merz-trump.html
+
 **‘Euphoria’ Creator Sam Levinson Explains Why This Is The End**\
 `In an exclusive interview with Popcast, ‘Euphoria’ creator, Sam Levinson, explains why he felt it was time to bring the series to a close.`\
 https://www.nytimes.com/video/podcasts/100000010933876/sam-levinson-euphoria-finale.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/05/31/arts/music/recess-festival-margate-london.htm
 **Colombia Presidential Election Heads to a Runoff**\
 `The candidate, Abelardo de la Espriella, will face a senator from the left-wing party of the outgoing president, Gustavo Petro, in a June runoff.`\
 https://www.nytimes.com/2026/05/31/world/americas/colombia-election-president-candidates.html
-
-**See the Reflecting Pool's Problems That Trump's Renovations May Not Fix**\
-`See the problems that have plagued the Lincoln Memorial pool for decades and why President Trump’s repairs might not fix them.`\
-https://www.nytimes.com/interactive/2026/05/31/us/trump-reflecting-pool-problems.html
-
-**The Growing Movement for Shelters to Make Room for Pets**\
-`Shelters recognize that many would rather sleep on the street than leave their animals behind.`\
-https://www.nytimes.com/2026/05/31/realestate/homeless-shelter-pets.html
-
-**Even Havana’s Street Sweepers Can’t Escape the Impact of the Fuel Blockade**\
-`A fuel blockade on Cuba has aggravated a lack of consistent garbage pickup and produced enormous trash piles.`\
-https://www.nytimes.com/2026/05/31/world/americas/cuba-trash-fuel-blockade.html
-
-**Trump Administration Sees Striking Exodus of Legal Talent**\
-`The departure of more than 10,000 federal lawyers has left some agencies without sufficient staff and has boosted the ranks of state attorneys general offices and advocacy groups.`\
-https://www.nytimes.com/2026/05/31/us/politics/trump-administration-exodus-of-lawyers.html
 

@@ -1,3 +1,19 @@
+**¿Extraterrestres o demonios? La divulgación ovni divide a los cristianos conservadores de EE. UU.**\
+`Cuando el gobierno de Trump ordenó publicar archivos sobre vida extraterrestre, una red de pastores y presentadores de pódcast ya tenía su respuesta lista.`\
+https://www.nytimes.com/es/2026/06/01/espanol/estados-unidos/ovnis-pentagono-religion.html
+
+**‘Cape Fear’ and 7 More Shows to Watch on TV This Week**\
+`A new Apple TV series premieres, and the 79th Tony Awards ceremony will be broadcast live.`\
+https://www.nytimes.com/2026/06/01/arts/television/cape-fear-tv-this-week.html
+
+**The Joy of Hate-Watching A.I. Slop**\
+`A.I. slop is reconstituting a shared cultural base line.`\
+https://www.nytimes.com/2026/06/01/opinion/fruit-love-island-ai-slop.html
+
+**Germany Has Lots of Problems. This Is Its Biggest.**\
+`The economy is in a terrible mess.`\
+https://www.nytimes.com/2026/06/01/opinion/germany-economy-merz-trump.html
+
 **Colombia Presidential Election Heads to a Runoff**\
 `The candidate, Abelardo de la Espriella, will face a senator from the left-wing party of the outgoing president, Gustavo Petro, in a June runoff.`\
 https://www.nytimes.com/2026/05/31/world/americas/colombia-election-president-candidates.html
