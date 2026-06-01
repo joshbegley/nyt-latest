@@ -1,3 +1,11 @@
+**Trump Backs Off Plan for $1.8 Billion Fund That Drew Political Backlash**\
+`The fund has drawn backlash from critics who said it was a scheme to reward President Trump’s political allies with public benefits.`\
+https://www.nytimes.com/2026/06/01/us/politics/trump-drop-weaponization-fund.html
+
+**Demonstrators Cannot Be Forced to Take Down ‘86-47’ Flag, Judge Rules**\
+`A federal judge wrote that the phrase, which also led to charges against the former F.B.I. director, James Comey, did not appear to constitute a true threat.`\
+https://www.nytimes.com/2026/06/01/us/politics/demonstrators-8647-trump-judge.html
+
 **Pentagon Bars Reporters From Its Press Office**\
 `Defense Secretary Pete Hegseth has repeatedly curtailed journalists’ access in the Pentagon.`\
 https://www.nytimes.com/2026/06/01/us/politics/pentagon-reporters-hegseth.html
@@ -42,7 +50,7 @@ https://www.nytimes.com/es/2026/06/01/espanol/estados-unidos/trump-precio-gasoli
 `To honor her centennial, over 1,000 Marilyn Monroe fans came together to dress as the screen legend in Palm Springs, where her Hollywood career began.`\
 https://www.nytimes.com/2026/06/01/style/marilyn-monroe-100th-birthday.html
 
-**Dozens Killed By Explosion in Rebel-Held Myanmar Territory**\
+**Dozens Killed by Explosion in Rebel-Held Myanmar Territory**\
 `The blast occurred around noon on Sunday in Kaung Tup, a village in Shan State near the Chinese border, at a warehouse that stored explosives for mining, local officials said.`\
 https://www.nytimes.com/video/world/asia/100000010937322/myanmar-explosion-kaung-tat-village.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/01/world/middleeast/netanyahu-israel-attack-beir
 **Losing Trust in Justice Dept., Judges Call Out Its Lawyers’ Behavior**\
 `The federal courts have long assumed that the government’s lawyers are trustworthy. Now judges across the country are criticizing their lack of candor.`\
 https://www.nytimes.com/2026/06/01/us/justice-department-lawyers-judges-trump.html
-
-**33 Fun Things to Do in N.Y.C. in June**\
-`This month brings an improv all-nighter, James Taylor, “Fraggle Rock” and Puerto Rican pride.`\
-https://www.nytimes.com/2026/06/01/arts/fun-things-to-do-nyc-june.html
-
-**Ex-F.B.I. Officials Form New Group to Help Agents Grapple With Patel’s Changes**\
-`The F.B.I. Support Network offers legal, mental health and job search services to current agency employees. Its founders say the work force is incredibly strained under Kash Patel.`\
-https://www.nytimes.com/2026/06/01/us/politics/fbi-support-network-agents-trump-patel.html
 
