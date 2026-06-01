@@ -62,7 +62,7 @@ https://www.nytimes.com/2026/06/01/arts/television/cape-fear-tv-this-week.html
 `A.I. slop is reconstituting a shared cultural base line.`\
 https://www.nytimes.com/2026/06/01/opinion/fruit-love-island-ai-slop.html
 
-**Germany Has Lots of Problems. This Is Its Biggest.**\
+**Germany Has Lost What It Did Best**\
 `The economy is in a terrible mess.`\
 https://www.nytimes.com/2026/06/01/opinion/germany-economy-merz-trump.html
 

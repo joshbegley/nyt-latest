@@ -1,3 +1,7 @@
+**Germany Has Lost What It Did Best**\
+`The economy is in a terrible mess.`\
+https://www.nytimes.com/2026/06/01/opinion/germany-economy-merz-trump.html
+
 **Syrian Officers Who Hid in Plain Sight Face War Crime Charges in Austria**\
 `The trial, Austria’s first against Assad regime officials, will be a rare chance for Syrian witnesses to confront two men they have accused of torture.`\
 https://www.nytimes.com/2026/06/01/world/syria-war-crimes-trial-austria.html
