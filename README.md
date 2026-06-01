@@ -142,8 +142,8 @@ https://www.nytimes.com/2026/05/31/crosswords/strands-sidekick-820.html
 `Scroll down for hints and conversation about the puzzle for Monday, June 1, 2026.`\
 https://www.nytimes.com/2026/05/31/crosswords/wordle-review-1808.html
 
-**Elecciones presidenciales en Colombia: ¿quiénes son los candidatos?**\
-`La elección pone a prueba el legado del primer presidente de izquierda del país frente a un candidato independiente de extrema derecha en ascenso y una conservadora tradicional.`\
+**Elecciones en Colombia: Abelardo de la Espriella e Iván Cepeda van a segunda vuelta**\
+`Abelardo de la Espriella llegó a la segunda vuelta el domingo, con el oficialista Iván Cepeda, en lo que podría anunciar otra victoria de la ola derechista que recorre América Latina.`\
 https://www.nytimes.com/es/2026/05/31/espanol/america-latina/elecciones-presidenciales-colombia-candidatos.html
 
 **Pulling Customs From ‘Sanctuary’ City Airports Would Cause Chaos, Business Groups Say**\
