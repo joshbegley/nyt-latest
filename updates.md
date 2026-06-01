@@ -1,3 +1,15 @@
+**Taiwan Criticizes China Over Expulsion of Times Reporter**\
+`The Taiwan president’s spokeswoman said China used “baseless pretexts” to punish journalists, which she called evidence that Beijing was a “troublemaker.”`\
+https://www.nytimes.com/2026/06/01/world/asia/taiwan-china-new-york-times-expulsion.html
+
+**Las intervenciones internacionales de Trump se estancaron. Y eso le molesta**\
+`En Ucrania, en Gaza y ahora en Irán, las primeras declaraciones del presidente Donald Trump sobre victorias fáciles han dado paso a la dura realidad.`\
+https://www.nytimes.com/es/2026/06/01/espanol/estados-unidos/trump-iran-impasse-ucrania-gaza.html
+
+**Word of the Day: recondite**\
+`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/06/01/learning/word-of-the-day-recondite.html
+
 **Brooklyn Rivera, Nicaraguan Indigenous Leader, Dies in Government Custody**\
 `Brooklyn Rivera, 73, one of the most prominent Miskito political leaders in recent history, was arrested by the government in 2023. His family and other groups dispute the circumstances surrounding his death.`\
 https://www.nytimes.com/2026/06/01/world/americas/brooklyn-rivera-nicaragua-dead.html
