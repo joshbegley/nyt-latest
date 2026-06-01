@@ -1,3 +1,7 @@
+**Oil Prices Jump as Middle East Tensions Build**\
+`Some analysts said the main international oil price, which was up 6 percent on Monday, could climb much higher in the coming weeks if the Strait of Hormuz doesn’t reopen.`\
+https://www.nytimes.com/2026/06/01/business/energy-environment/iran-war-oil-prices.html
+
 **Scott Pelley Accuses CBS News Boss of ‘Murdering’ ‘60 Minutes’**\
 `In an explosive staff meeting, Mr. Pelley, a correspondent for the long-running Sunday news show, blasted Bari Weiss, the CBS editor in chief, and Nick Bilton, the show’s new executive producer.`\
 https://www.nytimes.com/2026/06/01/business/media/cbs-60-minutes-scott-pelley-nick-bilton.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/01/realestate/in-memphis-an-italianate-home-drip
 **Hoyt Richards, Former Model, on ‘Bring Me The Beauties’ and How to Escape a Cult**\
 `Richards, a globe-trotting former model, discusses “Bring Me the Beauties: A Model Cult,” a new three-part docuseries on HBO.`\
 https://www.nytimes.com/2026/06/01/arts/television/hoyt-richards-bring-me-the-beauties-model-cult-interview.html
-
-**How a Recent College Graduate Lives on $18 Per Hour in the East Bronx**\
-`At 20 years old, Jaden Baldeon is trying to help his family with money from a part-time job while also thinking about what’s next.`\
-https://www.nytimes.com/interactive/2026/06/01/nyregion/nyc-budgeting-affordability-baldeon.html
 
