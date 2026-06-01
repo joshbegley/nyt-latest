@@ -1,3 +1,11 @@
+**Judge Rejects Defense Request to Close Hearings in Charlie Kirk Murder Case**\
+`A Utah judge, Tony Graf, ruled against the defense’s effort to bar the public from a preliminary hearing but did restrict access to some evidence.`\
+https://www.nytimes.com/2026/06/01/us/tyler-robinson-charlie-kirk-hearings-media-access.html
+
+**UK Releases More Files About Mandelson, Ex-Diplomat With Ties to Epstein**\
+`Peter Mandelson, who was fired over his links to Jeffrey Epstein, made the claim in a letter among more than a thousand pages of documents released on Monday.`\
+https://www.nytimes.com/2026/06/01/world/europe/mandelson-files-epstein-starmer-uk.html
+
 **Scott Pelley Accuses CBS News Boss of ‘Murdering’ ‘60 Minutes’**\
 `In an explosive staff meeting, Mr. Pelley, a correspondent for the long-running Sunday news show, blasted Bari Weiss, the CBS editor in chief, and Nick Bilton, the show’s new executive producer.`\
 https://www.nytimes.com/2026/06/01/business/media/cbs-60-minutes-scott-pelley-nick-bilton.html
