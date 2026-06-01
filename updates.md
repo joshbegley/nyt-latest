@@ -1,3 +1,19 @@
+**Ethiopia’s Election Comes at a Critical Moment for the Country: What to Know**\
+`The vote comes at a critical moment for the country, which faces fears of renewed conflict in the Tigray region and tensions with Eritrea over access to the Red Sea.`\
+https://www.nytimes.com/2026/06/01/world/africa/ethiopia-election-abiy-ahmed-explained.html
+
+**‘Awake and Sing!’ Heads to Broadway With Danny Burstein and Jessica Hecht**\
+`Danny Burstein, Jessica Hecht and Jeremy Shamos will star in the Manhattan Theater Club production of Clifford Odets’s 1935 play.`\
+https://www.nytimes.com/2026/06/01/theater/awake-and-sing-broadway-burstein-hecht-shamos.html
+
+**Starmer Braces for More Files About Mandelson, Ex-Diplomat With Ties to Epstein**\
+`A second batch of documents about the former U.S. ambassador Peter Mandelson, who was fired over his links to Jeffrey Epstein, could create more problems for Prime Minister Keir Starmer.`\
+https://www.nytimes.com/2026/06/01/world/europe/mandelson-files-epstein-starmer-uk.html
+
+**Are Texans Ready for Talarico’s Kind of Christianity?**\
+`Jim Rigby, a pastor who rarely uses the word “God,” is a key to understanding the Senate candidate trying to pull off something unusual in Texas.`\
+https://www.nytimes.com/2026/06/01/us/politics/james-talarico-christian.html
+
 **Iran War Live Updates: U.S. and Iran Exchange New Attacks, Straining Peace Talks**\
 `U.S. Central Command said it conducted strikes against military targets in southern Iran over the weekend. Kuwait, which hosts U.S. military bases, accused Iran of attacking its territory.`\
 https://www.nytimes.com/live/2026/06/01/world/iran-war-us-trump-israel-lebanon
