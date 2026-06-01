@@ -20,7 +20,7 @@ https://www.nytimes.com/video/us/elections/100000010937083/california-governor-p
 
 **Trump Stands to Gain a Key Ally in Colombia’s Upcoming Election**\
 `Abelardo De La Espriella, a hard-line candidate on the right facing a left-wing rival in a presidential runoff, has pledged to crush drug traffickers.`\
-https://www.nytimes.com/2026/06/01/world/trump-colombia-election-abelardo-de-la-espriella.html
+https://www.nytimes.com/2026/06/01/world/americas/trump-colombia-election-abelardo-de-la-espriella.html
 
 **Right-Wing Officials’ Appearance at Israel Day Parade Leads to Backlash**\
 `Parade organizers and New York lawmakers who marched in the parade sought to distance themselves from Bezalel Smotrich, a hard-line Israeli official who attended.`\

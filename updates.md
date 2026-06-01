@@ -1,3 +1,11 @@
+**Mavericks Pass on Dallas City Hall Site, Choose Valley View for New Arena**\
+`The choice gives the N.B.A. franchise room to pursue a sprawling mixed-use development while easing pressure on one of Dallas’s most closely watched civic battles.`\
+https://www.nytimes.com/2026/06/01/us/dallas-mavericks-new-arena-valley-view-mall.html
+
+**U.S. Says More People May Be Charged in Terror Case Linked to Iran**\
+`A militia leader pleaded not guilty on Monday to what prosecutors say is his role in attacks that are part of Iran’s response to the war with Israel and the United States.`\
+https://www.nytimes.com/2026/06/01/nyregion/nyc-synagogue-plot-iran.html
+
 **Rick Adelman, Hall of Fame N.B.A. Coach, Dies at 79**\
 `His teams made the playoffs 16 times in 23 seasons, and he twice steered the Portland Trail Blazers to the league finals.`\
 https://www.nytimes.com/2026/06/01/sports/basketball/rick-adelman-dead.html
