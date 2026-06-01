@@ -1,3 +1,7 @@
+**Edward Burns on What It’s like to Be a Tribeca Festival Veteran**\
+`The filmmaker, who is screening his ninth film at the festival, talked about the importance of Tribeca and what he has learned about sustaining an independent filmmaking career.`\
+https://www.nytimes.com/2026/06/01/movies/edward-burns-tribeca-film-festival.html
+
 **Tribeca Festival: Andre Holland’s Ability to Connect to Audiences Is on Display**\
 `The actor’s ability to connect to roles is on display in two films, “The Revisionist” and “They Fight,” premiering at this year’s Tribeca Festival.`\
 https://www.nytimes.com/2026/06/01/movies/andre-holland-tribeca-festival.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/01/world/europe/ukraine-corruption-yermak-zelens
 **The Botched Execution of Tony Carruthers**\
 `Nothing prepared me to witness the agony that my client experienced in the execution chamber.`\
 https://www.nytimes.com/2026/06/01/opinion/botched-execution-tony-carruthers.html
-
-**Book Review: ‘The Man Who Read Everything: The Literary Letters of Harold Bloom’**\
-`A collection of Harold Bloom’s letters details the working life of one of America’s most influential intellects.`\
-https://www.nytimes.com/2026/06/01/books/review/harold-bloom-man-who-read-everything.html
 

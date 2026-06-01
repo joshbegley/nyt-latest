@@ -1,3 +1,11 @@
+**Tribeca Festival: Andre Holland’s Ability to Connect to Audiences Is on Display**\
+`The actor’s ability to connect to roles is on display in two films, “The Revisionist” and “They Fight,” premiering at this year’s Tribeca Festival.`\
+https://www.nytimes.com/2026/06/01/movies/andre-holland-tribeca-festival.html
+
+**At Tribeca, a New Look at an ’80s Thriller About New York’s Gay Underground**\
+`The troubled legacy of “Cruising” is the subject of “Mineshaft: The Cruising Murders,” a documentary premiering at the Tribeca Festival.`\
+https://www.nytimes.com/2026/06/01/movies/cruising-gay-tribeca-documentary.html
+
 **U.S. and Iran Trade Strikes as Thousands Flee Southern Beirut**\
 `The United States and Iran traded attacks, and Israel warned about attacks against Hezbollah in Beirut, heavily straining the fragile Middle East cease-fire on Monday.`\
 https://www.nytimes.com/video/world/middleeast/100000010936606/us-and-iran-trade-strikes-as-thousands-flee-southern-beirut-amid-israeli-threats.html
