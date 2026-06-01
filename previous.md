@@ -1,3 +1,19 @@
+**Alberta’s Movement to Separate from Canada Gets Its Moment**\
+`In October, Albertans will get to say if they want to stay in Canada, or hold a referendum to leave. Will it settle the matter, or deepen the rift?`\
+https://www.nytimes.com/2026/06/01/world/canada/canada-alberta-separation-referendum-vote.html
+
+**Is A.I. Replacing Tech Workers or Providing an Excuse for Job Cuts?**\
+`Tech industry layoffs are accelerating, and executives have been quick to say it’s because their companies are doing more with artificial intelligence, even when there may be more to it.`\
+https://www.nytimes.com/2026/06/01/technology/is-ai-replacing-tech-workers-or-providing-an-excuse-for-job-cuts.html
+
+**How Box Created 13 New Types of Jobs Because of A.I.**\
+`Box, a Silicon Valley software maker, expects to have more employees, not fewer, as it hires A.I. architects, A.I. solutions managers and other new A.I.-related positions.`\
+https://www.nytimes.com/2026/06/01/technology/box-13-new-types-jobs-ai.html
+
+**Netanyahu Orders Israeli Military to Attack Beirut Suburbs**\
+`Thousands fled the southern suburbs of Lebanon’s capital after Prime Minister Benjamin Netanyahu of Israel announced the widening of the military campaign against Hezbollah.`\
+https://www.nytimes.com/2026/06/01/world/middleeast/netanyahu-israel-attack-beirut-lebanon.html
+
 **Losing Trust in Justice Dept., Judges Call Out Its Lawyers’ Behavior**\
 `The federal courts have long assumed that the government’s lawyers are trustworthy. Now judges across the country are criticizing their lack of candor.`\
 https://www.nytimes.com/2026/06/01/us/justice-department-lawyers-judges-trump.html
@@ -55,7 +71,7 @@ https://www.nytimes.com/2026/06/01/crosswords/strands-sidekick-821.html
 https://www.nytimes.com/2026/06/01/crosswords/wordle-review-1809.html
 
 **UK Releases More Files About Mandelson, Ex-Diplomat With Ties to Epstein**\
-`A second batch of documents about the former U.S. ambassador Peter Mandelson, who was fired over his links to Jeffrey Epstein, was published on Monday.`\
+`Peter Mandelson, who was fired over his links to Jeffrey Epstein, made the claim in a letter that was revealed in more than a thousand pages of documents released on Monday.`\
 https://www.nytimes.com/2026/06/01/world/europe/mandelson-files-epstein-starmer-uk.html
 
 **How Lebanon’s Best Chance to Disarm Hezbollah Failed**\
@@ -181,20 +197,4 @@ https://www.nytimes.com/video/world/americas/100000010902264/what-we-saw-driving
 **Book Review: ‘1873,’ by Liaquat Ahamed**\
 `In “1873,” the historian and financier Liaquat Ahamed traces the political consequences of booming markets that left a lot of people behind.`\
 https://www.nytimes.com/2026/06/01/books/review/1873-liaquat-ahamed.html
-
-**They Voted for Trump. Here’s How They Feel About High Gas Prices.**\
-`With the midterm elections five months away, many Americans who backed President Trump are wrestling with pain at the pump and the war in Iran.`\
-https://www.nytimes.com/2026/06/01/us/politics/trump-gas-prices-iran-war.html
-
-**Joana Avillez Revisits Her Waterfront Childhood**\
-`Joana Avillez took six years to illustrate a new edition of Joseph Mitchell’s “The Bottom of the Harbor,” which captures the salty New York neighborhood of her youth.`\
-https://www.nytimes.com/2026/06/01/style/joana-avillez-joseph-mitchell-illustration-new-york-waterfront.html
-
-**Jeffrey Epstein’s Sperm May Have Survived Him**\
-`Mr. Epstein banked his sperm several years before his death and said that if he died, it should be left in the control of his estate.`\
-https://www.nytimes.com/2026/06/01/well/jeffrey-epstein-sperm-cryobank.html
-
-**Could Talarico’s Religious Approach Win Texas?**\
-`James Talarico, the Democrat running for U.S. Senate in Texas, has connected his political positions to his Christian faith. Our religion reporter Ruth Graham discusses how his perspective differs from the politically conservative Christianity dominant in Republican politics in Texas.`\
-https://www.nytimes.com/video/us/politics/100000010887861/could-talaricos-religious-approach-win-texas.html
 

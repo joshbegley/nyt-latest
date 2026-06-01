@@ -1,3 +1,23 @@
+**Alberta’s Movement to Separate from Canada Gets Its Moment**\
+`In October, Albertans will get to say if they want to stay in Canada, or hold a referendum to leave. Will it settle the matter, or deepen the rift?`\
+https://www.nytimes.com/2026/06/01/world/canada/canada-alberta-separation-referendum-vote.html
+
+**Is A.I. Replacing Tech Workers or Providing an Excuse for Job Cuts?**\
+`Tech industry layoffs are accelerating, and executives have been quick to say it’s because their companies are doing more with artificial intelligence, even when there may be more to it.`\
+https://www.nytimes.com/2026/06/01/technology/is-ai-replacing-tech-workers-or-providing-an-excuse-for-job-cuts.html
+
+**How Box Created 13 New Types of Jobs Because of A.I.**\
+`Box, a Silicon Valley software maker, expects to have more employees, not fewer, as it hires A.I. architects, A.I. solutions managers and other new A.I.-related positions.`\
+https://www.nytimes.com/2026/06/01/technology/box-13-new-types-jobs-ai.html
+
+**Netanyahu Orders Israeli Military to Attack Beirut Suburbs**\
+`Thousands fled the southern suburbs of Lebanon’s capital after Prime Minister Benjamin Netanyahu of Israel announced the widening of the military campaign against Hezbollah.`\
+https://www.nytimes.com/2026/06/01/world/middleeast/netanyahu-israel-attack-beirut-lebanon.html
+
+**UK Releases More Files About Mandelson, Ex-Diplomat With Ties to Epstein**\
+`Peter Mandelson, who was fired over his links to Jeffrey Epstein, made the claim in a letter that was revealed in more than a thousand pages of documents released on Monday.`\
+https://www.nytimes.com/2026/06/01/world/europe/mandelson-files-epstein-starmer-uk.html
+
 **Losing Trust in Justice Dept., Judges Call Out Its Lawyers’ Behavior**\
 `The federal courts have long assumed that the government’s lawyers are trustworthy. Now judges across the country are criticizing their lack of candor.`\
 https://www.nytimes.com/2026/06/01/us/justice-department-lawyers-judges-trump.html
