@@ -1,3 +1,7 @@
+**U.S. and Iran Trade Strikes as Thousands Flee Southern Beirut**\
+`The United States and Iran traded attacks, and Israel warned about attacks against Hezbollah in Beirut, heavily straining the fragile Middle East cease-fire on Monday.`\
+https://www.nytimes.com/video/world/middleeast/100000010936606/us-and-iran-trade-strikes-as-thousands-flee-southern-beirut-amid-israeli-threats.html
+
 **Judge Rejects Defense Request to Close Hearings in Charlie Kirk Murder Case**\
 `A Utah judge, Tony Graf, ruled against the defense’s effort to bar the public from a preliminary hearing but did restrict access to some evidence`\
 https://www.nytimes.com/2026/06/01/us/tyler-robinson-charlie-kirk-hearings-media-access.html

@@ -31,7 +31,7 @@ https://www.nytimes.com/2026/06/01/world/europe/dua-lipa-callum-turner-wedding-o
 https://www.nytimes.com/2026/06/01/us/politics/hegseth-navy-promotion-list.html
 
 **U.S. and Iran Trade Strikes as Thousands Flee Southern Beirut**\
-`The shaky cease-fire in the Middle East was tested on Monday after the United States and Iran traded attacks and Israel issued an evacuation warning for the southern suburbs of Beirut, Lebanon, as it threatened to escalate attacks on Iran-backed Hezbollah militants.`\
+`The United States and Iran traded attacks, and Israel warned about attacks against Hezbollah in Beirut, heavily straining the fragile Middle East cease-fire on Monday.`\
 https://www.nytimes.com/video/world/middleeast/100000010936606/us-and-iran-trade-strikes-as-thousands-flee-southern-beirut-amid-israeli-threats.html
 
 **Anthropic Files to Go Public, Setting Stage for Huge I.P.O.**\
