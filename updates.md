@@ -1,3 +1,7 @@
+**Taiwan Criticizes China’s Expulsion of New York Times Reporter**\
+`The Taiwan president’s spokeswoman said China used “baseless pretexts” to punish journalists, which she called evidence that Beijing was a “troublemaker.”`\
+https://www.nytimes.com/2026/06/01/world/asia/taiwan-china-new-york-times-expulsion.html
+
 **N.Y.C. Children May Get Up to $3,000 From City for College Accounts**\
 `The city’s current savings plan starts with $100. A City Council proposal would make the initial contributions among the highest anywhere.`\
 https://www.nytimes.com/2026/06/01/nyregion/nyc-college-savings-account-children.html
