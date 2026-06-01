@@ -1,3 +1,7 @@
+**Barry Diller’s People Inc. Plans a Takeover Bid for MGM Resorts**\
+`The mogul’s People Inc. is preparing an offer to buy the portion of the casino giant that it doesn’t already own, at an $18 billion valuation.`\
+https://www.nytimes.com/2026/06/01/business/dealbook/diller-people-mgm-resorts.html
+
 **Ethiopia’s Election Comes at a Critical Moment for the Country: What to Know**\
 `The vote comes at a critical moment for the country, which faces fears of renewed conflict in the Tigray region and tensions with Eritrea over access to the Red Sea.`\
 https://www.nytimes.com/2026/06/01/world/africa/ethiopia-election-abiy-ahmed-explained.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/01/well/public-health-stigma-shame-rfk-jr.html
 **Iran War Live Updates: U.S. and Iran Exchange New Attacks, Straining Peace Talks**\
 `U.S. Central Command said it conducted strikes against military targets in southern Iran over the weekend. Kuwait, which hosts U.S. military bases, accused Iran of attacking its territory.`\
 https://www.nytimes.com/live/2026/06/01/world/iran-war-us-trump-israel-lebanon
-
-**Dozens Killed as Explosion Flattens Rebel-Held Village in Myanmar**\
-`The local authorities said the cause was an accident at a warehouse that held explosives for mining operations.`\
-https://www.nytimes.com/2026/06/01/world/asia/myanmar-explosion-blast-warehouse-deaths.html
 
