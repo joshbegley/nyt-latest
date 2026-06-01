@@ -23,7 +23,7 @@ https://www.nytimes.com/2026/06/01/movies/andre-holland-tribeca-festival.html
 https://www.nytimes.com/2026/06/01/movies/cruising-gay-tribeca-documentary.html
 
 **Judge Rejects Defense Request to Close Hearings in Charlie Kirk Murder Case**\
-`A Utah judge, Tony Graf, ruled against the defense’s effort to bar the public from a preliminary hearing but did restrict access to some evidence`\
+`A Utah judge, Tony Graf, ruled against the defense’s effort to bar the public from a preliminary hearing but did restrict access to some evidence.`\
 https://www.nytimes.com/2026/06/01/us/tyler-robinson-charlie-kirk-hearings-media-access.html
 
 **In the ‘Euphoria’ Finale, the HBO Show Goes Out With a Whimper**\
@@ -167,7 +167,7 @@ https://www.nytimes.com/2026/06/01/crosswords/strands-sidekick-821.html
 https://www.nytimes.com/2026/06/01/crosswords/wordle-review-1809.html
 
 **UK Releases More Files About Mandelson, Ex-Diplomat With Ties to Epstein**\
-`Peter Mandelson, who was fired over his links to Jeffrey Epstein, made the claim in a letter that was revealed in more than a thousand pages of documents released on Monday.`\
+`Peter Mandelson, who was fired over his links to Jeffrey Epstein, made the claim in a letter among more than a thousand pages of documents released on Monday.`\
 https://www.nytimes.com/2026/06/01/world/europe/mandelson-files-epstein-starmer-uk.html
 
 **How Lebanon’s Best Chance to Disarm Hezbollah Failed**\
