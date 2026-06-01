@@ -1,3 +1,7 @@
+**Giant Stone Urns Hint at the Death Rites of a Lost People in Laos**\
+`Hundreds of mysterious containers lie scattered across northern Laos. These “death jars” may have provided a form of communal interment, archaeologists reported.`\
+https://www.nytimes.com/2026/06/01/science/death-jars-internment-laos.html
+
 **Muere Brooklyn Rivera, líder indígena de Nicaragua, en custodia del gobierno de Ortega**\
 `Rivera, de 73 años, destacado dirigente miskito fue detenido por el gobierno de Nicaragua en 2023. Su familia y otros grupos cuestionan las circunstancias que rodearon su muerte.`\
 https://www.nytimes.com/es/2026/06/01/espanol/america-latina/muere-brooklyn-rivera-nicaragua-ortega.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/01/magazine/ai-university-college-california.htm
 **Kathie Lee Gifford Bids Farewell to Greenwich, Conn.**\
 `The former TV host listed her estate for $100 million. Ken Griffey Jr. put his Florida home on the market, while Lindsey Vonn lowers the asking price on her house in Beverly Hills, Calif.`\
 https://www.nytimes.com/2026/06/01/realestate/kathie-lee-ken-griffey-celebrity-home-sales.html
-
-**Bernie Sanders: A.I. Belongs to the People, Not to Billionaires**\
-`All Americans should have a stake in the future of this technology.`\
-https://www.nytimes.com/2026/06/01/opinion/artificial-intelligence-bernie-sanders.html
 
