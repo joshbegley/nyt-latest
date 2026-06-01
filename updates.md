@@ -1,3 +1,7 @@
+**Trump Stands to Gain a Key Ally in Colombia’s Upcoming Election**\
+`Abelardo De La Espriella, a hard-line candidate on the right facing a left-wing rival in a presidential runoff, has pledged to crush drug traffickers.`\
+https://www.nytimes.com/2026/06/01/world/americas/trump-colombia-election-abelardo-de-la-espriella.html
+
 **Mavericks Pass on Dallas City Hall Site, Choose Valley View for New Arena**\
 `The choice gives the N.B.A. franchise room to pursue a sprawling mixed-use development while easing pressure on one of Dallas’s most closely watched civic battles.`\
 https://www.nytimes.com/2026/06/01/us/dallas-mavericks-new-arena-valley-view-mall.html
