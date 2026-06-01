@@ -1,3 +1,7 @@
+**Oil Prices Jump as U.S. and Iran Exchange Fire**\
+`Oil prices climbed as investors weighed a renewed exchange of military strikes between the United States and Iran against signs that both sides remain engaged in negotiations.`\
+https://www.nytimes.com/2026/06/01/business/oil-gas-price-iran.html
+
 **Dozens Killed as Explosion Flattens Rebel-Held Village in Myanmar**\
 `The local authorities said the cause was an accident at a warehouse that held explosives for mining operations.`\
 https://www.nytimes.com/2026/06/01/world/asia/myanmar-explosion-blast-warehouse-deaths.html
