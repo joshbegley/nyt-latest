@@ -1,3 +1,7 @@
+**Iran War Live Updates: U.S. Military Says Iran Targeted American Forces in Kuwait**\
+`U.S. Central Command said the military intercepted two Iranian missiles overnight on Monday and no personnel were harmed. The attacks threatened to further complicate talks to end the war.`\
+https://www.nytimes.com/live/2026/06/01/world/iran-war-us-trump-israel-lebanon
+
 **Barry Diller’s People Inc. Plans a Takeover Bid for MGM Resorts**\
 `The mogul’s People Inc. is preparing an offer to buy the portion of the casino giant that it doesn’t already own, at an $18 billion valuation.`\
 https://www.nytimes.com/2026/06/01/business/dealbook/diller-people-mgm-resorts.html

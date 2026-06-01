@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/06/01/books/review/whistler-ann-patchett.html
 `For years, medicine has tried to eliminate stigma. Now, Robert F. Kennedy Jr. is bringing back the language personal responsibility.`\
 https://www.nytimes.com/2026/06/01/well/public-health-stigma-shame-rfk-jr.html
 
-**Iran War Live Updates: U.S. and Iran Exchange New Attacks, Straining Peace Talks**\
-`U.S. Central Command said it conducted strikes against military targets in southern Iran over the weekend. Kuwait, which hosts U.S. military bases, accused Iran of attacking its territory.`\
+**Iran War Live Updates: U.S. Military Says Iran Targeted American Forces in Kuwait**\
+`U.S. Central Command said the military intercepted two Iranian missiles overnight on Monday and no personnel were harmed. The attacks threatened to further complicate talks to end the war.`\
 https://www.nytimes.com/live/2026/06/01/world/iran-war-us-trump-israel-lebanon
 

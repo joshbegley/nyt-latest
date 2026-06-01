@@ -191,7 +191,7 @@ https://www.nytimes.com/2026/06/01/us/politics/james-talarico-christian.html
 https://www.nytimes.com/2026/06/01/books/review/whistler-ann-patchett.html
 
 **The Return of Blaming and Shaming in Public Health**\
-`For years, medicine has tried to eliminate stigma. Now, Robert F. Kennedy Jr. is bringing back the language personal responsibility.`\
+`For years, medicine has tried to eliminate stigma. Now, Robert F. Kennedy Jr. is bringing back the language of personal responsibility.`\
 https://www.nytimes.com/2026/06/01/well/public-health-stigma-shame-rfk-jr.html
 
 **Iran War Live Updates: U.S. Military Says Iran Targeted American Forces in Kuwait**\
