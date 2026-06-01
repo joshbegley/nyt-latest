@@ -1,3 +1,63 @@
+**How a Recent College Graduate Lives on $18 Per Hour in the East Bronx**\
+`At 20 years old, Jaden Baldeon is trying to help his family with money from a part-time job while also thinking about what’s next.`\
+https://www.nytimes.com/interactive/2026/06/01/nyregion/nyc-budgeting-affordability-baldeon.html
+
+**A Beer Like the One That George Washington Drank**\
+`To celebrate the nation’s 250th birthday, the New York Public Library brewed “small beer” from a founding father’s instructions.`\
+https://www.nytimes.com/2026/06/01/nyregion/beer-from-george-washingtons-recipe.html
+
+**Andriy Yermak, Once the Muscle Behind Zelensky, Is Now Crowdfunding Bail Money**\
+`Volodymyr Zelensky’s onetime right-hand man is accused of embezzling millions of dollars and consulting a fortuneteller on political decisions.`\
+https://www.nytimes.com/2026/06/01/world/europe/ukraine-corruption-yermak-zelensky.html
+
+**The Botched Execution of Tony Carruthers**\
+`Nothing prepared me to witness the agony that my client experienced in the execution chamber.`\
+https://www.nytimes.com/2026/06/01/opinion/botched-execution-tony-carruthers.html
+
+**Book Review: ‘The Man Who Read Everything: The Literary Letters of Harold Bloom’**\
+`A collection of Harold Bloom’s letters details the working life of one of America’s most influential intellects.`\
+https://www.nytimes.com/2026/06/01/books/review/harold-bloom-man-who-read-everything.html
+
+**How California’s New Congressional Map Is Reshaping Tuesday’s Primaries**\
+`The state now has just four congressional districts considered safe for Republicans, and four seen as competitive. The rest of its 52 members of Congress are all but certain to be Democrats.`\
+https://www.nytimes.com/2026/06/01/us/politics/california-redistricting-maps.html
+
+**Mark and Joaquin Consuelos, Father and Son, Make Broadway Debuts Together**\
+`This spring the talk-show host and his youngest child made simultaneous debuts, three weeks and eight blocks apart.`\
+https://www.nytimes.com/2026/06/01/theater/joaquin-mark-consuelos-broadway-salesman-fallen-angels.html
+
+**Why This Summer Travel Season Will Be a Nightmare**\
+`Air travel could be disrupted into next year because of high jet fuel prices.`\
+https://www.nytimes.com/2026/06/01/opinion/summer-travel-planes.html
+
+**What’s On in London Theaters This Summer**\
+`Catherine Tate, Greek classics and plenty in between — here’s our selection of West End productions for Londoners and visitors to check out over the coming months.`\
+https://www.nytimes.com/2026/06/01/arts/west-end-london-whats-on.html
+
+**Chinese Military Sought Nvidia Chips for Years, Report Says**\
+`An analysis of six years of procurement records suggests that the People’s Liberation Army has openly tried to acquire restricted U.S. technology.`\
+https://www.nytimes.com/2026/06/01/business/economy/china-military-nvidia-chips.html
+
+**A Whole Generation Seems to Be Using ‘POV’ Wrong**\
+`Gen Z might be using the abbreviation for “point of view” incorrectly. But linguists think it’s exciting.`\
+https://www.nytimes.com/2026/06/01/magazine/pov-gen-z-linguistics.html
+
+**Are We Supposed to Wear Socks With Sandals Now?**\
+`A teacher wonders about the etiquette rules of contemporary footwear.`\
+https://www.nytimes.com/2026/06/01/fashion/sandals-sock-style.html
+
+**China Aims A.I. at Predicting Who Could Pose a Political Risk**\
+`New research examines how a Chinese company struggled to develop its predictive surveillance technology while U.S. restrictions were in place.`\
+https://www.nytimes.com/2026/06/01/us/politics/china-ai-predicting-dissent.html
+
+**A Paralympic Champion and an Eagle Scout Give Democrats Hope in Deep-Red Iowa**\
+`Tuesday’s Senate primary features two candidates with compelling personal stories. Both have stressed their independence.`\
+https://www.nytimes.com/2026/06/01/us/politics/iowa-senate-primary-turek-wahls.html
+
+**Prized by ‘MAHA’ Influencers and Chefs Alike, Craft Flour Is on the Rise**\
+`Growing demand for fiber-rich grains is boosting the premium flour industry, which offers less processed, but pricier, alternatives to the classic grocery store brands.`\
+https://www.nytimes.com/2026/06/01/business/craft-flour-maha.html
+
 **Oil Prices Jump as Middle East Tensions Build**\
 `Some analysts said the main international oil price, which was up 6 percent on Monday, could climb much higher in the coming weeks if the Strait of Hormuz doesn’t reopen.`\
 https://www.nytimes.com/2026/06/01/business/energy-environment/iran-war-oil-prices.html
