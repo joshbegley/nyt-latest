@@ -48,7 +48,7 @@ https://www.nytimes.com/2026/06/01/world/middleeast/lebanon-hezbollah-disarm.htm
 
 **De joya industrial a ruinas: una ciudad revela la decadencia de Venezuela**\
 `Cumaná fue una vez un centro económico, que producía Toyota Land Cruisers y exportaba alimentos a toda Sudamérica. Ahora está al borde del desastre debido al colapso de los servicios públicos.`\
-https://www.nytimes.com/es/2026/06/01/espanol/america-latina/de-joya-industrial-a-ruinas-una-ciudad-revela-la-decadencia-de-venezuela.html
+https://www.nytimes.com/es/2026/06/01/espanol/america-latina/cumana-venezuela-decadencia.html
 
 **Book Surfaces 120 Years After a San Francisco Library Lost Almost Everything**\
 `A book of poetry that survived the catastrophic 1906 earthquake and fire has been returned to the Mechanics’ Institute Library.`\
