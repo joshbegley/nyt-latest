@@ -1,3 +1,7 @@
+**‘And Then the Rodeo Burned Down’ Review: Tenderness as Transgression**\
+`In their Off Broadway debut at Ars Nova, Xhloe and Natasha play two rodeo clowns, until the lights go out and the show takes a turn.`\
+https://www.nytimes.com/2026/05/31/theater/and-then-the-rodeo-burned-down-review.html
+
 **La otra crisis de Cuba: basura, dengue y chikunguña**\
 `El bloqueo petrolero del gobierno Trump dejó a La Habana sin combustible para recoger la basura, pero el problema tiene raíces más profundas: décadas de ineficiencia estatal.`\
 https://www.nytimes.com/es/2026/05/31/espanol/america-latina/cuba-basura-dengue-chikunguna.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/05/31/us/ufo-files-pentagon.html
 **The Woman Who Beat Zero Bond**\
 `When a buyer sought to convert the historic Hedges Inn in East Hampton into a sceney private club, Sarah Wetenhall had a different idea.`\
 https://www.nytimes.com/2026/05/31/style/the-woman-who-beat-zero-bond.html
-
-**What Is Airbnb For, Exactly?**\
-`The home-sharing app recently added car rentals, groceries and — perhaps most surprisingly — hotels. Brian Chesky, the co-founder and chief executive, is always thinking about how to redesign it.`\
-https://www.nytimes.com/2026/05/31/business/airbnb-brian-chesky.html
 

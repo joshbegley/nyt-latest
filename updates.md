@@ -1,3 +1,7 @@
+**‘And Then the Rodeo Burned Down’ Review: Tenderness as Transgression**\
+`In their Off Broadway debut at Ars Nova, Xhloe and Natasha play two rodeo clowns, until the lights go out and the show takes a turn.`\
+https://www.nytimes.com/2026/05/31/theater/and-then-the-rodeo-burned-down-review.html
+
 **Colombia Presidential Election Heads to a Runoff**\
 `The candidate forced a runoff on Sunday in what could herald another gain for the right-wing wave sweeping Latin America.`\
 https://www.nytimes.com/2026/05/31/world/americas/colombia-election-president-candidates.html
