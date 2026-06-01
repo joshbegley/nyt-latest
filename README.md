@@ -1,3 +1,23 @@
+**Jeffrey Epstein’s Sperm May Have Survived Him**\
+`Mr. Epstein banked his sperm several years before his death and said that if he died, it should be left in the control of his estate.`\
+https://www.nytimes.com/2026/06/01/well/jeffrey-epstein-sperm-cryobank.html
+
+**Could Talarico’s Religious Approach Win Texas?**\
+`James Talarico, the Democrat running for U.S. Senate in Texas, has connected his political positions to his Christian faith. Our religion reporter Ruth Graham discusses how his perspective differs from the politically conservative Christianity dominant in Republican politics in Texas.`\
+https://www.nytimes.com/video/us/politics/100000010887861/could-talaricos-religious-approach-win-texas.html
+
+**The Progressive Pastor Who Helped Shape James Talarico**\
+`Jim Rigby, who rarely uses the word “God,” is a key to understanding the Senate candidate trying to pull off something unusual in Texas.`\
+https://www.nytimes.com/2026/06/01/us/politics/james-talarico-christian.html
+
+**Book Review: ‘Whistler,’ by Ann Patchett**\
+`In “Whistler,” a surprise encounter at the Met changes the course of their lives.`\
+https://www.nytimes.com/2026/06/01/books/review/whistler-ann-patchett.html
+
+**The Return of Blaming and Shaming in Public Health**\
+`For years, medicine has tried to eliminate stigma. Now, Robert F. Kennedy Jr. is bringing back the language personal responsibility.`\
+https://www.nytimes.com/2026/06/01/well/the-return-of-blaming-and-shaming-in-public-health.html
+
 **Iran War Live Updates: U.S. and Iran Exchange New Attacks**\
 `U.S. Central Command said it conducted a round of “self-defense strikes” on military targets in southern Iran over the weekend. Iran’s military later said it had targeted a base in retaliation.`\
 https://www.nytimes.com/live/2026/06/01/world/iran-war-us-trump-israel-lebanon
@@ -177,24 +197,4 @@ https://www.nytimes.com/video/world/middleeast/100000010935630/israel-lebanon-wa
 **Release of Tina Peters, Election Denier and Former County Clerk, Divides Colorado City**\
 `The former clerk of Mesa County is scheduled to be set free on Monday, after her nine-year prison sentence was commuted by Gov. Jared Polis.`\
 https://www.nytimes.com/2026/05/31/us/tina-peters-release-election-tampering-colorado.html
-
-**Vasana Montgomery, ‘Love Island USA’ Contestant, Dismissed After Using Racial Slur**\
-`Last season, two contestants were also kicked off the reality show when videos showing them using racial slurs surfaced during filming.`\
-https://www.nytimes.com/2026/05/31/arts/television/love-island-usa-contestant-dismissed-racist-slur.html
-
-**Young Moviegoers Power ‘Backrooms’ to $82 Million in Ticket Sales**\
-`The horror film, which cost $10 million and came from a 20-year-old filmmaker, added to evidence that young people will go to theaters for the right offering.`\
-https://www.nytimes.com/2026/05/31/business/media/young-moviegoers-backrooms-a24-box-office.html
-
-**Trump Is Dominating GOP Primary Elections. Does That Mean Victory in the Midterms?**\
-`Come November, the Republican Party will need the support of voters outside of President Trump’s base, many of whom are deeply dissatisfied with the economy and the Iran war.`\
-https://www.nytimes.com/2026/05/31/us/politics/trump-republican-primary-elections-midterms.html
-
-**Timeline: Where and When Trump Has Involved the U.S. Military in International Conflicts**\
-`The United States has been involved in many military operations around the world since President Trump returned to office.`\
-https://www.nytimes.com/2026/05/31/us/politics/trumps-military-wars.html
-
-**‘Othello’ Review: Wendell Pierce Steps Into Iago’s Twisted Web**\
-`This production in the nation’s capital, with an enticingly opaque Iago, attempts to make Shakespeare’s tragedy relevant to our age of conspiracies.`\
-https://www.nytimes.com/2026/05/31/theater/othello-review-wendell-pierce.html
 
