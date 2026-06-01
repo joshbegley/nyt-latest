@@ -1,3 +1,15 @@
+**Taiwan Criticizes China Over Expulsion of Times Reporter**\
+`The Taiwan president’s spokeswoman said China used “baseless pretexts” to punish journalists, which she called evidence that Beijing was a “troublemaker.”`\
+https://www.nytimes.com/2026/06/01/world/asia/taiwan-china-new-york-times-expulsion.html
+
+**Las intervenciones internacionales de Trump se estancaron. Y eso le molesta**\
+`En Ucrania, en Gaza y ahora en Irán, las primeras declaraciones del presidente Donald Trump sobre victorias fáciles han dado paso a la dura realidad.`\
+https://www.nytimes.com/es/2026/06/01/espanol/estados-unidos/trump-iran-impasse-ucrania-gaza.html
+
+**Word of the Day: recondite**\
+`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/06/01/learning/word-of-the-day-recondite.html
+
 **Brooklyn Rivera, Nicaraguan Indigenous Leader, Dies in Government Custody**\
 `Brooklyn Rivera, 73, one of the most prominent Miskito political leaders in recent history, was arrested by the government in 2023. His family and other groups dispute the circumstances surrounding his death.`\
 https://www.nytimes.com/2026/06/01/world/americas/brooklyn-rivera-nicaragua-dead.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/05/31/crosswords/connections-companion-1086.html
 **NYT Strands Hints for June 1, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, June 1, 2026.`\
 https://www.nytimes.com/2026/05/31/crosswords/strands-sidekick-820.html
-
-**Today’s Wordle Hints for June 1, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, June 1, 2026.`\
-https://www.nytimes.com/2026/05/31/crosswords/wordle-review-1808.html
-
-**Elecciones en Colombia: Abelardo de la Espriella e Iván Cepeda van a segunda vuelta**\
-`Abelardo de la Espriella llegó a la segunda vuelta el domingo, con el oficialista Iván Cepeda, en lo que podría anunciar otra victoria de la ola derechista que recorre América Latina.`\
-https://www.nytimes.com/es/2026/05/31/espanol/america-latina/colombia-elecciones-resultados.html
-
-**Pulling Customs From ‘Sanctuary’ City Airports Would Cause Chaos, Business Groups Say**\
-`Homeland Security Secretary Markwayne Mullin’s proposal could block hubs like Boston, New York and Los Angeles from accepting international flights.`\
-https://www.nytimes.com/2026/05/31/us/customs-airports-markwayne-mullin.html
 
