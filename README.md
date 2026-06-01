@@ -1,3 +1,7 @@
+**Death from Above**\
+`We look at U.S. boat strikes in the Caribbean Sea and eastern Pacific Ocean.`\
+https://www.nytimes.com/2026/06/01/briefing/boat-strikes.html
+
 **Inside Trump’s Mad Dash to Renovate Washington**\
 `Depending on where you sit, the projects are either boldly cutting red tape or blowing through every regulation designed to protect taxpayer dollars.`\
 https://www.nytimes.com/2026/06/01/podcasts/the-daily/inside-trumps-mad-dash-to-renovate-washington.html
@@ -175,7 +179,7 @@ https://www.nytimes.com/2026/06/01/books/review/whistler-ann-patchett.html
 https://www.nytimes.com/2026/06/01/well/public-health-stigma-shame-rfk-jr.html
 
 **Iran War Live Updates: U.S. and Iran Exchange New Attacks**\
-`U.S. Central Command said it attacked military targets in southern Iran over the weekend. Kuwait, which hosts U.S. military bases, accused Iran of attacking it.`\
+`U.S. Central Command said it conducted strikes against military targets in southern Iran over the weekend. Kuwait, which hosts U.S. military bases, accused Iran of attacking its territory.`\
 https://www.nytimes.com/live/2026/06/01/world/iran-war-us-trump-israel-lebanon
 
 **Dozens Killed as Explosion Flattens Rebel-Held Village in Myanmar**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/interactive/2026/06/01/espanol/ee-uu-deportacion-fami
 **Syrian Officers Who Hid in Plain Sight Face War Crime Charges in Austria**\
 `The trial, Austria’s first against Assad regime officials, will be a rare chance for Syrian witnesses to confront two men they have accused of torture.`\
 https://www.nytimes.com/2026/06/01/world/syria-war-crimes-trial-austria.html
-
-**N.Y.C. Children May Get Up to $3,000 From City for College Accounts**\
-`The city’s current savings plan starts with $100. A City Council proposal would make the initial contributions among the highest anywhere.`\
-https://www.nytimes.com/2026/06/01/nyregion/nyc-college-savings-account-children.html
 
