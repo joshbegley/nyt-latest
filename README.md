@@ -1,3 +1,7 @@
+**Marilyn Monroe Fans Descended on Palm Springs For Her 100th Birthday**\
+`To honor her centennial, over 1,000 Marilyn Monroe fans came together to dress as the screen legend in Palm Springs, where her Hollywood career began.`\
+https://www.nytimes.com/2026/06/01/style/marilyn-monroe-100th-birthday.html
+
 **Dozens Killed By Explosion in Rebel-Held Myanmar Territory**\
 `The blast occurred around noon on Sunday in Kaung Tup, a village in Shan State near the Chinese border, at a warehouse that stored explosives for mining, local officials said.`\
 https://www.nytimes.com/video/world/asia/100000010937322/myanmar-explosion-kaung-tat-village.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/01/crosswords/connections-companion-1087.html
 **NYT Strands Hints for June 2, 2026**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, June 2, 2026.`\
 https://www.nytimes.com/2026/06/01/crosswords/strands-sidekick-821.html
-
-**Today’s Wordle Hints for June 2, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, June 2, 2026.`\
-https://www.nytimes.com/2026/06/01/crosswords/wordle-review-1809.html
 
