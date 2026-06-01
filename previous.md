@@ -1,3 +1,7 @@
+**Four Men Break Out of an Alabama Jail, Setting Off a Broad Dragnet**\
+`The Dallas County sheriff said they had overpowered guards. Two were recaptured Monday, but the search continued for the others.`\
+https://www.nytimes.com/2026/06/01/us/four-men-alabama-jail-escape-dallas-county.html
+
 **Esto dicen los votantes de Trump sobre el precio de la gasolina**\
 `A cinco meses de las elecciones intermedias, muchos estadounidenses que apoyaron al presidente Trump lidian con la guerra en Irán y sus repercusiones en la economía.`\
 https://www.nytimes.com/es/2026/06/01/espanol/estados-unidos/trump-precio-gasolina-votantes.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/01/podcasts/the-daily/inside-trumps-mad-dash-to-
 **Inside an Ebola Ward, and a Roadblock for Trump’s $1.8 Billion Fund**\
 `Plus, the 20-year-old director with the No. 1 movie.`\
 https://www.nytimes.com/2026/06/01/podcasts/the-headlines/ebola-ward-trump-1-8-billion-fund.html
-
-**NYT Connections Answers for June 2, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, June 2, 2026.`\
-https://www.nytimes.com/2026/06/01/crosswords/connections-companion-1087.html
 
