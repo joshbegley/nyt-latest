@@ -1,3 +1,7 @@
+**Iran War Live Updates: U.S. and Iran Exchange New Attacks**\
+`U.S. Central Command said it conducted a round of “self-defense strikes” on military targets in southern Iran over the weekend. Iran’s military later said it had targeted a base in retaliation.`\
+https://www.nytimes.com/live/2026/06/01/world/iran-war-us-trump-israel-lebanon
+
 **Oil Prices Jump as U.S. and Iran Exchange Fire**\
 `Oil prices climbed as investors weighed a renewed exchange of military strikes between the United States and Iran against signs that both sides remain engaged in negotiations.`\
 https://www.nytimes.com/2026/06/01/business/oil-gas-price-iran.html
