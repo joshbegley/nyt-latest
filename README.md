@@ -1,3 +1,15 @@
+**U.S. Treasury Imposes Sanctions on Iran’s Biggest Crypto Exchange**\
+`The action against Nobitex and several of its executives accused it of helping the government evade sanctions and finance militants.`\
+https://www.nytimes.com/2026/06/02/world/middleeast/sanctions-iranian-crypto-exchange.html
+
+**South Dakota Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 South Dakota primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-south-dakota-primary.html
+
+**New Mexico Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New Mexico primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-mexico-primary.html
+
 **New Jersey Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 New Jersey primary elections.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-new-jersey-primary.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-california-secreta
 **California 19th Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 California primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-19-primary.html
-
-**California Superintendent of Public Instruction 2026: Live Election Results**\
-`Get live results and maps from the 2026 California election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-california-superintendent-of-public-instruction.html
-
-**California 13th Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 California primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-13-primary.html
-
-**California 14th Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 California primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-14-primary.html
 

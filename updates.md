@@ -1,3 +1,183 @@
+**New Jersey Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New Jersey primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-jersey-primary.html
+
+**Why We Might Not Know California’s Election Results for Days**\
+`Polls will close at 8 p.m. local time, but California’s meticulous review process and heavy reliance on mail ballots mean races may not be called quickly.`\
+https://www.nytimes.com/2026/06/02/us/politics/california-election-delayed-results.html
+
+**Montana Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Montana primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-montana-primary.html
+
+**Order Shielding Trump Family From Audits Will Remain, Blanche Says**\
+`The acting attorney general said the administration was preserving a broad order shielding the president and his family from audits, despite scraping a related $1.8 billion fund.`\
+https://www.nytimes.com/2026/06/02/us/politics/trump-irs-settlement.html
+
+**South Dakota Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 South Dakota primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-south-dakota-primary.html
+
+**New Mexico Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New Mexico primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-mexico-primary.html
+
+**California Eighth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-8-primary.html
+
+**California 50th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-50-primary.html
+
+**California 44th Congressional District Primary 2026: Live Election Results, Barragan vs. Angel**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-44-primary.html
+
+**California Third Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-3-primary.html
+
+**California 51st Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-51-primary.html
+
+**California 42nd Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-42-primary.html
+
+**California 41st Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-41-primary.html
+
+**California 43rd Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-43-primary.html
+
+**California Ninth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-9-primary.html
+
+**California 38th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-38-primary.html
+
+**California Fourth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-4-primary.html
+
+**California 39th Congressional District Primary 2026: Live Election Results, Takano vs. Manos**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-39-primary.html
+
+**California Sixth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-6-primary.html
+
+**California 40th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-40-primary.html
+
+**California 47th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-47-primary.html
+
+**California Seventh Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-7-primary.html
+
+**California Fifth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-5-primary.html
+
+**California 48th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-48-primary.html
+
+**California 46th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-46-primary.html
+
+**California 52nd Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-52-primary.html
+
+**California 37th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-37-primary.html
+
+**California 24th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-24-primary.html
+
+**California 32nd Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-32-primary.html
+
+**California 25th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-25-primary.html
+
+**California 33rd Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-33-primary.html
+
+**California 26th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-26-primary.html
+
+**California 28th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-28-primary.html
+
+**California 22nd Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-22-primary.html
+
+**California 20th Congressional District Primary 2026: Live Election Results, Fong vs. Van Scotter**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-20-primary.html
+
+**California 31st Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-31-primary.html
+
+**California 21st Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-21-primary.html
+
+**California 23rd Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-23-primary.html
+
+**California First Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-1-primary.html
+
+**California 27th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-27-primary.html
+
+**California Secretary of State Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-secretary-of-state-primary.html
+
+**California 19th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-19-primary.html
+
+**California Superintendent of Public Instruction 2026: Live Election Results**\
+`Get live results and maps from the 2026 California election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-superintendent-of-public-instruction.html
+
+**California 13th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-13-primary.html
+
+**California 14th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-14-primary.html
+
 **Iowa Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Iowa primary elections.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-iowa-primary.html
