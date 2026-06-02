@@ -1,3 +1,7 @@
+**Map: 3.7-Magnitude Earthquake Shakes the San Francisco Bay Area**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/02/us/quake-tracker-san-francisco-bay-area.html
+
 **The Benefits of Real Work in a College Setting**\
 `Readers respond to Michal Leibowitz’s Opinion guest essay about Deep Springs College, an experimental school in the California desert.`\
 https://www.nytimes.com/2026/06/02/opinion/letters/college-work.html
@@ -18,7 +22,7 @@ https://www.nytimes.com/2026/06/02/business/msc-iraq-port-iran-war.html
 `In the final hectic days of the legislative session, data centers, redistricting and algorithmic pricing vie for New York State lawmakers’ attention.`\
 https://www.nytimes.com/2026/06/02/nyregion/data-centers-redistricting-ny.html
 
-**Canada-U.S. Trade Visit Starts With Another Trump ‘51st State’ Post**\
+**Trump Again Refers to Canada as the ’51st State’ Hours Before Trade Talks**\
 `The Canadian trade minister is visiting Washington on Tuesday to meet with the U.S. Trade Representative.`\
 https://www.nytimes.com/2026/06/02/world/canada/trump-canada-us-trade-usmca.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/02/science/ai-mathematics-leiden-declaration.htm
 **How Elon Musk Engineered the World’s Biggest I.P.O.**\
 `An initial public offering of SpaceX is likely to be one of the largest ever.`\
 https://www.nytimes.com/2026/06/02/podcasts/the-daily/elon-musk-spacex-ipo.html
-
-**NYT Connections Answers for June 3, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, June 3, 2026.`\
-https://www.nytimes.com/2026/06/02/crosswords/connections-companion-1088.html
 
