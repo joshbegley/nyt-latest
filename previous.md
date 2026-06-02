@@ -1,3 +1,7 @@
+**Battling a Deadly Ebola Outbreak in Eastern Congo**\
+`At the heart of the Ebola outbreak in the Democratic Republic of Congo, health care workers are racing to open new treatment centers and ramp up testing. But after years of war, the deadly virus is just one of many challenges they’re facing.`\
+https://www.nytimes.com/video/world/africa/100000010936755/ebola-virus-outbreak-congo-treatment.html
+
 **What a Short-Seller’s Conviction Might Mean for Wall St.**\
 `A federal jury found Andrew Left, who rose to fame by betting against companies, guilty of securities fraud. Other short-sellers are worried.`\
 https://www.nytimes.com/2026/06/02/business/dealbook/andrew-left-convicted-fraud.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/02/books/review/david-baerwald-fire-agent.html
 **A Stray Dog Became a Cultural Symbol in Brazil. Now, Mexico Is Claiming It.**\
 `To Brazilians, the ubiquitous caramel-colored mutts are a national icon. But a Mexican state has adopted them as its own homegrown symbol.`\
 https://www.nytimes.com/2026/06/02/world/americas/stray-dog-caramelos-brazil-mexico.html
-
-**Shannon Elizabeth Reflects on Being the Y2K Era’s ‘Hot Girl’**\
-`Shannon Elizabeth helped define blockbusters like “American Pie” and cult favorites like “Jay and Silent Bob Strike Back.” Now, as she enters a new public chapter, she reflects on the era.`\
-https://www.nytimes.com/2026/06/02/movies/shannon-elizabeth-american-pie.html
 

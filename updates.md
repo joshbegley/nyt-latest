@@ -1,3 +1,7 @@
+**Battling a Deadly Ebola Outbreak in Eastern Congo**\
+`At the heart of the Ebola outbreak in the Democratic Republic of Congo, health care workers are racing to open new treatment centers and ramp up testing. But after years of war, the deadly virus is just one of many challenges they’re facing.`\
+https://www.nytimes.com/video/world/africa/100000010936755/ebola-virus-outbreak-congo-treatment.html
+
 **California Primary Elections: What to Watch in the Governor’s Race, L.A. Mayoral Race and More**\
 `The race to replace Gov. Gavin Newsom has been unpredictable for months, while Mayor Karen Bass of Los Angeles is trying to fend off two challengers.`\
 https://www.nytimes.com/2026/06/02/us/elections/california-primary-what-to-watch.html
