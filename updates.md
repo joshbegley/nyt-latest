@@ -1,3 +1,7 @@
+**Trump Signs Executive Order Granting Oversight of A.I. Models**\
+`The order, which signaled a shift from the hands-off approach the White House had previously taken toward A.I., followed debates over how to gain control of A.I. models without disrupting innovation.`\
+https://www.nytimes.com/2026/06/02/technology/trump-executive-order-ai.html
+
 **Congress to Consider Restricting How the Military Uses A.I.**\
 `One measure would codify rules tech companies have requested, including a ban on using artificial intelligence for domestic surveillance.`\
 https://www.nytimes.com/2026/06/02/us/politics/military-ai-laws-congress.html
