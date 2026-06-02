@@ -1,3 +1,11 @@
+**Canada-U.S. Trade Visit Starts With Another Trump ‘51st State’ Post**\
+`The Canadian trade minister is visiting Washington on Tuesday to meet with the U.S. Trade Representative.`\
+https://www.nytimes.com/2026/06/02/world/canada/trump-canada-us-trade-usmca.html
+
+**Will a Moratorium on Data Centers Pass in New York This Week?**\
+`In the final hectic days of the legislative session, data centers, redistricting and algorithmic pricing vie for New York State lawmakers’ attention.`\
+https://www.nytimes.com/2026/06/02/nyregion/data-centers-redistricting-ny.html
+
 **The Best Movies and TV Shows Coming to Netflix in June**\
 `A World Cup comedy and a new film by Julian Schnabel are among this month’s most promising titles.`\
 https://www.nytimes.com/2026/06/02/arts/television/netflix-new-june.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/02/crosswords/wordle-review-1810.html
 **Inside Mamdani’s N.Y.C. Sports Equinox**\
 `Pablo visits the mayor of New York to discuss Knicks joy, Arsenal tears, hair loss, Trump and more.`\
 https://www.nytimes.com/2026/06/02/podcasts/inside-mamdanis-nyc-sports-equinox.html
-
-**How Hezbollah Drones Changed Israel’s Strategy in Lebanon**\
-`An Israeli campaign that started with high hopes has devolved into a kind of impasse, with Hezbollah looking more capable than it did when the war began.`\
-https://www.nytimes.com/2026/06/02/world/middleeast/israel-lebanon-hezbollah.html
-
-**Colombia pidió a EE. UU. sancionar su oro ilegal. Washington lo compraba**\
-`La solicitud de sanciones, realizada por el ministro de Defensa de Colombia, muestra fallos en ambos extremos de la cadena de suministro de oro ilegal.`\
-https://www.nytimes.com/es/2026/06/02/espanol/america-latina/colombia-ee-uu-sanciones-mineria-oro.html
 

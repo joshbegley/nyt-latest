@@ -1,3 +1,11 @@
+**Canada-U.S. Trade Visit Starts With Another Trump ‘51st State’ Post**\
+`The Canadian trade minister is visiting Washington on Tuesday to meet with the U.S. Trade Representative.`\
+https://www.nytimes.com/2026/06/02/world/canada/trump-canada-us-trade-usmca.html
+
+**Will a Moratorium on Data Centers Pass in New York This Week?**\
+`In the final hectic days of the legislative session, data centers, redistricting and algorithmic pricing vie for New York State lawmakers’ attention.`\
+https://www.nytimes.com/2026/06/02/nyregion/data-centers-redistricting-ny.html
+
 **The Best Movies and TV Shows Coming to Netflix in June**\
 `A World Cup comedy and a new film by Julian Schnabel are among this month’s most promising titles.`\
 https://www.nytimes.com/2026/06/02/arts/television/netflix-new-june.html
