@@ -1,3 +1,7 @@
+**What to Know About Serena Williams’s Return to Tennis**\
+`On Monday, Serena Williams, 44, announced she would return to tennis. Ava Wallace, a tennis reporter for The Athletic, dives into what it means for a sport Williams once dominated.`\
+https://www.nytimes.com/video/the-athletic/100000010938460/what-to-know-about-serena-williamss-return-to-tennis.html
+
 **Mavericks Pass on Dallas City Hall Site, Choose Valley View for New Arena**\
 `The choice gives the N.B.A. franchise room to pursue a sprawling mixed-use development while easing pressure on one of Dallas’s most closely watched civic battles.`\
 https://www.nytimes.com/2026/06/01/us/dallas-mavericks-new-arena-valley-view-mall.html

@@ -1,3 +1,7 @@
+**What to Know About Serena Williams’s Return to Tennis**\
+`On Monday, Serena Williams, 44, announced she would return to tennis. Ava Wallace, a tennis reporter for The Athletic, dives into what it means for a sport Williams once dominated.`\
+https://www.nytimes.com/video/the-athletic/100000010938460/what-to-know-about-serena-williamss-return-to-tennis.html
+
 **Mavericks Pass on Dallas City Hall Site, Choose Valley View for New Arena**\
 `The choice gives the N.B.A. franchise room to pursue a sprawling mixed-use development while easing pressure on one of Dallas’s most closely watched civic battles.`\
 https://www.nytimes.com/2026/06/01/us/dallas-mavericks-new-arena-valley-view-mall.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/es/2026/06/01/espanol/estados-unidos/cia-agente-oro-pent
 **Azniv Korkejian on Bedouine’s ‘Neon Summer Skin’**\
 `Azniv Korkejian, the recording artist known as Bedouine, turns her own nomadic history and family survival into comforting, classic folk.`\
 https://www.nytimes.com/2026/06/01/arts/music/bedouine-neon-summer-skin.html
-
-**Are We Really Too Busy? Laurie Santos on the ‘Time Crisis’**\
-`Do people have enough time to build a happy life? Are they making the right choices with the time they have? Laurie Santos, a professor at Yale, tackled those questions on “The Interview.”`\
-https://www.nytimes.com/video/podcasts/100000010937140/are-we-really-too-busy-laurie-santos-on-the-time-crisis.html
 
