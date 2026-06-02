@@ -1,3 +1,15 @@
+**Knicks Fans Want ’90s Tees. Pay Very 2026 Prices.**\
+`Plus: A new Jay-Z look, the onset of all-black summer and a new gig for an ex-Marni designer`\
+https://www.nytimes.com/2026/06/02/style/knicks-90s-merch-nostalgia.html
+
+**Netanyahu’s Critics Accuse Him of Heading a U.S. ‘Vassal State’**\
+`Critics pounced on the Israeli prime minister after President Trump claimed on social media he had persuaded him to call off “a major raid” on Hezbollah in Beirut.`\
+https://www.nytimes.com/2026/06/02/world/middleeast/netanyahu-criticism-beirut-attack-trump.html
+
+**Today, In Short**\
+`Dua Lipa. Serena Williams. And sleepy fish.`\
+https://www.nytimes.com/2026/06/02/briefing/today-in-short.html
+
 **Dallas Whale Mural Artist Wyland Sues FIFA After World Cup Paint-Over**\
 `The legal battle follows weeks of public anger after a nearly 30-year-old downtown landmark was mostly covered up to make way for a World Cup-related project.`\
 https://www.nytimes.com/2026/06/02/us/dallas-whale-mural-wyland-lawsuit-fifa-world-cup-texas.html
@@ -59,7 +71,7 @@ https://www.nytimes.com/2026/06/02/dining/dense-bean-salad.html
 https://www.nytimes.com/2026/06/02/business/economy/mellon-kennedy-childrens-health-defense.html
 
 **California Election Live Updates: Race to Succeed Newsom as Governor Highlights Primary Battles**\
-`Tuesday’s nonpartisan primaries will determine candidates for November. A former Biden cabinet secretary, a one-time Fox News host and a billionaire are vying to replace the term-limited governor, Gavin Newsom.`\
+`Tuesday’s nonpartisan primaries will determine candidates for November. A former Biden cabinet secretary, a onetime Fox News host and a billionaire are vying to replace the term-limited governor, Gavin Newsom.`\
 https://www.nytimes.com/live/2026/06/02/us/california-election-primary-governor
 
 **Carney Says Canada Faces a ‘Crisis of Antisemitism’**\
@@ -181,20 +193,4 @@ https://www.nytimes.com/2026/06/02/nyregion/electric-air-taxi-airport.html
 **17 Plays (and 3 Festivals) to Jazz Up Your June**\
 `Billy Porter, Wayne Brady, Sting and Suzan-Lori Parks are all slated to star on Off Broadway stages this month.`\
 https://www.nytimes.com/2026/06/02/theater/plays-and-festivals-jazz-up-june.html
-
-**Solve the June Bonus Puzzle**\
-`This month’s drag-themed puzzle was co-constructed by Bianca Del Rio, a stand-up comic and performance artist.`\
-https://www.nytimes.com/2026/06/02/crosswords/bonus-puzzle-drag.html
-
-**We Need Theater That Makes Us Bawl**\
-`Over 75 years ago, Arthur Miller made the case for works that explore the tragedy of the common man. Why are we still resisting his call?`\
-https://www.nytimes.com/2026/06/02/opinion/arthur-miller-tragedy.html
-
-**Ian Bremmer on the Risks America Poses to the World**\
-`The political risk analyst Ian Bremmer argues that the greatest driver of risk in the world right now is President Trump.`\
-https://www.nytimes.com/video/opinion/100000010932835/ian-bremmer-on-the-risks-america-poses-to-the-world.html
-
-**California Primary Elections: What to Watch in the Governor’s Race, L.A. Mayoral Race and More**\
-`The race to replace Gov. Gavin Newsom has been unpredictable for months, while Mayor Karen Bass of Los Angeles is trying to fend off two challengers.`\
-https://www.nytimes.com/2026/06/02/us/elections/california-primary-what-to-watch.html
 
