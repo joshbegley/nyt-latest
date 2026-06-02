@@ -142,8 +142,8 @@ https://www.nytimes.com/interactive/2026/06/02/us/quake-tracker-san-francisco-ba
 `Readers respond to Michal Leibowitz’s Opinion guest essay about Deep Springs College, an experimental school in the California desert.`\
 https://www.nytimes.com/2026/06/02/opinion/letters/college-work.html
 
-**Blanche Expected to Address Concerns Over $1.8 Billion Fund**\
-`The acting attorney general’s testimony comes a day after the Justice Department signaled it would abide by a court ruling halting the fund temporarily.`\
+**Justice Dept. Won’t Proceed With Trump’s $1.8 Billion Fund, Blanche Says**\
+`The acting attorney general told lawmakers that he would leave in place an order forcing the I.R.S. to drop investigations into President Trump, his family and his businesses.`\
 https://www.nytimes.com/2026/06/02/us/politics/todd-blanche-house-hearing.html
 
 **Dua Lipa, Callum Turner y la inspiración ‘vintage’ de su boda**\
@@ -195,6 +195,6 @@ https://www.nytimes.com/2026/06/02/technology/trump-executive-order-ai.html
 https://www.nytimes.com/2026/06/02/us/politics/military-ai-laws-congress.html
 
 **California Election Live Updates: Primary Battles Could Set Direction for California and Congress**\
-`Tuesday’s nonpartisan primaries will determine which candidates make the fall ballot in consequential races for governor, all 52 of the state’s congressional seats and Los Angeles mayor.`\
+`Tuesday’s nonpartisan primaries will determine which candidates make the fall ballot in consequential races for governor, Los Angeles mayor and all 52 of the state’s congressional seats.`\
 https://www.nytimes.com/live/2026/06/02/us/california-election-primary-governor
 

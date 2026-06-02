@@ -1,3 +1,7 @@
+**‘Did I Have a Choice?’ In New Jersey, Kean Voters Explain Themselves.**\
+`Some Republicans acknowledged how strange it felt to vote for Representative Thomas Kean Jr., who has not been seen for months. Mr. Kean issued a statement promising to be transparent about his situation.`\
+https://www.nytimes.com/2026/06/02/nyregion/thomas-kean-voters-new-jersey.html
+
 **Election Live Updates: Iowans Pick Candidates for Key Senate Race as Six States Hold Primaries**\
 `Democrats see an opportunity in deep-red Iowa, where Senator Joni Ernst is vacating her seat. Closely watched contests are also being held in New Jersey, Montana and South Dakota.`\
 https://www.nytimes.com/live/2026/06/02/us/primary-elections-iowa-montana-nj
