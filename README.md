@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/06/02/us/politics/tom-steyer-california-governor.ht
 `Senator Steve Daines withdrew his candidacy for re-election moments before the filing deadline, and then endorsed Kurt Alme in what appeared to be a coordinated swap to preclude competition.`\
 https://www.nytimes.com/2026/06/02/us/politics/montana-republican-senate-primary-daines-alme.html
 
-**NOTUS Cannot Be ‘The Star’: Judge Blocks D.C. New Outlet’s Rebranding**\
+**NOTUS Cannot Be ‘The Star’: Judge Blocks D.C. News Outlet’s Rebranding**\
 `NOTUS, a political news website, must temporarily suspend its plans to rebrand, a judge ruled in a trademark dispute brought by The Washington Star.`\
 https://www.nytimes.com/2026/06/02/business/media/notus-washington-star-trademark-dispute.html
 
