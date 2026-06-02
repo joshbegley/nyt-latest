@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/elections/100000010939890/02vid-cali-voters-25294.html
+
 **The Dark Side of Paul McCartney**\
 `Listen to “Eleanor Rigby,” “Daytime Nightime Suffering” and more tracks that hint at his gloomier instincts.`\
 https://www.nytimes.com/2026/06/02/arts/music/amplifier-newsletter-paul-mccartney.html

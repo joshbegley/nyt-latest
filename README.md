@@ -1,3 +1,7 @@
+**Dear President Ozymandias**\
+`Look on his works and despair.`\
+https://www.nytimes.com/2026/06/02/opinion/trump-kennedy-center-arch-reflecting-pool.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/elections/100000010939890/02vid-cali-voters-25294.html
@@ -34,13 +38,13 @@ https://www.nytimes.com/es/2026/06/02/espanol/estilos-de-vida/dua-lipa-boda-traj
 `The attack on the vessel, owned by the Mediterranean Shipping Company, underlines the threat to ships even as the U.S. and Iran try to negotiate reopening the Strait of Hormuz.`\
 https://www.nytimes.com/2026/06/02/business/msc-iraq-port-iran-war.html
 
-**Will a Moratorium on Data Centers Pass in New York This Week?**\
-`In the final hectic days of the legislative session, data centers, redistricting and algorithmic pricing vie for New York State lawmakers’ attention.`\
-https://www.nytimes.com/2026/06/02/nyregion/data-centers-redistricting-ny.html
-
 **Trump Again Refers to Canada as the ’51st State’ Hours Before Trade Talks**\
 `The Canadian trade minister is visiting Washington on Tuesday to meet with the U.S. Trade Representative.`\
 https://www.nytimes.com/2026/06/02/world/canada/trump-canada-us-trade-usmca.html
+
+**Will a Moratorium on Data Centers Pass in New York This Week?**\
+`In the final hectic days of the legislative session, data centers, redistricting and algorithmic pricing vie for New York State lawmakers’ attention.`\
+https://www.nytimes.com/2026/06/02/nyregion/data-centers-redistricting-ny.html
 
 **The Best Movies and TV Shows Coming to Netflix in June**\
 `A World Cup comedy and a new film by Julian Schnabel are among this month’s most promising titles.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/02/world/europe/ukraine-russia-war-strikes.html
 **Meta Expands Safety Features for Teenagers**\
 `The changes, after Meta’s legal losses in two child safety cases, are aimed at limiting harmful content shown to teenagers on Instagram, Facebook and Messenger.`\
 https://www.nytimes.com/2026/06/02/technology/meta-safety-features-teenagers.html
-
-**Inside the Ebola Outbreak**\
-`We discuss the epidemic in the Democratic Republic of Congo.`\
-https://www.nytimes.com/2026/06/02/briefing/inside-the-ebola-outbreak.html
 
