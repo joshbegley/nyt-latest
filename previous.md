@@ -1,3 +1,11 @@
+**The Dark Side of Paul McCartney**\
+`Listen to “Eleanor Rigby,” “Daytime Nightime Suffering” and more tracks that hint at his gloomier instincts.`\
+https://www.nytimes.com/2026/06/02/arts/music/amplifier-newsletter-paul-mccartney.html
+
+**White House Correspondents Dinner Rescheduled for July**\
+`The dinner was abruptly cut short in April when a gunman disrupted the proceedings.`\
+https://www.nytimes.com/2026/06/02/business/media/white-house-correspondents-dinner.html
+
 **Polls of California Governor’s Race Show a Clear Top 3**\
 `Xavier Becerra, Steve Hilton and Tom Steyer have consistently led the field in California’s nonpartisan primary, where the top two finishers advance.`\
 https://www.nytimes.com/2026/06/02/us/elections/california-governor-primary-election-polls.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/02/briefing/inside-the-ebola-outbreak.html
 **Was Churchill a Serious Artist? This Exhibition Says, ‘Yes.’**\
 `In the first major British retrospective for over 60 years, a London museum seeks to recast the wartime leader as a painter with emotional depth.`\
 https://www.nytimes.com/2026/06/02/arts/design/winston-churchill-painter-wallace-collection.html
-
-**Ébola: una carrera contra el tiempo**\
-`Un corresponsal del Times está informando desde el epicentro del ébola en la República Democrática del Congo. Esto es lo que ha visto.`\
-https://www.nytimes.com/es/2026/06/02/espanol/mundo/ebola-brote.html
-
-**As A.I. Makes Strides in Mathematics, Mathematicians Urge Caution**\
-`A week after OpenAI made headlines with an A.I.-generated proof, a new “declaration” by 16 experts raises concerns that the technology threatens math as a discipline.`\
-https://www.nytimes.com/2026/06/02/science/ai-mathematics-leiden-declaration.html
 

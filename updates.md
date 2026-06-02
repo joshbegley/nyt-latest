@@ -1,3 +1,11 @@
+**The Dark Side of Paul McCartney**\
+`Listen to “Eleanor Rigby,” “Daytime Nightime Suffering” and more tracks that hint at his gloomier instincts.`\
+https://www.nytimes.com/2026/06/02/arts/music/amplifier-newsletter-paul-mccartney.html
+
+**White House Correspondents Dinner Rescheduled for July**\
+`The dinner was abruptly cut short in April when a gunman disrupted the proceedings.`\
+https://www.nytimes.com/2026/06/02/business/media/white-house-correspondents-dinner.html
+
 **Polls of California Governor’s Race Show a Clear Top 3**\
 `Xavier Becerra, Steve Hilton and Tom Steyer have consistently led the field in California’s nonpartisan primary, where the top two finishers advance.`\
 https://www.nytimes.com/2026/06/02/us/elections/california-governor-primary-election-polls.html
