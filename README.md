@@ -27,7 +27,7 @@ https://www.nytimes.com/video/embedded/us/elections/100000010939890/02vid-cali-v
 https://www.nytimes.com/2026/06/02/arts/music/amplifier-newsletter-paul-mccartney.html
 
 **White House Correspondents Dinner Rescheduled for July**\
-`The dinner was abruptly cut short in April when a gunman disrupted the proceedings.`\
+`The dinner was abruptly cut short in April when a gunman disrupted the proceedings. President Trump said that he would attend.`\
 https://www.nytimes.com/2026/06/02/business/media/white-house-correspondents-dinner.html
 
 **Polls of California Governor’s Race Show a Clear Top 3**\
@@ -170,8 +170,8 @@ https://www.nytimes.com/2026/06/02/dining/dense-bean-salad.html
 `A Mellon heir transferred the adjacent Connecticut properties, covering about 300 acres, at no cost to Children’s Health Defense last year.`\
 https://www.nytimes.com/2026/06/02/business/economy/mellon-kennedy-childrens-health-defense.html
 
-**California Election Live Updates: Race to Succeed Newsom as Governor Highlights Primary Battles**\
-`Tuesday’s nonpartisan primaries will determine candidates for November. A former Biden cabinet secretary, a onetime Fox News host and a billionaire are vying to replace the term-limited governor, Gavin Newsom.`\
+**California Election Live Updates: Primary Battles Could Set Direction for California and Congress**\
+`Tuesday’s nonpartisan primaries will determine which candidates make the fall ballot in consequential races for governor, all 52 of the state’s congressional seats and Los Angeles mayor.`\
 https://www.nytimes.com/live/2026/06/02/us/california-election-primary-governor
 
 **Carney Says Canada Faces a ‘Crisis of Antisemitism’**\
