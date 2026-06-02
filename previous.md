@@ -1,3 +1,11 @@
+**What a Short-Seller’s Conviction Might Mean for Wall St.**\
+`A federal jury found Andrew Left, who rose to fame by betting against companies, guilty of securities fraud. Other short-sellers are worried.`\
+https://www.nytimes.com/2026/06/02/business/dealbook/andrew-left-convicted-fraud.html
+
+**U.S. Ebola Unit Plans in Kenya, Subject of Protests, Suffers New Setback From Court Ruling**\
+`The court further delayed the Trump administration’s proposed quarantine unit for Americans exposed to the virus. The plan has sparked angry protests in Kenya.`\
+https://www.nytimes.com/2026/06/02/world/africa/kenya-ebola-us-quarantine-unit-court.html
+
 **Rubio to Testify Before Senate, Arguing for Budget Amid Iran War and Pressure on Cuba**\
 `The secretary of state has played a key role in the Iran deliberations, as well as in U.S. policy toward Cuba.`\
 https://www.nytimes.com/2026/06/02/us/politics/marco-rubio-senate-budget-iran-cuba.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/02/world/americas/stray-dog-caramelos-brazil-mex
 **Shannon Elizabeth Reflects on Being the Y2K Era’s ‘Hot Girl’**\
 `Shannon Elizabeth helped define blockbusters like “American Pie” and cult favorites like “Jay and Silent Bob Strike Back.” Now, as she enters a new public chapter, she reflects on the era.`\
 https://www.nytimes.com/2026/06/02/movies/shannon-elizabeth-american-pie.html
-
-**Hospitals See Diseases Resurge as Vaccinations Decline**\
-`Doctors nationwide are encountering more children with whooping cough, bacterial infections and other serious illnesses, as well as more adults refusing tetanus shots.`\
-https://www.nytimes.com/2026/06/02/well/children-vaccines-illnesses.html
-
-**5 Beautiful Hawaiian Swimming Holes**\
-`Clear natural pools, many fed by crystalline waterfalls, give visitors to Hawaii a refreshing reason to expand their explorations beyond the beach.`\
-https://www.nytimes.com/2026/06/02/travel/hawaii-swimming-holes-waterfalls.html
 
