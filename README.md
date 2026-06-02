@@ -1,3 +1,7 @@
+**Meta Expands Safety Features for Teenagers**\
+`The changes, after Meta’s legal losses in two child safety cases, are aimed at limiting harmful content shown to teenagers on Instagram, Facebook and Messenger.`\
+https://www.nytimes.com/2026/06/02/technology/meta-safety-features-teenagers.html
+
 **Inside the Ebola Outbreak**\
 `We discuss the epidemic in the Democratic Republic of Congo.`\
 https://www.nytimes.com/2026/06/02/briefing/inside-the-ebola-outbreak.html
@@ -18,13 +22,13 @@ https://www.nytimes.com/2026/06/02/science/ai-mathematics-leiden-declaration.htm
 `An initial public offering of SpaceX is likely to be one of the largest ever.`\
 https://www.nytimes.com/2026/06/02/podcasts/the-daily/elon-musk-spacex-ipo.html
 
-**Extreme Water Shortages in the West, and Hegseth’s Pentagon Purge**\
-`Plus, the rocky, unpredictable race for California governor.`\
-https://www.nytimes.com/2026/06/02/podcasts/the-headlines/water-shortages-drought-hegseth-pentagon.html
-
 **NYT Connections Answers for June 3, 2026**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, June 3, 2026.`\
 https://www.nytimes.com/2026/06/02/crosswords/connections-companion-1088.html
+
+**Extreme Water Shortages in the West, and Hegseth’s Pentagon Purge**\
+`Plus, the rocky, unpredictable race for California governor.`\
+https://www.nytimes.com/2026/06/02/podcasts/the-headlines/water-shortages-drought-hegseth-pentagon.html
 
 **NYT Strands Hints for June 3, 2026**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, June 3, 2026.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/02/well/health-risks-sleeping-with-pet.html
 **Russia Launches Deadly Strikes on Ukraine**\
 `Russian missiles and drones hit Kyiv, the Ukrainian capital, early Tuesday, more than a week after Russia warned of a plan to strike “decision-making centers” in the city.`\
 https://www.nytimes.com/video/world/europe/100000010938828/ukraine-kyiv-russia-attack.html
-
-**La capital mundial de las papas fritas tiene un problema: demasiadas papas**\
-`Bélgica tuvo una cosecha récord justo cuando los aranceles del gobierno de Donald Trump redujeron la demanda estadounidense de papas fritas congeladas y la competencia asiática se intensificó.`\
-https://www.nytimes.com/es/2026/06/02/espanol/negocios/europa-belgica-papas-exceso.html
 
