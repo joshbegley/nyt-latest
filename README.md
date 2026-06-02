@@ -50,7 +50,7 @@ https://www.nytimes.com/2026/06/02/business/media/white-house-correspondents-din
 `Xavier Becerra, Steve Hilton and Tom Steyer have consistently led the field in California’s nonpartisan primary, where the top two finishers advance.`\
 https://www.nytimes.com/2026/06/02/us/elections/california-governor-primary-election-polls.html
 
-**Map: 3.7-Magnitude Earthquake Shakes the San Francisco Bay Area**\
+**Map: 3.6-Magnitude Earthquake Shakes the San Francisco Bay Area**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/06/02/us/quake-tracker-san-francisco-bay-area.html
 

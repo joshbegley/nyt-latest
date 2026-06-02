@@ -1,3 +1,7 @@
+**5 Bills in Limbo as New York Lawmakers Prepare to Leave Town**\
+`In the final hectic days of the legislative session, data centers, redistricting and algorithmic pricing vie for New York State lawmakers’ attention.`\
+https://www.nytimes.com/2026/06/02/nyregion/data-centers-redistricting-ny.html
+
 **Kilauea Spews More Lava, Reaching a Volcanic Milestone**\
 `On Monday, the volcano on Hawaii’s Big Island had a 48th episode of “lava fountaining” in an eruption that began in 2024.`\
 https://www.nytimes.com/2026/06/02/us/kilauea-hawaii-volcano-eruption-record.html
