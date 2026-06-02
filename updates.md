@@ -1,3 +1,7 @@
+**Sheet-Pan Chicken With Potatoes, Arugula and Garlic Yogurt**\
+`Your typical sheet-pan chicken recipe roasts everything together on a pan at once. This version from Cooking’s Melissa Clark pairs potatoes with the poultry, and tops everything off with fresh herbs and arugula, making it a true one-pan meal, salad included.`\
+https://www.nytimes.com/video/dining/100000010940482/sheet-pan-chicken-with-potatoes-arugula-and-garlic-yogurt.html
+
 **In Cedar Rapids, a Voter Expects — and Receives — Personal Attention**\
 `A Democratic voter was leaning toward Zach Wahls in the Senate primary. A visit from Josh Turek made her think twice. Then came a call from Mr. Wahls.`\
 https://www.nytimes.com/2026/06/02/us/politics/turek-wahls-voter-iowa-senate-primary.html

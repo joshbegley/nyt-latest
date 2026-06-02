@@ -1,3 +1,7 @@
+**Sheet-Pan Chicken With Potatoes, Arugula and Garlic Yogurt**\
+`Your typical sheet-pan chicken recipe roasts everything together on a pan at once. This version from Cooking’s Melissa Clark pairs potatoes with the poultry, and tops everything off with fresh herbs and arugula, making it a true one-pan meal, salad included.`\
+https://www.nytimes.com/video/dining/100000010940482/sheet-pan-chicken-with-potatoes-arugula-and-garlic-yogurt.html
+
 **In Cedar Rapids, a Voter Expects — and Receives — Personal Attention**\
 `A Democratic voter was leaning toward Zach Wahls in the Senate primary. A visit from Josh Turek made her think twice. Then came a call from Mr. Wahls.`\
 https://www.nytimes.com/2026/06/02/us/politics/turek-wahls-voter-iowa-senate-primary.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/02/world/asia/stephen-curry-li-ning-shoe-deal-ch
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/elections/100000010939511/02vid-cali-voters-91871.html
-
-**In Her Memoir, Jill Biden Is a Watchful Spouse Who Didn’t Always Speak Up About Joe Biden**\
-`The former first lady’s new book reflects an insular White House where loyalty was prized and President Joseph R. Biden Jr.’s feelings were prioritized over health concerns.`\
-https://www.nytimes.com/2026/06/02/us/politics/jill-biden-joe-biden-memoir-health-age.html
 
 **California Election Live Updates: Primary Battles Could Set Direction for California and Congress**\
 `Tuesday’s nonpartisan primaries will determine which candidates make the fall ballot in consequential races for governor, Los Angeles mayor and all 52 of the state’s congressional seats.`\
