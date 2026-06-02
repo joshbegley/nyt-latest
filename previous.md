@@ -1,3 +1,7 @@
+**Polls of California Governor’s Race Show a Clear Top 3**\
+`Xavier Becerra, Steve Hilton and Tom Steyer have consistently led the field in California’s nonpartisan primary, where the top two finishers advance.`\
+https://www.nytimes.com/2026/06/02/us/elections/california-governor-primary-election-polls.html
+
 **Map: 3.7-Magnitude Earthquake Shakes the San Francisco Bay Area**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/06/02/us/quake-tracker-san-francisco-bay-area.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/es/2026/06/02/espanol/mundo/ebola-brote.html
 **As A.I. Makes Strides in Mathematics, Mathematicians Urge Caution**\
 `A week after OpenAI made headlines with an A.I.-generated proof, a new “declaration” by 16 experts raises concerns that the technology threatens math as a discipline.`\
 https://www.nytimes.com/2026/06/02/science/ai-mathematics-leiden-declaration.html
-
-**How Elon Musk Engineered the World’s Biggest I.P.O.**\
-`An initial public offering of SpaceX is likely to be one of the largest ever.`\
-https://www.nytimes.com/2026/06/02/podcasts/the-daily/elon-musk-spacex-ipo.html
 
