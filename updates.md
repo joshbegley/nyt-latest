@@ -1,3 +1,7 @@
+**Trump Megadonor Gave $5.5 Million Estate to Robert F. Kennedy Jr.’s Anti-Vaccine Group**\
+`A Mellon heir transferred the adjacent Connecticut properties, covering about 300 acres, at no cost to Children’s Health Defense last year.`\
+https://www.nytimes.com/2026/06/02/business/economy/mellon-kennedy-childrens-health-defense.html
+
 **Guerra en Ucrania: Rusia ataca Kiev**\
 `Las advertencias reiteradas de Moscú de un gran ataque, y el retraso en su ejecución, parecieron querer infligir un daño psicológico a la capital de Ucrania.`\
 https://www.nytimes.com/es/2026/06/02/espanol/mundo/rusia-ataca-ucrania-kiev.html

@@ -1,3 +1,7 @@
+**Police Say Muscatine, Iowa Man Shot 6 Relatives Before Killing Himself**\
+`The man, Ryan Willis McFarland, 52, was confronted by the police, who said the killings followed a domestic dispute.`\
+https://www.nytimes.com/2026/06/02/us/muscatine-iowa-shooting-family.html
+
 **Guerra en Ucrania: Rusia ataca Kiev**\
 `Las advertencias reiteradas de Moscú de un gran ataque, y el retraso en su ejecución, parecieron querer infligir un daño psicológico a la capital de Ucrania.`\
 https://www.nytimes.com/es/2026/06/02/espanol/mundo/rusia-ataca-ucrania-kiev.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/02/arts/music/amadeus-composer-movies.html
 **Five Homes for Sale With Dreamy Pools**\
 `A 1960s compound in the Berkshires, a tropical cottage in Miami, a quintessential Hamptons house, and two California retreats.`\
 https://www.nytimes.com/2026/06/02/realestate/five-homes-for-sale-with-dreamy-pools.html
-
-**At Diane Keaton’s Estate Auction, Colorful Trims, ‘Annie Hall’ and More**\
-`Hundreds of items that highlight the actress’s subversive style and her assured role as collector and curator are up for bidding.`\
-https://www.nytimes.com/2026/06/02/style/diane-keaton-auction-bonhams.html
 

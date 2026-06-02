@@ -38,7 +38,7 @@ https://www.nytimes.com/2026/06/02/climate/new-york-lawsuit-trump-offshore-wind.
 `The woman behind the viral Dense Bean Salad seems to have done the impossible: created a TikTok food trend with staying power.`\
 https://www.nytimes.com/2026/06/02/dining/dense-bean-salad.html
 
-**Trump Megadonor Gave $5.5 Million Estate to Robert F. Kennedy Jr. Nonprofit**\
+**Trump Megadonor Gave $5.5 Million Estate to Robert F. Kennedy Jr.’s Anti-Vaccine Group**\
 `A Mellon heir transferred the adjacent Connecticut properties, covering about 300 acres, at no cost to Children’s Health Defense last year.`\
 https://www.nytimes.com/2026/06/02/business/economy/mellon-kennedy-childrens-health-defense.html
 
