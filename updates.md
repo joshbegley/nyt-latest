@@ -1,3 +1,11 @@
+**Blanche to Face Lawmakers Amid Uproar Over $1.8 Billion Fund**\
+`The acting attorney general’s testimony comes a day after the Justice Department signaled it would abide by a court ruling halting the fund temporarily.`\
+https://www.nytimes.com/2026/06/02/us/politics/todd-blanche-house-hearing.html
+
+**Dua Lipa, Callum Turner y la inspiración ‘vintage’ de su boda**\
+`La estrella del pop y el actor combinaron detalles de glamour de vieja escuela con el estilo londinense moderno.`\
+https://www.nytimes.com/es/2026/06/02/espanol/estilos-de-vida/dua-lipa-boda-traje-novia-jagger.html
+
 **MSC Ship Is Struck by Two Projectiles in Iraqi Port**\
 `The attack on the vessel, owned by the Mediterranean Shipping Company, underlines the threat to ships even as the U.S. and Iran try to negotiate reopening the Strait of Hormuz.`\
 https://www.nytimes.com/2026/06/02/business/msc-iraq-port-iran-war.html

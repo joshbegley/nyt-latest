@@ -1,3 +1,11 @@
+**Blanche to Face Lawmakers Amid Uproar Over $1.8 Billion Fund**\
+`The acting attorney general’s testimony comes a day after the Justice Department signaled it would abide by a court ruling halting the fund temporarily.`\
+https://www.nytimes.com/2026/06/02/us/politics/todd-blanche-house-hearing.html
+
+**Dua Lipa, Callum Turner y la inspiración ‘vintage’ de su boda**\
+`La estrella del pop y el actor combinaron detalles de glamour de vieja escuela con el estilo londinense moderno.`\
+https://www.nytimes.com/es/2026/06/02/espanol/estilos-de-vida/dua-lipa-boda-traje-novia-jagger.html
+
 **MSC Ship Is Struck by Two Projectiles in Iraqi Port**\
 `The attack on the vessel, owned by the Mediterranean Shipping Company, underlines the threat to ships even as the U.S. and Iran try to negotiate reopening the Strait of Hormuz.`\
 https://www.nytimes.com/2026/06/02/business/msc-iraq-port-iran-war.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/02/crosswords/connections-companion-1088.html
 **Extreme Water Shortages in the West, and Hegseth’s Pentagon Purge**\
 `Plus, the rocky, unpredictable race for California governor.`\
 https://www.nytimes.com/2026/06/02/podcasts/the-headlines/water-shortages-drought-hegseth-pentagon.html
-
-**NYT Strands Hints for June 3, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, June 3, 2026.`\
-https://www.nytimes.com/2026/06/02/crosswords/strands-sidekick-822.html
-
-**Today’s Wordle Hints for June 3, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, June 3, 2026.`\
-https://www.nytimes.com/2026/06/02/crosswords/wordle-review-1810.html
 
