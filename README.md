@@ -31,7 +31,7 @@ https://www.nytimes.com/2026/06/02/world/canada/bouncy-castle-child-montreal.htm
 https://www.nytimes.com/interactive/2026/us/elections/results-iowa-us-senate-primary.html
 
 **When Trump Talks About Victims of ‘Weaponization,’ Who Is He Talking About?**\
-`The president has used the term to refer to a number of people who had been charged with or convicted of financial or political crimes — and who, in many cases, he’s said remind him of himself.`\
+`The president has used the term to refer to a number of people who had been charged with or convicted of financial or political crimes — and who, in many cases, he’s said remind him of himself.`\
 https://www.nytimes.com/interactive/2026/06/02/us/trump-weaponization-political-victims-biden.html
 
 **Live Election Results 2026: Key Races on June 2**\

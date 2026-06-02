@@ -1,3 +1,19 @@
+**In Cedar Rapids, a Voter Expects — and Receives — Personal Attention**\
+`A Democratic voter was leaning toward Zach Wahls in the Senate primary. A visit from Josh Turek made her think twice. Then came a call from Mr. Wahls.`\
+https://www.nytimes.com/2026/06/02/us/politics/turek-wahls-voter-iowa-senate-primary.html
+
+**MoMA Names Makeda Best as New Photography Chief**\
+`Makeda Best, a deputy director of the Oakland Museum of California and a photographer, will lead the department.`\
+https://www.nytimes.com/2026/06/02/arts/design/moma-photography-chief.html
+
+**Justice Dept. Won’t Proceed With Trump’s $1.8 Billion Fund, Blanche Says**\
+`The acting attorney general told lawmakers that he would leave in place an order forcing the I.R.S. to drop investigations into President Trump, his family and his businesses.`\
+https://www.nytimes.com/2026/06/02/us/politics/todd-blanche-house-hearing.html
+
+**California Election Live Updates: Primary Battles Could Set Direction for California and Congress**\
+`Tuesday’s nonpartisan primaries will determine which candidates make the fall ballot in consequential races for governor, Los Angeles mayor and all 52 of the state’s congressional seats.`\
+https://www.nytimes.com/live/2026/06/02/us/california-election-primary-governor
+
 **‘Did I Have a Choice?’ In New Jersey, Kean Voters Explain Themselves.**\
 `Some Republicans acknowledged how strange it felt to vote for Representative Thomas Kean Jr., who has not been seen for months. Mr. Kean issued a statement promising to be transparent about his situation.`\
 https://www.nytimes.com/2026/06/02/nyregion/thomas-kean-voters-new-jersey.html

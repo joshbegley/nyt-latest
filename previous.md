@@ -1,3 +1,11 @@
+**In Cedar Rapids, a Voter Expects — and Receives — Personal Attention**\
+`A Democratic voter was leaning toward Zach Wahls in the Senate primary. A visit from Josh Turek made her think twice. Then came a call from Mr. Wahls.`\
+https://www.nytimes.com/2026/06/02/us/politics/turek-wahls-voter-iowa-senate-primary.html
+
+**MoMA Names Makeda Best as New Photography Chief**\
+`Makeda Best, a deputy director of the Oakland Museum of California and a photographer, will lead the department.`\
+https://www.nytimes.com/2026/06/02/arts/design/moma-photography-chief.html
+
 **Election Live Updates: Iowans Pick Candidates for Key Senate Race as Six States Hold Primaries**\
 `Democrats see an opportunity in deep-red Iowa, where Senator Joni Ernst is vacating her seat. Closely watched contests are also being held in New Jersey, Montana and South Dakota.`\
 https://www.nytimes.com/live/2026/06/02/us/primary-elections-iowa-montana-nj
@@ -142,8 +150,8 @@ https://www.nytimes.com/interactive/2026/06/02/us/quake-tracker-san-francisco-ba
 `Readers respond to Michal Leibowitz’s Opinion guest essay about Deep Springs College, an experimental school in the California desert.`\
 https://www.nytimes.com/2026/06/02/opinion/letters/college-work.html
 
-**Blanche Expected to Address Concerns Over $1.8 Billion Fund**\
-`The acting attorney general’s testimony comes a day after the Justice Department signaled it would abide by a court ruling halting the fund temporarily.`\
+**Justice Dept. Won’t Proceed With Trump’s $1.8 Billion Fund, Blanche Says**\
+`The acting attorney general told lawmakers that he would leave in place an order forcing the I.R.S. to drop investigations into President Trump, his family and his businesses.`\
 https://www.nytimes.com/2026/06/02/us/politics/todd-blanche-house-hearing.html
 
 **Dua Lipa, Callum Turner y la inspiración ‘vintage’ de su boda**\
@@ -186,15 +194,7 @@ https://www.nytimes.com/video/embedded/us/elections/100000010939511/02vid-cali-v
 `The former first lady’s new book reflects an insular White House where loyalty was prized and President Joseph R. Biden Jr.’s feelings were prioritized over health concerns.`\
 https://www.nytimes.com/2026/06/02/us/politics/jill-biden-joe-biden-memoir-health-age.html
 
-**Trump Signs Executive Order Seeking Oversight of A.I. Models**\
-`The order, which signaled a shift from the hands-off approach the White House had previously taken toward A.I., followed debates over how to gain control of A.I. models without disrupting innovation.`\
-https://www.nytimes.com/2026/06/02/technology/trump-executive-order-ai.html
-
-**Congress to Consider Restricting How the Military Uses A.I.**\
-`One measure would codify rules tech companies have requested, including a ban on using artificial intelligence for domestic surveillance.`\
-https://www.nytimes.com/2026/06/02/us/politics/military-ai-laws-congress.html
-
 **California Election Live Updates: Primary Battles Could Set Direction for California and Congress**\
-`Tuesday’s nonpartisan primaries will determine which candidates make the fall ballot in consequential races for governor, all 52 of the state’s congressional seats and Los Angeles mayor.`\
+`Tuesday’s nonpartisan primaries will determine which candidates make the fall ballot in consequential races for governor, Los Angeles mayor and all 52 of the state’s congressional seats.`\
 https://www.nytimes.com/live/2026/06/02/us/california-election-primary-governor
 
