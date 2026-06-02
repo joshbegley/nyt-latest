@@ -1,4 +1,8 @@
-**Why Canada’s Leader Says the Country Is Failing Jewish Canadians**\
+**California Election Live Updates: Governor’s Race to Succeed Newsom Headlines Primary Battles**\
+`Tuesday’s nonpartisan primaries will determine candidates for November. A former Biden cabinet secretary, a one-time Fox News host and a billionaire are vying to replace the term-limited governor, Gavin Newsom.`\
+https://www.nytimes.com/live/2026/06/02/us/california-election-primary-governor
+
+**Carney Says Canada Is Failing Jewish Canadians, Describing ‘Crisis of Antisemitism’**\
 `Prime Minister Mark Carney’s comments followed calls from Jewish organizations to address what they described as a crisis of antisemitism.`\
 https://www.nytimes.com/2026/06/02/world/canada/carney-antisemitism-toronto-canada.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/02/books/review/stolen-revolutions-yeganeh-torba
 **Book Review: ‘Land,’ by Maggie O’Farrell**\
 `Set in the decades after the Great Hunger, “Land” is a rich portrait of family life amid Ireland’s long struggle against British rule.`\
 https://www.nytimes.com/2026/06/02/books/review/land-maggie-ofarrell.html
-
-**Party Like a Swede! A Guide to Celebrating Midsummer.**\
-`The holiday celebrates the return of light after the long, dark Nordic winter. Here’s how to take part in Sweden, or wherever you are.`\
-https://www.nytimes.com/2026/06/02/travel/sweden-midsummer-celebrations.html
 

@@ -1,3 +1,11 @@
+**California Election Live Updates: Governor’s Race to Succeed Newsom Headlines Primary Battles**\
+`Tuesday’s nonpartisan primaries will determine candidates for November. A former Biden cabinet secretary, a one-time Fox News host and a billionaire are vying to replace the term-limited governor, Gavin Newsom.`\
+https://www.nytimes.com/live/2026/06/02/us/california-election-primary-governor
+
+**Carney Says Canada Is Failing Jewish Canadians, Describing ‘Crisis of Antisemitism’**\
+`Prime Minister Mark Carney’s comments followed calls from Jewish organizations to address what they described as a crisis of antisemitism.`\
+https://www.nytimes.com/2026/06/02/world/canada/carney-antisemitism-toronto-canada.html
+
 **Why Canada’s Leader Says the Country Is Failing Jewish Canadians**\
 `Prime Minister Mark Carney’s comments followed calls from Jewish organizations to address what they described as a crisis of antisemitism.`\
 https://www.nytimes.com/2026/06/02/world/canada/carney-antisemitism-toronto-canada.html
