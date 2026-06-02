@@ -1,3 +1,7 @@
+**Security Council Members Call for Israel to Withdraw From Southern Lebanon**\
+`The U.N. panel met after Israel had threatened to attack southern Beirut. President Trump said later that Israel and Hezbollah had agreed not to attack each other.`\
+https://www.nytimes.com/2026/06/01/world/middleeast/un-security-council-lebanon.html
+
 **Hawaii Man Charged With Killing Three Men**\
 `An expansive manhunt on the Big Island of Hawaii ended with the suspect’s arrest on Thursday in the deaths of the men, who were in their 60s and 70s.`\
 https://www.nytimes.com/2026/06/01/us/hawaii-murders-pahoa-charges.html
