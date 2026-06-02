@@ -1,3 +1,7 @@
+**Guerra en Ucrania: Rusia ataca Kiev**\
+`Las advertencias reiteradas de Moscú de un gran ataque, y el retraso en su ejecución, parecieron querer infligir un daño psicológico a la capital de Ucrania.`\
+https://www.nytimes.com/es/2026/06/02/espanol/mundo/rusia-ataca-ucrania-kiev.html
+
 **‘La La Land’ Orchestral Performance Saved by Keyboardist in the Audience**\
 `After a musician fell ill during a live performance of the score from ‘La La Land,’ the composer Justin Hurwitz asked for a sight reader. A 21-year-old student stepped up.`\
 https://www.nytimes.com/2026/06/02/world/australia/la-la-land-sydney-concert-audience-member.html

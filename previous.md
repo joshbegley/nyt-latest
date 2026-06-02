@@ -1,3 +1,7 @@
+**Guerra en Ucrania: Rusia ataca Kiev**\
+`Las advertencias reiteradas de Moscú de un gran ataque, y el retraso en su ejecución, parecieron querer infligir un daño psicológico a la capital de Ucrania.`\
+https://www.nytimes.com/es/2026/06/02/espanol/mundo/rusia-ataca-ucrania-kiev.html
+
 **‘La La Land’ Orchestral Performance Saved by Keyboardist in the Audience**\
 `After a musician fell ill during a live performance of the score from ‘La La Land,’ the composer Justin Hurwitz asked for a sight reader. A 21-year-old student stepped up.`\
 https://www.nytimes.com/2026/06/02/world/australia/la-la-land-sydney-concert-audience-member.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/02/realestate/five-homes-for-sale-with-dreamy-po
 **At Diane Keaton’s Estate Auction, Colorful Trims, ‘Annie Hall’ and More**\
 `Hundreds of items that highlight the actress’s subversive style and her assured role as collector and curator are up for bidding.`\
 https://www.nytimes.com/2026/06/02/style/diane-keaton-auction-bonhams.html
-
-**Obama Center’s Two Sides: A Lovely Park and a Forbidding Tower**\
-`In Chicago, the $850 million Obama Presidential Center aims to remake a neighborhood with a 19.3-acre community hub and a brooding 225-foot museum.`\
-https://www.nytimes.com/2026/06/02/arts/design/obama-presidential-center-library-chicago.html
 
