@@ -1,3 +1,23 @@
+**Los Angeles Mayor 2026: Live Election Results**\
+`Get live results and maps from the 2026 California election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-mayor-los-angeles.html
+
+**Curfew to Be Lifted Near Detention Center Where Protests Have Raged**\
+`The restrictions outside Delaney Hall immigration detention center were imposed after demonstrators who were protesting the conditions at the facility had clashed with the police.`\
+https://www.nytimes.com/2026/06/02/nyregion/delaney-hall-curfew-protests.html
+
+**Dear President Ozymandias**\
+`Look on his works and despair.`\
+https://www.nytimes.com/2026/06/02/opinion/trump-kennedy-center-arch-reflecting-pool.html
+
+**Stephen Curry and Li-Ning: What to Know About N.B.A. Star’s Deal With Chinese Sneaker Company**\
+`The agreement, which includes plans for sportswear and athleisure products, and stores across the United States and China, is the biggest involving an N.B.A. star and a Chinese brand.`\
+https://www.nytimes.com/2026/06/02/world/asia/stephen-curry-li-ning-shoe-deal-china.html
+
+**Trump Names Bill Pulte as Acting Director of National Intelligence**\
+`Bill Pulte, a Trump loyalist who leads the federal housing finance agency, will oversee the U.S. intelligence agencies. He has no known background in intelligence.`\
+https://www.nytimes.com/2026/06/02/us/politics/bill-pulte-acting-director-national-intelligence.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/elections/100000010939890/02vid-cali-voters-25294.html

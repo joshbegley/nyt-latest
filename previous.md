@@ -1,3 +1,15 @@
+**Los Angeles Mayor 2026: Live Election Results**\
+`Get live results and maps from the 2026 California election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-mayor-los-angeles.html
+
+**Curfew to Be Lifted Near Detention Center Where Protests Have Raged**\
+`The restrictions outside Delaney Hall immigration detention center were imposed after demonstrators who were protesting the conditions at the facility had clashed with the police.`\
+https://www.nytimes.com/2026/06/02/nyregion/delaney-hall-curfew-protests.html
+
+**Dear President Ozymandias**\
+`Look on his works and despair.`\
+https://www.nytimes.com/2026/06/02/opinion/trump-kennedy-center-arch-reflecting-pool.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/elections/100000010939890/02vid-cali-voters-25294.html
@@ -34,13 +46,13 @@ https://www.nytimes.com/es/2026/06/02/espanol/estilos-de-vida/dua-lipa-boda-traj
 `The attack on the vessel, owned by the Mediterranean Shipping Company, underlines the threat to ships even as the U.S. and Iran try to negotiate reopening the Strait of Hormuz.`\
 https://www.nytimes.com/2026/06/02/business/msc-iraq-port-iran-war.html
 
-**Will a Moratorium on Data Centers Pass in New York This Week?**\
-`In the final hectic days of the legislative session, data centers, redistricting and algorithmic pricing vie for New York State lawmakers’ attention.`\
-https://www.nytimes.com/2026/06/02/nyregion/data-centers-redistricting-ny.html
-
 **Trump Again Refers to Canada as the ’51st State’ Hours Before Trade Talks**\
 `The Canadian trade minister is visiting Washington on Tuesday to meet with the U.S. Trade Representative.`\
 https://www.nytimes.com/2026/06/02/world/canada/trump-canada-us-trade-usmca.html
+
+**Will a Moratorium on Data Centers Pass in New York This Week?**\
+`In the final hectic days of the legislative session, data centers, redistricting and algorithmic pricing vie for New York State lawmakers’ attention.`\
+https://www.nytimes.com/2026/06/02/nyregion/data-centers-redistricting-ny.html
 
 **The Best Movies and TV Shows Coming to Netflix in June**\
 `A World Cup comedy and a new film by Julian Schnabel are among this month’s most promising titles.`\
@@ -55,7 +67,7 @@ https://www.nytimes.com/2026/06/02/opinion/trump-corruption-allies.html
 https://www.nytimes.com/2026/06/02/opinion/contributors/job-search-reader-callout.html
 
 **Stephen Curry and Li-Ning: What to Know About N.B.A. Star’s Deal With Chinese Sneaker Company**\
-`The agreement, which includes plans for sportswear and athleisure products, and stores across the United States and China, is the latest example of an N.B.A. star signing with a Chinese brand.`\
+`The agreement, which includes plans for sportswear and athleisure products, and stores across the United States and China, is the biggest involving an N.B.A. star and a Chinese brand.`\
 https://www.nytimes.com/2026/06/02/world/asia/stephen-curry-li-ning-shoe-deal-china.html
 
 ****\
@@ -135,7 +147,7 @@ https://www.nytimes.com/2026/06/02/us/politics/trump-budget-grants-omb-vought.ht
 https://www.nytimes.com/2026/06/02/health/ebola-tests-congo.html
 
 **Trump Names Bill Pulte as Acting Director of National Intelligence**\
-`Bill Pulte, a Trump loyalist who leads the federal housing finance agency, will have oversight of the United States intelligence agencies. He has no known background in intelligence.`\
+`Bill Pulte, a Trump loyalist who leads the federal housing finance agency, will oversee the U.S. intelligence agencies. He has no known background in intelligence.`\
 https://www.nytimes.com/2026/06/02/us/politics/bill-pulte-acting-director-national-intelligence.html
 
 **New York Sues Trump Administration Over TotalEnergies Wind Farm**\
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/06/02/world/africa/kenya-ebola-us-quarantine-unit-c
 **Rubio to Testify Before Senate, Arguing for Budget Amid Iran War and Pressure on Cuba**\
 `The secretary of state has played a key role in the Iran deliberations, as well as in U.S. policy toward Cuba.`\
 https://www.nytimes.com/2026/06/02/us/politics/marco-rubio-senate-budget-iran-cuba.html
-
-**Bombs Raining Down on Ukraine Can’t Hide Signs of Russia’s Faltering War**\
-`The war has not been going the Kremlin’s way, with battleground losses and growing casualties. With fiercer strikes, Moscow hopes to gain a better position for negotiations.`\
-https://www.nytimes.com/2026/06/02/world/europe/ukraine-russia-war-strikes.html
-
-**Meta Expands Safety Features for Teenagers**\
-`The changes, after Meta’s legal losses in two child safety cases, are aimed at limiting harmful content shown to teenagers on Instagram, Facebook and Messenger.`\
-https://www.nytimes.com/2026/06/02/technology/meta-safety-features-teenagers.html
-
-**Inside the Ebola Outbreak**\
-`We discuss the epidemic in the Democratic Republic of Congo.`\
-https://www.nytimes.com/2026/06/02/briefing/inside-the-ebola-outbreak.html
 
