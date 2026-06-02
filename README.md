@@ -1,3 +1,7 @@
+**New York Sues Trump Administration Over TotalEnergies Wind Farm**\
+`The lawsuit argues that it is illegal to pay the French energy giant TotalEnergies $795 million to cancel a planned wind farm off New York.`\
+https://www.nytimes.com/2026/06/02/climate/new-york-lawsuit-trump-offshore-wind.html
+
 **Violet Witchel Wants to You to Think Beans Are Sexy**\
 `The woman behind the viral Dense Bean Salad seems to have done the impossible: created a TikTok food trend with staying power.`\
 https://www.nytimes.com/2026/06/02/dining/dense-bean-salad.html
@@ -37,6 +41,10 @@ https://www.nytimes.com/2026/06/02/world/africa/kenya-ebola-us-quarantine-unit-c
 **Rubio to Testify Before Senate, Arguing for Budget Amid Iran War and Pressure on Cuba**\
 `The secretary of state has played a key role in the Iran deliberations, as well as in U.S. policy toward Cuba.`\
 https://www.nytimes.com/2026/06/02/us/politics/marco-rubio-senate-budget-iran-cuba.html
+
+**Trump Administration Live Updates: Housing Official and Enforcer Named Top Intelligence Chief**\
+`(No description)`\
+https://www.nytimes.com/live/2026/06/02/us/trump-administration-news
 
 **Russia Is Showing Signs of Weakness in Ukraine. So It Hits Harder.**\
 `The war has not been going the Kremlin’s way recently, with battleground losses and mounting casualties. With renewed strikes, Moscow hopes to gain a better position for negotiations.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/02/magazine/ai-bedding-mattress-eight-sleep.html
 **How the Oprah Tax Code Swept America**\
 `Here’s how to make taxes work.`\
 https://www.nytimes.com/2026/06/02/opinion/anti-tax-break-code-oprah.html
-
-**U.S. Was Asked to Blacklist Colombian Cartel Gold. It Was Also Buying It.**\
-`The request for sanctions, from Colombia’s defense minister, shows failures at both ends of the supply chain for illegal gold.`\
-https://www.nytimes.com/2026/06/02/world/americas/us-colombia-gold-blacklist-sanctions.html
-
-**Book Review: ‘What Came West,’ by Josh Weil**\
-`Josh Weil’s new novel follows an autistic trapper on an odyssey during the California gold rush.`\
-https://www.nytimes.com/2026/06/02/books/review/josh-weil-what-came-west.html
 
