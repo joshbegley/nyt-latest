@@ -1,3 +1,11 @@
+**Audience Member at ‘La La Land’ Concert Fills in for Sick Keyboardist**\
+`Sterling Nasa, a 21-year-old university student, filled in for a keyboard player who had fallen ill during a “La La Land” orchestral performance in Australia.`\
+https://www.nytimes.com/video/world/asia/100000010939017/la-la-land-keyboardist-concert.html
+
+**Lebanon Endures Threats, Diplomacy and Whiplash as Others Decide Its Fate**\
+`The conflict between the United States, Israel and Iran looms over a state that has been pummeled by military strikes but has little say in determining its own future.`\
+https://www.nytimes.com/2026/06/02/world/middleeast/lebanon-israel-us-threats-diplomacy.html
+
 **White House Seeks to Impose Political Test on Billions in Federal Grants**\
 `A new proposal would allow the administration to block grants if they do not satisfy President Trump’s agenda or support what it calls “anti-American” values.`\
 https://www.nytimes.com/2026/06/02/us/politics/trump-budget-grants-omb-vought.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/02/science/missing-scientists-conspiracy-theory-
 **A Hot Spot on the Sedate Upper East Side? At Least in Terms of Chiles.**\
 `Lungi is the latest New York destination for the cooking of southern India, as well as Sri Lanka.`\
 https://www.nytimes.com/2026/06/02/dining/restaurant-review-lungi-nyc.html
-
-**Retirement, the Economy, Trump: 14 Baby Boomers Discuss**\
-`The group discusses their generation, the world today and the problems younger generations face.`\
-https://www.nytimes.com/interactive/2026/06/02/opinion/focus-group-baby-boomer-voters.html
-
-**What Ireland and Germany Can Teach Us About Birthright Citizenship**\
-`President Trump has argued that the United States is “stupid” for granting citizenship at birth. Most countries don’t do so, but that can create problems.`\
-https://www.nytimes.com/2026/06/02/business/economy/birthright-citizenship-ireland-germany-trump.html
 
