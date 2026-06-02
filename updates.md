@@ -1,3 +1,7 @@
+**NOTUS Cannot Be ‘The Star’: Judge Blocks D.C. News Outlet’s Rebranding**\
+`NOTUS, a political news website, must temporarily suspend its plans to rebrand, a judge ruled in a trademark dispute brought by The Washington Star.`\
+https://www.nytimes.com/2026/06/02/business/media/notus-washington-star-trademark-dispute.html
+
 **Tom Steyer: 5 Facts About the Candidate for California Governor**\
 `He is a billionaire who appeals to many progressive groups in California.`\
 https://www.nytimes.com/2026/06/02/us/politics/tom-steyer-california-governor.html
