@@ -1,3 +1,7 @@
+**Iran Reveals 3-Day Funeral Plan for Ayatollah Khamenei, After Long Delay**\
+`Ceremonies for Ayatollah Ali Khaemeni will be held in multiple cities, including Tehran, where authorities expect up to 20 million people to attend, Iranian state media reported.`\
+https://www.nytimes.com/2026/06/02/world/middleeast/ayatollah-khamenei-funeral-iran.html
+
 **Police Say Muscatine, Iowa Man Shot 6 Relatives Before Killing Himself**\
 `The man, Ryan Willis McFarland, 52, was confronted by the police, who said the killings followed a domestic dispute.`\
 https://www.nytimes.com/2026/06/02/us/muscatine-iowa-shooting-family.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/02/us/politics/iowa-montana-primary-election-mid
 **‘Amadeus’ and Beyond: Where to Watch Movies About Composers**\
 `The latest adaptation of Peter Shaffer’s “Amadeus” joins a rich lineage of fantastical and extravagant musical biopics.`\
 https://www.nytimes.com/2026/06/02/arts/music/amadeus-composer-movies.html
-
-**Five Homes for Sale With Dreamy Pools**\
-`A 1960s compound in the Berkshires, a tropical cottage in Miami, a quintessential Hamptons house, and two California retreats.`\
-https://www.nytimes.com/2026/06/02/realestate/five-homes-for-sale-with-dreamy-pools.html
 
