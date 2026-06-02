@@ -1,3 +1,7 @@
+**Why Canada’s Leader Says the Country Is Failing Jewish Canadians**\
+`Prime Minister Mark Carney’s comments followed calls from Jewish organizations to address what they described as a crisis of antisemitism.`\
+https://www.nytimes.com/2026/06/02/world/canada/carney-antisemitism-toronto-canada.html
+
 **Martin Scorsese Is Embracing A.I.**\
 `In a clear sign of Hollywood’s softening stance on artificial intelligence, the cinema icon is backing Black Forest Labs, an image generation start-up.`\
 https://www.nytimes.com/2026/06/02/business/media/martin-scorsese-artificial-intelligence.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/02/books/review/land-maggie-ofarrell.html
 **Party Like a Swede! A Guide to Celebrating Midsummer.**\
 `The holiday celebrates the return of light after the long, dark Nordic winter. Here’s how to take part in Sweden, or wherever you are.`\
 https://www.nytimes.com/2026/06/02/travel/sweden-midsummer-celebrations.html
-
-**Glamour, a Once-Mighty Women’s Magazine, Turns to Shopping Links**\
-`Job cuts at Glamour and a greater focus on posts with shopping tips offer one of the clearest examples of the waning reign of women’s magazines.`\
-https://www.nytimes.com/2026/06/02/business/glamour-magazine-shopping.html
 
