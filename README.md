@@ -14,13 +14,13 @@ https://www.nytimes.com/es/2026/06/02/espanol/estilos-de-vida/dua-lipa-boda-traj
 `The attack on the vessel, owned by the Mediterranean Shipping Company, underlines the threat to ships even as the U.S. and Iran try to negotiate reopening the Strait of Hormuz.`\
 https://www.nytimes.com/2026/06/02/business/msc-iraq-port-iran-war.html
 
-**Canada-U.S. Trade Visit Starts With Another Trump ‘51st State’ Post**\
-`The Canadian trade minister is visiting Washington on Tuesday to meet with the U.S. Trade Representative.`\
-https://www.nytimes.com/2026/06/02/world/canada/trump-canada-us-trade-usmca.html
-
 **Will a Moratorium on Data Centers Pass in New York This Week?**\
 `In the final hectic days of the legislative session, data centers, redistricting and algorithmic pricing vie for New York State lawmakers’ attention.`\
 https://www.nytimes.com/2026/06/02/nyregion/data-centers-redistricting-ny.html
+
+**Canada-U.S. Trade Visit Starts With Another Trump ‘51st State’ Post**\
+`The Canadian trade minister is visiting Washington on Tuesday to meet with the U.S. Trade Representative.`\
+https://www.nytimes.com/2026/06/02/world/canada/trump-canada-us-trade-usmca.html
 
 **The Best Movies and TV Shows Coming to Netflix in June**\
 `A World Cup comedy and a new film by Julian Schnabel are among this month’s most promising titles.`\
