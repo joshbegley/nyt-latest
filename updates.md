@@ -1,3 +1,11 @@
+**California Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-primary.html
+
+**California Governor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-governor-primary.html
+
 **Los Angeles Mayor 2026: Live Election Results**\
 `Get live results and maps from the 2026 California election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-california-mayor-los-angeles.html

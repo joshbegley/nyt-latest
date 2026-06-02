@@ -1,3 +1,11 @@
+**California Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-primary.html
+
+**California Governor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-governor-primary.html
+
 **Los Angeles Mayor 2026: Live Election Results**\
 `Get live results and maps from the 2026 California election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-california-mayor-los-angeles.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/video/world/africa/100000010936755/ebola-virus-outbreak-
 **What a Short-Seller’s Conviction Might Mean for Wall St.**\
 `A federal jury found Andrew Left, who rose to fame by betting against companies, guilty of securities fraud. Other short-sellers are worried.`\
 https://www.nytimes.com/2026/06/02/business/dealbook/andrew-left-convicted-fraud.html
-
-**U.S. Ebola Unit Plans in Kenya, Subject of Protests, Suffers New Setback From Court Ruling**\
-`The court further delayed the Trump administration’s proposed quarantine unit for Americans exposed to the virus. The plan has sparked angry protests in Kenya.`\
-https://www.nytimes.com/2026/06/02/world/africa/kenya-ebola-us-quarantine-unit-court.html
-
-**Rubio to Testify Before Senate, Arguing for Budget Amid Iran War and Pressure on Cuba**\
-`The secretary of state has played a key role in the Iran deliberations, as well as in U.S. policy toward Cuba.`\
-https://www.nytimes.com/2026/06/02/us/politics/marco-rubio-senate-budget-iran-cuba.html
 
