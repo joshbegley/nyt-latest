@@ -1,3 +1,7 @@
+**Election Live Updates: Iowans Pick Candidates for Key Senate Race as Six States Hold Primaries**\
+`Democrats see an opportunity in deep-red Iowa, where Senator Joni Ernst is vacating her seat. Closely watched contests are also being held in New Jersey, Montana and South Dakota.`\
+https://www.nytimes.com/live/2026/06/02/us/primary-elections-iowa-montana-nj
+
 **Graham Platner, Ken Paxton and the Amoral Center**\
 `Why a morally divided country might find sleazy candidates reassuring.`\
 https://www.nytimes.com/2026/06/02/opinion/graham-platner-morality-sexting.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/02/technology/trump-executive-order-ai.html
 **Congress to Consider Restricting How the Military Uses A.I.**\
 `One measure would codify rules tech companies have requested, including a ban on using artificial intelligence for domestic surveillance.`\
 https://www.nytimes.com/2026/06/02/us/politics/military-ai-laws-congress.html
-
-**New Federal Guidelines Threaten Almost Half of Graduate Arts Programs**\
-`Many musicians, filmmakers and artists earn less than the Education Department’s proposed guidelines for alumni, imperiling federal aid for students in those programs.`\
-https://www.nytimes.com/2026/06/02/arts/design/education-department-earnings-salary.html
 
 **California Election Live Updates: Primary Battles Could Set Direction for California and Congress**\
 `Tuesday’s nonpartisan primaries will determine which candidates make the fall ballot in consequential races for governor, all 52 of the state’s congressional seats and Los Angeles mayor.`\

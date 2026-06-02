@@ -1,3 +1,15 @@
+**Graham Platner, Ken Paxton and the Amoral Center**\
+`Why a morally divided country might find sleazy candidates reassuring.`\
+https://www.nytimes.com/2026/06/02/opinion/graham-platner-morality-sexting.html
+
+**Hezbollah’s Drones**\
+`The militant group is looking more capable now than it did when Israeli forces marched into Lebanon three months ago. Here’s how it gained an edge.`\
+https://www.nytimes.com/2026/06/02/world/lebanon-israel-hezbollah-iran-ukraine-russia.html
+
+**What to Know About South Korea’s Elections**\
+`President Lee Jae Myung came to office after his predecessor, a conservative, was ousted for imposing martial law. Now Mr. Lee’s popularity is projected to ripple across other contests.`\
+https://www.nytimes.com/2026/06/02/world/asia/south-korea-election.html
+
 **Toddler Dies After Bouncy Castle Is Lofted by Harsh Winds in Montreal**\
 `Severe thunderstorms lashed an annual church party, sending airborne an inflatable toy often found at outdoor parties, paramedics said.`\
 https://www.nytimes.com/2026/06/02/world/canada/bouncy-castle-child-montreal.html
