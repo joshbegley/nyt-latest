@@ -7,7 +7,7 @@ https://www.nytimes.com/2026/06/02/us/dallas-whale-mural-wyland-lawsuit-fifa-wor
 https://www.nytimes.com/2026/06/02/arts/dance/ballet-tech-kids-dance-alumni.html
 
 **Iran Reveals 3-Day Funeral Plan for Ayatollah Khamenei, After Long Delay**\
-`Ceremonies for Ayatollah Ali Khaemeni will be held in multiple cities, including Tehran, where authorities expect up to 20 million people to attend, Iranian state media reported.`\
+`Ceremonies for Ayatollah Ali Khamenei will be held in multiple cities, including Tehran, where authorities expect up to 20 million people to attend, Iranian state media reported.`\
 https://www.nytimes.com/2026/06/02/world/middleeast/ayatollah-khamenei-funeral-iran.html
 
 **Police Say Muscatine, Iowa Man Shot 6 Relatives Before Killing Himself**\
