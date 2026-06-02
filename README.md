@@ -1,3 +1,7 @@
+**Who Can Vote for Mayor of Los Angeles?**\
+`Many residents in the region mistakenly think the mayor is their leader.`\
+https://www.nytimes.com/2026/06/02/us/politics/la-mayor-vote.html
+
 **U.S. Treasury Imposes Sanctions on Iran’s Biggest Crypto Exchange**\
 `The action against Nobitex and several of its executives accused it of helping the government evade sanctions and finance militants.`\
 https://www.nytimes.com/2026/06/02/world/middleeast/sanctions-iranian-crypto-exchange.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-california-us-hous
 **California Secretary of State Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 California primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-california-secretary-of-state-primary.html
-
-**California 19th Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 California primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-19-primary.html
 
