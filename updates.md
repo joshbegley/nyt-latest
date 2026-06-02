@@ -1,3 +1,11 @@
+**Russia Launches Deadly Strikes on Ukraine**\
+`Missiles and drones struck the cities of Kyiv and Dnipro, Ukrainian officials said. At least 10 people were killed.`\
+https://www.nytimes.com/2026/06/02/world/europe/ukraine-war-russia-kyiv-attack.html
+
+**Late Night Updates America on the Lineup for Its 250th Birthday Bash**\
+`“Instead of music, the entertainment will be an 80-year-old man yelling about windmills,” Jimmy Kimmel said after President Trump said he would headline a summer concert series.`\
+https://www.nytimes.com/2026/06/02/arts/television/late-night-trump-freedom-250-concerts.html
+
 **El movimiento de Alberta para separarse de Canadá llega a las urnas**\
 `En octubre, los habitantes de Alberta podrán decidir si quieren permanecer en Canadá o celebrar un referendo para separarse. ¿Resolverá el asunto o profundizará la división?`\
 https://www.nytimes.com/es/2026/06/02/espanol/mundo/canada-alberta-separacion-voto.html
