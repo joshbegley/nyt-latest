@@ -1,3 +1,7 @@
+**‘La La Land’ Orchestral Performance Saved by Keyboardist in the Audience**\
+`After a musician fell ill during a live performance of the score from ‘La La Land,’ the composer Justin Hurwitz asked for a sight reader. A 21-year-old student stepped up.`\
+https://www.nytimes.com/2026/06/02/world/australia/la-la-land-sydney-concert-audience-member.html
+
 **New Proposal Would Allow Administration to Block Grants if They Don’t Support Trump’s Agenda**\
 `A new proposal would allow the administration to block grants if they do not satisfy President Trump’s agenda or support what it calls “anti-American” values.`\
 https://www.nytimes.com/2026/06/02/us/politics/trump-budget-grants-omb-vought.html

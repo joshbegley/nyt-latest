@@ -1,3 +1,7 @@
+**‘La La Land’ Orchestral Performance Saved by Keyboardist in the Audience**\
+`After a musician fell ill during a live performance of the score from ‘La La Land,’ the composer Justin Hurwitz asked for a sight reader. A 21-year-old student stepped up.`\
+https://www.nytimes.com/2026/06/02/world/australia/la-la-land-sydney-concert-audience-member.html
+
 **Oriana Lights the Wood-Fired Grill Just in Time for Summer**\
 `A luxury sushi restaurant gets a New York location, Red Beard Coffee & Bakery serves creative riffs on classics and more restaurant news.`\
 https://www.nytimes.com/2026/06/02/dining/nyc-restaurant-news.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/02/style/diane-keaton-auction-bonhams.html
 **Obama Center’s Two Sides: A Lovely Park and a Forbidding Tower**\
 `In Chicago, the $850 million Obama Presidential Center aims to remake a neighborhood with a 19.3-acre community hub and a brooding 225-foot museum.`\
 https://www.nytimes.com/2026/06/02/arts/design/obama-presidential-center-library-chicago.html
-
-**The Toll of a ‘Missing Scientists’ Conspiracy Theory on the Families Left Behind**\
-`The claim that their loved ones’ deaths and disappearances are linked is almost certainly false — but the loss remains real.`\
-https://www.nytimes.com/2026/06/02/science/missing-scientists-conspiracy-theory-families.html
 
