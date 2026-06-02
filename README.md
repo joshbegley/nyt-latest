@@ -1,3 +1,7 @@
+**Thomas Kean Jr., Missing NJ Congressman, Issues Statement Promising ‘Transparency’**\
+`Representative Thomas Kean Jr., a Republican who has been absent from Congress and the campaign trail since March, suggested it could be weeks before he returned to work.`\
+https://www.nytimes.com/2026/06/02/us/politics/thomas-kean-jr-new-jersey-statement.html
+
 **Xavier Becerra: 5 Facts About the Candidate for California Governor**\
 `Mr. Becerra has become an unexpected front-runner in the race for California governor after lagging in polls for months.`\
 https://www.nytimes.com/2026/06/02/us/politics/xavier-becerra-california-governor.html
@@ -58,8 +62,8 @@ https://www.nytimes.com/interactive/2026/us/elections/results-iowa-primary.html
 `In Albania, one of the poorest countries in Europe, crowds gathered to protest a $1.4 billion luxury hotel complex on the coast of the Adriatic Sea. Jared Kushner, President Trump’s son-in-law, is one of several investors in the project.`\
 https://www.nytimes.com/video/world/europe/100000010940326/albanians-protest-luxury-resort-linked-to-kushner.html
 
-**Order Shielding Trump Family From Audits Will Remain, Blanche Says**\
-`The acting attorney general said the administration was preserving a broad order shielding the president and his family from audits, despite scraping a related $1.8 billion fund.`\
+**Order Shielding Trump Family From I.R.S. Audits Will Remain, Blanche Says**\
+`The acting attorney general said the administration was preserving a broad order shielding the president and his family from audits of already filed returns, despite dropping a $1.8 billion payout fund.`\
 https://www.nytimes.com/2026/06/02/us/politics/trump-irs-settlement.html
 
 **Trump’s $1.8 Billion Fund Is ‘Not Moving Forward’**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-california-us-hous
 **California 22nd Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 California primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-22-primary.html
-
-**California 20th Congressional District Primary 2026: Live Election Results, Fong vs. Van Scotter**\
-`Get live results and maps from the 2026 California primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-20-primary.html
 
