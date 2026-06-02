@@ -1,3 +1,7 @@
+**NOTUS Cannot Be ‘The Star’: Judge Blocks D.C. New Outlet’s Rebranding**\
+`NOTUS, a political news website, must temporarily suspend its plans to rebrand, a judge ruled in a trademark dispute brought by The Washington Star.`\
+https://www.nytimes.com/2026/06/02/business/media/notus-washington-star-trademark-dispute.html
+
 **Billionaires and Silicon Valley Have Flooded California’s Races With Cash**\
 `Tom Steyer has spent a staggering $216 million on his campaign for governor. Tech titans have lined up behind one of his rivals. And in other races, rich donors are spending big.`\
 https://www.nytimes.com/2026/06/02/us/politics/california-primary-midterms-election-spending.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-california-us-hous
 **California 32nd Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 California primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-32-primary.html
-
-**California 25th Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 California primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-25-primary.html
 

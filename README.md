@@ -1,3 +1,7 @@
+**How a Republican Switcheroo Stifled Competition to Succeed Steve Daines in Montana**\
+`Senator Steve Daines withdrew his candidacy for re-election moments before the filing deadline, and then endorsed Kurt Alme in what appeared to be a coordinated swap to preclude competition.`\
+https://www.nytimes.com/2026/06/02/us/politics/montana-republican-senate-primary-daines-alme.html
+
 **NOTUS Cannot Be ‘The Star’: Judge Blocks D.C. New Outlet’s Rebranding**\
 `NOTUS, a political news website, must temporarily suspend its plans to rebrand, a judge ruled in a trademark dispute brought by The Washington Star.`\
 https://www.nytimes.com/2026/06/02/business/media/notus-washington-star-trademark-dispute.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-california-us-hous
 **California 24th Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 California primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-24-primary.html
-
-**California 32nd Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 California primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-32-primary.html
 
