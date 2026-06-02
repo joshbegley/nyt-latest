@@ -1,3 +1,27 @@
+**As A.I. Makes Strides in Mathematics, Mathematicians Urge Caution**\
+`A week after OpenAI made headlines with an A.I.-generated proof, a new “declaration” by 16 experts raises concerns that the technology threatens math as a discipline.`\
+https://www.nytimes.com/2026/06/02/science/ai-mathematics-leiden-declaration.html
+
+**How Elon Musk Engineered the World’s Biggest I.P.O.**\
+`An initial public offering of SpaceX is likely to be one of the largest ever.`\
+https://www.nytimes.com/2026/06/02/podcasts/the-daily/elon-musk-spacex-ipo.html
+
+**Extreme Water Shortages in the West, and Hegseth’s Pentagon Purge**\
+`Plus, the rocky, unpredictable race for California governor.`\
+https://www.nytimes.com/2026/06/02/podcasts/the-headlines/water-shortages-drought-hegseth-pentagon.html
+
+**NYT Connections Answers for June 3, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, June 3, 2026.`\
+https://www.nytimes.com/2026/06/02/crosswords/connections-companion-1088.html
+
+**NYT Strands Hints for June 3, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, June 3, 2026.`\
+https://www.nytimes.com/2026/06/02/crosswords/strands-sidekick-822.html
+
+**Today’s Wordle Hints for June 3, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, June 3, 2026.`\
+https://www.nytimes.com/2026/06/02/crosswords/wordle-review-1810.html
+
 **Inside Mamdani’s N.Y.C. Sports Equinox**\
 `Pablo visits the mayor of New York to discuss Knicks joy, Arsenal tears, hair loss, Trump and more.`\
 https://www.nytimes.com/2026/06/02/podcasts/inside-mamdanis-nyc-sports-equinox.html

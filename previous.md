@@ -1,3 +1,27 @@
+**As A.I. Makes Strides in Mathematics, Mathematicians Urge Caution**\
+`A week after OpenAI made headlines with an A.I.-generated proof, a new “declaration” by 16 experts raises concerns that the technology threatens math as a discipline.`\
+https://www.nytimes.com/2026/06/02/science/ai-mathematics-leiden-declaration.html
+
+**How Elon Musk Engineered the World’s Biggest I.P.O.**\
+`An initial public offering of SpaceX is likely to be one of the largest ever.`\
+https://www.nytimes.com/2026/06/02/podcasts/the-daily/elon-musk-spacex-ipo.html
+
+**Extreme Water Shortages in the West, and Hegseth’s Pentagon Purge**\
+`Plus, the rocky, unpredictable race for California governor.`\
+https://www.nytimes.com/2026/06/02/podcasts/the-headlines/water-shortages-drought-hegseth-pentagon.html
+
+**NYT Connections Answers for June 3, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, June 3, 2026.`\
+https://www.nytimes.com/2026/06/02/crosswords/connections-companion-1088.html
+
+**NYT Strands Hints for June 3, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, June 3, 2026.`\
+https://www.nytimes.com/2026/06/02/crosswords/strands-sidekick-822.html
+
+**Today’s Wordle Hints for June 3, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, June 3, 2026.`\
+https://www.nytimes.com/2026/06/02/crosswords/wordle-review-1810.html
+
 **Inside Mamdani’s N.Y.C. Sports Equinox**\
 `Pablo visits the mayor of New York to discuss Knicks joy, Arsenal tears, hair loss, Trump and more.`\
 https://www.nytimes.com/2026/06/02/podcasts/inside-mamdanis-nyc-sports-equinox.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/es/2026/06/02/espanol/america-latina/trump-aliado-elecci
 **Jeffrey Epstein guardó su esperma en un banco. Podría seguir almacenado**\
 `Epstein dejó su esperma en un banco varios años antes de su muerte y dijo que si moría, debía quedar bajo el control de su patrimonio.`\
 https://www.nytimes.com/es/2026/06/02/espanol/jeffrey-epsteins-banco-esperma.html
-
-**A Congressman Was Suddenly Absent. So We Looked. And Looked.**\
-`Will the mystery of Tom Kean Jr., a New Jersey representative, finally be solved on Tuesday? The reporters covering the story will have questions.`\
-https://www.nytimes.com/2026/06/02/nyregion/tom-kean-jr-new-jersey-absence.html
-
-**Mamdani Advances 34th St. Bus Lane Plan That U.S. Had Blocked**\
-`The city is moving forward with a redesign of 34th Street in Manhattan that the White House halted last year after threatening to withhold federal funding for other transit priorities.`\
-https://www.nytimes.com/2026/06/02/nyregion/mamdani-bus-lane-34th-manhattan.html
-
-**Group Pledges $2 Million to Fight AIPAC in House Races**\
-`A super PAC created to counter spending from powerful pro-Israel groups will try to help Democrats critical of Israel’s wars and military actions.`\
-https://www.nytimes.com/2026/06/02/nyregion/aipac-spending-campaign-super-pac.html
-
-**NYT Spelling Bee Answers for June 2, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/06/02/crosswords/spelling-bee-forum.html
-
-**How Three Chess Friends Battled Demons and Saved Two Lives**\
-`A $486 studio apartment on Central Park kept the friends connected, and it almost tore them apart.`\
-https://www.nytimes.com/2026/06/02/nyregion/how-three-chess-friends-battled-demons-and-saved-two-lives.html
-
-**Trump Claims a Missing N.J. Congressman Has Been ‘Working Tirelessly’**\
-`The message from President Trump about Representative Thomas Kean Jr. comes as voters head to the polls on Tuesday. Mr. Kean’s name is on the ballot, but he hasn’t been seen for months.`\
-https://www.nytimes.com/2026/06/02/nyregion/thomas-kean-new-jersey-house-election.html
 
