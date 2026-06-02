@@ -1,3 +1,7 @@
+**Security Council Members Call for Israel to Withdraw From Southern Lebanon**\
+`The U.N. panel met after Israel had threatened to attack southern Beirut. President Trump said later that Israel and Hezbollah had agreed not to attack each other.`\
+https://www.nytimes.com/2026/06/01/world/middleeast/un-security-council-lebanon.html
+
 **Hawaii Man Charged With Killing Three Men**\
 `An expansive manhunt on the Big Island of Hawaii ended with the suspect’s arrest on Thursday in the deaths of the men, who were in their 60s and 70s.`\
 https://www.nytimes.com/2026/06/01/us/hawaii-murders-pahoa-charges.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/01/movies/tribeca-festival-25-deniro-rosenthal-g
 **Wise and Not So Wise Tips for Being Old**\
 `Readers respond to a guest essay by Roger Rosenblatt. Also: A fight spectacle at the White House.`\
 https://www.nytimes.com/2026/06/01/opinion/old-elderly.html
-
-**Edward Burns on What It’s like to Be a Tribeca Festival Veteran**\
-`The filmmaker, who is screening his ninth film at the festival, talked about the importance of Tribeca and what he has learned about sustaining an independent filmmaking career.`\
-https://www.nytimes.com/2026/06/01/movies/edward-burns-tribeca-film-festival.html
 
