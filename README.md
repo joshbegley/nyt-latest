@@ -74,7 +74,7 @@ https://www.nytimes.com/2026/06/02/business/msc-iraq-port-iran-war.html
 `The Canadian trade minister is visiting Washington on Tuesday to meet with the U.S. Trade Representative.`\
 https://www.nytimes.com/2026/06/02/world/canada/trump-canada-us-trade-usmca.html
 
-**Will a Moratorium on Data Centers Pass in New York This Week?**\
+**Could Single-Use Plastics and Data Centers Be Endangered in New York?**\
 `In the final hectic days of the legislative session, data centers, redistricting and algorithmic pricing vie for New York State lawmakers’ attention.`\
 https://www.nytimes.com/2026/06/02/nyregion/data-centers-redistricting-ny.html
 
