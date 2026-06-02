@@ -1,3 +1,15 @@
+**Violet Witchel Wants to You to Think Beans Are Sexy**\
+`The woman behind the viral Dense Bean Salad seems to have done the impossible: created a TikTok food trend with staying power.`\
+https://www.nytimes.com/2026/06/02/dining/dense-bean-salad.html
+
+**Trump Megadonor Gave $5.5 Million Estate to Robert F. Kennedy Jr. Nonprofit**\
+`A Mellon heir transferred the adjacent Connecticut properties, covering about 300 acres, at no cost to Children’s Health Defense last year.`\
+https://www.nytimes.com/2026/06/02/business/economy/mellon-kennedy-childrens-health-defense.html
+
+**California Election Live Updates: Polls Have Opened in Race to Succeed Newsom as Governor**\
+`Tuesday’s nonpartisan primaries will determine candidates for November. A former Biden cabinet secretary, a one-time Fox News host and a billionaire are vying to replace the term-limited governor, Gavin Newsom.`\
+https://www.nytimes.com/live/2026/06/02/us/california-election-primary-governor
+
 **California Election Live Updates: Polls to Open Soon in Race to Succeed Newsom as Governor**\
 `Tuesday’s nonpartisan primaries will determine candidates for November. A former Biden cabinet secretary, a one-time Fox News host and a billionaire are vying to replace the term-limited governor, Gavin Newsom.`\
 https://www.nytimes.com/live/2026/06/02/us/california-election-primary-governor
