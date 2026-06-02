@@ -1,3 +1,11 @@
+**Trump Has Failed as Commander in Chief**\
+`Trump has failed to unite the country while at war and instead is seeking personal gain.`\
+https://www.nytimes.com/2026/06/02/opinion/trump-corruption-allies.html
+
+**How’s Your Job Search Going?**\
+`Chatbot recruiters, lousy benefits, delayed contracts: How’s your job search going?`\
+https://www.nytimes.com/2026/06/02/opinion/contributors/job-search-reader-callout.html
+
 **Stephen Curry and Li-Ning: What to Know About N.B.A. Star’s Deal With Chinese Sneaker Company**\
 `The agreement, which includes plans for sportswear and athleisure products, and stores across the United States and China, is the latest example of an N.B.A. star signing with a Chinese brand.`\
 https://www.nytimes.com/2026/06/02/world/asia/stephen-curry-li-ning-shoe-deal-china.html
@@ -103,7 +111,7 @@ https://www.nytimes.com/live/2026/06/02/us/california-election-primary-governor
 https://www.nytimes.com/2026/06/02/world/canada/carney-antisemitism-toronto-canada.html
 
 **Martin Scorsese Is Embracing A.I.**\
-`In a clear sign of Hollywood’s softening stance on artificial intelligence, the cinema icon is backing Black Forest Labs, an image generation start-up.`\
+`In a sign of Hollywood’s softening stance on artificial intelligence, the cinema icon is backing Black Forest Labs, an image and video generation start-up.`\
 https://www.nytimes.com/2026/06/02/business/media/martin-scorsese-artificial-intelligence.html
 
 **Street Style Look of the Week: Managing to Stand Out With Neutrals**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/es/2026/06/02/espanol/america-latina/colombia-ee-uu-sanc
 **Why America Is Its Own Biggest Geopolitical Risk**\
 `The political risk analyst Ian Bremmer argues that the greatest driver of risk in the world right now is President Trump.`\
 https://www.nytimes.com/2026/06/02/opinion/ezra-klein-podcast-ian-bremmer.html
-
-**México y Brasil se disputan el perro caramelo**\
-`Para los brasileños, los omnipresentes perros mestizos de color caramelo son un ícono nacional. Pero un estado mexicano los ha adoptado como su propio símbolo local.`\
-https://www.nytimes.com/es/2026/06/02/espanol/america-latina/perro-caramelo-brasil-mexico.html
-
-**El fuego de la estupidez no tiene contención**\
-`Pareciera que hemos olvidado más o menos todo lo que la historia nos enseñó.`\
-https://www.nytimes.com/es/2026/06/02/espanol/opinion/olvidar-historia.html
 

@@ -1,3 +1,15 @@
+**Stephen Curry and Li-Ning: What to Know About N.B.A. Star’s Deal With Chinese Sneaker Company**\
+`The agreement, which includes plans for sportswear and athleisure products, and stores across the United States and China, is the latest example of an N.B.A. star signing with a Chinese brand.`\
+https://www.nytimes.com/2026/06/02/world/asia/stephen-curry-li-ning-shoe-deal-china.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/elections/100000010939511/02vid-cali-voters-91871.html
+
+**In Her Memoir, Jill Biden Is a Watchful Spouse Who Didn’t Always Speak Up**\
+`The former first lady’s new book reflects an insular White House where loyalty was prized and President Joseph R. Biden Jr.’s feelings were prioritized over health concerns.`\
+https://www.nytimes.com/2026/06/02/us/politics/jill-biden-joe-biden-memoir-health-age.html
+
 **Trump Signs Executive Order Granting Oversight of A.I. Models**\
 `The order, which signaled a shift from the hands-off approach the White House had previously taken toward A.I., followed debates over how to gain control of A.I. models without disrupting innovation.`\
 https://www.nytimes.com/2026/06/02/technology/trump-executive-order-ai.html
