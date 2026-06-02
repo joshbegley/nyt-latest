@@ -1,3 +1,11 @@
+**New York Sues Trump Administration Over TotalEnergies Wind Farm**\
+`The lawsuit argues that it is illegal to pay the French energy giant TotalEnergies $795 million to cancel a planned wind farm off New York.`\
+https://www.nytimes.com/2026/06/02/climate/new-york-lawsuit-trump-offshore-wind.html
+
+**Trump Administration Live Updates: Housing Official and Enforcer Named Top Intelligence Chief**\
+`(No description)`\
+https://www.nytimes.com/live/2026/06/02/us/trump-administration-news
+
 **Violet Witchel Wants to You to Think Beans Are Sexy**\
 `The woman behind the viral Dense Bean Salad seems to have done the impossible: created a TikTok food trend with staying power.`\
 https://www.nytimes.com/2026/06/02/dining/dense-bean-salad.html
