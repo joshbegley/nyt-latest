@@ -1,3 +1,7 @@
+**The Gating of the American Dream**\
+`Social mobility in America is fundamentally broken, not because we have hollowed out the middle class but because we’ve hollowed out places, argues the political scientist Ian Bremmer on “The Ezra Klein Show.”`\
+https://www.nytimes.com/video/opinion/100000010932839/the-gating-of-the-american-dream.html
+
 **Peabo Bryson, Soul Singer Known as the Voice of Love, Dies at 75**\
 `He was admired for impassioned duets with singers like Roberta Flack and Celine Dion and for the Disney hits “Beauty and the Beast” and “A Whole New World.”`\
 https://www.nytimes.com/2026/06/02/arts/music/peabo-bryson-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-california-us-hous
 **California 21st Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 California primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-21-primary.html
-
-**California 23rd Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 California primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-23-primary.html
 

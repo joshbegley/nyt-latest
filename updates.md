@@ -1,3 +1,15 @@
+**Peabo Bryson, Soul Singer Known as the Voice of Love, Dies at 75**\
+`He was admired for impassioned duets with singers like Roberta Flack and Celine Dion and for the Disney hits “Beauty and the Beast” and “A Whole New World.”`\
+https://www.nytimes.com/2026/06/02/arts/music/peabo-bryson-dead.html
+
+**Colorado Enacts Law Tightening Scrutiny of Uber and Lyft**\
+`The law cites a New York Times investigation that found Uber received reports of sexual assault or sexual misconduct far more often than the company had publicly disclosed.`\
+https://www.nytimes.com/2026/06/02/business/colorado-uber-lyft-law.html
+
+**Bruce Crandall, Part of a Heroic Rescue Mission in Vietnam, Dies at 93**\
+`“Fourteen times he flew into what they called the valley of death,” President George W. Bush said in awarding him the Medal of Honor in 2007.`\
+https://www.nytimes.com/2026/06/02/us/bruce-crandall-dead.html
+
 **Who Can Vote for Mayor of Los Angeles?**\
 `Many residents in the region mistakenly think the mayor is their leader.`\
 https://www.nytimes.com/2026/06/02/us/politics/la-mayor-vote.html
