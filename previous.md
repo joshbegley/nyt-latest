@@ -1,3 +1,35 @@
+**Why America Is Its Own Biggest Geopolitical Risk**\
+`The political risk analyst Ian Bremmer argues that the greatest driver of risk in the world right now is President Trump.`\
+https://www.nytimes.com/2026/06/02/opinion/ezra-klein-podcast-ian-bremmer.html
+
+**México y Brasil se disputan el perro caramelo**\
+`Para los brasileños, los omnipresentes perros mestizos de color caramelo son un ícono nacional. Pero un estado mexicano los ha adoptado como su propio símbolo local.`\
+https://www.nytimes.com/es/2026/06/02/espanol/america-latina/perro-caramelo-brasil-mexico.html
+
+**El fuego de la estupidez no tiene contención**\
+`Pareciera que hemos olvidado más o menos todo lo que la historia nos enseñó.`\
+https://www.nytimes.com/es/2026/06/02/espanol/opinion/olvidar-historia.html
+
+**Elon Musk Laid Out 602 Goals. We Counted How Many He Hit.**\
+`The billionaire has stated many plans for his businesses, but has delivered only some of what he said he would, when he said he would, according to a Times analysis.`\
+https://www.nytimes.com/interactive/2026/06/02/technology/elon-musk-promises-spacex-ipo.html
+
+**Movie Highlights at the Tribeca Festival, Now 25**\
+`The standouts from this year’s lineup include films about a cultlike theater troupe and an experimental dance residency.`\
+https://www.nytimes.com/2026/06/02/movies/tribeca-festival-highlights.html
+
+**Pattie Gonia, a Drag Queen, Is Sued by Patagonia Over Trademark Infringement**\
+`The outdoor apparel company says the drag queen and environmentalist is using its name for commercial purposes. She’s ready to go to court.`\
+https://www.nytimes.com/2026/06/02/us/pattie-gonia-patagonia-trademark-lawsuit.html
+
+**Who Is the Baklava Guy at the Knicks Games?**\
+`In city parks, at Phish shows and outside Madison Square Garden, a nomadic salesman builds his brand, one pistachio-laden wedge at a time.`\
+https://www.nytimes.com/2026/06/02/dining/good-baklava-ron-donk-knicks-playoffs.html
+
+**Instead of the AirTrain, an Air Taxi to the Airport**\
+`Joby Aviation is testing an electric-powered aircraft that can travel from Manhattan to J.F.K. in 10 minutes.`\
+https://www.nytimes.com/2026/06/02/nyregion/electric-air-taxi-airport.html
+
 **17 Plays (and 3 Festivals) to Jazz Up Your June**\
 `Billy Porter, Wayne Brady, Sting and Suzan-Lori Parks are all slated to star on Off Broadway stages this month.`\
 https://www.nytimes.com/2026/06/02/theater/plays-and-festivals-jazz-up-june.html
@@ -30,13 +62,13 @@ https://www.nytimes.com/2026/06/02/arts/music/amadeus-composer-movies.html
 `A 1960s compound in the Berkshires, a tropical cottage in Miami, a quintessential Hamptons house, and two California retreats.`\
 https://www.nytimes.com/2026/06/02/realestate/five-homes-for-sale-with-dreamy-pools.html
 
-**Obama Center’s Two Sides: A Lovely Park and a Forbidding Tower**\
-`In Chicago, the $850 million Obama Presidential Center aims to remake a neighborhood with a 19.3-acre community hub and a brooding 225-foot museum.`\
-https://www.nytimes.com/2026/06/02/arts/design/obama-presidential-center-library-chicago.html
-
 **At Diane Keaton’s Estate Auction, Colorful Trims, ‘Annie Hall’ and More**\
 `Hundreds of items that highlight the actress’s subversive style and her assured role as collector and curator are up for bidding.`\
 https://www.nytimes.com/2026/06/02/style/diane-keaton-auction-bonhams.html
+
+**Obama Center’s Two Sides: A Lovely Park and a Forbidding Tower**\
+`In Chicago, the $850 million Obama Presidential Center aims to remake a neighborhood with a 19.3-acre community hub and a brooding 225-foot museum.`\
+https://www.nytimes.com/2026/06/02/arts/design/obama-presidential-center-library-chicago.html
 
 **The Toll of a ‘Missing Scientists’ Conspiracy Theory on the Families Left Behind**\
 `The claim that their loved ones’ deaths and disappearances are linked is almost certainly false — but the loss remains real.`\
@@ -165,36 +197,4 @@ https://www.nytimes.com/2026/06/02/nyregion/mamdani-jobs-nyc.html
 **Russia Launches Deadly Strikes on Ukraine**\
 `Missiles and drones struck the cities of Kyiv and Dnipro, Ukrainian officials said. At least 10 people were killed.`\
 https://www.nytimes.com/2026/06/02/world/europe/ukraine-war-russia-kyiv-attack.html
-
-**Late Night Updates America on the Lineup for Its 250th Birthday Bash**\
-`“Instead of music, the entertainment will be an 80-year-old man yelling about windmills,” Jimmy Kimmel said after President Trump said he would headline a summer concert series.`\
-https://www.nytimes.com/2026/06/02/arts/television/late-night-trump-freedom-250-concerts.html
-
-**El movimiento de Alberta para separarse de Canadá llega a las urnas**\
-`En octubre, los habitantes de Alberta podrán decidir si quieren permanecer en Canadá o celebrar un referendo para separarse. ¿Resolverá el asunto o profundizará la división?`\
-https://www.nytimes.com/es/2026/06/02/espanol/mundo/canada-alberta-separacion-voto.html
-
-**Word of the Day: parsimonious**\
-`This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/06/02/learning/word-of-the-day-parsimonious.html
-
-**Putin Has No Good Way Out of His War**\
-`Perpetuating a war is not the same as winning one.`\
-https://www.nytimes.com/2026/06/02/opinion/putin-russia-war-strength.html
-
-**¿Se pueden usar calcetines con sandalias?**\
-`Una profesora se pregunta sobre las normas de etiqueta del calzado contemporáneo.`\
-https://www.nytimes.com/es/2026/06/02/espanol/estilos-de-vida/calcetines-sandalias.html
-
-**Quote of the Day:Trump’s Sway in Primaries May Not Translate to the Midterms**\
-`Quotation of the Day for Tuesday, June 2, 2024.`\
-https://www.nytimes.com/2026/06/02/pageoneplus/quote-of-the-daytrumps-sway-in-primaries-may-not-translate-to-the-midterms.html
-
-**The New Zealand Parakeet Pair That Are Saving Their Species**\
-`There are about 450 orange-fronted parakeets left in the world. Super breeders Nacho and Trixie are doing their best to bolster the population.`\
-https://www.nytimes.com/2026/06/02/world/australia/kakariki-karaka-bird-parakeet-new-zealand-endangered.html
-
-**Corrections: June 2, 2026**\
-`Corrections that appeared in print on Tuesday, June 2, 2026.`\
-https://www.nytimes.com/2026/06/02/pageoneplus/corrections-june-2-2026.html
 

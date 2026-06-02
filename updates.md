@@ -1,3 +1,35 @@
+**Why America Is Its Own Biggest Geopolitical Risk**\
+`The political risk analyst Ian Bremmer argues that the greatest driver of risk in the world right now is President Trump.`\
+https://www.nytimes.com/2026/06/02/opinion/ezra-klein-podcast-ian-bremmer.html
+
+**México y Brasil se disputan el perro caramelo**\
+`Para los brasileños, los omnipresentes perros mestizos de color caramelo son un ícono nacional. Pero un estado mexicano los ha adoptado como su propio símbolo local.`\
+https://www.nytimes.com/es/2026/06/02/espanol/america-latina/perro-caramelo-brasil-mexico.html
+
+**El fuego de la estupidez no tiene contención**\
+`Pareciera que hemos olvidado más o menos todo lo que la historia nos enseñó.`\
+https://www.nytimes.com/es/2026/06/02/espanol/opinion/olvidar-historia.html
+
+**Elon Musk Laid Out 602 Goals. We Counted How Many He Hit.**\
+`The billionaire has stated many plans for his businesses, but has delivered only some of what he said he would, when he said he would, according to a Times analysis.`\
+https://www.nytimes.com/interactive/2026/06/02/technology/elon-musk-promises-spacex-ipo.html
+
+**Movie Highlights at the Tribeca Festival, Now 25**\
+`The standouts from this year’s lineup include films about a cultlike theater troupe and an experimental dance residency.`\
+https://www.nytimes.com/2026/06/02/movies/tribeca-festival-highlights.html
+
+**Pattie Gonia, a Drag Queen, Is Sued by Patagonia Over Trademark Infringement**\
+`The outdoor apparel company says the drag queen and environmentalist is using its name for commercial purposes. She’s ready to go to court.`\
+https://www.nytimes.com/2026/06/02/us/pattie-gonia-patagonia-trademark-lawsuit.html
+
+**Who Is the Baklava Guy at the Knicks Games?**\
+`In city parks, at Phish shows and outside Madison Square Garden, a nomadic salesman builds his brand, one pistachio-laden wedge at a time.`\
+https://www.nytimes.com/2026/06/02/dining/good-baklava-ron-donk-knicks-playoffs.html
+
+**Instead of the AirTrain, an Air Taxi to the Airport**\
+`Joby Aviation is testing an electric-powered aircraft that can travel from Manhattan to J.F.K. in 10 minutes.`\
+https://www.nytimes.com/2026/06/02/nyregion/electric-air-taxi-airport.html
+
 **17 Plays (and 3 Festivals) to Jazz Up Your June**\
 `Billy Porter, Wayne Brady, Sting and Suzan-Lori Parks are all slated to star on Off Broadway stages this month.`\
 https://www.nytimes.com/2026/06/02/theater/plays-and-festivals-jazz-up-june.html

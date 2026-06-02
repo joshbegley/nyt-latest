@@ -1,3 +1,7 @@
+**Colombia pidió a EE. UU. sancionar su oro ilegal. Washington lo compraba**\
+`La solicitud de sanciones, realizada por el ministro de Defensa de Colombia, muestra fallos en ambos extremos de la cadena de suministro de oro ilegal.`\
+https://www.nytimes.com/es/2026/06/02/espanol/america-latina/colombia-ee-uu-sanciones-mineria-oro.html
+
 **Why America Is Its Own Biggest Geopolitical Risk**\
 `The political risk analyst Ian Bremmer argues that the greatest driver of risk in the world right now is President Trump.`\
 https://www.nytimes.com/2026/06/02/opinion/ezra-klein-podcast-ian-bremmer.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/02/nyregion/thomas-kean-new-jersey-house-electio
 **Mamdani Is Under Pressure to Act Amid Slowing Job Growth in New York**\
 `As New York City faces slowing job growth and broader economic concerns, Mayor Zohran Mamdani has not offered a detailed plan to create jobs.`\
 https://www.nytimes.com/2026/06/02/nyregion/mamdani-jobs-nyc.html
-
-**Russia Launches Deadly Strikes on Ukraine**\
-`Missiles and drones struck the cities of Kyiv and Dnipro, Ukrainian officials said. At least 10 people were killed.`\
-https://www.nytimes.com/2026/06/02/world/europe/ukraine-war-russia-kyiv-attack.html
 
