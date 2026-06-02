@@ -1,3 +1,63 @@
+**The Best Movies and TV Shows Coming to Netflix in June**\
+`A World Cup comedy and a new film by Julian Schnabel are among this month’s most promising titles.`\
+https://www.nytimes.com/2026/06/02/arts/television/netflix-new-june.html
+
+**Trump Has Failed as Commander in Chief**\
+`Trump has failed to unite the country while at war and instead is seeking personal gain.`\
+https://www.nytimes.com/2026/06/02/opinion/trump-corruption-allies.html
+
+**How’s Your Job Search Going?**\
+`Chatbot recruiters, lousy benefits, delayed contracts: How’s your job search going?`\
+https://www.nytimes.com/2026/06/02/opinion/contributors/job-search-reader-callout.html
+
+**Stephen Curry and Li-Ning: What to Know About N.B.A. Star’s Deal With Chinese Sneaker Company**\
+`The agreement, which includes plans for sportswear and athleisure products, and stores across the United States and China, is the latest example of an N.B.A. star signing with a Chinese brand.`\
+https://www.nytimes.com/2026/06/02/world/asia/stephen-curry-li-ning-shoe-deal-china.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/elections/100000010939511/02vid-cali-voters-91871.html
+
+**In Her Memoir, Jill Biden Is a Watchful Spouse Who Didn’t Always Speak Up About Joe Biden**\
+`The former first lady’s new book reflects an insular White House where loyalty was prized and President Joseph R. Biden Jr.’s feelings were prioritized over health concerns.`\
+https://www.nytimes.com/2026/06/02/us/politics/jill-biden-joe-biden-memoir-health-age.html
+
+**Trump Signs Executive Order Seeking Oversight of A.I. Models**\
+`The order, which signaled a shift from the hands-off approach the White House had previously taken toward A.I., followed debates over how to gain control of A.I. models without disrupting innovation.`\
+https://www.nytimes.com/2026/06/02/technology/trump-executive-order-ai.html
+
+**Congress to Consider Restricting How the Military Uses A.I.**\
+`One measure would codify rules tech companies have requested, including a ban on using artificial intelligence for domestic surveillance.`\
+https://www.nytimes.com/2026/06/02/us/politics/military-ai-laws-congress.html
+
+**New Federal Guidelines Threaten Almost Half of Graduate Arts Programs**\
+`Many musicians, filmmakers and artists earn less than the Education Department’s proposed guidelines for alumni, imperiling federal aid for students in those programs.`\
+https://www.nytimes.com/2026/06/02/arts/design/education-department-earnings-salary.html
+
+**Knicks Fans Want ’90s Tees. Pay Very 2026 Prices.**\
+`Plus: A new Jay-Z look, the onset of all-black summer and a new gig for an ex-Marni designer`\
+https://www.nytimes.com/2026/06/02/style/knicks-90s-merch-nostalgia.html
+
+**Netanyahu’s Critics Accuse Him of Running Israel as a U.S. ‘Vassal State’**\
+`Critics pounced on the Israeli prime minister after President Trump claimed on social media he had persuaded him to call off “a major raid” on Hezbollah in Beirut.`\
+https://www.nytimes.com/2026/06/02/world/middleeast/netanyahu-criticism-beirut-attack-trump.html
+
+**Today, In Short**\
+`Dua Lipa. Serena Williams. And sleepy fish.`\
+https://www.nytimes.com/2026/06/02/briefing/today-in-short.html
+
+**Dallas Whale Mural Artist Wyland Sues FIFA After World Cup Paint-Over**\
+`The legal battle follows weeks of public anger after a nearly 30-year-old downtown landmark was mostly covered up to make way for a World Cup-related project.`\
+https://www.nytimes.com/2026/06/02/us/dallas-whale-mural-wyland-lawsuit-fifa-world-cup-texas.html
+
+**Ballet Tech Gave Them Dance. Now They Give Back.**\
+`Kids Dance, from the New York Public School for Dance, is debuting a work featuring alumni. That’s not the only way former students are involved with the school.`\
+https://www.nytimes.com/2026/06/02/arts/dance/ballet-tech-kids-dance-alumni.html
+
+**Iran Reveals 3-Day Funeral Plan for Ayatollah Khamenei, After Long Delay**\
+`Ceremonies for Ayatollah Ali Khamenei will be held in multiple cities, including Tehran, where authorities expect up to 20 million people to attend, Iranian state media reported.`\
+https://www.nytimes.com/2026/06/02/world/middleeast/ayatollah-khamenei-funeral-iran.html
+
 **Police Say Muscatine, Iowa Man Shot 6 Relatives Before Killing Himself**\
 `The man, Ryan Willis McFarland, 52, was confronted by the police, who said the killings followed a domestic dispute.`\
 https://www.nytimes.com/2026/06/02/us/muscatine-iowa-shooting-family.html
@@ -133,68 +193,4 @@ https://www.nytimes.com/2026/06/02/world/middleeast/israel-lebanon-hezbollah.htm
 **Colombia pidió a EE. UU. sancionar su oro ilegal. Washington lo compraba**\
 `La solicitud de sanciones, realizada por el ministro de Defensa de Colombia, muestra fallos en ambos extremos de la cadena de suministro de oro ilegal.`\
 https://www.nytimes.com/es/2026/06/02/espanol/america-latina/colombia-ee-uu-sanciones-mineria-oro.html
-
-**Why America Is Its Own Biggest Geopolitical Risk**\
-`The political risk analyst Ian Bremmer argues that the greatest driver of risk in the world right now is President Trump.`\
-https://www.nytimes.com/2026/06/02/opinion/ezra-klein-podcast-ian-bremmer.html
-
-**México y Brasil se disputan el perro caramelo**\
-`Para los brasileños, los omnipresentes perros mestizos de color caramelo son un ícono nacional. Pero un estado mexicano los ha adoptado como su propio símbolo local.`\
-https://www.nytimes.com/es/2026/06/02/espanol/america-latina/perro-caramelo-brasil-mexico.html
-
-**El fuego de la estupidez no tiene contención**\
-`Pareciera que hemos olvidado más o menos todo lo que la historia nos enseñó.`\
-https://www.nytimes.com/es/2026/06/02/espanol/opinion/olvidar-historia.html
-
-**Elon Musk Laid Out 602 Goals. We Counted How Many He Hit.**\
-`The billionaire has stated many plans for his businesses, but has delivered only some of what he said he would, when he said he would, according to a Times analysis.`\
-https://www.nytimes.com/interactive/2026/06/02/technology/elon-musk-promises-spacex-ipo.html
-
-**Movie Highlights at the Tribeca Festival, Now 25**\
-`The standouts from this year’s lineup include films about a cultlike theater troupe and an experimental dance residency.`\
-https://www.nytimes.com/2026/06/02/movies/tribeca-festival-highlights.html
-
-**Pattie Gonia, a Drag Queen, Is Sued by Patagonia Over Trademark Infringement**\
-`The outdoor apparel company says the drag queen and environmentalist is using its name for commercial purposes. She’s ready to go to court.`\
-https://www.nytimes.com/2026/06/02/us/pattie-gonia-patagonia-trademark-lawsuit.html
-
-**Who Is the Baklava Guy at the Knicks Games?**\
-`In city parks, at Phish shows and outside Madison Square Garden, a nomadic salesman builds his brand, one pistachio-laden wedge at a time.`\
-https://www.nytimes.com/2026/06/02/dining/good-baklava-ron-donk-knicks-playoffs.html
-
-**Instead of the AirTrain, an Air Taxi to the Airport**\
-`Joby Aviation is testing an electric-powered aircraft that can travel from Manhattan to J.F.K. in 10 minutes.`\
-https://www.nytimes.com/2026/06/02/nyregion/electric-air-taxi-airport.html
-
-**17 Plays (and 3 Festivals) to Jazz Up Your June**\
-`Billy Porter, Wayne Brady, Sting and Suzan-Lori Parks are all slated to star on Off Broadway stages this month.`\
-https://www.nytimes.com/2026/06/02/theater/plays-and-festivals-jazz-up-june.html
-
-**Solve the June Bonus Puzzle**\
-`This month’s drag-themed puzzle was co-constructed by Bianca Del Rio, a stand-up comic and performance artist.`\
-https://www.nytimes.com/2026/06/02/crosswords/bonus-puzzle-drag.html
-
-**We Need Theater That Makes Us Bawl**\
-`Over 75 years ago, Arthur Miller made the case for works that explore the tragedy of the common man. Why are we still resisting his call?`\
-https://www.nytimes.com/2026/06/02/opinion/arthur-miller-tragedy.html
-
-**Ian Bremmer on the Risks America Poses to the World**\
-`The political risk analyst Ian Bremmer argues that the greatest driver of risk in the world right now is President Trump.`\
-https://www.nytimes.com/video/opinion/100000010932835/ian-bremmer-on-the-risks-america-poses-to-the-world.html
-
-**California Primary Elections: What to Watch in the Governor’s Race, L.A. Mayoral Race and More**\
-`The race to replace Gov. Gavin Newsom has been unpredictable for months, while Mayor Karen Bass of Los Angeles is trying to fend off two challengers.`\
-https://www.nytimes.com/2026/06/02/us/elections/california-primary-what-to-watch.html
-
-**What to Watch in Tuesday’s Primary Elections in Iowa, Montana and Beyond**\
-`Democrats have a competitive Senate primary race in Iowa, where the party is hoping to make gains, while a smokejumper is running in a contested House primary in Montana.`\
-https://www.nytimes.com/2026/06/02/us/politics/iowa-montana-primary-election-midterms.html
-
-**‘Amadeus’ and Beyond: Where to Watch Movies About Composers**\
-`The latest adaptation of Peter Shaffer’s “Amadeus” joins a rich lineage of fantastical and extravagant musical biopics.`\
-https://www.nytimes.com/2026/06/02/arts/music/amadeus-composer-movies.html
-
-**Five Homes for Sale With Dreamy Pools**\
-`A 1960s compound in the Berkshires, a tropical cottage in Miami, a quintessential Hamptons house, and two California retreats.`\
-https://www.nytimes.com/2026/06/02/realestate/five-homes-for-sale-with-dreamy-pools.html
 
