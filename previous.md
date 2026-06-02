@@ -1,3 +1,7 @@
+**Lo que Irlanda y Alemania pueden enseñarnos sobre la ciudadanía por derecho de nacimiento**\
+`Las investigaciones han demostrado que las políticas más restrictivas pueden mermar el potencial de los niños que nacen y crecen en un país como no ciudadanos.`\
+https://www.nytimes.com/es/2026/06/02/espanol/negocios/irlanda-alemania-ciudadania-derecho-nacimiento.html
+
 **California Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 California primary elections.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-california-primary.html
@@ -27,7 +31,7 @@ https://www.nytimes.com/video/embedded/us/elections/100000010939890/02vid-cali-v
 https://www.nytimes.com/2026/06/02/arts/music/amplifier-newsletter-paul-mccartney.html
 
 **White House Correspondents Dinner Rescheduled for July**\
-`The dinner was abruptly cut short in April when a gunman disrupted the proceedings.`\
+`The dinner was abruptly cut short in April when a gunman disrupted the proceedings. President Trump said that he would attend.`\
 https://www.nytimes.com/2026/06/02/business/media/white-house-correspondents-dinner.html
 
 **Polls of California Governor’s Race Show a Clear Top 3**\
@@ -170,8 +174,8 @@ https://www.nytimes.com/2026/06/02/dining/dense-bean-salad.html
 `A Mellon heir transferred the adjacent Connecticut properties, covering about 300 acres, at no cost to Children’s Health Defense last year.`\
 https://www.nytimes.com/2026/06/02/business/economy/mellon-kennedy-childrens-health-defense.html
 
-**California Election Live Updates: Race to Succeed Newsom as Governor Highlights Primary Battles**\
-`Tuesday’s nonpartisan primaries will determine candidates for November. A former Biden cabinet secretary, a onetime Fox News host and a billionaire are vying to replace the term-limited governor, Gavin Newsom.`\
+**California Election Live Updates: Primary Battles Could Set Direction for California and Congress**\
+`Tuesday’s nonpartisan primaries will determine which candidates make the fall ballot in consequential races for governor, all 52 of the state’s congressional seats and Los Angeles mayor.`\
 https://www.nytimes.com/live/2026/06/02/us/california-election-primary-governor
 
 **Carney Says Canada Faces a ‘Crisis of Antisemitism’**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/02/style/street-style-look-power-neutrals.html
 **Battling a Deadly Ebola Outbreak in Eastern Congo**\
 `At the heart of the Ebola outbreak in the Democratic Republic of Congo, health care workers are racing to open new treatment centers and ramp up testing. But after years of war, the deadly virus is just one of many challenges they’re facing.`\
 https://www.nytimes.com/video/world/africa/100000010936755/ebola-virus-outbreak-congo-treatment.html
-
-**What a Short-Seller’s Conviction Might Mean for Wall St.**\
-`A federal jury found Andrew Left, who rose to fame by betting against companies, guilty of securities fraud. Other short-sellers are worried.`\
-https://www.nytimes.com/2026/06/02/business/dealbook/andrew-left-convicted-fraud.html
 

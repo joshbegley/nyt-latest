@@ -1,3 +1,15 @@
+**Lo que Irlanda y Alemania pueden enseñarnos sobre la ciudadanía por derecho de nacimiento**\
+`Las investigaciones han demostrado que las políticas más restrictivas pueden mermar el potencial de los niños que nacen y crecen en un país como no ciudadanos.`\
+https://www.nytimes.com/es/2026/06/02/espanol/negocios/irlanda-alemania-ciudadania-derecho-nacimiento.html
+
+**White House Correspondents Dinner Rescheduled for July**\
+`The dinner was abruptly cut short in April when a gunman disrupted the proceedings. President Trump said that he would attend.`\
+https://www.nytimes.com/2026/06/02/business/media/white-house-correspondents-dinner.html
+
+**California Election Live Updates: Primary Battles Could Set Direction for California and Congress**\
+`Tuesday’s nonpartisan primaries will determine which candidates make the fall ballot in consequential races for governor, all 52 of the state’s congressional seats and Los Angeles mayor.`\
+https://www.nytimes.com/live/2026/06/02/us/california-election-primary-governor
+
 **California Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 California primary elections.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-california-primary.html
