@@ -1,3 +1,7 @@
+**Election Live Updates: Iowans Pick Candidates for Key Senate Race as Six States Hold Primaries**\
+`Democrats see an opportunity in deep-red Iowa, where Senator Joni Ernst is vacating her seat. Closely watched contests are also being held in New Jersey, Montana and South Dakota.`\
+https://www.nytimes.com/live/2026/06/02/us/primary-elections-iowa-montana-nj
+
 **Graham Platner, Ken Paxton and the Amoral Center**\
 `Why a morally divided country might find sleazy candidates reassuring.`\
 https://www.nytimes.com/2026/06/02/opinion/graham-platner-morality-sexting.html
