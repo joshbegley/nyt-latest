@@ -1,3 +1,7 @@
+**U.S. Treasury Imposes Sanctions on Iran’s Biggest Crypto Exchange**\
+`The action against Nobitex and several of its executives accused it of helping the government evade sanctions and finance militants.`\
+https://www.nytimes.com/2026/06/02/world/middleeast/sanctions-iranian-crypto-exchange.html
+
 **New Jersey Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 New Jersey primary elections.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-new-jersey-primary.html
