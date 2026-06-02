@@ -1,3 +1,7 @@
+**Iran War Live Updates: Israel Appears to Pull Back From Threat to Strike Beirut**\
+`President Trump is pressing Israel not to attack the Lebanese capital. An escalation in Israel’s campaign against Hezbollah could threaten peace talks with Iran.`\
+https://www.nytimes.com/live/2026/06/02/world/iran-war-trump-israel-lebanon
+
 **Trump Targets Brazil With 25% Tariff, Citing Unfair Trade Practices**\
 `The proposal marks the latest effort by the administration to rebuild its tariff agenda through Section 301 investigations.`\
 https://www.nytimes.com/2026/06/02/business/trump-tariffs-brazil.html
