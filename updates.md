@@ -1,3 +1,15 @@
+**White House Seeks to Impose Political Test on Billions in Federal Grants**\
+`A new proposal would allow the administration to block grants if they do not satisfy President Trump’s agenda or support what it calls “anti-American” values.`\
+https://www.nytimes.com/2026/06/02/us/politics/trump-budget-grants-omb-vought.html
+
+**Only the Right Tests Can Stop This Ebola Outbreak. Congo Has Hardly Any.**\
+`A chronic lack of investment in development of better tests has left clinicians blind and allows deadly viruses to spread unchecked.`\
+https://www.nytimes.com/2026/06/02/health/ebola-tests-congo.html
+
+**Violet Witchel Wants You to Think Beans Are Sexy**\
+`The woman behind the viral Dense Bean Salad seems to have done the impossible: created a TikTok food trend with staying power.`\
+https://www.nytimes.com/2026/06/02/dining/dense-bean-salad.html
+
 **Trump Names Bill Pulte as Acting Director of National Intelligence**\
 `Bill Pulte, a Trump loyalist who leads the federal housing finance agency, will have oversight of the United States intelligence agencies. He has no known background in intelligence.`\
 https://www.nytimes.com/2026/06/02/us/politics/bill-pulte-acting-director-national-intelligence.html
