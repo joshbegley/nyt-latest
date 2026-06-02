@@ -1,3 +1,35 @@
+**Jeffrey Epstein guardó su esperma en un banco. Podría seguir almacenado**\
+`Epstein dejó su esperma en un banco varios años antes de su muerte y dijo que si moría, debía quedar bajo el control de su patrimonio.`\
+https://www.nytimes.com/es/2026/06/02/espanol/jeffrey-epsteins-banco-esperma.html
+
+**A Congressman Was Suddenly Absent. So We Looked. And Looked.**\
+`Will the mystery of Tom Kean Jr., a New Jersey representative, finally be solved on Tuesday? The reporters covering the story will have questions.`\
+https://www.nytimes.com/2026/06/02/nyregion/tom-kean-jr-new-jersey-absence.html
+
+**Mamdani Advances 34th St. Bus Lane Plan That U.S. Had Blocked**\
+`The city is moving forward with a redesign of 34th Street in Manhattan that the White House halted last year after threatening to withhold federal funding for other transit priorities.`\
+https://www.nytimes.com/2026/06/02/nyregion/mamdani-bus-lane-34th-manhattan.html
+
+**Group Pledges $2 Million to Fight AIPAC in House Races**\
+`A super PAC created to counter spending from powerful pro-Israel groups will try to help Democrats critical of Israel’s wars and military actions.`\
+https://www.nytimes.com/2026/06/02/nyregion/aipac-spending-campaign-super-pac.html
+
+**NYT Spelling Bee Answers for June 2, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/02/crosswords/spelling-bee-forum.html
+
+**How Three Chess Friends Battled Demons and Saved Two Lives**\
+`A $486 studio apartment on Central Park kept the friends connected, and it almost tore them apart.`\
+https://www.nytimes.com/2026/06/02/nyregion/how-three-chess-friends-battled-demons-and-saved-two-lives.html
+
+**Trump Claims a Missing N.J. Congressman Has Been ‘Working Tirelessly’**\
+`The message from President Trump about Representative Thomas Kean Jr. comes as voters head to the polls on Tuesday. Mr. Kean’s name is on the ballot, but he hasn’t been seen for months.`\
+https://www.nytimes.com/2026/06/02/nyregion/thomas-kean-new-jersey-house-election.html
+
+**Mamdani Is Under Pressure to Act Amid Slowing Job Growth in New York**\
+`As New York City faces slowing job growth and broader economic concerns, Mayor Zohran Mamdani has not offered a detailed plan to create jobs.`\
+https://www.nytimes.com/2026/06/02/nyregion/mamdani-jobs-nyc.html
+
 **Russia Launches Deadly Strikes on Ukraine**\
 `Missiles and drones struck the cities of Kyiv and Dnipro, Ukrainian officials said. At least 10 people were killed.`\
 https://www.nytimes.com/2026/06/02/world/europe/ukraine-war-russia-kyiv-attack.html
@@ -161,40 +193,4 @@ https://www.nytimes.com/2026/06/01/world/ebola-epicenter-congo-alberta-referendu
 **Can Content Creators Get Rich Off A.I. Slop Like Tung Tung Tung Sahur?**\
 `Brainrot videos are specifically designed to confuse us. They can also be a financial bonanza for their creators.`\
 https://www.nytimes.com/interactive/2026/06/01/magazine/ai-slop-viral-videos.html
-
-**Appeals Court Says 28 Transgender Troops Who Sued Can Remain in Military**\
-`The ruling gives a temporary reprieve to a group of service members while their lawsuit proceeds. The plaintiffs plan to ask the court to extend the ruling to all transgender troops.`\
-https://www.nytimes.com/2026/06/01/us/transgender-troops-appeals-court-ruling.html
-
-**Obesity May Be More Prevalent Than Previously Thought**\
-`A new study suggests using body mass index alone may miss many people with the disease, but the findings come with caveats.`\
-https://www.nytimes.com/2026/06/01/well/obesity-bmi-definition.html
-
-**Mills Reminds Maine Voters She’s ‘Still on the Ballot’ for Senate Amid Platner Controversy**\
-`A month after withdrawing from the state’s Senate race, Gov. Janet Mills suggested she remained an option after the likely Democratic nominee, Graham Platner, faced a new scandal.`\
-https://www.nytimes.com/2026/06/01/us/politics/mills-platner-maine-democratic-senate-primary.html
-
-**Dive Into a Very Noisy Sea With Some Very Rare Whales**\
-`Fewer than 100 Rice’s whales remain on Earth. Researchers say sonic blasts from oil exploration are a top threat to the species. See and hear why.`\
-https://www.nytimes.com/interactive/2026/06/01/climate/gulf-oil-gas-whale-sounds.html
-
-**Four Men Break Out of an Alabama Jail, Setting Off a Broad Dragnet**\
-`The Dallas County sheriff said they had overpowered guards. Two were recaptured by Monday, but the search continued for the others.`\
-https://www.nytimes.com/2026/06/01/us/four-men-alabama-jail-escape-dallas-county.html
-
-**Esto dicen los votantes de Trump sobre el precio de la gasolina**\
-`A cinco meses de las elecciones intermedias, muchos estadounidenses que apoyaron al presidente Trump lidian con la guerra en Irán y sus repercusiones en la economía.`\
-https://www.nytimes.com/es/2026/06/01/espanol/estados-unidos/trump-precio-gasolina-votantes.html
-
-**Marilyn Monroe Fans Descended on Palm Springs For Her 100th Birthday**\
-`To honor her centennial, over 1,000 Marilyn Monroe fans came together to dress as the screen legend in Palm Springs, where her Hollywood career began.`\
-https://www.nytimes.com/2026/06/01/style/marilyn-monroe-100th-birthday.html
-
-**Dozens Killed by Explosion in Rebel-Held Myanmar Territory**\
-`The blast occurred around noon on Sunday in Kaung Tup, a village in Shan State near the Chinese border, at a warehouse that stored explosives for mining, local officials said.`\
-https://www.nytimes.com/video/world/asia/100000010937322/myanmar-explosion-kaung-tat-village.html
-
-**Hezbollah Ally Says the Iran-Backed Group Wants a New Truce With Israel**\
-`In an interview with The Times, Nabih Berri, an influential Lebanese lawmaker close to Hezbollah, called on President Trump to broker a new cease-fire.`\
-https://www.nytimes.com/2026/06/01/world/middleeast/hezbollah-israel-truce.html
 

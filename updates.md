@@ -1,3 +1,35 @@
+**Jeffrey Epstein guardó su esperma en un banco. Podría seguir almacenado**\
+`Epstein dejó su esperma en un banco varios años antes de su muerte y dijo que si moría, debía quedar bajo el control de su patrimonio.`\
+https://www.nytimes.com/es/2026/06/02/espanol/jeffrey-epsteins-banco-esperma.html
+
+**A Congressman Was Suddenly Absent. So We Looked. And Looked.**\
+`Will the mystery of Tom Kean Jr., a New Jersey representative, finally be solved on Tuesday? The reporters covering the story will have questions.`\
+https://www.nytimes.com/2026/06/02/nyregion/tom-kean-jr-new-jersey-absence.html
+
+**Mamdani Advances 34th St. Bus Lane Plan That U.S. Had Blocked**\
+`The city is moving forward with a redesign of 34th Street in Manhattan that the White House halted last year after threatening to withhold federal funding for other transit priorities.`\
+https://www.nytimes.com/2026/06/02/nyregion/mamdani-bus-lane-34th-manhattan.html
+
+**Group Pledges $2 Million to Fight AIPAC in House Races**\
+`A super PAC created to counter spending from powerful pro-Israel groups will try to help Democrats critical of Israel’s wars and military actions.`\
+https://www.nytimes.com/2026/06/02/nyregion/aipac-spending-campaign-super-pac.html
+
+**NYT Spelling Bee Answers for June 2, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/02/crosswords/spelling-bee-forum.html
+
+**How Three Chess Friends Battled Demons and Saved Two Lives**\
+`A $486 studio apartment on Central Park kept the friends connected, and it almost tore them apart.`\
+https://www.nytimes.com/2026/06/02/nyregion/how-three-chess-friends-battled-demons-and-saved-two-lives.html
+
+**Trump Claims a Missing N.J. Congressman Has Been ‘Working Tirelessly’**\
+`The message from President Trump about Representative Thomas Kean Jr. comes as voters head to the polls on Tuesday. Mr. Kean’s name is on the ballot, but he hasn’t been seen for months.`\
+https://www.nytimes.com/2026/06/02/nyregion/thomas-kean-new-jersey-house-election.html
+
+**Mamdani Is Under Pressure to Act Amid Slowing Job Growth in New York**\
+`As New York City faces slowing job growth and broader economic concerns, Mayor Zohran Mamdani has not offered a detailed plan to create jobs.`\
+https://www.nytimes.com/2026/06/02/nyregion/mamdani-jobs-nyc.html
+
 **Russia Launches Deadly Strikes on Ukraine**\
 `Missiles and drones struck the cities of Kyiv and Dnipro, Ukrainian officials said. At least 10 people were killed.`\
 https://www.nytimes.com/2026/06/02/world/europe/ukraine-war-russia-kyiv-attack.html
