@@ -114,7 +114,7 @@ https://www.nytimes.com/2026/06/02/opinion/arthur-miller-tragedy.html
 `The political risk analyst Ian Bremmer argues that the greatest driver of risk in the world right now is President Trump.`\
 https://www.nytimes.com/video/opinion/100000010932835/ian-bremmer-on-the-risks-america-poses-to-the-world.html
 
-**California’s Primary Election: What to Watch**\
+**California Primary Elections: What to Watch in the Governor’s Race, L.A. Mayoral Race and More**\
 `The race to replace Gov. Gavin Newsom has been unpredictable for months, while Mayor Karen Bass of Los Angeles is trying to fend off two challengers.`\
 https://www.nytimes.com/2026/06/02/us/elections/california-primary-what-to-watch.html
 
