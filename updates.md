@@ -1,3 +1,7 @@
+**Murder of Henry Nowak, Who Was Handcuffed by Police While Dying, Fuels Outrage in UK**\
+`Authorities in Britain are investigating police officers who handcuffed a student, Henry Nowak, while he was dying, in a case that been increasingly politicized.`\
+https://www.nytimes.com/2026/06/02/world/europe/henry-nowak-murder-uk-stabbing.html
+
 **Protests Grow in Albania Over Kushner-Linked Project**\
 `Plans for luxury resorts on the Adriatic Sea have long worried environmentalists. The developments are now a flashpoint for broader frustrations with the government.`\
 https://www.nytimes.com/2026/06/02/world/europe/albania-kushner-protests-hotel.html
