@@ -1,3 +1,11 @@
+**Hegseth elimina de una lista de ascensos de la Marina a oficiales negros y mujeres**\
+`Las acciones de Hegseth, que parecen violar las normas del sistema de ascensos, fueron descritas por cuatro funcionarios actuales y antiguos del departamento que hablaron bajo condición de anonimato.`\
+https://www.nytimes.com/es/2026/06/01/espanol/estados-unidos/secretario-defensa-lista-marina-mujeres-oficiales-negros.html
+
+**Palabra del día en inglés: ‘recondite’**\
+`Esta palabra ha aparecido en cinco artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/06/01/espanol/que-significa-recondite.html
+
 **North Carolina Officer Charged After Beating of Suspect Captured on Doorbell Video**\
 `While trying to make an arrest, the officer, in Shelby, N.C., punched her repeatedly in the head and body and he continued even after another officer tried to intervene.`\
 https://www.nytimes.com/2026/06/01/us/shelby-police-officer-doorbell-video.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/01/us/tyler-robinson-charlie-kirk-hearings-media
 **In the ‘Euphoria’ Finale, the HBO Show Goes Out With a Whimper**\
 `In the end, a show defined by its excesses seemed to be straining for a redemption that it didn’t need.`\
 https://www.nytimes.com/2026/06/01/arts/television/euphoria-season-3-finale-rue.html
-
-**Florida Sues OpenAI Over Chatbot Safety Concerns**\
-`The state became the first to sue the ChatGPT maker over claims that its technology posed a risk to children and that the company had failed to warn the public of dangers.`\
-https://www.nytimes.com/2026/06/01/technology/florida-sues-openai-chatgpt-safety.html
-
-**El agente de la CIA detenido con oro trabajó con el segundo al mando del Pentágono**\
-`David Rush, funcionario de la CIA, parece haber tenido contacto por primera vez con Stephen A. Feinberg durante el primer mandato del presidente Trump. Algunos funcionarios dijeron que no eran cercanos.`\
-https://www.nytimes.com/es/2026/06/01/espanol/estados-unidos/cia-agente-oro-pentagono.html
 

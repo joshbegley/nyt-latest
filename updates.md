@@ -1,3 +1,11 @@
+**Hegseth elimina de una lista de ascensos de la Marina a oficiales negros y mujeres**\
+`Las acciones de Hegseth, que parecen violar las normas del sistema de ascensos, fueron descritas por cuatro funcionarios actuales y antiguos del departamento que hablaron bajo condición de anonimato.`\
+https://www.nytimes.com/es/2026/06/01/espanol/estados-unidos/secretario-defensa-lista-marina-mujeres-oficiales-negros.html
+
+**Palabra del día en inglés: ‘recondite’**\
+`Esta palabra ha aparecido en cinco artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/06/01/espanol/que-significa-recondite.html
+
 **North Carolina Officer Charged After Beating of Suspect Captured on Doorbell Video**\
 `While trying to make an arrest, the officer, in Shelby, N.C., punched her repeatedly in the head and body and he continued even after another officer tried to intervene.`\
 https://www.nytimes.com/2026/06/01/us/shelby-police-officer-doorbell-video.html
