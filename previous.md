@@ -1,3 +1,7 @@
+**Inside Mamdani’s N.Y.C. Sports Equinox**\
+`Pablo visits the mayor of New York to discuss Knicks joy, Arsenal tears, hair loss, Trump and more.`\
+https://www.nytimes.com/2026/06/02/podcasts/inside-mamdanis-nyc-sports-equinox.html
+
 **How Hezbollah Drones Upended Israel’s Strategy in Lebanon**\
 `An Israeli campaign that started with high hopes has devolved into a kind of impasse, with Hezbollah looking more capable than it did when the war began.`\
 https://www.nytimes.com/2026/06/02/world/middleeast/israel-lebanon-hezbollah.html
@@ -104,7 +108,7 @@ https://www.nytimes.com/2026/06/02/opinion/anti-tax-break-code-oprah.html
 
 **U.S. Was Asked to Blacklist Colombian Cartel Gold. It Was Also Buying It.**\
 `The request for sanctions, from Colombia’s defense minister, shows failures at both ends of the supply chain for illegal gold.`\
-https://www.nytimes.com/2026/06/02/world/americas/us-was-asked-to-blacklist-colombian-cartel-gold-it-was-also-buying-it.html
+https://www.nytimes.com/2026/06/02/world/americas/us-colombia-gold-blacklist-sanctions.html
 
 **Book Review: ‘What Came West,’ by Josh Weil**\
 `Josh Weil’s new novel follows an autistic trapper on an odyssey during the California gold rush.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/02/nyregion/how-three-chess-friends-battled-demo
 **Trump Claims a Missing N.J. Congressman Has Been ‘Working Tirelessly’**\
 `The message from President Trump about Representative Thomas Kean Jr. comes as voters head to the polls on Tuesday. Mr. Kean’s name is on the ballot, but he hasn’t been seen for months.`\
 https://www.nytimes.com/2026/06/02/nyregion/thomas-kean-new-jersey-house-election.html
-
-**Mamdani Is Under Pressure to Act Amid Slowing Job Growth in New York**\
-`As New York City faces slowing job growth and broader economic concerns, Mayor Zohran Mamdani has not offered a detailed plan to create jobs.`\
-https://www.nytimes.com/2026/06/02/nyregion/mamdani-jobs-nyc.html
 

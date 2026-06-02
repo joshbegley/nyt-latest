@@ -1,3 +1,11 @@
+**Inside Mamdani’s N.Y.C. Sports Equinox**\
+`Pablo visits the mayor of New York to discuss Knicks joy, Arsenal tears, hair loss, Trump and more.`\
+https://www.nytimes.com/2026/06/02/podcasts/inside-mamdanis-nyc-sports-equinox.html
+
+**U.S. Was Asked to Blacklist Colombian Cartel Gold. It Was Also Buying It.**\
+`The request for sanctions, from Colombia’s defense minister, shows failures at both ends of the supply chain for illegal gold.`\
+https://www.nytimes.com/2026/06/02/world/americas/us-colombia-gold-blacklist-sanctions.html
+
 **How Hezbollah Drones Upended Israel’s Strategy in Lebanon**\
 `An Israeli campaign that started with high hopes has devolved into a kind of impasse, with Hezbollah looking more capable than it did when the war began.`\
 https://www.nytimes.com/2026/06/02/world/middleeast/israel-lebanon-hezbollah.html
