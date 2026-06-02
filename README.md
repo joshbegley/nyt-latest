@@ -1,3 +1,15 @@
+**Graham Platner Meets With Senate Democrats Amid Texting Scandal**\
+`Mr. Platner, the likely Democratic nominee for Senate in Maine, met in Washington with several senators. Chuck Schumer, the minority leader, dodged questions about his confidence in Mr. Platner.`\
+https://www.nytimes.com/2026/06/02/us/politics/platner-senate-democrats-washington-meeting.html
+
+**Pushing Treatment, Trump Administration Limits Housing Aid for Homeless**\
+`Congress and a court blocked a previous effort to revamp homeless programs. Even a scaled-back version marks the sharpest change in homelessness policy in a generation.`\
+https://www.nytimes.com/2026/06/02/us/politics/housing-first-homeless-hud.html
+
+**Trump Administration Backs Down on $1.8 Billion Fund**\
+`The acting attorney general Todd Blanche said on Tuesday that the Justice Department would withdraw its proposal for a $1.8 billion compensation fund.`\
+https://www.nytimes.com/video/us/politics/100000010941030/blanche-trump-administration-compensation-fund.html
+
 **When to Expect Results in the June 2 Primaries**\
 `Voters in six states have primaries today. Election officials predict that results will come in late Tuesday or early Wednesday.`\
 https://www.nytimes.com/2026/06/02/us/politics/results-timing-iowa-montana-new-mexico.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-california-us-hous
 **California Seventh Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 California primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-7-primary.html
-
-**California Fifth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 California primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-5-primary.html
-
-**California 48th Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 California primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-48-primary.html
-
-**California 46th Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 California primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-46-primary.html
 
