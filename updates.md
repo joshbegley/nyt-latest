@@ -1,3 +1,11 @@
+**Iran Reveals 3-Day Funeral Plan for Ayatollah Khamenei, After Long Delay**\
+`Ceremonies for Ayatollah Ali Khaemeni will be held in multiple cities, including Tehran, where authorities expect up to 20 million people to attend, Iranian state media reported.`\
+https://www.nytimes.com/2026/06/02/world/middleeast/ayatollah-khamenei-funeral-iran.html
+
+**Police Say Muscatine, Iowa Man Shot 6 Relatives Before Killing Himself**\
+`The man, Ryan Willis McFarland, 52, was confronted by the police, who said the killings followed a domestic dispute.`\
+https://www.nytimes.com/2026/06/02/us/muscatine-iowa-shooting-family.html
+
 **Trump Megadonor Gave $5.5 Million Estate to Robert F. Kennedy Jr.’s Anti-Vaccine Group**\
 `A Mellon heir transferred the adjacent Connecticut properties, covering about 300 acres, at no cost to Children’s Health Defense last year.`\
 https://www.nytimes.com/2026/06/02/business/economy/mellon-kennedy-childrens-health-defense.html
