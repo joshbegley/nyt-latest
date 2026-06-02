@@ -1,3 +1,7 @@
+**Map: 3.7-Magnitude Earthquake Shakes the San Francisco Bay Area**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/02/us/quake-tracker-san-francisco-bay-area.html
+
 **Immigration Bill Teeters as G.O.P. Awaits Clarity on Trump’s Fund**\
 `The top Senate Republican said he had been assured that the acting attorney general would make a ‘very definitive, very clear’ statement on the fund at a House hearing.`\
 https://www.nytimes.com/2026/06/02/us/politics/trump-fund-thune.html
