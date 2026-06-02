@@ -1,3 +1,7 @@
+**¿Se pueden usar calcetines con sandalias?**\
+`Una profesora se pregunta sobre las normas de etiqueta del calzado contemporáneo.`\
+https://www.nytimes.com/es/2026/06/02/espanol/estilos-de-vida/calcetines-sandalias.html
+
 **Quote of the Day:Trump’s Sway in Primaries May Not Translate to the Midterms**\
 `Quotation of the Day for Tuesday, June 2, 2024.`\
 https://www.nytimes.com/2026/06/02/pageoneplus/quote-of-the-daytrumps-sway-in-primaries-may-not-translate-to-the-midterms.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/01/style/dua-lipa-callum-turner-wedding-dress.ht
 **The Best Movies and TV Shows Coming to Disney+, Amazon, AMC+, Apple TV and More in June**\
 `“The Vampire Lestat,” “Hoppers” and “Not Suitable for Work” arrive and “The Bear” returns.`\
 https://www.nytimes.com/2026/06/01/arts/television/movies-tv-shows-june-2026-streaming.html
-
-**Oil Prices Jump as Middle East Tensions Build**\
-`Some analysts said the main international oil price, which was up 6 percent on Monday, could climb much higher in the coming weeks if the Strait of Hormuz doesn’t reopen.`\
-https://www.nytimes.com/2026/06/01/business/energy-environment/iran-war-oil-prices.html
 
