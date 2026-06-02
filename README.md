@@ -1,3 +1,7 @@
+**Trump Targets Brazil with 25% Tariff, Citing Unfair Trade Practices**\
+`The proposal marks the latest effort by the administration to rebuild its tariff agenda through Section 301 investigations.`\
+https://www.nytimes.com/2026/06/02/business/trump-tariffs-brazil.html
+
 **Trump podría ganar un importante aliado en las próximas elecciones de Colombia**\
 `Abelardo de la Espriella, un candidato de línea dura de la derecha que se enfrenta a un rival de izquierda en una segunda vuelta presidencial, ha prometido aplastar a los narcotraficantes.`\
 https://www.nytimes.com/es/2026/06/02/espanol/america-latina/trump-aliado-elecciones-colombia.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/01/us/politics/pentagon-reporters-hegseth.html
 **Judge Decides to Keep Charlie Kirk Hearings Open to Public**\
 `Utah district judge, Tony Graf, rejected the defense’s bid to close the hearings in the Charlie Kirk murder case. The defendant, Tyler J. Robinson, is accused of fatally shooting Mr. Kirk, the conservative activist.`\
 https://www.nytimes.com/video/us/politics/100000010937289/charlie-kirk-shooting-hearing-ruling.html
-
-**Inside the Ebola Outbreak**\
-`A Times correspondent is reporting from the Ebola epicenter in the Democratic Republic of Congo. Here’s what he saw.`\
-https://www.nytimes.com/2026/06/01/world/ebola-epicenter-congo-alberta-referendum.html
 
