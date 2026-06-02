@@ -10,8 +10,8 @@ https://www.nytimes.com/2026/06/02/business/trump-tariffs-brazil.html
 `Abelardo de la Espriella, un candidato de línea dura de la derecha que se enfrenta a un rival de izquierda en una segunda vuelta presidencial, ha prometido aplastar a los narcotraficantes.`\
 https://www.nytimes.com/es/2026/06/02/espanol/america-latina/trump-aliado-elecciones-colombia.html
 
-**Iran War Live Updates: Israel Appears to Back Off Threat to Strike Beirut**\
-`President Trump is pressing Israel to not strike the Lebanese capital. An escalation in Israel’s campaign against Hezbollah could threaten peace talks with Iran.`\
+**Iran War Live Updates: Israel Appears to Pull Back From Threat to Strike Beirut**\
+`President Trump is pressing Israel not to attack the Lebanese capital. An escalation in Israel’s campaign against Hezbollah could threaten peace talks with Iran.`\
 https://www.nytimes.com/live/2026/06/02/world/iran-war-trump-israel-lebanon
 
 **Jeffrey Epstein guardó su esperma en un banco. Podría seguir almacenado**\
