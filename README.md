@@ -1,4 +1,4 @@
-**California Election Live Updates: Governor’s Race to Succeed Newsom Headlines Primary Battles**\
+**California Election Live Updates: Polls to Open Soon in Race to Succeed Newsom as Governor**\
 `Tuesday’s nonpartisan primaries will determine candidates for November. A former Biden cabinet secretary, a one-time Fox News host and a billionaire are vying to replace the term-limited governor, Gavin Newsom.`\
 https://www.nytimes.com/live/2026/06/02/us/california-election-primary-governor
 
