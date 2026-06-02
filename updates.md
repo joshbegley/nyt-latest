@@ -1,3 +1,11 @@
+**Carney Says Canada Faces a ‘Crisis of Antisemitism’**\
+`Prime Minister Mark Carney’s comments followed calls for action from Jewish organizations and after a government report found that antisemitism had surged in Canada in recent years.`\
+https://www.nytimes.com/2026/06/02/world/canada/carney-antisemitism-toronto-canada.html
+
+**Russia Is Showing Signs of Weakness in Ukraine. So It Hits Harder.**\
+`The war has not been going the Kremlin’s way, with battleground losses and mounting casualties. With fiercer strikes, Moscow hopes to gain a better position for negotiations.`\
+https://www.nytimes.com/2026/06/02/world/europe/ukraine-russia-war-strikes.html
+
 **Iran Reveals 3-Day Funeral Plan for Ayatollah Khamenei, After Long Delay**\
 `Ceremonies for Ayatollah Ali Khaemeni will be held in multiple cities, including Tehran, where authorities expect up to 20 million people to attend, Iranian state media reported.`\
 https://www.nytimes.com/2026/06/02/world/middleeast/ayatollah-khamenei-funeral-iran.html

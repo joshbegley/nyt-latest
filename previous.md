@@ -54,8 +54,8 @@ https://www.nytimes.com/2026/06/02/business/economy/mellon-kennedy-childrens-hea
 `Tuesday’s nonpartisan primaries will determine candidates for November. A former Biden cabinet secretary, a one-time Fox News host and a billionaire are vying to replace the term-limited governor, Gavin Newsom.`\
 https://www.nytimes.com/live/2026/06/02/us/california-election-primary-governor
 
-**Carney Says Canada Is Failing Jewish Canadians, Describing ‘Crisis of Antisemitism’**\
-`Prime Minister Mark Carney’s comments followed calls from Jewish organizations to address what they described as a crisis of antisemitism.`\
+**Carney Says Canada Faces a ‘Crisis of Antisemitism’**\
+`Prime Minister Mark Carney’s comments followed calls for action from Jewish organizations and after a government report found that antisemitism had surged in Canada in recent years.`\
 https://www.nytimes.com/2026/06/02/world/canada/carney-antisemitism-toronto-canada.html
 
 **Martin Scorsese Is Embracing A.I.**\
@@ -83,7 +83,7 @@ https://www.nytimes.com/2026/06/02/world/africa/kenya-ebola-us-quarantine-unit-c
 https://www.nytimes.com/2026/06/02/us/politics/marco-rubio-senate-budget-iran-cuba.html
 
 **Russia Is Showing Signs of Weakness in Ukraine. So It Hits Harder.**\
-`The war has not been going the Kremlin’s way recently, with battleground losses and mounting casualties. With renewed strikes, Moscow hopes to gain a better position for negotiations.`\
+`The war has not been going the Kremlin’s way, with battleground losses and mounting casualties. With fiercer strikes, Moscow hopes to gain a better position for negotiations.`\
 https://www.nytimes.com/2026/06/02/world/europe/ukraine-russia-war-strikes.html
 
 **Meta Expands Safety Features for Teenagers**\
