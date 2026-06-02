@@ -1,3 +1,11 @@
+**‘Did I Have a Choice?’ In New Jersey, Kean Voters Explain Themselves.**\
+`Some Republicans outside polling sites acknowledged how strange it felt to cast a ballot for Representative Thomas Kean Jr., who has not been seen in public for months.`\
+https://www.nytimes.com/2026/06/02/nyregion/thomas-kean-voters-new-jersey.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000010940596/29vid-California-Primaries-Hali-Rodriguez-92872.html
+
 **Democrats Pledge to Fight Trump’s Termination of Ocean Monitoring Observatories**\
 `The Trump administration is dismantling a $368 million deep-ocean observation system that monitors marine ecosystems and the effects of climate change.`\
 https://www.nytimes.com/2026/06/02/climate/trump-ocean-monitors-climate-research.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/es/2026/06/02/espanol/mundo/rusia-ataca-ucrania-kiev.htm
 **‘La La Land’ Orchestral Performance Saved by Keyboardist in the Audience**\
 `After a musician fell ill during a live performance of the score from “La La Land,” the composer Justin Hurwitz asked for a sight reader. A 21-year-old student stepped up.`\
 https://www.nytimes.com/2026/06/02/world/australia/la-la-land-sydney-concert-audience-member.html
-
-**Oriana Lights the Wood-Fired Grill Just in Time for Summer**\
-`A luxury sushi restaurant gets a New York location, Red Beard Coffee & Bakery serves creative riffs on classics and more restaurant news.`\
-https://www.nytimes.com/2026/06/02/dining/nyc-restaurant-news.html
-
-**Audience Member at ‘La La Land’ Concert Fills in for Sick Keyboardist**\
-`Sterling Nasa, a 21-year-old university student, filled in for a keyboard player who had fallen ill during a “La La Land” orchestral performance in Australia.`\
-https://www.nytimes.com/video/world/asia/100000010939017/la-la-land-keyboardist-concert.html
 
 **California Election Live Updates: Primary Battles Could Set Direction for California and Congress**\
 `Tuesday’s nonpartisan primaries will determine which candidates make the fall ballot in consequential races for governor, all 52 of the state’s congressional seats and Los Angeles mayor.`\

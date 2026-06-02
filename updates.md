@@ -1,3 +1,15 @@
+**Democrats Pledge to Fight Trump’s Termination of Ocean Monitoring Observatories**\
+`The Trump administration is dismantling a $368 million deep-ocean observation system that monitors marine ecosystems and the effects of climate change.`\
+https://www.nytimes.com/2026/06/02/climate/trump-ocean-monitors-climate-research.html
+
+**Marcia Lucas, Oscar-Winning ‘Star Wars’ Editor, Dies at 80**\
+`A close collaborator with George Lucas, her first husband, she was “the warmth and the heart” of his early films, the actor Mark Hamill said.`\
+https://www.nytimes.com/2026/06/02/movies/marcia-lucas-dead.html
+
+**Murder of Henry Nowak, Who Was Handcuffed by Police While Dying, Fuels Outrage in UK**\
+`The authorities in Britain are investigating police officers who handcuffed a student, Henry Nowak, while he was dying, in a case that been increasingly politicized.`\
+https://www.nytimes.com/2026/06/02/world/europe/henry-nowak-murder-uk-stabbing.html
+
 **Map: 3.7-Magnitude Earthquake Shakes the San Francisco Bay Area**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/06/02/us/quake-tracker-san-francisco-bay-area.html

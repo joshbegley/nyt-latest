@@ -1,3 +1,11 @@
+**Democrats Pledge to Fight Trump’s Termination of Ocean Monitoring Observatories**\
+`The Trump administration is dismantling a $368 million deep-ocean observation system that monitors marine ecosystems and the effects of climate change.`\
+https://www.nytimes.com/2026/06/02/climate/trump-ocean-monitors-climate-research.html
+
+**Marcia Lucas, Oscar-Winning ‘Star Wars’ Editor, Dies at 80**\
+`A close collaborator with George Lucas, her first husband, she was “the warmth and the heart” of his early films, the actor Mark Hamill said.`\
+https://www.nytimes.com/2026/06/02/movies/marcia-lucas-dead.html
+
 **Immigration Bill Teeters as G.O.P. Awaits Clarity on Trump’s Fund**\
 `The top Senate Republican said he had been assured that the acting attorney general would make a ‘very definitive, very clear’ statement on the fund at a House hearing.`\
 https://www.nytimes.com/2026/06/02/us/politics/trump-fund-thune.html
@@ -15,7 +23,7 @@ https://www.nytimes.com/2026/06/02/climate/iran-warn-global-shortages.html
 https://www.nytimes.com/video/opinion/100000010928427/tucker-carlsons-big-bet.html
 
 **Murder of Henry Nowak, Who Was Handcuffed by Police While Dying, Fuels Outrage in UK**\
-`Authorities in Britain are investigating police officers who handcuffed a student, Henry Nowak, while he was dying, in a case that been increasingly politicized.`\
+`The authorities in Britain are investigating police officers who handcuffed a student, Henry Nowak, while he was dying, in a case that been increasingly politicized.`\
 https://www.nytimes.com/2026/06/02/world/europe/henry-nowak-murder-uk-stabbing.html
 
 **Protests Grow in Albania Over Kushner-Linked Project**\
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/06/02/dining/nyc-restaurant-news.html
 **Audience Member at ‘La La Land’ Concert Fills in for Sick Keyboardist**\
 `Sterling Nasa, a 21-year-old university student, filled in for a keyboard player who had fallen ill during a “La La Land” orchestral performance in Australia.`\
 https://www.nytimes.com/video/world/asia/100000010939017/la-la-land-keyboardist-concert.html
-
-**Lebanon Endures Threats, Diplomacy and Whiplash as Others Decide Its Fate**\
-`The conflict between the United States, Israel and Iran looms over a state that has been pummeled by military strikes but has little say in determining its own future.`\
-https://www.nytimes.com/2026/06/02/world/middleeast/lebanon-israel-us-threats-diplomacy.html
-
-**New Proposal Would Allow Administration to Block Grants if They Don’t Support Trump’s Agenda**\
-`A new proposal would allow the administration to block grants if they do not satisfy President Trump’s agenda or support what it calls “anti-American” values.`\
-https://www.nytimes.com/2026/06/02/us/politics/trump-budget-grants-omb-vought.html
 
 **California Election Live Updates: Primary Battles Could Set Direction for California and Congress**\
 `Tuesday’s nonpartisan primaries will determine which candidates make the fall ballot in consequential races for governor, all 52 of the state’s congressional seats and Los Angeles mayor.`\
