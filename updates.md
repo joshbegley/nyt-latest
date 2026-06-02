@@ -1,3 +1,11 @@
+**The Iran War Has Led to Months of Global Shortages**\
+`Three months after the Strait of Hormuz was first closed, many countries are experiencing shortages of key goods.`\
+https://www.nytimes.com/2026/06/02/climate/iran-warn-global-shortages.html
+
+**Tucker Carlson’s Big Bet**\
+`Is the Republican Party fracturing? The Opinion columnist Ezra Klein and the Republican strategist Liam Donovan dissect the growing divide between traditional conservatives and right-wing media figures like Tucker Carlson.`\
+https://www.nytimes.com/video/opinion/100000010928427/tucker-carlsons-big-bet.html
+
 **Murder of Henry Nowak, Who Was Handcuffed by Police While Dying, Fuels Outrage in UK**\
 `Authorities in Britain are investigating police officers who handcuffed a student, Henry Nowak, while he was dying, in a case that been increasingly politicized.`\
 https://www.nytimes.com/2026/06/02/world/europe/henry-nowak-murder-uk-stabbing.html

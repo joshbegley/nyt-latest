@@ -1,3 +1,11 @@
+**The Iran War Has Led to Months of Global Shortages**\
+`Three months after the Strait of Hormuz was first closed, many countries are experiencing shortages of key goods.`\
+https://www.nytimes.com/2026/06/02/climate/iran-warn-global-shortages.html
+
+**Tucker Carlson’s Big Bet**\
+`Is the Republican Party fracturing? The Opinion columnist Ezra Klein and the Republican strategist Liam Donovan dissect the growing divide between traditional conservatives and right-wing media figures like Tucker Carlson.`\
+https://www.nytimes.com/video/opinion/100000010928427/tucker-carlsons-big-bet.html
+
 **Murder of Henry Nowak, Who Was Handcuffed by Police While Dying, Fuels Outrage in UK**\
 `Authorities in Britain are investigating police officers who handcuffed a student, Henry Nowak, while he was dying, in a case that been increasingly politicized.`\
 https://www.nytimes.com/2026/06/02/world/europe/henry-nowak-murder-uk-stabbing.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/06/02/health/ebola-tests-congo.html
 **Trump Names Bill Pulte as Acting Director of National Intelligence**\
 `Bill Pulte, a Trump loyalist who leads the federal housing finance agency, will oversee the U.S. intelligence agencies. He has no known background in intelligence.`\
 https://www.nytimes.com/2026/06/02/us/politics/bill-pulte-acting-director-national-intelligence.html
-
-**New York Sues Trump Administration Over TotalEnergies Wind Farm**\
-`The lawsuit argues that it is illegal to pay the French energy giant TotalEnergies $795 million to cancel a planned wind farm off New York.`\
-https://www.nytimes.com/2026/06/02/climate/new-york-lawsuit-trump-offshore-wind.html
-
-**Violet Witchel Wants You to Think Beans Are Sexy**\
-`The woman behind the viral Dense Bean Salad seems to have done the impossible: created a TikTok food trend with staying power.`\
-https://www.nytimes.com/2026/06/02/dining/dense-bean-salad.html
 
 **California Election Live Updates: Primary Battles Could Set Direction for California and Congress**\
 `Tuesday’s nonpartisan primaries will determine which candidates make the fall ballot in consequential races for governor, all 52 of the state’s congressional seats and Los Angeles mayor.`\
