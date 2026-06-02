@@ -1,3 +1,7 @@
+**Oriana Lights the Wood-Fired Grill Just in Time for Summer**\
+`A luxury sushi restaurant gets a New York location, Red Beard Coffee & Bakery serves creative riffs on classics and more restaurant news.`\
+https://www.nytimes.com/2026/06/02/dining/nyc-restaurant-news.html
+
 **Audience Member at ‘La La Land’ Concert Fills in for Sick Keyboardist**\
 `Sterling Nasa, a 21-year-old university student, filled in for a keyboard player who had fallen ill during a “La La Land” orchestral performance in Australia.`\
 https://www.nytimes.com/video/world/asia/100000010939017/la-la-land-keyboardist-concert.html
