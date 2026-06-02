@@ -1,3 +1,15 @@
+**Quote of the Day:Trump’s Sway in Primaries May Not Translate to the Midterms**\
+`Quotation of the Day for Tuesday, June 2, 2024.`\
+https://www.nytimes.com/2026/06/02/pageoneplus/quote-of-the-daytrumps-sway-in-primaries-may-not-translate-to-the-midterms.html
+
+**The New Zealand Parakeet Pair That Are Saving Their Species**\
+`There are about 450 orange-fronted parakeets left in the world. Super breeders Nacho and Trixie are doing their best to bolster the population.`\
+https://www.nytimes.com/2026/06/02/world/australia/kakariki-karaka-bird-parakeet-new-zealand-endangered.html
+
+**Corrections: June 2, 2026**\
+`Corrections that appeared in print on Tuesday, June 2, 2026.`\
+https://www.nytimes.com/2026/06/02/pageoneplus/corrections-june-2-2026.html
+
 **Security Council Members Call for Israel to Withdraw From Southern Lebanon**\
 `The U.N. panel met after Israel had threatened to attack southern Beirut. President Trump said later that Israel and Hezbollah had agreed not to attack each other.`\
 https://www.nytimes.com/2026/06/01/world/middleeast/un-security-council-lebanon.html
@@ -91,7 +103,7 @@ https://www.nytimes.com/2026/06/01/us/politics/california-primary-elections-gove
 https://www.nytimes.com/2026/06/01/world/middleeast/trump-iran-israel-hezbollah.html
 
 **Minnesota Republicans Hold Moment of Silence for Derek Chauvin**\
-`Delegates to the Minnesota Republican Party’s convention voted to hold a moment of silent prayer for Derek Chauvin, who was convicted of murdering George Floyd.`\
+`Delegates to the Minnesota Republican Party’s convention voted to hold a moment of silence for Derek Chauvin, who was convicted of murdering George Floyd.`\
 https://www.nytimes.com/2026/06/01/us/republicans-minnesota-derek-chauvin-george-floyd.html
 
 **Trump Backs Off Plans for $1.8 Billion Fund After Backlash**\
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/06/01/arts/television/movies-tv-shows-june-2026-str
 **Oil Prices Jump as Middle East Tensions Build**\
 `Some analysts said the main international oil price, which was up 6 percent on Monday, could climb much higher in the coming weeks if the Strait of Hormuz doesn’t reopen.`\
 https://www.nytimes.com/2026/06/01/business/energy-environment/iran-war-oil-prices.html
-
-**Scott Pelley Accuses CBS News Boss of ‘Murdering’ ‘60 Minutes’**\
-`In an explosive staff meeting, Mr. Pelley, a correspondent for the long-running Sunday news show, blasted Bari Weiss, the CBS editor in chief, and Nick Bilton, the show’s new executive producer.`\
-https://www.nytimes.com/2026/06/01/business/media/cbs-60-minutes-scott-pelley-nick-bilton.html
-
-**Tribeca Festival 25th Anniversary: An Interview With Robert De Niro, Jane Rosenthal, Rebecca Glashow**\
-`Robert De Niro and Jane Rosenthal, who founded the event, and Rebecca Glashow, the new leader of Tribeca Enterprises, reflected on the festival’s legacy and ambitions.`\
-https://www.nytimes.com/2026/06/01/movies/tribeca-festival-25-deniro-rosenthal-glashow.html
-
-**Wise and Not So Wise Tips for Being Old**\
-`Readers respond to a guest essay by Roger Rosenblatt. Also: A fight spectacle at the White House.`\
-https://www.nytimes.com/2026/06/01/opinion/old-elderly.html
 

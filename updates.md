@@ -1,3 +1,19 @@
+**Quote of the Day:Trump’s Sway in Primaries May Not Translate to the Midterms**\
+`Quotation of the Day for Tuesday, June 2, 2024.`\
+https://www.nytimes.com/2026/06/02/pageoneplus/quote-of-the-daytrumps-sway-in-primaries-may-not-translate-to-the-midterms.html
+
+**The New Zealand Parakeet Pair That Are Saving Their Species**\
+`There are about 450 orange-fronted parakeets left in the world. Super breeders Nacho and Trixie are doing their best to bolster the population.`\
+https://www.nytimes.com/2026/06/02/world/australia/kakariki-karaka-bird-parakeet-new-zealand-endangered.html
+
+**Corrections: June 2, 2026**\
+`Corrections that appeared in print on Tuesday, June 2, 2026.`\
+https://www.nytimes.com/2026/06/02/pageoneplus/corrections-june-2-2026.html
+
+**Minnesota Republicans Hold Moment of Silence for Derek Chauvin**\
+`Delegates to the Minnesota Republican Party’s convention voted to hold a moment of silence for Derek Chauvin, who was convicted of murdering George Floyd.`\
+https://www.nytimes.com/2026/06/01/us/republicans-minnesota-derek-chauvin-george-floyd.html
+
 **Security Council Members Call for Israel to Withdraw From Southern Lebanon**\
 `The U.N. panel met after Israel had threatened to attack southern Beirut. President Trump said later that Israel and Hezbollah had agreed not to attack each other.`\
 https://www.nytimes.com/2026/06/01/world/middleeast/un-security-council-lebanon.html
