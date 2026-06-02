@@ -1,3 +1,7 @@
+**North Carolina Officer Charged After Beating of Suspect Captured on Doorbell Video**\
+`While trying to make an arrest, the officer, in Shelby, N.C., punched her repeatedly in the head and body and he continued even after another officer tried to intervene.`\
+https://www.nytimes.com/2026/06/01/us/shelby-police-officer-doorbell-video.html
+
 **What to Know About Serena Williams’s Return to Tennis**\
 `On Monday, Serena Williams, 44, announced she would return to tennis. Ava Wallace, a tennis reporter for The Athletic, dives into what it means for a sport Williams once dominated.`\
 https://www.nytimes.com/video/the-athletic/100000010938460/what-to-know-about-serena-williamss-return-to-tennis.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/01/technology/florida-sues-openai-chatgpt-safety
 **El agente de la CIA detenido con oro trabajó con el segundo al mando del Pentágono**\
 `David Rush, funcionario de la CIA, parece haber tenido contacto por primera vez con Stephen A. Feinberg durante el primer mandato del presidente Trump. Algunos funcionarios dijeron que no eran cercanos.`\
 https://www.nytimes.com/es/2026/06/01/espanol/estados-unidos/cia-agente-oro-pentagono.html
-
-**Azniv Korkejian on Bedouine’s ‘Neon Summer Skin’**\
-`Azniv Korkejian, the recording artist known as Bedouine, turns her own nomadic history and family survival into comforting, classic folk.`\
-https://www.nytimes.com/2026/06/01/arts/music/bedouine-neon-summer-skin.html
 

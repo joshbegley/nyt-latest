@@ -1,3 +1,7 @@
+**North Carolina Officer Charged After Beating of Suspect Captured on Doorbell Video**\
+`While trying to make an arrest, the officer, in Shelby, N.C., punched her repeatedly in the head and body and he continued even after another officer tried to intervene.`\
+https://www.nytimes.com/2026/06/01/us/shelby-police-officer-doorbell-video.html
+
 **What to Know About Serena Williams’s Return to Tennis**\
 `On Monday, Serena Williams, 44, announced she would return to tennis. Ava Wallace, a tennis reporter for The Athletic, dives into what it means for a sport Williams once dominated.`\
 https://www.nytimes.com/video/the-athletic/100000010938460/what-to-know-about-serena-williamss-return-to-tennis.html
