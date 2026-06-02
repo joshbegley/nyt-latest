@@ -1,3 +1,15 @@
+**Inside the Ebola Outbreak**\
+`We discuss the epidemic in the Democratic Republic of Congo.`\
+https://www.nytimes.com/2026/06/02/briefing/inside-the-ebola-outbreak.html
+
+**Was Churchill a Serious Artist? This Exhibition Says, ‘Yes.’**\
+`In the first major British retrospective for over 60 years, a London museum seeks to recast the wartime leader as a painter with emotional depth.`\
+https://www.nytimes.com/2026/06/02/arts/design/winston-churchill-painter-wallace-collection.html
+
+**Ébola: una carrera contra el tiempo**\
+`Un corresponsal del Times está informando desde el epicentro del ébola en la República Democrática del Congo. Esto es lo que ha visto.`\
+https://www.nytimes.com/es/2026/06/02/espanol/mundo/ebola-brote.html
+
 **As A.I. Makes Strides in Mathematics, Mathematicians Urge Caution**\
 `A week after OpenAI made headlines with an A.I.-generated proof, a new “declaration” by 16 experts raises concerns that the technology threatens math as a discipline.`\
 https://www.nytimes.com/2026/06/02/science/ai-mathematics-leiden-declaration.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/video/world/europe/100000010938828/ukraine-kyiv-russia-a
 **La capital mundial de las papas fritas tiene un problema: demasiadas papas**\
 `Bélgica tuvo una cosecha récord justo cuando los aranceles del gobierno de Donald Trump redujeron la demanda estadounidense de papas fritas congeladas y la competencia asiática se intensificó.`\
 https://www.nytimes.com/es/2026/06/02/espanol/negocios/europa-belgica-papas-exceso.html
-
-**Trump Targets Brazil With 25% Tariff, Citing Unfair Trade Practices**\
-`The proposal marks the latest effort by the administration to rebuild its tariff agenda through Section 301 investigations.`\
-https://www.nytimes.com/2026/06/02/business/trump-tariffs-brazil.html
-
-**Trump podría ganar un importante aliado en las próximas elecciones de Colombia**\
-`Abelardo de la Espriella, un candidato de línea dura de la derecha que se enfrenta a un rival de izquierda en una segunda vuelta presidencial, ha prometido aplastar a los narcotraficantes.`\
-https://www.nytimes.com/es/2026/06/02/espanol/america-latina/trump-aliado-elecciones-colombia.html
-
-**Jeffrey Epstein guardó su esperma en un banco. Podría seguir almacenado**\
-`Epstein dejó su esperma en un banco varios años antes de su muerte y dijo que si moría, debía quedar bajo el control de su patrimonio.`\
-https://www.nytimes.com/es/2026/06/02/espanol/jeffrey-epsteins-banco-esperma.html
 
