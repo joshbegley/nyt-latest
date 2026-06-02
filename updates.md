@@ -1,3 +1,7 @@
+**New Proposal Would Allow Administration to Block Grants if They Don’t Support Trump’s Agenda**\
+`A new proposal would allow the administration to block grants if they do not satisfy President Trump’s agenda or support what it calls “anti-American” values.`\
+https://www.nytimes.com/2026/06/02/us/politics/trump-budget-grants-omb-vought.html
+
 **Oriana Lights the Wood-Fired Grill Just in Time for Summer**\
 `A luxury sushi restaurant gets a New York location, Red Beard Coffee & Bakery serves creative riffs on classics and more restaurant news.`\
 https://www.nytimes.com/2026/06/02/dining/nyc-restaurant-news.html
