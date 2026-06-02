@@ -1,3 +1,7 @@
+**Russia Launches Deadly Strikes on Ukraine**\
+`Russian missiles and drones hit Kyiv, the Ukrainian capital, early Tuesday, more than a week after Russia warned of a plan to strike “decision-making centers” in the city.`\
+https://www.nytimes.com/video/world/europe/100000010938828/ukraine-kyiv-russia-attack.html
+
 **La capital mundial de las papas fritas tiene un problema: demasiadas papas**\
 `Bélgica tuvo una cosecha récord justo cuando los aranceles del gobierno de Donald Trump redujeron la demanda estadounidense de papas fritas congeladas y la competencia asiática se intensificó.`\
 https://www.nytimes.com/es/2026/06/02/espanol/negocios/europa-belgica-papas-exceso.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/01/us/politics/trump-drop-weaponization-fund.htm
 **Demonstrators Cannot Be Forced to Take Down ‘86-47’ Flag, Judge Rules**\
 `A federal judge wrote that the phrase, which also led to charges against the former F.B.I. director, James Comey, did not appear to constitute a true threat.`\
 https://www.nytimes.com/2026/06/01/us/politics/demonstrators-8647-trump-judge.html
-
-**Pentagon Bars Reporters From Its Press Office**\
-`Defense Secretary Pete Hegseth has repeatedly curtailed journalists’ access in the Pentagon.`\
-https://www.nytimes.com/2026/06/01/us/politics/pentagon-reporters-hegseth.html
 

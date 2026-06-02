@@ -1,3 +1,7 @@
+**Russia Launches Deadly Strikes on Ukraine**\
+`Russian missiles and drones hit Kyiv, the Ukrainian capital, early Tuesday, more than a week after Russia warned of a plan to strike “decision-making centers” in the city.`\
+https://www.nytimes.com/video/world/europe/100000010938828/ukraine-kyiv-russia-attack.html
+
 **Iran War Live Updates: Israel Appears to Pull Back From Threat to Strike Beirut**\
 `President Trump is pressing Israel not to attack the Lebanese capital. An escalation in Israel’s campaign against Hezbollah could threaten peace talks with Iran.`\
 https://www.nytimes.com/live/2026/06/02/world/iran-war-trump-israel-lebanon
