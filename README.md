@@ -1,3 +1,15 @@
+**Kilauea Spews More Lava, Reaching a Volcanic Milestone**\
+`On Monday, the volcano on Hawaii’s Big Island had a 48th episode of “lava fountaining” in an eruption that began in 2024.`\
+https://www.nytimes.com/2026/06/02/us/kilauea-hawaii-volcano-eruption-record.html
+
+**Kilauea Volcano in Hawaii Breaks Lava Record**\
+`Hawaii’s most active volcano broke a record on Monday, producing the 48th lava fountaining episode of its current eruption.`\
+https://www.nytimes.com/video/us/100000010939911/kilauea-volcano-in-hawaii-breaks-lava-record.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000010940193/29vid-California-Primaries-Mike-Binder-23736.html
+
 **Lo que Irlanda y Alemania pueden enseñarnos sobre la ciudadanía por derecho de nacimiento**\
 `Las investigaciones han demostrado que las políticas más restrictivas pueden mermar el potencial de los niños que nacen y crecen en un país como no ciudadanos.`\
 https://www.nytimes.com/es/2026/06/02/espanol/negocios/irlanda-alemania-ciudadania-derecho-nacimiento.html
@@ -58,13 +70,13 @@ https://www.nytimes.com/es/2026/06/02/espanol/estilos-de-vida/dua-lipa-boda-traj
 `The attack on the vessel, owned by the Mediterranean Shipping Company, underlines the threat to ships even as the U.S. and Iran try to negotiate reopening the Strait of Hormuz.`\
 https://www.nytimes.com/2026/06/02/business/msc-iraq-port-iran-war.html
 
-**Trump Again Refers to Canada as the ’51st State’ Hours Before Trade Talks**\
-`The Canadian trade minister is visiting Washington on Tuesday to meet with the U.S. Trade Representative.`\
-https://www.nytimes.com/2026/06/02/world/canada/trump-canada-us-trade-usmca.html
-
 **Will a Moratorium on Data Centers Pass in New York This Week?**\
 `In the final hectic days of the legislative session, data centers, redistricting and algorithmic pricing vie for New York State lawmakers’ attention.`\
 https://www.nytimes.com/2026/06/02/nyregion/data-centers-redistricting-ny.html
+
+**Trump Again Refers to Canada as the ’51st State’ Hours Before Trade Talks**\
+`The Canadian trade minister is visiting Washington on Tuesday to meet with the U.S. Trade Representative.`\
+https://www.nytimes.com/2026/06/02/world/canada/trump-canada-us-trade-usmca.html
 
 **The Best Movies and TV Shows Coming to Netflix in June**\
 `A World Cup comedy and a new film by Julian Schnabel are among this month’s most promising titles.`\
@@ -177,20 +189,4 @@ https://www.nytimes.com/2026/06/02/business/economy/mellon-kennedy-childrens-hea
 **California Election Live Updates: Primary Battles Could Set Direction for California and Congress**\
 `Tuesday’s nonpartisan primaries will determine which candidates make the fall ballot in consequential races for governor, all 52 of the state’s congressional seats and Los Angeles mayor.`\
 https://www.nytimes.com/live/2026/06/02/us/california-election-primary-governor
-
-**Carney Says Canada Faces a ‘Crisis of Antisemitism’**\
-`Prime Minister Mark Carney’s comments followed calls for action from Jewish organizations and after a government report found that antisemitism had surged in Canada in recent years.`\
-https://www.nytimes.com/2026/06/02/world/canada/carney-antisemitism-toronto-canada.html
-
-**Martin Scorsese Is Embracing A.I.**\
-`In a sign of Hollywood’s softening stance on artificial intelligence, the cinema icon is backing Black Forest Labs, an image and video generation start-up.`\
-https://www.nytimes.com/2026/06/02/business/media/martin-scorsese-artificial-intelligence.html
-
-**Street Style Look of the Week: Managing to Stand Out With Neutrals**\
-`Even amid a bustling Mexican festival, a style peacock managed to stand out in power neutrals.`\
-https://www.nytimes.com/2026/06/02/style/street-style-look-power-neutrals.html
-
-**Battling a Deadly Ebola Outbreak in Eastern Congo**\
-`At the heart of the Ebola outbreak in the Democratic Republic of Congo, health care workers are racing to open new treatment centers and ramp up testing. But after years of war, the deadly virus is just one of many challenges they’re facing.`\
-https://www.nytimes.com/video/world/africa/100000010936755/ebola-virus-outbreak-congo-treatment.html
 
