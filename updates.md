@@ -1,3 +1,19 @@
+**Dallas Whale Mural Artist Wyland Sues FIFA After World Cup Paint-Over**\
+`The legal battle follows weeks of public anger after a nearly 30-year-old downtown landmark was mostly covered up to make way for a World Cup-related project.`\
+https://www.nytimes.com/2026/06/02/us/dallas-whale-mural-wyland-lawsuit-fifa-world-cup-texas.html
+
+**Ballet Tech Gave Them Dance. Now They Give Back.**\
+`Kids Dance, from the New York Public School for Dance, is debuting a work featuring alumni. That’s not the only way former students are involved with the school.`\
+https://www.nytimes.com/2026/06/02/arts/dance/ballet-tech-kids-dance-alumni.html
+
+**Iran Reveals 3-Day Funeral Plan for Ayatollah Khamenei, After Long Delay**\
+`Ceremonies for Ayatollah Ali Khamenei will be held in multiple cities, including Tehran, where authorities expect up to 20 million people to attend, Iranian state media reported.`\
+https://www.nytimes.com/2026/06/02/world/middleeast/ayatollah-khamenei-funeral-iran.html
+
+**California Election Live Updates: Race to Succeed Newsom as Governor Highlights Primary Battles**\
+`Tuesday’s nonpartisan primaries will determine candidates for November. A former Biden cabinet secretary, a one-time Fox News host and a billionaire are vying to replace the term-limited governor, Gavin Newsom.`\
+https://www.nytimes.com/live/2026/06/02/us/california-election-primary-governor
+
 **Carney Says Canada Faces a ‘Crisis of Antisemitism’**\
 `Prime Minister Mark Carney’s comments followed calls for action from Jewish organizations and after a government report found that antisemitism had surged in Canada in recent years.`\
 https://www.nytimes.com/2026/06/02/world/canada/carney-antisemitism-toronto-canada.html

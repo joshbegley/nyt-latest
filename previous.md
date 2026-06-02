@@ -1,5 +1,13 @@
+**Dallas Whale Mural Artist Wyland Sues FIFA After World Cup Paint-Over**\
+`The legal battle follows weeks of public anger after a nearly 30-year-old downtown landmark was mostly covered up to make way for a World Cup-related project.`\
+https://www.nytimes.com/2026/06/02/us/dallas-whale-mural-wyland-lawsuit-fifa-world-cup-texas.html
+
+**Ballet Tech Gave Them Dance. Now They Give Back.**\
+`Kids Dance, from the New York Public School for Dance, is debuting a work featuring alumni. That’s not the only way former students are involved with the school.`\
+https://www.nytimes.com/2026/06/02/arts/dance/ballet-tech-kids-dance-alumni.html
+
 **Iran Reveals 3-Day Funeral Plan for Ayatollah Khamenei, After Long Delay**\
-`Ceremonies for Ayatollah Ali Khaemeni will be held in multiple cities, including Tehran, where authorities expect up to 20 million people to attend, Iranian state media reported.`\
+`Ceremonies for Ayatollah Ali Khamenei will be held in multiple cities, including Tehran, where authorities expect up to 20 million people to attend, Iranian state media reported.`\
 https://www.nytimes.com/2026/06/02/world/middleeast/ayatollah-khamenei-funeral-iran.html
 
 **Police Say Muscatine, Iowa Man Shot 6 Relatives Before Killing Himself**\
@@ -50,7 +58,7 @@ https://www.nytimes.com/2026/06/02/dining/dense-bean-salad.html
 `A Mellon heir transferred the adjacent Connecticut properties, covering about 300 acres, at no cost to Children’s Health Defense last year.`\
 https://www.nytimes.com/2026/06/02/business/economy/mellon-kennedy-childrens-health-defense.html
 
-**California Election Live Updates: Polls Have Opened in Race to Succeed Newsom as Governor**\
+**California Election Live Updates: Race to Succeed Newsom as Governor Highlights Primary Battles**\
 `Tuesday’s nonpartisan primaries will determine candidates for November. A former Biden cabinet secretary, a one-time Fox News host and a billionaire are vying to replace the term-limited governor, Gavin Newsom.`\
 https://www.nytimes.com/live/2026/06/02/us/california-election-primary-governor
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/opinion/100000010932835/ian-bremmer-on-the-risks-a
 **California Primary Elections: What to Watch in the Governor’s Race, L.A. Mayoral Race and More**\
 `The race to replace Gov. Gavin Newsom has been unpredictable for months, while Mayor Karen Bass of Los Angeles is trying to fend off two challengers.`\
 https://www.nytimes.com/2026/06/02/us/elections/california-primary-what-to-watch.html
-
-**What to Watch in Tuesday’s Primary Elections in Iowa, Montana and Beyond**\
-`Democrats have a competitive Senate primary race in Iowa, where the party is hoping to make gains, while a smokejumper is running in a contested House primary in Montana.`\
-https://www.nytimes.com/2026/06/02/us/politics/iowa-montana-primary-election-midterms.html
-
-**‘Amadeus’ and Beyond: Where to Watch Movies About Composers**\
-`The latest adaptation of Peter Shaffer’s “Amadeus” joins a rich lineage of fantastical and extravagant musical biopics.`\
-https://www.nytimes.com/2026/06/02/arts/music/amadeus-composer-movies.html
 
