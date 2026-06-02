@@ -1,3 +1,7 @@
+**As Ebola Spreads, Scientists Race to Find Vaccines and Treatments**\
+`The Bundibugyo virus, a little known type, previously had caused just two small outbreaks. Now it’s at the center of a rapidly widening epidemic in Africa.`\
+https://www.nytimes.com/2026/06/01/science/ebola-vaccines-treatments.html
+
 **Hegseth elimina de una lista de ascensos de la Marina a oficiales negros y mujeres**\
 `Las acciones de Hegseth, que parecen violar las normas del sistema de ascensos, fueron descritas por cuatro funcionarios actuales y antiguos del departamento que hablaron bajo condición de anonimato.`\
 https://www.nytimes.com/es/2026/06/01/espanol/estados-unidos/secretario-defensa-lista-marina-mujeres-oficiales-negros.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/01/movies/cruising-gay-tribeca-documentary.html
 **Judge Rejects Defense Request to Close Hearings in Charlie Kirk Murder Case**\
 `A Utah judge, Tony Graf, ruled against the defense’s effort to bar the public from a preliminary hearing but did restrict access to some evidence.`\
 https://www.nytimes.com/2026/06/01/us/tyler-robinson-charlie-kirk-hearings-media-access.html
-
-**In the ‘Euphoria’ Finale, the HBO Show Goes Out With a Whimper**\
-`In the end, a show defined by its excesses seemed to be straining for a redemption that it didn’t need.`\
-https://www.nytimes.com/2026/06/01/arts/television/euphoria-season-3-finale-rue.html
 

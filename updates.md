@@ -1,3 +1,7 @@
+**As Ebola Spreads, Scientists Race to Find Vaccines and Treatments**\
+`The Bundibugyo virus, a little known type, previously had caused just two small outbreaks. Now it’s at the center of a rapidly widening epidemic in Africa.`\
+https://www.nytimes.com/2026/06/01/science/ebola-vaccines-treatments.html
+
 **Hegseth elimina de una lista de ascensos de la Marina a oficiales negros y mujeres**\
 `Las acciones de Hegseth, que parecen violar las normas del sistema de ascensos, fueron descritas por cuatro funcionarios actuales y antiguos del departamento que hablaron bajo condición de anonimato.`\
 https://www.nytimes.com/es/2026/06/01/espanol/estados-unidos/secretario-defensa-lista-marina-mujeres-oficiales-negros.html
