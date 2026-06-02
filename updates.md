@@ -1,3 +1,15 @@
+**Inside the Ebola Outbreak**\
+`We discuss the epidemic in the Democratic Republic of Congo.`\
+https://www.nytimes.com/2026/06/02/briefing/inside-the-ebola-outbreak.html
+
+**Was Churchill a Serious Artist? This Exhibition Says, ‘Yes.’**\
+`In the first major British retrospective for over 60 years, a London museum seeks to recast the wartime leader as a painter with emotional depth.`\
+https://www.nytimes.com/2026/06/02/arts/design/winston-churchill-painter-wallace-collection.html
+
+**Ébola: una carrera contra el tiempo**\
+`Un corresponsal del Times está informando desde el epicentro del ébola en la República Democrática del Congo. Esto es lo que ha visto.`\
+https://www.nytimes.com/es/2026/06/02/espanol/mundo/ebola-brote.html
+
 **As A.I. Makes Strides in Mathematics, Mathematicians Urge Caution**\
 `A week after OpenAI made headlines with an A.I.-generated proof, a new “declaration” by 16 experts raises concerns that the technology threatens math as a discipline.`\
 https://www.nytimes.com/2026/06/02/science/ai-mathematics-leiden-declaration.html
