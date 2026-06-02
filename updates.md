@@ -1,3 +1,11 @@
+**MSC Ship Is Struck by Two Projectiles in Iraqi Port**\
+`The attack on the vessel, owned by the Mediterranean Shipping Company, underlines the threat to ships even as the U.S. and Iran try to negotiate reopening the Strait of Hormuz.`\
+https://www.nytimes.com/2026/06/02/business/msc-iraq-port-iran-war.html
+
+**Bombs Raining Down on Ukraine Can’t Hide Signs of Russia’s Faltering War**\
+`The war has not been going the Kremlin’s way, with battleground losses and growing casualties. With fiercer strikes, Moscow hopes to gain a better position for negotiations.`\
+https://www.nytimes.com/2026/06/02/world/europe/ukraine-russia-war-strikes.html
+
 **Canada-U.S. Trade Visit Starts With Another Trump ‘51st State’ Post**\
 `The Canadian trade minister is visiting Washington on Tuesday to meet with the U.S. Trade Representative.`\
 https://www.nytimes.com/2026/06/02/world/canada/trump-canada-us-trade-usmca.html

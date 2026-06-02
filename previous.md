@@ -1,3 +1,7 @@
+**MSC Ship Is Struck by Two Projectiles in Iraqi Port**\
+`The attack on the vessel, owned by the Mediterranean Shipping Company, underlines the threat to ships even as the U.S. and Iran try to negotiate reopening the Strait of Hormuz.`\
+https://www.nytimes.com/2026/06/02/business/msc-iraq-port-iran-war.html
+
 **Canada-U.S. Trade Visit Starts With Another Trump ‘51st State’ Post**\
 `The Canadian trade minister is visiting Washington on Tuesday to meet with the U.S. Trade Representative.`\
 https://www.nytimes.com/2026/06/02/world/canada/trump-canada-us-trade-usmca.html
@@ -146,8 +150,8 @@ https://www.nytimes.com/2026/06/02/world/africa/kenya-ebola-us-quarantine-unit-c
 `The secretary of state has played a key role in the Iran deliberations, as well as in U.S. policy toward Cuba.`\
 https://www.nytimes.com/2026/06/02/us/politics/marco-rubio-senate-budget-iran-cuba.html
 
-**Russia Is Showing Signs of Weakness in Ukraine. So It Hits Harder.**\
-`The war has not been going the Kremlin’s way, with battleground losses and mounting casualties. With fiercer strikes, Moscow hopes to gain a better position for negotiations.`\
+**Bombs Raining Down on Ukraine Can’t Hide Signs of Russia’s Faltering War**\
+`The war has not been going the Kremlin’s way, with battleground losses and growing casualties. With fiercer strikes, Moscow hopes to gain a better position for negotiations.`\
 https://www.nytimes.com/2026/06/02/world/europe/ukraine-russia-war-strikes.html
 
 **Meta Expands Safety Features for Teenagers**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/02/crosswords/strands-sidekick-822.html
 **Today’s Wordle Hints for June 3, 2026**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, June 3, 2026.`\
 https://www.nytimes.com/2026/06/02/crosswords/wordle-review-1810.html
-
-**Inside Mamdani’s N.Y.C. Sports Equinox**\
-`Pablo visits the mayor of New York to discuss Knicks joy, Arsenal tears, hair loss, Trump and more.`\
-https://www.nytimes.com/2026/06/02/podcasts/inside-mamdanis-nyc-sports-equinox.html
 
