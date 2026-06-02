@@ -1,3 +1,15 @@
+**New Federal Guidelines Threaten Almost Half of Graduate Arts Programs**\
+`Many musicians, filmmakers and artists earn less than the Education Department’s proposed guidelines for alumni, imperiling federal aid for students in those programs.`\
+https://www.nytimes.com/2026/06/02/arts/design/education-department-earnings-salary.html
+
+**Netanyahu’s Critics Accuse Him of Running Israel as a U.S. ‘Vassal State’**\
+`Critics pounced on the Israeli prime minister after President Trump claimed on social media he had persuaded him to call off “a major raid” on Hezbollah in Beirut.`\
+https://www.nytimes.com/2026/06/02/world/middleeast/netanyahu-criticism-beirut-attack-trump.html
+
+**‘La La Land’ Orchestral Performance Saved by Keyboardist in the Audience**\
+`After a musician fell ill during a live performance of the score from “La La Land,” the composer Justin Hurwitz asked for a sight reader. A 21-year-old student stepped up.`\
+https://www.nytimes.com/2026/06/02/world/australia/la-la-land-sydney-concert-audience-member.html
+
 **Knicks Fans Want ’90s Tees. Pay Very 2026 Prices.**\
 `Plus: A new Jay-Z look, the onset of all-black summer and a new gig for an ex-Marni designer`\
 https://www.nytimes.com/2026/06/02/style/knicks-90s-merch-nostalgia.html

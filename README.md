@@ -1,3 +1,7 @@
+**Congress to Consider Restricting How the Military Uses A.I.**\
+`One measure would codify rules tech companies have requested, including a ban on using artificial intelligence for domestic surveillance.`\
+https://www.nytimes.com/2026/06/02/us/politics/military-ai-laws-congress.html
+
 **New Federal Guidelines Threaten Almost Half of Graduate Arts Programs**\
 `Many musicians, filmmakers and artists earn less than the Education Department’s proposed guidelines for alumni, imperiling federal aid for students in those programs.`\
 https://www.nytimes.com/2026/06/02/arts/design/education-department-earnings-salary.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/02/us/pattie-gonia-patagonia-trademark-lawsuit.h
 **Who Is the Baklava Guy at the Knicks Games?**\
 `In city parks, at Phish shows and outside Madison Square Garden, a nomadic salesman builds his brand, one pistachio-laden wedge at a time.`\
 https://www.nytimes.com/2026/06/02/dining/good-baklava-ron-donk-knicks-playoffs.html
-
-**Instead of the AirTrain, an Air Taxi to the Airport**\
-`Joby Aviation is testing an electric-powered aircraft that can travel from Manhattan to J.F.K. in 10 minutes.`\
-https://www.nytimes.com/2026/06/02/nyregion/electric-air-taxi-airport.html
 

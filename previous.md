@@ -1,8 +1,12 @@
+**New Federal Guidelines Threaten Almost Half of Graduate Arts Programs**\
+`Many musicians, filmmakers and artists earn less than the Education Department’s proposed guidelines for alumni, imperiling federal aid for students in those programs.`\
+https://www.nytimes.com/2026/06/02/arts/design/education-department-earnings-salary.html
+
 **Knicks Fans Want ’90s Tees. Pay Very 2026 Prices.**\
 `Plus: A new Jay-Z look, the onset of all-black summer and a new gig for an ex-Marni designer`\
 https://www.nytimes.com/2026/06/02/style/knicks-90s-merch-nostalgia.html
 
-**Netanyahu’s Critics Accuse Him of Heading a U.S. ‘Vassal State’**\
+**Netanyahu’s Critics Accuse Him of Running Israel as a U.S. ‘Vassal State’**\
 `Critics pounced on the Israeli prime minister after President Trump claimed on social media he had persuaded him to call off “a major raid” on Hezbollah in Beirut.`\
 https://www.nytimes.com/2026/06/02/world/middleeast/netanyahu-criticism-beirut-attack-trump.html
 
@@ -31,7 +35,7 @@ https://www.nytimes.com/2026/06/02/us/muscatine-iowa-shooting-family.html
 https://www.nytimes.com/es/2026/06/02/espanol/mundo/rusia-ataca-ucrania-kiev.html
 
 **‘La La Land’ Orchestral Performance Saved by Keyboardist in the Audience**\
-`After a musician fell ill during a live performance of the score from ‘La La Land,’ the composer Justin Hurwitz asked for a sight reader. A 21-year-old student stepped up.`\
+`After a musician fell ill during a live performance of the score from “La La Land,” the composer Justin Hurwitz asked for a sight reader. A 21-year-old student stepped up.`\
 https://www.nytimes.com/2026/06/02/world/australia/la-la-land-sydney-concert-audience-member.html
 
 **Oriana Lights the Wood-Fired Grill Just in Time for Summer**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/02/dining/good-baklava-ron-donk-knicks-playoffs.
 **Instead of the AirTrain, an Air Taxi to the Airport**\
 `Joby Aviation is testing an electric-powered aircraft that can travel from Manhattan to J.F.K. in 10 minutes.`\
 https://www.nytimes.com/2026/06/02/nyregion/electric-air-taxi-airport.html
-
-**17 Plays (and 3 Festivals) to Jazz Up Your June**\
-`Billy Porter, Wayne Brady, Sting and Suzan-Lori Parks are all slated to star on Off Broadway stages this month.`\
-https://www.nytimes.com/2026/06/02/theater/plays-and-festivals-jazz-up-june.html
 
