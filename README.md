@@ -1,3 +1,7 @@
+**Knicks Fans Want ’90s Tees. Pay Very 2026 Prices.**\
+`Plus: A new Jay-Z look, the onset of all-black summer and a new gig for an ex-Marni designer`\
+https://www.nytimes.com/2026/06/02/style/knicks-90s-merch-nostalgia.html
+
 **Netanyahu’s Critics Accuse Him of Heading a U.S. ‘Vassal State’**\
 `Critics pounced on the Israeli prime minister after President Trump claimed on social media he had persuaded him to call off “a major raid” on Hezbollah in Beirut.`\
 https://www.nytimes.com/2026/06/02/world/middleeast/netanyahu-criticism-beirut-attack-trump.html
@@ -67,7 +71,7 @@ https://www.nytimes.com/2026/06/02/dining/dense-bean-salad.html
 https://www.nytimes.com/2026/06/02/business/economy/mellon-kennedy-childrens-health-defense.html
 
 **California Election Live Updates: Race to Succeed Newsom as Governor Highlights Primary Battles**\
-`Tuesday’s nonpartisan primaries will determine candidates for November. A former Biden cabinet secretary, a one-time Fox News host and a billionaire are vying to replace the term-limited governor, Gavin Newsom.`\
+`Tuesday’s nonpartisan primaries will determine candidates for November. A former Biden cabinet secretary, a onetime Fox News host and a billionaire are vying to replace the term-limited governor, Gavin Newsom.`\
 https://www.nytimes.com/live/2026/06/02/us/california-election-primary-governor
 
 **Carney Says Canada Faces a ‘Crisis of Antisemitism’**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/02/nyregion/electric-air-taxi-airport.html
 **17 Plays (and 3 Festivals) to Jazz Up Your June**\
 `Billy Porter, Wayne Brady, Sting and Suzan-Lori Parks are all slated to star on Off Broadway stages this month.`\
 https://www.nytimes.com/2026/06/02/theater/plays-and-festivals-jazz-up-june.html
-
-**Solve the June Bonus Puzzle**\
-`This month’s drag-themed puzzle was co-constructed by Bianca Del Rio, a stand-up comic and performance artist.`\
-https://www.nytimes.com/2026/06/02/crosswords/bonus-puzzle-drag.html
 
