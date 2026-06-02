@@ -1,3 +1,7 @@
+**¿Se pueden usar calcetines con sandalias?**\
+`Una profesora se pregunta sobre las normas de etiqueta del calzado contemporáneo.`\
+https://www.nytimes.com/es/2026/06/02/espanol/estilos-de-vida/calcetines-sandalias.html
+
 **Quote of the Day:Trump’s Sway in Primaries May Not Translate to the Midterms**\
 `Quotation of the Day for Tuesday, June 2, 2024.`\
 https://www.nytimes.com/2026/06/02/pageoneplus/quote-of-the-daytrumps-sway-in-primaries-may-not-translate-to-the-midterms.html
