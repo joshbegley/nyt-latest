@@ -1,3 +1,11 @@
+**Russia Launches Deadly Strikes on Ukraine**\
+`Missiles and drones struck the cities of Kyiv and Dnipro, Ukrainian officials said. At least 10 people were killed.`\
+https://www.nytimes.com/2026/06/02/world/europe/ukraine-war-russia-kyiv-attack.html
+
+**Late Night Updates America on the Lineup for Its 250th Birthday Bash**\
+`“Instead of music, the entertainment will be an 80-year-old man yelling about windmills,” Jimmy Kimmel said after President Trump said he would headline a summer concert series.`\
+https://www.nytimes.com/2026/06/02/arts/television/late-night-trump-freedom-250-concerts.html
+
 **El movimiento de Alberta para separarse de Canadá llega a las urnas**\
 `En octubre, los habitantes de Alberta podrán decidir si quieren permanecer en Canadá o celebrar un referendo para separarse. ¿Resolverá el asunto o profundizará la división?`\
 https://www.nytimes.com/es/2026/06/02/espanol/mundo/canada-alberta-separacion-voto.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/world/asia/100000010937322/myanmar-explosion-kaung
 **Hezbollah Ally Says the Iran-Backed Group Wants a New Truce With Israel**\
 `In an interview with The Times, Nabih Berri, an influential Lebanese lawmaker close to Hezbollah, called on President Trump to broker a new cease-fire.`\
 https://www.nytimes.com/2026/06/01/world/middleeast/hezbollah-israel-truce.html
-
-**Dua Lipa y Callum Turner se casan en Londres**\
-`El Old Marylebone Town Hall, uno de los lugares más concurridos del Reino Unido para celebrar bodas, ha sido el escenario de las nupcias de estrellas como Sylvester Stallone, Paul McCartney y Lena Dunham.`\
-https://www.nytimes.com/es/2026/06/01/espanol/cultura/dua-lipa-callum-turner-se-casan-londres.html
-
-**I.R.A. Rebates for Appliance Swaps Could Be Phased Out**\
-`New guidance from the Energy Department would prevent people from receiving rebates after making such swaps.`\
-https://www.nytimes.com/2026/06/01/climate/energy-rebates-home-appliances.html
 
