@@ -1,3 +1,7 @@
+**Toddler Dies After Bouncy Castle Is Lofted by Harsh Winds in Montreal**\
+`Severe thunderstorms lashed an annual church party, sending airborne an inflatable toy often found at outdoor parties, paramedics said.`\
+https://www.nytimes.com/2026/06/02/world/canada/bouncy-castle-child-montreal.html
+
 **Iowa U.S. Senate Primary 2026: Live Election Results, Turek vs. Wahls**\
 `Get live results and maps from the 2026 Iowa primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-iowa-us-senate-primary.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/02/style/knicks-90s-merch-nostalgia.html
 **Netanyahu’s Critics Accuse Him of Running Israel as a U.S. ‘Vassal State’**\
 `Critics pounced on the Israeli prime minister after President Trump claimed on social media he had persuaded him to call off “a major raid” on Hezbollah in Beirut.`\
 https://www.nytimes.com/2026/06/02/world/middleeast/netanyahu-criticism-beirut-attack-trump.html
-
-**Today, In Short**\
-`Dua Lipa. Serena Williams. And sleepy fish.`\
-https://www.nytimes.com/2026/06/02/briefing/today-in-short.html
 
 **California Election Live Updates: Primary Battles Could Set Direction for California and Congress**\
 `Tuesday’s nonpartisan primaries will determine which candidates make the fall ballot in consequential races for governor, all 52 of the state’s congressional seats and Los Angeles mayor.`\

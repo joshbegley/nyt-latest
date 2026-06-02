@@ -1,3 +1,7 @@
+**Toddler Dies After Bouncy Castle Is Lofted by Harsh Winds in Montreal**\
+`Severe thunderstorms lashed an annual church party, sending airborne an inflatable toy often found at outdoor parties, paramedics said.`\
+https://www.nytimes.com/2026/06/02/world/canada/bouncy-castle-child-montreal.html
+
 **Iowa U.S. Senate Primary 2026: Live Election Results, Turek vs. Wahls**\
 `Get live results and maps from the 2026 Iowa primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-iowa-us-senate-primary.html
