@@ -1,3 +1,19 @@
+**Iowa U.S. Senate Primary 2026: Live Election Results, Turek vs. Wahls**\
+`Get live results and maps from the 2026 Iowa primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-iowa-us-senate-primary.html
+
+**When Trump Talks About Victims of ‘Weaponization,’ Who Is He Talking About?**\
+`The president has used the term to refer to a number of people who had been charged with or convicted of financial or political crimes — and who, in many cases, he’s said remind him of himself.`\
+https://www.nytimes.com/interactive/2026/06/02/us/trump-weaponization-political-victims-biden.html
+
+**Live Election Results 2026: Key Races on June 2**\
+`See results and maps from key races in the June 2 primaries.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-key-races-june-2.html
+
+**Kenyans Protest Plan for U.S. Ebola Quarantine Unit**\
+`After days of protests, Kenya’s high court effectively delayed the Trump administration’s plan to send American citizens exposed to the Ebola virus to a quarantine unit at Laikipia Air Base in central Kenya.`\
+https://www.nytimes.com/video/world/africa/100000010940013/ebola-quarantine-kenya-us.html
+
 **Why the U.S.-Iran Negotiations Are Taking So Long**\
 `As negotiations to end the war in Iran drag on, our reporter David E. Sanger describes the factors that are complicating any agreement.`\
 https://www.nytimes.com/video/us/100000010937785/why-the-us-iran-negotiations-are-taking-so-long.html
