@@ -43,7 +43,7 @@ https://www.nytimes.com/video/us/100000010937785/why-the-us-iran-negotiations-ar
 https://www.nytimes.com/2026/06/02/us/politics/rubio-kennedy-vaccines-gavi.html
 
 **‘Did I Have a Choice?’ In New Jersey, Kean Voters Explain Themselves.**\
-`Some Republicans outside polling sites acknowledged how strange it felt to cast a ballot for Representative Thomas Kean Jr., who has not been seen in public for months.`\
+`Some Republicans acknowledged how strange it felt to vote for Representative Thomas Kean Jr., who has not been seen for months. Mr. Kean issued a statement promising to be transparent about his situation.`\
 https://www.nytimes.com/2026/06/02/nyregion/thomas-kean-voters-new-jersey.html
 
 ****\
