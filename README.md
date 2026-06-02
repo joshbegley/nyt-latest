@@ -1,3 +1,11 @@
+**Stephen Curry and Li-Ning: What to Know About N.B.A. Star’s Deal With Chinese Sneaker Company**\
+`The agreement, which includes plans for sportswear and athleisure products, and stores across the United States and China, is the latest example of an N.B.A. star signing with a Chinese brand.`\
+https://www.nytimes.com/2026/06/02/world/asia/stephen-curry-li-ning-shoe-deal-china.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/elections/100000010939511/02vid-cali-voters-91871.html
+
 **In Her Memoir, Jill Biden Is a Watchful Spouse Who Didn’t Always Speak Up**\
 `The former first lady’s new book reflects an insular White House where loyalty was prized and President Joseph R. Biden Jr.’s feelings were prioritized over health concerns.`\
 https://www.nytimes.com/2026/06/02/us/politics/jill-biden-joe-biden-memoir-health-age.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/es/2026/06/02/espanol/america-latina/perro-caramelo-bras
 **El fuego de la estupidez no tiene contención**\
 `Pareciera que hemos olvidado más o menos todo lo que la historia nos enseñó.`\
 https://www.nytimes.com/es/2026/06/02/espanol/opinion/olvidar-historia.html
-
-**Elon Musk Laid Out 602 Goals. We Counted How Many He Hit.**\
-`The billionaire has stated many plans for his businesses, but has delivered only some of what he said he would, when he said he would, according to a Times analysis.`\
-https://www.nytimes.com/interactive/2026/06/02/technology/elon-musk-promises-spacex-ipo.html
-
-**Movie Highlights at the Tribeca Festival, Now 25**\
-`The standouts from this year’s lineup include films about a cultlike theater troupe and an experimental dance residency.`\
-https://www.nytimes.com/2026/06/02/movies/tribeca-festival-highlights.html
 
