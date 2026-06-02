@@ -1,3 +1,7 @@
+**California Primary Elections: What to Watch in the Governor’s Race, L.A. Mayoral Race and More**\
+`The race to replace Gov. Gavin Newsom has been unpredictable for months, while Mayor Karen Bass of Los Angeles is trying to fend off two challengers.`\
+https://www.nytimes.com/2026/06/02/us/elections/california-primary-what-to-watch.html
+
 **What a Short-Seller’s Conviction Might Mean for Wall St.**\
 `A federal jury found Andrew Left, who rose to fame by betting against companies, guilty of securities fraud. Other short-sellers are worried.`\
 https://www.nytimes.com/2026/06/02/business/dealbook/andrew-left-convicted-fraud.html
