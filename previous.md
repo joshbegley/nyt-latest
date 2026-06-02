@@ -1,3 +1,7 @@
+**Tom Steyer: 5 Facts About the Candidate for California Governor**\
+`He is a billionaire who appeals to many progressive groups in California.`\
+https://www.nytimes.com/2026/06/02/us/politics/tom-steyer-california-governor.html
+
 **How a Republican Switcheroo Stifled Competition to Succeed Steve Daines in Montana**\
 `Senator Steve Daines withdrew his candidacy for re-election moments before the filing deadline, and then endorsed Kurt Alme in what appeared to be a coordinated swap to preclude competition.`\
 https://www.nytimes.com/2026/06/02/us/politics/montana-republican-senate-primary-daines-alme.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-california-us-hous
 **California 37th Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 California primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-37-primary.html
-
-**California 24th Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 California primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-24-primary.html
 
