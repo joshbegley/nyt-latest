@@ -1,3 +1,15 @@
+**Iowa Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Iowa primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-iowa-primary.html
+
+**Albanians Protest Luxury Resort Linked to Kushner**\
+`In Albania, one of the poorest countries in Europe, crowds gathered to protest a $1.4 billion luxury hotel complex on the coast of the Adriatic Sea. Jared Kushner, President Trump’s son-in-law, is one of several investors in the project.`\
+https://www.nytimes.com/video/world/europe/100000010940326/albanians-protest-luxury-resort-linked-to-kushner.html
+
+**Trump Again Refers to Canada as the ’51st State’ Hours Before Trade Talks**\
+`The Canadian trade minister met with the U.S. Trade Representative on Tuesday.`\
+https://www.nytimes.com/2026/06/02/world/canada/trump-canada-us-trade-usmca.html
+
 **I.R.S. Must Still Drop Audits of the Trumps, Blanche Says**\
 `The acting attorney general said the administration was preserving a broad order shielding the president and his family from audits, which critics suggest is unprecedented in scope.`\
 https://www.nytimes.com/2026/06/02/us/politics/trump-irs-settlement.html

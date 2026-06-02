@@ -1,3 +1,15 @@
+**New Jersey Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New Jersey primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-jersey-primary.html
+
+**Why We Might Not Know California’s Election Results for Days**\
+`Polls will close at 8 p.m. local time, but California’s meticulous review process and heavy reliance on mail ballots mean races may not be called quickly.`\
+https://www.nytimes.com/2026/06/02/us/politics/california-election-delayed-results.html
+
+**Montana Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Montana primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-montana-primary.html
+
 **Iowa Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Iowa primary elections.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-iowa-primary.html
@@ -6,8 +18,8 @@ https://www.nytimes.com/interactive/2026/us/elections/results-iowa-primary.html
 `In Albania, one of the poorest countries in Europe, crowds gathered to protest a $1.4 billion luxury hotel complex on the coast of the Adriatic Sea. Jared Kushner, President Trump’s son-in-law, is one of several investors in the project.`\
 https://www.nytimes.com/video/world/europe/100000010940326/albanians-protest-luxury-resort-linked-to-kushner.html
 
-**I.R.S. Must Still Drop Audits of the Trumps, Blanche Says**\
-`The acting attorney general said the administration was preserving a broad order shielding the president and his family from audits, which critics suggest is unprecedented in scope.`\
+**Order Shielding Trump Family From Audits Will Remain, Blanche Says**\
+`The acting attorney general said the administration was preserving a broad order shielding the president and his family from audits, despite scraping a related $1.8 billion fund.`\
 https://www.nytimes.com/2026/06/02/us/politics/trump-irs-settlement.html
 
 **Trump’s $1.8 Billion Fund Is ‘Not Moving Forward’**\
@@ -18,183 +30,171 @@ https://www.nytimes.com/2026/06/02/briefing/trump-fund-primary-elections.html
 `The shooting drew national attention and roiled the community in South Carolina.`\
 https://www.nytimes.com/2026/06/02/us/rick-chow-not-guilty-murder-south-carolina.html
 
+**South Dakota Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 South Dakota primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-south-dakota-primary.html
+
+**New Mexico Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New Mexico primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-mexico-primary.html
+
 **Sheet-Pan Chicken With Potatoes, Arugula and Garlic Yogurt**\
 `Your typical sheet-pan chicken recipe roasts everything together on a pan at once. This version from Cooking’s Melissa Clark pairs potatoes with the poultry, and tops everything off with fresh herbs and arugula, making it a true one-pan meal, salad included.`\
 https://www.nytimes.com/video/dining/100000010940482/sheet-pan-chicken-with-potatoes-arugula-and-garlic-yogurt.html
 
-**In Cedar Rapids, a Voter Expects — and Receives — Personal Attention**\
-`A Democratic voter was leaning toward Zach Wahls in the Senate primary. A visit from Josh Turek made her think twice. Then came a call from Mr. Wahls.`\
-https://www.nytimes.com/2026/06/02/us/politics/turek-wahls-voter-iowa-senate-primary.html
-
-**MoMA Names Makeda Best as New Photography Chief**\
-`Makeda Best, a deputy director of the Oakland Museum of California and a photographer, will lead the department.`\
-https://www.nytimes.com/2026/06/02/arts/design/moma-photography-chief.html
-
-**Election Live Updates: Iowans Pick Candidates for Key Senate Race as Six States Hold Primaries**\
-`Democrats see an opportunity in deep-red Iowa, where Senator Joni Ernst is vacating her seat. Closely watched contests are also being held in New Jersey, Montana and South Dakota.`\
-https://www.nytimes.com/live/2026/06/02/us/primary-elections-iowa-montana-nj
-
-**Graham Platner, Ken Paxton and the Amoral Center**\
-`Why a morally divided country might find sleazy candidates reassuring.`\
-https://www.nytimes.com/2026/06/02/opinion/graham-platner-morality-sexting.html
-
-**Hezbollah’s Drones**\
-`The militant group is looking more capable now than it did when Israeli forces marched into Lebanon three months ago. Here’s how it gained an edge.`\
-https://www.nytimes.com/2026/06/02/world/lebanon-israel-hezbollah-iran-ukraine-russia.html
-
-**What to Know About South Korea’s Elections**\
-`President Lee Jae Myung came to office after his predecessor, a conservative, was ousted for imposing martial law. Now Mr. Lee’s popularity is projected to ripple across other contests.`\
-https://www.nytimes.com/2026/06/02/world/asia/south-korea-election.html
-
-**Toddler Dies After Bouncy Castle Is Lofted by Harsh Winds in Montreal**\
-`Severe thunderstorms lashed an annual church party, sending airborne an inflatable toy often found at outdoor parties, paramedics said.`\
-https://www.nytimes.com/2026/06/02/world/canada/bouncy-castle-child-montreal.html
-
-**Iowa U.S. Senate Primary 2026: Live Election Results, Turek vs. Wahls**\
-`Get live results and maps from the 2026 Iowa primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-iowa-us-senate-primary.html
-
-**When Trump Talks About Victims of ‘Weaponization,’ Who Is He Talking About?**\
-`The president has used the term to refer to a number of people who had been charged with or convicted of financial or political crimes — and who, in many cases, he’s said remind him of himself.`\
-https://www.nytimes.com/interactive/2026/06/02/us/trump-weaponization-political-victims-biden.html
-
-**Live Election Results 2026: Key Races on June 2**\
-`See results and maps from key races in the June 2 primaries.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-key-races-june-2.html
-
-**Kenyans Protest Plan for U.S. Ebola Quarantine Unit**\
-`After days of protests, Kenya’s high court effectively delayed the Trump administration’s plan to send American citizens exposed to the Ebola virus to a quarantine unit at Laikipia Air Base in central Kenya.`\
-https://www.nytimes.com/video/world/africa/100000010940013/ebola-quarantine-kenya-us.html
-
-**Why the U.S.-Iran Negotiations Are Taking So Long**\
-`As negotiations to end the war in Iran drag on, our reporter David E. Sanger describes the factors that are complicating any agreement.`\
-https://www.nytimes.com/video/us/100000010937785/why-the-us-iran-negotiations-are-taking-so-long.html
-
-**Rubio Suggests U.S. Return to Global Vaccine Program in Rebuke of Kennedy**\
-`Secretary of State Marco Rubio indicated in pointed testimony to senators that he was reclaiming control of the U.S. relationship with Gavi, an international vaccine alliance.`\
-https://www.nytimes.com/2026/06/02/us/politics/rubio-kennedy-vaccines-gavi.html
-
-**‘Did I Have a Choice?’ In New Jersey, Kean Voters Explain Themselves.**\
-`Some Republicans acknowledged how strange it felt to vote for Representative Thomas Kean Jr., who has not been seen for months. Mr. Kean issued a statement promising to be transparent about his situation.`\
-https://www.nytimes.com/2026/06/02/nyregion/thomas-kean-voters-new-jersey.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/politics/100000010940596/29vid-California-Primaries-Hali-Rodriguez-92872.html
-
-**Democrats Pledge to Fight Trump’s Termination of Ocean Monitoring Observatories**\
-`The Trump administration is dismantling a $368 million deep-ocean observation system that monitors marine ecosystems and the effects of climate change.`\
-https://www.nytimes.com/2026/06/02/climate/trump-ocean-monitors-climate-research.html
-
-**Marcia Lucas, Oscar-Winning ‘Star Wars’ Editor, Dies at 80**\
-`A close collaborator with George Lucas, her first husband, she was “the warmth and the heart” of his early films, the actor Mark Hamill said.`\
-https://www.nytimes.com/2026/06/02/movies/marcia-lucas-dead.html
-
-**Immigration Bill Teeters as G.O.P. Awaits Clarity on Trump’s Fund**\
-`The top Senate Republican said he had been assured that the acting attorney general would make a ‘very definitive, very clear’ statement on the fund at a House hearing.`\
-https://www.nytimes.com/2026/06/02/us/politics/trump-fund-thune.html
-
-**Trans Minors Sue to Stop Justice Department Access to Medical Records**\
-`The Trump administration says it is investigating off-label medication use and fraudulent billing. Families say the inquiry is a new way to press hospitals to end the care.`\
-https://www.nytimes.com/2026/06/02/us/transgender-minors-medical-records-lawsuits.html
-
-**The Iran War Has Led to Months of Global Shortages**\
-`Three months after the Strait of Hormuz was first closed, many countries are experiencing shortages of key goods.`\
-https://www.nytimes.com/2026/06/02/climate/iran-warn-global-shortages.html
-
-**Tucker Carlson’s Big Bet**\
-`Is the Republican Party fracturing? The Opinion columnist Ezra Klein and the Republican strategist Liam Donovan dissect the growing divide between traditional conservatives and right-wing media figures like Tucker Carlson.`\
-https://www.nytimes.com/video/opinion/100000010928427/tucker-carlsons-big-bet.html
-
-**Murder of Henry Nowak, Who Was Handcuffed by Police While Dying, Fuels Outrage in UK**\
-`The authorities in Britain are investigating police officers who handcuffed a student, Henry Nowak, while he was dying, in a case that been increasingly politicized.`\
-https://www.nytimes.com/2026/06/02/world/europe/henry-nowak-murder-uk-stabbing.html
-
-**Protests Grow in Albania Over Kushner-Linked Project**\
-`Plans for luxury resorts on the Adriatic Sea have long worried environmentalists. The developments are now a flashpoint for broader frustrations with the government.`\
-https://www.nytimes.com/2026/06/02/world/europe/albania-kushner-protests-hotel.html
-
-**Kilauea Spews More Lava, Reaching a Volcanic Milestone**\
-`On Monday, the volcano on Hawaii’s Big Island had a 48th episode of “lava fountaining” in an eruption that began in 2024.`\
-https://www.nytimes.com/2026/06/02/us/kilauea-hawaii-volcano-eruption-record.html
-
-**Kilauea Volcano in Hawaii Breaks Lava Record**\
-`Hawaii’s most active volcano broke a record on Monday, producing the 48th lava fountaining episode of its current eruption.`\
-https://www.nytimes.com/video/us/100000010939911/kilauea-volcano-in-hawaii-breaks-lava-record.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/politics/100000010940193/29vid-California-Primaries-Mike-Binder-23736.html
-
-**Lo que Irlanda y Alemania pueden enseñarnos sobre la ciudadanía por derecho de nacimiento**\
-`Las investigaciones han demostrado que las políticas más restrictivas pueden mermar el potencial de los niños que nacen y crecen en un país como no ciudadanos.`\
-https://www.nytimes.com/es/2026/06/02/espanol/negocios/irlanda-alemania-ciudadania-derecho-nacimiento.html
-
-**California Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 California primary elections.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-california-primary.html
-
-**California Governor Primary 2026: Live Election Results**\
+**California Eighth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 California primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-california-governor-primary.html
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-8-primary.html
 
-**Los Angeles Mayor 2026: Live Election Results**\
+**California 50th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-50-primary.html
+
+**California 44th Congressional District Primary 2026: Live Election Results, Barragan vs. Angel**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-44-primary.html
+
+**California Third Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-3-primary.html
+
+**California 51st Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-51-primary.html
+
+**California 42nd Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-42-primary.html
+
+**California 41st Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-41-primary.html
+
+**California 43rd Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-43-primary.html
+
+**California Ninth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-9-primary.html
+
+**California 38th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-38-primary.html
+
+**California Fourth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-4-primary.html
+
+**California 39th Congressional District Primary 2026: Live Election Results, Takano vs. Manos**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-39-primary.html
+
+**California Sixth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-6-primary.html
+
+**California 40th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-40-primary.html
+
+**California 47th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-47-primary.html
+
+**California Seventh Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-7-primary.html
+
+**California Fifth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-5-primary.html
+
+**California 48th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-48-primary.html
+
+**California 46th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-46-primary.html
+
+**California 52nd Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-52-primary.html
+
+**California 37th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-37-primary.html
+
+**California 24th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-24-primary.html
+
+**California 32nd Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-32-primary.html
+
+**California 25th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-25-primary.html
+
+**California 33rd Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-33-primary.html
+
+**California 26th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-26-primary.html
+
+**California 28th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-28-primary.html
+
+**California 22nd Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-22-primary.html
+
+**California 20th Congressional District Primary 2026: Live Election Results, Fong vs. Van Scotter**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-20-primary.html
+
+**California 31st Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-31-primary.html
+
+**California 21st Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-21-primary.html
+
+**California 23rd Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-23-primary.html
+
+**California First Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-1-primary.html
+
+**California 27th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-27-primary.html
+
+**California Secretary of State Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-secretary-of-state-primary.html
+
+**California 19th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-19-primary.html
+
+**California Superintendent of Public Instruction 2026: Live Election Results**\
 `Get live results and maps from the 2026 California election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-california-mayor-los-angeles.html
+https://www.nytimes.com/interactive/2026/us/elections/results-california-superintendent-of-public-instruction.html
 
-**Curfew to Be Lifted Near NJ’s Delaney Hall ICE Facility Where Protests Have Raged**\
-`The restrictions outside Delaney Hall immigration detention center were imposed after demonstrators who were protesting the conditions at the facility had clashed with the police.`\
-https://www.nytimes.com/2026/06/02/nyregion/delaney-hall-curfew-protests.html
+**California 13th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-13-primary.html
 
-**Dear President Ozymandias**\
-`Look on his works and despair.`\
-https://www.nytimes.com/2026/06/02/opinion/trump-kennedy-center-arch-reflecting-pool.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/elections/100000010939890/02vid-cali-voters-25294.html
-
-**The Dark Side of Paul McCartney**\
-`Listen to “Eleanor Rigby,” “Daytime Nightime Suffering” and more tracks that hint at his gloomier instincts.`\
-https://www.nytimes.com/2026/06/02/arts/music/amplifier-newsletter-paul-mccartney.html
-
-**White House Correspondents Dinner Rescheduled for July**\
-`The dinner was abruptly cut short in April when a gunman disrupted the proceedings. President Trump said that he would attend.`\
-https://www.nytimes.com/2026/06/02/business/media/white-house-correspondents-dinner.html
-
-**Polls of California Governor’s Race Show a Clear Top 3**\
-`Xavier Becerra, Steve Hilton and Tom Steyer have consistently led the field in California’s nonpartisan primary, where the top two finishers advance.`\
-https://www.nytimes.com/2026/06/02/us/elections/california-governor-primary-election-polls.html
-
-**Map: 3.7-Magnitude Earthquake Shakes the San Francisco Bay Area**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/06/02/us/quake-tracker-san-francisco-bay-area.html
-
-**The Benefits of Real Work in a College Setting**\
-`Readers respond to Michal Leibowitz’s Opinion guest essay about Deep Springs College, an experimental school in the California desert.`\
-https://www.nytimes.com/2026/06/02/opinion/letters/college-work.html
-
-**Justice Dept. Won’t Proceed With Trump’s $1.8 Billion Fund, Blanche Says**\
-`The acting attorney general told lawmakers that he would leave in place an order forcing the I.R.S. to drop investigations into President Trump, his family and his businesses.`\
-https://www.nytimes.com/2026/06/02/us/politics/todd-blanche-house-hearing.html
-
-**Dua Lipa, Callum Turner y la inspiración ‘vintage’ de su boda**\
-`La estrella del pop y el actor combinaron detalles de glamour de vieja escuela con el estilo londinense moderno.`\
-https://www.nytimes.com/es/2026/06/02/espanol/estilos-de-vida/dua-lipa-boda-traje-novia-jagger.html
-
-**MSC Ship Is Struck by Two Projectiles in Iraqi Port**\
-`The attack on the vessel, owned by the Mediterranean Shipping Company, underlines the threat to ships even as the U.S. and Iran try to negotiate reopening the Strait of Hormuz.`\
-https://www.nytimes.com/2026/06/02/business/msc-iraq-port-iran-war.html
-
-**Moratorium on Data Centers Nears Passage as N.Y. Lawmakers Wind Down**\
-`In the final hectic days of the legislative session, data centers, redistricting and algorithmic pricing vie for New York State lawmakers’ attention.`\
-https://www.nytimes.com/2026/06/02/nyregion/data-centers-redistricting-ny.html
-
-**Trump Again Refers to Canada as the ’51st State’ Hours Before Trade Talks**\
-`The Canadian trade minister met with the U.S. Trade Representative on Tuesday.`\
-https://www.nytimes.com/2026/06/02/world/canada/trump-canada-us-trade-usmca.html
-
-**California Election Live Updates: Primary Battles Could Set Direction for California and Congress**\
-`Tuesday’s nonpartisan primaries will determine which candidates make the fall ballot in consequential races for governor, Los Angeles mayor and all 52 of the state’s congressional seats.`\
-https://www.nytimes.com/live/2026/06/02/us/california-election-primary-governor
+**California 14th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-14-primary.html
 

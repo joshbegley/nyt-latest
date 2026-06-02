@@ -1,3 +1,11 @@
+**Iowa Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Iowa primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-iowa-primary.html
+
+**Albanians Protest Luxury Resort Linked to Kushner**\
+`In Albania, one of the poorest countries in Europe, crowds gathered to protest a $1.4 billion luxury hotel complex on the coast of the Adriatic Sea. Jared Kushner, President Trump’s son-in-law, is one of several investors in the project.`\
+https://www.nytimes.com/video/world/europe/100000010940326/albanians-protest-luxury-resort-linked-to-kushner.html
+
 **I.R.S. Must Still Drop Audits of the Trumps, Blanche Says**\
 `The acting attorney general said the administration was preserving a broad order shielding the president and his family from audits, which critics suggest is unprecedented in scope.`\
 https://www.nytimes.com/2026/06/02/us/politics/trump-irs-settlement.html
@@ -178,21 +186,13 @@ https://www.nytimes.com/es/2026/06/02/espanol/estilos-de-vida/dua-lipa-boda-traj
 `The attack on the vessel, owned by the Mediterranean Shipping Company, underlines the threat to ships even as the U.S. and Iran try to negotiate reopening the Strait of Hormuz.`\
 https://www.nytimes.com/2026/06/02/business/msc-iraq-port-iran-war.html
 
-**Trump Again Refers to Canada as the ’51st State’ Hours Before Trade Talks**\
-`The Canadian trade minister is visiting Washington on Tuesday to meet with the U.S. Trade Representative.`\
-https://www.nytimes.com/2026/06/02/world/canada/trump-canada-us-trade-usmca.html
-
 **Moratorium on Data Centers Nears Passage as N.Y. Lawmakers Wind Down**\
 `In the final hectic days of the legislative session, data centers, redistricting and algorithmic pricing vie for New York State lawmakers’ attention.`\
 https://www.nytimes.com/2026/06/02/nyregion/data-centers-redistricting-ny.html
 
-**The Best Movies and TV Shows Coming to Netflix in June**\
-`A World Cup comedy and a new film by Julian Schnabel are among this month’s most promising titles.`\
-https://www.nytimes.com/2026/06/02/arts/television/netflix-new-june.html
-
-**Trump Has Failed as Commander in Chief**\
-`Trump has failed to unite the country while at war and instead is seeking personal gain.`\
-https://www.nytimes.com/2026/06/02/opinion/trump-corruption-allies.html
+**Trump Again Refers to Canada as the ’51st State’ Hours Before Trade Talks**\
+`The Canadian trade minister met with the U.S. Trade Representative on Tuesday.`\
+https://www.nytimes.com/2026/06/02/world/canada/trump-canada-us-trade-usmca.html
 
 **California Election Live Updates: Primary Battles Could Set Direction for California and Congress**\
 `Tuesday’s nonpartisan primaries will determine which candidates make the fall ballot in consequential races for governor, Los Angeles mayor and all 52 of the state’s congressional seats.`\
