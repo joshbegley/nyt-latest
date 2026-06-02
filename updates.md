@@ -1,3 +1,7 @@
+**How Hezbollah Drones Upended Israel’s Strategy in Lebanon**\
+`An Israeli campaign that started with high hopes has devolved into a kind of impasse, with Hezbollah looking more capable than it did when the war began.`\
+https://www.nytimes.com/2026/06/02/world/middleeast/israel-lebanon-hezbollah.html
+
 **Colombia pidió a EE. UU. sancionar su oro ilegal. Washington lo compraba**\
 `La solicitud de sanciones, realizada por el ministro de Defensa de Colombia, muestra fallos en ambos extremos de la cadena de suministro de oro ilegal.`\
 https://www.nytimes.com/es/2026/06/02/espanol/america-latina/colombia-ee-uu-sanciones-mineria-oro.html
