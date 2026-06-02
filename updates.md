@@ -1,3 +1,11 @@
+**California House Primaries Offer Clues in Battle for Control of Congress**\
+`Proposition 50 has created a handful of key races where Democrats will choose candidates to pit against vulnerable Republican incumbents. Generational challenges have infused other contests.`\
+https://www.nytimes.com/2026/06/02/us/politics/california-house-election-primary.html
+
+**Order Shielding Trump Family From I.R.S. Audits Will Remain, Blanche Says**\
+`The acting attorney general said the administration was preserving a broad order protecting the president and his family from audits of already filed returns, despite dropping a $1.8 billion payout fund.`\
+https://www.nytimes.com/2026/06/02/us/politics/trump-irs-settlement.html
+
 **NOTUS Cannot Be ‘The Star’: Judge Blocks D.C. News Outlet’s Rebranding**\
 `NOTUS, a political news website, must temporarily suspend its plans to rebrand, a judge ruled in a trademark dispute brought by The Washington Star.`\
 https://www.nytimes.com/2026/06/02/business/media/notus-washington-star-trademark-dispute.html

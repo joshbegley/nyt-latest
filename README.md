@@ -1,3 +1,7 @@
+**When to Expect Results in the June 2 Primaries**\
+`Voters in six states have primaries today. Election officials predict that results will come in late Tuesday or early Wednesday.`\
+https://www.nytimes.com/2026/06/02/us/politics/results-timing-iowa-montana-new-mexico.html
+
 **California House Primaries Offer Clues in Battle for Control of Congress**\
 `Proposition 50 has created a handful of key races where Democrats will choose candidates to pit against vulnerable Republican incumbents. Generational challenges have infused other contests.`\
 https://www.nytimes.com/2026/06/02/us/politics/california-house-election-primary.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-california-us-hous
 **California 46th Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 California primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-46-primary.html
-
-**California 52nd Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 California primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-52-primary.html
 

@@ -1,3 +1,7 @@
+**California House Primaries Offer Clues in Battle for Control of Congress**\
+`Proposition 50 has created a handful of key races where Democrats will choose candidates to pit against vulnerable Republican incumbents. Generational challenges have infused other contests.`\
+https://www.nytimes.com/2026/06/02/us/politics/california-house-election-primary.html
+
 **Tom Steyer: 5 Facts About the Candidate for California Governor**\
 `He is a billionaire who appeals to many progressive groups in California.`\
 https://www.nytimes.com/2026/06/02/us/politics/tom-steyer-california-governor.html
@@ -91,7 +95,7 @@ https://www.nytimes.com/interactive/2026/us/elections/results-iowa-primary.html
 https://www.nytimes.com/video/world/europe/100000010940326/albanians-protest-luxury-resort-linked-to-kushner.html
 
 **Order Shielding Trump Family From I.R.S. Audits Will Remain, Blanche Says**\
-`The acting attorney general said the administration was preserving a broad order shielding the president and his family from audits of already filed returns, despite dropping a $1.8 billion payout fund.`\
+`The acting attorney general said the administration was preserving a broad order protecting the president and his family from audits of already filed returns, despite dropping a $1.8 billion payout fund.`\
 https://www.nytimes.com/2026/06/02/us/politics/trump-irs-settlement.html
 
 **Trump’s $1.8 Billion Fund Is ‘Not Moving Forward’**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-california-us-hous
 **California 52nd Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 California primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-52-primary.html
-
-**California 37th Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 California primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-37-primary.html
 
