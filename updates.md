@@ -1,3 +1,7 @@
+**Meta Expands Safety Features for Teenagers**\
+`The changes, after Meta’s legal losses in two child safety cases, are aimed at limiting harmful content shown to teenagers on Instagram, Facebook and Messenger.`\
+https://www.nytimes.com/2026/06/02/technology/meta-safety-features-teenagers.html
+
 **Inside the Ebola Outbreak**\
 `We discuss the epidemic in the Democratic Republic of Congo.`\
 https://www.nytimes.com/2026/06/02/briefing/inside-the-ebola-outbreak.html
