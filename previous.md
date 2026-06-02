@@ -1,3 +1,115 @@
+**17 Plays (and 3 Festivals) to Jazz Up Your June**\
+`Billy Porter, Wayne Brady, Sting and Suzan-Lori Parks are all slated to star on Off Broadway stages this month.`\
+https://www.nytimes.com/2026/06/02/theater/plays-and-festivals-jazz-up-june.html
+
+**Solve the June Bonus Puzzle**\
+`This month’s drag-themed puzzle was co-constructed by Bianca Del Rio, a stand-up comic and performance artist.`\
+https://www.nytimes.com/2026/06/02/crosswords/bonus-puzzle-drag.html
+
+**We Need Theater That Makes Us Bawl**\
+`Over 75 years ago, Arthur Miller made the case for works that explore the tragedy of the common man. Why are we still resisting his call?`\
+https://www.nytimes.com/2026/06/02/opinion/arthur-miller-tragedy.html
+
+**Ian Bremmer on the Risks America Poses to the World**\
+`The political risk analyst Ian Bremmer argues that the greatest driver of risk in the world right now is President Trump.`\
+https://www.nytimes.com/video/opinion/100000010932835/ian-bremmer-on-the-risks-america-poses-to-the-world.html
+
+**California’s Primary Election: What to Watch**\
+`The race to replace Gov. Gavin Newsom has been unpredictable for months, while Mayor Karen Bass of Los Angeles is trying to fend off two challengers.`\
+https://www.nytimes.com/2026/06/02/us/elections/california-primary-what-to-watch.html
+
+**What to Watch in Tuesday’s Primary Elections in Iowa, Montana and Beyond**\
+`Democrats have a competitive Senate primary race in Iowa, where the party is hoping to make gains, while a smokejumper is running in a contested House primary in Montana.`\
+https://www.nytimes.com/2026/06/02/us/politics/iowa-montana-primary-election-midterms.html
+
+**‘Amadeus’ and Beyond: Where to Watch Movies About Composers**\
+`The latest adaptation of Peter Shaffer’s “Amadeus” joins a rich lineage of fantastical and extravagant musical biopics.`\
+https://www.nytimes.com/2026/06/02/arts/music/amadeus-composer-movies.html
+
+**Five Homes for Sale With Dreamy Pools**\
+`A 1960s compound in the Berkshires, a tropical cottage in Miami, a quintessential Hamptons house, and two California retreats.`\
+https://www.nytimes.com/2026/06/02/realestate/five-homes-for-sale-with-dreamy-pools.html
+
+**Obama Center’s Two Sides: A Lovely Park and a Forbidding Tower**\
+`In Chicago, the $850 million Obama Presidential Center aims to remake a neighborhood with a 19.3-acre community hub and a brooding 225-foot museum.`\
+https://www.nytimes.com/2026/06/02/arts/design/obama-presidential-center-library-chicago.html
+
+**At Diane Keaton’s Estate Auction, Colorful Trims, ‘Annie Hall’ and More**\
+`Hundreds of items that highlight the actress’s subversive style and her assured role as collector and curator are up for bidding.`\
+https://www.nytimes.com/2026/06/02/style/diane-keaton-auction-bonhams.html
+
+**The Toll of a ‘Missing Scientists’ Conspiracy Theory on the Families Left Behind**\
+`The claim that their loved ones’ deaths and disappearances are linked is almost certainly false — but the loss remains real.`\
+https://www.nytimes.com/2026/06/02/science/missing-scientists-conspiracy-theory-families.html
+
+**A Hot Spot on the Sedate Upper East Side? At Least in Terms of Chiles.**\
+`Lungi is the latest New York destination for the cooking of southern India, as well as Sri Lanka.`\
+https://www.nytimes.com/2026/06/02/dining/restaurant-review-lungi-nyc.html
+
+**Retirement, the Economy, Trump: 14 Baby Boomers Discuss**\
+`The group discusses their generation, the world today and the problems younger generations face.`\
+https://www.nytimes.com/interactive/2026/06/02/opinion/focus-group-baby-boomer-voters.html
+
+**What Ireland and Germany Can Teach Us About Birthright Citizenship**\
+`President Trump has argued that the United States is “stupid” for granting citizenship at birth. Most countries don’t do so, but that can create problems.`\
+https://www.nytimes.com/2026/06/02/business/economy/birthright-citizenship-ireland-germany-trump.html
+
+**My Two Sleepless Months With the Eight Sleep Pod**\
+`The luxury gadget promises to hack sleep — and relationships. But can anything?`\
+https://www.nytimes.com/2026/06/02/magazine/ai-bedding-mattress-eight-sleep.html
+
+**How the Oprah Tax Code Swept America**\
+`Here’s how to make taxes work.`\
+https://www.nytimes.com/2026/06/02/opinion/anti-tax-break-code-oprah.html
+
+**U.S. Was Asked to Blacklist Colombian Cartel Gold. It Was Also Buying It.**\
+`The request for sanctions, from Colombia’s defense minister, shows failures at both ends of the supply chain for illegal gold.`\
+https://www.nytimes.com/2026/06/02/world/americas/us-was-asked-to-blacklist-colombian-cartel-gold-it-was-also-buying-it.html
+
+**Book Review: ‘What Came West,’ by Josh Weil**\
+`Josh Weil’s new novel follows an autistic trapper on an odyssey during the California gold rush.`\
+https://www.nytimes.com/2026/06/02/books/review/josh-weil-what-came-west.html
+
+**Book Review: ‘Stolen Revolution,’ by Yeganeh Torbati and Bozorgmehr Sharafedin**\
+`In a quietly devastating new book, two journalists chart the protest movements fighting for change inside the country.`\
+https://www.nytimes.com/2026/06/02/books/review/stolen-revolutions-yeganeh-torbati-bozorgmehr-sharafedin.html
+
+**Book Review: ‘Land,’ by Maggie O’Farrell**\
+`Set in the decades after the Great Hunger, “Land” is a rich portrait of family life amid Ireland’s long struggle against British rule.`\
+https://www.nytimes.com/2026/06/02/books/review/land-maggie-ofarrell.html
+
+**Party Like a Swede! A Guide to Celebrating Midsummer.**\
+`The holiday celebrates the return of light after the long, dark Nordic winter. Here’s how to take part in Sweden, or wherever you are.`\
+https://www.nytimes.com/2026/06/02/travel/sweden-midsummer-celebrations.html
+
+**Glamour, a Once-Mighty Women’s Magazine, Turns to Shopping Links**\
+`Job cuts at Glamour and a greater focus on posts with shopping tips offer one of the clearest examples of the waning reign of women’s magazines.`\
+https://www.nytimes.com/2026/06/02/business/glamour-magazine-shopping.html
+
+**Book Review: ‘The Fire Agent,’ by David Baerwald**\
+`“The Fire Agent,” by David Baerwald, is a historical novel that spans two continents and world wars.`\
+https://www.nytimes.com/2026/06/02/books/review/david-baerwald-fire-agent.html
+
+**A Stray Dog Became a Cultural Symbol in Brazil. Now, Mexico Is Claiming It.**\
+`To Brazilians, the ubiquitous caramel-colored mutts are a national icon. But a Mexican state has adopted them as its own homegrown symbol.`\
+https://www.nytimes.com/2026/06/02/world/americas/stray-dog-caramelos-brazil-mexico.html
+
+**Shannon Elizabeth Reflects on Being the Y2K Era’s ‘Hot Girl’**\
+`Shannon Elizabeth helped define blockbusters like “American Pie” and cult favorites like “Jay and Silent Bob Strike Back.” Now, as she enters a new public chapter, she reflects on the era.`\
+https://www.nytimes.com/2026/06/02/movies/shannon-elizabeth-american-pie.html
+
+**Hospitals See Diseases Resurge as Vaccinations Decline**\
+`Doctors nationwide are encountering more children with whooping cough, bacterial infections and other serious illnesses, as well as more adults refusing tetanus shots.`\
+https://www.nytimes.com/2026/06/02/well/children-vaccines-illnesses.html
+
+**5 Beautiful Hawaiian Swimming Holes**\
+`Clear natural pools, many fed by crystalline waterfalls, give visitors to Hawaii a refreshing reason to expand their explorations beyond the beach.`\
+https://www.nytimes.com/2026/06/02/travel/hawaii-swimming-holes-waterfalls.html
+
+**Is It Bad to Sleep With My Pet?**\
+`It seems as if everyone has an opinion, so we put the question to the experts.`\
+https://www.nytimes.com/2026/06/02/well/health-risks-sleeping-with-pet.html
+
 **Russia Launches Deadly Strikes on Ukraine**\
 `Russian missiles and drones hit Kyiv, the Ukrainian capital, early Tuesday, more than a week after Russia warned of a plan to strike “decision-making centers” in the city.`\
 https://www.nytimes.com/video/world/europe/100000010938828/ukraine-kyiv-russia-attack.html
@@ -85,116 +197,4 @@ https://www.nytimes.com/2026/06/02/world/australia/kakariki-karaka-bird-parakeet
 **Corrections: June 2, 2026**\
 `Corrections that appeared in print on Tuesday, June 2, 2026.`\
 https://www.nytimes.com/2026/06/02/pageoneplus/corrections-june-2-2026.html
-
-**Security Council Members Call for Israel to Withdraw From Southern Lebanon**\
-`The U.N. panel met after Israel had threatened to attack southern Beirut. President Trump said later that Israel and Hezbollah had agreed not to attack each other.`\
-https://www.nytimes.com/2026/06/01/world/middleeast/un-security-council-lebanon.html
-
-**Hawaii Man Charged With Killing Three Men**\
-`An expansive manhunt on the Big Island of Hawaii ended with the suspect’s arrest on Thursday in the deaths of the men, who were in their 60s and 70s.`\
-https://www.nytimes.com/2026/06/01/us/hawaii-murders-pahoa-charges.html
-
-**NYT Crossword Answers for June 2, 2026**\
-`Rich Katz is here to cheer you up.`\
-https://www.nytimes.com/2026/06/01/crosswords/daily-puzzle-2026-06-02.html
-
-**Trump Administration Announces Stricter Rules for Medicaid Work Requirement**\
-`By tightening an exception for people with serious illnesses, more of them may lose coverage.`\
-https://www.nytimes.com/2026/06/01/upshot/trump-medicaid-work-requirements.html
-
-**As Ebola Spreads, Scientists Race to Find Vaccines and Treatments**\
-`The Bundibugyo virus, a little known type, previously had caused just two small outbreaks. Now it’s at the center of a rapidly widening epidemic in Africa.`\
-https://www.nytimes.com/2026/06/01/science/ebola-vaccines-treatments.html
-
-**Hegseth elimina de una lista de ascensos de la Marina a oficiales negros y mujeres**\
-`Las acciones de Hegseth, que parecen violar las normas del sistema de ascensos, fueron descritas por cuatro funcionarios actuales y antiguos del departamento que hablaron bajo condición de anonimato.`\
-https://www.nytimes.com/es/2026/06/01/espanol/estados-unidos/secretario-defensa-lista-marina-mujeres-oficiales-negros.html
-
-**Palabra del día en inglés: ‘recondite’**\
-`Esta palabra ha aparecido en cinco artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
-https://www.nytimes.com/es/2026/06/01/espanol/que-significa-recondite.html
-
-**North Carolina Officer Charged After Beating of Suspect Captured on Doorbell Video**\
-`While trying to make an arrest, the officer, in Shelby, N.C., punched her repeatedly in the head and body and he continued even after another officer tried to intervene.`\
-https://www.nytimes.com/2026/06/01/us/shelby-police-officer-doorbell-video.html
-
-**What to Know About Serena Williams’s Return to Tennis**\
-`On Monday, Serena Williams, 44, announced she would return to tennis. Ava Wallace, a tennis reporter for The Athletic, dives into what it means for a sport Williams once dominated.`\
-https://www.nytimes.com/video/the-athletic/100000010938460/what-to-know-about-serena-williamss-return-to-tennis.html
-
-**Mavericks Pass on Dallas City Hall Site, Choose Valley View for New Arena**\
-`The choice gives the N.B.A. franchise room to pursue a sprawling mixed-use development while easing pressure on one of Dallas’s most closely watched civic battles.`\
-https://www.nytimes.com/2026/06/01/us/dallas-mavericks-new-arena-valley-view-mall.html
-
-**U.S. Says More People May Be Charged in Terror Case Linked to Iran**\
-`A militia leader pleaded not guilty on Monday to what prosecutors say is his role in attacks that are part of Iran’s response to the war with Israel and the United States.`\
-https://www.nytimes.com/2026/06/01/nyregion/nyc-synagogue-plot-iran.html
-
-**Rick Adelman, Hall of Fame N.B.A. Coach, Dies at 79**\
-`His teams made the playoffs 16 times in 23 seasons, and he twice steered the Portland Trail Blazers to the league finals.`\
-https://www.nytimes.com/2026/06/01/sports/basketball/rick-adelman-dead.html
-
-**Crested Ibises Get the Royal Treatment in Japan as They Fly Again**\
-`Once widespread in Japan, the colorful birds went from being fairly commonplace in the country to being on the verge of extinction.`\
-https://www.nytimes.com/2026/06/01/world/asia/japan-crested-ibis.html
-
-**California Prepares for Governor Primary Race**\
-`On Tuesday, Californians will head to the polls to vote in the state’s primary election for governor and other offices. There are dozens of candidates for governor, but one Republican and a couple of Democrats have risen to the top of the polls.`\
-https://www.nytimes.com/video/us/elections/100000010937083/california-governor-primary-election.html
-
-**Trump Stands to Gain a Key Ally in Colombia’s Upcoming Election**\
-`Abelardo De La Espriella, a hard-line candidate on the right facing a left-wing rival in a presidential runoff, has pledged to crush drug traffickers.`\
-https://www.nytimes.com/2026/06/01/world/americas/trump-colombia-election-abelardo-de-la-espriella.html
-
-**Right-Wing Officials’ Appearance at Israel Day Parade Leads to Backlash**\
-`Parade organizers and New York lawmakers who marched in the parade sought to distance themselves from Bezalel Smotrich, a hard-line Israeli official who attended.`\
-https://www.nytimes.com/2026/06/01/nyregion/nyc-israel-parade-smotrich-mamdani.html
-
-**Map: 6.2-Magnitude Earthquake Strikes off the Coast of Italy**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/06/01/world/italy-quake-tracker.html
-
-**Trump Finds High-Wire Iran Negotiations ‘Very Boring’**\
-`President Trump told CNBC that he “couldn’t care less” if the negotiations with Iran break down.`\
-https://www.nytimes.com/2026/06/01/us/politics/trump-iran-negotiations-boring.html
-
-**Mette Frederiksen Forms New Government in Denmark**\
-`Mette Frederiksen may not be nearly as popular as she once was, but she remains the Danes’ most dominant leader in decades.`\
-https://www.nytimes.com/2026/06/01/world/europe/denmark-mette-frederiksen.html
-
-**Trump Administration to Dismantle Ocean Monitoring System**\
-`The $368 million network of instruments collecting data in both the Atlantic and Pacific has been critical to climate and ocean research.`\
-https://www.nytimes.com/2026/06/01/climate/ocean-observatories-initiative.html
-
-**5 People Leave Hantavirus Quarantine in Omaha**\
-`Thirteen people remain at the facility in Nebraska. Those who returned to their home states may be under constant surveillance for three more weeks.`\
-https://www.nytimes.com/2026/06/01/us/hantavirus-quarantine-omaha-nebraska.html
-
-**Previewing California’s Primary Elections and High-Stakes Governor’s Race**\
-`The deep-blue state’s primary elections will show how angry voters are at the status quo.`\
-https://www.nytimes.com/2026/06/01/us/politics/california-primary-elections-governor-preview.html
-
-**Trump Says Israel and Hezbollah Will Hold Off on New Military Action**\
-`A statement from Prime Minister Benjamin Netanyahu of Israel did not mention a new cease-fire, but the Lebanese government said one was taking shape.`\
-https://www.nytimes.com/2026/06/01/world/middleeast/trump-iran-israel-hezbollah.html
-
-**Minnesota Republicans Hold Moment of Silence for Derek Chauvin**\
-`Delegates to the Minnesota Republican Party’s convention voted to hold a moment of silence for Derek Chauvin, who was convicted of murdering George Floyd.`\
-https://www.nytimes.com/2026/06/01/us/republicans-minnesota-derek-chauvin-george-floyd.html
-
-**Trump Backs Off Plans for $1.8 Billion Fund After Backlash**\
-`Also, Serena Williams is making a comeback. Here’s the latest at the end of Monday.`\
-https://www.nytimes.com/2026/06/01/briefing/trump-fund-back-off-serena-williams.html
-
-**Andy Halliday, a Star of ‘Vampire Lesbians of Sodom,’ Dies at 73**\
-`A beloved member of Charles Busch’s Theater in Limbo repertory, he had an irrepressibly comic stage presence that masked a shy, tender disposition.`\
-https://www.nytimes.com/2026/06/01/arts/andy-halliday-dead.html
-
-**Trump Backs Off Plan for $1.8 Billion Fund That Drew Political Backlash**\
-`The fund has drawn backlash from critics who said it was a scheme to reward President Trump’s political allies with public benefits.`\
-https://www.nytimes.com/2026/06/01/us/politics/trump-drop-weaponization-fund.html
-
-**Demonstrators Cannot Be Forced to Take Down ‘86-47’ Flag, Judge Rules**\
-`A federal judge wrote that the phrase, which also led to charges against the former F.B.I. director, James Comey, did not appear to constitute a true threat.`\
-https://www.nytimes.com/2026/06/01/us/politics/demonstrators-8647-trump-judge.html
 
