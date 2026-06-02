@@ -1,3 +1,7 @@
+**Colombia pidió a EE. UU. sancionar su oro ilegal. Washington lo compraba**\
+`La solicitud de sanciones, realizada por el ministro de Defensa de Colombia, muestra fallos en ambos extremos de la cadena de suministro de oro ilegal.`\
+https://www.nytimes.com/es/2026/06/02/espanol/america-latina/colombia-ee-uu-sanciones-mineria-oro.html
+
 **Why America Is Its Own Biggest Geopolitical Risk**\
 `The political risk analyst Ian Bremmer argues that the greatest driver of risk in the world right now is President Trump.`\
 https://www.nytimes.com/2026/06/02/opinion/ezra-klein-podcast-ian-bremmer.html
