@@ -1,3 +1,15 @@
+**I.R.S. Must Still Drop Audits of the Trumps, Blanche Says**\
+`The acting attorney general said the administration was preserving a broad order shielding the president and his family from audits, which critics suggest is unprecedented in scope.`\
+https://www.nytimes.com/2026/06/02/us/politics/trump-irs-settlement.html
+
+**Trump’s $1.8 Billion Fund Is ‘Not Moving Forward’**\
+`Also, California votes on its next governor. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/06/02/briefing/trump-fund-primary-elections.html
+
+**Rick Chow, South Carolina Store Owner, Found Not Guilty of Murder in Death of Cyrus Carmack-Belton**\
+`The shooting drew national attention and roiled the community in South Carolina.`\
+https://www.nytimes.com/2026/06/02/us/rick-chow-not-guilty-murder-south-carolina.html
+
 **Sheet-Pan Chicken With Potatoes, Arugula and Garlic Yogurt**\
 `Your typical sheet-pan chicken recipe roasts everything together on a pan at once. This version from Cooking’s Melissa Clark pairs potatoes with the poultry, and tops everything off with fresh herbs and arugula, making it a true one-pan meal, salad included.`\
 https://www.nytimes.com/video/dining/100000010940482/sheet-pan-chicken-with-potatoes-arugula-and-garlic-yogurt.html
