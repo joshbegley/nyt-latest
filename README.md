@@ -1,3 +1,7 @@
+**Protests Grow in Albania Over Kushner-Linked Project**\
+`Plans for luxury resorts on the Adriatic Sea have long worried environmentalists. The developments are now a flashpoint for broader frustrations with the government.`\
+https://www.nytimes.com/2026/06/02/world/europe/albania-kushner-protests-hotel.html
+
 **Kilauea Spews More Lava, Reaching a Volcanic Milestone**\
 `On Monday, the volcano on Hawaii’s Big Island had a 48th episode of “lava fountaining” in an eruption that began in 2024.`\
 https://www.nytimes.com/2026/06/02/us/kilauea-hawaii-volcano-eruption-record.html
@@ -26,7 +30,7 @@ https://www.nytimes.com/interactive/2026/us/elections/results-california-governo
 `Get live results and maps from the 2026 California election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-california-mayor-los-angeles.html
 
-**Curfew to Be Lifted Near Detention Center Where Protests Have Raged**\
+**Curfew to Be Lifted Near NJ’s Delaney Hall ICE Facility Where Protests Have Raged**\
 `The restrictions outside Delaney Hall immigration detention center were imposed after demonstrators who were protesting the conditions at the facility had clashed with the police.`\
 https://www.nytimes.com/2026/06/02/nyregion/delaney-hall-curfew-protests.html
 
