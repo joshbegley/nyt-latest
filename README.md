@@ -1,3 +1,7 @@
+**Democrats Pledge to Fight Trump’s Termination of Ocean Monitoring Observatories**\
+`The Trump administration is dismantling a $368 million deep-ocean observation system that monitors marine ecosystems and the effects of climate change.`\
+https://www.nytimes.com/2026/06/02/climate/trump-ocean-monitors-climate-research.html
+
 **Marcia Lucas, Oscar-Winning ‘Star Wars’ Editor, Dies at 80**\
 `A close collaborator with George Lucas, her first husband, she was “the warmth and the heart” of his early films, the actor Mark Hamill said.`\
 https://www.nytimes.com/2026/06/02/movies/marcia-lucas-dead.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/02/dining/nyc-restaurant-news.html
 **Audience Member at ‘La La Land’ Concert Fills in for Sick Keyboardist**\
 `Sterling Nasa, a 21-year-old university student, filled in for a keyboard player who had fallen ill during a “La La Land” orchestral performance in Australia.`\
 https://www.nytimes.com/video/world/asia/100000010939017/la-la-land-keyboardist-concert.html
-
-**Lebanon Endures Threats, Diplomacy and Whiplash as Others Decide Its Fate**\
-`The conflict between the United States, Israel and Iran looms over a state that has been pummeled by military strikes but has little say in determining its own future.`\
-https://www.nytimes.com/2026/06/02/world/middleeast/lebanon-israel-us-threats-diplomacy.html
 
 **California Election Live Updates: Primary Battles Could Set Direction for California and Congress**\
 `Tuesday’s nonpartisan primaries will determine which candidates make the fall ballot in consequential races for governor, all 52 of the state’s congressional seats and Los Angeles mayor.`\
