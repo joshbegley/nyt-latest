@@ -1,3 +1,7 @@
+**Trump Administration Announces Stricter Rules for Medicaid Work Requirement**\
+`By tightening an exception for people with serious illnesses, more of them may lose coverage.`\
+https://www.nytimes.com/2026/06/01/upshot/trump-medicaid-work-requirements.html
+
 **As Ebola Spreads, Scientists Race to Find Vaccines and Treatments**\
 `The Bundibugyo virus, a little known type, previously had caused just two small outbreaks. Now it’s at the center of a rapidly widening epidemic in Africa.`\
 https://www.nytimes.com/2026/06/01/science/ebola-vaccines-treatments.html
