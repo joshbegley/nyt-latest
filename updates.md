@@ -1,3 +1,15 @@
+**Kilauea Spews More Lava, Reaching a Volcanic Milestone**\
+`On Monday, the volcano on Hawaii’s Big Island had a 48th episode of “lava fountaining” in an eruption that began in 2024.`\
+https://www.nytimes.com/2026/06/02/us/kilauea-hawaii-volcano-eruption-record.html
+
+**Kilauea Volcano in Hawaii Breaks Lava Record**\
+`Hawaii’s most active volcano broke a record on Monday, producing the 48th lava fountaining episode of its current eruption.`\
+https://www.nytimes.com/video/us/100000010939911/kilauea-volcano-in-hawaii-breaks-lava-record.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000010940193/29vid-California-Primaries-Mike-Binder-23736.html
+
 **Lo que Irlanda y Alemania pueden enseñarnos sobre la ciudadanía por derecho de nacimiento**\
 `Las investigaciones han demostrado que las políticas más restrictivas pueden mermar el potencial de los niños que nacen y crecen en un país como no ciudadanos.`\
 https://www.nytimes.com/es/2026/06/02/espanol/negocios/irlanda-alemania-ciudadania-derecho-nacimiento.html
