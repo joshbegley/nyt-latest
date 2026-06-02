@@ -1,3 +1,7 @@
+**La capital mundial de las papas fritas tiene un problema: demasiadas papas**\
+`Bélgica tuvo una cosecha récord justo cuando los aranceles del gobierno de Donald Trump redujeron la demanda estadounidense de papas fritas congeladas y la competencia asiática se intensificó.`\
+https://www.nytimes.com/es/2026/06/02/espanol/negocios/europa-belgica-papas-exceso.html
+
 **Trump Targets Brazil with 25% Tariff, Citing Unfair Trade Practices**\
 `The proposal marks the latest effort by the administration to rebuild its tariff agenda through Section 301 investigations.`\
 https://www.nytimes.com/2026/06/02/business/trump-tariffs-brazil.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/01/us/politics/demonstrators-8647-trump-judge.ht
 **Pentagon Bars Reporters From Its Press Office**\
 `Defense Secretary Pete Hegseth has repeatedly curtailed journalists’ access in the Pentagon.`\
 https://www.nytimes.com/2026/06/01/us/politics/pentagon-reporters-hegseth.html
-
-**Judge Decides to Keep Charlie Kirk Hearings Open to Public**\
-`Utah district judge, Tony Graf, rejected the defense’s bid to close the hearings in the Charlie Kirk murder case. The defendant, Tyler J. Robinson, is accused of fatally shooting Mr. Kirk, the conservative activist.`\
-https://www.nytimes.com/video/us/politics/100000010937289/charlie-kirk-shooting-hearing-ruling.html
 
