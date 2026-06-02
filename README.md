@@ -1,3 +1,7 @@
+**Murder of Henry Nowak, Who Was Handcuffed by Police While Dying, Fuels Outrage in UK**\
+`Authorities in Britain are investigating police officers who handcuffed a student, Henry Nowak, while he was dying, in a case that been increasingly politicized.`\
+https://www.nytimes.com/2026/06/02/world/europe/henry-nowak-murder-uk-stabbing.html
+
 **Protests Grow in Albania Over Kushner-Linked Project**\
 `Plans for luxury resorts on the Adriatic Sea have long worried environmentalists. The developments are now a flashpoint for broader frustrations with the government.`\
 https://www.nytimes.com/2026/06/02/world/europe/albania-kushner-protests-hotel.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/02/climate/new-york-lawsuit-trump-offshore-wind.
 **Violet Witchel Wants You to Think Beans Are Sexy**\
 `The woman behind the viral Dense Bean Salad seems to have done the impossible: created a TikTok food trend with staying power.`\
 https://www.nytimes.com/2026/06/02/dining/dense-bean-salad.html
-
-**Trump Megadonor Gave $5.5 Million Estate to Robert F. Kennedy Jr.’s Anti-Vaccine Group**\
-`A Mellon heir transferred the adjacent Connecticut properties, covering about 300 acres, at no cost to Children’s Health Defense last year.`\
-https://www.nytimes.com/2026/06/02/business/economy/mellon-kennedy-childrens-health-defense.html
 
 **California Election Live Updates: Primary Battles Could Set Direction for California and Congress**\
 `Tuesday’s nonpartisan primaries will determine which candidates make the fall ballot in consequential races for governor, all 52 of the state’s congressional seats and Los Angeles mayor.`\
