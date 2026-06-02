@@ -74,7 +74,7 @@ https://www.nytimes.com/interactive/2026/06/02/us/quake-tracker-san-francisco-ba
 `Readers respond to Michal Leibowitz’s Opinion guest essay about Deep Springs College, an experimental school in the California desert.`\
 https://www.nytimes.com/2026/06/02/opinion/letters/college-work.html
 
-**Blanche to Face Lawmakers Amid Uproar Over $1.8 Billion Fund**\
+**Blanche Expected to Address Concerns Over $1.8 Billion Fund**\
 `The acting attorney general’s testimony comes a day after the Justice Department signaled it would abide by a court ruling halting the fund temporarily.`\
 https://www.nytimes.com/2026/06/02/us/politics/todd-blanche-house-hearing.html
 

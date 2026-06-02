@@ -1,3 +1,7 @@
+**Blanche Expected to Address Concerns Over $1.8 Billion Fund**\
+`The acting attorney general’s testimony comes a day after the Justice Department signaled it would abide by a court ruling halting the fund temporarily.`\
+https://www.nytimes.com/2026/06/02/us/politics/todd-blanche-house-hearing.html
+
 **The Iran War Has Led to Months of Global Shortages**\
 `Three months after the Strait of Hormuz was first closed, many countries are experiencing shortages of key goods.`\
 https://www.nytimes.com/2026/06/02/climate/iran-warn-global-shortages.html
