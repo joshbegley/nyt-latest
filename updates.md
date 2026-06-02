@@ -1,3 +1,11 @@
+**Rubio to Testify Before Senate, Arguing for Budget Amid Iran War and Pressure on Cuba**\
+`The secretary of state has played a key role in the Iran deliberations, as well as in U.S. policy toward Cuba.`\
+https://www.nytimes.com/2026/06/02/us/politics/marco-rubio-senate-budget-iran-cuba.html
+
+**Russia Is Showing Signs of Weakness in Ukraine. So It Hits Harder.**\
+`The war has not been going the Kremlin’s way recently, with battleground losses and mounting casualties. With renewed strikes, Moscow hopes to gain a better position for negotiations.`\
+https://www.nytimes.com/2026/06/02/world/europe/ukraine-russia-war-strikes.html
+
 **How Hezbollah Drones Changed Israel’s Strategy in Lebanon**\
 `An Israeli campaign that started with high hopes has devolved into a kind of impasse, with Hezbollah looking more capable than it did when the war began.`\
 https://www.nytimes.com/2026/06/02/world/middleeast/israel-lebanon-hezbollah.html
