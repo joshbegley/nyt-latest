@@ -1,3 +1,11 @@
+**White House Seeks to Impose Political Test on Billions in Federal Grants**\
+`A new proposal would allow the administration to block grants if they do not satisfy President Trump’s agenda or support what it calls “anti-American” values.`\
+https://www.nytimes.com/2026/06/02/us/politics/trump-budget-grants-omb-vought.html
+
+**Only the Right Tests Can Stop This Ebola Outbreak. Congo Has Hardly Any.**\
+`A chronic lack of investment in development of better tests has left clinicians blind and allows deadly viruses to spread unchecked.`\
+https://www.nytimes.com/2026/06/02/health/ebola-tests-congo.html
+
 **Trump Names Bill Pulte as Acting Director of National Intelligence**\
 `Bill Pulte, a Trump loyalist who leads the federal housing finance agency, will have oversight of the United States intelligence agencies. He has no known background in intelligence.`\
 https://www.nytimes.com/2026/06/02/us/politics/bill-pulte-acting-director-national-intelligence.html
@@ -6,7 +14,7 @@ https://www.nytimes.com/2026/06/02/us/politics/bill-pulte-acting-director-nation
 `The lawsuit argues that it is illegal to pay the French energy giant TotalEnergies $795 million to cancel a planned wind farm off New York.`\
 https://www.nytimes.com/2026/06/02/climate/new-york-lawsuit-trump-offshore-wind.html
 
-**Violet Witchel Wants to You to Think Beans Are Sexy**\
+**Violet Witchel Wants You to Think Beans Are Sexy**\
 `The woman behind the viral Dense Bean Salad seems to have done the impossible: created a TikTok food trend with staying power.`\
 https://www.nytimes.com/2026/06/02/dining/dense-bean-salad.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/06/02/opinion/focus-group-baby-boomer-v
 **What Ireland and Germany Can Teach Us About Birthright Citizenship**\
 `President Trump has argued that the United States is “stupid” for granting citizenship at birth. Most countries don’t do so, but that can create problems.`\
 https://www.nytimes.com/2026/06/02/business/economy/birthright-citizenship-ireland-germany-trump.html
-
-**My Two Sleepless Months With the Eight Sleep Pod**\
-`The luxury gadget promises to hack sleep — and relationships. But can anything?`\
-https://www.nytimes.com/2026/06/02/magazine/ai-bedding-mattress-eight-sleep.html
-
-**How the Oprah Tax Code Swept America**\
-`Here’s how to make taxes work.`\
-https://www.nytimes.com/2026/06/02/opinion/anti-tax-break-code-oprah.html
 

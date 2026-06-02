@@ -1,3 +1,7 @@
+**Trump Names Bill Pulte as Acting Director of National Intelligence**\
+`Bill Pulte, a Trump loyalist who leads the federal housing finance agency, will have oversight of the United States intelligence agencies. He has no known background in intelligence.`\
+https://www.nytimes.com/2026/06/02/us/politics/bill-pulte-acting-director-national-intelligence.html
+
 **New York Sues Trump Administration Over TotalEnergies Wind Farm**\
 `The lawsuit argues that it is illegal to pay the French energy giant TotalEnergies $795 million to cancel a planned wind farm off New York.`\
 https://www.nytimes.com/2026/06/02/climate/new-york-lawsuit-trump-offshore-wind.html
@@ -41,10 +45,6 @@ https://www.nytimes.com/2026/06/02/world/africa/kenya-ebola-us-quarantine-unit-c
 **Rubio to Testify Before Senate, Arguing for Budget Amid Iran War and Pressure on Cuba**\
 `The secretary of state has played a key role in the Iran deliberations, as well as in U.S. policy toward Cuba.`\
 https://www.nytimes.com/2026/06/02/us/politics/marco-rubio-senate-budget-iran-cuba.html
-
-**Trump Administration Live Updates: Housing Official and Enforcer Named Top Intelligence Chief**\
-`(No description)`\
-https://www.nytimes.com/live/2026/06/02/us/trump-administration-news
 
 **Russia Is Showing Signs of Weakness in Ukraine. So It Hits Harder.**\
 `The war has not been going the Kremlin’s way recently, with battleground losses and mounting casualties. With renewed strikes, Moscow hopes to gain a better position for negotiations.`\
