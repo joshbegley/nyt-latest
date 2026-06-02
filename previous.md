@@ -1,3 +1,7 @@
+**Putin Has No Good Way Out of His War**\
+`Perpetuating a war is not the same as winning one.`\
+https://www.nytimes.com/2026/06/02/opinion/putin-russia-war-strength.html
+
 **¿Se pueden usar calcetines con sandalias?**\
 `Una profesora se pregunta sobre las normas de etiqueta del calzado contemporáneo.`\
 https://www.nytimes.com/es/2026/06/02/espanol/estilos-de-vida/calcetines-sandalias.html
