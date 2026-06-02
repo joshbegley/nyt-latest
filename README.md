@@ -1,91 +1,3 @@
-**Trump Has Failed as Commander in Chief**\
-`Trump has failed to unite the country while at war and instead is seeking personal gain.`\
-https://www.nytimes.com/2026/06/02/opinion/trump-corruption-allies.html
-
-**How’s Your Job Search Going?**\
-`Chatbot recruiters, lousy benefits, delayed contracts: How’s your job search going?`\
-https://www.nytimes.com/2026/06/02/opinion/contributors/job-search-reader-callout.html
-
-**Stephen Curry and Li-Ning: What to Know About N.B.A. Star’s Deal With Chinese Sneaker Company**\
-`The agreement, which includes plans for sportswear and athleisure products, and stores across the United States and China, is the latest example of an N.B.A. star signing with a Chinese brand.`\
-https://www.nytimes.com/2026/06/02/world/asia/stephen-curry-li-ning-shoe-deal-china.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/elections/100000010939511/02vid-cali-voters-91871.html
-
-**In Her Memoir, Jill Biden Is a Watchful Spouse Who Didn’t Always Speak Up**\
-`The former first lady’s new book reflects an insular White House where loyalty was prized and President Joseph R. Biden Jr.’s feelings were prioritized over health concerns.`\
-https://www.nytimes.com/2026/06/02/us/politics/jill-biden-joe-biden-memoir-health-age.html
-
-**Trump Signs Executive Order Granting Oversight of A.I. Models**\
-`The order, which signaled a shift from the hands-off approach the White House had previously taken toward A.I., followed debates over how to gain control of A.I. models without disrupting innovation.`\
-https://www.nytimes.com/2026/06/02/technology/trump-executive-order-ai.html
-
-**Congress to Consider Restricting How the Military Uses A.I.**\
-`One measure would codify rules tech companies have requested, including a ban on using artificial intelligence for domestic surveillance.`\
-https://www.nytimes.com/2026/06/02/us/politics/military-ai-laws-congress.html
-
-**New Federal Guidelines Threaten Almost Half of Graduate Arts Programs**\
-`Many musicians, filmmakers and artists earn less than the Education Department’s proposed guidelines for alumni, imperiling federal aid for students in those programs.`\
-https://www.nytimes.com/2026/06/02/arts/design/education-department-earnings-salary.html
-
-**Knicks Fans Want ’90s Tees. Pay Very 2026 Prices.**\
-`Plus: A new Jay-Z look, the onset of all-black summer and a new gig for an ex-Marni designer`\
-https://www.nytimes.com/2026/06/02/style/knicks-90s-merch-nostalgia.html
-
-**Netanyahu’s Critics Accuse Him of Running Israel as a U.S. ‘Vassal State’**\
-`Critics pounced on the Israeli prime minister after President Trump claimed on social media he had persuaded him to call off “a major raid” on Hezbollah in Beirut.`\
-https://www.nytimes.com/2026/06/02/world/middleeast/netanyahu-criticism-beirut-attack-trump.html
-
-**Today, In Short**\
-`Dua Lipa. Serena Williams. And sleepy fish.`\
-https://www.nytimes.com/2026/06/02/briefing/today-in-short.html
-
-**Dallas Whale Mural Artist Wyland Sues FIFA After World Cup Paint-Over**\
-`The legal battle follows weeks of public anger after a nearly 30-year-old downtown landmark was mostly covered up to make way for a World Cup-related project.`\
-https://www.nytimes.com/2026/06/02/us/dallas-whale-mural-wyland-lawsuit-fifa-world-cup-texas.html
-
-**Ballet Tech Gave Them Dance. Now They Give Back.**\
-`Kids Dance, from the New York Public School for Dance, is debuting a work featuring alumni. That’s not the only way former students are involved with the school.`\
-https://www.nytimes.com/2026/06/02/arts/dance/ballet-tech-kids-dance-alumni.html
-
-**Iran Reveals 3-Day Funeral Plan for Ayatollah Khamenei, After Long Delay**\
-`Ceremonies for Ayatollah Ali Khamenei will be held in multiple cities, including Tehran, where authorities expect up to 20 million people to attend, Iranian state media reported.`\
-https://www.nytimes.com/2026/06/02/world/middleeast/ayatollah-khamenei-funeral-iran.html
-
-**Police Say Muscatine, Iowa Man Shot 6 Relatives Before Killing Himself**\
-`The man, Ryan Willis McFarland, 52, was confronted by the police, who said the killings followed a domestic dispute.`\
-https://www.nytimes.com/2026/06/02/us/muscatine-iowa-shooting-family.html
-
-**Guerra en Ucrania: Rusia ataca Kiev**\
-`Las advertencias reiteradas de Moscú de un gran ataque, y el retraso en su ejecución, parecieron querer infligir un daño psicológico a la capital de Ucrania.`\
-https://www.nytimes.com/es/2026/06/02/espanol/mundo/rusia-ataca-ucrania-kiev.html
-
-**‘La La Land’ Orchestral Performance Saved by Keyboardist in the Audience**\
-`After a musician fell ill during a live performance of the score from “La La Land,” the composer Justin Hurwitz asked for a sight reader. A 21-year-old student stepped up.`\
-https://www.nytimes.com/2026/06/02/world/australia/la-la-land-sydney-concert-audience-member.html
-
-**Oriana Lights the Wood-Fired Grill Just in Time for Summer**\
-`A luxury sushi restaurant gets a New York location, Red Beard Coffee & Bakery serves creative riffs on classics and more restaurant news.`\
-https://www.nytimes.com/2026/06/02/dining/nyc-restaurant-news.html
-
-**Audience Member at ‘La La Land’ Concert Fills in for Sick Keyboardist**\
-`Sterling Nasa, a 21-year-old university student, filled in for a keyboard player who had fallen ill during a “La La Land” orchestral performance in Australia.`\
-https://www.nytimes.com/video/world/asia/100000010939017/la-la-land-keyboardist-concert.html
-
-**Lebanon Endures Threats, Diplomacy and Whiplash as Others Decide Its Fate**\
-`The conflict between the United States, Israel and Iran looms over a state that has been pummeled by military strikes but has little say in determining its own future.`\
-https://www.nytimes.com/2026/06/02/world/middleeast/lebanon-israel-us-threats-diplomacy.html
-
-**New Proposal Would Allow Administration to Block Grants if They Don’t Support Trump’s Agenda**\
-`A new proposal would allow the administration to block grants if they do not satisfy President Trump’s agenda or support what it calls “anti-American” values.`\
-https://www.nytimes.com/2026/06/02/us/politics/trump-budget-grants-omb-vought.html
-
-**Only the Right Tests Can Stop This Ebola Outbreak. Congo Has Hardly Any.**\
-`A chronic lack of investment in development of better tests has left clinicians blind and allows deadly viruses to spread unchecked.`\
-https://www.nytimes.com/2026/06/02/health/ebola-tests-congo.html
-
 **Trump Names Bill Pulte as Acting Director of National Intelligence**\
 `Bill Pulte, a Trump loyalist who leads the federal housing finance agency, will have oversight of the United States intelligence agencies. He has no known background in intelligence.`\
 https://www.nytimes.com/2026/06/02/us/politics/bill-pulte-acting-director-national-intelligence.html
@@ -193,4 +105,96 @@ https://www.nytimes.com/es/2026/06/02/espanol/america-latina/colombia-ee-uu-sanc
 **Why America Is Its Own Biggest Geopolitical Risk**\
 `The political risk analyst Ian Bremmer argues that the greatest driver of risk in the world right now is President Trump.`\
 https://www.nytimes.com/2026/06/02/opinion/ezra-klein-podcast-ian-bremmer.html
+
+**México y Brasil se disputan el perro caramelo**\
+`Para los brasileños, los omnipresentes perros mestizos de color caramelo son un ícono nacional. Pero un estado mexicano los ha adoptado como su propio símbolo local.`\
+https://www.nytimes.com/es/2026/06/02/espanol/america-latina/perro-caramelo-brasil-mexico.html
+
+**El fuego de la estupidez no tiene contención**\
+`Pareciera que hemos olvidado más o menos todo lo que la historia nos enseñó.`\
+https://www.nytimes.com/es/2026/06/02/espanol/opinion/olvidar-historia.html
+
+**Elon Musk Laid Out 602 Goals. We Counted How Many He Hit.**\
+`The billionaire has stated many plans for his businesses, but has delivered only some of what he said he would, when he said he would, according to a Times analysis.`\
+https://www.nytimes.com/interactive/2026/06/02/technology/elon-musk-promises-spacex-ipo.html
+
+**Movie Highlights at the Tribeca Festival, Now 25**\
+`The standouts from this year’s lineup include films about a cultlike theater troupe and an experimental dance residency.`\
+https://www.nytimes.com/2026/06/02/movies/tribeca-festival-highlights.html
+
+**Pattie Gonia, a Drag Queen, Is Sued by Patagonia Over Trademark Infringement**\
+`The outdoor apparel company says the drag queen and environmentalist is using its name for commercial purposes. She’s ready to go to court.`\
+https://www.nytimes.com/2026/06/02/us/pattie-gonia-patagonia-trademark-lawsuit.html
+
+**Who Is the Baklava Guy at the Knicks Games?**\
+`In city parks, at Phish shows and outside Madison Square Garden, a nomadic salesman builds his brand, one pistachio-laden wedge at a time.`\
+https://www.nytimes.com/2026/06/02/dining/good-baklava-ron-donk-knicks-playoffs.html
+
+**Instead of the AirTrain, an Air Taxi to the Airport**\
+`Joby Aviation is testing an electric-powered aircraft that can travel from Manhattan to J.F.K. in 10 minutes.`\
+https://www.nytimes.com/2026/06/02/nyregion/electric-air-taxi-airport.html
+
+**17 Plays (and 3 Festivals) to Jazz Up Your June**\
+`Billy Porter, Wayne Brady, Sting and Suzan-Lori Parks are all slated to star on Off Broadway stages this month.`\
+https://www.nytimes.com/2026/06/02/theater/plays-and-festivals-jazz-up-june.html
+
+**Solve the June Bonus Puzzle**\
+`This month’s drag-themed puzzle was co-constructed by Bianca Del Rio, a stand-up comic and performance artist.`\
+https://www.nytimes.com/2026/06/02/crosswords/bonus-puzzle-drag.html
+
+**We Need Theater That Makes Us Bawl**\
+`Over 75 years ago, Arthur Miller made the case for works that explore the tragedy of the common man. Why are we still resisting his call?`\
+https://www.nytimes.com/2026/06/02/opinion/arthur-miller-tragedy.html
+
+**Ian Bremmer on the Risks America Poses to the World**\
+`The political risk analyst Ian Bremmer argues that the greatest driver of risk in the world right now is President Trump.`\
+https://www.nytimes.com/video/opinion/100000010932835/ian-bremmer-on-the-risks-america-poses-to-the-world.html
+
+**California Primary Elections: What to Watch in the Governor’s Race, L.A. Mayoral Race and More**\
+`The race to replace Gov. Gavin Newsom has been unpredictable for months, while Mayor Karen Bass of Los Angeles is trying to fend off two challengers.`\
+https://www.nytimes.com/2026/06/02/us/elections/california-primary-what-to-watch.html
+
+**What to Watch in Tuesday’s Primary Elections in Iowa, Montana and Beyond**\
+`Democrats have a competitive Senate primary race in Iowa, where the party is hoping to make gains, while a smokejumper is running in a contested House primary in Montana.`\
+https://www.nytimes.com/2026/06/02/us/politics/iowa-montana-primary-election-midterms.html
+
+**‘Amadeus’ and Beyond: Where to Watch Movies About Composers**\
+`The latest adaptation of Peter Shaffer’s “Amadeus” joins a rich lineage of fantastical and extravagant musical biopics.`\
+https://www.nytimes.com/2026/06/02/arts/music/amadeus-composer-movies.html
+
+**Five Homes for Sale With Dreamy Pools**\
+`A 1960s compound in the Berkshires, a tropical cottage in Miami, a quintessential Hamptons house, and two California retreats.`\
+https://www.nytimes.com/2026/06/02/realestate/five-homes-for-sale-with-dreamy-pools.html
+
+**At Diane Keaton’s Estate Auction, Colorful Trims, ‘Annie Hall’ and More**\
+`Hundreds of items that highlight the actress’s subversive style and her assured role as collector and curator are up for bidding.`\
+https://www.nytimes.com/2026/06/02/style/diane-keaton-auction-bonhams.html
+
+**Obama Center’s Two Sides: A Lovely Park and a Forbidding Tower**\
+`In Chicago, the $850 million Obama Presidential Center aims to remake a neighborhood with a 19.3-acre community hub and a brooding 225-foot museum.`\
+https://www.nytimes.com/2026/06/02/arts/design/obama-presidential-center-library-chicago.html
+
+**The Toll of a ‘Missing Scientists’ Conspiracy Theory on the Families Left Behind**\
+`The claim that their loved ones’ deaths and disappearances are linked is almost certainly false — but the loss remains real.`\
+https://www.nytimes.com/2026/06/02/science/missing-scientists-conspiracy-theory-families.html
+
+**A Hot Spot on the Sedate Upper East Side? At Least in Terms of Chiles.**\
+`Lungi is the latest New York destination for the cooking of southern India, as well as Sri Lanka.`\
+https://www.nytimes.com/2026/06/02/dining/restaurant-review-lungi-nyc.html
+
+**Retirement, the Economy, Trump: 14 Baby Boomers Discuss**\
+`The group discusses their generation, the world today and the problems younger generations face.`\
+https://www.nytimes.com/interactive/2026/06/02/opinion/focus-group-baby-boomer-voters.html
+
+**What Ireland and Germany Can Teach Us About Birthright Citizenship**\
+`President Trump has argued that the United States is “stupid” for granting citizenship at birth. Most countries don’t do so, but that can create problems.`\
+https://www.nytimes.com/2026/06/02/business/economy/birthright-citizenship-ireland-germany-trump.html
+
+**My Two Sleepless Months With the Eight Sleep Pod**\
+`The luxury gadget promises to hack sleep — and relationships. But can anything?`\
+https://www.nytimes.com/2026/06/02/magazine/ai-bedding-mattress-eight-sleep.html
+
+**How the Oprah Tax Code Swept America**\
+`Here’s how to make taxes work.`\
+https://www.nytimes.com/2026/06/02/opinion/anti-tax-break-code-oprah.html
 
