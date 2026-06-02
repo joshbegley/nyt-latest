@@ -1,3 +1,7 @@
+**Trump Targets Brazil With 25% Tariff, Citing Unfair Trade Practices**\
+`The proposal marks the latest effort by the administration to rebuild its tariff agenda through Section 301 investigations.`\
+https://www.nytimes.com/2026/06/02/business/trump-tariffs-brazil.html
+
 **La capital mundial de las papas fritas tiene un problema: demasiadas papas**\
 `Bélgica tuvo una cosecha récord justo cuando los aranceles del gobierno de Donald Trump redujeron la demanda estadounidense de papas fritas congeladas y la competencia asiática se intensificó.`\
 https://www.nytimes.com/es/2026/06/02/espanol/negocios/europa-belgica-papas-exceso.html
