@@ -1,3 +1,11 @@
+**Live Election Results 2026: Key Races on June 2**\
+`See results and maps from key races in the June 2 primaries.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-key-races-june-2.html
+
+**Kenyans Protest Plan for U.S. Ebola Quarantine Unit**\
+`After days of protests, Kenya’s high court effectively delayed the Trump administration’s plan to send American citizens exposed to the Ebola virus to a quarantine unit at Laikipia Air Base in central Kenya.`\
+https://www.nytimes.com/video/world/africa/100000010940013/ebola-quarantine-kenya-us.html
+
 **Why the U.S.-Iran Negotiations Are Taking So Long**\
 `As negotiations to end the war in Iran drag on, our reporter David E. Sanger describes the factors that are complicating any agreement.`\
 https://www.nytimes.com/video/us/100000010937785/why-the-us-iran-negotiations-are-taking-so-long.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/06/02/us/dallas-whale-mural-wyland-lawsuit-fifa-wor
 **Ballet Tech Gave Them Dance. Now They Give Back.**\
 `Kids Dance, from the New York Public School for Dance, is debuting a work featuring alumni. That’s not the only way former students are involved with the school.`\
 https://www.nytimes.com/2026/06/02/arts/dance/ballet-tech-kids-dance-alumni.html
-
-**Iran Reveals 3-Day Funeral Plan for Ayatollah Khamenei, After Long Delay**\
-`Ceremonies for Ayatollah Ali Khamenei will be held in multiple cities, including Tehran, where authorities expect up to 20 million people to attend, Iranian state media reported.`\
-https://www.nytimes.com/2026/06/02/world/middleeast/ayatollah-khamenei-funeral-iran.html
-
-**Police Say Muscatine, Iowa Man Shot 6 Relatives Before Killing Himself**\
-`The man, Ryan Willis McFarland, 52, was confronted by the police, who said the killings followed a domestic dispute.`\
-https://www.nytimes.com/2026/06/02/us/muscatine-iowa-shooting-family.html
 
 **California Election Live Updates: Primary Battles Could Set Direction for California and Congress**\
 `Tuesday’s nonpartisan primaries will determine which candidates make the fall ballot in consequential races for governor, all 52 of the state’s congressional seats and Los Angeles mayor.`\

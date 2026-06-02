@@ -1,3 +1,11 @@
+**Why the U.S.-Iran Negotiations Are Taking So Long**\
+`As negotiations to end the war in Iran drag on, our reporter David E. Sanger describes the factors that are complicating any agreement.`\
+https://www.nytimes.com/video/us/100000010937785/why-the-us-iran-negotiations-are-taking-so-long.html
+
+**Rubio Suggests U.S. Return to Global Vaccine Program in Rebuke of Kennedy**\
+`Secretary of State Marco Rubio indicated in pointed testimony to senators that he was reclaiming control of the U.S. relationship with Gavi, an international vaccine alliance.`\
+https://www.nytimes.com/2026/06/02/us/politics/rubio-kennedy-vaccines-gavi.html
+
 **‘Did I Have a Choice?’ In New Jersey, Kean Voters Explain Themselves.**\
 `Some Republicans outside polling sites acknowledged how strange it felt to cast a ballot for Representative Thomas Kean Jr., who has not been seen in public for months.`\
 https://www.nytimes.com/2026/06/02/nyregion/thomas-kean-voters-new-jersey.html
@@ -114,7 +122,7 @@ https://www.nytimes.com/2026/06/02/business/msc-iraq-port-iran-war.html
 `The Canadian trade minister is visiting Washington on Tuesday to meet with the U.S. Trade Representative.`\
 https://www.nytimes.com/2026/06/02/world/canada/trump-canada-us-trade-usmca.html
 
-**5 Bills in Limbo as New York Lawmakers Prepare to Leave Town**\
+**Moratorium on Data Centers Nears Passage as N.Y. Lawmakers Wind Down**\
 `In the final hectic days of the legislative session, data centers, redistricting and algorithmic pricing vie for New York State lawmakers’ attention.`\
 https://www.nytimes.com/2026/06/02/nyregion/data-centers-redistricting-ny.html
 
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/06/02/world/middleeast/ayatollah-khamenei-funeral-i
 **Police Say Muscatine, Iowa Man Shot 6 Relatives Before Killing Himself**\
 `The man, Ryan Willis McFarland, 52, was confronted by the police, who said the killings followed a domestic dispute.`\
 https://www.nytimes.com/2026/06/02/us/muscatine-iowa-shooting-family.html
-
-**Guerra en Ucrania: Rusia ataca Kiev**\
-`Las advertencias reiteradas de Moscú de un gran ataque, y el retraso en su ejecución, parecieron querer infligir un daño psicológico a la capital de Ucrania.`\
-https://www.nytimes.com/es/2026/06/02/espanol/mundo/rusia-ataca-ucrania-kiev.html
-
-**‘La La Land’ Orchestral Performance Saved by Keyboardist in the Audience**\
-`After a musician fell ill during a live performance of the score from “La La Land,” the composer Justin Hurwitz asked for a sight reader. A 21-year-old student stepped up.`\
-https://www.nytimes.com/2026/06/02/world/australia/la-la-land-sydney-concert-audience-member.html
 
 **California Election Live Updates: Primary Battles Could Set Direction for California and Congress**\
 `Tuesday’s nonpartisan primaries will determine which candidates make the fall ballot in consequential races for governor, all 52 of the state’s congressional seats and Los Angeles mayor.`\

@@ -1,3 +1,15 @@
+**Why the U.S.-Iran Negotiations Are Taking So Long**\
+`As negotiations to end the war in Iran drag on, our reporter David E. Sanger describes the factors that are complicating any agreement.`\
+https://www.nytimes.com/video/us/100000010937785/why-the-us-iran-negotiations-are-taking-so-long.html
+
+**Rubio Suggests U.S. Return to Global Vaccine Program in Rebuke of Kennedy**\
+`Secretary of State Marco Rubio indicated in pointed testimony to senators that he was reclaiming control of the U.S. relationship with Gavi, an international vaccine alliance.`\
+https://www.nytimes.com/2026/06/02/us/politics/rubio-kennedy-vaccines-gavi.html
+
+**Moratorium on Data Centers Nears Passage as N.Y. Lawmakers Wind Down**\
+`In the final hectic days of the legislative session, data centers, redistricting and algorithmic pricing vie for New York State lawmakers’ attention.`\
+https://www.nytimes.com/2026/06/02/nyregion/data-centers-redistricting-ny.html
+
 **‘Did I Have a Choice?’ In New Jersey, Kean Voters Explain Themselves.**\
 `Some Republicans outside polling sites acknowledged how strange it felt to cast a ballot for Representative Thomas Kean Jr., who has not been seen in public for months.`\
 https://www.nytimes.com/2026/06/02/nyregion/thomas-kean-voters-new-jersey.html
