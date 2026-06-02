@@ -150,13 +150,13 @@ https://www.nytimes.com/2026/06/02/arts/music/amadeus-composer-movies.html
 `A 1960s compound in the Berkshires, a tropical cottage in Miami, a quintessential Hamptons house, and two California retreats.`\
 https://www.nytimes.com/2026/06/02/realestate/five-homes-for-sale-with-dreamy-pools.html
 
-**Obama Center’s Two Sides: A Lovely Park and a Forbidding Tower**\
-`In Chicago, the $850 million Obama Presidential Center aims to remake a neighborhood with a 19.3-acre community hub and a brooding 225-foot museum.`\
-https://www.nytimes.com/2026/06/02/arts/design/obama-presidential-center-library-chicago.html
-
 **At Diane Keaton’s Estate Auction, Colorful Trims, ‘Annie Hall’ and More**\
 `Hundreds of items that highlight the actress’s subversive style and her assured role as collector and curator are up for bidding.`\
 https://www.nytimes.com/2026/06/02/style/diane-keaton-auction-bonhams.html
+
+**Obama Center’s Two Sides: A Lovely Park and a Forbidding Tower**\
+`In Chicago, the $850 million Obama Presidential Center aims to remake a neighborhood with a 19.3-acre community hub and a brooding 225-foot museum.`\
+https://www.nytimes.com/2026/06/02/arts/design/obama-presidential-center-library-chicago.html
 
 **The Toll of a ‘Missing Scientists’ Conspiracy Theory on the Families Left Behind**\
 `The claim that their loved ones’ deaths and disappearances are linked is almost certainly false — but the loss remains real.`\
