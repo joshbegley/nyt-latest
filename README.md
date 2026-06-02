@@ -1,3 +1,11 @@
+**Hawaii Man Charged With Killing Three Men**\
+`An expansive manhunt on the Big Island of Hawaii ended with the suspect’s arrest on Thursday in the deaths of the men, who were in their 60s and 70s.`\
+https://www.nytimes.com/2026/06/01/us/hawaii-murders-pahoa-charges.html
+
+**NYT Crossword Answers for June 2, 2026**\
+`Rich Katz is here to cheer you up.`\
+https://www.nytimes.com/2026/06/01/crosswords/daily-puzzle-2026-06-02.html
+
 **Trump Administration Announces Stricter Rules for Medicaid Work Requirement**\
 `By tightening an exception for people with serious illnesses, more of them may lose coverage.`\
 https://www.nytimes.com/2026/06/01/upshot/trump-medicaid-work-requirements.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/01/opinion/old-elderly.html
 **Edward Burns on What It’s like to Be a Tribeca Festival Veteran**\
 `The filmmaker, who is screening his ninth film at the festival, talked about the importance of Tribeca and what he has learned about sustaining an independent filmmaking career.`\
 https://www.nytimes.com/2026/06/01/movies/edward-burns-tribeca-film-festival.html
-
-**Tribeca Festival: Andre Holland’s Ability to Connect to Audiences Is on Display**\
-`The actor’s ability to connect to roles is on display in two films, “The Revisionist” and “They Fight,” premiering at this year’s Tribeca Festival.`\
-https://www.nytimes.com/2026/06/01/movies/andre-holland-tribeca-festival.html
-
-**At Tribeca, a New Look at an ’80s Thriller About New York’s Gay Underground**\
-`The troubled legacy of “Cruising” is the subject of “Mineshaft: The Cruising Murders,” a documentary premiering at the Tribeca Festival.`\
-https://www.nytimes.com/2026/06/01/movies/cruising-gay-tribeca-documentary.html
 
