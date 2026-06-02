@@ -1,3 +1,11 @@
+**Audience Member at ‘La La Land’ Concert Fills in for Sick Keyboardist**\
+`Sterling Nasa, a 21-year-old university student, filled in for a keyboard player who had fallen ill during a “La La Land” orchestral performance in Australia.`\
+https://www.nytimes.com/video/world/asia/100000010939017/la-la-land-keyboardist-concert.html
+
+**Lebanon Endures Threats, Diplomacy and Whiplash as Others Decide Its Fate**\
+`The conflict between the United States, Israel and Iran looms over a state that has been pummeled by military strikes but has little say in determining its own future.`\
+https://www.nytimes.com/2026/06/02/world/middleeast/lebanon-israel-us-threats-diplomacy.html
+
 **White House Seeks to Impose Political Test on Billions in Federal Grants**\
 `A new proposal would allow the administration to block grants if they do not satisfy President Trump’s agenda or support what it calls “anti-American” values.`\
 https://www.nytimes.com/2026/06/02/us/politics/trump-budget-grants-omb-vought.html
