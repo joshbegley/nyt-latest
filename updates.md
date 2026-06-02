@@ -1,3 +1,15 @@
+**Protests Grow in Albania Over Kushner-Linked Project**\
+`Plans for luxury resorts on the Adriatic Sea have long worried environmentalists. The developments are now a flashpoint for broader frustrations with the government.`\
+https://www.nytimes.com/2026/06/02/world/europe/albania-kushner-protests-hotel.html
+
+**Curfew to Be Lifted Near NJ’s Delaney Hall ICE Facility Where Protests Have Raged**\
+`The restrictions outside Delaney Hall immigration detention center were imposed after demonstrators who were protesting the conditions at the facility had clashed with the police.`\
+https://www.nytimes.com/2026/06/02/nyregion/delaney-hall-curfew-protests.html
+
+**Map: 3.6-Magnitude Earthquake Shakes the San Francisco Bay Area**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/02/us/quake-tracker-san-francisco-bay-area.html
+
 **5 Bills in Limbo as New York Lawmakers Prepare to Leave Town**\
 `In the final hectic days of the legislative session, data centers, redistricting and algorithmic pricing vie for New York State lawmakers’ attention.`\
 https://www.nytimes.com/2026/06/02/nyregion/data-centers-redistricting-ny.html
