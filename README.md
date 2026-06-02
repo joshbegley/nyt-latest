@@ -1,3 +1,7 @@
+**Immigration Bill Teeters as G.O.P. Awaits Clarity on Trump’s Fund**\
+`The top Senate Republican said he had been assured that the acting attorney general would make a ‘very definitive, very clear’ statement on the fund at a House hearing.`\
+https://www.nytimes.com/2026/06/02/us/politics/trump-fund-thune.html
+
 **Trans Minors Sue to Stop Justice Department Access to Medical Records**\
 `The Trump administration says it is investigating off-label medication use and fraudulent billing. Families say the inquiry is a new way to press hospitals to end the care.`\
 https://www.nytimes.com/2026/06/02/us/transgender-minors-medical-records-lawsuits.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/02/world/middleeast/lebanon-israel-us-threats-di
 **New Proposal Would Allow Administration to Block Grants if They Don’t Support Trump’s Agenda**\
 `A new proposal would allow the administration to block grants if they do not satisfy President Trump’s agenda or support what it calls “anti-American” values.`\
 https://www.nytimes.com/2026/06/02/us/politics/trump-budget-grants-omb-vought.html
-
-**Only the Right Tests Can Stop This Ebola Outbreak. Congo Has Hardly Any.**\
-`A chronic lack of investment in development of better tests has left clinicians blind and allows deadly viruses to spread unchecked.`\
-https://www.nytimes.com/2026/06/02/health/ebola-tests-congo.html
 
 **California Election Live Updates: Primary Battles Could Set Direction for California and Congress**\
 `Tuesday’s nonpartisan primaries will determine which candidates make the fall ballot in consequential races for governor, all 52 of the state’s congressional seats and Los Angeles mayor.`\

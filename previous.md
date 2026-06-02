@@ -1,3 +1,7 @@
+**Trans Minors Sue to Stop Justice Department Access to Medical Records**\
+`The Trump administration says it is investigating off-label medication use and fraudulent billing. Families say the inquiry is a new way to press hospitals to end the care.`\
+https://www.nytimes.com/2026/06/02/us/transgender-minors-medical-records-lawsuits.html
+
 **The Iran War Has Led to Months of Global Shortages**\
 `Three months after the Strait of Hormuz was first closed, many countries are experiencing shortages of key goods.`\
 https://www.nytimes.com/2026/06/02/climate/iran-warn-global-shortages.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/02/us/politics/trump-budget-grants-omb-vought.ht
 **Only the Right Tests Can Stop This Ebola Outbreak. Congo Has Hardly Any.**\
 `A chronic lack of investment in development of better tests has left clinicians blind and allows deadly viruses to spread unchecked.`\
 https://www.nytimes.com/2026/06/02/health/ebola-tests-congo.html
-
-**Trump Names Bill Pulte as Acting Director of National Intelligence**\
-`Bill Pulte, a Trump loyalist who leads the federal housing finance agency, will oversee the U.S. intelligence agencies. He has no known background in intelligence.`\
-https://www.nytimes.com/2026/06/02/us/politics/bill-pulte-acting-director-national-intelligence.html
 
 **California Election Live Updates: Primary Battles Could Set Direction for California and Congress**\
 `Tuesday’s nonpartisan primaries will determine which candidates make the fall ballot in consequential races for governor, all 52 of the state’s congressional seats and Los Angeles mayor.`\

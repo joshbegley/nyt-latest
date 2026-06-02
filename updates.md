@@ -1,3 +1,7 @@
+**Trans Minors Sue to Stop Justice Department Access to Medical Records**\
+`The Trump administration says it is investigating off-label medication use and fraudulent billing. Families say the inquiry is a new way to press hospitals to end the care.`\
+https://www.nytimes.com/2026/06/02/us/transgender-minors-medical-records-lawsuits.html
+
 **Blanche Expected to Address Concerns Over $1.8 Billion Fund**\
 `The acting attorney general’s testimony comes a day after the Justice Department signaled it would abide by a court ruling halting the fund temporarily.`\
 https://www.nytimes.com/2026/06/02/us/politics/todd-blanche-house-hearing.html
