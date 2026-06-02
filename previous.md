@@ -1,3 +1,11 @@
+**El movimiento de Alberta para separarse de Canadá llega a las urnas**\
+`En octubre, los habitantes de Alberta podrán decidir si quieren permanecer en Canadá o celebrar un referendo para separarse. ¿Resolverá el asunto o profundizará la división?`\
+https://www.nytimes.com/es/2026/06/02/espanol/mundo/canada-alberta-separacion-voto.html
+
+**Word of the Day: parsimonious**\
+`This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/06/02/learning/word-of-the-day-parsimonious.html
+
 **Putin Has No Good Way Out of His War**\
 `Perpetuating a war is not the same as winning one.`\
 https://www.nytimes.com/2026/06/02/opinion/putin-russia-war-strength.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/06/01/espanol/cultura/dua-lipa-callum-turner-se-
 **I.R.A. Rebates for Appliance Swaps Could Be Phased Out**\
 `New guidance from the Energy Department would prevent people from receiving rebates after making such swaps.`\
 https://www.nytimes.com/2026/06/01/climate/energy-rebates-home-appliances.html
-
-**Dua Lipa Wears Bianca Jagger-Inspired Wedding Look to Marry Callum Turner**\
-`The bride wore a wedding suit look inspired by Bianca Jagger, and the groom wore a double-breasted Ferragamo suit.`\
-https://www.nytimes.com/2026/06/01/style/dua-lipa-callum-turner-wedding-dress.html
-
-**The Best Movies and TV Shows Coming to Disney+, Amazon, AMC+, Apple TV and More in June**\
-`“The Vampire Lestat,” “Hoppers” and “Not Suitable for Work” arrive and “The Bear” returns.`\
-https://www.nytimes.com/2026/06/01/arts/television/movies-tv-shows-june-2026-streaming.html
 
