@@ -1,3 +1,11 @@
+**La capital mundial de las papas fritas tiene un problema: demasiadas papas**\
+`Bélgica tuvo una cosecha récord justo cuando los aranceles del gobierno de Donald Trump redujeron la demanda estadounidense de papas fritas congeladas y la competencia asiática se intensificó.`\
+https://www.nytimes.com/es/2026/06/02/espanol/negocios/europa-belgica-papas-exceso.html
+
+**Trump Targets Brazil with 25% Tariff, Citing Unfair Trade Practices**\
+`The proposal marks the latest effort by the administration to rebuild its tariff agenda through Section 301 investigations.`\
+https://www.nytimes.com/2026/06/02/business/trump-tariffs-brazil.html
+
 **Trump podría ganar un importante aliado en las próximas elecciones de Colombia**\
 `Abelardo de la Espriella, un candidato de línea dura de la derecha que se enfrenta a un rival de izquierda en una segunda vuelta presidencial, ha prometido aplastar a los narcotraficantes.`\
 https://www.nytimes.com/es/2026/06/02/espanol/america-latina/trump-aliado-elecciones-colombia.html
