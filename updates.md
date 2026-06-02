@@ -1,3 +1,11 @@
+**Hawaii Man Charged With Killing Three Men**\
+`An expansive manhunt on the Big Island of Hawaii ended with the suspect’s arrest on Thursday in the deaths of the men, who were in their 60s and 70s.`\
+https://www.nytimes.com/2026/06/01/us/hawaii-murders-pahoa-charges.html
+
+**NYT Crossword Answers for June 2, 2026**\
+`Rich Katz is here to cheer you up.`\
+https://www.nytimes.com/2026/06/01/crosswords/daily-puzzle-2026-06-02.html
+
 **Trump Administration Announces Stricter Rules for Medicaid Work Requirement**\
 `By tightening an exception for people with serious illnesses, more of them may lose coverage.`\
 https://www.nytimes.com/2026/06/01/upshot/trump-medicaid-work-requirements.html
