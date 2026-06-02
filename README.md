@@ -1,3 +1,11 @@
+**Rubio to Testify Before Senate, Arguing for Budget Amid Iran War and Pressure on Cuba**\
+`The secretary of state has played a key role in the Iran deliberations, as well as in U.S. policy toward Cuba.`\
+https://www.nytimes.com/2026/06/02/us/politics/marco-rubio-senate-budget-iran-cuba.html
+
+**Russia Is Showing Signs of Weakness in Ukraine. So It Hits Harder.**\
+`The war has not been going the Kremlin’s way recently, with battleground losses and mounting casualties. With renewed strikes, Moscow hopes to gain a better position for negotiations.`\
+https://www.nytimes.com/2026/06/02/world/europe/ukraine-russia-war-strikes.html
+
 **Meta Expands Safety Features for Teenagers**\
 `The changes, after Meta’s legal losses in two child safety cases, are aimed at limiting harmful content shown to teenagers on Instagram, Facebook and Messenger.`\
 https://www.nytimes.com/2026/06/02/technology/meta-safety-features-teenagers.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/02/well/children-vaccines-illnesses.html
 **5 Beautiful Hawaiian Swimming Holes**\
 `Clear natural pools, many fed by crystalline waterfalls, give visitors to Hawaii a refreshing reason to expand their explorations beyond the beach.`\
 https://www.nytimes.com/2026/06/02/travel/hawaii-swimming-holes-waterfalls.html
-
-**Is It Bad to Sleep With My Pet?**\
-`It seems as if everyone has an opinion, so we put the question to the experts.`\
-https://www.nytimes.com/2026/06/02/well/health-risks-sleeping-with-pet.html
-
-**Russia Launches Deadly Strikes on Ukraine**\
-`Russian missiles and drones hit Kyiv, the Ukrainian capital, early Tuesday, more than a week after Russia warned of a plan to strike “decision-making centers” in the city.`\
-https://www.nytimes.com/video/world/europe/100000010938828/ukraine-kyiv-russia-attack.html
 
