@@ -1,3 +1,7 @@
+**Trump Signs Executive Order Granting Oversight of A.I. Models**\
+`The order, which signaled a shift from the hands-off approach the White House had previously taken toward A.I., followed debates over how to gain control of A.I. models without disrupting innovation.`\
+https://www.nytimes.com/2026/06/02/technology/trump-executive-order-ai.html
+
 **Congress to Consider Restricting How the Military Uses A.I.**\
 `One measure would codify rules tech companies have requested, including a ban on using artificial intelligence for domestic surveillance.`\
 https://www.nytimes.com/2026/06/02/us/politics/military-ai-laws-congress.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/02/movies/tribeca-festival-highlights.html
 **Pattie Gonia, a Drag Queen, Is Sued by Patagonia Over Trademark Infringement**\
 `The outdoor apparel company says the drag queen and environmentalist is using its name for commercial purposes. She’s ready to go to court.`\
 https://www.nytimes.com/2026/06/02/us/pattie-gonia-patagonia-trademark-lawsuit.html
-
-**Who Is the Baklava Guy at the Knicks Games?**\
-`In city parks, at Phish shows and outside Madison Square Garden, a nomadic salesman builds his brand, one pistachio-laden wedge at a time.`\
-https://www.nytimes.com/2026/06/02/dining/good-baklava-ron-donk-knicks-playoffs.html
 

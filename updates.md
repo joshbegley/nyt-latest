@@ -1,3 +1,7 @@
+**Congress to Consider Restricting How the Military Uses A.I.**\
+`One measure would codify rules tech companies have requested, including a ban on using artificial intelligence for domestic surveillance.`\
+https://www.nytimes.com/2026/06/02/us/politics/military-ai-laws-congress.html
+
 **New Federal Guidelines Threaten Almost Half of Graduate Arts Programs**\
 `Many musicians, filmmakers and artists earn less than the Education Department’s proposed guidelines for alumni, imperiling federal aid for students in those programs.`\
 https://www.nytimes.com/2026/06/02/arts/design/education-department-earnings-salary.html
