@@ -1,3 +1,35 @@
+**Police Say Muscatine, Iowa Man Shot 6 Relatives Before Killing Himself**\
+`The man, Ryan Willis McFarland, 52, was confronted by the police, who said the killings followed a domestic dispute.`\
+https://www.nytimes.com/2026/06/02/us/muscatine-iowa-shooting-family.html
+
+**Guerra en Ucrania: Rusia ataca Kiev**\
+`Las advertencias reiteradas de Moscú de un gran ataque, y el retraso en su ejecución, parecieron querer infligir un daño psicológico a la capital de Ucrania.`\
+https://www.nytimes.com/es/2026/06/02/espanol/mundo/rusia-ataca-ucrania-kiev.html
+
+**‘La La Land’ Orchestral Performance Saved by Keyboardist in the Audience**\
+`After a musician fell ill during a live performance of the score from “La La Land,” the composer Justin Hurwitz asked for a sight reader. A 21-year-old student stepped up.`\
+https://www.nytimes.com/2026/06/02/world/australia/la-la-land-sydney-concert-audience-member.html
+
+**Oriana Lights the Wood-Fired Grill Just in Time for Summer**\
+`A luxury sushi restaurant gets a New York location, Red Beard Coffee & Bakery serves creative riffs on classics and more restaurant news.`\
+https://www.nytimes.com/2026/06/02/dining/nyc-restaurant-news.html
+
+**Audience Member at ‘La La Land’ Concert Fills in for Sick Keyboardist**\
+`Sterling Nasa, a 21-year-old university student, filled in for a keyboard player who had fallen ill during a “La La Land” orchestral performance in Australia.`\
+https://www.nytimes.com/video/world/asia/100000010939017/la-la-land-keyboardist-concert.html
+
+**Lebanon Endures Threats, Diplomacy and Whiplash as Others Decide Its Fate**\
+`The conflict between the United States, Israel and Iran looms over a state that has been pummeled by military strikes but has little say in determining its own future.`\
+https://www.nytimes.com/2026/06/02/world/middleeast/lebanon-israel-us-threats-diplomacy.html
+
+**New Proposal Would Allow Administration to Block Grants if They Don’t Support Trump’s Agenda**\
+`A new proposal would allow the administration to block grants if they do not satisfy President Trump’s agenda or support what it calls “anti-American” values.`\
+https://www.nytimes.com/2026/06/02/us/politics/trump-budget-grants-omb-vought.html
+
+**Only the Right Tests Can Stop This Ebola Outbreak. Congo Has Hardly Any.**\
+`A chronic lack of investment in development of better tests has left clinicians blind and allows deadly viruses to spread unchecked.`\
+https://www.nytimes.com/2026/06/02/health/ebola-tests-congo.html
+
 **Trump Names Bill Pulte as Acting Director of National Intelligence**\
 `Bill Pulte, a Trump loyalist who leads the federal housing finance agency, will have oversight of the United States intelligence agencies. He has no known background in intelligence.`\
 https://www.nytimes.com/2026/06/02/us/politics/bill-pulte-acting-director-national-intelligence.html
@@ -165,36 +197,4 @@ https://www.nytimes.com/2026/06/02/arts/music/amadeus-composer-movies.html
 **Five Homes for Sale With Dreamy Pools**\
 `A 1960s compound in the Berkshires, a tropical cottage in Miami, a quintessential Hamptons house, and two California retreats.`\
 https://www.nytimes.com/2026/06/02/realestate/five-homes-for-sale-with-dreamy-pools.html
-
-**At Diane Keaton’s Estate Auction, Colorful Trims, ‘Annie Hall’ and More**\
-`Hundreds of items that highlight the actress’s subversive style and her assured role as collector and curator are up for bidding.`\
-https://www.nytimes.com/2026/06/02/style/diane-keaton-auction-bonhams.html
-
-**Obama Center’s Two Sides: A Lovely Park and a Forbidding Tower**\
-`In Chicago, the $850 million Obama Presidential Center aims to remake a neighborhood with a 19.3-acre community hub and a brooding 225-foot museum.`\
-https://www.nytimes.com/2026/06/02/arts/design/obama-presidential-center-library-chicago.html
-
-**The Toll of a ‘Missing Scientists’ Conspiracy Theory on the Families Left Behind**\
-`The claim that their loved ones’ deaths and disappearances are linked is almost certainly false — but the loss remains real.`\
-https://www.nytimes.com/2026/06/02/science/missing-scientists-conspiracy-theory-families.html
-
-**A Hot Spot on the Sedate Upper East Side? At Least in Terms of Chiles.**\
-`Lungi is the latest New York destination for the cooking of southern India, as well as Sri Lanka.`\
-https://www.nytimes.com/2026/06/02/dining/restaurant-review-lungi-nyc.html
-
-**Retirement, the Economy, Trump: 14 Baby Boomers Discuss**\
-`The group discusses their generation, the world today and the problems younger generations face.`\
-https://www.nytimes.com/interactive/2026/06/02/opinion/focus-group-baby-boomer-voters.html
-
-**What Ireland and Germany Can Teach Us About Birthright Citizenship**\
-`President Trump has argued that the United States is “stupid” for granting citizenship at birth. Most countries don’t do so, but that can create problems.`\
-https://www.nytimes.com/2026/06/02/business/economy/birthright-citizenship-ireland-germany-trump.html
-
-**My Two Sleepless Months With the Eight Sleep Pod**\
-`The luxury gadget promises to hack sleep — and relationships. But can anything?`\
-https://www.nytimes.com/2026/06/02/magazine/ai-bedding-mattress-eight-sleep.html
-
-**How the Oprah Tax Code Swept America**\
-`Here’s how to make taxes work.`\
-https://www.nytimes.com/2026/06/02/opinion/anti-tax-break-code-oprah.html
 
