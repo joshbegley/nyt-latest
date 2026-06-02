@@ -1,3 +1,11 @@
+**Thomas Kean Jr., Missing NJ Congressman, Issues Statement Promising ‘Transparency’**\
+`Representative Thomas Kean Jr., a Republican who has been absent from Congress and the campaign trail since March, suggested it could be weeks before he returned to work.`\
+https://www.nytimes.com/2026/06/02/us/politics/thomas-kean-jr-new-jersey-statement.html
+
+**Order Shielding Trump Family From I.R.S. Audits Will Remain, Blanche Says**\
+`The acting attorney general said the administration was preserving a broad order shielding the president and his family from audits of already filed returns, despite dropping a $1.8 billion payout fund.`\
+https://www.nytimes.com/2026/06/02/us/politics/trump-irs-settlement.html
+
 **Xavier Becerra: 5 Facts About the Candidate for California Governor**\
 `Mr. Becerra has become an unexpected front-runner in the race for California governor after lagging in polls for months.`\
 https://www.nytimes.com/2026/06/02/us/politics/xavier-becerra-california-governor.html

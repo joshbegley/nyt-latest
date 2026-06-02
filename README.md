@@ -1,3 +1,15 @@
+**Roman Catholic Priest Sentenced to Life in Prison for Sexual Assault**\
+`Father Anthony Odiong, who served in Texas and Louisiana, had been found guilty of abusing multiple women. Prosecutors say the abuse almost certainly resulted in the birth of a child.`\
+https://www.nytimes.com/2026/06/02/us/waco-texas-priest-sexual-assault-sentence.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000010941091/California-Primaries-Daniel-Gomez-56882.html
+
+**Administration Argues for Power Over Philadelphia Slavery Memorial**\
+`More than 100 onlookers packed a ceremonial courtroom for legal arguments before an appeals court about the presentation of history at George Washington’s former residence.`\
+https://www.nytimes.com/2026/06/02/us/politics/trump-slavery-philadelphia-president-house.html
+
 **Thomas Kean Jr., Missing NJ Congressman, Issues Statement Promising ‘Transparency’**\
 `Representative Thomas Kean Jr., a Republican who has been absent from Congress and the campaign trail since March, suggested it could be weeks before he returned to work.`\
 https://www.nytimes.com/2026/06/02/us/politics/thomas-kean-jr-new-jersey-statement.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-california-us-hous
 **California 33rd Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 California primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-33-primary.html
-
-**California 26th Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 California primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-26-primary.html
-
-**California 28th Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 California primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-28-primary.html
-
-**California 22nd Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 California primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-22-primary.html
 
