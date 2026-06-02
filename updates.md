@@ -1,3 +1,11 @@
+**‘Did I Have a Choice?’ In New Jersey, Kean Voters Explain Themselves.**\
+`Some Republicans outside polling sites acknowledged how strange it felt to cast a ballot for Representative Thomas Kean Jr., who has not been seen in public for months.`\
+https://www.nytimes.com/2026/06/02/nyregion/thomas-kean-voters-new-jersey.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000010940596/29vid-California-Primaries-Hali-Rodriguez-92872.html
+
 **Democrats Pledge to Fight Trump’s Termination of Ocean Monitoring Observatories**\
 `The Trump administration is dismantling a $368 million deep-ocean observation system that monitors marine ecosystems and the effects of climate change.`\
 https://www.nytimes.com/2026/06/02/climate/trump-ocean-monitors-climate-research.html
