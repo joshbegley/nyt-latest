@@ -42,7 +42,7 @@ https://www.nytimes.com/2026/06/02/crosswords/wordle-review-1810.html
 `Pablo visits the mayor of New York to discuss Knicks joy, Arsenal tears, hair loss, Trump and more.`\
 https://www.nytimes.com/2026/06/02/podcasts/inside-mamdanis-nyc-sports-equinox.html
 
-**How Hezbollah Drones Upended Israel’s Strategy in Lebanon**\
+**How Hezbollah Drones Changed Israel’s Strategy in Lebanon**\
 `An Israeli campaign that started with high hopes has devolved into a kind of impasse, with Hezbollah looking more capable than it did when the war began.`\
 https://www.nytimes.com/2026/06/02/world/middleeast/israel-lebanon-hezbollah.html
 

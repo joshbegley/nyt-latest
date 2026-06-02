@@ -1,3 +1,7 @@
+**How Hezbollah Drones Changed Israel’s Strategy in Lebanon**\
+`An Israeli campaign that started with high hopes has devolved into a kind of impasse, with Hezbollah looking more capable than it did when the war began.`\
+https://www.nytimes.com/2026/06/02/world/middleeast/israel-lebanon-hezbollah.html
+
 **Meta Expands Safety Features for Teenagers**\
 `The changes, after Meta’s legal losses in two child safety cases, are aimed at limiting harmful content shown to teenagers on Instagram, Facebook and Messenger.`\
 https://www.nytimes.com/2026/06/02/technology/meta-safety-features-teenagers.html
