@@ -1,3 +1,7 @@
+**Lo que Irlanda y Alemania pueden enseñarnos sobre la ciudadanía por derecho de nacimiento**\
+`Las investigaciones han demostrado que las políticas más restrictivas pueden mermar el potencial de los niños que nacen y crecen en un país como no ciudadanos.`\
+https://www.nytimes.com/es/2026/06/02/espanol/negocios/irlanda-alemania-ciudadania-derecho-nacimiento.html
+
 **California Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 California primary elections.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-california-primary.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/02/style/street-style-look-power-neutrals.html
 **Battling a Deadly Ebola Outbreak in Eastern Congo**\
 `At the heart of the Ebola outbreak in the Democratic Republic of Congo, health care workers are racing to open new treatment centers and ramp up testing. But after years of war, the deadly virus is just one of many challenges they’re facing.`\
 https://www.nytimes.com/video/world/africa/100000010936755/ebola-virus-outbreak-congo-treatment.html
-
-**What a Short-Seller’s Conviction Might Mean for Wall St.**\
-`A federal jury found Andrew Left, who rose to fame by betting against companies, guilty of securities fraud. Other short-sellers are worried.`\
-https://www.nytimes.com/2026/06/02/business/dealbook/andrew-left-convicted-fraud.html
 
