@@ -1,3 +1,95 @@
+**The Best Movies and TV Shows Coming to Netflix in June**\
+`A World Cup comedy and a new film by Julian Schnabel are among this month’s most promising titles.`\
+https://www.nytimes.com/2026/06/02/arts/television/netflix-new-june.html
+
+**Trump Has Failed as Commander in Chief**\
+`Trump has failed to unite the country while at war and instead is seeking personal gain.`\
+https://www.nytimes.com/2026/06/02/opinion/trump-corruption-allies.html
+
+**How’s Your Job Search Going?**\
+`Chatbot recruiters, lousy benefits, delayed contracts: How’s your job search going?`\
+https://www.nytimes.com/2026/06/02/opinion/contributors/job-search-reader-callout.html
+
+**Stephen Curry and Li-Ning: What to Know About N.B.A. Star’s Deal With Chinese Sneaker Company**\
+`The agreement, which includes plans for sportswear and athleisure products, and stores across the United States and China, is the latest example of an N.B.A. star signing with a Chinese brand.`\
+https://www.nytimes.com/2026/06/02/world/asia/stephen-curry-li-ning-shoe-deal-china.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/elections/100000010939511/02vid-cali-voters-91871.html
+
+**In Her Memoir, Jill Biden Is a Watchful Spouse Who Didn’t Always Speak Up About Joe Biden**\
+`The former first lady’s new book reflects an insular White House where loyalty was prized and President Joseph R. Biden Jr.’s feelings were prioritized over health concerns.`\
+https://www.nytimes.com/2026/06/02/us/politics/jill-biden-joe-biden-memoir-health-age.html
+
+**Trump Signs Executive Order Seeking Oversight of A.I. Models**\
+`The order, which signaled a shift from the hands-off approach the White House had previously taken toward A.I., followed debates over how to gain control of A.I. models without disrupting innovation.`\
+https://www.nytimes.com/2026/06/02/technology/trump-executive-order-ai.html
+
+**Congress to Consider Restricting How the Military Uses A.I.**\
+`One measure would codify rules tech companies have requested, including a ban on using artificial intelligence for domestic surveillance.`\
+https://www.nytimes.com/2026/06/02/us/politics/military-ai-laws-congress.html
+
+**New Federal Guidelines Threaten Almost Half of Graduate Arts Programs**\
+`Many musicians, filmmakers and artists earn less than the Education Department’s proposed guidelines for alumni, imperiling federal aid for students in those programs.`\
+https://www.nytimes.com/2026/06/02/arts/design/education-department-earnings-salary.html
+
+**Knicks Fans Want ’90s Tees. Pay Very 2026 Prices.**\
+`Plus: A new Jay-Z look, the onset of all-black summer and a new gig for an ex-Marni designer`\
+https://www.nytimes.com/2026/06/02/style/knicks-90s-merch-nostalgia.html
+
+**Netanyahu’s Critics Accuse Him of Running Israel as a U.S. ‘Vassal State’**\
+`Critics pounced on the Israeli prime minister after President Trump claimed on social media he had persuaded him to call off “a major raid” on Hezbollah in Beirut.`\
+https://www.nytimes.com/2026/06/02/world/middleeast/netanyahu-criticism-beirut-attack-trump.html
+
+**Today, In Short**\
+`Dua Lipa. Serena Williams. And sleepy fish.`\
+https://www.nytimes.com/2026/06/02/briefing/today-in-short.html
+
+**Dallas Whale Mural Artist Wyland Sues FIFA After World Cup Paint-Over**\
+`The legal battle follows weeks of public anger after a nearly 30-year-old downtown landmark was mostly covered up to make way for a World Cup-related project.`\
+https://www.nytimes.com/2026/06/02/us/dallas-whale-mural-wyland-lawsuit-fifa-world-cup-texas.html
+
+**Ballet Tech Gave Them Dance. Now They Give Back.**\
+`Kids Dance, from the New York Public School for Dance, is debuting a work featuring alumni. That’s not the only way former students are involved with the school.`\
+https://www.nytimes.com/2026/06/02/arts/dance/ballet-tech-kids-dance-alumni.html
+
+**Iran Reveals 3-Day Funeral Plan for Ayatollah Khamenei, After Long Delay**\
+`Ceremonies for Ayatollah Ali Khamenei will be held in multiple cities, including Tehran, where authorities expect up to 20 million people to attend, Iranian state media reported.`\
+https://www.nytimes.com/2026/06/02/world/middleeast/ayatollah-khamenei-funeral-iran.html
+
+**Police Say Muscatine, Iowa Man Shot 6 Relatives Before Killing Himself**\
+`The man, Ryan Willis McFarland, 52, was confronted by the police, who said the killings followed a domestic dispute.`\
+https://www.nytimes.com/2026/06/02/us/muscatine-iowa-shooting-family.html
+
+**Guerra en Ucrania: Rusia ataca Kiev**\
+`Las advertencias reiteradas de Moscú de un gran ataque, y el retraso en su ejecución, parecieron querer infligir un daño psicológico a la capital de Ucrania.`\
+https://www.nytimes.com/es/2026/06/02/espanol/mundo/rusia-ataca-ucrania-kiev.html
+
+**‘La La Land’ Orchestral Performance Saved by Keyboardist in the Audience**\
+`After a musician fell ill during a live performance of the score from “La La Land,” the composer Justin Hurwitz asked for a sight reader. A 21-year-old student stepped up.`\
+https://www.nytimes.com/2026/06/02/world/australia/la-la-land-sydney-concert-audience-member.html
+
+**Oriana Lights the Wood-Fired Grill Just in Time for Summer**\
+`A luxury sushi restaurant gets a New York location, Red Beard Coffee & Bakery serves creative riffs on classics and more restaurant news.`\
+https://www.nytimes.com/2026/06/02/dining/nyc-restaurant-news.html
+
+**Audience Member at ‘La La Land’ Concert Fills in for Sick Keyboardist**\
+`Sterling Nasa, a 21-year-old university student, filled in for a keyboard player who had fallen ill during a “La La Land” orchestral performance in Australia.`\
+https://www.nytimes.com/video/world/asia/100000010939017/la-la-land-keyboardist-concert.html
+
+**Lebanon Endures Threats, Diplomacy and Whiplash as Others Decide Its Fate**\
+`The conflict between the United States, Israel and Iran looms over a state that has been pummeled by military strikes but has little say in determining its own future.`\
+https://www.nytimes.com/2026/06/02/world/middleeast/lebanon-israel-us-threats-diplomacy.html
+
+**New Proposal Would Allow Administration to Block Grants if They Don’t Support Trump’s Agenda**\
+`A new proposal would allow the administration to block grants if they do not satisfy President Trump’s agenda or support what it calls “anti-American” values.`\
+https://www.nytimes.com/2026/06/02/us/politics/trump-budget-grants-omb-vought.html
+
+**Only the Right Tests Can Stop This Ebola Outbreak. Congo Has Hardly Any.**\
+`A chronic lack of investment in development of better tests has left clinicians blind and allows deadly viruses to spread unchecked.`\
+https://www.nytimes.com/2026/06/02/health/ebola-tests-congo.html
+
 **Martin Scorsese Is Embracing A.I.**\
 `In a sign of Hollywood’s softening stance on artificial intelligence, the cinema icon is backing Black Forest Labs, an image and video generation start-up.`\
 https://www.nytimes.com/2026/06/02/business/media/martin-scorsese-artificial-intelligence.html
