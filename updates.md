@@ -1,3 +1,7 @@
+**Immigration Bill Teeters as G.O.P. Awaits Clarity on Trump’s Fund**\
+`The top Senate Republican said he had been assured that the acting attorney general would make a ‘very definitive, very clear’ statement on the fund at a House hearing.`\
+https://www.nytimes.com/2026/06/02/us/politics/trump-fund-thune.html
+
 **Trans Minors Sue to Stop Justice Department Access to Medical Records**\
 `The Trump administration says it is investigating off-label medication use and fraudulent billing. Families say the inquiry is a new way to press hospitals to end the care.`\
 https://www.nytimes.com/2026/06/02/us/transgender-minors-medical-records-lawsuits.html
