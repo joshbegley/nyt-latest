@@ -1,3 +1,15 @@
+**Why Canada’s Leader Says the Country Is Failing Jewish Canadians**\
+`Prime Minister Mark Carney’s comments followed calls from Jewish organizations to address what they described as a crisis of antisemitism.`\
+https://www.nytimes.com/2026/06/02/world/canada/carney-antisemitism-toronto-canada.html
+
+**Martin Scorsese Is Embracing A.I.**\
+`In a clear sign of Hollywood’s softening stance on artificial intelligence, the cinema icon is backing Black Forest Labs, an image generation start-up.`\
+https://www.nytimes.com/2026/06/02/business/media/martin-scorsese-artificial-intelligence.html
+
+**Street Style Look of the Week: Managing to Stand Out With Neutrals**\
+`Even amid a bustling Mexican festival, a style peacock managed to stand out in power neutrals.`\
+https://www.nytimes.com/2026/06/02/style/street-style-look-power-neutrals.html
+
 **Battling a Deadly Ebola Outbreak in Eastern Congo**\
 `At the heart of the Ebola outbreak in the Democratic Republic of Congo, health care workers are racing to open new treatment centers and ramp up testing. But after years of war, the deadly virus is just one of many challenges they’re facing.`\
 https://www.nytimes.com/video/world/africa/100000010936755/ebola-virus-outbreak-congo-treatment.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/02/books/review/land-maggie-ofarrell.html
 **Party Like a Swede! A Guide to Celebrating Midsummer.**\
 `The holiday celebrates the return of light after the long, dark Nordic winter. Here’s how to take part in Sweden, or wherever you are.`\
 https://www.nytimes.com/2026/06/02/travel/sweden-midsummer-celebrations.html
-
-**Glamour, a Once-Mighty Women’s Magazine, Turns to Shopping Links**\
-`Job cuts at Glamour and a greater focus on posts with shopping tips offer one of the clearest examples of the waning reign of women’s magazines.`\
-https://www.nytimes.com/2026/06/02/business/glamour-magazine-shopping.html
-
-**Book Review: ‘The Fire Agent,’ by David Baerwald**\
-`“The Fire Agent,” by David Baerwald, is a historical novel that spans two continents and world wars.`\
-https://www.nytimes.com/2026/06/02/books/review/david-baerwald-fire-agent.html
-
-**A Stray Dog Became a Cultural Symbol in Brazil. Now, Mexico Is Claiming It.**\
-`To Brazilians, the ubiquitous caramel-colored mutts are a national icon. But a Mexican state has adopted them as its own homegrown symbol.`\
-https://www.nytimes.com/2026/06/02/world/americas/stray-dog-caramelos-brazil-mexico.html
 

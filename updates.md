@@ -1,3 +1,15 @@
+**Why Canada’s Leader Says the Country Is Failing Jewish Canadians**\
+`Prime Minister Mark Carney’s comments followed calls from Jewish organizations to address what they described as a crisis of antisemitism.`\
+https://www.nytimes.com/2026/06/02/world/canada/carney-antisemitism-toronto-canada.html
+
+**Martin Scorsese Is Embracing A.I.**\
+`In a clear sign of Hollywood’s softening stance on artificial intelligence, the cinema icon is backing Black Forest Labs, an image generation start-up.`\
+https://www.nytimes.com/2026/06/02/business/media/martin-scorsese-artificial-intelligence.html
+
+**Street Style Look of the Week: Managing to Stand Out With Neutrals**\
+`Even amid a bustling Mexican festival, a style peacock managed to stand out in power neutrals.`\
+https://www.nytimes.com/2026/06/02/style/street-style-look-power-neutrals.html
+
 **Battling a Deadly Ebola Outbreak in Eastern Congo**\
 `At the heart of the Ebola outbreak in the Democratic Republic of Congo, health care workers are racing to open new treatment centers and ramp up testing. But after years of war, the deadly virus is just one of many challenges they’re facing.`\
 https://www.nytimes.com/video/world/africa/100000010936755/ebola-virus-outbreak-congo-treatment.html
