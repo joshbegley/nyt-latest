@@ -1,75 +1,3 @@
-**Ted Danson Apologizes for Blackface Roast of Whoopi Goldberg in 1993**\
-`The actor’s monologue drew condemnation from figures including David N. Dinkins, New York’s first Black mayor.`\
-https://www.nytimes.com/2026/06/03/arts/ted-danson-blackface-whoopi-goldberg-apology.html
-
-**Conductora sin mano derecha es detenida por usar el celular con la mano derecha**\
-`Su caso, por supuesto, fue desestimado.`\
-https://www.nytimes.com/es/2026/06/03/espanol/estados-unidos/video-viral-mujer-mano-policia-florida.html
-
-**Obscure Group With Trump Ties Plans to Route Funds to His Allies for Legal Fights**\
-`A nonprofit called the Lawfare Defense Fund has raised $36 million to support those who consider themselves unjust victims of the legal system with grants to pay for litigation.`\
-https://www.nytimes.com/2026/06/03/us/politics/trump-lawfare-defense-fund.html
-
-**Arizona, Nevada Agree to Trade for Desalinated Pacific Ocean Water**\
-`A decade-old treatment plant in San Diego County, Calif., could leave more water in the Colorado River for states facing severe shortages.`\
-https://www.nytimes.com/2026/06/03/climate/arizona-nevada-san-diego-water.html
-
-**NASA Says Goodbye to its Longtime Mars MAVEN Mission**\
-`The space agency announced that the MAVEN spacecraft, which has circled Mars for more than a decade, is being decommissioned.`\
-https://www.nytimes.com/2026/06/03/science/nasa-maven-mars-orbiter.html
-
-**In Alabama Ruling, Supreme Court Signals Limited Role for Federal Courts in Redistricting Fights**\
-`In an emergency ruling on Tuesday night, the court’s conservative majority gave a first glimpse into congressional district battles under a weakened Voting Rights Act.`\
-https://www.nytimes.com/2026/06/03/us/politics/supreme-court-voting-rights-alabama.html
-
-**The House Votes to End the Iran War**\
-`Also, the N.B.A. finals tips off. Here’s the latest at the end of Wednesday.`\
-https://www.nytimes.com/2026/06/03/briefing/house-iran-war-powers.html
-
-**SpaceX IPO to Be Largest Ever at $135 Share Price**\
-`The $135 share price means Elon Musk’s rocket maker is poised to exceed the 2019 initial public offering of Saudi Aramco in both valuation and money raised.`\
-https://www.nytimes.com/2026/06/03/technology/spacex-ipo-pricing.html
-
-**Trump Signs Executive Order Removing Job Protections From Federal Workers**\
-`The order is a response to resistance during the first Trump administration, when senior career government officials routinely pushed back against policies that appeared to exceed legal boundaries.`\
-https://www.nytimes.com/2026/06/03/us/politics/trump-executive-order-job-protections.html
-
-**How Each House Member Voted on the Iran War Powers Resolution**\
-`The House passed a measure to rein in the use of military force in Iran.`\
-https://www.nytimes.com/interactive/2026/06/03/us/house-iran-war-powers.html
-
-**‘I Love It’: Trump Is Still in Favor of $1.8 Billion Payout Fund**\
-`Todd Blanche, the acting attorney general, said on Tuesday that the administration was “not moving forward with the fund, period,” after the plan drew bipartisan backlash.`\
-https://www.nytimes.com/2026/06/03/us/politics/trump-fund.html
-
-**Trump Agitates Brazil’s Politics, Again**\
-`President Trump appears ready to lend a hand to a new right-wing ally ahead of a crucial election this year that will be the biggest test for Latin America’s left.`\
-https://www.nytimes.com/2026/06/03/world/americas/trump-brazil-flavio-bolsonaro.html
-
-**House Advances New Sanctions on Russia and Aid to Ukraine**\
-`After G.O.P. leaders blocked additional aid to Ukraine, six Republicans and an independent joined Democrats to force the measure to the floor against the wishes of the speaker.`\
-https://www.nytimes.com/2026/06/03/us/house-russia-ukraine-sanctions-aid.html
-
-**Africans Exploring Africa**\
-`A growing middle class is increasingly mobile — and changing African ideas about leisure, travel and even the continent itself.`\
-https://www.nytimes.com/2026/06/03/world/africa-travel-iran-kuwait.html
-
-**Park Service Awards No-Bid Contract to Cover Bridge Statues in Gold**\
-`Originally estimated to cost $2.4 million, the government will now spend $5 million to restore the bronzes in time for Independence Day.`\
-https://www.nytimes.com/2026/06/03/us/politics/park-service-bridge-statues-gold.html
-
-**Eric Swalwell Won More Than 18,000 Votes Despite Suspending His Campaign**\
-`The former House member withdrew from the California governor’s race amid allegations of sexual assault.`\
-https://www.nytimes.com/2026/06/03/us/elections/eric-swalwell-votes-california-primary.html
-
-**Musk and Trump Slashed Aid. Now We Lack Tools to Tackle Ebola.**\
-`The fecklessness of Washington leaders contrasts with the courage of doctors, nurses and aid workers in places like Congo.`\
-https://www.nytimes.com/2026/06/03/opinion/ebola-disease-trump-musk-usaid.html
-
-**New York City Subway Entrance Becomes Knicks Fan Landmark**\
-`The M.T.A. painted a subway station orange and blue for the New York Knicks’ first N.B.A. Final appearance in 27 years. Fans of the basketball team posed by the entrance, which is located outside Madison Square Garden.`\
-https://www.nytimes.com/video/us/100000010943054/knicks-nba-finals-subway.html
-
 **New Intelligence Chief’s Expertise: Pursuing Trump’s Enemies**\
 `Tulsi Gabbard’s replacement as the director of national intelligence has no known national security experience.`\
 https://www.nytimes.com/2026/06/03/us/bill-pulte-new-intelligence-chief.html
@@ -189,6 +117,78 @@ https://www.nytimes.com/2026/06/03/theater/fantasticks-gloria-broadway-second-st
 **Ataques iraníes contra Kuwait y Baréin alteran el alto al fuego**\
 `Una persona murió en un ataque contra el aeropuerto internacional de Kuwait, dijeron las autoridades locales, mientras Irán sigue atacando a los aliados estadounidenses en el golfo Pérsico.`\
 https://www.nytimes.com/es/2026/06/03/espanol/mundo/iran-ataques-kuwait-barein-ee-uu.html
+
+**Man Charged With Hate Crimes Over Swastika Flag Flown on N.Y.U. Campus**\
+`The man, Alexander Stepnowsky, was arrested on Tuesday on the Lower East Side, almost a month after the episode. An N.Y.U. official said he was a student at the time of the event.`\
+https://www.nytimes.com/2026/06/03/nyregion/nyu-student-star-of-david.html
+
+**Deadly Attack Fills Kuwait Airport With Smoke and Flames**\
+`At least one person was killed and dozens were injured in a drone attack on Kuwait’s international airport on Wednesday.`\
+https://www.nytimes.com/video/world/middleeast/100000010942279/iran-attack-kuwait-airport.html
+
+**John McClain, Who Helped Keep Michael Jackson’s Profits Flowing, Dies at 72**\
+`A music executive with longstanding ties to the Jackson family, he worked to make Janet a star and Michael a posthumous commercial powerhouse.`\
+https://www.nytimes.com/2026/06/03/arts/music/john-mcclain-dead.html
+
+**Ucrania ataca San Petersburgo el primer día de un congreso de Putin**\
+`El ataque forma parte de una campaña destinada a infligir daños económicos a Rusia y demostrar su vulnerabilidad.`\
+https://www.nytimes.com/es/2026/06/03/espanol/mundo/ucrania-dron-ataque-san-petersburgo.html
+
+**Inside Scarlett Supple and James Thurstan Waterworth’s English Countryside Cottage**\
+`A couple with a love of collecting have filled their family home with finds from near and far.`\
+https://www.nytimes.com/2026/06/03/t-magazine/english-countryside-cottage.html
+
+**Mullin Says ICE Training Going Back to ‘Regular Standards’**\
+`The immigration agency had apparently cut training requirements as a part of its enforcement push over the past year.`\
+https://www.nytimes.com/2026/06/03/us/politics/mullin-ice-training.html
+
+**Montana Voters Deliver Mixed Results on Shifting Statehouse Rightward**\
+`Hard-line Republicans targeted moderate colleagues in legislative primaries, but both sides claimed victories in the fight for control of the G.O.P.`\
+https://www.nytimes.com/2026/06/03/us/elections/montana-state-legislature-republican-primary.html
+
+**‘Infuriated’ Former Judges Take on Trump**\
+`Critics say it is unseemly for retired judges to trade on the prestige of their former positions.`\
+https://www.nytimes.com/2026/06/03/us/politics/the-docket-former-judges-filings.html
+
+**Why Democrats Are Hopeful About Making Gains in Iowa**\
+`After voting twice for Barack Obama, Iowa swung to the right. But the state has been hit hard economically and by Trump policies while growing disenchanted with its leaders.`\
+https://www.nytimes.com/2026/06/03/us/elections/iowa-turek-democrats-trump.html
+
+**My Family Member Is Being Pressured to Donate a Kidney. Should I Say Something?**\
+`The recipient would be his stepfather’s colleague, whom he barely knows.`\
+https://www.nytimes.com/2026/06/03/magazine/pressure-to-donate-a-kidney-ethics.html
+
+**Bravo’s ‘Summer House’ Is Turning Men Into Reality TV Fans**\
+`Bravo’s reality TV hit has cracked an elusive audience.`\
+https://www.nytimes.com/2026/06/03/style/summer-house-reunion-amanda-west-men.html
+
+**Tropical Storm Amanda Forms in the Eastern Pacific**\
+`See the likely path and wind arrival times for Amanda`\
+https://www.nytimes.com/interactive/2026/06/03/weather/tropical-storm-amanda-map-path-tracker.html
+
+**Tiny Love Stories: ‘As He Dressed, I Slipped Into His Closet’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/06/03/style/tiny-modern-love-stories-as-he-dressed-i-slipped-into-his-closet.html
+
+**Caissie Levy, Tony Awards Contender and ‘Ragtime’ Star, Is Having a Moment**\
+`Caissie Levy was Broadway’s first Elsa. She starred in “Hair” and “Ghost.” And now, for “Ragtime,” she is an odds-on favorite to win a Tony Award.`\
+https://www.nytimes.com/2026/06/03/theater/caissie-levy-broadway-tonys-ragtime.html
+
+**Ahead of NBA Finals, NYC Reverses Ban on Knicks Watch Party Outside Madison Square Garden**\
+`The decision by New York City came on Wednesday as the Knicks prepared for Game 1 of their series against the Spurs for the N.B.A. title.`\
+https://www.nytimes.com/2026/06/03/nyregion/knicks-msg-watch-party.html
+
+**Trump Administration Fights Court Order to Refund Some Tariffs**\
+`The administration has started to repay some of the money, but has signaled it may make it harder for certain businesses to claim the full amount they are owed.`\
+https://www.nytimes.com/2026/06/03/business/economy/trump-tariffs-refunds-court-order.html
+
+**Elecciones en Colombia: Trump respalda a De la Espriella**\
+`Trump dijo que el candidato, Abelardo de la Espriella, era importante para la relación entre EE. UU. y Colombia y calificó a su rival de izquierda de “marxista de izquierda radical”.`\
+https://www.nytimes.com/es/2026/06/03/espanol/america-latina/trump-colombia-de-la-espriella.html
+
+**Today, In Short**\
+`Nick Jonas. Pattie Gonia. And the latest from the primaries.`\
+https://www.nytimes.com/2026/06/03/briefing/today-in-short.html
 
 **Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
 `Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race. The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles.`\
