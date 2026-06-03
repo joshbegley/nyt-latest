@@ -1,3 +1,7 @@
+**Iran War Live Updates: Drone Barrage at Kuwait Airport Kills One and Injures Dozens**\
+`Video footage verified by The New York Times showed fire inside Kuwait’s international airport. The attack was part of one of the biggest assaults on a Gulf nation since the U.S.-Iran cease-fire was announced in April.`\
+https://www.nytimes.com/live/2026/06/03/world/iran-war-trump-israel-lebanon
+
 **Corrections: June 3, 2026**\
 `Corrections that appeared in print on Wednesday, June 3, 2026.`\
 https://www.nytimes.com/2026/06/03/pageoneplus/corrections-june-3-2026.html

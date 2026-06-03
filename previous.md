@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/06/03/arts/dance/scottish-ballet-mary-queen-of-scot
 `A man was shot dead surrounded by witnesses in Skidmore, Mo., but no one was ever prosecuted. Now that act of vigilante justice has inspired the play “Kenrex.”`\
 https://www.nytimes.com/2026/06/03/theater/kenrex-play-murder-ken-mcelroy.html
 
-**Iran War Live Updates: Kuwait Says One Killed and Dozens Injured in Iranian Attack on Airport**\
-`The United States and Iran accused each other of launching new strikes. President Trump told The New York Post that Iran’s supreme leader is involved in peace talks, and he hopes to meet him.`\
+**Iran War Live Updates: Drone Barrage at Kuwait Airport Kills One and Injures Dozens**\
+`Video footage verified by The New York Times showed fire inside Kuwait’s international airport. The attack was part of one of the biggest assaults on a Gulf nation since the U.S.-Iran cease-fire was announced in April.`\
 https://www.nytimes.com/live/2026/06/03/world/iran-war-trump-israel-lebanon
 
