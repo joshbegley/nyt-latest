@@ -1,3 +1,23 @@
+**N.Y.C. Reverses Ban on Knicks Watch Party Outside Madison Square Garden**\
+`The decision came on Wednesday as the Knicks prepared for Game 1 of their series against the Spurs for the N.B.A. title.`\
+https://www.nytimes.com/2026/06/03/nyregion/knicks-msg-watch-party.html
+
+**Trump Administration Fights Court Order to Refund Some Tariffs**\
+`The administration has paid back some of the money, but has signaled it may make it harder for certain businesses to claim some of the billions owed.`\
+https://www.nytimes.com/2026/06/03/business/economy/trump-tariffs-refunds-court-order.html
+
+**Elecciones en Colombia: Trump respalda a De la Espriella**\
+`Trump dijo que el candidato, Abelardo de la Espriella, era importante para la relación entre EE. UU. y Colombia y calificó a su rival de izquierda de “marxista de izquierda radical”.`\
+https://www.nytimes.com/es/2026/06/03/espanol/america-latina/trump-colombia-de-la-espriella.html
+
+**N.Y.C. Rent Freeze Wouldn’t Spell Doom for Most Landlords, Report Says**\
+`The ratings agency Moody’s found the rent freeze Mayor Zohran Mamdani has advocated would put only a small fraction of landlords at risk of defaulting on loans.`\
+https://www.nytimes.com/2026/06/03/nyregion/rent-freeze-nyc-moodys-landlords.html
+
+**Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
+`Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race. The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles.`\
+https://www.nytimes.com/live/2026/06/03/us/california-primary-elections-midterms
+
 **Today, In Short**\
 `Nick Jonas. Pattie Gonia. And the latest from the primaries.`\
 https://www.nytimes.com/2026/06/03/briefing/today-in-short.html

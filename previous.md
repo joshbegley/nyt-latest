@@ -1,3 +1,15 @@
+**N.Y.C. Reverses Ban on Knicks Watch Party Outside Madison Square Garden**\
+`The decision came on Wednesday as the Knicks prepared for Game 1 of their series against the Spurs for the N.B.A. title.`\
+https://www.nytimes.com/2026/06/03/nyregion/knicks-msg-watch-party.html
+
+**Trump Administration Fights Court Order to Refund Some Tariffs**\
+`The administration has paid back some of the money, but has signaled it may make it harder for certain businesses to claim some of the billions owed.`\
+https://www.nytimes.com/2026/06/03/business/economy/trump-tariffs-refunds-court-order.html
+
+**Elecciones en Colombia: Trump respalda a De la Espriella**\
+`Trump dijo que el candidato, Abelardo de la Espriella, era importante para la relación entre EE. UU. y Colombia y calificó a su rival de izquierda de “marxista de izquierda radical”.`\
+https://www.nytimes.com/es/2026/06/03/espanol/america-latina/trump-colombia-de-la-espriella.html
+
 **Today, In Short**\
 `Nick Jonas. Pattie Gonia. And the latest from the primaries.`\
 https://www.nytimes.com/2026/06/03/briefing/today-in-short.html
@@ -46,8 +58,8 @@ https://www.nytimes.com/2026/06/03/us/politics/house-vote-trump-iran-war-powers.
 `Steve Hilton, a Republican and former Fox News host, held a narrow lead in early votes over two Democratic opponents in California’s nonpartisan primary for governor. The top two candidates will advance to the general election in November.`\
 https://www.nytimes.com/video/us/politics/100000010941939/california-governor-race-primary-election.html
 
-**Few Landlords Would Default if New York City Froze Rents, Report Says**\
-`The ratings agency Moody’s found a rent freeze on rent-stabilized apartments in New York City may cause fewer problems for landlords than the real estate industry has argued.`\
+**N.Y.C. Rent Freeze Wouldn’t Spell Doom for Most Landlords, Report Says**\
+`The ratings agency Moody’s found the rent freeze Mayor Zohran Mamdani has advocated would put only a small fraction of landlords at risk of defaulting on loans.`\
 https://www.nytimes.com/2026/06/03/nyregion/rent-freeze-nyc-moodys-landlords.html
 
 **Map: 5.1-Magnitude Earthquake Strikes off the Coast of California**\
@@ -127,7 +139,7 @@ https://www.nytimes.com/2026/06/03/crosswords/strands-sidekick-823.html
 https://www.nytimes.com/2026/06/03/crosswords/wordle-review-1811.html
 
 **Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
-`The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles. Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race.`\
+`Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race. The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles.`\
 https://www.nytimes.com/live/2026/06/03/us/california-primary-elections-midterms
 
 **Trump Aims New Tariffs at 59 Countries and the European Union**\
@@ -181,18 +193,6 @@ https://www.nytimes.com/2026/06/03/opinion/american-dream-politics-negativity.ht
 **What’s Next Now That Live Nation Has Been Found to Act as a Monopoly**\
 `The music industry may be significantly changed by the judicial rulings to come, but there is still a lot of lawyering left to do.`\
 https://www.nytimes.com/2026/06/03/arts/music/whats-next-now-that-live-nation-has-been-found-to-act-as-a-monopoly.html
-
-**I Tried to Have a Kid With My Best Friend. It Got Complicated.**\
-`Two queer friends dreamed of raising a child together. They almost made it real.`\
-https://www.nytimes.com/2026/06/03/podcasts/best-friends-parenting-kid.html
-
-**In Portugal, Visitors are Flocking to Lisbon’s Food and Art Scenes**\
-`The Portuguese capital is booming with an influx of artists, retirees and visitors drawn to an exciting, affordable culinary scene and an inclusive culture.`\
-https://www.nytimes.com/2026/06/03/travel/lisbon-portugal-restaurants-bars-hotels.html
-
-**Fixing the 34th Street Bottleneck**\
-`Could a busway ease traffic clogging on a key Midtown corridor?`\
-https://www.nytimes.com/2026/06/03/nyregion/fixing-the-34th-street-bottleneck.html
 
 **Iran War Live Updates: Drone Barrage at Kuwait Airport Kills One and Injures Dozens**\
 `Video footage verified by The New York Times showed fire inside Kuwait’s international airport. The attack was part of one of the biggest assaults on a Gulf nation since the U.S.-Iran cease-fire was announced in April.`\
