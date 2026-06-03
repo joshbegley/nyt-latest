@@ -1,3 +1,7 @@
+**The Good List: 6 Things to Bring Delight to Your Day**\
+`Questions for bats, Rothko weather and Knicks fever.`\
+https://www.nytimes.com/2026/06/03/briefing/03-the-good-list-knicks-rothko.html
+
 **See What Deep-Sea Mining Actually Looks Like, 2 Miles Down**\
 `A mining company sent an advanced ship to try to pluck valuable minerals from the deepest ocean. Here’s how it worked.`\
 https://www.nytimes.com/interactive/2026/06/03/climate/deep-sea-mining-tests-hidden-gem.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/03/business/media/bari-weiss-scott-pelley-cbs.ht
 **Ruth Shack, Early Champion of Gay Rights in Miami, Dies at 94**\
 `She sponsored one of the nation’s first anti-discrimination ordinances for gays and lesbians and later helped make Miami a global arts center.`\
 https://www.nytimes.com/2026/06/03/us/ruth-shack-dead.html
-
-**Out of Time to Delay, House to Vote on Trump’s Power to Continue War in Iran**\
-`A measure to direct the president to halt U.S. engagement in Iran had been on track to pass in late May, but Republican leaders postponed action. They have run out of time to delay the vote.`\
-https://www.nytimes.com/2026/06/03/us/politics/house-vote-trump-iran-war-powers.html
 
 **Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
 `Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race. The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles.`\
