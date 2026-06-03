@@ -1,3 +1,15 @@
+**Today, In Short**\
+`Nick Jonas. Pattie Gonia. And the latest from the primaries.`\
+https://www.nytimes.com/2026/06/03/briefing/today-in-short.html
+
+**Trump Confirms He Called Netanyahu ‘Crazy’ and Hopes to Meet Iran’s Supreme Leader**\
+`President Trump said that he had been “perturbed” in a call with Prime Minister Benjamin Netanyahu of Israel, and said he hoped to meet with Iran’s supreme leader.`\
+https://www.nytimes.com/2026/06/03/world/middleeast/trump-iran-ayatollah-netanyahu.html
+
+**Attack on Kuwait Airport Further Upends Mideast Travel Amid U.S.-Iran Conflict**\
+`Airports in Kuwait, Iraq, Bahrain, the U.A.E. and Iran, some with military functions and some without, have all come under fire.`\
+https://www.nytimes.com/2026/06/03/world/middleeast/kuwait-airport-attack-mideast-travel.html
+
 **Need Some Zucchini Recipes?**\
 `How about: seared zucchini and halloumi in red-wine vinaigrette, jalapeño-Cheddar zucchini bread and roasted zucchini and shrimp with za’atar yogurt.`\
 https://www.nytimes.com/2026/06/03/dining/need-some-zucchini-recipes.html

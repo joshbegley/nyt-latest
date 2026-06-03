@@ -1,3 +1,11 @@
+**Today, In Short**\
+`Nick Jonas. Pattie Gonia. And the latest from the primaries.`\
+https://www.nytimes.com/2026/06/03/briefing/today-in-short.html
+
+**Trump Confirms He Called Netanyahu ‘Crazy’ and Hopes to Meet Iran’s Supreme Leader**\
+`President Trump said that he had been “perturbed” in a call with Prime Minister Benjamin Netanyahu of Israel, and said he hoped to meet with Iran’s supreme leader.`\
+https://www.nytimes.com/2026/06/03/world/middleeast/trump-iran-ayatollah-netanyahu.html
+
 **Need Some Zucchini Recipes?**\
 `How about: seared zucchini and halloumi in red-wine vinaigrette, jalapeño-Cheddar zucchini bread and roasted zucchini and shrimp with za’atar yogurt.`\
 https://www.nytimes.com/2026/06/03/dining/need-some-zucchini-recipes.html
@@ -10,7 +18,7 @@ https://www.nytimes.com/2026/06/03/style/david-baerwald-the-fire-agent.html
 `What Elon Musk really wants out of the SpaceX I.P.O.: the funds to control the highly profitable earnings potential of low-Earth orbit.`\
 https://www.nytimes.com/2026/06/03/opinion/elon-musk-spacex-ipo-leo-rockefeller.html
 
-**Attack on Kuwait Airport Further Upends Travel in the Mideast**\
+**Attack on Kuwait Airport Further Upends Mideast Travel Amid U.S.-Iran Conflict**\
 `Airports in Kuwait, Iraq, Bahrain, the U.A.E. and Iran, some with military functions and some without, have all come under fire.`\
 https://www.nytimes.com/2026/06/03/world/middleeast/kuwait-airport-attack-mideast-travel.html
 
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/03/travel/lisbon-portugal-restaurants-bars-hotel
 **Fixing the 34th Street Bottleneck**\
 `Could a busway ease traffic clogging on a key Midtown corridor?`\
 https://www.nytimes.com/2026/06/03/nyregion/fixing-the-34th-street-bottleneck.html
-
-**$750,000 Homes in Michigan, New Hampshire and Texas**\
-`And Arts & Crafts house in Detroit, a farmhouse in Sandwich and a midcentury modern in Campbell.`\
-https://www.nytimes.com/2026/06/03/realestate/750000-homes-in-michigan-new-hampshire-and-texas.html
-
-**Even on His Own, Nick Is Still a Jonas Brother**\
-`With a starring role in “Power Ballad” and ambitions across mediums, the 33-year-old is carving a singular path.`\
-https://www.nytimes.com/2026/06/03/movies/nick-jonas-interview.html
 
 **Iran War Live Updates: Drone Barrage at Kuwait Airport Kills One and Injures Dozens**\
 `Video footage verified by The New York Times showed fire inside Kuwait’s international airport. The attack was part of one of the biggest assaults on a Gulf nation since the U.S.-Iran cease-fire was announced in April.`\
