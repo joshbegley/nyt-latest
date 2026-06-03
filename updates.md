@@ -1,3 +1,15 @@
+**Voters in Los Angeles Say They ‘Don’t Have a Lot of Good Choices’**\
+`Many said they were struggling to choose from candidates they saw as uninspiring in both the mayor’s and governor’s races.`\
+https://www.nytimes.com/2026/06/02/us/politics/voters-primary-election-los-angeles-choices.html
+
+**Adam Hamawy, a Progressive Democrat, Wins House Primary in New Jersey**\
+`Dr. Hamawy, a U.S. Army veteran, faced questions about his past association with an Egyptian cleric who was convicted in 1995 of a conspiracy to wage “a war of urban terrorism.”`\
+https://www.nytimes.com/2026/06/02/nyregion/new-jersey-house-primary-hamawy.html
+
+**Deb Haaland wins nomination in New Mexico governor’s race**\
+`Ms. Haaland, a former Interior secretary, took a big step toward making history as the first Native American woman to be a governor when she won the primary in her Democratic state.`\
+https://www.nytimes.com/2026/06/02/us/elections/new-mexico-democrat-governor-haaland.html
+
 **Supreme Court Clears the Way for Republican-Friendly Map in Alabama**\
 `In the first major case since the justices narrowed the Voting Rights Act, the court cleared the way for Alabama to use a map preferred by Republicans that eliminates a majority-Black district.`\
 https://www.nytimes.com/2026/06/02/us/politics/supreme-court-alabama-congressional-map.html

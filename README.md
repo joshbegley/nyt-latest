@@ -1,3 +1,11 @@
+**Top Texas Election Official to Resign, Months Before General Contest**\
+`Jane Nelson, the Texas secretary of state, was appointed to the role overseeing statewide elections in 2023 by Gov. Greg Abbott.`\
+https://www.nytimes.com/2026/06/02/us/texas-top-election-official-resigns.html
+
+**Josh Turek, a Paralympian, Wins the Democratic Senate Primary in Iowa**\
+`Mr. Turek, a state lawmaker, beat Zach Wahls in a contest that tested the party’s anti-establishment fervor.`\
+https://www.nytimes.com/2026/06/02/us/politics/iowa-democratic-senate-primary-turek-wahls.html
+
 **Voters in Los Angeles Say They ‘Don’t Have a Lot of Good Choices’**\
 `Many said they were struggling to choose from candidates they saw as uninspiring in both the mayor’s and governor’s races.`\
 https://www.nytimes.com/2026/06/02/us/politics/voters-primary-election-los-angeles-choices.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-montana-primary.ht
 **Iowa Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Iowa primary elections.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-iowa-primary.html
-
-**Albanians Protest Luxury Resort Linked to Kushner**\
-`In Albania, one of the poorest countries in Europe, crowds gathered to protest a $1.4 billion luxury hotel complex on the coast of the Adriatic Sea. Jared Kushner, President Trump’s son-in-law, is one of several investors in the project.`\
-https://www.nytimes.com/video/world/europe/100000010940326/albanians-protest-luxury-resort-linked-to-kushner.html
-
-**Order Shielding Trump Family From I.R.S. Audits Will Remain, Blanche Says**\
-`The acting attorney general said the administration was preserving a broad order protecting the president and his family from audits of already filed returns, despite dropping a $1.8 billion payout fund.`\
-https://www.nytimes.com/2026/06/02/us/politics/trump-irs-settlement.html
 
