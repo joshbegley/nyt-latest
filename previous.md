@@ -1,3 +1,7 @@
+**Montana Voters Deliver Mixed Results on Shifting Statehouse Rightward**\
+`Hard-line Republicans targeted moderate colleagues in legislative primaries, but both sides claimed victories in the fight for control of the G.O.P.`\
+https://www.nytimes.com/2026/06/03/us/elections/montana-state-legislature-republican-primary.html
+
 **‘Infuriated’ Former Judges Take on Trump**\
 `Critics say it is unseemly for retired judges to trade on the prestige of their former positions.`\
 https://www.nytimes.com/2026/06/03/us/politics/the-docket-former-judges-filings.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/03/world/europe/ukraine-russia-attack-st-petersb
 **FBI Kills Suspect in Hostage Situation at Building With Bank in Bakersfield, California**\
 `The authorities had been negotiating with a man inside an office building in Bakersfield, Calif., that included a Chase Bank branch. It was unclear how many people he held hostage.`\
 https://www.nytimes.com/2026/06/03/us/bakersfield-chase-bank-bomb-hostage-situation.html
-
-**Where Is Iran’s Highly Enriched Uranium?**\
-`The fate of Iran’s stockpile is among the biggest uncertainties surrounding a potential peace deal between the United States and Iran.`\
-https://www.nytimes.com/interactive/2026/06/03/world/middleeast/iran-nuclear-uranium.html
 
 **Iran War Live Updates: Drone Barrage at Kuwait Airport Kills One and Injures Dozens**\
 `Video footage verified by The New York Times showed fire inside Kuwait’s international airport. The attack was part of one of the biggest assaults on a Gulf nation since the U.S.-Iran cease-fire was announced in April.`\

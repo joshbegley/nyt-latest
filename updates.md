@@ -1,3 +1,7 @@
+**Montana Voters Deliver Mixed Results on Shifting Statehouse Rightward**\
+`Hard-line Republicans targeted moderate colleagues in legislative primaries, but both sides claimed victories in the fight for control of the G.O.P.`\
+https://www.nytimes.com/2026/06/03/us/elections/montana-state-legislature-republican-primary.html
+
 **‘Infuriated’ Former Judges Take on Trump**\
 `Critics say it is unseemly for retired judges to trade on the prestige of their former positions.`\
 https://www.nytimes.com/2026/06/03/us/politics/the-docket-former-judges-filings.html
