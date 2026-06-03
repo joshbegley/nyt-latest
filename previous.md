@@ -70,13 +70,13 @@ https://www.nytimes.com/es/2026/06/03/espanol/negocios/airbnb-hoteles-copa-del-m
 `Mr. Pulte has had difficulty boosting the housing market as head of the Federal Housing Finance Agency. Now he will also serve as acting intelligence director.`\
 https://www.nytimes.com/2026/06/03/business/bill-pulte-housing-intelligence-director.html
 
-**Knicks Fans Invade San Antonio, Chasing a Finals Rematch 27 Years in the Making**\
-`From Spike Lee to die-hard fans haunted by the 1999 finals, New Yorkers have descended on San Antonio in hopes of witnessing the franchise’s first championship in more than 50 years.`\
-https://www.nytimes.com/2026/06/03/us/knicks-fans-tickets-san-antonio-nba-finals-spurs-2026.html
-
 **Spike Lee: Knicks in Six**\
 `The Knicks are New York’s soul, and they are bringing us together again in the championship series against San Antonio.`\
 https://www.nytimes.com/2026/06/03/opinion/new-york-knicks-nba-championship.html
+
+**Knicks Fans Invade San Antonio, Chasing a Finals Rematch 27 Years in the Making**\
+`From Spike Lee to die-hard fans haunted by the 1999 finals, New Yorkers have descended on San Antonio in hopes of witnessing the franchise’s first championship in more than 50 years.`\
+https://www.nytimes.com/2026/06/03/us/knicks-fans-tickets-san-antonio-nba-finals-spurs-2026.html
 
 **For Knicks’ Owner James Dolan, a Title Might Finally Stop Some Boos**\
 `James Dolan, the longtime owner of the N.B.A. team, has faced years of jeers. Could a championship change all that?`\
