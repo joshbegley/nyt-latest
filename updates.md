@@ -1,3 +1,7 @@
+**Mullin Says ICE Training Going Back to ‘Regular Standards’**\
+`The immigration agency had apparently cut training requirements as a part of its enforcement push over the past year.`\
+https://www.nytimes.com/2026/06/03/us/politics/mullin-ice-training.html
+
 **Montana Voters Deliver Mixed Results on Shifting Statehouse Rightward**\
 `Hard-line Republicans targeted moderate colleagues in legislative primaries, but both sides claimed victories in the fight for control of the G.O.P.`\
 https://www.nytimes.com/2026/06/03/us/elections/montana-state-legislature-republican-primary.html

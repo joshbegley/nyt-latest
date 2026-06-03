@@ -1,3 +1,7 @@
+**Mullin Says ICE Training Going Back to ‘Regular Standards’**\
+`The immigration agency had apparently cut training requirements as a part of its enforcement push over the past year.`\
+https://www.nytimes.com/2026/06/03/us/politics/mullin-ice-training.html
+
 **Montana Voters Deliver Mixed Results on Shifting Statehouse Rightward**\
 `Hard-line Republicans targeted moderate colleagues in legislative primaries, but both sides claimed victories in the fight for control of the G.O.P.`\
 https://www.nytimes.com/2026/06/03/us/elections/montana-state-legislature-republican-primary.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/03/world/asia/fire-hotel-new-delhi-india.html
 **Ukraine Strikes St. Petersburg on First Day of a Marquee Putin Event**\
 `As an annual economic conference was set to begin, President Volodymyr Zelensky said Ukraine had targeted a navy base and an oil terminal in the region that includes Russia’s second-largest city.`\
 https://www.nytimes.com/2026/06/03/world/europe/ukraine-russia-attack-st-petersburg-putin.html
-
-**FBI Kills Suspect in Hostage Situation at Building With Bank in Bakersfield, California**\
-`The authorities had been negotiating with a man inside an office building in Bakersfield, Calif., that included a Chase Bank branch. It was unclear how many people he held hostage.`\
-https://www.nytimes.com/2026/06/03/us/bakersfield-chase-bank-bomb-hostage-situation.html
 
 **Iran War Live Updates: Drone Barrage at Kuwait Airport Kills One and Injures Dozens**\
 `Video footage verified by The New York Times showed fire inside Kuwait’s international airport. The attack was part of one of the biggest assaults on a Gulf nation since the U.S.-Iran cease-fire was announced in April.`\

@@ -1,3 +1,19 @@
+**Deadly Iranian Attack Fills Kuwait Airport With Smoke and Flames**\
+`At least one person was killed and dozens were injured in an Iranian drone attack on Kuwait’s international airport on Wednesday.`\
+https://www.nytimes.com/video/world/middleeast/100000010942279/deadly-iranian-attack-fills-kuwait-airport-with-smoke-and-flames.html
+
+**John McClain, Who Helped Keep Michael Jackson’s Profits Flowing, Dies at 72**\
+`A music executive with longstanding ties to the Jackson family, he worked to make Janet a star and Michael a posthumous commercial powerhouse.`\
+https://www.nytimes.com/2026/06/03/arts/music/john-mcclain-dead.html
+
+**Ucrania ataca San Petersburgo el primer día de un congreso de Putin**\
+`El ataque forma parte de una campaña destinada a infligir daños económicos a Rusia y demostrar su vulnerabilidad.`\
+https://www.nytimes.com/es/2026/06/03/espanol/mundo/ucrania-dron-ataque-san-petersburgo.html
+
+**Inside Scarlett Supple and James Thurstan Waterworth’s English Countryside Cottage**\
+`A couple with a love of collecting have filled their family home with finds from near and far.`\
+https://www.nytimes.com/2026/06/03/t-magazine/english-countryside-cottage.html
+
 **Mullin Says ICE Training Going Back to ‘Regular Standards’**\
 `The immigration agency had apparently cut training requirements as a part of its enforcement push over the past year.`\
 https://www.nytimes.com/2026/06/03/us/politics/mullin-ice-training.html
@@ -177,22 +193,6 @@ https://www.nytimes.com/2026/06/03/crosswords/wordle-review-1811.html
 **Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
 `Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race. The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles.`\
 https://www.nytimes.com/live/2026/06/03/us/california-primary-elections-midterms
-
-**Trump Aims New Tariffs at 59 Countries and the European Union**\
-`Trump administration officials said they planned to impose levies of up to 12.5 percent on countries that failed to crack down on goods made with forced labor.`\
-https://www.nytimes.com/2026/06/03/business/trump-tariffs-force-labor.html
-
-**Oil Prices Rise as Iran and U.S. Exchange Strikes**\
-`Iranian drones struck Kuwait’s main international airport and the United States and Iran exchanged strikes.`\
-https://www.nytimes.com/2026/06/03/business/oil-prices-iran-war.html
-
-**Fire at a New Delhi Hotel Kills at Least 21**\
-`Dozens more were injured, the authorities said. The blaze appears to be the deadliest in the Indian capital in at least four years.`\
-https://www.nytimes.com/2026/06/03/world/asia/fire-hotel-new-delhi-india.html
-
-**Ukraine Strikes St. Petersburg on First Day of a Marquee Putin Event**\
-`As an annual economic conference was set to begin, President Volodymyr Zelensky said Ukraine had targeted a navy base and an oil terminal in the region that includes Russia’s second-largest city.`\
-https://www.nytimes.com/2026/06/03/world/europe/ukraine-russia-attack-st-petersburg-putin.html
 
 **Iran War Live Updates: Drone Barrage at Kuwait Airport Kills One and Injures Dozens**\
 `Video footage verified by The New York Times showed fire inside Kuwait’s international airport. The attack was part of one of the biggest assaults on a Gulf nation since the U.S.-Iran cease-fire was announced in April.`\
