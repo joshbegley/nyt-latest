@@ -1,3 +1,11 @@
+**How a Prisoner Ended Up Alone in Court in a Death Penalty Case**\
+`The episode at the war court alarmed death penalty lawyers, who argued that the judge had a duty to suspend the proceedings to protect the rights of the defendant.`\
+https://www.nytimes.com/2026/06/03/us/politics/gitmo-death-penalty-case.html
+
+**What Elon Musk Really Wants From the SpaceX I.P.O.**\
+`This is the mercenary reason behind the SpaceX I.P.O.`\
+https://www.nytimes.com/2026/06/03/opinion/elon-musk-spacex-ipo-leo-rockefeller.html
+
 **Six Questions Out of Tuesday’s Big Primaries in California, Iowa and Elsewhere**\
 `Who will run California? Can Democrats win Iowa? Here’s what happened, and what might be next.`\
 https://www.nytimes.com/2026/06/03/us/politics/primaries-california-iowa-questions.html
