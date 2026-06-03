@@ -1,3 +1,11 @@
+**Navy Helicopter Crash Kills Three in Britain**\
+`The helicopter was on a training exercise when it crashed in a field in southwestern England.`\
+https://www.nytimes.com/2026/06/03/world/europe/navy-helicopter-crash-kills-three-in-britain.html
+
+**Bari Weiss Speaks on Scott Pelley’s Firing: ‘That’s the Path That He Chose’**\
+`In her first public comments on the firing, Ms. Weiss, the CBS News editor in chief, said that the longtime correspondent had “broken” the trust in the newsroom.`\
+https://www.nytimes.com/2026/06/03/business/media/bari-weiss-scott-pelley-cbs.html
+
 **Ruth Shack, Early Champion of Gay Rights in Miami, Dies at 94**\
 `She sponsored one of the nation’s first anti-discrimination ordinances for gays and lesbians and later helped make Miami a global arts center.`\
 https://www.nytimes.com/2026/06/03/us/ruth-shack-dead.html

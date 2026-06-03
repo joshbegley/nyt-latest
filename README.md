@@ -1,8 +1,12 @@
+**Trump Suggests Vance and Rubio Should Run Together in 2028 Election**\
+`President Trump said Vice President JD Vance and Secretary of State Marco Rubio should split a ticket, without mentioning who should be at the top.`\
+https://www.nytimes.com/2026/06/03/us/politics/trump-vance-rubio-2028-election.html
+
 **Navy Helicopter Crash Kills Three in Britain**\
 `The helicopter was on a training exercise when it crashed in a field in southwestern England.`\
 https://www.nytimes.com/2026/06/03/world/europe/navy-helicopter-crash-kills-three-in-britain.html
 
-**Bari Weiss Speaks on Scott Pelley’s Firing: ‘That’s the Path That He Chose’**\
+**Bari Weiss Speaks on Scott Pelley’s ’60 Minutes’ Firing: ‘That’s the Path That He Chose’**\
 `In her first public comments on the firing, Ms. Weiss, the CBS News editor in chief, said that the longtime correspondent had “broken” the trust in the newsroom.`\
 https://www.nytimes.com/2026/06/03/business/media/bari-weiss-scott-pelley-cbs.html
 
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/03/realestate/renters-rent-stabalizion-mistake.h
 **N.B.A. Finals Introduce Music by Nicholas Britell and Nas**\
 `The league is rolling out music by the composer Nicholas Britell and the rapper Nas that, if successful, could become the sport’s sonic shorthand.`\
 https://www.nytimes.com/2026/06/03/arts/music/nba-finals-music.html
-
-**Ukraine’s Daily Moment of Silence**\
-`Every day at 9 a.m., Ukrainians observe a minute of silence to honor people killed during the Russia-Ukraine war. Our reporter, Maria Varenikova, who has covered the hostilities since 2014, takes us to her hometown to experience this moment.`\
-https://www.nytimes.com/video/world/europe/100000010925753/ukraines-daily-moment-of-silence.html
 
 **Iran War Live Updates: Drone Barrage at Kuwait Airport Kills One and Injures Dozens**\
 `Video footage verified by The New York Times showed fire inside Kuwait’s international airport. The attack was part of one of the biggest assaults on a Gulf nation since the U.S.-Iran cease-fire was announced in April.`\
