@@ -1,3 +1,7 @@
+**Marni von Wilpert and Jim Desmond Advance in a San Diego-Area House Race**\
+`Ms. von Wilpert’s win in Tuesday’s open primary eliminated Democrats’ fears that two Republicans would advance to November in the 48th Congressional District.`\
+https://www.nytimes.com/2026/06/03/us/politics/wilpert-desmond-california-house-district-48.html
+
 **Even if Oil Prices Peak Soon, the Global Economy Will Slow This Year**\
 `The Organization for Economic Cooperation and Development, in a report, said the Middle East war’s consequences “are likely to be felt for some time.”`\
 https://www.nytimes.com/2026/06/03/business/iran-war-oecd-economy.html
