@@ -1,3 +1,7 @@
+**Trump falló como comandante en jefe**\
+`En tiempos de guerra, los líderes deben unir al país. Trump, en cambio, se ha dedicado a buscar el beneficio personal.`\
+https://www.nytimes.com/es/2026/06/03/espanol/opinion/donald-trump-gestion.html
+
 **Marni von Wilpert and Jim Desmond Advance in a San Diego-Area House Race**\
 `Ms. von Wilpert’s win in Tuesday’s open primary eliminated Democrats’ fears that two Republicans would advance to November in the 48th Congressional District.`\
 https://www.nytimes.com/2026/06/03/us/politics/wilpert-desmond-california-house-district-48.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/02/us/politics/california-top-two-voting-system.
 **5 Things to Know About Representative Ashley Hinson, Senate Candidate in Iowa**\
 `Ms. Hinson, a former journalist who is supported by President Trump, won the Republican nomination.`\
 https://www.nytimes.com/2026/06/02/us/politics/ashley-hinson-iowa-senate-republicans.html
-
-**5 Things to Know About the Iowa Senate Candidate Josh Turek**\
-`A gold medalist on the U.S. men’s wheelchair basketball team, Mr. Turek is running as a “common-sense moderate.”`\
-https://www.nytimes.com/2026/06/02/us/politics/josh-turek-iowa-senate-democrats.html
 
 **California Election Live Updates: Spencer Pratt Runs Second in L.A. Mayor’s Race**\
 `Mr. Pratt, a Republican reality TV star who lost his home in last year’s fires, could face Mayor Karen Bass in a runoff. The Trump-endorsed Steve Hilton and Xavier Becerra, the top polling Democrat, led early results for governor.`\
