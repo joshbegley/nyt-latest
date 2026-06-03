@@ -1,3 +1,47 @@
+**5 Minutes That Will Make You Love Charlie Parker**\
+`Bird helped usher in bebop and transformed the alto saxophone into an instrument of startling possibility. Here’s an 11-song primer on his enduring legacy.`\
+https://www.nytimes.com/2026/06/03/arts/music/charlie-parker-jazz-music.html
+
+**Carley Fortune Keeps Writing Hit Romance Novels**\
+`Carley Fortune left a hard-won journalism job to give fiction a shot. Five best-sellers later, a series based on her debut is about to stream.`\
+https://www.nytimes.com/2026/06/03/books/review/carley-fortune-our-perfect-storm.html
+
+**WAGs Love Their Crocheted, Bedazzled N.B.A. Merch**\
+`Much women’s sports apparel is just modified from men’s items following a “pink it and shrink it” model. The Snyder sisters charted a more D.I.Y. course.`\
+https://www.nytimes.com/2026/06/03/style/dannijo-nba-wags-jerseys.html
+
+**Making Scottish Ballet’s ‘Mary, Queen of Scots’ Legible to Americans**\
+`Scottish Ballet realized it needed to make its nation’s history a bit more explicit to take its “Mary, Queen of Scots” on the road. It comes to Lincoln Center this week.`\
+https://www.nytimes.com/2026/06/03/arts/dance/scottish-ballet-mary-queen-of-scots.html
+
+**A New Play, ‘Kenrex,’ Revisits the Story of a Bully’s Unsolved Murder**\
+`A man was shot dead surrounded by witnesses in Skidmore, Mo., but no one was ever prosecuted. Now that act of vigilante justice has inspired the play “Kenrex.”`\
+https://www.nytimes.com/2026/06/03/theater/kenrex-play-murder-ken-mcelroy.html
+
+**How Poets Went From Describing Art to Personally Admiring It**\
+`The form known as ekphrasis — or poetry about art — has taken a turn toward the individual. Our columnist asks what it means.`\
+https://www.nytimes.com/2026/06/03/books/review/on-poetry-art-ekphrasis.html
+
+**Book Review: ‘The Wreck of the Mentor,’ by Eric Jay Dolin**\
+`In “The Wreck of the Mentor,” the maritime historian Eric Jay Dolin brings to life a dramatic episode from the golden age of whaling.`\
+https://www.nytimes.com/2026/06/03/books/review/eric-jay-dolin-wreck-of-the-mentor.html
+
+**How Cat Pierce Went From Indie Sleaze to Indie Earth Mother**\
+`As one half of the Pierces, Cat Pierce wrote infectious pop songs with her sister and played arenas with Coldplay. Now, she’s an emotional lifestyle guru.`\
+https://www.nytimes.com/2026/06/03/style/cat-pierce.html
+
+**The Best Audiobooks of 2026 (So Far)**\
+`The year is nearly halfway over. Here’s what we’ve been listening to.`\
+https://www.nytimes.com/2026/06/03/books/review/best-audiobooks-2026.html
+
+**How TikTok Is Helping Some People Process Their Grief**\
+`On “grieftok,” some influencers have amassed large followings by sharing their experiences with unimaginable loss.`\
+https://www.nytimes.com/2026/06/03/well/live/grief-tiktok-instagram.html
+
+**Feeling Nihilistic? You’re Not Alone.**\
+`A case for mourning the American dream.`\
+https://www.nytimes.com/video/opinion/100000010936743/feeling-nihilistic-youre-not-alone.html
+
 **Iran War Live Updates: Kuwait Says Iranian Attack Has Damaged Its Main Airport**\
 `The United States and Iran both reported strikes overnight, accusing each other of being the aggressor. It was unclear where diplomatic efforts stand to end the war.`\
 https://www.nytimes.com/live/2026/06/03/world/iran-war-trump-israel-lebanon
@@ -149,50 +193,6 @@ https://www.nytimes.com/2026/06/02/us/politics/montana-republican-house-primary-
 **Late-Arriving Ballots Could Lean Democratic in California**\
 `Democratic voters have been returning their ballots later than Republicans in this year’s primaries, which will make it difficult to interpret the results on election night.`\
 https://www.nytimes.com/2026/06/02/us/elections/california-governor-late-mail-ballots.html
-
-**Sanchez wins Democratic nod for New Mexico land commissioner**\
-`The tightly fought contest to control 9 million acres of state land revolved around which candidate could beat back President Trump and his public land chief, New Mexico’s Steve Pierce.`\
-https://www.nytimes.com/2026/06/02/us/elections/new-mexico-public-lands-democrat.html
-
-**Katie Porter: 5 Facts About the Candidate for California Governor**\
-`The former House member built her reputation by grilling corporate executives, and she has a strong command of policy. But questions about her demeanor have been a drag on her campaign.`\
-https://www.nytimes.com/2026/06/02/us/politics/katie-porter-california-governor.html
-
-**Palabra del día en inglés: ‘parsimonious’**\
-`Esta palabra ha aparecido en 3 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
-https://www.nytimes.com/es/2026/06/02/espanol/que-significa-parsimonious.html
-
-**NYT Crossword Answers for June 3, 2026**\
-`Jiahe Men makes his New York Times debut.`\
-https://www.nytimes.com/2026/06/02/crosswords/daily-puzzle-2026-06-03.html
-
-**Nithya Raman: 5 Facts About the Candidate for Los Angeles Mayor**\
-`Ms. Raman, a progressive Democrat, surprised many allies when she entered the Los Angeles mayor’s race at the last minute.`\
-https://www.nytimes.com/2026/06/02/us/politics/nithya-raman-la-mayor.html
-
-**CBS News Fires Scott Pelley of ‘60 Minutes’**\
-`Mr. Pelley, a former “CBS Evening News” anchor, was ousted after months of tensions between staff and Bari Weiss, the network’s editor in chief.`\
-https://www.nytimes.com/2026/06/02/business/media/scott-pelley-cbs-bari-weiss.html
-
-**Top Texas Election Official to Resign, Months Before General Contest**\
-`Jane Nelson, the Texas secretary of state, was appointed to the role overseeing statewide elections in 2023 by Gov. Greg Abbott.`\
-https://www.nytimes.com/2026/06/02/us/texas-top-election-official-resigns.html
-
-**Josh Turek, a Paralympian, Wins the Democratic Senate Primary in Iowa**\
-`Mr. Turek, a state lawmaker, beat Zach Wahls in a contest that tested the party’s anti-establishment fervor.`\
-https://www.nytimes.com/2026/06/02/us/politics/iowa-democratic-senate-primary-turek-wahls.html
-
-**Voters in Los Angeles Say They ‘Don’t Have a Lot of Good Choices’**\
-`Many said they were struggling to choose from candidates they saw as uninspiring in both the mayor’s and governor’s races.`\
-https://www.nytimes.com/2026/06/02/us/politics/voters-primary-election-los-angeles-choices.html
-
-**Adam Hamawy, a Progressive Democrat, Wins House Primary in New Jersey**\
-`Dr. Hamawy, a U.S. Army veteran, has been an outspoken critic of Israel’s war in Gaza. His victory makes him the heavy favorite to win in November in the left-leaning district.`\
-https://www.nytimes.com/2026/06/02/nyregion/new-jersey-house-primary-hamawy.html
-
-**Deb Haaland wins nomination in New Mexico governor’s race**\
-`Ms. Haaland, a former Interior secretary, took a big step toward making history as the first Native American woman to be a governor when she won the primary in her Democratic state.`\
-https://www.nytimes.com/2026/06/02/us/elections/new-mexico-democrat-governor-haaland.html
 
 **California Election: Spencer Pratt Runs Second in L.A. Mayor’s Race**\
 `Mr. Pratt, a Republican reality TV star who lost his home in last year’s fires, could face Mayor Karen Bass in a runoff. The Trump-endorsed Steve Hilton and Xavier Becerra, the top polling Democrat, led early results for governor.`\

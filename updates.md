@@ -1,3 +1,47 @@
+**5 Minutes That Will Make You Love Charlie Parker**\
+`Bird helped usher in bebop and transformed the alto saxophone into an instrument of startling possibility. Here’s an 11-song primer on his enduring legacy.`\
+https://www.nytimes.com/2026/06/03/arts/music/charlie-parker-jazz-music.html
+
+**Carley Fortune Keeps Writing Hit Romance Novels**\
+`Carley Fortune left a hard-won journalism job to give fiction a shot. Five best-sellers later, a series based on her debut is about to stream.`\
+https://www.nytimes.com/2026/06/03/books/review/carley-fortune-our-perfect-storm.html
+
+**WAGs Love Their Crocheted, Bedazzled N.B.A. Merch**\
+`Much women’s sports apparel is just modified from men’s items following a “pink it and shrink it” model. The Snyder sisters charted a more D.I.Y. course.`\
+https://www.nytimes.com/2026/06/03/style/dannijo-nba-wags-jerseys.html
+
+**Making Scottish Ballet’s ‘Mary, Queen of Scots’ Legible to Americans**\
+`Scottish Ballet realized it needed to make its nation’s history a bit more explicit to take its “Mary, Queen of Scots” on the road. It comes to Lincoln Center this week.`\
+https://www.nytimes.com/2026/06/03/arts/dance/scottish-ballet-mary-queen-of-scots.html
+
+**A New Play, ‘Kenrex,’ Revisits the Story of a Bully’s Unsolved Murder**\
+`A man was shot dead surrounded by witnesses in Skidmore, Mo., but no one was ever prosecuted. Now that act of vigilante justice has inspired the play “Kenrex.”`\
+https://www.nytimes.com/2026/06/03/theater/kenrex-play-murder-ken-mcelroy.html
+
+**How Poets Went From Describing Art to Personally Admiring It**\
+`The form known as ekphrasis — or poetry about art — has taken a turn toward the individual. Our columnist asks what it means.`\
+https://www.nytimes.com/2026/06/03/books/review/on-poetry-art-ekphrasis.html
+
+**Book Review: ‘The Wreck of the Mentor,’ by Eric Jay Dolin**\
+`In “The Wreck of the Mentor,” the maritime historian Eric Jay Dolin brings to life a dramatic episode from the golden age of whaling.`\
+https://www.nytimes.com/2026/06/03/books/review/eric-jay-dolin-wreck-of-the-mentor.html
+
+**How Cat Pierce Went From Indie Sleaze to Indie Earth Mother**\
+`As one half of the Pierces, Cat Pierce wrote infectious pop songs with her sister and played arenas with Coldplay. Now, she’s an emotional lifestyle guru.`\
+https://www.nytimes.com/2026/06/03/style/cat-pierce.html
+
+**The Best Audiobooks of 2026 (So Far)**\
+`The year is nearly halfway over. Here’s what we’ve been listening to.`\
+https://www.nytimes.com/2026/06/03/books/review/best-audiobooks-2026.html
+
+**How TikTok Is Helping Some People Process Their Grief**\
+`On “grieftok,” some influencers have amassed large followings by sharing their experiences with unimaginable loss.`\
+https://www.nytimes.com/2026/06/03/well/live/grief-tiktok-instagram.html
+
+**Feeling Nihilistic? You’re Not Alone.**\
+`A case for mourning the American dream.`\
+https://www.nytimes.com/video/opinion/100000010936743/feeling-nihilistic-youre-not-alone.html
+
 **Iran War Live Updates: Kuwait Says Iranian Attack Has Damaged Its Main Airport**\
 `The United States and Iran both reported strikes overnight, accusing each other of being the aggressor. It was unclear where diplomatic efforts stand to end the war.`\
 https://www.nytimes.com/live/2026/06/03/world/iran-war-trump-israel-lebanon
