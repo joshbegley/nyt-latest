@@ -1,3 +1,75 @@
+**Man Charged With Hate Crimes Over Swastika Flag Flown on N.Y.U. Campus**\
+`The man, Alexander Stepnowsky, was arrested on Tuesday on the Lower East Side, almost a month after the episode. An N.Y.U. official said he was a student at the time of the event.`\
+https://www.nytimes.com/2026/06/03/nyregion/nyu-student-star-of-david.html
+
+**Deadly Attack Fills Kuwait Airport With Smoke and Flames**\
+`At least one person was killed and dozens were injured in a drone attack on Kuwait’s international airport on Wednesday.`\
+https://www.nytimes.com/video/world/middleeast/100000010942279/iran-attack-kuwait-airport.html
+
+**John McClain, Who Helped Keep Michael Jackson’s Profits Flowing, Dies at 72**\
+`A music executive with longstanding ties to the Jackson family, he worked to make Janet a star and Michael a posthumous commercial powerhouse.`\
+https://www.nytimes.com/2026/06/03/arts/music/john-mcclain-dead.html
+
+**Ucrania ataca San Petersburgo el primer día de un congreso de Putin**\
+`El ataque forma parte de una campaña destinada a infligir daños económicos a Rusia y demostrar su vulnerabilidad.`\
+https://www.nytimes.com/es/2026/06/03/espanol/mundo/ucrania-dron-ataque-san-petersburgo.html
+
+**Inside Scarlett Supple and James Thurstan Waterworth’s English Countryside Cottage**\
+`A couple with a love of collecting have filled their family home with finds from near and far.`\
+https://www.nytimes.com/2026/06/03/t-magazine/english-countryside-cottage.html
+
+**Mullin Says ICE Training Going Back to ‘Regular Standards’**\
+`The immigration agency had apparently cut training requirements as a part of its enforcement push over the past year.`\
+https://www.nytimes.com/2026/06/03/us/politics/mullin-ice-training.html
+
+**Montana Voters Deliver Mixed Results on Shifting Statehouse Rightward**\
+`Hard-line Republicans targeted moderate colleagues in legislative primaries, but both sides claimed victories in the fight for control of the G.O.P.`\
+https://www.nytimes.com/2026/06/03/us/elections/montana-state-legislature-republican-primary.html
+
+**‘Infuriated’ Former Judges Take on Trump**\
+`Critics say it is unseemly for retired judges to trade on the prestige of their former positions.`\
+https://www.nytimes.com/2026/06/03/us/politics/the-docket-former-judges-filings.html
+
+**Why Democrats Are Hopeful About Making Gains in Iowa**\
+`After voting twice for Barack Obama, Iowa swung to the right. But the state has been hit hard economically and by Trump policies while growing disenchanted with its leaders.`\
+https://www.nytimes.com/2026/06/03/us/elections/iowa-turek-democrats-trump.html
+
+**My Family Member Is Being Pressured to Donate a Kidney. Should I Say Something?**\
+`The recipient would be his stepfather’s colleague, whom he barely knows.`\
+https://www.nytimes.com/2026/06/03/magazine/pressure-to-donate-a-kidney-ethics.html
+
+**Bravo’s ‘Summer House’ Is Turning Men Into Reality TV Fans**\
+`Bravo’s reality TV hit has cracked an elusive audience.`\
+https://www.nytimes.com/2026/06/03/style/summer-house-reunion-amanda-west-men.html
+
+**Tropical Storm Amanda Forms in the Eastern Pacific**\
+`See the likely path and wind arrival times for Amanda`\
+https://www.nytimes.com/interactive/2026/06/03/weather/tropical-storm-amanda-map-path-tracker.html
+
+**Tiny Love Stories: ‘As He Dressed, I Slipped Into His Closet’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/06/03/style/tiny-modern-love-stories-as-he-dressed-i-slipped-into-his-closet.html
+
+**Caissie Levy, Tony Awards Contender and ‘Ragtime’ Star, Is Having a Moment**\
+`Caissie Levy was Broadway’s first Elsa. She starred in “Hair” and “Ghost.” And now, for “Ragtime,” she is an odds-on favorite to win a Tony Award.`\
+https://www.nytimes.com/2026/06/03/theater/caissie-levy-broadway-tonys-ragtime.html
+
+**Ahead of NBA Finals, NYC Reverses Ban on Knicks Watch Party Outside Madison Square Garden**\
+`The decision by New York City came on Wednesday as the Knicks prepared for Game 1 of their series against the Spurs for the N.B.A. title.`\
+https://www.nytimes.com/2026/06/03/nyregion/knicks-msg-watch-party.html
+
+**Trump Administration Fights Court Order to Refund Some Tariffs**\
+`The administration has started to repay some of the money, but has signaled it may make it harder for certain businesses to claim the full amount they are owed.`\
+https://www.nytimes.com/2026/06/03/business/economy/trump-tariffs-refunds-court-order.html
+
+**Elecciones en Colombia: Trump respalda a De la Espriella**\
+`Trump dijo que el candidato, Abelardo de la Espriella, era importante para la relación entre EE. UU. y Colombia y calificó a su rival de izquierda de “marxista de izquierda radical”.`\
+https://www.nytimes.com/es/2026/06/03/espanol/america-latina/trump-colombia-de-la-espriella.html
+
+**Today, In Short**\
+`Nick Jonas. Pattie Gonia. And the latest from the primaries.`\
+https://www.nytimes.com/2026/06/03/briefing/today-in-short.html
+
 **Ted Danson Apologizes for Blackface Roast of Whoopi Goldberg in 1993**\
 `The actor’s monologue drew condemnation from figures including David N. Dinkins, New York’s first Black mayor.`\
 https://www.nytimes.com/2026/06/03/arts/ted-danson-blackface-whoopi-goldberg-apology.html
