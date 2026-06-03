@@ -1,3 +1,7 @@
+**The House Votes to End the Iran War**\
+`Also, the N.B.A. finals tips off. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/06/03/briefing/house-iran-war-powers.html
+
 **SpaceX IPO to Be Largest Ever at $135 Share Price**\
 `The $135 share price means Elon Musk’s rocket maker is poised to exceed the 2019 initial public offering of Saudi Aramco in both valuation and money raised.`\
 https://www.nytimes.com/2026/06/03/technology/spacex-ipo-pricing.html
