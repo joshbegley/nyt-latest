@@ -1,3 +1,11 @@
+**‘Summer House’ and the Perils of Wanton Location Sharing**\
+`Stop letting your friends and lovers surveil you, and get off my lawn.`\
+https://www.nytimes.com/2026/06/03/opinion/location-sharing-surveillance-summer-house.html
+
+**A Neighbor Child Visits Us With Empty Pockets and His Hand Out. Help!**\
+`An older couple is happy to host a teenage neighbor at their lake house, but they have begun to resent his easy acceptance of gifts and presumptuous restaurant orders.`\
+https://www.nytimes.com/2026/06/03/style/child-guests-spending-money.html
+
 **Attacks on Kuwait and Bahrain Add Further Strain to U.S.-Iran Cease-Fire**\
 `One person was killed in an attack on the international airport in Kuwait, local authorities said, as Iran continues to target U.S. allies in the Persian Gulf.`\
 https://www.nytimes.com/2026/06/03/world/middleeast/iran-attacks-kuwait-bahrain-ceasefire.html
