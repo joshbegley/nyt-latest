@@ -1,3 +1,83 @@
+**Republicans Begin to Test the Limits of Trump’s Power by Flexing Their Own**\
+`The president’s unilateral and retributive style of governing is starting to hit a wall in both chambers of Congress.`\
+https://www.nytimes.com/2026/06/03/us/politics/republicans-trump-fund-iran-war-elections.html
+
+**Ted Danson Apologizes for Blackface Roast of Whoopi Goldberg in 1993**\
+`The actor’s monologue drew condemnation from figures including David N. Dinkins, New York’s first Black mayor.`\
+https://www.nytimes.com/2026/06/03/arts/ted-danson-blackface-whoopi-goldberg-apology.html
+
+**Conductora sin mano derecha es detenida por usar el celular con la mano derecha**\
+`Su caso, por supuesto, fue desestimado.`\
+https://www.nytimes.com/es/2026/06/03/espanol/estados-unidos/video-viral-mujer-mano-policia-florida.html
+
+**Obscure Group With Trump Ties Plans to Route Funds to His Allies for Legal Fights**\
+`A nonprofit called the Lawfare Defense Fund has raised $36 million to support those who consider themselves unjust victims of the legal system with grants to pay for litigation.`\
+https://www.nytimes.com/2026/06/03/us/politics/trump-lawfare-defense-fund.html
+
+**Arizona, Nevada Agree to Trade for Desalinated Pacific Ocean Water**\
+`A decade-old treatment plant in San Diego County, Calif., could leave more water in the Colorado River for states facing severe shortages.`\
+https://www.nytimes.com/2026/06/03/climate/arizona-nevada-san-diego-water.html
+
+**NASA Says Goodbye to its Longtime Mars MAVEN Mission**\
+`The space agency announced that the MAVEN spacecraft, which has circled Mars for more than a decade, is being decommissioned.`\
+https://www.nytimes.com/2026/06/03/science/nasa-maven-mars-orbiter.html
+
+**In Alabama Ruling, Supreme Court Signals Limited Role for Federal Courts in Redistricting Fights**\
+`In an emergency ruling on Tuesday night, the court’s conservative majority gave a first glimpse into congressional district battles under a weakened Voting Rights Act.`\
+https://www.nytimes.com/2026/06/03/us/politics/supreme-court-voting-rights-alabama.html
+
+**The House Votes to End the Iran War**\
+`Also, the N.B.A. finals tips off. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/06/03/briefing/house-iran-war-powers.html
+
+**SpaceX IPO to Be Largest Ever at $135 Share Price**\
+`The $135 share price means Elon Musk’s rocket maker is poised to exceed the 2019 initial public offering of Saudi Aramco in both valuation and money raised.`\
+https://www.nytimes.com/2026/06/03/technology/spacex-ipo-pricing.html
+
+**Trump Signs Executive Order Removing Job Protections From Federal Workers**\
+`The order is a response to resistance during the first Trump administration, when senior career government officials routinely pushed back against policies that appeared to exceed legal boundaries.`\
+https://www.nytimes.com/2026/06/03/us/politics/trump-executive-order-job-protections.html
+
+**How Each House Member Voted on the Iran War Powers Resolution**\
+`The House passed a measure to rein in the use of military force in Iran.`\
+https://www.nytimes.com/interactive/2026/06/03/us/house-iran-war-powers.html
+
+**‘I Love It’: Trump Is Still in Favor of $1.8 Billion Payout Fund**\
+`Todd Blanche, the acting attorney general, said on Tuesday that the administration was “not moving forward with the fund, period,” after the plan drew bipartisan backlash.`\
+https://www.nytimes.com/2026/06/03/us/politics/trump-fund.html
+
+**Trump Agitates Brazil’s Politics, Again**\
+`President Trump appears ready to lend a hand to a new right-wing ally ahead of a crucial election this year that will be the biggest test for Latin America’s left.`\
+https://www.nytimes.com/2026/06/03/world/americas/trump-brazil-flavio-bolsonaro.html
+
+**House Advances New Sanctions on Russia and Aid to Ukraine**\
+`After G.O.P. leaders blocked additional aid to Ukraine, six Republicans and an independent joined Democrats to force the measure to the floor against the wishes of the speaker.`\
+https://www.nytimes.com/2026/06/03/us/house-russia-ukraine-sanctions-aid.html
+
+**Africans Exploring Africa**\
+`A growing middle class is increasingly mobile — and changing African ideas about leisure, travel and even the continent itself.`\
+https://www.nytimes.com/2026/06/03/world/africa-travel-iran-kuwait.html
+
+**Park Service Awards No-Bid Contract to Cover Bridge Statues in Gold**\
+`Originally estimated to cost $2.4 million, the government will now spend $5 million to restore the bronzes in time for Independence Day.`\
+https://www.nytimes.com/2026/06/03/us/politics/park-service-bridge-statues-gold.html
+
+**Eric Swalwell Won More Than 18,000 Votes Despite Suspending His Campaign**\
+`The former House member withdrew from the California governor’s race amid allegations of sexual assault.`\
+https://www.nytimes.com/2026/06/03/us/elections/eric-swalwell-votes-california-primary.html
+
+**Musk and Trump Slashed Aid. Now We Lack Tools to Tackle Ebola.**\
+`The fecklessness of Washington leaders contrasts with the courage of doctors, nurses and aid workers in places like Congo.`\
+https://www.nytimes.com/2026/06/03/opinion/ebola-disease-trump-musk-usaid.html
+
+**New York City Subway Entrance Becomes Knicks Fan Landmark**\
+`The M.T.A. painted a subway station orange and blue for the New York Knicks’ first N.B.A. Final appearance in 27 years. Fans of the basketball team posed by the entrance, which is located outside Madison Square Garden.`\
+https://www.nytimes.com/video/us/100000010943054/knicks-nba-finals-subway.html
+
+**As Ebola Outbreak Widens, Trump Has Yet to Outline a Plan**\
+`Despite long-established procedures for bringing Americans home for monitoring and treatment, the Trump administration has not said that it will allow those at risk of Ebola back into the country.`\
+https://www.nytimes.com/2026/06/03/us/politics/trump-administration-ebola-response.html
+
 **Man Charged With Hate Crimes Over Swastika Flag Flown on N.Y.U. Campus**\
 `The man, Alexander Stepnowsky, was arrested on Tuesday on the Lower East Side, almost a month after the episode. An N.Y.U. official said he was a student at the time of the event.`\
 https://www.nytimes.com/2026/06/03/nyregion/nyu-student-star-of-david.html
