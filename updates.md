@@ -1,3 +1,19 @@
+**Ataques iraníes contra Kuwait y Baréin alteran el alto al fuego**\
+`Una persona murió en un ataque contra el aeropuerto internacional de Kuwait, dijeron las autoridades locales, mientras Irán sigue atacando a los aliados estadounidenses en el golfo Pérsico.`\
+https://www.nytimes.com/es/2026/06/03/espanol/mundo/iran-ataques-kuwait-barein-ee-uu.html
+
+**Ahead of NBA Finals, NYC Reverses Ban on Knicks Watch Party Outside Madison Square Garden**\
+`The decision by New York City came on Wednesday as the Knicks prepared for Game 1 of their series against the Spurs for the N.B.A. title.`\
+https://www.nytimes.com/2026/06/03/nyregion/knicks-msg-watch-party.html
+
+**Protests in UK Over Henry Nowak Murder Case Turn Violent, as Leaders Urge Calm**\
+`Eleven officers were wounded in clashes with demonstrators after right-wing politicians and commentators accused the police of anti-white bias.`\
+https://www.nytimes.com/2026/06/03/world/europe/henry-nowak-murder-southampton-protests-uk.html
+
+**Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
+`Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race. The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles.`\
+https://www.nytimes.com/live/2026/06/03/us/california-primary-elections-midterms
+
 **Man Charged With Hate Crimes Over Swastika Flag Flown on N.Y.U. Campus**\
 `The man, Alexander Stepnowsky, was arrested on Tuesday on the Lower East Side, almost a month after the episode.`\
 https://www.nytimes.com/2026/06/03/nyregion/nyu-student-star-of-david.html
