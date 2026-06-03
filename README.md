@@ -67,7 +67,7 @@ https://www.nytimes.com/2026/06/02/nyregion/new-jersey-house-primary-hamawy.html
 https://www.nytimes.com/2026/06/02/us/elections/new-mexico-democrat-governor-haaland.html
 
 **Supreme Court Clears the Way for Republican-Friendly Map in Alabama**\
-`In the first major case since the justices narrowed the Voting Rights Act, the court cleared the way for Alabama to use a map preferred by Republicans that eliminates a majority-Black district.`\
+`In the first major case since the justices narrowed the Voting Rights Act, the court cleared the way for Alabama to use a map preferred by Republicans that leaves the state with only one majority-Black district.`\
 https://www.nytimes.com/2026/06/02/us/politics/supreme-court-alabama-congressional-map.html
 
 **‘Jerome’ Review: Darkness Swallows a Three-Way Romance**\

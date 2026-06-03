@@ -1,3 +1,19 @@
+**In California Election Results, Beware the Red or Blue ‘Mirage’**\
+`Exactly when and how votes are counted in California can give misleading indications that a candidate is ahead.`\
+https://www.nytimes.com/2026/06/02/us/politics/california-election-results-red-or-blue-mirage.html
+
+**Trump Endorses Abelardo De La Espriella, Right-Wing Presidential Candidate in Colombia**\
+`Mr. Trump said that the candidate, Abelardo De La Espriella, was important for the U.S.-Colombia relationship and called his left-wing rival a “Radical Left Marxist.”`\
+https://www.nytimes.com/2026/06/02/world/americas/trump-endorses-colombia-de-la-espriella.html
+
+**CBS News Fires Scott Pelley of ‘60 Minutes’**\
+`Mr. Pelley, a former “CBS Evening News” anchor, was ousted after months of tensions between staff and Bari Weiss, the network’s editor in chief.`\
+https://www.nytimes.com/2026/06/02/business/media/scott-pelley-cbs-bari-weiss.html
+
+**California Election Live Updates: Polls Close in Tight Races for Governor and L.A. Mayor**\
+`The nonpartisan primaries will determine which candidates make the fall ballot, though quick results are unlikely.`\
+https://www.nytimes.com/live/2026/06/02/us/california-election-primary-governor
+
 **9 Counties to Watch in the California Governor’s Race**\
 `The race might not be called on election night, but these counties could provide signals for what lies ahead.`\
 https://www.nytimes.com/2026/06/02/us/elections/california-governor-primary-counties-to-watch.html
