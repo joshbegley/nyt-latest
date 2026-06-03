@@ -1,3 +1,7 @@
+**As Vote Counting Continues, Spencer Pratt Suggests He Can Be a Mayor for All L.A. Residents**\
+`(No description)`\
+https://www.nytimes.com/2026/06/03/us/politics/spencer-pratt-suggests-he-can-be-a-mayor-for-all-la-residents.html
+
 **Protests in UK Over Henry Nowak Murder Case Turn Violent, as Leaders Urge Calm**\
 `Eleven police officers were wounded as demonstrators pelted them with rocks and garbage cans, scenes a British cabinet minister called “unacceptable.”`\
 https://www.nytimes.com/2026/06/03/world/europe/henry-nowak-murder-southampton-protests-uk.html
