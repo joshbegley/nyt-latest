@@ -1,3 +1,7 @@
+**House Advances New Sanctions on Russia and Aid to Ukraine**\
+`After G.O.P. leaders blocked additional aid to Ukraine, six Republicans and an Independent joined Democrats to force the measure to the floor against the wishes of the speaker.`\
+https://www.nytimes.com/2026/06/03/us/house-russia-ukraine-sanctions-aid.html
+
 **Africans Exploring Africa**\
 `A growing middle class is increasingly mobile — and changing African ideas about leisure, travel and even the continent itself.`\
 https://www.nytimes.com/2026/06/03/world/africa-travel-iran-kuwait.html
