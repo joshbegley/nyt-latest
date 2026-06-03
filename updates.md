@@ -1,3 +1,7 @@
+**New Delhi Hotel Fire Kills at Least 21 People, Officials Say**\
+`A fire engulfed a six-story hotel in New Delhi on Wednesday, killing at least 21 people, the city’s fire department said. Officials are investigating the cause of the fire.`\
+https://www.nytimes.com/video/world/asia/100000010942224/hotel-fire-deaths-new-delhi-india.html
+
 **G.O.P. Revives Immigration Bill, Weighing Ban on Trump’s Fund**\
 `Several Republicans suggested they would insist on adding a measure to bar the president from creating a fund to pay people who claim to be victims of government persecution.`\
 https://www.nytimes.com/2026/06/03/us/politics/republicans-immigration-bill-trump-fund.html
