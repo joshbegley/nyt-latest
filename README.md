@@ -1,3 +1,11 @@
+**Ashley Hinson Wins the Republican Senate Primary in Iowa**\
+`Representative Hinson, a third-term lawmaker, was the favorite of Republican leaders and donors. The general election is expected to be unusually competitive.`\
+https://www.nytimes.com/2026/06/02/us/politics/iowa-republican-senate-primary-hinson-carlin.html
+
+**Karen Bass: 5 Facts About the Incumbent Los Angeles Mayor**\
+`The incumbent Los Angeles mayor started her term with strong approval ratings, but she lost support with voters after the fires last year that devastated the region.`\
+https://www.nytimes.com/2026/06/02/us/politics/karen-bass-la-mayor.html
+
 **Perry Wins G.O.P. Nomination for New Mexico Land Commissioner**\
 `Michael Perry says he is pragmatic, but Democrats fear he would advance the agenda of President Trump and the New Mexican nominated to head the Bureau of Land Management, Steve Pearce.`\
 https://www.nytimes.com/2026/06/02/us/elections/new-mexico-land-commissioner-republican.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-new-mexico-primary
 **Sheet-Pan Chicken With Potatoes, Arugula and Garlic Yogurt**\
 `Your typical sheet-pan chicken recipe roasts everything together on a pan at once. This version from Cooking’s Melissa Clark pairs potatoes with the poultry, and tops everything off with fresh herbs and arugula, making it a true one-pan meal, salad included.`\
 https://www.nytimes.com/video/dining/100000010940482/sheet-pan-chicken-with-potatoes-arugula-and-garlic-yogurt.html
-
-**California Eighth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 California primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-8-primary.html
-
-**California 50th Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 California primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-50-primary.html
 
