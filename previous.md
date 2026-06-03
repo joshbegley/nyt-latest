@@ -1,3 +1,11 @@
+**For Dubai’s Migrants, War Is One More Worry in Super Stressed Lives**\
+`For laborers in Dubai, a free stress-management class offers a temporary oasis of calm amid struggles with debt, loneliness, long hours and, in recent months, the fear of missile strikes.`\
+https://www.nytimes.com/2026/06/03/world/middleeast/dubai-uae-migrant-workers-war-stress.html
+
+**Quote of the Day:British Lab Hunts for Risks and Potential Catastrophes Lurking in A.I.**\
+`Quotation of the Day for Wednesday, June 3, 2026.`\
+https://www.nytimes.com/2026/06/03/pageoneplus/quote-of-the-daybritish-lab-hunts-for-risks-and-potential-catastrophes-lurking-in-ai.html
+
 **Pacific Palisades Voters Remain Frustrated by Fire Aftermath**\
 `Residents of the Pacific Palisades neighborhood of Los Angeles headed to the polls on Tuesday. Many are waiting for their homes to be rebuilt.`\
 https://www.nytimes.com/2026/06/02/us/politics/pacific-palisades-los-angeles-election.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/02/business/media/notus-washington-star-trademar
 **Billionaires and Silicon Valley Have Flooded California’s Races With Cash**\
 `Tom Steyer has spent a staggering $216 million on his campaign for governor. Tech titans have lined up behind one of his rivals. And in other races, rich donors are spending big.`\
 https://www.nytimes.com/2026/06/02/us/politics/california-primary-midterms-election-spending.html
-
-**Roman Catholic Priest Sentenced to Life in Prison for Sexual Assault**\
-`Father Anthony Odiong, who served in Texas and Louisiana, had been found guilty of abusing multiple women. Prosecutors say the abuse almost certainly resulted in the birth of a child.`\
-https://www.nytimes.com/2026/06/02/us/waco-texas-priest-sexual-assault-sentence.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/politics/100000010941091/California-Primaries-Daniel-Gomez-56882.html
 
 **California Election Live Updates: Early Results Show Tight Races for Governor and L.A. Mayor**\
 `The nonpartisan primaries will determine which candidates make the fall ballot, though quick results are unlikely.`\

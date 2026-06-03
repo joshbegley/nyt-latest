@@ -1,3 +1,11 @@
+**For Dubai’s Migrants, War Is One More Worry in Super Stressed Lives**\
+`For laborers in Dubai, a free stress-management class offers a temporary oasis of calm amid struggles with debt, loneliness, long hours and, in recent months, the fear of missile strikes.`\
+https://www.nytimes.com/2026/06/03/world/middleeast/dubai-uae-migrant-workers-war-stress.html
+
+**Quote of the Day:British Lab Hunts for Risks and Potential Catastrophes Lurking in A.I.**\
+`Quotation of the Day for Wednesday, June 3, 2026.`\
+https://www.nytimes.com/2026/06/03/pageoneplus/quote-of-the-daybritish-lab-hunts-for-risks-and-potential-catastrophes-lurking-in-ai.html
+
 **Pacific Palisades Voters Remain Frustrated by Fire Aftermath**\
 `Residents of the Pacific Palisades neighborhood of Los Angeles headed to the polls on Tuesday. Many are waiting for their homes to be rebuilt.`\
 https://www.nytimes.com/2026/06/02/us/politics/pacific-palisades-los-angeles-election.html

@@ -1,3 +1,7 @@
+**Becerra’s Heritage Appeals to Many Latino Voters, but Some Shrug**\
+`If Xavier Becerra wins the primary, he has a strong chance of becoming California’s first Latino governor since 1875. That’s a draw for some Latino voters, but other factors are driving their votes.`\
+https://www.nytimes.com/2026/06/03/us/politics/becerra-heritage-latino-voters.html
+
 **For Dubai’s Migrants, War Is One More Worry in Super Stressed Lives**\
 `For laborers in Dubai, a free stress-management class offers a temporary oasis of calm amid struggles with debt, loneliness, long hours and, in recent months, the fear of missile strikes.`\
 https://www.nytimes.com/2026/06/03/world/middleeast/dubai-uae-migrant-workers-war-stress.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/02/us/politics/montana-republican-senate-primary
 **NOTUS Cannot Be ‘The Star’: Judge Blocks D.C. News Outlet’s Rebranding**\
 `NOTUS, a political news website, must temporarily suspend its plans to rebrand, a judge ruled in a trademark dispute brought by The Washington Star.`\
 https://www.nytimes.com/2026/06/02/business/media/notus-washington-star-trademark-dispute.html
-
-**Billionaires and Silicon Valley Have Flooded California’s Races With Cash**\
-`Tom Steyer has spent a staggering $216 million on his campaign for governor. Tech titans have lined up behind one of his rivals. And in other races, rich donors are spending big.`\
-https://www.nytimes.com/2026/06/02/us/politics/california-primary-midterms-election-spending.html
 
 **California Election Live Updates: Early Results Show Tight Races for Governor and L.A. Mayor**\
 `The nonpartisan primaries will determine which candidates make the fall ballot, though quick results are unlikely.`\
