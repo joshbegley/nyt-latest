@@ -1,3 +1,15 @@
+**SpaceX IPO to Be Largest Ever at $135 Share Price**\
+`The $135 share price means Elon Musk’s rocket maker is poised to exceed the 2019 initial public offering of Saudi Aramco in both valuation and money raised.`\
+https://www.nytimes.com/2026/06/03/technology/spacex-ipo-pricing.html
+
+**Trump Signs Executive Order Removing Job Protections From Federal Workers**\
+`The order is a response to resistance during the first Trump administration, when senior career government officials routinely pushed back against policies that appeared to exceed legal boundaries.`\
+https://www.nytimes.com/2026/06/03/us/politics/trump-executive-order-job-protections.html
+
+**How Each House Member Voted on the Iran War Powers Resolution**\
+`The House passed a measure to rein in the use of military force in Iran.`\
+https://www.nytimes.com/interactive/2026/06/03/us/house-iran-war-powers.html
+
 **‘I Love It’: Trump Is Still in Favor of $1.8 Billion Payout Fund**\
 `Todd Blanche, the acting attorney general, said on Tuesday that the administration was “not moving forward with the fund, period,” after the plan drew bipartisan backlash.`\
 https://www.nytimes.com/2026/06/03/us/politics/trump-fund.html
