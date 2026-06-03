@@ -1,8 +1,28 @@
+**Need Some Zucchini Recipes?**\
+`How about: seared zucchini and halloumi in red-wine vinaigrette, jalapeño-Cheddar zucchini bread and roasted zucchini and shrimp with za’atar yogurt.`\
+https://www.nytimes.com/2026/06/03/dining/need-some-zucchini-recipes.html
+
+**Songwriter David Baerwald Shares an Unspeakable Family Secret in ‘The Fire Agent’**\
+`In “The Fire Agent,” the musician David Baerwald bases his debut novel on the shadowy life of his German-Jewish grandfather: an aristocrat, a soldier, a Buddhist and a spy.`\
+https://www.nytimes.com/2026/06/03/style/david-baerwald-the-fire-agent.html
+
+**What Elon Musk Really Wants From the SpaceX I.P.O.**\
+`What Elon Musk really wants out of the SpaceX I.P.O.: the funds to control the highly profitable earnings potential of low-Earth orbit.`\
+https://www.nytimes.com/2026/06/03/opinion/elon-musk-spacex-ipo-leo-rockefeller.html
+
+**Attack on Kuwait Airport Further Upends Travel in the Mideast**\
+`Airports in Kuwait, Iraq, Bahrain, the U.A.E. and Iran, some with military functions and some without, have all come under fire.`\
+https://www.nytimes.com/2026/06/03/world/middleeast/kuwait-airport-attack-mideast-travel.html
+
+**Trump Suggests Vance and Rubio Should Run Together in 2028 Election**\
+`President Trump said Vice President JD Vance and Secretary of State Marco Rubio should split a ticket, without mentioning who should be at the top.`\
+https://www.nytimes.com/2026/06/03/us/politics/trump-vance-rubio-2028-election.html
+
 **Navy Helicopter Crash Kills Three in Britain**\
 `The helicopter was on a training exercise when it crashed in a field in southwestern England.`\
 https://www.nytimes.com/2026/06/03/world/europe/navy-helicopter-crash-kills-three-in-britain.html
 
-**Bari Weiss Speaks on Scott Pelley’s Firing: ‘That’s the Path That He Chose’**\
+**Bari Weiss Speaks on Scott Pelley’s ’60 Minutes’ Firing: ‘That’s the Path That He Chose’**\
 `In her first public comments on the firing, Ms. Weiss, the CBS News editor in chief, said that the longtime correspondent had “broken” the trust in the newsroom.`\
 https://www.nytimes.com/2026/06/03/business/media/bari-weiss-scott-pelley-cbs.html
 
@@ -173,26 +193,6 @@ https://www.nytimes.com/2026/06/03/realestate/750000-homes-in-michigan-new-hamps
 **Even on His Own, Nick Is Still a Jonas Brother**\
 `With a starring role in “Power Ballad” and ambitions across mediums, the 33-year-old is carving a singular path.`\
 https://www.nytimes.com/2026/06/03/movies/nick-jonas-interview.html
-
-**California Got the Candidates It Deserves**\
-`Why didn’t a great state get to choose among some great candidates? Blame the voters.`\
-https://www.nytimes.com/2026/06/03/opinion/california-governor-election.html
-
-**At Interlochen, Where Jeffrey Epstein’s Shadow Still Lingers**\
-`The arts school and camp is still contending with the fallout from its former ties to Mr. Epstein, an alumnus and donor accused of preying on two girls he met there.`\
-https://www.nytimes.com/2026/06/03/arts/jeffrey-epstein-interlochen-michigan.html
-
-**In Manhattan, Learning to Not Always Take ‘Yes’ for an Answer**\
-`A woman wanted to move to a one-bedroom, and she liked the Upper East Side. But after negotiating and signing a lease, something didn’t seem right.`\
-https://www.nytimes.com/2026/06/03/realestate/renters-rent-stabalizion-mistake.html
-
-**N.B.A. Finals Introduce Music by Nicholas Britell and Nas**\
-`The league is rolling out music by the composer Nicholas Britell and the rapper Nas that, if successful, could become the sport’s sonic shorthand.`\
-https://www.nytimes.com/2026/06/03/arts/music/nba-finals-music.html
-
-**Ukraine’s Daily Moment of Silence**\
-`Every day at 9 a.m., Ukrainians observe a minute of silence to honor people killed during the Russia-Ukraine war. Our reporter, Maria Varenikova, who has covered the hostilities since 2014, takes us to her hometown to experience this moment.`\
-https://www.nytimes.com/video/world/europe/100000010925753/ukraines-daily-moment-of-silence.html
 
 **Iran War Live Updates: Drone Barrage at Kuwait Airport Kills One and Injures Dozens**\
 `Video footage verified by The New York Times showed fire inside Kuwait’s international airport. The attack was part of one of the biggest assaults on a Gulf nation since the U.S.-Iran cease-fire was announced in April.`\
