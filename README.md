@@ -1,3 +1,7 @@
+**Feeling Nihilistic? You’re Not Alone.**\
+`A case for mourning the American dream.`\
+https://www.nytimes.com/video/opinion/100000010936743/feeling-nihilistic-youre-not-alone.html
+
 **Iran War Live Updates: Kuwait Says Iranian Attack Has Damaged Its Main Airport**\
 `The United States and Iran both reported strikes overnight, accusing each other of being the aggressor. It was unclear where diplomatic efforts stand to end the war.`\
 https://www.nytimes.com/live/2026/06/03/world/iran-war-trump-israel-lebanon
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/02/us/politics/voters-primary-election-los-angel
 **Adam Hamawy, a Progressive Democrat, Wins House Primary in New Jersey**\
 `Dr. Hamawy, a U.S. Army veteran, has been an outspoken critic of Israel’s war in Gaza. His victory makes him the heavy favorite to win in November in the left-leaning district.`\
 https://www.nytimes.com/2026/06/02/nyregion/new-jersey-house-primary-hamawy.html
-
-**Deb Haaland wins nomination in New Mexico governor’s race**\
-`Ms. Haaland, a former Interior secretary, took a big step toward making history as the first Native American woman to be a governor when she won the primary in her Democratic state.`\
-https://www.nytimes.com/2026/06/02/us/elections/new-mexico-democrat-governor-haaland.html
 
 **California Election: Spencer Pratt Runs Second in L.A. Mayor’s Race**\
 `Mr. Pratt, a Republican reality TV star who lost his home in last year’s fires, could face Mayor Karen Bass in a runoff. The Trump-endorsed Steve Hilton and Xavier Becerra, the top polling Democrat, led early results for governor.`\
