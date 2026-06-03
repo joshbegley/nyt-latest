@@ -1,11 +1,3 @@
-**Josh Turek and Zachary Wahls Make Final Pitches in Senate Primary**\
-`Josh Turek and Zach Wahls, the Democratic candidates for U.S. Senate, made their final pitches as voters took to the polls on Tuesday.`\
-https://www.nytimes.com/2026/06/02/us/politics/in-iowa-a-long-senate-primary-draws-to-a-close.html
-
-**War Games and Warnings on Strait of Hormuz Went Unheeded by Trump**\
-`Over the past two decades, Iran repeatedly threatened to close down the waterway. President Trump underestimated Iran’s ability to do so.`\
-https://www.nytimes.com/2026/06/02/us/politics/trump-iran-strait-of-hormuz.html
-
 **Graham Platner Meets With Senate Democrats Amid Texting Scandal**\
 `Mr. Platner, the likely Democratic nominee for Senate in Maine, met in Washington with several senators. Chuck Schumer, the minority leader, dodged questions about his confidence in Mr. Platner.`\
 https://www.nytimes.com/2026/06/02/us/politics/platner-senate-democrats-washington-meeting.html
@@ -197,4 +189,12 @@ https://www.nytimes.com/interactive/2026/us/elections/results-california-us-hous
 **California 40th Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 California primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-40-primary.html
+
+**California 47th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-47-primary.html
+
+**California Seventh Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 California primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-7-primary.html
 
