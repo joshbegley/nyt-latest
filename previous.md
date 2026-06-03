@@ -1,3 +1,91 @@
+**Where Is Iran’s Highly Enriched Uranium?**\
+`The fate of Iran’s stockpile is among the biggest uncertainties surrounding a potential peace deal between the United States and Iran.`\
+https://www.nytimes.com/interactive/2026/06/03/world/middleeast/iran-nuclear-uranium.html
+
+**¿Para qué sirve exactamente Airbnb?**\
+`Además de encontrar un lugar donde dormir, los usuarios pueden reservar degustaciones de comida y citas en salones de belleza. Este mes, Airbnb ha añadido la renta de coches, el almacenamiento de equipaje y la entrega de comestibles.`\
+https://www.nytimes.com/es/2026/06/03/espanol/negocios/airbnb-hoteles-copa-del-mundo.html
+
+**New Intelligence Role Puts Bill Pulte’s Housing Agenda in Doubt**\
+`Mr. Pulte has had difficulty boosting the housing market as head of the Federal Housing Finance Agency. Now he will also serve as acting intelligence director.`\
+https://www.nytimes.com/2026/06/03/business/bill-pulte-housing-intelligence-director.html
+
+**Knicks Fans Invade San Antonio, Chasing a Finals Rematch 27 Years in the Making**\
+`From Spike Lee to die-hard fans haunted by the 1999 finals, New Yorkers have descended on San Antonio in hopes of witnessing the franchise’s first championship in more than 50 years.`\
+https://www.nytimes.com/2026/06/03/us/knicks-fans-tickets-san-antonio-nba-finals-spurs-2026.html
+
+**Spike Lee: Knicks in Six**\
+`The Knicks are New York’s soul, and they are bringing us together again in the championship series against San Antonio.`\
+https://www.nytimes.com/2026/06/03/opinion/new-york-knicks-nba-championship.html
+
+**For Knicks’ Owner James Dolan, a Title Might Finally Stop Some Boos**\
+`James Dolan, the longtime owner of the N.B.A. team, has faced years of jeers. Could a championship change all that?`\
+https://www.nytimes.com/2026/06/03/business/knicks-james-dolan.html
+
+**Feeling Nihilistic? You’re Not Alone.**\
+`A case for mourning the American dream.`\
+https://www.nytimes.com/2026/06/03/opinion/american-dream-politics-negativity.html
+
+**What’s Next Now That Live Nation Has Been Found to Act as a Monopoly**\
+`The music industry may be significantly changed by the judicial rulings to come, but there is still a lot of lawyering left to do.`\
+https://www.nytimes.com/2026/06/03/arts/music/whats-next-now-that-live-nation-has-been-found-to-act-as-a-monopoly.html
+
+**I Tried to Have a Kid With My Best Friend. It Got Complicated.**\
+`Two queer friends dreamed of raising a child together. They almost made it real.`\
+https://www.nytimes.com/2026/06/03/podcasts/best-friends-parenting-kid.html
+
+**In Portugal, Visitors are Flocking to Lisbon’s Food and Art Scenes**\
+`The Portuguese capital is booming with an influx of artists, retirees and visitors drawn to an exciting, affordable culinary scene and an inclusive culture.`\
+https://www.nytimes.com/2026/06/03/travel/lisbon-portugal-restaurants-bars-hotels.html
+
+**Fixing the 34th Street Bottleneck**\
+`Could a busway ease traffic clogging on a key Midtown corridor?`\
+https://www.nytimes.com/2026/06/03/nyregion/fixing-the-34th-street-bottleneck.html
+
+**$750,000 Homes in Michigan, New Hampshire and Texas**\
+`And Arts & Crafts house in Detroit, a farmhouse in Sandwich and a midcentury modern in Campbell.`\
+https://www.nytimes.com/2026/06/03/realestate/750000-homes-in-michigan-new-hampshire-and-texas.html
+
+**Even on His Own, Nick Is Still a Jonas Brother**\
+`With a starring role in “Power Ballad” and ambitions across mediums, the 33-year-old is carving a singular path.`\
+https://www.nytimes.com/2026/06/03/movies/nick-jonas-interview.html
+
+**California Got the Candidates It Deserves**\
+`Why didn’t a great state get to choose among some great candidates? Blame the voters.`\
+https://www.nytimes.com/2026/06/03/opinion/california-governor-election.html
+
+**At Interlochen, Where Jeffrey Epstein’s Shadow Still Lingers**\
+`The arts school and camp is still contending with the fallout from its former ties to Mr. Epstein, an alumnus and donor accused of preying on two girls he met there.`\
+https://www.nytimes.com/2026/06/03/arts/jeffrey-epstein-interlochen-michigan.html
+
+**In Manhattan, Learning to Not Always Take ‘Yes’ for an Answer**\
+`A woman wanted to move to a one-bedroom, and she liked the Upper East Side. But after negotiating and signing a lease, something didn’t seem right.`\
+https://www.nytimes.com/2026/06/03/realestate/renters-rent-stabalizion-mistake.html
+
+**N.B.A. Finals Introduce Music by Nicholas Britell and Nas**\
+`The league is rolling out music by the composer Nicholas Britell and the rapper Nas that, if successful, could become the sport’s sonic shorthand.`\
+https://www.nytimes.com/2026/06/03/arts/music/nba-finals-music.html
+
+**Ukraine’s Daily Moment of Silence**\
+`Every day at 9a.m., Ukrainians observe a minute of silence to honor people killed during the Russia-Ukraine war. Our reporter, Maria Varenikova, who has covered the hostilities since 2014, takes us to her hometown to experience this moment.`\
+https://www.nytimes.com/video/world/europe/100000010925753/ukraines-daily-moment-of-silence.html
+
+**America Broke Something When It Gave Trump a Second Chance**\
+`Lincoln would know how to deal with these Republicans.`\
+https://www.nytimes.com/2026/06/03/opinion/project-2025-2029-democrats.html
+
+**Book Review: ‘The Traveler,’ by Andrea Wulf**\
+`As presented in Andrea Wulf’s new biography, “The Traveler,” George Forster was an impressively curious, open-minded 17-year-old naturalist and polymath.`\
+https://www.nytimes.com/2026/06/03/books/review/the-traveler-andrea-wulf.html
+
+**Charleston’s Charm Hides Bloody History of Revolutionary War in South Carolina**\
+`Some of the fiercest battles took place in South Carolina, but its part in the fight for independence is often overlooked. Our reporter found history, myths, beauty and contradiction across the Lowcountry landscapes.`\
+https://www.nytimes.com/2026/06/03/travel/charleston-south-carolina-history.html
+
+**The Feud Inside England’s Community of Master Home Thatchers**\
+`Inside the tiny community of English master thatchers, a fight is unfolding over a tradition that may not survive.`\
+https://www.nytimes.com/2026/06/03/realestate/thatch-roof-homes-england-long-straw-tradition.html
+
 **5 Minutes That Will Make You Love Charlie Parker**\
 `Bird helped usher in bebop and transformed the alto saxophone into an instrument of startling possibility. Here’s an 11-song primer on his enduring legacy.`\
 https://www.nytimes.com/2026/06/03/arts/music/charlie-parker-jazz-music.html
@@ -109,92 +197,4 @@ https://www.nytimes.com/2026/06/03/crosswords/spelling-bee-forum.html
 **Late Night Wants Trump to Give Peace Talks a Chance**\
 `“Oh, I’m sorry, is wrapping up the war you started not interesting enough?” Michael Kosta said on Tuesday, after the president called negotiations with Iran “boring.”`\
 https://www.nytimes.com/2026/06/03/arts/television/late-night-trump-iran-war-negotiations.html
-
-**Word of the Day: recant**\
-`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/06/03/learning/word-of-the-day-recant.html
-
-**Incumbent Karen Bass Advances to L.A. Mayoral Election in November**\
-`Her opponent remains undetermined.`\
-https://www.nytimes.com/2026/06/03/us/politics/karen-bass-la-mayor-race.html
-
-**Wiener and Chan Will Face Off in House Race to Succeed Nancy Pelosi**\
-`State Sen. Scott Wiener and Supervisor Connie Chan were the top two finishers in the open primary to represent San Francisco as Nancy Pelosi retires.`\
-https://www.nytimes.com/2026/06/03/us/politics/wiener-chan-pelosi-sf-election-house.html
-
-**I Went to Lebanon and Found Something Strangely Hopeful**\
-`If given the chance, the country could remake itself on its own terms.`\
-https://www.nytimes.com/2026/06/03/opinion/lebanon-israel-iran-war.html
-
-**¿Es malo dormir con mi mascota?**\
-`Parece que todo el mundo tiene una opinión, así que les planteamos la pregunta a los expertos.`\
-https://www.nytimes.com/es/2026/06/03/espanol/problemas-salud-dormir-perro-gato.html
-
-**A Trump Endorsement Falls Flat: 4 Election Takeaways From Iowa and Beyond**\
-`The president’s pick for governor of Iowa lost his primary, while Democrats in the state chose their nominee in what they hope will be a competitive Senate race.`\
-https://www.nytimes.com/2026/06/03/us/politics/iowa-new-jersey-primary-takeaways.html
-
-**Zach Lahn Wins Republican Primary for Iowa Governor**\
-`Zach Lahn’s victory was a rare case this year in which a candidate defeated an opponent backed by President Trump.`\
-https://www.nytimes.com/2026/06/03/us/iowa-governor-republican-primary-lahn-feenstra.html
-
-**Representative Brad Sherman to Face Larry Thompson in November**\
-`The 15th-term congressman will face a Republican film producer after they both advanced in a nonpartisan House primary in Southern California.`\
-https://www.nytimes.com/2026/06/03/us/politics/sherman-thompson-california-house-district-32.html
-
-**Gregg Hull Wins G.O.P. Nomination to Be New Mexico Governor**\
-`Gregg Hull, the former mayor of Rio Rancho, a suburb of Albuquerque, will try to break the Democrats’ hold on the southwestern state.`\
-https://www.nytimes.com/2026/06/03/us/elections/new-mexico-republican-governor-hull.html
-
-**Becerra’s Heritage Appeals to Many Latino Voters, but Some Shrug**\
-`If Xavier Becerra wins the primary, he has a strong chance of becoming California’s first Latino governor since 1875. That’s a draw for some Latino voters, but other factors are driving their votes.`\
-https://www.nytimes.com/2026/06/03/us/politics/becerra-heritage-latino-voters.html
-
-**For Dubai’s Migrants, War Is One More Worry in Super Stressed Lives**\
-`For laborers in Dubai, a free stress-management class offers a temporary oasis of calm amid struggles with debt, loneliness, long hours and, in recent months, the fear of missile strikes.`\
-https://www.nytimes.com/2026/06/03/world/middleeast/dubai-uae-migrant-workers-war-stress.html
-
-**Quote of the Day:British Lab Hunts for Risks and Potential Catastrophes Lurking in A.I.**\
-`Quotation of the Day for Wednesday, June 3, 2026.`\
-https://www.nytimes.com/2026/06/03/pageoneplus/quote-of-the-daybritish-lab-hunts-for-risks-and-potential-catastrophes-lurking-in-ai.html
-
-**Pacific Palisades Voters Remain Frustrated by Fire Aftermath**\
-`Residents of the Pacific Palisades neighborhood of Los Angeles headed to the polls on Tuesday. Many are waiting for their homes to be rebuilt.`\
-https://www.nytimes.com/2026/06/02/us/politics/pacific-palisades-los-angeles-election.html
-
-**U.S. Is Said to Be Investigating George Santos Over Kalshi Betting**\
-`The former congressman was referred to federal authorities after he bet on his own attendance at the State of the Union address, a person familiar with the matter said.`\
-https://www.nytimes.com/2026/06/02/us/politics/george-santos-investigation-prediction-markets.html
-
-**Spencer Pratt’s L.A. Mayor Campaign Is Fueled by Out-of-Town Cash**\
-`Mr. Pratt, a former reality TV star, has proved adept at raising funds among people who cannot vote for him. His rivals in the race have taken a more local approach.`\
-https://www.nytimes.com/2026/06/02/us/politics/spencer-pratt-la-mayor-campaign-funds.html
-
-**In California Election Results, Beware the Red or Blue ‘Mirage’**\
-`Exactly when and how votes are counted in California can give misleading indications that a candidate is ahead.`\
-https://www.nytimes.com/2026/06/02/us/politics/california-election-results-red-or-blue-mirage.html
-
-**Trump Endorses Abelardo De La Espriella, Right-Wing Presidential Candidate in Colombia**\
-`Mr. Trump said that the candidate, Abelardo De La Espriella, was important for the U.S.-Colombia relationship and called his left-wing rival a “Radical Left Marxist.”`\
-https://www.nytimes.com/2026/06/02/world/americas/trump-endorses-colombia-de-la-espriella.html
-
-**9 Counties to Watch in the California Governor’s Race**\
-`The race might not be called on election night, but these counties could provide signals for what lies ahead.`\
-https://www.nytimes.com/2026/06/02/us/elections/california-governor-primary-counties-to-watch.html
-
-**Read Nick Bilton’s Letter to Scott Pelley**\
-`“Your antipathy to the future of the show has come through loud and clear,” Mr. Bilton said to the longtime CBS correspondent.`\
-https://www.nytimes.com/interactive/2026/06/02/business/media/02biz-bilton-letter-doc.html
-
-**Radio Host With Trump’s Support Wins Republican House Primary in Montana**\
-`Aaron Flint defeated three other Republicans, including Christi Jacobsen, the Montana secretary of state.`\
-https://www.nytimes.com/2026/06/02/us/politics/montana-republican-house-primary-flint-jacobsen.html
-
-**Late-Arriving Ballots Could Lean Democratic in California**\
-`Democratic voters have been returning their ballots later than Republicans in this year’s primaries, which will make it difficult to interpret the results on election night.`\
-https://www.nytimes.com/2026/06/02/us/elections/california-governor-late-mail-ballots.html
-
-**California Election: Spencer Pratt Runs Second in L.A. Mayor’s Race**\
-`Mr. Pratt, a Republican reality TV star who lost his home in last year’s fires, could face Mayor Karen Bass in a runoff. The Trump-endorsed Steve Hilton and Xavier Becerra, the top polling Democrat, led early results for governor.`\
-https://www.nytimes.com/live/2026/06/02/us/california-election-primary-governor
 
