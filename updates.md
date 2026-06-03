@@ -1,3 +1,7 @@
+**Supreme Court Clears the Way for Republican-Friendly Map in Alabama**\
+`In the first major case since the justices narrowed the Voting Rights Act, the court cleared the way for Alabama to use a map preferred by Republicans that leaves the state with only one majority-Black district.`\
+https://www.nytimes.com/2026/06/02/us/politics/supreme-court-alabama-congressional-map.html
+
 **In California Election Results, Beware the Red or Blue ‘Mirage’**\
 `Exactly when and how votes are counted in California can give misleading indications that a candidate is ahead.`\
 https://www.nytimes.com/2026/06/02/us/politics/california-election-results-red-or-blue-mirage.html
