@@ -1,27 +1,3 @@
-**Unusual Greenpeace Lawsuit May Proceed, Dutch Court Says**\
-`Greenpeace International is arguing under Dutch law that an American pipeline company, Energy Transfer, sought to silence it with a costly lawsuit in North Dakota.`\
-https://www.nytimes.com/2026/06/03/climate/greenpeace-energy-transfer-slapp-lawsuit-dakota-access-pipeline.html
-
-**Alex Younger, Former Head of Britain’s MI6, Dies at 62**\
-`As director of the espionage agency from 2014 to 2020, he confronted a range of threats, including international terrorism and an emboldened Russia.`\
-https://www.nytimes.com/2026/06/03/world/europe/alex-younger-dead.html
-
-**I Almost Had a Baby with My BFF**\
-`Joseph Osmundson tells Anna Martin, host of the “Modern Love” podcast, how he felt when his dream of conceiving and co-parenting a baby with his best friend and her partner did not unfold as planned.`\
-https://www.nytimes.com/video/podcasts/100000010942418/i-almost-had-a-baby-with-my-bff.html
-
-**Protests Over Murder Case in Britain Turn Violent**\
-`Protests in Southampton turned violent on Tuesday after far-right commentators made claims that the police’s handling of a murder case in Britain showed the authorities were biased against white people.`\
-https://www.nytimes.com/video/world/europe/100000010941938/henry-nowak-murder-case-protests-uk.html
-
-**How a Prisoner Ended Up Alone in Court in a Death Penalty Case**\
-`The episode at the war court alarmed death penalty lawyers, who argued that the judge had a duty to suspend the proceedings to protect the rights of the defendant.`\
-https://www.nytimes.com/2026/06/03/us/politics/gitmo-death-penalty-case.html
-
-**Six Questions Out of Tuesday’s Big Primaries in California, Iowa and Elsewhere**\
-`Who will run California? Can Democrats win Iowa? Here’s what happened, and what might be next.`\
-https://www.nytimes.com/2026/06/03/us/politics/primaries-california-iowa-questions.html
-
 **Toby Doeden and Larry Rhoden Advance to Runoff for South Dakota Governor**\
 `Toby Doeden, a businessman, and Gov. Larry Rhoden advanced to a runoff. A competitive contest emerged after Kristi Noem stepped down as governor to join President Trump’s cabinet.`\
 https://www.nytimes.com/2026/06/03/us/south-dakota-governor-doeden-rhoden.html
@@ -46,13 +22,13 @@ https://www.nytimes.com/2026/06/03/nyregion/delaney-hall-protests-photos.html
 `The administration has settled on a more legally and politically durable way to impose tariffs, but some say the focus on forced labor is merely a pretext for protectionism.`\
 https://www.nytimes.com/2026/06/03/business/economy/trump-tariffs-forced-labor.html
 
-**‘The Fantasticks’ and ‘Gloria’ Will Head to Broadway This Season**\
-`The nonprofit Second Stage Theater said it would present a reimagined version of “The Fantasticks” and the Pulitzer finalist “Gloria” at the Helen Hayes Theater.`\
-https://www.nytimes.com/2026/06/03/theater/fantasticks-gloria-broadway-second-stage.html
-
 **This Man Should Not Be in Charge of National Intelligence**\
 `Pulte’s one evident qualification is his eagerness to advance the president’s political revenge campaign.`\
 https://www.nytimes.com/2026/06/03/opinion/bill-pulte-national-intelligence-trump.html
+
+**‘The Fantasticks’ and ‘Gloria’ Will Head to Broadway This Season**\
+`The nonprofit Second Stage Theater said it would present a reimagined version of “The Fantasticks” and the Pulitzer finalist “Gloria” at the Helen Hayes Theater.`\
+https://www.nytimes.com/2026/06/03/theater/fantasticks-gloria-broadway-second-stage.html
 
 **Ataques iraníes contra Kuwait y Baréin alteran el alto al fuego**\
 `Una persona murió en un ataque contra el aeropuerto internacional de Kuwait, dijeron las autoridades locales, mientras Irán sigue atacando a los aliados estadounidenses en el golfo Pérsico.`\
@@ -190,7 +166,35 @@ https://www.nytimes.com/video/world/africa/100000010940945/a-death-at-the-epicen
 `Mayor Karen Bass of Los Angeles secured her spot in the mayoral election in November after falling short of an outright majority in the primary. Spencer Pratt, a onetime reality TV star, and Nithya Raman, a City Council member, were battling for second place.`\
 https://www.nytimes.com/video/us/politics/100000010941998/california-la-mayor-race-primary-election.html
 
+**Corrections: June 3, 2026**\
+`Corrections that appeared in print on Wednesday, June 3, 2026.`\
+https://www.nytimes.com/2026/06/03/pageoneplus/corrections-june-3-2026.html
+
+**Stop Location-Tracking Your Friends and Lovers**\
+`Your friends don’t need to know where you are 24/7.`\
+https://www.nytimes.com/2026/06/03/opinion/location-sharing-surveillance-summer-house.html
+
+**A Neighbor Child Visits Us With Empty Pockets and His Hand Out. Help!**\
+`An older couple is happy to host a teenage neighbor at their lake house, but they have begun to resent his easy acceptance of gifts and presumptuous restaurant orders.`\
+https://www.nytimes.com/2026/06/03/style/child-guests-spending-money.html
+
+**Attacks on Kuwait and Bahrain Add Further Strain to U.S.-Iran Cease-Fire**\
+`One person was killed in an attack on the international airport in Kuwait, local authorities said, as Iran continues to target U.S. allies in the Persian Gulf.`\
+https://www.nytimes.com/2026/06/03/world/middleeast/iran-attacks-kuwait-bahrain-ceasefire.html
+
+**European Union Outlines Plan to Reduce Dependence on American Tech**\
+`The 27-nation European Union outlined how it hopes to expand the region’s data centers, semiconductors and cloud computing capabilities.`\
+https://www.nytimes.com/2026/06/03/technology/european-union-tech-sovereignty.html
+
+**What’s Driving Trump’s Big A.I. Pivot**\
+`Even the industry-friendly Trump White House is finding that it needs to have greater oversight of powerful new artificial intelligence models.`\
+https://www.nytimes.com/2026/06/03/business/dealbook/trump-ai-pivot.html
+
 **Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
 `Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race. The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles.`\
 https://www.nytimes.com/live/2026/06/03/us/california-primary-elections-midterms
+
+**Iran War Live Updates: Drone Barrage at Kuwait Airport Kills One and Injures Dozens**\
+`Video footage verified by The New York Times showed fire inside Kuwait’s international airport. The attack was part of one of the biggest assaults on a Gulf nation since the U.S.-Iran cease-fire was announced in April.`\
+https://www.nytimes.com/live/2026/06/03/world/iran-war-trump-israel-lebanon
 

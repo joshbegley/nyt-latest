@@ -1,3 +1,7 @@
+**Unusual Greenpeace Lawsuit May Proceed, Dutch Court Says**\
+`Greenpeace International is arguing under Dutch law that an American pipeline company, Energy Transfer, sought to silence it with a costly lawsuit in North Dakota.`\
+https://www.nytimes.com/2026/06/03/climate/greenpeace-energy-transfer-slapp-lawsuit-dakota-access-pipeline.html
+
 **Alex Younger, Former Head of Britain’s MI6, Dies at 62**\
 `As director of the espionage agency from 2014 to 2020, he confronted a range of threats, including international terrorism and an emboldened Russia.`\
 https://www.nytimes.com/2026/06/03/world/europe/alex-younger-dead.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/video/world/africa/100000010940945/a-death-at-the-epicen
 **Incumbent Karen Bass Advances to L.A. Mayoral Runoff Election**\
 `Mayor Karen Bass of Los Angeles secured her spot in the mayoral election in November after falling short of an outright majority in the primary. Spencer Pratt, a onetime reality TV star, and Nithya Raman, a City Council member, were battling for second place.`\
 https://www.nytimes.com/video/us/politics/100000010941998/california-la-mayor-race-primary-election.html
-
-**Corrections: June 3, 2026**\
-`Corrections that appeared in print on Wednesday, June 3, 2026.`\
-https://www.nytimes.com/2026/06/03/pageoneplus/corrections-june-3-2026.html
 
 **Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
 `Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race. The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles.`\
