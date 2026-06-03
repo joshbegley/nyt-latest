@@ -1,3 +1,27 @@
+**Even if Oil Prices Peak Soon, the Global Economy Will Slow This Year**\
+`The Organization for Economic Cooperation and Development, in a report, said the Middle East war’s consequences “are likely to be felt for some time.”`\
+https://www.nytimes.com/2026/06/03/business/iran-war-oecd-economy.html
+
+**Want Courtside Seats for the Knicks? Be Rich, Famous and a Die-Hard Fan.**\
+`Prime tickets on the floor for the N.B.A. Finals are coveted and very hard to get. The No. 1 requirement: You must love the Knicks.`\
+https://www.nytimes.com/2026/06/03/nyregion/knicks-courtside-madison-square-garden.html
+
+**¿Cuánto tiempo puede seguir así Marco Rubio?**\
+`El secreto del éxito del secretario de Estado de EE. UU.`\
+https://www.nytimes.com/es/2026/06/03/espanol/opinion/marco-rubio-trump-estados-unidos.html
+
+**George Conway Won Fame as a Never-Trumper. Will New York Voters Buy It?**\
+`Mr. Conway has centered his House campaign on his well-publicized fight against President Trump, arguing that no issue is more important to the nation.`\
+https://www.nytimes.com/2026/06/03/nyregion/george-conway-trump-congress.html
+
+**This Rugged New York Heron Is Suddenly Facing Extinction. Why?**\
+`Black-crowned night herons could go the way of the passenger pigeon, vanishing from the city. Why remains a mystery.`\
+https://www.nytimes.com/2026/06/03/nyregion/black-crowned-night-heron-nyc.html
+
+**NYT Spelling Bee Answers for June 3, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/03/crosswords/spelling-bee-forum.html
+
 **Late Night Wants Trump to Give Peace Talks a Chance**\
 `“Oh, I’m sorry, is wrapping up the war you started not interesting enough?” Michael Kosta said on Tuesday, after the president called negotiations with Iran “boring.”`\
 https://www.nytimes.com/2026/06/03/arts/television/late-night-trump-iran-war-negotiations.html

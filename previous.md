@@ -1,3 +1,27 @@
+**Even if Oil Prices Peak Soon, the Global Economy Will Slow This Year**\
+`The Organization for Economic Cooperation and Development, in a report, said the Middle East war’s consequences “are likely to be felt for some time.”`\
+https://www.nytimes.com/2026/06/03/business/iran-war-oecd-economy.html
+
+**Want Courtside Seats for the Knicks? Be Rich, Famous and a Die-Hard Fan.**\
+`Prime tickets on the floor for the N.B.A. Finals are coveted and very hard to get. The No. 1 requirement: You must love the Knicks.`\
+https://www.nytimes.com/2026/06/03/nyregion/knicks-courtside-madison-square-garden.html
+
+**¿Cuánto tiempo puede seguir así Marco Rubio?**\
+`El secreto del éxito del secretario de Estado de EE. UU.`\
+https://www.nytimes.com/es/2026/06/03/espanol/opinion/marco-rubio-trump-estados-unidos.html
+
+**George Conway Won Fame as a Never-Trumper. Will New York Voters Buy It?**\
+`Mr. Conway has centered his House campaign on his well-publicized fight against President Trump, arguing that no issue is more important to the nation.`\
+https://www.nytimes.com/2026/06/03/nyregion/george-conway-trump-congress.html
+
+**This Rugged New York Heron Is Suddenly Facing Extinction. Why?**\
+`Black-crowned night herons could go the way of the passenger pigeon, vanishing from the city. Why remains a mystery.`\
+https://www.nytimes.com/2026/06/03/nyregion/black-crowned-night-heron-nyc.html
+
+**NYT Spelling Bee Answers for June 3, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/03/crosswords/spelling-bee-forum.html
+
 **Late Night Wants Trump to Give Peace Talks a Chance**\
 `“Oh, I’m sorry, is wrapping up the war you started not interesting enough?” Michael Kosta said on Tuesday, after the president called negotiations with Iran “boring.”`\
 https://www.nytimes.com/2026/06/03/arts/television/late-night-trump-iran-war-negotiations.html
@@ -169,30 +193,6 @@ https://www.nytimes.com/2026/06/02/us/politics/josh-turek-iowa-senate-democrats.
 **5 Things to Know About the Iowa Senate Candidate Zach Wahls**\
 `The progressive Democrat went viral as a teenager with a speech defending marriage equality.`\
 https://www.nytimes.com/2026/06/02/us/politics/zach-wahls-iowa-senate-democrats.html
-
-**Spencer Pratt: 5 Facts About the Candidate for Los Angeles Mayor**\
-`The reality TV star has used his status as a victim of the Palisades fire to mount an outsider campaign portraying Los Angeles officials as incapable of solving the city’s problems.`\
-https://www.nytimes.com/2026/06/02/us/politics/spencer-pratt-la-mayor.html
-
-**Scientists Find Way to Supercharge Dangerous Computer ‘Worms’ With A.I.**\
-`Researchers at the University of Toronto showed how hackers could use artificial intelligence to create a program that could target any known flaw in the world’s computers.`\
-https://www.nytimes.com/2026/06/02/technology/scientists-find-way-to-supercharge-dangerous-computer-worms-with-ai.html
-
-**Polls in South Dakota Show Competitive Race in GOP Primary for Governor**\
-`Four candidates are competing in a race that will advance to a runoff if no one tops 35 percent.`\
-https://www.nytimes.com/2026/06/02/us/elections/south-dakota-governor-primary-republican-polls.html
-
-**Swalwell Departure Scrambled Race for California Governor**\
-`Eric Swalwell was one of the leading contenders, but when he dropped out amid sexual assault allegations, his Democratic rivals saw a chance to win more voters.`\
-https://www.nytimes.com/2026/06/02/us/politics/swalwell-departure-scrambled-race-for-california-governor.html
-
-**Blanche dice que el Departamento de Justicia no procederá con el fondo de 1800 millones de dólares de Trump**\
-`El fiscal general en funciones de EE. UU. dijo a los legisladores que dejaría en vigor una orden que obligaba al IRS a abandonar las investigaciones sobre el presidente Trump, su familia y sus empresas.`\
-https://www.nytimes.com/es/2026/06/02/espanol/estados-unidos/blanche-fondo-trump.html
-
-**Steve Hilton: 5 Facts About the Candidate for California Governor**\
-`Mr. Hilton was the right-hand man of Prime Minister David Cameron in Britain and a Fox News host before he ran for California governor.`\
-https://www.nytimes.com/2026/06/02/us/politics/steve-hilton-california-governor.html
 
 **California Election Live Updates: Spencer Pratt Runs Second in L.A. Mayor’s Race**\
 `Mr. Pratt, a Republican reality TV star who lost his home in last year’s fires, could face Mayor Karen Bass in a runoff. The Trump-endorsed Steve Hilton and Xavier Becerra, the top polling Democrat, led early results for governor.`\
