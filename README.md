@@ -1,3 +1,7 @@
+**G.O.P. Revives Immigration Bill, Weighing Ban on Trump’s Fund**\
+`Several Republicans suggested they would insist on adding a measure to bar the president from creating a fund to pay people who claim to be victims of government persecution.`\
+https://www.nytimes.com/2026/06/03/us/politics/republicans-immigration-bill-trump-fund.html
+
 **The Narrow Path to a Democratic Senate Runs Through Very Red States**\
 `Democrats cheer there is a way, even as new worries emerge over whether Graham Platner can flip a Maine seat. Republicans remain confident they will prevail in Texas, Iowa and Alaska.`\
 https://www.nytimes.com/2026/06/03/us/politics/midterm-senate-battlegrounds.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/03/opinion/elon-musk-spacex-ipo-leo-rockefeller.
 **Attack on Kuwait Airport Further Upends Mideast Travel Amid U.S.-Iran Conflict**\
 `Airports in Kuwait, Iraq, Bahrain, the U.A.E. and Iran, some with military functions and some without, have all come under fire.`\
 https://www.nytimes.com/2026/06/03/world/middleeast/kuwait-airport-attack-mideast-travel.html
-
-**Trump Suggests Vance and Rubio Should Run Together in 2028 Election**\
-`President Trump said Vice President JD Vance and Secretary of State Marco Rubio should split a ticket, without mentioning who should be at the top.`\
-https://www.nytimes.com/2026/06/03/us/politics/trump-vance-rubio-2028-election.html
 
 **Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
 `Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race. The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles.`\
