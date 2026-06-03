@@ -1,3 +1,7 @@
+**House Advances New Sanctions on Russia and Aid to Ukraine**\
+`After G.O.P. leaders blocked additional aid to Ukraine, six Republicans and an Independent joined Democrats to force the measure to the floor against the wishes of the speaker.`\
+https://www.nytimes.com/2026/06/03/us/house-russia-ukraine-sanctions-aid.html
+
 **Africans Exploring Africa**\
 `A growing middle class is increasingly mobile — and changing African ideas about leisure, travel and even the continent itself.`\
 https://www.nytimes.com/2026/06/03/world/africa-travel-iran-kuwait.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/03/style/summer-house-reunion-amanda-west-men.ht
 **Tropical Storm Amanda Forms in the Eastern Pacific**\
 `See the likely path and wind arrival times for Amanda`\
 https://www.nytimes.com/interactive/2026/06/03/weather/tropical-storm-amanda-map-path-tracker.html
-
-**Tiny Love Stories: ‘As He Dressed, I Slipped Into His Closet’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://www.nytimes.com/2026/06/03/style/tiny-modern-love-stories-as-he-dressed-i-slipped-into-his-closet.html
 
 **Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
 `Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race. The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles.`\
