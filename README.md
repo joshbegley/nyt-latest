@@ -183,7 +183,7 @@ https://www.nytimes.com/2026/06/03/well/live/grief-tiktok-instagram.html
 https://www.nytimes.com/video/opinion/100000010936743/feeling-nihilistic-youre-not-alone.html
 
 **Iran War Live Updates: Kuwait Says Iranian Attack Has Damaged Its Main Airport**\
-`The United States and Iran both reported strikes overnight, accusing each other of being the aggressor. It was unclear where diplomatic efforts stand to end the war.`\
+`The United States and Iran accused each other of launching new strikes. President Trump told The New York Post that Iran’s supreme leader is involved in peace talks and he hopes to meet him.`\
 https://www.nytimes.com/live/2026/06/03/world/iran-war-trump-israel-lebanon
 
 **Times Readers Pick the 100 Greatest Living American Songwriters**\
