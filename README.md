@@ -1,3 +1,7 @@
+**E.U. Steps Up Ocean Monitoring as Trump Administration Backs Away**\
+`Days after the U.S. said it would kill a network of ocean monitors, European officials pledged to invest more in their version, calling it a “necessity.”`\
+https://www.nytimes.com/2026/06/03/climate/trump-ocean-monitor-european-union.html
+
 **Four Immigrant Workers Burned to Death in Italy**\
 `The immigrants had been working as fruit pickers in southern Italy, the authorities said, apparently as part of a system of criminal labor trafficking.`\
 https://www.nytimes.com/2026/06/03/world/europe/italy-migrants-burned.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/03/world/middleeast/trump-iran-ayatollah-netanya
 **Need Some Zucchini Recipes?**\
 `How about: seared zucchini and halloumi in red-wine vinaigrette, jalapeño-Cheddar zucchini bread and roasted zucchini and shrimp with za’atar yogurt.`\
 https://www.nytimes.com/2026/06/03/dining/need-some-zucchini-recipes.html
-
-**Songwriter David Baerwald Shares an Unspeakable Family Secret in ‘The Fire Agent’**\
-`In “The Fire Agent,” the musician David Baerwald bases his debut novel on the shadowy life of his German-Jewish grandfather: an aristocrat, a soldier, a Buddhist and a spy.`\
-https://www.nytimes.com/2026/06/03/style/david-baerwald-the-fire-agent.html
 
 **Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
 `Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race. The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles.`\
