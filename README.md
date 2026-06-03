@@ -1,3 +1,7 @@
+**Marni von Wilpert and Jim Desmond Advance in a San Diego-Area House Race**\
+`Ms. von Wilpert’s win in Tuesday’s open primary eliminated Democrats’ fears that two Republicans would advance to November in the 48th Congressional District.`\
+https://www.nytimes.com/2026/06/03/us/politics/wilpert-desmond-california-house-district-48.html
+
 **Even if Oil Prices Peak Soon, the Global Economy Will Slow This Year**\
 `The Organization for Economic Cooperation and Development, in a report, said the Middle East war’s consequences “are likely to be felt for some time.”`\
 https://www.nytimes.com/2026/06/03/business/iran-war-oecd-economy.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/02/us/politics/ashley-hinson-iowa-senate-republi
 **5 Things to Know About the Iowa Senate Candidate Josh Turek**\
 `A gold medalist on the U.S. men’s wheelchair basketball team, Mr. Turek is running as a “common-sense moderate.”`\
 https://www.nytimes.com/2026/06/02/us/politics/josh-turek-iowa-senate-democrats.html
-
-**5 Things to Know About the Iowa Senate Candidate Zach Wahls**\
-`The progressive Democrat went viral as a teenager with a speech defending marriage equality.`\
-https://www.nytimes.com/2026/06/02/us/politics/zach-wahls-iowa-senate-democrats.html
 
 **California Election Live Updates: Spencer Pratt Runs Second in L.A. Mayor’s Race**\
 `Mr. Pratt, a Republican reality TV star who lost his home in last year’s fires, could face Mayor Karen Bass in a runoff. The Trump-endorsed Steve Hilton and Xavier Becerra, the top polling Democrat, led early results for governor.`\
