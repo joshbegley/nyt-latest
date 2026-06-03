@@ -1,3 +1,7 @@
+**Map: 5.1-Magnitude Earthquake Strikes off the Coast of California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/03/us/quake-tracker-california-coast.html
+
 **A Death at the Epicenter of Ebola**\
 `Our chief Africa correspondent, Declan Walsh, reports from the epicenter of the Ebola outbreak on how families, medical workers and local volunteers are grappling with losses of life.`\
 https://www.nytimes.com/video/world/africa/100000010940945/a-death-at-the-epicenter-of-ebola.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/03/arts/music/charlie-parker-jazz-music.html
 **Carley Fortune Keeps Writing Hit Romance Novels**\
 `Carley Fortune left a hard-won journalism job to give fiction a shot. Five best-sellers later, a series based on her debut is about to stream.`\
 https://www.nytimes.com/2026/06/03/books/review/carley-fortune-our-perfect-storm.html
-
-**WAGs Love Their Crocheted, Bedazzled N.B.A. Merch**\
-`Much of women’s sports apparel is just modified from men’s items following a “pink it and shrink it” model. The Snyder sisters charted a more D.I.Y. course.`\
-https://www.nytimes.com/2026/06/03/style/dannijo-nba-wags-jerseys.html
 
 **Iran War Live Updates: Drone Barrage at Kuwait Airport Kills One and Injures Dozens**\
 `Video footage verified by The New York Times showed fire inside Kuwait’s international airport. The attack was part of one of the biggest assaults on a Gulf nation since the U.S.-Iran cease-fire was announced in April.`\
