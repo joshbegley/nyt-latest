@@ -1,3 +1,15 @@
+**Nithya Raman: 5 Facts About the Candidate for Los Angeles Mayor**\
+`Ms. Raman, a progressive Democrat, surprised many allies when she entered the Los Angeles mayor’s race at the last minute.`\
+https://www.nytimes.com/2026/06/02/us/politics/nithya-raman-la-mayor.html
+
+**NYT Crossword Answers for June 3, 2026**\
+`Jiahe Men makes his New York Times debut.`\
+https://www.nytimes.com/2026/06/02/crosswords/daily-puzzle-2026-06-03.html
+
+**CBS News Fires Scott Pelley of ‘60 Minutes’**\
+`Mr. Pelley, a longtime correspondent and former “Evening News” anchor, harshly criticized the show’s leadership in an extraordinary exchange during a staff meeting on Monday.`\
+https://www.nytimes.com/2026/06/02/business/media/scott-pelley-cbs-bari-weiss.html
+
 **Top Texas Election Official to Resign, Months Before General Contest**\
 `Jane Nelson, the Texas secretary of state, was appointed to the role overseeing statewide elections in 2023 by Gov. Greg Abbott.`\
 https://www.nytimes.com/2026/06/02/us/texas-top-election-official-resigns.html
