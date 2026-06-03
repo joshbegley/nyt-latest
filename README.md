@@ -1,3 +1,7 @@
+**The House Votes to End the Iran War**\
+`Also, the N.B.A. finals tips off. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/06/03/briefing/house-iran-war-powers.html
+
 **SpaceX IPO to Be Largest Ever at $135 Share Price**\
 `The $135 share price means Elon Musk’s rocket maker is poised to exceed the 2019 initial public offering of Saudi Aramco in both valuation and money raised.`\
 https://www.nytimes.com/2026/06/03/technology/spacex-ipo-pricing.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/03/t-magazine/english-countryside-cottage.html
 **Mullin Says ICE Training Going Back to ‘Regular Standards’**\
 `The immigration agency had apparently cut training requirements as a part of its enforcement push over the past year.`\
 https://www.nytimes.com/2026/06/03/us/politics/mullin-ice-training.html
-
-**Montana Voters Deliver Mixed Results on Shifting Statehouse Rightward**\
-`Hard-line Republicans targeted moderate colleagues in legislative primaries, but both sides claimed victories in the fight for control of the G.O.P.`\
-https://www.nytimes.com/2026/06/03/us/elections/montana-state-legislature-republican-primary.html
 
 **Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
 `Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race. The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles.`\
