@@ -1,3 +1,11 @@
+**Polls in South Dakota Show Competitive Race in GOP Primary for Governor**\
+`Four candidates are competing in a race that will advance to a runoff if no one tops 35 percent.`\
+https://www.nytimes.com/2026/06/02/us/elections/in-south-dakota-polling-points-to-a-competitive-gop-primary-for-governor.html
+
+**Swalwell Departure Scrambled Race for California Governor**\
+`Eric Swalwell was one of the leading contenders, but when he dropped out amid sexual assault allegations, his Democratic rivals saw a chance to win more voters.`\
+https://www.nytimes.com/2026/06/02/us/politics/swalwell-departure-scrambled-race-for-california-governor.html
+
 **Blanche dice que el Departamento de Justicia no procederá con el fondo de 1800 millones de dólares de Trump**\
 `El fiscal general en funciones de EE. UU. dijo a los legisladores que dejaría en vigor una orden que obligaba al IRS a abandonar las investigaciones sobre el presidente Trump, su familia y sus empresas.`\
 https://www.nytimes.com/es/2026/06/02/espanol/estados-unidos/blanche-fondo-trump.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-california-us-hous
 **California 38th Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 California primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-38-primary.html
-
-**California Fourth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 California primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-4-primary.html
-
-**California 39th Congressional District Primary 2026: Live Election Results, Takano vs. Manos**\
-`Get live results and maps from the 2026 California primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-39-primary.html
 

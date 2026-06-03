@@ -1,6 +1,6 @@
 **Polls in South Dakota Show Competitive Race in GOP Primary for Governor**\
 `Four candidates are competing in a race that will advance to a runoff if no one tops 35 percent.`\
-https://www.nytimes.com/2026/06/02/us/elections/in-south-dakota-polling-points-to-a-competitive-gop-primary-for-governor.html
+https://www.nytimes.com/2026/06/02/us/elections/south-dakota-governor-primary-republican-polls.html
 
 **Swalwell Departure Scrambled Race for California Governor**\
 `Eric Swalwell was one of the leading contenders, but when he dropped out amid sexual assault allegations, his Democratic rivals saw a chance to win more voters.`\

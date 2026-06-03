@@ -1,3 +1,11 @@
+**Polls in South Dakota Show Competitive Race in GOP Primary for Governor**\
+`Four candidates are competing in a race that will advance to a runoff if no one tops 35 percent.`\
+https://www.nytimes.com/2026/06/02/us/elections/in-south-dakota-polling-points-to-a-competitive-gop-primary-for-governor.html
+
+**Swalwell Departure Scrambled Race for California Governor**\
+`Eric Swalwell was one of the leading contenders, but when he dropped out amid sexual assault allegations, his Democratic rivals saw a chance to win more voters.`\
+https://www.nytimes.com/2026/06/02/us/politics/swalwell-departure-scrambled-race-for-california-governor.html
+
 **Josh Turek and Zach Wahls Make Final Pitches in Senate Primary**\
 `Josh Turek and Zach Wahls, the Democratic candidates for U.S. Senate, made their final pitches as voters took to the polls on Tuesday.`\
 https://www.nytimes.com/2026/06/02/us/politics/in-iowa-a-long-senate-primary-draws-to-a-close.html
