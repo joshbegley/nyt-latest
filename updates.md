@@ -1,4 +1,8 @@
 **Gregg Hull Wins G.O.P. Nomination to Be New Mexico Governor**\
+`Gregg Hull, the former mayor of Rio Rancho, a suburb of Albuquerque, will try to break the Democrats’ hold on the southwestern state.`\
+https://www.nytimes.com/2026/06/03/us/elections/new-mexico-republican-governor-hull.html
+
+**Gregg Hull Wins G.O.P. Nomination to Be New Mexico Governor**\
 `Gregg Hull, the former mayor of Rio Rancho, a sprawling suburb of Albuquerque, will try to break the Democrats’ hold on the southwestern state.`\
 https://www.nytimes.com/2026/06/03/us/elections/new-mexico-republican-governor-hull.html
 
