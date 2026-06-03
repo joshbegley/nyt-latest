@@ -1,6 +1,6 @@
-**As Vote Counting Continues, Spencer Pratt Suggests He Can Be a Mayor for All L.A. Residents**\
-`(No description)`\
-https://www.nytimes.com/2026/06/03/us/politics/spencer-pratt-suggests-he-can-be-a-mayor-for-all-la-residents.html
+**Spencer Pratt Suggests He Can Be a Mayor for all L.A. Residents, as Vote Counting Continues**\
+`The former reality TV star has tried to broaden his platform, talking about Los Angeles’s homelessness and drugs problem.`\
+https://www.nytimes.com/2026/06/03/us/politics/spencer-pratt-la-mayor-election.html
 
 **Protests in UK Over Henry Nowak Murder Case Turn Violent, as Leaders Urge Calm**\
 `Eleven police officers were wounded as demonstrators pelted them with rocks and garbage cans, scenes a British cabinet minister called “unacceptable.”`\
