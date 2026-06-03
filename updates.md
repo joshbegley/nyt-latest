@@ -1,3 +1,11 @@
+**Ukraine’s Daily Moment of Silence**\
+`Every day at 9 a.m., Ukrainians observe a minute of silence to honor people killed during the Russia-Ukraine war. Our reporter, Maria Varenikova, who has covered the hostilities since 2014, takes us to her hometown to experience this moment.`\
+https://www.nytimes.com/video/world/europe/100000010925753/ukraines-daily-moment-of-silence.html
+
+**5 Takeaways From the California Primary Election**\
+`Without a dominant candidate in the governor’s race, Democratic voters ultimately wanted to ensure that their party wasn’t shut out of the general election.`\
+https://www.nytimes.com/2026/06/02/us/politics/california-primary-elections-early-takeaways.html
+
 **Why the Ebola Outbreak Has Been Nearly Impossible to Stop**\
 `At the center of the Ebola outbreak in the Democratic Republic of Congo, the front line is completely overwhelmed.`\
 https://www.nytimes.com/2026/06/03/podcasts/the-daily/ebola-outbreak-congo.html
