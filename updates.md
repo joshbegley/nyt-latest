@@ -1,3 +1,7 @@
+**‘Infuriated’ Former Judges Take on Trump**\
+`Critics say it is unseemly for retired judges to trade on the prestige of their former positions.`\
+https://www.nytimes.com/2026/06/03/us/politics/the-docket-former-judges-filings.html
+
 **Why Democrats Are Hopeful About Making Gains in Iowa**\
 `After voting twice for Barack Obama, Iowa swung to the right. But the state has been hit hard economically and by Trump policies while growing disenchanted with its leaders.`\
 https://www.nytimes.com/2026/06/03/us/elections/iowa-turek-democrats-trump.html
