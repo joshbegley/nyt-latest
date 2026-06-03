@@ -1,3 +1,7 @@
+**Trump falló como comandante en jefe**\
+`En tiempos de guerra, los líderes deben unir al país. Trump, en cambio, se ha dedicado a buscar el beneficio personal.`\
+https://www.nytimes.com/es/2026/06/03/espanol/opinion/donald-trump-gestion.html
+
 **Marni von Wilpert and Jim Desmond Advance in a San Diego-Area House Race**\
 `Ms. von Wilpert’s win in Tuesday’s open primary eliminated Democrats’ fears that two Republicans would advance to November in the 48th Congressional District.`\
 https://www.nytimes.com/2026/06/03/us/politics/wilpert-desmond-california-house-district-48.html
