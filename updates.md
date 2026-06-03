@@ -1,3 +1,19 @@
+**Conductora sin mano derecha es detenida por usar el celular con la mano derecha**\
+`Su caso, por supuesto, fue desestimado.`\
+https://www.nytimes.com/es/2026/06/03/espanol/estados-unidos/video-viral-mujer-mano-policia-florida.html
+
+**Obscure Group With Trump Ties Plans to Route Funds to His Allies for Legal Fights**\
+`A nonprofit called the Lawfare Defense Fund has raised $36 million to support those who consider themselves unjust victims of the legal system with grants to pay for litigation.`\
+https://www.nytimes.com/2026/06/03/us/politics/trump-lawfare-defense-fund.html
+
+**Arizona, Nevada Agree to Trade for Desalinated Pacific Ocean Water**\
+`A decade-old treatment plant in San Diego County, Calif., could leave more water in the Colorado River for states facing severe shortages.`\
+https://www.nytimes.com/2026/06/03/climate/arizona-nevada-san-diego-water.html
+
+**NASA Says Goodbye to its Longtime Mars MAVEN Mission**\
+`The space agency announced that the MAVEN spacecraft, which has circled Mars for more than a decade, is being decommissioned.`\
+https://www.nytimes.com/2026/06/03/science/nasa-maven-mars-orbiter.html
+
 **House Advances New Sanctions on Russia and Aid to Ukraine**\
 `After G.O.P. leaders blocked additional aid to Ukraine, six Republicans and an independent joined Democrats to force the measure to the floor against the wishes of the speaker.`\
 https://www.nytimes.com/2026/06/03/us/house-russia-ukraine-sanctions-aid.html
