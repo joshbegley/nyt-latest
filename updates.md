@@ -1,3 +1,15 @@
+**Katie Porter: 5 Facts About the Candidate for California Governor**\
+`The former House member built her reputation by grilling corporate executives, and she has a strong command of policy. But questions about her demeanor have been a drag on her campaign.`\
+https://www.nytimes.com/2026/06/02/us/politics/katie-porter-california-governor.html
+
+**CBS News Fires Scott Pelley of ‘60 Minutes’**\
+`Mr. Pelley, a longtime correspondent and former “CBS Evening News” anchor, harshly criticized the show’s leadership during a staff meeting on Monday.`\
+https://www.nytimes.com/2026/06/02/business/media/scott-pelley-cbs-bari-weiss.html
+
+**5 Things to Know About Representative Ashley Hinson, Senate Candidate in Iowa**\
+`Ms. Hinson, a former journalist who is supported by President Trump, won the Republican nomination.`\
+https://www.nytimes.com/2026/06/02/us/politics/ashley-hinson-iowa-senate-republicans.html
+
 **Palabra del día en inglés: ‘parsimonious’**\
 `Esta palabra ha aparecido en 3 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
 https://www.nytimes.com/es/2026/06/02/espanol/que-significa-parsimonious.html
