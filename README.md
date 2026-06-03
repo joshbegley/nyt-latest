@@ -1,3 +1,7 @@
+**Remaining Uncounted Ballots in California Elections Are Likely to Lean Democratic**\
+`Democratic voters returned their ballots later than Republicans in this year’s primaries, which could cause candidate standings to reshuffle as votes continue to be reported.`\
+https://www.nytimes.com/2026/06/03/us/elections/california-election-results-mail-ballots.html
+
 **Why the Ebola Outbreak Has Been Nearly Impossible to Stop**\
 `At the center of the Ebola outbreak in the Democratic Republic of Congo, the front line is completely overwhelmed.`\
 https://www.nytimes.com/2026/06/03/podcasts/the-daily/ebola-outbreak-congo.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/06/03/espanol/mundo/trump-iran-estrecho-ormuz.ht
 **California Governor’s Race Remains Too Close to Call**\
 `Steve Hilton, a Republican, and Xavier Becerra, a Democrat, were leading in election night returns. Tom Steyer, another Democrat, urged patience as more votes were being counted.`\
 https://www.nytimes.com/2026/06/03/us/politics/california-governor-race-hilton-becerra-steyer.html
-
-**5 Takeaways From the California Primary Election**\
-`Without a dominant candidate in the governor’s race, Democratic voters ultimately wanted to ensure that their party wasn’t shut out of the general election.`\
-https://www.nytimes.com/2026/06/02/us/politics/california-primary-elections-early-takeaways.html
 
