@@ -1,3 +1,11 @@
+**Suburban mayor wins G.O.P. nomination to be New Mexico governor**\
+`Gregg Hull, the former mayor of Rio Rancho, a sprawling suburb of Albuquerque, will try to break the Democrats’ hold on the southwestern state.`\
+https://www.nytimes.com/2026/06/03/us/elections/new-mexico-republican-governor-hull.html
+
+**Becerra’s Heritage Appeals to Many Latino Voters, but Some Shrug**\
+`If Xavier Becerra wins the primary, he has a strong chance of becoming California’s first Latino governor since 1875. That’s a draw for some Latino voters, but other factors are driving their votes.`\
+https://www.nytimes.com/2026/06/03/us/politics/becerra-heritage-latino-voters.html
+
 **For Dubai’s Migrants, War Is One More Worry in Super Stressed Lives**\
 `For laborers in Dubai, a free stress-management class offers a temporary oasis of calm amid struggles with debt, loneliness, long hours and, in recent months, the fear of missile strikes.`\
 https://www.nytimes.com/2026/06/03/world/middleeast/dubai-uae-migrant-workers-war-stress.html
