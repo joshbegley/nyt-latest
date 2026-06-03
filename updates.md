@@ -1,3 +1,7 @@
+**Sam Forstag Wins Democratic House Primary in Montana’s 1st Congressional District**\
+`Sam Forstag’s candidacy will test a liberal theory that left-leaning politicians running in Republican strongholds can do better in general elections than moderates have done historically.`\
+https://www.nytimes.com/2026/06/03/us/politics/montana-democratic-house-busse-forstag-rains.html
+
 **How a Prisoner Ended Up Alone in Court in a Death Penalty Case**\
 `The episode at the war court alarmed death penalty lawyers, who argued that the judge had a duty to suspend the proceedings to protect the rights of the defendant.`\
 https://www.nytimes.com/2026/06/03/us/politics/gitmo-death-penalty-case.html

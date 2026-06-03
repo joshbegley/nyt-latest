@@ -1,3 +1,7 @@
+**Protests Over Murder Case in Britain Turn Violent**\
+`Protests in Southampton turned violent on Tuesday after far-right commentators made claims that the police’s handling of a murder case in Britain showed the authorities were biased against white people.`\
+https://www.nytimes.com/video/world/europe/100000010941938/henry-nowak-murder-case-protests-uk.html
+
 **How a Prisoner Ended Up Alone in Court in a Death Penalty Case**\
 `The episode at the war court alarmed death penalty lawyers, who argued that the judge had a duty to suspend the proceedings to protect the rights of the defendant.`\
 https://www.nytimes.com/2026/06/03/us/politics/gitmo-death-penalty-case.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/03/opinion/location-sharing-surveillance-summer-
 **A Neighbor Child Visits Us With Empty Pockets and His Hand Out. Help!**\
 `An older couple is happy to host a teenage neighbor at their lake house, but they have begun to resent his easy acceptance of gifts and presumptuous restaurant orders.`\
 https://www.nytimes.com/2026/06/03/style/child-guests-spending-money.html
-
-**Attacks on Kuwait and Bahrain Add Further Strain to U.S.-Iran Cease-Fire**\
-`One person was killed in an attack on the international airport in Kuwait, local authorities said, as Iran continues to target U.S. allies in the Persian Gulf.`\
-https://www.nytimes.com/2026/06/03/world/middleeast/iran-attacks-kuwait-bahrain-ceasefire.html
 
 **Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
 `Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race. The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles.`\
