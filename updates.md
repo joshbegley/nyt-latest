@@ -1,3 +1,11 @@
+**Zach Lahn Wins Republican Primary for Iowa Governor**\
+`Zach Lahn’s victory was a rare case this year in which a candidate defeated an opponent backed by President Trump.`\
+https://www.nytimes.com/2026/06/03/us/iowa-governor-republican-primary-lahn-feenstra.html
+
+**Representative Brad Sherman to Face Larry Thompson in November**\
+`The 15th-term congressman will face a Republican film producer after they both advanced in a nonpartisan House primary in Southern California.`\
+https://www.nytimes.com/2026/06/03/us/politics/sherman-thompson-california-house-district-32.html
+
 **Gregg Hull Wins G.O.P. Nomination to Be New Mexico Governor**\
 `Gregg Hull, the former mayor of Rio Rancho, a suburb of Albuquerque, will try to break the Democrats’ hold on the southwestern state.`\
 https://www.nytimes.com/2026/06/03/us/elections/new-mexico-republican-governor-hull.html

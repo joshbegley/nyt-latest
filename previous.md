@@ -1,3 +1,11 @@
+**Zach Lahn Wins Republican Primary for Iowa Governor**\
+`Zach Lahn’s victory was a rare case this year in which a candidate defeated an opponent backed by President Trump.`\
+https://www.nytimes.com/2026/06/03/us/iowa-governor-republican-primary-lahn-feenstra.html
+
+**Representative Brad Sherman to Face Larry Thompson in November**\
+`The 15th-term congressman will face a Republican film producer after they both advanced in a nonpartisan House primary in Southern California.`\
+https://www.nytimes.com/2026/06/03/us/politics/sherman-thompson-california-house-district-32.html
+
 **Gregg Hull Wins G.O.P. Nomination to Be New Mexico Governor**\
 `Gregg Hull, the former mayor of Rio Rancho, a suburb of Albuquerque, will try to break the Democrats’ hold on the southwestern state.`\
 https://www.nytimes.com/2026/06/03/us/elections/new-mexico-republican-governor-hull.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/02/us/politics/results-timing-iowa-montana-new-m
 **California House Primaries Offer Clues in Battle for Control of Congress**\
 `Proposition 50 has created a handful of key races where Democrats will choose candidates to pit against vulnerable Republican incumbents. Generational challenges have infused other contests.`\
 https://www.nytimes.com/2026/06/02/us/politics/california-house-election-primary.html
-
-**Tom Steyer: 5 Facts About the Candidate for California Governor**\
-`He is a billionaire who appeals to many progressive groups in California.`\
-https://www.nytimes.com/2026/06/02/us/politics/tom-steyer-california-governor.html
-
-**How a Republican Switcheroo Stifled Competition to Succeed Steve Daines in Montana**\
-`Senator Steve Daines withdrew his candidacy for re-election moments before the filing deadline, and then endorsed Kurt Alme in what appeared to be a coordinated swap to preclude competition.`\
-https://www.nytimes.com/2026/06/02/us/politics/montana-republican-senate-primary-daines-alme.html
 
 **California Election Live Updates: Early Results Show Tight Races for Governor and L.A. Mayor**\
 `The nonpartisan primaries will determine which candidates make the fall ballot, though quick results are unlikely.`\
