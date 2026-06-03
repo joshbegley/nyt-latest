@@ -1,3 +1,7 @@
+**Bari Weiss Speaks on Scott Pelley’s Firing: ‘That’s the Path That He Chose’**\
+`In her first public comments on the firing, Ms. Weiss, the CBS News editor in chief, said that the longtime correspondent had “broken” the trust in the newsroom.`\
+https://www.nytimes.com/2026/06/03/business/media/bari-weiss-scott-pelley-cbs.html
+
 **Ruth Shack, Early Champion of Gay Rights in Miami, Dies at 94**\
 `She sponsored one of the nation’s first anti-discrimination ordinances for gays and lesbians and later helped make Miami a global arts center.`\
 https://www.nytimes.com/2026/06/03/us/ruth-shack-dead.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/world/europe/100000010925753/ukraines-daily-moment
 **Book Review: ‘The Traveler,’ by Andrea Wulf**\
 `As presented in Andrea Wulf’s new biography, “The Traveler,” George Forster was an impressively curious, open-minded 17-year-old naturalist and polymath.`\
 https://www.nytimes.com/2026/06/03/books/review/the-traveler-andrea-wulf.html
-
-**America Broke Something When It Gave Trump a Second Chance**\
-`Lincoln would know how to deal with these Republicans.`\
-https://www.nytimes.com/2026/06/03/opinion/project-2025-2029-democrats.html
 
 **Iran War Live Updates: Drone Barrage at Kuwait Airport Kills One and Injures Dozens**\
 `Video footage verified by The New York Times showed fire inside Kuwait’s international airport. The attack was part of one of the biggest assaults on a Gulf nation since the U.S.-Iran cease-fire was announced in April.`\
