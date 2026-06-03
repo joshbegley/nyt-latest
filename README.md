@@ -190,9 +190,9 @@ https://www.nytimes.com/2026/06/03/crosswords/connections-companion-1089.html
 `Scroll down for hints and conversation about the puzzle for Thursday, June 4, 2026.`\
 https://www.nytimes.com/2026/06/03/crosswords/strands-sidekick-823.html
 
-**Today’s Wordle Hints for June 4, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, June 4, 2026.`\
-https://www.nytimes.com/2026/06/03/crosswords/wordle-review-1811.html
+**Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
+`Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race. The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles.`\
+https://www.nytimes.com/live/2026/06/03/us/california-primary-elections-midterms
 
 **Iran War Live Updates: Drone Barrage at Kuwait Airport Kills One and Injures Dozens**\
 `Video footage verified by The New York Times showed fire inside Kuwait’s international airport. The attack was part of one of the biggest assaults on a Gulf nation since the U.S.-Iran cease-fire was announced in April.`\

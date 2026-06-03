@@ -1,3 +1,23 @@
+**Man Charged With Hate Crimes Over Swastika Flag Flown on N.Y.U. Campus**\
+`The man, Alexander Stepnowsky, was arrested on Tuesday on the Lower East Side, almost a month after the episode.`\
+https://www.nytimes.com/2026/06/03/nyregion/nyu-student-star-of-david.html
+
+**Deadly Iranian Attack Fills Kuwait Airport With Smoke and Flames**\
+`At least one person was killed and dozens were injured in an Iranian drone attack on Kuwait’s international airport on Wednesday.`\
+https://www.nytimes.com/video/world/middleeast/100000010942279/iran-attack-kuwait-airport.html
+
+**John McClain, Who Helped Keep Michael Jackson’s Profits Flowing, Dies at 72**\
+`A music executive with longstanding ties to the Jackson family, he worked to make Janet a star and Michael a posthumous commercial powerhouse.`\
+https://www.nytimes.com/2026/06/03/arts/music/john-mcclain-dead.html
+
+**Ucrania ataca San Petersburgo el primer día de un congreso de Putin**\
+`El ataque forma parte de una campaña destinada a infligir daños económicos a Rusia y demostrar su vulnerabilidad.`\
+https://www.nytimes.com/es/2026/06/03/espanol/mundo/ucrania-dron-ataque-san-petersburgo.html
+
+**Inside Scarlett Supple and James Thurstan Waterworth’s English Countryside Cottage**\
+`A couple with a love of collecting have filled their family home with finds from near and far.`\
+https://www.nytimes.com/2026/06/03/t-magazine/english-countryside-cottage.html
+
 **Mullin Says ICE Training Going Back to ‘Regular Standards’**\
 `The immigration agency had apparently cut training requirements as a part of its enforcement push over the past year.`\
 https://www.nytimes.com/2026/06/03/us/politics/mullin-ice-training.html
