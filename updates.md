@@ -1,3 +1,7 @@
+**The World Cup Is Starting Soon. Why Does No One Care?**\
+`It isn’t just because it’s being held in America under Trump.`\
+https://www.nytimes.com/2026/06/03/opinion/world-cup-club-soccer-america.html
+
 **Unusual Greenpeace Lawsuit May Proceed, Dutch Court Says**\
 `Greenpeace International is arguing under Dutch law that an American pipeline company, Energy Transfer, sought to silence it with a costly lawsuit in North Dakota.`\
 https://www.nytimes.com/2026/06/03/climate/greenpeace-energy-transfer-slapp-lawsuit-dakota-access-pipeline.html
