@@ -1,3 +1,11 @@
+**Late-Arriving Ballots Could Lean Democratic in California**\
+`Democratic voters have been returning their ballots later than Republicans in this year’s primaries, which will make it difficult to interpret the results on election night.`\
+https://www.nytimes.com/2026/06/02/us/elections/california-governor-late-mail-ballots.html
+
+**Sanchez wins Democratic nod for New Mexico land commissioner**\
+`The tightly fought contest to control 9 million acres of state land revolved around which candidate could beat back President Trump and his public land chief, New Mexico’s Steve Pierce.`\
+https://www.nytimes.com/2026/06/02/us/elections/new-mexico-public-lands-democrat.html
+
 **Katie Porter: 5 Facts About the Candidate for California Governor**\
 `The former House member built her reputation by grilling corporate executives, and she has a strong command of policy. But questions about her demeanor have been a drag on her campaign.`\
 https://www.nytimes.com/2026/06/02/us/politics/katie-porter-california-governor.html
