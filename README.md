@@ -1,3 +1,7 @@
+**Spencer Pratt: 5 Facts About the Candidate for Los Angeles Mayor**\
+`The reality TV star has used his status as a victim of the Palisades fire to mount an outsider campaign portraying Los Angeles officials as incapable of solving the city’s problems.`\
+https://www.nytimes.com/2026/06/02/us/politics/spencer-pratt-la-mayor.html
+
 **Scientists Find Way to Supercharge Dangerous Computer ‘Worms’ With A.I.**\
 `Researchers at the University of Toronto showed how hackers could use artificial intelligence to create a program that could target any known flaw in the world’s computers.`\
 https://www.nytimes.com/2026/06/02/technology/scientists-find-way-to-supercharge-dangerous-computer-worms-with-ai.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-california-us-hous
 **California 43rd Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 California primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-43-primary.html
-
-**California Ninth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 California primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-9-primary.html
 
