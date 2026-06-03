@@ -1,3 +1,11 @@
+**Steve Hilton Holds Slim Early Lead in California Governor’s Race**\
+`Steve Hilton, a Republican and former Fox News host, held a narrow lead in early votes over two Democratic opponents in California’s nonpartisan primary for governor. The top two candidates will advance to the general election in November.`\
+https://www.nytimes.com/video/us/politics/100000010941939/california-governor-race-primary-election.html
+
+**Few Landlords Would Default if New York City Froze Rents, Report Says**\
+`The ratings agency Moody’s found a rent freeze on rent-stabilized apartments in New York City may cause fewer problems for landlords than the real estate industry has argued.`\
+https://www.nytimes.com/2026/06/03/nyregion/rent-freeze-nyc-moodys-landlords.html
+
 **Map: 5.1-Magnitude Earthquake Strikes off the Coast of California**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/06/03/us/quake-tracker-california-coast.html

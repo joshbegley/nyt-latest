@@ -1,3 +1,7 @@
+**Out of Time to Delay, House to Vote on Trump’s Power to Continue War in Iran**\
+`A measure to direct the president to halt U.S. engagement in Iran had been on track to pass in late May, but Republican leaders postponed action. They have run out of time to delay the vote.`\
+https://www.nytimes.com/2026/06/03/us/politics/house-vote-trump-iran-war-powers.html
+
 **Steve Hilton Holds Slim Early Lead in California Governor’s Race**\
 `Steve Hilton, a Republican and former Fox News host, held a narrow lead in early votes over two Democratic opponents in California’s nonpartisan primary for governor. The top two candidates will advance to the general election in November.`\
 https://www.nytimes.com/video/us/politics/100000010941939/california-governor-race-primary-election.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/03/opinion/project-2025-2029-democrats.html
 **Charleston’s Charm Hides Bloody History of Revolutionary War in South Carolina**\
 `Some of the fiercest battles took place in South Carolina, but its part in the fight for independence is often overlooked. Our reporter found history, myths, beauty and contradiction across the Lowcountry landscapes.`\
 https://www.nytimes.com/2026/06/03/travel/charleston-south-carolina-history.html
-
-**The Feud Inside England’s Community of Master Home Thatchers**\
-`Inside the tiny community of English master thatchers, a fight is unfolding over a tradition that may not survive.`\
-https://www.nytimes.com/2026/06/03/realestate/thatch-roof-homes-england-long-straw-tradition.html
 
 **Iran War Live Updates: Drone Barrage at Kuwait Airport Kills One and Injures Dozens**\
 `Video footage verified by The New York Times showed fire inside Kuwait’s international airport. The attack was part of one of the biggest assaults on a Gulf nation since the U.S.-Iran cease-fire was announced in April.`\
