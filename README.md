@@ -1,3 +1,7 @@
+**Katie Porter: 5 Facts About the Candidate for California Governor**\
+`The former House member built her reputation by grilling corporate executives, and she has a strong command of policy. But questions about her demeanor have been a drag on her campaign.`\
+https://www.nytimes.com/2026/06/02/us/politics/katie-porter-california-governor.html
+
 **Palabra del día en inglés: ‘parsimonious’**\
 `Esta palabra ha aparecido en 3 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
 https://www.nytimes.com/es/2026/06/02/espanol/que-significa-parsimonious.html
@@ -11,7 +15,7 @@ https://www.nytimes.com/2026/06/02/crosswords/daily-puzzle-2026-06-03.html
 https://www.nytimes.com/2026/06/02/us/politics/nithya-raman-la-mayor.html
 
 **CBS News Fires Scott Pelley of ‘60 Minutes’**\
-`Mr. Pelley, a longtime correspondent and former “Evening News” anchor, harshly criticized the show’s leadership in an extraordinary exchange during a staff meeting on Monday.`\
+`Mr. Pelley, a longtime correspondent and former “CBS Evening News” anchor, harshly criticized the show’s leadership during a staff meeting on Monday.`\
 https://www.nytimes.com/2026/06/02/business/media/scott-pelley-cbs-bari-weiss.html
 
 **Top Texas Election Official to Resign, Months Before General Contest**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/02/world/middleeast/sanctions-iranian-crypto-exc
 **South Dakota Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 South Dakota primary elections.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-south-dakota-primary.html
-
-**New Mexico Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 New Mexico primary elections.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-new-mexico-primary.html
 

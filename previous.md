@@ -2,13 +2,13 @@
 `Esta palabra ha aparecido en 3 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
 https://www.nytimes.com/es/2026/06/02/espanol/que-significa-parsimonious.html
 
-**Nithya Raman: 5 Facts About the Candidate for Los Angeles Mayor**\
-`Ms. Raman, a progressive Democrat, surprised many allies when she entered the Los Angeles mayor’s race at the last minute.`\
-https://www.nytimes.com/2026/06/02/us/politics/nithya-raman-la-mayor.html
-
 **NYT Crossword Answers for June 3, 2026**\
 `Jiahe Men makes his New York Times debut.`\
 https://www.nytimes.com/2026/06/02/crosswords/daily-puzzle-2026-06-03.html
+
+**Nithya Raman: 5 Facts About the Candidate for Los Angeles Mayor**\
+`Ms. Raman, a progressive Democrat, surprised many allies when she entered the Los Angeles mayor’s race at the last minute.`\
+https://www.nytimes.com/2026/06/02/us/politics/nithya-raman-la-mayor.html
 
 **CBS News Fires Scott Pelley of ‘60 Minutes’**\
 `Mr. Pelley, a longtime correspondent and former “Evening News” anchor, harshly criticized the show’s leadership in an extraordinary exchange during a staff meeting on Monday.`\
