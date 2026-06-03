@@ -1,3 +1,11 @@
+**Rutina de 15 minutos con la cuerda de saltar para principiantes**\
+`Saltar a la cuerda no es solo cosa de niños. Prueba esta rutina para empezar.`\
+https://www.nytimes.com/es/2026/06/03/espanol/salto-cuerda-15-minutos.html
+
+**Republican support for same-sex marriage has fallen by 18 percentage points since 2022.**\
+`summary`\
+https://www.nytimes.com/2026/06/03/us/politics/support-gay-rights-decline.html
+
 **Trump falló como comandante en jefe**\
 `En tiempos de guerra, los líderes deben unir al país. Trump, en cambio, se ha dedicado a buscar el beneficio personal.`\
 https://www.nytimes.com/es/2026/06/03/espanol/opinion/donald-trump-gestion.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/02/us/elections/new-mexico-land-commissioner-rep
 **Rebecca Bennett Wins New Jersey House Primary to Take On Thomas Kean Jr.**\
 `Ms. Bennett, a Democrat, will compete in November against Mr. Kean, the incumbent Republican, who has been sidelined for months by a mysterious health condition.`\
 https://www.nytimes.com/2026/06/02/nyregion/bennett-kean-new-jersey-democrats.html
-
-**How Does California’s ‘Top Two’ Voting System Work?**\
-`California voters can choose any primary candidate, regardless of party, and two candidates from the same party can potentially face off in the general election.`\
-https://www.nytimes.com/2026/06/02/us/politics/california-top-two-voting-system.html
-
-**5 Things to Know About Representative Ashley Hinson, Senate Candidate in Iowa**\
-`Ms. Hinson, a former journalist who is supported by President Trump, won the Republican nomination.`\
-https://www.nytimes.com/2026/06/02/us/politics/ashley-hinson-iowa-senate-republicans.html
 
 **California Election Live Updates: Spencer Pratt Runs Second in L.A. Mayor’s Race**\
 `Mr. Pratt, a Republican reality TV star who lost his home in last year’s fires, could face Mayor Karen Bass in a runoff. The Trump-endorsed Steve Hilton and Xavier Becerra, the top polling Democrat, led early results for governor.`\
