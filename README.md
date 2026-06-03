@@ -1,3 +1,11 @@
+**An Uncertain Path for Americans Exposed to Ebola**\
+`Despite long-established procedures for bringing Americans home for monitoring and treatment, the Trump administration has not said that it will allow those at risk of Ebola back into the country.`\
+https://www.nytimes.com/2026/06/03/us/politics/trump-administration-ebola-response.html
+
+**In Apparent Reversal, Mullin Says Abrego Garcia Could Be Deported to Costa Rica**\
+`Kilmar Armando Abrego Garcia has long said he would willingly go to Costa Rica. His lawyers sent the new homeland security secretary’s comments to the judge handling his deportation case.`\
+https://www.nytimes.com/2026/06/03/us/politics/abrego-garcia-costa-rica-mullin.html
+
 **The World Cup Is Starting Soon. Why Does No One Care?**\
 `It isn’t just because it’s being held in America under Trump.`\
 https://www.nytimes.com/2026/06/03/opinion/world-cup-club-soccer-america.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/video/us/politics/100000010941939/california-governor-ra
 **N.Y.C. Rent Freeze Wouldn’t Spell Doom for Most Landlords, Report Says**\
 `The rent freeze Mayor Zohran Mamdani has advocated would put only a small fraction of landlords at risk of defaulting on loans, the ratings agency Moody’s found.`\
 https://www.nytimes.com/2026/06/03/nyregion/rent-freeze-nyc-moodys-landlords.html
-
-**Map: 5.1-Magnitude Earthquake Strikes off the Coast of California**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/06/03/us/quake-tracker-california-coast.html
-
-**A Death at the Epicenter of Ebola**\
-`Our chief Africa correspondent, Declan Walsh, reports from the epicenter of the Ebola outbreak on how families, medical workers and local volunteers are grappling with losses of life.`\
-https://www.nytimes.com/video/world/africa/100000010940945/a-death-at-the-epicenter-of-ebola.html
 
 **Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
 `Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race. The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles.`\
