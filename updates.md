@@ -1,3 +1,11 @@
+**Painted Into a Corner**\
+`We look at the state of the Iran war three months on.`\
+https://www.nytimes.com/2026/06/03/briefing/state-of-iran-war.html
+
+**Iran War Live Updates: Kuwait Says Iranian Attack Has Damaged Its Main Airport**\
+`The United States and Iran accused each other of launching new strikes. President Trump told The New York Post that Iran’s supreme leader is involved in peace talks and he hopes to meet him.`\
+https://www.nytimes.com/live/2026/06/03/world/iran-war-trump-israel-lebanon
+
 **Trump Aims New Tariffs at 59 Countries and the European Union**\
 `Trump officials said they planned to impose levies of up to 12.5 percent on countries that failed to crack down on goods made with forced labor.`\
 https://www.nytimes.com/2026/06/03/business/trump-tariffs-force-labor.html

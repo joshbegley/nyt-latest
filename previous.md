@@ -1,3 +1,7 @@
+**Painted Into a Corner**\
+`We look at the state of the Iran war three months on.`\
+https://www.nytimes.com/2026/06/03/briefing/state-of-iran-war.html
+
 **Remaining Uncounted Ballots in California Elections Are Likely to Lean Democratic**\
 `Democratic voters returned their ballots later than Republicans in this year’s primaries, which could cause candidate standings to reshuffle as votes continue to be reported.`\
 https://www.nytimes.com/2026/06/03/us/elections/california-election-results-mail-ballots.html
@@ -179,7 +183,7 @@ https://www.nytimes.com/2026/06/03/well/live/grief-tiktok-instagram.html
 https://www.nytimes.com/video/opinion/100000010936743/feeling-nihilistic-youre-not-alone.html
 
 **Iran War Live Updates: Kuwait Says Iranian Attack Has Damaged Its Main Airport**\
-`The United States and Iran both reported strikes overnight, accusing each other of being the aggressor. It was unclear where diplomatic efforts stand to end the war.`\
+`The United States and Iran accused each other of launching new strikes. President Trump told The New York Post that Iran’s supreme leader is involved in peace talks and he hopes to meet him.`\
 https://www.nytimes.com/live/2026/06/03/world/iran-war-trump-israel-lebanon
 
 **Times Readers Pick the 100 Greatest Living American Songwriters**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/06/03/espanol/que-significa-recant.html
 **Trump ignoró los simulacros bélicos sobre el estrecho de Ormuz**\
 `Durante las dos últimas décadas, Irán amenazó repetidamente con cerrar la vía marítima. Trump subestimó la capacidad de Irán para hacerlo.`\
 https://www.nytimes.com/es/2026/06/03/espanol/mundo/trump-iran-estrecho-ormuz.html
-
-**California Governor’s Race Remains Too Close to Call**\
-`Steve Hilton, a Republican, and Xavier Becerra, a Democrat, were leading in election night returns. Tom Steyer, another Democrat, urged patience as more votes were being counted.`\
-https://www.nytimes.com/2026/06/03/us/politics/california-governor-race-hilton-becerra-steyer.html
 
