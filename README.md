@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/06/02/us/politics/thomas-kean-jr-new-jersey-stateme
 `Mr. Becerra has become an unexpected front-runner in the race for California governor after lagging in polls for months.`\
 https://www.nytimes.com/2026/06/02/us/politics/xavier-becerra-california-governor.html
 
-**China Is ‘a Loss’**\
-`Trump’s China policy has “completely failed,” the political scientist Ian Bremmer argues on “The Ezra Klein Show,” and explains why America’s petrostate status isn’t enough to ensure its global dominance.`\
-https://www.nytimes.com/video/opinion/100000010932841/china-is-a-loss.html
+**California Election Live Updates: Polls Close in Tight Races for Governor and L.A. Mayor**\
+`The nonpartisan primaries will determine which candidates make the fall ballot, though quick results are unlikely.`\
+https://www.nytimes.com/live/2026/06/02/us/california-election-primary-governor
 
