@@ -27,7 +27,7 @@ https://www.nytimes.com/2026/06/03/us/politics/trump-fund.html
 https://www.nytimes.com/2026/06/03/world/americas/trump-brazil-flavio-bolsonaro.html
 
 **House Advances New Sanctions on Russia and Aid to Ukraine**\
-`After G.O.P. leaders blocked additional aid to Ukraine, six Republicans and an Independent joined Democrats to force the measure to the floor against the wishes of the speaker.`\
+`After G.O.P. leaders blocked additional aid to Ukraine, six Republicans and an independent joined Democrats to force the measure to the floor against the wishes of the speaker.`\
 https://www.nytimes.com/2026/06/03/us/house-russia-ukraine-sanctions-aid.html
 
 **Africans Exploring Africa**\
@@ -155,7 +155,7 @@ https://www.nytimes.com/2026/06/03/headway/public-transit-subways-construction-u
 https://www.nytimes.com/2026/06/03/nyregion/delaney-hall-protests-photos.html
 
 **Trump Administration Turns to a New Rationale to Justify Old Tariffs**\
-`The administration has settled on a more legally and politically durable way to impose tariffs, but some say the focus on forced labor is merely a pretext for protectionism.`\
+`The administration has settled on a more legally and politically durable way to impose tariffs, but some say the focus on forced labor laws is merely a pretext for protectionism.`\
 https://www.nytimes.com/2026/06/03/business/economy/trump-tariffs-forced-labor.html
 
 **This Man Should Not Be in Charge of National Intelligence**\

@@ -1,3 +1,7 @@
+**In Alabama Ruling, Supreme Court Signals Limited Role for Federal Courts in Redistricting Fights**\
+`In an emergency ruling on Tuesday night, the court’s conservative majority gave a first glimpse into congressional district battles under a weakened Voting Rights Act.`\
+https://www.nytimes.com/2026/06/03/us/politics/supreme-court-voting-rights-alabama.html
+
 **The House Votes to End the Iran War**\
 `Also, the N.B.A. finals tips off. Here’s the latest at the end of Wednesday.`\
 https://www.nytimes.com/2026/06/03/briefing/house-iran-war-powers.html
