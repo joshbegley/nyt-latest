@@ -1,3 +1,11 @@
+**House Advances New Sanctions on Russia and Aid to Ukraine**\
+`After G.O.P. leaders blocked additional aid to Ukraine, six Republicans and an independent joined Democrats to force the measure to the floor against the wishes of the speaker.`\
+https://www.nytimes.com/2026/06/03/us/house-russia-ukraine-sanctions-aid.html
+
+**Trump Administration Turns to a New Rationale to Justify Old Tariffs**\
+`The administration has settled on a more legally and politically durable way to impose tariffs, but some say the focus on forced labor laws is merely a pretext for protectionism.`\
+https://www.nytimes.com/2026/06/03/business/economy/trump-tariffs-forced-labor.html
+
 **In Alabama Ruling, Supreme Court Signals Limited Role for Federal Courts in Redistricting Fights**\
 `In an emergency ruling on Tuesday night, the court’s conservative majority gave a first glimpse into congressional district battles under a weakened Voting Rights Act.`\
 https://www.nytimes.com/2026/06/03/us/politics/supreme-court-voting-rights-alabama.html
