@@ -1,3 +1,11 @@
+**Palabra del día en inglés: ‘recant’**\
+`Esta palabra ha aparecido en 5 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/06/03/espanol/que-significa-recant.html
+
+**Democratic Voters Acted Strategically in a Turbulent California Election**\
+`Without a dominant candidate in the governor’s race, Democratic voters ultimately wanted to ensure that their party wasn’t shut out of the general election.`\
+https://www.nytimes.com/2026/06/02/us/politics/california-primary-elections-early-takeaways.html
+
 **Trump ignoró los simulacros bélicos sobre el estrecho de Ormuz**\
 `Durante las dos últimas décadas, Irán amenazó repetidamente con cerrar la vía marítima. Trump subestimó la capacidad de Irán para hacerlo.`\
 https://www.nytimes.com/es/2026/06/03/espanol/mundo/trump-iran-estrecho-ormuz.html
