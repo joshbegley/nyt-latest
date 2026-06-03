@@ -1,3 +1,7 @@
+**Trump Aims New Tariffs at 59 Countries and the European Union**\
+`Trump administration officials said they planned to impose levies of up to 12.5 percent on countries that failed to crack down on goods made with forced labor.`\
+https://www.nytimes.com/2026/06/03/business/trump-tariffs-force-labor.html
+
 **As Vote Counting Continues, Spencer Pratt Suggests He Can Be a Mayor for All L.A. Residents**\
 `(No description)`\
 https://www.nytimes.com/2026/06/03/us/politics/spencer-pratt-suggests-he-can-be-a-mayor-for-all-la-residents.html
