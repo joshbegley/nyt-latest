@@ -1,3 +1,7 @@
+**Attacks on Kuwait and Bahrain Add Further Strain to Cease-Fire**\
+`One person was killed in an attack on the international airport in Kuwait, local authorities said, as Iran continues to target U.S. allies in the Persian Gulf.`\
+https://www.nytimes.com/2026/06/03/world/middleeast/iran-attacks-kuwait-bahrain-ceasefire.html
+
 **European Union Outlines Plan to Reduce Dependence on American Tech**\
 `The 27-nation European Union outlined how it hopes to expand the region’s data centers, semiconductors and cloud computing capabilities.`\
 https://www.nytimes.com/2026/06/03/technology/european-union-tech-sovereignty.html

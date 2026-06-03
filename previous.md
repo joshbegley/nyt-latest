@@ -1,3 +1,7 @@
+**Attacks on Kuwait and Bahrain Add Further Strain to Cease-Fire**\
+`One person was killed in an attack on the international airport in Kuwait, local authorities said, as Iran continues to target U.S. allies in the Persian Gulf.`\
+https://www.nytimes.com/2026/06/03/world/middleeast/iran-attacks-kuwait-bahrain-ceasefire.html
+
 **European Union Outlines Plan to Reduce Dependence on American Tech**\
 `The 27-nation European Union outlined how it hopes to expand the region’s data centers, semiconductors and cloud computing capabilities.`\
 https://www.nytimes.com/2026/06/03/technology/european-union-tech-sovereignty.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/03/style/cat-pierce.html
 **The Best Audiobooks of 2026 (So Far)**\
 `The year is nearly halfway over. Here’s what we’ve been listening to.`\
 https://www.nytimes.com/2026/06/03/books/review/best-audiobooks-2026.html
-
-**How TikTok Is Helping Some People Process Their Grief**\
-`On “grieftok,” some influencers have amassed large followings by sharing their experiences with unimaginable loss.`\
-https://www.nytimes.com/2026/06/03/well/live/grief-tiktok-instagram.html
 
