@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘As He Dressed, I Slipped Into His Closet’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/06/03/style/tiny-modern-love-stories-as-he-dressed-i-slipped-into-his-closet.html
+
 **Caissie Levy, Tony Awards Contender and ‘Ragtime’ Star, Is Having a Moment**\
 `Caissie Levy was Broadway’s first Elsa. She starred in “Hair” and “Ghost.” And now, for “Ragtime,” she is an odds-on favorite to win a Tony Award.`\
 https://www.nytimes.com/2026/06/03/theater/caissie-levy-broadway-tonys-ragtime.html
