@@ -1,3 +1,7 @@
+**Ruth Shack, Early Champion of Gay Rights in Miami, Dies at 94**\
+`She sponsored one of the nation’s first anti-discrimination ordinances for gays and lesbians and later helped make Miami a global arts center.`\
+https://www.nytimes.com/2026/06/03/us/ruth-shack-dead.html
+
 **Out of Time to Delay, House to Vote on Trump’s Power to Continue War in Iran**\
 `A measure to direct the president to halt U.S. engagement in Iran had been on track to pass in late May, but Republican leaders postponed action. They have run out of time to delay the vote.`\
 https://www.nytimes.com/2026/06/03/us/politics/house-vote-trump-iran-war-powers.html
