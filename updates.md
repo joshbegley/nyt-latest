@@ -1,3 +1,19 @@
+**Contentious Times at the Supreme Court**\
+`Readers discuss judicial power and possible term limits. Also: Climate corruption; anxiety in children.`\
+https://www.nytimes.com/2026/06/03/opinion/supreme-court.html
+
+**Where Are All the Subways?**\
+`Why the U.S. lags behind on public transit`\
+https://www.nytimes.com/2026/06/03/headway/public-transit-subways-construction-united-states.html
+
+**See the Clashes Between ICE and Protesters at Delaney Hall**\
+`The demonstrations have at times turned violent, with federal and state authorities deploying tear gas and wielding batons as protesters resisted calls to disperse.`\
+https://www.nytimes.com/2026/06/03/nyregion/delaney-hall-protests-photos.html
+
+**Trump Administration Turns to a New Rationale to Justify Old Tariffs**\
+`The administration has settled on a more legally and politically durable way to impose tariffs, but some say the focus on forced labor is merely a pretext for protectionism.`\
+https://www.nytimes.com/2026/06/03/business/economy/trump-tariffs-forced-labor.html
+
 **This Man Should Not Be in Charge of National Intelligence**\
 `Pulte’s one evident qualification is his eagerness to advance the president’s political revenge campaign.`\
 https://www.nytimes.com/2026/06/03/opinion/bill-pulte-national-intelligence-trump.html

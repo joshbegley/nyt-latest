@@ -1,3 +1,19 @@
+**Contentious Times at the Supreme Court**\
+`Readers discuss judicial power and possible term limits. Also: Climate corruption; anxiety in children.`\
+https://www.nytimes.com/2026/06/03/opinion/supreme-court.html
+
+**Where Are All the Subways?**\
+`Why the U.S. lags behind on public transit`\
+https://www.nytimes.com/2026/06/03/headway/public-transit-subways-construction-united-states.html
+
+**See the Clashes Between ICE and Protesters at Delaney Hall**\
+`The demonstrations have at times turned violent, with federal and state authorities deploying tear gas and wielding batons as protesters resisted calls to disperse.`\
+https://www.nytimes.com/2026/06/03/nyregion/delaney-hall-protests-photos.html
+
+**Trump Administration Turns to a New Rationale to Justify Old Tariffs**\
+`The administration has settled on a more legally and politically durable way to impose tariffs, but some say the focus on forced labor is merely a pretext for protectionism.`\
+https://www.nytimes.com/2026/06/03/business/economy/trump-tariffs-forced-labor.html
+
 **This Man Should Not Be in Charge of National Intelligence**\
 `Pulte’s one evident qualification is his eagerness to advance the president’s political revenge campaign.`\
 https://www.nytimes.com/2026/06/03/opinion/bill-pulte-national-intelligence-trump.html
@@ -173,22 +189,6 @@ https://www.nytimes.com/2026/06/03/arts/design/venice-biennale-public-vote.html
 **Spencer Pratt Suggests He Can Be a Mayor for all L.A. Residents, as Vote Counting Continues**\
 `The former reality TV star has tried to broaden his platform, talking about Los Angeles’s homelessness and drugs problem.`\
 https://www.nytimes.com/2026/06/03/us/politics/spencer-pratt-la-mayor-election.html
-
-**Protests in UK Over Henry Nowak Murder Case Turn Violent, as Leaders Urge Calm**\
-`Eleven officers were wounded in clashes with demonstrators after right-wing politicians and commentators accused the police of anti-white bias.`\
-https://www.nytimes.com/2026/06/03/world/europe/henry-nowak-murder-southampton-protests-uk.html
-
-**Painted Into a Corner**\
-`We look at the state of the Iran war three months on.`\
-https://www.nytimes.com/2026/06/03/briefing/state-of-iran-war.html
-
-**Remaining Uncounted Ballots in California Elections Are Likely to Lean Democratic**\
-`Democratic voters returned their ballots later than Republicans in this year’s primaries, which could cause candidate standings to reshuffle as votes continue to be reported.`\
-https://www.nytimes.com/2026/06/03/us/elections/california-election-results-mail-ballots.html
-
-**Why the Ebola Outbreak Has Been Nearly Impossible to Stop**\
-`At the center of the Ebola outbreak in the Democratic Republic of Congo, the front line is completely overwhelmed.`\
-https://www.nytimes.com/2026/06/03/podcasts/the-daily/ebola-outbreak-congo.html
 
 **Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
 `Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race. The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles.`\
