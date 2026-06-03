@@ -1,3 +1,7 @@
+**Man Charged With Hate Crimes Over Swastika Flag Flown on N.Y.U. Campus**\
+`The man, Alexander Stepnowsky, was arrested on Tuesday on the Lower East Side, almost a month after the episode. An N.Y.U. official said he was a student at the time of the event.`\
+https://www.nytimes.com/2026/06/03/nyregion/nyu-student-star-of-david.html
+
 **Protests Over Murder Case in Britain Turn Violent**\
 `Protests in Southampton turned violent on Tuesday after far-right commentators made claims that the police’s handling of a murder case in Britain showed the authorities were biased against white people.`\
 https://www.nytimes.com/video/world/europe/100000010941938/henry-nowak-murder-case-protests-uk.html

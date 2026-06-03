@@ -47,7 +47,7 @@ https://www.nytimes.com/2026/06/03/theater/fantasticks-gloria-broadway-second-st
 https://www.nytimes.com/es/2026/06/03/espanol/mundo/iran-ataques-kuwait-barein-ee-uu.html
 
 **Man Charged With Hate Crimes Over Swastika Flag Flown on N.Y.U. Campus**\
-`The man, Alexander Stepnowsky, was arrested on Tuesday on the Lower East Side, almost a month after the episode.`\
+`The man, Alexander Stepnowsky, was arrested on Tuesday on the Lower East Side, almost a month after the episode. An N.Y.U. official said he was a student at the time of the event.`\
 https://www.nytimes.com/2026/06/03/nyregion/nyu-student-star-of-david.html
 
 **Deadly Iranian Attack Fills Kuwait Airport With Smoke and Flames**\
@@ -185,10 +185,6 @@ https://www.nytimes.com/2026/06/03/pageoneplus/corrections-june-3-2026.html
 **Stop Location-Tracking Your Friends and Lovers**\
 `Your friends don’t need to know where you are 24/7.`\
 https://www.nytimes.com/2026/06/03/opinion/location-sharing-surveillance-summer-house.html
-
-**A Neighbor Child Visits Us With Empty Pockets and His Hand Out. Help!**\
-`An older couple is happy to host a teenage neighbor at their lake house, but they have begun to resent his easy acceptance of gifts and presumptuous restaurant orders.`\
-https://www.nytimes.com/2026/06/03/style/child-guests-spending-money.html
 
 **Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
 `Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race. The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles.`\
