@@ -1,3 +1,19 @@
+**See What Deep-Sea Mining Actually Looks Like, 2 Miles Down**\
+`A mining company sent an advanced ship to try to pluck valuable minerals from the deepest ocean. Here’s how it worked.`\
+https://www.nytimes.com/interactive/2026/06/03/climate/deep-sea-mining-tests-hidden-gem.html
+
+**California Had the Most Expensive Governor’s Race in U.S. History. It’s Still Not Over.**\
+`Nearly $316 million was spent on campaign ads in the primary for California governor. Now the general election spending will begin.`\
+https://www.nytimes.com/2026/06/03/us/elections/california-governor-campaign-finance.html
+
+**An Uncertain Path for Americans Exposed to Ebola**\
+`Despite long-established procedures for bringing Americans home for monitoring and treatment, the Trump administration has not said that it will allow those at risk of Ebola back into the country.`\
+https://www.nytimes.com/2026/06/03/us/politics/trump-administration-ebola-response.html
+
+**In Apparent Reversal, Mullin Says Abrego Garcia Could Be Deported to Costa Rica**\
+`Kilmar Armando Abrego Garcia has long said he would willingly go to Costa Rica. His lawyers sent the new homeland security secretary’s comments to the judge handling his deportation case.`\
+https://www.nytimes.com/2026/06/03/us/politics/abrego-garcia-costa-rica-mullin.html
+
 **The World Cup Is Starting Soon. Why Does No One Care?**\
 `It isn’t just because it’s being held in America under Trump.`\
 https://www.nytimes.com/2026/06/03/opinion/world-cup-club-soccer-america.html
@@ -173,22 +189,6 @@ https://www.nytimes.com/2026/06/03/us/ruth-shack-dead.html
 **Out of Time to Delay, House to Vote on Trump’s Power to Continue War in Iran**\
 `A measure to direct the president to halt U.S. engagement in Iran had been on track to pass in late May, but Republican leaders postponed action. They have run out of time to delay the vote.`\
 https://www.nytimes.com/2026/06/03/us/politics/house-vote-trump-iran-war-powers.html
-
-**Steve Hilton Holds Slim Early Lead in California Governor’s Race**\
-`Steve Hilton, a Republican and former Fox News host, held a narrow lead in early votes over two Democratic opponents in California’s nonpartisan primary for governor. The top two candidates will advance to the general election in November.`\
-https://www.nytimes.com/video/us/politics/100000010941939/california-governor-race-primary-election.html
-
-**N.Y.C. Rent Freeze Wouldn’t Spell Doom for Most Landlords, Report Says**\
-`The rent freeze Mayor Zohran Mamdani has advocated would put only a small fraction of landlords at risk of defaulting on loans, the ratings agency Moody’s found.`\
-https://www.nytimes.com/2026/06/03/nyregion/rent-freeze-nyc-moodys-landlords.html
-
-**Map: 5.1-Magnitude Earthquake Strikes off the Coast of California**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/06/03/us/quake-tracker-california-coast.html
-
-**A Death at the Epicenter of Ebola**\
-`Our chief Africa correspondent, Declan Walsh, reports from the epicenter of the Ebola outbreak on how families, medical workers and local volunteers are grappling with losses of life.`\
-https://www.nytimes.com/video/world/africa/100000010940945/a-death-at-the-epicenter-of-ebola.html
 
 **Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
 `Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race. The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles.`\

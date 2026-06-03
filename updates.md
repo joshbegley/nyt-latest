@@ -1,3 +1,19 @@
+**See What Deep-Sea Mining Actually Looks Like, 2 Miles Down**\
+`A mining company sent an advanced ship to try to pluck valuable minerals from the deepest ocean. Here’s how it worked.`\
+https://www.nytimes.com/interactive/2026/06/03/climate/deep-sea-mining-tests-hidden-gem.html
+
+**California Had the Most Expensive Governor’s Race in U.S. History. It’s Still Not Over.**\
+`Nearly $316 million was spent on campaign ads in the primary for California governor. Now the general election spending will begin.`\
+https://www.nytimes.com/2026/06/03/us/elections/california-governor-campaign-finance.html
+
+**An Uncertain Path for Americans Exposed to Ebola**\
+`Despite long-established procedures for bringing Americans home for monitoring and treatment, the Trump administration has not said that it will allow those at risk of Ebola back into the country.`\
+https://www.nytimes.com/2026/06/03/us/politics/trump-administration-ebola-response.html
+
+**In Apparent Reversal, Mullin Says Abrego Garcia Could Be Deported to Costa Rica**\
+`Kilmar Armando Abrego Garcia has long said he would willingly go to Costa Rica. His lawyers sent the new homeland security secretary’s comments to the judge handling his deportation case.`\
+https://www.nytimes.com/2026/06/03/us/politics/abrego-garcia-costa-rica-mullin.html
+
 **The World Cup Is Starting Soon. Why Does No One Care?**\
 `It isn’t just because it’s being held in America under Trump.`\
 https://www.nytimes.com/2026/06/03/opinion/world-cup-club-soccer-america.html
