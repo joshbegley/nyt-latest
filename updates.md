@@ -1,3 +1,23 @@
+**Why Democrats Are Hopeful About Making Gains in Iowa**\
+`After voting twice for Barack Obama, Iowa swung to the right. But the state has been hit hard economically and by Trump policies while growing disenchanted with its leaders.`\
+https://www.nytimes.com/2026/06/03/us/elections/iowa-turek-democrats-trump.html
+
+**My Family Member Is Being Pressured to Donate a Kidney. Should I Say Something?**\
+`The recipient would be his stepfather’s colleague, whom he barely knows.`\
+https://www.nytimes.com/2026/06/03/magazine/pressure-to-donate-a-kidney-ethics.html
+
+**Bravo’s ‘Summer House’ Is Turning Men Into Reality TV Fans**\
+`Bravo’s reality TV hit has cracked an elusive audience.`\
+https://www.nytimes.com/2026/06/03/style/summer-house-reunion-amanda-west-men.html
+
+**Tropical Storm Amanda Forms in the Eastern Pacific**\
+`See the likely path and wind arrival times for Amanda`\
+https://www.nytimes.com/interactive/2026/06/03/weather/tropical-storm-amanda-map-path-tracker.html
+
+**Trump Administration Fights Court Order to Refund Some Tariffs**\
+`The administration has started to repay some of the money, but has signaled it may make it harder for certain businesses to claim the full amount they are owed.`\
+https://www.nytimes.com/2026/06/03/business/economy/trump-tariffs-refunds-court-order.html
+
 **Tiny Love Stories: ‘As He Dressed, I Slipped Into His Closet’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/06/03/style/tiny-modern-love-stories-as-he-dressed-i-slipped-into-his-closet.html

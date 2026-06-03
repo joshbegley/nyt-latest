@@ -1,3 +1,19 @@
+**Why Democrats Are Hopeful About Making Gains in Iowa**\
+`After voting twice for Barack Obama, Iowa swung to the right. But the state has been hit hard economically and by Trump policies while growing disenchanted with its leaders.`\
+https://www.nytimes.com/2026/06/03/us/elections/iowa-turek-democrats-trump.html
+
+**My Family Member Is Being Pressured to Donate a Kidney. Should I Say Something?**\
+`The recipient would be his stepfather’s colleague, whom he barely knows.`\
+https://www.nytimes.com/2026/06/03/magazine/pressure-to-donate-a-kidney-ethics.html
+
+**Bravo’s ‘Summer House’ Is Turning Men Into Reality TV Fans**\
+`Bravo’s reality TV hit has cracked an elusive audience.`\
+https://www.nytimes.com/2026/06/03/style/summer-house-reunion-amanda-west-men.html
+
+**Tropical Storm Amanda Forms in the Eastern Pacific**\
+`See the likely path and wind arrival times for Amanda`\
+https://www.nytimes.com/interactive/2026/06/03/weather/tropical-storm-amanda-map-path-tracker.html
+
 **Tiny Love Stories: ‘As He Dressed, I Slipped Into His Closet’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/06/03/style/tiny-modern-love-stories-as-he-dressed-i-slipped-into-his-closet.html
@@ -11,7 +27,7 @@ https://www.nytimes.com/2026/06/03/theater/caissie-levy-broadway-tonys-ragtime.h
 https://www.nytimes.com/2026/06/03/nyregion/knicks-msg-watch-party.html
 
 **Trump Administration Fights Court Order to Refund Some Tariffs**\
-`The administration has paid back some of the money, but has signaled it may make it harder for certain businesses to claim some of the billions owed.`\
+`The administration has started to repay some of the money, but has signaled it may make it harder for certain businesses to claim the full amount they are owed.`\
 https://www.nytimes.com/2026/06/03/business/economy/trump-tariffs-refunds-court-order.html
 
 **Elecciones en Colombia: Trump respalda a De la Espriella**\
@@ -177,22 +193,6 @@ https://www.nytimes.com/interactive/2026/06/03/world/middleeast/iran-nuclear-ura
 **¿Para qué sirve exactamente Airbnb?**\
 `Además de encontrar un lugar donde dormir, los usuarios pueden reservar degustaciones de comida y citas en salones de belleza. Este mes, Airbnb ha añadido la renta de coches, el almacenamiento de equipaje y la entrega de comestibles.`\
 https://www.nytimes.com/es/2026/06/03/espanol/negocios/airbnb-hoteles-copa-del-mundo.html
-
-**New Intelligence Role Puts Bill Pulte’s Housing Agenda in Doubt**\
-`Mr. Pulte has had difficulty boosting the housing market as head of the Federal Housing Finance Agency. Now he will also serve as acting intelligence director.`\
-https://www.nytimes.com/2026/06/03/business/bill-pulte-housing-intelligence-director.html
-
-**Spike Lee: The Skies Are Blue and Orange**\
-`The Knicks are New York’s soul, and they are bringing us together again in the championship series against San Antonio.`\
-https://www.nytimes.com/2026/06/03/opinion/new-york-knicks-nba-championship.html
-
-**Knicks Fans Invade San Antonio, Chasing a Finals Rematch 27 Years in the Making**\
-`From Spike Lee to die-hard fans haunted by the 1999 finals, New Yorkers have descended on San Antonio in hopes of witnessing the franchise’s first championship in more than 50 years.`\
-https://www.nytimes.com/2026/06/03/us/knicks-fans-tickets-san-antonio-nba-finals-spurs-2026.html
-
-**For Knicks’ Owner James Dolan, a Title Might Finally Stop Some Boos**\
-`James Dolan, the longtime owner of the N.B.A. team, has faced years of jeers. Could a championship change all that?`\
-https://www.nytimes.com/2026/06/03/business/knicks-james-dolan.html
 
 **Iran War Live Updates: Drone Barrage at Kuwait Airport Kills One and Injures Dozens**\
 `Video footage verified by The New York Times showed fire inside Kuwait’s international airport. The attack was part of one of the biggest assaults on a Gulf nation since the U.S.-Iran cease-fire was announced in April.`\

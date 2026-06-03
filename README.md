@@ -1,3 +1,7 @@
+**‘Infuriated’ Former Judges Take on Trump**\
+`Critics say it is unseemly for retired judges to trade on the prestige of their former positions.`\
+https://www.nytimes.com/2026/06/03/us/politics/the-docket-former-judges-filings.html
+
 **Why Democrats Are Hopeful About Making Gains in Iowa**\
 `After voting twice for Barack Obama, Iowa swung to the right. But the state has been hit hard economically and by Trump policies while growing disenchanted with its leaders.`\
 https://www.nytimes.com/2026/06/03/us/elections/iowa-turek-democrats-trump.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/03/us/bakersfield-chase-bank-bomb-hostage-situat
 **Where Is Iran’s Highly Enriched Uranium?**\
 `The fate of Iran’s stockpile is among the biggest uncertainties surrounding a potential peace deal between the United States and Iran.`\
 https://www.nytimes.com/interactive/2026/06/03/world/middleeast/iran-nuclear-uranium.html
-
-**¿Para qué sirve exactamente Airbnb?**\
-`Además de encontrar un lugar donde dormir, los usuarios pueden reservar degustaciones de comida y citas en salones de belleza. Este mes, Airbnb ha añadido la renta de coches, el almacenamiento de equipaje y la entrega de comestibles.`\
-https://www.nytimes.com/es/2026/06/03/espanol/negocios/airbnb-hoteles-copa-del-mundo.html
 
 **Iran War Live Updates: Drone Barrage at Kuwait Airport Kills One and Injures Dozens**\
 `Video footage verified by The New York Times showed fire inside Kuwait’s international airport. The attack was part of one of the biggest assaults on a Gulf nation since the U.S.-Iran cease-fire was announced in April.`\
