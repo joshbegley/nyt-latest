@@ -1,3 +1,7 @@
+**Ted Danson Apologizes for Blackface Roast of Whoopi Goldberg in 1993**\
+`The actor’s monologue drew condemnation from figures including David N. Dinkins, New York’s first Black mayor.`\
+https://www.nytimes.com/2026/06/03/arts/ted-danson-blackface-whoopi-goldberg-apology.html
+
 **Conductora sin mano derecha es detenida por usar el celular con la mano derecha**\
 `Su caso, por supuesto, fue desestimado.`\
 https://www.nytimes.com/es/2026/06/03/espanol/estados-unidos/video-viral-mujer-mano-policia-florida.html
