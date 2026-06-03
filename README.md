@@ -1,3 +1,7 @@
+**Ted Danson Apologizes for Blackface Roast of Whoopi Goldberg in 1993**\
+`The actor’s monologue drew condemnation from figures including David N. Dinkins, New York’s first Black mayor.`\
+https://www.nytimes.com/2026/06/03/arts/ted-danson-blackface-whoopi-goldberg-apology.html
+
 **Conductora sin mano derecha es detenida por usar el celular con la mano derecha**\
 `Su caso, por supuesto, fue desestimado.`\
 https://www.nytimes.com/es/2026/06/03/espanol/estados-unidos/video-viral-mujer-mano-policia-florida.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/03/theater/fantasticks-gloria-broadway-second-st
 **Ataques iraníes contra Kuwait y Baréin alteran el alto al fuego**\
 `Una persona murió en un ataque contra el aeropuerto internacional de Kuwait, dijeron las autoridades locales, mientras Irán sigue atacando a los aliados estadounidenses en el golfo Pérsico.`\
 https://www.nytimes.com/es/2026/06/03/espanol/mundo/iran-ataques-kuwait-barein-ee-uu.html
-
-**Man Charged With Hate Crimes Over Swastika Flag Flown on N.Y.U. Campus**\
-`The man, Alexander Stepnowsky, was arrested on Tuesday on the Lower East Side, almost a month after the episode. An N.Y.U. official said he was a student at the time of the event.`\
-https://www.nytimes.com/2026/06/03/nyregion/nyu-student-star-of-david.html
 
 **Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
 `Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race. The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles.`\
