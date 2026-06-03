@@ -6,7 +6,7 @@ https://www.nytimes.com/es/2026/06/02/espanol/estados-unidos/blanche-fondo-trump
 `Mr. Hilton was the right-hand man of Prime Minister David Cameron in Britain and a Fox News host before he ran for California governor.`\
 https://www.nytimes.com/2026/06/02/us/politics/steve-hilton-california-governor.html
 
-**Josh Turek and Zachary Wahls Make Final Pitches in Senate Primary**\
+**Josh Turek and Zach Wahls Make Final Pitches in Senate Primary**\
 `Josh Turek and Zach Wahls, the Democratic candidates for U.S. Senate, made their final pitches as voters took to the polls on Tuesday.`\
 https://www.nytimes.com/2026/06/02/us/politics/in-iowa-a-long-senate-primary-draws-to-a-close.html
 
