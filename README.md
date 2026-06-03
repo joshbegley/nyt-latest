@@ -1,6 +1,10 @@
+**European Union Outlines Plan to Reduce Dependence on American Tech**\
+`The 27-nation European Union outlined how it hopes to expand the region’s data centers, semiconductors and cloud computing capabilities.`\
+https://www.nytimes.com/2026/06/03/technology/european-union-tech-sovereignty.html
+
 **What’s Driving Trump’s Big A.I. Pivot**\
 `Even the industry-friendly Trump White House is finding that it needs to have greater oversight of powerful new artificial intelligence models.`\
-https://www.nytimes.com/2026/06/03/business/dealbook/whats-driving-trumps-big-ai-pivot.html
+https://www.nytimes.com/2026/06/03/business/dealbook/trump-ai-pivot.html
 
 **Artists Threaten to Sue Venice Biennale for Including Them in Awards**\
 `The artists want their names removed from a public vote to decide the best artist and pavilion, awards that are usually decided by a jury of experts.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/03/books/review/best-audiobooks-2026.html
 **How TikTok Is Helping Some People Process Their Grief**\
 `On “grieftok,” some influencers have amassed large followings by sharing their experiences with unimaginable loss.`\
 https://www.nytimes.com/2026/06/03/well/live/grief-tiktok-instagram.html
-
-**Feeling Nihilistic? You’re Not Alone.**\
-`A case for mourning the American dream.`\
-https://www.nytimes.com/video/opinion/100000010936743/feeling-nihilistic-youre-not-alone.html
 

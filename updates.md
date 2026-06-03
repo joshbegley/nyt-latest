@@ -1,3 +1,15 @@
+**What’s Driving Trump’s Big A.I. Pivot**\
+`Even the industry-friendly Trump White House is finding that it needs to have greater oversight of powerful new artificial intelligence models.`\
+https://www.nytimes.com/2026/06/03/business/dealbook/whats-driving-trumps-big-ai-pivot.html
+
+**Artists Threaten to Sue Venice Biennale for Including Them in Awards**\
+`The artists want their names removed from a public vote to decide the best artist and pavilion, awards that are usually decided by a jury of experts.`\
+https://www.nytimes.com/2026/06/03/arts/design/venice-biennale-public-vote.html
+
+**WAGs Love Their Crocheted, Bedazzled N.B.A. Merch**\
+`Much of women’s sports apparel is just modified from men’s items following a “pink it and shrink it” model. The Snyder sisters charted a more D.I.Y. course.`\
+https://www.nytimes.com/2026/06/03/style/dannijo-nba-wags-jerseys.html
+
 **Spencer Pratt Suggests He Can Be a Mayor for all L.A. Residents, as Vote Counting Continues**\
 `The former reality TV star has tried to broaden his platform, talking about Los Angeles’s homelessness and drugs problem.`\
 https://www.nytimes.com/2026/06/03/us/politics/spencer-pratt-la-mayor-election.html

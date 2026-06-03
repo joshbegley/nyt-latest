@@ -1,3 +1,11 @@
+**What’s Driving Trump’s Big A.I. Pivot**\
+`Even the industry-friendly Trump White House is finding that it needs to have greater oversight of powerful new artificial intelligence models.`\
+https://www.nytimes.com/2026/06/03/business/dealbook/whats-driving-trumps-big-ai-pivot.html
+
+**Artists Threaten to Sue Venice Biennale for Including Them in Awards**\
+`The artists want their names removed from a public vote to decide the best artist and pavilion, awards that are usually decided by a jury of experts.`\
+https://www.nytimes.com/2026/06/03/arts/design/venice-biennale-public-vote.html
+
 **Spencer Pratt Suggests He Can Be a Mayor for all L.A. Residents, as Vote Counting Continues**\
 `The former reality TV star has tried to broaden his platform, talking about Los Angeles’s homelessness and drugs problem.`\
 https://www.nytimes.com/2026/06/03/us/politics/spencer-pratt-la-mayor-election.html
@@ -155,7 +163,7 @@ https://www.nytimes.com/2026/06/03/arts/music/charlie-parker-jazz-music.html
 https://www.nytimes.com/2026/06/03/books/review/carley-fortune-our-perfect-storm.html
 
 **WAGs Love Their Crocheted, Bedazzled N.B.A. Merch**\
-`Much women’s sports apparel is just modified from men’s items following a “pink it and shrink it” model. The Snyder sisters charted a more D.I.Y. course.`\
+`Much of women’s sports apparel is just modified from men’s items following a “pink it and shrink it” model. The Snyder sisters charted a more D.I.Y. course.`\
 https://www.nytimes.com/2026/06/03/style/dannijo-nba-wags-jerseys.html
 
 **Making Scottish Ballet’s ‘Mary, Queen of Scots’ Legible to Americans**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/03/well/live/grief-tiktok-instagram.html
 **Feeling Nihilistic? You’re Not Alone.**\
 `A case for mourning the American dream.`\
 https://www.nytimes.com/video/opinion/100000010936743/feeling-nihilistic-youre-not-alone.html
-
-**Iran War Live Updates: Kuwait Says Iranian Attack Has Damaged Its Main Airport**\
-`The United States and Iran accused each other of launching new strikes. President Trump told The New York Post that Iran’s supreme leader is involved in peace talks and he hopes to meet him.`\
-https://www.nytimes.com/live/2026/06/03/world/iran-war-trump-israel-lebanon
-
-**Times Readers Pick the 100 Greatest Living American Songwriters**\
-`25,000 people responded to our poll. Here are their top picks.`\
-https://www.nytimes.com/interactive/2026/magazine/best-living-american-songwiters-reader-picks.html
 
