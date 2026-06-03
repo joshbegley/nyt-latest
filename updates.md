@@ -1,3 +1,11 @@
+**Rebecca Bennett Wins New Jersey House Primary to Take On Thomas Kean Jr.**\
+`Ms. Bennett, a Democrat, will compete in November against Mr. Kean, the incumbent Republican, who has been sidelined for months by a mysterious health condition.`\
+https://www.nytimes.com/2026/06/02/nyregion/bennett-kean-new-jersey-democrats.html
+
+**How Does California’s ‘Top Two’ Voting System Work?**\
+`California voters can choose any primary candidate, regardless of party, and two candidates from the same party can potentially face off in the general election.`\
+https://www.nytimes.com/2026/06/02/us/politics/california-top-two-voting-system.html
+
 **5 Things to Know About Representative Ashley Hinson, Senate Candidate in Iowa**\
 `Ms. Hinson is a former journalist who is supported by President Trump. She is heavily favored to win the Republican nomination.`\
 https://www.nytimes.com/2026/06/02/us/politics/ashley-hinson-iowa-senate-republicans.html
