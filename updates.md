@@ -1,3 +1,7 @@
+**Times Readers Pick the 100 Greatest Living American Songwriters**\
+`25,000 people responded to our poll. Here are their top picks.`\
+https://www.nytimes.com/interactive/2026/magazine/best-living-american-songwiters-reader-picks.html
+
 **Palabra del día en inglés: ‘recant’**\
 `Esta palabra ha aparecido en 5 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
 https://www.nytimes.com/es/2026/06/03/espanol/que-significa-recant.html

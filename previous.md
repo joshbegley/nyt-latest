@@ -1,3 +1,7 @@
+**Times Readers Pick the 100 Greatest Living American Songwriters**\
+`25,000 people responded to our poll. Here are their top picks.`\
+https://www.nytimes.com/interactive/2026/magazine/best-living-american-songwiters-reader-picks.html
+
 **Palabra del día en inglés: ‘recant’**\
 `Esta palabra ha aparecido en 5 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
 https://www.nytimes.com/es/2026/06/03/espanol/que-significa-recant.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/02/us/elections/new-mexico-democrat-governor-haa
 **Supreme Court Clears the Way for Republican-Friendly Map in Alabama**\
 `In the first major case since the justices narrowed the Voting Rights Act, the court cleared the way for Alabama to use a map preferred by Republicans that leaves the state with only one majority-Black district.`\
 https://www.nytimes.com/2026/06/02/us/politics/supreme-court-alabama-congressional-map.html
-
-**‘Jerome’ Review: Darkness Swallows a Three-Way Romance**\
-`John J. Caswell’s triangular romance set in the early 1990s speaks to us from the smoking psychic caldera left by AIDS.`\
-https://www.nytimes.com/2026/06/02/theater/jerome-review.html
 
 **California Election: Spencer Pratt Runs Second in L.A. Mayor’s Race**\
 `Mr. Pratt, a Republican reality TV star who lost his home in last year’s fires, could face Mayor Karen Bass in a runoff. The Trump-endorsed Steve Hilton and Xavier Becerra, the top polling Democrat, led early results for governor.`\
