@@ -1,3 +1,7 @@
+**Trump Aims New Tariffs at 59 Countries and the European Union**\
+`Trump officials said they planned to impose levies of up to 12.5 percent on countries that failed to crack down on goods made with forced labor.`\
+https://www.nytimes.com/2026/06/03/business/trump-tariffs-force-labor.html
+
 **Remaining Uncounted Ballots in California Elections Are Likely to Lean Democratic**\
 `Democratic voters returned their ballots later than Republicans in this year’s primaries, which could cause candidate standings to reshuffle as votes continue to be reported.`\
 https://www.nytimes.com/2026/06/03/us/elections/california-election-results-mail-ballots.html

@@ -28,7 +28,7 @@ https://www.nytimes.com/live/2026/06/03/us/california-primary-elections-midterms
 
 **Trump Aims New Tariffs at 59 Countries and the European Union**\
 `Trump officials said they planned to impose levies of up to 12.5 percent on countries that failed to crack down on goods made with forced labor.`\
-https://www.nytimes.com/2026/06/03/business/trump-tariffs-investigations.html
+https://www.nytimes.com/2026/06/03/business/trump-tariffs-force-labor.html
 
 **Oil Prices Rise as Iran and U.S. Exchange Strikes**\
 `Iranian drones struck Kuwait’s main international airport and the United States and Iran exchanged strikes.`\
