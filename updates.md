@@ -1,3 +1,11 @@
+**Ashley Hinson Wins the Republican Senate Primary in Iowa**\
+`Representative Hinson, a third-term lawmaker, was the favorite of Republican leaders and donors. The general election is expected to be unusually competitive.`\
+https://www.nytimes.com/2026/06/02/us/politics/iowa-republican-senate-primary-hinson-carlin.html
+
+**Karen Bass: 5 Facts About the Incumbent Los Angeles Mayor**\
+`The incumbent Los Angeles mayor started her term with strong approval ratings, but she lost support with voters after the fires last year that devastated the region.`\
+https://www.nytimes.com/2026/06/02/us/politics/karen-bass-la-mayor.html
+
 **Perry Wins G.O.P. Nomination for New Mexico Land Commissioner**\
 `Michael Perry says he is pragmatic, but Democrats fear he would advance the agenda of President Trump and the New Mexican nominated to head the Bureau of Land Management, Steve Pearce.`\
 https://www.nytimes.com/2026/06/02/us/elections/new-mexico-land-commissioner-republican.html
