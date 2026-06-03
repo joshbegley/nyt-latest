@@ -1,3 +1,15 @@
+**California Governor’s Race Remains Too Close to Call**\
+`Steve Hilton, a Republican, and Xavier Becerra, a Democrat, were leading in election night returns. Tom Steyer, another Democrat, urged patience as more votes were being counted.`\
+https://www.nytimes.com/2026/06/03/us/politics/california-governor-race-hilton-becerra-steyer.html
+
+**Democratic Voters Acted Strategically in a Turbulent California Election**\
+`Without a dominant candidate in the governor’s race, Democratic voters ultimately wanted to ensure that their party wasn’t shut out of the general election.`\
+https://www.nytimes.com/2026/06/02/us/politics/california-primary-elections-early-takeaways.html
+
+**Wiener and Chan Will Face Off in House Race to Succeed Nancy Pelosi**\
+`State Sen. Scott Wiener and Supervisor Connie Chan were the top two finishers in the open primary to represent San Francisco as Nancy Pelosi retires.`\
+https://www.nytimes.com/2026/06/03/us/politics/wiener-chan-pelosi-sf-election-house.html
+
 **Rutina de 15 minutos con la cuerda de saltar para principiantes**\
 `Saltar a la cuerda no es solo cosa de niños. Prueba esta rutina para empezar.`\
 https://www.nytimes.com/es/2026/06/03/espanol/salto-cuerda-15-minutos.html
