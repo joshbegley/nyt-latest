@@ -1,3 +1,19 @@
+**European Union Outlines Plan to Reduce Dependence on American Tech**\
+`The 27-nation European Union outlined how it hopes to expand the region’s data centers, semiconductors and cloud computing capabilities.`\
+https://www.nytimes.com/2026/06/03/technology/european-union-tech-sovereignty.html
+
+**What’s Driving Trump’s Big A.I. Pivot**\
+`Even the industry-friendly Trump White House is finding that it needs to have greater oversight of powerful new artificial intelligence models.`\
+https://www.nytimes.com/2026/06/03/business/dealbook/trump-ai-pivot.html
+
+**Fire at a New Delhi Hotel Kills at Least 21**\
+`Dozens more were injured, the authorities said. The blaze appears to be the deadliest in the Indian capital in at least four years.`\
+https://www.nytimes.com/2026/06/03/world/asia/fire-hotel-new-delhi-india.html
+
+**Spike Lee: The Skies Are Blue and Orange**\
+`The Knicks are New York’s soul, and they are bringing us together again in the championship series against San Antonio.`\
+https://www.nytimes.com/2026/06/03/opinion/new-york-knicks-nba-championship.html
+
 **What’s Driving Trump’s Big A.I. Pivot**\
 `Even the industry-friendly Trump White House is finding that it needs to have greater oversight of powerful new artificial intelligence models.`\
 https://www.nytimes.com/2026/06/03/business/dealbook/whats-driving-trumps-big-ai-pivot.html
