@@ -1,3 +1,15 @@
+**5 Things to Know About Representative Ashley Hinson, Senate Candidate in Iowa**\
+`Ms. Hinson is a former journalist who is supported by President Trump. She is heavily favored to win the Republican nomination.`\
+https://www.nytimes.com/2026/06/02/us/politics/ashley-hinson-iowa-senate-republicans.html
+
+**5 Things to Know About the Iowa Senate Candidate Josh Turek**\
+`A gold medalist on the U.S. men’s wheelchair basketball team, Mr. Turek is running as a “common-sense moderate.”`\
+https://www.nytimes.com/2026/06/02/us/politics/josh-turek-iowa-senate-democrats.html
+
+**5 Things to Know About the Iowa Senate Candidate Zach Wahls**\
+`The progressive Democrat went viral as a teenager with a speech defending marriage equality.`\
+https://www.nytimes.com/2026/06/02/us/politics/zach-wahls-iowa-senate-democrats.html
+
 **Spencer Pratt: 5 Facts About the Candidate for Los Angeles Mayor**\
 `The reality TV star has used his status as a victim of the Palisades fire to mount an outsider campaign portraying Los Angeles officials as incapable of solving the city’s problems.`\
 https://www.nytimes.com/2026/06/02/us/politics/spencer-pratt-la-mayor.html
