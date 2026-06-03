@@ -1,3 +1,7 @@
+**Iran War Live Updates: Kuwait Says Iranian Attack Has Damaged Its Main Airport**\
+`The United States and Iran both reported strikes overnight, accusing each other of being the aggressor. It was unclear where diplomatic efforts stand to end the war.`\
+https://www.nytimes.com/live/2026/06/03/world/iran-war-trump-israel-lebanon
+
 **Times Readers Pick the 100 Greatest Living American Songwriters**\
 `25,000 people responded to our poll. Here are their top picks.`\
 https://www.nytimes.com/interactive/2026/magazine/best-living-american-songwiters-reader-picks.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/02/nyregion/new-jersey-house-primary-hamawy.html
 **Deb Haaland wins nomination in New Mexico governor’s race**\
 `Ms. Haaland, a former Interior secretary, took a big step toward making history as the first Native American woman to be a governor when she won the primary in her Democratic state.`\
 https://www.nytimes.com/2026/06/02/us/elections/new-mexico-democrat-governor-haaland.html
-
-**Supreme Court Clears the Way for Republican-Friendly Map in Alabama**\
-`In the first major case since the justices narrowed the Voting Rights Act, the court cleared the way for Alabama to use a map preferred by Republicans that leaves the state with only one majority-Black district.`\
-https://www.nytimes.com/2026/06/02/us/politics/supreme-court-alabama-congressional-map.html
 
 **California Election: Spencer Pratt Runs Second in L.A. Mayor’s Race**\
 `Mr. Pratt, a Republican reality TV star who lost his home in last year’s fires, could face Mayor Karen Bass in a runoff. The Trump-endorsed Steve Hilton and Xavier Becerra, the top polling Democrat, led early results for governor.`\
