@@ -1,3 +1,7 @@
+**Travelers Bound for the U.K. Hit a Roadblock: Electronic Authorization System Is Down**\
+`Visitors from the U.S., Canada and most European countries can’t get an electronic travel authorization and are being turned away from planes, trains and boats.`\
+https://www.nytimes.com/2026/06/03/travel/uk-travelers-eta-outage.html
+
 **The Good List: 6 Things to Bring Delight to Your Day**\
 `Questions for bats, Rothko weather and Knicks fever.`\
 https://www.nytimes.com/2026/06/03/briefing/03-the-good-list-knicks-rothko.html

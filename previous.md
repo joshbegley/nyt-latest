@@ -1,3 +1,7 @@
+**Travelers Bound for the U.K. Hit a Roadblock: Electronic Authorization System Is Down**\
+`Visitors from the U.S., Canada and most European countries can’t get an electronic travel authorization and are being turned away from planes, trains and boats.`\
+https://www.nytimes.com/2026/06/03/travel/uk-travelers-eta-outage.html
+
 **The Good List: 6 Things to Bring Delight to Your Day**\
 `Questions for bats, Rothko weather and Knicks fever.`\
 https://www.nytimes.com/2026/06/03/briefing/03-the-good-list-knicks-rothko.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/03/world/europe/navy-helicopter-crash-kills-thre
 **Bari Weiss Speaks on Scott Pelley’s ’60 Minutes’ Firing: ‘That’s the Path That He Chose’**\
 `In her first public comments on the firing, Ms. Weiss, the CBS News editor in chief, said that the longtime correspondent had “broken” the trust in the newsroom.`\
 https://www.nytimes.com/2026/06/03/business/media/bari-weiss-scott-pelley-cbs.html
-
-**Ruth Shack, Early Champion of Gay Rights in Miami, Dies at 94**\
-`She sponsored one of the nation’s first anti-discrimination ordinances for gays and lesbians and later helped make Miami a global arts center.`\
-https://www.nytimes.com/2026/06/03/us/ruth-shack-dead.html
 
 **Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
 `Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race. The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles.`\
