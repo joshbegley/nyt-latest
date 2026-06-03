@@ -1,3 +1,11 @@
+**Former Smoke Jumper Wins Democratic House Primary in Montana**\
+`Sam Forstag’s candidacy will test a liberal theory that left-leaning politicians running in Republican strongholds can do better in general elections than moderates have done historically.`\
+https://www.nytimes.com/2026/06/03/us/politics/montana-democratic-house-busse-forstag-rains.html
+
+**See the Clashes Between ICE and Protesters in New Jersey**\
+`Demonstrations outside the Delaney Hall immigrant detention center have at times turned violent, with the authorities deploying tear gas and wielding batons as protesters resisted calls to disperse.`\
+https://www.nytimes.com/2026/06/03/nyregion/delaney-hall-protests-photos.html
+
 **Contentious Times at the Supreme Court**\
 `Readers discuss judicial power and possible term limits. Also: Climate corruption; anxiety in children.`\
 https://www.nytimes.com/2026/06/03/opinion/supreme-court.html
