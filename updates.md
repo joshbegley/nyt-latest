@@ -1,3 +1,7 @@
+**Palabra del día en inglés: ‘parsimonious’**\
+`Esta palabra ha aparecido en 3 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/06/02/espanol/que-significa-parsimonious.html
+
 **Nithya Raman: 5 Facts About the Candidate for Los Angeles Mayor**\
 `Ms. Raman, a progressive Democrat, surprised many allies when she entered the Los Angeles mayor’s race at the last minute.`\
 https://www.nytimes.com/2026/06/02/us/politics/nithya-raman-la-mayor.html

@@ -1,3 +1,7 @@
+**Palabra del día en inglés: ‘parsimonious’**\
+`Esta palabra ha aparecido en 3 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/06/02/espanol/que-significa-parsimonious.html
+
 **Nithya Raman: 5 Facts About the Candidate for Los Angeles Mayor**\
 `Ms. Raman, a progressive Democrat, surprised many allies when she entered the Los Angeles mayor’s race at the last minute.`\
 https://www.nytimes.com/2026/06/02/us/politics/nithya-raman-la-mayor.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-south-dakota-prima
 **New Mexico Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 New Mexico primary elections.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-new-mexico-primary.html
-
-**New Jersey Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 New Jersey primary elections.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-new-jersey-primary.html
 
