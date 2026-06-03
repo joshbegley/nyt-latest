@@ -1,3 +1,11 @@
+**Late-Arriving Ballots Could Lean Democratic in California**\
+`Democratic voters have been returning their ballots later than Republicans in this year’s primaries, which will make it difficult to interpret the results on election night.`\
+https://www.nytimes.com/2026/06/02/us/elections/california-governor-late-mail-ballots.html
+
+**Sanchez wins Democratic nod for New Mexico land commissioner**\
+`The tightly fought contest to control 9 million acres of state land revolved around which candidate could beat back President Trump and his public land chief, New Mexico’s Steve Pierce.`\
+https://www.nytimes.com/2026/06/02/us/elections/new-mexico-public-lands-democrat.html
+
 **Katie Porter: 5 Facts About the Candidate for California Governor**\
 `The former House member built her reputation by grilling corporate executives, and she has a strong command of policy. But questions about her demeanor have been a drag on her campaign.`\
 https://www.nytimes.com/2026/06/02/us/politics/katie-porter-california-governor.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/02/us/bruce-crandall-dead.html
 **Who Can Vote for Mayor of Los Angeles?**\
 `Many residents in the region mistakenly think the mayor is their leader.`\
 https://www.nytimes.com/2026/06/02/us/politics/la-mayor-vote.html
-
-**U.S. Treasury Imposes Sanctions on Iran’s Biggest Crypto Exchange**\
-`The action against Nobitex and several of its executives accused it of helping the government evade sanctions and finance militants.`\
-https://www.nytimes.com/2026/06/02/world/middleeast/sanctions-iranian-crypto-exchange.html
-
-**South Dakota Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 South Dakota primary elections.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-south-dakota-primary.html
 
