@@ -1,3 +1,19 @@
+**Conductora sin mano derecha es detenida por usar el celular con la mano derecha**\
+`Su caso, por supuesto, fue desestimado.`\
+https://www.nytimes.com/es/2026/06/03/espanol/estados-unidos/video-viral-mujer-mano-policia-florida.html
+
+**Obscure Group With Trump Ties Plans to Route Funds to His Allies for Legal Fights**\
+`A nonprofit called the Lawfare Defense Fund has raised $36 million to support those who consider themselves unjust victims of the legal system with grants to pay for litigation.`\
+https://www.nytimes.com/2026/06/03/us/politics/trump-lawfare-defense-fund.html
+
+**Arizona, Nevada Agree to Trade for Desalinated Pacific Ocean Water**\
+`A decade-old treatment plant in San Diego County, Calif., could leave more water in the Colorado River for states facing severe shortages.`\
+https://www.nytimes.com/2026/06/03/climate/arizona-nevada-san-diego-water.html
+
+**NASA Says Goodbye to its Longtime Mars MAVEN Mission**\
+`The space agency announced that the MAVEN spacecraft, which has circled Mars for more than a decade, is being decommissioned.`\
+https://www.nytimes.com/2026/06/03/science/nasa-maven-mars-orbiter.html
+
 **In Alabama Ruling, Supreme Court Signals Limited Role for Federal Courts in Redistricting Fights**\
 `In an emergency ruling on Tuesday night, the court’s conservative majority gave a first glimpse into congressional district battles under a weakened Voting Rights Act.`\
 https://www.nytimes.com/2026/06/03/us/politics/supreme-court-voting-rights-alabama.html
@@ -173,22 +189,6 @@ https://www.nytimes.com/es/2026/06/03/espanol/mundo/iran-ataques-kuwait-barein-e
 **Man Charged With Hate Crimes Over Swastika Flag Flown on N.Y.U. Campus**\
 `The man, Alexander Stepnowsky, was arrested on Tuesday on the Lower East Side, almost a month after the episode. An N.Y.U. official said he was a student at the time of the event.`\
 https://www.nytimes.com/2026/06/03/nyregion/nyu-student-star-of-david.html
-
-**Deadly Attack Fills Kuwait Airport With Smoke and Flames**\
-`At least one person was killed and dozens were injured in a drone attack on Kuwait’s international airport on Wednesday.`\
-https://www.nytimes.com/video/world/middleeast/100000010942279/iran-attack-kuwait-airport.html
-
-**John McClain, Who Helped Keep Michael Jackson’s Profits Flowing, Dies at 72**\
-`A music executive with longstanding ties to the Jackson family, he worked to make Janet a star and Michael a posthumous commercial powerhouse.`\
-https://www.nytimes.com/2026/06/03/arts/music/john-mcclain-dead.html
-
-**Ucrania ataca San Petersburgo el primer día de un congreso de Putin**\
-`El ataque forma parte de una campaña destinada a infligir daños económicos a Rusia y demostrar su vulnerabilidad.`\
-https://www.nytimes.com/es/2026/06/03/espanol/mundo/ucrania-dron-ataque-san-petersburgo.html
-
-**Inside Scarlett Supple and James Thurstan Waterworth’s English Countryside Cottage**\
-`A couple with a love of collecting have filled their family home with finds from near and far.`\
-https://www.nytimes.com/2026/06/03/t-magazine/english-countryside-cottage.html
 
 **Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
 `Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race. The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles.`\
