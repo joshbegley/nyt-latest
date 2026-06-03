@@ -1,3 +1,7 @@
+**Perry Wins G.O.P. Nomination for New Mexico Land Commissioner**\
+`Michael Perry says he is pragmatic, but Democrats fear he would advance the agenda of President Trump and the New Mexican nominated to head the Bureau of Land Management, Steve Pearce.`\
+https://www.nytimes.com/2026/06/02/us/elections/new-mexico-land-commissioner-republican.html
+
 **Rebecca Bennett Wins New Jersey House Primary to Take On Thomas Kean Jr.**\
 `Ms. Bennett, a Democrat, will compete in November against Mr. Kean, the incumbent Republican, who has been sidelined for months by a mysterious health condition.`\
 https://www.nytimes.com/2026/06/02/nyregion/bennett-kean-new-jersey-democrats.html
