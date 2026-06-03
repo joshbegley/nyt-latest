@@ -59,7 +59,7 @@ https://www.nytimes.com/2026/06/03/business/trump-tariffs-force-labor.html
 https://www.nytimes.com/2026/06/03/business/oil-prices-iran-war.html
 
 **Fire at a New Delhi Hotel Kills at Least 21**\
-`The blaze, in a residential area of the Indian capital, injured dozens more, the authorities said.`\
+`Dozens more were injured, the authorities said. The blaze appears to be the deadliest in the Indian capital in at least four years.`\
 https://www.nytimes.com/2026/06/03/world/asia/fire-hotel-new-delhi-india.html
 
 **Ukraine Strikes St. Petersburg on First Day of a Marquee Putin Event**\
@@ -82,7 +82,7 @@ https://www.nytimes.com/es/2026/06/03/espanol/negocios/airbnb-hoteles-copa-del-m
 `Mr. Pulte has had difficulty boosting the housing market as head of the Federal Housing Finance Agency. Now he will also serve as acting intelligence director.`\
 https://www.nytimes.com/2026/06/03/business/bill-pulte-housing-intelligence-director.html
 
-**Spike Lee: Knicks in Six**\
+**Spike Lee: The Skies Are Blue and Orange**\
 `The Knicks are New York’s soul, and they are bringing us together again in the championship series against San Antonio.`\
 https://www.nytimes.com/2026/06/03/opinion/new-york-knicks-nba-championship.html
 
