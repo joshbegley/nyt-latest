@@ -1,3 +1,7 @@
+**I Almost Had a Baby with My BFF**\
+`Joseph Osmundson tells Anna Martin, host of the “Modern Love” podcast, how he felt when his dream of conceiving and co-parenting a baby with his best friend and her partner did not unfold as planned.`\
+https://www.nytimes.com/video/podcasts/100000010942418/i-almost-had-a-baby-with-my-bff.html
+
 **Protests Over Murder Case in Britain Turn Violent**\
 `Protests in Southampton turned violent on Tuesday after far-right commentators made claims that the police’s handling of a murder case in Britain showed the authorities were biased against white people.`\
 https://www.nytimes.com/video/world/europe/100000010941938/henry-nowak-murder-case-protests-uk.html
@@ -34,13 +38,13 @@ https://www.nytimes.com/2026/06/03/nyregion/delaney-hall-protests-photos.html
 `The administration has settled on a more legally and politically durable way to impose tariffs, but some say the focus on forced labor is merely a pretext for protectionism.`\
 https://www.nytimes.com/2026/06/03/business/economy/trump-tariffs-forced-labor.html
 
-**This Man Should Not Be in Charge of National Intelligence**\
-`Pulte’s one evident qualification is his eagerness to advance the president’s political revenge campaign.`\
-https://www.nytimes.com/2026/06/03/opinion/bill-pulte-national-intelligence-trump.html
-
 **‘The Fantasticks’ and ‘Gloria’ Will Head to Broadway This Season**\
 `The nonprofit Second Stage Theater said it would present a reimagined version of “The Fantasticks” and the Pulitzer finalist “Gloria” at the Helen Hayes Theater.`\
 https://www.nytimes.com/2026/06/03/theater/fantasticks-gloria-broadway-second-stage.html
+
+**This Man Should Not Be in Charge of National Intelligence**\
+`Pulte’s one evident qualification is his eagerness to advance the president’s political revenge campaign.`\
+https://www.nytimes.com/2026/06/03/opinion/bill-pulte-national-intelligence-trump.html
 
 **Ataques iraníes contra Kuwait y Baréin alteran el alto al fuego**\
 `Una persona murió en un ataque contra el aeropuerto internacional de Kuwait, dijeron las autoridades locales, mientras Irán sigue atacando a los aliados estadounidenses en el golfo Pérsico.`\
@@ -181,10 +185,6 @@ https://www.nytimes.com/video/us/politics/100000010941998/california-la-mayor-ra
 **Corrections: June 3, 2026**\
 `Corrections that appeared in print on Wednesday, June 3, 2026.`\
 https://www.nytimes.com/2026/06/03/pageoneplus/corrections-june-3-2026.html
-
-**Stop Location-Tracking Your Friends and Lovers**\
-`Your friends don’t need to know where you are 24/7.`\
-https://www.nytimes.com/2026/06/03/opinion/location-sharing-surveillance-summer-house.html
 
 **Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
 `Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race. The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles.`\

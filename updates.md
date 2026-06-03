@@ -1,3 +1,7 @@
+**I Almost Had a Baby with My BFF**\
+`Joseph Osmundson tells Anna Martin, host of the “Modern Love” podcast, how he felt when his dream of conceiving and co-parenting a baby with his best friend and her partner did not unfold as planned.`\
+https://www.nytimes.com/video/podcasts/100000010942418/i-almost-had-a-baby-with-my-bff.html
+
 **Man Charged With Hate Crimes Over Swastika Flag Flown on N.Y.U. Campus**\
 `The man, Alexander Stepnowsky, was arrested on Tuesday on the Lower East Side, almost a month after the episode. An N.Y.U. official said he was a student at the time of the event.`\
 https://www.nytimes.com/2026/06/03/nyregion/nyu-student-star-of-david.html

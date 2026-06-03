@@ -1,3 +1,7 @@
+**Alex Younger, Former Head of Britain’s MI6, Dies at 62**\
+`As director of the espionage agency from 2014 to 2020, he confronted a range of threats, including international terrorism and an emboldened Russia.`\
+https://www.nytimes.com/2026/06/03/world/europe/alex-younger-dead.html
+
 **I Almost Had a Baby with My BFF**\
 `Joseph Osmundson tells Anna Martin, host of the “Modern Love” podcast, how he felt when his dream of conceiving and co-parenting a baby with his best friend and her partner did not unfold as planned.`\
 https://www.nytimes.com/video/podcasts/100000010942418/i-almost-had-a-baby-with-my-bff.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/03/pageoneplus/corrections-june-3-2026.html
 **Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
 `Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race. The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles.`\
 https://www.nytimes.com/live/2026/06/03/us/california-primary-elections-midterms
-
-**Iran War Live Updates: Drone Barrage at Kuwait Airport Kills One and Injures Dozens**\
-`Video footage verified by The New York Times showed fire inside Kuwait’s international airport. The attack was part of one of the biggest assaults on a Gulf nation since the U.S.-Iran cease-fire was announced in April.`\
-https://www.nytimes.com/live/2026/06/03/world/iran-war-trump-israel-lebanon
 
