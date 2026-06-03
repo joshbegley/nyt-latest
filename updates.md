@@ -1,3 +1,7 @@
+**Spencer Pratt Suggests He Can Be a Mayor for all L.A. Residents, as Vote Counting Continues**\
+`The former reality TV star has tried to broaden his platform, talking about Los Angeles’s homelessness and drugs problem.`\
+https://www.nytimes.com/2026/06/03/us/politics/spencer-pratt-la-mayor-election.html
+
 **Trump Aims New Tariffs at 59 Countries and the European Union**\
 `Trump administration officials said they planned to impose levies of up to 12.5 percent on countries that failed to crack down on goods made with forced labor.`\
 https://www.nytimes.com/2026/06/03/business/trump-tariffs-force-labor.html
