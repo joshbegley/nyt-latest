@@ -1,3 +1,7 @@
+**Eric Swalwell Won More Than 18,000 Votes Despite Suspending His Campaign**\
+`The former House member withdrew from the California governor’s race amid allegations of sexual assault.`\
+https://www.nytimes.com/2026/06/03/us/elections/eric-swalwell-votes-california-primary.html
+
 **Musk and Trump Slashed Aid. Now We Lack Tools to Tackle Ebola.**\
 `The fecklessness of Washington leaders contrasts with the courage of doctors, nurses and aid workers in places like Congo.`\
 https://www.nytimes.com/2026/06/03/opinion/ebola-disease-trump-musk-usaid.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/03/theater/caissie-levy-broadway-tonys-ragtime.h
 **Ahead of NBA Finals, NYC Reverses Ban on Knicks Watch Party Outside Madison Square Garden**\
 `The decision by New York City came on Wednesday as the Knicks prepared for Game 1 of their series against the Spurs for the N.B.A. title.`\
 https://www.nytimes.com/2026/06/03/nyregion/knicks-msg-watch-party.html
-
-**Trump Administration Fights Court Order to Refund Some Tariffs**\
-`The administration has started to repay some of the money, but has signaled it may make it harder for certain businesses to claim the full amount they are owed.`\
-https://www.nytimes.com/2026/06/03/business/economy/trump-tariffs-refunds-court-order.html
 
 **Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
 `Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race. The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles.`\
