@@ -1,3 +1,7 @@
+**Louisiana ICE Facility Mistreated Immigrants, Federal Investigators Say**\
+`A report by the Department of Homeland Security’s internal watchdog described officers putting one man in a chokehold and stabbing another with a pen.`\
+https://www.nytimes.com/2026/06/03/us/politics/louisiana-ice-facility-mistreated-immigrants.html
+
 **Republicans Begin to Test the Limits of Trump’s Power by Flexing Their Own**\
 `The president’s unilateral and retributive style of governing is starting to hit a wall in both chambers of Congress.`\
 https://www.nytimes.com/2026/06/03/us/politics/republicans-trump-fund-iran-war-elections.html
@@ -186,11 +190,7 @@ https://www.nytimes.com/2026/06/03/business/economy/trump-tariffs-forced-labor.h
 `Pulte’s one evident qualification is his eagerness to advance the president’s political revenge campaign.`\
 https://www.nytimes.com/2026/06/03/opinion/bill-pulte-national-intelligence-trump.html
 
-**‘The Fantasticks’ and ‘Gloria’ Will Head to Broadway This Season**\
-`The nonprofit Second Stage Theater said it would present a reimagined version of “The Fantasticks” and the Pulitzer finalist “Gloria” at the Helen Hayes Theater.`\
-https://www.nytimes.com/2026/06/03/theater/fantasticks-gloria-broadway-second-stage.html
-
-**Ataques iraníes contra Kuwait y Baréin alteran el alto al fuego**\
-`Una persona murió en un ataque contra el aeropuerto internacional de Kuwait, dijeron las autoridades locales, mientras Irán sigue atacando a los aliados estadounidenses en el golfo Pérsico.`\
-https://www.nytimes.com/es/2026/06/03/espanol/mundo/iran-ataques-kuwait-barein-ee-uu.html
+**Iran War Live Updates: Iran Attacks Gulf Nations, Further Straining Cease-Fire**\
+`On the same day Secretary of State Marco Rubio told lawmakers the Iran war was “concluded,” Tehran launched a barrage of missiles and drones toward Bahrain and Kuwait.`\
+https://www.nytimes.com/live/2026/06/03/world/iran-war-trump-israel-lebanon
 
