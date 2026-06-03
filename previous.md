@@ -1,3 +1,7 @@
+**Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
+`The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles. Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race.`\
+https://www.nytimes.com/live/2026/06/03/us/california-primary-elections-midterms
+
 **Trump Aims New Tariffs at 59 Countries and the European Union**\
 `Trump officials said they planned to impose levies of up to 12.5 percent on countries that failed to crack down on goods made with forced labor.`\
 https://www.nytimes.com/2026/06/03/business/trump-tariffs-investigations.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/03/us/politics/wilpert-desmond-california-house-
 **Even if Oil Prices Peak Soon, the Global Economy Will Slow This Year**\
 `The Organization for Economic Cooperation and Development, in a report, said the Middle East war’s consequences “are likely to be felt for some time.”`\
 https://www.nytimes.com/2026/06/03/business/iran-war-oecd-economy.html
-
-**Want Courtside Seats for the Knicks? Be Rich, Famous and a Die-Hard Fan.**\
-`Prime tickets on the floor for the N.B.A. Finals are coveted and very hard to get. The No. 1 requirement: You must love the Knicks.`\
-https://www.nytimes.com/2026/06/03/nyregion/knicks-courtside-madison-square-garden.html
 

@@ -1,3 +1,7 @@
+**Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
+`The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles. Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race.`\
+https://www.nytimes.com/live/2026/06/03/us/california-primary-elections-midterms
+
 **Trump Aims New Tariffs at 59 Countries and the European Union**\
 `Trump officials said they planned to impose levies of up to 12.5 percent on countries that failed to crack down on goods made with forced labor.`\
 https://www.nytimes.com/2026/06/03/business/trump-tariffs-investigations.html
