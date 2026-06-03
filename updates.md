@@ -1,3 +1,11 @@
+**Top Texas Election Official to Resign, Months Before General Contest**\
+`Jane Nelson, the Texas secretary of state, was appointed to the role overseeing statewide elections in 2023 by Gov. Greg Abbott.`\
+https://www.nytimes.com/2026/06/02/us/texas-top-election-official-resigns.html
+
+**Josh Turek, a Paralympian, Wins the Democratic Senate Primary in Iowa**\
+`Mr. Turek, a state lawmaker, beat Zach Wahls in a contest that tested the party’s anti-establishment fervor.`\
+https://www.nytimes.com/2026/06/02/us/politics/iowa-democratic-senate-primary-turek-wahls.html
+
 **Voters in Los Angeles Say They ‘Don’t Have a Lot of Good Choices’**\
 `Many said they were struggling to choose from candidates they saw as uninspiring in both the mayor’s and governor’s races.`\
 https://www.nytimes.com/2026/06/02/us/politics/voters-primary-election-los-angeles-choices.html

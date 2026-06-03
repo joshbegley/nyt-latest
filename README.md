@@ -1,3 +1,7 @@
+**CBS News Fires Scott Pelley of ‘60 Minutes’**\
+`Mr. Pelley, a longtime correspondent and former “Evening News” anchor, harshly criticized the show’s leadership in an extraordinary exchange during a staff meeting on Monday.`\
+https://www.nytimes.com/2026/06/02/business/media/scott-pelley-cbs-bari-weiss.html
+
 **Top Texas Election Official to Resign, Months Before General Contest**\
 `Jane Nelson, the Texas secretary of state, was appointed to the role overseeing statewide elections in 2023 by Gov. Greg Abbott.`\
 https://www.nytimes.com/2026/06/02/us/texas-top-election-official-resigns.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/02/us/politics/california-election-delayed-resul
 **Montana Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Montana primary elections.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-montana-primary.html
-
-**Iowa Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Iowa primary elections.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-iowa-primary.html
 
