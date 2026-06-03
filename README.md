@@ -1,3 +1,7 @@
+**Oil Prices Rise as Iran and U.S. Exchange Strikes**\
+`Iranian drones struck Kuwait’s main international airport and the United States and Iran exchanged strikes.`\
+https://www.nytimes.com/2026/06/03/business/oil-prices-iran-war.html
+
 **Fire at a New Delhi Hotel Kills at Least 21**\
 `The blaze, in a residential area of the Indian capital, injured dozens more, the authorities said.`\
 https://www.nytimes.com/2026/06/03/world/asia/fire-hotel-new-delhi-india.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/03/nyregion/knicks-courtside-madison-square-gard
 **¿Cuánto tiempo puede seguir así Marco Rubio?**\
 `El secreto del éxito del secretario de Estado de EE. UU.`\
 https://www.nytimes.com/es/2026/06/03/espanol/opinion/marco-rubio-trump-estados-unidos.html
-
-**George Conway Won Fame as a Never-Trumper. Will New York Voters Buy It?**\
-`Mr. Conway has centered his House campaign on his well-publicized fight against President Trump, arguing that no issue is more important to the nation.`\
-https://www.nytimes.com/2026/06/03/nyregion/george-conway-trump-congress.html
 

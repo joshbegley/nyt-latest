@@ -1,3 +1,7 @@
+**Fire at a New Delhi Hotel Kills at Least 21**\
+`The blaze, in a residential area of the Indian capital, injured dozens more, the authorities said.`\
+https://www.nytimes.com/2026/06/03/world/asia/fire-hotel-new-delhi-india.html
+
 **Ukraine Strikes St. Petersburg on First Day of a Marquee Putin Event**\
 `As an annual economic conference was set to begin, President Volodymyr Zelensky said Ukraine had targeted a navy base and an oil terminal in the region that includes Russia’s second-largest city.`\
 https://www.nytimes.com/2026/06/03/world/europe/ukraine-russia-attack-st-petersburg-putin.html
