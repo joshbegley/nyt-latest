@@ -1,3 +1,7 @@
+**E.U. Steps Up Ocean Monitoring as Trump Administration Backs Away**\
+`Days after the U.S. said it would kill a network of ocean monitors, European officials pledged to invest more in their version, calling it a “necessity.”`\
+https://www.nytimes.com/2026/06/03/climate/trump-ocean-monitor-european-union.html
+
 **Iranian Drone and Missile Barrage Against Kuwait Inflames Regional Tensions**\
 `One person was killed and dozens were injured at Kuwait’s international airport. Tehran denied it had struck the airport.`\
 https://www.nytimes.com/2026/06/03/world/middleeast/iran-kuwait-airport-strike.html

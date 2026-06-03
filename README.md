@@ -1,3 +1,11 @@
+**New Intelligence Chief’s Expertise: Pursuing Trump’s Enemies**\
+`Tulsi Gabbard’s replacement as the director of national intelligence has no known national security experience.`\
+https://www.nytimes.com/2026/06/03/us/bill-pulte-new-intelligence-chief.html
+
+**Bessent Calls Clash With Bill Pulte a ‘Locker Room’ Fight**\
+`Treasury Secretary Scott Bessent said he had an argument with the housing finance director last year but now supports his appointment as acting director of national intelligence.`\
+https://www.nytimes.com/2026/06/03/us/politics/bessent-pulte-clash.html
+
 **E.U. Steps Up Ocean Monitoring as Trump Administration Backs Away**\
 `Days after the U.S. said it would kill a network of ocean monitors, European officials pledged to invest more in their version, calling it a “necessity.”`\
 https://www.nytimes.com/2026/06/03/climate/trump-ocean-monitor-european-union.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/es/2026/06/03/espanol/america-latina/trump-colombia-de-l
 **Today, In Short**\
 `Nick Jonas. Pattie Gonia. And the latest from the primaries.`\
 https://www.nytimes.com/2026/06/03/briefing/today-in-short.html
-
-**Trump Confirms He Called Netanyahu ‘Crazy’ and Hopes to Meet Iran’s Supreme Leader**\
-`President Trump said that he had been “perturbed” in a call with Prime Minister Benjamin Netanyahu of Israel, and said he hoped to meet with Iran’s supreme leader.`\
-https://www.nytimes.com/2026/06/03/world/middleeast/trump-iran-ayatollah-netanyahu.html
-
-**Need Some Zucchini Recipes?**\
-`How about: seared zucchini and halloumi in red-wine vinaigrette, jalapeño-Cheddar zucchini bread and roasted zucchini and shrimp with za’atar yogurt.`\
-https://www.nytimes.com/2026/06/03/dining/need-some-zucchini-recipes.html
 
 **Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
 `Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race. The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles.`\
