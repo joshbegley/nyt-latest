@@ -1,3 +1,7 @@
+**Protests in UK Over Henry Nowak Murder Case Turn Violent, as Leaders Urge Calm**\
+`Eleven police officers were wounded as demonstrators pelted them with rocks and garbage cans, scenes a British cabinet minister called “unacceptable.”`\
+https://www.nytimes.com/2026/06/03/world/europe/henry-nowak-murder-southampton-protests-uk.html
+
 **Painted Into a Corner**\
 `We look at the state of the Iran war three months on.`\
 https://www.nytimes.com/2026/06/03/briefing/state-of-iran-war.html

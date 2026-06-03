@@ -1,3 +1,7 @@
+**Protests in UK Over Henry Nowak Murder Case Turn Violent, as Leaders Urge Calm**\
+`Eleven police officers were wounded as demonstrators pelted them with rocks and garbage cans, scenes a British cabinet minister called “unacceptable.”`\
+https://www.nytimes.com/2026/06/03/world/europe/henry-nowak-murder-southampton-protests-uk.html
+
 **Painted Into a Corner**\
 `We look at the state of the Iran war three months on.`\
 https://www.nytimes.com/2026/06/03/briefing/state-of-iran-war.html
@@ -189,12 +193,4 @@ https://www.nytimes.com/live/2026/06/03/world/iran-war-trump-israel-lebanon
 **Times Readers Pick the 100 Greatest Living American Songwriters**\
 `25,000 people responded to our poll. Here are their top picks.`\
 https://www.nytimes.com/interactive/2026/magazine/best-living-american-songwiters-reader-picks.html
-
-**Palabra del día en inglés: ‘recant’**\
-`Esta palabra ha aparecido en 5 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
-https://www.nytimes.com/es/2026/06/03/espanol/que-significa-recant.html
-
-**Trump ignoró los simulacros bélicos sobre el estrecho de Ormuz**\
-`Durante las dos últimas décadas, Irán amenazó repetidamente con cerrar la vía marítima. Trump subestimó la capacidad de Irán para hacerlo.`\
-https://www.nytimes.com/es/2026/06/03/espanol/mundo/trump-iran-estrecho-ormuz.html
 
