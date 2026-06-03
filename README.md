@@ -1,3 +1,7 @@
+**5 Things to Know About Representative Ashley Hinson, Senate Candidate in Iowa**\
+`Ms. Hinson is a former journalist who is supported by President Trump. She is heavily favored to win the Republican nomination.`\
+https://www.nytimes.com/2026/06/02/us/politics/ashley-hinson-iowa-senate-republicans.html
+
 **5 Things to Know About the Iowa Senate Candidate Josh Turek**\
 `A gold medalist on the U.S. men’s wheelchair basketball team, Mr. Turek is running as a “common-sense moderate.”`\
 https://www.nytimes.com/2026/06/02/us/politics/josh-turek-iowa-senate-democrats.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-california-us-hous
 **California 51st Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 California primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-51-primary.html
-
-**California 42nd Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 California primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-42-primary.html
 
