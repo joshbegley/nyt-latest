@@ -1,3 +1,7 @@
+**New Delhi Hotel Fire Kills at Least 21 People, Officials Say**\
+`A fire engulfed a six-story hotel in New Delhi on Wednesday, killing at least 21 people, the city’s fire department said. Officials are investigating the cause of the fire.`\
+https://www.nytimes.com/video/world/asia/100000010942224/hotel-fire-deaths-new-delhi-india.html
+
 **G.O.P. Revives Immigration Bill, Weighing Ban on Trump’s Fund**\
 `Several Republicans suggested they would insist on adding a measure to bar the president from creating a fund to pay people who claim to be victims of government persecution.`\
 https://www.nytimes.com/2026/06/03/us/politics/republicans-immigration-bill-trump-fund.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/03/style/david-baerwald-the-fire-agent.html
 **What Elon Musk Really Wants From the SpaceX I.P.O.**\
 `This is the mercenary reason behind the SpaceX I.P.O.`\
 https://www.nytimes.com/2026/06/03/opinion/elon-musk-spacex-ipo-leo-rockefeller.html
-
-**Attack on Kuwait Airport Further Upends Mideast Travel Amid U.S.-Iran Conflict**\
-`Airports in Kuwait, Iraq, Bahrain, the U.A.E. and Iran, some with military functions and some without, have all come under fire.`\
-https://www.nytimes.com/2026/06/03/world/middleeast/kuwait-airport-attack-mideast-travel.html
 
 **Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
 `Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race. The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles.`\

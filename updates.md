@@ -1,3 +1,15 @@
+**G.O.P. Revives Immigration Bill, Weighing Ban on Trump’s Fund**\
+`Several Republicans suggested they would insist on adding a measure to bar the president from creating a fund to pay people who claim to be victims of government persecution.`\
+https://www.nytimes.com/2026/06/03/us/politics/republicans-immigration-bill-trump-fund.html
+
+**The Narrow Path to a Democratic Senate Runs Through Very Red States**\
+`Democrats cheer there is a way, even as new worries emerge over whether Graham Platner can flip a Maine seat. Republicans remain confident they will prevail in Texas, Iowa and Alaska.`\
+https://www.nytimes.com/2026/06/03/us/politics/midterm-senate-battlegrounds.html
+
+**Iranian Drone and Missile Barrage Against Kuwait Inflames Regional Tensions**\
+`The strike killed an Indian resident of Kuwait and badly damaged the country’s international airport. Tehran denied it had hit the airport.`\
+https://www.nytimes.com/2026/06/03/world/middleeast/iran-kuwait-airport-strike.html
+
 **Travelers Bound for the U.K. Hit a Roadblock: Electronic Authorization System Is Down**\
 `Visitors from the U.S., Canada and most European countries can’t get an electronic travel authorization and are being turned away from planes, trains and boats.`\
 https://www.nytimes.com/2026/06/03/travel/uk-travelers-eta-outage.html
