@@ -1,3 +1,11 @@
+**Trump Administration Fights Court Order to Refund Some Tariffs**\
+`The administration has paid back some of the money, but has signaled it may make it harder for certain businesses to claim some of the billions owed.`\
+https://www.nytimes.com/2026/06/03/business/economy/trump-tariffs-refunds-court-order.html
+
+**Elecciones en Colombia: Trump respalda a De la Espriella**\
+`Trump dijo que el candidato, Abelardo de la Espriella, era importante para la relación entre EE. UU. y Colombia y calificó a su rival de izquierda de “marxista de izquierda radical”.`\
+https://www.nytimes.com/es/2026/06/03/espanol/america-latina/trump-colombia-de-la-espriella.html
+
 **Today, In Short**\
 `Nick Jonas. Pattie Gonia. And the latest from the primaries.`\
 https://www.nytimes.com/2026/06/03/briefing/today-in-short.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/03/arts/music/whats-next-now-that-live-nation-ha
 **I Tried to Have a Kid With My Best Friend. It Got Complicated.**\
 `Two queer friends dreamed of raising a child together. They almost made it real.`\
 https://www.nytimes.com/2026/06/03/podcasts/best-friends-parenting-kid.html
-
-**In Portugal, Visitors are Flocking to Lisbon’s Food and Art Scenes**\
-`The Portuguese capital is booming with an influx of artists, retirees and visitors drawn to an exciting, affordable culinary scene and an inclusive culture.`\
-https://www.nytimes.com/2026/06/03/travel/lisbon-portugal-restaurants-bars-hotels.html
-
-**Fixing the 34th Street Bottleneck**\
-`Could a busway ease traffic clogging on a key Midtown corridor?`\
-https://www.nytimes.com/2026/06/03/nyregion/fixing-the-34th-street-bottleneck.html
 
 **Iran War Live Updates: Drone Barrage at Kuwait Airport Kills One and Injures Dozens**\
 `Video footage verified by The New York Times showed fire inside Kuwait’s international airport. The attack was part of one of the biggest assaults on a Gulf nation since the U.S.-Iran cease-fire was announced in April.`\
