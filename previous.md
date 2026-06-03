@@ -1,3 +1,7 @@
+**Late Night Wants Trump to Give Peace Talks a Chance**\
+`“Oh, I’m sorry, is wrapping up the war you started not interesting enough?” Michael Kosta said on Tuesday, after the president called negotiations with Iran “boring.”`\
+https://www.nytimes.com/2026/06/03/arts/television/late-night-trump-iran-war-negotiations.html
+
 **Word of the Day: recant**\
 `This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/06/03/learning/word-of-the-day-recant.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/es/2026/06/02/espanol/estados-unidos/blanche-fondo-trump
 **Steve Hilton: 5 Facts About the Candidate for California Governor**\
 `Mr. Hilton was the right-hand man of Prime Minister David Cameron in Britain and a Fox News host before he ran for California governor.`\
 https://www.nytimes.com/2026/06/02/us/politics/steve-hilton-california-governor.html
-
-**Josh Turek and Zach Wahls Make Final Pitches in Senate Primary**\
-`Josh Turek and Zach Wahls, the Democratic candidates for U.S. Senate, made their final pitches as voters took to the polls on Tuesday.`\
-https://www.nytimes.com/2026/06/02/us/politics/in-iowa-a-long-senate-primary-draws-to-a-close.html
 
 **California Election Live Updates: Spencer Pratt Runs Second in L.A. Mayor’s Race**\
 `Mr. Pratt, a Republican reality TV star who lost his home in last year’s fires, could face Mayor Karen Bass in a runoff. The Trump-endorsed Steve Hilton and Xavier Becerra, the top polling Democrat, led early results for governor.`\

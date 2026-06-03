@@ -1,3 +1,7 @@
+**Late Night Wants Trump to Give Peace Talks a Chance**\
+`“Oh, I’m sorry, is wrapping up the war you started not interesting enough?” Michael Kosta said on Tuesday, after the president called negotiations with Iran “boring.”`\
+https://www.nytimes.com/2026/06/03/arts/television/late-night-trump-iran-war-negotiations.html
+
 **Word of the Day: recant**\
 `This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/06/03/learning/word-of-the-day-recant.html
