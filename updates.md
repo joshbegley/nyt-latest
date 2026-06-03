@@ -1,3 +1,19 @@
+**Caissie Levy, Tony Awards Contender and ‘Ragtime’ Star, Is Having a Moment**\
+`Caissie Levy was Broadway’s first Elsa. She starred in “Hair” and “Ghost.” And now, for “Ragtime,” she is an odds-on favorite to win a Tony Award.`\
+https://www.nytimes.com/2026/06/03/theater/caissie-levy-broadway-tonys-ragtime.html
+
+**Ahead of NBA Finals, NYC Reverses Ban on Knicks Watch Party Outside Madison Square Garden**\
+`The decision came on Wednesday as the Knicks prepared for Game 1 of their series against the Spurs for the N.B.A. title.`\
+https://www.nytimes.com/2026/06/03/nyregion/knicks-msg-watch-party.html
+
+**N.Y.C. Rent Freeze Wouldn’t Spell Doom for Most Landlords, Report Says**\
+`The rent freeze Mayor Zohran Mamdani has advocated would put only a small fraction of landlords at risk of defaulting on loans, the ratings agency Moody’s found.`\
+https://www.nytimes.com/2026/06/03/nyregion/rent-freeze-nyc-moodys-landlords.html
+
+**FBI Kills Suspect in Hostage Situation at Building With Bank in Bakersfield, California**\
+`The authorities had been negotiating with a man inside an office building in Bakersfield, Calif., that included a Chase Bank branch. It was unclear how many people he held hostage.`\
+https://www.nytimes.com/2026/06/03/us/bakersfield-chase-bank-bomb-hostage-situation.html
+
 **F.B.I. Kills Suspect Who Held Hostages Overnight in Bakersfield, California**\
 `The authorities had been negotiating with a man inside an office building in Bakersfield, Calif., that included a Chase Bank branch. It was unclear how many people he held hostage.`\
 https://www.nytimes.com/2026/06/03/us/bakersfield-chase-bank-bomb-hostage-situation.html
