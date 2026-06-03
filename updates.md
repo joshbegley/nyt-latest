@@ -1,3 +1,11 @@
+**Louisiana ICE Facility Mistreated Immigrants, Federal Investigators Say**\
+`A report by the Department of Homeland Security’s internal watchdog described officers putting one man in a chokehold and stabbing another with a pen.`\
+https://www.nytimes.com/2026/06/03/us/politics/louisiana-ice-facility-mistreated-immigrants.html
+
+**Iran War Live Updates: Iran Attacks Gulf Nations, Further Straining Cease-Fire**\
+`On the same day Secretary of State Marco Rubio told lawmakers the Iran war was “concluded,” Tehran launched a barrage of missiles and drones toward Bahrain and Kuwait.`\
+https://www.nytimes.com/live/2026/06/03/world/iran-war-trump-israel-lebanon
+
 **Republicans Begin to Test the Limits of Trump’s Power by Flexing Their Own**\
 `The president’s unilateral and retributive style of governing is starting to hit a wall in both chambers of Congress.`\
 https://www.nytimes.com/2026/06/03/us/politics/republicans-trump-fund-iran-war-elections.html
