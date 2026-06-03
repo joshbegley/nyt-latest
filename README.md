@@ -1,3 +1,7 @@
+**Scientists Find Way to Supercharge Dangerous Computer ‘Worms’ With A.I.**\
+`Researchers at the University of Toronto showed how hackers could use artificial intelligence to create a program that could target any known flaw in the world’s computers.`\
+https://www.nytimes.com/2026/06/02/technology/scientists-find-way-to-supercharge-dangerous-computer-worms-with-ai.html
+
 **Polls in South Dakota Show Competitive Race in GOP Primary for Governor**\
 `Four candidates are competing in a race that will advance to a runoff if no one tops 35 percent.`\
 https://www.nytimes.com/2026/06/02/us/elections/south-dakota-governor-primary-republican-polls.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-california-us-hous
 **California Ninth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 California primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-9-primary.html
-
-**California 38th Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 California primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-38-primary.html
 
