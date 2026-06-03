@@ -1,3 +1,11 @@
+**Pacific Palisades Voters Remain Frustrated by Fire Aftermath**\
+`Residents of the Pacific Palisades neighborhood of Los Angeles headed to the polls on Tuesday. Many are waiting for their homes to be rebuilt.`\
+https://www.nytimes.com/2026/06/02/us/politics/pacific-palisades-los-angeles-election.html
+
+**U.S. Is Said to Be Investigating George Santos Over Kalshi Betting**\
+`The former congressman was referred to federal authorities after he bet on his own attendance at the State of the Union address, a person familiar with the matter said.`\
+https://www.nytimes.com/2026/06/02/us/politics/george-santos-investigation-prediction-markets.html
+
 **Spencer Pratt’s L.A. Mayor Campaign Is Fueled by Out-of-Town Cash**\
 `Mr. Pratt, a former reality TV star, has proved adept at raising funds among people who cannot vote for him. His rivals in the race have taken a more local approach.`\
 https://www.nytimes.com/2026/06/02/us/politics/spencer-pratt-la-mayor-campaign-funds.html
@@ -186,15 +194,7 @@ https://www.nytimes.com/2026/06/02/us/waco-texas-priest-sexual-assault-sentence.
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000010941091/California-Primaries-Daniel-Gomez-56882.html
 
-**Administration Argues for Power Over Philadelphia Slavery Memorial**\
-`More than 100 onlookers packed a ceremonial courtroom for legal arguments before an appeals court about the presentation of history at George Washington’s former residence.`\
-https://www.nytimes.com/2026/06/02/us/politics/trump-slavery-philadelphia-president-house.html
-
-**Thomas Kean Jr., Missing NJ Congressman, Issues Statement Promising ‘Transparency’**\
-`Representative Thomas Kean Jr., a Republican who has been absent from Congress and the campaign trail since March, suggested it could be weeks before he returned to work.`\
-https://www.nytimes.com/2026/06/02/us/politics/thomas-kean-jr-new-jersey-statement.html
-
-**California Election Live Updates: Polls Close in Tight Races for Governor and L.A. Mayor**\
+**California Election Live Updates: Early Results Show Tight Races for Governor and L.A. Mayor**\
 `The nonpartisan primaries will determine which candidates make the fall ballot, though quick results are unlikely.`\
 https://www.nytimes.com/live/2026/06/02/us/california-election-primary-governor
 

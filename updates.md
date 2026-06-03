@@ -1,3 +1,15 @@
+**Pacific Palisades Voters Remain Frustrated by Fire Aftermath**\
+`Residents of the Pacific Palisades neighborhood of Los Angeles headed to the polls on Tuesday. Many are waiting for their homes to be rebuilt.`\
+https://www.nytimes.com/2026/06/02/us/politics/pacific-palisades-los-angeles-election.html
+
+**U.S. Is Said to Be Investigating George Santos Over Kalshi Betting**\
+`The former congressman was referred to federal authorities after he bet on his own attendance at the State of the Union address, a person familiar with the matter said.`\
+https://www.nytimes.com/2026/06/02/us/politics/george-santos-investigation-prediction-markets.html
+
+**California Election Live Updates: Early Results Show Tight Races for Governor and L.A. Mayor**\
+`The nonpartisan primaries will determine which candidates make the fall ballot, though quick results are unlikely.`\
+https://www.nytimes.com/live/2026/06/02/us/california-election-primary-governor
+
 **Spencer Pratt’s L.A. Mayor Campaign Is Fueled by Out-of-Town Cash**\
 `Mr. Pratt, a former reality TV star, has proved adept at raising funds among people who cannot vote for him. His rivals in the race have taken a more local approach.`\
 https://www.nytimes.com/2026/06/02/us/politics/spencer-pratt-la-mayor-campaign-funds.html
