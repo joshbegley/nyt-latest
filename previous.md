@@ -1,3 +1,7 @@
+**Trump Aims New Tariffs at 59 Countries and the European Union**\
+`Trump officials said they planned to impose levies of up to 12.5 percent on countries that failed to crack down on goods made with forced labor.`\
+https://www.nytimes.com/2026/06/03/business/trump-tariffs-investigations.html
+
 **Oil Prices Rise as Iran and U.S. Exchange Strikes**\
 `Iranian drones struck Kuwait’s main international airport and the United States and Iran exchanged strikes.`\
 https://www.nytimes.com/2026/06/03/business/oil-prices-iran-war.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/03/business/iran-war-oecd-economy.html
 **Want Courtside Seats for the Knicks? Be Rich, Famous and a Die-Hard Fan.**\
 `Prime tickets on the floor for the N.B.A. Finals are coveted and very hard to get. The No. 1 requirement: You must love the Knicks.`\
 https://www.nytimes.com/2026/06/03/nyregion/knicks-courtside-madison-square-garden.html
-
-**¿Cuánto tiempo puede seguir así Marco Rubio?**\
-`El secreto del éxito del secretario de Estado de EE. UU.`\
-https://www.nytimes.com/es/2026/06/03/espanol/opinion/marco-rubio-trump-estados-unidos.html
 
