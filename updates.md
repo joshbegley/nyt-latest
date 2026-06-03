@@ -1,3 +1,7 @@
+**Oil Prices Rise as Iran and U.S. Exchange Strikes**\
+`Iranian drones struck Kuwait’s main international airport and the United States and Iran exchanged strikes.`\
+https://www.nytimes.com/2026/06/03/business/oil-prices-iran-war.html
+
 **Fire at a New Delhi Hotel Kills at Least 21**\
 `The blaze, in a residential area of the Indian capital, injured dozens more, the authorities said.`\
 https://www.nytimes.com/2026/06/03/world/asia/fire-hotel-new-delhi-india.html
