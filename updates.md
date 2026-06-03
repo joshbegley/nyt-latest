@@ -1,3 +1,7 @@
+**Iranian Drone and Missile Barrage Against Kuwait Inflames Regional Tensions**\
+`One person was killed and dozens were injured at Kuwait’s international airport. Tehran denied it had struck the airport.`\
+https://www.nytimes.com/2026/06/03/world/middleeast/iran-kuwait-airport-strike.html
+
 **Four Immigrant Workers Burned to Death in Italy**\
 `The immigrants had been working as fruit pickers in southern Italy, the authorities said, apparently as part of a system of criminal labor trafficking.`\
 https://www.nytimes.com/2026/06/03/world/europe/italy-migrants-burned.html
