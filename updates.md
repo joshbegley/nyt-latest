@@ -1,3 +1,11 @@
+**Ebola Shows Why Humanitarian Aid Matters**\
+`The fecklessness of Washington leaders contrasts with the courage of doctors, nurses and aid workers in places like Congo.`\
+https://www.nytimes.com/2026/06/03/opinion/ebola-disease-trump-musk-usaid.html
+
+**Iran War Live Updates: Israel and Lebanon Agree to Renew Cease-Fire**\
+`The U.S.-brokered agreement called for “a complete cessation” of fire from Hezbollah, an Iranian-backed militia that operates in southern Lebanon. A previous cease-fire has largely been ignored.`\
+https://www.nytimes.com/live/2026/06/03/world/iran-war-trump-israel-lebanon
+
 **Louisiana ICE Facility Mistreated Immigrants, Federal Investigators Say**\
 `A report by the Department of Homeland Security’s internal watchdog described officers putting one man in a chokehold and stabbing another with a pen.`\
 https://www.nytimes.com/2026/06/03/us/politics/louisiana-ice-facility-mistreated-immigrants.html

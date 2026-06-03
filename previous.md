@@ -70,7 +70,7 @@ https://www.nytimes.com/2026/06/03/us/politics/park-service-bridge-statues-gold.
 `The former House member withdrew from the California governor’s race amid allegations of sexual assault.`\
 https://www.nytimes.com/2026/06/03/us/elections/eric-swalwell-votes-california-primary.html
 
-**Musk and Trump Slashed Aid. Now We Lack Tools to Tackle Ebola.**\
+**Ebola Shows Why Humanitarian Aid Matters**\
 `The fecklessness of Washington leaders contrasts with the courage of doctors, nurses and aid workers in places like Congo.`\
 https://www.nytimes.com/2026/06/03/opinion/ebola-disease-trump-musk-usaid.html
 
@@ -190,7 +190,7 @@ https://www.nytimes.com/2026/06/03/business/economy/trump-tariffs-forced-labor.h
 `Pulte’s one evident qualification is his eagerness to advance the president’s political revenge campaign.`\
 https://www.nytimes.com/2026/06/03/opinion/bill-pulte-national-intelligence-trump.html
 
-**Iran War Live Updates: Iran Attacks Gulf Nations, Further Straining Cease-Fire**\
-`On the same day Secretary of State Marco Rubio told lawmakers the Iran war was “concluded,” Tehran launched a barrage of missiles and drones toward Bahrain and Kuwait.`\
+**Iran War Live Updates: Israel and Lebanon Agree to Renew Cease-Fire**\
+`The U.S.-brokered agreement called for “a complete cessation” of fire from Hezbollah, an Iranian-backed militia that operates in southern Lebanon. A previous cease-fire has largely been ignored.`\
 https://www.nytimes.com/live/2026/06/03/world/iran-war-trump-israel-lebanon
 

@@ -1,3 +1,7 @@
+**Trump Says Iran War Is ‘Not a Big Thing’ for U.S.**\
+`It was the latest attempt by President Trump to flip the narrative on a conflict that he once said would lead to quick and decisive victory.`\
+https://www.nytimes.com/2026/06/03/world/middleeast/trump-iran-war-remarks.html
+
 **Louisiana ICE Facility Mistreated Immigrants, Federal Investigators Say**\
 `A report by the Department of Homeland Security’s internal watchdog described officers putting one man in a chokehold and stabbing another with a pen.`\
 https://www.nytimes.com/2026/06/03/us/politics/louisiana-ice-facility-mistreated-immigrants.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/03/business/economy/trump-tariffs-forced-labor.h
 **This Man Should Not Be in Charge of National Intelligence**\
 `Pulte’s one evident qualification is his eagerness to advance the president’s political revenge campaign.`\
 https://www.nytimes.com/2026/06/03/opinion/bill-pulte-national-intelligence-trump.html
-
-**Iran War Live Updates: Israel and Lebanon Agree to Renew Cease-Fire**\
-`The U.S.-brokered agreement called for “a complete cessation” of fire from Hezbollah, an Iranian-backed militia that operates in southern Lebanon. A previous cease-fire has largely been ignored.`\
-https://www.nytimes.com/live/2026/06/03/world/iran-war-trump-israel-lebanon
 
