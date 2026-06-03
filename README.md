@@ -1,3 +1,7 @@
+**Musk and Trump Slashed Aid. Now We Lack Tools to Tackle Ebola.**\
+`The fecklessness of Washington leaders contrasts with the courage of doctors, nurses and aid workers in places like Congo.`\
+https://www.nytimes.com/2026/06/03/opinion/ebola-disease-trump-musk-usaid.html
+
 **New York City Subway Entrance Becomes Knicks Fan Landmark**\
 `The M.T.A. painted a subway station orange and blue for the New York Knicks’ first N.B.A. Final appearance in 27 years. Fans of the basketball team posed by the entrance, which is located outside Madison Square Garden.`\
 https://www.nytimes.com/video/us/100000010943054/knicks-nba-finals-subway.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/03/nyregion/knicks-msg-watch-party.html
 **Trump Administration Fights Court Order to Refund Some Tariffs**\
 `The administration has started to repay some of the money, but has signaled it may make it harder for certain businesses to claim the full amount they are owed.`\
 https://www.nytimes.com/2026/06/03/business/economy/trump-tariffs-refunds-court-order.html
-
-**Elecciones en Colombia: Trump respalda a De la Espriella**\
-`Trump dijo que el candidato, Abelardo de la Espriella, era importante para la relación entre EE. UU. y Colombia y calificó a su rival de izquierda de “marxista de izquierda radical”.`\
-https://www.nytimes.com/es/2026/06/03/espanol/america-latina/trump-colombia-de-la-espriella.html
 
 **Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
 `Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race. The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles.`\
