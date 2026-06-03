@@ -1,6 +1,10 @@
+**Man Charged With Hate Crimes Over Swastika Flag Flown on N.Y.U. Campus**\
+`The man, Alexander Stepnowsky, was arrested on Tuesday on the Lower East Side, almost a month after the episode.`\
+https://www.nytimes.com/2026/06/03/nyregion/nyu-student-star-of-david.html
+
 **Deadly Iranian Attack Fills Kuwait Airport With Smoke and Flames**\
 `At least one person was killed and dozens were injured in an Iranian drone attack on Kuwait’s international airport on Wednesday.`\
-https://www.nytimes.com/video/world/middleeast/100000010942279/deadly-iranian-attack-fills-kuwait-airport-with-smoke-and-flames.html
+https://www.nytimes.com/video/world/middleeast/100000010942279/iran-attack-kuwait-airport.html
 
 **John McClain, Who Helped Keep Michael Jackson’s Profits Flowing, Dies at 72**\
 `A music executive with longstanding ties to the Jackson family, he worked to make Janet a star and Michael a posthumous commercial powerhouse.`\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/03/crosswords/strands-sidekick-823.html
 **Today’s Wordle Hints for June 4, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, June 4, 2026.`\
 https://www.nytimes.com/2026/06/03/crosswords/wordle-review-1811.html
-
-**Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
-`Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race. The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles.`\
-https://www.nytimes.com/live/2026/06/03/us/california-primary-elections-midterms
 
 **Iran War Live Updates: Drone Barrage at Kuwait Airport Kills One and Injures Dozens**\
 `Video footage verified by The New York Times showed fire inside Kuwait’s international airport. The attack was part of one of the biggest assaults on a Gulf nation since the U.S.-Iran cease-fire was announced in April.`\
