@@ -1,3 +1,7 @@
+**Corrections: June 3, 2026**\
+`Corrections that appeared in print on Wednesday, June 3, 2026.`\
+https://www.nytimes.com/2026/06/03/pageoneplus/corrections-june-3-2026.html
+
 **Iran War Live Updates: Kuwait Says One Killed and Dozens Injured in Iranian Attack on Airport**\
 `The United States and Iran accused each other of launching new strikes. President Trump told The New York Post that Iran’s supreme leader is involved in peace talks, and he hopes to meet him.`\
 https://www.nytimes.com/live/2026/06/03/world/iran-war-trump-israel-lebanon

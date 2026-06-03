@@ -1,3 +1,7 @@
+**Corrections: June 3, 2026**\
+`Corrections that appeared in print on Wednesday, June 3, 2026.`\
+https://www.nytimes.com/2026/06/03/pageoneplus/corrections-june-3-2026.html
+
 **‘Summer House’ and the Perils of Wanton Location Sharing**\
 `Stop letting your friends and lovers surveil you, and get off my lawn.`\
 https://www.nytimes.com/2026/06/03/opinion/location-sharing-surveillance-summer-house.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/03/arts/dance/scottish-ballet-mary-queen-of-scot
 **A New Play, ‘Kenrex,’ Revisits the Story of a Bully’s Unsolved Murder**\
 `A man was shot dead surrounded by witnesses in Skidmore, Mo., but no one was ever prosecuted. Now that act of vigilante justice has inspired the play “Kenrex.”`\
 https://www.nytimes.com/2026/06/03/theater/kenrex-play-murder-ken-mcelroy.html
-
-**How Poets Went From Describing Art to Personally Admiring It**\
-`The form known as ekphrasis — or poetry about art — has taken a turn toward the individual. Our columnist asks what it means.`\
-https://www.nytimes.com/2026/06/03/books/review/on-poetry-art-ekphrasis.html
 
 **Iran War Live Updates: Kuwait Says One Killed and Dozens Injured in Iranian Attack on Airport**\
 `The United States and Iran accused each other of launching new strikes. President Trump told The New York Post that Iran’s supreme leader is involved in peace talks, and he hopes to meet him.`\
