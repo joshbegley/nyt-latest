@@ -1,3 +1,7 @@
+**Radio Host With Trump’s Support Wins Republican House Primary in Montana**\
+`Aaron Flint defeated three other Republicans, including Christi Jacobsen, the Montana secretary of state.`\
+https://www.nytimes.com/2026/06/02/us/politics/montana-republican-house-primary-flint-jacobsen.html
+
 **Late-Arriving Ballots Could Lean Democratic in California**\
 `Democratic voters have been returning their ballots later than Republicans in this year’s primaries, which will make it difficult to interpret the results on election night.`\
 https://www.nytimes.com/2026/06/02/us/elections/california-governor-late-mail-ballots.html

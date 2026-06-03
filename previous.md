@@ -1,3 +1,7 @@
+**Radio Host With Trump’s Support Wins Republican House Primary in Montana**\
+`Aaron Flint defeated three other Republicans, including Christi Jacobsen, the Montana secretary of state.`\
+https://www.nytimes.com/2026/06/02/us/politics/montana-republican-house-primary-flint-jacobsen.html
+
 **Late-Arriving Ballots Could Lean Democratic in California**\
 `Democratic voters have been returning their ballots later than Republicans in this year’s primaries, which will make it difficult to interpret the results on election night.`\
 https://www.nytimes.com/2026/06/02/us/elections/california-governor-late-mail-ballots.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/02/business/colorado-uber-lyft-law.html
 **Bruce Crandall, Part of a Heroic Rescue Mission in Vietnam, Dies at 93**\
 `“Fourteen times he flew into what they called the valley of death,” President George W. Bush said in awarding him the Medal of Honor in 2007.`\
 https://www.nytimes.com/2026/06/02/us/bruce-crandall-dead.html
-
-**Who Can Vote for Mayor of Los Angeles?**\
-`Many residents in the region mistakenly think the mayor is their leader.`\
-https://www.nytimes.com/2026/06/02/us/politics/la-mayor-vote.html
 
