@@ -1,3 +1,11 @@
+**The Narrow Path to a Democratic Senate Runs Through Very Red States**\
+`Democrats cheer there is a way, even as new worries emerge over whether Graham Platner can flip a Maine seat. Republicans remain confident they will prevail in Texas, Iowa and Alaska.`\
+https://www.nytimes.com/2026/06/03/us/politics/midterm-senate-battlegrounds.html
+
+**Iranian Drone and Missile Barrage Against Kuwait Inflames Regional Tensions**\
+`The strike killed an Indian resident of Kuwait and badly damaged the country’s international airport. Tehran denied it had hit the airport.`\
+https://www.nytimes.com/2026/06/03/world/middleeast/iran-kuwait-airport-strike.html
+
 **Travelers Bound for the U.K. Hit a Roadblock: Electronic Authorization System Is Down**\
 `Visitors from the U.S., Canada and most European countries can’t get an electronic travel authorization and are being turned away from planes, trains and boats.`\
 https://www.nytimes.com/2026/06/03/travel/uk-travelers-eta-outage.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/06/03/world/middleeast/kuwait-airport-attack-mideas
 **Trump Suggests Vance and Rubio Should Run Together in 2028 Election**\
 `President Trump said Vice President JD Vance and Secretary of State Marco Rubio should split a ticket, without mentioning who should be at the top.`\
 https://www.nytimes.com/2026/06/03/us/politics/trump-vance-rubio-2028-election.html
-
-**Navy Helicopter Crash Kills Three in Britain**\
-`The helicopter was on a training exercise when it crashed in a field in southwestern England.`\
-https://www.nytimes.com/2026/06/03/world/europe/navy-helicopter-crash-kills-three-in-britain.html
-
-**Bari Weiss Speaks on Scott Pelley’s ’60 Minutes’ Firing: ‘That’s the Path That He Chose’**\
-`In her first public comments on the firing, Ms. Weiss, the CBS News editor in chief, said that the longtime correspondent had “broken” the trust in the newsroom.`\
-https://www.nytimes.com/2026/06/03/business/media/bari-weiss-scott-pelley-cbs.html
 
 **Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
 `Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race. The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles.`\
