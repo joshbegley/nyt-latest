@@ -1,3 +1,7 @@
+**California Governor’s Race Remains Too Close to Call**\
+`Steve Hilton, a Republican, and Xavier Becerra, a Democrat, were leading in election night returns. Tom Steyer, another Democrat, urged patience as more votes were being counted.`\
+https://www.nytimes.com/2026/06/03/us/politics/california-governor-race-hilton-becerra-steyer.html
+
 **Democratic Voters Acted Strategically in a Turbulent California Election**\
 `Without a dominant candidate in the governor’s race, Democratic voters ultimately wanted to ensure that their party wasn’t shut out of the general election.`\
 https://www.nytimes.com/2026/06/02/us/politics/california-primary-elections-early-takeaways.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/02/us/politics/iowa-republican-senate-primary-hi
 **Karen Bass: 5 Facts About the Incumbent Los Angeles Mayor**\
 `The incumbent Los Angeles mayor started her term with strong approval ratings, but she lost support with voters after the fires last year that devastated the region.`\
 https://www.nytimes.com/2026/06/02/us/politics/karen-bass-la-mayor.html
-
-**Perry Wins G.O.P. Nomination for New Mexico Land Commissioner**\
-`Michael Perry says he is pragmatic, but Democrats fear he would advance the agenda of President Trump and the New Mexican nominated to head the Bureau of Land Management, Steve Pearce.`\
-https://www.nytimes.com/2026/06/02/us/elections/new-mexico-land-commissioner-republican.html
 
 **California Election Live Updates: Spencer Pratt Runs Second in L.A. Mayor’s Race**\
 `Mr. Pratt, a Republican reality TV star who lost his home in last year’s fires, could face Mayor Karen Bass in a runoff. The Trump-endorsed Steve Hilton and Xavier Becerra, the top polling Democrat, led early results for governor.`\
