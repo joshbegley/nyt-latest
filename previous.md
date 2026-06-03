@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/06/02/us/politics/in-iowa-a-long-senate-primary-dra
 `Over the past two decades, Iran repeatedly threatened to close down the waterway. President Trump underestimated Iran’s ability to do so.`\
 https://www.nytimes.com/2026/06/02/us/politics/trump-iran-strait-of-hormuz.html
 
-**California Election Live Updates: Early Results Show Tight Races for Governor and L.A. Mayor**\
-`The nonpartisan primaries will determine which candidates make the fall ballot, though quick results are unlikely.`\
+**California Election Live Updates: Spencer Pratt Runs Second in L.A. Mayor’s Race**\
+`Mr. Pratt, a Republican reality TV star who lost his home in last year’s fires, could face Mayor Karen Bass in a runoff. The Trump-endorsed Steve Hilton and Xavier Becerra, the top polling Democrat, led early results for governor.`\
 https://www.nytimes.com/live/2026/06/02/us/california-election-primary-governor
 

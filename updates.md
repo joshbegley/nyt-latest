@@ -1,3 +1,7 @@
+**California Election Live Updates: Spencer Pratt Runs Second in L.A. Mayor’s Race**\
+`Mr. Pratt, a Republican reality TV star who lost his home in last year’s fires, could face Mayor Karen Bass in a runoff. The Trump-endorsed Steve Hilton and Xavier Becerra, the top polling Democrat, led early results for governor.`\
+https://www.nytimes.com/live/2026/06/02/us/california-election-primary-governor
+
 **Incumbent Karen Bass Advances to L.A. Mayoral Election in November**\
 `Her opponent remains undetermined.`\
 https://www.nytimes.com/2026/06/03/us/politics/karen-bass-la-mayor-race.html
