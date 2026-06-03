@@ -1,3 +1,7 @@
+**Incumbent Karen Bass Advances to L.A. Mayoral Runoff Election**\
+`Mayor Karen Bass of Los Angeles secured her spot in the mayoral election in November after falling short of an outright majority in the primary. Spencer Pratt, a onetime reality TV star, and Nithya Raman, a City Council member, were battling for second place.`\
+https://www.nytimes.com/video/us/politics/100000010941998/california-la-mayor-race-primary-election.html
+
 **Corrections: June 3, 2026**\
 `Corrections that appeared in print on Wednesday, June 3, 2026.`\
 https://www.nytimes.com/2026/06/03/pageoneplus/corrections-june-3-2026.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/03/style/dannijo-nba-wags-jerseys.html
 **Making Scottish Ballet’s ‘Mary, Queen of Scots’ Legible to Americans**\
 `Scottish Ballet realized it needed to make its nation’s history a bit more explicit to take its “Mary, Queen of Scots” on the road. It comes to Lincoln Center this week.`\
 https://www.nytimes.com/2026/06/03/arts/dance/scottish-ballet-mary-queen-of-scots.html
-
-**A New Play, ‘Kenrex,’ Revisits the Story of a Bully’s Unsolved Murder**\
-`A man was shot dead surrounded by witnesses in Skidmore, Mo., but no one was ever prosecuted. Now that act of vigilante justice has inspired the play “Kenrex.”`\
-https://www.nytimes.com/2026/06/03/theater/kenrex-play-murder-ken-mcelroy.html
 
 **Iran War Live Updates: Drone Barrage at Kuwait Airport Kills One and Injures Dozens**\
 `Video footage verified by The New York Times showed fire inside Kuwait’s international airport. The attack was part of one of the biggest assaults on a Gulf nation since the U.S.-Iran cease-fire was announced in April.`\

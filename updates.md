@@ -1,3 +1,7 @@
+**Incumbent Karen Bass Advances to L.A. Mayoral Runoff Election**\
+`Mayor Karen Bass of Los Angeles secured her spot in the mayoral election in November after falling short of an outright majority in the primary. Spencer Pratt, a onetime reality TV star, and Nithya Raman, a City Council member, were battling for second place.`\
+https://www.nytimes.com/video/us/politics/100000010941998/california-la-mayor-race-primary-election.html
+
 **Iran War Live Updates: Drone Barrage at Kuwait Airport Kills One and Injures Dozens**\
 `Video footage verified by The New York Times showed fire inside Kuwait’s international airport. The attack was part of one of the biggest assaults on a Gulf nation since the U.S.-Iran cease-fire was announced in April.`\
 https://www.nytimes.com/live/2026/06/03/world/iran-war-trump-israel-lebanon
