@@ -1,3 +1,7 @@
+**Spencer Pratt’s L.A. Mayor Campaign Is Fueled by Out-of-Town Cash**\
+`Mr. Pratt, a former reality TV star, has proved adept at raising funds among people who cannot vote for him. His rivals in the race have taken a more local approach.`\
+https://www.nytimes.com/2026/06/02/us/politics/spencer-pratt-la-mayor-campaign-funds.html
+
 **In California Election Results, Beware the Red or Blue ‘Mirage’**\
 `Exactly when and how votes are counted in California can give misleading indications that a candidate is ahead.`\
 https://www.nytimes.com/2026/06/02/us/politics/california-election-results-red-or-blue-mirage.html
@@ -59,7 +63,7 @@ https://www.nytimes.com/2026/06/02/us/politics/iowa-democratic-senate-primary-tu
 https://www.nytimes.com/2026/06/02/us/politics/voters-primary-election-los-angeles-choices.html
 
 **Adam Hamawy, a Progressive Democrat, Wins House Primary in New Jersey**\
-`Dr. Hamawy, a U.S. Army veteran, faced questions about his past association with an Egyptian cleric who was convicted in 1995 of a conspiracy to wage “a war of urban terrorism.”`\
+`Dr. Hamawy, a U.S. Army veteran, has been an outspoken critic of Israel’s war in Gaza. His victory makes him the heavy favorite to win in November in the left-leaning district.`\
 https://www.nytimes.com/2026/06/02/nyregion/new-jersey-house-primary-hamawy.html
 
 **Deb Haaland wins nomination in New Mexico governor’s race**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/02/us/politics/trump-slavery-philadelphia-presid
 **Thomas Kean Jr., Missing NJ Congressman, Issues Statement Promising ‘Transparency’**\
 `Representative Thomas Kean Jr., a Republican who has been absent from Congress and the campaign trail since March, suggested it could be weeks before he returned to work.`\
 https://www.nytimes.com/2026/06/02/us/politics/thomas-kean-jr-new-jersey-statement.html
-
-**Xavier Becerra: 5 Facts About the Candidate for California Governor**\
-`Mr. Becerra has become an unexpected front-runner in the race for California governor after lagging in polls for months.`\
-https://www.nytimes.com/2026/06/02/us/politics/xavier-becerra-california-governor.html
 
 **California Election Live Updates: Polls Close in Tight Races for Governor and L.A. Mayor**\
 `The nonpartisan primaries will determine which candidates make the fall ballot, though quick results are unlikely.`\

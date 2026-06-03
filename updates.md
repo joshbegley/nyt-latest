@@ -1,3 +1,11 @@
+**Spencer Pratt’s L.A. Mayor Campaign Is Fueled by Out-of-Town Cash**\
+`Mr. Pratt, a former reality TV star, has proved adept at raising funds among people who cannot vote for him. His rivals in the race have taken a more local approach.`\
+https://www.nytimes.com/2026/06/02/us/politics/spencer-pratt-la-mayor-campaign-funds.html
+
+**Adam Hamawy, a Progressive Democrat, Wins House Primary in New Jersey**\
+`Dr. Hamawy, a U.S. Army veteran, has been an outspoken critic of Israel’s war in Gaza. His victory makes him the heavy favorite to win in November in the left-leaning district.`\
+https://www.nytimes.com/2026/06/02/nyregion/new-jersey-house-primary-hamawy.html
+
 **Supreme Court Clears the Way for Republican-Friendly Map in Alabama**\
 `In the first major case since the justices narrowed the Voting Rights Act, the court cleared the way for Alabama to use a map preferred by Republicans that leaves the state with only one majority-Black district.`\
 https://www.nytimes.com/2026/06/02/us/politics/supreme-court-alabama-congressional-map.html
