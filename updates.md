@@ -1,3 +1,7 @@
+**Eric Swalwell Won More Than 18,000 Votes Despite Suspending His Campaign**\
+`The former House member withdrew from the California governor’s race amid allegations of sexual assault.`\
+https://www.nytimes.com/2026/06/03/us/elections/eric-swalwell-votes-california-primary.html
+
 **Musk and Trump Slashed Aid. Now We Lack Tools to Tackle Ebola.**\
 `The fecklessness of Washington leaders contrasts with the courage of doctors, nurses and aid workers in places like Congo.`\
 https://www.nytimes.com/2026/06/03/opinion/ebola-disease-trump-musk-usaid.html
