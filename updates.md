@@ -1,3 +1,7 @@
+**A Trump Endorsement Falls Flat: 4 Election Takeaways From Iowa and Beyond**\
+`The president’s pick for governor of Iowa lost his primary, while Democrats in the state chose their nominee in what they hope will be a competitive Senate race.`\
+https://www.nytimes.com/2026/06/03/us/politics/iowa-new-jersey-primary-takeaways.html
+
 **I Went to Lebanon and Found Something Strangely Hopeful**\
 `If given the chance, the country could remake itself on its own terms.`\
 https://www.nytimes.com/2026/06/03/opinion/lebanon-israel-iran-war.html

@@ -1,3 +1,7 @@
+**Scott Wiener Advances in House Race to Succeed Nancy Pelosi**\
+`State Sen. Scott Wiener will be one of two candidates in the general election to represent San Francisco as Nancy Pelosi retires.`\
+https://www.nytimes.com/2026/06/03/us/politics/scott-wiener-nancy-pelosi-house.html
+
 **I Went to Lebanon and Found Something Strangely Hopeful**\
 `If given the chance, the country could remake itself on its own terms.`\
 https://www.nytimes.com/2026/06/03/opinion/lebanon-israel-iran-war.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/02/us/politics/trump-iran-strait-of-hormuz.html
 **Graham Platner Meets With Senate Democrats Amid Texting Scandal**\
 `Mr. Platner, the likely Democratic nominee for Senate in Maine, met in Washington with several senators. Chuck Schumer, the minority leader, dodged questions about his confidence in Mr. Platner.`\
 https://www.nytimes.com/2026/06/02/us/politics/platner-senate-democrats-washington-meeting.html
-
-**Pushing Treatment, Trump Administration Limits Housing Aid for Homeless**\
-`Congress and a court blocked a previous effort to revamp homeless programs. Even a scaled-back version marks the sharpest change in homelessness policy in a generation.`\
-https://www.nytimes.com/2026/06/02/us/politics/housing-first-homeless-hud.html
 
 **California Election Live Updates: Early Results Show Tight Races for Governor and L.A. Mayor**\
 `The nonpartisan primaries will determine which candidates make the fall ballot, though quick results are unlikely.`\
