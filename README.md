@@ -67,7 +67,7 @@ https://www.nytimes.com/2026/06/02/nyregion/bennett-kean-new-jersey-democrats.ht
 https://www.nytimes.com/2026/06/02/us/politics/california-top-two-voting-system.html
 
 **5 Things to Know About Representative Ashley Hinson, Senate Candidate in Iowa**\
-`Ms. Hinson is a former journalist who is supported by President Trump. She is heavily favored to win the Republican nomination.`\
+`Ms. Hinson, a former journalist who is supported by President Trump, won the Republican nomination.`\
 https://www.nytimes.com/2026/06/02/us/politics/ashley-hinson-iowa-senate-republicans.html
 
 **5 Things to Know About the Iowa Senate Candidate Josh Turek**\
