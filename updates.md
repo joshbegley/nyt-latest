@@ -1,3 +1,7 @@
+**Attacks on Kuwait and Bahrain Add Further Strain to U.S.-Iran Cease-Fire**\
+`One person was killed in an attack on the international airport in Kuwait, local authorities said, as Iran continues to target U.S. allies in the Persian Gulf.`\
+https://www.nytimes.com/2026/06/03/world/middleeast/iran-attacks-kuwait-bahrain-ceasefire.html
+
 **Attacks on Kuwait and Bahrain Add Further Strain to Cease-Fire**\
 `One person was killed in an attack on the international airport in Kuwait, local authorities said, as Iran continues to target U.S. allies in the Persian Gulf.`\
 https://www.nytimes.com/2026/06/03/world/middleeast/iran-attacks-kuwait-bahrain-ceasefire.html
