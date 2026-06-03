@@ -1,3 +1,7 @@
+**Word of the Day: recant**\
+`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/06/03/learning/word-of-the-day-recant.html
+
 **California Election Live Updates: Spencer Pratt Runs Second in L.A. Mayor’s Race**\
 `Mr. Pratt, a Republican reality TV star who lost his home in last year’s fires, could face Mayor Karen Bass in a runoff. The Trump-endorsed Steve Hilton and Xavier Becerra, the top polling Democrat, led early results for governor.`\
 https://www.nytimes.com/live/2026/06/02/us/california-election-primary-governor
