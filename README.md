@@ -1,3 +1,7 @@
+**Democratic Voters Acted Strategically in a Turbulent California Election**\
+`Without a dominant candidate in the governor’s race, Democratic voters ultimately wanted to ensure that their party wasn’t shut out of the general election.`\
+https://www.nytimes.com/2026/06/02/us/politics/california-primary-elections-early-takeaways.html
+
 **Rutina de 15 minutos con la cuerda de saltar para principiantes**\
 `Saltar a la cuerda no es solo cosa de niños. Prueba esta rutina para empezar.`\
 https://www.nytimes.com/es/2026/06/03/espanol/salto-cuerda-15-minutos.html
@@ -52,7 +56,7 @@ https://www.nytimes.com/2026/06/03/us/politics/karen-bass-la-mayor-race.html
 
 **Wiener and Chan Will Face Off in House Race to Succeed Nancy Pelosi**\
 `State Sen. Scott Wiener and Supervisor Connie Chan were the top two finishers in the open primary to represent San Francisco as Nancy Pelosi retires.`\
-https://www.nytimes.com/2026/06/03/us/politics/scott-wiener-nancy-pelosi-house.html
+https://www.nytimes.com/2026/06/03/us/politics/wiener-chan-pelosi-sf-election-house.html
 
 **I Went to Lebanon and Found Something Strangely Hopeful**\
 `If given the chance, the country could remake itself on its own terms.`\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/02/us/politics/karen-bass-la-mayor.html
 **Perry Wins G.O.P. Nomination for New Mexico Land Commissioner**\
 `Michael Perry says he is pragmatic, but Democrats fear he would advance the agenda of President Trump and the New Mexican nominated to head the Bureau of Land Management, Steve Pearce.`\
 https://www.nytimes.com/2026/06/02/us/elections/new-mexico-land-commissioner-republican.html
-
-**Rebecca Bennett Wins New Jersey House Primary to Take On Thomas Kean Jr.**\
-`Ms. Bennett, a Democrat, will compete in November against Mr. Kean, the incumbent Republican, who has been sidelined for months by a mysterious health condition.`\
-https://www.nytimes.com/2026/06/02/nyregion/bennett-kean-new-jersey-democrats.html
 
 **California Election Live Updates: Spencer Pratt Runs Second in L.A. Mayor’s Race**\
 `Mr. Pratt, a Republican reality TV star who lost his home in last year’s fires, could face Mayor Karen Bass in a runoff. The Trump-endorsed Steve Hilton and Xavier Becerra, the top polling Democrat, led early results for governor.`\

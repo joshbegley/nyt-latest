@@ -1,3 +1,11 @@
+**Rutina de 15 minutos con la cuerda de saltar para principiantes**\
+`Saltar a la cuerda no es solo cosa de niños. Prueba esta rutina para empezar.`\
+https://www.nytimes.com/es/2026/06/03/espanol/salto-cuerda-15-minutos.html
+
+**Republican support for same-sex marriage has fallen by 18 percentage points since 2022.**\
+`summary`\
+https://www.nytimes.com/2026/06/03/us/politics/support-gay-rights-decline.html
+
 **Wiener and Chan Will Face Off in House Race to Succeed Nancy Pelosi**\
 `State Sen. Scott Wiener and Supervisor Connie Chan were the top two finishers in the open primary to represent San Francisco as Nancy Pelosi retires.`\
 https://www.nytimes.com/2026/06/03/us/politics/scott-wiener-nancy-pelosi-house.html
