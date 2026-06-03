@@ -1,3 +1,7 @@
+**Incumbent Karen Bass Advances to L.A. Mayoral Election in November**\
+`Her opponent remains undetermined.`\
+https://www.nytimes.com/2026/06/03/us/politics/karen-bass-la-mayor-race.html
+
 **Scott Wiener Advances in House Race to Succeed Nancy Pelosi**\
 `State Sen. Scott Wiener will be one of two candidates in the general election to represent San Francisco as Nancy Pelosi retires.`\
 https://www.nytimes.com/2026/06/03/us/politics/scott-wiener-nancy-pelosi-house.html

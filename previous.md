@@ -1,3 +1,7 @@
+**Incumbent Karen Bass Advances to L.A. Mayoral Election in November**\
+`Her opponent remains undetermined.`\
+https://www.nytimes.com/2026/06/03/us/politics/karen-bass-la-mayor-race.html
+
 **Scott Wiener Advances in House Race to Succeed Nancy Pelosi**\
 `State Sen. Scott Wiener will be one of two candidates in the general election to represent San Francisco as Nancy Pelosi retires.`\
 https://www.nytimes.com/2026/06/03/us/politics/scott-wiener-nancy-pelosi-house.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/02/us/politics/in-iowa-a-long-senate-primary-dra
 **War Games and Warnings on Strait of Hormuz Went Unheeded by Trump**\
 `Over the past two decades, Iran repeatedly threatened to close down the waterway. President Trump underestimated Iran’s ability to do so.`\
 https://www.nytimes.com/2026/06/02/us/politics/trump-iran-strait-of-hormuz.html
-
-**Graham Platner Meets With Senate Democrats Amid Texting Scandal**\
-`Mr. Platner, the likely Democratic nominee for Senate in Maine, met in Washington with several senators. Chuck Schumer, the minority leader, dodged questions about his confidence in Mr. Platner.`\
-https://www.nytimes.com/2026/06/02/us/politics/platner-senate-democrats-washington-meeting.html
 
 **California Election Live Updates: Early Results Show Tight Races for Governor and L.A. Mayor**\
 `The nonpartisan primaries will determine which candidates make the fall ballot, though quick results are unlikely.`\
