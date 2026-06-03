@@ -1,3 +1,7 @@
+**Protests Over Murder Case in Britain Turn Violent**\
+`Protests in Southampton turned violent on Tuesday after far-right commentators made claims that the police’s handling of a murder case in Britain showed the authorities were biased against white people.`\
+https://www.nytimes.com/video/world/europe/100000010941938/henry-nowak-murder-case-protests-uk.html
+
 **Sam Forstag Wins Democratic House Primary in Montana’s 1st Congressional District**\
 `Sam Forstag’s candidacy will test a liberal theory that left-leaning politicians running in Republican strongholds can do better in general elections than moderates have done historically.`\
 https://www.nytimes.com/2026/06/03/us/politics/montana-democratic-house-busse-forstag-rains.html
