@@ -1,3 +1,7 @@
+**Remaining Uncounted Ballots in California Elections Are Likely to Lean Democratic**\
+`Democratic voters returned their ballots later than Republicans in this year’s primaries, which could cause candidate standings to reshuffle as votes continue to be reported.`\
+https://www.nytimes.com/2026/06/03/us/elections/california-election-results-mail-ballots.html
+
 **Ukraine’s Daily Moment of Silence**\
 `Every day at 9 a.m., Ukrainians observe a minute of silence to honor people killed during the Russia-Ukraine war. Our reporter, Maria Varenikova, who has covered the hostilities since 2014, takes us to her hometown to experience this moment.`\
 https://www.nytimes.com/video/world/europe/100000010925753/ukraines-daily-moment-of-silence.html
