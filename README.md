@@ -1,3 +1,7 @@
+**Ruth Shack, Early Champion of Gay Rights in Miami, Dies at 94**\
+`She sponsored one of the nation’s first anti-discrimination ordinances for gays and lesbians and later helped make Miami a global arts center.`\
+https://www.nytimes.com/2026/06/03/us/ruth-shack-dead.html
+
 **Out of Time to Delay, House to Vote on Trump’s Power to Continue War in Iran**\
 `A measure to direct the president to halt U.S. engagement in Iran had been on track to pass in late May, but Republican leaders postponed action. They have run out of time to delay the vote.`\
 https://www.nytimes.com/2026/06/03/us/politics/house-vote-trump-iran-war-powers.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/03/books/review/the-traveler-andrea-wulf.html
 **America Broke Something When It Gave Trump a Second Chance**\
 `Lincoln would know how to deal with these Republicans.`\
 https://www.nytimes.com/2026/06/03/opinion/project-2025-2029-democrats.html
-
-**Charleston’s Charm Hides Bloody History of Revolutionary War in South Carolina**\
-`Some of the fiercest battles took place in South Carolina, but its part in the fight for independence is often overlooked. Our reporter found history, myths, beauty and contradiction across the Lowcountry landscapes.`\
-https://www.nytimes.com/2026/06/03/travel/charleston-south-carolina-history.html
 
 **Iran War Live Updates: Drone Barrage at Kuwait Airport Kills One and Injures Dozens**\
 `Video footage verified by The New York Times showed fire inside Kuwait’s international airport. The attack was part of one of the biggest assaults on a Gulf nation since the U.S.-Iran cease-fire was announced in April.`\

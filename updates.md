@@ -1,3 +1,7 @@
+**Out of Time to Delay, House to Vote on Trump’s Power to Continue War in Iran**\
+`A measure to direct the president to halt U.S. engagement in Iran had been on track to pass in late May, but Republican leaders postponed action. They have run out of time to delay the vote.`\
+https://www.nytimes.com/2026/06/03/us/politics/house-vote-trump-iran-war-powers.html
+
 **Steve Hilton Holds Slim Early Lead in California Governor’s Race**\
 `Steve Hilton, a Republican and former Fox News host, held a narrow lead in early votes over two Democratic opponents in California’s nonpartisan primary for governor. The top two candidates will advance to the general election in November.`\
 https://www.nytimes.com/video/us/politics/100000010941939/california-governor-race-primary-election.html
