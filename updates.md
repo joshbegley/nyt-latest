@@ -1,3 +1,19 @@
+**New York City Subway Entrance Becomes Knicks Fan Landmark**\
+`The M.T.A. painted a subway station orange and blue for the New York Knicks’ first N.B.A. Final appearance in 27 years. Fans of the basketball team posed by the entrance, which is located outside Madison Square Garden.`\
+https://www.nytimes.com/video/us/100000010943054/knicks-nba-finals-subway.html
+
+**New Intelligence Chief’s Expertise: Pursuing Trump’s Enemies**\
+`Tulsi Gabbard’s replacement as the director of national intelligence has no known national security experience.`\
+https://www.nytimes.com/2026/06/03/us/bill-pulte-new-intelligence-chief.html
+
+**Bessent Calls Clash With Bill Pulte a ‘Locker Room’ Fight**\
+`Treasury Secretary Scott Bessent said he had an argument with the housing finance director last year but now supports his appointment as acting director of national intelligence.`\
+https://www.nytimes.com/2026/06/03/us/politics/bessent-pulte-clash.html
+
+**Deadly Attack Fills Kuwait Airport With Smoke and Flames**\
+`At least one person was killed and dozens were injured in a drone attack on Kuwait’s international airport on Wednesday.`\
+https://www.nytimes.com/video/world/middleeast/100000010942279/iran-attack-kuwait-airport.html
+
 **E.U. Steps Up Ocean Monitoring as Trump Administration Backs Away**\
 `Days after the U.S. said it would kill a network of ocean monitors, European officials pledged to invest more in their version, calling it a “necessity.”`\
 https://www.nytimes.com/2026/06/03/climate/trump-ocean-monitor-european-union.html
