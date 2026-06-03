@@ -1,3 +1,7 @@
+**In Alabama Ruling, Supreme Court Signals Limited Role for Federal Courts in Redistricting Fights**\
+`In an emergency ruling on Tuesday night, the court’s conservative majority gave a first glimpse into congressional district battles under a weakened Voting Rights Act.`\
+https://www.nytimes.com/2026/06/03/us/politics/supreme-court-voting-rights-alabama.html
+
 **The House Votes to End the Iran War**\
 `Also, the N.B.A. finals tips off. Here’s the latest at the end of Wednesday.`\
 https://www.nytimes.com/2026/06/03/briefing/house-iran-war-powers.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/es/2026/06/03/espanol/mundo/ucrania-dron-ataque-san-pete
 **Inside Scarlett Supple and James Thurstan Waterworth’s English Countryside Cottage**\
 `A couple with a love of collecting have filled their family home with finds from near and far.`\
 https://www.nytimes.com/2026/06/03/t-magazine/english-countryside-cottage.html
-
-**Mullin Says ICE Training Going Back to ‘Regular Standards’**\
-`The immigration agency had apparently cut training requirements as a part of its enforcement push over the past year.`\
-https://www.nytimes.com/2026/06/03/us/politics/mullin-ice-training.html
 
 **Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
 `Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race. The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles.`\
