@@ -1,3 +1,7 @@
+**Park Service Awards No-Bid Contract to Cover Bridge Statues in Gold**\
+`Originally estimated to cost $2.4 million, the government will now spend $5 million to restore the bronzes in time for Independence Day.`\
+https://www.nytimes.com/2026/06/03/us/politics/park-service-bridge-statues-gold.html
+
 **Eric Swalwell Won More Than 18,000 Votes Despite Suspending His Campaign**\
 `The former House member withdrew from the California governor’s race amid allegations of sexual assault.`\
 https://www.nytimes.com/2026/06/03/us/elections/eric-swalwell-votes-california-primary.html

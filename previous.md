@@ -1,3 +1,7 @@
+**Park Service Awards No-Bid Contract to Cover Bridge Statues in Gold**\
+`Originally estimated to cost $2.4 million, the government will now spend $5 million to restore the bronzes in time for Independence Day.`\
+https://www.nytimes.com/2026/06/03/us/politics/park-service-bridge-statues-gold.html
+
 **Eric Swalwell Won More Than 18,000 Votes Despite Suspending His Campaign**\
 `The former House member withdrew from the California governor’s race amid allegations of sexual assault.`\
 https://www.nytimes.com/2026/06/03/us/elections/eric-swalwell-votes-california-primary.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/03/style/tiny-modern-love-stories-as-he-dressed-
 **Caissie Levy, Tony Awards Contender and ‘Ragtime’ Star, Is Having a Moment**\
 `Caissie Levy was Broadway’s first Elsa. She starred in “Hair” and “Ghost.” And now, for “Ragtime,” she is an odds-on favorite to win a Tony Award.`\
 https://www.nytimes.com/2026/06/03/theater/caissie-levy-broadway-tonys-ragtime.html
-
-**Ahead of NBA Finals, NYC Reverses Ban on Knicks Watch Party Outside Madison Square Garden**\
-`The decision by New York City came on Wednesday as the Knicks prepared for Game 1 of their series against the Spurs for the N.B.A. title.`\
-https://www.nytimes.com/2026/06/03/nyregion/knicks-msg-watch-party.html
 
 **Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
 `Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race. The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles.`\
