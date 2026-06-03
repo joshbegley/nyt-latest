@@ -1,3 +1,7 @@
+**Four Immigrant Workers Burned to Death in Italy**\
+`The immigrants had been working as fruit pickers in southern Italy, the authorities said, apparently as part of a system of criminal labor trafficking.`\
+https://www.nytimes.com/2026/06/03/world/europe/italy-migrants-burned.html
+
 **New Delhi Hotel Fire Kills at Least 21 People, Officials Say**\
 `A fire engulfed a six-story hotel in New Delhi on Wednesday, killing at least 21 people, the city’s fire department said. Officials are investigating the cause of the fire.`\
 https://www.nytimes.com/video/world/asia/100000010942224/hotel-fire-deaths-new-delhi-india.html

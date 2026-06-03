@@ -15,7 +15,7 @@ https://www.nytimes.com/2026/06/03/us/politics/republicans-immigration-bill-trum
 https://www.nytimes.com/2026/06/03/us/politics/midterm-senate-battlegrounds.html
 
 **Iranian Drone and Missile Barrage Against Kuwait Inflames Regional Tensions**\
-`The strike killed an Indian resident of Kuwait and badly damaged the country’s international airport. Tehran denied it had hit the airport.`\
+`One person was killed and dozens were injured at Kuwait’s international airport. Tehran denied it had struck the airport.`\
 https://www.nytimes.com/2026/06/03/world/middleeast/iran-kuwait-airport-strike.html
 
 **Travelers Bound for the U.K. Hit a Roadblock: Electronic Authorization System Is Down**\
@@ -94,13 +94,13 @@ https://www.nytimes.com/2026/06/03/nyregion/delaney-hall-protests-photos.html
 `The administration has settled on a more legally and politically durable way to impose tariffs, but some say the focus on forced labor is merely a pretext for protectionism.`\
 https://www.nytimes.com/2026/06/03/business/economy/trump-tariffs-forced-labor.html
 
-**‘The Fantasticks’ and ‘Gloria’ Will Head to Broadway This Season**\
-`The nonprofit Second Stage Theater said it would present a reimagined version of “The Fantasticks” and the Pulitzer finalist “Gloria” at the Helen Hayes Theater.`\
-https://www.nytimes.com/2026/06/03/theater/fantasticks-gloria-broadway-second-stage.html
-
 **This Man Should Not Be in Charge of National Intelligence**\
 `Pulte’s one evident qualification is his eagerness to advance the president’s political revenge campaign.`\
 https://www.nytimes.com/2026/06/03/opinion/bill-pulte-national-intelligence-trump.html
+
+**‘The Fantasticks’ and ‘Gloria’ Will Head to Broadway This Season**\
+`The nonprofit Second Stage Theater said it would present a reimagined version of “The Fantasticks” and the Pulitzer finalist “Gloria” at the Helen Hayes Theater.`\
+https://www.nytimes.com/2026/06/03/theater/fantasticks-gloria-broadway-second-stage.html
 
 **Ataques iraníes contra Kuwait y Baréin alteran el alto al fuego**\
 `Una persona murió en un ataque contra el aeropuerto internacional de Kuwait, dijeron las autoridades locales, mientras Irán sigue atacando a los aliados estadounidenses en el golfo Pérsico.`\

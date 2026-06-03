@@ -1,3 +1,7 @@
+**Four Immigrant Workers Burned to Death in Italy**\
+`The immigrants had been working as fruit pickers in southern Italy, the authorities said, apparently as part of a system of criminal labor trafficking.`\
+https://www.nytimes.com/2026/06/03/world/europe/italy-migrants-burned.html
+
 **New Delhi Hotel Fire Kills at Least 21 People, Officials Say**\
 `A fire engulfed a six-story hotel in New Delhi on Wednesday, killing at least 21 people, the city’s fire department said. Officials are investigating the cause of the fire.`\
 https://www.nytimes.com/video/world/asia/100000010942224/hotel-fire-deaths-new-delhi-india.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/03/dining/need-some-zucchini-recipes.html
 **Songwriter David Baerwald Shares an Unspeakable Family Secret in ‘The Fire Agent’**\
 `In “The Fire Agent,” the musician David Baerwald bases his debut novel on the shadowy life of his German-Jewish grandfather: an aristocrat, a soldier, a Buddhist and a spy.`\
 https://www.nytimes.com/2026/06/03/style/david-baerwald-the-fire-agent.html
-
-**What Elon Musk Really Wants From the SpaceX I.P.O.**\
-`This is the mercenary reason behind the SpaceX I.P.O.`\
-https://www.nytimes.com/2026/06/03/opinion/elon-musk-spacex-ipo-leo-rockefeller.html
 
 **Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
 `Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race. The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles.`\
