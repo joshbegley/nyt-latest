@@ -1,3 +1,23 @@
+**Why the Ebola Outbreak Has Been Nearly Impossible to Stop**\
+`At the center of the Ebola outbreak in the Democratic Republic of Congo, the front line is completely overwhelmed.`\
+https://www.nytimes.com/2026/06/03/podcasts/the-daily/ebola-outbreak-congo.html
+
+**Trump’s Controversial Pick to Oversee U.S. Intelligence, and a Surge in Preventable Diseases**\
+`Plus, how Marcia Lucas was “the heart” behind “Star Wars.”`\
+https://www.nytimes.com/2026/06/03/podcasts/the-headlines/bill-pulte-vaccines.html
+
+**NYT Connections Answers for June 4, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, June 4, 2026.`\
+https://www.nytimes.com/2026/06/03/crosswords/connections-companion-1089.html
+
+**NYT Strands Hints for June 4, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, June 4, 2026.`\
+https://www.nytimes.com/2026/06/03/crosswords/strands-sidekick-823.html
+
+**Today’s Wordle Hints for June 4, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, June 4, 2026.`\
+https://www.nytimes.com/2026/06/03/crosswords/wordle-review-1811.html
+
 **Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
 `The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles. Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race.`\
 https://www.nytimes.com/live/2026/06/03/us/california-primary-elections-midterms

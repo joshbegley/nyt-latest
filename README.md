@@ -111,7 +111,7 @@ https://www.nytimes.com/2026/06/03/realestate/renters-rent-stabalizion-mistake.h
 https://www.nytimes.com/2026/06/03/arts/music/nba-finals-music.html
 
 **Ukraine’s Daily Moment of Silence**\
-`Every day at 9a.m., Ukrainians observe a minute of silence to honor people killed during the Russia-Ukraine war. Our reporter, Maria Varenikova, who has covered the hostilities since 2014, takes us to her hometown to experience this moment.`\
+`Every day at 9 a.m., Ukrainians observe a minute of silence to honor people killed during the Russia-Ukraine war. Our reporter, Maria Varenikova, who has covered the hostilities since 2014, takes us to her hometown to experience this moment.`\
 https://www.nytimes.com/video/world/europe/100000010925753/ukraines-daily-moment-of-silence.html
 
 **America Broke Something When It Gave Trump a Second Chance**\
@@ -194,7 +194,7 @@ https://www.nytimes.com/es/2026/06/03/espanol/mundo/trump-iran-estrecho-ormuz.ht
 `Steve Hilton, a Republican, and Xavier Becerra, a Democrat, were leading in election night returns. Tom Steyer, another Democrat, urged patience as more votes were being counted.`\
 https://www.nytimes.com/2026/06/03/us/politics/california-governor-race-hilton-becerra-steyer.html
 
-**Democratic Voters Acted Strategically in a Turbulent California Election**\
+**5 Takeaways From the California Primary Election**\
 `Without a dominant candidate in the governor’s race, Democratic voters ultimately wanted to ensure that their party wasn’t shut out of the general election.`\
 https://www.nytimes.com/2026/06/02/us/politics/california-primary-elections-early-takeaways.html
 

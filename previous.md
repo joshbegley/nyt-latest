@@ -1,3 +1,23 @@
+**Why the Ebola Outbreak Has Been Nearly Impossible to Stop**\
+`At the center of the Ebola outbreak in the Democratic Republic of Congo, the front line is completely overwhelmed.`\
+https://www.nytimes.com/2026/06/03/podcasts/the-daily/ebola-outbreak-congo.html
+
+**Trump’s Controversial Pick to Oversee U.S. Intelligence, and a Surge in Preventable Diseases**\
+`Plus, how Marcia Lucas was “the heart” behind “Star Wars.”`\
+https://www.nytimes.com/2026/06/03/podcasts/the-headlines/bill-pulte-vaccines.html
+
+**NYT Connections Answers for June 4, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, June 4, 2026.`\
+https://www.nytimes.com/2026/06/03/crosswords/connections-companion-1089.html
+
+**NYT Strands Hints for June 4, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, June 4, 2026.`\
+https://www.nytimes.com/2026/06/03/crosswords/strands-sidekick-823.html
+
+**Today’s Wordle Hints for June 4, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, June 4, 2026.`\
+https://www.nytimes.com/2026/06/03/crosswords/wordle-review-1811.html
+
 **Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
 `The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles. Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race.`\
 https://www.nytimes.com/live/2026/06/03/us/california-primary-elections-midterms
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/06/03/us/politics/california-governor-race-hilton-b
 **Democratic Voters Acted Strategically in a Turbulent California Election**\
 `Without a dominant candidate in the governor’s race, Democratic voters ultimately wanted to ensure that their party wasn’t shut out of the general election.`\
 https://www.nytimes.com/2026/06/02/us/politics/california-primary-elections-early-takeaways.html
-
-**Rutina de 15 minutos con la cuerda de saltar para principiantes**\
-`Saltar a la cuerda no es solo cosa de niños. Prueba esta rutina para empezar.`\
-https://www.nytimes.com/es/2026/06/03/espanol/salto-cuerda-15-minutos.html
-
-**Republican support for same-sex marriage has fallen by 18 percentage points since 2022.**\
-`summary`\
-https://www.nytimes.com/2026/06/03/us/politics/support-gay-rights-decline.html
-
-**Trump falló como comandante en jefe**\
-`En tiempos de guerra, los líderes deben unir al país. Trump, en cambio, se ha dedicado a buscar el beneficio personal.`\
-https://www.nytimes.com/es/2026/06/03/espanol/opinion/donald-trump-gestion.html
-
-**Marni von Wilpert and Jim Desmond Advance in a San Diego-Area House Race**\
-`Ms. von Wilpert’s win in Tuesday’s open primary eliminated Democrats’ fears that two Republicans would advance to November in the 48th Congressional District.`\
-https://www.nytimes.com/2026/06/03/us/politics/wilpert-desmond-california-house-district-48.html
-
-**Even if Oil Prices Peak Soon, the Global Economy Will Slow This Year**\
-`The Organization for Economic Cooperation and Development, in a report, said the Middle East war’s consequences “are likely to be felt for some time.”`\
-https://www.nytimes.com/2026/06/03/business/iran-war-oecd-economy.html
 
