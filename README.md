@@ -127,7 +127,7 @@ https://www.nytimes.com/2026/06/03/dining/need-some-zucchini-recipes.html
 https://www.nytimes.com/2026/06/03/style/david-baerwald-the-fire-agent.html
 
 **What Elon Musk Really Wants From the SpaceX I.P.O.**\
-`What Elon Musk really wants out of the SpaceX I.P.O.: the funds to control the highly profitable earnings potential of low-Earth orbit.`\
+`This is the mercenary reason behind the SpaceX I.P.O.`\
 https://www.nytimes.com/2026/06/03/opinion/elon-musk-spacex-ipo-leo-rockefeller.html
 
 **Attack on Kuwait Airport Further Upends Mideast Travel Amid U.S.-Iran Conflict**\
