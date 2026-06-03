@@ -158,8 +158,8 @@ https://www.nytimes.com/2026/06/03/world/asia/fire-hotel-new-delhi-india.html
 `As an annual economic conference was set to begin, President Volodymyr Zelensky said Ukraine had targeted a navy base and an oil terminal in the region that includes Russia’s second-largest city.`\
 https://www.nytimes.com/2026/06/03/world/europe/ukraine-russia-attack-st-petersburg-putin.html
 
-**2 Hostages Released From Bomb Threat at Chase Bank in Bakersfield, California**\
-`The police were negotiating with a man inside a Chase Bank branch in Bakersfield, Calif. Two hostages were let go and an unknown number were still being held.`\
+**F.B.I. Kills Suspect Who Held Hostages Overnight in Bakersfield, California**\
+`The authorities had been negotiating with a man inside an office building in Bakersfield, Calif., that included a Chase Bank branch. It was unclear how many people he held hostage.`\
 https://www.nytimes.com/2026/06/03/us/bakersfield-chase-bank-bomb-hostage-situation.html
 
 **Where Is Iran’s Highly Enriched Uranium?**\

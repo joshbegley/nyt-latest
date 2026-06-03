@@ -1,3 +1,7 @@
+**F.B.I. Kills Suspect Who Held Hostages Overnight in Bakersfield, California**\
+`The authorities had been negotiating with a man inside an office building in Bakersfield, Calif., that included a Chase Bank branch. It was unclear how many people he held hostage.`\
+https://www.nytimes.com/2026/06/03/us/bakersfield-chase-bank-bomb-hostage-situation.html
+
 **N.Y.C. Reverses Ban on Knicks Watch Party Outside Madison Square Garden**\
 `The decision came on Wednesday as the Knicks prepared for Game 1 of their series against the Spurs for the N.B.A. title.`\
 https://www.nytimes.com/2026/06/03/nyregion/knicks-msg-watch-party.html

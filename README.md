@@ -1,4 +1,8 @@
-**N.Y.C. Reverses Ban on Knicks Watch Party Outside Madison Square Garden**\
+**Caissie Levy, Tony Awards Contender and ‘Ragtime’ Star, Is Having a Moment**\
+`Caissie Levy was Broadway’s first Elsa. She starred in “Hair” and “Ghost.” And now, for “Ragtime,” she is an odds-on favorite to win a Tony Award.`\
+https://www.nytimes.com/2026/06/03/theater/caissie-levy-broadway-tonys-ragtime.html
+
+**Ahead of NBA Finals, NYC Reverses Ban on Knicks Watch Party Outside Madison Square Garden**\
 `The decision came on Wednesday as the Knicks prepared for Game 1 of their series against the Spurs for the N.B.A. title.`\
 https://www.nytimes.com/2026/06/03/nyregion/knicks-msg-watch-party.html
 
@@ -59,7 +63,7 @@ https://www.nytimes.com/2026/06/03/us/politics/house-vote-trump-iran-war-powers.
 https://www.nytimes.com/video/us/politics/100000010941939/california-governor-race-primary-election.html
 
 **N.Y.C. Rent Freeze Wouldn’t Spell Doom for Most Landlords, Report Says**\
-`The ratings agency Moody’s found the rent freeze Mayor Zohran Mamdani has advocated would put only a small fraction of landlords at risk of defaulting on loans.`\
+`The rent freeze Mayor Zohran Mamdani has advocated would put only a small fraction of landlords at risk of defaulting on loans, the ratings agency Moody’s found.`\
 https://www.nytimes.com/2026/06/03/nyregion/rent-freeze-nyc-moodys-landlords.html
 
 **Map: 5.1-Magnitude Earthquake Strikes off the Coast of California**\
@@ -158,7 +162,7 @@ https://www.nytimes.com/2026/06/03/world/asia/fire-hotel-new-delhi-india.html
 `As an annual economic conference was set to begin, President Volodymyr Zelensky said Ukraine had targeted a navy base and an oil terminal in the region that includes Russia’s second-largest city.`\
 https://www.nytimes.com/2026/06/03/world/europe/ukraine-russia-attack-st-petersburg-putin.html
 
-**F.B.I. Kills Suspect Who Held Hostages Overnight in Bakersfield, California**\
+**FBI Kills Suspect in Hostage Situation at Building With Bank in Bakersfield, California**\
 `The authorities had been negotiating with a man inside an office building in Bakersfield, Calif., that included a Chase Bank branch. It was unclear how many people he held hostage.`\
 https://www.nytimes.com/2026/06/03/us/bakersfield-chase-bank-bomb-hostage-situation.html
 
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/03/business/knicks-james-dolan.html
 **Feeling Nihilistic? You’re Not Alone.**\
 `A case for mourning the American dream.`\
 https://www.nytimes.com/2026/06/03/opinion/american-dream-politics-negativity.html
-
-**What’s Next Now That Live Nation Has Been Found to Act as a Monopoly**\
-`The music industry may be significantly changed by the judicial rulings to come, but there is still a lot of lawyering left to do.`\
-https://www.nytimes.com/2026/06/03/arts/music/whats-next-now-that-live-nation-has-been-found-to-act-as-a-monopoly.html
 
 **Iran War Live Updates: Drone Barrage at Kuwait Airport Kills One and Injures Dozens**\
 `Video footage verified by The New York Times showed fire inside Kuwait’s international airport. The attack was part of one of the biggest assaults on a Gulf nation since the U.S.-Iran cease-fire was announced in April.`\
