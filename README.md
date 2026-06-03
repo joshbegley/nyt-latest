@@ -1,3 +1,7 @@
+**The World Cup Is Starting Soon. Why Does No One Care?**\
+`It isn’t just because it’s being held in America under Trump.`\
+https://www.nytimes.com/2026/06/03/opinion/world-cup-club-soccer-america.html
+
 **Unusual Greenpeace Lawsuit May Proceed, Dutch Court Says**\
 `Greenpeace International is arguing under Dutch law that an American pipeline company, Energy Transfer, sought to silence it with a costly lawsuit in North Dakota.`\
 https://www.nytimes.com/2026/06/03/climate/greenpeace-energy-transfer-slapp-lawsuit-dakota-access-pipeline.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/interactive/2026/06/03/us/quake-tracker-california-coast
 **A Death at the Epicenter of Ebola**\
 `Our chief Africa correspondent, Declan Walsh, reports from the epicenter of the Ebola outbreak on how families, medical workers and local volunteers are grappling with losses of life.`\
 https://www.nytimes.com/video/world/africa/100000010940945/a-death-at-the-epicenter-of-ebola.html
-
-**Incumbent Karen Bass Advances to L.A. Mayoral Runoff Election**\
-`Mayor Karen Bass of Los Angeles secured her spot in the mayoral election in November after falling short of an outright majority in the primary. Spencer Pratt, a onetime reality TV star, and Nithya Raman, a City Council member, were battling for second place.`\
-https://www.nytimes.com/video/us/politics/100000010941998/california-la-mayor-race-primary-election.html
 
 **Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
 `Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race. The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles.`\
