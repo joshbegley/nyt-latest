@@ -1,3 +1,11 @@
+**Six Questions Out of Tuesday’s Big Primaries in California, Iowa and Elsewhere**\
+`Who will run California? Can Democrats win Iowa? Here’s what happened, and what might be next.`\
+https://www.nytimes.com/2026/06/03/us/politics/primaries-california-iowa-questions.html
+
+**Toby Doeden and Larry Rhoden Advance to Runoff for South Dakota Governor**\
+`Toby Doeden, a businessman, and Gov. Larry Rhoden advanced to a runoff. A competitive contest emerged after Kristi Noem stepped down as governor to join President Trump’s cabinet.`\
+https://www.nytimes.com/2026/06/03/us/south-dakota-governor-doeden-rhoden.html
+
 **Former Smoke Jumper Wins Democratic House Primary in Montana**\
 `Sam Forstag’s candidacy will test a liberal theory that left-leaning politicians running in Republican strongholds can do better in general elections than moderates have done historically.`\
 https://www.nytimes.com/2026/06/03/us/politics/montana-democratic-house-busse-forstag-rains.html

@@ -1,3 +1,11 @@
+**Six Questions Out of Tuesday’s Big Primaries in California, Iowa and Elsewhere**\
+`Who will run California? Can Democrats win Iowa? Here’s what happened, and what might be next.`\
+https://www.nytimes.com/2026/06/03/us/politics/primaries-california-iowa-questions.html
+
+**Toby Doeden and Larry Rhoden Advance to Runoff for South Dakota Governor**\
+`Toby Doeden, a businessman, and Gov. Larry Rhoden advanced to a runoff. A competitive contest emerged after Kristi Noem stepped down as governor to join President Trump’s cabinet.`\
+https://www.nytimes.com/2026/06/03/us/south-dakota-governor-doeden-rhoden.html
+
 **Former Smoke Jumper Wins Democratic House Primary in Montana**\
 `Sam Forstag’s candidacy will test a liberal theory that left-leaning politicians running in Republican strongholds can do better in general elections than moderates have done historically.`\
 https://www.nytimes.com/2026/06/03/us/politics/montana-democratic-house-busse-forstag-rains.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/06/03/world/middleeast/iran-attacks-kuwait-bahrain-
 **European Union Outlines Plan to Reduce Dependence on American Tech**\
 `The 27-nation European Union outlined how it hopes to expand the region’s data centers, semiconductors and cloud computing capabilities.`\
 https://www.nytimes.com/2026/06/03/technology/european-union-tech-sovereignty.html
-
-**What’s Driving Trump’s Big A.I. Pivot**\
-`Even the industry-friendly Trump White House is finding that it needs to have greater oversight of powerful new artificial intelligence models.`\
-https://www.nytimes.com/2026/06/03/business/dealbook/trump-ai-pivot.html
-
-**Artists Threaten to Sue Venice Biennale for Including Them in Awards**\
-`The artists want their names removed from a public vote to decide the best artist and pavilion, awards that are usually decided by a jury of experts.`\
-https://www.nytimes.com/2026/06/03/arts/design/venice-biennale-public-vote.html
 
 **Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
 `Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race. The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles.`\

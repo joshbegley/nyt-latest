@@ -1,3 +1,7 @@
+**How a Prisoner Ended Up Alone in Court in a Death Penalty Case**\
+`The episode at the war court alarmed death penalty lawyers, who argued that the judge had a duty to suspend the proceedings to protect the rights of the defendant.`\
+https://www.nytimes.com/2026/06/03/us/politics/gitmo-death-penalty-case.html
+
 **Six Questions Out of Tuesday’s Big Primaries in California, Iowa and Elsewhere**\
 `Who will run California? Can Democrats win Iowa? Here’s what happened, and what might be next.`\
 https://www.nytimes.com/2026/06/03/us/politics/primaries-california-iowa-questions.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/03/style/child-guests-spending-money.html
 **Attacks on Kuwait and Bahrain Add Further Strain to U.S.-Iran Cease-Fire**\
 `One person was killed in an attack on the international airport in Kuwait, local authorities said, as Iran continues to target U.S. allies in the Persian Gulf.`\
 https://www.nytimes.com/2026/06/03/world/middleeast/iran-attacks-kuwait-bahrain-ceasefire.html
-
-**European Union Outlines Plan to Reduce Dependence on American Tech**\
-`The 27-nation European Union outlined how it hopes to expand the region’s data centers, semiconductors and cloud computing capabilities.`\
-https://www.nytimes.com/2026/06/03/technology/european-union-tech-sovereignty.html
 
 **Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
 `Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race. The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles.`\
