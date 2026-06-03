@@ -1,3 +1,7 @@
+**Contentious Times at the Supreme Court**\
+`Readers discuss judicial power and possible term limits. Also: Climate corruption; anxiety in children.`\
+https://www.nytimes.com/2026/06/03/opinion/supreme-court.html
+
 **Where Are All the Subways?**\
 `Why the U.S. lags behind on public transit`\
 https://www.nytimes.com/2026/06/03/headway/public-transit-subways-construction-united-states.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/03/arts/design/venice-biennale-public-vote.html
 **Spencer Pratt Suggests He Can Be a Mayor for all L.A. Residents, as Vote Counting Continues**\
 `The former reality TV star has tried to broaden his platform, talking about Los Angeles’s homelessness and drugs problem.`\
 https://www.nytimes.com/2026/06/03/us/politics/spencer-pratt-la-mayor-election.html
-
-**Protests in UK Over Henry Nowak Murder Case Turn Violent, as Leaders Urge Calm**\
-`Eleven officers were wounded in clashes with demonstrators after right-wing politicians and commentators accused the police of anti-white bias.`\
-https://www.nytimes.com/2026/06/03/world/europe/henry-nowak-murder-southampton-protests-uk.html
 
 **Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
 `Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race. The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles.`\
