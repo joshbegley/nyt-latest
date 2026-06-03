@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘As He Dressed, I Slipped Into His Closet’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/06/03/style/tiny-modern-love-stories-as-he-dressed-i-slipped-into-his-closet.html
+
 **Caissie Levy, Tony Awards Contender and ‘Ragtime’ Star, Is Having a Moment**\
 `Caissie Levy was Broadway’s first Elsa. She starred in “Hair” and “Ghost.” And now, for “Ragtime,” she is an odds-on favorite to win a Tony Award.`\
 https://www.nytimes.com/2026/06/03/theater/caissie-levy-broadway-tonys-ragtime.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/03/us/knicks-fans-tickets-san-antonio-nba-finals
 **For Knicks’ Owner James Dolan, a Title Might Finally Stop Some Boos**\
 `James Dolan, the longtime owner of the N.B.A. team, has faced years of jeers. Could a championship change all that?`\
 https://www.nytimes.com/2026/06/03/business/knicks-james-dolan.html
-
-**Feeling Nihilistic? You’re Not Alone.**\
-`A case for mourning the American dream.`\
-https://www.nytimes.com/2026/06/03/opinion/american-dream-politics-negativity.html
 
 **Iran War Live Updates: Drone Barrage at Kuwait Airport Kills One and Injures Dozens**\
 `Video footage verified by The New York Times showed fire inside Kuwait’s international airport. The attack was part of one of the biggest assaults on a Gulf nation since the U.S.-Iran cease-fire was announced in April.`\
