@@ -1,3 +1,15 @@
+**SpaceX IPO to Be Largest Ever at $135 Share Price**\
+`The $135 share price means Elon Musk’s rocket maker is poised to exceed the 2019 initial public offering of Saudi Aramco in both valuation and money raised.`\
+https://www.nytimes.com/2026/06/03/technology/spacex-ipo-pricing.html
+
+**Trump Signs Executive Order Removing Job Protections From Federal Workers**\
+`The order is a response to resistance during the first Trump administration, when senior career government officials routinely pushed back against policies that appeared to exceed legal boundaries.`\
+https://www.nytimes.com/2026/06/03/us/politics/trump-executive-order-job-protections.html
+
+**How Each House Member Voted on the Iran War Powers Resolution**\
+`The House passed a measure to rein in the use of military force in Iran.`\
+https://www.nytimes.com/interactive/2026/06/03/us/house-iran-war-powers.html
+
 **‘I Love It’: Trump Is Still in Favor of $1.8 Billion Payout Fund**\
 `Todd Blanche, the acting attorney general, said on Tuesday that the administration was “not moving forward with the fund, period,” after the plan drew bipartisan backlash.`\
 https://www.nytimes.com/2026/06/03/us/politics/trump-fund.html
@@ -177,18 +189,6 @@ https://www.nytimes.com/2026/06/03/us/politics/mullin-ice-training.html
 **Montana Voters Deliver Mixed Results on Shifting Statehouse Rightward**\
 `Hard-line Republicans targeted moderate colleagues in legislative primaries, but both sides claimed victories in the fight for control of the G.O.P.`\
 https://www.nytimes.com/2026/06/03/us/elections/montana-state-legislature-republican-primary.html
-
-**‘Infuriated’ Former Judges Take on Trump**\
-`Critics say it is unseemly for retired judges to trade on the prestige of their former positions.`\
-https://www.nytimes.com/2026/06/03/us/politics/the-docket-former-judges-filings.html
-
-**Why Democrats Are Hopeful About Making Gains in Iowa**\
-`After voting twice for Barack Obama, Iowa swung to the right. But the state has been hit hard economically and by Trump policies while growing disenchanted with its leaders.`\
-https://www.nytimes.com/2026/06/03/us/elections/iowa-turek-democrats-trump.html
-
-**My Family Member Is Being Pressured to Donate a Kidney. Should I Say Something?**\
-`The recipient would be his stepfather’s colleague, whom he barely knows.`\
-https://www.nytimes.com/2026/06/03/magazine/pressure-to-donate-a-kidney-ethics.html
 
 **Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
 `Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race. The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles.`\
