@@ -1,3 +1,11 @@
+**Supreme Court Clears the Way for Republican-Friendly Map in Alabama**\
+`In the first major case since the justices narrowed the Voting Rights Act, the court cleared the way for Alabama to use a map preferred by Republicans that eliminates a majority-Black district.`\
+https://www.nytimes.com/2026/06/02/us/politics/supreme-court-alabama-congressional-map.html
+
+**‘Jerome’ Review: Darkness Swallows a Three-Way Romance**\
+`John J. Caswell’s triangular romance set in the early 1990s speaks to us from the smoking psychic caldera left by AIDS.`\
+https://www.nytimes.com/2026/06/02/theater/jerome-review.html
+
 **Ashley Hinson Wins the Republican Senate Primary in Iowa**\
 `Representative Hinson, a third-term lawmaker, was the favorite of Republican leaders and donors. The general election is expected to be unusually competitive.`\
 https://www.nytimes.com/2026/06/02/us/politics/iowa-republican-senate-primary-hinson-carlin.html

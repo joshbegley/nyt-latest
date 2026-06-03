@@ -1,3 +1,11 @@
+**Supreme Court Clears the Way for Republican-Friendly Map in Alabama**\
+`In the first major case since the justices narrowed the Voting Rights Act, the court cleared the way for Alabama to use a map preferred by Republicans that eliminates a majority-Black district.`\
+https://www.nytimes.com/2026/06/02/us/politics/supreme-court-alabama-congressional-map.html
+
+**‘Jerome’ Review: Darkness Swallows a Three-Way Romance**\
+`John J. Caswell’s triangular romance set in the early 1990s speaks to us from the smoking psychic caldera left by AIDS.`\
+https://www.nytimes.com/2026/06/02/theater/jerome-review.html
+
 **Ashley Hinson Wins the Republican Senate Primary in Iowa**\
 `Representative Hinson, a third-term lawmaker, was the favorite of Republican leaders and donors. The general election is expected to be unusually competitive.`\
 https://www.nytimes.com/2026/06/02/us/politics/iowa-republican-senate-primary-hinson-carlin.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/02/us/rick-chow-not-guilty-murder-south-carolina
 **South Dakota Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 South Dakota primary elections.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-south-dakota-primary.html
-
-**New Mexico Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 New Mexico primary elections.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-new-mexico-primary.html
-
-**Sheet-Pan Chicken With Potatoes, Arugula and Garlic Yogurt**\
-`Your typical sheet-pan chicken recipe roasts everything together on a pan at once. This version from Cooking’s Melissa Clark pairs potatoes with the poultry, and tops everything off with fresh herbs and arugula, making it a true one-pan meal, salad included.`\
-https://www.nytimes.com/video/dining/100000010940482/sheet-pan-chicken-with-potatoes-arugula-and-garlic-yogurt.html
 

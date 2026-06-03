@@ -1,3 +1,15 @@
+**Voters in Los Angeles Say They ‘Don’t Have a Lot of Good Choices’**\
+`Many said they were struggling to choose from candidates they saw as uninspiring in both the mayor’s and governor’s races.`\
+https://www.nytimes.com/2026/06/02/us/politics/voters-primary-election-los-angeles-choices.html
+
+**Adam Hamawy, a Progressive Democrat, Wins House Primary in New Jersey**\
+`Dr. Hamawy, a U.S. Army veteran, faced questions about his past association with an Egyptian cleric who was convicted in 1995 of a conspiracy to wage “a war of urban terrorism.”`\
+https://www.nytimes.com/2026/06/02/nyregion/new-jersey-house-primary-hamawy.html
+
+**Deb Haaland wins nomination in New Mexico governor’s race**\
+`Ms. Haaland, a former Interior secretary, took a big step toward making history as the first Native American woman to be a governor when she won the primary in her Democratic state.`\
+https://www.nytimes.com/2026/06/02/us/elections/new-mexico-democrat-governor-haaland.html
+
 **Supreme Court Clears the Way for Republican-Friendly Map in Alabama**\
 `In the first major case since the justices narrowed the Voting Rights Act, the court cleared the way for Alabama to use a map preferred by Republicans that eliminates a majority-Black district.`\
 https://www.nytimes.com/2026/06/02/us/politics/supreme-court-alabama-congressional-map.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/video/world/europe/100000010940326/albanians-protest-lux
 **Order Shielding Trump Family From I.R.S. Audits Will Remain, Blanche Says**\
 `The acting attorney general said the administration was preserving a broad order protecting the president and his family from audits of already filed returns, despite dropping a $1.8 billion payout fund.`\
 https://www.nytimes.com/2026/06/02/us/politics/trump-irs-settlement.html
-
-**Trump’s $1.8 Billion Fund Is ‘Not Moving Forward’**\
-`Also, California votes on its next governor. Here’s the latest at the end of Tuesday.`\
-https://www.nytimes.com/2026/06/02/briefing/trump-fund-primary-elections.html
-
-**Rick Chow, South Carolina Store Owner, Found Not Guilty of Murder in Death of Cyrus Carmack-Belton**\
-`The shooting drew national attention and roiled the community in South Carolina.`\
-https://www.nytimes.com/2026/06/02/us/rick-chow-not-guilty-murder-south-carolina.html
-
-**South Dakota Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 South Dakota primary elections.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-south-dakota-primary.html
 
