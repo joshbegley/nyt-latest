@@ -42,8 +42,8 @@ https://www.nytimes.com/2026/06/03/learning/word-of-the-day-recant.html
 `Her opponent remains undetermined.`\
 https://www.nytimes.com/2026/06/03/us/politics/karen-bass-la-mayor-race.html
 
-**Scott Wiener Advances in House Race to Succeed Nancy Pelosi**\
-`State Sen. Scott Wiener will be one of two candidates in the general election to represent San Francisco as Nancy Pelosi retires.`\
+**Wiener and Chan Will Face Off in House Race to Succeed Nancy Pelosi**\
+`State Sen. Scott Wiener and Supervisor Connie Chan were the top two finishers in the open primary to represent San Francisco as Nancy Pelosi retires.`\
 https://www.nytimes.com/2026/06/03/us/politics/scott-wiener-nancy-pelosi-house.html
 
 **I Went to Lebanon and Found Something Strangely Hopeful**\

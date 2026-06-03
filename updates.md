@@ -1,3 +1,7 @@
+**Wiener and Chan Will Face Off in House Race to Succeed Nancy Pelosi**\
+`State Sen. Scott Wiener and Supervisor Connie Chan were the top two finishers in the open primary to represent San Francisco as Nancy Pelosi retires.`\
+https://www.nytimes.com/2026/06/03/us/politics/scott-wiener-nancy-pelosi-house.html
+
 **Trump falló como comandante en jefe**\
 `En tiempos de guerra, los líderes deben unir al país. Trump, en cambio, se ha dedicado a buscar el beneficio personal.`\
 https://www.nytimes.com/es/2026/06/03/espanol/opinion/donald-trump-gestion.html
