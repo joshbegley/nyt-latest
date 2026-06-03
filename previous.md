@@ -1,3 +1,19 @@
+**Blanche dice que el Departamento de Justicia no procederá con el fondo de 1800 millones de dólares de Trump**\
+`El fiscal general en funciones de EE. UU. dijo a los legisladores que dejaría en vigor una orden que obligaba al IRS a abandonar las investigaciones sobre el presidente Trump, su familia y sus empresas.`\
+https://www.nytimes.com/es/2026/06/02/espanol/estados-unidos/blanche-fondo-trump.html
+
+**Steve Hilton: 5 Facts About the Candidate for California Governor**\
+`Mr. Hilton was the right-hand man of Prime Minister David Cameron in Britain and a Fox News host before he ran for California governor.`\
+https://www.nytimes.com/2026/06/02/us/politics/steve-hilton-california-governor.html
+
+**Josh Turek and Zachary Wahls Make Final Pitches in Senate Primary**\
+`Josh Turek and Zach Wahls, the Democratic candidates for U.S. Senate, made their final pitches as voters took to the polls on Tuesday.`\
+https://www.nytimes.com/2026/06/02/us/politics/in-iowa-a-long-senate-primary-draws-to-a-close.html
+
+**War Games and Warnings on Strait of Hormuz Went Unheeded by Trump**\
+`Over the past two decades, Iran repeatedly threatened to close down the waterway. President Trump underestimated Iran’s ability to do so.`\
+https://www.nytimes.com/2026/06/02/us/politics/trump-iran-strait-of-hormuz.html
+
 **Graham Platner Meets With Senate Democrats Amid Texting Scandal**\
 `Mr. Platner, the likely Democratic nominee for Senate in Maine, met in Washington with several senators. Chuck Schumer, the minority leader, dodged questions about his confidence in Mr. Platner.`\
 https://www.nytimes.com/2026/06/02/us/politics/platner-senate-democrats-washington-meeting.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-california-us-hous
 **California 39th Congressional District Primary 2026: Live Election Results, Takano vs. Manos**\
 `Get live results and maps from the 2026 California primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-39-primary.html
-
-**California Sixth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 California primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-6-primary.html
-
-**California 40th Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 California primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-40-primary.html
-
-**California 47th Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 California primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-47-primary.html
-
-**California Seventh Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 California primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-7-primary.html
 
