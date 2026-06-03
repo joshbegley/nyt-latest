@@ -1,3 +1,7 @@
+**New York City Subway Entrance Becomes Knicks Fan Landmark**\
+`The M.T.A. painted a subway station orange and blue for the New York Knicks’ first N.B.A. Final appearance in 27 years. Fans of the basketball team posed by the entrance, which is located outside Madison Square Garden.`\
+https://www.nytimes.com/video/us/100000010943054/knicks-nba-finals-subway.html
+
 **New Intelligence Chief’s Expertise: Pursuing Trump’s Enemies**\
 `Tulsi Gabbard’s replacement as the director of national intelligence has no known national security experience.`\
 https://www.nytimes.com/2026/06/03/us/bill-pulte-new-intelligence-chief.html
@@ -122,8 +126,8 @@ https://www.nytimes.com/es/2026/06/03/espanol/mundo/iran-ataques-kuwait-barein-e
 `The man, Alexander Stepnowsky, was arrested on Tuesday on the Lower East Side, almost a month after the episode. An N.Y.U. official said he was a student at the time of the event.`\
 https://www.nytimes.com/2026/06/03/nyregion/nyu-student-star-of-david.html
 
-**Deadly Iranian Attack Fills Kuwait Airport With Smoke and Flames**\
-`At least one person was killed and dozens were injured in an Iranian drone attack on Kuwait’s international airport on Wednesday.`\
+**Deadly Attack Fills Kuwait Airport With Smoke and Flames**\
+`At least one person was killed and dozens were injured in a drone attack on Kuwait’s international airport on Wednesday.`\
 https://www.nytimes.com/video/world/middleeast/100000010942279/iran-attack-kuwait-airport.html
 
 **John McClain, Who Helped Keep Michael Jackson’s Profits Flowing, Dies at 72**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/03/business/economy/trump-tariffs-refunds-court-
 **Elecciones en Colombia: Trump respalda a De la Espriella**\
 `Trump dijo que el candidato, Abelardo de la Espriella, era importante para la relación entre EE. UU. y Colombia y calificó a su rival de izquierda de “marxista de izquierda radical”.`\
 https://www.nytimes.com/es/2026/06/03/espanol/america-latina/trump-colombia-de-la-espriella.html
-
-**Today, In Short**\
-`Nick Jonas. Pattie Gonia. And the latest from the primaries.`\
-https://www.nytimes.com/2026/06/03/briefing/today-in-short.html
 
 **Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
 `Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race. The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles.`\
