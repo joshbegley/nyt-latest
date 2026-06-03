@@ -1,8 +1,12 @@
+**Trump ignoró los simulacros bélicos sobre el estrecho de Ormuz**\
+`Durante las dos últimas décadas, Irán amenazó repetidamente con cerrar la vía marítima. Trump subestimó la capacidad de Irán para hacerlo.`\
+https://www.nytimes.com/es/2026/06/03/espanol/mundo/trump-iran-estrecho-ormuz.html
+
 **California Governor’s Race Remains Too Close to Call**\
 `Steve Hilton, a Republican, and Xavier Becerra, a Democrat, were leading in election night returns. Tom Steyer, another Democrat, urged patience as more votes were being counted.`\
 https://www.nytimes.com/2026/06/03/us/politics/california-governor-race-hilton-becerra-steyer.html
 
-**Democratic Voters Acted Strategically in a Turbulent California Election**\
+**5 Takeaways From the California Primary Election**\
 `Without a dominant candidate in the governor’s race, Democratic voters ultimately wanted to ensure that their party wasn’t shut out of the general election.`\
 https://www.nytimes.com/2026/06/02/us/politics/california-primary-elections-early-takeaways.html
 
@@ -190,11 +194,7 @@ https://www.nytimes.com/2026/06/02/theater/jerome-review.html
 `Representative Hinson, a third-term lawmaker, was the favorite of Republican leaders and donors. The general election is expected to be unusually competitive.`\
 https://www.nytimes.com/2026/06/02/us/politics/iowa-republican-senate-primary-hinson-carlin.html
 
-**Karen Bass: 5 Facts About the Incumbent Los Angeles Mayor**\
-`The incumbent Los Angeles mayor started her term with strong approval ratings, but she lost support with voters after the fires last year that devastated the region.`\
-https://www.nytimes.com/2026/06/02/us/politics/karen-bass-la-mayor.html
-
-**California Election Live Updates: Spencer Pratt Runs Second in L.A. Mayor’s Race**\
+**California Election: Spencer Pratt Runs Second in L.A. Mayor’s Race**\
 `Mr. Pratt, a Republican reality TV star who lost his home in last year’s fires, could face Mayor Karen Bass in a runoff. The Trump-endorsed Steve Hilton and Xavier Becerra, the top polling Democrat, led early results for governor.`\
 https://www.nytimes.com/live/2026/06/02/us/california-election-primary-governor
 
