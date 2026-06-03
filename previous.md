@@ -1,3 +1,11 @@
+**Map: 5.1-Magnitude Earthquake Strikes off the Coast of California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/03/us/quake-tracker-california-coast.html
+
+**A Death at the Epicenter of Ebola**\
+`Our chief Africa correspondent, Declan Walsh, reports from the epicenter of the Ebola outbreak on how families, medical workers and local volunteers are grappling with losses of life.`\
+https://www.nytimes.com/video/world/africa/100000010940945/a-death-at-the-epicenter-of-ebola.html
+
 **Incumbent Karen Bass Advances to L.A. Mayoral Runoff Election**\
 `Mayor Karen Bass of Los Angeles secured her spot in the mayoral election in November after falling short of an outright majority in the primary. Spencer Pratt, a onetime reality TV star, and Nithya Raman, a City Council member, were battling for second place.`\
 https://www.nytimes.com/video/us/politics/100000010941998/california-la-mayor-race-primary-election.html
@@ -6,8 +14,8 @@ https://www.nytimes.com/video/us/politics/100000010941998/california-la-mayor-ra
 `Corrections that appeared in print on Wednesday, June 3, 2026.`\
 https://www.nytimes.com/2026/06/03/pageoneplus/corrections-june-3-2026.html
 
-**‘Summer House’ and the Perils of Wanton Location Sharing**\
-`Stop letting your friends and lovers surveil you, and get off my lawn.`\
+**Stop Location-Tracking Your Friends and Lovers**\
+`Your friends don’t need to know where you are 24/7.`\
 https://www.nytimes.com/2026/06/03/opinion/location-sharing-surveillance-summer-house.html
 
 **A Neighbor Child Visits Us With Empty Pockets and His Hand Out. Help!**\
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/03/arts/music/charlie-parker-jazz-music.html
 **Carley Fortune Keeps Writing Hit Romance Novels**\
 `Carley Fortune left a hard-won journalism job to give fiction a shot. Five best-sellers later, a series based on her debut is about to stream.`\
 https://www.nytimes.com/2026/06/03/books/review/carley-fortune-our-perfect-storm.html
-
-**WAGs Love Their Crocheted, Bedazzled N.B.A. Merch**\
-`Much of women’s sports apparel is just modified from men’s items following a “pink it and shrink it” model. The Snyder sisters charted a more D.I.Y. course.`\
-https://www.nytimes.com/2026/06/03/style/dannijo-nba-wags-jerseys.html
-
-**Making Scottish Ballet’s ‘Mary, Queen of Scots’ Legible to Americans**\
-`Scottish Ballet realized it needed to make its nation’s history a bit more explicit to take its “Mary, Queen of Scots” on the road. It comes to Lincoln Center this week.`\
-https://www.nytimes.com/2026/06/03/arts/dance/scottish-ballet-mary-queen-of-scots.html
 
 **Iran War Live Updates: Drone Barrage at Kuwait Airport Kills One and Injures Dozens**\
 `Video footage verified by The New York Times showed fire inside Kuwait’s international airport. The attack was part of one of the biggest assaults on a Gulf nation since the U.S.-Iran cease-fire was announced in April.`\

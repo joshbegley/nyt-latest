@@ -1,3 +1,15 @@
+**Map: 5.1-Magnitude Earthquake Strikes off the Coast of California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/03/us/quake-tracker-california-coast.html
+
+**A Death at the Epicenter of Ebola**\
+`Our chief Africa correspondent, Declan Walsh, reports from the epicenter of the Ebola outbreak on how families, medical workers and local volunteers are grappling with losses of life.`\
+https://www.nytimes.com/video/world/africa/100000010940945/a-death-at-the-epicenter-of-ebola.html
+
+**Stop Location-Tracking Your Friends and Lovers**\
+`Your friends don’t need to know where you are 24/7.`\
+https://www.nytimes.com/2026/06/03/opinion/location-sharing-surveillance-summer-house.html
+
 **Incumbent Karen Bass Advances to L.A. Mayoral Runoff Election**\
 `Mayor Karen Bass of Los Angeles secured her spot in the mayoral election in November after falling short of an outright majority in the primary. Spencer Pratt, a onetime reality TV star, and Nithya Raman, a City Council member, were battling for second place.`\
 https://www.nytimes.com/video/us/politics/100000010941998/california-la-mayor-race-primary-election.html
