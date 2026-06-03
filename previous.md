@@ -1,3 +1,15 @@
+**I Went to Lebanon and Found Something Strangely Hopeful**\
+`If given the chance, the country could remake itself on its own terms.`\
+https://www.nytimes.com/2026/06/03/opinion/lebanon-israel-iran-war.html
+
+**¿Es malo dormir con mi mascota?**\
+`Parece que todo el mundo tiene una opinión, así que les planteamos la pregunta a los expertos.`\
+https://www.nytimes.com/es/2026/06/03/espanol/problemas-salud-dormir-perro-gato.html
+
+**A Trump Endorsement Falls Flat: 4 Election Takeaways From Iowa and Beyond**\
+`The president’s pick for governor of Iowa lost his primary, while Democrats in the state chose their nominee in what they hope will be a competitive Senate race.`\
+https://www.nytimes.com/2026/06/03/us/politics/iowa-new-jersey-montana-primary-takeaways.html
+
 **Zach Lahn Wins Republican Primary for Iowa Governor**\
 `Zach Lahn’s victory was a rare case this year in which a candidate defeated an opponent backed by President Trump.`\
 https://www.nytimes.com/2026/06/03/us/iowa-governor-republican-primary-lahn-feenstra.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/2026/06/02/us/politics/platner-senate-democrats-washingt
 **Pushing Treatment, Trump Administration Limits Housing Aid for Homeless**\
 `Congress and a court blocked a previous effort to revamp homeless programs. Even a scaled-back version marks the sharpest change in homelessness policy in a generation.`\
 https://www.nytimes.com/2026/06/02/us/politics/housing-first-homeless-hud.html
-
-**Trump Administration Backs Down on $1.8 Billion Fund**\
-`The acting attorney general Todd Blanche said on Tuesday that the Justice Department would withdraw its proposal for a $1.8 billion compensation fund.`\
-https://www.nytimes.com/video/us/politics/100000010941030/blanche-trump-administration-compensation-fund.html
-
-**When to Expect Results in the June 2 Primaries**\
-`Voters in six states have primaries today. Election officials predict that results will come in late Tuesday or early Wednesday.`\
-https://www.nytimes.com/2026/06/02/us/politics/results-timing-iowa-montana-new-mexico.html
-
-**California House Primaries Offer Clues in Battle for Control of Congress**\
-`Proposition 50 has created a handful of key races where Democrats will choose candidates to pit against vulnerable Republican incumbents. Generational challenges have infused other contests.`\
-https://www.nytimes.com/2026/06/02/us/politics/california-house-election-primary.html
 
 **California Election Live Updates: Early Results Show Tight Races for Governor and L.A. Mayor**\
 `The nonpartisan primaries will determine which candidates make the fall ballot, though quick results are unlikely.`\

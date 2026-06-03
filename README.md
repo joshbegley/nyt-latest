@@ -8,7 +8,7 @@ https://www.nytimes.com/es/2026/06/03/espanol/problemas-salud-dormir-perro-gato.
 
 **A Trump Endorsement Falls Flat: 4 Election Takeaways From Iowa and Beyond**\
 `The president’s pick for governor of Iowa lost his primary, while Democrats in the state chose their nominee in what they hope will be a competitive Senate race.`\
-https://www.nytimes.com/2026/06/03/us/politics/iowa-new-jersey-montana-primary-takeaways.html
+https://www.nytimes.com/2026/06/03/us/politics/iowa-new-jersey-primary-takeaways.html
 
 **Zach Lahn Wins Republican Primary for Iowa Governor**\
 `Zach Lahn’s victory was a rare case this year in which a candidate defeated an opponent backed by President Trump.`\

@@ -1,3 +1,15 @@
+**I Went to Lebanon and Found Something Strangely Hopeful**\
+`If given the chance, the country could remake itself on its own terms.`\
+https://www.nytimes.com/2026/06/03/opinion/lebanon-israel-iran-war.html
+
+**¿Es malo dormir con mi mascota?**\
+`Parece que todo el mundo tiene una opinión, así que les planteamos la pregunta a los expertos.`\
+https://www.nytimes.com/es/2026/06/03/espanol/problemas-salud-dormir-perro-gato.html
+
+**A Trump Endorsement Falls Flat: 4 Election Takeaways From Iowa and Beyond**\
+`The president’s pick for governor of Iowa lost his primary, while Democrats in the state chose their nominee in what they hope will be a competitive Senate race.`\
+https://www.nytimes.com/2026/06/03/us/politics/iowa-new-jersey-montana-primary-takeaways.html
+
 **Zach Lahn Wins Republican Primary for Iowa Governor**\
 `Zach Lahn’s victory was a rare case this year in which a candidate defeated an opponent backed by President Trump.`\
 https://www.nytimes.com/2026/06/03/us/iowa-governor-republican-primary-lahn-feenstra.html
