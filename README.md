@@ -1,3 +1,7 @@
+**Former Smoke Jumper Wins Democratic House Primary in Montana**\
+`Sam Forstag’s candidacy will test a liberal theory that left-leaning politicians running in Republican strongholds can do better in general elections than moderates have done historically.`\
+https://www.nytimes.com/2026/06/03/us/politics/montana-democratic-house-busse-forstag-rains.html
+
 **Contentious Times at the Supreme Court**\
 `Readers discuss judicial power and possible term limits. Also: Climate corruption; anxiety in children.`\
 https://www.nytimes.com/2026/06/03/opinion/supreme-court.html
@@ -6,8 +10,8 @@ https://www.nytimes.com/2026/06/03/opinion/supreme-court.html
 `Why the U.S. lags behind on public transit`\
 https://www.nytimes.com/2026/06/03/headway/public-transit-subways-construction-united-states.html
 
-**See the Clashes Between ICE and Protesters at Delaney Hall**\
-`The demonstrations have at times turned violent, with federal and state authorities deploying tear gas and wielding batons as protesters resisted calls to disperse.`\
+**See the Clashes Between ICE and Protesters in New Jersey**\
+`Demonstrations outside the Delaney Hall immigrant detention center have at times turned violent, with the authorities deploying tear gas and wielding batons as protesters resisted calls to disperse.`\
 https://www.nytimes.com/2026/06/03/nyregion/delaney-hall-protests-photos.html
 
 **Trump Administration Turns to a New Rationale to Justify Old Tariffs**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/03/business/dealbook/trump-ai-pivot.html
 **Artists Threaten to Sue Venice Biennale for Including Them in Awards**\
 `The artists want their names removed from a public vote to decide the best artist and pavilion, awards that are usually decided by a jury of experts.`\
 https://www.nytimes.com/2026/06/03/arts/design/venice-biennale-public-vote.html
-
-**Spencer Pratt Suggests He Can Be a Mayor for all L.A. Residents, as Vote Counting Continues**\
-`The former reality TV star has tried to broaden his platform, talking about Los Angeles’s homelessness and drugs problem.`\
-https://www.nytimes.com/2026/06/03/us/politics/spencer-pratt-la-mayor-election.html
 
 **Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
 `Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race. The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles.`\
