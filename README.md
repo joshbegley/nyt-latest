@@ -1,3 +1,7 @@
+**Fire at a New Delhi Hotel Kills at Least 21**\
+`The blaze, in a residential area of the Indian capital, injured dozens more, the authorities said.`\
+https://www.nytimes.com/2026/06/03/world/asia/fire-hotel-new-delhi-india.html
+
 **Ukraine Strikes St. Petersburg on First Day of a Marquee Putin Event**\
 `As an annual economic conference was set to begin, President Volodymyr Zelensky said Ukraine had targeted a navy base and an oil terminal in the region that includes Russia’s second-largest city.`\
 https://www.nytimes.com/2026/06/03/world/europe/ukraine-russia-attack-st-petersburg-putin.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/06/03/espanol/opinion/marco-rubio-trump-estados-
 **George Conway Won Fame as a Never-Trumper. Will New York Voters Buy It?**\
 `Mr. Conway has centered his House campaign on his well-publicized fight against President Trump, arguing that no issue is more important to the nation.`\
 https://www.nytimes.com/2026/06/03/nyregion/george-conway-trump-congress.html
-
-**This Rugged New York Heron Is Suddenly Facing Extinction. Why?**\
-`Black-crowned night herons could go the way of the passenger pigeon, vanishing from the city. Why remains a mystery.`\
-https://www.nytimes.com/2026/06/03/nyregion/black-crowned-night-heron-nyc.html
 

@@ -1,3 +1,11 @@
+**Ukraine Strikes St. Petersburg on First Day of a Marquee Putin Event**\
+`As an annual economic conference was set to begin, President Volodymyr Zelensky said Ukraine had targeted a navy base and an oil terminal in the region that includes Russia’s second-largest city.`\
+https://www.nytimes.com/2026/06/03/world/europe/ukraine-russia-attack-st-petersburg-putin.html
+
+**2 Hostages Released From Bomb Threat at Chase Bank in Bakersfield, California**\
+`The police were negotiating with a man inside a Chase Bank branch in Bakersfield, Calif. Two hostages were let go and an unknown number were still being held.`\
+https://www.nytimes.com/2026/06/03/us/bakersfield-chase-bank-bomb-hostage-situation.html
+
 **Where Is Iran’s Highly Enriched Uranium?**\
 `The fate of Iran’s stockpile is among the biggest uncertainties surrounding a potential peace deal between the United States and Iran.`\
 https://www.nytimes.com/interactive/2026/06/03/world/middleeast/iran-nuclear-uranium.html
