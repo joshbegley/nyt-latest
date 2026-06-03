@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/06/03/theater/kenrex-play-murder-ken-mcelroy.html
 `The form known as ekphrasis — or poetry about art — has taken a turn toward the individual. Our columnist asks what it means.`\
 https://www.nytimes.com/2026/06/03/books/review/on-poetry-art-ekphrasis.html
 
-**Book Review: ‘The Wreck of the Mentor,’ by Eric Jay Dolin**\
-`In “The Wreck of the Mentor,” the maritime historian Eric Jay Dolin brings to life a dramatic episode from the golden age of whaling.`\
-https://www.nytimes.com/2026/06/03/books/review/eric-jay-dolin-wreck-of-the-mentor.html
+**Iran War Live Updates: Kuwait Says One Killed and Dozens Injured in Iranian Attack on Airport**\
+`The United States and Iran accused each other of launching new strikes. President Trump told The New York Post that Iran’s supreme leader is involved in peace talks, and he hopes to meet him.`\
+https://www.nytimes.com/live/2026/06/03/world/iran-war-trump-israel-lebanon
 

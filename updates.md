@@ -1,3 +1,7 @@
+**Iran War Live Updates: Kuwait Says One Killed and Dozens Injured in Iranian Attack on Airport**\
+`The United States and Iran accused each other of launching new strikes. President Trump told The New York Post that Iran’s supreme leader is involved in peace talks, and he hopes to meet him.`\
+https://www.nytimes.com/live/2026/06/03/world/iran-war-trump-israel-lebanon
+
 **‘Summer House’ and the Perils of Wanton Location Sharing**\
 `Stop letting your friends and lovers surveil you, and get off my lawn.`\
 https://www.nytimes.com/2026/06/03/opinion/location-sharing-surveillance-summer-house.html
