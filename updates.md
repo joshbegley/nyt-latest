@@ -1,3 +1,7 @@
+**Musk and Trump Slashed Aid. Now We Lack Tools to Tackle Ebola.**\
+`The fecklessness of Washington leaders contrasts with the courage of doctors, nurses and aid workers in places like Congo.`\
+https://www.nytimes.com/2026/06/03/opinion/ebola-disease-trump-musk-usaid.html
+
 **New York City Subway Entrance Becomes Knicks Fan Landmark**\
 `The M.T.A. painted a subway station orange and blue for the New York Knicks’ first N.B.A. Final appearance in 27 years. Fans of the basketball team posed by the entrance, which is located outside Madison Square Garden.`\
 https://www.nytimes.com/video/us/100000010943054/knicks-nba-finals-subway.html
