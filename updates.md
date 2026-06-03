@@ -1,3 +1,7 @@
+**Josh Turek and Zach Wahls Make Final Pitches in Senate Primary**\
+`Josh Turek and Zach Wahls, the Democratic candidates for U.S. Senate, made their final pitches as voters took to the polls on Tuesday.`\
+https://www.nytimes.com/2026/06/02/us/politics/in-iowa-a-long-senate-primary-draws-to-a-close.html
+
 **Blanche dice que el Departamento de Justicia no procederá con el fondo de 1800 millones de dólares de Trump**\
 `El fiscal general en funciones de EE. UU. dijo a los legisladores que dejaría en vigor una orden que obligaba al IRS a abandonar las investigaciones sobre el presidente Trump, su familia y sus empresas.`\
 https://www.nytimes.com/es/2026/06/02/espanol/estados-unidos/blanche-fondo-trump.html
