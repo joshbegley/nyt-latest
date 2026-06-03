@@ -1,3 +1,11 @@
+**9 Counties to Watch in the California Governor’s Race**\
+`The race might not be called on election night, but these counties could provide signals for what lies ahead.`\
+https://www.nytimes.com/2026/06/02/us/elections/california-governor-primary-counties-to-watch.html
+
+**Read Nick Bilton’s Letter to Scott Pelley**\
+`“Your antipathy to the future of the show has come through loud and clear,” Mr. Bilton said to the longtime CBS correspondent.`\
+https://www.nytimes.com/interactive/2026/06/02/business/media/02biz-bilton-letter-doc.html
+
 **Radio Host With Trump’s Support Wins Republican House Primary in Montana**\
 `Aaron Flint defeated three other Republicans, including Christi Jacobsen, the Montana secretary of state.`\
 https://www.nytimes.com/2026/06/02/us/politics/montana-republican-house-primary-flint-jacobsen.html

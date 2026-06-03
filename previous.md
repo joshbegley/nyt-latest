@@ -1,3 +1,11 @@
+**9 Counties to Watch in the California Governor’s Race**\
+`The race might not be called on election night, but these counties could provide signals for what lies ahead.`\
+https://www.nytimes.com/2026/06/02/us/elections/california-governor-primary-counties-to-watch.html
+
+**Read Nick Bilton’s Letter to Scott Pelley**\
+`“Your antipathy to the future of the show has come through loud and clear,” Mr. Bilton said to the longtime CBS correspondent.`\
+https://www.nytimes.com/interactive/2026/06/02/business/media/02biz-bilton-letter-doc.html
+
 **Radio Host With Trump’s Support Wins Republican House Primary in Montana**\
 `Aaron Flint defeated three other Republicans, including Christi Jacobsen, the Montana secretary of state.`\
 https://www.nytimes.com/2026/06/02/us/politics/montana-republican-house-primary-flint-jacobsen.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/opinion/100000010932839/the-gating-of-the-american
 **Peabo Bryson, Soul Singer Known as the Voice of Love, Dies at 75**\
 `He was admired for impassioned duets with singers like Roberta Flack and Celine Dion and for the Disney hits “Beauty and the Beast” and “A Whole New World.”`\
 https://www.nytimes.com/2026/06/02/arts/music/peabo-bryson-dead.html
-
-**Colorado Enacts Law Tightening Scrutiny of Uber and Lyft**\
-`The law cites a New York Times investigation that found Uber received reports of sexual assault or sexual misconduct far more often than the company had publicly disclosed.`\
-https://www.nytimes.com/2026/06/02/business/colorado-uber-lyft-law.html
-
-**Bruce Crandall, Part of a Heroic Rescue Mission in Vietnam, Dies at 93**\
-`“Fourteen times he flew into what they called the valley of death,” President George W. Bush said in awarding him the Medal of Honor in 2007.`\
-https://www.nytimes.com/2026/06/02/us/bruce-crandall-dead.html
 

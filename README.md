@@ -1,3 +1,11 @@
+**In California Election Results, Beware the Red or Blue ‘Mirage’**\
+`Exactly when and how votes are counted in California can give misleading indications that a candidate is ahead.`\
+https://www.nytimes.com/2026/06/02/us/politics/california-election-results-red-or-blue-mirage.html
+
+**Trump Endorses Abelardo De La Espriella, Right-Wing Presidential Candidate in Colombia**\
+`Mr. Trump said that the candidate, Abelardo De La Espriella, was important for the U.S.-Colombia relationship and called his left-wing rival a “Radical Left Marxist.”`\
+https://www.nytimes.com/2026/06/02/world/americas/trump-endorses-colombia-de-la-espriella.html
+
 **9 Counties to Watch in the California Governor’s Race**\
 `The race might not be called on election night, but these counties could provide signals for what lies ahead.`\
 https://www.nytimes.com/2026/06/02/us/elections/california-governor-primary-counties-to-watch.html
@@ -35,7 +43,7 @@ https://www.nytimes.com/2026/06/02/crosswords/daily-puzzle-2026-06-03.html
 https://www.nytimes.com/2026/06/02/us/politics/nithya-raman-la-mayor.html
 
 **CBS News Fires Scott Pelley of ‘60 Minutes’**\
-`Mr. Pelley, a longtime correspondent and former “CBS Evening News” anchor, harshly criticized the show’s leadership during a staff meeting on Monday.`\
+`Mr. Pelley, a former “CBS Evening News” anchor, was ousted after months of tensions between staff and Bari Weiss, the network’s editor in chief.`\
 https://www.nytimes.com/2026/06/02/business/media/scott-pelley-cbs-bari-weiss.html
 
 **Top Texas Election Official to Resign, Months Before General Contest**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/02/us/politics/xavier-becerra-california-governo
 **China Is ‘a Loss’**\
 `Trump’s China policy has “completely failed,” the political scientist Ian Bremmer argues on “The Ezra Klein Show,” and explains why America’s petrostate status isn’t enough to ensure its global dominance.`\
 https://www.nytimes.com/video/opinion/100000010932841/china-is-a-loss.html
-
-**The Gating of the American Dream**\
-`Social mobility in America is fundamentally broken, not because we have hollowed out the middle class but because we’ve hollowed out places, argues the political scientist Ian Bremmer on “The Ezra Klein Show.”`\
-https://www.nytimes.com/video/opinion/100000010932839/the-gating-of-the-american-dream.html
-
-**Peabo Bryson, Soul Singer Known as the Voice of Love, Dies at 75**\
-`He was admired for impassioned duets with singers like Roberta Flack and Celine Dion and for the Disney hits “Beauty and the Beast” and “A Whole New World.”`\
-https://www.nytimes.com/2026/06/02/arts/music/peabo-bryson-dead.html
 
