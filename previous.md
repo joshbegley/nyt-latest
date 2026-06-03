@@ -1,3 +1,7 @@
+**Africans Exploring Africa**\
+`A growing middle class is increasingly mobile — and changing African ideas about leisure, travel and even the continent itself.`\
+https://www.nytimes.com/2026/06/03/world/africa-travel-iran-kuwait.html
+
 **Park Service Awards No-Bid Contract to Cover Bridge Statues in Gold**\
 `Originally estimated to cost $2.4 million, the government will now spend $5 million to restore the bronzes in time for Independence Day.`\
 https://www.nytimes.com/2026/06/03/us/politics/park-service-bridge-statues-gold.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/interactive/2026/06/03/weather/tropical-storm-amanda-map
 **Tiny Love Stories: ‘As He Dressed, I Slipped Into His Closet’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/06/03/style/tiny-modern-love-stories-as-he-dressed-i-slipped-into-his-closet.html
-
-**Caissie Levy, Tony Awards Contender and ‘Ragtime’ Star, Is Having a Moment**\
-`Caissie Levy was Broadway’s first Elsa. She starred in “Hair” and “Ghost.” And now, for “Ragtime,” she is an odds-on favorite to win a Tony Award.`\
-https://www.nytimes.com/2026/06/03/theater/caissie-levy-broadway-tonys-ragtime.html
 
 **Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
 `Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race. The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles.`\

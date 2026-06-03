@@ -1,3 +1,7 @@
+**Africans Exploring Africa**\
+`A growing middle class is increasingly mobile — and changing African ideas about leisure, travel and even the continent itself.`\
+https://www.nytimes.com/2026/06/03/world/africa-travel-iran-kuwait.html
+
 **Park Service Awards No-Bid Contract to Cover Bridge Statues in Gold**\
 `Originally estimated to cost $2.4 million, the government will now spend $5 million to restore the bronzes in time for Independence Day.`\
 https://www.nytimes.com/2026/06/03/us/politics/park-service-bridge-statues-gold.html
