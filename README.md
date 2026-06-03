@@ -1,3 +1,11 @@
+**‘Summer House’ and the Perils of Wanton Location Sharing**\
+`Stop letting your friends and lovers surveil you, and get off my lawn.`\
+https://www.nytimes.com/2026/06/03/opinion/location-sharing-surveillance-summer-house.html
+
+**A Neighbor Child Visits Us With Empty Pockets and His Hand Out. Help!**\
+`An older couple is happy to host a teenage neighbor at their lake house, but they have begun to resent his easy acceptance of gifts and presumptuous restaurant orders.`\
+https://www.nytimes.com/2026/06/03/style/child-guests-spending-money.html
+
 **Attacks on Kuwait and Bahrain Add Further Strain to U.S.-Iran Cease-Fire**\
 `One person was killed in an attack on the international airport in Kuwait, local authorities said, as Iran continues to target U.S. allies in the Persian Gulf.`\
 https://www.nytimes.com/2026/06/03/world/middleeast/iran-attacks-kuwait-bahrain-ceasefire.html
@@ -146,13 +154,13 @@ https://www.nytimes.com/2026/06/03/arts/music/nba-finals-music.html
 `Every day at 9 a.m., Ukrainians observe a minute of silence to honor people killed during the Russia-Ukraine war. Our reporter, Maria Varenikova, who has covered the hostilities since 2014, takes us to her hometown to experience this moment.`\
 https://www.nytimes.com/video/world/europe/100000010925753/ukraines-daily-moment-of-silence.html
 
-**America Broke Something When It Gave Trump a Second Chance**\
-`Lincoln would know how to deal with these Republicans.`\
-https://www.nytimes.com/2026/06/03/opinion/project-2025-2029-democrats.html
-
 **Book Review: ‘The Traveler,’ by Andrea Wulf**\
 `As presented in Andrea Wulf’s new biography, “The Traveler,” George Forster was an impressively curious, open-minded 17-year-old naturalist and polymath.`\
 https://www.nytimes.com/2026/06/03/books/review/the-traveler-andrea-wulf.html
+
+**America Broke Something When It Gave Trump a Second Chance**\
+`Lincoln would know how to deal with these Republicans.`\
+https://www.nytimes.com/2026/06/03/opinion/project-2025-2029-democrats.html
 
 **Charleston’s Charm Hides Bloody History of Revolutionary War in South Carolina**\
 `Some of the fiercest battles took place in South Carolina, but its part in the fight for independence is often overlooked. Our reporter found history, myths, beauty and contradiction across the Lowcountry landscapes.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/03/books/review/on-poetry-art-ekphrasis.html
 **Book Review: ‘The Wreck of the Mentor,’ by Eric Jay Dolin**\
 `In “The Wreck of the Mentor,” the maritime historian Eric Jay Dolin brings to life a dramatic episode from the golden age of whaling.`\
 https://www.nytimes.com/2026/06/03/books/review/eric-jay-dolin-wreck-of-the-mentor.html
-
-**How Cat Pierce Went From Indie Sleaze to Indie Earth Mother**\
-`As one half of the Pierces, Cat Pierce wrote infectious pop songs with her sister and played arenas with Coldplay. Now, she’s an emotional lifestyle guru.`\
-https://www.nytimes.com/2026/06/03/style/cat-pierce.html
-
-**The Best Audiobooks of 2026 (So Far)**\
-`The year is nearly halfway over. Here’s what we’ve been listening to.`\
-https://www.nytimes.com/2026/06/03/books/review/best-audiobooks-2026.html
 
