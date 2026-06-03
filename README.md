@@ -1,3 +1,11 @@
+**‘I Love It’: Trump Is Still in Favor of $1.8 Billion Payout Fund**\
+`Todd Blanche, the acting attorney general, said on Tuesday that the administration was “not moving forward with the fund, period,” after the plan drew bipartisan backlash.`\
+https://www.nytimes.com/2026/06/03/us/politics/trump-fund.html
+
+**Trump Agitates Brazil’s Politics, Again**\
+`President Trump appears ready to lend a hand to a new right-wing ally ahead of a crucial election this year that will be the biggest test for Latin America’s left.`\
+https://www.nytimes.com/2026/06/03/world/americas/trump-brazil-flavio-bolsonaro.html
+
 **House Advances New Sanctions on Russia and Aid to Ukraine**\
 `After G.O.P. leaders blocked additional aid to Ukraine, six Republicans and an Independent joined Democrats to force the measure to the floor against the wishes of the speaker.`\
 https://www.nytimes.com/2026/06/03/us/house-russia-ukraine-sanctions-aid.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/06/03/us/elections/iowa-turek-democrats-trump.html
 **My Family Member Is Being Pressured to Donate a Kidney. Should I Say Something?**\
 `The recipient would be his stepfather’s colleague, whom he barely knows.`\
 https://www.nytimes.com/2026/06/03/magazine/pressure-to-donate-a-kidney-ethics.html
-
-**Bravo’s ‘Summer House’ Is Turning Men Into Reality TV Fans**\
-`Bravo’s reality TV hit has cracked an elusive audience.`\
-https://www.nytimes.com/2026/06/03/style/summer-house-reunion-amanda-west-men.html
-
-**Tropical Storm Amanda Forms in the Eastern Pacific**\
-`See the likely path and wind arrival times for Amanda`\
-https://www.nytimes.com/interactive/2026/06/03/weather/tropical-storm-amanda-map-path-tracker.html
 
 **Election Live Updates: Races Are Close in California With Many Votes Still to Count**\
 `Xavier Becerra, a Democrat, and Steve Hilton, a Republican, were leading in the governor’s race. The reality TV star Spencer Pratt could secure a spot in a runoff with Mayor Karen Bass of Los Angeles.`\
