@@ -1,3 +1,11 @@
+**Nithya Raman: 5 Facts About the Candidate for Los Angeles Mayor**\
+`Ms. Raman, a progressive Democrat, surprised many allies when she entered the Los Angeles mayor’s race at the last minute.`\
+https://www.nytimes.com/2026/06/02/us/politics/nithya-raman-la-mayor.html
+
+**NYT Crossword Answers for June 3, 2026**\
+`Jiahe Men makes his New York Times debut.`\
+https://www.nytimes.com/2026/06/02/crosswords/daily-puzzle-2026-06-03.html
+
 **CBS News Fires Scott Pelley of ‘60 Minutes’**\
 `Mr. Pelley, a longtime correspondent and former “Evening News” anchor, harshly criticized the show’s leadership in an extraordinary exchange during a staff meeting on Monday.`\
 https://www.nytimes.com/2026/06/02/business/media/scott-pelley-cbs-bari-weiss.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-new-mexico-primary
 **New Jersey Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 New Jersey primary elections.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-new-jersey-primary.html
-
-**Why We Might Not Know California’s Election Results for Days**\
-`Polls will close at 8 p.m. local time, but California’s meticulous review process and heavy reliance on mail ballots mean races may not be called quickly.`\
-https://www.nytimes.com/2026/06/02/us/politics/california-election-delayed-results.html
-
-**Montana Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Montana primary elections.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-montana-primary.html
 
