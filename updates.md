@@ -1,3 +1,15 @@
+**Amid War, Iran’s Soccer Leader Works to Get His Team to the World Cup**\
+`Mehdi Taj said his federation has been dealing with FIFA, not the United States, in trying to obtain visas for Iran to play in the tournament that begins next week.`\
+https://www.nytimes.com/2026/06/04/world/middleeast/iran-soccer-world-cup-war.html
+
+**Quote of the Day: Warrior King Reconquers India as a Hindu Hero**\
+`Quotation of the Day for Thursday, June 4, 2024.`\
+https://www.nytimes.com/2026/06/04/pageoneplus/quote-of-the-day-warrior-king-reconquers-india-as-a-hindu-hero.html
+
+**Corrections: June 4, 2026**\
+`Corrections that appeared in print on Thursday, June 4, 2026.`\
+https://www.nytimes.com/2026/06/04/pageoneplus/corrections-june-4-2026.html
+
 **Sherrill Says Immigration Officials Won’t Let Her Visit Detention Center**\
 `The governor said the Department of Homeland Security’s actions at Delaney Hall raise “serious questions.”`\
 https://www.nytimes.com/2026/06/03/nyregion/nj-governor-sherrill-delaney-hall.html
