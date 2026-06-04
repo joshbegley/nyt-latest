@@ -118,7 +118,7 @@ https://www.nytimes.com/2026/06/04/crosswords/wordle-review-1812.html
 `Her popular graphic novel series, published in the early 2000s, followed an Iranian girl through the Islamic Revolution and the Iran-Iraq War.`\
 https://www.nytimes.com/2026/06/04/world/middleeast/marjane-satrapi-dead.html
 
-**Iran War Live Updates: Israel Trades Strikes With Hezbollah After New Cease-Fire With Lebanon**\
+**Iran War Live Updates: Israel Trades Strikes With Hezbollah, Leaving New Cease-Fire With Lebanon in Doubt**\
 `Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, had rejected the deal.`\
 https://www.nytimes.com/live/2026/06/04/world/iran-war-trump-israel-lebanon
 

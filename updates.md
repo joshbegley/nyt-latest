@@ -1,3 +1,7 @@
+**Iran War Live Updates: Israel Trades Strikes With Hezbollah, Leaving New Cease-Fire With Lebanon in Doubt**\
+`Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, had rejected the deal.`\
+https://www.nytimes.com/live/2026/06/04/world/iran-war-trump-israel-lebanon
+
 **Early Research Suggests a Path to Predict and Prevent Lung Cancer**\
 `Scientists have identified proteins that could signal increased lung cancer risk, as well as a drug that could reduce the odds of a tumor developing.`\
 https://www.nytimes.com/2026/06/04/well/lung-cancer-prevention.html
