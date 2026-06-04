@@ -1,3 +1,11 @@
+**California Wildfires Outlook: Forecasters Say El Niño Makes Outlook Less Certain**\
+`After late-spring rain, and with an El Niño brewing, experts say the outlook for the summer is especially complicated.`\
+https://www.nytimes.com/2026/06/04/weather/california-fire-forecast.html
+
+**Los republicanos empiezan a poner a prueba los límites del poder de Trump**\
+`El estilo de gobierno unilateral y vengativo del presidente de Estados Unidos comienza a chocar contra un muro en ambas cámaras del Congreso.`\
+https://www.nytimes.com/es/2026/06/04/espanol/estados-unidos/trump-republicanos-represalias-limites.html
+
 **Tracking the Rising Death Toll From U.S. Boat Strikes**\
 `The New York Times has been investigating the number of boat strikes and the death toll in the Caribbean and Eastern Pacific carried out by the Trump administration. Eric Schmitt, a national security correspondent for The Times, explains what those numbers mean.`\
 https://www.nytimes.com/video/world/americas/100000010937966/why-we-track-number-american-strikes-boats.html
