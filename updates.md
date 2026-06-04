@@ -1,3 +1,7 @@
+**What Are A.I. Agents Actually Doing?**\
+`A San Francisco start-up called Arena found that people are most likely to use A.I. agents on the job, particularly if they are in the tech industry.`\
+https://www.nytimes.com/2026/06/04/technology/ai-agents-arena.html
+
 **Wim Wenders Pulls Film With Teenage Nudity After Pleas by Nastassja Kinski**\
 `Nastassja Kinski was 13 years old when she was shown topless in the 1975 film “Wrong Move.” “I could already tell that wasn’t right,” she told a German newspaper.`\
 https://www.nytimes.com/2026/06/04/movies/wim-wenders-nastassja-kinski-nudity-topless-wrong-move.html
