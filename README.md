@@ -1,3 +1,7 @@
+**Europa ya no quiere depender tecnológicamente de EE. UU.**\
+`La Unión Europea adelanta cómo planea tomar las riendas de sus centros de datos, semiconductores y computación en la nube.`\
+https://www.nytimes.com/es/2026/06/04/espanol/negocios/europa-dependencia-tecnologica.html
+
 **En plena guerra, el presidente del fútbol iraní trabaja para que su selección vaya al Mundial**\
 `Mehdi Taj dijo que su federación ha estado tratando con la FIFA, y no con Estados Unidos, para intentar obtener visados para que Irán juegue en el torneo que comienza la próxima semana.`\
 https://www.nytimes.com/es/2026/06/04/espanol/mundo/iran-mundial-fifa.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/03/briefing/03-the-good-list-knicks-rothko.html
 **See What Deep-Sea Mining Actually Looks Like, Over 2 Miles Down**\
 `A mining company sent an advanced ship to try to pluck valuable minerals from the deep ocean. Here’s how it worked.`\
 https://www.nytimes.com/interactive/2026/06/03/climate/deep-sea-mining-tests-hidden-gem.html
-
-**California Had the Most Expensive Governor’s Race in U.S. History. It’s Still Not Over.**\
-`Nearly $316 million was spent on campaign ads in the primary for California governor. Now the general election spending will begin.`\
-https://www.nytimes.com/2026/06/03/us/elections/california-governor-campaign-finance.html
 
