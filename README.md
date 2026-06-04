@@ -1,3 +1,7 @@
+**Amid Kennedy Center Strife, the National Symphony Faces a Cloudy Future**\
+`After months of uncertainty, and without an approved budget or secured venue, the orchestra has been unable to schedule its next season.`\
+https://www.nytimes.com/2026/06/04/arts/kennedy-center-national-symphony.html
+
 **New York Democrats Move to Allow More Frequent Redistricting**\
 `Lawmakers moved forward with a measure that would allow the Democratic-run state to redraw its congressional districts more often.`\
 https://www.nytimes.com/2026/06/04/nyregion/redistricting-democrats-new-york.html
@@ -66,8 +70,8 @@ https://www.nytimes.com/2026/06/04/business/media/dan-lin-netflix-hollywood.html
 `I’m not sure that I did the right thing by leaving the Park Slope Food Co-op.`\
 https://www.nytimes.com/2026/06/04/opinion/park-slope-co-op-boycott-israel.html
 
-**Senate Voting on Motion to Bar Trump From Creating Compensation Fund**\
-`Senator Chuck Schumer, Democrat of New York, introduced the motion. A handful of Republicans have indicated that they would support such a measure, which needs just 50 votes to pass.`\
+**G.O.P. Toiling to Defeat Proposal Barring Trump From Creating Compensation Fund**\
+`The Senate floor ground to a standstill as Republicans struggled to cobble together the votes to defeat a proposal that would send their immigration bill back to committee and ban President Trump’s fund.`\
 https://www.nytimes.com/2026/06/04/us/politics/trump-payout-fund.html
 
 **How LinkedIn Found Its Social Platform Era**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/es/2026/06/04/espanol/america-latina/colombia-presidente
 **Two Comedians Walk Into a … Friendship**\
 `I just realized why I liked ‘Hacks’ so much.`\
 https://www.nytimes.com/2026/06/04/opinion/hacks-friendship-comedians-relationships.html
-
-**Father’s Day Gift Guide: Ideas From T Magazine**\
-`The perfect presents for Father’s Day, from a chef-approved tabletop grill to Japanese baseball caps.`\
-https://www.nytimes.com/2026/06/04/t-magazine/fathers-day-gift-ideas.html
 
