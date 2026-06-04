@@ -1,3 +1,7 @@
+**Do Not Mess with the Reporter Who Took Down Jeffrey Epstein**\
+`Pulitzer winner Julie K. Brown on a culture of silence — and how much more the Epstein files have left to reveal.`\
+https://www.nytimes.com/2026/06/04/podcasts/do-not-mess-with-the-reporter-who-took-down-jeffrey-epstein.html
+
 **La camiseta de fútbol de la selección colombiana protagoniza una discusión política**\
 `Iván Cepeda, el senador de izquierda que se enfrenta a Abelardo de la Espriella, candidato de ultraderecha, acusó a su oponente de robarse la camiseta nacional para obtener beneficios políticos.`\
 https://www.nytimes.com/es/2026/06/04/espanol/america-latina/colombia-camiseta-mundial-espriella.html

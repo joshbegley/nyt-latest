@@ -1,3 +1,7 @@
+**Do Not Mess with the Reporter Who Took Down Jeffrey Epstein**\
+`Pulitzer winner Julie K. Brown on a culture of silence — and how much more the Epstein files have left to reveal.`\
+https://www.nytimes.com/2026/06/04/podcasts/do-not-mess-with-the-reporter-who-took-down-jeffrey-epstein.html
+
 **La camiseta de fútbol de la selección colombiana protagoniza una discusión política**\
 `Iván Cepeda, el senador de izquierda que se enfrenta a Abelardo de la Espriella, candidato de ultraderecha, acusó a su oponente de robarse la camiseta nacional para obtener beneficios políticos.`\
 https://www.nytimes.com/es/2026/06/04/espanol/america-latina/colombia-camiseta-mundial-espriella.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/04/us/social-media-schools.html
 **Kiyon Ross Wants Dancers at the School of American Ballet on the Edge of Danger**\
 `With “Proof of Life,” Kiyon Ross wants to make his alma mater, the School of American Ballet, proud — and the dancers feel special. That’s what he would have wanted.`\
 https://www.nytimes.com/2026/06/04/arts/dance/school-of-american-ballet-kiyon-ross.html
-
-**Knicks Steal Game 1 in San Antonio**\
-`Instant reaction as the Knicks prevail over the Spurs.`\
-https://www.nytimes.com/2026/06/04/podcasts/knicks-steal-game-1-in-san-antonio.html
 
