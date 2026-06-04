@@ -1,3 +1,7 @@
+**Officer Charged With Stealing Journalist’s Camera Bag at Delaney Hall ICE Protest**\
+`Darryl Brown, a sergeant with the Essex County Prosecutor’s Office, is accused of taking home a bag dropped by a photojournalist outside the Delaney Hall immigration detention center in Newark.`\
+https://www.nytimes.com/2026/06/04/nyregion/delaney-hall-protest-officer-charged-stealing.html
+
 **Trump’s Fraud Claims in California Could Undermine Confidence in November Result**\
 `The president is claiming without evidence that the lengthy counting process in California, which could help determine control of Congress, means Democrats are stealing the election.`\
 https://www.nytimes.com/2026/06/04/us/politics/-trump-vote-fraud.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/04/us/immigrants-vote-fraud.html
 **Israel Trades Strikes With Hezbollah After New Cease-Fire With Lebanon**\
 `Israel and Hezbollah fighters traded attacks hours after the Trump administration brokered a new cease-fire agreement between the two countries. Hezbollah’s leader said the Iranian-backed militant group rejected the new deal.`\
 https://www.nytimes.com/video/world/middleeast/100000010944519/israel-hezbollah-strikes-lebanon-ceasefire.html
-
-**Latest Israel-Lebanon Cease-Fire Shows Little Sign of Taking Hold**\
-`The U.S.-brokered deal depends on Hezbollah halting its attacks first. But the leader of the Iran-backed group rejected those terms, and Israel said that its offensive would continue.`\
-https://www.nytimes.com/2026/06/04/world/middleeast/lebanon-israel-ceasefire-hezbollah-strikes.html
 
 **Mideast Live Updates: Hezbollah Rejects Cease-Fire Deal Between Lebanon and Israel**\
 `Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, said a truce worked out between Israel and the Lebanese government amounted to surrender for his group.`\
