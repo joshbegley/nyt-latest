@@ -1,3 +1,11 @@
+**Who’s Excited for SpaceX’s I.P.O.? Space Nerds.**\
+`Few are as delighted by the pending market debut as the vibrant community of space enthusiasts who want to push discovery of the final frontier.`\
+https://www.nytimes.com/2026/06/04/technology/space-nerds-spacex-ipo.html
+
+**Gwynne Shotwell, Elon Musk’s No. 2 at SpaceX, Is the Company’s Steady Hand**\
+`Gwynne Shotwell, the president and chief operating officer, is the adult-in-the-room foil to Mr. Musk as SpaceX prepares for a blockbuster initial public offering.`\
+https://www.nytimes.com/2026/06/04/technology/gwynne-shotwell-spacex.html
+
 **American Farms Rely More Than Ever on the Troubled H-2A Visa Program**\
 `The Trump administration is allowing in more agricultural guest workers under the H-2A program, but preventing abuses is proving difficult.`\
 https://www.nytimes.com/2026/06/04/business/economy/farms-h2a-visas-migrant-workers.html
