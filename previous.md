@@ -1,3 +1,7 @@
+**Four Republicans Rebuke Trump to Rein In War Powers**\
+`Four Republican lawmakers crossed party lines to vote in a measure that seeks to stop the president from taking further military action in Iran.`\
+https://www.nytimes.com/video/us/politics/100000010944299/trump-war-powers-iran.html
+
 **Early Research Suggests a Path to Predict and Prevent Lung Cancer**\
 `Scientists have identified proteins that could signal increased lung cancer risk, as well as a drug that could reduce the odds of a tumor developing.`\
 https://www.nytimes.com/2026/06/04/well/lung-cancer-prevention.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/2026/06/04/dining/dont-mess-with-the-sauce-its-marvelous
 `Dan Lin doesn’t fawn over stars or write blank checks. And he still greenlights more movies than anyone.`\
 https://www.nytimes.com/2026/06/04/business/media/dan-lin-netflix-hollywood.html
 
-**The Boycott That Bitterly Divided My Neighborhood**\
+**The Boycott That Separated Me From My Neighbors**\
 `I’m not sure that I did the right thing by leaving the Park Slope Food Co-op.`\
 https://www.nytimes.com/2026/06/04/opinion/park-slope-co-op-boycott-israel.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/04/opinion/menopause-women-health-care.html
 **A Chance to Shop the Paris Opera’s Jewel-Encrusted Closet**\
 `Vintage ball gowns, potbellied fat suits and diaphanous tunics were among the offerings when the Paris Opera held a public sale of opera and ballet costumes.`\
 https://www.nytimes.com/2026/06/04/arts/music/paris-opera-costumes-sale.html
-
-**The U.S.-Qatar Domination of Gas Left the World Dangerously Exposed**\
-`Before the war, the global market for liquefied natural gas was increasingly commanded by just two countries, one of which has now been hobbled.`\
-https://www.nytimes.com/2026/06/04/business/gas-supply-usa-qatar.html
 

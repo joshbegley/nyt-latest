@@ -1,3 +1,11 @@
+**Four Republicans Rebuke Trump to Rein In War Powers**\
+`Four Republican lawmakers crossed party lines to vote in a measure that seeks to stop the president from taking further military action in Iran.`\
+https://www.nytimes.com/video/us/politics/100000010944299/trump-war-powers-iran.html
+
+**The Boycott That Separated Me From My Neighbors**\
+`I’m not sure that I did the right thing by leaving the Park Slope Food Co-op.`\
+https://www.nytimes.com/2026/06/04/opinion/park-slope-co-op-boycott-israel.html
+
 **Iran War Live Updates: Israel Trades Strikes With Hezbollah, Leaving New Cease-Fire With Lebanon in Doubt**\
 `Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, had rejected the deal.`\
 https://www.nytimes.com/live/2026/06/04/world/iran-war-trump-israel-lebanon
