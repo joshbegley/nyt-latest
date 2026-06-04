@@ -1,3 +1,7 @@
+**Zelensky Mixes Taunts and Peace Talks Offer in Letter to Putin**\
+`“After 26 years in power, age is beginning to take its toll,” President Volodymyr Zelensky of Ukraine wrote of his Russian counterpart, bragging of a recent strike on St. Petersburg.`\
+https://www.nytimes.com/2026/06/04/world/europe/zelensky-putin-letter.html
+
 **Summer Challenge: Get Outdoors and ‘Touch Grass’**\
 `Your phone may distract you, but it doesn’t restore you. Here’s what does.`\
 https://www.nytimes.com/interactive/2026/06/04/well/summer-challenge-touch-grass-outdoors-benefits.html
