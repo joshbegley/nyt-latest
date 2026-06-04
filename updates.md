@@ -1,3 +1,7 @@
+**Pace Gallery Cuts 50 Artists and 50 Staff Amid Art Market Challenges**\
+`A challenging art market is forcing even an established player to contract.`\
+https://www.nytimes.com/2026/06/03/arts/design/pace-gallery-artist-cuts.html
+
 **How Does LA Count Election Ballots? It Begins With a Dog Sniff.**\
 `Counting ballots in California is a complex and lengthy undertaking. In Los Angeles, the choreographed process includes canines, humans and machines.`\
 https://www.nytimes.com/2026/06/03/us/elections/los-angeles-ballot-counting-dogs.html
