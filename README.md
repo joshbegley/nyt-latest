@@ -64,7 +64,7 @@ https://www.nytimes.com/interactive/2026/06/04/us/quake-tracker-las-vegas.html
 
 **Summer Challenge: Get Outdoors and ‘Touch Grass’**\
 `Your phone may distract you, but it doesn’t restore you. Here’s what does.`\
-https://www.nytimes.com/interactive/2026/06/04/well/touch-grass-challenge-week-1.html
+https://www.nytimes.com/interactive/2026/06/04/well/summer-challenge-touch-grass-outdoors-benefits.html
 
 **Tennis Giants Tumble**\
 `All the big names are out at the French Open. The result is a very confusing, and very exciting, tournament.`\
