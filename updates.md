@@ -1,3 +1,7 @@
+**My Post-Vacation Vegetable Deficit Is Critical**\
+`Now that I’m back home, I’m upping my green quotient with crunchy salads, veggie-packed frittatas and more.`\
+https://www.nytimes.com/2026/06/04/dining/my-post-vacation-vegetable-deficit-is-critical.html
+
 **Amid Kennedy Center Strife, the National Symphony Faces a Cloudy Future**\
 `After months of uncertainty, and without an approved budget or secured venue, the orchestra has been unable to schedule its next season.`\
 https://www.nytimes.com/2026/06/04/arts/kennedy-center-national-symphony.html

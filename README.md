@@ -1,3 +1,7 @@
+****\
+`News agency video filmed by Reuters on May 11 shows white phosphorus functioning over the border between Israel and Lebanon.`\
+https://www.nytimes.com/video/embedded/admin/100000010936621/01visualUploader-84177.html
+
 **My Post-Vacation Vegetable Deficit Is Critical**\
 `Now that I’m back home, I’m upping my green quotient with crunchy salads, veggie-packed frittatas and more.`\
 https://www.nytimes.com/2026/06/04/dining/my-post-vacation-vegetable-deficit-is-critical.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/04/podcasts/do-not-mess-with-the-reporter-who-to
 **La camiseta de fútbol de la selección colombiana protagoniza una discusión política**\
 `Iván Cepeda, el senador de izquierda que se enfrenta a Abelardo de la Espriella, candidato de ultraderecha, acusó a su oponente de robarse la camiseta nacional para obtener beneficios políticos.`\
 https://www.nytimes.com/es/2026/06/04/espanol/america-latina/colombia-camiseta-mundial-espriella.html
-
-**¿Una persona con nacionalidad de EE. UU. puede ser presidente de Colombia?**\
-`Abelardo de la Espriella, candidato de derecha a la presidencia de Colombia que recibió el respaldo público del presidente Donald Trump esta semana, tiene doble nacionalidad colombiana y estadounidense.`\
-https://www.nytimes.com/es/2026/06/04/espanol/america-latina/colombia-presidente-nacionalidad-estadounidense.html
 
