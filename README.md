@@ -1,3 +1,11 @@
+**Wary of Americans, Canada Bets on Its Own A.I.**\
+`The country on Thursday released a national artificial intelligence strategy that focuses on building its sovereign capability and protecting consumers.`\
+https://www.nytimes.com/2026/06/04/world/canada/canada-national-ai-strategy.html
+
+**Diane Carlson Evans Dies at 79; Led Campaign for Vietnam Women’s Memorial**\
+`A former Army nurse who served in combat, she coordinated a 10-year effort to create a monument recognizing the contributions of the war’s thousands of nurses.`\
+https://www.nytimes.com/2026/06/04/us/diane-carlson-evans-dead.html
+
 **Priest Who Said Aliens Were Demons Removed as Exorcist for Washington**\
 `Cardinal Robert McElroy, archbishop of Washington, said recent statements by the exorcist “undermine the Church’s very precise teaching on the devil.”`\
 https://www.nytimes.com/2026/06/04/us/catholic-exorcist-demon-ufo.html
@@ -186,15 +194,7 @@ https://www.nytimes.com/2026/06/04/technology/space-nerds-spacex-ipo.html
 `Gwynne Shotwell, the president and chief operating officer, is the adult-in-the-room foil to Mr. Musk as SpaceX prepares for a blockbuster initial public offering.`\
 https://www.nytimes.com/2026/06/04/technology/gwynne-shotwell-spacex.html
 
-**American Farms Rely More Than Ever on the Troubled H-2A Visa Program**\
-`The Trump administration is allowing in more agricultural guest workers under the H-2A program, but preventing abuses is proving difficult.`\
-https://www.nytimes.com/2026/06/04/business/economy/farms-h2a-visas-migrant-workers.html
-
-**Tracking the Rising Death Toll From U.S. Boat Strikes**\
-`The New York Times has been investigating the number of boat strikes and the death toll in the Caribbean and Eastern Pacific carried out by the Trump administration. Eric Schmitt, a national security correspondent for The Times, explains what those numbers mean.`\
-https://www.nytimes.com/video/world/americas/100000010937966/why-we-track-number-american-strikes-boats.html
-
-**Bill Bradley, 2-Time Champion With the Knicks, Cheers on His Old Team in the Finals**\
-`Watching Game 1 of the Knicks-Spurs series, Bill Bradley, the two-time N.B.A. champion and former U.S. senator, spoke reverently of teamwork — and had a few choice words for the refs.`\
-https://www.nytimes.com/2026/06/04/nyregion/bill-bradley-knicks-finals-game-1.html
+**Mideast Live Updates: Israel and Hezbollah Trade Strikes, Leaving New Cease-Fire in Doubt**\
+`Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, had rejected a deal worked out between Israel and the Lebanese government.`\
+https://www.nytimes.com/live/2026/06/04/world/iran-war-trump-israel-lebanon
 
