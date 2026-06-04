@@ -1,3 +1,19 @@
+**Early Research Suggests a Path to Predict and Prevent Lung Cancer**\
+`Scientists have identified proteins that could signal increased lung cancer risk, as well as a drug that could reduce the odds of a tumor developing.`\
+https://www.nytimes.com/2026/06/04/well/lung-cancer-prevention.html
+
+**‘Don’t Mess With the Sauce — It’s Marvelous!’**\
+`Change up the protein and veggies as you wish in Melissa Clark’s five-star pork bulgogi with spring vegetables, but keep the spicy-sweet marinade as it is.`\
+https://www.nytimes.com/2026/06/04/dining/dont-mess-with-the-sauce-its-marvelous.html
+
+**Netflix’s New Movie Strategy: Fewer, Better Films**\
+`Dan Lin doesn’t fawn over stars or write blank checks. And he still greenlights more movies than anyone.`\
+https://www.nytimes.com/2026/06/04/business/media/dan-lin-netflix-hollywood.html
+
+**The Boycott That Bitterly Divided My Neighborhood**\
+`I’m not sure that I did the right thing by leaving the Park Slope Food Co-op.`\
+https://www.nytimes.com/2026/06/04/opinion/park-slope-co-op-boycott-israel.html
+
 **Senate Voting on Motion to Bar Trump From Creating Compensation Fund**\
 `Senator Chuck Schumer, Democrat of New York, introduced the motion. A handful of Republicans have indicated that they would support such a measure, which needs just 50 votes to pass.`\
 https://www.nytimes.com/2026/06/04/us/politics/trump-payout-fund.html
