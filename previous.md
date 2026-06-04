@@ -1,5 +1,5 @@
 **Marjane Satrapi, Author of ‘Persepolis,’ Dies at 56**\
-`Her graphic novel series, published in English in 2003, followed an Iranian girl through the Islamic revolution and the Iran-Iraq War. The work humanized Iranians for millions.`\
+`Her graphic novel series, published in English in 2003, followed an Iranian girl through the Islamic revolution and the Iran-Iraq War. The work helped millions relate to Iranians.`\
 https://www.nytimes.com/2026/06/04/world/europe/marjane-satrapi-persepolis-death.html
 
 **Iran War Live Updates: Israel and Lebanon Renew Cease-Fire**\
