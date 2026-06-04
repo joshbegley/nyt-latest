@@ -1,3 +1,11 @@
+**Kennedy Center Tells Staff to Immediately Remove Trump’s Name From Documents**\
+`The center’s general counsel also said that a federal judge’s order meant the president’s name must be taken off indoor and outdoor signage by June 12.`\
+https://www.nytimes.com/2026/06/04/arts/music/kennedy-center-trump-name-memo.html
+
+**Jan. 6 Rioter Is Hired to Work in Sensitive Pentagon Office**\
+`It was not clear who hired Elias Irizarry, who pleaded guilty to various offenses at the Capitol and was later pardoned by President Trump.`\
+https://www.nytimes.com/2026/06/04/us/politics/pentagon-hires-jan-6-rioter.html
+
 **University of Texas to Remove Cesar Chavez Statue From Austin Campus**\
 `The university joins a list of schools and cities across the U.S. that have removed memorials and images featuring the labor leader after abuse allegations surfaced.`\
 https://www.nytimes.com/2026/06/04/us/university-texas-austin-cesar-chavez-statue.html
@@ -98,8 +106,8 @@ https://www.nytimes.com/2026/06/04/business/media/dan-lin-netflix-hollywood.html
 `I’m not sure that I did the right thing by leaving the Park Slope Food Co-op.`\
 https://www.nytimes.com/2026/06/04/opinion/park-slope-co-op-boycott-israel.html
 
-**G.O.P. Toiling to Defeat Proposal Barring Trump From Creating Compensation Fund**\
-`The Senate floor ground to a standstill as Republicans struggled to cobble together the votes to defeat a proposal that would send their immigration bill back to committee and ban President Trump’s fund.`\
+**Republicans Defeat Move to Bar Trump From Creating Compensation Fund**\
+`Senator Chuck Schumer, Democrat of New York, introduced the motion, which would have sent the G.O.P. immigration bill back to committee. Three Republicans up for re-election voted for it, but it still fell short.`\
 https://www.nytimes.com/2026/06/04/us/politics/trump-payout-fund.html
 
 **How LinkedIn Found Its Social Platform Era**\
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/04/podcasts/the-daily/trump-ai-regulation.html
 **G.O.P. Defectors Break With Trump Over War, and SpaceX Set for Largest I.P.O. Ever**\
 `Plus, could streetlights be making your allergies worse?`\
 https://www.nytimes.com/2026/06/04/podcasts/the-headlines/trump-iran-spacex-ipo.html
-
-**NYT Connections Answers for June 5, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, June 5, 2026.`\
-https://www.nytimes.com/2026/06/04/crosswords/connections-companion-1090.html
-
-**NYT Strands Hints for June 5, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, June 5, 2026.`\
-https://www.nytimes.com/2026/06/04/crosswords/strands-sidekick-824.html
 
 **Mideast Live Updates: Israel and Hezbollah Trade Strikes, Leaving New Cease-Fire in Doubt**\
 `Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, had rejected a deal worked out between Israel and the Lebanese government.`\
