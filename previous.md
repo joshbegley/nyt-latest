@@ -1,3 +1,7 @@
+**8 Indicted in $4.5 Million Scheme Involving Cheese, Meat and Cigarettes**\
+`Prosecutors say a group collaborated with a hacking syndicate that used phishing schemes to steal shipment information.`\
+https://www.nytimes.com/2026/06/03/nyregion/8-indicted-in-4-5-million-scheme-involving-cheese-meat-and-cigarettes.html
+
 **Trump Says Iran War Is ‘Not a Big Thing’ for U.S.**\
 `It was the latest attempt by President Trump to flip the narrative on a conflict that he once said would lead to quick and decisive victory.`\
 https://www.nytimes.com/2026/06/03/world/middleeast/trump-iran-war-remarks.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/03/nyregion/delaney-hall-protests-photos.html
 **Trump Administration Turns to a New Rationale to Justify Old Tariffs**\
 `The administration has settled on a more legally and politically durable way to impose tariffs, but some say the focus on forced labor laws is merely a pretext for protectionism.`\
 https://www.nytimes.com/2026/06/03/business/economy/trump-tariffs-forced-labor.html
-
-**This Man Should Not Be in Charge of National Intelligence**\
-`Pulte’s one evident qualification is his eagerness to advance the president’s political revenge campaign.`\
-https://www.nytimes.com/2026/06/03/opinion/bill-pulte-national-intelligence-trump.html
 
