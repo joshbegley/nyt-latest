@@ -1,3 +1,7 @@
+**Israel and Lebanon Renew Cease-Fire, Calling for Evacuation of Hezbollah Operatives**\
+`The agreement depends on the cooperation of Hezbollah, the Iran-backed militia. The cease-fire could remove an obstacle in the talks between the United States and Iran.`\
+https://www.nytimes.com/2026/06/03/world/middleeast/israel-lebanon-ceasefire-hezbollah.html
+
 **Flesh-Eating Pest Confirmed in U.S. Cattle**\
 `The New World screwworm was found in a calf in South Texas, the Agriculture Department said, the first case in the country since the 1960s.`\
 https://www.nytimes.com/2026/06/03/business/new-world-screwworm-texas.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/podcasts/100000010942418/i-almost-had-a-baby-with-
 **Protests Over Murder Case in Britain Turn Violent**\
 `Protests in Southampton turned violent on Tuesday after far-right commentators made claims that the police’s handling of a murder case in Britain showed the authorities were biased against white people.`\
 https://www.nytimes.com/video/world/europe/100000010941938/henry-nowak-murder-case-protests-uk.html
-
-**How a Prisoner Ended Up Alone in Court in a Death Penalty Case**\
-`The episode at the war court alarmed death penalty lawyers, who argued that the judge had a duty to suspend the proceedings to protect the rights of the defendant.`\
-https://www.nytimes.com/2026/06/03/us/politics/gitmo-death-penalty-case.html
 
