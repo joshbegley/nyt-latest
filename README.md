@@ -1,3 +1,7 @@
+**Massie, 3 Other House Republicans Broke From Trump on Iran War Powers Vote**\
+`Four Republicans from different ideological factions crossed party lines to vote with Democrats in favor of reining in the president’s power to wage war unilaterally.`\
+https://www.nytimes.com/2026/06/03/us/politics/iran-war-powers-trump-republicans.html
+
 **8 Indicted in $4.5 Million Scheme Involving Cheese, Meat and Cigarettes**\
 `Prosecutors say a group collaborated with a hacking syndicate that used phishing schemes to steal shipment information.`\
 https://www.nytimes.com/2026/06/03/nyregion/8-indicted-in-4-5-million-scheme-involving-cheese-meat-and-cigarettes.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/03/headway/public-transit-subways-construction-u
 **See the Clashes Between ICE and Protesters in New Jersey**\
 `Demonstrations outside the Delaney Hall immigrant detention center have at times turned violent, with the authorities deploying tear gas and wielding batons as protesters resisted calls to disperse.`\
 https://www.nytimes.com/2026/06/03/nyregion/delaney-hall-protests-photos.html
-
-**Trump Administration Turns to a New Rationale to Justify Old Tariffs**\
-`The administration has settled on a more legally and politically durable way to impose tariffs, but some say the focus on forced labor laws is merely a pretext for protectionism.`\
-https://www.nytimes.com/2026/06/03/business/economy/trump-tariffs-forced-labor.html
 
