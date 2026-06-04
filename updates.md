@@ -1,3 +1,7 @@
+**Summer Challenge: Get Outdoors and ‘Touch Grass’**\
+`Your phone may distract you, but it doesn’t restore you. Here’s what does.`\
+https://www.nytimes.com/interactive/2026/06/04/well/summer-challenge-touch-grass-outdoors-benefits.html
+
 **Pilot Was Warned Jet Was Too Low Before It Clipped a Light Pole**\
 `The pilot heard a “thump” while landing in Newark, according to a newly released report. The light pole crashed onto a truck.`\
 https://www.nytimes.com/2026/06/04/nyregion/plane-light-pole-truck-newark.html
