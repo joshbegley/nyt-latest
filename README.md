@@ -1,3 +1,7 @@
+**Pommelien Thijs, a Pop Star for Half a Country**\
+`Pommelien Thijs’s catchy tunes are beloved in Belgium — in the Dutch-speaking part, at least.`\
+https://www.nytimes.com/2026/06/04/arts/music/pommelien-thijs-belgium-pop.html
+
 **Trump Says He Plans to Nominate Blanche for Attorney General**\
 `Todd Blanche has been serving as the acting attorney general. A formal nomination to the post would be the president’s latest move to place loyalists in top government jobs.`\
 https://www.nytimes.com/2026/06/04/us/politics/trump-nominate-blanche-attorney-general.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/04/arts/saving-alices-adventures-in-new-york-her
 **Review: In ‘Another World,’ the Afterlife Glows Red**\
 `The director Tommy Ng Kai Chung turns reincarnation into a visually lush exploration of the human condition.`\
 https://www.nytimes.com/2026/06/04/movies/another-world-review.html
-
-**More People Live, Work and Play All in the Same Building**\
-`A study tracked 10 years of new development combining retail, office space and residences.`\
-https://www.nytimes.com/2026/06/04/realestate/mixed-use-bulidings-live-work-play.html
 
