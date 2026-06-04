@@ -1,4 +1,4 @@
-**Week 1**\
+**Week 1: Manage Your ‘Ultraprocessed Time’**\
 `Manage Your ‘Ultraprocessed Time’`\
 https://www.nytimes.com/interactive/2026/06/04/well/touch-grass-challenge-week-1.html
 
