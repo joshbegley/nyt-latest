@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/06/04/dining/dont-mess-with-the-sauce-its-marvelous
 `Dan Lin doesn’t fawn over stars or write blank checks. And he still greenlights more movies than anyone.`\
 https://www.nytimes.com/2026/06/04/business/media/dan-lin-netflix-hollywood.html
 
-**The Boycott That Bitterly Divided My Neighborhood**\
+**The Boycott That Separated Me From My Neighbors**\
 `I’m not sure that I did the right thing by leaving the Park Slope Food Co-op.`\
 https://www.nytimes.com/2026/06/04/opinion/park-slope-co-op-boycott-israel.html
 
