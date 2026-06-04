@@ -1,3 +1,7 @@
+**What Teens Told Us About Reading Whatever They Wanted in The Times**\
+`We challenged teens to choose any three recent New York Times pieces they wanted, then tell us what they got from them. The results are a delight.`\
+https://www.nytimes.com/2026/06/04/learning/student-reading-challenge.html
+
 **California Wildfires Outlook: Forecasters Say El Niño Makes Outlook Less Certain**\
 `After late-spring rain, and with an El Niño brewing, experts say the outlook for the summer is especially complicated.`\
 https://www.nytimes.com/2026/06/04/weather/california-fire-forecast.html
@@ -6,7 +10,7 @@ https://www.nytimes.com/2026/06/04/weather/california-fire-forecast.html
 `El estilo de gobierno unilateral y vengativo del presidente de Estados Unidos comienza a chocar contra un muro en ambas cámaras del Congreso.`\
 https://www.nytimes.com/es/2026/06/04/espanol/estados-unidos/trump-republicanos-represalias-limites.html
 
-**Rioting, Assault, Violating Curfew: The Charges ICE Protesters Face**\
+**What to Know About the Arrest of ICE Protesters at Delaney Hall in New Jersey**\
 `More than 80 people have been arrested during turbulent protests outside the Delaney Hall immigrant detention center in New Jersey over the past two weeks.`\
 https://www.nytimes.com/2026/06/04/nyregion/delaney-hall-protests-charges.html
 
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/04/arts/music/pommelien-thijs-belgium-pop.html
 **Trump Says He Plans to Nominate Blanche for Attorney General**\
 `Todd Blanche has been serving as the acting attorney general. A formal nomination to the post would be the president’s latest move to place loyalists in top government jobs.`\
 https://www.nytimes.com/2026/06/04/us/politics/trump-nominate-blanche-attorney-general.html
-
-**Inside SpaceX’s Rockets-to-Riches I.P.O. Plan**\
-`The latest prospectus by Elon Musk’s company underscores its confidence in its planned market debut. But skeptics see reasons for concern.`\
-https://www.nytimes.com/2026/06/04/business/dealbook/spacex-ipo-record.html
 
 **Mideast Live Updates: Israel and Hezbollah Trade Strikes, Leaving New Cease-Fire in Doubt**\
 `Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, had rejected a deal worked out between Israel and the Lebanese government.`\

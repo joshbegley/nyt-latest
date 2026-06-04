@@ -1,3 +1,11 @@
+**What Teens Told Us About Reading Whatever They Wanted in The Times**\
+`We challenged teens to choose any three recent New York Times pieces they wanted, then tell us what they got from them. The results are a delight.`\
+https://www.nytimes.com/2026/06/04/learning/student-reading-challenge.html
+
+**What to Know About the Arrest of ICE Protesters at Delaney Hall in New Jersey**\
+`More than 80 people have been arrested during turbulent protests outside the Delaney Hall immigrant detention center in New Jersey over the past two weeks.`\
+https://www.nytimes.com/2026/06/04/nyregion/delaney-hall-protests-charges.html
+
 **California Wildfires Outlook: Forecasters Say El Niño Makes Outlook Less Certain**\
 `After late-spring rain, and with an El Niño brewing, experts say the outlook for the summer is especially complicated.`\
 https://www.nytimes.com/2026/06/04/weather/california-fire-forecast.html
