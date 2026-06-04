@@ -1,3 +1,7 @@
+**Tracking the Rising Death Toll From U.S. Boat Strikes**\
+`The New York Times has been investigation the number of boat strikes and the death toll in the Caribbean and Eastern Pacific carried out by the Trump administration. Eric Schmitt, a national security correspondent for The Times, explains what those numbers mean.`\
+https://www.nytimes.com/video/world/americas/100000010937966/why-we-track-number-american-strikes-boats.html
+
 **Bill Bradley, 2-Time Champion With the Knicks, Cheers on His Old Team in the Finals**\
 `Watching Game 1 of the Knicks-Spurs series, Bill Bradley, the two-time N.B.A. champion and former U.S. senator, spoke reverently of teamwork — and had a few choice words for the refs.`\
 https://www.nytimes.com/2026/06/04/nyregion/bill-bradley-knicks-finals-game-1.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/04/movies/shes-the-he-review.html
 **When Is It Time to Quit Therapy?**\
 `Our Ask the Therapist columnist, Lori Gottlieb, advises a reader who wants to stop subsidizing her partner’s therapy habit.`\
 https://www.nytimes.com/2026/06/04/well/mind/therapy-not-working.html
-
-**‘Masters of the Universe’ Review: Becoming a He-Man**\
-`The filmmakers behind this new live-action movie lean into the franchise’s ridiculousness, with sometimes engaging results.`\
-https://www.nytimes.com/2026/06/04/movies/masters-of-the-universe-review.html
 
