@@ -1,3 +1,27 @@
+**Alan Gribben, Twain Scholar Who Excised Slur From ‘Huck Finn,’ Dies at 84**\
+`He made it his mission to track down every book Mark Twain owned — and to fix what he saw as flaws that kept schools from teaching the author’s most famous works.`\
+https://www.nytimes.com/2026/06/04/books/alan-gribben-dead.html
+
+**How Trump Was Persuaded to Regulate A.I.**\
+`Even the White House, which has been friendly to the artificial intelligence industry, is finding that it needs greater oversight of powerful new models.`\
+https://www.nytimes.com/2026/06/04/podcasts/the-daily/trump-ai-regulation.html
+
+**G.O.P. Defectors Break With Trump Over War, and SpaceX Set for Largest I.P.O. Ever**\
+`Plus, could streetlights be making your allergies worse?`\
+https://www.nytimes.com/2026/06/04/podcasts/the-headlines/trump-iran-spacex-ipo.html
+
+**NYT Connections Answers for June 5, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, June 5, 2026.`\
+https://www.nytimes.com/2026/06/04/crosswords/connections-companion-1090.html
+
+**NYT Strands Hints for June 5, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, June 5, 2026.`\
+https://www.nytimes.com/2026/06/04/crosswords/strands-sidekick-824.html
+
+**Today’s Wordle Hints for June 5, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, June 5, 2026.`\
+https://www.nytimes.com/2026/06/04/crosswords/wordle-review-1812.html
+
 **Marjane Satrapi, Author of ‘Persepolis,’ Dies at 56**\
 `Her graphic novel series, published in English in 2003, followed an Iranian girl through the Islamic revolution and the Iran-Iraq War. The work helped millions relate to Iranians.`\
 https://www.nytimes.com/2026/06/04/world/europe/marjane-satrapi-persepolis-death.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/06/04/climate/urban-light-pollution-pollen-allergie
 **Book Review: ‘Checkmate,’ by Ben Mezrich**\
 `The story at the heart of “Checkmate” is a good one, but Ben Mezrich has hustled it into print too quickly.`\
 https://www.nytimes.com/2026/06/04/books/review/checkmate-ben-mezrich.html
-
-**Can These ChatGPT Ads Make You Love A.I.?**\
-`A campaign for ChatGPT relies on heartwarming retro vibes to sell a product that has become a source of concern for most Americans.`\
-https://www.nytimes.com/2026/06/04/style/chatgpt-advertising-campaign-artificial-intelligence.html
-
-**Ireland, Seen as a Weak Link in Europe’s Defense, Is Trying to Bulk Up**\
-`As concern rises in Europe over threats from an emboldened Russia, the Irish government says it’s working to plug gaps in its military, which reflect a tradition of neutrality.`\
-https://www.nytimes.com/2026/06/04/world/europe/ireland-defense.html
-
-**11 Books That Capture the Swoon-Worthy Drama of Wedding Season**\
-`These books dig into the thrilling, ugly and swoon-worthy drama of a happy couple’s big day.`\
-https://www.nytimes.com/2026/06/04/books/wedding-novels.html
-
-**How Black Churches Are Raising Dementia Awareness**\
-`Faith and science are coming together to reduce stigma and improve care in the African American community.`\
-https://www.nytimes.com/2026/06/04/well/mind/dementia-disparities-black-churches.html
-
-**Can Better Running Shoes Really Make You Faster?**\
-`Companies are investing in scientific labs in pursuit of a sneaker that could help marathon runners shave up to four minutes off their record. But some are skeptical of the results.`\
-https://www.nytimes.com/2026/06/04/style/running-shoes-speed-nike-adidas-puma.html
-
-**Grow, Hair, Grow**\
-`You spend your whole childhood trying to look different from your dad, only to wake up and see his forehead in the mirror.`\
-https://www.nytimes.com/2026/06/04/opinion/father-son-relationship-balding.html
 

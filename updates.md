@@ -1,3 +1,27 @@
+**Alan Gribben, Twain Scholar Who Excised Slur From ‘Huck Finn,’ Dies at 84**\
+`He made it his mission to track down every book Mark Twain owned — and to fix what he saw as flaws that kept schools from teaching the author’s most famous works.`\
+https://www.nytimes.com/2026/06/04/books/alan-gribben-dead.html
+
+**How Trump Was Persuaded to Regulate A.I.**\
+`Even the White House, which has been friendly to the artificial intelligence industry, is finding that it needs greater oversight of powerful new models.`\
+https://www.nytimes.com/2026/06/04/podcasts/the-daily/trump-ai-regulation.html
+
+**G.O.P. Defectors Break With Trump Over War, and SpaceX Set for Largest I.P.O. Ever**\
+`Plus, could streetlights be making your allergies worse?`\
+https://www.nytimes.com/2026/06/04/podcasts/the-headlines/trump-iran-spacex-ipo.html
+
+**NYT Connections Answers for June 5, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, June 5, 2026.`\
+https://www.nytimes.com/2026/06/04/crosswords/connections-companion-1090.html
+
+**NYT Strands Hints for June 5, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, June 5, 2026.`\
+https://www.nytimes.com/2026/06/04/crosswords/strands-sidekick-824.html
+
+**Today’s Wordle Hints for June 5, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, June 5, 2026.`\
+https://www.nytimes.com/2026/06/04/crosswords/wordle-review-1812.html
+
 **Marjane Satrapi, Author of ‘Persepolis,’ Dies at 56**\
 `Her graphic novel series, published in English in 2003, followed an Iranian girl through the Islamic revolution and the Iran-Iraq War. The work helped millions relate to Iranians.`\
 https://www.nytimes.com/2026/06/04/world/europe/marjane-satrapi-persepolis-death.html
