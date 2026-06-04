@@ -94,6 +94,10 @@ https://www.nytimes.com/2026/06/04/us/immigrants-vote-fraud.html
 `Israel and Hezbollah fighters traded attacks hours after the Trump administration brokered a new cease-fire agreement between the two countries. Hezbollah’s leader said the Iranian-backed militant group rejected the new deal.`\
 https://www.nytimes.com/video/world/middleeast/100000010944519/israel-hezbollah-strikes-lebanon-ceasefire.html
 
+**Latest Israel-Lebanon Cease-Fire Shows Little Sign of Taking Hold**\
+`The U.S.-brokered deal depends on Hezbollah halting its attacks first. But the leader of the Iran-backed group rejected those terms, and Israel said that its offensive would continue.`\
+https://www.nytimes.com/2026/06/04/world/middleeast/lebanon-israel-ceasefire-hezbollah-strikes.html
+
 **Muere Marjane Satrapi, autora de ‘Persépolis’, a los 56 años**\
 `Su popular serie de novelas gráficas, publicada a principios de la década de 2000, seguía a una niña iraní a través de la Revolución Islámica y la guerra Irán-Irak.`\
 https://www.nytimes.com/es/2026/06/04/espanol/cultura/muere-marjane-satrapi-persepolis.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/04/insider/trump-ballroom-arch-washington.html
 **Limmie Pulliam, Tenor Who Overcame the Stigma of His Size, Dies at 50**\
 `He quit singing in his early 20s when opera companies objected to his appearance, but after a 12-year absence he revived his career to acclaim.`\
 https://www.nytimes.com/2026/06/04/arts/music/limmie-pulliam-dead.html
-
-**Mideast Live Updates: Israel and Hezbollah Trade Strikes, Leaving New Cease-Fire in Doubt**\
-`Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, had rejected a deal worked out between Israel and the Lebanese government.`\
-https://www.nytimes.com/live/2026/06/04/world/iran-war-trump-israel-lebanon
 

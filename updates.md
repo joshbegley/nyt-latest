@@ -1,3 +1,7 @@
+**Trump and Mamdani Plan to Be at Monday’s Knicks Game (but Not Together)**\
+`President Trump is expected to sit in a luxury box for Game 3 of the N.B.A. finals at Madison Square Garden. Mayor Zohran Mamdani says he will be in a “very different section.”`\
+https://www.nytimes.com/2026/06/04/nyregion/knicks-mamdani-trump-garden.html
+
 **Mister Rogers: Now on YouTube**\
 `On Thursday, Fred Rogers Productions started a channel dedicated to the beloved children’s host. Eventually it will be a repository for full episodes, behind-the-scenes footage and compilations.`\
 https://www.nytimes.com/2026/06/04/arts/television/mister-rogers-neighborhood-youtube.html

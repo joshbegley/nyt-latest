@@ -1,3 +1,7 @@
+**Trump and Mamdani Plan to Be at Monday’s Knicks Game (but Not Together)**\
+`President Trump is expected to sit in a luxury box for Game 3 of the N.B.A. finals at Madison Square Garden. Mayor Zohran Mamdani says he will be in a “very different section.”`\
+https://www.nytimes.com/2026/06/04/nyregion/knicks-mamdani-trump-garden.html
+
 **Mister Rogers: Now on YouTube**\
 `On Thursday, Fred Rogers Productions started a channel dedicated to the beloved children’s host. Eventually it will be a repository for full episodes, behind-the-scenes footage and compilations.`\
 https://www.nytimes.com/2026/06/04/arts/television/mister-rogers-neighborhood-youtube.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/04/insider/trump-ballroom-arch-washington.html
 **Limmie Pulliam, Tenor Who Overcame the Stigma of His Size, Dies at 50**\
 `He quit singing in his early 20s when opera companies objected to his appearance, but after a 12-year absence he revived his career to acclaim.`\
 https://www.nytimes.com/2026/06/04/arts/music/limmie-pulliam-dead.html
-
-**Trump’s Arch Project to Face Questions and Criticism at Planning Meeting**\
-`The National Capital Planning Commission received nearly 1,700 comments about President Trump’s plans to build a 250-foot arch in the nation’s capital. Almost all opposed the idea.`\
-https://www.nytimes.com/2026/06/04/us/trump-arch-dc-planning-meeting.html
 
 **Mideast Live Updates: Israel and Hezbollah Trade Strikes, Leaving New Cease-Fire in Doubt**\
 `Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, had rejected a deal worked out between Israel and the Lebanese government.`\
