@@ -1,3 +1,7 @@
+**Several Women Who Dated Graham Platner Recall ‘Unsettling’ Behavior**\
+`The Democratic candidate for Senate in Maine could be charming, women said in interviews, but some found his actions intimidating and disturbing.`\
+https://www.nytimes.com/2026/06/04/us/politics/platner-maine-senate-girlfriends-relationships.html
+
 **But First, Restaurant**\
 `Three New York City restaurants where the coffee is as good as the food.`\
 https://www.nytimes.com/2026/06/04/dining/but-first-restaurant.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/04/us/politics/john-bolton-plea-deal.html
 **Rebecca Grossman and Scott Erickson, Ex-MLB Pitcher, Found Liable for $176 Million in Hit-and-Run**\
 `The jury ruled against Rebecca Grossman, a philanthropist, and Scott Erickson, a former M.L.B. pitcher. Ms. Grossman was earlier convicted of murder in the case.`\
 https://www.nytimes.com/2026/06/04/us/rebecca-grossman-scott-erickson-trial-damages.html
-
-**Who’s Excited for SpaceX’s I.P.O.? Space Nerds.**\
-`Few are as delighted by the pending market debut as the vibrant community of space enthusiasts who want to push discovery of the final frontier.`\
-https://www.nytimes.com/2026/06/04/technology/space-nerds-spacex-ipo.html
 
 **Mideast Live Updates: Israel and Hezbollah Trade Strikes, Leaving New Cease-Fire in Doubt**\
 `Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, had rejected a deal worked out between Israel and the Lebanese government.`\

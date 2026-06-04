@@ -1,3 +1,23 @@
+**But First, Restaurant**\
+`Three New York City restaurants where the coffee is as good as the food.`\
+https://www.nytimes.com/2026/06/04/dining/but-first-restaurant.html
+
+**Wary of Americans, Canada Bets on Its Own A.I.**\
+`The country on Thursday released a national artificial intelligence strategy that focuses on building its sovereign capability and protecting consumers.`\
+https://www.nytimes.com/2026/06/04/world/canada/canada-national-ai-strategy.html
+
+**Diane Carlson Evans Dies at 79; Led Campaign for Vietnam Women’s Memorial**\
+`A former Army nurse who served in combat, she coordinated a 10-year effort to create a monument recognizing the contributions of the war’s thousands of nurses.`\
+https://www.nytimes.com/2026/06/04/us/diane-carlson-evans-dead.html
+
+**Kennedy Center Tells Staff to Immediately Remove Trump’s Name From Documents**\
+`The center’s general counsel also said that a federal judge’s order meant the president’s name must be taken off outdoor and indoor signage by June 12.`\
+https://www.nytimes.com/2026/06/04/arts/music/kennedy-center-trump-name-memo.html
+
+**Mideast Live Updates: Israel and Hezbollah Trade Strikes, Leaving New Cease-Fire in Doubt**\
+`Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, had rejected a deal worked out between Israel and the Lebanese government.`\
+https://www.nytimes.com/live/2026/06/04/world/iran-war-trump-israel-lebanon
+
 **Priest Who Said Aliens Were Demons Removed as Exorcist for Washington**\
 `Cardinal Robert McElroy, archbishop of Washington, said recent statements by the exorcist “undermine the Church’s very precise teaching on the devil.”`\
 https://www.nytimes.com/2026/06/04/us/catholic-exorcist-demon-ufo.html
