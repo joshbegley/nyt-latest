@@ -1,3 +1,7 @@
+**California Businessman Accused of Selling Restricted Technology to Iran**\
+`Jamshid Ghomi, of Newport Coast, Calif., was charged with conspiracy to violate the International Emergency Economic Powers Act.`\
+https://www.nytimes.com/2026/06/04/us/sanctions-iran-nuclear-military-violations.html
+
 **Officer Charged With Stealing Journalist’s Camera Bag at Delaney Hall ICE Protest**\
 `Darryl Brown, a sergeant with the Essex County Prosecutor’s Office, is accused of taking home a bag dropped by a photojournalist outside the Delaney Hall immigration detention center in Newark.`\
 https://www.nytimes.com/2026/06/04/nyregion/delaney-hall-protest-officer-charged-stealing.html
@@ -34,7 +38,7 @@ https://www.nytimes.com/video/world/africa/100000010944673/somalia-mogadishu-fig
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/06/04/us/quake-tracker-las-vegas.html
 
-**The Summer Challenge Week 1: Log Off and Get Outside**\
+**Summer Challenge: Get Outdoors and ‘Touch Grass’**\
 `Your phone may distract you, but it doesn’t restore you. Here’s what does.`\
 https://www.nytimes.com/interactive/2026/06/04/well/touch-grass-challenge-week-1.html
 
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/04/business/cbs-60-minutes-scott-pelley-bari-wei
 **Justice Department Tells Prosecutors to Pursue Immigrant Vote Fraud Cases**\
 `About 90 such investigations are currently open, a Justice Department official told prosecutors. The tally offers a glimpse inside the scale of the administration’s efforts.`\
 https://www.nytimes.com/2026/06/04/us/immigrants-vote-fraud.html
-
-**Israel Trades Strikes With Hezbollah After New Cease-Fire With Lebanon**\
-`Israel and Hezbollah fighters traded attacks hours after the Trump administration brokered a new cease-fire agreement between the two countries. Hezbollah’s leader said the Iranian-backed militant group rejected the new deal.`\
-https://www.nytimes.com/video/world/middleeast/100000010944519/israel-hezbollah-strikes-lebanon-ceasefire.html
 
 **Mideast Live Updates: Hezbollah Rejects Cease-Fire Deal Between Lebanon and Israel**\
 `Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, said a truce worked out between Israel and the Lebanese government amounted to surrender for his group.`\

@@ -1,3 +1,15 @@
+**‘Scary Movie’ Review: Too Many Movies, Too Few Laughs**\
+`The sixth installment of this low-grade franchise takes a predictable and dismaying turn, even if it feels like the right time to bring the series back.`\
+https://www.nytimes.com/2026/06/04/movies/scary-movie-review.html
+
+**Ohio State Agrees to $100 Million Payout Over Sexual Abuse Claims**\
+`The deal with 279 former students is the latest in the long running case at the university. In all, nearly 600 people who said they were abused by an athletic department doctor have settled.`\
+https://www.nytimes.com/2026/06/04/us/ohio-state-sexual-abuse-settlement.html
+
+**New Research Suggests a Possible Path to Prevent Lung Cancer**\
+`Also, senators clashed over Trump’s payout fund. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/06/04/briefing/lung-cancer-research-trump-fund.html
+
 **California Businessman Accused of Selling Restricted Technology to Iran**\
 `Jamshid Ghomi, of Newport Coast, Calif., was charged with conspiracy to violate the International Emergency Economic Powers Act.`\
 https://www.nytimes.com/2026/06/04/us/sanctions-iran-nuclear-military-violations.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/2026/06/04/dining/my-post-vacation-vegetable-deficit-is-
 **Amid Kennedy Center Strife, the National Symphony Faces a Cloudy Future**\
 `After months of uncertainty, and without an approved budget or secured venue, the orchestra has been unable to schedule its next season.`\
 https://www.nytimes.com/2026/06/04/arts/kennedy-center-national-symphony.html
-
-**New York Democrats Move to Allow More Frequent Redistricting**\
-`Lawmakers moved forward with a measure that would allow the Democratic-run state to redraw its congressional districts more often.`\
-https://www.nytimes.com/2026/06/04/nyregion/redistricting-democrats-new-york.html
-
-**‘60 Minutes’ Turmoil: What to Know After Scott Pelley’s Firing**\
-`Scott Pelley’s firing is the latest in a string of controversies and staffing shake-ups that have plagued CBS’s news division.`\
-https://www.nytimes.com/2026/06/04/business/cbs-60-minutes-scott-pelley-bari-weiss.html
-
-**Justice Department Tells Prosecutors to Pursue Immigrant Vote Fraud Cases**\
-`About 90 such investigations are currently open, a Justice Department official told prosecutors. The tally offers a glimpse inside the scale of the administration’s efforts.`\
-https://www.nytimes.com/2026/06/04/us/immigrants-vote-fraud.html
 
 **Mideast Live Updates: Hezbollah Rejects Cease-Fire Deal Between Lebanon and Israel**\
 `Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, said a truce worked out between Israel and the Lebanese government amounted to surrender for his group.`\

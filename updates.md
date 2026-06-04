@@ -1,3 +1,11 @@
+**California Businessman Accused of Selling Restricted Technology to Iran**\
+`Jamshid Ghomi, of Newport Coast, Calif., was charged with conspiracy to violate the International Emergency Economic Powers Act.`\
+https://www.nytimes.com/2026/06/04/us/sanctions-iran-nuclear-military-violations.html
+
+**Summer Challenge: Get Outdoors and ‘Touch Grass’**\
+`Your phone may distract you, but it doesn’t restore you. Here’s what does.`\
+https://www.nytimes.com/interactive/2026/06/04/well/touch-grass-challenge-week-1.html
+
 **Officer Charged With Stealing Journalist’s Camera Bag at Delaney Hall ICE Protest**\
 `Darryl Brown, a sergeant with the Essex County Prosecutor’s Office, is accused of taking home a bag dropped by a photojournalist outside the Delaney Hall immigration detention center in Newark.`\
 https://www.nytimes.com/2026/06/04/nyregion/delaney-hall-protest-officer-charged-stealing.html
