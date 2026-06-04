@@ -30,8 +30,8 @@ https://www.nytimes.com/video/world/africa/100000010944673/somalia-mogadishu-fig
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/06/04/us/quake-tracker-las-vegas.html
 
-**Week 1: Manage Your ‘Ultraprocessed Time’**\
-`Manage Your ‘Ultraprocessed Time’`\
+**The Summer Challenge Week 1: Log Off and Get Outside**\
+`Your phone may distract you, but it doesn’t restore you. Here’s what does.`\
 https://www.nytimes.com/interactive/2026/06/04/well/touch-grass-challenge-week-1.html
 
 **Tennis Giants Tumble**\

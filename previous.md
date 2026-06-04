@@ -1,3 +1,19 @@
+**Trump’s Fraud Claims in California Could Undermine Confidence in November Result**\
+`The president is claiming without evidence that the lengthy counting process in California, which could help determine control of Congress, means Democrats are stealing the election.`\
+https://www.nytimes.com/2026/06/04/us/politics/-trump-vote-fraud.html
+
+**Nick Bilton, New ‘60 Minutes’ Chief, Pledges Independence**\
+`Nick Bilton said he had consulted with the program’s remaining correspondents: Lesley Stahl, Jon Wertheim and Bill Whitaker. All three were deliberating whether to stay with the show, two people said.`\
+https://www.nytimes.com/2026/06/04/business/nick-bilton-60-minutes-memo.html
+
+**Jan. 6 Rioter Hired by Pentagon**\
+`Elias Irizarry, who pleaded guilty to climbing through a broken window at the Capitol on Jan. 6, 2021, now works for an office responsible for uncovering and defending against terrorism plots at the Pentagon.`\
+https://www.nytimes.com/video/us/politics/100000010945594/jan-6-rioter-hired-by-pentagon.html
+
+**Trump Plans to Create a Promenade at the Lincoln Memorial**\
+`The president announced a new project that would connect the memorial to the Potomac River. He isn’t sure if he wants it to be named after himself.`\
+https://www.nytimes.com/2026/06/04/us/politics/trump-lincoln-memorial-promenade.html
+
 **Oakley Isn’t Barred From Madison Square Garden Anymore. Will He Come See the Knicks Play?**\
 `Charles Oakley, the 1990s Knicks star, hasn’t been to a game at Madison Square Garden in nearly a decade because of a legal battle.`\
 https://www.nytimes.com/2026/06/04/nyregion/charles-oakley-madison-square-garden-knicks-finals.html
@@ -177,22 +193,6 @@ https://www.nytimes.com/video/world/middleeast/100000010944519/israel-hezbollah-
 **Latest Israel-Lebanon Cease-Fire Shows Little Sign of Taking Hold**\
 `The U.S.-brokered deal depends on Hezbollah halting its attacks first. But the leader of the Iran-backed group rejected those terms, and Israel said that its offensive would continue.`\
 https://www.nytimes.com/2026/06/04/world/middleeast/lebanon-israel-ceasefire-hezbollah-strikes.html
-
-**Muere Marjane Satrapi, autora de ‘Persépolis’, a los 56 años**\
-`Su popular serie de novelas gráficas, publicada a principios de la década de 2000, seguía a una niña iraní a través de la Revolución Islámica y la guerra Irán-Irak.`\
-https://www.nytimes.com/es/2026/06/04/espanol/cultura/muere-marjane-satrapi-persepolis.html
-
-**Today, In Short**\
-`Dot cakes. “Summer House.” And the Knicks.`\
-https://www.nytimes.com/2026/06/04/briefing/today-in-short.html
-
-**How One Company Plans to Mine the Bottom of the Sea**\
-`A look at the quest to mine the bottom of the ocean for valuable minerals, the connection between light pollution and allergies and more climate news.`\
-https://www.nytimes.com/2026/06/04/climate/deep-sea-mining-metals-company.html
-
-**Prada Takes Over Katz’s Deli With Cole Escola, Amanda Gorman and Lots of Pastrami**\
-`To kick off its cultural series, Prada Mode, the Italian fashion house brought together celebrities and influencers for dancing and sandwiches.`\
-https://www.nytimes.com/2026/06/04/style/prada-mode-nyc-kojima-hotel-chelsea.html
 
 **Mideast Live Updates: Hezbollah Rejects Cease-Fire Deal Between Lebanon and Israel**\
 `Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, said a truce worked out between Israel and the Lebanese government amounted to surrender for his group.`\

@@ -1,3 +1,19 @@
+**Trump’s Fraud Claims in California Could Undermine Confidence in November Result**\
+`The president is claiming without evidence that the lengthy counting process in California, which could help determine control of Congress, means Democrats are stealing the election.`\
+https://www.nytimes.com/2026/06/04/us/politics/-trump-vote-fraud.html
+
+**Nick Bilton, New ‘60 Minutes’ Chief, Pledges Independence**\
+`Nick Bilton said he had consulted with the program’s remaining correspondents: Lesley Stahl, Jon Wertheim and Bill Whitaker. All three were deliberating whether to stay with the show, two people said.`\
+https://www.nytimes.com/2026/06/04/business/nick-bilton-60-minutes-memo.html
+
+**Jan. 6 Rioter Hired by Pentagon**\
+`Elias Irizarry, who pleaded guilty to climbing through a broken window at the Capitol on Jan. 6, 2021, now works for an office responsible for uncovering and defending against terrorism plots at the Pentagon.`\
+https://www.nytimes.com/video/us/politics/100000010945594/jan-6-rioter-hired-by-pentagon.html
+
+**Trump Plans to Create a Promenade at the Lincoln Memorial**\
+`The president announced a new project that would connect the memorial to the Potomac River. He isn’t sure if he wants it to be named after himself.`\
+https://www.nytimes.com/2026/06/04/us/politics/trump-lincoln-memorial-promenade.html
+
 **Oakley Isn’t Barred From Madison Square Garden Anymore. Will He Come See the Knicks Play?**\
 `Charles Oakley, the 1990s Knicks star, hasn’t been to a game at Madison Square Garden in nearly a decade because of a legal battle.`\
 https://www.nytimes.com/2026/06/04/nyregion/charles-oakley-madison-square-garden-knicks-finals.html
