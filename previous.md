@@ -1,3 +1,7 @@
+**Hezbollah’s Fiber-Optic Drones Expose Cracks in Israeli Defenses**\
+`The Lebanese militant group’s attacks have caught Israelis off guard, forcing its political and military leaders to scramble for solutions.`\
+https://www.nytimes.com/2026/06/04/world/middleeast/hezbollah-fiber-optic-drones-israel.html
+
 **Alan Gribben, Twain Scholar Who Excised Slur From ‘Huck Finn,’ Dies at 84**\
 `He made it his mission to track down every book Mark Twain owned — and to fix what he saw as flaws that kept schools from teaching the author’s most famous works.`\
 https://www.nytimes.com/2026/06/04/books/alan-gribben-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/movies/100000010910459/why-do-most-new-movies-look
 **Urban Light Pollution Might Be Worsening Allergies**\
 `Light pollution prompts plants to shed pollen longer and stronger, according to new research.`\
 https://www.nytimes.com/2026/06/04/climate/urban-light-pollution-pollen-allergies.html
-
-**Book Review: ‘Checkmate,’ by Ben Mezrich**\
-`The story at the heart of “Checkmate” is a good one, but Ben Mezrich has hustled it into print too quickly.`\
-https://www.nytimes.com/2026/06/04/books/review/checkmate-ben-mezrich.html
 

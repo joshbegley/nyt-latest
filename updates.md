@@ -1,3 +1,7 @@
+**Hezbollah’s Fiber-Optic Drones Expose Cracks in Israeli Defenses**\
+`The Lebanese militant group’s attacks have caught Israelis off guard, forcing its political and military leaders to scramble for solutions.`\
+https://www.nytimes.com/2026/06/04/world/middleeast/hezbollah-fiber-optic-drones-israel.html
+
 **Alan Gribben, Twain Scholar Who Excised Slur From ‘Huck Finn,’ Dies at 84**\
 `He made it his mission to track down every book Mark Twain owned — and to fix what he saw as flaws that kept schools from teaching the author’s most famous works.`\
 https://www.nytimes.com/2026/06/04/books/alan-gribben-dead.html
