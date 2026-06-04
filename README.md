@@ -1,3 +1,7 @@
+**N.Y. Democrats Move to Allow More Frequent Redistricting**\
+`N.Y. lawmakers moved forward with a measure that would allow the Democratic-run state to redraw the state’s congressional districts more often.`\
+https://www.nytimes.com/2026/06/04/nyregion/redistricting-democrats-new-york.html
+
 **‘60 Minutes’ Turmoil: What to Know After Scott Pelley’s Firing**\
 `Scott Pelley’s firing is the latest in a string of controversies and staffing shake-ups that have plagued CBS’s news division.`\
 https://www.nytimes.com/2026/06/04/business/cbs-60-minutes-scott-pelley-bari-weiss.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/04/opinion/hacks-friendship-comedians-relationsh
 **Father’s Day Gift Guide: Ideas From T Magazine**\
 `The perfect presents for Father’s Day, from a chef-approved tabletop grill to Japanese baseball caps.`\
 https://www.nytimes.com/2026/06/04/t-magazine/fathers-day-gift-ideas.html
-
-**The Fluffernutter Theory of Trump**\
-`Mindless optimism is the only antidote to rational despair.`\
-https://www.nytimes.com/2026/06/04/opinion/trump-science-shakespeare-memory-poetry.html
 
