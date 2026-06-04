@@ -1,3 +1,11 @@
+**Trump Says He Plans to Nominate Blanche for Attorney General**\
+`Todd Blanche has been serving as the acting attorney general. A formal nomination to the post would be the president’s latest move to place loyalists in top government jobs.`\
+https://www.nytimes.com/2026/06/04/us/politics/trump-nominate-blanche-attorney-general.html
+
+**Inside SpaceX’s Rockets-to-Riches I.P.O. Plan**\
+`The latest prospectus by Elon Musk’s company underscores its confidence in its planned market debut. But skeptics see reasons for concern.`\
+https://www.nytimes.com/2026/06/04/business/dealbook/spacex-ipo-record.html
+
 **Look Closely**\
 `Seeing protests through a camera lens.`\
 https://www.nytimes.com/2026/06/04/briefing/immigration-protest-photography.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/04/movies/another-world-review.html
 **More People Live, Work and Play All in the Same Building**\
 `A study tracked 10 years of new development combining retail, office space and residences.`\
 https://www.nytimes.com/2026/06/04/realestate/mixed-use-bulidings-live-work-play.html
-
-**The Small-Business Owners Managing Whole Armies of A.I. Employees**\
-`When you turn A.I. agents loose on your finances, email and customers, what could possibly go wrong?`\
-https://www.nytimes.com/2026/06/04/magazine/ai-agents-openclaw-small-business.html
-
-**Why Do Most New Movies Look Meh?**\
-`Jessica M. Goldstein, an arts and culture reporter, inspects why movies today look different than they did 20 years ago.`\
-https://www.nytimes.com/video/movies/100000010910459/why-do-most-new-movies-look-meh.html
 
