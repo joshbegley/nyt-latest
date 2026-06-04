@@ -1,3 +1,7 @@
+**Israel and Lebanon Agree to Renew Cease-Fire**\
+`Israel and Lebanon agreed on Wednesday to renew a cease-fire after U.S.-mediated talks in Washington. The agreement depends on the cooperation of Hezbollah, the Iran-backed militia.`\
+https://www.nytimes.com/video/world/middleeast/100000010944098/israel-lebanon-cease-fire.html
+
 **La ambición de Elon Musk por el dinero extraterrestre**\
 `El empresario pone la mira en la muy rentable órbita terrestre baja.`\
 https://www.nytimes.com/es/2026/06/04/espanol/opinion/elon-musk-orbita-baja.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/03/opinion/ebola-disease-trump-musk-usaid.html
 **New York City Subway Entrance Becomes Knicks Fan Landmark**\
 `The M.T.A. painted a subway station orange and blue for the New York Knicks’ first N.B.A. Final appearance in 27 years. Fans of the basketball team posed by the entrance, which is located outside Madison Square Garden.`\
 https://www.nytimes.com/video/us/100000010943054/knicks-nba-finals-subway.html
-
-**New Intelligence Chief’s Expertise: Pursuing Trump’s Enemies**\
-`Tulsi Gabbard’s replacement as the director of national intelligence has no known national security experience.`\
-https://www.nytimes.com/2026/06/03/us/bill-pulte-new-intelligence-chief.html
 

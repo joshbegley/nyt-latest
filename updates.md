@@ -1,3 +1,7 @@
+**Israel and Lebanon Agree to Renew Cease-Fire**\
+`Israel and Lebanon agreed on Wednesday to renew a cease-fire after U.S.-mediated talks in Washington. The agreement depends on the cooperation of Hezbollah, the Iran-backed militia.`\
+https://www.nytimes.com/video/world/middleeast/100000010944098/israel-lebanon-cease-fire.html
+
 **La ambición de Elon Musk por el dinero extraterrestre**\
 `El empresario pone la mira en la muy rentable órbita terrestre baja.`\
 https://www.nytimes.com/es/2026/06/04/espanol/opinion/elon-musk-orbita-baja.html
