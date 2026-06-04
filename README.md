@@ -1,3 +1,15 @@
+**Amid War, Iran’s Soccer Leader Works to Get His Team to the World Cup**\
+`Mehdi Taj said his federation has been dealing with FIFA, not the United States, in trying to obtain visas for Iran to play in the tournament that begins next week.`\
+https://www.nytimes.com/2026/06/04/world/middleeast/iran-soccer-world-cup-war.html
+
+**Quote of the Day: Warrior King Reconquers India as a Hindu Hero**\
+`Quotation of the Day for Thursday, June 4, 2024.`\
+https://www.nytimes.com/2026/06/04/pageoneplus/quote-of-the-day-warrior-king-reconquers-india-as-a-hindu-hero.html
+
+**Corrections: June 4, 2026**\
+`Corrections that appeared in print on Thursday, June 4, 2026.`\
+https://www.nytimes.com/2026/06/04/pageoneplus/corrections-june-4-2026.html
+
 **Sherrill Says Immigration Officials Won’t Let Her Visit Detention Center**\
 `The governor said the Department of Homeland Security’s actions at Delaney Hall raise “serious questions.”`\
 https://www.nytimes.com/2026/06/03/nyregion/nj-governor-sherrill-delaney-hall.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/03/us/elections/california-governor-campaign-fin
 **As Ebola Outbreak Widens, Trump Has Yet to Outline a Plan**\
 `Despite long-established procedures for bringing Americans home for monitoring and treatment, the Trump administration has not said that it will allow those at risk of Ebola back into the country.`\
 https://www.nytimes.com/2026/06/03/us/politics/trump-administration-ebola-response.html
-
-**In Apparent Reversal, Mullin Says Abrego Garcia Could Be Deported to Costa Rica**\
-`Kilmar Armando Abrego Garcia has long said he would willingly go to Costa Rica. His lawyers sent the new homeland security secretary’s comments to the judge handling his deportation case.`\
-https://www.nytimes.com/2026/06/03/us/politics/abrego-garcia-costa-rica-mullin.html
-
-**The World Cup Is Starting Soon. Why Does No One Care?**\
-`It isn’t just because it’s being held in America under Trump.`\
-https://www.nytimes.com/2026/06/03/opinion/world-cup-club-soccer-america.html
-
-**Unusual Greenpeace Lawsuit May Proceed, Dutch Court Says**\
-`Greenpeace International is arguing under Dutch law that an American pipeline company, Energy Transfer, sought to silence it with a costly lawsuit in North Dakota.`\
-https://www.nytimes.com/2026/06/03/climate/greenpeace-energy-transfer-slapp-lawsuit-dakota-access-pipeline.html
 
