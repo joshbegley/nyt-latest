@@ -1,3 +1,7 @@
+**Senate Set to Vote on Motion to Bar Trump From Creating Compensation Fund**\
+`Senator Chuck Schumer, Democrat of New York, introduced the motion. A handful of Republicans have indicated that they would support such a measure, which needs just 50 votes to pass.`\
+https://www.nytimes.com/2026/06/04/us/politics/trump-payout-fund.html
+
 **How LinkedIn Found Its Social Platform Era**\
 `Celebrities and paid influencers have transformed the career-focused platform, which for some users, has become a job unto itself.`\
 https://www.nytimes.com/2026/06/04/business/linkedin-social-media-influencers.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/04/realestate/housing-market-nyc.html
 **Homes for Sale in New York and Connecticut**\
 `This week’s properties are a four-bedroom house in Pleasantville, N.Y., and a five-bedroom house in Stamford, Conn.`\
 https://www.nytimes.com/2026/06/04/realestate/housing-market-near-nyc.html
-
-**Where Sky Meets Water, Sanford Biggers Sees Life’s ‘Drift’**\
-`In his first major solo survey on Long Island, the artist explores his connection to the East End’s natural environment and culture in textile works, prints, sculptures and installations.`\
-https://www.nytimes.com/2026/06/04/arts/design/sanford-biggers-drift-long-island.html
 
