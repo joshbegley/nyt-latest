@@ -1,3 +1,7 @@
+**Fighting in Somalia’s Capital, Mogadishu: What’s Happening and Why It Matters**\
+`Gun battles erupted on Thursday, as armed groups loyal to rival politicians clashed. Residents said it was the worst fighting in years.`\
+https://www.nytimes.com/2026/06/04/world/africa/somalia-mogadishu-fighting.html
+
 **Pommelien Thijs, a Pop Star for Half a Country**\
 `Pommelien Thijs’s catchy tunes are beloved in Belgium — in the Dutch-speaking part, at least.`\
 https://www.nytimes.com/2026/06/04/arts/music/pommelien-thijs-belgium-pop.html
@@ -42,9 +46,9 @@ https://www.nytimes.com/2026/06/04/crosswords/strands-sidekick-824.html
 `Scroll down for hints and conversation about the puzzle for Friday, June 5, 2026.`\
 https://www.nytimes.com/2026/06/04/crosswords/wordle-review-1812.html
 
-**Marjane Satrapi, Author of ‘Persepolis,’ Dies at 56**\
-`Her graphic novel series, published in English in 2003, followed an Iranian girl through the Islamic revolution and the Iran-Iraq War. The work helped millions relate to Iranians.`\
-https://www.nytimes.com/2026/06/04/world/europe/marjane-satrapi-persepolis-death.html
+**Marjane Satrapi, the Author of ‘Persepolis,’ Dies at 56**\
+`Her popular graphic novel series, published in the early 2000s, followed an Iranian girl through the Islamic Revolution and the Iran-Iraq War.`\
+https://www.nytimes.com/2026/06/04/world/middleeast/marjane-satrapi-dead.html
 
 **Iran War Live Updates: Israel Says It Targeted Hezbollah After New Cease-Fire With Lebanon**\
 `The U.S.-brokered talks to clinch the deal did not include Hezbollah, the Iranian-backed armed group, which said it had fired rockets at Israeli targets hours after the truce was announced.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/04/movies/jinsei-review.html
 **Saving Alice’s Adventures in New York. Her Mural Traveled a Rabbit Hole Too.**\
 `“Another Wonderland: Abram Champanier’s Alice Mural” at the Museum of the City of New York brings together 16 panels of the only surviving W.P.A. mural from a hospital children’s ward.`\
 https://www.nytimes.com/2026/06/04/arts/saving-alices-adventures-in-new-york-her-mural-traveled-a-rabbit-hole-too.html
-
-**Review: In ‘Another World,’ the Afterlife Glows Red**\
-`The director Tommy Ng Kai Chung turns reincarnation into a visually lush exploration of the human condition.`\
-https://www.nytimes.com/2026/06/04/movies/another-world-review.html
 
