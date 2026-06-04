@@ -1,3 +1,7 @@
+**Rebecca Grossman and Scott Erickson, Ex-MLB Pitcher, Found Liable for $176 Million in Hit-and-Run**\
+`The jury ruled against Rebecca Grossman, a philanthropist, and Scott Erickson, a former M.L.B. pitcher. Ms. Grossman was earlier convicted of murder in the case.`\
+https://www.nytimes.com/2026/06/04/us/rebecca-grossman-scott-erickson-trial-damages.html
+
 **Who’s Excited for SpaceX’s I.P.O.? Space Nerds.**\
 `Few are as delighted by the pending market debut as the vibrant community of space enthusiasts who want to push discovery of the final frontier.`\
 https://www.nytimes.com/2026/06/04/technology/space-nerds-spacex-ipo.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/04/theater/lane-metcalf-mantello-death-of-a-sale
 **What Are Dot Cakes, the Internet’s Latest Obsession?**\
 `An $11 confection known as a dotcake has New Yorkers queuing up at 6 a.m.`\
 https://www.nytimes.com/2026/06/04/style/dot-cakes-tiktok.html
-
-**The Democrats’ Big Decision: Black Representation or More Blue Seats?**\
-`As Republicans break up majority-Black House districts, Democrats must decide whether to preserve seats concentrated in urban areas or push them into white suburbs to target G.O.P. seats.`\
-https://www.nytimes.com/2026/06/04/us/politics/democrats-black-representation-redistricting.html
 
