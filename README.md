@@ -1,3 +1,7 @@
+**California Wildfires Outlook: Forecasters Say El Niño Makes Outlook Less Certain**\
+`After late-spring rain, and with an El Niño brewing, experts say the outlook for the summer is especially complicated.`\
+https://www.nytimes.com/2026/06/04/weather/california-fire-forecast.html
+
 **Los republicanos empiezan a poner a prueba los límites del poder de Trump**\
 `El estilo de gobierno unilateral y vengativo del presidente de Estados Unidos comienza a chocar contra un muro en ambas cámaras del Congreso.`\
 https://www.nytimes.com/es/2026/06/04/espanol/estados-unidos/trump-republicanos-represalias-limites.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/04/us/politics/trump-nominate-blanche-attorney-g
 **Inside SpaceX’s Rockets-to-Riches I.P.O. Plan**\
 `The latest prospectus by Elon Musk’s company underscores its confidence in its planned market debut. But skeptics see reasons for concern.`\
 https://www.nytimes.com/2026/06/04/business/dealbook/spacex-ipo-record.html
-
-**Look Closely**\
-`Seeing protests through a camera lens.`\
-https://www.nytimes.com/2026/06/04/briefing/immigration-protest-photography.html
 
 **Mideast Live Updates: Israel and Hezbollah Trade Strikes, Leaving New Cease-Fire in Doubt**\
 `Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, had rejected a deal worked out between Israel and the Lebanese government.`\
