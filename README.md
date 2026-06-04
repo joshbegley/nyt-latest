@@ -1,3 +1,7 @@
+**Rioting, Assault, Violating Curfew: The Charges ICE Protesters Face**\
+`More than 80 people have been arrested during turbulent protests outside the Delaney Hall immigrant detention center in New Jersey over the past two weeks.`\
+https://www.nytimes.com/2026/06/04/nyregion/delaney-hall-protests-charges.html
+
 **Books Our Editors Loved This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/06/04/books/review/new-recommended-books.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/04/briefing/immigration-protest-photography.html
 **Hezbollah’s Fiber-Optic Drones Expose Cracks in Israeli Defenses**\
 `The Lebanese militant group’s attacks have caught Israelis off guard, forcing its political and military leaders to scramble for solutions.`\
 https://www.nytimes.com/2026/06/04/world/middleeast/hezbollah-fiber-optic-drones-israel.html
-
-**Alan Gribben, Twain Scholar Who Excised Slur From ‘Huck Finn,’ Dies at 84**\
-`He made it his mission to track down every book Mark Twain owned — and to fix what he saw as flaws that kept schools from teaching the author’s most famous works.`\
-https://www.nytimes.com/2026/06/04/books/alan-gribben-dead.html
 
 **Mideast Live Updates: Israel and Hezbollah Trade Strikes, Leaving New Cease-Fire in Doubt**\
 `Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, had rejected a deal worked out between Israel and the Lebanese government.`\

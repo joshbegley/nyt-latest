@@ -1,3 +1,11 @@
+**Books Our Editors Loved This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/06/04/books/review/new-recommended-books.html
+
+**Senators Cassidy and Booker Ask Judge to Maintain Block on $1.8 Billion Fund**\
+`Bill Cassidy, a Republican, and Cory Booker, a Democrat, maintained that the fund was “an immediate and dire threat to our constitutional order and the authority of Congress.”`\
+https://www.nytimes.com/2026/06/04/us/politics/cassidy-booker-lawsuit-trump-fund.html
+
 **Kennedy Center Tells Staff to Immediately Remove Trump’s Name From Documents**\
 `The center’s general counsel also said that a federal judge’s order meant the president’s name must be taken off indoor and outdoor signage by June 12.`\
 https://www.nytimes.com/2026/06/04/arts/music/kennedy-center-trump-name-memo.html
