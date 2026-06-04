@@ -1,3 +1,47 @@
+**Justice Department Tells Prosecutors to Pursue Immigrant Vote Fraud Cases**\
+`About 90 such investigations are currently open, a Justice Department official told prosecutors. The tally offers a glimpse inside the scale of the administration’s efforts.`\
+https://www.nytimes.com/2026/06/04/us/immigrants-vote-fraud.html
+
+**Israel Trades Strikes With Hezbollah After New Cease-Fire With Lebanon**\
+`Israel and Hezbollah fighters traded attacks hours after the Trump administration brokered a new cease-fire agreement between the two countries. Hezbollah’s leader said the Iranian-backed militant group rejected the new deal.`\
+https://www.nytimes.com/video/world/middleeast/100000010944519/israel-hezbollah-strikes-lebanon-ceasefire.html
+
+**Muere Marjane Satrapi, autora de ‘Persépolis’, a los 56 años**\
+`Su popular serie de novelas gráficas, publicada a principios de la década de 2000, seguía a una niña iraní a través de la Revolución Islámica y la guerra Irán-Irak.`\
+https://www.nytimes.com/es/2026/06/04/espanol/cultura/muere-marjane-satrapi-persepolis.html
+
+**Today, In Short**\
+`Dot cakes. “Summer House.” And the Knicks.`\
+https://www.nytimes.com/2026/06/04/briefing/today-in-short.html
+
+**How One Company Plans to Mine the Bottom of the Sea**\
+`A look at the quest to mine the bottom of the ocean for valuable minerals, the connection between light pollution and allergies and more climate news.`\
+https://www.nytimes.com/2026/06/04/climate/deep-sea-mining-metals-company.html
+
+**Prada Takes Over Katz’s Deli With Cole Escola, Amanda Gorman and Lots of Pastrami**\
+`To kick off its cultural series, Prada Mode, the Italian fashion house brought together celebrities and influencers for dancing and sandwiches.`\
+https://www.nytimes.com/2026/06/04/style/prada-mode-nyc-kojima-hotel-chelsea.html
+
+**What Are A.I. Agents Actually Doing?**\
+`A San Francisco start-up called Arena found that people are most likely to use A.I. agents on the job, particularly if they are in the tech industry.`\
+https://www.nytimes.com/2026/06/04/technology/ai-agents-arena.html
+
+**Wim Wenders Pulls Film With Teenage Nudity After Pleas by Nastassja Kinski**\
+`Nastassja Kinski was 13 years old when she was shown topless in the 1975 film “Wrong Move.” “I could already tell that wasn’t right,” she told a German newspaper.`\
+https://www.nytimes.com/2026/06/04/movies/wim-wenders-nastassja-kinski-nudity-topless-wrong-move.html
+
+**Ultra-Orthodox Riot Shocks Israelis In Latest Protest At Military Draft**\
+`Israel’s Haredim have escalated their protests against military service in recent weeks, underscoring growing divisions ahead of national elections.`\
+https://www.nytimes.com/2026/06/04/world/middleeast/israel-orthodox-riot-military-draft-judge.html
+
+**Bernard Roizman, Virologist Who Demystified Herpes, Dies at 96**\
+`He mapped the herpes simplex virus genome, revealing how it invades cells. His work also helped lay the groundwork for potential vaccines and gene therapies.`\
+https://www.nytimes.com/2026/06/04/science/bernard-roizman-dead.html
+
+**Four Republicans Rebuke Trump to Rein In War Powers**\
+`Four Republican lawmakers crossed party lines to vote in a measure that seeks to stop the president from taking further military action in Iran.`\
+https://www.nytimes.com/video/us/politics/100000010944299/trump-war-powers-iran.html
+
 **Early Research Suggests a Path to Predict and Prevent Lung Cancer**\
 `Scientists have identified proteins that could signal increased lung cancer risk, as well as a drug that could reduce the odds of a tumor developing.`\
 https://www.nytimes.com/2026/06/04/well/lung-cancer-prevention.html
@@ -149,52 +193,4 @@ https://www.nytimes.com/2026/06/04/opinion/trump-science-shakespeare-memory-poet
 **Padecía mareos y molestias cuando giraba la cabeza. ¿Por qué?**\
 `Los síntomas de este hombre eran intermitentes, y vivió con ellos durante años. Entonces se asustó lo suficiente como para buscar ayuda.`\
 https://www.nytimes.com/es/2026/06/04/espanol/estilos-de-vida/mareos-molestias-diagnostico.html
-
-**Can Abelardo De La Espriella, a U.S. Citizen, Become Colombia’s President?**\
-`President Trump this week endorsed the right-wing candidate, Abelardo De La Espriella, a dual citizen of Colombia and the United States, in Colombia’s presidential runoff.`\
-https://www.nytimes.com/2026/06/04/world/americas/colombia-president-de-la-espriella-us-citizen.html
-
-**Trump Is Finally Facing Reality on A.I.**\
-`A.I. will upend cybersecurity as we know it. The president’s new executive order is a good first step in creating a safer tech ecosystem.`\
-https://www.nytimes.com/2026/06/04/opinion/trump-ai-executive-order-cybersecurity.html
-
-**They Wanted to Upsize for Their Kids, but Could They Do It on the Upper West Side?**\
-`With about $1.5 million to spend, a couple looked for more bedrooms, some office space and an easy commute to school.`\
-https://www.nytimes.com/interactive/2026/06/04/realestate/upper-west-side-manhattan-coops.html
-
-**The Do’s and Don’ts of Buying Used Tech Gadgets**\
-`With a shortage of some components driving up costs of consumer electronics, refurbished devices are an attractive alternative to buying new.`\
-https://www.nytimes.com/2026/06/04/technology/personaltech/used-tech-refurbished.html
-
-**Priest’s Ebola Death Stirs Fear and Doubt in Congolese Town**\
-`Priest’s Ebola Death Stirs Fear an Doubt in Congolese Town`\
-https://www.nytimes.com/2026/06/04/world/africa/ebola-congo-funeral-photo.html
-
-**Colombia’s Yellow World Cup Jersey, Once a Symbol of Unity, Becomes a Political Statement**\
-`A presidential candidate endorsed by President Trump has been accused by some Colombians of co-opting their beloved national team’s yellow soccer jersey.`\
-https://www.nytimes.com/2026/06/04/world/americas/colombia-world-cup-jersey-politics.html
-
-**Should You Outsource Your Morning Routine to a Chatbot?**\
-`A.I. wants to help you start the day. Its suggestions? Drink coffee and get dressed.`\
-https://www.nytimes.com/2026/06/04/magazine/ai-chatbot-morning-routine-videos.html
-
-**The 2026 Tony Awards: Is Broadway Going Easy On Us? | Cannonball**\
-`The Tony Awards are on Sunday, but this year’s theater season lacked … something.`\
-https://www.nytimes.com/2026/06/04/podcasts/tony-awards-broadway-cannonball.html
-
-**Is Broadway Going Easy on Us?**\
-`Wesley Morris and The Times’s chief theater critic, Helen Shaw, compare notes on the 2025-26 Broadway season ahead of the Tony Awards.`\
-https://www.nytimes.com/video/podcasts/100000010939265/is-broadway-going-easy-on-us.html
-
-**Melinda French Gates: Women, We Deserve Better Than This**\
-`Too many women walk out of their doctors’ office with no diagnosis, no treatment and no plan.`\
-https://www.nytimes.com/2026/06/04/opinion/menopause-women-health-care.html
-
-**A Chance to Shop the Paris Opera’s Jewel-Encrusted Closet**\
-`Vintage ball gowns, potbellied fat suits and diaphanous tunics were among the offerings when the Paris Opera held a public sale of opera and ballet costumes.`\
-https://www.nytimes.com/2026/06/04/arts/music/paris-opera-costumes-sale.html
-
-**The U.S.-Qatar Domination of Gas Left the World Dangerously Exposed**\
-`Before the war, the global market for liquefied natural gas was increasingly commanded by just two countries, one of which has now been hobbled.`\
-https://www.nytimes.com/2026/06/04/business/gas-supply-usa-qatar.html
 
