@@ -1,3 +1,7 @@
+**John Bolton Reaches Deal to Plead Guilty Over Classified Information**\
+`The former Trump national security adviser plans to plead guilty to a count of illegal retention of classified information, which could result in a fine and possibly prison time of up to five years.`\
+https://www.nytimes.com/2026/06/04/us/politics/john-bolton-plea-deal.html
+
 **Senate Set to Vote on Motion to Bar Trump From Creating Compensation Fund**\
 `Senator Chuck Schumer, Democrat of New York, introduced the motion. A handful of Republicans have indicated that they would support such a measure, which needs just 50 votes to pass.`\
 https://www.nytimes.com/2026/06/04/us/politics/trump-payout-fund.html
