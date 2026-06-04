@@ -1,4 +1,8 @@
-**New ‘60 Minutes’ Chief Promises Independence in Bid to Reassure Staff**\
+**Trump’s Fraud Claims in California Could Undermine Confidence in November Result**\
+`The president is claiming without evidence that the lengthy counting process in California, which could help determine control of Congress, means Democrats are stealing the election.`\
+https://www.nytimes.com/2026/06/04/us/politics/-trump-vote-fraud.html
+
+**Nick Bilton, New ‘60 Minutes’ Chief, Pledges Independence**\
 `Nick Bilton said he had consulted with the program’s remaining correspondents: Lesley Stahl, Jon Wertheim and Bill Whitaker. All three were deliberating whether to stay with the show, two people said.`\
 https://www.nytimes.com/2026/06/04/business/nick-bilton-60-minutes-memo.html
 
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/world/middleeast/100000010944519/israel-hezbollah-
 **Latest Israel-Lebanon Cease-Fire Shows Little Sign of Taking Hold**\
 `The U.S.-brokered deal depends on Hezbollah halting its attacks first. But the leader of the Iran-backed group rejected those terms, and Israel said that its offensive would continue.`\
 https://www.nytimes.com/2026/06/04/world/middleeast/lebanon-israel-ceasefire-hezbollah-strikes.html
-
-**Muere Marjane Satrapi, autora de ‘Persépolis’, a los 56 años**\
-`Su popular serie de novelas gráficas, publicada a principios de la década de 2000, seguía a una niña iraní a través de la Revolución Islámica y la guerra Irán-Irak.`\
-https://www.nytimes.com/es/2026/06/04/espanol/cultura/muere-marjane-satrapi-persepolis.html
 
 **Mideast Live Updates: Hezbollah Rejects Cease-Fire Deal Between Lebanon and Israel**\
 `Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, said a truce worked out between Israel and the Lebanese government amounted to surrender for his group.`\
