@@ -171,7 +171,7 @@ https://www.nytimes.com/video/movies/100000010910459/why-do-most-new-movies-look
 https://www.nytimes.com/2026/06/04/climate/urban-light-pollution-pollen-allergies.html
 
 **Book Review: ‘Checkmate,’ by Ben Mezrich**\
-`“Checkmate,” Ben Mezrich’s tale of chess scandal, may be ready for its close-up — but not for a close read.`\
+`The story at the heart of “Checkmate” is a good one, but Ben Mezrich has hustled it into print too quickly.`\
 https://www.nytimes.com/2026/06/04/books/review/checkmate-ben-mezrich.html
 
 **Can These ChatGPT Ads Make You Love A.I.?**\
