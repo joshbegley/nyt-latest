@@ -1,3 +1,11 @@
+**Brian Cox Really Loves Soccer. He Thinks You Should, Too.**\
+`Adam Crafton sits down with the ‘Succession’ actor about what the game means to him.`\
+https://www.nytimes.com/2026/06/04/podcasts/brian-cox-really-loves-soccer-he-thinks-you-should-too.html
+
+**Several Women Who Dated Graham Platner Recall ‘Unsettling’ Behavior**\
+`The Democratic candidate for Senate in Maine could be charming, women said in interviews, but some found his actions intimidating and disturbing.`\
+https://www.nytimes.com/2026/06/04/us/politics/platner-maine-senate-girlfriends-relationships.html
+
 **But First, Restaurant**\
 `Three New York City restaurants where the coffee is as good as the food.`\
 https://www.nytimes.com/2026/06/04/dining/but-first-restaurant.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/04/us/politics/supreme-court-cellphone-carriers-
 **John Bolton, Ex-Trump Adviser, Reaches Deal to Plead Guilty Over Classified Information**\
 `The former Trump national security adviser plans to plead guilty to a count of illegal retention of classified information, which could result in a fine and possibly prison time of up to five years.`\
 https://www.nytimes.com/2026/06/04/us/politics/john-bolton-plea-deal.html
-
-**Rebecca Grossman and Scott Erickson, Ex-MLB Pitcher, Found Liable for $176 Million in Hit-and-Run**\
-`The jury ruled against Rebecca Grossman, a philanthropist, and Scott Erickson, a former M.L.B. pitcher. Ms. Grossman was earlier convicted of murder in the case.`\
-https://www.nytimes.com/2026/06/04/us/rebecca-grossman-scott-erickson-trial-damages.html
-
-**Who’s Excited for SpaceX’s I.P.O.? Space Nerds.**\
-`Few are as delighted by the pending market debut as the vibrant community of space enthusiasts who want to push discovery of the final frontier.`\
-https://www.nytimes.com/2026/06/04/technology/space-nerds-spacex-ipo.html
 
 **Mideast Live Updates: Israel and Hezbollah Trade Strikes, Leaving New Cease-Fire in Doubt**\
 `Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, had rejected a deal worked out between Israel and the Lebanese government.`\

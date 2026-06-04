@@ -1,3 +1,11 @@
+**Brian Cox Really Loves Soccer. He Thinks You Should, Too.**\
+`Adam Crafton sits down with the ‘Succession’ actor about what the game means to him.`\
+https://www.nytimes.com/2026/06/04/podcasts/brian-cox-really-loves-soccer-he-thinks-you-should-too.html
+
+**Several Women Who Dated Graham Platner Recall ‘Unsettling’ Behavior**\
+`The Democratic candidate for Senate in Maine could be charming, women said in interviews, but some found his actions intimidating and disturbing.`\
+https://www.nytimes.com/2026/06/04/us/politics/platner-maine-senate-girlfriends-relationships.html
+
 **But First, Restaurant**\
 `Three New York City restaurants where the coffee is as good as the food.`\
 https://www.nytimes.com/2026/06/04/dining/but-first-restaurant.html
