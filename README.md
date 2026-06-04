@@ -1,3 +1,7 @@
+**How Does LA Count Election Ballots? It Begins With a Dog Sniff.**\
+`Counting ballots in California is a complex and lengthy undertaking. In Los Angeles, the choreographed process includes canines, humans and machines.`\
+https://www.nytimes.com/2026/06/03/us/elections/los-angeles-ballot-counting-dogs.html
+
 **Israel and Lebanon Renew Cease-Fire, Calling for Evacuation of Hezbollah Operatives**\
 `The agreement depends on the cooperation of Hezbollah, the Iran-backed militia. The cease-fire could remove an obstacle in the talks between the United States and Iran.`\
 https://www.nytimes.com/2026/06/03/world/middleeast/israel-lebanon-ceasefire-hezbollah.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/03/world/europe/alex-younger-dead.html
 **I Almost Had a Baby with My BFF**\
 `Joseph Osmundson tells Anna Martin, host of the “Modern Love” podcast, how he felt when his dream of conceiving and co-parenting a baby with his best friend and her partner did not unfold as planned.`\
 https://www.nytimes.com/video/podcasts/100000010942418/i-almost-had-a-baby-with-my-bff.html
-
-**Protests Over Murder Case in Britain Turn Violent**\
-`Protests in Southampton turned violent on Tuesday after far-right commentators made claims that the police’s handling of a murder case in Britain showed the authorities were biased against white people.`\
-https://www.nytimes.com/video/world/europe/100000010941938/henry-nowak-murder-case-protests-uk.html
 
