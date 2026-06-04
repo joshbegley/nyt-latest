@@ -1,3 +1,11 @@
+**Bill Bradley, 2-Time Champion With the Knicks, Cheers on His Old Team in the Finals**\
+`Watching Game 1 of the Knicks-Spurs series, Bill Bradley, the two-time N.B.A. champion and former U.S. senator, spoke reverently of teamwork — and had a few choice words for the refs.`\
+https://www.nytimes.com/2026/06/04/nyregion/bill-bradley-knicks-finals-game-1.html
+
+**How We Are Illustrating Trump’s Plans to Remake Washington**\
+`With the East Wing turned to rubble, our Graphics staff set out to show what exactly the president planned to build there and elsewhere.`\
+https://www.nytimes.com/2026/06/04/insider/trump-ballroom-arch-washington.html
+
 **Limmie Pulliam, Tenor Who Overcame the Stigma of His Size, Dies at 50**\
 `He quit singing in his early 20s when opera companies objected to his appearance, but after a 12-year absence he revived his career to acclaim.`\
 https://www.nytimes.com/2026/06/04/arts/music/limmie-pulliam-dead.html
