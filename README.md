@@ -1,3 +1,59 @@
+**The 2026 Tony Awards: Is Broadway Going Easy On Us? | Cannonball**\
+`The Tony Awards are on Sunday, but this year’s theater season lacked … something.`\
+https://www.nytimes.com/2026/06/04/podcasts/tony-awards-broadway-cannonball.html
+
+**Is Broadway Going Easy on Us?**\
+`Wesley Morris and The Times’s chief theater critic, Helen Shaw, compare notes on the 2025-26 Broadway season ahead of the Tony Awards.`\
+https://www.nytimes.com/video/podcasts/100000010939265/is-broadway-going-easy-on-us.html
+
+**Melinda French Gates: America Needs a Menopause Revolution**\
+`Too many women walk out of their doctors’ office with no diagnosis, no treatment and no plan.`\
+https://www.nytimes.com/2026/06/04/opinion/menopause-women-health-care.html
+
+**A Chance to Shop the Paris Opera’s Jewel-Encrusted Closet**\
+`Vintage ball gowns, potbellied fat suits and diaphanous tunics were among the offerings when the Paris Opera held a public sale of opera and ballet costumes.`\
+https://www.nytimes.com/2026/06/04/arts/music/paris-opera-costumes-sale.html
+
+**The U.S.-Qatar Domination of Gas Left the World Dangerously Exposed**\
+`Before the war, the global market for liquefied natural gas was increasingly commanded by just two countries, one of which has now been hobbled.`\
+https://www.nytimes.com/2026/06/04/business/gas-supply-usa-qatar.html
+
+**How Landlords Can Cope With a Rent Freeze**\
+`Moody’s, a ratings agency, says Mayor Zohran Mamdani's plan to freeze stabilized rents would inflict some pain on landlords, but most would be fine.`\
+https://www.nytimes.com/2026/06/04/nyregion/how-landlords-can-cope-with-a-rent-freeze.html
+
+**America Doesn’t Have to Hold Unfair, Unrepresentative Elections**\
+`Americans should think big about shaking up how we vote.`\
+https://www.nytimes.com/2026/06/04/opinion/voting-gerrymandering-election.html
+
+**Homes for Sale in Manhattan and Queens**\
+`This week’s properties are in Greenwich Village, on the Upper East Side and in Hunters Point.`\
+https://www.nytimes.com/2026/06/04/realestate/housing-market-nyc.html
+
+**Homes for Sale in New York and Connecticut**\
+`This week’s properties are a four-bedroom house in Pleasantville, N.Y., and a five-bedroom house in Stamford, Conn.`\
+https://www.nytimes.com/2026/06/04/realestate/housing-market-near-nyc.html
+
+**Where Sky Meets Water, Sanford Biggers Sees Life’s ‘Drift’**\
+`In his first major solo survey on Long Island, the artist explores his connection to the East End’s natural environment and culture in textile works, prints, sculptures and installations.`\
+https://www.nytimes.com/2026/06/04/arts/design/sanford-biggers-drift-long-island.html
+
+**36 Hours on the Isle of Skye, Scotland: Things to Do and See**\
+`With its wide, windy beaches, rugged landscapes and medieval sites — not to mention its trove of whisky distilleries — Scotland’s Isle of Skye offers a more meditative summer escape.`\
+https://www.nytimes.com/interactive/2026/06/04/travel/things-to-do-isle-of-skye.html
+
+**Nathan Lane and Laurie Metcalf on Their Tony-Nominated ‘Death of a Salesman’**\
+`The stars Nathan Lane and Laurie Metcalf talk with the show’s director, Joe Mantello, about the exhilaration of collaborating and the trap of sentimentality.`\
+https://www.nytimes.com/2026/06/04/theater/lane-metcalf-mantello-death-of-a-salesman-broadway.html
+
+**What Are Dot Cakes, the Internet’s Latest Obsession?**\
+`An $11 confection known as a dotcake has New Yorkers queuing up at 6 a.m.`\
+https://www.nytimes.com/2026/06/04/style/dot-cakes-tiktok.html
+
+**The Democrats’ Big Decision: Black Representation or More Blue Seats?**\
+`As Republicans break up majority-Black House districts, Democrats must decide whether to preserve seats concentrated in urban areas or push them into white suburbs to target G.O.P. seats.`\
+https://www.nytimes.com/2026/06/04/us/politics/democrats-black-representation-redistricting.html
+
 **‘Underland’ Review: Subterranean Adventurers**\
 `All over the world, voyagers are descending, legally and not, into the lower depths. This documentary offers a frustratingly abbreviated look at three of them.`\
 https://www.nytimes.com/2026/06/04/movies/underland-review-subterranean-adventurers.html
@@ -141,60 +197,4 @@ https://www.nytimes.com/es/2026/06/04/espanol/opinion/mundial-poco-entusiasmo.ht
 **The Strait of Hormuz Is Blocked. The World Is Adjusting.**\
 `The longer we go without oil from the Persian Gulf, the less we’ll need it.`\
 https://www.nytimes.com/2026/06/04/opinion/strait-of-hormuz-oil-iran-war-energy.html
-
-**Europa ya no quiere depender tecnológicamente de EE. UU.**\
-`La Unión Europea adelanta cómo planea tomar las riendas de sus centros de datos, semiconductores y computación en la nube.`\
-https://www.nytimes.com/es/2026/06/04/espanol/negocios/europa-dependencia-tecnologica.html
-
-**En plena guerra, el presidente del fútbol iraní trabaja para que su selección vaya al Mundial**\
-`Mehdi Taj dijo que su federación ha estado tratando con la FIFA, y no con Estados Unidos, para intentar obtener visados para que Irán juegue en el torneo que comienza la próxima semana.`\
-https://www.nytimes.com/es/2026/06/04/espanol/mundo/iran-mundial-fifa.html
-
-**Amid War, Iran’s Soccer Leader Works to Get His Team to the World Cup**\
-`Mehdi Taj said his federation has been dealing with FIFA, not the United States, in trying to obtain visas for Iran to play in the tournament that begins next week.`\
-https://www.nytimes.com/2026/06/04/world/middleeast/iran-soccer-world-cup-war.html
-
-**Quote of the Day: Warrior King Reconquers India as a Hindu Hero**\
-`Quotation of the Day for Thursday, June 4, 2024.`\
-https://www.nytimes.com/2026/06/04/pageoneplus/quote-of-the-day-warrior-king-reconquers-india-as-a-hindu-hero.html
-
-**Corrections: June 4, 2026**\
-`Corrections that appeared in print on Thursday, June 4, 2026.`\
-https://www.nytimes.com/2026/06/04/pageoneplus/corrections-june-4-2026.html
-
-**Sherrill Says Immigration Officials Won’t Let Her Visit Detention Center**\
-`The governor said the Department of Homeland Security’s actions at Delaney Hall raise “serious questions.”`\
-https://www.nytimes.com/2026/06/03/nyregion/nj-governor-sherrill-delaney-hall.html
-
-**We Interrupt This Knicks Victory for a Political Ad Starring Mamdani**\
-`Mayor Zohran Mamdani lent his political star power to an unusual TV ad promoting three Democrats running for House seats in New York City.`\
-https://www.nytimes.com/2026/06/03/nyregion/mamdani-knicks-ad-campaign.html
-
-**Pace Gallery Cuts 50 Artists and 50 Staff Amid Art Market Challenges**\
-`A challenging art market is forcing even an established player to contract.`\
-https://www.nytimes.com/2026/06/03/arts/design/pace-gallery-artist-cuts.html
-
-**How Does LA Count Election Ballots? It Begins With a Dog Sniff.**\
-`Counting ballots in California is a complex and lengthy undertaking. In Los Angeles, the choreographed process includes canines, humans and machines.`\
-https://www.nytimes.com/2026/06/03/us/elections/los-angeles-ballot-counting-dogs.html
-
-**Israel and Lebanon Renew Cease-Fire, Calling for Evacuation of Hezbollah Operatives**\
-`The agreement depends on the cooperation of Hezbollah, the Iran-backed militia. The cease-fire could remove an obstacle in the talks between the United States and Iran.`\
-https://www.nytimes.com/2026/06/03/world/middleeast/israel-lebanon-ceasefire-hezbollah.html
-
-**Flesh-Eating Pest Confirmed in U.S. Cattle**\
-`The New World screwworm was found in a calf in South Texas, the Agriculture Department said, the first case in the country since the 1960s.`\
-https://www.nytimes.com/2026/06/03/business/new-world-screwworm-texas.html
-
-**Why Los Angeles Mayor Karen Bass Has to Fight for Her Job**\
-`Ms. Bass, a Democrat, has had a roller-coaster first term. She now faces the first runoff since 2005 for an incumbent mayor in the city.`\
-https://www.nytimes.com/2026/06/03/us/elections/karen-bass-la-mayor.html
-
-**NYT Crossword Answers for June 4, 2026**\
-`Joe Deeney takes us on a solving spree.`\
-https://www.nytimes.com/2026/06/03/crosswords/daily-puzzle-2026-06-04.html
-
-**Israel’s High Court Rejects Ban on Red Cross Visits for Palestinian Prisoners**\
-`Israel forbade the visits, which allow the Red Cross to monitor prisoners’ conditions, in 2023. Justices said the policy violated Israeli and international law.`\
-https://www.nytimes.com/2026/06/03/world/middleeast/israel-supreme-court-red-cross-palestinian-prisoners.html
 

@@ -1,3 +1,99 @@
+**‘Underland’ Review: Subterranean Adventurers**\
+`All over the world, voyagers are descending, legally and not, into the lower depths. This documentary offers a frustratingly abbreviated look at three of them.`\
+https://www.nytimes.com/2026/06/04/movies/underland-review-subterranean-adventurers.html
+
+**‘She’s the He’ Review: A Campy, Gender Swap Comedy**\
+`Nico Carney and Misha Osherovich play best friends on a mission to enter the women’s locker room.`\
+https://www.nytimes.com/2026/06/04/movies/shes-the-he-review.html
+
+**When Is It Time to Quit Therapy?**\
+`Our Ask the Therapist columnist, Lori Gottlieb, advises a reader who wants to stop subsidizing her partner’s therapy habit.`\
+https://www.nytimes.com/2026/06/04/well/mind/therapy-not-working.html
+
+**‘Masters of the Universe’ Review: Becoming a He-Man**\
+`The filmmakers behind this new live-action movie lean into the franchise’s ridiculousness, with sometimes engaging results.`\
+https://www.nytimes.com/2026/06/04/movies/masters-of-the-universe-review.html
+
+**‘The Little Sister’ Review: Learning to Love**\
+`A French Algerian teenager grapples with her sexuality and her faith in a tender coming-of-age drama.`\
+https://www.nytimes.com/2026/06/04/movies/the-little-sister-review.html
+
+**‘Carolina Caroline’ Review: Hearts on the Run**\
+`Samara Weaving and Kyle Gallner are magnetic in this lovers-on-the-lam joint awash in soulful sincerity.`\
+https://www.nytimes.com/2026/06/04/movies/carolina-caroline-review.html
+
+**‘Jinsei’ Review: Dreaming of J-Pop Stardom**\
+`In this anime film that follows a taciturn man over decades, the restrained animation is a saving grace.`\
+https://www.nytimes.com/2026/06/04/movies/jinsei-review.html
+
+**Saving Alice’s Adventures in New York. Her Mural Traveled a Rabbit Hole Too.**\
+`“Another Wonderland: Abram Champanier’s Alice Mural” at the Museum of the City of New York brings together 16 panels of the only surviving W.P.A. mural from a hospital children’s ward.`\
+https://www.nytimes.com/2026/06/04/arts/saving-alices-adventures-in-new-york-her-mural-traveled-a-rabbit-hole-too.html
+
+**Review: In ‘Another World,’ the Afterlife Glows Red**\
+`The director Tommy Ng Kai Chung turns reincarnation into a visually lush exploration of the human condition.`\
+https://www.nytimes.com/2026/06/04/movies/another-world-review.html
+
+**More People Live, Work and Play All in the Same Building**\
+`A study tracked 10 years of new development combining retail, office space and residences.`\
+https://www.nytimes.com/2026/06/04/realestate/mixed-use-bulidings-live-work-play.html
+
+**The Small-Business Owners Managing Whole Armies of A.I. Employees**\
+`When you turn A.I. agents loose on your finances, email and customers, what could possibly go wrong?`\
+https://www.nytimes.com/2026/06/04/magazine/ai-agents-openclaw-small-business.html
+
+**Why Do Most New Movies Look Meh?**\
+`Jessica M. Goldstein, an arts and culture reporter, inspects why movies today look different than they did 20 years ago.`\
+https://www.nytimes.com/video/movies/100000010910459/why-do-most-new-movies-look-meh.html
+
+**Urban Light Pollution Might Be Worsening Allergies**\
+`Light pollution prompts plants to shed pollen longer and stronger, according to new research.`\
+https://www.nytimes.com/2026/06/04/climate/urban-light-pollution-pollen-allergies.html
+
+**Book Review: ‘Checkmate,’ by Ben Mezrich**\
+`“Checkmate,” Ben Mezrich’s tale of chess scandal, may be ready for its close-up — but not for a close read.`\
+https://www.nytimes.com/2026/06/04/books/review/checkmate-ben-mezrich.html
+
+**Can These ChatGPT Ads Make You Love A.I.?**\
+`A campaign for ChatGPT relies on heartwarming retro vibes to sell a product that has become a source of concern for most Americans.`\
+https://www.nytimes.com/2026/06/04/style/chatgpt-advertising-campaign-artificial-intelligence.html
+
+**Ireland, Seen as a Weak Link in Europe’s Defense, Is Trying to Bulk Up**\
+`As concern rises in Europe over threats from an emboldened Russia, the Irish government says it’s working to plug gaps in its military, which reflect a tradition of neutrality.`\
+https://www.nytimes.com/2026/06/04/world/europe/ireland-defense.html
+
+**11 Books That Capture the Swoon-Worthy Drama of Wedding Season**\
+`These books dig into the thrilling, ugly and swoon-worthy drama of a happy couple’s big day.`\
+https://www.nytimes.com/2026/06/04/books/wedding-novels.html
+
+**How Black Churches Are Raising Dementia Awareness**\
+`Faith and science are coming together to reduce stigma and improve care in the African American community.`\
+https://www.nytimes.com/2026/06/04/well/mind/dementia-disparities-black-churches.html
+
+**Can Better Running Shoes Really Make You Faster?**\
+`Companies are investing in scientific labs in pursuit of a sneaker that could help marathon runners shave up to four minutes off their record. But some are skeptical of the results.`\
+https://www.nytimes.com/2026/06/04/style/running-shoes-speed-nike-adidas-puma.html
+
+**Grow, Hair, Grow**\
+`You spend your whole childhood trying to look different from your dad, only to wake up and see his forehead in the mirror.`\
+https://www.nytimes.com/2026/06/04/opinion/father-son-relationship-balding.html
+
+**‘Teachers Are Going to Hate It’: How Social Media Apps Hooked Teens at School**\
+`Internal documents show how tech giants grabbed children’s attention throughout the day, a strategy that schools say has undermined education.`\
+https://www.nytimes.com/2026/06/04/us/social-media-schools.html
+
+**Kiyon Ross Wants Dancers at the School of American Ballet on the Edge of Danger**\
+`With “Proof of Life,” Kiyon Ross wants to make his alma mater, the School of American Ballet, proud — and the dancers feel special. That’s what he would have wanted.`\
+https://www.nytimes.com/2026/06/04/arts/dance/school-of-american-ballet-kiyon-ross.html
+
+**Knicks Steal Game 1 in San Antonio**\
+`Instant reaction as the Knicks prevail over the Spurs.`\
+https://www.nytimes.com/2026/06/04/podcasts/knicks-steal-game-1-in-san-antonio.html
+
+**S the Wolf**\
+`You spend your whole childhood trying to look different from your dad, only to wake up and see his forehead in the mirror.`\
+https://www.nytimes.com/video/opinion/100000010864182/s-the-wolf.html
+
 **Four New Zealand Lawmakers Banned From China After Taiwan Trip**\
 `New Zealand’s foreign minister was “surprised” to hear about the one-year travel ban, a spokesperson said, given lawmakers have visited Taiwan for years without issues.`\
 https://www.nytimes.com/2026/06/04/world/australia/new-zealand-taiwan-china-travel-ban.html
@@ -101,100 +197,4 @@ https://www.nytimes.com/2026/06/03/crosswords/daily-puzzle-2026-06-04.html
 **Israel’s High Court Rejects Ban on Red Cross Visits for Palestinian Prisoners**\
 `Israel forbade the visits, which allow the Red Cross to monitor prisoners’ conditions, in 2023. Justices said the policy violated Israeli and international law.`\
 https://www.nytimes.com/2026/06/03/world/middleeast/israel-supreme-court-red-cross-palestinian-prisoners.html
-
-**Voters in California City Favor Permanent Ban on Data Centers**\
-`Monterey Park, outside Los Angeles, appeared to become the first U.S. city where voters passed such a measure.`\
-https://www.nytimes.com/2026/06/03/us/elections/data-center-ban-monterey-park-california.html
-
-**La Cámara de Representantes de EE. UU. vota por el fin de la guerra de Irán**\
-`La aprobación de la resolución legislativa fue una notable reprimenda a Trump y a su gestión de la guerra, después de que el mandatario haya rechazado cualquier esfuerzo por frenar su poder.`\
-https://www.nytimes.com/es/2026/06/03/espanol/estados-unidos/camara-representantes-voto-guerra-iran.html
-
-**Massie, 3 Other House Republicans Broke From Trump on Iran War Powers Vote**\
-`Four Republicans from different ideological factions crossed party lines to vote with Democrats in favor of reining in the president’s power to wage war unilaterally.`\
-https://www.nytimes.com/2026/06/03/us/politics/iran-war-powers-trump-republicans.html
-
-**8 Indicted in $4.5 Million Scheme Involving Cheese, Meat and Cigarettes**\
-`Prosecutors say a group collaborated with a hacking syndicate that used phishing schemes to steal shipment information.`\
-https://www.nytimes.com/2026/06/03/nyregion/8-indicted-in-4-5-million-scheme-involving-cheese-meat-and-cigarettes.html
-
-**Trump Says Iran War Is ‘Not a Big Thing’ for U.S.**\
-`It was the latest attempt by President Trump to flip the narrative on a conflict that he once said would lead to quick and decisive victory.`\
-https://www.nytimes.com/2026/06/03/world/middleeast/trump-iran-war-remarks.html
-
-**Louisiana ICE Facility Mistreated Immigrants, Federal Investigators Say**\
-`A report by the Department of Homeland Security’s internal watchdog described officers putting one man in a chokehold and stabbing another with a pen.`\
-https://www.nytimes.com/2026/06/03/us/politics/louisiana-ice-facility-mistreated-immigrants.html
-
-**Republicans Begin to Test the Limits of Trump’s Power by Flexing Their Own**\
-`The president’s unilateral and retributive style of governing is starting to hit a wall in both chambers of Congress.`\
-https://www.nytimes.com/2026/06/03/us/politics/republicans-trump-fund-iran-war-elections.html
-
-**Ted Danson Apologizes for Blackface Roast of Whoopi Goldberg in 1993**\
-`The actor’s monologue drew condemnation from figures including David N. Dinkins, New York’s first Black mayor.`\
-https://www.nytimes.com/2026/06/03/arts/ted-danson-blackface-whoopi-goldberg-apology.html
-
-**Conductora sin mano derecha es detenida por usar el celular con la mano derecha**\
-`Su caso, por supuesto, fue desestimado.`\
-https://www.nytimes.com/es/2026/06/03/espanol/estados-unidos/video-viral-mujer-mano-policia-florida.html
-
-**Obscure Group With Trump Ties Plans to Route Funds to His Allies for Legal Fights**\
-`A nonprofit called the Lawfare Defense Fund has raised $36 million to support those who consider themselves unjust victims of the legal system with grants to pay for litigation.`\
-https://www.nytimes.com/2026/06/03/us/politics/trump-lawfare-defense-fund.html
-
-**Arizona, Nevada Agree to Trade for Desalinated Pacific Ocean Water**\
-`A decade-old treatment plant in San Diego County, Calif., could leave more water in the Colorado River for states facing severe shortages.`\
-https://www.nytimes.com/2026/06/03/climate/arizona-nevada-san-diego-water.html
-
-**NASA Says Goodbye to its Longtime Mars MAVEN Mission**\
-`The space agency announced that the MAVEN spacecraft, which has circled Mars for more than a decade, is being decommissioned.`\
-https://www.nytimes.com/2026/06/03/science/nasa-maven-mars-orbiter.html
-
-**In Alabama Ruling, Supreme Court Signals Limited Role for Federal Courts in Redistricting Fights**\
-`In an emergency ruling on Tuesday night, the court’s conservative majority gave a first glimpse into congressional district battles under a weakened Voting Rights Act.`\
-https://www.nytimes.com/2026/06/03/us/politics/supreme-court-voting-rights-alabama.html
-
-**The House Votes to End the Iran War**\
-`Also, the N.B.A. finals tips off. Here’s the latest at the end of Wednesday.`\
-https://www.nytimes.com/2026/06/03/briefing/house-iran-war-powers.html
-
-**SpaceX IPO to Be Largest Ever at $135 Share Price**\
-`The $135 share price means Elon Musk’s rocket maker is poised to exceed the 2019 initial public offering of Saudi Aramco in both valuation and money raised.`\
-https://www.nytimes.com/2026/06/03/technology/spacex-ipo-pricing.html
-
-**Trump Signs Executive Order Removing Job Protections From Federal Workers**\
-`The order is a response to resistance during the first Trump administration, when senior career government officials routinely pushed back against policies that appeared to exceed legal boundaries.`\
-https://www.nytimes.com/2026/06/03/us/politics/trump-executive-order-job-protections.html
-
-**How Each House Member Voted on the Iran War Powers Resolution**\
-`The House passed a measure to rein in the use of military force in Iran.`\
-https://www.nytimes.com/interactive/2026/06/03/us/house-iran-war-powers.html
-
-**‘I Love It’: Trump Is Still in Favor of $1.8 Billion Payout Fund**\
-`Todd Blanche, the acting attorney general, said on Tuesday that the administration was “not moving forward with the fund, period,” after the plan drew bipartisan backlash.`\
-https://www.nytimes.com/2026/06/03/us/politics/trump-fund.html
-
-**Trump Agitates Brazil’s Politics, Again**\
-`President Trump appears ready to lend a hand to a new right-wing ally ahead of a crucial election this year that will be the biggest test for Latin America’s left.`\
-https://www.nytimes.com/2026/06/03/world/americas/trump-brazil-flavio-bolsonaro.html
-
-**House Advances New Sanctions on Russia and Aid to Ukraine**\
-`After G.O.P. leaders blocked additional aid to Ukraine, six Republicans and an independent joined Democrats to force the measure to the floor against the wishes of the speaker.`\
-https://www.nytimes.com/2026/06/03/us/house-russia-ukraine-sanctions-aid.html
-
-**Africans Exploring Africa**\
-`A growing middle class is increasingly mobile — and changing African ideas about leisure, travel and even the continent itself.`\
-https://www.nytimes.com/2026/06/03/world/africa-travel-iran-kuwait.html
-
-**Park Service Awards No-Bid Contract to Cover Bridge Statues in Gold**\
-`Originally estimated to cost $2.4 million, the government will now spend $5 million to restore the bronzes in time for Independence Day.`\
-https://www.nytimes.com/2026/06/03/us/politics/park-service-bridge-statues-gold.html
-
-**Eric Swalwell Won More Than 18,000 Votes Despite Suspending His Campaign**\
-`The former House member withdrew from the California governor’s race amid allegations of sexual assault.`\
-https://www.nytimes.com/2026/06/03/us/elections/eric-swalwell-votes-california-primary.html
-
-**Ebola Shows Why Humanitarian Aid Matters**\
-`The fecklessness of Washington leaders contrasts with the courage of doctors, nurses and aid workers in places like Congo.`\
-https://www.nytimes.com/2026/06/03/opinion/ebola-disease-trump-musk-usaid.html
 

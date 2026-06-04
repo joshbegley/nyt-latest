@@ -1,3 +1,99 @@
+**‘Underland’ Review: Subterranean Adventurers**\
+`All over the world, voyagers are descending, legally and not, into the lower depths. This documentary offers a frustratingly abbreviated look at three of them.`\
+https://www.nytimes.com/2026/06/04/movies/underland-review-subterranean-adventurers.html
+
+**‘She’s the He’ Review: A Campy, Gender Swap Comedy**\
+`Nico Carney and Misha Osherovich play best friends on a mission to enter the women’s locker room.`\
+https://www.nytimes.com/2026/06/04/movies/shes-the-he-review.html
+
+**When Is It Time to Quit Therapy?**\
+`Our Ask the Therapist columnist, Lori Gottlieb, advises a reader who wants to stop subsidizing her partner’s therapy habit.`\
+https://www.nytimes.com/2026/06/04/well/mind/therapy-not-working.html
+
+**‘Masters of the Universe’ Review: Becoming a He-Man**\
+`The filmmakers behind this new live-action movie lean into the franchise’s ridiculousness, with sometimes engaging results.`\
+https://www.nytimes.com/2026/06/04/movies/masters-of-the-universe-review.html
+
+**‘The Little Sister’ Review: Learning to Love**\
+`A French Algerian teenager grapples with her sexuality and her faith in a tender coming-of-age drama.`\
+https://www.nytimes.com/2026/06/04/movies/the-little-sister-review.html
+
+**‘Carolina Caroline’ Review: Hearts on the Run**\
+`Samara Weaving and Kyle Gallner are magnetic in this lovers-on-the-lam joint awash in soulful sincerity.`\
+https://www.nytimes.com/2026/06/04/movies/carolina-caroline-review.html
+
+**‘Jinsei’ Review: Dreaming of J-Pop Stardom**\
+`In this anime film that follows a taciturn man over decades, the restrained animation is a saving grace.`\
+https://www.nytimes.com/2026/06/04/movies/jinsei-review.html
+
+**Saving Alice’s Adventures in New York. Her Mural Traveled a Rabbit Hole Too.**\
+`“Another Wonderland: Abram Champanier’s Alice Mural” at the Museum of the City of New York brings together 16 panels of the only surviving W.P.A. mural from a hospital children’s ward.`\
+https://www.nytimes.com/2026/06/04/arts/saving-alices-adventures-in-new-york-her-mural-traveled-a-rabbit-hole-too.html
+
+**Review: In ‘Another World,’ the Afterlife Glows Red**\
+`The director Tommy Ng Kai Chung turns reincarnation into a visually lush exploration of the human condition.`\
+https://www.nytimes.com/2026/06/04/movies/another-world-review.html
+
+**More People Live, Work and Play All in the Same Building**\
+`A study tracked 10 years of new development combining retail, office space and residences.`\
+https://www.nytimes.com/2026/06/04/realestate/mixed-use-bulidings-live-work-play.html
+
+**The Small-Business Owners Managing Whole Armies of A.I. Employees**\
+`When you turn A.I. agents loose on your finances, email and customers, what could possibly go wrong?`\
+https://www.nytimes.com/2026/06/04/magazine/ai-agents-openclaw-small-business.html
+
+**Why Do Most New Movies Look Meh?**\
+`Jessica M. Goldstein, an arts and culture reporter, inspects why movies today look different than they did 20 years ago.`\
+https://www.nytimes.com/video/movies/100000010910459/why-do-most-new-movies-look-meh.html
+
+**Urban Light Pollution Might Be Worsening Allergies**\
+`Light pollution prompts plants to shed pollen longer and stronger, according to new research.`\
+https://www.nytimes.com/2026/06/04/climate/urban-light-pollution-pollen-allergies.html
+
+**Book Review: ‘Checkmate,’ by Ben Mezrich**\
+`“Checkmate,” Ben Mezrich’s tale of chess scandal, may be ready for its close-up — but not for a close read.`\
+https://www.nytimes.com/2026/06/04/books/review/checkmate-ben-mezrich.html
+
+**Can These ChatGPT Ads Make You Love A.I.?**\
+`A campaign for ChatGPT relies on heartwarming retro vibes to sell a product that has become a source of concern for most Americans.`\
+https://www.nytimes.com/2026/06/04/style/chatgpt-advertising-campaign-artificial-intelligence.html
+
+**Ireland, Seen as a Weak Link in Europe’s Defense, Is Trying to Bulk Up**\
+`As concern rises in Europe over threats from an emboldened Russia, the Irish government says it’s working to plug gaps in its military, which reflect a tradition of neutrality.`\
+https://www.nytimes.com/2026/06/04/world/europe/ireland-defense.html
+
+**11 Books That Capture the Swoon-Worthy Drama of Wedding Season**\
+`These books dig into the thrilling, ugly and swoon-worthy drama of a happy couple’s big day.`\
+https://www.nytimes.com/2026/06/04/books/wedding-novels.html
+
+**How Black Churches Are Raising Dementia Awareness**\
+`Faith and science are coming together to reduce stigma and improve care in the African American community.`\
+https://www.nytimes.com/2026/06/04/well/mind/dementia-disparities-black-churches.html
+
+**Can Better Running Shoes Really Make You Faster?**\
+`Companies are investing in scientific labs in pursuit of a sneaker that could help marathon runners shave up to four minutes off their record. But some are skeptical of the results.`\
+https://www.nytimes.com/2026/06/04/style/running-shoes-speed-nike-adidas-puma.html
+
+**Grow, Hair, Grow**\
+`You spend your whole childhood trying to look different from your dad, only to wake up and see his forehead in the mirror.`\
+https://www.nytimes.com/2026/06/04/opinion/father-son-relationship-balding.html
+
+**‘Teachers Are Going to Hate It’: How Social Media Apps Hooked Teens at School**\
+`Internal documents show how tech giants grabbed children’s attention throughout the day, a strategy that schools say has undermined education.`\
+https://www.nytimes.com/2026/06/04/us/social-media-schools.html
+
+**Kiyon Ross Wants Dancers at the School of American Ballet on the Edge of Danger**\
+`With “Proof of Life,” Kiyon Ross wants to make his alma mater, the School of American Ballet, proud — and the dancers feel special. That’s what he would have wanted.`\
+https://www.nytimes.com/2026/06/04/arts/dance/school-of-american-ballet-kiyon-ross.html
+
+**Knicks Steal Game 1 in San Antonio**\
+`Instant reaction as the Knicks prevail over the Spurs.`\
+https://www.nytimes.com/2026/06/04/podcasts/knicks-steal-game-1-in-san-antonio.html
+
+**S the Wolf**\
+`You spend your whole childhood trying to look different from your dad, only to wake up and see his forehead in the mirror.`\
+https://www.nytimes.com/video/opinion/100000010864182/s-the-wolf.html
+
 **Four New Zealand Lawmakers Banned From China After Taiwan Trip**\
 `New Zealand’s foreign minister was “surprised” to hear about the one-year travel ban, a spokesperson said, given lawmakers have visited Taiwan for years without issues.`\
 https://www.nytimes.com/2026/06/04/world/australia/new-zealand-taiwan-china-travel-ban.html
