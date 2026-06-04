@@ -1,3 +1,7 @@
+**Pilot Was Warned Jet Was Too Low Before It Clipped a Light Pole**\
+`The pilot heard a “thump” while landing in Newark, according to a newly released report. The light pole crashed onto a truck.`\
+https://www.nytimes.com/2026/06/04/nyregion/plane-light-pole-truck-newark.html
+
 **Read Nick Bilton’s Memo to ‘60 Minutes’ Staff**\
 `The new executive producer of the program sought to lift staff morale after recent high-profile turmoil.`\
 https://www.nytimes.com/interactive/2026/06/04/us/bilton-memo.html
