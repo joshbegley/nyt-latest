@@ -1,3 +1,7 @@
+**Iran War Live Updates: Israel and Lebanon Agree to New Cease-Fire**\
+`The deal is contingent on Hezbollah, the Iran-backed armed group that was not part of the talks, stopping attacks against Israel and withdrawing from southern Lebanon.`\
+https://www.nytimes.com/live/2026/06/04/world/iran-war-trump-israel-lebanon
+
 **Look Closely**\
 `Seeing protests through a camera lens.`\
 https://www.nytimes.com/2026/06/04/briefing/immigration-protest-photography.html
