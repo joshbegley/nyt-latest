@@ -1,3 +1,7 @@
+**S the Wolf**\
+`You spend your whole childhood trying to look different from your dad, only to wake up and see his forehead in the mirror.`\
+https://www.nytimes.com/video/opinion/100000010864182/s-the-wolf.html
+
 **Four New Zealand Lawmakers Banned From China After Taiwan Trip**\
 `New Zealand’s foreign minister was “surprised” to hear about the one-year travel ban, a spokesperson said, given lawmakers have visited Taiwan for years without issues.`\
 https://www.nytimes.com/2026/06/04/world/australia/new-zealand-taiwan-china-travel-ban.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/03/us/politics/park-service-bridge-statues-gold.
 **Eric Swalwell Won More Than 18,000 Votes Despite Suspending His Campaign**\
 `The former House member withdrew from the California governor’s race amid allegations of sexual assault.`\
 https://www.nytimes.com/2026/06/03/us/elections/eric-swalwell-votes-california-primary.html
-
-**Ebola Shows Why Humanitarian Aid Matters**\
-`The fecklessness of Washington leaders contrasts with the courage of doctors, nurses and aid workers in places like Congo.`\
-https://www.nytimes.com/2026/06/03/opinion/ebola-disease-trump-musk-usaid.html
 
