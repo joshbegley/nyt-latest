@@ -1,3 +1,11 @@
+**Palabra del día en inglés: ‘beneficent’**\
+`Esta palabra ha aparecido en 12 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/06/04/espanol/que-significa-beneficent.html
+
+**Word of the Day: beneficent**\
+`This word has appeared in 12 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/06/04/learning/word-of-the-day-beneficent.html
+
 **With His New Museum, Obama Offers a Trip to a Parallel America**\
 `The presidential center that opens this month seems out of step with the zeitgeist of the moment and produces emotional reactions among the discontented of the Trump era.`\
 https://www.nytimes.com/2026/06/04/us/politics/obama-museum-parallel-trip.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/world/asia/100000010942224/hotel-fire-deaths-new-d
 **G.O.P. Revives Immigration Bill, Weighing Ban on Trump’s Fund**\
 `Several Republicans suggested they would insist on adding a measure to bar the president from creating a fund to pay people who claim to be victims of government persecution.`\
 https://www.nytimes.com/2026/06/03/us/politics/republicans-immigration-bill-trump-fund.html
-
-**The Narrow Path to a Democratic Senate Runs Through Very Red States**\
-`Democrats cheer there is a way, even as new worries emerge over whether Graham Platner can flip a Maine seat. Republicans remain confident they will prevail in Texas, Iowa and Alaska.`\
-https://www.nytimes.com/2026/06/03/us/politics/midterm-senate-battlegrounds.html
-
-**Iranian Drone and Missile Barrage Against Kuwait Inflames Regional Tensions**\
-`One person was killed and dozens were injured at Kuwait’s international airport. Tehran denied it had struck the airport.`\
-https://www.nytimes.com/2026/06/03/world/middleeast/iran-kuwait-airport-strike.html
 

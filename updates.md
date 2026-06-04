@@ -1,3 +1,11 @@
+**Palabra del día en inglés: ‘beneficent’**\
+`Esta palabra ha aparecido en 12 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/06/04/espanol/que-significa-beneficent.html
+
+**Word of the Day: beneficent**\
+`This word has appeared in 12 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/06/04/learning/word-of-the-day-beneficent.html
+
 **With His New Museum, Obama Offers a Trip to a Parallel America**\
 `The presidential center that opens this month seems out of step with the zeitgeist of the moment and produces emotional reactions among the discontented of the Trump era.`\
 https://www.nytimes.com/2026/06/04/us/politics/obama-museum-parallel-trip.html
