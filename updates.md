@@ -1,3 +1,15 @@
+**N.Y. Democrats Move to Allow More Frequent Redistricting**\
+`N.Y. lawmakers moved forward with a measure that would allow the Democratic-run state to redraw the state’s congressional districts more often.`\
+https://www.nytimes.com/2026/06/04/nyregion/redistricting-democrats-new-york.html
+
+**‘60 Minutes’ Turmoil: What to Know After Scott Pelley’s Firing**\
+`Scott Pelley’s firing is the latest in a string of controversies and staffing shake-ups that have plagued CBS’s news division.`\
+https://www.nytimes.com/2026/06/04/business/cbs-60-minutes-scott-pelley-bari-weiss.html
+
+**Mideast Live Updates: Israel and Hezbollah Trade Strikes, Leaving New Cease-Fire in Doubt**\
+`Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, had rejected a deal worked out between Israel and the Lebanese government.`\
+https://www.nytimes.com/live/2026/06/04/world/iran-war-trump-israel-lebanon
+
 **Justice Department Tells Prosecutors to Pursue Immigrant Vote Fraud Cases**\
 `About 90 such investigations are currently open, a Justice Department official told prosecutors. The tally offers a glimpse inside the scale of the administration’s efforts.`\
 https://www.nytimes.com/2026/06/04/us/immigrants-vote-fraud.html
