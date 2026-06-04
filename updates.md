@@ -1,3 +1,7 @@
+**En plena guerra, el presidente del fútbol iraní trabaja para que su selección vaya al Mundial**\
+`Mehdi Taj dijo que su federación ha estado tratando con la FIFA, y no con Estados Unidos, para intentar obtener visados para que Irán juegue en el torneo que comienza la próxima semana.`\
+https://www.nytimes.com/es/2026/06/04/espanol/mundo/iran-mundial-fifa.html
+
 **Amid War, Iran’s Soccer Leader Works to Get His Team to the World Cup**\
 `Mehdi Taj said his federation has been dealing with FIFA, not the United States, in trying to obtain visas for Iran to play in the tournament that begins next week.`\
 https://www.nytimes.com/2026/06/04/world/middleeast/iran-soccer-world-cup-war.html
