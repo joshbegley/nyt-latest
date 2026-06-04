@@ -1,3 +1,11 @@
+**Limmie Pulliam, Tenor Who Overcame the Stigma of His Size, Dies at 50**\
+`He quit singing in his early 20s when opera companies objected to his appearance, but after a 12-year absence he revived his career to acclaim.`\
+https://www.nytimes.com/2026/06/04/arts/music/limmie-pulliam-dead.html
+
+**Trump’s Arch Project to Face Questions and Criticism at Planning Meeting**\
+`The National Capital Planning Commission received nearly 1,700 comments about President Trump’s plans to build a 250-foot arch in the nation’s capital. Almost all opposed the idea.`\
+https://www.nytimes.com/2026/06/04/us/trump-arch-dc-planning-meeting.html
+
 **Fighting in Somalia’s Capital, Mogadishu: What’s Happening and Why It Matters**\
 `Gun battles erupted on Thursday, as armed groups loyal to rival politicians clashed. Residents said it was the worst fighting in years.`\
 https://www.nytimes.com/2026/06/04/world/africa/somalia-mogadishu-fighting.html
@@ -50,8 +58,8 @@ https://www.nytimes.com/2026/06/04/crosswords/wordle-review-1812.html
 `Her popular graphic novel series, published in the early 2000s, followed an Iranian girl through the Islamic Revolution and the Iran-Iraq War.`\
 https://www.nytimes.com/2026/06/04/world/middleeast/marjane-satrapi-dead.html
 
-**Iran War Live Updates: Israel Says It Targeted Hezbollah After New Cease-Fire With Lebanon**\
-`The U.S.-brokered talks to clinch the deal did not include Hezbollah, the Iranian-backed armed group, which said it had fired rockets at Israeli targets hours after the truce was announced.`\
+**Iran War Live Updates: Israel Trades Strikes With Hezbollah After New Cease-Fire With Lebanon**\
+`Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, had rejected the deal.`\
 https://www.nytimes.com/live/2026/06/04/world/iran-war-trump-israel-lebanon
 
 **Do Not Mess with the Reporter Who Took Down Jeffrey Epstein**\
@@ -98,7 +106,7 @@ https://www.nytimes.com/interactive/2026/06/04/realestate/upper-west-side-manhat
 `With a shortage of some components driving up costs of consumer electronics, refurbished devices are an attractive alternative to buying new.`\
 https://www.nytimes.com/2026/06/04/technology/personaltech/used-tech-refurbished.html
 
-**Priest’s Ebola Death Stirs Fear an Doubt in Congolese Town**\
+**Priest’s Ebola Death Stirs Fear and Doubt in Congolese Town**\
 `Priest’s Ebola Death Stirs Fear an Doubt in Congolese Town`\
 https://www.nytimes.com/2026/06/04/world/africa/ebola-congo-funeral-photo.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/04/movies/the-little-sister-review.html
 **‘Carolina Caroline’ Review: Hearts on the Run**\
 `Samara Weaving and Kyle Gallner are magnetic in this lovers-on-the-lam joint awash in soulful sincerity.`\
 https://www.nytimes.com/2026/06/04/movies/carolina-caroline-review.html
-
-**‘Jinsei’ Review: Dreaming of J-Pop Stardom**\
-`In this anime film that follows a taciturn man over decades, the restrained animation is a saving grace.`\
-https://www.nytimes.com/2026/06/04/movies/jinsei-review.html
-
-**Saving Alice’s Adventures in New York. Her Mural Traveled a Rabbit Hole Too.**\
-`“Another Wonderland: Abram Champanier’s Alice Mural” at the Museum of the City of New York brings together 16 panels of the only surviving W.P.A. mural from a hospital children’s ward.`\
-https://www.nytimes.com/2026/06/04/arts/saving-alices-adventures-in-new-york-her-mural-traveled-a-rabbit-hole-too.html
 
