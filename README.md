@@ -1,3 +1,7 @@
+**Bill Bradley, 2-Time Champion With the Knicks, Cheers on His Old Team in the Finals**\
+`Watching Game 1 of the Knicks-Spurs series, Bill Bradley, the two-time N.B.A. champion and former U.S. senator, spoke reverently of teamwork — and had a few choice words for the refs.`\
+https://www.nytimes.com/2026/06/04/nyregion/bill-bradley-knicks-finals-game-1.html
+
 **How We Are Illustrating Trump’s Plans to Remake Washington**\
 `With the East Wing turned to rubble, our Graphics staff set out to show what exactly the president planned to build there and elsewhere.`\
 https://www.nytimes.com/2026/06/04/insider/trump-ballroom-arch-washington.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/04/well/mind/therapy-not-working.html
 **‘Masters of the Universe’ Review: Becoming a He-Man**\
 `The filmmakers behind this new live-action movie lean into the franchise’s ridiculousness, with sometimes engaging results.`\
 https://www.nytimes.com/2026/06/04/movies/masters-of-the-universe-review.html
-
-**‘The Little Sister’ Review: Learning to Love**\
-`A French Algerian teenager grapples with her sexuality and her faith in a tender coming-of-age drama.`\
-https://www.nytimes.com/2026/06/04/movies/the-little-sister-review.html
 
