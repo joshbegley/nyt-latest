@@ -1,3 +1,7 @@
+**La Cámara de Representantes de EE. UU. vota por el fin de la guerra de Irán**\
+`La aprobación de la resolución legislativa fue una notable reprimenda a Trump y a su gestión de la guerra, después de que el mandatario haya rechazado cualquier esfuerzo por frenar su poder.`\
+https://www.nytimes.com/es/2026/06/03/espanol/estados-unidos/camara-representantes-voto-guerra-iran.html
+
 **See What Deep-Sea Mining Actually Looks Like, Over 2 Miles Down**\
 `A mining company sent an advanced ship to try to pluck valuable minerals from the deep ocean. Here’s how it worked.`\
 https://www.nytimes.com/interactive/2026/06/03/climate/deep-sea-mining-tests-hidden-gem.html
