@@ -1,3 +1,11 @@
+**NYT Crossword Answers for June 4, 2026**\
+`Joe Deeney takes us on a solving spree.`\
+https://www.nytimes.com/2026/06/03/crosswords/daily-puzzle-2026-06-04.html
+
+**Israel’s High Court Rejects Ban on Red Cross Visits for Palestinian Prisoners**\
+`Israel forbade the visits, which allow the Red Cross to monitor prisoners’ conditions, in 2023. Justices said the policy violated Israeli and international law.`\
+https://www.nytimes.com/2026/06/03/world/middleeast/israel-supreme-court-red-cross-palestinian-prisoners.html
+
 **Voters in California City Favor Permanent Ban on Data Centers**\
 `Monterey Park, outside Los Angeles, appeared to become the first U.S. city where voters passed such a measure.`\
 https://www.nytimes.com/2026/06/03/us/elections/data-center-ban-monterey-park-california.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/03/us/politics/primaries-california-iowa-questio
 **Toby Doeden and Larry Rhoden Advance to Runoff for South Dakota Governor**\
 `Toby Doeden, a businessman, and Gov. Larry Rhoden advanced to a runoff. A competitive contest emerged after Kristi Noem stepped down as governor to join President Trump’s cabinet.`\
 https://www.nytimes.com/2026/06/03/us/south-dakota-governor-doeden-rhoden.html
-
-**Sam Forstag Wins Democratic House Primary in Montana’s 1st Congressional District**\
-`Sam Forstag’s candidacy will test a liberal theory that left-leaning politicians running in Republican strongholds can do better in general elections than moderates have done historically.`\
-https://www.nytimes.com/2026/06/03/us/politics/montana-democratic-house-busse-forstag-rains.html
-
-**Contentious Times at the Supreme Court**\
-`Readers discuss judicial power and possible term limits. Also: Climate corruption; anxiety in children.`\
-https://www.nytimes.com/2026/06/03/opinion/supreme-court.html
 
