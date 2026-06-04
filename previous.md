@@ -1,5 +1,9 @@
+**Map: 4.1-Magnitude Earthquake Shakes Las Vegas**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/04/us/quake-tracker-las-vegas.html
+
 **Week 1: Manage Your ‘Ultraprocessed Time’**\
-`Manage Your ‘Ultraprocessed Time’`\
+`Your phone may distract you, but it doesn’t restore you. Here’s what does.`\
 https://www.nytimes.com/interactive/2026/06/04/well/touch-grass-challenge-week-1.html
 
 **Tennis Giants Tumble**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/04/movies/wim-wenders-nastassja-kinski-nudity-to
 **Ultra-Orthodox Riot Shocks Israelis In Latest Protest At Military Draft**\
 `Israel’s Haredim have escalated their protests against military service in recent weeks, underscoring growing divisions ahead of national elections.`\
 https://www.nytimes.com/2026/06/04/world/middleeast/israel-orthodox-riot-military-draft-judge.html
-
-**Bernard Roizman, Virologist Who Demystified Herpes, Dies at 96**\
-`He mapped the herpes simplex virus genome, revealing how it invades cells. His work also helped lay the groundwork for potential vaccines and gene therapies.`\
-https://www.nytimes.com/2026/06/04/science/bernard-roizman-dead.html
 
 **Mideast Live Updates: Hezbollah Rejects Cease-Fire Deal Between Lebanon and Israel**\
 `Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, said a truce worked out between Israel and the Lebanese government amounted to surrender for his group.`\

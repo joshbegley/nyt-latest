@@ -1,3 +1,11 @@
+**Map: 4.1-Magnitude Earthquake Shakes Las Vegas**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/04/us/quake-tracker-las-vegas.html
+
+**Week 1: Manage Your ‘Ultraprocessed Time’**\
+`Your phone may distract you, but it doesn’t restore you. Here’s what does.`\
+https://www.nytimes.com/interactive/2026/06/04/well/touch-grass-challenge-week-1.html
+
 **Week 1: Manage Your ‘Ultraprocessed Time’**\
 `Manage Your ‘Ultraprocessed Time’`\
 https://www.nytimes.com/interactive/2026/06/04/well/touch-grass-challenge-week-1.html
