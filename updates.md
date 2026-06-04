@@ -1,3 +1,19 @@
+**Muere Marjane Satrapi, autora de ‘Persépolis’, a los 56 años**\
+`Su popular serie de novelas gráficas, publicada a principios de la década de 2000, seguía a una niña iraní a través de la Revolución Islámica y la guerra Irán-Irak.`\
+https://www.nytimes.com/es/2026/06/04/espanol/cultura/muere-marjane-satrapi-persepolis.html
+
+**Today, In Short**\
+`Dot cakes. “Summer House.” And the Knicks.`\
+https://www.nytimes.com/2026/06/04/briefing/today-in-short.html
+
+**How One Company Plans to Mine the Bottom of the Sea**\
+`A look at the quest to mine the bottom of the ocean for valuable minerals, the connection between light pollution and allergies and more climate news.`\
+https://www.nytimes.com/2026/06/04/climate/deep-sea-mining-metals-company.html
+
+**Prada Takes Over Katz’s Deli With Cole Escola, Amanda Gorman and Lots of Pastrami**\
+`To kick off its cultural series, Prada Mode, the Italian fashion house brought together celebrities and influencers for dancing and sandwiches.`\
+https://www.nytimes.com/2026/06/04/style/prada-mode-nyc-kojima-hotel-chelsea.html
+
 **What Are A.I. Agents Actually Doing?**\
 `A San Francisco start-up called Arena found that people are most likely to use A.I. agents on the job, particularly if they are in the tech industry.`\
 https://www.nytimes.com/2026/06/04/technology/ai-agents-arena.html
