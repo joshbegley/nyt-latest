@@ -1,3 +1,7 @@
+**American Farms Rely More Than Ever on the Troubled H-2A Visa Program**\
+`The Trump administration is allowing in more agricultural guest workers under the H-2A program, but preventing abuses is proving difficult.`\
+https://www.nytimes.com/2026/06/04/business/economy/farms-h2a-visas-migrant-workers.html
+
 **Tracking the Rising Death Toll From U.S. Boat Strikes**\
 `The New York Times has been investigation the number of boat strikes and the death toll in the Caribbean and Eastern Pacific carried out by the Trump administration. Eric Schmitt, a national security correspondent for The Times, explains what those numbers mean.`\
 https://www.nytimes.com/video/world/americas/100000010937966/why-we-track-number-american-strikes-boats.html
