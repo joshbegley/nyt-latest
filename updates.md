@@ -1,3 +1,7 @@
+**Bernard Roizman, Virologist Who Demystified Herpes, Dies at 96**\
+`He mapped the herpes simplex virus genome, revealing how it invades cells. His work also helped lay the groundwork for potential vaccines and gene therapies.`\
+https://www.nytimes.com/2026/06/04/science/bernard-roizman-dead.html
+
 **Four Republicans Rebuke Trump to Rein In War Powers**\
 `Four Republican lawmakers crossed party lines to vote in a measure that seeks to stop the president from taking further military action in Iran.`\
 https://www.nytimes.com/video/us/politics/100000010944299/trump-war-powers-iran.html
