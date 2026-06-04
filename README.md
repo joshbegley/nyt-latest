@@ -22,7 +22,7 @@ https://www.nytimes.com/2026/06/04/us/diane-carlson-evans-dead.html
 `Cardinal Robert McElroy, archbishop of Washington, said recent statements by the exorcist “undermine the Church’s very precise teaching on the devil.”`\
 https://www.nytimes.com/2026/06/04/us/catholic-exorcist-demon-ufo.html
 
-**Trump Offers Funds for First New U.S. Coal Plants in 13 Years**\
+**Trump Announces $700 Million in Funds Meant to Boost Coal Industry**\
 `The president announced a total of $700 million in federal money to reinvigorate the domestic coal industry, which has been in decline for decades.`\
 https://www.nytimes.com/2026/06/04/climate/trump-coal-plants-funding.html
 
