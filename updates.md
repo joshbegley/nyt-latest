@@ -1,3 +1,15 @@
+**Fighting in Somalia’s Capital, Mogadishu: What’s Happening and Why It Matters**\
+`Gun battles erupted on Thursday, as armed groups loyal to rival politicians clashed. Residents said it was the worst fighting in years.`\
+https://www.nytimes.com/2026/06/04/world/africa/somalia-mogadishu-fighting.html
+
+**Pommelien Thijs, a Pop Star for Half a Country**\
+`Pommelien Thijs’s catchy tunes are beloved in Belgium — in the Dutch-speaking part, at least.`\
+https://www.nytimes.com/2026/06/04/arts/music/pommelien-thijs-belgium-pop.html
+
+**Marjane Satrapi, the Author of ‘Persepolis,’ Dies at 56**\
+`Her popular graphic novel series, published in the early 2000s, followed an Iranian girl through the Islamic Revolution and the Iran-Iraq War.`\
+https://www.nytimes.com/2026/06/04/world/middleeast/marjane-satrapi-dead.html
+
 **Trump Says He Plans to Nominate Blanche for Attorney General**\
 `Todd Blanche has been serving as the acting attorney general. A formal nomination to the post would be the president’s latest move to place loyalists in top government jobs.`\
 https://www.nytimes.com/2026/06/04/us/politics/trump-nominate-blanche-attorney-general.html
