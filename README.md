@@ -1,3 +1,7 @@
+**Four New Zealand Lawmakers Banned From China After Taiwan Trip**\
+`New Zealand’s foreign minister was “surprised” to hear about the one-year travel ban, a spokesperson said, given lawmakers have visited Taiwan for years without issues.`\
+https://www.nytimes.com/2026/06/04/world/australia/new-zealand-taiwan-china-travel-ban.html
+
 **Israel and Lebanon Agree to Renew Cease-Fire**\
 `Israel and Lebanon agreed on Wednesday to renew a cease-fire after U.S.-mediated talks in Washington. The agreement depends on the cooperation of Hezbollah, the Iran-backed militia.`\
 https://www.nytimes.com/video/world/middleeast/100000010944098/israel-lebanon-cease-fire.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/03/us/elections/eric-swalwell-votes-california-p
 **Ebola Shows Why Humanitarian Aid Matters**\
 `The fecklessness of Washington leaders contrasts with the courage of doctors, nurses and aid workers in places like Congo.`\
 https://www.nytimes.com/2026/06/03/opinion/ebola-disease-trump-musk-usaid.html
-
-**New York City Subway Entrance Becomes Knicks Fan Landmark**\
-`The M.T.A. painted a subway station orange and blue for the New York Knicks’ first N.B.A. Final appearance in 27 years. Fans of the basketball team posed by the entrance, which is located outside Madison Square Garden.`\
-https://www.nytimes.com/video/us/100000010943054/knicks-nba-finals-subway.html
 
