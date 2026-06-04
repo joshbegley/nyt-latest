@@ -1,3 +1,7 @@
+**La ambición de Elon Musk por el dinero extraterrestre**\
+`El empresario pone la mira en la muy rentable órbita terrestre baja.`\
+https://www.nytimes.com/es/2026/06/04/espanol/opinion/elon-musk-orbita-baja.html
+
 **South Korea’s Governing Democratic Party Sweeps Local Elections but Faces Setback in Seoul Mayor’s Race**\
 `President Lee Jae Myung’s Democratic Party had hoped to consolidate its influence and extend his political momentum.`\
 https://www.nytimes.com/2026/06/04/world/asia/south-korea-seoul-mayor-elections.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/100000010943054/knicks-nba-finals-subway.html
 **New Intelligence Chief’s Expertise: Pursuing Trump’s Enemies**\
 `Tulsi Gabbard’s replacement as the director of national intelligence has no known national security experience.`\
 https://www.nytimes.com/2026/06/03/us/bill-pulte-new-intelligence-chief.html
-
-**Bessent Calls Clash With Bill Pulte a ‘Locker Room’ Fight**\
-`Treasury Secretary Scott Bessent said he had an argument with the housing finance director last year but now supports his appointment as acting director of national intelligence.`\
-https://www.nytimes.com/2026/06/03/us/politics/bessent-pulte-clash.html
 
