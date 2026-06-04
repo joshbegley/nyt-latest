@@ -1,3 +1,11 @@
+**World Cup Commute by the Numbers: Not Many Options, Few of Them Cheap**\
+`When the World Cup arrives in New Jersey, fans will face some difficult choices: Uber surge pricing, $225 parking spots and few seats on the bus.`\
+https://www.nytimes.com/2026/06/04/nyregion/world-cup-commute-new-york-new-jersey.html
+
+**NYT Spelling Bee Answers for June 4, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/04/crosswords/spelling-bee-forum.html
+
 **Late Night Reacts to Another Reality Star Wooing Voters**\
 `Michael Kosta wasn’t impressed to see that the L.A. mayoral candidate Spencer Pratt “got a second-season pickup” after Tuesday’s midterms.`\
 https://www.nytimes.com/2026/06/04/arts/television/late-night-spencer-pratt.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/03/us/politics/bessent-pulte-clash.html
 **E.U. Steps Up Ocean Monitoring as Trump Administration Backs Away**\
 `Days after the U.S. said it would kill a network of ocean monitors, European officials pledged to invest more in their version, calling it a “necessity.”`\
 https://www.nytimes.com/2026/06/03/climate/trump-ocean-monitor-european-union.html
-
-**Four Immigrant Workers Burned to Death in Italy**\
-`The immigrants had been working as fruit pickers in southern Italy, the authorities said, apparently as part of a system of criminal labor trafficking.`\
-https://www.nytimes.com/2026/06/03/world/europe/italy-migrants-burned.html
-
-**New Delhi Hotel Fire Kills at Least 21 People, Officials Say**\
-`A fire engulfed a six-story hotel in New Delhi on Wednesday, killing at least 21 people, the city’s fire department said. Officials are investigating the cause of the fire.`\
-https://www.nytimes.com/video/world/asia/100000010942224/hotel-fire-deaths-new-delhi-india.html
 
