@@ -1,3 +1,7 @@
+**Rioting, Assault, Violating Curfew: The Charges ICE Protesters Face**\
+`More than 80 people have been arrested during turbulent protests outside the Delaney Hall immigrant detention center in New Jersey over the past two weeks.`\
+https://www.nytimes.com/2026/06/04/nyregion/delaney-hall-protests-charges.html
+
 **Books Our Editors Loved This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/06/04/books/review/new-recommended-books.html
