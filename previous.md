@@ -1,3 +1,7 @@
+**Look Closely**\
+`Seeing protests through a camera lens.`\
+https://www.nytimes.com/2026/06/04/briefing/immigration-protest-photography.html
+
 **Hezbollah’s Fiber-Optic Drones Expose Cracks in Israeli Defenses**\
 `The Lebanese militant group’s attacks have caught Israelis off guard, forcing its political and military leaders to scramble for solutions.`\
 https://www.nytimes.com/2026/06/04/world/middleeast/hezbollah-fiber-optic-drones-israel.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/04/magazine/ai-agents-openclaw-small-business.ht
 **Why Do Most New Movies Look Meh?**\
 `Jessica M. Goldstein, an arts and culture reporter, inspects why movies today look different than they did 20 years ago.`\
 https://www.nytimes.com/video/movies/100000010910459/why-do-most-new-movies-look-meh.html
-
-**Urban Light Pollution Might Be Worsening Allergies**\
-`Light pollution prompts plants to shed pollen longer and stronger, according to new research.`\
-https://www.nytimes.com/2026/06/04/climate/urban-light-pollution-pollen-allergies.html
 

@@ -1,3 +1,7 @@
+**Look Closely**\
+`Seeing protests through a camera lens.`\
+https://www.nytimes.com/2026/06/04/briefing/immigration-protest-photography.html
+
 **Hezbollah’s Fiber-Optic Drones Expose Cracks in Israeli Defenses**\
 `The Lebanese militant group’s attacks have caught Israelis off guard, forcing its political and military leaders to scramble for solutions.`\
 https://www.nytimes.com/2026/06/04/world/middleeast/hezbollah-fiber-optic-drones-israel.html
