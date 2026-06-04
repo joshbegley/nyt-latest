@@ -1,3 +1,15 @@
+**‘Scary Movie’ Review: Too Many Movies, Too Few Laughs**\
+`The sixth installment of this low-grade franchise takes a predictable and dismaying turn, even if it feels like the right time to bring the series back.`\
+https://www.nytimes.com/2026/06/04/movies/scary-movie-review.html
+
+**Ohio State Agrees to $100 Million Payout Over Sexual Abuse Claims**\
+`The deal with 279 former students is the latest in the long running case at the university. In all, nearly 600 people who said they were abused by an athletic department doctor have settled.`\
+https://www.nytimes.com/2026/06/04/us/ohio-state-sexual-abuse-settlement.html
+
+**New Research Suggests a Possible Path to Prevent Lung Cancer**\
+`Also, senators clashed over Trump’s payout fund. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/06/04/briefing/lung-cancer-research-trump-fund.html
+
 **California Businessman Accused of Selling Restricted Technology to Iran**\
 `Jamshid Ghomi, of Newport Coast, Calif., was charged with conspiracy to violate the International Emergency Economic Powers Act.`\
 https://www.nytimes.com/2026/06/04/us/sanctions-iran-nuclear-military-violations.html
