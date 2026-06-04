@@ -1,3 +1,11 @@
+**Wim Wenders Pulls Film With Teenage Nudity After Pleas by Nastassja Kinski**\
+`Nastassja Kinski was 13 years old when she was shown topless in the 1975 film “Wrong Move.” “I could already tell that wasn’t right,” she told a German newspaper.`\
+https://www.nytimes.com/2026/06/04/movies/wim-wenders-nastassja-kinski-nudity-topless-wrong-move.html
+
+**Ultra-Orthodox Riot Shocks Israelis In Latest Protest At Military Draft**\
+`Israel’s Haredim have escalated their protests against military service in recent weeks, underscoring growing divisions ahead of national elections.`\
+https://www.nytimes.com/2026/06/04/world/middleeast/israel-orthodox-riot-military-draft-judge.html
+
 **Bernard Roizman, Virologist Who Demystified Herpes, Dies at 96**\
 `He mapped the herpes simplex virus genome, revealing how it invades cells. His work also helped lay the groundwork for potential vaccines and gene therapies.`\
 https://www.nytimes.com/2026/06/04/science/bernard-roizman-dead.html

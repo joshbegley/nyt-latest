@@ -1,3 +1,7 @@
+**What Are A.I. Agents Actually Doing?**\
+`A San Francisco start-up called Arena found that people are most likely to use A.I. agents on the job, particularly if they are in the tech industry.`\
+https://www.nytimes.com/2026/06/04/technology/ai-agents-arena.html
+
 **Wim Wenders Pulls Film With Teenage Nudity After Pleas by Nastassja Kinski**\
 `Nastassja Kinski was 13 years old when she was shown topless in the 1975 film “Wrong Move.” “I could already tell that wasn’t right,” she told a German newspaper.`\
 https://www.nytimes.com/2026/06/04/movies/wim-wenders-nastassja-kinski-nudity-topless-wrong-move.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/04/world/americas/colombia-world-cup-jersey-poli
 **Should You Outsource Your Morning Routine to a Chatbot?**\
 `A.I. wants to help you start the day. Its suggestions? Drink coffee and get dressed.`\
 https://www.nytimes.com/2026/06/04/magazine/ai-chatbot-morning-routine-videos.html
-
-**The 2026 Tony Awards: Is Broadway Going Easy On Us? | Cannonball**\
-`The Tony Awards are on Sunday, but this year’s theater season lacked … something.`\
-https://www.nytimes.com/2026/06/04/podcasts/tony-awards-broadway-cannonball.html
 
