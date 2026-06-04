@@ -1,3 +1,7 @@
+**How Does LA Count Election Ballots? It Begins With a Dog Sniff.**\
+`Counting ballots in California is a complex and lengthy undertaking. In Los Angeles, the choreographed process includes canines, humans and machines.`\
+https://www.nytimes.com/2026/06/03/us/elections/los-angeles-ballot-counting-dogs.html
+
 **Israel and Lebanon Renew Cease-Fire, Calling for Evacuation of Hezbollah Operatives**\
 `The agreement depends on the cooperation of Hezbollah, the Iran-backed militia. The cease-fire could remove an obstacle in the talks between the United States and Iran.`\
 https://www.nytimes.com/2026/06/03/world/middleeast/israel-lebanon-ceasefire-hezbollah.html
