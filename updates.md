@@ -1,3 +1,7 @@
+**Mister Rogers: Now on YouTube**\
+`On Thursday, Fred Rogers Productions started a channel dedicated to the beloved children’s host. Eventually it will be a repository for full episodes, behind-the-scenes footage and compilations.`\
+https://www.nytimes.com/2026/06/04/arts/television/mister-rogers-neighborhood-youtube.html
+
 **The British Used to Sound Like We Did**\
 `When they left, they changed.`\
 https://www.nytimes.com/2026/06/04/opinion/british-american-english-language.html
