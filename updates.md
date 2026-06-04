@@ -1,3 +1,7 @@
+**Sherrill Says Immigration Officials Won’t Let Her Visit Detention Center**\
+`The governor said the Department of Homeland Security’s actions at Delaney Hall raise “serious questions.”`\
+https://www.nytimes.com/2026/06/03/nyregion/nj-governor-sherrill-delaney-hall.html
+
 **We Interrupt This Knicks Victory for a Political Ad Starring Mamdani**\
 `Mayor Zohran Mamdani lent his political star power to an unusual TV ad promoting three Democrats running for House seats in New York City.`\
 https://www.nytimes.com/2026/06/03/nyregion/mamdani-knicks-ad-campaign.html
