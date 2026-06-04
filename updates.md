@@ -1,3 +1,11 @@
+**University of Texas to Remove Cesar Chavez Statue From Austin Campus**\
+`The university joins a list of schools and cities across the U.S. that have removed memorials and images featuring the labor leader after abuse allegations surfaced.`\
+https://www.nytimes.com/2026/06/04/us/university-texas-austin-cesar-chavez-statue.html
+
+**Children With Autism Lose When the Focus Is on Profits**\
+`Readers respond to an investigation into autism clinics accused of overcharging for a therapeutic method some say is harmful to children. Also: Weight-loss drugs for children.`\
+https://www.nytimes.com/2026/06/04/opinion/children-autism-profits.html
+
 **Supreme Court Finds S.E.C. Can Strip Wrongdoers of Illegal Financial Gains, Even Without Proof of Victim Loss**\
 `The justices unanimously sided with the independent financial watchdog, finding that the agency could collect ill-gotten money, even if it could not show victims had suffered financial loss.`\
 https://www.nytimes.com/2026/06/04/us/politics/supreme-court-sec-disgorgement.html
