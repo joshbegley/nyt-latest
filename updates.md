@@ -1,3 +1,7 @@
+**Europa ya no quiere depender tecnológicamente de EE. UU.**\
+`La Unión Europea adelanta cómo planea tomar las riendas de sus centros de datos, semiconductores y computación en la nube.`\
+https://www.nytimes.com/es/2026/06/04/espanol/negocios/europa-dependencia-tecnologica.html
+
 **En plena guerra, el presidente del fútbol iraní trabaja para que su selección vaya al Mundial**\
 `Mehdi Taj dijo que su federación ha estado tratando con la FIFA, y no con Estados Unidos, para intentar obtener visados para que Irán juegue en el torneo que comienza la próxima semana.`\
 https://www.nytimes.com/es/2026/06/04/espanol/mundo/iran-mundial-fifa.html
