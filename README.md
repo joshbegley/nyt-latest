@@ -1,3 +1,11 @@
+**Who’s Excited for SpaceX’s I.P.O.? Space Nerds.**\
+`Few are as delighted by the pending market debut as the vibrant community of space enthusiasts who want to push discovery of the final frontier.`\
+https://www.nytimes.com/2026/06/04/technology/space-nerds-spacex-ipo.html
+
+**Gwynne Shotwell, Elon Musk’s No. 2 at SpaceX, Is the Company’s Steady Hand**\
+`Gwynne Shotwell, the president and chief operating officer, is the adult-in-the-room foil to Mr. Musk as SpaceX prepares for a blockbuster initial public offering.`\
+https://www.nytimes.com/2026/06/04/technology/gwynne-shotwell-spacex.html
+
 **American Farms Rely More Than Ever on the Troubled H-2A Visa Program**\
 `The Trump administration is allowing in more agricultural guest workers under the H-2A program, but preventing abuses is proving difficult.`\
 https://www.nytimes.com/2026/06/04/business/economy/farms-h2a-visas-migrant-workers.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/04/style/dot-cakes-tiktok.html
 **The Democrats’ Big Decision: Black Representation or More Blue Seats?**\
 `As Republicans break up majority-Black House districts, Democrats must decide whether to preserve seats concentrated in urban areas or push them into white suburbs to target G.O.P. seats.`\
 https://www.nytimes.com/2026/06/04/us/politics/democrats-black-representation-redistricting.html
-
-**‘Underland’ Review: Subterranean Adventurers**\
-`All over the world, voyagers are descending, legally and not, into the lower depths. This documentary offers a frustratingly abbreviated look at three of them.`\
-https://www.nytimes.com/2026/06/04/movies/underland-review-subterranean-adventurers.html
-
-**‘She’s the He’ Review: A Campy, Gender Swap Comedy**\
-`Nico Carney and Misha Osherovich play best friends on a mission to enter the women’s locker room.`\
-https://www.nytimes.com/2026/06/04/movies/shes-the-he-review.html
 
