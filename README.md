@@ -1,3 +1,7 @@
+**But First, Restaurant**\
+`Three New York City restaurants where the coffee is as good as the food.`\
+https://www.nytimes.com/2026/06/04/dining/but-first-restaurant.html
+
 **Wary of Americans, Canada Bets on Its Own A.I.**\
 `The country on Thursday released a national artificial intelligence strategy that focuses on building its sovereign capability and protecting consumers.`\
 https://www.nytimes.com/2026/06/04/world/canada/canada-national-ai-strategy.html
@@ -55,7 +59,7 @@ https://www.nytimes.com/2026/06/04/books/review/new-recommended-books.html
 https://www.nytimes.com/2026/06/04/us/politics/cassidy-booker-lawsuit-trump-fund.html
 
 **Kennedy Center Tells Staff to Immediately Remove Trump’s Name From Documents**\
-`The center’s general counsel also said that a federal judge’s order meant the president’s name must be taken off indoor and outdoor signage by June 12.`\
+`The center’s general counsel also said that a federal judge’s order meant the president’s name must be taken off outdoor and indoor signage by June 12.`\
 https://www.nytimes.com/2026/06/04/arts/music/kennedy-center-trump-name-memo.html
 
 **Jan. 6 Rioter Is Hired to Work in Sensitive Pentagon Office**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/04/us/rebecca-grossman-scott-erickson-trial-dama
 **Who’s Excited for SpaceX’s I.P.O.? Space Nerds.**\
 `Few are as delighted by the pending market debut as the vibrant community of space enthusiasts who want to push discovery of the final frontier.`\
 https://www.nytimes.com/2026/06/04/technology/space-nerds-spacex-ipo.html
-
-**Gwynne Shotwell, Elon Musk’s No. 2 at SpaceX, Is the Company’s Steady Hand**\
-`Gwynne Shotwell, the president and chief operating officer, is the adult-in-the-room foil to Mr. Musk as SpaceX prepares for a blockbuster initial public offering.`\
-https://www.nytimes.com/2026/06/04/technology/gwynne-shotwell-spacex.html
 
 **Mideast Live Updates: Israel and Hezbollah Trade Strikes, Leaving New Cease-Fire in Doubt**\
 `Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, had rejected a deal worked out between Israel and the Lebanese government.`\
