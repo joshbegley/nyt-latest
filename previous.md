@@ -1,3 +1,11 @@
+**Justice Department Tells Prosecutors to Pursue Immigrant Vote Fraud Cases**\
+`About 90 such investigations are currently open, a Justice Department official told prosecutors. The tally offers a glimpse inside the scale of the administration’s efforts.`\
+https://www.nytimes.com/2026/06/04/us/immigrants-vote-fraud.html
+
+**Israel Trades Strikes With Hezbollah After New Cease-Fire With Lebanon**\
+`Israel and Hezbollah fighters traded attacks hours after the Trump administration brokered a new cease-fire agreement between the two countries. Hezbollah’s leader said the Iranian-backed militant group rejected the new deal.`\
+https://www.nytimes.com/video/world/middleeast/100000010944519/israel-hezbollah-strikes-lebanon-ceasefire.html
+
 **Muere Marjane Satrapi, autora de ‘Persépolis’, a los 56 años**\
 `Su popular serie de novelas gráficas, publicada a principios de la década de 2000, seguía a una niña iraní a través de la Revolución Islámica y la guerra Irán-Irak.`\
 https://www.nytimes.com/es/2026/06/04/espanol/cultura/muere-marjane-satrapi-persepolis.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/04/opinion/trump-science-shakespeare-memory-poet
 **Padecía mareos y molestias cuando giraba la cabeza. ¿Por qué?**\
 `Los síntomas de este hombre eran intermitentes, y vivió con ellos durante años. Entonces se asustó lo suficiente como para buscar ayuda.`\
 https://www.nytimes.com/es/2026/06/04/espanol/estilos-de-vida/mareos-molestias-diagnostico.html
-
-**Can Abelardo De La Espriella, a U.S. Citizen, Become Colombia’s President?**\
-`President Trump this week endorsed the right-wing candidate, Abelardo De La Espriella, a dual citizen of Colombia and the United States, in Colombia’s presidential runoff.`\
-https://www.nytimes.com/2026/06/04/world/americas/colombia-president-de-la-espriella-us-citizen.html
-
-**Trump Is Finally Facing Reality on A.I.**\
-`A.I. will upend cybersecurity as we know it. The president’s new executive order is a good first step in creating a safer tech ecosystem.`\
-https://www.nytimes.com/2026/06/04/opinion/trump-ai-executive-order-cybersecurity.html
 

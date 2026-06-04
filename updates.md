@@ -1,3 +1,11 @@
+**Justice Department Tells Prosecutors to Pursue Immigrant Vote Fraud Cases**\
+`About 90 such investigations are currently open, a Justice Department official told prosecutors. The tally offers a glimpse inside the scale of the administration’s efforts.`\
+https://www.nytimes.com/2026/06/04/us/immigrants-vote-fraud.html
+
+**Israel Trades Strikes With Hezbollah After New Cease-Fire With Lebanon**\
+`Israel and Hezbollah fighters traded attacks hours after the Trump administration brokered a new cease-fire agreement between the two countries. Hezbollah’s leader said the Iranian-backed militant group rejected the new deal.`\
+https://www.nytimes.com/video/world/middleeast/100000010944519/israel-hezbollah-strikes-lebanon-ceasefire.html
+
 **Muere Marjane Satrapi, autora de ‘Persépolis’, a los 56 años**\
 `Su popular serie de novelas gráficas, publicada a principios de la década de 2000, seguía a una niña iraní a través de la Revolución Islámica y la guerra Irán-Irak.`\
 https://www.nytimes.com/es/2026/06/04/espanol/cultura/muere-marjane-satrapi-persepolis.html

@@ -1,3 +1,7 @@
+**‘60 Minutes’ Turmoil: What to Know After Scott Pelley’s Firing**\
+`Scott Pelley’s firing is the latest in a string of controversies and staffing shake-ups that have plagued CBS’s news division.`\
+https://www.nytimes.com/2026/06/04/business/cbs-60-minutes-scott-pelley-bari-weiss.html
+
 **Justice Department Tells Prosecutors to Pursue Immigrant Vote Fraud Cases**\
 `About 90 such investigations are currently open, a Justice Department official told prosecutors. The tally offers a glimpse inside the scale of the administration’s efforts.`\
 https://www.nytimes.com/2026/06/04/us/immigrants-vote-fraud.html
@@ -162,8 +166,8 @@ https://www.nytimes.com/2026/06/04/crosswords/wordle-review-1812.html
 `Her popular graphic novel series, published in the early 2000s, followed an Iranian girl through the Islamic Revolution and the Iran-Iraq War.`\
 https://www.nytimes.com/2026/06/04/world/middleeast/marjane-satrapi-dead.html
 
-**Iran War Live Updates: Israel Trades Strikes With Hezbollah, Leaving New Cease-Fire With Lebanon in Doubt**\
-`Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, had rejected the deal.`\
+**Mideast Live Updates: Israel and Hezbollah Trade Strikes, Leaving New Cease-Fire in Doubt**\
+`Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, had rejected a deal worked out between Israel and the Lebanese government.`\
 https://www.nytimes.com/live/2026/06/04/world/iran-war-trump-israel-lebanon
 
 **Do Not Mess with the Reporter Who Took Down Jeffrey Epstein**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/04/t-magazine/fathers-day-gift-ideas.html
 **The Fluffernutter Theory of Trump**\
 `Mindless optimism is the only antidote to rational despair.`\
 https://www.nytimes.com/2026/06/04/opinion/trump-science-shakespeare-memory-poetry.html
-
-**Padecía mareos y molestias cuando giraba la cabeza. ¿Por qué?**\
-`Los síntomas de este hombre eran intermitentes, y vivió con ellos durante años. Entonces se asustó lo suficiente como para buscar ayuda.`\
-https://www.nytimes.com/es/2026/06/04/espanol/estilos-de-vida/mareos-molestias-diagnostico.html
 
