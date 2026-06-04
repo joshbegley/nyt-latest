@@ -1,3 +1,11 @@
+**Priest Who Said Aliens Were Demons Removed as Exorcist for Washington**\
+`Cardinal Robert McElroy, archbishop of Washington, said recent statements by the exorcist “undermine the Church’s very precise teaching on the devil.”`\
+https://www.nytimes.com/2026/06/04/us/catholic-exorcist-demon-ufo.html
+
+**Trump Offers Funds for First New U.S. Coal Plants in 13 Years**\
+`The president announced a total of $700 million in federal money to reinvigorate the domestic coal industry, which has been in decline for decades.`\
+https://www.nytimes.com/2026/06/04/climate/trump-coal-plants-funding.html
+
 **Trump and Mamdani Plan to Be at Monday’s Knicks Game (but Not Together)**\
 `President Trump is expected to sit in a luxury box for Game 3 of the N.B.A. finals at Madison Square Garden. Mayor Zohran Mamdani says he will be in a “very different section.”`\
 https://www.nytimes.com/2026/06/04/nyregion/knicks-mamdani-trump-garden.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/world/americas/100000010937966/why-we-track-number
 **Bill Bradley, 2-Time Champion With the Knicks, Cheers on His Old Team in the Finals**\
 `Watching Game 1 of the Knicks-Spurs series, Bill Bradley, the two-time N.B.A. champion and former U.S. senator, spoke reverently of teamwork — and had a few choice words for the refs.`\
 https://www.nytimes.com/2026/06/04/nyregion/bill-bradley-knicks-finals-game-1.html
-
-**How We Are Illustrating Trump’s Plans to Remake Washington**\
-`With the East Wing turned to rubble, our Graphics staff set out to show what exactly the president planned to build there and elsewhere.`\
-https://www.nytimes.com/2026/06/04/insider/trump-ballroom-arch-washington.html
-
-**Limmie Pulliam, Tenor Who Overcame the Stigma of His Size, Dies at 50**\
-`He quit singing in his early 20s when opera companies objected to his appearance, but after a 12-year absence he revived his career to acclaim.`\
-https://www.nytimes.com/2026/06/04/arts/music/limmie-pulliam-dead.html
 
