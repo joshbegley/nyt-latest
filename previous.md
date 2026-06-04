@@ -1,9 +1,21 @@
-**Map: 4.1-Magnitude Earthquake Shakes Las Vegas**\
+**Oakley Isn’t Barred From Madison Square Garden Anymore. Will He Come See the Knicks Play?**\
+`Charles Oakley, the 1990s Knicks star, hasn’t been to a game at Madison Square Garden in nearly a decade because of a legal battle.`\
+https://www.nytimes.com/2026/06/04/nyregion/charles-oakley-madison-square-garden-knicks-finals.html
+
+**Postal Service Frees Up Enough Cash to Keep Operating for ‘Several Years’**\
+`The agency had warned it could run out of money within months, but its regulators said suspending payments to a retirement fund had given officials more time to find a permanent solution.`\
+https://www.nytimes.com/2026/06/04/us/politics/postal-service-finances.html
+
+**Gunfire and Explosions Erupt in Somalia’s Capital, Residents Say**\
+`Residents of Mogadishu, Somalia’s capital, said government forces fought militia groups and heard sounds of rocket-propelled grenades on Thursday. Some residents fled their homes to escape the violence. No information of casualties was immediately available.`\
+https://www.nytimes.com/video/world/africa/100000010944673/somalia-mogadishu-fighting.html
+
+**Map: 3.8-Magnitude Earthquake Shakes Las Vegas**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/06/04/us/quake-tracker-las-vegas.html
 
 **Week 1: Manage Your ‘Ultraprocessed Time’**\
-`Your phone may distract you, but it doesn’t restore you. Here’s what does.`\
+`Manage Your ‘Ultraprocessed Time’`\
 https://www.nytimes.com/interactive/2026/06/04/well/touch-grass-challenge-week-1.html
 
 **Tennis Giants Tumble**\
@@ -181,18 +193,6 @@ https://www.nytimes.com/2026/06/04/climate/deep-sea-mining-metals-company.html
 **Prada Takes Over Katz’s Deli With Cole Escola, Amanda Gorman and Lots of Pastrami**\
 `To kick off its cultural series, Prada Mode, the Italian fashion house brought together celebrities and influencers for dancing and sandwiches.`\
 https://www.nytimes.com/2026/06/04/style/prada-mode-nyc-kojima-hotel-chelsea.html
-
-**What Are A.I. Agents Actually Doing?**\
-`A San Francisco start-up called Arena found that people are most likely to use A.I. agents on the job, particularly if they are in the tech industry.`\
-https://www.nytimes.com/2026/06/04/technology/ai-agents-arena.html
-
-**Wim Wenders Pulls Film With Teenage Nudity After Pleas by Nastassja Kinski**\
-`Nastassja Kinski was 13 years old when she was shown topless in the 1975 film “Wrong Move.” “I could already tell that wasn’t right,” she told a German newspaper.`\
-https://www.nytimes.com/2026/06/04/movies/wim-wenders-nastassja-kinski-nudity-topless-wrong-move.html
-
-**Ultra-Orthodox Riot Shocks Israelis In Latest Protest At Military Draft**\
-`Israel’s Haredim have escalated their protests against military service in recent weeks, underscoring growing divisions ahead of national elections.`\
-https://www.nytimes.com/2026/06/04/world/middleeast/israel-orthodox-riot-military-draft-judge.html
 
 **Mideast Live Updates: Hezbollah Rejects Cease-Fire Deal Between Lebanon and Israel**\
 `Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, said a truce worked out between Israel and the Lebanese government amounted to surrender for his group.`\
