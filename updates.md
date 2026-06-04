@@ -1,3 +1,15 @@
+**Mistrust Spreads With the Ebola Virus in Congo**\
+`In a remote mining town at the center of the Democratic Republic of Congo’s Ebola outbreak, grief and mistrust are complicating efforts to stop the virus. Health workers are trying to treat the ill and bury the dead, but some residents are still in denial that the disease is even real.`\
+https://www.nytimes.com/video/world/africa/100000010942478/ebola-congo-mistrust-grief.html
+
+**Granted Clemency by Trump, Scores of Jan. 6 Rioters Have Been Accused of New Crimes**\
+`At least 97 of those who were charged in connection with the Capitol riot have reoffended in the years since the attack, the nonprofit publication Lawfare has found.`\
+https://www.nytimes.com/2026/06/04/us/politics/jan-6-new-crimes.html
+
+****\
+`News agency video filmed by Reuters on May 11 shows white phosphorus functioning over the border between Israel and Lebanon.`\
+https://www.nytimes.com/video/embedded/admin/100000010936621/01visualUploader-84177.html
+
 **My Post-Vacation Vegetable Deficit Is Critical**\
 `Now that I’m back home, I’m upping my green quotient with crunchy salads, veggie-packed frittatas and more.`\
 https://www.nytimes.com/2026/06/04/dining/my-post-vacation-vegetable-deficit-is-critical.html
