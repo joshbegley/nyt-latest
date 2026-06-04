@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/06/04/dining/dont-mess-with-the-sauce-its-marvelous
 `Dan Lin doesn’t fawn over stars or write blank checks. And he still greenlights more movies than anyone.`\
 https://www.nytimes.com/2026/06/04/business/media/dan-lin-netflix-hollywood.html
 
-**Mideast Live Updates: Israel and Hezbollah Trade Strikes, Leaving New Cease-Fire in Doubt**\
-`Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, had rejected a deal worked out between Israel and the Lebanese government.`\
+**Mideast Live Updates: Hezbollah Rejects Cease-Fire Deal Between Lebanon and Israel**\
+`Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, said a truce worked out between Israel and the Lebanese government amounted to surrender for his group.`\
 https://www.nytimes.com/live/2026/06/04/world/iran-war-trump-israel-lebanon
 
