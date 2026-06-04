@@ -130,8 +130,8 @@ https://www.nytimes.com/2026/06/03/travel/uk-travelers-eta-outage.html
 `Questions for bats, Rothko weather and Knicks fever.`\
 https://www.nytimes.com/2026/06/03/briefing/03-the-good-list-knicks-rothko.html
 
-**See What Deep-Sea Mining Actually Looks Like, 2 Miles Down**\
-`A mining company sent an advanced ship to try to pluck valuable minerals from the deepest ocean. Here’s how it worked.`\
+**See What Deep-Sea Mining Actually Looks Like, Over 2 Miles Down**\
+`A mining company sent an advanced ship to try to pluck valuable minerals from the deep ocean. Here’s how it worked.`\
 https://www.nytimes.com/interactive/2026/06/03/climate/deep-sea-mining-tests-hidden-gem.html
 
 **California Had the Most Expensive Governor’s Race in U.S. History. It’s Still Not Over.**\

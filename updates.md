@@ -1,3 +1,7 @@
+**See What Deep-Sea Mining Actually Looks Like, Over 2 Miles Down**\
+`A mining company sent an advanced ship to try to pluck valuable minerals from the deep ocean. Here’s how it worked.`\
+https://www.nytimes.com/interactive/2026/06/03/climate/deep-sea-mining-tests-hidden-gem.html
+
 **Massie, 3 Other House Republicans Broke From Trump on Iran War Powers Vote**\
 `Four Republicans from different ideological factions crossed party lines to vote with Democrats in favor of reining in the president’s power to wage war unilaterally.`\
 https://www.nytimes.com/2026/06/03/us/politics/iran-war-powers-trump-republicans.html
