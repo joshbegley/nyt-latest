@@ -1,3 +1,7 @@
+**Read Nick Bilton’s Memo to ‘60 Minutes’ Staff**\
+`The new executive producer of the program sought to lift staff morale after recent high-profile turmoil.`\
+https://www.nytimes.com/interactive/2026/06/04/us/bilton-memo.html
+
 **Reto del verano: Sal al aire libre y ‘a que te dé el sol’**\
 `Tu celular puede distraerte, pero no te recarga las pilas. Esto es lo que sí lo hace.`\
 https://www.nytimes.com/es/interactive/2026/06/04/espanol/como-desconectar-telefono-reto-recuperar-tiempo.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/04/us/politics/jan-6-new-crimes.html
 ****\
 `News agency video filmed by Reuters on May 11 shows white phosphorus functioning over the border between Israel and Lebanon.`\
 https://www.nytimes.com/video/embedded/admin/100000010936621/01visualUploader-84177.html
-
-**My Post-Vacation Vegetable Deficit Is Critical**\
-`Now that I’m back home, I’m upping my green quotient with crunchy salads, veggie-packed frittatas and more.`\
-https://www.nytimes.com/2026/06/04/dining/my-post-vacation-vegetable-deficit-is-critical.html
 
 **Mideast Live Updates: Hezbollah Rejects Cease-Fire Deal Between Lebanon and Israel**\
 `Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, said a truce worked out between Israel and the Lebanese government amounted to surrender for his group.`\

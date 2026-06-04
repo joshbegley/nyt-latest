@@ -1,3 +1,11 @@
+**Reto del verano: Sal al aire libre y ‘a que te dé el sol’**\
+`Tu celular puede distraerte, pero no te recarga las pilas. Esto es lo que sí lo hace.`\
+https://www.nytimes.com/es/interactive/2026/06/04/espanol/como-desconectar-telefono-reto-recuperar-tiempo.html
+
+**What to Know About the Arrest of ICE Protesters at Delaney Hall in New Jersey**\
+`At least 90 people have been arrested during turbulent protests outside the Delaney Hall immigrant detention center in New Jersey over the past two weeks.`\
+https://www.nytimes.com/2026/06/04/nyregion/delaney-hall-protests-charges.html
+
 **‘Scary Movie’ Review: Too Many Movies, Too Few Laughs**\
 `The sixth installment of this low-grade franchise takes a predictable and dismaying turn, even if it feels like the right time to bring the series back.`\
 https://www.nytimes.com/2026/06/04/movies/scary-movie-review.html

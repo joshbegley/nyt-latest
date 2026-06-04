@@ -1,3 +1,7 @@
+**Reto del verano: Sal al aire libre y ‘a que te dé el sol’**\
+`Tu celular puede distraerte, pero no te recarga las pilas. Esto es lo que sí lo hace.`\
+https://www.nytimes.com/es/interactive/2026/06/04/espanol/como-desconectar-telefono-reto-recuperar-tiempo.html
+
 **‘Scary Movie’ Review: Too Many Movies, Too Few Laughs**\
 `The sixth installment of this low-grade franchise takes a predictable and dismaying turn, even if it feels like the right time to bring the series back.`\
 https://www.nytimes.com/2026/06/04/movies/scary-movie-review.html
@@ -143,7 +147,7 @@ https://www.nytimes.com/2026/06/04/weather/california-fire-forecast.html
 https://www.nytimes.com/es/2026/06/04/espanol/estados-unidos/trump-republicanos-represalias-limites.html
 
 **What to Know About the Arrest of ICE Protesters at Delaney Hall in New Jersey**\
-`More than 80 people have been arrested during turbulent protests outside the Delaney Hall immigrant detention center in New Jersey over the past two weeks.`\
+`At least 90 people have been arrested during turbulent protests outside the Delaney Hall immigrant detention center in New Jersey over the past two weeks.`\
 https://www.nytimes.com/2026/06/04/nyregion/delaney-hall-protests-charges.html
 
 **Books Our Editors Loved This Week**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/embedded/admin/100000010936621/01visualUploader-84
 **My Post-Vacation Vegetable Deficit Is Critical**\
 `Now that I’m back home, I’m upping my green quotient with crunchy salads, veggie-packed frittatas and more.`\
 https://www.nytimes.com/2026/06/04/dining/my-post-vacation-vegetable-deficit-is-critical.html
-
-**Amid Kennedy Center Strife, the National Symphony Faces a Cloudy Future**\
-`After months of uncertainty, and without an approved budget or secured venue, the orchestra has been unable to schedule its next season.`\
-https://www.nytimes.com/2026/06/04/arts/kennedy-center-national-symphony.html
 
 **Mideast Live Updates: Hezbollah Rejects Cease-Fire Deal Between Lebanon and Israel**\
 `Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, said a truce worked out between Israel and the Lebanese government amounted to surrender for his group.`\
