@@ -1,3 +1,15 @@
+**Marjane Satrapi, Author of ‘Persepolis,’ Dies at 56**\
+`Her graphic novel series, published in English in 2003, followed an Iranian girl through the Islamic revolution and the Iran-Iraq War. The work humanized Iranians for millions.`\
+https://www.nytimes.com/2026/06/04/world/europe/marjane-satrapi-persepolis-death.html
+
+**Melinda French Gates: Women, We Deserve Better Than This**\
+`Too many women walk out of their doctors’ office with no diagnosis, no treatment and no plan.`\
+https://www.nytimes.com/2026/06/04/opinion/menopause-women-health-care.html
+
+**Book Review: ‘Checkmate,’ by Ben Mezrich**\
+`The story at the heart of “Checkmate” is a good one, but Ben Mezrich has hustled it into print too quickly.`\
+https://www.nytimes.com/2026/06/04/books/review/checkmate-ben-mezrich.html
+
 **Iran War Live Updates: Israel and Lebanon Renew Cease-Fire**\
 `The deal is contingent on Hezbollah, the Iran-backed armed group that was not part of the talks, stopping attacks against Israel and withdrawing from southern Lebanon.`\
 https://www.nytimes.com/live/2026/06/04/world/iran-war-trump-israel-lebanon
