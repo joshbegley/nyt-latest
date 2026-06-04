@@ -1,3 +1,11 @@
+**Trump Says He Plans to Nominate Blanche for Attorney General**\
+`Todd Blanche has been serving as the acting attorney general. A formal nomination to the post would be the president’s latest move to place loyalists in top government jobs.`\
+https://www.nytimes.com/2026/06/04/us/politics/trump-nominate-blanche-attorney-general.html
+
+**Inside SpaceX’s Rockets-to-Riches I.P.O. Plan**\
+`The latest prospectus by Elon Musk’s company underscores its confidence in its planned market debut. But skeptics see reasons for concern.`\
+https://www.nytimes.com/2026/06/04/business/dealbook/spacex-ipo-record.html
+
 **Iran War Live Updates: Israel Says It Targeted Hezbollah After New Cease-Fire With Lebanon**\
 `The U.S.-brokered talks to clinch the deal did not include Hezbollah, the Iranian-backed armed group, which said it had fired rockets at Israeli targets hours after the truce was announced.`\
 https://www.nytimes.com/live/2026/06/04/world/iran-war-trump-israel-lebanon
