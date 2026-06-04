@@ -1,3 +1,7 @@
+**La Cámara de Representantes de EE. UU. vota por el fin de la guerra de Irán**\
+`La aprobación de la resolución legislativa fue una notable reprimenda a Trump y a su gestión de la guerra, después de que el mandatario haya rechazado cualquier esfuerzo por frenar su poder.`\
+https://www.nytimes.com/es/2026/06/03/espanol/estados-unidos/camara-representantes-voto-guerra-iran.html
+
 **Massie, 3 Other House Republicans Broke From Trump on Iran War Powers Vote**\
 `Four Republicans from different ideological factions crossed party lines to vote with Democrats in favor of reining in the president’s power to wage war unilaterally.`\
 https://www.nytimes.com/2026/06/03/us/politics/iran-war-powers-trump-republicans.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/03/opinion/supreme-court.html
 **Where Are All the Subways?**\
 `Why the U.S. lags behind on public transit`\
 https://www.nytimes.com/2026/06/03/headway/public-transit-subways-construction-united-states.html
-
-**See the Clashes Between ICE and Protesters in New Jersey**\
-`Demonstrations outside the Delaney Hall immigrant detention center have at times turned violent, with the authorities deploying tear gas and wielding batons as protesters resisted calls to disperse.`\
-https://www.nytimes.com/2026/06/03/nyregion/delaney-hall-protests-photos.html
 
