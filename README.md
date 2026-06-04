@@ -1,3 +1,15 @@
+**With His New Museum, Obama Offers a Trip to a Parallel America**\
+`The presidential center that opens this month seems out of step with the zeitgeist of the moment and produces emotional reactions among the discontented of the Trump era.`\
+https://www.nytimes.com/2026/06/04/us/politics/obama-museum-parallel-trip.html
+
+**¿Por qué este año a nadie le importa el Mundial?**\
+`No es solo porque se celebre en Estados Unidos bajo el mandato de Donald Trump.`\
+https://www.nytimes.com/es/2026/06/04/espanol/opinion/mundial-poco-entusiasmo.html
+
+**The Strait of Hormuz Is Blocked. The World Is Adjusting.**\
+`The longer we go without oil from the Persian Gulf, the less we’ll need it.`\
+https://www.nytimes.com/2026/06/04/opinion/strait-of-hormuz-oil-iran-war-energy.html
+
 **Europa ya no quiere depender tecnológicamente de EE. UU.**\
 `La Unión Europea adelanta cómo planea tomar las riendas de sus centros de datos, semiconductores y computación en la nube.`\
 https://www.nytimes.com/es/2026/06/04/espanol/negocios/europa-dependencia-tecnologica.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/03/us/politics/midterm-senate-battlegrounds.html
 **Iranian Drone and Missile Barrage Against Kuwait Inflames Regional Tensions**\
 `One person was killed and dozens were injured at Kuwait’s international airport. Tehran denied it had struck the airport.`\
 https://www.nytimes.com/2026/06/03/world/middleeast/iran-kuwait-airport-strike.html
-
-**Travelers Bound for the U.K. Hit a Roadblock: Electronic Authorization System Is Down**\
-`Visitors from the U.S., Canada and most European countries can’t get an electronic travel authorization and are being turned away from planes, trains and boats.`\
-https://www.nytimes.com/2026/06/03/travel/uk-travelers-eta-outage.html
-
-**The Good List: 6 Things to Bring Delight to Your Day**\
-`Questions for bats, Rothko weather and Knicks fever.`\
-https://www.nytimes.com/2026/06/03/briefing/03-the-good-list-knicks-rothko.html
-
-**See What Deep-Sea Mining Actually Looks Like, Over 2 Miles Down**\
-`A mining company sent an advanced ship to try to pluck valuable minerals from the deep ocean. Here’s how it worked.`\
-https://www.nytimes.com/interactive/2026/06/03/climate/deep-sea-mining-tests-hidden-gem.html
 
