@@ -1,3 +1,15 @@
+**Priest Who Said Aliens Were Demons Removed as Exorcist for Washington**\
+`Cardinal Robert McElroy, archbishop of Washington, said recent statements by the exorcist “undermine the Church’s very precise teaching on the devil.”`\
+https://www.nytimes.com/2026/06/04/us/catholic-exorcist-demon-ufo.html
+
+**Trump Offers Funds for First New U.S. Coal Plants in 13 Years**\
+`The president announced a total of $700 million in federal money to reinvigorate the domestic coal industry, which has been in decline for decades.`\
+https://www.nytimes.com/2026/06/04/climate/trump-coal-plants-funding.html
+
+**Latest Israel-Lebanon Cease-Fire Shows Little Sign of Taking Hold**\
+`The U.S.-brokered deal depends on Hezbollah halting its attacks first. But the leader of the Iran-backed group rejected those terms, and Israel said that its offensive would continue.`\
+https://www.nytimes.com/2026/06/04/world/middleeast/lebanon-israel-ceasefire-hezbollah-strikes.html
+
 **Trump and Mamdani Plan to Be at Monday’s Knicks Game (but Not Together)**\
 `President Trump is expected to sit in a luxury box for Game 3 of the N.B.A. finals at Madison Square Garden. Mayor Zohran Mamdani says he will be in a “very different section.”`\
 https://www.nytimes.com/2026/06/04/nyregion/knicks-mamdani-trump-garden.html

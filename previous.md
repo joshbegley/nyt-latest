@@ -1,3 +1,11 @@
+**Priest Who Said Aliens Were Demons Removed as Exorcist for Washington**\
+`Cardinal Robert McElroy, archbishop of Washington, said recent statements by the exorcist “undermine the Church’s very precise teaching on the devil.”`\
+https://www.nytimes.com/2026/06/04/us/catholic-exorcist-demon-ufo.html
+
+**Trump Offers Funds for First New U.S. Coal Plants in 13 Years**\
+`The president announced a total of $700 million in federal money to reinvigorate the domestic coal industry, which has been in decline for decades.`\
+https://www.nytimes.com/2026/06/04/climate/trump-coal-plants-funding.html
+
 **Trump and Mamdani Plan to Be at Monday’s Knicks Game (but Not Together)**\
 `President Trump is expected to sit in a luxury box for Game 3 of the N.B.A. finals at Madison Square Garden. Mayor Zohran Mamdani says he will be in a “very different section.”`\
 https://www.nytimes.com/2026/06/04/nyregion/knicks-mamdani-trump-garden.html
@@ -94,6 +102,10 @@ https://www.nytimes.com/2026/06/04/us/immigrants-vote-fraud.html
 `Israel and Hezbollah fighters traded attacks hours after the Trump administration brokered a new cease-fire agreement between the two countries. Hezbollah’s leader said the Iranian-backed militant group rejected the new deal.`\
 https://www.nytimes.com/video/world/middleeast/100000010944519/israel-hezbollah-strikes-lebanon-ceasefire.html
 
+**Latest Israel-Lebanon Cease-Fire Shows Little Sign of Taking Hold**\
+`The U.S.-brokered deal depends on Hezbollah halting its attacks first. But the leader of the Iran-backed group rejected those terms, and Israel said that its offensive would continue.`\
+https://www.nytimes.com/2026/06/04/world/middleeast/lebanon-israel-ceasefire-hezbollah-strikes.html
+
 **Muere Marjane Satrapi, autora de ‘Persépolis’, a los 56 años**\
 `Su popular serie de novelas gráficas, publicada a principios de la década de 2000, seguía a una niña iraní a través de la Revolución Islámica y la guerra Irán-Irak.`\
 https://www.nytimes.com/es/2026/06/04/espanol/cultura/muere-marjane-satrapi-persepolis.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/video/world/americas/100000010937966/why-we-track-number
 **Bill Bradley, 2-Time Champion With the Knicks, Cheers on His Old Team in the Finals**\
 `Watching Game 1 of the Knicks-Spurs series, Bill Bradley, the two-time N.B.A. champion and former U.S. senator, spoke reverently of teamwork — and had a few choice words for the refs.`\
 https://www.nytimes.com/2026/06/04/nyregion/bill-bradley-knicks-finals-game-1.html
-
-**How We Are Illustrating Trump’s Plans to Remake Washington**\
-`With the East Wing turned to rubble, our Graphics staff set out to show what exactly the president planned to build there and elsewhere.`\
-https://www.nytimes.com/2026/06/04/insider/trump-ballroom-arch-washington.html
-
-**Limmie Pulliam, Tenor Who Overcame the Stigma of His Size, Dies at 50**\
-`He quit singing in his early 20s when opera companies objected to his appearance, but after a 12-year absence he revived his career to acclaim.`\
-https://www.nytimes.com/2026/06/04/arts/music/limmie-pulliam-dead.html
-
-**Mideast Live Updates: Israel and Hezbollah Trade Strikes, Leaving New Cease-Fire in Doubt**\
-`Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, had rejected a deal worked out between Israel and the Lebanese government.`\
-https://www.nytimes.com/live/2026/06/04/world/iran-war-trump-israel-lebanon
 
