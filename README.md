@@ -1,3 +1,7 @@
+**Muere Marjane Satrapi, autora de ‘Persépolis’, a los 56 años**\
+`Su popular serie de novelas gráficas, publicada a principios de la década de 2000, seguía a una niña iraní a través de la Revolución Islámica y la guerra Irán-Irak.`\
+https://www.nytimes.com/es/2026/06/04/espanol/cultura/muere-marjane-satrapi-persepolis.html
+
 **Today, In Short**\
 `Dot cakes. “Summer House.” And the Knicks.`\
 https://www.nytimes.com/2026/06/04/briefing/today-in-short.html
@@ -189,12 +193,4 @@ https://www.nytimes.com/2026/06/04/world/americas/colombia-president-de-la-espri
 **Trump Is Finally Facing Reality on A.I.**\
 `A.I. will upend cybersecurity as we know it. The president’s new executive order is a good first step in creating a safer tech ecosystem.`\
 https://www.nytimes.com/2026/06/04/opinion/trump-ai-executive-order-cybersecurity.html
-
-**They Wanted to Upsize for Their Kids, but Could They Do It on the Upper West Side?**\
-`With about $1.5 million to spend, a couple looked for more bedrooms, some office space and an easy commute to school.`\
-https://www.nytimes.com/interactive/2026/06/04/realestate/upper-west-side-manhattan-coops.html
-
-**The Do’s and Don’ts of Buying Used Tech Gadgets**\
-`With a shortage of some components driving up costs of consumer electronics, refurbished devices are an attractive alternative to buying new.`\
-https://www.nytimes.com/2026/06/04/technology/personaltech/used-tech-refurbished.html
 
