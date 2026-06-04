@@ -1,3 +1,7 @@
+**Why Los Angeles Mayor Karen Bass Has to Fight for Her Job**\
+`Ms. Bass, a Democrat, has had a roller-coaster first term. She now faces the first runoff since 2005 for an incumbent mayor in the city.`\
+https://www.nytimes.com/2026/06/03/us/elections/karen-bass-la-mayor.html
+
 **NYT Crossword Answers for June 4, 2026**\
 `Joe Deeney takes us on a solving spree.`\
 https://www.nytimes.com/2026/06/03/crosswords/daily-puzzle-2026-06-04.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/03/us/politics/gitmo-death-penalty-case.html
 **Six Questions Out of Tuesday’s Big Primaries in California, Iowa and Elsewhere**\
 `Who will run California? Can Democrats win Iowa? Here’s what happened, and what might be next.`\
 https://www.nytimes.com/2026/06/03/us/politics/primaries-california-iowa-questions.html
-
-**Toby Doeden and Larry Rhoden Advance to Runoff for South Dakota Governor**\
-`Toby Doeden, a businessman, and Gov. Larry Rhoden advanced to a runoff. A competitive contest emerged after Kristi Noem stepped down as governor to join President Trump’s cabinet.`\
-https://www.nytimes.com/2026/06/03/us/south-dakota-governor-doeden-rhoden.html
 
