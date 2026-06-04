@@ -1,3 +1,7 @@
+**Mideast Live Updates: Hezbollah Rejects Cease-Fire Deal Between Lebanon and Israel**\
+`Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, said a truce worked out between Israel and the Lebanese government amounted to surrender for his group.`\
+https://www.nytimes.com/live/2026/06/04/world/iran-war-trump-israel-lebanon
+
 **Nose Gear on Boeing 787-9 Dreamliner Collapses, Injuring Several Workers**\
 `The airline Lufthansa said the cause of the accident at Frankfurt Airport was under investigation. The plane can weigh 279 tons at takeoff.`\
 https://www.nytimes.com/2026/06/04/world/europe/boeing-plane-nose-gear-collapse-frankfurt.html
