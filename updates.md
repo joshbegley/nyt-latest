@@ -1,3 +1,7 @@
+**Trump Announces $700 Million in Funds Meant to Boost Coal Industry**\
+`The president announced a total of $700 million in federal money to reinvigorate the domestic coal industry, which has been in decline for decades.`\
+https://www.nytimes.com/2026/06/04/climate/trump-coal-plants-funding.html
+
 **Brian Cox Really Loves Soccer. He Thinks You Should, Too.**\
 `Adam Crafton sits down with the ‘Succession’ actor about what the game means to him.`\
 https://www.nytimes.com/2026/06/04/podcasts/brian-cox-really-loves-soccer-he-thinks-you-should-too.html
