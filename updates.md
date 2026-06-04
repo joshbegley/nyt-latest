@@ -1,3 +1,11 @@
+**Supreme Court Finds S.E.C. Can Strip Wrongdoers of Illegal Financial Gains, Even Without Proof of Victim Loss**\
+`The justices unanimously sided with the independent financial watchdog, finding that the agency could collect ill-gotten money, even if it could not show victims had suffered financial loss.`\
+https://www.nytimes.com/2026/06/04/us/politics/supreme-court-sec-disgorgement.html
+
+**John Bolton, Ex-Trump Adviser, Reaches Deal to Plead Guilty Over Classified Information**\
+`The former Trump national security adviser plans to plead guilty to a count of illegal retention of classified information, which could result in a fine and possibly prison time of up to five years.`\
+https://www.nytimes.com/2026/06/04/us/politics/john-bolton-plea-deal.html
+
 **Mistrust Spreads With the Ebola Virus in Congo**\
 `In a remote mining town at the center of the Democratic Republic of Congo’s Ebola outbreak, grief and mistrust are complicating efforts to stop the virus. Health workers are trying to treat the ill and bury the dead, but some residents are still in denial that the disease is even real.`\
 https://www.nytimes.com/video/world/africa/100000010942478/ebola-congo-mistrust-grief.html
