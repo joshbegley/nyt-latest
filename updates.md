@@ -1,3 +1,11 @@
+**Israel and Lebanon Renew Cease-Fire, Calling for Evacuation of Hezbollah Operatives**\
+`The agreement depends on the cooperation of Hezbollah, the Iran-backed militia. The cease-fire could remove an obstacle in the talks between the United States and Iran.`\
+https://www.nytimes.com/2026/06/03/world/middleeast/israel-lebanon-ceasefire-hezbollah.html
+
+**Flesh-Eating Pest Confirmed in U.S. Cattle**\
+`The New World screwworm was found in a calf in South Texas, the Agriculture Department said, the first case in the country since the 1960s.`\
+https://www.nytimes.com/2026/06/03/business/new-world-screwworm-texas.html
+
 **Why Los Angeles Mayor Karen Bass Has to Fight for Her Job**\
 `Ms. Bass, a Democrat, has had a roller-coaster first term. She now faces the first runoff since 2005 for an incumbent mayor in the city.`\
 https://www.nytimes.com/2026/06/03/us/elections/karen-bass-la-mayor.html
