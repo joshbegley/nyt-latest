@@ -1,3 +1,11 @@
+**Officer Charged With Stealing Journalist’s Camera Bag at Delaney Hall ICE Protest**\
+`Darryl Brown, a sergeant with the Essex County Prosecutor’s Office, is accused of taking home a bag dropped by a photojournalist outside the Delaney Hall immigration detention center in Newark.`\
+https://www.nytimes.com/2026/06/04/nyregion/delaney-hall-protest-officer-charged-stealing.html
+
+**The Summer Challenge Week 1: Log Off and Get Outside**\
+`Your phone may distract you, but it doesn’t restore you. Here’s what does.`\
+https://www.nytimes.com/interactive/2026/06/04/well/touch-grass-challenge-week-1.html
+
 **Trump’s Fraud Claims in California Could Undermine Confidence in November Result**\
 `The president is claiming without evidence that the lengthy counting process in California, which could help determine control of Congress, means Democrats are stealing the election.`\
 https://www.nytimes.com/2026/06/04/us/politics/-trump-vote-fraud.html
