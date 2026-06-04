@@ -1,3 +1,7 @@
+**Four New Zealand Lawmakers Banned From China After Taiwan Trip**\
+`New Zealand’s foreign minister was “surprised” to hear about the one-year travel ban, a spokesperson said, given lawmakers have visited Taiwan for years without issues.`\
+https://www.nytimes.com/2026/06/04/world/australia/new-zealand-taiwan-china-travel-ban.html
+
 **Israel and Lebanon Agree to Renew Cease-Fire**\
 `Israel and Lebanon agreed on Wednesday to renew a cease-fire after U.S.-mediated talks in Washington. The agreement depends on the cooperation of Hezbollah, the Iran-backed militia.`\
 https://www.nytimes.com/video/world/middleeast/100000010944098/israel-lebanon-cease-fire.html
