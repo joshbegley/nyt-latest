@@ -1,10 +1,14 @@
+**Week 1: Manage Your ‘Ultraprocessed Time’**\
+`Manage Your ‘Ultraprocessed Time’`\
+https://www.nytimes.com/interactive/2026/06/04/well/touch-grass-challenge-week-1.html
+
 **Tennis Giants Tumble**\
 `All the big names are out at the French Open. The result is a very confusing, and very exciting, tournament.`\
 https://www.nytimes.com/2026/06/04/world/05int-theworld-tennis-french-open-satrapi-lebanon.html
 
 **Art Gallery Shows to See in June**\
 `This week in Newly Reviewed, Will Heinrich files a dispatch from Los Angeles covering Charles Ray’s strangely lifelike sculptures, James Harrison’s flowers and a group show! (Exclamation point will make sense).`\
-https://www.nytimes.com/2026/06/04/arts/art-gallery-shows-to-see-in-june.html
+https://www.nytimes.com/2026/06/04/arts/design/art-gallery-shows-to-see-in-june.html
 
 **Vanilla Ice Is In, Bret Michaels Is Out: Trump’s Battle for Celebrity Validation**\
 `President Trump has pursued fame his entire adult life. Now in his second term in the White House, he is finding how little power he has to force cultural figures to fall in line.`\
@@ -42,7 +46,7 @@ https://www.nytimes.com/2026/06/04/us/politics/platner-maine-senate-girlfriends-
 `Three New York City restaurants where the coffee is as good as the food.`\
 https://www.nytimes.com/2026/06/04/dining/but-first-restaurant.html
 
-**Wary of Americans, Canada Bets on Its Own A.I.**\
+**Wary of U.S., Carney Bets on AI Strategy for Canada**\
 `The country on Thursday released a national artificial intelligence strategy that focuses on building its sovereign capability and protecting consumers.`\
 https://www.nytimes.com/2026/06/04/world/canada/canada-national-ai-strategy.html
 
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/04/world/middleeast/israel-orthodox-riot-militar
 **Bernard Roizman, Virologist Who Demystified Herpes, Dies at 96**\
 `He mapped the herpes simplex virus genome, revealing how it invades cells. His work also helped lay the groundwork for potential vaccines and gene therapies.`\
 https://www.nytimes.com/2026/06/04/science/bernard-roizman-dead.html
-
-**Four Republicans Rebuke Trump to Rein In War Powers**\
-`Four Republican lawmakers crossed party lines to vote in a measure that seeks to stop the president from taking further military action in Iran.`\
-https://www.nytimes.com/video/us/politics/100000010944299/trump-war-powers-iran.html
 
 **Mideast Live Updates: Hezbollah Rejects Cease-Fire Deal Between Lebanon and Israel**\
 `Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, said a truce worked out between Israel and the Lebanese government amounted to surrender for his group.`\

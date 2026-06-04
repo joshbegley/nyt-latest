@@ -1,3 +1,15 @@
+**Week 1: Manage Your ‘Ultraprocessed Time’**\
+`Manage Your ‘Ultraprocessed Time’`\
+https://www.nytimes.com/interactive/2026/06/04/well/touch-grass-challenge-week-1.html
+
+**Art Gallery Shows to See in June**\
+`This week in Newly Reviewed, Will Heinrich files a dispatch from Los Angeles covering Charles Ray’s strangely lifelike sculptures, James Harrison’s flowers and a group show! (Exclamation point will make sense).`\
+https://www.nytimes.com/2026/06/04/arts/design/art-gallery-shows-to-see-in-june.html
+
+**Wary of U.S., Carney Bets on AI Strategy for Canada**\
+`The country on Thursday released a national artificial intelligence strategy that focuses on building its sovereign capability and protecting consumers.`\
+https://www.nytimes.com/2026/06/04/world/canada/canada-national-ai-strategy.html
+
 **Tennis Giants Tumble**\
 `All the big names are out at the French Open. The result is a very confusing, and very exciting, tournament.`\
 https://www.nytimes.com/2026/06/04/world/05int-theworld-tennis-french-open-satrapi-lebanon.html
