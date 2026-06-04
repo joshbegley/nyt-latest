@@ -1,3 +1,7 @@
+**En plena guerra, el presidente del fútbol iraní trabaja para que su selección vaya al Mundial**\
+`Mehdi Taj dijo que su federación ha estado tratando con la FIFA, y no con Estados Unidos, para intentar obtener visados para que Irán juegue en el torneo que comienza la próxima semana.`\
+https://www.nytimes.com/es/2026/06/04/espanol/mundo/iran-mundial-fifa.html
+
 **Amid War, Iran’s Soccer Leader Works to Get His Team to the World Cup**\
 `Mehdi Taj said his federation has been dealing with FIFA, not the United States, in trying to obtain visas for Iran to play in the tournament that begins next week.`\
 https://www.nytimes.com/2026/06/04/world/middleeast/iran-soccer-world-cup-war.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/06/03/climate/deep-sea-mining-tests-hid
 **California Had the Most Expensive Governor’s Race in U.S. History. It’s Still Not Over.**\
 `Nearly $316 million was spent on campaign ads in the primary for California governor. Now the general election spending will begin.`\
 https://www.nytimes.com/2026/06/03/us/elections/california-governor-campaign-finance.html
-
-**As Ebola Outbreak Widens, Trump Has Yet to Outline a Plan**\
-`Despite long-established procedures for bringing Americans home for monitoring and treatment, the Trump administration has not said that it will allow those at risk of Ebola back into the country.`\
-https://www.nytimes.com/2026/06/03/us/politics/trump-administration-ebola-response.html
 
