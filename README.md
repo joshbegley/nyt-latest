@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/06/04/weather/california-fire-forecast.html
 `El estilo de gobierno unilateral y vengativo del presidente de Estados Unidos comienza a chocar contra un muro en ambas cámaras del Congreso.`\
 https://www.nytimes.com/es/2026/06/04/espanol/estados-unidos/trump-republicanos-represalias-limites.html
 
-**Rioting, Assault, Violating Curfew: The Charges ICE Protesters Face**\
+**What to Know About the Arrest of ICE Protesters at Delaney Hall in New Jersey**\
 `More than 80 people have been arrested during turbulent protests outside the Delaney Hall immigrant detention center in New Jersey over the past two weeks.`\
 https://www.nytimes.com/2026/06/04/nyregion/delaney-hall-protests-charges.html
 
