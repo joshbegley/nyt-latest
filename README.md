@@ -1,3 +1,11 @@
+**Books Our Editors Loved This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/06/04/books/review/new-recommended-books.html
+
+**Senators Cassidy and Booker Ask Judge to Maintain Block on $1.8 Billion Fund**\
+`Bill Cassidy, a Republican, and Cory Booker, a Democrat, maintained that the fund was “an immediate and dire threat to our constitutional order and the authority of Congress.”`\
+https://www.nytimes.com/2026/06/04/us/politics/cassidy-booker-lawsuit-trump-fund.html
+
 **Kennedy Center Tells Staff to Immediately Remove Trump’s Name From Documents**\
 `The center’s general counsel also said that a federal judge’s order meant the president’s name must be taken off indoor and outdoor signage by June 12.`\
 https://www.nytimes.com/2026/06/04/arts/music/kennedy-center-trump-name-memo.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/04/world/middleeast/hezbollah-fiber-optic-drones
 **Alan Gribben, Twain Scholar Who Excised Slur From ‘Huck Finn,’ Dies at 84**\
 `He made it his mission to track down every book Mark Twain owned — and to fix what he saw as flaws that kept schools from teaching the author’s most famous works.`\
 https://www.nytimes.com/2026/06/04/books/alan-gribben-dead.html
-
-**How Trump Was Persuaded to Regulate A.I.**\
-`Even the White House, which has been friendly to the artificial intelligence industry, is finding that it needs greater oversight of powerful new models.`\
-https://www.nytimes.com/2026/06/04/podcasts/the-daily/trump-ai-regulation.html
-
-**G.O.P. Defectors Break With Trump Over War, and SpaceX Set for Largest I.P.O. Ever**\
-`Plus, could streetlights be making your allergies worse?`\
-https://www.nytimes.com/2026/06/04/podcasts/the-headlines/trump-iran-spacex-ipo.html
 
 **Mideast Live Updates: Israel and Hezbollah Trade Strikes, Leaving New Cease-Fire in Doubt**\
 `Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, had rejected a deal worked out between Israel and the Lebanese government.`\
