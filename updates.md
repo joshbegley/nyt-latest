@@ -1,3 +1,15 @@
+**Amid Kennedy Center Strife, the National Symphony Faces a Cloudy Future**\
+`After months of uncertainty, and without an approved budget or secured venue, the orchestra has been unable to schedule its next season.`\
+https://www.nytimes.com/2026/06/04/arts/kennedy-center-national-symphony.html
+
+**New York Democrats Move to Allow More Frequent Redistricting**\
+`Lawmakers moved forward with a measure that would allow the Democratic-run state to redraw its congressional districts more often.`\
+https://www.nytimes.com/2026/06/04/nyregion/redistricting-democrats-new-york.html
+
+**G.O.P. Toiling to Defeat Proposal Barring Trump From Creating Compensation Fund**\
+`The Senate floor ground to a standstill as Republicans struggled to cobble together the votes to defeat a proposal that would send their immigration bill back to committee and ban President Trump’s fund.`\
+https://www.nytimes.com/2026/06/04/us/politics/trump-payout-fund.html
+
 **N.Y. Democrats Move to Allow More Frequent Redistricting**\
 `N.Y. lawmakers moved forward with a measure that would allow the Democratic-run state to redraw the state’s congressional districts more often.`\
 https://www.nytimes.com/2026/06/04/nyregion/redistricting-democrats-new-york.html
