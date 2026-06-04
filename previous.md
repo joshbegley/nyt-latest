@@ -34,8 +34,8 @@ https://www.nytimes.com/2026/06/04/crosswords/wordle-review-1812.html
 `Her graphic novel series, published in English in 2003, followed an Iranian girl through the Islamic revolution and the Iran-Iraq War. The work helped millions relate to Iranians.`\
 https://www.nytimes.com/2026/06/04/world/europe/marjane-satrapi-persepolis-death.html
 
-**Iran War Live Updates: Israel and Lebanon Agree to New Cease-Fire**\
-`The deal is contingent on Hezbollah, the Iran-backed armed group that was not part of the talks, stopping attacks against Israel and withdrawing from southern Lebanon.`\
+**Iran War Live Updates: Israel Says It Targeted Hezbollah After New Cease-Fire With Lebanon**\
+`The U.S.-brokered talks to clinch the deal did not include Hezbollah, the Iranian-backed armed group, which said it had fired rockets at Israeli targets hours after the truce was announced.`\
 https://www.nytimes.com/live/2026/06/04/world/iran-war-trump-israel-lebanon
 
 **Do Not Mess with the Reporter Who Took Down Jeffrey Epstein**\

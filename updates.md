@@ -1,3 +1,7 @@
+**Iran War Live Updates: Israel Says It Targeted Hezbollah After New Cease-Fire With Lebanon**\
+`The U.S.-brokered talks to clinch the deal did not include Hezbollah, the Iranian-backed armed group, which said it had fired rockets at Israeli targets hours after the truce was announced.`\
+https://www.nytimes.com/live/2026/06/04/world/iran-war-trump-israel-lebanon
+
 **Iran War Live Updates: Israel and Lebanon Agree to New Cease-Fire**\
 `The deal is contingent on Hezbollah, the Iran-backed armed group that was not part of the talks, stopping attacks against Israel and withdrawing from southern Lebanon.`\
 https://www.nytimes.com/live/2026/06/04/world/iran-war-trump-israel-lebanon
