@@ -1,3 +1,7 @@
+**Wim Wenders Pulls Film With Teenage Nudity After Pleas by Nastassja Kinski**\
+`Nastassja Kinski was 13 years old when she was shown topless in the 1975 film “Wrong Move.” “I could already tell that wasn’t right,” she told a German newspaper.`\
+https://www.nytimes.com/2026/06/04/movies/wim-wenders-nastassja-kinski-nudity-topless-wrong-move.html
+
 **Ultra-Orthodox Riot Shocks Israelis In Latest Protest At Military Draft**\
 `Israel’s Haredim have escalated their protests against military service in recent weeks, underscoring growing divisions ahead of national elections.`\
 https://www.nytimes.com/2026/06/04/world/middleeast/israel-orthodox-riot-military-draft-judge.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/04/magazine/ai-chatbot-morning-routine-videos.ht
 **The 2026 Tony Awards: Is Broadway Going Easy On Us? | Cannonball**\
 `The Tony Awards are on Sunday, but this year’s theater season lacked … something.`\
 https://www.nytimes.com/2026/06/04/podcasts/tony-awards-broadway-cannonball.html
-
-**Is Broadway Going Easy on Us?**\
-`Wesley Morris and The Times’s chief theater critic, Helen Shaw, compare notes on the 2025-26 Broadway season ahead of the Tony Awards.`\
-https://www.nytimes.com/video/podcasts/100000010939265/is-broadway-going-easy-on-us.html
 
