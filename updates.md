@@ -1,3 +1,7 @@
+**Why Los Angeles Mayor Karen Bass Has to Fight for Her Job**\
+`Ms. Bass, a Democrat, has had a roller-coaster first term. She now faces the first runoff since 2005 for an incumbent mayor in the city.`\
+https://www.nytimes.com/2026/06/03/us/elections/karen-bass-la-mayor.html
+
 **NYT Crossword Answers for June 4, 2026**\
 `Joe Deeney takes us on a solving spree.`\
 https://www.nytimes.com/2026/06/03/crosswords/daily-puzzle-2026-06-04.html

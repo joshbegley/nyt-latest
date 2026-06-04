@@ -1,3 +1,7 @@
+**Flesh-Eating Pest Confirmed in U.S. Cattle**\
+`The New World screwworm was found in a calf in South Texas, the Agriculture Department said, the first case in the country since the 1960s.`\
+https://www.nytimes.com/2026/06/03/business/new-world-screwworm-texas.html
+
 **Why Los Angeles Mayor Karen Bass Has to Fight for Her Job**\
 `Ms. Bass, a Democrat, has had a roller-coaster first term. She now faces the first runoff since 2005 for an incumbent mayor in the city.`\
 https://www.nytimes.com/2026/06/03/us/elections/karen-bass-la-mayor.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/world/europe/100000010941938/henry-nowak-murder-ca
 **How a Prisoner Ended Up Alone in Court in a Death Penalty Case**\
 `The episode at the war court alarmed death penalty lawyers, who argued that the judge had a duty to suspend the proceedings to protect the rights of the defendant.`\
 https://www.nytimes.com/2026/06/03/us/politics/gitmo-death-penalty-case.html
-
-**Six Questions Out of Tuesday’s Big Primaries in California, Iowa and Elsewhere**\
-`Who will run California? Can Democrats win Iowa? Here’s what happened, and what might be next.`\
-https://www.nytimes.com/2026/06/03/us/politics/primaries-california-iowa-questions.html
 
