@@ -1,3 +1,23 @@
+**Nose Gear on Boeing 787-9 Dreamliner Collapses, Injuring Several Workers**\
+`The airline Lufthansa said the cause of the accident at Frankfurt Airport was under investigation. The plane can weigh 279 tons at takeoff.`\
+https://www.nytimes.com/2026/06/04/world/europe/boeing-plane-nose-gear-collapse-frankfurt.html
+
+**Several Workers Injured After Boeing 787-9 Dreamliner Collapses**\
+`The aircraft’s nose gear collapsed as it was parked at Frankfurt Airport on Thursday. Two cabin crew members and an unspecified number of service workers sustained minor injuries.`\
+https://www.nytimes.com/video/travel/100000010945734/lufthansa-airplane-collapse-germany.html
+
+**ICE Agent Charged in Minnesota Shooting Will Not Waive Extradition**\
+`Christian Castro, who is jailed in Texas, was charged with assault in connection with a January shooting that wounded a man.`\
+https://www.nytimes.com/2026/06/04/us/ice-agent-minnesota-shooting-extradition.html
+
+**Wall Street Is Going Gaga for SpaceX**\
+`Jamie Dimon himself is planning to pitch investors on the offering of Elon Musk’s rocket company, as banks prepare to reap huge fees from the largest I.P.O. ever.`\
+https://www.nytimes.com/2026/06/04/business/wall-street-jamie-dimon-spacex.html
+
+**As Trump Toughens Rules on Cuba’s Economy, Hotel Chains Withdraw**\
+`The Trump administration’s efforts to tighten the economic noose on Cuba appear to be working, as more international firms announced they would leave the island.`\
+https://www.nytimes.com/2026/06/04/world/americas/cuba-hotels-economy-trump.html
+
 **Trump Announces $700 Million in Funds Meant to Boost Coal Industry**\
 `The president announced a total of $700 million in federal money to reinvigorate the domestic coal industry, which has been in decline for decades.`\
 https://www.nytimes.com/2026/06/04/climate/trump-coal-plants-funding.html

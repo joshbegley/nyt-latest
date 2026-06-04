@@ -1,3 +1,23 @@
+**Nose Gear on Boeing 787-9 Dreamliner Collapses, Injuring Several Workers**\
+`The airline Lufthansa said the cause of the accident at Frankfurt Airport was under investigation. The plane can weigh 279 tons at takeoff.`\
+https://www.nytimes.com/2026/06/04/world/europe/boeing-plane-nose-gear-collapse-frankfurt.html
+
+**Several Workers Injured After Boeing 787-9 Dreamliner Collapses**\
+`The aircraft’s nose gear collapsed as it was parked at Frankfurt Airport on Thursday. Two cabin crew members and an unspecified number of service workers sustained minor injuries.`\
+https://www.nytimes.com/video/travel/100000010945734/lufthansa-airplane-collapse-germany.html
+
+**ICE Agent Charged in Minnesota Shooting Will Not Waive Extradition**\
+`Christian Castro, who is jailed in Texas, was charged with assault in connection with a January shooting that wounded a man.`\
+https://www.nytimes.com/2026/06/04/us/ice-agent-minnesota-shooting-extradition.html
+
+**Wall Street Is Going Gaga for SpaceX**\
+`Jamie Dimon himself is planning to pitch investors on the offering of Elon Musk’s rocket company, as banks prepare to reap huge fees from the largest I.P.O. ever.`\
+https://www.nytimes.com/2026/06/04/business/wall-street-jamie-dimon-spacex.html
+
+**As Trump Toughens Rules on Cuba’s Economy, Hotel Chains Withdraw**\
+`The Trump administration’s efforts to tighten the economic noose on Cuba appear to be working, as more international firms announced they would leave the island.`\
+https://www.nytimes.com/2026/06/04/world/americas/cuba-hotels-economy-trump.html
+
 **Brian Cox Really Loves Soccer. He Thinks You Should, Too.**\
 `Adam Crafton sits down with the ‘Succession’ actor about what the game means to him.`\
 https://www.nytimes.com/2026/06/04/podcasts/brian-cox-really-loves-soccer-he-thinks-you-should-too.html
@@ -173,26 +193,6 @@ https://www.nytimes.com/2026/06/04/dining/dont-mess-with-the-sauce-its-marvelous
 **Netflix’s New Movie Strategy: Fewer, Better Films**\
 `Dan Lin doesn’t fawn over stars or write blank checks. And he still greenlights more movies than anyone.`\
 https://www.nytimes.com/2026/06/04/business/media/dan-lin-netflix-hollywood.html
-
-**The Boycott That Separated Me From My Neighbors**\
-`I’m not sure that I did the right thing by leaving the Park Slope Food Co-op.`\
-https://www.nytimes.com/2026/06/04/opinion/park-slope-co-op-boycott-israel.html
-
-**Republicans Defeat Move to Bar Trump From Creating Compensation Fund**\
-`Senator Chuck Schumer, Democrat of New York, introduced the motion, which would have sent the G.O.P. immigration bill back to committee. Three Republicans up for re-election voted for it, but it still fell short.`\
-https://www.nytimes.com/2026/06/04/us/politics/trump-payout-fund.html
-
-**How LinkedIn Found Its Social Platform Era**\
-`Celebrities and paid influencers have transformed the career-focused platform, which for some users, has become a job unto itself.`\
-https://www.nytimes.com/2026/06/04/business/linkedin-social-media-influencers.html
-
-**Supreme Court Backs F.C.C. Power to Levy Fines Against Cellphone Carriers**\
-`AT&T and Verizon said they were deprived of their right to a jury trial when the agency penalized the companies for failing to protect consumer information.`\
-https://www.nytimes.com/2026/06/04/us/politics/supreme-court-cellphone-carriers-fines.html
-
-**John Bolton, Ex-Trump Adviser, Reaches Deal to Plead Guilty Over Classified Information**\
-`The former Trump national security adviser plans to plead guilty to a count of illegal retention of classified information, which could result in a fine and possibly prison time of up to five years.`\
-https://www.nytimes.com/2026/06/04/us/politics/john-bolton-plea-deal.html
 
 **Mideast Live Updates: Israel and Hezbollah Trade Strikes, Leaving New Cease-Fire in Doubt**\
 `Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, had rejected a deal worked out between Israel and the Lebanese government.`\
