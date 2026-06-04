@@ -1,3 +1,19 @@
+**Senate Set to Vote on Motion to Bar Trump From Creating Compensation Fund**\
+`Senator Chuck Schumer, Democrat of New York, introduced the motion. A handful of Republicans have indicated that they would support such a measure, which needs just 50 votes to pass.`\
+https://www.nytimes.com/2026/06/04/us/politics/trump-payout-fund.html
+
+**How LinkedIn Found Its Social Platform Era**\
+`Celebrities and paid influencers have transformed the career-focused platform, which for some users, has become a job unto itself.`\
+https://www.nytimes.com/2026/06/04/business/linkedin-social-media-influencers.html
+
+**Supreme Court Backs F.C.C. Power to Levy Fines Against Cellphone Carriers**\
+`AT&T and Verizon said they were deprived of their right to a jury trial when the agency penalized the companies for failing to protect consumer information.`\
+https://www.nytimes.com/2026/06/04/us/politics/supreme-court-cellphone-carriers-fines.html
+
+**John Bolton Reaches Deal to Plead Guilty Over Classified Information**\
+`The former Trump national security adviser plans to plead guilty to a single count of illegal retention of classified information and pay a fine, and could face prison time of up to five years.`\
+https://www.nytimes.com/2026/06/04/us/politics/john-bolton-plea-deal.html
+
 **Rebecca Grossman and Scott Erickson, Ex-MLB Pitcher, Found Liable for $176 Million in Hit-and-Run**\
 `The jury ruled against Rebecca Grossman, a philanthropist, and Scott Erickson, a former M.L.B. pitcher. Ms. Grossman was earlier convicted of murder in the case.`\
 https://www.nytimes.com/2026/06/04/us/rebecca-grossman-scott-erickson-trial-damages.html
