@@ -1,3 +1,7 @@
+**Late Night Reacts to Another Reality Star Wooing Voters**\
+`Michael Kosta wasn’t impressed to see that the L.A. mayoral candidate Spencer Pratt “got a second-season pickup” after Tuesday’s midterms.`\
+https://www.nytimes.com/2026/06/04/arts/television/late-night-spencer-pratt.html
+
 **Palabra del día en inglés: ‘beneficent’**\
 `Esta palabra ha aparecido en 12 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
 https://www.nytimes.com/es/2026/06/04/espanol/que-significa-beneficent.html
