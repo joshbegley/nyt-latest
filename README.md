@@ -1,3 +1,7 @@
+**How We Are Illustrating Trump’s Plans to Remake Washington**\
+`With the East Wing turned to rubble, our Graphics staff set out to show what exactly the president planned to build there and elsewhere.`\
+https://www.nytimes.com/2026/06/04/insider/trump-ballroom-arch-washington.html
+
 **Limmie Pulliam, Tenor Who Overcame the Stigma of His Size, Dies at 50**\
 `He quit singing in his early 20s when opera companies objected to his appearance, but after a 12-year absence he revived his career to acclaim.`\
 https://www.nytimes.com/2026/06/04/arts/music/limmie-pulliam-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/04/movies/masters-of-the-universe-review.html
 **‘The Little Sister’ Review: Learning to Love**\
 `A French Algerian teenager grapples with her sexuality and her faith in a tender coming-of-age drama.`\
 https://www.nytimes.com/2026/06/04/movies/the-little-sister-review.html
-
-**‘Carolina Caroline’ Review: Hearts on the Run**\
-`Samara Weaving and Kyle Gallner are magnetic in this lovers-on-the-lam joint awash in soulful sincerity.`\
-https://www.nytimes.com/2026/06/04/movies/carolina-caroline-review.html
 
