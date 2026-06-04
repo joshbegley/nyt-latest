@@ -1,3 +1,7 @@
+**Read Nick Bilton’s Memo to ‘60 Minutes’ Staff**\
+`The new executive producer of the program sought to lift staff morale after recent high-profile turmoil.`\
+https://www.nytimes.com/interactive/2026/06/04/us/bilton-memo.html
+
 **Reto del verano: Sal al aire libre y ‘a que te dé el sol’**\
 `Tu celular puede distraerte, pero no te recarga las pilas. Esto es lo que sí lo hace.`\
 https://www.nytimes.com/es/interactive/2026/06/04/espanol/como-desconectar-telefono-reto-recuperar-tiempo.html
