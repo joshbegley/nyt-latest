@@ -1,3 +1,7 @@
+**Voters in California City Favor Permanent Ban on Data Centers**\
+`Monterey Park, outside Los Angeles, appeared to become the first U.S. city where voters passed such a measure.`\
+https://www.nytimes.com/2026/06/03/us/elections/data-center-ban-monterey-park-california.html
+
 **La Cámara de Representantes de EE. UU. vota por el fin de la guerra de Irán**\
 `La aprobación de la resolución legislativa fue una notable reprimenda a Trump y a su gestión de la guerra, después de que el mandatario haya rechazado cualquier esfuerzo por frenar su poder.`\
 https://www.nytimes.com/es/2026/06/03/espanol/estados-unidos/camara-representantes-voto-guerra-iran.html
