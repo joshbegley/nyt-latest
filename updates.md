@@ -1,3 +1,11 @@
+**The British Used to Sound Like We Did**\
+`When they left, they changed.`\
+https://www.nytimes.com/2026/06/04/opinion/british-american-english-language.html
+
+**Melinda French Gates: mujeres, merecemos algo mejor**\
+`Las mujeres que atraviesan la menopausia tienen una probabilidad muy alta de recibir una atención médica deficiente.`\
+https://www.nytimes.com/es/2026/06/04/espanol/opinion/menopausia-atencion-medica.html
+
 **What Teens Told Us About Reading Whatever They Wanted in The Times**\
 `We challenged teens to choose any three recent New York Times pieces they wanted, then tell us what they got from them. The results are a delight.`\
 https://www.nytimes.com/2026/06/04/learning/student-reading-challenge.html

@@ -1,3 +1,11 @@
+**The British Used to Sound Like We Did**\
+`When they left, they changed.`\
+https://www.nytimes.com/2026/06/04/opinion/british-american-english-language.html
+
+**Melinda French Gates: mujeres, merecemos algo mejor**\
+`Las mujeres que atraviesan la menopausia tienen una probabilidad muy alta de recibir una atención médica deficiente.`\
+https://www.nytimes.com/es/2026/06/04/espanol/opinion/menopausia-atencion-medica.html
+
 **What Teens Told Us About Reading Whatever They Wanted in The Times**\
 `We challenged teens to choose any three recent New York Times pieces they wanted, then tell us what they got from them. The results are a delight.`\
 https://www.nytimes.com/2026/06/04/learning/student-reading-challenge.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/04/us/trump-arch-dc-planning-meeting.html
 **Fighting in Somalia’s Capital, Mogadishu: What’s Happening and Why It Matters**\
 `Gun battles erupted on Thursday, as armed groups loyal to rival politicians clashed. Residents said it was the worst fighting in years.`\
 https://www.nytimes.com/2026/06/04/world/africa/somalia-mogadishu-fighting.html
-
-**Pommelien Thijs, a Pop Star for Half a Country**\
-`Pommelien Thijs’s catchy tunes are beloved in Belgium — in the Dutch-speaking part, at least.`\
-https://www.nytimes.com/2026/06/04/arts/music/pommelien-thijs-belgium-pop.html
-
-**Trump Says He Plans to Nominate Blanche for Attorney General**\
-`Todd Blanche has been serving as the acting attorney general. A formal nomination to the post would be the president’s latest move to place loyalists in top government jobs.`\
-https://www.nytimes.com/2026/06/04/us/politics/trump-nominate-blanche-attorney-general.html
 
 **Mideast Live Updates: Israel and Hezbollah Trade Strikes, Leaving New Cease-Fire in Doubt**\
 `Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, had rejected a deal worked out between Israel and the Lebanese government.`\

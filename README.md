@@ -1,3 +1,7 @@
+**Mister Rogers: Now on YouTube**\
+`On Thursday, Fred Rogers Productions started a channel dedicated to the beloved children’s host. Eventually it will be a repository for full episodes, behind-the-scenes footage and compilations.`\
+https://www.nytimes.com/2026/06/04/arts/television/mister-rogers-neighborhood-youtube.html
+
 **The British Used to Sound Like We Did**\
 `When they left, they changed.`\
 https://www.nytimes.com/2026/06/04/opinion/british-american-english-language.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/04/arts/music/limmie-pulliam-dead.html
 **Trump’s Arch Project to Face Questions and Criticism at Planning Meeting**\
 `The National Capital Planning Commission received nearly 1,700 comments about President Trump’s plans to build a 250-foot arch in the nation’s capital. Almost all opposed the idea.`\
 https://www.nytimes.com/2026/06/04/us/trump-arch-dc-planning-meeting.html
-
-**Fighting in Somalia’s Capital, Mogadishu: What’s Happening and Why It Matters**\
-`Gun battles erupted on Thursday, as armed groups loyal to rival politicians clashed. Residents said it was the worst fighting in years.`\
-https://www.nytimes.com/2026/06/04/world/africa/somalia-mogadishu-fighting.html
 
 **Mideast Live Updates: Israel and Hezbollah Trade Strikes, Leaving New Cease-Fire in Doubt**\
 `Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, had rejected a deal worked out between Israel and the Lebanese government.`\
