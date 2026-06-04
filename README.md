@@ -1,3 +1,7 @@
+**My Post-Vacation Vegetable Deficit Is Critical**\
+`Now that I’m back home, I’m upping my green quotient with crunchy salads, veggie-packed frittatas and more.`\
+https://www.nytimes.com/2026/06/04/dining/my-post-vacation-vegetable-deficit-is-critical.html
+
 **Amid Kennedy Center Strife, the National Symphony Faces a Cloudy Future**\
 `After months of uncertainty, and without an approved budget or secured venue, the orchestra has been unable to schedule its next season.`\
 https://www.nytimes.com/2026/06/04/arts/kennedy-center-national-symphony.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/es/2026/06/04/espanol/america-latina/colombia-camiseta-m
 **¿Una persona con nacionalidad de EE. UU. puede ser presidente de Colombia?**\
 `Abelardo de la Espriella, candidato de derecha a la presidencia de Colombia que recibió el respaldo público del presidente Donald Trump esta semana, tiene doble nacionalidad colombiana y estadounidense.`\
 https://www.nytimes.com/es/2026/06/04/espanol/america-latina/colombia-presidente-nacionalidad-estadounidense.html
-
-**Two Comedians Walk Into a … Friendship**\
-`I just realized why I liked ‘Hacks’ so much.`\
-https://www.nytimes.com/2026/06/04/opinion/hacks-friendship-comedians-relationships.html
 
