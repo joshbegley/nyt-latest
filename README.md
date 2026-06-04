@@ -1,3 +1,7 @@
+**Pilot Was Warned Jet Was Too Low Before It Clipped a Light Pole**\
+`The pilot heard a “thump” while landing in Newark, according to a newly released report. The light pole crashed onto a truck.`\
+https://www.nytimes.com/2026/06/04/nyregion/plane-light-pole-truck-newark.html
+
 **Read Nick Bilton’s Memo to ‘60 Minutes’ Staff**\
 `The new executive producer of the program sought to lift staff morale after recent high-profile turmoil.`\
 https://www.nytimes.com/interactive/2026/06/04/us/bilton-memo.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/world/africa/100000010942478/ebola-congo-mistrust-
 **Granted Clemency by Trump, Scores of Jan. 6 Rioters Have Been Accused of New Crimes**\
 `At least 97 of those who were charged in connection with the Capitol riot have reoffended in the years since the attack, the nonprofit publication Lawfare has found.`\
 https://www.nytimes.com/2026/06/04/us/politics/jan-6-new-crimes.html
-
-****\
-`News agency video filmed by Reuters on May 11 shows white phosphorus functioning over the border between Israel and Lebanon.`\
-https://www.nytimes.com/video/embedded/admin/100000010936621/01visualUploader-84177.html
 
 **Mideast Live Updates: Hezbollah Rejects Cease-Fire Deal Between Lebanon and Israel**\
 `Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, said a truce worked out between Israel and the Lebanese government amounted to surrender for his group.`\
