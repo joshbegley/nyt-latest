@@ -1,3 +1,7 @@
+**La ambición de Elon Musk por el dinero extraterrestre**\
+`El empresario pone la mira en la muy rentable órbita terrestre baja.`\
+https://www.nytimes.com/es/2026/06/04/espanol/opinion/elon-musk-orbita-baja.html
+
 **South Korea’s Governing Democratic Party Sweeps Local Elections but Faces Setback in Seoul Mayor’s Race**\
 `President Lee Jae Myung’s Democratic Party had hoped to consolidate its influence and extend his political momentum.`\
 https://www.nytimes.com/2026/06/04/world/asia/south-korea-seoul-mayor-elections.html
