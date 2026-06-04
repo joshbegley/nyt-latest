@@ -1,3 +1,7 @@
+**Iran War Live Updates: Israel and Lebanon Renew Cease-Fire**\
+`The deal is contingent on Hezbollah, the Iran-backed armed group that was not part of the talks, stopping attacks against Israel and withdrawing from southern Lebanon.`\
+https://www.nytimes.com/live/2026/06/04/world/iran-war-trump-israel-lebanon
+
 **Do Not Mess with the Reporter Who Took Down Jeffrey Epstein**\
 `Pulitzer winner Julie K. Brown on a culture of silence — and how much more the Epstein files have left to reveal.`\
 https://www.nytimes.com/2026/06/04/podcasts/do-not-mess-with-the-reporter-who-took-down-jeffrey-epstein.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/04/opinion/father-son-relationship-balding.html
 **‘Teachers Are Going to Hate It’: How Social Media Apps Hooked Teens at School**\
 `Internal documents show how tech giants grabbed children’s attention throughout the day, a strategy that schools say has undermined education.`\
 https://www.nytimes.com/2026/06/04/us/social-media-schools.html
-
-**Kiyon Ross Wants Dancers at the School of American Ballet on the Edge of Danger**\
-`With “Proof of Life,” Kiyon Ross wants to make his alma mater, the School of American Ballet, proud — and the dancers feel special. That’s what he would have wanted.`\
-https://www.nytimes.com/2026/06/04/arts/dance/school-of-american-ballet-kiyon-ross.html
 
