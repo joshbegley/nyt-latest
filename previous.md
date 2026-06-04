@@ -1,3 +1,15 @@
+**Tennis Giants Tumble**\
+`All the big names are out at the French Open. The result is a very confusing, and very exciting, tournament.`\
+https://www.nytimes.com/2026/06/04/world/05int-theworld-tennis-french-open-satrapi-lebanon.html
+
+**Art Gallery Shows to See in June**\
+`This week in Newly Reviewed, Will Heinrich files a dispatch from Los Angeles covering Charles Ray’s strangely lifelike sculptures, James Harrison’s flowers and a group show! (Exclamation point will make sense).`\
+https://www.nytimes.com/2026/06/04/arts/art-gallery-shows-to-see-in-june.html
+
+**Vanilla Ice Is In, Bret Michaels Is Out: Trump’s Battle for Celebrity Validation**\
+`President Trump has pursued fame his entire adult life. Now in his second term in the White House, he is finding how little power he has to force cultural figures to fall in line.`\
+https://www.nytimes.com/2026/06/04/us/trump-celebrities-vanilla-ice-freedom-250.html
+
 **Nose Gear on Boeing 787-9 Dreamliner Collapses, Injuring Several Workers**\
 `The airline Lufthansa said the cause of the accident at Frankfurt Airport was under investigation. The plane can weigh 279 tons at takeoff.`\
 https://www.nytimes.com/2026/06/04/world/europe/boeing-plane-nose-gear-collapse-frankfurt.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/2026/06/04/science/bernard-roizman-dead.html
 **Four Republicans Rebuke Trump to Rein In War Powers**\
 `Four Republican lawmakers crossed party lines to vote in a measure that seeks to stop the president from taking further military action in Iran.`\
 https://www.nytimes.com/video/us/politics/100000010944299/trump-war-powers-iran.html
-
-**Early Research Suggests a Path to Predict and Prevent Lung Cancer**\
-`Scientists have identified proteins that could signal increased lung cancer risk, as well as a drug that could reduce the odds of a tumor developing.`\
-https://www.nytimes.com/2026/06/04/well/lung-cancer-prevention.html
-
-**‘Don’t Mess With the Sauce — It’s Marvelous!’**\
-`Change up the protein and veggies as you wish in Melissa Clark’s five-star pork bulgogi with spring vegetables, but keep the spicy-sweet marinade as it is.`\
-https://www.nytimes.com/2026/06/04/dining/dont-mess-with-the-sauce-its-marvelous.html
-
-**Netflix’s New Movie Strategy: Fewer, Better Films**\
-`Dan Lin doesn’t fawn over stars or write blank checks. And he still greenlights more movies than anyone.`\
-https://www.nytimes.com/2026/06/04/business/media/dan-lin-netflix-hollywood.html
 
 **Mideast Live Updates: Hezbollah Rejects Cease-Fire Deal Between Lebanon and Israel**\
 `Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, said a truce worked out between Israel and the Lebanese government amounted to surrender for his group.`\
