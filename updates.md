@@ -1,3 +1,11 @@
+**World Cup Commute by the Numbers: Not Many Options, Few of Them Cheap**\
+`When the World Cup arrives in New Jersey, fans will face some difficult choices: Uber surge pricing, $225 parking spots and few seats on the bus.`\
+https://www.nytimes.com/2026/06/04/nyregion/world-cup-commute-new-york-new-jersey.html
+
+**NYT Spelling Bee Answers for June 4, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/04/crosswords/spelling-bee-forum.html
+
 **Late Night Reacts to Another Reality Star Wooing Voters**\
 `Michael Kosta wasn’t impressed to see that the L.A. mayoral candidate Spencer Pratt “got a second-season pickup” after Tuesday’s midterms.`\
 https://www.nytimes.com/2026/06/04/arts/television/late-night-spencer-pratt.html
