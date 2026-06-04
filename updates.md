@@ -1,3 +1,19 @@
+**Limmie Pulliam, Tenor Who Overcame the Stigma of His Size, Dies at 50**\
+`He quit singing in his early 20s when opera companies objected to his appearance, but after a 12-year absence he revived his career to acclaim.`\
+https://www.nytimes.com/2026/06/04/arts/music/limmie-pulliam-dead.html
+
+**Trump’s Arch Project to Face Questions and Criticism at Planning Meeting**\
+`The National Capital Planning Commission received nearly 1,700 comments about President Trump’s plans to build a 250-foot arch in the nation’s capital. Almost all opposed the idea.`\
+https://www.nytimes.com/2026/06/04/us/trump-arch-dc-planning-meeting.html
+
+**Iran War Live Updates: Israel Trades Strikes With Hezbollah After New Cease-Fire With Lebanon**\
+`Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, had rejected the deal.`\
+https://www.nytimes.com/live/2026/06/04/world/iran-war-trump-israel-lebanon
+
+**Priest’s Ebola Death Stirs Fear and Doubt in Congolese Town**\
+`Priest’s Ebola Death Stirs Fear an Doubt in Congolese Town`\
+https://www.nytimes.com/2026/06/04/world/africa/ebola-congo-funeral-photo.html
+
 **Fighting in Somalia’s Capital, Mogadishu: What’s Happening and Why It Matters**\
 `Gun battles erupted on Thursday, as armed groups loyal to rival politicians clashed. Residents said it was the worst fighting in years.`\
 https://www.nytimes.com/2026/06/04/world/africa/somalia-mogadishu-fighting.html
