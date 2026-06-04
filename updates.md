@@ -1,3 +1,7 @@
+**South Korea’s Governing Democratic Party Sweeps Local Elections but Faces Setback in Seoul Mayor’s Race**\
+`President Lee Jae Myung’s Democratic Party had hoped to consolidate its influence and extend his political momentum.`\
+https://www.nytimes.com/2026/06/04/world/asia/south-korea-seoul-mayor-elections.html
+
 **World Cup Commute by the Numbers: Not Many Options, Few of Them Cheap**\
 `When the World Cup arrives in New Jersey, fans will face some difficult choices: Uber surge pricing, $225 parking spots and few seats on the bus.`\
 https://www.nytimes.com/2026/06/04/nyregion/world-cup-commute-new-york-new-jersey.html
