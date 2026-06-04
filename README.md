@@ -1,5 +1,5 @@
-**N.Y. Democrats Move to Allow More Frequent Redistricting**\
-`N.Y. lawmakers moved forward with a measure that would allow the Democratic-run state to redraw the state’s congressional districts more often.`\
+**New York Democrats Move to Allow More Frequent Redistricting**\
+`Lawmakers moved forward with a measure that would allow the Democratic-run state to redraw its congressional districts more often.`\
 https://www.nytimes.com/2026/06/04/nyregion/redistricting-democrats-new-york.html
 
 **‘60 Minutes’ Turmoil: What to Know After Scott Pelley’s Firing**\
