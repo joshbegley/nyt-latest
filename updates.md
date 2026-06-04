@@ -1,3 +1,7 @@
+**We Interrupt This Knicks Victory for a Political Ad Starring Mamdani**\
+`Mayor Zohran Mamdani lent his political star power to an unusual TV ad promoting three Democrats running for House seats in New York City.`\
+https://www.nytimes.com/2026/06/03/nyregion/mamdani-knicks-ad-campaign.html
+
 **Pace Gallery Cuts 50 Artists and 50 Staff Amid Art Market Challenges**\
 `A challenging art market is forcing even an established player to contract.`\
 https://www.nytimes.com/2026/06/03/arts/design/pace-gallery-artist-cuts.html

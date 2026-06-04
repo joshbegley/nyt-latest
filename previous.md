@@ -1,3 +1,7 @@
+**We Interrupt This Knicks Victory for a Political Ad Starring Mamdani**\
+`Mayor Zohran Mamdani lent his political star power to an unusual TV ad promoting three Democrats running for House seats in New York City.`\
+https://www.nytimes.com/2026/06/03/nyregion/mamdani-knicks-ad-campaign.html
+
 **Pace Gallery Cuts 50 Artists and 50 Staff Amid Art Market Challenges**\
 `A challenging art market is forcing even an established player to contract.`\
 https://www.nytimes.com/2026/06/03/arts/design/pace-gallery-artist-cuts.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/03/climate/greenpeace-energy-transfer-slapp-laws
 **Alex Younger, Former Head of Britain’s MI6, Dies at 62**\
 `As director of the espionage agency from 2014 to 2020, he confronted a range of threats, including international terrorism and an emboldened Russia.`\
 https://www.nytimes.com/2026/06/03/world/europe/alex-younger-dead.html
-
-**I Almost Had a Baby with My BFF**\
-`Joseph Osmundson tells Anna Martin, host of the “Modern Love” podcast, how he felt when his dream of conceiving and co-parenting a baby with his best friend and her partner did not unfold as planned.`\
-https://www.nytimes.com/video/podcasts/100000010942418/i-almost-had-a-baby-with-my-bff.html
 
