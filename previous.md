@@ -1,3 +1,111 @@
+**La camiseta de fútbol de la selección colombiana protagoniza una discusión política**\
+`Iván Cepeda, el senador de izquierda que se enfrenta a Abelardo de la Espriella, candidato de ultraderecha, acusó a su oponente de robarse la camiseta nacional para obtener beneficios políticos.`\
+https://www.nytimes.com/es/2026/06/04/espanol/america-latina/colombia-camiseta-mundial-espriella.html
+
+**¿Una persona con nacionalidad de EE. UU. puede ser presidente de Colombia?**\
+`Abelardo de la Espriella, candidato de derecha a la presidencia de Colombia que recibió el respaldo público del presidente Donald Trump esta semana, tiene doble nacionalidad colombiana y estadounidense.`\
+https://www.nytimes.com/es/2026/06/04/espanol/america-latina/colombia-presidente-nacionalidad-estadounidense.html
+
+**Two Comedians Walk Into a … Friendship**\
+`I just realized why I liked ‘Hacks’ so much.`\
+https://www.nytimes.com/2026/06/04/opinion/hacks-friendship-comedians-relationships.html
+
+**Father’s Day Gift Guide: Ideas From T Magazine**\
+`The perfect presents for Father’s Day, from a chef-approved tabletop grill to Japanese baseball caps.`\
+https://www.nytimes.com/2026/06/04/t-magazine/fathers-day-gift-ideas.html
+
+**The Fluffernutter Theory of Trump**\
+`Mindless optimism is the only antidote to rational despair.`\
+https://www.nytimes.com/2026/06/04/opinion/trump-science-shakespeare-memory-poetry.html
+
+**Padecía mareos y molestias cuando giraba la cabeza. ¿Por qué?**\
+`Los síntomas de este hombre eran intermitentes, y vivió con ellos durante años. Entonces se asustó lo suficiente como para buscar ayuda.`\
+https://www.nytimes.com/es/2026/06/04/espanol/estilos-de-vida/mareos-molestias-diagnostico.html
+
+**Can Abelardo De La Espriella, a U.S. Citizen, Become Colombia’s President?**\
+`President Trump this week endorsed the right-wing candidate, Abelardo De La Espriella, a dual citizen of Colombia and the United States, in Colombia’s presidential runoff.`\
+https://www.nytimes.com/2026/06/04/world/americas/colombia-president-de-la-espriella-us-citizen.html
+
+**Trump Is Finally Facing Reality on A.I.**\
+`A.I. will upend cybersecurity as we know it. The president’s new executive order is a good first step in creating a safer tech ecosystem.`\
+https://www.nytimes.com/2026/06/04/opinion/trump-ai-executive-order-cybersecurity.html
+
+**They Wanted to Upsize for Their Kids, but Could They Do It on the Upper West Side?**\
+`With about $1.5 million to spend, a couple looked for more bedrooms, some office space and an easy commute to school.`\
+https://www.nytimes.com/interactive/2026/06/04/realestate/upper-west-side-manhattan-coops.html
+
+**The Do’s and Don’ts of Buying Used Tech Gadgets**\
+`With a shortage of some components driving up costs of consumer electronics, refurbished devices are an attractive alternative to buying new.`\
+https://www.nytimes.com/2026/06/04/technology/personaltech/used-tech-refurbished.html
+
+**Priest’s Ebola Death Stirs Fear an Doubt in Congolese Town**\
+`Priest’s Ebola Death Stirs Fear an Doubt in Congolese Town`\
+https://www.nytimes.com/2026/06/04/world/africa/ebola-congo-funeral-photo.html
+
+**Colombia’s Yellow World Cup Jersey, Once a Symbol of Unity, Becomes a Political Statement**\
+`A presidential candidate endorsed by President Trump has been accused by some Colombians of co-opting their beloved national team’s yellow soccer jersey.`\
+https://www.nytimes.com/2026/06/04/world/americas/colombia-world-cup-jersey-politics.html
+
+**Should You Outsource Your Morning Routine to a Chatbot?**\
+`A.I. wants to help you start the day. Its suggestions? Drink coffee and get dressed.`\
+https://www.nytimes.com/2026/06/04/magazine/ai-chatbot-morning-routine-videos.html
+
+**The 2026 Tony Awards: Is Broadway Going Easy On Us? | Cannonball**\
+`The Tony Awards are on Sunday, but this year’s theater season lacked … something.`\
+https://www.nytimes.com/2026/06/04/podcasts/tony-awards-broadway-cannonball.html
+
+**Is Broadway Going Easy on Us?**\
+`Wesley Morris and The Times’s chief theater critic, Helen Shaw, compare notes on the 2025-26 Broadway season ahead of the Tony Awards.`\
+https://www.nytimes.com/video/podcasts/100000010939265/is-broadway-going-easy-on-us.html
+
+**Melinda French Gates: America Needs a Menopause Revolution**\
+`Too many women walk out of their doctors’ office with no diagnosis, no treatment and no plan.`\
+https://www.nytimes.com/2026/06/04/opinion/menopause-women-health-care.html
+
+**A Chance to Shop the Paris Opera’s Jewel-Encrusted Closet**\
+`Vintage ball gowns, potbellied fat suits and diaphanous tunics were among the offerings when the Paris Opera held a public sale of opera and ballet costumes.`\
+https://www.nytimes.com/2026/06/04/arts/music/paris-opera-costumes-sale.html
+
+**The U.S.-Qatar Domination of Gas Left the World Dangerously Exposed**\
+`Before the war, the global market for liquefied natural gas was increasingly commanded by just two countries, one of which has now been hobbled.`\
+https://www.nytimes.com/2026/06/04/business/gas-supply-usa-qatar.html
+
+**How Landlords Can Cope With a Rent Freeze**\
+`Moody’s, a ratings agency, says Mayor Zohran Mamdani's plan to freeze stabilized rents would inflict some pain on landlords, but most would be fine.`\
+https://www.nytimes.com/2026/06/04/nyregion/how-landlords-can-cope-with-a-rent-freeze.html
+
+**America Doesn’t Have to Hold Unfair, Unrepresentative Elections**\
+`Americans should think big about shaking up how we vote.`\
+https://www.nytimes.com/2026/06/04/opinion/voting-gerrymandering-election.html
+
+**Homes for Sale in Manhattan and Queens**\
+`This week’s properties are in Greenwich Village, on the Upper East Side and in Hunters Point.`\
+https://www.nytimes.com/2026/06/04/realestate/housing-market-nyc.html
+
+**Homes for Sale in New York and Connecticut**\
+`This week’s properties are a four-bedroom house in Pleasantville, N.Y., and a five-bedroom house in Stamford, Conn.`\
+https://www.nytimes.com/2026/06/04/realestate/housing-market-near-nyc.html
+
+**Where Sky Meets Water, Sanford Biggers Sees Life’s ‘Drift’**\
+`In his first major solo survey on Long Island, the artist explores his connection to the East End’s natural environment and culture in textile works, prints, sculptures and installations.`\
+https://www.nytimes.com/2026/06/04/arts/design/sanford-biggers-drift-long-island.html
+
+**36 Hours on the Isle of Skye, Scotland: Things to Do and See**\
+`With its wide, windy beaches, rugged landscapes and medieval sites — not to mention its trove of whisky distilleries — Scotland’s Isle of Skye offers a more meditative summer escape.`\
+https://www.nytimes.com/interactive/2026/06/04/travel/things-to-do-isle-of-skye.html
+
+**Nathan Lane and Laurie Metcalf on Their Tony-Nominated ‘Death of a Salesman’**\
+`The stars Nathan Lane and Laurie Metcalf talk with the show’s director, Joe Mantello, about the exhilaration of collaborating and the trap of sentimentality.`\
+https://www.nytimes.com/2026/06/04/theater/lane-metcalf-mantello-death-of-a-salesman-broadway.html
+
+**What Are Dot Cakes, the Internet’s Latest Obsession?**\
+`An $11 confection known as a dotcake has New Yorkers queuing up at 6 a.m.`\
+https://www.nytimes.com/2026/06/04/style/dot-cakes-tiktok.html
+
+**The Democrats’ Big Decision: Black Representation or More Blue Seats?**\
+`As Republicans break up majority-Black House districts, Democrats must decide whether to preserve seats concentrated in urban areas or push them into white suburbs to target G.O.P. seats.`\
+https://www.nytimes.com/2026/06/04/us/politics/democrats-black-representation-redistricting.html
+
 **‘Underland’ Review: Subterranean Adventurers**\
 `All over the world, voyagers are descending, legally and not, into the lower depths. This documentary offers a frustratingly abbreviated look at three of them.`\
 https://www.nytimes.com/2026/06/04/movies/underland-review-subterranean-adventurers.html
@@ -89,112 +197,4 @@ https://www.nytimes.com/2026/06/04/arts/dance/school-of-american-ballet-kiyon-ro
 **Knicks Steal Game 1 in San Antonio**\
 `Instant reaction as the Knicks prevail over the Spurs.`\
 https://www.nytimes.com/2026/06/04/podcasts/knicks-steal-game-1-in-san-antonio.html
-
-**S the Wolf**\
-`You spend your whole childhood trying to look different from your dad, only to wake up and see his forehead in the mirror.`\
-https://www.nytimes.com/video/opinion/100000010864182/s-the-wolf.html
-
-**Four New Zealand Lawmakers Banned From China After Taiwan Trip**\
-`New Zealand’s foreign minister was “surprised” to hear about the one-year travel ban, a spokesperson said, given lawmakers have visited Taiwan for years without issues.`\
-https://www.nytimes.com/2026/06/04/world/australia/new-zealand-taiwan-china-travel-ban.html
-
-**Israel and Lebanon Agree to Renew Cease-Fire**\
-`Israel and Lebanon agreed on Wednesday to renew a cease-fire after U.S.-mediated talks in Washington. The agreement depends on the cooperation of Hezbollah, the Iran-backed militia.`\
-https://www.nytimes.com/video/world/middleeast/100000010944098/israel-lebanon-cease-fire.html
-
-**La ambición de Elon Musk por el dinero extraterrestre**\
-`El empresario pone la mira en la muy rentable órbita terrestre baja.`\
-https://www.nytimes.com/es/2026/06/04/espanol/opinion/elon-musk-orbita-baja.html
-
-**South Korea’s Governing Democratic Party Sweeps Local Elections but Faces Setback in Seoul Mayor’s Race**\
-`President Lee Jae Myung’s Democratic Party had hoped to consolidate its influence and extend his political momentum.`\
-https://www.nytimes.com/2026/06/04/world/asia/south-korea-seoul-mayor-elections.html
-
-**World Cup Commute by the Numbers: Not Many Options, Few of Them Cheap**\
-`When the World Cup arrives in New Jersey, fans will face some difficult choices: Uber surge pricing, $225 parking spots and few seats on the bus.`\
-https://www.nytimes.com/2026/06/04/nyregion/world-cup-commute-new-york-new-jersey.html
-
-**NYT Spelling Bee Answers for June 4, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/06/04/crosswords/spelling-bee-forum.html
-
-**Late Night Reacts to Another Reality Star Wooing Voters**\
-`Michael Kosta wasn’t impressed to see that the L.A. mayoral candidate Spencer Pratt “got a second-season pickup” after Tuesday’s midterms.`\
-https://www.nytimes.com/2026/06/04/arts/television/late-night-spencer-pratt.html
-
-**Palabra del día en inglés: ‘beneficent’**\
-`Esta palabra ha aparecido en 12 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
-https://www.nytimes.com/es/2026/06/04/espanol/que-significa-beneficent.html
-
-**Word of the Day: beneficent**\
-`This word has appeared in 12 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/06/04/learning/word-of-the-day-beneficent.html
-
-**With His New Museum, Obama Offers a Trip to a Parallel America**\
-`The presidential center that opens this month seems out of step with the zeitgeist of the moment and produces emotional reactions among the discontented of the Trump era.`\
-https://www.nytimes.com/2026/06/04/us/politics/obama-museum-parallel-trip.html
-
-**¿Por qué este año a nadie le importa el Mundial?**\
-`No es solo porque se celebre en Estados Unidos bajo el mandato de Donald Trump.`\
-https://www.nytimes.com/es/2026/06/04/espanol/opinion/mundial-poco-entusiasmo.html
-
-**The Strait of Hormuz Is Blocked. The World Is Adjusting.**\
-`The longer we go without oil from the Persian Gulf, the less we’ll need it.`\
-https://www.nytimes.com/2026/06/04/opinion/strait-of-hormuz-oil-iran-war-energy.html
-
-**Europa ya no quiere depender tecnológicamente de EE. UU.**\
-`La Unión Europea adelanta cómo planea tomar las riendas de sus centros de datos, semiconductores y computación en la nube.`\
-https://www.nytimes.com/es/2026/06/04/espanol/negocios/europa-dependencia-tecnologica.html
-
-**En plena guerra, el presidente del fútbol iraní trabaja para que su selección vaya al Mundial**\
-`Mehdi Taj dijo que su federación ha estado tratando con la FIFA, y no con Estados Unidos, para intentar obtener visados para que Irán juegue en el torneo que comienza la próxima semana.`\
-https://www.nytimes.com/es/2026/06/04/espanol/mundo/iran-mundial-fifa.html
-
-**Amid War, Iran’s Soccer Leader Works to Get His Team to the World Cup**\
-`Mehdi Taj said his federation has been dealing with FIFA, not the United States, in trying to obtain visas for Iran to play in the tournament that begins next week.`\
-https://www.nytimes.com/2026/06/04/world/middleeast/iran-soccer-world-cup-war.html
-
-**Quote of the Day: Warrior King Reconquers India as a Hindu Hero**\
-`Quotation of the Day for Thursday, June 4, 2024.`\
-https://www.nytimes.com/2026/06/04/pageoneplus/quote-of-the-day-warrior-king-reconquers-india-as-a-hindu-hero.html
-
-**Corrections: June 4, 2026**\
-`Corrections that appeared in print on Thursday, June 4, 2026.`\
-https://www.nytimes.com/2026/06/04/pageoneplus/corrections-june-4-2026.html
-
-**Sherrill Says Immigration Officials Won’t Let Her Visit Detention Center**\
-`The governor said the Department of Homeland Security’s actions at Delaney Hall raise “serious questions.”`\
-https://www.nytimes.com/2026/06/03/nyregion/nj-governor-sherrill-delaney-hall.html
-
-**We Interrupt This Knicks Victory for a Political Ad Starring Mamdani**\
-`Mayor Zohran Mamdani lent his political star power to an unusual TV ad promoting three Democrats running for House seats in New York City.`\
-https://www.nytimes.com/2026/06/03/nyregion/mamdani-knicks-ad-campaign.html
-
-**Pace Gallery Cuts 50 Artists and 50 Staff Amid Art Market Challenges**\
-`A challenging art market is forcing even an established player to contract.`\
-https://www.nytimes.com/2026/06/03/arts/design/pace-gallery-artist-cuts.html
-
-**How Does LA Count Election Ballots? It Begins With a Dog Sniff.**\
-`Counting ballots in California is a complex and lengthy undertaking. In Los Angeles, the choreographed process includes canines, humans and machines.`\
-https://www.nytimes.com/2026/06/03/us/elections/los-angeles-ballot-counting-dogs.html
-
-**Israel and Lebanon Renew Cease-Fire, Calling for Evacuation of Hezbollah Operatives**\
-`The agreement depends on the cooperation of Hezbollah, the Iran-backed militia. The cease-fire could remove an obstacle in the talks between the United States and Iran.`\
-https://www.nytimes.com/2026/06/03/world/middleeast/israel-lebanon-ceasefire-hezbollah.html
-
-**Flesh-Eating Pest Confirmed in U.S. Cattle**\
-`The New World screwworm was found in a calf in South Texas, the Agriculture Department said, the first case in the country since the 1960s.`\
-https://www.nytimes.com/2026/06/03/business/new-world-screwworm-texas.html
-
-**Why Los Angeles Mayor Karen Bass Has to Fight for Her Job**\
-`Ms. Bass, a Democrat, has had a roller-coaster first term. She now faces the first runoff since 2005 for an incumbent mayor in the city.`\
-https://www.nytimes.com/2026/06/03/us/elections/karen-bass-la-mayor.html
-
-**NYT Crossword Answers for June 4, 2026**\
-`Joe Deeney takes us on a solving spree.`\
-https://www.nytimes.com/2026/06/03/crosswords/daily-puzzle-2026-06-04.html
-
-**Israel’s High Court Rejects Ban on Red Cross Visits for Palestinian Prisoners**\
-`Israel forbade the visits, which allow the Red Cross to monitor prisoners’ conditions, in 2023. Justices said the policy violated Israeli and international law.`\
-https://www.nytimes.com/2026/06/03/world/middleeast/israel-supreme-court-red-cross-palestinian-prisoners.html
 
