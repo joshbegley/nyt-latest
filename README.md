@@ -1,3 +1,55 @@
+**La camiseta de fútbol de la selección colombiana protagoniza una discusión política**\
+`Iván Cepeda, el senador de izquierda que se enfrenta a Abelardo de la Espriella, candidato de ultraderecha, acusó a su oponente de robarse la camiseta nacional para obtener beneficios políticos.`\
+https://www.nytimes.com/es/2026/06/04/espanol/america-latina/colombia-camiseta-mundial-espriella.html
+
+**¿Una persona con nacionalidad de EE. UU. puede ser presidente de Colombia?**\
+`Abelardo de la Espriella, candidato de derecha a la presidencia de Colombia que recibió el respaldo público del presidente Donald Trump esta semana, tiene doble nacionalidad colombiana y estadounidense.`\
+https://www.nytimes.com/es/2026/06/04/espanol/america-latina/colombia-presidente-nacionalidad-estadounidense.html
+
+**Two Comedians Walk Into a … Friendship**\
+`I just realized why I liked ‘Hacks’ so much.`\
+https://www.nytimes.com/2026/06/04/opinion/hacks-friendship-comedians-relationships.html
+
+**Father’s Day Gift Guide: Ideas From T Magazine**\
+`The perfect presents for Father’s Day, from a chef-approved tabletop grill to Japanese baseball caps.`\
+https://www.nytimes.com/2026/06/04/t-magazine/fathers-day-gift-ideas.html
+
+**The Fluffernutter Theory of Trump**\
+`Mindless optimism is the only antidote to rational despair.`\
+https://www.nytimes.com/2026/06/04/opinion/trump-science-shakespeare-memory-poetry.html
+
+**Padecía mareos y molestias cuando giraba la cabeza. ¿Por qué?**\
+`Los síntomas de este hombre eran intermitentes, y vivió con ellos durante años. Entonces se asustó lo suficiente como para buscar ayuda.`\
+https://www.nytimes.com/es/2026/06/04/espanol/estilos-de-vida/mareos-molestias-diagnostico.html
+
+**Can Abelardo De La Espriella, a U.S. Citizen, Become Colombia’s President?**\
+`President Trump this week endorsed the right-wing candidate, Abelardo De La Espriella, a dual citizen of Colombia and the United States, in Colombia’s presidential runoff.`\
+https://www.nytimes.com/2026/06/04/world/americas/colombia-president-de-la-espriella-us-citizen.html
+
+**Trump Is Finally Facing Reality on A.I.**\
+`A.I. will upend cybersecurity as we know it. The president’s new executive order is a good first step in creating a safer tech ecosystem.`\
+https://www.nytimes.com/2026/06/04/opinion/trump-ai-executive-order-cybersecurity.html
+
+**They Wanted to Upsize for Their Kids, but Could They Do It on the Upper West Side?**\
+`With about $1.5 million to spend, a couple looked for more bedrooms, some office space and an easy commute to school.`\
+https://www.nytimes.com/interactive/2026/06/04/realestate/upper-west-side-manhattan-coops.html
+
+**The Do’s and Don’ts of Buying Used Tech Gadgets**\
+`With a shortage of some components driving up costs of consumer electronics, refurbished devices are an attractive alternative to buying new.`\
+https://www.nytimes.com/2026/06/04/technology/personaltech/used-tech-refurbished.html
+
+**Priest’s Ebola Death Stirs Fear an Doubt in Congolese Town**\
+`Priest’s Ebola Death Stirs Fear an Doubt in Congolese Town`\
+https://www.nytimes.com/2026/06/04/world/africa/ebola-congo-funeral-photo.html
+
+**Colombia’s Yellow World Cup Jersey, Once a Symbol of Unity, Becomes a Political Statement**\
+`A presidential candidate endorsed by President Trump has been accused by some Colombians of co-opting their beloved national team’s yellow soccer jersey.`\
+https://www.nytimes.com/2026/06/04/world/americas/colombia-world-cup-jersey-politics.html
+
+**Should You Outsource Your Morning Routine to a Chatbot?**\
+`A.I. wants to help you start the day. Its suggestions? Drink coffee and get dressed.`\
+https://www.nytimes.com/2026/06/04/magazine/ai-chatbot-morning-routine-videos.html
+
 **The 2026 Tony Awards: Is Broadway Going Easy On Us? | Cannonball**\
 `The Tony Awards are on Sunday, but this year’s theater season lacked … something.`\
 https://www.nytimes.com/2026/06/04/podcasts/tony-awards-broadway-cannonball.html
@@ -145,56 +197,4 @@ https://www.nytimes.com/2026/06/04/arts/dance/school-of-american-ballet-kiyon-ro
 **Knicks Steal Game 1 in San Antonio**\
 `Instant reaction as the Knicks prevail over the Spurs.`\
 https://www.nytimes.com/2026/06/04/podcasts/knicks-steal-game-1-in-san-antonio.html
-
-**S the Wolf**\
-`You spend your whole childhood trying to look different from your dad, only to wake up and see his forehead in the mirror.`\
-https://www.nytimes.com/video/opinion/100000010864182/s-the-wolf.html
-
-**Four New Zealand Lawmakers Banned From China After Taiwan Trip**\
-`New Zealand’s foreign minister was “surprised” to hear about the one-year travel ban, a spokesperson said, given lawmakers have visited Taiwan for years without issues.`\
-https://www.nytimes.com/2026/06/04/world/australia/new-zealand-taiwan-china-travel-ban.html
-
-**Israel and Lebanon Agree to Renew Cease-Fire**\
-`Israel and Lebanon agreed on Wednesday to renew a cease-fire after U.S.-mediated talks in Washington. The agreement depends on the cooperation of Hezbollah, the Iran-backed militia.`\
-https://www.nytimes.com/video/world/middleeast/100000010944098/israel-lebanon-cease-fire.html
-
-**La ambición de Elon Musk por el dinero extraterrestre**\
-`El empresario pone la mira en la muy rentable órbita terrestre baja.`\
-https://www.nytimes.com/es/2026/06/04/espanol/opinion/elon-musk-orbita-baja.html
-
-**South Korea’s Governing Democratic Party Sweeps Local Elections but Faces Setback in Seoul Mayor’s Race**\
-`President Lee Jae Myung’s Democratic Party had hoped to consolidate its influence and extend his political momentum.`\
-https://www.nytimes.com/2026/06/04/world/asia/south-korea-seoul-mayor-elections.html
-
-**World Cup Commute by the Numbers: Not Many Options, Few of Them Cheap**\
-`When the World Cup arrives in New Jersey, fans will face some difficult choices: Uber surge pricing, $225 parking spots and few seats on the bus.`\
-https://www.nytimes.com/2026/06/04/nyregion/world-cup-commute-new-york-new-jersey.html
-
-**NYT Spelling Bee Answers for June 4, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/06/04/crosswords/spelling-bee-forum.html
-
-**Late Night Reacts to Another Reality Star Wooing Voters**\
-`Michael Kosta wasn’t impressed to see that the L.A. mayoral candidate Spencer Pratt “got a second-season pickup” after Tuesday’s midterms.`\
-https://www.nytimes.com/2026/06/04/arts/television/late-night-spencer-pratt.html
-
-**Palabra del día en inglés: ‘beneficent’**\
-`Esta palabra ha aparecido en 12 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
-https://www.nytimes.com/es/2026/06/04/espanol/que-significa-beneficent.html
-
-**Word of the Day: beneficent**\
-`This word has appeared in 12 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/06/04/learning/word-of-the-day-beneficent.html
-
-**With His New Museum, Obama Offers a Trip to a Parallel America**\
-`The presidential center that opens this month seems out of step with the zeitgeist of the moment and produces emotional reactions among the discontented of the Trump era.`\
-https://www.nytimes.com/2026/06/04/us/politics/obama-museum-parallel-trip.html
-
-**¿Por qué este año a nadie le importa el Mundial?**\
-`No es solo porque se celebre en Estados Unidos bajo el mandato de Donald Trump.`\
-https://www.nytimes.com/es/2026/06/04/espanol/opinion/mundial-poco-entusiasmo.html
-
-**The Strait of Hormuz Is Blocked. The World Is Adjusting.**\
-`The longer we go without oil from the Persian Gulf, the less we’ll need it.`\
-https://www.nytimes.com/2026/06/04/opinion/strait-of-hormuz-oil-iran-war-energy.html
 
