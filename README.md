@@ -1,3 +1,15 @@
+**Read the Email From the ‘60 Minutes’ Stars**\
+`Lesley Stahl, Bill Whitaker and Jon Wertheim told their colleagues why they would stay at the show.`\
+https://www.nytimes.com/interactive/2026/06/05/business/media/60-minutes-stahl-wertheim-whittaker-memo.html
+
+**Formula 1 Has Spread Its Appeal. Top Athletes Have Jumped on Board.**\
+`Elite players have been drawn to a sport that operates at over 200 m.p.h. The head of F1 said high-performing drivers and players speak the same language.`\
+https://www.nytimes.com/2026/06/05/sports/f1-athlete-fans-investors.html
+
+**Speight Jenkins, Who Brought Adventure to Seattle Opera, Dies at 89**\
+`He had never produced a performance when he was hired as the company’s general director in 1983. But over 31 years (and lots of Wagner) he became beloved.`\
+https://www.nytimes.com/2026/06/05/arts/music/speight-jenkins-dead.html
+
 **Flashback: Your Weekly History Quiz, June 6, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/06/05/upshot/flashback.html
@@ -173,16 +185,4 @@ https://www.nytimes.com/es/2026/06/05/espanol/tenis-derrotas.html
 **One Town’s Blueprint for Resegregating America**\
 `The founders of Return to the Land, a whites-only community in Arkansas, say they aren’t breaking any laws.`\
 https://www.nytimes.com/2026/06/05/podcasts/the-daily/arkansas-whites-only-discrimination.html
-
-**NYT Connections Answers for June 6, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, June 6, 2026.`\
-https://www.nytimes.com/2026/06/05/crosswords/connections-companion-1091.html
-
-**NYT Strands Hints for June 6, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, June 6, 2026.`\
-https://www.nytimes.com/2026/06/05/crosswords/strands-sidekick-825.html
-
-**Today’s Wordle Hints for June 6, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, June 6, 2026.`\
-https://www.nytimes.com/2026/06/05/crosswords/wordle-review-1813.html
 
