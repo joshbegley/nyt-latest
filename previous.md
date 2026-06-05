@@ -1,3 +1,11 @@
+**Graham Platner Controversy Deepens Democratic Unease Before Maine Senate Primary**\
+`The party’s politicians, officials and strategists wrestled with how to respond to new reporting about Graham Platner, with worries rising about his vulnerabilities in a general election.`\
+https://www.nytimes.com/2026/06/05/us/politics/platner-democrats-maine-senate-primary-election.html
+
+**The Dream of Emo Is Alive in Like Roses**\
+`Emo is alive and well in the Bay Area band Like Roses, whose song “Wrist” captures the nostalgic sound of early-2000s melodic pop-punk through the lens of queer yearning. Our critic Jon Caramanica unpacks the ways the track caught his attention.`\
+https://www.nytimes.com/video/podcasts/100000010947693/the-dream-of-emo-is-alive-in-like-roses.html
+
 **Ned Jarrett, Champion Stock Car Racer in the 1960s, Dies at 93**\
 `He won the sport’s most important series, NASCAR’s Grand National, and his son followed in his footsteps. Both were inducted into the Hall of Fame.`\
 https://www.nytimes.com/2026/06/05/sports/ned-jarrett-dead.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/video/opinion/100000010945325/the-supreme-courts-jim-cro
 **Trump Says Lee Greenwood and Christopher Macchio Will Replace Freedom 250 Artists**\
 `Artists including Young MC, Martina McBride and Bret Michaels had publicly dropped out of concerts scheduled for the National Mall.`\
 https://www.nytimes.com/2026/06/05/arts/music/freedom-250-trump-lee-greenwood-christopher-macchio.html
-
-**Deal to Renew FISA Surveillance Law Falters in the Senate Over Pulte**\
-`Democrats who had been expected to supply the votes necessary to advance it balked after President Trump named Bill Pulte to head the intelligence apparatus.`\
-https://www.nytimes.com/2026/06/05/us/politics/fisa-surveillance-law-senate-pulte-trump.html
-
-**Summer Reading Contest, Week 1: What Got Your Attention in The Times This Week?**\
-`To participate, submit your response here by June 12 at 9 a.m. Eastern. This week’s winners will be announced by June 24.`\
-https://www.nytimes.com/2026/06/05/learning/summer-reading-contest-week-1-what-got-your-attention-in-the-times-this-week.html
 
 **Employers Added a Robust 172,000 Jobs in May**\
 `Unemployment remained steady at 4.3 percent.`\

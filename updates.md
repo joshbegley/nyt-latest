@@ -1,3 +1,11 @@
+**Graham Platner Controversy Deepens Democratic Unease Before Maine Senate Primary**\
+`The party’s politicians, officials and strategists wrestled with how to respond to new reporting about Graham Platner, with worries rising about his vulnerabilities in a general election.`\
+https://www.nytimes.com/2026/06/05/us/politics/platner-democrats-maine-senate-primary-election.html
+
+**The Dream of Emo Is Alive in Like Roses**\
+`Emo is alive and well in the Bay Area band Like Roses, whose song “Wrist” captures the nostalgic sound of early-2000s melodic pop-punk through the lens of queer yearning. Our critic Jon Caramanica unpacks the ways the track caught his attention.`\
+https://www.nytimes.com/video/podcasts/100000010947693/the-dream-of-emo-is-alive-in-like-roses.html
+
 **Tom Colicchio Will Close Craft, His Flagship Restaurant, After 25 Years**\
 `The chef and judge on “Top Chef” said that running a restaurant in New York — and the clientele — had changed in the last couple of years.`\
 https://www.nytimes.com/2026/06/05/dining/craft-restaurant-closing-tom-colicchio.html
