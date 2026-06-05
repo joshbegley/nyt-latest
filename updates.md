@@ -1,3 +1,7 @@
+**Ebola Cases May Top 20,000 in Three Months, C.D.C. Says**\
+`Still, the risk to people in the United States remains low, the Centers for Disease Control and Prevention said in a report Friday.`\
+https://www.nytimes.com/2026/06/05/us/politics/cdc-ebola-projection.html
+
 **See Where the L.A. Mayoral Candidates Have Done Best So Far**\
 `A map of early returns shows where coalitions have formed in the race between Karen Bass, Spencer Pratt and Nithya Raman.`\
 https://www.nytimes.com/interactive/2026/06/05/us/elections/los-angeles-mayor-primary-results-precinct-map.html

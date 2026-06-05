@@ -1,3 +1,7 @@
+**Ebola Cases May Top 20,000 in Three Months, C.D.C. Says**\
+`Still, the risk to people in the United States remains low, the Centers for Disease Control and Prevention said in a report Friday.`\
+https://www.nytimes.com/2026/06/05/us/politics/cdc-ebola-projection.html
+
 **See Where the L.A. Mayoral Candidates Have Done Best So Far**\
 `A map of early returns shows where coalitions have formed in the race between Karen Bass, Spencer Pratt and Nithya Raman.`\
 https://www.nytimes.com/interactive/2026/06/05/us/elections/los-angeles-mayor-primary-results-precinct-map.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/05/us/brendan-banfield-sentence.html
 **Jonathan Tropper on the ‘Your Friends & Neighbors’ Season 2 Finale**\
 `“We are skewering a value system,” the creator Jonathan Tropper said of the series. “But at the same time, we’re making the show aspirational.”`\
 https://www.nytimes.com/2026/06/05/arts/television/your-friends-neighbors-finale.html
-
-**Judge Says Trump Officials Must Restart Asylum and Immigration Processing**\
-`The judge invalidated policies the Trump administration enacted last year that halted asylum grants, as well as the processing of immigration benefits for people from 39 countries.`\
-https://www.nytimes.com/2026/06/05/us/politics/asylum-immigration-ruling.html
 
 **Employers Added a Robust 172,000 Jobs in May**\
 `Unemployment remained steady at 4.3 percent.`\
