@@ -1,3 +1,23 @@
+**Formula 1: The Second Life of Racecars**\
+`After their racing days are over, they are used in testing, events and as show cars. Some even end up in private hands.`\
+https://www.nytimes.com/2026/06/05/sports/f1-cars-museums.html
+
+**Before French Open Finals, They’ll Serve Up a Dance**\
+`The choreographer Benjamin Millepied had an usual brief: To create two short works for the championship matches at Roland Garros.`\
+https://www.nytimes.com/2026/06/05/arts/dance/roland-garros-french-open-benjamin-millepied.html
+
+**A Divide Over U.S. Support for Israel**\
+`Readers respond to Senator Chris Van Hollen’s call on the Democratic Party to push Israel to work on a two-state solution. Also: Options for mothers.`\
+https://www.nytimes.com/2026/06/05/opinion/us-israel-palestinians.html
+
+**Heir Sues to Claim a Klimt Portrait Thought Lost for Decades**\
+`The painting resurfaced in 2024 and a woman contends in her lawsuit that the work is a portrait of her great-aunt that vanished after the Nazi takeover of Austria.`\
+https://www.nytimes.com/2026/06/05/arts/klimt-lost-painting-lawsuit.html
+
+**Putting Formula 1 on TV Is a Complex Operation**\
+`There are more than 100 technicians and cameras at these global races, and a mission control that monitors everything in England.`\
+https://www.nytimes.com/2026/06/05/sports/formula-1-television-production.html
+
 **Read the Email From the ‘60 Minutes’ Stars**\
 `Lesley Stahl, Bill Whitaker and Jon Wertheim told their colleagues why they would stay at the show.`\
 https://www.nytimes.com/interactive/2026/06/05/business/media/60-minutes-stahl-wertheim-whittaker-memo.html
