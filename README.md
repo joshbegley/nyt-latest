@@ -1,3 +1,7 @@
+**Met Museum’s ‘Musical Bodies’ Blurs Humans and Instruments**\
+`“Musical Bodies,” a new exhibition at the Metropolitan Museum of Art, revels in the blurry boundaries between humans and instruments.`\
+https://www.nytimes.com/2026/06/05/arts/music/musical-bodies-met-museum.html
+
 **Cucumber, Tomato, Red Onion, Herbs, Lime, Olive Oil, Summer**\
 `That’s salad-e Shirazi, one of our most popular recipes of the week.`\
 https://www.nytimes.com/2026/06/05/dining/cucumber-tomato-red-onion-herbs-lime-olive-oil-summer.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/06/05/arts/music/mia-kid-cudi-tour-interview-popcas
 **M.I.A. on MAGA, the Kid Cudi Tour & Bipartisan Cancellation**\
 `Watch the full conversation with M.I.A.; edited excerpts from the interview are below.`\
 https://www.nytimes.com/video/podcasts/100000010940871/mia-on-maga-the-kid-cudi-tour-bipartisan-cancellation.html
-
-**The White House’s Latest Provocation Is Way More Than Just a Troll**\
-`What’s the matter, can’t you take a joke?`\
-https://www.nytimes.com/2026/06/05/opinion/aliens-ice-immigration-white-house.html
 
