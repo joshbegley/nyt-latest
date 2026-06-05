@@ -1,3 +1,7 @@
+**‘60 Minutes’ Stars Will Stay Because They Don’t Want Show to ‘Die’**\
+`Lesley Stahl, Bill Whitaker and Jon Wertheim said on Friday in an email to their colleagues that they had reached the decision after a period of frustration.`\
+https://www.nytimes.com/2026/06/05/business/media/60-minutes-correspondents-will-stay.html
+
 **Man Who Schemed With Au Pair to Kill His Wife Is Sentenced to Life**\
 `Brendan Banfield of Herndon, Va., was found guilty of murdering his wife and another man, who was lured in through a fetish website. The plan involved his lover, who is now serving 10 years in prison.`\
 https://www.nytimes.com/2026/06/05/us/brendan-banfield-sentence.html
@@ -150,7 +154,11 @@ https://www.nytimes.com/2026/06/05/podcasts/hardfork-ipo-math.html
 `Andrew Mountbatten-Windsor received income from renting out three cottages at Royal Lodge, where he paid no rent himself, a British public spending watchdog found.`\
 https://www.nytimes.com/2026/06/05/world/europe/uk-prince-andrew-royal-lodge-property-sublet.html
 
-**Live Updates: Employers Added a Robust 172,000 Jobs in May**\
+**U.S. Job Market Pushes Past Shocks and Strains**\
+`Unemployment is steady and companies are hiring, but wage growth is not keeping up with higher prices.`\
+https://www.nytimes.com/article/what-to-know-about-the-jobs-report.html
+
+**Employers Added a Robust 172,000 Jobs in May**\
 `Unemployment remained steady at 4.3 percent.`\
 https://www.nytimes.com/live/2026/business/jobs-report-economy
 
@@ -177,8 +185,4 @@ https://www.nytimes.com/2026/06/05/crosswords/wordle-review-1813.html
 **Inside Trump’s Strategy to Push Out Immigrants, and How Tech Giants Targeted Teens at School**\
 `Plus, the Friday news quiz.`\
 https://www.nytimes.com/2026/06/05/podcasts/the-headlines/trump-immigrants-tech-schools.html
-
-**Europe Needs New Military Alliance to Defend Itself, Italy Says**\
-`Guido Crosetto, Italy’s defense minister, said in an interview that European nations should forge a new joint defense system and take greater responsibility for their own security.`\
-https://www.nytimes.com/2026/06/05/world/europe/eu-italy-defense-military-alliance-crosetto.html
 

@@ -1,3 +1,15 @@
+**‘60 Minutes’ Stars Will Stay Because They Don’t Want Show to ‘Die’**\
+`Lesley Stahl, Bill Whitaker and Jon Wertheim said on Friday in an email to their colleagues that they had reached the decision after a period of frustration.`\
+https://www.nytimes.com/2026/06/05/business/media/60-minutes-correspondents-will-stay.html
+
+**U.S. Job Market Pushes Past Shocks and Strains**\
+`Unemployment is steady and companies are hiring, but wage growth is not keeping up with higher prices.`\
+https://www.nytimes.com/article/what-to-know-about-the-jobs-report.html
+
+**Employers Added a Robust 172,000 Jobs in May**\
+`Unemployment remained steady at 4.3 percent.`\
+https://www.nytimes.com/live/2026/business/jobs-report-economy
+
 **Man Who Schemed With Au Pair to Kill His Wife Is Sentenced to Life**\
 `Brendan Banfield of Herndon, Va., was found guilty of murdering his wife and another man, who was lured in through a fetish website. The plan involved his lover, who is now serving 10 years in prison.`\
 https://www.nytimes.com/2026/06/05/us/brendan-banfield-sentence.html
