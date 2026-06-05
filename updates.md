@@ -1,3 +1,7 @@
+**‘Girl, Interrupted’ Review: A Musical That’s a Little Too Tranquilized**\
+`While the 1999 movie went for melodrama, this stage adaptation with songs by Aimee Mann honors the memoir’s coolly clinical prose.`\
+https://www.nytimes.com/2026/06/04/theater/girl-interrupted-review-mann-majok-king-princess-canfield.html
+
 **Ohio State Agrees to $100 Million Payout Over Sexual Abuse Claims**\
 `The deal with 279 former students is the latest in the long-running case at the university. In all, nearly 600 people who said they were abused by an athletic department doctor have settled.`\
 https://www.nytimes.com/2026/06/04/us/ohio-state-sexual-abuse-settlement.html
