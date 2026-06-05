@@ -1,3 +1,7 @@
+**Edición genética: embriones humanos son editados por primera vez con gran precisión**\
+`Los investigadores utilizaron una nueva técnica de edición de genes que podría permitir la ingeniería genética de embriones, una perspectiva que desde hace tiempo preocupa a los bioeticistas.`\
+https://www.nytimes.com/es/2026/06/05/espanol/ciencia-y-tecnologia/embrion-humano-genetica.html
+
 **Reid Hoffman to Leave Microsoft’s Board of Directors**\
 `The LinkedIn co-founder was a key bridge to Microsoft’s relationship with OpenAI, but he also came with some baggage.`\
 https://www.nytimes.com/2026/06/05/technology/reid-hoffman-leaving-microsoft-board.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/06/05/learning/summer-reading-contest-week-1-what-g
 **More Renters Are Using Tools to Skip Security Deposits, but There’s a Catch**\
 `Third-party services charge fees to help renters bypass some upfront costs of signing a lease. Unlike traditional deposits, the money won’t be returned to tenants.`\
 https://www.nytimes.com/2026/06/05/your-money/renting-security-deposit-alternatives.html
-
-**James Handy, Actor in ‘Top Gun: Maverick,’ Is Found Stabbed to Death**\
-`The 81-year-old actor had parts in films including “Top Gun: Maverick” and “Arachnophobia.” The son of his girlfriend was arrested and charged with murder.`\
-https://www.nytimes.com/2026/06/05/us/james-handy-stabbed-dead-la-top-gun-jumanji.html
 
 **Employers Added a Robust 172,000 Jobs in May**\
 `Unemployment remained steady at 4.3 percent.`\

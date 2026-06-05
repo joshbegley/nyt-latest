@@ -1,3 +1,7 @@
+**Reid Hoffman to Leave Microsoft’s Board of Directors**\
+`The LinkedIn co-founder was a key bridge to Microsoft’s relationship with OpenAI, but he also came with some baggage.`\
+https://www.nytimes.com/2026/06/05/technology/reid-hoffman-leaving-microsoft-board.html
+
 **Man Who Schemed With Au Pair to Kill His Wife Is Sentenced to Life**\
 `Brendan Banfield was found guilty of murdering his wife and another man, who was lured in through a fetish website. The plan involved his lover, who is now serving 10 years in prison.`\
 https://www.nytimes.com/2026/06/05/us/brendan-banfield-sentence.html
