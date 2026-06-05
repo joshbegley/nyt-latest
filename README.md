@@ -1,3 +1,7 @@
+**‘Office Romance’ Review: Prepare for Turbulence**\
+`Jennifer Lopez and Brett Goldstein cause professional headaches in this workplace comedy about an airline.`\
+https://www.nytimes.com/2026/06/04/movies/office-romance-review.html
+
 **What to Know About California’s Top Election Races**\
 `The Republicans Steve Hilton, who is running for governor, and Spencer Pratt, running for Los Angeles mayor, have shown early strength, but that could fade as more ballots are counted.`\
 https://www.nytimes.com/2026/06/04/us/california-primary-governor-mayor-results.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/04/nyregion/delaney-hall-protests-charges.html
 **Books Our Editors Loved This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/06/04/books/review/new-recommended-books.html
-
-**Senators Cassidy and Booker Ask Judge to Maintain Block on $1.8 Billion Fund**\
-`Bill Cassidy, a Republican, and Cory Booker, a Democrat, maintained that the fund was “an immediate and dire threat to our constitutional order and the authority of Congress.”`\
-https://www.nytimes.com/2026/06/04/us/politics/cassidy-booker-lawsuit-trump-fund.html
 
 **Hezbollah Rejects Cease-Fire Deal Between Lebanon and Israel**\
 `Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, said a truce worked out between Israel and the Lebanese government amounted to surrender for his group.`\
