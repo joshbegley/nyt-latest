@@ -1,3 +1,7 @@
+**Pentagon Cuts 180 Religious Identities From Military Personnel Records**\
+`The new policy, which the Pentagon framed as a largely administrative action, leaves just 31 religious categories to choose from, 22 of which are Christian.`\
+https://www.nytimes.com/2026/06/05/us/pentagon-religions-faith-military.html
+
 **50 Years of People, Passion and Wine**\
 `Since 1976, Duckhorn Vineyards has made wines that capture the spirit of Napa Valley.`\
 http://brandedplaylist.nytimes.com/video/embedded/t-brand/100000010948385/50-years-of-people-passion-and-wine.html
