@@ -1,3 +1,7 @@
+**Late Night Sizes Up Trump’s Reflecting-Pool Ambitions**\
+`“One thing we know for sure is that Trump is definitely obsessed with size,” Seth Meyers said of the president’s bragging about the Lincoln Memorial Reflecting Pool.`\
+https://www.nytimes.com/2026/06/05/arts/television/late-night-trump-lincoln-memorial-reflecting-pool.html
+
 **Russia Rails Against the West but Welcomes Candace Owens and Andrew Tate**\
 `While some powerful Russians shun the West, others want to restore ties and embrace friendly Westerners. President Vladimir V. Putin’s annual economic conference illustrates the conflicting impulses.`\
 https://www.nytimes.com/2026/06/05/world/europe/russia-st-petersburg-forum-candace-owens.html

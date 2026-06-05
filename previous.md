@@ -1,3 +1,7 @@
+**Late Night Sizes Up Trump’s Reflecting-Pool Ambitions**\
+`“One thing we know for sure is that Trump is definitely obsessed with size,” Seth Meyers said of the president’s bragging about the Lincoln Memorial Reflecting Pool.`\
+https://www.nytimes.com/2026/06/05/arts/television/late-night-trump-lincoln-memorial-reflecting-pool.html
+
 **El último techo de paja**\
 `Dentro de la minúscula comunidad de maestros techadores ingleses, se desarrolla una lucha por una tradición que podría no sobrevivir.`\
 https://www.nytimes.com/es/2026/06/05/espanol/mundo/techo-paja-inglaterra-gales.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/04/nyregion/delaney-hall-protest-officer-charged
 **Trump’s Fraud Claims in California Could Undermine Confidence in November Result**\
 `The president is claiming without evidence that the lengthy counting process in California, which could help determine control of Congress, means Democrats are stealing the election.`\
 https://www.nytimes.com/2026/06/04/us/politics/-trump-vote-fraud.html
-
-**Nick Bilton, New ‘60 Minutes’ Chief, Pledges Independence**\
-`Nick Bilton said he had consulted with the program’s remaining correspondents: Lesley Stahl, Jon Wertheim and Bill Whitaker. All three were deliberating whether to stay with the show, two people said.`\
-https://www.nytimes.com/2026/06/04/business/nick-bilton-60-minutes-memo.html
 
