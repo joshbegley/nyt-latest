@@ -1,8 +1,12 @@
-**Russian Satellites Have Been JammingGPS Signals Across Europe, Scientists Say**\
+**Elon Musk Dominates List of Highest Paid C.E.O.s**\
+`Executive compensation is accelerating while rank-and-file workers lag, widening the pay gap in corporate America.`\
+https://www.nytimes.com/2026/06/05/business/highest-paid-ceos-elon-musk.html
+
+**Russian Satellites Have Been Jamming GPS Signals Across Europe, Scientists Say**\
 `Scientists and U.S. military briefers have linked short, widespread interference incidents to Russia, revealing vulnerabilities in a technology essential to everyday society.`\
 https://www.nytimes.com/2026/06/05/world/europe/russia-satellites-gps-interference-europe.html
 
-**Why SpaceX Will End Up In Your 401(k), Like It Or Not**\
+**Why the SpaceX IPO Will Affect Your 401(k), Like It or Not**\
 `Elon Musk’s rocket company, on the cusp of the largest initial public offering ever, will soon end up in index funds after rule changes by Nasdaq and other index providers.`\
 https://www.nytimes.com/2026/06/05/technology/spacex-indexes-401k.html
 
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/06/05/arts/declaration-independence-loudon-250.html
 **It’s No Wonder Grads Are Booing Their Commencement Speakers**\
 `Companies are trying to automate graduates’ futures away. No wonder they’re furious.`\
 https://www.nytimes.com/2026/06/05/opinion/graduation-speakers-ai-college-commencement.html
-
-**9 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://www.nytimes.com/2026/06/05/movies/movie-review-roundup.html
 
