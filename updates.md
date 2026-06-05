@@ -1,3 +1,11 @@
+**How the Richest Owner in Sports Covered His Tracks**\
+`The latest chapter in Pablo’s Kawhi-Gate investigation.`\
+https://www.nytimes.com/2026/06/05/podcasts/how-the-richest-owner-in-sports-covered-his-tracks.html
+
+**Trump Arch Will Need Red Lights, F.A.A. Says**\
+`The Federal Aviation Administration advised that if the Trump administration adds red obstruction lights to the arch design, it is likely to pose no risk to local aviation.`\
+https://www.nytimes.com/2026/06/05/us/politics/trump-arch-lights-faa.html
+
 **Trump Administration Live Updates: Judge Says Government Must Restart Asylum and Immigration Processing**\
 `(No description)`\
 https://www.nytimes.com/live/2026/06/05/us/trump-news

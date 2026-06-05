@@ -1,3 +1,7 @@
+**TK**\
+`TK`\
+https://static01.nyt.com/slideshow/2026/06/05/t-magazine/tk.html
+
 **How the Richest Owner in Sports Covered His Tracks**\
 `The latest chapter in Pablo’s Kawhi-Gate investigation.`\
 https://www.nytimes.com/2026/06/05/podcasts/how-the-richest-owner-in-sports-covered-his-tracks.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/05/world/europe/russia-satellites-gps-interferen
 **Why the SpaceX IPO Will Affect Your 401(k), Like It or Not**\
 `Elon Musk’s rocket company, on the cusp of the largest initial public offering ever, will soon end up in index funds after rule changes by Nasdaq and other index providers.`\
 https://www.nytimes.com/2026/06/05/technology/spacex-indexes-401k.html
-
-**What Are Democrats’ Best Senate Pickup Opportunities?**\
-`We’ve grouped six battleground states by some of the factors that shape how likely it is for the party to flip each Senate seat.`\
-https://www.nytimes.com/2026/06/05/upshot/democrats-senate-midterms-analysis.html
 
 **Employers Added a Robust 172,000 Jobs in May**\
 `Unemployment remained steady at 4.3 percent.`\
