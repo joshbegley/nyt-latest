@@ -1,3 +1,7 @@
+**Newark Mayor to Scale Back Police Presence at ICE Detention Center**\
+`The mayor, Ras Baraka, said the city would not spend taxpayers’ money to safeguard Delaney Hall, an immigration detention center in Newark run by a private prison company.`\
+https://www.nytimes.com/2026/06/05/nyregion/delaney-hall-police-baraka.html
+
 **M.I.A. Never Wanted to Be So Controversial**\
 `On “Popcast,” M.I.A., who has been a lightning rod for controversy throughout her career, discusses valuing free speech and how it’s “not her desire” to incite this kind of reaction.`\
 https://www.nytimes.com/video/podcasts/100000010947752/mia-never-wanted-to-be-so-controversial.html
