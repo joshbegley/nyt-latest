@@ -182,7 +182,3 @@ https://www.nytimes.com/2026/06/05/world/europe/eu-italy-defense-military-allian
 `Visitor numbers to Shibuya are surging and trash cans are scarce. Enter the city patrol.`\
 https://www.nytimes.com/2026/06/05/world/asia/japan-tokyo-littering-fines.html
 
-**The New York Times News Quiz, June 5, 2026**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://www.nytimes.com/interactive/2026/06/05/briefing/quiz-elections-war-powers-kuwait-spacex.html
-
