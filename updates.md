@@ -1,3 +1,7 @@
+**What To Know as China’s Xi Jinping Heads to North Korea**\
+`As Xi Jinping visits Pyongyang, he faces an emboldened North Korean dictator, whose alliance with Russia has reduced his dependence on China.`\
+https://www.nytimes.com/2026/06/04/world/asia/china-north-korea-xi-jinping-visit.html
+
 **Platner Denies Hurting Ex-Girlfriend and Says He Will Not Quit Senate Race**\
 `In an interview after The Times reported on his treatment of women he had dated, Graham Platner acknowledged “not exactly acting with the best behavior” after his military service.`\
 https://www.nytimes.com/2026/06/04/us/politics/graham-platner-maine-senate-former-girlfriends.html
