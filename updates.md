@@ -1,3 +1,7 @@
+**A Sherpa Survived 6 Days Alone on Everest. His Family Says He Was Abandoned.**\
+`Dawa Sherpa, 57, was found alive on Thursday, nearly a week after he was last seen on the mountain. His wife says more could have been done to find him sooner.`\
+https://www.nytimes.com/2026/06/05/world/asia/missing-sherpa-mount-everest-found.html
+
 **France Opens Investigation Into Israeli Treatment of Pro-Palestinian Flotilla Activists**\
 `Activists who were detained with a flotilla trying to reach the Gaza Strip have said they were abused while in Israel’s custody. Israeli authorities have denied mistreating them.`\
 https://www.nytimes.com/2026/06/05/world/europe/france-israel-flotilla-activists.html
