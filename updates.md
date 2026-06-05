@@ -1,3 +1,7 @@
+**Iran’s Soccer Team Allowed Into U.S. for World Cup, but Many Staff Denied**\
+`After months of doubts over their participation, Iran’s players have received visas for the United States just days before the World Cup begins.`\
+https://www.nytimes.com/2026/06/05/world/middleeast/world-cup-iran-football-team-visas-war.html
+
 **Patel Said to Have Fired Five F.B.I. Analysts Over Memo on Catholic Extremists**\
 `It is the administration’s latest effort to force out law enforcement personnel it accuses of “weaponizing” the government against President Trump and his supporters.`\
 https://www.nytimes.com/2026/06/05/us/politics/patel-firings-richmond-memo.html
