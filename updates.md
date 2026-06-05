@@ -1,3 +1,7 @@
+**Newark Mayor to Scale Back Police Presence at ICE Detention Center**\
+`The mayor, Ras Baraka, said the city would not spend taxpayers’ money to safeguard Delaney Hall, an immigration detention center in Newark run by a private prison company.`\
+https://www.nytimes.com/2026/06/05/nyregion/delaney-hall-police-baraka.html
+
 **’60 Minutes’ Stars Will Stay After Pelley’s Firing Because They Don’t Want Show to ‘Die’**\
 `Lesley Stahl, Bill Whitaker and Jon Wertheim said on Friday in an email to the show’s staff that they had reached the decision after a period of “grieving” and frustration.`\
 https://www.nytimes.com/2026/06/05/business/media/60-minutes-cbs-stahl-whitaker-wertheim.html
