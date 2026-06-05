@@ -1,3 +1,7 @@
+**Anthropic’s Call for A.I. Nonproliferation**\
+`The artificial intelligence giant said a “brake pedal” was needed to protect humanity from self-improving models. The proposal could have big consequences.`\
+https://www.nytimes.com/2026/06/05/business/dealbook/anthropic-ai-nonproliferation.html
+
 **Hopes of Lebanon Cease-fire Falter as Israel and Hezbollah Fight**\
 `The U.S.-brokered agreement requires Hezbollah, which Iran backs, to stop firing first. But the group, not party to the talks, rejected the conditions as a virtual surrender.`\
 https://www.nytimes.com/2026/06/05/world/middleeast/lebanon-cease-fire-israel-hezbollah.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/interactive/2026/06/05/magazine/muppet-karaoke-hodgman-q
 **The Betrayal of Black Voters Threatens Our Democracy**\
 `The sweeping effort to dismantle Black-majority congressional districts in the South will have far-reaching consequences for all Americans, and for our democracy.`\
 https://www.nytimes.com/2026/06/05/opinion/voting-rights-act-black-voters-south.html
-
-**U.S. Amputee World Cup Contenders Are Fierce on Crutches**\
-`With the Amputee Football World Cup nearing, an elite squad of athletes gathered on Long Island to vie for a spot on the national men’s team, displaying skill and grit.`\
-https://www.nytimes.com/2026/06/05/sports/soccer/amputee-world-cup-national-team.html
 
