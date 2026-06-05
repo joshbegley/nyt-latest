@@ -1,3 +1,15 @@
+**Leaks on Space Station Lead Astronauts to Seek Shelter in Spacecraft**\
+`Russian astronauts prepared to make repairs on Friday morning, but after an hour and a half, officials decided no urgent action was needed.`\
+https://www.nytimes.com/2026/06/05/science/iss-air-leaks-nasa.html
+
+**Eddie Murphy’s ‘Harlem Nights’ Has the ‘Platonic Ideal’ of Eyeglasses. Where Do I Get Them?**\
+`Tracking down a pair of specs from Eddie Murphy’s film “Harlem Nights.”`\
+https://www.nytimes.com/2026/06/05/t-magazine/harlem-nights-costume-glasses.html
+
+**Met Museum’s ‘Musical Bodies’ Blurs Humans and Instruments**\
+`“Musical Bodies,” a new exhibition at the Metropolitan Museum of Art, revels in the blurry boundaries between humans and instruments.`\
+https://www.nytimes.com/2026/06/05/arts/music/musical-bodies-met-museum.html
+
 **Cucumber, Tomato, Red Onion, Herbs, Lime, Olive Oil, Summer**\
 `That’s salad-e Shirazi, one of our most popular recipes of the week.`\
 https://www.nytimes.com/2026/06/05/dining/cucumber-tomato-red-onion-herbs-lime-olive-oil-summer.html
