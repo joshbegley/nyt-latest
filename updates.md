@@ -1,3 +1,27 @@
+**Los gigantes del tenis tropiezan**\
+`Todos los competidores más importantes han quedado fuera del Abierto de Francia. El resultado es un torneo muy confuso, y muy emocionante.`\
+https://www.nytimes.com/es/2026/06/05/espanol/tenis-derrotas.html
+
+**One Town’s Blueprint for Resegregating America**\
+`The founders of Return to the Land, a whites-only community in Arkansas, say they aren’t breaking any laws.`\
+https://www.nytimes.com/2026/06/05/podcasts/the-daily/arkansas-whites-only-discrimination.html
+
+**NYT Connections Answers for June 6, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, June 6, 2026.`\
+https://www.nytimes.com/2026/06/05/crosswords/connections-companion-1091.html
+
+**NYT Strands Hints for June 6, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, June 6, 2026.`\
+https://www.nytimes.com/2026/06/05/crosswords/strands-sidekick-825.html
+
+**Today’s Wordle Hints for June 6, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, June 6, 2026.`\
+https://www.nytimes.com/2026/06/05/crosswords/wordle-review-1813.html
+
+**Inside Trump’s Strategy to Push Out Immigrants, and How Tech Giants Targeted Teens at School**\
+`Plus, the Friday news quiz.`\
+https://www.nytimes.com/2026/06/05/podcasts/the-headlines/trump-immigrants-tech-schools.html
+
 **Europe Needs New Military Alliance to Defend Itself, Italy Says**\
 `Guido Crosetto, Italy’s defense minister, said in an interview that European nations should forge a new joint defense system and take greater responsibility for their own security.`\
 https://www.nytimes.com/2026/06/05/world/europe/eu-italy-defense-military-alliance-crosetto.html
