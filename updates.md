@@ -1,3 +1,7 @@
+**Muere James Handy, actor de ‘Top Gun: Maverick’**\
+`El actor, de 81 años, había participado en películas como “Top Gun: Maverick” y “Aracnofobia”. El hijo de su novia fue detenido y acusado de asesinato.`\
+https://www.nytimes.com/es/2026/06/05/espanol/james-handy-muere-apunalado.html
+
 **Rébecca Chaillon Punished Her Body Onstage for Years. Now, She’s Testing New Limits.**\
 `Rébecca Chaillon’s latest show tackles social stigma by featuring only performers she describes as “fat” — a label she also applies to herself.`\
 https://www.nytimes.com/2026/06/05/theater/rebecca-chaillon-wiener-festwochen-avignin-festival.html
