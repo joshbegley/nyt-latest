@@ -1,3 +1,11 @@
+**Stocks Slide as Investors See Rates Rising After Strong Jobs Data**\
+`The S&P 500 fell more than 2 percent on Friday, on course for its worst one-day drop of the year and ending nine weeks of gains.`\
+https://www.nytimes.com/2026/06/05/business/stocks-slide-as-investors-see-rates-rising-after-strong-jobs-data.html
+
+**Taylor Swift and Travis Kelce’s Wedding: Try Our Fantasy Wedding Planner**\
+`Wedding details are scarce, but that doesn’t mean you can’t celebrate the wedding of the season. Use your Swiftie knowledge to dream up your own fantasy version of what their big day might look like.`\
+https://www.nytimes.com/interactive/2026/06/05/style/taylor-swift-travis-kelce-wedding-fantasy-planner.html
+
 **Graham Platner Controversy Deepens Democratic Unease Before Maine Senate Primary**\
 `The party’s politicians, officials and strategists wrestled with how to respond to new reporting about Graham Platner, with worries rising about his vulnerabilities in a general election.`\
 https://www.nytimes.com/2026/06/05/us/politics/platner-democrats-maine-senate-primary-election.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/06/05/us/politics/trump-immunity-tax-audit.html
 **Rébecca Chaillon Punished Her Body Onstage for Years. Now, She’s Testing New Limits.**\
 `Rébecca Chaillon’s latest show tackles social stigma by featuring only performers she describes as “fat” — a label she also applies to herself.`\
 https://www.nytimes.com/2026/06/05/theater/rebecca-chaillon-wiener-festwochen-avignin-festival.html
-
-**The Supreme Court’s Jim Crow Logic**\
-`In Alabama, the Supreme Court just dismantled key protections against racial discrimination in voting, and they did it under the guise of a “colorblind Constitution.” The Times Opinion columnist Jamelle Bouie argues that in doing so, the court is resurrecting a form of judicial blindness that “gave us Jim Crow and so much worse.”`\
-https://www.nytimes.com/video/opinion/100000010945325/the-supreme-courts-jim-crow-logic.html
-
-**Trump Says Lee Greenwood and Christopher Macchio Will Replace Freedom 250 Artists**\
-`Artists including Young MC, Martina McBride and Bret Michaels had publicly dropped out of concerts scheduled for the National Mall.`\
-https://www.nytimes.com/2026/06/05/arts/music/freedom-250-trump-lee-greenwood-christopher-macchio.html
 
 **Employers Added a Robust 172,000 Jobs in May**\
 `Unemployment remained steady at 4.3 percent.`\
