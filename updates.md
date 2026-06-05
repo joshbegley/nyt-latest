@@ -1,3 +1,11 @@
+**China Builds an Economic Fortress as Global Tensions Rise**\
+`Beijing says the changes are needed for national security, but they could complicate efforts by Chinese companies to find growth overseas.`\
+https://www.nytimes.com/2026/06/05/business/china-investment-rules.html
+
+**Trump Wants Results Against Crime in Mexico. Can Sheinbaum Deliver?**\
+`Trump wants results against organized crime. Can Mexico’s president deliver?`\
+https://www.nytimes.com/2026/06/05/opinion/mexico-sheinbaum-cartels-corruption.html
+
 **The Priests Revered in the Land of Five Genders**\
 `The bissus of South Sulawesi are considered a link between the earthly and celestial because they are thought to embody both male and female traits.`\
 https://www.nytimes.com/2026/06/05/world/asia/transgender-priests-sulawesi-bissu-bugis.html
