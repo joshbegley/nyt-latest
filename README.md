@@ -1,3 +1,7 @@
+**Trump Keeps Immunity from I.R.S. Audits, Even as $1.8 Billion Fund Falls Away**\
+`Even as they rebelled against a $1.8 billion fund for President Trump’s allies, Republicans looked the other way as his administration granted him potentially lucrative tax protections.`\
+https://www.nytimes.com/2026/06/05/us/politics/trump-immunity-tax-audit.html
+
 **Rébecca Chaillon Punished Her Body Onstage For Years. Now, She’s Testing New Limits.**\
 `Rébecca Chaillon’s latest show tackles social stigma by featuring only performers she describes as “fat” — a label she also applies to herself.`\
 https://www.nytimes.com/2026/06/05/theater/rebecca-chaillon-wiener-festwochen-avignin-festival.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/05/podcasts/tbr-summer-books-roundup.html
 **Appeals Court Panel to Hear Arguments Over Trump’s Ballroom**\
 `A three-judge panel will consider whether a lower court erred in ordering construction stopped until President Trump secured the support of Congress.`\
 https://www.nytimes.com/2026/06/05/us/politics/appeals-court-trump-ballroom.html
-
-**Russia Floods Armenia With Disinformation Ahead of Election**\
-`Fearing a loss of influence, groups linked to the Kremlin and intelligence agencies have sought to discredit the country’s prime minister.`\
-https://www.nytimes.com/2026/06/05/world/europe/armenia-election-russia-disinformation.html
 

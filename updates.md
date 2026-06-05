@@ -1,3 +1,7 @@
+**Rébecca Chaillon Punished Her Body Onstage For Years. Now, She’s Testing New Limits.**\
+`Rébecca Chaillon’s latest show tackles social stigma by featuring only performers she describes as “fat” — a label she also applies to herself.`\
+https://www.nytimes.com/2026/06/05/theater/rebecca-chaillon-wiener-festwochen-avignin-festival.html
+
 **The Supreme Court’s Jim Crow Logic**\
 `In Alabama, the Supreme Court just dismantled key protections against racial discrimination in voting, and they did it under the guise of a “colorblind Constitution.” The Times Opinion columnist Jamelle Bouie argues that in doing so, the court is resurrecting a form of judicial blindness that “gave us Jim Crow and so much worse.”`\
 https://www.nytimes.com/video/opinion/100000010945325/the-supreme-courts-jim-crow-logic.html

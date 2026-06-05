@@ -1,3 +1,7 @@
+**Rébecca Chaillon Punished Her Body Onstage For Years. Now, She’s Testing New Limits.**\
+`Rébecca Chaillon’s latest show tackles social stigma by featuring only performers she describes as “fat” — a label she also applies to herself.`\
+https://www.nytimes.com/2026/06/05/theater/rebecca-chaillon-wiener-festwochen-avignin-festival.html
+
 **The Supreme Court’s Jim Crow Logic**\
 `In Alabama, the Supreme Court just dismantled key protections against racial discrimination in voting, and they did it under the guise of a “colorblind Constitution.” The Times Opinion columnist Jamelle Bouie argues that in doing so, the court is resurrecting a form of judicial blindness that “gave us Jim Crow and so much worse.”`\
 https://www.nytimes.com/video/opinion/100000010945325/the-supreme-courts-jim-crow-logic.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/05/us/politics/appeals-court-trump-ballroom.html
 **Russia Floods Armenia With Disinformation Ahead of Election**\
 `Fearing a loss of influence, groups linked to the Kremlin and intelligence agencies have sought to discredit the country’s prime minister.`\
 https://www.nytimes.com/2026/06/05/world/europe/armenia-election-russia-disinformation.html
-
-**The Lasting Cost of Graduating Into a Tough Job Market**\
-`Sydney Ember, a Times business reporter, has been speaking with recent college graduates struggling to find work. She explains how starting a career in a weak job market can leave lasting scars on wages and opportunities.`\
-https://www.nytimes.com/video/business/100000010938226/the-lasting-cost-of-graduating-into-a-tough-job-market.html
 
