@@ -1,3 +1,7 @@
+**What To Know as China’s Xi Jinping Heads to North Korea**\
+`As Xi Jinping visits Pyongyang, he faces an emboldened North Korean dictator, whose alliance with Russia has reduced his dependence on China.`\
+https://www.nytimes.com/2026/06/04/world/asia/china-north-korea-xi-jinping-visit.html
+
 **Platner Denies Hurting Ex-Girlfriend and Says He Will Not Quit Senate Race**\
 `In an interview after The Times reported on his treatment of women he had dated, Graham Platner acknowledged “not exactly acting with the best behavior” after his military service.`\
 https://www.nytimes.com/2026/06/04/us/politics/graham-platner-maine-senate-former-girlfriends.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/04/nyregion/knicks-mamdani-trump-garden.html
 **Mister Rogers: Now on YouTube**\
 `On Thursday, Fred Rogers Productions started a channel dedicated to the beloved children’s host. Eventually it will be a repository for full episodes, behind-the-scenes footage and compilations.`\
 https://www.nytimes.com/2026/06/04/arts/television/mister-rogers-neighborhood-youtube.html
-
-**The British Used to Sound Like We Did**\
-`When they left, they changed.`\
-https://www.nytimes.com/2026/06/04/opinion/british-american-english-language.html
 
 **Hezbollah Rejects Cease-Fire Deal Between Lebanon and Israel**\
 `Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, said a truce worked out between Israel and the Lebanese government amounted to surrender for his group.`\
