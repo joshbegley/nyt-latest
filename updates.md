@@ -1,3 +1,11 @@
+**El último techo de paja**\
+`Dentro de la minúscula comunidad de maestros techadores ingleses, se desarrolla una lucha por una tradición que podría no sobrevivir.`\
+https://www.nytimes.com/es/2026/06/05/espanol/mundo/techo-paja-inglaterra-gales.html
+
+**Las granjas en EE. UU. dependen más que nunca de un problemático programa de visas**\
+`El gobierno de Trump está permitiendo la entrada de más trabajadores agrícolas invitados bajo el programa H-2A, pero evitar los abusos resulta difícil.`\
+https://www.nytimes.com/es/2026/06/05/espanol/negocios/visados-trabajo-granjas-estados-unidos.html
+
 **Qué significa ‘pulchritude’**\
 `Esta palabra ha aparecido en tres artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
 https://www.nytimes.com/es/2026/06/05/espanol/que-significa-pulchritude.html
