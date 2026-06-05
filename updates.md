@@ -1,3 +1,7 @@
+**NYT Crossword Answers for June 05, 2026**\
+`Kelly Morenus opens our solving weekend.`\
+https://www.nytimes.com/2026/06/04/crosswords/daily-puzzle-2026-06-05.html
+
 **Schlossberg, Bores, Conway and Lasher Spar in NYC Primary Debate**\
 `Four Democratic hopefuls seeking to represent a key Manhattan House district clashed in the first debate of the race.`\
 https://www.nytimes.com/2026/06/04/nyregion/schlossberg-conway-bores-lasher-nyc-primary-debate.html

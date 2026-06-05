@@ -1,3 +1,7 @@
+**NYT Crossword Answers for June 05, 2026**\
+`Kelly Morenus opens our solving weekend.`\
+https://www.nytimes.com/2026/06/04/crosswords/daily-puzzle-2026-06-05.html
+
 **Schlossberg, Bores, Conway and Lasher Spar in NYC Primary Debate**\
 `Four Democratic hopefuls seeking to represent a key Manhattan House district clashed in the first debate of the race.`\
 https://www.nytimes.com/2026/06/04/nyregion/schlossberg-conway-bores-lasher-nyc-primary-debate.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/04/learning/student-reading-challenge.html
 **California Wildfires Outlook: Forecasters Say El Niño Makes Outlook Less Certain**\
 `After late-spring rain, and with an El Niño brewing, experts say the outlook for the summer is especially complicated.`\
 https://www.nytimes.com/2026/06/04/weather/california-fire-forecast.html
-
-**Los republicanos empiezan a poner a prueba los límites del poder de Trump**\
-`El estilo de gobierno unilateral y vengativo del presidente de Estados Unidos comienza a chocar contra un muro en ambas cámaras del Congreso.`\
-https://www.nytimes.com/es/2026/06/04/espanol/estados-unidos/trump-republicanos-represalias-limites.html
 
 **Hezbollah Rejects Cease-Fire Deal Between Lebanon and Israel**\
 `Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, said a truce worked out between Israel and the Lebanese government amounted to surrender for his group.`\
