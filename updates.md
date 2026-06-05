@@ -1,3 +1,11 @@
+**Why SpaceX Will End Up In Your 401(k), Like It Or Not**\
+`Elon Musk’s rocket company, on the cusp of the largest initial public offering ever, will soon end up in index funds after rule changes by Nasdaq and other index providers.`\
+https://www.nytimes.com/2026/06/05/technology/spacex-indexes-401k.html
+
+**More Renters Are Using Tools to Skip Security Deposits, but There’s a Catch**\
+`Third-party services charge fees to help renters bypass some upfront costs of signing a lease. Unlike traditional deposits, the money won’t be returned to tenants.`\
+https://www.nytimes.com/2026/06/05/your-money/renting-security-deposit-alternatives.html
+
 **What Are Democrats’ Best Senate Pickup Opportunities?**\
 `We’ve grouped six battleground states by some of the factors that shape how likely it is for the party to flip each Senate seat.`\
 https://www.nytimes.com/2026/06/05/upshot/democrats-senate-midterms-analysis.html

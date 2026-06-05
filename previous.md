@@ -1,3 +1,7 @@
+**Why SpaceX Will End Up In Your 401(k), Like It Or Not**\
+`Elon Musk’s rocket company, on the cusp of the largest initial public offering ever, will soon end up in index funds after rule changes by Nasdaq and other index providers.`\
+https://www.nytimes.com/2026/06/05/technology/spacex-indexes-401k.html
+
 **What Are Democrats’ Best Senate Pickup Opportunities?**\
 `We’ve grouped six battleground states by some of the factors that shape how likely it is for the party to flip each Senate seat.`\
 https://www.nytimes.com/2026/06/05/upshot/democrats-senate-midterms-analysis.html
@@ -36,7 +40,7 @@ https://www.nytimes.com/2026/06/05/learning/summer-reading-contest-week-1-what-g
 
 **More Renters Are Using Tools to Skip Security Deposits, but There’s a Catch**\
 `Third-party services charge fees to help renters bypass some upfront costs of signing a lease. Unlike traditional deposits, the money won’t be returned to tenants.`\
-https://www.nytimes.com/2026/06/05/your-money/more-renters-are-using-tools-to-skip-security-deposits-but-theres-a-catch.html
+https://www.nytimes.com/2026/06/05/your-money/renting-security-deposit-alternatives.html
 
 **James Handy, Actor in ‘Top Gun: Maverick,’ Is Found Stabbed to Death**\
 `The 81-year-old actor had parts in films including “Top Gun: Maverick” and “Arachnophobia.” The son of his girlfriend was arrested and charged with murder.`\
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/06/05/movies/movie-review-roundup.html
 **How Gold Is Driving the Spread of Ebola**\
 `Mining has been the lifeblood of this remote Congolese hill town for decades. Now, it is fueling the spread of a devastating outbreak.`\
 https://www.nytimes.com/2026/06/05/world/africa/congo-ebola-gold-mine.html
-
-**Anna Paulina Luna Wants Everything Disclosed**\
-`Anna Paulina Luna on Epstein, J.F.K. and U.F.O.s.`\
-https://www.nytimes.com/2026/06/05/opinion/anna-paulina-luna-epstein-jfk-ufo-conspiracy.html
 
