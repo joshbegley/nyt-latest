@@ -1,3 +1,7 @@
+**Edición genética: embriones humanos son editados por primera vez con gran precisión**\
+`Los investigadores utilizaron una nueva técnica de edición de genes que podría permitir la ingeniería genética de embriones, una perspectiva que desde hace tiempo preocupa a los bioeticistas.`\
+https://www.nytimes.com/es/2026/06/05/espanol/ciencia-y-tecnologia/embrion-humano-genetica.html
+
 **Reid Hoffman to Leave Microsoft’s Board of Directors**\
 `The LinkedIn co-founder was a key bridge to Microsoft’s relationship with OpenAI, but he also came with some baggage.`\
 https://www.nytimes.com/2026/06/05/technology/reid-hoffman-leaving-microsoft-board.html
