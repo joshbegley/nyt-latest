@@ -1,3 +1,7 @@
+**Why SpaceX Will End Up In Your 401(k), Like It Or Not**\
+`Elon Musk’s rocket company, on the cusp of the largest initial public offering ever, will soon end up in index funds after rule changes by Nasdaq and other index providers.`\
+https://www.nytimes.com/2026/06/05/technology/spacex-indexes-401k.html
+
 **What Are Democrats’ Best Senate Pickup Opportunities?**\
 `We’ve grouped six battleground states by some of the factors that shape how likely it is for the party to flip each Senate seat.`\
 https://www.nytimes.com/2026/06/05/upshot/democrats-senate-midterms-analysis.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/06/05/movies/movie-review-roundup.html
 **How Gold Is Driving the Spread of Ebola**\
 `Mining has been the lifeblood of this remote Congolese hill town for decades. Now, it is fueling the spread of a devastating outbreak.`\
 https://www.nytimes.com/2026/06/05/world/africa/congo-ebola-gold-mine.html
-
-**Anna Paulina Luna Wants Everything Disclosed**\
-`Anna Paulina Luna on Epstein, J.F.K. and U.F.O.s.`\
-https://www.nytimes.com/2026/06/05/opinion/anna-paulina-luna-epstein-jfk-ufo-conspiracy.html
 
