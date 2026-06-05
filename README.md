@@ -1,3 +1,7 @@
+**Schlossberg, Bores, Conway and Lasher Spar in NYC Primary Debate**\
+`Four Democratic hopefuls seeking to represent a key Manhattan House district clashed in the first debate of the race.`\
+https://www.nytimes.com/2026/06/04/nyregion/schlossberg-conway-bores-lasher-nyc-primary-debate.html
+
 **‘Girl, Interrupted’ Review: A Musical That’s a Little Too Tranquilized**\
 `While the 1999 movie went for melodrama, this stage adaptation with songs by Aimee Mann honors the memoir’s coolly clinical prose.`\
 https://www.nytimes.com/2026/06/04/theater/girl-interrupted-review-mann-majok-king-princess-canfield.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/04/weather/california-fire-forecast.html
 **Los republicanos empiezan a poner a prueba los límites del poder de Trump**\
 `El estilo de gobierno unilateral y vengativo del presidente de Estados Unidos comienza a chocar contra un muro en ambas cámaras del Congreso.`\
 https://www.nytimes.com/es/2026/06/04/espanol/estados-unidos/trump-republicanos-represalias-limites.html
-
-**What to Know About the Arrest of ICE Protesters at Delaney Hall in New Jersey**\
-`At least 90 people have been arrested during turbulent protests outside the Delaney Hall immigrant detention center in New Jersey over the past two weeks.`\
-https://www.nytimes.com/2026/06/04/nyregion/delaney-hall-protests-charges.html
 
 **Hezbollah Rejects Cease-Fire Deal Between Lebanon and Israel**\
 `Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, said a truce worked out between Israel and the Lebanese government amounted to surrender for his group.`\
