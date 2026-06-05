@@ -1,3 +1,7 @@
+**Hopes of Lebanon Cease-fire Falter as Israel and Hezbollah Fight On**\
+`The U.S.-brokered agreement requires Hezbollah, which Iran backs, to stop firing first. But the group, not party to the talks, rejected the conditions as a virtual surrender.`\
+https://www.nytimes.com/2026/06/05/world/middleeast/lebanon-cease-fire-israel-hezbollah.html
+
 **Onstage and Off**\
 `The Tony Awards are this weekend. We explore what the ceremony is all about.`\
 https://www.nytimes.com/2026/06/05/briefing/tonys-broadway-theater.html
