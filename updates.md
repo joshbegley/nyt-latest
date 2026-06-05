@@ -1,3 +1,7 @@
+**Hopes of Lebanon Cease-Fire Falter as Israel and Hezbollah Fight On**\
+`The U.S.-brokered agreement requires Hezbollah, which Iran backs, to stop firing first. But the group, not party to the talks, rejected the conditions as a virtual surrender.`\
+https://www.nytimes.com/2026/06/05/world/middleeast/lebanon-cease-fire-israel-hezbollah.html
+
 **Trump Keeps Immunity from I.R.S. Audits, Even as $1.8 Billion Fund Falls Away**\
 `Even as they rebelled against a $1.8 billion fund for President Trump’s allies, Republicans looked the other way as his administration granted him potentially lucrative tax protections.`\
 https://www.nytimes.com/2026/06/05/us/politics/trump-immunity-tax-audit.html

@@ -2,7 +2,7 @@
 `Even as they rebelled against a $1.8 billion fund for President Trump’s allies, Republicans looked the other way as his administration granted him potentially lucrative tax protections.`\
 https://www.nytimes.com/2026/06/05/us/politics/trump-immunity-tax-audit.html
 
-**Rébecca Chaillon Punished Her Body Onstage For Years. Now, She’s Testing New Limits.**\
+**Rébecca Chaillon Punished Her Body Onstage for Years. Now, She’s Testing New Limits.**\
 `Rébecca Chaillon’s latest show tackles social stigma by featuring only performers she describes as “fat” — a label she also applies to herself.`\
 https://www.nytimes.com/2026/06/05/theater/rebecca-chaillon-wiener-festwochen-avignin-festival.html
 
