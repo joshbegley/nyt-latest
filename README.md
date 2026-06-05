@@ -10,7 +10,7 @@ https://www.nytimes.com/interactive/2026/06/05/us/elections/los-angeles-mayor-pr
 `The queen’s third cousin, she was a bridesmaid at the royal wedding in 1947, and witnessed firsthand pivotal moments in British history.`\
 https://www.nytimes.com/2026/06/05/world/europe/pamela-hicks-dead.html
 
-**Justice Dept. Promises to Drop $1.8 Billion Fund**\
+**Justice Dept. Promises to Drop Trump’s $1.8 Billion Fund**\
 `It was the department’s clearest statement to date that it was pulling back from a plan to use taxpayer money to make payments to people who claimed to have been politically persecuted.`\
 https://www.nytimes.com/2026/06/05/us/politics/trump-fund-doj.html
 

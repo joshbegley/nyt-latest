@@ -1,3 +1,7 @@
+**Justice Dept. Promises to Drop $1.8 Billion Fund**\
+`It was the department’s clearest statement to date that it was pulling back from a plan to use taxpayer money to make payments to people who claimed to have been politically persecuted.`\
+https://www.nytimes.com/2026/06/05/us/politics/trump-fund-doj.html
+
 **Ebola Cases May Top 20,000 in Three Months, C.D.C. Says**\
 `Still, the risk to people in the United States remains low, the Centers for Disease Control and Prevention said in a report Friday.`\
 https://www.nytimes.com/2026/06/05/us/politics/cdc-ebola-projection.html
