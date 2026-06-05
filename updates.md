@@ -1,3 +1,11 @@
+**France Opens Investigation Into Israeli Treatment of Pro-Palestinian Flotilla Activists**\
+`Activists who were detained with a flotilla trying to reach the Gaza Strip have said they were abused while in Israel’s custody. Israeli authorities have denied mistreating them.`\
+https://www.nytimes.com/2026/06/05/world/europe/france-israel-flotilla-activists.html
+
+**Stocks Slide as Investors See Rates Rising After Strong Jobs Data**\
+`The S&P 500 fell more than 2 percent on Friday, on course for its worst one-day drop of the year and ending nine weeks of gains.`\
+https://www.nytimes.com/2026/06/05/business/stock-market-jobs-report.html
+
 **Stocks Slide as Investors See Rates Rising After Strong Jobs Data**\
 `The S&P 500 fell more than 2 percent on Friday, on course for its worst one-day drop of the year and ending nine weeks of gains.`\
 https://www.nytimes.com/2026/06/05/business/stocks-slide-as-investors-see-rates-rising-after-strong-jobs-data.html
