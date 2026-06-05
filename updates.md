@@ -1,3 +1,7 @@
+**Live Updates: Jobs Data to Give Insights on a Labor Market Finding Its Footing**\
+`Hiring and unemployment levels for May will show how forces including inflation and artificial intelligence are affecting the U.S. economy.`\
+https://www.nytimes.com/live/2026/business/jobs-report-economy
+
 **Los gigantes del tenis tropiezan**\
 `Todos los competidores más importantes han quedado fuera del Abierto de Francia. El resultado es un torneo muy confuso, y muy emocionante.`\
 https://www.nytimes.com/es/2026/06/05/espanol/tenis-derrotas.html

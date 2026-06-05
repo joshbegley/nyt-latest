@@ -1,3 +1,7 @@
+**Live Updates: Jobs Data to Give Insights on a Labor Market Finding Its Footing**\
+`Hiring and unemployment levels for May will show how forces including inflation and artificial intelligence are affecting the U.S. economy.`\
+https://www.nytimes.com/live/2026/business/jobs-report-economy
+
 **Los gigantes del tenis tropiezan**\
 `Todos los competidores más importantes han quedado fuera del Abierto de Francia. El resultado es un torneo muy confuso, y muy emocionante.`\
 https://www.nytimes.com/es/2026/06/05/espanol/tenis-derrotas.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/05/theater/tony-nominees-2026-photos.html
 **For New Graduates, Job Market Scars Could Linger for Years**\
 `The full impact of graduating into this hiring downturn will not come into focus for years, and much remains uncertain, especially about A.I.’s role.`\
 https://www.nytimes.com/2026/06/05/business/college-graduates-job-market.html
-
-**Ye Concerts Have Been Canceled Across Europe. Why Not in the Netherlands?**\
-`Lawmakers and Jewish groups lodged protests over the rapper’s history of antisemitism. But those sensitivities ran headlong into the Netherlands’ robust free speech protections.`\
-https://www.nytimes.com/2026/06/05/world/europe/ye-tour-netherlands.html
 
