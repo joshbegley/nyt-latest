@@ -51,7 +51,7 @@ https://www.nytimes.com/2026/06/05/arts/music/speight-jenkins-dead.html
 https://www.nytimes.com/interactive/2026/06/05/upshot/flashback.html
 
 **’60 Minutes’ Stars Will Stay After Pelley’s Firing Because They Don’t Want Show to ‘Die’**\
-`Lesley Stahl, Bill Whitaker and Jon Wertheim said on Friday in an email to their colleagues that they had reached the decision after a period of frustration.`\
+`Lesley Stahl, Bill Whitaker and Jon Wertheim said on Friday in an email to the show’s staff that they had reached the decision after a period of “grieving” and frustration.`\
 https://www.nytimes.com/2026/06/05/business/media/60-minutes-cbs-stahl-whitaker-wertheim.html
 
 **Man Who Schemed With Au Pair to Kill His Wife Is Sentenced to Life**\
