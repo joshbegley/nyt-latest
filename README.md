@@ -1,3 +1,31 @@
+**A Rainy Japanese Rock Festival Proved They Could Weather Anything**\
+`Ana Escalante and Robert Lucas didn’t especially like each other through most of high school, but a coffee date their senior year changed all that.`\
+https://www.nytimes.com/2026/06/05/style/ana-escalante-robert-lucas-wedding.html
+
+**Corrections: June 5, 2026**\
+`Corrections that appeared in print on Friday, June 5, 2026.`\
+https://www.nytimes.com/2026/06/05/pageoneplus/corrections-june-5-2026.html
+
+**He’s Famous for His Mukbangs. But They Met the Old-Fashioned Way.**\
+`Tommy Winkler, a TikToker known as “The Food Guy,” threw pebbles at Jess Pappas’s window when they were college students with Covid.`\
+https://www.nytimes.com/2026/06/05/style/jess-pappas-tommy-winkler-wedding.html
+
+**In a Relationship Between Two Puppeteers, Both Pull the Strings**\
+`Marta MacRostie and Jonathan Levin ran in the same circles, but it took a solar eclipse to bring them together.`\
+https://www.nytimes.com/2026/06/05/style/marta-macrostie-jonathan-levin-wedding.html
+
+**A Wedding With ‘a Housewife in Attendance’ (Sort of)**\
+`Scott Winston and Nicholas Hunt, who share a love for reality TV and karaoke, spent their whole first date laughing.`\
+https://www.nytimes.com/2026/06/05/style/scott-winston-nicholas-hunt-wedding.html
+
+**Quil Lemons, the Photographer, Marries Stylist Parker Harwood**\
+`After getting into a car accident shortly after meeting, the photographer Quil Lemons made one call: to ask Parker Harwood, a stylist, on a date.`\
+https://www.nytimes.com/2026/06/05/style/quil-lemons-parker-harwood-wedding.html
+
+**I Couldn’t Tell Him Why We Had to Break Up**\
+`When my young cousin’s girlfriend cheated on him, I wrestled with ghosts of my own.`\
+https://www.nytimes.com/2026/06/05/style/modern-love-infidelity-couldnt-tell-him-why-we-had-to-break-up.html
+
 **Raman Gains on Pratt in L.A. Mayor Race But Many Ballots Remain**\
 `Nithya Raman’s vote count still remains well behind Spencer Pratt’s, but hundreds of thousands of ballots remain to be counted in Los Angeles over the next few weeks.`\
 https://www.nytimes.com/2026/06/04/us/elections/raman-pratt-los-angeles-mayor.html
@@ -169,32 +197,4 @@ https://www.nytimes.com/2026/06/04/podcasts/brian-cox-really-loves-soccer-he-thi
 **Several Women Who Dated Graham Platner Recall ‘Unsettling’ Behavior**\
 `The Democratic candidate for Senate in Maine could be charming, women said in interviews, but some found his actions intimidating and disturbing.`\
 https://www.nytimes.com/2026/06/04/us/politics/platner-maine-senate-girlfriends-relationships.html
-
-**But First, Restaurant**\
-`Three New York City restaurants where the coffee is as good as the food.`\
-https://www.nytimes.com/2026/06/04/dining/but-first-restaurant.html
-
-**Wary of U.S., Carney Bets on AI Strategy for Canada**\
-`The country on Thursday released a national artificial intelligence strategy that focuses on building its sovereign capability and protecting consumers.`\
-https://www.nytimes.com/2026/06/04/world/canada/canada-national-ai-strategy.html
-
-**Diane Carlson Evans Dies at 79; Led Campaign for Vietnam Women’s Memorial**\
-`A former Army nurse who served in combat, she coordinated a 10-year effort to create a monument recognizing the contributions of the war’s thousands of nurses.`\
-https://www.nytimes.com/2026/06/04/us/diane-carlson-evans-dead.html
-
-**Priest Who Said Aliens Were Demons Removed as Exorcist for Washington**\
-`Cardinal Robert McElroy, archbishop of Washington, said recent statements by the exorcist “undermine the Church’s very precise teaching on the devil.”`\
-https://www.nytimes.com/2026/06/04/us/catholic-exorcist-demon-ufo.html
-
-**Trump Announces $700 Million in Funds Meant to Boost Coal Industry**\
-`The president announced a total of $700 million in federal money to reinvigorate the domestic coal industry, which has been in decline for decades.`\
-https://www.nytimes.com/2026/06/04/climate/trump-coal-plants-funding.html
-
-**Trump and Mamdani Plan to Be at Monday’s Knicks Game (but Not Together)**\
-`President Trump is expected to sit in a luxury box for Game 3 of the N.B.A. finals at Madison Square Garden. Mayor Zohran Mamdani says he will be in a “very different section.”`\
-https://www.nytimes.com/2026/06/04/nyregion/knicks-mamdani-trump-garden.html
-
-**Hezbollah Rejects Cease-Fire Deal Between Lebanon and Israel**\
-`Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, said a truce worked out between Israel and the Lebanese government amounted to surrender for his group.`\
-https://www.nytimes.com/live/2026/06/04/world/iran-war-trump-israel-lebanon
 
