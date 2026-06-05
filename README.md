@@ -1,3 +1,7 @@
+**A Sherpa Survived 6 Days Alone on Everest. His Family Says He Was Abandoned.**\
+`Dawa Sherpa, 57, was found alive on Thursday, nearly a week after he was last seen on the mountain. His wife says more could have been done to find him sooner.`\
+https://www.nytimes.com/2026/06/05/world/asia/missing-sherpa-mount-everest-found.html
+
 **France Opens Investigation Into Israeli Treatment of Pro-Palestinian Flotilla Activists**\
 `Activists who were detained with a flotilla trying to reach the Gaza Strip have said they were abused while in Israel’s custody. Israeli authorities have denied mistreating them.`\
 https://www.nytimes.com/2026/06/05/world/europe/france-israel-flotilla-activists.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/06/05/us/spelman-college-president-ayanna-howard.ht
 **Muere James Handy, actor de ‘Top Gun: Maverick’**\
 `El actor, de 81 años, había participado en películas como “Top Gun: Maverick” y “Aracnofobia”. El hijo de su novia fue detenido y acusado de asesinato.`\
 https://www.nytimes.com/es/2026/06/05/espanol/james-handy-muere-apunalado.html
-
-**Trump Keeps Immunity from I.R.S. Audits, Even as $1.8 Billion Fund Falls Away**\
-`Even as they rebelled against a $1.8 billion fund for President Trump’s allies, Republicans looked the other way as his administration granted him potentially lucrative tax protections.`\
-https://www.nytimes.com/2026/06/05/us/politics/trump-immunity-tax-audit.html
 
 **Employers Added a Robust 172,000 Jobs in May**\
 `Unemployment remained steady at 4.3 percent.`\
