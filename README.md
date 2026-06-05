@@ -1,3 +1,7 @@
+**Theater Reminds Us That We’re Human**\
+`Ahead of the 2026 Tony Awards, Wesley Morris invites Helen Shaw, The Times’s chief theater critic, to help him understand this season of Broadway plays.`\
+https://www.nytimes.com/video/podcasts/100000010939373/theater-reminds-us-that-were-human.html
+
 **Las cadenas hoteleras se retiran de Cuba ante las presiones de Trump**\
 `Los esfuerzos del gobierno de Trump para presionar a Cuba parecen estar funcionando, ya que más empresas internacionales han anunciado que abandonarán la isla.`\
 https://www.nytimes.com/es/2026/06/04/espanol/america-latina/trump-presion-cuba-hoteles.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/04/us/politics/cassidy-booker-lawsuit-trump-fund
 **Kennedy Center Tells Staff to Immediately Remove Trump’s Name From Documents**\
 `The center’s general counsel also said that a federal judge’s order meant the president’s name must be taken off outdoor and indoor signage by June 12.`\
 https://www.nytimes.com/2026/06/04/arts/music/kennedy-center-trump-name-memo.html
-
-**Jan. 6 Rioter Is Hired to Work in Sensitive Pentagon Office**\
-`It was not clear who hired Elias Irizarry, who pleaded guilty to various offenses at the Capitol and was later pardoned by President Trump.`\
-https://www.nytimes.com/2026/06/04/us/politics/pentagon-hires-jan-6-rioter.html
 
 **Hezbollah Rejects Cease-Fire Deal Between Lebanon and Israel**\
 `Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, said a truce worked out between Israel and the Lebanese government amounted to surrender for his group.`\
