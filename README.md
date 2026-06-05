@@ -158,7 +158,7 @@ https://www.nytimes.com/2026/06/05/world/europe/uk-prince-andrew-royal-lodge-pro
 `Unemployment is steady and companies are hiring, but wage growth is not keeping up with higher prices.`\
 https://www.nytimes.com/article/what-to-know-about-the-jobs-report.html
 
-**Live Updates: Employers Added a Robust 172,000 Jobs in May**\
+**Employers Added a Robust 172,000 Jobs in May**\
 `Unemployment remained steady at 4.3 percent.`\
 https://www.nytimes.com/live/2026/business/jobs-report-economy
 
