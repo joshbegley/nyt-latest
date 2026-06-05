@@ -1,3 +1,11 @@
+**China Builds an Economic Fortress as Global Tensions Rise**\
+`Beijing says the changes are needed for national security, but they could complicate efforts by Chinese companies to find growth overseas.`\
+https://www.nytimes.com/2026/06/05/business/china-investment-rules.html
+
+**Trump Wants Results Against Crime in Mexico. Can Sheinbaum Deliver?**\
+`Trump wants results against organized crime. Can Mexico’s president deliver?`\
+https://www.nytimes.com/2026/06/05/opinion/mexico-sheinbaum-cartels-corruption.html
+
 **The Priests Revered in the Land of Five Genders**\
 `The bissus of South Sulawesi are considered a link between the earthly and celestial because they are thought to embody both male and female traits.`\
 https://www.nytimes.com/2026/06/05/world/asia/transgender-priests-sulawesi-bissu-bugis.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/04/arts/design/art-gallery-shows-to-see-in-june.
 **Vanilla Ice Is In, Bret Michaels Is Out: Trump’s Battle for Celebrity Validation**\
 `President Trump has pursued fame his entire adult life. Now in his second term in the White House, he is finding how little power he has to force cultural figures to fall in line.`\
 https://www.nytimes.com/2026/06/04/us/trump-celebrities-vanilla-ice-freedom-250.html
-
-**Nose Gear on Boeing 787-9 Dreamliner Collapses, Injuring Several Workers**\
-`The airline Lufthansa said the cause of the accident at Frankfurt Airport was under investigation. The plane can weigh 279 tons at takeoff.`\
-https://www.nytimes.com/2026/06/04/world/europe/boeing-plane-nose-gear-collapse-frankfurt.html
-
-**Several Workers Injured After Boeing 787-9 Dreamliner Collapses**\
-`The aircraft’s nose gear collapsed as it was parked at Frankfurt Airport on Thursday. Two cabin crew members and an unspecified number of service workers sustained minor injuries.`\
-https://www.nytimes.com/video/travel/100000010945734/lufthansa-airplane-collapse-germany.html
 
