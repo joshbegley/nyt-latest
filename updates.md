@@ -1,3 +1,7 @@
+**Europe Needs New Military Alliance to Defend Itself, Italy Says**\
+`Guido Crosetto, Italy’s defense minister, said in an interview that European nations should forge a new joint defense system and take greater responsibility for their own security.`\
+https://www.nytimes.com/2026/06/05/world/europe/eu-italy-defense-military-alliance-crosetto.html
+
 **On Patrol With Tokyo’s New Litter Police**\
 `Visitor numbers to Shibuya are surging and trash cans are scarce. Enter the city patrol.`\
 https://www.nytimes.com/2026/06/05/world/asia/japan-tokyo-littering-fines.html
