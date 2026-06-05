@@ -1,6 +1,10 @@
+**France Opens Investigation Into Israeli Treatment of Pro-Palestinian Flotilla Activists**\
+`Activists who were detained with a flotilla trying to reach the Gaza Strip have said they were abused while in Israel’s custody. Israeli authorities have denied mistreating them.`\
+https://www.nytimes.com/2026/06/05/world/europe/france-israel-flotilla-activists.html
+
 **Stocks Slide as Investors See Rates Rising After Strong Jobs Data**\
 `The S&P 500 fell more than 2 percent on Friday, on course for its worst one-day drop of the year and ending nine weeks of gains.`\
-https://www.nytimes.com/2026/06/05/business/stocks-slide-as-investors-see-rates-rising-after-strong-jobs-data.html
+https://www.nytimes.com/2026/06/05/business/stock-market-jobs-report.html
 
 **Taylor Swift and Travis Kelce’s Wedding: Try Our Fantasy Wedding Planner**\
 `Wedding details are scarce, but that doesn’t mean you can’t celebrate the wedding of the season. Use your Swiftie knowledge to dream up your own fantasy version of what their big day might look like.`\
@@ -181,10 +185,6 @@ https://www.nytimes.com/es/2026/06/05/espanol/james-handy-muere-apunalado.html
 **Trump Keeps Immunity from I.R.S. Audits, Even as $1.8 Billion Fund Falls Away**\
 `Even as they rebelled against a $1.8 billion fund for President Trump’s allies, Republicans looked the other way as his administration granted him potentially lucrative tax protections.`\
 https://www.nytimes.com/2026/06/05/us/politics/trump-immunity-tax-audit.html
-
-**Rébecca Chaillon Punished Her Body Onstage for Years. Now, She’s Testing New Limits.**\
-`Rébecca Chaillon’s latest show tackles social stigma by featuring only performers she describes as “fat” — a label she also applies to herself.`\
-https://www.nytimes.com/2026/06/05/theater/rebecca-chaillon-wiener-festwochen-avignin-festival.html
 
 **Employers Added a Robust 172,000 Jobs in May**\
 `Unemployment remained steady at 4.3 percent.`\
