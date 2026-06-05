@@ -1,3 +1,7 @@
+**Patel Said to Have Fired Five F.B.I. Analysts Over Memo on Catholic Extremists**\
+`It is the administration’s latest effort to force out law enforcement personnel it accuses of “weaponizing” the government against President Trump and his supporters.`\
+https://www.nytimes.com/2026/06/05/us/politics/patel-firings-richmond-memo.html
+
 **Ebola Cases May Top 20,000 in Three Months, C.D.C. Says**\
 `Still, the risk to people in the United States remains low, the Centers for Disease Control and Prevention said in a report Friday.`\
 https://www.nytimes.com/2026/06/05/us/politics/cdc-ebola-projection.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/05/business/media/60-minutes-cbs-stahl-whitaker-
 **Man Who Schemed With Au Pair to Kill His Wife Is Sentenced to Life**\
 `Brendan Banfield was found guilty of murdering his wife and another man, who was lured in through a fetish website. The plan involved his lover, who is now serving 10 years in prison.`\
 https://www.nytimes.com/2026/06/05/us/brendan-banfield-sentence.html
-
-**Jonathan Tropper on the ‘Your Friends & Neighbors’ Season 2 Finale**\
-`“We are skewering a value system,” the creator Jonathan Tropper said of the series. “But at the same time, we’re making the show aspirational.”`\
-https://www.nytimes.com/2026/06/05/arts/television/your-friends-neighbors-finale.html
 
 **Employers Added a Robust 172,000 Jobs in May**\
 `Unemployment remained steady at 4.3 percent.`\
