@@ -1,3 +1,15 @@
+**Summer Reading Contest, Week 1: What Got Your Attention in The Times This Week?**\
+`To participate, submit your response here by June 12 at 9 a.m. Eastern. This week’s winners will be announced by June 24.`\
+https://www.nytimes.com/2026/06/05/learning/summer-reading-contest-week-1-what-got-your-attention-in-the-times-this-week.html
+
+**More Renters Are Using Tools to Skip Security Deposits, but There’s a Catch**\
+`Third-party services charge fees to help renters bypass some upfront costs of signing a lease. Unlike traditional deposits, the money won’t be returned to tenants.`\
+https://www.nytimes.com/2026/06/05/your-money/more-renters-are-using-tools-to-skip-security-deposits-but-theres-a-catch.html
+
+**James Handy, Actor in ‘Top Gun: Maverick,’ Is Found Stabbed to Death**\
+`The 81-year-old actor had parts in films including “Top Gun: Maverick” and “Arachnophobia.” The son of his girlfriend was arrested and charged with murder.`\
+https://www.nytimes.com/2026/06/05/us/james-handy-stabbed-dead-la-top-gun-jumanji.html
+
 **In ‘Can I Be Frank?,’ Imitation Is the Sincerest Form of Tragedy**\
 `Morgan Bassichis, whose solo show “Can I Be Frank?” resurrects an act by Frank Maya, joins others this season who are recreating the works of deceased artists.`\
 https://www.nytimes.com/2026/06/05/theater/morgan-bassichis-can-i-be-frank.html
