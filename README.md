@@ -1,3 +1,7 @@
+**Casting Her 10,000th Vote in a Row, Collins Sets a Senate Record**\
+`The Maine Republican, who is in the middle of a tumultuous re-election race, became the first senator in history to reach the threshold without missing a vote.`\
+https://www.nytimes.com/2026/06/05/us/politics/susan-collins-votes-streak-senate.html
+
 **Elon Musk Dominates List of Highest Paid C.E.O.s**\
 `Executive compensation is accelerating while rank-and-file workers lag, widening the pay gap in corporate America.`\
 https://www.nytimes.com/2026/06/05/business/highest-paid-ceos-elon-musk.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/es/2026/06/05/espanol/cultura/optimizar-felicidad-consej
 **For America’s Birthday, a Declaration of Independence Whodunit**\
 `The New York Historical thinks it has identified the anonymous printer behind a rare broadside printing of the Declaration made soon after July 4, 1776.`\
 https://www.nytimes.com/2026/06/05/arts/declaration-independence-loudon-250.html
-
-**It’s No Wonder Grads Are Booing Their Commencement Speakers**\
-`Companies are trying to automate graduates’ futures away. No wonder they’re furious.`\
-https://www.nytimes.com/2026/06/05/opinion/graduation-speakers-ai-college-commencement.html
 
