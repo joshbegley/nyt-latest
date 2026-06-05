@@ -1,3 +1,7 @@
+**Flyover No More: Central Ohio Becomes Hub for Tech and Manufacturing**\
+`Tech titans and Silicon Valley transplants changed the Columbus area, but not everyone is thrilled about the rapid transformation.`\
+https://www.nytimes.com/2026/06/05/business/ohio-tech-manufacturing-hub.html
+
 **Today, In Short**\
 `Touching grass. Pets. And the latest from the French Open.`\
 https://www.nytimes.com/2026/06/05/briefing/today-in-short.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/06/05/realestate/2-6-million-homes-in-sicily.html
 **The New World Screwworm Is Back. Here’s What That Means.**\
 `Here’s why farmers and scientists are concerned over the New World screwworm’s unwelcome return to the United States.`\
 https://www.nytimes.com/2026/06/05/science/new-world-screwworm-explainer.html
-
-**For Jennifer Lopez and Brett Goldstein, Romance Is Everything**\
-`The Bronx-born superstar and the British comedian, who star together in the Netflix comedy “Office Romance,” have more in common than you think.`\
-https://www.nytimes.com/2026/06/05/movies/jennifer-lopez-brett-goldstein-office-romance-interview.html
 
