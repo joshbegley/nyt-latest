@@ -1,3 +1,19 @@
+**Cucumber, Tomato, Red Onion, Herbs, Lime, Olive Oil, Summer**\
+`That’s salad-e Shirazi, one of our most popular recipes of the week.`\
+https://www.nytimes.com/2026/06/05/dining/cucumber-tomato-red-onion-herbs-lime-olive-oil-summer.html
+
+**Trump Is Getting Worse at His Job**\
+`“Trump loses more often, on more things, than most.”`\
+https://www.nytimes.com/2026/06/05/opinion/trump-republicans-congress.html
+
+**Five Science Fiction Movies to Stream Now**\
+`In this month’s picks, fatal fungi and killer calamari. Plus, lots of zombies (and a few podcasters).`\
+https://www.nytimes.com/2026/06/05/movies/science-fiction-movies-streaming.html
+
+**Casting Her 10,000th Vote in a Row, Collins Sets a Senate Record**\
+`The Maine Republican, who is in the middle of a tumultuous re-election race, became the first senator in history to reach the threshold without missing a vote.`\
+https://www.nytimes.com/2026/06/05/us/politics/susan-collins-votes-streak-senate.html
+
 **Elon Musk Dominates List of Highest Paid C.E.O.s**\
 `Executive compensation is accelerating while rank-and-file workers lag, widening the pay gap in corporate America.`\
 https://www.nytimes.com/2026/06/05/business/highest-paid-ceos-elon-musk.html
@@ -62,7 +78,7 @@ https://www.nytimes.com/2026/06/05/theater/morgan-bassichis-can-i-be-frank.html
 `The artificial intelligence giant said a “brake pedal” was needed to protect humanity from self-improving models. The proposal could have big consequences.`\
 https://www.nytimes.com/2026/06/05/business/dealbook/anthropic-ai-nonproliferation.html
 
-**Hopes of Lebanon Cease-fire Falter as Israel and Hezbollah Fight On**\
+**Hopes of Lebanon Cease-Fire Falter as Israel and Hezbollah Fight On**\
 `The U.S.-brokered agreement requires Hezbollah, which Iran backs, to stop firing first. But the group, not party to the talks, rejected the conditions as a virtual surrender.`\
 https://www.nytimes.com/2026/06/05/world/middleeast/lebanon-cease-fire-israel-hezbollah.html
 
@@ -173,20 +189,4 @@ https://www.nytimes.com/video/podcasts/100000010940871/mia-on-maga-the-kid-cudi-
 **The White House’s Latest Provocation Is Way More Than Just a Troll**\
 `What’s the matter, can’t you take a joke?`\
 https://www.nytimes.com/2026/06/05/opinion/aliens-ice-immigration-white-house.html
-
-**The New Right’s Very Old Vision of Men**\
-`The journalist Helen Lewis examines the ancient, angry gender politics of the New Right.`\
-https://www.nytimes.com/2026/06/05/opinion/ezra-klein-podcast-helen-lewis-gender-right.html
-
-**¿Quieres ‘optimizar’ tu felicidad? Esta científica cognitiva dice que no lo hagas**\
-`Laurie Santos, científica cognitiva y profesora de Yale, habla sobre lo que realmente dará sentido y plenitud a tu vida, y lo que no.`\
-https://www.nytimes.com/es/2026/06/05/espanol/cultura/optimizar-felicidad-consejos.html
-
-**For America’s Birthday, a Declaration of Independence Whodunit**\
-`The New York Historical thinks it has identified the anonymous printer behind a rare broadside printing of the Declaration made soon after July 4, 1776.`\
-https://www.nytimes.com/2026/06/05/arts/declaration-independence-loudon-250.html
-
-**It’s No Wonder Grads Are Booing Their Commencement Speakers**\
-`Companies are trying to automate graduates’ futures away. No wonder they’re furious.`\
-https://www.nytimes.com/2026/06/05/opinion/graduation-speakers-ai-college-commencement.html
 
