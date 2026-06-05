@@ -1,3 +1,11 @@
+**Summer Reading Contest, Week 1: What Got Your Attention in The Times This Week?**\
+`To participate, submit your response here by June 12 at 9 a.m. Eastern. This week’s winners will be announced by June 24.`\
+https://www.nytimes.com/2026/06/05/learning/summer-reading-contest-week-1-what-got-your-attention-in-the-times-this-week.html
+
+**More Renters Are Using Tools to Skip Security Deposits, but There’s a Catch**\
+`Third-party services charge fees to help renters bypass some upfront costs of signing a lease. Unlike traditional deposits, the money won’t be returned to tenants.`\
+https://www.nytimes.com/2026/06/05/your-money/more-renters-are-using-tools-to-skip-security-deposits-but-theres-a-catch.html
+
 **James Handy, Actor in ‘Top Gun: Maverick,’ Is Found Stabbed to Death**\
 `The 81-year-old actor had parts in films including “Top Gun: Maverick” and “Arachnophobia.” The son of his girlfriend was arrested and charged with murder.`\
 https://www.nytimes.com/2026/06/05/us/james-handy-stabbed-dead-la-top-gun-jumanji.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/05/magazine/james-murdoch-vox-new-york-magazine.
 **Many Trump Voters Are Unhappy With Handling of Iran, Economy and More Issues**\
 `The president’s base is thought to be unmovable. But one-third of these voters say they are unhappy about certain issues and are not knee-jerk loyalists.`\
 https://www.nytimes.com/2026/06/05/us/politics/trump-voters-iran-economy.html
-
-**To Sell Trucks, Break Out the Cowboys and Wrap Them in Old Glory**\
-`Americans — especially American men — love trucks, and high gas prices aren’t swaying automakers. Ram has a new line of fuel-guzzling muscle trucks, and some in-your-face ads to sell them.`\
-https://www.nytimes.com/2026/06/05/business/pickup-trucks-ads-ram-rumble-bee.html
-
-**Getting Ready for the Next Big Game at the Garden**\
-`The N.B.A. finals return to Madison Square Garden on Monday. Some high-profile guests are expected.`\
-https://www.nytimes.com/2026/06/05/nyregion/getting-ready-for-the-next-big-game-at-the-garden.html
 
