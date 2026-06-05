@@ -1,3 +1,11 @@
+**How Ebola Spreads Through Gold Mining**\
+`Our chief Africa correspondent, Declan Walsh, reports from the epicenter of the Ebola outbreak on how the gold mining industry and the outbreak are linked.`\
+https://www.nytimes.com/video/world/africa/100000010936243/how-ebola-spreads-through-gold-mining.html
+
+**Hot I.P.O. Summer + What Is A.I. Doing to Math? + HatGPT**\
+`“We are on track to see what might be the three biggest I.P.O.s of all time.”`\
+https://www.nytimes.com/2026/06/05/podcasts/hardfork-ipo-math.html
+
 **Former Prince Andrew Sublet Cottages on Royal Property Where He Lived Rent-Free**\
 `Andrew Mountbatten-Windsor received income from renting out three cottages at Royal Lodge, where he paid no rent himself, a British public spending watchdog found.`\
 https://www.nytimes.com/2026/06/05/world/europe/uk-prince-andrew-royal-lodge-property-sublet.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/05/business/media/he-man-mattel-masters-of-the-u
 **Her Throat Was on Fire. What Was Wrong?**\
 `Swallowing and talking had become excruciating for the young woman, and her symptoms were progressing quickly.`\
 https://www.nytimes.com/2026/06/05/well/sore-throat-peritonsillar-abscess.html
-
-**Refik Anadol’s Dataland: You Feel the A.I. Art, and It Feels You Back**\
-`A look inside Dataland in Los Angeles, dedicated entirely to A.I.-generated art. Refik Anadol, its founder, says it’s for human dreamers. Will critics be convinced?`\
-https://www.nytimes.com/2026/06/05/arts/design/dataland-ai-museum-los-angeles-art-artificial-intelligence.html
-
-**38 Tony Nominees Reveal the Strangest Skills They’ve Picked Up**\
-`The stars of “Giant,” “Fallen Angels,” “The Rocky Horror Show,” “Ragtime” and more prove they’ll go to great lengths to be believable in a role.`\
-https://www.nytimes.com/2026/06/05/theater/tony-nominees-2026-photos.html
 
