@@ -1,3 +1,7 @@
+**Russian Satellites Have Been JammingGPS Signals Across Europe, Scientists Say**\
+`Scientists and U.S. military briefers have linked short, widespread interference incidents to Russia, revealing vulnerabilities in a technology essential to everyday society.`\
+https://www.nytimes.com/2026/06/05/world/europe/russia-satellites-gps-interference-europe.html
+
 **Why SpaceX Will End Up In Your 401(k), Like It Or Not**\
 `Elon Musk’s rocket company, on the cusp of the largest initial public offering ever, will soon end up in index funds after rule changes by Nasdaq and other index providers.`\
 https://www.nytimes.com/2026/06/05/technology/spacex-indexes-401k.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/06/05/opinion/graduation-speakers-ai-college-commen
 **9 New Movies Our Critics Are Talking About This Week**\
 `Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
 https://www.nytimes.com/2026/06/05/movies/movie-review-roundup.html
-
-**How Gold Is Driving the Spread of Ebola**\
-`Mining has been the lifeblood of this remote Congolese hill town for decades. Now, it is fueling the spread of a devastating outbreak.`\
-https://www.nytimes.com/2026/06/05/world/africa/congo-ebola-gold-mine.html
 
