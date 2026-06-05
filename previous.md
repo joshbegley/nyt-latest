@@ -1,3 +1,7 @@
+**Muere Anthony Head, actor en ‘Buffy’ y villano de ‘Ted Lasso’**\
+`El actor británico fue uno de los pilares de influyentes programas de televisión, y alcanzó la fama inicialmente como imagen de Nescafé.`\
+https://www.nytimes.com/es/2026/06/05/espanol/muere-anthony-head-buffys-ted-lasso.html
+
 **Iran Fired Attack Drones Toward Strait of Hormuz, U.S. Official Says**\
 `The latest violence between the United States and Iran threatened a cease-fire and risked further stoking tensions in the region.`\
 https://www.nytimes.com/2026/06/05/us/politics/iran-attack-drones-hormuz.html
@@ -42,7 +46,7 @@ https://www.nytimes.com/2026/06/05/briefing/judge-trump-immigration-policies.htm
 `Dawa Sherpa, a Mount Everest guide, was found alive on Thursday, six days after he went missing.`\
 https://www.nytimes.com/video/world/asia/100000010945549/mount-everest-sherpa-found-alive.html
 
-**Council Speaker Urged to Act After Member’s Anti-Muslim Posts**\
+**N.Y.C. Council Speaker Urged to Act After Member’s Anti-Muslim Posts**\
 `Interfaith leaders said City Council Speaker Julie Menin’s lack of response to Councilwoman Inna Vernikov’s Islamophobic statements called the city’s commitment to protecting Muslims into question.`\
 https://www.nytimes.com/2026/06/05/nyregion/inna-vernikov-julie-menin-muslim.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/06/05/upshot/flashback.html
 **’60 Minutes’ Stars Will Stay After Pelley’s Firing Because They Don’t Want Show to ‘Die’**\
 `Lesley Stahl, Bill Whitaker and Jon Wertheim said on Friday in an email to the show’s staff that they had reached the decision after a period of “grieving” and frustration.`\
 https://www.nytimes.com/2026/06/05/business/media/60-minutes-cbs-stahl-whitaker-wertheim.html
-
-**Man Who Schemed With Au Pair to Kill His Wife Is Sentenced to Life**\
-`Brendan Banfield was found guilty of murdering his wife and another man, who was lured in through a fetish website. The plan involved his lover, who is now serving 10 years in prison.`\
-https://www.nytimes.com/2026/06/05/us/brendan-banfield-sentence.html
 
