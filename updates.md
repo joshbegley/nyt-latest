@@ -1,3 +1,7 @@
+**Tom Colicchio Will Close Craft, His Flagship Restaurant, After 25 Years**\
+`The chef and judge on “Top Chef” said that running a restaurant in New York — and the clientele — had changed in the last couple of years.`\
+https://www.nytimes.com/2026/06/05/dining/craft-restaurant-closing-tom-colicchio.html
+
 **Ned Jarrett, Champion Stock Car Racer in the 1960s, Dies at 93**\
 `He won the sport’s most important series, NASCAR’s Grand National, and his son followed in his footsteps. Both were inducted into the Hall of Fame.`\
 https://www.nytimes.com/2026/06/05/sports/ned-jarrett-dead.html
