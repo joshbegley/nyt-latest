@@ -1,3 +1,67 @@
+**The MAGA Representative Crusading Against Government Secrecy**\
+`Anna Paulina Luna on Epstein, J.F.K. and U.F.O.s.`\
+https://www.nytimes.com/2026/06/05/opinion/anna-paulina-luna-epstein-jfk-ufo-conspiracy.html
+
+**The New Right’s Very Old Vision of Men**\
+`The journalist Helen Lewis examines the ancient, angry gender politics of the New Right.`\
+https://www.nytimes.com/video/opinion/100000010940546/the-new-rights-very-old-vision-of-men.html
+
+**Who Should Win a Tony? Vote for Your Favorites.**\
+`Broadway’s biggest night is almost here, and we’re asking readers to weigh in on eight categories.`\
+https://www.nytimes.com/interactive/2026/06/05/theater/tonys-reader-voting.html
+
+**A Summer Book Recommendation Bonanza**\
+`From doppelgängers to dark academia, the Book Review editors share some of their most-anticipated titles.`\
+https://www.nytimes.com/2026/06/05/podcasts/tbr-summer-books-roundup.html
+
+**Appeals Court Panel to Hear Arguments Over Trump’s Ballroom**\
+`A three-judge panel will consider whether a lower court erred in ordering construction stopped until President Trump secured the support of Congress.`\
+https://www.nytimes.com/2026/06/05/us/politics/appeals-court-trump-ballroom.html
+
+**Russia Floods Armenia With Disinformation Ahead of Election**\
+`Fearing a loss of influence, groups linked to the Kremlin and intelligence agencies have sought to discredit the country’s prime minister.`\
+https://www.nytimes.com/2026/06/05/world/europe/armenia-election-russia-disinformation.html
+
+**The Lasting Cost of Graduating Into a Tough Job Market**\
+`Sydney Ember, a Times business reporter, has been speaking with recent college graduates struggling to find work. She explains how starting a career in a weak job market can leave lasting scars on wages and opportunities.`\
+https://www.nytimes.com/video/business/100000010938226/the-lasting-cost-of-graduating-into-a-tough-job-market.html
+
+**5 Children’s Movies to Stream Now**\
+`This month’s picks include two choices for young sports fans and a summer blockbuster.`\
+https://www.nytimes.com/2026/06/05/movies/kids-movies-streaming-now.html
+
+**A Murdoch Builds His Own Media Empire. Is This ‘Succession’ or Secession?**\
+`James Murdoch says acquiring New York magazine and Vox has nothing to do with his father. But in some ways, it’s a tribute.`\
+https://www.nytimes.com/2026/06/05/magazine/james-murdoch-vox-new-york-magazine.html
+
+**Many Trump Voters Are Unhappy With Handling of Iran, Economy and More Issues**\
+`The president’s base is thought to be unmovable. But one-third of these voters say they are unhappy about certain issues and are not knee-jerk loyalists.`\
+https://www.nytimes.com/2026/06/05/us/politics/trump-voters-iran-economy.html
+
+**To Sell Trucks, Break Out the Cowboys and Wrap Them in Old Glory**\
+`Americans — especially American men — love trucks, and high gas prices aren’t swaying automakers. Ram has a new line of fuel-guzzling muscle trucks, and some in-your-face ads to sell them.`\
+https://www.nytimes.com/2026/06/05/business/pickup-trucks-ads-ram-rumble-bee.html
+
+**Getting Ready for the Next Big Game at the Garden**\
+`The N.B.A. finals return to Madison Square Garden on Monday. Some high-profile guests are expected.`\
+https://www.nytimes.com/2026/06/05/nyregion/getting-ready-for-the-next-big-game-at-the-garden.html
+
+**Can I Force My Spouse to Do Karaoke?**\
+`A ruling on a duet-related dispute.`\
+https://www.nytimes.com/interactive/2026/06/05/magazine/muppet-karaoke-hodgman-quiz.html
+
+**The Betrayal of Black Voters Threatens Our Democracy**\
+`The sweeping effort to dismantle Black-majority congressional districts in the South will have far-reaching consequences for all Americans, and for our democracy.`\
+https://www.nytimes.com/2026/06/05/opinion/voting-rights-act-black-voters-south.html
+
+**U.S. Amputee World Cup Contenders Are Fierce on Crutches**\
+`With the Amputee Football World Cup nearing, an elite squad of athletes gathered on Long Island to vie for a spot on the national men’s team, displaying skill and grit.`\
+https://www.nytimes.com/2026/06/05/sports/soccer/amputee-world-cup-national-team.html
+
+**The MAGA Representative Crusading Against Government Secrecy**\
+`Anna Paulina Luna on Epstein, J.F.K. and U.F.O.s.`\
+https://www.nytimes.com/video/opinion/100000010933515/the-maga-representative-crusading-against-government-secrecy.html
+
 **Crowded Airport Lounges Are Rolling Out Grab-and-Go Options**\
 `New premium pit stops are giving fliers a place for a quick bite and drink without having to line up for increasingly crowded traditional lounges.`\
 https://www.nytimes.com/2026/06/05/travel/airport-lounges-grab-and-go.html
@@ -133,68 +197,4 @@ https://www.nytimes.com/2026/06/05/opinion/mexico-sheinbaum-cartels-corruption.h
 **The Priests Revered in the Land of Five Genders**\
 `The bissus of South Sulawesi are considered a link between the earthly and celestial because they are thought to embody both male and female traits.`\
 https://www.nytimes.com/2026/06/05/world/asia/transgender-priests-sulawesi-bissu-bugis.html
-
-****\
-`A self-stabbing ritual known as the ma’giri.`\
-https://www.nytimes.com/video/embedded/world/asia/100000010915084/00int-indonesia-transgender-dispatch-78220.html
-
-****\
-`While reciting sacred mantras, the bissus made offerings to honor their ancestors and ward off misfortune.`\
-https://www.nytimes.com/video/embedded/world/asia/100000010915082/00int-indonesia-transgender-dispatch-72166.html
-
-**Quote of the Day: Ireland, Seen as a Weak Link in Europe’s Defense, Tries to Bulk Up**\
-`Quotation of the Day for Friday, June 5, 2026.`\
-https://www.nytimes.com/2026/06/05/pageoneplus/quote-of-the-day-ireland-seen-as-a-weak-link-in-europes-defense-tries-to-bulk-up.html
-
-**Russia Rails Against the West but Welcomes Candace Owens and Andrew Tate**\
-`While some powerful Russians shun the West, others want to restore ties and embrace friendly Westerners. President Vladimir V. Putin’s annual economic conference illustrates the conflicting impulses.`\
-https://www.nytimes.com/2026/06/05/world/europe/russia-st-petersburg-forum-candace-owens.html
-
-**A Rainy Japanese Rock Festival Proved They Could Weather Anything**\
-`Ana Escalante and Robert Lucas didn’t especially like each other through most of high school, but a coffee date their senior year changed all that.`\
-https://www.nytimes.com/2026/06/05/style/ana-escalante-robert-lucas-wedding.html
-
-**Corrections: June 5, 2026**\
-`Corrections that appeared in print on Friday, June 5, 2026.`\
-https://www.nytimes.com/2026/06/05/pageoneplus/corrections-june-5-2026.html
-
-**He’s Famous for His Mukbangs. But They Met the Old-Fashioned Way.**\
-`Tommy Winkler, a TikToker known as “The Food Guy,” threw pebbles at Jess Pappas’s window when they were college students with Covid.`\
-https://www.nytimes.com/2026/06/05/style/jess-pappas-tommy-winkler-wedding.html
-
-**In a Relationship Between Two Puppeteers, Both Pull the Strings**\
-`Marta MacRostie and Jonathan Levin ran in the same circles, but it took a solar eclipse to bring them together.`\
-https://www.nytimes.com/2026/06/05/style/marta-macrostie-jonathan-levin-wedding.html
-
-**A Wedding With ‘a Housewife in Attendance’ (Sort of)**\
-`Scott Winston and Nicholas Hunt, who share a love for reality TV and karaoke, spent their whole first date laughing.`\
-https://www.nytimes.com/2026/06/05/style/scott-winston-nicholas-hunt-wedding.html
-
-**Quil Lemons, the Photographer, Marries Stylist Parker Harwood**\
-`After getting into a car accident shortly after meeting, the photographer Quil Lemons made one call: to ask Parker Harwood, a stylist, on a date.`\
-https://www.nytimes.com/2026/06/05/style/quil-lemons-parker-harwood-wedding.html
-
-**I Couldn’t Tell Him Why We Had to Break Up**\
-`When my young cousin’s girlfriend cheated on him, I wrestled with ghosts of my own.`\
-https://www.nytimes.com/2026/06/05/style/modern-love-infidelity-couldnt-tell-him-why-we-had-to-break-up.html
-
-**Raman Gains on Pratt in L.A. Mayor Race But Many Ballots Remain**\
-`Nithya Raman’s vote count still remains well behind Spencer Pratt’s, but hundreds of thousands of ballots remain to be counted in Los Angeles over the next few weeks.`\
-https://www.nytimes.com/2026/06/04/us/elections/raman-pratt-los-angeles-mayor.html
-
-**What To Know as China’s Xi Jinping Heads to North Korea**\
-`As Xi Jinping visits Pyongyang, he faces an emboldened North Korean dictator, whose alliance with Russia has reduced his dependence on China.`\
-https://www.nytimes.com/2026/06/04/world/asia/china-north-korea-xi-jinping-visit.html
-
-**Platner Denies Hurting Ex-Girlfriend and Says He Will Not Quit Senate Race**\
-`In an interview after The Times reported on his treatment of women he had dated, Graham Platner acknowledged “not exactly acting with the best behavior” after his military service.`\
-https://www.nytimes.com/2026/06/04/us/politics/graham-platner-maine-senate-former-girlfriends.html
-
-**Court Reverses Convictions of Paramedics in Elijah McClain’s Death**\
-`A Colorado appeals court ordered new trials for Peter Cichuniec and Jeremy Cooper, convicted in 2023 after injecting Mr. McClain with ketamine. The court cited errors in jury instructions.`\
-https://www.nytimes.com/2026/06/04/us/elijah-mcclain-paramedics-convictions-retrials.html
-
-**Murder Charge Dropped for Arkansas Man Nominated for Lonoke County Sheriff**\
-`A judge dismissed the charge against Aaron Spencer, the Republican nominee for Lonoke County sheriff, citing missing evidence and misconduct by law enforcement officials.`\
-https://www.nytimes.com/2026/06/04/us/arkansas-lonoke-sheriff-murder-charge.html
 

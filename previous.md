@@ -1,3 +1,75 @@
+**Crowded Airport Lounges Are Rolling Out Grab-and-Go Options**\
+`New premium pit stops are giving fliers a place for a quick bite and drink without having to line up for increasingly crowded traditional lounges.`\
+https://www.nytimes.com/2026/06/05/travel/airport-lounges-grab-and-go.html
+
+**Can Mattel Build an Empire on He-Man’s Shoulders?**\
+`“Masters of the Universe” will test whether Mattel can cement itself as an entertainment powerhouse with a hypermasculine character from the 1980s.`\
+https://www.nytimes.com/2026/06/05/business/media/he-man-mattel-masters-of-the-universe-barbie.html
+
+**Her Throat Was on Fire. What Was Wrong?**\
+`Swallowing and talking had become excruciating for the young woman, and her symptoms were progressing quickly.`\
+https://www.nytimes.com/2026/06/05/well/sore-throat-peritonsillar-abscess.html
+
+**Refik Anadol’s Dataland: You Feel the A.I. Art, and It Feels You Back**\
+`A look inside Dataland in Los Angeles, dedicated entirely to A.I.-generated art. Refik Anadol, its founder, says it’s for human dreamers. Will critics be convinced?`\
+https://www.nytimes.com/2026/06/05/arts/design/dataland-ai-museum-los-angeles-art-artificial-intelligence.html
+
+**38 Tony Nominees Reveal the Strangest Skills They’ve Picked Up**\
+`The stars of “Giant,” “Fallen Angels,” “The Rocky Horror Show,” “Ragtime” and more prove they’ll go to great lengths to be believable in a role.`\
+https://www.nytimes.com/2026/06/05/theater/tony-nominees-2026-photos.html
+
+**For New Graduates, Job Market Scars Could Linger for Years**\
+`The full impact of graduating into this hiring downturn will not come into focus for years, and much remains uncertain, especially about A.I.’s role.`\
+https://www.nytimes.com/2026/06/05/business/college-graduates-job-market.html
+
+**Ye Concerts Have Been Canceled Across Europe. Why Not in the Netherlands?**\
+`Lawmakers and Jewish groups lodged protests over the rapper’s history of antisemitism. But those sensitivities ran headlong into the Netherlands’ robust free speech protections.`\
+https://www.nytimes.com/2026/06/05/world/europe/ye-tour-netherlands.html
+
+**From Cow-Milking Robots to Weed-Zapping Lasers, Farmers Are Embracing A.I.**\
+`We asked three farmers to tell us how new technology is revolutionizing the way they work.`\
+https://www.nytimes.com/2026/06/05/magazine/ai-farms-technology.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/magazine/100000010921164/14mag-farming-3.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/magazine/100000010926264/14mag-farming-4.html
+
+****\
+`The automatic feeder adjusts to the cows’ eating patterns over time.`\
+https://www.nytimes.com/video/embedded/magazine/100000010926651/14mag-farming-8.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/magazine/100000010919715/14mag-farming-1.html
+
+**Book Review: ‘The Man Who Stole the Gods,’ by Matthew Campbell**\
+`In “The Man Who Stole the Gods,” Matthew Campbell recounts a shocking, decades-long crime and the search for its perpetrator.`\
+https://www.nytimes.com/2026/06/05/books/review/man-who-stole-the-gods-matthew-campbell.html
+
+**Book Review: ‘Villa Coco,’ by Andrew Sean Greer**\
+`Following his “Less” books with “Villa Coco,” Andrew Sean Greer drops an aimless postgraduate into a glamorous, romantic and secret-laden setting.`\
+https://www.nytimes.com/2026/06/05/books/review/villa-coco-andrew-sean-greer.html
+
+**‘The Story of Ferdinand,’ by Munro Leaf and Robert Lawson, Turns 90**\
+`As the gentle giant who just wanted to live his best life turns 90, Munro Leaf and Robert Lawson’s classic fable is as apt as ever.`\
+https://www.nytimes.com/2026/06/05/books/review/ferdinand-the-bull-90th-anniversary-childrens-essay.html
+
+**When Jeffrey Epstein Needed Favors, This Restaurant Mogul Was There**\
+`Stephen Hanson, whose empire included Blue Water Grill and Ruby Foo’s, performed an array of tasks, including arranging jobs, visas and entertainment for women.`\
+https://www.nytimes.com/2026/06/05/dining/jeffrey-epstein-stephen-hanson.html
+
+**We’ve Got Stars for Border Town, Barker and More**\
+`Our latest batch of reviews includes a Norteño-style burritos spot in Greenpoint, a daytime cafe in Bed-Stuy and a versatile Chinese restaurant in Prospect Heights`\
+https://www.nytimes.com/2026/06/05/dining/restaurant-reviews-border-town-barker.html
+
+**The Fastest Woman to Circle the Earth on a Bike Is Aiming for the Men’s Record**\
+`Lael Wilcox will pedal around the world, and she hopes to do it in less than 80 days.`\
+https://www.nytimes.com/2026/06/05/sports/cycling/bicycle-world-record-lael-wilcox-cycling.html
+
 **Several Republicans Break With Trump to Pass Ukraine Aid Bill**\
 `Eighteen Republican lawmakers joined Democrats on Thursday to pass a bill that would provide new aid to Ukraine, clashing with President Trump’s foreign policy agenda.`\
 https://www.nytimes.com/video/us/politics/100000010946594/house-republicans-ukraine-aid.html
@@ -125,76 +197,4 @@ https://www.nytimes.com/2026/06/04/us/elijah-mcclain-paramedics-convictions-retr
 **Murder Charge Dropped for Arkansas Man Nominated for Lonoke County Sheriff**\
 `A judge dismissed the charge against Aaron Spencer, the Republican nominee for Lonoke County sheriff, citing missing evidence and misconduct by law enforcement officials.`\
 https://www.nytimes.com/2026/06/04/us/arkansas-lonoke-sheriff-murder-charge.html
-
-**NYT Crossword Answers for June 05, 2026**\
-`Kelly Morenus opens our solving weekend.`\
-https://www.nytimes.com/2026/06/04/crosswords/daily-puzzle-2026-06-05.html
-
-**Schlossberg, Bores, Conway and Lasher Spar in NYC Primary Debate**\
-`Four Democratic hopefuls seeking to represent a key Manhattan House district clashed in the first debate of the race.`\
-https://www.nytimes.com/2026/06/04/nyregion/schlossberg-conway-bores-lasher-nyc-primary-debate.html
-
-**‘Girl, Interrupted’ Review: A Musical That’s a Little Too Tranquilized**\
-`While the 1999 movie went for melodrama, this stage adaptation with songs by Aimee Mann honors the memoir’s coolly clinical prose.`\
-https://www.nytimes.com/2026/06/04/theater/girl-interrupted-review-mann-majok-king-princess-canfield.html
-
-**‘Office Romance’ Review: Prepare for Turbulence**\
-`Jennifer Lopez and Brett Goldstein cause professional headaches in this workplace comedy about an airline.`\
-https://www.nytimes.com/2026/06/04/movies/office-romance-review.html
-
-**What to Know About California’s Top Election Races**\
-`The Republicans Steve Hilton, who is running for governor, and Spencer Pratt, running for Los Angeles mayor, have shown early strength, but that could fade as more ballots are counted.`\
-https://www.nytimes.com/2026/06/04/us/california-primary-governor-mayor-results.html
-
-**Theater Reminds Us That We’re Human**\
-`Ahead of the 2026 Tony Awards, Wesley Morris invites Helen Shaw, The Times’s chief theater critic, to help him understand this season of Broadway plays.`\
-https://www.nytimes.com/video/podcasts/100000010939373/theater-reminds-us-that-were-human.html
-
-**Las cadenas hoteleras se retiran de Cuba ante las presiones de Trump**\
-`Los esfuerzos del gobierno de Trump para presionar a Cuba parecen estar funcionando, ya que más empresas internacionales han anunciado que abandonarán la isla.`\
-https://www.nytimes.com/es/2026/06/04/espanol/america-latina/trump-presion-cuba-hoteles.html
-
-**House Passes Ukraine Aid in Defiance of Republican Leaders**\
-`Eighteen G.O.P. lawmakers broke with their party and joined Democrats to deliver yet another blow to the president’s foreign policy agenda.`\
-https://www.nytimes.com/2026/06/04/us/politics/house-ukraine-aid-russia-republicans.html
-
-**How Trump’s Proposed Arch Could Complicate D.C.’s Congested Airspace**\
-`The mammoth arch would sit directly in the paths of flights in and out of Reagan National Airport.`\
-https://www.nytimes.com/interactive/2026/06/04/us/trump-arch-dc-airspace.html
-
-**In a First, Scientists Precisely Edit Human Embryo Genes**\
-`Researchers relied on a newer gene-editing technique that may make it possible to engineer embryos, a prospect that has long alarmed bioethicists.`\
-https://www.nytimes.com/2026/06/04/science/embryos-gene-editing-crispr.html
-
-**Zelensky Mixes Taunts and Peace Talks Offer in Letter to Putin**\
-`“After 26 years in power, age is beginning to take its toll,” President Volodymyr Zelensky of Ukraine wrote of his Russian counterpart, bragging of a recent strike on St. Petersburg.`\
-https://www.nytimes.com/2026/06/04/world/europe/zelensky-putin-letter.html
-
-**Pilot Was Warned Jet Was Too Low Before It Clipped a Light Pole**\
-`The pilot heard a “thump” while landing in Newark, according to a newly released report. The light pole crashed onto a truck.`\
-https://www.nytimes.com/2026/06/04/nyregion/plane-light-pole-truck-newark.html
-
-**Read Nick Bilton’s Memo to ‘60 Minutes’ Staff**\
-`The new executive producer of the program sought to lift staff morale after recent high-profile turmoil.`\
-https://www.nytimes.com/interactive/2026/06/04/us/bilton-memo.html
-
-**Reto del verano: Sal al aire libre y ‘a que te dé el sol’**\
-`Tu celular puede distraerte, pero no te recarga las pilas. Esto es lo que sí lo hace.`\
-https://www.nytimes.com/es/interactive/2026/06/04/espanol/como-desconectar-telefono-reto-recuperar-tiempo.html
-
-**‘Scary Movie’ Review: Too Many Movies, Too Few Laughs**\
-`The sixth installment of this low-grade franchise takes a predictable and dismaying turn, even if it feels like the right time to bring the series back.`\
-https://www.nytimes.com/2026/06/04/movies/scary-movie-review.html
-
-**Ohio State Agrees to $100 Million Payout Over Sexual Abuse Claims**\
-`The deal with 279 former students is the latest in the long-running case at the university. In all, nearly 600 people who said they were abused by an athletic department doctor have settled.`\
-https://www.nytimes.com/2026/06/04/us/ohio-state-sexual-abuse-settlement.html
-
-**New Research Suggests a Possible Path to Prevent Lung Cancer**\
-`Also, senators clashed over Trump’s payout fund. Here’s the latest at the end of Thursday.`\
-https://www.nytimes.com/2026/06/04/briefing/lung-cancer-research-trump-fund.html
-
-**California Businessman Accused of Selling Restricted Technology to Iran**\
-`Jamshid Ghomi, of Newport Coast, Calif., was charged with conspiracy to violate the International Emergency Economic Powers Act.`\
-https://www.nytimes.com/2026/06/04/us/sanctions-iran-nuclear-military-violations.html
 

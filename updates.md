@@ -1,3 +1,75 @@
+**Crowded Airport Lounges Are Rolling Out Grab-and-Go Options**\
+`New premium pit stops are giving fliers a place for a quick bite and drink without having to line up for increasingly crowded traditional lounges.`\
+https://www.nytimes.com/2026/06/05/travel/airport-lounges-grab-and-go.html
+
+**Can Mattel Build an Empire on He-Man’s Shoulders?**\
+`“Masters of the Universe” will test whether Mattel can cement itself as an entertainment powerhouse with a hypermasculine character from the 1980s.`\
+https://www.nytimes.com/2026/06/05/business/media/he-man-mattel-masters-of-the-universe-barbie.html
+
+**Her Throat Was on Fire. What Was Wrong?**\
+`Swallowing and talking had become excruciating for the young woman, and her symptoms were progressing quickly.`\
+https://www.nytimes.com/2026/06/05/well/sore-throat-peritonsillar-abscess.html
+
+**Refik Anadol’s Dataland: You Feel the A.I. Art, and It Feels You Back**\
+`A look inside Dataland in Los Angeles, dedicated entirely to A.I.-generated art. Refik Anadol, its founder, says it’s for human dreamers. Will critics be convinced?`\
+https://www.nytimes.com/2026/06/05/arts/design/dataland-ai-museum-los-angeles-art-artificial-intelligence.html
+
+**38 Tony Nominees Reveal the Strangest Skills They’ve Picked Up**\
+`The stars of “Giant,” “Fallen Angels,” “The Rocky Horror Show,” “Ragtime” and more prove they’ll go to great lengths to be believable in a role.`\
+https://www.nytimes.com/2026/06/05/theater/tony-nominees-2026-photos.html
+
+**For New Graduates, Job Market Scars Could Linger for Years**\
+`The full impact of graduating into this hiring downturn will not come into focus for years, and much remains uncertain, especially about A.I.’s role.`\
+https://www.nytimes.com/2026/06/05/business/college-graduates-job-market.html
+
+**Ye Concerts Have Been Canceled Across Europe. Why Not in the Netherlands?**\
+`Lawmakers and Jewish groups lodged protests over the rapper’s history of antisemitism. But those sensitivities ran headlong into the Netherlands’ robust free speech protections.`\
+https://www.nytimes.com/2026/06/05/world/europe/ye-tour-netherlands.html
+
+**From Cow-Milking Robots to Weed-Zapping Lasers, Farmers Are Embracing A.I.**\
+`We asked three farmers to tell us how new technology is revolutionizing the way they work.`\
+https://www.nytimes.com/2026/06/05/magazine/ai-farms-technology.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/magazine/100000010921164/14mag-farming-3.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/magazine/100000010926264/14mag-farming-4.html
+
+****\
+`The automatic feeder adjusts to the cows’ eating patterns over time.`\
+https://www.nytimes.com/video/embedded/magazine/100000010926651/14mag-farming-8.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/magazine/100000010919715/14mag-farming-1.html
+
+**Book Review: ‘The Man Who Stole the Gods,’ by Matthew Campbell**\
+`In “The Man Who Stole the Gods,” Matthew Campbell recounts a shocking, decades-long crime and the search for its perpetrator.`\
+https://www.nytimes.com/2026/06/05/books/review/man-who-stole-the-gods-matthew-campbell.html
+
+**Book Review: ‘Villa Coco,’ by Andrew Sean Greer**\
+`Following his “Less” books with “Villa Coco,” Andrew Sean Greer drops an aimless postgraduate into a glamorous, romantic and secret-laden setting.`\
+https://www.nytimes.com/2026/06/05/books/review/villa-coco-andrew-sean-greer.html
+
+**‘The Story of Ferdinand,’ by Munro Leaf and Robert Lawson, Turns 90**\
+`As the gentle giant who just wanted to live his best life turns 90, Munro Leaf and Robert Lawson’s classic fable is as apt as ever.`\
+https://www.nytimes.com/2026/06/05/books/review/ferdinand-the-bull-90th-anniversary-childrens-essay.html
+
+**When Jeffrey Epstein Needed Favors, This Restaurant Mogul Was There**\
+`Stephen Hanson, whose empire included Blue Water Grill and Ruby Foo’s, performed an array of tasks, including arranging jobs, visas and entertainment for women.`\
+https://www.nytimes.com/2026/06/05/dining/jeffrey-epstein-stephen-hanson.html
+
+**We’ve Got Stars for Border Town, Barker and More**\
+`Our latest batch of reviews includes a Norteño-style burritos spot in Greenpoint, a daytime cafe in Bed-Stuy and a versatile Chinese restaurant in Prospect Heights`\
+https://www.nytimes.com/2026/06/05/dining/restaurant-reviews-border-town-barker.html
+
+**The Fastest Woman to Circle the Earth on a Bike Is Aiming for the Men’s Record**\
+`Lael Wilcox will pedal around the world, and she hopes to do it in less than 80 days.`\
+https://www.nytimes.com/2026/06/05/sports/cycling/bicycle-world-record-lael-wilcox-cycling.html
+
 **Several Republicans Break With Trump to Pass Ukraine Aid Bill**\
 `Eighteen Republican lawmakers joined Democrats on Thursday to pass a bill that would provide new aid to Ukraine, clashing with President Trump’s foreign policy agenda.`\
 https://www.nytimes.com/video/us/politics/100000010946594/house-republicans-ukraine-aid.html
