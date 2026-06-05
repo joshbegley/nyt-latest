@@ -1,3 +1,11 @@
+**Raphael Warnock Says the Supreme Court Has Done ‘Violence’ to Democracy**\
+`The Democratic senator from Georgia discusses voting rights, the influence of Christianity on politics, and his new book, “The Crooked Places Made Straight: Reflections on the Moral Meaning of America.”`\
+https://www.nytimes.com/video/podcasts/100000010947145/raphael-warnock-says-the-supreme-court-has-done-violence-to-democracy.html
+
+**Are You a New Yorker? If You Weren’t Born Here, Jennifer Lopez Says No.**\
+`The actress and singer Jennifer Lopez said in an interview that someone must be born in New York City to be a New Yorker. Not everyone agrees.`\
+https://www.nytimes.com/2026/06/05/nyregion/jlo-new-yorker-rule.html
+
 **A Dark Vision of Masculinity**\
 `Why does the modern, online vision of masculinity feel so “deeply depressing”? In conversation with the journalist Helen Lewis, the Opinion columnist Ezra Klein explains how leading right-wing figures weaponize the word “virtue” to mask a lack of moral and civic obligation.`\
 https://www.nytimes.com/video/opinion/100000010940550/a-dark-vision-of-masculinity.html
