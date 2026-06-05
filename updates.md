@@ -1,3 +1,83 @@
+**On Patrol With Tokyo’s New Litter Police**\
+`Visitor numbers to Shibuya are surging and trash cans are scarce. Enter the city patrol.`\
+https://www.nytimes.com/2026/06/05/world/asia/japan-tokyo-littering-fines.html
+
+**The New York Times News Quiz, June 5, 2026**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://www.nytimes.com/interactive/2026/06/05/briefing/quiz-elections-war-powers-kuwait-spacex.html
+
+**¿Una sola inyección para controlar el colesterol de por vida? Un estudio señala que podría ser posible**\
+`En un pequeño ensayo, la infusión de un fármaco experimental de edición genética pareció reducir el colesterol LDL a largo plazo. De sostenerse, sería un eficaz tratamiento preventivo para las enfermedades cardíacas.`\
+https://www.nytimes.com/es/2026/06/05/espanol/ciencia-y-tecnologia/colesterol-nuevo-estudio-tratamiento.html
+
+**Nadie entendía su dolor, así que lo llevó a TikTok**\
+`Las cuentas sobre duelo en las redes sociales han convertido a algunas personas en influentes de la pérdida con un gran número de seguidores.`\
+https://www.nytimes.com/es/2026/06/05/espanol/estilos-de-vida/duelo-influencers-tiktok.html
+
+**6 cosas que podrían frenar tu rendimiento cuando corres**\
+`Fisioterapeutas, entrenadores y otros expertos quieren corregir algunas creencias erróneas sobre este deporte.`\
+https://www.nytimes.com/es/2026/06/05/espanol/estilos-de-vida/mitos-running-correr.html
+
+**Backed by Trump, Opposed by Putin, and Fighting for His Political Life**\
+`Prime Minister Nikol Pashinyan of Armenia is seeking re-election as his country weighs questions of war and peace, of autocracy and democracy, and of subjugation and independence.`\
+https://www.nytimes.com/2026/06/05/world/europe/armenia-election-russia.html
+
+**$2.6 Million Homes in Sicily**\
+`A stone house with views of Mount Etna, an 1893 villa with seven bedrooms, and a seaside house in six-bathroom house in Porto Ulisse.`\
+https://www.nytimes.com/2026/06/05/realestate/2-6-million-homes-in-sicily.html
+
+**The New World Screwworm Is Back. Here’s What That Means.**\
+`Here’s why farmers and scientists are concerned over the New World screwworm’s unwelcome return to the United States.`\
+https://www.nytimes.com/2026/06/05/science/new-world-screwworm-explainer.html
+
+**For Jennifer Lopez and Brett Goldstein, Romance Is Everything**\
+`The Bronx-born superstar and the British comedian, who star together in the Netflix comedy “Office Romance,” have more in common than you think.`\
+https://www.nytimes.com/2026/06/05/movies/jennifer-lopez-brett-goldstein-office-romance-interview.html
+
+**MoMA’s ‘Universal Westerns’ Retrospective Shows Why They Matter**\
+`A new MoMA retrospective tracks how Universal Pictures used the western to explore changing American morals.`\
+https://www.nytimes.com/2026/06/05/movies/why-westerns-still-matter.html
+
+**They Shut the Golden Gate Bridge for 4 Hours. Now They Face Up to 15 Years in Prison.**\
+`Activists blocked the iconic span to protest the spending of American tax dollars on Israeli military efforts in Gaza. San Francisco’s prosecutor is now seeking a strict punishment.`\
+https://www.nytimes.com/2026/06/05/us/gaza-protesters-golden-gate-bridge.html
+
+**Does the World Still Misunderstand M.I.A.?**\
+`A winding interview with the pop globalist about her legacy of art and incitement.`\
+https://www.nytimes.com/2026/06/05/arts/music/mia-kid-cudi-tour-interview-popcast.html
+
+**M.I.A. on MAGA, the Kid Cudi Tour & Bipartisan Cancellation**\
+`Watch the full conversation with M.I.A.; edited excerpts from the interview are below.`\
+https://www.nytimes.com/video/podcasts/100000010940871/mia-on-maga-the-kid-cudi-tour-bipartisan-cancellation.html
+
+**The White House’s Latest Provocation Is Way More Than Just a Troll**\
+`What’s the matter, can’t you take a joke?`\
+https://www.nytimes.com/2026/06/05/opinion/aliens-ice-immigration-white-house.html
+
+**The New Right’s Very Old Vision of Men**\
+`The journalist Helen Lewis examines the ancient, angry gender politics of the New Right.`\
+https://www.nytimes.com/2026/06/05/opinion/ezra-klein-podcast-helen-lewis-gender-right.html
+
+**¿Quieres ‘optimizar’ tu felicidad? Esta científica cognitiva dice que no lo hagas**\
+`Laurie Santos, científica cognitiva y profesora de Yale, habla sobre lo que realmente dará sentido y plenitud a tu vida, y lo que no.`\
+https://www.nytimes.com/es/2026/06/05/espanol/cultura/optimizar-felicidad-consejos.html
+
+**For America’s Birthday, a Declaration of Independence Whodunit**\
+`The New York Historical thinks it has identified the anonymous printer behind a rare broadside printing of the Declaration made soon after July 4, 1776.`\
+https://www.nytimes.com/2026/06/05/arts/declaration-independence-loudon-250.html
+
+**It’s No Wonder Grads Are Booing Their Commencement Speakers**\
+`Companies are trying to automate graduates’ futures away. No wonder they’re furious.`\
+https://www.nytimes.com/2026/06/05/opinion/graduation-speakers-ai-college-commencement.html
+
+**9 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://www.nytimes.com/2026/06/05/movies/movie-review-roundup.html
+
+**How Gold Is Driving the Spread of Ebola**\
+`Mining has been the lifeblood of this remote Congolese hill town for decades. Now, it is fueling the spread of a devastating outbreak.`\
+https://www.nytimes.com/2026/06/05/world/africa/congo-ebola-gold-mine.html
+
 **The MAGA Representative Crusading Against Government Secrecy**\
 `Anna Paulina Luna on Epstein, J.F.K. and U.F.O.s.`\
 https://www.nytimes.com/2026/06/05/opinion/anna-paulina-luna-epstein-jfk-ufo-conspiracy.html
