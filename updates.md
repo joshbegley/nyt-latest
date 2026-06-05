@@ -1,3 +1,7 @@
+**Chuck Schumer Privately Backs Haley Stevens in Michigan Democratic Senate Primary**\
+`Chuck Schumer, the Democratic minority leader, has remained officially neutral on the race, but in conservations with donors, he has been clear about which candidate he supports.`\
+https://www.nytimes.com/2026/06/05/us/politics/schumer-michigan-democratic-senate-primary.html
+
 **Leaks on Space Station Lead Astronauts to Seek Shelter in Spacecraft**\
 `Russian astronauts prepared to make repairs on Friday morning, but after an hour and a half, officials decided no urgent action was needed.`\
 https://www.nytimes.com/2026/06/05/science/iss-air-leaks-nasa.html

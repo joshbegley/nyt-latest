@@ -1,3 +1,7 @@
+**Chuck Schumer Privately Backs Haley Stevens in Michigan Democratic Senate Primary**\
+`Chuck Schumer, the Democratic minority leader, has remained officially neutral on the race, but in conservations with donors, he has been clear about which candidate he supports.`\
+https://www.nytimes.com/2026/06/05/us/politics/schumer-michigan-democratic-senate-primary.html
+
 **Leaks on Space Station Lead Astronauts to Seek Shelter in Spacecraft**\
 `Russian astronauts prepared to make repairs on Friday morning, but after an hour and a half, officials decided no urgent action was needed.`\
 https://www.nytimes.com/2026/06/05/science/iss-air-leaks-nasa.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/06/05/movies/jennifer-lopez-brett-goldstein-office-
 **MoMA’s ‘Universal Westerns’ Retrospective Shows Why They Matter**\
 `A new MoMA retrospective tracks how Universal Pictures used the western to explore changing American morals.`\
 https://www.nytimes.com/2026/06/05/movies/why-westerns-still-matter.html
-
-**They Shut the Golden Gate Bridge for 4 Hours. Now They Face Up to 15 Years in Prison.**\
-`Activists blocked the iconic span to protest the spending of American tax dollars on Israeli military efforts in Gaza. San Francisco’s prosecutor is now seeking a strict punishment.`\
-https://www.nytimes.com/2026/06/05/us/gaza-protesters-golden-gate-bridge.html
 
