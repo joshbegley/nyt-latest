@@ -1,3 +1,83 @@
+**On Patrol With Tokyo’s New Litter Police**\
+`Visitor numbers to Shibuya are surging and trash cans are scarce. Enter the city patrol.`\
+https://www.nytimes.com/2026/06/05/world/asia/japan-tokyo-littering-fines.html
+
+**The New York Times News Quiz, June 5, 2026**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://www.nytimes.com/interactive/2026/06/05/briefing/quiz-elections-war-powers-kuwait-spacex.html
+
+**¿Una sola inyección para controlar el colesterol de por vida? Un estudio señala que podría ser posible**\
+`En un pequeño ensayo, la infusión de un fármaco experimental de edición genética pareció reducir el colesterol LDL a largo plazo. De sostenerse, sería un eficaz tratamiento preventivo para las enfermedades cardíacas.`\
+https://www.nytimes.com/es/2026/06/05/espanol/ciencia-y-tecnologia/colesterol-nuevo-estudio-tratamiento.html
+
+**Nadie entendía su dolor, así que lo llevó a TikTok**\
+`Las cuentas sobre duelo en las redes sociales han convertido a algunas personas en influentes de la pérdida con un gran número de seguidores.`\
+https://www.nytimes.com/es/2026/06/05/espanol/estilos-de-vida/duelo-influencers-tiktok.html
+
+**6 cosas que podrían frenar tu rendimiento cuando corres**\
+`Fisioterapeutas, entrenadores y otros expertos quieren corregir algunas creencias erróneas sobre este deporte.`\
+https://www.nytimes.com/es/2026/06/05/espanol/estilos-de-vida/mitos-running-correr.html
+
+**Backed by Trump, Opposed by Putin, and Fighting for His Political Life**\
+`Prime Minister Nikol Pashinyan of Armenia is seeking re-election as his country weighs questions of war and peace, of autocracy and democracy, and of subjugation and independence.`\
+https://www.nytimes.com/2026/06/05/world/europe/armenia-election-russia.html
+
+**$2.6 Million Homes in Sicily**\
+`A stone house with views of Mount Etna, an 1893 villa with seven bedrooms, and a seaside house in six-bathroom house in Porto Ulisse.`\
+https://www.nytimes.com/2026/06/05/realestate/2-6-million-homes-in-sicily.html
+
+**The New World Screwworm Is Back. Here’s What That Means.**\
+`Here’s why farmers and scientists are concerned over the New World screwworm’s unwelcome return to the United States.`\
+https://www.nytimes.com/2026/06/05/science/new-world-screwworm-explainer.html
+
+**For Jennifer Lopez and Brett Goldstein, Romance Is Everything**\
+`The Bronx-born superstar and the British comedian, who star together in the Netflix comedy “Office Romance,” have more in common than you think.`\
+https://www.nytimes.com/2026/06/05/movies/jennifer-lopez-brett-goldstein-office-romance-interview.html
+
+**MoMA’s ‘Universal Westerns’ Retrospective Shows Why They Matter**\
+`A new MoMA retrospective tracks how Universal Pictures used the western to explore changing American morals.`\
+https://www.nytimes.com/2026/06/05/movies/why-westerns-still-matter.html
+
+**They Shut the Golden Gate Bridge for 4 Hours. Now They Face Up to 15 Years in Prison.**\
+`Activists blocked the iconic span to protest the spending of American tax dollars on Israeli military efforts in Gaza. San Francisco’s prosecutor is now seeking a strict punishment.`\
+https://www.nytimes.com/2026/06/05/us/gaza-protesters-golden-gate-bridge.html
+
+**Does the World Still Misunderstand M.I.A.?**\
+`A winding interview with the pop globalist about her legacy of art and incitement.`\
+https://www.nytimes.com/2026/06/05/arts/music/mia-kid-cudi-tour-interview-popcast.html
+
+**M.I.A. on MAGA, the Kid Cudi Tour & Bipartisan Cancellation**\
+`Watch the full conversation with M.I.A.; edited excerpts from the interview are below.`\
+https://www.nytimes.com/video/podcasts/100000010940871/mia-on-maga-the-kid-cudi-tour-bipartisan-cancellation.html
+
+**The White House’s Latest Provocation Is Way More Than Just a Troll**\
+`What’s the matter, can’t you take a joke?`\
+https://www.nytimes.com/2026/06/05/opinion/aliens-ice-immigration-white-house.html
+
+**The New Right’s Very Old Vision of Men**\
+`The journalist Helen Lewis examines the ancient, angry gender politics of the New Right.`\
+https://www.nytimes.com/2026/06/05/opinion/ezra-klein-podcast-helen-lewis-gender-right.html
+
+**¿Quieres ‘optimizar’ tu felicidad? Esta científica cognitiva dice que no lo hagas**\
+`Laurie Santos, científica cognitiva y profesora de Yale, habla sobre lo que realmente dará sentido y plenitud a tu vida, y lo que no.`\
+https://www.nytimes.com/es/2026/06/05/espanol/cultura/optimizar-felicidad-consejos.html
+
+**For America’s Birthday, a Declaration of Independence Whodunit**\
+`The New York Historical thinks it has identified the anonymous printer behind a rare broadside printing of the Declaration made soon after July 4, 1776.`\
+https://www.nytimes.com/2026/06/05/arts/declaration-independence-loudon-250.html
+
+**It’s No Wonder Grads Are Booing Their Commencement Speakers**\
+`Companies are trying to automate graduates’ futures away. No wonder they’re furious.`\
+https://www.nytimes.com/2026/06/05/opinion/graduation-speakers-ai-college-commencement.html
+
+**9 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://www.nytimes.com/2026/06/05/movies/movie-review-roundup.html
+
+**How Gold Is Driving the Spread of Ebola**\
+`Mining has been the lifeblood of this remote Congolese hill town for decades. Now, it is fueling the spread of a devastating outbreak.`\
+https://www.nytimes.com/2026/06/05/world/africa/congo-ebola-gold-mine.html
+
 **The MAGA Representative Crusading Against Government Secrecy**\
 `Anna Paulina Luna on Epstein, J.F.K. and U.F.O.s.`\
 https://www.nytimes.com/2026/06/05/opinion/anna-paulina-luna-epstein-jfk-ufo-conspiracy.html
@@ -117,84 +197,4 @@ https://www.nytimes.com/2026/06/05/books/review/man-who-stole-the-gods-matthew-c
 **Book Review: ‘Villa Coco,’ by Andrew Sean Greer**\
 `Following his “Less” books with “Villa Coco,” Andrew Sean Greer drops an aimless postgraduate into a glamorous, romantic and secret-laden setting.`\
 https://www.nytimes.com/2026/06/05/books/review/villa-coco-andrew-sean-greer.html
-
-**‘The Story of Ferdinand,’ by Munro Leaf and Robert Lawson, Turns 90**\
-`As the gentle giant who just wanted to live his best life turns 90, Munro Leaf and Robert Lawson’s classic fable is as apt as ever.`\
-https://www.nytimes.com/2026/06/05/books/review/ferdinand-the-bull-90th-anniversary-childrens-essay.html
-
-**When Jeffrey Epstein Needed Favors, This Restaurant Mogul Was There**\
-`Stephen Hanson, whose empire included Blue Water Grill and Ruby Foo’s, performed an array of tasks, including arranging jobs, visas and entertainment for women.`\
-https://www.nytimes.com/2026/06/05/dining/jeffrey-epstein-stephen-hanson.html
-
-**We’ve Got Stars for Border Town, Barker and More**\
-`Our latest batch of reviews includes a Norteño-style burritos spot in Greenpoint, a daytime cafe in Bed-Stuy and a versatile Chinese restaurant in Prospect Heights`\
-https://www.nytimes.com/2026/06/05/dining/restaurant-reviews-border-town-barker.html
-
-**The Fastest Woman to Circle the Earth on a Bike Is Aiming for the Men’s Record**\
-`Lael Wilcox will pedal around the world, and she hopes to do it in less than 80 days.`\
-https://www.nytimes.com/2026/06/05/sports/cycling/bicycle-world-record-lael-wilcox-cycling.html
-
-**Several Republicans Break With Trump to Pass Ukraine Aid Bill**\
-`Eighteen Republican lawmakers joined Democrats on Thursday to pass a bill that would provide new aid to Ukraine, clashing with President Trump’s foreign policy agenda.`\
-https://www.nytimes.com/video/us/politics/100000010946594/house-republicans-ukraine-aid.html
-
-**Pommelien Thijs, la estrella pop amada por la mitad de Bélgica**\
-`Las pegadizas canciones de Thijs son adoradas en Bélgica, al menos en la parte neerlandesa.`\
-https://www.nytimes.com/es/2026/06/05/espanol/cultura/pommelien-thijs-pop-belgica.html
-
-**Late Night Sizes Up Trump’s Reflecting-Pool Ambitions**\
-`“One thing we know for sure is that Trump is definitely obsessed with size,” Seth Meyers said of the president’s bragging about the Lincoln Memorial Reflecting Pool.`\
-https://www.nytimes.com/2026/06/05/arts/television/late-night-trump-lincoln-memorial-reflecting-pool.html
-
-**El último techo de paja**\
-`Dentro de la minúscula comunidad de maestros techadores ingleses, se desarrolla una lucha por una tradición que podría no sobrevivir.`\
-https://www.nytimes.com/es/2026/06/05/espanol/mundo/techo-paja-inglaterra-gales.html
-
-**Las granjas en EE. UU. dependen más que nunca de un problemático programa de visas**\
-`El gobierno de Trump está permitiendo la entrada de más trabajadores agrícolas invitados bajo el programa H-2A, pero evitar los abusos resulta difícil.`\
-https://www.nytimes.com/es/2026/06/05/espanol/negocios/visados-trabajo-granjas-estados-unidos.html
-
-**Qué significa ‘pulchritude’**\
-`Esta palabra ha aparecido en tres artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
-https://www.nytimes.com/es/2026/06/05/espanol/que-significa-pulchritude.html
-
-**Why Harlem May Be the Deciding Factor in a Critical House Race**\
-`Representative Adriano Espaillat and his progressive challenger, Darializa Avila Chevalier, have zeroed in on Harlem, traditionally hostile turf for the Democratic incumbent.`\
-https://www.nytimes.com/2026/06/05/nyregion/espaillat-avila-chevalier-primary.html
-
-**‘Out of Control’: When Troopers and Protesters Clash, Questions Follow**\
-`Gov. Mikie Sherrill had hoped that replacing federal agents with the state police would bring peace. It didn’t work out that way.`\
-https://www.nytimes.com/2026/06/05/nyregion/delaney-hall-police-protesters-sherrill.html
-
-**Driven From Lenapehoking, They Hope to Return to New York**\
-`The Lenape were forced out of their ancestral lands centuries ago. Now in Oklahoma, their descendants feel the pull of homeland in the east.`\
-https://www.nytimes.com/2026/06/05/nyregion/driven-from-lenapehoking-they-hope-to-return-to-new-york.html
-
-**NYT Spelling Bee Answers for June 5, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/06/05/crosswords/spelling-bee-forum.html
-
-**‘Mexico 86’ Review: This Underdog Has Bags of Cash**\
-`Diego Luna plays an ambitious soccer enthusiast who is trying to secure the World Cup for Mexico a second time.`\
-https://www.nytimes.com/2026/06/05/movies/mexico-86-review.html
-
-**2026 Tony Awards Predictions: Who Will Win?**\
-`Expect wins for the musical “Schmigadoon!” and the play “Liberation,” and for the “Ragtime” stars Joshua Henry and Caissie Levy.`\
-https://www.nytimes.com/2026/06/05/theater/tony-awards-2026-predictions.html
-
-**Word of the Day: pulchritude**\
-`This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/06/05/learning/word-of-the-day-pulchritude.html
-
-**China Builds an Economic Fortress as Global Tensions Rise**\
-`Beijing says the changes are needed for national security, but they could complicate efforts by Chinese companies to find growth overseas.`\
-https://www.nytimes.com/2026/06/05/business/china-investment-rules.html
-
-**Trump Wants Results Against Crime in Mexico. Can Sheinbaum Deliver?**\
-`Trump wants results against organized crime. Can Mexico’s president deliver?`\
-https://www.nytimes.com/2026/06/05/opinion/mexico-sheinbaum-cartels-corruption.html
-
-**The Priests Revered in the Land of Five Genders**\
-`The bissus of South Sulawesi are considered a link between the earthly and celestial because they are thought to embody both male and female traits.`\
-https://www.nytimes.com/2026/06/05/world/asia/transgender-priests-sulawesi-bissu-bugis.html
 

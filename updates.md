@@ -1,3 +1,67 @@
+**The MAGA Representative Crusading Against Government Secrecy**\
+`Anna Paulina Luna on Epstein, J.F.K. and U.F.O.s.`\
+https://www.nytimes.com/2026/06/05/opinion/anna-paulina-luna-epstein-jfk-ufo-conspiracy.html
+
+**The New Right’s Very Old Vision of Men**\
+`The journalist Helen Lewis examines the ancient, angry gender politics of the New Right.`\
+https://www.nytimes.com/video/opinion/100000010940546/the-new-rights-very-old-vision-of-men.html
+
+**Who Should Win a Tony? Vote for Your Favorites.**\
+`Broadway’s biggest night is almost here, and we’re asking readers to weigh in on eight categories.`\
+https://www.nytimes.com/interactive/2026/06/05/theater/tonys-reader-voting.html
+
+**A Summer Book Recommendation Bonanza**\
+`From doppelgängers to dark academia, the Book Review editors share some of their most-anticipated titles.`\
+https://www.nytimes.com/2026/06/05/podcasts/tbr-summer-books-roundup.html
+
+**Appeals Court Panel to Hear Arguments Over Trump’s Ballroom**\
+`A three-judge panel will consider whether a lower court erred in ordering construction stopped until President Trump secured the support of Congress.`\
+https://www.nytimes.com/2026/06/05/us/politics/appeals-court-trump-ballroom.html
+
+**Russia Floods Armenia With Disinformation Ahead of Election**\
+`Fearing a loss of influence, groups linked to the Kremlin and intelligence agencies have sought to discredit the country’s prime minister.`\
+https://www.nytimes.com/2026/06/05/world/europe/armenia-election-russia-disinformation.html
+
+**The Lasting Cost of Graduating Into a Tough Job Market**\
+`Sydney Ember, a Times business reporter, has been speaking with recent college graduates struggling to find work. She explains how starting a career in a weak job market can leave lasting scars on wages and opportunities.`\
+https://www.nytimes.com/video/business/100000010938226/the-lasting-cost-of-graduating-into-a-tough-job-market.html
+
+**5 Children’s Movies to Stream Now**\
+`This month’s picks include two choices for young sports fans and a summer blockbuster.`\
+https://www.nytimes.com/2026/06/05/movies/kids-movies-streaming-now.html
+
+**A Murdoch Builds His Own Media Empire. Is This ‘Succession’ or Secession?**\
+`James Murdoch says acquiring New York magazine and Vox has nothing to do with his father. But in some ways, it’s a tribute.`\
+https://www.nytimes.com/2026/06/05/magazine/james-murdoch-vox-new-york-magazine.html
+
+**Many Trump Voters Are Unhappy With Handling of Iran, Economy and More Issues**\
+`The president’s base is thought to be unmovable. But one-third of these voters say they are unhappy about certain issues and are not knee-jerk loyalists.`\
+https://www.nytimes.com/2026/06/05/us/politics/trump-voters-iran-economy.html
+
+**To Sell Trucks, Break Out the Cowboys and Wrap Them in Old Glory**\
+`Americans — especially American men — love trucks, and high gas prices aren’t swaying automakers. Ram has a new line of fuel-guzzling muscle trucks, and some in-your-face ads to sell them.`\
+https://www.nytimes.com/2026/06/05/business/pickup-trucks-ads-ram-rumble-bee.html
+
+**Getting Ready for the Next Big Game at the Garden**\
+`The N.B.A. finals return to Madison Square Garden on Monday. Some high-profile guests are expected.`\
+https://www.nytimes.com/2026/06/05/nyregion/getting-ready-for-the-next-big-game-at-the-garden.html
+
+**Can I Force My Spouse to Do Karaoke?**\
+`A ruling on a duet-related dispute.`\
+https://www.nytimes.com/interactive/2026/06/05/magazine/muppet-karaoke-hodgman-quiz.html
+
+**The Betrayal of Black Voters Threatens Our Democracy**\
+`The sweeping effort to dismantle Black-majority congressional districts in the South will have far-reaching consequences for all Americans, and for our democracy.`\
+https://www.nytimes.com/2026/06/05/opinion/voting-rights-act-black-voters-south.html
+
+**U.S. Amputee World Cup Contenders Are Fierce on Crutches**\
+`With the Amputee Football World Cup nearing, an elite squad of athletes gathered on Long Island to vie for a spot on the national men’s team, displaying skill and grit.`\
+https://www.nytimes.com/2026/06/05/sports/soccer/amputee-world-cup-national-team.html
+
+**The MAGA Representative Crusading Against Government Secrecy**\
+`Anna Paulina Luna on Epstein, J.F.K. and U.F.O.s.`\
+https://www.nytimes.com/video/opinion/100000010933515/the-maga-representative-crusading-against-government-secrecy.html
+
 **Crowded Airport Lounges Are Rolling Out Grab-and-Go Options**\
 `New premium pit stops are giving fliers a place for a quick bite and drink without having to line up for increasingly crowded traditional lounges.`\
 https://www.nytimes.com/2026/06/05/travel/airport-lounges-grab-and-go.html
