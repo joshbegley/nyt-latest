@@ -64,7 +64,7 @@ https://www.nytimes.com/2026/06/05/pageoneplus/quote-of-the-day-ireland-seen-as-
 
 **Russia Rails Against the West but Welcomes Candace Owens and Andrew Tate**\
 `While some powerful Russians shun the West, others want to restore ties and embrace friendly Westerners. President Vladimir V. Putin’s annual economic conference illustrates the conflicting impulses.`\
-https://www.nytimes.com/2026/06/05/world/europe/st-petersburg-forum-candace-owens.html
+https://www.nytimes.com/2026/06/05/world/europe/russia-st-petersburg-forum-candace-owens.html
 
 **A Rainy Japanese Rock Festival Proved They Could Weather Anything**\
 `Ana Escalante and Robert Lucas didn’t especially like each other through most of high school, but a coffee date their senior year changed all that.`\

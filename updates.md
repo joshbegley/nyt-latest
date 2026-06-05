@@ -1,3 +1,7 @@
+**Russia Rails Against the West but Welcomes Candace Owens and Andrew Tate**\
+`While some powerful Russians shun the West, others want to restore ties and embrace friendly Westerners. President Vladimir V. Putin’s annual economic conference illustrates the conflicting impulses.`\
+https://www.nytimes.com/2026/06/05/world/europe/russia-st-petersburg-forum-candace-owens.html
+
 **El último techo de paja**\
 `Dentro de la minúscula comunidad de maestros techadores ingleses, se desarrolla una lucha por una tradición que podría no sobrevivir.`\
 https://www.nytimes.com/es/2026/06/05/espanol/mundo/techo-paja-inglaterra-gales.html
