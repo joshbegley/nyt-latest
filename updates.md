@@ -1,3 +1,31 @@
+**A Rainy Japanese Rock Festival Proved They Could Weather Anything**\
+`Ana Escalante and Robert Lucas didn’t especially like each other through most of high school, but a coffee date their senior year changed all that.`\
+https://www.nytimes.com/2026/06/05/style/ana-escalante-robert-lucas-wedding.html
+
+**Corrections: June 5, 2026**\
+`Corrections that appeared in print on Friday, June 5, 2026.`\
+https://www.nytimes.com/2026/06/05/pageoneplus/corrections-june-5-2026.html
+
+**He’s Famous for His Mukbangs. But They Met the Old-Fashioned Way.**\
+`Tommy Winkler, a TikToker known as “The Food Guy,” threw pebbles at Jess Pappas’s window when they were college students with Covid.`\
+https://www.nytimes.com/2026/06/05/style/jess-pappas-tommy-winkler-wedding.html
+
+**In a Relationship Between Two Puppeteers, Both Pull the Strings**\
+`Marta MacRostie and Jonathan Levin ran in the same circles, but it took a solar eclipse to bring them together.`\
+https://www.nytimes.com/2026/06/05/style/marta-macrostie-jonathan-levin-wedding.html
+
+**A Wedding With ‘a Housewife in Attendance’ (Sort of)**\
+`Scott Winston and Nicholas Hunt, who share a love for reality TV and karaoke, spent their whole first date laughing.`\
+https://www.nytimes.com/2026/06/05/style/scott-winston-nicholas-hunt-wedding.html
+
+**Quil Lemons, the Photographer, Marries Stylist Parker Harwood**\
+`After getting into a car accident shortly after meeting, the photographer Quil Lemons made one call: to ask Parker Harwood, a stylist, on a date.`\
+https://www.nytimes.com/2026/06/05/style/quil-lemons-parker-harwood-wedding.html
+
+**I Couldn’t Tell Him Why We Had to Break Up**\
+`When my young cousin’s girlfriend cheated on him, I wrestled with ghosts of my own.`\
+https://www.nytimes.com/2026/06/05/style/modern-love-infidelity-couldnt-tell-him-why-we-had-to-break-up.html
+
 **Raman Gains on Pratt in L.A. Mayor Race But Many Ballots Remain**\
 `Nithya Raman’s vote count still remains well behind Spencer Pratt’s, but hundreds of thousands of ballots remain to be counted in Los Angeles over the next few weeks.`\
 https://www.nytimes.com/2026/06/04/us/elections/raman-pratt-los-angeles-mayor.html
