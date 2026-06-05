@@ -1,9 +1,13 @@
+**U.S. Forest Service to Open Millions of Acres to Off-Road Vehicles**\
+`The forthcoming order echoes President Trump’s decision to repeal executive orders that have protected other public lands from vehicles for decades.`\
+https://www.nytimes.com/2026/06/05/climate/national-forests-off-road-vehicles-public-lands-trump.html
+
 **Formula 1: The Second Life of Racecars**\
 `After their racing days are over, they are used in testing, events and as show cars. Some even end up in private hands.`\
 https://www.nytimes.com/2026/06/05/sports/f1-cars-museums.html
 
 **Before French Open Finals, They’ll Serve Up a Dance**\
-`The choreographer Benjamin Millepied had an usual brief: To create two short works for the championship matches at Roland Garros.`\
+`The choreographer Benjamin Millepied had an unusual brief: To create two short works for the championship matches at Roland Garros.`\
 https://www.nytimes.com/2026/06/05/arts/dance/roland-garros-french-open-benjamin-millepied.html
 
 **A Divide Over U.S. Support for Israel**\
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/06/05/podcasts/the-headlines/the-headlines-news-qui
 **Onstage and Off**\
 `The Tony Awards are this weekend. We explore what the ceremony is all about.`\
 https://www.nytimes.com/2026/06/05/briefing/tonys-broadway-theater.html
-
-**How Ebola Spreads Through Gold Mining**\
-`Our chief Africa correspondent, Declan Walsh, reports from the epicenter of the Ebola outbreak on how the gold mining industry and the outbreak are linked.`\
-https://www.nytimes.com/video/world/africa/100000010936243/how-ebola-spreads-through-gold-mining.html
 
 **Employers Added a Robust 172,000 Jobs in May**\
 `Unemployment remained steady at 4.3 percent.`\
