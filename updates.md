@@ -1,3 +1,7 @@
+**First U.S. Screwworm Case Since 1960s Prompts Texas Emergency Response**\
+`After a screwworm infestation was confirmed in a South Texas calf, officials launched an aggressive effort to prevent the parasite from spreading in the nation’s largest cattle-producing state.`\
+https://www.nytimes.com/2026/06/05/us/texas-screwworm-first-us-case-emergency-response-abbott.html
+
 **A Sherpa Survived 6 Days Alone on Everest. His Family Says He Was Abandoned.**\
 `Dawa Sherpa, 57, was found alive on Thursday, nearly a week after he was last seen on the mountain. His wife says more could have been done to find him sooner.`\
 https://www.nytimes.com/2026/06/05/world/asia/missing-sherpa-mount-everest-found.html

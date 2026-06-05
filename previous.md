@@ -1,3 +1,7 @@
+**First U.S. Screwworm Case Since 1960s Prompts Texas Emergency Response**\
+`After a screwworm infestation was confirmed in a South Texas calf, officials launched an aggressive effort to prevent the parasite from spreading in the nation’s largest cattle-producing state.`\
+https://www.nytimes.com/2026/06/05/us/texas-screwworm-first-us-case-emergency-response-abbott.html
+
 **A Sherpa Survived 6 Days Alone on Everest. His Family Says He Was Abandoned.**\
 `Dawa Sherpa, 57, was found alive on Thursday, nearly a week after he was last seen on the mountain. His wife says more could have been done to find him sooner.`\
 https://www.nytimes.com/2026/06/05/world/asia/missing-sherpa-mount-everest-found.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/06/05/upshot/democrats-senate-midterms-analysis.htm
 **Spelman College Names Ayanna Howard, an A.I. Expert, as President**\
 `The appointment of Ayanna Howard, a roboticist, was a departure for the top-ranked H.B.C.U., which has a liberal arts focus.`\
 https://www.nytimes.com/2026/06/05/us/spelman-college-president-ayanna-howard.html
-
-**Muere James Handy, actor de ‘Top Gun: Maverick’**\
-`El actor, de 81 años, había participado en películas como “Top Gun: Maverick” y “Aracnofobia”. El hijo de su novia fue detenido y acusado de asesinato.`\
-https://www.nytimes.com/es/2026/06/05/espanol/james-handy-muere-apunalado.html
 
 **Employers Added a Robust 172,000 Jobs in May**\
 `Unemployment remained steady at 4.3 percent.`\
