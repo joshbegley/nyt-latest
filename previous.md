@@ -1,3 +1,7 @@
+**TK**\
+`TK`\
+https://static01.nyt.com/slideshow/2026/06/05/t-magazine/tk.html
+
 **How the Richest Owner in Sports Covered His Tracks**\
 `The latest chapter in Pablo’s Kawhi-Gate investigation.`\
 https://www.nytimes.com/2026/06/05/podcasts/how-the-richest-owner-in-sports-covered-his-tracks.html
@@ -19,7 +23,7 @@ https://www.nytimes.com/2026/06/05/world/asia/missing-sherpa-mount-everest-found
 https://www.nytimes.com/2026/06/05/world/europe/france-israel-flotilla-activists.html
 
 **Stocks Slide as Investors See Rates Rising After Strong Jobs Data**\
-`The S&P 500 fell more than 2 percent on Friday, on course for its worst one-day drop of the year and ending nine weeks of gains.`\
+`The S&P 500 fell more than 2.6 percent on Friday, its worst one-day drop of the year and ending nine weeks of gains.`\
 https://www.nytimes.com/2026/06/05/business/stock-market-jobs-report.html
 
 **Taylor Swift and Travis Kelce’s Wedding: Try Our Fantasy Wedding Planner**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/05/world/europe/russia-satellites-gps-interferen
 **Why the SpaceX IPO Will Affect Your 401(k), Like It or Not**\
 `Elon Musk’s rocket company, on the cusp of the largest initial public offering ever, will soon end up in index funds after rule changes by Nasdaq and other index providers.`\
 https://www.nytimes.com/2026/06/05/technology/spacex-indexes-401k.html
-
-**What Are Democrats’ Best Senate Pickup Opportunities?**\
-`We’ve grouped six battleground states by some of the factors that shape how likely it is for the party to flip each Senate seat.`\
-https://www.nytimes.com/2026/06/05/upshot/democrats-senate-midterms-analysis.html
 
 **Employers Added a Robust 172,000 Jobs in May**\
 `Unemployment remained steady at 4.3 percent.`\

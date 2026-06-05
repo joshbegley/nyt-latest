@@ -1,3 +1,11 @@
+**TK**\
+`TK`\
+https://static01.nyt.com/slideshow/2026/06/05/t-magazine/tk.html
+
+**Stocks Slide as Investors See Rates Rising After Strong Jobs Data**\
+`The S&P 500 fell more than 2.6 percent on Friday, its worst one-day drop of the year and ending nine weeks of gains.`\
+https://www.nytimes.com/2026/06/05/business/stock-market-jobs-report.html
+
 **How the Richest Owner in Sports Covered His Tracks**\
 `The latest chapter in Pablo’s Kawhi-Gate investigation.`\
 https://www.nytimes.com/2026/06/05/podcasts/how-the-richest-owner-in-sports-covered-his-tracks.html
