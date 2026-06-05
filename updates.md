@@ -1,3 +1,7 @@
+**Hopes of Lebanon Cease-fire Falter as Israel and Hezbollah Fight**\
+`The U.S.-brokered agreement requires Hezbollah, which Iran backs, to stop firing first. But the group, not party to the talks, rejected the conditions as a virtual surrender.`\
+https://www.nytimes.com/2026/06/05/world/middleeast/lebanon-cease-fire-israel-hezbollah.html
+
 **‘The Headlines’ News Quiz: Jun. 5, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/06/05/podcasts/the-headlines/the-headlines-news-quiz-jun-5-2026.html
