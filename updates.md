@@ -1,3 +1,15 @@
+**Amid Graham Platner Controversy, Where Does the Maine Senate Race Go Next?**\
+`New revelations about Graham Platner have left Democrats anxious.`\
+https://www.nytimes.com/2026/06/05/us/politics/maine-senate-graham-platner-democrats.html
+
+**ANWR Oil Draws Few Bids, Despite Trump’s Push for ‘Liquid Gold’**\
+`An auction to drill in the Arctic National Wildlife Refuge ended with just 10 percent of the available land claimed for oil development.`\
+https://www.nytimes.com/2026/06/05/climate/anwr-lease-sale-alaska.html
+
+**Council Speaker Urged to Act After Member’s Anti-Muslim Post**\
+`Interfaith leaders said the lack of response by City Council Speaker Julie Menin to anti-Muslim statements made by Councilwoman Inna Vernikov called the city’s commitment to protecting Muslims into question.`\
+https://www.nytimes.com/2026/06/05/nyregion/inna-vernikov-julie-menin-muslim.html
+
 **Judge Strikes Down a Slate of Trump’s Immigration Policies**\
 `Also, job growth is looking healthier. Here’s the latest at the end of Friday.`\
 https://www.nytimes.com/2026/06/05/briefing/judge-trump-immigration-policies.html

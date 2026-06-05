@@ -1,3 +1,11 @@
+**Amid Graham Platner Controversy, Where Does the Maine Senate Race Go Next?**\
+`New revelations about Graham Platner have left Democrats anxious.`\
+https://www.nytimes.com/2026/06/05/us/politics/maine-senate-graham-platner-democrats.html
+
+**ANWR Oil Draws Few Bids, Despite Trump’s Push for ‘Liquid Gold’**\
+`An auction to drill in the Arctic National Wildlife Refuge ended with just 10 percent of the available land claimed for oil development.`\
+https://www.nytimes.com/2026/06/05/climate/anwr-lease-sale-alaska.html
+
 **Judge Strikes Down a Slate of Trump’s Immigration Policies**\
 `Also, job growth is looking healthier. Here’s the latest at the end of Friday.`\
 https://www.nytimes.com/2026/06/05/briefing/judge-trump-immigration-policies.html
@@ -7,7 +15,7 @@ https://www.nytimes.com/2026/06/05/briefing/judge-trump-immigration-policies.htm
 https://www.nytimes.com/video/world/asia/100000010945549/mount-everest-sherpa-found-alive.html
 
 **Council Speaker Urged to Act After Member’s Anti-Muslim Post**\
-`A group of interfaith leaders said the lack of response by City Council Speaker Julie Menin to anti-Muslim statements made by Councilwoman Inna Vernikov called the city’s commitment to protecting Muslims into question.`\
+`Interfaith leaders said the lack of response by City Council Speaker Julie Menin to anti-Muslim statements made by Councilwoman Inna Vernikov called the city’s commitment to protecting Muslims into question.`\
 https://www.nytimes.com/2026/06/05/nyregion/inna-vernikov-julie-menin-muslim.html
 
 **Police Remove Diabetes Experts From Conference for Distributing Critique of Trump Administration**\
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/06/05/dining/craft-restaurant-closing-tom-colicchio
 **Hermès Brings Parisian Flair to Bel Air**\
 `The French fashion house stages its first women’s show in Los Angeles, with a lot of leather and some West Coast glam.`\
 https://www.nytimes.com/2026/06/05/style/hermes-show-los-angeles.html
-
-**Central Ohio Becomes Hub for Tech and Manufacturing**\
-`Tech titans and Silicon Valley transplants changed the Columbus area, but not everyone is thrilled about the rapid transformation.`\
-https://www.nytimes.com/2026/06/05/business/ohio-tech-manufacturing-hub.html
-
-**Today, In Short**\
-`Touching grass. Pets. And the latest from the French Open.`\
-https://www.nytimes.com/2026/06/05/briefing/today-in-short.html
 
 **Employers Added a Robust 172,000 Jobs in May**\
 `Unemployment remained steady at 4.3 percent.`\
