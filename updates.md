@@ -1,3 +1,11 @@
+**El Senado de EE. UU. aprueba un proyecto de ley de inmigración republicano**\
+`La aprobación de la financiación por 70.000 millones de dólares para medidas migratorias fue una victoria para el presidente Trump y su partido, aunque el debate puso de manifiesto las fisuras entre él y los senadores republicanos.`\
+https://www.nytimes.com/es/2026/06/05/espanol/estados-unidos/proyecto-de-ley-inmigracion-republicano.html
+
+**Newark Mayor to Scale Back Police Presence at Delaney Hall ICE Detention Center**\
+`The mayor, Ras Baraka, said the city would not spend taxpayers’ money to safeguard Delaney Hall, an immigration detention center in Newark run by a private prison company.`\
+https://www.nytimes.com/2026/06/05/nyregion/delaney-hall-police-baraka.html
+
 **Newark Mayor to Scale Back Police Presence at ICE Detention Center**\
 `The mayor, Ras Baraka, said the city would not spend taxpayers’ money to safeguard Delaney Hall, an immigration detention center in Newark run by a private prison company.`\
 https://www.nytimes.com/2026/06/05/nyregion/delaney-hall-police-baraka.html
