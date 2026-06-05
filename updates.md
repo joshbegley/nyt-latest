@@ -1,3 +1,15 @@
+**How Trump’s Proposed Arch Could Complicate D.C.’s Congested Airspace**\
+`The mammoth arch would sit directly in the paths of flights in and out of Reagan National Airport.`\
+https://www.nytimes.com/interactive/2026/06/04/us/trump-arch-dc-airspace.html
+
+**In a First, Scientists Precisely Edit Human Embryo Genes**\
+`Researchers relied on a newer gene-editing technique that may make it possible to engineer embryos, a prospect that has long alarmed bioethicists.`\
+https://www.nytimes.com/2026/06/04/science/embryos-gene-editing-crispr.html
+
+**Hezbollah Rejects Cease-Fire Deal Between Lebanon and Israel**\
+`Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, said a truce worked out between Israel and the Lebanese government amounted to surrender for his group.`\
+https://www.nytimes.com/live/2026/06/04/world/iran-war-trump-israel-lebanon
+
 **Zelensky Mixes Taunts and Peace Talks Offer in Letter to Putin**\
 `“After 26 years in power, age is beginning to take its toll,” President Volodymyr Zelensky of Ukraine wrote of his Russian counterpart, bragging of a recent strike on St. Petersburg.`\
 https://www.nytimes.com/2026/06/04/world/europe/zelensky-putin-letter.html

@@ -1,3 +1,11 @@
+**How Trump’s Proposed Arch Could Complicate D.C.’s Congested Airspace**\
+`The mammoth arch would sit directly in the paths of flights in and out of Reagan National Airport.`\
+https://www.nytimes.com/interactive/2026/06/04/us/trump-arch-dc-airspace.html
+
+**In a First, Scientists Precisely Edit Human Embryo Genes**\
+`Researchers relied on a newer gene-editing technique that may make it possible to engineer embryos, a prospect that has long alarmed bioethicists.`\
+https://www.nytimes.com/2026/06/04/science/embryos-gene-editing-crispr.html
+
 **Zelensky Mixes Taunts and Peace Talks Offer in Letter to Putin**\
 `“After 26 years in power, age is beginning to take its toll,” President Volodymyr Zelensky of Ukraine wrote of his Russian counterpart, bragging of a recent strike on St. Petersburg.`\
 https://www.nytimes.com/2026/06/04/world/europe/zelensky-putin-letter.html
@@ -186,15 +194,7 @@ https://www.nytimes.com/2026/06/04/us/university-texas-austin-cesar-chavez-statu
 `Readers respond to an investigation into autism clinics accused of overcharging for a therapeutic method some say is harmful to children. Also: Weight-loss drugs for children.`\
 https://www.nytimes.com/2026/06/04/opinion/children-autism-profits.html
 
-**Supreme Court Finds S.E.C. Can Strip Wrongdoers of Illegal Financial Gains, Even Without Proof of Victim Loss**\
-`The justices unanimously sided with the independent financial watchdog, finding that the agency could collect ill-gotten money, even if it could not show victims had suffered financial loss.`\
-https://www.nytimes.com/2026/06/04/us/politics/supreme-court-sec-disgorgement.html
-
-**Mistrust Spreads With the Ebola Virus in Congo**\
-`In a remote mining town at the center of the Democratic Republic of Congo’s Ebola outbreak, grief and mistrust are complicating efforts to stop the virus. Health workers are trying to treat the ill and bury the dead, but some residents are still in denial that the disease is even real.`\
-https://www.nytimes.com/video/world/africa/100000010942478/ebola-congo-mistrust-grief.html
-
-**Mideast Live Updates: Hezbollah Rejects Cease-Fire Deal Between Lebanon and Israel**\
+**Hezbollah Rejects Cease-Fire Deal Between Lebanon and Israel**\
 `Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, said a truce worked out between Israel and the Lebanese government amounted to surrender for his group.`\
 https://www.nytimes.com/live/2026/06/04/world/iran-war-trump-israel-lebanon
 
