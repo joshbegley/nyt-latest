@@ -36,7 +36,7 @@ https://www.nytimes.com/2026/06/05/learning/summer-reading-contest-week-1-what-g
 
 **More Renters Are Using Tools to Skip Security Deposits, but There’s a Catch**\
 `Third-party services charge fees to help renters bypass some upfront costs of signing a lease. Unlike traditional deposits, the money won’t be returned to tenants.`\
-https://www.nytimes.com/2026/06/05/your-money/more-renters-are-using-tools-to-skip-security-deposits-but-theres-a-catch.html
+https://www.nytimes.com/2026/06/05/your-money/renting-security-deposit-alternatives.html
 
 **James Handy, Actor in ‘Top Gun: Maverick,’ Is Found Stabbed to Death**\
 `The 81-year-old actor had parts in films including “Top Gun: Maverick” and “Arachnophobia.” The son of his girlfriend was arrested and charged with murder.`\
