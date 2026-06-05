@@ -1,3 +1,19 @@
+**Judge Strikes Down a Slate of Trump’s Immigration Policies**\
+`Also, job growth is looking healthier. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/06/05/briefing/judge-trump-immigration-policies.html
+
+**Mount Everest Guide Missing for 6 Days Is Found Alive**\
+`Dawa Sherpa, a Mount Everest guide, was found alive on Thursday, six days after he went missing.`\
+https://www.nytimes.com/video/world/asia/100000010945549/mount-everest-sherpa-found-alive.html
+
+**Council Speaker Urged to Act After Member’s Anti-Muslim Post**\
+`A group of interfaith leaders said the lack of response by City Council Speaker Julie Menin to anti-Muslim statements made by Councilwoman Inna Vernikov called the city’s commitment to protecting Muslims into question.`\
+https://www.nytimes.com/2026/06/05/nyregion/inna-vernikov-julie-menin-muslim.html
+
+**Police Remove Diabetes Experts From Conference for Distributing Critique of Trump Administration**\
+`Several of those escorted out were scheduled to present at the American Diabetes Association conference this weekend.`\
+https://www.nytimes.com/2026/06/05/well/ada-conference-diabetes-trump.html
+
 **Pentagon Cuts 180 Religious Identities From Military Personnel Records**\
 `The new policy, which the Pentagon framed as a largely administrative action, leaves just 31 religious categories to choose from, 22 of which are Christian.`\
 https://www.nytimes.com/2026/06/05/us/pentagon-religions-faith-military.html
@@ -173,22 +189,6 @@ https://www.nytimes.com/2026/06/05/business/ohio-tech-manufacturing-hub.html
 **Today, In Short**\
 `Touching grass. Pets. And the latest from the French Open.`\
 https://www.nytimes.com/2026/06/05/briefing/today-in-short.html
-
-**Chuck Schumer Privately Backs Haley Stevens in Michigan Democratic Senate Primary**\
-`Chuck Schumer, the Democratic minority leader, has remained officially neutral on the race, but in conversations with donors, he has been clear about which candidate he supports.`\
-https://www.nytimes.com/2026/06/05/us/politics/schumer-michigan-democratic-senate-primary.html
-
-**Leaks on Space Station Lead Astronauts to Briefly Seek Shelter in Spacecraft**\
-`Russian astronauts prepared to make repairs on Friday morning, but after an hour and a half, officials decided no urgent action was needed.`\
-https://www.nytimes.com/2026/06/05/science/iss-air-leaks-nasa.html
-
-**Eddie Murphy’s ‘Harlem Nights’ Has the ‘Platonic Ideal’ of Eyeglasses. Where Do I Get Them?**\
-`Tracking down a pair of specs from Eddie Murphy’s film “Harlem Nights.”`\
-https://www.nytimes.com/2026/06/05/t-magazine/harlem-nights-costume-glasses.html
-
-**Met Museum’s ‘Musical Bodies’ Blurs Humans and Instruments**\
-`“Musical Bodies,” a new exhibition at the Metropolitan Museum of Art, revels in the blurry boundaries between humans and instruments.`\
-https://www.nytimes.com/2026/06/05/arts/music/musical-bodies-met-museum.html
 
 **Employers Added a Robust 172,000 Jobs in May**\
 `Unemployment remained steady at 4.3 percent.`\

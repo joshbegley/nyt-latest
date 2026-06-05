@@ -1,3 +1,7 @@
+**ANWR Oil Draws Few Bids, Despite Trump’s Push for ‘Liquid Gold’**\
+`An auction to drill in the Arctic National Wildlife Refuge ended with just 10 percent of the available land claimed for oil development.`\
+https://www.nytimes.com/2026/06/05/climate/anwr-lease-sale-alaska.html
+
 **Judge Strikes Down a Slate of Trump’s Immigration Policies**\
 `Also, job growth is looking healthier. Here’s the latest at the end of Friday.`\
 https://www.nytimes.com/2026/06/05/briefing/judge-trump-immigration-policies.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/05/style/hermes-show-los-angeles.html
 **Central Ohio Becomes Hub for Tech and Manufacturing**\
 `Tech titans and Silicon Valley transplants changed the Columbus area, but not everyone is thrilled about the rapid transformation.`\
 https://www.nytimes.com/2026/06/05/business/ohio-tech-manufacturing-hub.html
-
-**Today, In Short**\
-`Touching grass. Pets. And the latest from the French Open.`\
-https://www.nytimes.com/2026/06/05/briefing/today-in-short.html
 
 **Employers Added a Robust 172,000 Jobs in May**\
 `Unemployment remained steady at 4.3 percent.`\

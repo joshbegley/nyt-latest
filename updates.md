@@ -1,3 +1,19 @@
+**Judge Strikes Down a Slate of Trump’s Immigration Policies**\
+`Also, job growth is looking healthier. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/06/05/briefing/judge-trump-immigration-policies.html
+
+**Mount Everest Guide Missing for 6 Days Is Found Alive**\
+`Dawa Sherpa, a Mount Everest guide, was found alive on Thursday, six days after he went missing.`\
+https://www.nytimes.com/video/world/asia/100000010945549/mount-everest-sherpa-found-alive.html
+
+**Council Speaker Urged to Act After Member’s Anti-Muslim Post**\
+`A group of interfaith leaders said the lack of response by City Council Speaker Julie Menin to anti-Muslim statements made by Councilwoman Inna Vernikov called the city’s commitment to protecting Muslims into question.`\
+https://www.nytimes.com/2026/06/05/nyregion/inna-vernikov-julie-menin-muslim.html
+
+**Police Remove Diabetes Experts From Conference for Distributing Critique of Trump Administration**\
+`Several of those escorted out were scheduled to present at the American Diabetes Association conference this weekend.`\
+https://www.nytimes.com/2026/06/05/well/ada-conference-diabetes-trump.html
+
 **Pentagon Cuts 180 Religious Identities From Military Personnel Records**\
 `The new policy, which the Pentagon framed as a largely administrative action, leaves just 31 religious categories to choose from, 22 of which are Christian.`\
 https://www.nytimes.com/2026/06/05/us/pentagon-religions-faith-military.html
