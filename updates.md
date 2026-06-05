@@ -1,3 +1,11 @@
+**Las cadenas hoteleras se retiran de Cuba ante las presiones de Trump**\
+`Los esfuerzos del gobierno de Trump para presionar a Cuba parecen estar funcionando, ya que más empresas internacionales han anunciado que abandonarán la isla.`\
+https://www.nytimes.com/es/2026/06/04/espanol/america-latina/trump-presion-cuba-hoteles.html
+
+**House Passes Ukraine Aid in Defiance of Republican Leaders**\
+`Eighteen G.O.P. lawmakers broke with their party and joined Democrats to deliver yet another blow to the president’s foreign policy agenda.`\
+https://www.nytimes.com/2026/06/04/us/politics/house-ukraine-aid-russia-republicans.html
+
 **House Passes Ukraine Aid, Opposing Republican Leaders**\
 `Eighteen G.O.P. lawmakers broke with their party and joined Democrats to deliver yet another blow to the president’s foreign policy agenda.`\
 https://www.nytimes.com/2026/06/04/us/politics/house-ukraine-aid-russia-republicans.html
