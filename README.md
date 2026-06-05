@@ -1,3 +1,7 @@
+**House Passes Ukraine Aid, Opposing Republican Leaders**\
+`Eighteen G.O.P. lawmakers broke with their party and joined Democrats to deliver yet another blow to the president’s foreign policy agenda.`\
+https://www.nytimes.com/2026/06/04/us/politics/house-ukraine-aid-russia-republicans.html
+
 **How Trump’s Proposed Arch Could Complicate D.C.’s Congested Airspace**\
 `The mammoth arch would sit directly in the paths of flights in and out of Reagan National Airport.`\
 https://www.nytimes.com/interactive/2026/06/04/us/trump-arch-dc-airspace.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/04/us/politics/pentagon-hires-jan-6-rioter.html
 **University of Texas to Remove Cesar Chavez Statue From Austin Campus**\
 `The university joins a list of schools and cities across the U.S. that have removed memorials and images featuring the labor leader after abuse allegations surfaced.`\
 https://www.nytimes.com/2026/06/04/us/university-texas-austin-cesar-chavez-statue.html
-
-**Children With Autism Lose When the Focus Is on Profits**\
-`Readers respond to an investigation into autism clinics accused of overcharging for a therapeutic method some say is harmful to children. Also: Weight-loss drugs for children.`\
-https://www.nytimes.com/2026/06/04/opinion/children-autism-profits.html
 
 **Hezbollah Rejects Cease-Fire Deal Between Lebanon and Israel**\
 `Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, said a truce worked out between Israel and the Lebanese government amounted to surrender for his group.`\
