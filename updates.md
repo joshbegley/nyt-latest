@@ -1,3 +1,7 @@
+**Murder Charge Dropped for Arkansas Man Nominated for Lonoke County Sheriff**\
+`A judge dismissed the charge against Aaron Spencer, the Republican nominee for Lonoke County sheriff, citing missing evidence and misconduct by law enforcement officials.`\
+https://www.nytimes.com/2026/06/04/us/arkansas-lonoke-sheriff-murder-charge.html
+
 **NYT Crossword Answers for June 05, 2026**\
 `Kelly Morenus opens our solving weekend.`\
 https://www.nytimes.com/2026/06/04/crosswords/daily-puzzle-2026-06-05.html

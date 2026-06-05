@@ -1,3 +1,7 @@
+**Murder Charge Dropped for Arkansas Man Nominated for Lonoke County Sheriff**\
+`A judge dismissed the charge against Aaron Spencer, the Republican nominee for Lonoke County sheriff, citing missing evidence and misconduct by law enforcement officials.`\
+https://www.nytimes.com/2026/06/04/us/arkansas-lonoke-sheriff-murder-charge.html
+
 **NYT Crossword Answers for June 05, 2026**\
 `Kelly Morenus opens our solving weekend.`\
 https://www.nytimes.com/2026/06/04/crosswords/daily-puzzle-2026-06-05.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/es/2026/06/04/espanol/opinion/menopausia-atencion-medica
 **What Teens Told Us About Reading Whatever They Wanted in The Times**\
 `We challenged teens to choose any three recent New York Times pieces they wanted, then tell us what they got from them. The results are a delight.`\
 https://www.nytimes.com/2026/06/04/learning/student-reading-challenge.html
-
-**California Wildfires Outlook: Forecasters Say El Niño Makes Outlook Less Certain**\
-`After late-spring rain, and with an El Niño brewing, experts say the outlook for the summer is especially complicated.`\
-https://www.nytimes.com/2026/06/04/weather/california-fire-forecast.html
 
 **Hezbollah Rejects Cease-Fire Deal Between Lebanon and Israel**\
 `Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, said a truce worked out between Israel and the Lebanese government amounted to surrender for his group.`\
