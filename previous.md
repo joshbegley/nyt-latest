@@ -1,3 +1,7 @@
+**Former Prince Andrew Sublet Cottages on Royal Property Where He Lived Rent-Free**\
+`Andrew Mountbatten-Windsor received income from renting out three cottages at Royal Lodge, where he paid no rent himself, a British public spending watchdog found.`\
+https://www.nytimes.com/2026/06/05/world/europe/uk-prince-andrew-royal-lodge-property-sublet.html
+
 **Live Updates: Jobs Data to Give Insights on a Labor Market Finding Its Footing**\
 `Hiring and unemployment levels for May will show how forces including inflation and artificial intelligence are affecting the U.S. economy.`\
 https://www.nytimes.com/live/2026/business/jobs-report-economy
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/05/arts/design/dataland-ai-museum-los-angeles-ar
 **38 Tony Nominees Reveal the Strangest Skills They’ve Picked Up**\
 `The stars of “Giant,” “Fallen Angels,” “The Rocky Horror Show,” “Ragtime” and more prove they’ll go to great lengths to be believable in a role.`\
 https://www.nytimes.com/2026/06/05/theater/tony-nominees-2026-photos.html
-
-**For New Graduates, Job Market Scars Could Linger for Years**\
-`The full impact of graduating into this hiring downturn will not come into focus for years, and much remains uncertain, especially about A.I.’s role.`\
-https://www.nytimes.com/2026/06/05/business/college-graduates-job-market.html
 

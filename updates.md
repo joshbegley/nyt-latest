@@ -1,3 +1,7 @@
+**Former Prince Andrew Sublet Cottages on Royal Property Where He Lived Rent-Free**\
+`Andrew Mountbatten-Windsor received income from renting out three cottages at Royal Lodge, where he paid no rent himself, a British public spending watchdog found.`\
+https://www.nytimes.com/2026/06/05/world/europe/uk-prince-andrew-royal-lodge-property-sublet.html
+
 **Live Updates: Jobs Data to Give Insights on a Labor Market Finding Its Footing**\
 `Hiring and unemployment levels for May will show how forces including inflation and artificial intelligence are affecting the U.S. economy.`\
 https://www.nytimes.com/live/2026/business/jobs-report-economy
