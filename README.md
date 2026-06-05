@@ -1,3 +1,7 @@
+**James Handy, Actor in ‘Top Gun: Maverick,’ Is Found Stabbed to Death**\
+`The 81-year-old actor had parts in films including “Top Gun: Maverick” and “Arachnophobia.” The son of his girlfriend was arrested and charged with murder.`\
+https://www.nytimes.com/2026/06/05/us/james-handy-stabbed-dead-la-top-gun-jumanji.html
+
 **In ‘Can I Be Frank?,’ Imitation Is the Sincerest Form of Tragedy**\
 `Morgan Bassichis, whose solo show “Can I Be Frank?” resurrects an act by Frank Maya, joins others this season who are recreating the works of deceased artists.`\
 https://www.nytimes.com/2026/06/05/theater/morgan-bassichis-can-i-be-frank.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/05/business/pickup-trucks-ads-ram-rumble-bee.htm
 **Getting Ready for the Next Big Game at the Garden**\
 `The N.B.A. finals return to Madison Square Garden on Monday. Some high-profile guests are expected.`\
 https://www.nytimes.com/2026/06/05/nyregion/getting-ready-for-the-next-big-game-at-the-garden.html
-
-**Can I Force My Spouse to Do Karaoke?**\
-`A ruling on a duet-related dispute.`\
-https://www.nytimes.com/interactive/2026/06/05/magazine/muppet-karaoke-hodgman-quiz.html
 
