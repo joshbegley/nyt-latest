@@ -1,3 +1,11 @@
+**‘Office Romance’ Review: Prepare for Turbulence**\
+`Jennifer Lopez and Brett Goldstein cause professional headaches in this workplace comedy about an airline.`\
+https://www.nytimes.com/2026/06/04/movies/office-romance-review.html
+
+**What to Know About California’s Top Election Races**\
+`The Republicans Steve Hilton, who is running for governor, and Spencer Pratt, running for Los Angeles mayor, have shown early strength, but that could fade as more ballots are counted.`\
+https://www.nytimes.com/2026/06/04/us/california-primary-governor-mayor-results.html
+
 **Theater Reminds Us That We’re Human**\
 `Ahead of the 2026 Tony Awards, Wesley Morris invites Helen Shaw, The Times’s chief theater critic, to help him understand this season of Broadway plays.`\
 https://www.nytimes.com/video/podcasts/100000010939373/theater-reminds-us-that-were-human.html
