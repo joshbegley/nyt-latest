@@ -1,3 +1,15 @@
+**See Where the L.A. Mayoral Candidates Have Done Best So Far**\
+`A map of early returns shows where coalitions have formed in the race between Karen Bass, Spencer Pratt and Nithya Raman.`\
+https://www.nytimes.com/interactive/2026/06/05/us/elections/los-angeles-mayor-primary-results-precinct-map.html
+
+**Pamela Hicks, Lady-in-Waiting to Elizabeth II of Britain, Dies at 97**\
+`The queen’s third cousin, she was a bridesmaid at the royal wedding in 1947, and witnessed firsthand pivotal moments in British history.`\
+https://www.nytimes.com/2026/06/05/world/europe/pamela-hicks-dead.html
+
+**Justice Dept. Promises to Drop $1.8 Billion Fund**\
+`It was the department’s clearest statement to date that it was pulling back from a plan to use taxpayer money to make payments to people who claimed to have been politically persecuted.`\
+https://www.nytimes.com/2026/06/05/us/politics/justice-dept-promises-to-drop-fund.html
+
 **Amid Graham Platner Controversy, Where Does the Maine Senate Race Go Next?**\
 `New revelations about Graham Platner have left Democrats anxious.`\
 https://www.nytimes.com/2026/06/05/us/politics/maine-senate-graham-platner-democrats.html
