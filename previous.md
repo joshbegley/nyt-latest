@@ -194,7 +194,3 @@ https://www.nytimes.com/2026/06/05/opinion/voting-rights-act-black-voters-south.
 `With the Amputee Football World Cup nearing, an elite squad of athletes gathered on Long Island to vie for a spot on the national men’s team, displaying skill and grit.`\
 https://www.nytimes.com/2026/06/05/sports/soccer/amputee-world-cup-national-team.html
 
-**Anna Paulina Luna Wants Everything Disclosed**\
-`Anna Paulina Luna on Epstein, J.F.K. and U.F.O.s.`\
-https://www.nytimes.com/video/opinion/100000010933515/the-maga-representative-crusading-against-government-secrecy.html
-
