@@ -1,3 +1,7 @@
+**Theater Reminds Us That We’re Human**\
+`Ahead of the 2026 Tony Awards, Wesley Morris invites Helen Shaw, The Times’s chief theater critic, to help him understand this season of Broadway plays.`\
+https://www.nytimes.com/video/podcasts/100000010939373/theater-reminds-us-that-were-human.html
+
 **Las cadenas hoteleras se retiran de Cuba ante las presiones de Trump**\
 `Los esfuerzos del gobierno de Trump para presionar a Cuba parecen estar funcionando, ya que más empresas internacionales han anunciado que abandonarán la isla.`\
 https://www.nytimes.com/es/2026/06/04/espanol/america-latina/trump-presion-cuba-hoteles.html
