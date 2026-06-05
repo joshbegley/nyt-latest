@@ -1,3 +1,7 @@
+**Muere James Handy, actor de ‘Top Gun: Maverick’**\
+`El actor, de 81 años, había participado en películas como “Top Gun: Maverick” y “Aracnofobia”. El hijo de su novia fue detenido y acusado de asesinato.`\
+https://www.nytimes.com/es/2026/06/05/espanol/james-handy-muere-apunalado.html
+
 **Trump Keeps Immunity from I.R.S. Audits, Even as $1.8 Billion Fund Falls Away**\
 `Even as they rebelled against a $1.8 billion fund for President Trump’s allies, Republicans looked the other way as his administration granted him potentially lucrative tax protections.`\
 https://www.nytimes.com/2026/06/05/us/politics/trump-immunity-tax-audit.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/interactive/2026/06/05/theater/tonys-reader-voting.html
 **A Summer Book Recommendation Bonanza**\
 `From doppelgängers to dark academia, the Book Review editors share some of their most-anticipated titles.`\
 https://www.nytimes.com/2026/06/05/podcasts/tbr-summer-books-roundup.html
-
-**Appeals Court Panel to Hear Arguments Over Trump’s Ballroom**\
-`A three-judge panel will consider whether a lower court erred in ordering construction stopped until President Trump secured the support of Congress.`\
-https://www.nytimes.com/2026/06/05/us/politics/appeals-court-trump-ballroom.html
 
