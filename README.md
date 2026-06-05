@@ -1,3 +1,11 @@
+**Northeast Heat Forecast: New York Braces for a Surge of Summer Warmth**\
+`Boston, New York City and Philadelphia are expected to get into the 90s this weekend. More heat is coming next week.`\
+https://www.nytimes.com/2026/06/05/weather/new-york-philadelphia-heat-forecast.html
+
+**Anthony Head, ‘Buffy the Vampire Slayer’ and ‘Ted Lasso’ Actor, Dies at 72**\
+`The British actor was a mainstay of influential television shows who first found fame as a Nescafe pitchman.`\
+https://www.nytimes.com/2026/06/05/arts/television/anthony-head-dead.html
+
 **TK**\
 `TK`\
 https://static01.nyt.com/slideshow/2026/06/05/t-magazine/tk.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/06/05/us/politics/susan-collins-votes-streak-senate
 **Elon Musk Dominates List of Highest Paid C.E.O.s**\
 `Executive compensation is accelerating while rank-and-file workers lag, widening the pay gap in corporate America.`\
 https://www.nytimes.com/2026/06/05/business/highest-paid-ceos-elon-musk.html
-
-**Russian Satellites Have Been Jamming GPS Signals Across Europe, Scientists Say**\
-`Scientists and U.S. military briefers have linked short, widespread interference incidents to Russia, revealing vulnerabilities in a technology essential to everyday society.`\
-https://www.nytimes.com/2026/06/05/world/europe/russia-satellites-gps-interference-europe.html
-
-**Why the SpaceX IPO Will Affect Your 401(k), Like It or Not**\
-`Elon Musk’s rocket company, on the cusp of the largest initial public offering ever, will soon end up in index funds after rule changes by Nasdaq and other index providers.`\
-https://www.nytimes.com/2026/06/05/technology/spacex-indexes-401k.html
 
 **Employers Added a Robust 172,000 Jobs in May**\
 `Unemployment remained steady at 4.3 percent.`\
