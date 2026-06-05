@@ -1,3 +1,7 @@
+**Raman Gains on Pratt in L.A. Mayor Race But Many Ballots Remain**\
+`Nithya Raman’s vote count still remains well behind Spencer Pratt’s, but hundreds of thousands of ballots remain to be counted in Los Angeles over the next few weeks.`\
+https://www.nytimes.com/2026/06/04/us/elections/raman-pratt-los-angeles-mayor.html
+
 **What To Know as China’s Xi Jinping Heads to North Korea**\
 `As Xi Jinping visits Pyongyang, he faces an emboldened North Korean dictator, whose alliance with Russia has reduced his dependence on China.`\
 https://www.nytimes.com/2026/06/04/world/asia/china-north-korea-xi-jinping-visit.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/04/climate/trump-coal-plants-funding.html
 **Trump and Mamdani Plan to Be at Monday’s Knicks Game (but Not Together)**\
 `President Trump is expected to sit in a luxury box for Game 3 of the N.B.A. finals at Madison Square Garden. Mayor Zohran Mamdani says he will be in a “very different section.”`\
 https://www.nytimes.com/2026/06/04/nyregion/knicks-mamdani-trump-garden.html
-
-**Mister Rogers: Now on YouTube**\
-`On Thursday, Fred Rogers Productions started a channel dedicated to the beloved children’s host. Eventually it will be a repository for full episodes, behind-the-scenes footage and compilations.`\
-https://www.nytimes.com/2026/06/04/arts/television/mister-rogers-neighborhood-youtube.html
 
 **Hezbollah Rejects Cease-Fire Deal Between Lebanon and Israel**\
 `Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, said a truce worked out between Israel and the Lebanese government amounted to surrender for his group.`\
