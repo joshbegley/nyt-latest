@@ -1,3 +1,7 @@
+**Ned Jarrett, Champion Stock Car Racer in the 1960s, Dies at 93**\
+`He won the sport’s most important series, NASCAR’s Grand National, and his son followed in his footsteps. Both were inducted into the Hall of Fame.`\
+https://www.nytimes.com/2026/06/05/sports/ned-jarrett-dead.html
+
 **Edición genética: embriones humanos son editados por primera vez con gran precisión**\
 `Los investigadores utilizaron una nueva técnica de edición de genes que podría permitir la ingeniería genética de embriones, una perspectiva que desde hace tiempo preocupa a los bioeticistas.`\
 https://www.nytimes.com/es/2026/06/05/espanol/ciencia-y-tecnologia/embrion-humano-genetica.html

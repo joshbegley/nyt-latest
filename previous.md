@@ -1,3 +1,7 @@
+**Ned Jarrett, Champion Stock Car Racer in the 1960s, Dies at 93**\
+`He won the sport’s most important series, NASCAR’s Grand National, and his son followed in his footsteps. Both were inducted into the Hall of Fame.`\
+https://www.nytimes.com/2026/06/05/sports/ned-jarrett-dead.html
+
 **Edición genética: embriones humanos son editados por primera vez con gran precisión**\
 `Los investigadores utilizaron una nueva técnica de edición de genes que podría permitir la ingeniería genética de embriones, una perspectiva que desde hace tiempo preocupa a los bioeticistas.`\
 https://www.nytimes.com/es/2026/06/05/espanol/ciencia-y-tecnologia/embrion-humano-genetica.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/06/05/us/politics/fisa-surveillance-law-senate-pult
 **Summer Reading Contest, Week 1: What Got Your Attention in The Times This Week?**\
 `To participate, submit your response here by June 12 at 9 a.m. Eastern. This week’s winners will be announced by June 24.`\
 https://www.nytimes.com/2026/06/05/learning/summer-reading-contest-week-1-what-got-your-attention-in-the-times-this-week.html
-
-**More Renters Are Using Tools to Skip Security Deposits, but There’s a Catch**\
-`Third-party services charge fees to help renters bypass some upfront costs of signing a lease. Unlike traditional deposits, the money won’t be returned to tenants.`\
-https://www.nytimes.com/2026/06/05/your-money/renting-security-deposit-alternatives.html
 
 **Employers Added a Robust 172,000 Jobs in May**\
 `Unemployment remained steady at 4.3 percent.`\

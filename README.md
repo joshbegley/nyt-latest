@@ -91,7 +91,7 @@ https://www.nytimes.com/2026/06/05/us/politics/asylum-immigration-ruling.html
 https://www.nytimes.com/2026/06/05/world/europe/norway-princess-lung-transplant.html
 
 **Tom Colicchio Will Close Craft, His Flagship Restaurant, After 25 Years**\
-`The chef said that running a restaurant in New York — and the clientele — had changed in the last couple of years.`\
+`The chef and judge on “Top Chef” said that running a restaurant in New York — and the clientele — had changed in the last couple of years.`\
 https://www.nytimes.com/2026/06/05/dining/craft-restaurant-closing-tom-colicchio.html
 
 **Hermès Brings Parisian Flair to Bel Air**\
