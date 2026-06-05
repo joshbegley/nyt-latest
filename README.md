@@ -3,7 +3,7 @@
 https://www.nytimes.com/interactive/2026/06/04/us/trump-arch-dc-airspace.html
 
 **In a First, Scientists Precisely Edit Human Embryo Genes**\
-`Researchers relied on a newer gene-editing technique that may make it possibl to engineer embryos, a prospect that has long alarmed bioethicists.`\
+`Researchers relied on a newer gene-editing technique that may make it possible to engineer embryos, a prospect that has long alarmed bioethicists.`\
 https://www.nytimes.com/2026/06/04/science/embryos-gene-editing-crispr.html
 
 **Zelensky Mixes Taunts and Peace Talks Offer in Letter to Putin**\
@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/06/04/us/university-texas-austin-cesar-chavez-statu
 `Readers respond to an investigation into autism clinics accused of overcharging for a therapeutic method some say is harmful to children. Also: Weight-loss drugs for children.`\
 https://www.nytimes.com/2026/06/04/opinion/children-autism-profits.html
 
-**Mideast Live Updates: Hezbollah Rejects Cease-Fire Deal Between Lebanon and Israel**\
+**Hezbollah Rejects Cease-Fire Deal Between Lebanon and Israel**\
 `Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, said a truce worked out between Israel and the Lebanese government amounted to surrender for his group.`\
 https://www.nytimes.com/live/2026/06/04/world/iran-war-trump-israel-lebanon
 
