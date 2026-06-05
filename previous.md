@@ -1,3 +1,7 @@
+**Flashback: Your Weekly History Quiz, June 6, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/06/05/upshot/flashback.html
+
 **’60 Minutes’ Stars Will Stay After Pelley’s Firing Because They Don’t Want Show to ‘Die’**\
 `Lesley Stahl, Bill Whitaker and Jon Wertheim said on Friday in an email to their colleagues that they had reached the decision after a period of frustration.`\
 https://www.nytimes.com/2026/06/05/business/media/60-minutes-cbs-stahl-whitaker-wertheim.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/06/05/crosswords/strands-sidekick-825.html
 **Today’s Wordle Hints for June 6, 2026**\
 `Scroll down for hints and conversation about the puzzle for Saturday, June 6, 2026.`\
 https://www.nytimes.com/2026/06/05/crosswords/wordle-review-1813.html
-
-**Inside Trump’s Strategy to Push Out Immigrants, and How Tech Giants Targeted Teens at School**\
-`Plus, the Friday news quiz.`\
-https://www.nytimes.com/2026/06/05/podcasts/the-headlines/trump-immigrants-tech-schools.html
 
