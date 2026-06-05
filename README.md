@@ -23,7 +23,7 @@ https://www.nytimes.com/2026/06/05/world/asia/missing-sherpa-mount-everest-found
 https://www.nytimes.com/2026/06/05/world/europe/france-israel-flotilla-activists.html
 
 **Stocks Slide as Investors See Rates Rising After Strong Jobs Data**\
-`The S&P 500 fell more than 2 percent on Friday, on course for its worst one-day drop of the year and ending nine weeks of gains.`\
+`The S&P 500 fell more than 2.6 percent on Friday, its worst one-day drop of the year and ending nine weeks of gains.`\
 https://www.nytimes.com/2026/06/05/business/stock-market-jobs-report.html
 
 **Taylor Swift and Travis Kelce’s Wedding: Try Our Fantasy Wedding Planner**\
