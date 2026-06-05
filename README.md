@@ -1,3 +1,7 @@
+**A Dark Vision of Masculinity**\
+`Why does the modern, online vision of masculinity feel so “deeply depressing”? In conversation with the journalist Helen Lewis, the Opinion columnist Ezra Klein explains how leading right-wing figures weaponize the word “virtue” to mask a lack of moral and civic obligation.`\
+https://www.nytimes.com/video/opinion/100000010940550/a-dark-vision-of-masculinity.html
+
 **Northeast Heat Forecast: New York Braces for a Surge of Summer Warmth**\
 `Boston, New York City and Philadelphia are expected to get into the 90s this weekend. More heat is coming next week.`\
 https://www.nytimes.com/2026/06/05/weather/new-york-philadelphia-heat-forecast.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/05/movies/science-fiction-movies-streaming.html
 **Casting Her 10,000th Vote in a Row, Collins Sets a Senate Record**\
 `The Maine Republican, who is in the middle of a tumultuous re-election race, became the first senator in history to reach the threshold without missing a vote.`\
 https://www.nytimes.com/2026/06/05/us/politics/susan-collins-votes-streak-senate.html
-
-**Elon Musk Dominates List of Highest Paid C.E.O.s**\
-`Executive compensation is accelerating while rank-and-file workers lag, widening the pay gap in corporate America.`\
-https://www.nytimes.com/2026/06/05/business/highest-paid-ceos-elon-musk.html
 
 **Employers Added a Robust 172,000 Jobs in May**\
 `Unemployment remained steady at 4.3 percent.`\

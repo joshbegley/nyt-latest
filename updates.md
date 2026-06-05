@@ -1,3 +1,11 @@
+**Northeast Heat Forecast: New York Braces for a Surge of Summer Warmth**\
+`Boston, New York City and Philadelphia are expected to get into the 90s this weekend. More heat is coming next week.`\
+https://www.nytimes.com/2026/06/05/weather/new-york-philadelphia-heat-forecast.html
+
+**Anthony Head, ‘Buffy the Vampire Slayer’ and ‘Ted Lasso’ Actor, Dies at 72**\
+`The British actor was a mainstay of influential television shows who first found fame as a Nescafe pitchman.`\
+https://www.nytimes.com/2026/06/05/arts/television/anthony-head-dead.html
+
 **TK**\
 `TK`\
 https://static01.nyt.com/slideshow/2026/06/05/t-magazine/tk.html
