@@ -1,4 +1,8 @@
-**House Passes Ukraine Aid, Opposing Republican Leaders**\
+**Las cadenas hoteleras se retiran de Cuba ante las presiones de Trump**\
+`Los esfuerzos del gobierno de Trump para presionar a Cuba parecen estar funcionando, ya que más empresas internacionales han anunciado que abandonarán la isla.`\
+https://www.nytimes.com/es/2026/06/04/espanol/america-latina/trump-presion-cuba-hoteles.html
+
+**House Passes Ukraine Aid in Defiance of Republican Leaders**\
 `Eighteen G.O.P. lawmakers broke with their party and joined Democrats to deliver yet another blow to the president’s foreign policy agenda.`\
 https://www.nytimes.com/2026/06/04/us/politics/house-ukraine-aid-russia-republicans.html
 
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/04/arts/music/kennedy-center-trump-name-memo.htm
 **Jan. 6 Rioter Is Hired to Work in Sensitive Pentagon Office**\
 `It was not clear who hired Elias Irizarry, who pleaded guilty to various offenses at the Capitol and was later pardoned by President Trump.`\
 https://www.nytimes.com/2026/06/04/us/politics/pentagon-hires-jan-6-rioter.html
-
-**University of Texas to Remove Cesar Chavez Statue From Austin Campus**\
-`The university joins a list of schools and cities across the U.S. that have removed memorials and images featuring the labor leader after abuse allegations surfaced.`\
-https://www.nytimes.com/2026/06/04/us/university-texas-austin-cesar-chavez-statue.html
 
 **Hezbollah Rejects Cease-Fire Deal Between Lebanon and Israel**\
 `Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, said a truce worked out between Israel and the Lebanese government amounted to surrender for his group.`\

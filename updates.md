@@ -1,3 +1,7 @@
+**House Passes Ukraine Aid, Opposing Republican Leaders**\
+`Eighteen G.O.P. lawmakers broke with their party and joined Democrats to deliver yet another blow to the president’s foreign policy agenda.`\
+https://www.nytimes.com/2026/06/04/us/politics/house-ukraine-aid-russia-republicans.html
+
 **How Trump’s Proposed Arch Could Complicate D.C.’s Congested Airspace**\
 `The mammoth arch would sit directly in the paths of flights in and out of Reagan National Airport.`\
 https://www.nytimes.com/interactive/2026/06/04/us/trump-arch-dc-airspace.html
