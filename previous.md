@@ -1,3 +1,27 @@
+**Qué significa ‘pulchritude’**\
+`Esta palabra ha aparecido en tres artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/06/05/espanol/que-significa-pulchritude.html
+
+**Why Harlem May Be the Deciding Factor in a Critical House Race**\
+`Representative Adriano Espaillat and his progressive challenger, Darializa Avila Chevalier, have zeroed in on Harlem, traditionally hostile turf for the Democratic incumbent.`\
+https://www.nytimes.com/2026/06/05/nyregion/espaillat-avila-chevalier-primary.html
+
+**‘Out of Control’: When Troopers and Protesters Clash, Questions Follow**\
+`Gov. Mikie Sherrill had hoped that replacing federal agents with the state police would bring peace. It didn’t work out that way.`\
+https://www.nytimes.com/2026/06/05/nyregion/delaney-hall-police-protesters-sherrill.html
+
+**Driven From Lenapehoking, They Hope to Return to New York**\
+`The Lenape were forced out of their ancestral lands centuries ago. Now in Oklahoma, their descendants feel the pull of homeland in the east.`\
+https://www.nytimes.com/2026/06/05/nyregion/driven-from-lenapehoking-they-hope-to-return-to-new-york.html
+
+**NYT Spelling Bee Answers for June 5, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/05/crosswords/spelling-bee-forum.html
+
+**‘Mexico 86’ Review: This Underdog Has Bags of Cash**\
+`Diego Luna plays an ambitious soccer enthusiast who is trying to secure the World Cup for Mexico a second time.`\
+https://www.nytimes.com/2026/06/05/movies/mexico-86-review.html
+
 **2026 Tony Awards Predictions: Who Will Win?**\
 `Expect wins for the musical “Schmigadoon!” and the play “Liberation,” and for the “Ragtime” stars Joshua Henry and Caissie Levy.`\
 https://www.nytimes.com/2026/06/05/theater/tony-awards-2026-predictions.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/video/us/politics/100000010945594/jan-6-rioter-hired-by-
 **Trump Plans to Create a Promenade at the Lincoln Memorial**\
 `The president announced a new project that would connect the memorial to the Potomac River. He isn’t sure if he wants it to be named after himself.`\
 https://www.nytimes.com/2026/06/04/us/politics/trump-lincoln-memorial-promenade.html
-
-**Oakley Isn’t Barred From Madison Square Garden Anymore. Will He Come See the Knicks Play?**\
-`Charles Oakley, the 1990s Knicks star, hasn’t been to a game at Madison Square Garden in nearly a decade because of a legal battle.`\
-https://www.nytimes.com/2026/06/04/nyregion/charles-oakley-madison-square-garden-knicks-finals.html
-
-**Postal Service Frees Up Enough Cash to Keep Operating for ‘Several Years’**\
-`The agency had warned it could run out of money within months, but its regulators said suspending payments to a retirement fund had given officials more time to find a permanent solution.`\
-https://www.nytimes.com/2026/06/04/us/politics/postal-service-finances.html
-
-**Gunfire and Explosions Erupt in Somalia’s Capital, Residents Say**\
-`Residents of Mogadishu, Somalia’s capital, said government forces fought militia groups and heard sounds of rocket-propelled grenades on Thursday. Some residents fled their homes to escape the violence. No information of casualties was immediately available.`\
-https://www.nytimes.com/video/world/africa/100000010944673/somalia-mogadishu-fighting.html
-
-**Map: 3.8-Magnitude Earthquake Shakes Las Vegas**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/06/04/us/quake-tracker-las-vegas.html
-
-**Summer Challenge: Get Outdoors and ‘Touch Grass’**\
-`Your phone may distract you, but it doesn’t restore you. Here’s what does.`\
-https://www.nytimes.com/interactive/2026/06/04/well/summer-challenge-touch-grass-outdoors-benefits.html
-
-**Tennis Giants Tumble**\
-`All the big names are out at the French Open. The result is a very confusing, and very exciting, tournament.`\
-https://www.nytimes.com/2026/06/04/world/05int-theworld-tennis-french-open-satrapi-lebanon.html
 

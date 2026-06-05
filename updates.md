@@ -1,3 +1,27 @@
+**Qué significa ‘pulchritude’**\
+`Esta palabra ha aparecido en tres artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/06/05/espanol/que-significa-pulchritude.html
+
+**Why Harlem May Be the Deciding Factor in a Critical House Race**\
+`Representative Adriano Espaillat and his progressive challenger, Darializa Avila Chevalier, have zeroed in on Harlem, traditionally hostile turf for the Democratic incumbent.`\
+https://www.nytimes.com/2026/06/05/nyregion/espaillat-avila-chevalier-primary.html
+
+**‘Out of Control’: When Troopers and Protesters Clash, Questions Follow**\
+`Gov. Mikie Sherrill had hoped that replacing federal agents with the state police would bring peace. It didn’t work out that way.`\
+https://www.nytimes.com/2026/06/05/nyregion/delaney-hall-police-protesters-sherrill.html
+
+**Driven From Lenapehoking, They Hope to Return to New York**\
+`The Lenape were forced out of their ancestral lands centuries ago. Now in Oklahoma, their descendants feel the pull of homeland in the east.`\
+https://www.nytimes.com/2026/06/05/nyregion/driven-from-lenapehoking-they-hope-to-return-to-new-york.html
+
+**NYT Spelling Bee Answers for June 5, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/05/crosswords/spelling-bee-forum.html
+
+**‘Mexico 86’ Review: This Underdog Has Bags of Cash**\
+`Diego Luna plays an ambitious soccer enthusiast who is trying to secure the World Cup for Mexico a second time.`\
+https://www.nytimes.com/2026/06/05/movies/mexico-86-review.html
+
 **2026 Tony Awards Predictions: Who Will Win?**\
 `Expect wins for the musical “Schmigadoon!” and the play “Liberation,” and for the “Ragtime” stars Joshua Henry and Caissie Levy.`\
 https://www.nytimes.com/2026/06/05/theater/tony-awards-2026-predictions.html
