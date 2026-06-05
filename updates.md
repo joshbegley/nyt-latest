@@ -1,3 +1,7 @@
+**50 Years of People, Passion and Wine**\
+`Since 1976, Duckhorn Vineyards has made wines that capture the spirit of Napa Valley.`\
+http://brandedplaylist.nytimes.com/video/embedded/t-brand/100000010948385/50-years-of-people-passion-and-wine.html
+
 **Jennifer Lopez Says You Must Be Born in NYC to Be a New Yorker in ‘Subway Takes’ Interview**\
 `The actress and singer Jennifer Lopez said in an interview that someone must be born in New York City to be a New Yorker. Not everyone agrees.`\
 https://www.nytimes.com/2026/06/05/nyregion/jlo-new-yorker-rule.html

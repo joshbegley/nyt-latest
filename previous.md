@@ -1,3 +1,7 @@
+**50 Years of People, Passion and Wine**\
+`Since 1976, Duckhorn Vineyards has made wines that capture the spirit of Napa Valley.`\
+http://brandedplaylist.nytimes.com/video/embedded/t-brand/100000010948385/50-years-of-people-passion-and-wine.html
+
 **Raphael Warnock Says the Supreme Court Has Done ‘Violence’ to Democracy**\
 `The Democratic senator from Georgia discusses voting rights, the influence of Christianity on politics, and his new book, “The Crooked Places Made Straight: Reflections on the Moral Meaning of America.”`\
 https://www.nytimes.com/video/podcasts/100000010947145/raphael-warnock-says-the-supreme-court-has-done-violence-to-democracy.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/05/arts/music/musical-bodies-met-museum.html
 **Cucumber, Tomato, Red Onion, Herbs, Lime, Olive Oil, Summer**\
 `That’s salad-e Shirazi, one of our most popular recipes of the week.`\
 https://www.nytimes.com/2026/06/05/dining/cucumber-tomato-red-onion-herbs-lime-olive-oil-summer.html
-
-**Trump Is Getting Worse at His Job**\
-`“Trump loses more often, on more things, than most.”`\
-https://www.nytimes.com/2026/06/05/opinion/trump-republicans-congress.html
 
 **Employers Added a Robust 172,000 Jobs in May**\
 `Unemployment remained steady at 4.3 percent.`\

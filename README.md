@@ -1,3 +1,7 @@
+**Pentagon Cuts 180 Religious Identities From Military Personnel Records**\
+`The new policy, which the Pentagon framed as a largely administrative action, leaves just 31 religious categories to choose from, 22 of which are Christian.`\
+https://www.nytimes.com/2026/06/05/us/pentagon-religions-faith-military.html
+
 **50 Years of People, Passion and Wine**\
 `Since 1976, Duckhorn Vineyards has made wines that capture the spirit of Napa Valley.`\
 http://brandedplaylist.nytimes.com/video/embedded/t-brand/100000010948385/50-years-of-people-passion-and-wine.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/05/t-magazine/harlem-nights-costume-glasses.html
 **Met Museum’s ‘Musical Bodies’ Blurs Humans and Instruments**\
 `“Musical Bodies,” a new exhibition at the Metropolitan Museum of Art, revels in the blurry boundaries between humans and instruments.`\
 https://www.nytimes.com/2026/06/05/arts/music/musical-bodies-met-museum.html
-
-**Cucumber, Tomato, Red Onion, Herbs, Lime, Olive Oil, Summer**\
-`That’s salad-e Shirazi, one of our most popular recipes of the week.`\
-https://www.nytimes.com/2026/06/05/dining/cucumber-tomato-red-onion-herbs-lime-olive-oil-summer.html
 
 **Employers Added a Robust 172,000 Jobs in May**\
 `Unemployment remained steady at 4.3 percent.`\
