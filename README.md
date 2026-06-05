@@ -1,3 +1,7 @@
+**A Question Swirling Around Putin’s Big Conference: Could the War End?**\
+`At the St. Petersburg economic forum, business and political elites said Russia faced a choice of halting the conflict or sacrificing more. Vladimir Putin seemed to signal more war.`\
+https://www.nytimes.com/2026/06/05/world/europe/putin-war-st-petersburg-economic-forum.html
+
 **U.S. Forest Service to Open Millions of Acres to Off-Road Vehicles**\
 `The forthcoming order echoes President Trump’s decision to repeal executive orders that have protected other public lands from vehicles for decades.`\
 https://www.nytimes.com/2026/06/05/climate/national-forests-off-road-vehicles-public-lands-trump.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/06/05/world/middleeast/lebanon-cease-fire-israel-he
 **‘The Headlines’ News Quiz: Jun. 5, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/06/05/podcasts/the-headlines/the-headlines-news-quiz-jun-5-2026.html
-
-**Onstage and Off**\
-`The Tony Awards are this weekend. We explore what the ceremony is all about.`\
-https://www.nytimes.com/2026/06/05/briefing/tonys-broadway-theater.html
 
 **Employers Added a Robust 172,000 Jobs in May**\
 `Unemployment remained steady at 4.3 percent.`\
