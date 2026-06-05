@@ -1,3 +1,7 @@
+**Schlossberg, Bores, Conway and Lasher Spar in NYC Primary Debate**\
+`Four Democratic hopefuls seeking to represent a key Manhattan House district clashed in the first debate of the race.`\
+https://www.nytimes.com/2026/06/04/nyregion/schlossberg-conway-bores-lasher-nyc-primary-debate.html
+
 **‘Girl, Interrupted’ Review: A Musical That’s a Little Too Tranquilized**\
 `While the 1999 movie went for melodrama, this stage adaptation with songs by Aimee Mann honors the memoir’s coolly clinical prose.`\
 https://www.nytimes.com/2026/06/04/theater/girl-interrupted-review-mann-majok-king-princess-canfield.html
