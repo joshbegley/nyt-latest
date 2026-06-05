@@ -1,3 +1,11 @@
+**M.I.A. Never Wanted to Be So Controversial**\
+`On “Popcast,” M.I.A., who has been a lightning rod for controversy throughout her career, discusses valuing free speech and how it’s “not her desire” to incite this kind of reaction.`\
+https://www.nytimes.com/video/podcasts/100000010947752/mia-never-wanted-to-be-so-controversial.html
+
+**Alan Saret, Sculptor Who Made Clouds of Wire, Dies at 81**\
+`His best-known works were large, airy tangles that suggested tumbleweeds, nests or tulle. If a window was open, they might sway in the breeze.`\
+https://www.nytimes.com/2026/06/05/arts/design/alan-saret-dead.html
+
 **A Question Swirling Around Putin’s Big Conference: Could the War End?**\
 `At the St. Petersburg economic forum, business and political elites said Russia faced a choice of halting the conflict or sacrificing more. Vladimir Putin seemed to signal more war.`\
 https://www.nytimes.com/2026/06/05/world/europe/putin-war-st-petersburg-economic-forum.html
