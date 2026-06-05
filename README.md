@@ -1,6 +1,6 @@
-**‘60 Minutes’ Stars Will Stay Because They Don’t Want Show to ‘Die’**\
+**’60 Minutes’ Stars Will Stay After Pelley’s Firing Because They Don’t Want Show to ‘Die’**\
 `Lesley Stahl, Bill Whitaker and Jon Wertheim said on Friday in an email to their colleagues that they had reached the decision after a period of frustration.`\
-https://www.nytimes.com/2026/06/05/business/media/60-minutes-correspondents-will-stay.html
+https://www.nytimes.com/2026/06/05/business/media/60-minutes-cbs-stahl-whitaker-wertheim.html
 
 **Man Who Schemed With Au Pair to Kill His Wife Is Sentenced to Life**\
 `Brendan Banfield of Herndon, Va., was found guilty of murdering his wife and another man, who was lured in through a fetish website. The plan involved his lover, who is now serving 10 years in prison.`\
