@@ -2,7 +2,7 @@
 `The Democratic senator from Georgia discusses voting rights, the influence of Christianity on politics, and his new book, “The Crooked Places Made Straight: Reflections on the Moral Meaning of America.”`\
 https://www.nytimes.com/video/podcasts/100000010947145/raphael-warnock-says-the-supreme-court-has-done-violence-to-democracy.html
 
-**Are You a New Yorker? If You Weren’t Born Here, Jennifer Lopez Says No.**\
+**Jennifer Lopez Says You Must Be Born in NYC to Be a New Yorker in ‘Subway Takes’ Interview**\
 `The actress and singer Jennifer Lopez said in an interview that someone must be born in New York City to be a New Yorker. Not everyone agrees.`\
 https://www.nytimes.com/2026/06/05/nyregion/jlo-new-yorker-rule.html
 
