@@ -1,3 +1,11 @@
+**U.S. Forest Service to Open Millions of Acres to Off-Road Vehicles**\
+`The forthcoming order echoes President Trump’s decision to repeal executive orders that have protected other public lands from vehicles for decades.`\
+https://www.nytimes.com/2026/06/05/climate/national-forests-off-road-vehicles-public-lands-trump.html
+
+**Before French Open Finals, They’ll Serve Up a Dance**\
+`The choreographer Benjamin Millepied had an unusual brief: To create two short works for the championship matches at Roland Garros.`\
+https://www.nytimes.com/2026/06/05/arts/dance/roland-garros-french-open-benjamin-millepied.html
+
 **Formula 1: The Second Life of Racecars**\
 `After their racing days are over, they are used in testing, events and as show cars. Some even end up in private hands.`\
 https://www.nytimes.com/2026/06/05/sports/f1-cars-museums.html
