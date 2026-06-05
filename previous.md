@@ -1,3 +1,7 @@
+**2026 Tony Awards Predictions: Who Will Win?**\
+`Expect wins for the musical “Schmigadoon!” and the play “Liberation,” and for the “Ragtime” stars Joshua Henry and Caissie Levy.`\
+https://www.nytimes.com/2026/06/05/theater/tony-awards-2026-predictions.html
+
 **Word of the Day: pulchritude**\
 `This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/06/05/learning/word-of-the-day-pulchritude.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/06/04/well/summer-challenge-touch-grass
 **Tennis Giants Tumble**\
 `All the big names are out at the French Open. The result is a very confusing, and very exciting, tournament.`\
 https://www.nytimes.com/2026/06/04/world/05int-theworld-tennis-french-open-satrapi-lebanon.html
-
-**Art Gallery Shows to See in June**\
-`This week in Newly Reviewed, Will Heinrich files a dispatch from Los Angeles covering Charles Ray’s strangely lifelike sculptures, James Harrison’s flowers and a group show! (Exclamation point will make sense).`\
-https://www.nytimes.com/2026/06/04/arts/design/art-gallery-shows-to-see-in-june.html
 

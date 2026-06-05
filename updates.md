@@ -1,3 +1,7 @@
+**2026 Tony Awards Predictions: Who Will Win?**\
+`Expect wins for the musical “Schmigadoon!” and the play “Liberation,” and for the “Ragtime” stars Joshua Henry and Caissie Levy.`\
+https://www.nytimes.com/2026/06/05/theater/tony-awards-2026-predictions.html
+
 **Word of the Day: pulchritude**\
 `This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/06/05/learning/word-of-the-day-pulchritude.html
