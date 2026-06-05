@@ -1,3 +1,7 @@
+**Platner Denies Hurting Ex-Girlfriend and Says He Will Not Quit Senate Race**\
+`In an interview after The Times reported on his treatment of women he had dated, Graham Platner acknowledged “not exactly acting with the best behavior” after his military service.`\
+https://www.nytimes.com/2026/06/04/us/politics/graham-platner-maine-senate-former-girlfriends.html
+
 **Court Reverses Convictions of Paramedics in Elijah McClain’s Death**\
 `A Colorado appeals court ordered new trials for Peter Cichuniec and Jeremy Cooper, convicted in 2023 after injecting Mr. McClain with ketamine. The court cited errors in jury instructions.`\
 https://www.nytimes.com/2026/06/04/us/elijah-mcclain-paramedics-convictions-retrials.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/04/arts/television/mister-rogers-neighborhood-yo
 **The British Used to Sound Like We Did**\
 `When they left, they changed.`\
 https://www.nytimes.com/2026/06/04/opinion/british-american-english-language.html
-
-**Melinda French Gates: mujeres, merecemos algo mejor**\
-`Las mujeres que atraviesan la menopausia tienen una probabilidad muy alta de recibir una atención médica deficiente.`\
-https://www.nytimes.com/es/2026/06/04/espanol/opinion/menopausia-atencion-medica.html
 
 **Hezbollah Rejects Cease-Fire Deal Between Lebanon and Israel**\
 `Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, said a truce worked out between Israel and the Lebanese government amounted to surrender for his group.`\
