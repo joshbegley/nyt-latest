@@ -1,3 +1,7 @@
+**Several Republicans Break With Trump to Pass Ukraine Aid Bill**\
+`Eighteen Republican lawmakers joined Democrats on Thursday to pass a bill that would provide new aid to Ukraine, clashing with President Trump’s foreign policy agenda.`\
+https://www.nytimes.com/video/us/politics/100000010946594/house-republicans-ukraine-aid.html
+
 **Pommelien Thijs, la estrella pop amada por la mitad de Bélgica**\
 `Las pegadizas canciones de Thijs son adoradas en Bélgica, al menos en la parte neerlandesa.`\
 https://www.nytimes.com/es/2026/06/05/espanol/cultura/pommelien-thijs-pop-belgica.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/04/briefing/lung-cancer-research-trump-fund.html
 **California Businessman Accused of Selling Restricted Technology to Iran**\
 `Jamshid Ghomi, of Newport Coast, Calif., was charged with conspiracy to violate the International Emergency Economic Powers Act.`\
 https://www.nytimes.com/2026/06/04/us/sanctions-iran-nuclear-military-violations.html
-
-**Officer Charged With Stealing Journalist’s Camera Bag at Delaney Hall ICE Protest**\
-`Darryl Brown, a sergeant with the Essex County Prosecutor’s Office, is accused of taking home a bag dropped by a photojournalist outside the Delaney Hall immigration detention center in Newark.`\
-https://www.nytimes.com/2026/06/04/nyregion/delaney-hall-protest-officer-charged-stealing.html
 
