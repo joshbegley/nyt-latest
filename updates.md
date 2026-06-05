@@ -1,3 +1,7 @@
+**A Dark Vision of Masculinity**\
+`Why does the modern, online vision of masculinity feel so “deeply depressing”? In conversation with the journalist Helen Lewis, the Opinion columnist Ezra Klein explains how leading right-wing figures weaponize the word “virtue” to mask a lack of moral and civic obligation.`\
+https://www.nytimes.com/video/opinion/100000010940550/a-dark-vision-of-masculinity.html
+
 **Northeast Heat Forecast: New York Braces for a Surge of Summer Warmth**\
 `Boston, New York City and Philadelphia are expected to get into the 90s this weekend. More heat is coming next week.`\
 https://www.nytimes.com/2026/06/05/weather/new-york-philadelphia-heat-forecast.html

@@ -1,3 +1,11 @@
+**Raphael Warnock Says the Supreme Court Has Done ‘Violence’ to Democracy**\
+`The Democratic senator from Georgia discusses voting rights, the influence of Christianity on politics, and his new book, “The Crooked Places Made Straight: Reflections on the Moral Meaning of America.”`\
+https://www.nytimes.com/video/podcasts/100000010947145/raphael-warnock-says-the-supreme-court-has-done-violence-to-democracy.html
+
+**Are You a New Yorker? If You Weren’t Born Here, Jennifer Lopez Says No.**\
+`The actress and singer Jennifer Lopez said in an interview that someone must be born in New York City to be a New Yorker. Not everyone agrees.`\
+https://www.nytimes.com/2026/06/05/nyregion/jlo-new-yorker-rule.html
+
 **A Dark Vision of Masculinity**\
 `Why does the modern, online vision of masculinity feel so “deeply depressing”? In conversation with the journalist Helen Lewis, the Opinion columnist Ezra Klein explains how leading right-wing figures weaponize the word “virtue” to mask a lack of moral and civic obligation.`\
 https://www.nytimes.com/video/opinion/100000010940550/a-dark-vision-of-masculinity.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/06/05/dining/cucumber-tomato-red-onion-herbs-lime-o
 **Trump Is Getting Worse at His Job**\
 `“Trump loses more often, on more things, than most.”`\
 https://www.nytimes.com/2026/06/05/opinion/trump-republicans-congress.html
-
-**Five Science Fiction Movies to Stream Now**\
-`In this month’s picks, fatal fungi and killer calamari. Plus, lots of zombies (and a few podcasters).`\
-https://www.nytimes.com/2026/06/05/movies/science-fiction-movies-streaming.html
-
-**Casting Her 10,000th Vote in a Row, Collins Sets a Senate Record**\
-`The Maine Republican, who is in the middle of a tumultuous re-election race, became the first senator in history to reach the threshold without missing a vote.`\
-https://www.nytimes.com/2026/06/05/us/politics/susan-collins-votes-streak-senate.html
 
 **Employers Added a Robust 172,000 Jobs in May**\
 `Unemployment remained steady at 4.3 percent.`\
