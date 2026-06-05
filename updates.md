@@ -1,3 +1,7 @@
+**Raman Gains on Pratt in L.A. Mayor Race But Many Ballots Remain**\
+`Nithya Raman’s vote count still remains well behind Spencer Pratt’s, but hundreds of thousands of ballots remain to be counted in Los Angeles over the next few weeks.`\
+https://www.nytimes.com/2026/06/04/us/elections/raman-pratt-los-angeles-mayor.html
+
 **What To Know as China’s Xi Jinping Heads to North Korea**\
 `As Xi Jinping visits Pyongyang, he faces an emboldened North Korean dictator, whose alliance with Russia has reduced his dependence on China.`\
 https://www.nytimes.com/2026/06/04/world/asia/china-north-korea-xi-jinping-visit.html
