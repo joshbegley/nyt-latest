@@ -1,3 +1,7 @@
+**Onstage and Off**\
+`The Tony Awards are this weekend. We explore what the ceremony is all about.`\
+https://www.nytimes.com/2026/06/05/briefing/tonys-broadway-theater.html
+
 **Elon Musk Dominates List of Highest Paid C.E.O.s**\
 `Executive compensation is accelerating while rank-and-file workers lag, widening the pay gap in corporate America.`\
 https://www.nytimes.com/2026/06/05/business/highest-paid-ceos-elon-musk.html
