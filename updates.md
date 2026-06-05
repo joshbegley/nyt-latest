@@ -1,3 +1,7 @@
+**Patel Said to Have Fired Five F.B.I. Analysts Over Memo on Catholic Extremists**\
+`It is the administration’s latest effort to force out law enforcement personnel it accuses of “weaponizing” the government against President Trump and his supporters.`\
+https://www.nytimes.com/2026/06/05/us/politics/patel-firings-richmond-memo.html
+
 **Justice Dept. Promises to Drop Trump’s $1.8 Billion Fund**\
 `It was the department’s clearest statement to date that it was pulling back from a plan to use taxpayer money to make payments to people who claimed to have been politically persecuted.`\
 https://www.nytimes.com/2026/06/05/us/politics/trump-fund-doj.html
