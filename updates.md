@@ -1,3 +1,11 @@
+**What Are Democrats’ Best Senate Pickup Opportunities?**\
+`We’ve grouped six battleground states by some of the factors that shape how likely it is for the party to flip each Senate seat.`\
+https://www.nytimes.com/2026/06/05/upshot/democrats-senate-midterms-analysis.html
+
+**Spelman College Names Ayanna Howard, an A.I. Expert, as President**\
+`The appointment of Ayanna Howard, a roboticist, was a departure for the top-ranked H.B.C.U., which has a liberal arts focus.`\
+https://www.nytimes.com/2026/06/05/us/spelman-college-president-ayanna-howard.html
+
 **Muere James Handy, actor de ‘Top Gun: Maverick’**\
 `El actor, de 81 años, había participado en películas como “Top Gun: Maverick” y “Aracnofobia”. El hijo de su novia fue detenido y acusado de asesinato.`\
 https://www.nytimes.com/es/2026/06/05/espanol/james-handy-muere-apunalado.html
