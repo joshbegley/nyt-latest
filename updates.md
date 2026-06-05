@@ -1,3 +1,11 @@
+**Several Republicans Break With Trump to Pass Ukraine Aid Bill**\
+`Eighteen Republican lawmakers joined Democrats on Thursday to pass a bill that would provide new aid to Ukraine, clashing with President Trump’s foreign policy agenda.`\
+https://www.nytimes.com/video/us/politics/100000010946594/house-republicans-ukraine-aid.html
+
+**Pommelien Thijs, la estrella pop amada por la mitad de Bélgica**\
+`Las pegadizas canciones de Thijs son adoradas en Bélgica, al menos en la parte neerlandesa.`\
+https://www.nytimes.com/es/2026/06/05/espanol/cultura/pommelien-thijs-pop-belgica.html
+
 **Late Night Sizes Up Trump’s Reflecting-Pool Ambitions**\
 `“One thing we know for sure is that Trump is definitely obsessed with size,” Seth Meyers said of the president’s bragging about the Lincoln Memorial Reflecting Pool.`\
 https://www.nytimes.com/2026/06/05/arts/television/late-night-trump-lincoln-memorial-reflecting-pool.html
