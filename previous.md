@@ -1,3 +1,7 @@
+**Iran Fired Attack Drones Toward Strait of Hormuz, U.S. Official Says**\
+`The latest violence between the United States and Iran threatened a cease-fire and risked further stoking tensions in the region.`\
+https://www.nytimes.com/2026/06/05/us/politics/iran-attack-drones-hormuz.html
+
 **Iran’s Soccer Team Allowed Into U.S. for World Cup, but Many Staff Denied**\
 `After months of doubts over their participation, Iran’s players have received visas for the United States just days before the World Cup begins.`\
 https://www.nytimes.com/2026/06/05/world/middleeast/world-cup-iran-football-team-visas-war.html
@@ -38,8 +42,8 @@ https://www.nytimes.com/2026/06/05/briefing/judge-trump-immigration-policies.htm
 `Dawa Sherpa, a Mount Everest guide, was found alive on Thursday, six days after he went missing.`\
 https://www.nytimes.com/video/world/asia/100000010945549/mount-everest-sherpa-found-alive.html
 
-**Council Speaker Urged to Act After Member’s Anti-Muslim Post**\
-`Interfaith leaders said the lack of response by City Council Speaker Julie Menin to anti-Muslim statements made by Councilwoman Inna Vernikov called the city’s commitment to protecting Muslims into question.`\
+**Council Speaker Urged to Act After Member’s Anti-Muslim Posts**\
+`Interfaith leaders said City Council Speaker Julie Menin’s lack of response to Councilwoman Inna Vernikov’s Islamophobic statements called the city’s commitment to protecting Muslims into question.`\
 https://www.nytimes.com/2026/06/05/nyregion/inna-vernikov-julie-menin-muslim.html
 
 **Police Remove Diabetes Experts From Conference for Distributing Critique of Trump Administration**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/05/business/media/60-minutes-cbs-stahl-whitaker-
 **Man Who Schemed With Au Pair to Kill His Wife Is Sentenced to Life**\
 `Brendan Banfield was found guilty of murdering his wife and another man, who was lured in through a fetish website. The plan involved his lover, who is now serving 10 years in prison.`\
 https://www.nytimes.com/2026/06/05/us/brendan-banfield-sentence.html
-
-**Employers Added a Robust 172,000 Jobs in May**\
-`Unemployment remained steady at 4.3 percent.`\
-https://www.nytimes.com/live/2026/business/jobs-report-economy
 

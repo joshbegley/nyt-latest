@@ -42,7 +42,7 @@ https://www.nytimes.com/2026/06/05/briefing/judge-trump-immigration-policies.htm
 `Dawa Sherpa, a Mount Everest guide, was found alive on Thursday, six days after he went missing.`\
 https://www.nytimes.com/video/world/asia/100000010945549/mount-everest-sherpa-found-alive.html
 
-**Council Speaker Urged to Act After Member’s Anti-Muslim Posts**\
+**N.Y.C. Council Speaker Urged to Act After Member’s Anti-Muslim Posts**\
 `Interfaith leaders said City Council Speaker Julie Menin’s lack of response to Councilwoman Inna Vernikov’s Islamophobic statements called the city’s commitment to protecting Muslims into question.`\
 https://www.nytimes.com/2026/06/05/nyregion/inna-vernikov-julie-menin-muslim.html
 
