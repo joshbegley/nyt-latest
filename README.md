@@ -1,3 +1,7 @@
+**Europe Needs New Military Alliance to Defend Itself, Italy Says**\
+`Guido Crosetto, Italy’s defense minister, said in an interview that European nations should forge a new joint defense system and take greater responsibility for their own security.`\
+https://www.nytimes.com/2026/06/05/world/europe/eu-italy-defense-military-alliance-crosetto.html
+
 **On Patrol With Tokyo’s New Litter Police**\
 `Visitor numbers to Shibuya are surging and trash cans are scarce. Enter the city patrol.`\
 https://www.nytimes.com/2026/06/05/world/asia/japan-tokyo-littering-fines.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/embedded/magazine/100000010919715/14mag-farming-1.
 **Book Review: ‘The Man Who Stole the Gods,’ by Matthew Campbell**\
 `In “The Man Who Stole the Gods,” Matthew Campbell recounts a shocking, decades-long crime and the search for its perpetrator.`\
 https://www.nytimes.com/2026/06/05/books/review/man-who-stole-the-gods-matthew-campbell.html
-
-**Book Review: ‘Villa Coco,’ by Andrew Sean Greer**\
-`Following his “Less” books with “Villa Coco,” Andrew Sean Greer drops an aimless postgraduate into a glamorous, romantic and secret-laden setting.`\
-https://www.nytimes.com/2026/06/05/books/review/villa-coco-andrew-sean-greer.html
 
