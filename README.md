@@ -1,3 +1,11 @@
+**What Are Democrats’ Best Senate Pickup Opportunities?**\
+`We’ve grouped six battleground states by some of the factors that shape how likely it is for the party to flip each Senate seat.`\
+https://www.nytimes.com/2026/06/05/upshot/democrats-senate-midterms-analysis.html
+
+**Spelman College Names Ayanna Howard, an A.I. Expert, as President**\
+`The appointment of Ayanna Howard, a roboticist, was a departure for the top-ranked H.B.C.U., which has a liberal arts focus.`\
+https://www.nytimes.com/2026/06/05/us/spelman-college-president-ayanna-howard.html
+
 **Muere James Handy, actor de ‘Top Gun: Maverick’**\
 `El actor, de 81 años, había participado en películas como “Top Gun: Maverick” y “Aracnofobia”. El hijo de su novia fue detenido y acusado de asesinato.`\
 https://www.nytimes.com/es/2026/06/05/espanol/james-handy-muere-apunalado.html
@@ -181,16 +189,4 @@ https://www.nytimes.com/2026/06/05/world/africa/congo-ebola-gold-mine.html
 **Anna Paulina Luna Wants Everything Disclosed**\
 `Anna Paulina Luna on Epstein, J.F.K. and U.F.O.s.`\
 https://www.nytimes.com/2026/06/05/opinion/anna-paulina-luna-epstein-jfk-ufo-conspiracy.html
-
-**The New Right’s Very Old Vision of Men**\
-`The journalist Helen Lewis examines the ancient, angry gender politics of the New Right.`\
-https://www.nytimes.com/video/opinion/100000010940546/the-new-rights-very-old-vision-of-men.html
-
-**Who Should Win a Tony? Vote for Your Favorites.**\
-`Broadway’s biggest night is almost here, and we’re asking readers to weigh in on eight categories.`\
-https://www.nytimes.com/interactive/2026/06/05/theater/tonys-reader-voting.html
-
-**A Summer Book Recommendation Bonanza**\
-`From doppelgängers to dark academia, the Book Review editors share some of their most-anticipated titles.`\
-https://www.nytimes.com/2026/06/05/podcasts/tbr-summer-books-roundup.html
 
