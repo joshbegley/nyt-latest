@@ -1,3 +1,7 @@
+**A Question Swirling Around Putin’s Big Conference: Could the War End?**\
+`At the St. Petersburg economic forum, business and political elites said Russia faced a choice of halting the conflict or sacrificing more. Vladimir Putin seemed to signal more war.`\
+https://www.nytimes.com/2026/06/05/world/europe/putin-war-st-petersburg-economic-forum.html
+
 **U.S. Forest Service to Open Millions of Acres to Off-Road Vehicles**\
 `The forthcoming order echoes President Trump’s decision to repeal executive orders that have protected other public lands from vehicles for decades.`\
 https://www.nytimes.com/2026/06/05/climate/national-forests-off-road-vehicles-public-lands-trump.html
