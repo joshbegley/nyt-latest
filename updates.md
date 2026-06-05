@@ -1,3 +1,19 @@
+**The Supreme Court’s Jim Crow Logic**\
+`In Alabama, the Supreme Court just dismantled key protections against racial discrimination in voting, and they did it under the guise of a “colorblind Constitution.” The Times Opinion columnist Jamelle Bouie argues that in doing so, the court is resurrecting a form of judicial blindness that “gave us Jim Crow and so much worse.”`\
+https://www.nytimes.com/video/opinion/100000010945325/the-supreme-courts-jim-crow-logic.html
+
+**Trump Says Lee Greenwood and Christopher Macchio Will Replace Freedom 250 Artists**\
+`Artists including Young MC, Martina McBride and Bret Michaels had publicly dropped out of concerts scheduled for the National Mall.`\
+https://www.nytimes.com/2026/06/05/arts/music/freedom-250-trump-lee-greenwood-christopher-macchio.html
+
+**Deal to Renew FISA Surveillance Law Falters in the Senate Over Pulte**\
+`Democrats who had been expected to supply the votes necessary to advance it balked after President Trump named Bill Pulte to head the intelligence apparatus.`\
+https://www.nytimes.com/2026/06/05/us/politics/fisa-surveillance-law-senate-pulte-trump.html
+
+**Hopes of Lebanon Cease-fire Falter as Israel and Hezbollah Fight On**\
+`The U.S.-brokered agreement requires Hezbollah, which Iran backs, to stop firing first. But the group, not party to the talks, rejected the conditions as a virtual surrender.`\
+https://www.nytimes.com/2026/06/05/world/middleeast/lebanon-cease-fire-israel-hezbollah.html
+
 **Summer Reading Contest, Week 1: What Got Your Attention in The Times This Week?**\
 `To participate, submit your response here by June 12 at 9 a.m. Eastern. This week’s winners will be announced by June 24.`\
 https://www.nytimes.com/2026/06/05/learning/summer-reading-contest-week-1-what-got-your-attention-in-the-times-this-week.html

@@ -1,3 +1,15 @@
+**The Supreme Court’s Jim Crow Logic**\
+`In Alabama, the Supreme Court just dismantled key protections against racial discrimination in voting, and they did it under the guise of a “colorblind Constitution.” The Times Opinion columnist Jamelle Bouie argues that in doing so, the court is resurrecting a form of judicial blindness that “gave us Jim Crow and so much worse.”`\
+https://www.nytimes.com/video/opinion/100000010945325/the-supreme-courts-jim-crow-logic.html
+
+**Trump Says Lee Greenwood and Christopher Macchio Will Replace Freedom 250 Artists**\
+`Artists including Young MC, Martina McBride and Bret Michaels had publicly dropped out of concerts scheduled for the National Mall.`\
+https://www.nytimes.com/2026/06/05/arts/music/freedom-250-trump-lee-greenwood-christopher-macchio.html
+
+**Deal to Renew FISA Surveillance Law Falters in the Senate Over Pulte**\
+`Democrats who had been expected to supply the votes necessary to advance it balked after President Trump named Bill Pulte to head the intelligence apparatus.`\
+https://www.nytimes.com/2026/06/05/us/politics/fisa-surveillance-law-senate-pulte-trump.html
+
 **Summer Reading Contest, Week 1: What Got Your Attention in The Times This Week?**\
 `To participate, submit your response here by June 12 at 9 a.m. Eastern. This week’s winners will be announced by June 24.`\
 https://www.nytimes.com/2026/06/05/learning/summer-reading-contest-week-1-what-got-your-attention-in-the-times-this-week.html
@@ -18,7 +30,7 @@ https://www.nytimes.com/2026/06/05/theater/morgan-bassichis-can-i-be-frank.html
 `The artificial intelligence giant said a “brake pedal” was needed to protect humanity from self-improving models. The proposal could have big consequences.`\
 https://www.nytimes.com/2026/06/05/business/dealbook/anthropic-ai-nonproliferation.html
 
-**Hopes of Lebanon Cease-fire Falter as Israel and Hezbollah Fight**\
+**Hopes of Lebanon Cease-fire Falter as Israel and Hezbollah Fight On**\
 `The U.S.-brokered agreement requires Hezbollah, which Iran backs, to stop firing first. But the group, not party to the talks, rejected the conditions as a virtual surrender.`\
 https://www.nytimes.com/2026/06/05/world/middleeast/lebanon-cease-fire-israel-hezbollah.html
 
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/06/05/world/europe/armenia-election-russia-disinfor
 **The Lasting Cost of Graduating Into a Tough Job Market**\
 `Sydney Ember, a Times business reporter, has been speaking with recent college graduates struggling to find work. She explains how starting a career in a weak job market can leave lasting scars on wages and opportunities.`\
 https://www.nytimes.com/video/business/100000010938226/the-lasting-cost-of-graduating-into-a-tough-job-market.html
-
-**5 Children’s Movies to Stream Now**\
-`This month’s picks include two choices for young sports fans and a summer blockbuster.`\
-https://www.nytimes.com/2026/06/05/movies/kids-movies-streaming-now.html
-
-**A Murdoch Builds His Own Media Empire. Is This ‘Succession’ or Secession?**\
-`James Murdoch says acquiring New York magazine and Vox has nothing to do with his father. But in some ways, it’s a tribute.`\
-https://www.nytimes.com/2026/06/05/magazine/james-murdoch-vox-new-york-magazine.html
-
-**Many Trump Voters Are Unhappy With Handling of Iran, Economy and More Issues**\
-`The president’s base is thought to be unmovable. But one-third of these voters say they are unhappy about certain issues and are not knee-jerk loyalists.`\
-https://www.nytimes.com/2026/06/05/us/politics/trump-voters-iran-economy.html
 
