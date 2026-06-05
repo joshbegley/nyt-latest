@@ -1,3 +1,7 @@
+**In ‘Can I Be Frank?,’ Imitation Is the Sincerest Form of Tragedy**\
+`Morgan Bassichis, whose solo show “Can I Be Frank?” resurrects an act by Frank Maya, joins others this season who are recreating the works of deceased artists.`\
+https://www.nytimes.com/2026/06/05/theater/morgan-bassichis-can-i-be-frank.html
+
 **Anthropic’s Call for A.I. Nonproliferation**\
 `The artificial intelligence giant said a “brake pedal” was needed to protect humanity from self-improving models. The proposal could have big consequences.`\
 https://www.nytimes.com/2026/06/05/business/dealbook/anthropic-ai-nonproliferation.html
@@ -26,8 +30,8 @@ https://www.nytimes.com/2026/06/05/podcasts/hardfork-ipo-math.html
 `Andrew Mountbatten-Windsor received income from renting out three cottages at Royal Lodge, where he paid no rent himself, a British public spending watchdog found.`\
 https://www.nytimes.com/2026/06/05/world/europe/uk-prince-andrew-royal-lodge-property-sublet.html
 
-**Live Updates: Jobs Data to Give Insights on a Labor Market Finding Its Footing**\
-`Hiring and unemployment levels for May will show how forces including inflation and artificial intelligence are affecting the U.S. economy.`\
+**Live Updates: Employers Added a Robust 172,000 Jobs in May**\
+`Unemployment remained steady at 4.3 percent.`\
 https://www.nytimes.com/live/2026/business/jobs-report-economy
 
 **Los gigantes del tenis tropiezan**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/05/nyregion/getting-ready-for-the-next-big-game-
 **Can I Force My Spouse to Do Karaoke?**\
 `A ruling on a duet-related dispute.`\
 https://www.nytimes.com/interactive/2026/06/05/magazine/muppet-karaoke-hodgman-quiz.html
-
-**The Betrayal of Black Voters Threatens Our Democracy**\
-`The sweeping effort to dismantle Black-majority congressional districts in the South will have far-reaching consequences for all Americans, and for our democracy.`\
-https://www.nytimes.com/2026/06/05/opinion/voting-rights-act-black-voters-south.html
 
