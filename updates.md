@@ -1,3 +1,7 @@
+**‘The Headlines’ News Quiz: Jun. 5, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/06/05/podcasts/the-headlines/the-headlines-news-quiz-jun-5-2026.html
+
 **Onstage and off**\
 `The Tony Awards are this weekend. We explore what the ceremony is all about.`\
 https://www.nytimes.com/2026/06/05/briefing/tonys-broadway-theater.html

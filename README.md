@@ -1,3 +1,7 @@
+**Hopes of Lebanon Cease-fire Falter as Israel and Hezbollah Fight**\
+`The U.S.-brokered agreement requires Hezbollah, which Iran backs, to stop firing first. But the group, not party to the talks, rejected the conditions as a virtual surrender.`\
+https://www.nytimes.com/2026/06/05/world/middleeast/lebanon-cease-fire-israel-hezbollah.html
+
 **‘The Headlines’ News Quiz: Jun. 5, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/06/05/podcasts/the-headlines/the-headlines-news-quiz-jun-5-2026.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/05/sports/soccer/amputee-world-cup-national-team
 **Anna Paulina Luna Wants Everything Disclosed**\
 `Anna Paulina Luna on Epstein, J.F.K. and U.F.O.s.`\
 https://www.nytimes.com/video/opinion/100000010933515/the-maga-representative-crusading-against-government-secrecy.html
-
-**Crowded Airport Lounges Are Rolling Out Grab-and-Go Options**\
-`New premium pit stops are giving fliers a place for a quick bite and drink without having to line up for increasingly crowded traditional lounges.`\
-https://www.nytimes.com/2026/06/05/travel/airport-lounges-grab-and-go.html
 
