@@ -1,3 +1,7 @@
+**What to Know About California’s Top Election Races**\
+`The Republicans Steve Hilton, who is running for governor, and Spencer Pratt, running for Los Angeles mayor, have shown early strength, but that could fade as more ballots are counted.`\
+https://www.nytimes.com/2026/06/04/us/california-primary-governor-mayor-results.html
+
 **Theater Reminds Us That We’re Human**\
 `Ahead of the 2026 Tony Awards, Wesley Morris invites Helen Shaw, The Times’s chief theater critic, to help him understand this season of Broadway plays.`\
 https://www.nytimes.com/video/podcasts/100000010939373/theater-reminds-us-that-were-human.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/04/books/review/new-recommended-books.html
 **Senators Cassidy and Booker Ask Judge to Maintain Block on $1.8 Billion Fund**\
 `Bill Cassidy, a Republican, and Cory Booker, a Democrat, maintained that the fund was “an immediate and dire threat to our constitutional order and the authority of Congress.”`\
 https://www.nytimes.com/2026/06/04/us/politics/cassidy-booker-lawsuit-trump-fund.html
-
-**Kennedy Center Tells Staff to Immediately Remove Trump’s Name From Documents**\
-`The center’s general counsel also said that a federal judge’s order meant the president’s name must be taken off outdoor and indoor signage by June 12.`\
-https://www.nytimes.com/2026/06/04/arts/music/kennedy-center-trump-name-memo.html
 
 **Hezbollah Rejects Cease-Fire Deal Between Lebanon and Israel**\
 `Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, said a truce worked out between Israel and the Lebanese government amounted to surrender for his group.`\
