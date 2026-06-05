@@ -1,3 +1,7 @@
+**Word of the Day: pulchritude**\
+`This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/06/05/learning/word-of-the-day-pulchritude.html
+
 **China Builds an Economic Fortress as Global Tensions Rise**\
 `Beijing says the changes are needed for national security, but they could complicate efforts by Chinese companies to find growth overseas.`\
 https://www.nytimes.com/2026/06/05/business/china-investment-rules.html

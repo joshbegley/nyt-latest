@@ -1,3 +1,7 @@
+**Word of the Day: pulchritude**\
+`This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/06/05/learning/word-of-the-day-pulchritude.html
+
 **China Builds an Economic Fortress as Global Tensions Rise**\
 `Beijing says the changes are needed for national security, but they could complicate efforts by Chinese companies to find growth overseas.`\
 https://www.nytimes.com/2026/06/05/business/china-investment-rules.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/04/world/05int-theworld-tennis-french-open-satra
 **Art Gallery Shows to See in June**\
 `This week in Newly Reviewed, Will Heinrich files a dispatch from Los Angeles covering Charles Ray’s strangely lifelike sculptures, James Harrison’s flowers and a group show! (Exclamation point will make sense).`\
 https://www.nytimes.com/2026/06/04/arts/design/art-gallery-shows-to-see-in-june.html
-
-**Vanilla Ice Is In, Bret Michaels Is Out: Trump’s Battle for Celebrity Validation**\
-`President Trump has pursued fame his entire adult life. Now in his second term in the White House, he is finding how little power he has to force cultural figures to fall in line.`\
-https://www.nytimes.com/2026/06/04/us/trump-celebrities-vanilla-ice-freedom-250.html
 
