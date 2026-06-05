@@ -1,3 +1,11 @@
+**Platner Denies Hurting Ex-Girlfriend and Says He Will Not Quit Senate Race**\
+`In an interview after The Times reported on his treatment of women he had dated, Graham Platner acknowledged “not exactly acting with the best behavior” after his military service.`\
+https://www.nytimes.com/2026/06/04/us/politics/graham-platner-maine-senate-former-girlfriends.html
+
+**Court Reverses Convictions of Paramedics in Elijah McClain’s Death**\
+`A Colorado appeals court ordered new trials for Peter Cichuniec and Jeremy Cooper, convicted in 2023 after injecting Mr. McClain with ketamine. The court cited errors in jury instructions.`\
+https://www.nytimes.com/2026/06/04/us/elijah-mcclain-paramedics-convictions-retrials.html
+
 **Murder Charge Dropped for Arkansas Man Nominated for Lonoke County Sheriff**\
 `A judge dismissed the charge against Aaron Spencer, the Republican nominee for Lonoke County sheriff, citing missing evidence and misconduct by law enforcement officials.`\
 https://www.nytimes.com/2026/06/04/us/arkansas-lonoke-sheriff-murder-charge.html
