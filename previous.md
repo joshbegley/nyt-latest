@@ -1,3 +1,7 @@
+**Today, In Short**\
+`Touching grass. Pets. And the latest from the French Open.`\
+https://www.nytimes.com/2026/06/05/briefing/today-in-short.html
+
 **Chuck Schumer Privately Backs Haley Stevens in Michigan Democratic Senate Primary**\
 `Chuck Schumer, the Democratic minority leader, has remained officially neutral on the race, but in conservations with donors, he has been clear about which candidate he supports.`\
 https://www.nytimes.com/2026/06/05/us/politics/schumer-michigan-democratic-senate-primary.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/06/05/science/new-world-screwworm-explainer.html
 **For Jennifer Lopez and Brett Goldstein, Romance Is Everything**\
 `The Bronx-born superstar and the British comedian, who star together in the Netflix comedy “Office Romance,” have more in common than you think.`\
 https://www.nytimes.com/2026/06/05/movies/jennifer-lopez-brett-goldstein-office-romance-interview.html
-
-**MoMA’s ‘Universal Westerns’ Retrospective Shows Why They Matter**\
-`A new MoMA retrospective tracks how Universal Pictures used the western to explore changing American morals.`\
-https://www.nytimes.com/2026/06/05/movies/why-westerns-still-matter.html
 

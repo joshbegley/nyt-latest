@@ -1,3 +1,7 @@
+**Today, In Short**\
+`Touching grass. Pets. And the latest from the French Open.`\
+https://www.nytimes.com/2026/06/05/briefing/today-in-short.html
+
 **Chuck Schumer Privately Backs Haley Stevens in Michigan Democratic Senate Primary**\
 `Chuck Schumer, the Democratic minority leader, has remained officially neutral on the race, but in conservations with donors, he has been clear about which candidate he supports.`\
 https://www.nytimes.com/2026/06/05/us/politics/schumer-michigan-democratic-senate-primary.html
