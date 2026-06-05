@@ -1,3 +1,7 @@
+**Flyover No More: Central Ohio Becomes Hub for Tech and Manufacturing**\
+`Tech titans and Silicon Valley transplants changed the Columbus area, but not everyone is thrilled about the rapid transformation.`\
+https://www.nytimes.com/2026/06/05/business/ohio-tech-manufacturing-hub.html
+
 **Today, In Short**\
 `Touching grass. Pets. And the latest from the French Open.`\
 https://www.nytimes.com/2026/06/05/briefing/today-in-short.html
