@@ -1,3 +1,7 @@
+**Reid Hoffman to Leave Microsoft’s Board of Directors**\
+`The LinkedIn co-founder was a key bridge to Microsoft’s relationship with OpenAI, but he also came with some baggage.`\
+https://www.nytimes.com/2026/06/05/technology/reid-hoffman-leaving-microsoft-board.html
+
 **El Senado de EE. UU. aprueba un proyecto de ley de inmigración republicano**\
 `La aprobación de la financiación por 70.000 millones de dólares para medidas migratorias fue una victoria para el presidente Trump y su partido, aunque el debate puso de manifiesto las fisuras entre él y los senadores republicanos.`\
 https://www.nytimes.com/es/2026/06/05/espanol/estados-unidos/proyecto-de-ley-inmigracion-republicano.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/06/05/your-money/renting-security-deposit-alternati
 **James Handy, Actor in ‘Top Gun: Maverick,’ Is Found Stabbed to Death**\
 `The 81-year-old actor had parts in films including “Top Gun: Maverick” and “Arachnophobia.” The son of his girlfriend was arrested and charged with murder.`\
 https://www.nytimes.com/2026/06/05/us/james-handy-stabbed-dead-la-top-gun-jumanji.html
-
-**In ‘Can I Be Frank?,’ Imitation Is the Sincerest Form of Tragedy**\
-`Morgan Bassichis, whose solo show “Can I Be Frank?” resurrects an act by Frank Maya, joins others this season who are recreating the works of deceased artists.`\
-https://www.nytimes.com/2026/06/05/theater/morgan-bassichis-can-i-be-frank.html
 
 **Employers Added a Robust 172,000 Jobs in May**\
 `Unemployment remained steady at 4.3 percent.`\

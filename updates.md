@@ -1,3 +1,7 @@
+**Man Who Schemed With Au Pair to Kill His Wife Is Sentenced to Life**\
+`Brendan Banfield was found guilty of murdering his wife and another man, who was lured in through a fetish website. The plan involved his lover, who is now serving 10 years in prison.`\
+https://www.nytimes.com/2026/06/05/us/brendan-banfield-sentence.html
+
 **El Senado de EE. UU. aprueba un proyecto de ley de inmigración republicano**\
 `La aprobación de la financiación por 70.000 millones de dólares para medidas migratorias fue una victoria para el presidente Trump y su partido, aunque el debate puso de manifiesto las fisuras entre él y los senadores republicanos.`\
 https://www.nytimes.com/es/2026/06/05/espanol/estados-unidos/proyecto-de-ley-inmigracion-republicano.html

@@ -63,7 +63,7 @@ https://www.nytimes.com/interactive/2026/06/05/upshot/flashback.html
 https://www.nytimes.com/2026/06/05/business/media/60-minutes-cbs-stahl-whitaker-wertheim.html
 
 **Man Who Schemed With Au Pair to Kill His Wife Is Sentenced to Life**\
-`Brendan Banfield of Herndon, Va., was found guilty of murdering his wife and another man, who was lured in through a fetish website. The plan involved his lover, who is now serving 10 years in prison.`\
+`Brendan Banfield was found guilty of murdering his wife and another man, who was lured in through a fetish website. The plan involved his lover, who is now serving 10 years in prison.`\
 https://www.nytimes.com/2026/06/05/us/brendan-banfield-sentence.html
 
 **Jonathan Tropper on the ‘Your Friends & Neighbors’ Season 2 Finale**\
