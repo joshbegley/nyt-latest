@@ -1,3 +1,11 @@
+**In ‘Can I Be Frank?,’ Imitation Is the Sincerest Form of Tragedy**\
+`Morgan Bassichis, whose solo show “Can I Be Frank?” resurrects an act by Frank Maya, joins others this season who are recreating the works of deceased artists.`\
+https://www.nytimes.com/2026/06/05/theater/morgan-bassichis-can-i-be-frank.html
+
+**Live Updates: Employers Added a Robust 172,000 Jobs in May**\
+`Unemployment remained steady at 4.3 percent.`\
+https://www.nytimes.com/live/2026/business/jobs-report-economy
+
 **Anthropic’s Call for A.I. Nonproliferation**\
 `The artificial intelligence giant said a “brake pedal” was needed to protect humanity from self-improving models. The proposal could have big consequences.`\
 https://www.nytimes.com/2026/06/05/business/dealbook/anthropic-ai-nonproliferation.html
