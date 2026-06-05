@@ -1,3 +1,23 @@
+**The Priests Revered in the Land of Five Genders**\
+`The bissus of South Sulawesi are considered a link between the earthly and celestial because they are thought to embody both male and female traits.`\
+https://www.nytimes.com/2026/06/05/world/asia/transgender-priests-sulawesi-bissu-bugis.html
+
+****\
+`A self-stabbing ritual known as the ma’giri.`\
+https://www.nytimes.com/video/embedded/world/asia/100000010915084/00int-indonesia-transgender-dispatch-78220.html
+
+****\
+`While reciting sacred mantras, the bissus made offerings to honor their ancestors and ward off misfortune.`\
+https://www.nytimes.com/video/embedded/world/asia/100000010915082/00int-indonesia-transgender-dispatch-72166.html
+
+**Quote of the Day: Ireland, Seen as a Weak Link in Europe’s Defense, Tries to Bulk Up**\
+`Quotation of the Day for Friday, June 5, 2026.`\
+https://www.nytimes.com/2026/06/05/pageoneplus/quote-of-the-day-ireland-seen-as-a-weak-link-in-europes-defense-tries-to-bulk-up.html
+
+**Russia Rails Against the West but Welcomes Candace Owens and Andrew Tate**\
+`While some powerful Russians shun the West, others want to restore ties and embrace friendly Westerners. President Vladimir V. Putin’s annual economic conference illustrates the conflicting impulses.`\
+https://www.nytimes.com/2026/06/05/world/europe/st-petersburg-forum-candace-owens.html
+
 **A Rainy Japanese Rock Festival Proved They Could Weather Anything**\
 `Ana Escalante and Robert Lucas didn’t especially like each other through most of high school, but a coffee date their senior year changed all that.`\
 https://www.nytimes.com/2026/06/05/style/ana-escalante-robert-lucas-wedding.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/06/04/world/europe/boeing-plane-nose-gear-collapse-
 **Several Workers Injured After Boeing 787-9 Dreamliner Collapses**\
 `The aircraft’s nose gear collapsed as it was parked at Frankfurt Airport on Thursday. Two cabin crew members and an unspecified number of service workers sustained minor injuries.`\
 https://www.nytimes.com/video/travel/100000010945734/lufthansa-airplane-collapse-germany.html
-
-**ICE Agent Charged in Minnesota Shooting Will Not Waive Extradition**\
-`Christian Castro, who is jailed in Texas, was charged with assault in connection with a January shooting that wounded a man.`\
-https://www.nytimes.com/2026/06/04/us/ice-agent-minnesota-shooting-extradition.html
-
-**Wall Street Is Going Gaga for SpaceX**\
-`Jamie Dimon himself is planning to pitch investors on the offering of Elon Musk’s rocket company, as banks prepare to reap huge fees from the largest I.P.O. ever.`\
-https://www.nytimes.com/2026/06/04/business/wall-street-jamie-dimon-spacex.html
-
-**As Trump Toughens Rules on Cuba’s Economy, Hotel Chains Withdraw**\
-`The Trump administration’s efforts to tighten the economic noose on Cuba appear to be working, as more international firms announced they would leave the island.`\
-https://www.nytimes.com/2026/06/04/world/americas/cuba-hotels-economy-trump.html
-
-**Brian Cox Really Loves Soccer. He Thinks You Should, Too.**\
-`Adam Crafton sits down with the ‘Succession’ actor about what the game means to him.`\
-https://www.nytimes.com/2026/06/04/podcasts/brian-cox-really-loves-soccer-he-thinks-you-should-too.html
-
-**Several Women Who Dated Graham Platner Recall ‘Unsettling’ Behavior**\
-`The Democratic candidate for Senate in Maine could be charming, women said in interviews, but some found his actions intimidating and disturbing.`\
-https://www.nytimes.com/2026/06/04/us/politics/platner-maine-senate-girlfriends-relationships.html
 

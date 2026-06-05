@@ -1,3 +1,23 @@
+**The Priests Revered in the Land of Five Genders**\
+`The bissus of South Sulawesi are considered a link between the earthly and celestial because they are thought to embody both male and female traits.`\
+https://www.nytimes.com/2026/06/05/world/asia/transgender-priests-sulawesi-bissu-bugis.html
+
+****\
+`A self-stabbing ritual known as the ma’giri.`\
+https://www.nytimes.com/video/embedded/world/asia/100000010915084/00int-indonesia-transgender-dispatch-78220.html
+
+****\
+`While reciting sacred mantras, the bissus made offerings to honor their ancestors and ward off misfortune.`\
+https://www.nytimes.com/video/embedded/world/asia/100000010915082/00int-indonesia-transgender-dispatch-72166.html
+
+**Quote of the Day: Ireland, Seen as a Weak Link in Europe’s Defense, Tries to Bulk Up**\
+`Quotation of the Day for Friday, June 5, 2026.`\
+https://www.nytimes.com/2026/06/05/pageoneplus/quote-of-the-day-ireland-seen-as-a-weak-link-in-europes-defense-tries-to-bulk-up.html
+
+**Russia Rails Against the West but Welcomes Candace Owens and Andrew Tate**\
+`While some powerful Russians shun the West, others want to restore ties and embrace friendly Westerners. President Vladimir V. Putin’s annual economic conference illustrates the conflicting impulses.`\
+https://www.nytimes.com/2026/06/05/world/europe/st-petersburg-forum-candace-owens.html
+
 **A Rainy Japanese Rock Festival Proved They Could Weather Anything**\
 `Ana Escalante and Robert Lucas didn’t especially like each other through most of high school, but a coffee date their senior year changed all that.`\
 https://www.nytimes.com/2026/06/05/style/ana-escalante-robert-lucas-wedding.html
