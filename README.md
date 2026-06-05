@@ -1,3 +1,7 @@
+**Pommelien Thijs, la estrella pop amada por la mitad de Bélgica**\
+`Las pegadizas canciones de Thijs son adoradas en Bélgica, al menos en la parte neerlandesa.`\
+https://www.nytimes.com/es/2026/06/05/espanol/cultura/pommelien-thijs-pop-belgica.html
+
 **Late Night Sizes Up Trump’s Reflecting-Pool Ambitions**\
 `“One thing we know for sure is that Trump is definitely obsessed with size,” Seth Meyers said of the president’s bragging about the Lincoln Memorial Reflecting Pool.`\
 https://www.nytimes.com/2026/06/05/arts/television/late-night-trump-lincoln-memorial-reflecting-pool.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/04/us/sanctions-iran-nuclear-military-violations
 **Officer Charged With Stealing Journalist’s Camera Bag at Delaney Hall ICE Protest**\
 `Darryl Brown, a sergeant with the Essex County Prosecutor’s Office, is accused of taking home a bag dropped by a photojournalist outside the Delaney Hall immigration detention center in Newark.`\
 https://www.nytimes.com/2026/06/04/nyregion/delaney-hall-protest-officer-charged-stealing.html
-
-**Trump’s Fraud Claims in California Could Undermine Confidence in November Result**\
-`The president is claiming without evidence that the lengthy counting process in California, which could help determine control of Congress, means Democrats are stealing the election.`\
-https://www.nytimes.com/2026/06/04/us/politics/-trump-vote-fraud.html
 
