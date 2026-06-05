@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Judge Says Government Must Restart Asylum and Immigration Processing**\
+`(No description)`\
+https://www.nytimes.com/live/2026/06/05/us/trump-news
+
 **First U.S. Screwworm Case Since 1960s Prompts Texas Emergency Response**\
 `After a screwworm infestation was confirmed in a South Texas calf, officials launched an aggressive effort to prevent the parasite from spreading in the nation’s largest cattle-producing state.`\
 https://www.nytimes.com/2026/06/05/us/texas-screwworm-first-us-case-emergency-response-abbott.html

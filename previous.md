@@ -182,9 +182,9 @@ https://www.nytimes.com/2026/06/05/technology/spacex-indexes-401k.html
 `We’ve grouped six battleground states by some of the factors that shape how likely it is for the party to flip each Senate seat.`\
 https://www.nytimes.com/2026/06/05/upshot/democrats-senate-midterms-analysis.html
 
-**Spelman College Names Ayanna Howard, an A.I. Expert, as President**\
-`The appointment of Ayanna Howard, a roboticist, was a departure for the top-ranked H.B.C.U., which has a liberal arts focus.`\
-https://www.nytimes.com/2026/06/05/us/spelman-college-president-ayanna-howard.html
+**Trump Administration Live Updates: Judge Says Government Must Restart Asylum and Immigration Processing**\
+`(No description)`\
+https://www.nytimes.com/live/2026/06/05/us/trump-news
 
 **Employers Added a Robust 172,000 Jobs in May**\
 `Unemployment remained steady at 4.3 percent.`\

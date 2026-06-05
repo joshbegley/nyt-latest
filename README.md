@@ -1,3 +1,7 @@
+**Trump Arch Will Need Red Lights, F.A.A. Says**\
+`The Federal Aviation Administration advised that if the Trump administration adds red obstruction lights to the arch design, it is likely to pose no risk to local aviation.`\
+https://www.nytimes.com/2026/06/05/us/politics/trump-arch-will-need-red-lights-faa-says.html
+
 **First U.S. Screwworm Case Since 1960s Prompts Texas Emergency Response**\
 `After a screwworm infestation was confirmed in a South Texas calf, officials launched an aggressive effort to prevent the parasite from spreading in the nation’s largest cattle-producing state.`\
 https://www.nytimes.com/2026/06/05/us/texas-screwworm-first-us-case-emergency-response-abbott.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/06/05/technology/spacex-indexes-401k.html
 **What Are Democrats’ Best Senate Pickup Opportunities?**\
 `We’ve grouped six battleground states by some of the factors that shape how likely it is for the party to flip each Senate seat.`\
 https://www.nytimes.com/2026/06/05/upshot/democrats-senate-midterms-analysis.html
-
-**Trump Administration Live Updates: Judge Says Government Must Restart Asylum and Immigration Processing**\
-`(No description)`\
-https://www.nytimes.com/live/2026/06/05/us/trump-news
 
 **Employers Added a Robust 172,000 Jobs in May**\
 `Unemployment remained steady at 4.3 percent.`\
