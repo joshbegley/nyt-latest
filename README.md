@@ -1,3 +1,7 @@
+**‘Girl, Interrupted’ Review: A Musical That’s a Little Too Tranquilized**\
+`While the 1999 movie went for melodrama, this stage adaptation with songs by Aimee Mann honors the memoir’s coolly clinical prose.`\
+https://www.nytimes.com/2026/06/04/theater/girl-interrupted-review-mann-majok-king-princess-canfield.html
+
 **‘Office Romance’ Review: Prepare for Turbulence**\
 `Jennifer Lopez and Brett Goldstein cause professional headaches in this workplace comedy about an airline.`\
 https://www.nytimes.com/2026/06/04/movies/office-romance-review.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/es/2026/06/04/espanol/estados-unidos/trump-republicanos-
 **What to Know About the Arrest of ICE Protesters at Delaney Hall in New Jersey**\
 `At least 90 people have been arrested during turbulent protests outside the Delaney Hall immigrant detention center in New Jersey over the past two weeks.`\
 https://www.nytimes.com/2026/06/04/nyregion/delaney-hall-protests-charges.html
-
-**Books Our Editors Loved This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://www.nytimes.com/2026/06/04/books/review/new-recommended-books.html
 
 **Hezbollah Rejects Cease-Fire Deal Between Lebanon and Israel**\
 `Hezbollah’s leader said the Iran-backed group, which was not included in U.S.-brokered talks, said a truce worked out between Israel and the Lebanese government amounted to surrender for his group.`\

@@ -1,3 +1,7 @@
+**Ohio State Agrees to $100 Million Payout Over Sexual Abuse Claims**\
+`The deal with 279 former students is the latest in the long-running case at the university. In all, nearly 600 people who said they were abused by an athletic department doctor have settled.`\
+https://www.nytimes.com/2026/06/04/us/ohio-state-sexual-abuse-settlement.html
+
 **‘Office Romance’ Review: Prepare for Turbulence**\
 `Jennifer Lopez and Brett Goldstein cause professional headaches in this workplace comedy about an airline.`\
 https://www.nytimes.com/2026/06/04/movies/office-romance-review.html
