@@ -1,4 +1,24 @@
-**Flyover No More: Central Ohio Becomes Hub for Tech and Manufacturing**\
+**Jonathan Tropper on the ‘Your Friends & Neighbors’ Season 2 Finale**\
+`“We are skewering a value system,” the creator Jonathan Tropper said of the series. “But at the same time, we’re making the show aspirational.”`\
+https://www.nytimes.com/2026/06/05/arts/television/your-friends-neighbors-finale.html
+
+**Judge Says Trump Officials Must Restart Asylum and Immigration Processing**\
+`The judge invalidated policies the Trump administration enacted last year that halted asylum grants, as well as the processing of immigration benefits for people from 39 countries.`\
+https://www.nytimes.com/2026/06/05/us/politics/asylum-immigration-ruling.html
+
+**Crown Princess Mette-Marit of Norway Is Placed on Lung Transplant List**\
+`News of Crown Princess Mette-Marit’s worsening condition comes as a number of scandals have plunged the royal family into a deep crisis.`\
+https://www.nytimes.com/2026/06/05/world/europe/norway-princess-lung-transplant.html
+
+**Tom Colicchio Will Close Craft, His Flagship Restaurant, After 25 Years**\
+`The chef said that running a restaurant in New York — and the clientele — had changed in the last couple of years.`\
+https://www.nytimes.com/2026/06/05/dining/craft-restaurant-closing-tom-colicchio.html
+
+**Hermès Brings Parisian Flair to Bel Air**\
+`The French fashion house stages its first women’s show in Los Angeles, with a lot of leather and some West Coast glam.`\
+https://www.nytimes.com/2026/06/05/style/hermes-show-los-angeles.html
+
+**Central Ohio Becomes Hub for Tech and Manufacturing**\
 `Tech titans and Silicon Valley transplants changed the Columbus area, but not everyone is thrilled about the rapid transformation.`\
 https://www.nytimes.com/2026/06/05/business/ohio-tech-manufacturing-hub.html
 
@@ -7,10 +27,10 @@ https://www.nytimes.com/2026/06/05/business/ohio-tech-manufacturing-hub.html
 https://www.nytimes.com/2026/06/05/briefing/today-in-short.html
 
 **Chuck Schumer Privately Backs Haley Stevens in Michigan Democratic Senate Primary**\
-`Chuck Schumer, the Democratic minority leader, has remained officially neutral on the race, but in conservations with donors, he has been clear about which candidate he supports.`\
+`Chuck Schumer, the Democratic minority leader, has remained officially neutral on the race, but in conversations with donors, he has been clear about which candidate he supports.`\
 https://www.nytimes.com/2026/06/05/us/politics/schumer-michigan-democratic-senate-primary.html
 
-**Leaks on Space Station Lead Astronauts to Seek Shelter in Spacecraft**\
+**Leaks on Space Station Lead Astronauts to Briefly Seek Shelter in Spacecraft**\
 `Russian astronauts prepared to make repairs on Friday morning, but after an hour and a half, officials decided no urgent action was needed.`\
 https://www.nytimes.com/2026/06/05/science/iss-air-leaks-nasa.html
 
@@ -165,28 +185,4 @@ https://www.nytimes.com/2026/06/05/world/asia/japan-tokyo-littering-fines.html
 **The New York Times News Quiz, June 5, 2026**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://www.nytimes.com/interactive/2026/06/05/briefing/quiz-elections-war-powers-kuwait-spacex.html
-
-**¿Una sola inyección para controlar el colesterol de por vida? Un estudio señala que podría ser posible**\
-`En un pequeño ensayo, la infusión de un fármaco experimental de edición genética pareció reducir el colesterol LDL a largo plazo. De sostenerse, sería un eficaz tratamiento preventivo para las enfermedades cardíacas.`\
-https://www.nytimes.com/es/2026/06/05/espanol/ciencia-y-tecnologia/colesterol-nuevo-estudio-tratamiento.html
-
-**Nadie entendía su dolor, así que lo llevó a TikTok**\
-`Las cuentas sobre duelo en las redes sociales han convertido a algunas personas en influentes de la pérdida con un gran número de seguidores.`\
-https://www.nytimes.com/es/2026/06/05/espanol/estilos-de-vida/duelo-influencers-tiktok.html
-
-**6 cosas que podrían frenar tu rendimiento cuando corres**\
-`Fisioterapeutas, entrenadores y otros expertos quieren corregir algunas creencias erróneas sobre este deporte.`\
-https://www.nytimes.com/es/2026/06/05/espanol/estilos-de-vida/mitos-running-correr.html
-
-**Backed by Trump, Opposed by Putin, and Fighting for His Political Life**\
-`Prime Minister Nikol Pashinyan of Armenia is seeking re-election as his country weighs questions of war and peace, of autocracy and democracy, and of subjugation and independence.`\
-https://www.nytimes.com/2026/06/05/world/europe/armenia-election-russia.html
-
-**$2.6 Million Homes in Sicily**\
-`A stone house with views of Mount Etna, an 1893 villa with seven bedrooms, and a seaside house in six-bathroom house in Porto Ulisse.`\
-https://www.nytimes.com/2026/06/05/realestate/2-6-million-homes-in-sicily.html
-
-**The New World Screwworm Is Back. Here’s What That Means.**\
-`Here’s why farmers and scientists are concerned over the New World screwworm’s unwelcome return to the United States.`\
-https://www.nytimes.com/2026/06/05/science/new-world-screwworm-explainer.html
 

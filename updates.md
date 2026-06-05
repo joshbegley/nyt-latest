@@ -1,3 +1,35 @@
+**Jonathan Tropper on the ‘Your Friends & Neighbors’ Season 2 Finale**\
+`“We are skewering a value system,” the creator Jonathan Tropper said of the series. “But at the same time, we’re making the show aspirational.”`\
+https://www.nytimes.com/2026/06/05/arts/television/your-friends-neighbors-finale.html
+
+**Judge Says Trump Officials Must Restart Asylum and Immigration Processing**\
+`The judge invalidated policies the Trump administration enacted last year that halted asylum grants, as well as the processing of immigration benefits for people from 39 countries.`\
+https://www.nytimes.com/2026/06/05/us/politics/asylum-immigration-ruling.html
+
+**Crown Princess Mette-Marit of Norway Is Placed on Lung Transplant List**\
+`News of Crown Princess Mette-Marit’s worsening condition comes as a number of scandals have plunged the royal family into a deep crisis.`\
+https://www.nytimes.com/2026/06/05/world/europe/norway-princess-lung-transplant.html
+
+**Tom Colicchio Will Close Craft, His Flagship Restaurant, After 25 Years**\
+`The chef said that running a restaurant in New York — and the clientele — had changed in the last couple of years.`\
+https://www.nytimes.com/2026/06/05/dining/craft-restaurant-closing-tom-colicchio.html
+
+**Hermès Brings Parisian Flair to Bel Air**\
+`The French fashion house stages its first women’s show in Los Angeles, with a lot of leather and some West Coast glam.`\
+https://www.nytimes.com/2026/06/05/style/hermes-show-los-angeles.html
+
+**Central Ohio Becomes Hub for Tech and Manufacturing**\
+`Tech titans and Silicon Valley transplants changed the Columbus area, but not everyone is thrilled about the rapid transformation.`\
+https://www.nytimes.com/2026/06/05/business/ohio-tech-manufacturing-hub.html
+
+**Chuck Schumer Privately Backs Haley Stevens in Michigan Democratic Senate Primary**\
+`Chuck Schumer, the Democratic minority leader, has remained officially neutral on the race, but in conversations with donors, he has been clear about which candidate he supports.`\
+https://www.nytimes.com/2026/06/05/us/politics/schumer-michigan-democratic-senate-primary.html
+
+**Leaks on Space Station Lead Astronauts to Briefly Seek Shelter in Spacecraft**\
+`Russian astronauts prepared to make repairs on Friday morning, but after an hour and a half, officials decided no urgent action was needed.`\
+https://www.nytimes.com/2026/06/05/science/iss-air-leaks-nasa.html
+
 **Flyover No More: Central Ohio Becomes Hub for Tech and Manufacturing**\
 `Tech titans and Silicon Valley transplants changed the Columbus area, but not everyone is thrilled about the rapid transformation.`\
 https://www.nytimes.com/2026/06/05/business/ohio-tech-manufacturing-hub.html
