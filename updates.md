@@ -1,3 +1,15 @@
+**Onstage and off**\
+`The Tony Awards are this weekend. We explore what the ceremony is all about.`\
+https://www.nytimes.com/2026/06/05/briefing/tonys-broadway-theater.html
+
+**Anna Paulina Luna Wants Everything Disclosed**\
+`Anna Paulina Luna on Epstein, J.F.K. and U.F.O.s.`\
+https://www.nytimes.com/2026/06/05/opinion/anna-paulina-luna-epstein-jfk-ufo-conspiracy.html
+
+**Anna Paulina Luna Wants Everything Disclosed**\
+`Anna Paulina Luna on Epstein, J.F.K. and U.F.O.s.`\
+https://www.nytimes.com/video/opinion/100000010933515/the-maga-representative-crusading-against-government-secrecy.html
+
 **How Ebola Spreads Through Gold Mining**\
 `Our chief Africa correspondent, Declan Walsh, reports from the epicenter of the Ebola outbreak on how the gold mining industry and the outbreak are linked.`\
 https://www.nytimes.com/video/world/africa/100000010936243/how-ebola-spreads-through-gold-mining.html

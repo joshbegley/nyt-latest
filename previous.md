@@ -1,3 +1,7 @@
+**Onstage and off**\
+`The Tony Awards are this weekend. We explore what the ceremony is all about.`\
+https://www.nytimes.com/2026/06/05/briefing/tonys-broadway-theater.html
+
 **How Ebola Spreads Through Gold Mining**\
 `Our chief Africa correspondent, Declan Walsh, reports from the epicenter of the Ebola outbreak on how the gold mining industry and the outbreak are linked.`\
 https://www.nytimes.com/video/world/africa/100000010936243/how-ebola-spreads-through-gold-mining.html
@@ -122,7 +126,7 @@ https://www.nytimes.com/2026/06/05/movies/movie-review-roundup.html
 `Mining has been the lifeblood of this remote Congolese hill town for decades. Now, it is fueling the spread of a devastating outbreak.`\
 https://www.nytimes.com/2026/06/05/world/africa/congo-ebola-gold-mine.html
 
-**The MAGA Representative Crusading Against Government Secrecy**\
+**Anna Paulina Luna Wants Everything Disclosed**\
 `Anna Paulina Luna on Epstein, J.F.K. and U.F.O.s.`\
 https://www.nytimes.com/2026/06/05/opinion/anna-paulina-luna-epstein-jfk-ufo-conspiracy.html
 
@@ -182,7 +186,7 @@ https://www.nytimes.com/2026/06/05/opinion/voting-rights-act-black-voters-south.
 `With the Amputee Football World Cup nearing, an elite squad of athletes gathered on Long Island to vie for a spot on the national men’s team, displaying skill and grit.`\
 https://www.nytimes.com/2026/06/05/sports/soccer/amputee-world-cup-national-team.html
 
-**The MAGA Representative Crusading Against Government Secrecy**\
+**Anna Paulina Luna Wants Everything Disclosed**\
 `Anna Paulina Luna on Epstein, J.F.K. and U.F.O.s.`\
 https://www.nytimes.com/video/opinion/100000010933515/the-maga-representative-crusading-against-government-secrecy.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/05/travel/airport-lounges-grab-and-go.html
 **Can Mattel Build an Empire on He-Man’s Shoulders?**\
 `“Masters of the Universe” will test whether Mattel can cement itself as an entertainment powerhouse with a hypermasculine character from the 1980s.`\
 https://www.nytimes.com/2026/06/05/business/media/he-man-mattel-masters-of-the-universe-barbie.html
-
-**Her Throat Was on Fire. What Was Wrong?**\
-`Swallowing and talking had become excruciating for the young woman, and her symptoms were progressing quickly.`\
-https://www.nytimes.com/2026/06/05/well/sore-throat-peritonsillar-abscess.html
 

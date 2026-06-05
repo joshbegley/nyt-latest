@@ -1,3 +1,7 @@
+**‘The Headlines’ News Quiz: Jun. 5, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/06/05/podcasts/the-headlines/the-headlines-news-quiz-jun-5-2026.html
+
 **Onstage and off**\
 `The Tony Awards are this weekend. We explore what the ceremony is all about.`\
 https://www.nytimes.com/2026/06/05/briefing/tonys-broadway-theater.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/opinion/100000010933515/the-maga-representative-cr
 **Crowded Airport Lounges Are Rolling Out Grab-and-Go Options**\
 `New premium pit stops are giving fliers a place for a quick bite and drink without having to line up for increasingly crowded traditional lounges.`\
 https://www.nytimes.com/2026/06/05/travel/airport-lounges-grab-and-go.html
-
-**Can Mattel Build an Empire on He-Man’s Shoulders?**\
-`“Masters of the Universe” will test whether Mattel can cement itself as an entertainment powerhouse with a hypermasculine character from the 1980s.`\
-https://www.nytimes.com/2026/06/05/business/media/he-man-mattel-masters-of-the-universe-barbie.html
 
