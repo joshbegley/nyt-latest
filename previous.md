@@ -1,3 +1,7 @@
+**Man Who Schemed With Au Pair to Kill His Wife Is Sentenced to Life**\
+`Brendan Banfield of Herndon, Va., was found guilty of murdering his wife and another man, who was lured in through a fetish website. The plan involved his lover, who is now serving 10 years in prison.`\
+https://www.nytimes.com/2026/06/05/us/brendan-banfield-sentence.html
+
 **Jonathan Tropper on the ‘Your Friends & Neighbors’ Season 2 Finale**\
 `“We are skewering a value system,” the creator Jonathan Tropper said of the series. “But at the same time, we’re making the show aspirational.”`\
 https://www.nytimes.com/2026/06/05/arts/television/your-friends-neighbors-finale.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/06/05/podcasts/the-headlines/trump-immigrants-tech-
 **Europe Needs New Military Alliance to Defend Itself, Italy Says**\
 `Guido Crosetto, Italy’s defense minister, said in an interview that European nations should forge a new joint defense system and take greater responsibility for their own security.`\
 https://www.nytimes.com/2026/06/05/world/europe/eu-italy-defense-military-alliance-crosetto.html
-
-**On Patrol With Tokyo’s New Litter Police**\
-`Visitor numbers to Shibuya are surging and trash cans are scarce. Enter the city patrol.`\
-https://www.nytimes.com/2026/06/05/world/asia/japan-tokyo-littering-fines.html
 

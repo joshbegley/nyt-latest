@@ -1,3 +1,7 @@
+**Man Who Schemed With Au Pair to Kill His Wife Is Sentenced to Life**\
+`Brendan Banfield of Herndon, Va., was found guilty of murdering his wife and another man, who was lured in through a fetish website. The plan involved his lover, who is now serving 10 years in prison.`\
+https://www.nytimes.com/2026/06/05/us/brendan-banfield-sentence.html
+
 **Jonathan Tropper on the ‘Your Friends & Neighbors’ Season 2 Finale**\
 `“We are skewering a value system,” the creator Jonathan Tropper said of the series. “But at the same time, we’re making the show aspirational.”`\
 https://www.nytimes.com/2026/06/05/arts/television/your-friends-neighbors-finale.html
