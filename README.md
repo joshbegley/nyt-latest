@@ -1,3 +1,7 @@
+**Formula 1: The Second Life of Racecars**\
+`After their racing days are over, they are used in testing, events and as show cars. Some even end up in private hands.`\
+https://www.nytimes.com/2026/06/05/sports/f1-cars-museums.html
+
 **Before French Open Finals, They’ll Serve Up a Dance**\
 `The choreographer Benjamin Millepied had an usual brief: To create two short works for the championship matches at Roland Garros.`\
 https://www.nytimes.com/2026/06/05/arts/dance/roland-garros-french-open-benjamin-millepied.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/06/05/briefing/tonys-broadway-theater.html
 **How Ebola Spreads Through Gold Mining**\
 `Our chief Africa correspondent, Declan Walsh, reports from the epicenter of the Ebola outbreak on how the gold mining industry and the outbreak are linked.`\
 https://www.nytimes.com/video/world/africa/100000010936243/how-ebola-spreads-through-gold-mining.html
-
-**Hot I.P.O. Summer + What Is A.I. Doing to Math? + HatGPT**\
-`“We are on track to see what might be the three biggest I.P.O.s of all time.”`\
-https://www.nytimes.com/2026/06/05/podcasts/hardfork-ipo-math.html
 
 **Employers Added a Robust 172,000 Jobs in May**\
 `Unemployment remained steady at 4.3 percent.`\
