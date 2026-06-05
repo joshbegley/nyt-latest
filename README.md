@@ -1,3 +1,11 @@
+**El último techo de paja**\
+`Dentro de la minúscula comunidad de maestros techadores ingleses, se desarrolla una lucha por una tradición que podría no sobrevivir.`\
+https://www.nytimes.com/es/2026/06/05/espanol/mundo/techo-paja-inglaterra-gales.html
+
+**Las granjas en EE. UU. dependen más que nunca de un problemático programa de visas**\
+`El gobierno de Trump está permitiendo la entrada de más trabajadores agrícolas invitados bajo el programa H-2A, pero evitar los abusos resulta difícil.`\
+https://www.nytimes.com/es/2026/06/05/espanol/negocios/visados-trabajo-granjas-estados-unidos.html
+
 **Qué significa ‘pulchritude’**\
 `Esta palabra ha aparecido en tres artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
 https://www.nytimes.com/es/2026/06/05/espanol/que-significa-pulchritude.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/04/us/politics/-trump-vote-fraud.html
 **Nick Bilton, New ‘60 Minutes’ Chief, Pledges Independence**\
 `Nick Bilton said he had consulted with the program’s remaining correspondents: Lesley Stahl, Jon Wertheim and Bill Whitaker. All three were deliberating whether to stay with the show, two people said.`\
 https://www.nytimes.com/2026/06/04/business/nick-bilton-60-minutes-memo.html
-
-**Jan. 6 Rioter Hired by Pentagon**\
-`Elias Irizarry, who pleaded guilty to climbing through a broken window at the Capitol on Jan. 6, 2021, now works for an office responsible for uncovering and defending against terrorism plots at the Pentagon.`\
-https://www.nytimes.com/video/us/politics/100000010945594/jan-6-rioter-hired-by-pentagon.html
-
-**Trump Plans to Create a Promenade at the Lincoln Memorial**\
-`The president announced a new project that would connect the memorial to the Potomac River. He isn’t sure if he wants it to be named after himself.`\
-https://www.nytimes.com/2026/06/04/us/politics/trump-lincoln-memorial-promenade.html
 
