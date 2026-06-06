@@ -1,3 +1,27 @@
+**My (Sort of) Ex Has Cancer. Is It Fair That She Expects Me to Take Care of Her?**\
+`Part of me recognizes that walking away is loathsome and something most people would judge harshly.`\
+https://www.nytimes.com/2026/06/06/magazine/ex-cancer-care-ethics.html
+
+**Today’s Wordle Hints for June 7, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, June 7, 2026.`\
+https://www.nytimes.com/2026/06/06/crosswords/wordle-review-1814.html
+
+**Everything You Need to Know About the 2026 World Cup**\
+`The teams, the players and the dramas to follow in the global soccer tournament.`\
+https://www.nytimes.com/2026/06/06/podcasts/the-daily/everything-you-need-to-know-about-the-world-cup.html
+
+**NYT Connections Answers for June 7, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, June 7, 2026.`\
+https://www.nytimes.com/2026/06/06/crosswords/connections-companion-1092.html
+
+**NYT Strands Hints for June 7, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, June 7, 2026.`\
+https://www.nytimes.com/2026/06/06/crosswords/strands-sidekick-826.html
+
+**The World Cup Comes to Canada. But Does Anyone Care?**\
+`Staggering ticket prices and lackluster matches have left thousands of seats in Toronto and Vancouver unsold just days before the tournament kicks off.`\
+https://www.nytimes.com/2026/06/06/world/canada/world-cup-canada-toronto-vancouver.html
+
 **Raphael Warnock Says the Supreme Court Has Done ‘Violence’ to Democracy**\
 `The Democrat from Georgia on what he sees as the moral issues of our time.`\
 https://www.nytimes.com/2026/06/06/magazine/raphael-warnock-interview.html

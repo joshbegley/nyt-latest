@@ -1,3 +1,7 @@
+**Balancing Act**\
+`The tension between sticking to what we know and seeking out new experiences is one of comfort versus novelty. How can we have both?`\
+https://www.nytimes.com/2026/06/06/briefing/balancing-act.html
+
 **My (Sort of) Ex Has Cancer. Is It Fair That She Expects Me to Take Care of Her?**\
 `Part of me recognizes that walking away is loathsome and something most people would judge harshly.`\
 https://www.nytimes.com/2026/06/06/magazine/ex-cancer-care-ethics.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/06/06/espanol/cultura/entrevista-nick-jonas.html
 **No hay nada malo en desear a los hombres**\
 `El “heteropesimismo” está de moda, pero en realidad nunca ha habido un mejor momento para buscar el amor. Vamos, sé hetero-optimista.`\
 https://www.nytimes.com/es/2026/06/06/espanol/opinion/heteropesimismo-optimismo.html
-
-**Laboring Under Delhi’s Harsh Heat, Workers Must Choose Health or Wages**\
-`Severe heat waves have been hitting India since April, forcing many of the country’s essential workers to make tough decisions.`\
-https://www.nytimes.com/2026/06/06/world/asia/india-heat-workers-health-income.html
 
