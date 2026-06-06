@@ -1,3 +1,7 @@
+**The Bidens Are Back, in Bookstores and a South Dakota Speech on Trump**\
+`The re-emergence of the former first family has been fraught for some Democrats who just want to move on.`\
+https://www.nytimes.com/2026/06/06/us/politics/biden-speech-sioux-falls-trump.html
+
 **Escape From Trumpism**\
 `The best pathway out is to make Congress great again.`\
 https://www.nytimes.com/2026/06/06/opinion/democrats-reconstruction-project-2029.html
