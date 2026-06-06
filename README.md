@@ -1,4 +1,4 @@
-**The Bidens Are Back, in Bookstores and a South Dakota Speech on Trump**\
+**The Bidens Return With New Book and South Dakota Speech Targeting Trump**\
 `The re-emergence of the former first family has been fraught for some Democrats who just want to move on.`\
 https://www.nytimes.com/2026/06/06/us/politics/biden-speech-sioux-falls-trump.html
 
