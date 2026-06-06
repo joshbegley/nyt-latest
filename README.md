@@ -1,3 +1,7 @@
+**Celebrities Love Bike Dates. Should You Try One, Too?**\
+`Celebrities have recently been hitting the bike lane with their beaus, but the “Bicycle Boy” was once branded a type to be avoided.`\
+https://www.nytimes.com/2026/06/06/style/celebrity-bike-date-romantic-idea.html
+
 **I’ve Been Depriving You of Cookies**\
 `In repentance, I offer you frosted sugar cookies, double chocolate chip cookies and peanut butter-miso cookies.`\
 https://www.nytimes.com/2026/06/06/dining/ive-been-depriving-you-of-cookies.html
@@ -18,13 +22,13 @@ https://www.nytimes.com/2026/06/06/business/dealbook/ai-digital-twin.html
 `A journalist, a medic, a weather forecaster, a Medal of Honor recipient, a French commando: Their efforts showed that courage transcends race, class and gender.`\
 https://www.nytimes.com/2026/06/06/obituaries/d-day-normandy-wwii-heroes.html
 
-**Graham Platner and the Rise of the ‘Dirtbag’ Democrat**\
-`And what the Maine candidate reveals about politics today.`\
-https://www.nytimes.com/2026/06/06/opinion/graham-platner-democrats-politics.html
-
 **The States Where Life Is Better**\
 `Trust, well-being and mental health are all down in America. But some states are better to live in than others, according to a new study.`\
 https://www.nytimes.com/2026/06/06/opinion/happiness-trust-americans-states.html
+
+**Graham Platner and the Rise of the ‘Dirtbag’ Democrat**\
+`And what the Maine candidate reveals about politics today.`\
+https://www.nytimes.com/2026/06/06/opinion/graham-platner-democrats-politics.html
 
 **Norma Jeane’s Still Got It!**\
 `Some continue to like it hot.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/06/us/politics/ken-paxton-latino-voting.html
 **The World Has Learned From the Last Ebola Outbreak, but Gaps Remain**\
 `The vaccine development process and coordination between health organizations have improved since a devastating 2014-2016 outbreak.`\
 https://www.nytimes.com/2026/06/06/world/africa/the-world-has-learned-from-the-last-ebola-outbreak-but-gaps-remain.html
-
-**Real Estate Giants Compass and Zillow Fight Over the Future of the Market**\
-`Both companies face lawsuits and antitrust inquiries as they attempt to control the experience of home buying.`\
-https://www.nytimes.com/2026/06/06/realestate/zillow-compass-real-estate-consolidation.html
 
