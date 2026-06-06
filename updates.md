@@ -1,3 +1,7 @@
+**Alan Riding, Times Correspondent in Latin America and Paris, Dies at 82**\
+`He was a cosmopolitan observer and interpreter of societies he knew firsthand, whether writing about war in Nicaragua or the history and cultural salons of France.`\
+https://www.nytimes.com/2026/06/06/business/media/alan-riding-dead.html
+
 **Alan Riding, Times Correspondent in Latin America and Paris, Dies at 83**\
 `He was a cosmopolitan observer and interpreter of societies he knew firsthand, whether writing about war in Nicaragua or the history and cultural salons of France.`\
 https://www.nytimes.com/2026/06/06/business/media/alan-riding-dead.html
