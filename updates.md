@@ -1,3 +1,11 @@
+**Alan Riding, Times Correspondent in Latin America and Paris, Dies at 83**\
+`He was a cosmopolitan observer and interpreter of societies he knew firsthand, whether writing about war in Nicaragua or the history and cultural salons of France.`\
+https://www.nytimes.com/2026/06/06/business/media/alan-riding-dead.html
+
+**Protester Hit by Car at Newark ICE Detention Center**\
+`A vehicle hit a protester on Friday as it was leaving Delaney Hall, an immigration detention center in Newark that has been the site of protests since late May.`\
+https://www.nytimes.com/video/us/100000010949167/protester-hit-car-delaney-newark-ice.html
+
 **An Edith Wharton Short Story Is Published About 100 Years Later**\
 `The short story, which is set during World War I, is believed to have been printed for the first time on Friday. The story is thought to have been written no earlier than July 1918.`\
 https://www.nytimes.com/2026/06/06/books/edith-wharton-new-short-story.html
