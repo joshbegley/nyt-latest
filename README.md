@@ -1,3 +1,7 @@
+**Cuando Jeffrey Epstein necesitaba favores, recurría a este magnate restaurantero**\
+`Stephen Hanson, cuyo imperio incluía Blue Water Grill y Ruby Foo’s, era un amigo devoto y un compinche que ayudaba a manejar y entretener a las mujeres del círculo de Epstein.`\
+https://www.nytimes.com/es/2026/06/05/espanol/jeffrey-epstein-stephen-hanson.html
+
 **Trump Says Bill Pulte, His New Intelligence Director, Should Slash Staff**\
 `The president suggested that employees who worked for previous Democratic presidents were among those who should be fired.`\
 https://www.nytimes.com/2026/06/05/us/politics/trump-bill-pulte-intelligence-staff.html
@@ -159,7 +163,7 @@ https://www.nytimes.com/2026/06/05/technology/reid-hoffman-leaving-microsoft-boa
 https://www.nytimes.com/es/2026/06/05/espanol/estados-unidos/proyecto-de-ley-inmigracion-republicano.html
 
 **Newark Mayor to Scale Back Police Presence at Delaney Hall ICE Detention Center**\
-`The mayor, Ras Baraka, said the city would not spend taxpayers’ money to safeguard Delaney Hall, an immigration detention center in Newark run by a private prison company.`\
+`The mayor, Ras Baraka, said the city would not spend taxpayer money to safeguard Delaney Hall, an immigration detention center in Newark run by a private prison company.`\
 https://www.nytimes.com/2026/06/05/nyregion/delaney-hall-police-baraka.html
 
 **M.I.A. Never Wanted to Be So Controversial**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/05/opinion/us-israel-palestinians.html
 **Heir Sues to Claim a Klimt Portrait Thought Lost for Decades**\
 `The painting resurfaced in 2024 and a woman contends in her lawsuit that the work is a portrait of her great-aunt that vanished after the Nazi takeover of Austria.`\
 https://www.nytimes.com/2026/06/05/arts/klimt-lost-painting-lawsuit.html
-
-**Putting Formula 1 on TV Is a Complex Operation**\
-`There are more than 100 technicians and cameras at these global races, and a mission control that monitors everything in England.`\
-https://www.nytimes.com/2026/06/05/sports/formula-1-television-production.html
 
