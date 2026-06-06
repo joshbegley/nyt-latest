@@ -1,3 +1,7 @@
+**Trump Pardons Former Congressman Convicted of Insider Trading**\
+`Stephen Buyer, a former Republican representative from Indiana, was convicted of trading stock related to two deals before they were made public.`\
+https://www.nytimes.com/2026/06/06/us/politics/trump-pardon-stephen-buyer-insider-trading.html
+
 **China levanta murallas alrededor de su economía**\
 `Pekín afirma que las normas anunciadas esta semana son necesarias para la seguridad nacional, pero podrían complicar los esfuerzos por encontrar crecimiento en el extranjero.`\
 https://www.nytimes.com/es/2026/06/06/espanol/negocios/economia-china-regulaciones.html

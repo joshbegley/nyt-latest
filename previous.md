@@ -1,3 +1,7 @@
+**Trump Pardons Former Congressman Convicted of Insider Trading**\
+`Stephen Buyer, a former Republican representative from Indiana, was convicted of trading stock related to two deals before they were made public.`\
+https://www.nytimes.com/2026/06/06/us/politics/trump-pardon-stephen-buyer-insider-trading.html
+
 **China levanta murallas alrededor de su economía**\
 `Pekín afirma que las normas anunciadas esta semana son necesarias para la seguridad nacional, pero podrían complicar los esfuerzos por encontrar crecimiento en el extranjero.`\
 https://www.nytimes.com/es/2026/06/06/espanol/negocios/economia-china-regulaciones.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/05/us/politics/platner-democrats-maine-senate-pr
 **The Dream of Emo Is Alive in Like Roses**\
 `Emo is alive and well in the Bay Area band Like Roses, whose song “Wrist” captures the nostalgic sound of early-2000s melodic pop-punk through the lens of queer yearning. Our critic Jon Caramanica unpacks the ways the track caught his attention.`\
 https://www.nytimes.com/video/podcasts/100000010947693/the-dream-of-emo-is-alive-in-like-roses.html
-
-**Ned Jarrett, Champion Stock Car Racer in the 1960s, Dies at 93**\
-`He won the sport’s most important series, NASCAR’s Grand National, and his son followed in his footsteps. Both were inducted into the Hall of Fame.`\
-https://www.nytimes.com/2026/06/05/sports/ned-jarrett-dead.html
 
