@@ -1,3 +1,7 @@
+**Amid Mounting Democratic Concern, Platner Says His Past Is Being ‘Weaponized’**\
+`The presumptive Democratic Senate nominee in Maine said the state would have his back in the face of accusations he has denied`\
+https://www.nytimes.com/2026/06/05/us/politics/graham-platner-maine-rally-senate.html
+
 **Cuando Jeffrey Epstein necesitaba favores, recurría a este magnate restaurantero**\
 `Stephen Hanson, cuyo imperio incluía Blue Water Grill y Ruby Foo’s, era un amigo devoto y un compinche que ayudaba a manejar y entretener a las mujeres del círculo de Epstein.`\
 https://www.nytimes.com/es/2026/06/05/espanol/jeffrey-epstein-stephen-hanson.html
@@ -26,7 +30,7 @@ https://www.nytimes.com/2026/06/05/us/elections/becerra-california-governor.html
 `El actor británico fue uno de los pilares de influyentes programas de televisión, y alcanzó la fama inicialmente como imagen de Nescafé.`\
 https://www.nytimes.com/es/2026/06/05/espanol/muere-anthony-head-buffys-ted-lasso.html
 
-**Iran Fired Attack Drones Toward Strait of Hormuz, U.S. Military Says**\
+**Iran Fired Drones Toward Strait of Hormuz With U.S. Shooting Down at Least 4, U.S. Military Says**\
 `The latest violence between the United States and Iran threatened a cease-fire and risked further stoking tensions in the region.`\
 https://www.nytimes.com/2026/06/05/us/politics/iran-attack-drones-hormuz.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/05/arts/dance/roland-garros-french-open-benjamin
 **A Divide Over U.S. Support for Israel**\
 `Readers respond to Senator Chris Van Hollen’s call on the Democratic Party to push Israel to work on a two-state solution. Also: Options for mothers.`\
 https://www.nytimes.com/2026/06/05/opinion/us-israel-palestinians.html
-
-**Heir Sues to Claim a Klimt Portrait Thought Lost for Decades**\
-`The painting resurfaced in 2024 and a woman contends in her lawsuit that the work is a portrait of her great-aunt that vanished after the Nazi takeover of Austria.`\
-https://www.nytimes.com/2026/06/05/arts/klimt-lost-painting-lawsuit.html
 
