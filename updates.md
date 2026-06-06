@@ -1,3 +1,7 @@
+**17 Arrested, 1 Officer Injured in N.Y.C. Celebrations of Knicks’ Game 2 Win**\
+`The police took dozens of people into custody this week after N.B.A. finals watch parties in Midtown Manhattan grew unruly.`\
+https://www.nytimes.com/2026/06/06/nyregion/knicks-watch-party-arrests-nyc.html
+
 **Infant Killed as Israeli Military Fires on Car in West Bank, Palestinian Officials Say**\
 `Israel’s military said a soldier opened fire after Israeli troops “perceived a vehicle accelerating toward them.” The baby’s grandmother, who was in the car, disputed that account.`\
 https://www.nytimes.com/2026/06/06/world/middleeast/israel-west-bank-infant.html
