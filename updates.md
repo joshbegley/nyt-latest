@@ -1,3 +1,7 @@
+**Senators Warn of Intelligence Gaps if Surveillance Program Expires**\
+`Two senior Republicans urged the Trump administration to prepare for the possible expiration of a contentious intelligence-gathering authority.`\
+https://www.nytimes.com/2026/06/06/us/politics/cotton-grassley-surveillance-program.html
+
 **An Uncertain Win for Immigrants Seeking to Stay in U.S.**\
 `After a judge’s ruling, there was a sense of renewed hope that immigration applications that were put on hold would move forward. But how soon that would happen was unknown.`\
 https://www.nytimes.com/2026/06/06/us/an-uncertain-win-for-immigrants-seeking-to-stay-in-us.html
