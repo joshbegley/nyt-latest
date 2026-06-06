@@ -1,3 +1,35 @@
+**Deluged With Mail Ballots, California Takes Its Time Counting Votes Again**\
+`Experts say speeding up the count in California would take more resources, but also scaling back rules that expand voting access.`\
+https://www.nytimes.com/2026/06/06/us/california-slow-vote-count.html
+
+**Raphael Warnock on JD Vance’s ‘Callousness’ and ‘Hubris’**\
+`Raphael Warnock, a U.S. senator and a pastor, discusses the so-called “war on Christianity” and JD Vance’s criticism of Pope Leo.`\
+https://www.nytimes.com/video/podcasts/100000010948479/raphael-warnock-on-jd-vances-callousness-and-hubris.html
+
+**YouTuber and Wife Ended Pregnancy After Down Syndrome Diagnosis. They Got Death Threats.**\
+`After Jesse Ridgway, a popular YouTuber, and his wife, Ashley, revealed the news, death threats followed.`\
+https://www.nytimes.com/2026/06/06/us/down-syndrome-abortion-jesse-ridgway.html
+
+**Taylor Swift, Madonna: 9 Songs We’re Talking About This Week**\
+`Taylor Swift is back with a “Toy Story” contribution while Madonna returns to the dance floor.`\
+https://www.nytimes.com/2026/06/06/arts/music/taylor-swift-madonna-songs.html
+
+**Bowerbirds Are Stealing Cash, Plastic and Handcuffs for Love**\
+`For millions of years, male great bowerbirds have wooed their mates with flowers and seeds. But in today’s urban world, such humble fare may not cut it.`\
+https://www.nytimes.com/2026/06/06/science/bowerbird-mating-plastic.html
+
+**Él quería darme un millón de besos. ¿Lo lograría?**\
+`Mi optimista y romántico esposo nunca hubiera imaginado lo que nos pasaría.`\
+https://www.nytimes.com/es/2026/06/06/espanol/estilos-de-vida/modern-love-matrimonio-duelo-cancer.html
+
+**‘Euphoria’ tuvo un final extraño y poco convincente**\
+`Al final, una serie definida por sus excesos pareció esforzarse por conseguir una redención que no necesitaba.`\
+https://www.nytimes.com/es/2026/06/06/espanol/cultura/euphoria-tuvo-un-final-extrano-y-poco-convincente.html
+
+**People Love to Hate This Fake Private Equity Guy**\
+`Johnny Hilbrant Partridge has found social media fame as PE Guy, a character who embodies obnoxious entitlement.`\
+https://www.nytimes.com/2026/06/06/style/people-love-to-hate-this-fake-private-equity-guy.html
+
 **Screwworm Flies Add to Cattle Ranchers’ Woes**\
 `Some Texans fear “the nightmares and the horrors” of a potential screwworm outbreak. Elsewhere, not enough grass to feed cattle sends them to market earlier.`\
 https://www.nytimes.com/2026/06/06/business/screwworm-flies-drought-cattle.html
@@ -165,36 +197,4 @@ https://www.nytimes.com/2026/06/05/crosswords/daily-puzzle-2026-06-06.html
 **Amid Mounting Democratic Concern, Platner Says His Past Is Being ‘Weaponized’**\
 `The presumptive Democratic Senate nominee in Maine said the state would have his back in the face of accusations he has denied.`\
 https://www.nytimes.com/2026/06/05/us/politics/graham-platner-maine-rally-senate.html
-
-**Cuando Jeffrey Epstein necesitaba favores, recurría a este magnate restaurantero**\
-`Stephen Hanson, cuyo imperio incluía Blue Water Grill y Ruby Foo’s, era un amigo devoto y un compinche que ayudaba a manejar y entretener a las mujeres del círculo de Epstein.`\
-https://www.nytimes.com/es/2026/06/05/espanol/jeffrey-epstein-stephen-hanson.html
-
-**Trump Says Bill Pulte, His New Intelligence Director, Should Slash Staff**\
-`The president suggested that employees who worked for previous Democratic presidents were among those who should be fired.`\
-https://www.nytimes.com/2026/06/05/us/politics/trump-bill-pulte-intelligence-staff.html
-
-**Park Ranger Dies After Falling Into a Crevasse on Mt. McKinley**\
-`Robin Pendery, 33, who was part of a climbing patrol, was near a camp at about 14,000 feet on the mountain in Alaska when she fell, the National Park Service said.`\
-https://www.nytimes.com/2026/06/05/us/national-park-service-ranger-dead-mount-mckinley.html
-
-**SpaceX Has $30 Billion Deal to Provide Google With A.I. Computing Power**\
-`Elon Musk’s rocket company said Google would pay it $920 million a month, as it prepared for its initial public offering.`\
-https://www.nytimes.com/2026/06/05/technology/spacex-google-deal.html
-
-**Trump Administration Investigating Gender Treatments at Mount Sinai**\
-`A grand jury subpoenaed the health system for information about adolescent patients who had received gender-related care, Mount Sinai said on Friday.`\
-https://www.nytimes.com/2026/06/05/nyregion/trump-administration-investigating-gender-treatments-at-mount-sinai.html
-
-**Xavier Becerra Advances in California Governor Race**\
-`Mr. Becerra was long dismissed in the contest until the abrupt departure of Eric Swalwell created a surprise path for an experienced Democrat.`\
-https://www.nytimes.com/2026/06/05/us/elections/becerra-california-governor.html
-
-**Muere Anthony Head, actor en ‘Buffy’ y villano de ‘Ted Lasso’**\
-`El actor británico fue uno de los pilares de influyentes programas de televisión, y alcanzó la fama inicialmente como imagen de Nescafé.`\
-https://www.nytimes.com/es/2026/06/05/espanol/muere-anthony-head-buffys-ted-lasso.html
-
-**Iran Fired Drones Toward Strait of Hormuz With U.S. Shooting Down at Least 4, U.S. Military Says**\
-`The latest violence between the United States and Iran threatened a cease-fire and risked further stoking tensions in the region.`\
-https://www.nytimes.com/2026/06/05/us/politics/iran-attack-drones-hormuz.html
 
