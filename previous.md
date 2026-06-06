@@ -1,3 +1,7 @@
+**Ahead of World Cup, Two Generations of Haitian Players Unite**\
+`A player from Haiti’s 1974 World Cup team, the last to qualify for the tournament, met with the co-captain of this year’s squad in South Florida.`\
+https://www.nytimes.com/2026/06/06/us/ahead-of-world-cup-two-generations-of-haitian-players-unite.html
+
 **How Our Theater Reporter Makes His Tony Award Predictions**\
 `Michael Paulson, the theater reporter for The New York Times, has seen every production eligible for a Tony Award in the past decade. He explains the rigorous reporting process behind his predictions.`\
 https://www.nytimes.com/video/insider/100000010942319/how-our-theater-reporter-makes-his-tony-award-predictions.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/06/06/espanol/cultura/euphoria-tuvo-un-final-ext
 **People Love to Hate This Fake Private Equity Guy**\
 `Johnny Hilbrant Partridge has found social media fame as PE Guy, a character who embodies obnoxious entitlement.`\
 https://www.nytimes.com/2026/06/06/style/people-love-to-hate-this-fake-private-equity-guy.html
-
-**Screwworm Flies Add to Cattle Ranchers’ Woes**\
-`Some Texans fear “the nightmares and the horrors” of a potential screwworm outbreak. Elsewhere, not enough grass to feed cattle sends them to market earlier.`\
-https://www.nytimes.com/2026/06/06/business/screwworm-flies-drought-cattle.html
 
