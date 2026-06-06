@@ -79,7 +79,7 @@ https://www.nytimes.com/interactive/2026/06/06/theater/tony-awards-broadway-quiz
 https://www.nytimes.com/2026/06/06/business/media/60-minutes-nick-bilton.html
 
 **Pope Leo, After Taking on Trump and A.I., Prepares for New Duels in Spain**\
-`Leo will arrive in Spain on Saturday for a weeklong visit in which he will meet with migrants and may come under fire from Vox, Spain’s far-right party.`\
+`Leo arrived in Spain on Saturday for a weeklong visit in which he will meet with migrants and may come under fire from Vox, Spain’s far-right party.`\
 https://www.nytimes.com/2026/06/06/world/europe/leo-spain-visit.html
 
 **ICE Says Detainees Are ‘Worst of the Worst.’ Government Data Disagrees.**\

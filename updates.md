@@ -1,3 +1,7 @@
+**Pope Leo, After Taking on Trump and A.I., Prepares for New Duels in Spain**\
+`Leo arrived in Spain on Saturday for a weeklong visit in which he will meet with migrants and may come under fire from Vox, Spain’s far-right party.`\
+https://www.nytimes.com/2026/06/06/world/europe/leo-spain-visit.html
+
 **Balancing Act**\
 `The tension between sticking to what we know and seeking out new experiences is one of comfort versus novelty. How can we have both?`\
 https://www.nytimes.com/2026/06/06/briefing/balancing-act.html
