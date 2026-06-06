@@ -1,3 +1,7 @@
+**N.Y. Lawmakers Move to Pause Data Centers and Curb Surveillance Pricing**\
+`The state also passed legislation that begins a two-year process to allow lawmakers to draw new congressional district lines more often. Efforts to contain plastics stalled for a third year.`\
+https://www.nytimes.com/2026/06/06/nyregion/data-centers-ai-ny.html
+
 **Madonna Premieres ‘Confessions II,’ a Star-Studded Short Film, at Tribeca Film Festival**\
 `“Confessions II” features songs from the pop star’s coming album of the same name. At one point, green lasers shoot from the pelvises of gyrating women.`\
 https://www.nytimes.com/2026/06/06/arts/madonna-confessions-tribeca-festival.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/06/theater/tony-awards-2026-pink.html
 **In Venezuela, the Debt Collector Is the Devil**\
 `Got a debt to collect in Venezuela’s capital? Dr. Diablo and his pitchfork-wielding posse use public humiliation to pressure people into paying up.`\
 https://www.nytimes.com/2026/06/06/world/americas/venezuela-caracas-debt-collector-dr-diablo.html
-
-**Why the Radical Vision of Martha Graham Still Matters**\
-`The choreographer took a barefoot leap for modern dance 100 years ago. Her influence continues to reverberate.`\
-https://www.nytimes.com/2026/06/06/arts/dance/martha-graham-modern-dance-centennial.html
 
