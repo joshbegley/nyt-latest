@@ -126,13 +126,13 @@ https://www.nytimes.com/2026/06/06/realestate/zillow-zestimate-accuracy.html
 `Alissa Wilkinson, a New York Times film critic, reflects on the documentary “Ask E. Jean” and the cultural shift toward accusers of sexual assault. E. Jean Carroll, the film’s protagonist, won two civil lawsuits against President Trump.`\
 https://www.nytimes.com/video/arts/100000010938048/ask-e-jean-illuminates-cultural-shifts.html
 
-**Flipping a Philip Johnson: The Booth House Gets a Lifeline.**\
-`In Bedford, N.Y., an architect and builder duo are betting that the Glass House architect’s first residential commission can be saved — and put back on the market.`\
-https://www.nytimes.com/2026/06/06/realestate/philip-johnson-glass-house-booth-house.html
-
 **As Ebola Spreads in East Africa, Will China Step Up?**\
 `China is well positioned to help stop the deadly virus, and could move into a gap left by U.S. retreat.`\
 https://www.nytimes.com/2026/06/06/world/asia/as-ebola-spreads-in-east-africa-will-china-step-up.html
+
+**Flipping a Philip Johnson: The Booth House Gets a Lifeline**\
+`In Bedford, N.Y., an architect and builder duo are betting that the Glass House architect’s first residential commission can be saved — and put back on the market.`\
+https://www.nytimes.com/2026/06/06/realestate/philip-johnson-glass-house-booth-house.html
 
 **Dallas’s Halperin Park Seeks to Reconnect Oak Cliff Decades After Highway Divided Neighborhood**\
 `Built atop a freeway that once split a historic Black neighborhood, Halperin Park attempts to reconnect communities divided by midcentury highway construction.`\
