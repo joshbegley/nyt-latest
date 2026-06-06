@@ -1,3 +1,11 @@
+**SpaceX Has $30 Billion Deal to Provide Google With A.I. Computing Power**\
+`Elon Musk’s rocket company said Google would pay it $920 million a month, as it prepared for its initial public offering.`\
+https://www.nytimes.com/2026/06/05/technology/spacex-google-deal.html
+
+**Iran Fired Attack Drones Toward Strait of Hormuz, U.S. Military Says**\
+`The latest violence between the United States and Iran threatened a cease-fire and risked further stoking tensions in the region.`\
+https://www.nytimes.com/2026/06/05/us/politics/iran-attack-drones-hormuz.html
+
 **First U.S. Screwworm Case Since 1960s Prompts Texas Emergency Response**\
 `The infections are the first detected in the United States since the 1960s. Officials are aggressively trying to prevent the parasite from spreading in the nation’s largest cattle-producing state.`\
 https://www.nytimes.com/2026/06/05/us/texas-screwworm-first-us-case-emergency-response-abbott.html

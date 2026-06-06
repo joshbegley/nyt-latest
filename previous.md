@@ -1,3 +1,7 @@
+**SpaceX Has $30 Billion Deal to Provide Google With A.I. Computing Power**\
+`Elon Musk’s rocket company said Google would pay it $920 million a month, as it prepared for its initial public offering.`\
+https://www.nytimes.com/2026/06/05/technology/spacex-google-deal.html
+
 **Trump Administration Investigating Gender Treatments at Mount Sinai**\
 `A grand jury subpoenaed the health system for information about adolescent patients who had received gender-related care, Mount Sinai said on Friday.`\
 https://www.nytimes.com/2026/06/05/nyregion/trump-administration-investigating-gender-treatments-at-mount-sinai.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/2026/06/05/us/elections/becerra-california-governor.html
 `El actor británico fue uno de los pilares de influyentes programas de televisión, y alcanzó la fama inicialmente como imagen de Nescafé.`\
 https://www.nytimes.com/es/2026/06/05/espanol/muere-anthony-head-buffys-ted-lasso.html
 
-**Iran Fired Attack Drones Toward Strait of Hormuz, U.S. Official Says**\
+**Iran Fired Attack Drones Toward Strait of Hormuz, U.S. Military Says**\
 `The latest violence between the United States and Iran threatened a cease-fire and risked further stoking tensions in the region.`\
 https://www.nytimes.com/2026/06/05/us/politics/iran-attack-drones-hormuz.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/06/05/business/media/60-minutes-stahl-w
 **Formula 1 Has Spread Its Appeal. Top Athletes Have Jumped on Board.**\
 `Elite players have been drawn to a sport that operates at over 200 m.p.h. The head of F1 said high-performing drivers and players speak the same language.`\
 https://www.nytimes.com/2026/06/05/sports/f1-athlete-fans-investors.html
-
-**Speight Jenkins, Who Brought Adventure to Seattle Opera, Dies at 89**\
-`He had never produced a performance when he was hired as the company’s general director in 1983. But over 31 years (and lots of Wagner) he became beloved.`\
-https://www.nytimes.com/2026/06/05/arts/music/speight-jenkins-dead.html
 
