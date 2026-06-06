@@ -1,3 +1,7 @@
+**Raphael Warnock Says the Supreme Court Has Done ‘Violence’ to Democracy**\
+`The Democrat from Georgia on what he sees as the moral issues of our time.`\
+https://www.nytimes.com/2026/06/06/magazine/raphael-warnock-interview.html
+
 **Los deudores de Caracas temen que el diablo vaya a cobrarles**\
 `Dr. Diablo’s utiliza la humillación pública para presionar a los morosos con el fin de que paguen. Muchos lo hacen después de que su “Comando Móvil Antimorosos” les tiende una emboscada, a menudo en el trabajo.`\
 https://www.nytimes.com/es/2026/06/06/espanol/america-latina/dr-diablos-deudas-caracas.html
