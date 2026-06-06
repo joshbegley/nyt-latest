@@ -1,3 +1,7 @@
+**Xavier Becerra Advances in California Governor Race**\
+`Mr. Becerra was long dismissed in the contest until the abrupt departure of Eric Swalwell created a surprise path for an experienced Democrat.`\
+https://www.nytimes.com/2026/06/05/us/elections/becerra-california-governor.html
+
 **Muere Anthony Head, actor en ‘Buffy’ y villano de ‘Ted Lasso’**\
 `El actor británico fue uno de los pilares de influyentes programas de televisión, y alcanzó la fama inicialmente como imagen de Nescafé.`\
 https://www.nytimes.com/es/2026/06/05/espanol/muere-anthony-head-buffys-ted-lasso.html
