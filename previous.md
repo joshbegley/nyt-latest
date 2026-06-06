@@ -1,3 +1,7 @@
+**Barge Hits Maryland Rail Bridge Along Northeast Corridor**\
+`Amtrak said crews were conducting a safety assessment for the bridge, which crosses the Susquehanna River in Maryland. The U.S. Coast Guard reported no injuries.`\
+https://www.nytimes.com/2026/06/06/us/maryland-bridge-amtrak-northeast-corridor.html
+
 **Bob Packwood, Senator Forced to Quit in Sex Scandal, Dies at 93**\
 `An unorthodox Republican, he helped shape tax policy and women’s rights legislation before resigning in 1995 amid accusations by more than 20 women of sexual misconduct.`\
 https://www.nytimes.com/2026/06/06/us/politics/bob-packwood-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/06/world/europe/leo-spain-visit.html
 **ICE Says Detainees Are ‘Worst of the Worst.’ Government Data Disagrees.**\
 `Federal officials said they are removing killers and rapists from the streets. Data obtained by The New York Times indicates most detainees at a Newark facility haven’t been convicted of crimes.`\
 https://www.nytimes.com/2026/06/06/nyregion/delaney-hall-ice-detainees.html
-
-**“Half Man” Shows the Dueling Sides of Modern Masculinity**\
-`Powered by exceptional performances from Jamie Bell and Richard Gadd, “Half Man” captures rare moments of male tenderness — before inevitably punishing them.`\
-https://www.nytimes.com/2026/06/06/arts/television/half-man-scenes-masculinity.html
 
