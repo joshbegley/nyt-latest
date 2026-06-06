@@ -1,3 +1,15 @@
+**Cuando Jeffrey Epstein necesitaba favores, recurría a este magnate restaurantero**\
+`Stephen Hanson, cuyo imperio incluía Blue Water Grill y Ruby Foo’s, era un amigo devoto y un compinche que ayudaba a manejar y entretener a las mujeres del círculo de Epstein.`\
+https://www.nytimes.com/es/2026/06/05/espanol/jeffrey-epstein-stephen-hanson.html
+
+**Trump Says Bill Pulte, His New Intelligence Director, Should Slash Staff**\
+`The president suggested that employees who worked for previous Democratic presidents were among those who should be fired.`\
+https://www.nytimes.com/2026/06/05/us/politics/trump-bill-pulte-intelligence-staff.html
+
+**Newark Mayor to Scale Back Police Presence at Delaney Hall ICE Detention Center**\
+`The mayor, Ras Baraka, said the city would not spend taxpayer money to safeguard Delaney Hall, an immigration detention center in Newark run by a private prison company.`\
+https://www.nytimes.com/2026/06/05/nyregion/delaney-hall-police-baraka.html
+
 **Park Ranger Dies After Falling Into a Crevasse on Mt. McKinley**\
 `Robin Pendery, 33, who was part of a climbing patrol, was near a camp at about 14,000 feet on the mountain in Alaska when she fell, the National Park Service said.`\
 https://www.nytimes.com/2026/06/05/us/national-park-service-ranger-dead-mount-mckinley.html
