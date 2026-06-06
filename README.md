@@ -1,3 +1,27 @@
+**My (Sort of) Ex Has Cancer. Is It Fair That She Expects Me to Take Care of Her?**\
+`Part of me recognizes that walking away is loathsome and something most people would judge harshly.`\
+https://www.nytimes.com/2026/06/06/magazine/ex-cancer-care-ethics.html
+
+**Today’s Wordle Hints for June 7, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, June 7, 2026.`\
+https://www.nytimes.com/2026/06/06/crosswords/wordle-review-1814.html
+
+**Everything You Need to Know About the 2026 World Cup**\
+`The teams, the players and the dramas to follow in the global soccer tournament.`\
+https://www.nytimes.com/2026/06/06/podcasts/the-daily/everything-you-need-to-know-about-the-world-cup.html
+
+**NYT Connections Answers for June 7, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, June 7, 2026.`\
+https://www.nytimes.com/2026/06/06/crosswords/connections-companion-1092.html
+
+**NYT Strands Hints for June 7, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, June 7, 2026.`\
+https://www.nytimes.com/2026/06/06/crosswords/strands-sidekick-826.html
+
+**The World Cup Comes to Canada. But Does Anyone Care?**\
+`Staggering ticket prices and lackluster matches have left thousands of seats in Toronto and Vancouver unsold just days before the tournament kicks off.`\
+https://www.nytimes.com/2026/06/06/world/canada/world-cup-canada-toronto-vancouver.html
+
 **Raphael Warnock Says the Supreme Court Has Done ‘Violence’ to Democracy**\
 `The Democrat from Georgia on what he sees as the moral issues of our time.`\
 https://www.nytimes.com/2026/06/06/magazine/raphael-warnock-interview.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/es/2026/06/06/espanol/opinion/heteropesimismo-optimismo.
 **Laboring Under Delhi’s Harsh Heat, Workers Must Choose Health or Wages**\
 `Severe heat waves have been hitting India since April, forcing many of the country’s essential workers to make tough decisions.`\
 https://www.nytimes.com/2026/06/06/world/asia/india-heat-workers-health-income.html
-
-**Quote of the Day: Despite Different Native Languages, Linemates Speak Hockey in Harmony**\
-`Quotation of the Day for Saturday, June 6, 2026.`\
-https://www.nytimes.com/2026/06/06/pageoneplus/quote-of-the-day-despite-different-native-languages-linemates-speak-hockey-in-harmony.html
-
-**Mali Conflict Escalates as Rebel Alliance Seizes Key Cities**\
-`Jihadists have nearly tripled their attacks on urban areas. Analysts fear an extended standoff could lead to many more civilian deaths.`\
-https://www.nytimes.com/2026/06/06/world/africa/mali-rebels-fighting-jnim-isis.html
-
-**A President, His Prime Minister and the Bitter Rift Dividing Senegal**\
-`The two men became president and prime minister by defeating the political old guard in Senegal. Now they are fighting each other.`\
-https://www.nytimes.com/2026/06/06/world/africa/senegal-faye-sonko-young-fight.html
-
-**Corrections: June 6, 2026**\
-`Corrections that appeared in print on Saturday, June 6, 2026.`\
-https://www.nytimes.com/2026/06/06/pageoneplus/corrections-june-6-2026.html
-
-**Bronze Age Pervert’s ‘Cosplay’ Masculinity**\
-`“This is an ideology that is born out of fat modernity itself,” the journalist Helen Lewis argues on “The Ezra Klein Show,” where she explains why the online right’s fascination with hypermasculinity is a bored delusion made possible by the safety of modern life.`\
-https://www.nytimes.com/video/opinion/100000010940555/bronze-age-perverts-cosplay-masculinity.html
-
-**Trump Greets Farmers in Wisconsin, but Says He Could Be Home Watching TV**\
-`President Trump was in Wisconsin to reassure farmers who have been stung by his tariff policies and rising fuel prices from the war in Iran.`\
-https://www.nytimes.com/2026/06/05/us/politics/trump-wisconsin-farmers-midterms.html
 
