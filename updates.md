@@ -1,3 +1,7 @@
+**Bob Packwood, Senator Forced to Quit in Sex Scandal, Dies at 93**\
+`An unorthodox Republican, he helped shape tax policy and women’s rights legislation before resigning in 1995 amid accusations by more than 20 women of sexual misconduct.`\
+https://www.nytimes.com/2026/06/06/us/politics/bob-packwood-dead.html
+
 **Alan Riding, Times Correspondent in Latin America and Paris, Dies at 82**\
 `He was a cosmopolitan observer and interpreter of societies he knew firsthand, whether writing about war in Nicaragua or the history and cultural salons of France.`\
 https://www.nytimes.com/2026/06/06/business/media/alan-riding-dead.html
