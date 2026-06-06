@@ -1,3 +1,7 @@
+**An Uncertain Win for Immigrants Seeking to Stay in U.S.**\
+`After a judge’s ruling, there was a sense of renewed hope that immigration applications that were put on hold would move forward. But how soon that would happen was unknown.`\
+https://www.nytimes.com/2026/06/06/us/an-uncertain-win-for-immigrants-seeking-to-stay-in-us.html
+
 **Ahead of World Cup, Two Generations of Haitian Players Unite**\
 `A player from Haiti’s 1974 World Cup team, the last to qualify for the tournament, met with the co-captain of this year’s squad in South Florida.`\
 https://www.nytimes.com/2026/06/06/us/ahead-of-world-cup-two-generations-of-haitian-players-unite.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/06/06/espanol/estilos-de-vida/modern-love-matrim
 **‘Euphoria’ tuvo un final extraño y poco convincente**\
 `Al final, una serie definida por sus excesos pareció esforzarse por conseguir una redención que no necesitaba.`\
 https://www.nytimes.com/es/2026/06/06/espanol/cultura/euphoria-tuvo-un-final-extrano-y-poco-convincente.html
-
-**People Love to Hate This Fake Private Equity Guy**\
-`Johnny Hilbrant Partridge has found social media fame as PE Guy, a character who embodies obnoxious entitlement.`\
-https://www.nytimes.com/2026/06/06/style/people-love-to-hate-this-fake-private-equity-guy.html
 
