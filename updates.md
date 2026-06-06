@@ -1,3 +1,63 @@
+**Flipping a Philip Johnson: The Booth House Gets a Lifeline**\
+`In Bedford, N.Y., an architect and builder duo are betting that the Glass House architect’s first residential commission can be saved — and put back on the market.`\
+https://www.nytimes.com/2026/06/06/realestate/philip-johnson-glass-house-booth-house.html
+
+**Dallas’s Halperin Park Seeks to Reconnect Oak Cliff Decades After Highway Divided Neighborhood**\
+`Built atop a freeway that once split a historic Black neighborhood, Halperin Park attempts to reconnect communities divided by midcentury highway construction.`\
+https://www.nytimes.com/2026/06/06/us/dallas-halperin-park-oak-cliff-interstate-35e.html
+
+**In ‘Waist Deep,’ Linea Maja Ernst Explores Millennial Desire**\
+`The Danish writer Linea Maja Ernst’s debut novel, “Waist Deep,” a hit in Europe, explores the flirtations and frustrations within a millennial friendship circle.`\
+https://www.nytimes.com/2026/06/06/books/linea-ernst-denmark-millennial-novel-waist-deep.html
+
+**2026 Tony Awards: What to Expect**\
+`This year’s annual celebration of the best on Broadway is being hosted by Pink.`\
+https://www.nytimes.com/2026/06/06/theater/tony-awards-2026-pink.html
+
+**In Venezuela, the Debt Collector Is the Devil**\
+`Got a debt to collect in Venezuela’s capital? Dr. Diablo and his pitchfork-wielding posse use public humiliation to pressure people into paying up.`\
+https://www.nytimes.com/2026/06/06/world/americas/venezuela-caracas-debt-collector-dr-diablo.html
+
+**Why the Radical Vision of Martha Graham Still Matters**\
+`The choreographer took a barefoot leap for modern dance 100 years ago. Her influence continues to reverberate.`\
+https://www.nytimes.com/2026/06/06/arts/dance/martha-graham-modern-dance-centennial.html
+
+**5 Tips to Start Managing Your Aging Parents’ Money**\
+`And one big mistake to avoid.`\
+https://www.nytimes.com/2026/06/06/business/retirement-managing-parents-money.html
+
+**As Trump Pushes Deportations, a Skyrocketing Caseload Strains Immigration Courts**\
+`A federal surge has more than doubled caseloads within some immigration courts nationwide. Lawyers say the tactic is causing errors and confusion.`\
+https://www.nytimes.com/2026/06/06/us/politics/immigration-courts-deportation.html
+
+**Book Review: ‘Earth 7,’ by Deb Olin Unferth**\
+`Deb Olin Unferth’s new novel is part cosmic comedy and part dirge for our dying world.`\
+https://www.nytimes.com/2026/06/06/books/review/deb-olin-unferth-earth-7.html
+
+**Paxton’s Senate Bid Raises the Stakes in His War on Latino Voting Groups**\
+`The Texas attorney general has mounted an all-out effort to prove Democratic Hispanic groups have been corrupting elections. Now he could be the beneficiary of his own attacks.`\
+https://www.nytimes.com/2026/06/06/us/politics/ken-paxton-latino-voting.html
+
+**The World Has Learned From the Last Ebola Outbreak, but Gaps Remain**\
+`The vaccine development process and coordination between health organizations have improved since a devastating 2014-2016 outbreak.`\
+https://www.nytimes.com/2026/06/06/world/africa/the-world-has-learned-from-the-last-ebola-outbreak-but-gaps-remain.html
+
+**Real Estate Giants Compass and Zillow Fight Over the Future of the Market**\
+`Both companies face lawsuits and antitrust inquiries as they attempt to control the experience of home buying.`\
+https://www.nytimes.com/2026/06/06/realestate/zillow-compass-real-estate-consolidation.html
+
+**Sizzling New Summer Thrillers**\
+`Summer’s here. It’s hot. Let these books deliver some chills.`\
+https://www.nytimes.com/2026/06/06/books/review/new-thriller-books.html
+
+**What Visual Evidence Tells Us About Israel’s Use of White Phosphorus in Lebanon**\
+`Videos collected by The Times shows how the Israeli military has deployed a munition that can be extremely harmful over populated areas in Lebanon.`\
+https://www.nytimes.com/2026/06/06/world/middleeast/white-phosphorous-israel-lebanon.html
+
+**Dulcé Sloan Thinks You Should Pick Up When the Phone Rings**\
+`“There’s nothing better than talking to a boy on the phone! How do you make a genuine connection to someone? You can’t get tone through texting.”`\
+https://www.nytimes.com/2026/06/06/arts/television/dulce-sloan-comedy.html
+
 **An Edith Wharton Short Story Is Published About 100 Years Later**\
 `The short story, which is set during World War I, is believed to have been printed for the first time on Friday. The story is thought to have been written no earlier than July 1918.`\
 https://www.nytimes.com/2026/06/06/books/edith-wharton-new-short-story.html
