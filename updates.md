@@ -1,3 +1,11 @@
+**Amid Mounting Democratic Concern, Platner Says His Past Is Being ‘Weaponized’**\
+`The presumptive Democratic Senate nominee in Maine said the state would have his back in the face of accusations he has denied`\
+https://www.nytimes.com/2026/06/05/us/politics/graham-platner-maine-rally-senate.html
+
+**Iran Fired Drones Toward Strait of Hormuz With U.S. Shooting Down at Least 4, U.S. Military Says**\
+`The latest violence between the United States and Iran threatened a cease-fire and risked further stoking tensions in the region.`\
+https://www.nytimes.com/2026/06/05/us/politics/iran-attack-drones-hormuz.html
+
 **Cuando Jeffrey Epstein necesitaba favores, recurría a este magnate restaurantero**\
 `Stephen Hanson, cuyo imperio incluía Blue Water Grill y Ruby Foo’s, era un amigo devoto y un compinche que ayudaba a manejar y entretener a las mujeres del círculo de Epstein.`\
 https://www.nytimes.com/es/2026/06/05/espanol/jeffrey-epstein-stephen-hanson.html
