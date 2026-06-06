@@ -1,3 +1,7 @@
+**How Our Theater Reporter Makes His Tony Award Predictions**\
+`Michael Paulson, the theater reporter for The New York Times, has seen every production eligible for a Tony Award in the past decade. He explains the rigorous reporting process behind his predictions.`\
+https://www.nytimes.com/video/insider/100000010942319/how-our-theater-reporter-makes-his-tony-award-predictions.html
+
 **Kennedy Center Loses Case Against Musician Who Canceled Over Trump Naming Dispute**\
 `A federal judge sided with jazz performer Chuck Redd, who canceled a 2025 holiday concert after President Trump’s name was added to the building.`\
 https://www.nytimes.com/2026/06/06/us/politics/kennedy-center-lawsuit-tossed-trump-chuck-redd.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/06/style/people-love-to-hate-this-fake-private-e
 **Screwworm Flies Add to Cattle Ranchers’ Woes**\
 `Some Texans fear “the nightmares and the horrors” of a potential screwworm outbreak. Elsewhere, not enough grass to feed cattle sends them to market earlier.`\
 https://www.nytimes.com/2026/06/06/business/screwworm-flies-drought-cattle.html
-
-**Test Your Broadway Knowledge, 2026 Tonys Edition**\
-`The Tony Awards are Sunday night. How well do you know this season’s shows and stars?`\
-https://www.nytimes.com/interactive/2026/06/06/theater/tony-awards-broadway-quiz.html
 
