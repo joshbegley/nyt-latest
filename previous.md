@@ -1,3 +1,15 @@
+**Escape From Trumpism**\
+`The best pathway out is to make Congress great again.`\
+https://www.nytimes.com/2026/06/06/opinion/democrats-reconstruction-project-2029.html
+
+**Infant Killed as Israeli Military Fires on Car in West Bank, Palestinian Officials Say**\
+`Israel’s military said a car was speeding toward soldiers when one of them opened fire. The baby’s grandmother, who said she was in the car, disputed that account.`\
+https://www.nytimes.com/2026/06/06/world/middleeast/israel-west-bank-infant.html
+
+**It’s Gazpacho Time**\
+`Julia Moskin’s best gazpacho lives up to its name, with five stars and over 16,000 reviews.`\
+https://www.nytimes.com/2026/06/06/dining/its-gazpacho-time.html
+
 **Celebrities Love Bike Dates. Should You Try One, Too?**\
 `Celebrities have recently been hitting the bike lane with their beaus, but the “Bicycle Boy” was once branded a type to be avoided.`\
 https://www.nytimes.com/2026/06/06/style/celebrity-bike-date-romantic-idea.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/06/us/politics/immigration-courts-deportation.ht
 **5 Tips to Start Managing Your Aging Parents’ Money**\
 `And one big mistake to avoid.`\
 https://www.nytimes.com/2026/06/06/business/retirement-managing-parents-money.html
-
-**Book Review: ‘Earth 7,’ by Deb Olin Unferth**\
-`Deb Olin Unferth’s new novel is part cosmic comedy and part dirge for our dying world.`\
-https://www.nytimes.com/2026/06/06/books/review/deb-olin-unferth-earth-7.html
-
-**Paxton’s Senate Bid Raises the Stakes in His War on Latino Voting Groups**\
-`The Texas attorney general has mounted an all-out effort to prove Democratic Hispanic groups have been corrupting elections. Now he could be the beneficiary of his own attacks.`\
-https://www.nytimes.com/2026/06/06/us/politics/ken-paxton-latino-voting.html
-
-**The World Has Learned From the Last Ebola Outbreak, but Gaps Remain**\
-`The vaccine development process and coordination between health organizations have improved since a devastating 2014-2016 outbreak.`\
-https://www.nytimes.com/2026/06/06/world/africa/the-world-has-learned-from-the-last-ebola-outbreak-but-gaps-remain.html
 

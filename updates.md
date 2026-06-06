@@ -1,3 +1,15 @@
+**Escape From Trumpism**\
+`The best pathway out is to make Congress great again.`\
+https://www.nytimes.com/2026/06/06/opinion/democrats-reconstruction-project-2029.html
+
+**Infant Killed as Israeli Military Fires on Car in West Bank, Palestinian Officials Say**\
+`Israel’s military said a car was speeding toward soldiers when one of them opened fire. The baby’s grandmother, who said she was in the car, disputed that account.`\
+https://www.nytimes.com/2026/06/06/world/middleeast/israel-west-bank-infant.html
+
+**It’s Gazpacho Time**\
+`Julia Moskin’s best gazpacho lives up to its name, with five stars and over 16,000 reviews.`\
+https://www.nytimes.com/2026/06/06/dining/its-gazpacho-time.html
+
 **Celebrities Love Bike Dates. Should You Try One, Too?**\
 `Celebrities have recently been hitting the bike lane with their beaus, but the “Bicycle Boy” was once branded a type to be avoided.`\
 https://www.nytimes.com/2026/06/06/style/celebrity-bike-date-romantic-idea.html
