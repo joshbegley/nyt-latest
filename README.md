@@ -1,3 +1,7 @@
+**Escape From Trumpism**\
+`The best pathway out is to make Congress great again.`\
+https://www.nytimes.com/2026/06/06/opinion/democrats-reconstruction-project-2029.html
+
 **Infant Killed as Israeli Military Fires on Car in West Bank, Palestinian Officials Say**\
 `Israel’s military said a car was speeding toward soldiers when one of them opened fire. The baby’s grandmother, who said she was in the car, disputed that account.`\
 https://www.nytimes.com/2026/06/06/world/middleeast/israel-west-bank-infant.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/06/us/politics/immigration-courts-deportation.ht
 **5 Tips to Start Managing Your Aging Parents’ Money**\
 `And one big mistake to avoid.`\
 https://www.nytimes.com/2026/06/06/business/retirement-managing-parents-money.html
-
-**Book Review: ‘Earth 7,’ by Deb Olin Unferth**\
-`Deb Olin Unferth’s new novel is part cosmic comedy and part dirge for our dying world.`\
-https://www.nytimes.com/2026/06/06/books/review/deb-olin-unferth-earth-7.html
 
