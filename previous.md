@@ -1,3 +1,31 @@
+**Graham Platner and the Rise of the ‘Dirtbag’ Democrat**\
+`And what the Maine candidate reveals about politics today.`\
+https://www.nytimes.com/2026/06/06/opinion/graham-platner-democrats-politics.html
+
+**And the No. 1 State for Well-Being Is …**\
+`Trust, well-being and mental health are all down in America. But some states are better to live in than others, according to a new study.`\
+https://www.nytimes.com/2026/06/06/opinion/happiness-trust-americans-states.html
+
+**Norma Jeane’s Still Got It!**\
+`Some continue to like it hot.`\
+https://www.nytimes.com/2026/06/06/opinion/marilyn-monroe-birthday.html
+
+**When Is It Wrong to Use A.I.?**\
+`How to criticize an inevitable disruption.`\
+https://www.nytimes.com/2026/06/06/opinion/ai-pope-leo-encyclical.html
+
+**Want to Change Your Life? Become a Dad.**\
+`The benefits of fatherhood are deep and long lasting.`\
+https://www.nytimes.com/2026/06/06/opinion/dad-brain-health-fatherhood.html
+
+**Who Should Get an A at Harvard?**\
+`Readers respond to a guest essay about the university’s new 20 percent cap on A grades.`\
+https://www.nytimes.com/2026/06/06/opinion/harvard-grades.html
+
+**Graham Platner and the Rise of the ‘Dirtbag’ Democrat**\
+`And what the Maine candidate reveals about politics today.`\
+https://www.nytimes.com/video/opinion/100000010943230/graham-platner-and-the-rise-of-the-dirtbag-democrat.html
+
 **Balancing Act**\
 `The tension between sticking to what we know and seeking out new experiences is one of comfort versus novelty. How can we have both?`\
 https://www.nytimes.com/2026/06/06/briefing/balancing-act.html
@@ -110,7 +138,7 @@ https://www.nytimes.com/2026/06/06/world/asia/as-ebola-spreads-in-east-africa-wi
 `Built atop a freeway that once split a historic Black neighborhood, Halperin Park attempts to reconnect communities divided by midcentury highway construction.`\
 https://www.nytimes.com/2026/06/06/us/dallas-halperin-park-oak-cliff-interstate-35e.html
 
-**In ‘Waist Deep,’ Linea Maja Linea Explores Millennial Desire**\
+**In ‘Waist Deep,’ Linea Maja Ernst Explores Millennial Desire**\
 `The Danish writer Linea Maja Ernst’s debut novel, “Waist Deep,” a hit in Europe, explores the flirtations and frustrations within a millennial friendship circle.`\
 https://www.nytimes.com/2026/06/06/books/linea-ernst-denmark-millennial-novel-waist-deep.html
 
@@ -169,32 +197,4 @@ https://www.nytimes.com/es/2026/06/06/espanol/tiktok-redes-sociales-estudiantes-
 **New York City’s Most Patient Soccer Fans Are Ready for the Party**\
 `Uzbekistan is new to the World Cup. Norway and Haiti haven’t been there in decades. For expat communities all over the city, the wait is nearly over.`\
 https://www.nytimes.com/2026/06/06/nyregion/world-cup-new-york-community.html
-
-**A.I. Companies Don’t Know What to Do With Alex Bores**\
-`Outside groups have spent roughly $12 million to support or oppose Mr. Bores’s campaign for a House seat in Manhattan, elevating his name in a crowded race.`\
-https://www.nytimes.com/2026/06/06/nyregion/alex-bores-primary-ai-palantir.html
-
-**How Tony Danza Spends a Day Playing a Villain and Frank Sinatra**\
-`Mr. Danza does not know the meaning of a day off. He said he has too much still to do.`\
-https://www.nytimes.com/interactive/2026/06/06/nyregion/routine-tony-danza.html
-
-**NYT Spelling Bee Answers for June 6, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/06/06/crosswords/spelling-bee-forum.html
-
-**Trump Pardons Former Congressman Convicted of Insider Trading**\
-`Stephen Buyer, a former Republican representative from Indiana, was convicted of trading stock related to two deals before they were made public.`\
-https://www.nytimes.com/2026/06/06/us/politics/trump-pardon-stephen-buyer-insider-trading.html
-
-**China levanta murallas alrededor de su economía**\
-`Pekín afirma que las normas anunciadas esta semana son necesarias para la seguridad nacional, pero podrían complicar los esfuerzos por encontrar crecimiento en el extranjero.`\
-https://www.nytimes.com/es/2026/06/06/espanol/negocios/economia-china-regulaciones.html
-
-**Nick es un Jonas Brother y un solista a la vez**\
-`Con un protagónico en la película ‘Letras robadas’ y ambiciones en otros medios, el joven de 33 años se está labrando un camino singular.`\
-https://www.nytimes.com/es/2026/06/06/espanol/cultura/entrevista-nick-jonas.html
-
-**No hay nada malo en desear a los hombres**\
-`El “heteropesimismo” está de moda, pero en realidad nunca ha habido un mejor momento para buscar el amor. Vamos, sé hetero-optimista.`\
-https://www.nytimes.com/es/2026/06/06/espanol/opinion/heteropesimismo-optimismo.html
 

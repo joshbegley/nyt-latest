@@ -1,10 +1,10 @@
-**Graham Platner and the Rise of the ‘Dirtbag’ Democrat**\
-`And what the Maine candidate reveals about politics today.`\
-https://www.nytimes.com/2026/06/06/opinion/graham-platner-democrats-politics.html
-
 **And the No. 1 State for Well-Being Is …**\
 `Trust, well-being and mental health are all down in America. But some states are better to live in than others, according to a new study.`\
 https://www.nytimes.com/2026/06/06/opinion/happiness-trust-americans-states.html
+
+**Graham Platner and the Rise of the ‘Dirtbag’ Democrat**\
+`And what the Maine candidate reveals about politics today.`\
+https://www.nytimes.com/2026/06/06/opinion/graham-platner-democrats-politics.html
 
 **Norma Jeane’s Still Got It!**\
 `Some continue to like it hot.`\

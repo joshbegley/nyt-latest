@@ -1,3 +1,35 @@
+**Graham Platner and the Rise of the ‘Dirtbag’ Democrat**\
+`And what the Maine candidate reveals about politics today.`\
+https://www.nytimes.com/2026/06/06/opinion/graham-platner-democrats-politics.html
+
+**And the No. 1 State for Well-Being Is …**\
+`Trust, well-being and mental health are all down in America. But some states are better to live in than others, according to a new study.`\
+https://www.nytimes.com/2026/06/06/opinion/happiness-trust-americans-states.html
+
+**Norma Jeane’s Still Got It!**\
+`Some continue to like it hot.`\
+https://www.nytimes.com/2026/06/06/opinion/marilyn-monroe-birthday.html
+
+**When Is It Wrong to Use A.I.?**\
+`How to criticize an inevitable disruption.`\
+https://www.nytimes.com/2026/06/06/opinion/ai-pope-leo-encyclical.html
+
+**Want to Change Your Life? Become a Dad.**\
+`The benefits of fatherhood are deep and long lasting.`\
+https://www.nytimes.com/2026/06/06/opinion/dad-brain-health-fatherhood.html
+
+**Who Should Get an A at Harvard?**\
+`Readers respond to a guest essay about the university’s new 20 percent cap on A grades.`\
+https://www.nytimes.com/2026/06/06/opinion/harvard-grades.html
+
+**Graham Platner and the Rise of the ‘Dirtbag’ Democrat**\
+`And what the Maine candidate reveals about politics today.`\
+https://www.nytimes.com/video/opinion/100000010943230/graham-platner-and-the-rise-of-the-dirtbag-democrat.html
+
+**In ‘Waist Deep,’ Linea Maja Ernst Explores Millennial Desire**\
+`The Danish writer Linea Maja Ernst’s debut novel, “Waist Deep,” a hit in Europe, explores the flirtations and frustrations within a millennial friendship circle.`\
+https://www.nytimes.com/2026/06/06/books/linea-ernst-denmark-millennial-novel-waist-deep.html
+
 **Pope Leo, After Taking on Trump and A.I., Prepares for New Duels in Spain**\
 `Leo arrived in Spain on Saturday for a weeklong visit in which he will meet with migrants and may come under fire from Vox, Spain’s far-right party.`\
 https://www.nytimes.com/2026/06/06/world/europe/leo-spain-visit.html
