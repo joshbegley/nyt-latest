@@ -1,3 +1,7 @@
+**Balancing Act**\
+`The tension between sticking to what we know and seeking out new experiences is one of comfort versus novelty. How can we have both?`\
+https://www.nytimes.com/2026/06/06/briefing/balancing-act.html
+
 **My (Sort of) Ex Has Cancer. Is It Fair That She Expects Me to Take Care of Her?**\
 `Part of me recognizes that walking away is loathsome and something most people would judge harshly.`\
 https://www.nytimes.com/2026/06/06/magazine/ex-cancer-care-ethics.html
