@@ -1,3 +1,7 @@
+**A Viral Gen-Z Protest Movement Draws Thousands to India’s Capital**\
+`The Cockroach Janta Party started as a joke, but it quickly became a way for many Indians to express their frustration with the system.`\
+https://www.nytimes.com/2026/06/06/world/asia/india-protest-cockroach-janta-party.html
+
 **Sorry, I’m Not Available. Talk to the A.I. Me.**\
 `The hot new productivity hack for C.E.O.s and Harvard professors? A.I. twins that answer questions and attend meetings.`\
 https://www.nytimes.com/2026/06/06/business/dealbook/ai-digital-twin.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/06/books/review/new-thriller-books.html
 **What Visual Evidence Tells Us About Israel’s Use of White Phosphorus in Lebanon**\
 `Videos collected by The Times shows how the Israeli military has deployed a munition that can be extremely harmful over populated areas in Lebanon.`\
 https://www.nytimes.com/2026/06/06/world/middleeast/white-phosphorous-israel-lebanon.html
-
-**Dulcé Sloan Thinks You Should Pick Up When the Phone Rings**\
-`“There’s nothing better than talking to a boy on the phone! How do you make a genuine connection to someone? You can’t get tone through texting.”`\
-https://www.nytimes.com/2026/06/06/arts/television/dulce-sloan-comedy.html
 

@@ -1,3 +1,7 @@
+**A Viral Gen-Z Protest Movement Draws Thousands to India’s Capital**\
+`The Cockroach Janta Party started as a joke, but it quickly became a way for many Indians to express their frustration with the system.`\
+https://www.nytimes.com/2026/06/06/world/asia/india-protest-cockroach-janta-party.html
+
 **The States Where Life Is Better**\
 `Trust, well-being and mental health are all down in America. But some states are better to live in than others, according to a new study.`\
 https://www.nytimes.com/2026/06/06/opinion/happiness-trust-americans-states.html
