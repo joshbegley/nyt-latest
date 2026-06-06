@@ -1,3 +1,7 @@
+**Las aplicaciones de redes sociales enganchan a los estudiantes en horario escolar**\
+`Documentos internos muestran que empresas como Snap y TikTok mandaban mensajes a sus jóvenes usuarios a lo largo del día, distrayéndolos de sus clases.`\
+https://www.nytimes.com/es/2026/06/06/espanol/tiktok-redes-sociales-estudiantes-horario-escolar.html
+
 **New York City’s Most Patient Soccer Fans Are Ready for the Party**\
 `Uzbekistan is new to the World Cup. Norway and Haiti haven’t been there in decades. For expat communities all over the city, the wait is nearly over.`\
 https://www.nytimes.com/2026/06/06/nyregion/world-cup-new-york-community.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/05/us/texas-screwworm-first-us-case-emergency-re
 **A Sherpa Survived 6 Days Alone on Everest. His Family Says He Was Abandoned.**\
 `Dawa Sherpa, 57, was found alive on Thursday, nearly a week after he was last seen on the mountain. His wife says more could have been done to find him sooner.`\
 https://www.nytimes.com/2026/06/05/world/asia/missing-sherpa-mount-everest-found.html
-
-**France Opens Investigation Into Israeli Treatment of Pro-Palestinian Flotilla Activists**\
-`Activists who were detained with a flotilla trying to reach the Gaza Strip have said they were abused while in Israel’s custody. Israeli authorities have denied mistreating them.`\
-https://www.nytimes.com/2026/06/05/world/europe/france-israel-flotilla-activists.html
 
