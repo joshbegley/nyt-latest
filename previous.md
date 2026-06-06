@@ -1,3 +1,7 @@
+**Israeli Strike Kills 3 Lebanese Soldiers, Days After Truce Was Signed**\
+`Israel invaded Lebanon and occupied parts of the country to fight Hezbollah, an Iran-backed armed group, but its military offensive has drawn in others.`\
+https://www.nytimes.com/2026/06/06/world/middleeast/israel-strike-lebanese-soldiers-general.html
+
 **A Viral Gen-Z Protest Movement Draws Thousands to India’s Capital**\
 `The Cockroach Janta Party started as a joke, but it quickly became a way for many Indians to express their frustration with the system.`\
 https://www.nytimes.com/2026/06/06/world/asia/india-protest-cockroach-janta-party.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/06/realestate/zillow-compass-real-estate-consoli
 **Sizzling New Summer Thrillers**\
 `Summer’s here. It’s hot. Let these books deliver some chills.`\
 https://www.nytimes.com/2026/06/06/books/review/new-thriller-books.html
-
-**What Visual Evidence Tells Us About Israel’s Use of White Phosphorus in Lebanon**\
-`Videos collected by The Times shows how the Israeli military has deployed a munition that can be extremely harmful over populated areas in Lebanon.`\
-https://www.nytimes.com/2026/06/06/world/middleeast/white-phosphorous-israel-lebanon.html
 
