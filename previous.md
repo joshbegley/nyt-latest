@@ -1,3 +1,15 @@
+**Despite Protest, Ye Takes the Stage for Thousands of European Fans**\
+`Nearly 40,000 fans came out to hear the rapper formerly known as Kanye West in the Netherlands on Saturday, even as other European countries had canceled his concerts.`\
+https://www.nytimes.com/2026/06/06/arts/music/ye-concert-bully-tour-netherlands.html
+
+**Multiple People Shot Near Street Festival in Toledo, Ohio, Police Say**\
+`The Toledo Police Department did not provide further details about the number of people shot or the extent of their injuries.`\
+https://www.nytimes.com/2026/06/06/us/toledo-ohio-shooting-festival.html
+
+**Bernadette Chirac, Formidable Ex-First Lady of France, Dies at 93**\
+`Long seen as the cool, coifed wife of the president, she emerged as a political player in her own right, as well as a relentless champion of charities.`\
+https://www.nytimes.com/2026/06/06/world/europe/bernadette-chirac-dead.html
+
 **Senators Warn of Intelligence Gaps if Surveillance Program Expires**\
 `Two senior Republicans urged the Trump administration to prepare for the possible expiration of a contentious intelligence-gathering authority.`\
 https://www.nytimes.com/2026/06/06/us/politics/cotton-grassley-surveillance-program.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/video/podcasts/100000010948479/raphael-warnock-on-jd-van
 **YouTuber and Wife Ended Pregnancy After Down Syndrome Diagnosis. They Got Death Threats.**\
 `After Jesse Ridgway, a popular YouTuber, and his wife, Ashley, revealed the news, death threats followed.`\
 https://www.nytimes.com/2026/06/06/us/down-syndrome-abortion-jesse-ridgway.html
-
-**Taylor Swift, Madonna: 9 Songs We’re Talking About This Week**\
-`Taylor Swift is back with a “Toy Story” contribution while Madonna returns to the dance floor.`\
-https://www.nytimes.com/2026/06/06/arts/music/taylor-swift-madonna-songs.html
-
-**Bowerbirds Are Stealing Cash, Plastic and Handcuffs for Love**\
-`For millions of years, male great bowerbirds have wooed their mates with flowers and seeds. But in today’s urban world, such humble fare may not cut it.`\
-https://www.nytimes.com/2026/06/06/science/bowerbird-mating-plastic.html
-
-**Él quería darme un millón de besos. ¿Lo lograría?**\
-`Mi optimista y romántico esposo nunca hubiera imaginado lo que nos pasaría.`\
-https://www.nytimes.com/es/2026/06/06/espanol/estilos-de-vida/modern-love-matrimonio-duelo-cancer.html
 

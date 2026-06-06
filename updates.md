@@ -1,3 +1,15 @@
+**Despite Protest, Ye Takes the Stage for Thousands of European Fans**\
+`Nearly 40,000 fans came out to hear the rapper formerly known as Kanye West in the Netherlands on Saturday, even as other European countries had canceled his concerts.`\
+https://www.nytimes.com/2026/06/06/arts/music/ye-concert-bully-tour-netherlands.html
+
+**Multiple People Shot Near Street Festival in Toledo, Ohio, Police Say**\
+`The Toledo Police Department did not provide further details about the number of people shot or the extent of their injuries.`\
+https://www.nytimes.com/2026/06/06/us/toledo-ohio-shooting-festival.html
+
+**Bernadette Chirac, Formidable Ex-First Lady of France, Dies at 93**\
+`Long seen as the cool, coifed wife of the president, she emerged as a political player in her own right, as well as a relentless champion of charities.`\
+https://www.nytimes.com/2026/06/06/world/europe/bernadette-chirac-dead.html
+
 **Senators Warn of Intelligence Gaps if Surveillance Program Expires**\
 `Two senior Republicans urged the Trump administration to prepare for the possible expiration of a contentious intelligence-gathering authority.`\
 https://www.nytimes.com/2026/06/06/us/politics/cotton-grassley-surveillance-program.html
