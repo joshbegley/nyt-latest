@@ -1,3 +1,15 @@
+**China levanta murallas alrededor de su economía**\
+`Pekín afirma que las normas anunciadas esta semana son necesarias para la seguridad nacional, pero podrían complicar los esfuerzos por encontrar crecimiento en el extranjero.`\
+https://www.nytimes.com/es/2026/06/06/espanol/negocios/economia-china-regulaciones.html
+
+**Nick es un Jonas Brother y un solista a la vez**\
+`Con un protagónico en la película ‘Letras robadas’ y ambiciones en otros medios, el joven de 33 años se está labrando un camino singular.`\
+https://www.nytimes.com/es/2026/06/06/espanol/cultura/entrevista-nick-jonas.html
+
+**No hay nada malo en desear a los hombres**\
+`El “heteropesimismo” está de moda, pero en realidad nunca ha habido un mejor momento para buscar el amor. Vamos, sé hetero-optimista.`\
+https://www.nytimes.com/es/2026/06/06/espanol/opinion/heteropesimismo-optimismo.html
+
 **Laboring Under Delhi’s Harsh Heat, Workers Must Choose Health or Wages**\
 `Severe heat waves have been hitting India since April, forcing many of the country’s essential workers to make tough decisions.`\
 https://www.nytimes.com/2026/06/06/world/asia/india-heat-workers-health-income.html

@@ -1,3 +1,15 @@
+**China levanta murallas alrededor de su economía**\
+`Pekín afirma que las normas anunciadas esta semana son necesarias para la seguridad nacional, pero podrían complicar los esfuerzos por encontrar crecimiento en el extranjero.`\
+https://www.nytimes.com/es/2026/06/06/espanol/negocios/economia-china-regulaciones.html
+
+**Nick es un Jonas Brother y un solista a la vez**\
+`Con un protagónico en la película ‘Letras robadas’ y ambiciones en otros medios, el joven de 33 años se está labrando un camino singular.`\
+https://www.nytimes.com/es/2026/06/06/espanol/cultura/entrevista-nick-jonas.html
+
+**No hay nada malo en desear a los hombres**\
+`El “heteropesimismo” está de moda, pero en realidad nunca ha habido un mejor momento para buscar el amor. Vamos, sé hetero-optimista.`\
+https://www.nytimes.com/es/2026/06/06/espanol/opinion/heteropesimismo-optimismo.html
+
 **Laboring Under Delhi’s Harsh Heat, Workers Must Choose Health or Wages**\
 `Severe heat waves have been hitting India since April, forcing many of the country’s essential workers to make tough decisions.`\
 https://www.nytimes.com/2026/06/06/world/asia/india-heat-workers-health-income.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/video/podcasts/100000010947693/the-dream-of-emo-is-alive
 **Ned Jarrett, Champion Stock Car Racer in the 1960s, Dies at 93**\
 `He won the sport’s most important series, NASCAR’s Grand National, and his son followed in his footsteps. Both were inducted into the Hall of Fame.`\
 https://www.nytimes.com/2026/06/05/sports/ned-jarrett-dead.html
-
-**Edición genética: embriones humanos son editados por primera vez con gran precisión**\
-`Los investigadores utilizaron una nueva técnica de edición de genes que podría permitir la ingeniería genética de embriones, una perspectiva que desde hace tiempo preocupa a los bioeticistas.`\
-https://www.nytimes.com/es/2026/06/05/espanol/ciencia-y-tecnologia/embrion-humano-genetica.html
-
-**Reid Hoffman to Leave Microsoft’s Board of Directors**\
-`The LinkedIn co-founder was a key bridge to Microsoft’s relationship with OpenAI, but he also came with some baggage.`\
-https://www.nytimes.com/2026/06/05/technology/reid-hoffman-leaving-microsoft-board.html
-
-**El Senado de EE. UU. aprueba un proyecto de ley de inmigración republicano**\
-`La aprobación de la financiación por 70.000 millones de dólares para medidas migratorias fue una victoria para el presidente Trump y su partido, aunque el debate puso de manifiesto las fisuras entre él y los senadores republicanos.`\
-https://www.nytimes.com/es/2026/06/05/espanol/estados-unidos/proyecto-de-ley-inmigracion-republicano.html
 
