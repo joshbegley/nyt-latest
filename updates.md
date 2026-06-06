@@ -1,3 +1,7 @@
+**I’ve Been Depriving You of Cookies**\
+`In repentance, I offer you frosted sugar cookies, double chocolate chip cookies and peanut butter-miso cookies.`\
+https://www.nytimes.com/2026/06/06/dining/ive-been-depriving-you-of-cookies.html
+
 **Israeli Strike Kills 3 Lebanese Soldiers, Days After Truce Was Signed**\
 `Israel invaded Lebanon and occupied parts of the country to fight Hezbollah, an Iran-backed armed group, but its military offensive has drawn in others.`\
 https://www.nytimes.com/2026/06/06/world/middleeast/israel-strike-lebanese-soldiers-general.html
