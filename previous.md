@@ -66,7 +66,7 @@ https://www.nytimes.com/2026/06/06/opinion/marilyn-monroe-birthday.html
 `How to criticize an inevitable disruption.`\
 https://www.nytimes.com/2026/06/06/opinion/ai-pope-leo-encyclical.html
 
-**Want to Change Your Life? Become a Dad.**\
+**Behind Every Dad Bod Is a Healthy Dad Brain**\
 `The benefits of fatherhood are deep and long lasting.`\
 https://www.nytimes.com/2026/06/06/opinion/dad-brain-health-fatherhood.html
 

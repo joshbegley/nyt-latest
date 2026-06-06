@@ -1,3 +1,7 @@
+**Behind Every Dad Bod Is a Healthy Dad Brain**\
+`The benefits of fatherhood are deep and long lasting.`\
+https://www.nytimes.com/2026/06/06/opinion/dad-brain-health-fatherhood.html
+
 **Trump’s Defense Department Sees Growing Espionage Threat From Israel**\
 `The Defense Department has increased the counterintelligence threat assessment to its highest level, and Israel is believed to have eavesdropped on American negotiations with Iran.`\
 https://www.nytimes.com/2026/06/06/us/politics/pentagon-sees-growing-espionage-threat-from-israel.html
