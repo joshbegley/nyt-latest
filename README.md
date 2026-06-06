@@ -1,3 +1,7 @@
+**Park Ranger Dies After Falling Into a Crevasse on Mt. McKinley**\
+`Robin Pendery, 33, who was part of a climbing patrol, was near a camp at about 14,000 feet on the mountain in Alaska when she fell, the National Park Service said.`\
+https://www.nytimes.com/2026/06/05/us/national-park-service-ranger-dead-mount-mckinley.html
+
 **SpaceX Has $30 Billion Deal to Provide Google With A.I. Computing Power**\
 `Elon Musk’s rocket company said Google would pay it $920 million a month, as it prepared for its initial public offering.`\
 https://www.nytimes.com/2026/06/05/technology/spacex-google-deal.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/05/sports/formula-1-television-production.html
 **Read the Email From the ‘60 Minutes’ Stars**\
 `Lesley Stahl, Bill Whitaker and Jon Wertheim told their colleagues why they would stay at the show.`\
 https://www.nytimes.com/interactive/2026/06/05/business/media/60-minutes-stahl-wertheim-whittaker-memo.html
-
-**Formula 1 Has Spread Its Appeal. Top Athletes Have Jumped on Board.**\
-`Elite players have been drawn to a sport that operates at over 200 m.p.h. The head of F1 said high-performing drivers and players speak the same language.`\
-https://www.nytimes.com/2026/06/05/sports/f1-athlete-fans-investors.html
 
