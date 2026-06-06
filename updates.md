@@ -1,3 +1,11 @@
+**Sorry, I’m Not Available. Talk to the A.I. Me.**\
+`The hot new productivity hack for C.E.O.s and Harvard professors? A.I. twins that answer questions and attend meetings.`\
+https://www.nytimes.com/2026/06/06/business/dealbook/ai-digital-twin.html
+
+**5 Unsung Heroes Who Carried the Memory of D-Day**\
+`A journalist, a medic, a weather forecaster, a Medal of Honor recipient, a French commando: Their efforts showed that courage transcends race, class and gender.`\
+https://www.nytimes.com/2026/06/06/obituaries/d-day-normandy-wwii-heroes.html
+
 **Flipping a Philip Johnson: The Booth House Gets a Lifeline**\
 `In Bedford, N.Y., an architect and builder duo are betting that the Glass House architect’s first residential commission can be saved — and put back on the market.`\
 https://www.nytimes.com/2026/06/06/realestate/philip-johnson-glass-house-booth-house.html
