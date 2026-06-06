@@ -66,13 +66,13 @@ https://www.nytimes.com/2026/06/06/business/dealbook/ai-digital-twin.html
 `A journalist, a medic, a weather forecaster, a Medal of Honor recipient, a French commando: Their efforts showed that courage transcends race, class and gender.`\
 https://www.nytimes.com/2026/06/06/obituaries/d-day-normandy-wwii-heroes.html
 
-**The States Where Life Is Better**\
-`Trust, well-being and mental health are all down in America. But some states are better to live in than others, according to a new study.`\
-https://www.nytimes.com/2026/06/06/opinion/happiness-trust-americans-states.html
-
 **Graham Platner and the Rise of the ‘Dirtbag’ Democrat**\
 `And what the Maine candidate reveals about politics today.`\
 https://www.nytimes.com/2026/06/06/opinion/graham-platner-democrats-politics.html
+
+**The States Where Life Is Better**\
+`Trust, well-being and mental health are all down in America. But some states are better to live in than others, according to a new study.`\
+https://www.nytimes.com/2026/06/06/opinion/happiness-trust-americans-states.html
 
 **Norma Jeane’s Still Got It!**\
 `Some continue to like it hot.`\
