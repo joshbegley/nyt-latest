@@ -1,3 +1,131 @@
+**Deluged With Mail Ballots, California Takes Its Time Counting Votes Again**\
+`Experts say speeding up the count in California would take more resources, but also scaling back rules that expand voting access.`\
+https://www.nytimes.com/2026/06/06/us/california-slow-vote-count.html
+
+**Raphael Warnock on JD Vance’s ‘Callousness’ and ‘Hubris’**\
+`Raphael Warnock, a U.S. senator and a pastor, discusses the so-called “war on Christianity” and JD Vance’s criticism of Pope Leo.`\
+https://www.nytimes.com/video/podcasts/100000010948479/raphael-warnock-on-jd-vances-callousness-and-hubris.html
+
+**YouTuber and Wife Ended Pregnancy After Down Syndrome Diagnosis. They Got Death Threats.**\
+`After Jesse Ridgway, a popular YouTuber, and his wife, Ashley, revealed the news, death threats followed.`\
+https://www.nytimes.com/2026/06/06/us/down-syndrome-abortion-jesse-ridgway.html
+
+**Taylor Swift, Madonna: 9 Songs We’re Talking About This Week**\
+`Taylor Swift is back with a “Toy Story” contribution while Madonna returns to the dance floor.`\
+https://www.nytimes.com/2026/06/06/arts/music/taylor-swift-madonna-songs.html
+
+**Bowerbirds Are Stealing Cash, Plastic and Handcuffs for Love**\
+`For millions of years, male great bowerbirds have wooed their mates with flowers and seeds. But in today’s urban world, such humble fare may not cut it.`\
+https://www.nytimes.com/2026/06/06/science/bowerbird-mating-plastic.html
+
+**Él quería darme un millón de besos. ¿Lo lograría?**\
+`Mi optimista y romántico esposo nunca hubiera imaginado lo que nos pasaría.`\
+https://www.nytimes.com/es/2026/06/06/espanol/estilos-de-vida/modern-love-matrimonio-duelo-cancer.html
+
+**‘Euphoria’ tuvo un final extraño y poco convincente**\
+`Al final, una serie definida por sus excesos pareció esforzarse por conseguir una redención que no necesitaba.`\
+https://www.nytimes.com/es/2026/06/06/espanol/cultura/euphoria-tuvo-un-final-extrano-y-poco-convincente.html
+
+**People Love to Hate This Fake Private Equity Guy**\
+`Johnny Hilbrant Partridge has found social media fame as PE Guy, a character who embodies obnoxious entitlement.`\
+https://www.nytimes.com/2026/06/06/style/people-love-to-hate-this-fake-private-equity-guy.html
+
+**Screwworm Flies Add to Cattle Ranchers’ Woes**\
+`Some Texans fear “the nightmares and the horrors” of a potential screwworm outbreak. Elsewhere, not enough grass to feed cattle sends them to market earlier.`\
+https://www.nytimes.com/2026/06/06/business/screwworm-flies-drought-cattle.html
+
+**Test Your Broadway Knowledge, 2026 Tonys Edition**\
+`The Tony Awards are Sunday night. How well do you know this season’s shows and stars?`\
+https://www.nytimes.com/interactive/2026/06/06/theater/tony-awards-broadway-quiz.html
+
+**‘60 Minutes’ Is a ‘Cage Full of Tigers.’ Can Nick Bilton Lead It?**\
+`The tech journalist and filmmaker was a surprise choice to lead a famously combative newsroom. His first week was chaos.`\
+https://www.nytimes.com/2026/06/06/business/media/60-minutes-nick-bilton.html
+
+**Pope Leo, After Taking on Trump and A.I., Prepares for New Duels in Spain**\
+`Leo will arrive in Spain on Saturday for a weeklong visit in which he will meet with migrants and may come under fire from Vox, Spain’s far-right party.`\
+https://www.nytimes.com/2026/06/06/world/europe/leo-spain-visit.html
+
+**ICE Says Detainees Are ‘Worst of the Worst.’ Government Data Disagrees.**\
+`Federal officials said they are removing killers and rapists from the streets. Data obtained by The New York Times indicates most detainees at a Newark facility haven’t been convicted of crimes.`\
+https://www.nytimes.com/2026/06/06/nyregion/delaney-hall-ice-detainees.html
+
+**“Half Man” Shows the Dueling Sides of Modern Masculinity**\
+`Powered by exceptional performances from Jamie Bell and Richard Gadd, “Half Man” captures rare moments of male tenderness — before inevitably punishing them.`\
+https://www.nytimes.com/2026/06/06/arts/television/half-man-scenes-masculinity.html
+
+**Can I Trust the ‘Zestimate’ for My Home on Zillow?**\
+`According to a real estate attorney, the estimate “is only as good as the data that is fed into the system.”`\
+https://www.nytimes.com/2026/06/06/realestate/zillow-zestimate-accuracy.html
+
+**‘Ask E. Jean’ Illuminates Cultural Shifts**\
+`Alissa Wilkinson, a New York Times film critic, reflects on the documentary “Ask E. Jean” and the cultural shift toward accusers of sexual assault. E. Jean Carroll, the film’s protagonist, won two civil lawsuits against President Trump.`\
+https://www.nytimes.com/video/arts/100000010938048/ask-e-jean-illuminates-cultural-shifts.html
+
+**Flipping a Philip Johnson: The Booth House Gets a Lifeline.**\
+`In Bedford, N.Y., an architect and builder duo are betting that the Glass House architect’s first residential commission can be saved — and put back on the market.`\
+https://www.nytimes.com/2026/06/06/realestate/philip-johnson-glass-house-booth-house.html
+
+**As Ebola Spreads in East Africa, Will China Step Up?**\
+`China is well positioned to help stop the deadly virus, and could move into a gap left by U.S. retreat.`\
+https://www.nytimes.com/2026/06/06/world/asia/as-ebola-spreads-in-east-africa-will-china-step-up.html
+
+**Dallas’s Halperin Park Seeks to Reconnect Oak Cliff Decades After Highway Divided Neighborhood**\
+`Built atop a freeway that once split a historic Black neighborhood, Halperin Park attempts to reconnect communities divided by midcentury highway construction.`\
+https://www.nytimes.com/2026/06/06/us/dallas-halperin-park-oak-cliff-interstate-35e.html
+
+**In ‘Waist Deep,’ Linea Maja Linea Explores Millennial Desire**\
+`The Danish writer Linea Maja Ernst’s debut novel, “Waist Deep,” a hit in Europe, explores the flirtations and frustrations within a millennial friendship circle.`\
+https://www.nytimes.com/2026/06/06/books/linea-ernst-denmark-millennial-novel-waist-deep.html
+
+**2026 Tony Awards: What to Expect**\
+`This year’s annual celebration of the best on Broadway is being hosted by Pink.`\
+https://www.nytimes.com/2026/06/06/theater/tony-awards-2026-pink.html
+
+**In Venezuela, the Debt Collector Is the Devil**\
+`Got a debt to collect in Venezuela’s capital? Dr. Diablo and his pitchfork-wielding posse use public humiliation to pressure people into paying up.`\
+https://www.nytimes.com/2026/06/06/world/americas/venezuela-caracas-debt-collector-dr-diablo.html
+
+**Why the Radical Vision of Martha Graham Still Matters**\
+`The choreographer took a barefoot leap for modern dance 100 years ago. Her influence continues to reverberate.`\
+https://www.nytimes.com/2026/06/06/arts/dance/martha-graham-modern-dance-centennial.html
+
+**5 Tips to Start Managing Your Aging Parents’ Money**\
+`And one big mistake to avoid.`\
+https://www.nytimes.com/2026/06/06/business/retirement-managing-parents-money.html
+
+**As Trump Pushes Deportations, a Skyrocketing Caseload Strains Immigration Courts**\
+`A federal surge has more than doubled caseloads within some immigration courts nationwide. Lawyers say the tactic is causing errors and confusion.`\
+https://www.nytimes.com/2026/06/06/us/politics/immigration-courts-deportation.html
+
+**Book Review: ‘Earth 7,’ by Deb Olin Unferth**\
+`Deb Olin Unferth’s new novel is part cosmic comedy and part dirge for our dying world.`\
+https://www.nytimes.com/2026/06/06/books/review/deb-olin-unferth-earth-7.html
+
+**Paxton’s Senate Bid Raises the Stakes in His War on Latino Voting Groups**\
+`The Texas attorney general has mounted an all-out effort to prove Democratic Hispanic groups have been corrupting elections. Now he could be the beneficiary of his own attacks.`\
+https://www.nytimes.com/2026/06/06/us/politics/ken-paxton-latino-voting.html
+
+**The World Has Learned From the Last Ebola Outbreak, but Gaps Remain**\
+`The vaccine development process and coordination between health organizations have improved since a devastating 2014-2016 outbreak.`\
+https://www.nytimes.com/2026/06/06/world/africa/the-world-has-learned-from-the-last-ebola-outbreak-but-gaps-remain.html
+
+**Real Estate Giants Compass and Zillow Fight Over the Future of the Market**\
+`Both companies face lawsuits and antitrust inquiries as they attempt to control the experience of home buying.`\
+https://www.nytimes.com/2026/06/06/realestate/zillow-compass-real-estate-consolidation.html
+
+**Sizzling New Summer Thrillers**\
+`Summer’s here. It’s hot. Let these books deliver some chills.`\
+https://www.nytimes.com/2026/06/06/books/review/new-thriller-books.html
+
+**What Visual Evidence Tells Us About Israel’s Use of White Phosphorus in Lebanon**\
+`Videos collected by The Times shows how the Israeli military has deployed a munition that can be extremely harmful over populated areas in Lebanon.`\
+https://www.nytimes.com/2026/06/06/world/middleeast/white-phosphorous-israel-lebanon.html
+
+**Dulcé Sloan Thinks You Should Pick Up When the Phone Rings**\
+`“There’s nothing better than talking to a boy on the phone! How do you make a genuine connection to someone? You can’t get tone through texting.”`\
+https://www.nytimes.com/2026/06/06/arts/television/dulce-sloan-comedy.html
+
 **Las aplicaciones de redes sociales enganchan a los estudiantes en horario escolar**\
 `Documentos internos muestran que empresas como Snap y TikTok mandaban mensajes a sus jóvenes usuarios a lo largo del día, distrayéndolos de sus clases.`\
 https://www.nytimes.com/es/2026/06/06/espanol/tiktok-redes-sociales-estudiantes-horario-escolar.html
@@ -69,132 +197,4 @@ https://www.nytimes.com/2026/06/05/crosswords/daily-puzzle-2026-06-06.html
 **Amid Mounting Democratic Concern, Platner Says His Past Is Being ‘Weaponized’**\
 `The presumptive Democratic Senate nominee in Maine said the state would have his back in the face of accusations he has denied.`\
 https://www.nytimes.com/2026/06/05/us/politics/graham-platner-maine-rally-senate.html
-
-**Cuando Jeffrey Epstein necesitaba favores, recurría a este magnate restaurantero**\
-`Stephen Hanson, cuyo imperio incluía Blue Water Grill y Ruby Foo’s, era un amigo devoto y un compinche que ayudaba a manejar y entretener a las mujeres del círculo de Epstein.`\
-https://www.nytimes.com/es/2026/06/05/espanol/jeffrey-epstein-stephen-hanson.html
-
-**Trump Says Bill Pulte, His New Intelligence Director, Should Slash Staff**\
-`The president suggested that employees who worked for previous Democratic presidents were among those who should be fired.`\
-https://www.nytimes.com/2026/06/05/us/politics/trump-bill-pulte-intelligence-staff.html
-
-**Park Ranger Dies After Falling Into a Crevasse on Mt. McKinley**\
-`Robin Pendery, 33, who was part of a climbing patrol, was near a camp at about 14,000 feet on the mountain in Alaska when she fell, the National Park Service said.`\
-https://www.nytimes.com/2026/06/05/us/national-park-service-ranger-dead-mount-mckinley.html
-
-**SpaceX Has $30 Billion Deal to Provide Google With A.I. Computing Power**\
-`Elon Musk’s rocket company said Google would pay it $920 million a month, as it prepared for its initial public offering.`\
-https://www.nytimes.com/2026/06/05/technology/spacex-google-deal.html
-
-**Trump Administration Investigating Gender Treatments at Mount Sinai**\
-`A grand jury subpoenaed the health system for information about adolescent patients who had received gender-related care, Mount Sinai said on Friday.`\
-https://www.nytimes.com/2026/06/05/nyregion/trump-administration-investigating-gender-treatments-at-mount-sinai.html
-
-**Xavier Becerra Advances in California Governor Race**\
-`Mr. Becerra was long dismissed in the contest until the abrupt departure of Eric Swalwell created a surprise path for an experienced Democrat.`\
-https://www.nytimes.com/2026/06/05/us/elections/becerra-california-governor.html
-
-**Muere Anthony Head, actor en ‘Buffy’ y villano de ‘Ted Lasso’**\
-`El actor británico fue uno de los pilares de influyentes programas de televisión, y alcanzó la fama inicialmente como imagen de Nescafé.`\
-https://www.nytimes.com/es/2026/06/05/espanol/muere-anthony-head-buffys-ted-lasso.html
-
-**Iran Fired Drones Toward Strait of Hormuz With U.S. Shooting Down at Least 4, U.S. Military Says**\
-`The latest violence between the United States and Iran threatened a cease-fire and risked further stoking tensions in the region.`\
-https://www.nytimes.com/2026/06/05/us/politics/iran-attack-drones-hormuz.html
-
-**Iran’s Soccer Team Allowed Into U.S. for World Cup, but Many Staff Denied**\
-`After months of doubts over their participation, Iran’s players have received visas for the United States just days before the World Cup begins.`\
-https://www.nytimes.com/2026/06/05/world/middleeast/world-cup-iran-football-team-visas-war.html
-
-**Patel Said to Have Fired Five F.B.I. Analysts Over Memo on Catholic Extremists**\
-`It is the administration’s latest effort to force out law enforcement personnel it accuses of “weaponizing” the government against President Trump and his supporters.`\
-https://www.nytimes.com/2026/06/05/us/politics/patel-firings-richmond-memo.html
-
-**Ebola Cases May Top 20,000 in Three Months, C.D.C. Says**\
-`Still, the risk to people in the United States remains low, the Centers for Disease Control and Prevention said in a report Friday.`\
-https://www.nytimes.com/2026/06/05/us/politics/cdc-ebola-projection.html
-
-**See Where the L.A. Mayoral Candidates Have Done Best So Far**\
-`A map of early returns shows where coalitions have formed in the race between Karen Bass, Spencer Pratt and Nithya Raman.`\
-https://www.nytimes.com/interactive/2026/06/05/us/elections/los-angeles-mayor-primary-results-precinct-map.html
-
-**Pamela Hicks, Lady-in-Waiting to Elizabeth II of Britain, Dies at 97**\
-`The queen’s third cousin, she was a bridesmaid at the royal wedding in 1947, and witnessed firsthand pivotal moments in British history.`\
-https://www.nytimes.com/2026/06/05/world/europe/pamela-hicks-dead.html
-
-**Justice Dept. Promises to Drop Trump’s $1.8 Billion Fund**\
-`It was the department’s clearest statement to date that it was pulling back from a plan to use taxpayer money to make payments to people who claimed to have been politically persecuted.`\
-https://www.nytimes.com/2026/06/05/us/politics/trump-fund-doj.html
-
-**Amid Graham Platner Controversy, Where Does the Maine Senate Race Go Next?**\
-`New revelations about Graham Platner have left Democrats anxious.`\
-https://www.nytimes.com/2026/06/05/us/politics/maine-senate-graham-platner-democrats.html
-
-**ANWR Oil Draws Few Bids, Despite Trump’s Push for ‘Liquid Gold’**\
-`An auction to drill in the Arctic National Wildlife Refuge ended with just 10 percent of the available land claimed for oil development.`\
-https://www.nytimes.com/2026/06/05/climate/anwr-lease-sale-alaska.html
-
-**Judge Strikes Down a Slate of Trump’s Immigration Policies**\
-`Also, job growth is looking healthier. Here’s the latest at the end of Friday.`\
-https://www.nytimes.com/2026/06/05/briefing/judge-trump-immigration-policies.html
-
-**Mount Everest Guide Missing for 6 Days Is Found Alive**\
-`Dawa Sherpa, a Mount Everest guide, was found alive on Thursday, six days after he went missing.`\
-https://www.nytimes.com/video/world/asia/100000010945549/mount-everest-sherpa-found-alive.html
-
-**N.Y.C. Council Speaker Urged to Act After Member’s Anti-Muslim Posts**\
-`Interfaith leaders said City Council Speaker Julie Menin’s lack of response to Councilwoman Inna Vernikov’s Islamophobic statements called the city’s commitment to protecting Muslims into question.`\
-https://www.nytimes.com/2026/06/05/nyregion/inna-vernikov-julie-menin-muslim.html
-
-**Police Remove Diabetes Experts From Conference for Distributing Critique of Trump Administration**\
-`Several of those escorted out were scheduled to present at the American Diabetes Association conference this weekend.`\
-https://www.nytimes.com/2026/06/05/well/ada-conference-diabetes-trump.html
-
-**Pentagon Cuts 180 Religious Identities From Military Personnel Records**\
-`The new policy, which the Pentagon framed as a largely administrative action, leaves just 31 religious categories to choose from, 22 of which are Christian.`\
-https://www.nytimes.com/2026/06/05/us/pentagon-religions-faith-military.html
-
-**50 Years of People, Passion and Wine**\
-`Since 1976, Duckhorn Vineyards has made wines that capture the spirit of Napa Valley.`\
-http://brandedplaylist.nytimes.com/video/embedded/t-brand/100000010948385/50-years-of-people-passion-and-wine.html
-
-**Raphael Warnock Says the Supreme Court Has Done ‘Violence’ to Democracy**\
-`The Democratic senator from Georgia discusses voting rights, the influence of Christianity on politics, and his new book, “The Crooked Places Made Straight: Reflections on the Moral Meaning of America.”`\
-https://www.nytimes.com/video/podcasts/100000010947145/raphael-warnock-says-the-supreme-court-has-done-violence-to-democracy.html
-
-**Jennifer Lopez Says You Must Be Born in NYC to Be a New Yorker in ‘Subway Takes’ Interview**\
-`The actress and singer Jennifer Lopez said in an interview that someone must be born in New York City to be a New Yorker. Not everyone agrees.`\
-https://www.nytimes.com/2026/06/05/nyregion/jlo-new-yorker-rule.html
-
-**A Dark Vision of Masculinity**\
-`Why does the modern, online vision of masculinity feel so “deeply depressing”? In conversation with the journalist Helen Lewis, the Opinion columnist Ezra Klein explains how leading right-wing figures weaponize the word “virtue” to mask a lack of moral and civic obligation.`\
-https://www.nytimes.com/video/opinion/100000010940550/a-dark-vision-of-masculinity.html
-
-**Northeast Heat Forecast: New York Braces for a Surge of Summer Warmth**\
-`Boston, New York City and Philadelphia are expected to get into the 90s this weekend. More heat is coming next week.`\
-https://www.nytimes.com/2026/06/05/weather/new-york-philadelphia-heat-forecast.html
-
-**Anthony Head, ‘Buffy the Vampire Slayer’ and ‘Ted Lasso’ Actor, Dies at 72**\
-`The British actor was a mainstay of influential television shows who first found fame as a Nescafe pitchman.`\
-https://www.nytimes.com/2026/06/05/arts/television/anthony-head-dead.html
-
-**TK**\
-`TK`\
-https://static01.nyt.com/slideshow/2026/06/05/t-magazine/tk.html
-
-**How the Richest Owner in Sports Covered His Tracks**\
-`The latest chapter in Pablo’s Kawhi-Gate investigation.`\
-https://www.nytimes.com/2026/06/05/podcasts/how-the-richest-owner-in-sports-covered-his-tracks.html
-
-**Trump Arch Will Need Red Lights, F.A.A. Says**\
-`The Federal Aviation Administration advised that if the Trump administration adds red obstruction lights to the arch design, it is likely to pose no risk to local aviation.`\
-https://www.nytimes.com/2026/06/05/us/politics/trump-arch-lights-faa.html
-
-**First U.S. Screwworm Case Since 1960s Prompts Texas Emergency Response**\
-`The infections are the first detected in the United States since the 1960s. Officials are aggressively trying to prevent the parasite from spreading in the nation’s largest cattle-producing state.`\
-https://www.nytimes.com/2026/06/05/us/texas-screwworm-first-us-case-emergency-response-abbott.html
-
-**A Sherpa Survived 6 Days Alone on Everest. His Family Says He Was Abandoned.**\
-`Dawa Sherpa, 57, was found alive on Thursday, nearly a week after he was last seen on the mountain. His wife says more could have been done to find him sooner.`\
-https://www.nytimes.com/2026/06/05/world/asia/missing-sherpa-mount-everest-found.html
 
