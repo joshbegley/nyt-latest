@@ -1,3 +1,11 @@
+**An Edith Wharton Short Story Is Published About 100 Years Later**\
+`The short story, which is set during World War I, is believed to have been printed for the first time on Friday. The story is thought to have been written no earlier than July 1918.`\
+https://www.nytimes.com/2026/06/06/books/edith-wharton-new-short-story.html
+
+**C.I.A. Officer Found With Gold Bars Said to Have Created Fake Spy Program**\
+`A federal judge has ruled that David Rush, the C.I.A. employee, must remain in detention. U.S. officials say Mr. Rush funneled millions in federal funds to himself.`\
+https://www.nytimes.com/2026/06/06/us/politics/cia-officer-gold-fake-spy-program.html
+
 **17 Arrested, 1 Officer Injured in N.Y.C. Celebrations of Knicks’ Game 2 Win**\
 `The police took dozens of people into custody this week after N.B.A. finals watch parties in Midtown Manhattan grew unruly.`\
 https://www.nytimes.com/2026/06/06/nyregion/knicks-watch-party-arrests-nyc.html
