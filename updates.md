@@ -1,3 +1,7 @@
+**The States Where Life Is Better**\
+`Trust, well-being and mental health are all down in America. But some states are better to live in than others, according to a new study.`\
+https://www.nytimes.com/2026/06/06/opinion/happiness-trust-americans-states.html
+
 **Sorry, I’m Not Available. Talk to the A.I. Me.**\
 `The hot new productivity hack for C.E.O.s and Harvard professors? A.I. twins that answer questions and attend meetings.`\
 https://www.nytimes.com/2026/06/06/business/dealbook/ai-digital-twin.html
