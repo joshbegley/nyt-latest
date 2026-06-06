@@ -1,3 +1,7 @@
+**Solitary**\
+`Take a pass at Dan Bodily’s record-breaking themeless puzzle — it’s wide open.`\
+https://www.nytimes.com/2026/06/05/crosswords/daily-puzzle-2026-06-06.html
+
 **Amid Mounting Democratic Concern, Platner Says His Past Is Being ‘Weaponized’**\
 `The presumptive Democratic Senate nominee in Maine said the state would have his back in the face of accusations he has denied`\
 https://www.nytimes.com/2026/06/05/us/politics/graham-platner-maine-rally-senate.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/05/sports/f1-cars-museums.html
 **Before French Open Finals, They’ll Serve Up a Dance**\
 `The choreographer Benjamin Millepied had an unusual brief: To create two short works for the championship matches at Roland Garros.`\
 https://www.nytimes.com/2026/06/05/arts/dance/roland-garros-french-open-benjamin-millepied.html
-
-**A Divide Over U.S. Support for Israel**\
-`Readers respond to Senator Chris Van Hollen’s call on the Democratic Party to push Israel to work on a two-state solution. Also: Options for mothers.`\
-https://www.nytimes.com/2026/06/05/opinion/us-israel-palestinians.html
 

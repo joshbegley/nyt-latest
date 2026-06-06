@@ -1,3 +1,7 @@
+**Solitary**\
+`Take a pass at Dan Bodily’s record-breaking themeless puzzle — it’s wide open.`\
+https://www.nytimes.com/2026/06/05/crosswords/daily-puzzle-2026-06-06.html
+
 **Amid Mounting Democratic Concern, Platner Says His Past Is Being ‘Weaponized’**\
 `The presumptive Democratic Senate nominee in Maine said the state would have his back in the face of accusations he has denied`\
 https://www.nytimes.com/2026/06/05/us/politics/graham-platner-maine-rally-senate.html
