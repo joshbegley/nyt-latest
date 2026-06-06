@@ -1,3 +1,19 @@
+**New York City’s Most Patient Soccer Fans Are Ready for the Party**\
+`Uzbekistan is new to the World Cup. Norway and Haiti haven’t been there in decades. For expat communities all over the city, the wait is nearly over.`\
+https://www.nytimes.com/2026/06/06/nyregion/world-cup-new-york-community.html
+
+**A.I. Companies Don’t Know What to Do With Alex Bores**\
+`Outside groups have spent roughly $12 million to support or oppose Mr. Bores’s campaign for a House seat in Manhattan, elevating his name in a crowded race.`\
+https://www.nytimes.com/2026/06/06/nyregion/alex-bores-primary-ai-palantir.html
+
+**How Tony Danza Spends a Day Playing a Villain and Frank Sinatra**\
+`Mr. Danza does not know the meaning of a day off. He said he has too much still to do.`\
+https://www.nytimes.com/interactive/2026/06/06/nyregion/routine-tony-danza.html
+
+**NYT Spelling Bee Answers for June 6, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/06/crosswords/spelling-bee-forum.html
+
 **Trump Pardons Former Congressman Convicted of Insider Trading**\
 `Stephen Buyer, a former Republican representative from Indiana, was convicted of trading stock related to two deals before they were made public.`\
 https://www.nytimes.com/2026/06/06/us/politics/trump-pardon-stephen-buyer-insider-trading.html
