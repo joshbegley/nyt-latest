@@ -1,3 +1,7 @@
+**Bronze Age Pervert’s ‘Cosplay’ Masculinity**\
+`“This is an ideology that is born out of fat modernity itself,” the journalist Helen Lewis argues on “The Ezra Klein Show,” where she explains why the online right’s fascination with hypermasculinity is a bored delusion made possible by the safety of modern life.`\
+https://www.nytimes.com/video/opinion/100000010940555/bronze-age-perverts-cosplay-masculinity.html
+
 **Trump Greets Farmers in Wisconsin, but Says He Could Be Home Watching TV**\
 `President Trump was in Wisconsin to reassure farmers who have been stung by his tariff policies and rising fuel prices from the war in Iran.`\
 https://www.nytimes.com/2026/06/05/us/politics/trump-wisconsin-farmers-midterms.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/05/world/europe/putin-war-st-petersburg-economic
 **U.S. Forest Service to Open Millions of Acres to Off-Road Vehicles**\
 `The forthcoming order echoes President Trump’s decision to repeal executive orders that have protected other public lands from vehicles for decades.`\
 https://www.nytimes.com/2026/06/05/climate/national-forests-off-road-vehicles-public-lands-trump.html
-
-**Formula 1: The Second Life of Racecars**\
-`After their racing days are over, they are used in testing, events and as show cars. Some even end up in private hands.`\
-https://www.nytimes.com/2026/06/05/sports/f1-cars-museums.html
 
