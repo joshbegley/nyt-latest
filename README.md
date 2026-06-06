@@ -1,3 +1,7 @@
+**Raphael Warnock Says the Supreme Court Has Done ‘Violence’ to Democracy**\
+`The Democrat from Georgia on what he sees as the moral issues of our time.`\
+https://www.nytimes.com/2026/06/06/magazine/raphael-warnock-interview.html
+
 **Los deudores de Caracas temen que el diablo vaya a cobrarles**\
 `Dr. Diablo’s utiliza la humillación pública para presionar a los morosos con el fin de que paguen. Muchos lo hacen después de que su “Comando Móvil Antimorosos” les tiende una emboscada, a menudo en el trabajo.`\
 https://www.nytimes.com/es/2026/06/06/espanol/america-latina/dr-diablos-deudas-caracas.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/opinion/100000010940555/bronze-age-perverts-cospla
 **Trump Greets Farmers in Wisconsin, but Says He Could Be Home Watching TV**\
 `President Trump was in Wisconsin to reassure farmers who have been stung by his tariff policies and rising fuel prices from the war in Iran.`\
 https://www.nytimes.com/2026/06/05/us/politics/trump-wisconsin-farmers-midterms.html
-
-**Solitary**\
-`Take a pass at Dan Bodily’s record-breaking themeless puzzle — it’s wide open.`\
-https://www.nytimes.com/2026/06/05/crosswords/daily-puzzle-2026-06-06.html
 

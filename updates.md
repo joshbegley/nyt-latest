@@ -1,3 +1,7 @@
+**Los deudores de Caracas temen que el diablo vaya a cobrarles**\
+`Dr. Diablo’s utiliza la humillación pública para presionar a los morosos con el fin de que paguen. Muchos lo hacen después de que su “Comando Móvil Antimorosos” les tiende una emboscada, a menudo en el trabajo.`\
+https://www.nytimes.com/es/2026/06/06/espanol/america-latina/dr-diablos-deudas-caracas.html
+
 **Deluged With Mail Ballots, California Takes Its Time Counting Votes Again**\
 `Experts say speeding up the count in California would take more resources, but also scaling back rules that expand voting access.`\
 https://www.nytimes.com/2026/06/06/us/california-slow-vote-count.html
