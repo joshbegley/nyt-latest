@@ -1,3 +1,7 @@
+**17 Arrested, 1 Officer Injured in N.Y.C. Celebrations of Knicks’ Game 2 Win**\
+`The police took dozens of people into custody this week after N.B.A. finals watch parties in Midtown Manhattan grew unruly.`\
+https://www.nytimes.com/2026/06/06/nyregion/knicks-watch-party-arrests-nyc.html
+
 **El papa León se prepara para enfrentar la política polarizada de España**\
 `León llegó a España el sábado para una visita de una semana en la que se reunirá con inmigrantes y podría recibir críticas de Vox, el partido de extrema derecha español.`\
 https://www.nytimes.com/es/2026/06/06/espanol/mundo/papa-leon-visita-espana.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/06/realestate/philip-johnson-glass-house-booth-h
 **Dallas’s Halperin Park Seeks to Reconnect Oak Cliff Decades After Highway Divided Neighborhood**\
 `Built atop a freeway that once split a historic Black neighborhood, Halperin Park attempts to reconnect communities divided by midcentury highway construction.`\
 https://www.nytimes.com/2026/06/06/us/dallas-halperin-park-oak-cliff-interstate-35e.html
-
-**In ‘Waist Deep,’ Linea Maja Ernst Explores Millennial Desire**\
-`The Danish writer Linea Maja Ernst’s debut novel, “Waist Deep,” a hit in Europe, explores the flirtations and frustrations within a millennial friendship circle.`\
-https://www.nytimes.com/2026/06/06/books/linea-ernst-denmark-millennial-novel-waist-deep.html
 

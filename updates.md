@@ -1,3 +1,7 @@
+**Infant Killed as Israeli Military Fires on Car in West Bank, Palestinian Officials Say**\
+`Israel’s military said a soldier opened fire after Israeli troops “perceived a vehicle accelerating toward them.” The baby’s grandmother, who was in the car, disputed that account.`\
+https://www.nytimes.com/2026/06/06/world/middleeast/israel-west-bank-infant.html
+
 **El papa León se prepara para enfrentar la política polarizada de España**\
 `León llegó a España el sábado para una visita de una semana en la que se reunirá con inmigrantes y podría recibir críticas de Vox, el partido de extrema derecha español.`\
 https://www.nytimes.com/es/2026/06/06/espanol/mundo/papa-leon-visita-espana.html
