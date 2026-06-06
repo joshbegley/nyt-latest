@@ -1,3 +1,7 @@
+**Trump Says Bill Pulte, His New Intelligence Director, Should Slash Staff**\
+`The president suggested that employees who worked for previous Democratic presidents were among those who should be fired.`\
+https://www.nytimes.com/2026/06/05/us/politics/trump-bill-pulte-intelligence-staff.html
+
 **Park Ranger Dies After Falling Into a Crevasse on Mt. McKinley**\
 `Robin Pendery, 33, who was part of a climbing patrol, was near a camp at about 14,000 feet on the mountain in Alaska when she fell, the National Park Service said.`\
 https://www.nytimes.com/2026/06/05/us/national-park-service-ranger-dead-mount-mckinley.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/05/arts/klimt-lost-painting-lawsuit.html
 **Putting Formula 1 on TV Is a Complex Operation**\
 `There are more than 100 technicians and cameras at these global races, and a mission control that monitors everything in England.`\
 https://www.nytimes.com/2026/06/05/sports/formula-1-television-production.html
-
-**Read the Email From the ‘60 Minutes’ Stars**\
-`Lesley Stahl, Bill Whitaker and Jon Wertheim told their colleagues why they would stay at the show.`\
-https://www.nytimes.com/interactive/2026/06/05/business/media/60-minutes-stahl-wertheim-whittaker-memo.html
 

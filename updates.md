@@ -1,3 +1,7 @@
+**Park Ranger Dies After Falling Into a Crevasse on Mt. McKinley**\
+`Robin Pendery, 33, who was part of a climbing patrol, was near a camp at about 14,000 feet on the mountain in Alaska when she fell, the National Park Service said.`\
+https://www.nytimes.com/2026/06/05/us/national-park-service-ranger-dead-mount-mckinley.html
+
 **SpaceX Has $30 Billion Deal to Provide Google With A.I. Computing Power**\
 `Elon Musk’s rocket company said Google would pay it $920 million a month, as it prepared for its initial public offering.`\
 https://www.nytimes.com/2026/06/05/technology/spacex-google-deal.html
