@@ -1,3 +1,7 @@
+**El papa León se prepara para enfrentar la política polarizada de España**\
+`León llegó a España el sábado para una visita de una semana en la que se reunirá con inmigrantes y podría recibir críticas de Vox, el partido de extrema derecha español.`\
+https://www.nytimes.com/es/2026/06/06/espanol/mundo/papa-leon-visita-espana.html
+
 **Trump’s Defense Department Sees Growing Espionage Threat From Israel**\
 `The Defense Department has increased the counterintelligence threat assessment to its highest level, and Israel is believed to have eavesdropped on American negotiations with Iran.`\
 https://www.nytimes.com/2026/06/06/us/politics/pentagon-sees-growing-espionage-threat-from-israel.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/06/us/dallas-halperin-park-oak-cliff-interstate-
 **In ‘Waist Deep,’ Linea Maja Ernst Explores Millennial Desire**\
 `The Danish writer Linea Maja Ernst’s debut novel, “Waist Deep,” a hit in Europe, explores the flirtations and frustrations within a millennial friendship circle.`\
 https://www.nytimes.com/2026/06/06/books/linea-ernst-denmark-millennial-novel-waist-deep.html
-
-**2026 Tony Awards: What to Expect**\
-`This year’s annual celebration of the best on Broadway is being hosted by Pink.`\
-https://www.nytimes.com/2026/06/06/theater/tony-awards-2026-pink.html
 

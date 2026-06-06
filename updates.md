@@ -1,3 +1,7 @@
+**El papa León se prepara para enfrentar la política polarizada de España**\
+`León llegó a España el sábado para una visita de una semana en la que se reunirá con inmigrantes y podría recibir críticas de Vox, el partido de extrema derecha español.`\
+https://www.nytimes.com/es/2026/06/06/espanol/mundo/papa-leon-visita-espana.html
+
 **Behind Every Dad Bod Is a Healthy Dad Brain**\
 `The benefits of fatherhood are deep and long lasting.`\
 https://www.nytimes.com/2026/06/06/opinion/dad-brain-health-fatherhood.html
