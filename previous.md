@@ -1,7 +1,3 @@
-**Xavier Becerra Advances in California Governor Race**\
-`Mr. Becerra was long dismissed in the contest until the abrupt departure of Eric Swalwell created a surprise path for an experienced Democrat.`\
-https://www.nytimes.com/2026/06/05/us/elections/becerra-california-governor.html
-
 **Muere Anthony Head, actor en ‘Buffy’ y villano de ‘Ted Lasso’**\
 `El actor británico fue uno de los pilares de influyentes programas de televisión, y alcanzó la fama inicialmente como imagen de Nescafé.`\
 https://www.nytimes.com/es/2026/06/05/espanol/muere-anthony-head-buffys-ted-lasso.html
@@ -197,4 +193,8 @@ https://www.nytimes.com/2026/06/05/arts/music/speight-jenkins-dead.html
 **Flashback: Your Weekly History Quiz, June 6, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/06/05/upshot/flashback.html
+
+**’60 Minutes’ Stars Will Stay After Pelley’s Firing Because They Don’t Want Show to ‘Die’**\
+`Lesley Stahl, Bill Whitaker and Jon Wertheim said on Friday in an email to the show’s staff that they had reached the decision after a period of “grieving” and frustration.`\
+https://www.nytimes.com/2026/06/05/business/media/60-minutes-cbs-stahl-whitaker-wertheim.html
 
