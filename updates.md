@@ -1,3 +1,23 @@
+**Laboring Under Delhi’s Harsh Heat, Workers Must Choose Health or Wages**\
+`Severe heat waves have been hitting India since April, forcing many of the country’s essential workers to make tough decisions.`\
+https://www.nytimes.com/2026/06/06/world/asia/india-heat-workers-health-income.html
+
+**Quote of the Day: Despite Different Native Languages, Linemates Speak Hockey in Harmony**\
+`Quotation of the Day for Saturday, June 6, 2026.`\
+https://www.nytimes.com/2026/06/06/pageoneplus/quote-of-the-day-despite-different-native-languages-linemates-speak-hockey-in-harmony.html
+
+**Mali Conflict Escalates as Rebel Alliance Seizes Key Cities**\
+`Jihadists have nearly tripled their attacks on urban areas. Analysts fear an extended standoff could lead to many more civilian deaths.`\
+https://www.nytimes.com/2026/06/06/world/africa/mali-rebels-fighting-jnim-isis.html
+
+**A President, His Prime Minister and the Bitter Rift Dividing Senegal**\
+`The two men became president and prime minister by defeating the political old guard in Senegal. Now they are fighting each other.`\
+https://www.nytimes.com/2026/06/06/world/africa/senegal-faye-sonko-young-fight.html
+
+**Corrections: June 6, 2026**\
+`Corrections that appeared in print on Saturday, June 6, 2026.`\
+https://www.nytimes.com/2026/06/06/pageoneplus/corrections-june-6-2026.html
+
 **Bronze Age Pervert’s ‘Cosplay’ Masculinity**\
 `“This is an ideology that is born out of fat modernity itself,” the journalist Helen Lewis argues on “The Ezra Klein Show,” where she explains why the online right’s fascination with hypermasculinity is a bored delusion made possible by the safety of modern life.`\
 https://www.nytimes.com/video/opinion/100000010940555/bronze-age-perverts-cosplay-masculinity.html
