@@ -1,3 +1,19 @@
+**New York City’s Most Patient Soccer Fans Are Ready for the Party**\
+`Uzbekistan is new to the World Cup. Norway and Haiti haven’t been there in decades. For expat communities all over the city, the wait is nearly over.`\
+https://www.nytimes.com/2026/06/06/nyregion/world-cup-new-york-community.html
+
+**A.I. Companies Don’t Know What to Do With Alex Bores**\
+`Outside groups have spent roughly $12 million to support or oppose Mr. Bores’s campaign for a House seat in Manhattan, elevating his name in a crowded race.`\
+https://www.nytimes.com/2026/06/06/nyregion/alex-bores-primary-ai-palantir.html
+
+**How Tony Danza Spends a Day Playing a Villain and Frank Sinatra**\
+`Mr. Danza does not know the meaning of a day off. He said he has too much still to do.`\
+https://www.nytimes.com/interactive/2026/06/06/nyregion/routine-tony-danza.html
+
+**NYT Spelling Bee Answers for June 6, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/06/crosswords/spelling-bee-forum.html
+
 **Trump Pardons Former Congressman Convicted of Insider Trading**\
 `Stephen Buyer, a former Republican representative from Indiana, was convicted of trading stock related to two deals before they were made public.`\
 https://www.nytimes.com/2026/06/06/us/politics/trump-pardon-stephen-buyer-insider-trading.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/06/05/world/asia/missing-sherpa-mount-everest-found
 **France Opens Investigation Into Israeli Treatment of Pro-Palestinian Flotilla Activists**\
 `Activists who were detained with a flotilla trying to reach the Gaza Strip have said they were abused while in Israel’s custody. Israeli authorities have denied mistreating them.`\
 https://www.nytimes.com/2026/06/05/world/europe/france-israel-flotilla-activists.html
-
-**Stocks Slide as Investors See Rates Rising After Strong Jobs Data**\
-`The S&P 500 fell more than 2.6 percent on Friday, its worst one-day drop of the year and ending nine weeks of gains.`\
-https://www.nytimes.com/2026/06/05/business/stock-market-jobs-report.html
-
-**Taylor Swift and Travis Kelce’s Wedding: Try Our Fantasy Wedding Planner**\
-`Wedding details are scarce, but that doesn’t mean you can’t celebrate the wedding of the season. Use your Swiftie knowledge to dream up your own fantasy version of what their big day might look like.`\
-https://www.nytimes.com/interactive/2026/06/05/style/taylor-swift-travis-kelce-wedding-fantasy-planner.html
-
-**Graham Platner Controversy Deepens Democratic Unease Before Maine Senate Primary**\
-`The party’s politicians, officials and strategists wrestled with how to respond to new reporting about Graham Platner, with worries rising about his vulnerabilities in a general election.`\
-https://www.nytimes.com/2026/06/05/us/politics/platner-democrats-maine-senate-primary-election.html
-
-**The Dream of Emo Is Alive in Like Roses**\
-`Emo is alive and well in the Bay Area band Like Roses, whose song “Wrist” captures the nostalgic sound of early-2000s melodic pop-punk through the lens of queer yearning. Our critic Jon Caramanica unpacks the ways the track caught his attention.`\
-https://www.nytimes.com/video/podcasts/100000010947693/the-dream-of-emo-is-alive-in-like-roses.html
 
