@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/06/05/us/elections/becerra-california-governor.html
 `El actor británico fue uno de los pilares de influyentes programas de televisión, y alcanzó la fama inicialmente como imagen de Nescafé.`\
 https://www.nytimes.com/es/2026/06/05/espanol/muere-anthony-head-buffys-ted-lasso.html
 
-**Iran Fired Attack Drones Toward Strait of Hormuz, U.S. Official Says**\
+**Iran Fired Attack Drones Toward Strait of Hormuz, U.S. Military Says**\
 `The latest violence between the United States and Iran threatened a cease-fire and risked further stoking tensions in the region.`\
 https://www.nytimes.com/2026/06/05/us/politics/iran-attack-drones-hormuz.html
 
