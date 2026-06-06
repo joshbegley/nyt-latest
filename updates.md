@@ -1,3 +1,63 @@
+**An Edith Wharton Short Story Is Published About 100 Years Later**\
+`The short story, which is set during World War I, is believed to have been printed for the first time on Friday. The story is thought to have been written no earlier than July 1918.`\
+https://www.nytimes.com/2026/06/06/books/edith-wharton-new-short-story.html
+
+**C.I.A. Officer Found With Gold Bars Said to Have Created Fake Spy Program**\
+`A federal judge has ruled that David Rush, the C.I.A. employee, must remain in detention. U.S. officials say Mr. Rush funneled millions in federal funds to himself.`\
+https://www.nytimes.com/2026/06/06/us/politics/cia-officer-gold-fake-spy-program.html
+
+**17 Arrested, 1 Officer Injured in N.Y.C. Celebrations of Knicks’ Game 2 Win**\
+`The police took dozens of people into custody this week after N.B.A. finals watch parties in Midtown Manhattan grew unruly.`\
+https://www.nytimes.com/2026/06/06/nyregion/knicks-watch-party-arrests-nyc.html
+
+**El papa León se prepara para enfrentar la política polarizada de España**\
+`León llegó a España el sábado para una visita de una semana en la que se reunirá con inmigrantes y podría recibir críticas de Vox, el partido de extrema derecha español.`\
+https://www.nytimes.com/es/2026/06/06/espanol/mundo/papa-leon-visita-espana.html
+
+**Trump’s Defense Department Sees Growing Espionage Threat From Israel**\
+`The Defense Department has increased the counterintelligence threat assessment to its highest level, and Israel is believed to have eavesdropped on American negotiations with Iran.`\
+https://www.nytimes.com/2026/06/06/us/politics/pentagon-sees-growing-espionage-threat-from-israel.html
+
+**N.Y. Lawmakers Move to Pause Data Centers and Curb Surveillance Pricing**\
+`The state also passed legislation that begins a two-year process to allow lawmakers to draw new congressional district lines more often. Efforts to contain plastics stalled for a third year.`\
+https://www.nytimes.com/2026/06/06/nyregion/data-centers-ai-ny.html
+
+**Madonna Premieres ‘Confessions II,’ a Star-Studded Short Film, at Tribeca Film Festival**\
+`“Confessions II” features songs from the pop star’s coming album of the same name. At one point, green lasers shoot from the pelvises of gyrating women.`\
+https://www.nytimes.com/2026/06/06/arts/madonna-confessions-tribeca-festival.html
+
+**The Bidens Return With New Book and South Dakota Speech Targeting Trump**\
+`The re-emergence of the former first family has been fraught for some Democrats who just want to move on.`\
+https://www.nytimes.com/2026/06/06/us/politics/biden-speech-sioux-falls-trump.html
+
+**Escape From Trumpism**\
+`The best pathway out is to make Congress great again.`\
+https://www.nytimes.com/2026/06/06/opinion/democrats-reconstruction-project-2029.html
+
+**Infant Killed as Israeli Military Fires on Car in West Bank, Palestinian Officials Say**\
+`Israel’s military said a soldier opened fire after Israeli troops “perceived a vehicle accelerating toward them.” The baby’s grandmother, who was in the car, disputed that account.`\
+https://www.nytimes.com/2026/06/06/world/middleeast/israel-west-bank-infant.html
+
+**It’s Gazpacho Time**\
+`Julia Moskin’s best gazpacho lives up to its name, with five stars and over 16,000 reviews.`\
+https://www.nytimes.com/2026/06/06/dining/its-gazpacho-time.html
+
+**Celebrities Love Bike Dates. Should You Try One, Too?**\
+`Celebrities have recently been hitting the bike lane with their beaus, but the “Bicycle Boy” was once branded a type to be avoided.`\
+https://www.nytimes.com/2026/06/06/style/celebrity-bike-date-romantic-idea.html
+
+**I’ve Been Depriving You of Cookies**\
+`In repentance, I offer you frosted sugar cookies, double chocolate chip cookies and peanut butter-miso cookies.`\
+https://www.nytimes.com/2026/06/06/dining/ive-been-depriving-you-of-cookies.html
+
+**Israeli Strike Kills 3 Lebanese Soldiers, Days After Truce Was Signed**\
+`Israel invaded Lebanon and occupied parts of the country to fight Hezbollah, an Iran-backed armed group, but its military offensive has drawn in others.`\
+https://www.nytimes.com/2026/06/06/world/middleeast/israel-strike-lebanese-soldiers-general.html
+
+**A Viral Gen-Z Protest Movement Draws Thousands to India’s Capital**\
+`The Cockroach Janta Party started as a joke, but it quickly became a way for many Indians to express their frustration with the system.`\
+https://www.nytimes.com/2026/06/06/world/asia/india-protest-cockroach-janta-party.html
+
 **Flipping a Philip Johnson: The Booth House Gets a Lifeline**\
 `In Bedford, N.Y., an architect and builder duo are betting that the Glass House architect’s first residential commission can be saved — and put back on the market.`\
 https://www.nytimes.com/2026/06/06/realestate/philip-johnson-glass-house-booth-house.html
