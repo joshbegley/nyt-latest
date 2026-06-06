@@ -1,3 +1,7 @@
+**First U.S. Screwworm Case Since 1960s Prompts Texas Emergency Response**\
+`The infections are the first detected in the United States since the 1960s. Officials are aggressively trying to prevent the parasite from spreading in the nation’s largest cattle-producing state.`\
+https://www.nytimes.com/2026/06/05/us/texas-screwworm-first-us-case-emergency-response-abbott.html
+
 **Trump Administration Investigating Gender Treatments at Mount Sinai**\
 `A grand jury subpoenaed the health system for information about adolescent patients who had received gender-related care, Mount Sinai said on Friday.`\
 https://www.nytimes.com/2026/06/05/nyregion/trump-administration-investigating-gender-treatments-at-mount-sinai.html
