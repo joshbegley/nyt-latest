@@ -1,3 +1,63 @@
+**An Edith Wharton Short Story Is Published About 100 Years Later**\
+`The short story, which is set during World War I, is believed to have been printed for the first time on Friday. The story is thought to have been written no earlier than July 1918.`\
+https://www.nytimes.com/2026/06/06/books/edith-wharton-new-short-story.html
+
+**C.I.A. Officer Found With Gold Bars Said to Have Created Fake Spy Program**\
+`A federal judge has ruled that David Rush, the C.I.A. employee, must remain in detention. U.S. officials say Mr. Rush funneled millions in federal funds to himself.`\
+https://www.nytimes.com/2026/06/06/us/politics/cia-officer-gold-fake-spy-program.html
+
+**17 Arrested, 1 Officer Injured in N.Y.C. Celebrations of Knicks’ Game 2 Win**\
+`The police took dozens of people into custody this week after N.B.A. finals watch parties in Midtown Manhattan grew unruly.`\
+https://www.nytimes.com/2026/06/06/nyregion/knicks-watch-party-arrests-nyc.html
+
+**El papa León se prepara para enfrentar la política polarizada de España**\
+`León llegó a España el sábado para una visita de una semana en la que se reunirá con inmigrantes y podría recibir críticas de Vox, el partido de extrema derecha español.`\
+https://www.nytimes.com/es/2026/06/06/espanol/mundo/papa-leon-visita-espana.html
+
+**Trump’s Defense Department Sees Growing Espionage Threat From Israel**\
+`The Defense Department has increased the counterintelligence threat assessment to its highest level, and Israel is believed to have eavesdropped on American negotiations with Iran.`\
+https://www.nytimes.com/2026/06/06/us/politics/pentagon-sees-growing-espionage-threat-from-israel.html
+
+**N.Y. Lawmakers Move to Pause Data Centers and Curb Surveillance Pricing**\
+`The state also passed legislation that begins a two-year process to allow lawmakers to draw new congressional district lines more often. Efforts to contain plastics stalled for a third year.`\
+https://www.nytimes.com/2026/06/06/nyregion/data-centers-ai-ny.html
+
+**Madonna Premieres ‘Confessions II,’ a Star-Studded Short Film, at Tribeca Film Festival**\
+`“Confessions II” features songs from the pop star’s coming album of the same name. At one point, green lasers shoot from the pelvises of gyrating women.`\
+https://www.nytimes.com/2026/06/06/arts/madonna-confessions-tribeca-festival.html
+
+**The Bidens Return With New Book and South Dakota Speech Targeting Trump**\
+`The re-emergence of the former first family has been fraught for some Democrats who just want to move on.`\
+https://www.nytimes.com/2026/06/06/us/politics/biden-speech-sioux-falls-trump.html
+
+**Escape From Trumpism**\
+`The best pathway out is to make Congress great again.`\
+https://www.nytimes.com/2026/06/06/opinion/democrats-reconstruction-project-2029.html
+
+**Infant Killed as Israeli Military Fires on Car in West Bank, Palestinian Officials Say**\
+`Israel’s military said a soldier opened fire after Israeli troops “perceived a vehicle accelerating toward them.” The baby’s grandmother, who was in the car, disputed that account.`\
+https://www.nytimes.com/2026/06/06/world/middleeast/israel-west-bank-infant.html
+
+**It’s Gazpacho Time**\
+`Julia Moskin’s best gazpacho lives up to its name, with five stars and over 16,000 reviews.`\
+https://www.nytimes.com/2026/06/06/dining/its-gazpacho-time.html
+
+**Celebrities Love Bike Dates. Should You Try One, Too?**\
+`Celebrities have recently been hitting the bike lane with their beaus, but the “Bicycle Boy” was once branded a type to be avoided.`\
+https://www.nytimes.com/2026/06/06/style/celebrity-bike-date-romantic-idea.html
+
+**I’ve Been Depriving You of Cookies**\
+`In repentance, I offer you frosted sugar cookies, double chocolate chip cookies and peanut butter-miso cookies.`\
+https://www.nytimes.com/2026/06/06/dining/ive-been-depriving-you-of-cookies.html
+
+**Israeli Strike Kills 3 Lebanese Soldiers, Days After Truce Was Signed**\
+`Israel invaded Lebanon and occupied parts of the country to fight Hezbollah, an Iran-backed armed group, but its military offensive has drawn in others.`\
+https://www.nytimes.com/2026/06/06/world/middleeast/israel-strike-lebanese-soldiers-general.html
+
+**A Viral Gen-Z Protest Movement Draws Thousands to India’s Capital**\
+`The Cockroach Janta Party started as a joke, but it quickly became a way for many Indians to express their frustration with the system.`\
+https://www.nytimes.com/2026/06/06/world/asia/india-protest-cockroach-janta-party.html
+
 **Sorry, I’m Not Available. Talk to the A.I. Me.**\
 `The hot new productivity hack for C.E.O.s and Harvard professors? A.I. twins that answer questions and attend meetings.`\
 https://www.nytimes.com/2026/06/06/business/dealbook/ai-digital-twin.html
@@ -6,13 +66,13 @@ https://www.nytimes.com/2026/06/06/business/dealbook/ai-digital-twin.html
 `A journalist, a medic, a weather forecaster, a Medal of Honor recipient, a French commando: Their efforts showed that courage transcends race, class and gender.`\
 https://www.nytimes.com/2026/06/06/obituaries/d-day-normandy-wwii-heroes.html
 
-**Graham Platner and the Rise of the ‘Dirtbag’ Democrat**\
-`And what the Maine candidate reveals about politics today.`\
-https://www.nytimes.com/2026/06/06/opinion/graham-platner-democrats-politics.html
-
 **The States Where Life Is Better**\
 `Trust, well-being and mental health are all down in America. But some states are better to live in than others, according to a new study.`\
 https://www.nytimes.com/2026/06/06/opinion/happiness-trust-americans-states.html
+
+**Graham Platner and the Rise of the ‘Dirtbag’ Democrat**\
+`And what the Maine candidate reveals about politics today.`\
+https://www.nytimes.com/2026/06/06/opinion/graham-platner-democrats-politics.html
 
 **Norma Jeane’s Still Got It!**\
 `Some continue to like it hot.`\
@@ -137,64 +197,4 @@ https://www.nytimes.com/video/arts/100000010938048/ask-e-jean-illuminates-cultur
 **As Ebola Spreads in East Africa, Will China Step Up?**\
 `China is well positioned to help stop the deadly virus, and could move into a gap left by U.S. retreat.`\
 https://www.nytimes.com/2026/06/06/world/asia/as-ebola-spreads-in-east-africa-will-china-step-up.html
-
-**Flipping a Philip Johnson: The Booth House Gets a Lifeline**\
-`In Bedford, N.Y., an architect and builder duo are betting that the Glass House architect’s first residential commission can be saved — and put back on the market.`\
-https://www.nytimes.com/2026/06/06/realestate/philip-johnson-glass-house-booth-house.html
-
-**Dallas’s Halperin Park Seeks to Reconnect Oak Cliff Decades After Highway Divided Neighborhood**\
-`Built atop a freeway that once split a historic Black neighborhood, Halperin Park attempts to reconnect communities divided by midcentury highway construction.`\
-https://www.nytimes.com/2026/06/06/us/dallas-halperin-park-oak-cliff-interstate-35e.html
-
-**In ‘Waist Deep,’ Linea Maja Ernst Explores Millennial Desire**\
-`The Danish writer Linea Maja Ernst’s debut novel, “Waist Deep,” a hit in Europe, explores the flirtations and frustrations within a millennial friendship circle.`\
-https://www.nytimes.com/2026/06/06/books/linea-ernst-denmark-millennial-novel-waist-deep.html
-
-**2026 Tony Awards: What to Expect**\
-`This year’s annual celebration of the best on Broadway is being hosted by Pink.`\
-https://www.nytimes.com/2026/06/06/theater/tony-awards-2026-pink.html
-
-**In Venezuela, the Debt Collector Is the Devil**\
-`Got a debt to collect in Venezuela’s capital? Dr. Diablo and his pitchfork-wielding posse use public humiliation to pressure people into paying up.`\
-https://www.nytimes.com/2026/06/06/world/americas/venezuela-caracas-debt-collector-dr-diablo.html
-
-**Why the Radical Vision of Martha Graham Still Matters**\
-`The choreographer took a barefoot leap for modern dance 100 years ago. Her influence continues to reverberate.`\
-https://www.nytimes.com/2026/06/06/arts/dance/martha-graham-modern-dance-centennial.html
-
-**5 Tips to Start Managing Your Aging Parents’ Money**\
-`And one big mistake to avoid.`\
-https://www.nytimes.com/2026/06/06/business/retirement-managing-parents-money.html
-
-**As Trump Pushes Deportations, a Skyrocketing Caseload Strains Immigration Courts**\
-`A federal surge has more than doubled caseloads within some immigration courts nationwide. Lawyers say the tactic is causing errors and confusion.`\
-https://www.nytimes.com/2026/06/06/us/politics/immigration-courts-deportation.html
-
-**Book Review: ‘Earth 7,’ by Deb Olin Unferth**\
-`Deb Olin Unferth’s new novel is part cosmic comedy and part dirge for our dying world.`\
-https://www.nytimes.com/2026/06/06/books/review/deb-olin-unferth-earth-7.html
-
-**Paxton’s Senate Bid Raises the Stakes in His War on Latino Voting Groups**\
-`The Texas attorney general has mounted an all-out effort to prove Democratic Hispanic groups have been corrupting elections. Now he could be the beneficiary of his own attacks.`\
-https://www.nytimes.com/2026/06/06/us/politics/ken-paxton-latino-voting.html
-
-**The World Has Learned From the Last Ebola Outbreak, but Gaps Remain**\
-`The vaccine development process and coordination between health organizations have improved since a devastating 2014-2016 outbreak.`\
-https://www.nytimes.com/2026/06/06/world/africa/the-world-has-learned-from-the-last-ebola-outbreak-but-gaps-remain.html
-
-**Real Estate Giants Compass and Zillow Fight Over the Future of the Market**\
-`Both companies face lawsuits and antitrust inquiries as they attempt to control the experience of home buying.`\
-https://www.nytimes.com/2026/06/06/realestate/zillow-compass-real-estate-consolidation.html
-
-**Sizzling New Summer Thrillers**\
-`Summer’s here. It’s hot. Let these books deliver some chills.`\
-https://www.nytimes.com/2026/06/06/books/review/new-thriller-books.html
-
-**What Visual Evidence Tells Us About Israel’s Use of White Phosphorus in Lebanon**\
-`Videos collected by The Times shows how the Israeli military has deployed a munition that can be extremely harmful over populated areas in Lebanon.`\
-https://www.nytimes.com/2026/06/06/world/middleeast/white-phosphorous-israel-lebanon.html
-
-**Dulcé Sloan Thinks You Should Pick Up When the Phone Rings**\
-`“There’s nothing better than talking to a boy on the phone! How do you make a genuine connection to someone? You can’t get tone through texting.”`\
-https://www.nytimes.com/2026/06/06/arts/television/dulce-sloan-comedy.html
 
