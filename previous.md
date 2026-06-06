@@ -1,3 +1,7 @@
+**Trump Greets Farmers in Wisconsin, but Says He Could Be Home Watching TV**\
+`President Trump was in Wisconsin to reassure farmers who have been stung by his tariff policies and rising fuel prices from the war in Iran.`\
+https://www.nytimes.com/2026/06/05/us/politics/trump-wisconsin-farmers-midterms.html
+
 **Solitary**\
 `Take a pass at Dan Bodily’s record-breaking themeless puzzle — it’s wide open.`\
 https://www.nytimes.com/2026/06/05/crosswords/daily-puzzle-2026-06-06.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/05/climate/national-forests-off-road-vehicles-pu
 **Formula 1: The Second Life of Racecars**\
 `After their racing days are over, they are used in testing, events and as show cars. Some even end up in private hands.`\
 https://www.nytimes.com/2026/06/05/sports/f1-cars-museums.html
-
-**Before French Open Finals, They’ll Serve Up a Dance**\
-`The choreographer Benjamin Millepied had an unusual brief: To create two short works for the championship matches at Roland Garros.`\
-https://www.nytimes.com/2026/06/05/arts/dance/roland-garros-french-open-benjamin-millepied.html
 

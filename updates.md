@@ -1,3 +1,7 @@
+**Trump Greets Farmers in Wisconsin, but Says He Could Be Home Watching TV**\
+`President Trump was in Wisconsin to reassure farmers who have been stung by his tariff policies and rising fuel prices from the war in Iran.`\
+https://www.nytimes.com/2026/06/05/us/politics/trump-wisconsin-farmers-midterms.html
+
 **Amid Mounting Democratic Concern, Platner Says His Past Is Being ‘Weaponized’**\
 `The presumptive Democratic Senate nominee in Maine said the state would have his back in the face of accusations he has denied.`\
 https://www.nytimes.com/2026/06/05/us/politics/graham-platner-maine-rally-senate.html
