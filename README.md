@@ -23,7 +23,7 @@ https://www.nytimes.com/2026/06/06/us/politics/biden-speech-sioux-falls-trump.ht
 https://www.nytimes.com/2026/06/06/opinion/democrats-reconstruction-project-2029.html
 
 **Infant Killed as Israeli Military Fires on Car in West Bank, Palestinian Officials Say**\
-`Israel’s military said a car was speeding toward soldiers when one of them opened fire. The baby’s grandmother, who said she was in the car, disputed that account.`\
+`Israel’s military said a soldier opened fire after Israeli troops “perceived a vehicle accelerating toward them.” The baby’s grandmother, who was in the car, disputed that account.`\
 https://www.nytimes.com/2026/06/06/world/middleeast/israel-west-bank-infant.html
 
 **It’s Gazpacho Time**\
