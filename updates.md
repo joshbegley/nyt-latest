@@ -1,3 +1,7 @@
+**Trump’s Defense Department Sees Growing Espionage Threat From Israel**\
+`The Defense Department has increased the counterintelligence threat assessment to its highest level, and Israel is believed to have eavesdropped on American negotiations with Iran.`\
+https://www.nytimes.com/2026/06/06/us/politics/pentagon-sees-growing-espionage-threat-from-israel.html
+
 **N.Y. Lawmakers Move to Pause Data Centers and Curb Surveillance Pricing**\
 `The state also passed legislation that begins a two-year process to allow lawmakers to draw new congressional district lines more often. Efforts to contain plastics stalled for a third year.`\
 https://www.nytimes.com/2026/06/06/nyregion/data-centers-ai-ny.html

@@ -1,3 +1,7 @@
+**Trump’s Defense Department Sees Growing Espionage Threat From Israel**\
+`The Defense Department has increased the counterintelligence threat assessment to its highest level, and Israel is believed to have eavesdropped on American negotiations with Iran.`\
+https://www.nytimes.com/2026/06/06/us/politics/pentagon-sees-growing-espionage-threat-from-israel.html
+
 **N.Y. Lawmakers Move to Pause Data Centers and Curb Surveillance Pricing**\
 `The state also passed legislation that begins a two-year process to allow lawmakers to draw new congressional district lines more often. Efforts to contain plastics stalled for a third year.`\
 https://www.nytimes.com/2026/06/06/nyregion/data-centers-ai-ny.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/06/books/linea-ernst-denmark-millennial-novel-wa
 **2026 Tony Awards: What to Expect**\
 `This year’s annual celebration of the best on Broadway is being hosted by Pink.`\
 https://www.nytimes.com/2026/06/06/theater/tony-awards-2026-pink.html
-
-**In Venezuela, the Debt Collector Is the Devil**\
-`Got a debt to collect in Venezuela’s capital? Dr. Diablo and his pitchfork-wielding posse use public humiliation to pressure people into paying up.`\
-https://www.nytimes.com/2026/06/06/world/americas/venezuela-caracas-debt-collector-dr-diablo.html
 
