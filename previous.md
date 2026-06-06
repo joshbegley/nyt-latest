@@ -1,3 +1,15 @@
+**Kennedy Center Loses Case Against Musician Who Canceled Over Trump Naming Dispute**\
+`A federal judge sided with jazz performer Chuck Redd, who canceled a 2025 holiday concert after President Trump’s name was added to the building.`\
+https://www.nytimes.com/2026/06/06/us/politics/kennedy-center-lawsuit-tossed-trump-chuck-redd.html
+
+**Ukraine Strikes St. Petersburg in Long-Range Drone Attack**\
+`It was the second such attack in days and came just hours after President Vladimir V. Putin spoke at an economic forum in the city.`\
+https://www.nytimes.com/2026/06/06/world/europe/ukraine-drone-strike-st-petersburg.html
+
+**Split Seconds**\
+`Adam Wagner and Simeon Seigel combine forces on a puzzle that combines forces on its solvers.`\
+https://www.nytimes.com/2026/06/06/crosswords/daily-puzzle-2026-06-07.html
+
 **Barge Hits Maryland Rail Bridge Along Northeast Corridor**\
 `Amtrak said crews were conducting a safety assessment for the bridge, which crosses the Susquehanna River in Maryland. The U.S. Coast Guard reported no injuries.`\
 https://www.nytimes.com/2026/06/06/us/maryland-bridge-amtrak-northeast-corridor.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/06/business/screwworm-flies-drought-cattle.html
 **Test Your Broadway Knowledge, 2026 Tonys Edition**\
 `The Tony Awards are Sunday night. How well do you know this season’s shows and stars?`\
 https://www.nytimes.com/interactive/2026/06/06/theater/tony-awards-broadway-quiz.html
-
-**‘60 Minutes’ Is a ‘Cage Full of Tigers.’ Can Nick Bilton Lead It?**\
-`The tech journalist and filmmaker was a surprise choice to lead a famously combative newsroom. His first week was chaos.`\
-https://www.nytimes.com/2026/06/06/business/media/60-minutes-nick-bilton.html
-
-**Pope Leo, After Taking on Trump and A.I., Prepares for New Duels in Spain**\
-`Leo arrived in Spain on Saturday for a weeklong visit in which he will meet with migrants and may come under fire from Vox, Spain’s far-right party.`\
-https://www.nytimes.com/2026/06/06/world/europe/leo-spain-visit.html
-
-**ICE Says Detainees Are ‘Worst of the Worst.’ Government Data Disagrees.**\
-`Federal officials said they are removing killers and rapists from the streets. Data obtained by The New York Times indicates most detainees at a Newark facility haven’t been convicted of crimes.`\
-https://www.nytimes.com/2026/06/06/nyregion/delaney-hall-ice-detainees.html
 

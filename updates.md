@@ -1,3 +1,15 @@
+**Kennedy Center Loses Case Against Musician Who Canceled Over Trump Naming Dispute**\
+`A federal judge sided with jazz performer Chuck Redd, who canceled a 2025 holiday concert after President Trump’s name was added to the building.`\
+https://www.nytimes.com/2026/06/06/us/politics/kennedy-center-lawsuit-tossed-trump-chuck-redd.html
+
+**Ukraine Strikes St. Petersburg in Long-Range Drone Attack**\
+`It was the second such attack in days and came just hours after President Vladimir V. Putin spoke at an economic forum in the city.`\
+https://www.nytimes.com/2026/06/06/world/europe/ukraine-drone-strike-st-petersburg.html
+
+**Split Seconds**\
+`Adam Wagner and Simeon Seigel combine forces on a puzzle that combines forces on its solvers.`\
+https://www.nytimes.com/2026/06/06/crosswords/daily-puzzle-2026-06-07.html
+
 **Barge Hits Maryland Rail Bridge Along Northeast Corridor**\
 `Amtrak said crews were conducting a safety assessment for the bridge, which crosses the Susquehanna River in Maryland. The U.S. Coast Guard reported no injuries.`\
 https://www.nytimes.com/2026/06/06/us/maryland-bridge-amtrak-northeast-corridor.html
