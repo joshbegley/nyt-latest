@@ -1,3 +1,7 @@
+**Trump Administration Investigating Gender Treatments at Mount Sinai**\
+`A grand jury subpoenaed the health system for information about adolescent patients who had received gender-related care, Mount Sinai said on Friday.`\
+https://www.nytimes.com/2026/06/05/nyregion/trump-administration-investigating-gender-treatments-at-mount-sinai.html
+
 **Xavier Becerra Advances in California Governor Race**\
 `Mr. Becerra was long dismissed in the contest until the abrupt departure of Eric Swalwell created a surprise path for an experienced Democrat.`\
 https://www.nytimes.com/2026/06/05/us/elections/becerra-california-governor.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/05/sports/f1-athlete-fans-investors.html
 **Speight Jenkins, Who Brought Adventure to Seattle Opera, Dies at 89**\
 `He had never produced a performance when he was hired as the company’s general director in 1983. But over 31 years (and lots of Wagner) he became beloved.`\
 https://www.nytimes.com/2026/06/05/arts/music/speight-jenkins-dead.html
-
-**Flashback: Your Weekly History Quiz, June 6, 2026**\
-`Can you sort 8 historical events?`\
-https://www.nytimes.com/interactive/2026/06/05/upshot/flashback.html
 

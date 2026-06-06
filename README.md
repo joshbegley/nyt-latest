@@ -103,7 +103,7 @@ https://www.nytimes.com/2026/06/05/podcasts/how-the-richest-owner-in-sports-cove
 https://www.nytimes.com/2026/06/05/us/politics/trump-arch-lights-faa.html
 
 **First U.S. Screwworm Case Since 1960s Prompts Texas Emergency Response**\
-`After a screwworm infestation was confirmed in a South Texas calf, officials launched an aggressive effort to prevent the parasite from spreading in the nation’s largest cattle-producing state.`\
+`The infections are the first detected in the United States since the 1960s. Officials are aggressively trying to prevent the parasite from spreading in the nation’s largest cattle-producing state.`\
 https://www.nytimes.com/2026/06/05/us/texas-screwworm-first-us-case-emergency-response-abbott.html
 
 **A Sherpa Survived 6 Days Alone on Everest. His Family Says He Was Abandoned.**\

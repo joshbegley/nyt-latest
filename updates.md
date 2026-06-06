@@ -1,3 +1,7 @@
+**Trump Administration Investigating Gender Treatments at Mount Sinai**\
+`A grand jury subpoenaed the health system for information about adolescent patients who had received gender-related care, Mount Sinai said on Friday.`\
+https://www.nytimes.com/2026/06/05/nyregion/trump-administration-investigating-gender-treatments-at-mount-sinai.html
+
 **Xavier Becerra Advances in California Governor Race**\
 `Mr. Becerra was long dismissed in the contest until the abrupt departure of Eric Swalwell created a surprise path for an experienced Democrat.`\
 https://www.nytimes.com/2026/06/05/us/elections/becerra-california-governor.html
