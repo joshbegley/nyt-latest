@@ -1,3 +1,7 @@
+**Graham Platner and the Rise of the ‘Dirtbag’ Democrat**\
+`And what the Maine candidate reveals about politics today.`\
+https://www.nytimes.com/video/opinion/100000010943230/graham-platner-and-the-rise-of-the-dirtbag-democrat.html
+
 **Balancing Act**\
 `The tension between sticking to what we know and seeking out new experiences is one of comfort versus novelty. How can we have both?`\
 https://www.nytimes.com/2026/06/06/briefing/balancing-act.html
@@ -110,7 +114,7 @@ https://www.nytimes.com/2026/06/06/world/asia/as-ebola-spreads-in-east-africa-wi
 `Built atop a freeway that once split a historic Black neighborhood, Halperin Park attempts to reconnect communities divided by midcentury highway construction.`\
 https://www.nytimes.com/2026/06/06/us/dallas-halperin-park-oak-cliff-interstate-35e.html
 
-**In ‘Waist Deep,’ Linea Maja Linea Explores Millennial Desire**\
+**In ‘Waist Deep,’ Linea Maja Ernst Explores Millennial Desire**\
 `The Danish writer Linea Maja Ernst’s debut novel, “Waist Deep,” a hit in Europe, explores the flirtations and frustrations within a millennial friendship circle.`\
 https://www.nytimes.com/2026/06/06/books/linea-ernst-denmark-millennial-novel-waist-deep.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/06/06/espanol/negocios/economia-china-regulacion
 **Nick es un Jonas Brother y un solista a la vez**\
 `Con un protagónico en la película ‘Letras robadas’ y ambiciones en otros medios, el joven de 33 años se está labrando un camino singular.`\
 https://www.nytimes.com/es/2026/06/06/espanol/cultura/entrevista-nick-jonas.html
-
-**No hay nada malo en desear a los hombres**\
-`El “heteropesimismo” está de moda, pero en realidad nunca ha habido un mejor momento para buscar el amor. Vamos, sé hetero-optimista.`\
-https://www.nytimes.com/es/2026/06/06/espanol/opinion/heteropesimismo-optimismo.html
 
