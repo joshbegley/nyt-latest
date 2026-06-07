@@ -1,3 +1,7 @@
+**Touching Grass**\
+`There’s no better time than early summer to put away your phone and get some fresh air. We have a challenge to help you actually do it.`\
+https://www.nytimes.com/2026/06/07/briefing/touching-grass.html
+
 **Between the Knicks and the Pope, Villanova Finds the Spotlight**\
 `Villanova University alumni have been grabbing headlines, both on the court and in the Vatican.`\
 https://www.nytimes.com/2026/06/07/us/knicks-pope-leo-villanova.html

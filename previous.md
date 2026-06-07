@@ -1,3 +1,7 @@
+**Touching Grass**\
+`There’s no better time than early summer to put away your phone and get some fresh air. We have a challenge to help you actually do it.`\
+https://www.nytimes.com/2026/06/07/briefing/touching-grass.html
+
 **My Life Lessons From M.M.A. Fighting**\
 `There are lessons in competitive fighting that I never expected to learn.`\
 https://www.nytimes.com/2026/06/07/opinion/fighting-competitive-men-masculinity.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/07/world/asia/south-korea-nfl-football-flag.html
 **Barry Manilow Can’t Smile Without Fans’ Help on This Song**\
 `The singer has bigger hits but “Can’t Smile Without You” has become a personal touchstone for fans who have helped him perform it live.`\
 https://www.nytimes.com/2026/06/07/arts/music/barry-manilow-cant-smile-duets.html
-
-**Cómo retratan las series de esta temporada el trabajo sexual en internet**\
-`El trabajo sexual virtual no es nada nuevo en la televisión. Pero este año es más visible, e incluso central en series como ‘Euphoria’, ‘Margo tiene problemas de dinero’ y ‘Máximo placer garantizado’.`\
-https://www.nytimes.com/es/2026/06/07/espanol/cultura/euphoria-trabajo-sexual-internet.html
 
