@@ -1,3 +1,7 @@
+**Tony Award Winners 2026: The Updating List**\
+`The Tony Awards will be held at Radio City Music Hall in New York City.`\
+https://www.nytimes.com/2026/06/07/theater/tony-award-winners-2026-the-updating-list.html
+
 **Our Favorite Photos From the Tony Awards Red Carpet**\
 `As Broadway’s brightest arrive for the industry’s biggest night, here’s an up-close look at what you can’t see on TV.`\
 https://www.nytimes.com/2026/06/07/theater/our-favorite-photos-from-the-tony-awards-red-carpet.html
@@ -177,12 +181,4 @@ https://www.nytimes.com/2026/06/07/crosswords/wordle-review-1815.html
 **Scott Pelley on the Bari Weiss Era and His Last Days at ‘60 Minutes’**\
 `Lulu Garcia-Navarro sits down for an exclusive interview with the now-former CBS News correspondent.`\
 https://www.nytimes.com/2026/06/07/magazine/scott-pelley-interview.html
-
-**Elecciones en Perú: la segunda vuelta explicada**\
-`Ante el aumento de la violencia, los votantes elegirán entre una izquierda recientemente moderada y una candidata de derecha que representa el divisivo legado de un autócrata.`\
-https://www.nytimes.com/es/2026/06/07/espanol/mundo/elecciones-peru-segunda-vuelta.html
-
-**Between the Knicks and the Pope, Villanova Finds the Spotlight**\
-`Villanova University alumni have been grabbing headlines, both on the court and in the Vatican.`\
-https://www.nytimes.com/2026/06/07/us/knicks-pope-leo-villanova.html
 
