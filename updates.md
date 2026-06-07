@@ -1,3 +1,7 @@
+**Iran Fires Missiles at Israel for First Time Since April**\
+`Iran attacked Israel with a limited number of ballistic missiles late Sunday after an Israeli attack in the outskirts of Beirut against Hezbollah, the Iranian-backed militant group.`\
+https://www.nytimes.com/video/world/middleeast/100000010950217/iran-fires-missiles-at-israel-for-first-time-since-april.html
+
 **Tonys 2026 Live Updates: ‘Schmigadoon!’ Wins Key Preshow Award as Stars Arrive on Red Carpet**\
 `The first awards of the night are being handed out during a preshow ceremony, with the main event starting at 8 p.m. Eastern time. Pink will host a celebration filled with nostalgic performances.`\
 https://www.nytimes.com/live/2026/06/07/theater/tony-awards-2026

@@ -1,3 +1,7 @@
+**Iran Fires Missiles at Israel for First Time Since April**\
+`Iran attacked Israel with a limited number of ballistic missiles late Sunday after an Israeli attack in the outskirts of Beirut against Hezbollah, the Iranian-backed militant group.`\
+https://www.nytimes.com/video/world/middleeast/100000010950217/iran-fires-missiles-at-israel-for-first-time-since-april.html
+
 **Tony Award Winners 2026: The Updating List**\
 `The Tony Awards are underway at Radio City Music Hall in New York City.`\
 https://www.nytimes.com/2026/06/07/theater/tony-award-winners-2026-the-updating-list.html
@@ -161,12 +165,4 @@ https://www.nytimes.com/2026/06/07/opinion/world-cup-new-york-new-jersey-transit
 **The Tony Awards Nominees Are Not Dangerous This Year**\
 `The Tony Awards nominees are not dangerous this year.`\
 https://www.nytimes.com/2026/06/07/opinion/broadway-liberation-giant-balusters-plays.html
-
-**Arab Gunman Kills One in Attack on Central Israel**\
-`The assailant, an Arab citizen of Israel, was killed. Hamas, the Palestinian militant group, praised the shooting, but it did not claim responsibility.`\
-https://www.nytimes.com/2026/06/07/world/middleeast/israel-west-bank-shooting.html
-
-**NYT Connections Answers for June 8, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, June 8, 2026.`\
-https://www.nytimes.com/2026/06/07/crosswords/connections-companion-1093.html
 

@@ -1,3 +1,7 @@
+**Huge Runaway Flag Knocks Out Power to Thousands of Connecticut Customers**\
+`The flag flew into transmission lines on Saturday night, affecting 5,000 customers. In a separate episode on Sunday, 40,000 customers lost power, according to Eversource Energy.`\
+https://www.nytimes.com/2026/06/07/nyregion/american-flag-power-outages-connecticut.html
+
 **Iran Fires Missiles at Israel for First Time Since April**\
 `Iran attacked Israel with a limited number of ballistic missiles late Sunday after an Israeli attack in the outskirts of Beirut against Hezbollah, the Iranian-backed militant group.`\
 https://www.nytimes.com/video/world/middleeast/100000010950217/iran-fires-missiles-at-israel-for-first-time-since-april.html
@@ -26,7 +30,7 @@ https://www.nytimes.com/2026/06/07/style/tony-awards-2026-red-carpet-looks.html
 `A lower court last month found that the ads from the charity, known for its ear-worm jingle, had violated false-advertising laws.`\
 https://www.nytimes.com/2026/06/07/us/kars4kids-california-appeals-court.html
 
-**Tonys 2026 Live Updates: ‘Schmigadoon!’ Wins Key Preshow Award as Stars Arrive on Red Carpet**\
+**Tonys 2026 Live Updates: ‘Schmigadoon!’ Wins Key Preshow Awards as Stars Arrive on Red Carpet**\
 `The first awards of the night are being handed out during a preshow ceremony, with the main event starting at 8 p.m. Eastern time. Pink will host a celebration filled with nostalgic performances.`\
 https://www.nytimes.com/live/2026/06/07/theater/tony-awards-2026
 
@@ -161,8 +165,4 @@ https://www.nytimes.com/2026/06/07/opinion/fighting-competitive-men-masculinity.
 **You Can Walk to the World Cup in New Jersey. But Should You?**\
 `We decided to make the trek and find out.`\
 https://www.nytimes.com/2026/06/07/opinion/world-cup-new-york-new-jersey-transit-walk.html
-
-**The Tony Awards Nominees Are Not Dangerous This Year**\
-`The Tony Awards nominees are not dangerous this year.`\
-https://www.nytimes.com/2026/06/07/opinion/broadway-liberation-giant-balusters-plays.html
 
