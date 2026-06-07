@@ -1,3 +1,15 @@
+**Lo que Shannon Elizabeth piensa de haber sido la ‘chica sexy’ de los 2000**\
+`La actriz ayudó a definir éxitos de taquilla como “American Pie” y favoritos de culto como “Jay y el silencioso Bob”. Ahora, al entrar en un nuevo capítulo público, reflexiona sobre esa época.`\
+https://www.nytimes.com/es/2026/06/07/espanol/cultura/american-pie-shannon-elizabeth.html
+
+**Erdogan and Putin, the End of an Unlikely Partnership**\
+`Russia’s decline has given Turkey the freedom to pursue its interests, and Ukraine is the beneficiary.`\
+https://www.nytimes.com/2026/06/07/opinion/russia-turkey-putin-erdogan-ukraine.html
+
+**Washington Needs to Account for Its Bad Wars**\
+`The American foreign policy class should shed its addiction to military force.`\
+https://www.nytimes.com/2026/06/07/opinion/iran-us-war-military-washington.html
+
 **Member of Neo-Nazi Party Reaches Mayoral Runoff in German Town**\
 `Since the fall of the Third Reich, German voters have shunned mayoral candidates from neo-Nazi parties. That could change on Sunday in a small town in the country’s east.`\
 https://www.nytimes.com/2026/06/07/world/europe/germany-neo-nazi-mayor-election.html
