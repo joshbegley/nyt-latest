@@ -1,3 +1,111 @@
+**Scott Pelley: Bari Weiss Put a ‘Thumb on the Scale’ for Trump**\
+`In an exclusive interview, Scott Pelley shared his views about Bari Weiss and why he believes she should leave her job as editor in chief at CBS News.`\
+https://www.nytimes.com/video/podcasts/100000010949240/scott-pelley-bari-weiss-60-minutes.html
+
+**Scott Pelley: CBS News ‘Is on Fire’**\
+`In an exclusive interview, Scott Pelley defended himself against accusations from President Trump and said there was “a subtle political bias” in the new management at “60 Minutes.”`\
+https://www.nytimes.com/video/podcasts/100000010949219/scott-pelley-cbs-trump.html
+
+**Trump Looms Over Pivotal Republican Senate Runoff in Georgia**\
+`The president has not yet endorsed Representative Mike Collins or Derek Dooley, a former football coach, in the race to challenge the Democratic senator, Jon Ossoff.`\
+https://www.nytimes.com/2026/06/07/us/politics/georgia-republican-senate-runoff-trump.html
+
+**Carter Brey, New York Philharmonic Cellist, Retires**\
+`Carter Brey, the New York Philharmonic’s principal cellist for the last 30 years, is retiring from the orchestra at the end of this season.`\
+https://www.nytimes.com/2026/06/07/arts/music/carter-brey-cellist-new-york-philharmonic.html
+
+**Peru’s Presidential Runoff Could Swing the Country to the Right: What to Know**\
+`Facing a surge in violence, voters will choose between a newly moderated left and a right-wing candidate representing an autocrat’s divisive legacy.`\
+https://www.nytimes.com/2026/06/07/world/americas/peru-presidential-election-runoff-fujimori-sanchez.html
+
+**Trump Says Iran Has Made a ‘Big’ Nuclear Promise. It Isn’t New.**\
+`President Trump’s boasts of securing a commitment from Iranian leaders not to develop a nuclear weapon have puzzled nuclear experts who note that Tehran has made that pledge for more than 50 years.`\
+https://www.nytimes.com/2026/06/07/us/politics/trump-iran-nuclear-promise.html
+
+**How People Working in Debt Collection Handle Abuse From Callers**\
+`More Americans are taking on debt and falling behind on bills. The people calling them to collect often endure a torrent of verbal abuse and threats of violence.`\
+https://www.nytimes.com/2026/06/07/business/debt-collectors-jobs-abuse.html
+
+**‘Scary Movie’ and the Art of the Pop Culture Gag**\
+`From “Saw” traps with Dr. Phil to TikTok-era tropes, we catalog the gags, goofs and groan-worthy bits from the “Scary Movie” universe.`\
+https://www.nytimes.com/2026/06/07/movies/scary-movie-and-the-art-of-the-pop-culture-gag.html
+
+**South Carolina Governor’s Race Tests the Strength of a Trump Endorsement**\
+`The Republican candidates for South Carolina governor went to extraordinary lengths for the president’s support. But his choice of Lt. Gov. Pamela Evette has not quite sealed the deal among voters.`\
+https://www.nytimes.com/2026/06/07/us/south-carolina-governor-trump-evette.html
+
+**Seattle’s Incredibly Loud Street Preachers Eagerly Await the World Cup**\
+`Long the bane of Mariners and Seahawks fans, evangelical ministers with large speakers are preparing for the “incredible opportunity” of screaming the word of God at 750,000 soccer fans.`\
+https://www.nytimes.com/2026/06/07/us/seattle-street-preachers-world-cup.html
+
+**How Bank Tellers Are Stopping Customers From Giving Money to Scammers**\
+`With cybercrime continuing to rise, some banks are testing new prevention strategies. JPMorgan Chase hired a behavioral scientist.`\
+https://www.nytimes.com/2026/06/07/your-money/chase-bank-tellers-scams.html
+
+**My Boss Is a Manipulative Creep. What Can I Do?**\
+`Plus: How much unpaid work can a recruiter demand? And what on earth is that smell?`\
+https://www.nytimes.com/2026/06/07/business/creep-boss-recruiter-unpaid-work.html
+
+**June Squibb, the ‘Foulest Mouth on Broadway’, Is Up for a Tony at 96**\
+`At 96, June Squibb is one of the oldest acting nominees in the history of the Tony Awards. Back in the 1960s, she was known for an entirely different distinction.`\
+https://www.nytimes.com/2026/06/07/theater/june-squibb-tony-awards.html
+
+**Zegna Reimagines the Malibu Beach Bum**\
+`The Italian men’s wear label relocates its range of soft tailoring and nubby knits to coastal California.`\
+https://www.nytimes.com/2026/06/07/style/zegna-malibu-mens-wear.html
+
+**Daughter of Mrs. Fields Starts Fields Good, a Healthy Cookie Brand**\
+`Ashley Fields is a co-founder of Fields Good cookies. One variety contains protein, and others claim to boost brain performance or aid sleep.`\
+https://www.nytimes.com/2026/06/07/business/mrs-fields-daughter-cookies.html
+
+**As Oil Prices Spike, Talk of ‘Demand Destruction’ Sets In**\
+`The decades-old term refers to the sustained loss of demand for a commodity, caused by high prices.`\
+https://www.nytimes.com/2026/06/07/business/07biz-demand-destruction-iran-war.html
+
+**No Longer ‘Supporting Cast,’ Grooms Now Want Glam Squads, Too**\
+`The wedding industry is seeing an emerging ecosystem of services for grooms, from day-of hair and makeup to concierges and even therapists.`\
+https://www.nytimes.com/2026/06/07/style/groom-hair-makeup-concierge-therapy-glam-squad.html
+
+**Why We Still Need Steven Spielberg**\
+`Hollywood is struggling, but Spielberg insists that the big screen is still the best place to work out our collective dreams, fears, joys and sorrows.`\
+https://www.nytimes.com/2026/06/07/magazine/steven-spielberg-movie-theater-disclosure-day.html
+
+**RFK Jr. Appears Disengaged on Many Health Department Matters Beyond Vaccines**\
+`Health Secretary Robert F. Kennedy Jr. has demonstrated little interest in managing his sprawling department as he focuses on food and vaccine policies, according to colleagues.`\
+https://www.nytimes.com/2026/06/07/us/politics/ebola-vaccines-kennedy-health-department.html
+
+**Book Review: ‘Contrapposto,’ by Dave Eggers**\
+`In this satisfyingly old-school novel, an artist tries to find his place, and hold onto his spark, in a world that values fads and flash.`\
+https://www.nytimes.com/2026/06/07/books/review/dave-eggers-contrapposto.html
+
+**How to Watch the 2026 Tony Awards**\
+`The ceremony, at Radio City Music Hall, will be broadcast on CBS starting at 8 p.m. Eastern, and livestreamed on Paramount+ for premium subscribers.`\
+https://www.nytimes.com/2026/06/07/theater/how-to-watch-tony-awards-2026-streaming.html
+
+**Taking Highways and Back Roads to America’s Founding**\
+`For the nation’s 250th anniversary, the Travel desk asked writers to retrace the steps of revolutionary figures, both in the United States and abroad.`\
+https://www.nytimes.com/2026/06/07/insider/new-york-times-travel-america-250.html
+
+**The Niche Designer Dressing the A-List in Scraps**\
+`‘It’ girls are lining up for Giovanna Flores scraps.`\
+https://www.nytimes.com/2026/06/07/style/giovanna-flores-indie-designer-flores-paper.html
+
+**Mexico City’s Airport Got a $500 Million Renovation for the 2026 World Cup. Was It Enough?**\
+`The nearly 100-year-old airport has undergone a rapid $500 million renovation. But experts say it’s not enough.`\
+https://www.nytimes.com/2026/06/07/world/americas/mexico-city-benito-juarez-airport-world-cup.html
+
+**For Disabled Travelers in Search of Adventure, Adrenaline-Fueled Options Are Growing**\
+`For disabled travelers in search of adventure, there are a growing number of adrenaline-fueled options. In Oregon, one wheelchair user went tree-climbing.`\
+https://www.nytimes.com/2026/06/07/travel/accessible-tree-climbing-oregon.html
+
+**Christine Hunsicker, CaaStle CEO, Confessed to Fraud. The Board Let Her Stay in Charge.**\
+`The final months of the fashion tech start-up CaaStle included fake audits, stock buybacks and a damage control strategy led by the chief executive who defrauded it.`\
+https://www.nytimes.com/2026/06/07/business/caastle-fraud-christine-hunsicker.html
+
+**Americans Love Soccer Stars Who Aren’t Made in America**\
+`The United States has gone wild over foreign-born players on several occasions. Now the largest World Cup ever is arriving.`\
+https://www.nytimes.com/2026/06/07/arts/world-cup-united-states-soccer-pele-beckham-messi.html
+
 **Scott Pelley on the Bari Weiss Era and His Last Days at CBS News**\
 `In his first sit-down interview since he was fired from CBS News, Scott Pelley tells Lulu Garcia-Navarro about his experiences at the network over the past weeks and months.`\
 https://www.nytimes.com/video/podcasts/100000010949056/scott-pelley-on-the-bari-weiss-era-and-his-last-days-at-cbs-news.html
@@ -89,112 +197,4 @@ https://www.nytimes.com/2026/06/06/us/ahead-of-world-cup-two-generations-of-hait
 **How Our Theater Reporter Makes His Tony Award Predictions**\
 `Michael Paulson, the theater reporter for The New York Times, has seen every production eligible for a Tony Award in the past decade. He explains the rigorous reporting process behind his predictions.`\
 https://www.nytimes.com/video/insider/100000010942319/how-our-theater-reporter-makes-his-tony-award-predictions.html
-
-**Kennedy Center Loses Case Against Musician Who Canceled Over Trump Naming Dispute**\
-`A judge sided with jazz performer Chuck Redd, who canceled a 2025 holiday concert after President Trump’s name was added to the building.`\
-https://www.nytimes.com/2026/06/06/us/politics/kennedy-center-lawsuit-tossed-trump-chuck-redd.html
-
-**Ukraine Strikes St. Petersburg in Long-Range Drone Attack**\
-`It was the second such attack in days and came just hours after President Vladimir V. Putin spoke at an economic forum in the city.`\
-https://www.nytimes.com/2026/06/06/world/europe/ukraine-drone-strike-st-petersburg.html
-
-**Split Seconds**\
-`Adam Wagner and Simeon Seigel combine forces on a puzzle that combines forces on its solvers.`\
-https://www.nytimes.com/2026/06/06/crosswords/daily-puzzle-2026-06-07.html
-
-**Barge Hits Maryland Rail Bridge Along Northeast Corridor**\
-`Amtrak said crews were conducting a safety assessment for the bridge, which crosses the Susquehanna River in Maryland. The U.S. Coast Guard reported no injuries.`\
-https://www.nytimes.com/2026/06/06/us/maryland-bridge-amtrak-northeast-corridor.html
-
-**Bob Packwood, Senator Forced to Quit in Sex Scandal, Dies at 93**\
-`An unorthodox Republican, he helped shape tax policy and women’s rights legislation before resigning in 1995 amid accusations by more than 20 women of sexual misconduct.`\
-https://www.nytimes.com/2026/06/06/us/politics/bob-packwood-dead.html
-
-**Alan Riding, Times Correspondent in Latin America and Paris, Dies at 82**\
-`He was a cosmopolitan observer and interpreter of societies he knew firsthand, whether writing about war in Nicaragua or the history and cultural salons of France.`\
-https://www.nytimes.com/2026/06/06/business/media/alan-riding-dead.html
-
-**Protester Hit by Car at Newark ICE Detention Center**\
-`A vehicle hit a protester on Friday as it was leaving Delaney Hall, an immigration detention center in Newark that has been the site of protests since late May.`\
-https://www.nytimes.com/video/us/100000010949167/protester-hit-car-delaney-newark-ice.html
-
-**An Edith Wharton Short Story Is Published About 100 Years Later**\
-`The short story, which is set during World War I, is believed to have been printed for the first time on Friday. The story is thought to have been written no earlier than July 1918.`\
-https://www.nytimes.com/2026/06/06/books/edith-wharton-new-short-story.html
-
-**C.I.A. Officer Found With Gold Bars Said to Have Created Fake Spy Program**\
-`A federal judge has ruled that David Rush, the C.I.A. employee, must remain in detention. U.S. officials say Mr. Rush funneled millions in federal funds to himself.`\
-https://www.nytimes.com/2026/06/06/us/politics/cia-officer-gold-fake-spy-program.html
-
-**17 Arrested, 1 Officer Injured in N.Y.C. Celebrations of Knicks’ Game 2 Win**\
-`The police took dozens of people into custody this week after N.B.A. finals watch parties in Midtown Manhattan grew unruly.`\
-https://www.nytimes.com/2026/06/06/nyregion/knicks-watch-party-arrests-nyc.html
-
-**El papa León se prepara para enfrentar la política polarizada de España**\
-`León llegó a España el sábado para una visita de una semana en la que se reunirá con inmigrantes y podría recibir críticas de Vox, el partido de extrema derecha español.`\
-https://www.nytimes.com/es/2026/06/06/espanol/mundo/papa-leon-visita-espana.html
-
-**Trump’s Defense Department Sees Growing Espionage Threat From Israel**\
-`The Defense Department has increased the counterintelligence threat assessment to its highest level, and Israel is believed to have eavesdropped on American negotiations with Iran.`\
-https://www.nytimes.com/2026/06/06/us/politics/pentagon-sees-growing-espionage-threat-from-israel.html
-
-**N.Y. Lawmakers Move to Pause Data Centers and Curb Surveillance Pricing**\
-`The state also passed legislation that begins a two-year process to allow lawmakers to draw new congressional district lines more often. Efforts to contain plastics stalled for a third year.`\
-https://www.nytimes.com/2026/06/06/nyregion/data-centers-ai-ny.html
-
-**Madonna Premieres ‘Confessions II,’ a Star-Studded Short Film, at Tribeca Film Festival**\
-`“Confessions II” features songs from the pop star’s coming album of the same name. At one point, green lasers shoot from the pelvises of gyrating women.`\
-https://www.nytimes.com/2026/06/06/arts/madonna-confessions-tribeca-festival.html
-
-**The Bidens Return With New Book and South Dakota Speech Targeting Trump**\
-`The re-emergence of the former first family has been fraught for some Democrats who just want to move on.`\
-https://www.nytimes.com/2026/06/06/us/politics/biden-speech-sioux-falls-trump.html
-
-**Escape From Trumpism**\
-`The best pathway out is to make Congress great again.`\
-https://www.nytimes.com/2026/06/06/opinion/democrats-reconstruction-project-2029.html
-
-**Infant Killed as Israeli Military Fires on Car in West Bank, Palestinian Officials Say**\
-`Israel’s military said a soldier opened fire after Israeli troops “perceived a vehicle accelerating toward them.” The baby’s grandmother, who was in the car, disputed that account.`\
-https://www.nytimes.com/2026/06/06/world/middleeast/israel-west-bank-infant.html
-
-**It’s Gazpacho Time**\
-`Julia Moskin’s best gazpacho lives up to its name, with five stars and over 16,000 reviews.`\
-https://www.nytimes.com/2026/06/06/dining/its-gazpacho-time.html
-
-**Celebrities Love Bike Dates. Should You Try One, Too?**\
-`Celebrities have recently been hitting the bike lane with their beaus, but the “Bicycle Boy” was once branded a type to be avoided.`\
-https://www.nytimes.com/2026/06/06/style/celebrity-bike-date-romantic-idea.html
-
-**I’ve Been Depriving You of Cookies**\
-`In repentance, I offer you frosted sugar cookies, double chocolate chip cookies and peanut butter-miso cookies.`\
-https://www.nytimes.com/2026/06/06/dining/ive-been-depriving-you-of-cookies.html
-
-**Israeli Strike Kills 3 Lebanese Soldiers, Days After Truce Was Signed**\
-`Israel invaded Lebanon and occupied parts of the country to fight Hezbollah, an Iran-backed armed group, but its military offensive has drawn in others.`\
-https://www.nytimes.com/2026/06/06/world/middleeast/israel-strike-lebanese-soldiers-general.html
-
-**A Viral Gen-Z Protest Movement Draws Thousands to India’s Capital**\
-`The Cockroach Janta Party started as a joke, but it quickly became a way for many Indians to express their frustration with the system.`\
-https://www.nytimes.com/2026/06/06/world/asia/india-protest-cockroach-janta-party.html
-
-**Sorry, I’m Not Available. Talk to the A.I. Version of Me.**\
-`The hot new productivity hack for C.E.O.s and Harvard professors? A.I. twins that answer questions and attend meetings.`\
-https://www.nytimes.com/2026/06/06/business/dealbook/ai-digital-twin.html
-
-**5 Unsung Heroes Who Carried the Memory of D-Day**\
-`A journalist, a medic, a weather forecaster, a Medal of Honor recipient, a French commando: Their efforts showed that courage transcends race, class and gender.`\
-https://www.nytimes.com/2026/06/06/obituaries/d-day-normandy-wwii-heroes.html
-
-**Graham Platner and the Rise of the ‘Dirtbag’ Democrat**\
-`And what the Maine candidate reveals about politics today.`\
-https://www.nytimes.com/2026/06/06/opinion/graham-platner-democrats-politics.html
-
-**The States Where Life Is Better**\
-`Trust, well-being and mental health are all down in America. But some states are better to live in than others, according to a new study.`\
-https://www.nytimes.com/2026/06/06/opinion/happiness-trust-americans-states.html
-
-**Norma Jeane’s Still Got It!**\
-`Some continue to like it hot.`\
-https://www.nytimes.com/2026/06/06/opinion/marilyn-monroe-birthday.html
 
