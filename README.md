@@ -1,3 +1,11 @@
+**OPEC Plus to Boost Oil Production as Ceasefire in Iran Remains Elusive**\
+`The cartel’s move to increase output by 188,000 barrels per day is largely symbolic, with vast amounts of the world’s oil stranded by the effective shutdown of the Strait of Hormuz.`\
+https://www.nytimes.com/2026/06/07/business/opec-oil-production-iran-war.html
+
+**Map: 5.2-Magnitude Earthquake Shakes Greece**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/07/world/quake-tracker-greece.html
+
 **Tangy and Bold Chile Tofu**\
 `Hetty Lui McKinnon’s new take on a popular Indo-Chinese stir-fry pairs the mild protein with a bold, punchy sauce.`\
 https://www.nytimes.com/2026/06/07/dining/tangy-and-bold-chile-tofu.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/07/crosswords/spelling-bee-forum.html
 **Lo que Shannon Elizabeth piensa de haber sido la ‘chica sexy’ de los 2000**\
 `La actriz ayudó a definir éxitos de taquilla como “American Pie” y favoritos de culto como “Jay y el silencioso Bob”. Ahora, al entrar en un nuevo capítulo público, reflexiona sobre esa época.`\
 https://www.nytimes.com/es/2026/06/07/espanol/cultura/american-pie-shannon-elizabeth.html
-
-**Erdogan and Putin, the End of an Unlikely Partnership**\
-`Russia’s decline has given Turkey the freedom to pursue its interests, and Ukraine is the beneficiary.`\
-https://www.nytimes.com/2026/06/07/opinion/russia-turkey-putin-erdogan-ukraine.html
-
-**Who Will Account for Another Foreign Policy Failure?**\
-`The American foreign policy class should shed its addiction to military force.`\
-https://www.nytimes.com/2026/06/07/opinion/iran-us-war-military-washington.html
 
