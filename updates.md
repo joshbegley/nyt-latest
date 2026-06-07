@@ -1,3 +1,7 @@
+**Hegseth Criticizes Europe Over Migration ‘Invasion’ in D-Day Speech**\
+`The remarks from Defense Secretary Pete Hegseth reflect many of the Trump administration’s previous assertions on immigrants in Europe, which overlap with the language of European far-right political parties.`\
+https://www.nytimes.com/2026/06/07/us/politics/hegseth-europe-migration-d-day.html
+
 **Touching Grass**\
 `There’s no better time than early summer to put away your phone and get some fresh air. We have a challenge to help you actually do it.`\
 https://www.nytimes.com/2026/06/07/briefing/touching-grass.html
