@@ -1,3 +1,11 @@
+**Lawsuit Aims to Stop U.F.C. Fights at White House on Trump’s Birthday**\
+`A federal lawsuit said the event, set for June 14, was unlawfully planned and designed to benefit Mr. Trump and his allies.`\
+https://www.nytimes.com/2026/06/07/us/politics/lawsuit-ufc-fight-white-house.html
+
+**5 Takeaways From Scott Pelley’s Times Magazine Interview**\
+`Mr. Pelley, who was at CBS News for 37 years, including as a White House correspondent and a “60 Minutes” correspondent, spoke in his first extended interview since he was fired.`\
+https://www.nytimes.com/2026/06/07/arts/television/scott-pelley-60-minutes-interview-takeaways.html
+
 **Search Continues for Gunmen Who Opened Fire at Ohio Festival**\
 `Two men fired weapons at each other during a festival in the historic Old West End neighborhood of Toledo, injuring at least a dozen people.`\
 https://www.nytimes.com/2026/06/07/us/ohio-festival-shooting-gunmen-search.html
