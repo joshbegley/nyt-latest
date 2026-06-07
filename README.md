@@ -1,3 +1,7 @@
+**Bruce Springsteen Opens His Music Center**\
+`Jon Bon Jovi, Public Enemy and others joined him to ring in the Bruce Springsteen Center for American Music, a $50 million archive and cultural hub.`\
+https://www.nytimes.com/2026/06/06/style/springsteen-opens-his-music-center-in-new-jersey.html
+
 **Despite Protest, Ye Takes the Stage for Thousands of European Fans**\
 `Nearly 40,000 fans came out to hear the rapper formerly known as Kanye West in the Netherlands on Saturday, even as other European countries had canceled his concerts.`\
 https://www.nytimes.com/2026/06/06/arts/music/ye-concert-bully-tour-netherlands.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/06/us/california-slow-vote-count.html
 **Raphael Warnock on JD Vance’s ‘Callousness’ and ‘Hubris’**\
 `Raphael Warnock, a U.S. senator and a pastor, discusses the so-called “war on Christianity” and JD Vance’s criticism of Pope Leo.`\
 https://www.nytimes.com/video/podcasts/100000010948479/raphael-warnock-on-jd-vances-callousness-and-hubris.html
-
-**YouTuber and Wife Ended Pregnancy After Down Syndrome Diagnosis. They Got Death Threats.**\
-`After Jesse Ridgway, a popular YouTuber, and his wife, Ashley, revealed the news, death threats followed.`\
-https://www.nytimes.com/2026/06/06/us/down-syndrome-abortion-jesse-ridgway.html
 
