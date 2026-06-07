@@ -1,3 +1,7 @@
+**Pink Is Hosting Tonight’s Tony Awards.**\
+`The pop star, a former theater kid, will also perform on Sunday. Her theater-loving daughter approves of the gig.`\
+https://www.nytimes.com/2026/06/07/theater/tonys-host-pink.html
+
 **Huge Runaway Flag Knocks Out Power to Thousands of Connecticut Customers**\
 `The flag flew into transmission lines on Saturday night, affecting 5,000 customers. In a separate episode on Sunday, 40,000 customers lost power, according to Eversource Energy.`\
 https://www.nytimes.com/2026/06/07/nyregion/american-flag-power-outages-connecticut.html
@@ -161,8 +165,4 @@ https://www.nytimes.com/2026/06/07/briefing/touching-grass.html
 **My Life Lessons From M.M.A. Fighting**\
 `There are lessons in competitive fighting that I never expected to learn.`\
 https://www.nytimes.com/2026/06/07/opinion/fighting-competitive-men-masculinity.html
-
-**You Can Walk to the World Cup in New Jersey. But Should You?**\
-`We decided to make the trek and find out.`\
-https://www.nytimes.com/2026/06/07/opinion/world-cup-new-york-new-jersey-transit-walk.html
 
