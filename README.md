@@ -94,13 +94,13 @@ https://www.nytimes.com/2026/06/07/your-money/chase-bank-tellers-scams.html
 `Plus: How much unpaid work can a recruiter demand? And what on earth is that smell?`\
 https://www.nytimes.com/2026/06/07/business/creep-boss-recruiter-unpaid-work.html
 
-**June Squibb, the ‘Foulest Mouth on Broadway’, Is Up for a Tony at 96**\
-`At 96, June Squibb is one of the oldest acting nominees in the history of the Tony Awards. Back in the 1960s, she was known for an entirely different distinction.`\
-https://www.nytimes.com/2026/06/07/theater/june-squibb-tony-awards.html
-
 **Zegna Reimagines the Malibu Beach Bum**\
 `The Italian men’s wear label relocates its range of soft tailoring and nubby knits to coastal California.`\
 https://www.nytimes.com/2026/06/07/style/zegna-malibu-mens-wear.html
+
+**June Squibb, the ‘Foulest Mouth on Broadway’, Is Up for a Tony at 96**\
+`At 96, June Squibb is one of the oldest acting nominees in the history of the Tony Awards. Back in the 1960s, she was known for an entirely different distinction.`\
+https://www.nytimes.com/2026/06/07/theater/june-squibb-tony-awards.html
 
 **Daughter of Mrs. Fields Starts Fields Good, a Healthy Cookie Brand**\
 `Ashley Fields is a co-founder of Fields Good cookies. One variety contains protein, and others claim to boost brain performance or aid sleep.`\
