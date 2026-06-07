@@ -1,3 +1,7 @@
+**What Steven Spielberg Taught Me About Fear, Catharsis, and Being Human**\
+`Hollywood is struggling, but Spielberg insists that the big screen is still the best place to work out our collective dreams, joys and sorrows.`\
+https://www.nytimes.com/2026/06/07/magazine/steven-spielberg-movie-theater-disclosure-day.html
+
 **James Talarico Isn’t the Only One**\
 `It’s midterm season, and the Democrats are trying to win back Congress. Is running white Christian clergy members the answer?`\
 https://www.nytimes.com/2026/06/07/briefing/james-talarico-isnt-the-only-one.html
