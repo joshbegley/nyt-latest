@@ -1,3 +1,11 @@
+**Bruce Springsteen Talks About His Place in American Music**\
+`As he opens an expansive cultural center not far from the Jersey Shore boardwalk, the singer describes himself as “a small link in a big chain.”`\
+https://www.nytimes.com/2026/06/07/style/bruce-springsteen-talks-about-his-place-in-american-music.html
+
+**‘Scary Movie’ Returns Politically Incorrect Humor to Top of the Box Office**\
+`The film took in $55 million over the weekend in the United States and Canada. It was the biggest opening for an R-rated comedy in 12 years.`\
+https://www.nytimes.com/2026/06/07/business/media/scary-movie-politically-incorrect-humor.html
+
 **Knicks Watch Party at MSG Is Canceled as Game 3 Security Ramps Up for Trump**\
 `President Trump and Mayor Zohran Mamdani are expected to attend the game on Monday at Madison Square Garden. A viewing party on Friday led to more than a dozen arrests.`\
 https://www.nytimes.com/2026/06/07/nyregion/knicks-watch-party-msg-canceled-trump.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/07/business/mrs-fields-daughter-cookies.html
 **As Oil Prices Spike, Talk of ‘Demand Destruction’ Sets In**\
 `The decades-old term refers to the sustained loss of demand for a commodity, caused by high prices.`\
 https://www.nytimes.com/2026/06/07/business/demand-destruction-iran-war.html
-
-**No Longer ‘Supporting Cast,’ Grooms Now Want Glam Squads, Too**\
-`The wedding industry is seeing an emerging ecosystem of services for grooms, from day-of hair and makeup to concierges and even therapists.`\
-https://www.nytimes.com/2026/06/07/style/groom-hair-makeup-concierge-therapy-glam-squad.html
-
-**What Steven Spielberg Taught Me About Fear, Catharsis, and Being Human**\
-`Hollywood is struggling, but Spielberg insists that the big screen is still the best place to work out our collective dreams, joys and sorrows.`\
-https://www.nytimes.com/2026/06/07/magazine/steven-spielberg-movie-theater-disclosure-day.html
 

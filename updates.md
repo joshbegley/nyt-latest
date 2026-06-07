@@ -1,3 +1,11 @@
+**Bruce Springsteen Talks About His Place in American Music**\
+`As he opens an expansive cultural center not far from the Jersey Shore boardwalk, the singer describes himself as “a small link in a big chain.”`\
+https://www.nytimes.com/2026/06/07/style/bruce-springsteen-talks-about-his-place-in-american-music.html
+
+**‘Scary Movie’ Returns Politically Incorrect Humor to Top of the Box Office**\
+`The film took in $55 million over the weekend in the United States and Canada. It was the biggest opening for an R-rated comedy in 12 years.`\
+https://www.nytimes.com/2026/06/07/business/media/scary-movie-politically-incorrect-humor.html
+
 **Knicks Watch Party at MSG Is Canceled as Game 3 Security Ramps Up for Trump**\
 `President Trump and Mayor Zohran Mamdani are expected to attend the game on Monday at Madison Square Garden. A viewing party on Friday led to more than a dozen arrests.`\
 https://www.nytimes.com/2026/06/07/nyregion/knicks-watch-party-msg-canceled-trump.html
