@@ -35,7 +35,7 @@ https://www.nytimes.com/2026/06/07/magazine/scott-pelley-interview.html
 https://www.nytimes.com/es/2026/06/07/espanol/mundo/elecciones-peru-segunda-vuelta.html
 
 **Between the Knicks and the Pope, Villanova Finds the Spotlight**\
-`Villanova University and its alumni have been grabbing headlines, both on the court and in the Vatican.`\
+`Villanova University alumni have been grabbing headlines, both on the court and in the Vatican.`\
 https://www.nytimes.com/2026/06/07/us/knicks-pope-leo-villanova.html
 
 **Scott Pelley: Bari Weiss Put a ‘Thumb on the Scale’ for Trump**\
