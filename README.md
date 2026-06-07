@@ -1,3 +1,7 @@
+**Hegseth Criticizes Europe Over Migration ‘Invasion’ in D-Day Speech**\
+`The remarks from Defense Secretary Pete Hegseth reflect many of the Trump administration’s previous assertions on immigrants in Europe, which overlap with the language of European far-right political parties.`\
+https://www.nytimes.com/2026/06/07/us/politics/hegseth-europe-migration-d-day.html
+
 **Touching Grass**\
 `There’s no better time than early summer to put away your phone and get some fresh air. We have a challenge to help you actually do it.`\
 https://www.nytimes.com/2026/06/07/briefing/touching-grass.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/07/world/europe/germany-neo-nazi-mayor-election.
 **Can the N.F.L. Win Fans in South Korea With Flag Football?**\
 `The inclusion of flag football in the next Olympic Games has spurred optimism about the prospects of American football in South Korea, where it has languished for decades.`\
 https://www.nytimes.com/2026/06/07/world/asia/south-korea-nfl-football-flag.html
-
-**Barry Manilow Can’t Smile Without Fans’ Help on This Song**\
-`The singer has bigger hits but “Can’t Smile Without You” has become a personal touchstone for fans who have helped him perform it live.`\
-https://www.nytimes.com/2026/06/07/arts/music/barry-manilow-cant-smile-duets.html
 
