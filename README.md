@@ -1,3 +1,7 @@
+**Arab Israeli Opens Fire, Killing 1 and Injuring at Least 5**\
+`The gunman drove around several locations in central Israel on Sunday, shooting from his car. He killed one man and injured at least five in what authorities called a terrorist attack.`\
+https://www.nytimes.com/video/world/europe/100000010949901/arab-israeli-opens-fire-killing-1-and-injuring-at-least-5.html
+
 **Tribeca Festival Denounces Pair Who Joked on the Red Carpet About Rape**\
 `A clip of the actor Elon Gold with Lizzy Savetsky, a social media influencer, at the premiere of “The Wedding Entertainer” has been circulating online.`\
 https://www.nytimes.com/2026/06/07/world/middleeast/tribeca-film-festival-response-palestinian-joke.html
@@ -5,6 +9,10 @@ https://www.nytimes.com/2026/06/07/world/middleeast/tribeca-film-festival-respon
 **Nearly 11,000 Bottles of Bourbon Are Stolen From a Philadelphia Warehouse**\
 `The bottles, worth about $500,000, were taken in what company officials called a “coordinated cargo theft operation carried out in broad daylight.”`\
 https://www.nytimes.com/2026/06/07/us/bourbon-philadelphia-stolen-cargo.html
+
+**Live Updates: Iran Fires Missiles at Israel for First Time Since April Cease-Fire**\
+`Israel had attacked the outskirts of the Lebanese capital, Beirut, earlier Sunday, prompting threats of Iranian retaliation. There were no immediate reports of casualties.`\
+https://www.nytimes.com/live/2026/06/07/world/iran-israel-missiles
 
 **Iran Fires Missiles at Israel for First Time Since April Cease-Fire**\
 `Israel had struck the outskirts of the Lebanese capital, Beirut, earlier on Sunday, prompting threats of Iranian retaliation.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/07/us/south-carolina-governor-trump-evette.html
 **Seattle’s Incredibly Loud Street Preachers Eagerly Await the World Cup**\
 `Long the bane of Mariners and Seahawks fans, evangelical ministers with large speakers are preparing for the “incredible opportunity” of screaming the word of God at 750,000 soccer fans.`\
 https://www.nytimes.com/2026/06/07/us/seattle-street-preachers-world-cup.html
-
-**How Bank Tellers Are Stopping Customers From Giving Money to Scammers**\
-`With cybercrime continuing to rise, some banks are testing new prevention strategies. JPMorgan Chase hired a behavioral scientist.`\
-https://www.nytimes.com/2026/06/07/your-money/chase-bank-tellers-scams.html
-
-**My Boss Is a Manipulative Creep. What Can I Do?**\
-`Plus: How much unpaid work can a recruiter demand? And what on earth is that smell?`\
-https://www.nytimes.com/2026/06/07/business/creep-boss-recruiter-unpaid-work.html
 
