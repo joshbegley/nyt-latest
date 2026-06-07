@@ -1,6 +1,6 @@
 **Iran Fires Missiles at Israel for First Time Since April Cease-Fire**\
-`Israel had attacked the outskirts of Lebanese capital, Beirut, earlier Sunday, prompting threats of Iranian retaliation.`\
-https://www.nytimes.com/live/2026/06/07/world/iran-israel-missiles
+`Israel had attacked the outskirts of the Lebanese capital, Beirut, earlier Sunday, prompting threats of Iranian retaliation.`\
+https://www.nytimes.com/2026/06/07/world/middleeast/iran-israel-missiles.html
 
 **For Trump, the World Is for the Taking**\
 `Trump has ushered in a new era of fuzzy foreign policy. In an era when powerful leaders are tempted to blur the lines of legal borders, the political scientists Stephen E. Hanson and Jeffrey S. Kopstein warn about the dangerous ramifications of their taking what they please.`\
@@ -59,7 +59,7 @@ https://www.nytimes.com/2026/06/07/world/middleeast/iranians-despair-war-economy
 https://www.nytimes.com/2026/06/07/world/europe/ukraine-europe-russia-us-peace-talks.html
 
 **Israel Bombs Beirut Outskirts as Fighting With Hezbollah Escalates**\
-`U.S. efforts for a truce in Lebanon appear to have stalled. Israel accused Hezbollah of firing at Israeli territory. Iran threatened to retaliate.`\
+`U.S. efforts for a truce in Lebanon appear to have stalled. Israel accused Hezbollah of firing at Israeli territory. Iran swiftly retaliated.`\
 https://www.nytimes.com/2026/06/07/world/middleeast/israel-beirut-attacks-hezbollah.html
 
 **Trump Defends Compensation Fund and Iran War in ‘Meet the Press’ Interview**\

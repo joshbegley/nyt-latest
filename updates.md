@@ -1,4 +1,12 @@
 **Iran Fires Missiles at Israel for First Time Since April Cease-Fire**\
+`Israel had attacked the outskirts of the Lebanese capital, Beirut, earlier Sunday, prompting threats of Iranian retaliation.`\
+https://www.nytimes.com/2026/06/07/world/middleeast/iran-israel-missiles.html
+
+**Israel Bombs Beirut Outskirts as Fighting With Hezbollah Escalates**\
+`U.S. efforts for a truce in Lebanon appear to have stalled. Israel accused Hezbollah of firing at Israeli territory. Iran swiftly retaliated.`\
+https://www.nytimes.com/2026/06/07/world/middleeast/israel-beirut-attacks-hezbollah.html
+
+**Iran Fires Missiles at Israel for First Time Since April Cease-Fire**\
 `Israel had attacked the outskirts of Lebanese capital, Beirut, earlier Sunday, prompting threats of Iranian retaliation.`\
 https://www.nytimes.com/live/2026/06/07/world/iran-israel-missiles
 
