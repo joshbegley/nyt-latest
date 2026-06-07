@@ -1,3 +1,15 @@
+**My Life Lessons From M.M.A. Fighting**\
+`There are lessons in competitive fighting that I never expected to learn.`\
+https://www.nytimes.com/2026/06/07/opinion/fighting-competitive-men-masculinity.html
+
+**You Can Walk to the World Cup in New Jersey. But Should You?**\
+`We decided to make the trek and find out.`\
+https://www.nytimes.com/2026/06/07/opinion/world-cup-new-york-new-jersey-transit-walk.html
+
+**The Tony Awards Nominees Are Not Dangerous This Year**\
+`The Tony Awards nominees are not dangerous this year.`\
+https://www.nytimes.com/2026/06/07/opinion/broadway-liberation-giant-balusters-plays.html
+
 **Gunman Kills at Least One in Attack on Central Israel**\
 `Israeli authorities described the shootings as a terrorist attack. Hamas, the Palestinian militant group, praised the assault, but did not claim responsibility.`\
 https://www.nytimes.com/2026/06/07/world/middleeast/israel-west-bank-shooting.html
