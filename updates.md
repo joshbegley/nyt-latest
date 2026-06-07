@@ -1,3 +1,11 @@
+**Tony Awards 2026 Red Carpet: See the Looks of Broadway’s Biggest Stars**\
+`Broadway’s biggest names have started to arrive for the 79th Tony Awards. Here’s what they wore to walk the midnight blue carpet.`\
+https://www.nytimes.com/2026/06/07/style/tony-awards-2026-red-carpet-looks.html
+
+**Kars4Kids Can Continue Broadcasting Ads in California, Appeals Court Says**\
+`A lower court last month found that the ads from the charity, known for its ear-worm jingle, had violated false-advertising laws.`\
+https://www.nytimes.com/2026/06/07/us/kars4kids-california-appeals-court.html
+
 **Tonys 2026 Live Updates: Stars Arrive on Red Carpet in Honor of Broadway’s Best**\
 `A sparse musical season included a radically reconceived version of “Cats” and a “Ragtime” revival. Pink will host a ceremony filled with nostalgic performances.`\
 https://www.nytimes.com/live/2026/06/07/theater/tony-awards-2026

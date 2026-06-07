@@ -1,3 +1,11 @@
+**Tony Awards 2026 Red Carpet: See the Looks of Broadway’s Biggest Stars**\
+`Broadway’s biggest names have started to arrive for the 79th Tony Awards. Here’s what they wore to walk the midnight blue carpet.`\
+https://www.nytimes.com/2026/06/07/style/tony-awards-2026-red-carpet-looks.html
+
+**Kars4Kids Can Continue Broadcasting Ads in California, Appeals Court Says**\
+`A lower court last month found that the ads from the charity, known for its ear-worm jingle, had violated false-advertising laws.`\
+https://www.nytimes.com/2026/06/07/us/kars4kids-california-appeals-court.html
+
 **Tonys 2026 Live Updates: Stars Arrive on Red Carpet in Honor of Broadway’s Best**\
 `A sparse musical season included a radically reconceived version of “Cats” and a “Ragtime” revival. Pink will host a ceremony filled with nostalgic performances.`\
 https://www.nytimes.com/live/2026/06/07/theater/tony-awards-2026
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/06/07/us/politics/georgia-republican-senate-runoff-
 **Carter Brey, New York Philharmonic Cellist, Retires**\
 `Carter Brey, the New York Philharmonic’s principal cellist for the last 30 years, is retiring from the orchestra at the end of this season.`\
 https://www.nytimes.com/2026/06/07/arts/music/carter-brey-cellist-new-york-philharmonic.html
-
-**Peru’s Presidential Runoff Could Swing the Country to the Right: What to Know**\
-`Facing a surge in violence, voters will choose between a newly moderated left and a right-wing candidate representing an autocrat’s divisive legacy.`\
-https://www.nytimes.com/2026/06/07/world/americas/peru-presidential-election-runoff-fujimori-sanchez.html
-
-**Trump Says Iran Has Made a ‘Big’ Nuclear Promise. It Isn’t New.**\
-`President Trump’s boasts of securing a commitment from Iranian leaders not to develop a nuclear weapon have puzzled nuclear experts who note that Tehran has made that pledge for more than 50 years.`\
-https://www.nytimes.com/2026/06/07/us/politics/trump-iran-nuclear-promise.html
 
