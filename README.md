@@ -1,3 +1,7 @@
+**James Talarico Isn’t the Only One**\
+`It’s midterm season, and the Democrats are trying to win back Congress. Is running white Christian clergy members the answer?`\
+https://www.nytimes.com/2026/06/07/briefing/james-talarico-isnt-the-only-one.html
+
 **El aeropuerto de CDMX se renovó para el Mundial. ¿Qué pasará después?**\
 `El aeropuerto, de casi 100 años de antigüedad, ha sido objeto de una veloz remodelación con valor de 500 millones de dólares. Los expertos dicen que no es suficiente.`\
 https://www.nytimes.com/es/2026/06/07/espanol/america-latina/aeropuerto-ciudad-mexico-mundial.html
@@ -38,8 +42,8 @@ https://www.nytimes.com/2026/06/07/opinion/world-cup-new-york-new-jersey-transit
 `The Tony Awards nominees are not dangerous this year.`\
 https://www.nytimes.com/2026/06/07/opinion/broadway-liberation-giant-balusters-plays.html
 
-**Gunman Kills at Least One in Attack on Central Israel**\
-`Israeli authorities described the shootings as a terrorist attack. Hamas, the Palestinian militant group, praised the assault, but did not claim responsibility.`\
+**Arab Gunman Kills One in Attack on Central Israel**\
+`The assailant, an Arab citizen of Israel, was killed. Hamas, the Palestinian militant group, praised the shooting, but it did not claim responsibility.`\
 https://www.nytimes.com/2026/06/07/world/middleeast/israel-west-bank-shooting.html
 
 **NYT Connections Answers for June 8, 2026**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/07/nyregion/metropolitan-diary.html
 **They Have Yet to Sign a Lease. But They’re Furious Over $3,100 Rents.**\
 `Climate change. Gun violence. War. Generations of young people have organized over issues they fear threaten the future. Will housing be the next cause?`\
 https://www.nytimes.com/2026/06/07/nyregion/housing-costs-young-people-nyc.html
-
-**NYT Spelling Bee Answers for June 7, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/06/07/crosswords/spelling-bee-forum.html
 
