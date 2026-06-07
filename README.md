@@ -1,10 +1,10 @@
-**Nearly 11,000 Bottles of Bourbon Are Stolen From a Philadelphia Warehouse**\
-`The bottles, worth about $500,000, were taken in what company officials called a “coordinated cargo theft operation carried out in broad daylight.”`\
-https://www.nytimes.com/2026/06/07/us/bourbon-philadelphia-stolen-cargo.html
-
 **Tribeca Festival Denounces Pair Who Joked on the Red Carpet About Rape**\
 `A clip of the actor Elon Gold with Lizzy Savetsky, a social media influencer, at the premiere of “The Wedding Entertainer” has been circulating online.`\
 https://www.nytimes.com/2026/06/07/world/middleeast/tribeca-film-festival-response-palestinian-joke.html
+
+**Nearly 11,000 Bottles of Bourbon Are Stolen From a Philadelphia Warehouse**\
+`The bottles, worth about $500,000, were taken in what company officials called a “coordinated cargo theft operation carried out in broad daylight.”`\
+https://www.nytimes.com/2026/06/07/us/bourbon-philadelphia-stolen-cargo.html
 
 **Iran Fires Missiles at Israel for First Time Since April Cease-Fire**\
 `Israel had struck the outskirts of the Lebanese capital, Beirut, earlier on Sunday, prompting threats of Iranian retaliation.`\
