@@ -1,3 +1,11 @@
+**Robert Coles, Pulitzer-Winning Child Psychiatrist, Is Dead at 97**\
+`His five-volume “Children of Crisis” series, published between 1967 and 1977, drew on his conversations with American children whose voices were not often heard.`\
+https://www.nytimes.com/2026/06/07/us/robert-coles-dead.html
+
+**NYT Crossword Answers for June 8, 2026**\
+`Tom McCoy’s crossword is more than standard fare.`\
+https://www.nytimes.com/2026/06/07/crosswords/daily-puzzle-2026-06-08.html
+
 **Tony Awards 2026 Red Carpet: See the Looks of Broadway’s Biggest Stars**\
 `Broadway’s biggest names have started to arrive for the 79th Tony Awards. Here’s what they wore to walk the midnight blue carpet.`\
 https://www.nytimes.com/2026/06/07/style/tony-awards-2026-red-carpet-looks.html
@@ -177,16 +185,4 @@ https://www.nytimes.com/2026/06/07/us/knicks-pope-leo-villanova.html
 **Scott Pelley: Bari Weiss Put a ‘Thumb on the Scale’ for Trump**\
 `In an exclusive interview, Scott Pelley shared his views about Bari Weiss and why he believes she should leave her job as editor in chief at CBS News.`\
 https://www.nytimes.com/video/podcasts/100000010949240/scott-pelley-bari-weiss-60-minutes.html
-
-**Scott Pelley: CBS News ‘Is on Fire’**\
-`In an exclusive interview, Scott Pelley defended himself against accusations from President Trump and said there was “a subtle political bias” in the new management at “60 Minutes.”`\
-https://www.nytimes.com/video/podcasts/100000010949219/scott-pelley-cbs-trump.html
-
-**Trump Looms Over Pivotal Republican Senate Runoff in Georgia**\
-`The president has not yet endorsed Representative Mike Collins or Derek Dooley, a former football coach, in the race to challenge the Democratic senator, Jon Ossoff.`\
-https://www.nytimes.com/2026/06/07/us/politics/georgia-republican-senate-runoff-trump.html
-
-**Carter Brey, New York Philharmonic Cellist, Retires**\
-`Carter Brey, the New York Philharmonic’s principal cellist for the last 30 years, is retiring from the orchestra at the end of this season.`\
-https://www.nytimes.com/2026/06/07/arts/music/carter-brey-cellist-new-york-philharmonic.html
 

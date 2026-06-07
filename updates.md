@@ -1,3 +1,11 @@
+**Robert Coles, Pulitzer-Winning Child Psychiatrist, Is Dead at 97**\
+`His five-volume “Children of Crisis” series, published between 1967 and 1977, drew on his conversations with American children whose voices were not often heard.`\
+https://www.nytimes.com/2026/06/07/us/robert-coles-dead.html
+
+**NYT Crossword Answers for June 8, 2026**\
+`Tom McCoy’s crossword is more than standard fare.`\
+https://www.nytimes.com/2026/06/07/crosswords/daily-puzzle-2026-06-08.html
+
 **Tony Awards 2026 Red Carpet: See the Looks of Broadway’s Biggest Stars**\
 `Broadway’s biggest names have started to arrive for the 79th Tony Awards. Here’s what they wore to walk the midnight blue carpet.`\
 https://www.nytimes.com/2026/06/07/style/tony-awards-2026-red-carpet-looks.html
