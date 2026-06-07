@@ -1,3 +1,7 @@
+**Iran Fires Missiles at Israel for First Time Since April Cease-Fire**\
+`Israel had attacked the Lebanese capital, Beirut, earlier Sunday, prompting threats of Iranian retaliation.`\
+https://www.nytimes.com/2026/06/07/world/middleeast/iran-israel-missiles.html
+
 **For Trump, the World Is for the Taking**\
 `Trump has ushered in a new era of fuzzy foreign policy. In an era when powerful leaders are tempted to blur the lines of legal borders, the political scientists Stephen E. Hanson and Jeffrey S. Kopstein warn about the dangerous ramifications of their taking what they please.`\
 https://www.nytimes.com/video/opinion/100000010940107/for-trump-the-world-is-for-the-taking.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/07/style/zegna-malibu-mens-wear.html
 **June Squibb, the ‘Foulest Mouth on Broadway’, Is Up for a Tony at 96**\
 `At 96, June Squibb is one of the oldest acting nominees in the history of the Tony Awards. Back in the 1960s, she was known for an entirely different distinction.`\
 https://www.nytimes.com/2026/06/07/theater/june-squibb-tony-awards.html
-
-**Daughter of Mrs. Fields Starts Fields Good, a Healthy Cookie Brand**\
-`Ashley Fields is a co-founder of Fields Good cookies. One variety contains protein, and others claim to boost brain performance or aid sleep.`\
-https://www.nytimes.com/2026/06/07/business/mrs-fields-daughter-cookies.html
 

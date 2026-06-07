@@ -1,5 +1,5 @@
 **Iran Fires Missiles at Israel for First Time Since April Cease-Fire**\
-`Israel had attacked the Lebanese capital, Beirut, earlier Sunday, prompting threats of Iranian retaliation.`\
+`Israel had attacked the outskirts of the Lebanese capital, Beirut, earlier Sunday, prompting threats of Iranian retaliation.`\
 https://www.nytimes.com/2026/06/07/world/middleeast/iran-israel-missiles.html
 
 **For Trump, the World Is for the Taking**\
@@ -34,7 +34,7 @@ https://www.nytimes.com/es/2026/06/07/espanol/muere-alan-riding.html
 `A federal lawsuit said the event, set for June 14, was unlawfully planned and designed to benefit Mr. Trump and his allies.`\
 https://www.nytimes.com/2026/06/07/us/politics/lawsuit-ufc-fight-white-house.html
 
-**5 Takeaways From Scott Pelley’s Times Magazine Interview**\
+**5 Takeaways From Scott Pelley’s Interview With The New York Times**\
 `Mr. Pelley, who was at CBS News for 37 years, including as a White House correspondent and a “60 Minutes” correspondent, spoke in his first extended interview since he was fired.`\
 https://www.nytimes.com/2026/06/07/arts/television/scott-pelley-60-minutes-interview-takeaways.html
 
