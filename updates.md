@@ -1,3 +1,11 @@
+**OPEC Plus to Boost Oil Production as Ceasefire in Iran Remains Elusive**\
+`The cartel’s move to increase output by 188,000 barrels per day is largely symbolic, with vast amounts of the world’s oil stranded by the effective shutdown of the Strait of Hormuz.`\
+https://www.nytimes.com/2026/06/07/business/opec-oil-production-iran-war.html
+
+**Map: 5.2-Magnitude Earthquake Shakes Greece**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/07/world/quake-tracker-greece.html
+
 **Tangy and Bold Chile Tofu**\
 `Hetty Lui McKinnon’s new take on a popular Indo-Chinese stir-fry pairs the mild protein with a bold, punchy sauce.`\
 https://www.nytimes.com/2026/06/07/dining/tangy-and-bold-chile-tofu.html
