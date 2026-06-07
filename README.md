@@ -19,7 +19,7 @@ https://www.nytimes.com/2026/06/07/us/bourbon-philadelphia-stolen-cargo.html
 https://www.nytimes.com/live/2026/06/07/world/iran-israel-missiles
 
 **Iran Fires Missiles at Israel for First Time Since April Cease-Fire**\
-`Israel had struck the outskirts of the Lebanese capital, Beirut, earlier on Sunday, prompting threats of Iranian retaliation.`\
+`Israel had struck the outskirts of the Lebanese capital, Beirut, earlier on Sunday, prompting Iran to retaliate.`\
 https://www.nytimes.com/2026/06/07/world/middleeast/iran-israel-missiles.html
 
 **For Trump, the World Is for the Taking**\
