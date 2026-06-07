@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/06/06/arts/music/ye-concert-bully-tour-netherlands.html
 
 **Multiple People Shot Near Street Festival in Toledo, Ohio, Police Say**\
-`A City Council member said she was aware of at least eight victims. The police did not provide further details about the number of people shot or the extent of their injuries.`\
+`Two people appeared to have fired at each other near the Old West End Festival, striking bystanders, the police said. No fatalities have been reported so far.`\
 https://www.nytimes.com/2026/06/06/us/toledo-ohio-shooting-festival.html
 
 **Bernadette Chirac, Formidable Ex-First Lady of France, Dies at 93**\
@@ -27,7 +27,7 @@ https://www.nytimes.com/2026/06/06/us/ahead-of-world-cup-two-generations-of-hait
 https://www.nytimes.com/video/insider/100000010942319/how-our-theater-reporter-makes-his-tony-award-predictions.html
 
 **Kennedy Center Loses Case Against Musician Who Canceled Over Trump Naming Dispute**\
-`A federal judge sided with jazz performer Chuck Redd, who canceled a 2025 holiday concert after President Trump’s name was added to the building.`\
+`A judge sided with jazz performer Chuck Redd, who canceled a 2025 holiday concert after President Trump’s name was added to the building.`\
 https://www.nytimes.com/2026/06/06/us/politics/kennedy-center-lawsuit-tossed-trump-chuck-redd.html
 
 **Ukraine Strikes St. Petersburg in Long-Range Drone Attack**\
