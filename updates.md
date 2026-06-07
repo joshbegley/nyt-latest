@@ -1,3 +1,7 @@
+**Bruce Springsteen Opens His Music Center**\
+`Jon Bon Jovi, Public Enemy and others joined him to ring in the Bruce Springsteen Center for American Music, a $50 million archive and cultural hub.`\
+https://www.nytimes.com/2026/06/06/style/springsteen-opens-his-music-center-in-new-jersey.html
+
 **Multiple People Shot Near Street Festival in Toledo, Ohio, Police Say**\
 `Two people appeared to have fired at each other near the Old West End Festival, striking bystanders, the police said. No fatalities have been reported so far.`\
 https://www.nytimes.com/2026/06/06/us/toledo-ohio-shooting-festival.html
