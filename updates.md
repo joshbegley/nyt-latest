@@ -1,3 +1,7 @@
+**Between the Knicks and the Pope, Villanova Finds the Spotlight**\
+`Villanova University alumni have been grabbing headlines, both on the court and in the Vatican.`\
+https://www.nytimes.com/2026/06/07/us/knicks-pope-leo-villanova.html
+
 **My Life Lessons From M.M.A. Fighting**\
 `There are lessons in competitive fighting that I never expected to learn.`\
 https://www.nytimes.com/2026/06/07/opinion/fighting-competitive-men-masculinity.html
