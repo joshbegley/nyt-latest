@@ -1,3 +1,7 @@
+**El aeropuerto de CDMX se renovó para el Mundial. ¿Qué pasará después?**\
+`El aeropuerto, de casi 100 años de antigüedad, ha sido objeto de una veloz remodelación con valor de 500 millones de dólares. Los expertos dicen que no es suficiente.`\
+https://www.nytimes.com/es/2026/06/07/espanol/america-latina/aeropuerto-ciudad-mexico-mundial.html
+
 **OPEC Plus to Boost Oil Production as Ceasefire in Iran Remains Elusive**\
 `The cartel’s move to increase output by 188,000 barrels per day is largely symbolic, with vast amounts of the world’s oil stranded by the effective shutdown of the Strait of Hormuz.`\
 https://www.nytimes.com/2026/06/07/business/opec-oil-production-iran-war.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/07/nyregion/housing-costs-young-people-nyc.html
 **NYT Spelling Bee Answers for June 7, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/06/07/crosswords/spelling-bee-forum.html
-
-**Lo que Shannon Elizabeth piensa de haber sido la ‘chica sexy’ de los 2000**\
-`La actriz ayudó a definir éxitos de taquilla como “American Pie” y favoritos de culto como “Jay y el silencioso Bob”. Ahora, al entrar en un nuevo capítulo público, reflexiona sobre esa época.`\
-https://www.nytimes.com/es/2026/06/07/espanol/cultura/american-pie-shannon-elizabeth.html
 
