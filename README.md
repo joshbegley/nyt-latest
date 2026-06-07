@@ -1,3 +1,7 @@
+**Tribeca Festival Denounces Pair Who Joked on the Red Carpet About Rape**\
+`A clip of the actor Elon Gold with Lizzy Savetsky, a social media influencer, at the premiere of “The Wedding Entertainer” has been circulating online.`\
+https://www.nytimes.com/2026/06/07/world/middleeast/tribeca-film-festival-response-palestinian-joke.html
+
 **Iran Fires Missiles at Israel for First Time Since April Cease-Fire**\
 `Israel had struck the outskirts of the Lebanese capital, Beirut, earlier on Sunday, prompting threats of Iranian retaliation.`\
 https://www.nytimes.com/2026/06/07/world/middleeast/iran-israel-missiles.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/07/business/creep-boss-recruiter-unpaid-work.htm
 **Zegna Reimagines the Malibu Beach Bum**\
 `The Italian men’s wear label relocates its range of soft tailoring and nubby knits to coastal California.`\
 https://www.nytimes.com/2026/06/07/style/zegna-malibu-mens-wear.html
-
-**June Squibb, the ‘Foulest Mouth on Broadway’, Is Up for a Tony at 96**\
-`At 96, June Squibb is one of the oldest acting nominees in the history of the Tony Awards. Back in the 1960s, she was known for an entirely different distinction.`\
-https://www.nytimes.com/2026/06/07/theater/june-squibb-tony-awards.html
 
