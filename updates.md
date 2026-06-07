@@ -1,3 +1,7 @@
+**This Vanilla Sheet-Pan Cake Is Ready to Party**\
+`Easy to make, easy to transport and easy to love.`\
+https://www.nytimes.com/2026/06/07/dining/this-vanilla-sheet-pan-cake-is-ready-to-party.html
+
 **As Oil Prices Spike, Talk of ‘Demand Destruction’ Sets In**\
 `The decades-old term refers to the sustained loss of demand for a commodity, caused by high prices.`\
 https://www.nytimes.com/2026/06/07/business/demand-destruction-iran-war.html

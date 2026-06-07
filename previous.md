@@ -1,3 +1,7 @@
+**This Vanilla Sheet-Pan Cake Is Ready to Party**\
+`Easy to make, easy to transport and easy to love.`\
+https://www.nytimes.com/2026/06/07/dining/this-vanilla-sheet-pan-cake-is-ready-to-party.html
+
 **James Talarico Isn’t the Only One**\
 `It’s midterm season, and the Democrats are trying to win back Congress. Is running white Christian clergy members the answer?`\
 https://www.nytimes.com/2026/06/07/briefing/james-talarico-isnt-the-only-one.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/07/nyregion/delaney-hall-mikie-sherrill.html
 **‘He Took Something From His Bag and Dropped to One Knee’**\
 `A slow-motion street scene, a momentous selfie in Central Park and more reader tales of New York City in this week’s Metropolitan Diary.`\
 https://www.nytimes.com/2026/06/07/nyregion/metropolitan-diary.html
-
-**They Have Yet to Sign a Lease. But They’re Furious Over $3,100 Rents.**\
-`Climate change. Gun violence. War. Generations of young people have organized over issues they fear threaten the future. Will housing be the next cause?`\
-https://www.nytimes.com/2026/06/07/nyregion/housing-costs-young-people-nyc.html
 
