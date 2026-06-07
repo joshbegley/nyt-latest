@@ -1,3 +1,7 @@
+**Muere Alan Riding, corresponsal del Times en México y París, a los 82 años**\
+`Fue un observador cosmopolita y perspicaz de los conflictos de la región. Sus coberturas abarcaron la política y las insurgencias de Latinoamérica, así como bulevares de París y los salones de Lisboa.`\
+https://www.nytimes.com/es/2026/06/07/espanol/muere-alan-riding.html
+
 **Lawsuit Aims to Stop U.F.C. Fights at White House on Trump’s Birthday**\
 `A federal lawsuit said the event, set for June 14, was unlawfully planned and designed to benefit Mr. Trump and his allies.`\
 https://www.nytimes.com/2026/06/07/us/politics/lawsuit-ufc-fight-white-house.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/07/books/review/dave-eggers-contrapposto.html
 **How to Watch the 2026 Tony Awards**\
 `The ceremony, at Radio City Music Hall, will be broadcast on CBS starting at 8 p.m. Eastern, and livestreamed on Paramount+ for premium subscribers.`\
 https://www.nytimes.com/2026/06/07/theater/how-to-watch-tony-awards-2026-streaming.html
-
-**Taking Highways and Back Roads to America’s Founding**\
-`For the nation’s 250th anniversary, the Travel desk asked writers to retrace the steps of revolutionary figures, both in the United States and abroad.`\
-https://www.nytimes.com/2026/06/07/insider/new-york-times-travel-america-250.html
 
