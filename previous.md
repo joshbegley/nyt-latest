@@ -1,3 +1,7 @@
+**Scott Pelley on the Bari Weiss Era and His Last Days at CBS News**\
+`In his first sit-down interview since he was fired from CBS News, Scott Pelley tells Lulu Garcia-Navarro about his experiences at the network over the past weeks and months.`\
+https://www.nytimes.com/video/podcasts/100000010949056/scott-pelley-on-the-bari-weiss-era-and-his-last-days-at-cbs-news.html
+
 **Para Jennifer Lopez y Brett Goldstein, el romance lo es todo**\
 `La superestrella nacida en el Bronx y el comediante británico, que protagonizan juntos la comedia de Netflix “Turbulencia en la oficina”, tienen más cosas en común de lo que crees.`\
 https://www.nytimes.com/es/2026/06/07/espanol/cultura/para-jennifer-lopez-y-brett-goldstein-el-romance-lo-es-todo.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/06/opinion/happiness-trust-americans-states.html
 **Norma Jeane’s Still Got It!**\
 `Some continue to like it hot.`\
 https://www.nytimes.com/2026/06/06/opinion/marilyn-monroe-birthday.html
-
-**When Is It Wrong to Use A.I.?**\
-`How to criticize an inevitable disruption.`\
-https://www.nytimes.com/2026/06/06/opinion/ai-pope-leo-encyclical.html
 
