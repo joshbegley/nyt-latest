@@ -6,7 +6,7 @@ https://www.nytimes.com/es/2026/06/07/espanol/cultura/american-pie-shannon-eliza
 `Russia’s decline has given Turkey the freedom to pursue its interests, and Ukraine is the beneficiary.`\
 https://www.nytimes.com/2026/06/07/opinion/russia-turkey-putin-erdogan-ukraine.html
 
-**Washington Needs to Account for Its Bad Wars**\
+**Who Will Account for Another Foreign Policy Failure?**\
 `The American foreign policy class should shed its addiction to military force.`\
 https://www.nytimes.com/2026/06/07/opinion/iran-us-war-military-washington.html
 

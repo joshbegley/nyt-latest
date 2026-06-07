@@ -1,3 +1,7 @@
+**Who Will Account for Another Foreign Policy Failure?**\
+`The American foreign policy class should shed its addiction to military force.`\
+https://www.nytimes.com/2026/06/07/opinion/iran-us-war-military-washington.html
+
 **Lo que Shannon Elizabeth piensa de haber sido la ‘chica sexy’ de los 2000**\
 `La actriz ayudó a definir éxitos de taquilla como “American Pie” y favoritos de culto como “Jay y el silencioso Bob”. Ahora, al entrar en un nuevo capítulo público, reflexiona sobre esa época.`\
 https://www.nytimes.com/es/2026/06/07/espanol/cultura/american-pie-shannon-elizabeth.html
