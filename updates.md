@@ -1,3 +1,15 @@
+**NYT Connections Answers for June 8, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, June 8, 2026.`\
+https://www.nytimes.com/2026/06/07/crosswords/connections-companion-1093.html
+
+**NYT Strands Hints for June 8, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, June 8, 2026.`\
+https://www.nytimes.com/2026/06/07/crosswords/strands-sidekick-827.html
+
+**Today’s Wordle Hints for June 8, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, June 8, 2026.`\
+https://www.nytimes.com/2026/06/07/crosswords/wordle-review-1815.html
+
 **Scott Pelley on the Bari Weiss Era and His Last Days at ‘60 Minutes’**\
 `Lulu Garcia-Navarro sits down for an exclusive interview with the now-former CBS News correspondent.`\
 https://www.nytimes.com/2026/06/07/magazine/scott-pelley-interview.html
