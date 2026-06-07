@@ -1,3 +1,23 @@
+**Israel Bombs Beirut Outskirts as Fighting With Hezbollah Escalates**\
+`U.S. efforts for a truce in Lebanon appear to have stalled. Israel accused Hezbollah of firing at Israeli territory. Iran threatened to retaliate.`\
+https://www.nytimes.com/2026/06/07/world/middleeast/israel-beirut-attacks-hezbollah.html
+
+**How to Watch the 2026 Tony Awards**\
+`The ceremony, at Radio City Music Hall, will be broadcast on CBS starting at 8 p.m. Eastern, and livestreamed on Paramount+ for premium subscribers.`\
+https://www.nytimes.com/2026/06/07/theater/how-to-watch-tony-awards-2026-streaming.html
+
+**Taking Highways and Back Roads to America’s Founding**\
+`For the nation’s 250th anniversary, the Travel desk asked writers to retrace the steps of revolutionary figures, both in the United States and abroad.`\
+https://www.nytimes.com/2026/06/07/insider/new-york-times-travel-america-250.html
+
+**The Niche Designer Dressing the A-List in Scraps**\
+`‘It’ girls are lining up for Giovanna Flores scraps.`\
+https://www.nytimes.com/2026/06/07/style/giovanna-flores-indie-designer-flores-paper.html
+
+**Mexico City’s Airport Got a $500 Million Renovation for the 2026 World Cup. Was It Enough?**\
+`The nearly 100-year-old airport has undergone a rapid $500 million renovation. But experts say it’s not enough.`\
+https://www.nytimes.com/2026/06/07/world/americas/mexico-city-benito-juarez-airport-world-cup.html
+
 **‘Earth, Wind & Fire’ Review: Questlove’s Tribute to an Inspiration**\
 `In “To Be Celestial vs. That’s the Weight of the World,” he draws a compelling portrait of Maurice White, the band’s founder, and his enduring legacy.`\
 https://www.nytimes.com/2026/06/07/movies/earth-wind-fire-hbo-documentary.html

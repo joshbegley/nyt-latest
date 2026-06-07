@@ -1,19 +1,3 @@
-**‘Earth, Wind & Fire’ Review: Questlove’s Tribute to an Inspiration**\
-`In “To Be Celestial vs. That’s the Weight of the World,” he draws a compelling portrait of Maurice White, the band’s founder, and his enduring legacy.`\
-https://www.nytimes.com/2026/06/07/movies/earth-wind-fire-hbo-documentary.html
-
-**Muere Alan Riding, corresponsal del Times en México y París, a los 82 años**\
-`Fue un observador cosmopolita y perspicaz de los conflictos de la región. Sus coberturas abarcaron la política y las insurgencias de Latinoamérica, así como bulevares de París y los salones de Lisboa.`\
-https://www.nytimes.com/es/2026/06/07/espanol/muere-alan-riding.html
-
-**Lawsuit Aims to Stop U.F.C. Fights at White House on Trump’s Birthday**\
-`A federal lawsuit said the event, set for June 14, was unlawfully planned and designed to benefit Mr. Trump and his allies.`\
-https://www.nytimes.com/2026/06/07/us/politics/lawsuit-ufc-fight-white-house.html
-
-**5 Takeaways From Scott Pelley’s Times Magazine Interview**\
-`Mr. Pelley, who was at CBS News for 37 years, including as a White House correspondent and a “60 Minutes” correspondent, spoke in his first extended interview since he was fired.`\
-https://www.nytimes.com/2026/06/07/arts/television/scott-pelley-60-minutes-interview-takeaways.html
-
 **Search Continues for Gunmen Who Opened Fire at Ohio Festival**\
 `Two men fired weapons at each other during a festival in the historic Old West End neighborhood of Toledo, injuring at least a dozen people.`\
 https://www.nytimes.com/2026/06/07/us/ohio-festival-shooting-gunmen-search.html
@@ -35,7 +19,7 @@ https://www.nytimes.com/2026/06/07/world/middleeast/iranians-despair-war-economy
 https://www.nytimes.com/2026/06/07/world/europe/ukraine-europe-russia-us-peace-talks.html
 
 **Israel Bombs Beirut Outskirts as Fighting With Hezbollah Escalates**\
-`The Trump administration has pushed for a cease-fire, bringing Israeli and Lebanese officials together for talks in Washington. But so far, Hezbollah has rejected the truce.`\
+`U.S. efforts for a truce in Lebanon appear to have stalled. Israel accused Hezbollah of firing at Israeli territory. Iran threatened to retaliate.`\
 https://www.nytimes.com/2026/06/07/world/middleeast/israel-beirut-attacks-hezbollah.html
 
 **Trump Defends Compensation Fund and Iran War in ‘Meet the Press’ Interview**\
@@ -197,4 +181,20 @@ https://www.nytimes.com/2026/06/07/us/politics/ebola-vaccines-kennedy-health-dep
 **Book Review: ‘Contrapposto,’ by Dave Eggers**\
 `In this satisfyingly old-school novel, an artist tries to find his place, and hold onto his spark, in a world that values fads and flash.`\
 https://www.nytimes.com/2026/06/07/books/review/dave-eggers-contrapposto.html
+
+**How to Watch the 2026 Tony Awards**\
+`The ceremony, at Radio City Music Hall, will be broadcast on CBS starting at 8 p.m. Eastern, and livestreamed on Paramount+ for premium subscribers.`\
+https://www.nytimes.com/2026/06/07/theater/how-to-watch-tony-awards-2026-streaming.html
+
+**Taking Highways and Back Roads to America’s Founding**\
+`For the nation’s 250th anniversary, the Travel desk asked writers to retrace the steps of revolutionary figures, both in the United States and abroad.`\
+https://www.nytimes.com/2026/06/07/insider/new-york-times-travel-america-250.html
+
+**The Niche Designer Dressing the A-List in Scraps**\
+`‘It’ girls are lining up for Giovanna Flores scraps.`\
+https://www.nytimes.com/2026/06/07/style/giovanna-flores-indie-designer-flores-paper.html
+
+**Mexico City’s Airport Got a $500 Million Renovation for the 2026 World Cup. Was It Enough?**\
+`The nearly 100-year-old airport has undergone a rapid $500 million renovation. But experts say it’s not enough.`\
+https://www.nytimes.com/2026/06/07/world/americas/mexico-city-benito-juarez-airport-world-cup.html
 
