@@ -1,3 +1,7 @@
+**Trump Says He Never Promised No New Wars, Defends Compensation Fund**\
+`In a lengthy interview with NBC’s “Meet the Press,” the president again vowed that gas prices would go down when the war in Iran ends.`\
+https://www.nytimes.com/2026/06/07/us/politics/trump-new-wars-compensation-fund.html
+
 **This Vanilla Sheet-Pan Cake Is Ready to Party**\
 `Easy to make, easy to transport and easy to love.`\
 https://www.nytimes.com/2026/06/07/dining/this-vanilla-sheet-pan-cake-is-ready-to-party.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/06/07/espanol/cultura/para-jennifer-lopez-y-bret
 **A New Governor Faces Her First Crisis Amid Tear Gas and Tough Decisions**\
 `Gov. Mikie Sherrill dispatched the New Jersey State Police outside the Delaney Hall migrant detention center after federal officials said they would flood the area with armed agents. Not everyone approved.`\
 https://www.nytimes.com/2026/06/07/nyregion/delaney-hall-mikie-sherrill.html
-
-**‘He Took Something From His Bag and Dropped to One Knee’**\
-`A slow-motion street scene, a momentous selfie in Central Park and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://www.nytimes.com/2026/06/07/nyregion/metropolitan-diary.html
 
