@@ -1,3 +1,15 @@
+**Scott Pelley on the Bari Weiss Era and His Last Days at ‘60 Minutes’**\
+`Lulu Garcia-Navarro sits down for an exclusive interview with the now-former CBS News correspondent.`\
+https://www.nytimes.com/2026/06/07/magazine/scott-pelley-interview.html
+
+**Elecciones en Perú: la segunda vuelta explicada**\
+`Ante el aumento de la violencia, los votantes elegirán entre una izquierda recientemente moderada y una candidata de derecha que representa el divisivo legado de un autócrata.`\
+https://www.nytimes.com/es/2026/06/07/espanol/mundo/elecciones-peru-segunda-vuelta.html
+
+**Between the Knicks and the Pope, Villanova Finds the Spotlight**\
+`Villanova University and its alumni have been grabbing headlines, both on the court and in the Vatican.`\
+https://www.nytimes.com/2026/06/07/us/knicks-pope-leo-villanova.html
+
 **Scott Pelley: Bari Weiss Put a ‘Thumb on the Scale’ for Trump**\
 `In an exclusive interview, Scott Pelley shared his views about Bari Weiss and why he believes she should leave her job as editor in chief at CBS News.`\
 https://www.nytimes.com/video/podcasts/100000010949240/scott-pelley-bari-weiss-60-minutes.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/06/world/europe/bernadette-chirac-dead.html
 **Senators Warn of Intelligence Gaps if Surveillance Program Expires**\
 `Two senior Republicans urged the Trump administration to prepare for the possible expiration of a contentious intelligence-gathering authority.`\
 https://www.nytimes.com/2026/06/06/us/politics/cotton-grassley-surveillance-program.html
-
-**An Uncertain Win for Immigrants Seeking to Stay in U.S.**\
-`After a judge’s ruling, there was a sense of renewed hope that immigration applications that were put on hold would move forward. But how soon that would happen was unknown.`\
-https://www.nytimes.com/2026/06/06/us/an-uncertain-win-for-immigrants-seeking-to-stay-in-us.html
-
-**Ahead of World Cup, Two Generations of Haitian Players Unite**\
-`A player from Haiti’s 1974 World Cup team, the last to qualify for the tournament, met with the co-captain of this year’s squad in South Florida.`\
-https://www.nytimes.com/2026/06/06/us/ahead-of-world-cup-two-generations-of-haitian-players-unite.html
-
-**How Our Theater Reporter Makes His Tony Award Predictions**\
-`Michael Paulson, the theater reporter for The New York Times, has seen every production eligible for a Tony Award in the past decade. He explains the rigorous reporting process behind his predictions.`\
-https://www.nytimes.com/video/insider/100000010942319/how-our-theater-reporter-makes-his-tony-award-predictions.html
 
