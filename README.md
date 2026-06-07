@@ -1,3 +1,11 @@
+**Tangy and Bold Chile Tofu**\
+`Hetty Lui McKinnon’s new take on a popular Indo-Chinese stir-fry pairs the mild protein with a bold, punchy sauce.`\
+https://www.nytimes.com/2026/06/07/dining/tangy-and-bold-chile-tofu.html
+
+**The Postpartum Care That Mothers Need**\
+`Readers respond to an doctor’s essay about the health care system’s failures to meet the needs of postpartum mothers. Also: Hungary as a role model.`\
+https://www.nytimes.com/2026/06/07/opinion/mothers-postpartum-care.html
+
 **Hegseth Criticizes Europe Over Migration ‘Invasion’ in D-Day Speech**\
 `The remarks from Defense Secretary Pete Hegseth reflect many of the Trump administration’s previous assertions on immigrants in Europe, which overlap with the language of European far-right political parties.`\
 https://www.nytimes.com/2026/06/07/us/politics/hegseth-europe-migration-d-day.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/07/opinion/russia-turkey-putin-erdogan-ukraine.h
 **Who Will Account for Another Foreign Policy Failure?**\
 `The American foreign policy class should shed its addiction to military force.`\
 https://www.nytimes.com/2026/06/07/opinion/iran-us-war-military-washington.html
-
-**Member of Neo-Nazi Party Reaches Mayoral Runoff in German Town**\
-`Since the fall of the Third Reich, German voters have shunned mayoral candidates from neo-Nazi parties. That could change on Sunday in a small town in the country’s east.`\
-https://www.nytimes.com/2026/06/07/world/europe/germany-neo-nazi-mayor-election.html
-
-**Can the N.F.L. Win Fans in South Korea With Flag Football?**\
-`The inclusion of flag football in the next Olympic Games has spurred optimism about the prospects of American football in South Korea, where it has languished for decades.`\
-https://www.nytimes.com/2026/06/07/world/asia/south-korea-nfl-football-flag.html
 
