@@ -1,3 +1,11 @@
+**For Trump, the World Is for the Taking**\
+`Trump has ushered in a new era of fuzzy foreign policy. In an era when powerful leaders are tempted to blur the lines of legal borders, the political scientists Stephen E. Hanson and Jeffrey S. Kopstein warn about the dangerous ramifications of their taking what they please.`\
+https://www.nytimes.com/video/opinion/100000010940107/for-trump-the-world-is-for-the-taking.html
+
+**Democrats in Congress Grapple With Concerns Over Platner Allegations**\
+`Representative Ro Khanna said that he believed the account of a woman who accused Graham Platner of physically threatening behavior, and urged his campaign not to criticize her.`\
+https://www.nytimes.com/2026/06/07/us/politics/platner-democrats-congress-reaction.html
+
 **Bruce Springsteen Talks About His Place in American Music**\
 `As he opens an expansive cultural center not far from the Jersey Shore boardwalk, the singer describes himself as “a small link in a big chain.”`\
 https://www.nytimes.com/2026/06/07/style/bruce-springsteen-talks-about-his-place-in-american-music.html
