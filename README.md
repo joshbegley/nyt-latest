@@ -1,3 +1,15 @@
+**My Life Lessons From M.M.A. Fighting**\
+`There are lessons in competitive fighting that I never expected to learn.`\
+https://www.nytimes.com/2026/06/07/opinion/fighting-competitive-men-masculinity.html
+
+**You Can Walk to the World Cup in New Jersey. But Should You?**\
+`We decided to make the trek and find out.`\
+https://www.nytimes.com/2026/06/07/opinion/world-cup-new-york-new-jersey-transit-walk.html
+
+**The Tony Awards Nominees Are Not Dangerous This Year**\
+`The Tony Awards nominees are not dangerous this year.`\
+https://www.nytimes.com/2026/06/07/opinion/broadway-liberation-giant-balusters-plays.html
+
 **Gunman Kills at Least One in Attack on Central Israel**\
 `Israeli authorities described the shootings as a terrorist attack. Hamas, the Palestinian militant group, praised the assault, but did not claim responsibility.`\
 https://www.nytimes.com/2026/06/07/world/middleeast/israel-west-bank-shooting.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/07/arts/music/barry-manilow-cant-smile-duets.htm
 **Cómo retratan las series de esta temporada el trabajo sexual en internet**\
 `El trabajo sexual virtual no es nada nuevo en la televisión. Pero este año es más visible, e incluso central en series como ‘Euphoria’, ‘Margo tiene problemas de dinero’ y ‘Máximo placer garantizado’.`\
 https://www.nytimes.com/es/2026/06/07/espanol/cultura/euphoria-trabajo-sexual-internet.html
-
-**Quote of the Day: The Devil Who Mortifies Deadbeats in Venezuela**\
-`Quotation of the Day for Sunday, June 7.`\
-https://www.nytimes.com/2026/06/07/pageoneplus/quote-of-the-day-the-devil-who-mortifies-deadbeats-in-venezuela.html
-
-**Corrections: June 7, 2026**\
-`Corrections that appeared in print on Sunday, June 7, 2026.`\
-https://www.nytimes.com/2026/06/07/pageoneplus/corrections-june-7-2026.html
-
-**Bruce Springsteen Opens His Music Center**\
-`Jon Bon Jovi, Public Enemy and others joined him to ring in the Bruce Springsteen Center for American Music, a $50 million archive and cultural hub.`\
-https://www.nytimes.com/2026/06/06/style/springsteen-opens-his-music-center-in-new-jersey.html
 
