@@ -1,3 +1,7 @@
+**‘Earth, Wind & Fire’ Review: Questlove’s Tribute to an Inspiration**\
+`In “To Be Celestial vs. That’s the Weight of the World,” he draws a compelling portrait of Maurice White, the band’s founder, and his enduring legacy.`\
+https://www.nytimes.com/2026/06/07/movies/earth-wind-fire-hbo-documentary.html
+
 **Muere Alan Riding, corresponsal del Times en México y París, a los 82 años**\
 `Fue un observador cosmopolita y perspicaz de los conflictos de la región. Sus coberturas abarcaron la política y las insurgencias de Latinoamérica, así como bulevares de París y los salones de Lisboa.`\
 https://www.nytimes.com/es/2026/06/07/espanol/muere-alan-riding.html

@@ -1,3 +1,7 @@
+**‘Earth, Wind & Fire’ Review: Questlove’s Tribute to an Inspiration**\
+`In “To Be Celestial vs. That’s the Weight of the World,” he draws a compelling portrait of Maurice White, the band’s founder, and his enduring legacy.`\
+https://www.nytimes.com/2026/06/07/movies/earth-wind-fire-hbo-documentary.html
+
 **Muere Alan Riding, corresponsal del Times en México y París, a los 82 años**\
 `Fue un observador cosmopolita y perspicaz de los conflictos de la región. Sus coberturas abarcaron la política y las insurgencias de Latinoamérica, así como bulevares de París y los salones de Lisboa.`\
 https://www.nytimes.com/es/2026/06/07/espanol/muere-alan-riding.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/07/us/politics/ebola-vaccines-kennedy-health-dep
 **Book Review: ‘Contrapposto,’ by Dave Eggers**\
 `In this satisfyingly old-school novel, an artist tries to find his place, and hold onto his spark, in a world that values fads and flash.`\
 https://www.nytimes.com/2026/06/07/books/review/dave-eggers-contrapposto.html
-
-**How to Watch the 2026 Tony Awards**\
-`The ceremony, at Radio City Music Hall, will be broadcast on CBS starting at 8 p.m. Eastern, and livestreamed on Paramount+ for premium subscribers.`\
-https://www.nytimes.com/2026/06/07/theater/how-to-watch-tony-awards-2026-streaming.html
 
