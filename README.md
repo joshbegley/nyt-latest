@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/06/06/arts/music/ye-concert-bully-tour-netherlands.html
 
 **Multiple People Shot Near Street Festival in Toledo, Ohio, Police Say**\
-`The Toledo Police Department did not provide further details about the number of people shot or the extent of their injuries.`\
+`A City Council member said she was aware of at least eight victims. The police did not provide further details about the number of people shot or the extent of their injuries.`\
 https://www.nytimes.com/2026/06/06/us/toledo-ohio-shooting-festival.html
 
 **Bernadette Chirac, Formidable Ex-First Lady of France, Dies at 93**\
@@ -114,7 +114,7 @@ https://www.nytimes.com/2026/06/06/world/middleeast/israel-strike-lebanese-soldi
 `The Cockroach Janta Party started as a joke, but it quickly became a way for many Indians to express their frustration with the system.`\
 https://www.nytimes.com/2026/06/06/world/asia/india-protest-cockroach-janta-party.html
 
-**Sorry, I’m Not Available. Talk to the A.I. Me.**\
+**Sorry, I’m Not Available. Talk to the A.I. Version of Me.**\
 `The hot new productivity hack for C.E.O.s and Harvard professors? A.I. twins that answer questions and attend meetings.`\
 https://www.nytimes.com/2026/06/06/business/dealbook/ai-digital-twin.html
 
