@@ -1,3 +1,7 @@
+**Para Jennifer Lopez y Brett Goldstein, el romance lo es todo**\
+`La superestrella nacida en el Bronx y el comediante británico, que protagonizan juntos la comedia de Netflix “Turbulencia en la oficina”, tienen más cosas en común de lo que crees.`\
+https://www.nytimes.com/es/2026/06/07/espanol/cultura/para-jennifer-lopez-y-brett-goldstein-el-romance-lo-es-todo.html
+
 **A New Governor Faces Her First Crisis Amid Tear Gas and Tough Decisions**\
 `Gov. Mikie Sherrill dispatched the New Jersey State Police outside the Delaney Hall migrant detention center after federal officials said they would flood the area with armed agents. Not everyone approved.`\
 https://www.nytimes.com/2026/06/07/nyregion/delaney-hall-mikie-sherrill.html
