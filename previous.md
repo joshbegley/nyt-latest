@@ -22,8 +22,8 @@ https://www.nytimes.com/2026/06/07/style/tony-awards-2026-red-carpet-looks.html
 `A lower court last month found that the ads from the charity, known for its ear-worm jingle, had violated false-advertising laws.`\
 https://www.nytimes.com/2026/06/07/us/kars4kids-california-appeals-court.html
 
-**Tonys 2026 Live Updates: Stars Arrive on Red Carpet in Honor of Broadway’s Best**\
-`A sparse musical season included a radically reconceived version of “Cats” and a “Ragtime” revival. Pink will host a ceremony filled with nostalgic performances.`\
+**Tonys 2026 Live Updates: ‘Schmigadoon!’ Wins Key Preshow Award as Stars Arrive on Red Carpet**\
+`The first awards of the night are being handed out during a preshow ceremony, with the main event starting at 8 p.m. Eastern time. Pink will host a celebration filled with nostalgic performances.`\
 https://www.nytimes.com/live/2026/06/07/theater/tony-awards-2026
 
 **A Voice for Ukraine’s Soldiers**\
@@ -169,12 +169,4 @@ https://www.nytimes.com/2026/06/07/world/middleeast/israel-west-bank-shooting.ht
 **NYT Connections Answers for June 8, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, June 8, 2026.`\
 https://www.nytimes.com/2026/06/07/crosswords/connections-companion-1093.html
-
-**NYT Strands Hints for June 8, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, June 8, 2026.`\
-https://www.nytimes.com/2026/06/07/crosswords/strands-sidekick-827.html
-
-**Today’s Wordle Hints for June 8, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, June 8, 2026.`\
-https://www.nytimes.com/2026/06/07/crosswords/wordle-review-1815.html
 

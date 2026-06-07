@@ -1,3 +1,7 @@
+**Tonys 2026 Live Updates: ‘Schmigadoon!’ Wins Key Preshow Award as Stars Arrive on Red Carpet**\
+`The first awards of the night are being handed out during a preshow ceremony, with the main event starting at 8 p.m. Eastern time. Pink will host a celebration filled with nostalgic performances.`\
+https://www.nytimes.com/live/2026/06/07/theater/tony-awards-2026
+
 **Tony Award Winners 2026: The Updating List**\
 `The Tony Awards are underway at Radio City Music Hall in New York City.`\
 https://www.nytimes.com/2026/06/07/theater/tony-award-winners-2026-the-updating-list.html
