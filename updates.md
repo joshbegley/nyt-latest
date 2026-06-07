@@ -1,3 +1,27 @@
+**Member of Neo-Nazi Party Reaches Mayoral Runoff in German Town**\
+`Since the fall of the Third Reich, German voters have shunned mayoral candidates from neo-Nazi parties. That could change on Sunday in a small town in the country’s east.`\
+https://www.nytimes.com/2026/06/07/world/europe/germany-neo-nazi-mayor-election.html
+
+**Can the N.F.L. Win Fans in South Korea With Flag Football?**\
+`The inclusion of flag football in the next Olympic Games has spurred optimism about the prospects of American football in South Korea, where it has languished for decades.`\
+https://www.nytimes.com/2026/06/07/world/asia/south-korea-nfl-football-flag.html
+
+**Barry Manilow Can’t Smile Without Fans’ Help on This Song**\
+`The singer has bigger hits but “Can’t Smile Without You” has become a personal touchstone for fans who have helped him perform it live.`\
+https://www.nytimes.com/2026/06/07/arts/music/barry-manilow-cant-smile-duets.html
+
+**Cómo retratan las series de esta temporada el trabajo sexual en internet**\
+`El trabajo sexual virtual no es nada nuevo en la televisión. Pero este año es más visible, e incluso central en series como ‘Euphoria’, ‘Margo tiene problemas de dinero’ y ‘Máximo placer garantizado’.`\
+https://www.nytimes.com/es/2026/06/07/espanol/cultura/euphoria-trabajo-sexual-internet.html
+
+**Quote of the Day: The Devil Who Mortifies Deadbeats in Venezuela**\
+`Quotation of the Day for Sunday, June 7.`\
+https://www.nytimes.com/2026/06/07/pageoneplus/quote-of-the-day-the-devil-who-mortifies-deadbeats-in-venezuela.html
+
+**Corrections: June 7, 2026**\
+`Corrections that appeared in print on Sunday, June 7, 2026.`\
+https://www.nytimes.com/2026/06/07/pageoneplus/corrections-june-7-2026.html
+
 **Bruce Springsteen Opens His Music Center**\
 `Jon Bon Jovi, Public Enemy and others joined him to ring in the Bruce Springsteen Center for American Music, a $50 million archive and cultural hub.`\
 https://www.nytimes.com/2026/06/06/style/springsteen-opens-his-music-center-in-new-jersey.html
