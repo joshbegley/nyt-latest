@@ -1,3 +1,7 @@
+**Search Continues for Gunmen Who Opened Fire at Ohio Festival**\
+`Two men fired weapons at each other during a festival in the historic Old West End neighborhood of Toledo, injuring at least a dozen people.`\
+https://www.nytimes.com/2026/06/07/us/ohio-festival-shooting-gunmen-search.html
+
 **Sheinbaum ya no puede postergar el ajuste de cuentas**\
 `La presidenta de México podría convertir las exigencias de Washington en una oportunidad para hacer una limpieza interna dentro de su partido y más allá.`\
 https://www.nytimes.com/es/2026/06/07/espanol/opinion/sheinbaum-mexico-carteles-corrupcion.html

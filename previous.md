@@ -1,3 +1,7 @@
+**Search Continues for Gunmen Who Opened Fire at Ohio Festival**\
+`Two men fired weapons at each other during a festival in the historic Old West End neighborhood of Toledo, injuring at least a dozen people.`\
+https://www.nytimes.com/2026/06/07/us/ohio-festival-shooting-gunmen-search.html
+
 **Sheinbaum ya no puede postergar el ajuste de cuentas**\
 `La presidenta de México podría convertir las exigencias de Washington en una oportunidad para hacer una limpieza interna dentro de su partido y más allá.`\
 https://www.nytimes.com/es/2026/06/07/espanol/opinion/sheinbaum-mexico-carteles-corrupcion.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/07/style/giovanna-flores-indie-designer-flores-p
 **Mexico City’s Airport Got a $500 Million Renovation for the 2026 World Cup. Was It Enough?**\
 `The nearly 100-year-old airport has undergone a rapid $500 million renovation. But experts say it’s not enough.`\
 https://www.nytimes.com/2026/06/07/world/americas/mexico-city-benito-juarez-airport-world-cup.html
-
-**For Disabled Travelers in Search of Adventure, Adrenaline-Fueled Options Are Growing**\
-`For disabled travelers in search of adventure, there are a growing number of adrenaline-fueled options. In Oregon, one wheelchair user went tree-climbing.`\
-https://www.nytimes.com/2026/06/07/travel/accessible-tree-climbing-oregon.html
 
