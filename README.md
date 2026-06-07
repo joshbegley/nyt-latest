@@ -1,3 +1,11 @@
+**Lawsuit Aims to Stop U.F.C. Fights at White House on Trump’s Birthday**\
+`A federal lawsuit said the event, set for June 14, was unlawfully planned and designed to benefit Mr. Trump and his allies.`\
+https://www.nytimes.com/2026/06/07/us/politics/lawsuit-ufc-fight-white-house.html
+
+**5 Takeaways From Scott Pelley’s Times Magazine Interview**\
+`Mr. Pelley, who was at CBS News for 37 years, including as a White House correspondent and a “60 Minutes” correspondent, spoke in his first extended interview since he was fired.`\
+https://www.nytimes.com/2026/06/07/arts/television/scott-pelley-60-minutes-interview-takeaways.html
+
 **Search Continues for Gunmen Who Opened Fire at Ohio Festival**\
 `Two men fired weapons at each other during a festival in the historic Old West End neighborhood of Toledo, injuring at least a dozen people.`\
 https://www.nytimes.com/2026/06/07/us/ohio-festival-shooting-gunmen-search.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/07/theater/how-to-watch-tony-awards-2026-streami
 **Taking Highways and Back Roads to America’s Founding**\
 `For the nation’s 250th anniversary, the Travel desk asked writers to retrace the steps of revolutionary figures, both in the United States and abroad.`\
 https://www.nytimes.com/2026/06/07/insider/new-york-times-travel-america-250.html
-
-**The Niche Designer Dressing the A-List in Scraps**\
-`‘It’ girls are lining up for Giovanna Flores scraps.`\
-https://www.nytimes.com/2026/06/07/style/giovanna-flores-indie-designer-flores-paper.html
-
-**Mexico City’s Airport Got a $500 Million Renovation for the 2026 World Cup. Was It Enough?**\
-`The nearly 100-year-old airport has undergone a rapid $500 million renovation. But experts say it’s not enough.`\
-https://www.nytimes.com/2026/06/07/world/americas/mexico-city-benito-juarez-airport-world-cup.html
 
