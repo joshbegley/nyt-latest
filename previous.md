@@ -1,3 +1,7 @@
+**Tonys 2026 Live Updates: Stars Arrive on Red Carpet in Honor of Broadway’s Best**\
+`A sparse musical season included a radically reconceived version of “Cats” and a “Ragtime” revival. Pink will host a ceremony filled with nostalgic performances.`\
+https://www.nytimes.com/live/2026/06/07/theater/tony-awards-2026
+
 **A Voice for Ukraine’s Soldiers**\
 `Meet the rights defender charged with protecting the country’s fighters — not from Russia, but from abuses by their own commanders.`\
 https://www.nytimes.com/2026/06/07/world/08int-theworld-ukraine-iran-israel-world-cup.html
@@ -185,16 +189,4 @@ https://www.nytimes.com/2026/06/07/world/americas/peru-presidential-election-run
 **Trump Says Iran Has Made a ‘Big’ Nuclear Promise. It Isn’t New.**\
 `President Trump’s boasts of securing a commitment from Iranian leaders not to develop a nuclear weapon have puzzled nuclear experts who note that Tehran has made that pledge for more than 50 years.`\
 https://www.nytimes.com/2026/06/07/us/politics/trump-iran-nuclear-promise.html
-
-**How People Working in Debt Collection Handle Abuse From Callers**\
-`More Americans are taking on debt and falling behind on bills. The people calling them to collect often endure a torrent of verbal abuse and threats of violence.`\
-https://www.nytimes.com/2026/06/07/business/debt-collectors-jobs-abuse.html
-
-**‘Scary Movie’ and the Art of the Pop Culture Gag**\
-`From “Saw” traps with Dr. Phil to TikTok-era tropes, we catalog the gags, goofs and groan-worthy bits from the “Scary Movie” universe.`\
-https://www.nytimes.com/2026/06/07/movies/scary-movie-and-the-art-of-the-pop-culture-gag.html
-
-**South Carolina Governor’s Race Tests the Strength of a Trump Endorsement**\
-`The Republican candidates for South Carolina governor went to extraordinary lengths for the president’s support. But his choice of Lt. Gov. Pamela Evette has not quite sealed the deal among voters.`\
-https://www.nytimes.com/2026/06/07/us/south-carolina-governor-trump-evette.html
 

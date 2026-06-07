@@ -1,3 +1,7 @@
+**Tonys 2026 Live Updates: Stars Arrive on Red Carpet in Honor of Broadway’s Best**\
+`A sparse musical season included a radically reconceived version of “Cats” and a “Ragtime” revival. Pink will host a ceremony filled with nostalgic performances.`\
+https://www.nytimes.com/live/2026/06/07/theater/tony-awards-2026
+
 **A Voice for Ukraine’s Soldiers**\
 `Meet the rights defender charged with protecting the country’s fighters — not from Russia, but from abuses by their own commanders.`\
 https://www.nytimes.com/2026/06/07/world/08int-theworld-ukraine-iran-israel-world-cup.html
