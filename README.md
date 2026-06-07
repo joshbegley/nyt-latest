@@ -1,4 +1,12 @@
-**Trump Says He Never Promised No New Wars, Defends Compensation Fund**\
+**Ukraine Turns to Europe as U.S. Steps Back as Mediator in Peace Talks**\
+`President Volodymyr Zelensky traveled to London to meet with the leaders of Britain, Germany and France, whom he said could be negotiators in talks with Russia.`\
+https://www.nytimes.com/2026/06/07/world/europe/ukraine-europe-russia-us-peace-talks.html
+
+**Israel Bombs Beirut Outskirts as Fighting With Hezbollah Escalates**\
+`The Trump administration has pushed for a cease-fire, bringing Israeli and Lebanese officials together for talks in Washington. But so far, Hezbollah has rejected the truce.`\
+https://www.nytimes.com/2026/06/07/world/middleeast/israel-beirut-attacks-hezbollah.html
+
+**Trump Defends Compensation Fund and Iran War in ‘Meet the Press’ Interview**\
 `In a lengthy interview with NBC’s “Meet the Press,” the president again vowed that gas prices would go down when the war in Iran ends.`\
 https://www.nytimes.com/2026/06/07/us/politics/trump-new-wars-compensation-fund.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/07/arts/world-cup-united-states-soccer-pele-beck
 **Scott Pelley on the Bari Weiss Era and His Last Days at CBS News**\
 `In his first sit-down interview since he was fired from CBS News, Scott Pelley tells Lulu Garcia-Navarro about his experiences at the network over the past weeks and months.`\
 https://www.nytimes.com/video/podcasts/100000010949056/scott-pelley-on-the-bari-weiss-era-and-his-last-days-at-cbs-news.html
-
-**Para Jennifer Lopez y Brett Goldstein, el romance lo es todo**\
-`La superestrella nacida en el Bronx y el comediante británico, que protagonizan juntos la comedia de Netflix “Turbulencia en la oficina”, tienen más cosas en común de lo que crees.`\
-https://www.nytimes.com/es/2026/06/07/espanol/cultura/para-jennifer-lopez-y-brett-goldstein-el-romance-lo-es-todo.html
-
-**A New Governor Faces Her First Crisis Amid Tear Gas and Tough Decisions**\
-`Gov. Mikie Sherrill dispatched the New Jersey State Police outside the Delaney Hall migrant detention center after federal officials said they would flood the area with armed agents. Not everyone approved.`\
-https://www.nytimes.com/2026/06/07/nyregion/delaney-hall-mikie-sherrill.html
 

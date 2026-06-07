@@ -1,3 +1,7 @@
+**Trump Says He Never Promised No New Wars, Defends Compensation Fund**\
+`In a lengthy interview with NBC’s “Meet the Press,” the president again vowed that gas prices would go down when the war in Iran ends.`\
+https://www.nytimes.com/2026/06/07/us/politics/trump-new-wars-compensation-fund.html
+
 **This Vanilla Sheet-Pan Cake Is Ready to Party**\
 `Easy to make, easy to transport and easy to love.`\
 https://www.nytimes.com/2026/06/07/dining/this-vanilla-sheet-pan-cake-is-ready-to-party.html
