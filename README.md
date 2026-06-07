@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/06/06/arts/music/ye-concert-bully-tour-netherlands.html
 
 **Multiple People Shot Near Street Festival in Toledo, Ohio, Police Say**\
-`A City Council member said she was aware of at least eight victims. The police did not provide further details about the number of people shot or the extent of their injuries.`\
+`Two people appeared to have fired at each other near the Old West End Festival, striking bystanders, the police said. No fatalities have been reported so far.`\
 https://www.nytimes.com/2026/06/06/us/toledo-ohio-shooting-festival.html
 
 **Bernadette Chirac, Formidable Ex-First Lady of France, Dies at 93**\
