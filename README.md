@@ -178,7 +178,3 @@ https://www.nytimes.com/2026/06/07/crosswords/strands-sidekick-827.html
 `Scroll down for hints and conversation about the puzzle for Monday, June 8, 2026.`\
 https://www.nytimes.com/2026/06/07/crosswords/wordle-review-1815.html
 
-**Scott Pelley on the Bari Weiss Era and His Last Days at ‘60 Minutes’**\
-`Lulu Garcia-Navarro sits down for an exclusive interview with the now-former CBS News correspondent.`\
-https://www.nytimes.com/2026/06/07/magazine/scott-pelley-interview.html
-

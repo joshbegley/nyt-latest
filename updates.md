@@ -1,4 +1,8 @@
 **Tony Award Winners 2026: The Updating List**\
+`The Tony Awards are underway at Radio City Music Hall in New York City.`\
+https://www.nytimes.com/2026/06/07/theater/tony-award-winners-2026-the-updating-list.html
+
+**Tony Award Winners 2026: The Updating List**\
 `The Tony Awards will be held at Radio City Music Hall in New York City.`\
 https://www.nytimes.com/2026/06/07/theater/tony-award-winners-2026-the-updating-list.html
 
