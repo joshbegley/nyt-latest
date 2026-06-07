@@ -1,3 +1,7 @@
+**Our Favorite Photos From the Tony Awards Red Carpet**\
+`As Broadway’s brightest arrive for the industry’s biggest night, here’s an up-close look at what you can’t see on TV.`\
+https://www.nytimes.com/2026/06/07/theater/our-favorite-photos-from-the-tony-awards-red-carpet.html
+
 **Robert Coles, Pulitzer-Winning Child Psychiatrist, Is Dead at 97**\
 `His five-volume “Children of Crisis” series, published between 1967 and 1977, drew on his conversations with American children whose voices were not often heard.`\
 https://www.nytimes.com/2026/06/07/us/robert-coles-dead.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/es/2026/06/07/espanol/mundo/elecciones-peru-segunda-vuel
 **Between the Knicks and the Pope, Villanova Finds the Spotlight**\
 `Villanova University alumni have been grabbing headlines, both on the court and in the Vatican.`\
 https://www.nytimes.com/2026/06/07/us/knicks-pope-leo-villanova.html
-
-**Scott Pelley: Bari Weiss Put a ‘Thumb on the Scale’ for Trump**\
-`In an exclusive interview, Scott Pelley shared his views about Bari Weiss and why he believes she should leave her job as editor in chief at CBS News.`\
-https://www.nytimes.com/video/podcasts/100000010949240/scott-pelley-bari-weiss-60-minutes.html
 

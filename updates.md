@@ -1,3 +1,7 @@
+**Our Favorite Photos From the Tony Awards Red Carpet**\
+`As Broadway’s brightest arrive for the industry’s biggest night, here’s an up-close look at what you can’t see on TV.`\
+https://www.nytimes.com/2026/06/07/theater/our-favorite-photos-from-the-tony-awards-red-carpet.html
+
 **Robert Coles, Pulitzer-Winning Child Psychiatrist, Is Dead at 97**\
 `His five-volume “Children of Crisis” series, published between 1967 and 1977, drew on his conversations with American children whose voices were not often heard.`\
 https://www.nytimes.com/2026/06/07/us/robert-coles-dead.html
