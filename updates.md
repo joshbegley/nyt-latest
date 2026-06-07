@@ -1,3 +1,15 @@
+**Sheinbaum ya no puede postergar el ajuste de cuentas**\
+`La presidenta de México podría convertir las exigencias de Washington en una oportunidad para hacer una limpieza interna dentro de su partido y más allá.`\
+https://www.nytimes.com/es/2026/06/07/espanol/opinion/sheinbaum-mexico-carteles-corrupcion.html
+
+**Map: 3.6-Magnitude Earthquake Shakes the San Francisco Bay Area**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/07/us/quake-tracker-san-francisco-bay-area.html
+
+**Iranians Sink Into Despair Facing War Deaths and Skyrocketing Inflation**\
+`An imploding economy is causing hopelessness among both pro- and anti-government Iranians. And for those who wished for regime change, the letdown is palpable.`\
+https://www.nytimes.com/2026/06/07/world/middleeast/iranians-despair-war-economy-inflation.html
+
 **Ukraine Turns to Europe as U.S. Steps Back as Mediator in Peace Talks**\
 `President Volodymyr Zelensky traveled to London to meet with the leaders of Britain, Germany and France, whom he said could be negotiators in talks with Russia.`\
 https://www.nytimes.com/2026/06/07/world/europe/ukraine-europe-russia-us-peace-talks.html

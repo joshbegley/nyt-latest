@@ -1,3 +1,15 @@
+**Sheinbaum ya no puede postergar el ajuste de cuentas**\
+`La presidenta de México podría convertir las exigencias de Washington en una oportunidad para hacer una limpieza interna dentro de su partido y más allá.`\
+https://www.nytimes.com/es/2026/06/07/espanol/opinion/sheinbaum-mexico-carteles-corrupcion.html
+
+**Map: 3.6-Magnitude Earthquake Shakes the San Francisco Bay Area**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/07/us/quake-tracker-san-francisco-bay-area.html
+
+**Iranians Sink Into Despair Facing War Deaths and Skyrocketing Inflation**\
+`An imploding economy is causing hopelessness among both pro- and anti-government Iranians. And for those who wished for regime change, the letdown is palpable.`\
+https://www.nytimes.com/2026/06/07/world/middleeast/iranians-despair-war-economy-inflation.html
+
 **Ukraine Turns to Europe as U.S. Steps Back as Mediator in Peace Talks**\
 `President Volodymyr Zelensky traveled to London to meet with the leaders of Britain, Germany and France, whom he said could be negotiators in talks with Russia.`\
 https://www.nytimes.com/2026/06/07/world/europe/ukraine-europe-russia-us-peace-talks.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/07/world/americas/mexico-city-benito-juarez-airp
 **For Disabled Travelers in Search of Adventure, Adrenaline-Fueled Options Are Growing**\
 `For disabled travelers in search of adventure, there are a growing number of adrenaline-fueled options. In Oregon, one wheelchair user went tree-climbing.`\
 https://www.nytimes.com/2026/06/07/travel/accessible-tree-climbing-oregon.html
-
-**Christine Hunsicker, CaaStle CEO, Confessed to Fraud. The Board Let Her Stay in Charge.**\
-`The final months of the fashion tech start-up CaaStle included fake audits, stock buybacks and a damage control strategy led by the chief executive who defrauded it.`\
-https://www.nytimes.com/2026/06/07/business/caastle-fraud-christine-hunsicker.html
-
-**Americans Love Soccer Stars Who Aren’t Made in America**\
-`The United States has gone wild over foreign-born players on several occasions. Now the largest World Cup ever is arriving.`\
-https://www.nytimes.com/2026/06/07/arts/world-cup-united-states-soccer-pele-beckham-messi.html
-
-**Scott Pelley on the Bari Weiss Era and His Last Days at CBS News**\
-`In his first sit-down interview since he was fired from CBS News, Scott Pelley tells Lulu Garcia-Navarro about his experiences at the network over the past weeks and months.`\
-https://www.nytimes.com/video/podcasts/100000010949056/scott-pelley-on-the-bari-weiss-era-and-his-last-days-at-cbs-news.html
 
