@@ -1,3 +1,7 @@
+**A Voice for Ukraine’s Soldiers**\
+`Meet the rights defender charged with protecting the country’s fighters — not from Russia, but from abuses by their own commanders.`\
+https://www.nytimes.com/2026/06/07/world/08int-theworld-ukraine-iran-israel-world-cup.html
+
 **Arab Israeli Opens Fire, Killing 1 and Injuring at Least 5**\
 `The gunman drove around several locations in central Israel on Sunday, shooting from his car. He killed one man and injured at least five in what authorities called a terrorist attack.`\
 https://www.nytimes.com/video/world/europe/100000010949901/arab-israeli-opens-fire-killing-1-and-injuring-at-least-5.html
@@ -15,7 +19,7 @@ https://www.nytimes.com/2026/06/07/us/bourbon-philadelphia-stolen-cargo.html
 https://www.nytimes.com/live/2026/06/07/world/iran-israel-missiles
 
 **Iran Fires Missiles at Israel for First Time Since April Cease-Fire**\
-`Israel had struck the outskirts of the Lebanese capital, Beirut, earlier on Sunday, prompting threats of Iranian retaliation.`\
+`Israel had struck the outskirts of the Lebanese capital, Beirut, earlier on Sunday, prompting Iran to retaliate.`\
 https://www.nytimes.com/2026/06/07/world/middleeast/iran-israel-missiles.html
 
 **For Trump, the World Is for the Taking**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/07/movies/scary-movie-and-the-art-of-the-pop-cul
 **South Carolina Governor’s Race Tests the Strength of a Trump Endorsement**\
 `The Republican candidates for South Carolina governor went to extraordinary lengths for the president’s support. But his choice of Lt. Gov. Pamela Evette has not quite sealed the deal among voters.`\
 https://www.nytimes.com/2026/06/07/us/south-carolina-governor-trump-evette.html
-
-**Seattle’s Incredibly Loud Street Preachers Eagerly Await the World Cup**\
-`Long the bane of Mariners and Seahawks fans, evangelical ministers with large speakers are preparing for the “incredible opportunity” of screaming the word of God at 750,000 soccer fans.`\
-https://www.nytimes.com/2026/06/07/us/seattle-street-preachers-world-cup.html
 

@@ -1,3 +1,11 @@
+**A Voice for Ukraine’s Soldiers**\
+`Meet the rights defender charged with protecting the country’s fighters — not from Russia, but from abuses by their own commanders.`\
+https://www.nytimes.com/2026/06/07/world/08int-theworld-ukraine-iran-israel-world-cup.html
+
+**Iran Fires Missiles at Israel for First Time Since April Cease-Fire**\
+`Israel had struck the outskirts of the Lebanese capital, Beirut, earlier on Sunday, prompting Iran to retaliate.`\
+https://www.nytimes.com/2026/06/07/world/middleeast/iran-israel-missiles.html
+
 **Live Updates: Iran Fires Missiles at Israel for First Time Since April Cease-Fire**\
 `Israel had attacked the outskirts of the Lebanese capital, Beirut, earlier Sunday, prompting Iran to retaliate. There were no immediate reports of casualties from the missile attack.`\
 https://www.nytimes.com/live/2026/06/07/world/iran-israel-missiles
