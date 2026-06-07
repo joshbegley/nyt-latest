@@ -1,3 +1,7 @@
+**Live Updates: Iran Fires Missiles at Israel for First Time Since April Cease-Fire**\
+`Israel had attacked the outskirts of the Lebanese capital, Beirut, earlier Sunday, prompting Iran to retaliate. There were no immediate reports of casualties from the missile attack.`\
+https://www.nytimes.com/live/2026/06/07/world/iran-israel-missiles
+
 **Arab Israeli Opens Fire, Killing 1 and Injuring at Least 5**\
 `The gunman drove around several locations in central Israel on Sunday, shooting from his car. He killed one man and injured at least five in what authorities called a terrorist attack.`\
 https://www.nytimes.com/video/world/europe/100000010949901/arab-israeli-opens-fire-killing-1-and-injuring-at-least-5.html

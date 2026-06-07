@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/06/07/world/middleeast/tribeca-film-festival-respon
 https://www.nytimes.com/2026/06/07/us/bourbon-philadelphia-stolen-cargo.html
 
 **Live Updates: Iran Fires Missiles at Israel for First Time Since April Cease-Fire**\
-`Israel had attacked the outskirts of the Lebanese capital, Beirut, earlier Sunday, prompting threats of Iranian retaliation. There were no immediate reports of casualties.`\
+`Israel had attacked the outskirts of the Lebanese capital, Beirut, earlier Sunday, prompting Iran to retaliate. There were no immediate reports of casualties from the missile attack.`\
 https://www.nytimes.com/live/2026/06/07/world/iran-israel-missiles
 
 **Iran Fires Missiles at Israel for First Time Since April Cease-Fire**\
