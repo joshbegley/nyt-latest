@@ -138,8 +138,8 @@ https://www.nytimes.com/2026/06/07/business/07biz-demand-destruction-iran-war.ht
 `The wedding industry is seeing an emerging ecosystem of services for grooms, from day-of hair and makeup to concierges and even therapists.`\
 https://www.nytimes.com/2026/06/07/style/groom-hair-makeup-concierge-therapy-glam-squad.html
 
-**Why We Still Need Steven Spielberg**\
-`Hollywood is struggling, but Spielberg insists that the big screen is still the best place to work out our collective dreams, fears, joys and sorrows.`\
+**What Steven Spielberg Taught Me About Fear, Catharsis, and Being Human**\
+`Hollywood is struggling, but Spielberg insists that the big screen is still the best place to work out our collective dreams, joys and sorrows.`\
 https://www.nytimes.com/2026/06/07/magazine/steven-spielberg-movie-theater-disclosure-day.html
 
 **RFK Jr. Appears Disengaged on Many Health Department Matters Beyond Vaccines**\

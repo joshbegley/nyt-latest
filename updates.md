@@ -1,3 +1,11 @@
+**James Talarico Isn’t the Only One**\
+`It’s midterm season, and the Democrats are trying to win back Congress. Is running white Christian clergy members the answer?`\
+https://www.nytimes.com/2026/06/07/briefing/james-talarico-isnt-the-only-one.html
+
+**Arab Gunman Kills One in Attack on Central Israel**\
+`The assailant, an Arab citizen of Israel, was killed. Hamas, the Palestinian militant group, praised the shooting, but it did not claim responsibility.`\
+https://www.nytimes.com/2026/06/07/world/middleeast/israel-west-bank-shooting.html
+
 **El aeropuerto de CDMX se renovó para el Mundial. ¿Qué pasará después?**\
 `El aeropuerto, de casi 100 años de antigüedad, ha sido objeto de una veloz remodelación con valor de 500 millones de dólares. Los expertos dicen que no es suficiente.`\
 https://www.nytimes.com/es/2026/06/07/espanol/america-latina/aeropuerto-ciudad-mexico-mundial.html
