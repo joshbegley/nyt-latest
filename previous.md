@@ -1,3 +1,19 @@
+**A New Governor Faces Her First Crisis Amid Tear Gas and Tough Decisions**\
+`Gov. Mikie Sherrill dispatched the New Jersey State Police outside the Delaney Hall migrant detention center after federal officials said they would flood the area with armed agents. Not everyone approved.`\
+https://www.nytimes.com/2026/06/07/nyregion/delaney-hall-mikie-sherrill.html
+
+**‘He Took Something From His Bag and Dropped to One Knee’**\
+`A slow-motion street scene, a momentous selfie in Central Park and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://www.nytimes.com/2026/06/07/nyregion/metropolitan-diary.html
+
+**They Have Yet to Sign a Lease. But They’re Furious Over $3,100 Rents.**\
+`Climate change. Gun violence. War. Generations of young people have organized over issues they fear threaten the future. Will housing be the next cause?`\
+https://www.nytimes.com/2026/06/07/nyregion/housing-costs-young-people-nyc.html
+
+**NYT Spelling Bee Answers for June 7, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/07/crosswords/spelling-bee-forum.html
+
 **Lo que Shannon Elizabeth piensa de haber sido la ‘chica sexy’ de los 2000**\
 `La actriz ayudó a definir éxitos de taquilla como “American Pie” y favoritos de culto como “Jay y el silencioso Bob”. Ahora, al entrar en un nuevo capítulo público, reflexiona sobre esa época.`\
 https://www.nytimes.com/es/2026/06/07/espanol/cultura/american-pie-shannon-elizabeth.html
@@ -42,7 +58,7 @@ https://www.nytimes.com/2026/06/06/style/springsteen-opens-his-music-center-in-n
 `Nearly 40,000 fans came out to hear the rapper formerly known as Kanye West in the Netherlands on Saturday, even as other European countries had canceled his concerts.`\
 https://www.nytimes.com/2026/06/06/arts/music/ye-concert-bully-tour-netherlands.html
 
-**Multiple People Shot Near Street Festival in Toledo, Ohio, Police Say**\
+**At Least 12 People Shot Near Street Festival in Toledo, Ohio, Police Say**\
 `Two people appeared to have fired at each other near the Old West End Festival, striking bystanders, the police said. No fatalities have been reported so far.`\
 https://www.nytimes.com/2026/06/06/us/toledo-ohio-shooting-festival.html
 
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/06/06/opinion/ai-pope-leo-encyclical.html
 **Behind Every Dad Bod Is a Healthy Dad Brain**\
 `The benefits of fatherhood are deep and long lasting.`\
 https://www.nytimes.com/2026/06/06/opinion/dad-brain-health-fatherhood.html
-
-**Who Should Get an A at Harvard?**\
-`Readers respond to a guest essay about the university’s new 20 percent cap on A grades.`\
-https://www.nytimes.com/2026/06/06/opinion/harvard-grades.html
-
-**Graham Platner and the Rise of the ‘Dirtbag’ Democrat**\
-`And what the Maine candidate reveals about politics today.`\
-https://www.nytimes.com/video/opinion/100000010943230/graham-platner-and-the-rise-of-the-dirtbag-democrat.html
-
-**Balancing Act**\
-`The tension between sticking to what we know and seeking out new experiences is one of comfort versus novelty. How can we have both?`\
-https://www.nytimes.com/2026/06/06/briefing/balancing-act.html
-
-**My (Sort of) Ex Has Cancer. Is It Fair That She Expects Me to Take Care of Her?**\
-`Part of me recognizes that walking away is loathsome and something most people would judge harshly.`\
-https://www.nytimes.com/2026/06/06/magazine/ex-cancer-care-ethics.html
 

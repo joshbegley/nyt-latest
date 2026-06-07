@@ -1,3 +1,23 @@
+**A New Governor Faces Her First Crisis Amid Tear Gas and Tough Decisions**\
+`Gov. Mikie Sherrill dispatched the New Jersey State Police outside the Delaney Hall migrant detention center after federal officials said they would flood the area with armed agents. Not everyone approved.`\
+https://www.nytimes.com/2026/06/07/nyregion/delaney-hall-mikie-sherrill.html
+
+**‘He Took Something From His Bag and Dropped to One Knee’**\
+`A slow-motion street scene, a momentous selfie in Central Park and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://www.nytimes.com/2026/06/07/nyregion/metropolitan-diary.html
+
+**They Have Yet to Sign a Lease. But They’re Furious Over $3,100 Rents.**\
+`Climate change. Gun violence. War. Generations of young people have organized over issues they fear threaten the future. Will housing be the next cause?`\
+https://www.nytimes.com/2026/06/07/nyregion/housing-costs-young-people-nyc.html
+
+**NYT Spelling Bee Answers for June 7, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/07/crosswords/spelling-bee-forum.html
+
+**At Least 12 People Shot Near Street Festival in Toledo, Ohio, Police Say**\
+`Two people appeared to have fired at each other near the Old West End Festival, striking bystanders, the police said. No fatalities have been reported so far.`\
+https://www.nytimes.com/2026/06/06/us/toledo-ohio-shooting-festival.html
+
 **Who Will Account for Another Foreign Policy Failure?**\
 `The American foreign policy class should shed its addiction to military force.`\
 https://www.nytimes.com/2026/06/07/opinion/iran-us-war-military-washington.html
