@@ -1,3 +1,11 @@
+**Multiple People Shot Near Street Festival in Toledo, Ohio, Police Say**\
+`A City Council member said she was aware of at least eight victims. The police did not provide further details about the number of people shot or the extent of their injuries.`\
+https://www.nytimes.com/2026/06/06/us/toledo-ohio-shooting-festival.html
+
+**Sorry, I’m Not Available. Talk to the A.I. Version of Me.**\
+`The hot new productivity hack for C.E.O.s and Harvard professors? A.I. twins that answer questions and attend meetings.`\
+https://www.nytimes.com/2026/06/06/business/dealbook/ai-digital-twin.html
+
 **Despite Protest, Ye Takes the Stage for Thousands of European Fans**\
 `Nearly 40,000 fans came out to hear the rapper formerly known as Kanye West in the Netherlands on Saturday, even as other European countries had canceled his concerts.`\
 https://www.nytimes.com/2026/06/06/arts/music/ye-concert-bully-tour-netherlands.html
