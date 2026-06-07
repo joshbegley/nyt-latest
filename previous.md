@@ -132,7 +132,7 @@ https://www.nytimes.com/2026/06/07/business/mrs-fields-daughter-cookies.html
 
 **As Oil Prices Spike, Talk of ‘Demand Destruction’ Sets In**\
 `The decades-old term refers to the sustained loss of demand for a commodity, caused by high prices.`\
-https://www.nytimes.com/2026/06/07/business/07biz-demand-destruction-iran-war.html
+https://www.nytimes.com/2026/06/07/business/demand-destruction-iran-war.html
 
 **No Longer ‘Supporting Cast,’ Grooms Now Want Glam Squads, Too**\
 `The wedding industry is seeing an emerging ecosystem of services for grooms, from day-of hair and makeup to concierges and even therapists.`\

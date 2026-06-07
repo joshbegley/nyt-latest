@@ -1,3 +1,7 @@
+**As Oil Prices Spike, Talk of ‘Demand Destruction’ Sets In**\
+`The decades-old term refers to the sustained loss of demand for a commodity, caused by high prices.`\
+https://www.nytimes.com/2026/06/07/business/demand-destruction-iran-war.html
+
 **What Steven Spielberg Taught Me About Fear, Catharsis, and Being Human**\
 `Hollywood is struggling, but Spielberg insists that the big screen is still the best place to work out our collective dreams, joys and sorrows.`\
 https://www.nytimes.com/2026/06/07/magazine/steven-spielberg-movie-theater-disclosure-day.html
