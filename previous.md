@@ -1,3 +1,7 @@
+**Gunman Kills at Least One in Attack on Central Israel**\
+`Israeli authorities described the shootings as a terrorist attack. Hamas, the Palestinian militant group, praised the assault, but did not claim responsibility.`\
+https://www.nytimes.com/2026/06/07/world/middleeast/israel-west-bank-shooting.html
+
 **NYT Connections Answers for June 8, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, June 8, 2026.`\
 https://www.nytimes.com/2026/06/07/crosswords/connections-companion-1093.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/07/pageoneplus/corrections-june-7-2026.html
 **Bruce Springsteen Opens His Music Center**\
 `Jon Bon Jovi, Public Enemy and others joined him to ring in the Bruce Springsteen Center for American Music, a $50 million archive and cultural hub.`\
 https://www.nytimes.com/2026/06/06/style/springsteen-opens-his-music-center-in-new-jersey.html
-
-**Despite Protest, Ye Takes the Stage for Thousands of European Fans**\
-`Nearly 40,000 fans came out to hear the rapper formerly known as Kanye West in the Netherlands on Saturday, even as other European countries had canceled his concerts.`\
-https://www.nytimes.com/2026/06/06/arts/music/ye-concert-bully-tour-netherlands.html
 
