@@ -174,7 +174,3 @@ https://www.nytimes.com/2026/06/07/crosswords/connections-companion-1093.html
 `Scroll down for hints and conversation about the puzzle for Monday, June 8, 2026.`\
 https://www.nytimes.com/2026/06/07/crosswords/strands-sidekick-827.html
 
-**Today’s Wordle Hints for June 8, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, June 8, 2026.`\
-https://www.nytimes.com/2026/06/07/crosswords/wordle-review-1815.html
-
