@@ -1,3 +1,11 @@
+**5 minutos para que te enamores de Charlie Parker**\
+`Bird ayudó a introducir el bebop, un estilo que transformó el jazz de una música popular para bailar en una forma de arte más exigente y exploratoria. He aquí 11 piezas para introducirte a su legado perdurable.`\
+https://www.nytimes.com/es/2026/06/08/espanol/cultura/5-minutos-charlie-parker.html
+
+**Word of the Day: supine**\
+`This word has appeared in 30 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/06/08/learning/word-of-the-day-supine.html
+
 **‘Every Year After’ and 8 More Shows to Watch on TV This Week**\
 `The adaptation of a Carley Fortune novel airs and a new season of “Below Deck Mediterranean” begins.`\
 https://www.nytimes.com/2026/06/08/arts/television/every-year-after-tv-this-week.html
@@ -145,12 +153,4 @@ https://www.nytimes.com/2026/06/07/us/bourbon-philadelphia-stolen-cargo.html
 **Live Updates: Iran and Israel Exchange Strikes for First Time Since April Cease-Fire**\
 `Iran fired missiles at Israel in retaliation for an Israeli attack in Lebanon. Hours after the Iranian launches, the Israeli military said it had struck military targets in Iran.`\
 https://www.nytimes.com/live/2026/06/07/world/iran-israel-missiles
-
-**Iran Fires Missiles at Israel for First Time Since April Cease-Fire**\
-`Israel had struck the outskirts of the Lebanese capital, Beirut, earlier on Sunday, prompting Iran to retaliate.`\
-https://www.nytimes.com/2026/06/07/world/middleeast/iran-israel-missiles.html
-
-**For Trump, the World Is for the Taking**\
-`Trump has ushered in a new era of fuzzy foreign policy. In an era when powerful leaders are tempted to blur the lines of legal borders, the political scientists Stephen E. Hanson and Jeffrey S. Kopstein warn about the dangerous ramifications of their taking what they please.`\
-https://www.nytimes.com/video/opinion/100000010940107/for-trump-the-world-is-for-the-taking.html
 
