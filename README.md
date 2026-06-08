@@ -1,3 +1,7 @@
+**Highlights From the 2026 Tony Awards**\
+`“Death of a Salesman,” “Liberation” and “Ragtime” won big at the 2026 Tony Awards, which celebrated the best of Broadway.`\
+https://www.nytimes.com/video/arts/100000010951502/tony-awards-winners.html
+
 **Deadly Quake Hits Southern Philippines**\
 `A deadly 7.8-magnitude earthquake struck off the island of Mindanao in the southern Philippines, causing buildings to collapse and triggering tsunami warnings in the region.`\
 https://www.nytimes.com/video/world/asia/100000010951516/philippines-earthquake-death-toll.html
@@ -153,10 +157,6 @@ https://www.nytimes.com/2026/06/07/crosswords/daily-puzzle-2026-06-08.html
 **Tony Awards 2026 Red Carpet: See the Looks of Broadway’s Biggest Stars**\
 `Here’s what Broadway’s biggest names wore to walk the blue carpet at the 79th Tony Awards.`\
 https://www.nytimes.com/2026/06/07/style/tony-awards-2026-red-carpet-looks.html
-
-**Kars4Kids Can Continue Broadcasting Ads in California, Appeals Court Says**\
-`A lower court last month found that the ads from the charity, known for its ear-worm jingle, had violated false-advertising laws.`\
-https://www.nytimes.com/2026/06/07/us/kars4kids-california-appeals-court.html
 
 **Tonys 2026 Highlights: ‘Schmigadoon!’ and ‘Death of a Salesman’ Are Big Winners**\
 `“Ragtime” won best musical revival, while “Death of a Salesman” led with six prizes. Joshua Henry, Caissie Levy, John Lithgow and Laurie Metcalf were among the winners.`\
