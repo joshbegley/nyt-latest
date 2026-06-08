@@ -1,3 +1,15 @@
+**Oil Surges, Asian Stocks Sink After Iran Strikes Israel**\
+`Oil prices jumped and stocks plunged after Iran fired missiles at Israel, raising doubts about the future of fragile cease-fire in the Middle East.`\
+https://www.nytimes.com/2026/06/07/business/oil-gas-stocks-iran.html
+
+**Maps: 7.8-Magnitude Earthquake Near the Philippines Raises Tsunami Alerts**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/07/world/philippines-earthquake-tsunami-alert.html
+
+**Nithya Raman Overtakes Spencer Pratt in Race for L.A. Mayor**\
+`Nithya Raman pulled into second place in the race to see who will face Mayor Karen Bass in November. There are more votes to be counted.`\
+https://www.nytimes.com/2026/06/07/us/nithya-raman-spencer-pratt-los-angeles-mayor-race.html
+
 **Our Favorite Photos From the Tony Awards**\
 `As Broadway’s brightest gather for the industry’s biggest night, here’s an up-close look at what you can’t see on TV.`\
 https://www.nytimes.com/2026/06/07/theater/our-favorite-photos-from-the-tony-awards-red-carpet.html

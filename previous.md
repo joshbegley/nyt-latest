@@ -1,4 +1,8 @@
-**Maps: 7.8-Magnitude Earthquake near the Philippines Raises Tsunami Alerts**\
+**Oil Surges, Asian Stocks Sink After Iran Strikes Israel**\
+`Oil prices jumped and stocks plunged after Iran fired missiles at Israel, raising doubts about the future of fragile cease-fire in the Middle East.`\
+https://www.nytimes.com/2026/06/07/business/oil-gas-stocks-iran.html
+
+**Maps: 7.8-Magnitude Earthquake Near the Philippines Raises Tsunami Alerts**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/06/07/world/philippines-earthquake-tsunami-alert.html
 
@@ -7,7 +11,7 @@ https://www.nytimes.com/interactive/2026/06/07/world/philippines-earthquake-tsun
 https://www.nytimes.com/2026/06/07/theater/liberation-tony-awards-best-play.html
 
 **Nithya Raman Overtakes Spencer Pratt in Race for L.A. Mayor**\
-`Ms. Raman, a progressive lawmaker, pulled into second place in the race to see who will face Mayor Karen Bass in November. There are more votes to be counted.`\
+`Nithya Raman pulled into second place in the race to see who will face Mayor Karen Bass in November. There are more votes to be counted.`\
 https://www.nytimes.com/2026/06/07/us/nithya-raman-spencer-pratt-los-angeles-mayor-race.html
 
 **John Lithgow Wins the Tony for Best Actor in a Play**\
@@ -157,8 +161,4 @@ https://www.nytimes.com/2026/06/07/dining/this-vanilla-sheet-pan-cake-is-ready-t
 **James Talarico Isn’t the Only One**\
 `It’s midterm season, and the Democrats are trying to win back Congress. Is running white Christian clergy members the answer?`\
 https://www.nytimes.com/2026/06/07/briefing/james-talarico-isnt-the-only-one.html
-
-**El aeropuerto de CDMX se renovó para el Mundial. ¿Qué pasará después?**\
-`El aeropuerto, de casi 100 años de antigüedad, ha sido objeto de una veloz remodelación con valor de 500 millones de dólares. Los expertos dicen que no es suficiente.`\
-https://www.nytimes.com/es/2026/06/07/espanol/america-latina/aeropuerto-ciudad-mexico-mundial.html
 
