@@ -1,3 +1,7 @@
+**Trump dice que nunca prometió que no habría nuevas guerras**\
+`En una larga entrevista con el programa “Meet the Press” de la NBC, el presidente volvió a prometer que los precios de la gasolina bajarían cuando terminara la guerra en Irán.`\
+https://www.nytimes.com/es/2026/06/08/espanol/estados-unidos/trump-nuevas-guerras.html
+
 **Yewande Komolafe’s Mushroom-Stuffed Plantains**\
 `(No description)`\
 https://www.nytimes.com/2026/06/08/dining/yewande-komolafes-mushroom-stuffed-plantains.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/08/magazine/childcare-mothers-politics.html
 **They Got Platner’s Endorsement for Maine Governor. What Did They Do With It?**\
 `The crowded race for governor has barely qualified as background noise in recent months, drowned out by the high-stakes, turbulent campaign for U.S. Senate.`\
 https://www.nytimes.com/2026/06/08/us/maine-governor-platner-nirav-shah.html
-
-**B.F.I. Preserves ‘Charlie Bit My Finger’ and More Videos in Archive of Viral Moments**\
-`The British Film Institute assembled more than 400 videos in an archive of culturally significant internet moments. See what made the cut.`\
-https://www.nytimes.com/2026/06/08/technology/uk-video-memes-archive-tape.html
 
 **Live Updates: Iran and Israel Pull Back After Exchange of Attacks**\
 `Iran signaled that it had concluded its latest strikes against Israel. Prime Minister Benjamin Netanyahu refrained from another attack under pressure from President Trump, a U.S. and two Israeli officials said.`\
