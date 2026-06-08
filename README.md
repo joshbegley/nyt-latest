@@ -1,3 +1,11 @@
+**Resuming War Is a Short-Term Political Boon for Netanyahu, but Grim Choices Await**\
+`If President Trump forces Israel to stand down against Iran, analysts say, it could leave Israel hindered from responding forcefully to attacks by Hezbollah.`\
+https://www.nytimes.com/2026/06/08/world/middleeast/israel-netanyahu-iran-trump-lebanon.html
+
+**The Costs of War**\
+`We look at how Israeli trade restrictions and shadowy profiteers have driven up the prices of nearly everything in Gaza.`\
+https://www.nytimes.com/2026/06/08/briefing/the-costs-of-war-in-gaza.html
+
 **Iran and Israel Exchange First Strikes Since Cease-Fire, and Texas Ranchers Sound the Alarm**\
 `Plus, the fight over the fight on the White House lawn.`\
 https://www.nytimes.com/2026/06/08/podcasts/the-headlines/iran-israel-exchange-first-strikes-since-cease-fire-texas-ranchers-screwworm.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/08/nyregion/second-avenue-subway-expansion.html
 **Young Knicks Fans Rejoice Over Their Team’s Run for the Ages**\
 `New Yorkers under 30 know about the past pain and suffering. But now they have reason to believe.`\
 https://www.nytimes.com/2026/06/08/nyregion/knicks-young-fans.html
-
-**NYT Spelling Bee Answers for June 8, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/06/08/crosswords/spelling-bee-forum.html
-
-**5 minutos para que te enamores de Charlie Parker**\
-`Bird ayudó a introducir el bebop, un estilo que transformó el jazz de una música popular para bailar en una forma de arte más exigente y exploratoria. He aquí 11 piezas para introducirte a su legado perdurable.`\
-https://www.nytimes.com/es/2026/06/08/espanol/cultura/5-minutos-charlie-parker.html
 
