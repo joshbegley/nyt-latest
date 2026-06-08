@@ -1,3 +1,11 @@
+**5 minutos para que te enamores de Charlie Parker**\
+`Bird ayudó a introducir el bebop, un estilo que transformó el jazz de una música popular para bailar en una forma de arte más exigente y exploratoria. He aquí 11 piezas para introducirte a su legado perdurable.`\
+https://www.nytimes.com/es/2026/06/08/espanol/cultura/5-minutos-charlie-parker.html
+
+**Word of the Day: supine**\
+`This word has appeared in 30 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/06/08/learning/word-of-the-day-supine.html
+
 **‘Every Year After’ and 8 More Shows to Watch on TV This Week**\
 `The adaptation of a Carley Fortune novel airs and a new season of “Below Deck Mediterranean” begins.`\
 https://www.nytimes.com/2026/06/08/arts/television/every-year-after-tv-this-week.html
