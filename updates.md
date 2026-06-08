@@ -1,3 +1,7 @@
+**Maps: Tracking Tropical Storm Boris**\
+`See the likely path and wind arrival times for Boris`\
+https://www.nytimes.com/interactive/2026/06/08/weather/storm-boris-tracker.html
+
 **Trump Eyes a Piece of A.I. Giants**\
 `The president has publicly weighed the government taking stakes in artificial intelligence giants, as his position on regulating the industry shifts.`\
 https://www.nytimes.com/2026/06/08/business/dealbook/trump-ai-stakes.html

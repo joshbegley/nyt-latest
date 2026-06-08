@@ -1,3 +1,7 @@
+**Maps: Tracking Tropical Storm Boris**\
+`See the likely path and wind arrival times for Boris`\
+https://www.nytimes.com/interactive/2026/06/08/weather/storm-boris-tracker.html
+
 **Trump Eyes a Piece of A.I. Giants**\
 `The president has publicly weighed the government taking stakes in artificial intelligence giants, as his position on regulating the industry shifts.`\
 https://www.nytimes.com/2026/06/08/business/dealbook/trump-ai-stakes.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/asia/100000010951516/philippines-earthquake-
 **Uno es el papa, el otro es ateo. Ambos se oponen a Trump**\
 `El papa León ha provocado la furia del presidente de EE. UU. por criticar la guerra en Irán y el presidente del gobierno español se ha opuesto a Trump en muchos temas. Sus motivaciones, sin embargo, parecen diferentes.`\
 https://www.nytimes.com/es/2026/06/08/espanol/mundo/papa-leon-sanchez-trump.html
-
-**Nikol Pashinyan Wins Re-election in Armenia**\
-`Prime Minister Nikol Pashinyan overcame a pressure campaign by Moscow and was on track to win a mandate to move ahead on peace talks that President Trump helped broker.`\
-https://www.nytimes.com/2026/06/08/world/europe/armenia-election-results.html
 
