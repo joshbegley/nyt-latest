@@ -1,3 +1,7 @@
+**Ken Paxton’s Former Defense Lawyer Endorses James Talarico**\
+`The lawyer, Dan Cogdell, helped save Mr. Paxton from criminal charges and an impeachment, but now he says the Texas attorney general has “lost sight of his mission.”`\
+https://www.nytimes.com/2026/06/08/us/paxton-lawyer-endorse-talarico.html
+
 **What’s Taking So Long to Count California Ballots?**\
 `Other states with vote-by-mail manage to count much more quickly.`\
 https://www.nytimes.com/2026/06/08/us/california-elections-trump-slow-why.html
@@ -134,8 +138,8 @@ https://www.nytimes.com/2026/06/08/opinion/fishing-bottom-trawlers-seafood.html
 `Some bits of dialogue or description can stick with you long after you’ve finished reading. Try this short quiz to see how many jog your memory.`\
 https://www.nytimes.com/interactive/2026/06/08/books/review/future-worlds-quiz.html
 
-**Iran and Israel Move to De-Escalate After Hours of Fighting**\
-`Iran and Israel signaled that they would move to de-escalate military hostilities after exchanging strikes for the first time since April.`\
+**Iran and Israel Halt Military Escalation After Exchanging Strikes**\
+`Iran and Israel de-escalated military hostilities after exchanging strikes, which had briefly jeopardized a two-month cease-fire.`\
 https://www.nytimes.com/video/world/middleeast/100000010951911/israel-iran-attacks-ceasefire.html
 
 **Billie Tisch, Influential New York Philanthropist, Dies at 98**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/08/world/middleeast/israel-iran-strikes-regional
 ****\
 `Video verified by The New York Times shows thick smoke rising near the Mahshahr petrochemical complex in Iran.`\
 https://www.nytimes.com/video/embedded/admin/100000010952007/08vid-iran-israel-embed-25069.html
-
-**What to Know About Mahshahr, the Iranian Petrochemical Complex That Israel Targeted**\
-`The facility makes materials that Iran says are for civilian uses, but that Israel argues are also deployed in military applications.`\
-https://www.nytimes.com/2026/06/08/world/middleeast/what-is-iran-mahshahr-petrochemical-plant.html
 
 **Live Updates: Iran and Israel Pull Back After Exchange of Strikes**\
 `Prime Minister Benjamin Netanyahu said Israel’s “fire is on hold” after a phone call with President Trump. Iran also said it would cease its attacks but, like Israel, warned it was ready to resume at any time.`\

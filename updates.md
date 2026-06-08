@@ -1,3 +1,7 @@
+**What’s Taking So Long to Count California Ballots?**\
+`Other states with vote-by-mail manage to count much more quickly.`\
+https://www.nytimes.com/2026/06/08/us/california-elections-trump-slow-why.html
+
 **Trump Casts Doubt on California Elections. What’s Taking So Long?**\
 `Other states with mail-in ballots manage to count much more quickly, opening California to conspiracy theories and accusations of election fraud.`\
 https://www.nytimes.com/2026/06/08/us/california-elections-trump-slow-why.html
