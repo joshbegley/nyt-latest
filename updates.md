@@ -1,3 +1,11 @@
+**Today, In Short**\
+`LinkedIn. Bike dates. And the World Cup.`\
+https://www.nytimes.com/2026/06/08/briefing/today-in-short.html
+
+**Best and Worst Moments From the 2026 Tony Awards: Pink, Maya Rudolph, Cole Escola, ‘Cats’**\
+`Pink brought sincerity and high energy as the host, musical numbers by “Cats,” “Ragtime” and “Chicago” popped, and Maya Rudolph and Cole Escola mined comic gold.`\
+https://www.nytimes.com/2026/06/08/theater/best-worst-tony-awards.html
+
 **Are U.S. and Israel on the Same Page in Mideast Wars?**\
 `President Trump has voiced his frustration with Prime Minister Benjamin Netanyahu of Israel, but it is not clear how able he is to rein in Israeli military action.`\
 https://www.nytimes.com/2026/06/08/world/middleeast/netanyahu-trump-split-iran-lebanon.html
