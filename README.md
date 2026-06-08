@@ -1,3 +1,7 @@
+**Nikol Pashinyan Wins Re-election in Armenia**\
+`Prime Minister Nikol Pashinyan overcame a pressure campaign by Moscow and was on track to win a mandate to move ahead on peace talks that President Trump helped broker.`\
+https://www.nytimes.com/2026/06/08/world/europe/armenia-election-results.html
+
 **Mideast Live Updates: Iran and Israel Trade Strikes for the First Time Since April**\
 `Iran launched waves of missiles at Israel, while Israel struck military targets and a petrochemical complex in Iran.`\
 https://www.nytimes.com/live/2026/06/08/world/iran-israel-lebanon-attacks
@@ -82,7 +86,7 @@ https://www.nytimes.com/es/2026/06/07/espanol/mundo/israel-espia-estados-unidos-
 `Based on the novel by E.L. Doctorow, “Ragtime” follows three communities colliding in turn-of-the-20th-century New York.`\
 https://www.nytimes.com/2026/06/07/theater/ragtime-tony-award-best-musical-revival.html
 
-**Oil Surges, Asian Stocks Sink After Iran Strikes Israel**\
+**Oil Surges After Hostilities Between Iran and Israel Escalate**\
 `Oil prices jumped and stocks plunged after Iran and Israel exchanged strikes, raising doubts about the future of fragile cease-fire in the Middle East.`\
 https://www.nytimes.com/2026/06/07/business/oil-gas-stocks-iran.html
 

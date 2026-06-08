@@ -1,3 +1,11 @@
+**Mideast Live Updates: Iran and Israel Trade Strikes for the First Time Since April**\
+`Iran launched waves of missiles at Israel, while Israel struck military targets and a petrochemical complex in Iran.`\
+https://www.nytimes.com/live/2026/06/08/world/iran-israel-lebanon-attacks
+
+**At Least 15 Dead After Strong Earthquake in Southern Philippines**\
+`The 7.8-magnitude quake struck off the island of Mindanao, toppling buildings and damaging bridges. Dozens were injured and tens of thousands displaced.`\
+https://www.nytimes.com/2026/06/07/world/asia/hilippines-earthquake-tsunami-warning.html
+
 **Trump, Mamdani and the Knicks: A Manic Monday Awaits New York**\
 `When the Knicks return home for Game 3 of the N.B.A. finals, much of New York City will be watching, including some well-known guests.`\
 https://www.nytimes.com/2026/06/08/nyregion/trump-mamdani-knicks-msg.html
