@@ -1,3 +1,11 @@
+**Resuming War Is a Short-Term Political Boon for Netanyahu, but Grim Choices Await**\
+`If President Trump forces Israel to stand down against Iran, analysts say, it could leave Israel hindered from responding forcefully to attacks by Hezbollah.`\
+https://www.nytimes.com/2026/06/08/world/middleeast/israel-netanyahu-iran-trump-lebanon.html
+
+**The Costs of War**\
+`We look at how Israeli trade restrictions and shadowy profiteers have driven up the prices of nearly everything in Gaza.`\
+https://www.nytimes.com/2026/06/08/briefing/the-costs-of-war-in-gaza.html
+
 **Live Updates: Iran and Israel Trade Strikes as Trump Calls on Them to Stop**\
 `Iran launched waves of missiles at Israel, and Israel said it struck military targets and a petrochemical complex in Iran, as an uneasy two-month truce broke down. President Trump called for the two sides to “immediately stop” the attacks.`\
 https://www.nytimes.com/live/2026/06/08/world/iran-israel-lebanon-attacks
