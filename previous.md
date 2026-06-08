@@ -1,3 +1,7 @@
+**Houthis Threaten to Widen Iran War by Blocking Israeli Shipping in Red Sea**\
+`The Yemeni militia group, which is backed by Iran, said it would impose a partial blockade in the waterway, a move that would further strangle supply routes and aggravate the conflict in the Mideast.`\
+https://www.nytimes.com/2026/06/08/world/middleeast/houthis-yemen-red-sea-israel-shipping.html
+
 **Maps: Tracking Tropical Storm Boris**\
 `See the likely path and wind arrival times for Boris`\
 https://www.nytimes.com/interactive/2026/06/08/weather/storm-boris-tracker.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/08/world/middleeast/iran-tehran-israel-attacks.h
 **Highlights From the 2026 Tony Awards**\
 `“Death of a Salesman,” “Liberation” and “Ragtime” won big at the 2026 Tony Awards, which celebrated the best of Broadway.`\
 https://www.nytimes.com/video/arts/100000010951502/tony-awards-winners.html
-
-**Deadly Quake Hits Southern Philippines**\
-`A deadly 7.8-magnitude earthquake struck off the island of Mindanao in the southern Philippines, causing buildings to collapse and triggering tsunami warnings in the region.`\
-https://www.nytimes.com/video/world/asia/100000010951516/philippines-earthquake-death-toll.html
 
 **Live Updates: Iran and Israel Move to De-Escalate After Cease-Fire Breaks Down**\
 `Iran’s Revolutionary Guards Corps signaled that it had concluded its latest military operation against Israel. Prime Minister Benjamin Netanyahu pulled back from preparations for another attack after pushback from President Trump, two Israeli military officials said.`\

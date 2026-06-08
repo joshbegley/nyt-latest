@@ -1,3 +1,7 @@
+**Houthis Threaten to Widen Iran War by Blocking Israeli Shipping in Red Sea**\
+`The Yemeni militia group, which is backed by Iran, said it would impose a partial blockade in the waterway, a move that would further strangle supply routes and aggravate the conflict in the Mideast.`\
+https://www.nytimes.com/2026/06/08/world/middleeast/houthis-yemen-red-sea-israel-shipping.html
+
 **Live Updates: Iran and Israel Move to De-Escalate After Cease-Fire Breaks Down**\
 `Iran’s Revolutionary Guards Corps signaled that it had concluded its latest military operation against Israel. Prime Minister Benjamin Netanyahu pulled back from preparations for another attack after pushback from President Trump, two Israeli military officials said.`\
 https://www.nytimes.com/live/2026/06/08/world/iran-israel-lebanon-attacks
