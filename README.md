@@ -1,3 +1,11 @@
+**Trump Administration Seeks to Revoke U.S. Citizenship of 17 Immigrants**\
+`The push to denaturalize more immigrants is the latest sign that the administration is setting its sights on the legal immigration system.`\
+https://www.nytimes.com/2026/06/08/us/politics/trump-denaturalization.html
+
+**Maps: Tracking Tropical Storm Cristina**\
+`See the likely path and wind arrival times for Cristina`\
+https://www.nytimes.com/interactive/2026/06/08/weather/cristina-map-path-tracker.html
+
 **Los iraníes sufren la destrucción de meses de guerra y el aumento de precios**\
 `La implosión de la economía está causando desesperanza tanto entre los iraníes que apoyan al gobierno como entre los que se le oponen.`\
 https://www.nytimes.com/es/2026/06/08/espanol/mundo/guerra-iran-situacion.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/08/crosswords/wordle-review-1816.html
 **French Open 2026: Zverev Wins, but Polarizes**\
 `Alexander Zverev captured his first Grand Slam title, beating Flavio Cobolli in a five-set struggle.`\
 https://www.nytimes.com/2026/06/08/podcasts/french-open-2026-zverev-wins-but-polarizes.html
-
-**La polémica camiseta de México para el Mundial: ¿artesanía o explotación?**\
-`Un grupo de artesanas bordó jerseys para Adidas. Después, activistas denunciaron malas condiciones laborales y explotación. Fuimos a la sierra para hablar con las artesanas.`\
-https://www.nytimes.com/es/2026/06/08/espanol/america-latina/camisetas-mexico-adidas-explotacion.html
-
-**Why We May Need More Military Veterans in Congress**\
-`There’s an argument for candidates who’ve served in the military.`\
-https://www.nytimes.com/2026/06/08/opinion/veterans-politics.html
 
 **Live Updates: Iran and Israel Pull Back After Exchange of Attacks**\
 `Iran signaled that it had concluded its latest strikes against Israel. Prime Minister Benjamin Netanyahu refrained from another attack under pressure from President Trump, a U.S. and two Israeli officials said.`\
