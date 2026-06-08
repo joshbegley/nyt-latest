@@ -1,3 +1,19 @@
+**Trump, Mamdani and the Knicks: A Manic Monday Awaits New York**\
+`When the Knicks return home for Game 3 of the N.B.A. finals, much of New York City will be watching, including some well-known guests.`\
+https://www.nytimes.com/2026/06/08/nyregion/trump-mamdani-knicks-msg.html
+
+**Inside the Subway Expansion a Century in the Making**\
+`The next phase of the Second Avenue subway, first proposed in the 1920s, could finally be completed by 2032, creating a new transit hub in Harlem.`\
+https://www.nytimes.com/2026/06/08/nyregion/second-avenue-subway-expansion.html
+
+**Young Knicks Fans Rejoice Over Their Team’s Run for the Ages**\
+`New Yorkers under 30 know about the past pain and suffering. But now they have reason to believe.`\
+https://www.nytimes.com/2026/06/08/nyregion/knicks-young-fans.html
+
+**NYT Spelling Bee Answers for June 8, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/08/crosswords/spelling-bee-forum.html
+
 **Oil Surges, Asian Stocks Sink After Iran Strikes Israel**\
 `Oil prices jumped and stocks plunged after Iran and Israel exchanged strikes, raising doubts about the future of fragile cease-fire in the Middle East.`\
 https://www.nytimes.com/2026/06/07/business/oil-gas-stocks-iran.html
