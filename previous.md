@@ -1,3 +1,7 @@
+**Deadly Quake Hits Southern Philippines**\
+`A deadly 7.8-magnitude earthquake struck off the island of Mindanao in the southern Philippines, causing buildings to collapse and triggering tsunami warnings in the region.`\
+https://www.nytimes.com/video/world/asia/100000010951516/philippines-earthquake-death-toll.html
+
 **Uno es el papa, el otro es ateo. Ambos se oponen a Trump**\
 `El papa León ha provocado la furia del presidente de EE. UU. por criticar la guerra en Irán y el presidente del gobierno español se ha opuesto a Trump en muchos temas. Sus motivaciones, sin embargo, parecen diferentes.`\
 https://www.nytimes.com/es/2026/06/08/espanol/mundo/papa-leon-sanchez-trump.html
@@ -153,10 +157,6 @@ https://www.nytimes.com/2026/06/07/style/tony-awards-2026-red-carpet-looks.html
 **Kars4Kids Can Continue Broadcasting Ads in California, Appeals Court Says**\
 `A lower court last month found that the ads from the charity, known for its ear-worm jingle, had violated false-advertising laws.`\
 https://www.nytimes.com/2026/06/07/us/kars4kids-california-appeals-court.html
-
-**Tonys 2026 Takeaways: ‘Schmigadoon!’ and ‘Death of a Salesman’ Are Big Winners**\
-`The Broadway revival of “Salesman” led with six Tony Awards. “Schmigadoon!” won best new musical, and “Ragtime” and “Liberation” also took home major prizes.`\
-https://www.nytimes.com/2026/06/07/theater/heres-the-latest.html
 
 **Tonys 2026 Highlights: ‘Schmigadoon!’ and ‘Death of a Salesman’ Are Big Winners**\
 `“Ragtime” won best musical revival, while “Death of a Salesman” led with six prizes. Joshua Henry, Caissie Levy, John Lithgow and Laurie Metcalf were among the winners.`\

@@ -1,3 +1,7 @@
+**Deadly Quake Hits Southern Philippines**\
+`A deadly 7.8-magnitude earthquake struck off the island of Mindanao in the southern Philippines, causing buildings to collapse and triggering tsunami warnings in the region.`\
+https://www.nytimes.com/video/world/asia/100000010951516/philippines-earthquake-death-toll.html
+
 **Live Updates: Iran and Israel Trade Strikes for the First Time Since April**\
 `Iran launched waves of missiles at Israel, while Israel struck military targets and a petrochemical complex in Iran.`\
 https://www.nytimes.com/live/2026/06/08/world/iran-israel-lebanon-attacks
