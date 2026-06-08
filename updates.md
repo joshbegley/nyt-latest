@@ -1,3 +1,7 @@
+**In Maine, Supporters of Graham Platner Continue to Back His Senate Campaign, With ‘Trepidation’**\
+`Many Democrats are sticking by their presumptive Senate nominee Graham Platner. But some have soured, and others are anxious about how recent revelations could affect a close race.`\
+https://www.nytimes.com/2026/06/08/us/politics/graham-platner-voters-maine-senate.html
+
 **At the Tony Awards After-Parties, a ‘Harry Potter’ Reunion and Winner Celebrations**\
 `A crowd that included Daniel Radcliffe, Cole Escola and Carrie Coon celebrated with whiskey ice cream at Rockefeller Center and show tunes at the Carlyle hotel.`\
 https://www.nytimes.com/2026/06/08/style/tony-awards-after-parties.html

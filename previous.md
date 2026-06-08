@@ -87,7 +87,7 @@ https://www.nytimes.com/interactive/2026/06/08/nyregion/nyc-budgeting-affordabil
 https://www.nytimes.com/2026/06/08/opinion/jon-ossoff-president.html
 
 **In Maine, Supporters of Graham Platner Continue to Back His Senate Campaign, With ‘Trepidation’**\
-`Many are sticking by the presumptive Democratic Senate nominee Graham Platner. But some have soured, and others are anxious about how recent revelations could affect a close race.`\
+`Many Democrats are sticking by their presumptive Senate nominee Graham Platner. But some have soured, and others are anxious about how recent revelations could affect a close race.`\
 https://www.nytimes.com/2026/06/08/us/politics/graham-platner-voters-maine-senate.html
 
 **Bounty of Frida Kahlo Art Emerges in Mexico’s Restored Museum**\
