@@ -1,3 +1,39 @@
+**Israel Halts Strikes After Trump Claims Progress Toward Nuclear Talks, Officials Say**\
+`Multiple officials said that the president told Israel’s leader that the United States and Iran were within days of a breakthrough that would clear the way for talks on a long-term nuclear deal.`\
+https://www.nytimes.com/2026/06/08/us/politics/trump-netanyahu-iran-call.html
+
+**Apple Reveals New A.I.-Powered Version of Its Siri Digital Assistant**\
+`The iPhone maker revealed its new artificial intelligence products at its developer conference, the last with Tim Cook as the company’s chief executive.`\
+https://www.nytimes.com/2026/06/08/technology/apple-ai-siri.html
+
+**Watch Parties Canceled as Police Tighten Security at N.B.A. Finals**\
+`President Trump and Mayor Zohran Mamdani are expected to attend the N.B.A. Finals game 3 between the New York Knicks and San Antonio Spurs.`\
+https://www.nytimes.com/video/us/100000010952671/knicks-spurs-nba-finals-security-trump.html
+
+**Who is Ahead in Florida's 2nd Congressional District?**\
+`Track the latest polls in Florida's 2nd Congressional District.`\
+https://www.nytimes.com/interactive/polls/florida-us-house-2-polls-2026.html
+
+**Sam Bankman-Fried Has Applied for a Pardon From Trump**\
+`Mr. Bankman-Fried is serving a 25-year prison sentence for fraud related to the collapse of his cryptocurrency exchange, FTX.`\
+https://www.nytimes.com/2026/06/08/technology/sam-bankman-fried-pardon-trump.html
+
+**Live Updates: New Yorkers Around the City Start the Party Ahead of Knicks Game**\
+`President Trump and Mayor Zohran Mamdani are expected to attend Game 3 of the N.B.A. finals against the San Antonio Spurs at a raucous, sold-out Madison Square Garden.`\
+https://www.nytimes.com/live/2026/06/08/nyregion/nba-finals-trump-knicks-spurs-mamdani
+
+**Scientist Charged With Conspiring to Smuggle Mpox Virus Into U.S.**\
+`The virologist was stopped at the Detroit airport after working in Congo during an mpox epidemic. His lawyer said the material was for research.`\
+https://www.nytimes.com/2026/06/08/science/dutch-scientist-mpox-virus-smuggling.html
+
+**Why People Are Obsessed With Platner**\
+`Graham Platner is not just a candidate for the Senate in Maine, argues the Opinion columnist Jamelle Bouie on “The Opinions,” but also a representative of “an intra-Democratic Party factional battle.” Bouie says the arguments around Platner resemble a proxy fight unfolding within the party.`\
+https://www.nytimes.com/video/opinion/100000010952747/why-people-are-obsessed-with-platner.html
+
+**Hiker, 18, Dies at Grand Canyon National Park Amid High Heat**\
+`The man was with his father on a popular, strenuous trail on a day that temperatures reached above 100 degrees in parts of the canyon, officials said.`\
+https://www.nytimes.com/2026/06/08/us/grand-canyon-hiker-death-heat.html
+
 **Vance Blames Migrant ‘Invasion’ for UK Stabbing**\
 `British officials accused Vice President JD Vance of trying to “stir up division” in his comments on the murder of Henry Nowak, whose killer was sentenced to life in prison last week.`\
 https://www.nytimes.com/2026/06/08/world/europe/vance-uk-stabbing-migrants.html
@@ -157,40 +193,4 @@ https://www.nytimes.com/interactive/2026/06/08/books/review/future-worlds-quiz.h
 **Iran and Israel Halt Military Escalation After Exchanging Strikes**\
 `Iran and Israel de-escalated military hostilities after exchanging strikes, which had briefly jeopardized a two-month cease-fire.`\
 https://www.nytimes.com/video/world/middleeast/100000010951911/israel-iran-attacks-ceasefire.html
-
-**Billie Tisch, Influential New York Philanthropist, Dies at 98**\
-`The billionaire widow of Laurence Tisch, she raised money for WNYC radio and other cultural organizations, along with Jewish, medical and educational institutions.`\
-https://www.nytimes.com/2026/06/08/nyregion/billie-tisch-dead.html
-
-**Unforgettable Looks at the Tony Awards: Cole Escola, Sarah Paulson and More**\
-`Shrunken suits, bouncy wigs and gloves that came with a manicure were some of the looks that stood out on the red carpet.`\
-https://www.nytimes.com/2026/06/08/style/tony-awards-red-carpet-memorable-fashion.html
-
-**Mapa: la trayectoria de la tormenta tropical Boris en vivo**\
-`Consulta la trayectoria probable y las horas de llegada de los vientos de Boris.`\
-https://www.nytimes.com/es/interactive/2026/06/08/espanol/boris-mapa-trayectoria.html
-
-**Irán disparó misiles a Israel por primera vez desde el alto al fuego de abril**\
-`Israel había atacado las afueras de la capital libanesa, Beirut, a primera hora del domingo, lo que llevó a Irán a tomar represalias.`\
-https://www.nytimes.com/es/2026/06/08/espanol/mundo/iran-israel-misiles.html
-
-**At the Tony Awards After-Parties, a ‘Harry Potter’ Reunion and Winner Celebrations**\
-`A crowd that included Daniel Radcliffe, Cole Escola and Carrie Coon celebrated with whiskey ice cream at Rockefeller Center and show tunes at the Carlyle hotel.`\
-https://www.nytimes.com/2026/06/08/style/tony-awards-after-parties.html
-
-**How Healthy Are Peas?**\
-`Don’t let childhood memories of mealtime standoffs turn you away from these nutritional powerhouses.`\
-https://www.nytimes.com/2026/06/08/well/eat/peas-health-benefits-recipes.html
-
-**The Iran War is Forcing Energy-Importing Countries to Turn Inward**\
-`The Iran war is pushing countries to prioritize domestic energy in order to protect themselves from volatile oil and natural gas markets.`\
-https://www.nytimes.com/2026/06/08/business/energy-environment/iran-war-energy-oil.html
-
-**Houthis Threaten to Widen Iran War by Blocking Israeli Shipping in Red Sea**\
-`The Yemeni militia group, which is backed by Iran, said it would impose a partial blockade in the waterway, a move that would further strangle supply routes and aggravate the conflict in the Mideast.`\
-https://www.nytimes.com/2026/06/08/world/middleeast/houthis-yemen-red-sea-israel-shipping.html
-
-**Live Updates: Iran and Israel Pull Back After Exchange of Strikes**\
-`Prime Minister Benjamin Netanyahu said Israel’s “fire is on hold” after a phone call with President Trump. Iran also said it would cease its attacks but, like Israel, warned it was ready to resume at any time.`\
-https://www.nytimes.com/live/2026/06/08/world/iran-israel-lebanon-attacks
 

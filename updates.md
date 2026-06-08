@@ -1,3 +1,39 @@
+**Israel Halts Strikes After Trump Claims Progress Toward Nuclear Talks, Officials Say**\
+`Multiple officials said that the president told Israel’s leader that the United States and Iran were within days of a breakthrough that would clear the way for talks on a long-term nuclear deal.`\
+https://www.nytimes.com/2026/06/08/us/politics/trump-netanyahu-iran-call.html
+
+**Apple Reveals New A.I.-Powered Version of Its Siri Digital Assistant**\
+`The iPhone maker revealed its new artificial intelligence products at its developer conference, the last with Tim Cook as the company’s chief executive.`\
+https://www.nytimes.com/2026/06/08/technology/apple-ai-siri.html
+
+**Watch Parties Canceled as Police Tighten Security at N.B.A. Finals**\
+`President Trump and Mayor Zohran Mamdani are expected to attend the N.B.A. Finals game 3 between the New York Knicks and San Antonio Spurs.`\
+https://www.nytimes.com/video/us/100000010952671/knicks-spurs-nba-finals-security-trump.html
+
+**Who is Ahead in Florida's 2nd Congressional District?**\
+`Track the latest polls in Florida's 2nd Congressional District.`\
+https://www.nytimes.com/interactive/polls/florida-us-house-2-polls-2026.html
+
+**Sam Bankman-Fried Has Applied for a Pardon From Trump**\
+`Mr. Bankman-Fried is serving a 25-year prison sentence for fraud related to the collapse of his cryptocurrency exchange, FTX.`\
+https://www.nytimes.com/2026/06/08/technology/sam-bankman-fried-pardon-trump.html
+
+**Live Updates: New Yorkers Around the City Start the Party Ahead of Knicks Game**\
+`President Trump and Mayor Zohran Mamdani are expected to attend Game 3 of the N.B.A. finals against the San Antonio Spurs at a raucous, sold-out Madison Square Garden.`\
+https://www.nytimes.com/live/2026/06/08/nyregion/nba-finals-trump-knicks-spurs-mamdani
+
+**Scientist Charged With Conspiring to Smuggle Mpox Virus Into U.S.**\
+`The virologist was stopped at the Detroit airport after working in Congo during an mpox epidemic. His lawyer said the material was for research.`\
+https://www.nytimes.com/2026/06/08/science/dutch-scientist-mpox-virus-smuggling.html
+
+**Why People Are Obsessed With Platner**\
+`Graham Platner is not just a candidate for the Senate in Maine, argues the Opinion columnist Jamelle Bouie on “The Opinions,” but also a representative of “an intra-Democratic Party factional battle.” Bouie says the arguments around Platner resemble a proxy fight unfolding within the party.`\
+https://www.nytimes.com/video/opinion/100000010952747/why-people-are-obsessed-with-platner.html
+
+**Hiker, 18, Dies at Grand Canyon National Park Amid High Heat**\
+`The man was with his father on a popular, strenuous trail on a day that temperatures reached above 100 degrees in parts of the canyon, officials said.`\
+https://www.nytimes.com/2026/06/08/us/grand-canyon-hiker-death-heat.html
+
 **How Healthy Are Peas?**\
 `Don’t let childhood memories of mealtime standoffs turn you away from these nutritional powerhouses.`\
 https://www.nytimes.com/2026/06/08/well/eat/peas-health-benefits-recipes.html
