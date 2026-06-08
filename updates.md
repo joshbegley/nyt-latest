@@ -1,3 +1,19 @@
+**Mapa: un terremoto de magnitud 6,1 se registra en el golfo de México cerca de Cuba**\
+`Mira la localización del epicentro del sismo y el área de movimiento.`\
+https://www.nytimes.com/es/interactive/2026/06/08/espanol/cuba-sismo.html
+
+**¿Qué tan saludables son las arvejas o chícharos?**\
+`Los ames o los odies, los llames chícharos, arvejas o guisantes, tienen grandes ventajas.`\
+https://www.nytimes.com/es/2026/06/08/espanol/arvejas-guisantes-salud-beneficios.html
+
+**Ken Paxton’s Former Defense Lawyer Endorses James Talarico**\
+`The lawyer, Dan Cogdell, helped save Mr. Paxton from criminal charges and an impeachment, but now he says the Texas attorney general has “lost sight of his mission.”`\
+https://www.nytimes.com/2026/06/08/us/paxton-lawyer-endorse-talarico.html
+
+**Iran and Israel Halt Military Escalation After Exchanging Strikes**\
+`Iran and Israel de-escalated military hostilities after exchanging strikes, which had briefly jeopardized a two-month cease-fire.`\
+https://www.nytimes.com/video/world/middleeast/100000010951911/israel-iran-attacks-ceasefire.html
+
 **What’s Taking So Long to Count California Ballots?**\
 `Other states with vote-by-mail manage to count much more quickly.`\
 https://www.nytimes.com/2026/06/08/us/california-elections-trump-slow-why.html

@@ -1,3 +1,7 @@
+**Mapa: la trayectoria de la tormenta tropical Cristina en vivo**\
+`Consulta la trayectoria probable y las horas de llegada de los vientos de Cristina.`\
+https://www.nytimes.com/es/interactive/2026/06/08/espanol/cristina-mapa-trayectoria.html
+
 **Mapa: un terremoto de magnitud 6,1 se registra en el golfo de México cerca de Cuba**\
 `Mira la localización del epicentro del sismo y el área de movimiento.`\
 https://www.nytimes.com/es/interactive/2026/06/08/espanol/cuba-sismo.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/08/world/middleeast/houthis-yemen-red-sea-israel
 **Maps: Tracking Tropical Storm Boris**\
 `See the likely path and wind arrival times for Boris`\
 https://www.nytimes.com/interactive/2026/06/08/weather/storm-boris-tracker.html
-
-**Trump Eyes a Piece of A.I. Giants**\
-`The president has publicly weighed the government taking stakes in artificial intelligence giants, as his position on regulating the industry shifts.`\
-https://www.nytimes.com/2026/06/08/business/dealbook/trump-ai-stakes.html
 
 **Live Updates: Iran and Israel Pull Back After Exchange of Strikes**\
 `Prime Minister Benjamin Netanyahu said Israel’s “fire is on hold” after a phone call with President Trump. Iran also said it would cease its attacks but, like Israel, warned it was ready to resume at any time.`\
