@@ -1,3 +1,7 @@
+**Our Favorite Photos From the Tony Awards**\
+`As Broadway’s brightest gather for the industry’s biggest night, here’s an up-close look at what you can’t see on TV.`\
+https://www.nytimes.com/2026/06/07/theater/our-favorite-photos-from-the-tony-awards-red-carpet.html
+
 **Maps: 7.8-Magnitude Earthquake near the Philippines Raises Tsunami Alerts**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/06/07/world/philippines-earthquake-tsunami-alert.html

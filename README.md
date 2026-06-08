@@ -1,4 +1,4 @@
-**Maps: 7.8-Magnitude Earthquake near the Philippines Raises Tsunami Alerts**\
+**Maps: 7.8-Magnitude Earthquake Near the Philippines Raises Tsunami Alerts**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/06/07/world/philippines-earthquake-tsunami-alert.html
 
@@ -7,7 +7,7 @@ https://www.nytimes.com/interactive/2026/06/07/world/philippines-earthquake-tsun
 https://www.nytimes.com/2026/06/07/theater/liberation-tony-awards-best-play.html
 
 **Nithya Raman Overtakes Spencer Pratt in Race for L.A. Mayor**\
-`Ms. Raman, a progressive lawmaker, pulled into second place in the race to see who will face Mayor Karen Bass in November. There are more votes to be counted.`\
+`Nithya Raman pulled into second place in the race to see who will face Mayor Karen Bass in November. There are more votes to be counted.`\
 https://www.nytimes.com/2026/06/07/us/nithya-raman-spencer-pratt-los-angeles-mayor-race.html
 
 **John Lithgow Wins the Tony for Best Actor in a Play**\
