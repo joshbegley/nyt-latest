@@ -1,3 +1,11 @@
+**Trump Administration Seeks to Revoke U.S. Citizenship of 17 Immigrants**\
+`The push to denaturalize more immigrants is the latest sign that the administration is setting its sights on the legal immigration system.`\
+https://www.nytimes.com/2026/06/08/us/politics/trump-denaturalization.html
+
+**Maps: Tracking Tropical Storm Cristina**\
+`See the likely path and wind arrival times for Cristina`\
+https://www.nytimes.com/interactive/2026/06/08/weather/cristina-map-path-tracker.html
+
 **Los iraníes sufren la destrucción de meses de guerra y el aumento de precios**\
 `La implosión de la economía está causando desesperanza tanto entre los iraníes que apoyan al gobierno como entre los que se le oponen.`\
 https://www.nytimes.com/es/2026/06/08/espanol/mundo/guerra-iran-situacion.html
