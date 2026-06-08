@@ -1,3 +1,7 @@
+**Trump dice que nunca prometió que no habría nuevas guerras**\
+`En una larga entrevista con el programa “Meet the Press” de la NBC, el presidente volvió a prometer que los precios de la gasolina bajarían cuando terminara la guerra en Irán.`\
+https://www.nytimes.com/es/2026/06/08/espanol/estados-unidos/trump-nuevas-guerras.html
+
 **Live Updates: Iran and Israel Pull Back After Exchange of Attacks**\
 `Iran signaled that it had concluded its latest strikes against Israel. Prime Minister Benjamin Netanyahu refrained from another attack under pressure from President Trump, a U.S. and two Israeli officials said.`\
 https://www.nytimes.com/live/2026/06/08/world/iran-israel-lebanon-attacks

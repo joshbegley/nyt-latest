@@ -1,3 +1,11 @@
+**Are U.S. and Israel on the Same Page in Mideast Wars?**\
+`President Trump has voiced his frustration with Prime Minister Benjamin Netanyahu of Israel, but it is not clear how able he is to rein in Israeli military action.`\
+https://www.nytimes.com/2026/06/08/world/middleeast/netanyahu-trump-split-iran-lebanon.html
+
+**Gordon S. Wood, Pioneering Historian of Early America, Dies at 92**\
+`In a Pulitzer-winning book, “The Radicalism of the American Revolution,” he wrote that the colonists rose up against an entire worldview, not just against taxation.`\
+https://www.nytimes.com/2026/06/08/books/gordon-s-wood-dead.html
+
 **Trump dice que nunca prometió que no habría nuevas guerras**\
 `En una larga entrevista con el programa “Meet the Press” de la NBC, el presidente volvió a prometer que los precios de la gasolina bajarían cuando terminara la guerra en Irán.`\
 https://www.nytimes.com/es/2026/06/08/espanol/estados-unidos/trump-nuevas-guerras.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/08/us/iphone-birthrate-decline-studies.html
 **What’s the Best Way to Wear a Crop Top?**\
 `A reader wonders whether they are for teenagers only.`\
 https://www.nytimes.com/2026/06/08/fashion/crop-top-styling.html
-
-**The American Family Is at a Breaking Point. Our Politics Have Finally Noticed.**\
-`Society has treated parenting as a private endeavor. But what if raising children is also a public good?`\
-https://www.nytimes.com/2026/06/08/magazine/childcare-mothers-politics.html
-
-**They Got Platner’s Endorsement for Maine Governor. What Did They Do With It?**\
-`The crowded race for governor has barely qualified as background noise in recent months, drowned out by the high-stakes, turbulent campaign for U.S. Senate.`\
-https://www.nytimes.com/2026/06/08/us/maine-governor-platner-nirav-shah.html
 
 **Live Updates: Iran and Israel Pull Back After Exchange of Attacks**\
 `Iran signaled that it had concluded its latest strikes against Israel. Prime Minister Benjamin Netanyahu refrained from another attack under pressure from President Trump, a U.S. and two Israeli officials said.`\
