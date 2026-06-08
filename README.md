@@ -154,8 +154,8 @@ https://www.nytimes.com/es/2026/06/08/espanol/mundo/papa-leon-sanchez-trump.html
 `Prime Minister Nikol Pashinyan overcame a pressure campaign by Moscow and was on track to win a mandate to move ahead on peace talks that President Trump helped broker.`\
 https://www.nytimes.com/2026/06/08/world/europe/armenia-election-results.html
 
-**Live Updates: Iran and Israel Trade Strikes for the First Time Since April**\
-`Iran launched waves of missiles at Israel, while Israel struck military targets and a petrochemical complex in Iran, as an uneasy two-month truce appeared to break down.`\
+**Live Updates: Trump Calls on Iran and Israel to Stop Strikes**\
+`Iran launched waves of missiles at Israel, and Israel said it struck military targets and a petrochemical complex in Iran, as an uneasy two-month truce appeared to break down.`\
 https://www.nytimes.com/live/2026/06/08/world/iran-israel-lebanon-attacks
 
 **Trump, Mamdani and the Knicks: A Manic Monday Awaits New York**\

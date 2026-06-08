@@ -1,3 +1,7 @@
+**French Open 2026: Zverev Wins, but Polarizes**\
+`Alexander Zverev captured his first Grand Slam title, beating Flavio Cobolli in a five-set struggle.`\
+https://www.nytimes.com/2026/06/08/podcasts/french-open-2026-zverev-wins-but-polarizes.html
+
 **La polémica camiseta de México para el Mundial: ¿artesanía o explotación?**\
 `Un grupo de artesanas bordó jerseys para Adidas. Después, activistas denunciaron malas condiciones laborales y explotación. Fuimos a la sierra para hablar con las artesanas.`\
 https://www.nytimes.com/es/2026/06/08/espanol/america-latina/camisetas-mexico-adidas-explotacion.html
