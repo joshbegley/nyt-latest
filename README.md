@@ -1,3 +1,7 @@
+**Mapa: la trayectoria de la tormenta tropical Boris en vivo**\
+`Consulta la trayectoria probable y las horas de llegada de los vientos de Boris.`\
+https://www.nytimes.com/es/interactive/2026/06/08/espanol/boris-mapa-trayectoria.html
+
 **Irán disparó misiles a Israel por primera vez desde el alto al fuego de abril**\
 `Israel había atacado las afueras de la capital libanesa, Beirut, a primera hora del domingo, lo que llevó a Irán a tomar represalias.`\
 https://www.nytimes.com/es/2026/06/08/espanol/mundo/iran-israel-misiles.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/08/opinion/middle-class-liberals-economics.html
 **Want an A.I. Degree? Here’s What You Should Think About.**\
 `The programs are popping up on campuses across America. What they teach varies.`\
 https://www.nytimes.com/2026/06/08/us/ai-studies-major-explained.html
-
-**Shootout in Olde Town Square: A Cop, a Killer and a Good Guy With a Gun**\
-`No community was better prepared for active shooters than Arvada, Colo. Then four men with guns converged in the city center, each on different missions.`\
-https://www.nytimes.com/2026/06/08/us/good-samaritan-arvada-mass-shooting.html
 
 **Live Updates: Iran and Israel Move to De-Escalate After Cease-Fire Breaks Down**\
 `Iran’s Revolutionary Guards Corps signaled that it had concluded its latest military operation against Israel. Prime Minister Benjamin Netanyahu pulled back from preparations for another attack after pushback from President Trump, two Israeli military officials said.`\
