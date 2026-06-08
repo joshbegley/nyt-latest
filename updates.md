@@ -1,3 +1,7 @@
+**Live Updates: Trump Calls on Iran and Israel to Stop Strikes**\
+`Iran launched waves of missiles at Israel, and Israel said it struck military targets and a petrochemical complex in Iran, as an uneasy two-month truce appeared to break down.`\
+https://www.nytimes.com/live/2026/06/08/world/iran-israel-lebanon-attacks
+
 **French Open 2026: Zverev Wins, but Polarizes**\
 `Alexander Zverev captured his first Grand Slam title, beating Flavio Cobolli in a five-set struggle.`\
 https://www.nytimes.com/2026/06/08/podcasts/french-open-2026-zverev-wins-but-polarizes.html
