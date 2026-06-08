@@ -1,6 +1,6 @@
 **Searching for Shade When It’s 125 Degrees**\
 `Every season brings a new struggle for people in Dadu District, Pakistan, an area prone to sandstorms, drought and flooding.`\
-https://www.nytimes.com/2026/06/08/world/asia/searching-for-shade-when-its-125-degrees.html
+https://www.nytimes.com/2026/06/08/world/asia/pakistan-heat-wave.html
 
 **No Corrections: June 8, 2026**\
 `No corrections appeared in print on Monday, June 8, 2026.`\
