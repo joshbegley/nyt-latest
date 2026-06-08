@@ -1,3 +1,11 @@
+**Joshua Henry Wins the Tony for Best Actor in a Musical.**\
+`As Coalhouse Walker Jr. in “Ragtime,” Henry belts out emotional solos that have prompted mid-show standing ovations.`\
+https://www.nytimes.com/2026/06/07/theater/joshua-henry-tony-best-actor-musical.html
+
+**Pink Is Hosting Tonight’s Tony Awards**\
+`The pop star, a former theater kid, will also perform on Sunday. Her theater-loving daughter approves of the gig.`\
+https://www.nytimes.com/2026/06/07/theater/tonys-host-pink.html
+
 **‘Schmigadoon!’ Wins Best Musical Tony Award**\
 `The knowing, and loving, musical theater satire won the coveted award of the night.`\
 https://www.nytimes.com/2026/06/07/theater/schmigadoon-wins-best-musical-tony-award.html
