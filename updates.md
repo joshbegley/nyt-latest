@@ -1,3 +1,15 @@
+**La mujer colombiana deportada a Congo-Kinsasa podría permanecer allí**\
+`En mayo, el juez había dictaminado que la mujer fue deportada indebidamente. Ahora, nuevas pruebas lo llevaron a revocar su decisión.`\
+https://www.nytimes.com/es/2026/06/08/espanol/mundo/colombiana-deportada-congo.html
+
+**Map: 6.1-Magnitude Earthquake Strikes in the Gulf of Mexico Near Cuba**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/08/world/americas/earthquake-tracker-cuba-gulf-mexico.html
+
+**Live Updates: Iran and Israel Pull Back After Exchange of Strikes**\
+`Prime Minister Benjamin Netanyahu said Israel’s “fire is on hold” after a phone call with President Trump. Iran also said it would cease its attacks but, like Israel, warned it was ready to resume at any time.`\
+https://www.nytimes.com/live/2026/06/08/world/iran-israel-lebanon-attacks
+
 **How Elon Musk’s Friendship With the F.C.C. Smooths the Way for SpaceX’s I.P.O.**\
 `Brendan Carr, the chairman of the Federal Communications Commission, has greenlighted regulatory requests for the company’s Starlink satellite internet service and lavished praise on its chief executive.`\
 https://www.nytimes.com/2026/06/08/technology/elon-musk-brendan-carr-fcc-spacex.html

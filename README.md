@@ -1,3 +1,11 @@
+**Who Is Ahead in Maine's 1st Congressional District?**\
+`Track the latest polls in Maine's 1st Congressional District.`\
+https://www.nytimes.com/interactive/polls/maine-us-house-1-polls-2026.html
+
+**Meta Says Israeli Spyware Firm NSO Group Targeted WhatsApp Users Again**\
+`The uncovered hacking attempts on the messaging service were linked to NSO Group and may violate a federal court prohibition against the firm.`\
+https://www.nytimes.com/2026/06/08/us/politics/whatsapp-nso-group-phishing.html
+
 **La mujer colombiana deportada a Congo-Kinsasa podría permanecer allí**\
 `En mayo, el juez había dictaminado que la mujer fue deportada indebidamente. Ahora, nuevas pruebas lo llevaron a revocar su decisión.`\
 https://www.nytimes.com/es/2026/06/08/espanol/mundo/colombiana-deportada-congo.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/06/08/briefing/the-costs-of-war-in-gaza.html
 **Iran and Israel Exchange First Strikes Since Cease-Fire, and Texas Ranchers Sound the Alarm**\
 `Plus, the fight over the fight on the White House lawn.`\
 https://www.nytimes.com/2026/06/08/podcasts/the-headlines/iran-israel-exchange-first-strikes-since-cease-fire-texas-ranchers-screwworm.html
-
-**Congressional Republicans Try a New Approach: Telling Trump No**\
-`President Trump is seemingly making the midterms about revenge, not about what’s best for a party trying to keep control of Congress.`\
-https://www.nytimes.com/2026/06/08/podcasts/the-daily/republicans-trump-iran-war-compensation-fund.html
-
-**NYT Connections Answers for June 9, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, June 9, 2026.`\
-https://www.nytimes.com/2026/06/08/crosswords/connections-companion-1094.html
 
 **Live Updates: Iran and Israel Pull Back After Exchange of Strikes**\
 `Prime Minister Benjamin Netanyahu said Israel’s “fire is on hold” after a phone call with President Trump. Iran also said it would cease its attacks but, like Israel, warned it was ready to resume at any time.`\

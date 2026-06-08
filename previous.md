@@ -1,3 +1,11 @@
+**La mujer colombiana deportada a Congo-Kinsasa podría permanecer allí**\
+`En mayo, el juez había dictaminado que la mujer fue deportada indebidamente. Ahora, nuevas pruebas lo llevaron a revocar su decisión.`\
+https://www.nytimes.com/es/2026/06/08/espanol/mundo/colombiana-deportada-congo.html
+
+**Map: 6.1-Magnitude Earthquake Strikes in the Gulf of Mexico Near Cuba**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/08/world/americas/earthquake-tracker-cuba-gulf-mexico.html
+
 **Trump Administration Seeks to Revoke U.S. Citizenship of 17 Immigrants**\
 `The push to denaturalize more immigrants is the latest sign that the administration is setting its sights on the legal immigration system.`\
 https://www.nytimes.com/2026/06/08/us/politics/trump-denaturalization.html
@@ -182,19 +190,7 @@ https://www.nytimes.com/2026/06/08/podcasts/the-daily/republicans-trump-iran-war
 `Scroll down for hints and conversation about the puzzle for Tuesday, June 9, 2026.`\
 https://www.nytimes.com/2026/06/08/crosswords/connections-companion-1094.html
 
-**NYT Strands Hints for June 9, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, June 9, 2026.`\
-https://www.nytimes.com/2026/06/08/crosswords/strands-sidekick-828.html
-
-**Today’s Wordle Hints for June 9, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, June 9, 2026.`\
-https://www.nytimes.com/2026/06/08/crosswords/wordle-review-1816.html
-
-**French Open 2026: Zverev Wins, but Polarizes**\
-`Alexander Zverev captured his first Grand Slam title, beating Flavio Cobolli in a five-set struggle.`\
-https://www.nytimes.com/2026/06/08/podcasts/french-open-2026-zverev-wins-but-polarizes.html
-
-**Live Updates: Iran and Israel Pull Back After Exchange of Attacks**\
-`Iran signaled that it had concluded its latest strikes against Israel. Prime Minister Benjamin Netanyahu refrained from another attack under pressure from President Trump, a U.S. and two Israeli officials said.`\
+**Live Updates: Iran and Israel Pull Back After Exchange of Strikes**\
+`Prime Minister Benjamin Netanyahu said Israel’s “fire is on hold” after a phone call with President Trump. Iran also said it would cease its attacks but, like Israel, warned it was ready to resume at any time.`\
 https://www.nytimes.com/live/2026/06/08/world/iran-israel-lebanon-attacks
 
