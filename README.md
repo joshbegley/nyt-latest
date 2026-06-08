@@ -1,3 +1,11 @@
+**A Landmark Tonys Win for the Trans Costume Designer Qween Jean**\
+`Qween Jean won for “Cats: The Jellicle Ball,” becoming the first openly transgender person to win a Tony Award, according to a “Cats” publicist.`\
+https://www.nytimes.com/2026/06/07/theater/qween-jean-transgender-costume-design.html
+
+**La princesa Mette-Marit de Noruega espera un trasplante de pulmón**\
+`La noticia del empeoramiento del estado de salud de la princesa se produce cuando una serie de escándalos ha sumido a la familia real en una profunda crisis.`\
+https://www.nytimes.com/es/2026/06/07/espanol/mundo/princesa-noruega-transplante-pulmon.html
+
 **Pink Is Hosting Tonight’s Tony Awards.**\
 `The pop star, a former theater kid, will also perform on Sunday. Her theater-loving daughter approves of the gig.`\
 https://www.nytimes.com/2026/06/07/theater/tonys-host-pink.html
@@ -157,12 +165,4 @@ https://www.nytimes.com/2026/06/07/opinion/mothers-postpartum-care.html
 **Hegseth Criticizes Europe Over Migration ‘Invasion’ in D-Day Speech**\
 `The remarks from Defense Secretary Pete Hegseth reflect many of the Trump administration’s previous assertions on immigrants in Europe, which overlap with the language of European far-right political parties.`\
 https://www.nytimes.com/2026/06/07/us/politics/hegseth-europe-migration-d-day.html
-
-**Touching Grass**\
-`There’s no better time than early summer to put away your phone and get some fresh air. We have a challenge to help you actually do it.`\
-https://www.nytimes.com/2026/06/07/briefing/touching-grass.html
-
-**My Life Lessons From M.M.A. Fighting**\
-`There are lessons in competitive fighting that I never expected to learn.`\
-https://www.nytimes.com/2026/06/07/opinion/fighting-competitive-men-masculinity.html
 
