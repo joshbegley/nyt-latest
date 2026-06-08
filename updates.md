@@ -1,3 +1,11 @@
+**OpenAI Files to Go Public as A.I. Companies Rush to Wall St.**\
+`The company hopes to raise billions in a highly anticipated public offering that could unlock a new generation of tech industry wealth.`\
+https://www.nytimes.com/2026/06/08/technology/openai-ipo.html
+
+**Trump Nominates Blanche for Attorney General, Setting Up Confirmation Fight**\
+`As acting attorney general, Todd Blanche has shown a willingness to execute the president’s maximalist demands. Whether the Senate will confirm him remains unclear.`\
+https://www.nytimes.com/2026/06/08/us/politics/trump-todd-blanche-attorney-general.html
+
 **La tormenta tropical Boris se acerca México y Cristina crece cerca de Nicaragua**\
 `La temporada de huracanes en el Pacífico ya está muy activa.`\
 https://www.nytimes.com/es/2026/06/08/espanol/tiempo-y-clima/tormenta-tropical-boris-cristina-mexico.html
