@@ -1,3 +1,15 @@
+**Trump Wants to Call the Shots. But in Iran, He Keeps Hitting His Limits.**\
+`President Trump is grappling with his own version of the sort of Middle East crisis that beset his predecessors, and that he promised to avoid.`\
+https://www.nytimes.com/2026/06/08/us/politics/trump-iran-war-middle-east.html
+
+**Hoyle Schweitzer, Who Brought Windsurfing to the Masses, Dies at 93**\
+`With his friend Jim Drake, he built the Windsurfer, a sailboard that was cheaper and more portable than most sailboats. It became a global phenomenon.`\
+https://www.nytimes.com/2026/06/08/business/hoyle-schweitzer-dead.html
+
+**El gobierno de Trump busca quitar la ciudadanía de EE. UU. a 17 migrantes**\
+`La campaña para remover la ciudadanía estadounidense a más migrantes es una nueva señal de que el gobierno se está enfocando en el sistema migratorio legal.`\
+https://www.nytimes.com/es/2026/06/08/espanol/estados-unidos/trump-quitar-ciudadania-migrantes.html
+
 **U.S. Denies Entry to World Cup Referee From Somalia**\
 `Omar Artan was one of 52 referees selected for the FIFA World Cup. But on Saturday he was denied entry because of “vetting concerns,” U.S. officials said.`\
 https://www.nytimes.com/2026/06/08/world/africa/somalian-world-cup-referee-denied-us-entry.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/06/08/science/ai-scoop-young-mathematicians.html
 **Iran-Israel Escalation Ignited in Lebanon, Which Is Trapped in Their Conflict**\
 `The power struggle between Iran and Israel to define the new rules of the Middle East plays out in Lebanon, which the other two countries have used to pursue their own ends.`\
 https://www.nytimes.com/2026/06/08/world/middleeast/lebanon-israel-iran.html
-
-**The One Tony Award Our Readers Would Have Changed**\
-`Thousands of people contributed their Broadway favorites of the season ahead of the Tony Awards. Here’s how their votes stacked up.`\
-https://www.nytimes.com/2026/06/08/theater/readers-tony-awards-voting.html
-
-**Who Is Ahead in Connecticut's 1st Congressional District?**\
-`Track the latest polls in Connecticut's 1st Congressional District.`\
-https://www.nytimes.com/interactive/polls/connecticut-us-house-1-polls-2026.html
-
-**China Reasserts Itself, to Contain North Korea’s Tilt Toward Russia**\
-`On a rare visit to North Korea, China’s leader, Xi Jinping, projected unity but also sought to remind Kim Jong-un that he is the senior partner in their alliance.`\
-https://www.nytimes.com/2026/06/08/world/asia/xi-kim-china-north-korea-summit.html
 

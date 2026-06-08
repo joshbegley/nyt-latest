@@ -1,3 +1,15 @@
+**Trump Wants to Call the Shots. But in Iran, He Keeps Hitting His Limits.**\
+`President Trump is grappling with his own version of the sort of Middle East crisis that beset his predecessors, and that he promised to avoid.`\
+https://www.nytimes.com/2026/06/08/us/politics/trump-iran-war-middle-east.html
+
+**Hoyle Schweitzer, Who Brought Windsurfing to the Masses, Dies at 93**\
+`With his friend Jim Drake, he built the Windsurfer, a sailboard that was cheaper and more portable than most sailboats. It became a global phenomenon.`\
+https://www.nytimes.com/2026/06/08/business/hoyle-schweitzer-dead.html
+
+**El gobierno de Trump busca quitar la ciudadanía de EE. UU. a 17 migrantes**\
+`La campaña para remover la ciudadanía estadounidense a más migrantes es una nueva señal de que el gobierno se está enfocando en el sistema migratorio legal.`\
+https://www.nytimes.com/es/2026/06/08/espanol/estados-unidos/trump-quitar-ciudadania-migrantes.html
+
 **U.S. Denies Entry to World Cup Referee From Somalia**\
 `Omar Artan was one of 52 referees selected for the FIFA World Cup. But on Saturday he was denied entry because of “vetting concerns,” U.S. officials said.`\
 https://www.nytimes.com/2026/06/08/world/africa/somalian-world-cup-referee-denied-us-entry.html
