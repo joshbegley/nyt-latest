@@ -1,3 +1,19 @@
+**At the Tony Awards After-Parties, a ‘Harry Potter’ Reunion and Winner Celebrations**\
+`A crowd that included Daniel Radcliffe, Cole Escola and Carrie Coon celebrated with whiskey ice cream at Rockefeller Center and show tunes at the Carlyle hotel.`\
+https://www.nytimes.com/2026/06/08/style/tony-awards-after-parties.html
+
+**How Healthy Are Peas?**\
+`Don’t let childhood memories of mealtime standoffs turn you away from these nutritional powerhouses.`\
+https://www.nytimes.com/2026/06/08/well/eat/peas-health-benefits-recipes.html
+
+**The Iran War is Forcing Energy-Importing Countries to Turn Inward**\
+`The Iran war is pushing countries to prioritize domestic energy in order to protect themselves from volatile oil and natural gas markets.`\
+https://www.nytimes.com/2026/06/08/business/energy-environment/iran-war-energy-oil.html
+
+**Have a Thorny Medical Question? Your Doctor May Be Using A.I. for That.**\
+`OpenEvidence, a fast-growing start-up, is using artificial intelligence to help doctors find answers to clinical questions for diagnosis and treatment.`\
+https://www.nytimes.com/2026/06/08/business/ai-medicine-doctors.html
+
 **Houthis Threaten to Widen Iran War by Blocking Israeli Shipping in Red Sea**\
 `The Yemeni militia group, which is backed by Iran, said it would impose a partial blockade in the waterway, a move that would further strangle supply routes and aggravate the conflict in the Mideast.`\
 https://www.nytimes.com/2026/06/08/world/middleeast/houthis-yemen-red-sea-israel-shipping.html
