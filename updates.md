@@ -1,3 +1,7 @@
+**How Elon Musk’s Friendship With the F.C.C. Smooths the Way for SpaceX’s I.P.O.**\
+`Brendan Carr, the chairman of the Federal Communications Commission, has greenlighted regulatory requests for the company’s Starlink satellite internet service and lavished praise on its chief executive.`\
+https://www.nytimes.com/2026/06/08/technology/elon-musk-brendan-carr-fcc-spacex.html
+
 **U.S. Judge Reverses Decision on Colombian Woman Deported to Congo**\
 `The judge had previously ruled that the woman had been improperly deported by the Trump administration and had ordered her returned to the United States.`\
 https://www.nytimes.com/2026/06/08/world/africa/trump-deportation-us-judge-congo-colombia.html

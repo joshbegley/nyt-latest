@@ -190,11 +190,7 @@ https://www.nytimes.com/2026/06/08/crosswords/strands-sidekick-828.html
 `Scroll down for hints and conversation about the puzzle for Tuesday, June 9, 2026.`\
 https://www.nytimes.com/2026/06/08/crosswords/wordle-review-1816.html
 
-**French Open 2026: Zverev Wins, but Polarizes**\
-`Alexander Zverev captured his first Grand Slam title, beating Flavio Cobolli in a five-set struggle.`\
-https://www.nytimes.com/2026/06/08/podcasts/french-open-2026-zverev-wins-but-polarizes.html
-
-**Live Updates: Iran and Israel Pull Back After Exchange of Attacks**\
-`Iran signaled that it had concluded its latest strikes against Israel. Prime Minister Benjamin Netanyahu refrained from another attack under pressure from President Trump, a U.S. and two Israeli officials said.`\
+**Live Updates: Iran and Israel Pull Back After Exchange of Strikes**\
+`Prime Minister Benjamin Netanyahu said Israel’s “fire is on hold” after a phone call with President Trump. Iran also said it would cease its attacks but, like Israel, warned it was ready to resume at any time.`\
 https://www.nytimes.com/live/2026/06/08/world/iran-israel-lebanon-attacks
 
