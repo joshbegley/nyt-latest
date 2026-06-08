@@ -1,3 +1,7 @@
+**Joshua Henry wins the Tony for best actor in a musical.**\
+`As Coalhouse Walker Jr. in “Ragtime,” Henry belts out emotional solos that have prompted mid-show standing ovations.`\
+https://www.nytimes.com/2026/06/07/theater/joshua-henry-tony-best-actor-musical.html
+
 **6 Wounded in Stabbing at New York Penn Station**\
 `A man whose identity has not been released was taken into custody by Amtrak police officers. All of the victims were expected to survive.`\
 https://www.nytimes.com/2026/06/07/nyregion/penn-station-stabbing.html
@@ -82,8 +86,8 @@ https://www.nytimes.com/2026/06/07/style/tony-awards-2026-red-carpet-looks.html
 `A lower court last month found that the ads from the charity, known for its ear-worm jingle, had violated false-advertising laws.`\
 https://www.nytimes.com/2026/06/07/us/kars4kids-california-appeals-court.html
 
-**Tony Awards 2026 Live Updates: ‘Death of a Salesman’ Wins Best Play Revival, Extending Big Night**\
-`“Death of a Salesman” is leading with six prizes. “Ragtime” won best musical revival, while John Lithgow, Laurie Metcalf and Lesley Manville are among the winners.`\
+**Tony Awards 2026 Live Updates: Joshua Henry and Caissie Levy Win Top Acting Prizes for ‘Ragtime’**\
+`“Ragtime” also won best musical revival, while “Death of a Salesman” leads with six prizes. John Lithgow, Laurie Metcalf and Lesley Manville are among the other winners.`\
 https://www.nytimes.com/live/2026/06/07/theater/tony-awards-2026
 
 **A Voice for Ukraine’s Soldiers**\
@@ -147,14 +151,6 @@ https://www.nytimes.com/2026/06/07/us/politics/lawsuit-ufc-fight-white-house.htm
 https://www.nytimes.com/2026/06/07/arts/television/scott-pelley-60-minutes-interview-takeaways.html
 
 **Search Continues for Gunmen Who Opened Fire at Ohio Festival**\
-`Two men fired weapons at each other during a festival in the historic Old West End neighborhood of Toledo, injuring at least a dozen people.`\
+`Two men fired weapons at each other during a festival in the historic Old West End neighborhood of Toledo, wounding at least a dozen people.`\
 https://www.nytimes.com/2026/06/07/us/ohio-festival-shooting-gunmen-search.html
-
-**Sheinbaum ya no puede postergar el ajuste de cuentas**\
-`La presidenta de México podría convertir las exigencias de Washington en una oportunidad para hacer una limpieza interna dentro de su partido y más allá.`\
-https://www.nytimes.com/es/2026/06/07/espanol/opinion/sheinbaum-mexico-carteles-corrupcion.html
-
-**Map: 3.6-Magnitude Earthquake Shakes the San Francisco Bay Area**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/06/07/us/quake-tracker-san-francisco-bay-area.html
 
