@@ -1,3 +1,7 @@
+**Trump Eyes a Piece of A.I. Giants**\
+`The president has publicly weighed the government taking stakes in artificial intelligence giants, as his position on regulating the industry shifts.`\
+https://www.nytimes.com/2026/06/08/business/dealbook/trump-ai-stakes.html
+
 **Mapa: la trayectoria de la tormenta tropical Cristina en vivo**\
 `Consulta la trayectoria probable y las horas de llegada de los vientos de Cristina.`\
 https://www.nytimes.com/es/interactive/2026/06/08/espanol/cristina-mapa-trayectoria.html

@@ -1,3 +1,11 @@
+**Vance Blames Migrant ‘Invasion’ for UK Stabbing**\
+`British officials accused Vice President JD Vance of trying to “stir up division” in his comments on the murder of Henry Nowak, whose killer was sentenced to life in prison last week.`\
+https://www.nytimes.com/2026/06/08/world/europe/vance-uk-stabbing-migrants.html
+
+**Mapa: la trayectoria de la tormenta tropical Cristina en vivo**\
+`Consulta la trayectoria probable y las horas de llegada de los vientos de Cristina.`\
+https://www.nytimes.com/es/interactive/2026/06/08/espanol/cristina-mapa-trayectoria.html
+
 **Mapa: un terremoto de magnitud 6,1 se registra en el golfo de México cerca de Cuba**\
 `Mira la localización del epicentro del sismo y el área de movimiento.`\
 https://www.nytimes.com/es/interactive/2026/06/08/espanol/cuba-sismo.html
@@ -18,8 +26,8 @@ https://www.nytimes.com/2026/06/08/us/california-elections-trump-slow-why.html
 `The Justice Department said it likely did not have legal grounds for capital punishment in the case of a man accused of killing Melissa Hortman, a Minnesota legislator, and her husband.`\
 https://www.nytimes.com/2026/06/08/us/vance-boelter-death-penalty-minnesota-hortman.html
 
-**Judge Throws Out Policy Imposing $100,000 Fees for Skilled Worker Visas**\
-`The ruling voided “in its entirety” a policy from September requiring companies to pay $100,000 fees for H1-B visa petitions.`\
+**Judge Throws Out Trump Administration’s Policy Imposing $100,000 Fees for H-1B Visas**\
+`The ruling voided “in its entirety” a policy from September requiring companies to pay $100,000 fees for H-1B visa petitions.`\
 https://www.nytimes.com/2026/06/08/us/politics/judge-visa-skilled-workers-fee-trump.html
 
 **Who Is Ahead in Maine's 1st Congressional District?**\
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/06/08/business/energy-environment/iran-war-energy-o
 **Houthis Threaten to Widen Iran War by Blocking Israeli Shipping in Red Sea**\
 `The Yemeni militia group, which is backed by Iran, said it would impose a partial blockade in the waterway, a move that would further strangle supply routes and aggravate the conflict in the Mideast.`\
 https://www.nytimes.com/2026/06/08/world/middleeast/houthis-yemen-red-sea-israel-shipping.html
-
-**Maps: Tracking Tropical Storm Boris**\
-`See the likely path and wind arrival times for Boris`\
-https://www.nytimes.com/interactive/2026/06/08/weather/storm-boris-tracker.html
-
-**Trump Eyes a Piece of A.I. Giants**\
-`The president has publicly weighed the government taking stakes in artificial intelligence giants, as his position on regulating the industry shifts.`\
-https://www.nytimes.com/2026/06/08/business/dealbook/trump-ai-stakes.html
 
 **Live Updates: Iran and Israel Pull Back After Exchange of Strikes**\
 `Prime Minister Benjamin Netanyahu said Israel’s “fire is on hold” after a phone call with President Trump. Iran also said it would cease its attacks but, like Israel, warned it was ready to resume at any time.`\
