@@ -1,3 +1,7 @@
+**U.S. Judge Reverses Decision on Colombian Woman Deported to Congo**\
+`The judge had previously ruled that the woman had been improperly deported by the Trump administration and had ordered her returned to the United States.`\
+https://www.nytimes.com/2026/06/08/world/africa/trump-deportation-us-judge-congo-colombia.html
+
 **Trump Administration Seeks to Revoke U.S. Citizenship of 17 Immigrants**\
 `The push to denaturalize more immigrants is the latest sign that the administration is setting its sights on the legal immigration system.`\
 https://www.nytimes.com/2026/06/08/us/politics/trump-denaturalization.html
