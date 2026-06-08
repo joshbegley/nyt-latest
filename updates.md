@@ -1,3 +1,11 @@
+**Are U.S. and Israel on the Same Page in Mideast Wars?**\
+`President Trump has voiced his frustration with Prime Minister Benjamin Netanyahu of Israel, but it is not clear how able he is to rein in Israeli military action.`\
+https://www.nytimes.com/2026/06/08/world/middleeast/netanyahu-trump-split-iran-lebanon.html
+
+**Gordon S. Wood, Pioneering Historian of Early America, Dies at 92**\
+`In a Pulitzer-winning book, “The Radicalism of the American Revolution,” he wrote that the colonists rose up against an entire worldview, not just against taxation.`\
+https://www.nytimes.com/2026/06/08/books/gordon-s-wood-dead.html
+
 **Trump dice que nunca prometió que no habría nuevas guerras**\
 `En una larga entrevista con el programa “Meet the Press” de la NBC, el presidente volvió a prometer que los precios de la gasolina bajarían cuando terminara la guerra en Irán.`\
 https://www.nytimes.com/es/2026/06/08/espanol/estados-unidos/trump-nuevas-guerras.html
