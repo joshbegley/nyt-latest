@@ -1,3 +1,7 @@
+**Videos Show Chinese Businesses Hawking North Korean Labor**\
+`On social media, Chinese entrepreneurs are touting cheap labor across the border, as trade between the two countries regains momentum.`\
+https://www.nytimes.com/2026/06/08/world/asia/chinese-businesses-north-korea.html
+
 **Man Who Fatally Stabbed Gay Dancer Convicted of Hate Crime Charge**\
 `Dmitriy Popov, 20, who killed O’Shae Sibley, 28, at a gas station in Brooklyn was found guilty of manslaughter as a hate crime, which carries a sentence of up to 25 years.`\
 https://www.nytimes.com/2026/06/08/nyregion/oshae-sibley-murder-hate-crime.html
@@ -11,7 +15,7 @@ https://www.nytimes.com/2026/06/08/us/politics/trump-todd-blanche-attorney-gener
 https://www.nytimes.com/2026/06/08/us/politics/trump-netanyahu-iran-call.html
 
 **Apple Reveals New A.I.-Powered Version of Its Siri Digital Assistant**\
-`The iPhone maker revealed its new artificial intelligence products at its developer conference, the last with Tim Cook as the company’s chief executive.`\
+`The iPhone maker revealed its new artificial intelligence products at its developer conference, the last with Tim Cook as chief executive.`\
 https://www.nytimes.com/2026/06/08/technology/apple-ai-siri.html
 
 **Watch Parties Canceled as Police Tighten Security at N.B.A. Finals**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/es/2026/06/08/espanol/estados-unidos/trump-nuevas-guerra
 **Yewande Komolafe’s Mushroom-Stuffed Plantains**\
 `(No description)`\
 https://www.nytimes.com/2026/06/08/dining/yewande-komolafes-mushroom-stuffed-plantains.html
-
-**There’s a Better Way to Catch Seafood**\
-`Bottom trawlers kill or maim everything in their path. We should ban — or at least curtail — the incredibly harmful practice.`\
-https://www.nytimes.com/2026/06/08/opinion/fishing-bottom-trawlers-seafood.html
 
