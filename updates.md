@@ -1,0 +1,168 @@
+**Pink Is Hosting Tonight’s Tony Awards.**\
+`The pop star, a former theater kid, will also perform on Sunday. Her theater-loving daughter approves of the gig.`\
+https://www.nytimes.com/2026/06/07/theater/tonys-host-pink.html
+
+**Huge Runaway Flag Knocks Out Power to Thousands of Connecticut Customers**\
+`The flag flew into transmission lines on Saturday night, affecting 5,000 customers. In a separate episode on Sunday, 40,000 customers lost power, according to Eversource Energy.`\
+https://www.nytimes.com/2026/06/07/nyregion/american-flag-power-outages-connecticut.html
+
+**Iran Fires Missiles at Israel for First Time Since April**\
+`Iran attacked Israel with a limited number of ballistic missiles late Sunday after an Israeli attack in the outskirts of Beirut against Hezbollah, the Iranian-backed militant group.`\
+https://www.nytimes.com/video/world/middleeast/100000010950217/iran-fires-missiles-at-israel-for-first-time-since-april.html
+
+**Tony Award Winners 2026: The Updating List**\
+`The Tony Awards are underway at Radio City Music Hall in New York City.`\
+https://www.nytimes.com/2026/06/07/theater/tony-award-winners-2026-the-updating-list.html
+
+**Our Favorite Photos From the Tony Awards Red Carpet**\
+`As Broadway’s brightest arrive for the industry’s biggest night, here’s an up-close look at what you can’t see on TV.`\
+https://www.nytimes.com/2026/06/07/theater/our-favorite-photos-from-the-tony-awards-red-carpet.html
+
+**Robert Coles, Pulitzer-Winning Child Psychiatrist, Is Dead at 97**\
+`His five-volume “Children of Crisis” series, published between 1967 and 1977, drew on his conversations with American children whose voices were not often heard.`\
+https://www.nytimes.com/2026/06/07/us/robert-coles-dead.html
+
+**NYT Crossword Answers for June 8, 2026**\
+`Tom McCoy’s crossword is more than standard fare.`\
+https://www.nytimes.com/2026/06/07/crosswords/daily-puzzle-2026-06-08.html
+
+**Tony Awards 2026 Red Carpet: See the Looks of Broadway’s Biggest Stars**\
+`Broadway’s biggest names have started to arrive for the 79th Tony Awards. Here’s what they wore to walk the midnight blue carpet.`\
+https://www.nytimes.com/2026/06/07/style/tony-awards-2026-red-carpet-looks.html
+
+**Kars4Kids Can Continue Broadcasting Ads in California, Appeals Court Says**\
+`A lower court last month found that the ads from the charity, known for its ear-worm jingle, had violated false-advertising laws.`\
+https://www.nytimes.com/2026/06/07/us/kars4kids-california-appeals-court.html
+
+**Tonys 2026 Live Updates: ‘Schmigadoon!’ Wins Key Preshow Awards as Stars Arrive on Red Carpet**\
+`The first awards of the night are being handed out during a preshow ceremony, with the main event starting at 8 p.m. Eastern time. Pink will host a celebration filled with nostalgic performances.`\
+https://www.nytimes.com/live/2026/06/07/theater/tony-awards-2026
+
+**A Voice for Ukraine’s Soldiers**\
+`Meet the rights defender charged with protecting the country’s fighters — not from Russia, but from abuses by their own commanders.`\
+https://www.nytimes.com/2026/06/07/world/08int-theworld-ukraine-iran-israel-world-cup.html
+
+**Arab Israeli Opens Fire, Killing 1 and Injuring at Least 5**\
+`The gunman drove around several locations in central Israel on Sunday, shooting from his car. He killed one man and injured at least five in what authorities called a terrorist attack.`\
+https://www.nytimes.com/video/world/europe/100000010949901/arab-israeli-opens-fire-killing-1-and-injuring-at-least-5.html
+
+**Tribeca Festival Denounces Pair Who Joked on the Red Carpet About Rape**\
+`A clip of the actor Elon Gold with Lizzy Savetsky, a social media influencer, at the premiere of “The Wedding Entertainer” has been circulating online.`\
+https://www.nytimes.com/2026/06/07/world/middleeast/tribeca-film-festival-response-palestinian-joke.html
+
+**Nearly 11,000 Bottles of Bourbon Are Stolen From a Philadelphia Warehouse**\
+`The bottles, worth about $500,000, were taken in what company officials called a “coordinated cargo theft operation carried out in broad daylight.”`\
+https://www.nytimes.com/2026/06/07/us/bourbon-philadelphia-stolen-cargo.html
+
+**Live Updates: Iran Fires Missiles at Israel for First Time Since April Cease-Fire**\
+`Israel had attacked the outskirts of the Lebanese capital, Beirut, earlier Sunday, prompting Iran to retaliate. There were no immediate reports of casualties from the missile attack.`\
+https://www.nytimes.com/live/2026/06/07/world/iran-israel-missiles
+
+**Iran Fires Missiles at Israel for First Time Since April Cease-Fire**\
+`Israel had struck the outskirts of the Lebanese capital, Beirut, earlier on Sunday, prompting Iran to retaliate.`\
+https://www.nytimes.com/2026/06/07/world/middleeast/iran-israel-missiles.html
+
+**For Trump, the World Is for the Taking**\
+`Trump has ushered in a new era of fuzzy foreign policy. In an era when powerful leaders are tempted to blur the lines of legal borders, the political scientists Stephen E. Hanson and Jeffrey S. Kopstein warn about the dangerous ramifications of their taking what they please.`\
+https://www.nytimes.com/video/opinion/100000010940107/for-trump-the-world-is-for-the-taking.html
+
+**Bruce Springsteen Talks About His Place in American Music**\
+`As he opens an expansive cultural center not far from the Jersey Shore boardwalk, the singer describes himself as “a small link in a big chain.”`\
+https://www.nytimes.com/2026/06/07/style/bruce-springsteen-talks-about-his-place-in-american-music.html
+
+**‘Scary Movie’ Returns Politically Incorrect Humor to Top of the Box Office**\
+`The film took in $55 million over the weekend in the United States and Canada. It was the biggest opening for an R-rated comedy in 12 years.`\
+https://www.nytimes.com/2026/06/07/business/media/scary-movie-politically-incorrect-humor.html
+
+**Knicks Watch Party at MSG Is Canceled as Game 3 Security Ramps Up for Trump**\
+`President Trump and Mayor Zohran Mamdani are expected to attend the game on Monday at Madison Square Garden. A viewing party on Friday led to more than a dozen arrests.`\
+https://www.nytimes.com/2026/06/07/nyregion/knicks-watch-party-msg-canceled-trump.html
+
+**Democrats in Congress Grapple With Concerns Over Platner Allegations**\
+`Representative Ro Khanna said that he believed the account of a woman who accused Graham Platner of physically threatening behavior, and urged his campaign not to criticize her.`\
+https://www.nytimes.com/2026/06/07/us/politics/platner-democrats-congress-reaction.html
+
+**‘Earth, Wind & Fire’ Review: Questlove’s Tribute to an Inspiration**\
+`In “To Be Celestial vs. That’s the Weight of the World,” he draws a compelling portrait of Maurice White, the band’s founder, and his enduring legacy.`\
+https://www.nytimes.com/2026/06/07/movies/earth-wind-fire-hbo-documentary.html
+
+**Muere Alan Riding, corresponsal del Times en México y París, a los 82 años**\
+`Fue un observador cosmopolita y perspicaz de los conflictos de la región. Sus coberturas abarcaron la política y las insurgencias de Latinoamérica, así como bulevares de París y los salones de Lisboa.`\
+https://www.nytimes.com/es/2026/06/07/espanol/muere-alan-riding.html
+
+**Lawsuit Aims to Stop U.F.C. Fights at White House on Trump’s Birthday**\
+`A federal lawsuit said the event, set for June 14, was unlawfully planned and designed to benefit Mr. Trump and his allies.`\
+https://www.nytimes.com/2026/06/07/us/politics/lawsuit-ufc-fight-white-house.html
+
+**5 Takeaways From Scott Pelley’s Interview With The New York Times**\
+`Mr. Pelley, who was at CBS News for 37 years, including as a White House correspondent and a “60 Minutes” correspondent, spoke in his first extended interview since he was fired.`\
+https://www.nytimes.com/2026/06/07/arts/television/scott-pelley-60-minutes-interview-takeaways.html
+
+**Search Continues for Gunmen Who Opened Fire at Ohio Festival**\
+`Two men fired weapons at each other during a festival in the historic Old West End neighborhood of Toledo, injuring at least a dozen people.`\
+https://www.nytimes.com/2026/06/07/us/ohio-festival-shooting-gunmen-search.html
+
+**Sheinbaum ya no puede postergar el ajuste de cuentas**\
+`La presidenta de México podría convertir las exigencias de Washington en una oportunidad para hacer una limpieza interna dentro de su partido y más allá.`\
+https://www.nytimes.com/es/2026/06/07/espanol/opinion/sheinbaum-mexico-carteles-corrupcion.html
+
+**Map: 3.6-Magnitude Earthquake Shakes the San Francisco Bay Area**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/07/us/quake-tracker-san-francisco-bay-area.html
+
+**Iranians Sink Into Despair Facing War Deaths and Skyrocketing Inflation**\
+`An imploding economy is causing hopelessness among both pro- and anti-government Iranians. And for those who wished for regime change, the letdown is palpable.`\
+https://www.nytimes.com/2026/06/07/world/middleeast/iranians-despair-war-economy-inflation.html
+
+**Ukraine Turns to Europe as U.S. Steps Back as Mediator in Peace Talks**\
+`President Volodymyr Zelensky traveled to London to meet with the leaders of Britain, Germany and France, whom he said could be negotiators in talks with Russia.`\
+https://www.nytimes.com/2026/06/07/world/europe/ukraine-europe-russia-us-peace-talks.html
+
+**Israel Bombs Beirut Outskirts as Fighting With Hezbollah Escalates**\
+`U.S. efforts for a truce in Lebanon appear to have stalled. Israel accused Hezbollah of firing at Israeli territory. Iran swiftly retaliated.`\
+https://www.nytimes.com/2026/06/07/world/middleeast/israel-beirut-attacks-hezbollah.html
+
+**Trump Defends Compensation Fund and Iran War in ‘Meet the Press’ Interview**\
+`In a lengthy interview with NBC’s “Meet the Press,” the president again vowed that gas prices would go down when the war in Iran ends.`\
+https://www.nytimes.com/2026/06/07/us/politics/trump-new-wars-compensation-fund.html
+
+**This Vanilla Sheet-Pan Cake Is Ready to Party**\
+`Easy to make, easy to transport and easy to love.`\
+https://www.nytimes.com/2026/06/07/dining/this-vanilla-sheet-pan-cake-is-ready-to-party.html
+
+**James Talarico Isn’t the Only One**\
+`It’s midterm season, and the Democrats are trying to win back Congress. Is running white Christian clergy members the answer?`\
+https://www.nytimes.com/2026/06/07/briefing/james-talarico-isnt-the-only-one.html
+
+**El aeropuerto de CDMX se renovó para el Mundial. ¿Qué pasará después?**\
+`El aeropuerto, de casi 100 años de antigüedad, ha sido objeto de una veloz remodelación con valor de 500 millones de dólares. Los expertos dicen que no es suficiente.`\
+https://www.nytimes.com/es/2026/06/07/espanol/america-latina/aeropuerto-ciudad-mexico-mundial.html
+
+**OPEC Plus to Boost Oil Production as Ceasefire in Iran Remains Elusive**\
+`The cartel’s move to increase output by 188,000 barrels per day is largely symbolic, with vast amounts of the world’s oil stranded by the effective shutdown of the Strait of Hormuz.`\
+https://www.nytimes.com/2026/06/07/business/opec-oil-production-iran-war.html
+
+**Map: 5.2-Magnitude Earthquake Shakes Greece**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/07/world/quake-tracker-greece.html
+
+**Tangy and Bold Chile Tofu**\
+`Hetty Lui McKinnon’s new take on a popular Indo-Chinese stir-fry pairs the mild protein with a bold, punchy sauce.`\
+https://www.nytimes.com/2026/06/07/dining/tangy-and-bold-chile-tofu.html
+
+**The Postpartum Care That Mothers Need**\
+`Readers respond to an doctor’s essay about the health care system’s failures to meet the needs of postpartum mothers. Also: Hungary as a role model.`\
+https://www.nytimes.com/2026/06/07/opinion/mothers-postpartum-care.html
+
+**Hegseth Criticizes Europe Over Migration ‘Invasion’ in D-Day Speech**\
+`The remarks from Defense Secretary Pete Hegseth reflect many of the Trump administration’s previous assertions on immigrants in Europe, which overlap with the language of European far-right political parties.`\
+https://www.nytimes.com/2026/06/07/us/politics/hegseth-europe-migration-d-day.html
+
+**Touching Grass**\
+`There’s no better time than early summer to put away your phone and get some fresh air. We have a challenge to help you actually do it.`\
+https://www.nytimes.com/2026/06/07/briefing/touching-grass.html
+
+**My Life Lessons From M.M.A. Fighting**\
+`There are lessons in competitive fighting that I never expected to learn.`\
+https://www.nytimes.com/2026/06/07/opinion/fighting-competitive-men-masculinity.html
+
