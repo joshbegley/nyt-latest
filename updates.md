@@ -1,3 +1,7 @@
+**Iran and Israel Move to De-Escalate After Hours of Fighting**\
+`Iran and Israel signaled that they would move to de-escalate military hostilities after exchanging strikes for the first time since April.`\
+https://www.nytimes.com/video/world/middleeast/100000010951911/israel-iran-attacks-ceasefire.html
+
 **Why Iran Risked an Attack on Israel**\
 `For Tehran, retaliating for strikes against Hezbollah in Lebanon shows that it will stand by its regional allies and block attempts to shift the regional balance of power.`\
 https://www.nytimes.com/2026/06/08/world/middleeast/israel-iran-strikes-regional-gains.html

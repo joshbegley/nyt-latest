@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/06/08/opinion/fishing-bottom-trawlers-seafood.html
 https://www.nytimes.com/interactive/2026/06/08/books/review/future-worlds-quiz.html
 
 **Iran and Israel Move to De-Escalate After Hours of Fighting**\
-`Iran and Israel signaled that they would move to de-escalate military hostilities after exchanging strikes for the first time since April, briefly breaking an uneasy cease-fire.`\
+`Iran and Israel signaled that they would move to de-escalate military hostilities after exchanging strikes for the first time since April.`\
 https://www.nytimes.com/video/world/middleeast/100000010951911/israel-iran-attacks-ceasefire.html
 
 **Billie Tisch, Influential New York Philanthropist, Dies at 98**\
