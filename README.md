@@ -1,5 +1,9 @@
+**Wonder What a Renovated Penn Station Might Look Like? Here’s a Preview.**\
+`Forget those dreary passageways. The updated transit hub would add a grand entrance with sweeping staircases leading to an airy, glass-walled concourse.`\
+https://www.nytimes.com/2026/06/08/nyregion/penn-station-renovation.html
+
 **Man Fatally Shot on a Bus in the Bronx**\
-`A 41-year-old man was shot in the abdomen on a Bx36 bus on Monday. The gunman remains at large, the police said.`\
+`A 41-year-old man was shot in the abdomen on a Bx36 bus on Monday after getting into an argument with the shooter. The gunman remains at large, the police said.`\
 https://www.nytimes.com/2026/06/08/nyregion/bronx-bus-fatal-shooting.html
 
 **Would Mike Johnson Pass Raphael Warnock’s Test?**\
@@ -185,8 +189,4 @@ https://www.nytimes.com/interactive/2026/06/08/world/americas/earthquake-tracker
 **Trump Administration Seeks to Revoke U.S. Citizenship of 17 Immigrants**\
 `The push to denaturalize more immigrants is the latest sign that the administration is setting its sights on the legal immigration system.`\
 https://www.nytimes.com/2026/06/08/us/politics/trump-denaturalization.html
-
-**Maps: Tracking Tropical Storm Cristina**\
-`See the likely path and wind arrival times for Cristina`\
-https://www.nytimes.com/interactive/2026/06/08/weather/cristina-map-path-tracker.html
 
