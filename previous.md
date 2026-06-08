@@ -162,7 +162,3 @@ https://www.nytimes.com/2026/06/07/business/opec-oil-production-iran-war.html
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/06/07/world/quake-tracker-greece.html
 
-**Tangy and Bold Chile Tofu**\
-`Hetty Lui McKinnon’s new take on a popular Indo-Chinese stir-fry pairs the mild protein with a bold, punchy sauce.`\
-https://www.nytimes.com/2026/06/07/dining/tangy-and-bold-chile-tofu.html
-
