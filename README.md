@@ -1,3 +1,11 @@
+**Una ‘transformación milagrosa’: cómo Kim Jong-un fortaleció Corea del Norte**\
+`Utilizó la pandemia para reforzar despiadadamente su control sobre el país. Luego dinamizó su economía aprovechando la guerra de Rusia en Ucrania.`\
+https://www.nytimes.com/es/2026/06/08/espanol/mundo/kim-jong-un-corea-norte.html
+
+**Governor’s Visit to ICE Detention Facility Is Strictly Limited, She Says**\
+`Gov. Mikie Sherrill of New Jersey said she was not allowed to speak with immigrants at the Delaney Hall detention center.`\
+https://www.nytimes.com/2026/06/08/nyregion/sherrill-nj-delaney-hall.html
+
 **Trump Previews Fall Strategy With Baseless Claims of California Vote Fraud**\
 `The president is using the slow count of mail ballots in California to renew his effort to cast doubt on election outcomes he doesn’t like, despite a lack of evidence of any widespread fraud.`\
 https://www.nytimes.com/2026/06/08/us/politics/trump-election-fraud-strategy-california.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/es/2026/06/08/espanol/mundo/guerra-iran-situacion.html
 **How Elon Musk’s Friendship With the F.C.C. Smooths the Way for SpaceX’s I.P.O.**\
 `Brendan Carr, the chairman of the Federal Communications Commission, has greenlighted regulatory requests for the company’s Starlink satellite internet service and lavished praise on its chief executive.`\
 https://www.nytimes.com/2026/06/08/technology/elon-musk-brendan-carr-fcc-spacex.html
-
-**U.S. Judge Reverses Decision on Colombian Woman Deported to Congo**\
-`The judge had previously ruled that the woman had been improperly deported by the Trump administration and had ordered her returned to the United States.`\
-https://www.nytimes.com/2026/06/08/world/africa/trump-deportation-us-judge-congo-colombia.html
-
-**2026 Tonys: How to Get Tickets for Winning Plays and Musicals**\
-`Many of the winning plays and musicals are still onstage, and some are closing soon. Here’s a guide to help you navigate the field and find tickets.`\
-https://www.nytimes.com/2026/06/08/theater/tickets-tony-winners-plays-musicals.html
 
