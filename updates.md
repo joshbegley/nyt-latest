@@ -1,3 +1,11 @@
+**Trump Visit Closes Blocks Around MSG: What to Know About Security at the Knicks Game**\
+`With President Trump and Mayor Zohran Mamdani set to attend Monday night’s Knicks game at Madison Square Garden, there will be strict security in Midtown Manhattan.`\
+https://www.nytimes.com/2026/06/08/nyregion/nba-finals-msg-trump-knicks-mamdani-security.html
+
+**They Spent Years on a Math Problem. Then They Were Scooped by A.I.**\
+`Artificial intelligence is mastering the kinds of projects that have long helped to build the careers of young mathematicians. What does that mean for their future?`\
+https://www.nytimes.com/2026/06/08/science/ai-scoop-young-mathematicians.html
+
 **Iran-Israel Escalation Ignited in Lebanon, Which Is Trapped in Their Conflict**\
 `The power struggle between Iran and Israel to define the new rules of the Middle East plays out in Lebanon, which the other two countries have used to pursue their own ends.`\
 https://www.nytimes.com/2026/06/08/world/middleeast/lebanon-israel-iran.html
