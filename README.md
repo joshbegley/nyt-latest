@@ -1,3 +1,7 @@
+**Man Fatally Shot on a Bus in the Bronx**\
+`A 41-year-old man was shot in the abdomen on a Bx36 bus on Monday. The gunman remains at large, the police said.`\
+https://www.nytimes.com/2026/06/08/nyregion/bronx-bus-fatal-shooting.html
+
 **Would Mike Johnson Pass Raphael Warnock’s Test?**\
 `On “The Interview,” Raphael Warnock, a Democratic senator from Georgia and a pastor, explains his “acid test” on faith.`\
 https://www.nytimes.com/video/podcasts/100000010953787/would-mike-johnson-pass-raphael-warnocks-test.html
@@ -114,8 +118,8 @@ https://www.nytimes.com/interactive/polls/florida-us-house-2-polls-2026.html
 `Mr. Bankman-Fried is serving a 25-year prison sentence for fraud related to the collapse of his cryptocurrency exchange, FTX.`\
 https://www.nytimes.com/2026/06/08/technology/sam-bankman-fried-pardon-trump.html
 
-**Live Updates: New Yorkers Around the City Start the Party Ahead of Knicks Game**\
-`President Trump and Mayor Zohran Mamdani are expected to attend Game 3 of the N.B.A. finals against the San Antonio Spurs at a raucous, sold-out Madison Square Garden.`\
+**Live Updates: New Yorkers Line Up and Brace for Momentous Knicks Game**\
+`Fans with tickets are enduring long security lines ahead of President Trump’s expected attendance at Game 3 of the N.B.A. finals at a raucous, sold-out Madison Square Garden.`\
 https://www.nytimes.com/live/2026/06/08/nyregion/nba-finals-trump-knicks-spurs-mamdani
 
 **Scientist Charged With Conspiring to Smuggle Mpox Virus Into U.S.**\
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/06/08/us/politics/trump-denaturalization.html
 **Maps: Tracking Tropical Storm Cristina**\
 `See the likely path and wind arrival times for Cristina`\
 https://www.nytimes.com/interactive/2026/06/08/weather/cristina-map-path-tracker.html
-
-**Los iraníes sufren la destrucción de meses de guerra y el aumento de precios**\
-`La implosión de la economía está causando desesperanza tanto entre los iraníes que apoyan al gobierno como entre los que se le oponen.`\
-https://www.nytimes.com/es/2026/06/08/espanol/mundo/guerra-iran-situacion.html
 
