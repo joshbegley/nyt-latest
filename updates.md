@@ -1,3 +1,7 @@
+**Iran and Israel Exchange First Strikes Since Cease-Fire, and Texas Ranchers Sound the Alarm**\
+`Plus, the fight over the fight on the White House lawn.`\
+https://www.nytimes.com/2026/06/08/podcasts/the-headlines/iran-israel-exchange-first-strikes-since-cease-fire-texas-ranchers-screwworm.html
+
 **Congressional Republicans Try a New Approach: Telling Trump No**\
 `President Trump is seemingly making the midterms about revenge, not about what’s best for a party trying to keep control of Congress.`\
 https://www.nytimes.com/2026/06/08/podcasts/the-daily/republicans-trump-iran-war-compensation-fund.html
