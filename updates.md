@@ -1,3 +1,19 @@
+**Israel espía a sus aliados: el Pentágono eleva la amenaza al nivel crítico**\
+`Mientras combaten juntos contra Irán, Estados Unidos descubrió que Israel intensificó su espionaje sobre los principales negociadores del gobierno de Donald Trump.`\
+https://www.nytimes.com/es/2026/06/07/espanol/mundo/israel-espia-estados-unidos-pentagono.html
+
+**‘Ragtime’ Wins the Tony for Best Revival of a Musical**\
+`Based on the novel by E.L. Doctorow, “Ragtime” follows three communities colliding in turn-of-the-20th-century New York.`\
+https://www.nytimes.com/2026/06/07/theater/ragtime-tony-award-best-musical-revival.html
+
+**Iran Fires Missiles at Israel for First Time Since April**\
+`Iran attacked Israel with ballistic missiles late Sunday after an Israeli attack in the outskirts of Beirut against Hezbollah, the Iranian-backed militant group.`\
+https://www.nytimes.com/video/world/middleeast/100000010950217/iran-fires-missiles-at-israel-for-first-time-since-april.html
+
+**Tony Awards 2026 Live Updates: ‘Ragtime’ Wins Best Musical Revival, While ‘Liberation’ Is Best Play**\
+`“Death of a Salesman” is leading with five prizes. John Lithgow, Laurie Metcalf and Lesley Manville are among the winners so far.`\
+https://www.nytimes.com/live/2026/06/07/theater/tony-awards-2026
+
 **Tony Awards 2026 Live Updates: ‘Liberation’ Wins Best Play; ‘Death of a Salesman’ Leads With 5 Prizes**\
 `The awards for ”Death of a Salesman” include best direction of a play. John Lithgow, Laurie Metcalf and Lesley Manville are among the winners so far.`\
 https://www.nytimes.com/live/2026/06/07/theater/tony-awards-2026

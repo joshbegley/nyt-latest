@@ -1,3 +1,11 @@
+**Israel espía a sus aliados: el Pentágono eleva la amenaza al nivel crítico**\
+`Mientras combaten juntos contra Irán, Estados Unidos descubrió que Israel intensificó su espionaje sobre los principales negociadores del gobierno de Donald Trump.`\
+https://www.nytimes.com/es/2026/06/07/espanol/mundo/israel-espia-estados-unidos-pentagono.html
+
+**‘Ragtime’ Wins the Tony for Best Revival of a Musical**\
+`Based on the novel by E.L. Doctorow, “Ragtime” follows three communities colliding in turn-of-the-20th-century New York.`\
+https://www.nytimes.com/2026/06/07/theater/ragtime-tony-award-best-musical-revival.html
+
 **Oil Surges, Asian Stocks Sink After Iran Strikes Israel**\
 `Oil prices jumped and stocks plunged after Iran fired missiles at Israel, raising doubts about the future of fragile cease-fire in the Middle East.`\
 https://www.nytimes.com/2026/06/07/business/oil-gas-stocks-iran.html
@@ -35,7 +43,7 @@ https://www.nytimes.com/2026/06/07/theater/tonys-host-pink.html
 https://www.nytimes.com/2026/06/07/nyregion/american-flag-power-outages-connecticut.html
 
 **Iran Fires Missiles at Israel for First Time Since April**\
-`Iran attacked Israel with a limited number of ballistic missiles late Sunday after an Israeli attack in the outskirts of Beirut against Hezbollah, the Iranian-backed militant group.`\
+`Iran attacked Israel with ballistic missiles late Sunday after an Israeli attack in the outskirts of Beirut against Hezbollah, the Iranian-backed militant group.`\
 https://www.nytimes.com/video/world/middleeast/100000010950217/iran-fires-missiles-at-israel-for-first-time-since-april.html
 
 **Tony Award Winners 2026: See the Updating List**\
@@ -62,8 +70,8 @@ https://www.nytimes.com/2026/06/07/style/tony-awards-2026-red-carpet-looks.html
 `A lower court last month found that the ads from the charity, known for its ear-worm jingle, had violated false-advertising laws.`\
 https://www.nytimes.com/2026/06/07/us/kars4kids-california-appeals-court.html
 
-**Tony Awards 2026 Live Updates: ‘Liberation’ Wins Best Play; ‘Death of a Salesman’ Leads With 5 Prizes**\
-`The awards for ”Death of a Salesman” include best direction of a play. John Lithgow, Laurie Metcalf and Lesley Manville are among the winners so far.`\
+**Tony Awards 2026 Live Updates: ‘Ragtime’ Wins Best Musical Revival, While ‘Liberation’ Is Best Play**\
+`“Death of a Salesman” is leading with five prizes. John Lithgow, Laurie Metcalf and Lesley Manville are among the winners so far.`\
 https://www.nytimes.com/live/2026/06/07/theater/tony-awards-2026
 
 **A Voice for Ukraine’s Soldiers**\
@@ -149,12 +157,4 @@ https://www.nytimes.com/2026/06/07/world/europe/ukraine-europe-russia-us-peace-t
 **Israel Bombs Beirut Outskirts as Fighting With Hezbollah Escalates**\
 `U.S. efforts for a truce in Lebanon appear to have stalled. Israel accused Hezbollah of firing at Israeli territory. Iran swiftly retaliated.`\
 https://www.nytimes.com/2026/06/07/world/middleeast/israel-beirut-attacks-hezbollah.html
-
-**Trump Defends Compensation Fund and Iran War in ‘Meet the Press’ Interview**\
-`In a lengthy interview with NBC’s “Meet the Press,” the president again vowed that gas prices would go down when the war in Iran ends.`\
-https://www.nytimes.com/2026/06/07/us/politics/trump-new-wars-compensation-fund.html
-
-**This Vanilla Sheet-Pan Cake Is Ready to Party**\
-`Easy to make, easy to transport and easy to love.`\
-https://www.nytimes.com/2026/06/07/dining/this-vanilla-sheet-pan-cake-is-ready-to-party.html
 
