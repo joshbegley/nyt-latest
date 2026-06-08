@@ -1,3 +1,7 @@
+**‘Death of a Salesman’ Wins the Tony for Best Revival of a Play**\
+`Arthur Miller’s classic won the same award in 1984, 1999 and 2012.`\
+https://www.nytimes.com/2026/06/07/theater/death-of-a-salesman-revival-play.html
+
 **Strong Earthquake in Philippines Topples Buildings and Prompts Tsunami Warnings**\
 `The quake struck off the island of Mindanao, raising fears of possible tsunamis in the Philippines, Japan, Malaysia and Indonesia.`\
 https://www.nytimes.com/2026/06/07/world/asia/hilippines-earthquake-tsunami-warning.html
@@ -153,8 +157,4 @@ https://www.nytimes.com/interactive/2026/06/07/us/quake-tracker-san-francisco-ba
 **Iranians Sink Into Despair Facing War Deaths and Skyrocketing Inflation**\
 `An imploding economy is causing hopelessness among both pro- and anti-government Iranians. And for those who wished for regime change, the letdown is palpable.`\
 https://www.nytimes.com/2026/06/07/world/middleeast/iranians-despair-war-economy-inflation.html
-
-**Ukraine Turns to Europe as U.S. Steps Back as Mediator in Peace Talks**\
-`President Volodymyr Zelensky traveled to London to meet with the leaders of Britain, Germany and France, whom he said could be negotiators in talks with Russia.`\
-https://www.nytimes.com/2026/06/07/world/europe/ukraine-europe-russia-us-peace-talks.html
 

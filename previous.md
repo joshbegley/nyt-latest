@@ -74,8 +74,8 @@ https://www.nytimes.com/2026/06/07/style/tony-awards-2026-red-carpet-looks.html
 `A lower court last month found that the ads from the charity, known for its ear-worm jingle, had violated false-advertising laws.`\
 https://www.nytimes.com/2026/06/07/us/kars4kids-california-appeals-court.html
 
-**Tony Awards 2026 Live Updates: ‘Ragtime’ Wins Best Musical Revival, While ‘Liberation’ Is Best Play**\
-`“Death of a Salesman” is leading with five prizes. John Lithgow, Laurie Metcalf and Lesley Manville are among the winners so far.`\
+**Tony Awards 2026 Live Updates: ‘Death of a Salesman’ Wins Best Play Revival, Extending Big Night**\
+`“Death of a Salesman” is leading with six prizes. “Ragtime” won best musical revival, while John Lithgow, Laurie Metcalf and Lesley Manville are among the winners.`\
 https://www.nytimes.com/live/2026/06/07/theater/tony-awards-2026
 
 **A Voice for Ukraine’s Soldiers**\
@@ -94,8 +94,8 @@ https://www.nytimes.com/2026/06/07/world/middleeast/tribeca-film-festival-respon
 `The bottles, worth about $500,000, were taken in what company officials called a “coordinated cargo theft operation carried out in broad daylight.”`\
 https://www.nytimes.com/2026/06/07/us/bourbon-philadelphia-stolen-cargo.html
 
-**Live Updates: Iran Fires Missiles at Israel for First Time Since April Cease-Fire**\
-`Israel had attacked the outskirts of the Lebanese capital, Beirut, earlier Sunday, prompting Iran to retaliate. There were no immediate reports of casualties from the missile attack.`\
+**Live Updates: Iran and Israel Exchange Strikes for First Time Since April Cease-Fire**\
+`Iran fired missiles at Israel in retaliation for an Israeli attack in Lebanon. Hours after the Iranian launches, the Israeli military said it had struck military targets in Iran.`\
 https://www.nytimes.com/live/2026/06/07/world/iran-israel-missiles
 
 **Iran Fires Missiles at Israel for First Time Since April Cease-Fire**\

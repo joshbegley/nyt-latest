@@ -1,3 +1,11 @@
+**Tony Awards 2026 Live Updates: ‘Death of a Salesman’ Wins Best Play Revival, Extending Big Night**\
+`“Death of a Salesman” is leading with six prizes. “Ragtime” won best musical revival, while John Lithgow, Laurie Metcalf and Lesley Manville are among the winners.`\
+https://www.nytimes.com/live/2026/06/07/theater/tony-awards-2026
+
+**Live Updates: Iran and Israel Exchange Strikes for First Time Since April Cease-Fire**\
+`Iran fired missiles at Israel in retaliation for an Israeli attack in Lebanon. Hours after the Iranian launches, the Israeli military said it had struck military targets in Iran.`\
+https://www.nytimes.com/live/2026/06/07/world/iran-israel-missiles
+
 **Strong Earthquake in Philippines Topples Buildings and Prompts Tsunami Warnings**\
 `The quake struck off the island of Mindanao, raising fears of possible tsunamis in the Philippines, Japan, Malaysia and Indonesia.`\
 https://www.nytimes.com/2026/06/07/world/asia/hilippines-earthquake-tsunami-warning.html
