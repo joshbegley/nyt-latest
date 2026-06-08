@@ -1,3 +1,7 @@
+****\
+`Video verified by The New York Times shows thick smoke rising near the Mahshahr petrochemical complex in Iran.`\
+https://www.nytimes.com/video/embedded/admin/100000010952007/08vid-iran-israel-embed-25069.html
+
 **Mapa: la trayectoria de la tormenta tropical Boris en vivo**\
 `Consulta la trayectoria probable y las horas de llegada de los vientos de Boris.`\
 https://www.nytimes.com/es/interactive/2026/06/08/espanol/boris-mapa-trayectoria.html
