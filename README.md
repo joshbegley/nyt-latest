@@ -1,3 +1,7 @@
+**Who Is Ahead in New York's 15th Congressional District?**\
+`Track the latest polls in New York's 15th Congressional District.`\
+https://www.nytimes.com/interactive/polls/new-york-us-house-15-polls-2026.html
+
 **The SpaceX I.P.O. Shows Us What’s Wrong With Our Stock Market**\
 `The SpaceX I.P.O. proves the stock market has become a hype machine.`\
 https://www.nytimes.com/2026/06/08/opinion/spacex-ipo-stock-market.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/2026/06/08/us/politics/trump-graham-relationship-timelin
 `On social media, Chinese entrepreneurs are touting cheap labor across the border, as trade between the two countries regains momentum.`\
 https://www.nytimes.com/2026/06/08/world/asia/chinese-businesses-north-korea.html
 
-**Man Who Fatally Stabbed Gay Dancer Convicted of Hate Crime Charge**\
+**Man Who Fatally Stabbed Gay Dancer Convicted of Hate Crime**\
 `Dmitriy Popov, 20, who killed O’Shae Sibley, 28, at a gas station in Brooklyn was found guilty of manslaughter as a hate crime, which carries a sentence of up to 25 years.`\
 https://www.nytimes.com/2026/06/08/nyregion/oshae-sibley-murder-hate-crime.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/08/briefing/today-in-short.html
 **Are U.S. and Israel on the Same Page in Mideast Wars?**\
 `President Trump has voiced his frustration with Prime Minister Benjamin Netanyahu of Israel, but it is not clear how able he is to rein in Israeli military action.`\
 https://www.nytimes.com/2026/06/08/world/middleeast/netanyahu-trump-split-iran-lebanon.html
-
-**Gordon S. Wood, Pioneering Historian of Early America, Dies at 92**\
-`In a Pulitzer-winning book, “The Radicalism of the American Revolution,” he wrote that the colonists rose up against an entire worldview, not just against taxation.`\
-https://www.nytimes.com/2026/06/08/books/gordon-s-wood-dead.html
 
