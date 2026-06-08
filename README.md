@@ -1,3 +1,7 @@
+**Strong Earthquake in Philippines Topples Buildings and Prompts Tsunami Warnings**\
+`The quake struck off the island of Mindanao, raising fears of possible tsunamis in the Philippines, Japan, Malaysia and Indonesia.`\
+https://www.nytimes.com/2026/06/07/world/asia/hilippines-earthquake-tsunami-warning.html
+
 **Israel espía a sus aliados: el Pentágono eleva la amenaza al nivel crítico**\
 `Mientras combaten juntos contra Irán, Estados Unidos descubrió que Israel intensificó su espionaje sobre los principales negociadores del gobierno de Donald Trump.`\
 https://www.nytimes.com/es/2026/06/07/espanol/mundo/israel-espia-estados-unidos-pentagono.html
@@ -153,8 +157,4 @@ https://www.nytimes.com/2026/06/07/world/middleeast/iranians-despair-war-economy
 **Ukraine Turns to Europe as U.S. Steps Back as Mediator in Peace Talks**\
 `President Volodymyr Zelensky traveled to London to meet with the leaders of Britain, Germany and France, whom he said could be negotiators in talks with Russia.`\
 https://www.nytimes.com/2026/06/07/world/europe/ukraine-europe-russia-us-peace-talks.html
-
-**Israel Bombs Beirut Outskirts as Fighting With Hezbollah Escalates**\
-`U.S. efforts for a truce in Lebanon appear to have stalled. Israel accused Hezbollah of firing at Israeli territory. Iran swiftly retaliated.`\
-https://www.nytimes.com/2026/06/07/world/middleeast/israel-beirut-attacks-hezbollah.html
 
