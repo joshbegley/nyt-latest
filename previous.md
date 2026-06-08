@@ -194,7 +194,7 @@ https://www.nytimes.com/video/arts/100000010951502/tony-awards-winners.html
 `A deadly 7.8-magnitude earthquake struck off the island of Mindanao in the southern Philippines, causing buildings to collapse and triggering tsunami warnings in the region.`\
 https://www.nytimes.com/video/world/asia/100000010951516/philippines-earthquake-death-toll.html
 
-**Live Updates: Iran Signals It Will Halt Strikes Against Israel After Hours of Attacks**\
-`Iran’s Revolutionary Guards Corps said it had concluded its latest military operation against Israel after both countries traded strikes and an uneasy two-month truce broke down.`\
+**Live Updates: Iran and Israel Move to De-Escalate After Cease-Fire Breaks Down**\
+`Iran’s Revolutionary Guards Corps signaled that it had concluded its latest military operation against Israel. Prime Minister Benjamin Netanyahu pulled back from preparations for another attack after pushback from President Trump, two Israeli military officials said.`\
 https://www.nytimes.com/live/2026/06/08/world/iran-israel-lebanon-attacks
 

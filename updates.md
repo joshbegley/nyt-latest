@@ -1,3 +1,7 @@
+**Live Updates: Iran and Israel Move to De-Escalate After Cease-Fire Breaks Down**\
+`Iran’s Revolutionary Guards Corps signaled that it had concluded its latest military operation against Israel. Prime Minister Benjamin Netanyahu pulled back from preparations for another attack after pushback from President Trump, two Israeli military officials said.`\
+https://www.nytimes.com/live/2026/06/08/world/iran-israel-lebanon-attacks
+
 **Live Updates: Iran Signals It Will Halt Strikes Against Israel After Hours of Attacks**\
 `Iran’s Revolutionary Guards Corps said it had concluded its latest military operation against Israel after both countries traded strikes and an uneasy two-month truce broke down.`\
 https://www.nytimes.com/live/2026/06/08/world/iran-israel-lebanon-attacks
