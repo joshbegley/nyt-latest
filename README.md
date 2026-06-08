@@ -1,3 +1,11 @@
+**Mapa: un terremoto de magnitud 6,1 se registra en el golfo de México cerca de Cuba**\
+`Mira la localización del epicentro del sismo y el área de movimiento.`\
+https://www.nytimes.com/es/interactive/2026/06/08/espanol/cuba-sismo.html
+
+**¿Qué tan saludables son las arvejas o chícharos?**\
+`Los ames o los odies, los llames chícharos, arvejas o guisantes, tienen grandes ventajas.`\
+https://www.nytimes.com/es/2026/06/08/espanol/arvejas-guisantes-salud-beneficios.html
+
 **Ken Paxton’s Former Defense Lawyer Endorses James Talarico**\
 `The lawyer, Dan Cogdell, helped save Mr. Paxton from criminal charges and an impeachment, but now he says the Texas attorney general has “lost sight of his mission.”`\
 https://www.nytimes.com/2026/06/08/us/paxton-lawyer-endorse-talarico.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/interactive/2026/06/08/weather/storm-boris-tracker.html
 **Trump Eyes a Piece of A.I. Giants**\
 `The president has publicly weighed the government taking stakes in artificial intelligence giants, as his position on regulating the industry shifts.`\
 https://www.nytimes.com/2026/06/08/business/dealbook/trump-ai-stakes.html
-
-**Why Iran Risked an Attack on Israel**\
-`Iran’s leaders want to show they are serious about defending their Hezbollah allies in Lebanon and maintaining the regional balance of power, analysts say.`\
-https://www.nytimes.com/2026/06/08/world/middleeast/israel-iran-strikes-regional-gains.html
-
-****\
-`Video verified by The New York Times shows thick smoke rising near the Mahshahr petrochemical complex in Iran.`\
-https://www.nytimes.com/video/embedded/admin/100000010952007/08vid-iran-israel-embed-25069.html
 
 **Live Updates: Iran and Israel Pull Back After Exchange of Strikes**\
 `Prime Minister Benjamin Netanyahu said Israel’s “fire is on hold” after a phone call with President Trump. Iran also said it would cease its attacks but, like Israel, warned it was ready to resume at any time.`\
