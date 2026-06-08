@@ -2,7 +2,7 @@
 `Monitor warnings and predicted arrival times for the ocean wave.`\
 https://www.nytimes.com/interactive/2026/06/07/world/tsunami-tracker-celebes-sea.html
 
-**John Lithgow wins the Tony for best actor in a play.**\
+**John Lithgow Wins the Tony for Best Actor in a Play**\
 `In “Giant,” Lithgow leans into monstrosity to play the famed author Roald Dahl.`\
 https://www.nytimes.com/2026/06/07/theater/john-lithgow-wins-the-tony-for-best-actor-in-a-play.html
 
@@ -43,7 +43,7 @@ https://www.nytimes.com/2026/06/07/us/robert-coles-dead.html
 https://www.nytimes.com/2026/06/07/crosswords/daily-puzzle-2026-06-08.html
 
 **Tony Awards 2026 Red Carpet: See the Looks of Broadway’s Biggest Stars**\
-`Broadway’s biggest names have started to arrive for the 79th Tony Awards. Here’s what they wore to walk the midnight blue carpet.`\
+`Here’s what Broadway’s biggest names wore to walk the blue carpet at the 79th Tony Awards.`\
 https://www.nytimes.com/2026/06/07/style/tony-awards-2026-red-carpet-looks.html
 
 **Kars4Kids Can Continue Broadcasting Ads in California, Appeals Court Says**\
