@@ -1,3 +1,15 @@
+**Watch Parties Canceled as Police Tighten Security at N.B.A. Finals**\
+`President Trump and Mayor Zohran Mamdani are expected to attend the N.B.A. Finals game 3 between the New York Knicks and San Antonio Spurs.`\
+https://www.nytimes.com/video/us/100000010952671/knicks-spurs-nba-finals-security-trump.html
+
+**Who is Ahead in Florida's 2nd Congressional District?**\
+`Track the latest polls in Florida's 2nd Congressional District.`\
+https://www.nytimes.com/interactive/polls/florida-us-house-2-polls-2026.html
+
+**Sam Bankman-Fried Has Applied for a Pardon From Trump**\
+`Mr. Bankman-Fried is serving a 25-year prison sentence for fraud related to the collapse of his cryptocurrency exchange, FTX.`\
+https://www.nytimes.com/2026/06/08/technology/sam-bankman-fried-pardon-trump.html
+
 **Live Updates: New Yorkers Around the City Start the Party Ahead of Knicks Game**\
 `President Trump and Mayor Zohran Mamdani are expected to attend Game 3 of the N.B.A. finals against the San Antonio Spurs at a raucous, sold-out Madison Square Garden.`\
 https://www.nytimes.com/live/2026/06/08/nyregion/nba-finals-trump-knicks-spurs-mamdani
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/06/08/nyregion/billie-tisch-dead.html
 **Unforgettable Looks at the Tony Awards: Cole Escola, Sarah Paulson and More**\
 `Shrunken suits, bouncy wigs and gloves that came with a manicure were some of the looks that stood out on the red carpet.`\
 https://www.nytimes.com/2026/06/08/style/tony-awards-red-carpet-memorable-fashion.html
-
-**Mapa: la trayectoria de la tormenta tropical Boris en vivo**\
-`Consulta la trayectoria probable y las horas de llegada de los vientos de Boris.`\
-https://www.nytimes.com/es/interactive/2026/06/08/espanol/boris-mapa-trayectoria.html
-
-**Irán disparó misiles a Israel por primera vez desde el alto al fuego de abril**\
-`Israel había atacado las afueras de la capital libanesa, Beirut, a primera hora del domingo, lo que llevó a Irán a tomar represalias.`\
-https://www.nytimes.com/es/2026/06/08/espanol/mundo/iran-israel-misiles.html
-
-**At the Tony Awards After-Parties, a ‘Harry Potter’ Reunion and Winner Celebrations**\
-`A crowd that included Daniel Radcliffe, Cole Escola and Carrie Coon celebrated with whiskey ice cream at Rockefeller Center and show tunes at the Carlyle hotel.`\
-https://www.nytimes.com/2026/06/08/style/tony-awards-after-parties.html
 

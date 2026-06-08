@@ -1,3 +1,7 @@
+**Live Updates: New Yorkers Around the City Start the Party Ahead of Knicks Game**\
+`President Trump and Mayor Zohran Mamdani are expected to attend Game 3 of the N.B.A. finals against the San Antonio Spurs at a raucous, sold-out Madison Square Garden.`\
+https://www.nytimes.com/live/2026/06/08/nyregion/nba-finals-trump-knicks-spurs-mamdani
+
 **Scientist Charged With Conspiring to Smuggle Mpox Virus Into U.S.**\
 `The virologist was stopped at the Detroit airport after working in Congo during a mpox epidemic. His lawyer said the material was for research.`\
 https://www.nytimes.com/2026/06/08/science/dutch-scientist-mpox-virus-smuggling.html
