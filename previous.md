@@ -1,3 +1,11 @@
+**In Striking Israel, Iran Aims to Protect Its Regional Gains**\
+`For Tehran, retaliating for strikes against Hezbollah in Lebanon shows that it will stand by its regional allies and block attempts to shift the regional balance of power.`\
+https://www.nytimes.com/2026/06/08/world/middleeast/israel-iran-strikes-regional-gains.html
+
+****\
+`A video verified by The New York Times shows thick smoke rising near the Mahshahr petrochemical complex in Iran.`\
+https://www.nytimes.com/video/embedded/admin/100000010952007/08vid-iran-israel-embed-25069.html
+
 **What to Know About Mahshahr, the Iranian Petrochemical Complex That Israel Targeted**\
 `The facility makes materials that Iran says are for civilian uses, but that Israel argues are also deployed in military applications.`\
 https://www.nytimes.com/2026/06/08/world/middleeast/what-is-iran-mahshahr-petrochemical-plant.html
@@ -154,13 +162,13 @@ https://www.nytimes.com/2026/06/08/opinion/middle-class-liberals-economics.html
 `The programs are popping up on campuses across America. What they teach varies.`\
 https://www.nytimes.com/2026/06/08/us/ai-studies-major-explained.html
 
-**A.I. Degree Programs Surge as Colleges Seek Students and Relevance**\
-`Colleges from North Dakota to New Jersey are trying to get students to sign up for A.I. degrees. What they teach varies widely.`\
-https://www.nytimes.com/2026/06/08/us/ai-college-degrees.html
-
 **Shootout in Olde Town Square: A Cop, a Killer and a Good Guy With a Gun**\
 `No community was better prepared for active shooters than Arvada, Colo. Then four men with guns converged in the city center, each on different missions.`\
 https://www.nytimes.com/2026/06/08/us/good-samaritan-arvada-mass-shooting.html
+
+**A.I. Degree Programs Surge as Colleges Seek Students and Relevance**\
+`Colleges from North Dakota to New Jersey are trying to get students to sign up for A.I. degrees. What they teach varies widely.`\
+https://www.nytimes.com/2026/06/08/us/ai-college-degrees.html
 
 **GLP-1 Drugs: 6 Things We’ve Learned About Their Effects**\
 `The widespread use of drugs like Ozempic is giving scientists a clearer picture than ever of their effects.`\
@@ -186,15 +194,7 @@ https://www.nytimes.com/es/2026/06/08/espanol/mundo/papa-leon-sanchez-trump.html
 `Prime Minister Nikol Pashinyan overcame a pressure campaign by Moscow and was on track to win a mandate to move ahead on peace talks that President Trump helped broker.`\
 https://www.nytimes.com/2026/06/08/world/europe/armenia-election-results.html
 
-**Live Updates: Iran and Israel Trade Strikes as Trump Calls on Them to Stop**\
-`Iran launched waves of missiles at Israel, and Israel said it struck military targets and a petrochemical complex in Iran, as an uneasy two-month truce broke down. President Trump called for the two sides to “immediately stop” the attacks.`\
+**Live Updates: Iran Signals It Will Halt Strikes Against Israel After Hours of Attacks**\
+`Iran’s Revolutionary Guards Corps said it had concluded its latest military operation against Israel after both countries traded strikes and an uneasy two-month truce broke down.`\
 https://www.nytimes.com/live/2026/06/08/world/iran-israel-lebanon-attacks
-
-**Trump, Mamdani and the Knicks: A Manic Monday Awaits New York**\
-`When the Knicks return home for Game 3 of the N.B.A. finals, much of New York City will be watching, including some well-known guests.`\
-https://www.nytimes.com/2026/06/08/nyregion/trump-mamdani-knicks-msg.html
-
-**Inside the Subway Expansion a Century in the Making**\
-`The next phase of the Second Avenue subway, first proposed in the 1920s, could finally be completed by 2032, creating a new transit hub in Harlem.`\
-https://www.nytimes.com/2026/06/08/nyregion/second-avenue-subway-expansion.html
 

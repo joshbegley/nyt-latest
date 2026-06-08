@@ -1,3 +1,15 @@
+**In Striking Israel, Iran Aims to Protect Its Regional Gains**\
+`For Tehran, retaliating for strikes against Hezbollah in Lebanon shows that it will stand by its regional allies and block attempts to shift the regional balance of power.`\
+https://www.nytimes.com/2026/06/08/world/middleeast/israel-iran-strikes-regional-gains.html
+
+****\
+`A video verified by The New York Times shows thick smoke rising near the Mahshahr petrochemical complex in Iran.`\
+https://www.nytimes.com/video/embedded/admin/100000010952007/08vid-iran-israel-embed-25069.html
+
+**Live Updates: Iran Signals It Will Halt Strikes Against Israel After Hours of Attacks**\
+`Iran’s Revolutionary Guards Corps said it had concluded its latest military operation against Israel after both countries traded strikes and an uneasy two-month truce broke down.`\
+https://www.nytimes.com/live/2026/06/08/world/iran-israel-lebanon-attacks
+
 **What to Know About Mahshahr, the Iranian Petrochemical Complex That Israel Targeted**\
 `The facility makes materials that Iran says are for civilian uses, but that Israel argues are also deployed in military applications.`\
 https://www.nytimes.com/2026/06/08/world/middleeast/what-is-iran-mahshahr-petrochemical-plant.html
