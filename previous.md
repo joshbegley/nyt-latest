@@ -110,6 +110,10 @@ https://www.nytimes.com/2026/06/07/style/tony-awards-2026-red-carpet-looks.html
 `A lower court last month found that the ads from the charity, known for its ear-worm jingle, had violated false-advertising laws.`\
 https://www.nytimes.com/2026/06/07/us/kars4kids-california-appeals-court.html
 
+**Tonys 2026 Takeaways: ‘Schmigadoon!’ and ‘Death of a Salesman’ Are Big Winners**\
+`The Broadway revival of “Salesman” led with six Tony Awards. “Schmigadoon!” won best new musical, and “Ragtime” and “Liberation” also took home major prizes.`\
+https://www.nytimes.com/2026/06/07/theater/heres-the-latest.html
+
 **Tony Awards 2026 Live Updates: ‘Schmigadoon!’ Named Best New Musical; ‘Ragtime’ and ‘Death of a Salesman’ Among Big Winners**\
 `“Ragtime” won best musical revival, while “Death of a Salesman” led with six prizes. Joshua Henry, Caissie Levy, John Lithgow and Laurie Metcalf were among the winners.`\
 https://www.nytimes.com/live/2026/06/07/theater/tony-awards-2026

@@ -1,3 +1,7 @@
+**Tonys 2026 Takeaways: ‘Schmigadoon!’ and ‘Death of a Salesman’ Are Big Winners**\
+`The Broadway revival of “Salesman” led with six Tony Awards. “Schmigadoon!” won best new musical, and “Ragtime” and “Liberation” also took home major prizes.`\
+https://www.nytimes.com/2026/06/07/theater/heres-the-latest.html
+
 **Our Favorite Photos From the Tony Awards**\
 `As Broadway’s brightest gathered for the industry’s biggest night, here’s an up-close look at what you couldn’t see on TV.`\
 https://www.nytimes.com/2026/06/07/theater/our-favorite-photos-from-the-tony-awards-red-carpet.html
