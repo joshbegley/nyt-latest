@@ -1,3 +1,7 @@
+**French Open 2026: Zverev Wins, but Polarizes**\
+`Alexander Zverev captured his first Grand Slam title, beating Flavio Cobolli in a five-set struggle.`\
+https://www.nytimes.com/2026/06/08/podcasts/french-open-2026-zverev-wins-but-polarizes.html
+
 **La polémica camiseta de México para el Mundial: ¿artesanía o explotación?**\
 `Un grupo de artesanas bordó jerseys para Adidas. Después, activistas denunciaron malas condiciones laborales y explotación. Fuimos a la sierra para hablar con las artesanas.`\
 https://www.nytimes.com/es/2026/06/08/espanol/america-latina/camisetas-mexico-adidas-explotacion.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/08/world/asia/pakistan-heat-wave.html
 **No Corrections: June 8, 2026**\
 `No corrections appeared in print on Monday, June 8, 2026.`\
 https://www.nytimes.com/2026/06/08/pageoneplus/no-corrections-june-8-2026.html
-
-**Quote of the Day: In His Role 30 Years, A Last Note Draws Near**\
-`Quotation of the Day for Monday, June 8, 2026.`\
-https://www.nytimes.com/2026/06/08/pageoneplus/quote-of-the-day-in-his-role-30-years-a-last-note-draws-near.html
 
