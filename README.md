@@ -1,3 +1,15 @@
+**At the Tony Awards After-Parties, a ‘Harry Potter’ Reunion and Winner Celebrations**\
+`A crowd that included Daniel Radcliffe, Cole Escola and Carrie Coon celebrated with whiskey ice cream at Rockefeller Center and show tunes at the Carlyle hotel.`\
+https://www.nytimes.com/2026/06/08/style/tony-awards-after-parties.html
+
+**How Healthy Are Peas?**\
+`Don’t let childhood memories of mealtime standoffs turn you away from these nutritional powerhouses.`\
+https://www.nytimes.com/2026/06/08/well/eat/peas-health-benefits-recipes.html
+
+**The Iran War is Forcing Energy-Importing Countries to Turn Inward**\
+`The Iran war is pushing countries to prioritize domestic energy in order to protect themselves from volatile oil and natural gas markets.`\
+https://www.nytimes.com/2026/06/08/business/energy-environment/iran-war-energy-oil.html
+
 **Houthis Threaten to Widen Iran War by Blocking Israeli Shipping in Red Sea**\
 `The Yemeni militia group, which is backed by Iran, said it would impose a partial blockade in the waterway, a move that would further strangle supply routes and aggravate the conflict in the Mideast.`\
 https://www.nytimes.com/2026/06/08/world/middleeast/houthis-yemen-red-sea-israel-shipping.html
@@ -158,7 +170,7 @@ https://www.nytimes.com/2026/06/08/opinion/israeli-expansionism-middle-east-hama
 `A.I. tutoring is seductive, but ultimately ineffective.`\
 https://www.nytimes.com/2026/06/08/opinion/ai-classroom-silence-reform.html
 
-**Why Your Next Diagnosis May Be Guided by an A.I. Helper**\
+**Have a Thorny Medical Question? Your Doctor May Be Using A.I. for That.**\
 `OpenEvidence, a fast-growing start-up, is using artificial intelligence to help doctors find answers to clinical questions for diagnosis and treatment.`\
 https://www.nytimes.com/2026/06/08/business/ai-medicine-doctors.html
 
@@ -181,18 +193,6 @@ https://www.nytimes.com/2026/06/08/us/good-samaritan-arvada-mass-shooting.html
 **A.I. Degree Programs Surge as Colleges Seek Students and Relevance**\
 `Colleges from North Dakota to New Jersey are trying to get students to sign up for A.I. degrees. What they teach varies widely.`\
 https://www.nytimes.com/2026/06/08/us/ai-college-degrees.html
-
-**GLP-1 Drugs: 6 Things We’ve Learned About Their Effects**\
-`The widespread use of drugs like Ozempic is giving scientists a clearer picture than ever of their effects.`\
-https://www.nytimes.com/2026/06/08/well/glp1-drugs-weight-loss.html
-
-**No Calm for Tehran’s Residents as Iran-Israel Fighting Resumes**\
-`As explosions sounded in the Iranian capital, people frantically checked phones and social media to see whether they were under attack again.`\
-https://www.nytimes.com/2026/06/08/world/middleeast/iran-tehran-israel-attacks.html
-
-**Highlights From the 2026 Tony Awards**\
-`“Death of a Salesman,” “Liberation” and “Ragtime” won big at the 2026 Tony Awards, which celebrated the best of Broadway.`\
-https://www.nytimes.com/video/arts/100000010951502/tony-awards-winners.html
 
 **Live Updates: Iran and Israel Move to De-Escalate After Cease-Fire Breaks Down**\
 `Iran’s Revolutionary Guards Corps signaled that it had concluded its latest military operation against Israel. Prime Minister Benjamin Netanyahu pulled back from preparations for another attack after pushback from President Trump, two Israeli military officials said.`\
