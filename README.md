@@ -34,8 +34,8 @@ https://www.nytimes.com/2026/06/07/style/tony-awards-2026-red-carpet-looks.html
 `A lower court last month found that the ads from the charity, known for its ear-worm jingle, had violated false-advertising laws.`\
 https://www.nytimes.com/2026/06/07/us/kars4kids-california-appeals-court.html
 
-**Tonys 2026 Live Updates: ‘Schmigadoon!’ Wins Key Preshow Awards as Stars Arrive on Red Carpet**\
-`The first awards of the night are being handed out during a preshow ceremony, with the main event starting at 8 p.m. Eastern time. Pink will host a celebration filled with nostalgic performances.`\
+**Tony Awards 2026 Live Updates: Ceremony Begins With Elaborate Musical Number**\
+`“Schmigadoon!,” a leading contender for the all-important best musical prize, won several key awards at a preshow ceremony.  Pink is hosting a celebration expected to be filled with nostalgic performances.`\
 https://www.nytimes.com/live/2026/06/07/theater/tony-awards-2026
 
 **A Voice for Ukraine’s Soldiers**\
