@@ -91,7 +91,7 @@ https://www.nytimes.com/video/world/middleeast/100000010950217/iran-fires-missil
 https://www.nytimes.com/2026/06/07/theater/tony-award-winners-2026-the-updating-list.html
 
 **Our Favorite Photos From the Tony Awards**\
-`As Broadway’s brightest gather for the industry’s biggest night, here’s an up-close look at what you can’t see on TV.`\
+`As Broadway’s brightest gathered for the industry’s biggest night, here’s an up-close look at what you couldn’t see on TV.`\
 https://www.nytimes.com/2026/06/07/theater/our-favorite-photos-from-the-tony-awards-red-carpet.html
 
 **Robert Coles, Pulitzer-Winning Child Psychiatrist, Is Dead at 97**\

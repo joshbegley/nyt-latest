@@ -1,3 +1,23 @@
+**Searching for Shade When It’s 125 Degrees**\
+`Every season brings a new struggle for people in Dadu District, Pakistan, an area prone to sandstorms, drought and flooding.`\
+https://www.nytimes.com/2026/06/08/world/asia/searching-for-shade-when-its-125-degrees.html
+
+**No Corrections: June 8, 2026**\
+`No corrections appeared in print on Monday, June 8, 2026.`\
+https://www.nytimes.com/2026/06/08/pageoneplus/no-corrections-june-8-2026.html
+
+**Quote of the Day: In His Role 30 Years, A Last Note Draws Near**\
+`Quotation of the Day for Monday, June 8, 2026.`\
+https://www.nytimes.com/2026/06/08/pageoneplus/quote-of-the-day-in-his-role-30-years-a-last-note-draws-near.html
+
+**A ‘Miraculous Transformation’: How Kim Jong-un Fortified North Korea**\
+`He used the pandemic to ruthlessly tighten his grip on the country. Then he energized its economy by leveraging Russia’s war in Ukraine.`\
+https://www.nytimes.com/2026/06/08/world/asia/north-korea-kim-jong-un-pandemic-economy.html
+
+**One Is the Pope, the Other an Atheist. They Both Oppose Trump.**\
+`Pope Leo XIV and Prime Minister Pedro Sánchez of Spain, who meet on Monday, have recently clashed with President Trump. Their motivations, however, may be different.`\
+https://www.nytimes.com/2026/06/08/world/europe/pope-leo-sanchez-trump.html
+
 **Joshua Henry Wins the Tony for Best Actor in a Musical.**\
 `As Coalhouse Walker Jr. in “Ragtime,” Henry belts out emotional solos that have prompted mid-show standing ovations.`\
 https://www.nytimes.com/2026/06/07/theater/joshua-henry-tony-best-actor-musical.html

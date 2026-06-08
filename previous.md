@@ -1,3 +1,23 @@
+**Searching for Shade When It’s 125 Degrees**\
+`Every season brings a new struggle for people in Dadu District, Pakistan, an area prone to sandstorms, drought and flooding.`\
+https://www.nytimes.com/2026/06/08/world/asia/searching-for-shade-when-its-125-degrees.html
+
+**No Corrections: June 8, 2026**\
+`No corrections appeared in print on Monday, June 8, 2026.`\
+https://www.nytimes.com/2026/06/08/pageoneplus/no-corrections-june-8-2026.html
+
+**Quote of the Day: In His Role 30 Years, A Last Note Draws Near**\
+`Quotation of the Day for Monday, June 8, 2026.`\
+https://www.nytimes.com/2026/06/08/pageoneplus/quote-of-the-day-in-his-role-30-years-a-last-note-draws-near.html
+
+**A ‘Miraculous Transformation’: How Kim Jong-un Fortified North Korea**\
+`He used the pandemic to ruthlessly tighten his grip on the country. Then he energized its economy by leveraging Russia’s war in Ukraine.`\
+https://www.nytimes.com/2026/06/08/world/asia/north-korea-kim-jong-un-pandemic-economy.html
+
+**One Is the Pope, the Other an Atheist. They Both Oppose Trump.**\
+`Pope Leo XIV and Prime Minister Pedro Sánchez of Spain, who meet on Monday, have recently clashed with President Trump. Their motivations, however, may be different.`\
+https://www.nytimes.com/2026/06/08/world/europe/pope-leo-sanchez-trump.html
+
 **‘Schmigadoon!’ Wins Best Musical Tony Award**\
 `The knowing, and loving, musical theater satire won the coveted award of the night.`\
 https://www.nytimes.com/2026/06/07/theater/schmigadoon-wins-best-musical-tony-award.html
@@ -129,24 +149,4 @@ https://www.nytimes.com/2026/06/07/style/bruce-springsteen-talks-about-his-place
 **‘Scary Movie’ Returns Politically Incorrect Humor to Top of the Box Office**\
 `The film took in $55 million over the weekend in the United States and Canada. It was the biggest opening for an R-rated comedy in 12 years.`\
 https://www.nytimes.com/2026/06/07/business/media/scary-movie-politically-incorrect-humor.html
-
-**Knicks Watch Party at MSG Is Canceled as Game 3 Security Ramps Up for Trump**\
-`President Trump and Mayor Zohran Mamdani are expected to attend the game on Monday at Madison Square Garden. A viewing party on Friday led to more than a dozen arrests.`\
-https://www.nytimes.com/2026/06/07/nyregion/knicks-watch-party-msg-canceled-trump.html
-
-**Democrats in Congress Grapple With Concerns Over Platner Allegations**\
-`Representative Ro Khanna said that he believed the account of a woman who accused Graham Platner of physically threatening behavior, and urged his campaign not to criticize her.`\
-https://www.nytimes.com/2026/06/07/us/politics/platner-democrats-congress-reaction.html
-
-**‘Earth, Wind & Fire’ Review: Questlove’s Tribute to an Inspiration**\
-`In “To Be Celestial vs. That’s the Weight of the World,” he draws a compelling portrait of Maurice White, the band’s founder, and his enduring legacy.`\
-https://www.nytimes.com/2026/06/07/movies/earth-wind-fire-hbo-documentary.html
-
-**Muere Alan Riding, corresponsal del Times en México y París, a los 82 años**\
-`Fue un observador cosmopolita y perspicaz de los conflictos de la región. Sus coberturas abarcaron la política y las insurgencias de Latinoamérica, así como bulevares de París y los salones de Lisboa.`\
-https://www.nytimes.com/es/2026/06/07/espanol/muere-alan-riding.html
-
-**Lawsuit Aims to Stop U.F.C. Fights at White House on Trump’s Birthday**\
-`A federal lawsuit said the event, set for June 14, was unlawfully planned and designed to benefit Mr. Trump and his allies.`\
-https://www.nytimes.com/2026/06/07/us/politics/lawsuit-ufc-fight-white-house.html
 
