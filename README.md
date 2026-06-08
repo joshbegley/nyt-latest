@@ -194,7 +194,7 @@ https://www.nytimes.com/video/arts/100000010951502/tony-awards-winners.html
 `A deadly 7.8-magnitude earthquake struck off the island of Mindanao in the southern Philippines, causing buildings to collapse and triggering tsunami warnings in the region.`\
 https://www.nytimes.com/video/world/asia/100000010951516/philippines-earthquake-death-toll.html
 
-**Uno es el papa, el otro es ateo. Ambos se oponen a Trump**\
-`El papa León ha provocado la furia del presidente de EE. UU. por criticar la guerra en Irán y el presidente del gobierno español se ha opuesto a Trump en muchos temas. Sus motivaciones, sin embargo, parecen diferentes.`\
-https://www.nytimes.com/es/2026/06/08/espanol/mundo/papa-leon-sanchez-trump.html
+**Live Updates: Iran Signals It Will Halt Strikes Against Israel After Hours of Attacks**\
+`Iran’s Revolutionary Guards Corps said it had concluded its latest military operation against Israel after both countries traded strikes and an uneasy two-month truce broke down.`\
+https://www.nytimes.com/live/2026/06/08/world/iran-israel-lebanon-attacks
 
