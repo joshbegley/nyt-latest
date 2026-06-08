@@ -66,8 +66,8 @@ https://www.nytimes.com/2026/06/07/nyregion/american-flag-power-outages-connecti
 `Iran attacked Israel with ballistic missiles late Sunday after an Israeli attack in the outskirts of Beirut against Hezbollah, the Iranian-backed militant group.`\
 https://www.nytimes.com/video/world/middleeast/100000010950217/iran-fires-missiles-at-israel-for-first-time-since-april.html
 
-**Tony Award Winners 2026: See the Updating List**\
-`The Tony Awards are underway at Radio City Music Hall in New York City.`\
+**Tony Award Winners 2026: See the Full List**\
+`The Tony Awards were held at Radio City Music Hall in New York City.`\
 https://www.nytimes.com/2026/06/07/theater/tony-award-winners-2026-the-updating-list.html
 
 **Our Favorite Photos From the Tony Awards**\
