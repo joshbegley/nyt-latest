@@ -1,3 +1,7 @@
+**Our Favorite Photos From the Tony Awards**\
+`As Broadway’s brightest gathered for the industry’s biggest night, here’s an up-close look at what you couldn’t see on TV.`\
+https://www.nytimes.com/2026/06/07/theater/our-favorite-photos-from-the-tony-awards-red-carpet.html
+
 **Searching for Shade When It’s 125 Degrees**\
 `Every season brings a new struggle for people in Dadu District, Pakistan, an area prone to sandstorms, drought and flooding.`\
 https://www.nytimes.com/2026/06/08/world/asia/searching-for-shade-when-its-125-degrees.html
