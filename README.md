@@ -1,3 +1,11 @@
+**La mujer colombiana deportada a Congo-Kinsasa podría permanecer allí**\
+`En mayo, el juez había dictaminado que la mujer fue deportada indebidamente. Ahora, nuevas pruebas lo llevaron a revocar su decisión.`\
+https://www.nytimes.com/es/2026/06/08/espanol/mundo/colombiana-deportada-congo.html
+
+**Map: 6.1-Magnitude Earthquake Strikes in the Gulf of Mexico Near Cuba**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/08/world/americas/earthquake-tracker-cuba-gulf-mexico.html
+
 **Trump Administration Seeks to Revoke U.S. Citizenship of 17 Immigrants**\
 `The push to denaturalize more immigrants is the latest sign that the administration is setting its sights on the legal immigration system.`\
 https://www.nytimes.com/2026/06/08/us/politics/trump-denaturalization.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/06/08/podcasts/the-daily/republicans-trump-iran-war
 **NYT Connections Answers for June 9, 2026**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, June 9, 2026.`\
 https://www.nytimes.com/2026/06/08/crosswords/connections-companion-1094.html
-
-**NYT Strands Hints for June 9, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, June 9, 2026.`\
-https://www.nytimes.com/2026/06/08/crosswords/strands-sidekick-828.html
-
-**Today’s Wordle Hints for June 9, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, June 9, 2026.`\
-https://www.nytimes.com/2026/06/08/crosswords/wordle-review-1816.html
 
 **Live Updates: Iran and Israel Pull Back After Exchange of Strikes**\
 `Prime Minister Benjamin Netanyahu said Israel’s “fire is on hold” after a phone call with President Trump. Iran also said it would cease its attacks but, like Israel, warned it was ready to resume at any time.`\
