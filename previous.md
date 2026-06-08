@@ -1,3 +1,19 @@
+**Yewande Komolafe’s Mushroom-Stuffed Plantains**\
+`(No description)`\
+https://www.nytimes.com/2026/06/08/dining/yewande-komolafes-mushroom-stuffed-plantains.html
+
+**There’s a Better Way to Catch Seafood**\
+`Bottom trawlers kill or maim everything in their path. We should ban — or at least curtail — the incredibly harmful practice.`\
+https://www.nytimes.com/2026/06/08/opinion/fishing-bottom-trawlers-seafood.html
+
+**Do You Recognize These Lines From Popular Science Fiction?**\
+`Some bits of dialogue or description can stick with you long after you’ve finished reading. Try this short quiz to see how many jog your memory.`\
+https://www.nytimes.com/interactive/2026/06/08/books/review/future-worlds-quiz.html
+
+**Iran and Israel Move to De-Escalate After Hours of Fighting**\
+`Iran and Israel signaled that they would move to de-escalate military hostilities after exchanging strikes for the first time since April, briefly breaking an uneasy cease-fire.`\
+https://www.nytimes.com/video/world/middleeast/100000010951911/israel-iran-attacks-ceasefire.html
+
 **Billie Tisch, Influential New York Philanthropist, Dies at 98**\
 `The billionaire widow of Laurence Tisch, she raised money for WNYC radio and other cultural organizations, along with Jewish, medical and educational institutions.`\
 https://www.nytimes.com/2026/06/08/nyregion/billie-tisch-dead.html
@@ -177,22 +193,6 @@ https://www.nytimes.com/2026/06/08/us/maine-governor-platner-nirav-shah.html
 **B.F.I. Preserves ‘Charlie Bit My Finger’ and More Videos in Archive of Viral Moments**\
 `The British Film Institute assembled more than 400 videos in an archive of culturally significant internet moments. See what made the cut.`\
 https://www.nytimes.com/2026/06/08/technology/uk-video-memes-archive-tape.html
-
-**An Aggressive Israel Is Shaking the Middle East**\
-`Since Hamas attacked Israel on Oct. 7, 2023, aggression and expansionism have come to define Israel’s foreign policy.`\
-https://www.nytimes.com/2026/06/08/opinion/israeli-expansionism-middle-east-hamas.html
-
-**The A.I. Classroom Is Quiet. Way Too Quiet.**\
-`A.I. tutoring is seductive, but ultimately ineffective.`\
-https://www.nytimes.com/2026/06/08/opinion/ai-classroom-silence-reform.html
-
-**Have a Thorny Medical Question? Your Doctor May Be Using A.I. for That.**\
-`OpenEvidence, a fast-growing start-up, is using artificial intelligence to help doctors find answers to clinical questions for diagnosis and treatment.`\
-https://www.nytimes.com/2026/06/08/business/ai-medicine-doctors.html
-
-**The Croatian Coast: What to See, Do and Eat**\
-`Tips for first-time visitors to the cities, islands and stunning coastline of one of Europe’s most beguiling summer destinations.`\
-https://www.nytimes.com/2026/06/08/travel/where-to-go-on-the-croatian-coast.html
 
 **Live Updates: Iran and Israel Move to De-Escalate After Cease-Fire Breaks Down**\
 `Iran’s Revolutionary Guards Corps signaled that it had concluded its latest military operation against Israel. Prime Minister Benjamin Netanyahu pulled back from preparations for another attack after pushback from President Trump, two Israeli military officials said.`\

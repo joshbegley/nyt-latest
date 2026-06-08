@@ -1,3 +1,19 @@
+**Yewande Komolafe’s Mushroom-Stuffed Plantains**\
+`(No description)`\
+https://www.nytimes.com/2026/06/08/dining/yewande-komolafes-mushroom-stuffed-plantains.html
+
+**There’s a Better Way to Catch Seafood**\
+`Bottom trawlers kill or maim everything in their path. We should ban — or at least curtail — the incredibly harmful practice.`\
+https://www.nytimes.com/2026/06/08/opinion/fishing-bottom-trawlers-seafood.html
+
+**Do You Recognize These Lines From Popular Science Fiction?**\
+`Some bits of dialogue or description can stick with you long after you’ve finished reading. Try this short quiz to see how many jog your memory.`\
+https://www.nytimes.com/interactive/2026/06/08/books/review/future-worlds-quiz.html
+
+**Iran and Israel Move to De-Escalate After Hours of Fighting**\
+`Iran and Israel signaled that they would move to de-escalate military hostilities after exchanging strikes for the first time since April, briefly breaking an uneasy cease-fire.`\
+https://www.nytimes.com/video/world/middleeast/100000010951911/israel-iran-attacks-ceasefire.html
+
 **Billie Tisch, Influential New York Philanthropist, Dies at 98**\
 `The billionaire widow of Laurence Tisch, she raised money for WNYC radio and other cultural organizations, along with Jewish, medical and educational institutions.`\
 https://www.nytimes.com/2026/06/08/nyregion/billie-tisch-dead.html
