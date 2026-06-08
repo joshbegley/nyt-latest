@@ -1,3 +1,7 @@
+**Maps: 7.8-Magnitude Earthquake near the Philippines Raises Tsunami Alerts**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/07/world/philippines-earthquake-tsunami-alert.html
+
 **‘Liberation’ Wins the Tony for Best Play**\
 `The playwright Bess Wohl is the first American woman to win this award since Wendy Wasserstein won for “The Heidi Chronicles” in 1989.`\
 https://www.nytimes.com/2026/06/07/theater/liberation-tony-awards-best-play.html
