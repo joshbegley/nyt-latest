@@ -1,3 +1,11 @@
+**El agente de la CIA que ocultó lingotes de oro habría falsificado un programa de espionaje**\
+`Un juez federal ha dictaminado que David Rush, empleado de la CIA, debe seguir detenido. Las autoridades de EE. UU. afirman que Rush desvió millones de fondos federales a .`\
+https://www.nytimes.com/es/2026/06/08/espanol/estados-unidos/agente-cia-lingotes-oro.html
+
+**Tropical Storm Boris Drenches Mexico’s Pacific Coast**\
+`A busy hurricane season is underway in the Pacific.`\
+https://www.nytimes.com/2026/06/08/weather/tropical-storm-boris-mexico-rain.html
+
 **Was Scott Rudin the Biggest Winner at This Year’s Tony Awards?**\
 `Scott Rudin is a lead producer of “Death of a Salesman,” but he kept a low profile this awards season after a four-year hiatus prompted by bullying allegations.`\
 https://www.nytimes.com/2026/06/08/theater/scott-rudin-salesman-tony-awards.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/08/dining/post-modern-times-minneapolis-free-foo
 **How the Drive to Find a Conspiracy Against Trump Rocked the Justice Dept.**\
 `The push to investigate what the president’s allies saw as a “deep state” cabal intent on taking him down set off cascading crises, ended careers and undercut the department’s credibility with judges.`\
 https://www.nytimes.com/2026/06/08/us/politics/justice-department-trump-patel-conspiracy.html
-
-**Why It Cost This Man $250,000 to Help His Family Survive in Gaza**\
-`How Israeli trade restrictions and shadowy profiteers drove up the price of nearly everything — from food to evacuation.`\
-https://www.nytimes.com/interactive/2026/06/08/magazine/gaza-family.html
-
-**While New York Celebrates the Knicks’ Finals Appearance, Some Residents Shrug**\
-`Not everyone in the city is being swept up in the team’s championship drive. Some are just trying to see a Broadway show, or spin some yarn.`\
-https://www.nytimes.com/2026/06/08/style/nyc-knicks-nba-finals.html
 
 **Live Updates: Iran and Israel Pull Back After Exchange of Attacks**\
 `Iran signaled that it had concluded its latest strikes against Israel. Prime Minister Benjamin Netanyahu refrained from another attack under pressure from President Trump, a U.S. and two Israeli officials said.`\
