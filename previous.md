@@ -1,3 +1,7 @@
+**Trump Eyes a Piece of A.I. Giants**\
+`The president has publicly weighed the government taking stakes in artificial intelligence giants, as his position on regulating the industry shifts.`\
+https://www.nytimes.com/2026/06/08/business/dealbook/trump-ai-stakes.html
+
 **In Striking Israel, Iran Aims to Protect Its Regional Gains**\
 `For Tehran, retaliating for strikes against Hezbollah in Lebanon shows that it will stand by its regional allies and block attempts to shift the regional balance of power.`\
 https://www.nytimes.com/2026/06/08/world/middleeast/israel-iran-strikes-regional-gains.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/06/08/espanol/mundo/papa-leon-sanchez-trump.html
 **Nikol Pashinyan Wins Re-election in Armenia**\
 `Prime Minister Nikol Pashinyan overcame a pressure campaign by Moscow and was on track to win a mandate to move ahead on peace talks that President Trump helped broker.`\
 https://www.nytimes.com/2026/06/08/world/europe/armenia-election-results.html
-
-**Live Updates: Iran Signals It Will Halt Strikes Against Israel After Hours of Attacks**\
-`Iran’s Revolutionary Guards Corps said it had concluded its latest military operation against Israel after both countries traded strikes and an uneasy two-month truce broke down.`\
-https://www.nytimes.com/live/2026/06/08/world/iran-israel-lebanon-attacks
 
