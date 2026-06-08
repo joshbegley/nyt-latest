@@ -1,3 +1,11 @@
+**Patrick Bruel, French Singer, Is Taken Into Custody Over Sex Assault Claims**\
+`Mr. Bruel, long a beloved celebrity in France, has denied allegations raised by 13 women dating to 1997.`\
+https://www.nytimes.com/2026/06/08/world/europe/patrick-bruel-questioning-rape-sexual-assault.html
+
+**Trump’s Eruption, and His Sycophants**\
+`Readers discuss President Trump’s explosive interview on NBC and his fawning cabinet. Also: Weakened voting rights; Mr. Trump on a $250 bill.`\
+https://www.nytimes.com/2026/06/08/opinion/trump-tv-cabinet.html
+
 **Trump Visit Closes Blocks Around MSG: What to Know About Security at the Knicks Game**\
 `With President Trump and Mayor Zohran Mamdani set to attend Monday night’s Knicks game at Madison Square Garden, there will be strict security in Midtown Manhattan.`\
 https://www.nytimes.com/2026/06/08/nyregion/nba-finals-msg-trump-knicks-mamdani-security.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/08/opinion/jon-ossoff-president.html
 **In Maine, Supporters of Graham Platner Continue to Back His Senate Campaign, With ‘Trepidation’**\
 `Many Democrats are sticking by their presumptive Senate nominee Graham Platner. But some have soured, and others are anxious about how recent revelations could affect a close race.`\
 https://www.nytimes.com/2026/06/08/us/politics/graham-platner-voters-maine-senate.html
-
-**Bounty of Frida Kahlo Art Emerges in Mexico’s Restored Museum**\
-`Diego Rivera’s great patron Dolores Olmedo regarded Frida as a rival but bought 26 of her artworks, the largest collection. Their work is on view in Mexico City.`\
-https://www.nytimes.com/2026/06/08/arts/design/frida-kahlo-diego-rivera.html
-
-**Best and Worst Moments From the 2026 Tony Awards: Pink, Maya Rudolph, Cole Escola, ‘Cats’**\
-`Pink brought sincerity and high energy as the host, musical numbers by “Cats,” “Ragtime” and “Chicago” popped, and Maya Rudolph and Cole Escola mined comic gold.`\
-https://www.nytimes.com/2026/06/08/theater/best-worst-tony-awards.html
 
 **Live Updates: Iran and Israel Pull Back After Exchange of Attacks**\
 `Iran signaled that it had concluded its latest strikes against Israel. Prime Minister Benjamin Netanyahu refrained from another attack under pressure from President Trump, a U.S. and two Israeli officials said.`\
