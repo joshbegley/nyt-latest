@@ -1,3 +1,19 @@
+**Congressional Republicans Try a New Approach: Telling Trump No**\
+`President Trump is seemingly making the midterms about revenge, not about what’s best for a party trying to keep control of Congress.`\
+https://www.nytimes.com/2026/06/08/podcasts/the-daily/republicans-trump-iran-war-compensation-fund.html
+
+**NYT Connections Answers for June 9, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, June 9, 2026.`\
+https://www.nytimes.com/2026/06/08/crosswords/connections-companion-1094.html
+
+**NYT Strands Hints for June 9, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, June 9, 2026.`\
+https://www.nytimes.com/2026/06/08/crosswords/strands-sidekick-828.html
+
+**Today’s Wordle Hints for June 9, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, June 9, 2026.`\
+https://www.nytimes.com/2026/06/08/crosswords/wordle-review-1816.html
+
 **French Open 2026: Zverev Wins, but Polarizes**\
 `Alexander Zverev captured his first Grand Slam title, beating Flavio Cobolli in a five-set struggle.`\
 https://www.nytimes.com/2026/06/08/podcasts/french-open-2026-zverev-wins-but-polarizes.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/es/2026/06/08/espanol/cultura/5-minutos-charlie-parker.h
 **Word of the Day: supine**\
 `This word has appeared in 30 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/06/08/learning/word-of-the-day-supine.html
-
-**‘Every Year After’ and 8 More Shows to Watch on TV This Week**\
-`The adaptation of a Carley Fortune novel airs and a new season of “Below Deck Mediterranean” begins.`\
-https://www.nytimes.com/2026/06/08/arts/television/every-year-after-tv-this-week.html
-
-**Putin Restricted the Internet. It Has Not Gone to Plan.**\
-`In destroying what remained of a relatively free internet, Vladimir Putin has broken a longstanding social contract.`\
-https://www.nytimes.com/2026/06/08/opinion/putin-internet-russia-shutdown.html
-
-**Searching for Shade When It’s 125 Degrees**\
-`Every season brings a new struggle for people in Dadu District, Pakistan, an area prone to sandstorms, drought and flooding.`\
-https://www.nytimes.com/2026/06/08/world/asia/pakistan-heat-wave.html
-
-**No Corrections: June 8, 2026**\
-`No corrections appeared in print on Monday, June 8, 2026.`\
-https://www.nytimes.com/2026/06/08/pageoneplus/no-corrections-june-8-2026.html
 

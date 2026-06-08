@@ -1,3 +1,19 @@
+**Congressional Republicans Try a New Approach: Telling Trump No**\
+`President Trump is seemingly making the midterms about revenge, not about what’s best for a party trying to keep control of Congress.`\
+https://www.nytimes.com/2026/06/08/podcasts/the-daily/republicans-trump-iran-war-compensation-fund.html
+
+**NYT Connections Answers for June 9, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, June 9, 2026.`\
+https://www.nytimes.com/2026/06/08/crosswords/connections-companion-1094.html
+
+**NYT Strands Hints for June 9, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, June 9, 2026.`\
+https://www.nytimes.com/2026/06/08/crosswords/strands-sidekick-828.html
+
+**Today’s Wordle Hints for June 9, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, June 9, 2026.`\
+https://www.nytimes.com/2026/06/08/crosswords/wordle-review-1816.html
+
 **Live Updates: Trump Calls on Iran and Israel to Stop Strikes**\
 `Iran launched waves of missiles at Israel, and Israel said it struck military targets and a petrochemical complex in Iran, as an uneasy two-month truce appeared to break down.`\
 https://www.nytimes.com/live/2026/06/08/world/iran-israel-lebanon-attacks

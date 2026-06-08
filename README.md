@@ -1,3 +1,7 @@
+**Iran and Israel Exchange First Strikes Since Cease-Fire, and Texas Ranchers Sound the Alarm**\
+`Plus, the fight over the fight on the White House lawn.`\
+https://www.nytimes.com/2026/06/08/podcasts/the-headlines/iran-israel-exchange-first-strikes-since-cease-fire-texas-ranchers-screwworm.html
+
 **Congressional Republicans Try a New Approach: Telling Trump No**\
 `President Trump is seemingly making the midterms about revenge, not about what’s best for a party trying to keep control of Congress.`\
 https://www.nytimes.com/2026/06/08/podcasts/the-daily/republicans-trump-iran-war-compensation-fund.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/08/crosswords/spelling-bee-forum.html
 **5 minutos para que te enamores de Charlie Parker**\
 `Bird ayudó a introducir el bebop, un estilo que transformó el jazz de una música popular para bailar en una forma de arte más exigente y exploratoria. He aquí 11 piezas para introducirte a su legado perdurable.`\
 https://www.nytimes.com/es/2026/06/08/espanol/cultura/5-minutos-charlie-parker.html
-
-**Word of the Day: supine**\
-`This word has appeared in 30 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/06/08/learning/word-of-the-day-supine.html
 
