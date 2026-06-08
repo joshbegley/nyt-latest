@@ -1,3 +1,7 @@
+**How Will I.P.O.s From A.I. Companies Affect the Average Person?**\
+`On the “Hard Fork” podcast, the hosts Casey Newton and Kevin Roose discuss the pros and cons of I.P.O.s by large tech companies.`\
+https://www.nytimes.com/video/podcasts/100000010953710/how-will-ipos-from-ai-companies-affect-the-average-person.html
+
 **Pentagon Again Revises Religious Categories for Troops**\
 `The Defense Department made the change after lawmakers objected to its original list, which did not include the Latter-day Saints among traditions labeled Christian.`\
 https://www.nytimes.com/2026/06/08/us/pentagon-religious-list-troops.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/08/opinion/trump-tv-cabinet.html
 **Trump Visit Closes Blocks Around MSG: What to Know About Security at the Knicks Game**\
 `With President Trump and Mayor Zohran Mamdani set to attend Monday night’s Knicks game at Madison Square Garden, there will be strict security in Midtown Manhattan.`\
 https://www.nytimes.com/2026/06/08/nyregion/nba-finals-msg-trump-knicks-mamdani-security.html
-
-**They Spent Years on a Math Problem. Then They Were Scooped by A.I.**\
-`Artificial intelligence is mastering the kinds of projects that have long helped to build the careers of young mathematicians. What does that mean for their future?`\
-https://www.nytimes.com/2026/06/08/science/ai-scoop-young-mathematicians.html
 
