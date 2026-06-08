@@ -1,3 +1,11 @@
+**Deported Colombian Woman Can Remain in Congo, U.S. Judge Rules**\
+`The judge had previously ruled that the woman had been improperly deported by the Trump administration and had ordered her returned to the United States.`\
+https://www.nytimes.com/2026/06/08/world/africa/trump-deportation-us-judge-congo-colombia.html
+
+**How to See the 2026 Tony-Winning Plays and Musicals**\
+`Many of the winning plays and musicals are still onstage, and some are closing soon. Here’s a guide to help you navigate the field and find tickets.`\
+https://www.nytimes.com/2026/06/08/theater/how-to-see-the-2026-tony-winners.html
+
 **Patrick Bruel, French Singer, Is Taken Into Custody Over Sex Assault Claims**\
 `Mr. Bruel, long a beloved celebrity in France, has denied allegations raised by 13 women dating to 1997.`\
 https://www.nytimes.com/2026/06/08/world/europe/patrick-bruel-questioning-rape-sexual-assault.html

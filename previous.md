@@ -1,3 +1,11 @@
+**Deported Colombian Woman Can Remain in Congo, U.S. Judge Rules**\
+`The judge had previously ruled that the woman had been improperly deported by the Trump administration and had ordered her returned to the United States.`\
+https://www.nytimes.com/2026/06/08/world/africa/trump-deportation-us-judge-congo-colombia.html
+
+**How to See the 2026 Tony-Winning Plays and Musicals**\
+`Many of the winning plays and musicals are still onstage, and some are closing soon. Here’s a guide to help you navigate the field and find tickets.`\
+https://www.nytimes.com/2026/06/08/theater/how-to-see-the-2026-tony-winners.html
+
 **Patrick Bruel, French Singer, Is Taken Into Custody Over Sex Assault Claims**\
 `Mr. Bruel, long a beloved celebrity in France, has denied allegations raised by 13 women dating to 1997.`\
 https://www.nytimes.com/2026/06/08/world/europe/patrick-bruel-questioning-rape-sexual-assault.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/08/books/review/simon-pare-poupart-trash-garbage
 **How a Family of 4 (and One Kid in College) Live on $85,000 a Year in the Bronx**\
 `The Suarez family has been facing New York City’s rising costs while dealing with the physical, mental and financial expenses of a major surgery.`\
 https://www.nytimes.com/interactive/2026/06/08/nyregion/nyc-budgeting-affordability-suarez.html
-
-**Why Everyone Wants Jon Ossoff to Run for President**\
-`The Georgia senator is excoriating Trump and his systemic corruption in a way that transcends the Democratic Party’s progressive-moderate divide.`\
-https://www.nytimes.com/2026/06/08/opinion/jon-ossoff-president.html
-
-**In Maine, Supporters of Graham Platner Continue to Back His Senate Campaign, With ‘Trepidation’**\
-`Many Democrats are sticking by their presumptive Senate nominee Graham Platner. But some have soured, and others are anxious about how recent revelations could affect a close race.`\
-https://www.nytimes.com/2026/06/08/us/politics/graham-platner-voters-maine-senate.html
 
 **Live Updates: Iran and Israel Pull Back After Exchange of Attacks**\
 `Iran signaled that it had concluded its latest strikes against Israel. Prime Minister Benjamin Netanyahu refrained from another attack under pressure from President Trump, a U.S. and two Israeli officials said.`\
