@@ -1,3 +1,7 @@
+**Mapa: la trayectoria de la tormenta tropical Cristina en vivo**\
+`Consulta la trayectoria probable y las horas de llegada de los vientos de Cristina.`\
+https://www.nytimes.com/es/interactive/2026/06/08/espanol/cristina-mapa-trayectoria.html
+
 **Mapa: un terremoto de magnitud 6,1 se registra en el golfo de México cerca de Cuba**\
 `Mira la localización del epicentro del sismo y el área de movimiento.`\
 https://www.nytimes.com/es/interactive/2026/06/08/espanol/cuba-sismo.html
