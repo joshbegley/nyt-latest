@@ -1,3 +1,7 @@
+**Would Mike Johnson Pass Raphael Warnock’s Test?**\
+`On “The Interview,” Raphael Warnock, a Democratic senator from Georgia and a pastor, explains his “acid test” on faith.`\
+https://www.nytimes.com/video/podcasts/100000010953787/would-mike-johnson-pass-raphael-warnocks-test.html
+
 **Una ‘transformación milagrosa’: cómo Kim Jong-un fortaleció Corea del Norte**\
 `Utilizó la pandemia para reforzar despiadadamente su control sobre el país. Luego dinamizó su economía aprovechando la guerra de Rusia en Ucrania.`\
 https://www.nytimes.com/es/2026/06/08/espanol/mundo/kim-jong-un-corea-norte.html

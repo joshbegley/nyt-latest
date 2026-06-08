@@ -1,3 +1,7 @@
+**Would Mike Johnson Pass Raphael Warnock’s Test?**\
+`On “The Interview,” Raphael Warnock, a Democratic senator from Georgia and a pastor, explains his “acid test” on faith.`\
+https://www.nytimes.com/video/podcasts/100000010953787/would-mike-johnson-pass-raphael-warnocks-test.html
+
 **Una ‘transformación milagrosa’: cómo Kim Jong-un fortaleció Corea del Norte**\
 `Utilizó la pandemia para reforzar despiadadamente su control sobre el país. Luego dinamizó su economía aprovechando la guerra de Rusia en Ucrania.`\
 https://www.nytimes.com/es/2026/06/08/espanol/mundo/kim-jong-un-corea-norte.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/interactive/2026/06/08/weather/cristina-map-path-tracker
 **Los iraníes sufren la destrucción de meses de guerra y el aumento de precios**\
 `La implosión de la economía está causando desesperanza tanto entre los iraníes que apoyan al gobierno como entre los que se le oponen.`\
 https://www.nytimes.com/es/2026/06/08/espanol/mundo/guerra-iran-situacion.html
-
-**How Elon Musk’s Friendship With the F.C.C. Smooths the Way for SpaceX’s I.P.O.**\
-`Brendan Carr, the chairman of the Federal Communications Commission, has greenlighted regulatory requests for the company’s Starlink satellite internet service and lavished praise on its chief executive.`\
-https://www.nytimes.com/2026/06/08/technology/elon-musk-brendan-carr-fcc-spacex.html
 
