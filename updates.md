@@ -1,3 +1,15 @@
+**Vance Blames Migrant ‘Invasion’ for UK Stabbing**\
+`British officials accused Vice President JD Vance of trying to “stir up division” in his comments on the murder of Henry Nowak, whose killer was sentenced to life in prison last week.`\
+https://www.nytimes.com/2026/06/08/world/europe/vance-uk-stabbing-migrants.html
+
+**Mapa: la trayectoria de la tormenta tropical Cristina en vivo**\
+`Consulta la trayectoria probable y las horas de llegada de los vientos de Cristina.`\
+https://www.nytimes.com/es/interactive/2026/06/08/espanol/cristina-mapa-trayectoria.html
+
+**Judge Throws Out Trump Administration’s Policy Imposing $100,000 Fees for H-1B Visas**\
+`The ruling voided “in its entirety” a policy from September requiring companies to pay $100,000 fees for H-1B visa petitions.`\
+https://www.nytimes.com/2026/06/08/us/politics/judge-visa-skilled-workers-fee-trump.html
+
 **Trump Eyes a Piece of A.I. Giants**\
 `The president has publicly weighed the government taking stakes in artificial intelligence giants, as his position on regulating the industry shifts.`\
 https://www.nytimes.com/2026/06/08/business/dealbook/trump-ai-stakes.html
