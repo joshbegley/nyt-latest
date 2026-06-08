@@ -19,7 +19,7 @@ https://www.nytimes.com/es/2026/06/08/espanol/mundo/papa-leon-sanchez-trump.html
 https://www.nytimes.com/2026/06/08/world/europe/armenia-election-results.html
 
 **Live Updates: Iran and Israel Trade Strikes for the First Time Since April**\
-`Iran launched waves of missiles at Israel, while Israel struck military targets and a petrochemical complex in Iran.`\
+`Iran launched waves of missiles at Israel, while Israel struck military targets and a petrochemical complex in Iran, as an uneasy two-month truce appeared to break down.`\
 https://www.nytimes.com/live/2026/06/08/world/iran-israel-lebanon-attacks
 
 **Trump, Mamdani and the Knicks: A Manic Monday Awaits New York**\
