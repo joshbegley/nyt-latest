@@ -1,3 +1,11 @@
+**Videos Show Chinese Businesses Hawking North Korean Labor**\
+`On social media, Chinese entrepreneurs are touting cheap labor across the border, as trade between the two countries regains momentum.`\
+https://www.nytimes.com/2026/06/08/world/asia/chinese-businesses-north-korea.html
+
+**Apple Reveals New A.I.-Powered Version of Its Siri Digital Assistant**\
+`The iPhone maker revealed its new artificial intelligence products at its developer conference, the last with Tim Cook as chief executive.`\
+https://www.nytimes.com/2026/06/08/technology/apple-ai-siri.html
+
 **Man Who Fatally Stabbed Gay Dancer Convicted of Hate Crime Charge**\
 `Dmitriy Popov, 20, who killed O’Shae Sibley, 28, at a gas station in Brooklyn was found guilty of manslaughter as a hate crime, which carries a sentence of up to 25 years.`\
 https://www.nytimes.com/2026/06/08/nyregion/oshae-sibley-murder-hate-crime.html

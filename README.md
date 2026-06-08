@@ -1,3 +1,11 @@
+**The SpaceX I.P.O. Shows Us What’s Wrong With Our Stock Market**\
+`The SpaceX I.P.O. proves the stock market has become a hype machine.`\
+https://www.nytimes.com/2026/06/08/opinion/spacex-ipo-stock-market.html
+
+**A Timeline of Donald Trump and Lindsey Graham’s Relationship Before the South Carolina Primary**\
+`Once one of President Trump’s fiercest critics, the South Carolina senator has dramatically shifted his posture over the years. Will it pay off on Tuesday in his primary?`\
+https://www.nytimes.com/2026/06/08/us/politics/trump-graham-relationship-timeline-primary.html
+
 **Videos Show Chinese Businesses Hawking North Korean Labor**\
 `On social media, Chinese entrepreneurs are touting cheap labor across the border, as trade between the two countries regains momentum.`\
 https://www.nytimes.com/2026/06/08/world/asia/chinese-businesses-north-korea.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/08/world/middleeast/netanyahu-trump-split-iran-l
 **Gordon S. Wood, Pioneering Historian of Early America, Dies at 92**\
 `In a Pulitzer-winning book, “The Radicalism of the American Revolution,” he wrote that the colonists rose up against an entire worldview, not just against taxation.`\
 https://www.nytimes.com/2026/06/08/books/gordon-s-wood-dead.html
-
-**Trump dice que nunca prometió que no habría nuevas guerras**\
-`En una larga entrevista con el programa “Meet the Press” de la NBC, el presidente volvió a prometer que los precios de la gasolina bajarían cuando terminara la guerra en Irán.`\
-https://www.nytimes.com/es/2026/06/08/espanol/estados-unidos/trump-nuevas-guerras.html
-
-**Yewande Komolafe’s Mushroom-Stuffed Plantains**\
-`(No description)`\
-https://www.nytimes.com/2026/06/08/dining/yewande-komolafes-mushroom-stuffed-plantains.html
 
