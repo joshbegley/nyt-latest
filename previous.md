@@ -1,3 +1,19 @@
+**Una ‘transformación milagrosa’: cómo Kim Jong-un fortaleció Corea del Norte**\
+`Utilizó la pandemia para reforzar despiadadamente su control sobre el país. Luego dinamizó su economía aprovechando la guerra de Rusia en Ucrania.`\
+https://www.nytimes.com/es/2026/06/08/espanol/mundo/kim-jong-un-corea-norte.html
+
+**Governor’s Visit to ICE Detention Facility Is Strictly Limited, She Says**\
+`Gov. Mikie Sherrill of New Jersey said she was not allowed to speak with immigrants at the Delaney Hall detention center.`\
+https://www.nytimes.com/2026/06/08/nyregion/sherrill-nj-delaney-hall.html
+
+**Trump Previews Fall Strategy With Baseless Claims of California Vote Fraud**\
+`The president is using the slow count of mail ballots in California to renew his effort to cast doubt on election outcomes he doesn’t like, despite a lack of evidence of any widespread fraud.`\
+https://www.nytimes.com/2026/06/08/us/politics/trump-election-fraud-strategy-california.html
+
+**Three Questions About the Maine and South Carolina Primaries**\
+`Graham Platner and Lindsey Graham are both hoping for comfortably big victories.`\
+https://www.nytimes.com/2026/06/08/us/politics/maine-south-carolina-primaries.html
+
 **How Will I.P.O.s From A.I. Companies Affect the Average Person?**\
 `On the “Hard Fork” podcast, the hosts Casey Newton and Kevin Roose discuss the pros and cons of I.P.O.s by large tech companies.`\
 https://www.nytimes.com/video/podcasts/100000010953710/how-will-ipos-from-ai-companies-affect-the-average-person.html
@@ -173,20 +189,4 @@ https://www.nytimes.com/es/2026/06/08/espanol/mundo/guerra-iran-situacion.html
 **How Elon Musk’s Friendship With the F.C.C. Smooths the Way for SpaceX’s I.P.O.**\
 `Brendan Carr, the chairman of the Federal Communications Commission, has greenlighted regulatory requests for the company’s Starlink satellite internet service and lavished praise on its chief executive.`\
 https://www.nytimes.com/2026/06/08/technology/elon-musk-brendan-carr-fcc-spacex.html
-
-**U.S. Judge Reverses Decision on Colombian Woman Deported to Congo**\
-`The judge had previously ruled that the woman had been improperly deported by the Trump administration and had ordered her returned to the United States.`\
-https://www.nytimes.com/2026/06/08/world/africa/trump-deportation-us-judge-congo-colombia.html
-
-**2026 Tonys: How to Get Tickets for Winning Plays and Musicals**\
-`Many of the winning plays and musicals are still onstage, and some are closing soon. Here’s a guide to help you navigate the field and find tickets.`\
-https://www.nytimes.com/2026/06/08/theater/tickets-tony-winners-plays-musicals.html
-
-**Patrick Bruel, French Singer, Is Taken Into Custody Over Sex Assault Claims**\
-`Mr. Bruel, long a beloved celebrity in France, has denied allegations raised by 13 women dating to 1997.`\
-https://www.nytimes.com/2026/06/08/world/europe/patrick-bruel-questioning-rape-sexual-assault.html
-
-**Trump’s Eruption, and His Sycophants**\
-`Readers discuss President Trump’s explosive interview on NBC and his fawning cabinet. Also: Weakened voting rights; Mr. Trump on a $250 bill.`\
-https://www.nytimes.com/2026/06/08/opinion/trump-tv-cabinet.html
 

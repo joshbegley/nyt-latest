@@ -1,3 +1,19 @@
+**Una ‘transformación milagrosa’: cómo Kim Jong-un fortaleció Corea del Norte**\
+`Utilizó la pandemia para reforzar despiadadamente su control sobre el país. Luego dinamizó su economía aprovechando la guerra de Rusia en Ucrania.`\
+https://www.nytimes.com/es/2026/06/08/espanol/mundo/kim-jong-un-corea-norte.html
+
+**Governor’s Visit to ICE Detention Facility Is Strictly Limited, She Says**\
+`Gov. Mikie Sherrill of New Jersey said she was not allowed to speak with immigrants at the Delaney Hall detention center.`\
+https://www.nytimes.com/2026/06/08/nyregion/sherrill-nj-delaney-hall.html
+
+**Trump Previews Fall Strategy With Baseless Claims of California Vote Fraud**\
+`The president is using the slow count of mail ballots in California to renew his effort to cast doubt on election outcomes he doesn’t like, despite a lack of evidence of any widespread fraud.`\
+https://www.nytimes.com/2026/06/08/us/politics/trump-election-fraud-strategy-california.html
+
+**Three Questions About the Maine and South Carolina Primaries**\
+`Graham Platner and Lindsey Graham are both hoping for comfortably big victories.`\
+https://www.nytimes.com/2026/06/08/us/politics/maine-south-carolina-primaries.html
+
 **How Will I.P.O.s From A.I. Companies Affect the Average Person?**\
 `On the “Hard Fork” podcast, the hosts Casey Newton and Kevin Roose discuss the pros and cons of I.P.O.s by large tech companies.`\
 https://www.nytimes.com/video/podcasts/100000010953710/how-will-ipos-from-ai-companies-affect-the-average-person.html
