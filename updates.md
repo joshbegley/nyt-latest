@@ -1,3 +1,7 @@
+**Why Iran Risked an Attack on Israel**\
+`For Tehran, retaliating for strikes against Hezbollah in Lebanon shows that it will stand by its regional allies and block attempts to shift the regional balance of power.`\
+https://www.nytimes.com/2026/06/08/world/middleeast/israel-iran-strikes-regional-gains.html
+
 **Yewande Komolafe’s Mushroom-Stuffed Plantains**\
 `(No description)`\
 https://www.nytimes.com/2026/06/08/dining/yewande-komolafes-mushroom-stuffed-plantains.html
