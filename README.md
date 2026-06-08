@@ -1,3 +1,7 @@
+**Iran-Israel Escalation Ignited in Lebanon, Which Is Trapped in Their Conflict**\
+`The power struggle between Iran and Israel to define the new rules of the Middle East plays out in Lebanon, which the other two countries have used to pursue their own ends.`\
+https://www.nytimes.com/2026/06/08/world/middleeast/lebanon-israel-iran.html
+
 **The One Tony Award Our Readers Would Have Changed**\
 `Thousands of people contributed their Broadway favorites of the season ahead of the Tony Awards. Here’s how their votes stacked up.`\
 https://www.nytimes.com/2026/06/08/theater/readers-tony-awards-voting.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/08/arts/music/knicks-hip-hop-anthems.html
 **Giving Up a Bungalow in Seattle for a Home With a Shared Language**\
 `After a decades-long discussion, a couple whose careers unfolded at the same architectural firm wanted to create a home of their own.`\
 https://www.nytimes.com/2026/06/08/realestate/giving-up-a-bungalow-in-seattle-for-a-home-with-a-shared-language.html
-
-**‘Backrooms’ and ‘Obsession’: The Lessons Behind These Horror Hits**\
-`Two Times critics unpack the twin phenomenon of “Backrooms” and “Obsession” and what lessons should — and shouldn’t — be learned from their massive success.`\
-https://www.nytimes.com/2026/06/08/movies/backrooms-obsession-lessons.html
 
 **Live Updates: Iran and Israel Pull Back After Exchange of Attacks**\
 `Iran signaled that it had concluded its latest strikes against Israel. Prime Minister Benjamin Netanyahu refrained from another attack under pressure from President Trump, a U.S. and two Israeli officials said.`\
