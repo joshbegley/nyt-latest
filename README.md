@@ -94,8 +94,8 @@ https://www.nytimes.com/2026/06/07/world/middleeast/tribeca-film-festival-respon
 `The bottles, worth about $500,000, were taken in what company officials called a “coordinated cargo theft operation carried out in broad daylight.”`\
 https://www.nytimes.com/2026/06/07/us/bourbon-philadelphia-stolen-cargo.html
 
-**Live Updates: Iran Fires Missiles at Israel for First Time Since April Cease-Fire**\
-`Israel had attacked the outskirts of the Lebanese capital, Beirut, earlier Sunday, prompting Iran to retaliate. There were no immediate reports of casualties from the missile attack.`\
+**Live Updates: Iran and Israel Exchange Strikes for First Time Since April Cease-Fire**\
+`Iran fired missiles at Israel in retaliation for an Israeli attack in Lebanon. Hours after the Iranian launches, the Israeli military said it had struck military targets in Iran.`\
 https://www.nytimes.com/live/2026/06/07/world/iran-israel-missiles
 
 **Iran Fires Missiles at Israel for First Time Since April Cease-Fire**\
