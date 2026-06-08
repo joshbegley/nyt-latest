@@ -1,3 +1,7 @@
+**What is Mahshahr, the Iranian Petrochemical Complex That Israel Targeted?**\
+`The facility makes materials that Iran says are for civilian uses, but that Israel argues are also deployed in military applications.`\
+https://www.nytimes.com/2026/06/08/world/middleeast/what-is-iran-mahshahr-petrochemical-plant.html
+
 **Resuming War Is a Short-Term Political Boon for Netanyahu, but Grim Choices Await**\
 `If President Trump forces Israel to stand down against Iran, analysts say, it could leave Israel hindered from responding forcefully to attacks by Hezbollah.`\
 https://www.nytimes.com/2026/06/08/world/middleeast/israel-netanyahu-iran-trump-lebanon.html
