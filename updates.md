@@ -1,3 +1,7 @@
+**Los iraníes sufren la destrucción de meses de guerra y el aumento de precios**\
+`La implosión de la economía está causando desesperanza tanto entre los iraníes que apoyan al gobierno como entre los que se le oponen.`\
+https://www.nytimes.com/es/2026/06/08/espanol/mundo/guerra-iran-situacion.html
+
 **How Elon Musk’s Friendship With the F.C.C. Smooths the Way for SpaceX’s I.P.O.**\
 `Brendan Carr, the chairman of the Federal Communications Commission, has greenlit regulatory requests for the company’s Starlink satellite internet service and lavished praise on its chief executive.`\
 https://www.nytimes.com/2026/06/08/technology/elon-musk-brendan-carr-fcc-spacex.html
