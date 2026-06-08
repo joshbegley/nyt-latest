@@ -1,3 +1,7 @@
+**Nithya Raman Overtakes Spencer Pratt in Race for L.A. Mayor**\
+`Nithya Raman pulled into second place in the race to see who will face Mayor Karen Bass in November. There are more votes to be counted.`\
+https://www.nytimes.com/2026/06/07/us/nithya-raman-spencer-pratt-los-angeles-mayor-race.html
+
 **Map: Tracking a Potential Tsunami in the Celebes Sea**\
 `Monitor warnings and predicted arrival times for the ocean wave.`\
 https://www.nytimes.com/interactive/2026/06/07/world/tsunami-tracker-celebes-sea.html
@@ -50,8 +54,8 @@ https://www.nytimes.com/2026/06/07/style/tony-awards-2026-red-carpet-looks.html
 `A lower court last month found that the ads from the charity, known for its ear-worm jingle, had violated false-advertising laws.`\
 https://www.nytimes.com/2026/06/07/us/kars4kids-california-appeals-court.html
 
-**Tony Awards 2026 Live Updates: John Lithgow Wins Lead Actor in a Play**\
-`John Lithgow won for his performance in “Giant,” a drama about the author Roald Dahl, while Laurie Metcalf won featured actress in a play for “Death of a Salesman.” Pink is hosting a celebration expected to be filled with nostalgic performances.`\
+**Tony Awards 2026 Live Updates: John Lithgow and Laurie Metcalf Win Early Prizes**\
+`Lithgow won best actor in a play for “Giant” and Metcalf won featured actress in a play for “Death of a Salesman.” Pink is hosting a celebration expected to be filled with nostalgic performances.`\
 https://www.nytimes.com/live/2026/06/07/theater/tony-awards-2026
 
 **A Voice for Ukraine’s Soldiers**\
@@ -157,8 +161,4 @@ https://www.nytimes.com/es/2026/06/07/espanol/america-latina/aeropuerto-ciudad-m
 **OPEC Plus to Boost Oil Production as Ceasefire in Iran Remains Elusive**\
 `The cartel’s move to increase output by 188,000 barrels per day is largely symbolic, with vast amounts of the world’s oil stranded by the effective shutdown of the Strait of Hormuz.`\
 https://www.nytimes.com/2026/06/07/business/opec-oil-production-iran-war.html
-
-**Map: 5.2-Magnitude Earthquake Shakes Greece**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/06/07/world/quake-tracker-greece.html
 
