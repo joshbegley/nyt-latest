@@ -1,3 +1,15 @@
+**Billie Tisch, Influential New York Philanthropist, Dies at 98**\
+`The billionaire widow of Laurence Tisch, she raised money for WNYC radio and other cultural organizations, along with Jewish, medical and educational institutions.`\
+https://www.nytimes.com/2026/06/08/nyregion/billie-tisch-dead.html
+
+**Unforgettable Looks at the Tony Awards: Cole Escola, Sarah Paulson and More**\
+`Shrunken suits, bouncy wigs and gloves that came with a manicure were some of the looks that stood out on the red carpet.`\
+https://www.nytimes.com/2026/06/08/style/tony-awards-red-carpet-memorable-fashion.html
+
+**What’s the Best Way to Wear a Crop Top?**\
+`A reader wonders whether they are for teenagers only.`\
+https://www.nytimes.com/2026/06/08/fashion/crop-top-styling.html
+
 ****\
 `Video verified by The New York Times shows thick smoke rising near the Mahshahr petrochemical complex in Iran.`\
 https://www.nytimes.com/video/embedded/admin/100000010952007/08vid-iran-israel-embed-25069.html
