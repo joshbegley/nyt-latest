@@ -1,3 +1,15 @@
+**El agente de la CIA que ocultó lingotes de oro habría falsificado un programa de espionaje**\
+`Un juez federal ha dictaminado que David Rush, empleado de la CIA, debe seguir detenido. Las autoridades de EE. UU. afirman que Rush desvió millones de fondos federales a .`\
+https://www.nytimes.com/es/2026/06/08/espanol/estados-unidos/agente-cia-lingotes-oro.html
+
+**Tropical Storm Boris Drenches Mexico’s Pacific Coast**\
+`A busy hurricane season is underway in the Pacific.`\
+https://www.nytimes.com/2026/06/08/weather/tropical-storm-boris-mexico-rain.html
+
+**Was Scott Rudin the Biggest Winner at This Year’s Tony Awards?**\
+`Scott Rudin is a lead producer of “Death of a Salesman,” but he kept a low profile this awards season after a four-year hiatus prompted by bullying allegations.`\
+https://www.nytimes.com/2026/06/08/theater/scott-rudin-salesman-tony-awards.html
+
 **Today, In Short**\
 `LinkedIn. Bike dates. And the World Cup.`\
 https://www.nytimes.com/2026/06/08/briefing/today-in-short.html
@@ -82,8 +94,8 @@ https://www.nytimes.com/video/embedded/admin/100000010952007/08vid-iran-israel-e
 `The facility makes materials that Iran says are for civilian uses, but that Israel argues are also deployed in military applications.`\
 https://www.nytimes.com/2026/06/08/world/middleeast/what-is-iran-mahshahr-petrochemical-plant.html
 
-**Resuming War Is a Short-Term Political Boon for Netanyahu, but Grim Choices Await**\
-`If President Trump forces Israel to stand down against Iran, analysts say, it could leave Israel hindered from responding forcefully to attacks by Hezbollah.`\
+**The 15-Hour Fight With Iran Showed the Bind Israel Is In**\
+`As it braces for a possible U.S.-Iranian peace deal, Israel now knows that if it responds forcefully to attacks by Hezbollah, Iran may strike Israel with missiles.`\
 https://www.nytimes.com/2026/06/08/world/middleeast/israel-netanyahu-iran-trump-lebanon.html
 
 **The Costs of War**\
@@ -181,18 +193,6 @@ https://www.nytimes.com/2026/06/08/dining/post-modern-times-minneapolis-free-foo
 **How the Drive to Find a Conspiracy Against Trump Rocked the Justice Dept.**\
 `The push to investigate what the president’s allies saw as a “deep state” cabal intent on taking him down set off cascading crises, ended careers and undercut the department’s credibility with judges.`\
 https://www.nytimes.com/2026/06/08/us/politics/justice-department-trump-patel-conspiracy.html
-
-**Why It Cost This Man $250,000 to Help His Family Survive in Gaza**\
-`How Israeli trade restrictions and shadowy profiteers drove up the price of nearly everything — from food to evacuation.`\
-https://www.nytimes.com/interactive/2026/06/08/magazine/gaza-family.html
-
-**While New York Celebrates the Knicks’ Finals Appearance, Some Residents Shrug**\
-`Not everyone in the city is being swept up in the team’s championship drive. Some are just trying to see a Broadway show, or spin some yarn.`\
-https://www.nytimes.com/2026/06/08/style/nyc-knicks-nba-finals.html
-
-**Two New Studies Ask: Did the iPhone Cause Birthrates to Decline?**\
-`Modern smartphones rolled out in 2007, the year that fertility rates began falling. Two studies say that is not a coincidence.`\
-https://www.nytimes.com/2026/06/08/us/iphone-birthrate-decline-studies.html
 
 **Live Updates: Iran and Israel Pull Back After Exchange of Attacks**\
 `Iran signaled that it had concluded its latest strikes against Israel. Prime Minister Benjamin Netanyahu refrained from another attack under pressure from President Trump, a U.S. and two Israeli officials said.`\

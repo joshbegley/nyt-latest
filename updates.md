@@ -1,3 +1,19 @@
+**El agente de la CIA que ocultó lingotes de oro habría falsificado un programa de espionaje**\
+`Un juez federal ha dictaminado que David Rush, empleado de la CIA, debe seguir detenido. Las autoridades de EE. UU. afirman que Rush desvió millones de fondos federales a .`\
+https://www.nytimes.com/es/2026/06/08/espanol/estados-unidos/agente-cia-lingotes-oro.html
+
+**Tropical Storm Boris Drenches Mexico’s Pacific Coast**\
+`A busy hurricane season is underway in the Pacific.`\
+https://www.nytimes.com/2026/06/08/weather/tropical-storm-boris-mexico-rain.html
+
+**Was Scott Rudin the Biggest Winner at This Year’s Tony Awards?**\
+`Scott Rudin is a lead producer of “Death of a Salesman,” but he kept a low profile this awards season after a four-year hiatus prompted by bullying allegations.`\
+https://www.nytimes.com/2026/06/08/theater/scott-rudin-salesman-tony-awards.html
+
+**The 15-Hour Fight With Iran Showed the Bind Israel Is In**\
+`As it braces for a possible U.S.-Iranian peace deal, Israel now knows that if it responds forcefully to attacks by Hezbollah, Iran may strike Israel with missiles.`\
+https://www.nytimes.com/2026/06/08/world/middleeast/israel-netanyahu-iran-trump-lebanon.html
+
 **Today, In Short**\
 `LinkedIn. Bike dates. And the World Cup.`\
 https://www.nytimes.com/2026/06/08/briefing/today-in-short.html

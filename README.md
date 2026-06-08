@@ -152,7 +152,7 @@ https://www.nytimes.com/2026/06/08/us/politics/graham-platner-voters-maine-senat
 
 **Bounty of Frida Kahlo Art Emerges in Mexico’s Restored Museum**\
 `Diego Rivera’s great patron Dolores Olmedo regarded Frida as a rival but bought 26 of her artworks, the largest collection. Their work is on view in Mexico City.`\
-https://www.nytimes.com/2026/06/08/arts/frida-kahlo-diego-rivera.html
+https://www.nytimes.com/2026/06/08/arts/design/frida-kahlo-diego-rivera.html
 
 **Best and Worst Moments From the 2026 Tony Awards: Pink, Maya Rudolph, Cole Escola, ‘Cats’**\
 `Pink brought sincerity and high energy as the host, musical numbers by “Cats,” “Ragtime” and “Chicago” popped, and Maya Rudolph and Cole Escola mined comic gold.`\
