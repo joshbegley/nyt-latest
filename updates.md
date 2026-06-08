@@ -1,3 +1,7 @@
+**Live Updates: Iran and Israel Trade Strikes as Trump Calls on Them to Stop**\
+`Iran launched waves of missiles at Israel, and Israel said it struck military targets and a petrochemical complex in Iran, as an uneasy two-month truce broke down. President Trump called for the two sides to “immediately stop” the attacks.`\
+https://www.nytimes.com/live/2026/06/08/world/iran-israel-lebanon-attacks
+
 **Iran and Israel Exchange First Strikes Since Cease-Fire, and Texas Ranchers Sound the Alarm**\
 `Plus, the fight over the fight on the White House lawn.`\
 https://www.nytimes.com/2026/06/08/podcasts/the-headlines/iran-israel-exchange-first-strikes-since-cease-fire-texas-ranchers-screwworm.html
