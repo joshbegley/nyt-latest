@@ -1,3 +1,7 @@
+**Tony Awards 2026 Live Updates: ‘Death of a Salesman’ Leads With 5 Prizes**\
+`The revival’s awards include best direction of a play, and Laurie Metcalf won for featured actress in a play. John Lithgow won best actor in a play for “Giant.”`\
+https://www.nytimes.com/live/2026/06/07/theater/tony-awards-2026
+
 **Nithya Raman Overtakes Spencer Pratt in Race for L.A. Mayor**\
 `Nithya Raman pulled into second place in the race to see who will face Mayor Karen Bass in November. There are more votes to be counted.`\
 https://www.nytimes.com/2026/06/07/us/nithya-raman-spencer-pratt-los-angeles-mayor-race.html
