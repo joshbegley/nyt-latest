@@ -1,3 +1,11 @@
+**Man Fatally Shot on a Bus in the Bronx**\
+`A 41-year-old man was shot in the abdomen on a Bx36 bus on Monday. The gunman remains at large, the police said.`\
+https://www.nytimes.com/2026/06/08/nyregion/bronx-bus-fatal-shooting.html
+
+**Live Updates: New Yorkers Line Up and Brace for Momentous Knicks Game**\
+`Fans with tickets are enduring long security lines ahead of President Trump’s expected attendance at Game 3 of the N.B.A. finals at a raucous, sold-out Madison Square Garden.`\
+https://www.nytimes.com/live/2026/06/08/nyregion/nba-finals-trump-knicks-spurs-mamdani
+
 **Would Mike Johnson Pass Raphael Warnock’s Test?**\
 `On “The Interview,” Raphael Warnock, a Democratic senator from Georgia and a pastor, explains his “acid test” on faith.`\
 https://www.nytimes.com/video/podcasts/100000010953787/would-mike-johnson-pass-raphael-warnocks-test.html
