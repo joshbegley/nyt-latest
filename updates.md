@@ -1,3 +1,15 @@
+**A Landmark Tonys Win for the Trans Costume Designer Qween Jean**\
+`Qween Jean won for “Cats: The Jellicle Ball,” becoming the first openly transgender person to win a Tony Award, according to a “Cats” publicist.`\
+https://www.nytimes.com/2026/06/07/theater/qween-jean-transgender-costume-design.html
+
+**La princesa Mette-Marit de Noruega espera un trasplante de pulmón**\
+`La noticia del empeoramiento del estado de salud de la princesa se produce cuando una serie de escándalos ha sumido a la familia real en una profunda crisis.`\
+https://www.nytimes.com/es/2026/06/07/espanol/mundo/princesa-noruega-transplante-pulmon.html
+
+**Tony Awards 2026 Live Updates: Ceremony Begins With Elaborate Musical Number**\
+`“Schmigadoon!,” a leading contender for the all-important best musical prize, won several key awards at a preshow ceremony.  Pink is hosting a celebration expected to be filled with nostalgic performances.`\
+https://www.nytimes.com/live/2026/06/07/theater/tony-awards-2026
+
 **Pink Is Hosting Tonight’s Tony Awards.**\
 `The pop star, a former theater kid, will also perform on Sunday. Her theater-loving daughter approves of the gig.`\
 https://www.nytimes.com/2026/06/07/theater/tonys-host-pink.html

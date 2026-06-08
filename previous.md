@@ -1,3 +1,11 @@
+**A Landmark Tonys Win for the Trans Costume Designer Qween Jean**\
+`Qween Jean won for “Cats: The Jellicle Ball,” becoming the first openly transgender person to win a Tony Award, according to a “Cats” publicist.`\
+https://www.nytimes.com/2026/06/07/theater/qween-jean-transgender-costume-design.html
+
+**La princesa Mette-Marit de Noruega espera un trasplante de pulmón**\
+`La noticia del empeoramiento del estado de salud de la princesa se produce cuando una serie de escándalos ha sumido a la familia real en una profunda crisis.`\
+https://www.nytimes.com/es/2026/06/07/espanol/mundo/princesa-noruega-transplante-pulmon.html
+
 **Pink Is Hosting Tonight’s Tony Awards.**\
 `The pop star, a former theater kid, will also perform on Sunday. Her theater-loving daughter approves of the gig.`\
 https://www.nytimes.com/2026/06/07/theater/tonys-host-pink.html
@@ -34,8 +42,8 @@ https://www.nytimes.com/2026/06/07/style/tony-awards-2026-red-carpet-looks.html
 `A lower court last month found that the ads from the charity, known for its ear-worm jingle, had violated false-advertising laws.`\
 https://www.nytimes.com/2026/06/07/us/kars4kids-california-appeals-court.html
 
-**Tonys 2026 Live Updates: ‘Schmigadoon!’ Wins Key Preshow Awards as Stars Arrive on Red Carpet**\
-`The first awards of the night are being handed out during a preshow ceremony, with the main event starting at 8 p.m. Eastern time. Pink will host a celebration filled with nostalgic performances.`\
+**Tony Awards 2026 Live Updates: Ceremony Begins With Elaborate Musical Number**\
+`“Schmigadoon!,” a leading contender for the all-important best musical prize, won several key awards at a preshow ceremony.  Pink is hosting a celebration expected to be filled with nostalgic performances.`\
 https://www.nytimes.com/live/2026/06/07/theater/tony-awards-2026
 
 **A Voice for Ukraine’s Soldiers**\
@@ -157,12 +165,4 @@ https://www.nytimes.com/2026/06/07/opinion/mothers-postpartum-care.html
 **Hegseth Criticizes Europe Over Migration ‘Invasion’ in D-Day Speech**\
 `The remarks from Defense Secretary Pete Hegseth reflect many of the Trump administration’s previous assertions on immigrants in Europe, which overlap with the language of European far-right political parties.`\
 https://www.nytimes.com/2026/06/07/us/politics/hegseth-europe-migration-d-day.html
-
-**Touching Grass**\
-`There’s no better time than early summer to put away your phone and get some fresh air. We have a challenge to help you actually do it.`\
-https://www.nytimes.com/2026/06/07/briefing/touching-grass.html
-
-**My Life Lessons From M.M.A. Fighting**\
-`There are lessons in competitive fighting that I never expected to learn.`\
-https://www.nytimes.com/2026/06/07/opinion/fighting-competitive-men-masculinity.html
 
