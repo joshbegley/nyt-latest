@@ -1,3 +1,7 @@
+**Mideast Live Updates: Iran and Israel Trade Strikes for the First Time Since April**\
+`Iran launched waves of missiles at Israel, while Israel struck military targets and a petrochemical complex in Iran.`\
+https://www.nytimes.com/live/2026/06/08/world/iran-israel-lebanon-attacks
+
 **Trump, Mamdani and the Knicks: A Manic Monday Awaits New York**\
 `When the Knicks return home for Game 3 of the N.B.A. finals, much of New York City will be watching, including some well-known guests.`\
 https://www.nytimes.com/2026/06/08/nyregion/trump-mamdani-knicks-msg.html
@@ -66,8 +70,8 @@ https://www.nytimes.com/2026/06/07/nyregion/penn-station-stabbing.html
 `Arthur Miller’s classic won the same award in 1984, 1999 and 2012.`\
 https://www.nytimes.com/2026/06/07/theater/death-of-a-salesman-revival-play.html
 
-**Strong Earthquake in Philippines Topples Buildings and Prompts Tsunami Warnings**\
-`The quake struck off the island of Mindanao, raising fears of possible tsunamis in the Philippines, Japan, Malaysia and Indonesia.`\
+**At Least 15 Dead After Strong Earthquake in Southern Philippines**\
+`The 7.8-magnitude quake struck off the island of Mindanao, toppling buildings and damaging bridges. Dozens were injured and tens of thousands displaced.`\
 https://www.nytimes.com/2026/06/07/world/asia/hilippines-earthquake-tsunami-warning.html
 
 **Israel espía a sus aliados: el Pentágono eleva la amenaza al nivel crítico**\
@@ -149,8 +153,4 @@ https://www.nytimes.com/2026/06/07/theater/heres-the-latest.html
 **Tonys 2026 Highlights: ‘Schmigadoon!’ and ‘Death of a Salesman’ Are Big Winners**\
 `“Ragtime” won best musical revival, while “Death of a Salesman” led with six prizes. Joshua Henry, Caissie Levy, John Lithgow and Laurie Metcalf were among the winners.`\
 https://www.nytimes.com/live/2026/06/07/theater/tony-awards-2026
-
-**A Voice for Ukraine’s Soldiers**\
-`Meet the rights defender charged with protecting the country’s fighters — not from Russia, but from abuses by their own commanders.`\
-https://www.nytimes.com/2026/06/07/world/08int-theworld-ukraine-iran-israel-world-cup.html
 
