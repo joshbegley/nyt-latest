@@ -1,3 +1,7 @@
+**La tormenta tropical Boris se acerca México y Cristina crece cerca de Nicaragua**\
+`La temporada de huracanes en el Pacífico ya está muy activa.`\
+https://www.nytimes.com/es/2026/06/08/espanol/tiempo-y-clima/tormenta-tropical-boris-cristina-mexico.html
+
 **Una demanda busca impedir el evento de la UFC en la Casa Blanca**\
 `Una demanda federal alega que el evento, fijado para el 14 de junio, día del cumpleaños del presidente Trump, fue planeado ilegalmente y diseñado para beneficiarlo a él y a sus aliados.`\
 https://www.nytimes.com/es/2026/06/08/espanol/estados-unidos/trump-ufc-casa-blanca-demanda.html

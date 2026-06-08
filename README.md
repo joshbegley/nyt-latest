@@ -1,3 +1,7 @@
+**OpenAI Files to Go Public as A.I. Companies Rush to Wall St.**\
+`The company hopes to raise billions in a highly anticipated public offering that could unlock a new generation of tech industry wealth.`\
+https://www.nytimes.com/2026/06/08/technology/openai-ipo.html
+
 **La tormenta tropical Boris se acerca México y Cristina crece cerca de Nicaragua**\
 `La temporada de huracanes en el Pacífico ya está muy activa.`\
 https://www.nytimes.com/es/2026/06/08/espanol/tiempo-y-clima/tormenta-tropical-boris-cristina-mexico.html
@@ -38,8 +42,8 @@ https://www.nytimes.com/2026/06/08/world/asia/chinese-businesses-north-korea.htm
 `Dmitriy Popov, 20, who killed O’Shae Sibley, 28, at a gas station in Brooklyn was found guilty of manslaughter as a hate crime, which carries a sentence of up to 25 years.`\
 https://www.nytimes.com/2026/06/08/nyregion/oshae-sibley-murder-hate-crime.html
 
-**Trump Nominates Todd Blanche for Attorney General**\
-`As acting attorney general, Mr. Blanche has shown a willingness to execute the president’s maximalist demands. Whether the Senate will confirm him remains unclear.`\
+**Trump Nominates Blanche for Attorney General, Setting Up Confirmation Fight**\
+`As acting attorney general, Todd Blanche has shown a willingness to execute the president’s maximalist demands. Whether the Senate will confirm him remains unclear.`\
 https://www.nytimes.com/2026/06/08/us/politics/trump-todd-blanche-attorney-general.html
 
 **Netanyahu Called Off Iran Strikes After Trump Claimed Progress in Nuclear Talks, Officials Say**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/08/theater/tony-awards-saturday-night-live.html
 **Heat Wave Forecast: Where Records Could Fall in the US This Week**\
 `Temperatures up to 20 degrees above normal will spread across much of the country, forecasters said.`\
 https://www.nytimes.com/2026/06/08/weather/heat-forecast-us.html
-
-**How Banks Are Using the SpaceX IPO to Woo the Super Rich**\
-`Wall Street is giving its richest clients velvet rope access to this week’s public listing of SpaceX, reflecting the growing importance of the wealth management business.`\
-https://www.nytimes.com/2026/06/08/business/spacex-ipo-banks-wealth-management.html
 

@@ -1,3 +1,7 @@
+**La tormenta tropical Boris se acerca México y Cristina crece cerca de Nicaragua**\
+`La temporada de huracanes en el Pacífico ya está muy activa.`\
+https://www.nytimes.com/es/2026/06/08/espanol/tiempo-y-clima/tormenta-tropical-boris-cristina-mexico.html
+
 **Una demanda busca impedir el evento de la UFC en la Casa Blanca**\
 `Una demanda federal alega que el evento, fijado para el 14 de junio, día del cumpleaños del presidente Trump, fue planeado ilegalmente y diseñado para beneficiarlo a él y a sus aliados.`\
 https://www.nytimes.com/es/2026/06/08/espanol/estados-unidos/trump-ufc-casa-blanca-demanda.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/08/weather/heat-forecast-us.html
 **How Banks Are Using the SpaceX IPO to Woo the Super Rich**\
 `Wall Street is giving its richest clients velvet rope access to this week’s public listing of SpaceX, reflecting the growing importance of the wealth management business.`\
 https://www.nytimes.com/2026/06/08/business/spacex-ipo-banks-wealth-management.html
-
-**El agente de la CIA que ocultó lingotes de oro habría falsificado un programa de espionaje**\
-`Un juez federal ha dictaminado que David Rush, empleado de la CIA, debe seguir detenido. Las autoridades de EE. UU. afirman que Rush desvió millones de fondos federales a .`\
-https://www.nytimes.com/es/2026/06/08/espanol/estados-unidos/agente-cia-lingotes-oro.html
 
