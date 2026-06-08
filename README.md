@@ -1,3 +1,7 @@
+**Maximalism Is Back at the Tonys**\
+`Our chief theater critic, Helen Shaw, shares her highlights of the Tony Awards on Sunday in New York City.`\
+https://www.nytimes.com/video/theater/100000010943591/tony-tonys-awards-theater-musical-broadway.html
+
 **Who Is Ahead in New York's 15th Congressional District?**\
 `Track the latest polls in New York's 15th Congressional District.`\
 https://www.nytimes.com/interactive/polls/new-york-us-house-15-polls-2026.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/08/theater/scott-rudin-salesman-tony-awards.html
 **Today, In Short**\
 `LinkedIn. Bike dates. And the World Cup.`\
 https://www.nytimes.com/2026/06/08/briefing/today-in-short.html
-
-**Are U.S. and Israel on the Same Page in Mideast Wars?**\
-`President Trump has voiced his frustration with Prime Minister Benjamin Netanyahu of Israel, but it is not clear how able he is to rein in Israeli military action.`\
-https://www.nytimes.com/2026/06/08/world/middleeast/netanyahu-trump-split-iran-lebanon.html
 
