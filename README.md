@@ -1,3 +1,19 @@
+**Trump, Mamdani and the Knicks: A Manic Monday Awaits New York**\
+`When the Knicks return home for Game 3 of the N.B.A. finals, much of New York City will be watching, including some well-known guests.`\
+https://www.nytimes.com/2026/06/08/nyregion/trump-mamdani-knicks-msg.html
+
+**Inside the Subway Expansion a Century in the Making**\
+`The next phase of the Second Avenue subway, first proposed in the 1920s, could finally be completed by 2032, creating a new transit hub in Harlem.`\
+https://www.nytimes.com/2026/06/08/nyregion/second-avenue-subway-expansion.html
+
+**Young Knicks Fans Rejoice Over Their Team’s Run for the Ages**\
+`New Yorkers under 30 know about the past pain and suffering. But now they have reason to believe.`\
+https://www.nytimes.com/2026/06/08/nyregion/knicks-young-fans.html
+
+**NYT Spelling Bee Answers for June 8, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/08/crosswords/spelling-bee-forum.html
+
 **5 minutos para que te enamores de Charlie Parker**\
 `Bird ayudó a introducir el bebop, un estilo que transformó el jazz de una música popular para bailar en una forma de arte más exigente y exploratoria. He aquí 11 piezas para introducirte a su legado perdurable.`\
 https://www.nytimes.com/es/2026/06/08/espanol/cultura/5-minutos-charlie-parker.html
@@ -137,20 +153,4 @@ https://www.nytimes.com/live/2026/06/07/theater/tony-awards-2026
 **A Voice for Ukraine’s Soldiers**\
 `Meet the rights defender charged with protecting the country’s fighters — not from Russia, but from abuses by their own commanders.`\
 https://www.nytimes.com/2026/06/07/world/08int-theworld-ukraine-iran-israel-world-cup.html
-
-**Arab Israeli Opens Fire, Killing 1 and Injuring at Least 5**\
-`The gunman drove around several locations in central Israel on Sunday, shooting from his car. He killed one man and injured at least five in what authorities called a terrorist attack.`\
-https://www.nytimes.com/video/world/europe/100000010949901/arab-israeli-opens-fire-killing-1-and-injuring-at-least-5.html
-
-**Tribeca Festival Denounces Pair Who Joked on the Red Carpet About Rape**\
-`A clip of the actor Elon Gold with Lizzy Savetsky, a social media influencer, at the premiere of “The Wedding Entertainer” has been circulating online.`\
-https://www.nytimes.com/2026/06/07/world/middleeast/tribeca-film-festival-response-palestinian-joke.html
-
-**Nearly 11,000 Bottles of Bourbon Are Stolen From a Philadelphia Warehouse**\
-`The bottles, worth about $500,000, were taken in what company officials called a “coordinated cargo theft operation carried out in broad daylight.”`\
-https://www.nytimes.com/2026/06/07/us/bourbon-philadelphia-stolen-cargo.html
-
-**Iran and Israel Exchange Strikes for First Time Since April Cease-Fire**\
-`Iran fired missiles at Israel in retaliation for an Israeli attack in Lebanon. Hours after the Iranian launches, the Israeli military said it had struck military targets in Iran.`\
-https://www.nytimes.com/live/2026/06/07/world/iran-israel-missiles
 
