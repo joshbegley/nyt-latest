@@ -1,3 +1,7 @@
+**Netanyahu Called Off Iran Strikes After Trump Claimed Progress in Nuclear Talks, Officials Say**\
+`Multiple officials said that the president told Israel’s leader that the United States and Iran were within days of a breakthrough that would clear the way for talks on a long-term nuclear deal.`\
+https://www.nytimes.com/2026/06/08/us/politics/trump-netanyahu-iran-call.html
+
 **Israel Halts Strikes After Trump Claims Progress Toward Nuclear Talks, Officials Say**\
 `Multiple officials said that the president told Israel’s leader that the United States and Iran were within days of a breakthrough that would clear the way for talks on a long-term nuclear deal.`\
 https://www.nytimes.com/2026/06/08/us/politics/trump-netanyahu-iran-call.html
