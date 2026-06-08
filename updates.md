@@ -1,3 +1,11 @@
+**The One Tony Award Our Readers Would Have Changed**\
+`Thousands of people contributed their Broadway favorites of the season ahead of the Tony Awards. Here’s how their votes stacked up.`\
+https://www.nytimes.com/2026/06/08/theater/readers-tony-awards-voting.html
+
+**On Broadway’s Biggest Night, ‘Saturday Night Live’ Shows Its Strength**\
+`The long-running sketch comedy show proved its power during the Tony Awards on Sunday, with Lorne Michaels and several former stars grabbing the spotlight.`\
+https://www.nytimes.com/2026/06/08/theater/tony-awards-saturday-night-live.html
+
 **Who Is Ahead in Connecticut's 1st Congressional District?**\
 `Track the latest polls in Connecticut's 1st Congressional District.`\
 https://www.nytimes.com/interactive/polls/connecticut-us-house-1-polls-2026.html

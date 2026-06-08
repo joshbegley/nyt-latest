@@ -1,3 +1,7 @@
+**The One Tony Award Our Readers Would Have Changed**\
+`Thousands of people contributed their Broadway favorites of the season ahead of the Tony Awards. Here’s how their votes stacked up.`\
+https://www.nytimes.com/2026/06/08/theater/readers-tony-awards-voting.html
+
 **Who Is Ahead in Connecticut's 1st Congressional District?**\
 `Track the latest polls in Connecticut's 1st Congressional District.`\
 https://www.nytimes.com/interactive/polls/connecticut-us-house-1-polls-2026.html
@@ -8,7 +12,7 @@ https://www.nytimes.com/2026/06/08/world/asia/xi-kim-china-north-korea-summit.ht
 
 **On Broadway’s Biggest Night, ‘Saturday Night Live’ Shows Its Strength**\
 `The long-running sketch comedy show proved its power during the Tony Awards on Sunday, with Lorne Michaels and several former stars grabbing the spotlight.`\
-https://www.nytimes.com/2026/06/08/arts/tony-awards-saturday-night-live.html
+https://www.nytimes.com/2026/06/08/theater/tony-awards-saturday-night-live.html
 
 **Heat Wave Forecast: Where Records Could Fall in the US This Week**\
 `Temperatures up to 20 degrees above normal will spread across much of the country, forecasters said.`\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/08/realestate/giving-up-a-bungalow-in-seattle-fo
 **‘Backrooms’ and ‘Obsession’: The Lessons Behind These Horror Hits**\
 `Two Times critics unpack the twin phenomenon of “Backrooms” and “Obsession” and what lessons should — and shouldn’t — be learned from their massive success.`\
 https://www.nytimes.com/2026/06/08/movies/backrooms-obsession-lessons.html
-
-**Artisanal or Exploitative? Unraveling the Story of Mexico’s World Cup Jerseys**\
-`Mexicans are enraged after viral videos claimed Adidas exploited Indigenous women to sew World Cup jerseys. We traveled into the mountains to speak to the artisans themselves.`\
-https://www.nytimes.com/2026/06/08/world/americas/adidas-mexico-indigenous-women-world-cup.html
 
 **Live Updates: Iran and Israel Pull Back After Exchange of Attacks**\
 `Iran signaled that it had concluded its latest strikes against Israel. Prime Minister Benjamin Netanyahu refrained from another attack under pressure from President Trump, a U.S. and two Israeli officials said.`\
