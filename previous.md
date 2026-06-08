@@ -1,3 +1,7 @@
+**‘Liberation’ Wins the Tony for Best Play**\
+`The playwright Bess Wohl is the first American woman to win this award since Wendy Wasserstein won for “The Heidi Chronicles” in 1989.`\
+https://www.nytimes.com/2026/06/07/theater/liberation-tony-awards-best-play.html
+
 **Nithya Raman Overtakes Spencer Pratt in Race for L.A. Mayor**\
 `Ms. Raman, a progressive lawmaker, pulled into second place in the race to see who will face Mayor Karen Bass in November. There are more votes to be counted.`\
 https://www.nytimes.com/2026/06/07/us/nithya-raman-spencer-pratt-los-angeles-mayor-race.html
@@ -54,8 +58,8 @@ https://www.nytimes.com/2026/06/07/style/tony-awards-2026-red-carpet-looks.html
 `A lower court last month found that the ads from the charity, known for its ear-worm jingle, had violated false-advertising laws.`\
 https://www.nytimes.com/2026/06/07/us/kars4kids-california-appeals-court.html
 
-**Tony Awards 2026 Live Updates: ‘Death of a Salesman’ Leads With 5 Prizes**\
-`The revival’s awards include best direction of a play, and Laurie Metcalf won for featured actress in a play. John Lithgow won best actor in a play for “Giant.”`\
+**Tony Awards 2026 Live Updates: ‘Liberation’ Wins Best Play; ‘Death of a Salesman’ Leads With 5 Prizes**\
+`The awards for ”Death of a Salesman” include best direction of a play, and Laurie Metcalf won for featured actress in a play. John Lithgow won best actor in a play for “Giant.”`\
 https://www.nytimes.com/live/2026/06/07/theater/tony-awards-2026
 
 **A Voice for Ukraine’s Soldiers**\
@@ -157,8 +161,4 @@ https://www.nytimes.com/2026/06/07/briefing/james-talarico-isnt-the-only-one.htm
 **El aeropuerto de CDMX se renovó para el Mundial. ¿Qué pasará después?**\
 `El aeropuerto, de casi 100 años de antigüedad, ha sido objeto de una veloz remodelación con valor de 500 millones de dólares. Los expertos dicen que no es suficiente.`\
 https://www.nytimes.com/es/2026/06/07/espanol/america-latina/aeropuerto-ciudad-mexico-mundial.html
-
-**OPEC Plus to Boost Oil Production as Ceasefire in Iran Remains Elusive**\
-`The cartel’s move to increase output by 188,000 barrels per day is largely symbolic, with vast amounts of the world’s oil stranded by the effective shutdown of the Strait of Hormuz.`\
-https://www.nytimes.com/2026/06/07/business/opec-oil-production-iran-war.html
 
