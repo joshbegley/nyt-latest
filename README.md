@@ -35,7 +35,7 @@ https://www.nytimes.com/2026/06/08/business/dealbook/trump-ai-stakes.html
 https://www.nytimes.com/2026/06/08/world/middleeast/israel-iran-strikes-regional-gains.html
 
 ****\
-`A video verified by The New York Times shows thick smoke rising near the Mahshahr petrochemical complex in Iran.`\
+`Video verified by The New York Times shows thick smoke rising near the Mahshahr petrochemical complex in Iran.`\
 https://www.nytimes.com/video/embedded/admin/100000010952007/08vid-iran-israel-embed-25069.html
 
 **What to Know About Mahshahr, the Iranian Petrochemical Complex That Israel Targeted**\

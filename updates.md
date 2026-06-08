@@ -1,3 +1,7 @@
+**Mapa: la trayectoria de la tormenta tropical Boris en vivo**\
+`Consulta la trayectoria probable y las horas de llegada de los vientos de Boris.`\
+https://www.nytimes.com/es/interactive/2026/06/08/espanol/boris-mapa-trayectoria.html
+
 **Irán disparó misiles a Israel por primera vez desde el alto al fuego de abril**\
 `Israel había atacado las afueras de la capital libanesa, Beirut, a primera hora del domingo, lo que llevó a Irán a tomar represalias.`\
 https://www.nytimes.com/es/2026/06/08/espanol/mundo/iran-israel-misiles.html
