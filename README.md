@@ -1,3 +1,7 @@
+**Today, In Short**\
+`LinkedIn. Bike dates. And the World Cup.`\
+https://www.nytimes.com/2026/06/08/briefing/today-in-short.html
+
 **Are U.S. and Israel on the Same Page in Mideast Wars?**\
 `President Trump has voiced his frustration with Prime Minister Benjamin Netanyahu of Israel, but it is not clear how able he is to rein in Israeli military action.`\
 https://www.nytimes.com/2026/06/08/world/middleeast/netanyahu-trump-split-iran-lebanon.html
@@ -139,7 +143,7 @@ https://www.nytimes.com/2026/06/08/us/politics/graham-platner-voters-maine-senat
 https://www.nytimes.com/2026/06/08/arts/frida-kahlo-diego-rivera.html
 
 **Best and Worst Moments From the 2026 Tony Awards: Pink, Maya Rudolph, Cole Escola, ‘Cats’**\
-`Pink brought sincerity and punk energy as the host, musical numbers by “Cats,” “Ragtime” and “Chicago” popped, and Maya Rudolph and Cole Escola mined comic gold.`\
+`Pink brought sincerity and high energy as the host, musical numbers by “Cats,” “Ragtime” and “Chicago” popped, and Maya Rudolph and Cole Escola mined comic gold.`\
 https://www.nytimes.com/2026/06/08/theater/best-worst-tony-awards.html
 
 **The New York Hip-Hop Soundtracking the Knicks’ Run to the N.B.A. Finals**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/08/style/nyc-knicks-nba-finals.html
 **Two New Studies Ask: Did the iPhone Cause Birthrates to Decline?**\
 `Modern smartphones rolled out in 2007, the year that fertility rates began falling. Two studies say that is not a coincidence.`\
 https://www.nytimes.com/2026/06/08/us/iphone-birthrate-decline-studies.html
-
-**What’s the Best Way to Wear a Crop Top?**\
-`A reader wonders whether they are for teenagers only.`\
-https://www.nytimes.com/2026/06/08/fashion/crop-top-styling.html
 
 **Live Updates: Iran and Israel Pull Back After Exchange of Attacks**\
 `Iran signaled that it had concluded its latest strikes against Israel. Prime Minister Benjamin Netanyahu refrained from another attack under pressure from President Trump, a U.S. and two Israeli officials said.`\
