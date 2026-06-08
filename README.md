@@ -1,3 +1,11 @@
+**Billie Tisch, Influential New York Philanthropist, Dies at 98**\
+`The billionaire widow of Laurence Tisch, she raised money for WNYC radio and other cultural organizations, along with Jewish, medical and educational institutions.`\
+https://www.nytimes.com/2026/06/08/nyregion/billie-tisch-dead.html
+
+**Unforgettable Looks at the Tony Awards: Cole Escola, Sarah Paulson and More**\
+`Shrunken suits, bouncy wigs and gloves that came with a manicure were some of the looks that stood out on the red carpet.`\
+https://www.nytimes.com/2026/06/08/style/tony-awards-red-carpet-memorable-fashion.html
+
 **Mapa: la trayectoria de la tormenta tropical Boris en vivo**\
 `Consulta la trayectoria probable y las horas de llegada de los vientos de Boris.`\
 https://www.nytimes.com/es/interactive/2026/06/08/espanol/boris-mapa-trayectoria.html
@@ -156,7 +164,7 @@ https://www.nytimes.com/2026/06/08/us/iphone-birthrate-decline-studies.html
 
 **What’s the Best Way to Wear a Crop Top?**\
 `A reader wonders whether they are for teenagers only.`\
-https://www.nytimes.com/2026/06/08/fashion/whats-the-best-way-to-wear-a-crop-top.html
+https://www.nytimes.com/2026/06/08/fashion/crop-top-styling.html
 
 **The American Family Is at a Breaking Point. Our Politics Have Finally Noticed.**\
 `Society has treated parenting as a private endeavor. But what if raising children is also a public good?`\
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/08/business/ai-medicine-doctors.html
 **The Croatian Coast: What to See, Do and Eat**\
 `Tips for first-time visitors to the cities, islands and stunning coastline of one of Europe’s most beguiling summer destinations.`\
 https://www.nytimes.com/2026/06/08/travel/where-to-go-on-the-croatian-coast.html
-
-**What Liberals Get Wrong About the Middle Class**\
-`The middle class is larger than you think, and growing.`\
-https://www.nytimes.com/2026/06/08/opinion/middle-class-liberals-economics.html
-
-**Want an A.I. Degree? Here’s What You Should Think About.**\
-`The programs are popping up on campuses across America. What they teach varies.`\
-https://www.nytimes.com/2026/06/08/us/ai-studies-major-explained.html
 
 **Live Updates: Iran and Israel Move to De-Escalate After Cease-Fire Breaks Down**\
 `Iran’s Revolutionary Guards Corps signaled that it had concluded its latest military operation against Israel. Prime Minister Benjamin Netanyahu pulled back from preparations for another attack after pushback from President Trump, two Israeli military officials said.`\
