@@ -1,3 +1,11 @@
+**Trump Previews Fall Strategy With Baseless Claims of California Vote Fraud**\
+`The president is using the slow count of mail ballots in California to renew his effort to cast doubt on election outcomes he doesn’t like, despite a lack of evidence of any widespread fraud.`\
+https://www.nytimes.com/2026/06/08/us/politics/trump-election-fraud-strategy-california.html
+
+**Three Questions About the Maine and South Carolina Primaries**\
+`Graham Platner and Lindsey Graham are both hoping for comfortably big victories.`\
+https://www.nytimes.com/2026/06/08/us/politics/maine-south-carolina-primaries.html
+
 **How Will I.P.O.s From A.I. Companies Affect the Average Person?**\
 `On the “Hard Fork” podcast, the hosts Casey Newton and Kevin Roose discuss the pros and cons of I.P.O.s by large tech companies.`\
 https://www.nytimes.com/video/podcasts/100000010953710/how-will-ipos-from-ai-companies-affect-the-average-person.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/06/08/world/africa/trump-deportation-us-judge-congo
 **2026 Tonys: How to Get Tickets for Winning Plays and Musicals**\
 `Many of the winning plays and musicals are still onstage, and some are closing soon. Here’s a guide to help you navigate the field and find tickets.`\
 https://www.nytimes.com/2026/06/08/theater/tickets-tony-winners-plays-musicals.html
-
-**Patrick Bruel, French Singer, Is Taken Into Custody Over Sex Assault Claims**\
-`Mr. Bruel, long a beloved celebrity in France, has denied allegations raised by 13 women dating to 1997.`\
-https://www.nytimes.com/2026/06/08/world/europe/patrick-bruel-questioning-rape-sexual-assault.html
-
-**Trump’s Eruption, and His Sycophants**\
-`Readers discuss President Trump’s explosive interview on NBC and his fawning cabinet. Also: Weakened voting rights; Mr. Trump on a $250 bill.`\
-https://www.nytimes.com/2026/06/08/opinion/trump-tv-cabinet.html
 
