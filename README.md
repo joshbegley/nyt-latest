@@ -1,3 +1,7 @@
+**Irán disparó misiles a Israel por primera vez desde el alto al fuego de abril**\
+`Israel había atacado las afueras de la capital libanesa, Beirut, a primera hora del domingo, lo que llevó a Irán a tomar represalias.`\
+https://www.nytimes.com/es/2026/06/08/espanol/mundo/iran-israel-misiles.html
+
 **At the Tony Awards After-Parties, a ‘Harry Potter’ Reunion and Winner Celebrations**\
 `A crowd that included Daniel Radcliffe, Cole Escola and Carrie Coon celebrated with whiskey ice cream at Rockefeller Center and show tunes at the Carlyle hotel.`\
 https://www.nytimes.com/2026/06/08/style/tony-awards-after-parties.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/08/us/ai-studies-major-explained.html
 **Shootout in Olde Town Square: A Cop, a Killer and a Good Guy With a Gun**\
 `No community was better prepared for active shooters than Arvada, Colo. Then four men with guns converged in the city center, each on different missions.`\
 https://www.nytimes.com/2026/06/08/us/good-samaritan-arvada-mass-shooting.html
-
-**A.I. Degree Programs Surge as Colleges Seek Students and Relevance**\
-`Colleges from North Dakota to New Jersey are trying to get students to sign up for A.I. degrees. What they teach varies widely.`\
-https://www.nytimes.com/2026/06/08/us/ai-college-degrees.html
 
 **Live Updates: Iran and Israel Move to De-Escalate After Cease-Fire Breaks Down**\
 `Iran’s Revolutionary Guards Corps signaled that it had concluded its latest military operation against Israel. Prime Minister Benjamin Netanyahu pulled back from preparations for another attack after pushback from President Trump, two Israeli military officials said.`\
