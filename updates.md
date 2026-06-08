@@ -1,3 +1,27 @@
+**Who Is Ahead in Connecticut's 1st Congressional District?**\
+`Track the latest polls in Connecticut's 1st Congressional District.`\
+https://www.nytimes.com/interactive/polls/connecticut-us-house-1-polls-2026.html
+
+**China Reasserts Itself, to Contain North Korea’s Tilt Toward Russia**\
+`On a rare visit to North Korea, China’s leader, Xi Jinping, projected unity but also sought to remind Kim Jong-un that he is the senior partner in their alliance.`\
+https://www.nytimes.com/2026/06/08/world/asia/xi-kim-china-north-korea-summit.html
+
+**On Broadway’s Biggest Night, ‘Saturday Night Live’ Shows Its Strength**\
+`The long-running sketch comedy show proved its power during the Tony Awards on Sunday, with Lorne Michaels and several former stars grabbing the spotlight.`\
+https://www.nytimes.com/2026/06/08/arts/tony-awards-saturday-night-live.html
+
+**Heat Wave Forecast: Where Records Could Fall in the US This Week**\
+`Temperatures up to 20 degrees above normal will spread across much of the country, forecasters said.`\
+https://www.nytimes.com/2026/06/08/weather/heat-forecast-us.html
+
+**How Banks Are Using the SpaceX IPO to Woo the Super Rich**\
+`Wall Street is giving its richest clients velvet rope access to this week’s public listing of SpaceX, reflecting the growing importance of the wealth management business.`\
+https://www.nytimes.com/2026/06/08/business/spacex-ipo-banks-wealth-management.html
+
+**Bounty of Frida Kahlo Art Emerges in Mexico’s Restored Museum**\
+`Diego Rivera’s great patron Dolores Olmedo regarded Frida as a rival but bought 26 of her artworks, the largest collection. Their work is on view in Mexico City.`\
+https://www.nytimes.com/2026/06/08/arts/design/frida-kahlo-diego-rivera.html
+
 **El agente de la CIA que ocultó lingotes de oro habría falsificado un programa de espionaje**\
 `Un juez federal ha dictaminado que David Rush, empleado de la CIA, debe seguir detenido. Las autoridades de EE. UU. afirman que Rush desvió millones de fondos federales a .`\
 https://www.nytimes.com/es/2026/06/08/espanol/estados-unidos/agente-cia-lingotes-oro.html

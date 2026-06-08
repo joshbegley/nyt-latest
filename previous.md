@@ -1,3 +1,23 @@
+**Who Is Ahead in Connecticut's 1st Congressional District?**\
+`Track the latest polls in Connecticut's 1st Congressional District.`\
+https://www.nytimes.com/interactive/polls/connecticut-us-house-1-polls-2026.html
+
+**China Reasserts Itself, to Contain North Korea’s Tilt Toward Russia**\
+`On a rare visit to North Korea, China’s leader, Xi Jinping, projected unity but also sought to remind Kim Jong-un that he is the senior partner in their alliance.`\
+https://www.nytimes.com/2026/06/08/world/asia/xi-kim-china-north-korea-summit.html
+
+**On Broadway’s Biggest Night, ‘Saturday Night Live’ Shows Its Strength**\
+`The long-running sketch comedy show proved its power during the Tony Awards on Sunday, with Lorne Michaels and several former stars grabbing the spotlight.`\
+https://www.nytimes.com/2026/06/08/arts/tony-awards-saturday-night-live.html
+
+**Heat Wave Forecast: Where Records Could Fall in the US This Week**\
+`Temperatures up to 20 degrees above normal will spread across much of the country, forecasters said.`\
+https://www.nytimes.com/2026/06/08/weather/heat-forecast-us.html
+
+**How Banks Are Using the SpaceX IPO to Woo the Super Rich**\
+`Wall Street is giving its richest clients velvet rope access to this week’s public listing of SpaceX, reflecting the growing importance of the wealth management business.`\
+https://www.nytimes.com/2026/06/08/business/spacex-ipo-banks-wealth-management.html
+
 **El agente de la CIA que ocultó lingotes de oro habría falsificado un programa de espionaje**\
 `Un juez federal ha dictaminado que David Rush, empleado de la CIA, debe seguir detenido. Las autoridades de EE. UU. afirman que Rush desvió millones de fondos federales a .`\
 https://www.nytimes.com/es/2026/06/08/espanol/estados-unidos/agente-cia-lingotes-oro.html
@@ -152,7 +172,7 @@ https://www.nytimes.com/2026/06/08/us/politics/graham-platner-voters-maine-senat
 
 **Bounty of Frida Kahlo Art Emerges in Mexico’s Restored Museum**\
 `Diego Rivera’s great patron Dolores Olmedo regarded Frida as a rival but bought 26 of her artworks, the largest collection. Their work is on view in Mexico City.`\
-https://www.nytimes.com/2026/06/08/arts/frida-kahlo-diego-rivera.html
+https://www.nytimes.com/2026/06/08/arts/design/frida-kahlo-diego-rivera.html
 
 **Best and Worst Moments From the 2026 Tony Awards: Pink, Maya Rudolph, Cole Escola, ‘Cats’**\
 `Pink brought sincerity and high energy as the host, musical numbers by “Cats,” “Ragtime” and “Chicago” popped, and Maya Rudolph and Cole Escola mined comic gold.`\
@@ -173,26 +193,6 @@ https://www.nytimes.com/2026/06/08/movies/backrooms-obsession-lessons.html
 **Artisanal or Exploitative? Unraveling the Story of Mexico’s World Cup Jerseys**\
 `Mexicans are enraged after viral videos claimed Adidas exploited Indigenous women to sew World Cup jerseys. We traveled into the mountains to speak to the artisans themselves.`\
 https://www.nytimes.com/2026/06/08/world/americas/adidas-mexico-indigenous-women-world-cup.html
-
-**Europe Watches Its Economic Recovery Fade Into the Distance**\
-`As the war in Iran persists, signs point to a prolonged period of higher prices and slower growth rather than a quick shock.`\
-https://www.nytimes.com/2026/06/08/business/europe-inflation-iran-war.html
-
-**Keeping an Eye Out for Rabid Raccoons**\
-`Most raccoons in the city are healthy, but some are infected with rabies. The Health Department is working to prevent the spread of the virus.`\
-https://www.nytimes.com/2026/06/08/nyregion/raccoons-rabies-nyc.html
-
-**Apple Expected to Detail Its A.I. Plans at Conference**\
-`For the second time, the company is expected to explain its artificial intelligence plans. Unlike some rivals, it is not reorganizing around the technology.`\
-https://www.nytimes.com/2026/06/08/technology/apple-ai-artificial-intelligence-wwdc.html
-
-**A Minneapolis Restaurant Stopped Charging for Food. And Profits Are Up.**\
-`At Post Modern Times cafe in Minneapolis, a tax protest has turned into a social experiment and a critique of the hospitality industry.`\
-https://www.nytimes.com/2026/06/08/dining/post-modern-times-minneapolis-free-food.html
-
-**How the Drive to Find a Conspiracy Against Trump Rocked the Justice Dept.**\
-`The push to investigate what the president’s allies saw as a “deep state” cabal intent on taking him down set off cascading crises, ended careers and undercut the department’s credibility with judges.`\
-https://www.nytimes.com/2026/06/08/us/politics/justice-department-trump-patel-conspiracy.html
 
 **Live Updates: Iran and Israel Pull Back After Exchange of Attacks**\
 `Iran signaled that it had concluded its latest strikes against Israel. Prime Minister Benjamin Netanyahu refrained from another attack under pressure from President Trump, a U.S. and two Israeli officials said.`\
