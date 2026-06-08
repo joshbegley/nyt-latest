@@ -1,3 +1,7 @@
+**La polémica camiseta de México para el Mundial: ¿artesanía o explotación?**\
+`Un grupo de artesanas bordó jerseys para Adidas. Después, activistas denunciaron malas condiciones laborales y explotación. Fuimos a la sierra para hablar con las artesanas.`\
+https://www.nytimes.com/es/2026/06/08/espanol/america-latina/camisetas-mexico-adidas-explotacion.html
+
 **Why We May Need More Military Veterans in Congress**\
 `There’s an argument for candidates who’ve served in the military.`\
 https://www.nytimes.com/2026/06/08/opinion/veterans-politics.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/08/pageoneplus/no-corrections-june-8-2026.html
 **Quote of the Day: In His Role 30 Years, A Last Note Draws Near**\
 `Quotation of the Day for Monday, June 8, 2026.`\
 https://www.nytimes.com/2026/06/08/pageoneplus/quote-of-the-day-in-his-role-30-years-a-last-note-draws-near.html
-
-**A ‘Miraculous Transformation’: How Kim Jong-un Fortified North Korea**\
-`He used the pandemic to ruthlessly tighten his grip on the country. Then he energized its economy by leveraging Russia’s war in Ukraine.`\
-https://www.nytimes.com/2026/06/08/world/asia/north-korea-kim-jong-un-pandemic-economy.html
 
