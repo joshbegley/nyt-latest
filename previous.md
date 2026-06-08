@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/06/08/us/maine-governor-platner-nirav-shah.html
 `The British Film Institute assembled more than 400 videos in an archive of culturally significant internet moments. See what made the cut.`\
 https://www.nytimes.com/2026/06/08/technology/uk-video-memes-archive-tape.html
 
-**Live Updates: Iran and Israel Move to De-Escalate After Cease-Fire Breaks Down**\
-`Iran’s Revolutionary Guards Corps signaled that it had concluded its latest military operation against Israel. Prime Minister Benjamin Netanyahu pulled back from preparations for another attack after pushback from President Trump, two Israeli military officials said.`\
+**Live Updates: Iran and Israel Pull Back After Exchange of Attacks**\
+`Iran signaled that it had concluded its latest strikes against Israel. Prime Minister Benjamin Netanyahu refrained from another attack under pressure from President Trump, a U.S. and two Israeli officials said.`\
 https://www.nytimes.com/live/2026/06/08/world/iran-israel-lebanon-attacks
 

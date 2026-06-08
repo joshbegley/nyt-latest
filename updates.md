@@ -1,3 +1,7 @@
+**Live Updates: Iran and Israel Pull Back After Exchange of Attacks**\
+`Iran signaled that it had concluded its latest strikes against Israel. Prime Minister Benjamin Netanyahu refrained from another attack under pressure from President Trump, a U.S. and two Israeli officials said.`\
+https://www.nytimes.com/live/2026/06/08/world/iran-israel-lebanon-attacks
+
 **Iran and Israel Move to De-Escalate After Hours of Fighting**\
 `Iran and Israel signaled that they would move to de-escalate military hostilities after exchanging strikes for the first time since April.`\
 https://www.nytimes.com/video/world/middleeast/100000010951911/israel-iran-attacks-ceasefire.html
