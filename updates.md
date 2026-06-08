@@ -1,3 +1,11 @@
+**Searching for Shade When It’s 125 Degrees**\
+`Every season brings a new struggle for people in Dadu District, Pakistan, an area prone to sandstorms, drought and flooding.`\
+https://www.nytimes.com/2026/06/08/world/asia/pakistan-heat-wave.html
+
+**Tonys 2026 Highlights: ‘Schmigadoon!’ and ‘Death of a Salesman’ Are Big Winners**\
+`“Ragtime” won best musical revival, while “Death of a Salesman” led with six prizes. Joshua Henry, Caissie Levy, John Lithgow and Laurie Metcalf were among the winners.`\
+https://www.nytimes.com/live/2026/06/07/theater/tony-awards-2026
+
 **Tonys 2026 Takeaways: ‘Schmigadoon!’ and ‘Death of a Salesman’ Are Big Winners**\
 `The Broadway revival of “Salesman” led with six Tony Awards. “Schmigadoon!” won best new musical, and “Ragtime” and “Liberation” also took home major prizes.`\
 https://www.nytimes.com/2026/06/07/theater/heres-the-latest.html

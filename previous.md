@@ -1,6 +1,6 @@
 **Searching for Shade When It’s 125 Degrees**\
 `Every season brings a new struggle for people in Dadu District, Pakistan, an area prone to sandstorms, drought and flooding.`\
-https://www.nytimes.com/2026/06/08/world/asia/searching-for-shade-when-its-125-degrees.html
+https://www.nytimes.com/2026/06/08/world/asia/pakistan-heat-wave.html
 
 **No Corrections: June 8, 2026**\
 `No corrections appeared in print on Monday, June 8, 2026.`\
@@ -114,7 +114,7 @@ https://www.nytimes.com/2026/06/07/us/kars4kids-california-appeals-court.html
 `The Broadway revival of “Salesman” led with six Tony Awards. “Schmigadoon!” won best new musical, and “Ragtime” and “Liberation” also took home major prizes.`\
 https://www.nytimes.com/2026/06/07/theater/heres-the-latest.html
 
-**Tony Awards 2026 Live Updates: ‘Schmigadoon!’ Named Best New Musical; ‘Ragtime’ and ‘Death of a Salesman’ Among Big Winners**\
+**Tonys 2026 Highlights: ‘Schmigadoon!’ and ‘Death of a Salesman’ Are Big Winners**\
 `“Ragtime” won best musical revival, while “Death of a Salesman” led with six prizes. Joshua Henry, Caissie Levy, John Lithgow and Laurie Metcalf were among the winners.`\
 https://www.nytimes.com/live/2026/06/07/theater/tony-awards-2026
 
