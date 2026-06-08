@@ -1,3 +1,7 @@
+**Oil Surges, Asian Stocks Sink After Iran Strikes Israel**\
+`Oil prices jumped and stocks plunged after Iran and Israel exchanged strikes, raising doubts about the future of fragile cease-fire in the Middle East.`\
+https://www.nytimes.com/2026/06/07/business/oil-gas-stocks-iran.html
+
 **5 minutos para que te enamores de Charlie Parker**\
 `Bird ayudó a introducir el bebop, un estilo que transformó el jazz de una música popular para bailar en una forma de arte más exigente y exploratoria. He aquí 11 piezas para introducirte a su legado perdurable.`\
 https://www.nytimes.com/es/2026/06/08/espanol/cultura/5-minutos-charlie-parker.html
