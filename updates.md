@@ -1,3 +1,7 @@
+**Tony Awards 2026 Live Updates: ‘Liberation’ Wins Best Play; ‘Death of a Salesman’ Leads With 5 Prizes**\
+`The awards for ”Death of a Salesman” include best direction of a play. John Lithgow, Laurie Metcalf and Lesley Manville are among the winners so far.`\
+https://www.nytimes.com/live/2026/06/07/theater/tony-awards-2026
+
 **Oil Surges, Asian Stocks Sink After Iran Strikes Israel**\
 `Oil prices jumped and stocks plunged after Iran fired missiles at Israel, raising doubts about the future of fragile cease-fire in the Middle East.`\
 https://www.nytimes.com/2026/06/07/business/oil-gas-stocks-iran.html

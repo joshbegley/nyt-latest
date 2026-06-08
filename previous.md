@@ -63,7 +63,7 @@ https://www.nytimes.com/2026/06/07/style/tony-awards-2026-red-carpet-looks.html
 https://www.nytimes.com/2026/06/07/us/kars4kids-california-appeals-court.html
 
 **Tony Awards 2026 Live Updates: ‘Liberation’ Wins Best Play; ‘Death of a Salesman’ Leads With 5 Prizes**\
-`The awards for ”Death of a Salesman” include best direction of a play, and Laurie Metcalf won for featured actress in a play. John Lithgow won best actor in a play for “Giant.”`\
+`The awards for ”Death of a Salesman” include best direction of a play. John Lithgow, Laurie Metcalf and Lesley Manville are among the winners so far.`\
 https://www.nytimes.com/live/2026/06/07/theater/tony-awards-2026
 
 **A Voice for Ukraine’s Soldiers**\
