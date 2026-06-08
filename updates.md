@@ -1,3 +1,7 @@
+**No Calm for Tehran’s Residents as Iran-Israel Fighting Resumes**\
+`As explosions sounded in the Iranian capital, people frantically checked phones and social media to see whether they were under attack again.`\
+https://www.nytimes.com/2026/06/08/world/middleeast/iran-tehran-israel-attacks.html
+
 **Highlights From the 2026 Tony Awards**\
 `“Death of a Salesman,” “Liberation” and “Ragtime” won big at the 2026 Tony Awards, which celebrated the best of Broadway.`\
 https://www.nytimes.com/video/arts/100000010951502/tony-awards-winners.html
