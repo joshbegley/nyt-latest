@@ -1,3 +1,31 @@
+**Why Your Next Diagnosis May Be Guided by an A.I. Helper**\
+`OpenEvidence, a fast-growing start-up, is using artificial intelligence to help doctors find answers to clinical questions for diagnosis and treatment.`\
+https://www.nytimes.com/2026/06/08/business/ai-medicine-doctors.html
+
+**The Croatian Coast: What to See, Do and Eat**\
+`Tips for first-time visitors to the cities, islands and stunning coastline of one of Europe’s most beguiling summer destinations.`\
+https://www.nytimes.com/2026/06/08/travel/where-to-go-on-the-croatian-coast.html
+
+**What Liberals Get Wrong About the Middle Class**\
+`The middle class is larger than you think, and growing.`\
+https://www.nytimes.com/2026/06/08/opinion/middle-class-liberals-economics.html
+
+**Want an A.I. Degree? Here’s What You Should Think About.**\
+`The programs are popping up on campuses across America. What they teach varies.`\
+https://www.nytimes.com/2026/06/08/us/ai-studies-major-explained.html
+
+**Shootout in Olde Town Square: A Cop, a Killer and a Good Guy With a Gun**\
+`No community was better prepared for active shooters than Arvada, Colo. Then four men with guns converged in the city center, each on different missions.`\
+https://www.nytimes.com/2026/06/08/us/good-samaritan-arvada-mass-shooting.html
+
+**A.I. Degree Programs Surge as Colleges Seek Students and Relevance**\
+`Colleges from North Dakota to New Jersey are trying to get students to sign up for A.I. degrees. What they teach varies widely.`\
+https://www.nytimes.com/2026/06/08/us/ai-college-degrees.html
+
+**GLP-1 Drugs: 6 Things We’ve Learned About Their Effects**\
+`The widespread use of drugs like Ozempic is giving scientists a clearer picture than ever of their effects.`\
+https://www.nytimes.com/2026/06/08/well/glp1-drugs-weight-loss.html
+
 **No Calm for Tehran’s Residents as Iran-Israel Fighting Resumes**\
 `As explosions sounded in the Iranian capital, people frantically checked phones and social media to see whether they were under attack again.`\
 https://www.nytimes.com/2026/06/08/world/middleeast/iran-tehran-israel-attacks.html
@@ -19,7 +47,7 @@ https://www.nytimes.com/es/2026/06/08/espanol/mundo/papa-leon-sanchez-trump.html
 https://www.nytimes.com/2026/06/08/world/europe/armenia-election-results.html
 
 **Live Updates: Iran and Israel Trade Strikes for the First Time Since April**\
-`Iran launched waves of missiles at Israel, while Israel struck military targets and a petrochemical complex in Iran.`\
+`Iran launched waves of missiles at Israel, while Israel struck military targets and a petrochemical complex in Iran, as an uneasy two-month truce appeared to break down.`\
 https://www.nytimes.com/live/2026/06/08/world/iran-israel-lebanon-attacks
 
 **Trump, Mamdani and the Knicks: A Manic Monday Awaits New York**\
@@ -141,22 +169,6 @@ https://www.nytimes.com/2026/06/07/nyregion/american-flag-power-outages-connecti
 **Iran Fires Missiles at Israel for First Time Since April**\
 `Iran attacked Israel with ballistic missiles late Sunday after an Israeli attack in the outskirts of Beirut against Hezbollah, the Iranian-backed militant group.`\
 https://www.nytimes.com/video/world/middleeast/100000010950217/iran-fires-missiles-at-israel-for-first-time-since-april.html
-
-**Tony Award Winners 2026: See the Full List**\
-`The Tony Awards were held at Radio City Music Hall in New York City.`\
-https://www.nytimes.com/2026/06/07/theater/tony-award-winners-2026-the-updating-list.html
-
-**Our Favorite Photos From the Tony Awards**\
-`As Broadway’s brightest gathered for the industry’s biggest night, here’s an up-close look at what you couldn’t see on TV.`\
-https://www.nytimes.com/2026/06/07/theater/our-favorite-photos-from-the-tony-awards-red-carpet.html
-
-**Robert Coles, Pulitzer-Winning Child Psychiatrist, Is Dead at 97**\
-`His five-volume “Children of Crisis” series, published between 1967 and 1977, drew on his conversations with American children whose voices were not often heard.`\
-https://www.nytimes.com/2026/06/07/us/robert-coles-dead.html
-
-**NYT Crossword Answers for June 8, 2026**\
-`Tom McCoy’s crossword is more than standard fare.`\
-https://www.nytimes.com/2026/06/07/crosswords/daily-puzzle-2026-06-08.html
 
 **Tonys 2026 Highlights: ‘Schmigadoon!’ and ‘Death of a Salesman’ Are Big Winners**\
 `“Ragtime” won best musical revival, while “Death of a Salesman” led with six prizes. Joshua Henry, Caissie Levy, John Lithgow and Laurie Metcalf were among the winners.`\

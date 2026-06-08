@@ -1,3 +1,103 @@
+**Why We May Need More Military Veterans in Congress**\
+`There’s an argument for candidates who’ve served in the military.`\
+https://www.nytimes.com/2026/06/08/opinion/veterans-politics.html
+
+**Book Review: ‘Trash!: A Garbageman’s Story,’ by Simon Paré-Poupart**\
+`In his memoir, Simon Paré-Poupart recounts the highs and lows of hauling trash for more than 20 years.`\
+https://www.nytimes.com/2026/06/08/books/review/simon-pare-poupart-trash-garbagemans-story.html
+
+**How a Family of 4 (and One Kid in College) Live on $85,000 a Year in the Bronx**\
+`The Suarez family has been facing New York City’s rising costs while dealing with the physical, mental and financial expenses of a major surgery.`\
+https://www.nytimes.com/interactive/2026/06/08/nyregion/nyc-budgeting-affordability-suarez.html
+
+**Why Everyone Wants Jon Ossoff to Run for President**\
+`The Georgia senator is excoriating Trump and his systemic corruption in a way that transcends the Democratic Party’s progressive-moderate divide.`\
+https://www.nytimes.com/2026/06/08/opinion/jon-ossoff-president.html
+
+**In Maine, Supporters of Graham Platner Continue to Back His Senate Campaign, With ‘Trepidation’**\
+`Many are sticking by the presumptive Democratic Senate nominee Graham Platner. But some have soured, and others are anxious about how recent revelations could affect a close race.`\
+https://www.nytimes.com/2026/06/08/us/politics/graham-platner-voters-maine-senate.html
+
+**Bounty of Frida Kahlo Art Emerges in Mexico’s Restored Museum**\
+`Diego Rivera’s great patron Dolores Olmedo regarded Frida as a rival but bought 26 of her artworks, the largest collection. Their work is on view in Mexico City.`\
+https://www.nytimes.com/2026/06/08/arts/frida-kahlo-diego-rivera.html
+
+**Best and Worst Moments From the 2026 Tony Awards: Pink, Maya Rudolph, Cole Escola, ‘Cats’**\
+`Pink brought sincerity and punk energy as the host, musical numbers by “Cats,” “Ragtime” and “Chicago” popped, and Maya Rudolph and Cole Escola mined comic gold.`\
+https://www.nytimes.com/2026/06/08/theater/best-worst-tony-awards.html
+
+**The New York Hip-Hop Soundtracking the Knicks’ Run to the N.B.A. Finals**\
+`From old-school stars to young upstarts, the birthplace of hip-hop is basking in the big moment.`\
+https://www.nytimes.com/2026/06/08/arts/music/knicks-hip-hop-anthems.html
+
+**Giving Up a Bungalow in Seattle for a Home With a Shared Language**\
+`After a decades-long discussion, a couple whose careers unfolded at the same architectural firm wanted to create a home of their own.`\
+https://www.nytimes.com/2026/06/08/realestate/giving-up-a-bungalow-in-seattle-for-a-home-with-a-shared-language.html
+
+**‘Backrooms’ and ‘Obsession’: The Lessons Behind These Horror Hits**\
+`Two Times critics unpack the twin phenomenon of “Backrooms” and “Obsession” and what lessons should — and shouldn’t — be learned from their massive success.`\
+https://www.nytimes.com/2026/06/08/movies/backrooms-obsession-lessons.html
+
+**Artisanal or Exploitative? Unraveling the Story of Mexico’s World Cup Jerseys**\
+`Mexicans are enraged after viral videos claimed Adidas exploited Indigenous women to sew World Cup jerseys. We traveled into the mountains to speak to the artisans themselves.`\
+https://www.nytimes.com/2026/06/08/world/americas/adidas-mexico-indigenous-women-world-cup.html
+
+**Europe Watches Its Economic Recovery Fade Into the Distance**\
+`As the war in Iran persists, signs point to a prolonged period of higher prices and slower growth rather than a quick shock.`\
+https://www.nytimes.com/2026/06/08/business/europe-inflation-iran-war.html
+
+**Keeping an Eye Out for Rabid Raccoons**\
+`Most raccoons in the city are healthy, but some are infected with rabies. The Health Department is working to prevent the spread of the virus.`\
+https://www.nytimes.com/2026/06/08/nyregion/raccoons-rabies-nyc.html
+
+**Apple Expected to Detail Its A.I. Plans at Conference**\
+`For the second time, the company is expected to explain its artificial intelligence plans. Unlike some rivals, it is not reorganizing around the technology.`\
+https://www.nytimes.com/2026/06/08/technology/apple-ai-artificial-intelligence-wwdc.html
+
+**A Minneapolis Restaurant Stopped Charging for Food. And Profits Are Up.**\
+`At Post Modern Times cafe in Minneapolis, a tax protest has turned into a social experiment and a critique of the hospitality industry.`\
+https://www.nytimes.com/2026/06/08/dining/post-modern-times-minneapolis-free-food.html
+
+**How the Drive to Find a Conspiracy Against Trump Rocked the Justice Dept.**\
+`The push to investigate what the president’s allies saw as a “deep state” cabal intent on taking him down set off cascading crises, ended careers and undercut the department’s credibility with judges.`\
+https://www.nytimes.com/2026/06/08/us/politics/justice-department-trump-patel-conspiracy.html
+
+**Why It Cost This Man $250,000 to Help His Family Survive in Gaza**\
+`How Israeli trade restrictions and shadowy profiteers drove up the price of nearly everything — from food to evacuation.`\
+https://www.nytimes.com/interactive/2026/06/08/magazine/gaza-family.html
+
+**While New York Celebrates the Knicks’ Finals Appearance, Some Residents Shrug**\
+`Not everyone in the city is being swept up in the team’s championship drive. Some are just trying to see a Broadway show, or spin some yarn.`\
+https://www.nytimes.com/2026/06/08/style/nyc-knicks-nba-finals.html
+
+**Two New Studies Ask: Did the iPhone Cause Birthrates to Decline?**\
+`Modern smartphones rolled out in 2007, the year that fertility rates began falling. Two studies say that is not a coincidence.`\
+https://www.nytimes.com/2026/06/08/us/iphone-birthrate-decline-studies.html
+
+**What’s the Best Way to Wear a Crop Top?**\
+`A reader wonders whether they are for teenagers only.`\
+https://www.nytimes.com/2026/06/08/fashion/whats-the-best-way-to-wear-a-crop-top.html
+
+**The American Family Is at a Breaking Point. Our Politics Have Finally Noticed.**\
+`Society has treated parenting as a private endeavor. But what if raising children is also a public good?`\
+https://www.nytimes.com/2026/06/08/magazine/childcare-mothers-politics.html
+
+**They Got Platner’s Endorsement for Maine Governor. What Did They Do With It?**\
+`The crowded race for governor has barely qualified as background noise in recent months, drowned out by the high-stakes, turbulent campaign for U.S. Senate.`\
+https://www.nytimes.com/2026/06/08/us/maine-governor-platner-nirav-shah.html
+
+**B.F.I. Preserves ‘Charlie Bit My Finger’ and More Videos in Archive of Viral Moments**\
+`The British Film Institute assembled more than 400 videos in an archive of culturally significant internet moments. See what made the cut.`\
+https://www.nytimes.com/2026/06/08/technology/uk-video-memes-archive-tape.html
+
+**An Aggressive Israel Is Shaking the Middle East**\
+`Since Hamas attacked Israel on Oct. 7, 2023, aggression and expansionism have come to define Israel’s foreign policy.`\
+https://www.nytimes.com/2026/06/08/opinion/israeli-expansionism-middle-east-hamas.html
+
+**The A.I. Classroom Is Quiet. Way Too Quiet.**\
+`A.I. tutoring is seductive, but ultimately ineffective.`\
+https://www.nytimes.com/2026/06/08/opinion/ai-classroom-silence-reform.html
+
 **Why Your Next Diagnosis May Be Guided by an A.I. Helper**\
 `OpenEvidence, a fast-growing start-up, is using artificial intelligence to help doctors find answers to clinical questions for diagnosis and treatment.`\
 https://www.nytimes.com/2026/06/08/business/ai-medicine-doctors.html
@@ -14,13 +114,13 @@ https://www.nytimes.com/2026/06/08/opinion/middle-class-liberals-economics.html
 `The programs are popping up on campuses across America. What they teach varies.`\
 https://www.nytimes.com/2026/06/08/us/ai-studies-major-explained.html
 
-**Shootout in Olde Town Square: A Cop, a Killer and a Good Guy With a Gun**\
-`No community was better prepared for active shooters than Arvada, Colo. Then four men with guns converged in the city center, each on different missions.`\
-https://www.nytimes.com/2026/06/08/us/good-samaritan-arvada-mass-shooting.html
-
 **A.I. Degree Programs Surge as Colleges Seek Students and Relevance**\
 `Colleges from North Dakota to New Jersey are trying to get students to sign up for A.I. degrees. What they teach varies widely.`\
 https://www.nytimes.com/2026/06/08/us/ai-college-degrees.html
+
+**Shootout in Olde Town Square: A Cop, a Killer and a Good Guy With a Gun**\
+`No community was better prepared for active shooters than Arvada, Colo. Then four men with guns converged in the city center, each on different missions.`\
+https://www.nytimes.com/2026/06/08/us/good-samaritan-arvada-mass-shooting.html
 
 **GLP-1 Drugs: 6 Things We’ve Learned About Their Effects**\
 `The widespread use of drugs like Ozempic is giving scientists a clearer picture than ever of their effects.`\
@@ -97,80 +197,4 @@ https://www.nytimes.com/2026/06/08/pageoneplus/quote-of-the-day-in-his-role-30-y
 **A ‘Miraculous Transformation’: How Kim Jong-un Fortified North Korea**\
 `He used the pandemic to ruthlessly tighten his grip on the country. Then he energized its economy by leveraging Russia’s war in Ukraine.`\
 https://www.nytimes.com/2026/06/08/world/asia/north-korea-kim-jong-un-pandemic-economy.html
-
-**One Is the Pope, the Other an Atheist. They Both Oppose Trump.**\
-`Pope Leo XIV and Prime Minister Pedro Sánchez of Spain, who meet on Monday, have recently clashed with President Trump. Their motivations, however, may be different.`\
-https://www.nytimes.com/2026/06/08/world/europe/pope-leo-sanchez-trump.html
-
-**‘Schmigadoon!’ Wins Best Musical Tony Award**\
-`The knowing, and loving, musical theater satire won the coveted award of the night.`\
-https://www.nytimes.com/2026/06/07/theater/schmigadoon-wins-best-musical-tony-award.html
-
-**Joshua Henry Wins the Tony for Best Actor in a Musical.**\
-`As Coalhouse Walker Jr. in “Ragtime,” Henry belts out emotional solos that have prompted mid-show standing ovations.`\
-https://www.nytimes.com/2026/06/07/theater/joshua-henry-tony-best-actor-musical.html
-
-**6 Wounded in Stabbing at New York Penn Station**\
-`A man whose identity has not been released was taken into custody by Amtrak police officers. All of the victims were expected to survive.`\
-https://www.nytimes.com/2026/06/07/nyregion/penn-station-stabbing.html
-
-**‘Death of a Salesman’ Wins the Tony for Best Revival of a Play**\
-`Arthur Miller’s classic won the same award in 1984, 1999 and 2012.`\
-https://www.nytimes.com/2026/06/07/theater/death-of-a-salesman-revival-play.html
-
-**At Least 15 Dead After Strong Earthquake in Southern Philippines**\
-`The 7.8-magnitude quake struck off the island of Mindanao, toppling buildings and damaging bridges. Dozens were injured and tens of thousands displaced.`\
-https://www.nytimes.com/2026/06/07/world/asia/hilippines-earthquake-tsunami-warning.html
-
-**Israel espía a sus aliados: el Pentágono eleva la amenaza al nivel crítico**\
-`Mientras combaten juntos contra Irán, Estados Unidos descubrió que Israel intensificó su espionaje sobre los principales negociadores del gobierno de Donald Trump.`\
-https://www.nytimes.com/es/2026/06/07/espanol/mundo/israel-espia-estados-unidos-pentagono.html
-
-**‘Ragtime’ Wins the Tony for Best Revival of a Musical**\
-`Based on the novel by E.L. Doctorow, “Ragtime” follows three communities colliding in turn-of-the-20th-century New York.`\
-https://www.nytimes.com/2026/06/07/theater/ragtime-tony-award-best-musical-revival.html
-
-**Oil Surges After Hostilities Between Iran and Israel Escalate**\
-`Oil prices jumped and stocks plunged after Iran and Israel exchanged strikes, raising doubts about the future of fragile cease-fire in the Middle East.`\
-https://www.nytimes.com/2026/06/07/business/oil-gas-stocks-iran.html
-
-**Maps: 7.8-Magnitude Earthquake Near the Philippines Raises Tsunami Alerts**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/06/07/world/philippines-earthquake-tsunami-alert.html
-
-**‘Liberation’ Wins the Tony for Best Play**\
-`The playwright Bess Wohl is the first American woman to win this award since Wendy Wasserstein won for “The Heidi Chronicles” in 1989.`\
-https://www.nytimes.com/2026/06/07/theater/liberation-tony-awards-best-play.html
-
-**Nithya Raman Overtakes Spencer Pratt in Race for L.A. Mayor**\
-`Nithya Raman pulled into second place in the race to see who will face Mayor Karen Bass in November. There are more votes to be counted.`\
-https://www.nytimes.com/2026/06/07/us/nithya-raman-spencer-pratt-los-angeles-mayor-race.html
-
-**John Lithgow Wins the Tony for Best Actor in a Play**\
-`In “Giant,” Lithgow leans into monstrosity to play the famed author Roald Dahl.`\
-https://www.nytimes.com/2026/06/07/theater/john-lithgow-wins-the-tony-for-best-actor-in-a-play.html
-
-**A Landmark Tonys Win for the Trans Costume Designer Qween Jean**\
-`Qween Jean won for “Cats: The Jellicle Ball,” becoming the first openly transgender person to win a Tony Award, according to a publicist for the show.`\
-https://www.nytimes.com/2026/06/07/theater/qween-jean-transgender-costume-design.html
-
-**La princesa Mette-Marit de Noruega espera un trasplante de pulmón**\
-`La noticia del empeoramiento del estado de salud de la princesa se produce cuando una serie de escándalos ha sumido a la familia real en una profunda crisis.`\
-https://www.nytimes.com/es/2026/06/07/espanol/mundo/princesa-noruega-transplante-pulmon.html
-
-**Pink Is Hosting Tonight’s Tony Awards**\
-`The pop star, a former theater kid, will also perform on Sunday. Her theater-loving daughter approves of the gig.`\
-https://www.nytimes.com/2026/06/07/theater/tonys-host-pink.html
-
-**Huge Runaway Flag Knocks Out Power to Thousands of Connecticut Customers**\
-`The flag flew into transmission lines on Saturday night, affecting 5,000 customers. In a separate episode on Sunday, 40,000 customers lost power, according to Eversource Energy.`\
-https://www.nytimes.com/2026/06/07/nyregion/american-flag-power-outages-connecticut.html
-
-**Iran Fires Missiles at Israel for First Time Since April**\
-`Iran attacked Israel with ballistic missiles late Sunday after an Israeli attack in the outskirts of Beirut against Hezbollah, the Iranian-backed militant group.`\
-https://www.nytimes.com/video/world/middleeast/100000010950217/iran-fires-missiles-at-israel-for-first-time-since-april.html
-
-**Tonys 2026 Highlights: ‘Schmigadoon!’ and ‘Death of a Salesman’ Are Big Winners**\
-`“Ragtime” won best musical revival, while “Death of a Salesman” led with six prizes. Joshua Henry, Caissie Levy, John Lithgow and Laurie Metcalf were among the winners.`\
-https://www.nytimes.com/live/2026/06/07/theater/tony-awards-2026
 

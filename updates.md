@@ -1,3 +1,35 @@
+**Why Your Next Diagnosis May Be Guided by an A.I. Helper**\
+`OpenEvidence, a fast-growing start-up, is using artificial intelligence to help doctors find answers to clinical questions for diagnosis and treatment.`\
+https://www.nytimes.com/2026/06/08/business/ai-medicine-doctors.html
+
+**The Croatian Coast: What to See, Do and Eat**\
+`Tips for first-time visitors to the cities, islands and stunning coastline of one of Europe’s most beguiling summer destinations.`\
+https://www.nytimes.com/2026/06/08/travel/where-to-go-on-the-croatian-coast.html
+
+**What Liberals Get Wrong About the Middle Class**\
+`The middle class is larger than you think, and growing.`\
+https://www.nytimes.com/2026/06/08/opinion/middle-class-liberals-economics.html
+
+**Want an A.I. Degree? Here’s What You Should Think About.**\
+`The programs are popping up on campuses across America. What they teach varies.`\
+https://www.nytimes.com/2026/06/08/us/ai-studies-major-explained.html
+
+**Shootout in Olde Town Square: A Cop, a Killer and a Good Guy With a Gun**\
+`No community was better prepared for active shooters than Arvada, Colo. Then four men with guns converged in the city center, each on different missions.`\
+https://www.nytimes.com/2026/06/08/us/good-samaritan-arvada-mass-shooting.html
+
+**A.I. Degree Programs Surge as Colleges Seek Students and Relevance**\
+`Colleges from North Dakota to New Jersey are trying to get students to sign up for A.I. degrees. What they teach varies widely.`\
+https://www.nytimes.com/2026/06/08/us/ai-college-degrees.html
+
+**GLP-1 Drugs: 6 Things We’ve Learned About Their Effects**\
+`The widespread use of drugs like Ozempic is giving scientists a clearer picture than ever of their effects.`\
+https://www.nytimes.com/2026/06/08/well/glp1-drugs-weight-loss.html
+
+**Live Updates: Iran and Israel Trade Strikes for the First Time Since April**\
+`Iran launched waves of missiles at Israel, while Israel struck military targets and a petrochemical complex in Iran, as an uneasy two-month truce appeared to break down.`\
+https://www.nytimes.com/live/2026/06/08/world/iran-israel-lebanon-attacks
+
 **No Calm for Tehran’s Residents as Iran-Israel Fighting Resumes**\
 `As explosions sounded in the Iranian capital, people frantically checked phones and social media to see whether they were under attack again.`\
 https://www.nytimes.com/2026/06/08/world/middleeast/iran-tehran-israel-attacks.html
