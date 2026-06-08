@@ -1,3 +1,7 @@
+**Highlights From the 2026 Tony Awards**\
+`“Death of a Salesman,” “Liberation” and “Ragtime” won big at the 2026 Tony Awards, which celebrated the best of Broadway.`\
+https://www.nytimes.com/video/arts/100000010951502/tony-awards-winners.html
+
 **Deadly Quake Hits Southern Philippines**\
 `A deadly 7.8-magnitude earthquake struck off the island of Mindanao in the southern Philippines, causing buildings to collapse and triggering tsunami warnings in the region.`\
 https://www.nytimes.com/video/world/asia/100000010951516/philippines-earthquake-death-toll.html
