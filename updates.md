@@ -1,3 +1,15 @@
+**‘Schmigadoon!’ Wins Best Musical Tony Award**\
+`The knowing, and loving, musical theater satire won the coveted award of the night.`\
+https://www.nytimes.com/2026/06/07/theater/schmigadoon-wins-best-musical-tony-award.html
+
+**Tony Award Winners 2026: See the Full List**\
+`The Tony Awards were held at Radio City Music Hall in New York City.`\
+https://www.nytimes.com/2026/06/07/theater/tony-award-winners-2026-the-updating-list.html
+
+**Tony Awards 2026 Live Updates: ‘Schmigadoon!’ Named Best New Musical; ‘Ragtime’ and ‘Death of a Salesman’ Among Big Winners**\
+`“Ragtime” won best musical revival, while “Death of a Salesman” led with six prizes. Joshua Henry, Caissie Levy, John Lithgow and Laurie Metcalf were among the winners.`\
+https://www.nytimes.com/live/2026/06/07/theater/tony-awards-2026
+
 **Joshua Henry wins the Tony for best actor in a musical.**\
 `As Coalhouse Walker Jr. in “Ragtime,” Henry belts out emotional solos that have prompted mid-show standing ovations.`\
 https://www.nytimes.com/2026/06/07/theater/joshua-henry-tony-best-actor-musical.html

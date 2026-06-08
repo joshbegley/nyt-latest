@@ -2,7 +2,7 @@
 `The knowing, and loving, musical theater satire won the coveted award of the night.`\
 https://www.nytimes.com/2026/06/07/theater/schmigadoon-wins-best-musical-tony-award.html
 
-**Joshua Henry wins the Tony for best actor in a musical.**\
+**Joshua Henry Wins the Tony for Best Actor in a Musical.**\
 `As Coalhouse Walker Jr. in “Ragtime,” Henry belts out emotional solos that have prompted mid-show standing ovations.`\
 https://www.nytimes.com/2026/06/07/theater/joshua-henry-tony-best-actor-musical.html
 
