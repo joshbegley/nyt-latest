@@ -1,5 +1,5 @@
 **Nithya Raman Overtakes Spencer Pratt in Race for L.A. Mayor**\
-`Nithya Raman pulled into second place in the race to see who will face Mayor Karen Bass in November. There are more votes to be counted.`\
+`Ms. Raman, a progressive lawmaker, pulled into second place in the race to see who will face Mayor Karen Bass in November. There are more votes to be counted.`\
 https://www.nytimes.com/2026/06/07/us/nithya-raman-spencer-pratt-los-angeles-mayor-race.html
 
 **Map: Tracking a Potential Tsunami in the Celebes Sea**\
