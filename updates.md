@@ -1,3 +1,7 @@
+**Live Updates: Iran Signals It Will Halt Strikes Against Israel After Hours of Attacks**\
+`Iran’s Revolutionary Guards Corps said it had concluded its latest military operation against Israel after both countries traded strikes and an uneasy two-month truce broke down.`\
+https://www.nytimes.com/live/2026/06/08/world/iran-israel-lebanon-attacks
+
 **Maps: Tracking Tropical Storm Boris**\
 `See the likely path and wind arrival times for Boris`\
 https://www.nytimes.com/interactive/2026/06/08/weather/storm-boris-tracker.html
