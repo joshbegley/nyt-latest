@@ -1,3 +1,11 @@
+**Man Who Fatally Stabbed Gay Dancer Convicted of Hate Crime Charge**\
+`Dmitriy Popov, 20, who killed O’Shae Sibley, 28, at a gas station in Brooklyn was found guilty of manslaughter as a hate crime, which carries a sentence of up to 25 years.`\
+https://www.nytimes.com/2026/06/08/nyregion/oshae-sibley-murder-hate-crime.html
+
+**Trump Nominates Todd Blanche for Attorney General**\
+`As acting attorney general, Mr. Blanche has shown a willingness to execute the president’s maximalist demands. Whether the Senate will confirm him remains unclear.`\
+https://www.nytimes.com/2026/06/08/us/politics/trump-todd-blanche-attorney-general.html
+
 **Netanyahu Called Off Iran Strikes After Trump Claimed Progress in Nuclear Talks, Officials Say**\
 `Multiple officials said that the president told Israel’s leader that the United States and Iran were within days of a breakthrough that would clear the way for talks on a long-term nuclear deal.`\
 https://www.nytimes.com/2026/06/08/us/politics/trump-netanyahu-iran-call.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/08/dining/yewande-komolafes-mushroom-stuffed-pla
 **There’s a Better Way to Catch Seafood**\
 `Bottom trawlers kill or maim everything in their path. We should ban — or at least curtail — the incredibly harmful practice.`\
 https://www.nytimes.com/2026/06/08/opinion/fishing-bottom-trawlers-seafood.html
-
-**Do You Recognize These Lines From Popular Science Fiction?**\
-`Some bits of dialogue or description can stick with you long after you’ve finished reading. Try this short quiz to see how many jog your memory.`\
-https://www.nytimes.com/interactive/2026/06/08/books/review/future-worlds-quiz.html
-
-**Iran and Israel Halt Military Escalation After Exchanging Strikes**\
-`Iran and Israel de-escalated military hostilities after exchanging strikes, which had briefly jeopardized a two-month cease-fire.`\
-https://www.nytimes.com/video/world/middleeast/100000010951911/israel-iran-attacks-ceasefire.html
 

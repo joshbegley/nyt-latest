@@ -1,3 +1,11 @@
+**Man Who Fatally Stabbed Gay Dancer Convicted of Hate Crime Charge**\
+`Dmitriy Popov, 20, who killed O’Shae Sibley, 28, at a gas station in Brooklyn was found guilty of manslaughter as a hate crime, which carries a sentence of up to 25 years.`\
+https://www.nytimes.com/2026/06/08/nyregion/oshae-sibley-murder-hate-crime.html
+
+**Trump Nominates Todd Blanche for Attorney General**\
+`As acting attorney general, Mr. Blanche has shown a willingness to execute the president’s maximalist demands. Whether the Senate will confirm him remains unclear.`\
+https://www.nytimes.com/2026/06/08/us/politics/trump-todd-blanche-attorney-general.html
+
 **Netanyahu Called Off Iran Strikes After Trump Claimed Progress in Nuclear Talks, Officials Say**\
 `Multiple officials said that the president told Israel’s leader that the United States and Iran were within days of a breakthrough that would clear the way for talks on a long-term nuclear deal.`\
 https://www.nytimes.com/2026/06/08/us/politics/trump-netanyahu-iran-call.html
