@@ -63,7 +63,7 @@ https://www.nytimes.com/es/2026/06/07/espanol/mundo/israel-espia-estados-unidos-
 https://www.nytimes.com/2026/06/07/theater/ragtime-tony-award-best-musical-revival.html
 
 **Oil Surges, Asian Stocks Sink After Iran Strikes Israel**\
-`Oil prices jumped and stocks plunged after Iran fired missiles at Israel, raising doubts about the future of fragile cease-fire in the Middle East.`\
+`Oil prices jumped and stocks plunged after Iran and Israel exchanged strikes, raising doubts about the future of fragile cease-fire in the Middle East.`\
 https://www.nytimes.com/2026/06/07/business/oil-gas-stocks-iran.html
 
 **Maps: 7.8-Magnitude Earthquake Near the Philippines Raises Tsunami Alerts**\
