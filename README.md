@@ -1,3 +1,7 @@
+**‘Schmigadoon!’ Wins Best Musical Tony Award**\
+`The knowing, and loving, musical theater satire won the coveted award of the night.`\
+https://www.nytimes.com/2026/06/07/theater/schmigadoon-wins-best-musical-tony-award.html
+
 **Joshua Henry wins the Tony for best actor in a musical.**\
 `As Coalhouse Walker Jr. in “Ragtime,” Henry belts out emotional solos that have prompted mid-show standing ovations.`\
 https://www.nytimes.com/2026/06/07/theater/joshua-henry-tony-best-actor-musical.html
@@ -86,8 +90,8 @@ https://www.nytimes.com/2026/06/07/style/tony-awards-2026-red-carpet-looks.html
 `A lower court last month found that the ads from the charity, known for its ear-worm jingle, had violated false-advertising laws.`\
 https://www.nytimes.com/2026/06/07/us/kars4kids-california-appeals-court.html
 
-**Tony Awards 2026 Live Updates: Joshua Henry and Caissie Levy Win Top Acting Prizes for ‘Ragtime’**\
-`“Ragtime” also won best musical revival, while “Death of a Salesman” leads with six prizes. John Lithgow, Laurie Metcalf and Lesley Manville are among the other winners.`\
+**Tony Awards 2026 Live Updates: ‘Schmigadoon!’ Named Best New Musical; ‘Ragtime’ and ‘Death of a Salesman’ Among Big Winners**\
+`“Ragtime” won best musical revival, while “Death of a Salesman” led with six prizes. Joshua Henry, Caissie Levy, John Lithgow and Laurie Metcalf were among the winners.`\
 https://www.nytimes.com/live/2026/06/07/theater/tony-awards-2026
 
 **A Voice for Ukraine’s Soldiers**\
@@ -149,8 +153,4 @@ https://www.nytimes.com/2026/06/07/us/politics/lawsuit-ufc-fight-white-house.htm
 **5 Takeaways From Scott Pelley’s Interview With The New York Times**\
 `Mr. Pelley, who was at CBS News for 37 years, including as a White House correspondent and a “60 Minutes” correspondent, spoke in his first extended interview since he was fired.`\
 https://www.nytimes.com/2026/06/07/arts/television/scott-pelley-60-minutes-interview-takeaways.html
-
-**Search Continues for Gunmen Who Opened Fire at Ohio Festival**\
-`Two men fired weapons at each other during a festival in the historic Old West End neighborhood of Toledo, wounding at least a dozen people.`\
-https://www.nytimes.com/2026/06/07/us/ohio-festival-shooting-gunmen-search.html
 

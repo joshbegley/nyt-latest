@@ -1,3 +1,15 @@
+**Joshua Henry wins the Tony for best actor in a musical.**\
+`As Coalhouse Walker Jr. in “Ragtime,” Henry belts out emotional solos that have prompted mid-show standing ovations.`\
+https://www.nytimes.com/2026/06/07/theater/joshua-henry-tony-best-actor-musical.html
+
+**Tony Awards 2026 Live Updates: Joshua Henry and Caissie Levy Win Top Acting Prizes for ‘Ragtime’**\
+`“Ragtime” also won best musical revival, while “Death of a Salesman” leads with six prizes. John Lithgow, Laurie Metcalf and Lesley Manville are among the other winners.`\
+https://www.nytimes.com/live/2026/06/07/theater/tony-awards-2026
+
+**Search Continues for Gunmen Who Opened Fire at Ohio Festival**\
+`Two men fired weapons at each other during a festival in the historic Old West End neighborhood of Toledo, wounding at least a dozen people.`\
+https://www.nytimes.com/2026/06/07/us/ohio-festival-shooting-gunmen-search.html
+
 **6 Wounded in Stabbing at New York Penn Station**\
 `A man whose identity has not been released was taken into custody by Amtrak police officers. All of the victims were expected to survive.`\
 https://www.nytimes.com/2026/06/07/nyregion/penn-station-stabbing.html
