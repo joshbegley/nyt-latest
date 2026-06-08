@@ -1,3 +1,7 @@
+**Irán disparó misiles a Israel por primera vez desde el alto al fuego de abril**\
+`Israel había atacado las afueras de la capital libanesa, Beirut, a primera hora del domingo, lo que llevó a Irán a tomar represalias.`\
+https://www.nytimes.com/es/2026/06/08/espanol/mundo/iran-israel-misiles.html
+
 **In Maine, Supporters of Graham Platner Continue to Back His Senate Campaign, With ‘Trepidation’**\
 `Many Democrats are sticking by their presumptive Senate nominee Graham Platner. But some have soured, and others are anxious about how recent revelations could affect a close race.`\
 https://www.nytimes.com/2026/06/08/us/politics/graham-platner-voters-maine-senate.html
