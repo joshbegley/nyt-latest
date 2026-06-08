@@ -1,3 +1,15 @@
+**Scientist Charged With Conspiring to Smuggle Mpox Virus Into U.S.**\
+`The virologist was stopped at the Detroit airport after working in Congo during a mpox epidemic. His lawyer said the material was for research.`\
+https://www.nytimes.com/2026/06/08/science/dutch-scientist-mpox-virus-smuggling.html
+
+**Why People Are Obsessed With Platner**\
+`Graham Platner is not just a candidate for the Senate in Maine, argues the Opinion columnist Jamelle Bouie on “The Opinions,” but also a representative of “an intra-Democratic Party factional battle.” Bouie says the arguments around Platner resemble a proxy fight unfolding within the party.`\
+https://www.nytimes.com/video/opinion/100000010952747/why-people-are-obsessed-with-platner.html
+
+**Hiker, 18, Dies at Grand Canyon National Park Amid High Heat**\
+`The man was with his father on a popular, strenuous trail on a day that temperatures reached above 100 degrees in parts of the canyon, officials said.`\
+https://www.nytimes.com/2026/06/08/us/grand-canyon-hiker-death-heat.html
+
 **Vance Blames Migrant ‘Invasion’ for UK Stabbing**\
 `British officials accused Vice President JD Vance of trying to “stir up division” in his comments on the murder of Henry Nowak, whose killer was sentenced to life in prison last week.`\
 https://www.nytimes.com/2026/06/08/world/europe/vance-uk-stabbing-migrants.html
@@ -66,9 +78,9 @@ https://www.nytimes.com/2026/06/08/technology/elon-musk-brendan-carr-fcc-spacex.
 `The judge had previously ruled that the woman had been improperly deported by the Trump administration and had ordered her returned to the United States.`\
 https://www.nytimes.com/2026/06/08/world/africa/trump-deportation-us-judge-congo-colombia.html
 
-**How to See the 2026 Tony-Winning Plays and Musicals**\
+**2026 Tonys: How to Get Tickets for Winning Plays and Musicals**\
 `Many of the winning plays and musicals are still onstage, and some are closing soon. Here’s a guide to help you navigate the field and find tickets.`\
-https://www.nytimes.com/2026/06/08/theater/how-to-see-the-2026-tony-winners.html
+https://www.nytimes.com/2026/06/08/theater/tickets-tony-winners-plays-musicals.html
 
 **Patrick Bruel, French Singer, Is Taken Into Custody Over Sex Assault Claims**\
 `Mr. Bruel, long a beloved celebrity in France, has denied allegations raised by 13 women dating to 1997.`\
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/06/08/style/tony-awards-after-parties.html
 **How Healthy Are Peas?**\
 `Don’t let childhood memories of mealtime standoffs turn you away from these nutritional powerhouses.`\
 https://www.nytimes.com/2026/06/08/well/eat/peas-health-benefits-recipes.html
-
-**The Iran War is Forcing Energy-Importing Countries to Turn Inward**\
-`The Iran war is pushing countries to prioritize domestic energy in order to protect themselves from volatile oil and natural gas markets.`\
-https://www.nytimes.com/2026/06/08/business/energy-environment/iran-war-energy-oil.html
-
-**Houthis Threaten to Widen Iran War by Blocking Israeli Shipping in Red Sea**\
-`The Yemeni militia group, which is backed by Iran, said it would impose a partial blockade in the waterway, a move that would further strangle supply routes and aggravate the conflict in the Mideast.`\
-https://www.nytimes.com/2026/06/08/world/middleeast/houthis-yemen-red-sea-israel-shipping.html
-
-**Live Updates: Iran and Israel Pull Back After Exchange of Strikes**\
-`Prime Minister Benjamin Netanyahu said Israel’s “fire is on hold” after a phone call with President Trump. Iran also said it would cease its attacks but, like Israel, warned it was ready to resume at any time.`\
-https://www.nytimes.com/live/2026/06/08/world/iran-israel-lebanon-attacks
 
