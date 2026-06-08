@@ -158,7 +158,3 @@ https://www.nytimes.com/2026/06/07/us/politics/trump-new-wars-compensation-fund.
 `Easy to make, easy to transport and easy to love.`\
 https://www.nytimes.com/2026/06/07/dining/this-vanilla-sheet-pan-cake-is-ready-to-party.html
 
-**James Talarico Isn’t the Only One**\
-`It’s midterm season, and the Democrats are trying to win back Congress. Is running white Christian clergy members the answer?`\
-https://www.nytimes.com/2026/06/07/briefing/james-talarico-isnt-the-only-one.html
-
