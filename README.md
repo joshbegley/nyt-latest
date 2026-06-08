@@ -54,8 +54,8 @@ https://www.nytimes.com/2026/06/07/style/tony-awards-2026-red-carpet-looks.html
 `A lower court last month found that the ads from the charity, known for its ear-worm jingle, had violated false-advertising laws.`\
 https://www.nytimes.com/2026/06/07/us/kars4kids-california-appeals-court.html
 
-**Tony Awards 2026 Live Updates: John Lithgow and Laurie Metcalf Win Early Prizes**\
-`Lithgow won best actor in a play for “Giant” and Metcalf won featured actress in a play for “Death of a Salesman.” Pink is hosting a celebration expected to be filled with nostalgic performances.`\
+**Tony Awards 2026 Live Updates: ‘Death of a Salesman’ Leads With 5 Prizes**\
+`The revival’s awards include best direction of a play, and Laurie Metcalf won for featured actress in a play. John Lithgow won best actor in a play for “Giant.”`\
 https://www.nytimes.com/live/2026/06/07/theater/tony-awards-2026
 
 **A Voice for Ukraine’s Soldiers**\

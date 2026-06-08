@@ -1,3 +1,15 @@
+**Nithya Raman Overtakes Spencer Pratt in Race for L.A. Mayor**\
+`Nithya Raman pulled into second place in the race to see who will face Mayor Karen Bass in November. There are more votes to be counted.`\
+https://www.nytimes.com/2026/06/07/us/nithya-raman-spencer-pratt-los-angeles-mayor-race.html
+
+**Tony Award Winners 2026: See the Updating List**\
+`The Tony Awards are underway at Radio City Music Hall in New York City.`\
+https://www.nytimes.com/2026/06/07/theater/tony-award-winners-2026-the-updating-list.html
+
+**Tony Awards 2026 Live Updates: John Lithgow and Laurie Metcalf Win Early Prizes**\
+`Lithgow won best actor in a play for “Giant” and Metcalf won featured actress in a play for “Death of a Salesman.” Pink is hosting a celebration expected to be filled with nostalgic performances.`\
+https://www.nytimes.com/live/2026/06/07/theater/tony-awards-2026
+
 **A Landmark Tonys Win for the Trans Costume Designer Qween Jean**\
 `Qween Jean won for “Cats: The Jellicle Ball,” becoming the first openly transgender person to win a Tony Award, according to a publicist for the show.`\
 https://www.nytimes.com/2026/06/07/theater/qween-jean-transgender-costume-design.html
