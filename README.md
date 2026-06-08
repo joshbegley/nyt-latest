@@ -1,3 +1,7 @@
+**They Spent Years on a Math Problem. Then They Were Scooped by A.I.**\
+`Artificial intelligence is mastering the kinds of projects that have long helped to build the careers of young mathematicians. What does that mean for their future?`\
+https://www.nytimes.com/2026/06/08/science/ai-scoop-young-mathematicians.html
+
 **Iran-Israel Escalation Ignited in Lebanon, Which Is Trapped in Their Conflict**\
 `The power struggle between Iran and Israel to define the new rules of the Middle East plays out in Lebanon, which the other two countries have used to pursue their own ends.`\
 https://www.nytimes.com/2026/06/08/world/middleeast/lebanon-israel-iran.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/08/theater/best-worst-tony-awards.html
 **The New York Hip-Hop Soundtracking the Knicks’ Run to the N.B.A. Finals**\
 `From old-school stars to young upstarts, the birthplace of hip-hop is basking in the big moment.`\
 https://www.nytimes.com/2026/06/08/arts/music/knicks-hip-hop-anthems.html
-
-**Giving Up a Bungalow in Seattle for a Home With a Shared Language**\
-`After a decades-long discussion, a couple whose careers unfolded at the same architectural firm wanted to create a home of their own.`\
-https://www.nytimes.com/2026/06/08/realestate/giving-up-a-bungalow-in-seattle-for-a-home-with-a-shared-language.html
 
 **Live Updates: Iran and Israel Pull Back After Exchange of Attacks**\
 `Iran signaled that it had concluded its latest strikes against Israel. Prime Minister Benjamin Netanyahu refrained from another attack under pressure from President Trump, a U.S. and two Israeli officials said.`\

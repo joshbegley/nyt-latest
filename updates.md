@@ -1,3 +1,7 @@
+**Iran-Israel Escalation Ignited in Lebanon, Which Is Trapped in Their Conflict**\
+`The power struggle between Iran and Israel to define the new rules of the Middle East plays out in Lebanon, which the other two countries have used to pursue their own ends.`\
+https://www.nytimes.com/2026/06/08/world/middleeast/lebanon-israel-iran.html
+
 **The One Tony Award Our Readers Would Have Changed**\
 `Thousands of people contributed their Broadway favorites of the season ahead of the Tony Awards. Here’s how their votes stacked up.`\
 https://www.nytimes.com/2026/06/08/theater/readers-tony-awards-voting.html
