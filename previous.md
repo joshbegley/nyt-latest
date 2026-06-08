@@ -1,3 +1,11 @@
+**Map: Tracking a Potential Tsunami in the Celebes Sea**\
+`Monitor warnings and predicted arrival times for the ocean wave.`\
+https://www.nytimes.com/interactive/2026/06/07/world/tsunami-tracker-celebes-sea.html
+
+**John Lithgow Wins the Tony for Best Actor in a Play**\
+`In “Giant,” Lithgow leans into monstrosity to play the famed author Roald Dahl.`\
+https://www.nytimes.com/2026/06/07/theater/john-lithgow-wins-the-tony-for-best-actor-in-a-play.html
+
 **A Landmark Tonys Win for the Trans Costume Designer Qween Jean**\
 `Qween Jean won for “Cats: The Jellicle Ball,” becoming the first openly transgender person to win a Tony Award, according to a “Cats” publicist.`\
 https://www.nytimes.com/2026/06/07/theater/qween-jean-transgender-costume-design.html
@@ -35,15 +43,15 @@ https://www.nytimes.com/2026/06/07/us/robert-coles-dead.html
 https://www.nytimes.com/2026/06/07/crosswords/daily-puzzle-2026-06-08.html
 
 **Tony Awards 2026 Red Carpet: See the Looks of Broadway’s Biggest Stars**\
-`Broadway’s biggest names have started to arrive for the 79th Tony Awards. Here’s what they wore to walk the midnight blue carpet.`\
+`Here’s what Broadway’s biggest names wore to walk the blue carpet at the 79th Tony Awards.`\
 https://www.nytimes.com/2026/06/07/style/tony-awards-2026-red-carpet-looks.html
 
 **Kars4Kids Can Continue Broadcasting Ads in California, Appeals Court Says**\
 `A lower court last month found that the ads from the charity, known for its ear-worm jingle, had violated false-advertising laws.`\
 https://www.nytimes.com/2026/06/07/us/kars4kids-california-appeals-court.html
 
-**Tony Awards 2026 Live Updates: Ceremony Begins With Elaborate Musical Number**\
-`“Schmigadoon!,” a leading contender for the all-important best musical prize, won several key awards at a preshow ceremony.  Pink is hosting a celebration expected to be filled with nostalgic performances.`\
+**Tony Awards 2026 Live Updates: John Lithgow Wins Lead Actor in a Play**\
+`John Lithgow won for his performance in “Giant,” a drama about the author Roald Dahl. Pink is hosting a celebration expected to be filled with nostalgic performances.`\
 https://www.nytimes.com/live/2026/06/07/theater/tony-awards-2026
 
 **A Voice for Ukraine’s Soldiers**\
@@ -157,12 +165,4 @@ https://www.nytimes.com/interactive/2026/06/07/world/quake-tracker-greece.html
 **Tangy and Bold Chile Tofu**\
 `Hetty Lui McKinnon’s new take on a popular Indo-Chinese stir-fry pairs the mild protein with a bold, punchy sauce.`\
 https://www.nytimes.com/2026/06/07/dining/tangy-and-bold-chile-tofu.html
-
-**The Postpartum Care That Mothers Need**\
-`Readers respond to an doctor’s essay about the health care system’s failures to meet the needs of postpartum mothers. Also: Hungary as a role model.`\
-https://www.nytimes.com/2026/06/07/opinion/mothers-postpartum-care.html
-
-**Hegseth Criticizes Europe Over Migration ‘Invasion’ in D-Day Speech**\
-`The remarks from Defense Secretary Pete Hegseth reflect many of the Trump administration’s previous assertions on immigrants in Europe, which overlap with the language of European far-right political parties.`\
-https://www.nytimes.com/2026/06/07/us/politics/hegseth-europe-migration-d-day.html
 

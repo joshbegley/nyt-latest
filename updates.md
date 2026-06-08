@@ -1,3 +1,19 @@
+**Map: Tracking a Potential Tsunami in the Celebes Sea**\
+`Monitor warnings and predicted arrival times for the ocean wave.`\
+https://www.nytimes.com/interactive/2026/06/07/world/tsunami-tracker-celebes-sea.html
+
+**John Lithgow Wins the Tony for Best Actor in a Play**\
+`In “Giant,” Lithgow leans into monstrosity to play the famed author Roald Dahl.`\
+https://www.nytimes.com/2026/06/07/theater/john-lithgow-wins-the-tony-for-best-actor-in-a-play.html
+
+**Tony Awards 2026 Red Carpet: See the Looks of Broadway’s Biggest Stars**\
+`Here’s what Broadway’s biggest names wore to walk the blue carpet at the 79th Tony Awards.`\
+https://www.nytimes.com/2026/06/07/style/tony-awards-2026-red-carpet-looks.html
+
+**Tony Awards 2026 Live Updates: John Lithgow Wins Lead Actor in a Play**\
+`John Lithgow won for his performance in “Giant,” a drama about the author Roald Dahl. Pink is hosting a celebration expected to be filled with nostalgic performances.`\
+https://www.nytimes.com/live/2026/06/07/theater/tony-awards-2026
+
 **A Landmark Tonys Win for the Trans Costume Designer Qween Jean**\
 `Qween Jean won for “Cats: The Jellicle Ball,” becoming the first openly transgender person to win a Tony Award, according to a “Cats” publicist.`\
 https://www.nytimes.com/2026/06/07/theater/qween-jean-transgender-costume-design.html
