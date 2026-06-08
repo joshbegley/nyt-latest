@@ -1,3 +1,11 @@
+**Who Is Ahead in Maine's 1st Congressional District?**\
+`Track the latest polls in Maine's 1st Congressional District.`\
+https://www.nytimes.com/interactive/polls/maine-us-house-1-polls-2026.html
+
+**Meta Says Israeli Spyware Firm NSO Group Targeted WhatsApp Users Again**\
+`The uncovered hacking attempts on the messaging service were linked to NSO Group and may violate a federal court prohibition against the firm.`\
+https://www.nytimes.com/2026/06/08/us/politics/whatsapp-nso-group-phishing.html
+
 **La mujer colombiana deportada a Congo-Kinsasa podría permanecer allí**\
 `En mayo, el juez había dictaminado que la mujer fue deportada indebidamente. Ahora, nuevas pruebas lo llevaron a revocar su decisión.`\
 https://www.nytimes.com/es/2026/06/08/espanol/mundo/colombiana-deportada-congo.html

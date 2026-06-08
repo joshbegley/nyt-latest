@@ -1,3 +1,15 @@
+**Trump Casts Doubt on California Elections. What’s Taking So Long?**\
+`Other states with mail-in ballots manage to count much more quickly, opening California to conspiracy theories and accusations of election fraud.`\
+https://www.nytimes.com/2026/06/08/us/california-elections-trump-slow-why.html
+
+**Prosecutors Won’t Seek Death Penalty in Killing of Melissa Hortman and Husband**\
+`The Justice Department said it likely did not have legal grounds for capital punishment in the case of a man accused of killing Melissa Hortman, a Minnesota legislator, and her husband.`\
+https://www.nytimes.com/2026/06/08/us/vance-boelter-death-penalty-minnesota-hortman.html
+
+**Judge Throws Out Policy Imposing $100,000 Fees for Skilled Worker Visas**\
+`The ruling voided “in its entirety” a policy from September requiring companies to pay $100,000 fees for H1-B visa petitions.`\
+https://www.nytimes.com/2026/06/08/us/politics/judge-visa-skilled-workers-fee-trump.html
+
 **Who Is Ahead in Maine's 1st Congressional District?**\
 `Track the latest polls in Maine's 1st Congressional District.`\
 https://www.nytimes.com/interactive/polls/maine-us-house-1-polls-2026.html
@@ -177,18 +189,6 @@ https://www.nytimes.com/video/embedded/admin/100000010952007/08vid-iran-israel-e
 **What to Know About Mahshahr, the Iranian Petrochemical Complex That Israel Targeted**\
 `The facility makes materials that Iran says are for civilian uses, but that Israel argues are also deployed in military applications.`\
 https://www.nytimes.com/2026/06/08/world/middleeast/what-is-iran-mahshahr-petrochemical-plant.html
-
-**The 15-Hour Fight With Iran Showed the Bind Israel Is In**\
-`As it braces for a possible U.S.-Iranian peace deal, Israel now knows that if it responds forcefully to attacks by Hezbollah, Iran may strike Israel with missiles.`\
-https://www.nytimes.com/2026/06/08/world/middleeast/israel-netanyahu-iran-trump-lebanon.html
-
-**The Costs of War**\
-`We look at how Israeli trade restrictions and shadowy profiteers have driven up the prices of nearly everything in Gaza.`\
-https://www.nytimes.com/2026/06/08/briefing/the-costs-of-war-in-gaza.html
-
-**Iran and Israel Exchange First Strikes Since Cease-Fire, and Texas Ranchers Sound the Alarm**\
-`Plus, the fight over the fight on the White House lawn.`\
-https://www.nytimes.com/2026/06/08/podcasts/the-headlines/iran-israel-exchange-first-strikes-since-cease-fire-texas-ranchers-screwworm.html
 
 **Live Updates: Iran and Israel Pull Back After Exchange of Strikes**\
 `Prime Minister Benjamin Netanyahu said Israel’s “fire is on hold” after a phone call with President Trump. Iran also said it would cease its attacks but, like Israel, warned it was ready to resume at any time.`\
