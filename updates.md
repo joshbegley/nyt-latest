@@ -1,3 +1,43 @@
+**Una demanda busca impedir el evento de la UFC en la Casa Blanca**\
+`Una demanda federal alega que el evento, fijado para el 14 de junio, día del cumpleaños del presidente Trump, fue planeado ilegalmente y diseñado para beneficiarlo a él y a sus aliados.`\
+https://www.nytimes.com/es/2026/06/08/espanol/estados-unidos/trump-ufc-casa-blanca-demanda.html
+
+**Iran and Israel Pull Back, After Fierce Exchange of Attacks**\
+`The conflict between Israel and Hezbollah, an Iranian-backed militia, is complicating efforts to end the war in Iran.`\
+https://www.nytimes.com/2026/06/08/world/middleeast/iran-israel-strikes-ceasefire-hezbollah.html
+
+**Kim Jong-un’s Triumph**\
+`He leveraged the war in Ukraine to become North Korea’s most powerful leader to date.`\
+https://www.nytimes.com/2026/06/08/world/kim-jong-un-north-korea-china.html
+
+**Maximalism Is Back at the Tonys**\
+`Our chief theater critic, Helen Shaw, shares her highlights of the Tony Awards on Sunday in New York City.`\
+https://www.nytimes.com/video/theater/100000010943591/tony-tonys-awards-theater-musical-broadway.html
+
+**Who Is Ahead in New York's 15th Congressional District?**\
+`Track the latest polls in New York's 15th Congressional District.`\
+https://www.nytimes.com/interactive/polls/new-york-us-house-15-polls-2026.html
+
+**The SpaceX I.P.O. Shows Us What’s Wrong With Our Stock Market**\
+`The SpaceX I.P.O. proves the stock market has become a hype machine.`\
+https://www.nytimes.com/2026/06/08/opinion/spacex-ipo-stock-market.html
+
+**A Timeline of Donald Trump and Lindsey Graham’s Relationship Before the South Carolina Primary**\
+`Once one of President Trump’s fiercest critics, the South Carolina senator has dramatically shifted his posture over the years. Will it pay off on Tuesday in his primary?`\
+https://www.nytimes.com/2026/06/08/us/politics/trump-graham-relationship-timeline-primary.html
+
+**Videos Show Chinese Businesses Hawking North Korean Labor**\
+`On social media, Chinese entrepreneurs are touting cheap labor across the border, as trade between the two countries regains momentum.`\
+https://www.nytimes.com/2026/06/08/world/asia/chinese-businesses-north-korea.html
+
+**Man Who Fatally Stabbed Gay Dancer Convicted of Hate Crime**\
+`Dmitriy Popov, 20, who killed O’Shae Sibley, 28, at a gas station in Brooklyn was found guilty of manslaughter as a hate crime, which carries a sentence of up to 25 years.`\
+https://www.nytimes.com/2026/06/08/nyregion/oshae-sibley-murder-hate-crime.html
+
+**Apple Reveals New A.I.-Powered Version of Its Siri Digital Assistant**\
+`The iPhone maker revealed its new artificial intelligence products at its developer conference, the last with Tim Cook as chief executive.`\
+https://www.nytimes.com/2026/06/08/technology/apple-ai-siri.html
+
 **Man Who Fatally Stabbed Gay Dancer Convicted of Hate Crime Charge**\
 `Dmitriy Popov, 20, who killed O’Shae Sibley, 28, at a gas station in Brooklyn was found guilty of manslaughter as a hate crime, which carries a sentence of up to 25 years.`\
 https://www.nytimes.com/2026/06/08/nyregion/oshae-sibley-murder-hate-crime.html
