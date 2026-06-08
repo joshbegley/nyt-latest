@@ -1,4 +1,4 @@
-**What is Mahshahr, the Iranian Petrochemical Complex That Israel Targeted?**\
+**What to Know About Mahshahr, the Iranian Petrochemical Complex That Israel Targeted**\
 `The facility makes materials that Iran says are for civilian uses, but that Israel argues are also deployed in military applications.`\
 https://www.nytimes.com/2026/06/08/world/middleeast/what-is-iran-mahshahr-petrochemical-plant.html
 
