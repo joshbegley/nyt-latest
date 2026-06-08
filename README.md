@@ -11,7 +11,7 @@ https://www.nytimes.com/interactive/2026/06/08/weather/cristina-map-path-tracker
 https://www.nytimes.com/es/2026/06/08/espanol/mundo/guerra-iran-situacion.html
 
 **How Elon Musk’s Friendship With the F.C.C. Smooths the Way for SpaceX’s I.P.O.**\
-`Brendan Carr, the chairman of the Federal Communications Commission, has greenlit regulatory requests for the company’s Starlink satellite internet service and lavished praise on its chief executive.`\
+`Brendan Carr, the chairman of the Federal Communications Commission, has greenlighted regulatory requests for the company’s Starlink satellite internet service and lavished praise on its chief executive.`\
 https://www.nytimes.com/2026/06/08/technology/elon-musk-brendan-carr-fcc-spacex.html
 
 **U.S. Judge Reverses Decision on Colombian Woman Deported to Congo**\
