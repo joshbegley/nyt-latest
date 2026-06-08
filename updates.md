@@ -1,3 +1,19 @@
+**How Healthy Are Peas?**\
+`Don’t let childhood memories of mealtime standoffs turn you away from these nutritional powerhouses.`\
+https://www.nytimes.com/2026/06/08/well/eat/peas-health-benefits-recipes.html
+
+**The Iran War is Forcing Energy-Importing Countries to Turn Inward**\
+`The Iran war is pushing countries to prioritize domestic energy in order to protect themselves from volatile oil and natural gas markets.`\
+https://www.nytimes.com/2026/06/08/business/energy-environment/iran-war-energy-oil.html
+
+**Houthis Threaten to Widen Iran War by Blocking Israeli Shipping in Red Sea**\
+`The Yemeni militia group, which is backed by Iran, said it would impose a partial blockade in the waterway, a move that would further strangle supply routes and aggravate the conflict in the Mideast.`\
+https://www.nytimes.com/2026/06/08/world/middleeast/houthis-yemen-red-sea-israel-shipping.html
+
+**Live Updates: Iran and Israel Pull Back After Exchange of Strikes**\
+`Prime Minister Benjamin Netanyahu said Israel’s “fire is on hold” after a phone call with President Trump. Iran also said it would cease its attacks but, like Israel, warned it was ready to resume at any time.`\
+https://www.nytimes.com/live/2026/06/08/world/iran-israel-lebanon-attacks
+
 **Live Updates: New Yorkers Around the City Start the Party Ahead of Knicks Game**\
 `President Trump and Mayor Zohran Mamdani are expected to attend Game 3 of the N.B.A. finals against the San Antonio Spurs at a raucous, sold-out Madison Square Garden.`\
 https://www.nytimes.com/live/2026/06/08/nyregion/nba-finals-trump-knicks-spurs-mamdani
