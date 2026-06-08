@@ -1,3 +1,7 @@
+**El gobierno de Trump busca quitar la ciudadanía de EE. UU. a 17 migrantes**\
+`La campaña para remover la ciudadanía estadounidense a más migrantes es una nueva señal de que el gobierno se está enfocando en el sistema migratorio legal.`\
+https://www.nytimes.com/es/2026/06/08/espanol/estados-unidos/trump-quitar-ciudadania-migrantes.html
+
 **U.S. Denies Entry to World Cup Referee From Somalia**\
 `Omar Artan was one of 52 referees selected for the FIFA World Cup. But on Saturday he was denied entry because of “vetting concerns,” U.S. officials said.`\
 https://www.nytimes.com/2026/06/08/world/africa/somalian-world-cup-referee-denied-us-entry.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/08/theater/readers-tony-awards-voting.html
 **Who Is Ahead in Connecticut's 1st Congressional District?**\
 `Track the latest polls in Connecticut's 1st Congressional District.`\
 https://www.nytimes.com/interactive/polls/connecticut-us-house-1-polls-2026.html
-
-**China Reasserts Itself, to Contain North Korea’s Tilt Toward Russia**\
-`On a rare visit to North Korea, China’s leader, Xi Jinping, projected unity but also sought to remind Kim Jong-un that he is the senior partner in their alliance.`\
-https://www.nytimes.com/2026/06/08/world/asia/xi-kim-china-north-korea-summit.html
 

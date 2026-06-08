@@ -1,4 +1,12 @@
-**OpenAI Files to Go Public as A.I. Companies Rush to Wall St.**\
+**U.S. Denies Entry to World Cup Referee From Somalia**\
+`Omar Artan was one of 52 referees selected for the FIFA World Cup. But on Saturday he was denied entry because of “vetting concerns,” U.S. officials said.`\
+https://www.nytimes.com/2026/06/08/world/africa/somalian-world-cup-referee-denied-us-entry.html
+
+**Iran and Israel Pull Back**\
+`Also, the N.B.A. finals arrives in New York. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/06/08/briefing/iran-israel-strikes-todd-blanche.html
+
+**OpenAI Files Confidentially for IPO as AI Companies Rush to Wall St.**\
 `The company hopes to raise billions in a highly anticipated public offering that could unlock a new generation of tech industry wealth.`\
 https://www.nytimes.com/2026/06/08/technology/openai-ipo.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/interactive/polls/connecticut-us-house-1-polls-2026.html
 **China Reasserts Itself, to Contain North Korea’s Tilt Toward Russia**\
 `On a rare visit to North Korea, China’s leader, Xi Jinping, projected unity but also sought to remind Kim Jong-un that he is the senior partner in their alliance.`\
 https://www.nytimes.com/2026/06/08/world/asia/xi-kim-china-north-korea-summit.html
-
-**On Broadway’s Biggest Night, ‘Saturday Night Live’ Shows Its Strength**\
-`The long-running sketch comedy show proved its power during the Tony Awards on Sunday, with Lorne Michaels and several former stars grabbing the spotlight.`\
-https://www.nytimes.com/2026/06/08/theater/tony-awards-saturday-night-live.html
-
-**Heat Wave Forecast: Where Records Could Fall in the US This Week**\
-`Temperatures up to 20 degrees above normal will spread across much of the country, forecasters said.`\
-https://www.nytimes.com/2026/06/08/weather/heat-forecast-us.html
 

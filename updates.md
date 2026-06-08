@@ -1,3 +1,15 @@
+**U.S. Denies Entry to World Cup Referee From Somalia**\
+`Omar Artan was one of 52 referees selected for the FIFA World Cup. But on Saturday he was denied entry because of “vetting concerns,” U.S. officials said.`\
+https://www.nytimes.com/2026/06/08/world/africa/somalian-world-cup-referee-denied-us-entry.html
+
+**Iran and Israel Pull Back**\
+`Also, the N.B.A. finals arrives in New York. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/06/08/briefing/iran-israel-strikes-todd-blanche.html
+
+**OpenAI Files Confidentially for IPO as AI Companies Rush to Wall St.**\
+`The company hopes to raise billions in a highly anticipated public offering that could unlock a new generation of tech industry wealth.`\
+https://www.nytimes.com/2026/06/08/technology/openai-ipo.html
+
 **OpenAI Files to Go Public as A.I. Companies Rush to Wall St.**\
 `The company hopes to raise billions in a highly anticipated public offering that could unlock a new generation of tech industry wealth.`\
 https://www.nytimes.com/2026/06/08/technology/openai-ipo.html
