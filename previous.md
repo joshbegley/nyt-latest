@@ -1,3 +1,7 @@
+**Pentagon Again Revises Religious Categories for Troops**\
+`The Defense Department made the change after lawmakers objected to its original list, which did not include the Latter-day Saints among traditions labeled Christian.`\
+https://www.nytimes.com/2026/06/08/us/pentagon-religious-list-troops.html
+
 **Trump Wants to Call the Shots. But in Iran, He Keeps Hitting His Limits.**\
 `President Trump is grappling with his own version of the sort of Middle East crisis that beset his predecessors, and that he promised to avoid.`\
 https://www.nytimes.com/2026/06/08/us/politics/trump-iran-war-middle-east.html
@@ -15,7 +19,7 @@ https://www.nytimes.com/es/2026/06/08/espanol/estados-unidos/trump-quitar-ciudad
 https://www.nytimes.com/2026/06/08/world/africa/somalian-world-cup-referee-denied-us-entry.html
 
 **Iran and Israel Pull Back**\
-`Also, the N.B.A. finals arrives in New York. Here’s the latest at the end of Monday.`\
+`Also, the N.B.A. finals arrive in New York. Here’s the latest at the end of Monday.`\
 https://www.nytimes.com/2026/06/08/briefing/iran-israel-strikes-todd-blanche.html
 
 **OpenAI Files Confidentially for IPO as AI Companies Rush to Wall St.**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/08/nyregion/nba-finals-msg-trump-knicks-mamdani-
 **They Spent Years on a Math Problem. Then They Were Scooped by A.I.**\
 `Artificial intelligence is mastering the kinds of projects that have long helped to build the careers of young mathematicians. What does that mean for their future?`\
 https://www.nytimes.com/2026/06/08/science/ai-scoop-young-mathematicians.html
-
-**Iran-Israel Escalation Ignited in Lebanon, Which Is Trapped in Their Conflict**\
-`The power struggle between Iran and Israel to define the new rules of the Middle East plays out in Lebanon, which the other two countries have used to pursue their own ends.`\
-https://www.nytimes.com/2026/06/08/world/middleeast/lebanon-israel-iran.html
 

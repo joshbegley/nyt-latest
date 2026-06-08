@@ -1,3 +1,11 @@
+**Pentagon Again Revises Religious Categories for Troops**\
+`The Defense Department made the change after lawmakers objected to its original list, which did not include the Latter-day Saints among traditions labeled Christian.`\
+https://www.nytimes.com/2026/06/08/us/pentagon-religious-list-troops.html
+
+**Iran and Israel Pull Back**\
+`Also, the N.B.A. finals arrive in New York. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/06/08/briefing/iran-israel-strikes-todd-blanche.html
+
 **Trump Wants to Call the Shots. But in Iran, He Keeps Hitting His Limits.**\
 `President Trump is grappling with his own version of the sort of Middle East crisis that beset his predecessors, and that he promised to avoid.`\
 https://www.nytimes.com/2026/06/08/us/politics/trump-iran-war-middle-east.html
