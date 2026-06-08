@@ -1,3 +1,7 @@
+**Trump Visit Closes Blocks Around MSG: What to Know About Security at the Knicks Game**\
+`With President Trump and Mayor Zohran Mamdani set to attend Monday night’s Knicks game at Madison Square Garden, there will be strict security in Midtown Manhattan.`\
+https://www.nytimes.com/2026/06/08/nyregion/nba-finals-msg-trump-knicks-mamdani-security.html
+
 **They Spent Years on a Math Problem. Then They Were Scooped by A.I.**\
 `Artificial intelligence is mastering the kinds of projects that have long helped to build the careers of young mathematicians. What does that mean for their future?`\
 https://www.nytimes.com/2026/06/08/science/ai-scoop-young-mathematicians.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/08/arts/design/frida-kahlo-diego-rivera.html
 **Best and Worst Moments From the 2026 Tony Awards: Pink, Maya Rudolph, Cole Escola, ‘Cats’**\
 `Pink brought sincerity and high energy as the host, musical numbers by “Cats,” “Ragtime” and “Chicago” popped, and Maya Rudolph and Cole Escola mined comic gold.`\
 https://www.nytimes.com/2026/06/08/theater/best-worst-tony-awards.html
-
-**The New York Hip-Hop Soundtracking the Knicks’ Run to the N.B.A. Finals**\
-`From old-school stars to young upstarts, the birthplace of hip-hop is basking in the big moment.`\
-https://www.nytimes.com/2026/06/08/arts/music/knicks-hip-hop-anthems.html
 
 **Live Updates: Iran and Israel Pull Back After Exchange of Attacks**\
 `Iran signaled that it had concluded its latest strikes against Israel. Prime Minister Benjamin Netanyahu refrained from another attack under pressure from President Trump, a U.S. and two Israeli officials said.`\
