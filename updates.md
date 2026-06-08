@@ -1,3 +1,11 @@
+**How Elon Musk’s Friendship With the F.C.C. Smooths the Way for SpaceX’s I.P.O.**\
+`Brendan Carr, the chairman of the Federal Communications Commission, has greenlit regulatory requests for the company’s Starlink satellite internet service and lavished praise on its chief executive.`\
+https://www.nytimes.com/2026/06/08/technology/elon-musk-brendan-carr-fcc-spacex.html
+
+**Why Iran Risked an Attack on Israel**\
+`Iran’s leaders want to show they are serious about defending their Hezbollah allies in Lebanon and maintaining the regional balance of power, analysts say.`\
+https://www.nytimes.com/2026/06/08/world/middleeast/israel-iran-strikes-regional-gains.html
+
 **Deported Colombian Woman Can Remain in Congo, U.S. Judge Rules**\
 `The judge had previously ruled that the woman had been improperly deported by the Trump administration and had ordered her returned to the United States.`\
 https://www.nytimes.com/2026/06/08/world/africa/trump-deportation-us-judge-congo-colombia.html

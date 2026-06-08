@@ -1,3 +1,7 @@
+**Los iraníes sufren la destrucción de meses de guerra y el aumento de precios**\
+`La implosión de la economía está causando desesperanza tanto entre los iraníes que apoyan al gobierno como entre los que se le oponen.`\
+https://www.nytimes.com/es/2026/06/08/espanol/mundo/guerra-iran-situacion.html
+
 **How Elon Musk’s Friendship With the F.C.C. Smooths the Way for SpaceX’s I.P.O.**\
 `Brendan Carr, the chairman of the Federal Communications Commission, has greenlit regulatory requests for the company’s Starlink satellite internet service and lavished praise on its chief executive.`\
 https://www.nytimes.com/2026/06/08/technology/elon-musk-brendan-carr-fcc-spacex.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/es/2026/06/08/espanol/america-latina/camisetas-mexico-ad
 **Why We May Need More Military Veterans in Congress**\
 `There’s an argument for candidates who’ve served in the military.`\
 https://www.nytimes.com/2026/06/08/opinion/veterans-politics.html
-
-**Book Review: ‘Trash!: A Garbageman’s Story,’ by Simon Paré-Poupart**\
-`In his memoir, Simon Paré-Poupart recounts the highs and lows of hauling trash for more than 20 years.`\
-https://www.nytimes.com/2026/06/08/books/review/simon-pare-poupart-trash-garbagemans-story.html
 
 **Live Updates: Iran and Israel Pull Back After Exchange of Attacks**\
 `Iran signaled that it had concluded its latest strikes against Israel. Prime Minister Benjamin Netanyahu refrained from another attack under pressure from President Trump, a U.S. and two Israeli officials said.`\

@@ -1,3 +1,7 @@
+**How Elon Musk’s Friendship With the F.C.C. Smooths the Way for SpaceX’s I.P.O.**\
+`Brendan Carr, the chairman of the Federal Communications Commission, has greenlit regulatory requests for the company’s Starlink satellite internet service and lavished praise on its chief executive.`\
+https://www.nytimes.com/2026/06/08/technology/elon-musk-brendan-carr-fcc-spacex.html
+
 **Deported Colombian Woman Can Remain in Congo, U.S. Judge Rules**\
 `The judge had previously ruled that the woman had been improperly deported by the Trump administration and had ordered her returned to the United States.`\
 https://www.nytimes.com/2026/06/08/world/africa/trump-deportation-us-judge-congo-colombia.html
@@ -135,7 +139,7 @@ https://www.nytimes.com/interactive/2026/06/08/weather/storm-boris-tracker.html
 https://www.nytimes.com/2026/06/08/business/dealbook/trump-ai-stakes.html
 
 **Why Iran Risked an Attack on Israel**\
-`For Tehran, retaliating for strikes against Hezbollah in Lebanon shows that it will stand by its regional allies and block attempts to shift the regional balance of power.`\
+`Iran’s leaders want to show they are serious about defending their Hezbollah allies in Lebanon and maintaining the regional balance of power, analysts say.`\
 https://www.nytimes.com/2026/06/08/world/middleeast/israel-iran-strikes-regional-gains.html
 
 ****\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/08/opinion/veterans-politics.html
 **Book Review: ‘Trash!: A Garbageman’s Story,’ by Simon Paré-Poupart**\
 `In his memoir, Simon Paré-Poupart recounts the highs and lows of hauling trash for more than 20 years.`\
 https://www.nytimes.com/2026/06/08/books/review/simon-pare-poupart-trash-garbagemans-story.html
-
-**How a Family of 4 (and One Kid in College) Live on $85,000 a Year in the Bronx**\
-`The Suarez family has been facing New York City’s rising costs while dealing with the physical, mental and financial expenses of a major surgery.`\
-https://www.nytimes.com/interactive/2026/06/08/nyregion/nyc-budgeting-affordability-suarez.html
 
 **Live Updates: Iran and Israel Pull Back After Exchange of Attacks**\
 `Iran signaled that it had concluded its latest strikes against Israel. Prime Minister Benjamin Netanyahu refrained from another attack under pressure from President Trump, a U.S. and two Israeli officials said.`\
