@@ -1,3 +1,7 @@
+**‘Death of a Salesman’ Wins the Tony for Best Revival of a Play**\
+`Arthur Miller’s classic won the same award in 1984, 1999 and 2012.`\
+https://www.nytimes.com/2026/06/07/theater/death-of-a-salesman-revival-play.html
+
 **Tony Awards 2026 Live Updates: ‘Death of a Salesman’ Wins Best Play Revival, Extending Big Night**\
 `“Death of a Salesman” is leading with six prizes. “Ragtime” won best musical revival, while John Lithgow, Laurie Metcalf and Lesley Manville are among the winners.`\
 https://www.nytimes.com/live/2026/06/07/theater/tony-awards-2026
