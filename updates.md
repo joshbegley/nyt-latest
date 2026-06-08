@@ -1,3 +1,15 @@
+**Trump Casts Doubt on California Elections. What’s Taking So Long?**\
+`Other states with mail-in ballots manage to count much more quickly, opening California to conspiracy theories and accusations of election fraud.`\
+https://www.nytimes.com/2026/06/08/us/california-elections-trump-slow-why.html
+
+**Prosecutors Won’t Seek Death Penalty in Killing of Melissa Hortman and Husband**\
+`The Justice Department said it likely did not have legal grounds for capital punishment in the case of a man accused of killing Melissa Hortman, a Minnesota legislator, and her husband.`\
+https://www.nytimes.com/2026/06/08/us/vance-boelter-death-penalty-minnesota-hortman.html
+
+**Judge Throws Out Policy Imposing $100,000 Fees for Skilled Worker Visas**\
+`The ruling voided “in its entirety” a policy from September requiring companies to pay $100,000 fees for H1-B visa petitions.`\
+https://www.nytimes.com/2026/06/08/us/politics/judge-visa-skilled-workers-fee-trump.html
+
 **Who Is Ahead in Maine's 1st Congressional District?**\
 `Track the latest polls in Maine's 1st Congressional District.`\
 https://www.nytimes.com/interactive/polls/maine-us-house-1-polls-2026.html
