@@ -1,4 +1,4 @@
-**After Saying See You Later to Louisiana Police, Man Attacked by Alligator**\
+**After Saying See You Later to Louisiana Police, Man Is Attacked by Alligator**\
 `The driver, who was charged with driving while impaired, suffered non-life-threatening injuries, authorities said.`\
 https://www.nytimes.com/2026/06/09/us/man-attacked-alligator-louisiana.html
 
@@ -189,8 +189,4 @@ https://www.nytimes.com/2026/06/09/realestate/paris-pied-a-terre-saint-germain-d
 **Drones Stray Into Neighboring Countries as Russia and Ukraine Battle**\
 `Drones launched by both Russia and Ukraine are veering off course, menacing countries that are not at war and driving their citizens to seek shelter.`\
 https://www.nytimes.com/2026/06/09/world/europe/russia-ukraine-drones-nato-lithuania-romania.html
-
-**A Gabled Penthouse Atop the Dakota Is on the Market for $8 Million**\
-`The Upper West Side duplex was the longtime home of the art experts Stephen and Polly Rubin and is being sold by their estate.`\
-https://www.nytimes.com/2026/06/09/realestate/the-dakota-penthouse-stephen-polly-rubin.html
 
