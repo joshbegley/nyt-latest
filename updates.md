@@ -1,3 +1,7 @@
+**See the Famous Faces at the Knicks Game at Madison Square Garden**\
+`Here’s a look at some of the most prominent figures that attended Game 3 of the N.B.A. finals at Madison Square Garden.`\
+https://www.nytimes.com/interactive/2026/06/08/nyregion/nba-finals-knicks-celebrities-attendees.html
+
 **San Francisco Voters Appear to Reject Tax Hike on Highly Paid C.E.O.s**\
 `The proposal was seen as a possible measure of how residents felt about the recent flood of money into the city as a result of the A.I. boom.`\
 https://www.nytimes.com/2026/06/08/us/politics/san-francisco-tax-proposition-d.html
