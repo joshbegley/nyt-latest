@@ -1,3 +1,7 @@
+**Who Is Ahead in Florida's 28th Congressional District?**\
+`Track the latest polls in Florida's 28th Congressional District.`\
+https://www.nytimes.com/interactive/polls/florida-us-house-28-polls-2026.html
+
 **Who Is Ahead in Florida's 27th Congressional District?**\
 `Track the latest polls in Florida's 27th Congressional District.`\
 https://www.nytimes.com/interactive/polls/florida-us-house-27-polls-2026.html

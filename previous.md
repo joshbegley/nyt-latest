@@ -1,3 +1,7 @@
+**Who Is Ahead in Florida's 28th Congressional District?**\
+`Track the latest polls in Florida's 28th Congressional District.`\
+https://www.nytimes.com/interactive/polls/florida-us-house-28-polls-2026.html
+
 **Who Is Ahead in Florida's 27th Congressional District?**\
 `Track the latest polls in Florida's 27th Congressional District.`\
 https://www.nytimes.com/interactive/polls/florida-us-house-27-polls-2026.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/09/books/review/ben-fountain-rasputin-swims-the-
 **Book Review: ‘Red Sheet,’ by James Ellroy**\
 `Set in 1962 Los Angeles, “Red Sheet” follows the murder and mayhem behind a “mini Red Scare.”`\
 https://www.nytimes.com/2026/06/09/books/review/james-ellroy-red-sheet.html
-
-**Xi Jinping Makes Rare Trip to North Korea to Court Kim Jong-Un**\
-`North Korean and Chinese state media footage showed China’s leader, Xi Jinping, arriving in Pyongyang, North Korea, for a summit with his counterpart, Kim Jong-un. The visit aimed to strengthen ties between the two nations.`\
-https://www.nytimes.com/video/world/asia/100000010954313/xi-north-korea-visit.html
 
