@@ -1,3 +1,7 @@
+**Maine Senate Polls Point to a Competitive General Election**\
+`Graham Platner is expected to win handily in the Democratic primary for Senate in Maine. The focus is shifting to how he might do in November.`\
+https://www.nytimes.com/2026/06/09/us/elections/maine-senate-polls-competitive-general.html
+
 **In Maine’s Primaries for Governor, Polling Is Sparse**\
 `The Democratic primary for governor is particularly competitive, but polls show that both party’s primaries could come down to ranked-choice voting.`\
 https://www.nytimes.com/2026/06/09/polls/maine-governor-primary-polls.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-us-
 **South Carolina Comptroller General Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 South Carolina primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-comptroller-general-primary.html
-
-**South Carolina Treasurer Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 South Carolina primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-treasurer-primary.html
 
