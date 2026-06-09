@@ -1,3 +1,11 @@
+**Alcohol’s Health Risks Accelerate After One Drink a Day, Study Finds**\
+`The alcohol industry has criticized the research, which found that even light drinking increases the risk of premature death.`\
+https://www.nytimes.com/2026/06/09/well/alcohol-health-risks-study.html
+
+**Europe Needs to Come Together. This Man Has Some Ideas.**\
+`Luuk van Middelaar, a Dutch scholar, is emerging as the continent’s master strategist.`\
+https://www.nytimes.com/2026/06/09/opinion/europe-defense-van-middelaar.html
+
 **Trump Booed at Game 3 of N.B.A. Finals**\
 `Fans at Madison Square Garden and watch parties around New York City booed when President Trump was shown attending Game 3 of the N.B.A. finals on Monday.`\
 https://www.nytimes.com/video/sports/100000010954269/trump-booed-knicks-msg-nba-finals.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/08/world/middleeast/iran-israel-strikes-ceasefir
 **Kim Jong-un’s Triumph**\
 `He leveraged the war in Ukraine to become North Korea’s most powerful leader to date.`\
 https://www.nytimes.com/2026/06/08/world/kim-jong-un-north-korea-china.html
-
-**Maximalism Is Back at the Tonys**\
-`Our chief theater critic, Helen Shaw, shares her highlights of the Tony Awards on Sunday in New York City.`\
-https://www.nytimes.com/video/theater/100000010943591/tony-tonys-awards-theater-musical-broadway.html
-
-**Who Is Ahead in New York's 15th Congressional District?**\
-`Track the latest polls in New York's 15th Congressional District.`\
-https://www.nytimes.com/interactive/polls/new-york-us-house-15-polls-2026.html
 
 **Knicks Fans Bring Swagger and Nerves to Key Playoff Game**\
 `Madison Square Garden was a cauldron of noise for Game 3 of the N.B.A. finals. New York Knicks fans greeted President Trump with a round of booing.`\

@@ -1,3 +1,11 @@
+**Alcohol’s Health Risks Accelerate After One Drink a Day, Study Finds**\
+`The alcohol industry has criticized the research, which found that even light drinking increases the risk of premature death.`\
+https://www.nytimes.com/2026/06/09/well/alcohol-health-risks-study.html
+
+**Europe Needs to Come Together. This Man Has Some Ideas.**\
+`Luuk van Middelaar, a Dutch scholar, is emerging as the continent’s master strategist.`\
+https://www.nytimes.com/2026/06/09/opinion/europe-defense-van-middelaar.html
+
 **Trump Booed at Game 3 of N.B.A. Finals**\
 `Fans at Madison Square Garden and watch parties around New York City booed when President Trump was shown attending Game 3 of the N.B.A. finals on Monday.`\
 https://www.nytimes.com/video/sports/100000010954269/trump-booed-knicks-msg-nba-finals.html
