@@ -1,3 +1,19 @@
+**For Nearly 150 Years, Parking Has Driven New Yorkers to the Brink**\
+`From court cases to political scandals to murder, the city has long been racked with conflict over what to do with cars when they’re not being driven.`\
+https://www.nytimes.com/interactive/2026/06/09/nyregion/nyc-parking-cars-history.html
+
+**This Parking Spot is Free. Should It Be?**\
+`There are about three million parking spaces in New York City, but drivers are always struggling to find one that’s open. Can the system be fixed?`\
+https://www.nytimes.com/interactive/2026/06/09/nyregion/nyc-street-parking.html
+
+**Tensions Flare in the Middle East as Cease-Fire Falters**\
+`President Trump blamed Iran for shooting down a U.S. helicopter over the Strait of Hormuz and vowed to retaliate, while Israel launched a new wave of strikes on southern Lebanon on Tuesday.`\
+https://www.nytimes.com/video/world/middleeast/100000010954773/lebanon-israeli-strikes-trump-iran-helicopter.html
+
+**Trump Blames Iran for Downing of U.S. Helicopter and Vows to Retaliate**\
+`The threat of further U.S. attacks on Iran came as Israeli forces pounded southern Lebanon while targeting Hezbollah.`\
+https://www.nytimes.com/2026/06/09/world/middleeast/trump-iran-us-military-helicopter.html
+
 **A.I. Politics**\
 `Much of the discussion about artificial intelligence focuses on economic disruption. But it could reshape political life, too.`\
 https://www.nytimes.com/2026/06/09/world/ai-politics-iran-world-cup.html

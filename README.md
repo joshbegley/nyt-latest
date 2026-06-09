@@ -1,3 +1,11 @@
+**Blanche Was Once Seen as Tempering Trump’s Tactics. Now He’s All In.**\
+`The ascendancy of Todd Blanche shows how the practices that were initially deemed out of bounds even in President Trump’s Justice Department seem to be the order of the day.`\
+https://www.nytimes.com/2026/06/09/us/politics/blanche-trump-justice-department-retribution.html
+
+**F.D.A. Clears Sunscreen Ingredient Long Used in Europe and Asia**\
+`Dermatologists say bemotrizinol offers advantages over other compounds in sunscreens currently on the market.`\
+https://www.nytimes.com/2026/06/09/well/fda-sunscreen-bemotrizinol-approval.html
+
 **For Nearly 150 Years, Parking Has Driven New Yorkers to the Brink**\
 `From court cases to political scandals to murder, the city has long been racked with conflict over what to do with cars when they’re not being driven.`\
 https://www.nytimes.com/interactive/2026/06/09/nyregion/nyc-parking-cars-history.html
@@ -20,7 +28,7 @@ https://www.nytimes.com/2026/06/09/world/ai-politics-iran-world-cup.html
 
 **NASA Announces Artemis III Crew**\
 `NASA announced the crew of Artemis III mission, which will fly to low-Earth orbit to test rendezvous and docking maneuvers with one or two lunar landers.`\
-https://www.nytimes.com/video/science/space/100000010955125/nasa-announces-artemis-iii-crew.html
+https://www.nytimes.com/video/science/space/100000010955125/nasa-artemis-iii-astronauts.html
 
 **Are You Traveling to the U.S. for the 2026 World Cup? We’d Like to Hear From You.**\
 `Tell us about your experience buying tickets, finding a place to stay, making travel arrangements and, if you’re coming to the U.S., dealing with entry requirements.`\
@@ -185,10 +193,6 @@ https://www.nytimes.com/2026/06/09/us/politics/nevada-second-district-primary-ma
 **Teen Who Killed Competitor at Texas Track Meet Is Found Guilty of Murder**\
 `Karmelo Anthony, 19, was convicted of murder for the killing of Austin Metcalf, another student, at a high school sporting event last year in a case that drew national attention.`\
 https://www.nytimes.com/2026/06/09/us/karmelo-anthony-murder-verdict-guilty.html
-
-**Para este árbitro somalí, el Mundial terminó cuando EE. UU. le negó la entrada**\
-`“Tenía los papeles en regla y todo”, dijo Omar Abdulkadir Artan en su primera entrevista desde que fue enviado de regreso. Habría sido el primer somalí en arbitrar un partido del torneo.`\
-https://www.nytimes.com/es/2026/06/09/espanol/deportes/somalia-arbitro-entrevista-exclusiva.html
 
 **Election Live Updates: Maine Primary Takes Center Stage in Fight for Senate Control**\
 `Graham Platner is widely expected to win the Democratic primary in Maine, setting the stage for a closely watched race against Susan Collins. Primaries are also underway in South Carolina, Nevada and North Dakota.`\
