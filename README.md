@@ -1,3 +1,7 @@
+**Wemby and the Spurs Bounce Back to Win Game 3**\
+`How did the San Antonio Spurs pull it off?`\
+https://www.nytimes.com/2026/06/09/podcasts/wembanyama-spurs-knicks-game-3-nba-finals.html
+
 **Spurs Beat Knicks, Quieting New York City Crowds**\
 `Fans, celebrities and President Trump gathered at Madison Square Garden in New York City to cheer on the Knicks, who lost Game 3 of the N.B.A. finals to the San Antonio Spurs.`\
 https://www.nytimes.com/video/nyregion/100000010954297/knicks-nba-finals-new-york.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/08/us/politics/maine-south-carolina-primaries.ht
 **How Will I.P.O.s From A.I. Companies Affect the Average Person?**\
 `On the “Hard Fork” podcast, the hosts Casey Newton and Kevin Roose discuss the pros and cons of I.P.O.s by large tech companies.`\
 https://www.nytimes.com/video/podcasts/100000010953710/how-will-ipos-from-ai-companies-affect-the-average-person.html
-
-**Pentagon Again Revises Religious Categories for Troops**\
-`The Defense Department made the change after lawmakers objected to its original list, which did not include the Latter-day Saints among traditions labeled Christian.`\
-https://www.nytimes.com/2026/06/08/us/pentagon-religious-list-troops.html
 
 **Knicks Fans Bring Swagger and Nerves to Key Playoff Game**\
 `Madison Square Garden was a cauldron of noise for Game 3 of the N.B.A. finals. New York Knicks fans greeted President Trump with a round of booing.`\
