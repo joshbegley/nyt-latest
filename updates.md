@@ -1,3 +1,11 @@
+**Israel Strikes Lebanese City of Tyre as New Cease-Fire Falters**\
+`The bombardment followed Israeli evacuation warnings for the entire city, and came a day after Iran said it would attack Israel if it kept up its offensive in southern Lebanon.`\
+https://www.nytimes.com/2026/06/09/world/middleeast/israel-lebanon-strikes-tyre-ceasefire.html
+
+**Behind the Pageantry in Pyongyang With Xi and Kim**\
+`Xi Jinping and Kim Jong-un projected unity and deeper ties this week, but the dynamic between China and North Korea has evolved considerably.`\
+https://www.nytimes.com/interactive/2026/06/09/world/asia/north-korea-china-xi-kim-summit.html
+
 **OpenAI Tests Investor Appetite for Yet Another Giant I.P.O.**\
 `Some analysts are wondering whether the market can absorb the artificial intelligence giant’s planned stock offering — along with those of SpaceX and Anthropic.`\
 https://www.nytimes.com/2026/06/09/business/dealbook/openai-ipo-spacex-anthropic.html

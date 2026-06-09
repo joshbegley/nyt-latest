@@ -4,7 +4,7 @@ https://www.nytimes.com/2026/06/09/business/dealbook/openai-ipo-spacex-anthropic
 
 **Israel Strikes Lebanese City of Tyre as New Cease-Fire Falters**\
 `The bombardment followed Israeli evacuation warnings for the entire city, and came a day after Iran said it would attack Israel if it kept up its offensive in southern Lebanon.`\
-https://www.nytimes.com/2026/06/09/world/middleeast/israel-strikes-lebanese-city-of-tyre-as-new-cease-fire-falters.html
+https://www.nytimes.com/2026/06/09/world/middleeast/israel-lebanon-strikes-tyre-ceasefire.html
 
 **Somali Referee Says His World Cup Dream Is Dashed After U.S. Denies Entry**\
 `“I had the right papers and everything,” Omar Abdulkadir Artan said in his first interview since he was turned back. He would have been the first Somali to referee a game in the tournament.`\
@@ -15,7 +15,7 @@ https://www.nytimes.com/2026/06/09/world/africa/somali-referee-world-cup-us-entr
 https://www.nytimes.com/2026/06/09/world/middleeast/netanyahus-trump-pressure-over-iran.html
 
 **Behind the Pageantry in Pyongyang With Xi and Kim**\
-`Xi Jinping and Kim Jong-un projected unity and deeper ties this week but the dynamic between China and North Korea has evolved considerably.`\
+`Xi Jinping and Kim Jong-un projected unity and deeper ties this week, but the dynamic between China and North Korea has evolved considerably.`\
 https://www.nytimes.com/interactive/2026/06/09/world/asia/north-korea-china-xi-kim-summit.html
 
 **Man Arrested in ‘Brutal’ Stabbing in Belfast, Police Say**\
