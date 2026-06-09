@@ -1,3 +1,7 @@
+**Netanyahu’s Bow to Trump’s Iran Pressure Spurs New Criticism**\
+`Opponents attacked Prime Minister Benjamin Netanyahu for halting strikes against Iran after a call with President Trump, saying that he was letting the United States make Israel’s decisions.`\
+https://www.nytimes.com/2026/06/09/world/middleeast/netanyahus-trump-pressure-over-iran.html
+
 **Behind the Pageantry in Pyongyang With Xi and Kim**\
 `Xi Jinping and Kim Jong-un projected unity and deeper ties this week but the dynamic between China and North Korea has evolved considerably.`\
 https://www.nytimes.com/interactive/2026/06/09/world/asia/north-korea-china-xi-kim-summit.html
