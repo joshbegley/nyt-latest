@@ -1,3 +1,15 @@
+**The Joy of Shopping in Los Angeles**\
+`Men, they’re not afraid to spend! Plus, have we hit Knicks merch overload?`\
+https://www.nytimes.com/2026/06/09/style/los-angeles-clothes-retail.html
+
+**Science Should Not Be Subject to Loyalty Tests**\
+`The proposed O.M.B. rules would ravage the world’s most productive scientific enterprise.`\
+https://www.nytimes.com/2026/06/09/opinion/science-federal-government-funding.html
+
+**171 Writing Prompts to Spark Discussion and Reflection**\
+`Here are all of our Student Opinion questions from the 2025-26 school year. Each question is based on a different New York Times article, interactive feature or video.`\
+https://www.nytimes.com/2026/06/09/learning/171-writing-prompts-to-spark-discussion-and-reflection.html
+
 **Aasif Mandvi Would Leave New York in a Blaze of Margaritas**\
 `The actor, playwright and former “Daily Show” correspondent takes on the Where to Eat questionnaire.`\
 https://www.nytimes.com/2026/06/09/dining/aasif-mandvi.html
