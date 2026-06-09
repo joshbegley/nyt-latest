@@ -1,3 +1,7 @@
+**Starlink’s Brilliant Marketing Strategy**\
+`The “Hard Fork” co-hosts Kevin Roose and Casey Newton discuss how recent United flights have caused them to change their minds about Starlink.`\
+https://www.nytimes.com/video/podcasts/100000010953918/starlinks-brilliant-marketing-strategy.html
+
 **I.C.C. Prosecutor Karim Khan Suspended Over Sexual Harassment Claims**\
 `Karim Khan, the chief prosecutor of the International Criminal Court, faced an accusation of sexual harassment.`\
 https://www.nytimes.com/2026/06/08/world/europe/karim-khan-icc-suspended.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/08/us/politics/whatsapp-nso-group-phishing.html
 **La mujer colombiana deportada a Congo-Kinsasa podría permanecer allí**\
 `En mayo, el juez había dictaminado que la mujer fue deportada indebidamente. Ahora, nuevas pruebas lo llevaron a revocar su decisión.`\
 https://www.nytimes.com/es/2026/06/08/espanol/mundo/colombiana-deportada-congo.html
-
-**Map: 6.1-Magnitude Earthquake Strikes in the Gulf of Mexico Near Cuba**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/06/08/world/americas/earthquake-tracker-cuba-gulf-mexico.html
 
