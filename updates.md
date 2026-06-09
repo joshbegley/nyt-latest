@@ -1,3 +1,15 @@
+**EE. UU. niega la entrada a un árbitro somalí del Mundial**\
+`Omar Artan fue uno de los 52 árbitros seleccionados para la Copa Mundial de la FIFA. Pero el sábado se le denegó la entrada por “preocupaciones de investigación de antecedentes”, dijeron funcionarios estadounidenses.`\
+https://www.nytimes.com/es/2026/06/08/espanol/estados-unidos/arbitro-somalia-mundial-entrada.html
+
+**As Screwworm Cases Mount, U.S. Officials Ramp Up Response**\
+`The parasitic, flesh-eating fly has now been confirmed in cows, goats and dogs.`\
+https://www.nytimes.com/2026/06/08/science/cattle-disease-screwworm.html
+
+**Live Updates: New Yorkers Hold Breath for Momentous Knicks Game**\
+`President Trump is attending Game 3 of the N.B.A. finals at Madison Square Garden, a game decades in the making for Knicks fans. Nervous but hopeful energy filled the city at watch parties big and small.`\
+https://www.nytimes.com/live/2026/06/08/nyregion/nba-finals-trump-knicks-spurs-mamdani
+
 **Timothée Chalamet, Cardi B and More Celebrities Are at Knicks-Spurs Finals Game 3**\
 `A long list of celebrities flocked to Madison Square Garden for Game 3 of the N.B.A. finals.`\
 https://www.nytimes.com/2026/06/08/nyregion/celebrities-knicks-finals-game-3.html
