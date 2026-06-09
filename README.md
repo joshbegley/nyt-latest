@@ -1,3 +1,7 @@
+**As Screwworm Cases Mount, U.S. Officials Ramp Up Response**\
+`The parasitic, flesh-eating fly has now been confirmed in cows, goats and dogs.`\
+https://www.nytimes.com/2026/06/08/science/cattle-disease-screwworm.html
+
 **Timothée Chalamet, Cardi B and More Celebrities Are at Knicks-Spurs Finals Game 3**\
 `A long list of celebrities flocked to Madison Square Garden for Game 3 of the N.B.A. finals.`\
 https://www.nytimes.com/2026/06/08/nyregion/celebrities-knicks-finals-game-3.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/08/us/politics/judge-visa-skilled-workers-fee-tr
 **Who Is Ahead in Maine's 1st Congressional District?**\
 `Track the latest polls in Maine's 1st Congressional District.`\
 https://www.nytimes.com/interactive/polls/maine-us-house-1-polls-2026.html
-
-**Meta Says Israeli Spyware Firm NSO Group Targeted WhatsApp Users Again**\
-`The uncovered hacking attempts on the messaging service were linked to NSO Group and may violate a federal court prohibition against the firm.`\
-https://www.nytimes.com/2026/06/08/us/politics/whatsapp-nso-group-phishing.html
 

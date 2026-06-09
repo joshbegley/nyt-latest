@@ -1,3 +1,11 @@
+**Timothée Chalamet, Cardi B and More Celebrities Are at Knicks-Spurs Finals Game 3**\
+`A long list of celebrities flocked to Madison Square Garden for Game 3 of the N.B.A. finals.`\
+https://www.nytimes.com/2026/06/08/nyregion/celebrities-knicks-finals-game-3.html
+
+**Starlink’s Brilliant Marketing Strategy**\
+`The “Hard Fork” co-hosts Kevin Roose and Casey Newton discuss how recent United flights have caused them to change their minds about Starlink.`\
+https://www.nytimes.com/video/podcasts/100000010953918/starlinks-brilliant-marketing-strategy.html
+
 **I.C.C. Prosecutor Karim Khan Suspended Over Sexual Harassment Claims**\
 `Karim Khan, the chief prosecutor of the International Criminal Court, faced an accusation of sexual harassment.`\
 https://www.nytimes.com/2026/06/08/world/europe/karim-khan-icc-suspended.html
