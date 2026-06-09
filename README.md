@@ -1,3 +1,7 @@
+**Timothée Chalamet, Cardi B and More Celebrities Are at Knicks-Spurs Finals Game 3**\
+`A long list of celebrities flocked to Madison Square Garden for Game 3 of the N.B.A. finals.`\
+https://www.nytimes.com/2026/06/08/nyregion/celebrities-knicks-finals-game-3.html
+
 **Starlink’s Brilliant Marketing Strategy**\
 `The “Hard Fork” co-hosts Kevin Roose and Casey Newton discuss how recent United flights have caused them to change their minds about Starlink.`\
 https://www.nytimes.com/video/podcasts/100000010953918/starlinks-brilliant-marketing-strategy.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/interactive/polls/maine-us-house-1-polls-2026.html
 **Meta Says Israeli Spyware Firm NSO Group Targeted WhatsApp Users Again**\
 `The uncovered hacking attempts on the messaging service were linked to NSO Group and may violate a federal court prohibition against the firm.`\
 https://www.nytimes.com/2026/06/08/us/politics/whatsapp-nso-group-phishing.html
-
-**La mujer colombiana deportada a Congo-Kinsasa podría permanecer allí**\
-`En mayo, el juez había dictaminado que la mujer fue deportada indebidamente. Ahora, nuevas pruebas lo llevaron a revocar su decisión.`\
-https://www.nytimes.com/es/2026/06/08/espanol/mundo/colombiana-deportada-congo.html
 
