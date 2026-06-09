@@ -195,6 +195,6 @@ https://www.nytimes.com/2026/06/08/us/politics/trump-todd-blanche-attorney-gener
 https://www.nytimes.com/2026/06/08/us/politics/trump-netanyahu-iran-call.html
 
 **Live Updates: Knicks Fans Bring Swagger and Nerves to Key Playoff Game**\
-`Madison Square Garden was a cauldron of noise as Game 3 of the N.B.A. finals drew to a close. New York Knicks fans had greeted President Trump with a round of booing.`\
+`Madison Square Garden was a cauldron of noise for Game 3 of the N.B.A. finals. New York Knicks fans greeted President Trump with a round of booing.`\
 https://www.nytimes.com/live/2026/06/08/nyregion/nba-finals-trump-knicks-spurs-mamdani
 
