@@ -1,3 +1,19 @@
+**Trump Says Iran Shot Down U.S. Helicopter and Vows to Retaliate**\
+`U.S. Central Command said the incident was under investigation. The pilot and gunner were safely rescued.`\
+https://www.nytimes.com/2026/06/09/us/politics/trump-helicopter-iran-war.html
+
+**Can NASA Really Land Astronauts on the Moon by 2028?**\
+`Experts have been hopeful, but say the agency’s lunar aspirations are largely at the whims of two billionaires, Elon Musk and Jeff Bezos.`\
+https://www.nytimes.com/2026/06/09/science/space/nasa-artemis-moon-landing.html
+
+**Paramount C.E.O. Promises Editorial Independence for ‘60 Minutes’**\
+`David Ellison told Lesley Stahl, one of three remaining correspondents for the news program, that he would respect the show’s editorial decisions after a tumultuous stretch.`\
+https://www.nytimes.com/2026/06/09/business/media/paramount-ceo-editorial-independence-60-minutes.html
+
+**Welcome to Believing**\
+`I’m excited to explore how people find meaning in their lives — in religious, spiritual or secular spaces — with you.`\
+https://www.nytimes.com/2026/06/09/briefing/welcome-to-believing.html
+
 **U.S. and Iran Zero In on Four Nuclear Issues in Talks**\
 `With the cease-fire proving tenuous, negotiations between the two nations are in flux, but have advanced to outline potential paths forward on difficult questions about Iran’s nuclear program.`\
 https://www.nytimes.com/2026/06/09/us/politics/iran-nuclear-deal.html
