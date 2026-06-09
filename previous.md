@@ -1,6 +1,18 @@
+**A Scientific Achievement That’s Totally Random**\
+`Encryption systems rely on “random” numbers, but conventional computers can’t generate them perfectly. New research shows that quantum physics can.`\
+https://www.nytimes.com/2026/06/09/science/random-numbers-quantum-encryption.html
+
+**Nick Reiner, Accused of Killing Parents, Asks to Use Trust Fund for His Defense**\
+`Mr. Reiner, who has pleaded not guilty, wants money from his $1.5 million trust fund to rehire a prominent criminal defense lawyer.`\
+https://www.nytimes.com/2026/06/09/movies/nick-reiner-trust-fund-defense-murder-charges.html
+
+**D4RLYL, a Robot Magician, Is Denied Membership in The Magic Circle**\
+`No, according to The Magic Circle, a British society that rejected a robot named D4RYL from its ranks. “Wonder is emotional, not just mechanical,” its president said.`\
+https://www.nytimes.com/2026/06/09/world/europe/robot-david-penn-magic-circle.html
+
 **Map: 3.4-Magnitude Earthquake Shakes Southern California**\
 `View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/06/09/world/09wea-quake-tracker-southern-california-nyth28jz.html
+https://www.nytimes.com/interactive/2026/06/09/world/earthquake-southern-california-tracker.html
 
 **Social Security Benefits Could Be Cut in 6 Years Unless Congress Acts**\
 `The trust fund for the program, which supports roughly 68 million Americans, is on schedule to be depleted in the next six years. Benefits could be cut on average by 22 percent.`\
@@ -161,24 +173,4 @@ https://www.nytimes.com/2026/06/09/world/middleeast/netanyahus-trump-pressure-ov
 **Behind the Pageantry in Pyongyang With Xi and Kim**\
 `Xi Jinping and Kim Jong-un projected unity and deeper ties this week, but the dynamic between China and North Korea has evolved considerably.`\
 https://www.nytimes.com/interactive/2026/06/09/world/asia/north-korea-china-xi-kim-summit.html
-
-**Man Arrested in ‘Brutal’ Stabbing in Belfast, Police Say**\
-`The suspect, who the police said is in his 30s and Sudanese, is alleged to have attacked another man in an assault in Belfast that was recorded and spread quickly online.`\
-https://www.nytimes.com/2026/06/09/world/europe/belfast-stabbing-arrest-northern-ireland.html
-
-**Word Choices**\
-`We explore six sentences that have shaped the American story.`\
-https://www.nytimes.com/2026/06/09/briefing/word-choices-declaration-independence.html
-
-**El triunfo de Kim Jong-un**\
-`El dirigente aprovechó la guerra de Ucrania para convertirse en el líder más poderoso de Corea del Norte hasta la fecha.`\
-https://www.nytimes.com/es/2026/06/09/espanol/mundo/kim-jong-un-corea-norte.html
-
-**The Holdup at the Center of the Iran Talks, and Trump’s Baseless New Claims of Voter Fraud**\
-`Plus, “I’m busy, but you can talk to my A.I. twin.”`\
-https://www.nytimes.com/2026/06/09/podcasts/the-headlines/the-holdup-at-the-center-of-the-iran-talks-and-trumps-baseless-new-claims-of-voter-fraud.html
-
-**Maine Votes as Graham Platner’s Past Poses New Conundrums**\
-`Mr. Platner, a Democratic candidate for Senate, is causing anxiety over his turbulent personal history.`\
-https://www.nytimes.com/2026/06/09/podcasts/the-daily/maine-vote-graham-platner-primary-senate.html
 

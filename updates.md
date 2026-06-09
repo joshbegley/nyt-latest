@@ -1,3 +1,19 @@
+**A Scientific Achievement That’s Totally Random**\
+`Encryption systems rely on “random” numbers, but conventional computers can’t generate them perfectly. New research shows that quantum physics can.`\
+https://www.nytimes.com/2026/06/09/science/random-numbers-quantum-encryption.html
+
+**Nick Reiner, Accused of Killing Parents, Asks to Use Trust Fund for His Defense**\
+`Mr. Reiner, who has pleaded not guilty, wants money from his $1.5 million trust fund to rehire a prominent criminal defense lawyer.`\
+https://www.nytimes.com/2026/06/09/movies/nick-reiner-trust-fund-defense-murder-charges.html
+
+**D4RLYL, a Robot Magician, Is Denied Membership in The Magic Circle**\
+`No, according to The Magic Circle, a British society that rejected a robot named D4RYL from its ranks. “Wonder is emotional, not just mechanical,” its president said.`\
+https://www.nytimes.com/2026/06/09/world/europe/robot-david-penn-magic-circle.html
+
+**Map: 3.4-Magnitude Earthquake Shakes Southern California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/09/world/earthquake-southern-california-tracker.html
+
 **Map: 3.4-Magnitude Earthquake Shakes Southern California**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/06/09/world/09wea-quake-tracker-southern-california-nyth28jz.html
