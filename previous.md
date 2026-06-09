@@ -1,3 +1,11 @@
+**Iran’s Soccer Federation Says Its World Cup Tickets Have Been Revoked**\
+`It did not say who had interfered but blamed the United States, one of the tournament’s hosts, after months of war.`\
+https://www.nytimes.com/2026/06/09/world/middleeast/iran-world-cup-tickets-revoked.html
+
+**Today, In Short**\
+`The N.B.A. finals. Taylor Swift. And grilled vegetable recipes.`\
+https://www.nytimes.com/2026/06/09/briefing/today-in-short.html
+
 **Gates Said to Have Hired Ex-Oversight Chief to Advise on Epstein Testimony**\
 `Bill Gates, the Microsoft co-founder, has retained Jake Greenberg, the former top investigative counsel to the House Oversight Committee.`\
 https://www.nytimes.com/2026/06/09/us/politics/bill-gates-jeffrey-epstein-oversight-committee-lawyer.html
@@ -42,7 +50,7 @@ https://www.nytimes.com/2026/06/09/science/what-is-artemis-iii-moon-nasa.html
 `NASA’s Artemis program has little room for error if it is to land astronauts on the moon by the end of 2028, but Blue Origin could be out of commission for at least a year.`\
 https://www.nytimes.com/2026/06/09/science/space/blue-origin-explosion-nasa-artemis-iii.html
 
-**Live Updates: NASA to Announce Its Artemis III Astronauts**\
+**Live Updates: NASA Announcing Its Artemis III Astronauts**\
 `Four astronauts will be part of the next mission in the agency’s program to return humans to the surface of the moon by 2028. The recent explosion of a Blue Origin rocket could complicate matters.`\
 https://www.nytimes.com/live/2026/06/09/science/nasa-artemis-iii-astronauts
 
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/06/09/opinion/campaign-tactics-lies-misinformation.
 **Copa Mundial 2026: qué hacer en cada ciudad**\
 `La fiesta más grande del mundo está por comenzar. Aquí te decimos cómo puedes disfrutar cada emocionante minuto.`\
 https://www.nytimes.com/es/interactive/2026/06/09/travel/mundial-2026-que-hacer-mexico-canada-ee-uu.html
-
-**Why This Ebola Outbreak Could End Up Being the Worst One in History**\
-`The situation in eastern Congo and Uganda combines some of the most dangerous aspects of the 2014 and 2018 Ebola outbreaks.`\
-https://www.nytimes.com/interactive/2026/06/09/opinion/ebola-outbreak-africa-usaid.html
-
-**The Roar of ‘Cease-Fire’ in a Once-Thriving City**\
-`The city of Nabatieh once spoke to the changing fortunes of Lebanon. Now, amid unending war, it speaks to the country’s worst fears.`\
-https://www.nytimes.com/2026/06/09/world/middleeast/lebanon-israel-nabatieh.html
 

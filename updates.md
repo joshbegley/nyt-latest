@@ -1,3 +1,15 @@
+**Iran’s Soccer Federation Says Its World Cup Tickets Have Been Revoked**\
+`It did not say who had interfered but blamed the United States, one of the tournament’s hosts, after months of war.`\
+https://www.nytimes.com/2026/06/09/world/middleeast/iran-world-cup-tickets-revoked.html
+
+**Today, In Short**\
+`The N.B.A. finals. Taylor Swift. And grilled vegetable recipes.`\
+https://www.nytimes.com/2026/06/09/briefing/today-in-short.html
+
+**Live Updates: NASA Announcing Its Artemis III Astronauts**\
+`Four astronauts will be part of the next mission in the agency’s program to return humans to the surface of the moon by 2028. The recent explosion of a Blue Origin rocket could complicate matters.`\
+https://www.nytimes.com/live/2026/06/09/science/nasa-artemis-iii-astronauts
+
 **Gates Said to Have Hired Ex-Oversight Chief to Advise on Epstein Testimony**\
 `Bill Gates, the Microsoft co-founder, has retained Jake Greenberg, the former top investigative counsel to the House Oversight Committee.`\
 https://www.nytimes.com/2026/06/09/us/politics/bill-gates-jeffrey-epstein-oversight-committee-lawyer.html
