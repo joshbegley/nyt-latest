@@ -1,3 +1,19 @@
+**5 Things to Know About Graham Platner, Democratic Senate Candidate in Maine**\
+`Mr. Platner, an oyster farmer running for a Senate seat on a progressive platform, has drawn a large following among Democrats in Maine. His campaign has also surfaced damaging reports about his personal history.`\
+https://www.nytimes.com/2026/06/09/us/politics/graham-platner-democrat-senate-maine.html
+
+**5 Things to Know About Susan Collins, Republican Senate Candidate in Maine**\
+`Ms. Collins, the longest-serving Republican woman in Senate history, is also her party’s most vulnerable incumbent this year.`\
+https://www.nytimes.com/2026/06/09/us/politics/susan-collins-republican-senate-maine.html
+
+**Serena Williams Wins First Tennis Match in Nearly 4 Years**\
+`The 23-time Grand Slam singles champion and her doubles partner, Victoria Mboko, beat the No. 3 seeds at the Queen’s Club in west London on Tuesday.`\
+https://www.nytimes.com/video/sports/tennis/100000010956318/williams-tennis-match-doubles-win.html
+
+**Doris Matsui to Face Mai Vang in General Election for Sacramento House Seat**\
+`Mai Vang, a progressive member of the Sacramento City Council, will challenge Ms. Matsui, the 81-year-old incumbent, in the general election.`\
+https://www.nytimes.com/2026/06/09/us/politics/california-house-district-7.html
+
 **Doris Matsui Will Face Democratic Challenger in Intraparty Generational Fight**\
 `Mai Vang, a progressive member of the Sacramento City Council, will challenge Ms. Matsui, the 81-year-old incumbent, in the general election.`\
 https://www.nytimes.com/2026/06/09/us/politics/california-house-district-7.html
