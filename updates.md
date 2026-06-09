@@ -1,3 +1,11 @@
+**Germany Drops Plan to Build Warplane With Allies, Hindering Push to Rearm**\
+`Berlin pulled out of the Future Combat Air System, a project with Spain and France that had been seen as central to European efforts to face down Russia and reduce reliance on the United States.`\
+https://www.nytimes.com/2026/06/09/world/europe/europe-fighter-fcas-germany-france.html
+
+**Fireboat Joins a Fleet of Floating N.Y.C. Bars**\
+`Malvan serves up Goan cuisine, Forno d’Oro fires pizzas with a pedigree and more restaurant news.`\
+https://www.nytimes.com/2026/06/09/dining/nyc-restaurant-news.html
+
 **Man Is Attacked by Alligator After Fleeing Louisiana Police**\
 `The driver, who was charged with driving while impaired, suffered non-life-threatening injuries, authorities said.`\
 https://www.nytimes.com/2026/06/09/us/man-attacked-alligator-louisiana.html
