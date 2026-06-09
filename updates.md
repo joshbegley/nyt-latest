@@ -1,3 +1,23 @@
+**A.I. Politics**\
+`Much of the discussion about artificial intelligence focuses on economic disruption. But it could reshape political life, too.`\
+https://www.nytimes.com/2026/06/09/world/ai-politics-iran-world-cup.html
+
+**NASA Announces Artemis III Crew**\
+`NASA announced the crew of Artemis III mission, which will fly to low-Earth orbit to test rendezvous and docking maneuvers with one or two lunar landers.`\
+https://www.nytimes.com/video/science/space/100000010955125/nasa-announces-artemis-iii-crew.html
+
+**Are You Traveling to the U.S. for the 2026 World Cup? We’d Like to Hear From You.**\
+`Tell us about your experience buying tickets, finding a place to stay, making travel arrangements and, if you’re coming to the U.S., dealing with entry requirements.`\
+https://www.nytimes.com/2026/06/09/travel/world-cup-travel-us.html
+
+**Maine’s Primary Ballot Is Crowded With Members of Political Dynasties**\
+`Among other candidates with ties to prominent officials, a senator’s son and a Bush scion are running for governor.`\
+https://www.nytimes.com/2026/06/09/us/politics/maine-political-dynasty-king-pingree-bush.html
+
+**Meta A.I. Bug Allowed Hackers to Take Over Instagram Accounts**\
+`The flaw, which Meta said it had fixed, allowed anyone to take over Instagram accounts using a bug in the company’s new artificial intelligence software.`\
+https://www.nytimes.com/2026/06/09/technology/instagram-hack-ai-bug.html
+
 **Pope Leo Meets Bad Bunny**\
 `The two crossed paths in Spain, where they have been on decidedly different tours. Sorry, no photos were released.`\
 https://www.nytimes.com/2026/06/09/world/europe/pope-leo-bad-bunny.html
