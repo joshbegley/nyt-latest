@@ -1,3 +1,111 @@
+**Alcohol’s Health Risks Accelerate After One Drink a Day, Study Finds**\
+`The alcohol industry has criticized the research, which found that even light drinking increases the risk of premature death.`\
+https://www.nytimes.com/2026/06/09/well/alcohol-health-risks-study.html
+
+**Europe Needs to Come Together. This Man Has Some Ideas.**\
+`Luuk van Middelaar, a Dutch scholar, is emerging as the continent’s master strategist.`\
+https://www.nytimes.com/2026/06/09/opinion/europe-defense-van-middelaar.html
+
+**Crew Rescued After U.S. Helicopter Goes Down Near Strait of Hormuz**\
+`It was not immediately clear what led to the incident, which came at a time when the cease-fire in the war has grown tenuous.`\
+https://www.nytimes.com/2026/06/08/us/politics/us-helicopter-strait-of-hormuz.html
+
+**See the Famous Faces at the Knicks Game at Madison Square Garden**\
+`Here’s a look at some of the most prominent figures that attended Game 3 of the N.B.A. finals at Madison Square Garden.`\
+https://www.nytimes.com/interactive/2026/06/08/nyregion/nba-finals-knicks-celebrities-attendees.html
+
+**San Francisco Voters Appear to Reject Tax Hike on Highly Paid C.E.O.s**\
+`The proposal was seen as a possible measure of how residents felt about the recent flood of money into the city as a result of the A.I. boom.`\
+https://www.nytimes.com/2026/06/08/us/politics/san-francisco-tax-proposition-d.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/sports/100000010954067/08vid-knicks-bryant1-213.html
+
+**NYT Crossword Answers for June 9, 2026**\
+`Rebecca Goldstein’s puzzle isn’t too tough to dig into.`\
+https://www.nytimes.com/2026/06/08/crosswords/daily-puzzle-2026-06-09.html
+
+**M.S.G. Erupts in Boos as Trump Appears on Screen at Knicks-Spurs Game**\
+`Mr. Trump is the first sitting president to attend an N.B.A. finals game. He smiled as he heard the reception from the crowd at Madison Square Garden.`\
+https://www.nytimes.com/2026/06/08/nyregion/trump-booed-knicks-msg-finals.html
+
+**For Lonely Knicks Fans, Championship Run Forges Fellowship in NYC**\
+`The championship run by the Knicks has created a “love fest,” one fan said, and it has even given her a new circle of friends.`\
+https://www.nytimes.com/2026/06/08/nyregion/knicks-fans-lonely-no-more.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/sports/100000010953986/08vid-knicks-trump-boo-30156.html
+
+**‘Make American Great Again’ Was a Slogan Well Before Trump**\
+`Our critic A.O. Scott explains how four words explain (at least) 40 years of political history.`\
+https://www.nytimes.com/interactive/2026/06/08/arts/make-american-great-again-slogan-trump-clinton-reagan.html
+
+**How F.D.R.’s Most Famous Sentence Remade America**\
+`There was plenty to be afraid of in 1933, our chief White House correspondent, Peter Baker, explains. Roosevelt said there was “nothing to fear but fear itself.”`\
+https://www.nytimes.com/interactive/2026/06/08/arts/fdr-inaugural-address-fear.html
+
+**Nina Simone’s ‘Mississippi Goddam’ Is a Protest Song of the Civil Rights Era, and Our Own**\
+`“Mississippi Goddam” is a song of the Civil Rights Era, and our own. Listen to it with our critic Wesley Morris.`\
+https://www.nytimes.com/interactive/2026/06/08/arts/nina-simone-mississippi-goddam-civil-rights-song.html
+
+**How Susan B. Anthony Used Language in the Fight for Women’s Rights**\
+`In the fight for women’s rights, language has always been a battleground, our critic Parul Seghal explains.`\
+https://www.nytimes.com/interactive/2026/06/08/arts/susan-b-anthony-womens-rights-word.html
+
+**EE. UU. niega la entrada a un árbitro somalí del Mundial**\
+`Omar Artan fue uno de los 52 árbitros seleccionados para la Copa Mundial de la FIFA. Pero el sábado se le denegó la entrada por “preocupaciones de investigación de antecedentes”, dijeron funcionarios estadounidenses.`\
+https://www.nytimes.com/es/2026/06/08/espanol/estados-unidos/arbitro-somalia-mundial-entrada.html
+
+**Timothée Chalamet, Cardi B and More Celebrities Are at Knicks-Spurs Finals Game 3**\
+`A long list of celebrities flocked to Madison Square Garden for Game 3 of the N.B.A. finals.`\
+https://www.nytimes.com/2026/06/08/nyregion/celebrities-knicks-finals-game-3.html
+
+**I.C.C. Prosecutor Karim Khan Suspended Over Sexual Harassment Claims**\
+`Karim Khan, the chief prosecutor of the International Criminal Court, faced an accusation of sexual harassment.`\
+https://www.nytimes.com/2026/06/08/world/europe/karim-khan-icc-suspended.html
+
+**Nithya Raman Secures Second LA Mayor Spot, Ending Spencer Pratt’s Run**\
+`Nithya Raman, a progressive Democrat who entered the mayoral race at the last minute, secured the second spot to face Mayor Karen Bass in November. Her comeback sets up an intraparty battle.`\
+https://www.nytimes.com/2026/06/08/us/elections/nithya-raman-la-mayor-karen-bass.html
+
+**Wonder What a Renovated Penn Station Might Look Like? Here’s a Preview.**\
+`Forget those dreary passageways. The updated transit hub would add a grand entrance with sweeping staircases leading to an airy, glass-walled concourse.`\
+https://www.nytimes.com/2026/06/08/nyregion/penn-station-renovation.html
+
+**Would Mike Johnson Pass Raphael Warnock’s Test?**\
+`On “The Interview,” Raphael Warnock, a Democratic senator from Georgia and a pastor, explains his “acid test” on faith.`\
+https://www.nytimes.com/video/podcasts/100000010953787/would-mike-johnson-pass-raphael-warnocks-test.html
+
+**Una ‘transformación milagrosa’: cómo Kim Jong-un fortaleció Corea del Norte**\
+`Utilizó la pandemia para reforzar despiadadamente su control sobre el país. Luego dinamizó su economía aprovechando la guerra de Rusia en Ucrania.`\
+https://www.nytimes.com/es/2026/06/08/espanol/mundo/kim-jong-un-corea-norte.html
+
+**Governor’s Visit to ICE Detention Facility Is Strictly Limited, She Says**\
+`Gov. Mikie Sherrill of New Jersey said she was not allowed to speak with immigrants at the Delaney Hall detention center.`\
+https://www.nytimes.com/2026/06/08/nyregion/sherrill-nj-delaney-hall.html
+
+**How Will I.P.O.s From A.I. Companies Affect the Average Person?**\
+`On the “Hard Fork” podcast, the hosts Casey Newton and Kevin Roose discuss the pros and cons of I.P.O.s by large tech companies.`\
+https://www.nytimes.com/video/podcasts/100000010953710/how-will-ipos-from-ai-companies-affect-the-average-person.html
+
+**Trump Wants to Call the Shots. But in Iran, He Keeps Hitting His Limits.**\
+`President Trump is grappling with his own version of the sort of Middle East crisis that beset his predecessors, and that he promised to avoid.`\
+https://www.nytimes.com/2026/06/08/us/politics/trump-iran-war-middle-east.html
+
+**El gobierno de Trump busca quitar la ciudadanía de EE. UU. a 17 migrantes**\
+`La campaña para remover la ciudadanía estadounidense a más migrantes es una nueva señal de que el gobierno se está enfocando en el sistema migratorio legal.`\
+https://www.nytimes.com/es/2026/06/08/espanol/estados-unidos/trump-quitar-ciudadania-migrantes.html
+
+**Iran and Israel Pull Back**\
+`Also, the N.B.A. finals arrive in New York. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/06/08/briefing/iran-israel-strikes-todd-blanche.html
+
+**Iran and Israel Pull Back, After Fierce Exchange of Attacks**\
+`The conflict between Israel and Hezbollah, an Iranian-backed militia, is complicating efforts to end the war in Iran.`\
+https://www.nytimes.com/2026/06/08/world/middleeast/iran-israel-strikes-ceasefire-hezbollah.html
+
 **Maximalism Is Back at the Tonys**\
 `Our chief theater critic, Helen Shaw, shares her highlights of the Tony Awards on Sunday in New York City.`\
 https://www.nytimes.com/video/theater/100000010943591/tony-tonys-awards-theater-musical-broadway.html
