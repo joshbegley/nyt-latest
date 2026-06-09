@@ -1,3 +1,7 @@
+**Lo que sabemos sobre los medicamentos para perder peso cambia rápidamente**\
+`Gracias al uso generalizado de fármacos como el Ozempic, ahora tenemos una idea más clara que nunca de sus efectos y de las dificultades que conlleva tomarlos.`\
+https://www.nytimes.com/es/2026/06/09/espanol/que-sabemos-ozempic-wegovy.html
+
 **Why a U.K. By-Election in Makerfield Could Topple Prime Minister Keir Starmer**\
 `Andy Burnham, the mayor of Greater Manchester, is running for a seat in Parliament. It’s a vital step in a campaign to oust his party colleague Prime Minister Keir Starmer.`\
 https://www.nytimes.com/2026/06/09/world/europe/makerfield-byelection-starmer-burnham-reform.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/interactive/polls/new-york-us-house-15-polls-2026.html
 **The SpaceX I.P.O. Shows Us What’s Wrong With Our Stock Market**\
 `The SpaceX I.P.O. proves the stock market has become a hype machine.`\
 https://www.nytimes.com/2026/06/08/opinion/spacex-ipo-stock-market.html
-
-**A Timeline of Donald Trump and Lindsey Graham’s Relationship Before the South Carolina Primary**\
-`Once one of President Trump’s fiercest critics, the South Carolina senator has dramatically shifted his posture over the years. Will it pay off on Tuesday in his primary?`\
-https://www.nytimes.com/2026/06/08/us/politics/trump-graham-relationship-timeline-primary.html
 
 **Live Updates: Knicks Fans Bring Swagger and Nerves to Key Playoff Game**\
 `Madison Square Garden was a cauldron of noise for Game 3 of the N.B.A. finals. New York Knicks fans greeted President Trump with a round of booing.`\

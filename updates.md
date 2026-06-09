@@ -1,3 +1,7 @@
+**Lo que sabemos sobre los medicamentos para perder peso cambia rápidamente**\
+`Gracias al uso generalizado de fármacos como el Ozempic, ahora tenemos una idea más clara que nunca de sus efectos y de las dificultades que conlleva tomarlos.`\
+https://www.nytimes.com/es/2026/06/09/espanol/que-sabemos-ozempic-wegovy.html
+
 **Why a U.K. By-Election in Makerfield Could Topple Prime Minister Keir Starmer**\
 `Andy Burnham, the mayor of Greater Manchester, is running for a seat in Parliament. It’s a vital step in a campaign to oust his party colleague Prime Minister Keir Starmer.`\
 https://www.nytimes.com/2026/06/09/world/europe/makerfield-byelection-starmer-burnham-reform.html
