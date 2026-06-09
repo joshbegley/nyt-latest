@@ -1,3 +1,23 @@
+**The U.S. Strikes Iran After Trump Vowed to Retaliate**\
+`Also, meet NASA’s Artemis III crew. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/06/09/briefing/united-states-iran-strikes-maine-primary-election.html
+
+**The Likely Platner-Collins Matchup Is Set to Be Hugely Expensive**\
+`Both Senate candidates in Maine have been strong fund-raisers, and allied super PACs and dark-money groups are mobilizing for their showdown.`\
+https://www.nytimes.com/2026/06/09/us/politics/maine-primary-election-money-spending.html
+
+**Trump Law Would Also Direct Voucher Money to Public Schools**\
+`The law, which creates the first-ever federal voucher program, is designed, in part, to lure Democrats. It’s unclear how many blue states will sign up.`\
+https://www.nytimes.com/2026/06/09/us/national-education-vouchers-private-school.html
+
+**G.M. Plans to Develop Energy Storage Batteries as E.V. Sales Flag**\
+`The carmaker will follow Tesla in making components for large batteries used by electric utilities, data centers and other businesses to handle fluctuations in power supply and demand.`\
+https://www.nytimes.com/2026/06/09/business/energy-environment/general-motors-storage-batteries-electric-vehicles.html
+
+**U.S. Strikes Iran After Trump Vows to Retaliate for Downed Helicopter**\
+`The retaliatory U.S. attacks came on Tuesday as Israeli forces pounded southern Lebanon while targeting Hezbollah.`\
+https://www.nytimes.com/2026/06/09/world/middleeast/trump-iran-us-military-helicopter.html
+
 **Michigan Court Vacates Conviction Tied to Gretchen Whitmer Kidnapping Plot**\
 `The state appellate court vacated the convictions of Joseph Morrison, ruling that the trial judge had provided flawed instructions to the jury.`\
 https://www.nytimes.com/2026/06/09/us/michigan-whitmer-plot-convictions-overturned.html
