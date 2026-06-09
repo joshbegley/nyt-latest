@@ -1,3 +1,7 @@
+**Behind the Pageantry in Pyongyang With Xi and Kim**\
+`Xi Jinping and Kim Jong-un projected unity and deeper ties this week but the dynamic between China and North Korea has evolved considerably.`\
+https://www.nytimes.com/interactive/2026/06/09/world/asia/north-korea-china-xi-kim-summit.html
+
 **Man Arrested in ‘Brutal’ Stabbing in Belfast, Police Say**\
 `The suspect, whom the police described as in his 30s and believed to be Somali, is alleged to have attacked another man in his 40s in an episode in Belfast that was recorded and spread quickly online.`\
 https://www.nytimes.com/2026/06/09/world/europe/belfast-stabbing-arrest-northern-ireland.html
