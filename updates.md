@@ -1,3 +1,7 @@
+**Tensions Flare in the Middle East as Cease-Fire Falters**\
+`President Trump blamed Iran for shooting down a U.S. helicopter near the Strait of Hormuz and vowed to retaliate, while Israel launched a new wave of strikes on southern Lebanon on Tuesday.`\
+https://www.nytimes.com/video/world/middleeast/100000010954773/lebanon-israeli-strikes-trump-iran-helicopter.html
+
 **The U.S. Strikes Iran After Trump Vowed to Retaliate**\
 `Also, meet NASA’s Artemis III crew. Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/06/09/briefing/united-states-iran-strikes-maine-primary-election.html

@@ -63,7 +63,7 @@ https://www.nytimes.com/interactive/2026/06/09/nyregion/nyc-parking-cars-history
 https://www.nytimes.com/interactive/2026/06/09/nyregion/nyc-street-parking.html
 
 **Tensions Flare in the Middle East as Cease-Fire Falters**\
-`President Trump blamed Iran for shooting down a U.S. helicopter over the Strait of Hormuz and vowed to retaliate, while Israel launched a new wave of strikes on southern Lebanon on Tuesday.`\
+`President Trump blamed Iran for shooting down a U.S. helicopter near the Strait of Hormuz and vowed to retaliate, while Israel launched a new wave of strikes on southern Lebanon on Tuesday.`\
 https://www.nytimes.com/video/world/middleeast/100000010954773/lebanon-israeli-strikes-trump-iran-helicopter.html
 
 **U.S. Strikes Iran After Trump Vows to Retaliate for Downed Helicopter**\
