@@ -1,3 +1,23 @@
+**Spurs Beat Knicks, Quieting New York City Crowds**\
+`Fans, celebrities and President Trump gathered at Madison Square Garden in New York City to cheer on the Knicks, who lost Game 3 of the N.B.A. finals to the San Antonio Spurs.`\
+https://www.nytimes.com/video/nyregion/100000010954297/knicks-nba-finals-new-york.html
+
+**5 consejos para ayudar a gestionar el dinero de tus padres mayores**\
+`Para muchas familias, la conversación sobre la situación económica de los padres ancianos suele llegar demasiado tarde. Es mejor prepararse.`\
+https://www.nytimes.com/es/2026/06/09/espanol/negocios/dinero-ahorros-jubilacion-retiro-padres-mayores.html
+
+**He Gave It All to Help the Knicks Win in 1973. He’s Still in Pain Today.**\
+`Earl “the Pearl” Monroe was part of the last championship team. Now 81, he has thoughts on what really matters.`\
+https://www.nytimes.com/2026/06/09/nyregion/knicks-nba-finals-earl-monroe.html
+
+**Medical Advances Are Keeping a Health Reporter Busy**\
+`A conversation with Gina Kolata, who covers breakthroughs in medical science.`\
+https://www.nytimes.com/2026/06/09/pageoneplus/medical-advances.html
+
+**NYT Spelling Bee Answers for June 9, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/09/crosswords/spelling-bee-forum.html
+
 **Meet Europe’s New Machiavelli**\
 `Luuk van Middelaar, a Dutch scholar, is emerging as the continent’s master strategist.`\
 https://www.nytimes.com/2026/06/09/opinion/europe-defense-van-middelaar.html
