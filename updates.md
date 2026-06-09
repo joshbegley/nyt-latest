@@ -1,3 +1,11 @@
+**Traditional Republicans Clash With MAGA Wing in Nevada House Primary**\
+`At stake is the seat held by Representative Mark Amodei, a Republican in northern Nevada who is retiring from his reliably red district.`\
+https://www.nytimes.com/2026/06/09/us/politics/nevada-second-district-primary-maga-republicans.html
+
+**Teen Who Killed Competitor at Texas Track Meet Is Found Guilty of Murder**\
+`Karmelo Anthony, 19, was convicted of murder for the killing of Austin Metcalf, another student, at a high school sporting event last year in a case that drew national attention.`\
+https://www.nytimes.com/2026/06/09/us/karmelo-anthony-murder-verdict-guilty.html
+
 **Para este árbitro somalí, el Mundial terminó cuando EE. UU. le negó la entrada**\
 `“Tenía los papeles en regla y todo”, dijo Omar Abdulkadir Artan en su primera entrevista desde que fue enviado de regreso. Habría sido el primer somalí en arbitrar un partido del torneo.`\
 https://www.nytimes.com/es/2026/06/09/espanol/deportes/somalia-arbitro-entrevista-exclusiva.html
