@@ -54,8 +54,8 @@ https://www.nytimes.com/2026/06/09/business/economy/us-trade-deficit-oil-iran.ht
 `Some analysts are wondering whether the market can absorb the artificial intelligence giant’s planned stock offering — along with those of SpaceX and Anthropic.`\
 https://www.nytimes.com/2026/06/09/business/dealbook/openai-ipo-spacex-anthropic.html
 
-**Israel Strikes Lebanese City of Tyre as New Cease-Fire Falters**\
-`The bombardment followed Israeli evacuation warnings for the entire city, and came a day after Iran said it would attack Israel if it kept up its offensive in southern Lebanon.`\
+**Israel Strikes Lebanese City of Tyre as U.S.-Brokered Truce Falters**\
+`The bombardment followed Israeli evacuation warning for the entire city, a day after Iran threatened to attack Israel again if it kept up its offensive against Hezbollah in Lebanon.`\
 https://www.nytimes.com/2026/06/09/world/middleeast/israel-lebanon-strikes-tyre-ceasefire.html
 
 **Somali Referee Says His World Cup Dream Is Dashed After U.S. Denies Entry**\
