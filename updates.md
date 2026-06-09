@@ -1,3 +1,11 @@
+**Gates Said to Have Hired Ex-Oversight Chief to Advise on Epstein Testimony**\
+`Bill Gates, the Microsoft co-founder, has retained Jake Greenberg, the former top investigative counsel to the House Oversight Committee.`\
+https://www.nytimes.com/2026/06/09/us/politics/bill-gates-jeffrey-epstein-oversight-committee-lawyer.html
+
+**Albert Wolsky, Costume Designer for ‘All That Jazz’ and ‘Grease,’ Dies at 95**\
+`A go-to designer for directors like Bob Fosse and Paul Mazursky, he won two Oscars and created Olivia Newton-John’s indelibly sultry ensemble in “Grease.”`\
+https://www.nytimes.com/2026/06/09/movies/albert-wolsky-dead.html
+
 **Artemis III Astronauts to Wear Prada Spacesuits**\
 `Prada and Axiom Space unveiled the bodysuit that will go to the moon.`\
 https://www.nytimes.com/2026/06/09/science/space/prada-axiom-lcvg-artemis-iii.html
