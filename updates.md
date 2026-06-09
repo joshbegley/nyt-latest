@@ -1,3 +1,15 @@
+**Why a U.K. By-Election in Makerfield Could Topple Prime Minister Keir Starmer**\
+`Andy Burnham, the mayor of Greater Manchester, is running for a seat in Parliament. It’s a vital step in a campaign to oust his party colleague Prime Minister Keir Starmer.`\
+https://www.nytimes.com/2026/06/09/world/europe/makerfield-byelection-starmer-burnham-reform.html
+
+**Quote of the Day: Some Trump Voters Are Drifting Away Over His Handling of Iran and Economy**\
+`Quotation of the Day for Tuesday, June 9, 2026.`\
+https://www.nytimes.com/2026/06/09/pageoneplus/quote-of-the-day-some-trump-voters-are-drifting-away-over-his-handling-of-iran-and-economy.html
+
+**Corrections: June 9, 2026**\
+`Corrections that appeared in print on Tuesday, June 9, 2026.`\
+https://www.nytimes.com/2026/06/09/pageoneplus/corrections-june-9-2026.html
+
 **Crew Rescued After U.S. Helicopter Goes Down Near Strait of Hormuz**\
 `It was not immediately clear what led to the incident, which came at a time when the cease-fire in the war has grown tenuous.`\
 https://www.nytimes.com/2026/06/08/us/politics/us-helicopter-strait-of-hormuz.html
