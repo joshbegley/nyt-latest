@@ -1,3 +1,11 @@
+**A Surprising Find in Ancient Squirrel Poop: Woolly Mammoth Meat**\
+`In a new study, fossilized droppings suggested that ancient ground squirrels ate the meat of much larger animals, including mammoths, bison and saber-toothed cats.`\
+https://www.nytimes.com/2026/06/09/science/arctic-squirrels-fossilized-feces-mammoth.html
+
+**Watch Live: NASA Announces Artemis III Crew**\
+`NASA announces the crew of Artemis III.`\
+https://www.nytimes.com/video/embedded/science/space/100000010954863/watch-live-nasa-announces-artemis-iii-crew.html
+
 **Israel Strikes Lebanese City of Tyre as U.S.-Brokered Truce Falters**\
 `The bombardment followed Israeli evacuation warning for the entire city, a day after Iran threatened to attack Israel again if it kept up its offensive against Hezbollah in Lebanon.`\
 https://www.nytimes.com/2026/06/09/world/middleeast/israel-lebanon-strikes-tyre-ceasefire.html

@@ -1,3 +1,7 @@
+**Artemis III Astronauts to Wear Prada Spacesuits**\
+`Prada and Axiom Space unveiled the bodysuit that will go to the moon.`\
+https://www.nytimes.com/2026/06/09/science/space/prada-axiom-lcvg-artemis-iii.html
+
 **A Surprising Find in Ancient Squirrel Poop: Woolly Mammoth Meat**\
 `In a new study, fossilized droppings suggested that ancient ground squirrels ate the meat of much larger animals, including mammoths, bison and saber-toothed cats.`\
 https://www.nytimes.com/2026/06/09/science/arctic-squirrels-fossilized-feces-mammoth.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/06/09/us/politics/democrat-election-ads-american-br
 **Quit Complaining About the World Cup**\
 `There is a lot to gripe about. There’s also a lot to like.`\
 https://www.nytimes.com/2026/06/09/opinion/world-cup-fifa-tickets-prices.html
-
-**The Gustavo Dudamel Era in Los Angeles Approaches Its End**\
-`Gustavo Dudamel’s last concerts at Walt Disney Concert Hall as the Los Angeles Philharmonic’s maestro were a symbol of his impact after 17 years.`\
-https://www.nytimes.com/2026/06/09/arts/music/gustavo-dudamel-la-phil.html
 
