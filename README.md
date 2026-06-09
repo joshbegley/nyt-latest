@@ -1,3 +1,7 @@
+**See the Famous Faces at the Knicks Game at Madison Square Garden**\
+`Here’s a look at some of the most prominent figures that attended Game 3 of the N.B.A. finals at Madison Square Garden.`\
+https://www.nytimes.com/interactive/2026/06/08/nyregion/nba-finals-knicks-celebrities-attendees.html
+
 **San Francisco Voters Appear to Reject Tax Hike on Highly Paid C.E.O.s**\
 `The proposal was seen as a possible measure of how residents felt about the recent flood of money into the city as a result of the A.I. boom.`\
 https://www.nytimes.com/2026/06/08/us/politics/san-francisco-tax-proposition-d.html
@@ -34,13 +38,13 @@ https://www.nytimes.com/2026/06/08/nyregion/knicks-fans-lonely-no-more.html
 `(No description)`\
 https://www.nytimes.com/video/embedded/sports/100000010953986/08vid-knicks-trump-boo-30156.html
 
-**Frederick Douglass’s Demand for Citizenship Is Still Radical**\
-`In the years after the Civil War, Douglass shared a vision of freedom and equality for all, regardless of race. Our writer Jia Lynn Yang considers that history, and its relevance for the present.`\
-https://www.nytimes.com/interactive/2026/06/08/arts/frederick-douglass-slavery-citizenship-writing.html
-
 **Unpacking the Famous Words in the Declaration of Independence**\
 `Our critic A.O. Scott breaks down the second sentence of the Declaration of Independence.`\
 https://www.nytimes.com/interactive/2026/06/08/arts/declaration-of-independence-words.html
+
+**Frederick Douglass’s Demand for Citizenship Is Still Radical**\
+`In the years after the Civil War, Douglass shared a vision of freedom and equality for all, regardless of race. Our writer Jia Lynn Yang considers that history, and its relevance for the present.`\
+https://www.nytimes.com/interactive/2026/06/08/arts/frederick-douglass-slavery-citizenship-writing.html
 
 **How Susan B. Anthony Used Language in the Fight for Women’s Rights**\
 `In the fight for women’s rights, language has always been a battleground, our critic Parul Seghal explains.`\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/08/us/politics/trump-todd-blanche-attorney-gener
 **Netanyahu Called Off Iran Strikes After Trump Claimed Progress in Nuclear Talks, Officials Say**\
 `Multiple officials said that the president told Israel’s leader that the United States and Iran were within days of a breakthrough that would clear the way for talks on a long-term nuclear deal.`\
 https://www.nytimes.com/2026/06/08/us/politics/trump-netanyahu-iran-call.html
-
-**Apple Reveals New A.I.-Powered Version of Its Siri Digital Assistant**\
-`The iPhone maker revealed its new artificial intelligence products at its developer conference, the last with Tim Cook as chief executive.`\
-https://www.nytimes.com/2026/06/08/technology/apple-ai-siri.html
 
 **Live Updates: Fans Greet Knicks With Cheers, and Trump With Boos**\
 `President Trump is attending Game 3 of the N.B.A. finals at Madison Square Garden, a game decades in the making for Knicks fans. Nervous but hopeful energy filled the city at watch parties big and small.`\
