@@ -1,3 +1,7 @@
+**Word of the Day: abnegate**\
+`This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/06/09/learning/word-of-the-day-abnegate.html
+
 **Night With the Knicks: Rancor, Jubilation and an Unusual Loss**\
 `The night began with frustration and boos, and not because of the Knicks. But by the end of Game 3 of the N.B.A. finals, the team had slightly deflated some spirits, too.`\
 https://www.nytimes.com/2026/06/09/nyregion/knicks-spurs-game-3-trump.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/es/2026/06/08/espanol/tiempo-y-clima/tormenta-tropical-b
 **Una demanda busca impedir el evento de la UFC en la Casa Blanca**\
 `Una demanda federal alega que el evento, fijado para el 14 de junio, día del cumpleaños del presidente Trump, fue planeado ilegalmente y diseñado para beneficiarlo a él y a sus aliados.`\
 https://www.nytimes.com/es/2026/06/08/espanol/estados-unidos/trump-ufc-casa-blanca-demanda.html
-
-**Iran and Israel Pull Back, After Fierce Exchange of Attacks**\
-`The conflict between Israel and Hezbollah, an Iranian-backed militia, is complicating efforts to end the war in Iran.`\
-https://www.nytimes.com/2026/06/08/world/middleeast/iran-israel-strikes-ceasefire-hezbollah.html
 
 **Knicks Fans Bring Swagger and Nerves to Key Playoff Game**\
 `Madison Square Garden was a cauldron of noise for Game 3 of the N.B.A. finals. New York Knicks fans greeted President Trump with a round of booing.`\
