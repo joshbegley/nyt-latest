@@ -1,3 +1,7 @@
+**Michigan Court Vacates Conviction Tied to Gretchen Whitmer Kidnapping Plot**\
+`The state appellate court vacated the convictions of Joseph Morrison, ruling that the trial judge had provided flawed instructions to the jury.`\
+https://www.nytimes.com/2026/06/09/us/michigan-whitmer-plot-convictions-overturned.html
+
 **How Ranked-Choice Voting Works in Maine**\
 `Proponents say the practice reduces partisanship, while critics say it is confusing and expensive.`\
 https://www.nytimes.com/2026/06/09/us/politics/maine-ranked-choice-voting-explained.html
