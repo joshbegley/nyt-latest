@@ -1,3 +1,11 @@
+**Taliban Leader Who Took U.S. Journalist Hostage Sentenced to 42 Years**\
+`Haji Najibullah had pleaded guilty to hostage taking and providing material support for terrorism.`\
+https://www.nytimes.com/2026/06/09/nyregion/taliban-leader-american-journalist-sentencing.html
+
+**Air Canada Pilot Accused of Flying for 17 Years Without Proper License**\
+`The pilot, who retired last year before the investigation, held some valid flight credentials, officials said, but not the one required to be a captain.`\
+https://www.nytimes.com/2026/06/09/world/canada/air-canada-pilot-fraud.html
+
 **When to Expect Results in Maine, Nevada and Beyond**\
 `Four states have primaries on Tuesday. Election officials predict most results will come in late in the evening, though mail-in ballots may delay things.`\
 https://www.nytimes.com/2026/06/09/us/politics/election-results-timing-tonight-when.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-nevada-controller-
 **Nevada Secretary of State Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Nevada primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-nevada-secretary-of-state-primary.html
-
-**North Dakota Agriculture Commissioner Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 North Dakota primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-north-dakota-agriculture-commissioner-primary.html
-
-**North Dakota Public Service Commission Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 North Dakota primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-north-dakota-public-service-commission-primary.html
 
