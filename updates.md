@@ -1,3 +1,23 @@
+**Meet the NASA Astronauts in the Artemis III 4-Person Crew**\
+`NASA’s next mission in its effort to return humans to the moon will be led by an all-male crew. Three of them have extensive experience in space, while the other was a backup on Artemis II.`\
+https://www.nytimes.com/2026/06/09/science/space/artemis-iii-astronauts-nasa-crew.html
+
+**The Good That Can Come From Platner’s Candidacy**\
+`The Senate race in Maine is a chance to do away with inconsistent standards applied according to political bias.`\
+https://www.nytimes.com/2026/06/09/opinion/graham-platner-moral-hypocrisy.html
+
+**Knicks in ’73: Revisiting the Charts From a Championship Year**\
+`Listen to tracks from War, Vicki Lawrence and other artists who had hits in May 1973.`\
+https://www.nytimes.com/2026/06/09/arts/music/amplifier-newsletter-1973-tony-orlando-war.html
+
+**Are Taylor Swift and Travis Kelce Prepping for a New York Wedding?**\
+`Rumors are swirling. If the couple does say “I do” in the city, here are five venues that fit the scale of a celebration for a pop star and a star athlete.`\
+https://www.nytimes.com/2026/06/09/fashion/weddings/taylor-swift-travis-kelce-wedding-new-york.html
+
+**At the Tribeca Festival Artists Dinner, Celebrities Cheered on the Knicks**\
+`Actors cheered on the Knicks at Chanel’s annual Tribeca Festival Artists Dinner, which became something of an unofficial celebrity watch party.`\
+https://www.nytimes.com/2026/06/09/style/tribeca-festival-artists-dinner-knicks-sofia-coppola.html
+
 **6 Countries Announce Sanctions Targeting Israeli Settler Networks**\
 `The measures aim to “disrupt the flows of finance” supporting attacks on Palestinians in the West Bank, said the British government, which coordinated them with France and other nations.`\
 https://www.nytimes.com/2026/06/09/world/middleeast/west-bank-israeli-settlers-sanction.html
