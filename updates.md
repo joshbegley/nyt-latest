@@ -1,3 +1,15 @@
+**San Francisco Voters Appear to Reject Tax Hike on Highly Paid C.E.O.s**\
+`The proposal was seen as a possible measure of how residents felt about the recent flood of money into the city as a result of the A.I. boom.`\
+https://www.nytimes.com/2026/06/08/us/politics/san-francisco-tax-proposition-d.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/sports/100000010954067/08vid-knicks-bryant1-213.html
+
+**NYT Crossword Answers for June 9, 2026**\
+`Rebecca Goldstein’s puzzle isn’t too tough to dig into.`\
+https://www.nytimes.com/2026/06/08/crosswords/daily-puzzle-2026-06-09.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/special-series/100000010954055/08vid-knicks-brooklyn-17824.html

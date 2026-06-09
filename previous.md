@@ -1,3 +1,15 @@
+**San Francisco Voters Appear to Reject Tax Hike on Highly Paid C.E.O.s**\
+`The proposal was seen as a possible measure of how residents felt about the recent flood of money into the city as a result of the A.I. boom.`\
+https://www.nytimes.com/2026/06/08/us/politics/san-francisco-tax-proposition-d.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/sports/100000010954067/08vid-knicks-bryant1-213.html
+
+**NYT Crossword Answers for June 9, 2026**\
+`Rebecca Goldstein’s puzzle isn’t too tough to dig into.`\
+https://www.nytimes.com/2026/06/08/crosswords/daily-puzzle-2026-06-09.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/special-series/100000010954055/08vid-knicks-brooklyn-17824.html
@@ -22,29 +34,29 @@ https://www.nytimes.com/2026/06/08/nyregion/knicks-fans-lonely-no-more.html
 `(No description)`\
 https://www.nytimes.com/video/embedded/sports/100000010953986/08vid-knicks-trump-boo-30156.html
 
-**How Susan B. Anthony Used Language in the Fight for Women’s Rights**\
-`In the fight for women’s rights, language has always been a battleground, our critic Parul Seghal explains.`\
-https://www.nytimes.com/interactive/2026/06/08/arts/susan-b-anthony-womens-rights-word.html
-
-**Nina Simone’s ‘Mississippi Goddam’ Is a Protest Song of the Civil Rights Era, and Our Own**\
-`“Mississippi Goddam” is a song of the Civil Rights Era, and our own. Listen to it with our critic Wesley Morris.`\
-https://www.nytimes.com/interactive/2026/06/08/arts/nina-simone-mississippi-goddam-civil-rights-song.html
+**Unpacking the Famous Words in the Declaration of Independence**\
+`Our critic A.O. Scott breaks down the second sentence of the Declaration of Independence.`\
+https://www.nytimes.com/interactive/2026/06/08/arts/declaration-of-independence-words.html
 
 **Frederick Douglass’s Demand for Citizenship Is Still Radical**\
 `In the years after the Civil War, Douglass shared a vision of freedom and equality for all, regardless of race. Our writer Jia Lynn Yang considers that history, and its relevance for the present.`\
 https://www.nytimes.com/interactive/2026/06/08/arts/frederick-douglass-slavery-citizenship-writing.html
 
+**How Susan B. Anthony Used Language in the Fight for Women’s Rights**\
+`In the fight for women’s rights, language has always been a battleground, our critic Parul Seghal explains.`\
+https://www.nytimes.com/interactive/2026/06/08/arts/susan-b-anthony-womens-rights-word.html
+
 **How F.D.R.’s Most Famous Sentence Remade America**\
 `There was plenty to be afraid of in 1933, our chief White House correspondent, Peter Baker, explains. Roosevelt said there was “nothing to fear but fear itself.”`\
 https://www.nytimes.com/interactive/2026/06/08/arts/fdr-inaugural-address-fear.html
 
+**Nina Simone’s ‘Mississippi Goddam’ Is a Protest Song of the Civil Rights Era, and Our Own**\
+`“Mississippi Goddam” is a song of the Civil Rights Era, and our own. Listen to it with our critic Wesley Morris.`\
+https://www.nytimes.com/interactive/2026/06/08/arts/nina-simone-mississippi-goddam-civil-rights-song.html
+
 **‘Make American Great Again’ Was a Slogan Well Before Trump**\
 `Our critic A.O. Scott explains how four words explain (at least) 40 years of political history.`\
 https://www.nytimes.com/interactive/2026/06/08/arts/make-american-great-again-slogan-trump-clinton-reagan.html
-
-**Unpacking the Famous Words in the Declaration of Independence**\
-`Our critic A.O. Scott breaks down the second sentence of the Declaration of Independence.`\
-https://www.nytimes.com/interactive/2026/06/08/arts/declaration-of-independence-words.html
 
 **EE. UU. niega la entrada a un árbitro somalí del Mundial**\
 `Omar Artan fue uno de los 52 árbitros seleccionados para la Copa Mundial de la FIFA. Pero el sábado se le denegó la entrada por “preocupaciones de investigación de antecedentes”, dijeron funcionarios estadounidenses.`\
@@ -181,18 +193,6 @@ https://www.nytimes.com/2026/06/08/us/politics/trump-netanyahu-iran-call.html
 **Apple Reveals New A.I.-Powered Version of Its Siri Digital Assistant**\
 `The iPhone maker revealed its new artificial intelligence products at its developer conference, the last with Tim Cook as chief executive.`\
 https://www.nytimes.com/2026/06/08/technology/apple-ai-siri.html
-
-**Watch Parties Canceled as Police Tighten Security at N.B.A. Finals**\
-`President Trump and Mayor Zohran Mamdani are expected to attend the N.B.A. Finals game 3 between the New York Knicks and San Antonio Spurs.`\
-https://www.nytimes.com/video/us/100000010952671/knicks-spurs-nba-finals-security-trump.html
-
-**Who is Ahead in Florida's 2nd Congressional District?**\
-`Track the latest polls in Florida's 2nd Congressional District.`\
-https://www.nytimes.com/interactive/polls/florida-us-house-2-polls-2026.html
-
-**Sam Bankman-Fried Has Applied for a Pardon From Trump**\
-`Mr. Bankman-Fried is serving a 25-year prison sentence for fraud related to the collapse of his cryptocurrency exchange, FTX.`\
-https://www.nytimes.com/2026/06/08/technology/sam-bankman-fried-pardon-trump.html
 
 **Live Updates: Fans Greet Knicks With Cheers, and Trump With Boos**\
 `President Trump is attending Game 3 of the N.B.A. finals at Madison Square Garden, a game decades in the making for Knicks fans. Nervous but hopeful energy filled the city at watch parties big and small.`\
