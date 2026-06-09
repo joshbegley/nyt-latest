@@ -1,3 +1,7 @@
+**Crew Rescued After U.S. Helicopter Goes Down Near Strait of Hormuz**\
+`It was not immediately clear what led to the incident, which came at a time when the cease-fire in the war has grown tenuous.`\
+https://www.nytimes.com/2026/06/08/us/politics/us-helicopter-strait-of-hormuz.html
+
 **See the Famous Faces at the Knicks Game at Madison Square Garden**\
 `Here’s a look at some of the most prominent figures that attended Game 3 of the N.B.A. finals at Madison Square Garden.`\
 https://www.nytimes.com/interactive/2026/06/08/nyregion/nba-finals-knicks-celebrities-attendees.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/08/nyregion/oshae-sibley-murder-hate-crime.html
 **Trump Nominates Blanche for Attorney General, Setting Up Confirmation Fight**\
 `As acting attorney general, Todd Blanche has shown a willingness to execute the president’s maximalist demands. Whether the Senate will confirm him remains unclear.`\
 https://www.nytimes.com/2026/06/08/us/politics/trump-todd-blanche-attorney-general.html
-
-**Netanyahu Called Off Iran Strikes After Trump Claimed Progress in Nuclear Talks, Officials Say**\
-`Multiple officials said that the president told Israel’s leader that the United States and Iran were within days of a breakthrough that would clear the way for talks on a long-term nuclear deal.`\
-https://www.nytimes.com/2026/06/08/us/politics/trump-netanyahu-iran-call.html
 
 **Live Updates: Knicks Fans Bring Swagger and Nerves to Key Playoff Game**\
 `Madison Square Garden was a cauldron of noise for Game 3 of the N.B.A. finals. New York Knicks fans greeted President Trump with a round of booing.`\
