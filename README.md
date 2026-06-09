@@ -1,3 +1,7 @@
+**Somali Referee Says His World Cup Dream Is Dashed After U.S. Denies Entry**\
+`“I had the right papers and everything,” Omar Abdulkadir Artan said in his first interview since he was turned back. He would have been the first Somali to referee a game in the tournament.`\
+https://www.nytimes.com/2026/06/09/world/africa/somali-referee-world-cup-us-entry-omar-artan.html
+
 **Netanyahu’s Bow to Trump’s Iran Pressure Spurs New Criticism**\
 `Opponents attacked Prime Minister Benjamin Netanyahu for halting strikes against Iran after a call with President Trump, saying that he was letting the United States make Israel’s decisions.`\
 https://www.nytimes.com/2026/06/09/world/middleeast/netanyahus-trump-pressure-over-iran.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/09/arts/music/lost-music-venues-britain-v-and-a-
 **Dubai’s Economic Endurance Is Being Tested in War With Iran**\
 `As conflict ripples through the Persian Gulf, Dubai’s dependence on trade and travel has become an economic vulnerability.`\
 https://www.nytimes.com/2026/06/09/business/dubai-economy-iran-war.html
-
-**Taylor Swift’s Wedding Has Users Placing Bets on Polymarket and Kalshi**\
-`Call it “parasociality exploded” or an invasion of privacy, but that hasn’t stopped bettors on prediction market sites.`\
-https://www.nytimes.com/2026/06/09/style/taylor-swift-travis-kelce-wedding-betting.html
 
