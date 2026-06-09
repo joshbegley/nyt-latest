@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/06/09/climate/data-center-bans.html
 `Get live results and maps from the 2026 Maine primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-maine-us-house-2-primary.html
 
-**Democrats Accuse Republicans of Meddling in High-Stakes Maine Primary**\
+**Democrats Accuse Republicans of Meddling in Maine’s Second Congressional District Primary**\
 `A mysterious group has spent $500,000 to elevate a progressive candidate in the Democratic primary race for a key House seat.`\
 https://www.nytimes.com/2026/06/09/us/politics/democrats-republican-meddling-matt-dunlap-joe-baldacci.html
 
@@ -185,10 +185,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-us-
 **South Carolina First Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 South Carolina primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-us-house-1-primary.html
-
-**North Dakota At-Large Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 North Dakota primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-north-dakota-us-house-at-large-primary.html
 
 **Election Live Updates: Maine Primary Takes Center Stage in Fight for Senate Control**\
 `Graham Platner is widely expected to win the Democratic primary in Maine, setting the stage for a closely watched race against Susan Collins. Primaries are also underway in South Carolina, Nevada and North Dakota.`\
