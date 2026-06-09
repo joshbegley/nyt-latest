@@ -1,4 +1,4 @@
-**In a City That Often Feels Lonely, a Basketball Team Forges Fellowship**\
+**For Lonely Knicks Fans, Championship Run Forges Fellowship in NYC**\
 `The championship run by the Knicks has created a “love fest,” one fan said, and it has even given her a new circle of friends.`\
 https://www.nytimes.com/2026/06/08/nyregion/knicks-fans-lonely-no-more.html
 
@@ -114,7 +114,7 @@ https://www.nytimes.com/2026/06/08/briefing/iran-israel-strikes-todd-blanche.htm
 `The company hopes to raise billions in a highly anticipated public offering that could unlock a new generation of tech industry wealth.`\
 https://www.nytimes.com/2026/06/08/technology/openai-ipo.html
 
-**La tormenta tropical Boris se acerca México y Cristina crece cerca de Nicaragua**\
+**La tormenta tropical Boris se acerca a México y Cristina crece frente a Nicaragua**\
 `La temporada de huracanes en el Pacífico ya está muy activa.`\
 https://www.nytimes.com/es/2026/06/08/espanol/tiempo-y-clima/tormenta-tropical-boris-cristina-mexico.html
 

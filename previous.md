@@ -1,3 +1,11 @@
+**In a City That Often Feels Lonely, a Basketball Team Forges Fellowship**\
+`The championship run by the Knicks has created a “love fest,” one fan said, and it has even given her a new circle of friends.`\
+https://www.nytimes.com/2026/06/08/nyregion/knicks-fans-lonely-no-more.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/sports/100000010953986/08vid-knicks-trump-boo-30156.html
+
 **How Susan B. Anthony Used Language in the Fight for Women’s Rights**\
 `In the fight for women’s rights, language has always been a battleground, our critic Parul Seghal explains.`\
 https://www.nytimes.com/interactive/2026/06/08/arts/susan-b-anthony-womens-rights-word.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/video/opinion/100000010952747/why-people-are-obsessed-wi
 **Hiker, 18, Dies at Grand Canyon National Park Amid High Heat**\
 `The man was with his father on a popular, strenuous trail on a day that temperatures reached above 100 degrees in parts of the canyon, officials said.`\
 https://www.nytimes.com/2026/06/08/us/grand-canyon-hiker-death-heat.html
-
-**Vance Blames Migrant ‘Invasion’ for UK Stabbing**\
-`British officials accused Vice President JD Vance of trying to “stir up division” in his comments on the murder of Henry Nowak, whose killer was sentenced to life in prison last week.`\
-https://www.nytimes.com/2026/06/08/world/europe/vance-uk-stabbing-migrants.html
-
-**Mapa: la trayectoria de la tormenta tropical Cristina en vivo**\
-`Consulta la trayectoria probable y las horas de llegada de los vientos de Cristina.`\
-https://www.nytimes.com/es/interactive/2026/06/08/espanol/cristina-mapa-trayectoria.html
 
