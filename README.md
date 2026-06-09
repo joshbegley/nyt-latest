@@ -1,3 +1,7 @@
+**Behind the Pageantry in Pyongyang With Xi and Kim**\
+`Xi Jinping and Kim Jong-un projected unity and deeper ties this week but the dynamic between China and North Korea has evolved considerably.`\
+https://www.nytimes.com/interactive/2026/06/09/world/asia/north-korea-china-xi-kim-summit.html
+
 **Man Arrested in ‘Brutal’ Stabbing in Belfast, Police Say**\
 `The suspect, whom the police described as in his 30s and believed to be Somali, is alleged to have attacked another man in his 40s in an episode in Belfast that was recorded and spread quickly online.`\
 https://www.nytimes.com/2026/06/09/world/europe/belfast-stabbing-arrest-northern-ireland.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/09/style/taylor-swift-travis-kelce-wedding-betti
 **Is Frozen Yogurt Better for You Than Ice Cream?**\
 `We asked experts whether its health reputation is deserved.`\
 https://www.nytimes.com/2026/06/09/well/eat/frozen-yogurt-ice-cream-benefits.html
-
-**The Idea of Womanhood Drawing Big Crowds to a Small Town**\
-`Tourists are flocking to Midway, Utah. The Ballerina Farm Store, from the influencer whose brand revolves around motherhood and farm life, is a reason.`\
-https://www.nytimes.com/2026/06/09/us/tradwife-ballerina-farm-utah.html
 
