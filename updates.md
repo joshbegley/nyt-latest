@@ -1,3 +1,7 @@
+**La búsqueda de una conspiración desencadenó una crisis en el Departamento de Justicia**\
+`El impulso para investigar lo que los aliados de Trump consideraban una conspiración del “Estado profundo” que pretendía destituir al presidente desencadenó una crisis en cascada, acabó con carreras profesionales y socavó la credibilidad del Departamento ante los jueces.`\
+https://www.nytimes.com/es/2026/06/09/espanol/estados-unidos/conspiracion-trump-departamento-justicia.html
+
 **Wemby and the Spurs Bounce Back to Win Game 3**\
 `How did the San Antonio Spurs pull it off?`\
 https://www.nytimes.com/2026/06/09/podcasts/wembanyama-spurs-knicks-game-3-nba-finals.html
