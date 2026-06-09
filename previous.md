@@ -1,3 +1,7 @@
+**House defies Johnson and passes Democratic-led labor bill**\
+`Twenty G.O.P lawmakers broke with Speaker Mike Johnson and joined Democrats in backing a bill to amend the National Labor Relations Act.`\
+https://www.nytimes.com/2026/06/09/us/politics/house-passes-union-contract-bill-bucking-republican-leaders.html
+
 **5 Things to Know About Graham Platner, Democratic Senate Candidate in Maine**\
 `Mr. Platner, an oyster farmer running for a Senate seat on a progressive platform, has drawn a large following among Democrats in Maine. His campaign has also surfaced damaging reports about his personal history.`\
 https://www.nytimes.com/2026/06/09/us/politics/graham-platner-democrat-senate-maine.html
@@ -82,13 +86,13 @@ https://www.nytimes.com/2026/06/09/us/politics/south-carolina-nancy-mace-distric
 `It depends on both ideas and cultural inheritance.`\
 https://www.nytimes.com/2026/06/09/opinion/america-250-national-identity.html
 
-**G.M. Plans to Develop Energy Storage Batteries as E.V. Sales Flag**\
-`The carmaker will follow Tesla in making components for large batteries used by electric utilities, data centers and other businesses to handle fluctuations in power supply and demand.`\
-https://www.nytimes.com/2026/06/09/business/energy-environment/general-motors-storage-batteries-electric-vehicles.html
-
 **Everybody Is a Loser in This Middle East War**\
 `None of the participants in the recent wars of the Middle East can claim victory. All are to blame.`\
 https://www.nytimes.com/2026/06/09/opinion/middle-east-war-accountability-iran-us-trump.html
+
+**G.M. Plans to Develop Energy Storage Batteries as E.V. Sales Flag**\
+`The carmaker will follow Tesla in making components for large batteries used by electric utilities, data centers and other businesses to handle fluctuations in power supply and demand.`\
+https://www.nytimes.com/2026/06/09/business/energy-environment/general-motors-storage-batteries-electric-vehicles.html
 
 **Blanche Was Once Seen as Tempering Trump’s Tactics. Now He’s All In.**\
 `The ascendancy of Todd Blanche shows how the practices that were initially deemed out of bounds even in President Trump’s Justice Department seem to be the order of the day.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-nevada-us-house-3-
 **South Carolina Attorney General Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 South Carolina primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-attorney-general-primary.html
-
-**Nevada Treasurer Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Nevada primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-nevada-treasurer-primary.html
 

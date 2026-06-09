@@ -1,3 +1,7 @@
+**House defies Johnson and passes Democratic-led labor bill**\
+`Twenty G.O.P lawmakers broke with Speaker Mike Johnson and joined Democrats in backing a bill to amend the National Labor Relations Act.`\
+https://www.nytimes.com/2026/06/09/us/politics/house-passes-union-contract-bill-bucking-republican-leaders.html
+
 **5 Things to Know About Graham Platner, Democratic Senate Candidate in Maine**\
 `Mr. Platner, an oyster farmer running for a Senate seat on a progressive platform, has drawn a large following among Democrats in Maine. His campaign has also surfaced damaging reports about his personal history.`\
 https://www.nytimes.com/2026/06/09/us/politics/graham-platner-democrat-senate-maine.html
