@@ -1,3 +1,15 @@
+**Meet the NASA Astronauts in the Artemis III 4-Person Crew**\
+`NASA’s next mission in its effort to return humans to the moon will be led by an all-male crew. Three of them have extensive experience in space, while the other was a backup on Artemis II.`\
+https://www.nytimes.com/2026/06/09/science/space/artemis-iii-astronauts-nasa-crew.html
+
+**The Good That Can Come From Platner’s Candidacy**\
+`The Senate race in Maine is a chance to do away with inconsistent standards applied according to political bias.`\
+https://www.nytimes.com/2026/06/09/opinion/graham-platner-moral-hypocrisy.html
+
+**Knicks in ’73: Revisiting the Charts From a Championship Year**\
+`Listen to tracks from War, Vicki Lawrence and other artists who had hits in May 1973.`\
+https://www.nytimes.com/2026/06/09/arts/music/amplifier-newsletter-1973-tony-orlando-war.html
+
 **Are Taylor Swift and Travis Kelce Prepping for a New York Wedding?**\
 `Rumors are swirling. If the couple does say “I do” in the city, here are five venues that fit the scale of a celebration for a pop star and a star athlete.`\
 https://www.nytimes.com/2026/06/09/fashion/weddings/taylor-swift-travis-kelce-wedding-new-york.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-tre
 **Nevada Secretary of State Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Nevada primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-nevada-secretary-of-state-primary.html
-
-**North Dakota Constitutional Amendment 1: Live Election Results 2026**\
-`Get live results and maps from the 2026 North Dakota general election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-north-dakota-ballot-measure.html
-
-**South Carolina Attorney General Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 South Carolina primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-attorney-general-primary.html
-
-**Nevada Supreme Court Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Nevada primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-nevada-supreme-court-primary.html
 
 **Election Live Updates: Tumultuous Senate Primary in Maine Is Biggest Race as 4 States Vote**\
 `Graham Platner is widely expected to win the Democratic primary in Maine, for a seat that is key to the party’s hopes of winning the Senate. Primaries are also underway in South Carolina, Nevada and North Dakota.`\
