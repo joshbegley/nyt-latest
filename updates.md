@@ -1,3 +1,7 @@
+**How Ranked-Choice Voting Works in Maine**\
+`Proponents say the practice reduces partisanship, while critics say it is confusing and expensive.`\
+https://www.nytimes.com/2026/06/09/us/politics/maine-ranked-choice-voting-explained.html
+
 **Largest ICE Detention Hub Wasted Millions in Rush to Open, Report Says**\
 `Camp East Montana, in El Paso, was opened last year to make space for the Trump administration’s mass deportation campaign. Three people have since died at the center.`\
 https://www.nytimes.com/2026/06/09/us/camp-east-montana-texas-ice-detention-gao-report.html

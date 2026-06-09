@@ -1,3 +1,7 @@
+**Michigan Court Vacates Conviction Tied to Gretchen Whitmer Kidnapping Plot**\
+`The state appellate court vacated the convictions of Joseph Morrison, ruling that the trial judge had provided flawed instructions to the jury.`\
+https://www.nytimes.com/2026/06/09/us/michigan-whitmer-plot-convictions-overturned.html
+
 **How Ranked-Choice Voting Works in Maine**\
 `Proponents say the practice reduces partisanship, while critics say it is confusing and expensive.`\
 https://www.nytimes.com/2026/06/09/us/politics/maine-ranked-choice-voting-explained.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-north-dakota-attor
 **Nevada First Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Nevada primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-nevada-us-house-1-primary.html
-
-**South Carolina Fifth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 South Carolina primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-us-house-5-primary.html
 
