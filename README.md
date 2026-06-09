@@ -1,3 +1,15 @@
+**A.I. Politics**\
+`Much of the discussion about artificial intelligence focuses on economic disruption. But it could reshape political life, too.`\
+https://www.nytimes.com/2026/06/09/world/ai-politics-iran-world-cup.html
+
+**NASA Announces Artemis III Crew**\
+`NASA announced the crew of Artemis III mission, which will fly to low-Earth orbit to test rendezvous and docking maneuvers with one or two lunar landers.`\
+https://www.nytimes.com/video/science/space/100000010955125/nasa-announces-artemis-iii-crew.html
+
+**Are You Traveling to the U.S. for the 2026 World Cup? We’d Like to Hear From You.**\
+`Tell us about your experience buying tickets, finding a place to stay, making travel arrangements and, if you’re coming to the U.S., dealing with entry requirements.`\
+https://www.nytimes.com/2026/06/09/travel/world-cup-travel-us.html
+
 **Maine’s Primary Ballot Is Crowded With Members of Political Dynasties**\
 `Among other candidates with ties to prominent officials, a senator’s son and a Bush scion are running for governor.`\
 https://www.nytimes.com/2026/06/09/us/politics/maine-political-dynasty-king-pingree-bush.html
@@ -173,18 +185,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-maine-us-house-2-p
 **Democrats Accuse Republicans of Meddling in Maine’s Second Congressional District Primary**\
 `A mysterious group has spent $500,000 to elevate a progressive candidate in the Democratic primary race for a key House seat.`\
 https://www.nytimes.com/2026/06/09/us/politics/democrats-republican-meddling-matt-dunlap-joe-baldacci.html
-
-**New York City Schools Chancellor Being Investigated Over No-Bid Contract**\
-`The chancellor, Kamar Samuels, acknowledged a “lapse in procedure,” amid an investigation into a $180,000 contract for foreign language instructors.`\
-https://www.nytimes.com/2026/06/09/nyregion/nyc-chancellor-contract-investigation.html
-
-**Maine First Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Maine primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-maine-us-house-1-primary.html
-
-**House Votes to Advance $70 Billion G.O.P. Immigration Bill**\
-`The test vote cleared the way for final passage of Republicans’ megabill to fund immigration enforcement through the remainder of President Trump’s term.`\
-https://www.nytimes.com/2026/06/09/us/politics/house-immigration-bill.html
 
 **Election Live Updates: Maine Primary Takes Center Stage in Fight for Senate Control**\
 `Graham Platner is widely expected to win the Democratic primary in Maine, setting the stage for a closely watched race against Susan Collins. Primaries are also underway in South Carolina, Nevada and North Dakota.`\
