@@ -1,3 +1,19 @@
+**South Carolina Voters Are Choosing Nominees to Fill an Open Seat in Congress**\
+`Representative Nancy Mace’s run for governor created the opening in the coastal First Congressional District. Republicans are expected to hold it, but one Democrat has proved to be a prolific fund-raiser.`\
+https://www.nytimes.com/2026/06/09/us/politics/south-carolina-nancy-mace-district-1.html
+
+**For America’s 250th, Let’s Get Something Clear About Our National Identity**\
+`Our national identity depends on both ideas and cultural inheritance.`\
+https://www.nytimes.com/2026/06/09/opinion/america-250-national-identity.html
+
+**G.M. Plans to Sell Energy Storage Batteries as E.V. Sales Flag**\
+`The carmaker will follow Tesla in making large batteries used by electric utilities, data centers and other businesses to handle fluctuations in power supply and demand.`\
+https://www.nytimes.com/2026/06/09/business/energy-environment/general-motors-storage-batteries-electric-vehicles.html
+
+**Everybody Is a Loser in This Mideast War**\
+`None of the participants in the recent wars of the Middle East can claim victory. All are to blame.`\
+https://www.nytimes.com/2026/06/09/opinion/middle-east-war-accountability-iran-us-trump.html
+
 **Blanche Was Once Seen as Tempering Trump’s Tactics. Now He’s All In.**\
 `The ascendancy of Todd Blanche shows how the practices that were initially deemed out of bounds even in President Trump’s Justice Department seem to be the order of the day.`\
 https://www.nytimes.com/2026/06/09/us/politics/blanche-trump-justice-department-retribution.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-nevada-attorney-ge
 **Meta A.I. Bug Allowed Hackers to Take Over Instagram Accounts**\
 `The flaw, which Meta said it had fixed, allowed anyone to take over Instagram accounts using a bug in the company’s new artificial intelligence software.`\
 https://www.nytimes.com/2026/06/09/technology/instagram-hack-ai-bug.html
-
-**Why ‘Just-Rolled-Out-of-Bed’ Hairstyles Are Now in Fashion**\
-`With messy mops showing up on both runways and red carpets, the key to fashion’s new favorite hairstyle is doing less.`\
-https://www.nytimes.com/2026/06/09/t-magazine/messy-hair-bed-head-fashion-style.html
-
-**Traditional Republicans Clash With MAGA Wing in Nevada House Primary**\
-`At stake is the seat held by Representative Mark Amodei, a Republican in northern Nevada who is retiring from his reliably red district.`\
-https://www.nytimes.com/2026/06/09/us/politics/nevada-second-district-primary-maga-republicans.html
-
-**Teen Who Killed Competitor at Texas Track Meet Is Found Guilty of Murder**\
-`Karmelo Anthony, 19, was convicted of murder for the killing of Austin Metcalf, another student, at a high school sporting event last year in a case that drew national attention.`\
-https://www.nytimes.com/2026/06/09/us/karmelo-anthony-murder-verdict-guilty.html
-
-**Election Live Updates: Maine Primary Takes Center Stage in Fight for Senate Control**\
-`Graham Platner is widely expected to win the Democratic primary in Maine, setting the stage for a closely watched race against Susan Collins. Primaries are also underway in South Carolina, Nevada and North Dakota.`\
-https://www.nytimes.com/live/2026/06/09/us/elections-maine-sc-nv-nd-primaries
 
