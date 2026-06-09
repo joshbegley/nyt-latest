@@ -1,3 +1,7 @@
+**U.S. Exports Rose in April, as War with Iran Buoyed Oil Demand**\
+`Commerce Department data showed exports rose 2.6 percent in April to $327.1 billion.`\
+https://www.nytimes.com/2026/06/09/business/economy/us-trade-deficit-oil-iran.html
+
 **OpenAI Tests Investor Appetite for Yet Another Giant I.P.O.**\
 `Some analysts are wondering whether the market can absorb the artificial intelligence giant’s planned stock offering — along with those of SpaceX and Anthropic.`\
 https://www.nytimes.com/2026/06/09/business/dealbook/openai-ipo-spacex-anthropic.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/09/magazine/chat-genz-twitch.html
 **It’s Prom Night in America**\
 `This year the food, vibes, clothes and choice of a date (do you even need one?) are all over the map. Here’s a peek at five prime proms.`\
 https://www.nytimes.com/interactive/2026/06/09/dining/prom-night-dinners-america.html
-
-**Inside a World Cup Nerve Center Monitoring Fans, Drones and Heat**\
-`Officials in North Texas will watch for potential threats from a new $40 million emergency operations center, one of many new security precautions in place across North America.`\
-https://www.nytimes.com/2026/06/09/us/world-cup-security.html
 
