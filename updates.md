@@ -1,3 +1,11 @@
+**6 Countries Announce Sanctions Targeting Israeli Settler Networks**\
+`The measures aim to “disrupt the flows of finance” supporting attacks on Palestinians in the West Bank, said the British government, which coordinated them with France and other nations.`\
+https://www.nytimes.com/2026/06/09/world/middleeast/west-bank-israeli-settlers-sanction.html
+
+**Paramount CEO David Ellison Pledges Editorial Independence for ‘60 Minutes’**\
+`David Ellison told Lesley Stahl, one of three remaining correspondents for the news program, that he would respect the show’s editorial decisions after a tumultuous stretch.`\
+https://www.nytimes.com/2026/06/09/business/media/60-minutes-david-ellison-paramount.html
+
 **8 Arrested After Ruckus Near Knicks Watch Party at Bryant Park**\
 `Two other sanctioned watch parties for Game 3 of the N.B.A. finals proceeded without much incident in the city.`\
 https://www.nytimes.com/2026/06/09/nyregion/knicks-arrests-game-3.html

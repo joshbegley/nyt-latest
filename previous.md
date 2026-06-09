@@ -1,3 +1,7 @@
+**6 Countries Announce Sanctions Targeting Israeli Settler Networks**\
+`The measures aim to “disrupt the flows of finance” supporting attacks on Palestinians in the West Bank, said the British government, which coordinated them with France and other nations.`\
+https://www.nytimes.com/2026/06/09/world/middleeast/west-bank-israeli-settlers-sanction.html
+
 **8 Arrested After Ruckus Near Knicks Watch Party at Bryant Park**\
 `Two other sanctioned watch parties for Game 3 of the N.B.A. finals proceeded without much incident in the city.`\
 https://www.nytimes.com/2026/06/09/nyregion/knicks-arrests-game-3.html
@@ -14,9 +18,9 @@ https://www.nytimes.com/2026/06/09/us/politics/trump-helicopter-iran-war.html
 `Experts have been hopeful, but say the agency’s lunar aspirations are largely at the whims of two billionaires, Elon Musk and Jeff Bezos.`\
 https://www.nytimes.com/2026/06/09/science/space/nasa-artemis-moon-landing.html
 
-**Paramount C.E.O. Promises Editorial Independence for ‘60 Minutes’**\
+**Paramount CEO David Ellison Pledges Editorial Independence for ‘60 Minutes’**\
 `David Ellison told Lesley Stahl, one of three remaining correspondents for the news program, that he would respect the show’s editorial decisions after a tumultuous stretch.`\
-https://www.nytimes.com/2026/06/09/business/media/paramount-ceo-editorial-independence-60-minutes.html
+https://www.nytimes.com/2026/06/09/business/media/60-minutes-david-ellison-paramount.html
 
 **Welcome to Believing**\
 `I’m excited to explore how people find meaning in their lives — in religious, spiritual or secular spaces — with you.`\
@@ -189,10 +193,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-nevada-treasurer-p
 **Nevada Controller Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Nevada primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-nevada-controller-primary.html
-
-**Nevada Third Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Nevada primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-nevada-us-house-3-primary.html
 
 **Election Live Updates: Tumultuous Senate Primary in Maine Is Biggest Race as 4 States Vote**\
 `Graham Platner is widely expected to win the Democratic primary in Maine, for a seat that is key to the party’s hopes of winning the Senate. Primaries are also underway in South Carolina, Nevada and North Dakota.`\
