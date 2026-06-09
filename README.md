@@ -182,10 +182,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-us-
 `Get live results and maps from the 2026 Maine primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-maine-us-house-1-primary.html
 
-**South Carolina Fourth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 South Carolina primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-us-house-4-primary.html
-
 **Election Live Updates: Maine Primary Takes Center Stage in Fight for Senate Control**\
 `Graham Platner is widely expected to win the Democratic primary in Maine, setting the stage for a closely watched race against Susan Collins. Primaries are also underway in South Carolina, Nevada and North Dakota.`\
 https://www.nytimes.com/live/2026/06/09/us/elections-maine-sc-nv-nd-primaries

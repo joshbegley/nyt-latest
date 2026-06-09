@@ -1,3 +1,7 @@
+**Para este árbitro somalí, el Mundial terminó cuando EE. UU. le negó la entrada**\
+`“Tenía los papeles en regla y todo”, dijo Omar Abdulkadir Artan en su primera entrevista desde que fue enviado de regreso. Habría sido el primer somalí en arbitrar un partido del torneo.`\
+https://www.nytimes.com/es/2026/06/09/espanol/deportes/somalia-arbitro-entrevista-exclusiva.html
+
 **Democrats Accuse Republicans of Meddling in Maine’s Second Congressional District Primary**\
 `A mysterious group has spent $500,000 to elevate a progressive candidate in the Democratic primary race for a key House seat.`\
 https://www.nytimes.com/2026/06/09/us/politics/democrats-republican-meddling-matt-dunlap-joe-baldacci.html
