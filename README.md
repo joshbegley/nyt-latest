@@ -1,3 +1,7 @@
+**Xi Jinping Makes Rare Trip to North Korea to Court Kim Jong-Un**\
+`North Korean and Chinese state media footage showed China’s leader, Xi Jinping, arriving in Pyongyang, North Korea, for a summit with his counterpart, Kim Jong-un. The visit aimed to strengthen ties between the two nations.`\
+https://www.nytimes.com/video/world/asia/100000010954313/xi-north-korea-visit.html
+
 **La clase media de EE. UU. no se está encogiendo**\
 `En lugar de que los ricos se hicieran más ricos y los pobres más pobres, ricos y pobres se han enriquecido por igual.`\
 https://www.nytimes.com/es/2026/06/09/espanol/opinion/clase-media-dinero-ricos-pobres.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/08/nyregion/sherrill-nj-delaney-hall.html
 **Trump Previews Fall Strategy With Baseless Claims of California Vote Fraud**\
 `The president is using the slow count of mail ballots in California to renew his effort to cast doubt on election outcomes he doesn’t like, despite a lack of evidence of any widespread fraud.`\
 https://www.nytimes.com/2026/06/08/us/politics/trump-election-fraud-strategy-california.html
-
-**Three Questions About the Maine and South Carolina Primaries**\
-`Graham Platner and Lindsey Graham are both hoping for comfortably big victories.`\
-https://www.nytimes.com/2026/06/08/us/politics/maine-south-carolina-primaries.html
 
