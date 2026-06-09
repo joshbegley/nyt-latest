@@ -1,3 +1,7 @@
+**Night With the Knicks: Rancor, Jubilation and an Unusual Loss**\
+`The night began with frustration and boos, and not because of the Knicks. But by the end of Game 3 of the N.B.A. finals, the team had slightly deflated some spirits, too.`\
+https://www.nytimes.com/2026/06/09/nyregion/knicks-spurs-game-3-trump.html
+
 **Alcohol’s Health Risks Accelerate After One Drink a Day, Study Finds**\
 `The alcohol industry has criticized the research, which found that even light drinking increases the risk of premature death.`\
 https://www.nytimes.com/2026/06/09/well/alcohol-health-risks-study.html

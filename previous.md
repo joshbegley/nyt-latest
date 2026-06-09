@@ -1,3 +1,7 @@
+**Night With the Knicks: Rancor, Jubilation and an Unusual Loss**\
+`The night began with frustration and boos, and not because of the Knicks. But by the end of Game 3 of the N.B.A. finals, the team had slightly deflated some spirits, too.`\
+https://www.nytimes.com/2026/06/09/nyregion/knicks-spurs-game-3-trump.html
+
 **Alcohol’s Health Risks Accelerate After One Drink a Day, Study Finds**\
 `The alcohol industry has criticized the research, which found that even light drinking increases the risk of premature death.`\
 https://www.nytimes.com/2026/06/09/well/alcohol-health-risks-study.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/es/2026/06/08/espanol/estados-unidos/trump-ufc-casa-blan
 **Iran and Israel Pull Back, After Fierce Exchange of Attacks**\
 `The conflict between Israel and Hezbollah, an Iranian-backed militia, is complicating efforts to end the war in Iran.`\
 https://www.nytimes.com/2026/06/08/world/middleeast/iran-israel-strikes-ceasefire-hezbollah.html
-
-**Kim Jong-un’s Triumph**\
-`He leveraged the war in Ukraine to become North Korea’s most powerful leader to date.`\
-https://www.nytimes.com/2026/06/08/world/kim-jong-un-north-korea-china.html
 
 **Knicks Fans Bring Swagger and Nerves to Key Playoff Game**\
 `Madison Square Garden was a cauldron of noise for Game 3 of the N.B.A. finals. New York Knicks fans greeted President Trump with a round of booing.`\
