@@ -1,3 +1,15 @@
+**Largest ICE Detention Hub Wasted Millions in Rush to Open, Report Says**\
+`Camp East Montana, in El Paso, was opened last year to make space for the Trump administration’s mass deportation campaign. Three people have since died at the center.`\
+https://www.nytimes.com/2026/06/09/us/camp-east-montana-texas-ice-detention-gao-report.html
+
+**Son of Author Michael Chabon Pleads Guilty to Choking Charge**\
+`Abraham Chabon’s plea resolves a case in which he initially faced a rape charge that prosecutors later dropped for lack of proof.`\
+https://www.nytimes.com/2026/06/09/nyregion/abraham-chabon-choking-charge.html
+
+**John Basinger, Who Memorized All 12 Books of ‘Paradise Lost,’ Dies at 92**\
+`After nearly nine years of practice, he made John Milton’s epic poem vividly dramatic for audiences and inspired a study of his “memory virtuosity.”`\
+https://www.nytimes.com/2026/06/09/arts/john-basinger-dead.html
+
 **South Carolina Voters Are Choosing Nominees to Fill an Open Seat in Congress**\
 `Representative Nancy Mace’s run for governor created the opening in the coastal First Congressional District. Republicans are expected to hold it, but one Democrat has proved to be a prolific fund-raiser.`\
 https://www.nytimes.com/2026/06/09/us/politics/south-carolina-nancy-mace-district-1.html
@@ -26,7 +38,7 @@ https://www.nytimes.com/2026/06/09/well/fda-sunscreen-bemotrizinol-approval.html
 `From court cases to political scandals to murder, the city has long been racked with conflict over what to do with cars when they’re not being driven.`\
 https://www.nytimes.com/interactive/2026/06/09/nyregion/nyc-parking-cars-history.html
 
-**This Parking Spot is Free. Should It Be?**\
+**This Parking Spot Is Free. Should It Be?**\
 `There are about three million parking spaces in New York City, but drivers are always struggling to find one that’s open. Can the system be fixed?`\
 https://www.nytimes.com/interactive/2026/06/09/nyregion/nyc-street-parking.html
 
@@ -185,16 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-us-
 **Nevada Supreme Court Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Nevada primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-nevada-supreme-court-primary.html
-
-**Nevada Governor Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Nevada primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-nevada-governor-primary.html
-
-**Nevada Attorney General Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Nevada primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-nevada-attorney-general-primary.html
-
-**Meta A.I. Bug Allowed Hackers to Take Over Instagram Accounts**\
-`The flaw, which Meta said it had fixed, allowed anyone to take over Instagram accounts using a bug in the company’s new artificial intelligence software.`\
-https://www.nytimes.com/2026/06/09/technology/instagram-hack-ai-bug.html
 

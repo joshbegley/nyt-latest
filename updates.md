@@ -1,3 +1,19 @@
+**Largest ICE Detention Hub Wasted Millions in Rush to Open, Report Says**\
+`Camp East Montana, in El Paso, was opened last year to make space for the Trump administration’s mass deportation campaign. Three people have since died at the center.`\
+https://www.nytimes.com/2026/06/09/us/camp-east-montana-texas-ice-detention-gao-report.html
+
+**Son of Author Michael Chabon Pleads Guilty to Choking Charge**\
+`Abraham Chabon’s plea resolves a case in which he initially faced a rape charge that prosecutors later dropped for lack of proof.`\
+https://www.nytimes.com/2026/06/09/nyregion/abraham-chabon-choking-charge.html
+
+**John Basinger, Who Memorized All 12 Books of ‘Paradise Lost,’ Dies at 92**\
+`After nearly nine years of practice, he made John Milton’s epic poem vividly dramatic for audiences and inspired a study of his “memory virtuosity.”`\
+https://www.nytimes.com/2026/06/09/arts/john-basinger-dead.html
+
+**This Parking Spot Is Free. Should It Be?**\
+`There are about three million parking spaces in New York City, but drivers are always struggling to find one that’s open. Can the system be fixed?`\
+https://www.nytimes.com/interactive/2026/06/09/nyregion/nyc-street-parking.html
+
 **South Carolina Voters Are Choosing Nominees to Fill an Open Seat in Congress**\
 `Representative Nancy Mace’s run for governor created the opening in the coastal First Congressional District. Republicans are expected to hold it, but one Democrat has proved to be a prolific fund-raiser.`\
 https://www.nytimes.com/2026/06/09/us/politics/south-carolina-nancy-mace-district-1.html
