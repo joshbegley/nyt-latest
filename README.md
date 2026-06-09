@@ -1,3 +1,7 @@
+**Germany Drops Plan to Build Warplane With Allies, Hindering Push to Rearm**\
+`Berlin pulled out of the Future Combat Air System, a project with Spain and France that had been seen as central to European efforts to face down Russia and reduce reliance on the United States.`\
+https://www.nytimes.com/2026/06/09/world/europe/europe-fighter-fcas-germany-france.html
+
 **Fireboat Joins a Fleet of Floating N.Y.C. Bars**\
 `Malvan serves up Goan cuisine, Forno d’Oro fires pizzas with a pedigree and more restaurant news.`\
 https://www.nytimes.com/2026/06/09/dining/nyc-restaurant-news.html
@@ -177,12 +181,4 @@ https://www.nytimes.com/interactive/polls/florida-us-house-27-polls-2026.html
 **Who Is Ahead in Florida's 23rd Congressional District?**\
 `Track the latest polls in Florida's 23rd Congressional District.`\
 https://www.nytimes.com/interactive/polls/florida-us-house-23-polls-2026.html
-
-**Who Is Ahead in Florida's 20th Congressional District?**\
-`Track the latest polls in Florida's 20th Congressional District.`\
-https://www.nytimes.com/interactive/polls/florida-us-house-20-polls-2026.html
-
-**Who Is Ahead in Florida's 19th Congressional District?**\
-`Track the latest polls in Florida's 19th Congressional District.`\
-https://www.nytimes.com/interactive/polls/florida-us-house-19-polls-2026.html
 
