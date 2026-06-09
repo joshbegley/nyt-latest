@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/06/09/us/politics/susan-collins-republican-senate-m
 `The 23-time Grand Slam singles champion and her doubles partner, Victoria Mboko, beat the No. 3 seeds at the Queen’s Club in west London on Tuesday.`\
 https://www.nytimes.com/video/sports/tennis/100000010956318/williams-tennis-match-doubles-win.html
 
-**Doris Matsui Will Face Democratic Challenger in Intraparty Generational Fight**\
+**Doris Matsui to Face Mai Vang in General Election for Sacramento House Seat**\
 `Mai Vang, a progressive member of the Sacramento City Council, will challenge Ms. Matsui, the 81-year-old incumbent, in the general election.`\
 https://www.nytimes.com/2026/06/09/us/politics/california-house-district-7.html
 
