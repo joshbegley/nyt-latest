@@ -1,3 +1,7 @@
+**After Saying See You Later to Louisiana Police, Man Is Attacked by Alligator**\
+`The driver, who was charged with driving while impaired, suffered non-life-threatening injuries, authorities said.`\
+https://www.nytimes.com/2026/06/09/us/man-attacked-alligator-louisiana.html
+
 **After Saying See You Later to Louisiana Police, Man Attacked by Alligator**\
 `The driver, who was charged with driving while impaired, suffered non-life-threatening injuries, authorities said.`\
 https://www.nytimes.com/2026/06/09/us/man-attacked-alligator-louisiana.html
