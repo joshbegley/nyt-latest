@@ -1,3 +1,11 @@
+**Man Arrested in ‘Brutal’ Stabbing in Belfast, Police Say**\
+`The suspect, whom the police described as in his 30s and believed to be Somali, is alleged to have attacked another man in his 40s in an episode in Belfast that was recorded and spread quickly online.`\
+https://www.nytimes.com/2026/06/09/world/europe/belfast-stabbing-arrest-northern-ireland.html
+
+**Word Choices**\
+`We explore six sentences that have shaped the American story.`\
+https://www.nytimes.com/2026/06/09/briefing/word-choices-declaration-independence.html
+
 **El triunfo de Kim Jong-un**\
 `El dirigente aprovechó la guerra de Ucrania para convertirse en el líder más poderoso de Corea del Norte hasta la fecha.`\
 https://www.nytimes.com/es/2026/06/09/espanol/mundo/kim-jong-un-corea-norte.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/09/well/eat/frozen-yogurt-ice-cream-benefits.htm
 **The Idea of Womanhood Drawing Big Crowds to a Small Town**\
 `Tourists are flocking to Midway, Utah. The Ballerina Farm Store, from the influencer whose brand revolves around motherhood and farm life, is a reason.`\
 https://www.nytimes.com/2026/06/09/us/tradwife-ballerina-farm-utah.html
-
-**In the Hybrid A.I.-Human Work Force, Who Will Actually Thrive?**\
-`A panel of experts explains how job seekers should prepare for the future of work.`\
-https://www.nytimes.com/2026/06/09/magazine/ai-jobs-workforce-labor.html
-
-**The Ex-Mayor of Arcadia, Her Boyfriend and the Chinese Government**\
-`Eileen Wang pleaded guilty to acting as a foreign agent. But what could Beijing want from the mayor of a small California city known as the “Chinese Beverly Hills”?`\
-https://www.nytimes.com/2026/06/09/us/politics/eileen-wang-arcadia-california-mayor-china.html
 

@@ -1,3 +1,7 @@
+**El triunfo de Kim Jong-un**\
+`El dirigente aprovechó la guerra de Ucrania para convertirse en el líder más poderoso de Corea del Norte hasta la fecha.`\
+https://www.nytimes.com/es/2026/06/09/espanol/mundo/kim-jong-un-corea-norte.html
+
 **The Holdup at the Center of the Iran Talks, and Trump’s Baseless New Claims of Voter Fraud**\
 `Plus, “I’m busy, but you can talk to my A.I. twin.”`\
 https://www.nytimes.com/2026/06/09/podcasts/the-headlines/the-holdup-at-the-center-of-the-iran-talks-and-trumps-baseless-new-claims-of-voter-fraud.html

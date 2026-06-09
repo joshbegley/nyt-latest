@@ -1,3 +1,7 @@
+**El triunfo de Kim Jong-un**\
+`El dirigente aprovechó la guerra de Ucrania para convertirse en el líder más poderoso de Corea del Norte hasta la fecha.`\
+https://www.nytimes.com/es/2026/06/09/espanol/mundo/kim-jong-un-corea-norte.html
+
 **The Holdup at the Center of the Iran Talks, and Trump’s Baseless New Claims of Voter Fraud**\
 `Plus, “I’m busy, but you can talk to my A.I. twin.”`\
 https://www.nytimes.com/2026/06/09/podcasts/the-headlines/the-holdup-at-the-center-of-the-iran-talks-and-trumps-baseless-new-claims-of-voter-fraud.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/09/magazine/ai-jobs-workforce-labor.html
 **The Ex-Mayor of Arcadia, Her Boyfriend and the Chinese Government**\
 `Eileen Wang pleaded guilty to acting as a foreign agent. But what could Beijing want from the mayor of a small California city known as the “Chinese Beverly Hills”?`\
 https://www.nytimes.com/2026/06/09/us/politics/eileen-wang-arcadia-california-mayor-china.html
-
-**Sting Never Gave Up on His Musical ‘The Last Ship.’ Now It’s Back**\
-`After his 2014 musical failed on Broadway, the musician is bringing a revised version of it to the Metropolitan Opera for a limited run this week.`\
-https://www.nytimes.com/2026/06/09/theater/sting-the-last-ship-metropolitan-opera.html
 
