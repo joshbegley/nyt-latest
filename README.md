@@ -1,3 +1,11 @@
+**Iran War Live Updates: Israel Warns of New Strikes in Southern Lebanon**\
+`The warnings came a day after Israel and Iran pulled back from direct confrontation. The Israeli campaign against the Lebanese militia Hezbollah has been an obstacle in U.S.-Iran peace talks.`\
+https://www.nytimes.com/live/2026/06/09/world/iran-war-trump-israel-lebanon
+
+**Oil Prices Ease as Iran and Israel Halt Strikes**\
+`Oil prices fell after Israel and Iran agreed to halt strikes against each other, easing fears of a broader regional conflict that had briefly driven crude higher.`\
+https://www.nytimes.com/2026/06/09/business/oil-gas-prices-iran.html
+
 **Can Democrats Move Beyond Their Failed Foreign Policy?**\
 `Matt Duss, Senator Bernie Sanders’s former foreign policy adviser, argues that Democrats need a foreign policy reckoning.`\
 https://www.nytimes.com/2026/06/09/opinion/ezra-klein-podcast-matt-duss.html
@@ -55,7 +63,7 @@ https://www.nytimes.com/2026/06/09/dining/restaurant-review-sqirl-los-angeles.ht
 https://www.nytimes.com/2026/06/09/realestate/paris-pied-a-terre-saint-germain-des-pres.html
 
 **Ukraine’s Neighbors Seek Shelter as More and More Drones Fly Overhead**\
-`Drones launched by both Russia and Ukraine are veering off course, sending people in countries not at war running for shelter.`\
+`Drones launched by both Russia and Ukraine are veering off course, menacing countries that are not at war.`\
 https://www.nytimes.com/2026/06/09/world/europe/russia-ukraine-drones-nato-lithuania-romania.html
 
 **A Gabled Penthouse Atop the Dakota Is on the Market for $8 Million**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/09/pageoneplus/medical-advances.html
 **NYT Spelling Bee Answers for June 9, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/06/09/crosswords/spelling-bee-forum.html
-
-**Late Night Roasts Trump for Walking Out on ‘Meet the Press’**\
-`Jon Stewart called the president’s interview his “worst nightmare: a woman who won’t stop asking pertinent questions.”`\
-https://www.nytimes.com/2026/06/09/arts/television/late-night-jon-stewart-trump-meet-the-press.html
-
-**Las obras de Frida Kahlo vuelven a brillar en el Museo Dolores Olmedo**\
-`La gran mecenas de Diego Rivera, Dolores Olmedo, consideraba a Frida como una rival, pero compró 26 de sus obras de arte, la mayor colección. Sus obras se exponen en Ciudad de México.`\
-https://www.nytimes.com/es/2026/06/09/espanol/cultura/frida-kahlo-museo-dolores-olmedo.html
 

@@ -1,3 +1,83 @@
+**Can Democrats Move Beyond Their Failed Foreign Policy?**\
+`Matt Duss, Senator Bernie Sanders’s former foreign policy adviser, argues that Democrats need a foreign policy reckoning.`\
+https://www.nytimes.com/2026/06/09/opinion/ezra-klein-podcast-matt-duss.html
+
+**¿El yogur helado es más saludable que el helado?**\
+`¿Es superior en cuanto a valor nutricional o se trata solo de una estrategia de mercadeo? Le pedimos a expertos en nutrición que nos dieran su opinión.`\
+https://www.nytimes.com/es/2026/06/09/espanol/yogur-helado-salud.html
+
+**If Winning Is Everything, Is Anything Off Limits?**\
+`The “fake news” revolution is in full swing.`\
+https://www.nytimes.com/2026/06/09/opinion/campaign-tactics-lies-misinformation.html
+
+**Copa Mundial 2026: qué hacer en cada ciudad**\
+`La fiesta más grande del mundo está por comenzar. Aquí te decimos cómo puedes disfrutar cada emocionante minuto.`\
+https://www.nytimes.com/es/interactive/2026/06/09/travel/mundial-2026-que-hacer-mexico-canada-ee-uu.html
+
+**Why This Ebola Outbreak Could End Up Being the Worst One in History**\
+`The situation in eastern Congo and Uganda combines some of the most dangerous aspects of the 2014 and 2018 Ebola outbreaks.`\
+https://www.nytimes.com/interactive/2026/06/09/opinion/ebola-outbreak-africa-usaid.html
+
+**The Roar of ‘Cease-Fire’ in a Once-Thriving City**\
+`The city of Nabatieh once spoke to the changing fortunes of Lebanon. Now, amid unending war, it speaks to the country’s worst fears.`\
+https://www.nytimes.com/2026/06/09/world/middleeast/lebanon-israel-nabatieh.html
+
+**Democratic Group Kicks Off $50 Million Midterm Blitz in Conservative Strongholds**\
+`American Bridge is hoping that Republicans are vulnerable in parts of the country that had been exceedingly tough terrain for Democrats in recent elections.`\
+https://www.nytimes.com/2026/06/09/us/politics/democrat-election-ads-american-bridge.html
+
+**If Only There Was a World Cup for Complaining About the World Cup**\
+`There is a lot to gripe about. There’s also a lot to like.`\
+https://www.nytimes.com/2026/06/09/opinion/world-cup-fifa-tickets-prices.html
+
+**The Gustavo Dudamel Era in Los Angeles Approaches Its End**\
+`Gustavo Dudamel’s last concerts at Walt Disney Concert Hall as the Los Angeles Philharmonic’s maestro were a symbol of his impact after 17 years.`\
+https://www.nytimes.com/2026/06/09/arts/music/gustavo-dudamel-la-phil.html
+
+**Kyle Gallner Is More Than Just a Scream King**\
+`The actor has become a reliable horror star — but he’s also delivered compelling performances in offbeat movies like “Dinner in America” and “Strange Darling.”`\
+https://www.nytimes.com/2026/06/09/movies/kyle-gallner-interview.html
+
+**NASA Will Announce New Artemis III Astronauts and an Update on Its Moon Program**\
+`The agency will announce the crew of Artemis III on Tuesday. But will the mission be ready to fly in 2027?`\
+https://www.nytimes.com/2026/06/09/science/nasa-new-artemis-astronauts.html
+
+**What’s the Left’s Vision for Foreign Policy After Trump?**\
+`Matt Duss, Senator Bernie Sanders’s former foreign policy adviser, argues that Democrats need a foreign policy reckoning.`\
+https://www.nytimes.com/video/opinion/100000010948137/whats-the-lefts-vision-for-foreign-policy-after-trump.html
+
+**Sqirl’s Dream of Los Angeles, Now at Dinnertime**\
+`Years after the JamGate scandal, the brunch darling is open evenings. And it’s really working.`\
+https://www.nytimes.com/2026/06/09/dining/restaurant-review-sqirl-los-angeles.html
+
+**A Paris Pied-à-Terre, Designed for a Daughter**\
+`A designer’s elegant apartment renovation in Saint-Germain-des-Prés.`\
+https://www.nytimes.com/2026/06/09/realestate/paris-pied-a-terre-saint-germain-des-pres.html
+
+**Ukraine’s Neighbors Seek Shelter as More and More Drones Fly Overhead**\
+`Drones launched by both Russia and Ukraine are veering off course, sending people in countries not at war running for shelter.`\
+https://www.nytimes.com/2026/06/09/world/europe/russia-ukraine-drones-nato-lithuania-romania.html
+
+**A Gabled Penthouse Atop the Dakota Is on the Market for $8 Million**\
+`The Upper West Side duplex was the longtime home of the art experts Stephen and Polly Rubin and is being sold by their estate.`\
+https://www.nytimes.com/2026/06/09/realestate/the-dakota-penthouse-stephen-polly-rubin.html
+
+**She’s Set to Swim the Entire 900-Mile California Coast — Sharks Permitting**\
+`Swimming 900 miles won’t be “the worst way to spend four months,” Catherine Breed says — as long as the great whites, jellyfish and elephant seals leave her alone.`\
+https://www.nytimes.com/2026/06/09/us/catherine-breed-california-coast-swimming.html
+
+**Will Platner Scandals Dampen Democratic Vote? What to Watch in Tuesday’s Primaries.**\
+`Any indication of tepid support for Graham Platner, a Democratic candidate for Senate in Maine, will be seen as a warning sign about his chances against Senator Susan Collins, the Republican incumbent.`\
+https://www.nytimes.com/2026/06/09/us/politics/primary-elections-today-maine-sc-explainer.html
+
+**At City Ballet, Spring Fever Hit, With Ups and Some Dispiriting Downs**\
+`New York City Ballet ended its season on a positive note with “Coppélia,” but the repertory tipped too heavily into unimportant ballets.`\
+https://www.nytimes.com/2026/06/09/arts/dance/new-york-city-ballet-spring-season.html
+
+**A Gardening Guide to Large-Leaf Plants**\
+`Managing the scale of your foliage can give your landscapes surprising ways to catch the eye.`\
+https://www.nytimes.com/2026/06/09/realestate/large-leaf-garden-plants.html
+
 **5 Great North American Biking Cities**\
 `Safe, scenic pedaling opportunities abound in cities like Seattle, Montreal and Atlanta. Here are routes that will take you past waterways, through parks and along protected urban lanes.`\
 https://www.nytimes.com/2026/06/09/travel/5-great-north-american-biking-cities.html

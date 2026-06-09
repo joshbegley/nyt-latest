@@ -1,3 +1,83 @@
+**Can Democrats Move Beyond Their Failed Foreign Policy?**\
+`Matt Duss, Senator Bernie Sanders’s former foreign policy adviser, argues that Democrats need a foreign policy reckoning.`\
+https://www.nytimes.com/2026/06/09/opinion/ezra-klein-podcast-matt-duss.html
+
+**¿El yogur helado es más saludable que el helado?**\
+`¿Es superior en cuanto a valor nutricional o se trata solo de una estrategia de mercadeo? Le pedimos a expertos en nutrición que nos dieran su opinión.`\
+https://www.nytimes.com/es/2026/06/09/espanol/yogur-helado-salud.html
+
+**If Winning Is Everything, Is Anything Off Limits?**\
+`The “fake news” revolution is in full swing.`\
+https://www.nytimes.com/2026/06/09/opinion/campaign-tactics-lies-misinformation.html
+
+**Copa Mundial 2026: qué hacer en cada ciudad**\
+`La fiesta más grande del mundo está por comenzar. Aquí te decimos cómo puedes disfrutar cada emocionante minuto.`\
+https://www.nytimes.com/es/interactive/2026/06/09/travel/mundial-2026-que-hacer-mexico-canada-ee-uu.html
+
+**Why This Ebola Outbreak Could End Up Being the Worst One in History**\
+`The situation in eastern Congo and Uganda combines some of the most dangerous aspects of the 2014 and 2018 Ebola outbreaks.`\
+https://www.nytimes.com/interactive/2026/06/09/opinion/ebola-outbreak-africa-usaid.html
+
+**The Roar of ‘Cease-Fire’ in a Once-Thriving City**\
+`The city of Nabatieh once spoke to the changing fortunes of Lebanon. Now, amid unending war, it speaks to the country’s worst fears.`\
+https://www.nytimes.com/2026/06/09/world/middleeast/lebanon-israel-nabatieh.html
+
+**Democratic Group Kicks Off $50 Million Midterm Blitz in Conservative Strongholds**\
+`American Bridge is hoping that Republicans are vulnerable in parts of the country that had been exceedingly tough terrain for Democrats in recent elections.`\
+https://www.nytimes.com/2026/06/09/us/politics/democrat-election-ads-american-bridge.html
+
+**If Only There Was a World Cup for Complaining About the World Cup**\
+`There is a lot to gripe about. There’s also a lot to like.`\
+https://www.nytimes.com/2026/06/09/opinion/world-cup-fifa-tickets-prices.html
+
+**The Gustavo Dudamel Era in Los Angeles Approaches Its End**\
+`Gustavo Dudamel’s last concerts at Walt Disney Concert Hall as the Los Angeles Philharmonic’s maestro were a symbol of his impact after 17 years.`\
+https://www.nytimes.com/2026/06/09/arts/music/gustavo-dudamel-la-phil.html
+
+**Kyle Gallner Is More Than Just a Scream King**\
+`The actor has become a reliable horror star — but he’s also delivered compelling performances in offbeat movies like “Dinner in America” and “Strange Darling.”`\
+https://www.nytimes.com/2026/06/09/movies/kyle-gallner-interview.html
+
+**NASA Will Announce New Artemis III Astronauts and an Update on Its Moon Program**\
+`The agency will announce the crew of Artemis III on Tuesday. But will the mission be ready to fly in 2027?`\
+https://www.nytimes.com/2026/06/09/science/nasa-new-artemis-astronauts.html
+
+**What’s the Left’s Vision for Foreign Policy After Trump?**\
+`Matt Duss, Senator Bernie Sanders’s former foreign policy adviser, argues that Democrats need a foreign policy reckoning.`\
+https://www.nytimes.com/video/opinion/100000010948137/whats-the-lefts-vision-for-foreign-policy-after-trump.html
+
+**Sqirl’s Dream of Los Angeles, Now at Dinnertime**\
+`Years after the JamGate scandal, the brunch darling is open evenings. And it’s really working.`\
+https://www.nytimes.com/2026/06/09/dining/restaurant-review-sqirl-los-angeles.html
+
+**A Paris Pied-à-Terre, Designed for a Daughter**\
+`A designer’s elegant apartment renovation in Saint-Germain-des-Prés.`\
+https://www.nytimes.com/2026/06/09/realestate/paris-pied-a-terre-saint-germain-des-pres.html
+
+**Ukraine’s Neighbors Seek Shelter as More and More Drones Fly Overhead**\
+`Drones launched by both Russia and Ukraine are veering off course, sending people in countries not at war running for shelter.`\
+https://www.nytimes.com/2026/06/09/world/europe/russia-ukraine-drones-nato-lithuania-romania.html
+
+**A Gabled Penthouse Atop the Dakota Is on the Market for $8 Million**\
+`The Upper West Side duplex was the longtime home of the art experts Stephen and Polly Rubin and is being sold by their estate.`\
+https://www.nytimes.com/2026/06/09/realestate/the-dakota-penthouse-stephen-polly-rubin.html
+
+**She’s Set to Swim the Entire 900-Mile California Coast — Sharks Permitting**\
+`Swimming 900 miles won’t be “the worst way to spend four months,” Catherine Breed says — as long as the great whites, jellyfish and elephant seals leave her alone.`\
+https://www.nytimes.com/2026/06/09/us/catherine-breed-california-coast-swimming.html
+
+**Will Platner Scandals Dampen Democratic Vote? What to Watch in Tuesday’s Primaries.**\
+`Any indication of tepid support for Graham Platner, a Democratic candidate for Senate in Maine, will be seen as a warning sign about his chances against Senator Susan Collins, the Republican incumbent.`\
+https://www.nytimes.com/2026/06/09/us/politics/primary-elections-today-maine-sc-explainer.html
+
+**At City Ballet, Spring Fever Hit, With Ups and Some Dispiriting Downs**\
+`New York City Ballet ended its season on a positive note with “Coppélia,” but the repertory tipped too heavily into unimportant ballets.`\
+https://www.nytimes.com/2026/06/09/arts/dance/new-york-city-ballet-spring-season.html
+
+**A Gardening Guide to Large-Leaf Plants**\
+`Managing the scale of your foliage can give your landscapes surprising ways to catch the eye.`\
+https://www.nytimes.com/2026/06/09/realestate/large-leaf-garden-plants.html
+
 **5 Great North American Biking Cities**\
 `Safe, scenic pedaling opportunities abound in cities like Seattle, Montreal and Atlanta. Here are routes that will take you past waterways, through parks and along protected urban lanes.`\
 https://www.nytimes.com/2026/06/09/travel/5-great-north-american-biking-cities.html
@@ -117,84 +197,4 @@ https://www.nytimes.com/2026/06/09/arts/television/late-night-jon-stewart-trump-
 **Las obras de Frida Kahlo vuelven a brillar en el Museo Dolores Olmedo**\
 `La gran mecenas de Diego Rivera, Dolores Olmedo, consideraba a Frida como una rival, pero compró 26 de sus obras de arte, la mayor colección. Sus obras se exponen en Ciudad de México.`\
 https://www.nytimes.com/es/2026/06/09/espanol/cultura/frida-kahlo-museo-dolores-olmedo.html
-
-**Gusano barrenador en EE. UU.: qué han hecho las autoridades**\
-`Los funcionarios están evaluando conceder una autorización de emergencia de moscas estériles genéticamente modificadas para controlar las poblaciones del insecto parásito carnívoro.`\
-https://www.nytimes.com/es/2026/06/09/espanol/ciencia-y-tecnologia/gusano-barrenador-mexico-casos.html
-
-**Word of the Day: abnegate**\
-`This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/06/09/learning/word-of-the-day-abnegate.html
-
-**Night With the Knicks: Rancor, Jubilation and an Unusual Loss**\
-`The night began with frustration and boos, and not because of the Knicks. But by the end of Game 3 of the N.B.A. finals, the team had slightly deflated some spirits, too.`\
-https://www.nytimes.com/2026/06/09/nyregion/knicks-spurs-game-3-trump.html
-
-**Alcohol’s Health Risks Accelerate After One Drink a Day, Study Finds**\
-`The alcohol industry has criticized the research, which found that even light drinking increases the risk of premature death.`\
-https://www.nytimes.com/2026/06/09/well/alcohol-health-risks-study.html
-
-**Meet Europe’s New Machiavelli**\
-`Luuk van Middelaar, a Dutch scholar, is emerging as the continent’s master strategist.`\
-https://www.nytimes.com/2026/06/09/opinion/europe-defense-van-middelaar.html
-
-**Trump Booed at Game 3 of N.B.A. Finals**\
-`Fans at Madison Square Garden and watch parties around New York City booed when President Trump was shown attending Game 3 of the N.B.A. finals on Monday.`\
-https://www.nytimes.com/video/sports/100000010954269/trump-booed-knicks-msg-nba-finals.html
-
-**Lo que sabemos sobre los medicamentos para perder peso cambia rápidamente**\
-`Gracias al uso generalizado de fármacos como el Ozempic, ahora tenemos una idea más clara que nunca de sus efectos y de las dificultades que conlleva tomarlos.`\
-https://www.nytimes.com/es/2026/06/09/espanol/que-sabemos-ozempic-wegovy.html
-
-**Why a U.K. By-Election in Makerfield Could Topple Prime Minister Keir Starmer**\
-`Andy Burnham, the mayor of Greater Manchester, is running for a seat in Parliament. It’s a vital step in a campaign to oust his party colleague Prime Minister Keir Starmer.`\
-https://www.nytimes.com/2026/06/09/world/europe/makerfield-byelection-starmer-burnham-reform.html
-
-**Quote of the Day: Some Trump Voters Are Drifting Away Over His Handling of Iran and Economy**\
-`Quotation of the Day for Tuesday, June 9, 2026.`\
-https://www.nytimes.com/2026/06/09/pageoneplus/quote-of-the-day-some-trump-voters-are-drifting-away-over-his-handling-of-iran-and-economy.html
-
-**Corrections: June 9, 2026**\
-`Corrections that appeared in print on Tuesday, June 9, 2026.`\
-https://www.nytimes.com/2026/06/09/pageoneplus/corrections-june-9-2026.html
-
-**Crew Rescued After U.S. Helicopter Goes Down Near Strait of Hormuz**\
-`It was not immediately clear what led to the incident, which came at a time when the cease-fire in the war has grown tenuous.`\
-https://www.nytimes.com/2026/06/08/us/politics/us-helicopter-strait-of-hormuz.html
-
-**See the Famous Faces at the Knicks Game at Madison Square Garden**\
-`Here’s a look at some of the most prominent figures that attended Game 3 of the N.B.A. finals at Madison Square Garden.`\
-https://www.nytimes.com/interactive/2026/06/08/nyregion/nba-finals-knicks-celebrities-attendees.html
-
-**San Francisco Voters Appear to Reject Tax Hike on Highly Paid C.E.O.s**\
-`The proposal was seen as a possible measure of how residents felt about the recent flood of money into the city as a result of the A.I. boom.`\
-https://www.nytimes.com/2026/06/08/us/politics/san-francisco-tax-proposition-d.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/sports/100000010954067/08vid-knicks-bryant1-213.html
-
-**NYT Crossword Answers for June 9, 2026**\
-`Rebecca Goldstein’s puzzle isn’t too tough to dig into.`\
-https://www.nytimes.com/2026/06/08/crosswords/daily-puzzle-2026-06-09.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/special-series/100000010954055/08vid-knicks-brooklyn-17824.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/sports/100000010954026/08vid-knicks-trump-salute-53551.html
-
-**His Mayor’s Muslim. His Bagel’s Jewish. His Words Are New York.**\
-`MD Ahnaf Hossain, 23, delivered a four-line instant classic to a TV camera after a Knicks win, and it has since rocketed across social media. “I had to say what was in my heart,” he said in an interview.`\
-https://www.nytimes.com/2026/06/08/nyregion/knicks-fan-nyc-hossain-video.html
-
-**M.S.G. Erupts in Boos as Trump Appears on Screen at Knicks-Spurs Game**\
-`Mr. Trump is the first sitting president to attend an N.B.A. finals game. He smiled as he heard the reception from the crowd at Madison Square Garden.`\
-https://www.nytimes.com/2026/06/08/nyregion/trump-booed-knicks-msg-finals.html
-
-**For Lonely Knicks Fans, Championship Run Forges Fellowship in NYC**\
-`The championship run by the Knicks has created a “love fest,” one fan said, and it has even given her a new circle of friends.`\
-https://www.nytimes.com/2026/06/08/nyregion/knicks-fans-lonely-no-more.html
 
