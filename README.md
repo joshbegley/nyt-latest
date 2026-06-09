@@ -1,3 +1,7 @@
+**How Will the Artemis III Astronauts Train?**\
+`The Artemis III astronauts who were announced today will have had less mission training time than their Artemis II counterparts.`\
+https://www.nytimes.com/2026/06/09/science/space/artemis-iii-astronauts-training.html
+
 **Watchdog Group Skeptical of Justice Dept.’s Vows to End $1.8 Billion Fund**\
 `The group, Citizens for Responsibility and Ethics in Washington, doubled down on its request to a federal judge to issue a formal order stopping the fund from being set up.`\
 https://www.nytimes.com/2026/06/09/us/justice-dept-fund-trump-irs-watchdog.html
@@ -50,7 +54,7 @@ https://www.nytimes.com/2026/06/09/world/middleeast/iran-world-cup-tickets-revok
 `The N.B.A. finals. Taylor Swift. And grilled vegetable recipes.`\
 https://www.nytimes.com/2026/06/09/briefing/today-in-short.html
 
-**Gates Said to Have Hired Ex-Oversight Chief to Advise on Epstein Testimony**\
+**Bill Gates Said to Have Hired Ex-House Oversight Chief to Advise on Epstein Testimony**\
 `Bill Gates, the Microsoft co-founder, has retained Jake Greenberg, the former top investigative counsel to the House Oversight Committee.`\
 https://www.nytimes.com/2026/06/09/us/politics/bill-gates-jeffrey-epstein-oversight-committee-lawyer.html
 
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/06/09/crosswords/wordle-review-1817.html
 **Who Is Ahead in Florida's 28th Congressional District?**\
 `Track the latest polls in Florida's 28th Congressional District.`\
 https://www.nytimes.com/interactive/polls/florida-us-house-28-polls-2026.html
-
-**Who Is Ahead in Florida's 27th Congressional District?**\
-`Track the latest polls in Florida's 27th Congressional District.`\
-https://www.nytimes.com/interactive/polls/florida-us-house-27-polls-2026.html
 
