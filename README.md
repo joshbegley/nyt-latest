@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/business/100000010954786/Biz-China-Robots.html
+
 **Why Apple’s A.I. Upgrade for Siri Won’t Be Available in Europe**\
 `A regulatory dispute has indefinitely delayed the release of Siri AI.`\
 https://www.nytimes.com/2026/06/09/business/apple-siri-ai-europe.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/09/arts/dance/new-york-city-ballet-spring-season
 **A Gardening Guide to Large-Leaf Plants**\
 `Managing the scale of your foliage can give your landscapes surprising ways to catch the eye.`\
 https://www.nytimes.com/2026/06/09/realestate/large-leaf-garden-plants.html
-
-**5 Great North American Biking Cities**\
-`Safe, scenic pedaling opportunities abound in cities like Seattle, Montreal and Atlanta. Here are routes that will take you past waterways, through parks and along protected urban lanes.`\
-https://www.nytimes.com/2026/06/09/travel/5-great-north-american-biking-cities.html
 
