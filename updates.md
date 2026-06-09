@@ -1,3 +1,15 @@
+**Elecciones en Los Ángeles: una demócrata queda segunda frente a Karen Bass**\
+`Nithya Raman puso fin a la campaña de Spencer Pratt por la alcaldía, y se enfrentará a la alcaldesa Karen Bass en noviembre, dando lugar a una contienda entre dos demócratas.`\
+https://www.nytimes.com/es/2026/06/09/espanol/estados-unidos/elecciones-los-angeles-bass-raman.html
+
+**Gianni Infantino, presidente de la FIFA, luchó por ganarse a Trump para el Mundial**\
+`Gianni Infantino, el presidente de la FIFA, ha buscado abiertamente obtener el favor del presidente de EE. UU. Los dirigentes del fútbol se preguntan en privado: ¿quién se beneficia realmente?`\
+https://www.nytimes.com/es/2026/06/09/espanol/mundo/mundial-infantino-trump.html
+
+**Election Live Updates: Maine Primary Takes Center Stage in Fight for Senate Control**\
+`Graham Platner is widely expected to win the Democratic primary in Maine, setting the stage for a closely watched race against Susan Collins. Primaries are also underway in South Carolina, Nevada and North Dakota.`\
+https://www.nytimes.com/live/2026/06/09/us/elections-maine-sc-nv-nd-primaries
+
 **Meet the NASA Astronauts in the Artemis III 4-Person Crew**\
 `NASA’s next mission in its effort to return humans to the moon will be led by an all-male crew. Three of them have extensive experience in space, while the other was a backup on Artemis II.`\
 https://www.nytimes.com/2026/06/09/science/space/artemis-iii-astronauts-nasa-crew.html

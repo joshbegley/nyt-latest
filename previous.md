@@ -1,3 +1,11 @@
+**Elecciones en Los Ángeles: una demócrata queda segunda frente a Karen Bass**\
+`Nithya Raman puso fin a la campaña de Spencer Pratt por la alcaldía, y se enfrentará a la alcaldesa Karen Bass en noviembre, dando lugar a una contienda entre dos demócratas.`\
+https://www.nytimes.com/es/2026/06/09/espanol/estados-unidos/elecciones-los-angeles-bass-raman.html
+
+**Gianni Infantino, presidente de la FIFA, luchó por ganarse a Trump para el Mundial**\
+`Gianni Infantino, el presidente de la FIFA, ha buscado abiertamente obtener el favor del presidente de EE. UU. Los dirigentes del fútbol se preguntan en privado: ¿quién se beneficia realmente?`\
+https://www.nytimes.com/es/2026/06/09/espanol/mundo/mundial-infantino-trump.html
+
 **Meet the NASA Astronauts in the Artemis III 4-Person Crew**\
 `NASA’s next mission in its effort to return humans to the moon will be led by an all-male crew. Three of them have extensive experience in space, while the other was a backup on Artemis II.`\
 https://www.nytimes.com/2026/06/09/science/space/artemis-iii-astronauts-nasa-crew.html
@@ -186,15 +194,7 @@ https://www.nytimes.com/interactive/2026/us/elections/results-north-dakota-super
 `Get live results and maps from the 2026 South Carolina primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-comptroller-general-primary.html
 
-**South Carolina Treasurer Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 South Carolina primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-treasurer-primary.html
-
-**Nevada Secretary of State Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Nevada primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-nevada-secretary-of-state-primary.html
-
-**Election Live Updates: Tumultuous Senate Primary in Maine Is Biggest Race as 4 States Vote**\
-`Graham Platner is widely expected to win the Democratic primary in Maine, for a seat that is key to the party’s hopes of winning the Senate. Primaries are also underway in South Carolina, Nevada and North Dakota.`\
+**Election Live Updates: Maine Primary Takes Center Stage in Fight for Senate Control**\
+`Graham Platner is widely expected to win the Democratic primary in Maine, setting the stage for a closely watched race against Susan Collins. Primaries are also underway in South Carolina, Nevada and North Dakota.`\
 https://www.nytimes.com/live/2026/06/09/us/elections-maine-sc-nv-nd-primaries
 
