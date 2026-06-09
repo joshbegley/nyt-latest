@@ -1,3 +1,11 @@
+**Man Arrested in ‘Brutal’ Stabbing in Belfast, Police Say**\
+`The suspect, whom the police described as in his 30s and believed to be Somali, is alleged to have attacked another man in his 40s in an episode in Belfast that was recorded and spread quickly online.`\
+https://www.nytimes.com/2026/06/09/world/europe/belfast-stabbing-arrest-northern-ireland.html
+
+**Word Choices**\
+`We explore six sentences that have shaped the American story.`\
+https://www.nytimes.com/2026/06/09/briefing/word-choices-declaration-independence.html
+
 **El triunfo de Kim Jong-un**\
 `El dirigente aprovechó la guerra de Ucrania para convertirse en el líder más poderoso de Corea del Norte hasta la fecha.`\
 https://www.nytimes.com/es/2026/06/09/espanol/mundo/kim-jong-un-corea-norte.html
