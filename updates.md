@@ -1,3 +1,11 @@
+**New York City Schools Chancellor Being Investigated Over No-Bid Contract**\
+`The chancellor, Kamar Samuels, acknowledged a “lapse in procedure,” amid an investigation into a $180,000 contract for foreign language instructors.`\
+https://www.nytimes.com/2026/06/09/nyregion/nyc-chancellor-contract-investigation.html
+
+**House Votes to Advance $70 Billion G.O.P. Immigration Bill**\
+`The test vote cleared the way for final passage of Republicans’ megabill to fund immigration enforcement through the remainder of President Trump’s term.`\
+https://www.nytimes.com/2026/06/09/us/politics/house-immigration-bill.html
+
 **Suspect Arrested in Belfast Knife Attack**\
 `Northern Ireland’s police arrested a man on suspicion of attempted murder after a stabbing in Belfast left another man in serious condition on Monday.`\
 https://www.nytimes.com/video/world/europe/100000010954882/belfast-stabbing-suspect-arrested.html

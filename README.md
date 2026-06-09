@@ -63,7 +63,7 @@ https://www.nytimes.com/2026/06/09/us/politics/trump-helicopter-iran-war.html
 https://www.nytimes.com/2026/06/09/science/space/nasa-artemis-moon-landing.html
 
 **Paramount CEO David Ellison Pledges Editorial Independence for ‘60 Minutes’**\
-`David Ellison told Lesley Stahl, one of three remaining correspondents for the news program, that he would respect the show’s editorial decisions after a tumultuous stretch.`\
+`David Ellison told Ms. Stahl, one of three remaining correspondents for the news program, that he would respect the show’s editorial decisions after a tumultuous stretch.`\
 https://www.nytimes.com/2026/06/09/business/media/60-minutes-david-ellison-paramount.html
 
 **Welcome to Believing**\
@@ -189,10 +189,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-sec
 **North Dakota Public Service Commission Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 North Dakota primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-north-dakota-public-service-commission-primary.html
-
-**North Dakota Secretary of State Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 North Dakota primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-north-dakota-secretary-of-state-primary.html
 
 **Election Live Updates: Maine Primary Takes Center Stage in Fight for Senate Control**\
 `Graham Platner is widely expected to win the Democratic primary in Maine, setting the stage for a closely watched race against Susan Collins. Primaries are also underway in South Carolina, Nevada and North Dakota.`\
