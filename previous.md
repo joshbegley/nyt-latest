@@ -1,3 +1,11 @@
+**Xi Jinping Makes Rare Trip to North Korea to Court Kim Jong-Un**\
+`North Korean and Chinese state media footage showed China’s leader, Xi Jinping, arriving in Pyongyang, North Korea, for a summit with his counterpart, Kim Jong-un. The visit aimed to strengthen ties between the two nations.`\
+https://www.nytimes.com/video/world/asia/100000010954313/xi-north-korea-visit.html
+
+**La clase media de EE. UU. no se está encogiendo**\
+`En lugar de que los ricos se hicieran más ricos y los pobres más pobres, ricos y pobres se han enriquecido por igual.`\
+https://www.nytimes.com/es/2026/06/09/espanol/opinion/clase-media-dinero-ricos-pobres.html
+
 **La búsqueda de una conspiración desencadenó una crisis en el Departamento de Justicia**\
 `El impulso para investigar lo que los aliados de Trump consideraban una conspiración del “Estado profundo” que pretendía destituir al presidente desencadenó una crisis en cascada, acabó con carreras profesionales y socavó la credibilidad del Departamento ante los jueces.`\
 https://www.nytimes.com/es/2026/06/09/espanol/estados-unidos/conspiracion-trump-departamento-justicia.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/08/nyregion/sherrill-nj-delaney-hall.html
 **Trump Previews Fall Strategy With Baseless Claims of California Vote Fraud**\
 `The president is using the slow count of mail ballots in California to renew his effort to cast doubt on election outcomes he doesn’t like, despite a lack of evidence of any widespread fraud.`\
 https://www.nytimes.com/2026/06/08/us/politics/trump-election-fraud-strategy-california.html
-
-**Three Questions About the Maine and South Carolina Primaries**\
-`Graham Platner and Lindsey Graham are both hoping for comfortably big victories.`\
-https://www.nytimes.com/2026/06/08/us/politics/maine-south-carolina-primaries.html
-
-**Knicks Fans Bring Swagger and Nerves to Key Playoff Game**\
-`Madison Square Garden was a cauldron of noise for Game 3 of the N.B.A. finals. New York Knicks fans greeted President Trump with a round of booing.`\
-https://www.nytimes.com/live/2026/06/08/nyregion/nba-finals-trump-knicks-spurs-mamdani
 
