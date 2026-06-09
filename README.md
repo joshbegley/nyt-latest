@@ -1,3 +1,7 @@
+**La búsqueda de una conspiración desencadenó una crisis en el Departamento de Justicia**\
+`El impulso para investigar lo que los aliados de Trump consideraban una conspiración del “Estado profundo” que pretendía destituir al presidente desencadenó una crisis en cascada, acabó con carreras profesionales y socavó la credibilidad del Departamento ante los jueces.`\
+https://www.nytimes.com/es/2026/06/09/espanol/estados-unidos/conspiracion-trump-departamento-justicia.html
+
 **Wemby and the Spurs Bounce Back to Win Game 3**\
 `How did the San Antonio Spurs pull it off?`\
 https://www.nytimes.com/2026/06/09/podcasts/wembanyama-spurs-knicks-game-3-nba-finals.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/08/us/politics/trump-election-fraud-strategy-cal
 **Three Questions About the Maine and South Carolina Primaries**\
 `Graham Platner and Lindsey Graham are both hoping for comfortably big victories.`\
 https://www.nytimes.com/2026/06/08/us/politics/maine-south-carolina-primaries.html
-
-**How Will I.P.O.s From A.I. Companies Affect the Average Person?**\
-`On the “Hard Fork” podcast, the hosts Casey Newton and Kevin Roose discuss the pros and cons of I.P.O.s by large tech companies.`\
-https://www.nytimes.com/video/podcasts/100000010953710/how-will-ipos-from-ai-companies-affect-the-average-person.html
 
 **Knicks Fans Bring Swagger and Nerves to Key Playoff Game**\
 `Madison Square Garden was a cauldron of noise for Game 3 of the N.B.A. finals. New York Knicks fans greeted President Trump with a round of booing.`\
