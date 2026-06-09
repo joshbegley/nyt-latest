@@ -1,3 +1,11 @@
+**The Dangers of Ignoring America’s Past**\
+`Readers, including Drew Faust, a former president of Harvard, respond to a column by David French. Also: President Trump’s tax burden; time to rebuild trust.`\
+https://www.nytimes.com/2026/06/09/opinion/democracy-us-history.html
+
+**Lindsey Graham’s Allies Spend Big to Ward Off a Republican Challenger**\
+`The Republican senator from South Carolina has a well-funded primary challenger who has a chance of forcing him into a runoff election.`\
+https://www.nytimes.com/2026/06/09/us/politics/south-carolina-primary-elections-money-spending.html
+
 **Julio Le Park, Kinetic Sculpture and Op-Art Master, Dies at 97**\
 `His socially engaged works, created over a 70-year career, sought to engage viewers through shifting lights, motors and even Ping-Pong balls.`\
 https://www.nytimes.com/2026/06/09/arts/design/julio-le-parc-dead.html

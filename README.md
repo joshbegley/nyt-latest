@@ -1,3 +1,7 @@
+**Many Feared Trapped Under Earthquake Rubble in Philippines**\
+`Families hope to recover their loved ones after the most powerful earthquake in 50 years to hit the Philippines.`\
+https://www.nytimes.com/2026/06/09/world/asia/philippines-earthquake-trapped.html
+
 **The Dangers of Ignoring America’s Past**\
 `Readers, including Drew Faust, a former president of Harvard, respond to a column by David French. Also: President Trump’s tax burden; time to rebuild trust.`\
 https://www.nytimes.com/2026/06/09/opinion/democracy-us-history.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/live/2026/06/09/world/iran-war-trump-israel-lebanon
 **Oil Prices Ease as Iran and Israel Halt Strikes**\
 `Oil prices fell after Israel and Iran agreed to halt strikes against each other, easing fears of a broader regional conflict that had briefly driven crude higher.`\
 https://www.nytimes.com/2026/06/09/business/oil-gas-prices-iran.html
-
-**Can Democrats Move Beyond Their Failed Foreign Policy?**\
-`Matt Duss, Senator Bernie Sanders’s former foreign policy adviser, argues that Democrats need a foreign policy reckoning.`\
-https://www.nytimes.com/2026/06/09/opinion/ezra-klein-podcast-matt-duss.html
 
