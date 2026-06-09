@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/sports/100000010954026/08vid-knicks-trump-salute-53551.html
+
+**His Mayor’s Muslim. His Bagel’s Jewish. His Words Are New York.**\
+`MD Ahnaf Hossain, 23, delivered a four-line instant classic to a TV camera after a Knicks win, and it has since rocketed across social media. “I had to say what was in my heart,” he said in an interview.`\
+https://www.nytimes.com/2026/06/08/nyregion/knicks-fan-nyc-hossain-video.html
+
 **MSG Erupts in Boos as Trump Appears on Screen at Knicks-Spurs Game**\
 `Mr. Trump is the first sitting president to attend an N.B.A. finals game. He smiled as he heard the reception from the crowd at Madison Square Garden.`\
 https://www.nytimes.com/2026/06/08/nyregion/trump-booed-knicks-msg-finals.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/08/technology/sam-bankman-fried-pardon-trump.htm
 **Live Updates: Fans Greet Knicks With Cheers, and Trump With Boos**\
 `President Trump is attending Game 3 of the N.B.A. finals at Madison Square Garden, a game decades in the making for Knicks fans. Nervous but hopeful energy filled the city at watch parties big and small.`\
 https://www.nytimes.com/live/2026/06/08/nyregion/nba-finals-trump-knicks-spurs-mamdani
-
-**Scientist Charged With Conspiring to Smuggle Mpox Virus Into U.S.**\
-`The virologist was stopped at the Detroit airport after working in Congo during an mpox epidemic. His lawyer said the material was for research.`\
-https://www.nytimes.com/2026/06/08/science/dutch-scientist-mpox-virus-smuggling.html
-
-**Why People Are Obsessed With Platner**\
-`Graham Platner is not just a candidate for the Senate in Maine, argues the Opinion columnist Jamelle Bouie on “The Opinions,” but also a representative of “an intra-Democratic Party factional battle.” Bouie says the arguments around Platner resemble a proxy fight unfolding within the party.`\
-https://www.nytimes.com/video/opinion/100000010952747/why-people-are-obsessed-with-platner.html
 
