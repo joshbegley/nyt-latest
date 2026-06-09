@@ -1,3 +1,15 @@
+**Blanche Was Once Seen as Tempering Trump’s Tactics. Now He’s All In.**\
+`The ascendancy of Todd Blanche shows how the practices that were initially deemed out of bounds even in President Trump’s Justice Department seem to be the order of the day.`\
+https://www.nytimes.com/2026/06/09/us/politics/blanche-trump-justice-department-retribution.html
+
+**F.D.A. Clears Sunscreen Ingredient Long Used in Europe and Asia**\
+`Dermatologists say bemotrizinol offers advantages over other compounds in sunscreens currently on the market.`\
+https://www.nytimes.com/2026/06/09/well/fda-sunscreen-bemotrizinol-approval.html
+
+**NASA Announces Artemis III Crew**\
+`NASA announced the crew of Artemis III mission, which will fly to low-Earth orbit to test rendezvous and docking maneuvers with one or two lunar landers.`\
+https://www.nytimes.com/video/science/space/100000010955125/nasa-artemis-iii-astronauts.html
+
 **For Nearly 150 Years, Parking Has Driven New Yorkers to the Brink**\
 `From court cases to political scandals to murder, the city has long been racked with conflict over what to do with cars when they’re not being driven.`\
 https://www.nytimes.com/interactive/2026/06/09/nyregion/nyc-parking-cars-history.html
