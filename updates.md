@@ -1,3 +1,11 @@
+**OpenAI Tests Investor Appetite for Yet Another Giant I.P.O.**\
+`Some analysts are wondering whether the market can absorb the artificial intelligence giant’s planned stock offering — along with those of SpaceX and Anthropic.`\
+https://www.nytimes.com/2026/06/09/business/dealbook/openai-ipo-spacex-anthropic.html
+
+**Man Arrested in ‘Brutal’ Stabbing in Belfast, Police Say**\
+`The suspect, who the police said is in his 30s and Sudanese, is alleged to have attacked another man in an assault in Belfast that was recorded and spread quickly online.`\
+https://www.nytimes.com/2026/06/09/world/europe/belfast-stabbing-arrest-northern-ireland.html
+
 **Israel Strikes Lebanese City of Tyre as New Cease-Fire Falters**\
 `The bombardment followed Israeli evacuation warnings for the entire city, and came a day after Iran said it would attack Israel if it kept up its offensive in southern Lebanon.`\
 https://www.nytimes.com/2026/06/09/world/middleeast/israel-strikes-lebanese-city-of-tyre-as-new-cease-fire-falters.html
