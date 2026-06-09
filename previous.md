@@ -1,3 +1,11 @@
+**5 Things to Know About Paul LePage, Republican House Candidate in Maine**\
+`Mr. LePage served two terms as governor of Maine and was known for his incendiary rhetoric and his vetoing of legislation of all sorts.`\
+https://www.nytimes.com/2026/06/09/us/politics/paul-lepage-republican-house-maine.html
+
+**Jurors Balked at Indicting ICE Protesters. Prosecutors Kept Pushing.**\
+`Newly released transcripts showed a Chicago prosecutor repeatedly urging grand jurors to indict protesters of the Trump administration’s immigration crackdown.`\
+https://www.nytimes.com/2026/06/09/us/chicago-prosecutors-immigration-grand-jury.html
+
 **House defies Johnson and passes Democratic-led labor bill**\
 `Twenty G.O.P lawmakers broke with Speaker Mike Johnson and joined Democrats in backing a bill to amend the National Labor Relations Act.`\
 https://www.nytimes.com/2026/06/09/us/politics/house-passes-union-contract-bill-bucking-republican-leaders.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-us-
 **South Carolina Seventh Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 South Carolina primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-us-house-7-primary.html
-
-**Nevada Third Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Nevada primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-nevada-us-house-3-primary.html
-
-**South Carolina Attorney General Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 South Carolina primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-attorney-general-primary.html
 

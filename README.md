@@ -1,3 +1,11 @@
+**In Maine’s Primaries for Governor, Polling Is Sparse**\
+`The Democratic primary for governor is particularly competitive, but polls show that both party’s primaries could come down to ranked-choice voting.`\
+https://www.nytimes.com/2026/06/09/polls/maine-governor-primary-polls.html
+
+**Steve Hilton Wins Second Spot in California Governor Race, Beating Tom Steyer**\
+`Steve Hilton, a Republican endorsed by President Trump, will face Xavier Becerra, a Democrat, in the general election. Tom Steyer, another Democrat, will not advance.`\
+https://www.nytimes.com/2026/06/09/us/steve-hilton-california-governor-xavier-becerra.html
+
 **5 Things to Know About Paul LePage, Republican House Candidate in Maine**\
 `Mr. LePage served two terms as governor of Maine and was known for his incendiary rhetoric and his vetoing of legislation of all sorts.`\
 https://www.nytimes.com/2026/06/09/us/politics/paul-lepage-republican-house-maine.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-com
 **South Carolina Treasurer Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 South Carolina primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-treasurer-primary.html
-
-**South Carolina Second Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 South Carolina primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-us-house-2-primary.html
-
-**South Carolina Seventh Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 South Carolina primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-us-house-7-primary.html
 
