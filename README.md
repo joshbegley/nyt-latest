@@ -1,3 +1,7 @@
+**San Francisco Voters Appear to Reject Tax Hike on Highly Paid C.E.O.s**\
+`The proposal was seen as a possible measure of how residents felt about the recent flood of money into the city as a result of the A.I. boom.`\
+https://www.nytimes.com/2026/06/08/us/politics/san-francisco-tax-proposition-d.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/sports/100000010954067/08vid-knicks-bryant1-213.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/08/us/politics/trump-netanyahu-iran-call.html
 **Apple Reveals New A.I.-Powered Version of Its Siri Digital Assistant**\
 `The iPhone maker revealed its new artificial intelligence products at its developer conference, the last with Tim Cook as chief executive.`\
 https://www.nytimes.com/2026/06/08/technology/apple-ai-siri.html
-
-**Watch Parties Canceled as Police Tighten Security at N.B.A. Finals**\
-`President Trump and Mayor Zohran Mamdani are expected to attend the N.B.A. Finals game 3 between the New York Knicks and San Antonio Spurs.`\
-https://www.nytimes.com/video/us/100000010952671/knicks-spurs-nba-finals-security-trump.html
 
 **Live Updates: Fans Greet Knicks With Cheers, and Trump With Boos**\
 `President Trump is attending Game 3 of the N.B.A. finals at Madison Square Garden, a game decades in the making for Knicks fans. Nervous but hopeful energy filled the city at watch parties big and small.`\
