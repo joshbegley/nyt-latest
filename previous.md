@@ -1,5 +1,9 @@
 ****\
 `(No description)`\
+https://www.nytimes.com/video/embedded/special-series/100000010954055/08vid-knicks-brooklyn-17824.html
+
+****\
+`(No description)`\
 https://www.nytimes.com/video/embedded/sports/100000010954026/08vid-knicks-trump-salute-53551.html
 
 **His Mayor’s Muslim. His Bagel’s Jewish. His Words Are New York.**\
