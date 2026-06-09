@@ -1,3 +1,11 @@
+**In A.I. Blunder, More Than 34,000 Instagram Accounts Became Vulnerable**\
+`The flaw, which Meta said it had fixed, allowed anyone to take over Instagram accounts using a bug in the company’s new artificial intelligence software.`\
+https://www.nytimes.com/2026/06/09/technology/34000-instagram-accounts-ai.html
+
+**Why ‘Just-Rolled-Out-of-Bed’ Hairstyles Are Now in Fashion**\
+`With messy mops showing up on both runways and red carpets, the key to fashion’s new favorite hairstyle is doing less.`\
+https://www.nytimes.com/2026/06/09/t-magazine/messy-hair-bed-head-fashion-style.html
+
 **Traditional Republicans Clash With MAGA Wing in Nevada House Primary**\
 `At stake is the seat held by Representative Mark Amodei, a Republican in northern Nevada who is retiring from his reliably red district.`\
 https://www.nytimes.com/2026/06/09/us/politics/nevada-second-district-primary-maga-republicans.html
