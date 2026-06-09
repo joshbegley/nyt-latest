@@ -22,7 +22,7 @@ https://www.nytimes.com/2026/06/09/nyregion/knicks-spurs-game-3-trump.html
 `The alcohol industry has criticized the research, which found that even light drinking increases the risk of premature death.`\
 https://www.nytimes.com/2026/06/09/well/alcohol-health-risks-study.html
 
-**Europe Needs to Come Together. This Man Has Some Ideas.**\
+**Meet Europe’s New Machiavelli**\
 `Luuk van Middelaar, a Dutch scholar, is emerging as the continent’s master strategist.`\
 https://www.nytimes.com/2026/06/09/opinion/europe-defense-van-middelaar.html
 
