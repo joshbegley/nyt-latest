@@ -1,3 +1,7 @@
+**Late Night Roasts Trump for Walking Out on ‘Meet the Press’**\
+`Jon Stewart called the president’s interview his “worst nightmare: a woman who won’t stop asking pertinent questions.”`\
+https://www.nytimes.com/2026/06/09/arts/television/late-night-jon-stewart-trump-meet-the-press.html
+
 **Las obras de Frida Kahlo vuelven a brillar en el Museo Dolores Olmedo**\
 `La gran mecenas de Diego Rivera, Dolores Olmedo, consideraba a Frida como una rival, pero compró 26 de sus obras de arte, la mayor colección. Sus obras se exponen en Ciudad de México.`\
 https://www.nytimes.com/es/2026/06/09/espanol/cultura/frida-kahlo-museo-dolores-olmedo.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/08/world/africa/somalian-world-cup-referee-denie
 **Iran and Israel Pull Back**\
 `Also, the N.B.A. finals arrive in New York. Here’s the latest at the end of Monday.`\
 https://www.nytimes.com/2026/06/08/briefing/iran-israel-strikes-todd-blanche.html
-
-**OpenAI Files Confidentially for IPO as AI Companies Rush to Wall St.**\
-`The company hopes to raise billions in a highly anticipated public offering that could unlock a new generation of tech industry wealth.`\
-https://www.nytimes.com/2026/06/08/technology/openai-ipo.html
 
 **Knicks Fans Bring Swagger and Nerves to Key Playoff Game**\
 `Madison Square Garden was a cauldron of noise for Game 3 of the N.B.A. finals. New York Knicks fans greeted President Trump with a round of booing.`\
