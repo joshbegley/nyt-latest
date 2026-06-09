@@ -1,3 +1,7 @@
+**Watchdog Group Skeptical of Justice Dept.’s Vows to End $1.8 Billion Fund**\
+`The group, Citizens for Responsibility and Ethics in Washington, doubled down on its request to a federal judge to issue a formal order stopping the fund from being set up.`\
+https://www.nytimes.com/2026/06/09/us/justice-dept-fund-trump-irs-watchdog.html
+
 **Germany Drops Plan to Build Warplane With Allies, Hindering Push to Rearm**\
 `Berlin pulled out of the Future Combat Air System, a project with Spain and France that had been seen as central to European efforts to face down Russia and reduce reliance on the United States.`\
 https://www.nytimes.com/2026/06/09/world/europe/europe-fighter-fcas-germany-france.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/interactive/polls/florida-us-house-28-polls-2026.html
 **Who Is Ahead in Florida's 27th Congressional District?**\
 `Track the latest polls in Florida's 27th Congressional District.`\
 https://www.nytimes.com/interactive/polls/florida-us-house-27-polls-2026.html
-
-**Who Is Ahead in Florida's 23rd Congressional District?**\
-`Track the latest polls in Florida's 23rd Congressional District.`\
-https://www.nytimes.com/interactive/polls/florida-us-house-23-polls-2026.html
 
