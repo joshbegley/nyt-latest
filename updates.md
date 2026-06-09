@@ -1,3 +1,11 @@
+**Doris Matsui Will Face Democratic Challenger in Intraparty Generational Fight**\
+`Mai Vang, a progressive member of the Sacramento City Council, will challenge Ms. Matsui, the 81-year-old incumbent, in the general election.`\
+https://www.nytimes.com/2026/06/09/us/politics/california-house-district-7.html
+
+**Lawyers Barred for A.I.-Generated Citations to Fake Cases**\
+`A federal judge in Mississippi also imposed fines and canceled a civil trial, removing all four lawyers from the case.`\
+https://www.nytimes.com/2026/06/09/us/ai-lawyers-sanctioned-mississippi.html
+
 **For America’s 250th, Let’s Get Something Clear About Our National Identity**\
 `It depends on both ideas and cultural inheritance.`\
 https://www.nytimes.com/2026/06/09/opinion/america-250-national-identity.html

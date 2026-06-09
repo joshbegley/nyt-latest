@@ -1,3 +1,11 @@
+**Doris Matsui Will Face Democratic Challenger in Intraparty Generational Fight**\
+`Mai Vang, a progressive member of the Sacramento City Council, will challenge Ms. Matsui, the 81-year-old incumbent, in the general election.`\
+https://www.nytimes.com/2026/06/09/us/politics/california-house-district-7.html
+
+**Lawyers Barred for A.I.-Generated Citations to Fake Cases**\
+`A federal judge in Mississippi also imposed fines and canceled a civil trial, removing all four lawyers from the case.`\
+https://www.nytimes.com/2026/06/09/us/ai-lawyers-sanctioned-mississippi.html
+
 **Federal Judge Faces Battery Charge After Parking Lot Confrontation**\
 `Judge Ryan Nelson of the U.S. Court of Appeals for the Ninth Circuit tossed a man’s glasses and appeared to stomp on them during an argument in Idaho that was captured on video.`\
 https://www.nytimes.com/2026/06/09/us/ryan-nelson-judge-criminal-charges-battery.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-us-
 **South Carolina Secretary of State Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 South Carolina primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-secretary-of-state-primary.html
-
-**North Dakota At-Large Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 North Dakota primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-north-dakota-us-house-at-large-primary.html
-
-**North Dakota Superintendent of Public Instruction 2026: Live Election Results**\
-`Get live results and maps from the 2026 North Dakota election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-north-dakota-superintendent-of-public-instruction.html
 
