@@ -1,3 +1,23 @@
+**Who Is Ahead in Florida's 27th Congressional District?**\
+`Track the latest polls in Florida's 27th Congressional District.`\
+https://www.nytimes.com/interactive/polls/florida-us-house-27-polls-2026.html
+
+**Who Is Ahead in Florida's 23rd Congressional District?**\
+`Track the latest polls in Florida's 23rd Congressional District.`\
+https://www.nytimes.com/interactive/polls/florida-us-house-23-polls-2026.html
+
+**Who Is Ahead in Florida's 20th Congressional District?**\
+`Track the latest polls in Florida's 20th Congressional District.`\
+https://www.nytimes.com/interactive/polls/florida-us-house-20-polls-2026.html
+
+**Who Is Ahead in Florida's 19th Congressional District?**\
+`Track the latest polls in Florida's 19th Congressional District.`\
+https://www.nytimes.com/interactive/polls/florida-us-house-19-polls-2026.html
+
+**Iran War Live Updates: Israel Launches New Strikes in Southern Lebanon**\
+`The attacks came a day after Israel and Iran pulled back from direct confrontation. The Israeli campaign against the Lebanese militia Hezbollah has been an obstacle in U.S.-Iran peace talks.`\
+https://www.nytimes.com/live/2026/06/09/world/iran-war-trump-israel-lebanon
+
 **A Challenge in the U.S.-Iran Talks: Both Sides Demand Victory**\
 `Washington and Tehran would need to defend any potential deal as a win for their side. And each has a leader whose approach to talks is vexing mediators.`\
 https://www.nytimes.com/2026/06/09/world/middleeast/us-iran-talks-war.html
