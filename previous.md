@@ -1,3 +1,7 @@
+**Israel Strikes Lebanese City of Tyre as New Cease-Fire Falters**\
+`The bombardment followed Israeli evacuation warnings for the entire city, and came a day after Iran said it would attack Israel if it kept up its offensive in southern Lebanon.`\
+https://www.nytimes.com/2026/06/09/world/middleeast/israel-strikes-lebanese-city-of-tyre-as-new-cease-fire-falters.html
+
 **Somali Referee Says His World Cup Dream Is Dashed After U.S. Denies Entry**\
 `“I had the right papers and everything,” Omar Abdulkadir Artan said in his first interview since he was turned back. He would have been the first Somali to referee a game in the tournament.`\
 https://www.nytimes.com/2026/06/09/world/africa/somali-referee-world-cup-us-entry-omar-artan.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/09/us/world-cup-security.html
 **The Victoria and Albert Museum Gets Nostalgic for Britain’s Lost Music Venues**\
 `A new exhibition charts the cyclical forces destroying nightlife spots, even as independent spaces fight developers, complaining neighbors and shifting social habits.`\
 https://www.nytimes.com/2026/06/09/arts/music/lost-music-venues-britain-v-and-a-museum.html
-
-**Dubai’s Economic Endurance Is Being Tested in War With Iran**\
-`As conflict ripples through the Persian Gulf, Dubai’s dependence on trade and travel has become an economic vulnerability.`\
-https://www.nytimes.com/2026/06/09/business/dubai-economy-iran-war.html
 

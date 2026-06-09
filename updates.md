@@ -1,3 +1,7 @@
+**Israel Strikes Lebanese City of Tyre as New Cease-Fire Falters**\
+`The bombardment followed Israeli evacuation warnings for the entire city, and came a day after Iran said it would attack Israel if it kept up its offensive in southern Lebanon.`\
+https://www.nytimes.com/2026/06/09/world/middleeast/israel-strikes-lebanese-city-of-tyre-as-new-cease-fire-falters.html
+
 **Maine Elections Test Democrats’ Support for Platner: What to Watch in Today’s Primaries**\
 `Any indication of tepid support for Graham Platner, a Democratic candidate for Senate in Maine, will be seen as a warning sign about his chances against Senator Susan Collins, the Republican incumbent.`\
 https://www.nytimes.com/2026/06/09/us/politics/primary-elections-today-maine-sc-explainer.html
