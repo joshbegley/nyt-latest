@@ -154,7 +154,7 @@ https://www.nytimes.com/2026/06/09/realestate/the-dakota-penthouse-stephen-polly
 `Swimming 900 miles won’t be “the worst way to spend four months,” Catherine Breed says — as long as the great whites, jellyfish and elephant seals leave her alone.`\
 https://www.nytimes.com/2026/06/09/us/catherine-breed-california-coast-swimming.html
 
-**Will Platner Scandals Dampen Democratic Vote? What to Watch in Tuesday’s Primaries.**\
+**Maine Elections Test Democrats’ Support for Platner: What to Watch in Today’s Primaries**\
 `Any indication of tepid support for Graham Platner, a Democratic candidate for Senate in Maine, will be seen as a warning sign about his chances against Senator Susan Collins, the Republican incumbent.`\
 https://www.nytimes.com/2026/06/09/us/politics/primary-elections-today-maine-sc-explainer.html
 
