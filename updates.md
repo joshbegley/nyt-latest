@@ -1,3 +1,15 @@
+**What Is Artemis III? What to Know About NASA’s Latest Space Mission.**\
+`Artemis III is the third in a series of missions that gets humans closer to returning to the surface of the moon.`\
+https://www.nytimes.com/2026/06/09/science/what-is-artemis-iii-moon-nasa.html
+
+**How Does the Blue Origin Rocket Explosion affect NASA’s Moon Plans?**\
+`NASA’s Artemis program has little room for error if it is to land astronauts on the moon by the end of 2028, but Blue Origin could be out of commission for at least a year.`\
+https://www.nytimes.com/2026/06/09/science/space/blue-origin-explosion-nasa-artemis-iii.html
+
+**Live Updates: NASA to Announce Its Artemis III Astronauts**\
+`Four astronauts will be part of the next mission in the agency’s program to return humans to the surface of the moon by 2028. The recent explosion of a Blue Origin rocket could complicate matters.`\
+https://www.nytimes.com/live/2026/06/09/science/nasa-artemis-iii-astronauts
+
 ****\
 `tktktkt please add caption`\
 https://www.nytimes.com/video/embedded/business/100000010954786/Biz-China-Robots.html

@@ -1,3 +1,7 @@
+**After Saying See You Later to Louisiana Police, Man Attacked by Alligator**\
+`The driver, who was charged with driving while impaired, suffered non-life-threatening injuries, authorities said.`\
+https://www.nytimes.com/2026/06/09/us/man-attacked-alligator-louisiana.html
+
 **What Is Artemis III? What to Know About NASA’s Latest Space Mission.**\
 `Artemis III is the third in a series of missions that gets humans closer to returning to the surface of the moon.`\
 https://www.nytimes.com/2026/06/09/science/what-is-artemis-iii-moon-nasa.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/09/world/europe/russia-ukraine-drones-nato-lithu
 **A Gabled Penthouse Atop the Dakota Is on the Market for $8 Million**\
 `The Upper West Side duplex was the longtime home of the art experts Stephen and Polly Rubin and is being sold by their estate.`\
 https://www.nytimes.com/2026/06/09/realestate/the-dakota-penthouse-stephen-polly-rubin.html
-
-**She’s Set to Swim the Entire 900-Mile California Coast — Sharks Permitting**\
-`Swimming 900 miles won’t be “the worst way to spend four months,” Catherine Breed says — as long as the great whites, jellyfish and elephant seals leave her alone.`\
-https://www.nytimes.com/2026/06/09/us/catherine-breed-california-coast-swimming.html
 
