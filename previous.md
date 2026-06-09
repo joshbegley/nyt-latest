@@ -1,3 +1,7 @@
+**Why Apple’s A.I. Upgrade for Siri Won’t Be Available in Europe**\
+`A regulatory dispute has indefinitely delayed the release of Siri AI.`\
+https://www.nytimes.com/2026/06/09/business/apple-siri-ai-europe.html
+
 **Formlabs Introduces a Cheaper Industrial 3-D Printer**\
 `Factories have been slow to adopt 3-D printing because the systems tend to be expensive and difficult to use. Formlabs just released a printer that costs a fraction of what competitors charge.`\
 https://www.nytimes.com/2026/06/09/us/3d-printer-industrial-formlabs.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/09/realestate/large-leaf-garden-plants.html
 **5 Great North American Biking Cities**\
 `Safe, scenic pedaling opportunities abound in cities like Seattle, Montreal and Atlanta. Here are routes that will take you past waterways, through parks and along protected urban lanes.`\
 https://www.nytimes.com/2026/06/09/travel/5-great-north-american-biking-cities.html
-
-**Red State Democrats Need a New Approach to Abortion**\
-`Try nuance and compromise.`\
-https://www.nytimes.com/2026/06/09/opinion/democrats-abotion-compromise.html
 

@@ -1,3 +1,7 @@
+**Why Apple’s A.I. Upgrade for Siri Won’t Be Available in Europe**\
+`A regulatory dispute has indefinitely delayed the release of Siri AI.`\
+https://www.nytimes.com/2026/06/09/business/apple-siri-ai-europe.html
+
 **Formlabs Introduces a Cheaper Industrial 3-D Printer**\
 `Factories have been slow to adopt 3-D printing because the systems tend to be expensive and difficult to use. Formlabs just released a printer that costs a fraction of what competitors charge.`\
 https://www.nytimes.com/2026/06/09/us/3d-printer-industrial-formlabs.html
