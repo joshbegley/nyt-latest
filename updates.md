@@ -1,3 +1,15 @@
+**Billionaires’ Billions Are Increasing Faster Than Ever**\
+`Elon Musk’s potential new status as a trillionaire demonstrates in real time why there has been such a rapid rise in the concentration of wealth at the top.`\
+https://www.nytimes.com/2026/06/09/business/economy/billionaires-musk-gabriel-zucman.html
+
+**Remember Apollo 9? No? Have a Look at Artemis III.**\
+`Almost forgotten now, the mission circled the Earth for 10 days, performing a series of tests with the lunar lander. What it lacked in glory it made up for in technological contributions.`\
+https://www.nytimes.com/2026/06/09/science/space/apollo-9-nasa.html
+
+**Dutch Authorities Block $115 Million Deal by a U.S. Tech Company**\
+`The Netherlands blocked a U.S. company from buying a Dutch firm that handles its national ID system, saying it would create a “threat to the public interest.”`\
+https://www.nytimes.com/2026/06/09/technology/solvinity-kyndryl-blocked-deal-us-europe-rift.html
+
 **After Saying See You Later to Louisiana Police, Man Is Attacked by Alligator**\
 `The driver, who was charged with driving while impaired, suffered non-life-threatening injuries, authorities said.`\
 https://www.nytimes.com/2026/06/09/us/man-attacked-alligator-louisiana.html

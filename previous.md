@@ -1,3 +1,15 @@
+**Billionaires’ Billions Are Increasing Faster Than Ever**\
+`Elon Musk’s potential new status as a trillionaire demonstrates in real time why there has been such a rapid rise in the concentration of wealth at the top.`\
+https://www.nytimes.com/2026/06/09/business/economy/billionaires-musk-gabriel-zucman.html
+
+**Remember Apollo 9? No? Have a Look at Artemis III.**\
+`Almost forgotten now, the mission circled the Earth for 10 days, performing a series of tests with the lunar lander. What it lacked in glory it made up for in technological contributions.`\
+https://www.nytimes.com/2026/06/09/science/space/apollo-9-nasa.html
+
+**Dutch Authorities Block $115 Million Deal by a U.S. Tech Company**\
+`The Netherlands blocked a U.S. company from buying a Dutch firm that handles its national ID system, saying it would create a “threat to the public interest.”`\
+https://www.nytimes.com/2026/06/09/technology/solvinity-kyndryl-blocked-deal-us-europe-rift.html
+
 **After Saying See You Later to Louisiana Police, Man Is Attacked by Alligator**\
 `The driver, who was charged with driving while impaired, suffered non-life-threatening injuries, authorities said.`\
 https://www.nytimes.com/2026/06/09/us/man-attacked-alligator-louisiana.html
@@ -177,16 +189,4 @@ https://www.nytimes.com/2026/06/09/movies/kyle-gallner-interview.html
 **What’s the Left’s Vision for Foreign Policy After Trump?**\
 `Matt Duss, Senator Bernie Sanders’s former foreign policy adviser, argues that Democrats need a foreign policy reckoning.`\
 https://www.nytimes.com/video/opinion/100000010948137/whats-the-lefts-vision-for-foreign-policy-after-trump.html
-
-**Sqirl’s Dream of Los Angeles, Now at Dinnertime**\
-`Years after the JamGate scandal, the brunch darling is open evenings. And it’s really working.`\
-https://www.nytimes.com/2026/06/09/dining/restaurant-review-sqirl-los-angeles.html
-
-**A Paris Pied-à-Terre, Designed for a Daughter**\
-`A designer’s elegant apartment renovation in Saint-Germain-des-Prés.`\
-https://www.nytimes.com/2026/06/09/realestate/paris-pied-a-terre-saint-germain-des-pres.html
-
-**Drones Stray Into Neighboring Countries as Russia and Ukraine Battle**\
-`Drones launched by both Russia and Ukraine are veering off course, menacing countries that are not at war and driving their citizens to seek shelter.`\
-https://www.nytimes.com/2026/06/09/world/europe/russia-ukraine-drones-nato-lithuania-romania.html
 
