@@ -1,3 +1,7 @@
+**Lindsey Graham’s Allies Spend Big to Ward Off a Republican Challenger**\
+`The Republican senator from South Carolina has a well-funded primary challenger who has a chance of forcing him into a runoff election.`\
+https://www.nytimes.com/2026/06/09/us/politics/south-carolina-primary-elections-money-spending.html
+
 **Julio Le Park, Kinetic Sculpture and Op-Art Master, Dies at 97**\
 `His socially engaged works, created over a 70-year career, sought to engage viewers through shifting lights, motors and even Ping-Pong balls.`\
 https://www.nytimes.com/2026/06/09/arts/design/julio-le-parc-dead.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/06/09/opinion/ezra-klein-podcast-matt-duss.html
 **¿El yogur helado es más saludable que el helado?**\
 `¿Es superior en cuanto a valor nutricional o se trata solo de una estrategia de mercadeo? Le pedimos a expertos en nutrición que nos dieran su opinión.`\
 https://www.nytimes.com/es/2026/06/09/espanol/yogur-helado-salud.html
-
-**If Winning Is Everything, Is Anything Off Limits?**\
-`The “fake news” revolution is in full swing.`\
-https://www.nytimes.com/2026/06/09/opinion/campaign-tactics-lies-misinformation.html
 

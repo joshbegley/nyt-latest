@@ -1,3 +1,7 @@
+**Julio Le Park, Kinetic Sculpture and Op-Art Master, Dies at 97**\
+`His socially engaged works, created over a 70-year career, sought to engage viewers through shifting lights, motors and even Ping-Pong balls.`\
+https://www.nytimes.com/2026/06/09/arts/design/julio-le-parc-dead.html
+
 **Iran’s Soccer Federation Says Its World Cup Tickets Have Been Revoked**\
 `It did not say who had interfered but blamed the United States, one of the tournament’s hosts, after months of war.`\
 https://www.nytimes.com/2026/06/09/world/middleeast/iran-world-cup-tickets-revoked.html
@@ -50,7 +54,7 @@ https://www.nytimes.com/2026/06/09/science/what-is-artemis-iii-moon-nasa.html
 `NASA’s Artemis program has little room for error if it is to land astronauts on the moon by the end of 2028, but Blue Origin could be out of commission for at least a year.`\
 https://www.nytimes.com/2026/06/09/science/space/blue-origin-explosion-nasa-artemis-iii.html
 
-**Live Updates: NASA Announcing Its Artemis III Astronauts**\
+**Live Updates: NASA Is Announcing Its Artemis III Astronauts**\
 `Four astronauts will be part of the next mission in the agency’s program to return humans to the surface of the moon by 2028. The recent explosion of a Blue Origin rocket could complicate matters.`\
 https://www.nytimes.com/live/2026/06/09/science/nasa-artemis-iii-astronauts
 
@@ -185,8 +189,4 @@ https://www.nytimes.com/es/2026/06/09/espanol/yogur-helado-salud.html
 **If Winning Is Everything, Is Anything Off Limits?**\
 `The “fake news” revolution is in full swing.`\
 https://www.nytimes.com/2026/06/09/opinion/campaign-tactics-lies-misinformation.html
-
-**Copa Mundial 2026: qué hacer en cada ciudad**\
-`La fiesta más grande del mundo está por comenzar. Aquí te decimos cómo puedes disfrutar cada emocionante minuto.`\
-https://www.nytimes.com/es/interactive/2026/06/09/travel/mundial-2026-que-hacer-mexico-canada-ee-uu.html
 

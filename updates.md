@@ -1,3 +1,11 @@
+**Julio Le Park, Kinetic Sculpture and Op-Art Master, Dies at 97**\
+`His socially engaged works, created over a 70-year career, sought to engage viewers through shifting lights, motors and even Ping-Pong balls.`\
+https://www.nytimes.com/2026/06/09/arts/design/julio-le-parc-dead.html
+
+**Live Updates: NASA Is Announcing Its Artemis III Astronauts**\
+`Four astronauts will be part of the next mission in the agency’s program to return humans to the surface of the moon by 2028. The recent explosion of a Blue Origin rocket could complicate matters.`\
+https://www.nytimes.com/live/2026/06/09/science/nasa-artemis-iii-astronauts
+
 **Iran’s Soccer Federation Says Its World Cup Tickets Have Been Revoked**\
 `It did not say who had interfered but blamed the United States, one of the tournament’s hosts, after months of war.`\
 https://www.nytimes.com/2026/06/09/world/middleeast/iran-world-cup-tickets-revoked.html
