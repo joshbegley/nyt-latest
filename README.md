@@ -1,3 +1,15 @@
+**The Joy of Shopping in Los Angeles**\
+`Men, they’re not afraid to spend! Plus, have we hit Knicks merch overload?`\
+https://www.nytimes.com/2026/06/09/style/los-angeles-clothes-retail.html
+
+**Science Should Not Be Subject to Loyalty Tests**\
+`The proposed O.M.B. rules would ravage the world’s most productive scientific enterprise.`\
+https://www.nytimes.com/2026/06/09/opinion/science-federal-government-funding.html
+
+**171 Writing Prompts to Spark Discussion and Reflection**\
+`Here are all of our Student Opinion questions from the 2025-26 school year. Each question is based on a different New York Times article, interactive feature or video.`\
+https://www.nytimes.com/2026/06/09/learning/171-writing-prompts-to-spark-discussion-and-reflection.html
+
 **Aasif Mandvi Would Leave New York in a Blaze of Margaritas**\
 `The actor, playwright and former “Daily Show” correspondent takes on the Where to Eat questionnaire.`\
 https://www.nytimes.com/2026/06/09/dining/aasif-mandvi.html
@@ -173,16 +185,4 @@ https://www.nytimes.com/interactive/polls/florida-us-house-19-polls-2026.html
 **A Challenge in the U.S.-Iran Talks: Both Sides Demand Victory**\
 `Washington and Tehran would need to defend any potential deal as a win for their side. And each has a leader whose approach to talks is vexing mediators.`\
 https://www.nytimes.com/2026/06/09/world/middleeast/us-iran-talks-war.html
-
-**In an Italy of Many Voices, Emma Dante’s Plays Speak ‘the Language of the People’**\
-`Since her mother’s death, Emma Dante has used the stage as a space to dive into her Sicilian roots — and the contradictions of family life.`\
-https://www.nytimes.com/2026/06/09/theater/emma-dante-venice-theater-biennale.html
-
-**One of Pope Leo’s Best Friends Works in Spain. They Talk About Cars.**\
-`Pope Leo and Armando Jesús Lovera have known each other for decades. They have watched World Cup games together, gone on road trips and once searched for a teddy bear for Mr. Lovera’s future wife.`\
-https://www.nytimes.com/2026/06/09/world/europe/pope-leo-spain-armando-lovera.html
-
-**Gustavo Dudamel se despide de Los Ángeles con un intenso despliegue musical**\
-`Los últimos conciertos de Gustavo Dudamel en el Walt Disney Concert Hall como maestro de la Filarmónica de Los Ángeles fueron un símbolo de su impacto después de 17 años.`\
-https://www.nytimes.com/es/2026/06/09/espanol/cultura/gustavo-dudamel-los-angeles-nueva-york.html
 

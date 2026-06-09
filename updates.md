@@ -1,3 +1,7 @@
+**Aasif Mandvi Would Leave New York in a Blaze of Margaritas**\
+`The actor, playwright and former “Daily Show” correspondent takes on the Where to Eat questionnaire.`\
+https://www.nytimes.com/2026/06/09/dining/aasif-mandvi.html
+
 **Many Feared Trapped Under Earthquake Rubble in Philippines**\
 `Families hope to recover their loved ones after the most powerful earthquake in 50 years to hit the Philippines.`\
 https://www.nytimes.com/2026/06/09/world/asia/philippines-earthquake-trapped.html
