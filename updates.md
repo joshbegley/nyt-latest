@@ -1,3 +1,7 @@
+**Israel Strikes Lebanese City of Tyre as U.S.-Brokered Truce Falters**\
+`The bombardment followed Israeli evacuation warning for the entire city, a day after Iran threatened to attack Israel again if it kept up its offensive against Hezbollah in Lebanon.`\
+https://www.nytimes.com/2026/06/09/world/middleeast/israel-lebanon-strikes-tyre-ceasefire.html
+
 **Billionaires’ Billions Are Increasing Faster Than Ever**\
 `Elon Musk’s potential new status as a trillionaire demonstrates in real time why there has been such a rapid rise in the concentration of wealth at the top.`\
 https://www.nytimes.com/2026/06/09/business/economy/billionaires-musk-gabriel-zucman.html
