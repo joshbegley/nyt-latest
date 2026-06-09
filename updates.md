@@ -1,3 +1,7 @@
+**Maine Elections Test Democrats’ Support for Platner: What to Watch in Today’s Primaries**\
+`Any indication of tepid support for Graham Platner, a Democratic candidate for Senate in Maine, will be seen as a warning sign about his chances against Senator Susan Collins, the Republican incumbent.`\
+https://www.nytimes.com/2026/06/09/us/politics/primary-elections-today-maine-sc-explainer.html
+
 **Somali Referee Says His World Cup Dream Is Dashed After U.S. Denies Entry**\
 `“I had the right papers and everything,” Omar Abdulkadir Artan said in his first interview since he was turned back. He would have been the first Somali to referee a game in the tournament.`\
 https://www.nytimes.com/2026/06/09/world/africa/somali-referee-world-cup-us-entry-omar-artan.html
