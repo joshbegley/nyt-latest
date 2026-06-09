@@ -1,3 +1,11 @@
+**Trump Booed at Game 3 of N.B.A. Finals**\
+`Fans at Madison Square Garden and watch parties around New York City booed when President Trump was shown attending Game 3 of the N.B.A. Finals on Monday.`\
+https://www.nytimes.com/video/sports/100000010954269/trump-booed-knicks-msg-nba-finals.html
+
+**M.S.G. Erupts in Boos as Trump Appears on Screen at Knicks-Spurs Game**\
+`Mr. Trump is the first sitting president to attend an N.B.A. finals game. He smiled as he heard the reception from the crowd at Madison Square Garden.`\
+https://www.nytimes.com/2026/06/08/nyregion/trump-booed-knicks-msg-finals.html
+
 **Lo que sabemos sobre los medicamentos para perder peso cambia rápidamente**\
 `Gracias al uso generalizado de fármacos como el Ozempic, ahora tenemos una idea más clara que nunca de sus efectos y de las dificultades que conlleva tomarlos.`\
 https://www.nytimes.com/es/2026/06/09/espanol/que-sabemos-ozempic-wegovy.html

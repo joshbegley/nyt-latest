@@ -1,5 +1,5 @@
 **Trump Booed at Game 3 of N.B.A. Finals**\
-`Fans at Madison Square Garden and watch parties around New York City booed when President Trump was shown attending Game 3 of the N.B.A. Finals on Monday.`\
+`Fans at Madison Square Garden and watch parties around New York City booed when President Trump was shown attending Game 3 of the N.B.A. finals on Monday.`\
 https://www.nytimes.com/video/sports/100000010954269/trump-booed-knicks-msg-nba-finals.html
 
 **Lo que sabemos sobre los medicamentos para perder peso cambia rápidamente**\
@@ -194,7 +194,7 @@ https://www.nytimes.com/video/theater/100000010943591/tony-tonys-awards-theater-
 `Track the latest polls in New York's 15th Congressional District.`\
 https://www.nytimes.com/interactive/polls/new-york-us-house-15-polls-2026.html
 
-**Live Updates: Knicks Fans Bring Swagger and Nerves to Key Playoff Game**\
+**Knicks Fans Bring Swagger and Nerves to Key Playoff Game**\
 `Madison Square Garden was a cauldron of noise for Game 3 of the N.B.A. finals. New York Knicks fans greeted President Trump with a round of booing.`\
 https://www.nytimes.com/live/2026/06/08/nyregion/nba-finals-trump-knicks-spurs-mamdani
 
