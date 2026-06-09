@@ -15,7 +15,7 @@ https://www.nytimes.com/2026/06/09/world/africa/somali-referee-world-cup-us-entr
 https://www.nytimes.com/2026/06/09/world/middleeast/netanyahus-trump-pressure-over-iran.html
 
 **Behind the Pageantry in Pyongyang With Xi and Kim**\
-`Xi Jinping and Kim Jong-un projected unity and deeper ties this week but the dynamic between China and North Korea has evolved considerably.`\
+`Xi Jinping and Kim Jong-un projected unity and deeper ties this week, but the dynamic between China and North Korea has evolved considerably.`\
 https://www.nytimes.com/interactive/2026/06/09/world/asia/north-korea-china-xi-kim-summit.html
 
 **Man Arrested in ‘Brutal’ Stabbing in Belfast, Police Say**\
