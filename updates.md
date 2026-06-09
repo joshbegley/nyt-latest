@@ -1,3 +1,7 @@
+**Artemis III Astronauts to Wear Prada Spacesuits**\
+`Prada and Axiom Space unveiled the bodysuit that will go to the moon.`\
+https://www.nytimes.com/2026/06/09/science/space/prada-axiom-lcvg-artemis-iii.html
+
 **A Surprising Find in Ancient Squirrel Poop: Woolly Mammoth Meat**\
 `In a new study, fossilized droppings suggested that ancient ground squirrels ate the meat of much larger animals, including mammoths, bison and saber-toothed cats.`\
 https://www.nytimes.com/2026/06/09/science/arctic-squirrels-fossilized-feces-mammoth.html

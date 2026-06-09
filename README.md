@@ -1,3 +1,11 @@
+**Gates Said to Have Hired Ex-Oversight Chief to Advise on Epstein Testimony**\
+`Bill Gates, the Microsoft co-founder, has retained Jake Greenberg, the former top investigative counsel to the House Oversight Committee.`\
+https://www.nytimes.com/2026/06/09/us/politics/bill-gates-jeffrey-epstein-oversight-committee-lawyer.html
+
+**Albert Wolsky, Costume Designer for ‘All That Jazz’ and ‘Grease,’ Dies at 95**\
+`A go-to designer for directors like Bob Fosse and Paul Mazursky, he won two Oscars and created Olivia Newton-John’s indelibly sultry ensemble in “Grease.”`\
+https://www.nytimes.com/2026/06/09/movies/albert-wolsky-dead.html
+
 **Artemis III Astronauts to Wear Prada Spacesuits**\
 `Prada and Axiom Space unveiled the bodysuit that will go to the moon.`\
 https://www.nytimes.com/2026/06/09/science/space/prada-axiom-lcvg-artemis-iii.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/interactive/2026/06/09/opinion/ebola-outbreak-africa-usa
 **The Roar of ‘Cease-Fire’ in a Once-Thriving City**\
 `The city of Nabatieh once spoke to the changing fortunes of Lebanon. Now, amid unending war, it speaks to the country’s worst fears.`\
 https://www.nytimes.com/2026/06/09/world/middleeast/lebanon-israel-nabatieh.html
-
-**Democratic Group Kicks Off $50 Million Midterm Blitz in Conservative Strongholds**\
-`American Bridge is hoping that Republicans are vulnerable in parts of the country that had been exceedingly tough terrain for Democrats in recent elections.`\
-https://www.nytimes.com/2026/06/09/us/politics/democrat-election-ads-american-bridge.html
-
-**Quit Complaining About the World Cup**\
-`There is a lot to gripe about. There’s also a lot to like.`\
-https://www.nytimes.com/2026/06/09/opinion/world-cup-fifa-tickets-prices.html
 
