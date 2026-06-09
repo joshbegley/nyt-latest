@@ -1,3 +1,15 @@
+**What Is Artemis III? What to Know About NASA’s Latest Space Mission.**\
+`Artemis III is the third in a series of missions that gets humans closer to returning to the surface of the moon.`\
+https://www.nytimes.com/2026/06/09/science/what-is-artemis-iii-moon-nasa.html
+
+**How Does the Blue Origin Rocket Explosion affect NASA’s Moon Plans?**\
+`NASA’s Artemis program has little room for error if it is to land astronauts on the moon by the end of 2028, but Blue Origin could be out of commission for at least a year.`\
+https://www.nytimes.com/2026/06/09/science/space/blue-origin-explosion-nasa-artemis-iii.html
+
+**Live Updates: NASA to Announce Its Artemis III Astronauts**\
+`Four astronauts will be part of the next mission in the agency’s program to return humans to the surface of the moon by 2028. The recent explosion of a Blue Origin rocket could complicate matters.`\
+https://www.nytimes.com/live/2026/06/09/science/nasa-artemis-iii-astronauts
+
 ****\
 `tktktkt please add caption`\
 https://www.nytimes.com/video/embedded/business/100000010954786/Biz-China-Robots.html
@@ -158,10 +170,6 @@ https://www.nytimes.com/2026/06/09/arts/music/gustavo-dudamel-la-phil.html
 `The actor has become a reliable horror star — but he’s also delivered compelling performances in offbeat movies like “Dinner in America” and “Strange Darling.”`\
 https://www.nytimes.com/2026/06/09/movies/kyle-gallner-interview.html
 
-**NASA Will Announce New Artemis III Astronauts and an Update on Its Moon Program**\
-`The agency will announce the crew of Artemis III on Tuesday. But will the mission be ready to fly in 2027?`\
-https://www.nytimes.com/2026/06/09/science/nasa-new-artemis-astronauts.html
-
 **What’s the Left’s Vision for Foreign Policy After Trump?**\
 `Matt Duss, Senator Bernie Sanders’s former foreign policy adviser, argues that Democrats need a foreign policy reckoning.`\
 https://www.nytimes.com/video/opinion/100000010948137/whats-the-lefts-vision-for-foreign-policy-after-trump.html
@@ -185,16 +193,4 @@ https://www.nytimes.com/2026/06/09/realestate/the-dakota-penthouse-stephen-polly
 **She’s Set to Swim the Entire 900-Mile California Coast — Sharks Permitting**\
 `Swimming 900 miles won’t be “the worst way to spend four months,” Catherine Breed says — as long as the great whites, jellyfish and elephant seals leave her alone.`\
 https://www.nytimes.com/2026/06/09/us/catherine-breed-california-coast-swimming.html
-
-**Maine Elections Test Democrats’ Support for Platner: What to Watch in Today’s Primaries**\
-`Any indication of tepid support for Graham Platner, a Democratic candidate for Senate in Maine, will be seen as a warning sign about his chances against Senator Susan Collins, the Republican incumbent.`\
-https://www.nytimes.com/2026/06/09/us/politics/primary-elections-today-maine-sc-explainer.html
-
-**At City Ballet, Spring Fever Hit, With Ups and Some Dispiriting Downs**\
-`New York City Ballet ended its season on a positive note with “Coppélia,” but the repertory tipped too heavily into unimportant ballets.`\
-https://www.nytimes.com/2026/06/09/arts/dance/new-york-city-ballet-spring-season.html
-
-**A Gardening Guide to Large-Leaf Plants**\
-`Managing the scale of your foliage can give your landscapes surprising ways to catch the eye.`\
-https://www.nytimes.com/2026/06/09/realestate/large-leaf-garden-plants.html
 
