@@ -1,3 +1,11 @@
+**The Philippines Grapples With Deadly Earthquake’s Aftermath**\
+`After the Philippines was struck by its most powerful earthquake in 50 years, residents on the island of Mindanao were left to pick up the pieces.`\
+https://www.nytimes.com/video/world/asia/100000010954591/philippines-earthquake-aftermath.html
+
+**Live Updates: NASA Announces Its Artemis III Astronauts**\
+`Randy Bresnik, Luca Parmitano, Frank Rubio and Andre Douglas will be part of the next mission in the agency’s program to return humans to the surface of the moon by 2028. The recent explosion of a Blue Origin rocket could complicate matters.`\
+https://www.nytimes.com/live/2026/06/09/science/nasa-artemis-iii-astronauts
+
 **How Will the Artemis III Astronauts Train?**\
 `The Artemis III astronauts who were announced today will have had less mission training time than their Artemis II counterparts.`\
 https://www.nytimes.com/2026/06/09/science/space/artemis-iii-astronauts-training.html
