@@ -1,3 +1,7 @@
+**The U.S. Strikes Iran After Trump Vowed to Retaliate**\
+`Also, meet NASA’s Artemis III crew. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/06/09/briefing/united-states-iran-strikes-maine-primary-election.html
+
 **The Likely Platner-Collins Matchup Is Set to Be Hugely Expensive**\
 `Both Senate candidates in Maine have been strong fund-raisers, and allied super PACs and dark-money groups are mobilizing for their showdown.`\
 https://www.nytimes.com/2026/06/09/us/politics/maine-primary-election-money-spending.html
@@ -62,8 +66,8 @@ https://www.nytimes.com/interactive/2026/06/09/nyregion/nyc-street-parking.html
 `President Trump blamed Iran for shooting down a U.S. helicopter over the Strait of Hormuz and vowed to retaliate, while Israel launched a new wave of strikes on southern Lebanon on Tuesday.`\
 https://www.nytimes.com/video/world/middleeast/100000010954773/lebanon-israeli-strikes-trump-iran-helicopter.html
 
-**Trump Blames Iran for Downing of U.S. Helicopter and Vows to Retaliate**\
-`The threat of further U.S. attacks on Iran came as Israeli forces pounded southern Lebanon while targeting Hezbollah.`\
+**U.S. Strikes Iran After Trump Vows to Retaliate for Downed Helicopter**\
+`The retaliatory U.S. attacks came on Tuesday as Israeli forces pounded southern Lebanon while targeting Hezbollah.`\
 https://www.nytimes.com/2026/06/09/world/middleeast/trump-iran-us-military-helicopter.html
 
 **A.I. Politics**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-nevada-lieutenant-
 **North Dakota Secretary of State Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 North Dakota primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-north-dakota-secretary-of-state-primary.html
-
-**Maine Governor Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Maine primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-maine-governor-primary.html
 
