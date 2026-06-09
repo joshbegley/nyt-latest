@@ -1,3 +1,7 @@
+**Late Night Roasts Trump for Walking Out on ‘Meet the Press’**\
+`Jon Stewart called the president’s interview his “worst nightmare: a woman who won’t stop asking pertinent questions.”`\
+https://www.nytimes.com/2026/06/09/arts/television/late-night-jon-stewart-trump-meet-the-press.html
+
 **Las obras de Frida Kahlo vuelven a brillar en el Museo Dolores Olmedo**\
 `La gran mecenas de Diego Rivera, Dolores Olmedo, consideraba a Frida como una rival, pero compró 26 de sus obras de arte, la mayor colección. Sus obras se exponen en Ciudad de México.`\
 https://www.nytimes.com/es/2026/06/09/espanol/cultura/frida-kahlo-museo-dolores-olmedo.html
