@@ -1,3 +1,15 @@
+**8 Arrested After Ruckus Near Knicks Watch Party at Bryant Park**\
+`Two other sanctioned watch parties for Game 3 of the N.B.A. finals proceeded without much incident in the city.`\
+https://www.nytimes.com/2026/06/09/nyregion/knicks-arrests-game-3.html
+
+**El papa León XIV y uno de sus mejores amigos suelen hablar de coches**\
+`El papa León y Armando Jesús Lovera se conocen desde hace décadas. Han visto juntos partidos del Mundial, han hecho viajes por carretera y una vez buscaron un oso de peluche para la futura esposa de Lovera.`\
+https://www.nytimes.com/es/2026/06/09/espanol/mundo/papa-leon-espana-armando-lovera.html
+
+**Election Live Updates: Tumultuous Senate Primary in Maine Is Biggest Race as 4 States Vote**\
+`Graham Platner is widely expected to win the Democratic primary in Maine, for a seat that is key to the party’s hopes of winning the Senate. Primaries are also underway in South Carolina, Nevada and North Dakota.`\
+https://www.nytimes.com/live/2026/06/09/us/elections-maine-sc-nv-nd-primaries
+
 **Trump Says Iran Shot Down U.S. Helicopter and Vows to Retaliate**\
 `U.S. Central Command said the incident was under investigation. The pilot and gunner were safely rescued.`\
 https://www.nytimes.com/2026/06/09/us/politics/trump-helicopter-iran-war.html
