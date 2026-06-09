@@ -1,3 +1,11 @@
+**Las obras de Frida Kahlo vuelven a brillar en el Museo Dolores Olmedo**\
+`La gran mecenas de Diego Rivera, Dolores Olmedo, consideraba a Frida como una rival, pero compró 26 de sus obras de arte, la mayor colección. Sus obras se exponen en Ciudad de México.`\
+https://www.nytimes.com/es/2026/06/09/espanol/cultura/frida-kahlo-museo-dolores-olmedo.html
+
+**Gusano barrenador en EE. UU.: qué han hecho las autoridades**\
+`Los funcionarios están evaluando conceder una autorización de emergencia de moscas estériles genéticamente modificadas para controlar las poblaciones del insecto parásito carnívoro.`\
+https://www.nytimes.com/es/2026/06/09/espanol/ciencia-y-tecnologia/gusano-barrenador-mexico-casos.html
+
 **Word of the Day: abnegate**\
 `This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/06/09/learning/word-of-the-day-abnegate.html
