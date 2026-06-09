@@ -1,3 +1,7 @@
+**The Movement to Stop Data Centers**\
+`What to know about the local backlash against the booming data center industry, the era of me-first energy and more climate news.`\
+https://www.nytimes.com/2026/06/09/climate/data-center-bans.html
+
 **Maine Second Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Maine primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-maine-us-house-2-primary.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-us-
 **North Dakota At-Large Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 North Dakota primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-north-dakota-us-house-at-large-primary.html
-
-**South Carolina Agriculture Commissioner Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 South Carolina primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-agriculture-commissioner-primary.html
 
 **Election Live Updates: Maine Primary Takes Center Stage in Fight for Senate Control**\
 `Graham Platner is widely expected to win the Democratic primary in Maine, setting the stage for a closely watched race against Susan Collins. Primaries are also underway in South Carolina, Nevada and North Dakota.`\

@@ -1,3 +1,7 @@
+**The Movement to Stop Data Centers**\
+`What to know about the local backlash against the booming data center industry, the era of me-first energy and more climate news.`\
+https://www.nytimes.com/2026/06/09/climate/data-center-bans.html
+
 **Democrats Accuse Republicans of Meddling in High-Stakes Maine Primary**\
 `A mysterious group has spent $500,000 to elevate a progressive candidate in the Democratic primary race for a key House seat.`\
 https://www.nytimes.com/2026/06/09/us/politics/democrats-republican-meddling-matt-dunlap-joe-baldacci.html
