@@ -1,3 +1,19 @@
+**MSG Erupts in Boos as Trump Appears on Screen at Knicks-Spurs Game**\
+`Mr. Trump is the first sitting president to attend an N.B.A. finals game. He smiled as he heard the reception from the crowd at Madison Square Garden.`\
+https://www.nytimes.com/2026/06/08/nyregion/trump-booed-knicks-msg-finals.html
+
+**For Lonely Knicks Fans, Championship Run Forges Fellowship in NYC**\
+`The championship run by the Knicks has created a “love fest,” one fan said, and it has even given her a new circle of friends.`\
+https://www.nytimes.com/2026/06/08/nyregion/knicks-fans-lonely-no-more.html
+
+**La tormenta tropical Boris se acerca a México y Cristina crece frente a Nicaragua**\
+`La temporada de huracanes en el Pacífico ya está muy activa.`\
+https://www.nytimes.com/es/2026/06/08/espanol/tiempo-y-clima/tormenta-tropical-boris-cristina-mexico.html
+
+**Live Updates: Fans Greet Knicks With Cheers, and Trump With Boos**\
+`President Trump is attending Game 3 of the N.B.A. finals at Madison Square Garden, a game decades in the making for Knicks fans. Nervous but hopeful energy filled the city at watch parties big and small.`\
+https://www.nytimes.com/live/2026/06/08/nyregion/nba-finals-trump-knicks-spurs-mamdani
+
 **In a City That Often Feels Lonely, a Basketball Team Forges Fellowship**\
 `The championship run by the Knicks has created a “love fest,” one fan said, and it has even given her a new circle of friends.`\
 https://www.nytimes.com/2026/06/08/nyregion/knicks-fans-lonely-no-more.html

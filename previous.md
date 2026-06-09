@@ -1,4 +1,8 @@
-**In a City That Often Feels Lonely, a Basketball Team Forges Fellowship**\
+**MSG Erupts in Boos as Trump Appears on Screen at Knicks-Spurs Game**\
+`Mr. Trump is the first sitting president to attend an N.B.A. finals game. He smiled as he heard the reception from the crowd at Madison Square Garden.`\
+https://www.nytimes.com/2026/06/08/nyregion/trump-booed-knicks-msg-finals.html
+
+**For Lonely Knicks Fans, Championship Run Forges Fellowship in NYC**\
 `The championship run by the Knicks has created a “love fest,” one fan said, and it has even given her a new circle of friends.`\
 https://www.nytimes.com/2026/06/08/nyregion/knicks-fans-lonely-no-more.html
 
@@ -114,7 +118,7 @@ https://www.nytimes.com/2026/06/08/briefing/iran-israel-strikes-todd-blanche.htm
 `The company hopes to raise billions in a highly anticipated public offering that could unlock a new generation of tech industry wealth.`\
 https://www.nytimes.com/2026/06/08/technology/openai-ipo.html
 
-**La tormenta tropical Boris se acerca México y Cristina crece cerca de Nicaragua**\
+**La tormenta tropical Boris se acerca a México y Cristina crece frente a Nicaragua**\
 `La temporada de huracanes en el Pacífico ya está muy activa.`\
 https://www.nytimes.com/es/2026/06/08/espanol/tiempo-y-clima/tormenta-tropical-boris-cristina-mexico.html
 
@@ -178,7 +182,7 @@ https://www.nytimes.com/interactive/polls/florida-us-house-2-polls-2026.html
 `Mr. Bankman-Fried is serving a 25-year prison sentence for fraud related to the collapse of his cryptocurrency exchange, FTX.`\
 https://www.nytimes.com/2026/06/08/technology/sam-bankman-fried-pardon-trump.html
 
-**Live Updates: New Yorkers Hold Breath for Momentous Knicks Game**\
+**Live Updates: Fans Greet Knicks With Cheers, and Trump With Boos**\
 `President Trump is attending Game 3 of the N.B.A. finals at Madison Square Garden, a game decades in the making for Knicks fans. Nervous but hopeful energy filled the city at watch parties big and small.`\
 https://www.nytimes.com/live/2026/06/08/nyregion/nba-finals-trump-knicks-spurs-mamdani
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/08/science/dutch-scientist-mpox-virus-smuggling.
 **Why People Are Obsessed With Platner**\
 `Graham Platner is not just a candidate for the Senate in Maine, argues the Opinion columnist Jamelle Bouie on “The Opinions,” but also a representative of “an intra-Democratic Party factional battle.” Bouie says the arguments around Platner resemble a proxy fight unfolding within the party.`\
 https://www.nytimes.com/video/opinion/100000010952747/why-people-are-obsessed-with-platner.html
-
-**Hiker, 18, Dies at Grand Canyon National Park Amid High Heat**\
-`The man was with his father on a popular, strenuous trail on a day that temperatures reached above 100 degrees in parts of the canyon, officials said.`\
-https://www.nytimes.com/2026/06/08/us/grand-canyon-hiker-death-heat.html
 
