@@ -1,3 +1,7 @@
+**I.C.C. Prosecutor Karim Khan Suspended Over Sexual Harassment Claims**\
+`Karim Khan, the chief prosecutor of the International Criminal Court, faced an accusation of sexual harassment.`\
+https://www.nytimes.com/2026/06/08/world/europe/karim-khan-icc-suspended.html
+
 **Nithya Raman Secures Second LA Mayor Spot, Ending Spencer Pratt’s Run**\
 `Nithya Raman, a progressive Democrat who entered the mayoral race at the last minute, secured the second spot to face Mayor Karen Bass in November. Her comeback sets up an intraparty battle.`\
 https://www.nytimes.com/2026/06/08/us/elections/nithya-raman-la-mayor-karen-bass.html
