@@ -1,3 +1,63 @@
+**The Holdup at the Center of the Iran Talks, and Trump’s Baseless New Claims of Voter Fraud**\
+`Plus, “I’m busy, but you can talk to my A.I. twin.”`\
+https://www.nytimes.com/2026/06/09/podcasts/the-headlines/the-holdup-at-the-center-of-the-iran-talks-and-trumps-baseless-new-claims-of-voter-fraud.html
+
+**Maine Votes as Graham Platner’s Past Poses New Conundrums**\
+`Mr. Platner, a Democratic candidate for Senate, is causing anxiety over his turbulent personal history.`\
+https://www.nytimes.com/2026/06/09/podcasts/the-daily/maine-vote-graham-platner-primary-senate.html
+
+**NYT Connections Answers for June 10, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, June 10, 2026.`\
+https://www.nytimes.com/2026/06/09/crosswords/connections-companion-1095.html
+
+**NYT Strands Hints for June 10, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, June 10, 2026.`\
+https://www.nytimes.com/2026/06/09/crosswords/strands-sidekick-829.html
+
+**Today’s Wordle Hints for June 10, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, June 10, 2026.`\
+https://www.nytimes.com/2026/06/09/crosswords/wordle-review-1817.html
+
+**Who Is Ahead in Florida's 28th Congressional District?**\
+`Track the latest polls in Florida's 28th Congressional District.`\
+https://www.nytimes.com/interactive/polls/florida-us-house-28-polls-2026.html
+
+**Who Is Ahead in Florida's 27th Congressional District?**\
+`Track the latest polls in Florida's 27th Congressional District.`\
+https://www.nytimes.com/interactive/polls/florida-us-house-27-polls-2026.html
+
+**Who Is Ahead in Florida's 23rd Congressional District?**\
+`Track the latest polls in Florida's 23rd Congressional District.`\
+https://www.nytimes.com/interactive/polls/florida-us-house-23-polls-2026.html
+
+**Who Is Ahead in Florida's 20th Congressional District?**\
+`Track the latest polls in Florida's 20th Congressional District.`\
+https://www.nytimes.com/interactive/polls/florida-us-house-20-polls-2026.html
+
+**Who Is Ahead in Florida's 19th Congressional District?**\
+`Track the latest polls in Florida's 19th Congressional District.`\
+https://www.nytimes.com/interactive/polls/florida-us-house-19-polls-2026.html
+
+**A Challenge in the U.S.-Iran Talks: Both Sides Demand Victory**\
+`Washington and Tehran would need to defend any potential deal as a win for their side. And each has a leader whose approach to talks is vexing mediators.`\
+https://www.nytimes.com/2026/06/09/world/middleeast/us-iran-talks-war.html
+
+**In an Italy of Many Voices, Emma Dante’s Plays Speak ‘the Language of the People’**\
+`Since her mother’s death, Emma Dante has used the stage as a space to dive into her Sicilian roots — and the contradictions of family life.`\
+https://www.nytimes.com/2026/06/09/theater/emma-dante-venice-theater-biennale.html
+
+**One of Pope Leo’s Best Friends Works in Spain. They Talk About Cars.**\
+`Pope Leo and Armando Jesús Lovera have known each other for decades. They have watched World Cup games together, gone on road trips and once searched for a teddy bear for Mr. Lovera’s future wife.`\
+https://www.nytimes.com/2026/06/09/world/europe/pope-leo-spain-armando-lovera.html
+
+**Gustavo Dudamel se despide de Los Ángeles con un intenso despliegue musical**\
+`Los últimos conciertos de Gustavo Dudamel en el Walt Disney Concert Hall como maestro de la Filarmónica de Los Ángeles fueron un símbolo de su impacto después de 17 años.`\
+https://www.nytimes.com/es/2026/06/09/espanol/cultura/gustavo-dudamel-los-angeles-nueva-york.html
+
+**Iran War Live Updates: Israel Launches New Strikes in Southern Lebanon**\
+`The attacks came a day after Israel and Iran pulled back from direct confrontation. The Israeli campaign against the Lebanese militia Hezbollah has been an obstacle in U.S.-Iran peace talks.`\
+https://www.nytimes.com/live/2026/06/09/world/iran-war-trump-israel-lebanon
+
 **Xi Jinping Makes Rare Trip to North Korea to Court Kim Jong-Un**\
 `North Korean and Chinese state media footage showed China’s leader, Xi Jinping, arriving in Pyongyang, North Korea, for a summit with his counterpart, Kim Jong-un. The visit aimed to strengthen ties between the two nations.`\
 https://www.nytimes.com/video/world/asia/100000010954313/xi-north-korea-visit.html
