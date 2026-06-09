@@ -1,3 +1,7 @@
+**Formlabs Introduces a Cheaper Industrial 3-D Printer**\
+`Factories have been slow to adopt 3-D printing because the systems tend to be expensive and difficult to use. Formlabs just released a printer that costs a fraction of what competitors charge.`\
+https://www.nytimes.com/2026/06/09/us/3d-printer-industrial-formlabs.html
+
 **Election Live Updates: Tumultuous Senate Primary in Maine Is Biggest Race as 4 States Vote**\
 `Graham Platner is widely expected to win the Democratic primary in Maine, for a seat that is key to the party’s hopes of winning the Senate. Primaries are also underway in South Carolina, Nevada and North Dakota.`\
 https://www.nytimes.com/live/2026/06/09/us/elections-maine-sc-nv-nd-primaries
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/09/travel/5-great-north-american-biking-cities.h
 **Red State Democrats Need a New Approach to Abortion**\
 `Try nuance and compromise.`\
 https://www.nytimes.com/2026/06/09/opinion/democrats-abotion-compromise.html
-
-**After Decades of Confusion, a Name Change**\
-`The Carnegie Corporation of New York will now be called the Andrew Carnegie Foundation, a name that the organization says better reflects its work.`\
-https://www.nytimes.com/2026/06/09/nyregion/after-decades-of-confusion-a-name-change.html
 
