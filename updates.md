@@ -1,3 +1,115 @@
+**Pope Leo Meets Bad Bunny**\
+`The two crossed paths in Spain, where they have been on decidedly different tours. Sorry, no photos were released.`\
+https://www.nytimes.com/2026/06/09/world/europe/pope-leo-bad-bunny.html
+
+**Pro-Israel Group Pushes for Haley Stevens in Michigan Senate Race**\
+`The main super PAC tied to the influential American Israel Public Affairs Committee released its first ads backing Ms. Stevens, a moderate congresswoman locked in a tight three-way primary.`\
+https://www.nytimes.com/2026/06/09/us/politics/aipac-haley-stevens-michigan-senate.html
+
+**Nevada Fourth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Nevada primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-nevada-us-house-4-primary.html
+
+**South Carolina Superintendent of Education Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 South Carolina primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-superintendent-of-education-primary.html
+
+**South Carolina Agriculture Commissioner Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 South Carolina primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-agriculture-commissioner-primary.html
+
+**South Carolina Fourth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 South Carolina primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-us-house-4-primary.html
+
+**South Carolina First Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 South Carolina primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-us-house-1-primary.html
+
+**South Carolina Comptroller General Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 South Carolina primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-comptroller-general-primary.html
+
+**South Carolina Treasurer Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 South Carolina primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-treasurer-primary.html
+
+**South Carolina Second Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 South Carolina primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-us-house-2-primary.html
+
+**Nevada Third Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Nevada primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-nevada-us-house-3-primary.html
+
+**South Carolina Attorney General Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 South Carolina primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-attorney-general-primary.html
+
+**Nevada Treasurer Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Nevada primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-nevada-treasurer-primary.html
+
+**North Dakota Constitutional Amendment 1: Live Election Results 2026**\
+`Get live results and maps from the 2026 North Dakota general election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-north-dakota-ballot-measure.html
+
+**South Carolina Secretary of State Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 South Carolina primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-secretary-of-state-primary.html
+
+**North Dakota At-Large Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 North Dakota primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-north-dakota-us-house-at-large-primary.html
+
+**North Dakota Superintendent of Public Instruction 2026: Live Election Results**\
+`Get live results and maps from the 2026 North Dakota election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-north-dakota-superintendent-of-public-instruction.html
+
+**Nevada Controller Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Nevada primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-nevada-controller-primary.html
+
+**Nevada Secretary of State Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Nevada primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-nevada-secretary-of-state-primary.html
+
+**North Dakota Public Service Commission Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 North Dakota primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-north-dakota-public-service-commission-primary.html
+
+**Nevada Lieutenant Governor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Nevada primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-nevada-lieutenant-governor-primary.html
+
+**North Dakota Secretary of State Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 North Dakota primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-north-dakota-secretary-of-state-primary.html
+
+**Maine Governor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Maine primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-maine-governor-primary.html
+
+**North Dakota Attorney General Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 North Dakota primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-north-dakota-attorney-general-primary.html
+
+**Nevada First Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Nevada primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-nevada-us-house-1-primary.html
+
+**South Carolina Fifth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 South Carolina primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-us-house-5-primary.html
+
+**Nevada Supreme Court Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Nevada primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-nevada-supreme-court-primary.html
+
+**Nevada Attorney General Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Nevada primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-nevada-attorney-general-primary.html
+
 **In A.I. Blunder, More Than 34,000 Instagram Accounts Became Vulnerable**\
 `The flaw, which Meta said it had fixed, allowed anyone to take over Instagram accounts using a bug in the company’s new artificial intelligence software.`\
 https://www.nytimes.com/2026/06/09/technology/34000-instagram-accounts-ai.html

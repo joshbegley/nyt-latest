@@ -1,3 +1,7 @@
+**Maine’s Primary Ballot Is Crowded With Members of Political Dynasties**\
+`Among other candidates with ties to prominent officials, a senator’s son and a Bush scion are running for governor.`\
+https://www.nytimes.com/2026/06/09/us/politics/maine-political-dynasty-king-pingree-bush.html
+
 **Pope Leo Meets Bad Bunny**\
 `The two crossed paths in Spain, where they have been on decidedly different tours. Sorry, no photos were released.`\
 https://www.nytimes.com/2026/06/09/world/europe/pope-leo-bad-bunny.html
@@ -138,9 +142,9 @@ https://www.nytimes.com/interactive/2026/us/elections/results-nevada-governor-pr
 `Get live results and maps from the 2026 Nevada primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-nevada-attorney-general-primary.html
 
-**In A.I. Blunder, More Than 34,000 Instagram Accounts Became Vulnerable**\
+**Meta A.I. Bug Allowed Hackers to Take Over Instagram Accounts**\
 `The flaw, which Meta said it had fixed, allowed anyone to take over Instagram accounts using a bug in the company’s new artificial intelligence software.`\
-https://www.nytimes.com/2026/06/09/technology/34000-instagram-accounts-ai.html
+https://www.nytimes.com/2026/06/09/technology/instagram-hack-ai-bug.html
 
 **Why ‘Just-Rolled-Out-of-Bed’ Hairstyles Are Now in Fashion**\
 `With messy mops showing up on both runways and red carpets, the key to fashion’s new favorite hairstyle is doing less.`\
@@ -181,10 +185,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-maine-us-house-1-p
 **House Votes to Advance $70 Billion G.O.P. Immigration Bill**\
 `The test vote cleared the way for final passage of Republicans’ megabill to fund immigration enforcement through the remainder of President Trump’s term.`\
 https://www.nytimes.com/2026/06/09/us/politics/house-immigration-bill.html
-
-**Suspect Arrested in Belfast Knife Attack**\
-`Northern Ireland’s police arrested a man on suspicion of attempted murder after a stabbing in Belfast left another man in serious condition on Monday.`\
-https://www.nytimes.com/video/world/europe/100000010954882/belfast-stabbing-suspect-arrested.html
 
 **Election Live Updates: Maine Primary Takes Center Stage in Fight for Senate Control**\
 `Graham Platner is widely expected to win the Democratic primary in Maine, setting the stage for a closely watched race against Susan Collins. Primaries are also underway in South Carolina, Nevada and North Dakota.`\
