@@ -186,7 +186,3 @@ https://www.nytimes.com/2026/06/09/arts/music/gustavo-dudamel-la-phil.html
 `The actor has become a reliable horror star — but he’s also delivered compelling performances in offbeat movies like “Dinner in America” and “Strange Darling.”`\
 https://www.nytimes.com/2026/06/09/movies/kyle-gallner-interview.html
 
-**What’s the Left’s Vision for Foreign Policy After Trump?**\
-`Matt Duss, Senator Bernie Sanders’s former foreign policy adviser, argues that Democrats need a foreign policy reckoning.`\
-https://www.nytimes.com/video/opinion/100000010948137/whats-the-lefts-vision-for-foreign-policy-after-trump.html
-

@@ -1,3 +1,11 @@
+**A Surprising Find in Ancient Squirrel Poop: Woolly Mammoth Meat**\
+`In a new study, fossilized droppings suggested that ancient ground squirrels ate the meat of much larger animals, including mammoths, bison and saber-toothed cats.`\
+https://www.nytimes.com/2026/06/09/science/arctic-squirrels-fossilized-feces-mammoth.html
+
+**Watch Live: NASA Announces Artemis III Crew**\
+`NASA announces the crew of Artemis III.`\
+https://www.nytimes.com/video/embedded/science/space/100000010954863/watch-live-nasa-announces-artemis-iii-crew.html
+
 **Billionaires’ Billions Are Increasing Faster Than Ever**\
 `Elon Musk’s potential new status as a trillionaire demonstrates in real time why there has been such a rapid rise in the concentration of wealth at the top.`\
 https://www.nytimes.com/2026/06/09/business/economy/billionaires-musk-gabriel-zucman.html
@@ -181,8 +189,4 @@ https://www.nytimes.com/2026/06/09/opinion/world-cup-fifa-tickets-prices.html
 **The Gustavo Dudamel Era in Los Angeles Approaches Its End**\
 `Gustavo Dudamel’s last concerts at Walt Disney Concert Hall as the Los Angeles Philharmonic’s maestro were a symbol of his impact after 17 years.`\
 https://www.nytimes.com/2026/06/09/arts/music/gustavo-dudamel-la-phil.html
-
-**Kyle Gallner Is More Than Just a Scream King**\
-`The actor has become a reliable horror star — but he’s also delivered compelling performances in offbeat movies like “Dinner in America” and “Strange Darling.”`\
-https://www.nytimes.com/2026/06/09/movies/kyle-gallner-interview.html
 
