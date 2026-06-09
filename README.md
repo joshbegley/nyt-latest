@@ -1,3 +1,7 @@
+**Aasif Mandvi Would Leave New York in a Blaze of Margaritas**\
+`The actor, playwright and former “Daily Show” correspondent takes on the Where to Eat questionnaire.`\
+https://www.nytimes.com/2026/06/09/dining/aasif-mandvi.html
+
 **Many Feared Trapped Under Earthquake Rubble in Philippines**\
 `Families hope to recover their loved ones after the most powerful earthquake in 50 years to hit the Philippines.`\
 https://www.nytimes.com/2026/06/09/world/asia/philippines-earthquake-trapped.html
@@ -181,12 +185,4 @@ https://www.nytimes.com/2026/06/09/world/europe/pope-leo-spain-armando-lovera.ht
 **Gustavo Dudamel se despide de Los Ángeles con un intenso despliegue musical**\
 `Los últimos conciertos de Gustavo Dudamel en el Walt Disney Concert Hall como maestro de la Filarmónica de Los Ángeles fueron un símbolo de su impacto después de 17 años.`\
 https://www.nytimes.com/es/2026/06/09/espanol/cultura/gustavo-dudamel-los-angeles-nueva-york.html
-
-**Iran War Live Updates: Israel Launches New Strikes in Southern Lebanon**\
-`The attacks came a day after Israel and Iran pulled back from direct confrontation. The Israeli campaign against the Lebanese militia Hezbollah has been an obstacle in U.S.-Iran peace talks.`\
-https://www.nytimes.com/live/2026/06/09/world/iran-war-trump-israel-lebanon
-
-**Oil Prices Ease as Iran and Israel Halt Strikes**\
-`Oil prices fell after Israel and Iran agreed to halt strikes against each other, easing fears of a broader regional conflict that had briefly driven crude higher.`\
-https://www.nytimes.com/2026/06/09/business/oil-gas-prices-iran.html
 
