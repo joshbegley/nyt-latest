@@ -174,8 +174,8 @@ https://www.nytimes.com/2026/06/09/dining/restaurant-review-sqirl-los-angeles.ht
 `A designer’s elegant apartment renovation in Saint-Germain-des-Prés.`\
 https://www.nytimes.com/2026/06/09/realestate/paris-pied-a-terre-saint-germain-des-pres.html
 
-**Ukraine’s Neighbors Seek Shelter as More and More Drones Fly Overhead**\
-`Drones launched by both Russia and Ukraine are veering off course, menacing countries that are not at war.`\
+**Drones Stray Into Neighboring Countries as Russia and Ukraine Battle**\
+`Drones launched by both Russia and Ukraine are veering off course, menacing countries that are not at war and driving their citizens to seek shelter.`\
 https://www.nytimes.com/2026/06/09/world/europe/russia-ukraine-drones-nato-lithuania-romania.html
 
 **A Gabled Penthouse Atop the Dakota Is on the Market for $8 Million**\
