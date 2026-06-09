@@ -1,3 +1,7 @@
+**For America’s 250th, Let’s Get Something Clear About Our National Identity**\
+`It depends on both ideas and cultural inheritance.`\
+https://www.nytimes.com/2026/06/09/opinion/america-250-national-identity.html
+
 **Federal Judge Faces Battery Charge After Parking Lot Confrontation**\
 `Judge Ryan Nelson of the U.S. Court of Appeals for the Ninth Circuit tossed a man’s glasses and appeared to stomp on them during an argument in Idaho that was captured on video.`\
 https://www.nytimes.com/2026/06/09/us/ryan-nelson-judge-criminal-charges-battery.html
