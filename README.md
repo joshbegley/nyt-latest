@@ -1,3 +1,19 @@
+**For Nearly 150 Years, Parking Has Driven New Yorkers to the Brink**\
+`From court cases to political scandals to murder, the city has long been racked with conflict over what to do with cars when they’re not being driven.`\
+https://www.nytimes.com/interactive/2026/06/09/nyregion/nyc-parking-cars-history.html
+
+**This Parking Spot is Free. Should It Be?**\
+`There are about three million parking spaces in New York City, but drivers are always struggling to find one that’s open. Can the system be fixed?`\
+https://www.nytimes.com/interactive/2026/06/09/nyregion/nyc-street-parking.html
+
+**Tensions Flare in the Middle East as Cease-Fire Falters**\
+`President Trump blamed Iran for shooting down a U.S. helicopter over the Strait of Hormuz and vowed to retaliate, while Israel launched a new wave of strikes on southern Lebanon on Tuesday.`\
+https://www.nytimes.com/video/world/middleeast/100000010954773/lebanon-israeli-strikes-trump-iran-helicopter.html
+
+**Trump Blames Iran for Downing of U.S. Helicopter and Vows to Retaliate**\
+`The threat of further U.S. attacks on Iran came as Israeli forces pounded southern Lebanon while targeting Hezbollah.`\
+https://www.nytimes.com/2026/06/09/world/middleeast/trump-iran-us-military-helicopter.html
+
 **A.I. Politics**\
 `Much of the discussion about artificial intelligence focuses on economic disruption. But it could reshape political life, too.`\
 https://www.nytimes.com/2026/06/09/world/ai-politics-iran-world-cup.html
@@ -173,18 +189,6 @@ https://www.nytimes.com/2026/06/09/us/karmelo-anthony-murder-verdict-guilty.html
 **Para este árbitro somalí, el Mundial terminó cuando EE. UU. le negó la entrada**\
 `“Tenía los papeles en regla y todo”, dijo Omar Abdulkadir Artan en su primera entrevista desde que fue enviado de regreso. Habría sido el primer somalí en arbitrar un partido del torneo.`\
 https://www.nytimes.com/es/2026/06/09/espanol/deportes/somalia-arbitro-entrevista-exclusiva.html
-
-**The Movement to Stop Data Centers**\
-`What to know about the local backlash against the booming data center industry, the era of me-first energy and more climate news.`\
-https://www.nytimes.com/2026/06/09/climate/data-center-bans.html
-
-**Maine Second Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Maine primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-maine-us-house-2-primary.html
-
-**Democrats Accuse Republicans of Meddling in Maine’s Second Congressional District Primary**\
-`A mysterious group has spent $500,000 to elevate a progressive candidate in the Democratic primary race for a key House seat.`\
-https://www.nytimes.com/2026/06/09/us/politics/democrats-republican-meddling-matt-dunlap-joe-baldacci.html
 
 **Election Live Updates: Maine Primary Takes Center Stage in Fight for Senate Control**\
 `Graham Platner is widely expected to win the Democratic primary in Maine, setting the stage for a closely watched race against Susan Collins. Primaries are also underway in South Carolina, Nevada and North Dakota.`\
