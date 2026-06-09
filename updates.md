@@ -1,3 +1,11 @@
+**How Will the Artemis III Astronauts Train?**\
+`The Artemis III astronauts who were announced today will have had less mission training time than their Artemis II counterparts.`\
+https://www.nytimes.com/2026/06/09/science/space/artemis-iii-astronauts-training.html
+
+**Bill Gates Said to Have Hired Ex-House Oversight Chief to Advise on Epstein Testimony**\
+`Bill Gates, the Microsoft co-founder, has retained Jake Greenberg, the former top investigative counsel to the House Oversight Committee.`\
+https://www.nytimes.com/2026/06/09/us/politics/bill-gates-jeffrey-epstein-oversight-committee-lawyer.html
+
 **Watchdog Group Skeptical of Justice Dept.’s Vows to End $1.8 Billion Fund**\
 `The group, Citizens for Responsibility and Ethics in Washington, doubled down on its request to a federal judge to issue a formal order stopping the fund from being set up.`\
 https://www.nytimes.com/2026/06/09/us/justice-dept-fund-trump-irs-watchdog.html
