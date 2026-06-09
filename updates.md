@@ -1,3 +1,7 @@
+**Word of the Day: abnegate**\
+`This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/06/09/learning/word-of-the-day-abnegate.html
+
 **Alcohol’s Health Risks Accelerate After One Drink a Day, Study Finds**\
 `The alcohol industry has criticized the research, which found that even light drinking increases the risk of premature death.`\
 https://www.nytimes.com/2026/06/09/well/alcohol-health-risks-study.html

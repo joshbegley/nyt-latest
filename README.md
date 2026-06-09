@@ -1,3 +1,11 @@
+**Las obras de Frida Kahlo vuelven a brillar en el Museo Dolores Olmedo**\
+`La gran mecenas de Diego Rivera, Dolores Olmedo, consideraba a Frida como una rival, pero compró 26 de sus obras de arte, la mayor colección. Sus obras se exponen en Ciudad de México.`\
+https://www.nytimes.com/es/2026/06/09/espanol/cultura/frida-kahlo-museo-dolores-olmedo.html
+
+**Gusano barrenador en EE. UU.: qué han hecho las autoridades**\
+`Los funcionarios están evaluando conceder una autorización de emergencia de moscas estériles genéticamente modificadas para controlar las poblaciones del insecto parásito carnívoro.`\
+https://www.nytimes.com/es/2026/06/09/espanol/ciencia-y-tecnologia/gusano-barrenador-mexico-casos.html
+
 **Word of the Day: abnegate**\
 `This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/06/09/learning/word-of-the-day-abnegate.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/08/briefing/iran-israel-strikes-todd-blanche.htm
 **OpenAI Files Confidentially for IPO as AI Companies Rush to Wall St.**\
 `The company hopes to raise billions in a highly anticipated public offering that could unlock a new generation of tech industry wealth.`\
 https://www.nytimes.com/2026/06/08/technology/openai-ipo.html
-
-**La tormenta tropical Boris se acerca a México y Cristina crece frente a Nicaragua**\
-`La temporada de huracanes en el Pacífico ya está muy activa.`\
-https://www.nytimes.com/es/2026/06/08/espanol/tiempo-y-clima/tormenta-tropical-boris-cristina-mexico.html
-
-**Una demanda busca impedir el evento de la UFC en la Casa Blanca**\
-`Una demanda federal alega que el evento, fijado para el 14 de junio, día del cumpleaños del presidente Trump, fue planeado ilegalmente y diseñado para beneficiarlo a él y a sus aliados.`\
-https://www.nytimes.com/es/2026/06/08/espanol/estados-unidos/trump-ufc-casa-blanca-demanda.html
 
 **Knicks Fans Bring Swagger and Nerves to Key Playoff Game**\
 `Madison Square Garden was a cauldron of noise for Game 3 of the N.B.A. finals. New York Knicks fans greeted President Trump with a round of booing.`\
