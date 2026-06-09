@@ -2,6 +2,14 @@
 `The night began with frustration and boos, and not because of the Knicks. But by the end of Game 3 of the N.B.A. finals, the team had slightly deflated some spirits, too.`\
 https://www.nytimes.com/2026/06/09/nyregion/knicks-spurs-game-3-trump.html
 
+**Alcohol’s Health Risks Accelerate After One Drink a Day, Study Finds**\
+`The alcohol industry has criticized the research, which found that even light drinking increases the risk of premature death.`\
+https://www.nytimes.com/2026/06/09/well/alcohol-health-risks-study.html
+
+**Europe Needs to Come Together. This Man Has Some Ideas.**\
+`Luuk van Middelaar, a Dutch scholar, is emerging as the continent’s master strategist.`\
+https://www.nytimes.com/2026/06/09/opinion/europe-defense-van-middelaar.html
+
 **Trump Booed at Game 3 of N.B.A. Finals**\
 `Fans at Madison Square Garden and watch parties around New York City booed when President Trump was shown attending Game 3 of the N.B.A. finals on Monday.`\
 https://www.nytimes.com/video/sports/100000010954269/trump-booed-knicks-msg-nba-finals.html
@@ -22,6 +30,26 @@ https://www.nytimes.com/2026/06/09/pageoneplus/quote-of-the-day-some-trump-voter
 `Corrections that appeared in print on Tuesday, June 9, 2026.`\
 https://www.nytimes.com/2026/06/09/pageoneplus/corrections-june-9-2026.html
 
+**Crew Rescued After U.S. Helicopter Goes Down Near Strait of Hormuz**\
+`It was not immediately clear what led to the incident, which came at a time when the cease-fire in the war has grown tenuous.`\
+https://www.nytimes.com/2026/06/08/us/politics/us-helicopter-strait-of-hormuz.html
+
+**See the Famous Faces at the Knicks Game at Madison Square Garden**\
+`Here’s a look at some of the most prominent figures that attended Game 3 of the N.B.A. finals at Madison Square Garden.`\
+https://www.nytimes.com/interactive/2026/06/08/nyregion/nba-finals-knicks-celebrities-attendees.html
+
+**San Francisco Voters Appear to Reject Tax Hike on Highly Paid C.E.O.s**\
+`The proposal was seen as a possible measure of how residents felt about the recent flood of money into the city as a result of the A.I. boom.`\
+https://www.nytimes.com/2026/06/08/us/politics/san-francisco-tax-proposition-d.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/sports/100000010954067/08vid-knicks-bryant1-213.html
+
+**NYT Crossword Answers for June 9, 2026**\
+`Rebecca Goldstein’s puzzle isn’t too tough to dig into.`\
+https://www.nytimes.com/2026/06/08/crosswords/daily-puzzle-2026-06-09.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/special-series/100000010954055/08vid-knicks-brooklyn-17824.html
@@ -34,6 +62,18 @@ https://www.nytimes.com/video/embedded/sports/100000010954026/08vid-knicks-trump
 `MD Ahnaf Hossain, 23, delivered a four-line instant classic to a TV camera after a Knicks win, and it has since rocketed across social media. “I had to say what was in my heart,” he said in an interview.`\
 https://www.nytimes.com/2026/06/08/nyregion/knicks-fan-nyc-hossain-video.html
 
+**M.S.G. Erupts in Boos as Trump Appears on Screen at Knicks-Spurs Game**\
+`Mr. Trump is the first sitting president to attend an N.B.A. finals game. He smiled as he heard the reception from the crowd at Madison Square Garden.`\
+https://www.nytimes.com/2026/06/08/nyregion/trump-booed-knicks-msg-finals.html
+
+**For Lonely Knicks Fans, Championship Run Forges Fellowship in NYC**\
+`The championship run by the Knicks has created a “love fest,” one fan said, and it has even given her a new circle of friends.`\
+https://www.nytimes.com/2026/06/08/nyregion/knicks-fans-lonely-no-more.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/sports/100000010953986/08vid-knicks-trump-boo-30156.html
+
 **Unpacking the Famous Words in the Declaration of Independence**\
 `Our critic A.O. Scott breaks down the second sentence of the Declaration of Independence.`\
 https://www.nytimes.com/interactive/2026/06/08/arts/declaration-of-independence-words.html
@@ -42,17 +82,65 @@ https://www.nytimes.com/interactive/2026/06/08/arts/declaration-of-independence-
 `In the years after the Civil War, Douglass shared a vision of freedom and equality for all, regardless of race. Our writer Jia Lynn Yang considers that history, and its relevance for the present.`\
 https://www.nytimes.com/interactive/2026/06/08/arts/frederick-douglass-slavery-citizenship-writing.html
 
+**‘Make American Great Again’ Was a Slogan Well Before Trump**\
+`Our critic A.O. Scott explains how four words explain (at least) 40 years of political history.`\
+https://www.nytimes.com/interactive/2026/06/08/arts/make-american-great-again-slogan-trump-clinton-reagan.html
+
+**How F.D.R.’s Most Famous Sentence Remade America**\
+`There was plenty to be afraid of in 1933, our chief White House correspondent, Peter Baker, explains. Roosevelt said there was “nothing to fear but fear itself.”`\
+https://www.nytimes.com/interactive/2026/06/08/arts/fdr-inaugural-address-fear.html
+
+**Nina Simone’s ‘Mississippi Goddam’ Is a Protest Song of the Civil Rights Era, and Our Own**\
+`“Mississippi Goddam” is a song of the Civil Rights Era, and our own. Listen to it with our critic Wesley Morris.`\
+https://www.nytimes.com/interactive/2026/06/08/arts/nina-simone-mississippi-goddam-civil-rights-song.html
+
+**How Susan B. Anthony Used Language in the Fight for Women’s Rights**\
+`In the fight for women’s rights, language has always been a battleground, our critic Parul Seghal explains.`\
+https://www.nytimes.com/interactive/2026/06/08/arts/susan-b-anthony-womens-rights-word.html
+
+**EE. UU. niega la entrada a un árbitro somalí del Mundial**\
+`Omar Artan fue uno de los 52 árbitros seleccionados para la Copa Mundial de la FIFA. Pero el sábado se le denegó la entrada por “preocupaciones de investigación de antecedentes”, dijeron funcionarios estadounidenses.`\
+https://www.nytimes.com/es/2026/06/08/espanol/estados-unidos/arbitro-somalia-mundial-entrada.html
+
 **As Screwworm Cases Mount, U.S. Officials Ramp Up Response**\
 `The parasitic, flesh-eating fly has now been confirmed in cows, goats and dogs.`\
 https://www.nytimes.com/2026/06/08/science/cattle-disease-screwworm.html
+
+**Timothée Chalamet, Cardi B and More Celebrities Are at Knicks-Spurs Finals Game 3**\
+`A long list of celebrities flocked to Madison Square Garden for Game 3 of the N.B.A. finals.`\
+https://www.nytimes.com/2026/06/08/nyregion/celebrities-knicks-finals-game-3.html
 
 **Starlink’s Brilliant Marketing Strategy**\
 `The “Hard Fork” co-hosts Kevin Roose and Casey Newton discuss how recent United flights have caused them to change their minds about Starlink.`\
 https://www.nytimes.com/video/podcasts/100000010953918/starlinks-brilliant-marketing-strategy.html
 
+**I.C.C. Prosecutor Karim Khan Suspended Over Sexual Harassment Claims**\
+`Karim Khan, the chief prosecutor of the International Criminal Court, faced an accusation of sexual harassment.`\
+https://www.nytimes.com/2026/06/08/world/europe/karim-khan-icc-suspended.html
+
+**Nithya Raman Secures Second LA Mayor Spot, Ending Spencer Pratt’s Run**\
+`Nithya Raman, a progressive Democrat who entered the mayoral race at the last minute, secured the second spot to face Mayor Karen Bass in November. Her comeback sets up an intraparty battle.`\
+https://www.nytimes.com/2026/06/08/us/elections/nithya-raman-la-mayor-karen-bass.html
+
+**Wonder What a Renovated Penn Station Might Look Like? Here’s a Preview.**\
+`Forget those dreary passageways. The updated transit hub would add a grand entrance with sweeping staircases leading to an airy, glass-walled concourse.`\
+https://www.nytimes.com/2026/06/08/nyregion/penn-station-renovation.html
+
 **Man Fatally Shot on a Bus in the Bronx**\
 `A 41-year-old man was shot in the abdomen on a Bx36 bus on Monday after getting into an argument with the shooter. The gunman remains at large, the police said.`\
 https://www.nytimes.com/2026/06/08/nyregion/bronx-bus-fatal-shooting.html
+
+**Would Mike Johnson Pass Raphael Warnock’s Test?**\
+`On “The Interview,” Raphael Warnock, a Democratic senator from Georgia and a pastor, explains his “acid test” on faith.`\
+https://www.nytimes.com/video/podcasts/100000010953787/would-mike-johnson-pass-raphael-warnocks-test.html
+
+**Una ‘transformación milagrosa’: cómo Kim Jong-un fortaleció Corea del Norte**\
+`Utilizó la pandemia para reforzar despiadadamente su control sobre el país. Luego dinamizó su economía aprovechando la guerra de Rusia en Ucrania.`\
+https://www.nytimes.com/es/2026/06/08/espanol/mundo/kim-jong-un-corea-norte.html
+
+**Governor’s Visit to ICE Detention Facility Is Strictly Limited, She Says**\
+`Gov. Mikie Sherrill of New Jersey said she was not allowed to speak with immigrants at the Delaney Hall detention center.`\
+https://www.nytimes.com/2026/06/08/nyregion/sherrill-nj-delaney-hall.html
 
 **Trump Previews Fall Strategy With Baseless Claims of California Vote Fraud**\
 `The president is using the slow count of mail ballots in California to renew his effort to cast doubt on election outcomes he doesn’t like, despite a lack of evidence of any widespread fraud.`\
@@ -62,17 +150,33 @@ https://www.nytimes.com/2026/06/08/us/politics/trump-election-fraud-strategy-cal
 `Graham Platner and Lindsey Graham are both hoping for comfortably big victories.`\
 https://www.nytimes.com/2026/06/08/us/politics/maine-south-carolina-primaries.html
 
+**How Will I.P.O.s From A.I. Companies Affect the Average Person?**\
+`On the “Hard Fork” podcast, the hosts Casey Newton and Kevin Roose discuss the pros and cons of I.P.O.s by large tech companies.`\
+https://www.nytimes.com/video/podcasts/100000010953710/how-will-ipos-from-ai-companies-affect-the-average-person.html
+
 **Pentagon Again Revises Religious Categories for Troops**\
 `The Defense Department made the change after lawmakers objected to its original list, which did not include the Latter-day Saints among traditions labeled Christian.`\
 https://www.nytimes.com/2026/06/08/us/pentagon-religious-list-troops.html
+
+**Trump Wants to Call the Shots. But in Iran, He Keeps Hitting His Limits.**\
+`President Trump is grappling with his own version of the sort of Middle East crisis that beset his predecessors, and that he promised to avoid.`\
+https://www.nytimes.com/2026/06/08/us/politics/trump-iran-war-middle-east.html
 
 **Hoyle Schweitzer, Who Brought Windsurfing to the Masses, Dies at 93**\
 `With his friend Jim Drake, he built the Windsurfer, a sailboard that was cheaper and more portable than most sailboats. It became a global phenomenon.`\
 https://www.nytimes.com/2026/06/08/business/hoyle-schweitzer-dead.html
 
+**El gobierno de Trump busca quitar la ciudadanía de EE. UU. a 17 migrantes**\
+`La campaña para remover la ciudadanía estadounidense a más migrantes es una nueva señal de que el gobierno se está enfocando en el sistema migratorio legal.`\
+https://www.nytimes.com/es/2026/06/08/espanol/estados-unidos/trump-quitar-ciudadania-migrantes.html
+
 **U.S. Denies Entry to World Cup Referee From Somalia**\
 `Omar Artan was one of 52 referees selected for the FIFA World Cup. But on Saturday he was denied entry because of “vetting concerns,” U.S. officials said.`\
 https://www.nytimes.com/2026/06/08/world/africa/somalian-world-cup-referee-denied-us-entry.html
+
+**Iran and Israel Pull Back**\
+`Also, the N.B.A. finals arrive in New York. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/06/08/briefing/iran-israel-strikes-todd-blanche.html
 
 **OpenAI Files Confidentially for IPO as AI Companies Rush to Wall St.**\
 `The company hopes to raise billions in a highly anticipated public offering that could unlock a new generation of tech industry wealth.`\
@@ -86,111 +190,11 @@ https://www.nytimes.com/es/2026/06/08/espanol/tiempo-y-clima/tormenta-tropical-b
 `Una demanda federal alega que el evento, fijado para el 14 de junio, día del cumpleaños del presidente Trump, fue planeado ilegalmente y diseñado para beneficiarlo a él y a sus aliados.`\
 https://www.nytimes.com/es/2026/06/08/espanol/estados-unidos/trump-ufc-casa-blanca-demanda.html
 
-**Maximalism Is Back at the Tonys**\
-`Our chief theater critic, Helen Shaw, shares her highlights of the Tony Awards on Sunday in New York City.`\
-https://www.nytimes.com/video/theater/100000010943591/tony-tonys-awards-theater-musical-broadway.html
-
-**Man Who Fatally Stabbed Gay Dancer Convicted of Hate Crime**\
-`Dmitriy Popov, 20, who killed O’Shae Sibley, 28, at a gas station in Brooklyn was found guilty of manslaughter as a hate crime, which carries a sentence of up to 25 years.`\
-https://www.nytimes.com/2026/06/08/nyregion/oshae-sibley-murder-hate-crime.html
-
-**Trump Nominates Blanche for Attorney General, Setting Up Confirmation Fight**\
-`As acting attorney general, Todd Blanche has shown a willingness to execute the president’s maximalist demands. Whether the Senate will confirm him remains unclear.`\
-https://www.nytimes.com/2026/06/08/us/politics/trump-todd-blanche-attorney-general.html
-
-**Apple Reveals New A.I.-Powered Version of Its Siri Digital Assistant**\
-`The iPhone maker revealed its new artificial intelligence products at its developer conference, the last with Tim Cook as chief executive.`\
-https://www.nytimes.com/2026/06/08/technology/apple-ai-siri.html
-
-**Watch Parties Canceled as Police Tighten Security at N.B.A. Finals**\
-`President Trump and Mayor Zohran Mamdani are expected to attend the N.B.A. Finals game 3 between the New York Knicks and San Antonio Spurs.`\
-https://www.nytimes.com/video/us/100000010952671/knicks-spurs-nba-finals-security-trump.html
-
-**Who is Ahead in Florida's 2nd Congressional District?**\
-`Track the latest polls in Florida's 2nd Congressional District.`\
-https://www.nytimes.com/interactive/polls/florida-us-house-2-polls-2026.html
+**Iran and Israel Pull Back, After Fierce Exchange of Attacks**\
+`The conflict between Israel and Hezbollah, an Iranian-backed militia, is complicating efforts to end the war in Iran.`\
+https://www.nytimes.com/2026/06/08/world/middleeast/iran-israel-strikes-ceasefire-hezbollah.html
 
 **Knicks Fans Bring Swagger and Nerves to Key Playoff Game**\
 `Madison Square Garden was a cauldron of noise for Game 3 of the N.B.A. finals. New York Knicks fans greeted President Trump with a round of booing.`\
 https://www.nytimes.com/live/2026/06/08/nyregion/nba-finals-trump-knicks-spurs-mamdani
-
-**Scientist Charged With Conspiring to Smuggle Mpox Virus Into U.S.**\
-`The virologist was stopped at the Detroit airport after working in Congo during an mpox epidemic. His lawyer said the material was for research.`\
-https://www.nytimes.com/2026/06/08/science/dutch-scientist-mpox-virus-smuggling.html
-
-**Why People Are Obsessed With Platner**\
-`Graham Platner is not just a candidate for the Senate in Maine, argues the Opinion columnist Jamelle Bouie on “The Opinions,” but also a representative of “an intra-Democratic Party factional battle.” Bouie says the arguments around Platner resemble a proxy fight unfolding within the party.`\
-https://www.nytimes.com/video/opinion/100000010952747/why-people-are-obsessed-with-platner.html
-
-**Ken Paxton’s Former Defense Lawyer Endorses James Talarico**\
-`The lawyer, Dan Cogdell, helped save Mr. Paxton from criminal charges and an impeachment, but now he says the Texas attorney general has “lost sight of his mission.”`\
-https://www.nytimes.com/2026/06/08/us/paxton-lawyer-endorse-talarico.html
-
-**Who Is Ahead in Maine's 1st Congressional District?**\
-`Track the latest polls in Maine's 1st Congressional District.`\
-https://www.nytimes.com/interactive/polls/maine-us-house-1-polls-2026.html
-
-**La mujer colombiana deportada a Congo-Kinsasa podría permanecer allí**\
-`En mayo, el juez había dictaminado que la mujer fue deportada indebidamente. Ahora, nuevas pruebas lo llevaron a revocar su decisión.`\
-https://www.nytimes.com/es/2026/06/08/espanol/mundo/colombiana-deportada-congo.html
-
-**Map: 6.1-Magnitude Earthquake Strikes in the Gulf of Mexico Near Cuba**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/06/08/world/americas/earthquake-tracker-cuba-gulf-mexico.html
-
-**Trump Administration Seeks to Revoke U.S. Citizenship of 17 Immigrants**\
-`The push to denaturalize more immigrants is the latest sign that the administration is setting its sights on the legal immigration system.`\
-https://www.nytimes.com/2026/06/08/us/politics/trump-denaturalization.html
-
-**Maps: Tracking Tropical Storm Cristina**\
-`See the likely path and wind arrival times for Cristina`\
-https://www.nytimes.com/interactive/2026/06/08/weather/cristina-map-path-tracker.html
-
-**Los iraníes sufren la destrucción de meses de guerra y el aumento de precios**\
-`La implosión de la economía está causando desesperanza tanto entre los iraníes que apoyan al gobierno como entre los que se le oponen.`\
-https://www.nytimes.com/es/2026/06/08/espanol/mundo/guerra-iran-situacion.html
-
-**How Elon Musk’s Friendship With the F.C.C. Smooths the Way for SpaceX’s I.P.O.**\
-`Brendan Carr, the chairman of the Federal Communications Commission, has greenlighted regulatory requests for the company’s Starlink satellite internet service and lavished praise on its chief executive.`\
-https://www.nytimes.com/2026/06/08/technology/elon-musk-brendan-carr-fcc-spacex.html
-
-**U.S. Judge Reverses Decision on Colombian Woman Deported to Congo**\
-`The judge had previously ruled that the woman had been improperly deported by the Trump administration and had ordered her returned to the United States.`\
-https://www.nytimes.com/2026/06/08/world/africa/trump-deportation-us-judge-congo-colombia.html
-
-**Patrick Bruel, French Singer, Is Taken Into Custody Over Sex Assault Claims**\
-`Mr. Bruel, long a beloved celebrity in France, has denied allegations raised by 13 women dating to 1997.`\
-https://www.nytimes.com/2026/06/08/world/europe/patrick-bruel-questioning-rape-sexual-assault.html
-
-**Who Is Ahead in Connecticut's 1st Congressional District?**\
-`Track the latest polls in Connecticut's 1st Congressional District.`\
-https://www.nytimes.com/interactive/polls/connecticut-us-house-1-polls-2026.html
-
-**Heat Wave Forecast: Where Records Could Fall in the US This Week**\
-`Temperatures up to 20 degrees above normal will spread across much of the country, forecasters said.`\
-https://www.nytimes.com/2026/06/08/weather/heat-forecast-us.html
-
-**How Banks Are Using the SpaceX IPO to Woo the Super Rich**\
-`Wall Street is giving its richest clients velvet rope access to this week’s public listing of SpaceX, reflecting the growing importance of the wealth management business.`\
-https://www.nytimes.com/2026/06/08/business/spacex-ipo-banks-wealth-management.html
-
-**Trump dice que nunca prometió que no habría nuevas guerras**\
-`En una larga entrevista con el programa “Meet the Press” de la NBC, el presidente volvió a prometer que los precios de la gasolina bajarían cuando terminara la guerra en Irán.`\
-https://www.nytimes.com/es/2026/06/08/espanol/estados-unidos/trump-nuevas-guerras.html
-
-**Yewande Komolafe’s Mushroom-Stuffed Plantains**\
-`(No description)`\
-https://www.nytimes.com/2026/06/08/dining/yewande-komolafes-mushroom-stuffed-plantains.html
-
-**There’s a Better Way to Catch Seafood**\
-`Bottom trawlers kill or maim everything in their path. We should ban — or at least curtail — the incredibly harmful practice.`\
-https://www.nytimes.com/2026/06/08/opinion/fishing-bottom-trawlers-seafood.html
-
-**Do You Recognize These Lines From Popular Science Fiction?**\
-`Some bits of dialogue or description can stick with you long after you’ve finished reading. Try this short quiz to see how many jog your memory.`\
-https://www.nytimes.com/interactive/2026/06/08/books/review/future-worlds-quiz.html
-
-**Iran and Israel Halt Military Escalation After Exchanging Strikes**\
-`Iran and Israel de-escalated military hostilities after exchanging strikes, which had briefly jeopardized a two-month cease-fire.`\
-https://www.nytimes.com/video/world/middleeast/100000010951911/israel-iran-attacks-ceasefire.html
 
