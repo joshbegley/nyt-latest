@@ -1,3 +1,27 @@
+**How Susan B. Anthony Used Language in the Fight for Women’s Rights**\
+`In the fight for women’s rights, language has always been a battleground, our critic Parul Seghal explains.`\
+https://www.nytimes.com/interactive/2026/06/08/arts/susan-b-anthony-womens-rights-word.html
+
+**Nina Simone’s ‘Mississippi Goddam’ Is a Protest Song of the Civil Rights Era, and Our Own**\
+`“Mississippi Goddam” is a song of the Civil Rights Era, and our own. Listen to it with our critic Wesley Morris.`\
+https://www.nytimes.com/interactive/2026/06/08/arts/nina-simone-mississippi-goddam-civil-rights-song.html
+
+**Frederick Douglass’s Demand for Citizenship Is Still Radical**\
+`In the years after the Civil War, Douglass shared a vision of freedom and equality for all, regardless of race. Our writer Jia Lynn Yang considers that history, and its relevance for the present.`\
+https://www.nytimes.com/interactive/2026/06/08/arts/frederick-douglass-slavery-citizenship-writing.html
+
+**How F.D.R.’s Most Famous Sentence Remade America**\
+`There was plenty to be afraid of in 1933, our chief White House correspondent, Peter Baker, explains. Roosevelt said there was “nothing to fear but fear itself.”`\
+https://www.nytimes.com/interactive/2026/06/08/arts/fdr-inaugural-address-fear.html
+
+**‘Make American Great Again’ Was a Slogan Well Before Trump**\
+`Our critic A.O. Scott explains how four words explain (at least) 40 years of political history.`\
+https://www.nytimes.com/interactive/2026/06/08/arts/make-american-great-again-slogan-trump-clinton-reagan.html
+
+**Unpacking the Famous Words in the Declaration of Independence**\
+`Our critic A.O. Scott breaks down the second sentence of the Declaration of Independence.`\
+https://www.nytimes.com/interactive/2026/06/08/arts/declaration-of-independence-words.html
+
 **EE. UU. niega la entrada a un árbitro somalí del Mundial**\
 `Omar Artan fue uno de los 52 árbitros seleccionados para la Copa Mundial de la FIFA. Pero el sábado se le denegó la entrada por “preocupaciones de investigación de antecedentes”, dijeron funcionarios estadounidenses.`\
 https://www.nytimes.com/es/2026/06/08/espanol/estados-unidos/arbitro-somalia-mundial-entrada.html
@@ -169,28 +193,4 @@ https://www.nytimes.com/2026/06/08/world/europe/vance-uk-stabbing-migrants.html
 **Mapa: la trayectoria de la tormenta tropical Cristina en vivo**\
 `Consulta la trayectoria probable y las horas de llegada de los vientos de Cristina.`\
 https://www.nytimes.com/es/interactive/2026/06/08/espanol/cristina-mapa-trayectoria.html
-
-**Mapa: un terremoto de magnitud 6,1 se registra en el golfo de México cerca de Cuba**\
-`Mira la localización del epicentro del sismo y el área de movimiento.`\
-https://www.nytimes.com/es/interactive/2026/06/08/espanol/cuba-sismo.html
-
-**¿Qué tan saludables son las arvejas o chícharos?**\
-`Los ames o los odies, los llames chícharos, arvejas o guisantes, tienen grandes ventajas.`\
-https://www.nytimes.com/es/2026/06/08/espanol/arvejas-guisantes-salud-beneficios.html
-
-**Ken Paxton’s Former Defense Lawyer Endorses James Talarico**\
-`The lawyer, Dan Cogdell, helped save Mr. Paxton from criminal charges and an impeachment, but now he says the Texas attorney general has “lost sight of his mission.”`\
-https://www.nytimes.com/2026/06/08/us/paxton-lawyer-endorse-talarico.html
-
-**What’s Taking So Long to Count California Ballots?**\
-`Other states with vote-by-mail manage to count much more quickly.`\
-https://www.nytimes.com/2026/06/08/us/california-elections-trump-slow-why.html
-
-**Prosecutors Won’t Seek Death Penalty in Killing of Melissa Hortman and Husband**\
-`The Justice Department said it likely did not have legal grounds for capital punishment in the case of a man accused of killing Melissa Hortman, a Minnesota legislator, and her husband.`\
-https://www.nytimes.com/2026/06/08/us/vance-boelter-death-penalty-minnesota-hortman.html
-
-**Judge Throws Out Trump Administration’s Policy Imposing $100,000 Fees for H-1B Visas**\
-`The ruling voided “in its entirety” a policy from September requiring companies to pay $100,000 fees for H-1B visa petitions.`\
-https://www.nytimes.com/2026/06/08/us/politics/judge-visa-skilled-workers-fee-trump.html
 
