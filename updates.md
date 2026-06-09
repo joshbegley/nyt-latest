@@ -1,3 +1,11 @@
+**Democrats Accuse Republicans of Meddling in High-Stakes Maine Primary**\
+`A mysterious group has spent $500,000 to elevate a progressive candidate in the Democratic primary race for a key House seat.`\
+https://www.nytimes.com/2026/06/09/us/politics/democrats-republican-meddling-matt-dunlap-joe-baldacci.html
+
+**Paramount CEO David Ellison Pledges Editorial Independence for ‘60 Minutes’**\
+`David Ellison told Ms. Stahl, one of three remaining correspondents for the news program, that he would respect the show’s editorial decisions after a tumultuous stretch.`\
+https://www.nytimes.com/2026/06/09/business/media/60-minutes-david-ellison-paramount.html
+
 **New York City Schools Chancellor Being Investigated Over No-Bid Contract**\
 `The chancellor, Kamar Samuels, acknowledged a “lapse in procedure,” amid an investigation into a $180,000 contract for foreign language instructors.`\
 https://www.nytimes.com/2026/06/09/nyregion/nyc-chancellor-contract-investigation.html
