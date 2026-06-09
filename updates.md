@@ -1,3 +1,7 @@
+**Somali Referee Says His World Cup Dream Is Dashed After U.S. Denies Entry**\
+`“I had the right papers and everything,” Omar Abdulkadir Artan said in his first interview since he was turned back. He would have been the first Somali to referee a game in the tournament.`\
+https://www.nytimes.com/2026/06/09/world/africa/somali-referee-world-cup-us-entry-omar-artan.html
+
 **Netanyahu’s Bow to Trump’s Iran Pressure Spurs New Criticism**\
 `Opponents attacked Prime Minister Benjamin Netanyahu for halting strikes against Iran after a call with President Trump, saying that he was letting the United States make Israel’s decisions.`\
 https://www.nytimes.com/2026/06/09/world/middleeast/netanyahus-trump-pressure-over-iran.html
