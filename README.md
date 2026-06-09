@@ -1,3 +1,15 @@
+**Why a U.K. By-Election in Makerfield Could Topple Prime Minister Keir Starmer**\
+`Andy Burnham, the mayor of Greater Manchester, is running for a seat in Parliament. It’s a vital step in a campaign to oust his party colleague Prime Minister Keir Starmer.`\
+https://www.nytimes.com/2026/06/09/world/europe/makerfield-byelection-starmer-burnham-reform.html
+
+**Quote of the Day: Some Trump Voters Are Drifting Away Over His Handling of Iran and Economy**\
+`Quotation of the Day for Tuesday, June 9, 2026.`\
+https://www.nytimes.com/2026/06/09/pageoneplus/quote-of-the-day-some-trump-voters-are-drifting-away-over-his-handling-of-iran-and-economy.html
+
+**Corrections: June 9, 2026**\
+`Corrections that appeared in print on Tuesday, June 9, 2026.`\
+https://www.nytimes.com/2026/06/09/pageoneplus/corrections-june-9-2026.html
+
 **Crew Rescued After U.S. Helicopter Goes Down Near Strait of Hormuz**\
 `It was not immediately clear what led to the incident, which came at a time when the cease-fire in the war has grown tenuous.`\
 https://www.nytimes.com/2026/06/08/us/politics/us-helicopter-strait-of-hormuz.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/2026/06/08/opinion/spacex-ipo-stock-market.html
 **A Timeline of Donald Trump and Lindsey Graham’s Relationship Before the South Carolina Primary**\
 `Once one of President Trump’s fiercest critics, the South Carolina senator has dramatically shifted his posture over the years. Will it pay off on Tuesday in his primary?`\
 https://www.nytimes.com/2026/06/08/us/politics/trump-graham-relationship-timeline-primary.html
-
-**Videos Show Chinese Businesses Hawking North Korean Labor**\
-`On social media, Chinese entrepreneurs are touting cheap labor across the border, as trade between the two countries regains momentum.`\
-https://www.nytimes.com/2026/06/08/world/asia/chinese-businesses-north-korea.html
-
-**Man Who Fatally Stabbed Gay Dancer Convicted of Hate Crime**\
-`Dmitriy Popov, 20, who killed O’Shae Sibley, 28, at a gas station in Brooklyn was found guilty of manslaughter as a hate crime, which carries a sentence of up to 25 years.`\
-https://www.nytimes.com/2026/06/08/nyregion/oshae-sibley-murder-hate-crime.html
-
-**Trump Nominates Blanche for Attorney General, Setting Up Confirmation Fight**\
-`As acting attorney general, Todd Blanche has shown a willingness to execute the president’s maximalist demands. Whether the Senate will confirm him remains unclear.`\
-https://www.nytimes.com/2026/06/08/us/politics/trump-todd-blanche-attorney-general.html
 
 **Live Updates: Knicks Fans Bring Swagger and Nerves to Key Playoff Game**\
 `Madison Square Garden was a cauldron of noise for Game 3 of the N.B.A. finals. New York Knicks fans greeted President Trump with a round of booing.`\
