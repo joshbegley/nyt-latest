@@ -1,3 +1,19 @@
+**Federal Judge Faces Battery Charge After Parking Lot Confrontation**\
+`Judge Ryan Nelson of the U.S. Court of Appeals for the Ninth Circuit tossed a man’s glasses and appeared to stomp on them during an argument in Idaho that was captured on video.`\
+https://www.nytimes.com/2026/06/09/us/ryan-nelson-judge-criminal-charges-battery.html
+
+**What to Know About the Sea Drone That Rescued Downed Apache Crew**\
+`It was the first U.S. rescue carried out by an autonomous surface vessel and remotely piloted by a human operator, according to a military spokesperson.`\
+https://www.nytimes.com/2026/06/09/world/middleeast/sea-drone-apache-rescue.html
+
+**Taliban Leader Who Took U.S. Journalist Hostage Sentenced to 42 Years**\
+`Haji Najibullah had pleaded guilty to hostage taking and providing material support for terrorism.`\
+https://www.nytimes.com/2026/06/09/nyregion/taliban-leader-american-journalist-sentencing.html
+
+**Air Canada Pilot Accused of Flying for 17 Years Without Proper License**\
+`The pilot, who retired last year before the investigation, held some valid flight credentials, officials said, but not the one required to be a captain.`\
+https://www.nytimes.com/2026/06/09/world/canada/air-canada-pilot-fraud.html
+
 **When to Expect Results in Maine, Nevada and Beyond**\
 `Four states have primaries on Tuesday. Election officials predict most results will come in late in the evening, though mail-in ballots may delay things.`\
 https://www.nytimes.com/2026/06/09/us/politics/election-results-timing-tonight-when.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-north-dakota-us-ho
 **North Dakota Superintendent of Public Instruction 2026: Live Election Results**\
 `Get live results and maps from the 2026 North Dakota election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-north-dakota-superintendent-of-public-instruction.html
-
-**Nevada Controller Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Nevada primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-nevada-controller-primary.html
-
-**Nevada Secretary of State Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Nevada primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-nevada-secretary-of-state-primary.html
-
-**North Dakota Agriculture Commissioner Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 North Dakota primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-north-dakota-agriculture-commissioner-primary.html
-
-**North Dakota Public Service Commission Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 North Dakota primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-north-dakota-public-service-commission-primary.html
 

@@ -1,3 +1,19 @@
+**Federal Judge Faces Battery Charge After Parking Lot Confrontation**\
+`Judge Ryan Nelson of the U.S. Court of Appeals for the Ninth Circuit tossed a man’s glasses and appeared to stomp on them during an argument in Idaho that was captured on video.`\
+https://www.nytimes.com/2026/06/09/us/ryan-nelson-judge-criminal-charges-battery.html
+
+**What to Know About the Sea Drone That Rescued Downed Apache Crew**\
+`It was the first U.S. rescue carried out by an autonomous surface vessel and remotely piloted by a human operator, according to a military spokesperson.`\
+https://www.nytimes.com/2026/06/09/world/middleeast/sea-drone-apache-rescue.html
+
+**Taliban Leader Who Took U.S. Journalist Hostage Sentenced to 42 Years**\
+`Haji Najibullah had pleaded guilty to hostage taking and providing material support for terrorism.`\
+https://www.nytimes.com/2026/06/09/nyregion/taliban-leader-american-journalist-sentencing.html
+
+**Air Canada Pilot Accused of Flying for 17 Years Without Proper License**\
+`The pilot, who retired last year before the investigation, held some valid flight credentials, officials said, but not the one required to be a captain.`\
+https://www.nytimes.com/2026/06/09/world/canada/air-canada-pilot-fraud.html
+
 **Everybody Is a Loser in This Middle East War**\
 `None of the participants in the recent wars of the Middle East can claim victory. All are to blame.`\
 https://www.nytimes.com/2026/06/09/opinion/middle-east-war-accountability-iran-us-trump.html
