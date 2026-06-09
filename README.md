@@ -1,3 +1,7 @@
+**Largest ICE Detention Hub Wasted Millions in Rush to Open, Report Says**\
+`Camp East Montana, in El Paso, was opened last year to make space for the Trump administration’s mass deportation campaign. Three people have since died at the center.`\
+https://www.nytimes.com/2026/06/09/us/camp-east-montana-texas-ice-detention-gao-report.html
+
 **Son of Author Michael Chabon Pleads Guilty to Choking Charge**\
 `Abraham Chabon’s plea resolves a case in which he initially faced a rape charge that prosecutors later dropped for lack of proof.`\
 https://www.nytimes.com/2026/06/09/nyregion/abraham-chabon-choking-charge.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-us-
 **Nevada Supreme Court Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Nevada primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-nevada-supreme-court-primary.html
-
-**Nevada Governor Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Nevada primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-nevada-governor-primary.html
 
