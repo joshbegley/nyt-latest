@@ -1,3 +1,35 @@
+**U.S. and Iran Zero In on Four Nuclear Issues in Talks**\
+`With the cease-fire proving tenuous, negotiations between the two nations are in flux, but have advanced to outline potential paths forward on difficult questions about Iran’s nuclear program.`\
+https://www.nytimes.com/2026/06/09/us/politics/iran-nuclear-deal.html
+
+**South Carolina Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 South Carolina primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-primary.html
+
+**South Carolina Governor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 South Carolina primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-governor-primary.html
+
+**North Dakota Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 North Dakota primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-north-dakota-primary.html
+
+**Anthropic Releases ‘Safe’ Version of Its Mythos A.I. Technology**\
+`Called Claude Fable 5, it is twice as expensive as the company’s previous flagship system.`\
+https://www.nytimes.com/2026/06/09/technology/anthropic-ai-claude-fable-mythos.html
+
+**Nevada Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Nevada primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-nevada-primary.html
+
+**Maine U.S. Senate Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Maine primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-maine-us-senate-primary.html
+
+**Maine Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Maine primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-maine-primary.html
+
 **Live Election Results 2026: Key Races on June 9**\
 `See results and maps from key races in the June 9 primaries.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-key-races-june-9.html
@@ -157,34 +189,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-nevada-us-house-4-
 **Map: 3.4-Magnitude Earthquake Shakes Southern California**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/06/09/world/earthquake-southern-california-tracker.html
-
-**Social Security Benefits Could Be Cut in 6 Years Unless Congress Acts**\
-`The trust fund for the program, which supports roughly 68 million Americans, is on schedule to be depleted in the next six years. Benefits could be cut on average by 22 percent.`\
-https://www.nytimes.com/2026/06/09/business/social-security-benefits-cuts.html
-
-**We Need A Menopause Revolution**\
-`Why don’t women get the care they deserve during menopause? According to Melinda French Gates, even medical providers don’t receive the training they need — at the expense of women’s health and well-being.`\
-https://www.nytimes.com/video/opinion/100000010945842/we-need-a-menopause-revolution.html
-
-**The Philippines Grapples With Deadly Earthquake’s Aftermath**\
-`After the Philippines was struck by its most powerful earthquake in 50 years, residents on the island of Mindanao were left to pick up the pieces.`\
-https://www.nytimes.com/video/world/asia/100000010954591/philippines-earthquake-aftermath.html
-
-**How Will the Artemis III Astronauts Train?**\
-`The Artemis III astronauts who were announced today will have had less mission training time than their Artemis II counterparts.`\
-https://www.nytimes.com/2026/06/09/science/space/artemis-iii-astronauts-training.html
-
-**Watchdog Group Skeptical of Justice Dept.’s Vows to End $1.8 Billion Fund**\
-`The group, Citizens for Responsibility and Ethics in Washington, doubled down on its request to a federal judge to issue a formal order stopping the fund from being set up.`\
-https://www.nytimes.com/2026/06/09/us/justice-dept-fund-trump-irs-watchdog.html
-
-**Germany Drops Plan to Build Warplane With Allies, Hindering Push to Rearm**\
-`Berlin pulled out of the Future Combat Air System, a project with Spain and France that had been seen as central to European efforts to face down Russia and reduce reliance on the United States.`\
-https://www.nytimes.com/2026/06/09/world/europe/europe-fighter-fcas-germany-france.html
-
-**Fireboat Joins a Fleet of Floating N.Y.C. Bars**\
-`Malvan serves up Goan cuisine, Forno d’Oro fires pizzas with a pedigree and more restaurant news.`\
-https://www.nytimes.com/2026/06/09/dining/nyc-restaurant-news.html
 
 **Live Updates: NASA Announces Its Artemis III Astronauts**\
 `Randy Bresnik, Luca Parmitano, Frank Rubio and Andre Douglas will be part of the next mission in the agency’s program to return humans to the surface of the moon by 2028. The recent explosion of a Blue Origin rocket could complicate matters.`\
