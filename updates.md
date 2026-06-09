@@ -1,3 +1,7 @@
+**Meet Europe’s New Machiavelli**\
+`Luuk van Middelaar, a Dutch scholar, is emerging as the continent’s master strategist.`\
+https://www.nytimes.com/2026/06/09/opinion/europe-defense-van-middelaar.html
+
 **Late Night Roasts Trump for Walking Out on ‘Meet the Press’**\
 `Jon Stewart called the president’s interview his “worst nightmare: a woman who won’t stop asking pertinent questions.”`\
 https://www.nytimes.com/2026/06/09/arts/television/late-night-jon-stewart-trump-meet-the-press.html

@@ -1,3 +1,19 @@
+**5 consejos para ayudar a gestionar el dinero de tus padres mayores**\
+`Para muchas familias, la conversación sobre la situación económica de los padres ancianos suele llegar demasiado tarde. Es mejor prepararse.`\
+https://www.nytimes.com/es/2026/06/09/espanol/negocios/dinero-ahorros-jubilacion-retiro-padres-mayores.html
+
+**He Gave It All to Help the Knicks Win in 1973. He’s Still in Pain Today.**\
+`Earl “the Pearl” Monroe was part of the last championship team. Now 81, he has thoughts on what really matters.`\
+https://www.nytimes.com/2026/06/09/nyregion/knicks-nba-finals-earl-monroe.html
+
+**Medical Advances Are Keeping a Health Reporter Busy**\
+`A conversation with Gina Kolata, who covers breakthroughs in medical science.`\
+https://www.nytimes.com/2026/06/09/pageoneplus/medical-advances.html
+
+**NYT Spelling Bee Answers for June 9, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/09/crosswords/spelling-bee-forum.html
+
 **Late Night Roasts Trump for Walking Out on ‘Meet the Press’**\
 `Jon Stewart called the president’s interview his “worst nightmare: a woman who won’t stop asking pertinent questions.”`\
 https://www.nytimes.com/2026/06/09/arts/television/late-night-jon-stewart-trump-meet-the-press.html
@@ -177,22 +193,6 @@ https://www.nytimes.com/2026/06/08/us/pentagon-religious-list-troops.html
 **Trump Wants to Call the Shots. But in Iran, He Keeps Hitting His Limits.**\
 `President Trump is grappling with his own version of the sort of Middle East crisis that beset his predecessors, and that he promised to avoid.`\
 https://www.nytimes.com/2026/06/08/us/politics/trump-iran-war-middle-east.html
-
-**Hoyle Schweitzer, Who Brought Windsurfing to the Masses, Dies at 93**\
-`With his friend Jim Drake, he built the Windsurfer, a sailboard that was cheaper and more portable than most sailboats. It became a global phenomenon.`\
-https://www.nytimes.com/2026/06/08/business/hoyle-schweitzer-dead.html
-
-**El gobierno de Trump busca quitar la ciudadanía de EE. UU. a 17 migrantes**\
-`La campaña para remover la ciudadanía estadounidense a más migrantes es una nueva señal de que el gobierno se está enfocando en el sistema migratorio legal.`\
-https://www.nytimes.com/es/2026/06/08/espanol/estados-unidos/trump-quitar-ciudadania-migrantes.html
-
-**U.S. Denies Entry to World Cup Referee From Somalia**\
-`Omar Artan was one of 52 referees selected for the FIFA World Cup. But on Saturday he was denied entry because of “vetting concerns,” U.S. officials said.`\
-https://www.nytimes.com/2026/06/08/world/africa/somalian-world-cup-referee-denied-us-entry.html
-
-**Iran and Israel Pull Back**\
-`Also, the N.B.A. finals arrive in New York. Here’s the latest at the end of Monday.`\
-https://www.nytimes.com/2026/06/08/briefing/iran-israel-strikes-todd-blanche.html
 
 **Knicks Fans Bring Swagger and Nerves to Key Playoff Game**\
 `Madison Square Garden was a cauldron of noise for Game 3 of the N.B.A. finals. New York Knicks fans greeted President Trump with a round of booing.`\
