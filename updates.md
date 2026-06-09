@@ -1,3 +1,7 @@
+**Live Updates: Knicks Fans Bring Swagger and Nerves to Key Playoff Game**\
+`Madison Square Garden was a cauldron of noise as Game 3 of the N.B.A. finals drew to a close. New York Knicks fans had greeted President Trump with a round of booing.`\
+https://www.nytimes.com/live/2026/06/08/nyregion/nba-finals-trump-knicks-spurs-mamdani
+
 **See the Famous Faces at the Knicks Game at Madison Square Garden**\
 `Here’s a look at some of the most prominent figures that attended Game 3 of the N.B.A. finals at Madison Square Garden.`\
 https://www.nytimes.com/interactive/2026/06/08/nyregion/nba-finals-knicks-celebrities-attendees.html

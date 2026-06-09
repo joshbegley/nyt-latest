@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/06/08/us/politics/trump-todd-blanche-attorney-gener
 `Multiple officials said that the president told Israel’s leader that the United States and Iran were within days of a breakthrough that would clear the way for talks on a long-term nuclear deal.`\
 https://www.nytimes.com/2026/06/08/us/politics/trump-netanyahu-iran-call.html
 
-**Live Updates: Fans Greet Knicks With Cheers, and Trump With Boos**\
-`President Trump is attending Game 3 of the N.B.A. finals at Madison Square Garden, a game decades in the making for Knicks fans. Nervous but hopeful energy filled the city at watch parties big and small.`\
+**Live Updates: Knicks Fans Bring Swagger and Nerves to Key Playoff Game**\
+`Madison Square Garden was a cauldron of noise as Game 3 of the N.B.A. finals drew to a close. New York Knicks fans had greeted President Trump with a round of booing.`\
 https://www.nytimes.com/live/2026/06/08/nyregion/nba-finals-trump-knicks-spurs-mamdani
 
