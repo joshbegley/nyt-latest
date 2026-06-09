@@ -1,3 +1,31 @@
+**A Snag in the U.S.-Iran Talks: Both Sides Demand Victory**\
+`Washington and Tehran would need to defend any potential deal as a win for their side. And each has a leader whose approach to talks is vexing mediators.`\
+https://www.nytimes.com/2026/06/09/world/middleeast/us-iran-talks-war.html
+
+**In an Italy of Many Voices, Emma Dante’s Plays Speak ‘the Language of the People’**\
+`Since her mother’s death, Emma Dante has used the stage as a space to dive into her Sicilian roots — and the contradictions of family life.`\
+https://www.nytimes.com/2026/06/09/theater/emma-dante-venice-theater-biennale.html
+
+**One of Pope Leo’s Best Friends Works in Spain. They Talk About Cars.**\
+`Pope Leo and Armando Jesús Lovera have known each other for decades. They have watched World Cup games together, gone on road trips and once searched for a teddy bear for Mr. Lovera’s future wife.`\
+https://www.nytimes.com/2026/06/09/world/europe/pope-leo-spain-armando-lovera.html
+
+**Gustavo Dudamel se despide de Los Ángeles con un intenso despliegue musical**\
+`Los últimos conciertos de Gustavo Dudamel en el Walt Disney Concert Hall como maestro de la Filarmónica de Los Ángeles fueron un símbolo de su impacto después de 17 años.`\
+https://www.nytimes.com/es/2026/06/09/espanol/cultura/gustavo-dudamel-los-angeles-nueva-york.html
+
+**Iran War Live Updates: Israel Warns of New Strikes in Southern Lebanon**\
+`The warnings came a day after Israel and Iran pulled back from direct confrontation. The Israeli campaign against the Lebanese militia Hezbollah has been an obstacle in U.S.-Iran peace talks.`\
+https://www.nytimes.com/live/2026/06/09/world/iran-war-trump-israel-lebanon
+
+**Oil Prices Ease as Iran and Israel Halt Strikes**\
+`Oil prices fell after Israel and Iran agreed to halt strikes against each other, easing fears of a broader regional conflict that had briefly driven crude higher.`\
+https://www.nytimes.com/2026/06/09/business/oil-gas-prices-iran.html
+
+**Ukraine’s Neighbors Seek Shelter as More and More Drones Fly Overhead**\
+`Drones launched by both Russia and Ukraine are veering off course, menacing countries that are not at war.`\
+https://www.nytimes.com/2026/06/09/world/europe/russia-ukraine-drones-nato-lithuania-romania.html
+
 **Can Democrats Move Beyond Their Failed Foreign Policy?**\
 `Matt Duss, Senator Bernie Sanders’s former foreign policy adviser, argues that Democrats need a foreign policy reckoning.`\
 https://www.nytimes.com/2026/06/09/opinion/ezra-klein-podcast-matt-duss.html

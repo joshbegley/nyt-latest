@@ -1,3 +1,27 @@
+**A Snag in the U.S.-Iran Talks: Both Sides Demand Victory**\
+`Washington and Tehran would need to defend any potential deal as a win for their side. And each has a leader whose approach to talks is vexing mediators.`\
+https://www.nytimes.com/2026/06/09/world/middleeast/us-iran-talks-war.html
+
+**In an Italy of Many Voices, Emma Dante’s Plays Speak ‘the Language of the People’**\
+`Since her mother’s death, Emma Dante has used the stage as a space to dive into her Sicilian roots — and the contradictions of family life.`\
+https://www.nytimes.com/2026/06/09/theater/emma-dante-venice-theater-biennale.html
+
+**One of Pope Leo’s Best Friends Works in Spain. They Talk About Cars.**\
+`Pope Leo and Armando Jesús Lovera have known each other for decades. They have watched World Cup games together, gone on road trips and once searched for a teddy bear for Mr. Lovera’s future wife.`\
+https://www.nytimes.com/2026/06/09/world/europe/pope-leo-spain-armando-lovera.html
+
+**Gustavo Dudamel se despide de Los Ángeles con un intenso despliegue musical**\
+`Los últimos conciertos de Gustavo Dudamel en el Walt Disney Concert Hall como maestro de la Filarmónica de Los Ángeles fueron un símbolo de su impacto después de 17 años.`\
+https://www.nytimes.com/es/2026/06/09/espanol/cultura/gustavo-dudamel-los-angeles-nueva-york.html
+
+**Iran War Live Updates: Israel Warns of New Strikes in Southern Lebanon**\
+`The warnings came a day after Israel and Iran pulled back from direct confrontation. The Israeli campaign against the Lebanese militia Hezbollah has been an obstacle in U.S.-Iran peace talks.`\
+https://www.nytimes.com/live/2026/06/09/world/iran-war-trump-israel-lebanon
+
+**Oil Prices Ease as Iran and Israel Halt Strikes**\
+`Oil prices fell after Israel and Iran agreed to halt strikes against each other, easing fears of a broader regional conflict that had briefly driven crude higher.`\
+https://www.nytimes.com/2026/06/09/business/oil-gas-prices-iran.html
+
 **Can Democrats Move Beyond Their Failed Foreign Policy?**\
 `Matt Duss, Senator Bernie Sanders’s former foreign policy adviser, argues that Democrats need a foreign policy reckoning.`\
 https://www.nytimes.com/2026/06/09/opinion/ezra-klein-podcast-matt-duss.html
@@ -55,7 +79,7 @@ https://www.nytimes.com/2026/06/09/dining/restaurant-review-sqirl-los-angeles.ht
 https://www.nytimes.com/2026/06/09/realestate/paris-pied-a-terre-saint-germain-des-pres.html
 
 **Ukraine’s Neighbors Seek Shelter as More and More Drones Fly Overhead**\
-`Drones launched by both Russia and Ukraine are veering off course, sending people in countries not at war running for shelter.`\
+`Drones launched by both Russia and Ukraine are veering off course, menacing countries that are not at war.`\
 https://www.nytimes.com/2026/06/09/world/europe/russia-ukraine-drones-nato-lithuania-romania.html
 
 **A Gabled Penthouse Atop the Dakota Is on the Market for $8 Million**\
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/06/09/podcasts/wembanyama-spurs-knicks-game-3-nba-f
 **Spurs Beat Knicks, Quieting New York City Crowds**\
 `Fans, celebrities and President Trump gathered at Madison Square Garden in New York City to cheer on the Knicks, who lost Game 3 of the N.B.A. finals to the San Antonio Spurs.`\
 https://www.nytimes.com/video/nyregion/100000010954297/knicks-nba-finals-new-york.html
-
-**5 consejos para ayudar a gestionar el dinero de tus padres mayores**\
-`Para muchas familias, la conversación sobre la situación económica de los padres ancianos suele llegar demasiado tarde. Es mejor prepararse.`\
-https://www.nytimes.com/es/2026/06/09/espanol/negocios/dinero-ahorros-jubilacion-retiro-padres-mayores.html
-
-**He Gave It All to Help the Knicks Win in 1973. He’s Still in Pain Today.**\
-`Earl “the Pearl” Monroe was part of the last championship team. Now 81, he has thoughts on what really matters.`\
-https://www.nytimes.com/2026/06/09/nyregion/knicks-nba-finals-earl-monroe.html
-
-**Medical Advances Are Keeping a Health Reporter Busy**\
-`A conversation with Gina Kolata, who covers breakthroughs in medical science.`\
-https://www.nytimes.com/2026/06/09/pageoneplus/medical-advances.html
-
-**NYT Spelling Bee Answers for June 9, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/06/09/crosswords/spelling-bee-forum.html
-
-**Late Night Roasts Trump for Walking Out on ‘Meet the Press’**\
-`Jon Stewart called the president’s interview his “worst nightmare: a woman who won’t stop asking pertinent questions.”`\
-https://www.nytimes.com/2026/06/09/arts/television/late-night-jon-stewart-trump-meet-the-press.html
-
-**Las obras de Frida Kahlo vuelven a brillar en el Museo Dolores Olmedo**\
-`La gran mecenas de Diego Rivera, Dolores Olmedo, consideraba a Frida como una rival, pero compró 26 de sus obras de arte, la mayor colección. Sus obras se exponen en Ciudad de México.`\
-https://www.nytimes.com/es/2026/06/09/espanol/cultura/frida-kahlo-museo-dolores-olmedo.html
 
