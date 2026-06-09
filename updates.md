@@ -1,3 +1,11 @@
+**Nithya Raman Secures Second LA Mayor Spot, Ending Spencer Pratt’s Run**\
+`Nithya Raman, a progressive Democrat who entered the mayoral race at the last minute, secured the second spot to face Mayor Karen Bass in November. Her comeback sets up an intraparty battle.`\
+https://www.nytimes.com/2026/06/08/us/elections/nithya-raman-la-mayor-karen-bass.html
+
+**Live Updates: New Yorkers Line Up and Brace for Momentous Knicks Game**\
+`President Trump has arrived at Madison Square Garden for Game 3 of the N.B.A. finals, a game decades in the making for Knicks fans. The president’s attendance has caused fans to endure long security lines outside.`\
+https://www.nytimes.com/live/2026/06/08/nyregion/nba-finals-trump-knicks-spurs-mamdani
+
 **Wonder What a Renovated Penn Station Might Look Like? Here’s a Preview.**\
 `Forget those dreary passageways. The updated transit hub would add a grand entrance with sweeping staircases leading to an airy, glass-walled concourse.`\
 https://www.nytimes.com/2026/06/08/nyregion/penn-station-renovation.html

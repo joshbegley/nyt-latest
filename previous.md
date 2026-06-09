@@ -1,3 +1,7 @@
+**Nithya Raman Secures Second LA Mayor Spot, Ending Spencer Pratt’s Run**\
+`Nithya Raman, a progressive Democrat who entered the mayoral race at the last minute, secured the second spot to face Mayor Karen Bass in November. Her comeback sets up an intraparty battle.`\
+https://www.nytimes.com/2026/06/08/us/elections/nithya-raman-la-mayor-karen-bass.html
+
 **Wonder What a Renovated Penn Station Might Look Like? Here’s a Preview.**\
 `Forget those dreary passageways. The updated transit hub would add a grand entrance with sweeping staircases leading to an airy, glass-walled concourse.`\
 https://www.nytimes.com/2026/06/08/nyregion/penn-station-renovation.html
@@ -123,7 +127,7 @@ https://www.nytimes.com/interactive/polls/florida-us-house-2-polls-2026.html
 https://www.nytimes.com/2026/06/08/technology/sam-bankman-fried-pardon-trump.html
 
 **Live Updates: New Yorkers Line Up and Brace for Momentous Knicks Game**\
-`Fans with tickets are enduring long security lines ahead of President Trump’s expected attendance at Game 3 of the N.B.A. finals at a raucous, sold-out Madison Square Garden.`\
+`President Trump has arrived at Madison Square Garden for Game 3 of the N.B.A. finals, a game decades in the making for Knicks fans. The president’s attendance has caused fans to endure long security lines outside.`\
 https://www.nytimes.com/live/2026/06/08/nyregion/nba-finals-trump-knicks-spurs-mamdani
 
 **Scientist Charged With Conspiring to Smuggle Mpox Virus Into U.S.**\
@@ -185,8 +189,4 @@ https://www.nytimes.com/es/2026/06/08/espanol/mundo/colombiana-deportada-congo.h
 **Map: 6.1-Magnitude Earthquake Strikes in the Gulf of Mexico Near Cuba**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/06/08/world/americas/earthquake-tracker-cuba-gulf-mexico.html
-
-**Trump Administration Seeks to Revoke U.S. Citizenship of 17 Immigrants**\
-`The push to denaturalize more immigrants is the latest sign that the administration is setting its sights on the legal immigration system.`\
-https://www.nytimes.com/2026/06/08/us/politics/trump-denaturalization.html
 
