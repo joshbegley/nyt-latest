@@ -1,3 +1,11 @@
+**When to Expect Results in Maine, Nevada and Beyond**\
+`Four states have primaries on Tuesday. Election officials predict most results will come in late in the evening, though mail-in ballots may delay things.`\
+https://www.nytimes.com/2026/06/09/us/politics/election-results-timing-tonight-when.html
+
+**El papa León se encuentra con Bad Bunny en España**\
+`El pontífice y el cantante se cruzaron en Madrid, donde coincidieron durante unas giras muy diferentes. Lo sentimos, pero no se han publicado fotos.`\
+https://www.nytimes.com/es/2026/06/09/espanol/mundo/bad-bunny-papa-leon-espana.html
+
 **Tensions Flare in the Middle East as Cease-Fire Falters**\
 `President Trump blamed Iran for shooting down a U.S. helicopter near the Strait of Hormuz and vowed to retaliate, while Israel launched a new wave of strikes on southern Lebanon on Tuesday.`\
 https://www.nytimes.com/video/world/middleeast/100000010954773/lebanon-israeli-strikes-trump-iran-helicopter.html
