@@ -1,3 +1,11 @@
+**Federal Judge Faces Battery Charge After Parking Lot Confrontation**\
+`Judge Ryan Nelson of the U.S. Court of Appeals for the Ninth Circuit tossed a man’s glasses and appeared to stomp on them during an argument in Idaho that was captured on video.`\
+https://www.nytimes.com/2026/06/09/us/ryan-nelson-judge-criminal-charges-battery.html
+
+**What to Know About the Sea Drone That Rescued Downed Apache Crew**\
+`It was the first U.S. rescue carried out by an autonomous surface vessel and remotely piloted by a human operator, according to a military spokesperson.`\
+https://www.nytimes.com/2026/06/09/world/middleeast/sea-drone-apache-rescue.html
+
 **Taliban Leader Who Took U.S. Journalist Hostage Sentenced to 42 Years**\
 `Haji Najibullah had pleaded guilty to hostage taking and providing material support for terrorism.`\
 https://www.nytimes.com/2026/06/09/nyregion/taliban-leader-american-journalist-sentencing.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-north-dakota-us-ho
 **North Dakota Superintendent of Public Instruction 2026: Live Election Results**\
 `Get live results and maps from the 2026 North Dakota election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-north-dakota-superintendent-of-public-instruction.html
-
-**Nevada Controller Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Nevada primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-nevada-controller-primary.html
-
-**Nevada Secretary of State Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Nevada primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-nevada-secretary-of-state-primary.html
 
