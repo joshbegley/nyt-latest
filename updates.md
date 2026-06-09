@@ -1,3 +1,19 @@
+**Election Live Updates: Tumultuous Senate Primary in Maine Is Biggest Race as 4 States Vote**\
+`Graham Platner is widely expected to win the Democratic primary in Maine, for a seat that is key to the party’s hopes of winning the Senate. Primaries are also underway in South Carolina, Nevada and North Dakota.`\
+https://www.nytimes.com/live/2026/06/09/us/elections-maine-sc-nv-nd-primaries
+
+**Street Style Look of the Week: Pinstripes From London**\
+`Statement trousers were judged to be worth the splurge in a London boutique.`\
+https://www.nytimes.com/2026/06/09/style/street-style-look-pinstripe-trousers.html
+
+**U.S. Exports Rose in April, as War with Iran Buoyed Oil Demand**\
+`Commerce Department data showed exports rose 2.6 percent in April to $327.1 billion.`\
+https://www.nytimes.com/2026/06/09/business/economy/us-trade-deficit-oil-iran.html
+
+**Quit Complaining About the World Cup**\
+`There is a lot to gripe about. There’s also a lot to like.`\
+https://www.nytimes.com/2026/06/09/opinion/world-cup-fifa-tickets-prices.html
+
 **Israel Strikes Lebanese City of Tyre as New Cease-Fire Falters**\
 `The bombardment followed Israeli evacuation warnings for the entire city, and came a day after Iran said it would attack Israel if it kept up its offensive in southern Lebanon.`\
 https://www.nytimes.com/2026/06/09/world/middleeast/israel-lebanon-strikes-tyre-ceasefire.html

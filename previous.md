@@ -1,3 +1,15 @@
+**Election Live Updates: Tumultuous Senate Primary in Maine Is Biggest Race as 4 States Vote**\
+`Graham Platner is widely expected to win the Democratic primary in Maine, for a seat that is key to the party’s hopes of winning the Senate. Primaries are also underway in South Carolina, Nevada and North Dakota.`\
+https://www.nytimes.com/live/2026/06/09/us/elections-maine-sc-nv-nd-primaries
+
+**Street Style Look of the Week: Pinstripes From London**\
+`Statement trousers were judged to be worth the splurge in a London boutique.`\
+https://www.nytimes.com/2026/06/09/style/street-style-look-pinstripe-trousers.html
+
+**U.S. Exports Rose in April, as War with Iran Buoyed Oil Demand**\
+`Commerce Department data showed exports rose 2.6 percent in April to $327.1 billion.`\
+https://www.nytimes.com/2026/06/09/business/economy/us-trade-deficit-oil-iran.html
+
 **OpenAI Tests Investor Appetite for Yet Another Giant I.P.O.**\
 `Some analysts are wondering whether the market can absorb the artificial intelligence giant’s planned stock offering — along with those of SpaceX and Anthropic.`\
 https://www.nytimes.com/2026/06/09/business/dealbook/openai-ipo-spacex-anthropic.html
@@ -122,7 +134,7 @@ https://www.nytimes.com/2026/06/09/world/middleeast/lebanon-israel-nabatieh.html
 `American Bridge is hoping that Republicans are vulnerable in parts of the country that had been exceedingly tough terrain for Democrats in recent elections.`\
 https://www.nytimes.com/2026/06/09/us/politics/democrat-election-ads-american-bridge.html
 
-**If Only There Was a World Cup for Complaining About the World Cup**\
+**Quit Complaining About the World Cup**\
 `There is a lot to gripe about. There’s also a lot to like.`\
 https://www.nytimes.com/2026/06/09/opinion/world-cup-fifa-tickets-prices.html
 
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/09/opinion/democrats-abotion-compromise.html
 **After Decades of Confusion, a Name Change**\
 `The Carnegie Corporation of New York will now be called the Andrew Carnegie Foundation, a name that the organization says better reflects its work.`\
 https://www.nytimes.com/2026/06/09/nyregion/after-decades-of-confusion-a-name-change.html
-
-**How Talking to the ‘Chat’ Crossed Over Into Real Life**\
-`It’s a word ripped from Twitch streams, but it functions as a Greek chorus for an online, isolated generation.`\
-https://www.nytimes.com/2026/06/09/magazine/chat-genz-twitch.html
-
-**It’s Prom Night in America**\
-`This year the food, vibes, clothes and choice of a date (do you even need one?) are all over the map. Here’s a peek at five prime proms.`\
-https://www.nytimes.com/interactive/2026/06/09/dining/prom-night-dinners-america.html
-
-**Inside a World Cup Nerve Center Monitoring Fans, Drones and Heat**\
-`Officials in North Texas will watch for potential threats from a new $40 million emergency operations center, one of many new security precautions in place across North America.`\
-https://www.nytimes.com/2026/06/09/us/world-cup-security.html
 
