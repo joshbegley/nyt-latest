@@ -7,7 +7,7 @@ https://www.nytimes.com/live/2026/06/09/us/elections-maine-sc-nv-nd-primaries
 https://www.nytimes.com/2026/06/09/style/street-style-look-pinstripe-trousers.html
 
 **U.S. Exports Rose in April, as War with Iran Buoyed Oil Demand**\
-`Commerce Department data showed exports rose 2.6 percent in April to $327.1 billion.`\
+`Commerce Department data showed exports rose in April, slightly outpacing the growth in imports.`\
 https://www.nytimes.com/2026/06/09/business/economy/us-trade-deficit-oil-iran.html
 
 **OpenAI Tests Investor Appetite for Yet Another Giant I.P.O.**\
