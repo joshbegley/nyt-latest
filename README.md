@@ -1,3 +1,11 @@
+**The Likely Platner-Collins Matchup Is Set to Be Hugely Expensive**\
+`Both Senate candidates in Maine have been strong fund-raisers, and allied super PACs and dark-money groups are mobilizing for their showdown.`\
+https://www.nytimes.com/2026/06/09/us/politics/maine-primary-election-money-spending.html
+
+**Trump Law Would Also Direct Voucher Money to Public Schools**\
+`The law, which creates the first-ever federal voucher program, is designed, in part, to lure Democrats. It’s unclear how many blue states will sign up.`\
+https://www.nytimes.com/2026/06/09/us/national-education-vouchers-private-school.html
+
 **Michigan Court Vacates Conviction Tied to Gretchen Whitmer Kidnapping Plot**\
 `The state appellate court vacated the convictions of Joseph Morrison, ruling that the trial judge had provided flawed instructions to the jury.`\
 https://www.nytimes.com/2026/06/09/us/michigan-whitmer-plot-convictions-overturned.html
@@ -26,13 +34,13 @@ https://www.nytimes.com/2026/06/09/us/politics/south-carolina-nancy-mace-distric
 `Our national identity depends on both ideas and cultural inheritance.`\
 https://www.nytimes.com/2026/06/09/opinion/america-250-national-identity.html
 
-**G.M. Plans to Sell Energy Storage Batteries as E.V. Sales Flag**\
-`The carmaker will follow Tesla in making large batteries used by electric utilities, data centers and other businesses to handle fluctuations in power supply and demand.`\
-https://www.nytimes.com/2026/06/09/business/energy-environment/general-motors-storage-batteries-electric-vehicles.html
-
 **Everybody Is a Loser in This Mideast War**\
 `None of the participants in the recent wars of the Middle East can claim victory. All are to blame.`\
 https://www.nytimes.com/2026/06/09/opinion/middle-east-war-accountability-iran-us-trump.html
+
+**G.M. Plans to Develop Energy Storage Batteries as E.V. Sales Flag**\
+`The carmaker will follow Tesla in making components for large batteries used by electric utilities, data centers and other businesses to handle fluctuations in power supply and demand.`\
+https://www.nytimes.com/2026/06/09/business/energy-environment/general-motors-storage-batteries-electric-vehicles.html
 
 **Blanche Was Once Seen as Tempering Trump’s Tactics. Now He’s All In.**\
 `The ascendancy of Todd Blanche shows how the practices that were initially deemed out of bounds even in President Trump’s Justice Department seem to be the order of the day.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-north-dakota-secre
 **Maine Governor Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Maine primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-maine-governor-primary.html
-
-**North Dakota Attorney General Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 North Dakota primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-north-dakota-attorney-general-primary.html
-
-**Nevada First Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Nevada primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-nevada-us-house-1-primary.html
 
