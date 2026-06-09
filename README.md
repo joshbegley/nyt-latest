@@ -1,3 +1,7 @@
+**Trump Says Iran Shot Down U.S. Helicopter and Vows to Retaliate**\
+`U.S. Central Command said the incident was under investigation. The pilot and gunner were safely rescued.`\
+https://www.nytimes.com/2026/06/09/us/politics/trump-helicopter-iran-war.html
+
 **Can NASA Really Land Astronauts on the Moon by 2028?**\
 `Experts have been hopeful, but say the agency’s lunar aspirations are largely at the whims of two billionaires, Elon Musk and Jeff Bezos.`\
 https://www.nytimes.com/2026/06/09/science/space/nasa-artemis-moon-landing.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-nevada-us-house-1-
 **Nevada Lieutenant Governor Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Nevada primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-nevada-lieutenant-governor-primary.html
-
-**Nevada Fourth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Nevada primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-nevada-us-house-4-primary.html
 
