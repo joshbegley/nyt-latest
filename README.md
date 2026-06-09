@@ -34,13 +34,13 @@ https://www.nytimes.com/2026/06/08/nyregion/knicks-fans-lonely-no-more.html
 `(No description)`\
 https://www.nytimes.com/video/embedded/sports/100000010953986/08vid-knicks-trump-boo-30156.html
 
-**Unpacking the Famous Words in the Declaration of Independence**\
-`Our critic A.O. Scott breaks down the second sentence of the Declaration of Independence.`\
-https://www.nytimes.com/interactive/2026/06/08/arts/declaration-of-independence-words.html
-
 **Frederick Douglass’s Demand for Citizenship Is Still Radical**\
 `In the years after the Civil War, Douglass shared a vision of freedom and equality for all, regardless of race. Our writer Jia Lynn Yang considers that history, and its relevance for the present.`\
 https://www.nytimes.com/interactive/2026/06/08/arts/frederick-douglass-slavery-citizenship-writing.html
+
+**Unpacking the Famous Words in the Declaration of Independence**\
+`Our critic A.O. Scott breaks down the second sentence of the Declaration of Independence.`\
+https://www.nytimes.com/interactive/2026/06/08/arts/declaration-of-independence-words.html
 
 **How Susan B. Anthony Used Language in the Fight for Women’s Rights**\
 `In the fight for women’s rights, language has always been a battleground, our critic Parul Seghal explains.`\
