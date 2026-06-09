@@ -46,7 +46,7 @@ https://www.nytimes.com/2026/06/09/us/politics/south-carolina-nancy-mace-distric
 `Our national identity depends on both ideas and cultural inheritance.`\
 https://www.nytimes.com/2026/06/09/opinion/america-250-national-identity.html
 
-**Everybody Is a Loser in This Mideast War**\
+**Everybody Is a Loser in This Middle East War**\
 `None of the participants in the recent wars of the Middle East can claim victory. All are to blame.`\
 https://www.nytimes.com/2026/06/09/opinion/middle-east-war-accountability-iran-us-trump.html
 
