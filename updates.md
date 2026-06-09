@@ -1,3 +1,7 @@
+**Suspect Arrested in Belfast Knife Attack**\
+`Northern Ireland’s police arrested a man on suspicion of attempted murder after a stabbing in Belfast left another man in serious condition on Monday.`\
+https://www.nytimes.com/video/world/europe/100000010954882/belfast-stabbing-suspect-arrested.html
+
 **Elecciones en Los Ángeles: una demócrata queda segunda frente a Karen Bass**\
 `Nithya Raman puso fin a la campaña de Spencer Pratt por la alcaldía, y se enfrentará a la alcaldesa Karen Bass en noviembre, dando lugar a una contienda entre dos demócratas.`\
 https://www.nytimes.com/es/2026/06/09/espanol/estados-unidos/elecciones-los-angeles-bass-raman.html

@@ -1,3 +1,15 @@
+**New York City Schools Chancellor Being Investigated Over No-Bid Contract**\
+`The chancellor, Kamar Samuels, acknowledged a “lapse in procedure,” amid an investigation into a $180,000 contract for foreign language instructors.`\
+https://www.nytimes.com/2026/06/09/nyregion/nyc-chancellor-contract-investigation.html
+
+**Maine First Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Maine primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-maine-us-house-1-primary.html
+
+**House Votes to Advance $70 Billion G.O.P. Immigration Bill**\
+`The test vote cleared the way for final passage of Republicans’ megabill to fund immigration enforcement through the remainder of President Trump’s term.`\
+https://www.nytimes.com/2026/06/09/us/politics/house-immigration-bill.html
+
 **Suspect Arrested in Belfast Knife Attack**\
 `Northern Ireland’s police arrested a man on suspicion of attempted murder after a stabbing in Belfast left another man in serious condition on Monday.`\
 https://www.nytimes.com/video/world/europe/100000010954882/belfast-stabbing-suspect-arrested.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-north-dakota-publi
 **North Dakota Secretary of State Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 North Dakota primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-north-dakota-secretary-of-state-primary.html
-
-**North Dakota Attorney General Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 North Dakota primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-north-dakota-attorney-general-primary.html
-
-**Maine Governor Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Maine primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-maine-governor-primary.html
-
-**North Dakota Superintendent of Public Instruction 2026: Live Election Results**\
-`Get live results and maps from the 2026 North Dakota election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-north-dakota-superintendent-of-public-instruction.html
 
 **Election Live Updates: Maine Primary Takes Center Stage in Fight for Senate Control**\
 `Graham Platner is widely expected to win the Democratic primary in Maine, setting the stage for a closely watched race against Susan Collins. Primaries are also underway in South Carolina, Nevada and North Dakota.`\

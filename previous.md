@@ -1,3 +1,7 @@
+**Suspect Arrested in Belfast Knife Attack**\
+`Northern Ireland’s police arrested a man on suspicion of attempted murder after a stabbing in Belfast left another man in serious condition on Monday.`\
+https://www.nytimes.com/video/world/europe/100000010954882/belfast-stabbing-suspect-arrested.html
+
 **Elecciones en Los Ángeles: una demócrata queda segunda frente a Karen Bass**\
 `Nithya Raman puso fin a la campaña de Spencer Pratt por la alcaldía, y se enfrentará a la alcaldesa Karen Bass en noviembre, dando lugar a una contienda entre dos demócratas.`\
 https://www.nytimes.com/es/2026/06/09/espanol/estados-unidos/elecciones-los-angeles-bass-raman.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-maine-governor-pri
 **North Dakota Superintendent of Public Instruction 2026: Live Election Results**\
 `Get live results and maps from the 2026 North Dakota election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-north-dakota-superintendent-of-public-instruction.html
-
-**South Carolina Comptroller General Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 South Carolina primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-comptroller-general-primary.html
 
 **Election Live Updates: Maine Primary Takes Center Stage in Fight for Senate Control**\
 `Graham Platner is widely expected to win the Democratic primary in Maine, setting the stage for a closely watched race against Susan Collins. Primaries are also underway in South Carolina, Nevada and North Dakota.`\
