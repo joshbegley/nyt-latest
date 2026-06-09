@@ -1,3 +1,7 @@
+**OpenAI Tests Investor Appetite for Yet Another Giant I.P.O.**\
+`Some analysts are wondering whether the market can absorb the artificial intelligence giant’s planned stock offering — along with those of SpaceX and Anthropic.`\
+https://www.nytimes.com/2026/06/09/business/dealbook/openai-ipo-spacex-anthropic.html
+
 **Israel Strikes Lebanese City of Tyre as New Cease-Fire Falters**\
 `The bombardment followed Israeli evacuation warnings for the entire city, and came a day after Iran said it would attack Israel if it kept up its offensive in southern Lebanon.`\
 https://www.nytimes.com/2026/06/09/world/middleeast/israel-strikes-lebanese-city-of-tyre-as-new-cease-fire-falters.html
@@ -15,7 +19,7 @@ https://www.nytimes.com/2026/06/09/world/middleeast/netanyahus-trump-pressure-ov
 https://www.nytimes.com/interactive/2026/06/09/world/asia/north-korea-china-xi-kim-summit.html
 
 **Man Arrested in ‘Brutal’ Stabbing in Belfast, Police Say**\
-`The suspect, whom the police described as in his 30s and believed to be Somali, is alleged to have attacked another man in his 40s in an episode in Belfast that was recorded and spread quickly online.`\
+`The suspect, who the police said is in his 30s and Sudanese, is alleged to have attacked another man in an assault in Belfast that was recorded and spread quickly online.`\
 https://www.nytimes.com/2026/06/09/world/europe/belfast-stabbing-arrest-northern-ireland.html
 
 **Word Choices**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/06/09/dining/prom-night-dinners-america
 **Inside a World Cup Nerve Center Monitoring Fans, Drones and Heat**\
 `Officials in North Texas will watch for potential threats from a new $40 million emergency operations center, one of many new security precautions in place across North America.`\
 https://www.nytimes.com/2026/06/09/us/world-cup-security.html
-
-**The Victoria and Albert Museum Gets Nostalgic for Britain’s Lost Music Venues**\
-`A new exhibition charts the cyclical forces destroying nightlife spots, even as independent spaces fight developers, complaining neighbors and shifting social habits.`\
-https://www.nytimes.com/2026/06/09/arts/music/lost-music-venues-britain-v-and-a-museum.html
 
