@@ -1,3 +1,11 @@
+**Are Taylor Swift and Travis Kelce Prepping for a New York Wedding?**\
+`Rumors are swirling. If the couple does say “I do” in the city, here are five venues that fit the scale of a celebration for a pop star and a star athlete.`\
+https://www.nytimes.com/2026/06/09/fashion/weddings/taylor-swift-travis-kelce-wedding-new-york.html
+
+**At the Tribeca Festival Artists Dinner, Celebrities Cheered on the Knicks**\
+`Actors cheered on the Knicks at Chanel’s annual Tribeca Festival Artists Dinner, which became something of an unofficial celebrity watch party.`\
+https://www.nytimes.com/2026/06/09/style/tribeca-festival-artists-dinner-knicks-sofia-coppola.html
+
 **6 Countries Announce Sanctions Targeting Israeli Settler Networks**\
 `The measures aim to “disrupt the flows of finance” supporting attacks on Palestinians in the West Bank, said the British government, which coordinated them with France and other nations.`\
 https://www.nytimes.com/2026/06/09/world/middleeast/west-bank-israeli-settlers-sanction.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-att
 **Nevada Supreme Court Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Nevada primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-nevada-supreme-court-primary.html
-
-**Nevada Treasurer Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Nevada primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-nevada-treasurer-primary.html
-
-**Nevada Controller Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Nevada primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-nevada-controller-primary.html
 
 **Election Live Updates: Tumultuous Senate Primary in Maine Is Biggest Race as 4 States Vote**\
 `Graham Platner is widely expected to win the Democratic primary in Maine, for a seat that is key to the party’s hopes of winning the Senate. Primaries are also underway in South Carolina, Nevada and North Dakota.`\
