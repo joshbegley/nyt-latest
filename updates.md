@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/business/100000010954786/Biz-China-Robots.html
+
+**Drones Stray Into Neighboring Countries as Russia and Ukraine Battle**\
+`Drones launched by both Russia and Ukraine are veering off course, menacing countries that are not at war and driving their citizens to seek shelter.`\
+https://www.nytimes.com/2026/06/09/world/europe/russia-ukraine-drones-nato-lithuania-romania.html
+
 **Why Apple’s A.I. Upgrade for Siri Won’t Be Available in Europe**\
 `A regulatory dispute has indefinitely delayed the release of Siri AI.`\
 https://www.nytimes.com/2026/06/09/business/apple-siri-ai-europe.html
