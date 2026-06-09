@@ -1,3 +1,15 @@
+**Can NASA Really Land Astronauts on the Moon by 2028?**\
+`Experts have been hopeful, but say the agency’s lunar aspirations are largely at the whims of two billionaires, Elon Musk and Jeff Bezos.`\
+https://www.nytimes.com/2026/06/09/science/space/nasa-artemis-moon-landing.html
+
+**Paramount C.E.O. Promises Editorial Independence for ‘60 Minutes’**\
+`David Ellison told Lesley Stahl, one of three remaining correspondents for the news program, that he would respect the show’s editorial decisions after a tumultuous stretch.`\
+https://www.nytimes.com/2026/06/09/business/media/paramount-ceo-editorial-independence-60-minutes.html
+
+**Welcome to Believing**\
+`I’m excited to explore how people find meaning in their lives — in religious, spiritual or secular spaces — with you.`\
+https://www.nytimes.com/2026/06/09/briefing/welcome-to-believing.html
+
 **U.S. and Iran Zero In on Four Nuclear Issues in Talks**\
 `With the cease-fire proving tenuous, negotiations between the two nations are in flux, but have advanced to outline potential paths forward on difficult questions about Iran’s nuclear program.`\
 https://www.nytimes.com/2026/06/09/us/politics/iran-nuclear-deal.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-nevada-lieutenant-
 **Nevada Fourth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Nevada primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-nevada-us-house-4-primary.html
-
-**Map: 3.4-Magnitude Earthquake Shakes Southern California**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/06/09/world/earthquake-southern-california-tracker.html
-
-**Live Updates: NASA Announces Its Artemis III Astronauts**\
-`Randy Bresnik, Luca Parmitano, Frank Rubio and Andre Douglas will be part of the next mission in the agency’s program to return humans to the surface of the moon by 2028. The recent explosion of a Blue Origin rocket could complicate matters.`\
-https://www.nytimes.com/live/2026/06/09/science/nasa-artemis-iii-astronauts
-
-**Election Live Updates: Tumultuous Senate Primary in Maine Is Biggest Race as 4 States Vote**\
-`Graham Platner is widely expected to win the Democratic primary in Maine, for a seat that is key to the party’s hopes of winning the Senate. Primaries are also underway in South Carolina, Nevada and North Dakota.`\
-https://www.nytimes.com/live/2026/06/09/us/elections-maine-sc-nv-nd-primaries
 
