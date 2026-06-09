@@ -1,3 +1,11 @@
+**When to Expect Results in Maine, Nevada and Beyond**\
+`Four states have primaries on Tuesday. Election officials predict most results will come in late in the evening, though mail-in ballots may delay things.`\
+https://www.nytimes.com/2026/06/09/us/politics/election-results-timing-tonight-when.html
+
+**El papa León se encuentra con Bad Bunny en España**\
+`El pontífice y el cantante se cruzaron en Madrid, donde coincidieron durante unas giras muy diferentes. Lo sentimos, pero no se han publicado fotos.`\
+https://www.nytimes.com/es/2026/06/09/espanol/mundo/bad-bunny-papa-leon-espana.html
+
 **The U.S. Strikes Iran After Trump Vowed to Retaliate**\
 `Also, meet NASA’s Artemis III crew. Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/06/09/briefing/united-states-iran-strikes-maine-primary-election.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-north-dakota-agric
 **North Dakota Public Service Commission Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 North Dakota primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-north-dakota-public-service-commission-primary.html
-
-**Nevada Lieutenant Governor Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Nevada primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-nevada-lieutenant-governor-primary.html
-
-**North Dakota Secretary of State Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 North Dakota primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-north-dakota-secretary-of-state-primary.html
 
