@@ -1,3 +1,15 @@
+**Map: 3.4-Magnitude Earthquake Shakes Southern California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/09/world/09wea-quake-tracker-southern-california-nyth28jz.html
+
+**Social Security Benefits Could Be Cut in 6 Years Unless Congress Acts**\
+`The trust fund for the program, which supports roughly 68 million Americans, is on schedule to be depleted in the next six years. Benefits could be cut on average by 22 percent.`\
+https://www.nytimes.com/2026/06/09/business/social-security-benefits-cuts.html
+
+**We Need A Menopause Revolution**\
+`Why don’t women get the care they deserve during menopause? According to Melinda French Gates, even medical providers don’t receive the training they need — at the expense of women’s health and well-being.`\
+https://www.nytimes.com/video/opinion/100000010945842/we-need-a-menopause-revolution.html
+
 **The Philippines Grapples With Deadly Earthquake’s Aftermath**\
 `After the Philippines was struck by its most powerful earthquake in 50 years, residents on the island of Mindanao were left to pick up the pieces.`\
 https://www.nytimes.com/video/world/asia/100000010954591/philippines-earthquake-aftermath.html
@@ -169,16 +181,4 @@ https://www.nytimes.com/2026/06/09/podcasts/the-headlines/the-holdup-at-the-cent
 **Maine Votes as Graham Platner’s Past Poses New Conundrums**\
 `Mr. Platner, a Democratic candidate for Senate, is causing anxiety over his turbulent personal history.`\
 https://www.nytimes.com/2026/06/09/podcasts/the-daily/maine-vote-graham-platner-primary-senate.html
-
-**NYT Connections Answers for June 10, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, June 10, 2026.`\
-https://www.nytimes.com/2026/06/09/crosswords/connections-companion-1095.html
-
-**NYT Strands Hints for June 10, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, June 10, 2026.`\
-https://www.nytimes.com/2026/06/09/crosswords/strands-sidekick-829.html
-
-**Today’s Wordle Hints for June 10, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, June 10, 2026.`\
-https://www.nytimes.com/2026/06/09/crosswords/wordle-review-1817.html
 

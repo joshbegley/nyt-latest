@@ -1,6 +1,6 @@
 **Map: 3.4-Magnitude Earthquake Shakes Southern California**\
 `View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/06/09/world/09wea-quake-tracker-southern-california-nyth28jz.html
+https://www.nytimes.com/interactive/2026/06/09/world/earthquake-southern-california-tracker.html
 
 **Social Security Benefits Could Be Cut in 6 Years Unless Congress Acts**\
 `The trust fund for the program, which supports roughly 68 million Americans, is on schedule to be depleted in the next six years. Benefits could be cut on average by 22 percent.`\
@@ -173,12 +173,4 @@ https://www.nytimes.com/2026/06/09/briefing/word-choices-declaration-independenc
 **El triunfo de Kim Jong-un**\
 `El dirigente aprovechó la guerra de Ucrania para convertirse en el líder más poderoso de Corea del Norte hasta la fecha.`\
 https://www.nytimes.com/es/2026/06/09/espanol/mundo/kim-jong-un-corea-norte.html
-
-**The Holdup at the Center of the Iran Talks, and Trump’s Baseless New Claims of Voter Fraud**\
-`Plus, “I’m busy, but you can talk to my A.I. twin.”`\
-https://www.nytimes.com/2026/06/09/podcasts/the-headlines/the-holdup-at-the-center-of-the-iran-talks-and-trumps-baseless-new-claims-of-voter-fraud.html
-
-**Maine Votes as Graham Platner’s Past Poses New Conundrums**\
-`Mr. Platner, a Democratic candidate for Senate, is causing anxiety over his turbulent personal history.`\
-https://www.nytimes.com/2026/06/09/podcasts/the-daily/maine-vote-graham-platner-primary-senate.html
 
