@@ -127,7 +127,7 @@ https://www.nytimes.com/interactive/polls/florida-us-house-2-polls-2026.html
 https://www.nytimes.com/2026/06/08/technology/sam-bankman-fried-pardon-trump.html
 
 **Live Updates: New Yorkers Line Up and Brace for Momentous Knicks Game**\
-`Fans with tickets are enduring long security lines ahead of President Trump’s expected attendance at Game 3 of the N.B.A. finals at a raucous, sold-out Madison Square Garden.`\
+`President Trump has arrived at Madison Square Garden for Game 3 of the N.B.A. finals, a game decades in the making for Knicks fans. The president’s attendance has caused fans to endure long security lines outside.`\
 https://www.nytimes.com/live/2026/06/08/nyregion/nba-finals-trump-knicks-spurs-mamdani
 
 **Scientist Charged With Conspiring to Smuggle Mpox Virus Into U.S.**\
