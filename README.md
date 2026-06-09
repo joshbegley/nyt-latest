@@ -1,3 +1,7 @@
+**EE. UU. niega la entrada a un árbitro somalí del Mundial**\
+`Omar Artan fue uno de los 52 árbitros seleccionados para la Copa Mundial de la FIFA. Pero el sábado se le denegó la entrada por “preocupaciones de investigación de antecedentes”, dijeron funcionarios estadounidenses.`\
+https://www.nytimes.com/es/2026/06/08/espanol/estados-unidos/arbitro-somalia-mundial-entrada.html
+
 **As Screwworm Cases Mount, U.S. Officials Ramp Up Response**\
 `The parasitic, flesh-eating fly has now been confirmed in cows, goats and dogs.`\
 https://www.nytimes.com/2026/06/08/science/cattle-disease-screwworm.html
@@ -142,8 +146,8 @@ https://www.nytimes.com/interactive/polls/florida-us-house-2-polls-2026.html
 `Mr. Bankman-Fried is serving a 25-year prison sentence for fraud related to the collapse of his cryptocurrency exchange, FTX.`\
 https://www.nytimes.com/2026/06/08/technology/sam-bankman-fried-pardon-trump.html
 
-**Live Updates: New Yorkers Line Up and Brace for Momentous Knicks Game**\
-`President Trump has arrived at Madison Square Garden for Game 3 of the N.B.A. finals, a game decades in the making for Knicks fans. The president’s attendance has caused fans to endure long security lines outside.`\
+**Live Updates: New Yorkers Hold Breath for Momentous Knicks Game**\
+`President Trump is attending Game 3 of the N.B.A. finals at Madison Square Garden, a game decades in the making for Knicks fans. Nervous but hopeful energy filled the city at watch parties big and small.`\
 https://www.nytimes.com/live/2026/06/08/nyregion/nba-finals-trump-knicks-spurs-mamdani
 
 **Scientist Charged With Conspiring to Smuggle Mpox Virus Into U.S.**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/08/us/vance-boelter-death-penalty-minnesota-hort
 **Judge Throws Out Trump Administration’s Policy Imposing $100,000 Fees for H-1B Visas**\
 `The ruling voided “in its entirety” a policy from September requiring companies to pay $100,000 fees for H-1B visa petitions.`\
 https://www.nytimes.com/2026/06/08/us/politics/judge-visa-skilled-workers-fee-trump.html
-
-**Who Is Ahead in Maine's 1st Congressional District?**\
-`Track the latest polls in Maine's 1st Congressional District.`\
-https://www.nytimes.com/interactive/polls/maine-us-house-1-polls-2026.html
 
