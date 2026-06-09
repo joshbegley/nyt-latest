@@ -1,3 +1,11 @@
+**Traditional Republicans Clash With MAGA Wing in Nevada House Primary**\
+`At stake is the seat held by Representative Mark Amodei, a Republican in northern Nevada who is retiring from his reliably red district.`\
+https://www.nytimes.com/2026/06/09/us/politics/nevada-second-district-primary-maga-republicans.html
+
+**Teen Who Killed Competitor at Texas Track Meet Is Found Guilty of Murder**\
+`Karmelo Anthony, 19, was convicted of murder for the killing of Austin Metcalf, another student, at a high school sporting event last year in a case that drew national attention.`\
+https://www.nytimes.com/2026/06/09/us/karmelo-anthony-murder-verdict-guilty.html
+
 **Para este árbitro somalí, el Mundial terminó cuando EE. UU. le negó la entrada**\
 `“Tenía los papeles en regla y todo”, dijo Omar Abdulkadir Artan en su primera entrevista desde que fue enviado de regreso. Habría sido el primer somalí en arbitrar un partido del torneo.`\
 https://www.nytimes.com/es/2026/06/09/espanol/deportes/somalia-arbitro-entrevista-exclusiva.html
@@ -173,14 +181,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-sup
 **South Carolina Fifth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 South Carolina primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-us-house-5-primary.html
-
-**South Carolina Second Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 South Carolina primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-us-house-2-primary.html
-
-**Maine First Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Maine primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-maine-us-house-1-primary.html
 
 **Election Live Updates: Maine Primary Takes Center Stage in Fight for Senate Control**\
 `Graham Platner is widely expected to win the Democratic primary in Maine, setting the stage for a closely watched race against Susan Collins. Primaries are also underway in South Carolina, Nevada and North Dakota.`\
