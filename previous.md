@@ -1,4 +1,4 @@
-**A Snag in the U.S.-Iran Talks: Both Sides Demand Victory**\
+**A Challenge in the U.S.-Iran Talks: Both Sides Demand Victory**\
 `Washington and Tehran would need to defend any potential deal as a win for their side. And each has a leader whose approach to talks is vexing mediators.`\
 https://www.nytimes.com/2026/06/09/world/middleeast/us-iran-talks-war.html
 
