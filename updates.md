@@ -1,3 +1,11 @@
+**Man Is Attacked by Alligator After Fleeing Louisiana Police**\
+`The driver, who was charged with driving while impaired, suffered non-life-threatening injuries, authorities said.`\
+https://www.nytimes.com/2026/06/09/us/man-attacked-alligator-louisiana.html
+
+**Live Updates: NASA Announces Its Artemis III Astronauts**\
+`Andre Douglas, Frank Rubio, Luca Parmitano and Randy Bresnik will be part of the next mission in the agency’s program to return humans to the surface of the moon by 2028. The recent explosion of a Blue Origin rocket could complicate matters.`\
+https://www.nytimes.com/live/2026/06/09/science/nasa-artemis-iii-astronauts
+
 **The Joy of Shopping in Los Angeles**\
 `Men, they’re not afraid to spend! Plus, have we hit Knicks merch overload?`\
 https://www.nytimes.com/2026/06/09/style/los-angeles-clothes-retail.html

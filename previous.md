@@ -70,7 +70,7 @@ https://www.nytimes.com/2026/06/09/science/space/apollo-9-nasa.html
 `The Netherlands blocked a U.S. company from buying a Dutch firm that handles its national ID system, saying it would create a “threat to the public interest.”`\
 https://www.nytimes.com/2026/06/09/technology/solvinity-kyndryl-blocked-deal-us-europe-rift.html
 
-**After Saying See You Later to Louisiana Police, Man Is Attacked by Alligator**\
+**Man Is Attacked by Alligator After Fleeing Louisiana Police**\
 `The driver, who was charged with driving while impaired, suffered non-life-threatening injuries, authorities said.`\
 https://www.nytimes.com/2026/06/09/us/man-attacked-alligator-louisiana.html
 
@@ -82,8 +82,8 @@ https://www.nytimes.com/2026/06/09/science/what-is-artemis-iii-moon-nasa.html
 `NASA’s Artemis program has little room for error if it is to land astronauts on the moon by the end of 2028, but Blue Origin could be out of commission for at least a year.`\
 https://www.nytimes.com/2026/06/09/science/space/blue-origin-explosion-nasa-artemis-iii.html
 
-**Live Updates: NASA Is Announcing Its Artemis III Astronauts**\
-`Four astronauts will be part of the next mission in the agency’s program to return humans to the surface of the moon by 2028. The recent explosion of a Blue Origin rocket could complicate matters.`\
+**Live Updates: NASA Announces Its Artemis III Astronauts**\
+`Andre Douglas, Frank Rubio, Luca Parmitano and Randy Bresnik will be part of the next mission in the agency’s program to return humans to the surface of the moon by 2028. The recent explosion of a Blue Origin rocket could complicate matters.`\
 https://www.nytimes.com/live/2026/06/09/science/nasa-artemis-iii-astronauts
 
 ****\
