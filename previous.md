@@ -38,17 +38,17 @@ https://www.nytimes.com/2026/06/08/nyregion/knicks-fans-lonely-no-more.html
 `(No description)`\
 https://www.nytimes.com/video/embedded/sports/100000010953986/08vid-knicks-trump-boo-30156.html
 
-**Frederick Douglass’s Demand for Citizenship Is Still Radical**\
-`In the years after the Civil War, Douglass shared a vision of freedom and equality for all, regardless of race. Our writer Jia Lynn Yang considers that history, and its relevance for the present.`\
-https://www.nytimes.com/interactive/2026/06/08/arts/frederick-douglass-slavery-citizenship-writing.html
-
 **Unpacking the Famous Words in the Declaration of Independence**\
 `Our critic A.O. Scott breaks down the second sentence of the Declaration of Independence.`\
 https://www.nytimes.com/interactive/2026/06/08/arts/declaration-of-independence-words.html
 
-**How Susan B. Anthony Used Language in the Fight for Women’s Rights**\
-`In the fight for women’s rights, language has always been a battleground, our critic Parul Seghal explains.`\
-https://www.nytimes.com/interactive/2026/06/08/arts/susan-b-anthony-womens-rights-word.html
+**Frederick Douglass’s Demand for Citizenship Is Still Radical**\
+`In the years after the Civil War, Douglass shared a vision of freedom and equality for all, regardless of race. Our writer Jia Lynn Yang considers that history, and its relevance for the present.`\
+https://www.nytimes.com/interactive/2026/06/08/arts/frederick-douglass-slavery-citizenship-writing.html
+
+**‘Make American Great Again’ Was a Slogan Well Before Trump**\
+`Our critic A.O. Scott explains how four words explain (at least) 40 years of political history.`\
+https://www.nytimes.com/interactive/2026/06/08/arts/make-american-great-again-slogan-trump-clinton-reagan.html
 
 **How F.D.R.’s Most Famous Sentence Remade America**\
 `There was plenty to be afraid of in 1933, our chief White House correspondent, Peter Baker, explains. Roosevelt said there was “nothing to fear but fear itself.”`\
@@ -58,9 +58,9 @@ https://www.nytimes.com/interactive/2026/06/08/arts/fdr-inaugural-address-fear.h
 `“Mississippi Goddam” is a song of the Civil Rights Era, and our own. Listen to it with our critic Wesley Morris.`\
 https://www.nytimes.com/interactive/2026/06/08/arts/nina-simone-mississippi-goddam-civil-rights-song.html
 
-**‘Make American Great Again’ Was a Slogan Well Before Trump**\
-`Our critic A.O. Scott explains how four words explain (at least) 40 years of political history.`\
-https://www.nytimes.com/interactive/2026/06/08/arts/make-american-great-again-slogan-trump-clinton-reagan.html
+**How Susan B. Anthony Used Language in the Fight for Women’s Rights**\
+`In the fight for women’s rights, language has always been a battleground, our critic Parul Seghal explains.`\
+https://www.nytimes.com/interactive/2026/06/08/arts/susan-b-anthony-womens-rights-word.html
 
 **EE. UU. niega la entrada a un árbitro somalí del Mundial**\
 `Omar Artan fue uno de los 52 árbitros seleccionados para la Copa Mundial de la FIFA. Pero el sábado se le denegó la entrada por “preocupaciones de investigación de antecedentes”, dijeron funcionarios estadounidenses.`\
