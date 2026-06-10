@@ -1,3 +1,7 @@
+**Disorder Breaks Out After Belfast Knife Attack**\
+`People took to the streets of Belfast on Tuesday after a suspect, who the police said was a 30-year-old Sudanese man, was charged with attempted murder over a knife attack.`\
+https://www.nytimes.com/video/world/europe/100000010957250/belfast-ireland-riots-protests-knife-attack.html
+
 **¿Por qué bajan las tasas de natalidad? Los celulares podrían ser responsables**\
 `Los celulares inteligentes salieron al mercado en 2007, el año en que las tasas de fertilidad empezaron a bajar. Dos estudios dicen que no es una coincidencia.`\
 https://www.nytimes.com/es/2026/06/10/espanol/estados-unidos/celulares-baja-natalidad.html
