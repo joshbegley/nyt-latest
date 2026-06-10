@@ -7,7 +7,7 @@ https://www.nytimes.com/2026/06/10/us/fbi-search-orange-county-chemical-tank.htm
 https://www.nytimes.com/video/world/africa/100000010957717/us-ebola-quarantine-unit-protest-kenya.html
 
 **Disturbios en Irlanda del Norte: lo que hay que saber**\
-`There was unrest in Belfast and elsewhere after video of a brutal stabbing circulated online, amplified by far-right activists.`\
+`Un brutal apuñalamiento ocurrido en Belfast esta semana ha avivado el sentimiento antimigrantes que ya estaba latente.`\
 https://www.nytimes.com/es/2026/06/10/espanol/mundo/irlanda-norte-disturbios-belfast.html
 
 **Russian Military Official Killed in Car Explosion Near Moscow**\
