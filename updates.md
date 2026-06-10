@@ -1,3 +1,7 @@
+**Why Complete Election Results in Maine Could Take More Than a Week**\
+`Winners in the Republican and Democratic primary races for governor and in a Democratic congressional primary have not yet been determined.`\
+https://www.nytimes.com/2026/06/10/us/politics/maine-slow-vote-count.html
+
 **Violence in Belfast After Brutal Stabbing Attack: What to Know**\
 `There was unrest in Belfast and elsewhere after video of a brutal stabbing circulated online, amplified by far-right activists.`\
 https://www.nytimes.com/2026/06/10/world/europe/belfast-attack-riots-what-happened.html

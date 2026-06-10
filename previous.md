@@ -1,3 +1,7 @@
+**Why Complete Election Results in Maine Could Take More Than a Week**\
+`Winners in the Republican and Democratic primary races for governor and in a Democratic congressional primary have not yet been determined.`\
+https://www.nytimes.com/2026/06/10/us/politics/maine-slow-vote-count.html
+
 **Violence in Belfast After Brutal Stabbing Attack: What to Know**\
 `There was unrest in Belfast and elsewhere after video of a brutal stabbing circulated online, amplified by far-right activists.`\
 https://www.nytimes.com/2026/06/10/world/europe/belfast-attack-riots-what-happened.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/10/style/gosh-chinatown-club.html
 **A Twist in Ukraine’s Drone Campaign Is ‘Really Hurting the Russians’**\
 `Midrange attacks, using upgraded drones that Ukraine produces in huge numbers, are causing fuel shortages and complicating troop rotations.`\
 https://www.nytimes.com/2026/06/10/world/europe/ukraine-midrange-logistics-strikes.html
-
-**How Quiet Oman Landed Itself in Trump’s Cross Hairs**\
-`As the Iran war drags on, Oman — a U.S. ally and mediator with Iran — has found itself at odds with the Trump administration and some of its own neighbors.`\
-https://www.nytimes.com/2026/06/10/world/middleeast/oman-iran-trump-threat.html
 
