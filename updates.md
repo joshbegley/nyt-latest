@@ -1,3 +1,7 @@
+**Graham Platner Wins Primary in Maine, Setting Up a Key Senate Fight**\
+`In South Carolina, Senator Lindsey Graham fended off a Republican challenger and avoided a runoff. Nevada and North Dakota also held primaries.`\
+https://www.nytimes.com/live/2026/06/09/us/elections-maine-sc-nv-nd-primaries
+
 **The Global Bull Market That A.I. Obscures**\
 `The rest of the world has been writing one of the more remarkable chapters in modern financial history — and many have hardly noticed.`\
 https://www.nytimes.com/2026/06/10/opinion/global-bull-market-ai.html
