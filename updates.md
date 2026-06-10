@@ -1,3 +1,11 @@
+**The City That Watches Together**\
+`In bodegas and parks, in bars and pizzerias, the unofficial watch party has taken over New York.`\
+https://www.nytimes.com/2026/06/10/nyregion/new-york-city-knicks-watch-parties.html
+
+**NYT Spelling Bee Answers for June 10, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/10/crosswords/spelling-bee-forum.html
+
 **Linsanity Is Dead. Long Live Linsanity.**\
 `Knicks legend Jeremy Lin on the Finals, the Garden and Kim Kardashian.`\
 https://www.nytimes.com/2026/06/10/podcasts/linsanity-is-dead-long-live-linsanity.html
