@@ -1,3 +1,11 @@
+**No Country for Ambitious Women**\
+`Republicans have spent years disparaging all things associated with women. Now Democrats are following suit.`\
+https://www.nytimes.com/2026/06/10/opinion/republicans-democrats-women-ambition.html
+
+**My Sister-in-Law Made an Indecent Suggestion After a Night of Drinking. Help!**\
+`A reader is unsure whether to tell his wife about her sister’s drunken musings, including an imagined scenario in which they might rekindle their long-ago love affair.`\
+https://www.nytimes.com/2026/06/10/style/indiscreet-comments-drunkenness-affairs.html
+
 **Drinking Water Facilities Hit by Strikes in Iran, State Media Reports**\
 `The state broadcaster said two water tanks serving thousands of people were damaged. The U.S. military did not respond to a request for comment.`\
 https://www.nytimes.com/2026/06/10/world/middleeast/drinking-water-facilities-hit-by-strikes-in-iran-state-media-reports.html
@@ -122,7 +130,7 @@ https://www.nytimes.com/video/podcasts/100000010956300/laverne-cox-is-ready-to-t
 `As New York basks in the attention of a long-awaited N.B.A. finals run, many San Antonians say the Spurs, and the city they represent, are being underestimated.`\
 https://www.nytimes.com/2026/06/10/us/san-antonio-spurs-fans.html
 
-**Wall Street’s A.I. Bet Is About to Become Yours**\
+**The A.I. Bubble Is Coming for Your Retirement Account**\
 `David Wallace-Wells speaks with the economist and law professor Natasha Sarin about what the coming A.I. I.P.O.s could mean for your retirement account.`\
 https://www.nytimes.com/2026/06/10/opinion/ai-ipo-openai-anthropic.html
 
@@ -130,7 +138,7 @@ https://www.nytimes.com/2026/06/10/opinion/ai-ipo-openai-anthropic.html
 `As the company prepares for its stock market debut, here’s what the initial public offering means for banks, Elon Musk and everyday investors.`\
 https://www.nytimes.com/2026/06/10/business/spacex-ipo-what-to-know.html
 
-**The Battle for the Senate Could Come Down to Hopes and Fears in Maine**\
+**Platner’s Primary Victory in Maine Gives Democrats Hope and Fears in Key Senate Race**\
 `Graham Platner’s primary victory in Maine sets up a high-stakes contest between an insurgent progressive with political baggage and a battle-tested but vulnerable Republican senator.`\
 https://www.nytimes.com/2026/06/10/us/politics/senate-control-maine.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/10/world/middleeast/oman-iran-trump-threat.html
 **How to Remove Apps You Never Use (or at Least Hide Them)**\
 `If you need space back on your phone or tablet, removing built-in and unused apps can help free up storage and reduce screen clutter.`\
 https://www.nytimes.com/2026/06/10/technology/personaltech/iphone-android-app-removal.html
-
-**A Land Artist Asks: What Will Be Left When I’m Not Here?**\
-`Meg Webster creates works that are often fleeting. At 82, with a new show at the Paula Cooper Gallery, now she’s looking for a place in history.`\
-https://www.nytimes.com/2026/06/10/arts/meg-webster-land-artist.html
-
-**‘A Mighty Form of Communion’: Three Writers on the World Cup’s Strange Magic**\
-`There’s ample cause for celebration and consternation alike.`\
-https://www.nytimes.com/2026/06/10/opinion/world-cup-trump-fifa.html
 

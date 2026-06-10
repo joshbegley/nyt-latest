@@ -1,3 +1,11 @@
+**Drinking Water Facilities Hit by Strikes in Iran, State Media Reports**\
+`The state broadcaster said two water tanks serving thousands of people were damaged. The U.S. military did not respond to a request for comment.`\
+https://www.nytimes.com/2026/06/10/world/middleeast/drinking-water-facilities-hit-by-strikes-in-iran-state-media-reports.html
+
+**With Bill Pulte, Trump Is Sending a Dangerous Message**\
+`President Trump’s decision to place Bill Pulte at the head of the U.S. intelligence community is not just another poor personnel choice. It’s a warning.`\
+https://www.nytimes.com/2026/06/10/opinion/cia-bill-pulte-trump.html
+
 **Live Updates: Inflation Jumps as Iran War Intensifies Price Squeeze**\
 `Consumer prices rose at a faster rate for a third-straight month in May, to 4.2 percent annually, as the energy shock put more pressure on the U.S. economy.`\
 https://www.nytimes.com/live/2026/06/10/business/inflation-report-cpi
