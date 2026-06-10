@@ -1,3 +1,7 @@
+**Democrats Try to Move Past ‘Cultural Pandering’ to Latinos for Midterm Elections**\
+`The party is trying desperately to win back some voters in the key swing group.`\
+https://www.nytimes.com/2026/06/10/us/politics/latino-voters-democrats-elections.html
+
 **Hegseth Says U.S. Will Attack Iran Wednesday Night**\
 `Secretary of Defense Pete Hegseth told reporters at MacDill Air Force Base in Tampa, Fla. on Wednesday that “Central Command, will be busy tonight.”`\
 https://www.nytimes.com/video/us/100000010959098/pete-hegseth-strike-iran-wednesday-night.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/10/opinion/reading-books.html
 **Trump-Backed Air Force Veteran Wins Republican House Primary in Nevada**\
 `David Flippo won his party’s nomination for a safely Republican open seat, defeating a candidate backed by the G.O.P. governor.`\
 https://www.nytimes.com/2026/06/10/us/politics/flippo-trump-nevada-republicans-house.html
-
-**Tiny Love Stories: ‘The “Right” Answers in Life’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://www.nytimes.com/2026/06/10/style/tiny-modern-love-stories-the-right-answers-in-life.html
 
 **World Cup Updates: U.S. Immigration Policies Turn Some Fans and Participants Away**\
 `(No description)`\

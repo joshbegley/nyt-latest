@@ -1,3 +1,7 @@
+**Hegseth Says U.S. Will Attack Iran Wednesday Night**\
+`Secretary of Defense Pete Hegseth told reporters at MacDill Air Force Base in Tampa, Fla. on Wednesday that “Central Command, will be busy tonight.”`\
+https://www.nytimes.com/video/us/100000010959098/pete-hegseth-strike-iran-wednesday-night.html
+
 **Britain Is Weighing a Social Media Ban for Children. How Did It Get Here?**\
 `Months after Australia banned social media for everyone under 16, the British government is considering new policies to keep children safe online.`\
 https://www.nytimes.com/2026/06/10/world/europe/uk-social-media-ban-under-16.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/10/us/politics/flippo-trump-nevada-republicans-h
 **Tiny Love Stories: ‘The “Right” Answers in Life’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/06/10/style/tiny-modern-love-stories-the-right-answers-in-life.html
-
-**Inflation Jumps as Iran War Intensifies Price Squeeze**\
-`Consumer prices rose at a faster rate for a third-straight month in May, to 4.2 percent annually, as the energy shock put more pressure on the U.S. economy.`\
-https://www.nytimes.com/live/2026/06/10/business/inflation-report-cpi
 
 **World Cup Updates: U.S. Immigration Policies Turn Some Fans and Participants Away**\
 `(No description)`\
