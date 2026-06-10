@@ -1,3 +1,11 @@
+**Pro-Palestinian Activists at U. of Michigan Indicted on Federal Conspiracy Charges**\
+`Federal prosecutors said the actions of eight demonstrators crossed the line into threats and vandalism.`\
+https://www.nytimes.com/2026/06/10/us/university-michigan-pro-palestinian-activists-indicted.html
+
+**My Father Abused My Sister When We Were Kids. Should I Tell My Half Siblings?**\
+`I want them to grasp the differences between the two families he created.`\
+https://www.nytimes.com/2026/06/10/magazine/father-abuse-half-siblings-ethics.html
+
 **Soccer Referee Receives Hero’s Welcome in Somalia After U.S. Denies Him Entry**\
 `Omar Abdulkadir Artan was admired in Somalia long before he was selected to be the first Somali referee at the World Cup. After being denied entry into the U.S. to participate as a referee in the World Cup, Artan received a hero’s welcome upon returning home on Wednesday.`\
 https://www.nytimes.com/video/sports/soccer/100000010957547/omar-abdulkadir-artan-welcome-somalia-world-cup-ban.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/10/nyregion/central-park-carriage-horse-dead.htm
 **Stocks Sink and Oil Jumps After Wave of Strikes Across Middle East**\
 `The attacks, which strained a two-month cease-fire between Iran and the United States, were the latest jolt to energy markets.`\
 https://www.nytimes.com/2026/06/10/business/oil-stocks-gas-prices-iran.html
-
-**Severe Storms Forecast: Illinois, Wisconsin, Minnesota and Iowa Could See Tornadoes Today**\
-`A large area that includes Chicago, Minneapolis, Kansas City and Milwaukee is at risk of tornadoes and strong winds as storms move through.`\
-https://www.nytimes.com/2026/06/10/weather/chicago-minneapolis-storms-tornadoes-midwest.html
-
-**Night of Violence Grips Belfast After Stabbing Attack**\
-`Cars and a bus were set on fire and families were driven from their homes as the stabbing attack caused tensions to spill onto the streets.`\
-https://www.nytimes.com/2026/06/10/world/europe/belfast-attack-riots-northern-ireland.html
 
