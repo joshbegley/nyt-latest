@@ -1,3 +1,7 @@
+**Disorder Breaks Out After Belfast Knife Attack**\
+`People took to the streets of Belfast on Tuesday after a suspect, who the police said was a 30-year-old Sudanese man, was charged with attempted murder over a knife attack.`\
+https://www.nytimes.com/video/world/europe/100000010957250/belfast-ireland-riots-protests-knife-attack.html
+
 **¿Por qué bajan las tasas de natalidad? Los celulares podrían ser responsables**\
 `Los celulares inteligentes salieron al mercado en 2007, el año en que las tasas de fertilidad empezaron a bajar. Dos estudios dicen que no es una coincidencia.`\
 https://www.nytimes.com/es/2026/06/10/espanol/estados-unidos/celulares-baja-natalidad.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/09/nyregion/taliban-leader-american-journalist-s
 **Air Canada Pilot Accused of Flying for 17 Years Without Proper License**\
 `The pilot, who retired last year before the investigation, held some valid flight credentials, officials said, but not the one required to be a captain.`\
 https://www.nytimes.com/2026/06/09/world/canada/air-canada-pilot-fraud.html
-
-**When to Expect Results in Maine, Nevada and Beyond**\
-`Four states have primaries on Tuesday. Election officials predict most results will come in late in the evening, though mail-in ballots may delay things.`\
-https://www.nytimes.com/2026/06/09/us/politics/election-results-timing-tonight-when.html
 
