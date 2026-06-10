@@ -183,7 +183,7 @@ https://www.nytimes.com/2026/06/09/us/politics/blanche-trump-justice-department-
 https://www.nytimes.com/2026/06/09/well/fda-sunscreen-bemotrizinol-approval.html
 
 **For Nearly 150 Years, Parking Has Driven New Yorkers to the Brink**\
-`From court cases to political scandals to murder, the city has long been racked with conflict over what to do with cars when they’re not being driven.`\
+`From court cases to political scandal to murder, the city has long been racked with conflict over what to do with cars when they’re not being driven.`\
 https://www.nytimes.com/interactive/2026/06/09/nyregion/nyc-parking-cars-history.html
 
 **This Parking Spot Is Free. Should It Be?**\
