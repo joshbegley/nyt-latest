@@ -1,3 +1,7 @@
+**The Good List: 6 Things to Add Joy to Your Day**\
+`Dancing pigeons, mystery stew and a nostalgia machine.`\
+https://www.nytimes.com/2026/06/10/briefing/the-good-list-pigeons-knicks.html
+
 **Texas Governor Seeks New Limits on Data Centers**\
 `Gov. Greg Abbott is urging tighter controls and a repeal of financial incentives for data centers, which have drawn complaints in rural Republican areas of Texas.`\
 https://www.nytimes.com/2026/06/10/us/texas-abbott-data-centers-regulation.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/10/style/backrooms-gen-z-anxiety.html
 **These Cold Peanut Noodles Are for Ginger Lovers**\
 `There’s grated ginger in the spicy-savory sauce, and chopped crystallized ginger in the noodle-cucumber-scallion mix for chew and sweetness.`\
 https://www.nytimes.com/2026/06/10/dining/these-cold-peanut-noodles-are-for-ginger-lovers.html
-
-**Do Women Really Need a Menopause Workout?**\
-`A new wave of fitness programs claim to be specifically tailored for midlife. Here’s what to know about them.`\
-https://www.nytimes.com/2026/06/10/well/move/menopause-workouts-exercises.html
 
 **Inflation Jumps as Iran War Intensifies Price Squeeze**\
 `Consumer prices rose at a faster rate for a third-straight month in May, to 4.2 percent annually, as the energy shock put more pressure on the U.S. economy.`\
