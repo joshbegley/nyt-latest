@@ -1,3 +1,7 @@
+**Jimmy Kimmel Calls a Technical Foul on Trump’s Apparent Game 3 Nap**\
+`The late night host called Trump “the first sitting president to shut down a major United States city so he could take a nap in front of a sold-out crowd at the N.B.A. finals.”`\
+https://www.nytimes.com/2026/06/10/arts/television/late-night-trump-nba-finals.html
+
 **The Global Bull Market That A.I. Obscures**\
 `The rest of the world has been writing one of the more remarkable chapters in modern financial history — and many have hardly noticed.`\
 https://www.nytimes.com/2026/06/10/opinion/global-bull-market-ai.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/09/us/camp-east-montana-texas-ice-detention-gao-
 **Son of Author Michael Chabon Pleads Guilty to Choking Charge**\
 `Abraham Chabon’s plea resolves a case in which he initially faced a rape charge that prosecutors later dropped for lack of proof.`\
 https://www.nytimes.com/2026/06/09/nyregion/abraham-chabon-choking-charge.html
-
-**John Basinger, Who Memorized All 12 Books of ‘Paradise Lost,’ Dies at 92**\
-`After nearly nine years of practice, he made John Milton’s epic poem vividly dramatic for audiences and inspired a study of his “memory virtuosity.”`\
-https://www.nytimes.com/2026/06/09/arts/john-basinger-dead.html
 
 **Graham Platner Wins Primary in Maine, Setting Up a Key Senate Fight**\
 `In South Carolina, Senator Lindsey Graham fended off a Republican challenger and avoided a runoff. Nevada and North Dakota also held primaries.`\
