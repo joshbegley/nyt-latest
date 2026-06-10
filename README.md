@@ -126,7 +126,7 @@ https://www.nytimes.com/2026/06/10/world/americas/argentina-world-cup-sticker-al
 `Fans want to support their team, but they’re not willing to squelch their sense of style.`\
 https://www.nytimes.com/2026/06/10/style/knicks-fans-msg-nba-finals-fashion.html
 
-**‘Clumsy Diplomacy': Inside the U.S.-Kenya Feud Over an Ebola Camp**\
+**‘Clumsy Diplomacy’: Inside the U.S.-Kenya Feud Over an Ebola Camp**\
 `Hundreds of Kenyans have marched through the streets to oppose a quarantine facility that would be reserved exclusively for American patients.`\
 https://www.nytimes.com/2026/06/10/world/africa/ebola-kenya-us-protests.html
 
