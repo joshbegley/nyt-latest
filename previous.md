@@ -1,3 +1,7 @@
+**Live Updates: Knicks in 5? New Yorkers Brace for Pivotal N.B.A. Finals Game**\
+`The New York Knicks lead the best-of-seven series two games to one, but a loss to the San Antonio Spurs on Monday put a pause on the party. Across the city, fans are gathering to summon more good vibes.`\
+https://www.nytimes.com/live/2026/06/10/nyregion/nba-finals-knicks-spurs
+
 **Unusually Warm Weather in Bay Area Prompts Heat Alert and Wildfire Concerns**\
 `High temperatures across the San Francisco Bay Area will reach into the 90s on Thursday, forecasters said.`\
 https://www.nytimes.com/2026/06/10/weather/san-francisco-heat-fire.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/10/us/tyler-mane-male-breast-cancer.html
 **Indonesian Military Court Sentences Four in Acid Attack on Rights Advocate**\
 `The victim is an outspoken critic of Indonesia’s powerful military, and military prosecutors took over the case despite his objections.`\
 https://www.nytimes.com/2026/06/10/world/asia/indonesia-military-acid-attack-andrie.html
-
-**En vísperas de la Copa Mundial, la política migratoria de EE. UU. deja a algunos fuera**\
-`Algunos aficionados y participantes que esperaban viajar para el Mundial se han quejado de las restrictivas normas para visitar uno de los países anfitriones.`\
-https://www.nytimes.com/es/2026/06/10/espanol/mundo/mundial-migracion.html
 
 **World Cup Updates: U.S. Immigration Policies Turn Some Fans and Participants Away**\
 `(No description)`\

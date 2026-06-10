@@ -1,3 +1,7 @@
+**Live Updates: Knicks in 5? New Yorkers Brace for Pivotal N.B.A. Finals Game**\
+`The New York Knicks lead the best-of-seven series two games to one, but a loss to the San Antonio Spurs on Monday put a pause on the party. Across the city, fans are gathering to summon more good vibes.`\
+https://www.nytimes.com/live/2026/06/10/nyregion/nba-finals-knicks-spurs
+
 **Unusually Warm Weather in Bay Area Prompts Heat Alert and Wildfire Concerns**\
 `High temperatures across the San Francisco Bay Area will reach into the 90s on Thursday, forecasters said.`\
 https://www.nytimes.com/2026/06/10/weather/san-francisco-heat-fire.html
