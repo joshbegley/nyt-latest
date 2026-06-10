@@ -1,3 +1,71 @@
+**Somali World Cup Referee Denied Entry to U.S. Returns Home to Hero’s Welcome**\
+`Omar Abdulkadir Artan, who is widely admired in his home country, would have been the first Somali to referee a World Cup game.`\
+https://www.nytimes.com/2026/06/10/world/africa/somalia-referee-world-cup-artan.html
+
+**Markets Brace for an Inflation Surprise**\
+`New data is putting investors on edge, especially over the prospect that the Federal Reserve may raise interest rates to blunt rising prices.`\
+https://www.nytimes.com/2026/06/10/business/dealbook/cpi-inflation-surprise.html
+
+**Cyera, a Cybersecurity Start-up for the A.I. Era, Raises $600 Million**\
+`The five-year-old company is now valued at $12 billion.`\
+https://www.nytimes.com/2026/06/10/business/dealbook/cyera-ai-cybersecurity-funding.html
+
+**Inflation Accelerates to Fastest Pace in 3 Years as Energy Prices Bite**\
+`Companies appear hesitant to pass those price increases on to weary consumers, whose wages aren’t keeping up.`\
+https://www.nytimes.com/2026/06/10/business/economy/inflation-consumer-price-index.html
+
+**You Asked**\
+`We’re answering reader questions.`\
+https://www.nytimes.com/2026/06/10/briefing/reader-questions-answers.html
+
+**The Iran War’s Devastating Butterfly Effect**\
+`The effective closure of the Strait of Hormuz has increased the prices of critical goods as hunger rises in scores of poor and unstable countries.`\
+https://www.nytimes.com/2026/06/10/podcasts/the-daily/the-iran-wars-aid-cuts-somalia.html
+
+**NYT Connections Answers for June 11, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, June 11, 2026.`\
+https://www.nytimes.com/2026/06/10/crosswords/connections-companion-1096.html
+
+**NYT Strands Hints for June 11, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, June 11, 2026.`\
+https://www.nytimes.com/2026/06/10/crosswords/strands-sidekick-830.html
+
+**Today’s Wordle Hints for June 11, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, June 11, 2026.`\
+https://www.nytimes.com/2026/06/10/crosswords/wordle-review-1818.html
+
+**Stray Drones Are Setting Off Alarms in Europe, and the U.S. Deports a World Cup Referee**\
+`Plus, why Americans are clamoring for European sunscreen.`\
+https://www.nytimes.com/2026/06/10/podcasts/the-headlines/europe-drones-world-cup-referee.html
+
+**Pope Leo Is Blessing the Sagrada Familia in Barcelona. To Some, the Church Is a Curse.**\
+`The pontiff will offer a Mass in Antoni Gaudí’s iconic, unfinished basilica during his Spain trip. But for some Barcelona residents, completing the construction could mean knocking down their homes.`\
+https://www.nytimes.com/2026/06/10/world/europe/pope-leo-sagrada-familia-barcelona-visit.html
+
+**El giro radical de Trump respecto a China: aceptarla como una potencia igual**\
+`El acercamiento del presidente Trump a Xi Jinping, de China, un líder al que admira, ha despertado inquietudes en Washington y en toda Asia.`\
+https://www.nytimes.com/es/2026/06/10/espanol/mundo/trumps-china-taiwan.html
+
+**Carriage Horse Dies in Central Park After Medical Episode, Police Say**\
+`The death of a 16-year-old male named Deniz quickly added fuel to a running debate over whether New York City should ban horse-drawn carriages.`\
+https://www.nytimes.com/2026/06/10/nyregion/central-park-carriage-horse-dead.html
+
+**Oil Rises on Trump’s Iran Threats and New Strikes Across Middle East**\
+`The attacks, which strained a two-month cease-fire between Iran and the United States, were the latest jolt to energy markets.`\
+https://www.nytimes.com/2026/06/10/business/oil-stocks-gas-prices-iran.html
+
+**Severe Storms Forecast: Illinois, Wisconsin, Minnesota and Iowa Could See Tornadoes Today**\
+`A large area that includes Chicago and Milwaukee is at risk of tornadoes and strong winds as storms move through.`\
+https://www.nytimes.com/2026/06/10/weather/chicago-minneapolis-storms-tornadoes-midwest.html
+
+**Night of Violence Grips Belfast After Stabbing Attack**\
+`Cars and a bus were set on fire and families were driven from their homes after a stabbing caused tensions to spill onto the streets.`\
+https://www.nytimes.com/2026/06/10/world/europe/belfast-attack-riots-northern-ireland.html
+
+**El entusiasmo por el álbum Panini revive en cada Mundial de fútbol**\
+`Los álbumes de cromos del Mundial han cautivado a niños y adultos en Argentina, en una fiebre coleccionista que parece inmune a la revolución digital.`\
+https://www.nytimes.com/es/2026/06/10/espanol/america-latina/album-panini-cromos.html
+
 **Noma Will Reopen With René Redzepi as Creative Director**\
 `After reports of abuse in decades past and a pop-up in Los Angeles, the former “Best Restaurant in the World” returns to Copenhagen.`\
 https://www.nytimes.com/2026/06/10/dining/noma-reopening-copenhagen-rene-redzepi.html
