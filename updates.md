@@ -1,3 +1,7 @@
+**Stocks Sink and Oil Wavers After Wave of Strikes Across Middle East**\
+`The attacks, which strained a two-month cease-fire between Iran and the United States, were the latest jolt to energy markets.`\
+https://www.nytimes.com/2026/06/10/business/oil-stocks-gas-prices-iran.html
+
 **The Iran War’s Devastating Butterfly Effect**\
 `The effective closure of the Strait of Hormuz has increased the prices of critical goods as hunger rises in scores of poor and unstable countries.`\
 https://www.nytimes.com/2026/06/10/podcasts/the-daily/the-iran-wars-aid-cuts-somalia.html
