@@ -1,3 +1,7 @@
+**SpaceX’s IPO Will Turn 4,400 Employees Into Millionaires**\
+`While Elon Musk may soon become a trillionaire, his rocket company’s market debut is set to the change the lives of its current and former employees, too.`\
+https://www.nytimes.com/2026/06/10/technology/spacex-ipo-employee-millionaires.html
+
 **Federal Judge Blocks Alabama From Using Nitrogen Gas in Jeffrey Lee Execution**\
 `The judge ordered the state to find an alternate method if it is going to move ahead with the execution of Jeffery Lee, who was convicted of murder.`\
 https://www.nytimes.com/2026/06/10/us/alabama-execution-nitrogen-gas.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/10/arts/television/widows-bay-review.html
 **100 Guitars’ Worth of Glenn Branca’s Violent Ecstasy**\
 `At Lincoln Center, the guitarist Reg Bloor, Branca’s widow, will conduct his music for the first time: “Symphony No. 13 (Hallucination City) for 100 Guitars.”`\
 https://www.nytimes.com/2026/06/10/arts/music/glenn-branca-100-guitars-reg-bloor.html
-
-**A Street Called Jimi Hendrix Way**\
-`Today brings changes to New York’s cityscape, including 900 candelabras at Lincoln Center and a co-name for West Eighth Street.`\
-https://www.nytimes.com/2026/06/10/nyregion/a-street-called-jimi-hendrix-way.html
 
