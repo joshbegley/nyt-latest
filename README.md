@@ -1,3 +1,7 @@
+**Nevada Attorney General Wins Democratic Nomination for Governor**\
+`Aaron Ford easily outpaced a Washoe County commissioner, Alexis Hill, for the nod to take on Gov. Joe Lombardo in November.`\
+https://www.nytimes.com/2026/06/09/us/politics/nevada-governor-primary.html
+
 **Republican Primary for Open Congressional Seat in South Carolina Heads to Runoff**\
 `The largely coastal district has voted overwhelmingly Republican in recent elections. Representative Nancy Mace ran unsuccessfully for governor instead of seeking re-election to the seat.`\
 https://www.nytimes.com/2026/06/09/us/politics/jenny-honeycutt-mace-south-carolina.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/06/09/nyregion/nyc-parking-cars-history
 **This Parking Spot Is Free. Should It Be?**\
 `There are about three million parking spaces in New York City, but drivers are always struggling to find one that’s open. Can the system be fixed?`\
 https://www.nytimes.com/interactive/2026/06/09/nyregion/nyc-street-parking.html
-
-**Tensions Flare in the Middle East as Cease-Fire Falters**\
-`President Trump blamed Iran for shooting down a U.S. helicopter near the Strait of Hormuz and vowed to retaliate, while Israel launched a new wave of strikes on southern Lebanon on Tuesday.`\
-https://www.nytimes.com/video/world/middleeast/100000010954773/lebanon-israeli-strikes-trump-iran-helicopter.html
 
