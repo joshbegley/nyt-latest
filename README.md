@@ -1,3 +1,7 @@
+**Inflation Keeps Prospects of a Fed Rate Cut Low**\
+`The Consumer Price Index is one of the last major data releases ahead Kevin M. Warsh’s first meeting as chair of the Federal Reserve.`\
+https://www.nytimes.com/2026/06/10/business/economy/inflation-federal-reserve-interest-rates.html
+
 **Sailors Rescued After U.S. Missile Strikes Tanker Off Oman’s Coast**\
 `Indian sailors aboard a tanker that was struck by a U.S. missile sent distress calls for more than two hours before being rescued by the Omani military. U.S. Central Command said the ship was trying to sail to an Iranian port.`\
 https://www.nytimes.com/video/world/middleeast/100000010957544/indian-sailors-rescue-us-strike-tanker-oman.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/10/business/economy/back-office-workers-ai.html
 **Argentina’s World Cup Sticker Albums Are a Low-Tech Craze Immune to the Digital Revolution**\
 `World Cup sticker albums have captivated children and adults in Argentina, in a collecting fever that seems immune to the digital revolution.`\
 https://www.nytimes.com/2026/06/10/world/americas/argentina-world-cup-sticker-albums.html
-
-**For the NBA Finals, These Knicks Fans Show Out in Style**\
-`Fans want to support their team, but they’re not willing to squelch their sense of style.`\
-https://www.nytimes.com/2026/06/10/style/knicks-fans-msg-nba-finals-fashion.html
 
