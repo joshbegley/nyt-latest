@@ -1,3 +1,7 @@
+**Senior Russian Military Official Is Killed in Car Explosion Near Moscow**\
+`The death of the officer appeared to add to a string of targeted assassinations of high-profile opponents of Ukraine inside Russia.`\
+https://www.nytimes.com/2026/06/10/world/europe/russia-moscow-car-bomb.html
+
 **Sailors Rescued After U.S. Missile Strikes Tanker Off Oman’s Coast**\
 `Indian sailors aboard a tanker that was struck by a U.S. missile sent distress calls for more than two hours before being rescued by the Omani military. U.S. Central Command said the ship was trying to sail to an Iranian port.`\
 https://www.nytimes.com/video/world/middleeast/100000010957544/indian-sailors-rescue-us-strike-tanker-oman.html
