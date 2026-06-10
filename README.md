@@ -1,3 +1,11 @@
+**Strict Security Around MSG Is Back for Knicks Game 4**\
+`Several blocks around Madison Square Garden will be closed to most people Wednesday afternoon, but a watch party will be allowed. The Garden is not happy about the extra restrictions.`\
+https://www.nytimes.com/2026/06/10/nyregion/knicks-security-game-4-msg.html
+
+**White House Again Shrugs Off High Prices Amid War With Iran**\
+`As inflation outpaces workers’ wages, the Trump administration insists that its agenda is working.`\
+https://www.nytimes.com/2026/06/10/business/economy/white-house-again-shrugs-off-high-prices-amid-war-with-iran.html
+
 **The Violence Decline Isn’t Evenly Distributed**\
 `Our colleagues at Chalkbeat Philadelphia dive into the numbers.`\
 https://www.nytimes.com/2026/06/10/headway/shootings-youth-violence-prevention-philadelphia.html
@@ -186,15 +194,7 @@ https://www.nytimes.com/2026/06/10/business/dealbook/cpi-inflation-surprise.html
 `The five-year-old company is now valued at $12 billion.`\
 https://www.nytimes.com/2026/06/10/business/dealbook/cyera-ai-cybersecurity-funding.html
 
-**Inflation Accelerates to Fastest Pace in 3 Years as Energy Prices Bite**\
-`Companies appear hesitant to pass those price increases on to weary consumers, whose wages aren’t keeping up.`\
-https://www.nytimes.com/2026/06/10/business/economy/inflation-consumer-price-index.html
-
 **Inflation Jumps as Iran War Intensifies Price Squeeze**\
 `Consumer prices rose at a faster rate for a third-straight month in May, to 4.2 percent annually, as the energy shock put more pressure on the U.S. economy.`\
 https://www.nytimes.com/live/2026/06/10/business/inflation-report-cpi
-
-**You Asked**\
-`We’re answering reader questions.`\
-https://www.nytimes.com/2026/06/10/briefing/reader-questions-answers.html
 

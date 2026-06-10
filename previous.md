@@ -1,3 +1,11 @@
+**The Violence Decline Isn’t Evenly Distributed**\
+`Our colleagues at Chalkbeat Philadelphia dive into the numbers.`\
+https://www.nytimes.com/2026/06/10/headway/shootings-youth-violence-prevention-philadelphia.html
+
+**Read the Charges Against 8 People Connected to the University of Michigan**\
+`The federal charges include conspiracy to transmit threats and witness intimidation.`\
+https://www.nytimes.com/interactive/2026/06/10/us/federal-charges-university-of-michigan-pro-palestinian-protest.html
+
 **Trump Says He May Not Renew Canada-Mexico Trade Deal**\
 `The president’s comments come at a crucial moment in talks between the three countries over the renewal of their free-trade agreement.`\
 https://www.nytimes.com/2026/06/10/world/canada/trump-canada-mexico-trade-deal-usmca.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/live/2026/06/10/business/inflation-report-cpi
 **You Asked**\
 `We’re answering reader questions.`\
 https://www.nytimes.com/2026/06/10/briefing/reader-questions-answers.html
-
-**The Iran War’s Devastating Butterfly Effect**\
-`The effective closure of the Strait of Hormuz has increased the prices of critical goods as hunger rises in scores of poor and unstable countries.`\
-https://www.nytimes.com/2026/06/10/podcasts/the-daily/the-iran-wars-aid-cuts-somalia.html
-
-**NYT Connections Answers for June 11, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, June 11, 2026.`\
-https://www.nytimes.com/2026/06/10/crosswords/connections-companion-1096.html
 
