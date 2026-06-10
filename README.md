@@ -1,3 +1,11 @@
+**Cyera, a Cybersecurity Start-up for the A.I. Era, Raises $600 Million**\
+`The five-year-old company is now valued at $12 billion.`\
+https://www.nytimes.com/2026/06/10/business/dealbook/cyera-ai-cybersecurity-funding.html
+
+**Live Updates: Inflation Pressures Intensify as Iran War Chokes Energy Supplies**\
+`The Consumer Price Index for May will offer the latest look at how reduced oil and gas shipments have raised the costs of everyday goods and services for U.S. households.`\
+https://www.nytimes.com/live/2026/06/10/business/inflation-report-cpi
+
 **You Asked**\
 `We’re answering reader questions.`\
 https://www.nytimes.com/2026/06/10/briefing/reader-questions-answers.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/10/magazine/trump-epstein-files-white-house-vanc
 **You Love Your Native Garden. But Will Buyers Love It Too?**\
 `For homeowners who have ‘rewilded’ their gardens into mini nature preserves, a moment of truth arrives when they prepare to sell.`\
 https://www.nytimes.com/2026/06/10/realestate/you-love-your-native-garden-but-will-buyers-love-it-too.html
-
-**How Trump’s Team Navigated the Epstein Files Without Him**\
-`President Trump’s advisers gathered in secret in the Situation Room without him as they struggled to handle the Epstein files scandal, our reporters Maggie Haberman and Jonathan Swan learned while researching their book, “Regime Change.” Here’s the inside story.`\
-https://www.nytimes.com/video/us/politics/100000010947363/how-trump-administration-handled-epstein-files.html
-
-**A Bewildering Bejeweled Has Kafka’s Fingerprints**\
-`Both “The Trial” and Titanium Court, a lauded Match-3 game, trade in the frustration of a system of nonsensical rules.`\
-https://www.nytimes.com/2026/06/10/arts/titanium-court-kafka-trial.html
 
