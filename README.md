@@ -1,3 +1,11 @@
+**The Maine Senate Race Ramps Up, With Trump Offering Color Commentary**\
+`With Graham Platner now the Democratic nominee against Senator Susan Collins, signs of how hostile the race will be have quickly emerged.`\
+https://www.nytimes.com/2026/06/10/us/politics/maine-senate-graham-platner-susan-collins.html
+
+**A ‘Sultry’ Shift: Heat Creeps Into the Northeast**\
+`Soupy, hot weather will settle into the Northeast on Thursday and Friday, bringing with it the threat of dangerous storms.`\
+https://www.nytimes.com/2026/06/10/weather/heat-wave-us.html
+
 **Democrats Try to Move Past ‘Cultural Pandering’ to Latinos for Midterm Elections**\
 `The party is trying desperately to win back some voters in the key swing group.`\
 https://www.nytimes.com/2026/06/10/us/politics/latino-voters-democrats-elections.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/06/10/world/canada/trump-canada-mexico-trade-deal-u
 **Antonio Gracias, Elon Musk’s Friend, Is Set to Reap Billions From SpaceX’s IPO**\
 `Antonio Gracias, an investor who has built a $65 billion stake in the company, exemplifies the economic upside of being Mr. Musk’s ally.`\
 https://www.nytimes.com/2026/06/10/technology/antonio-gracias-elon-musk-spacex.html
-
-**Cultivating a New Generation of Readers and a Love of Books**\
-`Readers respond to “Make America Read Again,” an Opinion guest essay by Brian Bannon. Also: Choosing Graham Platner; fading bank tellers.`\
-https://www.nytimes.com/2026/06/10/opinion/reading-books.html
-
-**Trump-Backed Air Force Veteran Wins Republican House Primary in Nevada**\
-`David Flippo won his party’s nomination for a safely Republican open seat, defeating a candidate backed by the G.O.P. governor.`\
-https://www.nytimes.com/2026/06/10/us/politics/flippo-trump-nevada-republicans-house.html
 
 **World Cup Updates: U.S. Immigration Policies Turn Some Fans and Participants Away**\
 `(No description)`\
