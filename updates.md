@@ -1,3 +1,7 @@
+**Republicans in Maine Governor’s Race Head to Ranked-Choice Runoff**\
+`State election officials will confirm the winner in the next week or two, after a counting process that involves multiple rounds of elimination.`\
+https://www.nytimes.com/2026/06/10/us/politics/gop-runoff-maine-governor-race.html
+
 **Quote of the Day: A Mayor’s Line in the Sand to Be a Host: FIFA’s Request for a Soldier Field Dome**\
 `Quotation of the Day for Tuesday, June 10, 2026.`\
 https://www.nytimes.com/2026/06/10/pageoneplus/quote-of-the-day-a-mayors-line-in-the-sand-to-be-a-host-fifas-request-for-a-soldier-field-dome.html
