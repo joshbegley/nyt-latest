@@ -1,3 +1,35 @@
+**The Iran War’s Devastating Butterfly Effect**\
+`The effective closure of the Strait of Hormuz has increased the prices of critical goods as hunger rises in scores of poor and unstable countries.`\
+https://www.nytimes.com/2026/06/10/podcasts/the-daily/the-iran-wars-aid-cuts-somalia.html
+
+**NYT Connections Answers for June 11, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, June 11, 2026.`\
+https://www.nytimes.com/2026/06/10/crosswords/connections-companion-1096.html
+
+**NYT Strands Hints for June 11, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, June 11, 2026.`\
+https://www.nytimes.com/2026/06/10/crosswords/strands-sidekick-830.html
+
+**Today’s Wordle Hints for June 11, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, June 11, 2026.`\
+https://www.nytimes.com/2026/06/10/crosswords/wordle-review-1818.html
+
+**Stray Drones Are Setting Off Alarms in Europe, and the U.S. Deports a World Cup Referee**\
+`Plus, why Americans are clamoring for European sunscreen.`\
+https://www.nytimes.com/2026/06/10/podcasts/the-headlines/europe-drones-world-cup-referee.html
+
+**Pope Leo Is Blessing the Sagrada Familia in Barcelona. To Some, the Church Is a Curse.**\
+`The pontiff will offer a Mass in Antoni Gaudí’s iconic, unfinished basilica during his Spain trip. But for some Barcelona residents, completing the construction could mean knocking down their homes.`\
+https://www.nytimes.com/2026/06/10/world/europe/pope-leo-sagrada-familia-barcelona-visit.html
+
+**El giro radical de Trump respecto a China: aceptarla como una potencia igual**\
+`El acercamiento del presidente Trump a Xi Jinping, de China, un líder al que admira, ha despertado inquietudes en Washington y en toda Asia.`\
+https://www.nytimes.com/es/2026/06/10/espanol/mundo/trumps-china-taiwan.html
+
+**Carriage Horse Dies in Central Park After Medical Episode, Police Say**\
+`The death of a 16-year-old male named Deniz quickly added fuel to a running debate over whether New York City should ban horse-drawn carriages.`\
+https://www.nytimes.com/2026/06/10/nyregion/central-park-carriage-horse-dead.html
+
 **Oil Wavers and Stocks Sink After Wave of Strikes Across Middle East**\
 `The attacks, which strained a two-month cease-fire between Iran and the United States, were the latest jolt to energy markets.`\
 https://www.nytimes.com/2026/06/10/business/oil-stocks-gas-prices-iran.html

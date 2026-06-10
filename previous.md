@@ -1,3 +1,35 @@
+**The Iran War’s Devastating Butterfly Effect**\
+`The effective closure of the Strait of Hormuz has increased the prices of critical goods as hunger rises in scores of poor and unstable countries.`\
+https://www.nytimes.com/2026/06/10/podcasts/the-daily/the-iran-wars-aid-cuts-somalia.html
+
+**NYT Connections Answers for June 11, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, June 11, 2026.`\
+https://www.nytimes.com/2026/06/10/crosswords/connections-companion-1096.html
+
+**NYT Strands Hints for June 11, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, June 11, 2026.`\
+https://www.nytimes.com/2026/06/10/crosswords/strands-sidekick-830.html
+
+**Today’s Wordle Hints for June 11, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, June 11, 2026.`\
+https://www.nytimes.com/2026/06/10/crosswords/wordle-review-1818.html
+
+**Stray Drones Are Setting Off Alarms in Europe, and the U.S. Deports a World Cup Referee**\
+`Plus, why Americans are clamoring for European sunscreen.`\
+https://www.nytimes.com/2026/06/10/podcasts/the-headlines/europe-drones-world-cup-referee.html
+
+**Pope Leo Is Blessing the Sagrada Familia in Barcelona. To Some, the Church Is a Curse.**\
+`The pontiff will offer a Mass in Antoni Gaudí’s iconic, unfinished basilica during his Spain trip. But for some Barcelona residents, completing the construction could mean knocking down their homes.`\
+https://www.nytimes.com/2026/06/10/world/europe/pope-leo-sagrada-familia-barcelona-visit.html
+
+**El giro radical de Trump respecto a China: aceptarla como una potencia igual**\
+`El acercamiento del presidente Trump a Xi Jinping, de China, un líder al que admira, ha despertado inquietudes en Washington y en toda Asia.`\
+https://www.nytimes.com/es/2026/06/10/espanol/mundo/trumps-china-taiwan.html
+
+**Carriage Horse Dies in Central Park After Medical Episode, Police Say**\
+`The death of a 16-year-old male named Deniz quickly added fuel to a running debate over whether New York City should ban horse-drawn carriages.`\
+https://www.nytimes.com/2026/06/10/nyregion/central-park-carriage-horse-dead.html
+
 **Oil Wavers and Stocks Sink After Wave of Strikes Across Middle East**\
 `The attacks, which strained a two-month cease-fire between Iran and the United States, were the latest jolt to energy markets.`\
 https://www.nytimes.com/2026/06/10/business/oil-stocks-gas-prices-iran.html
@@ -165,36 +197,4 @@ https://www.nytimes.com/2026/06/10/arts/titanium-court-kafka-trial.html
 **A.I. Loves the Em Dash. What’s a Human Writer to Do?**\
 `Chatbots are appropriating our most common rhetorical tics. Yet when it comes to language, human creativity can’t be beat.`\
 https://www.nytimes.com/2026/06/10/books/review/em-dash-chatbot-human-language.html
-
-**Patti Smith, Jon Batiste and More Tell the History of SummerStage**\
-`Patti Smith, David Byrne, Youssou N’Dour and other artists remember the performances, chance meetings and rainouts of the concert series that has defined New York City summers.`\
-https://www.nytimes.com/2026/06/10/arts/music/summerstage-nyc-oral-history.html
-
-**A Catholic Mayor Commissioned Statues of Saints. Residents Revolted.**\
-`The mayor of Quincy, Mass., is being sued over 10-foot statues of two Catholic saints that he wants to install in front of a new public safety complex.`\
-https://www.nytimes.com/2026/06/10/us/quincy-mass-statues-koch-mayor.html
-
-**How Soccer’s Biggest Announcer Trains His Voice for the World Cup**\
-`You may not know the name Andrés Cantor, but chances are you’ve heard his voice. The Argentine sports broadcaster became a global sensation for his iconic “Goooooal!” call. As the world prepares for the World Cup, here’s a look at how Cantor gets his voice ready.`\
-https://www.nytimes.com/video/arts/100000010899460/andres-cantor-goal-world-cup.html
-
-**Book Review: ‘Cocked and Boozy,’ by Brooke Barbier**\
-`In her new history, “Cocked and Boozy,” Brooke Barbier illuminates the pervasive role that alcohol played throughout the colonial era.`\
-https://www.nytimes.com/2026/06/10/books/review/cocked-and-boozy-brooke-barbier.html
-
-**A Journey Along the Welsh Coastline for Castles, Hot Tubs and River Views**\
-`A Welsh writer’s trip hugs the coastline of Gwynedd, a land of castles, dramatic cliffs and wide river estuaries.`\
-https://www.nytimes.com/2026/06/10/travel/wales-coast-portmeirion-harlech-castle-halen-mon.html
-
-**7 Revolutionary-Era Bars That Are as Old as America**\
-`Taverns were important incubators of revolutionary fervor where patriots gathered to plot and gossip. Here are a few where you can still taste the spirit of 1776.`\
-https://www.nytimes.com/2026/06/10/travel/american-revolution-bars-places-to-drink.html
-
-**Visiting a Soldier’s Funeral in Ukraine**\
-`The New York Times reporter Kim Barker visited a church in Lviv, Ukraine, that holds military funerals at the same time each day.`\
-https://www.nytimes.com/video/world/100000010854469/visiting-a-soldiers-funeral-in-ukraine.html
-
-**In a New Memoir, Laverne Cox Takes on Her Demons**\
-`Her memoir follows the path from an abusive childhood to Hollywood stardom. But it’s being released amid a backlash over transgender rights that’s caught up to her, too.`\
-https://www.nytimes.com/2026/06/10/books/review/laverne-cox-transcendent-memoir.html
 
