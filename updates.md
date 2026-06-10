@@ -1,3 +1,11 @@
+**Suspect in the Killing of a Minnesota Lawmaker Strikes a Plea Deal**\
+`The arrangement means that Vance Boelter will not face the death penalty after being charged with killing Melissa Hortman and her husband, Mark.`\
+https://www.nytimes.com/2026/06/10/us/vince-boelter-plea-deal.html
+
+**U.S. Strikes Iran for Second Day, as War Heats Back Up**\
+`President Trump said that the Iranians were taking “too long to negotiate” a deal to end the conflict launched by the United States and Israel four months ago.`\
+https://www.nytimes.com/2026/06/10/world/middleeast/us-iran-strikes.html
+
 **Storms Knock Out Power for Hundreds of Thousands in the Midwest**\
 `Forecasters warned that destructive storms were expected across the region into Wednesday night.`\
 https://www.nytimes.com/2026/06/10/weather/storms-illinois-wisconsin-tornado-power-outages.html

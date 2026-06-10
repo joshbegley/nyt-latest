@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/06/10/technology/president-trump-americans-sharing-
 `Also, inflation jumps for a third-straight month. Here’s the latest at the end of Wednesday.`\
 https://www.nytimes.com/2026/06/10/briefing/inflation-rises-us-iran-strikes.html
 
-**Suspect in Killing of Minnesota Lawmaker Strikes a Plea Deal**\
+**Suspect in the Killing of a Minnesota Lawmaker Strikes a Plea Deal**\
 `The arrangement means that Vance Boelter will not face the death penalty after being charged with killing Melissa Hortman and her husband, Mark.`\
 https://www.nytimes.com/2026/06/10/us/vince-boelter-plea-deal.html
 
@@ -118,8 +118,8 @@ https://www.nytimes.com/2026/06/10/us/texas-abbott-data-centers-regulation.html
 `Mayor Zohran Mamdani paid roughly $1,000 for a standing-room-only ticket to Game 3 of the N.B.A. finals, using access to house tickets not available to regular fans.`\
 https://www.nytimes.com/2026/06/10/nyregion/mamdani-knicks-ticket-garden.html
 
-**Trump Threatens More Strikes Against Iran, Citing Stalled Peace Talks**\
-`With no end to the turmoil in the Middle East, the U.N. secretary general lamented that a cease-fire had become “more like a lesser-fire.”`\
+**U.S. Strikes Iran for Second Day, as War Heats Back Up**\
+`President Trump said that the Iranians were taking “too long to negotiate” a deal to end the conflict launched by the United States and Israel four months ago.`\
 https://www.nytimes.com/2026/06/10/world/middleeast/us-iran-strikes.html
 
 **Hong Kong Files Charges Over Fire That Killed 168 People**\
