@@ -42,7 +42,7 @@ https://www.nytimes.com/2026/06/10/technology/spacex-ipo-employee-millionaires.h
 `The judge ordered the state to find an alternate method if it is going to move ahead with the execution of Jeffery Lee, who was convicted of murder.`\
 https://www.nytimes.com/2026/06/10/us/alabama-execution-nitrogen-gas.html
 
-**Americans Are Paying More to Travel This Summer**\
+**Latest Inflation Data Shows Airline Ticket Prices Up 27% From Last Year**\
 `Airfares shot up 27 percent from a year earlier in the latest inflation data.`\
 https://www.nytimes.com/2026/06/10/business/economy/americans-travel-expensive.html
 
