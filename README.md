@@ -1,6 +1,6 @@
 **Noma Will Reopen With René Redzepi as Creative Director**\
 `After reports of abuse in decades past and a pop-up in Los Angeles, the former “Best Restaurant in the World” returns to Copenhagen.`\
-https://www.nytimes.com/2026/06/10/dining/noma-reopening-copenhagen.html
+https://www.nytimes.com/2026/06/10/dining/noma-reopening-copenhagen-rene-redzepi.html
 
 **El secretario de Defensa de EE. UU. visita Guantánamo**\
 `El viaje del secretario Pete Hegseth se produce en un momento en que el gobierno de Trump presiona para que se produzcan cambios políticos y económicos en Cuba.`\
