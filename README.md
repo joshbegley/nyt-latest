@@ -1,3 +1,7 @@
+**Navy Admiral Fired by Hegseth Wins Democratic Nomination to Replace Mace**\
+`Nancy Lacore would face a tough fall election in a district drawn in 2021 to be more Republican. She is seeking to replace Representative Nancy Mace, who ran unsuccessfully for governor instead of running for re-election.`\
+https://www.nytimes.com/2026/06/09/us/politics/nancy-lacore-mace-south-carolina.html
+
 **Majority of City Council Members Urge Mamdani to Pause A.I. in Schools**\
 `The demand from 29 members comes as the Department of Education is updating its guidance for how teachers should use the technology in their work and classrooms.`\
 https://www.nytimes.com/2026/06/09/nyregion/nyc-schools-council-members-ai-ban.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-nevada-us-house-2-
 **South Carolina Sixth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 South Carolina primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-us-house-6-primary.html
-
-**Nevada Fourth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Nevada primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-nevada-us-house-4-primary.html
 
