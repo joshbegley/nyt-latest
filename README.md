@@ -1,3 +1,11 @@
+**Trump Officials Say ICE Won’t Raid World Cup Games, but Fans Are Worried**\
+`Federal agents are there for security, not immigration enforcement, officials say. But trust is fragile after the administration’s recent crackdowns.`\
+https://www.nytimes.com/2026/06/10/us/world-cup-ice-immigration-enforcement.html
+
+**A.I. Chatbot Helps a $100 Thrift Store Painting Sell for Over $250,000**\
+`When a son got curious about the origins of a painting his mother bought at a secondhand shop decades ago, Google Gemini had some intriguing thoughts.`\
+https://www.nytimes.com/2026/06/10/arts/design/ai-gemini-thrift-store-painting-sale.html
+
 **Southern Baptists Move to Strengthen Ban on Women Pastors**\
 `The amendment passed easily at the denomination’s annual gathering. It needs approval again next year to enter the constitution.`\
 https://www.nytimes.com/2026/06/10/us/sbc-southern-baptist-convention.html
@@ -158,7 +166,7 @@ https://www.nytimes.com/2026/06/10/well/move/menopause-workouts-exercises.html
 `More than 5 percent of the species is estimated to have been lost when a climate-fueled storm unleashed torrents of water, mud and debris.`\
 https://www.nytimes.com/2026/06/10/climate/indonesia-floods-organgutans.html
 
-**SpaceX’s IPO Will Turn 4,400 Employees Into Millionaires**\
+**SpaceX’s IPO Could Turn 4,400 Employees Into Millionaires**\
 `While Elon Musk may soon become a trillionaire, his rocket company’s market debut is set to the change the lives of its current and former employees, too.`\
 https://www.nytimes.com/2026/06/10/technology/spacex-ipo-employee-millionaires.html
 
@@ -171,7 +179,7 @@ https://www.nytimes.com/2026/06/10/us/alabama-execution-nitrogen-gas.html
 https://www.nytimes.com/2026/06/10/business/economy/americans-travel-expensive.html
 
 **Inflation Keeps Prospects of a Fed Rate Cut Low**\
-`The Consumer Price Index is one of the last major data releases ahead Kevin M. Warsh’s first meeting as chair of the Federal Reserve.`\
+`The Consumer Price Index is one of the last major data releases ahead of Kevin M. Warsh’s first meeting as chair of the Federal Reserve.`\
 https://www.nytimes.com/2026/06/10/business/economy/inflation-federal-reserve-interest-rates.html
 
 **Sailors Rescued After U.S. Missile Strikes Tanker Off Oman’s Coast**\
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/10/theater/under-the-shadow-almeida-theater-lond
 **Hong Kong Charges 7 People and 2 Companies Over Deadly Apartment Fire**\
 `The 25 charges include manslaughter and conspiracy. They are the first to emerge from a monthslong investigation into a blaze that killed 168 people.`\
 https://www.nytimes.com/2026/06/10/world/asia/hong-kong-apartment-fire-charges.html
-
-**They Tracked Fitness, Food and Sleep Obsessively. Now They’re Tuning Out.**\
-`As some online lean into biohacking and wellness metrics, reformed optimizers are canceling Pilates and having that extra glass of wine.`\
-https://www.nytimes.com/2026/06/10/style/biohacking-fitness-tracking-fitbit-whoop.html
-
-**Diljeet Dosanjh Taylor, B.Y.U. Track Coach, Won’t Change for Her ‘Haters’**\
-`Diljeet Dosanjh Taylor, an outspoken feminist in Mormon country, has helped make Brigham Young University into a running powerhouse.`\
-https://www.nytimes.com/2026/06/10/style/diljeet-taylor-byu-track-coach.html
 
 **Inflation Jumps as Iran War Intensifies Price Squeeze**\
 `Consumer prices rose at a faster rate for a third-straight month in May, to 4.2 percent annually, as the energy shock put more pressure on the U.S. economy.`\
