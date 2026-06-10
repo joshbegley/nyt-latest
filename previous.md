@@ -1,3 +1,19 @@
+**Quote of the Day: A Mayor’s Line in the Sand to Be a Host: FIFA’s Request for a Soldier Field Dome**\
+`Quotation of the Day for Tuesday, June 10, 2026.`\
+https://www.nytimes.com/2026/06/10/pageoneplus/quote-of-the-day-a-mayors-line-in-the-sand-to-be-a-host-fifas-request-for-a-soldier-field-dome.html
+
+**Democrats in Maine Governor’s Race Head to Ranked-Choice Runoff**\
+`State election officials will confirm the winner in the coming weeks, after a counting process that involves multiple rounds of elimination.`\
+https://www.nytimes.com/2026/06/10/us/maine-governor-primary-democrats.html
+
+**Corrections: June 10, 2026**\
+`Corrections that appeared in print on Wednesday, June 10, 2026.`\
+https://www.nytimes.com/2026/06/10/pageoneplus/corrections-june-10-2026.html
+
+**Democrats Face Another Long Wait for Results in Maine Swing District**\
+`No candidate cleared 50 percent in the Democratic primary race to replace Representative Jared Golden, sending the race into ranked-choice voting.`\
+https://www.nytimes.com/2026/06/09/us/politics/maine-2-house-democratic-primary.html
+
 **Nevada Attorney General Wins Democratic Nomination for Governor**\
 `Aaron Ford easily outpaced a Washoe County commissioner, Alexis Hill, for the nod to take on Gov. Joe Lombardo in November.`\
 https://www.nytimes.com/2026/06/09/us/politics/nevada-governor-primary.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/06/09/business/energy-environment/general-motors-st
 **Everybody Is a Loser in This Middle East War**\
 `None of the participants in the recent wars of the Middle East can claim victory. All are to blame.`\
 https://www.nytimes.com/2026/06/09/opinion/middle-east-war-accountability-iran-us-trump.html
-
-**Blanche Was Once Seen as Tempering Trump’s Tactics. Now He’s All In.**\
-`The ascendancy of Todd Blanche shows how the practices that were initially deemed out of bounds even in President Trump’s Justice Department seem to be the order of the day.`\
-https://www.nytimes.com/2026/06/09/us/politics/blanche-trump-justice-department-retribution.html
-
-**F.D.A. Clears Sunscreen Ingredient Long Used in Europe and Asia**\
-`Dermatologists say bemotrizinol offers advantages over other compounds in sunscreens currently on the market.`\
-https://www.nytimes.com/2026/06/09/well/fda-sunscreen-bemotrizinol-approval.html
-
-**For Nearly 150 Years, Parking Has Driven New Yorkers to the Brink**\
-`From court cases to political scandal to murder, the city has long been racked with conflict over what to do with cars when they’re not being driven.`\
-https://www.nytimes.com/interactive/2026/06/09/nyregion/nyc-parking-cars-history.html
-
-**This Parking Spot Is Free. Should It Be?**\
-`There are about three million parking spaces in New York City, but drivers are always struggling to find one that’s open. Can the system be fixed?`\
-https://www.nytimes.com/interactive/2026/06/09/nyregion/nyc-street-parking.html
 

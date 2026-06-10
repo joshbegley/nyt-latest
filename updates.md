@@ -1,3 +1,19 @@
+**Quote of the Day: A Mayor’s Line in the Sand to Be a Host: FIFA’s Request for a Soldier Field Dome**\
+`Quotation of the Day for Tuesday, June 10, 2026.`\
+https://www.nytimes.com/2026/06/10/pageoneplus/quote-of-the-day-a-mayors-line-in-the-sand-to-be-a-host-fifas-request-for-a-soldier-field-dome.html
+
+**Democrats in Maine Governor’s Race Head to Ranked-Choice Runoff**\
+`State election officials will confirm the winner in the coming weeks, after a counting process that involves multiple rounds of elimination.`\
+https://www.nytimes.com/2026/06/10/us/maine-governor-primary-democrats.html
+
+**Corrections: June 10, 2026**\
+`Corrections that appeared in print on Wednesday, June 10, 2026.`\
+https://www.nytimes.com/2026/06/10/pageoneplus/corrections-june-10-2026.html
+
+**Democrats Face Another Long Wait for Results in Maine Swing District**\
+`No candidate cleared 50 percent in the Democratic primary race to replace Representative Jared Golden, sending the race into ranked-choice voting.`\
+https://www.nytimes.com/2026/06/09/us/politics/maine-2-house-democratic-primary.html
+
 **Nevada Attorney General Wins Democratic Nomination for Governor**\
 `Aaron Ford easily outpaced a Washoe County commissioner, Alexis Hill, for the nod to take on Gov. Joe Lombardo in November.`\
 https://www.nytimes.com/2026/06/09/us/politics/nevada-governor-primary.html
