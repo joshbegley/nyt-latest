@@ -1,3 +1,11 @@
+**The Maine Senate Race Ramps Up, With Trump Offering Color Commentary**\
+`With Graham Platner now the Democratic nominee against Senator Susan Collins, signs of how hostile the race will be have quickly emerged.`\
+https://www.nytimes.com/2026/06/10/us/politics/maine-senate-graham-platner-susan-collins.html
+
+**A ‘Sultry’ Shift: Heat Creeps Into the Northeast**\
+`Soupy, hot weather will settle into the Northeast on Thursday and Friday, bringing with it the threat of dangerous storms.`\
+https://www.nytimes.com/2026/06/10/weather/heat-wave-us.html
+
 **Democrats Try to Move Past ‘Cultural Pandering’ to Latinos for Midterm Elections**\
 `The party is trying desperately to win back some voters in the key swing group.`\
 https://www.nytimes.com/2026/06/10/us/politics/latino-voters-democrats-elections.html
