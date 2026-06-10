@@ -1,3 +1,7 @@
+**‘Clumsy Diplomacy’: Inside the U.S.-Kenya Feud Over an Ebola Camp**\
+`Hundreds of Kenyans have marched through the streets to oppose a quarantine facility that would be reserved exclusively for American patients.`\
+https://www.nytimes.com/2026/06/10/world/africa/ebola-kenya-us-protests.html
+
 **Stocks Sink and Oil Wavers After Wave of Strikes Across Middle East**\
 `The attacks, which strained a two-month cease-fire between Iran and the United States, were the latest jolt to energy markets.`\
 https://www.nytimes.com/2026/06/10/business/oil-stocks-gas-prices-iran.html
