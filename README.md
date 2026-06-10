@@ -1,3 +1,7 @@
+**Drinking Water Facilities Hit by Strikes in Iran, State Media Reports**\
+`The state broadcaster said two water tanks serving thousands of people were damaged. The U.S. military did not respond to a request for comment.`\
+https://www.nytimes.com/2026/06/10/world/middleeast/drinking-water-facilities-hit-by-strikes-in-iran-state-media-reports.html
+
 **Indian Sailors Made Frantic Calls for Help After U.S. Missile Strike off Oman**\
 `The 24 crew members were stranded for more than two hours before being rescued by an Omani military helicopter. The U.S. military said that the ship had violated its blockade of Iran.`\
 https://www.nytimes.com/2026/06/10/world/middleeast/indian-sailors-rescued-us-missile-ship-oman.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/10/arts/meg-webster-land-artist.html
 **‘A Mighty Form of Communion’: Three Writers on the World Cup’s Strange Magic**\
 `There’s ample cause for celebration and consternation alike.`\
 https://www.nytimes.com/2026/06/10/opinion/world-cup-trump-fifa.html
-
-**How Maya Rudolph Became an ‘Absolute Menace’ in ‘Oh, Mary!’**\
-`For her Broadway debut, the comedian hired a trainer, read lines with her daughter and, when she needed it most, was saved by improv.`\
-https://www.nytimes.com/2026/06/10/theater/maya-rudolph-oh-mary-broadway.html
 
