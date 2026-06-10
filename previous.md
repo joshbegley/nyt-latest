@@ -1,8 +1,12 @@
+**The Good List: 6 Things to Add Joy to Your Day**\
+`Dancing pigeons, mystery stew and a nostalgia machine.`\
+https://www.nytimes.com/2026/06/10/briefing/the-good-list-pigeons-knicks.html
+
 **Texas Governor Seeks New Limits on Data Centers**\
 `Gov. Greg Abbott is urging tighter controls and a repeal of financial incentives for data centers, which have drawn complaints in rural Republican areas of Texas.`\
 https://www.nytimes.com/2026/06/10/us/texas-abbott-data-centers-regulation.html
 
-**Mamdani’s Nosebleed Knicks Ticket and the Fluid Benefits of Being Mayor**\
+**Mamdani’s Nosebleed Knicks Ticket and the Benefits of Being Mayor**\
 `Mayor Zohran Mamdani paid roughly $1,000 for a standing-room-only ticket to Game 3 of the N.B.A. finals, using access to house tickets not available to regular fans.`\
 https://www.nytimes.com/2026/06/10/nyregion/mamdani-knicks-ticket-garden.html
 
@@ -46,7 +50,7 @@ https://www.nytimes.com/2026/06/10/us/sbc-southern-baptist-convention.html
 `The New York Police Department officer, who resigned in December, also admitted to sending inappropriate texts to crime victims.`\
 https://www.nytimes.com/2026/06/10/nyregion/nypd-officer-inappropriate-messages-victims.html
 
-**‘X-Men’ Actor Tyler Mane Says He Has Male Breast Cancer**\
+**‘X-Men’ Actor Tyler Mane Says He Has Breast Cancer**\
 `Tyler Mane said he was initially embarrassed to divulge the diagnosis but wanted to encourage other men to look out for the disease.`\
 https://www.nytimes.com/2026/06/10/us/tyler-mane-male-breast-cancer.html
 
@@ -58,7 +62,7 @@ https://www.nytimes.com/2026/06/10/world/asia/indonesia-military-acid-attack-and
 `Algunos aficionados y participantes que esperaban viajar para el Mundial se han quejado de las restrictivas normas para visitar uno de los países anfitriones.`\
 https://www.nytimes.com/es/2026/06/10/espanol/mundo/mundial-migracion.html
 
-**Bill Gates Says Epstein Tried To Use His Extramarital Affairs Against Him**\
+**Bill Gates Says Epstein Tried to Use His Extramarital Affairs Against Him**\
 `The billionaire philanthropist testified on Wednesday in a closed-door congressional hearing about the Justice Department’s investigation of Jeffrey Epstein.`\
 https://www.nytimes.com/2026/06/10/business/bill-gates-epstein-testimony.html
 
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/10/style/backrooms-gen-z-anxiety.html
 **These Cold Peanut Noodles Are for Ginger Lovers**\
 `There’s grated ginger in the spicy-savory sauce, and chopped crystallized ginger in the noodle-cucumber-scallion mix for chew and sweetness.`\
 https://www.nytimes.com/2026/06/10/dining/these-cold-peanut-noodles-are-for-ginger-lovers.html
-
-**Do Women Really Need a Menopause Workout?**\
-`A new wave of fitness programs claim to be specifically tailored for midlife. Here’s what to know about them.`\
-https://www.nytimes.com/2026/06/10/well/move/menopause-workouts-exercises.html
 
 **Inflation Jumps as Iran War Intensifies Price Squeeze**\
 `Consumer prices rose at a faster rate for a third-straight month in May, to 4.2 percent annually, as the energy shock put more pressure on the U.S. economy.`\
