@@ -1,3 +1,7 @@
+**Hopes Dim for Renewing Spy Law as Trump Digs In on Bill Pulte**\
+`Republicans are struggling to extend a powerful surveillance authority set to lapse this weekend after President Trump alienated lawmakers with his choice of acting spy chief.`\
+https://www.nytimes.com/2026/06/10/us/politics/trump-bill-pulte-spy-law.html
+
 **Noma Will Reopen With René Redzepi as Creative Director**\
 `After reports of abuse in decades past and a pop-up in Los Angeles, the former “Best Restaurant in the World” returns to Copenhagen.`\
 https://www.nytimes.com/2026/06/10/dining/noma-reopening-copenhagen-rene-redzepi.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/10/world/middleeast/drinking-water-facilities-hi
 **Indian Sailors Made Frantic Calls for Help After U.S. Missile Strike off Oman**\
 `The 24 crew members were stranded for more than two hours before being rescued by an Omani military helicopter. The U.S. military said that the ship had violated its blockade of Iran.`\
 https://www.nytimes.com/2026/06/10/world/middleeast/indian-sailors-rescued-us-missile-ship-oman.html
-
-**ActBlue C.E.O. Invokes Fifth Amendment Repeatedly in Testimony to Congress**\
-`The head of the Democratic fund-raising behemoth declined to answer questions from House Republicans about reports that she may have misled Congress over how her group vetted foreign donations.`\
-https://www.nytimes.com/2026/06/10/us/politics/actblue-fifth-amendment-congress.html
 
 **Inflation Jumps as Iran War Intensifies Price Squeeze**\
 `Consumer prices rose at a faster rate for a third-straight month in May, to 4.2 percent annually, as the energy shock put more pressure on the U.S. economy.`\
