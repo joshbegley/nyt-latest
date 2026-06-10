@@ -1,14 +1,26 @@
+**Rep. Kevin Kiley, Independent, to Face Richard Pan in California House Race**\
+`Mr. Kiley dropped his Republican affiliation earlier this year. The newly drawn Sixth Congressional District is widely considered to be favorable for Democrats.`\
+https://www.nytimes.com/2026/06/09/us/politics/pan-ho-kiley-california-primary.html
+
+**Dallas Judge Blocks City Council Vote on Future of City Hall**\
+`The ruling gives officials more time to weigh competing plans for the future of Dallas’s aging City Hall building and the land it occupies.`\
+https://www.nytimes.com/2026/06/09/us/dallas-city-hall.html
+
+**Kalshi Will Ask Users to Share Employer Information for Some Trades**\
+`The new policy is aimed at limiting insider trading as scrutiny of prediction markets grows.`\
+https://www.nytimes.com/2026/06/09/us/kalshi-employment-disclosure-rules.html
+
 **Maine Senate Polls Point to a Competitive General Election**\
 `Graham Platner is expected to win handily in the Democratic primary for Senate in Maine. The focus is shifting to how he might do in November.`\
 https://www.nytimes.com/2026/06/09/us/elections/maine-senate-polls-competitive-general.html
 
-**In Maine’s Primaries for Governor, Polling Is Sparse**\
-`The Democratic primary for governor is particularly competitive, but polls show that both party’s primaries could come down to ranked-choice voting.`\
-https://www.nytimes.com/2026/06/09/polls/maine-governor-primary-polls.html
-
 **Steve Hilton Wins Second Spot in California Governor Race, Beating Tom Steyer**\
 `Steve Hilton, a Republican endorsed by President Trump, will face Xavier Becerra, a Democrat, in the general election. Tom Steyer, another Democrat, will not advance.`\
 https://www.nytimes.com/2026/06/09/us/steve-hilton-california-governor-xavier-becerra.html
+
+**In Maine’s Primaries for Governor, Polling Is Sparse**\
+`The Democratic primary for governor is particularly competitive, but polls show that both party’s primaries could come down to ranked-choice voting.`\
+https://www.nytimes.com/2026/06/09/polls/maine-governor-primary-polls.html
 
 **5 Things to Know About Paul LePage, Republican House Candidate in Maine**\
 `Mr. LePage served two terms as governor of Maine and was known for his incendiary rhetoric and his vetoing of legislation of all sorts.`\
@@ -185,16 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-agr
 **South Carolina Fourth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 South Carolina primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-us-house-4-primary.html
-
-**South Carolina First Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 South Carolina primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-us-house-1-primary.html
-
-**South Carolina Third Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 South Carolina primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-us-house-3-primary.html
-
-**South Carolina Comptroller General Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 South Carolina primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-comptroller-general-primary.html
 

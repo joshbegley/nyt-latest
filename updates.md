@@ -1,3 +1,15 @@
+**Rep. Kevin Kiley, Independent, to Face Richard Pan in California House Race**\
+`Mr. Kiley dropped his Republican affiliation earlier this year. The newly drawn Sixth Congressional District is widely considered to be favorable for Democrats.`\
+https://www.nytimes.com/2026/06/09/us/politics/pan-ho-kiley-california-primary.html
+
+**Dallas Judge Blocks City Council Vote on Future of City Hall**\
+`The ruling gives officials more time to weigh competing plans for the future of Dallas’s aging City Hall building and the land it occupies.`\
+https://www.nytimes.com/2026/06/09/us/dallas-city-hall.html
+
+**Kalshi Will Ask Users to Share Employer Information for Some Trades**\
+`The new policy is aimed at limiting insider trading as scrutiny of prediction markets grows.`\
+https://www.nytimes.com/2026/06/09/us/kalshi-employment-disclosure-rules.html
+
 **Maine Senate Polls Point to a Competitive General Election**\
 `Graham Platner is expected to win handily in the Democratic primary for Senate in Maine. The focus is shifting to how he might do in November.`\
 https://www.nytimes.com/2026/06/09/us/elections/maine-senate-polls-competitive-general.html
