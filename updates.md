@@ -1,3 +1,11 @@
+**Trump-Backed Air Force Veteran Wins Republican House Primary in Nevada**\
+`David Flippo won his party’s nomination for a safely Republican open seat, defeating a candidate backed by the G.O.P. governor.`\
+https://www.nytimes.com/2026/06/10/us/politics/flippo-trump-nevada-republicans-house.html
+
+**Tiny Love Stories: ‘The “Right” Answers in Life’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/06/10/style/tiny-modern-love-stories-the-right-answers-in-life.html
+
 ****\
 `The NASA astronaut Jessica Meir shared a time-lapse video of the glowing green southern aurora borealis from space.`\
 https://www.nytimes.com/video/embedded/science/space/100000010957977/southern-lights-nasa.html
