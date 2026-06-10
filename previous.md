@@ -1,3 +1,7 @@
+**Night of Violence Grips Belfast After Stabbing Attack**\
+`Cars and a bus were set on fire and families were driven from their homes as the stabbing attack caused tensions to spill onto the streets.`\
+https://www.nytimes.com/2026/06/10/world/europe/belfast-attack-riots-northern-ireland.html
+
 **El entusiasmo por el álbum Panini revive en cada Mundial de fútbol**\
 `Los álbumes de cromos del Mundial han cautivado a niños y adultos en Argentina, en una fiebre coleccionista que parece inmune a la revolución digital.`\
 https://www.nytimes.com/es/2026/06/10/espanol/america-latina/album-panini-cromos.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/10/world/africa/johannesburg-shooting-south-afri
 **Disorder Breaks Out After Belfast Knife Attack**\
 `People took to the streets of Belfast, Northern Ireland, on Tuesday after a suspect, who the police said was a 30-year-old Sudanese man, was charged with attempted murder over a knife attack.`\
 https://www.nytimes.com/video/world/europe/100000010957250/belfast-ireland-riots-protests-knife-attack.html
-
-**¿Por qué bajan las tasas de natalidad? Los celulares podrían ser responsables**\
-`Los celulares inteligentes salieron al mercado en 2007, el año en que las tasas de fertilidad empezaron a bajar. Dos estudios dicen que no es una coincidencia.`\
-https://www.nytimes.com/es/2026/06/10/espanol/estados-unidos/celulares-baja-natalidad.html
 

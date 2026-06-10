@@ -1,3 +1,7 @@
+**Night of Violence Grips Belfast After Stabbing Attack**\
+`Cars and a bus were set on fire and families were driven from their homes as the stabbing attack caused tensions to spill onto the streets.`\
+https://www.nytimes.com/2026/06/10/world/europe/belfast-attack-riots-northern-ireland.html
+
 **El entusiasmo por el álbum Panini revive en cada Mundial de fútbol**\
 `Los álbumes de cromos del Mundial han cautivado a niños y adultos en Argentina, en una fiebre coleccionista que parece inmune a la revolución digital.`\
 https://www.nytimes.com/es/2026/06/10/espanol/america-latina/album-panini-cromos.html
