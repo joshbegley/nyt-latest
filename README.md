@@ -1,3 +1,7 @@
+**Federal Judge Blocks Alabama From Using Nitrogen Gas in Jeffrey Lee Execution**\
+`The judge ordered the state to find an alternate method if it is going to move ahead with the execution of Jeffery Lee, who was convicted of murder.`\
+https://www.nytimes.com/2026/06/10/us/alabama-execution-nitrogen-gas.html
+
 **Americans Are Paying More to Travel This Summer**\
 `Airfares shot up 27 percent from a year earlier in the latest inflation data.`\
 https://www.nytimes.com/2026/06/10/business/economy/americans-travel-expensive.html
@@ -47,7 +51,7 @@ https://www.nytimes.com/2026/06/10/opinion/republicans-democrats-women-ambition.
 https://www.nytimes.com/2026/06/10/style/indiscreet-comments-drunkenness-affairs.html
 
 **Drinking Water Facilities Hit by Strikes in Iran, State Media Reports**\
-`The state broadcaster said two water tanks serving thousands of people were damaged. The U.S. military did not respond to a request for comment.`\
+`Two water tanks serving thousands of people were damaged, the local authorities said. The U.S. military did not respond to a request for comment.`\
 https://www.nytimes.com/2026/06/10/world/middleeast/drinking-water-facilities-hit-by-strikes-in-iran-state-media-reports.html
 
 **Indian Sailors Made Frantic Calls for Help After U.S. Missile Strike off Oman**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/10/arts/music/glenn-branca-100-guitars-reg-bloor
 **A Street Called Jimi Hendrix Way**\
 `Today brings changes to New York’s cityscape, including 900 candelabras at Lincoln Center and a co-name for West Eighth Street.`\
 https://www.nytimes.com/2026/06/10/nyregion/a-street-called-jimi-hendrix-way.html
-
-**Forget Coders. The Real A.I. Threat Is in the Back Office.**\
-`As artificial intelligence spreads, millions of middle-class jobs in human resources, billing and payroll could be at risk. Most are held by women.`\
-https://www.nytimes.com/2026/06/10/business/economy/back-office-workers-ai.html
 
