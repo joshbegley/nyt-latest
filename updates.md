@@ -1,3 +1,7 @@
+**Gulf Arab nations condemn new Iranian attacks on Bahrain and Kuwait.**\
+`(No description)`\
+https://www.nytimes.com/2026/06/10/world/middleeast/gulf-arab-nations-condemn-new-iranian-attacks-on-bahrain-and-kuwait.html
+
 **TK**\
 `Tk`\
 https://static01.nyt.com/slideshow/2026/06/10/t-magazine/tk.html
