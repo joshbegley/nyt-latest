@@ -1,3 +1,7 @@
+**Storms Knock Out Power for Hundreds of Thousands in the Midwest**\
+`Forecasters warned that destructive storms were expected across the region into Wednesday night.`\
+https://www.nytimes.com/2026/06/10/weather/storms-illinois-wisconsin-tornado-power-outages.html
+
 **FIFA President Tells World Cup Critics to ‘Chill’ About Concerns**\
 `With the World Cup facing growing crises, Gianni Infantino, the FIFA president, struck a defiant tone on the eve of the competition’s start.`\
 https://www.nytimes.com/2026/06/10/world/europe/fifa-president-world-cup.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/10/dining/noma-reopening-copenhagen-rene-redzepi
 **El secretario de Defensa de EE. UU. visita Guantánamo**\
 `El viaje del secretario Pete Hegseth se produce en un momento en que el gobierno de Trump presiona para que se produzcan cambios políticos y económicos en Cuba.`\
 https://www.nytimes.com/es/2026/06/10/espanol/estados-unidos/hegseth-guantanamo-cuba.html
-
-**NASA Crew-12 Commander Captures Snaky Southern Lights From Space Station**\
-`The footage of the southern lights was shared on Sunday by Jessica Meir, commander of NASA’s Crew-12 mission.`\
-https://www.nytimes.com/2026/06/10/science/jessica-meir-aurora-southern-lights-space-video.html
 
 **World Cup Updates: U.S. Immigration Policies Turn Some Fans and Participants Away**\
 `(No description)`\
