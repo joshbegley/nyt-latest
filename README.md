@@ -1,3 +1,11 @@
+**Evette and Wilson Advance to Runoff in South Carolina Republican Primary for Governor**\
+`The candidates have only two weeks to campaign before the runoff election on June 23. South Carolina has elected only Republican governors since 2002.`\
+https://www.nytimes.com/2026/06/09/us/politics/south-carolina-governor-republican-evette-wilson.html
+
+**Sanders-Backed Progressive Advances in California Swing District Against Valadao**\
+`Randy Villegas will face the incumbent, David Valadao, a Republican who has survived numerous challenges in a competitive district.`\
+https://www.nytimes.com/2026/06/09/us/politics/bains-villegas-california-democrats-primary.html
+
 **Lindsey Graham Wins G.O.P. Primary in South Carolina, Avoiding Runoff**\
 `Mr. Graham, a four-term incumbent senator, is the favorite to win the general election in a solidly Republican state.`\
 https://www.nytimes.com/2026/06/09/us/politics/south-carolina-senate-graham-lynch.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/09/us/politics/maine-political-dynasty-king-ping
 **Pope Leo Meets Bad Bunny**\
 `The two crossed paths in Spain, where they have been on decidedly different tours. Sorry, no photos were released.`\
 https://www.nytimes.com/2026/06/09/world/europe/pope-leo-bad-bunny.html
-
-**Pro-Israel Group Pushes for Haley Stevens in Michigan Senate Race**\
-`The main super PAC tied to the influential American Israel Public Affairs Committee released its first ads backing Ms. Stevens, a moderate congresswoman locked in a tight three-way primary.`\
-https://www.nytimes.com/2026/06/09/us/politics/aipac-haley-stevens-michigan-senate.html
-
-**Nevada Second Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Nevada primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-nevada-us-house-2-primary.html
 
