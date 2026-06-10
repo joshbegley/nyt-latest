@@ -1,3 +1,7 @@
+**Bill Gates Says Epstein Tried To Use His Extramarital Affairs Against Him**\
+`The billionaire philanthropist testified on Wednesday in a closed-door congressional hearing about the Justice Department’s investigation of Jeffrey Epstein.`\
+https://www.nytimes.com/2026/06/10/business/bill-gates-epstein-testimony.html
+
 **Trump dice que podría no renovar el T-MEC**\
 `Los comentarios del presidente llegan en un momento crucial de las negociaciones entre Canadá, México y EE. UU. sobre la renovación de su tratado de libre comercio.`\
 https://www.nytimes.com/es/2026/06/10/espanol/mundo/trump-renovar-t-mec.html
@@ -55,7 +59,7 @@ https://www.nytimes.com/2026/06/10/us/politics/flippo-trump-nevada-republicans-h
 https://www.nytimes.com/2026/06/10/style/tiny-modern-love-stories-the-right-answers-in-life.html
 
 ****\
-`The NASA astronaut Jessica Meir shared a time-lapse video of the glowing green southern aurora borealis from space.`\
+`The NASA astronaut Jessica Meir shared a time-lapse video of the glowing green southern lights from space.`\
 https://www.nytimes.com/video/embedded/science/space/100000010957977/southern-lights-nasa.html
 
 **Pro-Palestinian Activists at U. of Michigan Indicted on Federal Conspiracy Charges**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/10/opinion/republicans-democrats-women-ambition.
 **My Sister-in-Law Made an Indecent Suggestion After a Night of Drinking. Help!**\
 `A reader is unsure whether to tell his wife about her sister’s drunken musings, including an imagined scenario in which they might rekindle their long-ago love affair.`\
 https://www.nytimes.com/2026/06/10/style/indiscreet-comments-drunkenness-affairs.html
-
-**Drinking Water Facilities Hit by Strikes in Iran, State Media Reports**\
-`Two water tanks serving thousands of people were damaged, the local authorities said. The U.S. military declined to comment.`\
-https://www.nytimes.com/2026/06/10/world/middleeast/drinking-water-facilities-hit-by-strikes-in-iran-state-media-reports.html
 
 **Inflation Jumps as Iran War Intensifies Price Squeeze**\
 `Consumer prices rose at a faster rate for a third-straight month in May, to 4.2 percent annually, as the energy shock put more pressure on the U.S. economy.`\
