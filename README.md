@@ -1,4 +1,4 @@
-**Navy Admiral Fired by Hegseth Wins Democratic Nomination to Replace Mace**\
+**Navy Admiral Fired by Hegseth Advances to Runoff to Replace Mace**\
 `Nancy Lacore would face a tough fall election in a district drawn in 2021 to be more Republican. She is seeking to replace Representative Nancy Mace, who ran unsuccessfully for governor instead of running for re-election.`\
 https://www.nytimes.com/2026/06/09/us/politics/nancy-lacore-mace-south-carolina.html
 
