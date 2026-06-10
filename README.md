@@ -1,3 +1,11 @@
+**The Global Bull Market That A.I. Obscures**\
+`The rest of the world has been writing one of the more remarkable chapters in modern financial history — and many have hardly noticed.`\
+https://www.nytimes.com/2026/06/10/opinion/global-bull-market-ai.html
+
+**Los riesgos del alcohol en la salud aumentan tras una sola copa al día**\
+`La industria del alcohol ha criticado el estudio que reveló el dato y que también señala que un consumo moderado de alcohol aumenta el riesgo de muerte prematura.`\
+https://www.nytimes.com/es/2026/06/10/espanol/alcohol-riesgos-salud.html
+
 **Republicans in Maine Governor’s Race Head to Ranked-Choice Runoff**\
 `State election officials will confirm the winner in the next week or two, after a counting process that involves multiple rounds of elimination.`\
 https://www.nytimes.com/2026/06/10/us/politics/gop-runoff-maine-governor-race.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/09/arts/john-basinger-dead.html
 **South Carolina Voters Are Choosing Nominees to Fill an Open Seat in Congress**\
 `Representative Nancy Mace’s run for governor created the opening in the coastal First Congressional District. Republicans are expected to hold it, but one Democrat has proved to be a prolific fund-raiser.`\
 https://www.nytimes.com/2026/06/09/us/politics/south-carolina-nancy-mace-district-1.html
-
-**For America’s 250th, Let’s Get Something Clear About Our National Identity**\
-`It depends on both ideas and cultural inheritance.`\
-https://www.nytimes.com/2026/06/09/opinion/america-250-national-identity.html
-
-**G.M. Plans to Develop Energy Storage Batteries as E.V. Sales Flag**\
-`The carmaker will follow Tesla in making components for large batteries used by electric utilities, data centers and other businesses to handle fluctuations in power supply and demand.`\
-https://www.nytimes.com/2026/06/09/business/energy-environment/general-motors-storage-batteries-electric-vehicles.html
 
