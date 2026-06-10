@@ -1,3 +1,11 @@
+**Disturbios en Irlanda del Norte: lo que hay que saber**\
+`There was unrest in Belfast and elsewhere after video of a brutal stabbing circulated online, amplified by far-right activists.`\
+https://www.nytimes.com/es/2026/06/10/espanol/mundo/irlanda-norte-disturbios-belfast.html
+
+**Trump Says He’s ‘Not Looking to Renew’ Canada-Mexico Trade Deal**\
+`The president’s comments come at a crucial moment in talks among the three countries over the renewal of their free-trade agreement.`\
+https://www.nytimes.com/2026/06/10/world/canada/trump-canada-mexico-trade-deal-usmca.html
+
 **Russian Military Official Killed in Car Explosion Near Moscow**\
 `A senior Russian military officer was killed in a car explosion on Tuesday, a Ukrainian official and Russian media outlets said. The incident appears to be the latest targeted assassination of high-profile opponents of Ukraine in Russia.`\
 https://www.nytimes.com/video/world/europe/100000010958164/russia-military-official-killed-car-bomb.html

@@ -1,3 +1,7 @@
+**Hundreds of Kenyans Protest U.S. Ebola Unit**\
+`Protesters opposed an Ebola quarantine facility in Kenya on Tuesday that would be reserved exclusively for U.S. citizens.`\
+https://www.nytimes.com/video/world/africa/100000010957717/us-ebola-quarantine-unit-protest-kenya.html
+
 **Disturbios en Irlanda del Norte: lo que hay que saber**\
 `There was unrest in Belfast and elsewhere after video of a brutal stabbing circulated online, amplified by far-right activists.`\
 https://www.nytimes.com/es/2026/06/10/espanol/mundo/irlanda-norte-disturbios-belfast.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/10/business/economy/americans-travel-expensive.h
 **Inflation Keeps Prospects of a Fed Rate Cut Low**\
 `The Consumer Price Index is one of the last major data releases ahead of Kevin M. Warsh’s first meeting as chair of the Federal Reserve.`\
 https://www.nytimes.com/2026/06/10/business/economy/inflation-federal-reserve-interest-rates.html
-
-**Sailors Rescued After U.S. Missile Strikes Tanker Off Oman’s Coast**\
-`Indian sailors aboard a tanker that was struck by a U.S. missile sent distress calls for more than two hours before being rescued by the Omani military. U.S. Central Command said the ship was trying to sail to an Iranian port.`\
-https://www.nytimes.com/video/world/middleeast/100000010957544/indian-sailors-rescue-us-strike-tanker-oman.html
 
 **Inflation Jumps as Iran War Intensifies Price Squeeze**\
 `Consumer prices rose at a faster rate for a third-straight month in May, to 4.2 percent annually, as the energy shock put more pressure on the U.S. economy.`\

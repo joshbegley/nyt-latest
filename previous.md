@@ -1,3 +1,7 @@
+**Disturbios en Irlanda del Norte: lo que hay que saber**\
+`There was unrest in Belfast and elsewhere after video of a brutal stabbing circulated online, amplified by far-right activists.`\
+https://www.nytimes.com/es/2026/06/10/espanol/mundo/irlanda-norte-disturbios-belfast.html
+
 **Russian Military Official Killed in Car Explosion Near Moscow**\
 `A senior Russian military officer was killed in a car explosion on Tuesday, a Ukrainian official and Russian media outlets said. The incident appears to be the latest targeted assassination of high-profile opponents of Ukraine in Russia.`\
 https://www.nytimes.com/video/world/europe/100000010958164/russia-military-official-killed-car-bomb.html
@@ -71,7 +75,7 @@ https://www.nytimes.com/2026/06/10/headway/shootings-youth-violence-prevention-p
 https://www.nytimes.com/interactive/2026/06/10/us/federal-charges-university-of-michigan-pro-palestinian-protest.html
 
 **Trump Says He’s ‘Not Looking to Renew’ Canada-Mexico Trade Deal**\
-`The president’s comments come at a crucial moment in talks between the three countries over the renewal of their free-trade agreement.`\
+`The president’s comments come at a crucial moment in talks among the three countries over the renewal of their free-trade agreement.`\
 https://www.nytimes.com/2026/06/10/world/canada/trump-canada-mexico-trade-deal-usmca.html
 
 **Antonio Gracias, Elon Musk’s Friend, Is Set to Reap Billions From SpaceX’s IPO**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/10/business/economy/inflation-federal-reserve-in
 **Sailors Rescued After U.S. Missile Strikes Tanker Off Oman’s Coast**\
 `Indian sailors aboard a tanker that was struck by a U.S. missile sent distress calls for more than two hours before being rescued by the Omani military. U.S. Central Command said the ship was trying to sail to an Iranian port.`\
 https://www.nytimes.com/video/world/middleeast/100000010957544/indian-sailors-rescue-us-strike-tanker-oman.html
-
-**In a Timely “Under the Shadow” Staging, a Ghost Haunts War-Torn Iran**\
-`The supernatural mixes with secular modernity, family dynamics and feminism in a new London production of “Under the Shadow.”`\
-https://www.nytimes.com/2026/06/10/theater/under-the-shadow-almeida-theater-london.html
 
 **Inflation Jumps as Iran War Intensifies Price Squeeze**\
 `Consumer prices rose at a faster rate for a third-straight month in May, to 4.2 percent annually, as the energy shock put more pressure on the U.S. economy.`\
