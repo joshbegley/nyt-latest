@@ -1,3 +1,7 @@
+**At Least 12 Dead After Shooting in Johannesburg**\
+`The police said they were looking for more than 10 attackers, who had stormed a community of tin shacks. Investigators were still trying to determine the motive.`\
+https://www.nytimes.com/2026/06/10/world/africa/johannesburg-shooting-south-africa.html
+
 **Disorder Breaks Out After Belfast Knife Attack**\
 `People took to the streets of Belfast on Tuesday after a suspect, who the police said was a 30-year-old Sudanese man, was charged with attempted murder over a knife attack.`\
 https://www.nytimes.com/video/world/europe/100000010957250/belfast-ireland-riots-protests-knife-attack.html

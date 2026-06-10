@@ -1,3 +1,7 @@
+**At Least 12 Dead After Shooting in Johannesburg**\
+`The police said they were looking for more than 10 attackers, who had stormed a community of tin shacks. Investigators were still trying to determine the motive.`\
+https://www.nytimes.com/2026/06/10/world/africa/johannesburg-shooting-south-africa.html
+
 **Disorder Breaks Out After Belfast Knife Attack**\
 `People took to the streets of Belfast on Tuesday after a suspect, who the police said was a 30-year-old Sudanese man, was charged with attempted murder over a knife attack.`\
 https://www.nytimes.com/video/world/europe/100000010957250/belfast-ireland-riots-protests-knife-attack.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/09/world/middleeast/sea-drone-apache-rescue.html
 **Taliban Leader Who Took U.S. Journalist Hostage Sentenced to 42 Years**\
 `Haji Najibullah had pleaded guilty to hostage taking and providing material support for terrorism.`\
 https://www.nytimes.com/2026/06/09/nyregion/taliban-leader-american-journalist-sentencing.html
-
-**Air Canada Pilot Accused of Flying for 17 Years Without Proper License**\
-`The pilot, who retired last year before the investigation, held some valid flight credentials, officials said, but not the one required to be a captain.`\
-https://www.nytimes.com/2026/06/09/world/canada/air-canada-pilot-fraud.html
 
