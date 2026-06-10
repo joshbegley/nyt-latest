@@ -1,3 +1,7 @@
+**Noma Will Reopen With René Redzepi as Creative Director**\
+`After reports of abuse in decades past and a pop-up in Los Angeles, the former “Best Restaurant in the World” returns to Copenhagen.`\
+https://www.nytimes.com/2026/06/10/dining/noma-reopening-copenhagen.html
+
 **El secretario de Defensa de EE. UU. visita Guantánamo**\
 `El viaje del secretario Pete Hegseth se produce en un momento en que el gobierno de Trump presiona para que se produzcan cambios políticos y económicos en Cuba.`\
 https://www.nytimes.com/es/2026/06/10/espanol/estados-unidos/hegseth-guantanamo-cuba.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/10/world/middleeast/indian-sailors-rescued-us-mi
 **ActBlue C.E.O. Invokes Fifth Amendment Repeatedly in Testimony to Congress**\
 `The head of the Democratic fund-raising behemoth declined to answer questions from House Republicans about reports that she may have misled Congress over how her group vetted foreign donations.`\
 https://www.nytimes.com/2026/06/10/us/politics/actblue-fifth-amendment-congress.html
-
-**Somali World Cup Referee Denied Entry to U.S. Returns Home to Hero’s Welcome**\
-`Omar Abdulkadir Artan, who is widely admired in his home country, would have been the first Somali to referee a World Cup game.`\
-https://www.nytimes.com/2026/06/10/world/africa/somalia-referee-world-cup-artan.html
 
 **Inflation Jumps as Iran War Intensifies Price Squeeze**\
 `Consumer prices rose at a faster rate for a third-straight month in May, to 4.2 percent annually, as the energy shock put more pressure on the U.S. economy.`\

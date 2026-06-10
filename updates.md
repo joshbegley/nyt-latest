@@ -1,3 +1,7 @@
+**El secretario de Defensa de EE. UU. visita Guantánamo**\
+`El viaje del secretario Pete Hegseth se produce en un momento en que el gobierno de Trump presiona para que se produzcan cambios políticos y económicos en Cuba.`\
+https://www.nytimes.com/es/2026/06/10/espanol/estados-unidos/hegseth-guantanamo-cuba.html
+
 **NASA Crew-12 Commander Captures Snaky Southern Lights From Space Station**\
 `The footage of the aurora over Earth’s Southern Hemisphere was shared on Sunday by Jessica Meir, commander of NASA’s Crew-12 mission.`\
 https://www.nytimes.com/2026/06/10/science/jessica-meir-aurora-southern-lights-space-video.html
