@@ -1,3 +1,7 @@
+**Violence in Belfast After Brutal Stabbing Attack: What to Know**\
+`There was unrest in Belfast and elsewhere after video of a brutal stabbing circulated online, amplified by far-right activists.`\
+https://www.nytimes.com/2026/06/10/world/europe/belfast-attack-riots-what-happened.html
+
 **Platner’s Primary Victory in Maine Gives Democrats Hope and Fears in Key Senate Race**\
 `Graham Platner’s primary victory sets up a high-stakes contest between an insurgent progressive with political baggage and a battle-tested but vulnerable Republican senator.`\
 https://www.nytimes.com/2026/06/10/us/politics/senate-control-maine.html
