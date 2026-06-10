@@ -1,3 +1,7 @@
+**Iran War Live Updates: U.S. and Iran Trade Strikes in New Test of Cease-Fire**\
+`The U.S. military struck southern Iran, calling it a response to the downing an American helicopter. Iran said it had retaliated by launching drones and missiles at U.S. military targets in Bahrain and Jordan.`\
+https://www.nytimes.com/live/2026/06/10/world/iran-war-trump-us
+
 **Graham Platner Wins Maine Senate Primary**\
 `Graham Platner, a progressive oyster farmer, won the Democratic nomination for Senate on Tuesday. He is set to face Senator Susan Collins, a five-term Republican, in November.`\
 https://www.nytimes.com/video/us/elections/100000010957127/maine-platner-primary-election-senate.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/09/us/politics/election-results-timing-tonight-w
 **El papa León se encuentra con Bad Bunny en España**\
 `El pontífice y el cantante se cruzaron en Madrid, donde coincidieron durante unas giras muy diferentes. Lo sentimos, pero no se han publicado fotos.`\
 https://www.nytimes.com/es/2026/06/09/espanol/mundo/bad-bunny-papa-leon-espana.html
-
-**The U.S. Strikes Iran After Trump Vowed to Retaliate**\
-`Also, meet NASA’s Artemis III crew. Here’s the latest at the end of Tuesday.`\
-https://www.nytimes.com/2026/06/09/briefing/united-states-iran-strikes-maine-primary-election.html
 

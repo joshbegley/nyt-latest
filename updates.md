@@ -1,3 +1,7 @@
+**Iran War Live Updates: U.S. and Iran Trade Strikes in New Test of Cease-Fire**\
+`The U.S. military struck southern Iran, calling it a response to the downing an American helicopter. Iran said it had retaliated by launching drones and missiles at U.S. military targets in Bahrain and Jordan.`\
+https://www.nytimes.com/live/2026/06/10/world/iran-war-trump-us
+
 **Graham Platner Wins Maine Senate Primary**\
 `Graham Platner, a progressive oyster farmer, won the Democratic nomination for Senate on Tuesday. He is set to face Senator Susan Collins, a five-term Republican, in November.`\
 https://www.nytimes.com/video/us/elections/100000010957127/maine-platner-primary-election-senate.html
