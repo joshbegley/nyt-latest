@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/06/09/nyregion/abraham-chabon-choking-charge.html
 `After nearly nine years of practice, he made John Milton’s epic poem vividly dramatic for audiences and inspired a study of his “memory virtuosity.”`\
 https://www.nytimes.com/2026/06/09/arts/john-basinger-dead.html
 
-**South Carolina Voters Are Choosing Nominees to Fill an Open Seat in Congress**\
-`Representative Nancy Mace’s run for governor created the opening in the coastal First Congressional District. Republicans are expected to hold it, but one Democrat has proved to be a prolific fund-raiser.`\
-https://www.nytimes.com/2026/06/09/us/politics/south-carolina-nancy-mace-district-1.html
+**Graham Platner Wins Primary in Maine, Setting Up a Key Senate Fight**\
+`In South Carolina, Senator Lindsey Graham fended off a Republican challenger and avoided a runoff. Nevada and North Dakota also held primaries.`\
+https://www.nytimes.com/live/2026/06/09/us/elections-maine-sc-nv-nd-primaries
 
