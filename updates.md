@@ -1,3 +1,15 @@
+**Federal Judge Blocks Alabama From Using Nitrogen Gas in Jeffrey Lee Execution**\
+`The judge ordered the state to find an alternate method if it is going to move ahead with the execution of Jeffery Lee, who was convicted of murder.`\
+https://www.nytimes.com/2026/06/10/us/alabama-execution-nitrogen-gas.html
+
+**Americans Are Paying More to Travel This Summer**\
+`Airfares shot up 27 percent from a year earlier in the latest inflation data.`\
+https://www.nytimes.com/2026/06/10/business/economy/americans-travel-expensive.html
+
+**Drinking Water Facilities Hit by Strikes in Iran, State Media Reports**\
+`Two water tanks serving thousands of people were damaged, the local authorities said. The U.S. military did not respond to a request for comment.`\
+https://www.nytimes.com/2026/06/10/world/middleeast/drinking-water-facilities-hit-by-strikes-in-iran-state-media-reports.html
+
 **Inflation Keeps Prospects of a Fed Rate Cut Low**\
 `The Consumer Price Index is one of the last major data releases ahead Kevin M. Warsh’s first meeting as chair of the Federal Reserve.`\
 https://www.nytimes.com/2026/06/10/business/economy/inflation-federal-reserve-interest-rates.html
