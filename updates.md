@@ -1,3 +1,7 @@
+**Indian Sailors Made Frantic Calls for Help After U.S. Missile Strike off Oman**\
+`The 24 crew members were stranded for more than two hours before being rescued by an Omani military helicopter. The U.S. military said that the ship had violated its blockade of Iran.`\
+https://www.nytimes.com/2026/06/10/world/middleeast/indian-sailors-rescued-us-missile-ship-oman.html
+
 **Stocks Sink and Oil Jumps After Wave of Strikes Across Middle East**\
 `The attacks, which strained a two-month cease-fire between Iran and the United States, were the latest jolt to energy markets.`\
 https://www.nytimes.com/2026/06/10/business/oil-stocks-gas-prices-iran.html
