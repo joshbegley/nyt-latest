@@ -1,3 +1,11 @@
+**Majority of City Council Members Urge Mamdani to Pause A.I. in Schools**\
+`The demand from 29 members comes as the Department of Education is updating its guidance for how teachers should use the technology in their work and classrooms.`\
+https://www.nytimes.com/2026/06/09/nyregion/nyc-schools-council-members-ai-ban.html
+
+**Trump ordena atacar Irán por el derribo de un helicóptero de EE. UU.**\
+`En un comunicado, el Comando Central afirmó que los ataques de “autodefensa”, llevados a cabo por orden del presidente fueron “una respuesta proporcional a la agresión iraní injustificada”.`\
+https://www.nytimes.com/es/2026/06/09/espanol/mundo/iran-trump-guerra-ataque-helicoptero.html
+
 **Southern Baptists Elect Willy Rice, Pastor Favored by Right-Wing Faction, as President**\
 `A contingent seeking to push the denomination to the right secured its first major victory through the election of Willy Rice, a Florida pastor who wants to challenge “the system.”`\
 https://www.nytimes.com/2026/06/09/us/sbc-president-pastor-willy-rice.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-us-
 **Nevada Fourth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Nevada primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-nevada-us-house-4-primary.html
-
-**South Carolina Superintendent of Education Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 South Carolina primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-superintendent-of-education-primary.html
-
-**South Carolina Agriculture Commissioner Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 South Carolina primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-agriculture-commissioner-primary.html
 
