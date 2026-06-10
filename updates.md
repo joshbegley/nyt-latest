@@ -1,3 +1,83 @@
+**Bill Gates Says Epstein Tried To Use His Extramarital Affairs Against Him**\
+`The billionaire philanthropist testified on Wednesday in a closed-door congressional hearing about the Justice Department’s investigation of Jeffrey Epstein.`\
+https://www.nytimes.com/2026/06/10/business/bill-gates-epstein-testimony.html
+
+**Trump dice que podría no renovar el T-MEC**\
+`Los comentarios del presidente llegan en un momento crucial de las negociaciones entre Canadá, México y EE. UU. sobre la renovación de su tratado de libre comercio.`\
+https://www.nytimes.com/es/2026/06/10/espanol/mundo/trump-renovar-t-mec.html
+
+**Hopes Dim for Renewing Spy Law as Trump Digs In on Bill Pulte**\
+`Republicans are struggling to extend a powerful surveillance authority set to lapse this weekend after President Trump alienated lawmakers with his choice of acting spy chief.`\
+https://www.nytimes.com/2026/06/10/us/politics/trump-bill-pulte-spy-law.html
+
+**Noma Will Reopen With René Redzepi as Creative Director**\
+`After reports of abuse in decades past and a pop-up in Los Angeles, the former “Best Restaurant in the World” returns to Copenhagen.`\
+https://www.nytimes.com/2026/06/10/dining/noma-reopening-copenhagen-rene-redzepi.html
+
+**El secretario de Defensa de EE. UU. visita Guantánamo**\
+`El viaje del secretario Pete Hegseth se produce en un momento en que el gobierno de Trump presiona para que se produzcan cambios políticos y económicos en Cuba.`\
+https://www.nytimes.com/es/2026/06/10/espanol/estados-unidos/hegseth-guantanamo-cuba.html
+
+**NASA Crew-12 Commander Captures Snaky Southern Lights From Space Station**\
+`The footage of the aurora over Earth’s Southern Hemisphere was shared on Sunday by Jessica Meir, commander of NASA’s Crew-12 mission.`\
+https://www.nytimes.com/2026/06/10/science/jessica-meir-aurora-southern-lights-space-video.html
+
+**Strict Security Around MSG Is Back for Knicks Game 4**\
+`Several blocks around Madison Square Garden will be closed to most people Wednesday afternoon, but a watch party will be allowed. The Garden is not happy about the extra restrictions.`\
+https://www.nytimes.com/2026/06/10/nyregion/knicks-security-game-4-msg.html
+
+**White House Again Shrugs Off High Prices Amid War With Iran**\
+`As inflation outpaces workers’ wages, the Trump administration insists that its agenda is working.`\
+https://www.nytimes.com/2026/06/10/business/economy/trump-inflation-iran-war.html
+
+**The Violence Decline Isn’t Evenly Distributed**\
+`Our colleagues at Chalkbeat Philadelphia dive into the numbers.`\
+https://www.nytimes.com/2026/06/10/headway/shootings-youth-violence-prevention-philadelphia.html
+
+**Read the Charges Against 8 People Connected to the University of Michigan**\
+`The federal charges include conspiracy to transmit threats and witness intimidation.`\
+https://www.nytimes.com/interactive/2026/06/10/us/federal-charges-university-of-michigan-pro-palestinian-protest.html
+
+**Trump Says He May Not Renew Canada-Mexico Trade Deal**\
+`The president’s comments come at a crucial moment in talks between the three countries over the renewal of their free-trade agreement.`\
+https://www.nytimes.com/2026/06/10/world/canada/trump-canada-mexico-trade-deal-usmca.html
+
+**Antonio Gracias, Elon Musk’s Friend, Is Set to Reap Billions From SpaceX’s IPO**\
+`Antonio Gracias, an investor who has built a $65 billion stake in the company, exemplifies the economic upside of being Mr. Musk’s ally.`\
+https://www.nytimes.com/2026/06/10/technology/antonio-gracias-elon-musk-spacex.html
+
+**Cultivating a New Generation of Readers and a Love of Books**\
+`Readers respond to “Make America Read Again,” an Opinion guest essay by Brian Bannon. Also: Choosing Graham Platner; fading bank tellers.`\
+https://www.nytimes.com/2026/06/10/opinion/reading-books.html
+
+**Trump-Backed Air Force Veteran Wins Republican House Primary in Nevada**\
+`David Flippo won his party’s nomination for a safely Republican open seat, defeating a candidate backed by the G.O.P. governor.`\
+https://www.nytimes.com/2026/06/10/us/politics/flippo-trump-nevada-republicans-house.html
+
+**Tiny Love Stories: ‘The “Right” Answers in Life’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/06/10/style/tiny-modern-love-stories-the-right-answers-in-life.html
+
+****\
+`The NASA astronaut Jessica Meir shared a time-lapse video of the glowing green southern lights from space.`\
+https://www.nytimes.com/video/embedded/science/space/100000010957977/southern-lights-nasa.html
+
+**Pro-Palestinian Activists at U. of Michigan Indicted on Federal Conspiracy Charges**\
+`Federal prosecutors said the actions of eight demonstrators crossed the line into threats and vandalism.`\
+https://www.nytimes.com/2026/06/10/us/university-michigan-pro-palestinian-activists-indicted.html
+
+**My Father Abused My Sister When We Were Kids. Should I Tell My Half Siblings?**\
+`I want them to grasp the differences between the two families he created.`\
+https://www.nytimes.com/2026/06/10/magazine/father-abuse-half-siblings-ethics.html
+
+**Soccer Referee Receives Hero’s Welcome in Somalia After U.S. Denies Him Entry**\
+`Omar Abdulkadir Artan was admired in Somalia long before he was selected to be the first Somali referee at the World Cup. After being denied entry into the U.S. to participate as a referee in the World Cup, Artan received a hero’s welcome upon returning home on Wednesday.`\
+https://www.nytimes.com/video/sports/soccer/100000010957547/omar-abdulkadir-artan-welcome-somalia-world-cup-ban.html
+
+**Inflation Jumps as Iran War Intensifies Price Squeeze**\
+`Consumer prices rose at a faster rate for a third-straight month in May, to 4.2 percent annually, as the energy shock put more pressure on the U.S. economy.`\
+https://www.nytimes.com/live/2026/06/10/business/inflation-report-cpi
+
 **Somali World Cup Referee Denied Entry to U.S. Returns Home to Hero’s Welcome**\
 `Omar Abdulkadir Artan, who is widely admired in his home country, would have been the first Somali to referee a World Cup game.`\
 https://www.nytimes.com/2026/06/10/world/africa/somalia-referee-world-cup-artan.html
