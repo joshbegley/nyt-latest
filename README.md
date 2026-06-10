@@ -1,3 +1,7 @@
+**El secretario de Defensa de EE. UU. visita Guantánamo**\
+`El viaje del secretario Pete Hegseth se produce en un momento en que el gobierno de Trump presiona para que se produzcan cambios políticos y económicos en Cuba.`\
+https://www.nytimes.com/es/2026/06/10/espanol/estados-unidos/hegseth-guantanamo-cuba.html
+
 **NASA Crew-12 Commander Captures Snaky Southern Lights From Space Station**\
 `The footage of the aurora over Earth’s Southern Hemisphere was shared on Sunday by Jessica Meir, commander of NASA’s Crew-12 mission.`\
 https://www.nytimes.com/2026/06/10/science/jessica-meir-aurora-southern-lights-space-video.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/10/us/politics/actblue-fifth-amendment-congress.
 **Somali World Cup Referee Denied Entry to U.S. Returns Home to Hero’s Welcome**\
 `Omar Abdulkadir Artan, who is widely admired in his home country, would have been the first Somali to referee a World Cup game.`\
 https://www.nytimes.com/2026/06/10/world/africa/somalia-referee-world-cup-artan.html
-
-**Markets Brace for an Inflation Surprise**\
-`New data is putting investors on edge, especially over the prospect that the Federal Reserve may raise interest rates to blunt rising prices.`\
-https://www.nytimes.com/2026/06/10/business/dealbook/cpi-inflation-surprise.html
 
 **Inflation Jumps as Iran War Intensifies Price Squeeze**\
 `Consumer prices rose at a faster rate for a third-straight month in May, to 4.2 percent annually, as the energy shock put more pressure on the U.S. economy.`\

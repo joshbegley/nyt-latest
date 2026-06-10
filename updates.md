@@ -1,3 +1,15 @@
+**NASA Crew-12 Commander Captures Snaky Southern Lights From Space Station**\
+`The footage of the aurora over Earth’s Southern Hemisphere was shared on Sunday by Jessica Meir, commander of NASA’s Crew-12 mission.`\
+https://www.nytimes.com/2026/06/10/science/jessica-meir-aurora-southern-lights-space-video.html
+
+**Strict Security Around MSG Is Back for Knicks Game 4**\
+`Several blocks around Madison Square Garden will be closed to most people Wednesday afternoon, but a watch party will be allowed. The Garden is not happy about the extra restrictions.`\
+https://www.nytimes.com/2026/06/10/nyregion/knicks-security-game-4-msg.html
+
+**White House Again Shrugs Off High Prices Amid War With Iran**\
+`As inflation outpaces workers’ wages, the Trump administration insists that its agenda is working.`\
+https://www.nytimes.com/2026/06/10/business/economy/trump-inflation-iran-war.html
+
 **The Violence Decline Isn’t Evenly Distributed**\
 `Our colleagues at Chalkbeat Philadelphia dive into the numbers.`\
 https://www.nytimes.com/2026/06/10/headway/shootings-youth-violence-prevention-philadelphia.html
