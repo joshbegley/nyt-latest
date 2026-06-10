@@ -10,6 +10,10 @@ https://www.nytimes.com/2026/06/10/learning/word-of-the-day-effete.html
 `The late night host called Trump “the first sitting president to shut down a major United States city so he could take a nap in front of a sold-out crowd at the N.B.A. finals.”`\
 https://www.nytimes.com/2026/06/10/arts/television/late-night-trump-nba-finals.html
 
+**Takeaways From Tuesday’s Primary Elections in Maine and South Carolina**\
+`Graham Platner won the Democratic primary for Senate in Maine and quickly turned his populist message against Susan Collins, the Republican incumbent.`\
+https://www.nytimes.com/2026/06/10/us/politics/maine-platner-primary-senate-election-results.html
+
 **The Global Bull Market That A.I. Obscures**\
 `The rest of the world has been writing one of the more remarkable chapters in modern financial history — and many have hardly noticed.`\
 https://www.nytimes.com/2026/06/10/opinion/global-bull-market-ai.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/09/us/michigan-whitmer-plot-convictions-overturn
 **How Ranked-Choice Voting Works in Maine**\
 `Proponents say the practice reduces partisanship, while critics say it is confusing and expensive.`\
 https://www.nytimes.com/2026/06/09/us/politics/maine-ranked-choice-voting-explained.html
-
-**Graham Platner Wins Primary in Maine, Setting Up a Key Senate Fight**\
-`In South Carolina, Senator Lindsey Graham fended off a Republican challenger and avoided a runoff. Nevada and North Dakota also held primaries.`\
-https://www.nytimes.com/live/2026/06/09/us/elections-maine-sc-nv-nd-primaries
 

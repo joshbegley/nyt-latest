@@ -1,3 +1,7 @@
+**Takeaways From Tuesday’s Primary Elections in Maine and South Carolina**\
+`Graham Platner won the Democratic primary for Senate in Maine and quickly turned his populist message against Susan Collins, the Republican incumbent.`\
+https://www.nytimes.com/2026/06/10/us/politics/maine-platner-primary-senate-election-results.html
+
 **Tokio tiene una nueva policía contra la basura**\
 `En Shibuya, una de las zonas más turísticas y concurridas de Tokio, tirar basura ahora tiene un precio.`\
 https://www.nytimes.com/es/2026/06/10/espanol/mundo/japon-tokio-basura-turistas.html
