@@ -1,3 +1,11 @@
+**Storms Knock Out Power for Hundreds of Thousands in the Midwest**\
+`Forecasters warned that destructive storms were expected across the region into Wednesday night.`\
+https://www.nytimes.com/2026/06/10/weather/storms-illinois-wisconsin-tornado-power-outages.html
+
+**FIFA President Tells World Cup Critics to ‘Chill’ About Concerns**\
+`With the World Cup facing growing crises, Gianni Infantino, the FIFA president, struck a defiant tone on the eve of the competition’s start.`\
+https://www.nytimes.com/2026/06/10/world/europe/fifa-president-world-cup.html
+
 **Knicks Watch Party Outside Madison Square Garden Is Canceled**\
 `Hours before Wednesday’s game began, James Dolan, the owner of the Knicks, and Mayor Zohran Mamdani were publicly battling over who was to blame for the cancellation.`\
 https://www.nytimes.com/2026/06/10/nyregion/msg-knicks-watch-party-canceled.html
