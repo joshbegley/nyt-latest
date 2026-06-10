@@ -1,3 +1,7 @@
+**Sailors Rescued After U.S. Missile Strikes Tanker Off Oman’s Coast**\
+`Indian sailors aboard a tanker that was struck by a U.S. missile sent distress calls for more than two hours before being rescued by the Omani military. U.S. Central Command said the ship was trying to sail to an Iranian port.`\
+https://www.nytimes.com/video/world/middleeast/100000010957544/indian-sailors-rescue-us-strike-tanker-oman.html
+
 **In a Timely “Under the Shadow” Staging, a Ghost Haunts War-Torn Iran**\
 `The supernatural mixes with secular modernity, family dynamics and feminism in a new London production of “Under the Shadow.”`\
 https://www.nytimes.com/2026/06/10/theater/under-the-shadow-almeida-theater-london.html
@@ -159,7 +163,7 @@ https://www.nytimes.com/video/podcasts/100000010956300/laverne-cox-is-ready-to-t
 https://www.nytimes.com/2026/06/10/us/san-antonio-spurs-fans.html
 
 **The A.I. Bubble Is Coming for Your Retirement Account**\
-`David Wallace-Wells speaks with the economist and law professor Natasha Sarin about what the coming A.I. I.P.O.s could mean for your retirement account.`\
+`The public is about to buy into A.I.’s trillion-dollar promises. Are they worth the price?`\
 https://www.nytimes.com/2026/06/10/opinion/ai-ipo-openai-anthropic.html
 
 **SpaceX IPO: What You Need to Know**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/10/world/americas/argentina-world-cup-sticker-al
 **For the NBA Finals, These Knicks Fans Show Out in Style**\
 `Fans want to support their team, but they’re not willing to squelch their sense of style.`\
 https://www.nytimes.com/2026/06/10/style/knicks-fans-msg-nba-finals-fashion.html
-
-**‘Clumsy Diplomacy’: Inside the U.S.-Kenya Feud Over an Ebola Camp**\
-`Hundreds of Kenyans have marched through the streets to oppose a quarantine facility that would be reserved exclusively for American patients.`\
-https://www.nytimes.com/2026/06/10/world/africa/ebola-kenya-us-protests.html
 
