@@ -1,3 +1,7 @@
+**Hundreds of Kenyans Protest U.S. Ebola Unit**\
+`Protesters opposed an Ebola quarantine facility in Kenya on Tuesday that would be reserved exclusively for U.S. citizens.`\
+https://www.nytimes.com/video/world/africa/100000010957717/us-ebola-quarantine-unit-protest-kenya.html
+
 **Disturbios en Irlanda del Norte: lo que hay que saber**\
 `There was unrest in Belfast and elsewhere after video of a brutal stabbing circulated online, amplified by far-right activists.`\
 https://www.nytimes.com/es/2026/06/10/espanol/mundo/irlanda-norte-disturbios-belfast.html
