@@ -1,3 +1,7 @@
+**Evette and Wilson Advance to Runoff in South Carolina Republican Primary for Governor**\
+`The candidates have only two weeks to campaign before the runoff election on June 23. South Carolina has elected only Republican governors since 2002.`\
+https://www.nytimes.com/2026/06/09/us/politics/south-carolina-governor-republican-evette-wilson.html
+
 **Sanders-Backed Progressive Advances in California Swing District Against Valadao**\
 `Randy Villegas will face the incumbent, David Valadao, a Republican who has survived numerous challenges in a competitive district.`\
 https://www.nytimes.com/2026/06/09/us/politics/bains-villegas-california-democrats-primary.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/09/us/politics/maine-political-dynasty-king-ping
 **Pope Leo Meets Bad Bunny**\
 `The two crossed paths in Spain, where they have been on decidedly different tours. Sorry, no photos were released.`\
 https://www.nytimes.com/2026/06/09/world/europe/pope-leo-bad-bunny.html
-
-**Pro-Israel Group Pushes for Haley Stevens in Michigan Senate Race**\
-`The main super PAC tied to the influential American Israel Public Affairs Committee released its first ads backing Ms. Stevens, a moderate congresswoman locked in a tight three-way primary.`\
-https://www.nytimes.com/2026/06/09/us/politics/aipac-haley-stevens-michigan-senate.html
 
