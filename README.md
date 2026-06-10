@@ -1,3 +1,7 @@
+**Violence in Belfast After Brutal Stabbing Attack: What to Know**\
+`There was unrest in Belfast and elsewhere after video of a brutal stabbing circulated online, amplified by far-right activists.`\
+https://www.nytimes.com/2026/06/10/world/europe/belfast-attack-riots-what-happened.html
+
 **No Country for Ambitious Women**\
 `Republicans have spent years disparaging all things associated with women. Now Democrats are following suit.`\
 https://www.nytimes.com/2026/06/10/opinion/republicans-democrats-women-ambition.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/10/world/europe/ukraine-midrange-logistics-strik
 **How Quiet Oman Landed Itself in Trump’s Cross Hairs**\
 `As the Iran war drags on, Oman — a U.S. ally and mediator with Iran — has found itself at odds with the Trump administration and some of its own neighbors.`\
 https://www.nytimes.com/2026/06/10/world/middleeast/oman-iran-trump-threat.html
-
-**How to Remove Apps You Never Use (or at Least Hide Them)**\
-`If you need space back on your phone or tablet, removing built-in and unused apps can help free up storage and reduce screen clutter.`\
-https://www.nytimes.com/2026/06/10/technology/personaltech/iphone-android-app-removal.html
 
