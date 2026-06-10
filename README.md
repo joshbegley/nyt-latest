@@ -139,7 +139,7 @@ https://www.nytimes.com/2026/06/10/opinion/ai-ipo-openai-anthropic.html
 https://www.nytimes.com/2026/06/10/business/spacex-ipo-what-to-know.html
 
 **Platner’s Primary Victory in Maine Gives Democrats Hope and Fears in Key Senate Race**\
-`Graham Platner’s primary victory in Maine sets up a high-stakes contest between an insurgent progressive with political baggage and a battle-tested but vulnerable Republican senator.`\
+`Graham Platner’s primary victory sets up a high-stakes contest between an insurgent progressive with political baggage and a battle-tested but vulnerable Republican senator.`\
 https://www.nytimes.com/2026/06/10/us/politics/senate-control-maine.html
 
 **In ‘Widow’s Bay,’ History Is Hard to Kill**\
