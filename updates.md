@@ -1,3 +1,7 @@
+**Jimmy Kimmel Calls a Technical Foul on Trump’s Apparent Game 3 Nap**\
+`The late night host called Trump “the first sitting president to shut down a major United States city so he could take a nap in front of a sold-out crowd at the N.B.A. finals.”`\
+https://www.nytimes.com/2026/06/10/arts/television/late-night-trump-nba-finals.html
+
 **Graham Platner Wins Primary in Maine, Setting Up a Key Senate Fight**\
 `In South Carolina, Senator Lindsey Graham fended off a Republican challenger and avoided a runoff. Nevada and North Dakota also held primaries.`\
 https://www.nytimes.com/live/2026/06/09/us/elections-maine-sc-nv-nd-primaries
