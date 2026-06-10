@@ -1,3 +1,11 @@
+**Mamdani’s Nosebleed Knicks Ticket and the Fluid Benefits of Being Mayor**\
+`Mayor Zohran Mamdani paid roughly $1,000 for a standing-room-only ticket to Game 3 of the N.B.A. finals, using access to house tickets not available to regular fans.`\
+https://www.nytimes.com/2026/06/10/nyregion/mamdani-knicks-ticket-garden.html
+
+**Trump Threatens More Strikes Against Iran, Citing Stalled Peace Talks**\
+`With no end to the turmoil in the Middle East, the U.N. secretary general lamented that a cease-fire had become “more like a lesser-fire.”`\
+https://www.nytimes.com/2026/06/10/world/middleeast/us-iran-strikes.html
+
 **Hong Kong Files Charges Over Fire That Killed 168 People**\
 `The Hong Kong government announced on Wednesday that it charged seven people and two companies following an investigation into the deadly fire at the Wang Fuk Court apartment complex in November 2025.`\
 https://www.nytimes.com/video/world/asia/100000010958332/hong-kong-apartment-fire-charges.html
