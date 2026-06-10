@@ -1,3 +1,11 @@
+**La OPI de SpaceX hará millonarios a 4400 de sus empleados**\
+`Elon Musk podría convertirse pronto en un billonario, pero la salida a bolsa de su empresa de cohetes también extenderá una riqueza inesperada a miles de sus empleados y exempleados.`\
+https://www.nytimes.com/es/2026/06/10/espanol/negocios/opi-spacex-bolsa-empleados.html
+
+**Pope Leo Blesses the Sagrada Familia**\
+`Pope Leo XIV inaugurated the Sagrada Familia basilica’s newly completed central tower on Wednesday.`\
+https://www.nytimes.com/video/world/europe/100000010958149/pope-leo-blesses-the-sagrada-familia.html
+
 **Storms Knock Out Power for Hundreds of Thousands in the Midwest**\
 `Forecasters warned that destructive storms were expected across the region into Wednesday night.`\
 https://www.nytimes.com/2026/06/10/weather/storms-illinois-wisconsin-tornado-power-outages.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/es/2026/06/10/espanol/mundo/trump-renovar-t-mec.html
 **FISA Surveillance Law May Expire After Trump Picks Bill Pulte for Intel Post**\
 `Republicans are struggling to extend a powerful surveillance authority set to lapse this weekend after President Trump alienated lawmakers with his choice of acting spy chief.`\
 https://www.nytimes.com/2026/06/10/us/politics/trump-bill-pulte-spy-law.html
-
-**Noma Will Reopen With René Redzepi as Creative Director**\
-`After reports of abuse in decades past and a pop-up in Los Angeles, the former “Best Restaurant in the World” returns to Copenhagen.`\
-https://www.nytimes.com/2026/06/10/dining/noma-reopening-copenhagen-rene-redzepi.html
-
-**El secretario de Defensa de EE. UU. visita Guantánamo**\
-`El viaje del secretario Pete Hegseth se produce en un momento en que el gobierno de Trump presiona para que se produzcan cambios políticos y económicos en Cuba.`\
-https://www.nytimes.com/es/2026/06/10/espanol/estados-unidos/hegseth-guantanamo-cuba.html
 
 **World Cup Updates: U.S. Immigration Policies Turn Some Fans and Participants Away**\
 `(No description)`\

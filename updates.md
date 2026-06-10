@@ -1,3 +1,11 @@
+**La OPI de SpaceX hará millonarios a 4400 de sus empleados**\
+`Elon Musk podría convertirse pronto en un billonario, pero la salida a bolsa de su empresa de cohetes también extenderá una riqueza inesperada a miles de sus empleados y exempleados.`\
+https://www.nytimes.com/es/2026/06/10/espanol/negocios/opi-spacex-bolsa-empleados.html
+
+**Pope Leo Blesses the Sagrada Familia**\
+`Pope Leo XIV inaugurated the Sagrada Familia basilica’s newly completed central tower on Wednesday.`\
+https://www.nytimes.com/video/world/europe/100000010958149/pope-leo-blesses-the-sagrada-familia.html
+
 **Suspect in the Killing of a Minnesota Lawmaker Strikes a Plea Deal**\
 `The arrangement means that Vance Boelter will not face the death penalty after being charged with killing Melissa Hortman and her husband, Mark.`\
 https://www.nytimes.com/2026/06/10/us/vince-boelter-plea-deal.html
