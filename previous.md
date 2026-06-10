@@ -1,3 +1,7 @@
+**Antonio Gracias, Elon Musk’s Friend, Is Set to Reap Billions From SpaceX’s IPO**\
+`Antonio Gracias, an investor who has built a $65 billion stake in the company, exemplifies the economic upside of being Mr. Musk’s ally.`\
+https://www.nytimes.com/2026/06/10/technology/antonio-gracias-elon-musk-spacex.html
+
 **Cultivating a New Generation of Readers and a Love of Books**\
 `Readers respond to “Make America Read Again,” an Opinion guest essay by Brian Bannon. Also: Choosing Graham Platner; fading bank tellers.`\
 https://www.nytimes.com/2026/06/10/opinion/reading-books.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/10/crosswords/connections-companion-1096.html
 **NYT Strands Hints for June 11, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, June 11, 2026.`\
 https://www.nytimes.com/2026/06/10/crosswords/strands-sidekick-830.html
-
-**Today’s Wordle Hints for June 11, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, June 11, 2026.`\
-https://www.nytimes.com/2026/06/10/crosswords/wordle-review-1818.html
 

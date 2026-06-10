@@ -1,3 +1,7 @@
+**Trump Says He May Not Renew Canada-Mexico Trade Deal**\
+`The president’s comments come at a crucial moment in talks between the three countries over the renewal of their free-trade agreement.`\
+https://www.nytimes.com/2026/06/10/world/canada/trump-canada-mexico-trade-deal-usmca.html
+
 **Antonio Gracias, Elon Musk’s Friend, Is Set to Reap Billions From SpaceX’s IPO**\
 `Antonio Gracias, an investor who has built a $65 billion stake in the company, exemplifies the economic upside of being Mr. Musk’s ally.`\
 https://www.nytimes.com/2026/06/10/technology/antonio-gracias-elon-musk-spacex.html
@@ -174,8 +178,8 @@ https://www.nytimes.com/2026/06/10/business/dealbook/cpi-inflation-surprise.html
 `The five-year-old company is now valued at $12 billion.`\
 https://www.nytimes.com/2026/06/10/business/dealbook/cyera-ai-cybersecurity-funding.html
 
-**What to know about the report.**\
-`(No description)`\
+**Inflation Accelerates to Fastest Pace in 3 Years as Energy Prices Bite**\
+`Companies appear hesitant to pass those price increases on to weary consumers, whose wages aren’t keeping up.`\
 https://www.nytimes.com/2026/06/10/business/economy/inflation-consumer-price-index.html
 
 **Live Updates: Inflation Jumps as Iran War Intensifies Price Squeeze**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/10/podcasts/the-daily/the-iran-wars-aid-cuts-som
 **NYT Connections Answers for June 11, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, June 11, 2026.`\
 https://www.nytimes.com/2026/06/10/crosswords/connections-companion-1096.html
-
-**NYT Strands Hints for June 11, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, June 11, 2026.`\
-https://www.nytimes.com/2026/06/10/crosswords/strands-sidekick-830.html
 
