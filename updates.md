@@ -1,3 +1,7 @@
+**Pro-Palestinian Activists at U. of Michigan Indicted on Federal Conspiracy Charges**\
+`The new charges appeared to signify a shift in the federal government’s approach to campus activism.`\
+https://www.nytimes.com/2026/06/10/us/university-michigan-pro-palestinian-activists-indicted.html
+
 **Bill Gates Says Epstein Tried To Use His Extramarital Affairs Against Him**\
 `The billionaire philanthropist testified on Wednesday in a closed-door congressional hearing about the Justice Department’s investigation of Jeffrey Epstein.`\
 https://www.nytimes.com/2026/06/10/business/bill-gates-epstein-testimony.html

@@ -1,3 +1,7 @@
+**En vísperas de la Copa Mundial, la política migratoria de EE. UU. deja a algunos fuera**\
+`Algunos aficionados y participantes que esperaban viajar para el Mundial se han quejado de las restrictivas normas para visitar uno de los países anfitriones.`\
+https://www.nytimes.com/es/2026/06/10/espanol/mundo/mundial-migracion.html
+
 **Bill Gates Says Epstein Tried To Use His Extramarital Affairs Against Him**\
 `The billionaire philanthropist testified on Wednesday in a closed-door congressional hearing about the Justice Department’s investigation of Jeffrey Epstein.`\
 https://www.nytimes.com/2026/06/10/business/bill-gates-epstein-testimony.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/10/world/europe/belfast-attack-riots-what-happen
 **The Impossible Path Forward for Women in Politics**\
 `Republicans have spent years disparaging all things associated with women. Now Democrats are following suit.`\
 https://www.nytimes.com/2026/06/10/opinion/republicans-democrats-women-ambition.html
-
-**My Sister-in-Law Made an Indecent Suggestion After a Night of Drinking. Help!**\
-`A reader is unsure whether to tell his wife about her sister’s drunken musings, including an imagined scenario in which they might rekindle their long-ago love affair.`\
-https://www.nytimes.com/2026/06/10/style/indiscreet-comments-drunkenness-affairs.html
 
 **Inflation Jumps as Iran War Intensifies Price Squeeze**\
 `Consumer prices rose at a faster rate for a third-straight month in May, to 4.2 percent annually, as the energy shock put more pressure on the U.S. economy.`\
