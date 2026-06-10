@@ -1,3 +1,7 @@
+**Republican Primary for Open Congressional Race in South Carolina Heads to Runoff**\
+`The largely coastal district has voted overwhelmingly Republican in recent elections. Representative Nancy Mace ran unsuccessfully for governor instead of seeking re-election to the seat.`\
+https://www.nytimes.com/2026/06/09/us/politics/jenny-honeycutt-mace-south-carolina.html
+
 **Trump’s Sharp Turn on China: Embracing It as a Peer Power**\
 `President Trump’s warming with Xi Jinping of China, a leader he admires, has ignited anxieties in Washington and across Asia.`\
 https://www.nytimes.com/2026/06/09/us/politics/trump-china-taiwan.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/06/09/nyregion/nyc-street-parking.html
 **Tensions Flare in the Middle East as Cease-Fire Falters**\
 `President Trump blamed Iran for shooting down a U.S. helicopter near the Strait of Hormuz and vowed to retaliate, while Israel launched a new wave of strikes on southern Lebanon on Tuesday.`\
 https://www.nytimes.com/video/world/middleeast/100000010954773/lebanon-israeli-strikes-trump-iran-helicopter.html
-
-**U.S. Strikes Iran After Trump Vows to Retaliate for Downed Helicopter**\
-`The retaliatory U.S. attacks came on Tuesday as Israeli forces pounded southern Lebanon while targeting Hezbollah.`\
-https://www.nytimes.com/2026/06/09/world/middleeast/trump-iran-us-military-helicopter.html
 
