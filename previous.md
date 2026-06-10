@@ -1,3 +1,15 @@
+**Could Control of Congress Run Through Northern Maine?**\
+`The state’s vast rural areas, which make up the swing Second Congressional District, will be important in November.`\
+https://www.nytimes.com/2026/06/10/us/politics/maine-second-district.html
+
+**Will Trump’s Repairs to Washington D.C.’s Reflecting Pool Work?**\
+`President Trump has said that construction is complete. Now comes the real test. Will the longstanding problems finally be solved?`\
+https://www.nytimes.com/2026/06/10/us/politics/trump-dc-reflecting-pool-repairs.html
+
+**They Tried To Catch a Child Predator on a Livestream. They Trapped Themselves Instead.**\
+`What happened when livestreaming vigilantes ambushed an innocent man.`\
+https://www.nytimes.com/2026/06/10/technology/predator-catcher-vitaly-mistake.html
+
 **TK**\
 `Tk`\
 https://static01.nyt.com/slideshow/2026/06/10/t-magazine/tk.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/10/world/europe/belfast-attack-riots-northern-ir
 **El entusiasmo por el álbum Panini revive en cada Mundial de fútbol**\
 `Los álbumes de cromos del Mundial han cautivado a niños y adultos en Argentina, en una fiebre coleccionista que parece inmune a la revolución digital.`\
 https://www.nytimes.com/es/2026/06/10/espanol/america-latina/album-panini-cromos.html
-
-**Need a U.S. Visa and Want to Skip a 12-Month Line? That’ll Be $750**\
-`A new fast-track program will allow certain visa applicants to pay a premium and secure an interview within 10 business days.`\
-https://www.nytimes.com/2026/06/10/travel/expedited-tourist-visa.html
-
-**On the Eve of the World Cup, U.S. Immigration Policy Turns Some Away**\
-`Some fans and participants hoping to enter the United States for the World Cup have complained that restrictive immigration rules have presented a roadblock.`\
-https://www.nytimes.com/2026/06/10/world/americas/world-cup-immigration-problems.html
-
-**El ataque de Irán a Israel fue una decisión calculada**\
-`Los líderes iraníes quieren demostrar que se toman en serio la defensa de sus aliados de Hizbulá en Líbano y quieren mantener el equilibrio de poder en la región, según los analistas.`\
-https://www.nytimes.com/es/2026/06/10/espanol/mundo/iran-israel-libano-ataques.html
 

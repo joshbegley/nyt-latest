@@ -1,3 +1,15 @@
+**Could Control of Congress Run Through Northern Maine?**\
+`The state’s vast rural areas, which make up the swing Second Congressional District, will be important in November.`\
+https://www.nytimes.com/2026/06/10/us/politics/maine-second-district.html
+
+**Will Trump’s Repairs to Washington D.C.’s Reflecting Pool Work?**\
+`President Trump has said that construction is complete. Now comes the real test. Will the longstanding problems finally be solved?`\
+https://www.nytimes.com/2026/06/10/us/politics/trump-dc-reflecting-pool-repairs.html
+
+**They Tried To Catch a Child Predator on a Livestream. They Trapped Themselves Instead.**\
+`What happened when livestreaming vigilantes ambushed an innocent man.`\
+https://www.nytimes.com/2026/06/10/technology/predator-catcher-vitaly-mistake.html
+
 **Gulf Arab nations condemn new Iranian attacks on Bahrain and Kuwait.**\
 `(No description)`\
 https://www.nytimes.com/2026/06/10/world/middleeast/gulf-arab-nations-condemn-new-iranian-attacks-on-bahrain-and-kuwait.html
