@@ -1,200 +1,196 @@
-**Diljeet Dosanjh Taylor, B.Y.U. Track Coach, Won’t Change for Her ‘Haters’**\
-`Diljeet Dosanjh Taylor, an outspoken feminist in Mormon country, has helped make Brigham Young University into a running powerhouse.`\
-https://www.nytimes.com/2026/06/10/style/diljeet-taylor-byu-track-coach.html
+**Graham Platner Tucked in His Shirt on Primary Night**\
+`On election night, the Democratic candidate from Maine wore a button-up, a deviation from the candidate’s unvarnished image.`\
+https://www.nytimes.com/2026/06/10/style/graham-platner-primary-style.html
 
-**Senior Russian Military Official Is Killed in Car Explosion Near Moscow**\
-`The death of the officer appeared to add to a string of targeted assassinations of high-profile opponents of Ukraine inside Russia.`\
-https://www.nytimes.com/2026/06/10/world/europe/russia-moscow-car-bomb.html
+**Nearly Everyone, Everywhere, Veers Left When Walking**\
+`Researchers are at a loss for why people across cultures and ages, regardless of their dominant hand, have a natural bias toward wandering in a counterclockwise direction.`\
+https://www.nytimes.com/2026/06/10/science/humans-walking-veer-left-counterclockwise.html
 
-**Why Complete Election Results in Maine Could Take More Than a Week**\
-`Winners in the Republican and Democratic primary races for governor and in a Democratic congressional primary have not yet been determined.`\
-https://www.nytimes.com/2026/06/10/us/politics/maine-slow-vote-count.html
+**Mace Defeat Heralds an Exodus of Rabble-Rousers From Congress**\
+`The Republican congresswoman from South Carolina, who made enemies on both sides of the political aisle, is just one of several flashy lawmakers to be leaving Capitol Hill.`\
+https://www.nytimes.com/2026/06/10/us/politics/nancy-mace-congress-south-carolina.html
 
-**Violence in Belfast After Brutal Stabbing Attack: What to Know**\
-`There was unrest in Belfast and elsewhere after video of a brutal stabbing circulated online, amplified by far-right activists.`\
-https://www.nytimes.com/2026/06/10/world/europe/belfast-attack-riots-what-happened.html
+**The Good List: 6 Things to Add Joy to Your Day**\
+`Dancing pigeons, mystery stew and a nostalgia machine.`\
+https://www.nytimes.com/2026/06/10/briefing/the-good-list-pigeons-knicks.html
 
-**The Impossible Path Forward for Women in Politics**\
-`Republicans have spent years disparaging all things associated with women. Now Democrats are following suit.`\
-https://www.nytimes.com/2026/06/10/opinion/republicans-democrats-women-ambition.html
+**Texas Governor Seeks New Limits on Data Centers**\
+`Gov. Greg Abbott is urging tighter controls and a repeal of financial incentives for data centers, which have drawn complaints in rural Republican areas of Texas.`\
+https://www.nytimes.com/2026/06/10/us/texas-abbott-data-centers-regulation.html
 
-**My Sister-in-Law Made an Indecent Suggestion After a Night of Drinking. Help!**\
-`A reader is unsure whether to tell his wife about her sister’s drunken musings, including an imagined scenario in which they might rekindle their long-ago love affair.`\
-https://www.nytimes.com/2026/06/10/style/indiscreet-comments-drunkenness-affairs.html
+**Mamdani’s Nosebleed Knicks Ticket and the Benefits of Being Mayor**\
+`Mayor Zohran Mamdani paid roughly $1,000 for a standing-room-only ticket to Game 3 of the N.B.A. finals, using access to house tickets not available to regular fans.`\
+https://www.nytimes.com/2026/06/10/nyregion/mamdani-knicks-ticket-garden.html
 
-**Drinking Water Facilities Hit by Strikes in Iran, State Media Reports**\
-`Two water tanks serving thousands of people were damaged, the local authorities said. The U.S. military declined to comment.`\
-https://www.nytimes.com/2026/06/10/world/middleeast/drinking-water-facilities-hit-by-strikes-in-iran-state-media-reports.html
+**Trump Threatens More Strikes Against Iran, Citing Stalled Peace Talks**\
+`With no end to the turmoil in the Middle East, the U.N. secretary general lamented that a cease-fire had become “more like a lesser-fire.”`\
+https://www.nytimes.com/2026/06/10/world/middleeast/us-iran-strikes.html
 
-**Indian Sailors Made Frantic Calls for Help After U.S. Missile Strike off Oman**\
-`The 24 crew members were stranded for more than two hours before being rescued by an Omani military helicopter. The U.S. military said that the ship had violated its blockade of Iran.`\
-https://www.nytimes.com/2026/06/10/world/middleeast/indian-sailors-rescued-us-missile-ship-oman.html
+**Hong Kong Files Charges Over Fire That Killed 168 People**\
+`The Hong Kong government announced on Wednesday that it charged seven people and two companies following an investigation into the deadly fire at the Wang Fuk Court apartment complex in November 2025.`\
+https://www.nytimes.com/video/world/asia/100000010958332/hong-kong-apartment-fire-charges.html
 
-**ActBlue C.E.O. Invokes Fifth Amendment Repeatedly in Testimony to Congress**\
-`The head of the Democratic fund-raising behemoth declined to answer questions from House Republicans about reports that she may have misled Congress over how her group vetted foreign donations.`\
-https://www.nytimes.com/2026/06/10/us/politics/actblue-fifth-amendment-congress.html
+**F.B.I. Searches California Plant Where Chemical Tank Nearly Exploded**\
+`Federal agents were looking for records that might shed light on why chemicals overheated, threatening a catastrophe in Orange County.`\
+https://www.nytimes.com/2026/06/10/us/fbi-search-orange-county-chemical-tank.html
 
-**Somali World Cup Referee Denied Entry to U.S. Returns Home to Hero’s Welcome**\
-`Omar Abdulkadir Artan, who is widely admired in his home country, would have been the first Somali to referee a World Cup game.`\
-https://www.nytimes.com/2026/06/10/world/africa/somalia-referee-world-cup-artan.html
+**Hundreds of Kenyans Protest U.S. Ebola Unit**\
+`Protesters opposed an Ebola quarantine facility in Kenya on Tuesday that would be reserved exclusively for U.S. citizens.`\
+https://www.nytimes.com/video/world/africa/100000010957717/us-ebola-quarantine-unit-protest-kenya.html
 
-**Markets Brace for an Inflation Surprise**\
-`New data is putting investors on edge, especially over the prospect that the Federal Reserve may raise interest rates to blunt rising prices.`\
-https://www.nytimes.com/2026/06/10/business/dealbook/cpi-inflation-surprise.html
+**Disturbios en Irlanda del Norte: lo que hay que saber**\
+`Un brutal apuñalamiento ocurrido en Belfast esta semana ha avivado el sentimiento antimigrantes que ya estaba latente.`\
+https://www.nytimes.com/es/2026/06/10/espanol/mundo/irlanda-norte-disturbios-belfast.html
 
-**Cyera, a Cybersecurity Start-up for the A.I. Era, Raises $600 Million**\
-`The five-year-old company is now valued at $12 billion.`\
-https://www.nytimes.com/2026/06/10/business/dealbook/cyera-ai-cybersecurity-funding.html
+**Russian Military Official Killed in Car Explosion Near Moscow**\
+`A senior Russian military officer was killed in a car explosion on Tuesday, a Ukrainian official and Russian media outlets said. The incident appears to be the latest targeted assassination of high-profile opponents of Ukraine in Russia.`\
+https://www.nytimes.com/video/world/europe/100000010958164/russia-military-official-killed-car-bomb.html
 
-**Inflation Accelerates to Fastest Pace in 3 Years as Energy Prices Bite**\
-`Companies appear hesitant to pass those price increases on to weary consumers, whose wages aren’t keeping up.`\
-https://www.nytimes.com/2026/06/10/business/economy/inflation-consumer-price-index.html
+**Trump Officials Say ICE Won’t Raid World Cup Games, but Fans Are Worried**\
+`Federal agents are there for security, not immigration enforcement, officials say. But trust is fragile after the administration’s recent crackdowns.`\
+https://www.nytimes.com/2026/06/10/us/world-cup-ice-immigration-enforcement.html
 
-**You Asked**\
-`We’re answering reader questions.`\
-https://www.nytimes.com/2026/06/10/briefing/reader-questions-answers.html
+**A.I. Chatbot Helps a $100 Thrift Store Painting Sell for Over $250,000**\
+`When a son got curious about the origins of a painting his mother bought at a secondhand shop decades ago, Google Gemini had some intriguing thoughts.`\
+https://www.nytimes.com/2026/06/10/arts/design/ai-gemini-thrift-store-painting-sale.html
 
-**The Iran War’s Devastating Butterfly Effect**\
-`The effective closure of the Strait of Hormuz has increased the prices of critical goods as hunger rises in scores of poor and unstable countries.`\
-https://www.nytimes.com/2026/06/10/podcasts/the-daily/the-iran-wars-aid-cuts-somalia.html
+**Southern Baptists Move to Strengthen Ban on Women Pastors**\
+`The amendment passed easily at the denomination’s annual gathering. It needs approval again next year to enter the constitution.`\
+https://www.nytimes.com/2026/06/10/us/sbc-southern-baptist-convention.html
 
-**NYT Connections Answers for June 11, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, June 11, 2026.`\
-https://www.nytimes.com/2026/06/10/crosswords/connections-companion-1096.html
+**Former Officer Pleads Guilty to Having Sex With Woman He Arrested**\
+`The New York Police Department officer, who resigned in December, also admitted to sending inappropriate texts to crime victims.`\
+https://www.nytimes.com/2026/06/10/nyregion/nypd-officer-inappropriate-messages-victims.html
 
-**NYT Strands Hints for June 11, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, June 11, 2026.`\
-https://www.nytimes.com/2026/06/10/crosswords/strands-sidekick-830.html
+**‘X-Men’ Actor Tyler Mane Says He Has Breast Cancer**\
+`Tyler Mane said he was initially embarrassed to divulge the diagnosis but wanted to encourage other men to look out for the disease.`\
+https://www.nytimes.com/2026/06/10/us/tyler-mane-male-breast-cancer.html
 
-**Today’s Wordle Hints for June 11, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, June 11, 2026.`\
-https://www.nytimes.com/2026/06/10/crosswords/wordle-review-1818.html
+**Indonesian Military Court Sentences Four in Acid Attack on Rights Advocate**\
+`The victim is an outspoken critic of Indonesia’s powerful military, and military prosecutors took over the case despite his objections.`\
+https://www.nytimes.com/2026/06/10/world/asia/indonesia-military-acid-attack-andrie.html
 
-**Stray Drones Are Setting Off Alarms in Europe, and the U.S. Deports a World Cup Referee**\
-`Plus, why Americans are clamoring for European sunscreen.`\
-https://www.nytimes.com/2026/06/10/podcasts/the-headlines/europe-drones-world-cup-referee.html
+**En vísperas de la Copa Mundial, la política migratoria de EE. UU. deja a algunos fuera**\
+`Algunos aficionados y participantes que esperaban viajar para el Mundial se han quejado de las restrictivas normas para visitar uno de los países anfitriones.`\
+https://www.nytimes.com/es/2026/06/10/espanol/mundo/mundial-migracion.html
 
-**Pope Leo Is Blessing the Sagrada Familia in Barcelona. To Some, the Church Is a Curse.**\
-`The pontiff celebrated a Mass in Antoni Gaudí’s iconic, unfinished basilica during his Spain trip. But for some Barcelona residents, completing the construction could mean knocking down their homes.`\
-https://www.nytimes.com/2026/06/10/world/europe/pope-leo-sagrada-familia-barcelona-visit.html
+**Bill Gates Says Epstein Tried to Use His Extramarital Affairs Against Him**\
+`The billionaire philanthropist testified on Wednesday in a closed-door congressional hearing about the Justice Department’s investigation of Jeffrey Epstein.`\
+https://www.nytimes.com/2026/06/10/business/bill-gates-epstein-testimony.html
 
-**El giro radical de Trump respecto a China: aceptarla como una potencia igual**\
-`El acercamiento del presidente Trump a Xi Jinping, de China, un líder al que admira, ha despertado inquietudes en Washington y en toda Asia.`\
-https://www.nytimes.com/es/2026/06/10/espanol/mundo/trumps-china-taiwan.html
+**Trump dice que podría no renovar el T-MEC**\
+`Los comentarios del presidente llegan en un momento crucial de las negociaciones entre Canadá, México y EE. UU. sobre la renovación de su tratado de libre comercio.`\
+https://www.nytimes.com/es/2026/06/10/espanol/mundo/trump-renovar-t-mec.html
 
-**Carriage Horse Dies in Central Park After Medical Episode, Police Say**\
-`The death of a 16-year-old male named Deniz quickly added fuel to a running debate over whether New York City should ban horse-drawn carriages.`\
-https://www.nytimes.com/2026/06/10/nyregion/central-park-carriage-horse-dead.html
+**FISA Surveillance Law May Expire After Trump Picks Bill Pulte for Intel Post**\
+`Republicans are struggling to extend a powerful surveillance authority set to lapse this weekend after President Trump alienated lawmakers with his choice of acting spy chief.`\
+https://www.nytimes.com/2026/06/10/us/politics/trump-bill-pulte-spy-law.html
 
-**Oil Rises on Trump’s Iran Threats and New Strikes Across Middle East**\
-`The attacks, which strained a two-month cease-fire between Iran and the United States, were the latest jolt to energy markets.`\
-https://www.nytimes.com/2026/06/10/business/oil-stocks-gas-prices-iran.html
+**Noma Will Reopen With René Redzepi as Creative Director**\
+`After reports of abuse in decades past and a pop-up in Los Angeles, the former “Best Restaurant in the World” returns to Copenhagen.`\
+https://www.nytimes.com/2026/06/10/dining/noma-reopening-copenhagen-rene-redzepi.html
 
-**Severe Storms Forecast: Illinois, Wisconsin, Minnesota and Iowa Could See Tornadoes Today**\
-`A large area that includes Chicago and Milwaukee is at risk of tornadoes and strong winds as storms move through.`\
-https://www.nytimes.com/2026/06/10/weather/chicago-minneapolis-storms-tornadoes-midwest.html
+**El secretario de Defensa de EE. UU. visita Guantánamo**\
+`El viaje del secretario Pete Hegseth se produce en un momento en que el gobierno de Trump presiona para que se produzcan cambios políticos y económicos en Cuba.`\
+https://www.nytimes.com/es/2026/06/10/espanol/estados-unidos/hegseth-guantanamo-cuba.html
 
-**Night of Violence Grips Belfast After Stabbing Attack**\
-`Cars and a bus were set on fire and families were driven from their homes after a stabbing caused tensions to spill onto the streets.`\
-https://www.nytimes.com/2026/06/10/world/europe/belfast-attack-riots-northern-ireland.html
+**NASA Crew-12 Commander Captures Snaky Southern Lights From Space Station**\
+`The footage of the southern lights was shared on Sunday by Jessica Meir, commander of NASA’s Crew-12 mission.`\
+https://www.nytimes.com/2026/06/10/science/jessica-meir-aurora-southern-lights-space-video.html
 
-**El entusiasmo por el álbum Panini revive en cada Mundial de fútbol**\
-`Los álbumes de cromos del Mundial han cautivado a niños y adultos en Argentina, en una fiebre coleccionista que parece inmune a la revolución digital.`\
-https://www.nytimes.com/es/2026/06/10/espanol/america-latina/album-panini-cromos.html
+**Strict Security Around MSG Is Back for Knicks Game 4**\
+`Several blocks around Madison Square Garden will be closed to most people Wednesday afternoon. The city approved a ticketed watch party, though it was unclear whether it would take place.`\
+https://www.nytimes.com/2026/06/10/nyregion/knicks-security-game-4-msg.html
 
-**Need a U.S. Visa and Want to Skip a 12-Month Line? That’ll Be $750**\
-`A new fast-track program will allow certain visa applicants to pay a premium and secure an interview within 10 business days.`\
-https://www.nytimes.com/2026/06/10/travel/expedited-tourist-visa.html
+**Trump Shrugs Off High Prices Amid Iran War and Says ‘I Love the Inflation’**\
+`As inflation outpaces workers’ wages, the Trump administration insists that its agenda is working.`\
+https://www.nytimes.com/2026/06/10/business/economy/trump-inflation-iran-war.html
 
-**On the Eve of the World Cup, U.S. Immigration Policy Turns Some Away**\
-`Some fans and participants hoping to enter the United States for the World Cup have complained that restrictive immigration rules have presented a roadblock.`\
-https://www.nytimes.com/2026/06/10/world/americas/world-cup-immigration-problems.html
+**The Violence Decline Isn’t Evenly Distributed**\
+`Our colleagues at Chalkbeat Philadelphia dive into the numbers.`\
+https://www.nytimes.com/2026/06/10/headway/shootings-youth-violence-prevention-philadelphia.html
 
-**El ataque de Irán a Israel fue una decisión calculada**\
-`Los líderes iraníes quieren demostrar que se toman en serio la defensa de sus aliados de Hizbulá en Líbano y quieren mantener el equilibrio de poder en la región, según los analistas.`\
-https://www.nytimes.com/es/2026/06/10/espanol/mundo/iran-israel-libano-ataques.html
+**Read the Charges Against 8 People Connected to the University of Michigan**\
+`The federal charges include conspiracy to transmit threats and witness intimidation.`\
+https://www.nytimes.com/interactive/2026/06/10/us/federal-charges-university-of-michigan-pro-palestinian-protest.html
 
-**The White House Panic Over the Epstein Files: Six Takeaways From the New York Times Investigation**\
-`Senior officials clashed in a series of meetings as they struggled to manage a crisis over the president’s refusal to release the documents.`\
-https://www.nytimes.com/2026/06/10/magazine/epstein-files-trump-white-house-takeaways.html
+**Trump Says He’s ‘Not Looking to Renew’ Canada-Mexico Trade Deal**\
+`The president’s comments come at a crucial moment in talks among the three countries over the renewal of their free-trade agreement.`\
+https://www.nytimes.com/2026/06/10/world/canada/trump-canada-mexico-trade-deal-usmca.html
 
-**California’s Excuses Are Damaging Faith in Government**\
-`Taking a week to count votes is doing it wrong.`\
-https://www.nytimes.com/2026/06/10/opinion/california-slow-vote-primary.html
+**Antonio Gracias, Elon Musk’s Friend, Is Set to Reap Billions From SpaceX’s IPO**\
+`Antonio Gracias, an investor who has built a $65 billion stake in the company, exemplifies the economic upside of being Mr. Musk’s ally.`\
+https://www.nytimes.com/2026/06/10/technology/antonio-gracias-elon-musk-spacex.html
 
-**Republicans Thought They Owned ‘Values.’ Not Anymore.**\
-`A new politics of morality is rising in the Democratic Party.`\
-https://www.nytimes.com/2026/06/10/opinion/democrats-politics-morality-values.html
+**Cultivating a New Generation of Readers and a Love of Books**\
+`Readers respond to “Make America Read Again,” an Opinion guest essay by Brian Bannon. Also: Choosing Graham Platner; fading bank tellers.`\
+https://www.nytimes.com/2026/06/10/opinion/reading-books.html
 
-**Trial Begins for Man Accused of Sparking Palisades Fire**\
-`Opening statements began Wednesday in the case of the man prosecutors say was enthralled by fire and resentful toward the rich.`\
-https://www.nytimes.com/2026/06/10/us/jonathan-rinderknecht-palisades-fire-trial.html
+**Trump-Backed Air Force Veteran Wins Republican House Primary in Nevada**\
+`David Flippo won his party’s nomination for a safely Republican open seat, defeating a candidate backed by the G.O.P. governor.`\
+https://www.nytimes.com/2026/06/10/us/politics/flippo-trump-nevada-republicans-house.html
 
-**The Supreme Court Doesn’t Own the Constitution**\
-`It starts with “We the people” for a reason.`\
-https://www.nytimes.com/2026/06/10/opinion/constitution-supreme-court-popular-sovereignty.html
+**Tiny Love Stories: ‘The “Right” Answers in Life’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/06/10/style/tiny-modern-love-stories-the-right-answers-in-life.html
 
-**Modern Love Laverne Cox On Her Relationships**\
-`The actor always knew what she wanted. Getting there was more complicated.`\
-https://www.nytimes.com/2026/06/10/podcasts/modernlove-laverne-cox-is-ready-to-tell-the-truth-even-if-its-messy.html
+****\
+`The NASA astronaut Jessica Meir shared a time-lapse video of the glowing green southern lights from space.`\
+https://www.nytimes.com/video/embedded/science/space/100000010957977/southern-lights-nasa.html
 
-**Laverne Cox Is Ready to Tell the Truth. Even if It’s Messy.**\
-`The actor always knew what she wanted. Getting there was more complicated.`\
-https://www.nytimes.com/video/podcasts/100000010956300/laverne-cox-is-ready-to-tell-the-truth-even-if-its-messy.html
+**Pro-Palestinian Activists at U. of Michigan Indicted on Federal Conspiracy Charges**\
+`The new charges appeared to signify an escalation in the federal government’s approach to campus activism.`\
+https://www.nytimes.com/2026/06/10/us/university-michigan-pro-palestinian-activists-indicted.html
 
-**The Knicks Are Hogging the Spotlight. Spurs Fans Aren’t Impressed.**\
-`As New York basks in the attention of a long-awaited N.B.A. finals run, many San Antonians say the Spurs, and the city they represent, are being underestimated.`\
-https://www.nytimes.com/2026/06/10/us/san-antonio-spurs-fans.html
+**My Father Abused My Sister When We Were Kids. Should I Tell My Half Siblings?**\
+`I want them to grasp the differences between the two families he created.`\
+https://www.nytimes.com/2026/06/10/magazine/father-abuse-half-siblings-ethics.html
 
-**The A.I. Bubble Is Coming for Your Retirement Account**\
-`The public is about to buy into A.I.’s trillion-dollar promises. Are they worth the price?`\
-https://www.nytimes.com/2026/06/10/opinion/ai-ipo-openai-anthropic.html
+**Soccer Referee Receives Hero’s Welcome in Somalia After U.S. Denies Him Entry**\
+`Omar Abdulkadir Artan was admired in Somalia long before he was selected to be the first Somali referee at the World Cup. After being denied entry into the U.S. to participate as a referee in the World Cup, Artan received a hero’s welcome upon returning home on Wednesday.`\
+https://www.nytimes.com/video/sports/soccer/100000010957547/omar-abdulkadir-artan-welcome-somalia-world-cup-ban.html
 
-**SpaceX IPO: What You Need to Know**\
-`As the company prepares for its stock market debut, here’s what the initial public offering means for banks, Elon Musk and everyday investors.`\
-https://www.nytimes.com/2026/06/10/business/spacex-ipo-what-to-know.html
+**Could Control of Congress Run Through Northern Maine?**\
+`The state’s vast rural areas, which make up the swing Second Congressional District, will be important in November.`\
+https://www.nytimes.com/2026/06/10/us/politics/maine-second-district.html
 
-**Graham Platner’s Victory in Maine Senate Primary Gives Democrats Hope and Fears**\
-`Graham Platner’s primary victory sets up a high-stakes contest between an insurgent progressive with political baggage and a battle-tested but vulnerable Republican senator.`\
-https://www.nytimes.com/2026/06/10/us/politics/senate-control-maine.html
+**Will Trump’s Repairs to Washington D.C.’s Reflecting Pool Work?**\
+`President Trump has said that construction is complete. Now comes the real test. Will the longstanding problems finally be solved?`\
+https://www.nytimes.com/2026/06/10/us/politics/trump-dc-reflecting-pool-repairs.html
 
-**In ‘Widow’s Bay,’ History Is Hard to Kill**\
-`The season’s best new show is a horror-comedy rooted in a timely idea: Is the past a treasure to preserve or a monster to escape?`\
-https://www.nytimes.com/2026/06/10/arts/television/widows-bay-review.html
+**They Tried To Catch a Child Predator on a Livestream. They Trapped Themselves Instead.**\
+`What happened when livestreaming vigilantes ambushed an innocent man.`\
+https://www.nytimes.com/2026/06/10/technology/predator-catcher-vitaly-mistake.html
 
-**100 Guitars’ Worth of Glenn Branca’s Violent Ecstasy**\
-`At Lincoln Center, the guitarist Reg Bloor, Branca’s widow, will conduct his music for the first time: “Symphony No. 13 (Hallucination City) for 100 Guitars.”`\
-https://www.nytimes.com/2026/06/10/arts/music/glenn-branca-100-guitars-reg-bloor.html
+**TK**\
+`Tk`\
+https://static01.nyt.com/slideshow/2026/06/10/t-magazine/tk.html
 
-**A Street Called Jimi Hendrix Way**\
-`Today brings changes to New York’s cityscape, including 900 candelabras at Lincoln Center and a co-name for West Eighth Street.`\
-https://www.nytimes.com/2026/06/10/nyregion/a-street-called-jimi-hendrix-way.html
+**Hegseth Visits Guantánamo Bay Amid U.S. Tensions With Cuba**\
+`The trip comes as the Trump administration pushes for political and economic changes on the island.`\
+https://www.nytimes.com/2026/06/10/us/politics/hegseth-guantanamo-bay-cuba.html
 
-**Why the Real A.I. Threat Is in the Back Office**\
-`As artificial intelligence spreads, millions of middle-class jobs in human resources, billing and payroll could be at risk. Most are held by women.`\
-https://www.nytimes.com/2026/06/10/business/economy/back-office-workers-ai.html
+**How Trump Weaponized the Antiwar Platform**\
+`Matt Duss, the executive vice president at the Center for International Policy, joins “The Ezra Klein Show” to discuss how President Trump successfully weaponized an antiwar platform that Democrats abandoned.`\
+https://www.nytimes.com/video/opinion/100000010948157/how-trump-weaponized-the-antiwar-platform.html
 
-**Argentina’s World Cup Sticker Albums Are a Low-Tech Craze Immune to the Digital Revolution**\
-`World Cup sticker albums have captivated children and adults in Argentina, in a collecting fever that seems immune to the digital revolution.`\
-https://www.nytimes.com/2026/06/10/world/americas/argentina-world-cup-sticker-albums.html
+**NAEP Test Shows Younger Students Recovering From Pandemic**\
+`A national test found surprising progress among 9-year-olds, who are fully caught up in reading. But 13-year-olds have shown no improvement.`\
+https://www.nytimes.com/2026/06/10/us/naep-results-student-tests.html
 
-**For the NBA Finals, These Knicks Fans Show Out in Style**\
-`Fans want to support their team, but they’re not willing to squelch their sense of style.`\
-https://www.nytimes.com/2026/06/10/style/knicks-fans-msg-nba-finals-fashion.html
+**Duane Michals, Photographer With Stories to Tell, Dies at 94**\
+`A self-taught artist, he brought narrative to modern photography with sequences of staged black-and-white images, often accompanied by wry or lyrical captions.`\
+https://www.nytimes.com/2026/06/10/arts/design/duane-michals-dead.html
 
-**U.S. Ebola Unit Sparks Fury, Protests and a Political Crisis in Kenya**\
-`Hundreds of Kenyans have marched through the streets to oppose a quarantine facility that would be reserved exclusively for American patients.`\
-https://www.nytimes.com/2026/06/10/world/africa/ebola-kenya-us-protests.html
+**Investors Feed A.I. Firms’ Voracious Appetite for New Money**\
+`In the race to dominate the artificial intelligence industry, companies like SpaceX and Alphabet are borrowing cash and raising equity from investors at the fastest pace in decades.`\
+https://www.nytimes.com/2026/06/10/business/investors-artificial-intelligence.html
 
-**With Bill Pulte, Trump Is Sending a Dangerous Message**\
-`President Trump’s decision to place Bill Pulte at the head of the U.S. intelligence community is not just another poor personnel choice. It’s a warning.`\
-https://www.nytimes.com/2026/06/10/opinion/cia-bill-pulte-trump.html
+**Inflation Jumps as Iran War Intensifies Price Squeeze**\
+`Consumer prices rose at a faster rate for a third-straight month in May, to 4.2 percent annually, as the energy shock put more pressure on the U.S. economy.`\
+https://www.nytimes.com/live/2026/06/10/business/inflation-report-cpi
 
-**$525,000 Homes in California, Indiana and Florida**\
-`A pair of Spanish-style bungalows in Twentynine Palms, Calif., a farmhouse in Whitestown, Ind., and a Craftsman in Tampa, Fla.`\
-https://www.nytimes.com/2026/06/10/realestate/homes-for-wale-twentynine-palms-tampa-whitestown.html
-
-**Life Inside an ICE Detention Facility**\
-`For days protesters have been clashing with law enforcement over conditions at an ICE detention facility in New Jersey. Our reporter Hamed Aleaziz explains how these complaints persist across the country, and takes a closer look at the problems documented at one facility in Louisiana.`\
-https://www.nytimes.com/video/us/politics/100000010946144/life-inside-an-ice-detention-facility.html
+**World Cup Updates: U.S. Immigration Policies Turn Some Fans and Participants Away**\
+`(No description)`\
+https://www.nytimes.com/live/2026/us/fifa-world-cup
 
