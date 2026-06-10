@@ -1,3 +1,7 @@
+**Democrats Try to Move Past ‘Cultural Pandering’ to Latinos for Midterm Elections**\
+`The party is trying desperately to win back some voters in the key swing group.`\
+https://www.nytimes.com/2026/06/10/us/politics/latino-voters-democrats-elections.html
+
 **Hegseth Says U.S. Will Attack Iran Wednesday Night**\
 `Secretary of Defense Pete Hegseth told reporters at MacDill Air Force Base in Tampa, Fla. on Wednesday that “Central Command, will be busy tonight.”`\
 https://www.nytimes.com/video/us/100000010959098/pete-hegseth-strike-iran-wednesday-night.html
