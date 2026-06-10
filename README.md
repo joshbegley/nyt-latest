@@ -1,3 +1,7 @@
+**They Tracked Fitness, Food and Sleep Obsessively. Now They’re Tuning Out.**\
+`As some online lean into biohacking and wellness metrics, reformed optimizers are canceling Pilates and having that extra glass of wine.`\
+https://www.nytimes.com/2026/06/10/style/biohacking-fitness-tracking-fitbit-whoop.html
+
 **Diljeet Dosanjh Taylor, B.Y.U. Track Coach, Won’t Change for Her ‘Haters’**\
 `Diljeet Dosanjh Taylor, an outspoken feminist in Mormon country, has helped make Brigham Young University into a running powerhouse.`\
 https://www.nytimes.com/2026/06/10/style/diljeet-taylor-byu-track-coach.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/10/opinion/cia-bill-pulte-trump.html
 **$525,000 Homes in California, Indiana and Florida**\
 `A pair of Spanish-style bungalows in Twentynine Palms, Calif., a farmhouse in Whitestown, Ind., and a Craftsman in Tampa, Fla.`\
 https://www.nytimes.com/2026/06/10/realestate/homes-for-wale-twentynine-palms-tampa-whitestown.html
-
-**Life Inside an ICE Detention Facility**\
-`For days protesters have been clashing with law enforcement over conditions at an ICE detention facility in New Jersey. Our reporter Hamed Aleaziz explains how these complaints persist across the country, and takes a closer look at the problems documented at one facility in Louisiana.`\
-https://www.nytimes.com/video/us/politics/100000010946144/life-inside-an-ice-detention-facility.html
 

@@ -1,3 +1,11 @@
+**Diljeet Dosanjh Taylor, B.Y.U. Track Coach, Won’t Change for Her ‘Haters’**\
+`Diljeet Dosanjh Taylor, an outspoken feminist in Mormon country, has helped make Brigham Young University into a running powerhouse.`\
+https://www.nytimes.com/2026/06/10/style/diljeet-taylor-byu-track-coach.html
+
+**Senior Russian Militar**\
+`The death of the officer appeared to add to a string of targeted assassinations of high-profile opponents of Ukraine inside Russia.`\
+https://www.nytimes.com/2026/06/10/world/europe/russia-moscow-car-bomb.html
+
 **Why Complete Election Results in Maine Could Take More Than a Week**\
 `Winners in the Republican and Democratic primary races for governor and in a Democratic congressional primary have not yet been determined.`\
 https://www.nytimes.com/2026/06/10/us/politics/maine-slow-vote-count.html
