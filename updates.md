@@ -1,3 +1,11 @@
+**El entusiasmo por el álbum Panini revive en cada Mundial de fútbol**\
+`Los álbumes de cromos del Mundial han cautivado a niños y adultos en Argentina, en una fiebre coleccionista que parece inmune a la revolución digital.`\
+https://www.nytimes.com/es/2026/06/10/espanol/america-latina/album-panini-cromos.html
+
+**Visiting a Soldier’s Funeral in Ukraine**\
+`The New York Times reporter Kim Barker visited a church in Lviv, Ukraine, that holds military funerals at the same time each day.`\
+https://www.nytimes.com/video/world/100000010854469/visiting-a-soldiers-funeral-in-ukraine.html
+
 **Need a U.S. Visa and Want to Skip a 12-Month Line? That’ll Be $750**\
 `A new fast-track program will allow certain visa applicants to pay a premium and secure an interview within 10 business days.`\
 https://www.nytimes.com/2026/06/10/travel/expedited-tourist-visa.html
