@@ -1,3 +1,11 @@
+**The Global Bull Market That A.I. Obscures**\
+`The rest of the world has been writing one of the more remarkable chapters in modern financial history — and many have hardly noticed.`\
+https://www.nytimes.com/2026/06/10/opinion/global-bull-market-ai.html
+
+**Los riesgos del alcohol en la salud aumentan tras una sola copa al día**\
+`La industria del alcohol ha criticado el estudio que reveló el dato y que también señala que un consumo moderado de alcohol aumenta el riesgo de muerte prematura.`\
+https://www.nytimes.com/es/2026/06/10/espanol/alcohol-riesgos-salud.html
+
 **Republicans in Maine Governor’s Race Head to Ranked-Choice Runoff**\
 `State election officials will confirm the winner in the next week or two, after a counting process that involves multiple rounds of elimination.`\
 https://www.nytimes.com/2026/06/10/us/politics/gop-runoff-maine-governor-race.html
