@@ -1,3 +1,7 @@
+****\
+`The NASA astronaut Jessica Meir shared a time-lapse video of the glowing green southern aurora borealis from space.`\
+https://www.nytimes.com/video/embedded/science/space/100000010957977/southern-lights-nasa.html
+
 **Pro-Palestinian Activists at U. of Michigan Indicted on Federal Conspiracy Charges**\
 `Federal prosecutors said the actions of eight demonstrators crossed the line into threats and vandalism.`\
 https://www.nytimes.com/2026/06/10/us/university-michigan-pro-palestinian-activists-indicted.html
@@ -154,6 +158,10 @@ https://www.nytimes.com/2026/06/10/business/dealbook/cpi-inflation-surprise.html
 `The five-year-old company is now valued at $12 billion.`\
 https://www.nytimes.com/2026/06/10/business/dealbook/cyera-ai-cybersecurity-funding.html
 
+**What to know about the report.**\
+`(No description)`\
+https://www.nytimes.com/2026/06/10/business/economy/inflation-consumer-price-index.html
+
 **Live Updates: Inflation Jumps as Iran War Intensifies Price Squeeze**\
 `Consumer prices rose at a faster rate for a third-straight month in May, to 4.2 percent annually, as the energy shock put more pressure on the U.S. economy.`\
 https://www.nytimes.com/live/2026/06/10/business/inflation-report-cpi
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/10/world/europe/pope-leo-sagrada-familia-barcelo
 **El giro radical de Trump respecto a China: aceptarla como una potencia igual**\
 `El acercamiento del presidente Trump a Xi Jinping, de China, un líder al que admira, ha despertado inquietudes en Washington y en toda Asia.`\
 https://www.nytimes.com/es/2026/06/10/espanol/mundo/trumps-china-taiwan.html
-
-**Carriage Horse Dies in Central Park After Medical Episode, Police Say**\
-`The death of a 16-year-old male named Deniz quickly added fuel to a running debate over whether New York City should ban horse-drawn carriages.`\
-https://www.nytimes.com/2026/06/10/nyregion/central-park-carriage-horse-dead.html
-
-**Stocks Sink and Oil Jumps After Wave of Strikes Across Middle East**\
-`The attacks, which strained a two-month cease-fire between Iran and the United States, were the latest jolt to energy markets.`\
-https://www.nytimes.com/2026/06/10/business/oil-stocks-gas-prices-iran.html
 

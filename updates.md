@@ -1,3 +1,11 @@
+****\
+`The NASA astronaut Jessica Meir shared a time-lapse video of the glowing green southern aurora borealis from space.`\
+https://www.nytimes.com/video/embedded/science/space/100000010957977/southern-lights-nasa.html
+
+**What to know about the report.**\
+`(No description)`\
+https://www.nytimes.com/2026/06/10/business/economy/inflation-consumer-price-index.html
+
 **Pro-Palestinian Activists at U. of Michigan Indicted on Federal Conspiracy Charges**\
 `Federal prosecutors said the actions of eight demonstrators crossed the line into threats and vandalism.`\
 https://www.nytimes.com/2026/06/10/us/university-michigan-pro-palestinian-activists-indicted.html
