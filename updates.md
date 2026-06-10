@@ -1,3 +1,7 @@
+**Graham Platner Wins Maine Senate Primary**\
+`Graham Platner, a progressive oyster farmer, won the Democratic nomination for Senate on Tuesday. He is set to face Senator Susan Collins, a five-term Republican, in November.`\
+https://www.nytimes.com/video/us/elections/100000010957127/maine-platner-primary-election-senate.html
+
 **The City That Watches Together**\
 `In bodegas and parks, in bars and pizzerias, the unofficial watch party has taken over New York.`\
 https://www.nytimes.com/2026/06/10/nyregion/new-york-city-knicks-watch-parties.html
