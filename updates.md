@@ -1,3 +1,11 @@
+**Republican Primary for Open Congressional Seat in South Carolina Heads to Runoff**\
+`The largely coastal district has voted overwhelmingly Republican in recent elections. Representative Nancy Mace ran unsuccessfully for governor instead of seeking re-election to the seat.`\
+https://www.nytimes.com/2026/06/09/us/politics/jenny-honeycutt-mace-south-carolina.html
+
+**Evette and Wilson Advance to Runoff in South Carolina Republican Primary for Governor**\
+`Lt. Gov. Pamela Evette and Alan Wilson, the state attorney general, now head to a runoff in the Republican contest for governor. President Trump vowed to “fight” for Ms. Evette in the second round.`\
+https://www.nytimes.com/2026/06/09/us/politics/south-carolina-governor-republican-evette-wilson.html
+
 **Republican Primary for Open Congressional Race in South Carolina Heads to Runoff**\
 `The largely coastal district has voted overwhelmingly Republican in recent elections. Representative Nancy Mace ran unsuccessfully for governor instead of seeking re-election to the seat.`\
 https://www.nytimes.com/2026/06/09/us/politics/jenny-honeycutt-mace-south-carolina.html
