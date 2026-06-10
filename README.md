@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/06/10/technology/president-trump-americans-sharing-
 `Also, inflation jumps for a third-straight month. Here’s the latest at the end of Wednesday.`\
 https://www.nytimes.com/2026/06/10/briefing/inflation-rises-us-iran-strikes.html
 
-**Suspect in Killing of Minnesota Lawmaker Strikes a Plea Deal**\
+**Suspect in the Killing of a Minnesota Lawmaker Strikes a Plea Deal**\
 `The arrangement means that Vance Boelter will not face the death penalty after being charged with killing Melissa Hortman and her husband, Mark.`\
 https://www.nytimes.com/2026/06/10/us/vince-boelter-plea-deal.html
 
