@@ -1,3 +1,23 @@
+**Mamdani’s Nosebleed Knicks Ticket and the Fluid Benefits of Being Mayor**\
+`Mayor Zohran Mamdani paid roughly $1,000 for a standing-room-only ticket to Game 3 of the N.B.A. finals, using access to house tickets not available to regular fans.`\
+https://www.nytimes.com/2026/06/10/nyregion/mamdani-knicks-ticket-garden.html
+
+**Gulf Arab nations condemn new Iranian attacks on Bahrain and Kuwait.**\
+`(No description)`\
+https://www.nytimes.com/2026/06/10/world/middleeast/gulf-arab-nations-condemn-new-iranian-attacks-on-bahrain-and-kuwait.html
+
+**‘Backrooms,’ Liminal Spaces and Gen Z Anxiety**\
+`“Backrooms,” a horror movie about an uncanny labyrinthine space, plays on a generation’s fears about where digital life and the real world collide.`\
+https://www.nytimes.com/2026/06/10/style/backrooms-gen-z-anxiety.html
+
+**These Cold Peanut Noodles Are for Ginger Lovers**\
+`There’s grated ginger in the spicy-savory sauce, and chopped crystallized ginger in the noodle-cucumber-scallion mix for chew and sweetness.`\
+https://www.nytimes.com/2026/06/10/dining/these-cold-peanut-noodles-are-for-ginger-lovers.html
+
+**Do Women Really Need a Menopause Workout?**\
+`A new wave of fitness programs claim to be specifically tailored for midlife. Here’s what to know about them.`\
+https://www.nytimes.com/2026/06/10/well/move/menopause-workouts-exercises.html
+
 **Mace Defeat Heralds an Exodus of Rabble-Rousers From Congress**\
 `The Republican congresswoman from South Carolina, who made enemies on both sides of the political aisle, is just one of several flashy lawmakers to be leaving Capitol Hill.`\
 https://www.nytimes.com/2026/06/10/us/politics/nancy-mace-congress-south-carolina.html
