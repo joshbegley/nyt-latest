@@ -63,7 +63,7 @@ https://www.nytimes.com/2026/06/10/style/tiny-modern-love-stories-the-right-answ
 https://www.nytimes.com/video/embedded/science/space/100000010957977/southern-lights-nasa.html
 
 **Pro-Palestinian Activists at U. of Michigan Indicted on Federal Conspiracy Charges**\
-`Federal prosecutors said the actions of eight demonstrators crossed the line into threats and vandalism.`\
+`The new charges appeared to signify a shift in the federal government’s approach to campus activism.`\
 https://www.nytimes.com/2026/06/10/us/university-michigan-pro-palestinian-activists-indicted.html
 
 **My Father Abused My Sister When We Were Kids. Should I Tell My Half Siblings?**\
