@@ -1,3 +1,55 @@
+**Britain Is Weighing a Social Media Ban for Children. How Did It Get Here?**\
+`Months after Australia banned social media for everyone under 16, the British government is considering new policies to keep children safe online.`\
+https://www.nytimes.com/2026/06/10/world/europe/uk-social-media-ban-under-16.html
+
+**Australia’s Social Media Ban Is Floundering. Can It Still Help Younger Kids?**\
+`Six months in, many teens are already back on platforms they were supposed to be blocked from. The ban’s benefits may fall to the next generation.`\
+https://www.nytimes.com/2026/06/10/world/australia/australia-social-media-ban-under-16.html
+
+**Amtrak Speeds Up Trip From Vancouver to Seattle for World Cup Fans**\
+`Passengers heading from Vancouver, British Columbia, to Seattle will now clear U.S. customs before boarding instead of stopping once they’ve crossed the border.`\
+https://www.nytimes.com/2026/06/10/travel/amtrak-vancouver-seattle-world-cup.html
+
+**No Corrections: June 11, 2026**\
+`No corrections appeared in print on Thursday, June 11, 2026.`\
+https://www.nytimes.com/2026/06/10/pageoneplus/no-corrections-june-11-2026.html
+
+**Trump’s ‘Secret Mission’ to Ferry Oil Past Iran Was Widely Disclosed**\
+`A U.S. military official said the president’s seemingly dramatic announcement on Wednesday referred to a previously reported effort to shepherd commercial vessels through the Strait of Hormuz.`\
+https://www.nytimes.com/2026/06/10/world/middleeast/trump-oil-iran-strait-hormuz.html
+
+**New York City Can Move Men’s Shelter to East Village, Judge Rules**\
+`The judge had temporarily blocked the plan after residents sued, but she ultimately decided that the city’s argument for the move was reasonable.`\
+https://www.nytimes.com/2026/06/10/nyregion/homeless-men-shelter-east-village.html
+
+**Southern Lights Seen From International Space Station**\
+`The southern lights, also known as the aurora australis, were captured by the NASA astronaut Jessica Meir from the International Space Station on Saturday.`\
+https://www.nytimes.com/video/science/space/100000010958639/southern-lights-aurora-nasa-space.html
+
+**A Very Different World Cup**\
+`With a host country actively at war with a participating nation, this year’s tournament is set to be unlike any other.`\
+https://www.nytimes.com/2026/06/10/world/world-cup-mexico-iran-epstein.html
+
+**University of Florida Chooses Stuart Bell for President Over Some Conservative Criticism**\
+`The nominee, Stuart Bell, led the University of Alabama for a decade, where he embraced diversity initiatives but also Donald J. Trump.`\
+https://www.nytimes.com/2026/06/10/us/university-florida-president-stuart-bell.html
+
+**Bukele dice que sus cárceles son para las pandillas. Entonces, ¿por qué encarceló a mi esposa?**\
+`Desde que comenzó el régimen de excepción en 2022, Cristosal ha documentado 420 muertes en cárceles salvadoreñas. Este es el sistema en el que desapareció mi esposa.`\
+https://www.nytimes.com/es/2026/06/10/espanol/opinion/el-salvador-bukele-carcel.html
+
+**At Least 12 Killed in Johannesburg Attack, South African Police Say**\
+`The South African police said that at least 12 people were killed and at least nine others were wounded in an attack at a settlement in Johannesburg on Tuesday night. Investigators are still trying to determine a motive for the shooting.`\
+https://www.nytimes.com/video/world/africa/100000010958455/johannesburg-south-africa-shooting.html
+
+**Spencer Pratt’s Defeat Isn’t Just About Los Angeles**\
+`Some of America’s largest cities are now being governed by progressives. What will we learn?`\
+https://www.nytimes.com/2026/06/10/opinion/los-angeles-pratt-mayor-election.html
+
+**Ernest Chambers, ‘Smothers Brothers’ TV Show Producer, Dies at 97**\
+`In the late 1960s, he and Saul Ilson oversaw a variety show known for its social and political satire, and together they helped fight network censors over its content.`\
+https://www.nytimes.com/2026/06/10/arts/television/ernest-chambers-dead.html
+
 **Graham Platner Tucked in His Shirt on Primary Night**\
 `On election night, the Democratic candidate from Maine wore a button-up, a deviation from the candidate’s unvarnished image.`\
 https://www.nytimes.com/2026/06/10/style/graham-platner-primary-style.html
