@@ -1,3 +1,11 @@
+**Suspect in Killing of Minnesota Lawmaker Strikes a Plea Deal**\
+`The arrangement means that Vance Boelter will not face the death penalty after being charged with killing Melissa Hortman and her husband, Mark.`\
+https://www.nytimes.com/2026/06/10/us/vince-boelter-plea-deal.html
+
+**Trump Says He ‘Loves the Inflation’ Amid War With Iran**\
+`President Trump dismissed the newest inflation report on Wednesday, marking the third-straight month of high prices for consumers. The war in Iran has snarled the world’s energy supply, resulting in high oil and gas prices.`\
+https://www.nytimes.com/video/us/politics/100000010958803/trump-inflation-iran-war.html
+
 **The Maine Senate Race Ramps Up, With Trump Offering Color Commentary**\
 `With Graham Platner now the Democratic nominee against Senator Susan Collins, signs of how hostile the race will be have quickly emerged.`\
 https://www.nytimes.com/2026/06/10/us/politics/maine-senate-graham-platner-susan-collins.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/06/10/headway/shootings-youth-violence-prevention-p
 **Read the Charges Against 8 People Connected to the University of Michigan**\
 `The federal charges include conspiracy to transmit threats and witness intimidation.`\
 https://www.nytimes.com/interactive/2026/06/10/us/federal-charges-university-of-michigan-pro-palestinian-protest.html
-
-**Trump Says He’s ‘Not Looking to Renew’ Canada-Mexico Trade Deal**\
-`The president’s comments come at a crucial moment in talks among the three countries over the renewal of their free-trade agreement.`\
-https://www.nytimes.com/2026/06/10/world/canada/trump-canada-mexico-trade-deal-usmca.html
-
-**Antonio Gracias, Elon Musk’s Friend, Is Set to Reap Billions From SpaceX’s IPO**\
-`Antonio Gracias, an investor who has built a $65 billion stake in the company, exemplifies the economic upside of being Mr. Musk’s ally.`\
-https://www.nytimes.com/2026/06/10/technology/antonio-gracias-elon-musk-spacex.html
 
 **World Cup Updates: U.S. Immigration Policies Turn Some Fans and Participants Away**\
 `(No description)`\

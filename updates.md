@@ -1,3 +1,11 @@
+**Suspect in Killing of Minnesota Lawmaker Strikes a Plea Deal**\
+`The arrangement means that Vance Boelter will not face the death penalty after being charged with killing Melissa Hortman and her husband, Mark.`\
+https://www.nytimes.com/2026/06/10/us/vince-boelter-plea-deal.html
+
+**Trump Says He ‘Loves the Inflation’ Amid War With Iran**\
+`President Trump dismissed the newest inflation report on Wednesday, marking the third-straight month of high prices for consumers. The war in Iran has snarled the world’s energy supply, resulting in high oil and gas prices.`\
+https://www.nytimes.com/video/us/politics/100000010958803/trump-inflation-iran-war.html
+
 **The Maine Senate Race Ramps Up, With Trump Offering Color Commentary**\
 `With Graham Platner now the Democratic nominee against Senator Susan Collins, signs of how hostile the race will be have quickly emerged.`\
 https://www.nytimes.com/2026/06/10/us/politics/maine-senate-graham-platner-susan-collins.html
