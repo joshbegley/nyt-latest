@@ -182,7 +182,7 @@ https://www.nytimes.com/2026/06/10/business/dealbook/cyera-ai-cybersecurity-fund
 `Companies appear hesitant to pass those price increases on to weary consumers, whose wages aren’t keeping up.`\
 https://www.nytimes.com/2026/06/10/business/economy/inflation-consumer-price-index.html
 
-**Live Updates: Inflation Jumps as Iran War Intensifies Price Squeeze**\
+**Inflation Jumps as Iran War Intensifies Price Squeeze**\
 `Consumer prices rose at a faster rate for a third-straight month in May, to 4.2 percent annually, as the energy shock put more pressure on the U.S. economy.`\
 https://www.nytimes.com/live/2026/06/10/business/inflation-report-cpi
 
