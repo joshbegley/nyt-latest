@@ -1,3 +1,7 @@
+**Souleymane Diallo Dies at 80; Daring, Mocking Journalist in Guinea**\
+`He was harassed and briefly jailed for his work on Le Lynx, his satirical weekly newspaper, which investigated and caricatured a series of repressive leaders.`\
+https://www.nytimes.com/2026/06/10/world/africa/souleymane-diallo-dead.html
+
 **‘Backrooms,’ Liminal Spaces and Gen Z Anxiety**\
 `“Backrooms,” a horror movie about an uncanny labyrinthine space, plays on a generation’s fears about where digital life and the real world collide.`\
 https://www.nytimes.com/2026/06/10/style/backrooms-gen-z-anxiety.html
@@ -71,7 +75,7 @@ https://www.nytimes.com/2026/06/10/opinion/republicans-democrats-women-ambition.
 https://www.nytimes.com/2026/06/10/style/indiscreet-comments-drunkenness-affairs.html
 
 **Drinking Water Facilities Hit by Strikes in Iran, State Media Reports**\
-`Two water tanks serving thousands of people were damaged, the local authorities said. The U.S. military did not respond to a request for comment.`\
+`Two water tanks serving thousands of people were damaged, the local authorities said. The U.S. military declined to comment.`\
 https://www.nytimes.com/2026/06/10/world/middleeast/drinking-water-facilities-hit-by-strikes-in-iran-state-media-reports.html
 
 **Indian Sailors Made Frantic Calls for Help After U.S. Missile Strike off Oman**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/10/podcasts/modernlove-laverne-cox-is-ready-to-t
 **Laverne Cox Is Ready to Tell the Truth. Even if It’s Messy.**\
 `The actor always knew what she wanted. Getting there was more complicated.`\
 https://www.nytimes.com/video/podcasts/100000010956300/laverne-cox-is-ready-to-tell-the-truth-even-if-its-messy.html
-
-**The Knicks Are Hogging the Spotlight. Spurs Fans Aren’t Impressed.**\
-`As New York basks in the attention of a long-awaited N.B.A. finals run, many San Antonians say the Spurs, and the city they represent, are being underestimated.`\
-https://www.nytimes.com/2026/06/10/us/san-antonio-spurs-fans.html
 
 **Iran War Live Updates: After U.S. and Iran Exchange Strikes, Trump Issues New Threat**\
 `President Trump said Iran would “pay the price” for taking “too long to negotiate” an agreement to end the war.`\

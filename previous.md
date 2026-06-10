@@ -1,3 +1,19 @@
+**‘Backrooms,’ Liminal Spaces and Gen Z Anxiety**\
+`“Backrooms,” a horror movie about an uncanny labyrinthine space, plays on a generation’s fears about where digital life and the real world collide.`\
+https://www.nytimes.com/2026/06/10/style/backrooms-gen-z-anxiety.html
+
+**These Cold Peanut Noodles Are for Ginger Lovers**\
+`There’s grated ginger in the spicy-savory sauce, and chopped crystallized ginger in the noodle-cucumber-scallion mix for chew and sweetness.`\
+https://www.nytimes.com/2026/06/10/dining/these-cold-peanut-noodles-are-for-ginger-lovers.html
+
+**Indonesia Landslides Devastated Endangered Orangutans, Study Finds**\
+`More than 5 percent of the species is estimated to have been lost when a climate-fueled storm unleashed torrents of water, mud and debris.`\
+https://www.nytimes.com/2026/06/10/climate/indonesia-floods-organgutans.html
+
+**Do Women Really Need a Menopause Workout?**\
+`A new wave of fitness programs claim to be specifically tailored for midlife. Here’s what to know about them.`\
+https://www.nytimes.com/2026/06/10/well/move/menopause-workouts-exercises.html
+
 **SpaceX’s IPO Will Turn 4,400 Employees Into Millionaires**\
 `While Elon Musk may soon become a trillionaire, his rocket company’s market debut is set to the change the lives of its current and former employees, too.`\
 https://www.nytimes.com/2026/06/10/technology/spacex-ipo-employee-millionaires.html
@@ -163,7 +179,7 @@ https://www.nytimes.com/2026/06/10/opinion/democrats-politics-morality-values.ht
 https://www.nytimes.com/2026/06/10/us/jonathan-rinderknecht-palisades-fire-trial.html
 
 **The Supreme Court Doesn’t Own the Constitution**\
-`It starts with ‘We the People’ for a reason.`\
+`It starts with “We the people” for a reason.`\
 https://www.nytimes.com/2026/06/10/opinion/constitution-supreme-court-popular-sovereignty.html
 
 **Modern Love Laverne Cox On Her Relationships**\
@@ -178,23 +194,7 @@ https://www.nytimes.com/video/podcasts/100000010956300/laverne-cox-is-ready-to-t
 `As New York basks in the attention of a long-awaited N.B.A. finals run, many San Antonians say the Spurs, and the city they represent, are being underestimated.`\
 https://www.nytimes.com/2026/06/10/us/san-antonio-spurs-fans.html
 
-**The A.I. Bubble Is Coming for Your Retirement Account**\
-`The public is about to buy into A.I.’s trillion-dollar promises. Are they worth the price?`\
-https://www.nytimes.com/2026/06/10/opinion/ai-ipo-openai-anthropic.html
-
-**SpaceX IPO: What You Need to Know**\
-`As the company prepares for its stock market debut, here’s what the initial public offering means for banks, Elon Musk and everyday investors.`\
-https://www.nytimes.com/2026/06/10/business/spacex-ipo-what-to-know.html
-
-**Platner’s Primary Victory in Maine Gives Democrats Hope and Fears in Key Senate Race**\
-`Graham Platner’s primary victory sets up a high-stakes contest between an insurgent progressive with political baggage and a battle-tested but vulnerable Republican senator.`\
-https://www.nytimes.com/2026/06/10/us/politics/senate-control-maine.html
-
-**In ‘Widow’s Bay,’ History Is Hard to Kill**\
-`The season’s best new show is a horror-comedy rooted in a timely idea: Is the past a treasure to preserve or a monster to escape?`\
-https://www.nytimes.com/2026/06/10/arts/television/widows-bay-review.html
-
-**100 Guitars’ Worth of Glenn Branca’s Violent Ecstasy**\
-`At Lincoln Center, the guitarist Reg Bloor, Branca’s widow, will conduct his music for the first time: “Symphony No. 13 (Hallucination City) for 100 Guitars.”`\
-https://www.nytimes.com/2026/06/10/arts/music/glenn-branca-100-guitars-reg-bloor.html
+**Iran War Live Updates: After U.S. and Iran Exchange Strikes, Trump Issues New Threat**\
+`President Trump said Iran would “pay the price” for taking “too long to negotiate” an agreement to end the war.`\
+https://www.nytimes.com/live/2026/06/10/world/iran-war-trump-us
 
