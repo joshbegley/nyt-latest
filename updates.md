@@ -1,3 +1,7 @@
+**Hong Kong Files Charges Over Fire That Killed 168 People**\
+`The Hong Kong government announced on Wednesday that it charged seven people and two companies following an investigation into the deadly fire at the Wang Fuk Court apartment complex in November 2025.`\
+https://www.nytimes.com/video/world/asia/100000010958332/hong-kong-apartment-fire-charges.html
+
 **F.B.I. Searches California Plant Where Chemical Tank Nearly Exploded**\
 `Federal agents were looking for records that might shed light on why chemicals overheated, threatening a catastrophe in Orange County.`\
 https://www.nytimes.com/2026/06/10/us/fbi-search-orange-county-chemical-tank.html

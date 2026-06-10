@@ -1,3 +1,7 @@
+**Trump Threatens More Strikes Against Iran, Citing Stalled Peace Talks**\
+`With no end to the turmoil in the Middle East, the U.N. secretary general lamented that a cease-fire had become “more like a lesser-fire.”`\
+https://www.nytimes.com/2026/06/10/world/middleeast/us-iran-strikes.html
+
 **Hong Kong Files Charges Over Fire That Killed 168 People**\
 `The Hong Kong government announced on Wednesday that it charged seven people and two companies following an investigation into the deadly fire at the Wang Fuk Court apartment complex in November 2025.`\
 https://www.nytimes.com/video/world/asia/100000010958332/hong-kong-apartment-fire-charges.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/10/climate/indonesia-floods-organgutans.html
 **SpaceX’s IPO Could Turn 4,400 Employees Into Millionaires**\
 `While Elon Musk may soon become a trillionaire, his rocket company’s market debut is set to the change the lives of its current and former employees, too.`\
 https://www.nytimes.com/2026/06/10/technology/spacex-ipo-employee-millionaires.html
-
-**Federal Judge Blocks Alabama From Using Nitrogen Gas in Jeffrey Lee Execution**\
-`The judge ordered the state to find an alternate method if it is going to move ahead with the execution of Jeffery Lee, who was convicted of murder.`\
-https://www.nytimes.com/2026/06/10/us/alabama-execution-nitrogen-gas.html
 
 **Inflation Jumps as Iran War Intensifies Price Squeeze**\
 `Consumer prices rose at a faster rate for a third-straight month in May, to 4.2 percent annually, as the energy shock put more pressure on the U.S. economy.`\
