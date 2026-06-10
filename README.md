@@ -1,3 +1,11 @@
+**Trump Muses About Government Taking a Piece of A.I. Companies**\
+`President Trump touched on what is an increasingly hot topic in Washington: how average Americans can get a piece of the tech industry’s A.I. windfall.`\
+https://www.nytimes.com/2026/06/10/technology/president-trump-americans-sharing-ai-wealth.html
+
+**Inflation Rises to Its Fastest Pace in Three Years**\
+`Hegseth says the U.S. will strike Iran again tonight. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/06/10/briefing/inflation-rises-us-iran-strikes.html
+
 **Suspect in Killing of Minnesota Lawmaker Strikes a Plea Deal**\
 `The arrangement means that Vance Boelter will not face the death penalty after being charged with killing Melissa Hortman and her husband, Mark.`\
 https://www.nytimes.com/2026/06/10/us/vince-boelter-plea-deal.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/06/10/nyregion/knicks-security-game-4-msg.html
 **Trump Shrugs Off High Prices Amid Iran War and Says ‘I Love the Inflation’**\
 `As inflation outpaces workers’ wages, the Trump administration insists that its agenda is working.`\
 https://www.nytimes.com/2026/06/10/business/economy/trump-inflation-iran-war.html
-
-**The Violence Decline Isn’t Evenly Distributed**\
-`Our colleagues at Chalkbeat Philadelphia dive into the numbers.`\
-https://www.nytimes.com/2026/06/10/headway/shootings-youth-violence-prevention-philadelphia.html
-
-**Read the Charges Against 8 People Connected to the University of Michigan**\
-`The federal charges include conspiracy to transmit threats and witness intimidation.`\
-https://www.nytimes.com/interactive/2026/06/10/us/federal-charges-university-of-michigan-pro-palestinian-protest.html
 
 **World Cup Updates: U.S. Immigration Policies Turn Some Fans and Participants Away**\
 `(No description)`\

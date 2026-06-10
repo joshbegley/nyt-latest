@@ -1,3 +1,7 @@
+**Maine Senate Race Heats Up as Trump Attacks Platner**\
+`With Graham Platner now the Democratic nominee against Senator Susan Collins, signs of how hostile the race will be have quickly emerged.`\
+https://www.nytimes.com/2026/06/10/us/politics/maine-senate-graham-platner-susan-collins.html
+
 **Suspect in Killing of Minnesota Lawmaker Strikes a Plea Deal**\
 `The arrangement means that Vance Boelter will not face the death penalty after being charged with killing Melissa Hortman and her husband, Mark.`\
 https://www.nytimes.com/2026/06/10/us/vince-boelter-plea-deal.html
