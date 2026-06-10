@@ -1,3 +1,7 @@
+**Trump Says Bill Pulte Will Take Over as Intelligence Chief on June 19**\
+`The president also plans to keep Mr. Pulte as the head of a federal housing agency, heightening tension with Congress and complicating the renewal of a powerful spying authority.`\
+https://www.nytimes.com/2026/06/09/us/politics/trump-pulte-intelligence-chief.html
+
 **Platner Wins Maine Senate Primary After a Turbulent Stretch of His Bid**\
 `Graham Platner has faced new scrutiny over his personal history, but his Democratic primary victory sets up a high-stakes race against Senator Susan Collins, a Republican.`\
 https://www.nytimes.com/2026/06/09/us/politics/maine-senate-platner-mills.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/science/space/100000010955125/nasa-artemis-iii-ast
 **Are You Traveling to the U.S. for the 2026 World Cup? We’d Like to Hear From You.**\
 `Tell us about your experience buying tickets, finding a place to stay, making travel arrangements and, if you’re coming to the U.S., dealing with entry requirements.`\
 https://www.nytimes.com/2026/06/09/travel/world-cup-travel-us.html
-
-**Maine’s Primary Ballot Is Crowded With Members of Political Dynasties**\
-`Among other candidates with ties to prominent officials, a senator’s son and a Bush scion are running for governor.`\
-https://www.nytimes.com/2026/06/09/us/politics/maine-political-dynasty-king-pingree-bush.html
 
