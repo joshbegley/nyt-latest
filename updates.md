@@ -1,3 +1,15 @@
+**Trump Says He May Not Renew Canada-Mexico Trade Deal**\
+`The president’s comments come at a crucial moment in talks between the three countries over the renewal of their free-trade agreement.`\
+https://www.nytimes.com/2026/06/10/world/canada/trump-canada-mexico-trade-deal-usmca.html
+
+**Inflation Accelerates to Fastest Pace in 3 Years as Energy Prices Bite**\
+`Companies appear hesitant to pass those price increases on to weary consumers, whose wages aren’t keeping up.`\
+https://www.nytimes.com/2026/06/10/business/economy/inflation-consumer-price-index.html
+
+**Inflation Jumps as Iran War Intensifies Price Squeeze**\
+`Consumer prices rose at a faster rate for a third-straight month in May, to 4.2 percent annually, as the energy shock put more pressure on the U.S. economy.`\
+https://www.nytimes.com/live/2026/06/10/business/inflation-report-cpi
+
 **Antonio Gracias, Elon Musk’s Friend, Is Set to Reap Billions From SpaceX’s IPO**\
 `Antonio Gracias, an investor who has built a $65 billion stake in the company, exemplifies the economic upside of being Mr. Musk’s ally.`\
 https://www.nytimes.com/2026/06/10/technology/antonio-gracias-elon-musk-spacex.html
