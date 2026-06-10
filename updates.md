@@ -1,3 +1,7 @@
+**The Impossible Path Forward for Women in Politics**\
+`Republicans have spent years disparaging all things associated with women. Now Democrats are following suit.`\
+https://www.nytimes.com/2026/06/10/opinion/republicans-democrats-women-ambition.html
+
 **Senior Russian Military Official Is Killed in Car Explosion Near Moscow**\
 `The death of the officer appeared to add to a string of targeted assassinations of high-profile opponents of Ukraine inside Russia.`\
 https://www.nytimes.com/2026/06/10/world/europe/russia-moscow-car-bomb.html

@@ -30,7 +30,7 @@ https://www.nytimes.com/2026/06/10/us/politics/maine-slow-vote-count.html
 `There was unrest in Belfast and elsewhere after video of a brutal stabbing circulated online, amplified by far-right activists.`\
 https://www.nytimes.com/2026/06/10/world/europe/belfast-attack-riots-what-happened.html
 
-**No Country for Ambitious Women**\
+**The Impossible Path Forward for Women in Politics**\
 `Republicans have spent years disparaging all things associated with women. Now Democrats are following suit.`\
 https://www.nytimes.com/2026/06/10/opinion/republicans-democrats-women-ambition.html
 
