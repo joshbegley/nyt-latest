@@ -1,3 +1,7 @@
+**Hong Kong Files Charges Over Fire That Killed 168 People**\
+`The Hong Kong government announced on Wednesday that it charged seven people and two companies following an investigation into the deadly fire at the Wang Fuk Court apartment complex in November 2025.`\
+https://www.nytimes.com/video/world/asia/100000010958332/hong-kong-apartment-fire-charges.html
+
 **F.B.I. Searches California Plant Where Chemical Tank Nearly Exploded**\
 `Federal agents were looking for records that might shed light on why chemicals overheated, threatening a catastrophe in Orange County.`\
 https://www.nytimes.com/2026/06/10/us/fbi-search-orange-county-chemical-tank.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/10/technology/spacex-ipo-employee-millionaires.h
 **Federal Judge Blocks Alabama From Using Nitrogen Gas in Jeffrey Lee Execution**\
 `The judge ordered the state to find an alternate method if it is going to move ahead with the execution of Jeffery Lee, who was convicted of murder.`\
 https://www.nytimes.com/2026/06/10/us/alabama-execution-nitrogen-gas.html
-
-**Latest Inflation Data Shows Airline Ticket Prices Up 27% From Last Year**\
-`Airfares shot up 27 percent from a year earlier in the latest inflation data.`\
-https://www.nytimes.com/2026/06/10/business/economy/americans-travel-expensive.html
 
 **Inflation Jumps as Iran War Intensifies Price Squeeze**\
 `Consumer prices rose at a faster rate for a third-straight month in May, to 4.2 percent annually, as the energy shock put more pressure on the U.S. economy.`\

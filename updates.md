@@ -1,3 +1,11 @@
+**F.B.I. Searches California Plant Where Chemical Tank Nearly Exploded**\
+`Federal agents were looking for records that might shed light on why chemicals overheated, threatening a catastrophe in Orange County.`\
+https://www.nytimes.com/2026/06/10/us/fbi-search-orange-county-chemical-tank.html
+
+**Disturbios en Irlanda del Norte: lo que hay que saber**\
+`Un brutal apuñalamiento ocurrido en Belfast esta semana ha avivado el sentimiento antimigrantes que ya estaba latente.`\
+https://www.nytimes.com/es/2026/06/10/espanol/mundo/irlanda-norte-disturbios-belfast.html
+
 **Hundreds of Kenyans Protest U.S. Ebola Unit**\
 `Protesters opposed an Ebola quarantine facility in Kenya on Tuesday that would be reserved exclusively for U.S. citizens.`\
 https://www.nytimes.com/video/world/africa/100000010957717/us-ebola-quarantine-unit-protest-kenya.html

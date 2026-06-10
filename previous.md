@@ -1,9 +1,13 @@
+**F.B.I. Searches California Plant Where Chemical Tank Nearly Exploded**\
+`Federal agents were looking for records that might shed light on why chemicals overheated, threatening a catastrophe in Orange County.`\
+https://www.nytimes.com/2026/06/10/us/fbi-search-orange-county-chemical-tank.html
+
 **Hundreds of Kenyans Protest U.S. Ebola Unit**\
 `Protesters opposed an Ebola quarantine facility in Kenya on Tuesday that would be reserved exclusively for U.S. citizens.`\
 https://www.nytimes.com/video/world/africa/100000010957717/us-ebola-quarantine-unit-protest-kenya.html
 
 **Disturbios en Irlanda del Norte: lo que hay que saber**\
-`There was unrest in Belfast and elsewhere after video of a brutal stabbing circulated online, amplified by far-right activists.`\
+`Un brutal apuñalamiento ocurrido en Belfast esta semana ha avivado el sentimiento antimigrantes que ya estaba latente.`\
 https://www.nytimes.com/es/2026/06/10/espanol/mundo/irlanda-norte-disturbios-belfast.html
 
 **Russian Military Official Killed in Car Explosion Near Moscow**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/10/us/alabama-execution-nitrogen-gas.html
 **Latest Inflation Data Shows Airline Ticket Prices Up 27% From Last Year**\
 `Airfares shot up 27 percent from a year earlier in the latest inflation data.`\
 https://www.nytimes.com/2026/06/10/business/economy/americans-travel-expensive.html
-
-**Inflation Keeps Prospects of a Fed Rate Cut Low**\
-`The Consumer Price Index is one of the last major data releases ahead of Kevin M. Warsh’s first meeting as chair of the Federal Reserve.`\
-https://www.nytimes.com/2026/06/10/business/economy/inflation-federal-reserve-interest-rates.html
 
 **Inflation Jumps as Iran War Intensifies Price Squeeze**\
 `Consumer prices rose at a faster rate for a third-straight month in May, to 4.2 percent annually, as the energy shock put more pressure on the U.S. economy.`\
