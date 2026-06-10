@@ -1,3 +1,7 @@
+**Live Updates: New Yorkers Gather Ahead of Knicks Game, Amid Some Frustration**\
+`Hours before Game 4 of the N.B.A. finals, the team’s owner, James Dolan, and Mayor Zohran Mamdani were sparring over who was to blame for the cancellation of a watch party outside Madison Square Garden.`\
+https://www.nytimes.com/live/2026/06/10/nyregion/nba-finals-knicks-spurs
+
 **Live Updates: New Yorkers Brace for Pivotal N.B.A. Finals Game**\
 `The New York Knicks lead the best-of-seven series two games to one, but a loss to the San Antonio Spurs on Monday put a pause on the party. Across the city, fans are gathering to summon more good vibes.`\
 https://www.nytimes.com/live/2026/06/10/nyregion/nba-finals-knicks-spurs
