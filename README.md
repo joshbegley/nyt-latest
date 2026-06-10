@@ -130,8 +130,8 @@ https://www.nytimes.com/2026/06/10/world/middleeast/drinking-water-facilities-hi
 `The 24 crew members were stranded for more than two hours before being rescued by an Omani military helicopter. The U.S. military said that the ship had violated its blockade of Iran.`\
 https://www.nytimes.com/2026/06/10/world/middleeast/indian-sailors-rescued-us-missile-ship-oman.html
 
-**ActBlue C.E.O. to Invoke Fifth Amendment in Testimony to Congress**\
-`The head of the Democratic fund-raising behemoth was called to testify on Wednesday about reports that she may have misled Congress about how it vets foreign donations.`\
+**ActBlue C.E.O. Invokes Fifth Amendment Repeatedly in Testimony to Congress**\
+`The head of the Democratic fund-raising behemoth declined to answer questions from House Republicans about reports that she may have misled Congress over how her group vetted foreign donations.`\
 https://www.nytimes.com/2026/06/10/us/politics/actblue-fifth-amendment-congress.html
 
 **Somali World Cup Referee Denied Entry to U.S. Returns Home to Hero’s Welcome**\

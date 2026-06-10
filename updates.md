@@ -1,3 +1,7 @@
+**Soccer Referee Receives Hero’s Welcome in Somalia After U.S. Denies Him Entry**\
+`Omar Abdulkadir Artan was admired in Somalia long before he was selected to be the first Somali referee at the World Cup. After being denied entry into the U.S. to participate as a referee in the World Cup, Artan received a hero’s welcome upon returning home on Wednesday.`\
+https://www.nytimes.com/video/sports/soccer/100000010957547/omar-abdulkadir-artan-welcome-somalia-world-cup-ban.html
+
 **Could Control of Congress Run Through Northern Maine?**\
 `The state’s vast rural areas, which make up the swing Second Congressional District, will be important in November.`\
 https://www.nytimes.com/2026/06/10/us/politics/maine-second-district.html
