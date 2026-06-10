@@ -26,13 +26,13 @@ https://www.nytimes.com/2026/06/09/us/kalshi-employment-disclosure-rules.html
 `Graham Platner is expected to win handily in the Democratic primary for Senate in Maine. The focus is shifting to how he might do in November.`\
 https://www.nytimes.com/2026/06/09/us/elections/maine-senate-polls-competitive-general.html
 
-**Steve Hilton Wins Second Spot in California Governor Race, Beating Tom Steyer**\
-`Steve Hilton, a Republican endorsed by President Trump, will face Xavier Becerra, a Democrat, in the general election. Tom Steyer, another Democrat, will not advance.`\
-https://www.nytimes.com/2026/06/09/us/steve-hilton-california-governor-xavier-becerra.html
-
 **In Maine’s Primaries for Governor, Polling Is Sparse**\
 `The Democratic primary for governor is particularly competitive, but polls show that both party’s primaries could come down to ranked-choice voting.`\
 https://www.nytimes.com/2026/06/09/polls/maine-governor-primary-polls.html
+
+**Steve Hilton Wins Second Spot in California Governor Race, Beating Tom Steyer**\
+`Steve Hilton, a Republican endorsed by President Trump, will face Xavier Becerra, a Democrat, in the general election. Tom Steyer, another Democrat, will not advance.`\
+https://www.nytimes.com/2026/06/09/us/steve-hilton-california-governor-xavier-becerra.html
 
 **5 Things to Know About Paul LePage, Republican House Candidate in Maine**\
 `Mr. LePage served two terms as governor of Maine and was known for his incendiary rhetoric and his vetoing of legislation of all sorts.`\
