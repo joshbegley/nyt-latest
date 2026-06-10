@@ -1,3 +1,19 @@
+**No Country for Ambitious Women**\
+`Republicans have spent years disparaging all things associated with women. Now Democrats are following suit.`\
+https://www.nytimes.com/2026/06/10/opinion/republicans-democrats-women-ambition.html
+
+**My Sister-in-Law Made an Indecent Suggestion After a Night of Drinking. Help!**\
+`A reader is unsure whether to tell his wife about her sister’s drunken musings, including an imagined scenario in which they might rekindle their long-ago love affair.`\
+https://www.nytimes.com/2026/06/10/style/indiscreet-comments-drunkenness-affairs.html
+
+**The A.I. Bubble Is Coming for Your Retirement Account**\
+`David Wallace-Wells speaks with the economist and law professor Natasha Sarin about what the coming A.I. I.P.O.s could mean for your retirement account.`\
+https://www.nytimes.com/2026/06/10/opinion/ai-ipo-openai-anthropic.html
+
+**Platner’s Primary Victory in Maine Gives Democrats Hope and Fears in Key Senate Race**\
+`Graham Platner’s primary victory in Maine sets up a high-stakes contest between an insurgent progressive with political baggage and a battle-tested but vulnerable Republican senator.`\
+https://www.nytimes.com/2026/06/10/us/politics/senate-control-maine.html
+
 **Drinking Water Facilities Hit by Strikes in Iran, State Media Reports**\
 `The state broadcaster said two water tanks serving thousands of people were damaged. The U.S. military did not respond to a request for comment.`\
 https://www.nytimes.com/2026/06/10/world/middleeast/drinking-water-facilities-hit-by-strikes-in-iran-state-media-reports.html
