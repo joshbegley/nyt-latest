@@ -1,3 +1,15 @@
+**Visiting a Soldier’s Funeral in Ukraine**\
+`Our reporter Kim Barker visits a church in Lviv, Ukraine, that holds military funerals at the same time each day.`\
+https://www.nytimes.com/video/world/100000010854469/visiting-a-soldiers-funeral-in-ukraine.html
+
+**In a New Memoir, Laverne Cox Takes on Her Demons**\
+`Her memoir follows the path from an abusive childhood to Hollywood stardom. But it’s being released amid a backlash over transgender rights that’s caught up to her, too.`\
+https://www.nytimes.com/2026/06/10/books/review/laverne-cox-transcendent-memoir.html
+
+**At Least 12 Dead After Shooting by Multiple Attackers in Johannesburg**\
+`The police said they were looking for more than 10 attackers, who had stormed a community of tin shacks. Investigators were still trying to determine the motive.`\
+https://www.nytimes.com/2026/06/10/world/africa/johannesburg-shooting-south-africa.html
+
 **At Least 12 Dead After Shooting in Johannesburg**\
 `The police said they were looking for more than 10 attackers, who had stormed a community of tin shacks. Investigators were still trying to determine the motive.`\
 https://www.nytimes.com/2026/06/10/world/africa/johannesburg-shooting-south-africa.html
