@@ -1,3 +1,7 @@
+**Inflation Keeps Prospects of a Fed Rate Cut Low**\
+`The Consumer Price Index is one of the last major data releases ahead Kevin M. Warsh’s first meeting as chair of the Federal Reserve.`\
+https://www.nytimes.com/2026/06/10/business/economy/inflation-federal-reserve-interest-rates.html
+
 **The Impossible Path Forward for Women in Politics**\
 `Republicans have spent years disparaging all things associated with women. Now Democrats are following suit.`\
 https://www.nytimes.com/2026/06/10/opinion/republicans-democrats-women-ambition.html
