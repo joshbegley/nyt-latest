@@ -187,7 +187,7 @@ https://www.nytimes.com/2026/06/10/books/review/laverne-cox-transcendent-memoir.
 https://www.nytimes.com/2026/06/10/world/africa/johannesburg-shooting-south-africa.html
 
 **Disorder Breaks Out After Belfast Knife Attack**\
-`People took to the streets of Belfast on Tuesday after a suspect, who the police said was a 30-year-old Sudanese man, was charged with attempted murder over a knife attack.`\
+`People took to the streets of Belfast, Northern Ireland, on Tuesday after a suspect, who the police said was a 30-year-old Sudanese man, was charged with attempted murder over a knife attack.`\
 https://www.nytimes.com/video/world/europe/100000010957250/belfast-ireland-riots-protests-knife-attack.html
 
 **¿Por qué bajan las tasas de natalidad? Los celulares podrían ser responsables**\
