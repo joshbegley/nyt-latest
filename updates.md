@@ -1,3 +1,7 @@
+**Cultivating a New Generation of Readers and a Love of Books**\
+`Readers respond to “Make America Read Again,” an Opinion guest essay by Brian Bannon. Also: Choosing Graham Platner; fading bank tellers.`\
+https://www.nytimes.com/2026/06/10/opinion/reading-books.html
+
 **Trump-Backed Air Force Veteran Wins Republican House Primary in Nevada**\
 `David Flippo won his party’s nomination for a safely Republican open seat, defeating a candidate backed by the G.O.P. governor.`\
 https://www.nytimes.com/2026/06/10/us/politics/flippo-trump-nevada-republicans-house.html
