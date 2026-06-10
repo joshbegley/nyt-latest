@@ -1,3 +1,11 @@
+**Trump’s Sharp Turn on China: Embracing It as a Peer Power**\
+`President Trump’s warming with Xi Jinping of China, a leader he admires, has ignited anxieties in Washington and across Asia.`\
+https://www.nytimes.com/2026/06/09/us/politics/trump-china-taiwan.html
+
+**NYT Crossword Answers for June 10, 2026**\
+`David J. Kahn and Ethan Quigley kick off their crossword collaboration for The New York Times.`\
+https://www.nytimes.com/2026/06/09/crosswords/daily-puzzle-2026-06-10.html
+
 **Is the U.S.-Israel Alliance Still Strategic?**\
 `Is the U.S.-Israel alliance doing more harm than good? Matt Duss, the executive vice president at the Center for International Policy, joins “The Ezra Klein Show” to discuss whether the strategic and moral costs of the U.S.-Israel alliance outweigh the benefits.`\
 https://www.nytimes.com/video/opinion/100000010948161/is-the-us-israel-alliance-still-strategic.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/world/middleeast/100000010954773/lebanon-israeli-s
 **U.S. Strikes Iran After Trump Vows to Retaliate for Downed Helicopter**\
 `The retaliatory U.S. attacks came on Tuesday as Israeli forces pounded southern Lebanon while targeting Hezbollah.`\
 https://www.nytimes.com/2026/06/09/world/middleeast/trump-iran-us-military-helicopter.html
-
-**A.I. Politics**\
-`Much of the discussion about artificial intelligence focuses on economic disruption. But it could reshape political life, too.`\
-https://www.nytimes.com/2026/06/09/world/ai-politics-iran-world-cup.html
-
-**NASA Announces Artemis III Crew**\
-`NASA announced the crew of Artemis III mission, which will fly to low-Earth orbit to test rendezvous and docking maneuvers with one or two lunar landers.`\
-https://www.nytimes.com/video/science/space/100000010955125/nasa-artemis-iii-astronauts.html
 

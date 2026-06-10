@@ -1,3 +1,11 @@
+**Trump’s Sharp Turn on China: Embracing It as a Peer Power**\
+`President Trump’s warming with Xi Jinping of China, a leader he admires, has ignited anxieties in Washington and across Asia.`\
+https://www.nytimes.com/2026/06/09/us/politics/trump-china-taiwan.html
+
+**NYT Crossword Answers for June 10, 2026**\
+`David J. Kahn and Ethan Quigley kick off their crossword collaboration for The New York Times.`\
+https://www.nytimes.com/2026/06/09/crosswords/daily-puzzle-2026-06-10.html
+
 **Is the U.S.-Israel Alliance Still Strategic?**\
 `Is the U.S.-Israel alliance doing more harm than good? Matt Duss, the executive vice president at the Center for International Policy, joins “The Ezra Klein Show” to discuss whether the strategic and moral costs of the U.S.-Israel alliance outweigh the benefits.`\
 https://www.nytimes.com/video/opinion/100000010948161/is-the-us-israel-alliance-still-strategic.html
