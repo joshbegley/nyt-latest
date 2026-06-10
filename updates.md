@@ -1,3 +1,7 @@
+**They Tracked Fitness, Food and Sleep Obsessively. Now They’re Tuning Out.**\
+`As some online lean into biohacking and wellness metrics, reformed optimizers are canceling Pilates and having that extra glass of wine.`\
+https://www.nytimes.com/2026/06/10/style/biohacking-fitness-tracking-fitbit-whoop.html
+
 **Diljeet Dosanjh Taylor, B.Y.U. Track Coach, Won’t Change for Her ‘Haters’**\
 `Diljeet Dosanjh Taylor, an outspoken feminist in Mormon country, has helped make Brigham Young University into a running powerhouse.`\
 https://www.nytimes.com/2026/06/10/style/diljeet-taylor-byu-track-coach.html
