@@ -186,10 +186,6 @@ https://www.nytimes.com/2026/06/10/briefing/today-in-short.html
 `He was harassed and briefly jailed for his work on Le Lynx, his satirical weekly newspaper, which investigated and caricatured a series of repressive leaders.`\
 https://www.nytimes.com/2026/06/10/world/africa/souleymane-diallo-dead.html
 
-**Gulf Arab nations condemn new Iranian attacks on Bahrain and Kuwait.**\
-`(No description)`\
-https://www.nytimes.com/2026/06/10/world/middleeast/gulf-arab-nations-condemn-new-iranian-attacks-on-bahrain-and-kuwait.html
-
 **Inflation Jumps as Iran War Intensifies Price Squeeze**\
 `Consumer prices rose at a faster rate for a third-straight month in May, to 4.2 percent annually, as the energy shock put more pressure on the U.S. economy.`\
 https://www.nytimes.com/live/2026/06/10/business/inflation-report-cpi
