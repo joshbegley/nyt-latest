@@ -1,3 +1,7 @@
+**Severe Storms Forecast: Illinois, Wisconsin, Minnesota and Iowa Could See Tornadoes Today**\
+`A large area that includes Chicago, Minneapolis and Milwaukee is at risk of tornadoes and strong winds as storms move through.`\
+https://www.nytimes.com/2026/06/10/weather/chicago-minneapolis-storms-tornadoes-midwest.html
+
 **Night of Violence Grips Belfast After Stabbing Attack**\
 `Cars and a bus were set on fire and families were driven from their homes as the stabbing attack caused tensions to spill onto the streets.`\
 https://www.nytimes.com/2026/06/10/world/europe/belfast-attack-riots-northern-ireland.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/10/books/review/laverne-cox-transcendent-memoir.
 **At Least 12 Dead After Shooting by Multiple Attackers in Johannesburg**\
 `The police said they were looking for more than 10 attackers, who had stormed a community of tin shacks. Investigators were still trying to determine the motive.`\
 https://www.nytimes.com/2026/06/10/world/africa/johannesburg-shooting-south-africa.html
-
-**Disorder Breaks Out After Belfast Knife Attack**\
-`People took to the streets of Belfast, Northern Ireland, on Tuesday after a suspect, who the police said was a 30-year-old Sudanese man, was charged with attempted murder over a knife attack.`\
-https://www.nytimes.com/video/world/europe/100000010957250/belfast-ireland-riots-protests-knife-attack.html
 

@@ -1,3 +1,7 @@
+**Severe Storms Forecast: Illinois, Wisconsin, Minnesota and Iowa Could See Tornadoes Today**\
+`A large area that includes Chicago, Minneapolis and Milwaukee is at risk of tornadoes and strong winds as storms move through.`\
+https://www.nytimes.com/2026/06/10/weather/chicago-minneapolis-storms-tornadoes-midwest.html
+
 **Night of Violence Grips Belfast After Stabbing Attack**\
 `Cars and a bus were set on fire and families were driven from their homes as the stabbing attack caused tensions to spill onto the streets.`\
 https://www.nytimes.com/2026/06/10/world/europe/belfast-attack-riots-northern-ireland.html
