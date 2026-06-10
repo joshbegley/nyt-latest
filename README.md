@@ -30,6 +30,10 @@ https://www.nytimes.com/2026/06/10/briefing/today-in-short.html
 `He was harassed and briefly jailed for his work on Le Lynx, his satirical weekly newspaper, which investigated and caricatured a series of repressive leaders.`\
 https://www.nytimes.com/2026/06/10/world/africa/souleymane-diallo-dead.html
 
+**Gulf Arab nations condemn new Iranian attacks on Bahrain and Kuwait.**\
+`(No description)`\
+https://www.nytimes.com/2026/06/10/world/middleeast/gulf-arab-nations-condemn-new-iranian-attacks-on-bahrain-and-kuwait.html
+
 **‘Backrooms,’ Liminal Spaces and Gen Z Anxiety**\
 `“Backrooms,” a horror movie about an uncanny labyrinthine space, plays on a generation’s fears about where digital life and the real world collide.`\
 https://www.nytimes.com/2026/06/10/style/backrooms-gen-z-anxiety.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/10/world/americas/world-cup-immigration-problems
 **El ataque de Irán a Israel fue una decisión calculada**\
 `Los líderes iraníes quieren demostrar que se toman en serio la defensa de sus aliados de Hizbulá en Líbano y quieren mantener el equilibrio de poder en la región, según los analistas.`\
 https://www.nytimes.com/es/2026/06/10/espanol/mundo/iran-israel-libano-ataques.html
-
-**Iran War Live Updates: After U.S. and Iran Exchange Strikes, Trump Issues New Threat**\
-`President Trump said Iran would “pay the price” for taking “too long to negotiate” an agreement to end the war.`\
-https://www.nytimes.com/live/2026/06/10/world/iran-war-trump-us
 

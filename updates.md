@@ -1,3 +1,15 @@
+**TK**\
+`Tk`\
+https://static01.nyt.com/slideshow/2026/06/10/t-magazine/tk.html
+
+**Hegseth Visits Guantánamo Bay Amid U.S. Tensions With Cuba**\
+`The trip comes as the Trump administration pushes for political and economic changes on the island.`\
+https://www.nytimes.com/2026/06/10/us/politics/hegseth-guantanamo-bay-cuba.html
+
+**How Trump Weaponized the Antiwar Platform**\
+`Matt Duss, the executive vice president at the Center for International Policy, joins “The Ezra Klein Show” to discuss how President Trump successfully weaponized an antiwar platform that Democrats abandoned.`\
+https://www.nytimes.com/video/opinion/100000010948157/how-trump-weaponized-the-antiwar-platform.html
+
 **NAEP Test Shows Younger Students Recovering From Pandemic**\
 `A national test found surprising progress among 9-year-olds, who are fully caught up in reading. But 13-year-olds have shown no improvement.`\
 https://www.nytimes.com/2026/06/10/us/naep-results-student-tests.html
