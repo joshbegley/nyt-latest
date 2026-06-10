@@ -1,3 +1,11 @@
+**Sanders-Backed Progressive Advances in California Swing District Against Valadao**\
+`Randy Villegas will face the incumbent, David Valadao, a Republican who has survived numerous challenges in a competitive district.`\
+https://www.nytimes.com/2026/06/09/us/politics/bains-villegas-california-democrats-primary.html
+
+**Lindsey Graham Wins G.O.P. Primary in South Carolina, Avoiding Runoff**\
+`Mr. Graham, a four-term incumbent senator, is the favorite to win the general election in a solidly Republican state.`\
+https://www.nytimes.com/2026/06/09/us/politics/south-carolina-senate-graham-lynch.html
+
 **Navy Admiral Fired by Hegseth Advances to Runoff to Replace Mace**\
 `Nancy Lacore would face a tough fall election in a district drawn in 2021 to be more Republican. She is seeking to replace Representative Nancy Mace, who ran unsuccessfully for governor instead of running for re-election.`\
 https://www.nytimes.com/2026/06/09/us/politics/nancy-lacore-mace-south-carolina.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/09/world/europe/pope-leo-bad-bunny.html
 **Pro-Israel Group Pushes for Haley Stevens in Michigan Senate Race**\
 `The main super PAC tied to the influential American Israel Public Affairs Committee released its first ads backing Ms. Stevens, a moderate congresswoman locked in a tight three-way primary.`\
 https://www.nytimes.com/2026/06/09/us/politics/aipac-haley-stevens-michigan-senate.html
-
-**Nevada Second Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Nevada primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-nevada-us-house-2-primary.html
-
-**South Carolina Sixth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 South Carolina primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-us-house-6-primary.html
 
