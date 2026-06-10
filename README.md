@@ -18,8 +18,8 @@ https://www.nytimes.com/2026/06/10/business/dealbook/cpi-inflation-surprise.html
 `The five-year-old company is now valued at $12 billion.`\
 https://www.nytimes.com/2026/06/10/business/dealbook/cyera-ai-cybersecurity-funding.html
 
-**Live Updates: Inflation Pressures Intensify as Iran War Chokes Energy Supplies**\
-`The Consumer Price Index for May will offer the latest look at how reduced oil and gas shipments have raised the costs of everyday goods and services for U.S. households.`\
+**Live Updates: Inflation Jumps as Iran War Intensifies Price Squeeze**\
+`Consumer prices rose at a faster rate for a third-straight month in May, to 4.2 percent annually, as the energy shock put more pressure on the U.S. economy.`\
 https://www.nytimes.com/live/2026/06/10/business/inflation-report-cpi
 
 **You Asked**\
