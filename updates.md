@@ -1,3 +1,15 @@
+**Pro-Palestinian Activists at U. of Michigan Indicted on Federal Conspiracy Charges**\
+`Federal prosecutors said the actions of eight demonstrators crossed the line into threats and vandalism.`\
+https://www.nytimes.com/2026/06/10/us/university-michigan-pro-palestinian-activists-indicted.html
+
+**My Father Abused My Sister When We Were Kids. Should I Tell My Half Siblings?**\
+`I want them to grasp the differences between the two families he created.`\
+https://www.nytimes.com/2026/06/10/magazine/father-abuse-half-siblings-ethics.html
+
+**ActBlue C.E.O. Invokes Fifth Amendment Repeatedly in Testimony to Congress**\
+`The head of the Democratic fund-raising behemoth declined to answer questions from House Republicans about reports that she may have misled Congress over how her group vetted foreign donations.`\
+https://www.nytimes.com/2026/06/10/us/politics/actblue-fifth-amendment-congress.html
+
 **Soccer Referee Receives Hero’s Welcome in Somalia After U.S. Denies Him Entry**\
 `Omar Abdulkadir Artan was admired in Somalia long before he was selected to be the first Somali referee at the World Cup. After being denied entry into the U.S. to participate as a referee in the World Cup, Artan received a hero’s welcome upon returning home on Wednesday.`\
 https://www.nytimes.com/video/sports/soccer/100000010957547/omar-abdulkadir-artan-welcome-somalia-world-cup-ban.html
