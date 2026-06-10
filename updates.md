@@ -1,3 +1,7 @@
+**Republican Primary for Open Congressional Race in South Carolina Heads to Runoff**\
+`The largely coastal district has voted overwhelmingly Republican in recent elections. Representative Nancy Mace ran unsuccessfully for governor instead of seeking re-election to the seat.`\
+https://www.nytimes.com/2026/06/09/us/politics/jenny-honeycutt-mace-south-carolina.html
+
 **For Nearly 150 Years, Parking Has Driven New Yorkers to the Brink**\
 `From court cases to political scandal to murder, the city has long been racked with conflict over what to do with cars when they’re not being driven.`\
 https://www.nytimes.com/interactive/2026/06/09/nyregion/nyc-parking-cars-history.html
