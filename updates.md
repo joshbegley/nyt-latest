@@ -1,3 +1,11 @@
+**Tokio tiene una nueva policía contra la basura**\
+`En Shibuya, una de las zonas más turísticas y concurridas de Tokio, tirar basura ahora tiene un precio.`\
+https://www.nytimes.com/es/2026/06/10/espanol/mundo/japon-tokio-basura-turistas.html
+
+**Word of the Day: effete**\
+`This word has appeared in four articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/06/10/learning/word-of-the-day-effete.html
+
 **Jimmy Kimmel Calls a Technical Foul on Trump’s Apparent Game 3 Nap**\
 `The late night host called Trump “the first sitting president to shut down a major United States city so he could take a nap in front of a sold-out crowd at the N.B.A. finals.”`\
 https://www.nytimes.com/2026/06/10/arts/television/late-night-trump-nba-finals.html
