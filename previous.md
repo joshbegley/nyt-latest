@@ -1,3 +1,7 @@
+**Oil Wavers and Stocks Sink After Wave of Strikes Across Middle East**\
+`The attacks, which strained a two-month cease-fire between Iran and the United States, were the latest jolt to energy markets.`\
+https://www.nytimes.com/2026/06/10/business/oil-stocks-gas-prices-iran.html
+
 **Severe Storms Forecast: Illinois, Wisconsin, Minnesota and Iowa Could See Tornadoes Today**\
 `A large area that includes Chicago, Minneapolis and Milwaukee is at risk of tornadoes and strong winds as storms move through.`\
 https://www.nytimes.com/2026/06/10/weather/chicago-minneapolis-storms-tornadoes-midwest.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/100000010854469/visiting-a-soldiers-funeral-
 **In a New Memoir, Laverne Cox Takes on Her Demons**\
 `Her memoir follows the path from an abusive childhood to Hollywood stardom. But it’s being released amid a backlash over transgender rights that’s caught up to her, too.`\
 https://www.nytimes.com/2026/06/10/books/review/laverne-cox-transcendent-memoir.html
-
-**At Least 12 Dead After Shooting by Multiple Attackers in Johannesburg**\
-`The police said they were looking for more than 10 attackers, who had stormed a community of tin shacks. Investigators were still trying to determine the motive.`\
-https://www.nytimes.com/2026/06/10/world/africa/johannesburg-shooting-south-africa.html
 
