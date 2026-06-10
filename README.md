@@ -55,7 +55,7 @@ https://www.nytimes.com/2026/06/10/nyregion/central-park-carriage-horse-dead.htm
 https://www.nytimes.com/2026/06/10/business/oil-stocks-gas-prices-iran.html
 
 **Severe Storms Forecast: Illinois, Wisconsin, Minnesota and Iowa Could See Tornadoes Today**\
-`A large area that includes Chicago, Minneapolis and Milwaukee is at risk of tornadoes and strong winds as storms move through.`\
+`A large area that includes Chicago, Minneapolis, Kansas City and Milwaukee is at risk of tornadoes and strong winds as storms move through.`\
 https://www.nytimes.com/2026/06/10/weather/chicago-minneapolis-storms-tornadoes-midwest.html
 
 **Night of Violence Grips Belfast After Stabbing Attack**\
