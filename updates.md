@@ -1,3 +1,19 @@
+**Southern Baptists Move to Strengthen Ban on Women Pastors**\
+`The amendment passed easily at the denomination’s annual gathering. It needs approval again next year to enter the constitution.`\
+https://www.nytimes.com/2026/06/10/us/sbc-southern-baptist-convention.html
+
+**Former Officer Pleads Guilty to Having Sex With Woman He Arrested**\
+`The New York Police Department officer, who resigned in December, also admitted to sending inappropriate texts to crime victims.`\
+https://www.nytimes.com/2026/06/10/nyregion/nypd-officer-inappropriate-messages-victims.html
+
+**‘X-Men’ Actor Tyler Mane Says He Has Male Breast Cancer**\
+`Tyler Mane said he was initially embarrassed to divulge the diagnosis but wanted to encourage other men to look out for the disease.`\
+https://www.nytimes.com/2026/06/10/us/tyler-mane-male-breast-cancer.html
+
+**Indonesian Military Court Sentences Four in Acid Attack on Rights Advocate**\
+`The victim is an outspoken critic of Indonesia’s powerful military, and military prosecutors took over the case despite his objections.`\
+https://www.nytimes.com/2026/06/10/world/asia/indonesia-military-acid-attack-andrie.html
+
 **Strict Security Around MSG Is Back for Knicks Game 4**\
 `Several blocks around Madison Square Garden will be closed to most people Wednesday afternoon. The city approved a ticketed watch party, though it was unclear whether it would take place.`\
 https://www.nytimes.com/2026/06/10/nyregion/knicks-security-game-4-msg.html
