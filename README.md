@@ -1,3 +1,7 @@
+**Mace Defeat Heralds an Exodus of Rabble-Rousers From Congress**\
+`The Republican congresswoman from South Carolina, who made enemies on both sides of the political aisle, is just one of several flashy lawmakers to be leaving Capitol Hill.`\
+https://www.nytimes.com/2026/06/10/us/politics/nancy-mace-congress-south-carolina.html
+
 **The Good List: 6 Things to Add Joy to Your Day**\
 `Dancing pigeons, mystery stew and a nostalgia machine.`\
 https://www.nytimes.com/2026/06/10/briefing/the-good-list-pigeons-knicks.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/10/world/middleeast/gulf-arab-nations-condemn-ne
 **‘Backrooms,’ Liminal Spaces and Gen Z Anxiety**\
 `“Backrooms,” a horror movie about an uncanny labyrinthine space, plays on a generation’s fears about where digital life and the real world collide.`\
 https://www.nytimes.com/2026/06/10/style/backrooms-gen-z-anxiety.html
-
-**These Cold Peanut Noodles Are for Ginger Lovers**\
-`There’s grated ginger in the spicy-savory sauce, and chopped crystallized ginger in the noodle-cucumber-scallion mix for chew and sweetness.`\
-https://www.nytimes.com/2026/06/10/dining/these-cold-peanut-noodles-are-for-ginger-lovers.html
 
 **Inflation Jumps as Iran War Intensifies Price Squeeze**\
 `Consumer prices rose at a faster rate for a third-straight month in May, to 4.2 percent annually, as the energy shock put more pressure on the U.S. economy.`\
