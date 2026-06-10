@@ -1,3 +1,7 @@
+**Russian Military Official Killed in Car Explosion Near Moscow**\
+`A senior Russian military officer was killed in a car explosion on Tuesday, a Ukrainian official and Russian media outlets said. The incident appears to be the latest targeted assassination of high-profile opponents of Ukraine in Russia.`\
+https://www.nytimes.com/video/world/europe/100000010958164/russia-military-official-killed-car-bomb.html
+
 **Trump Officials Say ICE Won’t Raid World Cup Games, but Fans Are Worried**\
 `Federal agents are there for security, not immigration enforcement, officials say. But trust is fragile after the administration’s recent crackdowns.`\
 https://www.nytimes.com/2026/06/10/us/world-cup-ice-immigration-enforcement.html
@@ -34,7 +38,7 @@ https://www.nytimes.com/2026/06/10/business/bill-gates-epstein-testimony.html
 `Los comentarios del presidente llegan en un momento crucial de las negociaciones entre Canadá, México y EE. UU. sobre la renovación de su tratado de libre comercio.`\
 https://www.nytimes.com/es/2026/06/10/espanol/mundo/trump-renovar-t-mec.html
 
-**Hopes Dim for Renewing Spy Law as Trump Digs In on Bill Pulte**\
+**FISA Surveillance Law May Expire After Trump Picks Bill Pulte for Intel Post**\
 `Republicans are struggling to extend a powerful surveillance authority set to lapse this weekend after President Trump alienated lawmakers with his choice of acting spy chief.`\
 https://www.nytimes.com/2026/06/10/us/politics/trump-bill-pulte-spy-law.html
 
@@ -54,7 +58,7 @@ https://www.nytimes.com/2026/06/10/science/jessica-meir-aurora-southern-lights-s
 `Several blocks around Madison Square Garden will be closed to most people Wednesday afternoon. The city approved a ticketed watch party, though it was unclear whether it would take place.`\
 https://www.nytimes.com/2026/06/10/nyregion/knicks-security-game-4-msg.html
 
-**White House Again Shrugs Off High Prices Amid War With Iran**\
+**Trump Shrugs Off High Prices Amid Iran War and Says ‘I Love the Inflation’**\
 `As inflation outpaces workers’ wages, the Trump administration insists that its agenda is working.`\
 https://www.nytimes.com/2026/06/10/business/economy/trump-inflation-iran-war.html
 
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/world/middleeast/100000010957544/indian-sailors-re
 **In a Timely “Under the Shadow” Staging, a Ghost Haunts War-Torn Iran**\
 `The supernatural mixes with secular modernity, family dynamics and feminism in a new London production of “Under the Shadow.”`\
 https://www.nytimes.com/2026/06/10/theater/under-the-shadow-almeida-theater-london.html
-
-**Hong Kong Charges 7 People and 2 Companies Over Deadly Apartment Fire**\
-`The 25 charges include manslaughter and conspiracy. They are the first to emerge from a monthslong investigation into a blaze that killed 168 people.`\
-https://www.nytimes.com/2026/06/10/world/asia/hong-kong-apartment-fire-charges.html
 
 **Inflation Jumps as Iran War Intensifies Price Squeeze**\
 `Consumer prices rose at a faster rate for a third-straight month in May, to 4.2 percent annually, as the energy shock put more pressure on the U.S. economy.`\

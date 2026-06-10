@@ -1,3 +1,19 @@
+**Trump Officials Say ICE Won’t Raid World Cup Games, but Fans Are Worried**\
+`Federal agents are there for security, not immigration enforcement, officials say. But trust is fragile after the administration’s recent crackdowns.`\
+https://www.nytimes.com/2026/06/10/us/world-cup-ice-immigration-enforcement.html
+
+**A.I. Chatbot Helps a $100 Thrift Store Painting Sell for Over $250,000**\
+`When a son got curious about the origins of a painting his mother bought at a secondhand shop decades ago, Google Gemini had some intriguing thoughts.`\
+https://www.nytimes.com/2026/06/10/arts/design/ai-gemini-thrift-store-painting-sale.html
+
+**SpaceX’s IPO Could Turn 4,400 Employees Into Millionaires**\
+`While Elon Musk may soon become a trillionaire, his rocket company’s market debut is set to the change the lives of its current and former employees, too.`\
+https://www.nytimes.com/2026/06/10/technology/spacex-ipo-employee-millionaires.html
+
+**Inflation Keeps Prospects of a Fed Rate Cut Low**\
+`The Consumer Price Index is one of the last major data releases ahead of Kevin M. Warsh’s first meeting as chair of the Federal Reserve.`\
+https://www.nytimes.com/2026/06/10/business/economy/inflation-federal-reserve-interest-rates.html
+
 **Southern Baptists Move to Strengthen Ban on Women Pastors**\
 `The amendment passed easily at the denomination’s annual gathering. It needs approval again next year to enter the constitution.`\
 https://www.nytimes.com/2026/06/10/us/sbc-southern-baptist-convention.html
