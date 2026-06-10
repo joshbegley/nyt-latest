@@ -1,3 +1,7 @@
+**You Asked**\
+`We’re answering reader questions.`\
+https://www.nytimes.com/2026/06/10/briefing/reader-questions-answers.html
+
 **The Iran War’s Devastating Butterfly Effect**\
 `The effective closure of the Strait of Hormuz has increased the prices of critical goods as hunger rises in scores of poor and unstable countries.`\
 https://www.nytimes.com/2026/06/10/podcasts/the-daily/the-iran-wars-aid-cuts-somalia.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/politics/100000010947363/how-trump-administrati
 **A Bewildering Bejeweled Has Kafka’s Fingerprints**\
 `Both “The Trial” and Titanium Court, a lauded Match-3 game, trade in the frustration of a system of nonsensical rules.`\
 https://www.nytimes.com/2026/06/10/arts/titanium-court-kafka-trial.html
-
-**A.I. Loves the Em Dash. What’s a Human Writer to Do?**\
-`Chatbots are appropriating our most common rhetorical tics. Yet when it comes to language, human creativity can’t be beat.`\
-https://www.nytimes.com/2026/06/10/books/review/em-dash-chatbot-human-language.html
 
