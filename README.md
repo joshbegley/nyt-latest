@@ -1,3 +1,19 @@
+**Southern Baptists Move to Strengthen Ban on Women Pastors**\
+`The amendment passed easily at the denomination’s annual gathering. It needs approval again next year to enter the constitution.`\
+https://www.nytimes.com/2026/06/10/us/sbc-southern-baptist-convention.html
+
+**Former Officer Pleads Guilty to Having Sex With Woman He Arrested**\
+`The New York Police Department officer, who resigned in December, also admitted to sending inappropriate texts to crime victims.`\
+https://www.nytimes.com/2026/06/10/nyregion/nypd-officer-inappropriate-messages-victims.html
+
+**‘X-Men’ Actor Tyler Mane Says He Has Male Breast Cancer**\
+`Tyler Mane said he was initially embarrassed to divulge the diagnosis but wanted to encourage other men to look out for the disease.`\
+https://www.nytimes.com/2026/06/10/us/tyler-mane-male-breast-cancer.html
+
+**Indonesian Military Court Sentences Four in Acid Attack on Rights Advocate**\
+`The victim is an outspoken critic of Indonesia’s powerful military, and military prosecutors took over the case despite his objections.`\
+https://www.nytimes.com/2026/06/10/world/asia/indonesia-military-acid-attack-andrie.html
+
 **En vísperas de la Copa Mundial, la política migratoria de EE. UU. deja a algunos fuera**\
 `Algunos aficionados y participantes que esperaban viajar para el Mundial se han quejado de las restrictivas normas para visitar uno de los países anfitriones.`\
 https://www.nytimes.com/es/2026/06/10/espanol/mundo/mundial-migracion.html
@@ -177,22 +193,6 @@ https://www.nytimes.com/2026/06/10/style/biohacking-fitness-tracking-fitbit-whoo
 **Diljeet Dosanjh Taylor, B.Y.U. Track Coach, Won’t Change for Her ‘Haters’**\
 `Diljeet Dosanjh Taylor, an outspoken feminist in Mormon country, has helped make Brigham Young University into a running powerhouse.`\
 https://www.nytimes.com/2026/06/10/style/diljeet-taylor-byu-track-coach.html
-
-**Senior Russian Military Official Is Killed in Car Explosion Near Moscow**\
-`The death of the officer appeared to add to a string of targeted assassinations of high-profile opponents of Ukraine inside Russia.`\
-https://www.nytimes.com/2026/06/10/world/europe/russia-moscow-car-bomb.html
-
-**Why Complete Election Results in Maine Could Take More Than a Week**\
-`Winners in the Republican and Democratic primary races for governor and in a Democratic congressional primary have not yet been determined.`\
-https://www.nytimes.com/2026/06/10/us/politics/maine-slow-vote-count.html
-
-**Violence in Belfast After Brutal Stabbing Attack: What to Know**\
-`There was unrest in Belfast and elsewhere after video of a brutal stabbing circulated online, amplified by far-right activists.`\
-https://www.nytimes.com/2026/06/10/world/europe/belfast-attack-riots-what-happened.html
-
-**The Impossible Path Forward for Women in Politics**\
-`Republicans have spent years disparaging all things associated with women. Now Democrats are following suit.`\
-https://www.nytimes.com/2026/06/10/opinion/republicans-democrats-women-ambition.html
 
 **Inflation Jumps as Iran War Intensifies Price Squeeze**\
 `Consumer prices rose at a faster rate for a third-straight month in May, to 4.2 percent annually, as the energy shock put more pressure on the U.S. economy.`\
