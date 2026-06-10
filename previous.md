@@ -1,3 +1,11 @@
+**Is the U.S.-Israel Alliance Still Strategic?**\
+`Is the U.S.-Israel alliance doing more harm than good? Matt Duss, the executive vice president at the Center for International Policy, joins “The Ezra Klein Show” to discuss whether the strategic and moral costs of the U.S.-Israel alliance outweigh the benefits.`\
+https://www.nytimes.com/video/opinion/100000010948161/is-the-us-israel-alliance-still-strategic.html
+
+**Trump Says Bill Pulte Will Take Over as Intelligence Chief on June 19**\
+`The president also plans to keep Mr. Pulte as the head of a federal housing agency, heightening tension with Congress and complicating the renewal of a powerful spying authority.`\
+https://www.nytimes.com/2026/06/09/us/politics/trump-pulte-intelligence-chief.html
+
 **Platner Wins Maine Senate Primary After a Turbulent Stretch of His Bid**\
 `Graham Platner has faced new scrutiny over his personal history, but his Democratic primary victory sets up a high-stakes race against Senator Susan Collins, a Republican.`\
 https://www.nytimes.com/2026/06/09/us/politics/maine-senate-platner-mills.html
@@ -10,8 +18,8 @@ https://www.nytimes.com/2026/06/09/us/politics/south-carolina-governor-republica
 `Randy Villegas will face the incumbent, David Valadao, a Republican who has survived numerous challenges in a competitive district.`\
 https://www.nytimes.com/2026/06/09/us/politics/bains-villegas-california-democrats-primary.html
 
-**Lindsey Graham Wins G.O.P. Primary in South Carolina, Avoiding Runoff**\
-`Mr. Graham, a four-term incumbent senator, is the favorite to win the general election in a solidly Republican state.`\
+**Lindsey Graham Wins Republican Senate Primary in South Carolina**\
+`Mr. Graham, a four-term incumbent, is the favorite to win the general election in a solidly Republican state.`\
 https://www.nytimes.com/2026/06/09/us/politics/south-carolina-senate-graham-lynch.html
 
 **Navy Admiral Fired by Hegseth Advances to Runoff to Replace Mace**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/09/world/ai-politics-iran-world-cup.html
 **NASA Announces Artemis III Crew**\
 `NASA announced the crew of Artemis III mission, which will fly to low-Earth orbit to test rendezvous and docking maneuvers with one or two lunar landers.`\
 https://www.nytimes.com/video/science/space/100000010955125/nasa-artemis-iii-astronauts.html
-
-**Are You Traveling to the U.S. for the 2026 World Cup? We’d Like to Hear From You.**\
-`Tell us about your experience buying tickets, finding a place to stay, making travel arrangements and, if you’re coming to the U.S., dealing with entry requirements.`\
-https://www.nytimes.com/2026/06/09/travel/world-cup-travel-us.html
-
-**Maine’s Primary Ballot Is Crowded With Members of Political Dynasties**\
-`Among other candidates with ties to prominent officials, a senator’s son and a Bush scion are running for governor.`\
-https://www.nytimes.com/2026/06/09/us/politics/maine-political-dynasty-king-pingree-bush.html
 

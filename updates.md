@@ -1,3 +1,15 @@
+**Is the U.S.-Israel Alliance Still Strategic?**\
+`Is the U.S.-Israel alliance doing more harm than good? Matt Duss, the executive vice president at the Center for International Policy, joins “The Ezra Klein Show” to discuss whether the strategic and moral costs of the U.S.-Israel alliance outweigh the benefits.`\
+https://www.nytimes.com/video/opinion/100000010948161/is-the-us-israel-alliance-still-strategic.html
+
+**Trump Says Bill Pulte Will Take Over as Intelligence Chief on June 19**\
+`The president also plans to keep Mr. Pulte as the head of a federal housing agency, heightening tension with Congress and complicating the renewal of a powerful spying authority.`\
+https://www.nytimes.com/2026/06/09/us/politics/trump-pulte-intelligence-chief.html
+
+**Lindsey Graham Wins Republican Senate Primary in South Carolina**\
+`Mr. Graham, a four-term incumbent, is the favorite to win the general election in a solidly Republican state.`\
+https://www.nytimes.com/2026/06/09/us/politics/south-carolina-senate-graham-lynch.html
+
 **Platner Wins Maine Senate Primary After a Turbulent Stretch of His Bid**\
 `Graham Platner has faced new scrutiny over his personal history, but his Democratic primary victory sets up a high-stakes race against Senator Susan Collins, a Republican.`\
 https://www.nytimes.com/2026/06/09/us/politics/maine-senate-platner-mills.html
