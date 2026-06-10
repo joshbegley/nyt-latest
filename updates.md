@@ -1,3 +1,11 @@
+**Cyera, a Cybersecurity Start-up for the A.I. Era, Raises $600 Million**\
+`The five-year-old company is now valued at $12 billion.`\
+https://www.nytimes.com/2026/06/10/business/dealbook/cyera-ai-cybersecurity-funding.html
+
+**Live Updates: Inflation Pressures Intensify as Iran War Chokes Energy Supplies**\
+`The Consumer Price Index for May will offer the latest look at how reduced oil and gas shipments have raised the costs of everyday goods and services for U.S. households.`\
+https://www.nytimes.com/live/2026/06/10/business/inflation-report-cpi
+
 **You Asked**\
 `We’re answering reader questions.`\
 https://www.nytimes.com/2026/06/10/briefing/reader-questions-answers.html
