@@ -1,3 +1,7 @@
+**Diljeet Dosanjh Taylor, B.Y.U. Track Coach, Won’t Change for Her ‘Haters’**\
+`Diljeet Dosanjh Taylor, an outspoken feminist in Mormon country, has helped make Brigham Young University into a running powerhouse.`\
+https://www.nytimes.com/2026/06/10/style/diljeet-taylor-byu-track-coach.html
+
 **Senior Russian Militar**\
 `The death of the officer appeared to add to a string of targeted assassinations of high-profile opponents of Ukraine inside Russia.`\
 https://www.nytimes.com/2026/06/10/world/europe/russia-moscow-car-bomb.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/10/realestate/homes-for-wale-twentynine-palms-ta
 **Life Inside an ICE Detention Facility**\
 `For days protesters have been clashing with law enforcement over conditions at an ICE detention facility in New Jersey. Our reporter Hamed Aleaziz explains how these complaints persist across the country, and takes a closer look at the problems documented at one facility in Louisiana.`\
 https://www.nytimes.com/video/us/politics/100000010946144/life-inside-an-ice-detention-facility.html
-
-**Gosh, a Club Where Bosch’s Little Creatures Might Go for Cocktails**\
-`Gosh, a new nightclub in Lower Manhattan by way of Italy, has its own quirky logic.`\
-https://www.nytimes.com/2026/06/10/style/gosh-chinatown-club.html
 
