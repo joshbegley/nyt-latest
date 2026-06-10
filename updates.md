@@ -1,3 +1,7 @@
+**For Nearly 150 Years, Parking Has Driven New Yorkers to the Brink**\
+`From court cases to political scandal to murder, the city has long been racked with conflict over what to do with cars when they’re not being driven.`\
+https://www.nytimes.com/interactive/2026/06/09/nyregion/nyc-parking-cars-history.html
+
 **Trump’s Sharp Turn on China: Embracing It as a Peer Power**\
 `President Trump’s warming with Xi Jinping of China, a leader he admires, has ignited anxieties in Washington and across Asia.`\
 https://www.nytimes.com/2026/06/09/us/politics/trump-china-taiwan.html
