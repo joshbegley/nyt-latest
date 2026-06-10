@@ -190,11 +190,11 @@ https://www.nytimes.com/2026/06/10/world/africa/souleymane-diallo-dead.html
 `(No description)`\
 https://www.nytimes.com/2026/06/10/world/middleeast/gulf-arab-nations-condemn-new-iranian-attacks-on-bahrain-and-kuwait.html
 
-**‘Backrooms,’ Liminal Spaces and Gen Z Anxiety**\
-`“Backrooms,” a horror movie about an uncanny labyrinthine space, plays on a generation’s fears about where digital life and the real world collide.`\
-https://www.nytimes.com/2026/06/10/style/backrooms-gen-z-anxiety.html
-
 **Inflation Jumps as Iran War Intensifies Price Squeeze**\
 `Consumer prices rose at a faster rate for a third-straight month in May, to 4.2 percent annually, as the energy shock put more pressure on the U.S. economy.`\
 https://www.nytimes.com/live/2026/06/10/business/inflation-report-cpi
+
+**World Cup Updates: U.S. Immigration Policies Turn Some Fans and Participants Away**\
+`(No description)`\
+https://www.nytimes.com/live/2026/us/fifa-world-cup
 
