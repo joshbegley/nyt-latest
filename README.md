@@ -1,3 +1,7 @@
+**Americans Are Paying More to Travel This Summer**\
+`Airfares shot up 27 percent from a year earlier in the latest inflation data.`\
+https://www.nytimes.com/2026/06/10/business/economy/americans-travel-expensive.html
+
 **Inflation Keeps Prospects of a Fed Rate Cut Low**\
 `The Consumer Price Index is one of the last major data releases ahead Kevin M. Warsh’s first meeting as chair of the Federal Reserve.`\
 https://www.nytimes.com/2026/06/10/business/economy/inflation-federal-reserve-interest-rates.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/10/nyregion/a-street-called-jimi-hendrix-way.htm
 **Forget Coders. The Real A.I. Threat Is in the Back Office.**\
 `As artificial intelligence spreads, millions of middle-class jobs in human resources, billing and payroll could be at risk. Most are held by women.`\
 https://www.nytimes.com/2026/06/10/business/economy/back-office-workers-ai.html
-
-**Argentina’s World Cup Sticker Albums Are a Low-Tech Craze Immune to the Digital Revolution**\
-`World Cup sticker albums have captivated children and adults in Argentina, in a collecting fever that seems immune to the digital revolution.`\
-https://www.nytimes.com/2026/06/10/world/americas/argentina-world-cup-sticker-albums.html
 
