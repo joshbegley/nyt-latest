@@ -1,3 +1,15 @@
+**Russian Military Official Killed in Car Explosion Near Moscow**\
+`A senior Russian military officer was killed in a car explosion on Tuesday, a Ukrainian official and Russian media outlets said. The incident appears to be the latest targeted assassination of high-profile opponents of Ukraine in Russia.`\
+https://www.nytimes.com/video/world/europe/100000010958164/russia-military-official-killed-car-bomb.html
+
+**FISA Surveillance Law May Expire After Trump Picks Bill Pulte for Intel Post**\
+`Republicans are struggling to extend a powerful surveillance authority set to lapse this weekend after President Trump alienated lawmakers with his choice of acting spy chief.`\
+https://www.nytimes.com/2026/06/10/us/politics/trump-bill-pulte-spy-law.html
+
+**Trump Shrugs Off High Prices Amid Iran War and Says ‘I Love the Inflation’**\
+`As inflation outpaces workers’ wages, the Trump administration insists that its agenda is working.`\
+https://www.nytimes.com/2026/06/10/business/economy/trump-inflation-iran-war.html
+
 **Trump Officials Say ICE Won’t Raid World Cup Games, but Fans Are Worried**\
 `Federal agents are there for security, not immigration enforcement, officials say. But trust is fragile after the administration’s recent crackdowns.`\
 https://www.nytimes.com/2026/06/10/us/world-cup-ice-immigration-enforcement.html
