@@ -1,3 +1,7 @@
+**Platner Wins Maine Senate Primary After a Turbulent Stretch of His Bid**\
+`Graham Platner has faced new scrutiny over his personal history, but his Democratic primary victory sets up a high-stakes race against Senator Susan Collins, a Republican.`\
+https://www.nytimes.com/2026/06/09/us/politics/maine-senate-platner-mills.html
+
 **Evette and Wilson Advance to Runoff in South Carolina Republican Primary for Governor**\
 `Lt. Gov. Pamela Evette had gotten an endorsement from President Trump, but it was not enough to help her clinch a victory outright. She now faces Alan Wilson, the state attorney general, in a runoff on June 23.`\
 https://www.nytimes.com/2026/06/09/us/politics/south-carolina-governor-republican-evette-wilson.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/09/travel/world-cup-travel-us.html
 **Maine’s Primary Ballot Is Crowded With Members of Political Dynasties**\
 `Among other candidates with ties to prominent officials, a senator’s son and a Bush scion are running for governor.`\
 https://www.nytimes.com/2026/06/09/us/politics/maine-political-dynasty-king-pingree-bush.html
-
-**Pope Leo Meets Bad Bunny**\
-`The two crossed paths in Spain, where they have been on decidedly different tours. Sorry, no photos were released.`\
-https://www.nytimes.com/2026/06/09/world/europe/pope-leo-bad-bunny.html
 

@@ -1,4 +1,8 @@
 **Evette and Wilson Advance to Runoff in South Carolina Republican Primary for Governor**\
+`Lt. Gov. Pamela Evette had gotten an endorsement from President Trump, but it was not enough to help her clinch a victory outright. She now faces Alan Wilson, the state attorney general, in a runoff on June 23.`\
+https://www.nytimes.com/2026/06/09/us/politics/south-carolina-governor-republican-evette-wilson.html
+
+**Evette and Wilson Advance to Runoff in South Carolina Republican Primary for Governor**\
 `The candidates have only two weeks to campaign before the runoff election on June 23. South Carolina has elected only Republican governors since 2002.`\
 https://www.nytimes.com/2026/06/09/us/politics/south-carolina-governor-republican-evette-wilson.html
 
