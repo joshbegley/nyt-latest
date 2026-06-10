@@ -1,3 +1,11 @@
+**Victor Wembanyama, the Knicks’ Biggest Foe and New York’s Biggest Tourist**\
+`Mr. Wembanyama has had to keep a low-profile while in New York to try and win the N.B.A. finals, but on visits there, he has always resisted hiding in hotel rooms and private cars.`\
+https://www.nytimes.com/2026/06/10/nyregion/wemby-drawing-park-visiting-nyc.html
+
+**Canada Moves to Ban Social Media Use for Youth Under 16**\
+`The country’s previous attempt to get tech companies to shelter young users failed amid heavy criticism from civil liberty groups.`\
+https://www.nytimes.com/2026/06/10/world/canada/social-meda-kids-legislation-carney.html
+
 **La OPI de SpaceX hará millonarios a 4400 de sus empleados**\
 `Elon Musk podría convertirse pronto en un billonario, pero la salida a bolsa de su empresa de cohetes también extenderá una riqueza inesperada a miles de sus empleados y exempleados.`\
 https://www.nytimes.com/es/2026/06/10/espanol/negocios/opi-spacex-bolsa-empleados.html

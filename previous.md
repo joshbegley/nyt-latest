@@ -1,3 +1,11 @@
+**Victor Wembanyama, the Knicks’ Biggest Foe and New York’s Biggest Tourist**\
+`Mr. Wembanyama has had to keep a low-profile while in New York to try and win the N.B.A. finals, but on visits there, he has always resisted hiding in hotel rooms and private cars.`\
+https://www.nytimes.com/2026/06/10/nyregion/wemby-drawing-park-visiting-nyc.html
+
+**Canada Moves to Ban Social Media Use for Youth Under 16**\
+`The country’s previous attempt to get tech companies to shelter young users failed amid heavy criticism from civil liberty groups.`\
+https://www.nytimes.com/2026/06/10/world/canada/social-meda-kids-legislation-carney.html
+
 **La OPI de SpaceX hará millonarios a 4400 de sus empleados**\
 `Elon Musk podría convertirse pronto en un billonario, pero la salida a bolsa de su empresa de cohetes también extenderá una riqueza inesperada a miles de sus empleados y exempleados.`\
 https://www.nytimes.com/es/2026/06/10/espanol/negocios/opi-spacex-bolsa-empleados.html
@@ -50,13 +58,13 @@ https://www.nytimes.com/2026/06/10/us/politics/latino-voters-democrats-elections
 `Secretary of Defense Pete Hegseth told reporters at MacDill Air Force Base in Tampa, Fla. on Wednesday that “Central Command, will be busy tonight.”`\
 https://www.nytimes.com/video/us/100000010959098/pete-hegseth-strike-iran-wednesday-night.html
 
-**Britain Is Weighing a Social Media Ban for Children. How Did It Get Here?**\
-`Months after Australia banned social media for everyone under 16, the British government is considering new policies to keep children safe online.`\
-https://www.nytimes.com/2026/06/10/world/europe/uk-social-media-ban-under-16.html
-
 **Australia’s Social Media Ban Is Floundering. Can It Still Help Younger Kids?**\
 `Six months in, many teens are already back on platforms they were supposed to be blocked from. The ban’s benefits may fall to the next generation.`\
 https://www.nytimes.com/2026/06/10/world/australia/australia-social-media-ban-under-16.html
+
+**Britain Is Weighing a Social Media Ban for Children. How Did It Get Here?**\
+`Months after Australia banned social media for everyone under 16, the British government is considering new policies to keep children safe online.`\
+https://www.nytimes.com/2026/06/10/world/europe/uk-social-media-ban-under-16.html
 
 **Amtrak Speeds Up Trip From Vancouver to Seattle for World Cup Fans**\
 `Passengers heading from Vancouver, British Columbia, to Seattle will now clear U.S. customs before boarding instead of stopping once they’ve crossed the border.`\
@@ -181,14 +189,6 @@ https://www.nytimes.com/es/2026/06/10/espanol/mundo/mundial-migracion.html
 **Bill Gates Says Epstein Tried to Use His Extramarital Affairs Against Him**\
 `The billionaire philanthropist testified on Wednesday in a closed-door congressional hearing about the Justice Department’s investigation of Jeffrey Epstein.`\
 https://www.nytimes.com/2026/06/10/business/bill-gates-epstein-testimony.html
-
-**Trump dice que podría no renovar el T-MEC**\
-`Los comentarios del presidente llegan en un momento crucial de las negociaciones entre Canadá, México y EE. UU. sobre la renovación de su tratado de libre comercio.`\
-https://www.nytimes.com/es/2026/06/10/espanol/mundo/trump-renovar-t-mec.html
-
-**FISA Surveillance Law May Expire After Trump Picks Bill Pulte for Intel Post**\
-`Republicans are struggling to extend a powerful surveillance authority set to lapse this weekend after President Trump alienated lawmakers with his choice of acting spy chief.`\
-https://www.nytimes.com/2026/06/10/us/politics/trump-bill-pulte-spy-law.html
 
 **World Cup Updates: U.S. Immigration Policies Turn Some Fans and Participants Away**\
 `(No description)`\
