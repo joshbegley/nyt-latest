@@ -1,3 +1,7 @@
+**Republicans in Maine Governor’s Race Head to Ranked-Choice Runoff**\
+`State election officials will confirm the winner in the next week or two, after a counting process that involves multiple rounds of elimination.`\
+https://www.nytimes.com/2026/06/10/us/politics/gop-runoff-maine-governor-race.html
+
 **Quote of the Day: A Mayor’s Line in the Sand to Be a Host: FIFA’s Request for a Soldier Field Dome**\
 `Quotation of the Day for Tuesday, June 10, 2026.`\
 https://www.nytimes.com/2026/06/10/pageoneplus/quote-of-the-day-a-mayors-line-in-the-sand-to-be-a-host-fifas-request-for-a-soldier-field-dome.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/09/opinion/america-250-national-identity.html
 **G.M. Plans to Develop Energy Storage Batteries as E.V. Sales Flag**\
 `The carmaker will follow Tesla in making components for large batteries used by electric utilities, data centers and other businesses to handle fluctuations in power supply and demand.`\
 https://www.nytimes.com/2026/06/09/business/energy-environment/general-motors-storage-batteries-electric-vehicles.html
-
-**Everybody Is a Loser in This Middle East War**\
-`None of the participants in the recent wars of the Middle East can claim victory. All are to blame.`\
-https://www.nytimes.com/2026/06/09/opinion/middle-east-war-accountability-iran-us-trump.html
 
