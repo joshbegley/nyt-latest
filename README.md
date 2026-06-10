@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/sports/basketball/100000010959446/10vid-Knicks-Game-4-Sage-90042.html
+
 **Need Last-Minute Courtside Knicks Tickets? Having a Luxury Lifestyle Adviser Helps.**\
 `The wealthy have descended on New York for top basketball, golf and soccer events, and they need prime tickets.`\
 https://www.nytimes.com/2026/06/10/nyregion/knicks-tickets-courtside-concierge.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/10/us/sbc-southern-baptist-convention.html
 **Former Officer Pleads Guilty to Having Sex With Woman He Arrested**\
 `The New York Police Department officer, who resigned in December, also admitted to sending inappropriate texts to crime victims.`\
 https://www.nytimes.com/2026/06/10/nyregion/nypd-officer-inappropriate-messages-victims.html
-
-**‘X-Men’ Actor Tyler Mane Says He Has Breast Cancer**\
-`Tyler Mane said he was initially embarrassed to divulge the diagnosis but wanted to encourage other men to look out for the disease.`\
-https://www.nytimes.com/2026/06/10/us/tyler-mane-male-breast-cancer.html
 
 **World Cup Updates: U.S. Immigration Policies Turn Some Fans and Participants Away**\
 `(No description)`\

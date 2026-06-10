@@ -1,3 +1,7 @@
+**Need Last-Minute Courtside Knicks Tickets? Having a Luxury Lifestyle Adviser Helps.**\
+`The wealthy have descended on New York for top basketball, golf and soccer events, and they need prime tickets.`\
+https://www.nytimes.com/2026/06/10/nyregion/knicks-tickets-courtside-concierge.html
+
 **Live Updates: New Yorkers Gather Ahead of Knicks Game, Amid Some Frustration**\
 `Hours before Game 4 of the N.B.A. finals, the team’s owner, James Dolan, and Mayor Zohran Mamdani were sparring over who was to blame for the cancellation of a watch party outside Madison Square Garden.`\
 https://www.nytimes.com/live/2026/06/10/nyregion/nba-finals-knicks-spurs
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/10/nyregion/nypd-officer-inappropriate-messages-
 **‘X-Men’ Actor Tyler Mane Says He Has Breast Cancer**\
 `Tyler Mane said he was initially embarrassed to divulge the diagnosis but wanted to encourage other men to look out for the disease.`\
 https://www.nytimes.com/2026/06/10/us/tyler-mane-male-breast-cancer.html
-
-**Indonesian Military Court Sentences Four in Acid Attack on Rights Advocate**\
-`The victim is an outspoken critic of Indonesia’s powerful military, and military prosecutors took over the case despite his objections.`\
-https://www.nytimes.com/2026/06/10/world/asia/indonesia-military-acid-attack-andrie.html
 
 **World Cup Updates: U.S. Immigration Policies Turn Some Fans and Participants Away**\
 `(No description)`\
