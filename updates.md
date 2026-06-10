@@ -1,7 +1,3 @@
-**Kalshi Will Ask Users to Share Employer Information for Some Trades**\
-`The new policy is aimed at limiting insider trading as scrutiny of prediction markets grows.`\
-https://www.nytimes.com/2026/06/09/us/kalshi-employment-disclosure-rules.html
-
 **Maine Senate Polls Point to a Competitive General Election**\
 `Graham Platner is expected to win handily in the Democratic primary for Senate in Maine. The focus is shifting to how he might do in November.`\
 https://www.nytimes.com/2026/06/09/us/elections/maine-senate-polls-competitive-general.html
@@ -197,4 +193,8 @@ https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-us-
 **South Carolina Third Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 South Carolina primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-us-house-3-primary.html
+
+**South Carolina Comptroller General Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 South Carolina primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-comptroller-general-primary.html
 
