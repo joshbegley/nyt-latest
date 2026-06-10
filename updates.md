@@ -1,3 +1,7 @@
+**ActBlue C.E.O. to Invoke Fifth Amendment in Testimony to Congress**\
+`The head of the Democratic fund-raising behemoth was called to testify on Wednesday about reports that she may have misled Congress about how it vets foreign donations.`\
+https://www.nytimes.com/2026/06/10/us/politics/actblue-fifth-amendment-congress.html
+
 **Stocks Sink and Oil Rises After Wave of Strikes Across Middle East**\
 `The attacks, which strained a two-month cease-fire between Iran and the United States, were the latest jolt to energy markets.`\
 https://www.nytimes.com/2026/06/10/business/oil-stocks-gas-prices-iran.html
