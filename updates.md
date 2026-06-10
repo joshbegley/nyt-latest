@@ -1,3 +1,11 @@
+**Mace Defeat Heralds an Exodus of Rabble-Rousers From Congress**\
+`The Republican congresswoman from South Carolina, who made enemies on both sides of the political aisle, is just one of several flashy lawmakers to be leaving Capitol Hill.`\
+https://www.nytimes.com/2026/06/10/us/politics/nancy-mace-congress-south-carolina.html
+
+**World Cup Updates: U.S. Immigration Policies Turn Some Fans and Participants Away**\
+`(No description)`\
+https://www.nytimes.com/live/2026/us/fifa-world-cup
+
 **The Good List: 6 Things to Add Joy to Your Day**\
 `Dancing pigeons, mystery stew and a nostalgia machine.`\
 https://www.nytimes.com/2026/06/10/briefing/the-good-list-pigeons-knicks.html
