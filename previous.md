@@ -27,7 +27,7 @@ https://www.nytimes.com/es/2026/06/10/espanol/estados-unidos/hegseth-guantanamo-
 https://www.nytimes.com/2026/06/10/science/jessica-meir-aurora-southern-lights-space-video.html
 
 **Strict Security Around MSG Is Back for Knicks Game 4**\
-`Several blocks around Madison Square Garden will be closed to most people Wednesday afternoon, but a watch party will be allowed. The Garden is not happy about the extra restrictions.`\
+`Several blocks around Madison Square Garden will be closed to most people Wednesday afternoon. The city approved a ticketed watch party, though it was unclear whether it would take place.`\
 https://www.nytimes.com/2026/06/10/nyregion/knicks-security-game-4-msg.html
 
 **White House Again Shrugs Off High Prices Amid War With Iran**\
@@ -42,7 +42,7 @@ https://www.nytimes.com/2026/06/10/headway/shootings-youth-violence-prevention-p
 `The federal charges include conspiracy to transmit threats and witness intimidation.`\
 https://www.nytimes.com/interactive/2026/06/10/us/federal-charges-university-of-michigan-pro-palestinian-protest.html
 
-**Trump Says He May Not Renew Canada-Mexico Trade Deal**\
+**Trump Says He’s ‘Not Looking to Renew’ Canada-Mexico Trade Deal**\
 `The president’s comments come at a crucial moment in talks between the three countries over the renewal of their free-trade agreement.`\
 https://www.nytimes.com/2026/06/10/world/canada/trump-canada-mexico-trade-deal-usmca.html
 

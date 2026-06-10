@@ -1,3 +1,11 @@
+**Strict Security Around MSG Is Back for Knicks Game 4**\
+`Several blocks around Madison Square Garden will be closed to most people Wednesday afternoon. The city approved a ticketed watch party, though it was unclear whether it would take place.`\
+https://www.nytimes.com/2026/06/10/nyregion/knicks-security-game-4-msg.html
+
+**Trump Says He’s ‘Not Looking to Renew’ Canada-Mexico Trade Deal**\
+`The president’s comments come at a crucial moment in talks between the three countries over the renewal of their free-trade agreement.`\
+https://www.nytimes.com/2026/06/10/world/canada/trump-canada-mexico-trade-deal-usmca.html
+
 **En vísperas de la Copa Mundial, la política migratoria de EE. UU. deja a algunos fuera**\
 `Algunos aficionados y participantes que esperaban viajar para el Mundial se han quejado de las restrictivas normas para visitar uno de los países anfitriones.`\
 https://www.nytimes.com/es/2026/06/10/espanol/mundo/mundial-migracion.html
