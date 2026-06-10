@@ -1,3 +1,7 @@
+**¿Por qué bajan las tasas de natalidad? Los celulares podrían ser responsables**\
+`Los celulares inteligentes salieron al mercado en 2007, el año en que las tasas de fertilidad empezaron a bajar. Dos estudios dicen que no es una coincidencia.`\
+https://www.nytimes.com/es/2026/06/10/espanol/estados-unidos/celulares-baja-natalidad.html
+
 **Iran War Live Updates: U.S. and Iran Trade Strikes in New Test of Cease-Fire**\
 `The U.S. military struck southern Iran, calling it a response to the downing an American helicopter. Iran said it had retaliated by launching drones and missiles at U.S. military targets in Bahrain and Jordan.`\
 https://www.nytimes.com/live/2026/06/10/world/iran-war-trump-us
