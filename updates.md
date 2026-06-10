@@ -1,3 +1,7 @@
+**Live Updates: Inflation Jumps as Iran War Intensifies Price Squeeze**\
+`Consumer prices rose at a faster rate for a third-straight month in May, to 4.2 percent annually, as the energy shock put more pressure on the U.S. economy.`\
+https://www.nytimes.com/live/2026/06/10/business/inflation-report-cpi
+
 **Indian Sailors Made Frantic Calls for Help After U.S. Missile Strike off Oman**\
 `The 24 crew members were stranded for more than two hours before being rescued by an Omani military helicopter. The U.S. military said that the ship had violated its blockade of Iran.`\
 https://www.nytimes.com/2026/06/10/world/middleeast/indian-sailors-rescued-us-missile-ship-oman.html
