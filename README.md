@@ -1,3 +1,11 @@
+**Hegseth Visits Guantánamo Bay Amid U.S. Tensions With Cuba**\
+`The trip comes as the Trump administration pushes for political and economic changes on the island.`\
+https://www.nytimes.com/2026/06/10/us/politics/hegseth-guantanamo-bay-cuba.html
+
+**How Trump Weaponized the Antiwar Platform**\
+`Matt Duss, the executive vice president at the Center for International Policy, joins “The Ezra Klein Show” to discuss how President Trump successfully weaponized an antiwar platform that Democrats abandoned.`\
+https://www.nytimes.com/video/opinion/100000010948157/how-trump-weaponized-the-antiwar-platform.html
+
 **NAEP Test Shows Younger Students Recovering From Pandemic**\
 `A national test found surprising progress among 9-year-olds, who are fully caught up in reading. But 13-year-olds have shown no improvement.`\
 https://www.nytimes.com/2026/06/10/us/naep-results-student-tests.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/es/2026/06/10/espanol/mundo/iran-israel-libano-ataques.h
 **The White House Panic Over the Epstein Files: Six Takeaways From the New York Times Investigation**\
 `Senior officials clashed in a series of meetings as they struggled to manage a crisis over the president’s refusal to release the documents.`\
 https://www.nytimes.com/2026/06/10/magazine/epstein-files-trump-white-house-takeaways.html
-
-**California’s Excuses Are Damaging Faith in Government**\
-`Taking a week to count votes is doing it wrong.`\
-https://www.nytimes.com/2026/06/10/opinion/california-slow-vote-primary.html
-
-**A Different Kind of ‘Values Voter’ Will Power the 2026 Midterms**\
-`A new politics of morality is rising in the Democratic Party.`\
-https://www.nytimes.com/2026/06/10/opinion/democrats-politics-morality-values.html
 
 **Iran War Live Updates: After U.S. and Iran Exchange Strikes, Trump Issues New Threat**\
 `President Trump said Iran would “pay the price” for taking “too long to negotiate” an agreement to end the war.`\

@@ -1,3 +1,15 @@
+**NAEP Test Shows Younger Students Recovering From Pandemic**\
+`A national test found surprising progress among 9-year-olds, who are fully caught up in reading. But 13-year-olds have shown no improvement.`\
+https://www.nytimes.com/2026/06/10/us/naep-results-student-tests.html
+
+**Duane Michals, Photographer With Stories to Tell, Dies at 94**\
+`A self-taught artist, he brought narrative to modern photography with sequences of staged black-and-white images, often accompanied by wry or lyrical captions.`\
+https://www.nytimes.com/2026/06/10/arts/design/duane-michals-dead.html
+
+**Latest Inflation Data Shows Airline Ticket Prices Up 27% From Last Year**\
+`Airfares shot up 27 percent from a year earlier in the latest inflation data.`\
+https://www.nytimes.com/2026/06/10/business/economy/americans-travel-expensive.html
+
 **Investors Feed A.I. Firms’ Voracious Appetite for New Money**\
 `In the race to dominate the artificial intelligence industry, companies like SpaceX and Alphabet are borrowing cash and raising equity from investors at the fastest pace in decades.`\
 https://www.nytimes.com/2026/06/10/business/investors-artificial-intelligence.html
