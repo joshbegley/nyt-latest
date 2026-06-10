@@ -1,3 +1,7 @@
+**Unusually Warm Weather in Bay Area Prompts Heat Alert and Wildfire Concerns**\
+`High temperatures across the San Francisco Bay Area will reach into the 90s on Thursday, forecasters said.`\
+https://www.nytimes.com/2026/06/10/weather/san-francisco-heat-fire.html
+
 **Victor Wembanyama, the Knicks’ Biggest Foe and New York’s Biggest Tourist**\
 `Mr. Wembanyama has had to keep a low-profile while in New York to try and win the N.B.A. finals, but on visits there, he has always resisted hiding in hotel rooms and private cars.`\
 https://www.nytimes.com/2026/06/10/nyregion/wemby-drawing-park-visiting-nyc.html

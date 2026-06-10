@@ -1,3 +1,7 @@
+**Unusually Warm Weather in Bay Area Prompts Heat Alert and Wildfire Concerns**\
+`High temperatures across the San Francisco Bay Area will reach into the 90s on Thursday, forecasters said.`\
+https://www.nytimes.com/2026/06/10/weather/san-francisco-heat-fire.html
+
 **Victor Wembanyama, the Knicks’ Biggest Foe and New York’s Biggest Tourist**\
 `Mr. Wembanyama has had to keep a low-profile while in New York to try and win the N.B.A. finals, but on visits there, he has always resisted hiding in hotel rooms and private cars.`\
 https://www.nytimes.com/2026/06/10/nyregion/wemby-drawing-park-visiting-nyc.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/10/world/asia/indonesia-military-acid-attack-and
 **En vísperas de la Copa Mundial, la política migratoria de EE. UU. deja a algunos fuera**\
 `Algunos aficionados y participantes que esperaban viajar para el Mundial se han quejado de las restrictivas normas para visitar uno de los países anfitriones.`\
 https://www.nytimes.com/es/2026/06/10/espanol/mundo/mundial-migracion.html
-
-**Bill Gates Says Epstein Tried to Use His Extramarital Affairs Against Him**\
-`The billionaire philanthropist testified on Wednesday in a closed-door congressional hearing about the Justice Department’s investigation of Jeffrey Epstein.`\
-https://www.nytimes.com/2026/06/10/business/bill-gates-epstein-testimony.html
 
 **World Cup Updates: U.S. Immigration Policies Turn Some Fans and Participants Away**\
 `(No description)`\
