@@ -1,3 +1,7 @@
+**Texas Governor Seeks New Limits on Data Centers**\
+`Gov. Greg Abbott is urging tighter controls and a repeal of financial incentives for data centers, which have drawn complaints in rural Republican areas of Texas.`\
+https://www.nytimes.com/2026/06/10/us/texas-abbott-data-centers-regulation.html
+
 **Mamdani’s Nosebleed Knicks Ticket and the Fluid Benefits of Being Mayor**\
 `Mayor Zohran Mamdani paid roughly $1,000 for a standing-room-only ticket to Game 3 of the N.B.A. finals, using access to house tickets not available to regular fans.`\
 https://www.nytimes.com/2026/06/10/nyregion/mamdani-knicks-ticket-garden.html
@@ -75,7 +79,7 @@ https://www.nytimes.com/2026/06/10/dining/noma-reopening-copenhagen-rene-redzepi
 https://www.nytimes.com/es/2026/06/10/espanol/estados-unidos/hegseth-guantanamo-cuba.html
 
 **NASA Crew-12 Commander Captures Snaky Southern Lights From Space Station**\
-`The footage of the aurora over Earth’s Southern Hemisphere was shared on Sunday by Jessica Meir, commander of NASA’s Crew-12 mission.`\
+`The footage of the southern lights was shared on Sunday by Jessica Meir, commander of NASA’s Crew-12 mission.`\
 https://www.nytimes.com/2026/06/10/science/jessica-meir-aurora-southern-lights-space-video.html
 
 **Strict Security Around MSG Is Back for Knicks Game 4**\
@@ -119,7 +123,7 @@ https://www.nytimes.com/2026/06/10/style/tiny-modern-love-stories-the-right-answ
 https://www.nytimes.com/video/embedded/science/space/100000010957977/southern-lights-nasa.html
 
 **Pro-Palestinian Activists at U. of Michigan Indicted on Federal Conspiracy Charges**\
-`The new charges appeared to signify a shift in the federal government’s approach to campus activism.`\
+`The new charges appeared to signify an escalation in the federal government’s approach to campus activism.`\
 https://www.nytimes.com/2026/06/10/us/university-michigan-pro-palestinian-activists-indicted.html
 
 **My Father Abused My Sister When We Were Kids. Should I Tell My Half Siblings?**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/10/dining/these-cold-peanut-noodles-are-for-ging
 **Do Women Really Need a Menopause Workout?**\
 `A new wave of fitness programs claim to be specifically tailored for midlife. Here’s what to know about them.`\
 https://www.nytimes.com/2026/06/10/well/move/menopause-workouts-exercises.html
-
-**Indonesia Landslides Devastated Endangered Orangutans, Study Finds**\
-`More than 5 percent of the species is estimated to have been lost when a climate-fueled storm unleashed torrents of water, mud and debris.`\
-https://www.nytimes.com/2026/06/10/climate/indonesia-floods-organgutans.html
 
 **Inflation Jumps as Iran War Intensifies Price Squeeze**\
 `Consumer prices rose at a faster rate for a third-straight month in May, to 4.2 percent annually, as the energy shock put more pressure on the U.S. economy.`\

@@ -1,3 +1,15 @@
+**Texas Governor Seeks New Limits on Data Centers**\
+`Gov. Greg Abbott is urging tighter controls and a repeal of financial incentives for data centers, which have drawn complaints in rural Republican areas of Texas.`\
+https://www.nytimes.com/2026/06/10/us/texas-abbott-data-centers-regulation.html
+
+**NASA Crew-12 Commander Captures Snaky Southern Lights From Space Station**\
+`The footage of the southern lights was shared on Sunday by Jessica Meir, commander of NASA’s Crew-12 mission.`\
+https://www.nytimes.com/2026/06/10/science/jessica-meir-aurora-southern-lights-space-video.html
+
+**Pro-Palestinian Activists at U. of Michigan Indicted on Federal Conspiracy Charges**\
+`The new charges appeared to signify an escalation in the federal government’s approach to campus activism.`\
+https://www.nytimes.com/2026/06/10/us/university-michigan-pro-palestinian-activists-indicted.html
+
 **Mamdani’s Nosebleed Knicks Ticket and the Fluid Benefits of Being Mayor**\
 `Mayor Zohran Mamdani paid roughly $1,000 for a standing-room-only ticket to Game 3 of the N.B.A. finals, using access to house tickets not available to regular fans.`\
 https://www.nytimes.com/2026/06/10/nyregion/mamdani-knicks-ticket-garden.html
