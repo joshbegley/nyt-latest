@@ -30,7 +30,7 @@ https://www.nytimes.com/es/2026/06/10/espanol/mundo/trumps-china-taiwan.html
 `The death of a 16-year-old male named Deniz quickly added fuel to a running debate over whether New York City should ban horse-drawn carriages.`\
 https://www.nytimes.com/2026/06/10/nyregion/central-park-carriage-horse-dead.html
 
-**Oil Wavers and Stocks Sink After Wave of Strikes Across Middle East**\
+**Stocks Sink and Oil Wavers After Wave of Strikes Across Middle East**\
 `The attacks, which strained a two-month cease-fire between Iran and the United States, were the latest jolt to energy markets.`\
 https://www.nytimes.com/2026/06/10/business/oil-stocks-gas-prices-iran.html
 
