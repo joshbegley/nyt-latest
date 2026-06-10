@@ -1,3 +1,11 @@
+**Knicks Watch Party Outside Madison Square Garden Is Canceled**\
+`Hours before Wednesday’s game began, James Dolan, the owner of the Knicks, and Mayor Zohran Mamdani were publicly battling over who was to blame for the cancellation.`\
+https://www.nytimes.com/2026/06/10/nyregion/msg-knicks-watch-party-canceled.html
+
+**The U.S. Strikes Iran Again**\
+`Also, inflation jumps for a third-straight month. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/06/10/briefing/inflation-rises-us-iran-strikes.html
+
 **Trump Muses About Government Taking a Piece of A.I. Companies**\
 `President Trump touched on what is an increasingly hot topic in Washington: how average Americans can get a piece of the tech industry’s A.I. windfall.`\
 https://www.nytimes.com/2026/06/10/technology/president-trump-americans-sharing-ai-wealth.html

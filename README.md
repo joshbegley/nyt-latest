@@ -1,3 +1,7 @@
+**FIFA President Tells World Cup Critics to ‘Chill’ About Concerns**\
+`With the World Cup facing growing crises, Gianni Infantino, the FIFA president, struck a defiant tone on the eve of the competition’s start.`\
+https://www.nytimes.com/2026/06/10/world/europe/fifa-president-world-cup.html
+
 **Knicks Watch Party Outside Madison Square Garden Is Canceled**\
 `Hours before Wednesday’s game began, James Dolan, the owner of the Knicks, and Mayor Zohran Mamdani were publicly battling over who was to blame for the cancellation.`\
 https://www.nytimes.com/2026/06/10/nyregion/msg-knicks-watch-party-canceled.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/es/2026/06/10/espanol/estados-unidos/hegseth-guantanamo-
 **NASA Crew-12 Commander Captures Snaky Southern Lights From Space Station**\
 `The footage of the southern lights was shared on Sunday by Jessica Meir, commander of NASA’s Crew-12 mission.`\
 https://www.nytimes.com/2026/06/10/science/jessica-meir-aurora-southern-lights-space-video.html
-
-**Strict Security Around MSG Is Back for Knicks Game 4**\
-`Several blocks around Madison Square Garden will be closed to most people Wednesday afternoon. The city approved a ticketed watch party, though it was unclear whether it would take place.`\
-https://www.nytimes.com/2026/06/10/nyregion/knicks-security-game-4-msg.html
 
 **World Cup Updates: U.S. Immigration Policies Turn Some Fans and Participants Away**\
 `(No description)`\
