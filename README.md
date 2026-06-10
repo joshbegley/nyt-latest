@@ -1,43 +1,3 @@
-**No Corrections: June 11, 2026**\
-`No corrections appeared in print on Thursday, June 11, 2026.`\
-https://www.nytimes.com/2026/06/10/pageoneplus/no-corrections-june-11-2026.html
-
-**Trump’s ‘Secret Mission’ to Ferry Oil Past Iran Was Widely Disclosed**\
-`A U.S. military official said the president’s seemingly dramatic announcement on Wednesday referred to a previously reported effort to shepherd commercial vessels through the Strait of Hormuz.`\
-https://www.nytimes.com/2026/06/10/world/middleeast/trump-oil-iran-strait-hormuz.html
-
-**New York City Can Move Men’s Shelter to East Village, Judge Rules**\
-`The judge had temporarily blocked the plan after residents sued, but she ultimately decided that the city’s argument for the move was reasonable.`\
-https://www.nytimes.com/2026/06/10/nyregion/homeless-men-shelter-east-village.html
-
-**Southern Lights Seen From International Space Station**\
-`The southern lights, also known as the aurora australis, were captured by the NASA astronaut Jessica Meir from the International Space Station on Saturday.`\
-https://www.nytimes.com/video/science/space/100000010958639/southern-lights-aurora-nasa-space.html
-
-**A Very Different World Cup**\
-`With a host country actively at war with a participating nation, this year’s tournament is set to be unlike any other.`\
-https://www.nytimes.com/2026/06/10/world/world-cup-mexico-iran-epstein.html
-
-**University of Florida Chooses Stuart Bell for President Over Some Conservative Criticism**\
-`The nominee, Stuart Bell, led the University of Alabama for a decade, where he embraced diversity initiatives but also Donald J. Trump.`\
-https://www.nytimes.com/2026/06/10/us/university-florida-president-stuart-bell.html
-
-**Bukele dice que sus cárceles son para las pandillas. Entonces, ¿por qué encarceló a mi esposa?**\
-`Desde que comenzó el régimen de excepción en 2022, Cristosal ha documentado 420 muertes en cárceles salvadoreñas. Este es el sistema en el que desapareció mi esposa.`\
-https://www.nytimes.com/es/2026/06/10/espanol/opinion/el-salvador-bukele-carcel.html
-
-**At Least 12 Killed in Johannesburg Attack, South African Police Say**\
-`The South African police said that at least 12 people were killed and at least nine others were wounded in an attack at a settlement in Johannesburg on Tuesday night. Investigators are still trying to determine a motive for the shooting.`\
-https://www.nytimes.com/video/world/africa/100000010958455/johannesburg-south-africa-shooting.html
-
-**Spencer Pratt’s Defeat Isn’t Just About Los Angeles**\
-`Some of America’s largest cities are now being governed by progressives. What will we learn?`\
-https://www.nytimes.com/2026/06/10/opinion/los-angeles-pratt-mayor-election.html
-
-**Ernest Chambers, ‘Smothers Brothers’ TV Show Producer, Dies at 97**\
-`In the late 1960s, he and Saul Ilson oversaw a variety show known for its social and political satire, and together they helped fight network censors over its content.`\
-https://www.nytimes.com/2026/06/10/arts/television/ernest-chambers-dead.html
-
 **Graham Platner Tucked in His Shirt on Primary Night**\
 `On election night, the Democratic candidate from Maine wore a button-up, a deviation from the candidate’s unvarnished image.`\
 https://www.nytimes.com/2026/06/10/style/graham-platner-primary-style.html
@@ -185,6 +145,46 @@ https://www.nytimes.com/2026/06/10/us/university-michigan-pro-palestinian-activi
 **My Father Abused My Sister When We Were Kids. Should I Tell My Half Siblings?**\
 `I want them to grasp the differences between the two families he created.`\
 https://www.nytimes.com/2026/06/10/magazine/father-abuse-half-siblings-ethics.html
+
+**Soccer Referee Receives Hero’s Welcome in Somalia After U.S. Denies Him Entry**\
+`Omar Abdulkadir Artan was admired in Somalia long before he was selected to be the first Somali referee at the World Cup. After being denied entry into the U.S. to participate as a referee in the World Cup, Artan received a hero’s welcome upon returning home on Wednesday.`\
+https://www.nytimes.com/video/sports/soccer/100000010957547/omar-abdulkadir-artan-welcome-somalia-world-cup-ban.html
+
+**Could Control of Congress Run Through Northern Maine?**\
+`The state’s vast rural areas, which make up the swing Second Congressional District, will be important in November.`\
+https://www.nytimes.com/2026/06/10/us/politics/maine-second-district.html
+
+**Will Trump’s Repairs to Washington D.C.’s Reflecting Pool Work?**\
+`President Trump has said that construction is complete. Now comes the real test. Will the longstanding problems finally be solved?`\
+https://www.nytimes.com/2026/06/10/us/politics/trump-dc-reflecting-pool-repairs.html
+
+**They Tried To Catch a Child Predator on a Livestream. They Trapped Themselves Instead.**\
+`What happened when livestreaming vigilantes ambushed an innocent man.`\
+https://www.nytimes.com/2026/06/10/technology/predator-catcher-vitaly-mistake.html
+
+**TK**\
+`Tk`\
+https://static01.nyt.com/slideshow/2026/06/10/t-magazine/tk.html
+
+**Hegseth Visits Guantánamo Bay Amid U.S. Tensions With Cuba**\
+`The trip comes as the Trump administration pushes for political and economic changes on the island.`\
+https://www.nytimes.com/2026/06/10/us/politics/hegseth-guantanamo-bay-cuba.html
+
+**How Trump Weaponized the Antiwar Platform**\
+`Matt Duss, the executive vice president at the Center for International Policy, joins “The Ezra Klein Show” to discuss how President Trump successfully weaponized an antiwar platform that Democrats abandoned.`\
+https://www.nytimes.com/video/opinion/100000010948157/how-trump-weaponized-the-antiwar-platform.html
+
+**NAEP Test Shows Younger Students Recovering From Pandemic**\
+`A national test found surprising progress among 9-year-olds, who are fully caught up in reading. But 13-year-olds have shown no improvement.`\
+https://www.nytimes.com/2026/06/10/us/naep-results-student-tests.html
+
+**Duane Michals, Photographer With Stories to Tell, Dies at 94**\
+`A self-taught artist, he brought narrative to modern photography with sequences of staged black-and-white images, often accompanied by wry or lyrical captions.`\
+https://www.nytimes.com/2026/06/10/arts/design/duane-michals-dead.html
+
+**Investors Feed A.I. Firms’ Voracious Appetite for New Money**\
+`In the race to dominate the artificial intelligence industry, companies like SpaceX and Alphabet are borrowing cash and raising equity from investors at the fastest pace in decades.`\
+https://www.nytimes.com/2026/06/10/business/investors-artificial-intelligence.html
 
 **Inflation Jumps as Iran War Intensifies Price Squeeze**\
 `Consumer prices rose at a faster rate for a third-straight month in May, to 4.2 percent annually, as the energy shock put more pressure on the U.S. economy.`\
