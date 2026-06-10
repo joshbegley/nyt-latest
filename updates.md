@@ -1,3 +1,7 @@
+**En vísperas de la Copa Mundial, la política migratoria de EE. UU. deja a algunos fuera**\
+`Algunos aficionados y participantes que esperaban viajar para el Mundial se han quejado de las restrictivas normas para visitar uno de los países anfitriones.`\
+https://www.nytimes.com/es/2026/06/10/espanol/mundo/mundial-migracion.html
+
 **Pro-Palestinian Activists at U. of Michigan Indicted on Federal Conspiracy Charges**\
 `The new charges appeared to signify a shift in the federal government’s approach to campus activism.`\
 https://www.nytimes.com/2026/06/10/us/university-michigan-pro-palestinian-activists-indicted.html
