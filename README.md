@@ -1,3 +1,11 @@
+**The City That Watches Together**\
+`In bodegas and parks, in bars and pizzerias, the unofficial watch party has taken over New York.`\
+https://www.nytimes.com/2026/06/10/nyregion/new-york-city-knicks-watch-parties.html
+
+**NYT Spelling Bee Answers for June 10, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/10/crosswords/spelling-bee-forum.html
+
 **Linsanity Is Dead. Long Live Linsanity.**\
 `Knicks legend Jeremy Lin on the Finals, the Garden and Kim Kardashian.`\
 https://www.nytimes.com/2026/06/10/podcasts/linsanity-is-dead-long-live-linsanity.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/09/briefing/united-states-iran-strikes-maine-pri
 **The Likely Platner-Collins Matchup Is Set to Be Hugely Expensive**\
 `Both Senate candidates in Maine have been strong fund-raisers, and allied super PACs and dark-money groups are mobilizing for their showdown.`\
 https://www.nytimes.com/2026/06/09/us/politics/maine-primary-election-money-spending.html
-
-**Trump Law Would Also Direct Voucher Money to Public Schools**\
-`The law, which creates the first-ever federal voucher program, is designed, in part, to lure Democrats. It’s unclear how many blue states will sign up.`\
-https://www.nytimes.com/2026/06/09/us/national-education-vouchers-private-school.html
-
-**Michigan Court Vacates Conviction Tied to Gretchen Whitmer Kidnapping Plot**\
-`The state appellate court vacated the convictions of Joseph Morrison, ruling that the trial judge had provided flawed instructions to the jury.`\
-https://www.nytimes.com/2026/06/09/us/michigan-whitmer-plot-convictions-overturned.html
 

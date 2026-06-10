@@ -1,3 +1,7 @@
+**Linsanity Is Dead. Long Live Linsanity.**\
+`Knicks legend Jeremy Lin on the Finals, the Garden and Kim Kardashian.`\
+https://www.nytimes.com/2026/06/10/podcasts/linsanity-is-dead-long-live-linsanity.html
+
 **Tokio tiene una nueva policía contra la basura**\
 `En Shibuya, una de las zonas más turísticas y concurridas de Tokio, tirar basura ahora tiene un precio.`\
 https://www.nytimes.com/es/2026/06/10/espanol/mundo/japon-tokio-basura-turistas.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/09/us/national-education-vouchers-private-school
 **Michigan Court Vacates Conviction Tied to Gretchen Whitmer Kidnapping Plot**\
 `The state appellate court vacated the convictions of Joseph Morrison, ruling that the trial judge had provided flawed instructions to the jury.`\
 https://www.nytimes.com/2026/06/09/us/michigan-whitmer-plot-convictions-overturned.html
-
-**How Ranked-Choice Voting Works in Maine**\
-`Proponents say the practice reduces partisanship, while critics say it is confusing and expensive.`\
-https://www.nytimes.com/2026/06/09/us/politics/maine-ranked-choice-voting-explained.html
 

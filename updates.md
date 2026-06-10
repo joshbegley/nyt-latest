@@ -1,3 +1,7 @@
+**Linsanity Is Dead. Long Live Linsanity.**\
+`Knicks legend Jeremy Lin on the Finals, the Garden and Kim Kardashian.`\
+https://www.nytimes.com/2026/06/10/podcasts/linsanity-is-dead-long-live-linsanity.html
+
 **Takeaways From Tuesday’s Primary Elections in Maine and South Carolina**\
 `Graham Platner won the Democratic primary for Senate in Maine and quickly turned his populist message against Susan Collins, the Republican incumbent.`\
 https://www.nytimes.com/2026/06/10/us/politics/maine-platner-primary-senate-election-results.html
