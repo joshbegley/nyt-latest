@@ -1,3 +1,7 @@
+**Hot Cars and Stolen Crypto: A Canadian Teen Pocketed Millions, Prosecutors Say**\
+`A case illustrates both the low-hanging opportunities new financial technologies offer to scammers and the downside of speeding in a Rolls-Royce.`\
+https://www.nytimes.com/2026/06/10/world/canada/canada-crypto-fraud.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/sports/basketball/100000010959446/10vid-Knicks-Game-4-Sage-90042.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/10/arts/design/ai-gemini-thrift-store-painting-s
 **Southern Baptists Move to Strengthen Ban on Women Pastors**\
 `The amendment passed easily at the denomination’s annual gathering. It needs approval again next year to enter the constitution.`\
 https://www.nytimes.com/2026/06/10/us/sbc-southern-baptist-convention.html
-
-**Former Officer Pleads Guilty to Having Sex With Woman He Arrested**\
-`The New York Police Department officer, who resigned in December, also admitted to sending inappropriate texts to crime victims.`\
-https://www.nytimes.com/2026/06/10/nyregion/nypd-officer-inappropriate-messages-victims.html
 
 **World Cup Updates: U.S. Immigration Policies Turn Some Fans and Participants Away**\
 `(No description)`\
