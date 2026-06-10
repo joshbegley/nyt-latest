@@ -1,3 +1,7 @@
+**TK**\
+`Tk`\
+https://static01.nyt.com/slideshow/2026/06/10/t-magazine/tk.html
+
 **Hegseth Visits Guantánamo Bay Amid U.S. Tensions With Cuba**\
 `The trip comes as the Trump administration pushes for political and economic changes on the island.`\
 https://www.nytimes.com/2026/06/10/us/politics/hegseth-guantanamo-bay-cuba.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/10/world/americas/world-cup-immigration-problems
 **El ataque de Irán a Israel fue una decisión calculada**\
 `Los líderes iraníes quieren demostrar que se toman en serio la defensa de sus aliados de Hizbulá en Líbano y quieren mantener el equilibrio de poder en la región, según los analistas.`\
 https://www.nytimes.com/es/2026/06/10/espanol/mundo/iran-israel-libano-ataques.html
-
-**The White House Panic Over the Epstein Files: Six Takeaways From the New York Times Investigation**\
-`Senior officials clashed in a series of meetings as they struggled to manage a crisis over the president’s refusal to release the documents.`\
-https://www.nytimes.com/2026/06/10/magazine/epstein-files-trump-white-house-takeaways.html
 
 **Iran War Live Updates: After U.S. and Iran Exchange Strikes, Trump Issues New Threat**\
 `President Trump said Iran would “pay the price” for taking “too long to negotiate” an agreement to end the war.`\
