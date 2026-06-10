@@ -1,4 +1,12 @@
-**At Least 12 Dead After Shooting in Johannesburg**\
+**Visiting a Soldier’s Funeral in Ukraine**\
+`Our reporter Kim Barker visits a church in Lviv, Ukraine, that holds military funerals at the same time each day.`\
+https://www.nytimes.com/video/world/100000010854469/visiting-a-soldiers-funeral-in-ukraine.html
+
+**In a New Memoir, Laverne Cox Takes on Her Demons**\
+`Her memoir follows the path from an abusive childhood to Hollywood stardom. But it’s being released amid a backlash over transgender rights that’s caught up to her, too.`\
+https://www.nytimes.com/2026/06/10/books/review/laverne-cox-transcendent-memoir.html
+
+**At Least 12 Dead After Shooting by Multiple Attackers in Johannesburg**\
 `The police said they were looking for more than 10 attackers, who had stormed a community of tin shacks. Investigators were still trying to determine the motive.`\
 https://www.nytimes.com/2026/06/10/world/africa/johannesburg-shooting-south-africa.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/09/us/ai-lawyers-sanctioned-mississippi.html
 **Federal Judge Faces Battery Charge After Parking Lot Confrontation**\
 `Judge Ryan Nelson of the U.S. Court of Appeals for the Ninth Circuit tossed a man’s glasses and appeared to stomp on them during an argument in Idaho that was captured on video.`\
 https://www.nytimes.com/2026/06/09/us/ryan-nelson-judge-criminal-charges-battery.html
-
-**What to Know About the Sea Drone That Rescued Downed Apache Crew**\
-`It was the first U.S. rescue carried out by an autonomous surface vessel and remotely piloted by a human operator, according to a military spokesperson.`\
-https://www.nytimes.com/2026/06/09/world/middleeast/sea-drone-apache-rescue.html
-
-**Taliban Leader Who Took U.S. Journalist Hostage Sentenced to 42 Years**\
-`Haji Najibullah had pleaded guilty to hostage taking and providing material support for terrorism.`\
-https://www.nytimes.com/2026/06/09/nyregion/taliban-leader-american-journalist-sentencing.html
 
