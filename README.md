@@ -1,3 +1,11 @@
+**NAEP Test Shows Younger Students Recovering From Pandemic**\
+`A national test found surprising progress among 9-year-olds, who are fully caught up in reading. But 13-year-olds have shown no improvement.`\
+https://www.nytimes.com/2026/06/10/us/naep-results-student-tests.html
+
+**Duane Michals, Photographer With Stories to Tell, Dies at 94**\
+`A self-taught artist, he brought narrative to modern photography with sequences of staged black-and-white images, often accompanied by wry or lyrical captions.`\
+https://www.nytimes.com/2026/06/10/arts/design/duane-michals-dead.html
+
 **Investors Feed A.I. Firms’ Voracious Appetite for New Money**\
 `In the race to dominate the artificial intelligence industry, companies like SpaceX and Alphabet are borrowing cash and raising equity from investors at the fastest pace in decades.`\
 https://www.nytimes.com/2026/06/10/business/investors-artificial-intelligence.html
@@ -18,13 +26,13 @@ https://www.nytimes.com/2026/06/10/style/backrooms-gen-z-anxiety.html
 `There’s grated ginger in the spicy-savory sauce, and chopped crystallized ginger in the noodle-cucumber-scallion mix for chew and sweetness.`\
 https://www.nytimes.com/2026/06/10/dining/these-cold-peanut-noodles-are-for-ginger-lovers.html
 
-**Indonesia Landslides Devastated Endangered Orangutans, Study Finds**\
-`More than 5 percent of the species is estimated to have been lost when a climate-fueled storm unleashed torrents of water, mud and debris.`\
-https://www.nytimes.com/2026/06/10/climate/indonesia-floods-organgutans.html
-
 **Do Women Really Need a Menopause Workout?**\
 `A new wave of fitness programs claim to be specifically tailored for midlife. Here’s what to know about them.`\
 https://www.nytimes.com/2026/06/10/well/move/menopause-workouts-exercises.html
+
+**Indonesia Landslides Devastated Endangered Orangutans, Study Finds**\
+`More than 5 percent of the species is estimated to have been lost when a climate-fueled storm unleashed torrents of water, mud and debris.`\
+https://www.nytimes.com/2026/06/10/climate/indonesia-floods-organgutans.html
 
 **SpaceX’s IPO Will Turn 4,400 Employees Into Millionaires**\
 `While Elon Musk may soon become a trillionaire, his rocket company’s market debut is set to the change the lives of its current and former employees, too.`\
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/10/opinion/california-slow-vote-primary.html
 **A Different Kind of ‘Values Voter’ Will Power the 2026 Midterms**\
 `A new politics of morality is rising in the Democratic Party.`\
 https://www.nytimes.com/2026/06/10/opinion/democrats-politics-morality-values.html
-
-**Trial Begins for Man Accused of Sparking Palisades Fire**\
-`Opening statements are set to begin Wednesday in the case of the man prosecutors say was enthralled by fire and resentful toward the rich.`\
-https://www.nytimes.com/2026/06/10/us/jonathan-rinderknecht-palisades-fire-trial.html
-
-**The Supreme Court Doesn’t Own the Constitution**\
-`It starts with “We the people” for a reason.`\
-https://www.nytimes.com/2026/06/10/opinion/constitution-supreme-court-popular-sovereignty.html
 
 **Iran War Live Updates: After U.S. and Iran Exchange Strikes, Trump Issues New Threat**\
 `President Trump said Iran would “pay the price” for taking “too long to negotiate” an agreement to end the war.`\

@@ -1,3 +1,19 @@
+**Investors Feed A.I. Firms’ Voracious Appetite for New Money**\
+`In the race to dominate the artificial intelligence industry, companies like SpaceX and Alphabet are borrowing cash and raising equity from investors at the fastest pace in decades.`\
+https://www.nytimes.com/2026/06/10/business/investors-artificial-intelligence.html
+
+**Today, In Short**\
+`Horror movies. Prom night. And Ballerina Farm.`\
+https://www.nytimes.com/2026/06/10/briefing/today-in-short.html
+
+**Souleymane Diallo Dies at 80; Daring, Mocking Journalist in Guinea**\
+`He was harassed and briefly jailed for his work on Le Lynx, his satirical weekly newspaper, which investigated and caricatured a series of repressive leaders.`\
+https://www.nytimes.com/2026/06/10/world/africa/souleymane-diallo-dead.html
+
+**Drinking Water Facilities Hit by Strikes in Iran, State Media Reports**\
+`Two water tanks serving thousands of people were damaged, the local authorities said. The U.S. military declined to comment.`\
+https://www.nytimes.com/2026/06/10/world/middleeast/drinking-water-facilities-hit-by-strikes-in-iran-state-media-reports.html
+
 **‘Backrooms,’ Liminal Spaces and Gen Z Anxiety**\
 `“Backrooms,” a horror movie about an uncanny labyrinthine space, plays on a generation’s fears about where digital life and the real world collide.`\
 https://www.nytimes.com/2026/06/10/style/backrooms-gen-z-anxiety.html
