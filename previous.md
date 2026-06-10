@@ -1,3 +1,11 @@
+**Somali World Cup Referee Denied Entry to U.S. Returns Home to Hero’s Welcome**\
+`Omar Abdulkadir Artan, who is widely admired in his home country, would have been the first Somali to referee a World Cup game.`\
+https://www.nytimes.com/2026/06/10/world/africa/somalia-referee-world-cup-artan.html
+
+**Markets Brace for an Inflation Surprise**\
+`New data is putting investors on edge, especially over the prospect that the Federal Reserve may raise interest rates to blunt rising prices.`\
+https://www.nytimes.com/2026/06/10/business/dealbook/cpi-inflation-surprise.html
+
 **Cyera, a Cybersecurity Start-up for the A.I. Era, Raises $600 Million**\
 `The five-year-old company is now valued at $12 billion.`\
 https://www.nytimes.com/2026/06/10/business/dealbook/cyera-ai-cybersecurity-funding.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/10/us/arizona-bee-attack-swarm-season.html
 **Is A.I. affecting your career? We want to hear from you.**\
 `The New York Times wants to talk to workers about what they think artificial intelligence will mean for their careers, and how they are navigating this uncertain period.`\
 https://www.nytimes.com/2026/06/10/business/is-ai-affecting-your-career-we-want-to-hear-from-you.html
-
-**Inside Trump’s White House, the Epstein Files Caused a Freakout**\
-`The president’s top advisers gathered in a series of Situation Room meetings as they struggled to contain a scandal engulfing Donald Trump himself.`\
-https://www.nytimes.com/2026/06/10/magazine/trump-epstein-files-white-house-vance-doj.html
-
-**You Love Your Native Garden. But Will Buyers Love It Too?**\
-`For homeowners who have ‘rewilded’ their gardens into mini nature preserves, a moment of truth arrives when they prepare to sell.`\
-https://www.nytimes.com/2026/06/10/realestate/you-love-your-native-garden-but-will-buyers-love-it-too.html
 

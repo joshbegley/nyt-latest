@@ -1,3 +1,11 @@
+**Somali World Cup Referee Denied Entry to U.S. Returns Home to Hero’s Welcome**\
+`Omar Abdulkadir Artan, who is widely admired in his home country, would have been the first Somali to referee a World Cup game.`\
+https://www.nytimes.com/2026/06/10/world/africa/somalia-referee-world-cup-artan.html
+
+**Markets Brace for an Inflation Surprise**\
+`New data is putting investors on edge, especially over the prospect that the Federal Reserve may raise interest rates to blunt rising prices.`\
+https://www.nytimes.com/2026/06/10/business/dealbook/cpi-inflation-surprise.html
+
 **Cyera, a Cybersecurity Start-up for the A.I. Era, Raises $600 Million**\
 `The five-year-old company is now valued at $12 billion.`\
 https://www.nytimes.com/2026/06/10/business/dealbook/cyera-ai-cybersecurity-funding.html
