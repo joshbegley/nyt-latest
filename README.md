@@ -1,9 +1,13 @@
+**Knicks Watch Party Outside Madison Square Garden Is Canceled**\
+`Hours before Wednesday’s game began, James Dolan, the owner of the Knicks, and Mayor Zohran Mamdani were publicly battling over who was to blame for the cancellation.`\
+https://www.nytimes.com/2026/06/10/nyregion/msg-knicks-watch-party-canceled.html
+
 **Trump Muses About Government Taking a Piece of A.I. Companies**\
 `President Trump touched on what is an increasingly hot topic in Washington: how average Americans can get a piece of the tech industry’s A.I. windfall.`\
 https://www.nytimes.com/2026/06/10/technology/president-trump-americans-sharing-ai-wealth.html
 
-**Inflation Rises to Its Fastest Pace in Three Years**\
-`Hegseth says the U.S. will strike Iran again tonight. Here’s the latest at the end of Wednesday.`\
+**The U.S. Strikes Iran Again**\
+`Also, inflation jumps for a third-straight month. Here’s the latest at the end of Wednesday.`\
 https://www.nytimes.com/2026/06/10/briefing/inflation-rises-us-iran-strikes.html
 
 **Suspect in Killing of Minnesota Lawmaker Strikes a Plea Deal**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/10/science/jessica-meir-aurora-southern-lights-s
 **Strict Security Around MSG Is Back for Knicks Game 4**\
 `Several blocks around Madison Square Garden will be closed to most people Wednesday afternoon. The city approved a ticketed watch party, though it was unclear whether it would take place.`\
 https://www.nytimes.com/2026/06/10/nyregion/knicks-security-game-4-msg.html
-
-**Trump Shrugs Off High Prices Amid Iran War and Says ‘I Love the Inflation’**\
-`As inflation outpaces workers’ wages, the Trump administration insists that its agenda is working.`\
-https://www.nytimes.com/2026/06/10/business/economy/trump-inflation-iran-war.html
 
 **World Cup Updates: U.S. Immigration Policies Turn Some Fans and Participants Away**\
 `(No description)`\

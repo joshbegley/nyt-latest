@@ -1,3 +1,11 @@
+**Trump Muses About Government Taking a Piece of A.I. Companies**\
+`President Trump touched on what is an increasingly hot topic in Washington: how average Americans can get a piece of the tech industry’s A.I. windfall.`\
+https://www.nytimes.com/2026/06/10/technology/president-trump-americans-sharing-ai-wealth.html
+
+**Inflation Rises to Its Fastest Pace in Three Years**\
+`Hegseth says the U.S. will strike Iran again tonight. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/06/10/briefing/inflation-rises-us-iran-strikes.html
+
 **Maine Senate Race Heats Up as Trump Attacks Platner**\
 `With Graham Platner now the Democratic nominee against Senator Susan Collins, signs of how hostile the race will be have quickly emerged.`\
 https://www.nytimes.com/2026/06/10/us/politics/maine-senate-graham-platner-susan-collins.html
