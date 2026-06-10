@@ -1,3 +1,15 @@
+**Sailors Rescued After U.S. Missile Strikes Tanker Off Oman’s Coast**\
+`Indian sailors aboard a tanker that was struck by a U.S. missile sent distress calls for more than two hours before being rescued by the Omani military. U.S. Central Command said the ship was trying to sail to an Iranian port.`\
+https://www.nytimes.com/video/world/middleeast/100000010957544/indian-sailors-rescue-us-strike-tanker-oman.html
+
+**In a Timely “Under the Shadow” Staging, a Ghost Haunts War-Torn Iran**\
+`The supernatural mixes with secular modernity, family dynamics and feminism in a new London production of “Under the Shadow.”`\
+https://www.nytimes.com/2026/06/10/theater/under-the-shadow-almeida-theater-london.html
+
+**Hong Kong Charges 7 People and 2 Companies Over Deadly Apartment Fire**\
+`The 25 charges include manslaughter and conspiracy. They are the first to emerge from a monthslong investigation into a blaze that killed 168 people.`\
+https://www.nytimes.com/2026/06/10/world/asia/hong-kong-apartment-fire-charges.html
+
 **They Tracked Fitness, Food and Sleep Obsessively. Now They’re Tuning Out.**\
 `As some online lean into biohacking and wellness metrics, reformed optimizers are canceling Pilates and having that extra glass of wine.`\
 https://www.nytimes.com/2026/06/10/style/biohacking-fitness-tracking-fitbit-whoop.html
@@ -122,8 +134,8 @@ https://www.nytimes.com/es/2026/06/10/espanol/mundo/iran-israel-libano-ataques.h
 `Senior officials clashed in a series of meetings as they struggled to manage a crisis over the president’s refusal to release the documents.`\
 https://www.nytimes.com/2026/06/10/magazine/epstein-files-trump-white-house-takeaways.html
 
-**Taking a Week to Count Votes Is Doing It Wrong**\
-`It is time for California to catch up to its own past.`\
+**California’s Excuses Are Damaging Faith in Government**\
+`Taking a week to count votes is doing it wrong.`\
 https://www.nytimes.com/2026/06/10/opinion/california-slow-vote-primary.html
 
 **A Different Kind of ‘Values Voter’ Will Power the 2026 Midterms**\
@@ -151,7 +163,7 @@ https://www.nytimes.com/video/podcasts/100000010956300/laverne-cox-is-ready-to-t
 https://www.nytimes.com/2026/06/10/us/san-antonio-spurs-fans.html
 
 **The A.I. Bubble Is Coming for Your Retirement Account**\
-`David Wallace-Wells speaks with the economist and law professor Natasha Sarin about what the coming A.I. I.P.O.s could mean for your retirement account.`\
+`The public is about to buy into A.I.’s trillion-dollar promises. Are they worth the price?`\
 https://www.nytimes.com/2026/06/10/opinion/ai-ipo-openai-anthropic.html
 
 **SpaceX IPO: What You Need to Know**\
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/10/world/americas/argentina-world-cup-sticker-al
 **For the NBA Finals, These Knicks Fans Show Out in Style**\
 `Fans want to support their team, but they’re not willing to squelch their sense of style.`\
 https://www.nytimes.com/2026/06/10/style/knicks-fans-msg-nba-finals-fashion.html
-
-**‘Clumsy Diplomacy’: Inside the U.S.-Kenya Feud Over an Ebola Camp**\
-`Hundreds of Kenyans have marched through the streets to oppose a quarantine facility that would be reserved exclusively for American patients.`\
-https://www.nytimes.com/2026/06/10/world/africa/ebola-kenya-us-protests.html
-
-**With Bill Pulte, Trump Is Sending a Dangerous Message**\
-`President Trump’s decision to place Bill Pulte at the head of the U.S. intelligence community is not just another poor personnel choice. It’s a warning.`\
-https://www.nytimes.com/2026/06/10/opinion/cia-bill-pulte-trump.html
-
-**$525,000 Homes in California, Indiana and Florida**\
-`A pair of Spanish-style bungalows in Twentynine Palms, Calif., a farmhouse in Whitestown, Ind., and a Craftsman in Tampa, Fla.`\
-https://www.nytimes.com/2026/06/10/realestate/homes-for-wale-twentynine-palms-tampa-whitestown.html
 

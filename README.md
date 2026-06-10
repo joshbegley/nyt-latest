@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/06/10/style/biohacking-fitness-tracking-fitbit-whoo
 `Diljeet Dosanjh Taylor, an outspoken feminist in Mormon country, has helped make Brigham Young University into a running powerhouse.`\
 https://www.nytimes.com/2026/06/10/style/diljeet-taylor-byu-track-coach.html
 
-**Senior Russian Militar**\
+**Senior Russian Military Official Is Killed in Car Explosion Near Moscow**\
 `The death of the officer appeared to add to a string of targeted assassinations of high-profile opponents of Ukraine inside Russia.`\
 https://www.nytimes.com/2026/06/10/world/europe/russia-moscow-car-bomb.html
 

@@ -1,3 +1,23 @@
+**Sailors Rescued After U.S. Missile Strikes Tanker Off Oman’s Coast**\
+`Indian sailors aboard a tanker that was struck by a U.S. missile sent distress calls for more than two hours before being rescued by the Omani military. U.S. Central Command said the ship was trying to sail to an Iranian port.`\
+https://www.nytimes.com/video/world/middleeast/100000010957544/indian-sailors-rescue-us-strike-tanker-oman.html
+
+**In a Timely “Under the Shadow” Staging, a Ghost Haunts War-Torn Iran**\
+`The supernatural mixes with secular modernity, family dynamics and feminism in a new London production of “Under the Shadow.”`\
+https://www.nytimes.com/2026/06/10/theater/under-the-shadow-almeida-theater-london.html
+
+**Hong Kong Charges 7 People and 2 Companies Over Deadly Apartment Fire**\
+`The 25 charges include manslaughter and conspiracy. They are the first to emerge from a monthslong investigation into a blaze that killed 168 people.`\
+https://www.nytimes.com/2026/06/10/world/asia/hong-kong-apartment-fire-charges.html
+
+**California’s Excuses Are Damaging Faith in Government**\
+`Taking a week to count votes is doing it wrong.`\
+https://www.nytimes.com/2026/06/10/opinion/california-slow-vote-primary.html
+
+**The A.I. Bubble Is Coming for Your Retirement Account**\
+`The public is about to buy into A.I.’s trillion-dollar promises. Are they worth the price?`\
+https://www.nytimes.com/2026/06/10/opinion/ai-ipo-openai-anthropic.html
+
 **They Tracked Fitness, Food and Sleep Obsessively. Now They’re Tuning Out.**\
 `As some online lean into biohacking and wellness metrics, reformed optimizers are canceling Pilates and having that extra glass of wine.`\
 https://www.nytimes.com/2026/06/10/style/biohacking-fitness-tracking-fitbit-whoop.html
