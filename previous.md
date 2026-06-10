@@ -1,3 +1,7 @@
+**Southern Baptists Elect Willy Rice, Pastor Favored by Right-Wing Faction, as President**\
+`A contingent seeking to push the denomination to the right secured its first major victory through the election of Willy Rice, a Florida pastor who wants to challenge “the system.”`\
+https://www.nytimes.com/2026/06/09/us/sbc-president-pastor-willy-rice.html
+
 **Rep. Kevin Kiley, Independent, to Face Richard Pan in California House Race**\
 `Mr. Kiley dropped his Republican affiliation earlier this year. The newly drawn Sixth Congressional District is widely considered to be favorable for Democrats.`\
 https://www.nytimes.com/2026/06/09/us/politics/pan-ho-kiley-california-primary.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-sup
 **South Carolina Agriculture Commissioner Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 South Carolina primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-agriculture-commissioner-primary.html
-
-**South Carolina Fourth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 South Carolina primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-us-house-4-primary.html
 
