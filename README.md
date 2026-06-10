@@ -162,7 +162,7 @@ https://www.nytimes.com/2026/06/10/style/knicks-fans-msg-nba-finals-fashion.html
 `Hundreds of Kenyans have marched through the streets to oppose a quarantine facility that would be reserved exclusively for American patients.`\
 https://www.nytimes.com/2026/06/10/world/africa/ebola-kenya-us-protests.html
 
-**I Worked for the C.I.A. for 28 Years. Bill Pulte Is a Dangerous Choice.**\
+**With Bill Pulte, Trump Is Sending a Dangerous Message**\
 `President Trump’s decision to place Bill Pulte at the head of the U.S. intelligence community is not just another poor personnel choice. It’s a warning.`\
 https://www.nytimes.com/2026/06/10/opinion/cia-bill-pulte-trump.html
 
