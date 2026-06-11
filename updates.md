@@ -1,3 +1,7 @@
+**Vance Boelter Pleads Guilty in Assassination of Minnesota Lawmaker**\
+`Federal prosecutors said they would not seek the death penalty for Vance Boelter, who still faces charges in state court.`\
+https://www.nytimes.com/2026/06/11/us/minnesota-assassination-plea-hearing-hortman.html
+
 **‘North Star’ Explores Frederick Douglass’s Ties to Ireland**\
 `Hunted by slavers, the abolitionist escaped briefly to Britain and Ireland. A new show at the Irish Arts Center combines his speeches with performances by local students.`\
 https://www.nytimes.com/2026/06/11/theater/north-star-frederick-douglass-irish-arts-center.html
