@@ -1,3 +1,7 @@
+**Knicks Live Updates: An Electric Atmosphere Delivers an Unforgettable Finish**\
+`Taylor Swift was among the celebrities sitting courtside in New York for a record comeback, moving the Knicks within a win of a long-awaited N.B.A. title.`\
+https://www.nytimes.com/live/2026/06/10/nyregion/nba-finals-knicks-spurs
+
 **What’s Love Got to Do With the Movie 'Obsession’? | Cannonball with Wesley Morris**\
 `The hit movie has a troubling take on relationships.`\
 https://www.nytimes.com/2026/06/10/podcasts/whats-love-got-to-do-with-obsession.html
