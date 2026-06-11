@@ -1,3 +1,7 @@
+**Nobody Drinks Bordeaux in Bordeaux**\
+`In restaurants and wine bars in Bordeaux, plenty of other wines are open, but few bottles of the local product. Why? It’s complicated.`\
+https://www.nytimes.com/2026/06/11/dining/drinks/nobody-drinks-bordeaux-in-bordeaux.html
+
 **Laverne Cox Always Knew She’d Be a Star**\
 `The Netflix star tells Anna Martin, host of the “Modern Love” podcast, about how she overcame childhood bullying.`\
 https://www.nytimes.com/video/podcasts/100000010960860/laverne-cox-always-knew-shed-be-a-star.html
