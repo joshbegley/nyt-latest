@@ -1,3 +1,7 @@
+**EE. UU. pidió a Colombia que cancelara la reunión de Petro con Mamdani**\
+`El Departamento de Estado había cancelado la visa del presidente Gustavo Petro el año pasado después de que asistió a una manifestación a favor de Palestina en Manhattan. Tenía previsto asistir a un foro organizado por el alcalde de Nueva York, Zohran Mamdani.`\
+https://www.nytimes.com/es/2026/06/10/espanol/mundo/petro-colombia-mamdani.html
+
 **No, There Was Not a Snake Invasion at the Swiss Team’s World Cup Training Facility**\
 `A map of the San Diego facility that the team is using as its base led people to believe that snakes had infiltrated the premises.`\
 https://www.nytimes.com/2026/06/10/us/switzerland-world-cup-snakes-san-diego.html
