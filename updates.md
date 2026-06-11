@@ -1,3 +1,7 @@
+**Laverne Cox Always Knew She’d Be a Star**\
+`The Netflix star tells Anna Martin, host of the “Modern Love” podcast, about how she overcame childhood bullying.`\
+https://www.nytimes.com/video/podcasts/100000010960860/laverne-cox-always-knew-shed-be-a-star.html
+
 **Avril Haines, Former Intelligence Chief, Will Lead Carnegie Endowment for International Peace**\
 `In the run-up to the invasion of Ukraine, Ms. Haines helped devise the strategy of declassifying evidence of Russia’s military buildup in an effort to rally European allies.`\
 https://www.nytimes.com/2026/06/11/us/politics/avril-haines-carnegie-endowment-for-international-peace.html

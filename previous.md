@@ -1,3 +1,7 @@
+**Laverne Cox Always Knew She’d Be a Star**\
+`The Netflix star tells Anna Martin, host of the “Modern Love” podcast, about how she overcame childhood bullying.`\
+https://www.nytimes.com/video/podcasts/100000010960860/laverne-cox-always-knew-shed-be-a-star.html
+
 **Avril Haines, Former Intelligence Chief, Will Lead Carnegie Endowment for International Peace**\
 `In the run-up to the invasion of Ukraine, Ms. Haines helped devise the strategy of declassifying evidence of Russia’s military buildup in an effort to rally European allies.`\
 https://www.nytimes.com/2026/06/11/us/politics/avril-haines-carnegie-endowment-for-international-peace.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/11/arts/design/gerhard-richter-landschaften-zwir
 **Ryanair Is Being Investigated for Charging Parents to Sit Next to Their Children**\
 `Britain’s competition watchdog will determine whether the airline’s mandatory fee is unfair. The low-cost airline called the investigation “bogus.”`\
 https://www.nytimes.com/2026/06/11/world/europe/ryanair-investigation-parents-charges-flights.html
-
-**Colombia elige: ¿machismo o derechos de la mujer?**\
-`El favorito en las elecciones presidenciales ha desatado un debate sobre la masculinidad y el machismo. Los grupos defensores de los derechos de las mujeres ven en ello una estrategia habitual de la derecha.`\
-https://www.nytimes.com/es/2026/06/11/espanol/america-latina/colombia-abelardo-de-la-espriella-machismo.html
 
 **Iran War Live Updates: Trump Retracts Latest Threats of More Strikes**\
 `Claiming there was progress in the peace negotiations, President Trump said he had canceled his next wave of planned attacks after two days of U.S. airstrikes.`\
