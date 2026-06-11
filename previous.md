@@ -1,3 +1,155 @@
+**Better Sex, Better Hair, Better Sleep: ‘Humanmaxxing’ Is Here**\
+`The biotech billionaire who wants to rebuild your body and blow your mind.`\
+https://www.nytimes.com/2026/06/11/opinion/biotech-maxxing-christian-angermayer.html
+
+**36 Hours in Athens, Greece: Things to Do and See**\
+`In Athens, experimental restaurants and lively bars brush up against archaeological ruins and millennia-old neighborhoods — proof that this ancient metropolis is no mere monument to the past.`\
+https://www.nytimes.com/interactive/2026/06/11/travel/things-to-do-athens.html
+
+**The Terrible Man Theory of History**\
+`The solution to Trumpism isn’t to conform to the spirit of the age, but to transform it.`\
+https://www.nytimes.com/2026/06/11/opinion/platner-trump-character-leadership.html
+
+**A Newer Approach to Editing Embryos Ignites Debate**\
+`Fertility specialists, biotech companies and ethicists are divided over whether progress in early gene editing would wipe out diseases or trigger a rush toward enhancement.`\
+https://www.nytimes.com/2026/06/11/science/base-editing-embryos-debate.html
+
+**Women Who Fled Iran Are to Be Deported to Central African Republic, Lawyers Say**\
+`The women are among nearly two dozen people slated to be sent to a country where the U.S. government has advised “Do not travel for any reason.”`\
+https://www.nytimes.com/2026/06/11/world/africa/deportations-to-central-african-republic.html
+
+**Three Generations of Women Under One Roof in Westchester**\
+`A retired math teacher, her daughter and her granddaughter put together about $1 million to find a house in New Rochelle, N.Y., for their extended family and a dog named Harry Styles.`\
+https://www.nytimes.com/interactive/2026/06/11/realestate/westchester-new-rochelle-house-hunt.html
+
+**A Home with Old Hollywood Glamour for Sale in the Hollywood Hills**\
+`Silent film stars Rudolph Valentino and Pola Negri reportedly rendezvoused here in the 1920s.`\
+https://www.nytimes.com/2026/06/11/realestate/pola-negri-rudolph-valentine-whitley-heights.html
+
+**New York City’s Parking Problems**\
+`Drivers in the city spend, on average, 107 hours every year hunting for parking spaces.`\
+https://www.nytimes.com/2026/06/11/nyregion/new-york-citys-parking-problems.html
+
+**Better Sex, Better Hair, Better Sleep: ‘Humanmaxxing’ Is Here**\
+`The biotech billionaire who wants to rebuild your body and blow your mind.`\
+https://www.nytimes.com/video/opinion/100000010947916/better-sex-better-hair-better-sleep-humanmaxxing-is-here.html
+
+**What Does ‘Triggered’ Really Mean?**\
+`This popular term is often misused, experts say, which may cause more harm than good.`\
+https://www.nytimes.com/2026/06/11/well/mind/trigger-trauma-meaning.html
+
+**In a Trump-Endorsed Presidential Candidate, Colombia’s Women See a Familiar Far-Right Playbook**\
+`Colombia’s presidential front-runner has sparked a debate about masculinity and machismo. Women’s rights groups see a familiar right-wing playbook.`\
+https://www.nytimes.com/2026/06/11/us/abelardo-de-la-espriella-right-wing-colombia-women.html
+
+**The Pro-Tax Socialite**\
+`Julie Macklowe’s unlikely crusade.`\
+https://www.nytimes.com/2026/06/11/podcasts/the-pro-tax-socialite.html
+
+**Your Next House May Be a Birdhouse**\
+`Market data suggests a soaring future for bird watching and for sales of feeding products.`\
+https://www.nytimes.com/2026/06/11/realestate/bird-watching-equipment-statistics.html
+
+**Homes for Sale in Manhattan and Brooklyn**\
+`This week’s properties are in Hamilton Heights, Murray Hill and Downtown Brooklyn.`\
+https://www.nytimes.com/2026/06/11/realestate/housing-market-nyc.html
+
+**I was a V.C. Partner. We Can’t Let Silicon Valley Buy Democracy.**\
+`Pro-A.I. groups are spending gobs of cash to influence political campaigns. That’s terrible news for us all.`\
+https://www.nytimes.com/2026/06/11/opinion/silicon-valley-ai-politics.html
+
+**‘Stop! That! Train!’ Review: Gleefully Going Off the Rails**\
+`RuPaul stars as the American president, who must contend with an unfolding transit crisis and drag queens galore as a dangerous storm approaches.`\
+https://www.nytimes.com/2026/06/11/movies/stop-that-train-review.html
+
+**‘Promised Sky’ Review: Living in a State of Uncertainty**\
+`Three women living in Tunisia shelter Kenza, a young girl who survived a shipwreck, while they deal with their own issues.`\
+https://www.nytimes.com/2026/06/11/movies/promised-sky-review.html
+
+**‘O Horizon’ Review: Trying to Skip Pain**\
+`An already unwieldy film feels more queasy when taken in cultural context.`\
+https://www.nytimes.com/2026/06/11/movies/o-horizon-review.html
+
+**‘I Am Frankelda’ Review: Nightmares in Stop-Motion**\
+`An origin story that proves the dark flame of Mexican fantasy is alive and well.`\
+https://www.nytimes.com/2026/06/11/movies/i-am-frankelda-review.html
+
+**‘The Furious’ Review: Action Spectacle Built on Body-Breaking Blows**\
+`Xie Miao and Joe Taslim kick butt and take names in Kenji Tanigaki’s Asian action extravaganza.`\
+https://www.nytimes.com/2026/06/11/movies/the-furious-review.html
+
+**‘Disclosure Day’ Review: Spielberg Plays His Greatest Cosmic Hits**\
+`In a fast-paced sci-fi fantasy, infused with epic intentions and starring Emily Blunt, Josh O’Connor and Colman Domingo, the filmmaker brings the rest of us home.`\
+https://www.nytimes.com/2026/06/11/movies/disclosure-day-review-spielberg-plays-his-greatest-cosmic-hits.html
+
+**Protests Threaten to Disrupt Mexico City’s World Cup Opening Ceremony**\
+`Unions and other groups plan to demonstrate at the capital’s World Cup stadium, adding tension as the much-watched event begins.`\
+https://www.nytimes.com/2026/06/11/world/americas/world-cup-mexico-city-protests.html
+
+**Broadway Shows Closing Soon: ‘Becky Shaw,’ ‘Giant’ and More**\
+`The final curtain is coming down on two Tony Award-winning performances, a reboot of a 1980s musical and one of the best plays in August Wilson’s American Century Cycle.`\
+https://www.nytimes.com/2026/06/11/arts/broadway-shows-closing-soon-becky-shaw-giant-and-more.html
+
+**How Tesla’s Stock Listing in 2010 Enabled SpaceX’s I.P.O.**\
+`Investors who bought the automaker’s shares in its initial public offering became rich. As a result, many have a deep faith in Elon Musk, the chief executive of Tesla and SpaceX.`\
+https://www.nytimes.com/2026/06/11/business/spacex-tesla-ipo-elon-musk.html
+
+**5 Classical Music Albums You Can Listen to Right Now**\
+`Recordings of songs by Schubert, music by Martyna Basta and symphonies by Martinu are among our selections.`\
+https://www.nytimes.com/2026/06/11/arts/music/best-classical-music-albums-june-2026.html
+
+**Why Mexico’s President Will Not Attend the World Cup Opening Match**\
+`President Claudia Sheinbaum of Mexico plans to intentionally skip the entire tournament, breaking a decades-long tradition of sports diplomacy.`\
+https://www.nytimes.com/2026/06/11/world/americas/mexico-president-sheinbaum-world-cup.html
+
+**In the Protein Era, Even He-Man Is Hawking Supplements**\
+`To promote “Masters of the Universe,” Mattel, the toymaker behind the movie, tapped into one of the hottest trends in health and wellness: protein.`\
+https://www.nytimes.com/2026/06/11/business/he-man-mattel-marketing-protein-supplements.html
+
+**Since When Did Calling Something ‘Ultra’ Become an Insult?**\
+`The prefix has been used as a marketing tactic for decades. But when life feels extreme, it more often means something negative.`\
+https://www.nytimes.com/2026/06/11/magazine/ultraprocessed-food-insult.html
+
+**How to File a Travel Insurance Claim**\
+`The process involves attention to detail and, above all, documentation. Here’s what you need to know.`\
+https://www.nytimes.com/2026/06/11/travel/how-to-file-a-travel-insurance-claim.html
+
+**‘Honeyjoon’ Review: Island Healing**\
+`In this strange, sensual dramedy, a lusty 20-something and her grieving Persian-British mother travel to an island resort meant for honeymooners.`\
+https://www.nytimes.com/2026/06/11/movies/honeyjoon-review.html
+
+**Homes for Sale in New York and New Jersey**\
+`This week’s properties are three-bedroom homes in Freeport, N.Y., and Roseland, N.J.`\
+https://www.nytimes.com/2026/06/11/realestate/homes-for-sale-in-new-york-and-new-jersey.html
+
+**Why It’s Nearly Impossible to Build a Robot Without China**\
+`Building on the country’s electric vehicle industry, Chinese companies are making robot parts at a scale and price point others can’t match.`\
+https://www.nytimes.com/2026/06/11/business/china-robots-humanoid.html
+
+**29 Shows to Watch This Summer**\
+`“The Bear” serves its last course, “Ted Lasso” gets back on the pitch, and Larry David makes a TV show with the Obamas.`\
+https://www.nytimes.com/2026/06/11/arts/television/29-shows-to-watch-this-summer.html
+
+**Sex, Lies and Secrets: A Federal Judge’s Trysts Go Public**\
+`Now, Judge Eleanor Ross’s career and caseload are under scrutiny. And her punishment, a private reprimand, has sparked backlash.`\
+https://www.nytimes.com/2026/06/11/us/eleanor-ross-judge-sex-misconduct.html
+
+**Democrats Once Vowed to Stop Oil and Gas. Now They’re Not So Sure.**\
+`As the midterm elections approach, many leading Democrats are rethinking their approach to climate change.`\
+https://www.nytimes.com/2026/06/11/climate/democrats-climate-change-oil-gas.html
+
+**Book Review: ‘The American School of Spies,’ by Stephan Talty**\
+`In “The American School of Spies,” Stephan Talty tells the story of the desperate struggle to preserve antiquities during World War II.`\
+https://www.nytimes.com/2026/06/11/books/review/the-american-school-of-spies-stephan-talty.html
+
+**Trump’s D.C. Renovations, HGTV Style**\
+`President Trump brings a particular brand of reality TV-style renovations to the nation’s capital.`\
+https://www.nytimes.com/2026/06/11/style/when-dc-goes-hgtv.html
+
+**Running Around N.Y.C. With ‘Deli Boys’ Mob Boss Auntie**\
+`Poorna Jagannathan, who plays Lucky Auntie in “Deli Boys” on Hulu, is finally over the impostor syndrome.`\
+https://www.nytimes.com/2026/06/11/style/running-around-nyc-with-deli-boys-mob-boss-auntie.html
+
 **Mike Amiri Knows What Travis Kelce and Marcus Rashford Want to Wear**\
 `How Amiri built a brand on the culture of sports.`\
 https://www.nytimes.com/2026/06/11/style/world-cup-fashion-mike-amiri.html
@@ -43,154 +195,6 @@ https://www.nytimes.com/2026/06/11/world/asia/south-korea-coupang-fine.html
 https://www.nytimes.com/video/sports/100000010959727/fifa-world-cup-mexico.html
 
 **Knicks Fans Rejoice After Game 4 Victory**\
-`Fans and celebrities, including Taylor Swift and Timothée Chalamet, celebrated after the Knicks’ record comeback to win Game 4 of the N.B.A finals`\
+`Fans and celebrities, including Taylor Swift and Timothée Chalamet, celebrated after the Knicks’ record comeback to win Game 4 of the N.B.A finals.`\
 https://www.nytimes.com/video/nyregion/100000010959882/knicks-nba-comeback-fans.html
-
-**La nueva táctica con drones de Ucrania está dañando a Rusia**\
-`Los ataques de alcance medio, con drones mejorados que Ucrania produce en grandes cantidades, están provocando escasez de combustible y complica la rotación de soldados.`\
-https://www.nytimes.com/es/2026/06/11/espanol/mundo/guerra-ucrania-rusia-drones.html
-
-**A Fractured North America Begins a Historic World Cup**\
-`Mexico and Canada have faced significant recent tension in their relations with the United States. But in their historic World Cup bid, the three countries promoted teamwork.`\
-https://www.nytimes.com/2026/06/11/world/americas/world-cup-fractured-north-america.html
-
-**With Inflation Bearing Down, Europe Is Facing Higher Interest Rates**\
-`The European Central Bank is set to raise rates, the first such move since September 2023, as energy disruptions caused by the Iran war drive higher prices.`\
-https://www.nytimes.com/2026/06/11/business/european-central-bank-inflation-interest-rates.html
-
-**New York City Leaders Propose Building More Homes on Top of Libraries**\
-`Julie Menin, the City Council speaker, unveiled plans for three projects combining affordable housing developments and library renovations. It is part of a nationwide trend.`\
-https://www.nytimes.com/2026/06/11/nyregion/nyc-libraries-affordable-housing-menin.html
-
-**City Council Calls for Tighter Review of N.Y.C. School System Contracts**\
-`The chancellor of the city’s schools, Kamar Samuels, is being investigated over a $180,000 no-bid deal dating to his previous role.`\
-https://www.nytimes.com/2026/06/11/nyregion/nyc-schools-chancellor-contract-investigation.html
-
-**The Mystery Artist Filling Subway Ad Space With Whimsy**\
-`Sue Sarah Gilbert, a Rockefeller descendant in Seattle, raised $1 million to place her drawings in New York City stations.`\
-https://www.nytimes.com/2026/06/11/nyregion/nyc-subway-art-susan-bird.html
-
-**NYT Spelling Bee Answers for June 11, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/06/11/crosswords/spelling-bee-forum.html
-
-**Iran War Live Updates: U.S. and Iran Trade Fresh Attacks**\
-`The continued exchanges of fire have raised fears that the two sides could return to all-out war.`\
-https://www.nytimes.com/live/2026/06/11/world/iran-war-trump-us-israel
-
-**Desi Lydic Does a Spit Take at the Price of Trump’s Gold Coin**\
-`“$12,000? For a coin? Does it come with a used Honda Civic?” Lydic said.`\
-https://www.nytimes.com/2026/06/11/arts/television/late-night-desi-lydic-trump-coin.html
-
-**Word of the Day: dudgeon**\
-`This word has appeared in one article on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/06/11/learning/word-of-the-day-dudgeon.html
-
-**Nadie gana en la guerra en Medio Oriente**\
-`Ninguno de los que han participado en las guerras recientes en Medio Oriente puede declararse vencedor. Todos son culpables.`\
-https://www.nytimes.com/es/2026/06/11/espanol/opinion/guerra-iran-estados-unidos-israel.html
-
-**It’s Godzilla vs. T. Rex Out There All Over America**\
-`Is there nothing voters won’t forgive?`\
-https://www.nytimes.com/2026/06/11/opinion/platner-maine-trump-character.html
-
-**The War in Ukraine Has Now Gone On Longer Than World War I**\
-`Parallels between the two wars abound, from the grinding nature of the fighting to the way new technologies reshaped warfare.`\
-https://www.nytimes.com/2026/06/11/world/europe/ukraine-russia-world-war-i.html
-
-**Medicare Advantage Plans Often Deny Seniors Access to Special Care, Analysis Shows**\
-`Two reports by U.S. investigators reveal how Medicare Advantage is quick to reject requests for short-term nursing home or inpatient rehab services.`\
-https://www.nytimes.com/2026/06/11/business/medicare-advantage-nursing-homes.html
-
-**A.I. and the Chip Boom: Take a Quiz on New Korean Slang and Memes**\
-`What’s a “silicon-collar”? South Korea’s chip industry has been supercharged by the advent of the A.I. age, inspiring a host of new phrases.`\
-https://www.nytimes.com/2026/06/11/world/asia/korean-ai-chips-quiz.html
-
-**Quote of the Day: U.S. Immigration Policy Blocks Some From Soccer’s Global Stage**\
-`Quotation of the Day for Thursday, June 11, 2026.`\
-https://www.nytimes.com/2026/06/11/pageoneplus/quote-of-the-day-us-immigration-policy-blocks-some-from-soccers-global-stage.html
-
-**Microsoft C.E.O. Satya Nadella Says ‘Everyone Is a Stakeholder’ in A.I.**\
-`At The New York Times’s Hard Fork Live event, Mr. Nadella addressed the backlash against artificial intelligence and President Trump’s comments about Americans sharing in the wealth of A.I. companies`\
-https://www.nytimes.com/2026/06/10/technology/microsoft-satya-nadella-artificial-intelligence.html
-
-**What’s Love Got to Do With the Movie 'Obsession’? | Cannonball with Wesley Morris**\
-`The hit movie has a troubling take on relationships.`\
-https://www.nytimes.com/2026/06/10/podcasts/whats-love-got-to-do-with-obsession.html
-
-**What’s Love Got to Do With Obsession?**\
-`Wesley Morris and pop culture critic Angelica Jade Bastièn discuss the hit horror movie “Obsession”’and what it says about relationships today.`\
-https://www.nytimes.com/video/podcasts/100000010952396/whats-love-got-to-do-with-obsession.html
-
-**They Know About Loss. They’re Rooting for a Knicks Win.**\
-`Inspired by the words of Karl-Anthony Towns, Sparrow Funeral Home in Brooklyn, hosted a watch party for basketball fans and grieving neighbors alike.`\
-https://www.nytimes.com/2026/06/10/nyregion/they-know-about-loss-theyre-rooting-for-a-knicks-win.html
-
-**EE. UU. pidió a Colombia que cancelara la reunión de Petro con Mamdani**\
-`El Departamento de Estado había cancelado la visa del presidente Gustavo Petro el año pasado después de que asistió a una manifestación a favor de Palestina en Manhattan. Tenía previsto asistir a un foro organizado por el alcalde de Nueva York, Zohran Mamdani.`\
-https://www.nytimes.com/es/2026/06/10/espanol/mundo/petro-colombia-mamdani.html
-
-**How a High-Powered Gathering Turned Into a Knicks Watch Party**\
-`An event for some of New York’s elite shifted gears when a TV rolled into the bar.`\
-https://www.nytimes.com/2026/06/10/nyregion/knicks-spurs-party.html
-
-**No, There Was Not a Snake Invasion at the Swiss Team’s World Cup Training Facility**\
-`A map of the San Diego facility that the team is using as its base led people to believe that snakes had infiltrated the premises.`\
-https://www.nytimes.com/2026/06/10/us/switzerland-world-cup-snakes-san-diego.html
-
-**NYT Crossword Answers for June 11, 2026**\
-`Nikhil Bailey’s debut puzzle is a numbers game.`\
-https://www.nytimes.com/2026/06/10/crosswords/daily-puzzle-2026-06-11.html
-
-**U.S. Officials Told Colombia to Cancel President’s Meeting With Mamdani**\
-`The State Department canceled President Gustavo Petro’s visa last year after he attended a pro-Palestinian rally in Manhattan. He had planned to attend a forum led by Mayor Mamdani of New York.`\
-https://www.nytimes.com/2026/06/10/world/americas/mamdani-petro-new-york-colombia-trump.html
-
-**Oil Prices Fluctuate as U.S. Launches New Attack on Iran**\
-`Oil prices jumped after the United States and Iran exchanged fire for a second day, heightening fears that the two countries could slide back into open conflict.`\
-https://www.nytimes.com/2026/06/10/business/oil-gas-price-iran.html
-
-**Lee Raymond, Who Created Global Oil Behemoth Exxon Mobil, Dies at 87**\
-`He oversaw Exxon’s acquisition of a rival, cut costs relentlessly and denied the scientific consensus on climate change.`\
-https://www.nytimes.com/2026/06/10/business/lee-raymond-dead.html
-
-**Taylor Swift and Haim Sisters Appear at MSG for Knicks Game**\
-`The musician, who is believed to be planning a wedding in the city, showed up in a musical take on Knicks gear.`\
-https://www.nytimes.com/2026/06/10/style/taylor-swift-msg-knicks.html
-
-**Burning Cross Is Found in Downtown Chicago Park**\
-`No one was injured by the burning cross, which was found in Grant Park, the authorities said. The police and the F.B.I. are investigating.`\
-https://www.nytimes.com/2026/06/10/us/burning-cross-chicago-grant-park.html
-
-**Bill Gates dice que Epstein intentó usar sus aventuras extramatrimoniales en su contra**\
-`El filántropo multimillonario testificó el miércoles en una audiencia a puerta cerrada del Congreso de EE. UU. sobre la investigación del Departamento de Justicia sobre Jeffrey Epstein.`\
-https://www.nytimes.com/es/2026/06/10/espanol/negocios/bill-gates-epstein-infidelidad.html
-
-**Trump’s Plaques on the Presidential ‘Walk of Fame,’ Fact-Checked and Annotated by Historians**\
-`President Trump’s ‘Walk of Fame’ has an unreliable narrator. We asked eight historians what they thought.`\
-https://www.nytimes.com/interactive/2026/06/10/us/politics/trump-president-plaques-white-house.html
-
-**Analysis of Satellite Image and Videos Suggest Precision U.S. Strikes on Iranian Water Facility**\
-`It is unclear if the U.S. intentionally struck the facility or knew what it was. Deliberately targeting civilian infrastructure could constitute a war crime.`\
-https://www.nytimes.com/2026/06/10/world/middleeast/precision-strike-iran-water.html
-
-**Top Pentagon Official Worked Closely With C.I.A. Officer Later Found With Gold Bars**\
-`David Rush, the C.I.A. employee, worked on a highly classified China spying program with Stephen A. Feinberg, the Pentagon’s second-ranking official.`\
-https://www.nytimes.com/2026/06/10/us/politics/pentagon-cia-officer-gold-bars.html
-
-**Hot Cars and Stolen Crypto: A Canadian Teen Pocketed Millions, Prosecutors Say**\
-`A case illustrates both the low-hanging opportunities new financial technologies offer to scammers and the downside of speeding in a Rolls-Royce.`\
-https://www.nytimes.com/2026/06/10/world/canada/canada-crypto-fraud.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/sports/basketball/100000010959446/10vid-Knicks-Game-4-Sage-90042.html
-
-**Need Last-Minute Courtside Knicks Tickets? Having a Luxury Lifestyle Adviser Helps.**\
-`The wealthy have descended on New York for top basketball, golf and soccer events, and they need prime tickets.`\
-https://www.nytimes.com/2026/06/10/nyregion/knicks-tickets-courtside-concierge.html
-
-**Knicks Fans Greet Game 4 Win With Chaotic Energy**\
-`Taylor Swift and Timothée Chalamet were among the celebrities celebrating courtside in New York after a record comeback moved the Knicks within a win of a long-awaited N.B.A. title.`\
-https://www.nytimes.com/live/2026/06/10/nyregion/nba-finals-knicks-spurs
 
