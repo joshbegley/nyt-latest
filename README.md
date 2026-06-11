@@ -179,7 +179,7 @@ https://www.nytimes.com/2026/06/11/world/middleeast/netanyahu-aide-charged-docum
 https://www.nytimes.com/2026/06/11/technology/spacex-valuation-skeptics.html
 
 **The SpaceX Shareholder at the Helm of a Multibillion-Dollar Payout**\
-`Justin Fishner-Wolfson, long a minor figure in Elon Musk’s orbit, is at the helm of a multibillion-dollar payout`\
+`Justin Fishner-Wolfson, long a minor figure in Elon Musk’s orbit, is at the helm of a multibillion-dollar payout.`\
 https://www.nytimes.com/2026/06/11/business/spacex-ipo-137-ventures.html
 
 **These Dense Bean Salads Are Smart**\

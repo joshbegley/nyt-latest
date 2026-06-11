@@ -1,3 +1,15 @@
+**Alan Hale, Sky Watcher Who Created a Comet Sensation, Dies at 68**\
+`In 1995, he and Thomas Bopp spotted, from different states, the same mysterious object in the sky. What turned out to be a comet was named after them: Hale-Bopp.`\
+https://www.nytimes.com/2026/06/11/science/space/alan-hale-dead.html
+
+**SpaceX IPO: How Our Reporters Assess the Sky-High Valuation and Potential Economic Impact**\
+`Two Times tech reporters and their editor talk about assessing the sky-high valuation of the rocket and satellite maker, the potential economic impact of its public debut and the role of the world’s richest man in it all.`\
+https://www.nytimes.com/2026/06/11/insider/spacex-ipo-coverage-facts-price.html
+
+**It’s Time To Meet Slayyyter, The ‘Worst Girl in America.’**\
+`Watch the full conversation with Slayyyter. Edited excerpts from the interview are below.`\
+https://www.nytimes.com/video/podcasts/100000010953392/its-time-to-meet-slayyyter-the-worst-girl-in-america.html
+
 **As World Cup Begins, Mexico City Becomes a Global Stage**\
 `Supporters of the national team gathered inside and outside Mexico City Stadium for the opening of the games, celebrating the start of a tournament years in the making.`\
 https://www.nytimes.com/2026/06/11/world/americas/world-cup-photos-mexico.html
