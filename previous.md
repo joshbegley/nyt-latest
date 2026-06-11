@@ -26,7 +26,7 @@ https://www.nytimes.com/video/embedded/sports/basketball/100000010959446/10vid-K
 `The wealthy have descended on New York for top basketball, golf and soccer events, and they need prime tickets.`\
 https://www.nytimes.com/2026/06/10/nyregion/knicks-tickets-courtside-concierge.html
 
-**Live Updates: New Yorkers Gather for Knicks Game, Amid Some Frustration**\
+**Live Updates: Knicks Owner Feuds With Mayor Before Game 4**\
 `Hours before Game 4 of the N.B.A. finals, the team’s owner, James Dolan, and Mayor Zohran Mamdani were sparring over who was to blame for the cancellation of a watch party outside Madison Square Garden.`\
 https://www.nytimes.com/live/2026/06/10/nyregion/nba-finals-knicks-spurs
 
@@ -94,13 +94,13 @@ https://www.nytimes.com/2026/06/10/us/politics/latino-voters-democrats-elections
 `Secretary of Defense Pete Hegseth told reporters at MacDill Air Force Base in Tampa, Fla. on Wednesday that “Central Command, will be busy tonight.”`\
 https://www.nytimes.com/video/us/100000010959098/pete-hegseth-strike-iran-wednesday-night.html
 
-**Australia’s Social Media Ban Is Floundering. Can It Still Help Younger Kids?**\
-`Six months in, many teens are already back on platforms they were supposed to be blocked from. The ban’s benefits may fall to the next generation.`\
-https://www.nytimes.com/2026/06/10/world/australia/australia-social-media-ban-under-16.html
-
 **Britain Is Weighing a Social Media Ban for Children. How Did It Get Here?**\
 `Months after Australia banned social media for everyone under 16, the British government is considering new policies to keep children safe online.`\
 https://www.nytimes.com/2026/06/10/world/europe/uk-social-media-ban-under-16.html
+
+**Australia’s Social Media Ban Is Floundering. Can It Still Help Younger Kids?**\
+`Six months in, many teens are already back on platforms they were supposed to be blocked from. The ban’s benefits may fall to the next generation.`\
+https://www.nytimes.com/2026/06/10/world/australia/australia-social-media-ban-under-16.html
 
 **Amtrak Speeds Up Trip From Vancouver to Seattle for World Cup Fans**\
 `Passengers heading from Vancouver, British Columbia, to Seattle will now clear U.S. customs before boarding instead of stopping once they’ve crossed the border.`\

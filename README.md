@@ -115,7 +115,7 @@ https://www.nytimes.com/2026/06/10/pageoneplus/no-corrections-june-11-2026.html
 https://www.nytimes.com/2026/06/10/world/middleeast/trump-oil-iran-strait-hormuz.html
 
 **New York City Can Move Men’s Shelter to East Village, Judge Rules**\
-`The judge had temporarily blocked the plan after residents sued, but she ultimately decided that the city’s argument for the move was reasonable.`\
+`The judge had temporarily blocked the plan after residents sued, but she ultimately decided that the city’s argument for the relocation was reasonable.`\
 https://www.nytimes.com/2026/06/10/nyregion/homeless-men-shelter-east-village.html
 
 **Southern Lights Seen From International Space Station**\
