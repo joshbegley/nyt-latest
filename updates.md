@@ -1,3 +1,15 @@
+**The SpaceX Shareholder at the Helm of a Multibillion-Dollar Payout**\
+`Justin Fishner-Wolfson, long a minor figure in Elon Musk’s orbit, is at the helm of a multibillion-dollar payout.`\
+https://www.nytimes.com/2026/06/11/business/spacex-ipo-137-ventures.html
+
+**These Dense Bean Salads Are Smart**\
+`Long before the TikTok trend, we were mixing up beans, veggies and tangy dressings here at New York Times Cooking.`\
+https://www.nytimes.com/2026/06/11/dining/these-dense-bean-salads-are-smart.html
+
+**¿Cura médica o bebé a medida? Un nuevo estudio sobre la edición de embriones desata el debate**\
+`Los especialistas en fertilidad, las empresas biotecnológicas y los expertos en ética están divididos sobre los avances en la edición genética temprana.`\
+https://www.nytimes.com/es/2026/06/11/espanol/ciencia-y-tecnologia/edicion-embriones-genetica-adn.html
+
 **Gabbard Revokes Biden-Era Assessments on Mysterious Ailments**\
 `Earlier reviews had cast doubt on the idea that a foreign adversary was behind Havana syndrome, a range of symptoms that American spies and diplomats reported.`\
 https://www.nytimes.com/2026/06/11/us/politics/gabbard-havana-syndrome.html
