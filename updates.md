@@ -1,3 +1,11 @@
+**Iran War Live Updates: U.S. and Iran Trade Fresh Attacks**\
+`The continued exchanges of fire have raised fears that the two sides could return to all-out war.`\
+https://www.nytimes.com/live/2026/06/11/world/iran-war-trump-us-israel
+
+**Desi Lydic Does a Spit Take at the Price of Trump’s Gold Coin**\
+`“$12,000? For a coin? Does it come with a used Honda Civic?” Lydic said.`\
+https://www.nytimes.com/2026/06/11/arts/television/late-night-desi-lydic-trump-coin.html
+
 **Word of the Day: dudgeon**\
 `This word has appeared in one article on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/06/11/learning/word-of-the-day-dudgeon.html
