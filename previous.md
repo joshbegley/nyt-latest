@@ -1,3 +1,7 @@
+**2026 World Cup: Hidden FIFA Costs & a USMNT Preview**\
+`And, our top three stories as the tournament begins.`\
+https://www.nytimes.com/2026/06/11/us/2026-world-cup-hidden-fifa-costs-a-usmnt-preview.html
+
 **Postal Service Issues Proposal to Block Mail Ballots in States That Don’t Turn Over Data**\
 `Democrats and voting-rights groups have challenged the proposed rule as a harmful federal intrusion that could affect millions of voters who cast their ballots by mail.`\
 https://www.nytimes.com/2026/06/11/us/politics/usps-mail-voting-democratic-resistance.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/11/climate/world-cup-heat.html
 **Jeff Bezos Wants to Build an ‘Artificial General Engineer’**\
 `As co-chief executive of the start-up Prometheus, the Amazon founder is using A.I. to improve how devices ranging from computers to jet engines are made.`\
 https://www.nytimes.com/2026/06/11/technology/bezos-prometheus-ai-engineer.html
-
-**The Joy of Missing Out on SpaceX’s I.P.O.**\
-`You’re not important or lucky enough to have access to shares at the offering price, and that’s OK. Here’s why.`\
-https://www.nytimes.com/2026/06/11/business/spacex-ipo-investing.html
 
 **Iran War Live Updates: Trump Retracts Latest Threats of More Strikes**\
 `Claiming there was progress in the peace negotiations, President Trump said he had canceled his next wave of planned attacks after two days of U.S. airstrikes.`\

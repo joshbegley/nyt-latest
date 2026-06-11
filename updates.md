@@ -1,3 +1,7 @@
+**2026 World Cup: Hidden FIFA Costs & a USMNT Preview**\
+`And, our top three stories as the tournament begins.`\
+https://www.nytimes.com/2026/06/11/us/2026-world-cup-hidden-fifa-costs-a-usmnt-preview.html
+
 **Postal Service Issues Proposal to Block Mail Ballots in States That Don’t Turn Over Data**\
 `Democrats and voting-rights groups have challenged the proposed rule as a harmful federal intrusion that could affect millions of voters who cast their ballots by mail.`\
 https://www.nytimes.com/2026/06/11/us/politics/usps-mail-voting-democratic-resistance.html
