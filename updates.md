@@ -1,3 +1,7 @@
+**NYT Crossword Answers for June 11, 2026**\
+`Nikhil Bailey’s debut puzzle is a numbers game.`\
+https://www.nytimes.com/2026/06/10/crosswords/daily-puzzle-2026-06-11.html
+
 **U.S. Officials Told Colombia to Cancel President’s Meeting With Mamdani**\
 `The State Department canceled President Gustavo Petro’s visa last year after he attended a pro-Palestinian rally in Manhattan. He had planned to attend a forum led by Mayor Mamdani of New York.`\
 https://www.nytimes.com/2026/06/10/world/americas/mamdani-petro-new-york-colombia-trump.html
