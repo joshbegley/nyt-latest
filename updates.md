@@ -1,3 +1,7 @@
+**The SpaceX Shareholder at the Helm of a Multibillion-Dollar Payout**\
+`Justin Fishner-Wolfson, long a minor figure in Elon Musk’s orbit, is at the helm of a multibillion-dollar payout.`\
+https://www.nytimes.com/2026/06/11/business/spacex-ipo-137-ventures.html
+
 **Alan Hale, Sky Watcher Who Created a Comet Sensation, Dies at 68**\
 `In 1995, he and Thomas Bopp spotted, from different states, the same mysterious object in the sky. What turned out to be a comet was named after them: Hale-Bopp.`\
 https://www.nytimes.com/2026/06/11/science/space/alan-hale-dead.html
