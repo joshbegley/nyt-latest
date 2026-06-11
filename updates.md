@@ -1,3 +1,7 @@
+**13 Civilians Killed in Pakistani Airstrikes in Afghanistan**\
+`Pakistan’s airstrikes on Afghanistan on Wednesday ended a period of calm, threatening a return to what Pakistan previously called an “open war” between the neighbors.`\
+https://www.nytimes.com/video/world/asia/100000010960522/13-civilians-killed-pakistani-airstrikes-in-afghanistan.html
+
 **Absent From the SpaceX and OpenAI I.P.O.s? Chinese Investors.**\
 `SpaceX will not raise money from investors in China and Hong Kong. Others firms, like OpenAI, may follow suit.`\
 https://www.nytimes.com/2026/06/11/business/spacex-openai-ipo-china.html
