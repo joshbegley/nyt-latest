@@ -1,3 +1,11 @@
+**The Researcher Who Decided Not to Know**\
+`Her decades of work on Huntington’s disease helped lead to the creation of a genetic test for the devastating condition. Why didn’t she take it herself?`\
+https://www.nytimes.com/2026/06/11/science/researcher-huntingtons-disease-wexler.html
+
+**The Knicks’ Game 4 Comeback Was Epic. So Was Their Fans’ Response.**\
+`The crowd at Madison Square Garden was forlorn as the New York Knicks fell far behind in Game 4 of the N.B.A. finals. After they won, it was electric.`\
+https://www.nytimes.com/2026/06/11/nyregion/knicks-game-4-fans-nba-finals-nyc.html
+
 **For Painting’s Great Skeptic, Gerhard Richter, History Is a Blur**\
 `Our critic Jason Farago on how the artist conceived a new way forward for landscape painting.`\
 https://www.nytimes.com/2026/06/11/arts/design/gerhard-richter-landschaften-zwirner-close-read.html

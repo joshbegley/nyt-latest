@@ -1,3 +1,7 @@
+**The Researcher Who Decided Not to Know**\
+`Her decades of work on Huntington’s disease helped lead to the creation of a genetic test for the devastating condition. Why didn’t she take it herself?`\
+https://www.nytimes.com/2026/06/11/science/researcher-huntingtons-disease-wexler.html
+
 **For Painting’s Great Skeptic, Gerhard Richter, History Is a Blur**\
 `Our critic Jason Farago on how the artist conceived a new way forward for landscape painting.`\
 https://www.nytimes.com/2026/06/11/arts/design/gerhard-richter-landschaften-zwirner-close-read.html
@@ -55,7 +59,7 @@ https://www.nytimes.com/2026/06/11/crosswords/strands-sidekick-831.html
 https://www.nytimes.com/2026/06/11/crosswords/wordle-review-1819.html
 
 **The Knicks’ Game 4 Comeback Was Epic. So Was Their Fans’ Response.**\
-`The crowd at Madison xSquare Garden was forlorn as the New York Knicks fell far behind in Game 4 of the N.B.A. finals. After they won, it was electric.`\
+`The crowd at Madison Square Garden was forlorn as the New York Knicks fell far behind in Game 4 of the N.B.A. finals. After they won, it was electric.`\
 https://www.nytimes.com/2026/06/11/nyregion/knicks-game-4-fans-nba-finals-nyc.html
 
 **America Signed Up for the World Cup. FIFA Stuck You With the Tab.**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/11/magazine/ultraprocessed-food-insult.html
 **How to File a Travel Insurance Claim**\
 `The process involves attention to detail and, above all, documentation. Here’s what you need to know.`\
 https://www.nytimes.com/2026/06/11/travel/how-to-file-a-travel-insurance-claim.html
-
-**‘Honeyjoon’ Review: Island Healing**\
-`In this strange, sensual dramedy, a lusty 20-something and her grieving Persian-British mother travel to an island resort meant for honeymooners.`\
-https://www.nytimes.com/2026/06/11/movies/honeyjoon-review.html
 
