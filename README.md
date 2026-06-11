@@ -155,7 +155,7 @@ https://www.nytimes.com/2026/06/11/nyregion/knicks-game-4-fans-nba-finals-nyc.ht
 https://www.nytimes.com/2026/06/11/podcasts/america-signed-up-for-the-world-cup-fifa-stuck-you-with-the-tab.html
 
 **Millions Across the Midwest and Northeast Face Severe Storms on Thursday**\
-`More than 100 million people from Texas to New England live in areas that could face dangerous weather on Thursday.`\
+`Chicago is in the bull’s-eye of the areas facing severe weather on Thursday, but the storm forecast is widespread.`\
 https://www.nytimes.com/2026/06/11/weather/chicago-new-york-northeast-storms-minnesota.html
 
 **Mundial en México: las protestas podrían interrumpir la ceremonia de inauguración**\
