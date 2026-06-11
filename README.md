@@ -1,3 +1,7 @@
+**William Coupon, Who Wanted to ‘Photograph Everyone in the World,’ Dies at 73**\
+`Self-taught, he became a go-to portraitist for politicians, rock stars and other celebrities. He also documented Indigenous people and inmates on death row.`\
+https://www.nytimes.com/2026/06/11/arts/design/william-coupon-dead.html
+
 **El papa León bendice la Sagrada Familia. Para algunos, la basílica es una maldición**\
 `El pontífice celebró una misa en la emblemática obra inconclusa de Antoni Gaudí durante su viaje a España. Pero para algunos barceloneses, el final de la construcción podría significar perder sus casas.`\
 https://www.nytimes.com/es/2026/06/11/espanol/mundo/sagrada-familia-papa.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/11/business/aca-health-care-costs-medical-debt.h
 **La guerra en Ucrania ya dura más que la Primera Guerra Mundial**\
 `Abundan los paralelismos entre ambas guerras, desde el carácter agotador de los combates hasta la forma en que las nuevas tecnologías han transformado la batalla.`\
 https://www.nytimes.com/es/2026/06/11/espanol/mundo/ucrania-rusia-primera-guerra-mundial.html
-
-**‘Doctor Who’ Is in Limbo. What Does That Mean for Fans?**\
-`The BBC said there would be no Christmas special this year and is looking for a production company to take on the sci-fi classic. Followers have already dubbed this uncertain period “the Wilderness Years 2.0.”`\
-https://www.nytimes.com/2026/06/11/arts/doctor-who-christmas-special.html
 
 **Iran War Live Updates: Trump Retracts Latest Threats of More Strikes**\
 `Claiming there was progress in the peace negotiations, President Trump said he had canceled his next wave of planned attacks after two days of U.S. airstrikes.`\

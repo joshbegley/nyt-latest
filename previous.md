@@ -1,6 +1,22 @@
+**El papa León bendice la Sagrada Familia. Para algunos, la basílica es una maldición**\
+`El pontífice celebró una misa en la emblemática obra inconclusa de Antoni Gaudí durante su viaje a España. Pero para algunos barceloneses, el final de la construcción podría significar perder sus casas.`\
+https://www.nytimes.com/es/2026/06/11/espanol/mundo/sagrada-familia-papa.html
+
+**Trump Picks Jay Clayton for Director of National Intelligence After Backlash Over Bill Pulte**\
+`Lawmakers had pressed the president to find someone besides Bill Pulte, the Trump ally who was the president’s interim choice but lacked experience.`\
+https://www.nytimes.com/2026/06/11/us/politics/trump-jay-clayton-intelligence-chief.html
+
+**Laverne Cox Broke Up With Her Boyfriend Over Trump**\
+`The Netflix star tells Anna Martin, host of the “Modern Love” podcast, about her complicated relationship.`\
+https://www.nytimes.com/video/podcasts/100000010960977/laverne-cox-broke-up-with-her-boyfriend-over-trump.html
+
+**‘Vegas’ on the South Lawn: Trump Unveils the U.F.C. ‘Claw’**\
+`The towering claw will be the site of an Ultimate Fighting Championship cage match on Sunday, which is President Trump’s 80th birthday.`\
+https://www.nytimes.com/2026/06/11/us/politics/trump-ufc-claw-white-house.html
+
 **Nobody Drinks Bordeaux in Bordeaux**\
 `In restaurants and wine bars in Bordeaux, plenty of other wines are open, but few bottles of the local product. Why? It’s complicated.`\
-https://www.nytimes.com/2026/06/11/dining/drinks/nobody-drinks-bordeaux-in-bordeaux.html
+https://www.nytimes.com/2026/06/11/dining/drinks/bordeaux-wine.html
 
 **Laverne Cox Always Knew She’d Be a Star**\
 `The Netflix star tells Anna Martin, host of the “Modern Love” podcast, about how she overcame childhood bullying.`\
@@ -177,22 +193,6 @@ https://www.nytimes.com/es/2026/06/11/espanol/mundo/ucrania-rusia-primera-guerra
 **‘Doctor Who’ Is in Limbo. What Does That Mean for Fans?**\
 `The BBC said there would be no Christmas special this year and is looking for a production company to take on the sci-fi classic. Followers have already dubbed this uncertain period “the Wilderness Years 2.0.”`\
 https://www.nytimes.com/2026/06/11/arts/doctor-who-christmas-special.html
-
-**Duane Michals, Artist of Wit and Courage**\
-`Our conversations over the years were, at times, philosophical, metaphysical, honest about the daily circumstances of our lives, and dishy, a photography critic says, as he looks back.`\
-https://www.nytimes.com/2026/06/11/arts/design/duane-michals-artist-of-wit-and-courage.html
-
-**World Bank Warns Iran War Is Slowing Global Growth**\
-`The world economy is weakening as energy prices fuel a new bout of inflation.`\
-https://www.nytimes.com/2026/06/11/business/economy/globa-economy-iran-war.html
-
-**The Researcher Who Didn’t Want to Know**\
-`Her decades of work on Huntington’s disease helped lead to the creation of a genetic test for the devastating condition. Why didn’t she take it herself?`\
-https://www.nytimes.com/2026/06/11/science/researcher-huntingtons-disease-wexler.html
-
-**For Painting’s Great Skeptic, Gerhard Richter, History Is a Blur**\
-`Our critic Jason Farago on how the artist conceived a new way forward for landscape painting.`\
-https://www.nytimes.com/2026/06/11/arts/design/gerhard-richter-landschaften-zwirner-close-read.html
 
 **Iran War Live Updates: Trump Retracts Latest Threats of More Strikes**\
 `Claiming there was progress in the peace negotiations, President Trump said he had canceled his next wave of planned attacks after two days of U.S. airstrikes.`\
