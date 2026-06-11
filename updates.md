@@ -1,3 +1,83 @@
+**Homes for Sale in Manhattan and Brooklyn**\
+`This week’s properties are in Hamilton Heights, Murray Hill and Downtown Brooklyn.`\
+https://www.nytimes.com/2026/06/11/realestate/housing-market-nyc.html
+
+**I was a V.C. Partner. We Can’t Let Silicon Valley Buy Democracy.**\
+`Pro-A.I. groups are spending gobs of cash to influence political campaigns. That’s terrible news for us all.`\
+https://www.nytimes.com/2026/06/11/opinion/silicon-valley-ai-politics.html
+
+**‘Stop! That! Train!’ Review: Gleefully Going Off the Rails**\
+`RuPaul stars as the American president, who must contend with an unfolding transit crisis and drag queens galore as a dangerous storm approaches.`\
+https://www.nytimes.com/2026/06/11/movies/stop-that-train-review.html
+
+**‘Promised Sky’ Review: Living in a State of Uncertainty**\
+`Three women living in Tunisia shelter Kenza, a young girl who survived a shipwreck, while they deal with their own issues.`\
+https://www.nytimes.com/2026/06/11/movies/promised-sky-review.html
+
+**‘O Horizon’ Review: Trying to Skip Pain**\
+`An already unwieldy film feels more queasy when taken in cultural context.`\
+https://www.nytimes.com/2026/06/11/movies/o-horizon-review.html
+
+**‘I Am Frankelda’ Review: Nightmares in Stop-Motion**\
+`An origin story that proves the dark flame of Mexican fantasy is alive and well.`\
+https://www.nytimes.com/2026/06/11/movies/i-am-frankelda-review.html
+
+**‘The Furious’ Review: Action Spectacle Built on Body-Breaking Blows**\
+`Xie Miao and Joe Taslim kick butt and take names in Kenji Tanigaki’s Asian action extravaganza.`\
+https://www.nytimes.com/2026/06/11/movies/the-furious-review.html
+
+**‘Disclosure Day’ Review: Spielberg Plays His Greatest Cosmic Hits**\
+`In a fast-paced sci-fi fantasy, infused with epic intentions and starring Emily Blunt, Josh O’Connor and Colman Domingo, the filmmaker brings the rest of us home.`\
+https://www.nytimes.com/2026/06/11/movies/disclosure-day-review-steven-spielberg.html
+
+**Protests Threaten to Disrupt Mexico City’s World Cup Opening Ceremony**\
+`Unions and other groups plan to demonstrate at the capital’s World Cup stadium, adding tension as the much-watched event begins.`\
+https://www.nytimes.com/2026/06/11/world/americas/world-cup-mexico-city-protests.html
+
+**Broadway Shows Closing Soon: ‘Becky Shaw,’ ‘Giant’ and More**\
+`The final curtain is coming down on two Tony Award-winning performances, a reboot of a 1980s musical and one of the best plays in August Wilson’s American Century Cycle.`\
+https://www.nytimes.com/2026/06/11/arts/broadway-shows-closing-soon-becky-shaw-giant-and-more.html
+
+**How Tesla’s Stock Listing in 2010 Enabled SpaceX’s I.P.O.**\
+`Investors who bought the automaker’s shares in its initial public offering became rich. As a result, many have a deep faith in Elon Musk, the chief executive of Tesla and SpaceX.`\
+https://www.nytimes.com/2026/06/11/business/spacex-tesla-ipo-elon-musk.html
+
+**5 Classical Music Albums You Can Listen to Right Now**\
+`Recordings of songs by Schubert, music by Martyna Basta and symphonies by Martinu are among our selections.`\
+https://www.nytimes.com/2026/06/11/arts/music/best-classical-music-albums-june-2026.html
+
+**Why Mexico’s President Will Not Attend the World Cup Opening Match**\
+`President Claudia Sheinbaum of Mexico plans to intentionally skip the entire tournament, breaking a decades-long tradition of sports diplomacy.`\
+https://www.nytimes.com/2026/06/11/world/americas/mexico-president-sheinbaum-world-cup.html
+
+**In the Protein Era, Even He-Man Is Hawking Supplements**\
+`To promote “Masters of the Universe,” Mattel, the toymaker behind the movie, tapped into one of the hottest trends in health and wellness.`\
+https://www.nytimes.com/2026/06/11/business/he-man-mattel-marketing-protein-supplements.html
+
+**Since When Did Calling Something ‘Ultra’ Become an Insult?**\
+`The prefix has been used as a marketing tactic for decades. But when life feels extreme, it more often means something negative.`\
+https://www.nytimes.com/2026/06/11/magazine/ultraprocessed-food-insult.html
+
+**How to File a Travel Insurance Claim**\
+`The process involves attention to detail and, above all, documentation. Here’s what you need to know.`\
+https://www.nytimes.com/2026/06/11/travel/how-to-file-a-travel-insurance-claim.html
+
+**‘Honeyjoon’ Review: Island Healing**\
+`In this strange, sensual dramedy, a lusty 20-something and her grieving Persian-British mother travel to an island resort meant for honeymooners.`\
+https://www.nytimes.com/2026/06/11/movies/honeyjoon-review.html
+
+**Homes for Sale in New York and New Jersey**\
+`This week’s properties are three-bedroom homes in Freeport, N.Y., and Roseland, N.J.`\
+https://www.nytimes.com/2026/06/11/realestate/homes-for-sale-in-new-york-and-new-jersey.html
+
+**Why It’s Nearly Impossible to Build a Robot Without China**\
+`Building on the country’s electric vehicle industry, Chinese companies are making robot parts at a scale and price point others can’t match.`\
+https://www.nytimes.com/2026/06/11/business/china-robots-humanoid.html
+
+**30 Shows to Watch This Summer**\
+`“The Bear” serves its last course, “Ted Lasso” gets back on the pitch, and Larry David makes a TV show with the Obamas.`\
+https://www.nytimes.com/2026/06/11/arts/television/summer-tv-shows.html
+
 **Israel Set to Rapidly Expand West Bank Settlement**\
 `In a major push, the government is rushing to place temporary housing at about 60 empty sites in the Israeli-occupied West Bank before national elections this fall.`\
 https://www.nytimes.com/2026/06/11/world/middleeast/israel-west-bank-settlements.html
