@@ -22,7 +22,7 @@ https://www.nytimes.com/2026/06/11/world/americas/mexico-city-world-cup.html
 `SpaceX will not raise money from investors in China and Hong Kong. Others firms, like OpenAI, may follow suit.`\
 https://www.nytimes.com/2026/06/11/business/spacex-openai-ipo-china.html
 
-**‘All Men Are Created Equal’ Is Still a Radical Idea**\
+**‘All Men Are Created Equal’? Not Everyone Agrees.**\
 `Our founding creed has always had its critics.`\
 https://www.nytimes.com/2026/06/11/opinion/inequality-musk-thiel-carvalho-billionaires.html
 
@@ -162,8 +162,8 @@ https://www.nytimes.com/2026/06/11/world/middleeast/iran-attacks-kuwait-bahrain-
 `Optimizing. Maya Rudolph. And the New York Knicks.`\
 https://www.nytimes.com/2026/06/11/briefing/today-in-short.html
 
-**Trump Administration Pushes Limits of Election Investigations**\
-`The Justice Department once tried to stay out of state elections, urging caution. It is now pressing forward with claims of fraud as President Trump revives his unfounded assertions that elections cannot be trusted.`\
+**Justice Dept. Pushes Limits of Its Power Over State Elections**\
+`The department once tried to stay out of state elections, urging caution. It is now pressing forward with claims of fraud as President Trump revives his unfounded assertions that elections cannot be trusted.`\
 https://www.nytimes.com/2026/06/11/us/politics/trump-california-vote-elections-investigations.html
 
 **Saag Shrimp Is a Fast and Luscious Dinner**\
