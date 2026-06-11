@@ -1,3 +1,7 @@
+**Orlan’s Face Is Her Canvas, and Her Calling Card**\
+`Orlan transformed herself through plastic surgery in the 1990s for an art project. Now, she is lecturing at the Louvre about changing perceptions of beauty.`\
+https://www.nytimes.com/2026/06/11/arts/design/orlan-louvre-lectures.html
+
 **Can SpaceX Defy A.I. Gravity?**\
 `Elon Musk’s rockets-and-artificial-intelligence company is going public as questions grow over the incredible spending spree taking place in the sector.`\
 https://www.nytimes.com/2026/06/11/business/dealbook/spacex-ipo-ai-spending.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/11/business/china-robots-humanoid.html
 **29 Shows to Watch This Summer**\
 `“The Bear” serves its last course, “Ted Lasso” gets back on the pitch, and Larry David makes a TV show with the Obamas.`\
 https://www.nytimes.com/2026/06/11/arts/television/29-shows-to-watch-this-summer.html
-
-**Sex, Lies and Secrets: A Federal Judge’s Trysts Go Public**\
-`Now, Judge Eleanor Ross’s career and caseload are under scrutiny. And her punishment, a private reprimand, has sparked backlash.`\
-https://www.nytimes.com/2026/06/11/us/eleanor-ross-judge-sex-misconduct.html
 
