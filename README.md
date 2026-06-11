@@ -1,3 +1,11 @@
+**Some States Pull Out of Trump’s ‘Great American State Fair’**\
+`At least four have declined to participate, the latest sign that the national 250th birthday celebration has become a fragmented and partisan affair as the president seeks his imprint.`\
+https://www.nytimes.com/2026/06/11/us/politics/great-american-state-fair.html
+
+**Tornadoes Are Reported in Illinois as Storms Sweep the Midwest**\
+`For the second day in a row, Chicago is in the bull’s-eye of severe weather on Thursday, but the storm forecast is widespread.`\
+https://www.nytimes.com/2026/06/11/weather/chicago-illinois-tornado-storms.html
+
 **Whipsawed Between Fear and Relief, Iranians Hope for War’s End**\
 `In addition to concerns about their safety in the event of another all-out war, many Iranians worry about the country’s economy further collapsing if the conflict remains in limbo.`\
 https://www.nytimes.com/2026/06/11/world/middleeast/iran-war-fear-hope.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/11/us/politics/avril-haines-carnegie-endowment-f
 **Scientists Measure Earth’s Vast Underground Fungal Webs**\
 `With machine learning and a high-resolution imaging robot, scientists measured and mapped the extent of Earth’s carbon circulatory system.`\
 https://www.nytimes.com/2026/06/11/science/ecology-mycorrhizal-fungus.html
-
-**5 New Books We Love This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://www.nytimes.com/2026/06/11/books/review/new-recommended-books.html
-
-**This Is What Joy Looks Like for Knicks Fans**\
-`A thrilling, historic comeback victory in Game 4 of the N.BA. finals sent Madison Square Garden, and the rest of New York City, into a lasting frenzy.`\
-https://www.nytimes.com/2026/06/11/nyregion/knicks-win-celebrations.html
 
