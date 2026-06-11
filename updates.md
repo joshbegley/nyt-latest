@@ -1,3 +1,11 @@
+**Trump and Hegseth Broadcast U.S. Military Strikes Before They Happen**\
+`Commanders do not usually speak publicly about future operations to avoid jeopardizing the mission’s success.`\
+https://www.nytimes.com/2026/06/11/us/politics/trump-hegseth-military-operations.html
+
+**U.S. Strikes on Ships Off Oman Continue After Deaths of Indian Sailors**\
+`Oman’s military has rescued dozens more Indian seafarers from the stricken ships, which the U.S. military said violated its blockade.`\
+https://www.nytimes.com/2026/06/11/world/asia/india-sailors-iran-tanker-ships-us-strikes.html
+
 **Hazardous Temperatures Forecast for Many World Cup Games**\
 `Many of the tournament’s host cities risk hitting dangerous heat levels this year, raising questions about the safety of players and fans.`\
 https://www.nytimes.com/2026/06/11/climate/world-cup-heat.html
