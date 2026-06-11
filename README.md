@@ -34,8 +34,8 @@ https://www.nytimes.com/2026/06/11/technology/spacex-ipo-price.html
 `The Supreme Court “has committed violence against the ways in which ordinary people can have a voice in our system,” says Senator Raphael Warnock, a Democrat from Georgia.`\
 https://www.nytimes.com/video/podcasts/100000010961922/raphael-warnock-we-are-witnessing-an-assault-on-basic-voting-rights.html
 
-**Lorem ipsum dolor sit amet**\
-`summary`\
+**Published in error**\
+`This article was published in error.`\
 https://www.nytimes.com/interactive/2026/06/11/business/box-office-charts.html
 
 **Looking for an Egyptian Sandwich and More Reader Questions**\
