@@ -1,3 +1,11 @@
+**Trump and Hegseth Broadcast U.S. Military Strikes Before They Happen**\
+`Commanders do not usually speak publicly about future operations to avoid jeopardizing the mission’s success.`\
+https://www.nytimes.com/2026/06/11/us/politics/trump-hegseth-military-operations.html
+
+**U.S. Strikes on Ships Off Oman Continue After Deaths of Indian Sailors**\
+`Oman’s military has rescued dozens more Indian seafarers from the stricken ships, which the U.S. military said violated its blockade.`\
+https://www.nytimes.com/2026/06/11/world/asia/india-sailors-iran-tanker-ships-us-strikes.html
+
 **Hazardous Temperatures Forecast for Many World Cup Games**\
 `Many of the tournament’s host cities risk hitting dangerous heat levels this year, raising questions about the safety of players and fans.`\
 https://www.nytimes.com/2026/06/11/climate/world-cup-heat.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/11/movies/o-horizon-review.html
 **‘I Am Frankelda’ Review: Nightmares in Stop-Motion**\
 `An origin story that proves the dark flame of Mexican fantasy is alive and well.`\
 https://www.nytimes.com/2026/06/11/movies/i-am-frankelda-review.html
-
-**‘The Furious’ Review: Action Spectacle Built on Body-Breaking Blows**\
-`Xie Miao and Joe Taslim kick butt and take names in Kenji Tanigaki’s Asian action extravaganza.`\
-https://www.nytimes.com/2026/06/11/movies/the-furious-review.html
-
-**‘Disclosure Day’ Review: Spielberg Plays His Greatest Cosmic Hits**\
-`In a fast-paced sci-fi fantasy, infused with epic intentions and starring Emily Blunt, Josh O’Connor and Colman Domingo, the filmmaker brings the rest of us home.`\
-https://www.nytimes.com/2026/06/11/movies/disclosure-day-review-steven-spielberg.html
 
