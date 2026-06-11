@@ -1,9 +1,21 @@
+**Thunderstorms Send Pounding Rain and High Winds Across Midwest**\
+`The stormy weather impacting areas from Texas to New England is being fueled by a big mass of very warm and moist air that is hovering over the region.`\
+https://www.nytimes.com/video/weather/100000010960899/midwest-thunderstorms-rain-winds.html
+
+**El Niño llega y se espera que se intensifique**\
+`El desarrollo de este patrón meteorológico puede traer intensas inundaciones y olas de calor a lugares que ya enfrentan otros efectos devastadores del calentamiento global.`\
+https://www.nytimes.com/es/2026/06/11/espanol/tiempo-y-clima/el-nino-calor-extremo-lluvias.html
+
+**Summer Challenge: Put Your Phone Away for Better Sleep**\
+`It only takes a few minutes.`\
+https://www.nytimes.com/interactive/2026/06/11/well/summer-challenge-phone-digital-detox-sleep.html
+
 **California Coast Search Ends for 5-Year-Old Girl Swept Away**\
 `The girl was with her mother and a sibling near the shore in Laguna Beach, Calif., on Tuesday when she was pulled into the surf. The forecast called for more dangerous swells this week.`\
 https://www.nytimes.com/2026/06/11/us/laguna-beach-missing-girl-search-ends.html
 
-**SpaceX Sets Milestone With World’s Largest I.P.O., Furthering Musk’s Power**\
-`Elon Musk’s rocket company said it would sell more than 555 million shares at $135 a share in its blockbuster initial public offering, which is set to begin trading on Friday.`\
+**SpaceX Finalizes IPO Price at $135 a Share in World’s Largest Public Offering**\
+`Elon Musk’s rocket company said it would sell more than 555 million shares at $135 each in its blockbuster initial public offering, which is set to begin trading on Friday.`\
 https://www.nytimes.com/2026/06/11/technology/spacex-ipo-price.html
 
 **Raphael Warnock: We Are Witnessing an Assault on Basic Voting Rights**\
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/11/theater/north-star-frederick-douglass-irish-a
 **Iran’s Attacks on Gulf States Underscore Targeted Countries’ Dependence on U.S.**\
 `The targeted countries host sprawling American military bases and thousands of personnel at a time when the United States is waging war against Iran.`\
 https://www.nytimes.com/2026/06/11/world/middleeast/iran-attacks-kuwait-bahrain-gulf-states.html
-
-**Today, In Short**\
-`Optimizing. Maya Rudolph. And the New York Knicks.`\
-https://www.nytimes.com/2026/06/11/briefing/today-in-short.html
-
-**Justice Dept. Pushes Limits of Its Power Over State Elections**\
-`The department once tried to stay out of state elections, urging caution. It is now pressing forward with claims of fraud as President Trump revives his unfounded assertions that elections cannot be trusted.`\
-https://www.nytimes.com/2026/06/11/us/politics/trump-california-vote-elections-investigations.html
-
-**Saag Shrimp Is a Fast and Luscious Dinner**\
-`That’s just one of many reader raves for Yewande Komolafe’s saag shrimp, a bright dinner that comes together in less than an hour.`\
-https://www.nytimes.com/2026/06/11/dining/this-is-one-of-the-most-delicious-recipes-ive-made-in-a-long-time.html
 
