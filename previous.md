@@ -67,7 +67,7 @@ https://www.nytimes.com/video/podcasts/100000010960977/laverne-cox-broke-up-with
 https://www.nytimes.com/2026/06/11/us/politics/trump-ufc-claw-white-house.html
 
 **Nobody Drinks Bordeaux in Bordeaux**\
-`In restaurants and wine bars in Bordeaux, plenty of other wines are open, but few bottles of the local product. Why? It’s complicated.`\
+`In restaurants and wine bars in Bordeaux, plenty of other wines are open, but few bottles of the local product. Why?`\
 https://www.nytimes.com/2026/06/11/dining/drinks/bordeaux-wine.html
 
 **Laverne Cox Always Knew She’d Be a Star**\

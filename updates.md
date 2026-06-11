@@ -1,3 +1,7 @@
+**Nobody Drinks Bordeaux in Bordeaux**\
+`In restaurants and wine bars in Bordeaux, plenty of other wines are open, but few bottles of the local product. Why?`\
+https://www.nytimes.com/2026/06/11/dining/drinks/bordeaux-wine.html
+
 **Slayyyter Sees No Use For ‘Taste Peacocking’ In Pop**\
 `Slayyyter became one of 2026’s breakout pop stars with the release of her third album, “Worst Girl in America,” and a viral Coachella set. On “Popcast,” she shares her thoughts on why, as Lady Gaga once said, loving pop music will never be “low brow.”`\
 https://www.nytimes.com/video/podcasts/100000010961733/slayyyter-sees-no-use-for-taste-peacocking-in-pop.html
