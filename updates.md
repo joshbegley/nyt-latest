@@ -1,3 +1,7 @@
+**Trump’s Plaques on the Presidential ‘Walk of Fame,’ Fact-Checked and Annotated by Historians**\
+`President Trump’s ‘Walk of Fame’ has an unreliable narrator. We asked eight historians what they thought.`\
+https://www.nytimes.com/interactive/2026/06/10/us/politics/trump-president-plaques-white-house.html
+
 **Analysis of Satellite Image and Videos Suggest Precision U.S. Strikes on Iranian Water Facility**\
 `It is unclear if the U.S. intentionally struck the facility or knew what it was. Deliberately targeting civilian infrastructure could constitute a war crime.`\
 https://www.nytimes.com/2026/06/10/world/middleeast/precision-strike-iran-water.html
