@@ -1,3 +1,11 @@
+**Taylor Swift and Haim Sisters Appear at MSG for Knicks Game**\
+`The musician, who is believed to be planning a wedding in the city, showed up in a musical take on Knicks gear.`\
+https://www.nytimes.com/2026/06/10/style/taylor-swift-msg-knicks.html
+
+**Burning Cross Is Found in Downtown Chicago Park**\
+`No one was injured by the burning cross, which was found in Grant Park, the authorities said. The police and the F.B.I. are investigating.`\
+https://www.nytimes.com/2026/06/10/us/burning-cross-chicago-grant-park.html
+
 **New York City Can Move Men’s Shelter to East Village, Judge Rules**\
 `The judge had temporarily blocked the plan after residents sued, but she ultimately decided that the city’s argument for the relocation was reasonable.`\
 https://www.nytimes.com/2026/06/10/nyregion/homeless-men-shelter-east-village.html
