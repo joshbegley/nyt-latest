@@ -1,3 +1,11 @@
+**Taylor Swift and Haim Sisters Appear at MSG for Knicks Game**\
+`The musician, who is believed to be planning a wedding in the city, showed up in a musical take on Knicks gear.`\
+https://www.nytimes.com/2026/06/10/style/taylor-swift-msg-knicks.html
+
+**Burning Cross Is Found in Downtown Chicago Park**\
+`No one was injured by the burning cross, which was found in Grant Park, the authorities said. The police and the F.B.I. are investigating.`\
+https://www.nytimes.com/2026/06/10/us/burning-cross-chicago-grant-park.html
+
 **Bill Gates dice que Epstein intentó usar sus aventuras extramatrimoniales en su contra**\
 `El filántropo multimillonario testificó el miércoles en una audiencia a puerta cerrada del Congreso de EE. UU. sobre la investigación del Departamento de Justicia sobre Jeffrey Epstein.`\
 https://www.nytimes.com/es/2026/06/10/espanol/negocios/bill-gates-epstein-infidelidad.html
@@ -94,13 +102,13 @@ https://www.nytimes.com/2026/06/10/us/politics/latino-voters-democrats-elections
 `Secretary of Defense Pete Hegseth told reporters at MacDill Air Force Base in Tampa, Fla. on Wednesday that “Central Command, will be busy tonight.”`\
 https://www.nytimes.com/video/us/100000010959098/pete-hegseth-strike-iran-wednesday-night.html
 
-**Britain Is Weighing a Social Media Ban for Children. How Did It Get Here?**\
-`Months after Australia banned social media for everyone under 16, the British government is considering new policies to keep children safe online.`\
-https://www.nytimes.com/2026/06/10/world/europe/uk-social-media-ban-under-16.html
-
 **Australia’s Social Media Ban Is Floundering. Can It Still Help Younger Kids?**\
 `Six months in, many teens are already back on platforms they were supposed to be blocked from. The ban’s benefits may fall to the next generation.`\
 https://www.nytimes.com/2026/06/10/world/australia/australia-social-media-ban-under-16.html
+
+**Britain Is Weighing a Social Media Ban for Children. How Did It Get Here?**\
+`Months after Australia banned social media for everyone under 16, the British government is considering new policies to keep children safe online.`\
+https://www.nytimes.com/2026/06/10/world/europe/uk-social-media-ban-under-16.html
 
 **Amtrak Speeds Up Trip From Vancouver to Seattle for World Cup Fans**\
 `Passengers heading from Vancouver, British Columbia, to Seattle will now clear U.S. customs before boarding instead of stopping once they’ve crossed the border.`\
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/06/10/world/middleeast/us-iran-strikes.html
 **Hong Kong Files Charges Over Fire That Killed 168 People**\
 `The Hong Kong government announced on Wednesday that it charged seven people and two companies following an investigation into the deadly fire at the Wang Fuk Court apartment complex in November 2025.`\
 https://www.nytimes.com/video/world/asia/100000010958332/hong-kong-apartment-fire-charges.html
-
-**F.B.I. Searches California Plant Where Chemical Tank Nearly Exploded**\
-`Federal agents were looking for records that might shed light on why chemicals overheated, threatening a catastrophe in Orange County.`\
-https://www.nytimes.com/2026/06/10/us/fbi-search-orange-county-chemical-tank.html
-
-**Hundreds of Kenyans Protest U.S. Ebola Unit**\
-`Protesters opposed an Ebola quarantine facility in Kenya on Tuesday that would be reserved exclusively for U.S. citizens.`\
-https://www.nytimes.com/video/world/africa/100000010957717/us-ebola-quarantine-unit-protest-kenya.html
 
 **World Cup Updates: U.S. Immigration Policies Turn Some Fans and Participants Away**\
 `(No description)`\
