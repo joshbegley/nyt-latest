@@ -1,3 +1,19 @@
+**New York City Leaders Propose Building More Homes on Top of Libraries**\
+`Julie Menin, the City Council speaker, unveiled plans for three projects combining affordable housing developments and library renovations. It is part of a nationwide trend.`\
+https://www.nytimes.com/2026/06/11/nyregion/nyc-libraries-affordable-housing-menin.html
+
+**City Council Calls for Tighter Review of N.Y.C. School System Contracts**\
+`The chancellor of the city’s schools, Kamar Samuels, is being investigated over a $180,000 no-bid deal dating to his previous role.`\
+https://www.nytimes.com/2026/06/11/nyregion/nyc-schools-chancellor-contract-investigation.html
+
+**The Mystery Artist Filling Subway Ad Space With Whimsy**\
+`Sue Sarah Gilbert, a Rockefeller descendant in Seattle, raised $1 million to place her drawings in New York City stations.`\
+https://www.nytimes.com/2026/06/11/nyregion/nyc-subway-art-susan-bird.html
+
+**NYT Spelling Bee Answers for June 11, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/11/crosswords/spelling-bee-forum.html
+
 **Iran War Live Updates: U.S. and Iran Trade Fresh Attacks**\
 `The continued exchanges of fire have raised fears that the two sides could return to all-out war.`\
 https://www.nytimes.com/live/2026/06/11/world/iran-war-trump-us-israel

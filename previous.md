@@ -1,3 +1,19 @@
+**New York City Leaders Propose Building More Homes on Top of Libraries**\
+`Julie Menin, the City Council speaker, unveiled plans for three projects combining affordable housing developments and library renovations. It is part of a nationwide trend.`\
+https://www.nytimes.com/2026/06/11/nyregion/nyc-libraries-affordable-housing-menin.html
+
+**City Council Calls for Tighter Review of N.Y.C. School System Contracts**\
+`The chancellor of the city’s schools, Kamar Samuels, is being investigated over a $180,000 no-bid deal dating to his previous role.`\
+https://www.nytimes.com/2026/06/11/nyregion/nyc-schools-chancellor-contract-investigation.html
+
+**The Mystery Artist Filling Subway Ad Space With Whimsy**\
+`Sue Sarah Gilbert, a Rockefeller descendant in Seattle, raised $1 million to place her drawings in New York City stations.`\
+https://www.nytimes.com/2026/06/11/nyregion/nyc-subway-art-susan-bird.html
+
+**NYT Spelling Bee Answers for June 11, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/11/crosswords/spelling-bee-forum.html
+
 **Iran War Live Updates: U.S. and Iran Trade Fresh Attacks**\
 `The continued exchanges of fire have raised fears that the two sides could return to all-out war.`\
 https://www.nytimes.com/live/2026/06/11/world/iran-war-trump-us-israel
@@ -177,20 +193,4 @@ https://www.nytimes.com/2026/06/10/weather/heat-wave-us.html
 **Democrats Try to Move Past ‘Cultural Pandering’ to Latinos for Midterm Elections**\
 `The party is trying desperately to win back some voters in the key swing group.`\
 https://www.nytimes.com/2026/06/10/us/politics/latino-voters-democrats-elections.html
-
-**Hegseth Says U.S. Will Attack Iran Wednesday Night**\
-`Secretary of Defense Pete Hegseth told reporters at MacDill Air Force Base in Tampa, Fla. on Wednesday that “Central Command, will be busy tonight.”`\
-https://www.nytimes.com/video/us/100000010959098/pete-hegseth-strike-iran-wednesday-night.html
-
-**Australia’s Social Media Ban Is Floundering. Can It Still Help Younger Kids?**\
-`Six months in, many teens are already back on platforms they were supposed to be blocked from. The ban’s benefits may fall to the next generation.`\
-https://www.nytimes.com/2026/06/10/world/australia/australia-social-media-ban-under-16.html
-
-**Britain Is Weighing a Social Media Ban for Children. How Did It Get Here?**\
-`Months after Australia banned social media for everyone under 16, the British government is considering new policies to keep children safe online.`\
-https://www.nytimes.com/2026/06/10/world/europe/uk-social-media-ban-under-16.html
-
-**Amtrak Speeds Up Trip From Vancouver to Seattle for World Cup Fans**\
-`Passengers heading from Vancouver, British Columbia, to Seattle will now clear U.S. customs before boarding instead of stopping once they’ve crossed the border.`\
-https://www.nytimes.com/2026/06/10/travel/amtrak-vancouver-seattle-world-cup.html
 
