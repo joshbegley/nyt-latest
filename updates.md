@@ -1,3 +1,7 @@
+**A Fractured North America Begins a Historic World Cup**\
+`Mexico and Canada have faced significant recent tension in their relations with the United States. But in their historic World Cup bid, the three countries promoted teamwork.`\
+https://www.nytimes.com/2026/06/11/world/americas/world-cup-fractured-north-america.html
+
 **With Inflation Bearing Down, Europe Is Facing Higher Interest Rates**\
 `The European Central Bank is set to raise rates, the first such move since September 2023, as energy disruptions caused by the Iran war drive higher prices.`\
 https://www.nytimes.com/2026/06/11/business/european-central-bank-inflation-interest-rates.html
