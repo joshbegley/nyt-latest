@@ -1,3 +1,7 @@
+**Microsoft C.E.O. Satya Nadella Says ‘Everyone Is a Stakeholder’ in A.I.**\
+`At The New York Times’s Hard Fork Live event, Mr. Nadella addressed the backlash against artificial intelligence and President Trump’s comments about Americans sharing in the wealth of A.I. companies`\
+https://www.nytimes.com/2026/06/10/technology/microsoft-satya-nadella-artificial-intelligence.html
+
 **What’s Love Got to Do With the Movie 'Obsession’? | Cannonball with Wesley Morris**\
 `The hit movie has a troubling take on relationships.`\
 https://www.nytimes.com/2026/06/10/podcasts/whats-love-got-to-do-with-obsession.html
@@ -74,7 +78,7 @@ https://www.nytimes.com/video/embedded/sports/basketball/100000010959446/10vid-K
 `The wealthy have descended on New York for top basketball, golf and soccer events, and they need prime tickets.`\
 https://www.nytimes.com/2026/06/10/nyregion/knicks-tickets-courtside-concierge.html
 
-**Knicks Live Updates: Electric Atmosphere Delivers an Unforgettable Finish**\
+**Live Updates: Knicks Fans Greet Game 4 Win With Chaotic Energy**\
 `Taylor Swift and Timothée Chalamet were among the celebrities celebrating courtside in New York after a record comeback moved the Knicks within a win of a long-awaited N.B.A. title.`\
 https://www.nytimes.com/live/2026/06/10/nyregion/nba-finals-knicks-spurs
 
@@ -142,13 +146,13 @@ https://www.nytimes.com/2026/06/10/us/politics/latino-voters-democrats-elections
 `Secretary of Defense Pete Hegseth told reporters at MacDill Air Force Base in Tampa, Fla. on Wednesday that “Central Command, will be busy tonight.”`\
 https://www.nytimes.com/video/us/100000010959098/pete-hegseth-strike-iran-wednesday-night.html
 
-**Britain Is Weighing a Social Media Ban for Children. How Did It Get Here?**\
-`Months after Australia banned social media for everyone under 16, the British government is considering new policies to keep children safe online.`\
-https://www.nytimes.com/2026/06/10/world/europe/uk-social-media-ban-under-16.html
-
 **Australia’s Social Media Ban Is Floundering. Can It Still Help Younger Kids?**\
 `Six months in, many teens are already back on platforms they were supposed to be blocked from. The ban’s benefits may fall to the next generation.`\
 https://www.nytimes.com/2026/06/10/world/australia/australia-social-media-ban-under-16.html
+
+**Britain Is Weighing a Social Media Ban for Children. How Did It Get Here?**\
+`Months after Australia banned social media for everyone under 16, the British government is considering new policies to keep children safe online.`\
+https://www.nytimes.com/2026/06/10/world/europe/uk-social-media-ban-under-16.html
 
 **Amtrak Speeds Up Trip From Vancouver to Seattle for World Cup Fans**\
 `Passengers heading from Vancouver, British Columbia, to Seattle will now clear U.S. customs before boarding instead of stopping once they’ve crossed the border.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/world/africa/100000010958455/johannesburg-south-af
 **Spencer Pratt’s Defeat Isn’t Just About Los Angeles**\
 `Some of America’s largest cities are now being governed by progressives. What will we learn?`\
 https://www.nytimes.com/2026/06/10/opinion/los-angeles-pratt-mayor-election.html
-
-**Ernest Chambers, ‘Smothers Brothers’ TV Show Producer, Dies at 97**\
-`In the late 1960s, he and Saul Ilson oversaw a variety show known for its social and political satire, and together they helped fight network censors over its content.`\
-https://www.nytimes.com/2026/06/10/arts/television/ernest-chambers-dead.html
 

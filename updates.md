@@ -1,3 +1,7 @@
+**Knicks Live Updates: Electric Atmosphere Delivers an Unforgettable Finish**\
+`Taylor Swift and Timothée Chalamet were among the celebrities celebrating courtside in New York after a record comeback moved the Knicks within a win of a long-awaited N.B.A. title.`\
+https://www.nytimes.com/live/2026/06/10/nyregion/nba-finals-knicks-spurs
+
 **Knicks Live Updates: An Electric Atmosphere Delivers an Unforgettable Finish**\
 `Taylor Swift was among the celebrities sitting courtside in New York for a record comeback, moving the Knicks within a win of a long-awaited N.B.A. title.`\
 https://www.nytimes.com/live/2026/06/10/nyregion/nba-finals-knicks-spurs
