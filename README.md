@@ -1,3 +1,11 @@
+**Hazardous Temperatures Forecast for Many World Cup Games**\
+`Many of the tournament’s host cities risk hitting dangerous heat levels this year, raising questions about the safety of players and fans.`\
+https://www.nytimes.com/2026/06/11/climate/world-cup-heat.html
+
+**Jeff Bezos Wants to Build an ‘Artificial General Engineer’**\
+`As co-chief executive of the start-up Prometheus, the Amazon founder is using A.I. to improve how devices ranging from computers to jet engines are made.`\
+https://www.nytimes.com/2026/06/11/technology/bezos-prometheus-ai-engineer.html
+
 **The Joy of Missing Out on SpaceX’s I.P.O.**\
 `You’re not important or lucky enough to have access to shares at the offering price, and that’s OK. Here’s why.`\
 https://www.nytimes.com/2026/06/11/business/spacex-ipo-investing.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/11/movies/the-furious-review.html
 **‘Disclosure Day’ Review: Spielberg Plays His Greatest Cosmic Hits**\
 `In a fast-paced sci-fi fantasy, infused with epic intentions and starring Emily Blunt, Josh O’Connor and Colman Domingo, the filmmaker brings the rest of us home.`\
 https://www.nytimes.com/2026/06/11/movies/disclosure-day-review-steven-spielberg.html
-
-**Protests Threaten to Disrupt Mexico City’s World Cup Opening Ceremony**\
-`Unions and other groups plan to demonstrate at the capital’s World Cup stadium, adding tension as the much-watched event begins.`\
-https://www.nytimes.com/2026/06/11/world/americas/world-cup-mexico-city-protests.html
-
-**Broadway Shows Closing Soon: ‘Becky Shaw,’ ‘Giant’ and More**\
-`The final curtain is coming down on two Tony Award-winning performances, a reboot of a 1980s musical and one of the best plays in August Wilson’s American Century Cycle.`\
-https://www.nytimes.com/2026/06/11/arts/broadway-shows-closing-soon-becky-shaw-giant-and-more.html
 
