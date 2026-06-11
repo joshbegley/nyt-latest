@@ -1,3 +1,11 @@
+**Workers at Washington Paper Mill Died of Chemical Burns**\
+`The coroner of Cowlitz County confirmed the cause of death of 10 of the 11 workers who perished last month in the worst industrial accident in the state’s modern history.`\
+https://www.nytimes.com/2026/06/11/us/cause-of-death-washington-paper-mill-explosion.html
+
+**Mamdani Finds a Foil Familiar to New Yorkers: James Dolan**\
+`Mr. Dolan, the owner of the New York Knicks, began a public feud with Mayor Zohran Mamdani with his team on the verge of an N.B.A. title.`\
+https://www.nytimes.com/2026/06/11/nyregion/mamdani-dolan-knicks-feud.html
+
 **Thunderstorms Send Pounding Rain and High Winds Across Midwest**\
 `The stormy weather impacting areas from Texas to New England is being fueled by a big mass of very warm and moist air that is hovering over the region.`\
 https://www.nytimes.com/video/weather/100000010960899/midwest-thunderstorms-rain-winds.html

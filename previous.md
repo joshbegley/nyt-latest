@@ -1,3 +1,11 @@
+**Workers at Washington Paper Mill Died of Chemical Burns**\
+`The coroner of Cowlitz County confirmed the cause of death of 10 of the 11 workers who perished last month in the worst industrial accident in the state’s modern history.`\
+https://www.nytimes.com/2026/06/11/us/cause-of-death-washington-paper-mill-explosion.html
+
+**Mamdani Finds a Foil Familiar to New Yorkers: James Dolan**\
+`Mr. Dolan, the owner of the New York Knicks, began a public feud with Mayor Zohran Mamdani with his team on the verge of an N.B.A. title.`\
+https://www.nytimes.com/2026/06/11/nyregion/mamdani-dolan-knicks-feud.html
+
 **Thunderstorms Send Pounding Rain and High Winds Across Midwest**\
 `The stormy weather impacting areas from Texas to New England is being fueled by a big mass of very warm and moist air that is hovering over the region.`\
 https://www.nytimes.com/video/weather/100000010960899/midwest-thunderstorms-rain-winds.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/11/us/dallas-city-hall-relocation.html
 **Vance Boelter Pleads Guilty in Assassination of Minnesota Lawmaker**\
 `Federal prosecutors said they would not seek the death penalty for Vance Boelter, who still faces charges in state court.`\
 https://www.nytimes.com/2026/06/11/us/minnesota-assassination-plea-hearing-hortman.html
-
-**‘North Star’ Explores Frederick Douglass’s Ties to Ireland**\
-`Hunted by slavers, the abolitionist escaped briefly to Britain and Ireland. A new show at the Irish Arts Center combines his speeches with performances by local students.`\
-https://www.nytimes.com/2026/06/11/theater/north-star-frederick-douglass-irish-arts-center.html
-
-**Iran’s Attacks on Gulf States Underscore Targeted Countries’ Dependence on U.S.**\
-`The targeted countries host sprawling American military bases and thousands of personnel at a time when the United States is waging war against Iran.`\
-https://www.nytimes.com/2026/06/11/world/middleeast/iran-attacks-kuwait-bahrain-gulf-states.html
 
