@@ -1,3 +1,7 @@
+**Desi Lydic Does a Spit Take at the Price of Trump’s Gold Coin**\
+`“$12,000? For a coin? Does it come with a used Honda Civic?” Lydic said.`\
+https://www.nytimes.com/2026/06/11/arts/television/late-night-desi-lydic-trump-coin.html
+
 **Word of the Day: dudgeon**\
 `This word has appeared in one article on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/06/11/learning/word-of-the-day-dudgeon.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/10/travel/amtrak-vancouver-seattle-world-cup.htm
 **No Corrections: June 11, 2026**\
 `No corrections appeared in print on Thursday, June 11, 2026.`\
 https://www.nytimes.com/2026/06/10/pageoneplus/no-corrections-june-11-2026.html
-
-**Trump’s ‘Secret Mission’ to Ferry Oil Past Iran Was Widely Disclosed**\
-`A U.S. military official said the president’s seemingly dramatic announcement on Wednesday referred to a previously reported effort to shepherd commercial vessels through the Strait of Hormuz.`\
-https://www.nytimes.com/2026/06/10/world/middleeast/trump-oil-iran-strait-hormuz.html
 

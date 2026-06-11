@@ -1,3 +1,7 @@
+**Word of the Day: dudgeon**\
+`This word has appeared in one article on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/06/11/learning/word-of-the-day-dudgeon.html
+
 **Knicks Fans Greet Game 4 Win With Chaotic Energy**\
 `Taylor Swift and Timothée Chalamet were among the celebrities celebrating courtside in New York after a record comeback moved the Knicks within a win of a long-awaited N.B.A. title.`\
 https://www.nytimes.com/live/2026/06/10/nyregion/nba-finals-knicks-spurs

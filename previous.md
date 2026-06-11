@@ -1,3 +1,7 @@
+**Word of the Day: dudgeon**\
+`This word has appeared in one article on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/06/11/learning/word-of-the-day-dudgeon.html
+
 **Nadie gana en la guerra en Medio Oriente**\
 `Ninguno de los que han participado en las guerras recientes en Medio Oriente puede declararse vencedor. Todos son culpables.`\
 https://www.nytimes.com/es/2026/06/11/espanol/opinion/guerra-iran-estados-unidos-israel.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/10/pageoneplus/no-corrections-june-11-2026.html
 **Trump’s ‘Secret Mission’ to Ferry Oil Past Iran Was Widely Disclosed**\
 `A U.S. military official said the president’s seemingly dramatic announcement on Wednesday referred to a previously reported effort to shepherd commercial vessels through the Strait of Hormuz.`\
 https://www.nytimes.com/2026/06/10/world/middleeast/trump-oil-iran-strait-hormuz.html
-
-**New York City Can Move Men’s Shelter to East Village, Judge Rules**\
-`The judge had temporarily blocked the plan after residents sued, but she ultimately decided that the city’s argument for the relocation was reasonable.`\
-https://www.nytimes.com/2026/06/10/nyregion/homeless-men-shelter-east-village.html
 
