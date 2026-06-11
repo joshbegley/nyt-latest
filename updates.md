@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/nyregion/100000010960590/11vid-knicks-carousel-13558.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/nyregion/100000010960670/11vid-knicks-carousel-8704.html
+
 **Trump Makes New Threats After U.S. and Iran Exchange Fresh Strikes**\
 `President Trump has vowed to keep up military pressure on Iran after the latest exchange of overnight attacks.`\
 https://www.nytimes.com/video/world/middleeast/100000010960555/trump-makes-new-threats-after-us-and-iran-exchange-fresh-strikes.html
