@@ -1,3 +1,11 @@
+**Today, In Short**\
+`Optimizing. Maya Rudolph. And the New York Knicks.`\
+https://www.nytimes.com/2026/06/11/briefing/today-in-short.html
+
+**Trump Administration Pushes Limits of Election Investigations**\
+`The Justice Department once tried to stay out of state elections, urging caution. It is now pressing forward with claims of fraud as President Trump revives his unfounded assertions that elections cannot be trusted.`\
+https://www.nytimes.com/2026/06/11/us/politics/trump-california-vote-elections-investigations.html
+
 **Saag Shrimp Is a Fast and Luscious Dinner**\
 `That’s just one of many reader raves for Yewande Komolafe’s saag shrimp, a bright dinner that comes together in less than an hour.`\
 https://www.nytimes.com/2026/06/11/dining/this-is-one-of-the-most-delicious-recipes-ive-made-in-a-long-time.html
