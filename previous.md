@@ -1,3 +1,15 @@
+**Mundial en México: las protestas podrían interrumpir la ceremonia de inauguración**\
+`Sindicatos y otros grupos que representan a maestros, familias de víctimas de la violencia, jueces y otros sectores están aprovechando la atención mediática que el Mundial brindará al país.`\
+https://www.nytimes.com/es/2026/06/11/espanol/america-latina/mexico-mundial-protestas-inauguracion-partido.html
+
+**Un Mundial histórico arranca en una Norteamérica dividida**\
+`México y Canadá han atravesado una tensión significativa en sus relaciones con Estados Unidos. Sin embargo, en su histórica candidatura para la Copa del Mundo, los tres países promovieron el trabajo en equipo.`\
+https://www.nytimes.com/es/2026/06/11/espanol/america-latina/mundial-futbol-inicio-canada-mexico-eeuu.html
+
+**La Copa Mundial arranca con una ausencia notable: la presidenta de México**\
+`Su lugar en el partido inaugural lo ocupará Yolett Cervantes Cuaquehua, una joven de una comunidad indígena que ganó un concurso organizado por el gobierno del país.`\
+https://www.nytimes.com/es/2026/06/11/espanol/america-latina/mexico-mundial-boleto-sheinbaum.html
+
 **Better Sex, Better Hair, Better Sleep: ‘Humanmaxxing’ Is Here**\
 `The biotech billionaire who wants to rebuild your body and blow your mind.`\
 https://www.nytimes.com/2026/06/11/opinion/biotech-maxxing-christian-angermayer.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/video/world/middleeast/100000010959783/us-iran-exchange-
 **Inside the Knicks’ Historic Comeback to Take Game 4 of the N.B.A. Finals**\
 `Hear instant reaction to the New York Knicks’ win over the San Antonio Spurs.`\
 https://www.nytimes.com/2026/06/11/podcasts/knicks-spurs-nba-finals-game-4.html
-
-**‘Amazon.com of South Korea’ Is Fined a Record $409 Million**\
-`South​ Korea​’s regulatory investigation of Coupang, an e-commerce giant incorporated in the United States, has led to diplomatic tension between Seoul and Washington.`\
-https://www.nytimes.com/2026/06/11/world/asia/south-korea-coupang-fine.html
-
-**World Cup Kicks Off in Mexico**\
-`The 2026 FIFA World Cup begins on Thursday with a match between Mexico and South Africa. The tournament takes place in three countries: the United States, Mexico and Canada.`\
-https://www.nytimes.com/video/sports/100000010959727/fifa-world-cup-mexico.html
-
-**Knicks Fans Rejoice After Game 4 Victory**\
-`Fans and celebrities, including Taylor Swift and Timothée Chalamet, celebrated after the Knicks’ record comeback to win Game 4 of the N.B.A finals.`\
-https://www.nytimes.com/video/nyregion/100000010959882/knicks-nba-comeback-fans.html
 

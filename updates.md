@@ -1,3 +1,15 @@
+**Mundial en México: las protestas podrían interrumpir la ceremonia de inauguración**\
+`Sindicatos y otros grupos que representan a maestros, familias de víctimas de la violencia, jueces y otros sectores están aprovechando la atención mediática que el Mundial brindará al país.`\
+https://www.nytimes.com/es/2026/06/11/espanol/america-latina/mexico-mundial-protestas-inauguracion-partido.html
+
+**Un Mundial histórico arranca en una Norteamérica dividida**\
+`México y Canadá han atravesado una tensión significativa en sus relaciones con Estados Unidos. Sin embargo, en su histórica candidatura para la Copa del Mundo, los tres países promovieron el trabajo en equipo.`\
+https://www.nytimes.com/es/2026/06/11/espanol/america-latina/mundial-futbol-inicio-canada-mexico-eeuu.html
+
+**La Copa Mundial arranca con una ausencia notable: la presidenta de México**\
+`Su lugar en el partido inaugural lo ocupará Yolett Cervantes Cuaquehua, una joven de una comunidad indígena que ganó un concurso organizado por el gobierno del país.`\
+https://www.nytimes.com/es/2026/06/11/espanol/america-latina/mexico-mundial-boleto-sheinbaum.html
+
 **Better Sex, Better Hair, Better Sleep: ‘Humanmaxxing’ Is Here**\
 `The biotech billionaire who wants to rebuild your body and blow your mind.`\
 https://www.nytimes.com/2026/06/11/opinion/biotech-maxxing-christian-angermayer.html
