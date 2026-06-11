@@ -1,3 +1,11 @@
+**What’s Love Got to Do With the Movie 'Obsession’? | Cannonball with Wesley Morris**\
+`The hit movie has a troubling take on relationships.`\
+https://www.nytimes.com/2026/06/10/podcasts/whats-love-got-to-do-with-obsession.html
+
+**What’s Love Got to Do With Obsession?**\
+`Wesley Morris and pop culture critic Angelica Jade Bastièn discuss the hit horror movie “Obsession”’and what it says about relationships today.`\
+https://www.nytimes.com/video/podcasts/100000010952396/whats-love-got-to-do-with-obsession.html
+
 **They Know About Loss. They’re Rooting for a Knicks Win.**\
 `Inspired by the words of Karl-Anthony Towns, Sparrow Funeral Home in Brooklyn, hosted a watch party for basketball fans and grieving neighbors alike.`\
 https://www.nytimes.com/2026/06/10/nyregion/they-know-about-loss-theyre-rooting-for-a-knicks-win.html
@@ -66,8 +74,8 @@ https://www.nytimes.com/video/embedded/sports/basketball/100000010959446/10vid-K
 `The wealthy have descended on New York for top basketball, golf and soccer events, and they need prime tickets.`\
 https://www.nytimes.com/2026/06/10/nyregion/knicks-tickets-courtside-concierge.html
 
-**Live Updates: Knicks Fans, Famous and Not, Pack the Garden for Game 4**\
-`Taylor Swift was among the celebrities sitting courtside. Hours before the game, the Knicks owner James L. Dolan and Mayor Zohran Mamdani sparred over who was to blame for the cancellation of a public watch party.`\
+**Live Updates: Knicks Fans Greet Game 4 With Chaotic Energy**\
+`Taylor Swift was among the celebrities sitting courtside. Mayor Zohran Mamdani sparred with the team’s owner over who was to blame for the cancellation of a public watch party.`\
 https://www.nytimes.com/live/2026/06/10/nyregion/nba-finals-knicks-spurs
 
 **Unusually Warm Weather in Bay Area Prompts Heat Alert and Wildfire Concerns**\
@@ -134,13 +142,13 @@ https://www.nytimes.com/2026/06/10/us/politics/latino-voters-democrats-elections
 `Secretary of Defense Pete Hegseth told reporters at MacDill Air Force Base in Tampa, Fla. on Wednesday that “Central Command, will be busy tonight.”`\
 https://www.nytimes.com/video/us/100000010959098/pete-hegseth-strike-iran-wednesday-night.html
 
-**Australia’s Social Media Ban Is Floundering. Can It Still Help Younger Kids?**\
-`Six months in, many teens are already back on platforms they were supposed to be blocked from. The ban’s benefits may fall to the next generation.`\
-https://www.nytimes.com/2026/06/10/world/australia/australia-social-media-ban-under-16.html
-
 **Britain Is Weighing a Social Media Ban for Children. How Did It Get Here?**\
 `Months after Australia banned social media for everyone under 16, the British government is considering new policies to keep children safe online.`\
 https://www.nytimes.com/2026/06/10/world/europe/uk-social-media-ban-under-16.html
+
+**Australia’s Social Media Ban Is Floundering. Can It Still Help Younger Kids?**\
+`Six months in, many teens are already back on platforms they were supposed to be blocked from. The ban’s benefits may fall to the next generation.`\
+https://www.nytimes.com/2026/06/10/world/australia/australia-social-media-ban-under-16.html
 
 **Amtrak Speeds Up Trip From Vancouver to Seattle for World Cup Fans**\
 `Passengers heading from Vancouver, British Columbia, to Seattle will now clear U.S. customs before boarding instead of stopping once they’ve crossed the border.`\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/10/opinion/los-angeles-pratt-mayor-election.html
 **Ernest Chambers, ‘Smothers Brothers’ TV Show Producer, Dies at 97**\
 `In the late 1960s, he and Saul Ilson oversaw a variety show known for its social and political satire, and together they helped fight network censors over its content.`\
 https://www.nytimes.com/2026/06/10/arts/television/ernest-chambers-dead.html
-
-**Graham Platner Tucked in His Shirt on Primary Night**\
-`On election night, the Democratic candidate from Maine wore a button-up, a deviation from the candidate’s unvarnished image.`\
-https://www.nytimes.com/2026/06/10/style/graham-platner-primary-style.html
-
-**Nearly Everyone, Everywhere, Veers Left When Walking**\
-`Researchers are at a loss for why people across cultures and ages, regardless of their dominant hand, have a natural bias toward wandering in a counterclockwise direction.`\
-https://www.nytimes.com/2026/06/10/science/humans-walking-veer-left-counterclockwise.html
 
