@@ -1,3 +1,7 @@
+**Lee Raymond, Who Created Global Oil Behemoth Exxon Mobil, Dies at 87**\
+`He oversaw Exxon’s acquisition of a rival, cut costs relentlessly and denied the scientific consensus on climate change.`\
+https://www.nytimes.com/2026/06/10/business/lee-raymond-dead.html
+
 **Taylor Swift and Haim Sisters Appear at MSG for Knicks Game**\
 `The musician, who is believed to be planning a wedding in the city, showed up in a musical take on Knicks gear.`\
 https://www.nytimes.com/2026/06/10/style/taylor-swift-msg-knicks.html
@@ -102,13 +106,13 @@ https://www.nytimes.com/2026/06/10/us/politics/latino-voters-democrats-elections
 `Secretary of Defense Pete Hegseth told reporters at MacDill Air Force Base in Tampa, Fla. on Wednesday that “Central Command, will be busy tonight.”`\
 https://www.nytimes.com/video/us/100000010959098/pete-hegseth-strike-iran-wednesday-night.html
 
-**Australia’s Social Media Ban Is Floundering. Can It Still Help Younger Kids?**\
-`Six months in, many teens are already back on platforms they were supposed to be blocked from. The ban’s benefits may fall to the next generation.`\
-https://www.nytimes.com/2026/06/10/world/australia/australia-social-media-ban-under-16.html
-
 **Britain Is Weighing a Social Media Ban for Children. How Did It Get Here?**\
 `Months after Australia banned social media for everyone under 16, the British government is considering new policies to keep children safe online.`\
 https://www.nytimes.com/2026/06/10/world/europe/uk-social-media-ban-under-16.html
+
+**Australia’s Social Media Ban Is Floundering. Can It Still Help Younger Kids?**\
+`Six months in, many teens are already back on platforms they were supposed to be blocked from. The ban’s benefits may fall to the next generation.`\
+https://www.nytimes.com/2026/06/10/world/australia/australia-social-media-ban-under-16.html
 
 **Amtrak Speeds Up Trip From Vancouver to Seattle for World Cup Fans**\
 `Passengers heading from Vancouver, British Columbia, to Seattle will now clear U.S. customs before boarding instead of stopping once they’ve crossed the border.`\
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/06/10/nyregion/mamdani-knicks-ticket-garden.html
 **U.S. Strikes Iran for Second Day, as War Heats Back Up**\
 `President Trump said that the Iranians were taking “too long to negotiate” a deal to end the conflict launched by the United States and Israel four months ago.`\
 https://www.nytimes.com/2026/06/10/world/middleeast/us-iran-strikes.html
-
-**Hong Kong Files Charges Over Fire That Killed 168 People**\
-`The Hong Kong government announced on Wednesday that it charged seven people and two companies following an investigation into the deadly fire at the Wang Fuk Court apartment complex in November 2025.`\
-https://www.nytimes.com/video/world/asia/100000010958332/hong-kong-apartment-fire-charges.html
 
 **World Cup Updates: U.S. Immigration Policies Turn Some Fans and Participants Away**\
 `(No description)`\
