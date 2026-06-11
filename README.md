@@ -1,3 +1,7 @@
+**Bill Gates dice que Epstein intentó usar sus aventuras extramatrimoniales en su contra**\
+`El filántropo multimillonario testificó el miércoles en una audiencia a puerta cerrada del Congreso de EE. UU. sobre la investigación del Departamento de Justicia sobre Jeffrey Epstein.`\
+https://www.nytimes.com/es/2026/06/10/espanol/negocios/bill-gates-epstein-infidelidad.html
+
 **Trump’s Plaques on the Presidential ‘Walk of Fame,’ Fact-Checked and Annotated by Historians**\
 `President Trump’s ‘Walk of Fame’ has an unreliable narrator. We asked eight historians what they thought.`\
 https://www.nytimes.com/interactive/2026/06/10/us/politics/trump-president-plaques-white-house.html
@@ -90,13 +94,13 @@ https://www.nytimes.com/2026/06/10/us/politics/latino-voters-democrats-elections
 `Secretary of Defense Pete Hegseth told reporters at MacDill Air Force Base in Tampa, Fla. on Wednesday that “Central Command, will be busy tonight.”`\
 https://www.nytimes.com/video/us/100000010959098/pete-hegseth-strike-iran-wednesday-night.html
 
-**Britain Is Weighing a Social Media Ban for Children. How Did It Get Here?**\
-`Months after Australia banned social media for everyone under 16, the British government is considering new policies to keep children safe online.`\
-https://www.nytimes.com/2026/06/10/world/europe/uk-social-media-ban-under-16.html
-
 **Australia’s Social Media Ban Is Floundering. Can It Still Help Younger Kids?**\
 `Six months in, many teens are already back on platforms they were supposed to be blocked from. The ban’s benefits may fall to the next generation.`\
 https://www.nytimes.com/2026/06/10/world/australia/australia-social-media-ban-under-16.html
+
+**Britain Is Weighing a Social Media Ban for Children. How Did It Get Here?**\
+`Months after Australia banned social media for everyone under 16, the British government is considering new policies to keep children safe online.`\
+https://www.nytimes.com/2026/06/10/world/europe/uk-social-media-ban-under-16.html
 
 **Amtrak Speeds Up Trip From Vancouver to Seattle for World Cup Fans**\
 `Passengers heading from Vancouver, British Columbia, to Seattle will now clear U.S. customs before boarding instead of stopping once they’ve crossed the border.`\
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/06/10/us/fbi-search-orange-county-chemical-tank.htm
 **Hundreds of Kenyans Protest U.S. Ebola Unit**\
 `Protesters opposed an Ebola quarantine facility in Kenya on Tuesday that would be reserved exclusively for U.S. citizens.`\
 https://www.nytimes.com/video/world/africa/100000010957717/us-ebola-quarantine-unit-protest-kenya.html
-
-**Disturbios en Irlanda del Norte: lo que hay que saber**\
-`Un brutal apuñalamiento ocurrido en Belfast esta semana ha avivado el sentimiento antimigrantes que ya estaba latente.`\
-https://www.nytimes.com/es/2026/06/10/espanol/mundo/irlanda-norte-disturbios-belfast.html
 
 **World Cup Updates: U.S. Immigration Policies Turn Some Fans and Participants Away**\
 `(No description)`\
