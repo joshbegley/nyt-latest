@@ -1,3 +1,7 @@
+**Today, In Short**\
+`Optimizing. Maya Rudolph. And the New York Knicks.`\
+https://www.nytimes.com/2026/06/11/briefing/today-in-short.html
+
 **Trump Administration Pushes Limits of Election Investigations**\
 `The Justice Department once tried to stay out of state elections, urging caution. It is now pressing forward with claims of fraud as President Trump revives his unfounded assertions that elections cannot be trusted.`\
 https://www.nytimes.com/2026/06/11/us/politics/trump-california-vote-elections-investigations.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/11/world/africa/deportations-central-african-rep
 **Three Generations of Women Under One Roof in Westchester**\
 `A retired math teacher, her daughter and her granddaughter put together about $1 million to find a house in New Rochelle, N.Y., for their extended family and a dog named Harry Styles.`\
 https://www.nytimes.com/interactive/2026/06/11/realestate/westchester-new-rochelle-house-hunt.html
-
-**A Home with Old Hollywood Glamour for Sale in the Hollywood Hills**\
-`Silent film stars Rudolph Valentino and Pola Negri reportedly rendezvoused here in the 1920s.`\
-https://www.nytimes.com/2026/06/11/realestate/pola-negri-rudolph-valentine-whitley-heights.html
 
 **Iran War Live Updates: U.S.-Iran Strikes Risk Dangerous New Phase**\
 `The exchanges of fire this week have raised fears of a return to all-out war. The U.S. military struck another tanker it said was carrying Iranian oil and three Indians were reported killed in an earlier American attack at sea.`\
