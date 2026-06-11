@@ -1,3 +1,7 @@
+**Live Updates: Knicks Fans, Famous and Not, Pack the Garden for Game 4**\
+`Taylor Swift was among the celebrities sitting courtside. Hours before the game, the Knicks owner James L. Dolan and Mayor Zohran Mamdani sparred over who was to blame for the cancellation of a public watch party.`\
+https://www.nytimes.com/live/2026/06/10/nyregion/nba-finals-knicks-spurs
+
 **Lee Raymond, Who Created Global Oil Behemoth Exxon Mobil, Dies at 87**\
 `He oversaw Exxon’s acquisition of a rival, cut costs relentlessly and denied the scientific consensus on climate change.`\
 https://www.nytimes.com/2026/06/10/business/lee-raymond-dead.html
