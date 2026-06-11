@@ -1,3 +1,7 @@
+**Refugees’ Numbers Drop, but Many Return to Turmoil at Home, U.N. Says**\
+`There were nearly 118 million forcibly displaced people in 2025, slightly fewer than in the previous year, the United Nations refugee agency said.`\
+https://www.nytimes.com/2026/06/11/world/europe/un-refugees-displaced-war-drop.html
+
 **NOAA Issues El Nino Advisory**\
 `The shift in global weather patterns threatens to worsen floods and heat waves that were already intensifying because of climate change.`\
 https://www.nytimes.com/2026/06/11/climate/el-nino-noaa.html

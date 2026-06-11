@@ -1,3 +1,7 @@
+**Refugees’ Numbers Drop, but Many Return to Turmoil at Home, U.N. Says**\
+`There were nearly 118 million forcibly displaced people in 2025, slightly fewer than in the previous year, the United Nations refugee agency said.`\
+https://www.nytimes.com/2026/06/11/world/europe/un-refugees-displaced-war-drop.html
+
 **NOAA Issues El Nino Advisory**\
 `The shift in global weather patterns threatens to worsen floods and heat waves that were already intensifying because of climate change.`\
 https://www.nytimes.com/2026/06/11/climate/el-nino-noaa.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/11/nyregion/knicks-game-4-fans-nba-finals-nyc.ht
 **America Signed Up for the World Cup. FIFA Stuck You With the Tab.**\
 `Adam Crafton and Pablo discuss how FIFA squeezed U.S. taxpayers with hidden costs.`\
 https://www.nytimes.com/2026/06/11/podcasts/america-signed-up-for-the-world-cup-fifa-stuck-you-with-the-tab.html
-
-**Millions Across the Midwest and Northeast Face Severe Storms on Thursday**\
-`For the second day in a row, Chicago is in the bull’s-eye of the areas facing severe weather on Thursday, but the storm forecast is widespread.`\
-https://www.nytimes.com/2026/06/11/weather/chicago-new-york-northeast-storms-minnesota.html
 
 **Iran War Live Updates: As U.S.-Iran Strikes Risk Dangerous New Phase, Trump Issues More Threats**\
 `President Trump said U.S. forces would hit Iran again later Thursday and threatened to take Kharg Island, the heart of Iran’s oil economy. The exchanges of fire this week have raised fears of a return to all-out war.`\
