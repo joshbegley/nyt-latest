@@ -1,3 +1,7 @@
+**The World Cup**\
+`Here’s what you should know about this massive competition.`\
+https://www.nytimes.com/2026/06/11/briefing/the-world-cup.html
+
 **A New Hotel From Lake Como’s Grande Dame**\
 `Plus: a Danh Vo exhibition on a Danish island, wood-fired ceramics and more recommendations from T Magazine.`\
 https://www.nytimes.com/2026/06/11/t-magazine/lake-como-italy-hotel.html
@@ -64,7 +68,7 @@ https://www.nytimes.com/2026/06/11/science/base-editing-embryos-debate.html
 
 **Women Who Fled Iran Are to Be Deported to Central African Republic, Lawyers Say**\
 `The women are among nearly two dozen people slated to be sent to a country where the U.S. government has advised “Do not travel for any reason.”`\
-https://www.nytimes.com/2026/06/11/world/africa/deportations-to-central-african-republic.html
+https://www.nytimes.com/2026/06/11/world/africa/deportations-central-african-republic-migrants-iran-women.html
 
 **Three Generations of Women Under One Roof in Westchester**\
 `A retired math teacher, her daughter and her granddaughter put together about $1 million to find a house in New Rochelle, N.Y., for their extended family and a dog named Harry Styles.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/11/books/review/the-american-school-of-spies-ste
 **Trump’s D.C. Renovations, HGTV Style**\
 `President Trump brings a particular brand of reality TV-style renovations to the nation’s capital.`\
 https://www.nytimes.com/2026/06/11/style/when-dc-goes-hgtv.html
-
-**Running Around N.Y.C. With ‘Deli Boys’ Mob Boss Auntie**\
-`Poorna Jagannathan, who plays Lucky Auntie in “Deli Boys” on Hulu, is finally over the impostor syndrome.`\
-https://www.nytimes.com/2026/06/11/style/running-around-nyc-with-deli-boys-mob-boss-auntie.html
 
