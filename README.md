@@ -1,3 +1,7 @@
+**U.S. and Iran Exchange Fresh Strikes**\
+`The United States launched a new wave of airstrikes on Iran early Thursday, and Iran claimed to have retaliated, bringing the two sides close to a return to all-out war.`\
+https://www.nytimes.com/video/world/middleeast/100000010959783/us-iran-exchange-strikes.html
+
 **Inside the Knicks’ Historic Comeback to Take Game 4 of the N.B.A. Finals**\
 `Hear instant reaction to the New York Knicks’ win over the San Antonio Spurs.`\
 https://www.nytimes.com/2026/06/11/podcasts/knicks-spurs-nba-finals-game-4.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/10/weather/storms-illinois-wisconsin-tornado-pow
 **FIFA President Tells World Cup Critics to ‘Chill’ About Concerns**\
 `With the World Cup facing growing crises, Gianni Infantino, the FIFA president, struck a defiant tone on the eve of the competition’s start.`\
 https://www.nytimes.com/2026/06/10/world/europe/fifa-president-world-cup.html
-
-**Knicks Owner Cancels Watch Party As Spat With Mamdani Escalates**\
-`Hours before Wednesday’s game began, James Dolan, the owner of the Knicks, and Mayor Zohran Mamdani were publicly battling over who was to blame for the cancellation.`\
-https://www.nytimes.com/2026/06/10/nyregion/msg-knicks-watch-party-canceled.html
 
