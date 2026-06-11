@@ -1,3 +1,11 @@
+**After Senate Loss, Cornyn Predicts ‘Miserable’ Final Two Years for Trump**\
+`In his first extensive interview since his defeat by a Trump-backed challenger, the Texas Republican said the Senate was in for a “bumpy ride” as he and others flex new political freedom.`\
+https://www.nytimes.com/2026/06/11/us/john-cornyn-interview-trump.html
+
+**Should the Public Get a Piece of A.I. Wealth?**\
+`Readers respond to an Opinion guest essay by Senator Bernie Sanders. Also: President Trump’s enablers.`\
+https://www.nytimes.com/2026/06/11/opinion/ai-wealth-bernie-sanders.html
+
 **Refugees’ Numbers Drop, but Many Return to Turmoil at Home, U.N. Says**\
 `There were nearly 118 million forcibly displaced people in 2025, slightly fewer than in the previous year, the United Nations refugee agency said.`\
 https://www.nytimes.com/2026/06/11/world/europe/un-refugees-displaced-war-drop.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/11/crosswords/strands-sidekick-831.html
 **Today’s Wordle Hints for June 12, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, June 12, 2026.`\
 https://www.nytimes.com/2026/06/11/crosswords/wordle-review-1819.html
-
-**The Knicks’ Game 4 Comeback Was Epic. So Was Their Fans’ Response.**\
-`The crowd at Madison Square Garden was forlorn as the New York Knicks fell far behind in Game 4 of the N.B.A. finals. After they won, it was electric.`\
-https://www.nytimes.com/2026/06/11/nyregion/knicks-game-4-fans-nba-finals-nyc.html
-
-**America Signed Up for the World Cup. FIFA Stuck You With the Tab.**\
-`Adam Crafton and Pablo discuss how FIFA squeezed U.S. taxpayers with hidden costs.`\
-https://www.nytimes.com/2026/06/11/podcasts/america-signed-up-for-the-world-cup-fifa-stuck-you-with-the-tab.html
 
 **Iran War Live Updates: As U.S.-Iran Strikes Risk Dangerous New Phase, Trump Issues More Threats**\
 `President Trump said U.S. forces would hit Iran again later Thursday and threatened to take Kharg Island, the heart of Iran’s oil economy. The exchanges of fire this week have raised fears of a return to all-out war.`\

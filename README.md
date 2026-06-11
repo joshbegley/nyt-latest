@@ -42,7 +42,7 @@ https://www.nytimes.com/2026/06/11/us/minnesota-assassination-plea-hearing-hortm
 `Hunted by slavers, the abolitionist escaped briefly to Britain and Ireland. A new show at the Irish Arts Center combines his speeches with performances by local students.`\
 https://www.nytimes.com/2026/06/11/theater/north-star-frederick-douglass-irish-arts-center.html
 
-**Iran’s Attacks on Gulf States Underscore Their Dependence on U.S.**\
+**Iran’s Attacks on Gulf States Underscore Targeted Countries’ Dependence on U.S.**\
 `The targeted countries host sprawling American military bases and thousands of personnel at a time when the United States is waging war against Iran.`\
 https://www.nytimes.com/2026/06/11/world/middleeast/iran-attacks-kuwait-bahrain-gulf-states.html
 

@@ -1,3 +1,11 @@
+**After Senate Loss, Cornyn Predicts ‘Miserable’ Final Two Years for Trump**\
+`In his first extensive interview since his defeat by a Trump-backed challenger, the Texas Republican said the Senate was in for a “bumpy ride” as he and others flex new political freedom.`\
+https://www.nytimes.com/2026/06/11/us/john-cornyn-interview-trump.html
+
+**Should the Public Get a Piece of A.I. Wealth?**\
+`Readers respond to an Opinion guest essay by Senator Bernie Sanders. Also: President Trump’s enablers.`\
+https://www.nytimes.com/2026/06/11/opinion/ai-wealth-bernie-sanders.html
+
 **Refugees’ Numbers Drop, but Many Return to Turmoil at Home, U.N. Says**\
 `There were nearly 118 million forcibly displaced people in 2025, slightly fewer than in the previous year, the United Nations refugee agency said.`\
 https://www.nytimes.com/2026/06/11/world/europe/un-refugees-displaced-war-drop.html
