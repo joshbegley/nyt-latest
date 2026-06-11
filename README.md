@@ -1,3 +1,23 @@
+**The Young Economic Populists Reshaping the Left**\
+`As Democrats wrestle over the direction of their party, a new crop of progressive candidates sees college graduates among its biggest supporters.`\
+https://www.nytimes.com/2026/06/11/podcasts/the-daily/college-graduates-economic-populists-democrats.html
+
+**Trump Shrugs Off Surging Inflation, and Why a Groundbreaking Social Media Ban Is Floundering**\
+`Plus, the man behind “GOOOOAL!”`\
+https://www.nytimes.com/2026/06/11/podcasts/the-headlines/trump-inflation-australia-social-media-ban.html
+
+**NYT Connections Answers for June 12, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, June 12, 2026.`\
+https://www.nytimes.com/2026/06/11/crosswords/connections-companion-1097.html
+
+**NYT Strands Hints for June 12, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, June 12, 2026.`\
+https://www.nytimes.com/2026/06/11/crosswords/strands-sidekick-831.html
+
+**Today’s Wordle Hints for June 12, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, June 12, 2026.`\
+https://www.nytimes.com/2026/06/11/crosswords/wordle-review-1819.html
+
 **The Knicks’ Game 4 Comeback Was Epic. So Was Their Fans’ Response.**\
 `The crowd at Madison Square Garden was forlorn as the New York Knicks fell far behind in Game 4 of the N.B.A. finals. After they won, it was electric.`\
 https://www.nytimes.com/2026/06/11/nyregion/knicks-game-4-fans-nba-finals-nyc.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/06/11/style/running-around-nyc-with-deli-boys-mob-b
 **Mike Amiri Knows What Travis Kelce and Marcus Rashford Want to Wear**\
 `How Amiri built a brand on the culture of sports.`\
 https://www.nytimes.com/2026/06/11/style/world-cup-fashion-mike-amiri.html
-
-**A Youthful Crop of Politicians Run on Housing, and Their Own Rent**\
-`A cohort of young Millennial and Gen Z politicians have centered their campaigns this year on housing costs, and the divide is more generational than partisan.`\
-https://www.nytimes.com/2026/06/11/us/politics/gen-z-politicians-housing-costs.html
-
-**Book Review: ‘This Dark Night: Emily Brontë, a Life,’ by Deborah Lutz**\
-`In her lyrical new biography, “This Dark Night,” Deborah Lutz shines light on the most enigmatic of the literary, secluded Brontë sisters.`\
-https://www.nytimes.com/2026/06/11/books/review/this-dark-night-deborah-lutz.html
-
-**In the Fastest-Warming City in the U.S., These Artists See Hope**\
-`At the Nevada Museum of Art, five examples of artist-activists shining a light on the Great Basin Desert and beyond.`\
-https://www.nytimes.com/2026/06/11/arts/design/nevada-museum-of-art-reno.html
-
-**Ruth Ozeki on Her Favorite Books and Her New Collection, ‘The Typing Lady’**\
-`She wanted to learn about pyramids, and ended up with hallucinatory sex scenes. Her new book is a provocation: Just what genre is it anyway?`\
-https://www.nytimes.com/2026/06/11/books/review/ruth-ozeki-the-typing-lady.html
-
-**Conor McGregor’s Comeback: A Tale of Banned Drugs and a Famous Doctor**\
-`McGregor, the Ultimate Fighting Championship’s main attraction, had the support of the prominent sports physician Neal ElAttrache when he decided to use performance-enhancing drugs.`\
-https://www.nytimes.com/2026/06/11/us/politics/conor-mcgregor-ufc-drugs.html
 
