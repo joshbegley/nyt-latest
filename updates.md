@@ -1,3 +1,19 @@
+**California Coast Search Ends for 5-Year-Old Girl Swept Away**\
+`The girl was with her mother and a sibling near the shore in Laguna Beach, Calif., on Tuesday when she was pulled into the surf. The forecast called for more dangerous swells this week.`\
+https://www.nytimes.com/2026/06/11/us/laguna-beach-missing-girl-search-ends.html
+
+**SpaceX Sets Milestone With World’s Largest I.P.O., Furthering Musk’s Power**\
+`Elon Musk’s rocket company said it would sell more than 555 million shares at $135 a share in its blockbuster initial public offering, which is set to begin trading on Friday.`\
+https://www.nytimes.com/2026/06/11/technology/spacex-ipo-price.html
+
+**Raphael Warnock: We Are Witnessing an Assault on Basic Voting Rights**\
+`The Supreme Court “has committed violence against the ways in which ordinary people can have a voice in our system,” says Senator Raphael Warnock, a Democrat from Georgia.`\
+https://www.nytimes.com/video/podcasts/100000010961922/raphael-warnock-we-are-witnessing-an-assault-on-basic-voting-rights.html
+
+**The SpaceX Shareholder at the Helm of a Multibillion-Dollar Payout**\
+`Justin Fishner-Wolfson, long a minor figure in Elon Musk’s orbit, is at the helm of a multibillion-dollar payout`\
+https://www.nytimes.com/2026/06/11/business/spacex-ipo-137-ventures.html
+
 **Lorem ipsum dolor sit amet**\
 `summary`\
 https://www.nytimes.com/interactive/2026/06/11/business/box-office-charts.html
