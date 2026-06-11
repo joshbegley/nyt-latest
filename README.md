@@ -1,3 +1,7 @@
+**Ryanair Is Being Investigated for Charging Parents to Sit Next to Their Children**\
+`Britain’s competition watchdog will determine whether the airline’s mandatory fee is unfair. The low-cost airline called the investigation “bogus.”`\
+https://www.nytimes.com/2026/06/11/world/europe/ryanair-investigation-parents-charges-flights.html
+
 **Colombia elige: ¿machismo o derechos de la mujer?**\
 `El favorito en las elecciones presidenciales ha desatado un debate sobre la masculinidad y el machismo. Los grupos defensores de los derechos de las mujeres ven en ello una estrategia habitual de la derecha.`\
 https://www.nytimes.com/es/2026/06/11/espanol/america-latina/colombia-abelardo-de-la-espriella-machismo.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/11/movies/honeyjoon-review.html
 **Homes for Sale in New York and New Jersey**\
 `This week’s properties are three-bedroom homes in Freeport, N.Y., and Roseland, N.J.`\
 https://www.nytimes.com/2026/06/11/realestate/homes-for-sale-in-new-york-and-new-jersey.html
-
-**Why It’s Nearly Impossible to Build a Robot Without China**\
-`Building on the country’s electric vehicle industry, Chinese companies are making robot parts at a scale and price point others can’t match.`\
-https://www.nytimes.com/2026/06/11/business/china-robots-humanoid.html
 
