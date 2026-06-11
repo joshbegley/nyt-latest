@@ -1,3 +1,7 @@
+**Vance Boelter Pleads Guilty in Assassination of Minnesota Lawmaker**\
+`Federal prosecutors said they would not seek the death penalty for Vance Boelter, who still faces charges in state court.`\
+https://www.nytimes.com/2026/06/11/us/minnesota-assassination-plea-hearing-hortman.html
+
 **‘North Star’ Explores Frederick Douglass’s Ties to Ireland**\
 `Hunted by slavers, the abolitionist escaped briefly to Britain and Ireland. A new show at the Irish Arts Center combines his speeches with performances by local students.`\
 https://www.nytimes.com/2026/06/11/theater/north-star-frederick-douglass-irish-arts-center.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/interactive/2026/06/11/travel/things-to-do-athens.html
 **The Terrible Man Theory of History**\
 `The solution to Trumpism isn’t to conform to the spirit of the age, but to transform it.`\
 https://www.nytimes.com/2026/06/11/opinion/platner-trump-character-leadership.html
-
-**A Newer Approach to Editing Embryos Ignites Debate**\
-`Fertility specialists, biotech companies and ethicists are divided over whether progress in early gene editing would wipe out diseases or trigger a rush toward enhancement.`\
-https://www.nytimes.com/2026/06/11/science/base-editing-embryos-debate.html
 
 **Iran War Live Updates: U.S.-Iran Strikes Risk Dangerous New Phase**\
 `The exchanges of fire this week have raised fears of a return to all-out war. The U.S. military struck another tanker it said was carrying Iranian oil and three Indians were reported killed in an earlier American attack at sea.`\

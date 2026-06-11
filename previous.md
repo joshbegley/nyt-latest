@@ -1,3 +1,11 @@
+**‘North Star’ Explores Frederick Douglass’s Ties to Ireland**\
+`Hunted by slavers, the abolitionist escaped briefly to Britain and Ireland. A new show at the Irish Arts Center combines his speeches with performances by local students.`\
+https://www.nytimes.com/2026/06/11/theater/north-star-frederick-douglass-irish-arts-center.html
+
+**Iran’s Attacks on Gulf States Underscore Their Dependence on U.S.**\
+`The targeted countries host sprawling American military bases and thousands of personnel at a time when the United States is waging war against Iran.`\
+https://www.nytimes.com/2026/06/11/world/middleeast/iran-attacks-kuwait-bahrain-gulf-states.html
+
 **Today, In Short**\
 `Optimizing. Maya Rudolph. And the New York Knicks.`\
 https://www.nytimes.com/2026/06/11/briefing/today-in-short.html
@@ -10,8 +18,8 @@ https://www.nytimes.com/2026/06/11/us/politics/trump-california-vote-elections-i
 `That’s just one of many reader raves for Yewande Komolafe’s saag shrimp, a bright dinner that comes together in less than an hour.`\
 https://www.nytimes.com/2026/06/11/dining/this-is-one-of-the-most-delicious-recipes-ive-made-in-a-long-time.html
 
-**Tom Steyer Should Stop Trying to Make Tom Steyer Happen**\
-`Imagine what he could have done with all the money he wasted on another campaign.`\
+**Tom Steyer Spent $558 Million. What a Waste.**\
+`Imagine what Tom Steyer could have done with all the money he wasted on another campaign.`\
 https://www.nytimes.com/2026/06/11/opinion/tom-steyer-california-governor.html
 
 **With Measles Roaring Back, the Search for a Drug is On**\
@@ -155,7 +163,7 @@ https://www.nytimes.com/2026/06/11/nyregion/knicks-game-4-fans-nba-finals-nyc.ht
 https://www.nytimes.com/2026/06/11/podcasts/america-signed-up-for-the-world-cup-fifa-stuck-you-with-the-tab.html
 
 **Millions Across the Midwest and Northeast Face Severe Storms on Thursday**\
-`Chicago is in the bull’s-eye of the areas facing severe weather on Thursday, but the storm forecast is widespread.`\
+`For the second day in a row, Chicago is in the bull’s-eye of the areas facing severe weather on Thursday, but the storm forecast is widespread.`\
 https://www.nytimes.com/2026/06/11/weather/chicago-new-york-northeast-storms-minnesota.html
 
 **Mundial en México: las protestas podrían interrumpir la ceremonia de inauguración**\
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/11/opinion/platner-trump-character-leadership.ht
 **A Newer Approach to Editing Embryos Ignites Debate**\
 `Fertility specialists, biotech companies and ethicists are divided over whether progress in early gene editing would wipe out diseases or trigger a rush toward enhancement.`\
 https://www.nytimes.com/2026/06/11/science/base-editing-embryos-debate.html
-
-**Women Who Fled Iran Are to Be Deported to Central African Republic, Lawyers Say**\
-`The women are among nearly two dozen people slated to be sent to a country where the U.S. government has advised “Do not travel for any reason.”`\
-https://www.nytimes.com/2026/06/11/world/africa/deportations-central-african-republic-migrants-iran-women.html
-
-**Three Generations of Women Under One Roof in Westchester**\
-`A retired math teacher, her daughter and her granddaughter put together about $1 million to find a house in New Rochelle, N.Y., for their extended family and a dog named Harry Styles.`\
-https://www.nytimes.com/interactive/2026/06/11/realestate/westchester-new-rochelle-house-hunt.html
 
 **Iran War Live Updates: U.S.-Iran Strikes Risk Dangerous New Phase**\
 `The exchanges of fire this week have raised fears of a return to all-out war. The U.S. military struck another tanker it said was carrying Iranian oil and three Indians were reported killed in an earlier American attack at sea.`\

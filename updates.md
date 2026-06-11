@@ -1,3 +1,19 @@
+**‘North Star’ Explores Frederick Douglass’s Ties to Ireland**\
+`Hunted by slavers, the abolitionist escaped briefly to Britain and Ireland. A new show at the Irish Arts Center combines his speeches with performances by local students.`\
+https://www.nytimes.com/2026/06/11/theater/north-star-frederick-douglass-irish-arts-center.html
+
+**Iran’s Attacks on Gulf States Underscore Their Dependence on U.S.**\
+`The targeted countries host sprawling American military bases and thousands of personnel at a time when the United States is waging war against Iran.`\
+https://www.nytimes.com/2026/06/11/world/middleeast/iran-attacks-kuwait-bahrain-gulf-states.html
+
+**Tom Steyer Spent $558 Million. What a Waste.**\
+`Imagine what Tom Steyer could have done with all the money he wasted on another campaign.`\
+https://www.nytimes.com/2026/06/11/opinion/tom-steyer-california-governor.html
+
+**Millions Across the Midwest and Northeast Face Severe Storms on Thursday**\
+`For the second day in a row, Chicago is in the bull’s-eye of the areas facing severe weather on Thursday, but the storm forecast is widespread.`\
+https://www.nytimes.com/2026/06/11/weather/chicago-new-york-northeast-storms-minnesota.html
+
 **Millions Across the Midwest and Northeast Face Severe Storms on Thursday**\
 `Chicago is in the bull’s-eye of the areas facing severe weather on Thursday, but the storm forecast is widespread.`\
 https://www.nytimes.com/2026/06/11/weather/chicago-new-york-northeast-storms-minnesota.html
