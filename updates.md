@@ -1,3 +1,7 @@
+**New York City Can Move Men’s Shelter to East Village, Judge Rules**\
+`The judge had temporarily blocked the plan after residents sued, but she ultimately decided that the city’s argument for the relocation was reasonable.`\
+https://www.nytimes.com/2026/06/10/nyregion/homeless-men-shelter-east-village.html
+
 **Live Updates: Knicks Owner Feuds With Mayor Before Game 4**\
 `Hours before Game 4 of the N.B.A. finals, the team’s owner, James Dolan, and Mayor Zohran Mamdani were sparring over who was to blame for the cancellation of a watch party outside Madison Square Garden.`\
 https://www.nytimes.com/live/2026/06/10/nyregion/nba-finals-knicks-spurs
