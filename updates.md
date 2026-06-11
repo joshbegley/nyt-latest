@@ -1,3 +1,19 @@
+**Israel Set to Rapidly Expand West Bank Settlement**\
+`In a major push, the government is rushing to place temporary housing at about 60 empty sites in the Israeli-occupied West Bank before national elections this fall.`\
+https://www.nytimes.com/2026/06/11/world/middleeast/israel-west-bank-settlements.html
+
+**Toronto Police Officer Is Killed in Operation With U.S. Link**\
+`The incident happened early Thursday during an investigation into a March shooting at the U.S. consulate in Toronto, the police chief said.`\
+https://www.nytimes.com/2026/06/11/world/canada/toronto-police-officer-shooting-us.html
+
+**House Rejects Bill to Extend Surveillance Power With FISA Section 702 Set to Expire**\
+`A measure to temporarily continue a key surveillance law fell well short of the support needed to pass, further raising the chances that it will lapse on Saturday.`\
+https://www.nytimes.com/2026/06/11/us/politics/house-spy-program-bill.html
+
+**Can the U.S.-Iran Cease-Fire Survive Days of Strikes?**\
+`Analysts saw little prospect of either President Trump or Tehran backing down after days of exchanging fire.`\
+https://www.nytimes.com/2026/06/11/world/middleeast/iran-us-war-strikes-ceasefire.html
+
 **Can the U.S.-Iran Cease-Fire Survive Days of Strikes?**\
 `Analysts saw little prospect of either President Trump or Tehran backing down after days of exchanging fire.`\
 https://www.nytimes.com/2026/06/11/world/middleeast/can-new-fighting-between-us-and-iran-be-contained.html

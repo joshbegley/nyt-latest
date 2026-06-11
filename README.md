@@ -1,3 +1,11 @@
+**These NYC Reservations Are Impossible to Get. Except During a Knicks Game.**\
+`Some New Yorkers tried their luck at hot spots like Bong, Via Carota and Ha’s Snack Bar.`\
+https://www.nytimes.com/2026/06/11/style/nyc-restaurants-knicks-games-reservations.html
+
+**In Britain, a Violent Cycle: Hateful Attacks, Right-Wing Agitation and Riots**\
+`Two stabbings have fueled violent protests in England and Northern Ireland in the last 10 days, fanned online by right-wing voices. In Britain and across Europe, it’s a grim pattern.`\
+https://www.nytimes.com/2026/06/11/world/europe/northern-ireland-stabbing-immigration.html
+
 **Israel Set to Rapidly Expand West Bank Settlement**\
 `In a major push, the government is rushing to place temporary housing at about 60 empty sites in the Israeli-occupied West Bank before national elections this fall.`\
 https://www.nytimes.com/2026/06/11/world/middleeast/israel-west-bank-settlements.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/11/well/mind/trigger-trauma-meaning.html
 **In a Trump-Endorsed Presidential Candidate, Colombia’s Women See a Familiar Far-Right Playbook**\
 `Colombia’s presidential front-runner has sparked a debate about masculinity and machismo. Women’s rights groups see a familiar right-wing playbook.`\
 https://www.nytimes.com/2026/06/11/us/abelardo-de-la-espriella-right-wing-colombia-women.html
-
-**The Pro-Tax Socialite**\
-`Julie Macklowe’s unlikely crusade.`\
-https://www.nytimes.com/2026/06/11/podcasts/the-pro-tax-socialite.html
-
-**Your Next House May Be a Birdhouse**\
-`Market data suggests a soaring future for bird watching and for sales of feeding products.`\
-https://www.nytimes.com/2026/06/11/realestate/bird-watching-equipment-statistics.html
 
 **Iran War Live Updates: U.S.-Iran Strikes Risk Dangerous New Phase**\
 `The exchanges of fire this week have raised fears of a return to all-out war. The U.S. military struck another tanker it said was carrying Iranian oil and three Indians were reported killed in an earlier American attack at sea.`\
