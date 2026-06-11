@@ -1,3 +1,11 @@
+**Security Is Tight as a Match in Mexico City Starts a Historic World Cup**\
+`As the largest World Cup ever kicks off in Mexico City on Thursday afternoon, the security around Estadio Azteca was strict, as law enforcement officers held off protesters.`\
+https://www.nytimes.com/2026/06/11/world/americas/mexico-city-world-cup.html
+
+**Absent From the SpaceX and OpenAI I.P.O.s? Chinese Investors.**\
+`SpaceX will not raise funds from investors in China and Hong Kong. Others firms, like OpenAI, may follow suit.`\
+https://www.nytimes.com/2026/06/11/business/spacex-openai-ipo-china.html
+
 **‘All Men Are Created Equal’ Is Still a Radical Idea**\
 `Our founding creed has always had its critics.`\
 https://www.nytimes.com/2026/06/11/opinion/inequality-musk-thiel-carvalho-billionaires.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/11/arts/music/boston-symphony-andris-nelsons-cha
 **Trump and Hegseth Broadcast U.S. Military Strikes Before They Happen**\
 `Commanders do not usually speak publicly about future operations to avoid jeopardizing the mission’s success.`\
 https://www.nytimes.com/2026/06/11/us/politics/trump-hegseth-military-operations.html
-
-**U.S. Strikes on Ships Off Oman Continue After Deaths of Indian Sailors**\
-`Oman’s military has rescued dozens more Indian seafarers from the stricken ships, which the U.S. military said violated its blockade.`\
-https://www.nytimes.com/2026/06/11/world/asia/india-sailors-iran-tanker-ships-us-strikes.html
-
-**Hazardous Temperatures Forecast for Many World Cup Games**\
-`Many of the tournament’s host cities risk hitting dangerous heat levels this year, raising questions about the safety of players and fans.`\
-https://www.nytimes.com/2026/06/11/climate/world-cup-heat.html
 
 **Iran War Live Updates: Trump Retracts Latest Threats of More Strikes**\
 `Claiming there was progress in the peace negotiations, President Trump said he had canceled his next wave of planned attacks after two days of U.S. airstrikes.`\

@@ -1,3 +1,7 @@
+**‘All Men Are Created Equal’ Is Still a Radical Idea**\
+`Our founding creed has always had its critics.`\
+https://www.nytimes.com/2026/06/11/opinion/inequality-musk-thiel-carvalho-billionaires.html
+
 **2026 World Cup: Hidden FIFA Costs & a USMNT Preview**\
 `And, our top three stories as the tournament begins.`\
 https://www.nytimes.com/2026/06/11/us/2026-world-cup-hidden-fifa-costs-a-usmnt-preview.html
@@ -167,7 +171,7 @@ https://www.nytimes.com/2026/06/11/world/middleeast/israel-west-bank-settlements
 https://www.nytimes.com/2026/06/11/world/canada/toronto-police-officer-shooting-us.html
 
 **House Rejects Bill to Extend Surveillance Power With FISA Section 702 Set to Expire**\
-`A measure to temporarily continue a key surveillance law fell well short of the support needed to pass, further raising the chances that it will lapse on Saturday.`\
+`A measure to temporarily continue a key surveillance law failed in the House, and members left for a weeklong recess, making an expiration all but inevitable.`\
 https://www.nytimes.com/2026/06/11/us/politics/house-spy-program-bill.html
 
 **Can the U.S.-Iran Cease-Fire Survive Days of Strikes?**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/11/world/asia/india-sailors-iran-tanker-ships-us
 **Hazardous Temperatures Forecast for Many World Cup Games**\
 `Many of the tournament’s host cities risk hitting dangerous heat levels this year, raising questions about the safety of players and fans.`\
 https://www.nytimes.com/2026/06/11/climate/world-cup-heat.html
-
-**Jeff Bezos Wants to Build an ‘Artificial General Engineer’**\
-`As co-chief executive of the start-up Prometheus, the Amazon founder is using A.I. to improve how devices ranging from computers to jet engines are made.`\
-https://www.nytimes.com/2026/06/11/technology/bezos-prometheus-ai-engineer.html
 
 **Iran War Live Updates: Trump Retracts Latest Threats of More Strikes**\
 `Claiming there was progress in the peace negotiations, President Trump said he had canceled his next wave of planned attacks after two days of U.S. airstrikes.`\
