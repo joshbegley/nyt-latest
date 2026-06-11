@@ -1,3 +1,19 @@
+**Postal Service Issues Proposal to Block Mail Ballots in States That Don’t Turn Over Data**\
+`Democrats and voting-rights groups have challenged the proposed rule as a harmful federal intrusion that could affect millions of voters who cast their ballots by mail.`\
+https://www.nytimes.com/2026/06/11/us/politics/usps-mail-voting-democratic-resistance.html
+
+**13 Afghan Civilians Killed in Airstrikes on Pakistan Border, U.N. Says**\
+`Pakistan said its airstrikes targeted militant camps. The United Nations confirmed reports by the Taliban government that mostly women and children were killed.`\
+https://www.nytimes.com/2026/06/11/world/asia/afghanistan-pakistan-airstrikes-civilians.html
+
+**Trump Picks Jay Clayton for Director of National Intelligence After Backlash Over Bill Pulte**\
+`The president said he would nominate Jay Clayton, the U.S. attorney in Manhattan and the former chairman of the Securities and Exchange Commission, for the permanent role.`\
+https://www.nytimes.com/2026/06/11/us/politics/trump-jay-clayton-intelligence-chief.html
+
+**Trump Unveils UFC ‘Claw’ Ahead of Cage Match at the White House**\
+`The towering claw will be the site of an Ultimate Fighting Championship cage match on Sunday, which is President Trump’s 80th birthday.`\
+https://www.nytimes.com/2026/06/11/us/politics/trump-ufc-claw-white-house.html
+
 **William Coupon, Who Wanted to ‘Photograph Everyone in the World,’ Dies at 73**\
 `Self-taught, he became a go-to portraitist for politicians, rock stars and other celebrities. He also documented Indigenous people and inmates on death row.`\
 https://www.nytimes.com/2026/06/11/arts/design/william-coupon-dead.html
