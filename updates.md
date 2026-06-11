@@ -1,3 +1,11 @@
+**Analysis of Satellite Image and Videos Suggest Precision U.S. Strikes on Iranian Water Facility**\
+`It is unclear if the U.S. intentionally struck the facility or knew what it was. Deliberately targeting civilian infrastructure could constitute a war crime.`\
+https://www.nytimes.com/2026/06/10/world/middleeast/precision-strike-iran-water.html
+
+**Top Pentagon Official Worked Closely With C.I.A. Officer Later Found With Gold Bars**\
+`David Rush, the C.I.A. employee, worked on a highly classified China spying program with Stephen A. Feinberg, the Pentagon’s second-ranking official.`\
+https://www.nytimes.com/2026/06/10/us/politics/pentagon-cia-officer-gold-bars.html
+
 **Hot Cars and Stolen Crypto: A Canadian Teen Pocketed Millions, Prosecutors Say**\
 `A case illustrates both the low-hanging opportunities new financial technologies offer to scammers and the downside of speeding in a Rolls-Royce.`\
 https://www.nytimes.com/2026/06/10/world/canada/canada-crypto-fraud.html
