@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/06/11/movies/promised-sky-review.html
 `An already unwieldy film feels more queasy when taken in cultural context.`\
 https://www.nytimes.com/2026/06/11/movies/o-horizon-review.html
 
-**‘I Am Frankelda’ Review: Nightmares in Stop-Motion**\
-`An origin story that proves the dark flame of Mexican fantasy is alive and well.`\
-https://www.nytimes.com/2026/06/11/movies/i-am-frankelda-review.html
+**Iran War Live Updates: U.S.-Iran Strikes Risk Dangerous New Phase**\
+`The exchanges of fire this week have raised fears of a return to all-out war. The U.S. military struck another tanker it said was carrying Iranian oil and three Indians were reported killed in an earlier American attack at sea.`\
+https://www.nytimes.com/live/2026/06/11/world/iran-war-trump-us-israel
 

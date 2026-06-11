@@ -1,3 +1,7 @@
+**Boston Symphony in Crisis Over Dismissal of Andris Nelsons**\
+`Chad Smith, the orchestra’s president, admitted missteps in terminating Andris Nelsons’s contract but stood by the decision and won’t step down.`\
+https://www.nytimes.com/2026/06/11/arts/music/boston-symphony-andris-nelsons-chad-smith.html
+
 **Trump and Hegseth Broadcast U.S. Military Strikes Before They Happen**\
 `Commanders do not usually speak publicly about future operations to avoid jeopardizing the mission’s success.`\
 https://www.nytimes.com/2026/06/11/us/politics/trump-hegseth-military-operations.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/11/movies/stop-that-train-review.html
 **‘Promised Sky’ Review: Living in a State of Uncertainty**\
 `Three women living in Tunisia shelter Kenza, a young girl who survived a shipwreck, while they deal with their own issues.`\
 https://www.nytimes.com/2026/06/11/movies/promised-sky-review.html
-
-**‘O Horizon’ Review: Trying to Skip Pain**\
-`An already unwieldy film feels more queasy when taken in cultural context.`\
-https://www.nytimes.com/2026/06/11/movies/o-horizon-review.html
 
 **Iran War Live Updates: U.S.-Iran Strikes Risk Dangerous New Phase**\
 `The exchanges of fire this week have raised fears of a return to all-out war. The U.S. military struck another tanker it said was carrying Iranian oil and three Indians were reported killed in an earlier American attack at sea.`\
