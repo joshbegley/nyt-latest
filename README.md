@@ -1,3 +1,7 @@
+**Imágenes satelitales sugieren que EE. UU. lanzó ataques de precisión contra una planta de agua iraní**\
+`No está claro si EE. UU. atacó la instalación de forma intencional o si sabía lo que era. Atacar deliberadamente infraestructuras civiles podría constituir un crimen de guerra.`\
+https://www.nytimes.com/es/2026/06/11/espanol/mundo/estados-unidos-ataque-iran-planta-agua.html
+
 **Europe Offers Somali World Cup Referee Blocked by U.S. a New Stage**\
 `The referee, Omar Artan, was turned away by immigration officials in Miami, but the governing body for soccer in Europe said he would officiate a high-profile club match in September.`\
 https://www.nytimes.com/2026/06/11/sports/soccer/world-cup-somali-referee-omar-artan.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/11/world/asia/2015-bangkok-bombing-death-sentenc
 **U.K. Defense Secretary Resigns, in a Blow to Starmer**\
 `John Healey unexpectedly announced that he was stepping down, saying Prime Minister Keir Starmer was failing to invest enough money in the British military.`\
 https://www.nytimes.com/2026/06/11/world/europe/uk-defense-secretary-resigns-healey-starmer.html
-
-**The World Cup**\
-`Here’s what you should know about this massive competition.`\
-https://www.nytimes.com/2026/06/11/briefing/the-world-cup.html
 
 **Iran War Live Updates: Trump Retracts Latest Threats of More Strikes**\
 `Claiming there was progress in the peace negotiations, President Trump said he had canceled his next wave of planned attacks after two days of U.S. airstrikes.`\

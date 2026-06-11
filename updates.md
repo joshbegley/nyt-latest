@@ -1,3 +1,7 @@
+**Iran War Live Updates: Trump Retracts Latest Threats of More Strikes**\
+`Claiming there was progress in the peace negotiations, President Trump said he had canceled his next wave of planned attacks after two days of U.S. airstrikes.`\
+https://www.nytimes.com/live/2026/06/11/world/iran-war-trump-us-israel
+
 **NOAA Issues El Nino Advisory**\
 `The global weather pattern threatens to worsen floods and heat waves already intensifying due to climate change. But it may also mean fewer hurricanes.`\
 https://www.nytimes.com/2026/06/11/climate/el-nino-noaa.html
