@@ -1,3 +1,19 @@
+**What’s Love Got to Do With the Movie 'Obsession’? | Cannonball with Wesley Morris**\
+`The hit movie has a troubling take on relationships.`\
+https://www.nytimes.com/2026/06/10/podcasts/whats-love-got-to-do-with-obsession.html
+
+**What’s Love Got to Do With Obsession?**\
+`Wesley Morris and pop culture critic Angelica Jade Bastièn discuss the hit horror movie “Obsession”’and what it says about relationships today.`\
+https://www.nytimes.com/video/podcasts/100000010952396/whats-love-got-to-do-with-obsession.html
+
+**They Know About Loss. They’re Rooting for a Knicks Win.**\
+`Inspired by the words of Karl-Anthony Towns, Sparrow Funeral Home in Brooklyn, hosted a watch party for basketball fans and grieving neighbors alike.`\
+https://www.nytimes.com/2026/06/10/nyregion/they-know-about-loss-theyre-rooting-for-a-knicks-win.html
+
+**Live Updates: Knicks Fans Greet Game 4 With Chaotic Energy**\
+`Taylor Swift was among the celebrities sitting courtside. Mayor Zohran Mamdani sparred with the team’s owner over who was to blame for the cancellation of a public watch party.`\
+https://www.nytimes.com/live/2026/06/10/nyregion/nba-finals-knicks-spurs
+
 **EE. UU. pidió a Colombia que cancelara la reunión de Petro con Mamdani**\
 `El Departamento de Estado había cancelado la visa del presidente Gustavo Petro el año pasado después de que asistió a una manifestación a favor de Palestina en Manhattan. Tenía previsto asistir a un foro organizado por el alcalde de Nueva York, Zohran Mamdani.`\
 https://www.nytimes.com/es/2026/06/10/espanol/mundo/petro-colombia-mamdani.html
