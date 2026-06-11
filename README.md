@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/nyregion/100000010960590/11vid-knicks-carousel-13558.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/nyregion/100000010960670/11vid-knicks-carousel-8704.html
+
 **Trump Makes New Threats After U.S. and Iran Exchange Fresh Strikes**\
 `President Trump has vowed to keep up military pressure on Iran after the latest exchange of overnight attacks.`\
 https://www.nytimes.com/video/world/middleeast/100000010960555/trump-makes-new-threats-after-us-and-iran-exchange-fresh-strikes.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/11/weather/chicago-new-york-northeast-storms-min
 **Mundial en México: las protestas podrían interrumpir la ceremonia de inauguración**\
 `Sindicatos y otros grupos que representan a maestros, familias de víctimas de la violencia, jueces y otros sectores están aprovechando la atención mediática que el Mundial brindará al país.`\
 https://www.nytimes.com/es/2026/06/11/espanol/america-latina/mexico-mundial-protestas-inauguracion-partido.html
-
-**Un Mundial histórico arranca en una Norteamérica dividida**\
-`México y Canadá han atravesado una tensión significativa en sus relaciones con Estados Unidos. Sin embargo, en su histórica candidatura para la Copa del Mundo, los tres países promovieron el trabajo en equipo.`\
-https://www.nytimes.com/es/2026/06/11/espanol/america-latina/mundial-futbol-inicio-canada-mexico-eeuu.html
-
-**La Copa Mundial arranca con una ausencia notable: la presidenta de México**\
-`Su lugar en el partido inaugural lo ocupará Yolett Cervantes Cuaquehua, una joven de una comunidad indígena que ganó un concurso organizado por el gobierno del país.`\
-https://www.nytimes.com/es/2026/06/11/espanol/america-latina/mexico-mundial-boleto-sheinbaum.html
 
 **Iran War Live Updates: As U.S.-Iran Strikes Risk Dangerous New Phase, Trump Issues More Threats**\
 `President Trump said U.S. forces would hit Iran again later Thursday and threatened to take Kharg Island, the heart of Iran’s oil economy. The exchanges of fire this week have raised fears of a return to all-out war.`\
