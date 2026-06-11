@@ -1,3 +1,7 @@
+**Knicks Fans Greet Game 4 Win With Chaotic Energy**\
+`Taylor Swift and Timothée Chalamet were among the celebrities celebrating courtside in New York after a record comeback moved the Knicks within a win of a long-awaited N.B.A. title.`\
+https://www.nytimes.com/live/2026/06/10/nyregion/nba-finals-knicks-spurs
+
 **Nadie gana en la guerra en Medio Oriente**\
 `Ninguno de los que han participado en las guerras recientes en Medio Oriente puede declararse vencedor. Todos son culpables.`\
 https://www.nytimes.com/es/2026/06/11/espanol/opinion/guerra-iran-estados-unidos-israel.html

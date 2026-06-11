@@ -102,7 +102,7 @@ https://www.nytimes.com/video/embedded/sports/basketball/100000010959446/10vid-K
 `The wealthy have descended on New York for top basketball, golf and soccer events, and they need prime tickets.`\
 https://www.nytimes.com/2026/06/10/nyregion/knicks-tickets-courtside-concierge.html
 
-**Live Updates: Knicks Fans Greet Game 4 Win With Chaotic Energy**\
+**Knicks Fans Greet Game 4 Win With Chaotic Energy**\
 `Taylor Swift and Timothée Chalamet were among the celebrities celebrating courtside in New York after a record comeback moved the Knicks within a win of a long-awaited N.B.A. title.`\
 https://www.nytimes.com/live/2026/06/10/nyregion/nba-finals-knicks-spurs
 
