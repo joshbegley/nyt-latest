@@ -1,3 +1,7 @@
+**U.K. Defense Secretary Resigns, in a Blow to Starmer**\
+`John Healey unexpectedly announced his resignation on Thursday, saying Prime Minister Keir Starmer had failed to invest enough money in British defense.`\
+https://www.nytimes.com/2026/06/11/world/europe/uk-defense-secretary-resigns-healey-starmer.html
+
 **The World Cup**\
 `Here’s what you should know about this massive competition.`\
 https://www.nytimes.com/2026/06/11/briefing/the-world-cup.html

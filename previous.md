@@ -1,3 +1,7 @@
+**U.K. Defense Secretary Resigns, in a Blow to Starmer**\
+`John Healey unexpectedly announced his resignation on Thursday, saying Prime Minister Keir Starmer had failed to invest enough money in British defense.`\
+https://www.nytimes.com/2026/06/11/world/europe/uk-defense-secretary-resigns-healey-starmer.html
+
 **The World Cup**\
 `Here’s what you should know about this massive competition.`\
 https://www.nytimes.com/2026/06/11/briefing/the-world-cup.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/11/climate/democrats-climate-change-oil-gas.html
 **Book Review: ‘The American School of Spies,’ by Stephan Talty**\
 `In “The American School of Spies,” Stephan Talty tells the story of the desperate struggle to preserve antiquities during World War II.`\
 https://www.nytimes.com/2026/06/11/books/review/the-american-school-of-spies-stephan-talty.html
-
-**Trump’s D.C. Renovations, HGTV Style**\
-`President Trump brings a particular brand of reality TV-style renovations to the nation’s capital.`\
-https://www.nytimes.com/2026/06/11/style/when-dc-goes-hgtv.html
 
