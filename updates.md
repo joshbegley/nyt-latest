@@ -1,3 +1,15 @@
+**Orlan’s Face Is Her Canvas, and Her Calling Card**\
+`Orlan transformed herself through plastic surgery in the 1990s for an art project. Now, she is lecturing at the Louvre about changing perceptions of beauty.`\
+https://www.nytimes.com/2026/06/11/arts/design/orlan-louvre-lectures.html
+
+**Can SpaceX Defy A.I. Gravity?**\
+`Elon Musk’s rockets-and-artificial-intelligence company is going public as questions grow over the incredible spending spree taking place in the sector.`\
+https://www.nytimes.com/2026/06/11/business/dealbook/spacex-ipo-ai-spending.html
+
+**Two Men Sentenced to Death for 2015 Bangkok Bombing**\
+`A Thai court convicted the men, who are Uyghur, for a terrorist attack at a Hindu shrine that killed 20 and injured dozens more.`\
+https://www.nytimes.com/2026/06/11/world/asia/2015-bangkok-bombing-death-sentence.html
+
 **U.K. Defense Secretary Resigns, in a Blow to Starmer**\
 `John Healey unexpectedly announced his resignation on Thursday, saying Prime Minister Keir Starmer had failed to invest enough money in British defense.`\
 https://www.nytimes.com/2026/06/11/world/europe/uk-defense-secretary-resigns-healey-starmer.html
