@@ -39,7 +39,7 @@ https://www.nytimes.com/video/embedded/sports/basketball/100000010959446/10vid-K
 https://www.nytimes.com/2026/06/10/nyregion/knicks-tickets-courtside-concierge.html
 
 **Live Updates: Knicks Fans, Famous and Not, Pack the Garden for Game 4**\
-`Taylor Swift was among the stars sitting courtside. Hours before the game, the Knicks owner James L. Dolan and Mayor Zohran Mamdani sparred over who was to blame for the cancellation of a public watch party.`\
+`Taylor Swift was among the celebrities sitting courtside. Hours before the game, the Knicks owner James L. Dolan and Mayor Zohran Mamdani sparred over who was to blame for the cancellation of a public watch party.`\
 https://www.nytimes.com/live/2026/06/10/nyregion/nba-finals-knicks-spurs
 
 **Unusually Warm Weather in Bay Area Prompts Heat Alert and Wildfire Concerns**\
