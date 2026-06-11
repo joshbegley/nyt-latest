@@ -1,3 +1,11 @@
+**Copa Mundial 2026: partido de México en fotos**\
+`La ceremonia inaugural reunió a seguidores de México y visitantes de distintos países en una jornada que combinó celebraciones, espectáculos, protestas y una fuerte presencia policial.`\
+https://www.nytimes.com/es/2026/06/11/espanol/america-latina/inauguracion-mundial-mexico-fifa.html
+
+**Melania Trump Unveils New Investment Accounts for Foster Children**\
+`The program allows states to invest benefits they receive on behalf of foster children in their care.`\
+https://www.nytimes.com/2026/06/11/us/politics/melania-trump-foster-youth-accounts.html
+
 **Some States Pull Out of Trump’s ‘Great American State Fair’**\
 `At least five have declined to participate, the latest sign that the national 250th birthday celebration has become a fragmented and partisan affair as the president seeks his imprint.`\
 https://www.nytimes.com/2026/06/11/us/politics/great-american-state-fair.html
