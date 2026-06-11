@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/06/11/world/europe/uk-defense-secretary-resigns-hea
 `Here’s what you should know about this massive competition.`\
 https://www.nytimes.com/2026/06/11/briefing/the-world-cup.html
 
-**Iran War Live Updates: As U.S.-Iran Strikes Risk Dangerous New Phase, Trump Issues More Threats**\
-`President Trump said U.S. forces would hit Iran again later Thursday and threatened to take Kharg Island, the heart of Iran’s oil economy. The exchanges of fire this week have raised fears of a return to all-out war.`\
+**Iran War Live Updates: Trump Retracts Latest Threats of More Strikes**\
+`Claiming there was progress in the peace negotiations, President Trump said he had canceled his next wave of planned attacks after two days of U.S. airstrikes.`\
 https://www.nytimes.com/live/2026/06/11/world/iran-war-trump-us-israel
 
