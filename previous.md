@@ -1,3 +1,19 @@
+**Lander, Running for Congress, Found Not Guilty After ICE Facility Arrest**\
+`Brad Lander is running in a hotly contested primary to unseat another New York Democrat, Representative Daniel Goldman.`\
+https://www.nytimes.com/2026/06/11/nyregion/brad-lander-immigration-arrest-not-guilty.html
+
+**The World Cup Is Officially Underway**\
+`Also, Trump picks a new intelligence chief. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/06/11/briefing/world-cup-trump-spy-chief.html
+
+**Trump, in Latest Pivot, Retracts Threat to Strike Iran Again and Widen the War**\
+`Mr. Trump said that Iran was close to signing a peace deal. So far, weeks of talks have failed to produce an agreement.`\
+https://www.nytimes.com/2026/06/11/world/middleeast/trump-retracts-threat-iran.html
+
+**Fans Highlight Mexican Culture at the World Cup Opening Ceremony**\
+`Fans gathered in Mexico City to watch Mexico play South Africa in the first World Cup match on Thursday. The festivities included a celebration of Mexican culture and entertainment.`\
+https://www.nytimes.com/video/sports/soccer/100000010961457/mexico-city-world-cup-match-mexican-culture.html
+
 **Alan Hale, Sky Watcher Who Created a Comet Sensation, Dies at 68**\
 `In 1995, he and Thomas Bopp spotted, from different states, the same mysterious object in the sky. What turned out to be a comet was named after them: Hale-Bopp.`\
 https://www.nytimes.com/2026/06/11/science/space/alan-hale-dead.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/06/11/technology/spacex-valuation-skeptics.html
 **The SpaceX Shareholder at the Helm of a Multibillion-Dollar Payout**\
 `Justin Fishner-Wolfson, long a minor figure in Elon Musk’s orbit, is at the helm of a multibillion-dollar payout.`\
 https://www.nytimes.com/2026/06/11/business/spacex-ipo-137-ventures.html
-
-**These Dense Bean Salads Are Smart**\
-`Long before the TikTok trend, we were mixing up beans, veggies and tangy dressings here at New York Times Cooking.`\
-https://www.nytimes.com/2026/06/11/dining/these-dense-bean-salads-are-smart.html
-
-**¿Cura médica o bebé a medida? Un nuevo estudio sobre la edición de embriones desata el debate**\
-`Los especialistas en fertilidad, las empresas biotecnológicas y los expertos en ética están divididos sobre los avances en la edición genética temprana.`\
-https://www.nytimes.com/es/2026/06/11/espanol/ciencia-y-tecnologia/edicion-embriones-genetica-adn.html
-
-**After Senate Loss, Cornyn Predicts ‘Miserable’ Final Two Years for Trump**\
-`In his first extensive interview since his defeat by a Trump-backed challenger, the Texas Republican said the Senate was in for a “bumpy ride” as he and others flex new political freedom.`\
-https://www.nytimes.com/2026/06/11/us/john-cornyn-interview-trump.html
-
-**Should the Public Get a Piece of A.I. Wealth?**\
-`Readers respond to an Opinion guest essay by Senator Bernie Sanders. Also: President Trump’s enablers.`\
-https://www.nytimes.com/2026/06/11/opinion/ai-wealth-bernie-sanders.html
 

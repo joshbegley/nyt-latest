@@ -1,3 +1,19 @@
+**Lander, Running for Congress, Found Not Guilty After ICE Facility Arrest**\
+`Brad Lander is running in a hotly contested primary to unseat another New York Democrat, Representative Daniel Goldman.`\
+https://www.nytimes.com/2026/06/11/nyregion/brad-lander-immigration-arrest-not-guilty.html
+
+**The World Cup Is Officially Underway**\
+`Also, Trump picks a new intelligence chief. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/06/11/briefing/world-cup-trump-spy-chief.html
+
+**Trump, in Latest Pivot, Retracts Threat to Strike Iran Again and Widen the War**\
+`Mr. Trump said that Iran was close to signing a peace deal. So far, weeks of talks have failed to produce an agreement.`\
+https://www.nytimes.com/2026/06/11/world/middleeast/trump-retracts-threat-iran.html
+
+**Fans Highlight Mexican Culture at the World Cup Opening Ceremony**\
+`Fans gathered in Mexico City to watch Mexico play South Africa in the first World Cup match on Thursday. The festivities included a celebration of Mexican culture and entertainment.`\
+https://www.nytimes.com/video/sports/soccer/100000010961457/mexico-city-world-cup-match-mexican-culture.html
+
 **The SpaceX Shareholder at the Helm of a Multibillion-Dollar Payout**\
 `Justin Fishner-Wolfson, long a minor figure in Elon Musk’s orbit, is at the helm of a multibillion-dollar payout.`\
 https://www.nytimes.com/2026/06/11/business/spacex-ipo-137-ventures.html
