@@ -1,3 +1,31 @@
+**Better Sex, Better Hair, Better Sleep: ‘Humanmaxxing’ Is Here**\
+`The biotech billionaire who wants to rebuild your body and blow your mind.`\
+https://www.nytimes.com/2026/06/11/opinion/biotech-maxxing-christian-angermayer.html
+
+**36 Hours in Athens, Greece: Things to Do and See**\
+`In Athens, experimental restaurants and lively bars brush up against archaeological ruins and millennia-old neighborhoods — proof that this ancient metropolis is no mere monument to the past.`\
+https://www.nytimes.com/interactive/2026/06/11/travel/things-to-do-athens.html
+
+**The Terrible Man Theory of History**\
+`The solution to Trumpism isn’t to conform to the spirit of the age, but to transform it.`\
+https://www.nytimes.com/2026/06/11/opinion/platner-trump-character-leadership.html
+
+**A Newer Approach to Editing Embryos Ignites Debate**\
+`Fertility specialists, biotech companies and ethicists are divided over whether progress in early gene editing would wipe out diseases or trigger a rush toward enhancement.`\
+https://www.nytimes.com/2026/06/11/science/base-editing-embryos-debate.html
+
+**Women Who Fled Iran Are to Be Deported to Central African Republic, Lawyers Say**\
+`The women are among nearly two dozen people slated to be sent to a country where the U.S. government has advised “Do not travel for any reason.”`\
+https://www.nytimes.com/2026/06/11/world/africa/deportations-to-central-african-republic.html
+
+**Three Generations of Women Under One Roof in Westchester**\
+`A retired math teacher, her daughter and her granddaughter put together about $1 million to find a house in New Rochelle, N.Y., for their extended family and a dog named Harry Styles.`\
+https://www.nytimes.com/interactive/2026/06/11/realestate/westchester-new-rochelle-house-hunt.html
+
+**A Home with Old Hollywood Glamour for Sale in the Hollywood Hills**\
+`Silent film stars Rudolph Valentino and Pola Negri reportedly rendezvoused here in the 1920s.`\
+https://www.nytimes.com/2026/06/11/realestate/pola-negri-rudolph-valentine-whitley-heights.html
+
 **New York City’s Parking Problems**\
 `Drivers in the city spend, on average, 107 hours every year hunting for parking spaces.`\
 https://www.nytimes.com/2026/06/11/nyregion/new-york-citys-parking-problems.html
@@ -167,34 +195,6 @@ https://www.nytimes.com/2026/06/11/world/asia/south-korea-coupang-fine.html
 https://www.nytimes.com/video/sports/100000010959727/fifa-world-cup-mexico.html
 
 **Knicks Fans Rejoice After Game 4 Victory**\
-`Fans and celebrities, including Taylor Swift and Timothée Chalamet, celebrated after the Knicks’ record comeback to win Game 4 of the N.B.A finals`\
+`Fans and celebrities, including Taylor Swift and Timothée Chalamet, celebrated after the Knicks’ record comeback to win Game 4 of the N.B.A finals.`\
 https://www.nytimes.com/video/nyregion/100000010959882/knicks-nba-comeback-fans.html
-
-**La nueva táctica con drones de Ucrania está dañando a Rusia**\
-`Los ataques de alcance medio, con drones mejorados que Ucrania produce en grandes cantidades, están provocando escasez de combustible y complica la rotación de soldados.`\
-https://www.nytimes.com/es/2026/06/11/espanol/mundo/guerra-ucrania-rusia-drones.html
-
-**A Fractured North America Begins a Historic World Cup**\
-`Mexico and Canada have faced significant recent tension in their relations with the United States. But in their historic World Cup bid, the three countries promoted teamwork.`\
-https://www.nytimes.com/2026/06/11/world/americas/world-cup-fractured-north-america.html
-
-**With Inflation Bearing Down, Europe Is Facing Higher Interest Rates**\
-`The European Central Bank is set to raise rates, the first such move since September 2023, as energy disruptions caused by the Iran war drive higher prices.`\
-https://www.nytimes.com/2026/06/11/business/european-central-bank-inflation-interest-rates.html
-
-**New York City Leaders Propose Building More Homes on Top of Libraries**\
-`Julie Menin, the City Council speaker, unveiled plans for three projects combining affordable housing developments and library renovations. It is part of a nationwide trend.`\
-https://www.nytimes.com/2026/06/11/nyregion/nyc-libraries-affordable-housing-menin.html
-
-**City Council Calls for Tighter Review of N.Y.C. School System Contracts**\
-`The chancellor of the city’s schools, Kamar Samuels, is being investigated over a $180,000 no-bid deal dating to his previous role.`\
-https://www.nytimes.com/2026/06/11/nyregion/nyc-schools-chancellor-contract-investigation.html
-
-**The Mystery Artist Filling Subway Ad Space With Whimsy**\
-`Sue Sarah Gilbert, a Rockefeller descendant in Seattle, raised $1 million to place her drawings in New York City stations.`\
-https://www.nytimes.com/2026/06/11/nyregion/nyc-subway-art-susan-bird.html
-
-**NYT Spelling Bee Answers for June 11, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/06/11/crosswords/spelling-bee-forum.html
 
