@@ -1,3 +1,11 @@
+**More Trump Losses in Court and a Federal Judge in Hot Water**\
+`A roundup of legal news from the last week.`\
+https://www.nytimes.com/2026/06/11/us/politics/the-docket-legal-roundup.html
+
+**Dallas Takes Step Toward Leaving City Hall Building**\
+`City leaders rejected a plan to repair the aging building, moving the city closer to opening a prime downtown site for redevelopment.`\
+https://www.nytimes.com/2026/06/11/us/dallas-city-hall-relocation.html
+
 **Vance Boelter Pleads Guilty in Assassination of Minnesota Lawmaker**\
 `Federal prosecutors said they would not seek the death penalty for Vance Boelter, who still faces charges in state court.`\
 https://www.nytimes.com/2026/06/11/us/minnesota-assassination-plea-hearing-hortman.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/es/2026/06/11/espanol/america-latina/mexico-mundial-bole
 **Better Sex, Better Hair, Better Sleep: ‘Humanmaxxing’ Is Here**\
 `The biotech billionaire who wants to rebuild your body and blow your mind.`\
 https://www.nytimes.com/2026/06/11/opinion/biotech-maxxing-christian-angermayer.html
-
-**36 Hours in Athens, Greece: Things to Do and See**\
-`In Athens, experimental restaurants and lively bars brush up against archaeological ruins and millennia-old neighborhoods — proof that this ancient metropolis is no mere monument to the past.`\
-https://www.nytimes.com/interactive/2026/06/11/travel/things-to-do-athens.html
-
-**The Terrible Man Theory of History**\
-`The solution to Trumpism isn’t to conform to the spirit of the age, but to transform it.`\
-https://www.nytimes.com/2026/06/11/opinion/platner-trump-character-leadership.html
 
 **Iran War Live Updates: U.S.-Iran Strikes Risk Dangerous New Phase**\
 `The exchanges of fire this week have raised fears of a return to all-out war. The U.S. military struck another tanker it said was carrying Iranian oil and three Indians were reported killed in an earlier American attack at sea.`\

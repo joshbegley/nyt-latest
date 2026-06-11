@@ -1,3 +1,11 @@
+**More Trump Losses in Court and a Federal Judge in Hot Water**\
+`A roundup of legal news from the last week.`\
+https://www.nytimes.com/2026/06/11/us/politics/the-docket-legal-roundup.html
+
+**Dallas Takes Step Toward Leaving City Hall Building**\
+`City leaders rejected a plan to repair the aging building, moving the city closer to opening a prime downtown site for redevelopment.`\
+https://www.nytimes.com/2026/06/11/us/dallas-city-hall-relocation.html
+
 **Vance Boelter Pleads Guilty in Assassination of Minnesota Lawmaker**\
 `Federal prosecutors said they would not seek the death penalty for Vance Boelter, who still faces charges in state court.`\
 https://www.nytimes.com/2026/06/11/us/minnesota-assassination-plea-hearing-hortman.html
