@@ -1,3 +1,31 @@
+**Whipsawed Between Fear and Relief, Iranians Hope for War’s End**\
+`In addition to concerns about their safety in the event of another all-out war, many Iranians worry about the country’s economy further collapsing if the conflict remains in limbo.`\
+https://www.nytimes.com/2026/06/11/world/middleeast/iran-war-fear-hope.html
+
+**Rikers Employee Charged With Extorting Corrections Officers for Gifts**\
+`A supervisor at the Rikers Island jail complex threatened to withhold overtime pay and vacation days from officers who did not give her gifts and run her errands, prosecutors said.`\
+https://www.nytimes.com/2026/06/11/nyregion/rikers-jail-supervisor-extortion.html
+
+**Children’s Lemonade Stand Is Robbed in Broad Daylight in Boston**\
+`The police were searching for two boys who they said flashed a gun at a girl, 11, and boy, 12, who were running the stand in South Boston on Wednesday.`\
+https://www.nytimes.com/2026/06/11/us/boston-lemonade-stand-armed-robbery.html
+
+**Trump Claims Deal With Iran is Close and Retracts Threat to Attack**\
+`President Trump said he had canceled the next wave of attacks on Iran after two days of U.S. airstrikes, claiming peace negotiations have progressed.`\
+https://www.nytimes.com/video/us/politics/100000010962144/trump-iran-peace-deal-attacks.html
+
+**Gabbard Revokes Biden-Era Assessments on Mysterious Ailments**\
+`Earlier reviews had cast doubt on the idea that a foreign adversary was behind Havana syndrome, a range of symptoms that American spies and diplomats reported.`\
+https://www.nytimes.com/2026/06/11/us/politics/gabbard-havana-syndrome.html
+
+**Lander, Running for Congress, Found Not Guilty After ICE Facility Arrest**\
+`Brad Lander is running in a hotly contested primary to unseat another New York Democrat, Representative Daniel Goldman.`\
+https://www.nytimes.com/2026/06/11/nyregion/brad-lander-immigration-arrest-not-guilty.html
+
+**The World Cup Is Officially Underway**\
+`Also, Trump picks a new intelligence chief. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/06/11/briefing/world-cup-trump-spy-chief.html
+
 **The SpaceX Shareholder at the Helm of a Multibillion-Dollar Payout**\
 `Justin Fishner-Wolfson, long a minor figure in Elon Musk’s orbit, is at the helm of a multibillion-dollar payout.`\
 https://www.nytimes.com/2026/06/11/business/spacex-ipo-137-ventures.html

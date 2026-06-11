@@ -1,3 +1,31 @@
+**Whipsawed Between Fear and Relief, Iranians Hope for War’s End**\
+`In addition to concerns about their safety in the event of another all-out war, many Iranians worry about the country’s economy further collapsing if the conflict remains in limbo.`\
+https://www.nytimes.com/2026/06/11/world/middleeast/iran-war-fear-hope.html
+
+**Rikers Employee Charged With Extorting Corrections Officers for Gifts**\
+`A supervisor at the Rikers Island jail complex threatened to withhold overtime pay and vacation days from officers who did not give her gifts and run her errands, prosecutors said.`\
+https://www.nytimes.com/2026/06/11/nyregion/rikers-jail-supervisor-extortion.html
+
+**Children’s Lemonade Stand Is Robbed in Broad Daylight in Boston**\
+`The police were searching for two boys who they said flashed a gun at a girl, 11, and boy, 12, who were running the stand in South Boston on Wednesday.`\
+https://www.nytimes.com/2026/06/11/us/boston-lemonade-stand-armed-robbery.html
+
+**Trump Claims Deal With Iran is Close and Retracts Threat to Attack**\
+`President Trump said he had canceled the next wave of attacks on Iran after two days of U.S. airstrikes, claiming peace negotiations have progressed.`\
+https://www.nytimes.com/video/us/politics/100000010962144/trump-iran-peace-deal-attacks.html
+
+**Gabbard Revokes Biden-Era Assessments on Mysterious Ailments**\
+`Earlier reviews had cast doubt on the idea that a foreign adversary was behind Havana syndrome, a range of symptoms that American spies and diplomats reported.`\
+https://www.nytimes.com/2026/06/11/us/politics/gabbard-havana-syndrome.html
+
+**Lander, Running for Congress, Found Not Guilty After ICE Facility Arrest**\
+`Brad Lander is running in a hotly contested primary to unseat another New York Democrat, Representative Daniel Goldman.`\
+https://www.nytimes.com/2026/06/11/nyregion/brad-lander-immigration-arrest-not-guilty.html
+
+**The World Cup Is Officially Underway**\
+`Also, Trump picks a new intelligence chief. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/06/11/briefing/world-cup-trump-spy-chief.html
+
 **Trump, in Latest Pivot, Retracts Threat to Strike Iran Again and Widen the War**\
 `Mr. Trump said that Iran was close to signing a peace deal. So far, weeks of talks have failed to produce an agreement.`\
 https://www.nytimes.com/2026/06/11/world/middleeast/trump-retracts-threat-iran.html
@@ -169,32 +197,4 @@ https://www.nytimes.com/2026/06/11/books/review/new-recommended-books.html
 **This Is What Joy Looks Like for Knicks Fans**\
 `A thrilling, historic comeback victory in Game 4 of the N.BA. finals sent Madison Square Garden, and the rest of New York City, into a lasting frenzy.`\
 https://www.nytimes.com/2026/06/11/nyregion/knicks-win-celebrations.html
-
-**Imágenes satelitales sugieren que EE. UU. lanzó ataques de precisión contra una planta de agua iraní**\
-`No está claro si EE. UU. atacó la instalación de forma intencional o si sabía lo que era. Atacar deliberadamente infraestructuras civiles podría constituir un crimen de guerra.`\
-https://www.nytimes.com/es/2026/06/11/espanol/mundo/estados-unidos-ataque-iran-planta-agua.html
-
-**Europe Offers Somali World Cup Referee Blocked by U.S. a New Stage**\
-`The referee, Omar Artan, was turned away by immigration officials in Miami, but the governing body for soccer in Europe said he would officiate a high-profile club match in September.`\
-https://www.nytimes.com/2026/06/11/sports/soccer/world-cup-somali-referee-omar-artan.html
-
-**Netanyahu Aide Charged With Endangering Israeli Security Over Document Leak**\
-`Jonatan Urich, a media adviser to the Israeli prime minister, was accused of passing classified intelligence about negotiations with Hamas to a German newspaper.`\
-https://www.nytimes.com/2026/06/11/world/middleeast/netanyahu-aide-charged-document-leak.html
-
-**Skeptics Question Whether SpaceX Is Worth $1.77 Trillion**\
-`Elon Musk’s rocket company is spending big and losing money. That has raised questions about whether it can justify its valuation for its blockbuster initial public offering.`\
-https://www.nytimes.com/2026/06/11/technology/spacex-valuation-skeptics.html
-
-**The SpaceX Shareholder at the Helm of a Multibillion-Dollar Payout**\
-`Justin Fishner-Wolfson, long a minor figure in Elon Musk’s orbit, is at the helm of a multibillion-dollar payout.`\
-https://www.nytimes.com/2026/06/11/business/spacex-ipo-137-ventures.html
-
-**These Dense Bean Salads Are Smart**\
-`Long before the TikTok trend, we were mixing up beans, veggies and tangy dressings here at New York Times Cooking.`\
-https://www.nytimes.com/2026/06/11/dining/these-dense-bean-salads-are-smart.html
-
-**¿Cura médica o bebé a medida? Un nuevo estudio sobre la edición de embriones desata el debate**\
-`Los especialistas en fertilidad, las empresas biotecnológicas y los expertos en ética están divididos sobre los avances en la edición genética temprana.`\
-https://www.nytimes.com/es/2026/06/11/espanol/ciencia-y-tecnologia/edicion-embriones-genetica-adn.html
 
