@@ -1,3 +1,7 @@
+**The Swiss Team Made a Joke. It Slithered Over People’s Heads.**\
+`A map of the San Diego facility that the team is using as its base led people to believe that snakes had infiltrated the premises.`\
+https://www.nytimes.com/2026/06/10/us/switzerland-world-cup-snakes-joke.html
+
 **NYT Crossword Answers for June 11, 2026**\
 `Nikhil Bailey’s debut puzzle is a numbers game.`\
 https://www.nytimes.com/2026/06/10/crosswords/daily-puzzle-2026-06-11.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/06/10/science/humans-walking-veer-left-counterclock
 **Mace Defeat Heralds an Exodus of Rabble-Rousers From Congress**\
 `The Republican congresswoman from South Carolina, who made enemies on both sides of the political aisle, is just one of several flashy lawmakers to be leaving Capitol Hill.`\
 https://www.nytimes.com/2026/06/10/us/politics/nancy-mace-congress-south-carolina.html
-
-**The Good List: 6 Things to Add Joy to Your Day**\
-`Dancing pigeons, mystery stew and a nostalgia machine.`\
-https://www.nytimes.com/2026/06/10/briefing/the-good-list-pigeons-knicks.html
 
 **World Cup Updates: U.S. Immigration Policies Turn Some Fans and Participants Away**\
 `(No description)`\
