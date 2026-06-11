@@ -1,3 +1,11 @@
+**Nadie gana en la guerra en Medio Oriente**\
+`Ninguno de los que han participado en las guerras recientes en Medio Oriente puede declararse vencedor. Todos son culpables.`\
+https://www.nytimes.com/es/2026/06/11/espanol/opinion/guerra-iran-estados-unidos-israel.html
+
+**It’s Godzilla vs. T. Rex Out There All Over America**\
+`Is there nothing voters won’t forgive?`\
+https://www.nytimes.com/2026/06/11/opinion/platner-maine-trump-character.html
+
 **The War in Ukraine Has Now Gone On Longer Than World War I**\
 `Parallels between the two wars abound, from the grinding nature of the fighting to the way new technologies reshaped warfare.`\
 https://www.nytimes.com/2026/06/11/world/europe/ukraine-russia-world-war-i.html
