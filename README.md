@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/06/11/arts/design/duane-michals-artist-of-wit-and-c
 `The world economy is weakening as energy prices fuel a new bout of inflation.`\
 https://www.nytimes.com/2026/06/11/business/economy/globa-economy-iran-war.html
 
-**The Researcher Who Decided Not to Know**\
+**The Researcher Who Didn’t Want to Know**\
 `Her decades of work on Huntington’s disease helped lead to the creation of a genetic test for the devastating condition. Why didn’t she take it herself?`\
 https://www.nytimes.com/2026/06/11/science/researcher-huntingtons-disease-wexler.html
 

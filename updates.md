@@ -1,3 +1,7 @@
+**‘Doctor Who’ Is in Limbo. What Does That Mean for Fans?**\
+`The BBC said there would be no Christmas special this year and is looking for a production company to take on the sci-fi classic. Followers have already dubbed this uncertain period “the Wilderness Years 2.0.”`\
+https://www.nytimes.com/2026/06/11/arts/doctor-who-christmas-special.html
+
 **Duane Michals, Artist of Wit and Courage**\
 `Our conversations over the years were, at times, philosophical, metaphysical, honest about the daily circumstances of our lives, and dishy, a photography critic says, as he looks back.`\
 https://www.nytimes.com/2026/06/11/arts/design/duane-michals-artist-of-wit-and-courage.html
