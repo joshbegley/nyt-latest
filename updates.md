@@ -1,3 +1,7 @@
+**Imágenes satelitales sugieren que EE. UU. lanzó ataques de precisión contra una planta de agua iraní**\
+`No está claro si EE. UU. atacó la instalación de forma intencional o si sabía lo que era. Atacar deliberadamente infraestructuras civiles podría constituir un crimen de guerra.`\
+https://www.nytimes.com/es/2026/06/11/espanol/mundo/estados-unidos-ataque-iran-planta-agua.html
+
 **Iran War Live Updates: Trump Retracts Latest Threats of More Strikes**\
 `Claiming there was progress in the peace negotiations, President Trump said he had canceled his next wave of planned attacks after two days of U.S. airstrikes.`\
 https://www.nytimes.com/live/2026/06/11/world/iran-war-trump-us-israel
