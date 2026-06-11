@@ -1,3 +1,7 @@
+**EE. UU. pidió a Colombia que cancelara la reunión de Petro con Mamdani**\
+`El Departamento de Estado había cancelado la visa del presidente Gustavo Petro el año pasado después de que asistió a una manifestación a favor de Palestina en Manhattan. Tenía previsto asistir a un foro organizado por el alcalde de Nueva York, Zohran Mamdani.`\
+https://www.nytimes.com/es/2026/06/10/espanol/mundo/petro-colombia-mamdani.html
+
 **How a High-Powered Gathering Turned Into a Knicks Watch Party**\
 `An event for some of New York’s elite shifted gears when a TV rolled into the bar.`\
 https://www.nytimes.com/2026/06/10/nyregion/knicks-spurs-party.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/06/10/style/graham-platner-primary-style.html
 **Nearly Everyone, Everywhere, Veers Left When Walking**\
 `Researchers are at a loss for why people across cultures and ages, regardless of their dominant hand, have a natural bias toward wandering in a counterclockwise direction.`\
 https://www.nytimes.com/2026/06/10/science/humans-walking-veer-left-counterclockwise.html
-
-**World Cup Updates: U.S. Immigration Policies Turn Some Fans and Participants Away**\
-`(No description)`\
-https://www.nytimes.com/live/2026/us/fifa-world-cup
 
