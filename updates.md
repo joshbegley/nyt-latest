@@ -1,3 +1,15 @@
+**Avril Haines, Former Intelligence Chief, Will Lead Carnegie Endowment for International Peace**\
+`In the run-up to the invasion of Ukraine, Ms. Haines helped devise the strategy of declassifying evidence of Russia’s military buildup in an effort to rally European allies.`\
+https://www.nytimes.com/2026/06/11/us/politics/avril-haines-carnegie-endowment-for-international-peace.html
+
+**Scientists Measure Earth’s Vast Underground Fungal Webs**\
+`With machine learning and a high-resolution imaging robot, scientists measured and mapped the extent of Earth’s carbon circulatory system.`\
+https://www.nytimes.com/2026/06/11/science/ecology-mycorrhizal-fungus.html
+
+**5 New Books We Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/06/11/books/review/new-recommended-books.html
+
 **This Is What Joy Looks Like for Knicks Fans**\
 `A thrilling, historic comeback victory in Game 4 of the N.BA. finals sent Madison Square Garden, and the rest of New York City, into a lasting frenzy.`\
 https://www.nytimes.com/2026/06/11/nyregion/knicks-win-celebrations.html

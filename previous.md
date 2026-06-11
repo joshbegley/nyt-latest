@@ -1,3 +1,15 @@
+**Avril Haines, Former Intelligence Chief, Will Lead Carnegie Endowment for International Peace**\
+`In the run-up to the invasion of Ukraine, Ms. Haines helped devise the strategy of declassifying evidence of Russia’s military buildup in an effort to rally European allies.`\
+https://www.nytimes.com/2026/06/11/us/politics/avril-haines-carnegie-endowment-for-international-peace.html
+
+**Scientists Measure Earth’s Vast Underground Fungal Webs**\
+`With machine learning and a high-resolution imaging robot, scientists measured and mapped the extent of Earth’s carbon circulatory system.`\
+https://www.nytimes.com/2026/06/11/science/ecology-mycorrhizal-fungus.html
+
+**5 New Books We Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/06/11/books/review/new-recommended-books.html
+
 **This Is What Joy Looks Like for Knicks Fans**\
 `A thrilling, historic comeback victory in Game 4 of the N.BA. finals sent Madison Square Garden, and the rest of New York City, into a lasting frenzy.`\
 https://www.nytimes.com/2026/06/11/nyregion/knicks-win-celebrations.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/2026/06/11/world/europe/ryanair-investigation-parents-ch
 **Colombia elige: ¿machismo o derechos de la mujer?**\
 `El favorito en las elecciones presidenciales ha desatado un debate sobre la masculinidad y el machismo. Los grupos defensores de los derechos de las mujeres ven en ello una estrategia habitual de la derecha.`\
 https://www.nytimes.com/es/2026/06/11/espanol/america-latina/colombia-abelardo-de-la-espriella-machismo.html
-
-**Orlan’s Face Is Her Canvas, and Her Calling Card**\
-`Orlan transformed herself through plastic surgery in the 1990s for an art project. Now, she is lecturing at the Louvre about changing perceptions of beauty.`\
-https://www.nytimes.com/2026/06/11/arts/design/orlan-louvre-lectures.html
-
-**Can SpaceX Defy A.I. Gravity?**\
-`Elon Musk’s rockets-and-artificial-intelligence company is going public as questions grow over the incredible spending spree taking place in the sector.`\
-https://www.nytimes.com/2026/06/11/business/dealbook/spacex-ipo-ai-spending.html
-
-**Two Men Sentenced to Death for 2015 Bangkok Bombing**\
-`A Thai court convicted the men, who are Uyghur, for a terrorist attack at a Hindu shrine that killed 20 and injured dozens more.`\
-https://www.nytimes.com/2026/06/11/world/asia/2015-bangkok-bombing-death-sentence.html
 
 **Iran War Live Updates: Trump Retracts Latest Threats of More Strikes**\
 `Claiming there was progress in the peace negotiations, President Trump said he had canceled his next wave of planned attacks after two days of U.S. airstrikes.`\
