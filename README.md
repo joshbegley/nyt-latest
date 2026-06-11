@@ -74,8 +74,8 @@ https://www.nytimes.com/video/embedded/sports/basketball/100000010959446/10vid-K
 `The wealthy have descended on New York for top basketball, golf and soccer events, and they need prime tickets.`\
 https://www.nytimes.com/2026/06/10/nyregion/knicks-tickets-courtside-concierge.html
 
-**Live Updates: Knicks Fans Greet Game 4 With Chaotic Energy**\
-`Taylor Swift was among the celebrities sitting courtside. Mayor Zohran Mamdani sparred with the team’s owner over who was to blame for the cancellation of a public watch party.`\
+**Knicks Live Updates: An Electric Atmosphere Delivers an Unforgettable Finish**\
+`Taylor Swift was among the celebrities sitting courtside in New York for a record comeback, moving the Knicks within a win of a long-awaited N.B.A. title.`\
 https://www.nytimes.com/live/2026/06/10/nyregion/nba-finals-knicks-spurs
 
 **Unusually Warm Weather in Bay Area Prompts Heat Alert and Wildfire Concerns**\
