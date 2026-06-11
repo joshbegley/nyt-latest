@@ -1,3 +1,11 @@
+**Some States Pull Out of Trump’s ‘Great American State Fair’**\
+`At least four have declined to participate, the latest sign that the national 250th birthday celebration has become a fragmented and partisan affair as the president seeks his imprint.`\
+https://www.nytimes.com/2026/06/11/us/politics/great-american-state-fair.html
+
+**Tornadoes Are Reported in Illinois as Storms Sweep the Midwest**\
+`For the second day in a row, Chicago is in the bull’s-eye of severe weather on Thursday, but the storm forecast is widespread.`\
+https://www.nytimes.com/2026/06/11/weather/chicago-illinois-tornado-storms.html
+
 **Whipsawed Between Fear and Relief, Iranians Hope for War’s End**\
 `In addition to concerns about their safety in the event of another all-out war, many Iranians worry about the country’s economy further collapsing if the conflict remains in limbo.`\
 https://www.nytimes.com/2026/06/11/world/middleeast/iran-war-fear-hope.html

@@ -1,5 +1,5 @@
 **Some States Pull Out of Trump’s ‘Great American State Fair’**\
-`At least four have declined to participate, the latest sign that the national 250th birthday celebration has become a fragmented and partisan affair as the president seeks his imprint.`\
+`At least five have declined to participate, the latest sign that the national 250th birthday celebration has become a fragmented and partisan affair as the president seeks his imprint.`\
 https://www.nytimes.com/2026/06/11/us/politics/great-american-state-fair.html
 
 **Tornadoes Are Reported in Illinois as Storms Sweep the Midwest**\
