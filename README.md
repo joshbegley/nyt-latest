@@ -1,3 +1,11 @@
+**Duane Michals, Artist of Wit and Courage**\
+`Our conversations over the years were, at times, philosophical, metaphysical, honest about the daily circumstances of our lives, and dishy, a photography critic says, as he looks back.`\
+https://www.nytimes.com/2026/06/11/arts/design/duane-michals-artist-of-wit-and-courage.html
+
+**World Bank Warns Iran War Is Slowing Global Growth**\
+`The world economy is weakening as energy prices fuel a new bout of inflation.`\
+https://www.nytimes.com/2026/06/11/business/economy/globa-economy-iran-war.html
+
 **The Researcher Who Decided Not to Know**\
 `Her decades of work on Huntington’s disease helped lead to the creation of a genetic test for the devastating condition. Why didn’t she take it herself?`\
 https://www.nytimes.com/2026/06/11/science/researcher-huntingtons-disease-wexler.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/11/world/americas/mexico-president-sheinbaum-wor
 **In the Protein Era, Even He-Man Is Hawking Supplements**\
 `To promote “Masters of the Universe,” Mattel, the toymaker behind the movie, tapped into one of the hottest trends in health and wellness: protein.`\
 https://www.nytimes.com/2026/06/11/business/he-man-mattel-marketing-protein-supplements.html
-
-**Since When Did Calling Something ‘Ultra’ Become an Insult?**\
-`The prefix has been used as a marketing tactic for decades. But when life feels extreme, it more often means something negative.`\
-https://www.nytimes.com/2026/06/11/magazine/ultraprocessed-food-insult.html
-
-**How to File a Travel Insurance Claim**\
-`The process involves attention to detail and, above all, documentation. Here’s what you need to know.`\
-https://www.nytimes.com/2026/06/11/travel/how-to-file-a-travel-insurance-claim.html
 
