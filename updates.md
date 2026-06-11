@@ -1,7 +1,3 @@
-**Top Pentagon Official Worked Closely With C.I.A. Officer Later Found With Gold Bars**\
-`David Rush, the C.I.A. employee, worked on a highly classified China spying program with Stephen A. Feinberg, the Pentagon’s second-ranking official.`\
-https://www.nytimes.com/2026/06/10/us/politics/pentagon-cia-officer-gold-bars.html
-
 **Hot Cars and Stolen Crypto: A Canadian Teen Pocketed Millions, Prosecutors Say**\
 `A case illustrates both the low-hanging opportunities new financial technologies offer to scammers and the downside of speeding in a Rolls-Royce.`\
 https://www.nytimes.com/2026/06/10/world/canada/canada-crypto-fraud.html
@@ -189,6 +185,10 @@ https://www.nytimes.com/2026/06/10/us/world-cup-ice-immigration-enforcement.html
 **A.I. Chatbot Helps a $100 Thrift Store Painting Sell for Over $250,000**\
 `When a son got curious about the origins of a painting his mother bought at a secondhand shop decades ago, Google Gemini had some intriguing thoughts.`\
 https://www.nytimes.com/2026/06/10/arts/design/ai-gemini-thrift-store-painting-sale.html
+
+**Southern Baptists Move to Strengthen Ban on Women Pastors**\
+`The amendment passed easily at the denomination’s annual gathering. It needs approval again next year to enter the constitution.`\
+https://www.nytimes.com/2026/06/10/us/sbc-southern-baptist-convention.html
 
 **World Cup Updates: U.S. Immigration Policies Turn Some Fans and Participants Away**\
 `(No description)`\
