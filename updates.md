@@ -1,3 +1,11 @@
+**How a High-Powered Gathering Turned Into a Knicks Watch Party**\
+`An event for some of New York’s elite shifted gears when a TV rolled into the bar.`\
+https://www.nytimes.com/2026/06/10/nyregion/knicks-spurs-party.html
+
+**Knicks Owner Cancels Watch Party As Spat With Mamdani Escalates**\
+`Hours before Wednesday’s game began, James Dolan, the owner of the Knicks, and Mayor Zohran Mamdani were publicly battling over who was to blame for the cancellation.`\
+https://www.nytimes.com/2026/06/10/nyregion/msg-knicks-watch-party-canceled.html
+
 **Victor Wembanyama, the Knicks’ Biggest Foe and New York’s Biggest Tourist**\
 `Mr. Wembanyama has had to keep a low profile while in New York to try and win the N.B.A. finals, but on visits there, he has always resisted hiding in hotel rooms and private cars.`\
 https://www.nytimes.com/2026/06/10/nyregion/wemby-drawing-park-visiting-nyc.html

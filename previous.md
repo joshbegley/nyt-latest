@@ -1,3 +1,7 @@
+**How a High-Powered Gathering Turned Into a Knicks Watch Party**\
+`An event for some of New York’s elite shifted gears when a TV rolled into the bar.`\
+https://www.nytimes.com/2026/06/10/nyregion/knicks-spurs-party.html
+
 **The Swiss Team Made a Joke. It Slithered Over People’s Heads.**\
 `A map of the San Diego facility that the team is using as its base led people to believe that snakes had infiltrated the premises.`\
 https://www.nytimes.com/2026/06/10/us/switzerland-world-cup-snakes-joke.html
@@ -86,7 +90,7 @@ https://www.nytimes.com/2026/06/10/weather/storms-illinois-wisconsin-tornado-pow
 `With the World Cup facing growing crises, Gianni Infantino, the FIFA president, struck a defiant tone on the eve of the competition’s start.`\
 https://www.nytimes.com/2026/06/10/world/europe/fifa-president-world-cup.html
 
-**Knicks Owner Cancels Watch Party As Spat with Mamdani Escalates**\
+**Knicks Owner Cancels Watch Party As Spat With Mamdani Escalates**\
 `Hours before Wednesday’s game began, James Dolan, the owner of the Knicks, and Mayor Zohran Mamdani were publicly battling over who was to blame for the cancellation.`\
 https://www.nytimes.com/2026/06/10/nyregion/msg-knicks-watch-party-canceled.html
 
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/06/10/style/graham-platner-primary-style.html
 **Nearly Everyone, Everywhere, Veers Left When Walking**\
 `Researchers are at a loss for why people across cultures and ages, regardless of their dominant hand, have a natural bias toward wandering in a counterclockwise direction.`\
 https://www.nytimes.com/2026/06/10/science/humans-walking-veer-left-counterclockwise.html
-
-**Mace Defeat Heralds an Exodus of Rabble-Rousers From Congress**\
-`The Republican congresswoman from South Carolina, who made enemies on both sides of the political aisle, is just one of several flashy lawmakers to be leaving Capitol Hill.`\
-https://www.nytimes.com/2026/06/10/us/politics/nancy-mace-congress-south-carolina.html
 
 **World Cup Updates: U.S. Immigration Policies Turn Some Fans and Participants Away**\
 `(No description)`\
