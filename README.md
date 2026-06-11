@@ -1,3 +1,7 @@
+**A New Hotel From Lake Como’s Grande Dame**\
+`Plus: a Danh Vo exhibition on a Danish island, wood-fired ceramics and more recommendations from T Magazine.`\
+https://www.nytimes.com/2026/06/11/t-magazine/lake-como-italy-hotel.html
+
 **The Young Economic Populists Reshaping the Left**\
 `As Democrats wrestle over the direction of their party, a new crop of progressive candidates sees college graduates among its biggest supporters.`\
 https://www.nytimes.com/2026/06/11/podcasts/the-daily/college-graduates-economic-populists-democrats.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/11/style/when-dc-goes-hgtv.html
 **Running Around N.Y.C. With ‘Deli Boys’ Mob Boss Auntie**\
 `Poorna Jagannathan, who plays Lucky Auntie in “Deli Boys” on Hulu, is finally over the impostor syndrome.`\
 https://www.nytimes.com/2026/06/11/style/running-around-nyc-with-deli-boys-mob-boss-auntie.html
-
-**Mike Amiri Knows What Travis Kelce and Marcus Rashford Want to Wear**\
-`How Amiri built a brand on the culture of sports.`\
-https://www.nytimes.com/2026/06/11/style/world-cup-fashion-mike-amiri.html
 
