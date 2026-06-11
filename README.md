@@ -1,3 +1,7 @@
+**They Know About Loss. They’re Rooting for a Knicks Win.**\
+`Inspired by the words of Karl-Anthony Towns, Sparrow Funeral Home in Brooklyn, hosted a watch party for basketball fans and grieving neighbors alike.`\
+https://www.nytimes.com/2026/06/10/nyregion/they-know-about-loss-theyre-rooting-for-a-knicks-win.html
+
 **EE. UU. pidió a Colombia que cancelara la reunión de Petro con Mamdani**\
 `El Departamento de Estado había cancelado la visa del presidente Gustavo Petro el año pasado después de que asistió a una manifestación a favor de Palestina en Manhattan. Tenía previsto asistir a un foro organizado por el alcalde de Nueva York, Zohran Mamdani.`\
 https://www.nytimes.com/es/2026/06/10/espanol/mundo/petro-colombia-mamdani.html
