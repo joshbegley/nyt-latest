@@ -1,3 +1,11 @@
+**How Should Democrats Talk About Climate Change?**\
+`A big new milestone for solar power, a shift in Democratic messaging and more climate news.`\
+https://www.nytimes.com/2026/06/11/climate/democrats-climate-change.html
+
+**4 Book Recommendations for Father's Day**\
+`Ahead of Father’s Day, the best-selling author Ryan Holiday joined the “Book Review” podcast to discuss one of The New York Times’s “100 Best Books of the 21st Century,” “The Road.” While he was with us, he also told us some of his recommendations for other books to give the dads or parents in your life.`\
+https://www.nytimes.com/video/podcasts/100000010961709/4-book-recommendations-for-fathers-day.html
+
 **13 Civilians Killed in Pakistani Airstrikes in Afghanistan**\
 `Pakistan’s airstrikes on Afghanistan on Wednesday ended a period of calm, threatening a return to what Pakistan previously called an “open war” between the neighbors.`\
 https://www.nytimes.com/video/world/asia/100000010960522/13-civilians-killed-pakistani-airstrikes-in-afghanistan.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/11/us/politics/house-spy-program-bill.html
 **Can the U.S.-Iran Cease-Fire Survive Days of Strikes?**\
 `Analysts saw little prospect of either President Trump or Tehran backing down after days of exchanging fire.`\
 https://www.nytimes.com/2026/06/11/world/middleeast/iran-us-war-strikes-ceasefire.html
-
-**Boston Symphony in Crisis Over Dismissal of Andris Nelsons**\
-`Chad Smith, the orchestra’s president, admitted missteps in terminating Andris Nelsons’s contract but stood by the decision and won’t step down.`\
-https://www.nytimes.com/2026/06/11/arts/music/boston-symphony-andris-nelsons-chad-smith.html
-
-**Iran War Live Updates: Trump Retracts Latest Threats of More Strikes**\
-`Claiming there was progress in the peace negotiations, President Trump said he had canceled his next wave of planned attacks after two days of U.S. airstrikes.`\
-https://www.nytimes.com/live/2026/06/11/world/iran-war-trump-us-israel
 
