@@ -1,3 +1,7 @@
+**Trump’s Plaques on the Presidential ‘Walk of Fame,’ Fact-Checked and Annotated by Historians**\
+`President Trump’s ‘Walk of Fame’ has an unreliable narrator. We asked eight historians what they thought.`\
+https://www.nytimes.com/interactive/2026/06/10/us/politics/trump-president-plaques-white-house.html
+
 **Analysis of Satellite Image and Videos Suggest Precision U.S. Strikes on Iranian Water Facility**\
 `It is unclear if the U.S. intentionally struck the facility or knew what it was. Deliberately targeting civilian infrastructure could constitute a war crime.`\
 https://www.nytimes.com/2026/06/10/world/middleeast/precision-strike-iran-water.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/video/world/africa/100000010957717/us-ebola-quarantine-u
 **Disturbios en Irlanda del Norte: lo que hay que saber**\
 `Un brutal apuñalamiento ocurrido en Belfast esta semana ha avivado el sentimiento antimigrantes que ya estaba latente.`\
 https://www.nytimes.com/es/2026/06/10/espanol/mundo/irlanda-norte-disturbios-belfast.html
-
-**Russian Military Official Killed in Car Explosion Near Moscow**\
-`A senior Russian military officer was killed in a car explosion on Tuesday, a Ukrainian official and Russian media outlets said. The incident appears to be the latest targeted assassination of high-profile opponents of Ukraine in Russia.`\
-https://www.nytimes.com/video/world/europe/100000010958164/russia-military-official-killed-car-bomb.html
 
 **World Cup Updates: U.S. Immigration Policies Turn Some Fans and Participants Away**\
 `(No description)`\
