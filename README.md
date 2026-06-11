@@ -1,3 +1,31 @@
+**Mike Amiri Knows What Travis Kelce and Marcus Rashford Want to Wear**\
+`How Amiri built a brand on the culture of sports.`\
+https://www.nytimes.com/2026/06/11/style/world-cup-fashion-mike-amiri.html
+
+**A Youthful Crop of Politicians Run on Housing, and Their Own Rent**\
+`A cohort of young Millennial and Gen Z politicians have centered their campaigns this year on housing costs, and the divide is more generational than partisan.`\
+https://www.nytimes.com/2026/06/11/us/politics/gen-z-politicians-housing-costs.html
+
+**Book Review: ‘This Dark Night: Emily Brontë, a Life,’ by Deborah Lutz**\
+`In her lyrical new biography, “This Dark Night,” Deborah Lutz shines light on the most enigmatic of the literary, secluded Brontë sisters.`\
+https://www.nytimes.com/2026/06/11/books/review/this-dark-night-deborah-lutz.html
+
+**In the Fastest-Warming City in the U.S., These Artists See Hope**\
+`At the Nevada Museum of Art, five examples of artist-activists shining a light on the Great Basin Desert and beyond.`\
+https://www.nytimes.com/2026/06/11/arts/design/nevada-museum-of-art-reno.html
+
+**Ruth Ozeki on Her Favorite Books and Her New Collection, ‘The Typing Lady’**\
+`She wanted to learn about pyramids, and ended up with hallucinatory sex scenes. Her new book is a provocation: Just what genre is it anyway?`\
+https://www.nytimes.com/2026/06/11/books/review/ruth-ozeki-the-typing-lady.html
+
+**Conor McGregor’s Comeback: A Tale of Banned Drugs and a Famous Doctor**\
+`McGregor, the Ultimate Fighting Championship’s main attraction, had the support of the prominent sports physician Neal ElAttrache when he decided to use performance-enhancing drugs.`\
+https://www.nytimes.com/2026/06/11/us/politics/conor-mcgregor-ufc-drugs.html
+
+**She Was One of Obama’s Top Lawyers. How Did She Get Tangled Up With Epstein?**\
+`That she, of all people, looked past his 2008 conviction tells you everything you need to know about how unreliable and corroded the legal world has become.`\
+https://www.nytimes.com/2026/06/11/opinion/kathy-ruemmler-epstein-emails.html
+
 **U.S. and Iran Exchange Fresh Strikes**\
 `The United States launched a new wave of airstrikes on Iran early Thursday, and Iran claimed to have retaliated, bringing the two sides close to a return to all-out war.`\
 https://www.nytimes.com/video/world/middleeast/100000010959783/us-iran-exchange-strikes.html
@@ -165,32 +193,4 @@ https://www.nytimes.com/2026/06/10/nyregion/knicks-tickets-courtside-concierge.h
 **Knicks Fans Greet Game 4 Win With Chaotic Energy**\
 `Taylor Swift and Timothée Chalamet were among the celebrities celebrating courtside in New York after a record comeback moved the Knicks within a win of a long-awaited N.B.A. title.`\
 https://www.nytimes.com/live/2026/06/10/nyregion/nba-finals-knicks-spurs
-
-**Unusually Warm Weather in Bay Area Prompts Heat Alert and Wildfire Concerns**\
-`High temperatures across the San Francisco Bay Area will reach into the 90s on Thursday, forecasters said.`\
-https://www.nytimes.com/2026/06/10/weather/san-francisco-heat-fire.html
-
-**Victor Wembanyama, the Knicks’ Biggest Foe and New York’s Biggest Tourist**\
-`Mr. Wembanyama has had to keep a low profile while in New York to try and win the N.B.A. finals, but on visits there, he has always resisted hiding in hotel rooms and private cars.`\
-https://www.nytimes.com/2026/06/10/nyregion/wemby-drawing-park-visiting-nyc.html
-
-**Canada Moves to Ban Social Media Use for Youth Under 16**\
-`The country’s previous attempt to get tech companies to shelter young users failed amid heavy criticism from civil liberty groups.`\
-https://www.nytimes.com/2026/06/10/world/canada/social-meda-kids-legislation-carney.html
-
-**La OPI de SpaceX hará millonarios a 4400 de sus empleados**\
-`Elon Musk podría convertirse pronto en un billonario, pero la salida a bolsa de su empresa de cohetes también extenderá una riqueza inesperada a miles de sus empleados y exempleados.`\
-https://www.nytimes.com/es/2026/06/10/espanol/negocios/opi-spacex-bolsa-empleados.html
-
-**Pope Leo Blesses the Sagrada Familia**\
-`Pope Leo XIV inaugurated the Sagrada Familia basilica’s newly completed central tower on Wednesday.`\
-https://www.nytimes.com/video/world/europe/100000010958149/pope-leo-blesses-the-sagrada-familia.html
-
-**Storms Knock Out Power for Hundreds of Thousands in the Midwest**\
-`Forecasters warned that destructive storms were expected across the region into Wednesday night.`\
-https://www.nytimes.com/2026/06/10/weather/storms-illinois-wisconsin-tornado-power-outages.html
-
-**FIFA President Tells World Cup Critics to ‘Chill’ About Concerns**\
-`With the World Cup facing growing crises, Gianni Infantino, the FIFA president, struck a defiant tone on the eve of the competition’s start.`\
-https://www.nytimes.com/2026/06/10/world/europe/fifa-president-world-cup.html
 
