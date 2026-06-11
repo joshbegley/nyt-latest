@@ -1,3 +1,11 @@
+**Cuba sin combustible: EE. UU. bloquea acuerdo y endurece sanciones**\
+`La operación para enviar 250.000 barriles de combustible podría haber aliviado la crisis energética, pero el gobierno de Trump dice que Vanguard Energy no tiene autorización para proceder.`\
+https://www.nytimes.com/es/2026/06/11/espanol/america-latina/cuba-combustible-bloqueo-estados-unidos.html
+
+**The SpaceX I.P.O. Rocket**\
+`Elon Musk and people in his orbit are about to get much, much richer.`\
+https://www.nytimes.com/2026/06/11/world/spacex-ipo.html
+
 **Copa Mundial 2026: máxima seguridad en el partido en Ciudad de México**\
 `Previo al inicio del mayor Mundial de la historia y durante el partido inicial, fuerzas del orden rodeaban al estadio anfitrión para contener a miles de manifestantes.`\
 https://www.nytimes.com/es/2026/06/11/espanol/america-latina/copa-mundial-mexico-partido.html
@@ -66,8 +74,8 @@ https://www.nytimes.com/video/podcasts/100000010961709/4-book-recommendations-fo
 `Pakistan’s airstrikes on Afghanistan on Wednesday ended a period of calm, threatening a return to what Pakistan previously called an “open war” between the neighbors.`\
 https://www.nytimes.com/video/world/asia/100000010960522/13-civilians-killed-pakistani-airstrikes-in-afghanistan.html
 
-**Security Is Tight as a Match in Mexico City Starts a Historic World Cup**\
-`As the largest World Cup ever kicks off in Mexico City on Thursday afternoon, the security around Estadio Azteca was strict, as law enforcement officers held off protesters.`\
+**Security Is Tight as a Mexico Win Starts a Historic World Cup**\
+`As the largest World Cup kicked off in Mexico City on Thursday, the security around Estadio Azteca was strict, as law enforcement officers held off protesters.`\
 https://www.nytimes.com/2026/06/11/world/americas/mexico-city-world-cup.html
 
 **Absent From the SpaceX and OpenAI I.P.O.s? Chinese Investors.**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/embedded/nyregion/100000010960670/11vid-knicks-car
 **Trump Makes New Threats After U.S. and Iran Exchange Fresh Strikes**\
 `President Trump has vowed to keep up military pressure on Iran after the latest exchange of overnight attacks.`\
 https://www.nytimes.com/video/world/middleeast/100000010960555/trump-makes-new-threats-after-us-and-iran-exchange-fresh-strikes.html
-
-**More Trump Losses in Court and a Federal Judge in Hot Water**\
-`A roundup of legal news from the last week.`\
-https://www.nytimes.com/2026/06/11/us/politics/the-docket-legal-roundup.html
-
-**Dallas Takes Step Toward Leaving City Hall Building**\
-`City leaders rejected a plan to repair the aging building, moving the city closer to opening a prime downtown site for redevelopment.`\
-https://www.nytimes.com/2026/06/11/us/dallas-city-hall-relocation.html
 

@@ -1,3 +1,7 @@
+**Copa Mundial 2026: máxima seguridad en el partido en Ciudad de México**\
+`Previo al inicio del mayor Mundial de la historia y durante el partido inicial, fuerzas del orden rodeaban al estadio anfitrión para contener a miles de manifestantes.`\
+https://www.nytimes.com/es/2026/06/11/espanol/america-latina/copa-mundial-mexico-partido.html
+
 **Workers at Washington Paper Mill Died of Chemical Burns**\
 `The coroner of Cowlitz County confirmed the cause of death of 10 of the 11 workers who perished last month in the worst industrial accident in the state’s modern history.`\
 https://www.nytimes.com/2026/06/11/us/cause-of-death-washington-paper-mill-explosion.html
@@ -30,8 +34,8 @@ https://www.nytimes.com/2026/06/11/technology/spacex-ipo-price.html
 `The Supreme Court “has committed violence against the ways in which ordinary people can have a voice in our system,” says Senator Raphael Warnock, a Democrat from Georgia.`\
 https://www.nytimes.com/video/podcasts/100000010961922/raphael-warnock-we-are-witnessing-an-assault-on-basic-voting-rights.html
 
-**Lorem ipsum dolor sit amet**\
-`summary`\
+**Published in error**\
+`This article was published in error.`\
 https://www.nytimes.com/interactive/2026/06/11/business/box-office-charts.html
 
 **Looking for an Egyptian Sandwich and More Reader Questions**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/11/us/politics/the-docket-legal-roundup.html
 **Dallas Takes Step Toward Leaving City Hall Building**\
 `City leaders rejected a plan to repair the aging building, moving the city closer to opening a prime downtown site for redevelopment.`\
 https://www.nytimes.com/2026/06/11/us/dallas-city-hall-relocation.html
-
-**Vance Boelter Pleads Guilty in Assassination of Minnesota Lawmaker**\
-`Federal prosecutors said they would not seek the death penalty for Vance Boelter, who still faces charges in state court.`\
-https://www.nytimes.com/2026/06/11/us/minnesota-assassination-plea-hearing-hortman.html
 

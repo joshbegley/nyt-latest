@@ -1,3 +1,11 @@
+**Copa Mundial 2026: máxima seguridad en el partido en Ciudad de México**\
+`Previo al inicio del mayor Mundial de la historia y durante el partido inicial, fuerzas del orden rodeaban al estadio anfitrión para contener a miles de manifestantes.`\
+https://www.nytimes.com/es/2026/06/11/espanol/america-latina/copa-mundial-mexico-partido.html
+
+**Published in error**\
+`This article was published in error.`\
+https://www.nytimes.com/interactive/2026/06/11/business/box-office-charts.html
+
 **Workers at Washington Paper Mill Died of Chemical Burns**\
 `The coroner of Cowlitz County confirmed the cause of death of 10 of the 11 workers who perished last month in the worst industrial accident in the state’s modern history.`\
 https://www.nytimes.com/2026/06/11/us/cause-of-death-washington-paper-mill-explosion.html
