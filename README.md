@@ -1,3 +1,11 @@
+**Nadie gana en la guerra en Medio Oriente**\
+`Ninguno de los que han participado en las guerras recientes en Medio Oriente puede declararse vencedor. Todos son culpables.`\
+https://www.nytimes.com/es/2026/06/11/espanol/opinion/guerra-iran-estados-unidos-israel.html
+
+**It’s Godzilla vs. T. Rex Out There All Over America**\
+`Is there nothing voters won’t forgive?`\
+https://www.nytimes.com/2026/06/11/opinion/platner-maine-trump-character.html
+
 **The War in Ukraine Has Now Gone On Longer Than World War I**\
 `Parallels between the two wars abound, from the grinding nature of the fighting to the way new technologies reshaped warfare.`\
 https://www.nytimes.com/2026/06/11/world/europe/ukraine-russia-world-war-i.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/10/world/middleeast/trump-oil-iran-strait-hormuz
 **New York City Can Move Men’s Shelter to East Village, Judge Rules**\
 `The judge had temporarily blocked the plan after residents sued, but she ultimately decided that the city’s argument for the relocation was reasonable.`\
 https://www.nytimes.com/2026/06/10/nyregion/homeless-men-shelter-east-village.html
-
-**Southern Lights Seen From International Space Station**\
-`The southern lights, also known as the aurora australis, were captured by the NASA astronaut Jessica Meir from the International Space Station on Saturday.`\
-https://www.nytimes.com/video/science/space/100000010958639/southern-lights-aurora-nasa-space.html
-
-**A Very Different World Cup**\
-`With a host country actively at war with a participating nation, this year’s tournament is set to be unlike any other.`\
-https://www.nytimes.com/2026/06/10/world/world-cup-mexico-iran-epstein.html
 
