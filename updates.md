@@ -1,3 +1,15 @@
+**A Country Bro With a Soft Heart**\
+`Tucker Wetmore is putting a fresh spin on bro-country, sprinkling in a little bit of emo sensitivity. Our critic, Jon Caramanica, breaks down his most recent single, “Sunburn,” on the “Popcast” Song of the Week.`\
+https://www.nytimes.com/video/podcasts/100000010961652/a-country-bro-with-a-soft-heart.html
+
+**‘All Men Are Created Equal’? Not Everyone Agrees.**\
+`Our founding creed has always had its critics.`\
+https://www.nytimes.com/2026/06/11/opinion/inequality-musk-thiel-carvalho-billionaires.html
+
+**Justice Dept. Pushes Limits of Its Power Over State Elections**\
+`The department once tried to stay out of state elections, urging caution. It is now pressing forward with claims of fraud as President Trump revives his unfounded assertions that elections cannot be trusted.`\
+https://www.nytimes.com/2026/06/11/us/politics/trump-california-vote-elections-investigations.html
+
 **How Should Democrats Talk About Climate Change?**\
 `A big new milestone for solar power, a shift in Democratic messaging and more climate news.`\
 https://www.nytimes.com/2026/06/11/climate/democrats-climate-change.html

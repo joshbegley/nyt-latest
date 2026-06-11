@@ -1,3 +1,7 @@
+**U.S. Blocks Deal by Florida-based Vanguard Energy to Supply Fuel to Cuba**\
+`The deal to ship 250,000 barrels of fuel to Cuba could have eased an energy crisis. But the Trump administration says Vanguard Energy lacks the authorization to proceed.`\
+https://www.nytimes.com/2026/06/11/world/americas/us-cuba-trump-energy-fuel.html
+
 **A Country Bro With a Soft Heart**\
 `Tucker Wetmore is putting a fresh spin on bro-country, sprinkling in a little bit of emo sensitivity. Our critic, Jon Caramanica, breaks down his most recent single, “Sunburn,” on the “Popcast” Song of the Week.`\
 https://www.nytimes.com/video/podcasts/100000010961652/a-country-bro-with-a-soft-heart.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/11/world/middleeast/israel-west-bank-settlements
 **Toronto Police Officer Fatally Shot While Investigating U.S. Consulate Shooting**\
 `The officer was shot on Thursday while investigating the firing of a gun outside the U.S. consulate in March, the authorities said.`\
 https://www.nytimes.com/2026/06/11/world/canada/toronto-police-officer-shooting-us.html
-
-**House Rejects Bill to Extend Surveillance Power With FISA Section 702 Set to Expire**\
-`A measure to temporarily continue a key surveillance law failed in the House, and members left for a weeklong recess, making an expiration all but inevitable.`\
-https://www.nytimes.com/2026/06/11/us/politics/house-spy-program-bill.html
 

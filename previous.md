@@ -1,3 +1,7 @@
+**A Country Bro With a Soft Heart**\
+`Tucker Wetmore is putting a fresh spin on bro-country, sprinkling in a little bit of emo sensitivity. Our critic, Jon Caramanica, breaks down his most recent single, “Sunburn,” on the “Popcast” Song of the Week.`\
+https://www.nytimes.com/video/podcasts/100000010961652/a-country-bro-with-a-soft-heart.html
+
 **How Should Democrats Talk About Climate Change?**\
 `A big new milestone for solar power, a shift in Democratic messaging and more climate news.`\
 https://www.nytimes.com/2026/06/11/climate/democrats-climate-change.html
@@ -18,7 +22,7 @@ https://www.nytimes.com/2026/06/11/world/americas/mexico-city-world-cup.html
 `SpaceX will not raise money from investors in China and Hong Kong. Others firms, like OpenAI, may follow suit.`\
 https://www.nytimes.com/2026/06/11/business/spacex-openai-ipo-china.html
 
-**‘All Men Are Created Equal’ Is Still a Radical Idea**\
+**‘All Men Are Created Equal’? Not Everyone Agrees.**\
 `Our founding creed has always had its critics.`\
 https://www.nytimes.com/2026/06/11/opinion/inequality-musk-thiel-carvalho-billionaires.html
 
@@ -158,8 +162,8 @@ https://www.nytimes.com/2026/06/11/world/middleeast/iran-attacks-kuwait-bahrain-
 `Optimizing. Maya Rudolph. And the New York Knicks.`\
 https://www.nytimes.com/2026/06/11/briefing/today-in-short.html
 
-**Trump Administration Pushes Limits of Election Investigations**\
-`The Justice Department once tried to stay out of state elections, urging caution. It is now pressing forward with claims of fraud as President Trump revives his unfounded assertions that elections cannot be trusted.`\
+**Justice Dept. Pushes Limits of Its Power Over State Elections**\
+`The department once tried to stay out of state elections, urging caution. It is now pressing forward with claims of fraud as President Trump revives his unfounded assertions that elections cannot be trusted.`\
 https://www.nytimes.com/2026/06/11/us/politics/trump-california-vote-elections-investigations.html
 
 **Saag Shrimp Is a Fast and Luscious Dinner**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/11/world/canada/toronto-police-officer-shooting-
 **House Rejects Bill to Extend Surveillance Power With FISA Section 702 Set to Expire**\
 `A measure to temporarily continue a key surveillance law failed in the House, and members left for a weeklong recess, making an expiration all but inevitable.`\
 https://www.nytimes.com/2026/06/11/us/politics/house-spy-program-bill.html
-
-**Can the U.S.-Iran Cease-Fire Survive Days of Strikes?**\
-`Analysts saw little prospect of either President Trump or Tehran backing down after days of exchanging fire.`\
-https://www.nytimes.com/2026/06/11/world/middleeast/iran-us-war-strikes-ceasefire.html
 
