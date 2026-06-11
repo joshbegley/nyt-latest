@@ -1,3 +1,11 @@
+**U.S. and Iran Exchange Fresh Strikes**\
+`The United States launched a new wave of airstrikes on Iran early Thursday, and Iran claimed to have retaliated, bringing the two sides close to a return to all-out war.`\
+https://www.nytimes.com/video/world/middleeast/100000010959783/us-iran-exchange-strikes.html
+
+**Inside the Knicks’ Historic Comeback to Take Game 4 of the N.B.A. Finals**\
+`Hear instant reaction to the New York Knicks’ win over the San Antonio Spurs.`\
+https://www.nytimes.com/2026/06/11/podcasts/knicks-spurs-nba-finals-game-4.html
+
 **America Signed Up for the World Cup. FIFA Stuck You With the Tab.**\
 `Adam Crafton and Pablo discuss how FIFA squeezed U.S. taxpayers with hidden costs.`\
 https://www.nytimes.com/2026/06/11/podcasts/america-signed-up-for-the-world-cup-fifa-stuck-you-with-the-tab.html
