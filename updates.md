@@ -1,3 +1,11 @@
+**The World Cup**\
+`Here’s what you should know about this massive competition.`\
+https://www.nytimes.com/2026/06/11/briefing/the-world-cup.html
+
+**Women Who Fled Iran Are to Be Deported to Central African Republic, Lawyers Say**\
+`The women are among nearly two dozen people slated to be sent to a country where the U.S. government has advised “Do not travel for any reason.”`\
+https://www.nytimes.com/2026/06/11/world/africa/deportations-central-african-republic-migrants-iran-women.html
+
 **A New Hotel From Lake Como’s Grande Dame**\
 `Plus: a Danh Vo exhibition on a Danish island, wood-fired ceramics and more recommendations from T Magazine.`\
 https://www.nytimes.com/2026/06/11/t-magazine/lake-como-italy-hotel.html
