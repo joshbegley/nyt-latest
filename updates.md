@@ -1,3 +1,15 @@
+**Quote of the Day: U.S. Immigration Policy Blocks Some From Soccer’s Global Stage**\
+`Quotation of the Day for Thursday, June 11, 2026.`\
+https://www.nytimes.com/2026/06/11/pageoneplus/quote-of-the-day-us-immigration-policy-blocks-some-from-soccers-global-stage.html
+
+**Microsoft C.E.O. Satya Nadella Says ‘Everyone Is a Stakeholder’ in A.I.**\
+`At The New York Times’s Hard Fork Live event, Mr. Nadella addressed the backlash against artificial intelligence and President Trump’s comments about Americans sharing in the wealth of A.I. companies`\
+https://www.nytimes.com/2026/06/10/technology/microsoft-satya-nadella-artificial-intelligence.html
+
+**Live Updates: Knicks Fans Greet Game 4 Win With Chaotic Energy**\
+`Taylor Swift and Timothée Chalamet were among the celebrities celebrating courtside in New York after a record comeback moved the Knicks within a win of a long-awaited N.B.A. title.`\
+https://www.nytimes.com/live/2026/06/10/nyregion/nba-finals-knicks-spurs
+
 **Knicks Live Updates: Electric Atmosphere Delivers an Unforgettable Finish**\
 `Taylor Swift and Timothée Chalamet were among the celebrities celebrating courtside in New York after a record comeback moved the Knicks within a win of a long-awaited N.B.A. title.`\
 https://www.nytimes.com/live/2026/06/10/nyregion/nba-finals-knicks-spurs

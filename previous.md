@@ -1,3 +1,11 @@
+**Quote of the Day: U.S. Immigration Policy Blocks Some From Soccer’s Global Stage**\
+`Quotation of the Day for Thursday, June 11, 2026.`\
+https://www.nytimes.com/2026/06/11/pageoneplus/quote-of-the-day-us-immigration-policy-blocks-some-from-soccers-global-stage.html
+
+**Microsoft C.E.O. Satya Nadella Says ‘Everyone Is a Stakeholder’ in A.I.**\
+`At The New York Times’s Hard Fork Live event, Mr. Nadella addressed the backlash against artificial intelligence and President Trump’s comments about Americans sharing in the wealth of A.I. companies`\
+https://www.nytimes.com/2026/06/10/technology/microsoft-satya-nadella-artificial-intelligence.html
+
 **What’s Love Got to Do With the Movie 'Obsession’? | Cannonball with Wesley Morris**\
 `The hit movie has a troubling take on relationships.`\
 https://www.nytimes.com/2026/06/10/podcasts/whats-love-got-to-do-with-obsession.html
@@ -74,7 +82,7 @@ https://www.nytimes.com/video/embedded/sports/basketball/100000010959446/10vid-K
 `The wealthy have descended on New York for top basketball, golf and soccer events, and they need prime tickets.`\
 https://www.nytimes.com/2026/06/10/nyregion/knicks-tickets-courtside-concierge.html
 
-**Knicks Live Updates: Electric Atmosphere Delivers an Unforgettable Finish**\
+**Live Updates: Knicks Fans Greet Game 4 Win With Chaotic Energy**\
 `Taylor Swift and Timothée Chalamet were among the celebrities celebrating courtside in New York after a record comeback moved the Knicks within a win of a long-awaited N.B.A. title.`\
 https://www.nytimes.com/live/2026/06/10/nyregion/nba-finals-knicks-spurs
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/es/2026/06/10/espanol/opinion/el-salvador-bukele-carcel.
 **At Least 12 Killed in Johannesburg Attack, South African Police Say**\
 `The South African police said that at least 12 people were killed and at least nine others were wounded in an attack at a settlement in Johannesburg on Tuesday night. Investigators are still trying to determine a motive for the shooting.`\
 https://www.nytimes.com/video/world/africa/100000010958455/johannesburg-south-africa-shooting.html
-
-**Spencer Pratt’s Defeat Isn’t Just About Los Angeles**\
-`Some of America’s largest cities are now being governed by progressives. What will we learn?`\
-https://www.nytimes.com/2026/06/10/opinion/los-angeles-pratt-mayor-election.html
-
-**Ernest Chambers, ‘Smothers Brothers’ TV Show Producer, Dies at 97**\
-`In the late 1960s, he and Saul Ilson oversaw a variety show known for its social and political satire, and together they helped fight network censors over its content.`\
-https://www.nytimes.com/2026/06/10/arts/television/ernest-chambers-dead.html
 
