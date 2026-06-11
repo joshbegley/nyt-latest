@@ -1,3 +1,7 @@
+**Oil Prices Rise as U.S. Launches New Attack on Iran**\
+`Oil prices jumped after the United States and Iran exchanged fire for a second day, heightening fears that the two countries could slide back into open conflict.`\
+https://www.nytimes.com/2026/06/10/business/oil-gas-price-iran.html
+
 **Live Updates: Knicks Fans, Famous and Not, Pack the Garden for Game 4**\
 `Taylor Swift was among the celebrities sitting courtside. Hours before the game, the Knicks owner James L. Dolan and Mayor Zohran Mamdani sparred over who was to blame for the cancellation of a public watch party.`\
 https://www.nytimes.com/live/2026/06/10/nyregion/nba-finals-knicks-spurs
