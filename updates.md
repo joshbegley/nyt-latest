@@ -1,3 +1,7 @@
+**Looking for an Egyptian Sandwich and More Reader Questions**\
+`Becky Hughes is back to answer readers’ urgent restaurant requests.`\
+https://www.nytimes.com/2026/06/11/dining/looking-for-an-egyptian-sandwich-and-more-reader-questions.html
+
 **Nobody Drinks Bordeaux in Bordeaux**\
 `In restaurants and wine bars in Bordeaux, plenty of other wines are open, but few bottles of the local product. Why?`\
 https://www.nytimes.com/2026/06/11/dining/drinks/bordeaux-wine.html
