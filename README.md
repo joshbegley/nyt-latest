@@ -1,3 +1,7 @@
+**House Rejects Bill to Extend Spy Power With Lapse Looming**\
+`A measure to temporarily continue a key surveillance law fell well short of the support needed to pass, further raising the chances that it will lapse on Saturday.`\
+https://www.nytimes.com/2026/06/11/us/politics/house-spy-program-bill.html
+
 **Can the U.S.-Iran Cease-Fire Survive Days of Strikes?**\
 `Analysts saw little prospect of either President Trump or Tehran backing down after days of exchanging fire.`\
 https://www.nytimes.com/2026/06/11/world/middleeast/can-new-fighting-between-us-and-iran-be-contained.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/11/realestate/housing-market-nyc.html
 **I was a V.C. Partner. We Can’t Let Silicon Valley Buy Democracy.**\
 `Pro-A.I. groups are spending gobs of cash to influence political campaigns. That’s terrible news for us all.`\
 https://www.nytimes.com/2026/06/11/opinion/silicon-valley-ai-politics.html
-
-**‘Stop! That! Train!’ Review: Gleefully Going Off the Rails**\
-`RuPaul stars as the American president, who must contend with an unfolding transit crisis and drag queens galore as a dangerous storm approaches.`\
-https://www.nytimes.com/2026/06/11/movies/stop-that-train-review.html
 
 **Iran War Live Updates: U.S.-Iran Strikes Risk Dangerous New Phase**\
 `The exchanges of fire this week have raised fears of a return to all-out war. The U.S. military struck another tanker it said was carrying Iranian oil and three Indians were reported killed in an earlier American attack at sea.`\
