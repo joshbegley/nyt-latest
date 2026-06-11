@@ -1,3 +1,11 @@
+**Can SpaceX Defy A.I. Gravity?**\
+`Elon Musk’s rockets-and-artificial-intelligence company is going public as questions grow over the incredible spending spree taking place in the sector.`\
+https://www.nytimes.com/2026/06/11/business/dealbook/spacex-ipo-ai-spending.html
+
+**Two Men Sentenced to Death for 2015 Bangkok Bombing**\
+`A Thai court convicted the men, who are Uyghur, for a terrorist attack at a Hindu shrine that killed 20 and injured dozens more.`\
+https://www.nytimes.com/2026/06/11/world/asia/2015-bangkok-bombing-death-sentence.html
+
 **U.K. Defense Secretary Resigns, in a Blow to Starmer**\
 `John Healey unexpectedly announced his resignation on Thursday, saying Prime Minister Keir Starmer had failed to invest enough money in British defense.`\
 https://www.nytimes.com/2026/06/11/world/europe/uk-defense-secretary-resigns-healey-starmer.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/11/arts/television/29-shows-to-watch-this-summer
 **Sex, Lies and Secrets: A Federal Judge’s Trysts Go Public**\
 `Now, Judge Eleanor Ross’s career and caseload are under scrutiny. And her punishment, a private reprimand, has sparked backlash.`\
 https://www.nytimes.com/2026/06/11/us/eleanor-ross-judge-sex-misconduct.html
-
-**Democrats Once Vowed to Stop Oil and Gas. Now They’re Not So Sure.**\
-`As the midterm elections approach, many leading Democrats are rethinking their approach to climate change.`\
-https://www.nytimes.com/2026/06/11/climate/democrats-climate-change-oil-gas.html
-
-**Book Review: ‘The American School of Spies,’ by Stephan Talty**\
-`In “The American School of Spies,” Stephan Talty tells the story of the desperate struggle to preserve antiquities during World War II.`\
-https://www.nytimes.com/2026/06/11/books/review/the-american-school-of-spies-stephan-talty.html
 
