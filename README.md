@@ -1,3 +1,11 @@
+**Major League Baseball Will Question the Dodgers’s Doctor About Banned Drugs**\
+`The inquiry comes after a report that Dr. Neal ElAttrache, the physician for the team, supported the U.F.C. star Conor McGregor in using performance-enhancing drugs while recovering from an injury.`\
+https://www.nytimes.com/2026/06/11/sports/baseball/baseball-doctor-steroids-mcgregor.html
+
+**Kennedy Center Votes to Appeal Order That Trump’s Name Be Removed**\
+`A federal judge had ruled that the Washington arts institution must take the president’s name off its facade by Friday.`\
+https://www.nytimes.com/2026/06/11/arts/music/kennedy-center-appeal-trump-name.html
+
 **Slayyyter on Her Viral Coachella Performaance.**\
 `Slayyyter, became one of 2026’s breakout pop stars with the release of her third album “Worst Girl in America” and her viral Coachella set.`\
 https://www.nytimes.com/video/podcasts/100000010953398/slayyyter-on-her-viral-coachella-performaance.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/11/us/politics/trump-jay-clayton-intelligence-ch
 **Laverne Cox Broke Up With Her Boyfriend Over Trump**\
 `The actor Laverne Cox tells Anna Martin, host of the “Modern Love” podcast, about her complicated relationship.`\
 https://www.nytimes.com/video/podcasts/100000010960977/laverne-cox-broke-up-with-her-boyfriend-over-trump.html
-
-**Trump Unveils UFC ‘Claw’ Ahead of Cage Match at the White House**\
-`The towering claw will be the site of an Ultimate Fighting Championship cage match on Sunday, which is President Trump’s 80th birthday.`\
-https://www.nytimes.com/2026/06/11/us/politics/trump-ufc-claw-white-house.html
-
-**Nobody Drinks Bordeaux in Bordeaux**\
-`In restaurants and wine bars in Bordeaux, plenty of other wines are open, but few bottles of the local product. Why?`\
-https://www.nytimes.com/2026/06/11/dining/drinks/bordeaux-wine.html
 
