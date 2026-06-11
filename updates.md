@@ -1,3 +1,7 @@
+**‘Amazon.com of South Korea’ Is Fined a Record $409 Million**\
+`South​ Korea​’s regulatory investigation of Coupang, an e-commerce giant incorporated in the United States, has led to diplomatic tension between Seoul and Washington.`\
+https://www.nytimes.com/2026/06/11/world/asia/south-korea-coupang-fine.html
+
 **World Cup Kicks Off in Mexico**\
 `The 2026 FIFA World Cup begins on Thursday with a match between Mexico and South Africa. The tournament takes place in three countries: the United States, Mexico and Canada.`\
 https://www.nytimes.com/video/sports/100000010959727/fifa-world-cup-mexico.html
