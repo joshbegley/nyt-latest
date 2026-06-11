@@ -1,3 +1,7 @@
+**U.S. Officials Told Colombia to Cancel President’s Meeting With Mamdani**\
+`The State Department canceled President Gustavo Petro’s visa last year after he attended a pro-Palestinian rally in Manhattan. He had planned to attend a forum led by Mayor Mamdani of New York.`\
+https://www.nytimes.com/2026/06/10/world/americas/mamdani-petro-new-york-colombia-trump.html
+
 **Oil Prices Rise as U.S. Launches New Attack on Iran**\
 `Oil prices jumped after the United States and Iran exchanged fire for a second day, heightening fears that the two countries could slide back into open conflict.`\
 https://www.nytimes.com/2026/06/10/business/oil-gas-price-iran.html

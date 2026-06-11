@@ -1,3 +1,7 @@
+**NYT Crossword Answers for June 11, 2026**\
+`Nikhil Bailey’s debut puzzle is a numbers game.`\
+https://www.nytimes.com/2026/06/10/crosswords/daily-puzzle-2026-06-11.html
+
 **U.S. Officials Told Colombia to Cancel President’s Meeting With Mamdani**\
 `The State Department canceled President Gustavo Petro’s visa last year after he attended a pro-Palestinian rally in Manhattan. He had planned to attend a forum led by Mayor Mamdani of New York.`\
 https://www.nytimes.com/2026/06/10/world/americas/mamdani-petro-new-york-colombia-trump.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/06/10/us/politics/nancy-mace-congress-south-carolin
 **The Good List: 6 Things to Add Joy to Your Day**\
 `Dancing pigeons, mystery stew and a nostalgia machine.`\
 https://www.nytimes.com/2026/06/10/briefing/the-good-list-pigeons-knicks.html
-
-**Texas Governor Seeks New Limits on Data Centers**\
-`Gov. Greg Abbott is urging tighter controls and a repeal of financial incentives for data centers, which have drawn complaints in rural Republican areas of Texas.`\
-https://www.nytimes.com/2026/06/10/us/texas-abbott-data-centers-regulation.html
 
 **World Cup Updates: U.S. Immigration Policies Turn Some Fans and Participants Away**\
 `(No description)`\
