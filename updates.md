@@ -1,3 +1,7 @@
+**Bill Gates dice que Epstein intentó usar sus aventuras extramatrimoniales en su contra**\
+`El filántropo multimillonario testificó el miércoles en una audiencia a puerta cerrada del Congreso de EE. UU. sobre la investigación del Departamento de Justicia sobre Jeffrey Epstein.`\
+https://www.nytimes.com/es/2026/06/10/espanol/negocios/bill-gates-epstein-infidelidad.html
+
 **Live Updates: New Yorkers Gather for Knicks Game, Amid Some Frustration**\
 `Hours before Game 4 of the N.B.A. finals, the team’s owner, James Dolan, and Mayor Zohran Mamdani were sparring over who was to blame for the cancellation of a watch party outside Madison Square Garden.`\
 https://www.nytimes.com/live/2026/06/10/nyregion/nba-finals-knicks-spurs

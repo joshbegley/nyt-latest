@@ -1,3 +1,7 @@
+**Bill Gates dice que Epstein intentó usar sus aventuras extramatrimoniales en su contra**\
+`El filántropo multimillonario testificó el miércoles en una audiencia a puerta cerrada del Congreso de EE. UU. sobre la investigación del Departamento de Justicia sobre Jeffrey Epstein.`\
+https://www.nytimes.com/es/2026/06/10/espanol/negocios/bill-gates-epstein-infidelidad.html
+
 **Trump’s Plaques on the Presidential ‘Walk of Fame,’ Fact-Checked and Annotated by Historians**\
 `President Trump’s ‘Walk of Fame’ has an unreliable narrator. We asked eight historians what they thought.`\
 https://www.nytimes.com/interactive/2026/06/10/us/politics/trump-president-plaques-white-house.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/06/10/us/fbi-search-orange-county-chemical-tank.htm
 **Hundreds of Kenyans Protest U.S. Ebola Unit**\
 `Protesters opposed an Ebola quarantine facility in Kenya on Tuesday that would be reserved exclusively for U.S. citizens.`\
 https://www.nytimes.com/video/world/africa/100000010957717/us-ebola-quarantine-unit-protest-kenya.html
-
-**Disturbios en Irlanda del Norte: lo que hay que saber**\
-`Un brutal apuñalamiento ocurrido en Belfast esta semana ha avivado el sentimiento antimigrantes que ya estaba latente.`\
-https://www.nytimes.com/es/2026/06/10/espanol/mundo/irlanda-norte-disturbios-belfast.html
 
 **World Cup Updates: U.S. Immigration Policies Turn Some Fans and Participants Away**\
 `(No description)`\
