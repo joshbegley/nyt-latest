@@ -1,3 +1,7 @@
+**No, There Was Not a Snake Invasion at the Swiss Team’s World Cup Training Facility**\
+`A map of the San Diego facility that the team is using as its base led people to believe that snakes had infiltrated the premises.`\
+https://www.nytimes.com/2026/06/10/us/switzerland-world-cup-snakes-san-diego.html
+
 **How a High-Powered Gathering Turned Into a Knicks Watch Party**\
 `An event for some of New York’s elite shifted gears when a TV rolled into the bar.`\
 https://www.nytimes.com/2026/06/10/nyregion/knicks-spurs-party.html
