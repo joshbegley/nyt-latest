@@ -1,3 +1,39 @@
+**The Young Economic Populists Reshaping the Left**\
+`As Democrats wrestle over the direction of their party, a new crop of progressive candidates sees college graduates among its biggest supporters.`\
+https://www.nytimes.com/2026/06/11/podcasts/the-daily/college-graduates-economic-populists-democrats.html
+
+**Trump Shrugs Off Surging Inflation, and Why a Groundbreaking Social Media Ban Is Floundering**\
+`Plus, the man behind “GOOOOAL!”`\
+https://www.nytimes.com/2026/06/11/podcasts/the-headlines/trump-inflation-australia-social-media-ban.html
+
+**NYT Connections Answers for June 12, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, June 12, 2026.`\
+https://www.nytimes.com/2026/06/11/crosswords/connections-companion-1097.html
+
+**NYT Strands Hints for June 12, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, June 12, 2026.`\
+https://www.nytimes.com/2026/06/11/crosswords/strands-sidekick-831.html
+
+**Today’s Wordle Hints for June 12, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, June 12, 2026.`\
+https://www.nytimes.com/2026/06/11/crosswords/wordle-review-1819.html
+
+**The Knicks’ Game 4 Comeback Was Epic. So Was Their Fans’ Response.**\
+`The crowd at Madison Square Garden was forlorn as the New York Knicks fell far behind in Game 4 of the N.B.A. finals. After they won, it was electric.`\
+https://www.nytimes.com/2026/06/11/nyregion/knicks-game-4-fans-nba-finals-nyc.html
+
+**America Signed Up for the World Cup. FIFA Stuck You With the Tab.**\
+`Adam Crafton and Pablo discuss how FIFA squeezed U.S. taxpayers with hidden costs.`\
+https://www.nytimes.com/2026/06/11/podcasts/america-signed-up-for-the-world-cup-fifa-stuck-you-with-the-tab.html
+
+**Millions Across the Midwest and Northeast Face Severe Storms on Thursday**\
+`More than 100 million people from Texas to New England live in areas that could face dangerous weather on Thursday.`\
+https://www.nytimes.com/2026/06/11/weather/chicago-new-york-northeast-storms-minnesota.html
+
+**‘Disclosure Day’ Review: Spielberg Plays His Greatest Cosmic Hits**\
+`In a fast-paced sci-fi fantasy, infused with epic intentions and starring Emily Blunt, Josh O’Connor and Colman Domingo, the filmmaker brings the rest of us home.`\
+https://www.nytimes.com/2026/06/11/movies/disclosure-day-review-steven-spielberg.html
+
 **U.S. and Iran Exchange Fresh Strikes**\
 `The United States launched a new wave of airstrikes on Iran early Thursday, and Iran claimed to have retaliated, bringing the two sides close to a return to all-out war.`\
 https://www.nytimes.com/video/world/middleeast/100000010959783/us-iran-exchange-strikes.html
