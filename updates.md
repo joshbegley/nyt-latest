@@ -1,3 +1,7 @@
+**Oil Prices Fluctuate as U.S. Launches New Attack on Iran**\
+`Oil prices jumped after the United States and Iran exchanged fire for a second day, heightening fears that the two countries could slide back into open conflict.`\
+https://www.nytimes.com/2026/06/10/business/oil-gas-price-iran.html
+
 **U.S. and Iran Exchange Fresh Strikes**\
 `The United States launched a new wave of airstrikes on Iran early Thursday, and Iran claimed to have retaliated, bringing the two sides close to a return to all-out war.`\
 https://www.nytimes.com/video/world/middleeast/100000010959783/us-iran-exchange-strikes.html
