@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/06/11/world/americas/mexico-city-world-cup.html
 
 **Absent From the SpaceX and OpenAI I.P.O.s? Chinese Investors.**\
-`SpaceX will not raise funds from investors in China and Hong Kong. Others firms, like OpenAI, may follow suit.`\
+`SpaceX will not raise money from investors in China and Hong Kong. Others firms, like OpenAI, may follow suit.`\
 https://www.nytimes.com/2026/06/11/business/spacex-openai-ipo-china.html
 
 **‘All Men Are Created Equal’ Is Still a Radical Idea**\

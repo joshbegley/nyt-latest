@@ -1,3 +1,11 @@
+**Security Is Tight as a Match in Mexico City Starts a Historic World Cup**\
+`As the largest World Cup ever kicks off in Mexico City on Thursday afternoon, the security around Estadio Azteca was strict, as law enforcement officers held off protesters.`\
+https://www.nytimes.com/2026/06/11/world/americas/mexico-city-world-cup.html
+
+**Absent From the SpaceX and OpenAI I.P.O.s? Chinese Investors.**\
+`SpaceX will not raise funds from investors in China and Hong Kong. Others firms, like OpenAI, may follow suit.`\
+https://www.nytimes.com/2026/06/11/business/spacex-openai-ipo-china.html
+
 **‘All Men Are Created Equal’ Is Still a Radical Idea**\
 `Our founding creed has always had its critics.`\
 https://www.nytimes.com/2026/06/11/opinion/inequality-musk-thiel-carvalho-billionaires.html
