@@ -1,3 +1,11 @@
+**As World Cup Begins, Mexico City Becomes a Global Stage**\
+`Supporters of the national team gathered inside and outside Mexico City Stadium for the opening of the games, celebrating the start of a tournament years in the making.`\
+https://www.nytimes.com/2026/06/11/world/americas/world-cup-photos-mexico.html
+
+**Cleve Moler, Who Unlocked the Power of Computing for Millions, Dies at 86**\
+`He built interfaces that allowed engineers, scientists and everyday people to solve difficult problems without having to write the underlying code.`\
+https://www.nytimes.com/2026/06/11/science/cleve-moler-dead.html
+
 **Cuba sin combustible: EE. UU. bloquea acuerdo y endurece sanciones**\
 `La operación para enviar 250.000 barriles de combustible podría haber aliviado la crisis energética, pero el gobierno de Trump dice que Vanguard Energy no tiene autorización para proceder.`\
 https://www.nytimes.com/es/2026/06/11/espanol/america-latina/cuba-combustible-bloqueo-estados-unidos.html
@@ -74,7 +82,7 @@ https://www.nytimes.com/video/podcasts/100000010961709/4-book-recommendations-fo
 `Pakistan’s airstrikes on Afghanistan on Wednesday ended a period of calm, threatening a return to what Pakistan previously called an “open war” between the neighbors.`\
 https://www.nytimes.com/video/world/asia/100000010960522/13-civilians-killed-pakistani-airstrikes-in-afghanistan.html
 
-**Security Is Tight as a Mexico Win Starts a Historic World Cup**\
+**Security Is Tight as a Mexico Win Opens a Historic World Cup**\
 `As the largest World Cup kicked off in Mexico City on Thursday, the security around Estadio Azteca was strict, as law enforcement officers held off protesters.`\
 https://www.nytimes.com/2026/06/11/world/americas/mexico-city-world-cup.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/11/climate/el-nino-noaa.html
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/nyregion/100000010960590/11vid-knicks-carousel-13558.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/nyregion/100000010960670/11vid-knicks-carousel-8704.html
-
-**Trump Makes New Threats After U.S. and Iran Exchange Fresh Strikes**\
-`President Trump has vowed to keep up military pressure on Iran after the latest exchange of overnight attacks.`\
-https://www.nytimes.com/video/world/middleeast/100000010960555/trump-makes-new-threats-after-us-and-iran-exchange-fresh-strikes.html
 
