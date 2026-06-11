@@ -1,3 +1,11 @@
+**The Joy of Missing Out on SpaceX’s I.P.O.**\
+`You’re not important or lucky enough to have access to shares at the offering price, and that’s OK. Here’s why.`\
+https://www.nytimes.com/2026/06/11/business/spacex-ipo-investing.html
+
+**Can’t Pay Medical Bills? Trump Administration Suggests Getting a Loan**\
+`One-third of Americans shoulder health care debt. Insurers are being asked to consider lending money to Obamacare consumers who can’t afford higher deductibles.`\
+https://www.nytimes.com/2026/06/11/business/aca-health-care-costs-medical-debt.html
+
 **La guerra en Ucrania ya dura más que la Primera Guerra Mundial**\
 `Abundan los paralelismos entre ambas guerras, desde el carácter agotador de los combates hasta la forma en que las nuevas tecnologías han transformado la batalla.`\
 https://www.nytimes.com/es/2026/06/11/espanol/mundo/ucrania-rusia-primera-guerra-mundial.html
