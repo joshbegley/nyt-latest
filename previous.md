@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/06/11/world/americas/mexico-city-world-cup.html
 
 **Absent From the SpaceX and OpenAI I.P.O.s? Chinese Investors.**\
-`SpaceX will not raise funds from investors in China and Hong Kong. Others firms, like OpenAI, may follow suit.`\
+`SpaceX will not raise money from investors in China and Hong Kong. Others firms, like OpenAI, may follow suit.`\
 https://www.nytimes.com/2026/06/11/business/spacex-openai-ipo-china.html
 
 **‘All Men Are Created Equal’ Is Still a Radical Idea**\
@@ -35,7 +35,7 @@ https://www.nytimes.com/es/2026/06/11/espanol/mundo/sagrada-familia-papa.html
 https://www.nytimes.com/2026/06/11/us/politics/trump-jay-clayton-intelligence-chief.html
 
 **Laverne Cox Broke Up With Her Boyfriend Over Trump**\
-`The Netflix star tells Anna Martin, host of the “Modern Love” podcast, about her complicated relationship.`\
+`The actor Laverne Cox tells Anna Martin, host of the “Modern Love” podcast, about her complicated relationship.`\
 https://www.nytimes.com/video/podcasts/100000010960977/laverne-cox-broke-up-with-her-boyfriend-over-trump.html
 
 **Trump Unveils UFC ‘Claw’ Ahead of Cage Match at the White House**\
@@ -47,7 +47,7 @@ https://www.nytimes.com/2026/06/11/us/politics/trump-ufc-claw-white-house.html
 https://www.nytimes.com/2026/06/11/dining/drinks/bordeaux-wine.html
 
 **Laverne Cox Always Knew She’d Be a Star**\
-`The Netflix star tells Anna Martin, host of the “Modern Love” podcast, about how she overcame childhood bullying.`\
+`The actor Laverne Cox tells Anna Martin, host of the “Modern Love” podcast, about how she overcame childhood bullying.`\
 https://www.nytimes.com/video/podcasts/100000010960860/laverne-cox-always-knew-shed-be-a-star.html
 
 **Avril Haines, Former Intelligence Chief, Will Lead Carnegie Endowment for International Peace**\

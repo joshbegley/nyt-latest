@@ -1,3 +1,15 @@
+**Absent From the SpaceX and OpenAI I.P.O.s? Chinese Investors.**\
+`SpaceX will not raise money from investors in China and Hong Kong. Others firms, like OpenAI, may follow suit.`\
+https://www.nytimes.com/2026/06/11/business/spacex-openai-ipo-china.html
+
+**Laverne Cox Broke Up With Her Boyfriend Over Trump**\
+`The actor Laverne Cox tells Anna Martin, host of the “Modern Love” podcast, about her complicated relationship.`\
+https://www.nytimes.com/video/podcasts/100000010960977/laverne-cox-broke-up-with-her-boyfriend-over-trump.html
+
+**Laverne Cox Always Knew She’d Be a Star**\
+`The actor Laverne Cox tells Anna Martin, host of the “Modern Love” podcast, about how she overcame childhood bullying.`\
+https://www.nytimes.com/video/podcasts/100000010960860/laverne-cox-always-knew-shed-be-a-star.html
+
 **Security Is Tight as a Match in Mexico City Starts a Historic World Cup**\
 `As the largest World Cup ever kicks off in Mexico City on Thursday afternoon, the security around Estadio Azteca was strict, as law enforcement officers held off protesters.`\
 https://www.nytimes.com/2026/06/11/world/americas/mexico-city-world-cup.html
