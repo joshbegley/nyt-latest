@@ -1,3 +1,7 @@
+**NOAA Issues El Nino Advisory**\
+`The global weather pattern threatens to worsen floods and heat waves already intensifying due to climate change. But it may also mean fewer hurricanes.`\
+https://www.nytimes.com/2026/06/11/climate/el-nino-noaa.html
+
 **Europe Offers Somali World Cup Referee Blocked by U.S. a New Stage**\
 `The referee, Omar Artan, was turned away by immigration officials in Miami, but the governing body for soccer in Europe said he would officiate a high-profile club match in September.`\
 https://www.nytimes.com/2026/06/11/sports/soccer/world-cup-somali-referee-omar-artan.html

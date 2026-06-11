@@ -35,7 +35,7 @@ https://www.nytimes.com/2026/06/11/opinion/ai-wealth-bernie-sanders.html
 https://www.nytimes.com/2026/06/11/world/europe/un-refugees-displaced-war-drop.html
 
 **NOAA Issues El Nino Advisory**\
-`The shift in global weather patterns threatens to worsen floods and heat waves that were already intensifying because of climate change.`\
+`The global weather pattern threatens to worsen floods and heat waves already intensifying due to climate change. But it may also mean fewer hurricanes.`\
 https://www.nytimes.com/2026/06/11/climate/el-nino-noaa.html
 
 ****\
