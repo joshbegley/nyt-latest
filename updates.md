@@ -1,3 +1,7 @@
+**Millions Across the Midwest and Northeast Face Severe Storms on Thursday**\
+`Chicago is in the bull’s-eye of the areas facing severe weather on Thursday, but the storm forecast is widespread.`\
+https://www.nytimes.com/2026/06/11/weather/chicago-new-york-northeast-storms-minnesota.html
+
 **Today, In Short**\
 `Optimizing. Maya Rudolph. And the New York Knicks.`\
 https://www.nytimes.com/2026/06/11/briefing/today-in-short.html
