@@ -1,3 +1,11 @@
+**Europe Offers Somali World Cup Referee Blocked by U.S. a New Stage**\
+`The referee, Omar Artan, was turned away by immigration officials in Miami, but the governing body for soccer in Europe said he would officiate a high-profile club match in September.`\
+https://www.nytimes.com/2026/06/11/sports/soccer/world-cup-somali-referee-omar-artan.html
+
+**Netanyahu Aide Charged With Endangering Israeli Security Over Document Leak**\
+`Jonatan Urich, a media adviser to the Israeli prime minister, was accused of passing classified intelligence about negotiations with Hamas to a German newspaper.`\
+https://www.nytimes.com/2026/06/11/world/middleeast/netanyahu-aide-charged-document-leak.html
+
 **Skeptics Question Whether SpaceX Is Worth $1.77 Trillion**\
 `Elon Musk’s rocket company is spending big and losing money. That has raised questions about whether it can justify its valuation for its blockbuster initial public offering.`\
 https://www.nytimes.com/2026/06/11/technology/spacex-valuation-skeptics.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/11/world/europe/uk-defense-secretary-resigns-hea
 **The World Cup**\
 `Here’s what you should know about this massive competition.`\
 https://www.nytimes.com/2026/06/11/briefing/the-world-cup.html
-
-**A New Hotel From Lake Como’s Grande Dame**\
-`Plus: a Danh Vo exhibition on a Danish island, wood-fired ceramics and more recommendations from T Magazine.`\
-https://www.nytimes.com/2026/06/11/t-magazine/lake-como-italy-hotel.html
-
-**The Young Economic Populists Reshaping the Left**\
-`As Democrats wrestle over the direction of their party, a new crop of progressive candidates sees college graduates among its biggest supporters.`\
-https://www.nytimes.com/2026/06/11/podcasts/the-daily/college-graduates-economic-populists-democrats.html
 
 **Iran War Live Updates: As U.S.-Iran Strikes Risk Dangerous New Phase, Trump Issues More Threats**\
 `President Trump said U.S. forces would hit Iran again later Thursday and threatened to take Kharg Island, the heart of Iran’s oil economy. The exchanges of fire this week have raised fears of a return to all-out war.`\
