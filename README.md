@@ -1,3 +1,7 @@
+**Oil Prices Rise as U.S. Launches New Attack on Iran**\
+`Oil prices jumped after the United States and Iran exchanged fire for a second day, heightening fears that the two countries could slide back into open conflict.`\
+https://www.nytimes.com/2026/06/10/business/oil-gas-price-iran.html
+
 **Lee Raymond, Who Created Global Oil Behemoth Exxon Mobil, Dies at 87**\
 `He oversaw Exxon’s acquisition of a rival, cut costs relentlessly and denied the scientific consensus on climate change.`\
 https://www.nytimes.com/2026/06/10/business/lee-raymond-dead.html
@@ -106,13 +110,13 @@ https://www.nytimes.com/2026/06/10/us/politics/latino-voters-democrats-elections
 `Secretary of Defense Pete Hegseth told reporters at MacDill Air Force Base in Tampa, Fla. on Wednesday that “Central Command, will be busy tonight.”`\
 https://www.nytimes.com/video/us/100000010959098/pete-hegseth-strike-iran-wednesday-night.html
 
-**Britain Is Weighing a Social Media Ban for Children. How Did It Get Here?**\
-`Months after Australia banned social media for everyone under 16, the British government is considering new policies to keep children safe online.`\
-https://www.nytimes.com/2026/06/10/world/europe/uk-social-media-ban-under-16.html
-
 **Australia’s Social Media Ban Is Floundering. Can It Still Help Younger Kids?**\
 `Six months in, many teens are already back on platforms they were supposed to be blocked from. The ban’s benefits may fall to the next generation.`\
 https://www.nytimes.com/2026/06/10/world/australia/australia-social-media-ban-under-16.html
+
+**Britain Is Weighing a Social Media Ban for Children. How Did It Get Here?**\
+`Months after Australia banned social media for everyone under 16, the British government is considering new policies to keep children safe online.`\
+https://www.nytimes.com/2026/06/10/world/europe/uk-social-media-ban-under-16.html
 
 **Amtrak Speeds Up Trip From Vancouver to Seattle for World Cup Fans**\
 `Passengers heading from Vancouver, British Columbia, to Seattle will now clear U.S. customs before boarding instead of stopping once they’ve crossed the border.`\
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/06/10/us/texas-abbott-data-centers-regulation.html
 **Mamdani’s Nosebleed Knicks Ticket and the Benefits of Being Mayor**\
 `Mayor Zohran Mamdani paid roughly $1,000 for a standing-room-only ticket to Game 3 of the N.B.A. finals, using access to house tickets not available to regular fans.`\
 https://www.nytimes.com/2026/06/10/nyregion/mamdani-knicks-ticket-garden.html
-
-**U.S. Strikes Iran for Second Day, as War Heats Back Up**\
-`President Trump said that the Iranians were taking “too long to negotiate” a deal to end the conflict launched by the United States and Israel four months ago.`\
-https://www.nytimes.com/2026/06/10/world/middleeast/us-iran-strikes.html
 
 **World Cup Updates: U.S. Immigration Policies Turn Some Fans and Participants Away**\
 `(No description)`\
