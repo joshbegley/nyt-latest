@@ -1,4 +1,8 @@
-**Knicks Fans Rejoice After Game 4 Comeback Victory**\
+**World Cup Kicks Off in Mexico**\
+`The 2026 FIFA World Cup begins on Thursday with a match between Mexico and South Africa. The tournament takes place in three countries: the United States, Mexico and Canada.`\
+https://www.nytimes.com/video/sports/100000010959727/fifa-world-cup-mexico.html
+
+**Knicks Fans Rejoice After Game 4 Victory**\
 `Fans and celebrities, including Taylor Swift and Timothée Chalamet, celebrated after the Knicks’ record comeback to win Game 4 of the N.B.A finals`\
 https://www.nytimes.com/video/nyregion/100000010959882/knicks-nba-comeback-fans.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/10/technology/president-trump-americans-sharing-
 **The U.S. Strikes Iran Again**\
 `Also, inflation jumps for a third-straight month. Here’s the latest at the end of Wednesday.`\
 https://www.nytimes.com/2026/06/10/briefing/inflation-rises-us-iran-strikes.html
-
-**Suspect in the Killing of a Minnesota Lawmaker Strikes a Plea Deal**\
-`The arrangement means that Vance Boelter will not face the death penalty after being charged with killing Melissa Hortman and her husband, Mark.`\
-https://www.nytimes.com/2026/06/10/us/vince-boelter-plea-deal.html
 
