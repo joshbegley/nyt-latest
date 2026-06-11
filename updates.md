@@ -1,3 +1,7 @@
+**Victor Wembanyama, the Knicks’ Biggest Foe and New York’s Biggest Tourist**\
+`Mr. Wembanyama has had to keep a low profile while in New York to try and win the N.B.A. finals, but on visits there, he has always resisted hiding in hotel rooms and private cars.`\
+https://www.nytimes.com/2026/06/10/nyregion/wemby-drawing-park-visiting-nyc.html
+
 **The Swiss Team Made a Joke. It Slithered Over People’s Heads.**\
 `A map of the San Diego facility that the team is using as its base led people to believe that snakes had infiltrated the premises.`\
 https://www.nytimes.com/2026/06/10/us/switzerland-world-cup-snakes-joke.html

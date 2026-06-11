@@ -63,7 +63,7 @@ https://www.nytimes.com/live/2026/06/10/nyregion/nba-finals-knicks-spurs
 https://www.nytimes.com/2026/06/10/weather/san-francisco-heat-fire.html
 
 **Victor Wembanyama, the Knicks’ Biggest Foe and New York’s Biggest Tourist**\
-`Mr. Wembanyama has had to keep a low-profile while in New York to try and win the N.B.A. finals, but on visits there, he has always resisted hiding in hotel rooms and private cars.`\
+`Mr. Wembanyama has had to keep a low profile while in New York to try and win the N.B.A. finals, but on visits there, he has always resisted hiding in hotel rooms and private cars.`\
 https://www.nytimes.com/2026/06/10/nyregion/wemby-drawing-park-visiting-nyc.html
 
 **Canada Moves to Ban Social Media Use for Youth Under 16**\
