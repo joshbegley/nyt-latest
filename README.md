@@ -1,3 +1,7 @@
+**With Inflation Bearing Down, Europe Is Facing Higher Interest Rates**\
+`The European Central Bank is set to raise rates, the first such move since September 2023, as energy disruptions caused by the Iran war drive higher prices.`\
+https://www.nytimes.com/2026/06/11/business/european-central-bank-inflation-interest-rates.html
+
 **New York City Leaders Propose Building More Homes on Top of Libraries**\
 `Julie Menin, the City Council speaker, unveiled plans for three projects combining affordable housing developments and library renovations. It is part of a nationwide trend.`\
 https://www.nytimes.com/2026/06/11/nyregion/nyc-libraries-affordable-housing-menin.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/10/us/politics/maine-senate-graham-platner-susan
 **A ‘Sultry’ Shift: Heat Creeps Into the Northeast**\
 `Soupy, hot weather will settle into the Northeast on Thursday and Friday, bringing with it the threat of dangerous storms.`\
 https://www.nytimes.com/2026/06/10/weather/heat-wave-us.html
-
-**Democrats Try to Move Past ‘Cultural Pandering’ to Latinos for Midterm Elections**\
-`The party is trying desperately to win back some voters in the key swing group.`\
-https://www.nytimes.com/2026/06/10/us/politics/latino-voters-democrats-elections.html
 
