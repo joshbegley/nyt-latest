@@ -1,3 +1,7 @@
+**Gabbard Revokes Biden-Era Assessments on Mysterious Ailments**\
+`Earlier reviews had cast doubt on the idea that a foreign adversary was behind Havana syndrome, a range of symptoms that American spies and diplomats reported.`\
+https://www.nytimes.com/2026/06/11/us/politics/gabbard-havana-syndrome.html
+
 **Lander, Running for Congress, Found Not Guilty After ICE Facility Arrest**\
 `Brad Lander is running in a hotly contested primary to unseat another New York Democrat, Representative Daniel Goldman.`\
 https://www.nytimes.com/2026/06/11/nyregion/brad-lander-immigration-arrest-not-guilty.html
@@ -66,8 +70,8 @@ https://www.nytimes.com/es/2026/06/11/espanol/tiempo-y-clima/el-nino-calor-extre
 `It only takes a few minutes.`\
 https://www.nytimes.com/interactive/2026/06/11/well/summer-challenge-phone-digital-detox-sleep.html
 
-**California Coast Search Ends for 5-Year-Old Girl Swept Away**\
-`The girl was with her mother and a sibling near the shore in Laguna Beach, Calif., on Tuesday when she was pulled into the surf. The forecast called for more dangerous swells this week.`\
+**Body of 5-Year-Old Girl Swept Away in California Is Found**\
+`The girl was with her mother and a sibling near the shore in Laguna Beach, Calif., on Tuesday when she was pulled into the surf. Authorities had called off the search on Wednesday.`\
 https://www.nytimes.com/2026/06/11/us/laguna-beach-missing-girl-search-ends.html
 
 **SpaceX Finalizes IPO Price at $135 a Share in World’s Largest Public Offering**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/11/world/middleeast/netanyahu-aide-charged-docum
 **Skeptics Question Whether SpaceX Is Worth $1.77 Trillion**\
 `Elon Musk’s rocket company is spending big and losing money. That has raised questions about whether it can justify its valuation for its blockbuster initial public offering.`\
 https://www.nytimes.com/2026/06/11/technology/spacex-valuation-skeptics.html
-
-**The SpaceX Shareholder at the Helm of a Multibillion-Dollar Payout**\
-`Justin Fishner-Wolfson, long a minor figure in Elon Musk’s orbit, is at the helm of a multibillion-dollar payout.`\
-https://www.nytimes.com/2026/06/11/business/spacex-ipo-137-ventures.html
 

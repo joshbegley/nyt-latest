@@ -1,3 +1,11 @@
+**Gabbard Revokes Biden-Era Assessments on Mysterious Ailments**\
+`Earlier reviews had cast doubt on the idea that a foreign adversary was behind Havana syndrome, a range of symptoms that American spies and diplomats reported.`\
+https://www.nytimes.com/2026/06/11/us/politics/gabbard-havana-syndrome.html
+
+**Body of 5-Year-Old Girl Swept Away in California Is Found**\
+`The girl was with her mother and a sibling near the shore in Laguna Beach, Calif., on Tuesday when she was pulled into the surf. Authorities had called off the search on Wednesday.`\
+https://www.nytimes.com/2026/06/11/us/laguna-beach-missing-girl-search-ends.html
+
 **Lander, Running for Congress, Found Not Guilty After ICE Facility Arrest**\
 `Brad Lander is running in a hotly contested primary to unseat another New York Democrat, Representative Daniel Goldman.`\
 https://www.nytimes.com/2026/06/11/nyregion/brad-lander-immigration-arrest-not-guilty.html
