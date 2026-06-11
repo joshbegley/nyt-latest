@@ -1,3 +1,31 @@
+**Mike Amiri Knows What Travis Kelce and Marcus Rashford Want to Wear**\
+`How Amiri built a brand on the culture of sports.`\
+https://www.nytimes.com/2026/06/11/style/world-cup-fashion-mike-amiri.html
+
+**A Youthful Crop of Politicians Run on Housing, and Their Own Rent**\
+`A cohort of young Millennial and Gen Z politicians have centered their campaigns this year on housing costs, and the divide is more generational than partisan.`\
+https://www.nytimes.com/2026/06/11/us/politics/gen-z-politicians-housing-costs.html
+
+**Book Review: ‘This Dark Night: Emily Brontë, a Life,’ by Deborah Lutz**\
+`In her lyrical new biography, “This Dark Night,” Deborah Lutz shines light on the most enigmatic of the literary, secluded Brontë sisters.`\
+https://www.nytimes.com/2026/06/11/books/review/this-dark-night-deborah-lutz.html
+
+**In the Fastest-Warming City in the U.S., These Artists See Hope**\
+`At the Nevada Museum of Art, five examples of artist-activists shining a light on the Great Basin Desert and beyond.`\
+https://www.nytimes.com/2026/06/11/arts/design/nevada-museum-of-art-reno.html
+
+**Ruth Ozeki on Her Favorite Books and Her New Collection, ‘The Typing Lady’**\
+`She wanted to learn about pyramids, and ended up with hallucinatory sex scenes. Her new book is a provocation: Just what genre is it anyway?`\
+https://www.nytimes.com/2026/06/11/books/review/ruth-ozeki-the-typing-lady.html
+
+**Conor McGregor’s Comeback: A Tale of Banned Drugs and a Famous Doctor**\
+`McGregor, the Ultimate Fighting Championship’s main attraction, had the support of the prominent sports physician Neal ElAttrache when he decided to use performance-enhancing drugs.`\
+https://www.nytimes.com/2026/06/11/us/politics/conor-mcgregor-ufc-drugs.html
+
+**She Was One of Obama’s Top Lawyers. How Did She Get Tangled Up With Epstein?**\
+`That she, of all people, looked past his 2008 conviction tells you everything you need to know about how unreliable and corroded the legal world has become.`\
+https://www.nytimes.com/2026/06/11/opinion/kathy-ruemmler-epstein-emails.html
+
 **Oil Prices Fluctuate as U.S. Launches New Attack on Iran**\
 `Oil prices jumped after the United States and Iran exchanged fire for a second day, heightening fears that the two countries could slide back into open conflict.`\
 https://www.nytimes.com/2026/06/10/business/oil-gas-price-iran.html
