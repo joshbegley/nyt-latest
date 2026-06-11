@@ -1,3 +1,11 @@
+**Major League Baseball Will Question the Dodgers’s Doctor About Banned Drugs**\
+`The inquiry comes after a report that Dr. Neal ElAttrache, the physician for the team, supported the U.F.C. star Conor McGregor in using performance-enhancing drugs while recovering from an injury.`\
+https://www.nytimes.com/2026/06/11/sports/baseball/baseball-doctor-steroids-mcgregor.html
+
+**Kennedy Center Votes to Appeal Order That Trump’s Name Be Removed**\
+`A federal judge had ruled that the Washington arts institution must take the president’s name off its facade by Friday.`\
+https://www.nytimes.com/2026/06/11/arts/music/kennedy-center-appeal-trump-name.html
+
 **Slayyyter on Her Viral Coachella Performaance.**\
 `Slayyyter, became one of 2026’s breakout pop stars with the release of her third album “Worst Girl in America” and her viral Coachella set.`\
 https://www.nytimes.com/video/podcasts/100000010953398/slayyyter-on-her-viral-coachella-performaance.html
