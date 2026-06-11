@@ -1,3 +1,11 @@
+**Copa Mundial 2026: partido de México en fotos**\
+`La ceremonia inaugural reunió a seguidores de México y visitantes de distintos países en una jornada que combinó celebraciones, espectáculos, protestas y una fuerte presencia policial.`\
+https://www.nytimes.com/es/2026/06/11/espanol/america-latina/inauguracion-mundial-mexico-fifa.html
+
+**Melania Trump Unveils New Investment Accounts for Foster Children**\
+`The program allows states to invest benefits they receive on behalf of foster children in their care.`\
+https://www.nytimes.com/2026/06/11/us/politics/melania-trump-foster-youth-accounts.html
+
 **Some States Pull Out of Trump’s ‘Great American State Fair’**\
 `At least five have declined to participate, the latest sign that the national 250th birthday celebration has become a fragmented and partisan affair as the president seeks his imprint.`\
 https://www.nytimes.com/2026/06/11/us/politics/great-american-state-fair.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/11/dining/drinks/bordeaux-wine.html
 **Laverne Cox Always Knew She’d Be a Star**\
 `The actor Laverne Cox tells Anna Martin, host of the “Modern Love” podcast, about how she overcame childhood bullying.`\
 https://www.nytimes.com/video/podcasts/100000010960860/laverne-cox-always-knew-shed-be-a-star.html
-
-**Avril Haines, Former Intelligence Chief, Will Lead Carnegie Endowment for International Peace**\
-`In the run-up to the invasion of Ukraine, Ms. Haines helped devise the strategy of declassifying evidence of Russia’s military buildup in an effort to rally European allies.`\
-https://www.nytimes.com/2026/06/11/us/politics/avril-haines-carnegie-endowment-for-international-peace.html
-
-**Scientists Measure Earth’s Vast Underground Fungal Webs**\
-`With machine learning and a high-resolution imaging robot, scientists measured and mapped the extent of Earth’s carbon circulatory system.`\
-https://www.nytimes.com/2026/06/11/science/ecology-mycorrhizal-fungus.html
 
