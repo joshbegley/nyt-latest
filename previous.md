@@ -1,3 +1,11 @@
+**America Signed Up for the World Cup. FIFA Stuck You With the Tab.**\
+`Adam Crafton and Pablo discuss how FIFA squeezed U.S. taxpayers with hidden costs.`\
+https://www.nytimes.com/2026/06/11/podcasts/america-signed-up-for-the-world-cup-fifa-stuck-you-with-the-tab.html
+
+**Millions Across the Midwest and Northeast Face Severe Storms on Thursday**\
+`More than 100 million people from Texas to New England live in areas that could face dangerous weather on Thursday.`\
+https://www.nytimes.com/2026/06/11/weather/chicago-new-york-northeast-storms-minnesota.html
+
 **Mundial en México: las protestas podrían interrumpir la ceremonia de inauguración**\
 `Sindicatos y otros grupos que representan a maestros, familias de víctimas de la violencia, jueces y otros sectores están aprovechando la atención mediática que el Mundial brindará al país.`\
 https://www.nytimes.com/es/2026/06/11/espanol/america-latina/mexico-mundial-protestas-inauguracion-partido.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/11/us/politics/conor-mcgregor-ufc-drugs.html
 **She Was One of Obama’s Top Lawyers. How Did She Get Tangled Up With Epstein?**\
 `That she, of all people, looked past his 2008 conviction tells you everything you need to know about how unreliable and corroded the legal world has become.`\
 https://www.nytimes.com/2026/06/11/opinion/kathy-ruemmler-epstein-emails.html
-
-**U.S. and Iran Exchange Fresh Strikes**\
-`The United States launched a new wave of airstrikes on Iran early Thursday, and Iran claimed to have retaliated, bringing the two sides close to a return to all-out war.`\
-https://www.nytimes.com/video/world/middleeast/100000010959783/us-iran-exchange-strikes.html
-
-**Inside the Knicks’ Historic Comeback to Take Game 4 of the N.B.A. Finals**\
-`Hear instant reaction to the New York Knicks’ win over the San Antonio Spurs.`\
-https://www.nytimes.com/2026/06/11/podcasts/knicks-spurs-nba-finals-game-4.html
 

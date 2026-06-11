@@ -1,3 +1,11 @@
+**America Signed Up for the World Cup. FIFA Stuck You With the Tab.**\
+`Adam Crafton and Pablo discuss how FIFA squeezed U.S. taxpayers with hidden costs.`\
+https://www.nytimes.com/2026/06/11/podcasts/america-signed-up-for-the-world-cup-fifa-stuck-you-with-the-tab.html
+
+**Millions Across the Midwest and Northeast Face Severe Storms on Thursday**\
+`More than 100 million people from Texas to New England live in areas that could face dangerous weather on Thursday.`\
+https://www.nytimes.com/2026/06/11/weather/chicago-new-york-northeast-storms-minnesota.html
+
 **Mundial en México: las protestas podrían interrumpir la ceremonia de inauguración**\
 `Sindicatos y otros grupos que representan a maestros, familias de víctimas de la violencia, jueces y otros sectores están aprovechando la atención mediática que el Mundial brindará al país.`\
 https://www.nytimes.com/es/2026/06/11/espanol/america-latina/mexico-mundial-protestas-inauguracion-partido.html
