@@ -22,7 +22,7 @@ https://www.nytimes.com/video/embedded/sports/basketball/100000010959446/10vid-K
 `The wealthy have descended on New York for top basketball, golf and soccer events, and they need prime tickets.`\
 https://www.nytimes.com/2026/06/10/nyregion/knicks-tickets-courtside-concierge.html
 
-**Live Updates: New Yorkers Gather Ahead of Knicks Game, Amid Some Frustration**\
+**Live Updates: New Yorkers Gather for Knicks Game, Amid Some Frustration**\
 `Hours before Game 4 of the N.B.A. finals, the team’s owner, James Dolan, and Mayor Zohran Mamdani were sparring over who was to blame for the cancellation of a watch party outside Madison Square Garden.`\
 https://www.nytimes.com/live/2026/06/10/nyregion/nba-finals-knicks-spurs
 
@@ -54,7 +54,7 @@ https://www.nytimes.com/2026/06/10/weather/storms-illinois-wisconsin-tornado-pow
 `With the World Cup facing growing crises, Gianni Infantino, the FIFA president, struck a defiant tone on the eve of the competition’s start.`\
 https://www.nytimes.com/2026/06/10/world/europe/fifa-president-world-cup.html
 
-**Knicks Watch Party Outside Madison Square Garden Is Canceled**\
+**Knicks Owner Cancels Watch Party As Spat with Mamdani Escalates**\
 `Hours before Wednesday’s game began, James Dolan, the owner of the Knicks, and Mayor Zohran Mamdani were publicly battling over who was to blame for the cancellation.`\
 https://www.nytimes.com/2026/06/10/nyregion/msg-knicks-watch-party-canceled.html
 
