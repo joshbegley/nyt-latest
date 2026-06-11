@@ -1,3 +1,7 @@
+**Can the U.S.-Iran Cease-Fire Survive Days of Strikes?**\
+`Analysts saw little prospect of either President Trump or Tehran backing down after days of exchanging fire.`\
+https://www.nytimes.com/2026/06/11/world/middleeast/can-new-fighting-between-us-and-iran-be-contained.html
+
 **Boston Symphony in Crisis Over Dismissal of Andris Nelsons**\
 `Chad Smith, the orchestra’s president, admitted missteps in terminating Andris Nelsons’s contract but stood by the decision and won’t step down.`\
 https://www.nytimes.com/2026/06/11/arts/music/boston-symphony-andris-nelsons-chad-smith.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/11/opinion/silicon-valley-ai-politics.html
 **‘Stop! That! Train!’ Review: Gleefully Going Off the Rails**\
 `RuPaul stars as the American president, who must contend with an unfolding transit crisis and drag queens galore as a dangerous storm approaches.`\
 https://www.nytimes.com/2026/06/11/movies/stop-that-train-review.html
-
-**‘Promised Sky’ Review: Living in a State of Uncertainty**\
-`Three women living in Tunisia shelter Kenza, a young girl who survived a shipwreck, while they deal with their own issues.`\
-https://www.nytimes.com/2026/06/11/movies/promised-sky-review.html
 
 **Iran War Live Updates: U.S.-Iran Strikes Risk Dangerous New Phase**\
 `The exchanges of fire this week have raised fears of a return to all-out war. The U.S. military struck another tanker it said was carrying Iranian oil and three Indians were reported killed in an earlier American attack at sea.`\
