@@ -1,3 +1,11 @@
+**Hazardous Temperatures Forecast for Many World Cup Games**\
+`Many of the tournament’s host cities risk hitting dangerous heat levels this year, raising questions about the safety of players and fans.`\
+https://www.nytimes.com/2026/06/11/climate/world-cup-heat.html
+
+**Jeff Bezos Wants to Build an ‘Artificial General Engineer’**\
+`As co-chief executive of the start-up Prometheus, the Amazon founder is using A.I. to improve how devices ranging from computers to jet engines are made.`\
+https://www.nytimes.com/2026/06/11/technology/bezos-prometheus-ai-engineer.html
+
 **The Joy of Missing Out on SpaceX’s I.P.O.**\
 `You’re not important or lucky enough to have access to shares at the offering price, and that’s OK. Here’s why.`\
 https://www.nytimes.com/2026/06/11/business/spacex-ipo-investing.html
