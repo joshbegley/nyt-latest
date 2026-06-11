@@ -1,10 +1,18 @@
-**House Rejects Bill to Extend Spy Power With Lapse Looming**\
+**Israel Set to Rapidly Expand West Bank Settlement**\
+`In a major push, the government is rushing to place temporary housing at about 60 empty sites in the Israeli-occupied West Bank before national elections this fall.`\
+https://www.nytimes.com/2026/06/11/world/middleeast/israel-west-bank-settlements.html
+
+**Toronto Police Officer Is Killed in Operation With U.S. Link**\
+`The incident happened early Thursday during an investigation into a March shooting at the U.S. consulate in Toronto, the police chief said.`\
+https://www.nytimes.com/2026/06/11/world/canada/toronto-police-officer-shooting-us.html
+
+**House Rejects Bill to Extend Surveillance Power With FISA Section 702 Set to Expire**\
 `A measure to temporarily continue a key surveillance law fell well short of the support needed to pass, further raising the chances that it will lapse on Saturday.`\
 https://www.nytimes.com/2026/06/11/us/politics/house-spy-program-bill.html
 
 **Can the U.S.-Iran Cease-Fire Survive Days of Strikes?**\
 `Analysts saw little prospect of either President Trump or Tehran backing down after days of exchanging fire.`\
-https://www.nytimes.com/2026/06/11/world/middleeast/can-new-fighting-between-us-and-iran-be-contained.html
+https://www.nytimes.com/2026/06/11/world/middleeast/iran-us-war-strikes-ceasefire.html
 
 **Boston Symphony in Crisis Over Dismissal of Andris Nelsons**\
 `Chad Smith, the orchestra’s president, admitted missteps in terminating Andris Nelsons’s contract but stood by the decision and won’t step down.`\
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/11/podcasts/the-pro-tax-socialite.html
 **Your Next House May Be a Birdhouse**\
 `Market data suggests a soaring future for bird watching and for sales of feeding products.`\
 https://www.nytimes.com/2026/06/11/realestate/bird-watching-equipment-statistics.html
-
-**Homes for Sale in Manhattan and Brooklyn**\
-`This week’s properties are in Hamilton Heights, Murray Hill and Downtown Brooklyn.`\
-https://www.nytimes.com/2026/06/11/realestate/housing-market-nyc.html
-
-**I was a V.C. Partner. We Can’t Let Silicon Valley Buy Democracy.**\
-`Pro-A.I. groups are spending gobs of cash to influence political campaigns. That’s terrible news for us all.`\
-https://www.nytimes.com/2026/06/11/opinion/silicon-valley-ai-politics.html
 
 **Iran War Live Updates: U.S.-Iran Strikes Risk Dangerous New Phase**\
 `The exchanges of fire this week have raised fears of a return to all-out war. The U.S. military struck another tanker it said was carrying Iranian oil and three Indians were reported killed in an earlier American attack at sea.`\
