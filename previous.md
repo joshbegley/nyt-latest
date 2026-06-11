@@ -1,3 +1,15 @@
+**World Cup Kicks Off in Mexico**\
+`The 2026 FIFA World Cup begins on Thursday with a match between Mexico and South Africa. The tournament takes place in three countries: the United States, Mexico and Canada.`\
+https://www.nytimes.com/video/sports/100000010959727/fifa-world-cup-mexico.html
+
+**Knicks Fans Rejoice After Game 4 Victory**\
+`Fans and celebrities, including Taylor Swift and Timothée Chalamet, celebrated after the Knicks’ record comeback to win Game 4 of the N.B.A finals`\
+https://www.nytimes.com/video/nyregion/100000010959882/knicks-nba-comeback-fans.html
+
+**La nueva táctica con drones de Ucrania está dañando a Rusia**\
+`Los ataques de alcance medio, con drones mejorados que Ucrania produce en grandes cantidades, están provocando escasez de combustible y complica la rotación de soldados.`\
+https://www.nytimes.com/es/2026/06/11/espanol/mundo/guerra-ucrania-rusia-drones.html
+
 **A Fractured North America Begins a Historic World Cup**\
 `Mexico and Canada have faced significant recent tension in their relations with the United States. But in their historic World Cup bid, the three countries promoted teamwork.`\
 https://www.nytimes.com/2026/06/11/world/americas/world-cup-fractured-north-america.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/06/10/technology/president-trump-americans-sharing-
 **The U.S. Strikes Iran Again**\
 `Also, inflation jumps for a third-straight month. Here’s the latest at the end of Wednesday.`\
 https://www.nytimes.com/2026/06/10/briefing/inflation-rises-us-iran-strikes.html
-
-**Suspect in the Killing of a Minnesota Lawmaker Strikes a Plea Deal**\
-`The arrangement means that Vance Boelter will not face the death penalty after being charged with killing Melissa Hortman and her husband, Mark.`\
-https://www.nytimes.com/2026/06/10/us/vince-boelter-plea-deal.html
-
-**Trump Says He ‘Loves the Inflation’ Amid War With Iran**\
-`President Trump dismissed the newest inflation report on Wednesday, marking the third-straight month of high prices for consumers. The war in Iran has snarled the world’s energy supply, resulting in high oil and gas prices.`\
-https://www.nytimes.com/video/us/politics/100000010958803/trump-inflation-iran-war.html
-
-**Maine Senate Race Heats Up as Trump Attacks Platner**\
-`With Graham Platner now the Democratic nominee against Senator Susan Collins, signs of how hostile the race will be have quickly emerged.`\
-https://www.nytimes.com/2026/06/10/us/politics/maine-senate-graham-platner-susan-collins.html
 

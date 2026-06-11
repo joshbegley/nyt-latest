@@ -1,3 +1,15 @@
+**World Cup Kicks Off in Mexico**\
+`The 2026 FIFA World Cup begins on Thursday with a match between Mexico and South Africa. The tournament takes place in three countries: the United States, Mexico and Canada.`\
+https://www.nytimes.com/video/sports/100000010959727/fifa-world-cup-mexico.html
+
+**Knicks Fans Rejoice After Game 4 Victory**\
+`Fans and celebrities, including Taylor Swift and Timothée Chalamet, celebrated after the Knicks’ record comeback to win Game 4 of the N.B.A finals`\
+https://www.nytimes.com/video/nyregion/100000010959882/knicks-nba-comeback-fans.html
+
+**La nueva táctica con drones de Ucrania está dañando a Rusia**\
+`Los ataques de alcance medio, con drones mejorados que Ucrania produce en grandes cantidades, están provocando escasez de combustible y complica la rotación de soldados.`\
+https://www.nytimes.com/es/2026/06/11/espanol/mundo/guerra-ucrania-rusia-drones.html
+
 **A Fractured North America Begins a Historic World Cup**\
 `Mexico and Canada have faced significant recent tension in their relations with the United States. But in their historic World Cup bid, the three countries promoted teamwork.`\
 https://www.nytimes.com/2026/06/11/world/americas/world-cup-fractured-north-america.html
