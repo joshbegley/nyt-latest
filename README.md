@@ -1,3 +1,7 @@
+**Inside the Knicks’ Historic Comeback to Take Game 4 of the N.B.A. Finals**\
+`Hear instant reaction to the New York Knicks’ win over the San Antonio Spurs.`\
+https://www.nytimes.com/2026/06/11/podcasts/knicks-spurs-nba-finals-game-4.html
+
 **‘Amazon.com of South Korea’ Is Fined a Record $409 Million**\
 `South​ Korea​’s regulatory investigation of Coupang, an e-commerce giant incorporated in the United States, has led to diplomatic tension between Seoul and Washington.`\
 https://www.nytimes.com/2026/06/11/world/asia/south-korea-coupang-fine.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/10/world/europe/fifa-president-world-cup.html
 **Knicks Owner Cancels Watch Party As Spat With Mamdani Escalates**\
 `Hours before Wednesday’s game began, James Dolan, the owner of the Knicks, and Mayor Zohran Mamdani were publicly battling over who was to blame for the cancellation.`\
 https://www.nytimes.com/2026/06/10/nyregion/msg-knicks-watch-party-canceled.html
-
-**Trump Muses About Government Taking a Piece of A.I. Companies**\
-`President Trump touched on what is an increasingly hot topic in Washington: how average Americans can get a piece of the tech industry’s A.I. windfall.`\
-https://www.nytimes.com/2026/06/10/technology/president-trump-americans-sharing-ai-wealth.html
 
