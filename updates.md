@@ -1,3 +1,19 @@
+**For Painting’s Great Skeptic, Gerhard Richter, History Is a Blur**\
+`Our critic Jason Farago on how the artist conceived a new way forward for landscape painting.`\
+https://www.nytimes.com/2026/06/11/arts/design/gerhard-richter-landschaften-zwirner-close-read.html
+
+**Ryanair Is Being Investigated for Charging Parents to Sit Next to Their Children**\
+`Britain’s competition watchdog will determine whether the airline’s mandatory fee is unfair. The low-cost airline called the investigation “bogus.”`\
+https://www.nytimes.com/2026/06/11/world/europe/ryanair-investigation-parents-charges-flights.html
+
+**U.K. Defense Secretary Resigns, in a Blow to Starmer**\
+`John Healey unexpectedly announced that he was stepping down, saying Prime Minister Keir Starmer was failing to invest enough money in the British military.`\
+https://www.nytimes.com/2026/06/11/world/europe/uk-defense-secretary-resigns-healey-starmer.html
+
+**The Knicks’ Game 4 Comeback Was Epic. So Was Their Fans’ Response.**\
+`The crowd at Madison xSquare Garden was forlorn as the New York Knicks fell far behind in Game 4 of the N.B.A. finals. After they won, it was electric.`\
+https://www.nytimes.com/2026/06/11/nyregion/knicks-game-4-fans-nba-finals-nyc.html
+
 **Colombia elige: ¿machismo o derechos de la mujer?**\
 `El favorito en las elecciones presidenciales ha desatado un debate sobre la masculinidad y el machismo. Los grupos defensores de los derechos de las mujeres ven en ello una estrategia habitual de la derecha.`\
 https://www.nytimes.com/es/2026/06/11/espanol/america-latina/colombia-abelardo-de-la-espriella-machismo.html

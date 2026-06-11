@@ -1,3 +1,11 @@
+**For Painting’s Great Skeptic, Gerhard Richter, History Is a Blur**\
+`Our critic Jason Farago on how the artist conceived a new way forward for landscape painting.`\
+https://www.nytimes.com/2026/06/11/arts/design/gerhard-richter-landschaften-zwirner-close-read.html
+
+**Ryanair Is Being Investigated for Charging Parents to Sit Next to Their Children**\
+`Britain’s competition watchdog will determine whether the airline’s mandatory fee is unfair. The low-cost airline called the investigation “bogus.”`\
+https://www.nytimes.com/2026/06/11/world/europe/ryanair-investigation-parents-charges-flights.html
+
 **Colombia elige: ¿machismo o derechos de la mujer?**\
 `El favorito en las elecciones presidenciales ha desatado un debate sobre la masculinidad y el machismo. Los grupos defensores de los derechos de las mujeres ven en ello una estrategia habitual de la derecha.`\
 https://www.nytimes.com/es/2026/06/11/espanol/america-latina/colombia-abelardo-de-la-espriella-machismo.html
@@ -15,7 +23,7 @@ https://www.nytimes.com/2026/06/11/business/dealbook/spacex-ipo-ai-spending.html
 https://www.nytimes.com/2026/06/11/world/asia/2015-bangkok-bombing-death-sentence.html
 
 **U.K. Defense Secretary Resigns, in a Blow to Starmer**\
-`John Healey unexpectedly announced his resignation on Thursday, saying Prime Minister Keir Starmer had failed to invest enough money in British defense.`\
+`John Healey unexpectedly announced that he was stepping down, saying Prime Minister Keir Starmer was failing to invest enough money in the British military.`\
 https://www.nytimes.com/2026/06/11/world/europe/uk-defense-secretary-resigns-healey-starmer.html
 
 **The World Cup**\
@@ -47,7 +55,7 @@ https://www.nytimes.com/2026/06/11/crosswords/strands-sidekick-831.html
 https://www.nytimes.com/2026/06/11/crosswords/wordle-review-1819.html
 
 **The Knicks’ Game 4 Comeback Was Epic. So Was Their Fans’ Response.**\
-`The crowd at Madison Square Garden was forlorn as the New York Knicks fell far behind in Game 4 of the N.B.A. finals. After they won, it was electric.`\
+`The crowd at Madison xSquare Garden was forlorn as the New York Knicks fell far behind in Game 4 of the N.B.A. finals. After they won, it was electric.`\
 https://www.nytimes.com/2026/06/11/nyregion/knicks-game-4-fans-nba-finals-nyc.html
 
 **America Signed Up for the World Cup. FIFA Stuck You With the Tab.**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/11/travel/how-to-file-a-travel-insurance-claim.h
 **‘Honeyjoon’ Review: Island Healing**\
 `In this strange, sensual dramedy, a lusty 20-something and her grieving Persian-British mother travel to an island resort meant for honeymooners.`\
 https://www.nytimes.com/2026/06/11/movies/honeyjoon-review.html
-
-**Homes for Sale in New York and New Jersey**\
-`This week’s properties are three-bedroom homes in Freeport, N.Y., and Roseland, N.J.`\
-https://www.nytimes.com/2026/06/11/realestate/homes-for-sale-in-new-york-and-new-jersey.html
-
-**Why It’s Nearly Impossible to Build a Robot Without China**\
-`Building on the country’s electric vehicle industry, Chinese companies are making robot parts at a scale and price point others can’t match.`\
-https://www.nytimes.com/2026/06/11/business/china-robots-humanoid.html
 
