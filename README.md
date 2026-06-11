@@ -82,7 +82,7 @@ https://www.nytimes.com/2026/06/11/well/measles-treatments-drug-vaccine.html
 `Some New Yorkers tried their luck at hot spots like Bong, Via Carota and Ha’s Snack Bar.`\
 https://www.nytimes.com/2026/06/11/style/nyc-restaurants-knicks-games-reservations.html
 
-**In Britain, a Violent Cycle: Hateful Attacks, Right-Wing Agitation and Riots**\
+**In the U.K., a Violent Cycle: Hateful Attacks, Right-Wing Agitation and Riots**\
 `Two stabbings have fueled violent protests in England and Northern Ireland in the last 10 days, fanned online by right-wing voices. In Britain and across Europe, it’s a grim pattern.`\
 https://www.nytimes.com/2026/06/11/world/europe/northern-ireland-stabbing-immigration.html
 
