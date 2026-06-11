@@ -1,3 +1,7 @@
+**With Inflation Bearing Down, Europe Is Facing Higher Interest Rates**\
+`The European Central Bank is set to raise rates, the first such move since September 2023, as energy disruptions caused by the Iran war drive higher prices.`\
+https://www.nytimes.com/2026/06/11/business/european-central-bank-inflation-interest-rates.html
+
 **New York City Leaders Propose Building More Homes on Top of Libraries**\
 `Julie Menin, the City Council speaker, unveiled plans for three projects combining affordable housing developments and library renovations. It is part of a nationwide trend.`\
 https://www.nytimes.com/2026/06/11/nyregion/nyc-libraries-affordable-housing-menin.html
