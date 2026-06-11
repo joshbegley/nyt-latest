@@ -1,3 +1,11 @@
+**Live Updates: New Yorkers Gather for Knicks Game, Amid Some Frustration**\
+`Hours before Game 4 of the N.B.A. finals, the team’s owner, James Dolan, and Mayor Zohran Mamdani were sparring over who was to blame for the cancellation of a watch party outside Madison Square Garden.`\
+https://www.nytimes.com/live/2026/06/10/nyregion/nba-finals-knicks-spurs
+
+**Knicks Owner Cancels Watch Party As Spat with Mamdani Escalates**\
+`Hours before Wednesday’s game began, James Dolan, the owner of the Knicks, and Mayor Zohran Mamdani were publicly battling over who was to blame for the cancellation.`\
+https://www.nytimes.com/2026/06/10/nyregion/msg-knicks-watch-party-canceled.html
+
 **Trump’s Plaques on the Presidential ‘Walk of Fame,’ Fact-Checked and Annotated by Historians**\
 `President Trump’s ‘Walk of Fame’ has an unreliable narrator. We asked eight historians what they thought.`\
 https://www.nytimes.com/interactive/2026/06/10/us/politics/trump-president-plaques-white-house.html
