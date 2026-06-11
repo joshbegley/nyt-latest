@@ -1,3 +1,11 @@
+**Lorem ipsum dolor sit amet**\
+`summary`\
+https://www.nytimes.com/interactive/2026/06/11/business/box-office-charts.html
+
+**4 Book Recommendations for Father's Day**\
+`Ahead of Father’s Day, the best-selling author Ryan Holiday joined the “Book Review” podcast to discuss “The Road,” one of The New York Times’s “100 Best Books of the 21st Century.” While he was with us, he also told us some of his recommendations for other books to give the dads or parents in your life.`\
+https://www.nytimes.com/video/podcasts/100000010961709/4-book-recommendations-for-fathers-day.html
+
 **Looking for an Egyptian Sandwich and More Reader Questions**\
 `Becky Hughes is back to answer readers’ urgent restaurant requests.`\
 https://www.nytimes.com/2026/06/11/dining/looking-for-an-egyptian-sandwich-and-more-reader-questions.html

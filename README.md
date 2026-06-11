@@ -1,3 +1,7 @@
+**Raphael Warnock: We Are Witnessing an Assault on Basic Voting Rights**\
+`The Supreme Court “has committed violence against the ways in which ordinary people can have a voice in our system,” says Senator Raphael Warnock, a Democrat from Georgia.`\
+https://www.nytimes.com/video/podcasts/100000010961922/raphael-warnock-we-are-witnessing-an-assault-on-basic-voting-rights.html
+
 **Lorem ipsum dolor sit amet**\
 `summary`\
 https://www.nytimes.com/interactive/2026/06/11/business/box-office-charts.html
@@ -114,7 +118,7 @@ https://www.nytimes.com/2026/06/11/world/middleeast/netanyahu-aide-charged-docum
 `Elon Musk’s rocket company is spending big and losing money. That has raised questions about whether it can justify its valuation for its blockbuster initial public offering.`\
 https://www.nytimes.com/2026/06/11/technology/spacex-valuation-skeptics.html
 
-**He Spent 15 Years Amassing SpaceX Shares. Now Comes the Windfall.**\
+**The SpaceX Shareholder at the Helm of a Multibillion-Dollar Payout**\
 `Justin Fishner-Wolfson, long a minor figure in Elon Musk’s orbit, is at the helm of a multibillion-dollar payout`\
 https://www.nytimes.com/2026/06/11/business/spacex-ipo-137-ventures.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/11/opinion/tom-steyer-california-governor.html
 **With Measles Roaring Back, the Search for a Drug is On**\
 `As vaccination rates decline, biotech companies see a potential new market for measles drugs.`\
 https://www.nytimes.com/2026/06/11/well/measles-treatments-drug-vaccine.html
-
-**These NYC Reservations Are Impossible to Get. Except During a Knicks Game.**\
-`Some New Yorkers tried their luck at hot spots like Bong, Via Carota and Ha’s Snack Bar.`\
-https://www.nytimes.com/2026/06/11/style/nyc-restaurants-knicks-games-reservations.html
 
