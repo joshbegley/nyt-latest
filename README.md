@@ -1,3 +1,7 @@
+**Skeptics Question Whether SpaceX Is Worth $1.77 Trillion**\
+`Elon Musk’s rocket company is spending big and losing money. That has raised questions about whether it can justify its valuation for its blockbuster initial public offering.`\
+https://www.nytimes.com/2026/06/11/technology/spacex-valuation-skeptics.html
+
 **He Spent 15 Years Amassing SpaceX Shares. Now Comes the Windfall.**\
 `Justin Fishner-Wolfson, long a minor figure in Elon Musk’s orbit, is at the helm of a multibillion-dollar payout`\
 https://www.nytimes.com/2026/06/11/business/spacex-ipo-137-ventures.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/11/t-magazine/lake-como-italy-hotel.html
 **The Young Economic Populists Reshaping the Left**\
 `As Democrats wrestle over the direction of their party, a new crop of progressive candidates sees college graduates among its biggest supporters.`\
 https://www.nytimes.com/2026/06/11/podcasts/the-daily/college-graduates-economic-populists-democrats.html
-
-**Trump Shrugs Off Surging Inflation, and Why a Groundbreaking Social Media Ban Is Floundering**\
-`Plus, the man behind “GOOOOAL!”`\
-https://www.nytimes.com/2026/06/11/podcasts/the-headlines/trump-inflation-australia-social-media-ban.html
 
 **Iran War Live Updates: As U.S.-Iran Strikes Risk Dangerous New Phase, Trump Issues More Threats**\
 `President Trump said U.S. forces would hit Iran again later Thursday and threatened to take Kharg Island, the heart of Iran’s oil economy. The exchanges of fire this week have raised fears of a return to all-out war.`\
