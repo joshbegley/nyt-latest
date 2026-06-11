@@ -1,3 +1,7 @@
+**U.S. Officials Told Colombia to Cancel President’s Meeting With Mamdani**\
+`The State Department canceled President Gustavo Petro’s visa last year after he attended a pro-Palestinian rally in Manhattan. He had planned to attend a forum led by Mayor Mamdani of New York.`\
+https://www.nytimes.com/2026/06/10/world/americas/mamdani-petro-new-york-colombia-trump.html
+
 **Oil Prices Rise as U.S. Launches New Attack on Iran**\
 `Oil prices jumped after the United States and Iran exchanged fire for a second day, heightening fears that the two countries could slide back into open conflict.`\
 https://www.nytimes.com/2026/06/10/business/oil-gas-price-iran.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/06/10/briefing/the-good-list-pigeons-knicks.html
 **Texas Governor Seeks New Limits on Data Centers**\
 `Gov. Greg Abbott is urging tighter controls and a repeal of financial incentives for data centers, which have drawn complaints in rural Republican areas of Texas.`\
 https://www.nytimes.com/2026/06/10/us/texas-abbott-data-centers-regulation.html
-
-**Mamdani’s Nosebleed Knicks Ticket and the Benefits of Being Mayor**\
-`Mayor Zohran Mamdani paid roughly $1,000 for a standing-room-only ticket to Game 3 of the N.B.A. finals, using access to house tickets not available to regular fans.`\
-https://www.nytimes.com/2026/06/10/nyregion/mamdani-knicks-ticket-garden.html
 
 **World Cup Updates: U.S. Immigration Policies Turn Some Fans and Participants Away**\
 `(No description)`\
