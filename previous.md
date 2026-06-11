@@ -1,3 +1,7 @@
+**This Is What Joy Looks Like for Knicks Fans**\
+`A thrilling, historic comeback victory in Game 4 of the N.BA. finals sent Madison Square Garden, and the rest of New York City, into a lasting frenzy.`\
+https://www.nytimes.com/2026/06/11/nyregion/knicks-win-celebrations.html
+
 **Imágenes satelitales sugieren que EE. UU. lanzó ataques de precisión contra una planta de agua iraní**\
 `No está claro si EE. UU. atacó la instalación de forma intencional o si sabía lo que era. Atacar deliberadamente infraestructuras civiles podría constituir un crimen de guerra.`\
 https://www.nytimes.com/es/2026/06/11/espanol/mundo/estados-unidos-ataque-iran-planta-agua.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/11/business/dealbook/spacex-ipo-ai-spending.html
 **Two Men Sentenced to Death for 2015 Bangkok Bombing**\
 `A Thai court convicted the men, who are Uyghur, for a terrorist attack at a Hindu shrine that killed 20 and injured dozens more.`\
 https://www.nytimes.com/2026/06/11/world/asia/2015-bangkok-bombing-death-sentence.html
-
-**U.K. Defense Secretary Resigns, in a Blow to Starmer**\
-`John Healey unexpectedly announced that he was stepping down, saying Prime Minister Keir Starmer was failing to invest enough money in the British military.`\
-https://www.nytimes.com/2026/06/11/world/europe/uk-defense-secretary-resigns-healey-starmer.html
 
 **Iran War Live Updates: Trump Retracts Latest Threats of More Strikes**\
 `Claiming there was progress in the peace negotiations, President Trump said he had canceled his next wave of planned attacks after two days of U.S. airstrikes.`\

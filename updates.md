@@ -1,3 +1,7 @@
+**This Is What Joy Looks Like for Knicks Fans**\
+`A thrilling, historic comeback victory in Game 4 of the N.BA. finals sent Madison Square Garden, and the rest of New York City, into a lasting frenzy.`\
+https://www.nytimes.com/2026/06/11/nyregion/knicks-win-celebrations.html
+
 **Imágenes satelitales sugieren que EE. UU. lanzó ataques de precisión contra una planta de agua iraní**\
 `No está claro si EE. UU. atacó la instalación de forma intencional o si sabía lo que era. Atacar deliberadamente infraestructuras civiles podría constituir un crimen de guerra.`\
 https://www.nytimes.com/es/2026/06/11/espanol/mundo/estados-unidos-ataque-iran-planta-agua.html
