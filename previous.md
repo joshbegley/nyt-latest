@@ -1,3 +1,7 @@
+**¿Cura médica o bebé a medida? Un nuevo estudio sobre la edición de embriones desata el debate**\
+`Los especialistas en fertilidad, las empresas biotecnológicas y los expertos en ética están divididos sobre los avances en la edición genética temprana.`\
+https://www.nytimes.com/es/2026/06/11/espanol/ciencia-y-tecnologia/edicion-embriones-genetica-adn.html
+
 **After Senate Loss, Cornyn Predicts ‘Miserable’ Final Two Years for Trump**\
 `In his first extensive interview since his defeat by a Trump-backed challenger, the Texas Republican said the Senate was in for a “bumpy ride” as he and others flex new political freedom.`\
 https://www.nytimes.com/2026/06/11/us/john-cornyn-interview-trump.html
@@ -42,7 +46,7 @@ https://www.nytimes.com/2026/06/11/us/minnesota-assassination-plea-hearing-hortm
 `Hunted by slavers, the abolitionist escaped briefly to Britain and Ireland. A new show at the Irish Arts Center combines his speeches with performances by local students.`\
 https://www.nytimes.com/2026/06/11/theater/north-star-frederick-douglass-irish-arts-center.html
 
-**Iran’s Attacks on Gulf States Underscore Their Dependence on U.S.**\
+**Iran’s Attacks on Gulf States Underscore Targeted Countries’ Dependence on U.S.**\
 `The targeted countries host sprawling American military bases and thousands of personnel at a time when the United States is waging war against Iran.`\
 https://www.nytimes.com/2026/06/11/world/middleeast/iran-attacks-kuwait-bahrain-gulf-states.html
 
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/11/crosswords/connections-companion-1097.html
 **NYT Strands Hints for June 12, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, June 12, 2026.`\
 https://www.nytimes.com/2026/06/11/crosswords/strands-sidekick-831.html
-
-**Today’s Wordle Hints for June 12, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, June 12, 2026.`\
-https://www.nytimes.com/2026/06/11/crosswords/wordle-review-1819.html
 
 **Iran War Live Updates: As U.S.-Iran Strikes Risk Dangerous New Phase, Trump Issues More Threats**\
 `President Trump said U.S. forces would hit Iran again later Thursday and threatened to take Kharg Island, the heart of Iran’s oil economy. The exchanges of fire this week have raised fears of a return to all-out war.`\

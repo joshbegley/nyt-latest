@@ -1,3 +1,11 @@
+**¿Cura médica o bebé a medida? Un nuevo estudio sobre la edición de embriones desata el debate**\
+`Los especialistas en fertilidad, las empresas biotecnológicas y los expertos en ética están divididos sobre los avances en la edición genética temprana.`\
+https://www.nytimes.com/es/2026/06/11/espanol/ciencia-y-tecnologia/edicion-embriones-genetica-adn.html
+
+**Iran’s Attacks on Gulf States Underscore Targeted Countries’ Dependence on U.S.**\
+`The targeted countries host sprawling American military bases and thousands of personnel at a time when the United States is waging war against Iran.`\
+https://www.nytimes.com/2026/06/11/world/middleeast/iran-attacks-kuwait-bahrain-gulf-states.html
+
 **After Senate Loss, Cornyn Predicts ‘Miserable’ Final Two Years for Trump**\
 `In his first extensive interview since his defeat by a Trump-backed challenger, the Texas Republican said the Senate was in for a “bumpy ride” as he and others flex new political freedom.`\
 https://www.nytimes.com/2026/06/11/us/john-cornyn-interview-trump.html

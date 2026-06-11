@@ -1,3 +1,11 @@
+**He Spent 15 Years Amassing SpaceX Shares. Now Comes the Windfall.**\
+`Justin Fishner-Wolfson, long a minor figure in Elon Musk’s orbit, is at the helm of a multibillion-dollar payout`\
+https://www.nytimes.com/2026/06/11/business/spacex-ipo-137-ventures.html
+
+**These Dense Bean Salads Are Smart**\
+`Long before the TikTok trend, we were mixing up beans, veggies and tangy dressings here at New York Times Cooking.`\
+https://www.nytimes.com/2026/06/11/dining/these-dense-bean-salads-are-smart.html
+
 **¿Cura médica o bebé a medida? Un nuevo estudio sobre la edición de embriones desata el debate**\
 `Los especialistas en fertilidad, las empresas biotecnológicas y los expertos en ética están divididos sobre los avances en la edición genética temprana.`\
 https://www.nytimes.com/es/2026/06/11/espanol/ciencia-y-tecnologia/edicion-embriones-genetica-adn.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/11/podcasts/the-daily/college-graduates-economic
 **Trump Shrugs Off Surging Inflation, and Why a Groundbreaking Social Media Ban Is Floundering**\
 `Plus, the man behind “GOOOOAL!”`\
 https://www.nytimes.com/2026/06/11/podcasts/the-headlines/trump-inflation-australia-social-media-ban.html
-
-**NYT Connections Answers for June 12, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, June 12, 2026.`\
-https://www.nytimes.com/2026/06/11/crosswords/connections-companion-1097.html
-
-**NYT Strands Hints for June 12, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, June 12, 2026.`\
-https://www.nytimes.com/2026/06/11/crosswords/strands-sidekick-831.html
 
 **Iran War Live Updates: As U.S.-Iran Strikes Risk Dangerous New Phase, Trump Issues More Threats**\
 `President Trump said U.S. forces would hit Iran again later Thursday and threatened to take Kharg Island, the heart of Iran’s oil economy. The exchanges of fire this week have raised fears of a return to all-out war.`\
