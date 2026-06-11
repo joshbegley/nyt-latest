@@ -1,3 +1,7 @@
+**Trump Makes New Threats After U.S. and Iran Exchange Fresh Strikes**\
+`President Trump has vowed to keep up military pressure on Iran after the latest exchange of overnight attacks.`\
+https://www.nytimes.com/video/world/middleeast/100000010960555/trump-makes-new-threats-after-us-and-iran-exchange-fresh-strikes.html
+
 **More Trump Losses in Court and a Federal Judge in Hot Water**\
 `A roundup of legal news from the last week.`\
 https://www.nytimes.com/2026/06/11/us/politics/the-docket-legal-roundup.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/es/2026/06/11/espanol/america-latina/mundial-futbol-inic
 **La Copa Mundial arranca con una ausencia notable: la presidenta de México**\
 `Su lugar en el partido inaugural lo ocupará Yolett Cervantes Cuaquehua, una joven de una comunidad indígena que ganó un concurso organizado por el gobierno del país.`\
 https://www.nytimes.com/es/2026/06/11/espanol/america-latina/mexico-mundial-boleto-sheinbaum.html
-
-**Better Sex, Better Hair, Better Sleep: ‘Humanmaxxing’ Is Here**\
-`The biotech billionaire who wants to rebuild your body and blow your mind.`\
-https://www.nytimes.com/2026/06/11/opinion/biotech-maxxing-christian-angermayer.html
 
 **Iran War Live Updates: As U.S.-Iran Strikes Risk Dangerous New Phase, Trump Issues More Threats**\
 `President Trump said U.S. forces would hit Iran again later Thursday and threatened to take Kharg Island, the heart of Iran’s oil economy. The exchanges of fire this week have raised fears of a return to all-out war.`\
