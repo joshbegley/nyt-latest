@@ -1,3 +1,7 @@
+**Colombia elige: ¿machismo o derechos de la mujer?**\
+`El favorito en las elecciones presidenciales ha desatado un debate sobre la masculinidad y el machismo. Los grupos defensores de los derechos de las mujeres ven en ello una estrategia habitual de la derecha.`\
+https://www.nytimes.com/es/2026/06/11/espanol/america-latina/colombia-abelardo-de-la-espriella-machismo.html
+
 **Orlan’s Face Is Her Canvas, and Her Calling Card**\
 `Orlan transformed herself through plastic surgery in the 1990s for an art project. Now, she is lecturing at the Louvre about changing perceptions of beauty.`\
 https://www.nytimes.com/2026/06/11/arts/design/orlan-louvre-lectures.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/11/realestate/homes-for-sale-in-new-york-and-new
 **Why It’s Nearly Impossible to Build a Robot Without China**\
 `Building on the country’s electric vehicle industry, Chinese companies are making robot parts at a scale and price point others can’t match.`\
 https://www.nytimes.com/2026/06/11/business/china-robots-humanoid.html
-
-**29 Shows to Watch This Summer**\
-`“The Bear” serves its last course, “Ted Lasso” gets back on the pitch, and Larry David makes a TV show with the Obamas.`\
-https://www.nytimes.com/2026/06/11/arts/television/29-shows-to-watch-this-summer.html
 
