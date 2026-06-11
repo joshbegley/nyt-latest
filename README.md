@@ -1,3 +1,7 @@
+**As World Cup Begins, Mexico City Becomes a Global Stage**\
+`Supporters of the national team gathered inside and outside Mexico City Stadium for the opening of the games, celebrating the start of a tournament years in the making.`\
+https://www.nytimes.com/2026/06/11/world/americas/world-cup-photos-mexico.html
+
 **Cleve Moler, Who Unlocked the Power of Computing for Millions, Dies at 86**\
 `He built interfaces that allowed engineers, scientists and everyday people to solve difficult problems without having to write the underlying code.`\
 https://www.nytimes.com/2026/06/11/science/cleve-moler-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/11/climate/el-nino-noaa.html
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/nyregion/100000010960590/11vid-knicks-carousel-13558.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/nyregion/100000010960670/11vid-knicks-carousel-8704.html
 
