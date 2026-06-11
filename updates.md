@@ -1,3 +1,11 @@
+**La guerra en Ucrania ya dura más que la Primera Guerra Mundial**\
+`Abundan los paralelismos entre ambas guerras, desde el carácter agotador de los combates hasta la forma en que las nuevas tecnologías han transformado la batalla.`\
+https://www.nytimes.com/es/2026/06/11/espanol/mundo/ucrania-rusia-primera-guerra-mundial.html
+
+**The Researcher Who Didn’t Want to Know**\
+`Her decades of work on Huntington’s disease helped lead to the creation of a genetic test for the devastating condition. Why didn’t she take it herself?`\
+https://www.nytimes.com/2026/06/11/science/researcher-huntingtons-disease-wexler.html
+
 **‘Doctor Who’ Is in Limbo. What Does That Mean for Fans?**\
 `The BBC said there would be no Christmas special this year and is looking for a production company to take on the sci-fi classic. Followers have already dubbed this uncertain period “the Wilderness Years 2.0.”`\
 https://www.nytimes.com/2026/06/11/arts/doctor-who-christmas-special.html

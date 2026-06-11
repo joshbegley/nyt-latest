@@ -1,3 +1,7 @@
+**La guerra en Ucrania ya dura más que la Primera Guerra Mundial**\
+`Abundan los paralelismos entre ambas guerras, desde el carácter agotador de los combates hasta la forma en que las nuevas tecnologías han transformado la batalla.`\
+https://www.nytimes.com/es/2026/06/11/espanol/mundo/ucrania-rusia-primera-guerra-mundial.html
+
 **‘Doctor Who’ Is in Limbo. What Does That Mean for Fans?**\
 `The BBC said there would be no Christmas special this year and is looking for a production company to take on the sci-fi classic. Followers have already dubbed this uncertain period “the Wilderness Years 2.0.”`\
 https://www.nytimes.com/2026/06/11/arts/doctor-who-christmas-special.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/2026/06/11/arts/design/duane-michals-artist-of-wit-and-c
 `The world economy is weakening as energy prices fuel a new bout of inflation.`\
 https://www.nytimes.com/2026/06/11/business/economy/globa-economy-iran-war.html
 
-**The Researcher Who Decided Not to Know**\
+**The Researcher Who Didn’t Want to Know**\
 `Her decades of work on Huntington’s disease helped lead to the creation of a genetic test for the devastating condition. Why didn’t she take it herself?`\
 https://www.nytimes.com/2026/06/11/science/researcher-huntingtons-disease-wexler.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/11/business/spacex-tesla-ipo-elon-musk.html
 **5 Classical Music Albums You Can Listen to Right Now**\
 `Recordings of songs by Schubert, music by Martyna Basta and symphonies by Martinu are among our selections.`\
 https://www.nytimes.com/2026/06/11/arts/music/best-classical-music-albums-june-2026.html
-
-**Why Mexico’s President Will Not Attend the World Cup Opening Match**\
-`President Claudia Sheinbaum of Mexico plans to intentionally skip the entire tournament, breaking a decades-long tradition of sports diplomacy.`\
-https://www.nytimes.com/2026/06/11/world/americas/mexico-president-sheinbaum-world-cup.html
 
