@@ -1,3 +1,7 @@
+**Slayyyter on Her Viral Coachella Performaance.**\
+`Slayyyter, became one of 2026’s breakout pop stars with the release of her third album “Worst Girl in America” and her viral Coachella set.`\
+https://www.nytimes.com/video/podcasts/100000010953398/slayyyter-on-her-viral-coachella-performaance.html
+
 **Copa Mundial 2026: partido de México en fotos**\
 `La ceremonia inaugural reunió a seguidores de México y visitantes de distintos países en una jornada que combinó celebraciones, espectáculos, protestas y una fuerte presencia policial.`\
 https://www.nytimes.com/es/2026/06/11/espanol/america-latina/inauguracion-mundial-mexico-fifa.html

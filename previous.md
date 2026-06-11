@@ -1,3 +1,7 @@
+**Slayyyter on Her Viral Coachella Performaance.**\
+`Slayyyter, became one of 2026’s breakout pop stars with the release of her third album “Worst Girl in America” and her viral Coachella set.`\
+https://www.nytimes.com/video/podcasts/100000010953398/slayyyter-on-her-viral-coachella-performaance.html
+
 **Copa Mundial 2026: partido de México en fotos**\
 `La ceremonia inaugural reunió a seguidores de México y visitantes de distintos países en una jornada que combinó celebraciones, espectáculos, protestas y una fuerte presencia policial.`\
 https://www.nytimes.com/es/2026/06/11/espanol/america-latina/inauguracion-mundial-mexico-fifa.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/11/us/politics/trump-ufc-claw-white-house.html
 **Nobody Drinks Bordeaux in Bordeaux**\
 `In restaurants and wine bars in Bordeaux, plenty of other wines are open, but few bottles of the local product. Why?`\
 https://www.nytimes.com/2026/06/11/dining/drinks/bordeaux-wine.html
-
-**Laverne Cox Always Knew She’d Be a Star**\
-`The actor Laverne Cox tells Anna Martin, host of the “Modern Love” podcast, about how she overcame childhood bullying.`\
-https://www.nytimes.com/video/podcasts/100000010960860/laverne-cox-always-knew-shed-be-a-star.html
 
