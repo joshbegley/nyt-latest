@@ -1,3 +1,7 @@
+**Nobody Drinks Bordeaux in Bordeaux**\
+`In restaurants and wine bars in Bordeaux, plenty of other wines are open, but few bottles of the local product. Why? It’s complicated.`\
+https://www.nytimes.com/2026/06/11/dining/drinks/nobody-drinks-bordeaux-in-bordeaux.html
+
 **Laverne Cox Always Knew She’d Be a Star**\
 `The Netflix star tells Anna Martin, host of the “Modern Love” podcast, about how she overcame childhood bullying.`\
 https://www.nytimes.com/video/podcasts/100000010960860/laverne-cox-always-knew-shed-be-a-star.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/11/science/researcher-huntingtons-disease-wexler
 **For Painting’s Great Skeptic, Gerhard Richter, History Is a Blur**\
 `Our critic Jason Farago on how the artist conceived a new way forward for landscape painting.`\
 https://www.nytimes.com/2026/06/11/arts/design/gerhard-richter-landschaften-zwirner-close-read.html
-
-**Ryanair Is Being Investigated for Charging Parents to Sit Next to Their Children**\
-`Britain’s competition watchdog will determine whether the airline’s mandatory fee is unfair. The low-cost airline called the investigation “bogus.”`\
-https://www.nytimes.com/2026/06/11/world/europe/ryanair-investigation-parents-charges-flights.html
 
 **Iran War Live Updates: Trump Retracts Latest Threats of More Strikes**\
 `Claiming there was progress in the peace negotiations, President Trump said he had canceled his next wave of planned attacks after two days of U.S. airstrikes.`\
