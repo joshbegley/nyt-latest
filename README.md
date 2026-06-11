@@ -1,3 +1,11 @@
+**Postal Service Issues Proposal to Block Mail Ballots in States That Don’t Turn Over Data**\
+`Democrats and voting-rights groups have challenged the proposed rule as a harmful federal intrusion that could affect millions of voters who cast their ballots by mail.`\
+https://www.nytimes.com/2026/06/11/us/politics/usps-mail-voting-democratic-resistance.html
+
+**13 Afghan Civilians Killed in Airstrikes on Pakistan Border, U.N. Says**\
+`Pakistan said its airstrikes targeted militant camps. The United Nations confirmed reports by the Taliban government that mostly women and children were killed.`\
+https://www.nytimes.com/2026/06/11/world/asia/afghanistan-pakistan-airstrikes-civilians.html
+
 **William Coupon, Who Wanted to ‘Photograph Everyone in the World,’ Dies at 73**\
 `Self-taught, he became a go-to portraitist for politicians, rock stars and other celebrities. He also documented Indigenous people and inmates on death row.`\
 https://www.nytimes.com/2026/06/11/arts/design/william-coupon-dead.html
@@ -7,14 +15,14 @@ https://www.nytimes.com/2026/06/11/arts/design/william-coupon-dead.html
 https://www.nytimes.com/es/2026/06/11/espanol/mundo/sagrada-familia-papa.html
 
 **Trump Picks Jay Clayton for Director of National Intelligence After Backlash Over Bill Pulte**\
-`Lawmakers had pressed the president to find someone besides Bill Pulte, the Trump ally who was the president’s interim choice but lacked experience.`\
+`The president said he would nominate Jay Clayton, the U.S. attorney in Manhattan and the former chairman of the Securities and Exchange Commission, for the permanent role.`\
 https://www.nytimes.com/2026/06/11/us/politics/trump-jay-clayton-intelligence-chief.html
 
 **Laverne Cox Broke Up With Her Boyfriend Over Trump**\
 `The Netflix star tells Anna Martin, host of the “Modern Love” podcast, about her complicated relationship.`\
 https://www.nytimes.com/video/podcasts/100000010960977/laverne-cox-broke-up-with-her-boyfriend-over-trump.html
 
-**‘Vegas’ on the South Lawn: Trump Unveils the U.F.C. ‘Claw’**\
+**Trump Unveils UFC ‘Claw’ Ahead of Cage Match at the White House**\
 `The towering claw will be the site of an Ultimate Fighting Championship cage match on Sunday, which is President Trump’s 80th birthday.`\
 https://www.nytimes.com/2026/06/11/us/politics/trump-ufc-claw-white-house.html
 
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/11/technology/bezos-prometheus-ai-engineer.html
 **The Joy of Missing Out on SpaceX’s I.P.O.**\
 `You’re not important or lucky enough to have access to shares at the offering price, and that’s OK. Here’s why.`\
 https://www.nytimes.com/2026/06/11/business/spacex-ipo-investing.html
-
-**Can’t Pay Medical Bills? Trump Administration Suggests Getting a Loan**\
-`One-third of Americans shoulder health care debt. Insurers are being asked to consider lending money to Obamacare consumers who can’t afford higher deductibles.`\
-https://www.nytimes.com/2026/06/11/business/aca-health-care-costs-medical-debt.html
-
-**La guerra en Ucrania ya dura más que la Primera Guerra Mundial**\
-`Abundan los paralelismos entre ambas guerras, desde el carácter agotador de los combates hasta la forma en que las nuevas tecnologías han transformado la batalla.`\
-https://www.nytimes.com/es/2026/06/11/espanol/mundo/ucrania-rusia-primera-guerra-mundial.html
 
 **Iran War Live Updates: Trump Retracts Latest Threats of More Strikes**\
 `Claiming there was progress in the peace negotiations, President Trump said he had canceled his next wave of planned attacks after two days of U.S. airstrikes.`\

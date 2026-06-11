@@ -1,3 +1,7 @@
+**William Coupon, Who Wanted to ‘Photograph Everyone in the World,’ Dies at 73**\
+`Self-taught, he became a go-to portraitist for politicians, rock stars and other celebrities. He also documented Indigenous people and inmates on death row.`\
+https://www.nytimes.com/2026/06/11/arts/design/william-coupon-dead.html
+
 **El papa León bendice la Sagrada Familia. Para algunos, la basílica es una maldición**\
 `El pontífice celebró una misa en la emblemática obra inconclusa de Antoni Gaudí durante su viaje a España. Pero para algunos barceloneses, el final de la construcción podría significar perder sus casas.`\
 https://www.nytimes.com/es/2026/06/11/espanol/mundo/sagrada-familia-papa.html
