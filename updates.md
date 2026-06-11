@@ -1,3 +1,11 @@
+**NOAA Issues El Nino Advisory**\
+`The shift in global weather patterns threatens to worsen floods and heat waves that were already intensifying because of climate change.`\
+https://www.nytimes.com/2026/06/11/climate/el-nino-noaa.html
+
+**Toronto Police Officer Fatally Shot While Investigating U.S. Consulate Shooting**\
+`The officer was shot on Thursday while investigating the firing of a gun outside the U.S. consulate in March, the authorities said.`\
+https://www.nytimes.com/2026/06/11/world/canada/toronto-police-officer-shooting-us.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/nyregion/100000010960590/11vid-knicks-carousel-13558.html

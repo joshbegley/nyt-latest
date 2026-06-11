@@ -1,3 +1,7 @@
+**NOAA Issues El Nino Advisory**\
+`The shift in global weather patterns threatens to worsen floods and heat waves that were already intensifying because of climate change.`\
+https://www.nytimes.com/2026/06/11/climate/el-nino-noaa.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/nyregion/100000010960590/11vid-knicks-carousel-13558.html
@@ -63,7 +67,7 @@ https://www.nytimes.com/2026/06/11/world/europe/northern-ireland-stabbing-immigr
 https://www.nytimes.com/2026/06/11/world/middleeast/israel-west-bank-settlements.html
 
 **Toronto Police Officer Fatally Shot While Investigating U.S. Consulate Shooting**\
-`The incident happened early Thursday during an investigation into a March shooting at the U.S. consulate in Toronto, the police chief said.`\
+`The officer was shot on Thursday while investigating the firing of a gun outside the U.S. consulate in March, the authorities said.`\
 https://www.nytimes.com/2026/06/11/world/canada/toronto-police-officer-shooting-us.html
 
 **House Rejects Bill to Extend Surveillance Power With FISA Section 702 Set to Expire**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/11/podcasts/america-signed-up-for-the-world-cup-
 **Millions Across the Midwest and Northeast Face Severe Storms on Thursday**\
 `For the second day in a row, Chicago is in the bull’s-eye of the areas facing severe weather on Thursday, but the storm forecast is widespread.`\
 https://www.nytimes.com/2026/06/11/weather/chicago-new-york-northeast-storms-minnesota.html
-
-**Mundial en México: las protestas podrían interrumpir la ceremonia de inauguración**\
-`Sindicatos y otros grupos que representan a maestros, familias de víctimas de la violencia, jueces y otros sectores están aprovechando la atención mediática que el Mundial brindará al país.`\
-https://www.nytimes.com/es/2026/06/11/espanol/america-latina/mexico-mundial-protestas-inauguracion-partido.html
 
 **Iran War Live Updates: As U.S.-Iran Strikes Risk Dangerous New Phase, Trump Issues More Threats**\
 `President Trump said U.S. forces would hit Iran again later Thursday and threatened to take Kharg Island, the heart of Iran’s oil economy. The exchanges of fire this week have raised fears of a return to all-out war.`\
