@@ -1,3 +1,7 @@
+**Looking for an Egyptian Sandwich and More Reader Questions**\
+`Becky Hughes is back to answer readers’ urgent restaurant requests.`\
+https://www.nytimes.com/2026/06/11/dining/looking-for-an-egyptian-sandwich-and-more-reader-questions.html
+
 **Slayyyter Sees No Use For ‘Taste Peacocking’ In Pop**\
 `Slayyyter became one of 2026’s breakout pop stars with the release of her third album, “Worst Girl in America,” and a viral Coachella set. On “Popcast,” she shares her thoughts on why, as Lady Gaga once said, loving pop music will never be “low brow.”`\
 https://www.nytimes.com/video/podcasts/100000010961733/slayyyter-sees-no-use-for-taste-peacocking-in-pop.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/11/style/nyc-restaurants-knicks-games-reservatio
 **In the U.K., a Violent Cycle: Hateful Attacks, Right-Wing Agitation and Riots**\
 `Two stabbings have fueled violent protests in England and Northern Ireland in the last 10 days, fanned online by right-wing voices. In Britain and across Europe, it’s a grim pattern.`\
 https://www.nytimes.com/2026/06/11/world/europe/northern-ireland-stabbing-immigration.html
-
-**Israel Set to Rapidly Expand West Bank Settlement**\
-`In a major push, the government is rushing to place temporary housing at about 60 empty sites in the Israeli-occupied West Bank before national elections this fall.`\
-https://www.nytimes.com/2026/06/11/world/middleeast/israel-west-bank-settlements.html
 
