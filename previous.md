@@ -1,3 +1,15 @@
+**The War in Ukraine Has Now Gone On Longer Than World War I**\
+`Parallels between the two wars abound, from the grinding nature of the fighting to the way new technologies reshaped warfare.`\
+https://www.nytimes.com/2026/06/11/world/europe/ukraine-russia-world-war-i.html
+
+**Medicare Advantage Plans Often Deny Seniors Access to Special Care, Analysis Shows**\
+`Two reports by U.S. investigators reveal how Medicare Advantage is quick to reject requests for short-term nursing home or inpatient rehab services.`\
+https://www.nytimes.com/2026/06/11/business/medicare-advantage-nursing-homes.html
+
+**A.I. and the Chip Boom: Take a Quiz on New Korean Slang and Memes**\
+`What’s a “silicon-collar”? South Korea’s chip industry has been supercharged by the advent of the A.I. age, inspiring a host of new phrases.`\
+https://www.nytimes.com/2026/06/11/world/asia/korean-ai-chips-quiz.html
+
 **Quote of the Day: U.S. Immigration Policy Blocks Some From Soccer’s Global Stage**\
 `Quotation of the Day for Thursday, June 11, 2026.`\
 https://www.nytimes.com/2026/06/11/pageoneplus/quote-of-the-day-us-immigration-policy-blocks-some-from-soccers-global-stage.html
@@ -150,13 +162,13 @@ https://www.nytimes.com/2026/06/10/us/politics/latino-voters-democrats-elections
 `Secretary of Defense Pete Hegseth told reporters at MacDill Air Force Base in Tampa, Fla. on Wednesday that “Central Command, will be busy tonight.”`\
 https://www.nytimes.com/video/us/100000010959098/pete-hegseth-strike-iran-wednesday-night.html
 
-**Britain Is Weighing a Social Media Ban for Children. How Did It Get Here?**\
-`Months after Australia banned social media for everyone under 16, the British government is considering new policies to keep children safe online.`\
-https://www.nytimes.com/2026/06/10/world/europe/uk-social-media-ban-under-16.html
-
 **Australia’s Social Media Ban Is Floundering. Can It Still Help Younger Kids?**\
 `Six months in, many teens are already back on platforms they were supposed to be blocked from. The ban’s benefits may fall to the next generation.`\
 https://www.nytimes.com/2026/06/10/world/australia/australia-social-media-ban-under-16.html
+
+**Britain Is Weighing a Social Media Ban for Children. How Did It Get Here?**\
+`Months after Australia banned social media for everyone under 16, the British government is considering new policies to keep children safe online.`\
+https://www.nytimes.com/2026/06/10/world/europe/uk-social-media-ban-under-16.html
 
 **Amtrak Speeds Up Trip From Vancouver to Seattle for World Cup Fans**\
 `Passengers heading from Vancouver, British Columbia, to Seattle will now clear U.S. customs before boarding instead of stopping once they’ve crossed the border.`\
@@ -181,16 +193,4 @@ https://www.nytimes.com/video/science/space/100000010958639/southern-lights-auro
 **A Very Different World Cup**\
 `With a host country actively at war with a participating nation, this year’s tournament is set to be unlike any other.`\
 https://www.nytimes.com/2026/06/10/world/world-cup-mexico-iran-epstein.html
-
-**University of Florida Chooses Stuart Bell for President Over Some Conservative Criticism**\
-`The nominee, Stuart Bell, led the University of Alabama for a decade, where he embraced diversity initiatives but also Donald J. Trump.`\
-https://www.nytimes.com/2026/06/10/us/university-florida-president-stuart-bell.html
-
-**Bukele dice que sus cárceles son para las pandillas. Entonces, ¿por qué encarceló a mi esposa?**\
-`Desde que comenzó el régimen de excepción en 2022, Cristosal ha documentado 420 muertes en cárceles salvadoreñas. Este es el sistema en el que desapareció mi esposa.`\
-https://www.nytimes.com/es/2026/06/10/espanol/opinion/el-salvador-bukele-carcel.html
-
-**At Least 12 Killed in Johannesburg Attack, South African Police Say**\
-`The South African police said that at least 12 people were killed and at least nine others were wounded in an attack at a settlement in Johannesburg on Tuesday night. Investigators are still trying to determine a motive for the shooting.`\
-https://www.nytimes.com/video/world/africa/100000010958455/johannesburg-south-africa-shooting.html
 

@@ -1,3 +1,15 @@
+**The War in Ukraine Has Now Gone On Longer Than World War I**\
+`Parallels between the two wars abound, from the grinding nature of the fighting to the way new technologies reshaped warfare.`\
+https://www.nytimes.com/2026/06/11/world/europe/ukraine-russia-world-war-i.html
+
+**Medicare Advantage Plans Often Deny Seniors Access to Special Care, Analysis Shows**\
+`Two reports by U.S. investigators reveal how Medicare Advantage is quick to reject requests for short-term nursing home or inpatient rehab services.`\
+https://www.nytimes.com/2026/06/11/business/medicare-advantage-nursing-homes.html
+
+**A.I. and the Chip Boom: Take a Quiz on New Korean Slang and Memes**\
+`What’s a “silicon-collar”? South Korea’s chip industry has been supercharged by the advent of the A.I. age, inspiring a host of new phrases.`\
+https://www.nytimes.com/2026/06/11/world/asia/korean-ai-chips-quiz.html
+
 **Quote of the Day: U.S. Immigration Policy Blocks Some From Soccer’s Global Stage**\
 `Quotation of the Day for Thursday, June 11, 2026.`\
 https://www.nytimes.com/2026/06/11/pageoneplus/quote-of-the-day-us-immigration-policy-blocks-some-from-soccers-global-stage.html
