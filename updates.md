@@ -1,3 +1,11 @@
+**Trump’s Arch Would Mar Hallowed Ground**\
+`Readers respond to President Trump’s efforts to remake the capital. Also: The Knicks; a plan for Democrats; U.S. political flaws; voting in person.`\
+https://www.nytimes.com/2026/06/12/opinion/trump-arch-arlington.html
+
+**Suspect in Fatal Shooting Is Dead After a Standoff in Midland, Texas, Officials Say**\
+`The man was confirmed to be dead after he had barricaded himself in a building in Midland, following an earlier shooting on Friday that killed one person and injured at least 11 others.`\
+https://www.nytimes.com/2026/06/12/us/midland-texas-shooting-active-shooter.html
+
 **Man Is Barricaded in Building After Fatal Shooting in Midland, Texas**\
 `The man was confirmed to be dead after a standoff with law enforcement in Midland, following an earlier shooting that killed one person and injured at least 11 others.`\
 https://www.nytimes.com/2026/06/12/us/midland-texas-shooting-active-shooter.html

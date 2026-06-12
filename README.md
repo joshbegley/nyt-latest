@@ -1,3 +1,7 @@
+**Judge Declines to Halt U.F.C. Fight at the White House on Trump’s Birthday**\
+`In a ruling on Friday, Judge Amit P. Mehta wrote that the lawsuit arrived last minute and failed to show how the event irreversibly harmed the individuals who sued.`\
+https://www.nytimes.com/2026/06/12/us/politics/trump-ufc-cage-lawsuit.html
+
 **Trump’s Arch Would Mar Hallowed Ground**\
 `Readers respond to President Trump’s efforts to remake the capital. Also: The Knicks; a plan for Democrats; U.S. political flaws; voting in person.`\
 https://www.nytimes.com/2026/06/12/opinion/trump-arch-arlington.html
@@ -159,7 +163,7 @@ https://www.nytimes.com/2026/06/12/world/asia/trump-anime-manga-japan-memes.html
 https://www.nytimes.com/2026/06/12/arts/design/pont-neuf-jj.html
 
 **Live Updates: Elon Musk Becomes World’s First Trillionaire as SpaceX Starts Trading**\
-`Mr. Musk’s rocket and satellite maker opened at $150 per share, up 11 percent from its I.P.O. price, and then shot to $165, up over 20 percent.`\
+`Mr. Musk’s rocket and satellite maker opened at $150 per share, up 11 percent from its I.P.O. price, and then shot to well over 20 percent.`\
 https://www.nytimes.com/live/2026/06/12/business/spacex-ipo-elon-musk
 
 **Americans Aren’t Money Savvy, and They’re Only Getting Worse**\
@@ -173,14 +177,6 @@ https://www.nytimes.com/2026/06/12/learning/summer-reading-contest-week-2-what-g
 **Anti-Immigrant Riots after Belfast Stabbing Leave City on Edge**\
 `In two nights of violence in Northern Ireland after a brutal stabbing, people were targeted because of their skin color, the authorities said.`\
 https://www.nytimes.com/2026/06/12/world/europe/belfast-stabbing-riots-anti-immigrant.html
-
-**The Consequences of SpaceX’s Trillion-Dollar I.P.O.**\
-`SpaceX’s trading debut is expected to smash records. Wall Street is watching to see what else it disrupts.`\
-https://www.nytimes.com/2026/06/12/business/dealbook/musks-spacex-ipo-playbook.html
-
-**Princess Bha of Thailand Dies at 47**\
-`Princess Bha, the eldest child of the Thai king, died on Thursday at age 47 after three and a half years in a coma, the royal palace said.`\
-https://www.nytimes.com/video/world/asia/100000010962795/princess-bha-thailand-dies-coma.html
 
 **World Cup Updates: Tournament Could Be a Bonanza for Betting Sites**\
 `(No description)`\
