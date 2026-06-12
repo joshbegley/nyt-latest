@@ -1,3 +1,7 @@
+**Late Night Prepares for Trump’s U.F.C. Birthday Fight at the White House**\
+`Jimmy Fallon called the president “the only 80-year-old yelling, ‘Get on my lawn!’”`\
+https://www.nytimes.com/2026/06/12/arts/television/late-night-trump-birthday-ufc.html
+
 **Reseña de ‘El día de la revelación’: Spielberg repasa sus éxitos cósmicos**\
 `En una trepidante fantasía de ciencia ficción, impregnada de fastuosidad y protagonizada por Emily Blunt, Josh O’Connor y Colman Domingo, el cineasta nos lleva a todos a casa.`\
 https://www.nytimes.com/es/2026/06/12/espanol/resena-el-dia-de-la-revelacion-spielberg.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/11/science/space/alan-hale-dead.html
 **SpaceX IPO: How Our Reporters Assess the Sky-High Valuation and Potential Economic Impact**\
 `Two Times tech reporters and their editor talk about assessing the sky-high valuation of the rocket and satellite maker, the potential economic impact of its public debut and the role of the world’s richest man in it all.`\
 https://www.nytimes.com/2026/06/11/insider/spacex-ipo-coverage-facts-price.html
-
-**It’s Time To Meet Slayyyter, The ‘Worst Girl in America.’**\
-`Watch the full conversation with Slayyyter. Edited excerpts from the interview are below.`\
-https://www.nytimes.com/video/podcasts/100000010953392/its-time-to-meet-slayyyter-the-worst-girl-in-america.html
 
