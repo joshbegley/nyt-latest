@@ -1,3 +1,7 @@
+**SpaceX Goes Public**\
+`SpaceX, Elon Musk’s rocket and satellite company, will begin trading on Friday under the ticker symbol SPCX. Its valuation is set at $1.77 trillion and would put Mr. Musk, the world’s richest man, on track to become the first trillionaire in history.`\
+https://www.nytimes.com/video/business/100000010962733/spacex-ipo-elon-musk.html
+
 **Cómo dos directores de la generación Z formados en YouTube conquistaron el cine de terror**\
 `‘Backrooms: sin salida’ y ‘Obsesión’ están reescribiendo las reglas de Hollywood. Dos críticos del Times analizan el fenómeno.`\
 https://www.nytimes.com/es/2026/06/12/espanol/cultura/backrooms-obsesion-directores-generacion-z-youtube.html

@@ -23,7 +23,7 @@ https://www.nytimes.com/2026/06/12/nyregion/new-york-primary-elections-how-when-
 https://www.nytimes.com/2026/06/12/crosswords/spelling-bee-forum.html
 
 **SpaceX Goes Public**\
-`SpaceX, Elon Musk’s rocket and satellite company is set to begin trading on Friday under the ticker symbol SPCX. Its valuation is set at $1.77 trillion and would put Mr. Musk, the world’s richest man, on track to become the first trillionaire in history.`\
+`SpaceX, Elon Musk’s rocket and satellite company, will begin trading on Friday under the ticker symbol SPCX. Its valuation is set at $1.77 trillion and would put Mr. Musk, the world’s richest man, on track to become the first trillionaire in history.`\
 https://www.nytimes.com/video/business/100000010962733/spacex-ipo-elon-musk.html
 
 **Por qué es casi imposible fabricar un robot sin China**\
