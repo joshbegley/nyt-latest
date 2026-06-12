@@ -1,3 +1,7 @@
+**Justice Dept. Clears Way for Paramount-Warner Bros. Merger**\
+`The $111 billion deal would unite two major movie studios and put CNN under the same roof as CBS News.`\
+https://www.nytimes.com/2026/06/12/business/media/paramount-warner-bros-merger.html
+
 **Tornadoes Tear Through Midwest States**\
 `Tornadoes were reported in Illinois, Indiana and Wisconsin on Thursday, bringing powerful winds, heavy rain and hail.`\
 https://www.nytimes.com/video/weather/100000010964081/tornadoes-tear-through-midwest-states.html
@@ -169,10 +173,6 @@ https://www.nytimes.com/es/2026/06/12/espanol/estados-unidos/trump-hegseth-ataqu
 **Families of Air India Crash Victims Seek Answers One Year On**\
 `Grieving relatives returned to Ahmedabad to honor the 260 lives lost in the June 2025 disaster, but investigators have not yet released a report into the cause.`\
 https://www.nytimes.com/2026/06/12/world/asia/india-air-crash-report-families.html
-
-**Blocking Trump’s Fund, Judge Presses for Guarantee It Won’t Move Forward**\
-`The ruling was the strongest effort to date to hold the administration to its word that its plans to create the fund have actually been set aside.`\
-https://www.nytimes.com/2026/06/12/us/politics/trump-fund-judge-ruling.html
 
 **Elon Musk Becomes World’s First Trillionaire on SpaceX’s First Day of Trading**\
 `Stock in Mr. Musk’s rocket and satellite maker closed just above $161, up more than 19 percent from its I.P.O. price.`\
