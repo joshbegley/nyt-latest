@@ -1,3 +1,7 @@
+**James Blood Ulmer, Guitarist Who Smashed Through Genres, Dies at 86**\
+`A protégé of the saxophonist Ornette Coleman, he borrowed from and greatly influenced styles like funk, punk, jazz and the blues.`\
+https://www.nytimes.com/2026/06/12/arts/music/james-blood-ulmer-dead.html
+
 **Your SpaceX Odds Are Not in Your Favor**\
 `To buy a share of SpaceX or not to buy? That is the trillion-dollar question. With its high share price, only one person stands to profit from the company going public. According to the Opinion senior staff editor Bill Saporito, you might as well purchase lottery tickets instead.`\
 https://www.nytimes.com/video/opinion/100000010952734/your-spacex-odds-are-not-in-your-favor.html
@@ -169,10 +173,6 @@ https://www.nytimes.com/2026/06/12/opinion/republicans-midterms-politics-electio
 **Taylor Swift Enters the Songwriters Hall of Fame With Tears, Jokes and a Warning**\
 `After an introduction from Steven Spielberg, Swift gave a lengthy speech encouraging artists to “trust their human intuition” in an industry driven by data.`\
 https://www.nytimes.com/2026/06/12/arts/music/taylor-swift-songwriters-hall-speech.html
-
-**Opera Company Sues to Collect $17 Million From the Kennedy Center**\
-`The Washington National Opera, which left the center amid the Trump administration’s takeover, says its efforts to retrieve its endowment and other assets have been blocked.`\
-https://www.nytimes.com/2026/06/12/arts/music/kennedy-center-washington-national-opera-lawsuit-endowment.html
 
 **Live Updates: Elon Musk Becomes World’s First Trillionaire on SpaceX’s First Day of Trading**\
 `Stock in Mr. Musk’s rocket and satellite maker was trading above $160 per share as markets prepared to close, up roughly 20 percent from its I.P.O. price.`\

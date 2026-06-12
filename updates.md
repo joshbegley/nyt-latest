@@ -1,3 +1,11 @@
+**Your SpaceX Odds Are Not in Your Favor**\
+`To buy a share of SpaceX or not to buy? That is the trillion-dollar question. With its high share price, only one person stands to profit from the company going public. According to the Opinion senior staff editor Bill Saporito, you might as well purchase lottery tickets instead.`\
+https://www.nytimes.com/video/opinion/100000010952734/your-spacex-odds-are-not-in-your-favor.html
+
+**Live Updates: Elon Musk Becomes World’s First Trillionaire on SpaceX’s First Day of Trading**\
+`Stock in Mr. Musk’s rocket and satellite maker was trading above $160 per share as markets prepared to close, up roughly 20 percent from its I.P.O. price.`\
+https://www.nytimes.com/live/2026/06/12/business/spacex-ipo-elon-musk
+
 **Mexico’s police focus on World Cup while thousands remain missing.**\
 `(No description)`\
 https://www.nytimes.com/article/mexicos-police-focus-on-world-cup-while-thousands-remain-missing.html
