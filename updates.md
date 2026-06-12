@@ -1,3 +1,7 @@
+**Princess Bha of Thailand Dies at 47**\
+`Princess Bha, the eldest child of the Thai king, died on Thursday at age 47 after three and a half years in a coma, the royal palace said.`\
+https://www.nytimes.com/video/world/asia/100000010962795/princess-bha-thailand-dies-coma.html
+
 **‘The Headlines’ News Quiz: Jun. 12, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/06/12/podcasts/the-headlines/the-headlines-news-quiz-jun-12-2026.html

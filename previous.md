@@ -1,3 +1,7 @@
+**Princess Bha of Thailand Dies at 47**\
+`Princess Bha, the eldest child of the Thai king, died on Thursday at age 47 after three and a half years in a coma, the royal palace said.`\
+https://www.nytimes.com/video/world/asia/100000010962795/princess-bha-thailand-dies-coma.html
+
 **‘The Headlines’ News Quiz: Jun. 12, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/06/12/podcasts/the-headlines/the-headlines-news-quiz-jun-12-2026.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/12/books/review/rialto-kate-milford-fatal-glitch
 **Book Review: ‘As If,’ by Isabel Waidner**\
 `In this surreal book, two spiraling men swap lives.`\
 https://www.nytimes.com/2026/06/12/books/review/as-if-isabel-waidner.html
-
-**Inside Cesar Chavez’s Labor Union, Women Faced a Culture of Sexual Abuse**\
-`Many of the women who helped lead the fight for Latino civil rights say they were quietly waging their own battles with harassment, misogyny and sexual assault inside the powerful United Farm Workers union.`\
-https://www.nytimes.com/2026/06/12/us/cesar-chavez-dolores-huerta-united-farm-workers-sexual-abuse.html
 
