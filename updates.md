@@ -1,3 +1,11 @@
+**Opera Company Sues to Collect $17 Million From the Kennedy Center**\
+`The Washington National Opera, which left the center amid the Trump administration’s takeover, says its efforts to retrieve its endowment and other assets have been blocked.`\
+https://www.nytimes.com/2026/06/12/arts/music/kennedy-center-washington-national-opera-lawsuit-endowment.html
+
+**Iran War Live Updates: Conflicting Accounts Emerge of Possible Peace Deal**\
+`While President Trump has claimed a deal is close, a spokesman for Iran’s foreign ministry said, “Nothing has been finalized.” Neither country has publicly disclosed details of a proposed agreement.`\
+https://www.nytimes.com/live/2026/06/12/world/iran-war-trump-us-israel
+
 **Joe Negri, Handyman and Music Maestro on ‘Mister Rogers,’ Dies at 99**\
 `An accomplished jazz guitarist, he appeared on more than 300 episodes of the public television show, playing alongside musicians like Wynton Marsalis and Yo-Yo Ma.`\
 https://www.nytimes.com/2026/06/12/arts/music/joe-negri-dead.html
