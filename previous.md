@@ -1,3 +1,7 @@
+**Off-Duty Officer Indicted on a Charge of Attempted Murder Over Stolen Car**\
+`The officer fired two shots into another vehicle during the search for his car and struck a man in the head.`\
+https://www.nytimes.com/2026/06/11/nyregion/off-duty-officer-shooting-attempted-murder.html
+
 **Major League Baseball Will Question the Dodgers’s Doctor About Banned Drugs**\
 `The inquiry comes after a report that Dr. Neal ElAttrache, the physician for the team, supported the U.F.C. star Conor McGregor in using performance-enhancing drugs while recovering from an injury.`\
 https://www.nytimes.com/2026/06/11/sports/baseball/baseball-doctor-steroids-mcgregor.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/06/11/espanol/mundo/sagrada-familia-papa.html
 **Trump Picks Jay Clayton for Director of National Intelligence After Backlash Over Bill Pulte**\
 `The president said he would nominate Jay Clayton, the U.S. attorney in Manhattan and the former chairman of the Securities and Exchange Commission, for the permanent role.`\
 https://www.nytimes.com/2026/06/11/us/politics/trump-jay-clayton-intelligence-chief.html
-
-**Laverne Cox Broke Up With Her Boyfriend Over Trump**\
-`The actor Laverne Cox tells Anna Martin, host of the “Modern Love” podcast, about her complicated relationship.`\
-https://www.nytimes.com/video/podcasts/100000010960977/laverne-cox-broke-up-with-her-boyfriend-over-trump.html
 

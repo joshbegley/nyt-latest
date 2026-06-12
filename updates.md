@@ -1,3 +1,7 @@
+**Off-Duty Officer Indicted on a Charge of Attempted Murder Over Stolen Car**\
+`The officer fired two shots into another vehicle during the search for his car and struck a man in the head.`\
+https://www.nytimes.com/2026/06/11/nyregion/off-duty-officer-shooting-attempted-murder.html
+
 **Major League Baseball Will Question the Dodgers’s Doctor About Banned Drugs**\
 `The inquiry comes after a report that Dr. Neal ElAttrache, the physician for the team, supported the U.F.C. star Conor McGregor in using performance-enhancing drugs while recovering from an injury.`\
 https://www.nytimes.com/2026/06/11/sports/baseball/baseball-doctor-steroids-mcgregor.html
