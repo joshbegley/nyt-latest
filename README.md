@@ -1,3 +1,11 @@
+**Iran War Live Updates: Tense Calm Grips Mideast as Trump Again Claims Deal Is Close**\
+`President Trump said he had called off new attacks on Iran and that a peace agreement could be signed this weekend. A spokesman for Iran’s foreign ministry said, “Nothing has been finalized.”`\
+https://www.nytimes.com/live/2026/06/12/world/iran-war-trump-us-israel
+
+**Risk Strait of Hormuz or Wait? Shipping Companies Face a Costly Dilemma.**\
+`With more than 500 ships still stranded in the Persian Gulf, pressure on the shipowners and sailors is growing by the day.`\
+https://www.nytimes.com/2026/06/12/business/strait-hormuz-ships-iran.html
+
 **Google Sues to Stop Chinese Cybercrime Group from Using Its A.I.**\
 `In a lawsuit, the tech giant accused the group of using Google’s Gemini system to create hundreds of fake corporate and government websites.`\
 https://www.nytimes.com/2026/06/12/technology/google-lawsuit-china-ai-scams.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/12/learning/word-of-the-day-lien.html
 **Late Night Prepares for Trump’s U.F.C. Birthday Fight at the White House**\
 `Jimmy Fallon called the president “the only 80-year-old yelling, ‘Get on my lawn!’”`\
 https://www.nytimes.com/2026/06/12/arts/television/late-night-trump-birthday-ufc.html
-
-**Reseña de ‘El día de la revelación’: Spielberg repasa sus éxitos cósmicos**\
-`En una trepidante fantasía de ciencia ficción, impregnada de fastuosidad y protagonizada por Emily Blunt, Josh O’Connor y Colman Domingo, el cineasta nos lleva a todos a casa.`\
-https://www.nytimes.com/es/2026/06/12/espanol/resena-el-dia-de-la-revelacion-spielberg.html
-
-**Cuando la IA resuelve en días lo que los matemáticos tardan años**\
-`Una empresa gastó 100.000 dólares en completar en cinco días una demostración que un equipo académico llevaba dos años construyendo. El episodio desató un pánico silencioso en los departamentos de matemáticas del mundo.`\
-https://www.nytimes.com/es/2026/06/12/espanol/ciencia-y-tecnologia/ia-resuelve-matematicas.html
 
