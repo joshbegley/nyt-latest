@@ -1,3 +1,7 @@
+**Review: Olivia Rodrigo’s ‘You Seem Pretty Sad for a Girl So in Love’**\
+`On “You Seem Pretty Sad for a Girl So in Love,” the 23-year-old singer delivers a polished, solemn breakup chronicle that misses her signature adrenaline rush.`\
+https://www.nytimes.com/2026/06/12/arts/music/olivia-rodrigo-you-seem-pretty-sad-for-a-girl-so-in-love-review.html
+
 **Today, In Short**\
 `Frozen yogurt. Ancient squirrels. And the World Cup.`\
 https://www.nytimes.com/2026/06/12/briefing/today-in-short.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/12/opinion/yes-israel-film-boycott.html
 **The Pianist Igor Levit Bets Big on Recordings With His Own Label**\
 `Despite woes in the recording industry, Levit announced the founding of No Silence, which will release three albums this fall.`\
 https://www.nytimes.com/2026/06/12/arts/music/igor-levit-no-silence.html
-
-**A Dangerous Limbo Leaves Iran, and the World, Between Peace and War**\
-`Since announcing a nominal cease-fire two months ago, Iran, Israel and the U.S. have remained locked in low-intensity violence that has become a new normal.`\
-https://www.nytimes.com/2026/06/12/world/middleeast/iran-war-limbo.html
 
 **World Cup Updates: Huge Tournament Offers a Big Opportunity for Betting Sites**\
 `(No description)`\
