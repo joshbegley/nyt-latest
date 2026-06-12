@@ -1,3 +1,7 @@
+**Supreme Court Blocks Alabama From Executing Inmate Using Nitrogen Gas**\
+`The unsigned decision for now spares Jeffery Lee, a convicted murderer, and could lead to a broader fight over the relatively new execution method.`\
+https://www.nytimes.com/2026/06/11/us/supreme-court-blocks-alabama-nitrogen-execution.html
+
 **Supreme Court Blocks Alabama from Executing Inmate Using Nitrogen Gas**\
 `The unsigned decision for now spares Jeffery Lee, a convicted murderer, and could lead to a broader fight over the relatively new execution method.`\
 https://www.nytimes.com/2026/06/11/us/supreme-court-blocks-alabama-nitrogen-execution.html
