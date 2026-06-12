@@ -1,3 +1,23 @@
+**Israel Builds Army Base in Jenin, Flouting 1990s Pact With Palestinians**\
+`Critics say the move would help the Israeli military protect increased settlement activity near Palestinian population centers in the West Bank.`\
+https://www.nytimes.com/2026/06/12/world/middleeast/israel-base-jenin-oslo.html
+
+**Elon Musk se hace billonario**\
+`Luego de que las acciones de SpaceX se dispararan en su primer día de cotización, la persona más rica del mundo ha superado otro hito: uno de 13 dígitos.`\
+https://www.nytimes.com/es/2026/06/12/espanol/negocios/elon-musk-billonario.html
+
+**Pope Does ‘6-7’ Gesture While Meeting with Migrants**\
+`Pope Leo XIV wrapped up his week-long tour of Spain meeting with migrants in the Canary Islands. Leo also warned traffickers of migrants to stop and “repent.”`\
+https://www.nytimes.com/video/world/europe/100000010963008/pope-6-7-meme-spain-migrants.html
+
+**Elon Musk’s Big Bet for SpaceX**\
+`Elon Musk is taking SpaceX public and keeping almost all the power. Ryan Mac, a technology reporter for The Times, breaks down why the company’s record I.P.O. is both a big bet on Musk’s vision and a risk for investors.`\
+https://www.nytimes.com/video/business/100000010953560/elon-musk-spacex-initial-public-offering.html
+
+**About 20 New Billionaires Could Be Minted by 3 Mega-I.P.O.s**\
+`Anthropic and OpenAI could join SpaceX with their own initial public offerings, setting many employees up to become millionaires or billionaires.`\
+https://www.nytimes.com/2026/06/12/business/economy/spacex-openai-anthropic-billionaires-ipos.html
+
 **How Much SpaceX Are You About to Own?**\
 `If you have index funds — such as in a 401(k) — they may soon include shares of the mega company. Here’s a rough calculation.`\
 https://www.nytimes.com/2026/06/12/upshot/spacex-stock-ipo.html

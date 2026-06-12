@@ -1,3 +1,7 @@
+**Scientists Race to Test Treatments as Ebola Outbreak Widens**\
+`Trials are beginning on several drugs that have shown promise in preliminary studies against the virus that is causing the current outbreak.`\
+https://www.nytimes.com/2026/06/12/health/ebola-treatment-bundibugyo-virus.html
+
 **Israel Builds Army Base in Jenin, Flouting 1990s Pact With Palestinians**\
 `Critics say the move would help the Israeli military protect increased settlement activity near Palestinian population centers in the West Bank.`\
 https://www.nytimes.com/2026/06/12/world/middleeast/israel-base-jenin-oslo.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/video/opinion/100000010947964/i-met-god.html
 **Renewable Groups Ask Courts to End Pentagon’s ‘Total Halt’ of Wind Power**\
 `More than 100 planned wind farms in 21 states are now stalled indefinitely as the Pentagon delays military reviews once seen as routine.`\
 https://www.nytimes.com/2026/06/12/climate/wind-power-lawsuit-pentagon-trump.html
-
-**Men Have Viagra. What About Women?**\
-`Modern medicine helped men have better sex, but what about women? Christian Angermayer, founder of the Enhanced Games, argues we’re entering a new era of “humanmaxxing,” in which scientific breakthroughs will help us have better sex, better sleep and level up our looks.`\
-https://www.nytimes.com/video/opinion/100000010947963/men-have-viagra-what-about-women.html
 
 **Live Updates: Elon Musk Becomes World’s First Trillionaire as SpaceX Starts Trading**\
 `Mr. Musk’s rocket and satellite maker opened at $150 per share, up 11 percent from its I.P.O. price, and then shot to well over 20 percent.`\

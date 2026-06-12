@@ -1,3 +1,19 @@
+**Israel Builds Army Base in Jenin, Flouting 1990s Pact With Palestinians**\
+`Critics say the move would help the Israeli military protect increased settlement activity near Palestinian population centers in the West Bank.`\
+https://www.nytimes.com/2026/06/12/world/middleeast/israel-base-jenin-oslo.html
+
+**Elon Musk se hace billonario**\
+`Luego de que las acciones de SpaceX se dispararan en su primer día de cotización, la persona más rica del mundo ha superado otro hito: uno de 13 dígitos.`\
+https://www.nytimes.com/es/2026/06/12/espanol/negocios/elon-musk-billonario.html
+
+**Pope Does ‘6-7’ Gesture While Meeting with Migrants**\
+`Pope Leo XIV wrapped up his week-long tour of Spain meeting with migrants in the Canary Islands. Leo also warned traffickers of migrants to stop and “repent.”`\
+https://www.nytimes.com/video/world/europe/100000010963008/pope-6-7-meme-spain-migrants.html
+
+**Elon Musk’s Big Bet for SpaceX**\
+`Elon Musk is taking SpaceX public and keeping almost all the power. Ryan Mac, a technology reporter for The Times, breaks down why the company’s record I.P.O. is both a big bet on Musk’s vision and a risk for investors.`\
+https://www.nytimes.com/video/business/100000010953560/elon-musk-spacex-initial-public-offering.html
+
 **How Much SpaceX Are You About to Own?**\
 `If you have index funds — such as in a 401(k) — they may soon include shares of the mega company. Here’s a rough calculation.`\
 https://www.nytimes.com/2026/06/12/upshot/spacex-stock-ipo.html
@@ -20,7 +36,7 @@ https://www.nytimes.com/2026/06/12/opinion/trump-arch-arlington.html
 
 **About 20 New Billionaires Could Be Minted by 3 Mega-I.P.O.s**\
 `Anthropic and OpenAI could join SpaceX with their own initial public offerings, setting many employees up to become millionaires or billionaires.`\
-https://www.nytimes.com/2026/06/12/business/economy/about-20-new-billionaires-could-be-minted-by-three-mega-ipos.html
+https://www.nytimes.com/2026/06/12/business/economy/spacex-openai-anthropic-billionaires-ipos.html
 
 **Muere David Hockney, célebre pintor pop**\
 `Sus obras figurativas eran a la vez conservadoras e iconoclastas, desafiando las escuelas abstractas dominantes de mediados del siglo XX.`\
@@ -165,18 +181,6 @@ https://www.nytimes.com/2026/06/12/climate/wind-power-lawsuit-pentagon-trump.htm
 **Men Have Viagra. What About Women?**\
 `Modern medicine helped men have better sex, but what about women? Christian Angermayer, founder of the Enhanced Games, argues we’re entering a new era of “humanmaxxing,” in which scientific breakthroughs will help us have better sex, better sleep and level up our looks.`\
 https://www.nytimes.com/video/opinion/100000010947963/men-have-viagra-what-about-women.html
-
-**To Defeat Democrats, Texas Governor Embraces the Hard Right**\
-`After years of keeping his distance, Gov. Greg Abbott is set to address Texas Republicans’ activist-led convention as hard-line conservatives gain influence within the party.`\
-https://www.nytimes.com/2026/06/12/us/greg-abbott-texas-governor-hard-right.html
-
-**Japan Pushes Back on Trump’s Anime Posts**\
-`The use of anime imagery online by President Trump and his administration has strained diplomatic ties with Japan and drawn criticism from creators and fans.`\
-https://www.nytimes.com/2026/06/12/world/asia/trump-anime-manga-japan-memes.html
-
-**JR Conjures a Mountainous Illusion Out of the Pont Neuf in Paris**\
-`Four decades after the conceptual artist Christo draped the Pont Neuf with fabric, JR, a French street artist, offers his own trick of the eye.`\
-https://www.nytimes.com/2026/06/12/arts/design/pont-neuf-jj.html
 
 **Live Updates: Elon Musk Becomes World’s First Trillionaire as SpaceX Starts Trading**\
 `Mr. Musk’s rocket and satellite maker opened at $150 per share, up 11 percent from its I.P.O. price, and then shot to well over 20 percent.`\
