@@ -1,3 +1,7 @@
+**Late Night Prepares for Trump’s U.F.C. Birthday Fight at the White House**\
+`Jimmy Fallon called the president “the only 80-year-old yelling, ‘Get on my lawn!’”`\
+https://www.nytimes.com/2026/06/12/arts/television/late-night-trump-birthday-ufc.html
+
 **Reseña de ‘El día de la revelación’: Spielberg repasa sus éxitos cósmicos**\
 `En una trepidante fantasía de ciencia ficción, impregnada de fastuosidad y protagonizada por Emily Blunt, Josh O’Connor y Colman Domingo, el cineasta nos lleva a todos a casa.`\
 https://www.nytimes.com/es/2026/06/12/espanol/resena-el-dia-de-la-revelacion-spielberg.html
