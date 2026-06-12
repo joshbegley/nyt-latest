@@ -1,3 +1,23 @@
+**The A.I. Proxy Fight Roiling the Race for a New York House Seat**\
+`Groups tied to OpenAI, Anthropic and other industry players have spent $16 million trying to pick the next member of Congress from Manhattan.`\
+https://www.nytimes.com/2026/06/12/nyregion/ai-money-bores-lasher-primary.html
+
+**Brawls, Biting and Bliss in a City Craving a Knicks Championship**\
+`Decades of bottled-up hopes and frustrations have created a frenzy around the New York Knicks that has brought out the worst in some fans.`\
+https://www.nytimes.com/2026/06/12/nyregion/knicks-finals-new-york.html
+
+**Knicks in Five? Please Don’t Tempt the Jinx Gods.**\
+`Some Knicks fans have predicted series sweeps. Others, conditioned by decades of failure, pay more heed to jinxes and superstitious rituals.`\
+https://www.nytimes.com/2026/06/12/nyregion/knicks-superstitions-playoffs.html
+
+**New York Primary Elections: What to Know and How to Vote**\
+`Several closely watched races are taking place in New York City and beyond. Nine days of early voting will precede Primary Day on June 23.`\
+https://www.nytimes.com/2026/06/12/nyregion/new-york-primary-elections-how-when-vote.html
+
+**NYT Spelling Bee Answers for June 12, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/12/crosswords/spelling-bee-forum.html
+
 **SpaceX Goes Public**\
 `SpaceX, Elon Musk’s rocket and satellite company is set to begin trading on Friday under the ticker symbol SPCX. Its valuation is set at $1.77 trillion and would put Mr. Musk, the world’s richest man, on track to become the first trillionaire in history.`\
 https://www.nytimes.com/video/business/100000010962733/spacex-ipo-elon-musk.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/06/11/world/middleeast/iran-war-fear-hope.html
 **Rikers Employee Charged With Extorting Corrections Officers for Gifts**\
 `A supervisor at the Rikers Island jail complex threatened to withhold overtime pay and vacation days from officers who did not give her gifts and run her errands, prosecutors said.`\
 https://www.nytimes.com/2026/06/11/nyregion/rikers-jail-supervisor-extortion.html
-
-**Children’s Lemonade Stand Is Robbed in Broad Daylight in Boston**\
-`The police were searching for two boys who they said flashed a gun at a girl, 11, and boy, 12, who were running the stand in South Boston on Wednesday.`\
-https://www.nytimes.com/2026/06/11/us/boston-lemonade-stand-armed-robbery.html
-
-**Trump Claims Deal With Iran is Close and Retracts Threat to Attack**\
-`President Trump said he had canceled the next wave of attacks on Iran after two days of U.S. airstrikes, claiming peace negotiations have progressed.`\
-https://www.nytimes.com/video/us/politics/100000010962144/trump-iran-peace-deal-attacks.html
-
-**Gabbard Revokes Biden-Era Assessments on Mysterious Ailments**\
-`Earlier reviews had cast doubt on the idea that a foreign adversary was behind Havana syndrome, a range of symptoms that American spies and diplomats reported.`\
-https://www.nytimes.com/2026/06/11/us/politics/gabbard-havana-syndrome.html
-
-**Lander, Running for Congress, Found Not Guilty After ICE Facility Arrest**\
-`Brad Lander is running in a hotly contested primary to unseat another New York Democrat, Representative Daniel Goldman.`\
-https://www.nytimes.com/2026/06/11/nyregion/brad-lander-immigration-arrest-not-guilty.html
-
-**The World Cup Is Officially Underway**\
-`Also, Trump picks a new intelligence chief. Here’s the latest at the end of Thursday.`\
-https://www.nytimes.com/2026/06/11/briefing/world-cup-trump-spy-chief.html
 
