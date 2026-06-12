@@ -1,3 +1,43 @@
+**Ciclo de violencia en el Reino Unido: ataques de odio, agitación de la derecha y disturbios**\
+`Dos apuñalamientos han incitado protestas violentas en Inglaterra e Irlanda del Norte en los últimos 10 días, avivadas en internet por voces de la derecha. Es un patrón sombrío en el Reino Unido y en toda Europa.`\
+https://www.nytimes.com/es/2026/06/12/espanol/mundo/reino-unido-disturbios.html
+
+**‘Operation Pushkin’: Paris Trial Puts Spotlight on Rare-Book Heists**\
+`One by one, valuable works by Russian masters like Pushkin and Gogol were disappearing from libraries across Europe. Now six defendants are being prosecuted.`\
+https://www.nytimes.com/2026/06/12/world/europe/russian-book-theft-trial-paris.html
+
+**U.S. Plan Is Said to Pull a Third of Fighter Jets It Provides NATO for Europe**\
+`The plan, outlined by officials and in a written document, provides rare clarity about the extent to which the Trump administration intends to reduce its commitment to NATO.`\
+https://www.nytimes.com/2026/06/12/world/europe/us-nato-cuts-drawdown-jets.html
+
+**Quote of the Day: A Sprint, a Leap and a Tap: Anunoby’s Moxie Turns Magical**\
+`Quotation of the Day for Friday, June 12, 2026.`\
+https://www.nytimes.com/2026/06/12/pageoneplus/quote-of-the-day-a-sprint-a-leap-and-a-tap-anunobys-moxie-turns-magical.html
+
+**Corrections: June 12, 2026**\
+`Corrections that appeared in print on Friday, June 12, 2026.`\
+https://www.nytimes.com/2026/06/12/pageoneplus/corrections-june-12-2026.html
+
+**How to Eat Pizza with a Male Model**\
+`Order slices, fold them in half, flirt with male model, hope it makes your boyfriend jealous.`\
+https://www.nytimes.com/2026/06/12/style/modern-love-how-to-eat-pizza-with-a-male-model.html
+
+**A Teen Summer Romance and the Journal He Kept for Her**\
+`When Danit Hetsroni and Joshua Raikin met at summer camp, both had already navigated challenges that forced them to grow up quickly.`\
+https://www.nytimes.com/2026/06/12/style/danit-hetsroni-joshua-raikin-wedding.html
+
+**A Veterinarian, a Life Coach and a Highly Persuasive Pair of Donkeys**\
+`Dr. Evelyn Ivey knew Thomas Rotelli had the qualities she wanted in a mate, but watching how animals gravitated to him clinched it.`\
+https://www.nytimes.com/2026/06/12/style/evelyn-ivey-thomas-rotelli-wedding.html
+
+**Matthew MacNabb and Laura Nolan of ‘Dancing with the Stars Ireland’ Marry**\
+`Laura Nolan developed a crush on Matthew MacNabb when he was on “Love Island UK.” Then they became dance partners on another show.`\
+https://www.nytimes.com/2026/06/12/style/laura-nolan-matthew-macnabb-wedding.html
+
+**‘Darling, I Love You, but Give Me Park Avenue’**\
+`Lexie Riegelhaupt and Gabe Greenberg sang the “Green Acres” theme song as she left Park Avenue for his home in Carroll Gardens, Brooklyn.`\
+https://www.nytimes.com/2026/06/12/style/lexie-riegelhaupt-gabe-greenberg-wedding.html
+
 **A Celebration and a ‘Love Ritual’ Shaped by Their Community**\
 `At the wedding of Danny Mefford and Yazmany Arboleda, guests made various contributions, including decorating the church and forming a choir.`\
 https://www.nytimes.com/2026/06/12/style/yazmany-arbodela-danny-mefford-wedding.html
@@ -157,44 +197,4 @@ https://www.nytimes.com/2026/06/11/world/americas/world-cup-photos-mexico.html
 **Cleve Moler, Who Unlocked the Power of Computing for Millions, Dies at 86**\
 `He built interfaces that allowed engineers, scientists and everyday people to solve difficult problems without having to write the underlying code.`\
 https://www.nytimes.com/2026/06/11/science/cleve-moler-dead.html
-
-**Cuba sin combustible: EE. UU. bloquea acuerdo y endurece sanciones**\
-`La operación para enviar 250.000 barriles de combustible podría haber aliviado la crisis energética, pero el gobierno de Trump dice que Vanguard Energy no tiene autorización para proceder.`\
-https://www.nytimes.com/es/2026/06/11/espanol/america-latina/cuba-combustible-bloqueo-estados-unidos.html
-
-**The SpaceX I.P.O. Rocket**\
-`Elon Musk and people in his orbit are about to get much, much richer.`\
-https://www.nytimes.com/2026/06/11/world/spacex-ipo.html
-
-**Copa Mundial 2026: máxima seguridad en el partido en Ciudad de México**\
-`Previo al inicio del mayor Mundial de la historia y durante el partido inicial, fuerzas del orden rodeaban al estadio anfitrión para contener a miles de manifestantes.`\
-https://www.nytimes.com/es/2026/06/11/espanol/america-latina/copa-mundial-mexico-partido.html
-
-**Workers at Washington Paper Mill Died of Chemical Burns**\
-`The coroner of Cowlitz County confirmed the cause of death of 10 of the 11 workers who perished last month in the worst industrial accident in the state’s modern history.`\
-https://www.nytimes.com/2026/06/11/us/cause-of-death-washington-paper-mill-explosion.html
-
-**Mamdani Finds a Foil Familiar to New Yorkers: James Dolan**\
-`Mr. Dolan, the owner of the New York Knicks, began a public feud with Mayor Zohran Mamdani with his team on the verge of an N.B.A. title.`\
-https://www.nytimes.com/2026/06/11/nyregion/mamdani-dolan-knicks-feud.html
-
-**Thunderstorms Send Pounding Rain and High Winds Across Midwest**\
-`The stormy weather impacting areas from Texas to New England is being fueled by a big mass of very warm and moist air that is hovering over the region.`\
-https://www.nytimes.com/video/weather/100000010960899/midwest-thunderstorms-rain-winds.html
-
-**El Niño llega y se espera que se intensifique**\
-`El desarrollo de este patrón meteorológico puede traer intensas inundaciones y olas de calor a lugares que ya enfrentan otros efectos devastadores del calentamiento global.`\
-https://www.nytimes.com/es/2026/06/11/espanol/tiempo-y-clima/el-nino-calor-extremo-lluvias.html
-
-**Summer Challenge: Put Your Phone Away for Better Sleep**\
-`It only takes a few minutes.`\
-https://www.nytimes.com/interactive/2026/06/11/well/summer-challenge-phone-digital-detox-sleep.html
-
-**Body of 5-Year-Old Girl Swept Away in California Is Found**\
-`The girl was with her mother and a sibling near the shore in Laguna Beach, Calif., on Tuesday when she was pulled into the surf. Authorities had called off the search on Wednesday.`\
-https://www.nytimes.com/2026/06/11/us/laguna-beach-missing-girl-search-ends.html
-
-**SpaceX Finalizes IPO Price at $135 a Share in World’s Largest Public Offering**\
-`Elon Musk’s rocket company said it would sell more than 555 million shares at $135 each in its blockbuster initial public offering, which is set to begin trading on Friday.`\
-https://www.nytimes.com/2026/06/11/technology/spacex-ipo-price.html
 
