@@ -1,3 +1,7 @@
+**Your SpaceX Odds Are Not in Your Favor**\
+`To buy a share of SpaceX or not to buy? That is the trillion-dollar question. With its high share price, only one person stands to profit from the company going public. According to the Opinion senior staff editor Bill Saporito, you might as well purchase lottery tickets instead.`\
+https://www.nytimes.com/video/opinion/100000010952734/your-spacex-odds-are-not-in-your-favor.html
+
 **Charlie Dalin, Who Set a Sailing Record While Battling Cancer, Dies at 42**\
 `Last year, while suffering from an advanced stomach tumor, he won the grueling Vendée Globe race, sailing 24,000 miles in just 64 days.`\
 https://www.nytimes.com/2026/06/12/sports/sailing/charlie-dalin-dead.html
@@ -169,10 +173,6 @@ https://www.nytimes.com/2026/06/12/arts/music/taylor-swift-songwriters-hall-spee
 **Opera Company Sues to Collect $17 Million From the Kennedy Center**\
 `The Washington National Opera, which left the center amid the Trump administration’s takeover, says its efforts to retrieve its endowment and other assets have been blocked.`\
 https://www.nytimes.com/2026/06/12/arts/music/kennedy-center-washington-national-opera-lawsuit-endowment.html
-
-**Mexico’s police focus on World Cup while thousands remain missing.**\
-`(No description)`\
-https://www.nytimes.com/article/mexicos-police-focus-on-world-cup-while-thousands-remain-missing.html
 
 **Live Updates: Elon Musk Becomes World’s First Trillionaire on SpaceX’s First Day of Trading**\
 `Stock in Mr. Musk’s rocket and satellite maker reached upward of $170 per share, up well over 20 percent from its I.P.O. price.`\
