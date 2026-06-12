@@ -1,3 +1,7 @@
+**Tahini and Chocolate Chunk Cake**\
+`In this cake, developed by the NYT Cooking contributor Samantha Seneviratne, tahini flavors a one-bowl yellow cake, giving it a pillowy texture and nutty flavor. Swirled with chocolate, it’s reminiscent of your favorite halvah candy.`\
+https://www.nytimes.com/video/dining/100000010963068/tahini-and-chocolate-chunk-cake.html
+
 **Influential Artist David Hockney Dies at Age 88**\
 `The artist David Hockney, 88, died at his home in London on Thursday. Mr. Hockney’s brightly colored paintings depicting California defied the mid-20th century’s dominant abstract schools and drew attention to figurative art.`\
 https://www.nytimes.com/video/arts/100000010963048/david-hockney-death-artist.html
