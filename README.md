@@ -175,6 +175,6 @@ https://www.nytimes.com/2026/06/12/arts/music/taylor-swift-songwriters-hall-spee
 https://www.nytimes.com/2026/06/12/arts/music/kennedy-center-washington-national-opera-lawsuit-endowment.html
 
 **Live Updates: Elon Musk Becomes World’s First Trillionaire on SpaceX’s First Day of Trading**\
-`Stock in Mr. Musk’s rocket and satellite maker reached upward of $170 per share, up well over 20 percent from its I.P.O. price.`\
+`Stock in Mr. Musk’s rocket and satellite maker was trading above $160 per share as markets prepared to close, up roughly 20 percent from its I.P.O. price.`\
 https://www.nytimes.com/live/2026/06/12/business/spacex-ipo-elon-musk
 
