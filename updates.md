@@ -1,3 +1,11 @@
+**Japan Pushes Back on Trump’s Anime Posts**\
+`The use of anime imagery online by President Trump and his administration has strained diplomatic ties with Japan and drawn criticism from creators and fans.`\
+https://www.nytimes.com/2026/06/12/world/asia/trump-anime-manga-japan-memes.html
+
+**JR Conjures a Mountainous Illusion Out of the Pont Neuf in Paris**\
+`Four decades after the conceptual artist Christo draped the Pont Neuf with fabric, JR, a French street artist, offers his own trick of the eye.`\
+https://www.nytimes.com/2026/06/12/arts/design/pont-neuf-jj.html
+
 **Live Updates: SpaceX Set to Start Trading in Blockbuster Market Debut**\
 `Elon Musk’s rocket and satellite maker already finalized the world’s largest initial public offering, selling 555 million shares at an initial price of $135.`\
 https://www.nytimes.com/live/2026/06/12/business/spacex-ipo-elon-musk

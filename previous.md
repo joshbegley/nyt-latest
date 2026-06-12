@@ -1,3 +1,11 @@
+**Japan Pushes Back on Trump’s Anime Posts**\
+`The use of anime imagery online by President Trump and his administration has strained diplomatic ties with Japan and drawn criticism from creators and fans.`\
+https://www.nytimes.com/2026/06/12/world/asia/trump-anime-manga-japan-memes.html
+
+**JR Conjures a Mountainous Illusion Out of the Pont Neuf in Paris**\
+`Four decades after the conceptual artist Christo draped the Pont Neuf with fabric, JR, a French street artist, offers his own trick of the eye.`\
+https://www.nytimes.com/2026/06/12/arts/design/pont-neuf-jj.html
+
 **Live Updates: SpaceX Set to Start Trading in Blockbuster Market Debut**\
 `Elon Musk’s rocket and satellite maker already finalized the world’s largest initial public offering, selling 555 million shares at an initial price of $135.`\
 https://www.nytimes.com/live/2026/06/12/business/spacex-ipo-elon-musk
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/12/magazine/aipac-democrats-israel.html
 **An Upscale Hotel Breaks Ground in Downtown Newburgh — the First in 133 Years**\
 `A boutique hotel group known for pioneering tourism in the pastoral Western Catskills has set its sights on one of the Hudson Valley’s most complicated downtowns.`\
 https://www.nytimes.com/2026/06/12/realestate/foster-supply-hospitality-newburgh-hotel.html
-
-**A Guide to Chicago’s South Side, Home of the New Obama Center**\
-`The Obama Presidential Center, opening on June 19, is poised to attract visitors to an often-overlooked area. Here’s what you’ll find in Hyde Park and beyond.`\
-https://www.nytimes.com/2026/06/12/travel/chicago-south-side-obama-center.html
-
-**‘Disclosure Day’ | Anatomy of a Scene**\
-`The director Steven Spielberg breaks down an action sequence from his new film “Disclosure Day” for Anatomy of a Scene.`\
-https://www.nytimes.com/video/movies/100000010945475/disclosure-day-anatomy-of-a-scene.html
 
