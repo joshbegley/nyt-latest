@@ -1,3 +1,15 @@
+**Live Updates: SpaceX Set to Start Trading in Blockbuster Market Debut**\
+`Elon Musk’s rocket and satellite maker already finalized the world’s largest initial public offering, selling 555 million shares at an initial price of $135.`\
+https://www.nytimes.com/live/2026/06/12/business/spacex-ipo-elon-musk
+
+**Americans Aren’t Money Savvy, and They’re Only Getting Worse**\
+`Researchers say people with poor understanding of basic finances often make bad decisions on money matters.`\
+https://www.nytimes.com/2026/06/12/your-money/americans-financial-knowledge.html
+
+**Summer Reading Contest, Week 2: What Got Your Attention in The Times This Week?**\
+`To participate, submit your response here by June 19 at 9 a.m. Eastern. This week’s winners will be announced by July 1.`\
+https://www.nytimes.com/2026/06/12/learning/summer-reading-contest-week-2-what-got-your-attention-in-the-times-this-week.html
+
 **Anti-Immigrant Riots after Belfast Stabbing Leave City on Edge**\
 `In two nights of violence in Northern Ireland after a brutal stabbing, people were targeted because of their skin color, the authorities said.`\
 https://www.nytimes.com/2026/06/12/world/europe/belfast-stabbing-riots-anti-immigrant.html
@@ -181,20 +193,4 @@ https://www.nytimes.com/2026/06/12/travel/chicago-south-side-obama-center.html
 **‘Disclosure Day’ | Anatomy of a Scene**\
 `The director Steven Spielberg breaks down an action sequence from his new film “Disclosure Day” for Anatomy of a Scene.`\
 https://www.nytimes.com/video/movies/100000010945475/disclosure-day-anatomy-of-a-scene.html
-
-**Excitement and Frustration Mix as the World Cup Comes to America**\
-`Astronomical ticket prices, soaring security costs and concern over traffic and transit snarls is mixed with pride in host cities and excitement over the U.S. team.`\
-https://www.nytimes.com/2026/06/12/us/world-cup-united-states-anxiety.html
-
-**It’s Time to Worry About Ticks in the City**\
-`Think ticks are limited to rural areas and the wilderness? Think again.`\
-https://www.nytimes.com/2026/06/12/us/urban-ticks-new-york-city-philadelphia-washington.html
-
-**‘The Gas Station Attendant’ Review: A Daughter’s Questions**\
-`Karla Murthy retells her Indian dad’s life story to better understand her own in this deeply personal documentary.`\
-https://www.nytimes.com/2026/06/12/movies/the-gas-station-attendant-review.html
-
-**ICE Wants Local Police to Enforce Immigration Law. These Officers Signed Up.**\
-`The Trump administration has enlisted hundreds of state and local law enforcement agencies to support its mass deportation campaign.`\
-https://www.nytimes.com/interactive/2026/06/12/us/politics/ice-local-police-immigration-287g.html
 

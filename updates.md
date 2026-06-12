@@ -1,3 +1,15 @@
+**Live Updates: SpaceX Set to Start Trading in Blockbuster Market Debut**\
+`Elon Musk’s rocket and satellite maker already finalized the world’s largest initial public offering, selling 555 million shares at an initial price of $135.`\
+https://www.nytimes.com/live/2026/06/12/business/spacex-ipo-elon-musk
+
+**Americans Aren’t Money Savvy, and They’re Only Getting Worse**\
+`Researchers say people with poor understanding of basic finances often make bad decisions on money matters.`\
+https://www.nytimes.com/2026/06/12/your-money/americans-financial-knowledge.html
+
+**Summer Reading Contest, Week 2: What Got Your Attention in The Times This Week?**\
+`To participate, submit your response here by June 19 at 9 a.m. Eastern. This week’s winners will be announced by July 1.`\
+https://www.nytimes.com/2026/06/12/learning/summer-reading-contest-week-2-what-got-your-attention-in-the-times-this-week.html
+
 **Some Leftists Are Boycotting This Film. Everyone Should Watch It.**\
 `The inanity of the leftists who’d censor such a film shouldn’t distract us from the right-wing nightmare it reveals.`\
 https://www.nytimes.com/2026/06/12/opinion/yes-israel-film-boycott.html
