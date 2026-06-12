@@ -1,3 +1,7 @@
+**Reseña de ‘El día de la revelación’: Spielberg repasa sus éxitos cósmicos**\
+`En una trepidante fantasía de ciencia ficción, impregnada de fastuosidad y protagonizada por Emily Blunt, Josh O’Connor y Colman Domingo, el cineasta nos lleva a todos a casa.`\
+https://www.nytimes.com/es/2026/06/12/espanol/resena-de-el-dia-de-la-revelacion-spielberg-repasa-sus-grandes-exitos-cosmicos.html
+
 **Cuando la IA resuelve en días lo que los matemáticos tardan años**\
 `Una empresa gastó 100.000 dólares en completar en cinco días una demostración que un equipo académico llevaba dos años construyendo. El episodio desató un pánico silencioso en los departamentos de matemáticas del mundo.`\
 https://www.nytimes.com/es/2026/06/12/espanol/ciencia-y-tecnologia/ia-resuelve-matematicas.html

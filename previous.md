@@ -1,3 +1,7 @@
+**Reseña de ‘El día de la revelación’: Spielberg repasa sus éxitos cósmicos**\
+`En una trepidante fantasía de ciencia ficción, impregnada de fastuosidad y protagonizada por Emily Blunt, Josh O’Connor y Colman Domingo, el cineasta nos lleva a todos a casa.`\
+https://www.nytimes.com/es/2026/06/12/espanol/resena-de-el-dia-de-la-revelacion-spielberg-repasa-sus-grandes-exitos-cosmicos.html
+
 **Cuando la IA resuelve en días lo que los matemáticos tardan años**\
 `Una empresa gastó 100.000 dólares en completar en cinco días una demostración que un equipo académico llevaba dos años construyendo. El episodio desató un pánico silencioso en los departamentos de matemáticas del mundo.`\
 https://www.nytimes.com/es/2026/06/12/espanol/ciencia-y-tecnologia/ia-resuelve-matematicas.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/11/insider/spacex-ipo-coverage-facts-price.html
 **It’s Time To Meet Slayyyter, The ‘Worst Girl in America.’**\
 `Watch the full conversation with Slayyyter. Edited excerpts from the interview are below.`\
 https://www.nytimes.com/video/podcasts/100000010953392/its-time-to-meet-slayyyter-the-worst-girl-in-america.html
-
-**As World Cup Begins, Mexico City Becomes a Global Stage**\
-`Supporters of the national team gathered inside and outside the stadium for the opening of the games, celebrating the start of a tournament years in the making.`\
-https://www.nytimes.com/2026/06/11/world/americas/world-cup-photos-mexico.html
 
