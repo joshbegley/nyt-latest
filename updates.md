@@ -1,3 +1,23 @@
+**The A.I. Proxy Fight Roiling the Race for a New York House Seat**\
+`Groups tied to OpenAI, Anthropic and other industry players have spent $16 million trying to pick the next member of Congress from Manhattan.`\
+https://www.nytimes.com/2026/06/12/nyregion/ai-money-bores-lasher-primary.html
+
+**Brawls, Biting and Bliss in a City Craving a Knicks Championship**\
+`Decades of bottled-up hopes and frustrations have created a frenzy around the New York Knicks that has brought out the worst in some fans.`\
+https://www.nytimes.com/2026/06/12/nyregion/knicks-finals-new-york.html
+
+**Knicks in Five? Please Don’t Tempt the Jinx Gods.**\
+`Some Knicks fans have predicted series sweeps. Others, conditioned by decades of failure, pay more heed to jinxes and superstitious rituals.`\
+https://www.nytimes.com/2026/06/12/nyregion/knicks-superstitions-playoffs.html
+
+**New York Primary Elections: What to Know and How to Vote**\
+`Several closely watched races are taking place in New York City and beyond. Nine days of early voting will precede Primary Day on June 23.`\
+https://www.nytimes.com/2026/06/12/nyregion/new-york-primary-elections-how-when-vote.html
+
+**NYT Spelling Bee Answers for June 12, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/12/crosswords/spelling-bee-forum.html
+
 **SpaceX Goes Public**\
 `SpaceX, Elon Musk’s rocket and satellite company is set to begin trading on Friday under the ticker symbol SPCX. Its valuation is set at $1.77 trillion and would put Mr. Musk, the world’s richest man, on track to become the first trillionaire in history.`\
 https://www.nytimes.com/video/business/100000010962733/spacex-ipo-elon-musk.html
