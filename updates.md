@@ -1,3 +1,7 @@
+**James Blood Ulmer, Guitarist Who Smashed Through Genres, Dies at 86**\
+`A protégé of the saxophonist Ornette Coleman, he borrowed from and greatly influenced styles like funk, punk, jazz and the blues.`\
+https://www.nytimes.com/2026/06/12/arts/music/james-blood-ulmer-dead.html
+
 **Your SpaceX Odds Are Not in Your Favor**\
 `To buy a share of SpaceX or not to buy? That is the trillion-dollar question. With its high share price, only one person stands to profit from the company going public. According to the Opinion senior staff editor Bill Saporito, you might as well purchase lottery tickets instead.`\
 https://www.nytimes.com/video/opinion/100000010952734/your-spacex-odds-are-not-in-your-favor.html

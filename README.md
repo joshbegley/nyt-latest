@@ -1,3 +1,7 @@
+**Days of Dangerous Heat Is Expected in the Pacific Northwest**\
+`Portland could climb near 100 degrees this weekend, forecasters said. Little relief is expected until next week.`\
+https://www.nytimes.com/2026/06/12/weather/portland-seattle-heat-wave.html
+
 **James Blood Ulmer, Guitarist Who Smashed Through Genres, Dies at 86**\
 `A protégé of the saxophonist Ornette Coleman, he borrowed from and greatly influenced styles like funk, punk, jazz and the blues.`\
 https://www.nytimes.com/2026/06/12/arts/music/james-blood-ulmer-dead.html
@@ -169,10 +173,6 @@ https://www.nytimes.com/2026/06/12/movies/action-movies-streaming.html
 **This Conservative Insider Is Skeptical That the G.O.P. Can ‘Buck Historical Trends’ in the Midterms**\
 `Why “top Republicans should actually be more concerned.”`\
 https://www.nytimes.com/2026/06/12/opinion/republicans-midterms-politics-election.html
-
-**Taylor Swift Enters the Songwriters Hall of Fame With Tears, Jokes and a Warning**\
-`After an introduction from Steven Spielberg, Swift gave a lengthy speech encouraging artists to “trust their human intuition” in an industry driven by data.`\
-https://www.nytimes.com/2026/06/12/arts/music/taylor-swift-songwriters-hall-speech.html
 
 **Live Updates: Elon Musk Becomes World’s First Trillionaire on SpaceX’s First Day of Trading**\
 `Stock in Mr. Musk’s rocket and satellite maker was trading above $160 per share as markets prepared to close, up roughly 20 percent from its I.P.O. price.`\
