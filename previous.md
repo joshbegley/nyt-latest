@@ -1,3 +1,15 @@
+**What I Learned From David Hockney**\
+`The curator Norman Rosenthal knew the artist for over 60 years and still discovered something new when they collaborated on a final blockbuster show.`\
+https://www.nytimes.com/2026/06/12/arts/design/david-hockney-norman-rosenthal.html
+
+**With iPhones and Faxes, David Hockney Embraced Tech**\
+`Polaroids and photocopiers also gave the artist possibilities for creating in forms vastly different from his paintings.`\
+https://www.nytimes.com/2026/06/12/arts/design/david-hockney-ipad-iphone-photocopier-fax.html
+
+**David Hockney, Who Restored the Human Form to Art, Dies at 88**\
+`His colorful figurative paintings were both conservative and iconoclastic, defying the dominant abstract schools of the mid-20th century.`\
+https://www.nytimes.com/2026/06/12/arts/design/david-hockney-dead.html
+
 **1979: How the U.S. and Iran Went From Allies to Enemies**\
 `The regime in Iran, with which the United States is at war, is the same that came to power rejecting the U.S.-Iranian alliance of the 1970s.`\
 https://www.nytimes.com/2026/06/12/podcasts/the-daily/1979-us-iran-allies-enemies.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/12/science/lost-science-ai-weather-forecasting.h
 **Cómo dos directores de la generación Z formados en YouTube conquistaron el cine de terror**\
 `‘Backrooms: sin salida’ y ‘Obsesión’ están reescribiendo las reglas de Hollywood. Dos críticos del Times analizan el fenómeno.`\
 https://www.nytimes.com/es/2026/06/12/espanol/cultura/backrooms-obsesion-directores-generacion-z-youtube.html
-
-**The A.I. Proxy Fight Roiling the Race for a New York House Seat**\
-`Groups tied to OpenAI, Anthropic and other industry players have spent $16 million trying to pick the next member of Congress from Manhattan.`\
-https://www.nytimes.com/2026/06/12/nyregion/ai-money-bores-lasher-primary.html
-
-**Brawls, Biting and Bliss in a City Craving a Knicks Championship**\
-`Decades of bottled-up hopes and frustrations have created a frenzy around the New York Knicks that has brought out the worst in some fans.`\
-https://www.nytimes.com/2026/06/12/nyregion/knicks-finals-new-york.html
-
-**Knicks in Five? Please Don’t Tempt the Jinx Gods.**\
-`Some Knicks fans have predicted series sweeps. Others, conditioned by decades of failure, pay more heed to jinxes and superstitious rituals.`\
-https://www.nytimes.com/2026/06/12/nyregion/knicks-superstitions-playoffs.html
 

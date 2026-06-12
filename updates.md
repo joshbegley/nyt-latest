@@ -1,3 +1,15 @@
+**What I Learned From David Hockney**\
+`The curator Norman Rosenthal knew the artist for over 60 years and still discovered something new when they collaborated on a final blockbuster show.`\
+https://www.nytimes.com/2026/06/12/arts/design/david-hockney-norman-rosenthal.html
+
+**With iPhones and Faxes, David Hockney Embraced Tech**\
+`Polaroids and photocopiers also gave the artist possibilities for creating in forms vastly different from his paintings.`\
+https://www.nytimes.com/2026/06/12/arts/design/david-hockney-ipad-iphone-photocopier-fax.html
+
+**David Hockney, Who Restored the Human Form to Art, Dies at 88**\
+`His colorful figurative paintings were both conservative and iconoclastic, defying the dominant abstract schools of the mid-20th century.`\
+https://www.nytimes.com/2026/06/12/arts/design/david-hockney-dead.html
+
 **1979: How the U.S. and Iran Went From Allies to Enemies**\
 `The regime in Iran, with which the United States is at war, is the same that came to power rejecting the U.S.-Iranian alliance of the 1970s.`\
 https://www.nytimes.com/2026/06/12/podcasts/the-daily/1979-us-iran-allies-enemies.html
