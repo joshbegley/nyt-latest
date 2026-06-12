@@ -1,3 +1,15 @@
+**‘I Met God’**\
+`Psychedelics allow you to communicate with the divine, Christian Angermayer, founder of the Enhanced Games, tells the columnist Ross Douthat on “Interesting Times,” arguing that the safe use of certain mind-altering drugs should be part of living a full life.`\
+https://www.nytimes.com/video/opinion/100000010947964/i-met-god.html
+
+**Renewable Groups Ask Courts to End Pentagon’s ‘Total Halt’ of Wind Power**\
+`More than 100 planned wind farms in 21 states are now stalled indefinitely as the Pentagon delays military reviews once seen as routine.`\
+https://www.nytimes.com/2026/06/12/climate/wind-power-lawsuit-pentagon-trump.html
+
+**Men Have Viagra. What About Women?**\
+`Modern medicine helped men have better sex, but what about women? Christian Angermayer, founder of the Enhanced Games, argues we’re entering a new era of “humanmaxxing,” in which scientific breakthroughs will help us have better sex, better sleep and level up our looks.`\
+https://www.nytimes.com/video/opinion/100000010947963/men-have-viagra-what-about-women.html
+
 **To Defeat Democrats, Texas Governor Embraces the Hard Right**\
 `After years of keeping his distance, Gov. Greg Abbott is set to address Texas Republicans’ activist-led convention as hard-line conservatives gain influence within the party.`\
 https://www.nytimes.com/2026/06/12/us/greg-abbott-texas-governor-hard-right.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/06/12/us/frisco-texas-mayor-election-muslim.html
 **The New York Times News Quiz, June 12, 2026**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://www.nytimes.com/interactive/2026/06/12/briefing/quiz-world-cup-iran-elections.html
-
-**Making Space for Art on a Sporty Weekend**\
-`Soccer ball sculptures have popped up in New York City for the World Cup ahead of the first game in the area on Saturday, Brazil vs. Morocco.`\
-https://www.nytimes.com/2026/06/12/nyregion/making-space-for-art-on-a-sporty-weekend.html
-
-**SpaceX’s I.P.O. Will Help Fulfill Elon Musk’s Political Vision of America**\
-`The SpaceX I.P.O. will enable its founder to build — and scale — his peculiar vision of society.`\
-https://www.nytimes.com/2026/06/12/opinion/elon-musk-spacex-starbase-texas.html
-
-**AIPAC Wants Democrats to Back Israel. Instead, They’re Turning on AIPAC.**\
-`Once the guardian of the bipartisan pro-Israel consensus, it is now a polarizing force in the party.`\
-https://www.nytimes.com/2026/06/12/magazine/aipac-democrats-israel.html
 

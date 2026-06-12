@@ -1,3 +1,15 @@
+**‘I Met God’**\
+`Psychedelics allow you to communicate with the divine, Christian Angermayer, founder of the Enhanced Games, tells the columnist Ross Douthat on “Interesting Times,” arguing that the safe use of certain mind-altering drugs should be part of living a full life.`\
+https://www.nytimes.com/video/opinion/100000010947964/i-met-god.html
+
+**Renewable Groups Ask Courts to End Pentagon’s ‘Total Halt’ of Wind Power**\
+`More than 100 planned wind farms in 21 states are now stalled indefinitely as the Pentagon delays military reviews once seen as routine.`\
+https://www.nytimes.com/2026/06/12/climate/wind-power-lawsuit-pentagon-trump.html
+
+**Men Have Viagra. What About Women?**\
+`Modern medicine helped men have better sex, but what about women? Christian Angermayer, founder of the Enhanced Games, argues we’re entering a new era of “humanmaxxing,” in which scientific breakthroughs will help us have better sex, better sleep and level up our looks.`\
+https://www.nytimes.com/video/opinion/100000010947963/men-have-viagra-what-about-women.html
+
 **To Defeat Democrats, Texas Governor Embraces the Hard Right**\
 `After years of keeping his distance, Gov. Greg Abbott is set to address Texas Republicans’ activist-led convention as hard-line conservatives gain influence within the party.`\
 https://www.nytimes.com/2026/06/12/us/greg-abbott-texas-governor-hard-right.html

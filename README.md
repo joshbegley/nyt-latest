@@ -1,3 +1,19 @@
+**5 Ingredients for a Healthy Life**\
+`Living a good life doesn’t have to be complicated, Christian Angermayer, founder of the Enhanced Games, tells the columnist Ross Douthat on “Interesting Times,” and shares five basics he believes are crucial for optimizing your time on earth.`\
+https://www.nytimes.com/video/opinion/100000010960925/5-ingredients-for-a-healthy-life.html
+
+**Rick Jackson, Georgia Governor Candidate, Is Also a Film Producer Battling the IRS**\
+`Rick Jackson, a billionaire, wants to be Georgia’s next governor. But the I.R.S. has questioned how his low-budget movies turned into tax windfalls.`\
+https://www.nytimes.com/2026/06/12/us/elections/rick-jackson-georgia-governor-movies-tax.html
+
+**Hockney’s Sense of Style Never Wavered**\
+`The painter David Hockney’s clothes roared with mirth and maximalism.`\
+https://www.nytimes.com/2026/06/12/fashion/hockney-style-color.html
+
+**The World Cup Could Be the Biggest Sports Gambling Event Ever**\
+`At a time of sluggish growth, betting sites like FanDuel and DraftKings are counting on the global soccer tournament to boost online sports gambling.`\
+https://www.nytimes.com/2026/06/12/business/world-cup-gambling.html
+
 **‘I Met God’**\
 `Psychedelics allow you to communicate with the divine, Christian Angermayer, founder of the Enhanced Games, tells the columnist Ross Douthat on “Interesting Times,” arguing that the safe use of certain mind-altering drugs should be part of living a full life.`\
 https://www.nytimes.com/video/opinion/100000010947964/i-met-god.html
@@ -177,20 +193,4 @@ https://www.nytimes.com/2026/06/12/movies/the-furious-action-scene.html
 **The Books Times Readers Are Most Excited About This Summer**\
 `Lush historical fiction, gripping thrillers, true crime, laugh-out-loud essays and more: Here are the books you’ve saved most to your reading lists.`\
 https://www.nytimes.com/2026/06/12/books/most-saved-books-summer.html
-
-**Pick Your Favorite $875,000 Home in Montreal**\
-`A duplex in a converted 1899 mansion, a brick rowhouse from 1922, and a loft with floor-to-ceiling windows in Old Montreal.`\
-https://www.nytimes.com/2026/06/12/realestate/montreal-quebec-canada-homes-for-sale.html
-
-**Sheriffs in Maryland Challenge State Limits on Cooperation With ICE**\
-`A lawsuit by a group of 17 county law enforcement officers is another front in the Trump-era fight over local police’s role in immigration enforcement.`\
-https://www.nytimes.com/2026/06/12/us/sheriffs-maryland-immigration-lawsuit.html
-
-**Frisco Mayor’s Race Tests Anti-Muslim Politics in Texas**\
-`A runoff in the Dallas suburb of Frisco is testing whether anti-Muslim rhetoric, prominent in G.O.P. primaries this year, can win over a broader set of voters.`\
-https://www.nytimes.com/2026/06/12/us/frisco-texas-mayor-election-muslim.html
-
-**The New York Times News Quiz, June 12, 2026**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://www.nytimes.com/interactive/2026/06/12/briefing/quiz-world-cup-iran-elections.html
 
