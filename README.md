@@ -26,8 +26,8 @@ https://www.nytimes.com/2026/06/12/us/politics/trump-fund-judge-ruling.html
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/06/12/upshot/flashback.html
 
-**Man Is Barricaded in Building After Fatal Shooting in Midland, Texas**\
-`The man was confirmed to be dead after a standoff with law enforcement in Midland, following an earlier shooting that killed one person and injured at least 11 others.`\
+**Suspect in Fatal Shooting Is Dead After a Standoff in Midland, Texas, Officials Say**\
+`The man was confirmed to be dead after he had barricaded himself in a building in Midland, following an earlier shooting on Friday that killed one person and injured at least 11 others.`\
 https://www.nytimes.com/2026/06/12/us/midland-texas-shooting-active-shooter.html
 
 **The Philharmonic and the Met Engage in a Battle of the Bands**\
@@ -181,10 +181,6 @@ https://www.nytimes.com/video/world/asia/100000010962795/princess-bha-thailand-d
 **‘The Headlines’ News Quiz: Jun. 12, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/06/12/podcasts/the-headlines/the-headlines-news-quiz-jun-12-2026.html
-
-**‘Hard Fork’ Live, Part 1: Satya Nadella and Cindy Cohn**\
-`A tech titan, a digital rights defender and two menacing-looking robot dogs took the stage at our second-ever live show.`\
-https://www.nytimes.com/2026/06/12/podcasts/hard-fork-live-part-1-satya-nadella.html
 
 **World Cup Updates: Tournament Could Be a Bonanza for Betting Sites**\
 `(No description)`\

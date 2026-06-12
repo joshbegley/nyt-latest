@@ -1,3 +1,7 @@
+**Man Is Barricaded in Building After Fatal Shooting in Midland, Texas**\
+`The man was confirmed to be dead after a standoff with law enforcement in Midland, following an earlier shooting that killed one person and injured at least 11 others.`\
+https://www.nytimes.com/2026/06/12/us/midland-texas-shooting-active-shooter.html
+
 **Muere David Hockney, célebre pintor pop**\
 `Sus obras figurativas eran a la vez conservadoras e iconoclastas, desafiando las escuelas abstractas dominantes de mediados del siglo XX.`\
 https://www.nytimes.com/es/2026/06/12/espanol/cultura/muere-david-hockney-pintor.html
