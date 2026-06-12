@@ -1,3 +1,11 @@
+**NASA Leader Responds to Criticism Over All-Male Artemis III Crew**\
+`NASA’s missions these days rarely feature all-male crews. Jared Isaacman, its administrator, said women play prominent roles throughout the space agency.`\
+https://www.nytimes.com/2026/06/12/science/nasa-artemis-astronauts-women.html
+
+**Despite Trump Claims, Spencer Pratt Seems to Accept L.A. Mayor Results**\
+`President Trump said the loss was an example of election fraud, but Mr. Pratt did not entertain that idea. Instead, he plans to wind down his campaign but keep attacking the two Democrats who advanced.`\
+https://www.nytimes.com/2026/06/12/us/elections/spencer-pratt-la-mayor.html
+
 **How Betters Use Arbitrage to Make Free Money on Kalshi and Polymarket**\
 `How bettors are turning statistical glitches into guaranteed profits.`\
 https://www.nytimes.com/interactive/2026/06/12/upshot/kalshi-polymarket-prediction-markets-arbitrage.html
