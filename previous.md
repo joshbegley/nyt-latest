@@ -1,3 +1,7 @@
+**Drones Flown Over North Korea Were Part of Martial Law Plot by Former South Korean President**\
+`A court ruled that Yoon Suk Yeol, the impeached former president, had sought to stir up instability to justify his bid for authoritarian rule in 2024.`\
+https://www.nytimes.com/2026/06/11/world/asia/north-korea-drones-martial-law.html
+
 **China Has Arrested U.S. Scholar Who Studies Myanmar Politics**\
 `The arrest of U Min Zin, a graduate student at U.C. Berkeley and founder of a research group in Myanmar, took place soon after President Trump met with Xi Jinping in China.`\
 https://www.nytimes.com/2026/06/11/us/politics/china-arrests-us-scholar.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/11/dining/looking-for-an-egyptian-sandwich-and-m
 **Slayyyter Sees No Use For ‘Taste Peacocking’ In Pop**\
 `Slayyyter became one of 2026’s breakout pop stars with the release of her third album, “Worst Girl in America,” and a viral Coachella set. On “Popcast,” she shares her thoughts on why, as Lady Gaga once said, loving pop music will never be “low brow.”`\
 https://www.nytimes.com/video/podcasts/100000010961733/slayyyter-sees-no-use-for-taste-peacocking-in-pop.html
-
-**U.S. Blocks Deal by Florida-based Vanguard Energy to Supply Fuel to Cuba**\
-`The deal to ship 250,000 barrels of fuel to Cuba could have eased an energy crisis. But the Trump administration says Vanguard Energy lacks the authorization to proceed.`\
-https://www.nytimes.com/2026/06/11/world/americas/us-cuba-trump-energy-fuel.html
 

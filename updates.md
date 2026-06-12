@@ -1,3 +1,7 @@
+**Drones Flown Over North Korea Were Part of Martial Law Plot by Former South Korean President**\
+`A court ruled that Yoon Suk Yeol, the impeached former president, had sought to stir up instability to justify his bid for authoritarian rule in 2024.`\
+https://www.nytimes.com/2026/06/11/world/asia/north-korea-drones-martial-law.html
+
 **China Has Arrested U.S. Scholar Who Studies Myanmar Politics**\
 `The arrest of U Min Zin, a graduate student at U.C. Berkeley and founder of a research group in Myanmar, took place soon after President Trump met with Xi Jinping in China.`\
 https://www.nytimes.com/2026/06/11/us/politics/china-arrests-us-scholar.html
