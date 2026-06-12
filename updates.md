@@ -1,3 +1,7 @@
+**La Iglesia española espera que la visita del papa León atraiga a los jóvenes al catolicismo**\
+`La visita de León XIV a España, que terminó el viernes, ha despertado entre los líderes católicos la esperanza de un renacimiento espiritual.`\
+https://www.nytimes.com/es/2026/06/12/espanol/mundo/espana-papa-leon.html
+
 **NASA Leader Responds to Criticism Over All-Male Artemis III Crew**\
 `NASA’s missions these days rarely feature all-male crews. Jared Isaacman, its administrator, said women play prominent roles throughout the space agency.`\
 https://www.nytimes.com/2026/06/12/science/nasa-artemis-astronauts-women.html
