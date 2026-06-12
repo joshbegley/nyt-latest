@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/06/12/us/judge-eleanor-ross-apology-letters.html
 `Trials are beginning on several drugs that have shown promise in preliminary studies against the virus that is causing the current outbreak.`\
 https://www.nytimes.com/2026/06/12/health/ebola-treatment-bundibugyo-virus.html
 
-**Israel Builds Army Base in Jenin, Flouting 1990s Pact With Palestinians**\
+**Israel Is Building Army Base in Jenin, Flouting 1990s Pact With Palestinians**\
 `Critics say the move would help the Israeli military protect increased settlement activity near Palestinian population centers in the West Bank.`\
 https://www.nytimes.com/2026/06/12/world/middleeast/israel-base-jenin-oslo.html
 
@@ -173,10 +173,6 @@ https://www.nytimes.com/2026/06/12/us/elections/rick-jackson-georgia-governor-mo
 **David Hockney’s Sense of Style Never Wavered**\
 `The painter David Hockney’s clothes roared with mirth and maximalism.`\
 https://www.nytimes.com/2026/06/12/fashion/hockney-style-color.html
-
-**The World Cup Could Be the Biggest Sports Gambling Event Ever**\
-`At a time of sluggish growth, betting sites like FanDuel and DraftKings are counting on the global soccer tournament to boost online sports gambling.`\
-https://www.nytimes.com/2026/06/12/business/world-cup-gambling.html
 
 **Live Updates: Elon Musk Becomes World’s First Trillionaire as SpaceX Starts Trading**\
 `Mr. Musk’s rocket and satellite maker opened at $150 per share, up 11 percent from its I.P.O. price, and then shot to well over 20 percent.`\
