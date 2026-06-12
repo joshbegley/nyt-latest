@@ -1,3 +1,7 @@
+**La Iglesia española espera que la visita del papa León atraiga a los jóvenes al catolicismo**\
+`La visita de León XIV a España, que terminó el viernes, ha despertado entre los líderes católicos la esperanza de un renacimiento espiritual.`\
+https://www.nytimes.com/es/2026/06/12/espanol/mundo/espana-papa-leon.html
+
 **NASA Leader Responds to Criticism Over All-Male Artemis III Crew**\
 `NASA’s missions these days rarely feature all-male crews. Jared Isaacman, its administrator, said women play prominent roles throughout the space agency.`\
 https://www.nytimes.com/2026/06/12/science/nasa-artemis-astronauts-women.html
@@ -169,10 +173,6 @@ https://www.nytimes.com/2026/06/12/business/economy/spacex-openai-anthropic-bill
 **Muere David Hockney, célebre pintor pop**\
 `Sus obras figurativas eran a la vez conservadoras e iconoclastas, desafiando las escuelas abstractas dominantes de mediados del siglo XX.`\
 https://www.nytimes.com/es/2026/06/12/espanol/cultura/muere-david-hockney-pintor.html
-
-**Blake Lively Awarded Legal Fees in Ruling After Justin Baldoni Settlement**\
-`The size of the award remains to be determined. It only involves the legal fees associated with part of her court battle with Mr. Baldoni, with whom she made a film.`\
-https://www.nytimes.com/2026/06/12/movies/blake-lively-legal-fees-ruling-justin-baldoni-settlement.html
 
 **Elon Musk Becomes World’s First Trillionaire on SpaceX’s First Day of Trading**\
 `Stock in Mr. Musk’s rocket and satellite maker closed just above $161, up more than 19 percent from its I.P.O. price.`\
