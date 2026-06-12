@@ -1,3 +1,7 @@
+**Supreme Court Blocks Alabama from Executing Inmate Using Nitrogen Gas**\
+`The unsigned decision for now spares Jeffery Lee, a convicted murderer, and could lead to a broader fight over the relatively new execution method.`\
+https://www.nytimes.com/2026/06/11/us/supreme-court-blocks-alabama-nitrogen-execution.html
+
 **Tornadoes Are Reported in Illinois as Storms Sweep the Midwest**\
 `For the second day in a row, Chicago is in the bull’s-eye of severe weather on Thursday, but the storm forecast is widespread.`\
 https://www.nytimes.com/2026/06/11/weather/chicago-illinois-tornado-storms.html

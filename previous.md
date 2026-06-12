@@ -1,3 +1,7 @@
+**Supreme Court Blocks Alabama from Executing Inmate Using Nitrogen Gas**\
+`The unsigned decision for now spares Jeffery Lee, a convicted murderer, and could lead to a broader fight over the relatively new execution method.`\
+https://www.nytimes.com/2026/06/11/us/supreme-court-blocks-alabama-nitrogen-execution.html
+
 **What to Know About Jay Clayton, Trump’s Pick for Intelligence Director**\
 `Mr. Clayton, the U.S. attorney in Manhattan and a former chairman of the Securities and Exchange Commission, has been overseeing an office known for prominent cases.`\
 https://www.nytimes.com/2026/06/11/us/politics/what-to-know-jay-clayton.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/11/business/spacex-openai-ipo-china.html
 **‘All Men Are Created Equal’? Not Everyone Agrees.**\
 `Our founding creed has always had its critics.`\
 https://www.nytimes.com/2026/06/11/opinion/inequality-musk-thiel-carvalho-billionaires.html
-
-**2026 World Cup: Hidden FIFA Costs & a USMNT Preview**\
-`And, our top three stories as the tournament begins.`\
-https://www.nytimes.com/2026/06/11/us/2026-world-cup-hidden-fifa-costs-a-usmnt-preview.html
 
