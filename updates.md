@@ -1,3 +1,11 @@
+**Trump Suspends Funding for Los Angeles Homeless Agency**\
+`The Trump administration cited misspending among the reasons for blocking funds to the Los Angeles Homeless Services Authority. Mayor Karen Bass warned that “people will lose their lives.”`\
+https://www.nytimes.com/2026/06/11/us/trump-los-angeles-homeless.html
+
+**NYT Crossword Answers for June 12, 2026**\
+`Amanda Winters opens our solving weekend.`\
+https://www.nytimes.com/2026/06/11/crosswords/daily-puzzle-2026-06-12.html
+
 **Supreme Court Blocks Alabama From Executing Inmate Using Nitrogen Gas**\
 `The unsigned decision for now spares Jeffery Lee, a convicted murderer, and could lead to a broader fight over the relatively new execution method.`\
 https://www.nytimes.com/2026/06/11/us/supreme-court-blocks-alabama-nitrogen-execution.html
