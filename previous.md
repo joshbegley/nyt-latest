@@ -1,3 +1,15 @@
+**‘Obsession’ and the Caricature of the ‘Crazy Girlfriend’**\
+`Angelica Jade Bastién, a pop culture critic, joins Wesley Morris on “Cannonball” to talk about how women were portrayed in the hit horror movie “Obsession.”`\
+https://www.nytimes.com/video/podcasts/100000010954853/obsession-and-the-caricature-of-the-crazy-girlfriend.html
+
+**National Mall Grass Vandalized with ’86 47’ Stains**\
+`The vandalism was the latest in a spate of apparent demonstrations involving the slang term, which the Trump administration says is a reference to assassinating the president.`\
+https://www.nytimes.com/2026/06/11/us/national-mall-grass-vandalized-86-47-trump.html
+
+**For a Knicks Reporter, Good Basketball Wasn’t Always So Easy to Find**\
+`In 2015, the team was so bad, The Times’s beat writer took a break to search for the game in its prettier forms.`\
+https://www.nytimes.com/2026/06/11/insider/knicks-bad-season.html
+
 **Off-Duty Officer Indicted on a Charge of Attempted Murder Over Stolen Car**\
 `The officer fired two shots into another vehicle during the search for his car and struck a man in the head.`\
 https://www.nytimes.com/2026/06/11/nyregion/off-duty-officer-shooting-attempted-murder.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/11/us/politics/usps-mail-voting-democratic-resis
 **13 Afghan Civilians Killed in Airstrikes on Pakistan Border, U.N. Says**\
 `Pakistan said its airstrikes targeted militant camps. The United Nations confirmed reports by the Taliban government that mostly women and children were killed.`\
 https://www.nytimes.com/2026/06/11/world/asia/afghanistan-pakistan-airstrikes-civilians.html
-
-**William Coupon, Who Wanted to ‘Photograph Everyone in the World,’ Dies at 73**\
-`Self-taught, he became a go-to portraitist for politicians, rock stars and other celebrities. He also documented Indigenous people and inmates on death row.`\
-https://www.nytimes.com/2026/06/11/arts/design/william-coupon-dead.html
-
-**El papa León bendice la Sagrada Familia. Para algunos, la basílica es una maldición**\
-`El pontífice celebró una misa en la emblemática obra inconclusa de Antoni Gaudí durante su viaje a España. Pero para algunos barceloneses, el final de la construcción podría significar perder sus casas.`\
-https://www.nytimes.com/es/2026/06/11/espanol/mundo/sagrada-familia-papa.html
-
-**Trump Picks Jay Clayton for Director of National Intelligence After Backlash Over Bill Pulte**\
-`The president said he would nominate Jay Clayton, the U.S. attorney in Manhattan and the former chairman of the Securities and Exchange Commission, for the permanent role.`\
-https://www.nytimes.com/2026/06/11/us/politics/trump-jay-clayton-intelligence-chief.html
 

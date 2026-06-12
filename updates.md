@@ -1,3 +1,15 @@
+**‘Obsession’ and the Caricature of the ‘Crazy Girlfriend’**\
+`Angelica Jade Bastién, a pop culture critic, joins Wesley Morris on “Cannonball” to talk about how women were portrayed in the hit horror movie “Obsession.”`\
+https://www.nytimes.com/video/podcasts/100000010954853/obsession-and-the-caricature-of-the-crazy-girlfriend.html
+
+**National Mall Grass Vandalized with ’86 47’ Stains**\
+`The vandalism was the latest in a spate of apparent demonstrations involving the slang term, which the Trump administration says is a reference to assassinating the president.`\
+https://www.nytimes.com/2026/06/11/us/national-mall-grass-vandalized-86-47-trump.html
+
+**For a Knicks Reporter, Good Basketball Wasn’t Always So Easy to Find**\
+`In 2015, the team was so bad, The Times’s beat writer took a break to search for the game in its prettier forms.`\
+https://www.nytimes.com/2026/06/11/insider/knicks-bad-season.html
+
 **Off-Duty Officer Indicted on a Charge of Attempted Murder Over Stolen Car**\
 `The officer fired two shots into another vehicle during the search for his car and struck a man in the head.`\
 https://www.nytimes.com/2026/06/11/nyregion/off-duty-officer-shooting-attempted-murder.html
