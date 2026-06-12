@@ -175,7 +175,7 @@ https://www.nytimes.com/2026/06/12/us/elections/rick-jackson-georgia-governor-mo
 https://www.nytimes.com/2026/06/12/fashion/hockney-style-color.html
 
 **Live Updates: Elon Musk Becomes World’s First Trillionaire as SpaceX Starts Trading**\
-`Mr. Musk’s rocket and satellite maker opened at $150 per share, up 11 percent from its I.P.O. price, and then shot to well over 20 percent.`\
+`Mr. Musk’s rocket and satellite maker opened at $150 per share, up 11 percent from its I.P.O. price, and has been trading at well over 20 percent.`\
 https://www.nytimes.com/live/2026/06/12/business/spacex-ipo-elon-musk
 
 **World Cup Updates: Tournament Could Be a Bonanza for Betting Sites**\
