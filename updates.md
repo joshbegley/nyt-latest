@@ -1,3 +1,23 @@
+**Charlie Dalin, Who Set a Sailing Record While Battling Cancer, Dies at 42**\
+`Last year, while suffering from an advanced stomach tumor, he won the grueling Vendée Globe race, sailing 24,000 miles in just 64 days.`\
+https://www.nytimes.com/2026/06/12/sports/sailing/charlie-dalin-dead.html
+
+**As Speculation Swirls About the Emerging Iran Deal, Here’s What We Know**\
+`A “memorandum of understanding” between the two sides is under discussion. Both sides are keen to frame it as a victory.`\
+https://www.nytimes.com/2026/06/12/world/middleeast/iran-peace-deal-what-to-know.html
+
+**What the SpaceX I.P.O. Means for OpenAI and Anthropic**\
+`Strong investor interest in SpaceX could be good news for the A.I. rivals, which have signaled that they, too, intend to go public this year.`\
+https://www.nytimes.com/2026/06/12/technology/spacex-ipo-openai-anthropic.html
+
+**Judge Declines to Halt UFC Fight at the White House on Trump’s Birthday**\
+`In a ruling on Friday, Judge Amit P. Mehta wrote that the lawsuit arrived last minute and failed to show how the event irreversibly harmed the individuals who sued.`\
+https://www.nytimes.com/2026/06/12/us/politics/trump-ufc-cage-lawsuit.html
+
+**Live Updates: Elon Musk Becomes World’s First Trillionaire on SpaceX’s First Day of Trading**\
+`Stock in Mr. Musk’s rocket and satellite maker reached upward of $170 per share, up well over 20 percent from its I.P.O. price.`\
+https://www.nytimes.com/live/2026/06/12/business/spacex-ipo-elon-musk
+
 **Review: Taking an Expressionist Class With the Royal Ballet**\
 `Paul Lightfoot and Sol León brought their blend of stretched balletic line and idiosyncratic gesture to London with a new work inspired by daily ballet class exercises.`\
 https://www.nytimes.com/2026/06/12/arts/dance/review-royal-ballet-salle-de-dance-lightfoot-leon.html

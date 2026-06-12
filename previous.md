@@ -1,3 +1,15 @@
+**Charlie Dalin, Who Set a Sailing Record While Battling Cancer, Dies at 42**\
+`Last year, while suffering from an advanced stomach tumor, he won the grueling Vendée Globe race, sailing 24,000 miles in just 64 days.`\
+https://www.nytimes.com/2026/06/12/sports/sailing/charlie-dalin-dead.html
+
+**As Speculation Swirls About the Emerging Iran Deal, Here’s What We Know**\
+`A “memorandum of understanding” between the two sides is under discussion. Both sides are keen to frame it as a victory.`\
+https://www.nytimes.com/2026/06/12/world/middleeast/iran-peace-deal-what-to-know.html
+
+**What the SpaceX I.P.O. Means for OpenAI and Anthropic**\
+`Strong investor interest in SpaceX could be good news for the A.I. rivals, which have signaled that they, too, intend to go public this year.`\
+https://www.nytimes.com/2026/06/12/technology/spacex-ipo-openai-anthropic.html
+
 **Review: Taking an Expressionist Class With the Royal Ballet**\
 `Paul Lightfoot and Sol León brought their blend of stretched balletic line and idiosyncratic gesture to London with a new work inspired by daily ballet class exercises.`\
 https://www.nytimes.com/2026/06/12/arts/dance/review-royal-ballet-salle-de-dance-lightfoot-leon.html
@@ -46,7 +58,7 @@ https://www.nytimes.com/video/business/100000010963634/elon-musk-first-trilliona
 `Muchas de las mujeres que ayudaron a liderar la lucha por los derechos civiles de los latinos dicen que, en silencio, libraban sus propias batallas contra el acoso, la misoginia y las agresiones sexuales dentro de la poderosa Unión de Campesinos.`\
 https://www.nytimes.com/es/2026/06/12/espanol/estados-unidos/cesar-chavez-dolores-huerta-abuso-sexual.html
 
-**Judge Declines to Halt U.F.C. Fight at the White House on Trump’s Birthday**\
+**Judge Declines to Halt UFC Fight at the White House on Trump’s Birthday**\
 `In a ruling on Friday, Judge Amit P. Mehta wrote that the lawsuit arrived last minute and failed to show how the event irreversibly harmed the individuals who sued.`\
 https://www.nytimes.com/2026/06/12/us/politics/trump-ufc-cage-lawsuit.html
 
@@ -158,20 +170,8 @@ https://www.nytimes.com/2026/06/12/arts/music/taylor-swift-songwriters-hall-spee
 `The Washington National Opera, which left the center amid the Trump administration’s takeover, says its efforts to retrieve its endowment and other assets have been blocked.`\
 https://www.nytimes.com/2026/06/12/arts/music/kennedy-center-washington-national-opera-lawsuit-endowment.html
 
-**Joe Negri, Handyman and Music Maestro on ‘Mister Rogers,’ Dies at 99**\
-`An accomplished jazz guitarist, he appeared on more than 300 episodes of the public television show, playing alongside musicians like Wynton Marsalis and Yo-Yo Ma.`\
-https://www.nytimes.com/2026/06/12/arts/music/joe-negri-dead.html
-
-**Book Review: ‘Drayton and Mackenzie,’ by Alexander Starritt**\
-`In “Drayton and Mackenzie,” two young grads navigating the 2008 financial crisis enact a plan they hope will change their fate.`\
-https://www.nytimes.com/2026/06/12/books/review/drayton-and-mackenzie-alexander-starritt.html
-
-**Fact-Check: Trump’s Claims About His Arch, Reflecting Pool Repairs and Other Renovation Projects**\
-`President Trump has made false or exaggerated claims of a Civil War-era push for a triumphal arch, hundreds of millions spent on repairs on the Reflecting Pool, and an absence of working fountains.`\
-https://www.nytimes.com/2026/06/12/us/politics/trump-fact-check-triumphal-arch-reflecting-pool.html
-
-**Live Updates: Elon Musk Becomes World’s First Trillionaire as SpaceX Starts Trading**\
-`Mr. Musk’s rocket and satellite maker opened at $150 per share, up 11 percent from its I.P.O. price, and has been trading at well over 20 percent.`\
+**Live Updates: Elon Musk Becomes World’s First Trillionaire on SpaceX’s First Day of Trading**\
+`Stock in Mr. Musk’s rocket and satellite maker reached upward of $170 per share, up well over 20 percent from its I.P.O. price.`\
 https://www.nytimes.com/live/2026/06/12/business/spacex-ipo-elon-musk
 
 **World Cup Updates: Tournament Could Be a Bonanza for Betting Sites**\
