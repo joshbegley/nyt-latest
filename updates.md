@@ -1,3 +1,91 @@
+**Google Sues to Stop Chinese Cybercrime Group from Using Its A.I.**\
+`In a lawsuit, the tech giant accused the group of using Google’s Gemini system to create hundreds of fake corporate and government websites.`\
+https://www.nytimes.com/2026/06/12/technology/google-lawsuit-china-ai-scams.html
+
+**Bring the Kids and Grab Some Barbecue: A Day at the Ukrainian Drone Races**\
+`Competitions that give soldiers a brief break from the front have a festival-like atmosphere, a mix of potentially deadly weapons and frolicking children.`\
+https://www.nytimes.com/2026/06/12/world/europe/ukraine-drone-races.html
+
+**World Cup Ticket Prices in Mexico City Too Expensive for Most Fans**\
+`The opening game in Mexico City took place amid weeks of protests from groups including teachers’ unions complaining about pay and pensions.`\
+https://www.nytimes.com/2026/06/12/us/world-cup-tickets-expensive-mexico.html
+
+**‘Yes’ Is a Scathing Portrait of Israeli Depravity. Why Are European Leftists Boycotting It?**\
+`The inanity of the leftists who’d censor such a film shouldn’t distract us from the right-wing nightmare it reveals.`\
+https://www.nytimes.com/2026/06/12/opinion/yes-israel-film-boycott.html
+
+**The Pianist Igor Levit Bets Big on Recordings With His Own Label**\
+`Despite woes in the recording industry, Levit announced the founding of No Silence, which will release three albums this fall.`\
+https://www.nytimes.com/2026/06/12/arts/music/igor-levit-no-silence.html
+
+**Neither Peace Nor War: Iran Conflict Leaves World in Dangerous Limbo**\
+`Since announcing a nominal cease-fire two months ago, Iran, Israel and the U.S. have remained locked in low-intensity violence that has become a new normal.`\
+https://www.nytimes.com/2026/06/12/world/middleeast/iran-war-limbo.html
+
+**Steven Spielberg on How to Build Suspense in ‘Disclosure Day’**\
+`The director narrates a scene from his movie that is a continuation, of sorts, of a sequence he filmed for his feature-length debut, “Duel,” in 1971.`\
+https://www.nytimes.com/2026/06/12/movies/steven-spielberg-disclosure-day-clip.html
+
+**Social Security Is Going Broke. Where Is the Outrage?**\
+`We’ve been here before, but never so close.`\
+https://www.nytimes.com/2026/06/12/opinion/social-security-benefits-budget.html
+
+**7 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://www.nytimes.com/2026/06/12/movies/new-movies-this-week-critics.html
+
+**How SpaceX’s IPO Compares With Saudi Aramco, Uber and Others**\
+`The previous record was set over six years ago. But SpaceX, whose stock begins trading on Friday, is on track to raise tens of billions of dollars more.`\
+https://www.nytimes.com/2026/06/12/business/spacex-biggest-ipos-elon-musk.html
+
+**Slayyyter Had One Last Chance for Pop Stardom, and She Nailed It**\
+`After a few attempts that didn’t fully connect, the St. Louis singer was ready to walk away, but not before making a raw album of thrashed pop, “Worst Girl in America.”`\
+https://www.nytimes.com/2026/06/12/arts/music/slayyyter-interview-popcast.html
+
+**Ohio City Worker Union Complains That Goats Are Eating Its Lunch**\
+`A union in Columbus made a formal complaint after the city farmed out brush-clearing duties at a wastewater plant. The competitors? Goats.`\
+https://www.nytimes.com/2026/06/12/us/columbus-ohio-goats-lunch.html
+
+**The World Is Draining Oil Reserves, Raising Pressure for a Peace Deal**\
+`The amount of oil and fuel stored by businesses and governments has fallen sharply since the start of the U.S.-Israeli war against Iran.`\
+https://www.nytimes.com/2026/06/12/business/energy-environment/iran-war-oil-reserves.html
+
+**Democrats, Join the Data Center Resistance**\
+`A.I. is not inevitable.`\
+https://www.nytimes.com/2026/06/12/opinion/data-center-ai-democrats.html
+
+**The Best Books of the 21st Century: Ryan Holiday on ‘The Road’**\
+`The best-selling author joined the “Book Review” podcast to discuss how his relationship to Cormac McCarthy’s novel changed after becoming a father.`\
+https://www.nytimes.com/2026/06/12/podcasts/100-books-ryan-holiday.html
+
+**How ‘The Furious’ Somersaults Through a Wild Action Scene**\
+`The new movie is packed with showstopping action, but one standout sequence has our hero rolling over a pyramid of henchmen. Here’s what it took.`\
+https://www.nytimes.com/2026/06/12/movies/the-furious-action-scene.html
+
+**The Books Times Readers Are Most Excited About This Summer**\
+`Lush historical fiction, gripping thrillers, true crime, laugh-out-loud essays and more: Here are the books you’ve saved most to your reading lists.`\
+https://www.nytimes.com/2026/06/12/books/most-saved-books-summer.html
+
+**Pick Your Favorite $875,000 Home in Montreal**\
+`A duplex in a converted 1899 mansion, a brick rowhouse from 1922, and a loft with floor-to-ceiling windows in Old Montreal.`\
+https://www.nytimes.com/2026/06/12/realestate/montreal-quebec-canada-homes-for-sale.html
+
+**Sheriffs in Maryland Challenge State Limits on Cooperation With ICE**\
+`A lawsuit by a group of 17 county law enforcement officers is another front in the Trump-era fight over local police’s role in immigration enforcement.`\
+https://www.nytimes.com/2026/06/12/us/sheriffs-maryland-immigration-lawsuit.html
+
+**Frisco Mayor’s Race Tests Anti-Muslim Politics in Texas**\
+`A runoff in the Dallas suburb of Frisco is testing whether anti-Muslim rhetoric, prominent in G.O.P. primaries this year, can win over a broader set of voters.`\
+https://www.nytimes.com/2026/06/12/us/frisco-texas-mayor-election-muslim.html
+
+**The New York Times News Quiz, June 12, 2026**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://www.nytimes.com/interactive/2026/06/12/briefing/quiz-world-cup-iran-elections.html
+
+**Making Space for Art on a Sporty Weekend**\
+`Soccer ball sculptures have popped up in New York City for the World Cup ahead of the first game in the area on Saturday, Brazil vs. Morocco.`\
+https://www.nytimes.com/2026/06/12/nyregion/making-space-for-art-on-a-sporty-weekend.html
+
 **SpaceX’s I.P.O. Will Help Fulfill Elon Musk’s Political Vision of America**\
 `The SpaceX I.P.O. will enable its founder to build — and scale — his peculiar vision of society.`\
 https://www.nytimes.com/2026/06/12/opinion/elon-musk-spacex-starbase-texas.html

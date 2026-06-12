@@ -1,3 +1,91 @@
+**Google Sues to Stop Chinese Cybercrime Group from Using Its A.I.**\
+`In a lawsuit, the tech giant accused the group of using Google’s Gemini system to create hundreds of fake corporate and government websites.`\
+https://www.nytimes.com/2026/06/12/technology/google-lawsuit-china-ai-scams.html
+
+**Bring the Kids and Grab Some Barbecue: A Day at the Ukrainian Drone Races**\
+`Competitions that give soldiers a brief break from the front have a festival-like atmosphere, a mix of potentially deadly weapons and frolicking children.`\
+https://www.nytimes.com/2026/06/12/world/europe/ukraine-drone-races.html
+
+**World Cup Ticket Prices in Mexico City Too Expensive for Most Fans**\
+`The opening game in Mexico City took place amid weeks of protests from groups including teachers’ unions complaining about pay and pensions.`\
+https://www.nytimes.com/2026/06/12/us/world-cup-tickets-expensive-mexico.html
+
+**‘Yes’ Is a Scathing Portrait of Israeli Depravity. Why Are European Leftists Boycotting It?**\
+`The inanity of the leftists who’d censor such a film shouldn’t distract us from the right-wing nightmare it reveals.`\
+https://www.nytimes.com/2026/06/12/opinion/yes-israel-film-boycott.html
+
+**The Pianist Igor Levit Bets Big on Recordings With His Own Label**\
+`Despite woes in the recording industry, Levit announced the founding of No Silence, which will release three albums this fall.`\
+https://www.nytimes.com/2026/06/12/arts/music/igor-levit-no-silence.html
+
+**Neither Peace Nor War: Iran Conflict Leaves World in Dangerous Limbo**\
+`Since announcing a nominal cease-fire two months ago, Iran, Israel and the U.S. have remained locked in low-intensity violence that has become a new normal.`\
+https://www.nytimes.com/2026/06/12/world/middleeast/iran-war-limbo.html
+
+**Steven Spielberg on How to Build Suspense in ‘Disclosure Day’**\
+`The director narrates a scene from his movie that is a continuation, of sorts, of a sequence he filmed for his feature-length debut, “Duel,” in 1971.`\
+https://www.nytimes.com/2026/06/12/movies/steven-spielberg-disclosure-day-clip.html
+
+**Social Security Is Going Broke. Where Is the Outrage?**\
+`We’ve been here before, but never so close.`\
+https://www.nytimes.com/2026/06/12/opinion/social-security-benefits-budget.html
+
+**7 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://www.nytimes.com/2026/06/12/movies/new-movies-this-week-critics.html
+
+**How SpaceX’s IPO Compares With Saudi Aramco, Uber and Others**\
+`The previous record was set over six years ago. But SpaceX, whose stock begins trading on Friday, is on track to raise tens of billions of dollars more.`\
+https://www.nytimes.com/2026/06/12/business/spacex-biggest-ipos-elon-musk.html
+
+**Slayyyter Had One Last Chance for Pop Stardom, and She Nailed It**\
+`After a few attempts that didn’t fully connect, the St. Louis singer was ready to walk away, but not before making a raw album of thrashed pop, “Worst Girl in America.”`\
+https://www.nytimes.com/2026/06/12/arts/music/slayyyter-interview-popcast.html
+
+**Ohio City Worker Union Complains That Goats Are Eating Its Lunch**\
+`A union in Columbus made a formal complaint after the city farmed out brush-clearing duties at a wastewater plant. The competitors? Goats.`\
+https://www.nytimes.com/2026/06/12/us/columbus-ohio-goats-lunch.html
+
+**The World Is Draining Oil Reserves, Raising Pressure for a Peace Deal**\
+`The amount of oil and fuel stored by businesses and governments has fallen sharply since the start of the U.S.-Israeli war against Iran.`\
+https://www.nytimes.com/2026/06/12/business/energy-environment/iran-war-oil-reserves.html
+
+**Democrats, Join the Data Center Resistance**\
+`A.I. is not inevitable.`\
+https://www.nytimes.com/2026/06/12/opinion/data-center-ai-democrats.html
+
+**The Best Books of the 21st Century: Ryan Holiday on ‘The Road’**\
+`The best-selling author joined the “Book Review” podcast to discuss how his relationship to Cormac McCarthy’s novel changed after becoming a father.`\
+https://www.nytimes.com/2026/06/12/podcasts/100-books-ryan-holiday.html
+
+**How ‘The Furious’ Somersaults Through a Wild Action Scene**\
+`The new movie is packed with showstopping action, but one standout sequence has our hero rolling over a pyramid of henchmen. Here’s what it took.`\
+https://www.nytimes.com/2026/06/12/movies/the-furious-action-scene.html
+
+**The Books Times Readers Are Most Excited About This Summer**\
+`Lush historical fiction, gripping thrillers, true crime, laugh-out-loud essays and more: Here are the books you’ve saved most to your reading lists.`\
+https://www.nytimes.com/2026/06/12/books/most-saved-books-summer.html
+
+**Pick Your Favorite $875,000 Home in Montreal**\
+`A duplex in a converted 1899 mansion, a brick rowhouse from 1922, and a loft with floor-to-ceiling windows in Old Montreal.`\
+https://www.nytimes.com/2026/06/12/realestate/montreal-quebec-canada-homes-for-sale.html
+
+**Sheriffs in Maryland Challenge State Limits on Cooperation With ICE**\
+`A lawsuit by a group of 17 county law enforcement officers is another front in the Trump-era fight over local police’s role in immigration enforcement.`\
+https://www.nytimes.com/2026/06/12/us/sheriffs-maryland-immigration-lawsuit.html
+
+**Frisco Mayor’s Race Tests Anti-Muslim Politics in Texas**\
+`A runoff in the Dallas suburb of Frisco is testing whether anti-Muslim rhetoric, prominent in G.O.P. primaries this year, can win over a broader set of voters.`\
+https://www.nytimes.com/2026/06/12/us/frisco-texas-mayor-election-muslim.html
+
+**The New York Times News Quiz, June 12, 2026**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://www.nytimes.com/interactive/2026/06/12/briefing/quiz-world-cup-iran-elections.html
+
+**Making Space for Art on a Sporty Weekend**\
+`Soccer ball sculptures have popped up in New York City for the World Cup ahead of the first game in the area on Saturday, Brazil vs. Morocco.`\
+https://www.nytimes.com/2026/06/12/nyregion/making-space-for-art-on-a-sporty-weekend.html
+
 **SpaceX’s I.P.O. Will Help Fulfill Elon Musk’s Political Vision of America**\
 `The SpaceX I.P.O. will enable its founder to build — and scale — his peculiar vision of society.`\
 https://www.nytimes.com/2026/06/12/opinion/elon-musk-spacex-starbase-texas.html
@@ -109,92 +197,4 @@ https://www.nytimes.com/es/2026/06/12/espanol/resena-el-dia-de-la-revelacion-spi
 **Cuando la IA resuelve en días lo que los matemáticos tardan años**\
 `Una empresa gastó 100.000 dólares en completar en cinco días una demostración que un equipo académico llevaba dos años construyendo. El episodio desató un pánico silencioso en los departamentos de matemáticas del mundo.`\
 https://www.nytimes.com/es/2026/06/12/espanol/ciencia-y-tecnologia/ia-resuelve-matematicas.html
-
-**Ciclo de violencia en el Reino Unido: ataques de odio, agitación de la derecha y disturbios**\
-`Dos apuñalamientos han incitado protestas violentas en Inglaterra e Irlanda del Norte en los últimos 10 días, avivadas en internet por voces de la derecha. Es un patrón sombrío en el Reino Unido y en toda Europa.`\
-https://www.nytimes.com/es/2026/06/12/espanol/mundo/reino-unido-disturbios.html
-
-**‘Operation Pushkin’: Paris Trial Puts Spotlight on Rare-Book Heists**\
-`One by one, valuable works by Russian masters like Pushkin and Gogol were disappearing from libraries across Europe. Now six defendants are being prosecuted.`\
-https://www.nytimes.com/2026/06/12/world/europe/russian-book-theft-trial-paris.html
-
-**U.S. Plan Is Said to Pull a Third of Fighter Jets It Provides NATO for Europe**\
-`The plan, outlined by officials and in a written document, provides rare clarity about the extent to which the Trump administration intends to reduce its commitment to NATO.`\
-https://www.nytimes.com/2026/06/12/world/europe/us-nato-cuts-drawdown-jets.html
-
-**Quote of the Day: A Sprint, a Leap and a Tap: Anunoby’s Moxie Turns Magical**\
-`Quotation of the Day for Friday, June 12, 2026.`\
-https://www.nytimes.com/2026/06/12/pageoneplus/quote-of-the-day-a-sprint-a-leap-and-a-tap-anunobys-moxie-turns-magical.html
-
-**Corrections: June 12, 2026**\
-`Corrections that appeared in print on Friday, June 12, 2026.`\
-https://www.nytimes.com/2026/06/12/pageoneplus/corrections-june-12-2026.html
-
-**How to Eat Pizza with a Male Model**\
-`Order slices, fold them in half, flirt with male model, hope it makes your boyfriend jealous.`\
-https://www.nytimes.com/2026/06/12/style/modern-love-how-to-eat-pizza-with-a-male-model.html
-
-**A Teen Summer Romance and the Journal He Kept for Her**\
-`When Danit Hetsroni and Joshua Raikin met at summer camp, both had already navigated challenges that forced them to grow up quickly.`\
-https://www.nytimes.com/2026/06/12/style/danit-hetsroni-joshua-raikin-wedding.html
-
-**A Veterinarian, a Life Coach and a Highly Persuasive Pair of Donkeys**\
-`Dr. Evelyn Ivey knew Thomas Rotelli had the qualities she wanted in a mate, but watching how animals gravitated to him clinched it.`\
-https://www.nytimes.com/2026/06/12/style/evelyn-ivey-thomas-rotelli-wedding.html
-
-**Matthew MacNabb and Laura Nolan of ‘Dancing with the Stars Ireland’ Marry**\
-`Laura Nolan developed a crush on Matthew MacNabb when he was on “Love Island UK.” Then they became dance partners on another show.`\
-https://www.nytimes.com/2026/06/12/style/laura-nolan-matthew-macnabb-wedding.html
-
-**‘Darling, I Love You, but Give Me Park Avenue’**\
-`Lexie Riegelhaupt and Gabe Greenberg sang the “Green Acres” theme song as she left Park Avenue for his home in Carroll Gardens, Brooklyn.`\
-https://www.nytimes.com/2026/06/12/style/lexie-riegelhaupt-gabe-greenberg-wedding.html
-
-**A Celebration and a ‘Love Ritual’ Shaped by Their Community**\
-`At the wedding of Danny Mefford and Yazmany Arboleda, guests made various contributions, including decorating the church and forming a choir.`\
-https://www.nytimes.com/2026/06/12/style/yazmany-arbodela-danny-mefford-wedding.html
-
-**Signet Rings for Now**\
-`These days, the classic jewelry piece conveys personal style at least as much as it does lineage.`\
-https://www.nytimes.com/2026/06/11/t-magazine/fashion/signet-rings-for-now.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/t-magazine/fashion/100000010961150/11tmag-signet.html
-
-**Oil Falls, Stocks Rise as Trump Signals Iran Peace Deal Takes Shape**\
-`Oil prices retreated and stocks rallied after President Trump called off plans for another day of strikes on Iran, saying that a peace deal could be within reach.`\
-https://www.nytimes.com/2026/06/11/business/oil-gas-price-iran.html
-
-**Drones Flown Over North Korea Were Part of Martial Law Plot by Former South Korean President**\
-`A court ruled that Yoon Suk Yeol, the impeached former president, had sought to stir up instability to justify his bid for authoritarian rule in 2024.`\
-https://www.nytimes.com/2026/06/11/world/asia/north-korea-drones-martial-law.html
-
-**China Has Arrested U.S. Scholar Who Studies Myanmar Politics**\
-`The arrest of U Min Zin, a graduate student at U.C. Berkeley and founder of a research group in Myanmar, took place soon after President Trump met with Xi Jinping in China.`\
-https://www.nytimes.com/2026/06/11/us/politics/china-arrests-us-scholar.html
-
-**The Four Suits You Should Have in Your Closet**\
-`Suits are back, and no matter the season or occasion, these styles are guaranteed to carry you through.`\
-https://www.nytimes.com/2026/06/11/t-magazine/the-four-suits-you-should-have.html
-
-**Princess Bha of Thailand, Second in Line to the Throne, Dies at 47**\
-`Ever since she collapsed in a park three and a half years ago, speculation has swirled in Thailand about who could become the next monarch.`\
-https://www.nytimes.com/2026/06/11/world/asia/thai-princess-bajrakitiyabha-bha-dead-coma.html
-
-**Review: ‘Romeo & Juliet’ Find Too Little Love in the Park**\
-`For the Public Theater’s Shakespeare in the Park, the director Saheem Ali presents a strangely low-energy version of the tragedy.`\
-https://www.nytimes.com/2026/06/11/theater/review-romeo-juliet-shakespeare-in-the-park.html
-
-**Can Democrats Overcome G.O.P. Gerrymandering?**\
-`Our chief political analyst, Nate Cohn, who writes The Tilt newsletter, looks at the Republicans’ advantage in the House of Representatives after partisan redistricting. To win the House, how much of the popular vote would Democrats need to win?`\
-https://www.nytimes.com/video/us/elections/100000010942415/can-democrats-overcome-gop-gerrymandering.html
-
-**Trump Suspends Funding for Los Angeles Homeless Agency**\
-`The Trump administration cited misspending among the reasons for blocking funds to the Los Angeles Homeless Services Authority. Mayor Karen Bass warned that “people will lose their lives.”`\
-https://www.nytimes.com/2026/06/11/us/trump-los-angeles-homeless.html
-
-**NYT Crossword Answers for June 12, 2026**\
-`Amanda Winters opens our solving weekend.`\
-https://www.nytimes.com/2026/06/11/crosswords/daily-puzzle-2026-06-12.html
 
