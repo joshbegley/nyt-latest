@@ -1,3 +1,7 @@
+**Book Review: ‘Drayton and Mackenzie,’ by Alexander Starritt**\
+`In “Drayton and Mackenzie,” two young grads navigating the 2008 financial crisis enact a plan they hope will change their fate.`\
+https://www.nytimes.com/2026/06/12/books/review/drayton-and-mackenzie-alexander-starritt.html
+
 **Fact-Check: Trump’s Claims About His Arch, Reflecting Pool Repairs and Other Renovation Projects**\
 `President Trump has made false or exaggerated claims of a Civil War-era push for a triumphal arch, hundreds of millions spent on repairs on the Reflecting Pool, and an absence of working fountains.`\
 https://www.nytimes.com/2026/06/12/us/politics/trump-fact-check-triumphal-arch-reflecting-pool.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/12/business/energy-environment/iran-war-oil-rese
 **This Could Be the Winning Issue for Democrats**\
 `A.I. is not inevitable.`\
 https://www.nytimes.com/2026/06/12/opinion/data-center-ai-democrats.html
-
-**The Best Books of the 21st Century: Ryan Holiday on ‘The Road’**\
-`The best-selling author joined the “Book Review” podcast to discuss how his relationship to Cormac McCarthy’s novel changed after becoming a father.`\
-https://www.nytimes.com/2026/06/12/podcasts/100-books-ryan-holiday.html
 

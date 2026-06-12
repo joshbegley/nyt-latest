@@ -1,3 +1,11 @@
+**Fact-Check: Trump’s Claims About His Arch, Reflecting Pool Repairs and Other Renovation Projects**\
+`President Trump has made false or exaggerated claims of a Civil War-era push for a triumphal arch, hundreds of millions spent on repairs on the Reflecting Pool, and an absence of working fountains.`\
+https://www.nytimes.com/2026/06/12/us/politics/trump-fact-check-triumphal-arch-reflecting-pool.html
+
+**They Bought a Famous Puzzle in Cryptography. Now They’re Opening It Up.**\
+`A San Francisco company paid nearly $1 million for the solution to an unsolved code in Kryptos, a sculpture on the C.I.A. grounds. Soon it will become an online challenge.`\
+https://www.nytimes.com/2026/06/12/science/kryptos-sale-cryptography.html
+
 **5 Ingredients for a Healthy Life**\
 `Living a good life doesn’t have to be complicated, Christian Angermayer, founder of the Enhanced Games, tells the columnist Ross Douthat on “Interesting Times,” and shares five basics he believes are crucial for optimizing your time on earth.`\
 https://www.nytimes.com/video/opinion/100000010960925/5-ingredients-for-a-healthy-life.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/12/opinion/data-center-ai-democrats.html
 **The Best Books of the 21st Century: Ryan Holiday on ‘The Road’**\
 `The best-selling author joined the “Book Review” podcast to discuss how his relationship to Cormac McCarthy’s novel changed after becoming a father.`\
 https://www.nytimes.com/2026/06/12/podcasts/100-books-ryan-holiday.html
-
-**How ‘The Furious’ Somersaults Through a Wild Action Scene**\
-`The new movie is packed with showstopping action, but one standout sequence has our hero rolling over a pyramid of henchmen. Here’s what it took.`\
-https://www.nytimes.com/2026/06/12/movies/the-furious-action-scene.html
-
-**The Books Times Readers Are Most Excited About This Summer**\
-`Lush historical fiction, gripping thrillers, true crime, laugh-out-loud essays and more: Here are the books you’ve saved most to your reading lists.`\
-https://www.nytimes.com/2026/06/12/books/most-saved-books-summer.html
 
