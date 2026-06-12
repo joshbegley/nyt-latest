@@ -1,3 +1,7 @@
+**Days of Dangerous Heat Is Expected in the Pacific Northwest**\
+`Portland could climb near 100 degrees this weekend, forecasters said. Little relief is expected until next week.`\
+https://www.nytimes.com/2026/06/12/weather/portland-seattle-heat-wave.html
+
 **James Blood Ulmer, Guitarist Who Smashed Through Genres, Dies at 86**\
 `A protégé of the saxophonist Ornette Coleman, he borrowed from and greatly influenced styles like funk, punk, jazz and the blues.`\
 https://www.nytimes.com/2026/06/12/arts/music/james-blood-ulmer-dead.html
