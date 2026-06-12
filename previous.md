@@ -1,3 +1,7 @@
+**The Tug-of-War for Control of the House in 2026’s Midterm Elections**\
+`While public sentiment has drifted in Democrats’ favor in many of the midterm House races, Republicans have strong-armed a structural advantage: redrawing congressional maps.`\
+https://www.nytimes.com/interactive/2026/06/11/us/politics/midterms-elections-congress-democrats-republicans-redistricting.html
+
 **‘Obsession’ and the Caricature of the ‘Crazy Girlfriend’**\
 `Angelica Jade Bastién, a pop culture critic, joins Wesley Morris on “Cannonball” to talk about how women were portrayed in the hit horror movie “Obsession.”`\
 https://www.nytimes.com/video/podcasts/100000010954853/obsession-and-the-caricature-of-the-crazy-girlfriend.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/11/us/2026-world-cup-hidden-fifa-costs-a-usmnt-p
 **Postal Service Issues Proposal to Block Mail Ballots in States That Don’t Turn Over Data**\
 `Democrats and voting-rights groups have challenged the proposed rule as a harmful federal intrusion that could affect millions of voters who cast their ballots by mail.`\
 https://www.nytimes.com/2026/06/11/us/politics/usps-mail-voting-democratic-resistance.html
-
-**13 Afghan Civilians Killed in Airstrikes on Pakistan Border, U.N. Says**\
-`Pakistan said its airstrikes targeted militant camps. The United Nations confirmed reports by the Taliban government that mostly women and children were killed.`\
-https://www.nytimes.com/2026/06/11/world/asia/afghanistan-pakistan-airstrikes-civilians.html
 

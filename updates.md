@@ -1,3 +1,7 @@
+**The Tug-of-War for Control of the House in 2026’s Midterm Elections**\
+`While public sentiment has drifted in Democrats’ favor in many of the midterm House races, Republicans have strong-armed a structural advantage: redrawing congressional maps.`\
+https://www.nytimes.com/interactive/2026/06/11/us/politics/midterms-elections-congress-democrats-republicans-redistricting.html
+
 **‘Obsession’ and the Caricature of the ‘Crazy Girlfriend’**\
 `Angelica Jade Bastién, a pop culture critic, joins Wesley Morris on “Cannonball” to talk about how women were portrayed in the hit horror movie “Obsession.”`\
 https://www.nytimes.com/video/podcasts/100000010954853/obsession-and-the-caricature-of-the-crazy-girlfriend.html
