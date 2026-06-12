@@ -1,3 +1,7 @@
+**U.F.C. at the White House**\
+`How Dana White and President Trump cashed in.`\
+https://www.nytimes.com/2026/06/12/podcasts/ufc-at-the-white-house.html
+
 **Storms Could Disrupt U.F.C. Event at the White House on Sunday**\
 `Forecasters said the weather around Washington is likely to be hot and stormy.`\
 https://www.nytimes.com/2026/06/12/weather/trump-ufc-fight-storms-heat.html

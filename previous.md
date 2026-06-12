@@ -1,3 +1,7 @@
+**U.F.C. at the White House**\
+`How Dana White and President Trump cashed in.`\
+https://www.nytimes.com/2026/06/12/podcasts/ufc-at-the-white-house.html
+
 **Storms Could Disrupt U.F.C. Event at the White House on Sunday**\
 `Forecasters said the weather around Washington is likely to be hot and stormy.`\
 https://www.nytimes.com/2026/06/12/weather/trump-ufc-fight-storms-heat.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/06/12/espanol/negocios/robots-china.html
 **Por qué Spielberg sigue siendo el director más humano**\
 `El director más taquillero de la historia estrena su película número 35 y sigue convencido de que nada reemplaza la catarsis compartida de una sala llena.`\
 https://www.nytimes.com/es/2026/06/12/espanol/cultura/steven-spielberg-pelicula-dia-de-la-revelacion.html
-
-**Word of the Day: lien**\
-`This word has appeared in 29 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/06/12/learning/word-of-the-day-lien.html
 
