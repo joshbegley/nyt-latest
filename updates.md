@@ -1,3 +1,7 @@
+**Cómo dos directores de la generación Z formados en YouTube conquistaron el cine de terror**\
+`‘Backrooms: sin salida’ y ‘Obsesión’ están reescribiendo las reglas de Hollywood. Dos críticos del Times analizan el fenómeno.`\
+https://www.nytimes.com/es/2026/06/12/espanol/cultura/backrooms-obsesion-directores-generacion-z-youtube.html
+
 **The A.I. Proxy Fight Roiling the Race for a New York House Seat**\
 `Groups tied to OpenAI, Anthropic and other industry players have spent $16 million trying to pick the next member of Congress from Manhattan.`\
 https://www.nytimes.com/2026/06/12/nyregion/ai-money-bores-lasher-primary.html
