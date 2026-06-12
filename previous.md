@@ -1,3 +1,15 @@
+**Man Is Barricaded in Texas Building After a Fatal Shooting**\
+`The man is “contained” in a building near the highway, with dozens of law enforcement officers on the scene, officials said. Eleven people were also injured.`\
+https://www.nytimes.com/2026/06/12/us/midland-texas-shooting-active-shooter.html
+
+**The Philharmonic and the Met Engage in a Battle of the Bands**\
+`Bruckner’s Eighth Symphony was performed in the same week by two of Lincoln Center’s orchestras. Was it coincidence or bad communication?`\
+https://www.nytimes.com/2026/06/12/arts/music/bruckner-eight-ny-phil-met-orchestra.html
+
+**Elon Musk Becomes the World’s First Trillionaire**\
+`With SpaceX shares soaring on their first day of trading, the world’s richest person crossed another milestone — one with 13 digits.`\
+https://www.nytimes.com/2026/06/12/technology/elon-musk-trillionaire.html
+
 **A Kennedy Center Drama: Whether Trump’s Name Stays**\
 `A judge said the president’s name must be removed by Friday. As a last-ditch legal battle unfolds, many eyes are on the marble facade.`\
 https://www.nytimes.com/2026/06/12/arts/music/kennedy-center-trump-name.html
@@ -10,7 +22,7 @@ https://www.nytimes.com/2026/06/12/science/neil-shubin-national-academcy-science
 `SpaceX dijo que vendería más de 555 millones de acciones a 135 dólares cada una. Con ello, la empresa de Elon Musk batiría el récord de la oferta pública inicial establecido antes por Saudi Aramco.`\
 https://www.nytimes.com/es/2026/06/12/espanol/negocios/spacex-bolsa-elon-musk.html
 
-**SpaceX Rises 11% in Largest I.P.O. Ever**\
+**SpaceX Stock Rises 11% in Largest I.P.O. Ever**\
 `The stock market debut of Elon Musk’s rocket company paves the way for a wave of mega offerings that are coming from OpenAI and Anthropic.`\
 https://www.nytimes.com/2026/06/12/technology/spacex-ipo-elon-musk.html
 
@@ -114,7 +126,7 @@ https://www.nytimes.com/2026/06/12/world/asia/trump-anime-manga-japan-memes.html
 `Four decades after the conceptual artist Christo draped the Pont Neuf with fabric, JR, a French street artist, offers his own trick of the eye.`\
 https://www.nytimes.com/2026/06/12/arts/design/pont-neuf-jj.html
 
-**Live Updates: Minutes Into SpaceX Trading, Elon Musk Becomes World’s First Trillionaire**\
+**Live Updates: Elon Musk Becomes World’s First Trillionaire as SpaceX Starts Trading**\
 `Mr. Musk’s rocket and satellite maker opened at $150 per share, up 11 percent from its I.P.O. price.`\
 https://www.nytimes.com/live/2026/06/12/business/spacex-ipo-elon-musk
 
@@ -173,18 +185,6 @@ https://www.nytimes.com/2026/06/12/podcasts/the-daily/1979-us-iran-allies-enemie
 **What the SpaceX I.P.O. Means for You, and a Giant Act of Vandalism in D.C.**\
 `Plus, the Friday news quiz.`\
 https://www.nytimes.com/2026/06/12/podcasts/the-headlines/spacex-ipo-washington-vandalism.html
-
-**NYT Connections Answers for June 13, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, June 13, 2026.`\
-https://www.nytimes.com/2026/06/12/crosswords/connections-companion-1098.html
-
-**Today’s Wordle Hints for June 13, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, June 13, 2026.`\
-https://www.nytimes.com/2026/06/12/crosswords/wordle-review-1820.html
-
-**NYT Strands Hints for June 13, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, June 13, 2026.`\
-https://www.nytimes.com/2026/06/12/crosswords/strands-sidekick-832.html
 
 **World Cup Updates: Tournament Could Be a Bonanza for Betting Sites**\
 `(No description)`\

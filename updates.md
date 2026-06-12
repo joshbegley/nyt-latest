@@ -1,3 +1,23 @@
+**Man Is Barricaded in Texas Building After a Fatal Shooting**\
+`The man is “contained” in a building near the highway, with dozens of law enforcement officers on the scene, officials said. Eleven people were also injured.`\
+https://www.nytimes.com/2026/06/12/us/midland-texas-shooting-active-shooter.html
+
+**The Philharmonic and the Met Engage in a Battle of the Bands**\
+`Bruckner’s Eighth Symphony was performed in the same week by two of Lincoln Center’s orchestras. Was it coincidence or bad communication?`\
+https://www.nytimes.com/2026/06/12/arts/music/bruckner-eight-ny-phil-met-orchestra.html
+
+**Elon Musk Becomes the World’s First Trillionaire**\
+`With SpaceX shares soaring on their first day of trading, the world’s richest person crossed another milestone — one with 13 digits.`\
+https://www.nytimes.com/2026/06/12/technology/elon-musk-trillionaire.html
+
+**SpaceX Stock Rises 11% in Largest I.P.O. Ever**\
+`The stock market debut of Elon Musk’s rocket company paves the way for a wave of mega offerings that are coming from OpenAI and Anthropic.`\
+https://www.nytimes.com/2026/06/12/technology/spacex-ipo-elon-musk.html
+
+**Live Updates: Elon Musk Becomes World’s First Trillionaire as SpaceX Starts Trading**\
+`Mr. Musk’s rocket and satellite maker opened at $150 per share, up 11 percent from its I.P.O. price.`\
+https://www.nytimes.com/live/2026/06/12/business/spacex-ipo-elon-musk
+
 **A Kennedy Center Drama: Whether Trump’s Name Stays**\
 `A judge said the president’s name must be removed by Friday. As a last-ditch legal battle unfolds, many eyes are on the marble facade.`\
 https://www.nytimes.com/2026/06/12/arts/music/kennedy-center-trump-name.html
