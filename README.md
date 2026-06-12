@@ -1,3 +1,15 @@
+**How Much SpaceX Are You About to Own?**\
+`If you have index funds — such as in a 401(k) — they may soon include shares of the mega company. Here’s a rough calculation.`\
+https://www.nytimes.com/2026/06/12/upshot/spacex-stock-ipo.html
+
+**Elon Musk Is the World’s First Trillionaire After SpaceX’s Historic Debut**\
+`SpaceX opened at $150 per share on Friday, then shot up to $165 within with the first 30 minutes of trading, making Elon Musk the world’s first trillionaire.`\
+https://www.nytimes.com/video/business/100000010963634/elon-musk-first-trillionaire-spacex.html
+
+**En el sindicato de Cesar Chavez, las mujeres solían trabajar con miedo**\
+`Muchas de las mujeres que ayudaron a liderar la lucha por los derechos civiles de los latinos dicen que, en silencio, libraban sus propias batallas contra el acoso, la misoginia y las agresiones sexuales dentro de la poderosa Unión de Campesinos.`\
+https://www.nytimes.com/es/2026/06/12/espanol/estados-unidos/cesar-chavez-dolores-huerta-abuso-sexual.html
+
 **Judge Declines to Halt U.F.C. Fight at the White House on Trump’s Birthday**\
 `In a ruling on Friday, Judge Amit P. Mehta wrote that the lawsuit arrived last minute and failed to show how the event irreversibly harmed the individuals who sued.`\
 https://www.nytimes.com/2026/06/12/us/politics/trump-ufc-cage-lawsuit.html
@@ -169,18 +181,6 @@ https://www.nytimes.com/2026/06/12/arts/design/pont-neuf-jj.html
 **Live Updates: Elon Musk Becomes World’s First Trillionaire as SpaceX Starts Trading**\
 `Mr. Musk’s rocket and satellite maker opened at $150 per share, up 11 percent from its I.P.O. price, and then shot to well over 20 percent.`\
 https://www.nytimes.com/live/2026/06/12/business/spacex-ipo-elon-musk
-
-**Americans Aren’t Money Savvy, and They’re Only Getting Worse**\
-`Researchers say people with poor understanding of basic finances often make bad decisions on money matters.`\
-https://www.nytimes.com/2026/06/12/your-money/americans-financial-knowledge.html
-
-**Summer Reading Contest, Week 2: What Got Your Attention in The Times This Week?**\
-`To participate, submit your response here by June 19 at 9 a.m. Eastern. This week’s winners will be announced by July 1.`\
-https://www.nytimes.com/2026/06/12/learning/summer-reading-contest-week-2-what-got-your-attention-in-the-times-this-week.html
-
-**Anti-Immigrant Riots after Belfast Stabbing Leave City on Edge**\
-`In two nights of violence in Northern Ireland after a brutal stabbing, people were targeted because of their skin color, the authorities said.`\
-https://www.nytimes.com/2026/06/12/world/europe/belfast-stabbing-riots-anti-immigrant.html
 
 **World Cup Updates: Tournament Could Be a Bonanza for Betting Sites**\
 `(No description)`\
