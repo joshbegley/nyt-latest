@@ -1,3 +1,7 @@
+**Influential Artist David Hockney Dies at Age 88**\
+`The artist David Hockney, 88, died at his home in London on Thursday. Mr. Hockney’s brightly colored paintings depicting California defied the mid-20th century’s dominant abstract schools and drew attention to figurative art.`\
+https://www.nytimes.com/video/arts/100000010963048/david-hockney-death-artist.html
+
 **La Iglesia española espera que la visita del papa León atraiga a los jóvenes al catolicismo**\
 `La visita de León XIV a España, que terminó el viernes, ha despertado entre los líderes católicos la esperanza de un renacimiento espiritual.`\
 https://www.nytimes.com/es/2026/06/12/espanol/mundo/espana-papa-leon.html

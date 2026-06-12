@@ -1,3 +1,7 @@
+**Tahini and Chocolate Chunk Cake**\
+`In this cake, developed by the NYT Cooking contributor Samantha Seneviratne, tahini flavors a one-bowl yellow cake, giving it a pillowy texture and nutty flavor. Swirled with chocolate, it’s reminiscent of your favorite halvah candy.`\
+https://www.nytimes.com/video/dining/100000010963068/tahini-and-chocolate-chunk-cake.html
+
 **Influential Artist David Hockney Dies at Age 88**\
 `The artist David Hockney, 88, died at his home in London on Thursday. Mr. Hockney’s brightly colored paintings depicting California defied the mid-20th century’s dominant abstract schools and drew attention to figurative art.`\
 https://www.nytimes.com/video/arts/100000010963048/david-hockney-death-artist.html
@@ -169,10 +173,6 @@ https://www.nytimes.com/2026/06/12/us/politics/trump-ufc-cage-lawsuit.html
 **Trump’s Arch Would Mar Hallowed Ground**\
 `Readers respond to President Trump’s efforts to remake the capital. Also: The Knicks; a plan for Democrats; U.S. political flaws; voting in person.`\
 https://www.nytimes.com/2026/06/12/opinion/trump-arch-arlington.html
-
-**About 20 New Billionaires Could Be Minted by 3 Mega-I.P.O.s**\
-`Anthropic and OpenAI could join SpaceX with their own initial public offerings, setting many employees up to become millionaires or billionaires.`\
-https://www.nytimes.com/2026/06/12/business/economy/spacex-openai-anthropic-billionaires-ipos.html
 
 **Elon Musk Becomes World’s First Trillionaire on SpaceX’s First Day of Trading**\
 `Stock in Mr. Musk’s rocket and satellite maker closed just above $161, up more than 19 percent from its I.P.O. price.`\
