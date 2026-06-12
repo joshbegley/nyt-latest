@@ -1,4 +1,4 @@
-**Anti-Immigrant Riots Leave Belfast on Edge: ‘Everyone Is Afraid’**\
+**Anti-Immigrant Riots after Belfast Stabbing Leave City on Edge**\
 `In two nights of violence in Northern Ireland after a brutal stabbing, people were targeted because of their skin color, the authorities said.`\
 https://www.nytimes.com/2026/06/12/world/europe/belfast-stabbing-riots-anti-immigrant.html
 
