@@ -1,3 +1,11 @@
+**Seth Rogen Knows the Secret to a Good Marriage — and Being Rich in Hollywood**\
+`Lulu Garcia-Navarro speaks with Seth Rogen about his early start in comedy and the prolific Hollywood career that followed.`\
+https://www.nytimes.com/video/podcasts/100000010963471/seth-rogen-knows-the-secret-to-a-good-marriage-and-being-rich-in-hollywood.html
+
+**Blake Lively Awarded Legal Fees in Ruling After Justin Baldoni Settlement**\
+`The size of the award remains to be determined. It only involves the legal fees associated with part of her court battle with Mr. Baldoni, with whom she made a film.`\
+https://www.nytimes.com/2026/06/12/movies/blake-lively-legal-fees-ruling-justin-baldoni-settlement.html
+
 **Federal Agents Search Voting Rights Group in Ohio**\
 `It was not immediately clear what the investigators were looking for, but a board member with a progressive group said members had been served with search warrants.`\
 https://www.nytimes.com/2026/06/12/us/politics/federal-search-voting-rights-group-ohio.html
