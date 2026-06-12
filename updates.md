@@ -1,3 +1,7 @@
+**Taylor Swift Inducted Into the Songwriters Hall of Fame**\
+`At 36, Taylor Swift became the youngest woman ever inducted into the Songwriters Hall of Fame on Thursday.`\
+https://www.nytimes.com/video/arts/music/100000010963344/taylor-swift-songwriters-hall-of-fame.html
+
 **Charlie Dalin, Who Set a Sailing Record While Battling Cancer, Dies at 42**\
 `Last year, while suffering from an advanced stomach tumor, he won the grueling Vendée Globe race, sailing 24,000 miles in just 64 days.`\
 https://www.nytimes.com/2026/06/12/sports/sailing/charlie-dalin-dead.html

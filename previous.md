@@ -15,7 +15,7 @@ https://www.nytimes.com/2026/06/12/technology/spacex-ipo-openai-anthropic.html
 https://www.nytimes.com/2026/06/12/arts/dance/review-royal-ballet-salle-de-dance-lightfoot-leon.html
 
 **Taylor Swift Inducted Into the Songwriters Hall of Fame**\
-`At 36, Taylor Swift became the youngest female ever inducted into the Songwriters Hall of Fame on Thursday.`\
+`At 36, Taylor Swift became the youngest woman ever inducted into the Songwriters Hall of Fame on Thursday.`\
 https://www.nytimes.com/video/arts/music/100000010963344/taylor-swift-songwriters-hall-of-fame.html
 
 **Spain’s Church Hopes Pope Trip Will Stem Secular Tide**\
