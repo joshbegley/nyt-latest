@@ -1,3 +1,7 @@
+**Anti-Immigrant Riots Leave Belfast on Edge: ‘Everyone Is Afraid’**\
+`In two nights of violence in Northern Ireland after a brutal stabbing, people were targeted because of their skin color, the authorities said.`\
+https://www.nytimes.com/2026/06/12/world/europe/belfast-stabbing-riots-anti-immigrant.html
+
 **The Consequences of SpaceX’s Trillion-Dollar I.P.O.**\
 `SpaceX’s trading debut is expected to smash records. Wall Street is watching to see what else it disrupts.`\
 https://www.nytimes.com/2026/06/12/business/dealbook/musks-spacex-ipo-playbook.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/12/movies/the-gas-station-attendant-review.html
 **ICE Wants Local Police to Enforce Immigration Law. These Officers Signed Up.**\
 `The Trump administration has enlisted hundreds of state and local law enforcement agencies to support its mass deportation campaign.`\
 https://www.nytimes.com/interactive/2026/06/12/us/politics/ice-local-police-immigration-287g.html
-
-**Book Review: ‘Rialto,’ by Kate Milford, and ‘Fatal Glitch: Camp Zero,’ by Erin Entrada Kelly and Eliot Schrefer**\
-`Kate Milford’s cozy mystery is set at an abandoned amusement park, while Erin Entrada Kelly and Eliot Schrefer’s horror satire unfolds at a malevolent sleepaway camp.`\
-https://www.nytimes.com/2026/06/12/books/review/rialto-kate-milford-fatal-glitch-camp-zero-erin-entrada-kelly-eliot-schrefer.html
 
