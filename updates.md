@@ -1,3 +1,15 @@
+**China Has Arrested U.S. Scholar Who Studies Myanmar Politics**\
+`The arrest of U Min Zin, a graduate student at U.C. Berkeley and founder of a research group in Myanmar, took place soon after President Trump met with Xi Jinping in China.`\
+https://www.nytimes.com/2026/06/11/us/politics/china-arrests-us-scholar.html
+
+**The Four Suits You Should Have in Your Closet**\
+`Suits are back, and no matter the season or occasion, these styles are guaranteed to carry you through.`\
+https://www.nytimes.com/2026/06/11/t-magazine/the-four-suits-you-should-have.html
+
+**Princess Bha of Thailand, Second in Line to the Throne, Dies at 47**\
+`Ever since she collapsed in a park three and a half years ago, speculation has swirled in Thailand about who could become the next monarch.`\
+https://www.nytimes.com/2026/06/11/world/asia/thai-princess-bajrakitiyabha-bha-dead-coma.html
+
 **Princess Bha of Thailand, Second in Line to the Throne, Dies at 47**\
 `Ever since she collapsed in a park three and a half years ago, speculation has swirled in Thailand about who could become the next monarch.`\
 https://www.nytimes.com/2026/06/11/world/asia/thai-princess-bha-dead.html

@@ -1,6 +1,14 @@
+**China Has Arrested U.S. Scholar Who Studies Myanmar Politics**\
+`The arrest of U Min Zin, a graduate student at U.C. Berkeley and founder of a research group in Myanmar, took place soon after President Trump met with Xi Jinping in China.`\
+https://www.nytimes.com/2026/06/11/us/politics/china-arrests-us-scholar.html
+
+**The Four Suits You Should Have in Your Closet**\
+`Suits are back, and no matter the season or occasion, these styles are guaranteed to carry you through.`\
+https://www.nytimes.com/2026/06/11/t-magazine/the-four-suits-you-should-have.html
+
 **Princess Bha of Thailand, Second in Line to the Throne, Dies at 47**\
 `Ever since she collapsed in a park three and a half years ago, speculation has swirled in Thailand about who could become the next monarch.`\
-https://www.nytimes.com/2026/06/11/world/asia/thai-princess-bha-dead.html
+https://www.nytimes.com/2026/06/11/world/asia/thai-princess-bajrakitiyabha-bha-dead-coma.html
 
 **Review: ‘Romeo & Juliet’ Find Too Little Love in the Park**\
 `For the Public Theater’s Shakespeare in the Park, the director Saheem Ali presents a strangely low-energy version of the tragedy.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/podcasts/100000010961733/slayyyter-sees-no-use-for
 **U.S. Blocks Deal by Florida-based Vanguard Energy to Supply Fuel to Cuba**\
 `The deal to ship 250,000 barrels of fuel to Cuba could have eased an energy crisis. But the Trump administration says Vanguard Energy lacks the authorization to proceed.`\
 https://www.nytimes.com/2026/06/11/world/americas/us-cuba-trump-energy-fuel.html
-
-**A Country Bro With a Soft Heart**\
-`Tucker Wetmore is putting a fresh spin on bro-country, sprinkling in a little bit of emo sensitivity. Our critic, Jon Caramanica, breaks down his most recent single, “Sunburn,” on the “Popcast” Song of the Week.`\
-https://www.nytimes.com/video/podcasts/100000010961652/a-country-bro-with-a-soft-heart.html
-
-**How Should Democrats Talk About Climate Change?**\
-`A big new milestone for solar power, a shift in Democratic messaging and more climate news.`\
-https://www.nytimes.com/2026/06/11/climate/democrats-climate-change.html
 
