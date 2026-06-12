@@ -1,3 +1,7 @@
+**Atlanta Judge Eleanor Ross Says There Is ‘No Excuse’ For Her Misconduct**\
+`In a second apology letter, Judge Eleanor Ross said her actions were “patently wrong.” Some House Republicans want her impeached.`\
+https://www.nytimes.com/2026/06/12/us/judge-eleanor-ross-apology-letters.html
+
 **Scientists Race to Test Treatments as Ebola Outbreak Widens**\
 `Trials are beginning on several drugs that have shown promise in preliminary studies against the virus that is causing the current outbreak.`\
 https://www.nytimes.com/2026/06/12/health/ebola-treatment-bundibugyo-virus.html
@@ -173,14 +177,6 @@ https://www.nytimes.com/2026/06/12/fashion/hockney-style-color.html
 **The World Cup Could Be the Biggest Sports Gambling Event Ever**\
 `At a time of sluggish growth, betting sites like FanDuel and DraftKings are counting on the global soccer tournament to boost online sports gambling.`\
 https://www.nytimes.com/2026/06/12/business/world-cup-gambling.html
-
-**‘I Met God’**\
-`Psychedelics allow you to communicate with the divine, Christian Angermayer, founder of the Enhanced Games, tells the columnist Ross Douthat on “Interesting Times,” arguing that the safe use of certain mind-altering drugs should be part of living a full life.`\
-https://www.nytimes.com/video/opinion/100000010947964/i-met-god.html
-
-**Renewable Groups Ask Courts to End Pentagon’s ‘Total Halt’ of Wind Power**\
-`More than 100 planned wind farms in 21 states are now stalled indefinitely as the Pentagon delays military reviews once seen as routine.`\
-https://www.nytimes.com/2026/06/12/climate/wind-power-lawsuit-pentagon-trump.html
 
 **Live Updates: Elon Musk Becomes World’s First Trillionaire as SpaceX Starts Trading**\
 `Mr. Musk’s rocket and satellite maker opened at $150 per share, up 11 percent from its I.P.O. price, and then shot to well over 20 percent.`\

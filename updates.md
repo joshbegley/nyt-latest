@@ -1,3 +1,7 @@
+**Scientists Race to Test Treatments as Ebola Outbreak Widens**\
+`Trials are beginning on several drugs that have shown promise in preliminary studies against the virus that is causing the current outbreak.`\
+https://www.nytimes.com/2026/06/12/health/ebola-treatment-bundibugyo-virus.html
+
 **Israel Builds Army Base in Jenin, Flouting 1990s Pact With Palestinians**\
 `Critics say the move would help the Israeli military protect increased settlement activity near Palestinian population centers in the West Bank.`\
 https://www.nytimes.com/2026/06/12/world/middleeast/israel-base-jenin-oslo.html
