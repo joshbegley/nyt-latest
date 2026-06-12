@@ -1,3 +1,7 @@
+**What It Means for Elon Musk to Be Worth $1 Trillion**\
+`We used physical dollar bills to see just how far $1 trillion could go.`\
+https://www.nytimes.com/interactive/2026/06/12/business/elon-musk-trillionaire.html
+
 **Afghans Hold Rare Public Protests Against Taliban Rules**\
 `The United Nations said it was “deeply concerned” about the arrests of dozens of women, and reported that two people were killed in protests organized to support them.`\
 https://www.nytimes.com/2026/06/12/world/asia/taliban-protests-afghanistan.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/video/business/100000010953560/elon-musk-spacex-initial-
 **If You Have a 401(k), How Much SpaceX Stock Will You Own?**\
 `If you have index funds — such as in a 401(k) — they may soon include shares of the mega company. Here’s a rough calculation.`\
 https://www.nytimes.com/2026/06/12/upshot/spacex-stock-ipo.html
-
-**Elon Musk Is the World’s First Trillionaire After SpaceX’s Historic Debut**\
-`SpaceX opened at $150 per share on Friday, then shot up to $165 within with the first 30 minutes of trading, making Elon Musk the world’s first trillionaire.`\
-https://www.nytimes.com/video/business/100000010963634/elon-musk-first-trillionaire-spacex.html
 
 **Elon Musk Becomes World’s First Trillionaire on SpaceX’s First Day of Trading**\
 `Stock in Mr. Musk’s rocket and satellite maker closed just above $161, up more than 19 percent from its I.P.O. price.`\
