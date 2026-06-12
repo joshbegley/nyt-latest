@@ -1,3 +1,47 @@
+**Ciclo de violencia en el Reino Unido: ataques de odio, agitación de la derecha y disturbios**\
+`Dos apuñalamientos han incitado protestas violentas en Inglaterra e Irlanda del Norte en los últimos 10 días, avivadas en internet por voces de la derecha. Es un patrón sombrío en el Reino Unido y en toda Europa.`\
+https://www.nytimes.com/es/2026/06/12/espanol/mundo/reino-unido-disturbios.html
+
+**‘Operation Pushkin’: Paris Trial Puts Spotlight on Rare-Book Heists**\
+`One by one, valuable works by Russian masters like Pushkin and Gogol were disappearing from libraries across Europe. Now six defendants are being prosecuted.`\
+https://www.nytimes.com/2026/06/12/world/europe/russian-book-theft-trial-paris.html
+
+**U.S. Plan Is Said to Pull a Third of Fighter Jets It Provides NATO for Europe**\
+`The plan, outlined by officials and in a written document, provides rare clarity about the extent to which the Trump administration intends to reduce its commitment to NATO.`\
+https://www.nytimes.com/2026/06/12/world/europe/us-nato-cuts-drawdown-jets.html
+
+**Quote of the Day: A Sprint, a Leap and a Tap: Anunoby’s Moxie Turns Magical**\
+`Quotation of the Day for Friday, June 12, 2026.`\
+https://www.nytimes.com/2026/06/12/pageoneplus/quote-of-the-day-a-sprint-a-leap-and-a-tap-anunobys-moxie-turns-magical.html
+
+**Corrections: June 12, 2026**\
+`Corrections that appeared in print on Friday, June 12, 2026.`\
+https://www.nytimes.com/2026/06/12/pageoneplus/corrections-june-12-2026.html
+
+**How to Eat Pizza with a Male Model**\
+`Order slices, fold them in half, flirt with male model, hope it makes your boyfriend jealous.`\
+https://www.nytimes.com/2026/06/12/style/modern-love-how-to-eat-pizza-with-a-male-model.html
+
+**A Teen Summer Romance and the Journal He Kept for Her**\
+`When Danit Hetsroni and Joshua Raikin met at summer camp, both had already navigated challenges that forced them to grow up quickly.`\
+https://www.nytimes.com/2026/06/12/style/danit-hetsroni-joshua-raikin-wedding.html
+
+**A Veterinarian, a Life Coach and a Highly Persuasive Pair of Donkeys**\
+`Dr. Evelyn Ivey knew Thomas Rotelli had the qualities she wanted in a mate, but watching how animals gravitated to him clinched it.`\
+https://www.nytimes.com/2026/06/12/style/evelyn-ivey-thomas-rotelli-wedding.html
+
+**Matthew MacNabb and Laura Nolan of ‘Dancing with the Stars Ireland’ Marry**\
+`Laura Nolan developed a crush on Matthew MacNabb when he was on “Love Island UK.” Then they became dance partners on another show.`\
+https://www.nytimes.com/2026/06/12/style/laura-nolan-matthew-macnabb-wedding.html
+
+**‘Darling, I Love You, but Give Me Park Avenue’**\
+`Lexie Riegelhaupt and Gabe Greenberg sang the “Green Acres” theme song as she left Park Avenue for his home in Carroll Gardens, Brooklyn.`\
+https://www.nytimes.com/2026/06/12/style/lexie-riegelhaupt-gabe-greenberg-wedding.html
+
+**A Celebration and a ‘Love Ritual’ Shaped by Their Community**\
+`At the wedding of Danny Mefford and Yazmany Arboleda, guests made various contributions, including decorating the church and forming a choir.`\
+https://www.nytimes.com/2026/06/12/style/yazmany-arbodela-danny-mefford-wedding.html
+
 **Signet Rings for Now**\
 `These days, the classic jewelry piece conveys personal style at least as much as it does lineage.`\
 https://www.nytimes.com/2026/06/11/t-magazine/fashion/signet-rings-for-now.html
