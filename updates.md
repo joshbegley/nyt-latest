@@ -1,5 +1,13 @@
 **Reseña de ‘El día de la revelación’: Spielberg repasa sus éxitos cósmicos**\
 `En una trepidante fantasía de ciencia ficción, impregnada de fastuosidad y protagonizada por Emily Blunt, Josh O’Connor y Colman Domingo, el cineasta nos lleva a todos a casa.`\
+https://www.nytimes.com/es/2026/06/12/espanol/resena-el-dia-de-la-revelacion-spielberg.html
+
+**Tornadoes Are Reported as Storms Sweep the Midwest**\
+`Chicago is in the bull’s-eye of severe weather for the second day in a row. Tornadoes were reported in Illinois, Indiana and Wisconsin.`\
+https://www.nytimes.com/2026/06/11/weather/chicago-illinois-tornado-storms.html
+
+**Reseña de ‘El día de la revelación’: Spielberg repasa sus éxitos cósmicos**\
+`En una trepidante fantasía de ciencia ficción, impregnada de fastuosidad y protagonizada por Emily Blunt, Josh O’Connor y Colman Domingo, el cineasta nos lleva a todos a casa.`\
 https://www.nytimes.com/es/2026/06/12/espanol/resena-de-el-dia-de-la-revelacion-spielberg-repasa-sus-grandes-exitos-cosmicos.html
 
 **Cuando la IA resuelve en días lo que los matemáticos tardan años**\
