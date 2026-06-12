@@ -1,3 +1,7 @@
+**Storms Could Disrupt U.F.C. Event at the White House on Sunday**\
+`Forecasters said the weather around Washington is likely to be hot and stormy.`\
+https://www.nytimes.com/2026/06/12/weather/trump-ufc-fight-storms-heat.html
+
 **Iran War Live Updates: Tense Calm Grips Mideast as Trump Again Claims Deal Is Close**\
 `President Trump said he had called off new attacks on Iran and that a peace agreement could be signed this weekend. A spokesman for Iran’s foreign ministry said, “Nothing has been finalized.”`\
 https://www.nytimes.com/live/2026/06/12/world/iran-war-trump-us-israel
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/06/12/espanol/cultura/steven-spielberg-pelicula-
 **Word of the Day: lien**\
 `This word has appeared in 29 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/06/12/learning/word-of-the-day-lien.html
-
-**Late Night Prepares for Trump’s U.F.C. Birthday Fight at the White House**\
-`Jimmy Fallon called the president “the only 80-year-old yelling, ‘Get on my lawn!’”`\
-https://www.nytimes.com/2026/06/12/arts/television/late-night-trump-birthday-ufc.html
 
