@@ -1,3 +1,7 @@
+**SpaceX Rises 11% in Largest I.P.O. Ever**\
+`The stock market debut of Elon Musk’s rocket company paves the way for a wave of mega offerings that are coming from OpenAI and Anthropic.`\
+https://www.nytimes.com/2026/06/12/technology/spacex-ipo-elon-musk.html
+
 **Framing David Hockney’s Greatest Art**\
 `Whether in Los Angeles, in his native England or traveling the world, the artist always reinvented the world he saw, with psychological insight.`\
 https://www.nytimes.com/2026/06/12/arts/design/david-hockney-partworks-photostack.html
@@ -98,7 +102,7 @@ https://www.nytimes.com/2026/06/12/world/asia/trump-anime-manga-japan-memes.html
 `Four decades after the conceptual artist Christo draped the Pont Neuf with fabric, JR, a French street artist, offers his own trick of the eye.`\
 https://www.nytimes.com/2026/06/12/arts/design/pont-neuf-jj.html
 
-**Live Updates: SpaceX Set to Start Trading in Blockbuster Market Debut**\
+**Live Updates: SpaceX Starts Trading in Blockbuster Market Debut**\
 `Elon Musk’s rocket and satellite maker already finalized the world’s largest initial public offering, selling 555 million shares at an initial price of $135.`\
 https://www.nytimes.com/live/2026/06/12/business/spacex-ipo-elon-musk
 
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/06/12/weather/trump-ufc-fight-storms-heat.html
 **Iran War Live Updates: Conflicting Accounts Emerge of Possible Peace Deal**\
 `While President Trump has claimed a deal is close, a spokesman for Iran’s foreign ministry said, “Nothing has been finalized.” Neither country has publicly disclosed details of a proposed agreement.`\
 https://www.nytimes.com/live/2026/06/12/world/iran-war-trump-us-israel
-
-**Risk Strait of Hormuz or Wait? Shipping Companies Face a Costly Dilemma.**\
-`With more than 500 ships still stranded in the Persian Gulf, pressure on the shipowners and sailors is growing by the day.`\
-https://www.nytimes.com/2026/06/12/business/strait-hormuz-ships-iran.html
 
 **World Cup Updates: Tournament Could Be a Bonanza for Betting Sites**\
 `(No description)`\
