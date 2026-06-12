@@ -1,3 +1,7 @@
+**Taylor Swift Enters the Songwriters Hall of Fame With Tears, Jokes and a Warning**\
+`After an introduction from Steven Spielberg, Swift gave a lengthy speech encouraging artists to “trust their human intuition” in an industry driven by data.`\
+https://www.nytimes.com/2026/06/12/arts/music/taylor-swift-songwriters-hall-speech.html
+
 **Opera Company Sues to Collect $17 Million From the Kennedy Center**\
 `The Washington National Opera, which left the center amid the Trump administration’s takeover, says its efforts to retrieve its endowment and other assets have been blocked.`\
 https://www.nytimes.com/2026/06/12/arts/music/kennedy-center-washington-national-opera-lawsuit-endowment.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/12/opinion/social-security-benefits-budget.html
 **How SpaceX’s IPO Compares With Saudi Aramco, Uber and Others**\
 `The previous record was set over six years ago. But SpaceX, whose stock begins trading on Friday, is on track to raise tens of billions of dollars more.`\
 https://www.nytimes.com/2026/06/12/business/spacex-biggest-ipos-elon-musk.html
-
-**Slayyyter Had One Last Chance for Pop Stardom, and She Nailed It**\
-`After a few attempts that didn’t fully connect, the St. Louis singer was ready to walk away, but not before making a raw album of thrashed pop, “Worst Girl in America.”`\
-https://www.nytimes.com/2026/06/12/arts/music/slayyyter-interview-popcast.html
 
 **World Cup Updates: Excitement and Anxiety as Games Begin in U.S.**\
 `(No description)`\

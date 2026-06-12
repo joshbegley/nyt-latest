@@ -1,3 +1,7 @@
+**Taylor Swift Enters the Songwriters Hall of Fame With Tears, Jokes and a Warning**\
+`After an introduction from Steven Spielberg, Swift gave a lengthy speech encouraging artists to “trust their human intuition” in an industry driven by data.`\
+https://www.nytimes.com/2026/06/12/arts/music/taylor-swift-songwriters-hall-speech.html
+
 **Opera Company Sues to Collect $17 Million From the Kennedy Center**\
 `The Washington National Opera, which left the center amid the Trump administration’s takeover, says its efforts to retrieve its endowment and other assets have been blocked.`\
 https://www.nytimes.com/2026/06/12/arts/music/kennedy-center-washington-national-opera-lawsuit-endowment.html
