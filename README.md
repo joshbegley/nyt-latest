@@ -94,7 +94,7 @@ https://www.nytimes.com/2026/06/12/opinion/yes-israel-film-boycott.html
 `Despite woes in the recording industry, Levit announced the founding of No Silence, which will release three albums this fall.`\
 https://www.nytimes.com/2026/06/12/arts/music/igor-levit-no-silence.html
 
-**Neither Peace Nor War: Iran Conflict Leaves World in Dangerous Limbo**\
+**A Dangerous Limbo Leaves Iran, and the World, Between Peace and War**\
 `Since announcing a nominal cease-fire two months ago, Iran, Israel and the U.S. have remained locked in low-intensity violence that has become a new normal.`\
 https://www.nytimes.com/2026/06/12/world/middleeast/iran-war-limbo.html
 

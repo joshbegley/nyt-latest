@@ -1,3 +1,7 @@
+**Anti-Immigrant Riots Leave Belfast on Edge: ‘Everyone Is Afraid’**\
+`In two nights of violence in Northern Ireland after a brutal stabbing, people were targeted because of their skin color, the authorities said.`\
+https://www.nytimes.com/2026/06/12/world/europe/belfast-stabbing-riots-anti-immigrant.html
+
 **This Could Be the Winning Issue for Democrats**\
 `A.I. is not inevitable.`\
 https://www.nytimes.com/2026/06/12/opinion/data-center-ai-democrats.html
