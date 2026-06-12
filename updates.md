@@ -1,3 +1,11 @@
+**Taylor Swift Inducted Into the Songwriters Hall of Fame**\
+`At 36, Taylor Swift became the youngest female ever inducted into the Songwriters Hall of Fame on Thursday.`\
+https://www.nytimes.com/video/arts/music/100000010963344/taylor-swift-songwriters-hall-of-fame.html
+
+**Spain’s Church Hopes Pope Trip Will Stem Secular Tide**\
+`Leo XIV’s visit to Spain, which ended on Friday, has spurred expectations among Catholic leaders of a spiritual revival.`\
+https://www.nytimes.com/2026/06/12/world/europe/pope-leo-spain-secular-catholic.html
+
 **Live Updates: Elon Musk Becomes World’s First Trillionaire as SpaceX Starts Trading**\
 `Mr. Musk’s rocket and satellite maker opened at $150 per share, up 11 percent from its I.P.O. price, and has been trading at well over 20 percent.`\
 https://www.nytimes.com/live/2026/06/12/business/spacex-ipo-elon-musk
