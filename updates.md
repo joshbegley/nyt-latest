@@ -1,3 +1,11 @@
+**Canada Has Its Elbows Up and Arms Wide Open at the World Cup**\
+`Facing President Trump’s threats, many Canadians have taken a defensive stance to their neighbor. But now Canada is playing co-host with the United States and Mexico, and welcoming the world.`\
+https://www.nytimes.com/2026/06/12/world/canada/2026-world-cup-canada-bosnia-toronto.html
+
+**Live Updates: Elon Musk Becomes World’s First Trillionaire on SpaceX’s First Day of Trading**\
+`Stock in Mr. Musk’s rocket and satellite maker closed just above $161, up more than 19 percent from its I.P.O. price.`\
+https://www.nytimes.com/live/2026/06/12/business/spacex-ipo-elon-musk
+
 **26-Year Mystery of a Skeleton in a Tent Ends With DNA Identification**\
 `Remains of the man, Joseph Louis Serrao, Jr., discovered in a remote area in Olympic National Park in 2000, were identified using forensic genealogy.`\
 https://www.nytimes.com/2026/06/12/us/human-remains-olympic-national-park-washington.html
