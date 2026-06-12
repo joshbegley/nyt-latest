@@ -1,3 +1,7 @@
+**SpaceX Goes Public**\
+`SpaceX, Elon Musk’s rocket and satellite company is set to begin trading on Friday under the ticker symbol SPCX. Its valuation is set at $1.77 trillion and would put Mr. Musk, the world’s richest man, on track to become the first trillionaire in history.`\
+https://www.nytimes.com/video/business/100000010962733/spacex-ipo-elon-musk.html
+
 **Por qué es casi imposible fabricar un robot sin China**\
 `Aprovechando la industria de vehículos eléctricos del país, las empresas chinas están fabricando piezas para robots a una escala y a un precio que otros no pueden igualar.`\
 https://www.nytimes.com/es/2026/06/12/espanol/negocios/robots-china.html
