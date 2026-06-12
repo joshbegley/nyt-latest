@@ -1,3 +1,11 @@
+**Tornadoes Are Reported in Illinois as Storms Sweep the Midwest**\
+`For the second day in a row, Chicago is in the bull’s-eye of severe weather on Thursday, but the storm forecast is widespread.`\
+https://www.nytimes.com/2026/06/11/weather/chicago-illinois-tornado-storms.html
+
+**As World Cup Begins, Mexico City Becomes a Global Stage**\
+`Supporters of the national team gathered inside and outside the stadium for the opening of the games, celebrating the start of a tournament years in the making.`\
+https://www.nytimes.com/2026/06/11/world/americas/world-cup-photos-mexico.html
+
 **What to Know About Jay Clayton, Trump’s Pick for Intelligence Director**\
 `Mr. Clayton, the U.S. attorney in Manhattan and a former chairman of the Securities and Exchange Commission, has been overseeing an office known for prominent cases.`\
 https://www.nytimes.com/2026/06/11/us/politics/what-to-know-jay-clayton.html

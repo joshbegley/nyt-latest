@@ -47,7 +47,7 @@ https://www.nytimes.com/2026/06/11/us/politics/melania-trump-foster-youth-accoun
 https://www.nytimes.com/2026/06/11/us/politics/great-american-state-fair.html
 
 **Tornadoes Are Reported in Illinois as Storms Sweep the Midwest**\
-`For the second day in a row, Chicago is in the bull’s-eye of severe weather on Thursday. Damage from tornadoes was reported Thursday evening.`\
+`For the second day in a row, Chicago is in the bull’s-eye of severe weather on Thursday, but the storm forecast is widespread.`\
 https://www.nytimes.com/2026/06/11/weather/chicago-illinois-tornado-storms.html
 
 **Whipsawed Between Fear and Relief, Iranians Hope for War’s End**\
@@ -99,7 +99,7 @@ https://www.nytimes.com/2026/06/11/insider/spacex-ipo-coverage-facts-price.html
 https://www.nytimes.com/video/podcasts/100000010953392/its-time-to-meet-slayyyter-the-worst-girl-in-america.html
 
 **As World Cup Begins, Mexico City Becomes a Global Stage**\
-`Supporters of the national team gathered inside and outside Mexico City Stadium for the opening of the games, celebrating the start of a tournament years in the making.`\
+`Supporters of the national team gathered inside and outside the stadium for the opening of the games, celebrating the start of a tournament years in the making.`\
 https://www.nytimes.com/2026/06/11/world/americas/world-cup-photos-mexico.html
 
 **Cleve Moler, Who Unlocked the Power of Computing for Millions, Dies at 86**\
