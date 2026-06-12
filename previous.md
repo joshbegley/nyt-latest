@@ -1,3 +1,7 @@
+**Two Dan Sullivans? Alaska Republicans Suggest Kicking One Off the Ballot in Senate Race**\
+`The lieutenant governor and the top elections official, both Republicans, are investigating whether the challenger coordinated with a Democrat to confuse voters.`\
+https://www.nytimes.com/2026/06/12/us/politics/dan-sullivan-alaska-senate-election.html
+
 **SpaceX’s Unlikely Journey From Far-Out Idea to $2 Trillion Juggernaut**\
 `Elon Musk said he had initially given SpaceX less than a 10 percent chance of succeeding. His rocket company has come a long way.`\
 https://www.nytimes.com/2026/06/12/technology/spacex-ipo-journey.html
@@ -169,10 +173,6 @@ https://www.nytimes.com/es/2026/06/12/espanol/negocios/spacex-bolsa-elon-musk.ht
 **SpaceX Stock Rises 11% in Largest IPO Ever**\
 `The blockbuster stock market debut of Elon Musk’s rocket company paves the way for a wave of enormous offerings that are coming from OpenAI and Anthropic.`\
 https://www.nytimes.com/2026/06/12/technology/spacex-ipo-elon-musk.html
-
-**Framing David Hockney’s Greatest Art**\
-`Whether in Los Angeles, in his native England or traveling the world, the artist always reinvented the world he saw, with psychological insight.`\
-https://www.nytimes.com/2026/06/12/arts/design/david-hockney-partworks-photostack.html
 
 **Live Updates: Elon Musk Becomes World’s First Trillionaire on SpaceX’s First Day of Trading**\
 `Stock in Mr. Musk’s rocket and satellite maker closed just above $161, up more than 19 percent from its I.P.O. price.`\

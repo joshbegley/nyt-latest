@@ -1,3 +1,7 @@
+**Two Dan Sullivans? Alaska Republicans Suggest Kicking One Off the Ballot in Senate Race**\
+`The lieutenant governor and the top elections official, both Republicans, are investigating whether the challenger coordinated with a Democrat to confuse voters.`\
+https://www.nytimes.com/2026/06/12/us/politics/dan-sullivan-alaska-senate-election.html
+
 **SpaceX’s Unlikely Journey From Far-Out Idea to $2 Trillion Juggernaut**\
 `Elon Musk said he had initially given SpaceX less than a 10 percent chance of succeeding. His rocket company has come a long way.`\
 https://www.nytimes.com/2026/06/12/technology/spacex-ipo-journey.html

@@ -1,3 +1,11 @@
+**Western Australia Is Battling a Mouse Plague**\
+`For months, mice have been found in tea kettles, crunched by car tires and even appeared in people’s beds. In one town, the end might be in sight.`\
+https://www.nytimes.com/2026/06/12/world/australia/australia-mouse-plague.html
+
+**Plague of Mice Hits Western Australia**\
+`Parts of Western Australia have been battling a mouse plague for months, as swarms of the rodent have taken over homes, businesses and roads.`\
+https://www.nytimes.com/video/world/australia/100000010959859/australia-mouse-plague.html
+
 **Two Dan Sullivans? Alaska Republicans Suggest Kicking One Off the Ballot in Senate Race**\
 `The lieutenant governor and the top elections official, both Republicans, are investigating whether the challenger coordinated with a Democrat to confuse voters.`\
 https://www.nytimes.com/2026/06/12/us/politics/dan-sullivan-alaska-senate-election.html
@@ -165,14 +173,6 @@ https://www.nytimes.com/2026/06/12/arts/music/kennedy-center-trump-name.html
 **Neil Shubin on Trusted Science in a ‘Deeply Partisan Age’**\
 `An eminent fossil hunter takes the reins at the National Academy of Sciences in a turbulent moment for American researchers.`\
 https://www.nytimes.com/2026/06/12/science/neil-shubin-national-academcy-sciences.html
-
-**El gran debut de SpaceX en la bolsa refuerza el poder de Musk**\
-`SpaceX dijo que vendería más de 555 millones de acciones a 135 dólares cada una. Con ello, la empresa de Elon Musk batiría el récord de la oferta pública inicial establecido antes por Saudi Aramco.`\
-https://www.nytimes.com/es/2026/06/12/espanol/negocios/spacex-bolsa-elon-musk.html
-
-**SpaceX Stock Rises 11% in Largest IPO Ever**\
-`The blockbuster stock market debut of Elon Musk’s rocket company paves the way for a wave of enormous offerings that are coming from OpenAI and Anthropic.`\
-https://www.nytimes.com/2026/06/12/technology/spacex-ipo-elon-musk.html
 
 **Live Updates: Elon Musk Becomes World’s First Trillionaire on SpaceX’s First Day of Trading**\
 `Stock in Mr. Musk’s rocket and satellite maker closed just above $161, up more than 19 percent from its I.P.O. price.`\
