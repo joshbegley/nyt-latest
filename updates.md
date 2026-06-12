@@ -1,3 +1,7 @@
+**If You Have a 401(k), How Much SpaceX Stock Will You Own?**\
+`If you have index funds — such as in a 401(k) — they may soon include shares of the mega company. Here’s a rough calculation.`\
+https://www.nytimes.com/2026/06/12/upshot/spacex-stock-ipo.html
+
 **Atlanta Judge Eleanor Ross Says There Is ‘No Excuse’ For Her Misconduct**\
 `In a second apology letter, Judge Eleanor Ross said her actions were “patently wrong.” Some House Republicans want her impeached.`\
 https://www.nytimes.com/2026/06/12/us/judge-eleanor-ross-apology-letters.html

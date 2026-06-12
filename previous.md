@@ -22,7 +22,7 @@ https://www.nytimes.com/video/world/europe/100000010963008/pope-6-7-meme-spain-m
 `Elon Musk is taking SpaceX public and keeping almost all the power. Ryan Mac, a technology reporter for The Times, breaks down why the company’s record I.P.O. is both a big bet on Musk’s vision and a risk for investors.`\
 https://www.nytimes.com/video/business/100000010953560/elon-musk-spacex-initial-public-offering.html
 
-**How Much SpaceX Are You About to Own?**\
+**If You Have a 401(k), How Much SpaceX Stock Will You Own?**\
 `If you have index funds — such as in a 401(k) — they may soon include shares of the mega company. Here’s a rough calculation.`\
 https://www.nytimes.com/2026/06/12/upshot/spacex-stock-ipo.html
 
