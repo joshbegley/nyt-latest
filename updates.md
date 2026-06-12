@@ -1,3 +1,11 @@
+**How Betters Use Arbitrage to Make Free Money on Kalshi and Polymarket**\
+`How bettors are turning statistical glitches into guaranteed profits.`\
+https://www.nytimes.com/interactive/2026/06/12/upshot/kalshi-polymarket-prediction-markets-arbitrage.html
+
+**Elon Musk Becomes the World’s First Trillionaire**\
+`Also, officials say a U.S.-Iran cease-fire appears within reach.`\
+https://www.nytimes.com/2026/06/12/briefing/elon-musk-spacex-us-iran-deal.html
+
 **Justice Dept. Clears Way for Paramount-Warner Bros. Merger**\
 `The $111 billion deal would unite two major movie studios and put CNN under the same roof as CBS News.`\
 https://www.nytimes.com/2026/06/12/business/media/paramount-warner-bros-merger.html

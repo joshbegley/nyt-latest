@@ -1,3 +1,7 @@
+**NASA Leader Responds to Criticism Over All-Male Artemis III Crew**\
+`NASA’s missions these days rarely feature all-male crews. Jared Isaacman, its administrator, said women play prominent roles throughout the space agency.`\
+https://www.nytimes.com/2026/06/12/science/nasa-artemis-astronauts-women.html
+
 **How Betters Use Arbitrage to Make Free Money on Kalshi and Polymarket**\
 `How bettors are turning statistical glitches into guaranteed profits.`\
 https://www.nytimes.com/interactive/2026/06/12/upshot/kalshi-polymarket-prediction-markets-arbitrage.html
@@ -50,8 +54,8 @@ https://www.nytimes.com/2026/06/12/us/politics/dan-sullivan-alaska-senate-electi
 `Elon Musk said he had initially given SpaceX less than a 10 percent chance of succeeding. His rocket company has come a long way.`\
 https://www.nytimes.com/2026/06/12/technology/spacex-ipo-journey.html
 
-**Spencer Pratt Seems to Concede L.A. Mayor Race, but Declares ‘War’ on Rivals**\
-`President Trump said the loss was an example of election fraud, but Mr. Pratt did not entertain that idea. Instead, he vowed to keep attacking the two Democrats who advanced.`\
+**Despite Trump Claims, Spencer Pratt Seems to Accept L.A. Mayor Results**\
+`President Trump said the loss was an example of election fraud, but Mr. Pratt did not entertain that idea. Instead, he plans to wind down his campaign but keep attacking the two Democrats who advanced.`\
 https://www.nytimes.com/2026/06/12/us/elections/spencer-pratt-la-mayor.html
 
 **Charles Dennis, a Founder of the Avant-Garde Space P.S. 122, Dies at 77**\
@@ -169,10 +173,6 @@ https://www.nytimes.com/es/2026/06/12/espanol/cultura/muere-david-hockney-pintor
 **Blake Lively Awarded Legal Fees in Ruling After Justin Baldoni Settlement**\
 `The size of the award remains to be determined. It only involves the legal fees associated with part of her court battle with Mr. Baldoni, with whom she made a film.`\
 https://www.nytimes.com/2026/06/12/movies/blake-lively-legal-fees-ruling-justin-baldoni-settlement.html
-
-**Irán, y el mundo, permanecen en el limbo entre la guerra y la paz**\
-`Desde que se anunció un alto al fuego nominal hace dos meses, Irán, Israel y EE. UU. han seguido enzarzados en una violencia de baja intensidad que se ha convertido en la nueva normalidad.`\
-https://www.nytimes.com/es/2026/06/12/espanol/mundo/iran-guerra-limbo.html
 
 **Elon Musk Becomes World’s First Trillionaire on SpaceX’s First Day of Trading**\
 `Stock in Mr. Musk’s rocket and satellite maker closed just above $161, up more than 19 percent from its I.P.O. price.`\
