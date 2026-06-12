@@ -1,3 +1,15 @@
+**Framing David Hockney’s Greatest Art**\
+`Whether in Los Angeles, in his native England or traveling the world, the artist always reinvented the world he saw, with psychological insight.`\
+https://www.nytimes.com/2026/06/12/arts/design/david-hockney-partworks-photostack.html
+
+**Sanders to Rally With Mamdani to Support Mayor’s Congressional Slate**\
+`Senator Bernie Sanders plans to join a rally for three New York congressional candidates backed by Mayor Zohran Mamdani, a democratic socialist.`\
+https://www.nytimes.com/2026/06/12/nyregion/bernie-sanders-mamdani-nyc-primary-elections.html
+
+**David Hockney’s Sense of Style Never Wavered**\
+`The painter David Hockney’s clothes roared with mirth and maximalism.`\
+https://www.nytimes.com/2026/06/12/fashion/hockney-style-color.html
+
 **Despite Talk of an Iran Peace Deal, Lebanon’s War Grinds On**\
 `Israeli strikes on Friday left Lebanon out of sync with a cautious optimism taking hold elsewhere in the Middle East.`\
 https://www.nytimes.com/2026/06/12/world/middleeast/lebanon-israel-war-trump-iran.html
