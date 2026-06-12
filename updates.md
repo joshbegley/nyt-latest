@@ -1,3 +1,15 @@
+**Western Australia Is Battling a Mouse Plague**\
+`For months, mice have been found in tea kettles, crunched by car tires and even appeared in people’s beds. In one town, the end might be in sight.`\
+https://www.nytimes.com/2026/06/12/world/australia/australia-mouse-plague.html
+
+**Plague of Mice Hits Western Australia**\
+`Parts of Western Australia have been battling a mouse plague for months, as swarms of the rodent have taken over homes, businesses and roads.`\
+https://www.nytimes.com/video/world/australia/100000010959859/australia-mouse-plague.html
+
+**Elon Musk Becomes World’s First Trillionaire on SpaceX’s First Day of Trading**\
+`Stock in Mr. Musk’s rocket and satellite maker closed just above $161, up more than 19 percent from its I.P.O. price.`\
+https://www.nytimes.com/live/2026/06/12/business/spacex-ipo-elon-musk
+
 **Two Dan Sullivans? Alaska Republicans Suggest Kicking One Off the Ballot in Senate Race**\
 `The lieutenant governor and the top elections official, both Republicans, are investigating whether the challenger coordinated with a Democrat to confuse voters.`\
 https://www.nytimes.com/2026/06/12/us/politics/dan-sullivan-alaska-senate-election.html
