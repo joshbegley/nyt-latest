@@ -1,3 +1,23 @@
+**1979: How the U.S. and Iran Went From Allies to Enemies**\
+`The regime in Iran, with which the United States is at war, is the same that came to power rejecting the U.S.-Iranian alliance of the 1970s.`\
+https://www.nytimes.com/2026/06/12/podcasts/the-daily/1979-us-iran-allies-enemies.html
+
+**What the SpaceX I.P.O. Means for You, and a Giant Act of Vandalism in D.C.**\
+`Plus, the Friday news quiz.`\
+https://www.nytimes.com/2026/06/12/podcasts/the-headlines/spacex-ipo-washington-vandalism.html
+
+**NYT Connections Answers for June 13, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, June 13, 2026.`\
+https://www.nytimes.com/2026/06/12/crosswords/connections-companion-1098.html
+
+**Today’s Wordle Hints for June 13, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, June 13, 2026.`\
+https://www.nytimes.com/2026/06/12/crosswords/wordle-review-1820.html
+
+**NYT Strands Hints for June 13, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, June 13, 2026.`\
+https://www.nytimes.com/2026/06/12/crosswords/strands-sidekick-832.html
+
 **U.F.C. at the White House**\
 `How Dana White and President Trump cashed in.`\
 https://www.nytimes.com/2026/06/12/podcasts/ufc-at-the-white-house.html
