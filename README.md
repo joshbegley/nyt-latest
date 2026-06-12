@@ -1,3 +1,7 @@
+**‘Hard Fork’ Live, Part 1: Satya Nadella and Cindy Cohn**\
+`A tech titan, a digital rights defender and two menacing-looking robot dogs took the stage at our second-ever live show.`\
+https://www.nytimes.com/2026/06/12/podcasts/hard-fork-live-part-1-satya-nadella.html
+
 **A Trillionaire?**\
 `SpaceX is expected to make Elon Musk even richer when its stock begins trading today.`\
 https://www.nytimes.com/2026/06/12/briefing/a-trillionaire.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/12/us/cesar-chavez-dolores-huerta-united-farm-wo
 **A Globe-Spanning Collection of Children’s Art May Lose Its Home**\
 `For 40 years, a museum in Norway has showcased art by children from around the world, even toddlers. Now it has lost the state support it depended on.`\
 https://www.nytimes.com/2026/06/12/world/europe/oslo-childrens-art-museum-norway.html
-
-**She Was Dying of Cancer. How Should She Live?**\
-`Thanks to new treatments, some patients with Stage 4 cancer are living longer — leaving them in limbo for years.`\
-https://www.nytimes.com/2026/06/12/well/cancer-stage-4-terminal.html
 
