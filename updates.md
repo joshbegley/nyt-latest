@@ -1,3 +1,15 @@
+**Kennedy Center Appeals Order to Remove Trump’s Name**\
+`One day before a deadline to take the president’s name off its facade, the arts institution appealed a federal judge’s ruling that also temporarily blocked it from closing.`\
+https://www.nytimes.com/2026/06/11/arts/music/kennedy-center-appeal-trump-name.html
+
+**Some States Opt Out of Trump’s ‘Great American State Fair’**\
+`At least five have declined to participate, the latest sign that the national 250th birthday celebration has become a fragmented and partisan affair as the president seeks his imprint.`\
+https://www.nytimes.com/2026/06/11/us/politics/great-american-state-fair.html
+
+**Tornadoes Are Reported in Illinois as Storms Sweep the Midwest**\
+`For the second day in a row, Chicago is in the bull’s-eye of severe weather on Thursday. Damage from tornadoes was reported Thursday evening.`\
+https://www.nytimes.com/2026/06/11/weather/chicago-illinois-tornado-storms.html
+
 **The Tug-of-War for Control of the House in 2026’s Midterm Elections**\
 `While public sentiment has drifted in Democrats’ favor in many of the midterm House races, Republicans have strong-armed a structural advantage: redrawing congressional maps.`\
 https://www.nytimes.com/interactive/2026/06/11/us/politics/midterms-elections-congress-democrats-republicans-redistricting.html

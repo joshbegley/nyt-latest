@@ -22,8 +22,8 @@ https://www.nytimes.com/2026/06/11/nyregion/off-duty-officer-shooting-attempted-
 `The inquiry comes after a report that Dr. Neal ElAttrache, the physician for the team, supported the U.F.C. star Conor McGregor in using performance-enhancing drugs while recovering from an injury.`\
 https://www.nytimes.com/2026/06/11/sports/baseball/baseball-doctor-steroids-mcgregor.html
 
-**Kennedy Center Votes to Appeal Order That Trump’s Name Be Removed**\
-`A federal judge had ruled that the Washington arts institution must take the president’s name off its facade by Friday.`\
+**Kennedy Center Appeals Order to Remove Trump’s Name**\
+`One day before a deadline to take the president’s name off its facade, the arts institution appealed a federal judge’s ruling that also temporarily blocked it from closing.`\
 https://www.nytimes.com/2026/06/11/arts/music/kennedy-center-appeal-trump-name.html
 
 **Slayyyter on Her Viral Coachella Performaance.**\
@@ -38,12 +38,12 @@ https://www.nytimes.com/es/2026/06/11/espanol/america-latina/inauguracion-mundia
 `The program allows states to invest benefits they receive on behalf of foster children in their care.`\
 https://www.nytimes.com/2026/06/11/us/politics/melania-trump-foster-youth-accounts.html
 
-**Some States Pull Out of Trump’s ‘Great American State Fair’**\
+**Some States Opt Out of Trump’s ‘Great American State Fair’**\
 `At least five have declined to participate, the latest sign that the national 250th birthday celebration has become a fragmented and partisan affair as the president seeks his imprint.`\
 https://www.nytimes.com/2026/06/11/us/politics/great-american-state-fair.html
 
 **Tornadoes Are Reported in Illinois as Storms Sweep the Midwest**\
-`For the second day in a row, Chicago is in the bull’s-eye of severe weather on Thursday, but the storm forecast is widespread.`\
+`For the second day in a row, Chicago is in the bull’s-eye of severe weather on Thursday. Damage from tornadoes was reported Thursday evening.`\
 https://www.nytimes.com/2026/06/11/weather/chicago-illinois-tornado-storms.html
 
 **Whipsawed Between Fear and Relief, Iranians Hope for War’s End**\
