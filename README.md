@@ -1,3 +1,11 @@
+**SpaceX’s Unlikely Journey From Far-Out Idea to $2 Trillion Juggernaut**\
+`Elon Musk said he had initially given SpaceX less than a 10 percent chance of succeeding. His rocket company has come a long way.`\
+https://www.nytimes.com/2026/06/12/technology/spacex-ipo-journey.html
+
+**Spencer Pratt Seems to Concede L.A. Mayor Race, but Declares ‘War’ on Rivals**\
+`President Trump said the loss was an example of election fraud, but Mr. Pratt did not entertain that idea. Instead, he vowed to keep attacking the two Democrats who advanced.`\
+https://www.nytimes.com/2026/06/12/us/elections/spencer-pratt-la-mayor.html
+
 **Charles Dennis, a Founder of the Avant-Garde Space P.S. 122, Dies at 77**\
 `A performance artist, dancer, choreographer, videographer, filmmaker and curator, he was a central figure in the downtown Manhattan experimental arts scene.`\
 https://www.nytimes.com/2026/06/12/theater/charles-dennis-dead.html
@@ -159,20 +167,12 @@ https://www.nytimes.com/2026/06/12/science/neil-shubin-national-academcy-science
 https://www.nytimes.com/es/2026/06/12/espanol/negocios/spacex-bolsa-elon-musk.html
 
 **SpaceX Stock Rises 11% in Largest IPO Ever**\
-`The stock market debut of Elon Musk’s rocket company paves the way for a wave of mega offerings that are coming from OpenAI and Anthropic.`\
+`The blockbuster stock market debut of Elon Musk’s rocket company paves the way for a wave of enormous offerings that are coming from OpenAI and Anthropic.`\
 https://www.nytimes.com/2026/06/12/technology/spacex-ipo-elon-musk.html
 
 **Framing David Hockney’s Greatest Art**\
 `Whether in Los Angeles, in his native England or traveling the world, the artist always reinvented the world he saw, with psychological insight.`\
 https://www.nytimes.com/2026/06/12/arts/design/david-hockney-partworks-photostack.html
-
-**Sanders to Rally With Mamdani to Support Mayor’s Congressional Slate**\
-`Senator Bernie Sanders plans to join a rally for three New York congressional candidates backed by Mayor Zohran Mamdani, a democratic socialist.`\
-https://www.nytimes.com/2026/06/12/nyregion/bernie-sanders-mamdani-nyc-primary-elections.html
-
-**Despite Talk of an Iran Peace Deal, Lebanon’s War Grinds On**\
-`Israeli strikes on Friday left Lebanon out of sync with a cautious optimism taking hold elsewhere in the Middle East.`\
-https://www.nytimes.com/2026/06/12/world/middleeast/lebanon-israel-war-trump-iran.html
 
 **Live Updates: Elon Musk Becomes World’s First Trillionaire on SpaceX’s First Day of Trading**\
 `Stock in Mr. Musk’s rocket and satellite maker closed just above $161, up more than 19 percent from its I.P.O. price.`\
