@@ -1,3 +1,15 @@
+**A Kennedy Center Drama: Whether Trump’s Name Stays**\
+`A judge said the president’s name must be removed by Friday. As a last-ditch legal battle unfolds, many eyes are on the marble facade.`\
+https://www.nytimes.com/2026/06/12/arts/music/kennedy-center-trump-name.html
+
+**Neil Shubin on Trusted Science in a ‘Deeply Partisan Age’**\
+`An eminent fossil hunter takes the reins at the National Academy of Sciences in a turbulent moment for American researchers.`\
+https://www.nytimes.com/2026/06/12/science/neil-shubin-national-academcy-sciences.html
+
+**El gran debut de SpaceX en la bolsa refuerza el poder de Musk**\
+`SpaceX dijo que vendería más de 555 millones de acciones a 135 dólares cada una. Con ello, la empresa de Elon Musk batiría el récord de la oferta pública inicial establecido antes por Saudi Aramco.`\
+https://www.nytimes.com/es/2026/06/12/espanol/negocios/spacex-bolsa-elon-musk.html
+
 **SpaceX Rises 11% in Largest I.P.O. Ever**\
 `The stock market debut of Elon Musk’s rocket company paves the way for a wave of mega offerings that are coming from OpenAI and Anthropic.`\
 https://www.nytimes.com/2026/06/12/technology/spacex-ipo-elon-musk.html
@@ -102,8 +114,8 @@ https://www.nytimes.com/2026/06/12/world/asia/trump-anime-manga-japan-memes.html
 `Four decades after the conceptual artist Christo draped the Pont Neuf with fabric, JR, a French street artist, offers his own trick of the eye.`\
 https://www.nytimes.com/2026/06/12/arts/design/pont-neuf-jj.html
 
-**Live Updates: SpaceX Starts Trading in Blockbuster Market Debut**\
-`Elon Musk’s rocket and satellite maker already finalized the world’s largest initial public offering, selling 555 million shares at an initial price of $135.`\
+**Live Updates: Minutes Into SpaceX Trading, Elon Musk Becomes World’s First Trillionaire**\
+`Mr. Musk’s rocket and satellite maker opened at $150 per share, up 11 percent from its I.P.O. price.`\
 https://www.nytimes.com/live/2026/06/12/business/spacex-ipo-elon-musk
 
 **Americans Aren’t Money Savvy, and They’re Only Getting Worse**\
@@ -173,18 +185,6 @@ https://www.nytimes.com/2026/06/12/crosswords/wordle-review-1820.html
 **NYT Strands Hints for June 13, 2026**\
 `Scroll down for hints and conversation about the puzzle for Saturday, June 13, 2026.`\
 https://www.nytimes.com/2026/06/12/crosswords/strands-sidekick-832.html
-
-**U.F.C. at the White House**\
-`How Dana White and President Trump cashed in.`\
-https://www.nytimes.com/2026/06/12/podcasts/ufc-at-the-white-house.html
-
-**Storms Could Disrupt U.F.C. Event at the White House on Sunday**\
-`Forecasters said the weather around Washington is likely to be hot and stormy.`\
-https://www.nytimes.com/2026/06/12/weather/trump-ufc-fight-storms-heat.html
-
-**Iran War Live Updates: Conflicting Accounts Emerge of Possible Peace Deal**\
-`While President Trump has claimed a deal is close, a spokesman for Iran’s foreign ministry said, “Nothing has been finalized.” Neither country has publicly disclosed details of a proposed agreement.`\
-https://www.nytimes.com/live/2026/06/12/world/iran-war-trump-us-israel
 
 **World Cup Updates: Tournament Could Be a Bonanza for Betting Sites**\
 `(No description)`\

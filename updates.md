@@ -1,3 +1,11 @@
+**SpaceX Rises 11% in Largest I.P.O. Ever**\
+`The stock market debut of Elon Musk’s rocket company paves the way for a wave of mega offerings that are coming from OpenAI and Anthropic.`\
+https://www.nytimes.com/2026/06/12/technology/spacex-ipo-elon-musk.html
+
+**Live Updates: SpaceX Starts Trading in Blockbuster Market Debut**\
+`Elon Musk’s rocket and satellite maker already finalized the world’s largest initial public offering, selling 555 million shares at an initial price of $135.`\
+https://www.nytimes.com/live/2026/06/12/business/spacex-ipo-elon-musk
+
 **FISA, a Key U.S. Spying Power, Is Expiring. What Does That Mean for Foreign Surveillance?**\
 `Top officials and some lawmakers say letting a powerful spying authority expire on Saturday will leave the United States dangerously blind. But surveillance can still continue.`\
 https://www.nytimes.com/2026/06/12/us/politics/fisa-expiration.html
