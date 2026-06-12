@@ -4,7 +4,7 @@ https://www.nytimes.com/2026/06/12/sports/sailing/charlie-dalin-dead.html
 
 **As Speculation Swirls About the Emerging Iran Deal, Here’s What We Know**\
 `A “memorandum of understanding” between the two sides is under discussion. Both sides are keen to frame it as a victory.`\
-https://www.nytimes.com/2026/06/12/world/middleeast/iran-deal-what-to-know-possible-details.html
+https://www.nytimes.com/2026/06/12/world/middleeast/iran-peace-deal-what-to-know.html
 
 **What the SpaceX I.P.O. Means for OpenAI and Anthropic**\
 `Strong investor interest in SpaceX could be good news for the A.I. rivals, which have signaled that they, too, intend to go public this year.`\
