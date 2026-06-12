@@ -1,6 +1,6 @@
 **Princess Bha of Thailand, Second in Line to the Throne, Dies at 47**\
 `Ever since she collapsed in a park three and a half years ago, speculation has swirled in Thailand about who could become the next monarch.`\
-https://www.nytimes.com/2026/06/11/world/asia/thai-princess-bha-dead.html
+https://www.nytimes.com/2026/06/11/world/asia/thai-princess-bajrakitiyabha-bha-dead-coma.html
 
 **Review: ‘Romeo & Juliet’ Find Too Little Love in the Park**\
 `For the Public Theater’s Shakespeare in the Park, the director Saheem Ali presents a strangely low-energy version of the tragedy.`\
