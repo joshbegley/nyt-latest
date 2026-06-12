@@ -1,3 +1,19 @@
+**5 Ingredients for a Healthy Life**\
+`Living a good life doesn’t have to be complicated, Christian Angermayer, founder of the Enhanced Games, tells the columnist Ross Douthat on “Interesting Times,” and shares five basics he believes are crucial for optimizing your time on earth.`\
+https://www.nytimes.com/video/opinion/100000010960925/5-ingredients-for-a-healthy-life.html
+
+**Rick Jackson, Georgia Governor Candidate, Is Also a Film Producer Battling the IRS**\
+`Rick Jackson, a billionaire, wants to be Georgia’s next governor. But the I.R.S. has questioned how his low-budget movies turned into tax windfalls.`\
+https://www.nytimes.com/2026/06/12/us/elections/rick-jackson-georgia-governor-movies-tax.html
+
+**Hockney’s Sense of Style Never Wavered**\
+`The painter David Hockney’s clothes roared with mirth and maximalism.`\
+https://www.nytimes.com/2026/06/12/fashion/hockney-style-color.html
+
+**The World Cup Could Be the Biggest Sports Gambling Event Ever**\
+`At a time of sluggish growth, betting sites like FanDuel and DraftKings are counting on the global soccer tournament to boost online sports gambling.`\
+https://www.nytimes.com/2026/06/12/business/world-cup-gambling.html
+
 **‘I Met God’**\
 `Psychedelics allow you to communicate with the divine, Christian Angermayer, founder of the Enhanced Games, tells the columnist Ross Douthat on “Interesting Times,” arguing that the safe use of certain mind-altering drugs should be part of living a full life.`\
 https://www.nytimes.com/video/opinion/100000010947964/i-met-god.html
