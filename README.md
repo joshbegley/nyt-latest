@@ -1,3 +1,23 @@
+**1979: How the U.S. and Iran Went From Allies to Enemies**\
+`The regime in Iran, with which the United States is at war, is the same that came to power rejecting the U.S.-Iranian alliance of the 1970s.`\
+https://www.nytimes.com/2026/06/12/podcasts/the-daily/1979-us-iran-allies-enemies.html
+
+**What the SpaceX I.P.O. Means for You, and a Giant Act of Vandalism in D.C.**\
+`Plus, the Friday news quiz.`\
+https://www.nytimes.com/2026/06/12/podcasts/the-headlines/spacex-ipo-washington-vandalism.html
+
+**NYT Connections Answers for June 13, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, June 13, 2026.`\
+https://www.nytimes.com/2026/06/12/crosswords/connections-companion-1098.html
+
+**Today’s Wordle Hints for June 13, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, June 13, 2026.`\
+https://www.nytimes.com/2026/06/12/crosswords/wordle-review-1820.html
+
+**NYT Strands Hints for June 13, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, June 13, 2026.`\
+https://www.nytimes.com/2026/06/12/crosswords/strands-sidekick-832.html
+
 **U.F.C. at the White House**\
 `How Dana White and President Trump cashed in.`\
 https://www.nytimes.com/2026/06/12/podcasts/ufc-at-the-white-house.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/06/12/nyregion/knicks-finals-new-york.html
 **Knicks in Five? Please Don’t Tempt the Jinx Gods.**\
 `Some Knicks fans have predicted series sweeps. Others, conditioned by decades of failure, pay more heed to jinxes and superstitious rituals.`\
 https://www.nytimes.com/2026/06/12/nyregion/knicks-superstitions-playoffs.html
-
-**New York Primary Elections: What to Know and How to Vote**\
-`Several closely watched races are taking place in New York City and beyond. Nine days of early voting will precede Primary Day on June 23.`\
-https://www.nytimes.com/2026/06/12/nyregion/new-york-primary-elections-how-when-vote.html
-
-**NYT Spelling Bee Answers for June 12, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/06/12/crosswords/spelling-bee-forum.html
-
-**SpaceX Goes Public**\
-`SpaceX, Elon Musk’s rocket and satellite company, will begin trading on Friday under the ticker symbol SPCX. Its valuation is set at $1.77 trillion and would put Mr. Musk, the world’s richest man, on track to become the first trillionaire in history.`\
-https://www.nytimes.com/video/business/100000010962733/spacex-ipo-elon-musk.html
-
-**Por qué es casi imposible fabricar un robot sin China**\
-`Aprovechando la industria de vehículos eléctricos del país, las empresas chinas están fabricando piezas para robots a una escala y a un precio que otros no pueden igualar.`\
-https://www.nytimes.com/es/2026/06/12/espanol/negocios/robots-china.html
-
-**Por qué Spielberg sigue siendo el director más humano**\
-`El director más taquillero de la historia estrena su película número 35 y sigue convencido de que nada reemplaza la catarsis compartida de una sala llena.`\
-https://www.nytimes.com/es/2026/06/12/espanol/cultura/steven-spielberg-pelicula-dia-de-la-revelacion.html
 
