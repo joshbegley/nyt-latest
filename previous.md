@@ -1,3 +1,15 @@
+**Por qué es casi imposible fabricar un robot sin China**\
+`Aprovechando la industria de vehículos eléctricos del país, las empresas chinas están fabricando piezas para robots a una escala y a un precio que otros no pueden igualar.`\
+https://www.nytimes.com/es/2026/06/12/espanol/negocios/robots-china.html
+
+**Por qué Spielberg sigue siendo el director más humano**\
+`El director más taquillero de la historia estrena su película número 35 y sigue convencido de que nada reemplaza la catarsis compartida de una sala llena.`\
+https://www.nytimes.com/es/2026/06/12/espanol/cultura/steven-spielberg-pelicula-dia-de-la-revelacion.html
+
+**Word of the Day: lien**\
+`This word has appeared in 29 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/06/12/learning/word-of-the-day-lien.html
+
 **Late Night Prepares for Trump’s U.F.C. Birthday Fight at the White House**\
 `Jimmy Fallon called the president “the only 80-year-old yelling, ‘Get on my lawn!’”`\
 https://www.nytimes.com/2026/06/12/arts/television/late-night-trump-birthday-ufc.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/11/briefing/world-cup-trump-spy-chief.html
 **Trump, in Latest Pivot, Retracts Threat to Strike Iran Again and Widen the War**\
 `Mr. Trump said that Iran was close to signing a peace deal. So far, weeks of talks have failed to produce an agreement.`\
 https://www.nytimes.com/2026/06/11/world/middleeast/trump-retracts-threat-iran.html
-
-**Fans Highlight Mexican Culture at the World Cup Opening Ceremony**\
-`Fans gathered in Mexico City to watch Mexico play South Africa in the first World Cup match on Thursday. The festivities included a celebration of Mexican culture and entertainment.`\
-https://www.nytimes.com/video/sports/soccer/100000010961457/mexico-city-world-cup-match-mexican-culture.html
-
-**Alan Hale, Sky Watcher Who Created a Comet Sensation, Dies at 68**\
-`In 1995, he and Thomas Bopp spotted, from different states, the same mysterious object in the sky. What turned out to be a comet was named after them: Hale-Bopp.`\
-https://www.nytimes.com/2026/06/11/science/space/alan-hale-dead.html
-
-**SpaceX IPO: How Our Reporters Assess the Sky-High Valuation and Potential Economic Impact**\
-`Two Times tech reporters and their editor talk about assessing the sky-high valuation of the rocket and satellite maker, the potential economic impact of its public debut and the role of the world’s richest man in it all.`\
-https://www.nytimes.com/2026/06/11/insider/spacex-ipo-coverage-facts-price.html
 

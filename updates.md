@@ -1,3 +1,15 @@
+**Por qué es casi imposible fabricar un robot sin China**\
+`Aprovechando la industria de vehículos eléctricos del país, las empresas chinas están fabricando piezas para robots a una escala y a un precio que otros no pueden igualar.`\
+https://www.nytimes.com/es/2026/06/12/espanol/negocios/robots-china.html
+
+**Por qué Spielberg sigue siendo el director más humano**\
+`El director más taquillero de la historia estrena su película número 35 y sigue convencido de que nada reemplaza la catarsis compartida de una sala llena.`\
+https://www.nytimes.com/es/2026/06/12/espanol/cultura/steven-spielberg-pelicula-dia-de-la-revelacion.html
+
+**Word of the Day: lien**\
+`This word has appeared in 29 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/06/12/learning/word-of-the-day-lien.html
+
 **Late Night Prepares for Trump’s U.F.C. Birthday Fight at the White House**\
 `Jimmy Fallon called the president “the only 80-year-old yelling, ‘Get on my lawn!’”`\
 https://www.nytimes.com/2026/06/12/arts/television/late-night-trump-birthday-ufc.html
