@@ -1,3 +1,11 @@
+**Joe Negri, Handyman and Music Maestro on ‘Mister Rogers,’ Dies at 99**\
+`An accomplished jazz guitarist, he appeared on more than 300 episodes of the public television show, playing alongside musicians like Wynton Marsalis and Yo-Yo Ma.`\
+https://www.nytimes.com/2026/06/12/arts/music/joe-negri-dead.html
+
+**Book Review: ‘Drayton and Mackenzie,’ by Alexander Starritt**\
+`In “Drayton and Mackenzie,” two young grads navigating the 2008 financial crisis enact a plan they hope will change their fate.`\
+https://www.nytimes.com/2026/06/12/books/review/drayton-and-mackenzie-alexander-starritt.html
+
 **Fact-Check: Trump’s Claims About His Arch, Reflecting Pool Repairs and Other Renovation Projects**\
 `President Trump has made false or exaggerated claims of a Civil War-era push for a triumphal arch, hundreds of millions spent on repairs on the Reflecting Pool, and an absence of working fountains.`\
 https://www.nytimes.com/2026/06/12/us/politics/trump-fact-check-triumphal-arch-reflecting-pool.html
@@ -182,15 +190,7 @@ https://www.nytimes.com/2026/06/12/arts/music/slayyyter-interview-popcast.html
 `A union in Columbus made a formal complaint after the city farmed out brush-clearing duties at a wastewater plant. The competitors? Goats.`\
 https://www.nytimes.com/2026/06/12/us/columbus-ohio-goats-lunch.html
 
-**The World Is Draining Oil Reserves, Raising Pressure for a Peace Deal**\
-`The amount of oil and fuel stored by businesses and governments has fallen sharply since the start of the U.S.-Israeli war against Iran.`\
-https://www.nytimes.com/2026/06/12/business/energy-environment/iran-war-oil-reserves.html
-
-**This Could Be the Winning Issue for Democrats**\
-`A.I. is not inevitable.`\
-https://www.nytimes.com/2026/06/12/opinion/data-center-ai-democrats.html
-
-**The Best Books of the 21st Century: Ryan Holiday on ‘The Road’**\
-`The best-selling author joined the “Book Review” podcast to discuss how his relationship to Cormac McCarthy’s novel changed after becoming a father.`\
-https://www.nytimes.com/2026/06/12/podcasts/100-books-ryan-holiday.html
+**World Cup Updates: Excitement and Anxiety as Games Begin in U.S.**\
+`(No description)`\
+https://www.nytimes.com/live/2026/us/fifa-world-cup
 
