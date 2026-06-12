@@ -174,7 +174,7 @@ https://www.nytimes.com/2026/06/12/arts/music/kennedy-center-trump-name.html
 `An eminent fossil hunter takes the reins at the National Academy of Sciences in a turbulent moment for American researchers.`\
 https://www.nytimes.com/2026/06/12/science/neil-shubin-national-academcy-sciences.html
 
-**Live Updates: Elon Musk Becomes World’s First Trillionaire on SpaceX’s First Day of Trading**\
+**Elon Musk Becomes World’s First Trillionaire on SpaceX’s First Day of Trading**\
 `Stock in Mr. Musk’s rocket and satellite maker closed just above $161, up more than 19 percent from its I.P.O. price.`\
 https://www.nytimes.com/live/2026/06/12/business/spacex-ipo-elon-musk
 
