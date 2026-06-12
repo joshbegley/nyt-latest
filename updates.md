@@ -1,3 +1,11 @@
+**U.S. Says Iran Cease-Fire Deal ‘Very Close’**\
+`A senior administration official said the two sides were “not quite at the finish line yet.”`\
+https://www.nytimes.com/2026/06/12/world/middleeast/us-iran-ceasefire-deal-white-house.html
+
+**Avocado Salad With Herbs and Capers**\
+`This salad is both simple to make and highly luscious. It gets a velvety richness from the avocados and is enlivened by a splash of red wine vinegar and a handful of briny capers sprinkled on top.`\
+https://www.nytimes.com/video/dining/100000010964789/avocado-salad-with-herbs-and-capers.html
+
 **Tahini and Chocolate Chunk Cake**\
 `In this cake, developed by the NYT Cooking contributor Samantha Seneviratne, tahini flavors a one-bowl yellow cake, giving it a pillowy texture and nutty flavor. Swirled with chocolate, it’s reminiscent of your favorite halvah candy.`\
 https://www.nytimes.com/video/dining/100000010963068/tahini-and-chocolate-chunk-cake.html

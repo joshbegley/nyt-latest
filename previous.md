@@ -1,3 +1,11 @@
+**U.S. Says Iran Cease-Fire Deal ‘Very Close’**\
+`A senior administration official said the two sides were “not quite at the finish line yet.”`\
+https://www.nytimes.com/2026/06/12/world/middleeast/us-iran-ceasefire-deal-white-house.html
+
+**Avocado Salad With Herbs and Capers**\
+`This salad is both simple to make and highly luscious. It gets a velvety richness from the avocados and is enlivened by a splash of red wine vinegar and a handful of briny capers sprinkled on top.`\
+https://www.nytimes.com/video/dining/100000010964789/avocado-salad-with-herbs-and-capers.html
+
 **Tahini and Chocolate Chunk Cake**\
 `In this cake, developed by the NYT Cooking contributor Samantha Seneviratne, tahini flavors a one-bowl yellow cake, giving it a pillowy texture and nutty flavor. Swirled with chocolate, it’s reminiscent of your favorite halvah candy.`\
 https://www.nytimes.com/video/dining/100000010963068/tahini-and-chocolate-chunk-cake.html
@@ -169,10 +177,6 @@ https://www.nytimes.com/es/2026/06/12/espanol/estados-unidos/cesar-chavez-dolore
 **Judge Declines to Halt UFC Fight at the White House on Trump’s Birthday**\
 `In a ruling on Friday, Judge Amit P. Mehta wrote that the lawsuit arrived last minute and failed to show how the event irreversibly harmed the individuals who sued.`\
 https://www.nytimes.com/2026/06/12/us/politics/trump-ufc-cage-lawsuit.html
-
-**Trump’s Arch Would Mar Hallowed Ground**\
-`Readers respond to President Trump’s efforts to remake the capital. Also: The Knicks; a plan for Democrats; U.S. political flaws; voting in person.`\
-https://www.nytimes.com/2026/06/12/opinion/trump-arch-arlington.html
 
 **Elon Musk Becomes World’s First Trillionaire on SpaceX’s First Day of Trading**\
 `Stock in Mr. Musk’s rocket and satellite maker closed just above $161, up more than 19 percent from its I.P.O. price.`\
