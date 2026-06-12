@@ -1,3 +1,7 @@
+**Cuando la IA resuelve en días lo que los matemáticos tardan años**\
+`Una empresa gastó 100.000 dólares en completar en cinco días una demostración que un equipo académico llevaba dos años construyendo. El episodio desató un pánico silencioso en los departamentos de matemáticas del mundo.`\
+https://www.nytimes.com/es/2026/06/12/espanol/ciencia-y-tecnologia/ia-resuelve-matematicas.html
+
 **Ciclo de violencia en el Reino Unido: ataques de odio, agitación de la derecha y disturbios**\
 `Dos apuñalamientos han incitado protestas violentas en Inglaterra e Irlanda del Norte en los últimos 10 días, avivadas en internet por voces de la derecha. Es un patrón sombrío en el Reino Unido y en toda Europa.`\
 https://www.nytimes.com/es/2026/06/12/espanol/mundo/reino-unido-disturbios.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000010953392/its-time-to-meet-slayyyte
 **As World Cup Begins, Mexico City Becomes a Global Stage**\
 `Supporters of the national team gathered inside and outside the stadium for the opening of the games, celebrating the start of a tournament years in the making.`\
 https://www.nytimes.com/2026/06/11/world/americas/world-cup-photos-mexico.html
-
-**Cleve Moler, Who Unlocked the Power of Computing for Millions, Dies at 86**\
-`He built interfaces that allowed engineers, scientists and everyday people to solve difficult problems without having to write the underlying code.`\
-https://www.nytimes.com/2026/06/11/science/cleve-moler-dead.html
 
