@@ -1,3 +1,11 @@
+**Framing David Hockney’s Greatest Art**\
+`Whether in Los Angeles, in his native England or traveling the world, the artist always reinvented the world he saw, with psychological insight.`\
+https://www.nytimes.com/2026/06/12/arts/design/david-hockney-partworks-photostack.html
+
+**Sanders to Rally With Mamdani to Support Mayor’s Congressional Slate**\
+`Senator Bernie Sanders plans to join a rally for three New York congressional candidates backed by Mayor Zohran Mamdani, a democratic socialist.`\
+https://www.nytimes.com/2026/06/12/nyregion/bernie-sanders-mamdani-nyc-primary-elections.html
+
 **Despite Talk of an Iran Peace Deal, Lebanon’s War Grinds On**\
 `Israeli strikes on Friday left Lebanon out of sync with a cautious optimism taking hold elsewhere in the Middle East.`\
 https://www.nytimes.com/2026/06/12/world/middleeast/lebanon-israel-war-trump-iran.html
@@ -58,7 +66,7 @@ https://www.nytimes.com/video/opinion/100000010960925/5-ingredients-for-a-health
 `Rick Jackson, a billionaire, wants to be Georgia’s next governor. But the I.R.S. has questioned how his low-budget movies turned into tax windfalls.`\
 https://www.nytimes.com/2026/06/12/us/elections/rick-jackson-georgia-governor-movies-tax.html
 
-**Hockney’s Sense of Style Never Wavered**\
+**David Hockney’s Sense of Style Never Wavered**\
 `The painter David Hockney’s clothes roared with mirth and maximalism.`\
 https://www.nytimes.com/2026/06/12/fashion/hockney-style-color.html
 
@@ -177,14 +185,6 @@ https://www.nytimes.com/live/2026/06/12/world/iran-war-trump-us-israel
 **Risk Strait of Hormuz or Wait? Shipping Companies Face a Costly Dilemma.**\
 `With more than 500 ships still stranded in the Persian Gulf, pressure on the shipowners and sailors is growing by the day.`\
 https://www.nytimes.com/2026/06/12/business/strait-hormuz-ships-iran.html
-
-**Google Sues to Stop Chinese Cybercrime Group from Using Its A.I.**\
-`In a lawsuit, the tech giant accused the group of using Google’s Gemini system to create hundreds of fake corporate and government websites.`\
-https://www.nytimes.com/2026/06/12/technology/google-lawsuit-china-ai-scams.html
-
-**Bring the Kids and Grab Some Barbecue: A Day at the Ukrainian Drone Races**\
-`Competitions that give soldiers a brief break from the front have a festival-like atmosphere, a mix of potentially deadly weapons and frolicking children.`\
-https://www.nytimes.com/2026/06/12/world/europe/ukraine-drone-races.html
 
 **World Cup Updates: Tournament Could Be a Bonanza for Betting Sites**\
 `(No description)`\
