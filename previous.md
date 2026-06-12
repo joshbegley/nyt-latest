@@ -22,7 +22,7 @@ https://www.nytimes.com/2026/06/12/us/midland-texas-shooting-active-shooter.html
 `Bruckner’s Eighth Symphony was performed in the same week by two of Lincoln Center’s orchestras. Was it coincidence or bad communication?`\
 https://www.nytimes.com/2026/06/12/arts/music/bruckner-eight-ny-phil-met-orchestra.html
 
-**Elon Musk Becomes the World’s First Trillionaire**\
+**Elon Musk Becomes World’s First Trillionaire as SpaceX Stock Begins Trading**\
 `With SpaceX shares soaring on their first day of trading, the world’s richest person crossed another milestone — one with 13 digits.`\
 https://www.nytimes.com/2026/06/12/technology/elon-musk-trillionaire.html
 

@@ -1,3 +1,7 @@
+**Elon Musk Becomes World’s First Trillionaire as SpaceX Stock Begins Trading**\
+`With SpaceX shares soaring on their first day of trading, the world’s richest person crossed another milestone — one with 13 digits.`\
+https://www.nytimes.com/2026/06/12/technology/elon-musk-trillionaire.html
+
 **Trump y Hegseth anuncian los ataques militares de EE. UU. con antelación**\
 `Los mandos militares no suelen hablar públicamente sobre operaciones futuras para no poner en peligro el éxito de la misión.`\
 https://www.nytimes.com/es/2026/06/12/espanol/estados-unidos/trump-hegseth-ataques-iran.html
