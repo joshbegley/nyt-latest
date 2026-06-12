@@ -1,3 +1,15 @@
+**Muere David Hockney, célebre pintor pop**\
+`Sus obras figurativas eran a la vez conservadoras e iconoclastas, desafiando las escuelas abstractas dominantes de mediados del siglo XX.`\
+https://www.nytimes.com/es/2026/06/12/espanol/cultura/muere-david-hockney-pintor.html
+
+**Blake Lively Awarded Legal Fees in Ruling After Justin Baldoni Settlement**\
+`The size of the award remains to be determined as it only involves the legal fees associated with part of her court battle with Mr. Baldoni, with whom she made a film.`\
+https://www.nytimes.com/2026/06/12/movies/blake-lively-legal-fees-ruling-justin-baldoni-settlement.html
+
+**Irán, y el mundo, permanecen en el limbo entre la guerra y la paz**\
+`Desde que se anunció un alto al fuego nominal hace dos meses, Irán, Israel y EE. UU. han seguido enzarzados en una violencia de baja intensidad que se ha convertido en la nueva normalidad.`\
+https://www.nytimes.com/es/2026/06/12/espanol/mundo/iran-guerra-limbo.html
+
 **Trump y Hegseth anuncian los ataques militares de EE. UU. con antelación**\
 `Los mandos militares no suelen hablar públicamente sobre operaciones futuras para no poner en peligro el éxito de la misión.`\
 https://www.nytimes.com/es/2026/06/12/espanol/estados-unidos/trump-hegseth-ataques-iran.html
@@ -173,18 +185,6 @@ https://www.nytimes.com/2026/06/12/podcasts/the-headlines/the-headlines-news-qui
 **‘Hard Fork’ Live, Part 1: Satya Nadella and Cindy Cohn**\
 `A tech titan, a digital rights defender and two menacing-looking robot dogs took the stage at our second-ever live show.`\
 https://www.nytimes.com/2026/06/12/podcasts/hard-fork-live-part-1-satya-nadella.html
-
-**A Trillionaire?**\
-`SpaceX is expected to make Elon Musk even richer when its stock begins trading today.`\
-https://www.nytimes.com/2026/06/12/briefing/a-trillionaire.html
-
-**2026 World Cup: Breaking Down the U.S. Men’s National Team Roster**\
-`After Mexico’s successful opener, can the U.S.M.N.T.’s “golden generation” also deliver in its first game?`\
-https://www.nytimes.com/2026/06/12/podcasts/world-cup-usmnt-mexico-south-africa.html
-
-**What I Learned From David Hockney**\
-`The curator Norman Rosenthal knew the artist for over 60 years and still discovered something new when they collaborated on a final blockbuster show.`\
-https://www.nytimes.com/2026/06/12/arts/design/david-hockney-norman-rosenthal.html
 
 **World Cup Updates: Tournament Could Be a Bonanza for Betting Sites**\
 `(No description)`\

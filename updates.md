@@ -1,3 +1,15 @@
+**Muere David Hockney, célebre pintor pop**\
+`Sus obras figurativas eran a la vez conservadoras e iconoclastas, desafiando las escuelas abstractas dominantes de mediados del siglo XX.`\
+https://www.nytimes.com/es/2026/06/12/espanol/cultura/muere-david-hockney-pintor.html
+
+**Blake Lively Awarded Legal Fees in Ruling After Justin Baldoni Settlement**\
+`The size of the award remains to be determined as it only involves the legal fees associated with part of her court battle with Mr. Baldoni, with whom she made a film.`\
+https://www.nytimes.com/2026/06/12/movies/blake-lively-legal-fees-ruling-justin-baldoni-settlement.html
+
+**Irán, y el mundo, permanecen en el limbo entre la guerra y la paz**\
+`Desde que se anunció un alto al fuego nominal hace dos meses, Irán, Israel y EE. UU. han seguido enzarzados en una violencia de baja intensidad que se ha convertido en la nueva normalidad.`\
+https://www.nytimes.com/es/2026/06/12/espanol/mundo/iran-guerra-limbo.html
+
 **Elon Musk Becomes World’s First Trillionaire as SpaceX Stock Begins Trading**\
 `With SpaceX shares soaring on their first day of trading, the world’s richest person crossed another milestone — one with 13 digits.`\
 https://www.nytimes.com/2026/06/12/technology/elon-musk-trillionaire.html
