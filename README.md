@@ -1,3 +1,11 @@
+**Google Sues to Stop Chinese Cybercrime Group from Using Its A.I.**\
+`In a lawsuit, the tech giant accused the group of using Google’s Gemini system to create hundreds of fake corporate and government websites.`\
+https://www.nytimes.com/2026/06/12/technology/google-lawsuit-china-ai-scams.html
+
+**Bring the Kids and Grab Some Barbecue: A Day at the Ukrainian Drone Races**\
+`Competitions that give soldiers a brief break from the front have a festival-like atmosphere, a mix of potentially deadly weapons and frolicking children.`\
+https://www.nytimes.com/2026/06/12/world/europe/ukraine-drone-races.html
+
 **World Cup Ticket Prices in Mexico City Too Expensive for Most Fans**\
 `The opening game in Mexico City took place amid weeks of protests from groups including teachers’ unions complaining about pay and pensions.`\
 https://www.nytimes.com/2026/06/12/us/world-cup-tickets-expensive-mexico.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/06/12/espanol/resena-el-dia-de-la-revelacion-spi
 **Cuando la IA resuelve en días lo que los matemáticos tardan años**\
 `Una empresa gastó 100.000 dólares en completar en cinco días una demostración que un equipo académico llevaba dos años construyendo. El episodio desató un pánico silencioso en los departamentos de matemáticas del mundo.`\
 https://www.nytimes.com/es/2026/06/12/espanol/ciencia-y-tecnologia/ia-resuelve-matematicas.html
-
-**Ciclo de violencia en el Reino Unido: ataques de odio, agitación de la derecha y disturbios**\
-`Dos apuñalamientos han incitado protestas violentas en Inglaterra e Irlanda del Norte en los últimos 10 días, avivadas en internet por voces de la derecha. Es un patrón sombrío en el Reino Unido y en toda Europa.`\
-https://www.nytimes.com/es/2026/06/12/espanol/mundo/reino-unido-disturbios.html
-
-**‘Operation Pushkin’: Paris Trial Puts Spotlight on Rare-Book Heists**\
-`One by one, valuable works by Russian masters like Pushkin and Gogol were disappearing from libraries across Europe. Now six defendants are being prosecuted.`\
-https://www.nytimes.com/2026/06/12/world/europe/russian-book-theft-trial-paris.html
 
