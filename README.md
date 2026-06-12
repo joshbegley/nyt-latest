@@ -1,3 +1,7 @@
+**Trump’s Arch Would Mar Hallowed Ground**\
+`Readers respond to President Trump’s efforts to remake the capital. Also: The Knicks; a plan for Democrats; U.S. political flaws; voting in person.`\
+https://www.nytimes.com/2026/06/12/opinion/trump-arch-arlington.html
+
 **Muere David Hockney, célebre pintor pop**\
 `Sus obras figurativas eran a la vez conservadoras e iconoclastas, desafiando las escuelas abstractas dominantes de mediados del siglo XX.`\
 https://www.nytimes.com/es/2026/06/12/espanol/cultura/muere-david-hockney-pintor.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/06/12/business/dealbook/musks-spacex-ipo-playbook.h
 **Princess Bha of Thailand Dies at 47**\
 `Princess Bha, the eldest child of the Thai king, died on Thursday at age 47 after three and a half years in a coma, the royal palace said.`\
 https://www.nytimes.com/video/world/asia/100000010962795/princess-bha-thailand-dies-coma.html
-
-**‘The Headlines’ News Quiz: Jun. 12, 2026**\
-`Following the news? Tracy Mumford has some questions for you.`\
-https://www.nytimes.com/2026/06/12/podcasts/the-headlines/the-headlines-news-quiz-jun-12-2026.html
 
 **World Cup Updates: Tournament Could Be a Bonanza for Betting Sites**\
 `(No description)`\
