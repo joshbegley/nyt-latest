@@ -1,3 +1,7 @@
+**The Consequences of SpaceX’s Trillion-Dollar I.P.O.**\
+`SpaceX’s trading debut is expected to smash records. Wall Street is watching to see what else it disrupts.`\
+https://www.nytimes.com/2026/06/12/business/dealbook/musks-spacex-ipo-playbook.html
+
 **Princess Bha of Thailand Dies at 47**\
 `Princess Bha, the eldest child of the Thai king, died on Thursday at age 47 after three and a half years in a coma, the royal palace said.`\
 https://www.nytimes.com/video/world/asia/100000010962795/princess-bha-thailand-dies-coma.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/06/12/us/politics/ice-local-police-immi
 **Book Review: ‘Rialto,’ by Kate Milford, and ‘Fatal Glitch: Camp Zero,’ by Erin Entrada Kelly and Eliot Schrefer**\
 `Kate Milford’s cozy mystery is set at an abandoned amusement park, while Erin Entrada Kelly and Eliot Schrefer’s horror satire unfolds at a malevolent sleepaway camp.`\
 https://www.nytimes.com/2026/06/12/books/review/rialto-kate-milford-fatal-glitch-camp-zero-erin-entrada-kelly-eliot-schrefer.html
-
-**Book Review: ‘As If,’ by Isabel Waidner**\
-`In this surreal book, two spiraling men swap lives.`\
-https://www.nytimes.com/2026/06/12/books/review/as-if-isabel-waidner.html
 
