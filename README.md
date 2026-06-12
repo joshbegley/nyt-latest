@@ -1,3 +1,15 @@
+**Signet Rings for Now**\
+`These days, the classic jewelry piece conveys personal style at least as much as it does lineage.`\
+https://www.nytimes.com/2026/06/11/t-magazine/fashion/signet-rings-for-now.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/t-magazine/fashion/100000010961150/11tmag-signet.html
+
+**Oil Falls, Stocks Rise as Trump Signals Iran Peace Deal Takes Shape**\
+`Oil prices retreated and stocks rallied after President Trump called off plans for another day of strikes on Iran, saying that a peace deal could be within reach.`\
+https://www.nytimes.com/2026/06/11/business/oil-gas-price-iran.html
+
 **Drones Flown Over North Korea Were Part of Martial Law Plot by Former South Korean President**\
 `A court ruled that Yoon Suk Yeol, the impeached former president, had sought to stir up instability to justify his bid for authoritarian rule in 2024.`\
 https://www.nytimes.com/2026/06/11/world/asia/north-korea-drones-martial-law.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/11/technology/spacex-ipo-price.html
 **Raphael Warnock: We Are Witnessing an Assault on Basic Voting Rights**\
 `The Supreme Court “has committed violence against the ways in which ordinary people can have a voice in our system,” says Senator Raphael Warnock, a Democrat from Georgia.`\
 https://www.nytimes.com/video/podcasts/100000010961922/raphael-warnock-we-are-witnessing-an-assault-on-basic-voting-rights.html
-
-**Published in error**\
-`This article was published in error.`\
-https://www.nytimes.com/interactive/2026/06/11/business/box-office-charts.html
-
-**Looking for an Egyptian Sandwich and More Reader Questions**\
-`Becky Hughes is back to answer readers’ urgent restaurant requests.`\
-https://www.nytimes.com/2026/06/11/dining/looking-for-an-egyptian-sandwich-and-more-reader-questions.html
-
-**Slayyyter Sees No Use For ‘Taste Peacocking’ In Pop**\
-`Slayyyter became one of 2026’s breakout pop stars with the release of her third album, “Worst Girl in America,” and a viral Coachella set. On “Popcast,” she shares her thoughts on why, as Lady Gaga once said, loving pop music will never be “low brow.”`\
-https://www.nytimes.com/video/podcasts/100000010961733/slayyyter-sees-no-use-for-taste-peacocking-in-pop.html
 
