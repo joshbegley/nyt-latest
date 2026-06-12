@@ -1,3 +1,7 @@
+**Justice Dept. Clears Way for Paramount-Warner Bros. Merger**\
+`The $111 billion deal would unite two major movie studios and put CNN under the same roof as CBS News.`\
+https://www.nytimes.com/2026/06/12/business/media/paramount-warner-bros-merger.html
+
 **Tornadoes Tear Through Midwest States**\
 `Tornadoes were reported in Illinois, Indiana and Wisconsin on Thursday, bringing powerful winds, heavy rain and hail.`\
 https://www.nytimes.com/video/weather/100000010964081/tornadoes-tear-through-midwest-states.html

@@ -1,3 +1,7 @@
+**Elon Musk Becomes the World’s First Trillionaire**\
+`Also, officials say a U.S.-Iran cease-fire appears within reach.`\
+https://www.nytimes.com/2026/06/12/briefing/elon-musk-spacex-us-iran-deal.html
+
 **Justice Dept. Clears Way for Paramount-Warner Bros. Merger**\
 `The $111 billion deal would unite two major movie studios and put CNN under the same roof as CBS News.`\
 https://www.nytimes.com/2026/06/12/business/media/paramount-warner-bros-merger.html
@@ -169,10 +173,6 @@ https://www.nytimes.com/es/2026/06/12/espanol/mundo/iran-guerra-limbo.html
 **Trump y Hegseth anuncian los ataques militares de EE. UU. con antelación**\
 `Los mandos militares no suelen hablar públicamente sobre operaciones futuras para no poner en peligro el éxito de la misión.`\
 https://www.nytimes.com/es/2026/06/12/espanol/estados-unidos/trump-hegseth-ataques-iran.html
-
-**Families of Air India Crash Victims Seek Answers One Year On**\
-`Grieving relatives returned to Ahmedabad to honor the 260 lives lost in the June 2025 disaster, but investigators have not yet released a report into the cause.`\
-https://www.nytimes.com/2026/06/12/world/asia/india-air-crash-report-families.html
 
 **Elon Musk Becomes World’s First Trillionaire on SpaceX’s First Day of Trading**\
 `Stock in Mr. Musk’s rocket and satellite maker closed just above $161, up more than 19 percent from its I.P.O. price.`\
