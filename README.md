@@ -1,3 +1,63 @@
+**SpaceX’s I.P.O. Will Help Fulfill Elon Musk’s Political Vision of America**\
+`The SpaceX I.P.O. will enable its founder to build — and scale — his peculiar vision of society.`\
+https://www.nytimes.com/2026/06/12/opinion/elon-musk-spacex-starbase-texas.html
+
+**AIPAC Wants Democrats to Back Israel. Instead, They’re Turning on AIPAC.**\
+`Once the guardian of the bipartisan pro-Israel consensus, it is now a polarizing force in the party.`\
+https://www.nytimes.com/2026/06/12/magazine/aipac-democrats-israel.html
+
+**An Upscale Hotel Breaks Ground in Downtown Newburgh — the First in 133 Years**\
+`A boutique hotel group known for pioneering tourism in the pastoral Western Catskills has set its sights on one of the Hudson Valley’s most complicated downtowns.`\
+https://www.nytimes.com/2026/06/12/realestate/foster-supply-hospitality-newburgh-hotel.html
+
+**A Guide to Chicago’s South Side, Home of the New Obama Center**\
+`The Obama Presidential Center, opening on June 19, is poised to attract visitors to an often-overlooked area. Here’s what you’ll find in Hyde Park and beyond.`\
+https://www.nytimes.com/2026/06/12/travel/chicago-south-side-obama-center.html
+
+**‘Disclosure Day’ | Anatomy of a Scene**\
+`The director Steven Spielberg breaks down an action sequence from his new film “Disclosure Day” for Anatomy of a Scene.`\
+https://www.nytimes.com/video/movies/100000010945475/disclosure-day-anatomy-of-a-scene.html
+
+**Excitement and Frustration Mix as the World Cup Comes to America**\
+`Astronomical ticket prices, soaring security costs and concern over traffic and transit snarls is mixed with pride in host cities and excitement over the U.S. team.`\
+https://www.nytimes.com/2026/06/12/us/world-cup-united-states-anxiety.html
+
+**It’s Time to Worry About Ticks in the City**\
+`Think ticks are limited to rural areas and the wilderness? Think again.`\
+https://www.nytimes.com/2026/06/12/us/urban-ticks-new-york-city-philadelphia-washington.html
+
+**‘The Gas Station Attendant’ Review: A Daughter’s Questions**\
+`Karla Murthy retells her Indian dad’s life story to better understand her own in this deeply personal documentary.`\
+https://www.nytimes.com/2026/06/12/movies/the-gas-station-attendant-review.html
+
+**ICE Wants Local Police to Enforce Immigration Law. These Officers Signed Up.**\
+`The Trump administration has enlisted hundreds of state and local law enforcement agencies to support its mass deportation campaign.`\
+https://www.nytimes.com/interactive/2026/06/12/us/politics/ice-local-police-immigration-287g.html
+
+**Book Review: ‘Rialto,’ by Kate Milford, and ‘Fatal Glitch: Camp Zero,’ by Erin Entrada Kelly and Eliot Schrefer**\
+`Kate Milford’s cozy mystery is set at an abandoned amusement park, while Erin Entrada Kelly and Eliot Schrefer’s horror satire unfolds at a malevolent sleepaway camp.`\
+https://www.nytimes.com/2026/06/12/books/review/rialto-kate-milford-fatal-glitch-camp-zero-erin-entrada-kelly-eliot-schrefer.html
+
+**Book Review: ‘As If,’ by Isabel Waidner**\
+`In this surreal book, two spiraling men swap lives.`\
+https://www.nytimes.com/2026/06/12/books/review/as-if-isabel-waidner.html
+
+**Inside Cesar Chavez’s Labor Union, Women Faced a Culture of Sexual Abuse**\
+`Many of the women who helped lead the fight for Latino civil rights say they were quietly waging their own battles with harassment, misogyny and sexual assault inside the powerful United Farm Workers union.`\
+https://www.nytimes.com/2026/06/12/us/cesar-chavez-dolores-huerta-united-farm-workers-sexual-abuse.html
+
+**A Globe-Spanning Collection of Children’s Art May Lose Its Home**\
+`For 40 years, a museum in Norway has showcased art by children from around the world, even toddlers. Now it has lost the state support it depended on.`\
+https://www.nytimes.com/2026/06/12/world/europe/oslo-childrens-art-museum-norway.html
+
+**She Was Dying of Cancer. How Should She Live?**\
+`Thanks to new treatments, some patients with Stage 4 cancer are living longer — leaving them in limbo for years.`\
+https://www.nytimes.com/2026/06/12/well/cancer-stage-4-terminal.html
+
+**She Used A.I. to Create Better Forecasts for Extreme Weather. Then Her Funding Was Cut.**\
+`Amy McGovern was the director of an A.I. institute dedicated to weather forecasting — until the National Science Foundation ended its funding.`\
+https://www.nytimes.com/2026/06/12/science/lost-science-ai-weather-forecasting.html
+
 **Cómo dos directores de la generación Z formados en YouTube conquistaron el cine de terror**\
 `‘Backrooms: sin salida’ y ‘Obsesión’ están reescribiendo las reglas de Hollywood. Dos críticos del Times analizan el fenómeno.`\
 https://www.nytimes.com/es/2026/06/12/espanol/cultura/backrooms-obsesion-directores-generacion-z-youtube.html
@@ -137,64 +197,4 @@ https://www.nytimes.com/2026/06/11/us/trump-los-angeles-homeless.html
 **NYT Crossword Answers for June 12, 2026**\
 `Amanda Winters opens our solving weekend.`\
 https://www.nytimes.com/2026/06/11/crosswords/daily-puzzle-2026-06-12.html
-
-**Supreme Court Blocks Alabama From Executing Inmate Using Nitrogen Gas**\
-`The unsigned decision for now spares Jeffery Lee, a convicted murderer, and could lead to a broader fight over the relatively new execution method.`\
-https://www.nytimes.com/2026/06/11/us/supreme-court-blocks-alabama-nitrogen-execution.html
-
-**What to Know About Jay Clayton, Trump’s Pick for Intelligence Director**\
-`Mr. Clayton, the U.S. attorney in Manhattan and a former chairman of the Securities and Exchange Commission, has been overseeing an office known for prominent cases.`\
-https://www.nytimes.com/2026/06/11/us/politics/what-to-know-jay-clayton.html
-
-**The Tug-of-War for Control of the House in 2026’s Midterm Elections**\
-`While public sentiment has drifted in Democrats’ favor in many of the midterm House races, Republicans have strong-armed a structural advantage: redrawing congressional maps.`\
-https://www.nytimes.com/interactive/2026/06/11/us/politics/midterms-elections-congress-democrats-republicans-redistricting.html
-
-**‘Obsession’ and the Caricature of the ‘Crazy Girlfriend’**\
-`Angelica Jade Bastién, a pop culture critic, joins Wesley Morris on “Cannonball” to talk about how women were portrayed in the hit horror movie “Obsession.”`\
-https://www.nytimes.com/video/podcasts/100000010954853/obsession-and-the-caricature-of-the-crazy-girlfriend.html
-
-**National Mall Grass Vandalized with ’86 47’ Stains**\
-`The vandalism was the latest in a spate of apparent demonstrations involving the slang term, which the Trump administration says is a reference to assassinating the president.`\
-https://www.nytimes.com/2026/06/11/us/national-mall-grass-vandalized-86-47-trump.html
-
-**For a Knicks Reporter, Good Basketball Wasn’t Always So Easy to Find**\
-`In 2015, the team was so bad, The Times’s beat writer took a break to search for the game in its prettier forms.`\
-https://www.nytimes.com/2026/06/11/insider/knicks-bad-season.html
-
-**Off-Duty Officer Indicted on a Charge of Attempted Murder Over Stolen Car**\
-`The officer fired two shots into another vehicle during the search for his car and struck a man in the head.`\
-https://www.nytimes.com/2026/06/11/nyregion/off-duty-officer-shooting-attempted-murder.html
-
-**Major League Baseball Will Question the Dodgers’s Doctor About Banned Drugs**\
-`The inquiry comes after a report that Dr. Neal ElAttrache, the physician for the team, supported the U.F.C. star Conor McGregor in using performance-enhancing drugs while recovering from an injury.`\
-https://www.nytimes.com/2026/06/11/sports/baseball/baseball-doctor-steroids-mcgregor.html
-
-**Kennedy Center Appeals Order to Remove Trump’s Name**\
-`One day before a deadline to take the president’s name off its facade, the arts institution appealed a federal judge’s ruling that also temporarily blocked it from closing.`\
-https://www.nytimes.com/2026/06/11/arts/music/kennedy-center-appeal-trump-name.html
-
-**Slayyyter on Her Viral Coachella Performaance.**\
-`Slayyyter, became one of 2026’s breakout pop stars with the release of her third album “Worst Girl in America” and her viral Coachella set.`\
-https://www.nytimes.com/video/podcasts/100000010953398/slayyyter-on-her-viral-coachella-performaance.html
-
-**Copa Mundial 2026: partido de México en fotos**\
-`La ceremonia inaugural reunió a seguidores de México y visitantes de distintos países en una jornada que combinó celebraciones, espectáculos, protestas y una fuerte presencia policial.`\
-https://www.nytimes.com/es/2026/06/11/espanol/america-latina/inauguracion-mundial-mexico-fifa.html
-
-**Melania Trump Unveils New Investment Accounts for Foster Children**\
-`The program allows states to invest benefits they receive on behalf of foster children in their care.`\
-https://www.nytimes.com/2026/06/11/us/politics/melania-trump-foster-youth-accounts.html
-
-**Some States Opt Out of Trump’s ‘Great American State Fair’**\
-`At least five have declined to participate, the latest sign that the national 250th birthday celebration has become a fragmented and partisan affair as the president seeks his imprint.`\
-https://www.nytimes.com/2026/06/11/us/politics/great-american-state-fair.html
-
-**Tornadoes Are Reported as Storms Sweep the Midwest**\
-`Chicago is in the bull’s-eye of severe weather for the second day in a row. Tornadoes were reported in Illinois, Indiana and Wisconsin.`\
-https://www.nytimes.com/2026/06/11/weather/chicago-illinois-tornado-storms.html
-
-**Whipsawed Between Fear and Relief, Iranians Hope for War’s End**\
-`In addition to concerns about their safety in the event of another all-out war, many Iranians worry about the country’s economy further collapsing if the conflict remains in limbo.`\
-https://www.nytimes.com/2026/06/11/world/middleeast/iran-war-fear-hope.html
 
