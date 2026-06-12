@@ -1,3 +1,7 @@
+**Cómo dos directores de la generación Z formados en YouTube conquistaron el cine de terror**\
+`‘Backrooms: sin salida’ y ‘Obsesión’ están reescribiendo las reglas de Hollywood. Dos críticos del Times analizan el fenómeno.`\
+https://www.nytimes.com/es/2026/06/12/espanol/cultura/backrooms-obsesion-directores-generacion-z-youtube.html
+
 **The A.I. Proxy Fight Roiling the Race for a New York House Seat**\
 `Groups tied to OpenAI, Anthropic and other industry players have spent $16 million trying to pick the next member of Congress from Manhattan.`\
 https://www.nytimes.com/2026/06/12/nyregion/ai-money-bores-lasher-primary.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/11/weather/chicago-illinois-tornado-storms.html
 **Whipsawed Between Fear and Relief, Iranians Hope for War’s End**\
 `In addition to concerns about their safety in the event of another all-out war, many Iranians worry about the country’s economy further collapsing if the conflict remains in limbo.`\
 https://www.nytimes.com/2026/06/11/world/middleeast/iran-war-fear-hope.html
-
-**Rikers Employee Charged With Extorting Corrections Officers for Gifts**\
-`A supervisor at the Rikers Island jail complex threatened to withhold overtime pay and vacation days from officers who did not give her gifts and run her errands, prosecutors said.`\
-https://www.nytimes.com/2026/06/11/nyregion/rikers-jail-supervisor-extortion.html
 
