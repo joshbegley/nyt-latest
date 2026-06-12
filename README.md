@@ -1,3 +1,7 @@
+**Reto de verano: saca tu teléfono del cuarto para dormir mejor**\
+`Solo te tomará unos minutos`\
+https://www.nytimes.com/interactive/2026/06/12/espanol/como-dormir-celular-telefono.html
+
 **審判はあなた！**\
 `メジャーリーグの審判たちが、史上初となるボール・ストライク判定のビデオレビューに直面しています。あなたなら、正しく判定できるでしょうか？`\
 https://www.nytimes.com/ja/interactive/2026/06/12/upshot/major-league-baseball-abs-game-jp.html
@@ -169,10 +173,6 @@ https://www.nytimes.com/interactive/2026/06/12/upshot/flashback.html
 **Suspect in Fatal Shooting Is Dead After a Standoff in Midland, Texas, Officials Say**\
 `The man was confirmed to be dead after he had barricaded himself in a building in Midland, following an earlier shooting on Friday that killed one person and injured at least 11 others.`\
 https://www.nytimes.com/2026/06/12/us/midland-texas-shooting-active-shooter.html
-
-**The Philharmonic and the Met Engage in a Battle of the Bands**\
-`Bruckner’s Eighth Symphony was performed in the same week by two of Lincoln Center’s orchestras. Was it coincidence or bad communication?`\
-https://www.nytimes.com/2026/06/12/arts/music/bruckner-eight-ny-phil-met-orchestra.html
 
 **Elon Musk Becomes World’s First Trillionaire on SpaceX’s First Day of Trading**\
 `Stock in Mr. Musk’s rocket and satellite maker closed just above $161, up more than 19 percent from its I.P.O. price.`\
