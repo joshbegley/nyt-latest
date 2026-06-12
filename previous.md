@@ -1,3 +1,11 @@
+**‘The Headlines’ News Quiz: Jun. 12, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/06/12/podcasts/the-headlines/the-headlines-news-quiz-jun-12-2026.html
+
+**‘Hard Fork’ Live, Part 1: Satya Nadella and Cindy Cohn**\
+`A tech titan, a digital rights defender and two menacing-looking robot dogs took the stage at our second-ever live show.`\
+https://www.nytimes.com/2026/06/12/podcasts/hard-fork-live-part-1-satya-nadella.html
+
 **A Trillionaire?**\
 `SpaceX is expected to make Elon Musk even richer when its stock begins trading today.`\
 https://www.nytimes.com/2026/06/12/briefing/a-trillionaire.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/12/books/review/as-if-isabel-waidner.html
 **Inside Cesar Chavez’s Labor Union, Women Faced a Culture of Sexual Abuse**\
 `Many of the women who helped lead the fight for Latino civil rights say they were quietly waging their own battles with harassment, misogyny and sexual assault inside the powerful United Farm Workers union.`\
 https://www.nytimes.com/2026/06/12/us/cesar-chavez-dolores-huerta-united-farm-workers-sexual-abuse.html
-
-**A Globe-Spanning Collection of Children’s Art May Lose Its Home**\
-`For 40 years, a museum in Norway has showcased art by children from around the world, even toddlers. Now it has lost the state support it depended on.`\
-https://www.nytimes.com/2026/06/12/world/europe/oslo-childrens-art-museum-norway.html
-
-**She Was Dying of Cancer. How Should She Live?**\
-`Thanks to new treatments, some patients with Stage 4 cancer are living longer — leaving them in limbo for years.`\
-https://www.nytimes.com/2026/06/12/well/cancer-stage-4-terminal.html
 

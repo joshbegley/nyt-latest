@@ -1,3 +1,11 @@
+**‘The Headlines’ News Quiz: Jun. 12, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/06/12/podcasts/the-headlines/the-headlines-news-quiz-jun-12-2026.html
+
+**‘Hard Fork’ Live, Part 1: Satya Nadella and Cindy Cohn**\
+`A tech titan, a digital rights defender and two menacing-looking robot dogs took the stage at our second-ever live show.`\
+https://www.nytimes.com/2026/06/12/podcasts/hard-fork-live-part-1-satya-nadella.html
+
 **A Trillionaire?**\
 `SpaceX is expected to make Elon Musk even richer when its stock begins trading today.`\
 https://www.nytimes.com/2026/06/12/briefing/a-trillionaire.html
