@@ -1,3 +1,7 @@
+**FISA, a Key U.S. Spying Power, Is Expiring. What Does That Mean for Foreign Surveillance?**\
+`Top officials and some lawmakers say letting a powerful spying authority expire on Saturday will leave the United States dangerously blind. But surveillance can still continue.`\
+https://www.nytimes.com/2026/06/12/us/politics/fisa-expiration.html
+
 **Framing David Hockney’s Greatest Art**\
 `Whether in Los Angeles, in his native England or traveling the world, the artist always reinvented the world he saw, with psychological insight.`\
 https://www.nytimes.com/2026/06/12/arts/design/david-hockney-partworks-photostack.html

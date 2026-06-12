@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/06/12/nyregion/bernie-sanders-mamdani-nyc-primary-e
 `Israeli strikes on Friday left Lebanon out of sync with a cautious optimism taking hold elsewhere in the Middle East.`\
 https://www.nytimes.com/2026/06/12/world/middleeast/lebanon-israel-war-trump-iran.html
 
-**A Key Spying Power Is Expiring. Will Foreign Surveillance Go Dark?**\
+**FISA, a Key U.S. Spying Power, Is Expiring. What Does That Mean for Foreign Surveillance?**\
 `Top officials and some lawmakers say letting a powerful spying authority expire on Saturday will leave the United States dangerously blind. But surveillance can still continue.`\
 https://www.nytimes.com/2026/06/12/us/politics/fisa-expiration.html
 
