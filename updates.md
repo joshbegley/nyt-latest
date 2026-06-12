@@ -1,3 +1,7 @@
+**A Dangerous Limbo Leaves Iran, and the World, Between Peace and War**\
+`Since announcing a nominal cease-fire two months ago, Iran, Israel and the U.S. have remained locked in low-intensity violence that has become a new normal.`\
+https://www.nytimes.com/2026/06/12/world/middleeast/iran-war-limbo.html
+
 **Anti-Immigrant Riots Leave Belfast on Edge: ‘Everyone Is Afraid’**\
 `In two nights of violence in Northern Ireland after a brutal stabbing, people were targeted because of their skin color, the authorities said.`\
 https://www.nytimes.com/2026/06/12/world/europe/belfast-stabbing-riots-anti-immigrant.html
