@@ -1,3 +1,7 @@
+**Canada Has Its Elbows Up and Arms Wide Open at the World Cup**\
+`Facing President Trump’s threats, many Canadians have taken a defensive stance to their neighbor. But now Canada is playing co-host with the United States and Mexico, and welcoming the world.`\
+https://www.nytimes.com/2026/06/12/world/canada/2026-world-cup-canada-bosnia-toronto.html
+
 **26-Year Mystery of a Skeleton in a Tent Ends With DNA Identification**\
 `Remains of the man, Joseph Louis Serrao, Jr., discovered in a remote area in Olympic National Park in 2000, were identified using forensic genealogy.`\
 https://www.nytimes.com/2026/06/12/us/human-remains-olympic-national-park-washington.html
@@ -169,10 +173,6 @@ https://www.nytimes.com/2026/06/12/arts/music/olivia-rodrigo-you-seem-pretty-sad
 **Today, In Short**\
 `Frozen yogurt. Ancient squirrels. And the World Cup.`\
 https://www.nytimes.com/2026/06/12/briefing/today-in-short.html
-
-**Spaghetti Carbonara Is a Classic for a Reason**\
-`And more of our most popular recipes from the week.`\
-https://www.nytimes.com/2026/06/12/dining/spaghetti-carbonara-is-a-classic-for-a-reason.html
 
 **Live Updates: Elon Musk Becomes World’s First Trillionaire on SpaceX’s First Day of Trading**\
 `Stock in Mr. Musk’s rocket and satellite maker was trading above $160 per share as markets closed, up roughly 20 percent from its I.P.O. price.`\
