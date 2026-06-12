@@ -1,3 +1,7 @@
+**Charles Dennis, a Founder of the Avant-Garde Space P.S. 122, Dies at 77**\
+`A performance artist, dancer, choreographer, videographer, filmmaker and curator, he was a central figure in the downtown Manhattan experimental arts scene.`\
+https://www.nytimes.com/2026/06/12/theater/charles-dennis-dead.html
+
 **Seth Rogen Knows the Secret to a Good Marriage — and Being Rich in Hollywood**\
 `Lulu Garcia-Navarro speaks with Seth Rogen about his early start in comedy and the prolific Hollywood career that followed.`\
 https://www.nytimes.com/video/podcasts/100000010963471/seth-rogen-knows-the-secret-to-a-good-marriage-and-being-rich-in-hollywood.html
@@ -139,7 +143,7 @@ https://www.nytimes.com/2026/06/12/us/midland-texas-shooting-active-shooter.html
 https://www.nytimes.com/2026/06/12/arts/music/bruckner-eight-ny-phil-met-orchestra.html
 
 **Elon Musk Becomes World’s First Trillionaire as SpaceX Stock Begins Trading**\
-`With SpaceX shares soaring on their first day of trading, the world’s richest person crossed another milestone — one with 13 digits.`\
+`With SpaceX shares soaring 20 percent on their first day of trading, the world’s richest person crossed another milestone — one with 13 digits.`\
 https://www.nytimes.com/2026/06/12/technology/elon-musk-trillionaire.html
 
 **A Kennedy Center Drama: Whether Trump’s Name Stays**\
