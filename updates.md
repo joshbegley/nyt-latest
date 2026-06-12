@@ -1,3 +1,11 @@
+**A Key Spying Power Is Expiring. Will Foreign Surveillance Go Dark?**\
+`Top officials and some lawmakers say letting a powerful spying authority expire on Saturday will leave the United States dangerously blind. But surveillance can still continue.`\
+https://www.nytimes.com/2026/06/12/us/politics/fisa-expiration.html
+
+**World Cup Updates: Tournament Could Be a Bonanza for Betting Sites**\
+`(No description)`\
+https://www.nytimes.com/live/2026/us/fifa-world-cup
+
 **Review: Olivia Rodrigo’s ‘You Seem Pretty Sad for a Girl So in Love’**\
 `On “You Seem Pretty Sad for a Girl So in Love,” the 23-year-old singer delivers a polished, solemn breakup chronicle that misses her signature adrenaline rush.`\
 https://www.nytimes.com/2026/06/12/arts/music/olivia-rodrigo-you-seem-pretty-sad-for-a-girl-so-in-love-review.html
