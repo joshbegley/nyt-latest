@@ -1,3 +1,7 @@
+**Summer Reading Contest, Week 2: What Got Your Attention in The Times This Week?**\
+`To participate, submit your response here by June 19 at 9 a.m. Eastern. This week’s winners will be announced by July 1.`\
+https://www.nytimes.com/2026/06/12/learning/summer-reading-contest-week-2-what-got-your-attention-in-the-times-this-week.html
+
 **Anti-Immigrant Riots after Belfast Stabbing Leave City on Edge**\
 `In two nights of violence in Northern Ireland after a brutal stabbing, people were targeted because of their skin color, the authorities said.`\
 https://www.nytimes.com/2026/06/12/world/europe/belfast-stabbing-riots-anti-immigrant.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/12/us/urban-ticks-new-york-city-philadelphia-was
 **‘The Gas Station Attendant’ Review: A Daughter’s Questions**\
 `Karla Murthy retells her Indian dad’s life story to better understand her own in this deeply personal documentary.`\
 https://www.nytimes.com/2026/06/12/movies/the-gas-station-attendant-review.html
-
-**ICE Wants Local Police to Enforce Immigration Law. These Officers Signed Up.**\
-`The Trump administration has enlisted hundreds of state and local law enforcement agencies to support its mass deportation campaign.`\
-https://www.nytimes.com/interactive/2026/06/12/us/politics/ice-local-police-immigration-287g.html
 
