@@ -1,3 +1,7 @@
+**Opera Company Sues to Collect $17 Million From the Kennedy Center**\
+`The Washington National Opera, which left the center amid the Trump administration’s takeover, says its efforts to retrieve its endowment and other assets have been blocked.`\
+https://www.nytimes.com/2026/06/12/arts/music/kennedy-center-washington-national-opera-lawsuit-endowment.html
+
 **Joe Negri, Handyman and Music Maestro on ‘Mister Rogers,’ Dies at 99**\
 `An accomplished jazz guitarist, he appeared on more than 300 episodes of the public television show, playing alongside musicians like Wynton Marsalis and Yo-Yo Ma.`\
 https://www.nytimes.com/2026/06/12/arts/music/joe-negri-dead.html
@@ -134,8 +138,8 @@ https://www.nytimes.com/2026/06/12/podcasts/ufc-at-the-white-house.html
 `Forecasters said the weather around Washington is likely to be hot and stormy.`\
 https://www.nytimes.com/2026/06/12/weather/trump-ufc-fight-storms-heat.html
 
-**Iran War Live Updates: Tense Calm Grips Mideast as Trump Again Claims Deal Is Close**\
-`President Trump said he had called off new attacks on Iran and that a peace agreement could be signed this weekend. A spokesman for Iran’s foreign ministry said, “Nothing has been finalized.”`\
+**Iran War Live Updates: Conflicting Accounts Emerge of Possible Peace Deal**\
+`While President Trump has claimed a deal is close, a spokesman for Iran’s foreign ministry said, “Nothing has been finalized.” Neither country has publicly disclosed details of a proposed agreement.`\
 https://www.nytimes.com/live/2026/06/12/world/iran-war-trump-us-israel
 
 **Risk Strait of Hormuz or Wait? Shipping Companies Face a Costly Dilemma.**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/12/business/spacex-biggest-ipos-elon-musk.html
 **Slayyyter Had One Last Chance for Pop Stardom, and She Nailed It**\
 `After a few attempts that didn’t fully connect, the St. Louis singer was ready to walk away, but not before making a raw album of thrashed pop, “Worst Girl in America.”`\
 https://www.nytimes.com/2026/06/12/arts/music/slayyyter-interview-popcast.html
-
-**Ohio City Worker Union Complains That Goats Are Eating Its Lunch**\
-`A union in Columbus made a formal complaint after the city farmed out brush-clearing duties at a wastewater plant. The competitors? Goats.`\
-https://www.nytimes.com/2026/06/12/us/columbus-ohio-goats-lunch.html
 
 **World Cup Updates: Excitement and Anxiety as Games Begin in U.S.**\
 `(No description)`\
