@@ -1,3 +1,7 @@
+**Influential Artist David Hockney Dies at Age 88**\
+`The artist David Hockney, 88, died at his home in London on Thursday. Mr. Hockney’s brightly colored paintings depicting California defied the mid-20th century’s dominant abstract schools and drew attention to figurative art.`\
+https://www.nytimes.com/video/arts/100000010963048/david-hockney-death-artist.html
+
 **La Iglesia española espera que la visita del papa León atraiga a los jóvenes al catolicismo**\
 `La visita de León XIV a España, que terminó el viernes, ha despertado entre los líderes católicos la esperanza de un renacimiento espiritual.`\
 https://www.nytimes.com/es/2026/06/12/espanol/mundo/espana-papa-leon.html
@@ -169,10 +173,6 @@ https://www.nytimes.com/2026/06/12/opinion/trump-arch-arlington.html
 **About 20 New Billionaires Could Be Minted by 3 Mega-I.P.O.s**\
 `Anthropic and OpenAI could join SpaceX with their own initial public offerings, setting many employees up to become millionaires or billionaires.`\
 https://www.nytimes.com/2026/06/12/business/economy/spacex-openai-anthropic-billionaires-ipos.html
-
-**Muere David Hockney, célebre pintor pop**\
-`Sus obras figurativas eran a la vez conservadoras e iconoclastas, desafiando las escuelas abstractas dominantes de mediados del siglo XX.`\
-https://www.nytimes.com/es/2026/06/12/espanol/cultura/muere-david-hockney-pintor.html
 
 **Elon Musk Becomes World’s First Trillionaire on SpaceX’s First Day of Trading**\
 `Stock in Mr. Musk’s rocket and satellite maker closed just above $161, up more than 19 percent from its I.P.O. price.`\
