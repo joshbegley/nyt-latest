@@ -1,3 +1,7 @@
+**What to Know About Jay Clayton, Trump’s Pick for Intelligence Director**\
+`Mr. Clayton, the U.S. attorney in Manhattan and a former chairman of the Securities and Exchange Commission, has been overseeing an office known for prominent cases.`\
+https://www.nytimes.com/2026/06/11/us/politics/what-to-know-jay-clayton.html
+
 **The Tug-of-War for Control of the House in 2026’s Midterm Elections**\
 `While public sentiment has drifted in Democrats’ favor in many of the midterm House races, Republicans have strong-armed a structural advantage: redrawing congressional maps.`\
 https://www.nytimes.com/interactive/2026/06/11/us/politics/midterms-elections-congress-democrats-republicans-redistricting.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/11/opinion/inequality-musk-thiel-carvalho-billio
 **2026 World Cup: Hidden FIFA Costs & a USMNT Preview**\
 `And, our top three stories as the tournament begins.`\
 https://www.nytimes.com/2026/06/11/us/2026-world-cup-hidden-fifa-costs-a-usmnt-preview.html
-
-**Postal Service Issues Proposal to Block Mail Ballots in States That Don’t Turn Over Data**\
-`Democrats and voting-rights groups have challenged the proposed rule as a harmful federal intrusion that could affect millions of voters who cast their ballots by mail.`\
-https://www.nytimes.com/2026/06/11/us/politics/usps-mail-voting-democratic-resistance.html
 

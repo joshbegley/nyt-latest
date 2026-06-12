@@ -1,3 +1,7 @@
+**What to Know About Jay Clayton, Trump’s Pick for Intelligence Director**\
+`Mr. Clayton, the U.S. attorney in Manhattan and a former chairman of the Securities and Exchange Commission, has been overseeing an office known for prominent cases.`\
+https://www.nytimes.com/2026/06/11/us/politics/what-to-know-jay-clayton.html
+
 **Kennedy Center Appeals Order to Remove Trump’s Name**\
 `One day before a deadline to take the president’s name off its facade, the arts institution appealed a federal judge’s ruling that also temporarily blocked it from closing.`\
 https://www.nytimes.com/2026/06/11/arts/music/kennedy-center-appeal-trump-name.html

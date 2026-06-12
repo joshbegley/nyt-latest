@@ -47,7 +47,7 @@ https://www.nytimes.com/2026/06/11/us/politics/melania-trump-foster-youth-accoun
 https://www.nytimes.com/2026/06/11/us/politics/great-american-state-fair.html
 
 **Tornadoes Are Reported in Illinois as Storms Sweep the Midwest**\
-`For the second day in a row, Chicago is in the bull’s-eye of severe weather on Thursday. Damage from tornadoes was reported Thursday evening.`\
+`For the second day in a row, Chicago is in the bull’s-eye of severe weather on Thursday, but the storm forecast is widespread.`\
 https://www.nytimes.com/2026/06/11/weather/chicago-illinois-tornado-storms.html
 
 **Whipsawed Between Fear and Relief, Iranians Hope for War’s End**\
