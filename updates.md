@@ -1,3 +1,7 @@
+**Mexico’s police focus on World Cup while thousands remain missing.**\
+`(No description)`\
+https://www.nytimes.com/article/mexicos-police-focus-on-world-cup-while-thousands-remain-missing.html
+
 **Taylor Swift Inducted Into the Songwriters Hall of Fame**\
 `At 36, Taylor Swift became the youngest woman ever inducted into the Songwriters Hall of Fame on Thursday.`\
 https://www.nytimes.com/video/arts/music/100000010963344/taylor-swift-songwriters-hall-of-fame.html

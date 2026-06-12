@@ -170,11 +170,11 @@ https://www.nytimes.com/2026/06/12/arts/music/taylor-swift-songwriters-hall-spee
 `The Washington National Opera, which left the center amid the Trump administration’s takeover, says its efforts to retrieve its endowment and other assets have been blocked.`\
 https://www.nytimes.com/2026/06/12/arts/music/kennedy-center-washington-national-opera-lawsuit-endowment.html
 
+**Mexico’s police focus on World Cup while thousands remain missing.**\
+`(No description)`\
+https://www.nytimes.com/article/mexicos-police-focus-on-world-cup-while-thousands-remain-missing.html
+
 **Live Updates: Elon Musk Becomes World’s First Trillionaire on SpaceX’s First Day of Trading**\
 `Stock in Mr. Musk’s rocket and satellite maker reached upward of $170 per share, up well over 20 percent from its I.P.O. price.`\
 https://www.nytimes.com/live/2026/06/12/business/spacex-ipo-elon-musk
-
-**World Cup Updates: Tournament Could Be a Bonanza for Betting Sites**\
-`(No description)`\
-https://www.nytimes.com/live/2026/us/fifa-world-cup
 
