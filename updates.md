@@ -1,3 +1,7 @@
+**Live Updates: Elon Musk Becomes World’s First Trillionaire as SpaceX Starts Trading**\
+`Mr. Musk’s rocket and satellite maker opened at $150 per share, up 11 percent from its I.P.O. price, and has been trading at well over 20 percent.`\
+https://www.nytimes.com/live/2026/06/12/business/spacex-ipo-elon-musk
+
 **If You Have a 401(k), How Much SpaceX Stock Will You Own?**\
 `If you have index funds — such as in a 401(k) — they may soon include shares of the mega company. Here’s a rough calculation.`\
 https://www.nytimes.com/2026/06/12/upshot/spacex-stock-ipo.html

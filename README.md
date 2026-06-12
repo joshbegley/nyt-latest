@@ -1,3 +1,11 @@
+**Taylor Swift Inducted Into the Songwriters Hall of Fame**\
+`At 36, Taylor Swift became the youngest female ever inducted into the Songwriters Hall of Fame on Thursday.`\
+https://www.nytimes.com/video/arts/music/100000010963344/taylor-swift-songwriters-hall-of-fame.html
+
+**Spain’s Church Hopes Pope Trip Will Stem Secular Tide**\
+`Leo XIV’s visit to Spain, which ended on Friday, has spurred expectations among Catholic leaders of a spiritual revival.`\
+https://www.nytimes.com/2026/06/12/world/europe/pope-leo-spain-secular-catholic.html
+
 **Atlanta Judge Eleanor Ross Says There Is ‘No Excuse’ For Her Misconduct**\
 `In a second apology letter, Judge Eleanor Ross said her actions were “patently wrong.” Some House Republicans want her impeached.`\
 https://www.nytimes.com/2026/06/12/us/judge-eleanor-ross-apology-letters.html
@@ -161,18 +169,6 @@ https://www.nytimes.com/2026/06/12/us/politics/trump-fact-check-triumphal-arch-r
 **They Bought a Famous Puzzle in Cryptography. Now They’re Opening It Up.**\
 `A San Francisco company paid nearly $1 million for the solution to an unsolved code in Kryptos, a sculpture on the C.I.A. grounds. Soon it will become an online challenge.`\
 https://www.nytimes.com/2026/06/12/science/kryptos-sale-cryptography.html
-
-**5 Ingredients for a Healthy Life**\
-`Living a good life doesn’t have to be complicated, Christian Angermayer, founder of the Enhanced Games, tells the columnist Ross Douthat on “Interesting Times,” and shares five basics he believes are crucial for optimizing your time on earth.`\
-https://www.nytimes.com/video/opinion/100000010960925/5-ingredients-for-a-healthy-life.html
-
-**Rick Jackson, Georgia Governor Candidate, Is Also a Film Producer Battling the IRS**\
-`Rick Jackson, a billionaire, wants to be Georgia’s next governor. But the I.R.S. has questioned how his low-budget movies turned into tax windfalls.`\
-https://www.nytimes.com/2026/06/12/us/elections/rick-jackson-georgia-governor-movies-tax.html
-
-**David Hockney’s Sense of Style Never Wavered**\
-`The painter David Hockney’s clothes roared with mirth and maximalism.`\
-https://www.nytimes.com/2026/06/12/fashion/hockney-style-color.html
 
 **Live Updates: Elon Musk Becomes World’s First Trillionaire as SpaceX Starts Trading**\
 `Mr. Musk’s rocket and satellite maker opened at $150 per share, up 11 percent from its I.P.O. price, and has been trading at well over 20 percent.`\
