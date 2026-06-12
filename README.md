@@ -1,6 +1,6 @@
 **Reseña de ‘El día de la revelación’: Spielberg repasa sus éxitos cósmicos**\
 `En una trepidante fantasía de ciencia ficción, impregnada de fastuosidad y protagonizada por Emily Blunt, Josh O’Connor y Colman Domingo, el cineasta nos lleva a todos a casa.`\
-https://www.nytimes.com/es/2026/06/12/espanol/resena-de-el-dia-de-la-revelacion-spielberg-repasa-sus-grandes-exitos-cosmicos.html
+https://www.nytimes.com/es/2026/06/12/espanol/resena-el-dia-de-la-revelacion-spielberg.html
 
 **Cuando la IA resuelve en días lo que los matemáticos tardan años**\
 `Una empresa gastó 100.000 dólares en completar en cinco días una demostración que un equipo académico llevaba dos años construyendo. El episodio desató un pánico silencioso en los departamentos de matemáticas del mundo.`\
@@ -146,8 +146,8 @@ https://www.nytimes.com/2026/06/11/us/politics/melania-trump-foster-youth-accoun
 `At least five have declined to participate, the latest sign that the national 250th birthday celebration has become a fragmented and partisan affair as the president seeks his imprint.`\
 https://www.nytimes.com/2026/06/11/us/politics/great-american-state-fair.html
 
-**Tornadoes Are Reported in Illinois as Storms Sweep the Midwest**\
-`For the second day in a row, Chicago is in the bull’s-eye of severe weather on Thursday, but the storm forecast is widespread.`\
+**Tornadoes Are Reported as Storms Sweep the Midwest**\
+`Chicago is in the bull’s-eye of severe weather for the second day in a row. Tornadoes were reported in Illinois, Indiana and Wisconsin.`\
 https://www.nytimes.com/2026/06/11/weather/chicago-illinois-tornado-storms.html
 
 **Whipsawed Between Fear and Relief, Iranians Hope for War’s End**\
