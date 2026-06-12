@@ -1,3 +1,19 @@
+**A Kennedy Center Drama: Whether Trump’s Name Stays**\
+`A judge said the president’s name must be removed by Friday. As a last-ditch legal battle unfolds, many eyes are on the marble facade.`\
+https://www.nytimes.com/2026/06/12/arts/music/kennedy-center-trump-name.html
+
+**Neil Shubin on Trusted Science in a ‘Deeply Partisan Age’**\
+`An eminent fossil hunter takes the reins at the National Academy of Sciences in a turbulent moment for American researchers.`\
+https://www.nytimes.com/2026/06/12/science/neil-shubin-national-academcy-sciences.html
+
+**El gran debut de SpaceX en la bolsa refuerza el poder de Musk**\
+`SpaceX dijo que vendería más de 555 millones de acciones a 135 dólares cada una. Con ello, la empresa de Elon Musk batiría el récord de la oferta pública inicial establecido antes por Saudi Aramco.`\
+https://www.nytimes.com/es/2026/06/12/espanol/negocios/spacex-bolsa-elon-musk.html
+
+**Live Updates: Minutes Into SpaceX Trading, Elon Musk Becomes World’s First Trillionaire**\
+`Mr. Musk’s rocket and satellite maker opened at $150 per share, up 11 percent from its I.P.O. price.`\
+https://www.nytimes.com/live/2026/06/12/business/spacex-ipo-elon-musk
+
 **SpaceX Rises 11% in Largest I.P.O. Ever**\
 `The stock market debut of Elon Musk’s rocket company paves the way for a wave of mega offerings that are coming from OpenAI and Anthropic.`\
 https://www.nytimes.com/2026/06/12/technology/spacex-ipo-elon-musk.html

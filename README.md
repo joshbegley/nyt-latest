@@ -1,3 +1,7 @@
+**Elon Musk Becomes the World’s First Trillionaire**\
+`With SpaceX shares soaring on their first day of trading, the world’s richest person crossed another milestone — one with 13 digits.`\
+https://www.nytimes.com/2026/06/12/technology/elon-musk-trillionaire.html
+
 **A Kennedy Center Drama: Whether Trump’s Name Stays**\
 `A judge said the president’s name must be removed by Friday. As a last-ditch legal battle unfolds, many eyes are on the marble facade.`\
 https://www.nytimes.com/2026/06/12/arts/music/kennedy-center-trump-name.html
@@ -114,7 +118,7 @@ https://www.nytimes.com/2026/06/12/world/asia/trump-anime-manga-japan-memes.html
 `Four decades after the conceptual artist Christo draped the Pont Neuf with fabric, JR, a French street artist, offers his own trick of the eye.`\
 https://www.nytimes.com/2026/06/12/arts/design/pont-neuf-jj.html
 
-**Live Updates: Minutes Into SpaceX Trading, Elon Musk Becomes World’s First Trillionaire**\
+**Live Updates: Elon Musk Becomes World’s First Trillionaire as SpaceX Starts Trading**\
 `Mr. Musk’s rocket and satellite maker opened at $150 per share, up 11 percent from its I.P.O. price.`\
 https://www.nytimes.com/live/2026/06/12/business/spacex-ipo-elon-musk
 
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/06/12/crosswords/connections-companion-1098.html
 **Today’s Wordle Hints for June 13, 2026**\
 `Scroll down for hints and conversation about the puzzle for Saturday, June 13, 2026.`\
 https://www.nytimes.com/2026/06/12/crosswords/wordle-review-1820.html
-
-**NYT Strands Hints for June 13, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, June 13, 2026.`\
-https://www.nytimes.com/2026/06/12/crosswords/strands-sidekick-832.html
 
 **World Cup Updates: Tournament Could Be a Bonanza for Betting Sites**\
 `(No description)`\
