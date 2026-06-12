@@ -1,3 +1,7 @@
+**Federal Agents Search Voting Rights Group in Ohio**\
+`It was not immediately clear what the investigators were looking for, but a board member with a progressive group said members had been served with search warrants.`\
+https://www.nytimes.com/2026/06/12/us/politics/federal-search-voting-rights-group-ohio.html
+
 **Canada Has Its Elbows Up and Arms Wide Open at the World Cup**\
 `Facing President Trump’s threats, many Canadians have taken a defensive stance to their neighbor. But now Canada is playing co-host with the United States and Mexico, and welcoming the world.`\
 https://www.nytimes.com/2026/06/12/world/canada/2026-world-cup-canada-bosnia-toronto.html

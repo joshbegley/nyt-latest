@@ -1,3 +1,7 @@
+**Federal Agents Search Voting Rights Group in Ohio**\
+`It was not immediately clear what the investigators were looking for, but a board member with a progressive group said members had been served with search warrants.`\
+https://www.nytimes.com/2026/06/12/us/politics/federal-search-voting-rights-group-ohio.html
+
 **Canada Has Its Elbows Up and Arms Wide Open at the World Cup**\
 `Facing President Trump’s threats, many Canadians have taken a defensive stance to their neighbor. But now Canada is playing co-host with the United States and Mexico, and welcoming the world.`\
 https://www.nytimes.com/2026/06/12/world/canada/2026-world-cup-canada-bosnia-toronto.html
@@ -169,10 +173,6 @@ https://www.nytimes.com/2026/06/12/us/politics/fisa-expiration.html
 **Review: Olivia Rodrigo’s ‘You Seem Pretty Sad for a Girl So in Love’**\
 `On “You Seem Pretty Sad for a Girl So in Love,” the 23-year-old singer delivers a polished, solemn breakup chronicle that misses her signature adrenaline rush.`\
 https://www.nytimes.com/2026/06/12/arts/music/olivia-rodrigo-you-seem-pretty-sad-for-a-girl-so-in-love-review.html
-
-**Today, In Short**\
-`Frozen yogurt. Ancient squirrels. And the World Cup.`\
-https://www.nytimes.com/2026/06/12/briefing/today-in-short.html
 
 **Live Updates: Elon Musk Becomes World’s First Trillionaire on SpaceX’s First Day of Trading**\
 `Stock in Mr. Musk’s rocket and satellite maker closed just above $161, up more than 19 percent from its I.P.O. price.`\
