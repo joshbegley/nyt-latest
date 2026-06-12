@@ -1,3 +1,7 @@
+**Some Leftists Are Boycotting This Film. Everyone Should Watch It.**\
+`The inanity of the leftists who’d censor such a film shouldn’t distract us from the right-wing nightmare it reveals.`\
+https://www.nytimes.com/2026/06/12/opinion/yes-israel-film-boycott.html
+
 **Anti-Immigrant Riots after Belfast Stabbing Leave City on Edge**\
 `In two nights of violence in Northern Ireland after a brutal stabbing, people were targeted because of their skin color, the authorities said.`\
 https://www.nytimes.com/2026/06/12/world/europe/belfast-stabbing-riots-anti-immigrant.html

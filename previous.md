@@ -86,7 +86,7 @@ https://www.nytimes.com/2026/06/12/world/europe/ukraine-drone-races.html
 `The opening game in Mexico City took place amid weeks of protests from groups including teachers’ unions complaining about pay and pensions.`\
 https://www.nytimes.com/2026/06/12/us/world-cup-tickets-expensive-mexico.html
 
-**‘Yes’ Is a Scathing Portrait of Israeli Depravity. Why Are European Leftists Boycotting It?**\
+**Some Leftists Are Boycotting This Film. Everyone Should Watch It.**\
 `The inanity of the leftists who’d censor such a film shouldn’t distract us from the right-wing nightmare it reveals.`\
 https://www.nytimes.com/2026/06/12/opinion/yes-israel-film-boycott.html
 
