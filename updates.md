@@ -1,3 +1,11 @@
+**A Trillionaire?**\
+`SpaceX is expected to make Elon Musk even richer when its stock begins trading today.`\
+https://www.nytimes.com/2026/06/12/briefing/a-trillionaire.html
+
+**2026 World Cup: Breaking Down the U.S. Men’s National Team Roster**\
+`After Mexico’s successful opener, can the U.S.M.N.T.’s “golden generation” also deliver in its first game?`\
+https://www.nytimes.com/2026/06/12/podcasts/world-cup-usmnt-mexico-south-africa.html
+
 **What I Learned From David Hockney**\
 `The curator Norman Rosenthal knew the artist for over 60 years and still discovered something new when they collaborated on a final blockbuster show.`\
 https://www.nytimes.com/2026/06/12/arts/design/david-hockney-norman-rosenthal.html
