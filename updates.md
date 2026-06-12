@@ -1,3 +1,7 @@
+**Review: Taking an Expressionist Class With the Royal Ballet**\
+`Paul Lightfoot and Sol León brought their blend of stretched balletic line and idiosyncratic gesture to London with a new work inspired by daily ballet class exercises.`\
+https://www.nytimes.com/2026/06/12/arts/dance/review-royal-ballet-salle-de-dance-lightfoot-leon.html
+
 **Taylor Swift Inducted Into the Songwriters Hall of Fame**\
 `At 36, Taylor Swift became the youngest female ever inducted into the Songwriters Hall of Fame on Thursday.`\
 https://www.nytimes.com/video/arts/music/100000010963344/taylor-swift-songwriters-hall-of-fame.html
