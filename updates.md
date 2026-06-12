@@ -1,3 +1,15 @@
+**Trump y Hegseth anuncian los ataques militares de EE. UU. con antelación**\
+`Los mandos militares no suelen hablar públicamente sobre operaciones futuras para no poner en peligro el éxito de la misión.`\
+https://www.nytimes.com/es/2026/06/12/espanol/estados-unidos/trump-hegseth-ataques-iran.html
+
+**Families of Air India Crash Victims Seek Answers One Year On**\
+`Grieving relatives returned to Ahmedabad to honor the 260 lives lost in the June 2025 disaster, but investigators have not yet released a report into the cause.`\
+https://www.nytimes.com/2026/06/12/world/asia/india-air-crash-report-families.html
+
+**SpaceX Stock Rises 11% in Largest IPO Ever**\
+`The stock market debut of Elon Musk’s rocket company paves the way for a wave of mega offerings that are coming from OpenAI and Anthropic.`\
+https://www.nytimes.com/2026/06/12/technology/spacex-ipo-elon-musk.html
+
 **Blocking Trump’s Fund, Judge Presses for Guarantee It Won’t Move Forward**\
 `The ruling was the strongest effort to date to hold the administration to its word that its plans to create the fund have actually been set aside.`\
 https://www.nytimes.com/2026/06/12/us/politics/trump-fund-judge-ruling.html
