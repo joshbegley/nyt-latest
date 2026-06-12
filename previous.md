@@ -1,3 +1,7 @@
+**To Defeat Democrats, Texas Governor Embraces the Hard Right**\
+`After years of keeping his distance, Gov. Greg Abbott is set to address Texas Republicans’ activist-led convention as hard-line conservatives gain influence within the party.`\
+https://www.nytimes.com/2026/06/12/us/greg-abbott-texas-governor-hard-right.html
+
 **Japan Pushes Back on Trump’s Anime Posts**\
 `The use of anime imagery online by President Trump and his administration has strained diplomatic ties with Japan and drawn criticism from creators and fans.`\
 https://www.nytimes.com/2026/06/12/world/asia/trump-anime-manga-japan-memes.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/12/opinion/elon-musk-spacex-starbase-texas.html
 **AIPAC Wants Democrats to Back Israel. Instead, They’re Turning on AIPAC.**\
 `Once the guardian of the bipartisan pro-Israel consensus, it is now a polarizing force in the party.`\
 https://www.nytimes.com/2026/06/12/magazine/aipac-democrats-israel.html
-
-**An Upscale Hotel Breaks Ground in Downtown Newburgh — the First in 133 Years**\
-`A boutique hotel group known for pioneering tourism in the pastoral Western Catskills has set its sights on one of the Hudson Valley’s most complicated downtowns.`\
-https://www.nytimes.com/2026/06/12/realestate/foster-supply-hospitality-newburgh-hotel.html
 

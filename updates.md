@@ -1,3 +1,7 @@
+**To Defeat Democrats, Texas Governor Embraces the Hard Right**\
+`After years of keeping his distance, Gov. Greg Abbott is set to address Texas Republicans’ activist-led convention as hard-line conservatives gain influence within the party.`\
+https://www.nytimes.com/2026/06/12/us/greg-abbott-texas-governor-hard-right.html
+
 **Japan Pushes Back on Trump’s Anime Posts**\
 `The use of anime imagery online by President Trump and his administration has strained diplomatic ties with Japan and drawn criticism from creators and fans.`\
 https://www.nytimes.com/2026/06/12/world/asia/trump-anime-manga-japan-memes.html
