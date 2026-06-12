@@ -99,7 +99,7 @@ https://www.nytimes.com/2026/06/11/insider/spacex-ipo-coverage-facts-price.html
 https://www.nytimes.com/video/podcasts/100000010953392/its-time-to-meet-slayyyter-the-worst-girl-in-america.html
 
 **As World Cup Begins, Mexico City Becomes a Global Stage**\
-`Supporters of the national team gathered inside and outside Mexico City Stadium for the opening of the games, celebrating the start of a tournament years in the making.`\
+`Supporters of the national team gathered inside and outside the stadium for the opening of the games, celebrating the start of a tournament years in the making.`\
 https://www.nytimes.com/2026/06/11/world/americas/world-cup-photos-mexico.html
 
 **Cleve Moler, Who Unlocked the Power of Computing for Millions, Dies at 86**\
