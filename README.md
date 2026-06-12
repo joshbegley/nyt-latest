@@ -1,3 +1,7 @@
+**Trump y Hegseth anuncian los ataques militares de EE. UU. con antelación**\
+`Los mandos militares no suelen hablar públicamente sobre operaciones futuras para no poner en peligro el éxito de la misión.`\
+https://www.nytimes.com/es/2026/06/12/espanol/estados-unidos/trump-hegseth-ataques-iran.html
+
 **Families of Air India Crash Victims Seek Answers One Year On**\
 `Grieving relatives returned to Ahmedabad to honor the 260 lives lost in the June 2025 disaster, but investigators have not yet released a report into the cause.`\
 https://www.nytimes.com/2026/06/12/world/asia/india-air-crash-report-families.html
@@ -34,7 +38,7 @@ https://www.nytimes.com/2026/06/12/science/neil-shubin-national-academcy-science
 `SpaceX dijo que vendería más de 555 millones de acciones a 135 dólares cada una. Con ello, la empresa de Elon Musk batiría el récord de la oferta pública inicial establecido antes por Saudi Aramco.`\
 https://www.nytimes.com/es/2026/06/12/espanol/negocios/spacex-bolsa-elon-musk.html
 
-**SpaceX Stock Rises 11% in Largest I.P.O. Ever**\
+**SpaceX Stock Rises 11% in Largest IPO Ever**\
 `The stock market debut of Elon Musk’s rocket company paves the way for a wave of mega offerings that are coming from OpenAI and Anthropic.`\
 https://www.nytimes.com/2026/06/12/technology/spacex-ipo-elon-musk.html
 
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/06/12/podcasts/world-cup-usmnt-mexico-south-africa.
 **What I Learned From David Hockney**\
 `The curator Norman Rosenthal knew the artist for over 60 years and still discovered something new when they collaborated on a final blockbuster show.`\
 https://www.nytimes.com/2026/06/12/arts/design/david-hockney-norman-rosenthal.html
-
-**With iPhones and Faxes, David Hockney Embraced Tech**\
-`Polaroids and photocopiers also gave the artist possibilities for creating in forms vastly different from his paintings.`\
-https://www.nytimes.com/2026/06/12/arts/design/david-hockney-ipad-iphone-photocopier-fax.html
 
 **World Cup Updates: Tournament Could Be a Bonanza for Betting Sites**\
 `(No description)`\
