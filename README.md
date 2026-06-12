@@ -1,3 +1,7 @@
+**A Celebration and a ‘Love Ritual’ Shaped by Their Community**\
+`At the wedding of Danny Mefford and Yazmany Arboleda, guests made various contributions, including decorating the church and forming a choir.`\
+https://www.nytimes.com/2026/06/12/style/yazmany-arbodela-danny-mefford-wedding.html
+
 **Signet Rings for Now**\
 `These days, the classic jewelry piece conveys personal style at least as much as it does lineage.`\
 https://www.nytimes.com/2026/06/11/t-magazine/fashion/signet-rings-for-now.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/11/us/laguna-beach-missing-girl-search-ends.html
 **SpaceX Finalizes IPO Price at $135 a Share in World’s Largest Public Offering**\
 `Elon Musk’s rocket company said it would sell more than 555 million shares at $135 each in its blockbuster initial public offering, which is set to begin trading on Friday.`\
 https://www.nytimes.com/2026/06/11/technology/spacex-ipo-price.html
-
-**Raphael Warnock: We Are Witnessing an Assault on Basic Voting Rights**\
-`The Supreme Court “has committed violence against the ways in which ordinary people can have a voice in our system,” says Senator Raphael Warnock, a Democrat from Georgia.`\
-https://www.nytimes.com/video/podcasts/100000010961922/raphael-warnock-we-are-witnessing-an-assault-on-basic-voting-rights.html
 

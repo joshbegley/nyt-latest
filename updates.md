@@ -1,3 +1,15 @@
+**Signet Rings for Now**\
+`These days, the classic jewelry piece conveys personal style at least as much as it does lineage.`\
+https://www.nytimes.com/2026/06/11/t-magazine/fashion/signet-rings-for-now.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/t-magazine/fashion/100000010961150/11tmag-signet.html
+
+**Oil Falls, Stocks Rise as Trump Signals Iran Peace Deal Takes Shape**\
+`Oil prices retreated and stocks rallied after President Trump called off plans for another day of strikes on Iran, saying that a peace deal could be within reach.`\
+https://www.nytimes.com/2026/06/11/business/oil-gas-price-iran.html
+
 **Drones Flown Over North Korea Were Part of Martial Law Plot by Former South Korean President**\
 `A court ruled that Yoon Suk Yeol, the impeached former president, had sought to stir up instability to justify his bid for authoritarian rule in 2024.`\
 https://www.nytimes.com/2026/06/11/world/asia/north-korea-drones-martial-law.html
