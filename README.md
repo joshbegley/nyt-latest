@@ -1,3 +1,11 @@
+**A Trillionaire?**\
+`SpaceX is expected to make Elon Musk even richer when its stock begins trading today.`\
+https://www.nytimes.com/2026/06/12/briefing/a-trillionaire.html
+
+**2026 World Cup: Breaking Down the U.S. Men’s National Team Roster**\
+`After Mexico’s successful opener, can the U.S.M.N.T.’s “golden generation” also deliver in its first game?`\
+https://www.nytimes.com/2026/06/12/podcasts/world-cup-usmnt-mexico-south-africa.html
+
 **What I Learned From David Hockney**\
 `The curator Norman Rosenthal knew the artist for over 60 years and still discovered something new when they collaborated on a final blockbuster show.`\
 https://www.nytimes.com/2026/06/12/arts/design/david-hockney-norman-rosenthal.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/12/world/europe/oslo-childrens-art-museum-norway
 **She Was Dying of Cancer. How Should She Live?**\
 `Thanks to new treatments, some patients with Stage 4 cancer are living longer — leaving them in limbo for years.`\
 https://www.nytimes.com/2026/06/12/well/cancer-stage-4-terminal.html
-
-**She Used A.I. to Create Better Forecasts for Extreme Weather. Then Her Funding Was Cut.**\
-`Amy McGovern was the director of an A.I. institute dedicated to weather forecasting — until the National Science Foundation ended its funding.`\
-https://www.nytimes.com/2026/06/12/science/lost-science-ai-weather-forecasting.html
-
-**Cómo dos directores de la generación Z formados en YouTube conquistaron el cine de terror**\
-`‘Backrooms: sin salida’ y ‘Obsesión’ están reescribiendo las reglas de Hollywood. Dos críticos del Times analizan el fenómeno.`\
-https://www.nytimes.com/es/2026/06/12/espanol/cultura/backrooms-obsesion-directores-generacion-z-youtube.html
 
