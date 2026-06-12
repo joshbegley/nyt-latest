@@ -1,3 +1,7 @@
+**Seth Rogen Knows the Secret to a Good Marriage — and Being Rich in Hollywood**\
+`Lulu Garcia-Navarro speaks with Seth Rogen about his early start in comedy and the prolific Hollywood career that followed.`\
+https://www.nytimes.com/video/podcasts/100000010963471/seth-rogen-knows-the-secret-to-a-good-marriage-and-being-rich-in-hollywood.html
+
 **Federal Agents Search Voting Rights Group in Ohio**\
 `It was not immediately clear what the investigators were looking for, but a board member with a progressive group said members had been served with search warrants.`\
 https://www.nytimes.com/2026/06/12/us/politics/federal-search-voting-rights-group-ohio.html
@@ -103,7 +107,7 @@ https://www.nytimes.com/2026/06/12/business/economy/spacex-openai-anthropic-bill
 https://www.nytimes.com/es/2026/06/12/espanol/cultura/muere-david-hockney-pintor.html
 
 **Blake Lively Awarded Legal Fees in Ruling After Justin Baldoni Settlement**\
-`The size of the award remains to be determined as it only involves the legal fees associated with part of her court battle with Mr. Baldoni, with whom she made a film.`\
+`The size of the award remains to be determined. It only involves the legal fees associated with part of her court battle with Mr. Baldoni, with whom she made a film.`\
 https://www.nytimes.com/2026/06/12/movies/blake-lively-legal-fees-ruling-justin-baldoni-settlement.html
 
 **Irán, y el mundo, permanecen en el limbo entre la guerra y la paz**\
@@ -165,14 +169,6 @@ https://www.nytimes.com/2026/06/12/nyregion/bernie-sanders-mamdani-nyc-primary-e
 **Despite Talk of an Iran Peace Deal, Lebanon’s War Grinds On**\
 `Israeli strikes on Friday left Lebanon out of sync with a cautious optimism taking hold elsewhere in the Middle East.`\
 https://www.nytimes.com/2026/06/12/world/middleeast/lebanon-israel-war-trump-iran.html
-
-**FISA, a Key U.S. Spying Power, Is Expiring. What Does That Mean for Foreign Surveillance?**\
-`Top officials and some lawmakers say letting a powerful spying authority expire on Saturday will leave the United States dangerously blind. But surveillance can still continue.`\
-https://www.nytimes.com/2026/06/12/us/politics/fisa-expiration.html
-
-**Review: Olivia Rodrigo’s ‘You Seem Pretty Sad for a Girl So in Love’**\
-`On “You Seem Pretty Sad for a Girl So in Love,” the 23-year-old singer delivers a polished, solemn breakup chronicle that misses her signature adrenaline rush.`\
-https://www.nytimes.com/2026/06/12/arts/music/olivia-rodrigo-you-seem-pretty-sad-for-a-girl-so-in-love-review.html
 
 **Live Updates: Elon Musk Becomes World’s First Trillionaire on SpaceX’s First Day of Trading**\
 `Stock in Mr. Musk’s rocket and satellite maker closed just above $161, up more than 19 percent from its I.P.O. price.`\
