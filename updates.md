@@ -1,3 +1,11 @@
+**Tornadoes Tear Through Midwest States**\
+`Tornadoes were reported in Illinois, Indiana and Wisconsin on Thursday, bringing powerful winds, heavy rain and hail.`\
+https://www.nytimes.com/video/weather/100000010964081/tornadoes-tear-through-midwest-states.html
+
+**Gavin Newsom and Hunter Biden Would Like Your Attention, Please**\
+`The two men chatted on Mr. Newsom’s podcast about Democrats, Joe Biden, Graham Platner, phone addiction and other topics.`\
+https://www.nytimes.com/2026/06/12/us/politics/hunter-biden-gavin-newsom-interview.html
+
 **Reto de verano: saca tu teléfono del cuarto para dormir mejor**\
 `Solo te tomará unos minutos`\
 https://www.nytimes.com/interactive/2026/06/12/espanol/como-dormir-celular-telefono.html
