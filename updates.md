@@ -1,3 +1,7 @@
+**Cuando la IA resuelve en días lo que los matemáticos tardan años**\
+`Una empresa gastó 100.000 dólares en completar en cinco días una demostración que un equipo académico llevaba dos años construyendo. El episodio desató un pánico silencioso en los departamentos de matemáticas del mundo.`\
+https://www.nytimes.com/es/2026/06/12/espanol/ciencia-y-tecnologia/ia-resuelve-matematicas.html
+
 **Ciclo de violencia en el Reino Unido: ataques de odio, agitación de la derecha y disturbios**\
 `Dos apuñalamientos han incitado protestas violentas en Inglaterra e Irlanda del Norte en los últimos 10 días, avivadas en internet por voces de la derecha. Es un patrón sombrío en el Reino Unido y en toda Europa.`\
 https://www.nytimes.com/es/2026/06/12/espanol/mundo/reino-unido-disturbios.html
