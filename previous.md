@@ -122,7 +122,7 @@ https://www.nytimes.com/2026/06/12/us/columbus-ohio-goats-lunch.html
 `The amount of oil and fuel stored by businesses and governments has fallen sharply since the start of the U.S.-Israeli war against Iran.`\
 https://www.nytimes.com/2026/06/12/business/energy-environment/iran-war-oil-reserves.html
 
-**Democrats, Join the Data Center Resistance**\
+**This Could Be the Winning Issue for Democrats**\
 `A.I. is not inevitable.`\
 https://www.nytimes.com/2026/06/12/opinion/data-center-ai-democrats.html
 

@@ -1,3 +1,7 @@
+**This Could Be the Winning Issue for Democrats**\
+`A.I. is not inevitable.`\
+https://www.nytimes.com/2026/06/12/opinion/data-center-ai-democrats.html
+
 **The Consequences of SpaceX’s Trillion-Dollar I.P.O.**\
 `SpaceX’s trading debut is expected to smash records. Wall Street is watching to see what else it disrupts.`\
 https://www.nytimes.com/2026/06/12/business/dealbook/musks-spacex-ipo-playbook.html
