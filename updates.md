@@ -1,3 +1,19 @@
+**How Much SpaceX Are You About to Own?**\
+`If you have index funds — such as in a 401(k) — they may soon include shares of the mega company. Here’s a rough calculation.`\
+https://www.nytimes.com/2026/06/12/upshot/spacex-stock-ipo.html
+
+**Elon Musk Is the World’s First Trillionaire After SpaceX’s Historic Debut**\
+`SpaceX opened at $150 per share on Friday, then shot up to $165 within with the first 30 minutes of trading, making Elon Musk the world’s first trillionaire.`\
+https://www.nytimes.com/video/business/100000010963634/elon-musk-first-trillionaire-spacex.html
+
+**En el sindicato de Cesar Chavez, las mujeres solían trabajar con miedo**\
+`Muchas de las mujeres que ayudaron a liderar la lucha por los derechos civiles de los latinos dicen que, en silencio, libraban sus propias batallas contra el acoso, la misoginia y las agresiones sexuales dentro de la poderosa Unión de Campesinos.`\
+https://www.nytimes.com/es/2026/06/12/espanol/estados-unidos/cesar-chavez-dolores-huerta-abuso-sexual.html
+
+**About 20 New Billionaires Could Be Minted by 3 Mega-I.P.O.s**\
+`Anthropic and OpenAI could join SpaceX with their own initial public offerings, setting many employees up to become millionaires or billionaires.`\
+https://www.nytimes.com/2026/06/12/business/economy/about-20-new-billionaires-could-be-minted-by-three-mega-ipos.html
+
 **Judge Declines to Halt U.F.C. Fight at the White House on Trump’s Birthday**\
 `In a ruling on Friday, Judge Amit P. Mehta wrote that the lawsuit arrived last minute and failed to show how the event irreversibly harmed the individuals who sued.`\
 https://www.nytimes.com/2026/06/12/us/politics/trump-ufc-cage-lawsuit.html
