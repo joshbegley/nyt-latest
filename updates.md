@@ -1,3 +1,15 @@
+**Storms Could Disrupt U.F.C. Event at the White House on Sunday**\
+`Forecasters said the weather around Washington is likely to be hot and stormy.`\
+https://www.nytimes.com/2026/06/12/weather/trump-ufc-fight-storms-heat.html
+
+**Iran War Live Updates: Tense Calm Grips Mideast as Trump Again Claims Deal Is Close**\
+`President Trump said he had called off new attacks on Iran and that a peace agreement could be signed this weekend. A spokesman for Iran’s foreign ministry said, “Nothing has been finalized.”`\
+https://www.nytimes.com/live/2026/06/12/world/iran-war-trump-us-israel
+
+**Risk Strait of Hormuz or Wait? Shipping Companies Face a Costly Dilemma.**\
+`With more than 500 ships still stranded in the Persian Gulf, pressure on the shipowners and sailors is growing by the day.`\
+https://www.nytimes.com/2026/06/12/business/strait-hormuz-ships-iran.html
+
 **Google Sues to Stop Chinese Cybercrime Group from Using Its A.I.**\
 `In a lawsuit, the tech giant accused the group of using Google’s Gemini system to create hundreds of fake corporate and government websites.`\
 https://www.nytimes.com/2026/06/12/technology/google-lawsuit-china-ai-scams.html
