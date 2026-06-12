@@ -1,5 +1,13 @@
-**Man Is Barricaded in Texas Building After a Fatal Shooting**\
-`The man is “contained” in a building near the highway, with dozens of law enforcement officers on the scene, officials said. Eleven people were also injured.`\
+**Blocking Trump’s Fund, Judge Presses for Guarantee It Won’t Move Forward**\
+`The ruling was the strongest effort to date to hold the administration to its word that its plans to create the fund have actually been set aside.`\
+https://www.nytimes.com/2026/06/12/us/politics/trump-fund-judge-ruling.html
+
+**Flashback: Your Weekly History Quiz, June 13, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/06/12/upshot/flashback.html
+
+**Man Is Barricaded in Building After Fatal Shooting in Midland, Texas**\
+`The man is “contained” in a building in Midland, with dozens of law enforcement officers on the scene, officials said. Eleven people were also injured.`\
 https://www.nytimes.com/2026/06/12/us/midland-texas-shooting-active-shooter.html
 
 **The Philharmonic and the Met Engage in a Battle of the Bands**\
@@ -127,7 +135,7 @@ https://www.nytimes.com/2026/06/12/world/asia/trump-anime-manga-japan-memes.html
 https://www.nytimes.com/2026/06/12/arts/design/pont-neuf-jj.html
 
 **Live Updates: Elon Musk Becomes World’s First Trillionaire as SpaceX Starts Trading**\
-`Mr. Musk’s rocket and satellite maker opened at $150 per share, up 11 percent from its I.P.O. price.`\
+`Mr. Musk’s rocket and satellite maker opened at $150 per share, up 11 percent from its I.P.O. price, and then shot to $165, up over 20 percent.`\
 https://www.nytimes.com/live/2026/06/12/business/spacex-ipo-elon-musk
 
 **Americans Aren’t Money Savvy, and They’re Only Getting Worse**\
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/06/12/arts/design/david-hockney-ipad-iphone-photoco
 **David Hockney, Who Restored the Human Form to Art, Dies at 88**\
 `His colorful figurative paintings were both conservative and iconoclastic, defying the dominant abstract schools of the mid-20th century.`\
 https://www.nytimes.com/2026/06/12/arts/design/david-hockney-dead.html
-
-**1979: How the U.S. and Iran Went From Allies to Enemies**\
-`The regime in Iran, with which the United States is at war, is the same that came to power rejecting the U.S.-Iranian alliance of the 1970s.`\
-https://www.nytimes.com/2026/06/12/podcasts/the-daily/1979-us-iran-allies-enemies.html
-
-**What the SpaceX I.P.O. Means for You, and a Giant Act of Vandalism in D.C.**\
-`Plus, the Friday news quiz.`\
-https://www.nytimes.com/2026/06/12/podcasts/the-headlines/spacex-ipo-washington-vandalism.html
 
 **World Cup Updates: Tournament Could Be a Bonanza for Betting Sites**\
 `(No description)`\

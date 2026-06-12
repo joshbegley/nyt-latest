@@ -1,3 +1,7 @@
+**Families of Air India Crash Victims Seek Answers One Year On**\
+`Grieving relatives returned to Ahmedabad to honor the 260 lives lost in the June 2025 disaster, but investigators have not yet released a report into the cause.`\
+https://www.nytimes.com/2026/06/12/world/asia/india-air-crash-report-families.html
+
 **Blocking Trump’s Fund, Judge Presses for Guarantee It Won’t Move Forward**\
 `The ruling was the strongest effort to date to hold the administration to its word that its plans to create the fund have actually been set aside.`\
 https://www.nytimes.com/2026/06/12/us/politics/trump-fund-judge-ruling.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/06/12/arts/design/david-hockney-norman-rosenthal.ht
 **With iPhones and Faxes, David Hockney Embraced Tech**\
 `Polaroids and photocopiers also gave the artist possibilities for creating in forms vastly different from his paintings.`\
 https://www.nytimes.com/2026/06/12/arts/design/david-hockney-ipad-iphone-photocopier-fax.html
-
-**David Hockney, Who Restored the Human Form to Art, Dies at 88**\
-`His colorful figurative paintings were both conservative and iconoclastic, defying the dominant abstract schools of the mid-20th century.`\
-https://www.nytimes.com/2026/06/12/arts/design/david-hockney-dead.html
 
 **World Cup Updates: Tournament Could Be a Bonanza for Betting Sites**\
 `(No description)`\

@@ -1,3 +1,19 @@
+**Blocking Trump’s Fund, Judge Presses for Guarantee It Won’t Move Forward**\
+`The ruling was the strongest effort to date to hold the administration to its word that its plans to create the fund have actually been set aside.`\
+https://www.nytimes.com/2026/06/12/us/politics/trump-fund-judge-ruling.html
+
+**Flashback: Your Weekly History Quiz, June 13, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/06/12/upshot/flashback.html
+
+**Man Is Barricaded in Building After Fatal Shooting in Midland, Texas**\
+`The man is “contained” in a building in Midland, with dozens of law enforcement officers on the scene, officials said. Eleven people were also injured.`\
+https://www.nytimes.com/2026/06/12/us/midland-texas-shooting-active-shooter.html
+
+**Live Updates: Elon Musk Becomes World’s First Trillionaire as SpaceX Starts Trading**\
+`Mr. Musk’s rocket and satellite maker opened at $150 per share, up 11 percent from its I.P.O. price, and then shot to $165, up over 20 percent.`\
+https://www.nytimes.com/live/2026/06/12/business/spacex-ipo-elon-musk
+
 **Man Is Barricaded in Texas Building After a Fatal Shooting**\
 `The man is “contained” in a building near the highway, with dozens of law enforcement officers on the scene, officials said. Eleven people were also injured.`\
 https://www.nytimes.com/2026/06/12/us/midland-texas-shooting-active-shooter.html
