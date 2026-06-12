@@ -1,3 +1,7 @@
+**Review: Olivia Rodrigo’s ‘You Seem Pretty Sad for a Girl So in Love’**\
+`On “You Seem Pretty Sad for a Girl So in Love,” the 23-year-old singer delivers a polished, solemn breakup chronicle that misses her signature adrenaline rush.`\
+https://www.nytimes.com/2026/06/12/arts/music/olivia-rodrigo-you-seem-pretty-sad-for-a-girl-so-in-love-review.html
+
 **Today, In Short**\
 `Frozen yogurt. Ancient squirrels. And the World Cup.`\
 https://www.nytimes.com/2026/06/12/briefing/today-in-short.html
