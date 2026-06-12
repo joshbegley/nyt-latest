@@ -1,3 +1,7 @@
+**Joe Negri, Handyman and Music Maestro on ‘Mister Rogers,’ Dies at 99**\
+`An accomplished jazz guitarist, he appeared on more than 300 episodes of the public television show, playing alongside musicians like Wynton Marsalis and Yo-Yo Ma.`\
+https://www.nytimes.com/2026/06/12/arts/music/joe-negri-dead.html
+
 **Book Review: ‘Drayton and Mackenzie,’ by Alexander Starritt**\
 `In “Drayton and Mackenzie,” two young grads navigating the 2008 financial crisis enact a plan they hope will change their fate.`\
 https://www.nytimes.com/2026/06/12/books/review/drayton-and-mackenzie-alexander-starritt.html
@@ -186,11 +190,7 @@ https://www.nytimes.com/2026/06/12/arts/music/slayyyter-interview-popcast.html
 `A union in Columbus made a formal complaint after the city farmed out brush-clearing duties at a wastewater plant. The competitors? Goats.`\
 https://www.nytimes.com/2026/06/12/us/columbus-ohio-goats-lunch.html
 
-**The World Is Draining Oil Reserves, Raising Pressure for a Peace Deal**\
-`The amount of oil and fuel stored by businesses and governments has fallen sharply since the start of the U.S.-Israeli war against Iran.`\
-https://www.nytimes.com/2026/06/12/business/energy-environment/iran-war-oil-reserves.html
-
-**This Could Be the Winning Issue for Democrats**\
-`A.I. is not inevitable.`\
-https://www.nytimes.com/2026/06/12/opinion/data-center-ai-democrats.html
+**World Cup Updates: Excitement and Anxiety as Games Begin in U.S.**\
+`(No description)`\
+https://www.nytimes.com/live/2026/us/fifa-world-cup
 
