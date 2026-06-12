@@ -1,3 +1,11 @@
+**Tornadoes Tear Through Midwest States**\
+`Tornadoes were reported in Illinois, Indiana and Wisconsin on Thursday, bringing powerful winds, heavy rain and hail.`\
+https://www.nytimes.com/video/weather/100000010964081/tornadoes-tear-through-midwest-states.html
+
+**Gavin Newsom and Hunter Biden Would Like Your Attention, Please**\
+`The two men chatted on Mr. Newsom’s podcast about Democrats, Joe Biden, Graham Platner, phone addiction and other topics.`\
+https://www.nytimes.com/2026/06/12/us/politics/hunter-biden-gavin-newsom-interview.html
+
 **Reto de verano: saca tu teléfono del cuarto para dormir mejor**\
 `Solo te tomará unos minutos`\
 https://www.nytimes.com/interactive/2026/06/12/espanol/como-dormir-celular-telefono.html
@@ -165,14 +173,6 @@ https://www.nytimes.com/2026/06/12/world/asia/india-air-crash-report-families.ht
 **Blocking Trump’s Fund, Judge Presses for Guarantee It Won’t Move Forward**\
 `The ruling was the strongest effort to date to hold the administration to its word that its plans to create the fund have actually been set aside.`\
 https://www.nytimes.com/2026/06/12/us/politics/trump-fund-judge-ruling.html
-
-**Flashback: Your Weekly History Quiz, June 13, 2026**\
-`Can you sort 8 historical events?`\
-https://www.nytimes.com/interactive/2026/06/12/upshot/flashback.html
-
-**Suspect in Fatal Shooting Is Dead After a Standoff in Midland, Texas, Officials Say**\
-`The man was confirmed to be dead after he had barricaded himself in a building in Midland, following an earlier shooting on Friday that killed one person and injured at least 11 others.`\
-https://www.nytimes.com/2026/06/12/us/midland-texas-shooting-active-shooter.html
 
 **Elon Musk Becomes World’s First Trillionaire on SpaceX’s First Day of Trading**\
 `Stock in Mr. Musk’s rocket and satellite maker closed just above $161, up more than 19 percent from its I.P.O. price.`\

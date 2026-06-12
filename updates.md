@@ -1,3 +1,19 @@
+**Reto de verano: saca tu teléfono del cuarto para dormir mejor**\
+`Solo te tomará unos minutos`\
+https://www.nytimes.com/interactive/2026/06/12/espanol/como-dormir-celular-telefono.html
+
+**審判はあなた！**\
+`メジャーリーグの審判たちが、史上初となるボール・ストライク判定のビデオレビューに直面しています。あなたなら、正しく判定できるでしょうか？`\
+https://www.nytimes.com/ja/interactive/2026/06/12/upshot/major-league-baseball-abs-game-jp.html
+
+**Sé un umpire de las Grandes Ligas**\
+`Por primera vez, los umpires de las Grandes Ligas se enfrentan a la revisión por video de las bolas y los strikes. ¿Qué tal lo harías tú?`\
+https://www.nytimes.com/es/interactive/2026/06/12/espanol/beisbol-arbitro-decision-jugada.html
+
+**Trump’s Haphazard Midterm Leadership Puts Republicans in a Bind**\
+`The president and his party have had a rough start to June, after a spring full of MAGA primary victories and redistricting gains.`\
+https://www.nytimes.com/2026/06/12/us/politics/trump-midterms-republicans.html
+
 **Western Australia Is Battling a Mouse Plague**\
 `For months, mice have been found in tea kettles, crunched by car tires and even appeared in people’s beds. In one town, the end might be in sight.`\
 https://www.nytimes.com/2026/06/12/world/australia/australia-mouse-plague.html

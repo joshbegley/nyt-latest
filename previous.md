@@ -1,3 +1,19 @@
+**Reto de verano: saca tu teléfono del cuarto para dormir mejor**\
+`Solo te tomará unos minutos`\
+https://www.nytimes.com/interactive/2026/06/12/espanol/como-dormir-celular-telefono.html
+
+**審判はあなた！**\
+`メジャーリーグの審判たちが、史上初となるボール・ストライク判定のビデオレビューに直面しています。あなたなら、正しく判定できるでしょうか？`\
+https://www.nytimes.com/ja/interactive/2026/06/12/upshot/major-league-baseball-abs-game-jp.html
+
+**Sé un umpire de las Grandes Ligas**\
+`Por primera vez, los umpires de las Grandes Ligas se enfrentan a la revisión por video de las bolas y los strikes. ¿Qué tal lo harías tú?`\
+https://www.nytimes.com/es/interactive/2026/06/12/espanol/beisbol-arbitro-decision-jugada.html
+
+**Trump’s Haphazard Midterm Leadership Puts Republicans in a Bind**\
+`The president and his party have had a rough start to June, after a spring full of MAGA primary victories and redistricting gains.`\
+https://www.nytimes.com/2026/06/12/us/politics/trump-midterms-republicans.html
+
 **Western Australia Is Battling a Mouse Plague**\
 `For months, mice have been found in tea kettles, crunched by car tires and even appeared in people’s beds. In one town, the end might be in sight.`\
 https://www.nytimes.com/2026/06/12/world/australia/australia-mouse-plague.html
@@ -157,22 +173,6 @@ https://www.nytimes.com/interactive/2026/06/12/upshot/flashback.html
 **Suspect in Fatal Shooting Is Dead After a Standoff in Midland, Texas, Officials Say**\
 `The man was confirmed to be dead after he had barricaded himself in a building in Midland, following an earlier shooting on Friday that killed one person and injured at least 11 others.`\
 https://www.nytimes.com/2026/06/12/us/midland-texas-shooting-active-shooter.html
-
-**The Philharmonic and the Met Engage in a Battle of the Bands**\
-`Bruckner’s Eighth Symphony was performed in the same week by two of Lincoln Center’s orchestras. Was it coincidence or bad communication?`\
-https://www.nytimes.com/2026/06/12/arts/music/bruckner-eight-ny-phil-met-orchestra.html
-
-**Elon Musk Becomes World’s First Trillionaire as SpaceX Stock Begins Trading**\
-`With SpaceX shares soaring 20 percent on their first day of trading, the world’s richest person crossed another milestone — one with 13 digits.`\
-https://www.nytimes.com/2026/06/12/technology/elon-musk-trillionaire.html
-
-**A Kennedy Center Drama: Whether Trump’s Name Stays**\
-`A judge said the president’s name must be removed by Friday. As a last-ditch legal battle unfolds, many eyes are on the marble facade.`\
-https://www.nytimes.com/2026/06/12/arts/music/kennedy-center-trump-name.html
-
-**Neil Shubin on Trusted Science in a ‘Deeply Partisan Age’**\
-`An eminent fossil hunter takes the reins at the National Academy of Sciences in a turbulent moment for American researchers.`\
-https://www.nytimes.com/2026/06/12/science/neil-shubin-national-academcy-sciences.html
 
 **Elon Musk Becomes World’s First Trillionaire on SpaceX’s First Day of Trading**\
 `Stock in Mr. Musk’s rocket and satellite maker closed just above $161, up more than 19 percent from its I.P.O. price.`\
