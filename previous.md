@@ -1,3 +1,11 @@
+**Review: ‘Romeo & Juliet’ Find Too Little Love in the Park**\
+`For the Public Theater’s Shakespeare in the Park, the director Saheem Ali presents a strangely low-energy version of the tragedy.`\
+https://www.nytimes.com/2026/06/11/theater/review-romeo-juliet-shakespeare-in-the-park.html
+
+**Can Democrats Overcome G.O.P. Gerrymandering?**\
+`Our chief political analyst, Nate Cohn, who writes The Tilt newsletter, looks at the Republicans’ advantage in the House of Representatives after partisan redistricting. To win the House, how much of the popular vote would Democrats need to win?`\
+https://www.nytimes.com/video/us/elections/100000010942415/can-democrats-overcome-gop-gerrymandering.html
+
 **Trump Suspends Funding for Los Angeles Homeless Agency**\
 `The Trump administration cited misspending among the reasons for blocking funds to the Los Angeles Homeless Services Authority. Mayor Karen Bass warned that “people will lose their lives.”`\
 https://www.nytimes.com/2026/06/11/us/trump-los-angeles-homeless.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/11/climate/democrats-climate-change.html
 **4 Book Recommendations for Father's Day**\
 `Ahead of Father’s Day, the best-selling author Ryan Holiday joined the “Book Review” podcast to discuss “The Road,” one of The New York Times’s “100 Best Books of the 21st Century.” While he was with us, he also told us some of his recommendations for other books to give the dads or parents in your life.`\
 https://www.nytimes.com/video/podcasts/100000010961709/4-book-recommendations-for-fathers-day.html
-
-**13 Civilians Killed in Pakistani Airstrikes in Afghanistan**\
-`Pakistan’s airstrikes on Afghanistan on Wednesday ended a period of calm, threatening a return to what Pakistan previously called an “open war” between the neighbors.`\
-https://www.nytimes.com/video/world/asia/100000010960522/13-civilians-killed-pakistani-airstrikes-in-afghanistan.html
-
-**Security Is Tight as a Mexico Win Opens a Historic World Cup**\
-`As the largest World Cup kicked off in Mexico City on Thursday, the security around Estadio Azteca was strict, as law enforcement officers held off protesters.`\
-https://www.nytimes.com/2026/06/11/world/americas/mexico-city-world-cup.html
 

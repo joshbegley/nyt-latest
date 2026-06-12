@@ -1,3 +1,7 @@
+**Princess Bha of Thailand, Second in Line to the Throne, Dies at 47**\
+`Ever since she collapsed in a park three and a half years ago, speculation has swirled in Thailand about who could become the next monarch.`\
+https://www.nytimes.com/2026/06/11/world/asia/thai-princess-bha-dead.html
+
 **Review: ‘Romeo & Juliet’ Find Too Little Love in the Park**\
 `For the Public Theater’s Shakespeare in the Park, the director Saheem Ali presents a strangely low-energy version of the tragedy.`\
 https://www.nytimes.com/2026/06/11/theater/review-romeo-juliet-shakespeare-in-the-park.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000010961652/a-country-bro-with-a-soft
 **How Should Democrats Talk About Climate Change?**\
 `A big new milestone for solar power, a shift in Democratic messaging and more climate news.`\
 https://www.nytimes.com/2026/06/11/climate/democrats-climate-change.html
-
-**4 Book Recommendations for Father's Day**\
-`Ahead of Father’s Day, the best-selling author Ryan Holiday joined the “Book Review” podcast to discuss “The Road,” one of The New York Times’s “100 Best Books of the 21st Century.” While he was with us, he also told us some of his recommendations for other books to give the dads or parents in your life.`\
-https://www.nytimes.com/video/podcasts/100000010961709/4-book-recommendations-for-fathers-day.html
 

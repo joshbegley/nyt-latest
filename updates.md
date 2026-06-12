@@ -1,3 +1,11 @@
+**Review: ‘Romeo & Juliet’ Find Too Little Love in the Park**\
+`For the Public Theater’s Shakespeare in the Park, the director Saheem Ali presents a strangely low-energy version of the tragedy.`\
+https://www.nytimes.com/2026/06/11/theater/review-romeo-juliet-shakespeare-in-the-park.html
+
+**Can Democrats Overcome G.O.P. Gerrymandering?**\
+`Our chief political analyst, Nate Cohn, who writes The Tilt newsletter, looks at the Republicans’ advantage in the House of Representatives after partisan redistricting. To win the House, how much of the popular vote would Democrats need to win?`\
+https://www.nytimes.com/video/us/elections/100000010942415/can-democrats-overcome-gop-gerrymandering.html
+
 **Trump Suspends Funding for Los Angeles Homeless Agency**\
 `The Trump administration cited misspending among the reasons for blocking funds to the Los Angeles Homeless Services Authority. Mayor Karen Bass warned that “people will lose their lives.”`\
 https://www.nytimes.com/2026/06/11/us/trump-los-angeles-homeless.html
