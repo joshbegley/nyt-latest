@@ -1,3 +1,7 @@
+**Review: Taking an Expressionist Class With the Royal Ballet**\
+`Paul Lightfoot and Sol León brought their blend of stretched balletic line and idiosyncratic gesture to London with a new work inspired by daily ballet class exercises.`\
+https://www.nytimes.com/2026/06/12/arts/dance/review-royal-ballet-salle-de-dance-lightfoot-leon.html
+
 **Taylor Swift Inducted Into the Songwriters Hall of Fame**\
 `At 36, Taylor Swift became the youngest female ever inducted into the Songwriters Hall of Fame on Thursday.`\
 https://www.nytimes.com/video/arts/music/100000010963344/taylor-swift-songwriters-hall-of-fame.html
@@ -165,10 +169,6 @@ https://www.nytimes.com/2026/06/12/books/review/drayton-and-mackenzie-alexander-
 **Fact-Check: Trump’s Claims About His Arch, Reflecting Pool Repairs and Other Renovation Projects**\
 `President Trump has made false or exaggerated claims of a Civil War-era push for a triumphal arch, hundreds of millions spent on repairs on the Reflecting Pool, and an absence of working fountains.`\
 https://www.nytimes.com/2026/06/12/us/politics/trump-fact-check-triumphal-arch-reflecting-pool.html
-
-**They Bought a Famous Puzzle in Cryptography. Now They’re Opening It Up.**\
-`A San Francisco company paid nearly $1 million for the solution to an unsolved code in Kryptos, a sculpture on the C.I.A. grounds. Soon it will become an online challenge.`\
-https://www.nytimes.com/2026/06/12/science/kryptos-sale-cryptography.html
 
 **Live Updates: Elon Musk Becomes World’s First Trillionaire as SpaceX Starts Trading**\
 `Mr. Musk’s rocket and satellite maker opened at $150 per share, up 11 percent from its I.P.O. price, and has been trading at well over 20 percent.`\
