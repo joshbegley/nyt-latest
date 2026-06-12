@@ -6,6 +6,10 @@ https://www.nytimes.com/2026/06/12/us/politics/trump-ufc-cage-lawsuit.html
 `Readers respond to President Trump’s efforts to remake the capital. Also: The Knicks; a plan for Democrats; U.S. political flaws; voting in person.`\
 https://www.nytimes.com/2026/06/12/opinion/trump-arch-arlington.html
 
+**About 20 New Billionaires Could Be Minted by 3 Mega-I.P.O.s**\
+`Anthropic and OpenAI could join SpaceX with their own initial public offerings, setting many employees up to become millionaires or billionaires.`\
+https://www.nytimes.com/2026/06/12/business/economy/about-20-new-billionaires-could-be-minted-by-three-mega-ipos.html
+
 **Muere David Hockney, célebre pintor pop**\
 `Sus obras figurativas eran a la vez conservadoras e iconoclastas, desafiando las escuelas abstractas dominantes de mediados del siglo XX.`\
 https://www.nytimes.com/es/2026/06/12/espanol/cultura/muere-david-hockney-pintor.html
