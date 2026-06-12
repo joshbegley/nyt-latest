@@ -1,3 +1,7 @@
+**What It Means for Elon Musk to Be Worth $1 Trillion**\
+`We used physical dollar bills to see just how far $1 trillion could go.`\
+https://www.nytimes.com/interactive/2026/06/12/business/elon-musk-trillionaire.html
+
 **Afghans Hold Rare Public Protests Against Taliban Rules**\
 `The United Nations said it was “deeply concerned” about the arrests of dozens of women, and reported that two people were killed in protests organized to support them.`\
 https://www.nytimes.com/2026/06/12/world/asia/taliban-protests-afghanistan.html
