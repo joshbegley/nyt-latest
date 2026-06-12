@@ -175,6 +175,6 @@ https://www.nytimes.com/2026/06/12/arts/music/olivia-rodrigo-you-seem-pretty-sad
 https://www.nytimes.com/2026/06/12/briefing/today-in-short.html
 
 **Live Updates: Elon Musk Becomes World’s First Trillionaire on SpaceX’s First Day of Trading**\
-`Stock in Mr. Musk’s rocket and satellite maker was trading above $160 per share as markets closed, up roughly 20 percent from its I.P.O. price.`\
+`Stock in Mr. Musk’s rocket and satellite maker closed just above $161, up more than 19 percent from its I.P.O. price.`\
 https://www.nytimes.com/live/2026/06/12/business/spacex-ipo-elon-musk
 
