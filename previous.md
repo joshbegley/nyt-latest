@@ -1,3 +1,19 @@
+**Today, In Short**\
+`Frozen yogurt. Ancient squirrels. And the World Cup.`\
+https://www.nytimes.com/2026/06/12/briefing/today-in-short.html
+
+**Spaghetti Carbonara Is a Classic for a Reason**\
+`And more of our most popular recipes from the week.`\
+https://www.nytimes.com/2026/06/12/dining/spaghetti-carbonara-is-a-classic-for-a-reason.html
+
+**Five Action Movies to Stream Now**\
+`This month’s picks include a wartime rescue, teenage assassins and Emma Thompson’s rescue skills.`\
+https://www.nytimes.com/2026/06/12/movies/action-movies-streaming.html
+
+**This Conservative Insider Is Skeptical That the G.O.P. Can ‘Buck Historical Trends’ in the Midterms**\
+`Why “top Republicans should actually be more concerned.”`\
+https://www.nytimes.com/2026/06/12/opinion/republicans-midterms-politics-election.html
+
 **Taylor Swift Enters the Songwriters Hall of Fame With Tears, Jokes and a Warning**\
 `After an introduction from Steven Spielberg, Swift gave a lengthy speech encouraging artists to “trust their human intuition” in an industry driven by data.`\
 https://www.nytimes.com/2026/06/12/arts/music/taylor-swift-songwriters-hall-speech.html
@@ -174,23 +190,7 @@ https://www.nytimes.com/2026/06/12/arts/music/igor-levit-no-silence.html
 `Since announcing a nominal cease-fire two months ago, Iran, Israel and the U.S. have remained locked in low-intensity violence that has become a new normal.`\
 https://www.nytimes.com/2026/06/12/world/middleeast/iran-war-limbo.html
 
-**Steven Spielberg on How to Build Suspense in ‘Disclosure Day’**\
-`The director narrates a scene from his movie that is a continuation, of sorts, of a sequence he filmed for his feature-length debut, “Duel,” in 1971.`\
-https://www.nytimes.com/2026/06/12/movies/steven-spielberg-disclosure-day-clip.html
-
-**7 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://www.nytimes.com/2026/06/12/movies/new-movies-this-week-critics.html
-
-**Social Security Is Going Broke. Where Is the Outrage?**\
-`We’ve been here before, but never so close.`\
-https://www.nytimes.com/2026/06/12/opinion/social-security-benefits-budget.html
-
-**How SpaceX’s IPO Compares With Saudi Aramco, Uber and Others**\
-`The previous record was set over six years ago. But SpaceX, whose stock begins trading on Friday, is on track to raise tens of billions of dollars more.`\
-https://www.nytimes.com/2026/06/12/business/spacex-biggest-ipos-elon-musk.html
-
-**World Cup Updates: Excitement and Anxiety as Games Begin in U.S.**\
+**World Cup Updates: Huge Tournament Offers a Big Opportunity for Betting Sites**\
 `(No description)`\
 https://www.nytimes.com/live/2026/us/fifa-world-cup
 
