@@ -1,3 +1,11 @@
+**Judge Declines to Halt U.F.C. Fight at the White House on Trump’s Birthday**\
+`In a ruling on Friday, Judge Amit P. Mehta wrote that the lawsuit arrived last minute and failed to show how the event irreversibly harmed the individuals who sued.`\
+https://www.nytimes.com/2026/06/12/us/politics/trump-ufc-cage-lawsuit.html
+
+**Live Updates: Elon Musk Becomes World’s First Trillionaire as SpaceX Starts Trading**\
+`Mr. Musk’s rocket and satellite maker opened at $150 per share, up 11 percent from its I.P.O. price, and then shot to well over 20 percent.`\
+https://www.nytimes.com/live/2026/06/12/business/spacex-ipo-elon-musk
+
 **Trump’s Arch Would Mar Hallowed Ground**\
 `Readers respond to President Trump’s efforts to remake the capital. Also: The Knicks; a plan for Democrats; U.S. political flaws; voting in person.`\
 https://www.nytimes.com/2026/06/12/opinion/trump-arch-arlington.html
