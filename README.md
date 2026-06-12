@@ -1,3 +1,7 @@
+**SpaceX Goes Public**\
+`SpaceX, Elon Musk’s rocket and satellite company is set to begin trading on Friday under the ticker symbol SPCX. Its valuation is set at $1.77 trillion and would put Mr. Musk, the world’s richest man, on track to become the first trillionaire in history.`\
+https://www.nytimes.com/video/business/100000010962733/spacex-ipo-elon-musk.html
+
 **Por qué es casi imposible fabricar un robot sin China**\
 `Aprovechando la industria de vehículos eléctricos del país, las empresas chinas están fabricando piezas para robots a una escala y a un precio que otros no pueden igualar.`\
 https://www.nytimes.com/es/2026/06/12/espanol/negocios/robots-china.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/11/nyregion/brad-lander-immigration-arrest-not-g
 **The World Cup Is Officially Underway**\
 `Also, Trump picks a new intelligence chief. Here’s the latest at the end of Thursday.`\
 https://www.nytimes.com/2026/06/11/briefing/world-cup-trump-spy-chief.html
-
-**Trump, in Latest Pivot, Retracts Threat to Strike Iran Again and Widen the War**\
-`Mr. Trump said that Iran was close to signing a peace deal. So far, weeks of talks have failed to produce an agreement.`\
-https://www.nytimes.com/2026/06/11/world/middleeast/trump-retracts-threat-iran.html
 
