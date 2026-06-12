@@ -1,3 +1,11 @@
+**Afghans Hold Rare Public Protests Against Taliban Rules**\
+`The United Nations said it was “deeply concerned” about the arrests of dozens of women, and reported that two people were killed in protests organized to support them.`\
+https://www.nytimes.com/2026/06/12/world/asia/taliban-protests-afghanistan.html
+
+**Trump Administration Says It Will Restart Asylum and Immigration Processing**\
+`The response came after a federal judge rebuked officials for failing to immediately comply with the order he issued last week.`\
+https://www.nytimes.com/2026/06/12/us/politics/trump-uscis-asylum-immigration.html
+
 **U.S. Says Iran Cease-Fire Deal ‘Very Close’**\
 `A senior administration official said the two sides were “not quite at the finish line yet.”`\
 https://www.nytimes.com/2026/06/12/world/middleeast/us-iran-ceasefire-deal-white-house.html

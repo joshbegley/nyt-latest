@@ -1,3 +1,11 @@
+**Afghans Hold Rare Public Protests Against Taliban Rules**\
+`The United Nations said it was “deeply concerned” about the arrests of dozens of women, and reported that two people were killed in protests organized to support them.`\
+https://www.nytimes.com/2026/06/12/world/asia/taliban-protests-afghanistan.html
+
+**Trump Administration Says It Will Restart Asylum and Immigration Processing**\
+`The response came after a federal judge rebuked officials for failing to immediately comply with the order he issued last week.`\
+https://www.nytimes.com/2026/06/12/us/politics/trump-uscis-asylum-immigration.html
+
 **U.S. Says Iran Cease-Fire Deal ‘Very Close’**\
 `A senior administration official said the two sides were “not quite at the finish line yet.”`\
 https://www.nytimes.com/2026/06/12/world/middleeast/us-iran-ceasefire-deal-white-house.html
@@ -169,14 +177,6 @@ https://www.nytimes.com/2026/06/12/upshot/spacex-stock-ipo.html
 **Elon Musk Is the World’s First Trillionaire After SpaceX’s Historic Debut**\
 `SpaceX opened at $150 per share on Friday, then shot up to $165 within with the first 30 minutes of trading, making Elon Musk the world’s first trillionaire.`\
 https://www.nytimes.com/video/business/100000010963634/elon-musk-first-trillionaire-spacex.html
-
-**En el sindicato de Cesar Chavez, las mujeres solían trabajar con miedo**\
-`Muchas de las mujeres que ayudaron a liderar la lucha por los derechos civiles de los latinos dicen que, en silencio, libraban sus propias batallas contra el acoso, la misoginia y las agresiones sexuales dentro de la poderosa Unión de Campesinos.`\
-https://www.nytimes.com/es/2026/06/12/espanol/estados-unidos/cesar-chavez-dolores-huerta-abuso-sexual.html
-
-**Judge Declines to Halt UFC Fight at the White House on Trump’s Birthday**\
-`In a ruling on Friday, Judge Amit P. Mehta wrote that the lawsuit arrived last minute and failed to show how the event irreversibly harmed the individuals who sued.`\
-https://www.nytimes.com/2026/06/12/us/politics/trump-ufc-cage-lawsuit.html
 
 **Elon Musk Becomes World’s First Trillionaire on SpaceX’s First Day of Trading**\
 `Stock in Mr. Musk’s rocket and satellite maker closed just above $161, up more than 19 percent from its I.P.O. price.`\
