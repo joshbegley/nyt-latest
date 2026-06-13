@@ -75,7 +75,7 @@ https://www.nytimes.com/2026/06/12/science/nasa-artemis-astronauts-women.html
 https://www.nytimes.com/interactive/2026/06/12/upshot/kalshi-polymarket-prediction-markets-arbitrage.html
 
 **Elon Musk Becomes the World’s First Trillionaire**\
-`Also, officials say a U.S.-Iran cease-fire appears within reach.`\
+`Also, officials say a U.S.-Iran cease-fire appears within reach. Here’s the latest at the end of Friday.`\
 https://www.nytimes.com/2026/06/12/briefing/elon-musk-spacex-us-iran-deal.html
 
 **Justice Dept. Clears Way for Paramount-Warner Bros. Merger**\
