@@ -1,3 +1,7 @@
+**How David Hockney Taught a City to See Itself**\
+`A Brit, he became a symbol of the city’s culture, stylish and alienating, with his vivid swimming pool paintings and embrace of SoCal light, hedonism and gay liberation.`\
+https://www.nytimes.com/2026/06/13/arts/design/david-hockney-los-angeles-pool-paintings.html
+
 **Only One President Could Come Up With This Spectacle**\
 `Trump has gone beyond kayfabe.`\
 https://www.nytimes.com/2026/06/13/opinion/trump-ufc-fight-freedom-250.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/13/us/politics/independence-movements-united-sta
 **What to Know About the U.F.C. Fights at the White House**\
 `About 4,300 spectators will surround an octagonal cage on the South Lawn on Sunday night. President Trump and Dana White, the U.F.C.’s chief executive, are longtime friends.`\
 https://www.nytimes.com/2026/06/13/arts/television/ufc-white-house-fights.html
-
-**Can the Artemis III Mission Go on as Planned?**\
-`NASA has chosen four astronauts for the Artemis III mission, but there has been a major setback: the destruction of a Blue Origin rocket and its only launchpad. Our science reporter Katrina Miller describes what this event might mean for the U.S. goal of landing on the moon by 2028.`\
-https://www.nytimes.com/video/science/space/100000010943451/can-the-artemis-iii-mission-go-on-as-planned.html
 
