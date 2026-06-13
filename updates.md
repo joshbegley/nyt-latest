@@ -1,3 +1,7 @@
+**Iran War Live Updates: Mediator Says Peace Deal Could be Finalized Within 24 Hours**\
+`The prime minister of Pakistan, a key intermediary in U.S.-Iran talks, said a deal was “likely expected.” An Iranian official sought to temper expectations but said an agreement could be signed in the coming days.`\
+https://www.nytimes.com/live/2026/06/13/world/iran-war-trump-us-israel
+
 **Ben Mims Loves an Erewhon Brownie**\
 `A celebrated baker and cookbook author takes the Bake Time Questionnaire.`\
 https://www.nytimes.com/2026/06/13/dining/ben-mims-loves-an-erewhon-brownie.html
