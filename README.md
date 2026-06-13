@@ -1,4 +1,8 @@
-**How David Hockney Taught a City to See Itself**\
+**David Plowden, Who Photographed a Disappearing America, Dies at 93**\
+`With his haunting images of steam locomotives, steel mills and Midwestern farms, the celebrated lensman revealed the poetry in the artifacts of manual labor.`\
+https://www.nytimes.com/2026/06/13/arts/david-plowden-dead.html
+
+**How David Hockney Taught Los Angeles to See Itself**\
 `A Brit, he became a symbol of the city’s culture, stylish and alienating, with his vivid swimming pool paintings and embrace of SoCal light, hedonism and gay liberation.`\
 https://www.nytimes.com/2026/06/13/arts/design/david-hockney-los-angeles-pool-paintings.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/13/business/spacex-ipo-musk-stock-bubble.html
 **Independent Cascadia? Greater Idaho? Disunited States Look Toward Divorce**\
 `At a moment when even the prospects of dialogue seem far-fetched, movements to redraw state lines to link like-minded regions, or even to secede from the union, are gaining strength.`\
 https://www.nytimes.com/2026/06/13/us/politics/independence-movements-united-states.html
-
-**What to Know About the U.F.C. Fights at the White House**\
-`About 4,300 spectators will surround an octagonal cage on the South Lawn on Sunday night. President Trump and Dana White, the U.F.C.’s chief executive, are longtime friends.`\
-https://www.nytimes.com/2026/06/13/arts/television/ufc-white-house-fights.html
 
