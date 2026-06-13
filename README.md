@@ -1,3 +1,11 @@
+**‘Almost There, Almost There, Almost There’: The Hopes and the Heartbreak of the '90s Knicks**\
+`28 years ago, the team’s nemesis Reggie Miller sunk a shot that dashed their playoff dreams. Here’s what Spike Lee and others sitting courtside remember.`\
+https://www.nytimes.com/interactive/2026/06/12/magazine/reggie-miller-knicks-pacers-spike-lee.html
+
+**Gene Shalit, Film Critic Bristling With Hair and Puns, Dies at 100**\
+`One of the nation’s most recognizable characters, he delivered his wacky commentary for more than 40 years on the “Today” show.`\
+https://www.nytimes.com/2026/06/12/arts/television/gene-shalit-dead.html
+
 **Judge Blocks National Parks From Removing ‘Negative’ Signs and Depictions of Slavery**\
 `The ruling accused the Trump administration of engaging in censorship by taking down materials at parks across the country.`\
 https://www.nytimes.com/2026/06/12/us/politics/judge-national-parks-trump.html
@@ -173,14 +181,6 @@ https://www.nytimes.com/es/2026/06/12/espanol/negocios/elon-musk-billonario.html
 **Pope Does ‘6-7’ Gesture While Meeting with Migrants**\
 `Pope Leo XIV wrapped up his week-long tour of Spain meeting with migrants in the Canary Islands. Leo also warned traffickers of migrants to stop and “repent.”`\
 https://www.nytimes.com/video/world/europe/100000010963008/pope-6-7-meme-spain-migrants.html
-
-**Elon Musk’s Big Bet for SpaceX**\
-`Elon Musk is taking SpaceX public and keeping almost all the power. Ryan Mac, a technology reporter for The Times, breaks down why the company’s record I.P.O. is both a big bet on Musk’s vision and a risk for investors.`\
-https://www.nytimes.com/video/business/100000010953560/elon-musk-spacex-initial-public-offering.html
-
-**If You Have a 401(k), How Much SpaceX Stock Will You Own?**\
-`If you have index funds — such as in a 401(k) — they may soon include shares of the mega company. Here’s a rough calculation.`\
-https://www.nytimes.com/2026/06/12/upshot/spacex-stock-ipo.html
 
 **Elon Musk Becomes World’s First Trillionaire on SpaceX’s First Day of Trading**\
 `Stock in Mr. Musk’s rocket and satellite maker closed just above $161, up more than 19 percent from its I.P.O. price.`\

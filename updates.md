@@ -1,3 +1,7 @@
+**Judge Blocks National Parks From Removing ‘Negative’ Signs and Depictions of Slavery**\
+`The ruling accused the Trump administration of engaging in censorship by taking down materials at parks across the country.`\
+https://www.nytimes.com/2026/06/12/us/politics/judge-national-parks-trump.html
+
 **What It Means for Elon Musk to Be Worth $1 Trillion**\
 `We used physical dollar bills to see just how far $1 trillion could go.`\
 https://www.nytimes.com/interactive/2026/06/12/business/elon-musk-trillionaire.html
