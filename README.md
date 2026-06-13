@@ -1,3 +1,7 @@
+**EE. UU. y Venezuela afirman haber abatido a un líder del Tren de Aragua en una operación conjunta**\
+`Un ataque realizado esta semana en Venezuela acabó con la vida de un líder de la banda conocido como Niño Guerrero, quien era buscado en Estados Unidos, dijeron autoridades de ambos países.`\
+https://www.nytimes.com/es/2026/06/13/espanol/america-latina/trump-tren-aragua-nino-guerrero.html
+
 **WABC Anchor Bill Ritter Is Stepping Down After Alzheimer’s Diagnosis**\
 `The veteran journalist told viewers on Friday that it would be his last time anchoring the newscast, but that he was assuming a new role covering the disease he’s fighting.`\
 https://www.nytimes.com/2026/06/13/nyregion/bill-ritter-abc-news-alzheimers.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/13/realestate/short-term-rental-hosting-airbnb.h
 **The Violence in Iran Was Real. The Film Showing It Was A.I.**\
 `The docudrama “Dreams of Violets” premiered at the Tribeca Festival, a sign that some in Hollywood have warmed to the technology.`\
 https://www.nytimes.com/2026/06/13/movies/ai-tribeca-dreams-violets-iran.html
-
-**Ebola Comes for Congo’s Most Vulnerable Children**\
-`The arrival of a sick newborn at Saint Nicholas Orphanage in eastern Democratic Republic of Congo set off an Ebola outbreak that quickly spread among the country’s most vulnerable. Local health authorities are now monitoring the children’s home, but at least two babies have already died.`\
-https://www.nytimes.com/video/world/africa/100000010952087/ebola-congo-orphanage-children.html
 

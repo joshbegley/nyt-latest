@@ -1,3 +1,15 @@
+**WABC Anchor Bill Ritter Is Stepping Down After Alzheimer’s Diagnosis**\
+`The veteran journalist told viewers on Friday that it would be his last time anchoring the newscast, but that he was assuming a new role covering the disease he’s fighting.`\
+https://www.nytimes.com/2026/06/13/nyregion/bill-ritter-abc-news-alzheimers.html
+
+**What U.S. and Paraguay Fans Have in Common**\
+`At the first U.S. home World Cup match against Paraguay, the colors and the chants were loud in Los Angeles.`\
+https://www.nytimes.com/2026/06/13/style/us-paraguay-fans-world-cup-fashion.html
+
+**Iran War Live Updates: Trump Claims Peace Deal Will be Signed Sunday, But Iran Disputes Timeline**\
+`An Iranian foreign ministry official sought to temper expectations, saying there were no plans for a Sunday signing and an agreement could be inked in the coming days.`\
+https://www.nytimes.com/live/2026/06/13/world/iran-war-trump-us-israel
+
 **The Knicks Are the Hottest Ticket in Town. Hottest Jersey, Too.**\
 `Unless you’re a size 2X or 3X, you might be out of luck when you go looking for official N.B.A. merchandise in New York City.`\
 https://www.nytimes.com/2026/06/13/nyregion/knicks-jerseys-clothing.html
