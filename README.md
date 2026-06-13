@@ -1,3 +1,7 @@
+**Limited Runs**\
+`John Kugelman says a lot with a little.`\
+https://www.nytimes.com/2026/06/13/crosswords/daily-puzzle-2026-06-14.html
+
 **Mystery Potato Hovering Over Colorado Is Reported in Latest U.F.O. Files**\
 `Potatoes have featured in sightings before, and in real and fictional space travel.`\
 https://www.nytimes.com/2026/06/13/us/mystery-potato-hovering-over-colorado-is-reported-in-latest-ufo-files.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/13/arts/music/jack-white-sylvan-esso-songs.html
 **Brazilians Revive a World Cup Ritual to Cheer on Their National Team**\
 `After years of dampened enthusiasm about the World Cup, Brazilians are excited about their national team again — and they’re showing it by painting the streets.`\
 https://www.nytimes.com/2026/06/13/world/americas/world-cup-brazil-street-art.html
-
-**No pude decirle por qué teníamos que romper**\
-`Cuando la novia de mi primo más joven lo engañó, luché contra mis propios fantasmas.`\
-https://www.nytimes.com/es/2026/06/13/espanol/estilos-de-vida/modern-love-infidelidad-noviazgo.html
 
