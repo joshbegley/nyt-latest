@@ -1,3 +1,11 @@
+**Jon Ossoff’s Anti-Authoritarian Playbook**\
+`The Opinion columnist Michelle Goldberg returned from a recent trip to Hungary with an appreciation for Senator Jon Ossoff’s playbook. Viktor Orban’s stunning defeat demonstrates the power of an anticorruption message, she argues, and Ossoff offers a model for Democrats.`\
+https://www.nytimes.com/video/opinion/100000010952666/jon-ossoffs-anti-authoritarian-playbook.html
+
+**Manhattan Street Closures for World Cup to Start at Noon on Saturday**\
+`Mayor Zohran Mamdani has declared a “gridlock alert” day every day that a match is scheduled at MetLife Stadium.`\
+https://www.nytimes.com/2026/06/13/nyregion/manhattan-street-closures-world-cup.html
+
 **Knicks Bring Back Watch Party Outside the Garden for Game 5**\
 `The official watch parties on Saturday night require tickets or registration and will be outside Madison Square Garden, in Central Park and at Radio City Music Hall.`\
 https://www.nytimes.com/2026/06/13/nyregion/knicks-watch-party-nyc.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/13/us/hialeah-florida-cocaine-drug-stings.html
 **Book Review: ‘Something We Said,’ by Elizabeth Stordeur Pryor**\
 `Elizabeth Stordeur Pryor’s new book, “Something We Said,” is at once a memoir and a history of a racial slur.`\
 https://www.nytimes.com/2026/06/13/books/review/something-we-said-elizabeth-stordeur-pryor.html
-
-**Trump Is Losing Ground With White Working-Class Voters on the Economy**\
-`A review of polling data shows an extraordinary swing among white working-class voters on the president’s handling of the economy.`\
-https://www.nytimes.com/2026/06/13/us/politics/trump-white-working-class-voters-economy.html
-
-**How Sergio Gor Is Transforming the Role of U.S. Ambassador in the Trump Era**\
-`From his post in New Delhi, Mr. Gor has become a force in U.S. foreign policy, chasing business deals and stunning diplomats by reversing a long-planned embassy building project.`\
-https://www.nytimes.com/2026/06/13/us/politics/sergio-gor-ambassador-transformation-trump-era.html
 
