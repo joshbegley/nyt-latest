@@ -1,3 +1,11 @@
+**Does U.F.O. Disclosure Threaten Faith?**\
+`Steven Spielberg’s ‘Disclosure Day’ and the God-and-aliens debate.`\
+https://www.nytimes.com/2026/06/13/opinion/disclosure-day-ufo-religion.html
+
+**How to Kick SpaceX Out of Your 401(k)**\
+`It is impossible to beat the stock market. But if you want to divest your retirement of Elon Musk-related companies, here is the best way to do so.`\
+https://www.nytimes.com/2026/06/13/opinion/spacex-stock-ipo-ai.html
+
 **Everyone Wants to Tax A.I. The Big Disagreement: How?**\
 `Bernie Sanders, President Trump and even A.I. companies say they would like the public to share the wealth. But their solutions are very different.`\
 https://www.nytimes.com/2026/06/13/business/dealbook/ai-tax-proposals.html

@@ -10,7 +10,7 @@ https://www.nytimes.com/interactive/2026/06/13/sports/soccer/usa-paraguay-world-
 `A sleazy situation that Trump can’t wish away.`\
 https://www.nytimes.com/2026/06/13/opinion/epstein-trump-white-house.html
 
-**Do U.F.O.s Usurp Religion?**\
+**Does U.F.O. Disclosure Threaten Faith?**\
 `Steven Spielberg’s ‘Disclosure Day’ and the God-and-aliens debate.`\
 https://www.nytimes.com/2026/06/13/opinion/disclosure-day-ufo-religion.html
 
@@ -26,7 +26,7 @@ https://www.nytimes.com/2026/06/13/opinion/usa-soccer-world-cup.html
 `An octogenarian president for a 250-year-old republic.`\
 https://www.nytimes.com/2026/06/13/opinion/trump-ufc-fight-freedom-250-birthday-80.html
 
-**SpaceX and the A.I. Bubble Are Coming for Your 401(k)**\
+**How to Kick SpaceX Out of Your 401(k)**\
 `It is impossible to beat the stock market. But if you want to divest your retirement of Elon Musk-related companies, here is the best way to do so.`\
 https://www.nytimes.com/2026/06/13/opinion/spacex-stock-ipo-ai.html
 
