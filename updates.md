@@ -1,3 +1,7 @@
+**El regreso de Conor McGregor: sustancias prohibidas y un médico famoso**\
+`La sorprendente transformación física de McGregor ha sido objeto de especulaciones entre los aficionados de la UFC, los luchadores y comentaristas que han afirmado que eludió las reglas antidopaje para usar sustancias que mejoran el rendimiento mientras se recuperaba.`\
+https://www.nytimes.com/es/2026/06/13/espanol/deportes/conor-mcgregor-dopaje.html
+
 **L.A. Kicks Off the World Cup With a Party**\
 `Fans, many draped in flags and colorful costumes, arrived at SoFi Stadium hours before the United States began its campaign against Paraguay.`\
 https://www.nytimes.com/2026/06/13/us/world-cup-los-angeles-scene.html
