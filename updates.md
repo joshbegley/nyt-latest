@@ -1,3 +1,7 @@
+**Dito van Reigersberg, Avant-Garde and Drag Virtuoso, Dies at 53**\
+`A co-founder of Pig Iron Theater Company, known for its surreal productions, he also gave energetic performances as his alter ego, Martha Graham Cracker.`\
+https://www.nytimes.com/2026/06/13/theater/dito-van-reigersberg-dead.html
+
 **James Talarico Plays Up Spurs’ Past Glory in Campaign Ad Aimed at Texas Voters**\
 `The Democratic candidate for Senate looked to gain crossover appeal with a spot emphasizing teamwork and his own experience as a teacher in San Antonio.`\
 https://www.nytimes.com/2026/06/13/us/politics/talarico-spurs-campaign-ad.html

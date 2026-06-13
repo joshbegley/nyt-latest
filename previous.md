@@ -1,3 +1,7 @@
+**Dito van Reigersberg, Avant-Garde and Drag Virtuoso, Dies at 53**\
+`A co-founder of Pig Iron Theater Company, known for its surreal productions, he also gave energetic performances as his alter ego, Martha Graham Cracker.`\
+https://www.nytimes.com/2026/06/13/theater/dito-van-reigersberg-dead.html
+
 **James Talarico Plays Up Spurs’ Past Glory in Campaign Ad Aimed at Texas Voters**\
 `The Democratic candidate for Senate looked to gain crossover appeal with a spot emphasizing teamwork and his own experience as a teacher in San Antonio.`\
 https://www.nytimes.com/2026/06/13/us/politics/talarico-spurs-campaign-ad.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/13/science/world-cup-grass-pitch.html
 **With a Deal Seemingly Close, the U.S. Faces an Iran More Willing to Withstand Pressure**\
 `Iran’s new, more militaristic leaders have already survived the worst that America and Israel can deliver, and seem readier to take risks.`\
 https://www.nytimes.com/2026/06/13/world/middleeast/iran-united-states-israel-lebanon.html
-
-**Knicks Fever is Shaping Weddings, Too**\
-`The overlap of the N.B.A. finals with peak wedding season is presenting a dilemma for some couples.`\
-https://www.nytimes.com/2026/06/13/style/knicks-nba-finals-weddings.html
 
