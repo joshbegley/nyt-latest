@@ -1,3 +1,7 @@
+**What NASA Needs to Stay on Track for the Moon**\
+`The agency gave a rosy update on Artemis III, a test flight for its goal to return humans to the moon, but experts say the timeline is ambitious.`\
+https://www.nytimes.com/2026/06/13/science/nasa-moon-mission-artemis-iii.html
+
 **Does U.F.O. Disclosure Threaten Faith?**\
 `Steven Spielberg’s ‘Disclosure Day’ and the God-and-aliens debate.`\
 https://www.nytimes.com/2026/06/13/opinion/disclosure-day-ufo-religion.html

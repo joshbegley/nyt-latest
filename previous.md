@@ -112,7 +112,7 @@ https://www.nytimes.com/2026/06/13/style/josh-hart-knicks-braids.html
 
 **What NASA Needs to Stay on Track for the Moon**\
 `The agency gave a rosy update on Artemis III, a test flight for its goal to return humans to the moon, but experts say the timeline is ambitious.`\
-https://www.nytimes.com/2026/06/13/science/what-nasa-needs-to-stay-on-track-for-the-moon.html
+https://www.nytimes.com/2026/06/13/science/nasa-moon-mission-artemis-iii.html
 
 **A New Option for Long-Term Care Costs**\
 `Washington has launched the first program to help cover home care and other supports. A number of states are paying attention.`\
