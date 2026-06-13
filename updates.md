@@ -1,3 +1,11 @@
+**Still Need to Book a Summer Trip? Here Are Our Suggestions on Where to Go**\
+`Once again, readers wrote in with their questions and the travel experts answered.`\
+https://www.nytimes.com/2026/06/12/t-magazine/travel/summer-vacation-suggestions-getaway-guide.html
+
+**26-Year Mystery of a Skeleton in a Tent Ends With DNA Identification**\
+`Remains of the man, Joseph Louis Serrao Jr., discovered in a remote area in Olympic National Park in 2000, were identified using forensic genealogy.`\
+https://www.nytimes.com/2026/06/12/us/human-remains-olympic-national-park-washington.html
+
 **Musk Is the World’s First Trillionaire. Who Was the First Billionaire?**\
 `John D. Rockefeller, the Gilded Age oil baron, became America’s first billionaire in 1916. Like Elon Musk’s ascension, the milestone made headlines.`\
 https://www.nytimes.com/2026/06/12/us/musk-trillionaire-first-billionaire.html
