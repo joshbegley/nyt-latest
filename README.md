@@ -94,7 +94,7 @@ https://www.nytimes.com/2026/06/13/opinion/doctor-chatgpt.html
 `An octogenarian president for a 250-year-old republic.`\
 https://www.nytimes.com/video/opinion/100000010958359/the-spectacle-of-trump-at-80.html
 
-**Iran War Live Updates: Trump Claims Peace Deal Will be Signed Sunday, But Iran Disputes Timeline**\
+**Iran War Live Updates: Trump Says Peace Deal Will be Signed Sunday, But Iran Disputes Timeline**\
 `An Iranian foreign ministry official sought to temper expectations, saying there were no plans for a Sunday signing and an agreement could be inked in the coming days.`\
 https://www.nytimes.com/live/2026/06/13/world/iran-war-trump-us-israel
 
