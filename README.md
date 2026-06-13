@@ -1,3 +1,7 @@
+**Anthropic Blocks Foreign Nationals from Using Its Mythos and Fable A.I.**\
+`The San Francisco company said on Friday night that the federal government ordered the suspension of the two A.I. systems, citing national security concerns.`\
+https://www.nytimes.com/2026/06/12/technology/anthropic-mythos-fable5-blocked.html
+
 **Festival Flier**\
 `Ryan McCarty’s themeless puzzle is tough but fair.`\
 https://www.nytimes.com/2026/06/12/crosswords/daily-puzzle-2026-06-13.html
