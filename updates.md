@@ -1,3 +1,11 @@
+**Puntos clave de la crisis en la Casa Blanca por los archivos Epstein**\
+`Dos reporteros del Times detallan los enfrentamientos en las más altas esferas del gobierno estadounidense para manejar el escándalo del delincuente sexual y sus conexiones con el presidente Trump.`\
+https://www.nytimes.com/es/2026/06/13/espanol/estados-unidos/conclusiones-investigacion-archivos-epstein-casa-blanca.html
+
+**¿Cuánta desnudez permite Instagram?**\
+`La única constante en las normas sobre la publicación de desnudos en la plataforma de redes sociales parece ser su inconsistencia a la hora de aplicarlas.`\
+https://www.nytimes.com/es/2026/06/13/espanol/estilos-de-vida/instagram-normas-desnudez.html
+
 **Delaney Hall Is Named After Their Family. They Want It to Close.**\
 `Members of the Delaney family say that if the center continues to be used as an Immigration and Customs Enforcement facility, its name needs to be changed.`\
 https://www.nytimes.com/2026/06/13/nyregion/delaney-hall-is-named-after-their-family-they-want-it-to-close.html
