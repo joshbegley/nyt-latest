@@ -1,3 +1,7 @@
+**The Knicks Are the Hottest Ticket in Town. Hottest Jersey, Too.**\
+`Unless you’re a size 2X or 3X, you might be out of luck when you go looking for official N.B.A. merchandise in New York City.`\
+https://www.nytimes.com/2026/06/13/nyregion/knicks-jerseys-clothing.html
+
 **David Plowden, Who Photographed a Disappearing America, Dies at 93**\
 `With his haunting images of steam locomotives, steel mills and Midwestern farms, the celebrated lensman revealed the poetry in the artifacts of manual labor.`\
 https://www.nytimes.com/2026/06/13/arts/david-plowden-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/13/world/europe/ukraine-russia-patriot-intercept
 **Mega I.P.O. Frenzy Could Be a Harbinger of a Stock Bubble**\
 `Rampant enthusiasm is buoying tech shares to levels that defy gravity. Invest with caution, our columnist says.`\
 https://www.nytimes.com/2026/06/13/business/spacex-ipo-musk-stock-bubble.html
-
-**Independent Cascadia? Greater Idaho? Disunited States Look Toward Divorce**\
-`At a moment when even the prospects of dialogue seem far-fetched, movements to redraw state lines to link like-minded regions, or even to secede from the union, are gaining strength.`\
-https://www.nytimes.com/2026/06/13/us/politics/independence-movements-united-states.html
 
