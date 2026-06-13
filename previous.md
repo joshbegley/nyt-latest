@@ -1,3 +1,7 @@
+**Yosemite Ranger’s Suit Over Trans Flag at El Capitan Is Dismissed**\
+`The ranger, who was fired after hanging the flag, sued the government on free speech grounds. On Friday, a judge dismissed the case, saying the court lacked the authority to rule.`\
+https://www.nytimes.com/2026/06/13/us/politics/yosemite-ranger-lawsuit-transgender-flag-judge-ruling.html
+
 **Limited Runs**\
 `John Kugelman says a lot with a little.`\
 https://www.nytimes.com/2026/06/13/crosswords/daily-puzzle-2026-06-14.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/13/business/economy-trillionaire-wealth-wages.ht
 **Jack White, Sylvan Esso: Songs to Know This Week**\
 `Jack White makes his slide guitar scream, Sylvan Esso rocks out and 7 more new tracks to know.`\
 https://www.nytimes.com/2026/06/13/arts/music/jack-white-sylvan-esso-songs.html
-
-**Brazilians Revive a World Cup Ritual to Cheer on Their National Team**\
-`After years of dampened enthusiasm about the World Cup, Brazilians are excited about their national team again — and they’re showing it by painting the streets.`\
-https://www.nytimes.com/2026/06/13/world/americas/world-cup-brazil-street-art.html
 

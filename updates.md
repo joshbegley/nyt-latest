@@ -1,3 +1,7 @@
+**Yosemite Ranger’s Suit Over Trans Flag at El Capitan Is Dismissed**\
+`The ranger, who was fired after hanging the flag, sued the government on free speech grounds. On Friday, a judge dismissed the case, saying the court lacked the authority to rule.`\
+https://www.nytimes.com/2026/06/13/us/politics/yosemite-ranger-lawsuit-transgender-flag-judge-ruling.html
+
 **Limited Runs**\
 `John Kugelman says a lot with a little.`\
 https://www.nytimes.com/2026/06/13/crosswords/daily-puzzle-2026-06-14.html
