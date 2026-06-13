@@ -1,3 +1,7 @@
+**State Attorneys General Are Investigating OpenAI**\
+`OpenAI said that a coalition of states had opened an investigation over a wide range of its practices, including its handing of user data, safety of minors and advertising activities.`\
+https://www.nytimes.com/2026/06/13/technology/states-investigating-openai.html
+
 **Trump Again Picks Personal Lawyer for a Top Job, as U.S. Attorney in Manhattan**\
 `James M. McDonald, a veteran former federal prosecutor and regulator, has more recently been part of President Trump’s legal team, appealing his criminal conviction.`\
 https://www.nytimes.com/2026/06/13/us/politics/trump-lawyer-us-attorney-manhattan.html
