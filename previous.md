@@ -1,3 +1,7 @@
+**L.A. Kicks Off the World Cup With a Party**\
+`Fans, many draped in flags and colorful costumes, arrived at SoFi Stadium hours before the United States began its campaign against Paraguay.`\
+https://www.nytimes.com/2026/06/13/us/world-cup-los-angeles-scene.html
+
 **6 formas de hacer ejercicio en el agua**\
 `Ya empieza la temporada de playa y piscinas. ¿Por qué no hacer un poco de ejercicio mientras disfrutas del sol?`\
 https://www.nytimes.com/es/2026/06/13/espanol/verano-ejercicio-agua.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/12/arts/music/james-blood-ulmer-dead.html
 **Your SpaceX Odds Are Not in Your Favor**\
 `To buy a share of SpaceX or not to buy? That is the trillion-dollar question. With its high share price, only one person stands to profit from the company going public. According to the Opinion senior staff editor Bill Saporito, you might as well purchase lottery tickets instead.`\
 https://www.nytimes.com/video/opinion/100000010952734/your-spacex-odds-are-not-in-your-favor.html
-
-**Charlie Dalin, Who Set a Sailing Record While Battling Cancer, Dies at 42**\
-`Last year, while suffering from an advanced stomach tumor, he won the grueling Vendée Globe race, sailing 24,000 miles in just 64 days.`\
-https://www.nytimes.com/2026/06/12/sports/sailing/charlie-dalin-dead.html
 
 **Elon Musk Becomes World’s First Trillionaire on SpaceX’s First Day of Trading**\
 `Stock in Mr. Musk’s rocket and satellite maker closed just above $161, up more than 19 percent from its I.P.O. price.`\

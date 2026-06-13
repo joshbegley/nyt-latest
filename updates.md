@@ -1,3 +1,7 @@
+**L.A. Kicks Off the World Cup With a Party**\
+`Fans, many draped in flags and colorful costumes, arrived at SoFi Stadium hours before the United States began its campaign against Paraguay.`\
+https://www.nytimes.com/2026/06/13/us/world-cup-los-angeles-scene.html
+
 **6 formas de hacer ejercicio en el agua**\
 `Ya empieza la temporada de playa y piscinas. ¿Por qué no hacer un poco de ejercicio mientras disfrutas del sol?`\
 https://www.nytimes.com/es/2026/06/13/espanol/verano-ejercicio-agua.html
