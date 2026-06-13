@@ -1,3 +1,35 @@
+**Iran War Live Updates: Middle East Awaits Latest on Potential Agreement**\
+`While U.S. and Iranian officials have said that a deal could be signed within days, the terms remain uncertain, and there is still the potential for it to be derailed.`\
+https://www.nytimes.com/live/2026/06/13/world/iran-war-trump-us-israel
+
+**Unfinished Business**\
+`We like it when projects are completed, but what if we could abide comfortably in the toiling and striving it takes to get them there?`\
+https://www.nytimes.com/2026/06/13/briefing/unfinished-business.html
+
+**A Tren de Aragua Leader Is Killed in a Joint Strike, U.S. and Venezuela Say**\
+`A strike this week in Venezuela killed a gang leader known as Niño Guerrero who was wanted in the United States, officials in both countries said.`\
+https://www.nytimes.com/2026/06/13/world/americas/tren-de-aragua-leader-killed-us-venezuela.html
+
+**My Tween Daughter’s Friend Is a Mean Girl. Should I Tell Her Mother?**\
+`Many of the girl’s friends have begun distancing themselves from her, and I don’t know if her mother understands the full extent of the problem.`\
+https://www.nytimes.com/2026/06/13/magazine/daughters-friend-mean-girl-ethics.html
+
+**NYT Connections Answers for June 14, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, June 14, 2026.`\
+https://www.nytimes.com/2026/06/13/crosswords/connections-companion-1099.html
+
+**Today’s Wordle Hints for June 14, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, June 14, 2026.`\
+https://www.nytimes.com/2026/06/13/crosswords/wordle-review-1821.html
+
+**NYT Strands Hints for June 14, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, June 14, 2026.`\
+https://www.nytimes.com/2026/06/13/crosswords/strands-sidekick-833.html
+
+**An Honored Canadian Journalist on the Importance of Investigative Reporting**\
+`Our Times colleague Susanne Craig was back home in Canada to be honored for her extraordinary career, which began in Calgary, Alberta, her hometown.`\
+https://www.nytimes.com/2026/06/13/world/canada/investigative-journalism-susanne-craig-cjf-canada.html
+
 **Seth Rogen Knows the Secret to Marriage — and Being Rich in Hollywood**\
 `After three decades in the industry, the actor-writer-director-producer has figured a lot out.`\
 https://www.nytimes.com/2026/06/13/magazine/seth-rogen-interview.html
@@ -165,36 +197,4 @@ https://www.nytimes.com/2026/06/13/nyregion/knicks-rucker-park.html
 **Así fue el pánico en la Casa Blanca por los archivos Epstein**\
 `Los principales asesores del presidente se reunieron en una serie de sesiones en la Sala de Situación para intentar contener un escándalo que involucraba a Donald Trump.`\
 https://www.nytimes.com/es/2026/06/13/espanol/estados-unidos/trump-archivos-epstein-casa-blanca.html
-
-**It’s Been 100 Days. Do You Know Where Rep. Tom Kean Is?**\
-`The New Jersey representative, Thomas Kean Jr., voted in the House and spoke at a committee hearing on March 5. He hasn’t been spotted since.`\
-https://www.nytimes.com/2026/06/13/nyregion/tom-kean-missing-congress.html
-
-**Has There Ever Been a Crazier Sports Moment for New York? Actually, Yes.**\
-`In the spring of 1994, the World Cup arrived, the Knicks were great and so were the Rangers. And in the middle of it all, an infamous White Bronco chase.`\
-https://www.nytimes.com/2026/06/13/nyregion/knicks-rangers-new-york-sports-1994.html
-
-**Can’t Afford Summer Camp? These Playground Workers Can Help.**\
-`City parks officials will put about 70 seasonal playground associates in New York City parks this summer to run free games and activities for any young person who shows up.`\
-https://www.nytimes.com/2026/06/13/nyregion/nyc-playground-associates-summer-camp.html
-
-**NYT Spelling Bee Answers for June 13, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/06/13/crosswords/spelling-bee-forum.html
-
-**El regreso de Conor McGregor: sustancias prohibidas y un médico famoso**\
-`La sorprendente transformación física de McGregor ha sido objeto de especulaciones entre los aficionados de la UFC, los luchadores y comentaristas que han afirmado que eludió las reglas antidopaje para usar sustancias que mejoran el rendimiento mientras se recuperaba.`\
-https://www.nytimes.com/es/2026/06/13/espanol/deportes/conor-mcgregor-dopaje.html
-
-**L.A. Kicks Off the World Cup With a Party**\
-`Fans, many draped in flags and colorful costumes, arrived at SoFi Stadium hours before the United States began its campaign against Paraguay.`\
-https://www.nytimes.com/2026/06/13/us/world-cup-los-angeles-scene.html
-
-**6 formas de hacer ejercicio en el agua**\
-`Ya empieza la temporada de playa y piscinas. ¿Por qué no hacer un poco de ejercicio mientras disfrutas del sol?`\
-https://www.nytimes.com/es/2026/06/13/espanol/verano-ejercicio-agua.html
-
-**Quote of the Day: In Gray Area of Not Peace and Not War**\
-`Quotation of the Day for Saturday, June 13, 2026.`\
-https://www.nytimes.com/2026/06/13/pageoneplus/quote-of-the-day-in-gray-area-of-not-peace-and-not-war.html
 
