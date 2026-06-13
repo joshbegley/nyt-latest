@@ -1,3 +1,7 @@
+**Knicks Bring Back Watch Party Outside the Garden for Game 5**\
+`The official watch parties on Saturday night require tickets or registration and will be outside Madison Square Garden, in Central Park and at Radio City Music Hall.`\
+https://www.nytimes.com/2026/06/13/nyregion/knicks-watch-party-nyc.html
+
 **Everyone Wants to Tax A.I. The Big Disagreement: How?**\
 `Bernie Sanders, President Trump and even A.I. companies say they would like the public to share the wealth. But their solutions are very different.`\
 https://www.nytimes.com/2026/06/13/business/dealbook/ai-tax-proposals.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/13/us/politics/trump-white-working-class-voters-
 **How Sergio Gor Is Transforming the Role of U.S. Ambassador in the Trump Era**\
 `From his post in New Delhi, Mr. Gor has become a force in U.S. foreign policy, chasing business deals and stunning diplomats by reversing a long-planned embassy building project.`\
 https://www.nytimes.com/2026/06/13/us/politics/sergio-gor-ambassador-transformation-trump-era.html
-
-**Spielberg Gets Paranoid With ‘Disclosure Day’**\
-`Disclosure Day shows that after 50 years Spielberg’s fixations are the same, but his faith in the system has deteriorated.`\
-https://www.nytimes.com/video/movies/100000010926518/spielberg-gets-paranoid-with-disclosure-day.html
 
