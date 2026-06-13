@@ -1,3 +1,7 @@
+**New Yorkers Are Going on the Road With the Knicks for Game 5**\
+`One resale site said that more than 48 percent of its tickets to the game in San Antonio had been sold to people from New York and New Jersey.`\
+https://www.nytimes.com/2026/06/12/nyregion/knicks-finals-tickets-san-antonio.html
+
 **One Dead and Several Injured in Tent Collapse Outside Virginia Church**\
 `Severe weather conditions caused the collapse during an outdoor service and concert Friday night.`\
 https://www.nytimes.com/2026/06/12/us/virginia-church-tent-collapse.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/12/arts/dance/review-royal-ballet-salle-de-dance
 **Taylor Swift Inducted Into the Songwriters Hall of Fame**\
 `At 36, Taylor Swift became the youngest woman ever inducted into the Songwriters Hall of Fame on Thursday.`\
 https://www.nytimes.com/video/arts/music/100000010963344/taylor-swift-songwriters-hall-of-fame.html
-
-**Spain’s Church Hopes Pope Trip Will Stem Secular Tide**\
-`Leo XIV’s visit to Spain, which ended on Friday, has spurred expectations among Catholic leaders of a spiritual revival.`\
-https://www.nytimes.com/2026/06/12/world/europe/pope-leo-spain-secular-catholic.html
 
 **Elon Musk Becomes World’s First Trillionaire on SpaceX’s First Day of Trading**\
 `Stock in Mr. Musk’s rocket and satellite maker closed just above $161, up more than 19 percent from its I.P.O. price.`\

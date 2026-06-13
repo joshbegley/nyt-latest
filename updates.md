@@ -1,3 +1,7 @@
+**New Yorkers Are Going on the Road With the Knicks for Game 5**\
+`One resale site said that more than 48 percent of its tickets to the game in San Antonio had been sold to people from New York and New Jersey.`\
+https://www.nytimes.com/2026/06/12/nyregion/knicks-finals-tickets-san-antonio.html
+
 **One Dead and Several Injured in Tent Collapse Outside Virginia Church**\
 `Severe weather conditions caused the collapse during an outdoor service and concert Friday night.`\
 https://www.nytimes.com/2026/06/12/us/virginia-church-tent-collapse.html
