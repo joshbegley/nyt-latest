@@ -1,3 +1,11 @@
+**El gobierno de Trump dice que reanudará el procesamiento de solicitudes de asilo e inmigración**\
+`La respuesta se produjo después de que un juez federal reprendiera a los funcionarios por no cumplir de inmediato una orden dictada la semana pasada.`\
+https://www.nytimes.com/es/2026/06/13/espanol/estados-unidos/trump-reanudacion-asilo-migracion.html
+
+**Vandals Damage Work by Black Artist at Houston Museum, Officials Say**\
+`Two men scraped and punctured a $23,000 painting at the Houston Museum of African American Culture last month, the museum said. It decided to display the damaged artwork.`\
+https://www.nytimes.com/2026/06/13/arts/houston-museum-black-art-vandalized.html
+
 **Iran War Live Updates: Trump Says Peace Deal Will be Signed Sunday, But Iran Disputes Timeline**\
 `An Iranian foreign ministry official sought to temper expectations, saying there were no plans for a Sunday signing and an agreement could be inked in the coming days.`\
 https://www.nytimes.com/live/2026/06/13/world/iran-war-trump-us-israel

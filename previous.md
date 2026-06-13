@@ -1,3 +1,11 @@
+**El gobierno de Trump dice que reanudará el procesamiento de solicitudes de asilo e inmigración**\
+`La respuesta se produjo después de que un juez federal reprendiera a los funcionarios por no cumplir de inmediato una orden dictada la semana pasada.`\
+https://www.nytimes.com/es/2026/06/13/espanol/estados-unidos/trump-reanudacion-asilo-migracion.html
+
+**Vandals Damage Work by Black Artist at Houston Museum, Officials Say**\
+`Two men scraped and punctured a $23,000 painting at the Houston Museum of African American Culture last month, the museum said. It decided to display the damaged artwork.`\
+https://www.nytimes.com/2026/06/13/arts/houston-museum-black-art-vandalized.html
+
 **EE. UU. y Venezuela afirman haber abatido a un líder del Tren de Aragua en una operación conjunta**\
 `Un ataque realizado esta semana en Venezuela acabó con la vida de un líder de la banda conocido como Niño Guerrero, quien era buscado en Estados Unidos, dijeron autoridades de ambos países.`\
 https://www.nytimes.com/es/2026/06/13/espanol/america-latina/trump-tren-aragua-nino-guerrero.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/13/movies/emily-blunt-disclosure-day-devil-wears
 **Madeline Cash Isn’t Playing Around. Or Is She?**\
 `Her debut novel taps into a microgeneration’s blurring of performance and reality.`\
 https://www.nytimes.com/2026/06/13/style/madeline-cash-profile-lost-lambs.html
-
-**Want to Rent Out Your House? Here’s How to Get Started.**\
-`Hosting a short-term rental comes with a lot of responsibilities.`\
-https://www.nytimes.com/2026/06/13/realestate/short-term-rental-hosting-airbnb.html
-
-**The Violence in Iran Was Real. The Film Showing It Was A.I.**\
-`The docudrama “Dreams of Violets” premiered at the Tribeca Festival, a sign that some in Hollywood have warmed to the technology.`\
-https://www.nytimes.com/2026/06/13/movies/ai-tribeca-dreams-violets-iran.html
 
