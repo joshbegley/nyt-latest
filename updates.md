@@ -1,3 +1,15 @@
+**Trump’s Name Is Removed From Kennedy Center Facade**\
+`Workers removed President Trump’s name from the John F. Kennedy Center for the Performing Arts on Saturday following a judge’s order.`\
+https://www.nytimes.com/video/us/politics/100000010965495/trumps-name-is-removed-from-kennedy-center-facade.html
+
+**‘Witness’ Tree Outside Abraham Lincoln’s Former Home Irreparably Damaged**\
+`Storms damaged the American linden tree, which was alive when Lincoln lived at the home in Springfield, Ill. He left it in 1861 for the White House.`\
+https://www.nytimes.com/2026/06/13/us/abraham-lincoln-witness-tree-destroyed-storm.html
+
+**Iran War Live Updates: Trump Says Peace Deal Will Be Signed Sunday, but Iran Disputes Timeline**\
+`An Iranian foreign ministry official sought to temper expectations, saying there were no plans for a Sunday signing and an agreement could be inked in the coming days.`\
+https://www.nytimes.com/live/2026/06/13/world/iran-war-trump-us-israel
+
 **Dito van Reigersberg, Avant-Garde and Drag Virtuoso, Dies at 53**\
 `A co-founder of Pig Iron Theater Company, known for its surreal productions, he also gave energetic performances as his alter ego, Martha Graham Cracker.`\
 https://www.nytimes.com/2026/06/13/theater/dito-van-reigersberg-dead.html

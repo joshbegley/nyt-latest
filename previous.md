@@ -1,3 +1,11 @@
+**Trump’s Name Is Removed From Kennedy Center Facade**\
+`Workers removed President Trump’s name from the John F. Kennedy Center for the Performing Arts on Saturday following a judge’s order.`\
+https://www.nytimes.com/video/us/politics/100000010965495/trumps-name-is-removed-from-kennedy-center-facade.html
+
+**‘Witness’ Tree Outside Abraham Lincoln’s Former Home Irreparably Damaged**\
+`Storms damaged the American linden tree, which was alive when Lincoln lived at the home in Springfield, Ill. He left it in 1861 for the White House.`\
+https://www.nytimes.com/2026/06/13/us/abraham-lincoln-witness-tree-destroyed-storm.html
+
 **Dito van Reigersberg, Avant-Garde and Drag Virtuoso, Dies at 53**\
 `A co-founder of Pig Iron Theater Company, known for its surreal productions, he also gave energetic performances as his alter ego, Martha Graham Cracker.`\
 https://www.nytimes.com/2026/06/13/theater/dito-van-reigersberg-dead.html
@@ -114,7 +122,7 @@ https://www.nytimes.com/2026/06/13/opinion/doctor-chatgpt.html
 `An octogenarian president for a 250-year-old republic.`\
 https://www.nytimes.com/video/opinion/100000010958359/the-spectacle-of-trump-at-80.html
 
-**Iran War Live Updates: Trump Says Peace Deal Will be Signed Sunday, But Iran Disputes Timeline**\
+**Iran War Live Updates: Trump Says Peace Deal Will Be Signed Sunday, but Iran Disputes Timeline**\
 `An Iranian foreign ministry official sought to temper expectations, saying there were no plans for a Sunday signing and an agreement could be inked in the coming days.`\
 https://www.nytimes.com/live/2026/06/13/world/iran-war-trump-us-israel
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/13/science/nasa-moon-mission-artemis-iii.html
 **A New Option for Long-Term Care Costs**\
 `Washington has launched the first program to help cover home care and other supports. A number of states are paying attention.`\
 https://www.nytimes.com/2026/06/13/well/long-term-care-costs.html
-
-**The Scientific Quest for Perfect World Cup Pitch**\
-`Every match must be played on natural grass that gives players as consistent a surface as possible, no matter the venue. Cue the years of sod studies.`\
-https://www.nytimes.com/2026/06/13/science/world-cup-grass-pitch.html
-
-**With a Deal Seemingly Close, the U.S. Faces an Iran More Willing to Withstand Pressure**\
-`Iran’s new, more militaristic leaders have already survived the worst that America and Israel can deliver, and seem readier to take risks.`\
-https://www.nytimes.com/2026/06/13/world/middleeast/iran-united-states-israel-lebanon.html
 
