@@ -1,3 +1,7 @@
+**Musk Is the World’s First Trillionaire. Who Was the First Billionaire?**\
+`John D. Rockefeller, the Gilded Age oil baron, became America’s first billionaire in 1916. Like Elon Musk’s ascension, the milestone made headlines.`\
+https://www.nytimes.com/2026/06/12/us/musk-trillionaire-first-billionaire.html
+
 **‘Almost There, Almost There, Almost There’: The Hopes and the Heartbreak of the '90s Knicks**\
 `28 years ago, the team’s nemesis Reggie Miller sunk a shot that dashed their playoff dreams. Here’s what Spike Lee and others sitting courtside remember.`\
 https://www.nytimes.com/interactive/2026/06/12/magazine/reggie-miller-knicks-pacers-spike-lee.html

@@ -1,3 +1,7 @@
+**Musk Is the World’s First Trillionaire. Who Was the First Billionaire?**\
+`John D. Rockefeller, the Gilded Age oil baron, became America’s first billionaire in 1916. Like Elon Musk’s ascension, the milestone made headlines.`\
+https://www.nytimes.com/2026/06/12/us/musk-trillionaire-first-billionaire.html
+
 **‘Almost There, Almost There, Almost There’: The Hopes and the Heartbreak of the '90s Knicks**\
 `28 years ago, the team’s nemesis Reggie Miller sunk a shot that dashed their playoff dreams. Here’s what Spike Lee and others sitting courtside remember.`\
 https://www.nytimes.com/interactive/2026/06/12/magazine/reggie-miller-knicks-pacers-spike-lee.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/06/12/world/middleeast/israel-base-jenin-oslo.html
 **Elon Musk se hace billonario**\
 `Luego de que las acciones de SpaceX se dispararan en su primer día de cotización, la persona más rica del mundo ha superado otro hito: uno de 13 dígitos.`\
 https://www.nytimes.com/es/2026/06/12/espanol/negocios/elon-musk-billonario.html
-
-**Pope Does ‘6-7’ Gesture While Meeting with Migrants**\
-`Pope Leo XIV wrapped up his week-long tour of Spain meeting with migrants in the Canary Islands. Leo also warned traffickers of migrants to stop and “repent.”`\
-https://www.nytimes.com/video/world/europe/100000010963008/pope-6-7-meme-spain-migrants.html
 
 **Elon Musk Becomes World’s First Trillionaire on SpaceX’s First Day of Trading**\
 `Stock in Mr. Musk’s rocket and satellite maker closed just above $161, up more than 19 percent from its I.P.O. price.`\
