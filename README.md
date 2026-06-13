@@ -1,3 +1,39 @@
+**Jeffrey Epstein Haunts the White House**\
+`A sleazy situation that Trump can’t wish away.`\
+https://www.nytimes.com/2026/06/13/opinion/epstein-trump-white-house.html
+
+**Do U.F.O.s Usurp Religion?**\
+`Steven Spielberg’s ‘Disclosure Day’ and the God-and-aliens debate.`\
+https://www.nytimes.com/2026/06/13/opinion/disclosure-day-ufo-religion.html
+
+**Detroit Is the Last City That Knows How to Dance**\
+`Dance floors are flooded with selfies and poseurs. But in one city, it’s still a place to feel free.`\
+https://www.nytimes.com/2026/06/13/opinion/detroit-dance-floor-music-dj.html
+
+**How Soccer Changed America and America Changed Soccer**\
+`Thanks to immigrants and the internet, Americans gained entry to a universe beyond our borders.`\
+https://www.nytimes.com/2026/06/13/opinion/usa-soccer-world-cup.html
+
+**The Spectacle of Trump at 80**\
+`An octogenarian president for a 250-year-old republic.`\
+https://www.nytimes.com/2026/06/13/opinion/trump-ufc-fight-freedom-250-birthday-80.html
+
+**SpaceX and the A.I. Bubble Are Coming for Your 401(k)**\
+`It is impossible to beat the stock market. But if you want to divest your retirement of Elon Musk-related companies, here is the best way to do so.`\
+https://www.nytimes.com/2026/06/13/opinion/spacex-stock-ipo-ai.html
+
+**I’m a 53-Year-Old Woman. Stop Telling Me I’m Invisible.**\
+`There’s never been a better time to be a middle-aged woman.`\
+https://www.nytimes.com/2026/06/13/opinion/middle-age-women-invisible.html
+
+**Turning to ChatGPT for Help Instead of Your Doctor**\
+`Readers react to a guest essay by a doctor who found ChatGPT useful in dealing with her own medical issues.`\
+https://www.nytimes.com/2026/06/13/opinion/doctor-chatgpt.html
+
+**The Spectacle of Trump at 80**\
+`An octogenarian president for a 250-year-old republic.`\
+https://www.nytimes.com/video/opinion/100000010958359/the-spectacle-of-trump-at-80.html
+
 **Iran War Live Updates: Middle East Awaits Latest on Potential Agreement**\
 `While U.S. and Iranian officials have said that a deal could be signed within days, the terms remain uncertain, and there is still the potential for it to be derailed.`\
 https://www.nytimes.com/live/2026/06/13/world/iran-war-trump-us-israel
@@ -161,40 +197,4 @@ https://www.nytimes.com/2026/06/13/arts/television/olivia-cooke-house-of-the-dra
 **Book Review: ‘They All Fall in Love at the End,’ by Haili Blassingame**\
 `In “They All Fall in Love at the End,” a young Black woman navigates taboo attractions and a contentious political environment while working toward a creative writing degree.`\
 https://www.nytimes.com/2026/06/13/books/review/they-all-fall-in-love-at-the-end-haili-blassingame.html
-
-**Captain Sandy Keeps It Moving on Bravo’s ‘Below Deck Mediterranean’**\
-`Since 2017, the captain has led several megayachts and crews on the popular reality-TV franchise.`\
-https://www.nytimes.com/2026/06/13/arts/television/captain-sandy-yawn-below-deck-mediterranean.html
-
-**Their Idea of a Fun Run? A 32-Mile Loop Around Manhattan.**\
-`The Manhattan perimeter has become a popular route for athletes seeking a new challenge — no race fee required.`\
-https://www.nytimes.com/2026/06/13/well/move/manhattan-perimeter-loop-run-marathon.html
-
-**David Hockney and the Bliss of Not Standing Still**\
-`“As important as the boys and the pools and the light,” a memoirist writes, “the most important thing was becoming the driving.” It would inspire an obsession with moving focus into the future.`\
-https://www.nytimes.com/2026/06/13/arts/design/david-hockney-lawrence-weschler-appreciation.html
-
-**Puntos clave de la crisis en la Casa Blanca por los archivos Epstein**\
-`Dos reporteros del Times detallan los enfrentamientos en las más altas esferas del gobierno estadounidense para manejar el escándalo del delincuente sexual y sus conexiones con el presidente Trump.`\
-https://www.nytimes.com/es/2026/06/13/espanol/estados-unidos/conclusiones-investigacion-archivos-epstein-casa-blanca.html
-
-**¿Cuánta desnudez permite Instagram?**\
-`La única constante en las normas sobre la publicación de desnudos en la plataforma de redes sociales parece ser su inconsistencia a la hora de aplicarlas.`\
-https://www.nytimes.com/es/2026/06/13/espanol/estilos-de-vida/instagram-normas-desnudez.html
-
-**Delaney Hall Is Named After Their Family. They Want It to Close.**\
-`Members of the Delaney family say that if the center continues to be used as an Immigration and Customs Enforcement facility, its name needs to be changed.`\
-https://www.nytimes.com/2026/06/13/nyregion/delaney-hall-family-ice-center-close.html
-
-**A Great Run for the Knicks Means a Great Run for T-Shirt Bootleggers**\
-`The demand for Knicks merchandise is through the roof, with official retailers and designer boutiques selling out. For $20, the guys on the sidewalks around Madison Square Garden have you covered.`\
-https://www.nytimes.com/2026/06/13/nyregion/nyc-knicks-bootleg-merchandise.html
-
-**For Knicks Fans at Rucker Park, Hope, Doubt and a Desire for Revenge**\
-`Some fans at the world-famous basketball court in Harlem are swept up in the excitement of the N.B.A. finals with the Knicks one win from a championship.`\
-https://www.nytimes.com/2026/06/13/nyregion/knicks-rucker-park.html
-
-**Así fue el pánico en la Casa Blanca por los archivos Epstein**\
-`Los principales asesores del presidente se reunieron en una serie de sesiones en la Sala de Situación para intentar contener un escándalo que involucraba a Donald Trump.`\
-https://www.nytimes.com/es/2026/06/13/espanol/estados-unidos/trump-archivos-epstein-casa-blanca.html
 
