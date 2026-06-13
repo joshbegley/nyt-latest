@@ -1,3 +1,35 @@
+**Delaney Hall Is Named After Their Family. They Want It to Close.**\
+`Members of the Delaney family say that if the center continues to be used as an Immigration and Customs Enforcement facility, its name needs to be changed.`\
+https://www.nytimes.com/2026/06/13/nyregion/delaney-hall-is-named-after-their-family-they-want-it-to-close.html
+
+**A Great Run for the Knicks Means a Great Run for T-Shirt Bootleggers**\
+`The demand for Knicks merchandise is through the roof, with official retailers and designer boutiques selling out. For $20, the guys on the sidewalks around Madison Square Garden have you covered.`\
+https://www.nytimes.com/2026/06/13/nyregion/nyc-knicks-bootleg-merchandise.html
+
+**For Knicks Fans at Rucker Park, Hope, Doubt and a Desire for Revenge**\
+`Some fans at the world-famous basketball court in Harlem are swept up in the excitement of the N.B.A. finals with the Knicks one win from a championship.`\
+https://www.nytimes.com/2026/06/13/nyregion/knicks-rucker-park.html
+
+**Así fue el pánico en la Casa Blanca por los archivos Epstein**\
+`Los principales asesores del presidente se reunieron en una serie de sesiones en la Sala de Situación para intentar contener un escándalo que involucraba a Donald Trump.`\
+https://www.nytimes.com/es/2026/06/13/espanol/estados-unidos/trump-archivos-epstein-casa-blanca.html
+
+**It’s Been 100 Days. Do You Know Where Rep. Tom Kean Is?**\
+`The New Jersey representative, Thomas Kean Jr., voted in the House and spoke at a committee hearing on March 5. He hasn’t been spotted since.`\
+https://www.nytimes.com/2026/06/13/nyregion/tom-kean-missing-congress.html
+
+**Has There Ever Been a Crazier Sports Moment for New York? Actually, Yes.**\
+`In the spring of 1994, the World Cup arrived, the Knicks were great and so were the Rangers. And in the middle of it all, an infamous White Bronco chase.`\
+https://www.nytimes.com/2026/06/13/nyregion/knicks-rangers-new-york-sports-1994.html
+
+**Can’t Afford Summer Camp? These Playground Workers Can Help.**\
+`City parks officials will put about 70 seasonal playground associates in New York City parks this summer to run free games and activities for any young person who shows up.`\
+https://www.nytimes.com/2026/06/13/nyregion/nyc-playground-associates-summer-camp.html
+
+**NYT Spelling Bee Answers for June 13, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/13/crosswords/spelling-bee-forum.html
+
 **El regreso de Conor McGregor: sustancias prohibidas y un médico famoso**\
 `La sorprendente transformación física de McGregor ha sido objeto de especulaciones entre los aficionados de la UFC, los luchadores y comentaristas que han afirmado que eludió las reglas antidopaje para usar sustancias que mejoran el rendimiento mientras se recuperaba.`\
 https://www.nytimes.com/es/2026/06/13/espanol/deportes/conor-mcgregor-dopaje.html
