@@ -1,3 +1,7 @@
+**Knicks Bring Back Watch Party Outside the Garden for Game 5**\
+`The official watch parties on Saturday night require tickets or registration and will be outside Madison Square Garden, in Central Park and at Radio City Music Hall.`\
+https://www.nytimes.com/2026/06/13/nyregion/knicks-watch-party-nyc.html
+
 **What NASA Needs to Stay on Track for the Moon**\
 `The agency gave a rosy update on Artemis III, a test flight for its goal to return humans to the moon, but experts say the timeline is ambitious.`\
 https://www.nytimes.com/2026/06/13/science/nasa-moon-mission-artemis-iii.html
