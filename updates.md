@@ -1,3 +1,7 @@
+**EE. UU. y Venezuela afirman haber abatido a un líder del Tren de Aragua en una operación conjunta**\
+`Un ataque realizado esta semana en Venezuela acabó con la vida de un líder de la banda conocido como Niño Guerrero, quien era buscado en Estados Unidos, dijeron autoridades de ambos países.`\
+https://www.nytimes.com/es/2026/06/13/espanol/america-latina/trump-tren-aragua-nino-guerrero.html
+
 **WABC Anchor Bill Ritter Is Stepping Down After Alzheimer’s Diagnosis**\
 `The veteran journalist told viewers on Friday that it would be his last time anchoring the newscast, but that he was assuming a new role covering the disease he’s fighting.`\
 https://www.nytimes.com/2026/06/13/nyregion/bill-ritter-abc-news-alzheimers.html
