@@ -1,3 +1,7 @@
+**James Talarico Plays Up Spurs’ Past Glory in Campaign Ad Aimed at Texas Voters**\
+`The Democratic candidate for Senate looked to gain crossover appeal with a spot emphasizing teamwork and his own experience as a teacher in San Antonio.`\
+https://www.nytimes.com/2026/06/13/us/politics/talarico-spurs-campaign-ad.html
+
 **The Young Streamers Who Are Trying to ‘Make It Big’ Off Knicks Mania**\
 `They’re flooding Midtown Manhattan to make content. They’re irritating some lifelong fans. But they see a one-of-a-kind opportunity to blow up online`\
 https://www.nytimes.com/2026/06/13/nyregion/knicks-nba-streamers-tiktok-twitch-kick.html

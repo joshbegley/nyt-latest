@@ -1,3 +1,7 @@
+**James Talarico Plays Up Spurs’ Past Glory in Campaign Ad Aimed at Texas Voters**\
+`The Democratic candidate for Senate looked to gain crossover appeal with a spot emphasizing teamwork and his own experience as a teacher in San Antonio.`\
+https://www.nytimes.com/2026/06/13/us/politics/talarico-spurs-campaign-ad.html
+
 **The Young Streamers Who Are Trying to ‘Make It Big’ Off Knicks Mania**\
 `They’re flooding Midtown Manhattan to make content. They’re irritating some lifelong fans. But they see a one-of-a-kind opportunity to blow up online`\
 https://www.nytimes.com/2026/06/13/nyregion/knicks-nba-streamers-tiktok-twitch-kick.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/13/world/middleeast/iran-united-states-israel-le
 **Knicks Fever is Shaping Weddings, Too**\
 `The overlap of the N.B.A. finals with peak wedding season is presenting a dilemma for some couples.`\
 https://www.nytimes.com/2026/06/13/style/knicks-nba-finals-weddings.html
-
-**Emily Blunt on ‘Disclosure Day’ and Feeling Flappable Around Spielberg**\
-`The star grew up on the director’s films and tried “to really compose myself” when he invited her to a meeting about a secret movie.`\
-https://www.nytimes.com/2026/06/13/movies/emily-blunt-disclosure-day-devil-wears-prada.html
 
