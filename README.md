@@ -1,3 +1,11 @@
+**WABC Anchor Bill Ritter Is Stepping Down After Alzheimer’s Diagnosis**\
+`The veteran journalist told viewers on Friday that it would be his last time anchoring the newscast, but that he was assuming a new role covering the disease he’s fighting.`\
+https://www.nytimes.com/2026/06/13/nyregion/bill-ritter-abc-news-alzheimers.html
+
+**What U.S. and Paraguay Fans Have in Common**\
+`At the first U.S. home World Cup match against Paraguay, the colors and the chants were loud in Los Angeles.`\
+https://www.nytimes.com/2026/06/13/style/us-paraguay-fans-world-cup-fashion.html
+
 **The Knicks Are the Hottest Ticket in Town. Hottest Jersey, Too.**\
 `Unless you’re a size 2X or 3X, you might be out of luck when you go looking for official N.B.A. merchandise in New York City.`\
 https://www.nytimes.com/2026/06/13/nyregion/knicks-jerseys-clothing.html
@@ -82,8 +90,8 @@ https://www.nytimes.com/2026/06/13/opinion/doctor-chatgpt.html
 `An octogenarian president for a 250-year-old republic.`\
 https://www.nytimes.com/video/opinion/100000010958359/the-spectacle-of-trump-at-80.html
 
-**Iran War Live Updates: Mediator Says Peace Deal Could be Finalized Within 24 Hours**\
-`The prime minister of Pakistan, a key intermediary in U.S.-Iran talks, said a deal was “likely expected.” An Iranian official sought to temper expectations but said an agreement could be signed in the coming days.`\
+**Iran War Live Updates: Trump Claims Peace Deal Will be Signed Sunday, But Iran Disputes Timeline**\
+`An Iranian foreign ministry official sought to temper expectations, saying there were no plans for a Sunday signing and an agreement could be inked in the coming days.`\
 https://www.nytimes.com/live/2026/06/13/world/iran-war-trump-us-israel
 
 **Unfinished Business**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/13/movies/ai-tribeca-dreams-violets-iran.html
 **Ebola Comes for Congo’s Most Vulnerable Children**\
 `The arrival of a sick newborn at Saint Nicholas Orphanage in eastern Democratic Republic of Congo set off an Ebola outbreak that quickly spread among the country’s most vulnerable. Local health authorities are now monitoring the children’s home, but at least two babies have already died.`\
 https://www.nytimes.com/video/world/africa/100000010952087/ebola-congo-orphanage-children.html
-
-**Russia Is Rich in Ballistic Missiles. Ukraine Is Short of Ways to Stop Them.**\
-`Ukraine is running out of American-made Patriot air-defense interceptors, and is pleading for more.`\
-https://www.nytimes.com/2026/06/13/world/europe/ukraine-russia-patriot-interceptors.html
-
-**Mega I.P.O. Frenzy Could Be a Harbinger of a Stock Bubble**\
-`Rampant enthusiasm is buoying tech shares to levels that defy gravity. Invest with caution, our columnist says.`\
-https://www.nytimes.com/2026/06/13/business/spacex-ipo-musk-stock-bubble.html
 
