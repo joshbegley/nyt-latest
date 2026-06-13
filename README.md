@@ -1,3 +1,11 @@
+**At the Kennedy Center, a Name Change Shrouded in Uncertainty**\
+`President Trump’s name was removed from the arts institution’s facade overnight on Saturday. Many questions remain, including whether or not it stays off.`\
+https://www.nytimes.com/2026/06/13/us/politics/trump-kennedy-center-name.html
+
+**Threats, Free Speech and the Case Against U. of Michigan Activists**\
+`Prosecutors accused eight pro-Palestinian activists with ties to the university of conspiring to threaten campus leaders and others.`\
+https://www.nytimes.com/2026/06/13/us/pro-palestinian-university-michigan-activists.html
+
 **Trump’s Name Is Removed From Kennedy Center Facade**\
 `Workers removed President Trump’s name from the John F. Kennedy Center for the Performing Arts on Saturday following a judge’s order.`\
 https://www.nytimes.com/video/us/politics/100000010965495/trumps-name-is-removed-from-kennedy-center-facade.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/13/pageoneplus/corrections-june-13-2026.html
 **From New York to Texas, a Knicks Guard’s Braids Bring Style to the Court**\
 `Josh Hart is known for his intricate braids, which often feature New York’s logo. For the finals, he is working with hairstylists he has known for years.`\
 https://www.nytimes.com/2026/06/13/style/josh-hart-knicks-braids.html
-
-**What NASA Needs to Stay on Track for the Moon**\
-`The agency gave a rosy update on Artemis III, a test flight for its goal to return humans to the moon, but experts say the timeline is ambitious.`\
-https://www.nytimes.com/2026/06/13/science/nasa-moon-mission-artemis-iii.html
-
-**A New Option for Long-Term Care Costs**\
-`Washington has launched the first program to help cover home care and other supports. A number of states are paying attention.`\
-https://www.nytimes.com/2026/06/13/well/long-term-care-costs.html
 
