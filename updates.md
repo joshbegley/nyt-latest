@@ -1,3 +1,7 @@
+**6 formas de hacer ejercicio en el agua**\
+`Ya empieza la temporada de playa y piscinas. ¿Por qué no hacer un poco de ejercicio mientras disfrutas del sol?`\
+https://www.nytimes.com/es/2026/06/13/espanol/verano-ejercicio-agua.html
+
 **Quote of the Day: In Gray Area of Not Peace and Not War**\
 `Quotation of the Day for Saturday, June 13, 2026.`\
 https://www.nytimes.com/2026/06/13/pageoneplus/quote-of-the-day-in-gray-area-of-not-peace-and-not-war.html

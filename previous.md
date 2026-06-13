@@ -1,3 +1,7 @@
+**6 formas de hacer ejercicio en el agua**\
+`Ya empieza la temporada de playa y piscinas. ¿Por qué no hacer un poco de ejercicio mientras disfrutas del sol?`\
+https://www.nytimes.com/es/2026/06/13/espanol/verano-ejercicio-agua.html
+
 **Quote of the Day: In Gray Area of Not Peace and Not War**\
 `Quotation of the Day for Saturday, June 13, 2026.`\
 https://www.nytimes.com/2026/06/13/pageoneplus/quote-of-the-day-in-gray-area-of-not-peace-and-not-war.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/opinion/100000010952734/your-spacex-odds-are-not-i
 **Charlie Dalin, Who Set a Sailing Record While Battling Cancer, Dies at 42**\
 `Last year, while suffering from an advanced stomach tumor, he won the grueling Vendée Globe race, sailing 24,000 miles in just 64 days.`\
 https://www.nytimes.com/2026/06/12/sports/sailing/charlie-dalin-dead.html
-
-**As Speculation Swirls About the Emerging Iran Deal, Here’s What We Know**\
-`A “memorandum of understanding” between the two sides is under discussion. Both sides are keen to frame it as a victory.`\
-https://www.nytimes.com/2026/06/12/world/middleeast/iran-peace-deal-what-to-know.html
 
 **Elon Musk Becomes World’s First Trillionaire on SpaceX’s First Day of Trading**\
 `Stock in Mr. Musk’s rocket and satellite maker closed just above $161, up more than 19 percent from its I.P.O. price.`\
