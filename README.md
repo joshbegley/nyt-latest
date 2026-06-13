@@ -1,3 +1,7 @@
+**El regreso de Conor McGregor: sustancias prohibidas y un médico famoso**\
+`La sorprendente transformación física de McGregor ha sido objeto de especulaciones entre los aficionados de la UFC, los luchadores y comentaristas que han afirmado que eludió las reglas antidopaje para usar sustancias que mejoran el rendimiento mientras se recuperaba.`\
+https://www.nytimes.com/es/2026/06/13/espanol/deportes/conor-mcgregor-dopaje.html
+
 **L.A. Kicks Off the World Cup With a Party**\
 `Fans, many draped in flags and colorful costumes, arrived at SoFi Stadium hours before the United States began its campaign against Paraguay.`\
 https://www.nytimes.com/2026/06/13/us/world-cup-los-angeles-scene.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/12/weather/portland-seattle-heat-wave.html
 **James Blood Ulmer, Guitarist Who Smashed Through Genres, Dies at 86**\
 `A protégé of the saxophonist Ornette Coleman, he borrowed from and greatly influenced styles like funk, punk, jazz and the blues.`\
 https://www.nytimes.com/2026/06/12/arts/music/james-blood-ulmer-dead.html
-
-**Your SpaceX Odds Are Not in Your Favor**\
-`To buy a share of SpaceX or not to buy? That is the trillion-dollar question. With its high share price, only one person stands to profit from the company going public. According to the Opinion senior staff editor Bill Saporito, you might as well purchase lottery tickets instead.`\
-https://www.nytimes.com/video/opinion/100000010952734/your-spacex-odds-are-not-in-your-favor.html
 
 **Elon Musk Becomes World’s First Trillionaire on SpaceX’s First Day of Trading**\
 `Stock in Mr. Musk’s rocket and satellite maker closed just above $161, up more than 19 percent from its I.P.O. price.`\
