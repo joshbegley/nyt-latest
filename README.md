@@ -184,7 +184,7 @@ https://www.nytimes.com/es/2026/06/13/espanol/estilos-de-vida/instagram-normas-d
 
 **Delaney Hall Is Named After Their Family. They Want It to Close.**\
 `Members of the Delaney family say that if the center continues to be used as an Immigration and Customs Enforcement facility, its name needs to be changed.`\
-https://www.nytimes.com/2026/06/13/nyregion/delaney-hall-is-named-after-their-family-they-want-it-to-close.html
+https://www.nytimes.com/2026/06/13/nyregion/delaney-hall-family-ice-center-close.html
 
 **A Great Run for the Knicks Means a Great Run for T-Shirt Bootleggers**\
 `The demand for Knicks merchandise is through the roof, with official retailers and designer boutiques selling out. For $20, the guys on the sidewalks around Madison Square Garden have you covered.`\
