@@ -59,7 +59,7 @@ https://www.nytimes.com/2026/06/13/opinion/doctor-chatgpt.html
 https://www.nytimes.com/video/opinion/100000010958359/the-spectacle-of-trump-at-80.html
 
 **Iran War Live Updates: Mediator Says Peace Deal Could be Finalized Within 24 Hours**\
-`The prime minister of Pakistan, a key intermediary between the U.S. and Iran, said a deal was “likely expected.” Officials on each side have also expressed optimism, but it still could be derailed.`\
+`The prime minister of Pakistan, a key intermediary in U.S.-Iran talks, said a deal was “likely expected.” An Iranian official sought to temper expectations but said an agreement could be signed in the coming days.`\
 https://www.nytimes.com/live/2026/06/13/world/iran-war-trump-us-israel
 
 **Unfinished Business**\
