@@ -1,3 +1,19 @@
+**Quote of the Day: In Gray Area of Not Peace and Not War**\
+`Quotation of the Day for Saturday, June 13, 2026.`\
+https://www.nytimes.com/2026/06/13/pageoneplus/quote-of-the-day-in-gray-area-of-not-peace-and-not-war.html
+
+**A Family Ravaged by Land Mines in Myanmar**\
+`Bu Ri lost a leg to a mine in Myanmar decades ago. More recently, six other members of his family have suffered a similar fate or worse, in a sign of the devastation wreaked by civil war.`\
+https://www.nytimes.com/2026/06/13/world/asia/family-ravaged-by-land-mines-myanmar.html
+
+**Should Switzerland Cap Its Population at 10 Million? Voters Will Decide.**\
+`One of the world’s richest countries is about to hold a referendum on a measure that would curb migration and most likely the economy. It is being sold in warm tones.`\
+https://www.nytimes.com/2026/06/13/world/europe/switzerland-population-referendum-10-million.html
+
+**How a 10 Million Population Cap Would Change Switzerland**\
+`On Sunday, Switzerland will vote on whether to cap its population. The implications for Swiss society and its economy could be huge.`\
+https://www.nytimes.com/interactive/2026/06/13/world/europe/switzerland-population-cap-projections.html
+
 **Anthropic Blocks Foreigners From Using Mythos and Fable AI**\
 `The company said on Friday night that the federal government had ordered limits on its Mythos and Fable 5 A.I. systems, citing national security concerns.`\
 https://www.nytimes.com/2026/06/12/technology/anthropic-mythos-fable5-blocked.html
