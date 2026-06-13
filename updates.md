@@ -1,3 +1,7 @@
+**How David Hockney Taught a City to See Itself**\
+`A Brit, he became a symbol of the city’s culture, stylish and alienating, with his vivid swimming pool paintings and embrace of SoCal light, hedonism and gay liberation.`\
+https://www.nytimes.com/2026/06/13/arts/design/david-hockney-los-angeles-pool-paintings.html
+
 **The U.S. Is the Future of Soccer, for Better or Worse**\
 `Thanks to immigrants and the internet, Americans gained entry to a universe beyond our borders.`\
 https://www.nytimes.com/2026/06/13/opinion/usa-soccer-world-cup.html
