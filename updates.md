@@ -1,3 +1,11 @@
+**‘Almost There, Almost There, Almost There’: The Hopes and the Heartbreak of the '90s Knicks**\
+`28 years ago, the team’s nemesis Reggie Miller sunk a shot that dashed their playoff dreams. Here’s what Spike Lee and others sitting courtside remember.`\
+https://www.nytimes.com/interactive/2026/06/12/magazine/reggie-miller-knicks-pacers-spike-lee.html
+
+**Gene Shalit, Film Critic Bristling With Hair and Puns, Dies at 100**\
+`One of the nation’s most recognizable characters, he delivered his wacky commentary for more than 40 years on the “Today” show.`\
+https://www.nytimes.com/2026/06/12/arts/television/gene-shalit-dead.html
+
 **Judge Blocks National Parks From Removing ‘Negative’ Signs and Depictions of Slavery**\
 `The ruling accused the Trump administration of engaging in censorship by taking down materials at parks across the country.`\
 https://www.nytimes.com/2026/06/12/us/politics/judge-national-parks-trump.html
