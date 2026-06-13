@@ -1,3 +1,11 @@
+**At the Kennedy Center, a Name Change Shrouded in Uncertainty**\
+`President Trump’s name was removed from the arts institution’s facade overnight on Saturday. Many questions remain, including whether or not it stays off.`\
+https://www.nytimes.com/2026/06/13/us/politics/trump-kennedy-center-name.html
+
+**Threats, Free Speech and the Case Against U. of Michigan Activists**\
+`Prosecutors accused eight pro-Palestinian activists with ties to the university of conspiring to threaten campus leaders and others.`\
+https://www.nytimes.com/2026/06/13/us/pro-palestinian-university-michigan-activists.html
+
 **Trump’s Name Is Removed From Kennedy Center Facade**\
 `Workers removed President Trump’s name from the John F. Kennedy Center for the Performing Arts on Saturday following a judge’s order.`\
 https://www.nytimes.com/video/us/politics/100000010965495/trumps-name-is-removed-from-kennedy-center-facade.html
