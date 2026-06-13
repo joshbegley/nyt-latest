@@ -1,3 +1,7 @@
+**One Dead and Several Injured in Tent Collapse Outside Virginia Church**\
+`Severe weather conditions caused the collapse during an outdoor service and concert Friday night.`\
+https://www.nytimes.com/2026/06/12/us/virginia-church-tent-collapse.html
+
 **Elon Musk Becomes the World’s First Trillionaire**\
 `Also, officials say a U.S.-Iran cease-fire appears within reach. Here’s the latest at the end of Friday.`\
 https://www.nytimes.com/2026/06/12/briefing/elon-musk-spacex-us-iran-deal.html

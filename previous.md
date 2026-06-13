@@ -1,3 +1,7 @@
+**One Dead and Several Injured in Tent Collapse Outside Virginia Church**\
+`Severe weather conditions caused the collapse during an outdoor service and concert Friday night.`\
+https://www.nytimes.com/2026/06/12/us/virginia-church-tent-collapse.html
+
 **Anthropic Blocks Foreign Nationals from Using Its Mythos and Fable A.I.**\
 `The San Francisco company said on Friday night that the federal government ordered the suspension of the two A.I. systems, citing national security concerns.`\
 https://www.nytimes.com/2026/06/12/technology/anthropic-mythos-fable5-blocked.html
