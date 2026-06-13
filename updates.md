@@ -1,3 +1,7 @@
+**The U.S. Is the Future of Soccer, for Better or Worse**\
+`Thanks to immigrants and the internet, Americans gained entry to a universe beyond our borders.`\
+https://www.nytimes.com/2026/06/13/opinion/usa-soccer-world-cup.html
+
 **With a Deal Seemingly Close, the U.S. Faces an Iran More Willing to Withstand Pressure**\
 `Iran’s new, more militaristic leaders have already survived the worst that America and Israel can deliver, and seem readier to take risks.`\
 https://www.nytimes.com/2026/06/13/world/middleeast/iran-united-states-israel-lebanon.html

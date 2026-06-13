@@ -46,7 +46,7 @@ https://www.nytimes.com/2026/06/13/opinion/disclosure-day-ufo-religion.html
 `Dance floors are flooded with selfies and poseurs. But in one city, it’s still a place to feel free.`\
 https://www.nytimes.com/2026/06/13/opinion/detroit-dance-floor-music-dj.html
 
-**How Soccer Changed America and America Changed Soccer**\
+**The U.S. Is the Future of Soccer, for Better or Worse**\
 `Thanks to immigrants and the internet, Americans gained entry to a universe beyond our borders.`\
 https://www.nytimes.com/2026/06/13/opinion/usa-soccer-world-cup.html
 
