@@ -1,3 +1,7 @@
+**Everyone Wants to Tax A.I. The Big Disagreement: How?**\
+`Bernie Sanders, President Trump and even A.I. companies say they would like the public to share the wealth. But their solutions are very different.`\
+https://www.nytimes.com/2026/06/13/business/dealbook/ai-tax-proposals.html
+
 **See Pulisic and Balogun Combine as USA Beats Paraguay in Opening World Cup Game**\
 `View in 3-D how Christian Pulisic and Folarin Balogun made the second goal for the U.S. team in a 4-1 thrashing of Paraguay in its World Cup opener.`\
 https://www.nytimes.com/interactive/2026/06/13/sports/soccer/usa-paraguay-world-cup-goal-pulisic-balogun.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/13/us/politics/sergio-gor-ambassador-transformat
 **Spielberg Gets Paranoid With ‘Disclosure Day’**\
 `Disclosure Day shows that after 50 years Spielberg’s fixations are the same, but his faith in the system has deteriorated.`\
 https://www.nytimes.com/video/movies/100000010926518/spielberg-gets-paranoid-with-disclosure-day.html
-
-**Olivia Cooke of ‘House of the Dragon’ Shares Her Comfort Items**\
-`She hates when the mugs on offer at a hotel are “teeny-weeny.” “So I just bring my own massive one,” she said.`\
-https://www.nytimes.com/2026/06/13/arts/television/olivia-cooke-house-of-the-dragon.html
 
