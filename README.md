@@ -1,3 +1,19 @@
+**Quote of the Day: In Gray Area of Not Peace and Not War**\
+`Quotation of the Day for Saturday, June 13, 2026.`\
+https://www.nytimes.com/2026/06/13/pageoneplus/quote-of-the-day-in-gray-area-of-not-peace-and-not-war.html
+
+**A Family Ravaged by Land Mines in Myanmar**\
+`Bu Ri lost a leg to a mine in Myanmar decades ago. More recently, six other members of his family have suffered a similar fate or worse, in a sign of the devastation wreaked by civil war.`\
+https://www.nytimes.com/2026/06/13/world/asia/family-ravaged-by-land-mines-myanmar.html
+
+**Should Switzerland Cap Its Population at 10 Million? Voters Will Decide.**\
+`One of the world’s richest countries is about to hold a referendum on a measure that would curb migration and most likely the economy. It is being sold in warm tones.`\
+https://www.nytimes.com/2026/06/13/world/europe/switzerland-population-referendum-10-million.html
+
+**How a 10 Million Population Cap Would Change Switzerland**\
+`On Sunday, Switzerland will vote on whether to cap its population. The implications for Swiss society and its economy could be huge.`\
+https://www.nytimes.com/interactive/2026/06/13/world/europe/switzerland-population-cap-projections.html
+
 **New Yorkers Are Going on the Road With the Knicks for Game 5**\
 `One resale site said that more than 48 percent of its tickets to the game in San Antonio had been sold to people from New York and New Jersey.`\
 https://www.nytimes.com/2026/06/12/nyregion/knicks-finals-tickets-san-antonio.html
@@ -177,18 +193,6 @@ https://www.nytimes.com/2026/06/12/sports/sailing/charlie-dalin-dead.html
 **As Speculation Swirls About the Emerging Iran Deal, Here’s What We Know**\
 `A “memorandum of understanding” between the two sides is under discussion. Both sides are keen to frame it as a victory.`\
 https://www.nytimes.com/2026/06/12/world/middleeast/iran-peace-deal-what-to-know.html
-
-**What the SpaceX I.P.O. Means for OpenAI and Anthropic**\
-`Strong investor interest in SpaceX could be good news for the A.I. rivals, which have signaled that they, too, intend to go public this year.`\
-https://www.nytimes.com/2026/06/12/technology/spacex-ipo-openai-anthropic.html
-
-**Review: Taking an Expressionist Class With the Royal Ballet**\
-`Paul Lightfoot and Sol León brought their blend of stretched balletic line and idiosyncratic gesture to London with a new work inspired by daily ballet class exercises.`\
-https://www.nytimes.com/2026/06/12/arts/dance/review-royal-ballet-salle-de-dance-lightfoot-leon.html
-
-**Taylor Swift Inducted Into the Songwriters Hall of Fame**\
-`At 36, Taylor Swift became the youngest woman ever inducted into the Songwriters Hall of Fame on Thursday.`\
-https://www.nytimes.com/video/arts/music/100000010963344/taylor-swift-songwriters-hall-of-fame.html
 
 **Elon Musk Becomes World’s First Trillionaire on SpaceX’s First Day of Trading**\
 `Stock in Mr. Musk’s rocket and satellite maker closed just above $161, up more than 19 percent from its I.P.O. price.`\
