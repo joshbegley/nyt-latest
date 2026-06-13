@@ -1,3 +1,7 @@
+**Anthropic Blocks Foreigners From Using Mythos and Fable AI**\
+`The company said on Friday night that the federal government had ordered limits on its Mythos and Fable 5 A.I. systems, citing national security concerns.`\
+https://www.nytimes.com/2026/06/12/technology/anthropic-mythos-fable5-blocked.html
+
 **New Yorkers Are Going on the Road With the Knicks for Game 5**\
 `One resale site said that more than 48 percent of its tickets to the game in San Antonio had been sold to people from New York and New Jersey.`\
 https://www.nytimes.com/2026/06/12/nyregion/knicks-finals-tickets-san-antonio.html
