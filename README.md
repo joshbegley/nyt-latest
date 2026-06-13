@@ -1,3 +1,7 @@
+**See Pulisic and Balogun Combine as USA Beats Paraguay in Opening World Cup Game**\
+`View in 3-D how Christian Pulisic and Folarin Balogun made the second goal for the U.S. team in a 4-1 thrashing of Paraguay in its World Cup opener.`\
+https://www.nytimes.com/interactive/2026/06/13/sports/soccer/usa-paraguay-world-cup-goal-pulisic-balogun.html
+
 **Jeffrey Epstein Haunts the White House**\
 `A sleazy situation that Trump can’t wish away.`\
 https://www.nytimes.com/2026/06/13/opinion/epstein-trump-white-house.html
@@ -34,8 +38,8 @@ https://www.nytimes.com/2026/06/13/opinion/doctor-chatgpt.html
 `An octogenarian president for a 250-year-old republic.`\
 https://www.nytimes.com/video/opinion/100000010958359/the-spectacle-of-trump-at-80.html
 
-**Iran War Live Updates: Middle East Awaits Latest on Potential Agreement**\
-`While U.S. and Iranian officials have said that a deal could be signed within days, the terms remain uncertain, and there is still the potential for it to be derailed.`\
+**Iran War Live Updates: Mediator Says Peace Deal Could be Finalized Within 24 Hours**\
+`The prime minister of Pakistan, a key intermediary between the U.S. and Iran, said a deal was “likely expected.” Officials on each side have also expressed optimism, but it still could be derailed.`\
 https://www.nytimes.com/live/2026/06/13/world/iran-war-trump-us-israel
 
 **Unfinished Business**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/movies/100000010926518/spielberg-gets-paranoid-wit
 **Olivia Cooke of ‘House of the Dragon’ Shares Her Comfort Items**\
 `She hates when the mugs on offer at a hotel are “teeny-weeny.” “So I just bring my own massive one,” she said.`\
 https://www.nytimes.com/2026/06/13/arts/television/olivia-cooke-house-of-the-dragon.html
-
-**Book Review: ‘They All Fall in Love at the End,’ by Haili Blassingame**\
-`In “They All Fall in Love at the End,” a young Black woman navigates taboo attractions and a contentious political environment while working toward a creative writing degree.`\
-https://www.nytimes.com/2026/06/13/books/review/they-all-fall-in-love-at-the-end-haili-blassingame.html
 
