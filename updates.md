@@ -1,3 +1,39 @@
+**Iran War Live Updates: Middle East Awaits Latest on Potential Agreement**\
+`While U.S. and Iranian officials have said that a deal could be signed within days, the terms remain uncertain, and there is still the potential for it to be derailed.`\
+https://www.nytimes.com/live/2026/06/13/world/iran-war-trump-us-israel
+
+**Unfinished Business**\
+`We like it when projects are completed, but what if we could abide comfortably in the toiling and striving it takes to get them there?`\
+https://www.nytimes.com/2026/06/13/briefing/unfinished-business.html
+
+**A Tren de Aragua Leader Is Killed in a Joint Strike, U.S. and Venezuela Say**\
+`A strike this week in Venezuela killed a gang leader known as Niño Guerrero who was wanted in the United States, officials in both countries said.`\
+https://www.nytimes.com/2026/06/13/world/americas/tren-de-aragua-leader-killed-us-venezuela.html
+
+**My Tween Daughter’s Friend Is a Mean Girl. Should I Tell Her Mother?**\
+`Many of the girl’s friends have begun distancing themselves from her, and I don’t know if her mother understands the full extent of the problem.`\
+https://www.nytimes.com/2026/06/13/magazine/daughters-friend-mean-girl-ethics.html
+
+**NYT Connections Answers for June 14, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, June 14, 2026.`\
+https://www.nytimes.com/2026/06/13/crosswords/connections-companion-1099.html
+
+**Today’s Wordle Hints for June 14, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, June 14, 2026.`\
+https://www.nytimes.com/2026/06/13/crosswords/wordle-review-1821.html
+
+**NYT Strands Hints for June 14, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, June 14, 2026.`\
+https://www.nytimes.com/2026/06/13/crosswords/strands-sidekick-833.html
+
+**An Honored Canadian Journalist on the Importance of Investigative Reporting**\
+`Our Times colleague Susanne Craig was back home in Canada to be honored for her extraordinary career, which began in Calgary, Alberta, her hometown.`\
+https://www.nytimes.com/2026/06/13/world/canada/investigative-journalism-susanne-craig-cjf-canada.html
+
+**Delaney Hall Is Named After Their Family. They Want It to Close.**\
+`Members of the Delaney family say that if the center continues to be used as an Immigration and Customs Enforcement facility, its name needs to be changed.`\
+https://www.nytimes.com/2026/06/13/nyregion/delaney-hall-family-ice-center-close.html
+
 **Seth Rogen Knows the Secret to Marriage — and Being Rich in Hollywood**\
 `After three decades in the industry, the actor-writer-director-producer has figured a lot out.`\
 https://www.nytimes.com/2026/06/13/magazine/seth-rogen-interview.html
