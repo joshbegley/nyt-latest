@@ -151,7 +151,7 @@ https://www.nytimes.com/2026/06/13/well/long-term-care-costs.html
 https://www.nytimes.com/2026/06/13/science/world-cup-grass-pitch.html
 
 **With a Deal Seemingly Close, the U.S. Faces an Iran More Willing to Withstand Pressure**\
-`The war has produced regime change, but Iran’s new leaders are more willing to take risks and believe they have already absorbed the worst that America and Israel can deliver.`\
+`Iran’s new, more militaristic leaders have already survived the worst that America and Israel can deliver, and seem readier to take risks.`\
 https://www.nytimes.com/2026/06/13/world/middleeast/iran-united-states-israel-lebanon.html
 
 **Knicks Fever is Shaping Weddings, Too**\

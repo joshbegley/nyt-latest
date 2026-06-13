@@ -1,3 +1,7 @@
+**With a Deal Seemingly Close, the U.S. Faces an Iran More Willing to Withstand Pressure**\
+`Iran’s new, more militaristic leaders have already survived the worst that America and Israel can deliver, and seem readier to take risks.`\
+https://www.nytimes.com/2026/06/13/world/middleeast/iran-united-states-israel-lebanon.html
+
 **Only One President Could Come Up With This Spectacle**\
 `Trump has gone beyond kayfabe.`\
 https://www.nytimes.com/2026/06/13/opinion/trump-ufc-fight-freedom-250.html
