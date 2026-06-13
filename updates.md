@@ -1,3 +1,11 @@
+**Live Updates: Knicks on the Brink of Glory in Game 5**\
+`After mounting the greatest comeback in N.B.A. finals history, the Knicks can win the title by defeating San Antonio tonight. New Yorkers have waited 53 years for this moment.`\
+https://www.nytimes.com/live/2026/06/13/nyregion/nba-finals-knicks-spurs
+
+**Top Haitian Security Official Kidnapped**\
+`A security expert who had recently become chief of staff to the new defense minister was abducted, the latest example of violence gripping the country.`\
+https://www.nytimes.com/2026/06/13/world/americas/top-haitian-security-official-kidnapped.html
+
 **Yosemite Ranger’s Suit Over Trans Flag at El Capitan Is Dismissed**\
 `The ranger, who was fired after hanging the flag, sued the government on free speech grounds. On Friday, a judge dismissed the case, saying the court lacked the authority to rule.`\
 https://www.nytimes.com/2026/06/13/us/politics/yosemite-ranger-lawsuit-transgender-flag-judge-ruling.html
