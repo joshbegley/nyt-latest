@@ -1,3 +1,11 @@
+**Seth Rogen Knows the Secret to Marriage — and Being Rich in Hollywood**\
+`After three decades in the industry, the actor-writer-director-producer has figured a lot out.`\
+https://www.nytimes.com/2026/06/13/magazine/seth-rogen-interview.html
+
+**Los brasileños vuelven a pintar sus calles, reviviendo un ritual mundialista**\
+`En Brasil, la pintura callejera en honor al Mundial se detuvo en gran medida tras una derrota de pesadilla en 2014. Este año, los brasileños se han atrevido a soñar que su país puede volver a sus días de gloria futbolística.`\
+https://www.nytimes.com/es/2026/06/13/espanol/america-latina/brasil-mundial-pintar-calles.html
+
 **Le ardía mucho la garganta. ¿Qué le estaba pasando?**\
 `Tragar y hablar se había vuelto insoportable para esta joven, y sus síntomas avanzaban rápidamente.`\
 https://www.nytimes.com/es/2026/06/13/espanol/estilos-de-vida/dolor-garganta-diagnostico.html
