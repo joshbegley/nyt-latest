@@ -1,3 +1,39 @@
+**Jeffrey Epstein Haunts the White House**\
+`A sleazy situation that Trump can’t wish away.`\
+https://www.nytimes.com/2026/06/13/opinion/epstein-trump-white-house.html
+
+**Do U.F.O.s Usurp Religion?**\
+`Steven Spielberg’s ‘Disclosure Day’ and the God-and-aliens debate.`\
+https://www.nytimes.com/2026/06/13/opinion/disclosure-day-ufo-religion.html
+
+**Detroit Is the Last City That Knows How to Dance**\
+`Dance floors are flooded with selfies and poseurs. But in one city, it’s still a place to feel free.`\
+https://www.nytimes.com/2026/06/13/opinion/detroit-dance-floor-music-dj.html
+
+**How Soccer Changed America and America Changed Soccer**\
+`Thanks to immigrants and the internet, Americans gained entry to a universe beyond our borders.`\
+https://www.nytimes.com/2026/06/13/opinion/usa-soccer-world-cup.html
+
+**The Spectacle of Trump at 80**\
+`An octogenarian president for a 250-year-old republic.`\
+https://www.nytimes.com/2026/06/13/opinion/trump-ufc-fight-freedom-250-birthday-80.html
+
+**SpaceX and the A.I. Bubble Are Coming for Your 401(k)**\
+`It is impossible to beat the stock market. But if you want to divest your retirement of Elon Musk-related companies, here is the best way to do so.`\
+https://www.nytimes.com/2026/06/13/opinion/spacex-stock-ipo-ai.html
+
+**I’m a 53-Year-Old Woman. Stop Telling Me I’m Invisible.**\
+`There’s never been a better time to be a middle-aged woman.`\
+https://www.nytimes.com/2026/06/13/opinion/middle-age-women-invisible.html
+
+**Turning to ChatGPT for Help Instead of Your Doctor**\
+`Readers react to a guest essay by a doctor who found ChatGPT useful in dealing with her own medical issues.`\
+https://www.nytimes.com/2026/06/13/opinion/doctor-chatgpt.html
+
+**The Spectacle of Trump at 80**\
+`An octogenarian president for a 250-year-old republic.`\
+https://www.nytimes.com/video/opinion/100000010958359/the-spectacle-of-trump-at-80.html
+
 **Iran War Live Updates: Middle East Awaits Latest on Potential Agreement**\
 `While U.S. and Iranian officials have said that a deal could be signed within days, the terms remain uncertain, and there is still the potential for it to be derailed.`\
 https://www.nytimes.com/live/2026/06/13/world/iran-war-trump-us-israel
