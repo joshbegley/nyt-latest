@@ -1,3 +1,15 @@
+**The Knicks Are the Hottest Ticket in Town. Hottest Jersey, Too.**\
+`Unless you’re a size 2X or 3X, you might be out of luck when you go looking for official N.B.A. merchandise in New York City.`\
+https://www.nytimes.com/2026/06/13/nyregion/knicks-jerseys-clothing.html
+
+**David Plowden, Who Photographed a Disappearing America, Dies at 93**\
+`With his haunting images of steam locomotives, steel mills and Midwestern farms, the celebrated lensman revealed the poetry in the artifacts of manual labor.`\
+https://www.nytimes.com/2026/06/13/arts/david-plowden-dead.html
+
+**How David Hockney Taught Los Angeles to See Itself**\
+`A Brit, he became a symbol of the city’s culture, stylish and alienating, with his vivid swimming pool paintings and embrace of SoCal light, hedonism and gay liberation.`\
+https://www.nytimes.com/2026/06/13/arts/design/david-hockney-los-angeles-pool-paintings.html
+
 **How David Hockney Taught a City to See Itself**\
 `A Brit, he became a symbol of the city’s culture, stylish and alienating, with his vivid swimming pool paintings and embrace of SoCal light, hedonism and gay liberation.`\
 https://www.nytimes.com/2026/06/13/arts/design/david-hockney-los-angeles-pool-paintings.html
