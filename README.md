@@ -1,3 +1,7 @@
+**Judge Dismisses Republican Group’s Case Against the University of Florida**\
+`A campus group the university banned after accusations of antisemitic behavior failed to prove it had its First Amendment rights violated, the court ruled.`\
+https://www.nytimes.com/2026/06/12/us/politics/university-florida-college-republican-group-ban.html
+
 **Still Need to Book a Summer Trip? Here Are Our Suggestions on Where to Go**\
 `Once again, readers wrote in with their questions and the travel experts answered.`\
 https://www.nytimes.com/2026/06/12/t-magazine/travel/summer-vacation-suggestions-getaway-guide.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/06/12/us/judge-eleanor-ross-apology-letters.html
 **Scientists Race to Test Treatments as Ebola Outbreak Widens**\
 `Trials are beginning on several drugs that have shown promise in preliminary studies against the virus that is causing the current outbreak.`\
 https://www.nytimes.com/2026/06/12/health/ebola-treatment-bundibugyo-virus.html
-
-**Israel Is Building Army Base in Jenin, Flouting 1990s Pact With Palestinians**\
-`Critics say the move would help the Israeli military protect increased settlement activity near Palestinian population centers in the West Bank.`\
-https://www.nytimes.com/2026/06/12/world/middleeast/israel-base-jenin-oslo.html
 
 **Elon Musk Becomes World’s First Trillionaire on SpaceX’s First Day of Trading**\
 `Stock in Mr. Musk’s rocket and satellite maker closed just above $161, up more than 19 percent from its I.P.O. price.`\
