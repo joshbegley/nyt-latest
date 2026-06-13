@@ -1,3 +1,11 @@
+**Mystery Potato Hovering Over Colorado Is Reported in Latest U.F.O. Files**\
+`Potatoes have featured in sightings before, and in real and fictional space travel.`\
+https://www.nytimes.com/2026/06/13/us/mystery-potato-hovering-over-colorado-is-reported-in-latest-ufo-files.html
+
+**5 Children Are Killed After Van and S.U.V. Collide in Rural Ontario**\
+`The children — four girls and one boy — were among 10 people in the van at the time of the crash. An infant was seriously injured, the police said.`\
+https://www.nytimes.com/2026/06/13/world/canada/five-children-killed-crash-ontario-canada.html
+
 **At the Kennedy Center, a Name Change Shrouded in Uncertainty**\
 `President Trump’s name was removed from the arts institution’s facade overnight on Saturday. Many questions remain, including whether or not it stays off.`\
 https://www.nytimes.com/2026/06/13/us/politics/trump-kennedy-center-name.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/13/world/americas/world-cup-brazil-street-art.ht
 **No pude decirle por qué teníamos que romper**\
 `Cuando la novia de mi primo más joven lo engañó, luché contra mis propios fantasmas.`\
 https://www.nytimes.com/es/2026/06/13/espanol/estilos-de-vida/modern-love-infidelidad-noviazgo.html
-
-**Corrections: June 13, 2026**\
-`Corrections that appeared in print on Saturday, June 13, 2026.`\
-https://www.nytimes.com/2026/06/13/pageoneplus/corrections-june-13-2026.html
-
-**From New York to Texas, a Knicks Guard’s Braids Bring Style to the Court**\
-`Josh Hart is known for his intricate braids, which often feature New York’s logo. For the finals, he is working with hairstylists he has known for years.`\
-https://www.nytimes.com/2026/06/13/style/josh-hart-knicks-braids.html
 
