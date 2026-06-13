@@ -1,3 +1,7 @@
+**Limited Runs**\
+`John Kugelman says a lot with a little.`\
+https://www.nytimes.com/2026/06/13/crosswords/daily-puzzle-2026-06-14.html
+
 **Mystery Potato Hovering Over Colorado Is Reported in Latest U.F.O. Files**\
 `Potatoes have featured in sightings before, and in real and fictional space travel.`\
 https://www.nytimes.com/2026/06/13/us/mystery-potato-hovering-over-colorado-is-reported-in-latest-ufo-files.html
