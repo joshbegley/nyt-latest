@@ -1,3 +1,35 @@
+**Delaney Hall Is Named After Their Family. They Want It to Close.**\
+`Members of the Delaney family say that if the center continues to be used as an Immigration and Customs Enforcement facility, its name needs to be changed.`\
+https://www.nytimes.com/2026/06/13/nyregion/delaney-hall-is-named-after-their-family-they-want-it-to-close.html
+
+**A Great Run for the Knicks Means a Great Run for T-Shirt Bootleggers**\
+`The demand for Knicks merchandise is through the roof, with official retailers and designer boutiques selling out. For $20, the guys on the sidewalks around Madison Square Garden have you covered.`\
+https://www.nytimes.com/2026/06/13/nyregion/nyc-knicks-bootleg-merchandise.html
+
+**For Knicks Fans at Rucker Park, Hope, Doubt and a Desire for Revenge**\
+`Some fans at the world-famous basketball court in Harlem are swept up in the excitement of the N.B.A. finals with the Knicks one win from a championship.`\
+https://www.nytimes.com/2026/06/13/nyregion/knicks-rucker-park.html
+
+**Así fue el pánico en la Casa Blanca por los archivos Epstein**\
+`Los principales asesores del presidente se reunieron en una serie de sesiones en la Sala de Situación para intentar contener un escándalo que involucraba a Donald Trump.`\
+https://www.nytimes.com/es/2026/06/13/espanol/estados-unidos/trump-archivos-epstein-casa-blanca.html
+
+**It’s Been 100 Days. Do You Know Where Rep. Tom Kean Is?**\
+`The New Jersey representative, Thomas Kean Jr., voted in the House and spoke at a committee hearing on March 5. He hasn’t been spotted since.`\
+https://www.nytimes.com/2026/06/13/nyregion/tom-kean-missing-congress.html
+
+**Has There Ever Been a Crazier Sports Moment for New York? Actually, Yes.**\
+`In the spring of 1994, the World Cup arrived, the Knicks were great and so were the Rangers. And in the middle of it all, an infamous White Bronco chase.`\
+https://www.nytimes.com/2026/06/13/nyregion/knicks-rangers-new-york-sports-1994.html
+
+**Can’t Afford Summer Camp? These Playground Workers Can Help.**\
+`City parks officials will put about 70 seasonal playground associates in New York City parks this summer to run free games and activities for any young person who shows up.`\
+https://www.nytimes.com/2026/06/13/nyregion/nyc-playground-associates-summer-camp.html
+
+**NYT Spelling Bee Answers for June 13, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/13/crosswords/spelling-bee-forum.html
+
 **El regreso de Conor McGregor: sustancias prohibidas y un médico famoso**\
 `La sorprendente transformación física de McGregor ha sido objeto de especulaciones entre los aficionados de la UFC, los luchadores y comentaristas que han afirmado que eludió las reglas antidopaje para usar sustancias que mejoran el rendimiento mientras se recuperaba.`\
 https://www.nytimes.com/es/2026/06/13/espanol/deportes/conor-mcgregor-dopaje.html
@@ -165,36 +197,4 @@ https://www.nytimes.com/2026/06/12/us/elections/spencer-pratt-la-mayor.html
 **Charles Dennis, a Founder of the Avant-Garde Space P.S. 122, Dies at 77**\
 `A performance artist, dancer, choreographer, videographer, filmmaker and curator, he was a central figure in the downtown Manhattan experimental arts scene.`\
 https://www.nytimes.com/2026/06/12/theater/charles-dennis-dead.html
-
-**Seth Rogen Knows the Secret to a Good Marriage — and Being Rich in Hollywood**\
-`Lulu Garcia-Navarro speaks with Seth Rogen about his early start in comedy and the prolific Hollywood career that followed.`\
-https://www.nytimes.com/video/podcasts/100000010963471/seth-rogen-knows-the-secret-to-a-good-marriage-and-being-rich-in-hollywood.html
-
-**Federal Agents Search Voting Rights Group in Ohio**\
-`It was not immediately clear what the investigators were looking for, but a board member with a progressive group said members had been served with search warrants.`\
-https://www.nytimes.com/2026/06/12/us/politics/federal-search-voting-rights-group-ohio.html
-
-**Canada Has Its Elbows Up and Arms Wide Open at the World Cup**\
-`Facing President Trump’s threats, many Canadians have taken a defensive stance to their neighbor. But now Canada is playing co-host with the United States and Mexico, and welcoming the world.`\
-https://www.nytimes.com/2026/06/12/world/canada/2026-world-cup-canada-bosnia-toronto.html
-
-**26-Year Mystery of a Skeleton in a Tent Ends With DNA Identification**\
-`Remains of the man, Joseph Louis Serrao Jr., discovered in a remote area in Olympic National Park in 2000, were identified using forensic genealogy.`\
-https://www.nytimes.com/2026/06/12/us/human-remains-olympic-national-park-washington.html
-
-**The Casting Call Was for Zombies. The Job Was Actually a Landlord Rally.**\
-`Housing debates often involve theatrics. But when a group of actors, many of whom are renters, discovered they had been hired to join a pro-landlord demonstration, several said they felt deceived.`\
-https://www.nytimes.com/2026/06/12/nyregion/nyc-landlord-rent-freeze-protest-zombies.html
-
-**Days of Dangerous Heat Is Expected in the Pacific Northwest**\
-`Portland could climb near 100 degrees this weekend, forecasters said. Little relief is expected until next week.`\
-https://www.nytimes.com/2026/06/12/weather/portland-seattle-heat-wave.html
-
-**James Blood Ulmer, Guitarist Who Smashed Through Genres, Dies at 86**\
-`A protégé of the saxophonist Ornette Coleman, he borrowed from and greatly influenced styles like funk, punk, jazz and the blues.`\
-https://www.nytimes.com/2026/06/12/arts/music/james-blood-ulmer-dead.html
-
-**Elon Musk Becomes World’s First Trillionaire on SpaceX’s First Day of Trading**\
-`Stock in Mr. Musk’s rocket and satellite maker closed just above $161, up more than 19 percent from its I.P.O. price.`\
-https://www.nytimes.com/live/2026/06/12/business/spacex-ipo-elon-musk
 
