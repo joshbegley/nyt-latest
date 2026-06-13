@@ -1,3 +1,7 @@
+**Festival Flier**\
+`Ryan McCarty’s themeless puzzle is tough but fair.`\
+https://www.nytimes.com/2026/06/12/crosswords/daily-puzzle-2026-06-13.html
+
 **In Rare Move, D.S.A Rebukes Mamdani Over Police Plans**\
 `The New York City chapter of the Democratic Socialists of America criticized the mayor over his support for increasing the Police Department’s head count.`\
 https://www.nytimes.com/2026/06/12/nyregion/dsa-mamdani-pushback.html
