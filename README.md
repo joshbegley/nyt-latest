@@ -1,3 +1,7 @@
+**Festival Flier**\
+`Ryan McCarty’s themeless puzzle is tough but fair.`\
+https://www.nytimes.com/2026/06/12/crosswords/daily-puzzle-2026-06-13.html
+
 **In Rare Move, D.S.A Rebukes Mamdani Over Police Plans**\
 `The New York City chapter of the Democratic Socialists of America criticized the mayor over his support for increasing the Police Department’s head count.`\
 https://www.nytimes.com/2026/06/12/nyregion/dsa-mamdani-pushback.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/video/arts/music/100000010963344/taylor-swift-songwriter
 **Spain’s Church Hopes Pope Trip Will Stem Secular Tide**\
 `Leo XIV’s visit to Spain, which ended on Friday, has spurred expectations among Catholic leaders of a spiritual revival.`\
 https://www.nytimes.com/2026/06/12/world/europe/pope-leo-spain-secular-catholic.html
-
-**Atlanta Judge Eleanor Ross Says There Is ‘No Excuse’ For Her Misconduct**\
-`In a second apology letter, Judge Eleanor Ross said her actions were “patently wrong.” Some House Republicans want her impeached.`\
-https://www.nytimes.com/2026/06/12/us/judge-eleanor-ross-apology-letters.html
 
 **Elon Musk Becomes World’s First Trillionaire on SpaceX’s First Day of Trading**\
 `Stock in Mr. Musk’s rocket and satellite maker closed just above $161, up more than 19 percent from its I.P.O. price.`\
