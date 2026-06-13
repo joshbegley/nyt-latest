@@ -1,3 +1,11 @@
+**Mystery Potato Hovering Over Colorado Is Reported in Latest U.F.O. Files**\
+`Potatoes have featured in sightings before, and in real and fictional space travel.`\
+https://www.nytimes.com/2026/06/13/us/mystery-potato-hovering-over-colorado-is-reported-in-latest-ufo-files.html
+
+**5 Children Are Killed After Van and S.U.V. Collide in Rural Ontario**\
+`The children — four girls and one boy — were among 10 people in the van at the time of the crash. An infant was seriously injured, the police said.`\
+https://www.nytimes.com/2026/06/13/world/canada/five-children-killed-crash-ontario-canada.html
+
 **At the Kennedy Center, a Name Change Shrouded in Uncertainty**\
 `President Trump’s name was removed from the arts institution’s facade overnight on Saturday. Many questions remain, including whether or not it stays off.`\
 https://www.nytimes.com/2026/06/13/us/politics/trump-kennedy-center-name.html
