@@ -1,3 +1,11 @@
+**Jon Ossoff’s Anti-Authoritarian Playbook**\
+`The Opinion columnist Michelle Goldberg returned from a recent trip to Hungary with an appreciation for Senator Jon Ossoff’s playbook. Viktor Orban’s stunning defeat demonstrates the power of an anticorruption message, she argues, and Ossoff offers a model for Democrats.`\
+https://www.nytimes.com/video/opinion/100000010952666/jon-ossoffs-anti-authoritarian-playbook.html
+
+**Manhattan Street Closures for World Cup to Start at Noon on Saturday**\
+`Mayor Zohran Mamdani has declared a “gridlock alert” day every day that a match is scheduled at MetLife Stadium.`\
+https://www.nytimes.com/2026/06/13/nyregion/manhattan-street-closures-world-cup.html
+
 **Knicks Bring Back Watch Party Outside the Garden for Game 5**\
 `The official watch parties on Saturday night require tickets or registration and will be outside Madison Square Garden, in Central Park and at Radio City Music Hall.`\
 https://www.nytimes.com/2026/06/13/nyregion/knicks-watch-party-nyc.html
