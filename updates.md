@@ -1,3 +1,11 @@
+**See Pulisic and Balogun Combine as USA Beats Paraguay in Opening World Cup Game**\
+`View in 3-D how Christian Pulisic and Folarin Balogun made the second goal for the U.S. team in a 4-1 thrashing of Paraguay in its World Cup opener.`\
+https://www.nytimes.com/interactive/2026/06/13/sports/soccer/usa-paraguay-world-cup-goal-pulisic-balogun.html
+
+**Iran War Live Updates: Mediator Says Peace Deal Could be Finalized Within 24 Hours**\
+`The prime minister of Pakistan, a key intermediary between the U.S. and Iran, said a deal was “likely expected.” Officials on each side have also expressed optimism, but it still could be derailed.`\
+https://www.nytimes.com/live/2026/06/13/world/iran-war-trump-us-israel
+
 **Jeffrey Epstein Haunts the White House**\
 `A sleazy situation that Trump can’t wish away.`\
 https://www.nytimes.com/2026/06/13/opinion/epstein-trump-white-house.html
