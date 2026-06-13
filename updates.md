@@ -1,3 +1,15 @@
+**Only One President Could Come Up With This Spectacle**\
+`Trump has gone beyond kayfabe.`\
+https://www.nytimes.com/2026/06/13/opinion/trump-ufc-fight-freedom-250.html
+
+**A Dinner for People Who Like to Press on Things**\
+`Smashed chicken with corn and cabbage is super satisfying, both to make and to eat.`\
+https://www.nytimes.com/2026/06/13/dining/a-dinner-for-people-who-like-to-press-on-things.html
+
+**It Was 1973, and the Knicks Were Heading to Game 5 …**\
+`Lifelong fans reminisced on the team’s last championship win. “When the Knicks won, it was like a different New York City,” one said.`\
+https://www.nytimes.com/2026/06/13/style/knicks-nba-championship-final-1970s.html
+
 **Iran War Live Updates: Mediator Says Peace Deal Could be Finalized Within 24 Hours**\
 `The prime minister of Pakistan, a key intermediary in U.S.-Iran talks, said a deal was “likely expected.” An Iranian official sought to temper expectations but said an agreement could be signed in the coming days.`\
 https://www.nytimes.com/live/2026/06/13/world/iran-war-trump-us-israel

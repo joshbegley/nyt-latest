@@ -1,3 +1,15 @@
+**Only One President Could Come Up With This Spectacle**\
+`Trump has gone beyond kayfabe.`\
+https://www.nytimes.com/2026/06/13/opinion/trump-ufc-fight-freedom-250.html
+
+**A Dinner for People Who Like to Press on Things**\
+`Smashed chicken with corn and cabbage is super satisfying, both to make and to eat.`\
+https://www.nytimes.com/2026/06/13/dining/a-dinner-for-people-who-like-to-press-on-things.html
+
+**It Was 1973, and the Knicks Were Heading to Game 5 …**\
+`Lifelong fans reminisced on the team’s last championship win. “When the Knicks won, it was like a different New York City,” one said.`\
+https://www.nytimes.com/2026/06/13/style/knicks-nba-championship-final-1970s.html
+
 **Ben Mims Loves an Erewhon Brownie**\
 `A celebrated baker and cookbook author takes the Bake Time Questionnaire.`\
 https://www.nytimes.com/2026/06/13/dining/ben-mims-loves-an-erewhon-brownie.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/13/arts/television/ufc-white-house-fights.html
 **Can the Artemis III Mission Go on as Planned?**\
 `NASA has chosen four astronauts for the Artemis III mission, but there has been a major setback: the destruction of a Blue Origin rocket and its only launchpad. Our science reporter Katrina Miller describes what this event might mean for the U.S. goal of landing on the moon by 2028.`\
 https://www.nytimes.com/video/science/space/100000010943451/can-the-artemis-iii-mission-go-on-as-planned.html
-
-**Despite US Help, Little Oil Has Gone Through Strait of Hormuz**\
-`President Trump said more than 200 commercial vessels had safely traveled through the strait. That’s still far fewer than before the start of the war.`\
-https://www.nytimes.com/2026/06/13/business/oil-strait-of-hormuz.html
-
-**At the Canadian Screen Awards, the Industry Steps Outside Hollywood’s Shadow**\
-`No longer content with being just “Hollywood North,” the Canadian screen industry is asserting itself and telling its own stories.`\
-https://www.nytimes.com/2026/06/13/world/canada/canadian-screen-awards-heated-rivalry-toronto.html
-
-**The Detectives Posed as Dealers. The Cocaine They Peddled Was Real.**\
-`For years, narcotics detectives in Hialeah, Fla., handed out real cocaine in sting operations, often losing track of the drugs. A judge excoriated the practice in a recent ruling.`\
-https://www.nytimes.com/2026/06/13/us/hialeah-florida-cocaine-drug-stings.html
 
