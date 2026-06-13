@@ -1,3 +1,7 @@
+**Trump Again Picks Personal Lawyer for a Top Job, as U.S. Attorney in Manhattan**\
+`James M. McDonald, a veteran former federal prosecutor and regulator, has more recently been part of President Trump’s legal team, appealing his criminal conviction.`\
+https://www.nytimes.com/2026/06/13/us/politics/trump-lawyer-us-attorney-manhattan.html
+
 **Live Updates: Knicks on the Brink of Glory in Game 5**\
 `After mounting the greatest comeback in N.B.A. finals history, the Knicks can win the title by defeating San Antonio tonight. New Yorkers have waited 53 years for this moment.`\
 https://www.nytimes.com/live/2026/06/13/nyregion/nba-finals-knicks-spurs
