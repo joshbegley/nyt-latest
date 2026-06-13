@@ -1,3 +1,7 @@
+**Judge Dismisses Republican Group’s Case Against the University of Florida**\
+`A campus group the university banned after accusations of antisemitic behavior failed to prove it had its First Amendment rights violated, the court ruled.`\
+https://www.nytimes.com/2026/06/12/us/politics/university-florida-college-republican-group-ban.html
+
 **Still Need to Book a Summer Trip? Here Are Our Suggestions on Where to Go**\
 `Once again, readers wrote in with their questions and the travel experts answered.`\
 https://www.nytimes.com/2026/06/12/t-magazine/travel/summer-vacation-suggestions-getaway-guide.html
