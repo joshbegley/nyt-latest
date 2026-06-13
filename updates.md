@@ -1,3 +1,7 @@
+**Ben Mims Loves an Erewhon Brownie**\
+`A celebrated baker and cookbook author takes the Bake Time Questionnaire.`\
+https://www.nytimes.com/2026/06/13/dining/ben-mims-loves-an-erewhon-brownie.html
+
 **Jon Ossoff’s Anti-Authoritarian Playbook**\
 `The Opinion columnist Michelle Goldberg returned from a recent trip to Hungary with an appreciation for Senator Jon Ossoff’s playbook. Viktor Orban’s stunning defeat demonstrates the power of an anticorruption message, she argues, and Ossoff offers a model for Democrats.`\
 https://www.nytimes.com/video/opinion/100000010952666/jon-ossoffs-anti-authoritarian-playbook.html

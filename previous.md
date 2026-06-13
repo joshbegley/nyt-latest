@@ -1,3 +1,7 @@
+**Ben Mims Loves an Erewhon Brownie**\
+`A celebrated baker and cookbook author takes the Bake Time Questionnaire.`\
+https://www.nytimes.com/2026/06/13/dining/ben-mims-loves-an-erewhon-brownie.html
+
 **Jon Ossoff’s Anti-Authoritarian Playbook**\
 `The Opinion columnist Michelle Goldberg returned from a recent trip to Hungary with an appreciation for Senator Jon Ossoff’s playbook. Viktor Orban’s stunning defeat demonstrates the power of an anticorruption message, she argues, and Ossoff offers a model for Democrats.`\
 https://www.nytimes.com/video/opinion/100000010952666/jon-ossoffs-anti-authoritarian-playbook.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/13/world/canada/canadian-screen-awards-heated-ri
 **The Detectives Posed as Dealers. The Cocaine They Peddled Was Real.**\
 `For years, narcotics detectives in Hialeah, Fla., handed out real cocaine in sting operations, often losing track of the drugs. A judge excoriated the practice in a recent ruling.`\
 https://www.nytimes.com/2026/06/13/us/hialeah-florida-cocaine-drug-stings.html
-
-**Book Review: ‘Something We Said,’ by Elizabeth Stordeur Pryor**\
-`Elizabeth Stordeur Pryor’s new book, “Something We Said,” is at once a memoir and a history of a racial slur.`\
-https://www.nytimes.com/2026/06/13/books/review/something-we-said-elizabeth-stordeur-pryor.html
 
