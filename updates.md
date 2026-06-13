@@ -1,3 +1,7 @@
+**In Rare Move, D.S.A Rebukes Mamdani Over Police Plans**\
+`The New York City chapter of the Democratic Socialists of America criticized the mayor over his support for increasing the Police Department’s head count.`\
+https://www.nytimes.com/2026/06/12/nyregion/dsa-mamdani-pushback.html
+
 **Judge Dismisses Republican Group’s Case Against the University of Florida**\
 `A campus group the university banned after accusations of antisemitic behavior failed to prove it had its First Amendment rights violated, the court ruled.`\
 https://www.nytimes.com/2026/06/12/us/politics/university-florida-college-republican-group-ban.html

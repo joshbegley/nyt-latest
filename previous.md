@@ -1,3 +1,7 @@
+**In Rare Move, D.S.A Rebukes Mamdani Over Police Plans**\
+`The New York City chapter of the Democratic Socialists of America criticized the mayor over his support for increasing the Police Department’s head count.`\
+https://www.nytimes.com/2026/06/12/nyregion/dsa-mamdani-pushback.html
+
 **Judge Dismisses Republican Group’s Case Against the University of Florida**\
 `A campus group the university banned after accusations of antisemitic behavior failed to prove it had its First Amendment rights violated, the court ruled.`\
 https://www.nytimes.com/2026/06/12/us/politics/university-florida-college-republican-group-ban.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/06/12/world/europe/pope-leo-spain-secular-catholic.
 **Atlanta Judge Eleanor Ross Says There Is ‘No Excuse’ For Her Misconduct**\
 `In a second apology letter, Judge Eleanor Ross said her actions were “patently wrong.” Some House Republicans want her impeached.`\
 https://www.nytimes.com/2026/06/12/us/judge-eleanor-ross-apology-letters.html
-
-**Scientists Race to Test Treatments as Ebola Outbreak Widens**\
-`Trials are beginning on several drugs that have shown promise in preliminary studies against the virus that is causing the current outbreak.`\
-https://www.nytimes.com/2026/06/12/health/ebola-treatment-bundibugyo-virus.html
 
 **Elon Musk Becomes World’s First Trillionaire on SpaceX’s First Day of Trading**\
 `Stock in Mr. Musk’s rocket and satellite maker closed just above $161, up more than 19 percent from its I.P.O. price.`\
