@@ -1,3 +1,7 @@
+**Iran War Live Updates: Trump Says Peace Deal Will be Signed Sunday, But Iran Disputes Timeline**\
+`An Iranian foreign ministry official sought to temper expectations, saying there were no plans for a Sunday signing and an agreement could be inked in the coming days.`\
+https://www.nytimes.com/live/2026/06/13/world/iran-war-trump-us-israel
+
 **EE. UU. y Venezuela afirman haber abatido a un líder del Tren de Aragua en una operación conjunta**\
 `Un ataque realizado esta semana en Venezuela acabó con la vida de un líder de la banda conocido como Niño Guerrero, quien era buscado en Estados Unidos, dijeron autoridades de ambos países.`\
 https://www.nytimes.com/es/2026/06/13/espanol/america-latina/trump-tren-aragua-nino-guerrero.html
