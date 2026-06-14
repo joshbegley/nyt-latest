@@ -14,8 +14,8 @@ https://www.nytimes.com/2026/06/13/technology/states-investigating-openai.html
 `James M. McDonald, a veteran former federal prosecutor and regulator, has more recently been part of President Trump’s legal team, appealing his criminal conviction.`\
 https://www.nytimes.com/2026/06/13/us/politics/trump-lawyer-us-attorney-manhattan.html
 
-**Live Updates: Anxious Knicks Fans Gather With Team Battling the Spurs**\
-`After mounting the greatest comeback in N.B.A. finals history, the Knicks can win the title by defeating San Antonio tonight in Game 5. New Yorkers have waited 53 years for this moment.`\
+**Live Updates: Knicks Fans Erupt in Celebration Over N.B.A. Championship**\
+`The New York Knicks defeated San Antonio in Game 5 of the N.B.A. finals to win their first title since 1973. New Yorkers had waited more than a half century for the moment.`\
 https://www.nytimes.com/live/2026/06/13/nyregion/nba-finals-knicks-spurs
 
 **Top Haitian Security Official Kidnapped**\
