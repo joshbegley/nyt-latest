@@ -1,3 +1,7 @@
+**Live Updates: Anxious Knicks Fans Gather With Team Battling the Spurs**\
+`After mounting the greatest comeback in N.B.A. finals history, the Knicks can win the title by defeating San Antonio tonight in Game 5. New Yorkers have waited 53 years for this moment.`\
+https://www.nytimes.com/live/2026/06/13/nyregion/nba-finals-knicks-spurs
+
 **State Attorneys General Are Investigating OpenAI**\
 `OpenAI said that a coalition of states had opened an investigation over a wide range of its practices, including its handling of user data, safety of minors and advertising activities.`\
 https://www.nytimes.com/2026/06/13/technology/states-investigating-openai.html
