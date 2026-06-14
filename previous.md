@@ -1,3 +1,15 @@
+**Do Aliens Exist? Steven Spielberg Believes They Do**\
+`The legendary director on why he thinks aliens are real, and why he makes movies about things that scare him.`\
+https://www.nytimes.com/2026/06/14/podcasts/the-daily/do-aliens-exist-steven-spielberg-believes-they-do.html
+
+**Knicks Win First N.B.A. Title in 53 Years**\
+`Hear instant reaction to the New York Knicks’ win over the San Antonio Spurs.`\
+https://www.nytimes.com/2026/06/14/podcasts/knicks-win-first-nba-title-in-53-years.html
+
+**Net Gain**\
+`We’re covering the Knicks, and a savvy strategy people are using to game prediction markets.`\
+https://www.nytimes.com/2026/06/14/briefing/net-gain.html
+
 **Why I Love the Beautiful Game: Brandon Aubrey**\
 `Brandon Aubrey is an N.F.L. superstar. The other football is his first love.`\
 https://www.nytimes.com/2026/06/14/podcasts/why-i-love-the-beautiful-game-brandon-aubrey.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/14/nyregion/knicks-championship-celebrations.htm
 **President Trump Endorses Mike Collins in Georgia Senate Runoff**\
 `Mr. Trump backed Mr. Collins over Derek Dooley, a former football coach who is supported by Gov. Brian Kemp, a Republican whose relationship with the president is strained.`\
 https://www.nytimes.com/2026/06/14/us/politics/trump-mike-collins-georgia-senate-runoff.html
-
-**New Yorkers Waited 53 Years for This. Time to Celebrate.**\
-`With a championship run for the ages, the Knicks awakened joy in a city desperate for a winner.`\
-https://www.nytimes.com/2026/06/14/nyregion/knicks-championship-photos.html
-
-**Knicks Will Get a Ticker-Tape Parade on Thursday**\
-`Mayor Zohran Mamdani will present the team with the keys to the city. He said the parade will be the Knicks’ first in team history.`\
-https://www.nytimes.com/2026/06/14/nyregion/knicks-championship-parade.html
-
-**Iran War Live Updates: Israel and Hezbollah Exchange Strikes, Complicating Possible Iran Peace Agreement**\
-`Israel’s military said it attacked the southern outskirts of Beirut, the Lebanese capital, after accusing Hezbollah, the Iran-backed armed group, of violating a cease-fire.`\
-https://www.nytimes.com/live/2026/06/14/world/iran-war-trump-us
 

@@ -1,3 +1,15 @@
+**Do Aliens Exist? Steven Spielberg Believes They Do**\
+`The legendary director on why he thinks aliens are real, and why he makes movies about things that scare him.`\
+https://www.nytimes.com/2026/06/14/podcasts/the-daily/do-aliens-exist-steven-spielberg-believes-they-do.html
+
+**Knicks Win First N.B.A. Title in 53 Years**\
+`Hear instant reaction to the New York Knicks’ win over the San Antonio Spurs.`\
+https://www.nytimes.com/2026/06/14/podcasts/knicks-win-first-nba-title-in-53-years.html
+
+**Net Gain**\
+`We’re covering the Knicks, and a savvy strategy people are using to game prediction markets.`\
+https://www.nytimes.com/2026/06/14/briefing/net-gain.html
+
 **Curaçao Is the Smallest Country Ever to Reach the World Cup**\
 `Competing for the first time, Curaçao is brimming with joy. Most of the Caribbean nation’s team was born and raised in the Netherlands, but residents say the players represent them.`\
 https://www.nytimes.com/2026/06/14/world/americas/world-cup-curacao-netherlands-soccer.html
