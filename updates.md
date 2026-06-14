@@ -1,3 +1,19 @@
+**Harissa Apricot Chicken, Done in 20 Minutes**\
+`The word “perfect” turns up a lot in the comments on this new spicy-sweet dish.`\
+https://www.nytimes.com/2026/06/14/dining/harissa-apricot-chicken-done-in-20-minutes.html
+
+**The New Isolation of the Israeli Cultural Scene**\
+`In Tel Aviv, there’s a feeling that “we are on our own.”`\
+https://www.nytimes.com/2026/06/14/opinion/israel-artists-gaza-war-culture.html
+
+**About the Meat Industry: Before We Take a Bite, Hard Questions**\
+`Readers respond to a guest essay and a column by Nicholas Kristof about the meat industry.`\
+https://www.nytimes.com/2026/06/14/opinion/meat-industry.html
+
+**Israel Strikes Beirut Outskirts as Fighting With Hezbollah Escalates**\
+`The attacks complicated an already delicate moment as President Trump and Iran appeared to be edging toward finalizing a framework peace agreement.`\
+https://www.nytimes.com/2026/06/14/world/middleeast/israel-strikes-beirut-hezbollah.html
+
 **Switzerland Rejects Measure to Cap Population at 10 Million, Projections Show**\
 `The referendum was about limiting migration after the number of residents rose by more than a quarter since 2000, but it was framed around affordability and sustainability.`\
 https://www.nytimes.com/2026/06/14/world/europe/switzerland-population-cap-referendum.html
