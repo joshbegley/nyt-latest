@@ -158,7 +158,7 @@ https://www.nytimes.com/2026/06/14/us/elections/kevin-oleary-utah-data-center.ht
 `A special section in this weekend’s newspaper invites readers to stare at a selection of works by Frida Kahlo, Hieronymus Bosch and others, uninterrupted.`\
 https://www.nytimes.com/2026/06/14/insider/10-minute-challenge-print-special-section.html
 
-**The World’s Leading Deepfake Expert No Longer Trusts His Own Eyes**\
+**In Age of AI, World’s Leading Deepfake Expert No Longer Trusts His Own Eyes**\
 `In the age of A.I., Hany Farid is struggling to prove what’s real before the internet decides for itself.`\
 https://www.nytimes.com/2026/06/14/us/ai-deepfake-hany-farid.html
 

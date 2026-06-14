@@ -1,3 +1,7 @@
+**In Age of AI, World’s Leading Deepfake Expert No Longer Trusts His Own Eyes**\
+`In the age of A.I., Hany Farid is struggling to prove what’s real before the internet decides for itself.`\
+https://www.nytimes.com/2026/06/14/us/ai-deepfake-hany-farid.html
+
 **UK Forces Seize Russian Shadow Fleet Oil Tanker**\
 `Britain’s Defense Ministry said it was the first time that British forces had acted alone to stop a ship in the fleet, a collection of vessels that Russia uses to move fuel and evade sanctions.`\
 https://www.nytimes.com/2026/06/14/world/europe/uk-russia-shadow-fleet-oil-tanker-channel.html
