@@ -43,7 +43,7 @@ https://www.nytimes.com/es/2026/06/14/espanol/america-latina/curacao-mundial-mas
 https://www.nytimes.com/2026/06/14/arts/dance/the-knicks-spontaneous-dancing.html
 
 **In Israel, Broad Discontent Over the Emerging U.S. Deal With Iran**\
-`Israelis across the political spectrum say the deal appears to leave fundamental security threats posed by Iran unaddressed.`\
+`Israelis across the political spectrum have said the deal appears to leave fundamental security threats posed by Iran unaddressed.`\
 https://www.nytimes.com/2026/06/14/world/middleeast/israel-us-iran-deal.html
 
 **12 Killed in Skydiving Plane Crash in Butler, Missouri**\
@@ -86,13 +86,13 @@ https://www.nytimes.com/2026/06/14/nyregion/knicks-nba-celebrations-msg-nyc-shoo
 `Water levels are expected to be high enough to challenge or exceed the current summer tide record of 1.7 feet above normal, set in July 2022, forecasters said.`\
 https://www.nytimes.com/2026/06/14/weather/bay-area-summer-high-tides.html
 
-**For the Best Strawberry Pie, Roast Those Berries**\
-`Then pair them with tart rhubarb, as Genevieve Ko does in her new showstopping pie.`\
-https://www.nytimes.com/2026/06/14/dining/for-the-best-strawberry-pie-roast-those-berries.html
-
 **Under a Disco Ball in Brooklyn, Spurs Fans Found Refuge**\
 `Once a haven for fans of many teams, New York City had felt less and less friendly to those rooting for San Antonio. Enter Doris, a bar on Fulton Street.`\
 https://www.nytimes.com/2026/06/14/nyregion/spurs-fans-bar-new-york.html
+
+**For the Best Strawberry Pie, Roast Those Berries**\
+`Then pair them with tart rhubarb, as Genevieve Ko does in her new showstopping pie.`\
+https://www.nytimes.com/2026/06/14/dining/for-the-best-strawberry-pie-roast-those-berries.html
 
 **The Knicks as Religious Experience**\
 `Knicks fans are waking up from the hangover of a really good trip. One that, some said, let them see God.`\

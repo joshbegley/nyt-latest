@@ -1,3 +1,7 @@
+**In Israel, Broad Discontent Over the Emerging U.S. Deal With Iran**\
+`Israelis across the political spectrum have said the deal appears to leave fundamental security threats posed by Iran unaddressed.`\
+https://www.nytimes.com/2026/06/14/world/middleeast/israel-us-iran-deal.html
+
 **NYT Crossword Answers for June 15, 2026**\
 `Eric Rollfing winds us up.`\
 https://www.nytimes.com/2026/06/14/crosswords/daily-puzzle-2026-06-15.html
