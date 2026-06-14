@@ -1,3 +1,7 @@
+**Trump Claims Strait Will be ‘Permanently Toll Free’ Under Agreement With Iran**\
+`In a call to The New York Times, President Trump praised Russia and China’s leaders and described Israel’s prime minister as “a very difficult guy.”`\
+https://www.nytimes.com/2026/06/14/us/politics/trump-iran-deal-strait-of-hormuz.html
+
 **Oil Prices Tumble After Trump Announces Deal With Iran**\
 `Oil prices fell and stocks gained on Sunday evening on the hope that a deal would allow more energy and other goods to flow through the Strait of Hormuz.`\
 https://www.nytimes.com/2026/06/14/business/oil-stocks-gas-iran.html
@@ -51,7 +55,7 @@ https://www.nytimes.com/2026/06/14/arts/dance/the-knicks-spontaneous-dancing.htm
 https://www.nytimes.com/2026/06/14/world/middleeast/israel-us-iran-deal.html
 
 **12 Killed in Skydiving Plane Crash in Butler, Missouri**\
-`Eleven passengers and a pilot were killed shortly after takeoff near the Butler Memorial Airport in Missouri.`\
+`Eleven passengers and a pilot were killed after the plane climbed about 100 feet and then crashed to the ground at the Butler Memorial Airport in Missouri, officials said.`\
 https://www.nytimes.com/2026/06/14/us/skydiving-plane-crash-butler-missouri.html
 
 **Mitch McConnell Is Hospitalized, His Spokesman Says**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/14/crosswords/strands-sidekick-834.html
 **Today’s Wordle Hints for June 15, 2025**\
 `Scroll down for hints and conversation about the puzzle for Monday, June 15, 2026.`\
 https://www.nytimes.com/2026/06/14/crosswords/wordle-review-1822.html
-
-**UK Forces Seize Russian Shadow Fleet Oil Tanker**\
-`Britain’s Defense Ministry said it was the first time that British forces had acted alone to stop a ship in the fleet, a collection of vessels that Russia uses to move fuel and evade sanctions.`\
-https://www.nytimes.com/2026/06/14/world/europe/uk-russia-shadow-fleet-oil-tanker-channel.html
 
