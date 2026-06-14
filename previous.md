@@ -1,3 +1,7 @@
+**Tyra Banks Sues Netflix for Defamation Over ‘America’s Next Top Model’ Docuseries**\
+`The lawsuit claims that producers used roughly 16 minutes of Ms. Banks’s three-and-a-half-hour interview to present a false narrative stripped of context.`\
+https://www.nytimes.com/2026/06/14/arts/television/tyra-banks-netflix-lawsuit-defamation-antm.html
+
 **Trump Owns Shares in Company Hosting U.F.C. Bout as Part of His Vast Holdings**\
 `The Trump Organization says the president has no control over his stock positions, including that of TKO Group, which runs the Ultimate Fighting Championship.`\
 https://www.nytimes.com/2026/06/14/us/politics/trump-ufc-tko-group.html
@@ -71,7 +75,7 @@ https://www.nytimes.com/2026/06/14/briefing/net-gain.html
 https://www.nytimes.com/2026/06/14/podcasts/why-i-love-the-beautiful-game-brandon-aubrey.html
 
 **MAGA’s French Connection**\
-`Christian nationalism has dark forebears.`\
+`This is MAGA’s French connection.`\
 https://www.nytimes.com/2026/06/14/opinion/christian-nationalism-maga-france.html
 
 **What the Cult of Efficiency Costs Us**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/14/business/media/kash-patel-defamation-lawsuits
 **Flower Farms Are Emerging as Sought-After Wedding Venues**\
 `Flower farms are emerging as sought-after wedding venues, offering both a sustainable and photogenic backdrop.`\
 https://www.nytimes.com/2026/06/14/style/flower-farm-wedding-venues.html
-
-**Legal and Lobbying Costs Surge as Universities Face Trump Pressure**\
-`Some universities’ tax returns showed that their legal bills had more than doubled. Others reported that their spending on lobbying had risen at least fivefold.`\
-https://www.nytimes.com/2026/06/14/us/legal-lobbying-cost-university-college-trump.html
 

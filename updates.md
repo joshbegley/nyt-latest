@@ -1,3 +1,11 @@
+**Tyra Banks Sues Netflix for Defamation Over ‘America’s Next Top Model’ Docuseries**\
+`The lawsuit claims that producers used roughly 16 minutes of Ms. Banks’s three-and-a-half-hour interview to present a false narrative stripped of context.`\
+https://www.nytimes.com/2026/06/14/arts/television/tyra-banks-netflix-lawsuit-defamation-antm.html
+
+**MAGA’s French Connection**\
+`This is MAGA’s French connection.`\
+https://www.nytimes.com/2026/06/14/opinion/christian-nationalism-maga-france.html
+
 **Trump Owns Shares in Company Hosting U.F.C. Bout as Part of His Vast Holdings**\
 `The Trump Organization says the president has no control over his stock positions, including that of TKO Group, which runs the Ultimate Fighting Championship.`\
 https://www.nytimes.com/2026/06/14/us/politics/trump-ufc-tko-group.html
