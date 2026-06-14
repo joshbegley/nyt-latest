@@ -1,3 +1,11 @@
+**NYT Crossword Answers for June 15, 2026**\
+`Eric Rollfing winds us up.`\
+https://www.nytimes.com/2026/06/14/crosswords/daily-puzzle-2026-06-15.html
+
+**12 Dead in Missouri Skydiving Plane Crash**\
+`Eleven passengers and a pilot were killed shortly after taking off for a skydiving trip in Missouri on Sunday.`\
+https://www.nytimes.com/video/us/100000010966815/12-dead-in-missouri-skydiving-plane-crash.html
+
 **Trump cumple 80 años: un presidente incómodo con envejecer**\
 `Incluso para un presidente conocido por imponer su propia realidad en cualquier situación, Trump no ha logrado escapar al escrutinio sobre su edad.`\
 https://www.nytimes.com/es/2026/06/14/espanol/estados-unidos/trump-cumpleanos-80.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/14/world/europe/uk-russia-shadow-fleet-oil-tanke
 **Knicks Give Their City Something New: Impossible Joy**\
 `At long last, the team that New York City cares about the most has loved it back.`\
 https://www.nytimes.com/2026/06/14/nyregion/knicks-new-york-city-nba-championship-win.html
-
-**Fans Celebrate Knicks’ First N.B.A. Title in 53 Years**\
-`New York City erupted in celebration after the Knicks defeated the San Antonio Spurs in Game 5 of the N.B.A. finals to win their first championship since 1973.`\
-https://www.nytimes.com/video/nyregion/100000010966194/knicks-nba-championship.html
-
-**Intentaron atrapar a un depredador. En cambio, ellos resultaron atrapados**\
-`Esto es lo que pasó cuando unos justicieros que emiten sus actividades en vivo tendieron una trampa a un hombre inocente.`\
-https://www.nytimes.com/es/2026/06/14/espanol/negocios/vitaly-depredadores-kick-twitch.html
 
