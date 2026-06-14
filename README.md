@@ -1,3 +1,7 @@
+**What to Know About the Ticker-Tape Parade for the Knicks**\
+`A parade up Broadway to City Hall on Thursday will celebrate the team’s N.B.A. championship win, and Mayor Zohran Mamdani will present players with keys to the city.`\
+https://www.nytimes.com/2026/06/14/nyregion/knicks-parade-nyc-what-to-know.html
+
 **How to Watch the U.F.C. 250 Freedom Fights at the White House**\
 `Seven bouts will take place in an arena created on the South Lawn for the Ultimate Fighting Championship event, which coincides with President Trump’s 80th birthday.`\
 https://www.nytimes.com/2026/06/14/us/politics/how-to-watch-ufc-freedom-250.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/14/pageoneplus/no-corrections-june-14-2026.html
 **How Trump and the U.F.C. Transformed the White House Lawn for a Fight**\
 `See the towering, 600-ton claw-like superstructure and venue for the U.F.C. fight.`\
 https://www.nytimes.com/interactive/2026/06/14/us/politics/trump-white-house-claw-ufc-fight.html
-
-**Coming to a Blood Donation Center Near You: the Chicago Symphony**\
-`When the medical technology company Abbott developed mixed-reality games, it got one of the world’s great orchestras to record the soundtracks.`\
-https://www.nytimes.com/2026/06/14/arts/music/chicago-symphony-blood-donation.html
 

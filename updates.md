@@ -1,3 +1,7 @@
+**How to Watch the U.F.C. 250 Freedom Fights at the White House**\
+`Seven bouts will take place in an arena created on the South Lawn for the Ultimate Fighting Championship event, which coincides with President Trump’s 80th birthday.`\
+https://www.nytimes.com/2026/06/14/us/politics/how-to-watch-ufc-freedom-250.html
+
 **Jean Ziegler, Swiss Gadfly Who Provoked His Countrymen, Dies at 92**\
 `In a nation that sees itself as a tranquil oasis of prosperity and business virtue, he drew death threats for pointing out a dark underside.`\
 https://www.nytimes.com/2026/06/14/obituaries/jean-ziegler-dead.html
