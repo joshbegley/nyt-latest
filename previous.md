@@ -1,3 +1,27 @@
+**Los estadounidenses resienten cada vez más la brecha entre los ultrarricos y la gente promedio**\
+`Mientras Elon Musk se convierte en el primer “billonario” del mundo, los trabajadores se enfrentan a precios más altos y al temor a perder sus puestos de trabajo por culpa de la IA.`\
+https://www.nytimes.com/es/2026/06/14/espanol/negocios/brecha-salarial-millonarios-ia.html
+
+**Tweet, Delete, Repeat: Social Media Posts Overshadow N.Y. House Race**\
+`Darializa Avila Chevalier won the backing of Mayor Zohran Mamdani in her bid to unseat Representative Adriano Espaillat. Then her social media history took center stage.`\
+https://www.nytimes.com/2026/06/14/nyregion/avila-chevalier-social-media.html
+
+**The Last Days of the Times Square Red Lobster**\
+`Regulars and newcomers feasted on seafood and biscuits as the restaurant’s bright red lobster logo glowed in Times Square for the final time.`\
+https://www.nytimes.com/2026/06/14/nyregion/times-square-red-lobster.html
+
+**‘He Offered to Take Me to Get the Best Hamburger in the City’**\
+`Catching a glimpse of an elusive bird, the sax player’s tune and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://www.nytimes.com/2026/06/14/nyregion/metropolitan-diary.html
+
+**NYT Spelling Bee Answers for June 14, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/14/crosswords/spelling-bee-forum.html
+
+**‘A Lifetime Dream’: Knicks Fans Celebrate From New York City to Texas**\
+`Dancing in the East Village. Flooding San Antonio with Knicks’ orange and blue. Crying at Madison Square Garden. The first N.B.A. championship in decades had fans in a frenzy.`\
+https://www.nytimes.com/2026/06/14/nyregion/knicks-championship-celebrations.html
+
 **President Trump Endorses Mike Collins in Georgia Senate Runoff**\
 `Mr. Trump backed Mr. Collins over Derek Dooley, a former football coach who is supported by Gov. Brian Kemp, a Republican whose relationship with the president is strained.`\
 https://www.nytimes.com/2026/06/14/us/politics/trump-mike-collins-georgia-senate-runoff.html
@@ -169,28 +193,4 @@ https://www.nytimes.com/2026/06/13/nyregion/manhattan-street-closures-world-cup.
 **Knicks Bring Back Watch Party Outside the Garden for Game 5**\
 `The official watch parties on Saturday night require tickets or registration and will be outside Madison Square Garden, in Central Park and at Radio City Music Hall.`\
 https://www.nytimes.com/2026/06/13/nyregion/knicks-watch-party-nyc.html
-
-**Everyone Wants to Tax A.I. The Big Disagreement: How?**\
-`Bernie Sanders, President Trump and even A.I. companies say they would like the public to share the wealth. But their solutions are very different.`\
-https://www.nytimes.com/2026/06/13/business/dealbook/ai-tax-proposals.html
-
-**See Pulisic and Balogun Combine as USA Beats Paraguay in Opening World Cup Game**\
-`View in 3-D how Christian Pulisic and Folarin Balogun made the second goal for the U.S. team in a 4-1 thrashing of Paraguay in its World Cup opener.`\
-https://www.nytimes.com/interactive/2026/06/13/sports/soccer/usa-paraguay-world-cup-goal-pulisic-balogun.html
-
-**Jeffrey Epstein Haunts the White House**\
-`A sleazy situation that Trump can’t wish away.`\
-https://www.nytimes.com/2026/06/13/opinion/epstein-trump-white-house.html
-
-**Does U.F.O. Disclosure Threaten Faith?**\
-`Steven Spielberg’s ‘Disclosure Day’ and the God-and-aliens debate.`\
-https://www.nytimes.com/2026/06/13/opinion/disclosure-day-ufo-religion.html
-
-**Detroit Is the Last City That Knows How to Dance**\
-`Dance floors are flooded with selfies and poseurs. But in one city, it’s still a place to feel free.`\
-https://www.nytimes.com/2026/06/13/opinion/detroit-dance-floor-music-dj.html
-
-**The U.S. Is the Future of Soccer, for Better or Worse**\
-`Thanks to immigrants and the internet, Americans gained entry to a universe beyond our borders.`\
-https://www.nytimes.com/2026/06/13/opinion/usa-soccer-world-cup.html
 

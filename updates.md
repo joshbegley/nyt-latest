@@ -1,3 +1,27 @@
+**Los estadounidenses resienten cada vez más la brecha entre los ultrarricos y la gente promedio**\
+`Mientras Elon Musk se convierte en el primer “billonario” del mundo, los trabajadores se enfrentan a precios más altos y al temor a perder sus puestos de trabajo por culpa de la IA.`\
+https://www.nytimes.com/es/2026/06/14/espanol/negocios/brecha-salarial-millonarios-ia.html
+
+**Tweet, Delete, Repeat: Social Media Posts Overshadow N.Y. House Race**\
+`Darializa Avila Chevalier won the backing of Mayor Zohran Mamdani in her bid to unseat Representative Adriano Espaillat. Then her social media history took center stage.`\
+https://www.nytimes.com/2026/06/14/nyregion/avila-chevalier-social-media.html
+
+**The Last Days of the Times Square Red Lobster**\
+`Regulars and newcomers feasted on seafood and biscuits as the restaurant’s bright red lobster logo glowed in Times Square for the final time.`\
+https://www.nytimes.com/2026/06/14/nyregion/times-square-red-lobster.html
+
+**‘He Offered to Take Me to Get the Best Hamburger in the City’**\
+`Catching a glimpse of an elusive bird, the sax player’s tune and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://www.nytimes.com/2026/06/14/nyregion/metropolitan-diary.html
+
+**NYT Spelling Bee Answers for June 14, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/14/crosswords/spelling-bee-forum.html
+
+**‘A Lifetime Dream’: Knicks Fans Celebrate From New York City to Texas**\
+`Dancing in the East Village. Flooding San Antonio with Knicks’ orange and blue. Crying at Madison Square Garden. The first N.B.A. championship in decades had fans in a frenzy.`\
+https://www.nytimes.com/2026/06/14/nyregion/knicks-championship-celebrations.html
+
 **President Trump Endorses Mike Collins in Georgia Senate Runoff**\
 `Mr. Trump backed Mr. Collins over Derek Dooley, a former football coach who is supported by Gov. Brian Kemp, a Republican whose relationship with the president is strained.`\
 https://www.nytimes.com/2026/06/14/us/politics/trump-mike-collins-georgia-senate-runoff.html
