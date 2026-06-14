@@ -1,3 +1,15 @@
+**In Israel, Broad Discontent Over the Emerging U.S. Deal With Iran**\
+`Israelis across the political spectrum say the deal appears to leave fundamental security threats posed by Iran unaddressed.`\
+https://www.nytimes.com/2026/06/14/world/middleeast/israel-us-iran-deal.html
+
+**12 Killed in Skydiving Plane Crash in Butler, Missouri**\
+`Eleven passengers and a pilot were killed shortly after takeoff near the Butler Memorial Airport in Missouri.`\
+https://www.nytimes.com/2026/06/14/us/skydiving-plane-crash-butler-missouri.html
+
+**Mitch McConnell Is Hospitalized, His Spokesman Says**\
+`No details were given about the 84-year-old former majority leader’s condition, but he has had a string of health issues in recent years.`\
+https://www.nytimes.com/2026/06/14/us/politics/mitch-mcconnell-hospitalized.html
+
 **Team Curaçao Arrives at the World Cup With Much of the Island in Tow.**\
 `Qualifying for the world’s biggest sporting event meant everything for residents of the Caribbean island country.`\
 https://www.nytimes.com/2026/06/14/us/team-curacao-world-cup-fans.html
