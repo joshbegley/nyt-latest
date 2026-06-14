@@ -1,3 +1,91 @@
+**Intentaron atrapar a un depredador. En cambio, ellos resultaron atrapados**\
+`Esto es lo que pasó cuando unos justicieros que emiten sus actividades en vivo tendieron una trampa a un hombre inocente.`\
+https://www.nytimes.com/es/2026/06/14/espanol/negocios/vitaly-depredadores-kick-twitch.html
+
+**Trump at 80: A President ‘Really Uncomfortable’ With Aging**\
+`Even for a president known for imposing his own reality on every situation, Mr. Trump has not outrun scrutiny over his age.`\
+https://www.nytimes.com/2026/06/14/us/politics/trump-age-birthday-80.html
+
+**Merger Cleared, David Ellison to Join Trump at U.F.C. Bout**\
+`A U.F.C. fight on President Trump’s birthday will now double as a capstone for Paramount’s successful effort to secure Justice Department approval for a mega media merger.`\
+https://www.nytimes.com/2026/06/14/business/media/trump-ufc-david-ellison.html
+
+**No Corrections: June 14, 2026**\
+`No corrections appeared in print on Sunday, June 14, 2026.`\
+https://www.nytimes.com/2026/06/14/pageoneplus/no-corrections-june-14-2026.html
+
+**How Trump and the U.F.C. Transformed the White House Lawn for a Fight**\
+`See the towering, 600-ton claw-like superstructure and venue for the U.F.C. fight.`\
+https://www.nytimes.com/interactive/2026/06/14/us/politics/trump-white-house-claw-ufc-fight.html
+
+**Coming to a Blood Donation Center Near You: the Chicago Symphony**\
+`When the medical technology company Abbott developed mixed-reality games, it got one of the world’s great orchestras to record the soundtracks.`\
+https://www.nytimes.com/2026/06/14/arts/music/chicago-symphony-blood-donation.html
+
+**How Redistricting Pit Wasserman Schultz Against Black Democrats in Florida**\
+`Four candidates running in a historically Black district risk dividing the Black vote and losing to Ms. Wasserman Schultz, who is white.`\
+https://www.nytimes.com/2026/06/14/us/politics/redistricting-black-democrats-debbie-wasserman-schultz-florida.html
+
+**The G7 Summit Is Dogged by Chaos and Divided by Trump**\
+`Group of 7 meetings once embodied the effort to sustain the global diplomatic order. This year’s gathering, starting on Monday, symbolizes its fragmentation.`\
+https://www.nytimes.com/2026/06/14/world/europe/g7-summit-evian-trump.html
+
+**The Secrets of a Soccer-Turf Master**\
+`John Sorochan, a turf scientist at the University of Tennessee, has led the yearslong, multimillion-dollar effort to develop perfect playing fields for the 2026 World Cup.`\
+https://www.nytimes.com/2026/06/14/science/world-cup-turf-sorochan.html
+
+**Deadlocked Wars: How Major Powers Misread the Regions They Attacked**\
+`Russia and the United States projected their own centralized views onto Ukraine and Iran, analysts said. As a result, the smaller countries trapped larger ones in a costly confrontation.`\
+https://www.nytimes.com/2026/06/14/world/europe/us-iran-rusisa-ukraine.html
+
+**How to Run a News Company in the Age of Polarization and A.I. Slop**\
+`Cesar Conde of NBCUniversal News thinks that the “pendulum will eventually swing back” to mainstream media brands.`\
+https://www.nytimes.com/2026/06/14/business/nbc-news-cesar-conde.html
+
+**How Utahns Took on Mr. Wonderful and a Data Center on the Great Salt Lake**\
+`Kevin O’Leary of “Shark Tank” fame hopes to build a sprawling data center on the parched shores of the Great Salt Lake. It has become a burning issue in Utah’s looming primaries.`\
+https://www.nytimes.com/2026/06/14/us/elections/kevin-oleary-utah-data-center.html
+
+**How We Brought an Art Gallery to Your Sunday Paper**\
+`A special section in this weekend’s newspaper invites readers to stare at a selection of works by Frida Kahlo, Hieronymus Bosch and others, uninterrupted.`\
+https://www.nytimes.com/2026/06/14/insider/10-minute-challenge-print-special-section.html
+
+**The World’s Leading Deepfake Expert No Longer Trusts His Own Eyes**\
+`In the age of A.I., Hany Farid is struggling to prove what’s real before the internet decides for itself.`\
+https://www.nytimes.com/2026/06/14/us/ai-deepfake-hany-farid.html
+
+**Kash Patel Keeps Suing the Press**\
+`The F.B.I. director, following a strategy from President Trump, has filed six defamation lawsuits against news media companies and commentators in nearly seven years.`\
+https://www.nytimes.com/2026/06/14/business/media/kash-patel-defamation-lawsuits.html
+
+**Flower Farms Are Emerging as Sought-After Wedding Venues**\
+`Flower farms are emerging as sought-after wedding venues, offering both a sustainable and photogenic backdrop.`\
+https://www.nytimes.com/2026/06/14/style/flower-farm-wedding-venues.html
+
+**Legal and Lobbying Costs Surge as Universities Face Trump Pressure**\
+`Some universities’ tax returns showed that their legal bills had more than doubled. Others reported that their spending on lobbying had risen at least fivefold.`\
+https://www.nytimes.com/2026/06/14/us/legal-lobbying-cost-university-college-trump.html
+
+**Medicare Enrollment 101: What You Need to Know**\
+`The federal health insurance program can be complicated. Here’s how to start, and where to find help.`\
+https://www.nytimes.com/2026/06/14/business/medicare-enrollment.html
+
+**Book Review: ‘Empire of Ink,’ by Alex Wright**\
+`In “Empire of Ink,” Alex Wright describes how newfangled technologies and disruptive personalities have regularly unsettled the American media.`\
+https://www.nytimes.com/2026/06/14/books/review/empire-of-ink-newspapers-alex-wright.html
+
+**Meet the Smallest Country Ever to Reach the World Cup**\
+`Competing for the first time, Curaçao is brimming with joy. Most of the Caribbean nation’s team was born and raised in the Netherlands, but residents say the players represent them.`\
+https://www.nytimes.com/2026/06/14/world/americas/world-cup-curacao-netherlands-soccer.html
+
+**A Graphic Novelist Captures the Lives of Vermont Lesbians Ahead of Their Time**\
+`Leaning on a rich written record, the graphic novelist Tillie Walden used nearby resources to visualize the true story of seamstresses who shared a home for decades.`\
+https://www.nytimes.com/2026/06/14/books/review/seeing-herself-in-the-lives-of-19th-century-vermont-lesbians.html
+
+**An Afghan Family Shattered by Trump’s Visa Ban**\
+`Over the past year, policies restricting people from 39 countries — including Afghanistan — from entering or living in the U.S. have cast countless lives into limbo. For one family, the consequences have been devastating.`\
+https://www.nytimes.com/video/world/middleeast/100000010876158/trump-visa-ban-tahiri-family-afghanistan.html
+
 **Los hongos subterráneos que sostienen la vida en la tierra**\
 `Mediante aprendizaje automático y un robot de imágenes de alta resolución, los científicos lograron medir y trazar el mapa de las enormes redes de hongos subterráneos que almacenan carbono.`\
 https://www.nytimes.com/es/2026/06/14/espanol/ciencia-y-tecnologia/redes-hongos-subterraneos.html
@@ -105,92 +193,4 @@ https://www.nytimes.com/2026/06/13/us/politics/yosemite-ranger-lawsuit-transgend
 **Limited Runs**\
 `John Kugelman says a lot with a little.`\
 https://www.nytimes.com/2026/06/13/crosswords/daily-puzzle-2026-06-14.html
-
-**Mystery Potato Hovering Over Colorado Is Reported in Latest U.F.O. Files**\
-`Potatoes have featured in sightings before, and in real and fictional space travel.`\
-https://www.nytimes.com/2026/06/13/us/mystery-potato-hovering-over-colorado-is-reported-in-latest-ufo-files.html
-
-**5 Children Are Killed After Van and S.U.V. Collide in Rural Ontario**\
-`The children — four girls and one boy — were among 10 people in the van at the time of the crash. An infant was seriously injured, the police said.`\
-https://www.nytimes.com/2026/06/13/world/canada/five-children-killed-crash-ontario-canada.html
-
-**At the Kennedy Center, a Name Change Shrouded in Uncertainty**\
-`President Trump’s name was removed from the arts institution’s facade overnight on Saturday. Many questions remain, including whether or not it stays off.`\
-https://www.nytimes.com/2026/06/13/us/politics/trump-kennedy-center-name.html
-
-**Threats, Free Speech and the Case Against U. of Michigan Activists**\
-`Prosecutors accused eight pro-Palestinian activists with ties to the university of conspiring to threaten campus leaders and others.`\
-https://www.nytimes.com/2026/06/13/us/pro-palestinian-university-michigan-activists.html
-
-**Trump’s Name Is Removed From Kennedy Center Facade**\
-`Workers removed President Trump’s name from the John F. Kennedy Center for the Performing Arts on Saturday following a judge’s order.`\
-https://www.nytimes.com/video/us/politics/100000010965495/trumps-name-is-removed-from-kennedy-center-facade.html
-
-**‘Witness’ Tree Outside Abraham Lincoln’s Former Home Irreparably Damaged**\
-`Storms damaged the American linden tree, which was alive when Lincoln lived at the home in Springfield, Ill. He left it in 1861 for the White House.`\
-https://www.nytimes.com/2026/06/13/us/abraham-lincoln-witness-tree-destroyed-storm.html
-
-**Dito van Reigersberg, Avant-Garde and Drag Virtuoso, Dies at 53**\
-`A co-founder of Pig Iron Theater Company, known for its surreal productions, he also gave energetic performances as his alter ego, Martha Graham Cracker.`\
-https://www.nytimes.com/2026/06/13/theater/dito-van-reigersberg-dead.html
-
-**James Talarico Plays Up Spurs’ Past Glory in Campaign Ad Aimed at Texas Voters**\
-`The Democratic candidate for Senate looked to gain crossover appeal with a spot emphasizing teamwork and his own experience as a teacher in San Antonio.`\
-https://www.nytimes.com/2026/06/13/us/politics/talarico-spurs-campaign-ad.html
-
-**The Young Streamers Who Are Trying to ‘Make It Big’ Off Knicks Mania**\
-`They’re flooding Midtown Manhattan to make content. They’re irritating some lifelong fans. But they see a one-of-a-kind opportunity to blow up online`\
-https://www.nytimes.com/2026/06/13/nyregion/knicks-nba-streamers-tiktok-twitch-kick.html
-
-**El gobierno de Trump dice que reanudará el procesamiento de solicitudes de asilo e inmigración**\
-`La respuesta se produjo después de que un juez federal reprendiera a los funcionarios por no cumplir de inmediato una orden dictada la semana pasada.`\
-https://www.nytimes.com/es/2026/06/13/espanol/estados-unidos/trump-reanudacion-asilo-migracion.html
-
-**Vandals Damage Work by Black Artist at Houston Museum, Officials Say**\
-`Two men scraped and punctured a $23,000 painting at the Houston Museum of African American Culture last month, the museum said. It decided to display the damaged artwork.`\
-https://www.nytimes.com/2026/06/13/arts/houston-museum-black-art-vandalized.html
-
-**EE. UU. y Venezuela afirman haber abatido a un líder del Tren de Aragua en una operación conjunta**\
-`Un ataque realizado esta semana en Venezuela acabó con la vida de un líder de la banda conocido como Niño Guerrero, quien era buscado en Estados Unidos, dijeron autoridades de ambos países.`\
-https://www.nytimes.com/es/2026/06/13/espanol/america-latina/trump-tren-aragua-nino-guerrero.html
-
-**WABC Anchor Bill Ritter Is Stepping Down After Alzheimer’s Diagnosis**\
-`The veteran journalist told viewers on Friday that it would be his last time anchoring the newscast, but that he was assuming a new role covering the disease he’s fighting.`\
-https://www.nytimes.com/2026/06/13/nyregion/bill-ritter-abc-news-alzheimers.html
-
-**What U.S. and Paraguay Fans Have in Common**\
-`At the first U.S. home World Cup match against Paraguay, the colors and the chants were loud in Los Angeles.`\
-https://www.nytimes.com/2026/06/13/style/us-paraguay-fans-world-cup-fashion.html
-
-**The Knicks Are the Hottest Ticket in Town. Hottest Jersey, Too.**\
-`Unless you’re a size 2X or 3X, you might be out of luck when you go looking for official N.B.A. merchandise in New York City.`\
-https://www.nytimes.com/2026/06/13/nyregion/knicks-jerseys-clothing.html
-
-**David Plowden, Who Photographed a Disappearing America, Dies at 93**\
-`With his haunting images of steam locomotives, steel mills and Midwestern farms, the celebrated lensman revealed the poetry in the artifacts of manual labor.`\
-https://www.nytimes.com/2026/06/13/arts/david-plowden-dead.html
-
-**How David Hockney Taught Los Angeles to See Itself**\
-`A Brit, he became a symbol of the city’s culture, stylish and alienating, with his vivid swimming pool paintings and embrace of SoCal light, hedonism and gay liberation.`\
-https://www.nytimes.com/2026/06/13/arts/design/david-hockney-los-angeles-pool-paintings.html
-
-**Only One President Could Come Up With This Spectacle**\
-`Trump has gone beyond kayfabe.`\
-https://www.nytimes.com/2026/06/13/opinion/trump-ufc-fight-freedom-250.html
-
-**A Dinner for People Who Like to Press on Things**\
-`Smashed chicken with corn and cabbage is super satisfying, both to make and to eat.`\
-https://www.nytimes.com/2026/06/13/dining/a-dinner-for-people-who-like-to-press-on-things.html
-
-**It Was 1973, and the Knicks Were Heading to Game 5 …**\
-`Lifelong fans reminisced on the team’s last championship win. “When the Knicks won, it was like a different New York City,” one said.`\
-https://www.nytimes.com/2026/06/13/style/knicks-nba-championship-final-1970s.html
-
-**Ben Mims Loves an Erewhon Brownie**\
-`A celebrated baker and cookbook author takes the Bake Time Questionnaire.`\
-https://www.nytimes.com/2026/06/13/dining/ben-mims-loves-an-erewhon-brownie.html
-
-**Jon Ossoff’s Anti-Authoritarian Playbook**\
-`The Opinion columnist Michelle Goldberg returned from a recent trip to Hungary with an appreciation for Senator Jon Ossoff’s playbook. Viktor Orban’s stunning defeat demonstrates the power of an anticorruption message, she argues, and Ossoff offers a model for Democrats.`\
-https://www.nytimes.com/video/opinion/100000010952666/jon-ossoffs-anti-authoritarian-playbook.html
 
