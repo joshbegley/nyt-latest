@@ -54,8 +54,8 @@ https://www.nytimes.com/es/2026/06/14/espanol/america-latina/curacao-mundial-mas
 `The Knicks turned New York City into a stage, where movement is a catalyst for untainted happiness.`\
 https://www.nytimes.com/2026/06/14/arts/dance/the-knicks-spontaneous-dancing.html
 
-**In Israel, Broad Discontent Over the Emerging U.S. Deal With Iran**\
-`Israelis across the political spectrum have said the deal appears to leave fundamental security threats posed by Iran unaddressed.`\
+**In Israel, Broad Discontent Even Before Deal’s Details Are Known**\
+`Israelis across the political spectrum have said the agreement appears to leave fundamental security threats posed by Iran unaddressed.`\
 https://www.nytimes.com/2026/06/14/world/middleeast/israel-us-iran-deal.html
 
 **12 Killed in Skydiving Plane Crash in Butler, Missouri**\
