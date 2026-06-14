@@ -1,3 +1,11 @@
+**Curaçao Is the Smallest Country Ever to Reach the World Cup**\
+`Competing for the first time, Curaçao is brimming with joy. Most of the Caribbean nation’s team was born and raised in the Netherlands, but residents say the players represent them.`\
+https://www.nytimes.com/2026/06/14/world/americas/world-cup-curacao-netherlands-soccer.html
+
+**Iran War Live Updates: Israel and Hezbollah Exchange Strikes, Complicating Possible Iran Peace Agreement**\
+`Israel’s military said it attacked the southern outskirts of Beirut, the Lebanese capital, after accusing Hezbollah, the Iran-backed armed group, of violating a cease-fire.`\
+https://www.nytimes.com/live/2026/06/14/world/iran-war-trump-us
+
 **Why I Love the Beautiful Game: Brandon Aubrey**\
 `Brandon Aubrey is an N.F.L. superstar. The other football is his first love.`\
 https://www.nytimes.com/2026/06/14/podcasts/why-i-love-the-beautiful-game-brandon-aubrey.html
