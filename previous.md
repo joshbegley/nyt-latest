@@ -43,7 +43,7 @@ https://www.nytimes.com/2026/06/14/books/jane-yolen-dead.html
 https://www.nytimes.com/2026/06/14/nyregion/knicks-nba-celebrations-msg-nyc-shooting.html
 
 **Bay Area Faces Flooding Amid Highest Summer Tide, Forecasters Warn**\
-`Water levels are expected to be high enough to challenge or exceed the current summer tide record of 1.7 feet, set in July 2022, forecasters said.`\
+`Water levels are expected to be high enough to challenge or exceed the current summer tide record of 1.7 feet above normal, set in July 2022, forecasters said.`\
 https://www.nytimes.com/2026/06/14/weather/bay-area-summer-high-tides.html
 
 **For the Best Strawberry Pie, Roast Those Berries**\

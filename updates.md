@@ -1,3 +1,7 @@
+**Bay Area Faces Flooding Amid Highest Summer Tide, Forecasters Warn**\
+`Water levels are expected to be high enough to challenge or exceed the current summer tide record of 1.7 feet above normal, set in July 2022, forecasters said.`\
+https://www.nytimes.com/2026/06/14/weather/bay-area-summer-high-tides.html
+
 **The Knicks Effect: Irresistible, Spontaneous Dancing**\
 `The Knicks turned New York City into a stage, where movement is a catalyst for untainted happiness.`\
 https://www.nytimes.com/2026/06/14/arts/dance/the-knicks-spontaneous-dancing.html
