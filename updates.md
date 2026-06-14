@@ -1,3 +1,7 @@
+**The Knicks Effect: Irresistible, Spontaneous Dancing**\
+`The Knicks turned New York City into a stage, where movement is a catalyst for untainted happiness.`\
+https://www.nytimes.com/2026/06/14/arts/dance/the-knicks-spontaneous-dancing.html
+
 **In Israel, Broad Discontent Over the Emerging U.S. Deal With Iran**\
 `Israelis across the political spectrum say the deal appears to leave fundamental security threats posed by Iran unaddressed.`\
 https://www.nytimes.com/2026/06/14/world/middleeast/israel-us-iran-deal.html
