@@ -138,7 +138,7 @@ https://www.nytimes.com/2026/06/14/business/medicare-enrollment.html
 `In “Empire of Ink,” Alex Wright describes how newfangled technologies and disruptive personalities have regularly unsettled the American media.`\
 https://www.nytimes.com/2026/06/14/books/review/empire-of-ink-newspapers-alex-wright.html
 
-**Meet the Smallest Country Ever to Reach the World Cup**\
+**Curaçao Is the Smallest Country Ever to Reach the World Cup**\
 `Competing for the first time, Curaçao is brimming with joy. Most of the Caribbean nation’s team was born and raised in the Netherlands, but residents say the players represent them.`\
 https://www.nytimes.com/2026/06/14/world/americas/world-cup-curacao-netherlands-soccer.html
 
@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/06/14/nyregion/knicks-championship-photos.html
 `Mayor Zohran Mamdani will present the team with the keys to the city. He said the parade will be the Knicks’ first in team history.`\
 https://www.nytimes.com/2026/06/14/nyregion/knicks-championship-parade.html
 
-**Iran War Live Updates: U.S. and Tehran Send Mixed Signals on Emerging Peace Agreement**\
-`President Trump said it would be signed on Sunday, but Iran’s Foreign Ministry cautioned that the timeline could be slower.`\
+**Iran War Live Updates: Israel and Hezbollah Exchange Strikes, Complicating Possible Iran Peace Agreement**\
+`Israel’s military said it attacked the southern outskirts of Beirut, the Lebanese capital, after accusing Hezbollah, the Iran-backed armed group, of violating a cease-fire.`\
 https://www.nytimes.com/live/2026/06/14/world/iran-war-trump-us
 
