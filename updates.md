@@ -1,3 +1,11 @@
+**Team Curaçao Arrives at the World Cup With Much of the Island in Tow.**\
+`Qualifying for the world’s biggest sporting event meant everything for residents of the Caribbean island country.`\
+https://www.nytimes.com/2026/06/14/us/team-curacao-world-cup-fans.html
+
+**‘Disclosure Day’ Ends Spielberg’s Summer Box Office Drought**\
+`Steven Spielberg’s original science-fiction movie collected an estimated $44 million in North America, giving the director his first new-to-the-screen summer hit in 24 years.`\
+https://www.nytimes.com/2026/06/14/business/media/disclosure-day-steven-spielberg-box-office.html
+
 **Fans Celebrate Knicks’ First N.B.A. Title in 53 Years**\
 `New York City erupted in celebration after the Knicks defeated the San Antonio Spurs in Game 5 of the N.B.A. finals to win their first championship since 1973.`\
 https://www.nytimes.com/video/sports/basketball/100000010966601/knicks-nba-championship-new-york.html
