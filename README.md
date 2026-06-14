@@ -1,3 +1,15 @@
+**In Israel, Broad Discontent Over the Emerging U.S. Deal With Iran**\
+`Israelis across the political spectrum say the deal appears to leave fundamental security threats posed by Iran unaddressed.`\
+https://www.nytimes.com/2026/06/14/world/middleeast/israel-us-iran-deal.html
+
+**12 Killed in Skydiving Plane Crash in Butler, Missouri**\
+`Eleven passengers and a pilot were killed shortly after takeoff near the Butler Memorial Airport in Missouri.`\
+https://www.nytimes.com/2026/06/14/us/skydiving-plane-crash-butler-missouri.html
+
+**Mitch McConnell Is Hospitalized, His Spokesman Says**\
+`No details were given about the 84-year-old former majority leader’s condition, but he has had a string of health issues in recent years.`\
+https://www.nytimes.com/2026/06/14/us/politics/mitch-mcconnell-hospitalized.html
+
 **Team Curaçao Arrives at the World Cup With Much of the Island in Tow.**\
 `Qualifying for the world’s biggest sporting event meant everything for residents of the Caribbean island country.`\
 https://www.nytimes.com/2026/06/14/us/team-curacao-world-cup-fans.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/14/science/world-cup-turf-sorochan.html
 **Deadlocked Wars: How Major Powers Misread the Regions They Attacked**\
 `Russia and the United States projected their own centralized views onto Ukraine and Iran, analysts said. As a result, the smaller countries trapped larger ones in a costly confrontation.`\
 https://www.nytimes.com/2026/06/14/world/europe/us-iran-rusisa-ukraine.html
-
-**How to Run a News Company in the Age of Polarization and A.I. Slop**\
-`Cesar Conde of NBCUniversal News thinks that the “pendulum will eventually swing back” to mainstream media brands.`\
-https://www.nytimes.com/2026/06/14/business/nbc-news-cesar-conde.html
-
-**How Utahns Took on Mr. Wonderful and a Data Center on the Great Salt Lake**\
-`Kevin O’Leary of “Shark Tank” fame hopes to build a sprawling data center on the parched shores of the Great Salt Lake. It has become a burning issue in Utah’s looming primaries.`\
-https://www.nytimes.com/2026/06/14/us/elections/kevin-oleary-utah-data-center.html
-
-**How We Brought an Art Gallery to Your Sunday Paper**\
-`A special section in this weekend’s newspaper invites readers to stare at a selection of works by Frida Kahlo, Hieronymus Bosch and others, uninterrupted.`\
-https://www.nytimes.com/2026/06/14/insider/10-minute-challenge-print-special-section.html
 
