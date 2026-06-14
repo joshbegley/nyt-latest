@@ -1,3 +1,7 @@
+**Trump Administration Reignites Its Feud With Anthropic Over Latest A.I. Models**\
+`The administration’s surprise restrictions Friday cut off foreign access to Anthropic’s latest models and sparked another round of finger pointing.`\
+https://www.nytimes.com/2026/06/13/us/politics/trump-anthropic-ai-models.html
+
 **State Attorneys General Are Investigating OpenAI**\
 `OpenAI said that a coalition of states had opened an investigation over a wide range of its practices, including its handing of user data, safety of minors and advertising activities.`\
 https://www.nytimes.com/2026/06/13/technology/states-investigating-openai.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/13/crosswords/wordle-review-1821.html
 **NYT Strands Hints for June 14, 2026**\
 `Scroll down for hints and conversation about the puzzle for Sunday, June 14, 2026.`\
 https://www.nytimes.com/2026/06/13/crosswords/strands-sidekick-833.html
-
-**An Honored Canadian Journalist on the Importance of Investigative Reporting**\
-`Our Times colleague Susanne Craig was back home in Canada to be honored for her extraordinary career, which began in Calgary, Alberta, her hometown.`\
-https://www.nytimes.com/2026/06/13/world/canada/investigative-journalism-susanne-craig-cjf-canada.html
 

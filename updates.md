@@ -1,3 +1,7 @@
+**Trump Administration Reignites Its Feud With Anthropic Over Latest A.I. Models**\
+`The administration’s surprise restrictions Friday cut off foreign access to Anthropic’s latest models and sparked another round of finger pointing.`\
+https://www.nytimes.com/2026/06/13/us/politics/trump-anthropic-ai-models.html
+
 **Live Updates: Knicks Fans Gather With Team on the Brink of Glory**\
 `After mounting the greatest comeback in N.B.A. finals history, the Knicks can win the title by defeating San Antonio tonight in Game 5. New Yorkers have waited 53 years for this moment.`\
 https://www.nytimes.com/live/2026/06/13/nyregion/nba-finals-knicks-spurs
