@@ -1,3 +1,7 @@
+**The Knicks as Religious Experience**\
+`Knicks fans are waking up from the hangover of a really good trip. One that, some said, let them see God.`\
+https://www.nytimes.com/2026/06/14/briefing/knicks-religion-brunson-new-york.html
+
 **Harissa Apricot Chicken, Done in 20 Minutes**\
 `The word “perfect” turns up a lot in the comments on this new spicy-sweet dish.`\
 https://www.nytimes.com/2026/06/14/dining/harissa-apricot-chicken-done-in-20-minutes.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/middleeast/100000010876158/trump-visa-ban-ta
 **Los hongos subterráneos que sostienen la vida en la tierra**\
 `Mediante aprendizaje automático y un robot de imágenes de alta resolución, los científicos lograron medir y trazar el mapa de las enormes redes de hongos subterráneos que almacenan carbono.`\
 https://www.nytimes.com/es/2026/06/14/espanol/ciencia-y-tecnologia/redes-hongos-subterraneos.html
-
-**‘Hacks’ y la defensa de las amistades con diferencia de edad**\
-`En una época en la que las relaciones sociales se han debilitado, según los expertos, entablar amistad con alguien mayor o menor ofrece ventajas únicas.`\
-https://www.nytimes.com/es/2026/06/14/espanol/cultura/hacks-amistades-diferencia-edad.html
 
