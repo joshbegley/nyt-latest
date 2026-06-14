@@ -1,3 +1,7 @@
+**Trump cumple 80 años: un presidente incómodo con envejecer**\
+`Incluso para un presidente conocido por imponer su propia realidad en cualquier situación, Trump no ha logrado escapar al escrutinio sobre su edad.`\
+https://www.nytimes.com/es/2026/06/14/espanol/estados-unidos/trump-cumpleanos-80.html
+
 **La investigadora que eligió no saber**\
 `Durante décadas trabajó para que existiese una prueba genética de la enfermedad de Huntington. ¿Por qué no se sometió a ella cuando la hubo?`\
 https://www.nytimes.com/es/2026/06/14/espanol/ciencia-y-tecnologia/huntington-enfermedad-genetica.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/nyregion/100000010966194/knicks-nba-championship.h
 **Intentaron atrapar a un depredador. En cambio, ellos resultaron atrapados**\
 `Esto es lo que pasó cuando unos justicieros que emiten sus actividades en vivo tendieron una trampa a un hombre inocente.`\
 https://www.nytimes.com/es/2026/06/14/espanol/negocios/vitaly-depredadores-kick-twitch.html
-
-**Trump at 80: A President ‘Really Uncomfortable’ With Aging**\
-`Even for a president known for imposing his own reality on every situation, Mr. Trump has not outrun scrutiny over his age.`\
-https://www.nytimes.com/2026/06/14/us/politics/trump-age-birthday-80.html
 

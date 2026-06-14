@@ -1,3 +1,7 @@
+**Trump cumple 80 años: un presidente incómodo con envejecer**\
+`Incluso para un presidente conocido por imponer su propia realidad en cualquier situación, Trump no ha logrado escapar al escrutinio sobre su edad.`\
+https://www.nytimes.com/es/2026/06/14/espanol/estados-unidos/trump-cumpleanos-80.html
+
 **La investigadora que eligió no saber**\
 `Durante décadas trabajó para que existiese una prueba genética de la enfermedad de Huntington. ¿Por qué no se sometió a ella cuando la hubo?`\
 https://www.nytimes.com/es/2026/06/14/espanol/ciencia-y-tecnologia/huntington-enfermedad-genetica.html
