@@ -1,3 +1,7 @@
+**New Yorkers Waited 53 Years for This. Time to Celebrate.**\
+`With a championship run for the ages, the Knicks awakened joy in a city desperate for a winner.`\
+https://www.nytimes.com/2026/06/14/nyregion/knicks-championship-photos.html
+
 **Knicks Will Get a Ticker-Tape Parade on Thursday**\
 `Mayor Zohran Mamdani will present the team with the keys to the city. He said the parade will be the Knicks’ first in team history.`\
 https://www.nytimes.com/2026/06/14/nyregion/knicks-championship-parade.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/13/opinion/usa-soccer-world-cup.html
 **The Spectacle of Trump at 80**\
 `An octogenarian president for a 250-year-old republic.`\
 https://www.nytimes.com/2026/06/13/opinion/trump-ufc-fight-freedom-250-birthday-80.html
-
-**How to Kick SpaceX Out of Your 401(k)**\
-`It is impossible to beat the stock market. But if you want to divest your retirement of Elon Musk-related companies, here is the best way to do so.`\
-https://www.nytimes.com/2026/06/13/opinion/spacex-stock-ipo-ai.html
 
