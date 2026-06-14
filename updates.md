@@ -1,3 +1,7 @@
+**The Knicks as Religious Experience**\
+`Knicks fans are waking up from the hangover of a really good trip. One that, some said, let them see God.`\
+https://www.nytimes.com/2026/06/14/briefing/knicks-religion-brunson-new-york.html
+
 **Harissa Apricot Chicken, Done in 20 Minutes**\
 `The word “perfect” turns up a lot in the comments on this new spicy-sweet dish.`\
 https://www.nytimes.com/2026/06/14/dining/harissa-apricot-chicken-done-in-20-minutes.html
