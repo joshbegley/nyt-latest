@@ -1,3 +1,7 @@
+**New Yorkers Waited 53 Years for This. Time to Celebrate.**\
+`With a championship run for the ages, the Knicks awakened joy in a city desperate for a winner.`\
+https://www.nytimes.com/2026/06/14/nyregion/knicks-championship-photos.html
+
 **Live Updates: Fans Swarm New York to Celebrate Knicks’ N.B.A. Title**\
 `Knicks fans shut down parts of New York City after their team defeated the San Antonio Spurs to win the N.B.A. championship for the first time since 1973.`\
 https://www.nytimes.com/live/2026/06/13/nyregion/nba-finals-knicks-spurs
