@@ -1,3 +1,7 @@
+**Voters Reject Anti-Islam Candidate in Mayoral Race in Dallas Suburb**\
+`The election for mayor of Frisco, Texas, became a referendum on diversity and a test of anti-Muslim messaging in a general election contest.`\
+https://www.nytimes.com/2026/06/13/us/frisco-texas-mayor-election-mark-hill.html
+
 **Live Updates: Anxious Knicks Fans Gather With Team Battling the Spurs**\
 `After mounting the greatest comeback in N.B.A. finals history, the Knicks can win the title by defeating San Antonio tonight in Game 5. New Yorkers have waited 53 years for this moment.`\
 https://www.nytimes.com/live/2026/06/13/nyregion/nba-finals-knicks-spurs

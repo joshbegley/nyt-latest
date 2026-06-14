@@ -1,3 +1,7 @@
+**Voters Reject Anti-Islam Candidate in Mayoral Race in Dallas Suburb**\
+`The election for mayor of Frisco, Texas, became a referendum on diversity and a test of anti-Muslim messaging in a general election contest.`\
+https://www.nytimes.com/2026/06/13/us/frisco-texas-mayor-election-mark-hill.html
+
 **Trump Administration Reignites Its Feud With Anthropic Over Latest A.I. Models**\
 `The administration’s surprise restrictions Friday cut off foreign access to Anthropic’s latest models and sparked another round of finger pointing.`\
 https://www.nytimes.com/2026/06/13/us/politics/trump-anthropic-ai-models.html
@@ -138,13 +142,13 @@ https://www.nytimes.com/2026/06/13/opinion/epstein-trump-white-house.html
 `Steven Spielberg’s ‘Disclosure Day’ and the God-and-aliens debate.`\
 https://www.nytimes.com/2026/06/13/opinion/disclosure-day-ufo-religion.html
 
-**Detroit Is the Last City That Knows How to Dance**\
-`Dance floors are flooded with selfies and poseurs. But in one city, it’s still a place to feel free.`\
-https://www.nytimes.com/2026/06/13/opinion/detroit-dance-floor-music-dj.html
-
 **The U.S. Is the Future of Soccer, for Better or Worse**\
 `Thanks to immigrants and the internet, Americans gained entry to a universe beyond our borders.`\
 https://www.nytimes.com/2026/06/13/opinion/usa-soccer-world-cup.html
+
+**Detroit Is the Last City That Knows How to Dance**\
+`Dance floors are flooded with selfies and poseurs. But in one city, it’s still a place to feel free.`\
+https://www.nytimes.com/2026/06/13/opinion/detroit-dance-floor-music-dj.html
 
 **The Spectacle of Trump at 80**\
 `An octogenarian president for a 250-year-old republic.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/13/crosswords/connections-companion-1099.html
 **Today’s Wordle Hints for June 14, 2026**\
 `Scroll down for hints and conversation about the puzzle for Sunday, June 14, 2026.`\
 https://www.nytimes.com/2026/06/13/crosswords/wordle-review-1821.html
-
-**NYT Strands Hints for June 14, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, June 14, 2026.`\
-https://www.nytimes.com/2026/06/13/crosswords/strands-sidekick-833.html
 
