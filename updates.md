@@ -1,3 +1,11 @@
+**The Party Was Epic. The Aftermath Was Intense.**\
+`Across the city, Knicks fans celebrated joyfully after Game Five. But near Madison Square Garden, the scene turned ugly early Sunday as some revelers became violent.`\
+https://www.nytimes.com/2026/06/14/nyregion/knicks-celebration-violence-midtown.html
+
+**War and the World Cup**\
+`The Iranian government has always used the national team to project soft power. That puts players and fans who oppose the regime in a tough spot.`\
+https://www.nytimes.com/2026/06/14/world/world-cup-iran-lebanon-trump-birthday.html
+
 **What to Know About the Ticker-Tape Parade for the Knicks**\
 `A parade up Broadway to City Hall on Thursday will celebrate the team’s N.B.A. championship win, and Mayor Zohran Mamdani will present players with keys to the city.`\
 https://www.nytimes.com/2026/06/14/nyregion/knicks-parade-nyc-what-to-know.html
