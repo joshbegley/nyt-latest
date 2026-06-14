@@ -1,3 +1,11 @@
+**Switzerland Rejects Measure to Cap Population at 10 Million, Projections Show**\
+`The referendum was about limiting migration after the number of residents rose by more than a quarter since 2000, but it was framed around affordability and sustainability.`\
+https://www.nytimes.com/2026/06/14/world/europe/switzerland-population-cap-referendum.html
+
+**For His 80th Birthday, Trump Brings the Fight to the White House Lawn**\
+`Presidential historians say the U.F.C. event, which was estimated to cost more than $60 million, is unprecedented.`\
+https://www.nytimes.com/2026/06/14/us/ufc-trump-white-house.html
+
 **He Made ‘Heathcliff’ Absurd**\
 `Peter Gallagher’s spin on a comic strip staple has found a passionate audience away from the funny pages.`\
 https://www.nytimes.com/2026/06/14/style/heathcliff-comic-strip-new-fans.html

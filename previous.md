@@ -1,3 +1,11 @@
+**Switzerland Rejects Measure to Cap Population at 10 Million, Projections Show**\
+`The referendum was about limiting migration after the number of residents rose by more than a quarter since 2000, but it was framed around affordability and sustainability.`\
+https://www.nytimes.com/2026/06/14/world/europe/switzerland-population-cap-referendum.html
+
+**For His 80th Birthday, Trump Brings the Fight to the White House Lawn**\
+`Presidential historians say the U.F.C. event, which was estimated to cost more than $60 million, is unprecedented.`\
+https://www.nytimes.com/2026/06/14/us/ufc-trump-white-house.html
+
 **He Made ‘Heathcliff’ Absurd**\
 `Peter Gallagher’s spin on a comic strip staple has found a passionate audience away from the funny pages.`\
 https://www.nytimes.com/2026/06/14/style/heathcliff-comic-strip-new-fans.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/14/nyregion/times-square-red-lobster.html
 **‘He Offered to Take Me to Get the Best Hamburger in the City’**\
 `Catching a glimpse of an elusive bird, the sax player’s tune and more reader tales of New York City in this week’s Metropolitan Diary.`\
 https://www.nytimes.com/2026/06/14/nyregion/metropolitan-diary.html
-
-**NYT Spelling Bee Answers for June 14, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/06/14/crosswords/spelling-bee-forum.html
-
-**‘A Lifetime Dream’: Knicks Fans Celebrate From New York City to Texas**\
-`Dancing in the East Village. Flooding San Antonio with Knicks’ orange and blue. Crying at Madison Square Garden. The first N.B.A. championship in decades had fans in a frenzy.`\
-https://www.nytimes.com/2026/06/14/nyregion/knicks-championship-celebrations.html
 
