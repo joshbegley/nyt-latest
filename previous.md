@@ -42,7 +42,7 @@ https://www.nytimes.com/live/2026/06/14/world/iran-war-trump-us
 `Swift es la mujer más joven en recibir este reconocimiento. Entre los nuevos miembros de este año también se encontraban Gene Simmons y Paul Stanley de Kiss, y Alanis Morissette.`\
 https://www.nytimes.com/es/2026/06/14/espanol/cultura/taylor-swift-salon-fama-compositores.html
 
-**Trump Is 80. Bob Dylan and Five More Octogenarians Have Some Words of Wisdom.**\
+**Bob Dylan and Liza Minnelli Already Turned 80. They Have Thoughts for Trump.**\
 `“I feel the same as I did 50 years ago,” President Trump said. “It’s crazy.”`\
 https://www.nytimes.com/2026/06/14/opinion/trump-turns-80.html
 
