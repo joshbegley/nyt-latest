@@ -1,3 +1,11 @@
+**Trump pierde terreno entre la clase trabajadora blanca**\
+`Un análisis de los datos de las encuestas muestra un cambio extraordinario entre los votantes blancos de clase trabajadora respecto a la gestión económica del presidente.`\
+https://www.nytimes.com/es/2026/06/14/espanol/estados-unidos/trump-aprobacion-encuestas.html
+
+**Trump’s U.F.C. Event Comes as Backing of Young Men, Once a Strength, Wanes**\
+`Some Republicans see a political opening in Sunday’s fights at the White House. Democrats say they see a distraction from more pressing matters.`\
+https://www.nytimes.com/2026/06/14/us/politics/trump-ufc-politics-midterms.html
+
 **California Sues to Stop One County’s Ban on Most Mail Voting**\
 `Shasta County voters had approved a ballot measure that would have heavily restricted voting by mail and imposed photo ID requirements. State officials said the new rules were illegal.`\
 https://www.nytimes.com/2026/06/14/us/california-lawsuit-mail-voting.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/podcasts/the-daily/100000010961486/do-aliens-exist
 **The Tiny Solar Panel That Could Change America**\
 `I hope balcony solar’s charisma and low cost help us imagine the energy-abundant future we are so close to achieving.`\
 https://www.nytimes.com/2026/06/14/opinion/solar-panels-balcony-backyard-plugin.html
-
-**NYT Connections Answers for June 15, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, June 15, 2026.`\
-https://www.nytimes.com/2026/06/14/crosswords/connections-companion-1100.html
-
-**NYT Strands Hints for June 15, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, June 15, 2026.`\
-https://www.nytimes.com/2026/06/14/crosswords/strands-sidekick-834.html
 

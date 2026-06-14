@@ -1,3 +1,7 @@
+**In Israel, Broad Discontent Even Before Deal’s Details Are Known**\
+`Israelis across the political spectrum have said the agreement appears to leave fundamental security threats posed by Iran unaddressed.`\
+https://www.nytimes.com/2026/06/14/world/middleeast/israel-us-iran-deal.html
+
 **California Sues to Stop One County’s Ban on Most Mail Voting**\
 `Shasta County voters had approved a ballot measure that would have heavily restricted voting by mail and imposed photo ID requirements. State officials said the new rules were illegal.`\
 https://www.nytimes.com/2026/06/14/us/california-lawsuit-mail-voting.html
