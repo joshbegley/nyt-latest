@@ -1,3 +1,7 @@
+**Knicks Will Get a Ticker-Tape Parade on Thursday**\
+`Mayor Zohran Mamdani will present the team with the keys to the city. He said the parade will be the Knicks’ first in team history.`\
+https://www.nytimes.com/2026/06/14/nyregion/knicks-championship-parade.html
+
 **Iran War Live Updates: U.S. and Tehran Send Mixed Signals on Emerging Peace Agreement**\
 `President Trump said it would be signed on Sunday, but Iran’s Foreign Ministry cautioned that the timeline could be slower.`\
 https://www.nytimes.com/live/2026/06/14/world/iran-war-trump-us
