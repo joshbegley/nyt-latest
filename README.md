@@ -1,3 +1,7 @@
+**Trump Owns Shares in Company Hosting U.F.C. Bout as Part of His Vast Holdings**\
+`The Trump Organization says the president has no control over his stock positions, including that of TKO Group, which runs the Ultimate Fighting Championship.`\
+https://www.nytimes.com/2026/06/14/us/politics/trump-ufc-tko-group.html
+
 **Jane Yolen, Whose Books for Children Drew on Everyday Life, Dies at 87**\
 `She wrote some 450 books, including novels, poetry and nonfiction in many genres. One critic called her “a modern equivalent to Aesop.”`\
 https://www.nytimes.com/2026/06/14/books/jane-yolen-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/14/style/flower-farm-wedding-venues.html
 **Legal and Lobbying Costs Surge as Universities Face Trump Pressure**\
 `Some universities’ tax returns showed that their legal bills had more than doubled. Others reported that their spending on lobbying had risen at least fivefold.`\
 https://www.nytimes.com/2026/06/14/us/legal-lobbying-cost-university-college-trump.html
-
-**Medicare Enrollment 101: What You Need to Know**\
-`The federal health insurance program can be complicated. Here’s how to start, and where to find help.`\
-https://www.nytimes.com/2026/06/14/business/medicare-enrollment.html
 
