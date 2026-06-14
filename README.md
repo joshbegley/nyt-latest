@@ -1,3 +1,7 @@
+**The Knicks Effect: Irresistible, Spontaneous Dancing**\
+`The Knicks turned New York City into a stage, where movement is a catalyst for untainted happiness.`\
+https://www.nytimes.com/2026/06/14/arts/dance/the-knicks-spontaneous-dancing.html
+
 **In Israel, Broad Discontent Over the Emerging U.S. Deal With Iran**\
 `Israelis across the political spectrum say the deal appears to leave fundamental security threats posed by Iran unaddressed.`\
 https://www.nytimes.com/2026/06/14/world/middleeast/israel-us-iran-deal.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/14/world/europe/g7-summit-evian-trump.html
 **The Secrets of a Soccer-Turf Master**\
 `John Sorochan, a turf scientist at the University of Tennessee, has led the yearslong, multimillion-dollar effort to develop perfect playing fields for the 2026 World Cup.`\
 https://www.nytimes.com/2026/06/14/science/world-cup-turf-sorochan.html
-
-**Deadlocked Wars: How Major Powers Misread the Regions They Attacked**\
-`Russia and the United States projected their own centralized views onto Ukraine and Iran, analysts said. As a result, the smaller countries trapped larger ones in a costly confrontation.`\
-https://www.nytimes.com/2026/06/14/world/europe/us-iran-rusisa-ukraine.html
 
