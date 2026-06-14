@@ -1,3 +1,11 @@
+**The Party Was Epic. The Aftermath Was Intense.**\
+`Across the city, Knicks fans celebrated joyfully after Game Five. But near Madison Square Garden, the scene turned ugly early Sunday as some revelers became violent.`\
+https://www.nytimes.com/2026/06/14/nyregion/knicks-celebration-violence-midtown.html
+
+**War and the World Cup**\
+`The Iranian government has always used the national team to project soft power. That puts players and fans who oppose the regime in a tough spot.`\
+https://www.nytimes.com/2026/06/14/world/world-cup-iran-lebanon-trump-birthday.html
+
 **What to Know About the Ticker-Tape Parade for the Knicks**\
 `A parade up Broadway to City Hall on Thursday will celebrate the team’s N.B.A. championship win, and Mayor Zohran Mamdani will present players with keys to the city.`\
 https://www.nytimes.com/2026/06/14/nyregion/knicks-parade-nyc-what-to-know.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/14/us/politics/trump-age-birthday-80.html
 **Merger Cleared, David Ellison to Join Trump at U.F.C. Bouts**\
 `A U.F.C. fight on President Trump’s birthday will now double as a capstone for Paramount’s successful effort to secure Justice Department approval for a mega media merger.`\
 https://www.nytimes.com/2026/06/14/business/media/trump-ufc-david-ellison.html
-
-**No Corrections: June 14, 2026**\
-`No corrections appeared in print on Sunday, June 14, 2026.`\
-https://www.nytimes.com/2026/06/14/pageoneplus/no-corrections-june-14-2026.html
-
-**How Trump and the U.F.C. Transformed the White House Lawn for a Fight**\
-`See the towering, 600-ton claw-like superstructure and venue for the U.F.C. fight.`\
-https://www.nytimes.com/interactive/2026/06/14/us/politics/trump-white-house-claw-ufc-fight.html
 
