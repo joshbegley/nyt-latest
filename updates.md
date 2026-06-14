@@ -1,3 +1,7 @@
+**President Trump Endorses Mike Collins in Georgia Senate Runoff**\
+`Mr. Trump backed Mr. Collins over Derek Dooley, a former football coach who is supported by Gov. Brian Kemp, a Republican whose relationship with the president is strained.`\
+https://www.nytimes.com/2026/06/14/us/politics/trump-mike-collins-georgia-senate-runoff.html
+
 **New Yorkers Waited 53 Years for This. Time to Celebrate.**\
 `With a championship run for the ages, the Knicks awakened joy in a city desperate for a winner.`\
 https://www.nytimes.com/2026/06/14/nyregion/knicks-championship-photos.html
