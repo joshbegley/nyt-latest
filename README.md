@@ -1,3 +1,7 @@
+**‘A Lifetime Dream’: Knicks Fans Celebrate from New York City to Texas**\
+`Dancing in the East Village. Flooding San Antonio with Knicks’ orange and blue. Crying at Madison Square Garden. The first N.B.A. championship in decades had fans in a frenzy.`\
+https://www.nytimes.com/2026/06/14/nyregion/knicks-championship-celebrations.html
+
 **President Trump Endorses Mike Collins in Georgia Senate Runoff**\
 `Mr. Trump backed Mr. Collins over Derek Dooley, a former football coach who is supported by Gov. Brian Kemp, a Republican whose relationship with the president is strained.`\
 https://www.nytimes.com/2026/06/14/us/politics/trump-mike-collins-georgia-senate-runoff.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/13/opinion/disclosure-day-ufo-religion.html
 **Detroit Is the Last City That Knows How to Dance**\
 `Dance floors are flooded with selfies and poseurs. But in one city, it’s still a place to feel free.`\
 https://www.nytimes.com/2026/06/13/opinion/detroit-dance-floor-music-dj.html
-
-**The U.S. Is the Future of Soccer, for Better or Worse**\
-`Thanks to immigrants and the internet, Americans gained entry to a universe beyond our borders.`\
-https://www.nytimes.com/2026/06/13/opinion/usa-soccer-world-cup.html
 
