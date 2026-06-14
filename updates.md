@@ -1,3 +1,7 @@
+**Why I Love the Beautiful Game: Brandon Aubrey**\
+`Brandon Aubrey is an N.F.L. superstar. The other football is his first love.`\
+https://www.nytimes.com/2026/06/14/podcasts/why-i-love-the-beautiful-game-brandon-aubrey.html
+
 **MAGA’s French Connection**\
 `Christian nationalism has dark forebears.`\
 https://www.nytimes.com/2026/06/14/opinion/christian-nationalism-maga-france.html

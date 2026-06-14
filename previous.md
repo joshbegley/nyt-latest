@@ -1,3 +1,7 @@
+**Why I Love the Beautiful Game: Brandon Aubrey**\
+`Brandon Aubrey is an N.F.L. superstar. The other football is his first love.`\
+https://www.nytimes.com/2026/06/14/podcasts/why-i-love-the-beautiful-game-brandon-aubrey.html
+
 **MAGA’s French Connection**\
 `Christian nationalism has dark forebears.`\
 https://www.nytimes.com/2026/06/14/opinion/christian-nationalism-maga-france.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/14/nyregion/knicks-championship-parade.html
 **Iran War Live Updates: U.S. and Tehran Send Mixed Signals on Emerging Peace Agreement**\
 `President Trump said it would be signed on Sunday, but Iran’s Foreign Ministry cautioned that the timeline could be slower.`\
 https://www.nytimes.com/live/2026/06/14/world/iran-war-trump-us
-
-**Taylor Swift entra en el Salón de la Fama de los Compositores con lágrimas, bromas y una advertencia**\
-`Swift es la mujer más joven en recibir este reconocimiento. Entre los nuevos miembros de este año también se encontraban Gene Simmons y Paul Stanley de Kiss, y Alanis Morissette.`\
-https://www.nytimes.com/es/2026/06/14/espanol/cultura/taylor-swift-salon-fama-compositores.html
 
