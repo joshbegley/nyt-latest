@@ -1,3 +1,7 @@
+**Trump Says Peace Deal Will Be Signed Sunday, but Iran Disputes Timeline**\
+`An Iranian foreign ministry official sought to temper expectations, saying there were no plans for a Sunday signing and an agreement could be inked in the coming days.`\
+https://www.nytimes.com/live/2026/06/13/world/iran-war-trump-us-israel
+
 **Japan Is Running Out of Royals. Are More Men the Answer?**\
 `Japan’s legislature is drafting a plan to allow the imperial family to adopt distant male relatives. But some in Japan would prefer a female emperor.`\
 https://www.nytimes.com/2026/06/14/world/asia/japan-royal-family-adoption-male.html
