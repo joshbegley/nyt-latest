@@ -130,7 +130,7 @@ https://www.nytimes.com/es/2026/06/14/espanol/negocios/vitaly-depredadores-kick-
 `Even for a president known for imposing his own reality on every situation, Mr. Trump has not outrun scrutiny over his age.`\
 https://www.nytimes.com/2026/06/14/us/politics/trump-age-birthday-80.html
 
-**Merger Cleared, David Ellison to Join Trump at U.F.C. Bout**\
+**Merger Cleared, David Ellison to Join Trump at U.F.C. Bouts**\
 `A U.F.C. fight on President Trump’s birthday will now double as a capstone for Paramount’s successful effort to secure Justice Department approval for a mega media merger.`\
 https://www.nytimes.com/2026/06/14/business/media/trump-ufc-david-ellison.html
 
