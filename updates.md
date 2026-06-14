@@ -1,3 +1,91 @@
+**Intentaron atrapar a un depredador. En cambio, ellos resultaron atrapados**\
+`Esto es lo que pasó cuando unos justicieros que emiten sus actividades en vivo tendieron una trampa a un hombre inocente.`\
+https://www.nytimes.com/es/2026/06/14/espanol/negocios/vitaly-depredadores-kick-twitch.html
+
+**Trump at 80: A President ‘Really Uncomfortable’ With Aging**\
+`Even for a president known for imposing his own reality on every situation, Mr. Trump has not outrun scrutiny over his age.`\
+https://www.nytimes.com/2026/06/14/us/politics/trump-age-birthday-80.html
+
+**Merger Cleared, David Ellison to Join Trump at U.F.C. Bout**\
+`A U.F.C. fight on President Trump’s birthday will now double as a capstone for Paramount’s successful effort to secure Justice Department approval for a mega media merger.`\
+https://www.nytimes.com/2026/06/14/business/media/trump-ufc-david-ellison.html
+
+**No Corrections: June 14, 2026**\
+`No corrections appeared in print on Sunday, June 14, 2026.`\
+https://www.nytimes.com/2026/06/14/pageoneplus/no-corrections-june-14-2026.html
+
+**How Trump and the U.F.C. Transformed the White House Lawn for a Fight**\
+`See the towering, 600-ton claw-like superstructure and venue for the U.F.C. fight.`\
+https://www.nytimes.com/interactive/2026/06/14/us/politics/trump-white-house-claw-ufc-fight.html
+
+**Coming to a Blood Donation Center Near You: the Chicago Symphony**\
+`When the medical technology company Abbott developed mixed-reality games, it got one of the world’s great orchestras to record the soundtracks.`\
+https://www.nytimes.com/2026/06/14/arts/music/chicago-symphony-blood-donation.html
+
+**How Redistricting Pit Wasserman Schultz Against Black Democrats in Florida**\
+`Four candidates running in a historically Black district risk dividing the Black vote and losing to Ms. Wasserman Schultz, who is white.`\
+https://www.nytimes.com/2026/06/14/us/politics/redistricting-black-democrats-debbie-wasserman-schultz-florida.html
+
+**The G7 Summit Is Dogged by Chaos and Divided by Trump**\
+`Group of 7 meetings once embodied the effort to sustain the global diplomatic order. This year’s gathering, starting on Monday, symbolizes its fragmentation.`\
+https://www.nytimes.com/2026/06/14/world/europe/g7-summit-evian-trump.html
+
+**The Secrets of a Soccer-Turf Master**\
+`John Sorochan, a turf scientist at the University of Tennessee, has led the yearslong, multimillion-dollar effort to develop perfect playing fields for the 2026 World Cup.`\
+https://www.nytimes.com/2026/06/14/science/world-cup-turf-sorochan.html
+
+**Deadlocked Wars: How Major Powers Misread the Regions They Attacked**\
+`Russia and the United States projected their own centralized views onto Ukraine and Iran, analysts said. As a result, the smaller countries trapped larger ones in a costly confrontation.`\
+https://www.nytimes.com/2026/06/14/world/europe/us-iran-rusisa-ukraine.html
+
+**How to Run a News Company in the Age of Polarization and A.I. Slop**\
+`Cesar Conde of NBCUniversal News thinks that the “pendulum will eventually swing back” to mainstream media brands.`\
+https://www.nytimes.com/2026/06/14/business/nbc-news-cesar-conde.html
+
+**How Utahns Took on Mr. Wonderful and a Data Center on the Great Salt Lake**\
+`Kevin O’Leary of “Shark Tank” fame hopes to build a sprawling data center on the parched shores of the Great Salt Lake. It has become a burning issue in Utah’s looming primaries.`\
+https://www.nytimes.com/2026/06/14/us/elections/kevin-oleary-utah-data-center.html
+
+**How We Brought an Art Gallery to Your Sunday Paper**\
+`A special section in this weekend’s newspaper invites readers to stare at a selection of works by Frida Kahlo, Hieronymus Bosch and others, uninterrupted.`\
+https://www.nytimes.com/2026/06/14/insider/10-minute-challenge-print-special-section.html
+
+**The World’s Leading Deepfake Expert No Longer Trusts His Own Eyes**\
+`In the age of A.I., Hany Farid is struggling to prove what’s real before the internet decides for itself.`\
+https://www.nytimes.com/2026/06/14/us/ai-deepfake-hany-farid.html
+
+**Kash Patel Keeps Suing the Press**\
+`The F.B.I. director, following a strategy from President Trump, has filed six defamation lawsuits against news media companies and commentators in nearly seven years.`\
+https://www.nytimes.com/2026/06/14/business/media/kash-patel-defamation-lawsuits.html
+
+**Flower Farms Are Emerging as Sought-After Wedding Venues**\
+`Flower farms are emerging as sought-after wedding venues, offering both a sustainable and photogenic backdrop.`\
+https://www.nytimes.com/2026/06/14/style/flower-farm-wedding-venues.html
+
+**Legal and Lobbying Costs Surge as Universities Face Trump Pressure**\
+`Some universities’ tax returns showed that their legal bills had more than doubled. Others reported that their spending on lobbying had risen at least fivefold.`\
+https://www.nytimes.com/2026/06/14/us/legal-lobbying-cost-university-college-trump.html
+
+**Medicare Enrollment 101: What You Need to Know**\
+`The federal health insurance program can be complicated. Here’s how to start, and where to find help.`\
+https://www.nytimes.com/2026/06/14/business/medicare-enrollment.html
+
+**Book Review: ‘Empire of Ink,’ by Alex Wright**\
+`In “Empire of Ink,” Alex Wright describes how newfangled technologies and disruptive personalities have regularly unsettled the American media.`\
+https://www.nytimes.com/2026/06/14/books/review/empire-of-ink-newspapers-alex-wright.html
+
+**Meet the Smallest Country Ever to Reach the World Cup**\
+`Competing for the first time, Curaçao is brimming with joy. Most of the Caribbean nation’s team was born and raised in the Netherlands, but residents say the players represent them.`\
+https://www.nytimes.com/2026/06/14/world/americas/world-cup-curacao-netherlands-soccer.html
+
+**A Graphic Novelist Captures the Lives of Vermont Lesbians Ahead of Their Time**\
+`Leaning on a rich written record, the graphic novelist Tillie Walden used nearby resources to visualize the true story of seamstresses who shared a home for decades.`\
+https://www.nytimes.com/2026/06/14/books/review/seeing-herself-in-the-lives-of-19th-century-vermont-lesbians.html
+
+**An Afghan Family Shattered by Trump’s Visa Ban**\
+`Over the past year, policies restricting people from 39 countries — including Afghanistan — from entering or living in the U.S. have cast countless lives into limbo. For one family, the consequences have been devastating.`\
+https://www.nytimes.com/video/world/middleeast/100000010876158/trump-visa-ban-tahiri-family-afghanistan.html
+
 **Los hongos subterráneos que sostienen la vida en la tierra**\
 `Mediante aprendizaje automático y un robot de imágenes de alta resolución, los científicos lograron medir y trazar el mapa de las enormes redes de hongos subterráneos que almacenan carbono.`\
 https://www.nytimes.com/es/2026/06/14/espanol/ciencia-y-tecnologia/redes-hongos-subterraneos.html

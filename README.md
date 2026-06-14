@@ -1,3 +1,7 @@
+**Fans Celebrate Knicks’ First N.B.A. Title in 53 Years**\
+`New York City erupted in celebration after the Knicks defeated the San Antonio Spurs in Game 5 of the N.B.A. finals to win their first championship since 1973.`\
+https://www.nytimes.com/video/nyregion/100000010966194/knicks-nba-championship.html
+
 **Intentaron atrapar a un depredador. En cambio, ellos resultaron atrapados**\
 `Esto es lo que pasó cuando unos justicieros que emiten sus actividades en vivo tendieron una trampa a un hombre inocente.`\
 https://www.nytimes.com/es/2026/06/14/espanol/negocios/vitaly-depredadores-kick-twitch.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/13/world/americas/top-haitian-security-official-
 **Yosemite Ranger’s Suit Over Trans Flag at El Capitan Is Dismissed**\
 `The ranger, who was fired after hanging the flag, sued the government on free speech grounds. On Friday, a judge dismissed the case, saying the court lacked the authority to rule.`\
 https://www.nytimes.com/2026/06/13/us/politics/yosemite-ranger-lawsuit-transgender-flag-judge-ruling.html
-
-**Limited Runs**\
-`John Kugelman says a lot with a little.`\
-https://www.nytimes.com/2026/06/13/crosswords/daily-puzzle-2026-06-14.html
 
