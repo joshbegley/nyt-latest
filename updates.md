@@ -1,3 +1,7 @@
+**Live Updates: Knicks Fans Erupt in Celebration Over N.B.A. Championship**\
+`The New York Knicks defeated San Antonio in Game 5 of the N.B.A. finals to win their first title since 1973. New Yorkers had waited more than a half century for the moment.`\
+https://www.nytimes.com/live/2026/06/13/nyregion/nba-finals-knicks-spurs
+
 **Voters Reject Anti-Islam Candidate in Mayoral Race in Dallas Suburb**\
 `The election for mayor of Frisco, Texas, became a referendum on diversity and a test of anti-Muslim messaging in a general election contest.`\
 https://www.nytimes.com/2026/06/13/us/frisco-texas-mayor-election-mark-hill.html
