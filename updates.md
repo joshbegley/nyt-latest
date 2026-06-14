@@ -1,3 +1,7 @@
+**Jane Yolen, Whose Books for Children Drew on Everyday Life, Dies at 87**\
+`She wrote some 450 books, including novels, poetry and nonfiction in many genres. One critic called her “a modern equivalent to Aesop.”`\
+https://www.nytimes.com/2026/06/14/books/jane-yolen-dead.html
+
 **Merger Cleared, David Ellison to Join Trump at U.F.C. Bouts**\
 `A U.F.C. fight on President Trump’s birthday will now double as a capstone for Paramount’s successful effort to secure Justice Department approval for a mega media merger.`\
 https://www.nytimes.com/2026/06/14/business/media/trump-ufc-david-ellison.html
