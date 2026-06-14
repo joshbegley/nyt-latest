@@ -1,3 +1,11 @@
+**Trump pierde terreno entre la clase trabajadora blanca**\
+`Un análisis de los datos de las encuestas muestra un cambio extraordinario entre los votantes blancos de clase trabajadora respecto a la gestión económica del presidente.`\
+https://www.nytimes.com/es/2026/06/14/espanol/estados-unidos/trump-aprobacion-encuestas.html
+
+**Trump’s U.F.C. Event Comes as Backing of Young Men, Once a Strength, Wanes**\
+`Some Republicans see a political opening in Sunday’s fights at the White House. Democrats say they see a distraction from more pressing matters.`\
+https://www.nytimes.com/2026/06/14/us/politics/trump-ufc-politics-midterms.html
+
 **In Israel, Broad Discontent Even Before Deal’s Details Are Known**\
 `Israelis across the political spectrum have said the agreement appears to leave fundamental security threats posed by Iran unaddressed.`\
 https://www.nytimes.com/2026/06/14/world/middleeast/israel-us-iran-deal.html
