@@ -1,3 +1,7 @@
+**1 Teen Shot and 4 People Stabbed Near MSG During Knicks Celebration**\
+`More than a dozen people were also arrested, and several school buses were set on fire after the New York Knicks defeated the San Antonio Spurs in Game 5 of the N.B.A. finals.`\
+https://www.nytimes.com/2026/06/14/nyregion/knicks-nba-celebrations-msg-nyc-shooting.html
+
 **Bay Area Faces Flooding Amid Highest Summer Tide, Forecasters Warn**\
 `Water levels are expected to be high enough to challenge or exceed the current summer tide record of 1.7 feet, set in July 2022, forecasters said.`\
 https://www.nytimes.com/2026/06/14/weather/bay-area-summer-high-tides.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/14/business/medicare-enrollment.html
 **Book Review: ‘Empire of Ink,’ by Alex Wright**\
 `In “Empire of Ink,” Alex Wright describes how newfangled technologies and disruptive personalities have regularly unsettled the American media.`\
 https://www.nytimes.com/2026/06/14/books/review/empire-of-ink-newspapers-alex-wright.html
-
-**Curaçao Is the Smallest Country Ever to Reach the World Cup**\
-`Competing for the first time, Curaçao is brimming with joy. Most of the Caribbean nation’s team was born and raised in the Netherlands, but residents say the players represent them.`\
-https://www.nytimes.com/2026/06/14/world/americas/world-cup-curacao-netherlands-soccer.html
 
