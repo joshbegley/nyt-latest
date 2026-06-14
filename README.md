@@ -1,3 +1,19 @@
+**Harissa Apricot Chicken, Done in 20 Minutes**\
+`The word “perfect” turns up a lot in the comments on this new spicy-sweet dish.`\
+https://www.nytimes.com/2026/06/14/dining/harissa-apricot-chicken-done-in-20-minutes.html
+
+**The New Isolation of the Israeli Cultural Scene**\
+`In Tel Aviv, there’s a feeling that “we are on our own.”`\
+https://www.nytimes.com/2026/06/14/opinion/israel-artists-gaza-war-culture.html
+
+**About the Meat Industry: Before We Take a Bite, Hard Questions**\
+`Readers respond to a guest essay and a column by Nicholas Kristof about the meat industry.`\
+https://www.nytimes.com/2026/06/14/opinion/meat-industry.html
+
+**Israel Strikes Beirut Outskirts as Fighting With Hezbollah Escalates**\
+`The attacks complicated an already delicate moment as President Trump and Iran appeared to be edging toward finalizing a framework peace agreement.`\
+https://www.nytimes.com/2026/06/14/world/middleeast/israel-strikes-beirut-hezbollah.html
+
 **Switzerland Rejects Measure to Cap Population at 10 Million, Projections Show**\
 `The referendum was about limiting migration after the number of residents rose by more than a quarter since 2000, but it was framed around affordability and sustainability.`\
 https://www.nytimes.com/2026/06/14/world/europe/switzerland-population-cap-referendum.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/es/2026/06/14/espanol/ciencia-y-tecnologia/redes-hongos-
 **‘Hacks’ y la defensa de las amistades con diferencia de edad**\
 `En una época en la que las relaciones sociales se han debilitado, según los expertos, entablar amistad con alguien mayor o menor ofrece ventajas únicas.`\
 https://www.nytimes.com/es/2026/06/14/espanol/cultura/hacks-amistades-diferencia-edad.html
-
-**Los estadounidenses resienten cada vez más la brecha entre los ultrarricos y la gente promedio**\
-`Mientras Elon Musk se convierte en el primer “billonario” del mundo, los trabajadores se enfrentan a precios más altos y al temor a perder sus puestos de trabajo por culpa de la IA.`\
-https://www.nytimes.com/es/2026/06/14/espanol/negocios/brecha-salarial-millonarios-ia.html
-
-**Tweet, Delete, Repeat: Social Media Posts Overshadow N.Y. House Race**\
-`Darializa Avila Chevalier won the backing of Mayor Zohran Mamdani in her bid to unseat Representative Adriano Espaillat. Then her social media history took center stage.`\
-https://www.nytimes.com/2026/06/14/nyregion/avila-chevalier-social-media.html
-
-**The Last Days of the Times Square Red Lobster**\
-`Regulars and newcomers feasted on seafood and biscuits as the restaurant’s bright red lobster logo glowed in Times Square for the final time.`\
-https://www.nytimes.com/2026/06/14/nyregion/times-square-red-lobster.html
-
-**‘He Offered to Take Me to Get the Best Hamburger in the City’**\
-`Catching a glimpse of an elusive bird, the sax player’s tune and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://www.nytimes.com/2026/06/14/nyregion/metropolitan-diary.html
 
