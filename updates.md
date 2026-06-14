@@ -1,3 +1,7 @@
+**Fans Swarm New York to Celebrate Knicks’ N.B.A. Title**\
+`Knicks fans shut down parts of New York City after their team defeated the San Antonio Spurs to win the N.B.A. championship for the first time since 1973.`\
+https://www.nytimes.com/live/2026/06/13/nyregion/nba-finals-knicks-spurs
+
 **Bob Dylan and Liza Minnelli Already Turned 80. They Have Thoughts for Trump.**\
 `“I feel the same as I did 50 years ago,” President Trump said. “It’s crazy.”`\
 https://www.nytimes.com/2026/06/14/opinion/trump-turns-80.html
