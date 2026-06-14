@@ -75,7 +75,7 @@ https://www.nytimes.com/2026/06/14/briefing/net-gain.html
 https://www.nytimes.com/2026/06/14/podcasts/why-i-love-the-beautiful-game-brandon-aubrey.html
 
 **MAGA’s French Connection**\
-`Christian nationalism has dark forebears.`\
+`This is MAGA’s French connection.`\
 https://www.nytimes.com/2026/06/14/opinion/christian-nationalism-maga-france.html
 
 **What the Cult of Efficiency Costs Us**\
