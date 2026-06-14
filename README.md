@@ -1,3 +1,7 @@
+**How to Watch the U.F.C. 250 Freedom Fights at the White House**\
+`Seven bouts will take place in an arena created on the South Lawn for the Ultimate Fighting Championship event, which coincides with President Trump’s 80th birthday.`\
+https://www.nytimes.com/2026/06/14/us/politics/how-to-watch-ufc-freedom-250.html
+
 **Jean Ziegler, Swiss Gadfly Who Provoked His Countrymen, Dies at 92**\
 `In a nation that sees itself as a tranquil oasis of prosperity and business virtue, he drew death threats for pointing out a dark underside.`\
 https://www.nytimes.com/2026/06/14/obituaries/jean-ziegler-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/06/14/us/politics/trump-white-house-cla
 **Coming to a Blood Donation Center Near You: the Chicago Symphony**\
 `When the medical technology company Abbott developed mixed-reality games, it got one of the world’s great orchestras to record the soundtracks.`\
 https://www.nytimes.com/2026/06/14/arts/music/chicago-symphony-blood-donation.html
-
-**How Redistricting Pit Wasserman Schultz Against Black Democrats in Florida**\
-`Four candidates running in a historically Black district risk dividing the Black vote and losing to Ms. Wasserman Schultz, who is white.`\
-https://www.nytimes.com/2026/06/14/us/politics/redistricting-black-democrats-debbie-wasserman-schultz-florida.html
 

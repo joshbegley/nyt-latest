@@ -1,3 +1,11 @@
+**Jean Ziegler, Swiss Gadfly Who Provoked His Countrymen, Dies at 92**\
+`In a nation that sees itself as a tranquil oasis of prosperity and business virtue, he drew death threats for pointing out a dark underside.`\
+https://www.nytimes.com/2026/06/14/obituaries/jean-ziegler-dead.html
+
+**Curazao, el país más pequeño que participa en una Copa Mundial**\
+`Curazao, que compite por primera vez, está rebosante de alegría. La mayoría de los jugadores de esta nación caribeña nacieron y crecieron en los Países Bajos, pero los residentes dicen que los jugadores los representan.`\
+https://www.nytimes.com/es/2026/06/14/espanol/america-latina/curacao-mundial-mas-pequeno.html
+
 **The Knicks Effect: Irresistible, Spontaneous Dancing**\
 `The Knicks turned New York City into a stage, where movement is a catalyst for untainted happiness.`\
 https://www.nytimes.com/2026/06/14/arts/dance/the-knicks-spontaneous-dancing.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/14/arts/music/chicago-symphony-blood-donation.ht
 **How Redistricting Pit Wasserman Schultz Against Black Democrats in Florida**\
 `Four candidates running in a historically Black district risk dividing the Black vote and losing to Ms. Wasserman Schultz, who is white.`\
 https://www.nytimes.com/2026/06/14/us/politics/redistricting-black-democrats-debbie-wasserman-schultz-florida.html
-
-**The G7 Summit Is Dogged by Chaos and Divided by Trump**\
-`Group of 7 meetings once embodied the effort to sustain the global diplomatic order. This year’s gathering, starting on Monday, symbolizes its fragmentation.`\
-https://www.nytimes.com/2026/06/14/world/europe/g7-summit-evian-trump.html
-
-**The Secrets of a Soccer-Turf Master**\
-`John Sorochan, a turf scientist at the University of Tennessee, has led the yearslong, multimillion-dollar effort to develop perfect playing fields for the 2026 World Cup.`\
-https://www.nytimes.com/2026/06/14/science/world-cup-turf-sorochan.html
 

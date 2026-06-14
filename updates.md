@@ -1,3 +1,11 @@
+**Jean Ziegler, Swiss Gadfly Who Provoked His Countrymen, Dies at 92**\
+`In a nation that sees itself as a tranquil oasis of prosperity and business virtue, he drew death threats for pointing out a dark underside.`\
+https://www.nytimes.com/2026/06/14/obituaries/jean-ziegler-dead.html
+
+**Curazao, el país más pequeño que participa en una Copa Mundial**\
+`Curazao, que compite por primera vez, está rebosante de alegría. La mayoría de los jugadores de esta nación caribeña nacieron y crecieron en los Países Bajos, pero los residentes dicen que los jugadores los representan.`\
+https://www.nytimes.com/es/2026/06/14/espanol/america-latina/curacao-mundial-mas-pequeno.html
+
 **Bay Area Faces Flooding Amid Highest Summer Tide, Forecasters Warn**\
 `Water levels are expected to be high enough to challenge or exceed the current summer tide record of 1.7 feet above normal, set in July 2022, forecasters said.`\
 https://www.nytimes.com/2026/06/14/weather/bay-area-summer-high-tides.html
