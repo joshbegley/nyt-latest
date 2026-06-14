@@ -1,3 +1,7 @@
+**Live Updates: Fans Swarm New York to Celebrate Knicks’ N.B.A. Title**\
+`Knicks fans shut down parts of New York City after their team defeated the San Antonio Spurs to win the N.B.A. championship for the first time since 1973.`\
+https://www.nytimes.com/live/2026/06/13/nyregion/nba-finals-knicks-spurs
+
 **Knicks Will Get a Ticker-Tape Parade on Thursday**\
 `Mayor Zohran Mamdani will present the team with the keys to the city. He said the parade will be the Knicks’ first in team history.`\
 https://www.nytimes.com/2026/06/14/nyregion/knicks-championship-parade.html
