@@ -194,7 +194,3 @@ https://www.nytimes.com/2026/06/13/crosswords/strands-sidekick-833.html
 `Our Times colleague Susanne Craig was back home in Canada to be honored for her extraordinary career, which began in Calgary, Alberta, her hometown.`\
 https://www.nytimes.com/2026/06/13/world/canada/investigative-journalism-susanne-craig-cjf-canada.html
 
-**Seth Rogen Knows the Secret to Marriage — and Being Rich in Hollywood**\
-`After three decades in the industry, the actor-writer-director-producer has figured a lot out.`\
-https://www.nytimes.com/2026/06/13/magazine/seth-rogen-interview.html
-
