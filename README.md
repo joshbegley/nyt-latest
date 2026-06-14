@@ -1,3 +1,23 @@
+**Japan Is Running Out of Royals. Are More Men the Answer?**\
+`Japan’s legislature is drafting a plan to allow the imperial family to adopt distant male relatives. But some in Japan would prefer a female emperor.`\
+https://www.nytimes.com/2026/06/14/world/asia/japan-royal-family-adoption-male.html
+
+**Germany and Japan Are Rearming Again, 80 Years After World War II**\
+`After becoming allies to disastrous effect in the 1940s, Berlin and Tokyo are finding new reasons to team up — including rebuilding their militaries.`\
+https://www.nytimes.com/2026/06/14/world/europe/germany-japan-rearmament-military.html
+
+**In Venezuela, a 91-Year-Old Weaver Sticks to Traditions**\
+`Though electric machines are now standard, the Venezuelan weaver Margarita Mora has clung to a mix of ancestral Indigenous and Spanish practices to create surprisingly modern work.`\
+https://www.nytimes.com/2026/06/14/arts/design/weaving-traditional-venezuela-margarita-mora.html
+
+**Listen to This Sondheim Masterpiece and It Will Bring Order to Your Day**\
+`Stephen Sondheim’s masterpiece, “Sunday in the Park With George,” contains a song capable of making order out of mayhem. Listen to hear how he did it.`\
+https://www.nytimes.com/2026/06/14/arts/stephen-sondheim-song-sunday.html
+
+**Quote of the Day: World Cup Peels Argentines Away From Phones and Has Them Stuck on Stickers**\
+`Quotation of the Day for Sunday, June 14, 2026.`\
+https://www.nytimes.com/2026/06/14/pageoneplus/quote-of-the-day-world-cup-peels-argentines-away-from-phones-and-has-them-stuck-on-stickers.html
+
 **Voters Reject Anti-Islam Candidate in Mayoral Race in Dallas Suburb**\
 `The election for mayor of Frisco, Texas, became a referendum on diversity and a test of anti-Muslim messaging in a general election contest.`\
 https://www.nytimes.com/2026/06/13/us/frisco-texas-mayor-election-mark-hill.html
@@ -142,13 +162,13 @@ https://www.nytimes.com/2026/06/13/opinion/epstein-trump-white-house.html
 `Steven Spielberg’s ‘Disclosure Day’ and the God-and-aliens debate.`\
 https://www.nytimes.com/2026/06/13/opinion/disclosure-day-ufo-religion.html
 
-**The U.S. Is the Future of Soccer, for Better or Worse**\
-`Thanks to immigrants and the internet, Americans gained entry to a universe beyond our borders.`\
-https://www.nytimes.com/2026/06/13/opinion/usa-soccer-world-cup.html
-
 **Detroit Is the Last City That Knows How to Dance**\
 `Dance floors are flooded with selfies and poseurs. But in one city, it’s still a place to feel free.`\
 https://www.nytimes.com/2026/06/13/opinion/detroit-dance-floor-music-dj.html
+
+**The U.S. Is the Future of Soccer, for Better or Worse**\
+`Thanks to immigrants and the internet, Americans gained entry to a universe beyond our borders.`\
+https://www.nytimes.com/2026/06/13/opinion/usa-soccer-world-cup.html
 
 **The Spectacle of Trump at 80**\
 `An octogenarian president for a 250-year-old republic.`\
@@ -173,24 +193,4 @@ https://www.nytimes.com/video/opinion/100000010958359/the-spectacle-of-trump-at-
 **Iran War Live Updates: Trump Says Peace Deal Will Be Signed Sunday, but Iran Disputes Timeline**\
 `An Iranian foreign ministry official sought to temper expectations, saying there were no plans for a Sunday signing and an agreement could be inked in the coming days.`\
 https://www.nytimes.com/live/2026/06/13/world/iran-war-trump-us-israel
-
-**Unfinished Business**\
-`We like it when projects are completed, but what if we could abide comfortably in the toiling and striving it takes to get them there?`\
-https://www.nytimes.com/2026/06/13/briefing/unfinished-business.html
-
-**A Tren de Aragua Leader Is Killed in a Joint Strike, U.S. and Venezuela Say**\
-`A strike this week in Venezuela killed a gang leader known as Niño Guerrero who was wanted in the United States, officials in both countries said.`\
-https://www.nytimes.com/2026/06/13/world/americas/tren-de-aragua-leader-killed-us-venezuela.html
-
-**My Tween Daughter’s Friend Is a Mean Girl. Should I Tell Her Mother?**\
-`Many of the girl’s friends have begun distancing themselves from her, and I don’t know if her mother understands the full extent of the problem.`\
-https://www.nytimes.com/2026/06/13/magazine/daughters-friend-mean-girl-ethics.html
-
-**NYT Connections Answers for June 14, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, June 14, 2026.`\
-https://www.nytimes.com/2026/06/13/crosswords/connections-companion-1099.html
-
-**Today’s Wordle Hints for June 14, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, June 14, 2026.`\
-https://www.nytimes.com/2026/06/13/crosswords/wordle-review-1821.html
 
