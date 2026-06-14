@@ -83,7 +83,7 @@ https://www.nytimes.com/2026/06/14/us/politics/trump-ufc-tko-group.html
 https://www.nytimes.com/2026/06/14/books/jane-yolen-dead.html
 
 **1 Teen Shot and 4 People Stabbed Near MSG During Knicks Celebration**\
-`More than a dozen people were also arrested, and several school buses were set on fire after the Knicks defeated the San Antonio Spurs in Game 5 of the N.B.A. finals.`\
+`More than a dozen people were also arrested and several school buses were set on fire after the Knicks defeated the San Antonio Spurs in Game 5 of the N.B.A. finals.`\
 https://www.nytimes.com/2026/06/14/nyregion/knicks-nba-celebrations-msg-nyc-shooting.html
 
 **Bay Area Faces Flooding Amid Highest Summer Tide, Forecasters Warn**\
