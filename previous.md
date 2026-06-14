@@ -54,13 +54,13 @@ https://www.nytimes.com/2026/06/14/opinion/christian-nationalism-maga-france.htm
 `The Save Our Bacon Act is bad for pigs and bad for us.`\
 https://www.nytimes.com/2026/06/14/opinion/chris-murphy-save-bacon-pigs.html
 
-**Was E.T. Slimy or Dry? Spielberg Weighs In**\
-`On “The Daily,” Steven Spielberg settles an important debate: Was E.T. slimy or dry?`\
-https://www.nytimes.com/video/podcasts/the-daily/100000010962076/was-et-slimy-or-dry-spielberg-weighs-in.html
-
 **How ‘Jaws’ Made People Stop Talking to Steven Spielberg**\
 `Steven Spielberg explains how his early blockbuster success caused his collaborators to suddenly stop giving him feedback.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000010963369/how-jaws-made-people-stop-talking-to-steven-spielberg.html
+
+**Was E.T. Slimy or Dry? Spielberg Weighs In**\
+`On “The Daily,” Steven Spielberg settles an important debate: Was E.T. slimy or dry?`\
+https://www.nytimes.com/video/podcasts/the-daily/100000010962076/was-et-slimy-or-dry-spielberg-weighs-in.html
 
 **Steven Spielberg on Watching Movies Alone**\
 `On “The Daily,” Steven Spielberg talks about the “contagion” that happens when you watch a movie with a crowd of strangers.`\

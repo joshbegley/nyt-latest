@@ -95,7 +95,7 @@ https://www.nytimes.com/2026/06/14/crosswords/strands-sidekick-834.html
 https://www.nytimes.com/2026/06/14/crosswords/wordle-review-1822.html
 
 **UK Forces Seize Russian Shadow Fleet Oil Tanker**\
-`Britain’s defense ministry said it was the first time that British forces had acted alone to stop a ship in the fleet, a collection of vessels that Russia uses to move fuel and evade sanctions.`\
+`Britain’s Defense Ministry said it was the first time that British forces had acted alone to stop a ship in the fleet, a collection of vessels that Russia uses to move fuel and evade sanctions.`\
 https://www.nytimes.com/2026/06/14/world/europe/uk-russia-shadow-fleet-oil-tanker-channel.html
 
 **Knicks Give Their City Something New: Impossible Joy**\
