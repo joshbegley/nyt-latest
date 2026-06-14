@@ -1,3 +1,7 @@
+**He Made ‘Heathcliff’ Absurd**\
+`Peter Gallagher’s spin on a comic strip staple has found a passionate audience away from the funny pages.`\
+https://www.nytimes.com/2026/06/14/style/heathcliff-comic-strip-new-fans.html
+
 **Do Aliens Exist? Steven Spielberg Believes They Do**\
 `The legendary director on why he thinks aliens are real, and why he makes movies about things that scare him.`\
 https://www.nytimes.com/2026/06/14/podcasts/the-daily/do-aliens-exist-steven-spielberg-believes-they-do.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/14/crosswords/spelling-bee-forum.html
 **‘A Lifetime Dream’: Knicks Fans Celebrate From New York City to Texas**\
 `Dancing in the East Village. Flooding San Antonio with Knicks’ orange and blue. Crying at Madison Square Garden. The first N.B.A. championship in decades had fans in a frenzy.`\
 https://www.nytimes.com/2026/06/14/nyregion/knicks-championship-celebrations.html
-
-**President Trump Endorses Mike Collins in Georgia Senate Runoff**\
-`Mr. Trump backed Mr. Collins over Derek Dooley, a former football coach who is supported by Gov. Brian Kemp, a Republican whose relationship with the president is strained.`\
-https://www.nytimes.com/2026/06/14/us/politics/trump-mike-collins-georgia-senate-runoff.html
 
