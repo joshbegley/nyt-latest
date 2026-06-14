@@ -1,3 +1,11 @@
+**Trump Claims Strait Will be ‘Permanently Toll Free’ Under Agreement With Iran**\
+`In a call to The New York Times, President Trump praised Russia and China’s leaders and described Israel’s prime minister as “a very difficult guy.”`\
+https://www.nytimes.com/2026/06/14/us/politics/trump-iran-deal-strait-of-hormuz.html
+
+**12 Killed in Skydiving Plane Crash in Butler, Missouri**\
+`Eleven passengers and a pilot were killed after the plane climbed about 100 feet and then crashed to the ground at the Butler Memorial Airport in Missouri, officials said.`\
+https://www.nytimes.com/2026/06/14/us/skydiving-plane-crash-butler-missouri.html
+
 **1 Teen Shot and 4 People Stabbed Near MSG During Knicks Celebration**\
 `More than a dozen people were also arrested and several school buses were set on fire after the Knicks defeated the San Antonio Spurs in Game 5 of the N.B.A. finals.`\
 https://www.nytimes.com/2026/06/14/nyregion/knicks-nba-celebrations-msg-nyc-shooting.html
