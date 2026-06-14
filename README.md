@@ -1,3 +1,7 @@
+**Jane Yolen, Whose Books for Children Drew on Everyday Life, Dies at 87**\
+`She wrote some 450 books, including novels, poetry and nonfiction in many genres. One critic called her “a modern equivalent to Aesop.”`\
+https://www.nytimes.com/2026/06/14/books/jane-yolen-dead.html
+
 **1 Teen Shot and 4 People Stabbed Near MSG During Knicks Celebration**\
 `More than a dozen people were also arrested, and several school buses were set on fire after the New York Knicks defeated the San Antonio Spurs in Game 5 of the N.B.A. finals.`\
 https://www.nytimes.com/2026/06/14/nyregion/knicks-nba-celebrations-msg-nyc-shooting.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/14/us/legal-lobbying-cost-university-college-tru
 **Medicare Enrollment 101: What You Need to Know**\
 `The federal health insurance program can be complicated. Here’s how to start, and where to find help.`\
 https://www.nytimes.com/2026/06/14/business/medicare-enrollment.html
-
-**Book Review: ‘Empire of Ink,’ by Alex Wright**\
-`In “Empire of Ink,” Alex Wright describes how newfangled technologies and disruptive personalities have regularly unsettled the American media.`\
-https://www.nytimes.com/2026/06/14/books/review/empire-of-ink-newspapers-alex-wright.html
 
