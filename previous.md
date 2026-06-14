@@ -1,3 +1,7 @@
+**Oil Prices Tumble After Trump Announces Deal With Iran**\
+`Oil prices fell and stocks gained on Sunday evening on the hope that a deal would allow more energy and other goods to flow through the Strait of Hormuz.`\
+https://www.nytimes.com/2026/06/14/business/oil-stocks-gas-iran.html
+
 **NYT Crossword Answers for June 15, 2026**\
 `Eric Rollfing winds us up.`\
 https://www.nytimes.com/2026/06/14/crosswords/daily-puzzle-2026-06-15.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/14/crosswords/wordle-review-1822.html
 **UK Forces Seize Russian Shadow Fleet Oil Tanker**\
 `Britain’s Defense Ministry said it was the first time that British forces had acted alone to stop a ship in the fleet, a collection of vessels that Russia uses to move fuel and evade sanctions.`\
 https://www.nytimes.com/2026/06/14/world/europe/uk-russia-shadow-fleet-oil-tanker-channel.html
-
-**Knicks Give Their City Something New: Impossible Joy**\
-`At long last, the team that New York City cares about the most has loved it back.`\
-https://www.nytimes.com/2026/06/14/nyregion/knicks-new-york-city-nba-championship-win.html
 
