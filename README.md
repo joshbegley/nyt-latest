@@ -35,7 +35,7 @@ https://www.nytimes.com/es/2026/06/14/espanol/estados-unidos/trump-cumpleanos-80
 https://www.nytimes.com/es/2026/06/14/espanol/ciencia-y-tecnologia/huntington-enfermedad-genetica.html
 
 **The Party Was Epic. The Aftermath Was Intense.**\
-`Across the city, Knicks fans celebrated joyfully after Game Five. But near Madison Square Garden, the scene turned ugly early Sunday as some revelers became violent.`\
+`Across the city, Knicks fans celebrated joyfully after Game 5. But near Madison Square Garden, the scene turned ugly early Sunday as some revelers became violent.`\
 https://www.nytimes.com/2026/06/14/nyregion/knicks-celebration-violence-midtown.html
 
 **War and the World Cup**\
