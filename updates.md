@@ -1,3 +1,7 @@
+**What to Know About the Ticker-Tape Parade for the Knicks**\
+`A parade up Broadway to City Hall on Thursday will celebrate the team’s N.B.A. championship win, and Mayor Zohran Mamdani will present players with keys to the city.`\
+https://www.nytimes.com/2026/06/14/nyregion/knicks-parade-nyc-what-to-know.html
+
 **How to Watch the U.F.C. 250 Freedom Fights at the White House**\
 `Seven bouts will take place in an arena created on the South Lawn for the Ultimate Fighting Championship event, which coincides with President Trump’s 80th birthday.`\
 https://www.nytimes.com/2026/06/14/us/politics/how-to-watch-ufc-freedom-250.html
