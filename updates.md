@@ -1,3 +1,11 @@
+**Fans Celebrate Knicks’ First N.B.A. Title in 53 Years**\
+`New York City erupted in celebration after the Knicks defeated the San Antonio Spurs in Game 5 of the N.B.A. finals to win their first championship since 1973.`\
+https://www.nytimes.com/video/sports/basketball/100000010966601/knicks-nba-championship-new-york.html
+
+**1 Teen Shot and 4 People Stabbed Near MSG During Knicks Celebration**\
+`More than a dozen people were also arrested, and several school buses were set on fire after the Knicks defeated the San Antonio Spurs in Game 5 of the N.B.A. finals.`\
+https://www.nytimes.com/2026/06/14/nyregion/knicks-nba-celebrations-msg-nyc-shooting.html
+
 **Tyra Banks Sues Netflix for Defamation Over ‘America’s Next Top Model’ Docuseries**\
 `The lawsuit claims that producers used roughly 16 minutes of Ms. Banks’s three-and-a-half-hour interview to present a false narrative stripped of context.`\
 https://www.nytimes.com/2026/06/14/arts/television/tyra-banks-netflix-lawsuit-defamation-antm.html

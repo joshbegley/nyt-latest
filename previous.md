@@ -1,3 +1,7 @@
+**Fans Celebrate Knicks’ First N.B.A. Title in 53 Years**\
+`New York City erupted in celebration after the Knicks defeated the San Antonio Spurs in Game 5 of the N.B.A. finals to win their first championship since 1973.`\
+https://www.nytimes.com/video/sports/basketball/100000010966601/knicks-nba-championship-new-york.html
+
 **Tyra Banks Sues Netflix for Defamation Over ‘America’s Next Top Model’ Docuseries**\
 `The lawsuit claims that producers used roughly 16 minutes of Ms. Banks’s three-and-a-half-hour interview to present a false narrative stripped of context.`\
 https://www.nytimes.com/2026/06/14/arts/television/tyra-banks-netflix-lawsuit-defamation-antm.html
@@ -11,7 +15,7 @@ https://www.nytimes.com/2026/06/14/us/politics/trump-ufc-tko-group.html
 https://www.nytimes.com/2026/06/14/books/jane-yolen-dead.html
 
 **1 Teen Shot and 4 People Stabbed Near MSG During Knicks Celebration**\
-`More than a dozen people were also arrested, and several school buses were set on fire after the New York Knicks defeated the San Antonio Spurs in Game 5 of the N.B.A. finals.`\
+`More than a dozen people were also arrested, and several school buses were set on fire after the Knicks defeated the San Antonio Spurs in Game 5 of the N.B.A. finals.`\
 https://www.nytimes.com/2026/06/14/nyregion/knicks-nba-celebrations-msg-nyc-shooting.html
 
 **Bay Area Faces Flooding Amid Highest Summer Tide, Forecasters Warn**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/14/us/ai-deepfake-hany-farid.html
 **Kash Patel Keeps Suing the Press**\
 `The F.B.I. director, following a strategy from President Trump, has filed six defamation lawsuits against news media companies and commentators in nearly seven years.`\
 https://www.nytimes.com/2026/06/14/business/media/kash-patel-defamation-lawsuits.html
-
-**Flower Farms Are Emerging as Sought-After Wedding Venues**\
-`Flower farms are emerging as sought-after wedding venues, offering both a sustainable and photogenic backdrop.`\
-https://www.nytimes.com/2026/06/14/style/flower-farm-wedding-venues.html
 
