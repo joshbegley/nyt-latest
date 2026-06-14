@@ -1,3 +1,7 @@
+**California Sues to Stop One County’s Ban on Most Mail Voting**\
+`Shasta County voters had approved a ballot measure that would have heavily restricted voting by mail and imposed photo ID requirements. State officials said the new rules were illegal.`\
+https://www.nytimes.com/2026/06/14/us/california-lawsuit-mail-voting.html
+
 **Trump Claims Strait Will be ‘Permanently Toll Free’ Under Agreement With Iran**\
 `In a call to The New York Times, President Trump praised Russia and China’s leaders and described Israel’s prime minister as “a very difficult guy.”`\
 https://www.nytimes.com/2026/06/14/us/politics/trump-iran-deal-strait-of-hormuz.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/14/crosswords/connections-companion-1100.html
 **NYT Strands Hints for June 15, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, June 15, 2026.`\
 https://www.nytimes.com/2026/06/14/crosswords/strands-sidekick-834.html
-
-**Today’s Wordle Hints for June 15, 2025**\
-`Scroll down for hints and conversation about the puzzle for Monday, June 15, 2026.`\
-https://www.nytimes.com/2026/06/14/crosswords/wordle-review-1822.html
 
