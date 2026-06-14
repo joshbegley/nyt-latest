@@ -1,3 +1,7 @@
+**Merger Cleared, David Ellison to Join Trump at U.F.C. Bouts**\
+`A U.F.C. fight on President Trump’s birthday will now double as a capstone for Paramount’s successful effort to secure Justice Department approval for a mega media merger.`\
+https://www.nytimes.com/2026/06/14/business/media/trump-ufc-david-ellison.html
+
 **Switzerland Rejects Measure to Cap Its Population at 10 Million**\
 `The referendum was about limiting migration after the number of residents rose by more than a quarter since 2000, but it was framed around affordability and sustainability.`\
 https://www.nytimes.com/2026/06/14/world/europe/switzerland-population-cap-referendum.html
