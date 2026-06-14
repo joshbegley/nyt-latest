@@ -1,3 +1,11 @@
+**Los hongos subterráneos que sostienen la vida en la tierra**\
+`Mediante aprendizaje automático y un robot de imágenes de alta resolución, los científicos lograron medir y trazar el mapa de las enormes redes de hongos subterráneos que almacenan carbono.`\
+https://www.nytimes.com/es/2026/06/14/espanol/ciencia-y-tecnologia/redes-hongos-subterraneos.html
+
+**‘Hacks’ y la defensa de las amistades con diferencia de edad**\
+`En una época en la que las relaciones sociales se han debilitado, según los expertos, entablar amistad con alguien mayor o menor ofrece ventajas únicas.`\
+https://www.nytimes.com/es/2026/06/14/espanol/cultura/hacks-amistades-diferencia-edad.html
+
 **Los estadounidenses resienten cada vez más la brecha entre los ultrarricos y la gente promedio**\
 `Mientras Elon Musk se convierte en el primer “billonario” del mundo, los trabajadores se enfrentan a precios más altos y al temor a perder sus puestos de trabajo por culpa de la IA.`\
 https://www.nytimes.com/es/2026/06/14/espanol/negocios/brecha-salarial-millonarios-ia.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/13/dining/ben-mims-loves-an-erewhon-brownie.html
 **Jon Ossoff’s Anti-Authoritarian Playbook**\
 `The Opinion columnist Michelle Goldberg returned from a recent trip to Hungary with an appreciation for Senator Jon Ossoff’s playbook. Viktor Orban’s stunning defeat demonstrates the power of an anticorruption message, she argues, and Ossoff offers a model for Democrats.`\
 https://www.nytimes.com/video/opinion/100000010952666/jon-ossoffs-anti-authoritarian-playbook.html
-
-**Manhattan Street Closures for World Cup to Start at Noon on Saturday**\
-`Mayor Zohran Mamdani has declared a “gridlock alert” day every day that a match is scheduled at MetLife Stadium.`\
-https://www.nytimes.com/2026/06/13/nyregion/manhattan-street-closures-world-cup.html
-
-**Knicks Bring Back Watch Party Outside the Garden for Game 5**\
-`The official watch parties on Saturday night require tickets or registration and will be outside Madison Square Garden, in Central Park and at Radio City Music Hall.`\
-https://www.nytimes.com/2026/06/13/nyregion/knicks-watch-party-nyc.html
 

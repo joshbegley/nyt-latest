@@ -1,3 +1,11 @@
+**Los hongos subterráneos que sostienen la vida en la tierra**\
+`Mediante aprendizaje automático y un robot de imágenes de alta resolución, los científicos lograron medir y trazar el mapa de las enormes redes de hongos subterráneos que almacenan carbono.`\
+https://www.nytimes.com/es/2026/06/14/espanol/ciencia-y-tecnologia/redes-hongos-subterraneos.html
+
+**‘Hacks’ y la defensa de las amistades con diferencia de edad**\
+`En una época en la que las relaciones sociales se han debilitado, según los expertos, entablar amistad con alguien mayor o menor ofrece ventajas únicas.`\
+https://www.nytimes.com/es/2026/06/14/espanol/cultura/hacks-amistades-diferencia-edad.html
+
 **Fans Swarm New York to Celebrate Knicks’ N.B.A. Title**\
 `Knicks fans shut down parts of New York City after their team defeated the San Antonio Spurs to win the N.B.A. championship for the first time since 1973.`\
 https://www.nytimes.com/live/2026/06/13/nyregion/nba-finals-knicks-spurs
