@@ -1,3 +1,23 @@
+**Japan Is Running Out of Royals. Are More Men the Answer?**\
+`Japan’s legislature is drafting a plan to allow the imperial family to adopt distant male relatives. But some in Japan would prefer a female emperor.`\
+https://www.nytimes.com/2026/06/14/world/asia/japan-royal-family-adoption-male.html
+
+**Germany and Japan Are Rearming Again, 80 Years After World War II**\
+`After becoming allies to disastrous effect in the 1940s, Berlin and Tokyo are finding new reasons to team up — including rebuilding their militaries.`\
+https://www.nytimes.com/2026/06/14/world/europe/germany-japan-rearmament-military.html
+
+**In Venezuela, a 91-Year-Old Weaver Sticks to Traditions**\
+`Though electric machines are now standard, the Venezuelan weaver Margarita Mora has clung to a mix of ancestral Indigenous and Spanish practices to create surprisingly modern work.`\
+https://www.nytimes.com/2026/06/14/arts/design/weaving-traditional-venezuela-margarita-mora.html
+
+**Listen to This Sondheim Masterpiece and It Will Bring Order to Your Day**\
+`Stephen Sondheim’s masterpiece, “Sunday in the Park With George,” contains a song capable of making order out of mayhem. Listen to hear how he did it.`\
+https://www.nytimes.com/2026/06/14/arts/stephen-sondheim-song-sunday.html
+
+**Quote of the Day: World Cup Peels Argentines Away From Phones and Has Them Stuck on Stickers**\
+`Quotation of the Day for Sunday, June 14, 2026.`\
+https://www.nytimes.com/2026/06/14/pageoneplus/quote-of-the-day-world-cup-peels-argentines-away-from-phones-and-has-them-stuck-on-stickers.html
+
 **Live Updates: Knicks Fans Erupt in Celebration Over N.B.A. Championship**\
 `The New York Knicks defeated San Antonio in Game 5 of the N.B.A. finals to win their first title since 1973. New Yorkers had waited more than a half century for the moment.`\
 https://www.nytimes.com/live/2026/06/13/nyregion/nba-finals-knicks-spurs
