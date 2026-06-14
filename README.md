@@ -1,3 +1,7 @@
+**Iran War Live Updates: U.S. and Tehran Send Mixed Signals on Emerging Peace Agreement**\
+`President Trump said it would be signed on Sunday, but Iran’s Foreign Ministry cautioned that the timeline could be slower.`\
+https://www.nytimes.com/live/2026/06/14/world/iran-war-trump-us
+
 **Taylor Swift entra en el Salón de la Fama de los Compositores con lágrimas, bromas y una advertencia**\
 `Swift es la mujer más joven en recibir este reconocimiento. Entre los nuevos miembros de este año también se encontraban Gene Simmons y Paul Stanley de Kiss, y Alanis Morissette.`\
 https://www.nytimes.com/es/2026/06/14/espanol/cultura/taylor-swift-salon-fama-compositores.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/13/opinion/spacex-stock-ipo-ai.html
 **I’m a 53-Year-Old Woman. Stop Telling Me I’m Invisible.**\
 `There’s never been a better time to be a middle-aged woman.`\
 https://www.nytimes.com/2026/06/13/opinion/middle-age-women-invisible.html
-
-**Turning to ChatGPT for Help Instead of Your Doctor**\
-`Readers react to a guest essay by a doctor who found ChatGPT useful in dealing with her own medical issues.`\
-https://www.nytimes.com/2026/06/13/opinion/doctor-chatgpt.html
 
