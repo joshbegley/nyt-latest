@@ -1,3 +1,7 @@
+**He Made ‘Heathcliff’ Absurd**\
+`Peter Gallagher’s spin on a comic strip staple has found a passionate audience away from the funny pages.`\
+https://www.nytimes.com/2026/06/14/style/heathcliff-comic-strip-new-fans.html
+
 **Do Aliens Exist? Steven Spielberg Believes They Do**\
 `The legendary director on why he thinks aliens are real, and why he makes movies about things that scare him.`\
 https://www.nytimes.com/2026/06/14/podcasts/the-daily/do-aliens-exist-steven-spielberg-believes-they-do.html
