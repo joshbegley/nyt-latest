@@ -1,3 +1,15 @@
+**Iran War Live Updates: U.S. and Tehran Send Mixed Signals on Emerging Peace Agreement**\
+`President Trump said it would be signed on Sunday, but Iran’s Foreign Ministry cautioned that the timeline could be slower.`\
+https://www.nytimes.com/live/2026/06/14/world/iran-war-trump-us
+
+**Taylor Swift entra en el Salón de la Fama de los Compositores con lágrimas, bromas y una advertencia**\
+`Swift es la mujer más joven en recibir este reconocimiento. Entre los nuevos miembros de este año también se encontraban Gene Simmons y Paul Stanley de Kiss, y Alanis Morissette.`\
+https://www.nytimes.com/es/2026/06/14/espanol/cultura/taylor-swift-salon-fama-compositores.html
+
+**Trump Is 80. Bob Dylan and Five More Octogenarians Have Some Words of Wisdom.**\
+`“I feel the same as I did 50 years ago,” President Trump said. “It’s crazy.”`\
+https://www.nytimes.com/2026/06/14/opinion/trump-turns-80.html
+
 **Japan Is Running Out of Royals. Are More Men the Answer?**\
 `Japan’s legislature is drafting a plan to allow the imperial family to adopt distant male relatives. But some in Japan would prefer a female emperor.`\
 https://www.nytimes.com/2026/06/14/world/asia/japan-royal-family-adoption-male.html
@@ -34,8 +46,8 @@ https://www.nytimes.com/2026/06/13/technology/states-investigating-openai.html
 `James M. McDonald, a veteran former federal prosecutor and regulator, has more recently been part of President Trump’s legal team, appealing his criminal conviction.`\
 https://www.nytimes.com/2026/06/13/us/politics/trump-lawyer-us-attorney-manhattan.html
 
-**Live Updates: Knicks Fans Erupt in Celebration Over N.B.A. Championship**\
-`The New York Knicks defeated San Antonio in Game 5 of the N.B.A. finals to win their first title since 1973. New Yorkers had waited more than a half century for the moment.`\
+**Live Updates: Giddy New Yorkers Celebrate Knicks’ N.B.A. Title**\
+`Hordes of joyous fans shut down parts of Manhattan after the Knicks defeated the San Antonio Spurs to win their first N.B.A. championship since 1973.`\
 https://www.nytimes.com/live/2026/06/13/nyregion/nba-finals-knicks-spurs
 
 **Top Haitian Security Official Kidnapped**\
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/06/13/opinion/spacex-stock-ipo-ai.html
 **I’m a 53-Year-Old Woman. Stop Telling Me I’m Invisible.**\
 `There’s never been a better time to be a middle-aged woman.`\
 https://www.nytimes.com/2026/06/13/opinion/middle-age-women-invisible.html
-
-**Turning to ChatGPT for Help Instead of Your Doctor**\
-`Readers react to a guest essay by a doctor who found ChatGPT useful in dealing with her own medical issues.`\
-https://www.nytimes.com/2026/06/13/opinion/doctor-chatgpt.html
-
-**The Spectacle of Trump at 80**\
-`An octogenarian president for a 250-year-old republic.`\
-https://www.nytimes.com/video/opinion/100000010958359/the-spectacle-of-trump-at-80.html
-
-**Trump Says Peace Deal Will Be Signed Sunday, but Iran Disputes Timeline**\
-`An Iranian foreign ministry official sought to temper expectations, saying there were no plans for a Sunday signing and an agreement could be inked in the coming days.`\
-https://www.nytimes.com/live/2026/06/13/world/iran-war-trump-us-israel
 
