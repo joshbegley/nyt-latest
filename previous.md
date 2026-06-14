@@ -1,3 +1,15 @@
+**Bay Area Faces Flooding Amid Highest Summer Tide, Forecasters Warn**\
+`Water levels are expected to be high enough to challenge or exceed the current summer tide record of 1.7 feet, set in July 2022, forecasters said.`\
+https://www.nytimes.com/2026/06/14/weather/bay-area-summer-high-tides.html
+
+**For the Best Strawberry Pie, Roast Those Berries**\
+`Then pair them with tart rhubarb, as Genevieve Ko does in her new showstopping pie.`\
+https://www.nytimes.com/2026/06/14/dining/for-the-best-strawberry-pie-roast-those-berries.html
+
+**Under a Disco Ball in Brooklyn, Spurs Fans Found Refuge**\
+`Once a haven for fans of many teams, New York City had felt less and less friendly to those rooting for San Antonio. Enter Doris, a bar on Fulton Street.`\
+https://www.nytimes.com/2026/06/14/nyregion/spurs-fans-bar-new-york.html
+
 **The Knicks as Religious Experience**\
 `Knicks fans are waking up from the hangover of a really good trip. One that, some said, let them see God.`\
 https://www.nytimes.com/2026/06/14/briefing/knicks-religion-brunson-new-york.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/14/books/review/empire-of-ink-newspapers-alex-wr
 **Curaçao Is the Smallest Country Ever to Reach the World Cup**\
 `Competing for the first time, Curaçao is brimming with joy. Most of the Caribbean nation’s team was born and raised in the Netherlands, but residents say the players represent them.`\
 https://www.nytimes.com/2026/06/14/world/americas/world-cup-curacao-netherlands-soccer.html
-
-**A Graphic Novelist Captures the Lives of Vermont Lesbians Ahead of Their Time**\
-`Leaning on a rich written record, the graphic novelist Tillie Walden used nearby resources to visualize the true story of seamstresses who shared a home for decades.`\
-https://www.nytimes.com/2026/06/14/books/review/seeing-herself-in-the-lives-of-19th-century-vermont-lesbians.html
-
-**An Afghan Family Shattered by Trump’s Visa Ban**\
-`Over the past year, policies restricting people from 39 countries — including Afghanistan — from entering or living in the U.S. have cast countless lives into limbo. For one family, the consequences have been devastating.`\
-https://www.nytimes.com/video/world/middleeast/100000010876158/trump-visa-ban-tahiri-family-afghanistan.html
-
-**Los hongos subterráneos que sostienen la vida en la tierra**\
-`Mediante aprendizaje automático y un robot de imágenes de alta resolución, los científicos lograron medir y trazar el mapa de las enormes redes de hongos subterráneos que almacenan carbono.`\
-https://www.nytimes.com/es/2026/06/14/espanol/ciencia-y-tecnologia/redes-hongos-subterraneos.html
 

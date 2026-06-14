@@ -1,3 +1,15 @@
+**Bay Area Faces Flooding Amid Highest Summer Tide, Forecasters Warn**\
+`Water levels are expected to be high enough to challenge or exceed the current summer tide record of 1.7 feet, set in July 2022, forecasters said.`\
+https://www.nytimes.com/2026/06/14/weather/bay-area-summer-high-tides.html
+
+**For the Best Strawberry Pie, Roast Those Berries**\
+`Then pair them with tart rhubarb, as Genevieve Ko does in her new showstopping pie.`\
+https://www.nytimes.com/2026/06/14/dining/for-the-best-strawberry-pie-roast-those-berries.html
+
+**Under a Disco Ball in Brooklyn, Spurs Fans Found Refuge**\
+`Once a haven for fans of many teams, New York City had felt less and less friendly to those rooting for San Antonio. Enter Doris, a bar on Fulton Street.`\
+https://www.nytimes.com/2026/06/14/nyregion/spurs-fans-bar-new-york.html
+
 **In Age of AI, World’s Leading Deepfake Expert No Longer Trusts His Own Eyes**\
 `In the age of A.I., Hany Farid is struggling to prove what’s real before the internet decides for itself.`\
 https://www.nytimes.com/2026/06/14/us/ai-deepfake-hany-farid.html
