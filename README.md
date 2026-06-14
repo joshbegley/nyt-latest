@@ -1,3 +1,7 @@
+**La investigadora que eligió no saber**\
+`Durante décadas trabajó para que existiese una prueba genética de la enfermedad de Huntington. ¿Por qué no se sometió a ella cuando la hubo?`\
+https://www.nytimes.com/es/2026/06/14/espanol/ciencia-y-tecnologia/huntington-enfermedad-genetica.html
+
 **The Party Was Epic. The Aftermath Was Intense.**\
 `Across the city, Knicks fans celebrated joyfully after Game Five. But near Madison Square Garden, the scene turned ugly early Sunday as some revelers became violent.`\
 https://www.nytimes.com/2026/06/14/nyregion/knicks-celebration-violence-midtown.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/06/14/espanol/negocios/vitaly-depredadores-kick-
 **Trump at 80: A President ‘Really Uncomfortable’ With Aging**\
 `Even for a president known for imposing his own reality on every situation, Mr. Trump has not outrun scrutiny over his age.`\
 https://www.nytimes.com/2026/06/14/us/politics/trump-age-birthday-80.html
-
-**Merger Cleared, David Ellison to Join Trump at U.F.C. Bouts**\
-`A U.F.C. fight on President Trump’s birthday will now double as a capstone for Paramount’s successful effort to secure Justice Department approval for a mega media merger.`\
-https://www.nytimes.com/2026/06/14/business/media/trump-ufc-david-ellison.html
 
