@@ -1,3 +1,51 @@
+**MAGA’s French Connection**\
+`Christian nationalism has dark forebears.`\
+https://www.nytimes.com/2026/06/14/opinion/christian-nationalism-maga-france.html
+
+**What the Cult of Efficiency Costs Us**\
+`The Save Our Bacon Act is bad for pigs and bad for us.`\
+https://www.nytimes.com/2026/06/14/opinion/chris-murphy-save-bacon-pigs.html
+
+**How ‘Jaws’ Made People Stop Talking to Steven Spielberg**\
+`Steven Spielberg explains how his early blockbuster success caused his collaborators to suddenly stop giving him feedback.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000010963369/how-jaws-made-people-stop-talking-to-steven-spielberg.html
+
+**Was E.T. Slimy or Dry? Spielberg Weighs In**\
+`On “The Daily,” Steven Spielberg settles an important debate: Was E.T. slimy or dry?`\
+https://www.nytimes.com/video/podcasts/the-daily/100000010962076/was-et-slimy-or-dry-spielberg-weighs-in.html
+
+**Steven Spielberg on Watching Movies Alone**\
+`On “The Daily,” Steven Spielberg talks about the “contagion” that happens when you watch a movie with a crowd of strangers.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000010961992/steven-spielberg-on-watching-movies-alone.html
+
+**Sonny Rollins Deserves a Bridge Named After Him**\
+`Sonny Rollins was a giant, New York born and bred. And he has a particularly meaningful relationship to the Williamsburg Bridge.`\
+https://www.nytimes.com/2026/06/14/opinion/sonny-rollins-williamsburg-bridge.html
+
+**Does Steven Spielberg Believe in Aliens?**\
+`Steven Spielberg tells Rachel Abrams, host of “The Daily,” what he now believes about aliens, and why his new movie is really about rebuilding human connection.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000010961559/does-steven-spielberg-believe-in-aliens.html
+
+**Do Aliens Exist? Steven Spielberg Believes They Do**\
+`Director Steven Spielberg joins Rachel Abrams on “The Daily” to talk about his return to alien movies with “Disclosure Day.” An icon of the movie world, Spielberg also discusses how fear has always fueled his filmmaking, and why people stopped talking to him after “Jaws.”`\
+https://www.nytimes.com/video/podcasts/the-daily/100000010961486/do-aliens-exist-steven-spielberg-believes-they-do.html
+
+**The Tiny Solar Panel That Could Change America**\
+`I hope balcony solar’s charisma and low cost help us imagine the energy-abundant future we are so close to achieving.`\
+https://www.nytimes.com/2026/06/14/opinion/solar-panels-balcony-backyard-plugin.html
+
+**NYT Connections Answers for June 15, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, June 15, 2026.`\
+https://www.nytimes.com/2026/06/14/crosswords/connections-companion-1100.html
+
+**NYT Strands Hints for June 15, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, June 15, 2026.`\
+https://www.nytimes.com/2026/06/14/crosswords/strands-sidekick-834.html
+
+**Today’s Wordle Hints for June 15, 2025**\
+`Scroll down for hints and conversation about the puzzle for Monday, June 15, 2026.`\
+https://www.nytimes.com/2026/06/14/crosswords/wordle-review-1822.html
+
 **UK Forces Seize Russian Shadow Fleet Oil Tanker**\
 `Britain’s defense ministry said it was the first time that British forces had acted alone to stop a ship in the fleet, a collection of vessels that Russia uses to move fuel and evade sanctions.`\
 https://www.nytimes.com/2026/06/14/world/europe/uk-russia-shadow-fleet-oil-tanker-channel.html
@@ -149,48 +197,4 @@ https://www.nytimes.com/live/2026/06/14/world/iran-war-trump-us
 **Taylor Swift entra en el Salón de la Fama de los Compositores con lágrimas, bromas y una advertencia**\
 `Swift es la mujer más joven en recibir este reconocimiento. Entre los nuevos miembros de este año también se encontraban Gene Simmons y Paul Stanley de Kiss, y Alanis Morissette.`\
 https://www.nytimes.com/es/2026/06/14/espanol/cultura/taylor-swift-salon-fama-compositores.html
-
-**Bob Dylan and Liza Minnelli Already Turned 80. They Have Thoughts for Trump.**\
-`“I feel the same as I did 50 years ago,” President Trump said. “It’s crazy.”`\
-https://www.nytimes.com/2026/06/14/opinion/trump-turns-80.html
-
-**Japan Is Running Out of Royals. Are More Men the Answer?**\
-`Japan’s legislature is drafting a plan to allow the imperial family to adopt distant male relatives. But some in Japan would prefer a female emperor.`\
-https://www.nytimes.com/2026/06/14/world/asia/japan-royal-family-adoption-male.html
-
-**Germany and Japan Are Rearming Again, 80 Years After World War II**\
-`After becoming allies to disastrous effect in the 1940s, Berlin and Tokyo are finding new reasons to team up — including rebuilding their militaries.`\
-https://www.nytimes.com/2026/06/14/world/europe/germany-japan-rearmament-military.html
-
-**In Venezuela, a 91-Year-Old Weaver Sticks to Traditions**\
-`Though electric machines are now standard, the Venezuelan weaver Margarita Mora has clung to a mix of ancestral Indigenous and Spanish practices to create surprisingly modern work.`\
-https://www.nytimes.com/2026/06/14/arts/design/weaving-traditional-venezuela-margarita-mora.html
-
-**Listen to This Sondheim Masterpiece and It Will Bring Order to Your Day**\
-`Stephen Sondheim’s masterpiece, “Sunday in the Park With George,” contains a song capable of making order out of mayhem. Listen to hear how he did it.`\
-https://www.nytimes.com/2026/06/14/arts/stephen-sondheim-song-sunday.html
-
-**Quote of the Day: World Cup Peels Argentines Away From Phones and Has Them Stuck on Stickers**\
-`Quotation of the Day for Sunday, June 14, 2026.`\
-https://www.nytimes.com/2026/06/14/pageoneplus/quote-of-the-day-world-cup-peels-argentines-away-from-phones-and-has-them-stuck-on-stickers.html
-
-**Voters Reject Anti-Islam Candidate in Mayoral Race in Dallas Suburb**\
-`The election for mayor of Frisco, Texas, became a referendum on diversity and a test of anti-Muslim messaging in a general election contest.`\
-https://www.nytimes.com/2026/06/13/us/frisco-texas-mayor-election-mark-hill.html
-
-**Trump Administration Reignites Its Feud With Anthropic Over Latest A.I. Models**\
-`The administration’s surprise restrictions Friday cut off foreign access to Anthropic’s latest models and sparked another round of finger pointing.`\
-https://www.nytimes.com/2026/06/13/us/politics/trump-anthropic-ai-models.html
-
-**State Attorneys General Are Investigating OpenAI**\
-`OpenAI said that a coalition of states had opened an investigation over a wide range of its practices, including its handling of user data, safety of minors and advertising activities.`\
-https://www.nytimes.com/2026/06/13/technology/states-investigating-openai.html
-
-**Trump Again Picks Personal Lawyer for a Top Job, as U.S. Attorney in Manhattan**\
-`James M. McDonald, a veteran former federal prosecutor and regulator, has more recently been part of President Trump’s legal team, appealing his criminal conviction.`\
-https://www.nytimes.com/2026/06/13/us/politics/trump-lawyer-us-attorney-manhattan.html
-
-**Fans Swarm New York to Celebrate Knicks’ N.B.A. Title**\
-`Knicks fans shut down parts of New York City after their team defeated the San Antonio Spurs to win the N.B.A. championship for the first time since 1973.`\
-https://www.nytimes.com/live/2026/06/13/nyregion/nba-finals-knicks-spurs
 
