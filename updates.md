@@ -1,3 +1,59 @@
+**MAGA’s French Connection**\
+`Christian nationalism has dark forebears.`\
+https://www.nytimes.com/2026/06/14/opinion/christian-nationalism-maga-france.html
+
+**What the Cult of Efficiency Costs Us**\
+`The Save Our Bacon Act is bad for pigs and bad for us.`\
+https://www.nytimes.com/2026/06/14/opinion/chris-murphy-save-bacon-pigs.html
+
+**How ‘Jaws’ Made People Stop Talking to Steven Spielberg**\
+`Steven Spielberg explains how his early blockbuster success caused his collaborators to suddenly stop giving him feedback.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000010963369/how-jaws-made-people-stop-talking-to-steven-spielberg.html
+
+**Was E.T. Slimy or Dry? Spielberg Weighs In**\
+`On “The Daily,” Steven Spielberg settles an important debate: Was E.T. slimy or dry?`\
+https://www.nytimes.com/video/podcasts/the-daily/100000010962076/was-et-slimy-or-dry-spielberg-weighs-in.html
+
+**Steven Spielberg on Watching Movies Alone**\
+`On “The Daily,” Steven Spielberg talks about the “contagion” that happens when you watch a movie with a crowd of strangers.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000010961992/steven-spielberg-on-watching-movies-alone.html
+
+**Sonny Rollins Deserves a Bridge Named After Him**\
+`Sonny Rollins was a giant, New York born and bred. And he has a particularly meaningful relationship to the Williamsburg Bridge.`\
+https://www.nytimes.com/2026/06/14/opinion/sonny-rollins-williamsburg-bridge.html
+
+**Does Steven Spielberg Believe in Aliens?**\
+`Steven Spielberg tells Rachel Abrams, host of “The Daily,” what he now believes about aliens, and why his new movie is really about rebuilding human connection.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000010961559/does-steven-spielberg-believe-in-aliens.html
+
+**Do Aliens Exist? Steven Spielberg Believes They Do**\
+`Director Steven Spielberg joins Rachel Abrams on “The Daily” to talk about his return to alien movies with “Disclosure Day.” An icon of the movie world, Spielberg also discusses how fear has always fueled his filmmaking, and why people stopped talking to him after “Jaws.”`\
+https://www.nytimes.com/video/podcasts/the-daily/100000010961486/do-aliens-exist-steven-spielberg-believes-they-do.html
+
+**The Tiny Solar Panel That Could Change America**\
+`I hope balcony solar’s charisma and low cost help us imagine the energy-abundant future we are so close to achieving.`\
+https://www.nytimes.com/2026/06/14/opinion/solar-panels-balcony-backyard-plugin.html
+
+**NYT Connections Answers for June 15, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, June 15, 2026.`\
+https://www.nytimes.com/2026/06/14/crosswords/connections-companion-1100.html
+
+**NYT Strands Hints for June 15, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, June 15, 2026.`\
+https://www.nytimes.com/2026/06/14/crosswords/strands-sidekick-834.html
+
+**Today’s Wordle Hints for June 15, 2025**\
+`Scroll down for hints and conversation about the puzzle for Monday, June 15, 2026.`\
+https://www.nytimes.com/2026/06/14/crosswords/wordle-review-1822.html
+
+**UK Forces Seize Russian Shadow Fleet Oil Tanker**\
+`Britain’s defense ministry said it was the first time that British forces had acted alone to stop a ship in the fleet, a collection of vessels that Russia uses to move fuel and evade sanctions.`\
+https://www.nytimes.com/2026/06/14/world/europe/uk-russia-shadow-fleet-oil-tanker-channel.html
+
+**Knicks Give Their City Something New: Impossible Joy**\
+`At long last, the team that New York City cares about the most has loved it back.`\
+https://www.nytimes.com/2026/06/14/nyregion/knicks-new-york-city-nba-championship-win.html
+
 **Fans Celebrate Knicks’ First N.B.A. Title in 53 Years**\
 `New York City erupted in celebration after the Knicks defeated the San Antonio Spurs in Game 5 of the N.B.A. finals to win their first championship since 1973.`\
 https://www.nytimes.com/video/nyregion/100000010966194/knicks-nba-championship.html
