@@ -1,3 +1,7 @@
+**Switzerland Rejects Measure to Cap Its Population at 10 Million**\
+`The referendum was about limiting migration after the number of residents rose by more than a quarter since 2000, but it was framed around affordability and sustainability.`\
+https://www.nytimes.com/2026/06/14/world/europe/switzerland-population-cap-referendum.html
+
 **1 Teen Shot and 4 People Stabbed Near MSG During Knicks Celebration**\
 `More than a dozen people were also arrested, and several school buses were set on fire after the New York Knicks defeated the San Antonio Spurs in Game 5 of the N.B.A. finals.`\
 https://www.nytimes.com/2026/06/14/nyregion/knicks-nba-celebrations-msg-nyc-shooting.html

@@ -34,7 +34,7 @@ https://www.nytimes.com/2026/06/14/opinion/meat-industry.html
 `The attacks complicated an already delicate moment as President Trump and Iran appeared to be edging toward finalizing a framework peace agreement.`\
 https://www.nytimes.com/2026/06/14/world/middleeast/israel-strikes-beirut-hezbollah.html
 
-**Switzerland Rejects Measure to Cap Population at 10 Million, Projections Show**\
+**Switzerland Rejects Measure to Cap Its Population at 10 Million**\
 `The referendum was about limiting migration after the number of residents rose by more than a quarter since 2000, but it was framed around affordability and sustainability.`\
 https://www.nytimes.com/2026/06/14/world/europe/switzerland-population-cap-referendum.html
 
