@@ -1,3 +1,7 @@
+**Knicks Will Get a Ticker-Tape Parade on Thursday**\
+`Mayor Zohran Mamdani will present the team with the keys to the city. He said the parade will be the Knicks’ first in team history.`\
+https://www.nytimes.com/2026/06/14/nyregion/knicks-championship-parade.html
+
 **Iran War Live Updates: U.S. and Tehran Send Mixed Signals on Emerging Peace Agreement**\
 `President Trump said it would be signed on Sunday, but Iran’s Foreign Ministry cautioned that the timeline could be slower.`\
 https://www.nytimes.com/live/2026/06/14/world/iran-war-trump-us
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/13/opinion/trump-ufc-fight-freedom-250-birthday-
 **How to Kick SpaceX Out of Your 401(k)**\
 `It is impossible to beat the stock market. But if you want to divest your retirement of Elon Musk-related companies, here is the best way to do so.`\
 https://www.nytimes.com/2026/06/13/opinion/spacex-stock-ipo-ai.html
-
-**I’m a 53-Year-Old Woman. Stop Telling Me I’m Invisible.**\
-`There’s never been a better time to be a middle-aged woman.`\
-https://www.nytimes.com/2026/06/13/opinion/middle-age-women-invisible.html
 
