@@ -1,3 +1,7 @@
+**UK Forces Seize Russian Shadow Fleet Oil Tanker**\
+`Britain’s Defense Ministry said it was the first time that British forces had acted alone to stop a ship in the fleet, a collection of vessels that Russia uses to move fuel and evade sanctions.`\
+https://www.nytimes.com/2026/06/14/world/europe/uk-russia-shadow-fleet-oil-tanker-channel.html
+
 **The Knicks as Religious Experience**\
 `Knicks fans are waking up from the hangover of a really good trip. One that, some said, let them see God.`\
 https://www.nytimes.com/2026/06/14/briefing/knicks-religion-brunson-new-york.html
