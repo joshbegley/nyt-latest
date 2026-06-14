@@ -1,3 +1,11 @@
+**UK Forces Seize Russian Shadow Fleet Oil Tanker**\
+`Britain’s defense ministry said it was the first time that British forces had acted alone to stop a ship in the fleet, a collection of vessels that Russia uses to move fuel and evade sanctions.`\
+https://www.nytimes.com/2026/06/14/world/europe/uk-russia-shadow-fleet-oil-tanker-channel.html
+
+**Knicks Give Their City Something New: Impossible Joy**\
+`At long last, the team that New York City cares about the most has loved it back.`\
+https://www.nytimes.com/2026/06/14/nyregion/knicks-new-york-city-nba-championship-win.html
+
 **Fans Celebrate Knicks’ First N.B.A. Title in 53 Years**\
 `New York City erupted in celebration after the Knicks defeated the San Antonio Spurs in Game 5 of the N.B.A. finals to win their first championship since 1973.`\
 https://www.nytimes.com/video/nyregion/100000010966194/knicks-nba-championship.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/13/us/politics/trump-lawyer-us-attorney-manhatta
 **Fans Swarm New York to Celebrate Knicks’ N.B.A. Title**\
 `Knicks fans shut down parts of New York City after their team defeated the San Antonio Spurs to win the N.B.A. championship for the first time since 1973.`\
 https://www.nytimes.com/live/2026/06/13/nyregion/nba-finals-knicks-spurs
-
-**Top Haitian Security Official Kidnapped**\
-`A security expert who had recently become chief of staff to the new defense minister was abducted, the latest example of violence gripping the country.`\
-https://www.nytimes.com/2026/06/13/world/americas/top-haitian-security-official-kidnapped.html
-
-**Yosemite Ranger’s Suit Over Trans Flag at El Capitan Is Dismissed**\
-`The ranger, who was fired after hanging the flag, sued the government on free speech grounds. On Friday, a judge dismissed the case, saying the court lacked the authority to rule.`\
-https://www.nytimes.com/2026/06/13/us/politics/yosemite-ranger-lawsuit-transgender-flag-judge-ruling.html
 
