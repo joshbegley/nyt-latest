@@ -1,3 +1,7 @@
+**‘We’ve Arrived!’: Cape Verde Fans Exult in World Cup Draw With Spain**\
+`Cape Verde, a tiny island nation off the West African coast, is among the smallest countries to ever qualify for the World Cup. Fans marveled that it held the line against a tournament favorite.`\
+https://www.nytimes.com/2026/06/15/us/cape-verde-spain-draw-world-cup.html
+
 **Dawn Richard’s Lawsuit Against Sean Combs Dismissed**\
 `Ms. Richard, a singer who once worked with the music mogul, accused him of creating an abusive work environment. The judge said her claims came too late.`\
 https://www.nytimes.com/2026/06/15/arts/music/sean-combs-lawsuit-dismissed-dawn-richard.html
@@ -42,8 +46,8 @@ https://www.nytimes.com/2026/06/15/nyregion/ny-regent-exams-knicks-parade.html
 `China and Russia have both given support to Iran during the war that the United States and Israel started. But President Trump has made no mention of that.`\
 https://www.nytimes.com/2026/06/15/us/trump-thanks-china-russia.html
 
-**Democrats Warn Trump Officials Not to Pursue Arch Project Without Congress**\
-`In a letter to Interior Secretary Doug Burgum and national parks officials, lawmakers said that members of the administration could face fines and even criminal prosecution.`\
+**Lawmakers Warn Trump Officials Not to Pursue Arch Project Without Congress**\
+`In a letter to Interior Secretary Doug Burgum and national parks officials, several Democrats and a Senate independent said that members of the administration could face fines and even criminal prosecution.`\
 https://www.nytimes.com/2026/06/15/us/politics/trump-triumphal-arch-congress.html
 
 **Gov. Gavin Newsom Says Trump Is Investigating Him and His Wife**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/15/special-series/siddhartha-mukherjee-artificia
 **Trump Winds Down the War He Started With Goals Unmet**\
 `While the president says the agreement with Iran would open the Strait of Hormuz and provide economic relief, the country’s nuclear program is still a subject for negotiation.`\
 https://www.nytimes.com/2026/06/15/world/middleeast/iran-deal-hormuz-trump-goals.html
-
-**Israel Counts the Ways That Netanyahu’s Iran Strategy Failed**\
-`The U.S.-Iran framework agreement appears to omit some of the most important provisions that Israel wanted.`\
-https://www.nytimes.com/2026/06/15/world/middleeast/israel-netanyahus-iran-strategy.html
 

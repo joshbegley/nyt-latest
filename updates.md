@@ -1,3 +1,11 @@
+**‘We’ve Arrived!’: Cape Verde Fans Exult in World Cup Draw With Spain**\
+`Cape Verde, a tiny island nation off the West African coast, is among the smallest countries to ever qualify for the World Cup. Fans marveled that it held the line against a tournament favorite.`\
+https://www.nytimes.com/2026/06/15/us/cape-verde-spain-draw-world-cup.html
+
+**Lawmakers Warn Trump Officials Not to Pursue Arch Project Without Congress**\
+`In a letter to Interior Secretary Doug Burgum and national parks officials, several Democrats and a Senate independent said that members of the administration could face fines and even criminal prosecution.`\
+https://www.nytimes.com/2026/06/15/us/politics/trump-triumphal-arch-congress.html
+
 **Dawn Richard’s Lawsuit Against Sean Combs Dismissed**\
 `Ms. Richard, a singer who once worked with the music mogul, accused him of creating an abusive work environment. The judge said her claims came too late.`\
 https://www.nytimes.com/2026/06/15/arts/music/sean-combs-lawsuit-dismissed-dawn-richard.html
