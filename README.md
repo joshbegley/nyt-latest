@@ -1,3 +1,7 @@
+**Read an FBI agent’s email about the impending arrest of Jeffrey Epstein**\
+`An FBI agent briefs colleagues that Epstein will be flying from Paris into Teterboro Airport in New Jersey, where they will attempt to arrest him upon his landing on July 6, 2019.`\
+https://www.nytimes.com/interactive/2026/06/15/us/teterboro-email.html
+
 **Britain Proposes Social Media Ban for Children Under 16**\
 `Prime Minister Keir Starmer of Britain said that the government would introduce new regulations later this year to ban social media for children under 16. The measures, expected to take effect in early 2027, will also include restrictions on some game platforms and livestreaming apps.`\
 https://www.nytimes.com/video/world/europe/100000010968328/britain-social-media-ban.html
@@ -127,7 +131,7 @@ https://www.nytimes.com/2026/06/15/arts/music/sean-combs-lawsuit-dismissed-dawn-
 https://www.nytimes.com/2026/06/15/world/europe/november-17-giotopoulos-prison-release.html
 
 **B-52 Bomber Crashes at Edwards Air Force Base in California**\
-`The crash occurred shortly after takeoff this morning from Edwards Air Force Base in California. Emergency crews were responding to the site.`\
+`The crash occurred shortly after takeoff this morning from Edwards Air Force Base in California. Initial indications were that the accident was “not survivable,” officials said.`\
 https://www.nytimes.com/2026/06/15/us/b-52-crash-edwards-air-force-base-california.html
 
 **In Its Tragic Finale, ‘Romeo and Juliet’ Is Interrupted by a Cat**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/es/2026/06/15/espanol/mundo/hijo-princesa-noruega-violac
 **Displaced Lebanese Families Warned Not to Return Home**\
 `Lebanese families displaced by fighting between Israel and Hezbollah were warned not to return home despite the U.S.-Iran framework agreement.`\
 https://www.nytimes.com/video/world/middleeast/100000010967572/displaced-lebanese-families-warned-not-to-return-home.html
-
-**Trump’s UFC Fight Night Was as Absurd as Promised**\
-`American dignity, down for the count.`\
-https://www.nytimes.com/2026/06/15/opinion/trump-ufc-fight.html
 
