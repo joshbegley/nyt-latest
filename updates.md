@@ -1,3 +1,7 @@
+**Why the U.S.-Iran Deal Might Work, and Why It Might Not**\
+`For all of the cautious optimism surrounding the framework agreement, some of the toughest issues lie ahead, and the deal could still fall apart.`\
+https://www.nytimes.com/2026/06/15/world/middleeast/us-iran-deal-strait-weapons-israel.html
+
 **What Is Contemporary Dance? Lincoln Center Invests in Finding Out**\
 `Thanks to a $50 million grant, a new festival has been born. Kyle Abraham helps to curate the first edition, which is part of the center’s Summer of Dance.`\
 https://www.nytimes.com/2026/06/15/arts/dance/lincoln-center-summer-of-dance-contemporary-festival.html
