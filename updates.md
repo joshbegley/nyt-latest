@@ -1,3 +1,15 @@
+**Shipping Firms, Awaiting Details, Are Cautious of U.S.-Iran Deal**\
+`Shipowners welcomed the agreement to reopen the Strait of Hormuz, but said they would need more security guarantees before resuming transits.`\
+https://www.nytimes.com/2026/06/15/business/us-iran-deal-shipping-companies-strait-of-hormuz.html
+
+**What to Know About Planned Social Media Bans in Australia, the U.K. and Beyond**\
+`Britain said it would ban social media access for children under 16 starting in 2027, joining several other countries introducing similar measures.`\
+https://www.nytimes.com/2026/06/15/world/europe/social-media-bans-worldwide.html
+
+**On the Nuclear Issue, Each Side Finds a Way to Claim Victory**\
+`President Trump said Iran had promised to suspend enriching uranium, but it is unclear for how long.`\
+https://www.nytimes.com/2026/06/15/world/middleeast/nuclear-iran-united-states.html
+
 **Tensions Are Rising Between States That Rely on the Colorado River**\
 `A prolonged drought means the nation’s largest reservoirs are dwindling, and litigation over access to water could lie ahead.`\
 https://www.nytimes.com/2026/06/15/climate/colorado-river-drought-states.html
