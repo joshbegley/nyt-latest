@@ -1,3 +1,11 @@
+**Netanyahu Says Israel Will Keep Forces in Lebanon, Despite U.S.-Iran Deal**\
+`“The struggle has not ended,” a defiant Prime Minister Benjamin Netanyahu told Israelis.`\
+https://www.nytimes.com/2026/06/15/world/middleeast/netanyahu-israel-iran.html
+
+**Newsom Says Trump Is Investigating Him and His Wife**\
+`In a video posted on social media on Monday, Gov. Gavin Newsom of California said President Trump used the Justice Department to investigate him and his wife, Jennifer Siebel Newsom.`\
+https://www.nytimes.com/video/us/politics/100000010968932/trump-gavin-newsom-wife-investigation.html
+
 **The UFC 250 Was a Garish Spectacle of American Decline**\
 `Only the hackiest screenwriter imaginable would script America’s debasement this way.`\
 https://www.nytimes.com/2026/06/15/opinion/ufc-freedom-250-fight.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/15/arts/music/abdullah-ibrahim-dead.html
 **Trump disipa la guerra en Irán sin lograr todas sus metas**\
 `A pesar de las fanfarrias con los que Trump anunció el acuerdo preliminar de paz, aún no ha logrado las metas fundamentales que él mismo estableció para iniciar la guerra en Irán.`\
 https://www.nytimes.com/es/2026/06/15/espanol/mundo/trump-guerra-iran-acuerdo-paz.html
-
-**How Does One Brain Speak Two Languages?**\
-`A new study of bilingual speakers suggests that a single “grammatical engine” in the brain can power multiple languages at once.`\
-https://www.nytimes.com/2026/06/15/science/brain-language-grammar.html
-
-**El hijo de la princesa de Noruega es condenado de violación**\
-`Un tribunal en Oslo declaró a Marius Borg Hoiby culpable de dos cargos de violación y otros delitos.`\
-https://www.nytimes.com/es/2026/06/15/espanol/mundo/hijo-princesa-noruega-violacion.html
 
