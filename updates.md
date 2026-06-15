@@ -1,3 +1,7 @@
+**Iran War Live Updates: U.S. and Tehran Reach Framework for Peace**\
+`The deal was expected to open the Strait of Hormuz and lift the U.S. naval blockade on Iranian ports. But it would leave the thorniest nuclear issues for another day.`\
+https://www.nytimes.com/live/2026/06/14/world/iran-war-trump-us
+
 **Hormuz Reopening Would Offer Relief for Asia, but Economic Scars Will Remain**\
 `For months, Asia has suffered a physical supply crunch that will likely drag on its economies long after the crucial waterway reopens.`\
 https://www.nytimes.com/2026/06/14/business/hormuz-reopen-iran.html
