@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/06/15/world/middleeast/on-the-nuclear-issue-each-si
 `Plus, crafting the perfect grass for the World Cup.`\
 https://www.nytimes.com/2026/06/15/podcasts/the-headlines/us-iran-deal-ufc-fight-at-the-white-house.html
 
-**Inside Trump’s Deal With Iran**\
+**Inside Trump’s New Deal With Iran**\
 `Washington and Tehran reached an agreement that paved the way for further talks to ultimately end the war. President Trump discussed it with The Times.`\
 https://www.nytimes.com/2026/06/15/podcasts/the-daily/us-and-iran-cease-fire-agreement.html
 
