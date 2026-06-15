@@ -1,3 +1,7 @@
+**The UFC 250 Was a Garish Spectacle of American Decline**\
+`Only the hackiest screenwriter imaginable would script America’s debasement this way.`\
+https://www.nytimes.com/2026/06/15/opinion/ufc-freedom-250-fight.html
+
 **Read an FBI agent’s email about the impending arrest of Jeffrey Epstein**\
 `An FBI agent briefs colleagues that Epstein will be flying from Paris into Teterboro Airport in New Jersey, where they will attempt to arrest him upon his landing on July 6, 2019.`\
 https://www.nytimes.com/interactive/2026/06/15/us/teterboro-email.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/15/science/brain-language-grammar.html
 **El hijo de la princesa de Noruega es condenado de violación**\
 `Un tribunal en Oslo declaró a Marius Borg Hoiby culpable de dos cargos de violación y otros delitos.`\
 https://www.nytimes.com/es/2026/06/15/espanol/mundo/hijo-princesa-noruega-violacion.html
-
-**Displaced Lebanese Families Warned Not to Return Home**\
-`Lebanese families displaced by fighting between Israel and Hezbollah were warned not to return home despite the U.S.-Iran framework agreement.`\
-https://www.nytimes.com/video/world/middleeast/100000010967572/displaced-lebanese-families-warned-not-to-return-home.html
 
