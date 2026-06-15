@@ -1,3 +1,11 @@
+**N.Y. Officials Reject Students’ Pleas to Move Exams for Knicks Parade**\
+`The championship celebration starts at 10 a.m. Thursday, just as some of the state Regents tests begin. Students had organized petitions calling for the exams to be delayed.`\
+https://www.nytimes.com/2026/06/15/nyregion/ny-regent-exams-knicks-parade.html
+
+**Man Suspected in 2017 Shoving of a London Woman Into Bus Path Is Arrested**\
+`The case had remained unresolved since May 2017, when a woman was sent tumbling into a bus lane on Putney Bridge. She escaped uninjured after the bus driver swerved.`\
+https://www.nytimes.com/2026/06/15/world/europe/london-jogger-shoved-bus-arrest.html
+
 **Trump Thanks China and Russia, Partners of Iran, for Diplomatic Help**\
 `China and Russia have both given support to Iran during the war that the United States and Israel started. But President Trump has made no mention of that.`\
 https://www.nytimes.com/2026/06/15/us/trump-thanks-china-russia.html

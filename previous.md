@@ -1,3 +1,7 @@
+**N.Y. Officials Reject Students’ Pleas to Move Exams for Knicks Parade**\
+`The championship celebration starts at 10 a.m. Thursday, just as some of the state Regents tests begin. Students had organized petitions calling for the exams to be delayed.`\
+https://www.nytimes.com/2026/06/15/nyregion/ny-regent-exams-knicks-parade.html
+
 **Trump Thanks China and Russia, Partners of Iran, for Diplomatic Help**\
 `China and Russia have both given support to Iran during the war that the United States and Israel started. But President Trump has made no mention of that.`\
 https://www.nytimes.com/2026/06/15/us/trump-thanks-china-russia.html
@@ -62,7 +66,7 @@ https://www.nytimes.com/2026/06/15/style/fashion-ufc-fight-trump-white-house.htm
 `The agent, who was injured during the incident near the Jersey Shore, opened fire. The person who was being targeted by immigration authorities fled.`\
 https://www.nytimes.com/2026/06/15/nyregion/ice-agent-hit-car-nj.html
 
-**London Man Suspected in 2017 Shoving of a Woman Into Bus Path Is Arrested**\
+**Man Suspected in 2017 Shoving of a London Woman Into Bus Path Is Arrested**\
 `The case had remained unresolved since May 2017, when a woman was sent tumbling into a bus lane on Putney Bridge. She escaped uninjured after the bus driver swerved.`\
 https://www.nytimes.com/2026/06/15/world/europe/london-jogger-shoved-bus-arrest.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/15/business/dealbook/trump-iran-peace-rally.html
 ****\
 `tktktkt`\
 https://www.nytimes.com/video/embedded/business/100000010967708/15visualUploader-13306.html
-
-**U.K. Ban on Pro-Palestinian Protest Group Is Lawful, Court of Appeal Rules**\
-`The decision overturned a lower-court ruling that had found that banning Palestine Action as a terrorist group had breached free speech rights.`\
-https://www.nytimes.com/2026/06/15/world/europe/uk-palestine-action-ban-appeal.html
 
