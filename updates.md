@@ -1,3 +1,7 @@
+**Trump disipa la guerra en Irán sin lograr todas sus metas**\
+`A pesar de las fanfarrias con los que Trump anunció el acuerdo preliminar de paz, aún no ha logrado las metas fundamentales que él mismo estableció para iniciar la guerra en Irán.`\
+https://www.nytimes.com/es/2026/06/15/espanol/mundo/trump-guerra-iran-acuerdo-paz.html
+
 **How Does One Brain Speak Two Languages?**\
 `A new study of bilingual speakers suggests that a single “grammatical engine” in the brain can power multiple languages at once.`\
 https://www.nytimes.com/2026/06/15/science/brain-language-grammar.html

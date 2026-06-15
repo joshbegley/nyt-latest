@@ -1,3 +1,7 @@
+**Trump disipa la guerra en Irán sin lograr todas sus metas**\
+`A pesar de las fanfarrias con los que Trump anunció el acuerdo preliminar de paz, aún no ha logrado las metas fundamentales que él mismo estableció para iniciar la guerra en Irán.`\
+https://www.nytimes.com/es/2026/06/15/espanol/mundo/trump-guerra-iran-acuerdo-paz.html
+
 **How Does One Brain Speak Two Languages?**\
 `A new study of bilingual speakers suggests that a single “grammatical engine” in the brain can power multiple languages at once.`\
 https://www.nytimes.com/2026/06/15/science/brain-language-grammar.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/15/world/middleeast/us-iran-deal.html
 **A Deal in Iran**\
 `The United States and Iran have a deal that could lead to the end of their monthslong war.`\
 https://www.nytimes.com/2026/06/15/briefing/a-deal-in-iran.html
-
-**China Moves the Price of Oil, Even When It Buys Less**\
-`China is the world’s largest purchaser of oil. But three months after the war with Iran began, it cut its imports, cushioning the global market.`\
-https://www.nytimes.com/2026/06/15/business/china-oil-iran.html
 

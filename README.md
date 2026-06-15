@@ -194,7 +194,3 @@ https://www.nytimes.com/2026/06/15/weather/ohio-pennsylvania-power-outages.html
 `The full text of the deal that could pave the way to ending the war has not been published. Initial details suggest that it defers the most contentious issues.`\
 https://www.nytimes.com/2026/06/15/world/middleeast/us-iran-deal.html
 
-**A Deal in Iran**\
-`The United States and Iran have a deal that could lead to the end of their monthslong war.`\
-https://www.nytimes.com/2026/06/15/briefing/a-deal-in-iran.html
-
