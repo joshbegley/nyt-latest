@@ -1,3 +1,11 @@
+**Trump Thanks China and Russia, Partners of Iran, for Diplomatic Help**\
+`China and Russia have both given support to Iran during the war that the United States and Israel started. But President Trump has made no mention of that.`\
+https://www.nytimes.com/2026/06/15/us/trump-thanks-china-russia.html
+
+**Democrats Warn Trump Officials Not to Pursue Arch Project Without Congress**\
+`In a letter to Interior Secretary Doug Burgum and national parks officials, lawmakers said that members of the administration could face fines and even criminal prosecution.`\
+https://www.nytimes.com/2026/06/15/us/politics/trump-triumphal-arch-congress.html
+
 **Gov. Gavin Newsom Says Trump Is Investigating Him and His Wife**\
 `Aides to Gov. Gavin Newsom of California say several people associated with the couple have been contacted by federal agents in the past week. He criticized the move as politically motivated.`\
 https://www.nytimes.com/2026/06/15/us/newsom-trump-doj-investigation.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/video/embedded/business/100000010967708/15visualUploader
 **U.K. Ban on Pro-Palestinian Protest Group Is Lawful, Court of Appeal Rules**\
 `The decision overturned a lower-court ruling that had found that banning Palestine Action as a terrorist group had breached free speech rights.`\
 https://www.nytimes.com/2026/06/15/world/europe/uk-palestine-action-ban-appeal.html
-
-**Cautious of U.S.-Iran Deal, Shipping Firms Await Strait to Reopen**\
-`Shipowners welcomed the agreement to reopen the Strait of Hormuz, but said they would need more security guarantees before resuming transits.`\
-https://www.nytimes.com/2026/06/15/business/us-iran-deal-shipping-companies-strait-of-hormuz.html
-
-**What to Know About Planned Social Media Bans in Australia, the U.K. and Beyond**\
-`Britain said it would ban social media access for children under 16 starting in 2027, joining several other countries introducing similar measures.`\
-https://www.nytimes.com/2026/06/15/world/europe/social-media-bans-worldwide.html
 

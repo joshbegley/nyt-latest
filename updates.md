@@ -1,3 +1,11 @@
+**Trump Thanks China and Russia, Partners of Iran, for Diplomatic Help**\
+`China and Russia have both given support to Iran during the war that the United States and Israel started. But President Trump has made no mention of that.`\
+https://www.nytimes.com/2026/06/15/us/trump-thanks-china-russia.html
+
+**Democrats Warn Trump Officials Not to Pursue Arch Project Without Congress**\
+`In a letter to Interior Secretary Doug Burgum and national parks officials, lawmakers said that members of the administration could face fines and even criminal prosecution.`\
+https://www.nytimes.com/2026/06/15/us/politics/trump-triumphal-arch-congress.html
+
 **Gov. Gavin Newsom Says Trump Is Investigating Him and His Wife**\
 `Aides to Gov. Gavin Newsom of California say several people associated with the couple have been contacted by federal agents in the past week. He criticized the move as politically motivated.`\
 https://www.nytimes.com/2026/06/15/us/newsom-trump-doj-investigation.html
