@@ -1,3 +1,15 @@
+**Algae Is Turning the Reflecting Pool Green. Again.**\
+`Algal blooms have hit the site, between the Lincoln Memorial and the Washington Monument, after a $14.2 million repair project.`\
+https://www.nytimes.com/2026/06/15/climate/reflecting-pool-algae-green.html
+
+**As Russia Strikes Ukraine, a Cultural Symbol Catches Fire**\
+`The latest casualty in the war is a centuries-old cathedral. President Volodymyr Zelensky called it “one of the largest Russian crimes against Christian culture.”`\
+https://www.nytimes.com/2026/06/15/world/europe/ukraine-dormition-cathedral-strike.html
+
+**Dawn Richard’s Lawsuit Against Sean Combs Is Dismissed**\
+`Ms. Richard, a singer who once worked with the music mogul, accused him of creating an abusive work environment. The judge said her claims came too late.`\
+https://www.nytimes.com/2026/06/15/arts/music/sean-combs-lawsuit-dismissed-dawn-richard.html
+
 **Investigators Look for Electronic Devices of Victims in Skydiving Crash**\
 `The aircraft that went down in Butler, Mo., on Sunday was not required to have had a voice recorder, a National Transportation Safety Board official said.`\
 https://www.nytimes.com/2026/06/15/us/skydiving-plane-crash-missouri.html

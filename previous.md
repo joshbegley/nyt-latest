@@ -1,3 +1,11 @@
+**Algae Is Turning the Reflecting Pool Green. Again.**\
+`Algal blooms have hit the site, between the Lincoln Memorial and the Washington Monument, after a $14.2 million repair project.`\
+https://www.nytimes.com/2026/06/15/climate/reflecting-pool-algae-green.html
+
+**As Russia Strikes Ukraine, a Cultural Symbol Catches Fire**\
+`The latest casualty in the war is a centuries-old cathedral. President Volodymyr Zelensky called it “one of the largest Russian crimes against Christian culture.”`\
+https://www.nytimes.com/2026/06/15/world/europe/ukraine-dormition-cathedral-strike.html
+
 **Investigators Look for Electronic Devices of Victims in Skydiving Crash**\
 `The aircraft that went down in Butler, Mo., on Sunday was not required to have had a voice recorder, a National Transportation Safety Board official said.`\
 https://www.nytimes.com/2026/06/15/us/skydiving-plane-crash-missouri.html
@@ -10,7 +18,7 @@ https://www.nytimes.com/2026/06/15/weather/texas-rain-flooding-storm.html
 `Cape Verde, a tiny island nation off the West African coast, is among the smallest countries to ever qualify for the World Cup. Fans marveled that it held the line against a tournament favorite.`\
 https://www.nytimes.com/2026/06/15/us/cape-verde-spain-draw-world-cup.html
 
-**Dawn Richard’s Lawsuit Against Sean Combs Dismissed**\
+**Dawn Richard’s Lawsuit Against Sean Combs Is Dismissed**\
 `Ms. Richard, a singer who once worked with the music mogul, accused him of creating an abusive work environment. The judge said her claims came too late.`\
 https://www.nytimes.com/2026/06/15/arts/music/sean-combs-lawsuit-dismissed-dawn-richard.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/15/arts/dance/lincoln-center-summer-of-dance-con
 **Sheet Pan Tarte Tatin**\
 `This large-format tarte Tatin is nontraditional — it’s made almost entirely in the oven in a jellyroll pan rather than getting cooked on the stovetop in a skillet — but the flavor combination of caramel, apples and buttery pastry is classic.`\
 https://www.nytimes.com/video/dining/100000010964832/sheet-pan-tarte-tatin.html
-
-**Test Your Knowledge of Books That Inspired Popular Screen Adaptations**\
-`Books about pivotal moments in America’s past are often transformed into films or television shows. Try this quiz to see if you can identify these five adaptations.`\
-https://www.nytimes.com/interactive/2026/06/15/books/review/history-books-quiz.html
-
-**Oliver Tree habría fallecido en una colisión de helicópteros en Brasil**\
-`Las autoridades dijeron que al menos seis personas habían muerto al estrellarse dos helicópteros en Río de Janeiro el domingo.`\
-https://www.nytimes.com/es/2026/06/15/espanol/america-latina/choque-helicopteros-brasil-oliver-tree.html
 
