@@ -1,3 +1,7 @@
+**Investigators Look for Electronic Devices of Victims in Skydiving Crash**\
+`The aircraft that went down in Butler, Mo., on Sunday was not required to have had a voice recorder, a National Transportation Safety Board official said.`\
+https://www.nytimes.com/2026/06/15/us/skydiving-plane-crash-missouri.html
+
 **Major Flooding Expected in Texas and Across the Gulf Coast**\
 `Downpours prompted flash flood warnings in Houston and San Antonio on Monday, and more rain is on the way.`\
 https://www.nytimes.com/2026/06/15/weather/texas-rain-flooding-storm.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/interactive/2026/06/15/books/review/history-books-quiz.h
 **Oliver Tree habría fallecido en una colisión de helicópteros en Brasil**\
 `Las autoridades dijeron que al menos seis personas habían muerto al estrellarse dos helicópteros en Río de Janeiro el domingo.`\
 https://www.nytimes.com/es/2026/06/15/espanol/america-latina/choque-helicopteros-brasil-oliver-tree.html
-
-**Siddhartha Mukherjee: Can A.I. Share Our Need to Belong?**\
-`The source code of human belonging has seemingly drifted. How can we ensure that artificial intelligence doesn’t get similarly corrupted?`\
-https://www.nytimes.com/2026/06/15/special-series/siddhartha-mukherjee-artificial-intelligence.html
 
