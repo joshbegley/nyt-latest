@@ -1,3 +1,11 @@
+**SpaceX’s Stock Rises Ahead of First Full Day of Trading**\
+`After notching big gains on its debut on Friday, the company’s shares jumped again on Monday before the market opened.`\
+https://www.nytimes.com/2026/06/15/business/spacex-stock.html
+
+**Fox to Acquire Roku, Joining the Battle for the Living Room**\
+`The $22 billion deal will bolster Fox Corp.’s efforts to reach consumers on streaming platforms.`\
+https://www.nytimes.com/2026/06/15/business/fox-roku-acquisition-streaming-media.html
+
 **Read Will Scharf’s Confidential Habeas Corpus Memo**\
 `Will Scharf, the White House staff secretary, wrote a secret memo to Susie Wiles, the White House chief of staff, outlining his concerns about suspending habeas rights for unauthorized immigrants.`\
 https://www.nytimes.com/interactive/2026/06/15/us/politics/trump-miller-habeas-corpus.html
