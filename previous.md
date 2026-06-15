@@ -1,3 +1,7 @@
+**Singer Oliver Tree Is Said to Have Died in Collision of Helicopters in Brazil**\
+`The two helicopters crashed in Rio de Janeiro on Sunday, killing at least six people, the authorities said.`\
+https://www.nytimes.com/2026/06/14/arts/music/oliver-tree-dead-brazil-helicopter-crash.html
+
 **Trump pierde terreno entre la clase trabajadora blanca**\
 `Un análisis de los datos de las encuestas muestra un cambio extraordinario entre los votantes blancos de clase trabajadora respecto a la gestión económica del presidente.`\
 https://www.nytimes.com/es/2026/06/14/espanol/estados-unidos/trump-aprobacion-encuestas.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/the-daily/100000010961559/does-steven-spi
 **Do Aliens Exist? Steven Spielberg Believes They Do**\
 `Director Steven Spielberg joins Rachel Abrams on “The Daily” to talk about his return to alien movies with “Disclosure Day.” An icon of the movie world, Spielberg also discusses how fear has always fueled his filmmaking, and why people stopped talking to him after “Jaws.”`\
 https://www.nytimes.com/video/podcasts/the-daily/100000010961486/do-aliens-exist-steven-spielberg-believes-they-do.html
-
-**The Tiny Solar Panel That Could Change America**\
-`I hope balcony solar’s charisma and low cost help us imagine the energy-abundant future we are so close to achieving.`\
-https://www.nytimes.com/2026/06/14/opinion/solar-panels-balcony-backyard-plugin.html
 

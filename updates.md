@@ -1,3 +1,7 @@
+**Singer Oliver Tree Is Said to Have Died in Collision of Helicopters in Brazil**\
+`The two helicopters crashed in Rio de Janeiro on Sunday, killing at least six people, the authorities said.`\
+https://www.nytimes.com/2026/06/14/arts/music/oliver-tree-dead-brazil-helicopter-crash.html
+
 **Trump pierde terreno entre la clase trabajadora blanca**\
 `Un análisis de los datos de las encuestas muestra un cambio extraordinario entre los votantes blancos de clase trabajadora respecto a la gestión económica del presidente.`\
 https://www.nytimes.com/es/2026/06/14/espanol/estados-unidos/trump-aprobacion-encuestas.html
