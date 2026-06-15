@@ -1,3 +1,11 @@
+**No Corrections: June 15, 2026**\
+`No corrections appeared in print on Monday, June 15, 2026.`\
+https://www.nytimes.com/2026/06/15/pageoneplus/no-corrections-june-15-2026.html
+
+**Quote of the Day: Pinch Yourselves, Knicks Fans: Next Year Is Now**\
+`Quotation of the Day for Monday, June 15, 2026.`\
+https://www.nytimes.com/2026/06/15/pageoneplus/quote-of-the-day-pinch-yourselves-knicks-fans-next-year-is-now.html
+
 **Hormuz Reopening Would Offer Relief for Asia, but Economic Scars Will Remain**\
 `For months, Asia has suffered a physical supply crunch that will likely drag on its economies long after the crucial waterway reopens.`\
 https://www.nytimes.com/2026/06/14/business/hormuz-reopen-iran.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/14/opinion/christian-nationalism-maga-france.htm
 **What the Cult of Efficiency Costs Us**\
 `The Save Our Bacon Act is bad for pigs and bad for us.`\
 https://www.nytimes.com/2026/06/14/opinion/chris-murphy-save-bacon-pigs.html
-
-**How ‘Jaws’ Made People Stop Talking to Steven Spielberg**\
-`Steven Spielberg explains how his early blockbuster success caused his collaborators to suddenly stop giving him feedback.`\
-https://www.nytimes.com/video/podcasts/the-daily/100000010963369/how-jaws-made-people-stop-talking-to-steven-spielberg.html
-
-**Was E.T. Slimy or Dry? Spielberg Weighs In**\
-`On “The Daily,” Steven Spielberg settles an important debate: Was E.T. slimy or dry?`\
-https://www.nytimes.com/video/podcasts/the-daily/100000010962076/was-et-slimy-or-dry-spielberg-weighs-in.html
 
 **Iran War Live Updates: U.S. and Tehran Reach Framework for Peace**\
 `The deal was expected to open the Strait of Hormuz and lift the U.S. naval blockade on Iranian ports. But it would leave the thorniest nuclear issues for another day.`\
