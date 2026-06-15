@@ -1,3 +1,7 @@
+**Una papa misteriosa en el cielo de Colorado aparece en los archivos sobre ovnis**\
+`Las papas ya han aparecido en avistamientos anteriores, así como en viajes espaciales reales y de ficción.`\
+https://www.nytimes.com/es/2026/06/15/espanol/estados-unidos/pentagono-ovni-papa.html
+
 **Trump Hosts U.F.C. Event at the White House**\
 `President Trump turned 80 on Sunday and celebrated with a $60 million Ultimate Fighting Championship event at the White House.`\
 https://www.nytimes.com/video/us/100000010967377/trump-ufc-white-house.html
@@ -186,15 +190,11 @@ https://www.nytimes.com/2026/06/14/arts/television/tyra-banks-netflix-lawsuit-de
 `The Trump Organization says the president has no control over his stock positions, including that of TKO Group, which runs the Ultimate Fighting Championship.`\
 https://www.nytimes.com/2026/06/14/us/politics/trump-ufc-tko-group.html
 
-**Jane Yolen, Whose Books for Children Drew on Everyday Life, Dies at 87**\
-`She wrote some 450 books, including novels, poetry and nonfiction in many genres. One critic called her “a modern equivalent to Aesop.”`\
-https://www.nytimes.com/2026/06/14/books/jane-yolen-dead.html
-
-**1 Teen Shot and 4 People Stabbed Near MSG During Knicks Celebration**\
-`More than a dozen people were also arrested and several school buses were set on fire after the Knicks defeated the San Antonio Spurs in Game 5 of the N.B.A. finals.`\
-https://www.nytimes.com/2026/06/14/nyregion/knicks-nba-celebrations-msg-nyc-shooting.html
-
 **U.S. and Iran Reach Framework for Peace**\
 `The deal was expected to open the Strait of Hormuz and lift the U.S. naval blockade on Iranian ports. But it would leave the thorniest nuclear issues for another day.`\
 https://www.nytimes.com/live/2026/06/14/world/iran-war-trump-us
+
+**World Cup Updates: The Secrets of a Soccer Turf Master**\
+`(No description)`\
+https://www.nytimes.com/live/2026/us/fifa-world-cup
 

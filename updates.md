@@ -1,3 +1,11 @@
+**Una papa misteriosa en el cielo de Colorado aparece en los archivos sobre ovnis**\
+`Las papas ya han aparecido en avistamientos anteriores, así como en viajes espaciales reales y de ficción.`\
+https://www.nytimes.com/es/2026/06/15/espanol/estados-unidos/pentagono-ovni-papa.html
+
+**World Cup Updates: The Secrets of a Soccer Turf Master**\
+`(No description)`\
+https://www.nytimes.com/live/2026/us/fifa-world-cup
+
 **Britain Announces Social Media Ban for Children**\
 `Prime Minister Keir Starmer said his government would bar children under 16 from social media starting in 2027. The move follows similar policies in Australia and several other countries.`\
 https://www.nytimes.com/2026/06/15/world/europe/uk-social-media-children.html
