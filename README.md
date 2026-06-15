@@ -1,3 +1,11 @@
+**Misty Copeland: Making Space for Legacy**\
+`To succeed, I needed more than just my own drive. I needed spaces that nurtured and supported it.`\
+https://www.nytimes.com/2026/06/15/special-series/misty-copeland-legacy-drive.html
+
+**DR Congo Soccer Team’s Leopard Suits Bring Pride to the World Cup**\
+`“In Congo culture, the spirit of leopard is a spirit of strength,” the designer, Alvin Mak, said of the ensembles that beguiled audiences online.`\
+https://www.nytimes.com/2026/06/15/style/congo-team-leopard-suits-world-cup.html
+
 **America250 Plans July 4 Concert in L.A., Competing With Trump**\
 `The nonprofit, established by Congress a decade ago and separate from President Trump’s Freedom 250, will bring Smashing Pumpkins and other acts to Los Angeles on July 4.`\
 https://www.nytimes.com/2026/06/15/arts/music/america250-concert-los-angeles-trump.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/interactive/2026/06/15/us/politics/trump-miller-habeas-c
 **Read Will Scharf’s Confidential Insurrection Act Memo**\
 `Will Scharf, the White House staff secretary, wrote a secret memo to Susie Wiles, the White House chief of staff, warning that invoking the Insurrection Act risked major legal battles.`\
 https://www.nytimes.com/interactive/2026/06/15/us/politics/trump-miller-insurrection-act.html
-
-**Russian Attack on Kyiv Damages Historic Orthodox Cathedral**\
-`A historic cathedral at one of Ukraine’s holiest sites burned on Monday after a large-scale Russian missile and drone attack on Kyiv.`\
-https://www.nytimes.com/video/world/europe/100000010967495/russia-kyiv-attack-orthodox-cathedral.html
-
-**Global Markets Rally on Iran Peace Hopes**\
-`A framework agreement could be signed later this week, but details are scarce. Still, investors are cheering the potential breakthrough.`\
-https://www.nytimes.com/2026/06/15/business/dealbook/trump-iran-peace-rally.html
 

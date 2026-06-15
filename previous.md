@@ -1,3 +1,7 @@
+**America250 Plans July 4 Concert in L.A., Competing With Trump**\
+`The nonprofit, established by Congress a decade ago and separate from President Trump’s Freedom 250, will bring Smashing Pumpkins and other acts to Los Angeles on July 4.`\
+https://www.nytimes.com/2026/06/15/arts/music/america250-concert-los-angeles-trump.html
+
 **N.Y. Officials Reject Students’ Pleas to Move Exams for Knicks Parade**\
 `The championship celebration starts at 10 a.m. Thursday, just as some of the state Regents tests begin. Students had organized petitions calling for the exams to be delayed.`\
 https://www.nytimes.com/2026/06/15/nyregion/ny-regent-exams-knicks-parade.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/world/europe/100000010967495/russia-kyiv-attack-or
 **Global Markets Rally on Iran Peace Hopes**\
 `A framework agreement could be signed later this week, but details are scarce. Still, investors are cheering the potential breakthrough.`\
 https://www.nytimes.com/2026/06/15/business/dealbook/trump-iran-peace-rally.html
-
-****\
-`tktktkt`\
-https://www.nytimes.com/video/embedded/business/100000010967708/15visualUploader-13306.html
 

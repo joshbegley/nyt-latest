@@ -1,3 +1,7 @@
+**America250 Plans July 4 Concert in L.A., Competing With Trump**\
+`The nonprofit, established by Congress a decade ago and separate from President Trump’s Freedom 250, will bring Smashing Pumpkins and other acts to Los Angeles on July 4.`\
+https://www.nytimes.com/2026/06/15/arts/music/america250-concert-los-angeles-trump.html
+
 **N.Y. Officials Reject Students’ Pleas to Move Exams for Knicks Parade**\
 `The championship celebration starts at 10 a.m. Thursday, just as some of the state Regents tests begin. Students had organized petitions calling for the exams to be delayed.`\
 https://www.nytimes.com/2026/06/15/nyregion/ny-regent-exams-knicks-parade.html
