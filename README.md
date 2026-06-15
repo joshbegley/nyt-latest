@@ -1,3 +1,7 @@
+**A Knicks-Inspired Baby-Naming Boom Is Coming After Championship Win, Experts Say**\
+`Jalen Brunson could become the next Michael Jordan of baby names, but don’t expect more Victors or Wembys, the experts say.`\
+https://www.nytimes.com/2026/06/15/nyregion/knicks-baby-names-jalen-brunson.html
+
 **Scorching Heat or Scorching Lightning? Miami’s Match Could Have Both.**\
 `South Florida was under a severe heat advisory as fans arrived in the hours before kickoff. Scattered thunderstorms are also in the forecast.`\
 https://www.nytimes.com/2026/06/15/us/miami-world-cup-heat.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/15/us/what-we-know-skydiving-plane-crash.html
 **Will SpaceX Fortunes Trickle Down to This Texas Town?**\
 `Elon Musk built a huge complex outside the city of Bastrop, population 14,000. Its residents now wonder what the historic SpaceX initial public offering might mean for them.`\
 https://www.nytimes.com/2026/06/15/business/spacex-ipo-trickle-down-bastrop.html
-
-**The Knicks Sprinkle Their Magic Over New York**\
-`Readers express joy over the New York Knicks’ N.B.A. championship. Also: The fight spectacle on the South Lawn of the White House.`\
-https://www.nytimes.com/2026/06/15/opinion/knicks-nba-champions.html
 
