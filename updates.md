@@ -1,3 +1,23 @@
+**Inside the U.S.-Iran Deal, and Trump Hosts U.F.C. Fights**\
+`Plus, crafting the perfect grass for the World Cup.`\
+https://www.nytimes.com/2026/06/15/podcasts/the-headlines/us-iran-deal-ufc-fight-at-the-white-house.html
+
+**Inside Trump’s Deal With Iran**\
+`Washington and Tehran reached an agreement that paved the way for further talks to ultimately end the war. President Trump discussed it with The Times.`\
+https://www.nytimes.com/2026/06/15/podcasts/the-daily/us-and-iran-cease-fire-agreement.html
+
+**NYT Connections Answers for June 16, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, June 16, 2026.`\
+https://www.nytimes.com/2026/06/15/crosswords/connections-companion-1101.html
+
+**NYT Strands Hints for June 16, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, June 16, 2026.`\
+https://www.nytimes.com/2026/06/15/crosswords/strands-sidekick-835.html
+
+**Today’s Wordle Hints for June 16, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, June 16, 2026.`\
+https://www.nytimes.com/2026/06/15/crosswords/wordle-review-1823.html
+
 **Ukraine Is About to Take a Big Step on a Long Road Toward the European Union**\
 `Even though negotiations will begin for Ukraine to join the bloc, the path ahead is a long one.`\
 https://www.nytimes.com/2026/06/15/world/europe/ukraine-eu-membership.html
