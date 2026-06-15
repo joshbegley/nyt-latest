@@ -1,3 +1,7 @@
+**U.S. and Iran Reach Agreement to Reopen Strait and Begin Nuclear Talks**\
+`The accord halts hostilities in the war that began in February but leaves unresolved the critical issue of Iran’s nuclear program.`\
+https://www.nytimes.com/2026/06/14/world/middleeast/us-iran-deal-strait-of-hormuz.html
+
 **U.F.C. Viewing Party Draws Thousands to White House Ellipse**\
 `People from all over the country came to Washington on Sunday for a unique viewing party of the Ultimate Fighting Championship bouts being held on the South Lawn of the White House.`\
 https://www.nytimes.com/2026/06/14/us/politics/ufc-white-house-freedom-250-watch-party.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/the-daily/100000010961992/steven-spielber
 **Sonny Rollins Deserves a Bridge Named After Him**\
 `Sonny Rollins was a giant, New York born and bred. And he has a particularly meaningful relationship to the Williamsburg Bridge.`\
 https://www.nytimes.com/2026/06/14/opinion/sonny-rollins-williamsburg-bridge.html
-
-**Does Steven Spielberg Believe in Aliens?**\
-`Steven Spielberg tells Rachel Abrams, host of “The Daily,” what he now believes about aliens, and why his new movie is really about rebuilding human connection.`\
-https://www.nytimes.com/video/podcasts/the-daily/100000010961559/does-steven-spielberg-believe-in-aliens.html
 
