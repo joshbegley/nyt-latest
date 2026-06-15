@@ -1,3 +1,11 @@
+**Balogun the U.S.M.N.T. Hero, and World Cup Empty Seats**\
+`The U.S. men’s national soccer team had a battle to secure Folarin Balogun’s representation.`\
+https://www.nytimes.com/2026/06/15/podcasts/balogun-the-usmnt-hero-and-world-cup-empty-seats.html
+
+**On the Nuclear Issue, Each Side Finds a Way to Claim Victory**\
+`President Trump said Iran had promised to suspend enriching uranium, but it is unclear for how long and the details still have to be negotiated.`\
+https://www.nytimes.com/2026/06/15/world/middleeast/on-the-nuclear-issue-each-side-finds-a-way-to-claim-victory.html
+
 **Inside the U.S.-Iran Deal, and Trump Hosts U.F.C. Fights**\
 `Plus, crafting the perfect grass for the World Cup.`\
 https://www.nytimes.com/2026/06/15/podcasts/the-headlines/us-iran-deal-ufc-fight-at-the-white-house.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/06/15/espanol/estados-unidos/pentagono-ovni-papa
 **Iranian Team Arrives in U.S. for World Cup After Months of Uncertainty**\
 `The war had stirred doubts about the team’s participation in the tournament. It is set to play New Zealand in a Los Angeles area stadium on Monday.`\
 https://www.nytimes.com/2026/06/15/sports/world-cup/iran-world-cup-arrives-los-angeles.html
-
-**Trump Hosts U.F.C. Event at the White House**\
-`President Trump turned 80 on Sunday and celebrated with a $60 million Ultimate Fighting Championship event at the White House.`\
-https://www.nytimes.com/video/us/100000010967377/trump-ufc-white-house.html
-
-**U.S. and Iran Reach Framework for Peace**\
-`The United States and Iran reached a framework for peace on Sunday. Trump said the agreement would reopen the Strait of Hormuz after a monthslong blockade.`\
-https://www.nytimes.com/video/world/middleeast/100000010967290/iran-us-peace-deal.html
 
