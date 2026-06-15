@@ -1,3 +1,7 @@
+**When Data Centers Come for Your Backyard**\
+`As data centers sprout across Georgia, the state’s utility providers are building new power lines to meet the demand for electricity. We speak with residents in Fayetteville, about 25 miles south of Atlanta, who say the new lines will run through their backyards and make it impossible to resell their homes at their current value.`\
+https://www.nytimes.com/video/technology/100000010925668/data-centers-fayetteville-georgia-electricity.html
+
 **Two Men Found Guilty in Arson Attacks Targeting U.K. Prime Minister Keir Starmer**\
 `The men were convicted of conspiring to set fire to properties and a car linked to the prime minister after one of them was recruited on a Russian-language Telegram account.`\
 https://www.nytimes.com/2026/06/15/world/europe/starmer-fires-arson-russia-telegram.html
