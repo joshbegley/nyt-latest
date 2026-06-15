@@ -1,6 +1,6 @@
 **With Iran Deal, Trump Celebrates a Win but Much Remains Unfinished**\
 `While the president says the agreement would open the Strait of Hormuz and provide economic relief, Iran’s nuclear program is still a subject for negotiation.`\
-https://www.nytimes.com/2026/06/15/world/middleeast/iran-deal-hormuz-trump-goals-unfinished.html
+https://www.nytimes.com/2026/06/15/world/middleeast/iran-deal-hormuz-trump-goals.html
 
 **Israel Counts the Ways That Netanyahu’s Iran Strategy Failed**\
 `The U.S.-Iran framework agreement appears to omit some of the most important provisions that Israel wanted.`\

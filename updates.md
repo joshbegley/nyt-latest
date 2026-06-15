@@ -1,3 +1,15 @@
+**With Iran Deal, Trump Celebrates a Win but Much Remains Unfinished**\
+`While the president says the agreement would open the Strait of Hormuz and provide economic relief, Iran’s nuclear program is still a subject for negotiation.`\
+https://www.nytimes.com/2026/06/15/world/middleeast/iran-deal-hormuz-trump-goals-unfinished.html
+
+**Israel Counts the Ways That Netanyahu’s Iran Strategy Failed**\
+`The U.S.-Iran framework agreement appears to omit some of the most important provisions that Israel wanted.`\
+https://www.nytimes.com/2026/06/15/world/middleeast/israel-netanyahus-iran-strategy.html
+
+**U.S.-Iran Agreement Leaves Lebanon’s Fate Murky**\
+`Iran claimed the deal would extend to fighting in Lebanon but no details of the agreement were made public and Israel said its forces would remain there.`\
+https://www.nytimes.com/2026/06/15/world/middleeast/us-iran-agreement-lebanon.html
+
 **U.S. and Iran Find Ways to Claim Victory on the Nuclear Issue**\
 `President Trump said Iran had promised to suspend enriching uranium, but it is unclear for how long.`\
 https://www.nytimes.com/2026/06/15/world/middleeast/nuclear-iran-united-states.html
