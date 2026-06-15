@@ -1,3 +1,11 @@
+**Jaded and Exhausted, Many Iranians Shrug at World Cup**\
+`The successes of Iran’s national soccer team used to be a source of celebration. Now, many Iranians can barely muster the energy to care.`\
+https://www.nytimes.com/2026/06/15/world/middleeast/iran-national-team-fans.html
+
+**EE. UU. e Irán alcanzan un acuerdo para la paz. Estas son las claves**\
+`Aún no se publica el texto completo del acuerdo preliminar que allanaría el camino para poner fin a la guerra. Los primeros detalles sugieren que posterga las cuestiones más polémicas.`\
+https://www.nytimes.com/es/2026/06/15/espanol/mundo/eeuu-iran-acuerdo.html
+
 **In France, Justice System Faces Public Anger After 11-Year-Old Girl’s Killing**\
 `Protests have erupted across France after authorities revealed that a man accused of kidnapping Lyhanna Rameau Bernard, a French schoolgirl found dead this month, had previously been flagged to law enforcement.`\
 https://www.nytimes.com/2026/06/15/world/europe/france-lyhanna-protests.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/15/arts/music/father-dionysios-tabakis-paradise-
 **Tensions Are Rising Between States That Rely on the Colorado River**\
 `A prolonged drought means the nation’s largest reservoirs are dwindling, and litigation over access to water could lie ahead.`\
 https://www.nytimes.com/2026/06/15/climate/colorado-river-drought-states.html
-
-**The Pain of Caring for a Parent Who Abused You**\
-`The United States is reliant on unpaid family caregivers, and millions of adult children are caring for parents who didn’t really care for them.`\
-https://www.nytimes.com/2026/06/15/magazine/elder-care-parent-abuse.html
-
-**Dakota Johnson Finds a Buyer for Her Los Angeles House**\
-`The actress is finalizing the sale just days after the home was listed. Chris Evans lowers the price on his house, and Bill Koch is set to auction off his estate.`\
-https://www.nytimes.com/2026/06/15/realestate/dakota-johnson-chris-evans-home-sales.html
 
