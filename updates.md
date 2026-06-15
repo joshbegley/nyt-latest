@@ -1,3 +1,11 @@
+**ICE Agent Struck by Car Driven by a Person Facing Arrest, Officials Say**\
+`The agent, who was injured during the incident near the Jersey Shore, opened fire. The person who was being targeted by immigration authorities fled.`\
+https://www.nytimes.com/2026/06/15/nyregion/ice-agent-hit-car-nj.html
+
+**London Man Suspected in 2017 Shoving of a Woman Into Bus Path Is Arrested**\
+`The case had remained unresolved since May 2017, when a woman was sent tumbling into a bus lane on Putney Bridge. She escaped uninjured after the bus driver swerved.`\
+https://www.nytimes.com/2026/06/15/world/europe/london-jogger-shoved-bus-arrest.html
+
 **Un recorrido por el interminable conflicto armado en Colombia**\
 `Diez años después de un acuerdo de paz histórico, los grupos armados están desatando una violencia mortal, combinando el combate en la selva con la nueva guerra de drones.`\
 https://www.nytimes.com/es/2026/06/15/espanol/america-latina/colombia-guerra-conflicto-drogas.html
