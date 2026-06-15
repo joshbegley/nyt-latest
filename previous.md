@@ -1,3 +1,19 @@
+**Will the Iran Deal Stick?**\
+`After many false starts, this cease-fire plan could be different. That’s because the war really has become painful for both the U.S. and Iran.`\
+https://www.nytimes.com/2026/06/15/world/iran-deal-cape-verde-world-cup.html
+
+**Inside the Partisan Battle Over America’s 250th Birthday Celebrations**\
+`President Trump sidestepped a congressional commission and formed his own group to plan the festivities. The result is a deeply partisan celebration, disgruntled celebrities and plenty of confusion.`\
+https://www.nytimes.com/2026/06/15/us/politics/freedom-250-america-250.html
+
+**From Serial Productions and The Marshall Project: The Last 12 Weeks**\
+`A five-part series … on a deadline.`\
+https://www.nytimes.com/2026/06/15/podcasts/serial-last-12-weeks.html
+
+**How Kratom, an Addictive Gas Station Drug, Found Allies in Trump’s Cabinet**\
+`With support from Markwayne Mullin and Robert F. Kennedy Jr., the kratom industry is pursuing a potentially lucrative policy. Mr. Mullin owns equity in a company that could benefit.`\
+https://www.nytimes.com/2026/06/15/us/politics/kratom-trump-administration.html
+
 **Washington Has Been Carefully Planned for Two Centuries. Now Trump Has His Own Designs.**\
 `The city is unlike any in America for its accumulation of intricate details, a whole that is a work of civic art.`\
 https://www.nytimes.com/interactive/2026/06/15/upshot/trump-lenfant-dc.html
@@ -177,20 +193,4 @@ https://www.nytimes.com/2026/06/15/briefing/today-in-short.html
 **Map: 2.4-Magnitude Earthquake Shakes Maryland**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/06/15/us/quake-tracker-maryland.html
-
-**When Data Centers Come for Your Backyard**\
-`As data centers sprout across Georgia, the state’s utility providers are building new power lines to meet the demand for electricity. We speak with residents in Fayetteville, about 25 miles south of Atlanta, who say the new lines will run through their backyards and make it impossible to resell their homes at their current value.`\
-https://www.nytimes.com/video/technology/100000010925668/data-centers-fayetteville-georgia-electricity.html
-
-**Two Men Found Guilty in Arson Attacks Targeting U.K. Prime Minister Keir Starmer**\
-`The men were convicted of conspiring to set fire to properties and a car linked to the prime minister after one of them was recruited on a Russian-language Telegram account.`\
-https://www.nytimes.com/2026/06/15/world/europe/starmer-fires-arson-russia-telegram.html
-
-**Supreme Court Declines to Revive Former Trump Adviser’s Lawsuit Against James Comey**\
-`The Justice Department in April agreed to pay Mr. Page, a former adviser to President Trump’s 2016 campaign, $1.25 million to settle other claims.`\
-https://www.nytimes.com/2026/06/15/us/politics/supreme-court-carter-page-lawsuit-james-comey.html
-
-**Jaded and Exhausted, Many Iranians Shrug at World Cup**\
-`The successes of Iran’s national soccer team used to be a source of celebration. Now, many Iranians can barely muster the energy to care.`\
-https://www.nytimes.com/2026/06/15/world/middleeast/iran-national-team-fans.html
 

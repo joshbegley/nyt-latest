@@ -1,3 +1,19 @@
+**Will the Iran Deal Stick?**\
+`After many false starts, this cease-fire plan could be different. That’s because the war really has become painful for both the U.S. and Iran.`\
+https://www.nytimes.com/2026/06/15/world/iran-deal-cape-verde-world-cup.html
+
+**Inside the Partisan Battle Over America’s 250th Birthday Celebrations**\
+`President Trump sidestepped a congressional commission and formed his own group to plan the festivities. The result is a deeply partisan celebration, disgruntled celebrities and plenty of confusion.`\
+https://www.nytimes.com/2026/06/15/us/politics/freedom-250-america-250.html
+
+**From Serial Productions and The Marshall Project: The Last 12 Weeks**\
+`A five-part series … on a deadline.`\
+https://www.nytimes.com/2026/06/15/podcasts/serial-last-12-weeks.html
+
+**How Kratom, an Addictive Gas Station Drug, Found Allies in Trump’s Cabinet**\
+`With support from Markwayne Mullin and Robert F. Kennedy Jr., the kratom industry is pursuing a potentially lucrative policy. Mr. Mullin owns equity in a company that could benefit.`\
+https://www.nytimes.com/2026/06/15/us/politics/kratom-trump-administration.html
+
 **Washington Has Been Carefully Planned for Two Centuries. Now Trump Has His Own Designs.**\
 `The city is unlike any in America for its accumulation of intricate details, a whole that is a work of civic art.`\
 https://www.nytimes.com/interactive/2026/06/15/upshot/trump-lenfant-dc.html
