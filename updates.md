@@ -1,3 +1,67 @@
+**Displaced Lebanese Families Warned Not to Return Home**\
+`Lebanese families displaced by fighting between Israel and Hezbollah were warned not to return home despite the U.S.-Iran framework agreement.`\
+https://www.nytimes.com/video/world/middleeast/100000010967572/displaced-lebanese-families-warned-not-to-return-home.html
+
+**Trump’s UFC Fight Night Was as Absurd as Promised**\
+`American dignity, down for the count.`\
+https://www.nytimes.com/2026/06/15/opinion/trump-ufc-fight.html
+
+**Kennedy Seeks to Expedite Appeal of Ruling That Blocked His Vaccine Policies**\
+`The health secretary is trying to restart the work of a panel that advises the government on vaccines, after a judge froze its decisions and prevented it from meeting.`\
+https://www.nytimes.com/2026/06/15/health/childhood-vaccines-lawsuit-kennedy.html
+
+**What We Know About the Fatal Crash of a Skydiving Plane in Missouri**\
+`All 12 people aboard the aircraft died on Sunday when it crashed shortly after takeoff near Kansas City.`\
+https://www.nytimes.com/2026/06/15/us/what-we-know-skydiving-plane-crash.html
+
+**Will SpaceX Fortunes Trickle Down to This Texas Town?**\
+`Elon Musk built a huge complex outside the city of Bastrop, population 14,000. Its residents now wonder what the historic SpaceX initial public offering might mean for them.`\
+https://www.nytimes.com/2026/06/15/business/spacex-ipo-trickle-down-bastrop.html
+
+**The Knicks Sprinkle Their Magic Over New York**\
+`Readers express joy over the New York Knicks’ N.B.A. championship. Also: The fight spectacle on the South Lawn of the White House.`\
+https://www.nytimes.com/2026/06/15/opinion/knicks-nba-champions.html
+
+**Trump celebra evento de la UFC en la Casa Blanca**\
+`El evento de la UFC realizado el domingo por la noche en el jardín sur de la Casa Blanca fue un espectáculo mediático sin precedentes en la historia de la presidencia estadounidense.`\
+https://www.nytimes.com/es/2026/06/15/espanol/estados-unidos/trump-ufc-lucha-cumpleanos.html
+
+**The Look of Patriotism at Trump’s UFC Fight**\
+`From the athletes to the Octagon Girls, the Freedom 250 Flag Day event was a fashion show in red, white and blue.`\
+https://www.nytimes.com/2026/06/15/style/fashion-ufc-fight-trump-white-house.html
+
+**ICE Agent Hit by Car While Trying to Make an Arrest, Officials Say**\
+`The agent, who was injured during the incident near the Jersey Shore, opened fire. The person who was being targeted by immigration authorities fled.`\
+https://www.nytimes.com/2026/06/15/nyregion/ice-agent-hit-car-nj.html
+
+**Man Suspected in 2017 Shoving of a London Woman Into Bus Path Is Arrested**\
+`The case had remained unresolved since May 2017, when a woman was sent tumbling into a bus lane on Putney Bridge. She escaped uninjured after the bus driver swerved.`\
+https://www.nytimes.com/2026/06/15/world/europe/london-jogger-shoved-bus-arrest.html
+
+**Un recorrido por el interminable conflicto armado en Colombia**\
+`Diez años después de un acuerdo de paz histórico, los grupos armados están desatando una violencia mortal, combinando el combate en la selva con la nueva guerra de drones.`\
+https://www.nytimes.com/es/2026/06/15/espanol/america-latina/colombia-guerra-conflicto-drogas.html
+
+**Ronald LaPread, Funky Bassist for the Commodores, Dies at 76**\
+`A talented musician, he lied when asked by Lionel Richie, the lead singer, if he played bass. Then he taught himself how, and was essential to the band’s success.`\
+https://www.nytimes.com/2026/06/15/arts/music/ronald-lapread-dead.html
+
+**Iranians React to Preliminary U.S.-Iran Deal to End War**\
+`People in Tehran expressed cautious optimism, as well as mistrust, over a preliminary deal between the United States and Iran that could pave the way toward a final peace agreement.`\
+https://www.nytimes.com/video/world/middleeast/100000010967531/us-iran-deal-iranians-reaction.html
+
+**What’s Your Sleep Type?**\
+`Think you’re a morning person, a night owl or something in between? Take our “chronotype” quiz to find out.`\
+https://www.nytimes.com/2026/06/15/well/chronotype-quiz.html
+
+**Today, In Short**\
+`Slayyyter. Red Lobster. And a flying potato.`\
+https://www.nytimes.com/2026/06/15/briefing/today-in-short.html
+
+**Map: 2.4-Magnitude Earthquake Shakes Maryland**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/15/us/quake-tracker-maryland.html
+
 **The UFC 250 Was a Garish Spectacle of American Decline**\
 `Only the hackiest screenwriter imaginable would script America’s debasement this way.`\
 https://www.nytimes.com/2026/06/15/opinion/ufc-freedom-250-fight.html

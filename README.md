@@ -1,3 +1,79 @@
+**In the Dark on U.S.-Iran Deal, Senators Refrain from Praising It**\
+`Democrats demanded an immediate briefing and even Republicans conceded they had no information on an agreement the administration has declined to release.`\
+https://www.nytimes.com/2026/06/15/world/middleeast/senate-iran-deal-trump.html
+
+**Netanyahu Says Israel Will Keep Forces in Lebanon, Despite U.S.-Iran Deal**\
+`“The struggle has not ended,” a defiant Prime Minister Benjamin Netanyahu told Israelis.`\
+https://www.nytimes.com/2026/06/15/world/middleeast/netanyahu-israel-iran.html
+
+**Newsom Says Trump Is Investigating Him and His Wife**\
+`In a video posted on social media on Monday, Gov. Gavin Newsom of California said President Trump used the Justice Department to investigate him and his wife, Jennifer Siebel Newsom.`\
+https://www.nytimes.com/video/us/politics/100000010968932/trump-gavin-newsom-wife-investigation.html
+
+**The UFC 250 Was a Garish Spectacle of American Decline**\
+`Only the hackiest screenwriter imaginable would script America’s debasement this way.`\
+https://www.nytimes.com/2026/06/15/opinion/ufc-freedom-250-fight.html
+
+**Read an FBI agent’s email about the impending arrest of Jeffrey Epstein**\
+`An FBI agent briefs colleagues that Epstein will be flying from Paris into Teterboro Airport in New Jersey, where they will attempt to arrest him upon his landing on July 6, 2019.`\
+https://www.nytimes.com/interactive/2026/06/15/us/teterboro-email.html
+
+**Britain Proposes Social Media Ban for Children Under 16**\
+`Prime Minister Keir Starmer of Britain said that the government would introduce new regulations later this year to ban social media for children under 16. The measures, expected to take effect in early 2027, will also include restrictions on some game platforms and livestreaming apps.`\
+https://www.nytimes.com/video/world/europe/100000010968328/britain-social-media-ban.html
+
+**Montana Democrats Are Divided Over How to Win a Republican-held Senate Seat**\
+`A rift in Montana between the Democratic nominee and an independent candidate could boost Republican hopes of holding on to an open seat in conservative territory.`\
+https://www.nytimes.com/2026/06/15/us/politics/montana-democrats-senate.html
+
+**Divider in Chief**\
+`Unlike past presidents, Donald Trump “uses everything to divide us.” America’s 250th anniversary is no exception, the NYT Opinion contributor Pete Wehner argues on “The Opinions.”`\
+https://www.nytimes.com/video/opinion/100000010958365/divider-in-chief.html
+
+**A Knicks-Inspired Baby-Naming Boom Is Coming After Championship Win, Experts Say**\
+`Jalen Brunson could become the next Michael Jordan of baby names, but don’t expect more Victors or Wembys, the experts say.`\
+https://www.nytimes.com/2026/06/15/nyregion/knicks-baby-names-jalen-brunson.html
+
+**Scorching Heat or Scorching Lightning? Miami’s Match Could Have Both.**\
+`South Florida was under a severe heat advisory as fans arrived in the hours before kickoff. Scattered thunderstorms are also in the forecast.`\
+https://www.nytimes.com/2026/06/15/us/miami-world-cup-heat.html
+
+**The (Mostly) Unanswered Questions at the Heart of a U.S.-Iran Accord**\
+`The short-term truce hasn’t been made public, and the long-term peace deal it is supposed to yield doesn’t exist yet, so there is much still unknown about any agreement between the adversaries.`\
+https://www.nytimes.com/2026/06/15/world/middleeast/us-iran-deal-agreement-questions.html
+
+**Copa Mundial: los fans de Cabo Verde celebran el empate contra España**\
+`Cabo Verde, una pequeña nación insular, es uno de los países más pequeños que han clasificado para un Mundial. Los fanáticos festejaron que el equipo resistiera ante uno de los favoritos del torneo.`\
+https://www.nytimes.com/es/2026/06/15/espanol/deportes/copa-mundial-espana-cabo-verde-portero.html
+
+**En Israel, crece el descontento en torno al acuerdo entre EE. UU. e Irán**\
+`Israelíes de todo el espectro político dijeron que el acuerdo parece dejar sin resolver las amenazas fundamentales a la seguridad israelí que plantea Irán.`\
+https://www.nytimes.com/es/2026/06/15/espanol/mundo/israel-iran-acuerdo-paz-trump.html
+
+**Trump Praises Peace Deal Framework With Iran**\
+`On Monday, the U.S. and Iran signed a preliminary peace deal, but the terms of the agreement remained a secret. While the U.S. and Iranian officials made conflicting statements about the deal’s terms, it was clear that the deal’s immediate scope was focused primarily on ending military attacks and allowing traffic to resume through the Strait of Hormuz.`\
+https://www.nytimes.com/video/world/middleeast/100000010968894/us-trump-iran-negotiations-deal.html
+
+**Terms of U.S.-Iran Deal Remain Secret**\
+`Cape Verde pulls off a shocker at the World Cup. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/06/15/briefing/us-iran-deal-cape-verde-world-cup.html
+
+**Potential End of War Tests Trump’s Promise of Quick Economic Rebound**\
+`Gas prices and other goods could remain elevated for months, adding to the political challenge facing the White House in the midterm elections.`\
+https://www.nytimes.com/2026/06/15/us/politics/iran-war-deal-trump-economic-rebound.html
+
+**Will Commercial Ships Have to Pay to Pass Through the Strait of Hormuz? Maybe.**\
+`Charging a toll is illegal under international law, but some fees are allowed for services. It is not clear what services Iran would provide, but there were no fees charged before the war.`\
+https://www.nytimes.com/2026/06/15/world/middleeast/shipping-fees-tolls-strait-hormuz.html
+
+**Kennedy Orders Woman to Stay in Hantavirus Quarantine, Despite C.D.C. Recommendation**\
+`Others who were in the facility have been allowed to return to their homes in recent weeks for monitoring by local health officials.`\
+https://www.nytimes.com/2026/06/15/health/hantavirus-quarantine-kennedy.html
+
+**Alabama and Georgia Runoff Elections Offer a New Test of Trump’s Influence Tomorrow**\
+`The Peach State, as well as Alabama, will offer new tests of Trump’s influence.`\
+https://www.nytimes.com/2026/06/15/us/politics/georgia-alabama-runoff-primary-elections-trump.html
+
 **Will the Iran Deal Stick?**\
 `After many false starts, this cease-fire plan could be different. That’s because the war really has become painful for both the U.S. and Iran.`\
 https://www.nytimes.com/2026/06/15/world/iran-deal-cape-verde-world-cup.html
@@ -117,80 +193,4 @@ https://www.nytimes.com/2026/06/15/us/newsom-trump-doj-investigation.html
 **Abdullah Ibrahim, Eminent South African Jazz Pianist, Dies at 91**\
 `His song “Mannenberg” became the unofficial anthem of the country’s fight against apartheid, with Nelson Mandela calling him “our Mozart.”`\
 https://www.nytimes.com/2026/06/15/arts/music/abdullah-ibrahim-dead.html
-
-**Trump disipa la guerra en Irán sin lograr todas sus metas**\
-`A pesar de las fanfarrias con los que Trump anunció el acuerdo preliminar de paz, aún no ha logrado las metas fundamentales que él mismo estableció para iniciar la guerra en Irán.`\
-https://www.nytimes.com/es/2026/06/15/espanol/mundo/trump-guerra-iran-acuerdo-paz.html
-
-**How Does One Brain Speak Two Languages?**\
-`A new study of bilingual speakers suggests that a single “grammatical engine” in the brain can power multiple languages at once.`\
-https://www.nytimes.com/2026/06/15/science/brain-language-grammar.html
-
-**El hijo de la princesa de Noruega es condenado de violación**\
-`Un tribunal en Oslo declaró a Marius Borg Hoiby culpable de dos cargos de violación y otros delitos.`\
-https://www.nytimes.com/es/2026/06/15/espanol/mundo/hijo-princesa-noruega-violacion.html
-
-**Displaced Lebanese Families Warned Not to Return Home**\
-`Lebanese families displaced by fighting between Israel and Hezbollah were warned not to return home despite the U.S.-Iran framework agreement.`\
-https://www.nytimes.com/video/world/middleeast/100000010967572/displaced-lebanese-families-warned-not-to-return-home.html
-
-**Trump’s UFC Fight Night Was as Absurd as Promised**\
-`American dignity, down for the count.`\
-https://www.nytimes.com/2026/06/15/opinion/trump-ufc-fight.html
-
-**Kennedy Seeks to Expedite Appeal of Ruling That Blocked His Vaccine Policies**\
-`The health secretary is trying to restart the work of a panel that advises the government on vaccines, after a judge froze its decisions and prevented it from meeting.`\
-https://www.nytimes.com/2026/06/15/health/childhood-vaccines-lawsuit-kennedy.html
-
-**What We Know About the Fatal Crash of a Skydiving Plane in Missouri**\
-`All 12 people aboard the aircraft died on Sunday when it crashed shortly after takeoff near Kansas City.`\
-https://www.nytimes.com/2026/06/15/us/what-we-know-skydiving-plane-crash.html
-
-**Will SpaceX Fortunes Trickle Down to This Texas Town?**\
-`Elon Musk built a huge complex outside the city of Bastrop, population 14,000. Its residents now wonder what the historic SpaceX initial public offering might mean for them.`\
-https://www.nytimes.com/2026/06/15/business/spacex-ipo-trickle-down-bastrop.html
-
-**The Knicks Sprinkle Their Magic Over New York**\
-`Readers express joy over the New York Knicks’ N.B.A. championship. Also: The fight spectacle on the South Lawn of the White House.`\
-https://www.nytimes.com/2026/06/15/opinion/knicks-nba-champions.html
-
-**Trump celebra evento de la UFC en la Casa Blanca**\
-`El evento de la UFC realizado el domingo por la noche en el jardín sur de la Casa Blanca fue un espectáculo mediático sin precedentes en la historia de la presidencia estadounidense.`\
-https://www.nytimes.com/es/2026/06/15/espanol/estados-unidos/trump-ufc-lucha-cumpleanos.html
-
-**The Look of Patriotism at Trump’s UFC Fight**\
-`From the athletes to the Octagon Girls, the Freedom 250 Flag Day event was a fashion show in red, white and blue.`\
-https://www.nytimes.com/2026/06/15/style/fashion-ufc-fight-trump-white-house.html
-
-**ICE Agent Hit by Car While Trying to Make an Arrest, Officials Say**\
-`The agent, who was injured during the incident near the Jersey Shore, opened fire. The person who was being targeted by immigration authorities fled.`\
-https://www.nytimes.com/2026/06/15/nyregion/ice-agent-hit-car-nj.html
-
-**Man Suspected in 2017 Shoving of a London Woman Into Bus Path Is Arrested**\
-`The case had remained unresolved since May 2017, when a woman was sent tumbling into a bus lane on Putney Bridge. She escaped uninjured after the bus driver swerved.`\
-https://www.nytimes.com/2026/06/15/world/europe/london-jogger-shoved-bus-arrest.html
-
-**Un recorrido por el interminable conflicto armado en Colombia**\
-`Diez años después de un acuerdo de paz histórico, los grupos armados están desatando una violencia mortal, combinando el combate en la selva con la nueva guerra de drones.`\
-https://www.nytimes.com/es/2026/06/15/espanol/america-latina/colombia-guerra-conflicto-drogas.html
-
-**Ronald LaPread, Funky Bassist for the Commodores, Dies at 76**\
-`A talented musician, he lied when asked by Lionel Richie, the lead singer, if he played bass. Then he taught himself how, and was essential to the band’s success.`\
-https://www.nytimes.com/2026/06/15/arts/music/ronald-lapread-dead.html
-
-**Iranians React to Preliminary U.S.-Iran Deal to End War**\
-`People in Tehran expressed cautious optimism, as well as mistrust, over a preliminary deal between the United States and Iran that could pave the way toward a final peace agreement.`\
-https://www.nytimes.com/video/world/middleeast/100000010967531/us-iran-deal-iranians-reaction.html
-
-**What’s Your Sleep Type?**\
-`Think you’re a morning person, a night owl or something in between? Take our “chronotype” quiz to find out.`\
-https://www.nytimes.com/2026/06/15/well/chronotype-quiz.html
-
-**Today, In Short**\
-`Slayyyter. Red Lobster. And a flying potato.`\
-https://www.nytimes.com/2026/06/15/briefing/today-in-short.html
-
-**Map: 2.4-Magnitude Earthquake Shakes Maryland**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/06/15/us/quake-tracker-maryland.html
 
