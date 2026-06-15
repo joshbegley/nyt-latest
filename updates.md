@@ -1,3 +1,15 @@
+**What to Know About Planned Social Media Bans Around the World**\
+`Britain said it would ban social media access for children under 16 starting in 2027, joining several other countries introducing similar measures.`\
+https://www.nytimes.com/2026/06/15/world/europe/social-media-bans-worldwide.html
+
+**Thousands Are Without Power After Storms in the Northeast and Mid-Atlantic**\
+`Severe weather in parts of the Northeast and Mid-Atlantic on Sunday caused power outages and heavy winds. On Monday, the storms were expected to weaken, forecasters said.`\
+https://www.nytimes.com/2026/06/15/weather/ohio-pennsylvania-power-outages.html
+
+**Jessie Buckley, a Liza Minnelli Tribute and More Theater to Stream**\
+`The Oscar winner and Josh O’Connor star in a National Theater production of Shakespeare’s tragedy. Other picks include Matthew López’s “The Inheritance.”`\
+https://www.nytimes.com/2026/06/15/theater/jessie-buckley-romeo-and-juliet-streaming.html
+
 **On the Nuclear Issue, Each Side Finds a Way to Claim Victory**\
 `President Trump said Iran had promised to suspend enriching uranium, but it is unclear for how long.`\
 https://www.nytimes.com/2026/06/15/world/middleeast/on-the-nuclear-issue-each-side-finds-a-way-to-claim-victory.html

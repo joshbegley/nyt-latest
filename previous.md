@@ -1,3 +1,11 @@
+**What to Know About Planned Social Media Bans Around the World**\
+`Britain said it would ban social media access for children under 16 starting in 2027, joining several other countries introducing similar measures.`\
+https://www.nytimes.com/2026/06/15/world/europe/social-media-bans-worldwide.html
+
+**Thousands Are Without Power After Storms in the Northeast and Mid-Atlantic**\
+`Severe weather in parts of the Northeast and Mid-Atlantic on Sunday caused power outages and heavy winds. On Monday, the storms were expected to weaken, forecasters said.`\
+https://www.nytimes.com/2026/06/15/weather/ohio-pennsylvania-power-outages.html
+
 **The U.S.-Iran Deal: What to Know**\
 `The full text of the deal that could pave the way to ending the war has not been published. Initial details suggest that it defers the most contentious issues.`\
 https://www.nytimes.com/2026/06/15/world/middleeast/us-iran-deal.html
@@ -82,8 +90,8 @@ https://www.nytimes.com/2026/06/15/arts/kennedy-center-ufc-trump-washington.html
 `They can hold guilty parties responsible when the federal government will not.`\
 https://www.nytimes.com/2026/06/15/opinion/trump-presidential-pardons.html
 
-**Jessie Buckley in ‘Romeo and Juliet,’ and More Theater to Stream**\
-`If you can’t make it to Shakespeare in the Park, check out a version starring Josh O’Connor. Other picks include Matthew López’s “The Inheritance.”`\
+**Jessie Buckley, a Liza Minnelli Tribute and More Theater to Stream**\
+`The Oscar winner and Josh O’Connor star in a National Theater production of Shakespeare’s tragedy. Other picks include Matthew López’s “The Inheritance.”`\
 https://www.nytimes.com/2026/06/15/theater/jessie-buckley-romeo-and-juliet-streaming.html
 
 **Father Dionysios Tabakis’s Drone Metal Debut**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/15/magazine/political-islam-middle-east.html
 **Are Glutathione Supplements a Scam?**\
 `The so-called “mother of all antioxidants” is sold as dissolving strips, capsules, liquids, gels and powders. We asked experts if they actually work.`\
 https://www.nytimes.com/2026/06/15/well/glutathione-supplements-harm-benefits-studies.html
-
-**One City Might Have Just Cracked the Housing Crisis**\
-`A large real estate development in the middle of Vancouver, British Columbia, shows how cities can build more housing.`\
-https://www.nytimes.com/2026/06/15/opinion/vancouver-housing-crisis-development.html
-
-**Uzbekistan Is Attracting Younger Travelers, but Does It Live Up to the Buzz?**\
-`This Central Asian country is gaining traction with young travelers seeking beauty, authenticity and low prices. Was it worth the 12-hour flight?`\
-https://www.nytimes.com/2026/06/15/travel/uzbekistan-central-asia-tourism-tashkent-samarkand.html
 

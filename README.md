@@ -99,7 +99,7 @@ https://www.nytimes.com/2026/06/15/theater/jessie-buckley-romeo-and-juliet-strea
 https://www.nytimes.com/2026/06/15/arts/music/father-dionysios-tabakis-paradise-metal.html
 
 **Tensions Are Rising Between States That Rely on the Colorado River**\
-`A prolonged drought means the nation’s largest reservoirs are dwindling, and litigation over access to water could lay ahead.`\
+`A prolonged drought means the nation’s largest reservoirs are dwindling, and litigation over access to water could lie ahead.`\
 https://www.nytimes.com/2026/06/15/climate/colorado-river-drought-states.html
 
 **The Pain of Caring for a Parent Who Abused You**\
