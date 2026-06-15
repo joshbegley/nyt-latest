@@ -1,3 +1,11 @@
+**In Its Tragic Finale, ‘Romeo and Juliet’ Is Interrupted by a Cat**\
+`Performers were tested by the unexpected during a ballet production in Turkey.`\
+https://www.nytimes.com/2026/06/15/arts/dance/cat-romeo-and-juliet-ballet-turkey.html
+
+**Cat Interrupts “Romeo and Juliet” Ballet Performance**\
+`A cat wandered on stage during a performance of the “Romeo and Juliet” ballet in Turkey and stole the show.`\
+https://www.nytimes.com/video/world/europe/100000010968361/cat-interrupts-romeo-juliet-turkey.html
+
 **Singer Oliver Tree Is Believed to Have Died in Brazil Helicopter Collision**\
 `The American singer Oliver Tree is said to have been one of the six people killed in a helicopter collision in Rio de Janeiro on Sunday, according to The Associated Press and a local police officer who spoke on the condition of anonymity.`\
 https://www.nytimes.com/video/world/americas/100000010968015/oliver-tree-death-helicopter-crash-brazil.html
