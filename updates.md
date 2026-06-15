@@ -1,3 +1,19 @@
+**Gov. Gavin Newsom Says Trump Is Investigating Him and His Wife**\
+`Aides to Gov. Gavin Newsom of California say several people associated with the couple have been contacted by federal agents in the past week. He criticized the move as politically motivated.`\
+https://www.nytimes.com/2026/06/15/us/newsom-trump-doj-investigation.html
+
+**Abdullah Ibrahim, Eminent South African Jazz Pianist, Dies at 91**\
+`His song “Mannenberg” became the unofficial anthem of the country’s fight against apartheid, with Nelson Mandela calling him “our Mozart.”`\
+https://www.nytimes.com/2026/06/15/arts/music/abdullah-ibrahim-dead.html
+
+**Trump’s UFC Fight Night Was as Absurd as Promised**\
+`American dignity, down for the count.`\
+https://www.nytimes.com/2026/06/15/opinion/trump-ufc-fight.html
+
+**The Look of Patriotism at Trump’s UFC Fight**\
+`From the athletes to the Octagon Girls, the Freedom 250 Flag Day event was a fashion show in red, white and blue.`\
+https://www.nytimes.com/2026/06/15/style/fashion-ufc-fight-trump-white-house.html
+
 **Trump disipa la guerra en Irán sin lograr todas sus metas**\
 `A pesar de las fanfarrias con los que Trump anunció el acuerdo preliminar de paz, aún no ha logrado las metas fundamentales que él mismo estableció para iniciar la guerra en Irán.`\
 https://www.nytimes.com/es/2026/06/15/espanol/mundo/trump-guerra-iran-acuerdo-paz.html

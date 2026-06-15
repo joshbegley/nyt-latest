@@ -1,3 +1,11 @@
+**Gov. Gavin Newsom Says Trump Is Investigating Him and His Wife**\
+`Aides to Gov. Gavin Newsom of California say several people associated with the couple have been contacted by federal agents in the past week. He criticized the move as politically motivated.`\
+https://www.nytimes.com/2026/06/15/us/newsom-trump-doj-investigation.html
+
+**Abdullah Ibrahim, Eminent South African Jazz Pianist, Dies at 91**\
+`His song “Mannenberg” became the unofficial anthem of the country’s fight against apartheid, with Nelson Mandela calling him “our Mozart.”`\
+https://www.nytimes.com/2026/06/15/arts/music/abdullah-ibrahim-dead.html
+
 **Trump disipa la guerra en Irán sin lograr todas sus metas**\
 `A pesar de las fanfarrias con los que Trump anunció el acuerdo preliminar de paz, aún no ha logrado las metas fundamentales que él mismo estableció para iniciar la guerra en Irán.`\
 https://www.nytimes.com/es/2026/06/15/espanol/mundo/trump-guerra-iran-acuerdo-paz.html
@@ -15,7 +23,7 @@ https://www.nytimes.com/es/2026/06/15/espanol/mundo/hijo-princesa-noruega-violac
 https://www.nytimes.com/video/world/middleeast/100000010967572/displaced-lebanese-families-warned-not-to-return-home.html
 
 **Trump’s UFC Fight Night Was as Absurd as Promised**\
-`Trump’s birthday fight night on the White House lawn was an absurd spectacle, yes, but an ominous one as well.`\
+`American dignity, down for the count.`\
 https://www.nytimes.com/2026/06/15/opinion/trump-ufc-fight.html
 
 **Kennedy Seeks to Expedite Appeal of Ruling That Blocked His Vaccine Policies**\
@@ -38,7 +46,7 @@ https://www.nytimes.com/2026/06/15/opinion/knicks-nba-champions.html
 `El evento de la UFC realizado el domingo por la noche en el jardín sur de la Casa Blanca fue un espectáculo mediático sin precedentes en la historia de la presidencia estadounidense.`\
 https://www.nytimes.com/es/2026/06/15/espanol/estados-unidos/trump-ufc-lucha-cumpleanos.html
 
-**The Look of Patriotism at Trump’s U.F.C. Fight**\
+**The Look of Patriotism at Trump’s UFC Fight**\
 `From the athletes to the Octagon Girls, the Freedom 250 Flag Day event was a fashion show in red, white and blue.`\
 https://www.nytimes.com/2026/06/15/style/fashion-ufc-fight-trump-white-house.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/15/business/us-iran-deal-shipping-companies-stra
 **What to Know About Planned Social Media Bans in Australia, the U.K. and Beyond**\
 `Britain said it would ban social media access for children under 16 starting in 2027, joining several other countries introducing similar measures.`\
 https://www.nytimes.com/2026/06/15/world/europe/social-media-bans-worldwide.html
-
-**Thousands Are Without Power After Storms in the Northeast and Mid-Atlantic**\
-`Severe weather in parts of the Northeast and Mid-Atlantic on Sunday caused power outages and heavy winds. On Monday, the storms were expected to weaken, forecasters said.`\
-https://www.nytimes.com/2026/06/15/weather/ohio-pennsylvania-power-outages.html
-
-**The U.S.-Iran Deal: What to Know**\
-`The full text of the deal that could pave the way to ending the war has not been published. Initial details suggest that it defers the most contentious issues.`\
-https://www.nytimes.com/2026/06/15/world/middleeast/us-iran-deal.html
 
