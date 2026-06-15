@@ -1,3 +1,7 @@
+**Dawn Richard’s Lawsuit Against Sean Combs Dismissed**\
+`Ms. Richard, a singer who once worked with the music mogul, accused him of creating an abusive work environment. The judge said her claims came too late.`\
+https://www.nytimes.com/2026/06/15/arts/music/sean-combs-lawsuit-dismissed-dawn-richard.html
+
 **Convicted Leader of Greek Militant Group Ordered Back to Prison**\
 `Alexandros Giotopoulos, 82, had been serving 17 life sentences for leading November 17, a leftist group blamed for a wave of bombings and assassinations.`\
 https://www.nytimes.com/2026/06/15/world/europe/november-17-giotopoulos-prison-release.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/15/world/middleeast/iran-deal-hormuz-trump-goals
 **Israel Counts the Ways That Netanyahu’s Iran Strategy Failed**\
 `The U.S.-Iran framework agreement appears to omit some of the most important provisions that Israel wanted.`\
 https://www.nytimes.com/2026/06/15/world/middleeast/israel-netanyahus-iran-strategy.html
-
-**U.S.-Iran Agreement Leaves Lebanon’s Fate Murky**\
-`Iran claimed the deal would extend to fighting in Lebanon but no details of the agreement were made public and Israel said its forces would remain there.`\
-https://www.nytimes.com/2026/06/15/world/middleeast/us-iran-agreement-lebanon.html
 

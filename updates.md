@@ -1,3 +1,7 @@
+**Convicted Leader of Greek Militant Group Ordered Back to Prison**\
+`Alexandros Giotopoulos, 82, had been serving 17 life sentences for leading November 17, a leftist group blamed for a wave of bombings and assassinations.`\
+https://www.nytimes.com/2026/06/15/world/europe/november-17-giotopoulos-prison-release.html
+
 **B-52 Crashes at Air Force Base, Officials Say**\
 `The crash occurred shortly after takeoff this morning from Edwards Air Force Base in California. Emergency crews were responding to the site.`\
 https://www.nytimes.com/2026/06/15/us/b-52-crash-edwards-air-force-base-california.html

@@ -1,3 +1,7 @@
+**Convicted Leader of Greek Militant Group Ordered Back to Prison**\
+`Alexandros Giotopoulos, 82, had been serving 17 life sentences for leading November 17, a leftist group blamed for a wave of bombings and assassinations.`\
+https://www.nytimes.com/2026/06/15/world/europe/november-17-giotopoulos-prison-release.html
+
 **B-52 Crashes at Air Force Base, Officials Say**\
 `The crash occurred shortly after takeoff this morning from Edwards Air Force Base in California. Emergency crews were responding to the site.`\
 https://www.nytimes.com/2026/06/15/us/b-52-crash-edwards-air-force-base-california.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/15/world/middleeast/israel-netanyahus-iran-strat
 **U.S.-Iran Agreement Leaves Lebanon’s Fate Murky**\
 `Iran claimed the deal would extend to fighting in Lebanon but no details of the agreement were made public and Israel said its forces would remain there.`\
 https://www.nytimes.com/2026/06/15/world/middleeast/us-iran-agreement-lebanon.html
-
-**Deal to Reopen Hormuz Kicks Off Long Effort to Ease Energy Crisis**\
-`The pace of the recovery will depend on how confident companies are that the deal between the United States and Iran will hold and be extended.`\
-https://www.nytimes.com/2026/06/15/business/energy-environment/iran-deal-oil-natural-gas.html
 
