@@ -1,3 +1,7 @@
+**On the Nuclear Issue, Each Side Finds a Way to Claim Victory**\
+`President Trump said Iran had promised to suspend enriching uranium, but it is unclear for how long.`\
+https://www.nytimes.com/2026/06/15/world/middleeast/on-the-nuclear-issue-each-side-finds-a-way-to-claim-victory.html
+
 **Where to Eat in Dallas for the World Cup**\
 `Whether you’re looking for gold-standard barbecue, world-class sushi or inventive tacos, the city is rich with choices.`\
 https://www.nytimes.com/2026/06/15/dining/best-restaurants-dallas.html
