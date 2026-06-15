@@ -1,3 +1,7 @@
+**Dan Sullivan Namesake Is Disqualified From Alaska Senate Ballot**\
+`Republicans had accused Democrats of attempting to confuse voters by boosting a candidate with the same name as the incumbent Republican senator.`\
+https://www.nytimes.com/2026/06/15/us/politics/dan-sullivan-alaska-senate.html
+
 **‘We Cannot Trust Any Iranian Promises’: 3 Opinion Writers Dissect the Iran Deal**\
 `Was the Iran war worth it — and will the latest agreement even stick?`\
 https://www.nytimes.com/2026/06/15/opinion/iran-deal-experts.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/15/dining/a-brilliant-15-minute-meal-built-on-ju
 **Why the U.S.-Iran Deal Might Work, and Why It Might Not**\
 `For all of the cautious optimism surrounding the framework agreement, some of the toughest issues lie ahead, and the deal could still fall apart.`\
 https://www.nytimes.com/2026/06/15/world/middleeast/us-iran-deal-strait-weapons-israel.html
-
-**What Is Contemporary Dance? Lincoln Center Invests in Finding Out**\
-`Thanks to a $50 million grant, a new festival has been born. Kyle Abraham helps to curate the first edition, which is part of the center’s Summer of Dance.`\
-https://www.nytimes.com/2026/06/15/arts/dance/lincoln-center-summer-of-dance-contemporary-festival.html
 
