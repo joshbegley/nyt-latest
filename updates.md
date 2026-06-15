@@ -1,3 +1,7 @@
+**Where to Eat in Dallas for the World Cup**\
+`Whether you’re looking for gold-standard barbecue, world-class sushi or inventive tacos, the city is rich with choices.`\
+https://www.nytimes.com/2026/06/15/dining/best-restaurants-dallas.html
+
 **The U.S.-Iran Deal: What to Know**\
 `The full text of the deal that could pave the way to ending the war has not been published. Initial details suggest that it defers the most contentious issues.`\
 https://www.nytimes.com/2026/06/15/world/middleeast/us-iran-deal.html
