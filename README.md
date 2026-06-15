@@ -1,3 +1,7 @@
+**China Moves the Price of Oil, Even When It Buys Less**\
+`China is the world’s largest purchaser of oil. But three months after the war with Iran began, it cut its imports, cushioning the global market.`\
+https://www.nytimes.com/2026/06/15/business/china-oil-iran.html
+
 **Balogun the U.S.M.N.T. Hero, and World Cup Empty Seats**\
 `The U.S. men’s national soccer team had a battle to secure Folarin Balogun’s representation.`\
 https://www.nytimes.com/2026/06/15/podcasts/balogun-the-usmnt-hero-and-world-cup-empty-seats.html
@@ -104,7 +108,7 @@ https://www.nytimes.com/2026/06/15/dining/where-to-eat-in-dallas-for-the-world-c
 
 **Millennial Food Obsession Is a Joke. John Early Gets It.**\
 `In his new film, “Maddie’s Secret,” the comedian goes all in on earnestness, playing a cooking content creator.`\
-https://www.nytimes.com/2026/06/15/dining/millennial-food-obsession-is-a-joke-john-early-gets-it.html
+https://www.nytimes.com/2026/06/15/dining/john-early-maddies-secret-food.html
 
 **How Solvers Keep Their Longest Wordle and Crossword Streaks**\
 `Meet the players who persist through childbirth or intense athletic feats to ensure they solve Wordle and other puzzles every day.`\
@@ -164,7 +168,7 @@ https://www.nytimes.com/2026/06/15/dining/drinks/united-states-of-bourbon-blend-
 
 **Millions of Women Are Left Out of Menopause’s Moment**\
 `Women who can’t take hormone therapy because of breast cancer or other diseases say they are deeply frustrated.`\
-https://www.nytimes.com/2026/06/15/well/millions-of-women-are-left-out-of-menopauses-moment.html
+https://www.nytimes.com/2026/06/15/well/menopause-hormone-therapy-breast-cancer.html
 
 **Inside Colombia’s Never-Ending Drug War**\
 `Ten years after a landmark peace deal, armed groups are wreaking deadly violence, blending jungle combat with new drone warfare.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/15/world/europe/taking-on-neo-nazis-one-trademar
 **Una papa misteriosa en el cielo de Colorado aparece en los archivos sobre ovnis**\
 `Las papas ya han aparecido en avistamientos anteriores, así como en viajes espaciales reales y de ficción.`\
 https://www.nytimes.com/es/2026/06/15/espanol/estados-unidos/pentagono-ovni-papa.html
-
-**Iranian Team Arrives in U.S. for World Cup After Months of Uncertainty**\
-`The war had stirred doubts about the team’s participation in the tournament. It is set to play New Zealand in a Los Angeles area stadium on Monday.`\
-https://www.nytimes.com/2026/06/15/sports/world-cup/iran-world-cup-arrives-los-angeles.html
 

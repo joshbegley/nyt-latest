@@ -1,3 +1,7 @@
+**Inside Trump’s New Deal With Iran**\
+`Washington and Tehran reached an agreement that paved the way for further talks to ultimately end the war. President Trump discussed it with The Times.`\
+https://www.nytimes.com/2026/06/15/podcasts/the-daily/us-and-iran-cease-fire-agreement.html
+
 **Balogun the U.S.M.N.T. Hero, and World Cup Empty Seats**\
 `The U.S. men’s national soccer team had a battle to secure Folarin Balogun’s representation.`\
 https://www.nytimes.com/2026/06/15/podcasts/balogun-the-usmnt-hero-and-world-cup-empty-seats.html
