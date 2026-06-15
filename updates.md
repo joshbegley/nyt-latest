@@ -1,3 +1,11 @@
+**How Does One Brain Speak Two Languages?**\
+`A new study of bilingual speakers suggests that a single “grammatical engine” in the brain can power multiple languages at once.`\
+https://www.nytimes.com/2026/06/15/science/brain-language-grammar.html
+
+**El hijo de la princesa de Noruega es condenado de violación**\
+`Un tribunal en Oslo declaró a Marius Borg Hoiby culpable de dos cargos de violación y otros delitos.`\
+https://www.nytimes.com/es/2026/06/15/espanol/mundo/hijo-princesa-noruega-violacion.html
+
 **Displaced Lebanese Families Warned Not to Return Home**\
 `Lebanese families displaced by fighting between Israel and Hezbollah were warned not to return home despite the U.S.-Iran framework agreement.`\
 https://www.nytimes.com/video/world/middleeast/100000010967572/displaced-lebanese-families-warned-not-to-return-home.html

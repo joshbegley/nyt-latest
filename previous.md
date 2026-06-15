@@ -1,3 +1,11 @@
+**How Does One Brain Speak Two Languages?**\
+`A new study of bilingual speakers suggests that a single “grammatical engine” in the brain can power multiple languages at once.`\
+https://www.nytimes.com/2026/06/15/science/brain-language-grammar.html
+
+**El hijo de la princesa de Noruega es condenado de violación**\
+`Un tribunal en Oslo declaró a Marius Borg Hoiby culpable de dos cargos de violación y otros delitos.`\
+https://www.nytimes.com/es/2026/06/15/espanol/mundo/hijo-princesa-noruega-violacion.html
+
 **Displaced Lebanese Families Warned Not to Return Home**\
 `Lebanese families displaced by fighting between Israel and Hezbollah were warned not to return home despite the U.S.-Iran framework agreement.`\
 https://www.nytimes.com/video/world/middleeast/100000010967572/displaced-lebanese-families-warned-not-to-return-home.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/15/briefing/a-deal-in-iran.html
 **China Moves the Price of Oil, Even When It Buys Less**\
 `China is the world’s largest purchaser of oil. But three months after the war with Iran began, it cut its imports, cushioning the global market.`\
 https://www.nytimes.com/2026/06/15/business/china-oil-iran.html
-
-**Balogun the U.S.M.N.T. Hero, and World Cup Empty Seats**\
-`The U.S. men’s national soccer team had a battle to secure Folarin Balogun’s representation.`\
-https://www.nytimes.com/2026/06/15/podcasts/balogun-the-usmnt-hero-and-world-cup-empty-seats.html
-
-**U.S. and Iran Find Ways to Claim Victory on the Nuclear Issue**\
-`President Trump said Iran had promised to suspend enriching uranium, but it is unclear for how long.`\
-https://www.nytimes.com/2026/06/15/world/middleeast/nuclear-iran-united-states.html
 
