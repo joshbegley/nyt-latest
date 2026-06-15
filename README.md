@@ -1,3 +1,7 @@
+**Displaced Lebanese Families Warned Not to Return Home**\
+`Lebanese families displaced by fighting between Israel and Hezbollah were warned not to return home despite the U.S.-Iran framework agreement.`\
+https://www.nytimes.com/video/world/middleeast/100000010967572/displaced-lebanese-families-warned-not-to-return-home.html
+
 **Trump’s UFC Fight Night Was as Absurd as Promised**\
 `Trump’s birthday fight night on the White House lawn was an absurd spectacle, yes, but an ominous one as well.`\
 https://www.nytimes.com/2026/06/15/opinion/trump-ufc-fight.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/15/podcasts/balogun-the-usmnt-hero-and-world-cup
 **U.S. and Iran Find Ways to Claim Victory on the Nuclear Issue**\
 `President Trump said Iran had promised to suspend enriching uranium, but it is unclear for how long.`\
 https://www.nytimes.com/2026/06/15/world/middleeast/nuclear-iran-united-states.html
-
-**Inside the U.S.-Iran Deal, and Trump Hosts U.F.C. Fights**\
-`Plus, crafting the perfect grass for the World Cup.`\
-https://www.nytimes.com/2026/06/15/podcasts/the-headlines/us-iran-deal-ufc-fight-at-the-white-house.html
 

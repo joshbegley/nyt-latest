@@ -1,3 +1,15 @@
+**Trump’s UFC Fight Night Was as Absurd as Promised**\
+`Trump’s birthday fight night on the White House lawn was an absurd spectacle, yes, but an ominous one as well.`\
+https://www.nytimes.com/2026/06/15/opinion/trump-ufc-fight.html
+
+**Kennedy Seeks to Expedite Appeal of Ruling That Blocked His Vaccine Policies**\
+`The health secretary is trying to restart the work of a panel that advises the government on vaccines, after a judge froze its decisions and prevented it from meeting.`\
+https://www.nytimes.com/2026/06/15/health/childhood-vaccines-lawsuit-kennedy.html
+
+**What We Know About the Fatal Crash of a Skydiving Plane in Missouri**\
+`All 12 people aboard the aircraft died on Sunday when the plane crashed shortly after takeoff near Kansas City.`\
+https://www.nytimes.com/2026/06/15/us/what-we-know-skydiving-plane-crash.html
+
 **The Knicks Sprinkle Their Magic Over New York**\
 `Readers express joy over the New York Knicks’ N.B.A. championship. Also: The fight spectacle on the South Lawn of the White House.`\
 https://www.nytimes.com/2026/06/15/opinion/knicks-nba-champions.html
