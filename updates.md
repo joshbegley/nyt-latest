@@ -1,3 +1,11 @@
+**No Corrections: June 15, 2026**\
+`No corrections appeared in print on Monday, June 15, 2026.`\
+https://www.nytimes.com/2026/06/15/pageoneplus/no-corrections-june-15-2026.html
+
+**Quote of the Day: Pinch Yourselves, Knicks Fans: Next Year Is Now**\
+`Quotation of the Day for Monday, June 15, 2026.`\
+https://www.nytimes.com/2026/06/15/pageoneplus/quote-of-the-day-pinch-yourselves-knicks-fans-next-year-is-now.html
+
 **Iran War Live Updates: U.S. and Tehran Reach Framework for Peace**\
 `The deal was expected to open the Strait of Hormuz and lift the U.S. naval blockade on Iranian ports. But it would leave the thorniest nuclear issues for another day.`\
 https://www.nytimes.com/live/2026/06/14/world/iran-war-trump-us
