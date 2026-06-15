@@ -1,3 +1,11 @@
+**The U.S.-Iran Deal: What to Know**\
+`The full text of the deal that could pave the way to ending the war has not been published. Initial details suggest that it defers the most contentious issues.`\
+https://www.nytimes.com/2026/06/15/world/middleeast/us-iran-deal.html
+
+**A Deal in Iran**\
+`The United States and Iran have a deal that could lead to the end of their monthslong war.`\
+https://www.nytimes.com/2026/06/15/briefing/a-deal-in-iran.html
+
 **China Moves the Price of Oil, Even When It Buys Less**\
 `China is the world’s largest purchaser of oil. But three months after the war with Iran began, it cut its imports, cushioning the global market.`\
 https://www.nytimes.com/2026/06/15/business/china-oil-iran.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/15/opinion/vancouver-housing-crisis-development.
 **Uzbekistan Is Attracting Younger Travelers, but Does It Live Up to the Buzz?**\
 `This Central Asian country is gaining traction with young travelers seeking beauty, authenticity and low prices. Was it worth the 12-hour flight?`\
 https://www.nytimes.com/2026/06/15/travel/uzbekistan-central-asia-tourism-tashkent-samarkand.html
-
-**Taking on Neo-Nazis, One Trademark at a Time**\
-`In Germany, a campaign called Rights Against the Right is securing trademarks for right-wing symbols and phrases, aiming to cut into a revenue stream that sustains hate groups.`\
-https://www.nytimes.com/2026/06/15/world/europe/taking-on-neo-nazis-one-trademark-at-a-time.html
-
-**Una papa misteriosa en el cielo de Colorado aparece en los archivos sobre ovnis**\
-`Las papas ya han aparecido en avistamientos anteriores, así como en viajes espaciales reales y de ficción.`\
-https://www.nytimes.com/es/2026/06/15/espanol/estados-unidos/pentagono-ovni-papa.html
 
