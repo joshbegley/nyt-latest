@@ -162,8 +162,8 @@ https://www.nytimes.com/2026/06/14/world/middleeast/israel-strikes-beirut-hezbol
 `The referendum was about limiting migration after the number of residents rose by more than a quarter since 2000, but it was framed around affordability and sustainability.`\
 https://www.nytimes.com/2026/06/14/world/europe/switzerland-population-cap-referendum.html
 
-**For His 80th Birthday, Trump Brings the Fight to the White House Lawn**\
-`Presidential historians say the U.F.C. event, which was estimated to cost more than $60 million, is unprecedented.`\
+**For His 80th Birthday, Trump Brought a Cage Match to the White House Lawn**\
+`President Trump sat ringside beside his wife, Melania Trump, for an event that used the trappings of the White House for a U.F.C. brawl.`\
 https://www.nytimes.com/2026/06/14/us/ufc-trump-white-house.html
 
 **He Made ‘Heathcliff’ Absurd**\

@@ -1,3 +1,7 @@
+**For His 80th Birthday, Trump Brought a Cage Match to the White House Lawn**\
+`President Trump sat ringside beside his wife, Melania Trump, for an event that used the trappings of the White House for a U.F.C. brawl.`\
+https://www.nytimes.com/2026/06/14/us/ufc-trump-white-house.html
+
 **No Corrections: June 15, 2026**\
 `No corrections appeared in print on Monday, June 15, 2026.`\
 https://www.nytimes.com/2026/06/15/pageoneplus/no-corrections-june-15-2026.html
