@@ -1,3 +1,27 @@
+**Trump Heads to Group of 7 as Allies Rethink Their Relationship With U.S.**\
+`President Trump has long been at odds with European leaders over trade, Ukraine and NATO, but he has lashed out in recent weeks over their refusal to support the U.S. war with Iran.`\
+https://www.nytimes.com/2026/06/15/us/politics/trump-group-of-7-summit.html
+
+**On Father’s Day, It’s Obvious That the Role of a Dad Has Changed**\
+`I’m fascinated by the fathers my brothers became.`\
+https://www.nytimes.com/2026/06/15/opinion/fathers-day-fatherhood.html
+
+**How a Book Editor and Jazz Musician Lives on $55,000 in West Harlem**\
+`Frugality is a family tradition for Ruby Pucillo, but it is one that is difficult to maintain as a 20-something with more than half of her income going to rent.`\
+https://www.nytimes.com/interactive/2026/06/15/nyregion/nyc-budgeting-affordability-pucillo.html
+
+**Your Summer 2026 Politics Quiz Is Here**\
+`Ease into the summer with the latest Gail Collins politics quiz.`\
+https://www.nytimes.com/interactive/2026/06/15/opinion/contributors/15collins-quiz-interactive.html
+
+**In New Luxury Kitchens, Everything Is Hidden**\
+`Camouflaging the fridge is just the beginning for high-end kitchens.`\
+https://www.nytimes.com/2026/06/15/realestate/luxury-kitchens-hidden-sinks-fridges.html
+
+**An Eventful Week Will Follow a Weekend to Remember**\
+`New York is on a Knicks high. The coming days will bring a parade, but don’t forget the World Cup.`\
+https://www.nytimes.com/2026/06/15/nyregion/knicks-championship-world-cup.html
+
 **‘Break Your Hips!’ Spinning to the Rhythm of Venezuelan Tambores**\
 `Tambores may not be as widely known as other Latin dances like merengue and salsa, but that is starting to change with the exodus of millions of Venezuelans.`\
 https://www.nytimes.com/2026/06/15/arts/dance/tambores-venezuela-music.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/06/15/nyregion/sail-250-nyc-ships.html
 **NYT Spelling Bee Answers for June 15, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/06/15/crosswords/spelling-bee-forum.html
-
-**If Democrats Want to Win the House, Their Battle May Start Here**\
-`A bitterly fought Democratic primary in New York’s Hudson Valley will determine who takes on Representative Mike Lawler, one of the more vulnerable Republicans this cycle.`\
-https://www.nytimes.com/2026/06/15/nyregion/democratic-primary-ny17-hudson-valley.html
-
-**Plaintiffs in Catholic Church Abuse Case Weigh $800 Million Offer**\
-`The proposed settlement would pay $250,000 to each of the 1,300 people who have sued the Archdiocese of New York over sexual abuse claims. But for any of them to get the deal, all must agree to take it.`\
-https://www.nytimes.com/2026/06/15/nyregion/archdiocese-abuse-settlement-ny.html
-
-**Iran War Live Updates: U.S. and Tehran Agree on Framework for Peace**\
-`The deal was expected to open the Strait of Hormuz, lift the U.S. naval blockade on Iranian ports and pave the way for further talks. It did not address Iran’s nuclear program.`\
-https://www.nytimes.com/live/2026/06/15/world/iran-war-trump-us-deal
-
-**5 minutos para que te enamores de Nina Simone**\
-`En una frase era capaz de pasar del susurro al rugido y su repertorio abarca estándares de jazz, canciones de protesta, blues y pop. Escucha estas 11 canciones favoritas`\
-https://www.nytimes.com/es/2026/06/15/espanol/cultura/5-minutos-nina-simone.html
-
-**Word of the Day: apocalyptic**\
-`This word has appeared in 227 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/06/15/learning/word-of-the-day-apocalyptic.html
-
-**Historic Orthodox Cathedral Burns in Russian Attack on Kyiv**\
-`A bishop reported that many holy items had been recovered from the cathedral, at the site of the Perchersk monastery, a revered place for Ukrainian and Russian Orthodox faiths.`\
-https://www.nytimes.com/2026/06/15/world/europe/ukraine-kyiv-russia-attack-orthodox-cathedral.html
 
