@@ -1,3 +1,7 @@
+**Historic Orthodox Cathedral Burns in Russian Attack on Kyiv**\
+`A bishop reported that many holy items had been recovered from the cathedral, at the site of the Perchersk monastery, a revered place for Ukrainian and Russian Orthodox faiths.`\
+https://www.nytimes.com/2026/06/15/world/europe/ukraine-orthodox-cathedral.html
+
 **Many Iranians Express Relief Over Agreement to End the War**\
 `After enduring months of conflict, ordinary people in Iran were relieved to hear about the deal. Opposition groups were disappointed.`\
 https://www.nytimes.com/2026/06/15/world/middleeast/iran-reaction-cease-fire-deal.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/14/podcasts/the-daily/do-aliens-exist-steven-spi
 **Knicks Win First N.B.A. Title in 53 Years**\
 `Hear instant reaction to the New York Knicks’ win over the San Antonio Spurs.`\
 https://www.nytimes.com/2026/06/14/podcasts/knicks-win-first-nba-title-in-53-years.html
-
-**Net Gain**\
-`We’re covering the Knicks, and a savvy strategy people are using to game prediction markets.`\
-https://www.nytimes.com/2026/06/14/briefing/net-gain.html
 
 **Iran War Live Updates: U.S. and Tehran Reach Framework for Peace**\
 `The deal was expected to open the Strait of Hormuz and lift the U.S. naval blockade on Iranian ports. But it would leave the thorniest nuclear issues for another day.`\
