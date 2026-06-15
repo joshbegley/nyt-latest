@@ -1,3 +1,7 @@
+**Trump Hosts U.F.C. Event at the White House**\
+`President Trump turned 80 on Sunday and celebrated with a $60 million Ultimate Fighting Championship event at the White House.`\
+https://www.nytimes.com/video/us/100000010967377/trump-ufc-white-house.html
+
 **U.S. and Iran Reach Framework for Peace**\
 `The United States and Iran reached a framework for peace on Sunday. Trump said the agreement would reopen the Strait of Hormuz after a monthslong blockade.`\
 https://www.nytimes.com/video/world/middleeast/100000010967290/iran-us-peace-deal.html
