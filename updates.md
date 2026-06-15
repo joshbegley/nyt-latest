@@ -1,3 +1,7 @@
+**U.K. Ban on Pro-Palestinian Protest Group Is Lawful, Court of Appeal Rules**\
+`The decision overturned a lower-court ruling that found that banning Palestine Action as a terrorist group had breached free speech rights.`\
+https://www.nytimes.com/2026/06/15/world/europe/uk-palestine-action-ban-appeal.html
+
 **Shipping Firms, Awaiting Details, Are Cautious of U.S.-Iran Deal**\
 `Shipowners welcomed the agreement to reopen the Strait of Hormuz, but said they would need more security guarantees before resuming transits.`\
 https://www.nytimes.com/2026/06/15/business/us-iran-deal-shipping-companies-strait-of-hormuz.html
