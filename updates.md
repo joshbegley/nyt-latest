@@ -1,3 +1,7 @@
+**U.F.C. Viewing Party Draws Thousands to White House Ellipse**\
+`People from all over the country came to Washington on Sunday for a unique viewing party of the Ultimate Fighting Championship bouts being held on the South Lawn of the White House.`\
+https://www.nytimes.com/2026/06/14/us/politics/ufc-white-house-freedom-250-watch-party.html
+
 **Singer Oliver Tree Is Said to Have Died in Collision of Helicopters in Brazil**\
 `The two helicopters crashed in Rio de Janeiro on Sunday, killing at least six people, the authorities said.`\
 https://www.nytimes.com/2026/06/14/arts/music/oliver-tree-dead-brazil-helicopter-crash.html

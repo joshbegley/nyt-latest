@@ -1,3 +1,7 @@
+**U.F.C. Viewing Party Draws Thousands to White House Ellipse**\
+`People from all over the country came to Washington on Sunday for a unique viewing party of the Ultimate Fighting Championship bouts being held on the South Lawn of the White House.`\
+https://www.nytimes.com/2026/06/14/us/politics/ufc-white-house-freedom-250-watch-party.html
+
 **Singer Oliver Tree Is Said to Have Died in Collision of Helicopters in Brazil**\
 `The two helicopters crashed in Rio de Janeiro on Sunday, killing at least six people, the authorities said.`\
 https://www.nytimes.com/2026/06/14/arts/music/oliver-tree-dead-brazil-helicopter-crash.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/14/opinion/sonny-rollins-williamsburg-bridge.htm
 **Does Steven Spielberg Believe in Aliens?**\
 `Steven Spielberg tells Rachel Abrams, host of “The Daily,” what he now believes about aliens, and why his new movie is really about rebuilding human connection.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000010961559/does-steven-spielberg-believe-in-aliens.html
-
-**Do Aliens Exist? Steven Spielberg Believes They Do**\
-`Director Steven Spielberg joins Rachel Abrams on “The Daily” to talk about his return to alien movies with “Disclosure Day.” An icon of the movie world, Spielberg also discusses how fear has always fueled his filmmaking, and why people stopped talking to him after “Jaws.”`\
-https://www.nytimes.com/video/podcasts/the-daily/100000010961486/do-aliens-exist-steven-spielberg-believes-they-do.html
 
