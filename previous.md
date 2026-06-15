@@ -15,7 +15,7 @@ https://www.nytimes.com/2026/06/15/world/europe/marius-borg-hoiby-verdict-norway
 https://www.nytimes.com/es/2026/06/15/espanol/mundo/alemania-japon-rearme.html
 
 **Britain Announces Social Media Ban for Children**\
-`Prime Minister Keir Starmer said his government would legislate to bar children under 16 from social media starting in 2027. The move follows similar policies in Australia and several other countries.`\
+`Prime Minister Keir Starmer said his government would bar children under 16 from social media starting in 2027. The move follows similar policies in Australia and several other countries.`\
 https://www.nytimes.com/2026/06/15/world/europe/uk-social-media-children.html
 
 **She Didn’t Live to See the Knicks Championship. She Would Have Loved It.**\

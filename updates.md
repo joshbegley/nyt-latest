@@ -1,3 +1,7 @@
+**Britain Announces Social Media Ban for Children**\
+`Prime Minister Keir Starmer said his government would bar children under 16 from social media starting in 2027. The move follows similar policies in Australia and several other countries.`\
+https://www.nytimes.com/2026/06/15/world/europe/uk-social-media-children.html
+
 **Trump Hosts U.F.C. Event at the White House**\
 `President Trump turned 80 on Sunday and celebrated with a $60 million Ultimate Fighting Championship event at the White House.`\
 https://www.nytimes.com/video/us/100000010967377/trump-ufc-white-house.html
