@@ -1,3 +1,7 @@
+**Trump Claims Strait Will Be ‘Permanently Toll-Free’ Under Agreement With Iran**\
+`In a call to The New York Times, President Trump praised Russia’s and China’s leaders and described Israel’s prime minister as “a very difficult guy.”`\
+https://www.nytimes.com/2026/06/14/us/politics/trump-iran-deal-strait-of-hormuz.html
+
 **U.F.C. Viewing Party Draws Thousands to White House Ellipse**\
 `People from all over the country came to Washington on Sunday for a unique viewing party of the Ultimate Fighting Championship bouts being held on the South Lawn of the White House.`\
 https://www.nytimes.com/2026/06/14/us/politics/ufc-white-house-freedom-250-watch-party.html

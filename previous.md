@@ -18,8 +18,8 @@ https://www.nytimes.com/2026/06/14/us/politics/trump-ufc-politics-midterms.html
 `Shasta County voters had approved a ballot measure that would have heavily restricted voting by mail and imposed photo ID requirements. State officials said the new rules were illegal.`\
 https://www.nytimes.com/2026/06/14/us/california-lawsuit-mail-voting.html
 
-**Trump Claims Strait Will be ‘Permanently Toll Free’ Under Agreement With Iran**\
-`In a call to The New York Times, President Trump praised Russia and China’s leaders and described Israel’s prime minister as “a very difficult guy.”`\
+**Trump Claims Strait Will Be ‘Permanently Toll-Free’ Under Agreement With Iran**\
+`In a call to The New York Times, President Trump praised Russia’s and China’s leaders and described Israel’s prime minister as “a very difficult guy.”`\
 https://www.nytimes.com/2026/06/14/us/politics/trump-iran-deal-strait-of-hormuz.html
 
 **Oil Prices Tumble After Trump Announces Deal With Iran**\
