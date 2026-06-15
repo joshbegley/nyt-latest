@@ -1,3 +1,11 @@
+**Israel Counts the Ways That Netanyahu’s Iran Strategy Failed**\
+`The U.S.-Iran framework agreement appears to omit some of the most important provisions that Israel wanted.`\
+https://www.nytimes.com/2026/06/15/world/middleeast/israel-counts-the-ways-that-netanyahus-iran-strategy-failed.html
+
+**U.S.-Iran Agreement Leaves Lebanon’s Fate Murky**\
+`Iran claimed the deal would extend to fighting in Lebanon but no details of the agreement were made public and Israel said its forces would remain there.`\
+https://www.nytimes.com/2026/06/15/world/middleeast/us-iran-agreement-leaves-lebanons-fate-murky.html
+
 **Deal to Reopen Hormuz Kicks Off Long Effort to Ease Energy Crisis**\
 `The pace of the recovery will depend on how confident companies are that the deal between the United States and Iran will hold and be extended.`\
 https://www.nytimes.com/2026/06/15/business/energy-environment/iran-deal-oil-natural-gas.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/15/fashion/jeans.html
 **The ‘No Kings’ Protest Killing With a Novel Legal Twist**\
 `A gunman believed he was defending the crowd. He killed an innocent bystander. Should he be convicted of a crime?`\
 https://www.nytimes.com/2026/06/15/us/no-kings-protest-shooting.html
-
-**How Quebec Left the Church and Became the World Leader in Assisted Dying**\
-`A society once strongly Roman Catholic has rejected the church’s prohibition on euthanasia, with many instead viewing control over one’s death as an individual right.`\
-https://www.nytimes.com/2026/06/15/world/canada/quebec-medically-assisted-dying-catholic.html
-
-**Book Review: ‘The Nord Stream Conspiracy,’ by Bojan Pancevski**\
-`In “The Nord Stream Conspiracy,” the investigative journalist Bojan Pancevski tells a high-stakes international war story in blockbuster prose.`\
-https://www.nytimes.com/2026/06/15/books/review/the-nord-stream-conspiracy-bojan-pancevski.html
 
