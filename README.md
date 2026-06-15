@@ -15,7 +15,7 @@ https://www.nytimes.com/2026/06/15/business/china-oil-iran.html
 https://www.nytimes.com/2026/06/15/podcasts/balogun-the-usmnt-hero-and-world-cup-empty-seats.html
 
 **On the Nuclear Issue, Each Side Finds a Way to Claim Victory**\
-`President Trump said Iran had promised to suspend enriching uranium, but it is unclear for how long and the details still have to be negotiated.`\
+`President Trump said Iran had promised to suspend enriching uranium, but it is unclear for how long.`\
 https://www.nytimes.com/2026/06/15/world/middleeast/on-the-nuclear-issue-each-side-finds-a-way-to-claim-victory.html
 
 **Inside the U.S.-Iran Deal, and Trump Hosts U.F.C. Fights**\
