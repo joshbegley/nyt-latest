@@ -1,10 +1,10 @@
-**Trump Lost The War He Started In Iran**\
-`The United States is emerging weaker — militarily, diplomatically and economically — than at the start of the war.`\
-https://www.nytimes.com/2026/06/15/opinion/-trump-lost-war-iran.html
-
 **U.S. and Iran Sign a Framework Deal, Leaving Major Issues for Future Talks**\
 `U.S. and Iranian officials said the deal included a 60-day cease-fire to pave the way for negotiations toward a final peace agreement and talks on Iran’s nuclear program.`\
 https://www.nytimes.com/2026/06/15/world/middleeast/us-iran-framework-ceasefire-deal.html
+
+**Trump Lost The War He Started In Iran**\
+`The United States is emerging weaker — militarily, diplomatically and economically — than at the start of the war.`\
+https://www.nytimes.com/2026/06/15/opinion/-trump-lost-war-iran.html
 
 **14-Year-Old Is Charged With Armed Robbery of Boston Lemonade Stand**\
 `A cash box containing about $80 was stolen from two siblings in Boston during the robbery, which occurred in broad daylight, the police and family members said.`\
@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/06/15/us/lemonade-stand-armed-robbery-arrest-boston
 `Republicans had accused Democrats of attempting to confuse voters by boosting a candidate with the same name as the incumbent Republican senator.`\
 https://www.nytimes.com/2026/06/15/us/politics/dan-sullivan-alaska-senate.html
 
-**‘We Cannot Trust Any Iranian Promises’: 3 Opinion Writers Dissect the Iran Deal**\
+**‘Everybody Lost in this War’: 3 Opinion Writers Dissect the Iran Deal**\
 `Was the Iran war worth it — and will the latest agreement even stick?`\
 https://www.nytimes.com/2026/06/15/opinion/iran-deal-experts.html
 

@@ -1,3 +1,7 @@
+**‘Everybody Lost in this War’: 3 Opinion Writers Dissect the Iran Deal**\
+`Was the Iran war worth it — and will the latest agreement even stick?`\
+https://www.nytimes.com/2026/06/15/opinion/iran-deal-experts.html
+
 **Trump Lost The War He Started In Iran**\
 `The United States is emerging weaker — militarily, diplomatically and economically — than at the start of the war.`\
 https://www.nytimes.com/2026/06/15/opinion/-trump-lost-war-iran.html

@@ -1,3 +1,11 @@
+**Washington Has Been Carefully Planned for Two Centuries. Now Trump Has His Own Designs.**\
+`The city is unlike any in America for its accumulation of intricate details, a whole that is a work of civic art.`\
+https://www.nytimes.com/interactive/2026/06/15/upshot/trump-lenfant-dc.html
+
+**Seth Rogen Remembers Catherine O’Hara**\
+`Seth Rogen worked with the late actress Catherine O’Hara on his show “The Studio.” On “The Interview,” he recalled her influence on his work and how much she was missed when she died this year.`\
+https://www.nytimes.com/video/podcasts/100000010969361/seth-rogen-remembers-catherine-ohara.html
+
 **U.S. and Iran Sign a Framework Deal, Leaving Major Issues for Future Talks**\
 `U.S. and Iranian officials said the deal included a 60-day cease-fire to pave the way for negotiations toward a final peace agreement and talks on Iran’s nuclear program.`\
 https://www.nytimes.com/2026/06/15/world/middleeast/us-iran-framework-ceasefire-deal.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/15/us/politics/supreme-court-carter-page-lawsuit
 **Jaded and Exhausted, Many Iranians Shrug at World Cup**\
 `The successes of Iran’s national soccer team used to be a source of celebration. Now, many Iranians can barely muster the energy to care.`\
 https://www.nytimes.com/2026/06/15/world/middleeast/iran-national-team-fans.html
-
-**EE. UU. e Irán alcanzan un acuerdo para la paz. Estas son las claves**\
-`Aún no se publica el texto completo del acuerdo preliminar que allanaría el camino para poner fin a la guerra. Los primeros detalles sugieren que posterga las cuestiones más polémicas.`\
-https://www.nytimes.com/es/2026/06/15/espanol/mundo/eeuu-iran-acuerdo.html
-
-**In France, Justice System Faces Public Anger After 11-Year-Old Girl’s Killing**\
-`Protests have erupted across France after authorities revealed that a man accused of kidnapping Lyhanna Rameau Bernard, a French schoolgirl found dead this month, had previously been flagged to law enforcement.`\
-https://www.nytimes.com/2026/06/15/world/europe/france-lyhanna-protests.html
 
