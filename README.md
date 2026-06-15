@@ -1,47 +1,3 @@
-**With Iran Deal, Trump Celebrates a Win but Much Remains Unfinished**\
-`While the president says the agreement would open the Strait of Hormuz and provide economic relief, Iran’s nuclear program is still a subject for negotiation.`\
-https://www.nytimes.com/2026/06/15/world/middleeast/iran-deal-hormuz-trump-goals.html
-
-**Israel Counts the Ways That Netanyahu’s Iran Strategy Failed**\
-`The U.S.-Iran framework agreement appears to omit some of the most important provisions that Israel wanted.`\
-https://www.nytimes.com/2026/06/15/world/middleeast/israel-netanyahus-iran-strategy.html
-
-**U.S.-Iran Agreement Leaves Lebanon’s Fate Murky**\
-`Iran claimed the deal would extend to fighting in Lebanon but no details of the agreement were made public and Israel said its forces would remain there.`\
-https://www.nytimes.com/2026/06/15/world/middleeast/us-iran-agreement-lebanon.html
-
-**Deal to Reopen Hormuz Kicks Off Long Effort to Ease Energy Crisis**\
-`The pace of the recovery will depend on how confident companies are that the deal between the United States and Iran will hold and be extended.`\
-https://www.nytimes.com/2026/06/15/business/energy-environment/iran-deal-oil-natural-gas.html
-
-**SpaceX’s Stock Rises Ahead of First Full Day of Trading**\
-`After notching big gains on its debut on Friday, the company’s shares jumped again on Monday before the market opened.`\
-https://www.nytimes.com/2026/06/15/business/spacex-stock.html
-
-**Fox to Acquire Roku, Joining the Battle for the Living Room**\
-`The $22 billion deal will bolster Fox Corp.’s efforts to reach consumers on streaming platforms.`\
-https://www.nytimes.com/2026/06/15/business/fox-roku-acquisition-streaming-media.html
-
-**Read Will Scharf’s Confidential Habeas Corpus Memo**\
-`Will Scharf, the White House staff secretary, wrote a secret memo to Susie Wiles, the White House chief of staff, outlining his concerns about suspending habeas rights for unauthorized immigrants.`\
-https://www.nytimes.com/interactive/2026/06/15/us/politics/trump-miller-habeas-corpus.html
-
-**Read Will Scharf’s Confidential Insurrection Act Memo**\
-`Will Scharf, the White House staff secretary, wrote a secret memo to Susie Wiles, the White House chief of staff, warning that invoking the Insurrection Act risked major legal battles.`\
-https://www.nytimes.com/interactive/2026/06/15/us/politics/trump-miller-insurrection-act.html
-
-**Russian Attack on Kyiv Damages Historic Orthodox Cathedral**\
-`A historic cathedral at one of Ukraine’s holiest sites burned on Monday after a large-scale Russian missile and drone attack on Kyiv.`\
-https://www.nytimes.com/video/world/europe/100000010967495/russia-kyiv-attack-orthodox-cathedral.html
-
-**Global Markets Rally on Iran Peace Hopes**\
-`A framework agreement could be signed later this week, but details are scarce. Still, investors are cheering the potential breakthrough.`\
-https://www.nytimes.com/2026/06/15/business/dealbook/trump-iran-peace-rally.html
-
-****\
-`tktktkt`\
-https://www.nytimes.com/video/embedded/business/100000010967708/15visualUploader-13306.html
-
 **U.K. Ban on Pro-Palestinian Protest Group Is Lawful, Court of Appeal Rules**\
 `The decision overturned a lower-court ruling that found that banning Palestine Action as a terrorist group had breached free speech rights.`\
 https://www.nytimes.com/2026/06/15/world/europe/uk-palestine-action-ban-appeal.html
@@ -102,21 +58,21 @@ https://www.nytimes.com/2026/06/15/crosswords/wordle-review-1823.html
 `Even though negotiations will begin for Ukraine to join the bloc, the path ahead is a long one.`\
 https://www.nytimes.com/2026/06/15/world/europe/ukraine-eu-membership.html
 
-**On Father’s Day, It’s Obvious That the Role of a Dad Has Changed**\
-`I’m fascinated by the fathers my brothers became.`\
-https://www.nytimes.com/2026/06/15/opinion/fathers-day-fatherhood.html
-
 **Trump Heads to Group of 7 as Allies Rethink Their Relationship With U.S.**\
 `President Trump has long been at odds with European leaders over trade, Ukraine and NATO, but he has lashed out in recent weeks over their refusal to support the U.S. war with Iran.`\
 https://www.nytimes.com/2026/06/15/us/politics/trump-group-of-7-summit.html
 
-**Your Summer 2026 Politics Quiz Is Here**\
-`Ease into the summer with the latest Gail Collins politics quiz.`\
-https://www.nytimes.com/interactive/2026/06/15/opinion/contributors/15collins-quiz-interactive.html
+**On Father’s Day, It’s Obvious That the Role of a Dad Has Changed**\
+`I’m fascinated by the fathers my brothers became.`\
+https://www.nytimes.com/2026/06/15/opinion/fathers-day-fatherhood.html
 
 **How a Book Editor and Jazz Musician Lives on $55,000 in West Harlem**\
 `Frugality is a family tradition for Ruby Pucillo, but it is one that is difficult to maintain as a 20-something with more than half of her income going to rent.`\
 https://www.nytimes.com/interactive/2026/06/15/nyregion/nyc-budgeting-affordability-pucillo.html
+
+**Your Summer 2026 Politics Quiz Is Here**\
+`Ease into the summer with the latest Gail Collins politics quiz.`\
+https://www.nytimes.com/interactive/2026/06/15/opinion/contributors/15collins-quiz-interactive.html
 
 **In New Luxury Kitchens, Everything Is Hidden**\
 `Camouflaging the fridge is just the beginning for high-end kitchens.`\
@@ -197,4 +153,48 @@ https://www.nytimes.com/2026/06/15/us/elections/alabama-election-data-centers-so
 **Is There Such a Thing as Timeless Jeans?**\
 `A reader wants to know if the denim trend wagon will ever stop.`\
 https://www.nytimes.com/2026/06/15/fashion/jeans.html
+
+**The ‘No Kings’ Protest Killing With a Complicated Twist**\
+`A gunman believed he was defending the crowd. He killed an innocent bystander. Should he be convicted of a crime?`\
+https://www.nytimes.com/2026/06/15/us/no-kings-protest-shooting.html
+
+**How Quebec Left the Church and Became the World Leader in Assisted Dying**\
+`A society once strongly Roman Catholic has rejected the church’s prohibition on euthanasia, with many instead viewing control over one’s death as an individual right.`\
+https://www.nytimes.com/2026/06/15/world/canada/quebec-medically-assisted-dying-catholic.html
+
+**Book Review: ‘The Nord Stream Conspiracy,’ by Bojan Pancevski**\
+`In “The Nord Stream Conspiracy,” the investigative journalist Bojan Pancevski tells a high-stakes international war story in blockbuster prose.`\
+https://www.nytimes.com/2026/06/15/books/review/the-nord-stream-conspiracy-bojan-pancevski.html
+
+**Why the Art Workers’ Coalition’s Battles Still Resonate**\
+`Members of the Art Workers’ Coalition fought for a fairer and more equitable business for themselves. Their battles resonate to this day.`\
+https://www.nytimes.com/2026/06/15/t-magazine/art-workers-coalition.html
+
+**8 Proposals for a Better Art World**\
+`Artists on what a more utopian version of their field might look like.`\
+https://www.nytimes.com/2026/06/15/t-magazine/fairer-art-world-ideas-funding.html
+
+**A History of American Utopia in 10 Acts**\
+`Exploring some of the significant experiments that have best captured the country’s idealistic spirit.`\
+https://www.nytimes.com/2026/06/15/t-magazine/utopian-movements-shakers-civil-rights.html
+
+**American Utopia: Why Artists Can’t Stop Imagining a Better World**\
+`T’s annual Art issue explores how the idea of a good if elusive place has inspired great art, and vice versa.`\
+https://www.nytimes.com/2026/06/15/t-magazine/us-utopia-art-thomas-cole.html
+
+**An Oral History of Casa de Estrogen, L.A.’s Haven for Queer, Feminist Art**\
+`How one apartment building in L.A.’s Koreatown became a haven for queer, feminist art in the 1990s and beyond.`\
+https://www.nytimes.com/2026/06/15/t-magazine/casa-de-estrogen-jenny-shimizu-catherine-opie.html
+
+**To Toast America’s Birthday, They Blended Bourbon From Every State**\
+`United States of Bourbon, the result of a Vermont couple’s many road trips, is just one of several special whiskeys marking the 250th.`\
+https://www.nytimes.com/2026/06/15/dining/drinks/united-states-of-bourbon-blend-lost-lantern.html
+
+**Millions of Women Are Left Out of Menopause’s Moment**\
+`Women who can’t take hormone therapy because of breast cancer or other diseases say they are deeply frustrated.`\
+https://www.nytimes.com/2026/06/15/well/menopause-hormone-therapy-breast-cancer.html
+
+**Inside Colombia’s Never-Ending Drug War**\
+`Ten years after a landmark peace deal, armed groups are wreaking deadly violence, blending jungle combat with new drone warfare.`\
+https://www.nytimes.com/2026/06/15/world/americas/colombia-drug-war-violence-petro.html
 
