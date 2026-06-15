@@ -1,3 +1,15 @@
+**Trump Praises Peace Deal Framework With Iran**\
+`On Monday, the U.S. and Iran signed a preliminary peace deal, but the terms of the agreement remained a secret. While the U.S. and Iranian officials made conflicting statements about the deal’s terms, it was clear that the deal’s immediate scope was focused primarily on ending military attacks and allowing traffic to resume through the Strait of Hormuz.`\
+https://www.nytimes.com/video/world/middleeast/100000010968894/us-trump-iran-negotiations-deal.html
+
+**Terms of U.S.-Iran Deal Remain Secret**\
+`Cape Verde pulls off a shocker at the World Cup. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/06/15/briefing/us-iran-deal-cape-verde-world-cup.html
+
+**Potential End of War Tests Trump’s Promise of Quick Economic Rebound**\
+`Gas prices and other goods could remain elevated for months, adding to the political challenge facing the White House in the midterm elections.`\
+https://www.nytimes.com/2026/06/15/us/politics/iran-war-deal-trump-economic-rebound.html
+
 **Will Commercial Ships Have to Pay to Pass Through the Strait of Hormuz? Maybe.**\
 `Charging a toll is illegal under international law, but some fees are allowed for services. It is not clear what services Iran would provide, but there were no fees charged before the war.`\
 https://www.nytimes.com/2026/06/15/world/middleeast/shipping-fees-tolls-strait-hormuz.html
