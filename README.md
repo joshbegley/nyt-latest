@@ -1,3 +1,15 @@
+**Will SpaceX Fortunes Trickle Down to This Texas Town?**\
+`Elon Musk built a huge complex outside the city of Bastrop, population 14,000. Its residents now wonder what the historic SpaceX initial public offering might mean for them.`\
+https://www.nytimes.com/2026/06/15/business/spacex-ipo-trickle-down-bastrop.html
+
+**The Knicks Sprinkle Their Magic Over New York**\
+`Readers express joy over the New York Knicks’ N.B.A. championship. Also: The fight spectacle on South Lawn of the White House.`\
+https://www.nytimes.com/2026/06/15/opinion/knicks-nba-champions.html
+
+**Trump celebra evento de la UFC en la Casa Blanca**\
+`El evento de la UFC realizado el domingo por la noche en el jardín sur de la Casa Blanca fue un espectáculo mediático sin precedentes en la historia de la presidencia estadounidense.`\
+https://www.nytimes.com/es/2026/06/15/espanol/estados-unidos/trump-ufc-lucha-cumpleanos.html
+
 **The Look of Patriotism at Trump’s U.F.C. Fight**\
 `From the athletes to the Octagon Girls, the Freedom 250 Flag Day event was a fashion show in red, white and blue.`\
 https://www.nytimes.com/2026/06/15/style/fashion-ufc-fight-trump-white-house.html
@@ -58,7 +70,7 @@ https://www.nytimes.com/es/2026/06/15/espanol/mundo/eeuu-iran-acuerdo.html
 `Protests have erupted across France after authorities revealed that a man accused of kidnapping Lyhanna Rameau Bernard, a French schoolgirl found dead this month, had previously been flagged to law enforcement.`\
 https://www.nytimes.com/2026/06/15/world/europe/france-lyhanna-protests.html
 
-**Gulf Countries Confront New Questions About Relying on U.S. Protection**\
+**Gulf Countries Confront Questions About Relying on U.S. for Protection**\
 `Iran targeted Bahrain, Qatar, the United Arab Emirates and other American allies in the Middle East during the war, harming their economies and military sectors.`\
 https://www.nytimes.com/2026/06/15/world/middleeast/gulf-iran-war-us.html
 
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/15/crosswords/connections-companion-1101.html
 **NYT Strands Hints for June 16, 2026**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, June 16, 2026.`\
 https://www.nytimes.com/2026/06/15/crosswords/strands-sidekick-835.html
-
-**Today’s Wordle Hints for June 16, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, June 16, 2026.`\
-https://www.nytimes.com/2026/06/15/crosswords/wordle-review-1823.html
-
-**With Its Biggest E.U. Opponent Gone, Ukraine Is Advancing in Its Bid to Join**\
-`Even though negotiations will begin for Ukraine to join the bloc, the path ahead is a long one.`\
-https://www.nytimes.com/2026/06/15/world/europe/ukraine-eu-membership.html
-
-**On Father’s Day, It’s Obvious That the Role of a Dad Has Changed**\
-`I’m fascinated by the fathers my brothers became.`\
-https://www.nytimes.com/2026/06/15/opinion/fathers-day-fatherhood.html
 
