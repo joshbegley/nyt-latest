@@ -1,3 +1,7 @@
+**Divider in Chief**\
+`Unlike past presidents, Donald Trump “uses everything to divide us.” America’s 250th anniversary is no exception, the NYT Opinion contributor Pete Wehner argues on “The Opinions.”`\
+https://www.nytimes.com/video/opinion/100000010958365/divider-in-chief.html
+
 **A Knicks-Inspired Baby-Naming Boom Is Coming After Championship Win, Experts Say**\
 `Jalen Brunson could become the next Michael Jordan of baby names, but don’t expect more Victors or Wembys, the experts say.`\
 https://www.nytimes.com/2026/06/15/nyregion/knicks-baby-names-jalen-brunson.html
