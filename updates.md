@@ -1,3 +1,7 @@
+**Russian Attack on Kyiv Damages Historic Orthodox Cathedral**\
+`A historic cathedral at one of Ukraine’s holiest sites burned on Monday after a large-scale Russian missile and drone attack on Kyiv.`\
+https://www.nytimes.com/video/world/europe/100000010967495/russia-kyiv-attack-orthodox-cathedral.html
+
 **Global Markets Rally on Iran Peace Hopes**\
 `A framework agreement could be signed later this week, but details are scarce. Still, investors are cheering the potential breakthrough.`\
 https://www.nytimes.com/2026/06/15/business/dealbook/trump-iran-peace-rally.html
