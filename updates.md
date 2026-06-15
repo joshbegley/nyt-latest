@@ -1,3 +1,7 @@
+**Historic Orthodox Cathedral Burns in Russian Attack on Kyiv**\
+`A bishop reported that many holy items had been recovered from the cathedral, at the site of the Perchersk monastery, a revered place for Ukrainian and Russian Orthodox faiths.`\
+https://www.nytimes.com/2026/06/15/world/europe/ukraine-orthodox-cathedral.html
+
 **Trump’s U.F.C. Event Comes as Backing of Young Men, Once a Strength, Wanes**\
 `Some Republicans saw a political opening in Sunday’s fights at the White House. Democrats said they saw a distraction from more pressing matters.`\
 https://www.nytimes.com/2026/06/14/us/politics/trump-ufc-politics-midterms.html
