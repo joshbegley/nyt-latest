@@ -1,3 +1,7 @@
+**ICE Agent Struck by Car Driven by a Person Facing Arrest, Officials Say**\
+`The agent, who was injured during the incident near the Jersey Shore, opened fire. The person who was being targeted by immigration authorities fled.`\
+https://www.nytimes.com/2026/06/15/nyregion/ice-agent-hit-car-nj.html
+
 **London Man Suspected in 2017 Shoving of a Woman Into Bus Path Is Arrested**\
 `The case had remained unresolved since May 2017, when a woman was sent tumbling into a bus lane on Putney Bridge. She escaped uninjured after the bus driver swerved.`\
 https://www.nytimes.com/2026/06/15/world/europe/london-jogger-shoved-bus-arrest.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/15/opinion/fathers-day-fatherhood.html
 **Trump Arrives for Group of 7 as Allies Rethink Their Relationship With U.S.**\
 `President Trump has long been at odds with European leaders over trade, Ukraine and NATO, but he has lashed out in recent weeks over their refusal to support the U.S. war with Iran.`\
 https://www.nytimes.com/2026/06/15/us/politics/trump-group-of-7-summit.html
-
-**Your Summer 2026 Politics Quiz Is Here**\
-`Ease into the summer with the latest Gail Collins politics quiz.`\
-https://www.nytimes.com/interactive/2026/06/15/opinion/contributors/15collins-quiz-interactive.html
 
