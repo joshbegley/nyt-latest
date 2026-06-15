@@ -1,3 +1,19 @@
+**Will SpaceX Fortunes Trickle Down to This Texas Town?**\
+`Elon Musk built a huge complex outside the city of Bastrop, population 14,000. Its residents now wonder what the historic SpaceX initial public offering might mean for them.`\
+https://www.nytimes.com/2026/06/15/business/spacex-ipo-trickle-down-bastrop.html
+
+**The Knicks Sprinkle Their Magic Over New York**\
+`Readers express joy over the New York Knicks’ N.B.A. championship. Also: The fight spectacle on South Lawn of the White House.`\
+https://www.nytimes.com/2026/06/15/opinion/knicks-nba-champions.html
+
+**Trump celebra evento de la UFC en la Casa Blanca**\
+`El evento de la UFC realizado el domingo por la noche en el jardín sur de la Casa Blanca fue un espectáculo mediático sin precedentes en la historia de la presidencia estadounidense.`\
+https://www.nytimes.com/es/2026/06/15/espanol/estados-unidos/trump-ufc-lucha-cumpleanos.html
+
+**Gulf Countries Confront Questions About Relying on U.S. for Protection**\
+`Iran targeted Bahrain, Qatar, the United Arab Emirates and other American allies in the Middle East during the war, harming their economies and military sectors.`\
+https://www.nytimes.com/2026/06/15/world/middleeast/gulf-iran-war-us.html
+
 **ICE Agent Hit by Car While Trying to Make an Arrest, Officials Say**\
 `The agent, who was injured during the incident near the Jersey Shore, opened fire. The person who was being targeted by immigration authorities fled.`\
 https://www.nytimes.com/2026/06/15/nyregion/ice-agent-hit-car-nj.html

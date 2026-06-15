@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/06/15/business/spacex-ipo-trickle-down-bastrop.html
 
 **The Knicks Sprinkle Their Magic Over New York**\
-`Readers express joy over the New York Knicks’ N.B.A. championship. Also: The fight spectacle on South Lawn of the White House.`\
+`Readers express joy over the New York Knicks’ N.B.A. championship. Also: The fight spectacle on the South Lawn of the White House.`\
 https://www.nytimes.com/2026/06/15/opinion/knicks-nba-champions.html
 
 **Trump celebra evento de la UFC en la Casa Blanca**\
@@ -118,8 +118,8 @@ https://www.nytimes.com/2026/06/15/world/middleeast/us-iran-agreement-lebanon.ht
 `The pace of the recovery will depend on how confident companies are that the deal between the United States and Iran will hold and be extended.`\
 https://www.nytimes.com/2026/06/15/business/energy-environment/iran-deal-oil-natural-gas.html
 
-**SpaceX’s Stock Rises on First Full Day of Trading**\
-`After notching big gains on its debut on Friday, the company’s shares jumped again on Monday.`\
+**SpaceX’s Stock Surges on First Full Day of Trading**\
+`The company’s shares jumped on Monday, and executives announced that they had raised even more money in an already record-breaking initial offering.`\
 https://www.nytimes.com/2026/06/15/business/spacex-stock.html
 
 **Fox to Acquire Roku, Joining the Battle for the Living Room**\
