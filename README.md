@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/06/15/world/iran-deal-cape-verde-world-cup.html
 `President Trump sidestepped a congressional commission and formed his own group to plan the festivities. The result is a deeply partisan celebration, disgruntled celebrities and plenty of confusion.`\
 https://www.nytimes.com/2026/06/15/us/politics/freedom-250-america-250.html
 
-**From Serial Productions and The Marshall Project: The Last 12 Weeks**\
+**From Serial and The Marshall Project: The Last 12 Weeks**\
 `A five-part series … on a deadline.`\
 https://www.nytimes.com/2026/06/15/podcasts/serial-last-12-weeks.html
 

@@ -1,3 +1,11 @@
+**Alabama and Georgia Runoff Elections Offer a New Test of Trump’s Influence Tomorrow**\
+`The Peach State, as well as Alabama, will offer new tests of Trump’s influence.`\
+https://www.nytimes.com/2026/06/15/us/politics/georgia-alabama-runoff-primary-elections-trump.html
+
+**‘Trump Has Failed’: 3 Opinion Writers Dissect the Iran Deal**\
+`Was the Iran war worth it — and will the latest agreement even stick?`\
+https://www.nytimes.com/2026/06/15/opinion/iran-deal-experts.html
+
 **What We Know About the Fatal Crash of a Skydiving Plane in Missouri**\
 `All 12 people aboard the aircraft died on Sunday when it crashed shortly after takeoff near Kansas City.`\
 https://www.nytimes.com/2026/06/15/us/what-we-know-skydiving-plane-crash.html

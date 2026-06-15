@@ -1,3 +1,7 @@
+**Alabama and Georgia Runoff Elections Offer a New Test of Trump’s Influence Tomorrow**\
+`The Peach State, as well as Alabama, will offer new tests of Trump’s influence.`\
+https://www.nytimes.com/2026/06/15/us/politics/georgia-alabama-runoff-primary-elections-trump.html
+
 **Will the Iran Deal Stick?**\
 `After many false starts, this cease-fire plan could be different. That’s because the war really has become painful for both the U.S. and Iran.`\
 https://www.nytimes.com/2026/06/15/world/iran-deal-cape-verde-world-cup.html
@@ -38,7 +42,7 @@ https://www.nytimes.com/2026/06/15/us/lemonade-stand-armed-robbery-arrest-boston
 `Republicans had accused Democrats of attempting to confuse voters by boosting a candidate with the same name as the incumbent Republican senator.`\
 https://www.nytimes.com/2026/06/15/us/politics/dan-sullivan-alaska-senate.html
 
-**‘Everybody Lost in this War’: 3 Opinion Writers Dissect the Iran Deal**\
+**‘Trump Has Failed’: 3 Opinion Writers Dissect the Iran Deal**\
 `Was the Iran war worth it — and will the latest agreement even stick?`\
 https://www.nytimes.com/2026/06/15/opinion/iran-deal-experts.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/15/well/chronotype-quiz.html
 **Today, In Short**\
 `Slayyyter. Red Lobster. And a flying potato.`\
 https://www.nytimes.com/2026/06/15/briefing/today-in-short.html
-
-**Map: 2.4-Magnitude Earthquake Shakes Maryland**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/06/15/us/quake-tracker-maryland.html
 
