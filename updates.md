@@ -1,3 +1,7 @@
+**Trump’s U.F.C. Event Comes as Backing of Young Men, Once a Strength, Wanes**\
+`Some Republicans saw a political opening in Sunday’s fights at the White House. Democrats said they saw a distraction from more pressing matters.`\
+https://www.nytimes.com/2026/06/14/us/politics/trump-ufc-politics-midterms.html
+
 **Oil Prices Tumble After Trump Announces Deal With Iran**\
 `Oil prices fell and stocks gained early Monday after Iran and the U.S. reached a deal that may allow more energy and other goods to flow through the Strait of Hormuz.`\
 https://www.nytimes.com/2026/06/14/business/oil-stocks-gas-iran.html
