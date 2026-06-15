@@ -1,3 +1,15 @@
+**What’s Your Sleep Type?**\
+`Think you’re a morning person, a night owl or something in between? Take our “chronotype” quiz to find out.`\
+https://www.nytimes.com/2026/06/15/well/chronotype-quiz.html
+
+**Today, In Short**\
+`Slayyyter. Red Lobster. And a flying potato.`\
+https://www.nytimes.com/2026/06/15/briefing/today-in-short.html
+
+**Map: 2.4-Magnitude Earthquake Shakes Maryland**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/15/us/quake-tracker-maryland.html
+
 **When Data Centers Come for Your Backyard**\
 `As data centers sprout across Georgia, the state’s utility providers are building new power lines to meet the demand for electricity. We speak with residents in Fayetteville, about 25 miles south of Atlanta, who say the new lines will run through their backyards and make it impossible to resell their homes at their current value.`\
 https://www.nytimes.com/video/technology/100000010925668/data-centers-fayetteville-georgia-electricity.html
@@ -99,7 +111,7 @@ https://www.nytimes.com/2026/06/15/business/dealbook/trump-iran-peace-rally.html
 https://www.nytimes.com/video/embedded/business/100000010967708/15visualUploader-13306.html
 
 **U.K. Ban on Pro-Palestinian Protest Group Is Lawful, Court of Appeal Rules**\
-`The decision overturned a lower-court ruling that found that banning Palestine Action as a terrorist group had breached free speech rights.`\
+`The decision overturned a lower-court ruling that had found that banning Palestine Action as a terrorist group had breached free speech rights.`\
 https://www.nytimes.com/2026/06/15/world/europe/uk-palestine-action-ban-appeal.html
 
 **Cautious of U.S.-Iran Deal, Shipping Firms Await Strait to Reopen**\
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/15/nyregion/knicks-championship-world-cup.html
 **‘Break Your Hips!’ Spinning to the Rhythm of Venezuelan Tambores**\
 `Tambores may not be as widely known as other Latin dances like merengue and salsa, but that is starting to change with the exodus of millions of Venezuelans.`\
 https://www.nytimes.com/2026/06/15/arts/dance/tambores-venezuela-music.html
-
-**Alabama’s Senate Primary Runoff Again Tests Trump’s Hold on G.O.P.**\
-`Representative Barry Moore, an early backer of the president during his first campaign, faces Jared Hudson, a former Navy SEAL tapping into the excitement for outsiders.`\
-https://www.nytimes.com/2026/06/15/us/politics/alabama-senate-primary-trump-republican.html
-
-**From the Kennedy Center to U.F.C Fights in Trump’s Washington**\
-`A day after the National Symphony Orchestra played perhaps its final notes at the Kennedy Center for years, mixed martial artists brawled outside the White House.`\
-https://www.nytimes.com/2026/06/15/arts/kennedy-center-ufc-trump-washington.html
-
-**The States Should Override Trump’s Indefensible Pardons**\
-`They can hold guilty parties responsible when the federal government will not.`\
-https://www.nytimes.com/2026/06/15/opinion/trump-presidential-pardons.html
 

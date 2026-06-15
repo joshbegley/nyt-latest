@@ -1,3 +1,19 @@
+**What’s Your Sleep Type?**\
+`Think you’re a morning person, a night owl or something in between? Take our “chronotype” quiz to find out.`\
+https://www.nytimes.com/2026/06/15/well/chronotype-quiz.html
+
+**Today, In Short**\
+`Slayyyter. Red Lobster. And a flying potato.`\
+https://www.nytimes.com/2026/06/15/briefing/today-in-short.html
+
+**Map: 2.4-Magnitude Earthquake Shakes Maryland**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/15/us/quake-tracker-maryland.html
+
+**U.K. Ban on Pro-Palestinian Protest Group Is Lawful, Court of Appeal Rules**\
+`The decision overturned a lower-court ruling that had found that banning Palestine Action as a terrorist group had breached free speech rights.`\
+https://www.nytimes.com/2026/06/15/world/europe/uk-palestine-action-ban-appeal.html
+
 **When Data Centers Come for Your Backyard**\
 `As data centers sprout across Georgia, the state’s utility providers are building new power lines to meet the demand for electricity. We speak with residents in Fayetteville, about 25 miles south of Atlanta, who say the new lines will run through their backyards and make it impossible to resell their homes at their current value.`\
 https://www.nytimes.com/video/technology/100000010925668/data-centers-fayetteville-georgia-electricity.html
