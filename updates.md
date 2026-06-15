@@ -1,3 +1,11 @@
+**Hormuz Reopening Would Offer Relief for Asia, but Economic Scars Will Remain**\
+`For months, Asia has suffered a physical supply crunch that will likely drag on its economies long after the crucial waterway reopens.`\
+https://www.nytimes.com/2026/06/14/business/hormuz-reopen-iran.html
+
+**Iran War Live Updates: U.S. and Iran Reach Cease-Fire Agreement**\
+`The deal was expected to halt fighting for 60 days, open the Strait of Hormuz and lift the U.S. naval blockade on Iranian ports. But it would leave the thorniest nuclear issues for another day.`\
+https://www.nytimes.com/live/2026/06/14/world/iran-war-trump-us
+
 **U.S. and Iran Reach Agreement to Reopen Strait and Begin Nuclear Talks**\
 `The accord halts hostilities in the war that began in February but leaves unresolved the critical issue of Iran’s nuclear program.`\
 https://www.nytimes.com/2026/06/14/world/middleeast/us-iran-deal-strait-of-hormuz.html
