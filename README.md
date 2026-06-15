@@ -58,13 +58,13 @@ https://www.nytimes.com/2026/06/15/crosswords/wordle-review-1823.html
 `Even though negotiations will begin for Ukraine to join the bloc, the path ahead is a long one.`\
 https://www.nytimes.com/2026/06/15/world/europe/ukraine-eu-membership.html
 
-**Trump Heads to Group of 7 as Allies Rethink Their Relationship With U.S.**\
-`President Trump has long been at odds with European leaders over trade, Ukraine and NATO, but he has lashed out in recent weeks over their refusal to support the U.S. war with Iran.`\
-https://www.nytimes.com/2026/06/15/us/politics/trump-group-of-7-summit.html
-
 **On Father’s Day, It’s Obvious That the Role of a Dad Has Changed**\
 `I’m fascinated by the fathers my brothers became.`\
 https://www.nytimes.com/2026/06/15/opinion/fathers-day-fatherhood.html
+
+**Trump Heads to Group of 7 as Allies Rethink Their Relationship With U.S.**\
+`President Trump has long been at odds with European leaders over trade, Ukraine and NATO, but he has lashed out in recent weeks over their refusal to support the U.S. war with Iran.`\
+https://www.nytimes.com/2026/06/15/us/politics/trump-group-of-7-summit.html
 
 **How a Book Editor and Jazz Musician Lives on $55,000 in West Harlem**\
 `Frugality is a family tradition for Ruby Pucillo, but it is one that is difficult to maintain as a 20-something with more than half of her income going to rent.`\
