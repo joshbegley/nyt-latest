@@ -1,3 +1,7 @@
+**‘We Cannot Trust Any Iranian Promises’: 3 Opinion Writers Dissect the Iran Deal**\
+`Was the Iran war worth it — and will the latest agreement even stick?`\
+https://www.nytimes.com/2026/06/15/opinion/iran-deal-experts.html
+
 **Algae Is Turning the Reflecting Pool Green. Again.**\
 `Algal blooms have hit the site, between the Lincoln Memorial and the Washington Monument, after a $14.2 million repair project.`\
 https://www.nytimes.com/2026/06/15/climate/reflecting-pool-algae-green.html
