@@ -1,3 +1,7 @@
+**ICE Agent Hit by Car While Trying to Make an Arrest, Officials Say**\
+`The agent, who was injured during the incident near the Jersey Shore, opened fire. The person who was being targeted by immigration authorities fled.`\
+https://www.nytimes.com/2026/06/15/nyregion/ice-agent-hit-car-nj.html
+
 **The Look of Patriotism at Trump’s U.F.C. Fight**\
 `From the athletes to the Octagon Girls, the Freedom 250 Flag Day event was a fashion show in red, white and blue.`\
 https://www.nytimes.com/2026/06/15/style/fashion-ufc-fight-trump-white-house.html
