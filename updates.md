@@ -1,3 +1,11 @@
+**Read Will Scharf’s Confidential Habeas Corpus Memo**\
+`Will Scharf, the White House staff secretary, wrote a secret memo to Susie Wiles, the White House chief of staff, outlining his concerns about suspending habeas rights for unauthorized immigrants.`\
+https://www.nytimes.com/interactive/2026/06/15/us/politics/trump-miller-habeas-corpus.html
+
+**Read Will Scharf’s Confidential Insurrection Act Memo**\
+`Will Scharf, the White House staff secretary, wrote a secret memo to Susie Wiles, the White House chief of staff, warning that invoking the Insurrection Act risked major legal battles.`\
+https://www.nytimes.com/interactive/2026/06/15/us/politics/trump-miller-insurrection-act.html
+
 **Russian Attack on Kyiv Damages Historic Orthodox Cathedral**\
 `A historic cathedral at one of Ukraine’s holiest sites burned on Monday after a large-scale Russian missile and drone attack on Kyiv.`\
 https://www.nytimes.com/video/world/europe/100000010967495/russia-kyiv-attack-orthodox-cathedral.html
