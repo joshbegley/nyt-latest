@@ -1,3 +1,7 @@
+**Iranians React to Preliminary U.S.-Iran Deal to End War**\
+`People in Tehran expressed cautious optimism, as well as mistrust, over a preliminary deal between the United States and Iran that could pave the way toward a final peace agreement.`\
+https://www.nytimes.com/video/world/middleeast/100000010967531/us-iran-deal-iranians-reaction.html
+
 **What’s Your Sleep Type?**\
 `Think you’re a morning person, a night owl or something in between? Take our “chronotype” quiz to find out.`\
 https://www.nytimes.com/2026/06/15/well/chronotype-quiz.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/15/realestate/luxury-kitchens-hidden-sinks-fridg
 **An Eventful Week Will Follow a Weekend to Remember**\
 `New York is on a Knicks high. The coming days will bring a parade, but don’t forget the World Cup.`\
 https://www.nytimes.com/2026/06/15/nyregion/knicks-championship-world-cup.html
-
-**‘Break Your Hips!’ Spinning to the Rhythm of Venezuelan Tambores**\
-`Tambores may not be as widely known as other Latin dances like merengue and salsa, but that is starting to change with the exodus of millions of Venezuelans.`\
-https://www.nytimes.com/2026/06/15/arts/dance/tambores-venezuela-music.html
 

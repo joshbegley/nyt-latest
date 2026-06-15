@@ -1,3 +1,7 @@
+**Iranians React to Preliminary U.S.-Iran Deal to End War**\
+`People in Tehran expressed cautious optimism, as well as mistrust, over a preliminary deal between the United States and Iran that could pave the way toward a final peace agreement.`\
+https://www.nytimes.com/video/world/middleeast/100000010967531/us-iran-deal-iranians-reaction.html
+
 **What’s Your Sleep Type?**\
 `Think you’re a morning person, a night owl or something in between? Take our “chronotype” quiz to find out.`\
 https://www.nytimes.com/2026/06/15/well/chronotype-quiz.html
