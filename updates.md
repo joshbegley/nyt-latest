@@ -1,3 +1,7 @@
+**B-52 Crashes at Air Force Base, Officials Say**\
+`The crash occurred shortly after takeoff this morning from Edwards Air Force Base in California. Emergency crews were responding to the site.`\
+https://www.nytimes.com/2026/06/15/us/b-52-crash-edwards-air-force-base-california.html
+
 **In Its Tragic Finale, ‘Romeo and Juliet’ Is Interrupted by a Cat**\
 `Performers were tested by the unexpected during a ballet production in Turkey.`\
 https://www.nytimes.com/2026/06/15/arts/dance/cat-romeo-and-juliet-ballet-turkey.html
