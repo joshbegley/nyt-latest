@@ -1,3 +1,23 @@
+**The U.S.-Iran Deal: What to Know**\
+`The full text of the deal that could pave the way to ending the war has not been published. Initial details suggest that it defers the most contentious issues.`\
+https://www.nytimes.com/2026/06/15/world/middleeast/us-iran-deal.html
+
+**A Deal in Iran**\
+`The United States and Iran have a deal that could lead to the end of their monthslong war.`\
+https://www.nytimes.com/2026/06/15/briefing/a-deal-in-iran.html
+
+**China Moves the Price of Oil, Even When It Buys Less**\
+`China is the world’s largest purchaser of oil. But three months after the war with Iran began, it cut its imports, cushioning the global market.`\
+https://www.nytimes.com/2026/06/15/business/china-oil-iran.html
+
+**Millennial Food Obsession Is a Joke. John Early Gets It.**\
+`In his new film, “Maddie’s Secret,” the comedian goes all in on earnestness, playing a cooking content creator.`\
+https://www.nytimes.com/2026/06/15/dining/john-early-maddies-secret-food.html
+
+**Millions of Women Are Left Out of Menopause’s Moment**\
+`Women who can’t take hormone therapy because of breast cancer or other diseases say they are deeply frustrated.`\
+https://www.nytimes.com/2026/06/15/well/menopause-hormone-therapy-breast-cancer.html
+
 **Inside Trump’s New Deal With Iran**\
 `Washington and Tehran reached an agreement that paved the way for further talks to ultimately end the war. President Trump discussed it with The Times.`\
 https://www.nytimes.com/2026/06/15/podcasts/the-daily/us-and-iran-cease-fire-agreement.html

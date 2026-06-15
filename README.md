@@ -112,7 +112,7 @@ https://www.nytimes.com/2026/06/15/world/europe/ukraine-russia-war-ai.html
 
 **Where to Eat in Dallas for the World Cup**\
 `Whether you’re looking for gold-standard barbecue, world-class sushi or inventive tacos, the city is rich with choices.`\
-https://www.nytimes.com/2026/06/15/dining/where-to-eat-in-dallas-for-the-world-cup.html
+https://www.nytimes.com/2026/06/15/dining/best-restaurants-dallas.html
 
 **Millennial Food Obsession Is a Joke. John Early Gets It.**\
 `In his new film, “Maddie’s Secret,” the comedian goes all in on earnestness, playing a cooking content creator.`\
