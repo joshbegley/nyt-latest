@@ -1,3 +1,7 @@
+**The (Mostly) Unanswered Questions at the Heart of a U.S.-Iran Accord**\
+`The short-term truce hasn’t been made public, and the long-term peace deal it is supposed to yield doesn’t exist yet, so there is much still unknown about any agreement between the adversaries.`\
+https://www.nytimes.com/2026/06/15/world/middleeast/us-iran-deal-agreement-questions.html
+
 **Copa Mundial: los fans de Cabo Verde celebran el empate contra España**\
 `Cabo Verde, una pequeña nación insular, es uno de los países más pequeños que han clasificado para un Mundial. Los fanáticos festejaron que el equipo resistiera ante uno de los favoritos del torneo.`\
 https://www.nytimes.com/es/2026/06/15/espanol/deportes/copa-mundial-espana-cabo-verde-portero.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/15/opinion/knicks-nba-champions.html
 **Trump celebra evento de la UFC en la Casa Blanca**\
 `El evento de la UFC realizado el domingo por la noche en el jardín sur de la Casa Blanca fue un espectáculo mediático sin precedentes en la historia de la presidencia estadounidense.`\
 https://www.nytimes.com/es/2026/06/15/espanol/estados-unidos/trump-ufc-lucha-cumpleanos.html
-
-**The Look of Patriotism at Trump’s UFC Fight**\
-`From the athletes to the Octagon Girls, the Freedom 250 Flag Day event was a fashion show in red, white and blue.`\
-https://www.nytimes.com/2026/06/15/style/fashion-ufc-fight-trump-white-house.html
 
