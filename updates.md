@@ -1,3 +1,7 @@
+**Singer Oliver Tree Is Believed to Have Died in Brazil Helicopter Collision**\
+`The American singer Oliver Tree is said to have been one of the six people killed in a helicopter collision in Rio de Janeiro on Sunday, according to The Associated Press and a local police officer who spoke on the condition of anonymity.`\
+https://www.nytimes.com/video/world/americas/100000010968015/oliver-tree-death-helicopter-crash-brazil.html
+
 **Misty Copeland: Making Space for Legacy**\
 `To succeed, I needed more than just my own drive. I needed spaces that nurtured and supported it.`\
 https://www.nytimes.com/2026/06/15/special-series/misty-copeland-legacy-drive.html

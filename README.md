@@ -1,3 +1,11 @@
+**In Its Tragic Finale, ‘Romeo and Juliet’ Is Interrupted by a Cat**\
+`Performers were tested by the unexpected during a ballet production in Turkey.`\
+https://www.nytimes.com/2026/06/15/arts/dance/cat-romeo-and-juliet-ballet-turkey.html
+
+**Cat Interrupts “Romeo and Juliet” Ballet Performance**\
+`A cat wandered on stage during a performance of the “Romeo and Juliet” ballet in Turkey and stole the show.`\
+https://www.nytimes.com/video/world/europe/100000010968361/cat-interrupts-romeo-juliet-turkey.html
+
 **Singer Oliver Tree Is Believed to Have Died in Brazil Helicopter Collision**\
 `The American singer Oliver Tree is said to have been one of the six people killed in a helicopter collision in Rio de Janeiro on Sunday, according to The Associated Press and a local police officer who spoke on the condition of anonymity.`\
 https://www.nytimes.com/video/world/americas/100000010968015/oliver-tree-death-helicopter-crash-brazil.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/15/business/energy-environment/iran-deal-oil-nat
 **SpaceX’s Stock Surges on First Full Day of Trading**\
 `The company’s shares jumped on Monday, and executives announced that they had raised even more money in an already record-breaking initial offering.`\
 https://www.nytimes.com/2026/06/15/business/spacex-stock.html
-
-**Fox to Acquire Roku, Joining the Battle for the Living Room**\
-`The $22 billion deal is one of the biggest moves yet by Lachlan Murdoch, who took over for his father as chairman of Fox in 2023.`\
-https://www.nytimes.com/2026/06/15/business/fox-roku-acquisition-streaming-media.html
-
-**Read Will Scharf’s Confidential Habeas Corpus Memo**\
-`Will Scharf, the White House staff secretary, wrote a secret memo to Susie Wiles, the White House chief of staff, outlining his concerns about suspending habeas rights for unauthorized immigrants.`\
-https://www.nytimes.com/interactive/2026/06/15/us/politics/trump-miller-habeas-corpus.html
 
