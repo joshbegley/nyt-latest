@@ -1,3 +1,7 @@
+**Deal to Reopen Hormuz Kicks Off Long Effort to Ease Energy Crisis**\
+`The pace of the recovery will depend on how confident companies are that the deal between the United States and Iran will hold and be extended.`\
+https://www.nytimes.com/2026/06/15/business/energy-environment/iran-deal-oil-natural-gas.html
+
 **SpaceX’s Stock Rises Ahead of First Full Day of Trading**\
 `After notching big gains on its debut on Friday, the company’s shares jumped again on Monday before the market opened.`\
 https://www.nytimes.com/2026/06/15/business/spacex-stock.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/15/world/canada/quebec-medically-assisted-dying-
 **Book Review: ‘The Nord Stream Conspiracy,’ by Bojan Pancevski**\
 `In “The Nord Stream Conspiracy,” the investigative journalist Bojan Pancevski tells a high-stakes international war story in blockbuster prose.`\
 https://www.nytimes.com/2026/06/15/books/review/the-nord-stream-conspiracy-bojan-pancevski.html
-
-**Why the Art Workers’ Coalition’s Battles Still Resonate**\
-`Members of the Art Workers’ Coalition fought for a fairer and more equitable business for themselves. Their battles resonate to this day.`\
-https://www.nytimes.com/2026/06/15/t-magazine/art-workers-coalition.html
 
