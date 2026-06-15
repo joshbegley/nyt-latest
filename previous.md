@@ -1,3 +1,11 @@
+**Will Commercial Ships Have to Pay to Pass Through the Strait of Hormuz? Maybe.**\
+`Charging a toll is illegal under international law, but some fees are allowed for services. It is not clear what services Iran would provide, but there were no fees charged before the war.`\
+https://www.nytimes.com/2026/06/15/world/middleeast/shipping-fees-tolls-strait-hormuz.html
+
+**Kennedy Orders Woman to Stay in Hantavirus Quarantine, Despite C.D.C. Recommendation**\
+`Others who were in the facility have been allowed to return to their homes in recent weeks for monitoring by local health officials.`\
+https://www.nytimes.com/2026/06/15/health/hantavirus-quarantine-kennedy.html
+
 **Alabama and Georgia Runoff Elections Offer a New Test of Trump’s Influence Tomorrow**\
 `The Peach State, as well as Alabama, will offer new tests of Trump’s influence.`\
 https://www.nytimes.com/2026/06/15/us/politics/georgia-alabama-runoff-primary-elections-trump.html
@@ -10,7 +18,7 @@ https://www.nytimes.com/2026/06/15/world/iran-deal-cape-verde-world-cup.html
 `President Trump sidestepped a congressional commission and formed his own group to plan the festivities. The result is a deeply partisan celebration, disgruntled celebrities and plenty of confusion.`\
 https://www.nytimes.com/2026/06/15/us/politics/freedom-250-america-250.html
 
-**From Serial Productions and The Marshall Project: The Last 12 Weeks**\
+**From Serial and The Marshall Project: The Last 12 Weeks**\
 `A five-part series … on a deadline.`\
 https://www.nytimes.com/2026/06/15/podcasts/serial-last-12-weeks.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/15/arts/music/ronald-lapread-dead.html
 **Iranians React to Preliminary U.S.-Iran Deal to End War**\
 `People in Tehran expressed cautious optimism, as well as mistrust, over a preliminary deal between the United States and Iran that could pave the way toward a final peace agreement.`\
 https://www.nytimes.com/video/world/middleeast/100000010967531/us-iran-deal-iranians-reaction.html
-
-**What’s Your Sleep Type?**\
-`Think you’re a morning person, a night owl or something in between? Take our “chronotype” quiz to find out.`\
-https://www.nytimes.com/2026/06/15/well/chronotype-quiz.html
-
-**Today, In Short**\
-`Slayyyter. Red Lobster. And a flying potato.`\
-https://www.nytimes.com/2026/06/15/briefing/today-in-short.html
 

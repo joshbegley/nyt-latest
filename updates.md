@@ -1,3 +1,15 @@
+**Will Commercial Ships Have to Pay to Pass Through the Strait of Hormuz? Maybe.**\
+`Charging a toll is illegal under international law, but some fees are allowed for services. It is not clear what services Iran would provide, but there were no fees charged before the war.`\
+https://www.nytimes.com/2026/06/15/world/middleeast/shipping-fees-tolls-strait-hormuz.html
+
+**Kennedy Orders Woman to Stay in Hantavirus Quarantine, Despite C.D.C. Recommendation**\
+`Others who were in the facility have been allowed to return to their homes in recent weeks for monitoring by local health officials.`\
+https://www.nytimes.com/2026/06/15/health/hantavirus-quarantine-kennedy.html
+
+**From Serial and The Marshall Project: The Last 12 Weeks**\
+`A five-part series … on a deadline.`\
+https://www.nytimes.com/2026/06/15/podcasts/serial-last-12-weeks.html
+
 **Alabama and Georgia Runoff Elections Offer a New Test of Trump’s Influence Tomorrow**\
 `The Peach State, as well as Alabama, will offer new tests of Trump’s influence.`\
 https://www.nytimes.com/2026/06/15/us/politics/georgia-alabama-runoff-primary-elections-trump.html
