@@ -1,3 +1,7 @@
+**Oil Prices Tumble After Trump Announces Deal With Iran**\
+`Oil prices fell and stocks gained early Monday after Iran and the U.S. reached a deal that may allow more energy and other goods to flow through the Strait of Hormuz.`\
+https://www.nytimes.com/2026/06/14/business/oil-stocks-gas-iran.html
+
 **Many Iranians Express Relief Over Agreement to End the War**\
 `After enduring months of conflict, ordinary people in Iran were relieved to hear about the deal. Opposition groups were disappointed.`\
 https://www.nytimes.com/2026/06/15/world/middleeast/iran-reaction-cease-fire-deal.html
