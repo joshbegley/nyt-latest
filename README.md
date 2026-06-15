@@ -1,4 +1,8 @@
-**What to Know About Planned Social Media Bans Around the World**\
+**Shipping Firms, Awaiting Details, Are Cautious of U.S.-Iran Deal**\
+`Shipowners welcomed the agreement to reopen the Strait of Hormuz, but said they would need more security guarantees before resuming transits.`\
+https://www.nytimes.com/2026/06/15/business/us-iran-deal-shipping-companies-strait-of-hormuz.html
+
+**What to Know About Planned Social Media Bans in Australia, the U.K. and Beyond**\
 `Britain said it would ban social media access for children under 16 starting in 2027, joining several other countries introducing similar measures.`\
 https://www.nytimes.com/2026/06/15/world/europe/social-media-bans-worldwide.html
 
@@ -24,7 +28,7 @@ https://www.nytimes.com/2026/06/15/podcasts/balogun-the-usmnt-hero-and-world-cup
 
 **On the Nuclear Issue, Each Side Finds a Way to Claim Victory**\
 `President Trump said Iran had promised to suspend enriching uranium, but it is unclear for how long.`\
-https://www.nytimes.com/2026/06/15/world/middleeast/on-the-nuclear-issue-each-side-finds-a-way-to-claim-victory.html
+https://www.nytimes.com/2026/06/15/world/middleeast/nuclear-iran-united-states.html
 
 **Inside the U.S.-Iran Deal, and Trump Hosts U.F.C. Fights**\
 `Plus, crafting the perfect grass for the World Cup.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/15/world/americas/colombia-drug-war-violence-pet
 **Is This the End of Political Islam?**\
 `For decades, Islamic governance held allure in the Middle East. Now some scholars say the Islamist wave has passed.`\
 https://www.nytimes.com/2026/06/15/magazine/political-islam-middle-east.html
-
-**Are Glutathione Supplements a Scam?**\
-`The so-called “mother of all antioxidants” is sold as dissolving strips, capsules, liquids, gels and powders. We asked experts if they actually work.`\
-https://www.nytimes.com/2026/06/15/well/glutathione-supplements-harm-benefits-studies.html
 
