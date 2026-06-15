@@ -1,3 +1,11 @@
+**Trump’s UFC Fight Night Was as Absurd as Promised**\
+`Trump’s birthday fight night on the White House lawn was an absurd spectacle, yes, but an ominous one as well.`\
+https://www.nytimes.com/2026/06/15/opinion/trump-ufc-fight.html
+
+**Kennedy Seeks to Expedite Appeal of Ruling That Blocked His Vaccine Policies**\
+`The health secretary is trying to restart the work of a panel that advises the government on vaccines, after a judge froze its decisions and prevented it from meeting.`\
+https://www.nytimes.com/2026/06/15/health/childhood-vaccines-lawsuit-kennedy.html
+
 **What We Know About the Fatal Crash of a Skydiving Plane in Missouri**\
 `All 12 people aboard the aircraft died on Sunday when the plane crashed shortly after takeoff near Kansas City.`\
 https://www.nytimes.com/2026/06/15/us/what-we-know-skydiving-plane-crash.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/15/world/middleeast/nuclear-iran-united-states.h
 **Inside the U.S.-Iran Deal, and Trump Hosts U.F.C. Fights**\
 `Plus, crafting the perfect grass for the World Cup.`\
 https://www.nytimes.com/2026/06/15/podcasts/the-headlines/us-iran-deal-ufc-fight-at-the-white-house.html
-
-**Inside Trump’s New Deal With Iran**\
-`Washington and Tehran reached an agreement that paved the way for further talks to ultimately end the war. President Trump discussed it with The Times.`\
-https://www.nytimes.com/2026/06/15/podcasts/the-daily/us-and-iran-cease-fire-agreement.html
-
-**NYT Connections Answers for June 16, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, June 16, 2026.`\
-https://www.nytimes.com/2026/06/15/crosswords/connections-companion-1101.html
 
