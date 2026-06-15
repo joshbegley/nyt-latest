@@ -1,5 +1,9 @@
+**A 80 años de la Segunda Guerra Mundial, Alemania y Japón se rearman**\
+`Berlín y Tokio fueron aliados en la década de 1940, con resultados desastrosos. Ahora vuelven a unir fuerzas.`\
+https://www.nytimes.com/es/2026/06/15/espanol/mundo/alemania-japon-rearme.html
+
 **Britain Announces Social Media Ban for Children**\
-`Prime Minister Keir Starmer said his government would introduce legislation to bar children under 16 from social media. The move follows similar policies in Australia and several other countries.`\
+`Prime Minister Keir Starmer said his government would legislate to bar children under 16 from social media starting in 2027. The move follows similar policies in Australia and several other countries.`\
 https://www.nytimes.com/2026/06/15/world/europe/uk-social-media-children.html
 
 **She Didn’t Live to See the Knicks Championship. She Would Have Loved It.**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/14/nyregion/spurs-fans-bar-new-york.html
 **For the Best Strawberry Pie, Roast Those Berries**\
 `Then pair them with tart rhubarb, as Genevieve Ko does in her new showstopping pie.`\
 https://www.nytimes.com/2026/06/14/dining/for-the-best-strawberry-pie-roast-those-berries.html
-
-**The Knicks as Religious Experience**\
-`Knicks fans are waking up from the hangover of a really good trip. One that, some said, let them see God.`\
-https://www.nytimes.com/2026/06/14/briefing/knicks-religion-brunson-new-york.html
 
 **U.S. and Iran Reach Framework for Peace**\
 `The deal was expected to open the Strait of Hormuz and lift the U.S. naval blockade on Iranian ports. But it would leave the thorniest nuclear issues for another day.`\

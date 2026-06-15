@@ -1,3 +1,11 @@
+**A 80 años de la Segunda Guerra Mundial, Alemania y Japón se rearman**\
+`Berlín y Tokio fueron aliados en la década de 1940, con resultados desastrosos. Ahora vuelven a unir fuerzas.`\
+https://www.nytimes.com/es/2026/06/15/espanol/mundo/alemania-japon-rearme.html
+
+**Britain Announces Social Media Ban for Children**\
+`Prime Minister Keir Starmer said his government would legislate to bar children under 16 from social media starting in 2027. The move follows similar policies in Australia and several other countries.`\
+https://www.nytimes.com/2026/06/15/world/europe/uk-social-media-children.html
+
 **Britain Announces Social Media Ban for Children**\
 `Prime Minister Keir Starmer said his government would introduce legislation to bar children under 16 from social media. The move follows similar policies in Australia and several other countries.`\
 https://www.nytimes.com/2026/06/15/world/europe/uk-social-media-children.html
