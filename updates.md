@@ -1,3 +1,47 @@
+**The ‘No Kings’ Protest Killing With a Complicated Twist**\
+`A gunman believed he was defending the crowd. He killed an innocent bystander. Should he be convicted of a crime?`\
+https://www.nytimes.com/2026/06/15/us/no-kings-protest-shooting.html
+
+**How Quebec Left the Church and Became the World Leader in Assisted Dying**\
+`A society once strongly Roman Catholic has rejected the church’s prohibition on euthanasia, with many instead viewing control over one’s death as an individual right.`\
+https://www.nytimes.com/2026/06/15/world/canada/quebec-medically-assisted-dying-catholic.html
+
+**Book Review: ‘The Nord Stream Conspiracy,’ by Bojan Pancevski**\
+`In “The Nord Stream Conspiracy,” the investigative journalist Bojan Pancevski tells a high-stakes international war story in blockbuster prose.`\
+https://www.nytimes.com/2026/06/15/books/review/the-nord-stream-conspiracy-bojan-pancevski.html
+
+**Why the Art Workers’ Coalition’s Battles Still Resonate**\
+`Members of the Art Workers’ Coalition fought for a fairer and more equitable business for themselves. Their battles resonate to this day.`\
+https://www.nytimes.com/2026/06/15/t-magazine/art-workers-coalition.html
+
+**8 Proposals for a Better Art World**\
+`Artists on what a more utopian version of their field might look like.`\
+https://www.nytimes.com/2026/06/15/t-magazine/fairer-art-world-ideas-funding.html
+
+**A History of American Utopia in 10 Acts**\
+`Exploring some of the significant experiments that have best captured the country’s idealistic spirit.`\
+https://www.nytimes.com/2026/06/15/t-magazine/utopian-movements-shakers-civil-rights.html
+
+**American Utopia: Why Artists Can’t Stop Imagining a Better World**\
+`T’s annual Art issue explores how the idea of a good if elusive place has inspired great art, and vice versa.`\
+https://www.nytimes.com/2026/06/15/t-magazine/us-utopia-art-thomas-cole.html
+
+**An Oral History of Casa de Estrogen, L.A.’s Haven for Queer, Feminist Art**\
+`How one apartment building in L.A.’s Koreatown became a haven for queer, feminist art in the 1990s and beyond.`\
+https://www.nytimes.com/2026/06/15/t-magazine/casa-de-estrogen-jenny-shimizu-catherine-opie.html
+
+**To Toast America’s Birthday, They Blended Bourbon From Every State**\
+`United States of Bourbon, the result of a Vermont couple’s many road trips, is just one of several special whiskeys marking the 250th.`\
+https://www.nytimes.com/2026/06/15/dining/drinks/united-states-of-bourbon-blend-lost-lantern.html
+
+**Millions of Women Are Left Out of Menopause’s Moment**\
+`Women who can’t take hormone therapy because of breast cancer or other diseases say they are deeply frustrated.`\
+https://www.nytimes.com/2026/06/15/well/menopause-hormone-therapy-breast-cancer.html
+
+**Inside Colombia’s Never-Ending Drug War**\
+`Ten years after a landmark peace deal, armed groups are wreaking deadly violence, blending jungle combat with new drone warfare.`\
+https://www.nytimes.com/2026/06/15/world/americas/colombia-drug-war-violence-petro.html
+
 **With Iran Deal, Trump Celebrates a Win but Much Remains Unfinished**\
 `While the president says the agreement would open the Strait of Hormuz and provide economic relief, Iran’s nuclear program is still a subject for negotiation.`\
 https://www.nytimes.com/2026/06/15/world/middleeast/iran-deal-hormuz-trump-goals-unfinished.html
