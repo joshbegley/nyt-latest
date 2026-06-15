@@ -1,3 +1,15 @@
+**5 minutos para que te enamores de Nina Simone**\
+`En una frase era capaz de pasar del susurro al rugido y su repertorio abarca estándares de jazz, canciones de protesta, blues y pop. Escucha estas 11 canciones favoritas`\
+https://www.nytimes.com/es/2026/06/15/espanol/cultura/5-minutos-nina-simone.html
+
+**Word of the Day: apocalyptic**\
+`This word has appeared in 227 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/06/15/learning/word-of-the-day-apocalyptic.html
+
+**U.S. and Iran Reach Framework for Peace**\
+`The deal was expected to open the Strait of Hormuz and lift the U.S. naval blockade on Iranian ports. But it would leave the thorniest nuclear issues for another day.`\
+https://www.nytimes.com/live/2026/06/14/world/iran-war-trump-us
+
 **Historic Orthodox Cathedral Burns in Russian Attack on Kyiv**\
 `A bishop reported that many holy items had been recovered from the cathedral, at the site of the Perchersk monastery, a revered place for Ukrainian and Russian Orthodox faiths.`\
 https://www.nytimes.com/2026/06/15/world/europe/ukraine-orthodox-cathedral.html
