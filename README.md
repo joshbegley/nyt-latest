@@ -1,3 +1,7 @@
+**Iran War Live Updates: U.S. and Tehran Agree on Framework for Peace**\
+`The deal was expected to open the Strait of Hormuz, lift the U.S. naval blockade on Iranian ports and pave the way for further talks. It did not address Iran’s nuclear program.`\
+https://www.nytimes.com/live/2026/06/15/world/iran-war-trump-us-deal
+
 **5 minutos para que te enamores de Nina Simone**\
 `En una frase era capaz de pasar del susurro al rugido y su repertorio abarca estándares de jazz, canciones de protesta, blues y pop. Escucha estas 11 canciones favoritas`\
 https://www.nytimes.com/es/2026/06/15/espanol/cultura/5-minutos-nina-simone.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/14/world/europe/switzerland-population-cap-refer
 **For His 80th Birthday, Trump Brought a Cage Match to the White House Lawn**\
 `President Trump sat ringside beside his wife, Melania Trump, for an event that used the trappings of the White House for a U.F.C. brawl.`\
 https://www.nytimes.com/2026/06/14/us/ufc-trump-white-house.html
-
-**He Made ‘Heathcliff’ Absurd**\
-`Peter Gallagher’s spin on a comic strip staple has found a passionate audience away from the funny pages.`\
-https://www.nytimes.com/2026/06/14/style/heathcliff-comic-strip-new-fans.html
 
 **U.S. and Iran Reach Framework for Peace**\
 `The deal was expected to open the Strait of Hormuz and lift the U.S. naval blockade on Iranian ports. But it would leave the thorniest nuclear issues for another day.`\
