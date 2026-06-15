@@ -1,3 +1,7 @@
+**Iran War Live Updates: U.S. and Tehran Agree on Framework for Peace**\
+`The deal was expected to open the Strait of Hormuz, lift the U.S. naval blockade on Iranian ports and pave the way for further talks. It did not address Iran’s nuclear program.`\
+https://www.nytimes.com/live/2026/06/15/world/iran-war-trump-us-deal
+
 **Historic Orthodox Cathedral Burns in Russian Attack on Kyiv**\
 `A bishop reported that many holy items had been recovered from the cathedral, at the site of the Perchersk monastery, a revered place for Ukrainian and Russian Orthodox faiths.`\
 https://www.nytimes.com/2026/06/15/world/europe/ukraine-kyiv-russia-attack-orthodox-cathedral.html
