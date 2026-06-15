@@ -1,3 +1,11 @@
+**Britain Proposes Social Media Ban for Children Under 16**\
+`Prime Minister Keir Starmer of Britain said that the government would introduce new regulations later this year to ban social media for children under 16. The measures, expected to take effect in early 2027, will also include restrictions on some game platforms and livestreaming apps.`\
+https://www.nytimes.com/video/world/europe/100000010968328/britain-social-media-ban.html
+
+**Montana Democrats Are Divided Over How to Win a Republican-held Senate Seat**\
+`A rift in Montana between the Democratic nominee and an independent candidate could boost Republican hopes of holding on to an open seat in conservative territory.`\
+https://www.nytimes.com/2026/06/15/us/politics/montana-democrats-senate.html
+
 **Divider in Chief**\
 `Unlike past presidents, Donald Trump “uses everything to divide us.” America’s 250th anniversary is no exception, the NYT Opinion contributor Pete Wehner argues on “The Opinions.”`\
 https://www.nytimes.com/video/opinion/100000010958365/divider-in-chief.html
