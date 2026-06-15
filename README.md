@@ -39,7 +39,7 @@ https://www.nytimes.com/2026/06/14/arts/music/oliver-tree-dead-brazil-helicopter
 https://www.nytimes.com/es/2026/06/14/espanol/estados-unidos/trump-aprobacion-encuestas.html
 
 **Trump’s U.F.C. Event Comes as Backing of Young Men, Once a Strength, Wanes**\
-`Some Republicans see a political opening in Sunday’s fights at the White House. Democrats say they see a distraction from more pressing matters.`\
+`Some Republicans saw a political opening in Sunday’s fights at the White House. Democrats said they saw a distraction from more pressing matters.`\
 https://www.nytimes.com/2026/06/14/us/politics/trump-ufc-politics-midterms.html
 
 **California Sues to Stop One County’s Ban on Most Mail Voting**\
