@@ -1,3 +1,11 @@
+**SpaceX’s Stock Rises Ahead of First Full Day of Trading**\
+`After notching big gains on its debut on Friday, the company’s shares jumped again on Monday before the market opened.`\
+https://www.nytimes.com/2026/06/15/business/spacex-stock.html
+
+**Fox to Acquire Roku, Joining the Battle for the Living Room**\
+`The $22 billion deal will bolster Fox Corp.’s efforts to reach consumers on streaming platforms.`\
+https://www.nytimes.com/2026/06/15/business/fox-roku-acquisition-streaming-media.html
+
 **Read Will Scharf’s Confidential Habeas Corpus Memo**\
 `Will Scharf, the White House staff secretary, wrote a secret memo to Susie Wiles, the White House chief of staff, outlining his concerns about suspending habeas rights for unauthorized immigrants.`\
 https://www.nytimes.com/interactive/2026/06/15/us/politics/trump-miller-habeas-corpus.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/15/books/review/the-nord-stream-conspiracy-bojan
 **Why the Art Workers’ Coalition’s Battles Still Resonate**\
 `Members of the Art Workers’ Coalition fought for a fairer and more equitable business for themselves. Their battles resonate to this day.`\
 https://www.nytimes.com/2026/06/15/t-magazine/art-workers-coalition.html
-
-**8 Proposals for a Better Art World**\
-`Artists on what a more utopian version of their field might look like.`\
-https://www.nytimes.com/2026/06/15/t-magazine/fairer-art-world-ideas-funding.html
-
-**A History of American Utopia in 10 Acts**\
-`Exploring some of the significant experiments that have best captured the country’s idealistic spirit.`\
-https://www.nytimes.com/2026/06/15/t-magazine/utopian-movements-shakers-civil-rights.html
 
