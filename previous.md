@@ -1,3 +1,11 @@
+**Investigators Look for Electronic Devices of Victims in Skydiving Crash**\
+`The aircraft that went down in Butler, Mo., on Sunday was not required to have had a voice recorder, a National Transportation Safety Board official said.`\
+https://www.nytimes.com/2026/06/15/us/skydiving-plane-crash-missouri.html
+
+**Major Flooding Expected in Texas and Across the Gulf Coast**\
+`Downpours prompted flash flood warnings in Houston and San Antonio on Monday, and more rain is on the way.`\
+https://www.nytimes.com/2026/06/15/weather/texas-rain-flooding-storm.html
+
 **‘We’ve Arrived!’: Cape Verde Fans Exult in World Cup Draw With Spain**\
 `Cape Verde, a tiny island nation off the West African coast, is among the smallest countries to ever qualify for the World Cup. Fans marveled that it held the line against a tournament favorite.`\
 https://www.nytimes.com/2026/06/15/us/cape-verde-spain-draw-world-cup.html
@@ -10,7 +18,7 @@ https://www.nytimes.com/2026/06/15/arts/music/sean-combs-lawsuit-dismissed-dawn-
 `Alexandros Giotopoulos, 82, had been serving 17 life sentences for leading November 17, a leftist group blamed for a wave of bombings and assassinations.`\
 https://www.nytimes.com/2026/06/15/world/europe/november-17-giotopoulos-prison-release.html
 
-**B-52 Crashes at Air Force Base, Officials Say**\
+**B-52 Bomber Crashes at Edwards Air Force Base in California**\
 `The crash occurred shortly after takeoff this morning from Edwards Air Force Base in California. Emergency crews were responding to the site.`\
 https://www.nytimes.com/2026/06/15/us/b-52-crash-edwards-air-force-base-california.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/interactive/2026/06/15/books/review/history-books-quiz.h
 **Oliver Tree habría fallecido en una colisión de helicópteros en Brasil**\
 `Las autoridades dijeron que al menos seis personas habían muerto al estrellarse dos helicópteros en Río de Janeiro el domingo.`\
 https://www.nytimes.com/es/2026/06/15/espanol/america-latina/choque-helicopteros-brasil-oliver-tree.html
-
-**Siddhartha Mukherjee: Can A.I. Share Our Need to Belong?**\
-`The source code of human belonging has seemingly drifted. How can we ensure that artificial intelligence doesn’t get similarly corrupted?`\
-https://www.nytimes.com/2026/06/15/special-series/siddhartha-mukherjee-artificial-intelligence.html
-
-**Trump Winds Down the War He Started With Goals Unmet**\
-`While the president says the agreement with Iran would open the Strait of Hormuz and provide economic relief, the country’s nuclear program is still a subject for negotiation.`\
-https://www.nytimes.com/2026/06/15/world/middleeast/iran-deal-hormuz-trump-goals.html
 

@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/06/15/weather/texas-rain-flooding-storm.html
 `Cape Verde, a tiny island nation off the West African coast, is among the smallest countries to ever qualify for the World Cup. Fans marveled that it held the line against a tournament favorite.`\
 https://www.nytimes.com/2026/06/15/us/cape-verde-spain-draw-world-cup.html
 
-**Dawn Richard’s Lawsuit Against Sean Combs Dismissed**\
+**Dawn Richard’s Lawsuit Against Sean Combs Is Dismissed**\
 `Ms. Richard, a singer who once worked with the music mogul, accused him of creating an abusive work environment. The judge said her claims came too late.`\
 https://www.nytimes.com/2026/06/15/arts/music/sean-combs-lawsuit-dismissed-dawn-richard.html
 

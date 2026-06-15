@@ -1,3 +1,15 @@
+**Investigators Look for Electronic Devices of Victims in Skydiving Crash**\
+`The aircraft that went down in Butler, Mo., on Sunday was not required to have had a voice recorder, a National Transportation Safety Board official said.`\
+https://www.nytimes.com/2026/06/15/us/skydiving-plane-crash-missouri.html
+
+**Major Flooding Expected in Texas and Across the Gulf Coast**\
+`Downpours prompted flash flood warnings in Houston and San Antonio on Monday, and more rain is on the way.`\
+https://www.nytimes.com/2026/06/15/weather/texas-rain-flooding-storm.html
+
+**B-52 Bomber Crashes at Edwards Air Force Base in California**\
+`The crash occurred shortly after takeoff this morning from Edwards Air Force Base in California. Emergency crews were responding to the site.`\
+https://www.nytimes.com/2026/06/15/us/b-52-crash-edwards-air-force-base-california.html
+
 **‘We’ve Arrived!’: Cape Verde Fans Exult in World Cup Draw With Spain**\
 `Cape Verde, a tiny island nation off the West African coast, is among the smallest countries to ever qualify for the World Cup. Fans marveled that it held the line against a tournament favorite.`\
 https://www.nytimes.com/2026/06/15/us/cape-verde-spain-draw-world-cup.html
