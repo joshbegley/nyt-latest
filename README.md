@@ -1,3 +1,7 @@
+**Copa Mundial: los fans de Cabo Verde celebran el empate contra España**\
+`Cabo Verde, una pequeña nación insular, es uno de los países más pequeños que han clasificado para un Mundial. Los fanáticos festejaron que el equipo resistiera ante uno de los favoritos del torneo.`\
+https://www.nytimes.com/es/2026/06/15/espanol/deportes/copa-mundial-espana-cabo-verde-portero.html
+
 **En Israel, crece el descontento en torno al acuerdo entre EE. UU. e Irán**\
 `Israelíes de todo el espectro político dijeron que el acuerdo parece dejar sin resolver las amenazas fundamentales a la seguridad israelí que plantea Irán.`\
 https://www.nytimes.com/es/2026/06/15/espanol/mundo/israel-iran-acuerdo-paz-trump.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/es/2026/06/15/espanol/estados-unidos/trump-ufc-lucha-cum
 **The Look of Patriotism at Trump’s UFC Fight**\
 `From the athletes to the Octagon Girls, the Freedom 250 Flag Day event was a fashion show in red, white and blue.`\
 https://www.nytimes.com/2026/06/15/style/fashion-ufc-fight-trump-white-house.html
-
-**ICE Agent Hit by Car While Trying to Make an Arrest, Officials Say**\
-`The agent, who was injured during the incident near the Jersey Shore, opened fire. The person who was being targeted by immigration authorities fled.`\
-https://www.nytimes.com/2026/06/15/nyregion/ice-agent-hit-car-nj.html
 
