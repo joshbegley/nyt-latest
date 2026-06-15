@@ -1,3 +1,7 @@
+**Siddhartha Mukherjee: Can A.I. Share Our Need to Belong?**\
+`The source code of human belonging has seemingly drifted. How can we ensure that artificial intelligence doesn’t get similarly corrupted?`\
+https://www.nytimes.com/2026/06/15/special-series/siddhartha-mukherjee-artificial-intelligence.html
+
 **Trump Winds Down the War He Started With Goals Unmet**\
 `While the president says the agreement with Iran would open the Strait of Hormuz and provide economic relief, the country’s nuclear program is still a subject for negotiation.`\
 https://www.nytimes.com/2026/06/15/world/middleeast/iran-deal-hormuz-trump-goals.html

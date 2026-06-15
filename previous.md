@@ -1,3 +1,7 @@
+**Siddhartha Mukherjee: Can A.I. Share Our Need to Belong?**\
+`The source code of human belonging has seemingly drifted. How can we ensure that artificial intelligence doesn’t get similarly corrupted?`\
+https://www.nytimes.com/2026/06/15/special-series/siddhartha-mukherjee-artificial-intelligence.html
+
 **Trump Winds Down the War He Started With Goals Unmet**\
 `While the president says the agreement with Iran would open the Strait of Hormuz and provide economic relief, the country’s nuclear program is still a subject for negotiation.`\
 https://www.nytimes.com/2026/06/15/world/middleeast/iran-deal-hormuz-trump-goals.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/15/opinion/trump-democracy-plan.html
 **In Alabama, Opposition to Renewable Solar Energy Joins a Data Center Battle**\
 `Tuesday’s runoff for a slot on the Alabama Public Service Commission has a familiar ring to it, with talk of data centers and electricity costs. But in a southern twist, solar power has joined the list of villains.`\
 https://www.nytimes.com/2026/06/15/us/elections/alabama-election-data-centers-solar-power.html
-
-**Is There Such a Thing as Timeless Jeans?**\
-`A reader wants to know if the denim trend wagon will ever stop.`\
-https://www.nytimes.com/2026/06/15/fashion/jeans.html
 
