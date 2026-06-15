@@ -1,3 +1,7 @@
+**Sheet Pan Tarte Tatin**\
+`This large-format tarte Tatin is nontraditional — it’s made almost entirely in the oven in a jellyroll pan rather than getting cooked on the stovetop in a skillet — but the flavor combination of caramel, apples and buttery pastry is classic.`\
+https://www.nytimes.com/video/dining/100000010964832/sheet-pan-tarte-tatin.html
+
 **Test Your Knowledge of Books That Inspired Popular Screen Adaptations**\
 `Books about pivotal moments in America’s past are often transformed into films or television shows. Try this quiz to see if you can identify these five adaptations.`\
 https://www.nytimes.com/interactive/2026/06/15/books/review/history-books-quiz.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/15/dining/john-early-maddies-secret-food.html
 **How Solvers Keep Their Longest Wordle and Crossword Streaks**\
 `Meet the players who persist through childbirth or intense athletic feats to ensure they solve Wordle and other puzzles every day.`\
 https://www.nytimes.com/2026/06/15/crosswords/streaks-breaking-keeping.html
-
-**Frustrated by Courts, Trump Weighed Suspending a Constitutional Right**\
-`Secret memos show that the White House debated last year, to a greater degree than previously known, whether to limit habeas corpus rights for undocumented immigrants.`\
-https://www.nytimes.com/2026/06/15/us/politics/trump-scharf-habeas-corpus-insurrection-act.html
 
