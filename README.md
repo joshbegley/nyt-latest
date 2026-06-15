@@ -1,23 +1,3 @@
-**Siddhartha Mukherjee: Can A.I. Share Our Need to Belong?**\
-`The source code of human belonging has seemingly drifted. How can we ensure that artificial intelligence doesn’t get similarly corrupted?`\
-https://www.nytimes.com/2026/06/15/special-series/siddhartha-mukherjee-artificial-intelligence.html
-
-**Trump Winds Down the War He Started With Goals Unmet**\
-`While the president says the agreement with Iran would open the Strait of Hormuz and provide economic relief, the country’s nuclear program is still a subject for negotiation.`\
-https://www.nytimes.com/2026/06/15/world/middleeast/iran-deal-hormuz-trump-goals.html
-
-**Israel Counts the Ways That Netanyahu’s Iran Strategy Failed**\
-`The U.S.-Iran framework agreement appears to omit some of the most important provisions that Israel wanted.`\
-https://www.nytimes.com/2026/06/15/world/middleeast/israel-netanyahus-iran-strategy.html
-
-**U.S.-Iran Agreement Leaves Lebanon’s Fate Murky**\
-`Iran claimed the deal would extend to fighting in Lebanon but no details of the agreement were made public and Israel said its forces would remain there.`\
-https://www.nytimes.com/2026/06/15/world/middleeast/us-iran-agreement-lebanon.html
-
-**Deal to Reopen Hormuz Kicks Off Long Effort to Ease Energy Crisis**\
-`The pace of the recovery will depend on how confident companies are that the deal between the United States and Iran will hold and be extended.`\
-https://www.nytimes.com/2026/06/15/business/energy-environment/iran-deal-oil-natural-gas.html
-
 **SpaceX’s Stock Rises on First Full Day of Trading**\
 `After notching big gains on its debut on Friday, the company’s shares jumped again on Monday.`\
 https://www.nytimes.com/2026/06/15/business/spacex-stock.html
@@ -114,13 +94,13 @@ https://www.nytimes.com/2026/06/15/opinion/fathers-day-fatherhood.html
 `President Trump has long been at odds with European leaders over trade, Ukraine and NATO, but he has lashed out in recent weeks over their refusal to support the U.S. war with Iran.`\
 https://www.nytimes.com/2026/06/15/us/politics/trump-group-of-7-summit.html
 
-**Your Summer 2026 Politics Quiz Is Here**\
-`Ease into the summer with the latest Gail Collins politics quiz.`\
-https://www.nytimes.com/interactive/2026/06/15/opinion/contributors/15collins-quiz-interactive.html
-
 **How a Book Editor and Jazz Musician Lives on $55,000 in West Harlem**\
 `Frugality is a family tradition for Ruby Pucillo, but it is one that is difficult to maintain as a 20-something with more than half of her income going to rent.`\
 https://www.nytimes.com/interactive/2026/06/15/nyregion/nyc-budgeting-affordability-pucillo.html
+
+**Your Summer 2026 Politics Quiz Is Here**\
+`Ease into the summer with the latest Gail Collins politics quiz.`\
+https://www.nytimes.com/interactive/2026/06/15/opinion/contributors/15collins-quiz-interactive.html
 
 **In New Luxury Kitchens, Everything Is Hidden**\
 `Camouflaging the fridge is just the beginning for high-end kitchens.`\
@@ -197,4 +177,24 @@ https://www.nytimes.com/2026/06/15/opinion/trump-democracy-plan.html
 **In Alabama, Opposition to Renewable Solar Energy Joins a Data Center Battle**\
 `Tuesday’s runoff for a slot on the Alabama Public Service Commission has a familiar ring to it, with talk of data centers and electricity costs. But in a southern twist, solar power has joined the list of villains.`\
 https://www.nytimes.com/2026/06/15/us/elections/alabama-election-data-centers-solar-power.html
+
+**Is There Such a Thing as Timeless Jeans?**\
+`A reader wants to know if the denim trend wagon will ever stop.`\
+https://www.nytimes.com/2026/06/15/fashion/jeans.html
+
+**The ‘No Kings’ Protest Killing With a Complicated Twist**\
+`A gunman believed he was defending the crowd. He killed an innocent bystander. Should he be convicted of a crime?`\
+https://www.nytimes.com/2026/06/15/us/no-kings-protest-shooting.html
+
+**How Quebec Left the Church and Became the World Leader in Assisted Dying**\
+`A society once strongly Roman Catholic has rejected the church’s prohibition on euthanasia, with many instead viewing control over one’s death as an individual right.`\
+https://www.nytimes.com/2026/06/15/world/canada/quebec-medically-assisted-dying-catholic.html
+
+**Book Review: ‘The Nord Stream Conspiracy,’ by Bojan Pancevski**\
+`In “The Nord Stream Conspiracy,” the investigative journalist Bojan Pancevski tells a high-stakes international war story in blockbuster prose.`\
+https://www.nytimes.com/2026/06/15/books/review/the-nord-stream-conspiracy-bojan-pancevski.html
+
+**Why the Art Workers’ Coalition’s Battles Still Resonate**\
+`Members of the Art Workers’ Coalition fought for a fairer and more equitable business for themselves. Their battles resonate to this day.`\
+https://www.nytimes.com/2026/06/15/t-magazine/art-workers-coalition.html
 
