@@ -1,3 +1,7 @@
+**Dawn Richard’s Lawsuit Against Sean Combs Dismissed**\
+`Ms. Richard, a singer who once worked with the music mogul, accused him of creating an abusive work environment. The judge said her claims came too late.`\
+https://www.nytimes.com/2026/06/15/arts/music/sean-combs-lawsuit-dismissed-dawn-richard.html
+
 **Convicted Leader of Greek Militant Group Ordered Back to Prison**\
 `Alexandros Giotopoulos, 82, had been serving 17 life sentences for leading November 17, a leftist group blamed for a wave of bombings and assassinations.`\
 https://www.nytimes.com/2026/06/15/world/europe/november-17-giotopoulos-prison-release.html
