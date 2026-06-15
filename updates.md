@@ -1,3 +1,11 @@
+**Un recorrido por el interminable conflicto armado en Colombia**\
+`Diez años después de un acuerdo de paz histórico, los grupos armados están desatando una violencia mortal, combinando el combate en la selva con la nueva guerra de drones.`\
+https://www.nytimes.com/es/2026/06/15/espanol/america-latina/colombia-guerra-conflicto-drogas.html
+
+**Ronald LaPread, Funky Bassist for the Commodores, Dies at 76**\
+`A talented musician, he lied when asked by Lionel Richie, the lead singer, if he played bass. Then he taught himself how, and was essential to the band’s success.`\
+https://www.nytimes.com/2026/06/15/arts/music/ronald-lapread-dead.html
+
 **Iranians React to Preliminary U.S.-Iran Deal to End War**\
 `People in Tehran expressed cautious optimism, as well as mistrust, over a preliminary deal between the United States and Iran that could pave the way toward a final peace agreement.`\
 https://www.nytimes.com/video/world/middleeast/100000010967531/us-iran-deal-iranians-reaction.html

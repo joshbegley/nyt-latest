@@ -1,3 +1,11 @@
+**Un recorrido por el interminable conflicto armado en Colombia**\
+`Diez años después de un acuerdo de paz histórico, los grupos armados están desatando una violencia mortal, combinando el combate en la selva con la nueva guerra de drones.`\
+https://www.nytimes.com/es/2026/06/15/espanol/america-latina/colombia-guerra-conflicto-drogas.html
+
+**Ronald LaPread, Funky Bassist for the Commodores, Dies at 76**\
+`A talented musician, he lied when asked by Lionel Richie, the lead singer, if he played bass. Then he taught himself how, and was essential to the band’s success.`\
+https://www.nytimes.com/2026/06/15/arts/music/ronald-lapread-dead.html
+
 **Iranians React to Preliminary U.S.-Iran Deal to End War**\
 `People in Tehran expressed cautious optimism, as well as mistrust, over a preliminary deal between the United States and Iran that could pave the way toward a final peace agreement.`\
 https://www.nytimes.com/video/world/middleeast/100000010967531/us-iran-deal-iranians-reaction.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/06/15/opinion/contributors/15collins-qu
 **How a Book Editor and Jazz Musician Lives on $55,000 in West Harlem**\
 `Frugality is a family tradition for Ruby Pucillo, but it is one that is difficult to maintain as a 20-something with more than half of her income going to rent.`\
 https://www.nytimes.com/interactive/2026/06/15/nyregion/nyc-budgeting-affordability-pucillo.html
-
-**In New Luxury Kitchens, Everything Is Hidden**\
-`Camouflaging the fridge is just the beginning for high-end kitchens.`\
-https://www.nytimes.com/2026/06/15/realestate/luxury-kitchens-hidden-sinks-fridges.html
-
-**An Eventful Week Will Follow a Weekend to Remember**\
-`New York is on a Knicks high. The coming days will bring a parade, but don’t forget the World Cup.`\
-https://www.nytimes.com/2026/06/15/nyregion/knicks-championship-world-cup.html
 
