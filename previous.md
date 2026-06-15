@@ -1,3 +1,11 @@
+**A Knicks-Inspired Baby-Naming Boom Is Coming After Championship Win, Experts Say**\
+`Jalen Brunson could become the next Michael Jordan of baby names, but don’t expect more Victors or Wembys, the experts say.`\
+https://www.nytimes.com/2026/06/15/nyregion/knicks-baby-names-jalen-brunson.html
+
+**Scorching Heat or Scorching Lightning? Miami’s Match Could Have Both.**\
+`South Florida was under a severe heat advisory as fans arrived in the hours before kickoff. Scattered thunderstorms are also in the forecast.`\
+https://www.nytimes.com/2026/06/15/us/miami-world-cup-heat.html
+
 **The (Mostly) Unanswered Questions at the Heart of a U.S.-Iran Accord**\
 `The short-term truce hasn’t been made public, and the long-term peace deal it is supposed to yield doesn’t exist yet, so there is much still unknown about any agreement between the adversaries.`\
 https://www.nytimes.com/2026/06/15/world/middleeast/us-iran-deal-agreement-questions.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/15/us/what-we-know-skydiving-plane-crash.html
 **Will SpaceX Fortunes Trickle Down to This Texas Town?**\
 `Elon Musk built a huge complex outside the city of Bastrop, population 14,000. Its residents now wonder what the historic SpaceX initial public offering might mean for them.`\
 https://www.nytimes.com/2026/06/15/business/spacex-ipo-trickle-down-bastrop.html
-
-**The Knicks Sprinkle Their Magic Over New York**\
-`Readers express joy over the New York Knicks’ N.B.A. championship. Also: The fight spectacle on the South Lawn of the White House.`\
-https://www.nytimes.com/2026/06/15/opinion/knicks-nba-champions.html
-
-**Trump celebra evento de la UFC en la Casa Blanca**\
-`El evento de la UFC realizado el domingo por la noche en el jardín sur de la Casa Blanca fue un espectáculo mediático sin precedentes en la historia de la presidencia estadounidense.`\
-https://www.nytimes.com/es/2026/06/15/espanol/estados-unidos/trump-ufc-lucha-cumpleanos.html
 

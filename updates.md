@@ -1,3 +1,11 @@
+**A Knicks-Inspired Baby-Naming Boom Is Coming After Championship Win, Experts Say**\
+`Jalen Brunson could become the next Michael Jordan of baby names, but don’t expect more Victors or Wembys, the experts say.`\
+https://www.nytimes.com/2026/06/15/nyregion/knicks-baby-names-jalen-brunson.html
+
+**Scorching Heat or Scorching Lightning? Miami’s Match Could Have Both.**\
+`South Florida was under a severe heat advisory as fans arrived in the hours before kickoff. Scattered thunderstorms are also in the forecast.`\
+https://www.nytimes.com/2026/06/15/us/miami-world-cup-heat.html
+
 **The (Mostly) Unanswered Questions at the Heart of a U.S.-Iran Accord**\
 `The short-term truce hasn’t been made public, and the long-term peace deal it is supposed to yield doesn’t exist yet, so there is much still unknown about any agreement between the adversaries.`\
 https://www.nytimes.com/2026/06/15/world/middleeast/us-iran-deal-agreement-questions.html
