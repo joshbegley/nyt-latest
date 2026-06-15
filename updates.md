@@ -1,3 +1,19 @@
+**Jaded and Exhausted, Many Iranians Shrug at World Cup**\
+`The successes of Iran’s national soccer team used to be a source of celebration. Now, many Iranians can barely muster the energy to care.`\
+https://www.nytimes.com/2026/06/15/world/middleeast/iran-national-team-fans.html
+
+**EE. UU. e Irán alcanzan un acuerdo para la paz. Estas son las claves**\
+`Aún no se publica el texto completo del acuerdo preliminar que allanaría el camino para poner fin a la guerra. Los primeros detalles sugieren que posterga las cuestiones más polémicas.`\
+https://www.nytimes.com/es/2026/06/15/espanol/mundo/eeuu-iran-acuerdo.html
+
+**In France, Justice System Faces Public Anger After 11-Year-Old Girl’s Killing**\
+`Protests have erupted across France after authorities revealed that a man accused of kidnapping Lyhanna Rameau Bernard, a French schoolgirl found dead this month, had previously been flagged to law enforcement.`\
+https://www.nytimes.com/2026/06/15/world/europe/france-lyhanna-protests.html
+
+**Gulf Countries Confront New Questions About Relying on U.S. Protection**\
+`Iran targeted Bahrain, Qatar, the United Arab Emirates and other American allies in the Middle East during the war, harming their economies and military sectors.`\
+https://www.nytimes.com/2026/06/15/world/middleeast/gulf-iran-war-us.html
+
 **A Brilliant 15-Minute Meal Built on Just a Handful of Ingredients**\
 `That’s Kay Chun’s roasted salmon with peas and radishes, a five-star recipe with over 3,000 reviews.`\
 https://www.nytimes.com/2026/06/15/dining/a-brilliant-15-minute-meal-built-on-just-a-handful-of-ingredients.html
