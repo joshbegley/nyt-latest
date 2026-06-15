@@ -1,3 +1,7 @@
+**Iranian Team Arrives in U.S. for World Cup After Months of Uncertainty**\
+`The war had stirred doubts about the team’s participation in the tournament. It is set to play New Zealand in a Los Angeles area stadium on Monday.`\
+https://www.nytimes.com/2026/06/15/sports/world-cup/iran-world-cup-arrives-los-angeles.html
+
 **Una papa misteriosa en el cielo de Colorado aparece en los archivos sobre ovnis**\
 `Las papas ya han aparecido en avistamientos anteriores, así como en viajes espaciales reales y de ficción.`\
 https://www.nytimes.com/es/2026/06/15/espanol/estados-unidos/pentagono-ovni-papa.html

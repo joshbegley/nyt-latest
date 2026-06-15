@@ -2,6 +2,10 @@
 `Las papas ya han aparecido en avistamientos anteriores, así como en viajes espaciales reales y de ficción.`\
 https://www.nytimes.com/es/2026/06/15/espanol/estados-unidos/pentagono-ovni-papa.html
 
+**Iranian Team Arrives in U.S. for World Cup After Months of Uncertainty**\
+`The war had stirred doubts about the team’s participation in the tournament. It is set to play New Zealand in a Los Angeles area stadium on Monday.`\
+https://www.nytimes.com/2026/06/15/sports/world-cup/iran-world-cup-arrives-los-angeles.html
+
 **Trump Hosts U.F.C. Event at the White House**\
 `President Trump turned 80 on Sunday and celebrated with a $60 million Ultimate Fighting Championship event at the White House.`\
 https://www.nytimes.com/video/us/100000010967377/trump-ufc-white-house.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/14/us/politics/trump-ufc-tko-group.html
 **U.S. and Iran Reach Framework for Peace**\
 `The deal was expected to open the Strait of Hormuz and lift the U.S. naval blockade on Iranian ports. But it would leave the thorniest nuclear issues for another day.`\
 https://www.nytimes.com/live/2026/06/14/world/iran-war-trump-us
-
-**World Cup Updates: The Secrets of a Soccer Turf Master**\
-`(No description)`\
-https://www.nytimes.com/live/2026/us/fifa-world-cup
 
