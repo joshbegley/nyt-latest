@@ -1,3 +1,7 @@
+**Tensions Are Rising Between States That Rely on the Colorado River**\
+`A prolonged drought means the nation’s largest reservoirs are dwindling, and litigation over access to water could lie ahead.`\
+https://www.nytimes.com/2026/06/15/climate/colorado-river-drought-states.html
+
 **What to Know About Planned Social Media Bans Around the World**\
 `Britain said it would ban social media access for children under 16 starting in 2027, joining several other countries introducing similar measures.`\
 https://www.nytimes.com/2026/06/15/world/europe/social-media-bans-worldwide.html
