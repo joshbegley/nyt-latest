@@ -1,3 +1,7 @@
+**Many Iranians Express Relief Over Agreement to End the War**\
+`After enduring months of conflict, ordinary people in Iran were relieved to hear about the deal. Opposition groups were disappointed.`\
+https://www.nytimes.com/2026/06/15/world/middleeast/iran-reaction-cease-fire-deal.html
+
 **Las Culturistas Culture Awards and 6 More Things to Watch on TV This Week**\
 `Bowen Yang and Matt Rogers host their pop culture award show, and “Summer House” airs a surprise episode.`\
 https://www.nytimes.com/2026/06/15/arts/television/las-culturistas-culture-awards.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/14/podcasts/knicks-win-first-nba-title-in-53-yea
 **Net Gain**\
 `We’re covering the Knicks, and a savvy strategy people are using to game prediction markets.`\
 https://www.nytimes.com/2026/06/14/briefing/net-gain.html
-
-**Why I Love the Beautiful Game: Brandon Aubrey**\
-`Brandon Aubrey is an N.F.L. superstar. The other football is his first love.`\
-https://www.nytimes.com/2026/06/14/podcasts/why-i-love-the-beautiful-game-brandon-aubrey.html
 
 **Iran War Live Updates: U.S. and Tehran Reach Framework for Peace**\
 `The deal was expected to open the Strait of Hormuz and lift the U.S. naval blockade on Iranian ports. But it would leave the thorniest nuclear issues for another day.`\
