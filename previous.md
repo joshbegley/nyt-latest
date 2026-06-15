@@ -1,3 +1,11 @@
+**Las Culturistas Culture Awards and 6 More Things to Watch on TV This Week**\
+`Bowen Yang and Matt Rogers host their pop culture award show, and “Summer House” airs a surprise episode.`\
+https://www.nytimes.com/2026/06/15/arts/television/las-culturistas-culture-awards.html
+
+**Todd Blanche Is a Dangerous Choice for Trump’s Attorney General**\
+`Nominating Mr. Blanche to be the nation’s top law enforcement officer crosses a red line, and the Senate needs to defeat him.`\
+https://www.nytimes.com/2026/06/15/opinion/blanche-confirmation-trump-attorney-general.html
+
 **No Corrections: June 15, 2026**\
 `No corrections appeared in print on Monday, June 15, 2026.`\
 https://www.nytimes.com/2026/06/15/pageoneplus/no-corrections-june-15-2026.html
@@ -62,8 +70,8 @@ https://www.nytimes.com/es/2026/06/14/espanol/ciencia-y-tecnologia/huntington-en
 `Across the city, Knicks fans celebrated joyfully after Game 5. But near Madison Square Garden, the scene turned ugly early Sunday as some revelers became violent.`\
 https://www.nytimes.com/2026/06/14/nyregion/knicks-celebration-violence-midtown.html
 
-**War and the World Cup**\
-`The Iranian government has always used the national team to project soft power. That puts players and fans who oppose the regime in a tough spot.`\
+**U.S. and Iran Agree to a Truce**\
+`The agreement could pave the way for further talks that could ultimately end the war. President Trump said that it could also reopen the Strait of Hormuz.`\
 https://www.nytimes.com/2026/06/14/world/world-cup-iran-lebanon-trump-birthday.html
 
 **What to Know About the Ticker-Tape Parade for the Knicks**\
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/14/briefing/net-gain.html
 **Why I Love the Beautiful Game: Brandon Aubrey**\
 `Brandon Aubrey is an N.F.L. superstar. The other football is his first love.`\
 https://www.nytimes.com/2026/06/14/podcasts/why-i-love-the-beautiful-game-brandon-aubrey.html
-
-**MAGA’s French Connection**\
-`This is MAGA’s French connection.`\
-https://www.nytimes.com/2026/06/14/opinion/christian-nationalism-maga-france.html
-
-**What the Cult of Efficiency Costs Us**\
-`The Save Our Bacon Act is bad for pigs and bad for us.`\
-https://www.nytimes.com/2026/06/14/opinion/chris-murphy-save-bacon-pigs.html
 
 **Iran War Live Updates: U.S. and Tehran Reach Framework for Peace**\
 `The deal was expected to open the Strait of Hormuz and lift the U.S. naval blockade on Iranian ports. But it would leave the thorniest nuclear issues for another day.`\

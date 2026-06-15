@@ -1,3 +1,15 @@
+**Las Culturistas Culture Awards and 6 More Things to Watch on TV This Week**\
+`Bowen Yang and Matt Rogers host their pop culture award show, and “Summer House” airs a surprise episode.`\
+https://www.nytimes.com/2026/06/15/arts/television/las-culturistas-culture-awards.html
+
+**Todd Blanche Is a Dangerous Choice for Trump’s Attorney General**\
+`Nominating Mr. Blanche to be the nation’s top law enforcement officer crosses a red line, and the Senate needs to defeat him.`\
+https://www.nytimes.com/2026/06/15/opinion/blanche-confirmation-trump-attorney-general.html
+
+**U.S. and Iran Agree to a Truce**\
+`The agreement could pave the way for further talks that could ultimately end the war. President Trump said that it could also reopen the Strait of Hormuz.`\
+https://www.nytimes.com/2026/06/14/world/world-cup-iran-lebanon-trump-birthday.html
+
 **For His 80th Birthday, Trump Brought a Cage Match to the White House Lawn**\
 `President Trump sat ringside beside his wife, Melania Trump, for an event that used the trappings of the White House for a U.F.C. brawl.`\
 https://www.nytimes.com/2026/06/14/us/ufc-trump-white-house.html
