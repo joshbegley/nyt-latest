@@ -194,7 +194,7 @@ https://www.nytimes.com/video/podcasts/the-daily/100000010963369/how-jaws-made-p
 `On “The Daily,” Steven Spielberg settles an important debate: Was E.T. slimy or dry?`\
 https://www.nytimes.com/video/podcasts/the-daily/100000010962076/was-et-slimy-or-dry-spielberg-weighs-in.html
 
-**Steven Spielberg on Watching Movies Alone**\
-`On “The Daily,” Steven Spielberg talks about the “contagion” that happens when you watch a movie with a crowd of strangers.`\
-https://www.nytimes.com/video/podcasts/the-daily/100000010961992/steven-spielberg-on-watching-movies-alone.html
+**Iran War Live Updates: U.S. and Iran Reach Cease-Fire Agreement**\
+`The deal was expected to halt fighting for 60 days, open the Strait of Hormuz and lift the U.S. naval blockade on Iranian ports. But it would leave the thorniest nuclear issues for another day.`\
+https://www.nytimes.com/live/2026/06/14/world/iran-war-trump-us
 
