@@ -1,3 +1,7 @@
+**Ukraine Is About to Take a Big Step on a Long Road Toward the European Union**\
+`Even though negotiations will begin for Ukraine to join the bloc, the path ahead is a long one.`\
+https://www.nytimes.com/2026/06/15/world/europe/ukraine-eu-membership.html
+
 **Trump Heads to Group of 7 as Allies Rethink Their Relationship With U.S.**\
 `President Trump has long been at odds with European leaders over trade, Ukraine and NATO, but he has lashed out in recent weeks over their refusal to support the U.S. war with Iran.`\
 https://www.nytimes.com/2026/06/15/us/politics/trump-group-of-7-summit.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/15/nyregion/knicks-championship-history.html
 **On the Horizon: A Maritime Spectacle 10 Times the Size of Fleet Week**\
 `New York’s two-day 250th extravaganza will feature the country’s largest parade of tall ships and warships, but adds daunting logistical challenges to an already overwrought summer.`\
 https://www.nytimes.com/2026/06/15/nyregion/sail-250-nyc-ships.html
-
-**NYT Spelling Bee Answers for June 15, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/06/15/crosswords/spelling-bee-forum.html
 

@@ -1,3 +1,7 @@
+**Ukraine Is About to Take a Big Step on a Long Road Toward the European Union**\
+`Even though negotiations will begin for Ukraine to join the bloc, the path ahead is a long one.`\
+https://www.nytimes.com/2026/06/15/world/europe/ukraine-eu-membership.html
+
 **Trump Heads to Group of 7 as Allies Rethink Their Relationship With U.S.**\
 `President Trump has long been at odds with European leaders over trade, Ukraine and NATO, but he has lashed out in recent weeks over their refusal to support the U.S. war with Iran.`\
 https://www.nytimes.com/2026/06/15/us/politics/trump-group-of-7-summit.html
