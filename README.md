@@ -1,3 +1,7 @@
+**Test Your Knowledge of Books That Inspired Popular Screen Adaptations**\
+`Books about pivotal moments in America’s past are often transformed into films or television shows. Try this quiz to see if you can identify these five adaptations.`\
+https://www.nytimes.com/interactive/2026/06/15/books/review/history-books-quiz.html
+
 **Oliver Tree habría fallecido en una colisión de helicópteros en Brasil**\
 `Las autoridades dijeron que al menos seis personas habían muerto al estrellarse dos helicópteros en Río de Janeiro el domingo.`\
 https://www.nytimes.com/es/2026/06/15/espanol/america-latina/choque-helicopteros-brasil-oliver-tree.html
@@ -54,7 +58,7 @@ https://www.nytimes.com/video/embedded/business/100000010967708/15visualUploader
 `The decision overturned a lower-court ruling that found that banning Palestine Action as a terrorist group had breached free speech rights.`\
 https://www.nytimes.com/2026/06/15/world/europe/uk-palestine-action-ban-appeal.html
 
-**Shipping Firms, Awaiting Details, Are Cautious of U.S.-Iran Deal**\
+**Cautious of U.S.-Iran Deal, Shipping Firms Await Strait to Reopen**\
 `Shipowners welcomed the agreement to reopen the Strait of Hormuz, but said they would need more security guarantees before resuming transits.`\
 https://www.nytimes.com/2026/06/15/business/us-iran-deal-shipping-companies-strait-of-hormuz.html
 
@@ -114,7 +118,7 @@ https://www.nytimes.com/2026/06/15/world/europe/ukraine-eu-membership.html
 `I’m fascinated by the fathers my brothers became.`\
 https://www.nytimes.com/2026/06/15/opinion/fathers-day-fatherhood.html
 
-**Trump Heads to Group of 7 as Allies Rethink Their Relationship With U.S.**\
+**Trump Arrives for Group of 7 as Allies Rethink Their Relationship With U.S.**\
 `President Trump has long been at odds with European leaders over trade, Ukraine and NATO, but he has lashed out in recent weeks over their refusal to support the U.S. war with Iran.`\
 https://www.nytimes.com/2026/06/15/us/politics/trump-group-of-7-summit.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/15/crosswords/streaks-breaking-keeping.html
 **Frustrated by Courts, Trump Weighed Suspending a Constitutional Right**\
 `Secret memos show that the White House debated last year, to a greater degree than previously known, whether to limit habeas corpus rights for undocumented immigrants.`\
 https://www.nytimes.com/2026/06/15/us/politics/trump-scharf-habeas-corpus-insurrection-act.html
-
-**A Three-Step Plan to Undo Trump’s Assault on Democracy**\
-`Local elections, and local outreach, can be crucial for stopping gerrymanders.`\
-https://www.nytimes.com/2026/06/15/opinion/trump-democracy-plan.html
 
