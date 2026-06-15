@@ -1,4 +1,4 @@
-**In the Dark on U.S.-Iran Deal, Senators Refrain from Praising It**\
+**In the Dark on U.S.-Iran Deal, Senators Refrain From Praising It**\
 `Democrats demanded an immediate briefing and even Republicans conceded they had no information on an agreement the administration has declined to release.`\
 https://www.nytimes.com/2026/06/15/world/middleeast/senate-iran-deal-trump.html
 
