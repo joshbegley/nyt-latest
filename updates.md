@@ -1,3 +1,47 @@
+**Trump Winds Down the War He Started With Goals Unmet**\
+`While the president says the agreement with Iran would open the Strait of Hormuz and provide economic relief, the country’s nuclear program is still a subject for negotiation.`\
+https://www.nytimes.com/2026/06/15/world/middleeast/iran-deal-hormuz-trump-goals.html
+
+**Israel Counts the Ways That Netanyahu’s Iran Strategy Failed**\
+`The U.S.-Iran framework agreement appears to omit some of the most important provisions that Israel wanted.`\
+https://www.nytimes.com/2026/06/15/world/middleeast/israel-netanyahus-iran-strategy.html
+
+**U.S.-Iran Agreement Leaves Lebanon’s Fate Murky**\
+`Iran claimed the deal would extend to fighting in Lebanon but no details of the agreement were made public and Israel said its forces would remain there.`\
+https://www.nytimes.com/2026/06/15/world/middleeast/us-iran-agreement-lebanon.html
+
+**Deal to Reopen Hormuz Kicks Off Long Effort to Ease Energy Crisis**\
+`The pace of the recovery will depend on how confident companies are that the deal between the United States and Iran will hold and be extended.`\
+https://www.nytimes.com/2026/06/15/business/energy-environment/iran-deal-oil-natural-gas.html
+
+**SpaceX’s Stock Rises on First Full Day of Trading**\
+`After notching big gains on its debut on Friday, the company’s shares jumped again on Monday.`\
+https://www.nytimes.com/2026/06/15/business/spacex-stock.html
+
+**Fox to Acquire Roku, Joining the Battle for the Living Room**\
+`The $22 billion deal will bolster Fox Corp.’s efforts to reach consumers on streaming platforms.`\
+https://www.nytimes.com/2026/06/15/business/fox-roku-acquisition-streaming-media.html
+
+**Read Will Scharf’s Confidential Habeas Corpus Memo**\
+`Will Scharf, the White House staff secretary, wrote a secret memo to Susie Wiles, the White House chief of staff, outlining his concerns about suspending habeas rights for unauthorized immigrants.`\
+https://www.nytimes.com/interactive/2026/06/15/us/politics/trump-miller-habeas-corpus.html
+
+**Read Will Scharf’s Confidential Insurrection Act Memo**\
+`Will Scharf, the White House staff secretary, wrote a secret memo to Susie Wiles, the White House chief of staff, warning that invoking the Insurrection Act risked major legal battles.`\
+https://www.nytimes.com/interactive/2026/06/15/us/politics/trump-miller-insurrection-act.html
+
+**Russian Attack on Kyiv Damages Historic Orthodox Cathedral**\
+`A historic cathedral at one of Ukraine’s holiest sites burned on Monday after a large-scale Russian missile and drone attack on Kyiv.`\
+https://www.nytimes.com/video/world/europe/100000010967495/russia-kyiv-attack-orthodox-cathedral.html
+
+**Global Markets Rally on Iran Peace Hopes**\
+`A framework agreement could be signed later this week, but details are scarce. Still, investors are cheering the potential breakthrough.`\
+https://www.nytimes.com/2026/06/15/business/dealbook/trump-iran-peace-rally.html
+
+****\
+`tktktkt`\
+https://www.nytimes.com/video/embedded/business/100000010967708/15visualUploader-13306.html
+
 **The ‘No Kings’ Protest Killing With a Complicated Twist**\
 `A gunman believed he was defending the crowd. He killed an innocent bystander. Should he be convicted of a crime?`\
 https://www.nytimes.com/2026/06/15/us/no-kings-protest-shooting.html
