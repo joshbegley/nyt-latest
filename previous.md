@@ -70,7 +70,7 @@ https://www.nytimes.com/2026/06/15/business/china-oil-iran.html
 `The U.S. men’s national soccer team had a battle to secure Folarin Balogun’s representation.`\
 https://www.nytimes.com/2026/06/15/podcasts/balogun-the-usmnt-hero-and-world-cup-empty-seats.html
 
-**On the Nuclear Issue, Each Side Finds a Way to Claim Victory**\
+**U.S. and Iran Find Ways to Claim Victory on the Nuclear Issue**\
 `President Trump said Iran had promised to suspend enriching uranium, but it is unclear for how long.`\
 https://www.nytimes.com/2026/06/15/world/middleeast/nuclear-iran-united-states.html
 
@@ -106,13 +106,13 @@ https://www.nytimes.com/2026/06/15/opinion/fathers-day-fatherhood.html
 `President Trump has long been at odds with European leaders over trade, Ukraine and NATO, but he has lashed out in recent weeks over their refusal to support the U.S. war with Iran.`\
 https://www.nytimes.com/2026/06/15/us/politics/trump-group-of-7-summit.html
 
-**How a Book Editor and Jazz Musician Lives on $55,000 in West Harlem**\
-`Frugality is a family tradition for Ruby Pucillo, but it is one that is difficult to maintain as a 20-something with more than half of her income going to rent.`\
-https://www.nytimes.com/interactive/2026/06/15/nyregion/nyc-budgeting-affordability-pucillo.html
-
 **Your Summer 2026 Politics Quiz Is Here**\
 `Ease into the summer with the latest Gail Collins politics quiz.`\
 https://www.nytimes.com/interactive/2026/06/15/opinion/contributors/15collins-quiz-interactive.html
+
+**How a Book Editor and Jazz Musician Lives on $55,000 in West Harlem**\
+`Frugality is a family tradition for Ruby Pucillo, but it is one that is difficult to maintain as a 20-something with more than half of her income going to rent.`\
+https://www.nytimes.com/interactive/2026/06/15/nyregion/nyc-budgeting-affordability-pucillo.html
 
 **In New Luxury Kitchens, Everything Is Hidden**\
 `Camouflaging the fridge is just the beginning for high-end kitchens.`\
@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/06/15/us/elections/alabama-election-data-centers-so
 `A reader wants to know if the denim trend wagon will ever stop.`\
 https://www.nytimes.com/2026/06/15/fashion/jeans.html
 
-**The ‘No Kings’ Protest Killing With a Novel Legal Twist**\
+**The ‘No Kings’ Protest Killing With a Complicated Twist**\
 `A gunman believed he was defending the crowd. He killed an innocent bystander. Should he be convicted of a crime?`\
 https://www.nytimes.com/2026/06/15/us/no-kings-protest-shooting.html
 

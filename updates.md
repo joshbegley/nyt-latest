@@ -1,3 +1,11 @@
+**U.S. and Iran Find Ways to Claim Victory on the Nuclear Issue**\
+`President Trump said Iran had promised to suspend enriching uranium, but it is unclear for how long.`\
+https://www.nytimes.com/2026/06/15/world/middleeast/nuclear-iran-united-states.html
+
+**The ‘No Kings’ Protest Killing With a Complicated Twist**\
+`A gunman believed he was defending the crowd. He killed an innocent bystander. Should he be convicted of a crime?`\
+https://www.nytimes.com/2026/06/15/us/no-kings-protest-shooting.html
+
 **Israel Counts the Ways That Netanyahu’s Iran Strategy Failed**\
 `The U.S.-Iran framework agreement appears to omit some of the most important provisions that Israel wanted.`\
 https://www.nytimes.com/2026/06/15/world/middleeast/israel-counts-the-ways-that-netanyahus-iran-strategy-failed.html
