@@ -23,7 +23,7 @@ https://www.nytimes.com/es/2026/06/15/espanol/mundo/hijo-princesa-noruega-violac
 https://www.nytimes.com/video/world/middleeast/100000010967572/displaced-lebanese-families-warned-not-to-return-home.html
 
 **Trump’s UFC Fight Night Was as Absurd as Promised**\
-`Trump’s birthday fight night on the White House lawn was an absurd spectacle, yes, but an ominous one as well.`\
+`American dignity, down for the count.`\
 https://www.nytimes.com/2026/06/15/opinion/trump-ufc-fight.html
 
 **Kennedy Seeks to Expedite Appeal of Ruling That Blocked His Vaccine Policies**\
@@ -46,7 +46,7 @@ https://www.nytimes.com/2026/06/15/opinion/knicks-nba-champions.html
 `El evento de la UFC realizado el domingo por la noche en el jardín sur de la Casa Blanca fue un espectáculo mediático sin precedentes en la historia de la presidencia estadounidense.`\
 https://www.nytimes.com/es/2026/06/15/espanol/estados-unidos/trump-ufc-lucha-cumpleanos.html
 
-**The Look of Patriotism at Trump’s U.F.C. Fight**\
+**The Look of Patriotism at Trump’s UFC Fight**\
 `From the athletes to the Octagon Girls, the Freedom 250 Flag Day event was a fashion show in red, white and blue.`\
 https://www.nytimes.com/2026/06/15/style/fashion-ufc-fight-trump-white-house.html
 
