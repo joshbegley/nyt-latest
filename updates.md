@@ -1,3 +1,7 @@
+**Many Iranians Express Relief Over Agreement to End the War**\
+`After enduring months of conflict, ordinary people in Iran were relieved to hear about the deal. Opposition groups were disappointed.`\
+https://www.nytimes.com/2026/06/15/world/middleeast/iran-reaction-cease-fire-deal.html
+
 **Las Culturistas Culture Awards and 6 More Things to Watch on TV This Week**\
 `Bowen Yang and Matt Rogers host their pop culture award show, and “Summer House” airs a surprise episode.`\
 https://www.nytimes.com/2026/06/15/arts/television/las-culturistas-culture-awards.html
