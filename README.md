@@ -1,3 +1,7 @@
+**London Man Suspected in 2017 Shoving of a Woman Into Bus Path Is Arrested**\
+`The case had remained unresolved since May 2017, when a woman was sent tumbling into a bus lane on Putney Bridge. She escaped uninjured after the bus driver swerved.`\
+https://www.nytimes.com/2026/06/15/world/europe/london-jogger-shoved-bus-arrest.html
+
 **Un recorrido por el interminable conflicto armado en Colombia**\
 `Diez años después de un acuerdo de paz histórico, los grupos armados están desatando una violencia mortal, combinando el combate en la selva con la nueva guerra de drones.`\
 https://www.nytimes.com/es/2026/06/15/espanol/america-latina/colombia-guerra-conflicto-drogas.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/15/us/politics/trump-group-of-7-summit.html
 **Your Summer 2026 Politics Quiz Is Here**\
 `Ease into the summer with the latest Gail Collins politics quiz.`\
 https://www.nytimes.com/interactive/2026/06/15/opinion/contributors/15collins-quiz-interactive.html
-
-**How a Book Editor and Jazz Musician Lives on $55,000 in West Harlem**\
-`Frugality is a family tradition for Ruby Pucillo, but it is one that is difficult to maintain as a 20-something with more than half of her income going to rent.`\
-https://www.nytimes.com/interactive/2026/06/15/nyregion/nyc-budgeting-affordability-pucillo.html
 
