@@ -1,3 +1,11 @@
+**Trump Lost The War He Started In Iran**\
+`The United States is emerging weaker — militarily, diplomatically and economically — than at the start of the war.`\
+https://www.nytimes.com/2026/06/15/opinion/-trump-lost-war-iran.html
+
+**U.S. and Iran Sign a Framework Deal, Leaving Major Issues for Future Talks**\
+`U.S. and Iranian officials said the deal included a 60-day cease-fire to pave the way for negotiations toward a final peace agreement and talks on Iran’s nuclear program.`\
+https://www.nytimes.com/2026/06/15/world/middleeast/us-iran-framework-ceasefire-deal.html
+
 **14-Year-Old Is Charged With Armed Robbery of Boston Lemonade Stand**\
 `A cash box containing about $80 was stolen from two siblings in Boston during the robbery, which occurred in broad daylight, the police and family members said.`\
 https://www.nytimes.com/2026/06/15/us/lemonade-stand-armed-robbery-arrest-boston.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/es/2026/06/15/espanol/mundo/eeuu-iran-acuerdo.html
 **In France, Justice System Faces Public Anger After 11-Year-Old Girl’s Killing**\
 `Protests have erupted across France after authorities revealed that a man accused of kidnapping Lyhanna Rameau Bernard, a French schoolgirl found dead this month, had previously been flagged to law enforcement.`\
 https://www.nytimes.com/2026/06/15/world/europe/france-lyhanna-protests.html
-
-**Gulf Countries Confront Questions About Relying on U.S. for Protection**\
-`Iran targeted Bahrain, Qatar, the United Arab Emirates and other American allies in the Middle East during the war, harming their economies and military sectors.`\
-https://www.nytimes.com/2026/06/15/world/middleeast/gulf-iran-war-us.html
-
-**A Brilliant 15-Minute Meal Built on Just a Handful of Ingredients**\
-`That’s Kay Chun’s roasted salmon with peas and radishes, a five-star recipe with over 3,000 reviews.`\
-https://www.nytimes.com/2026/06/15/dining/a-brilliant-15-minute-meal-built-on-just-a-handful-of-ingredients.html
 
