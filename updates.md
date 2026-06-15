@@ -1,3 +1,11 @@
+**Global Markets Rally on Iran Peace Hopes**\
+`A framework agreement could be signed later this week, but details are scarce. Still, investors are cheering the potential breakthrough.`\
+https://www.nytimes.com/2026/06/15/business/dealbook/trump-iran-peace-rally.html
+
+****\
+`tktktkt`\
+https://www.nytimes.com/video/embedded/business/100000010967708/15visualUploader-13306.html
+
 **U.K. Ban on Pro-Palestinian Protest Group Is Lawful, Court of Appeal Rules**\
 `The decision overturned a lower-court ruling that found that banning Palestine Action as a terrorist group had breached free speech rights.`\
 https://www.nytimes.com/2026/06/15/world/europe/uk-palestine-action-ban-appeal.html

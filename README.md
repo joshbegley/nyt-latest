@@ -1,3 +1,7 @@
+**Russian Attack on Kyiv Damages Historic Orthodox Cathedral**\
+`A historic cathedral at one of Ukraine’s holiest sites burned on Monday after a large-scale Russian missile and drone attack on Kyiv.`\
+https://www.nytimes.com/video/world/europe/100000010967495/russia-kyiv-attack-orthodox-cathedral.html
+
 **Global Markets Rally on Iran Peace Hopes**\
 `A framework agreement could be signed later this week, but details are scarce. Still, investors are cheering the potential breakthrough.`\
 https://www.nytimes.com/2026/06/15/business/dealbook/trump-iran-peace-rally.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/15/t-magazine/us-utopia-art-thomas-cole.html
 **An Oral History of Casa de Estrogen, L.A.’s Haven for Queer, Feminist Art**\
 `How one apartment building in L.A.’s Koreatown became a haven for queer, feminist art in the 1990s and beyond.`\
 https://www.nytimes.com/2026/06/15/t-magazine/casa-de-estrogen-jenny-shimizu-catherine-opie.html
-
-**To Toast America’s Birthday, They Blended Bourbon From Every State**\
-`United States of Bourbon, the result of a Vermont couple’s many road trips, is just one of several special whiskeys marking the 250th.`\
-https://www.nytimes.com/2026/06/15/dining/drinks/united-states-of-bourbon-blend-lost-lantern.html
 

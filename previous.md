@@ -1,3 +1,11 @@
+**Global Markets Rally on Iran Peace Hopes**\
+`A framework agreement could be signed later this week, but details are scarce. Still, investors are cheering the potential breakthrough.`\
+https://www.nytimes.com/2026/06/15/business/dealbook/trump-iran-peace-rally.html
+
+****\
+`tktktkt`\
+https://www.nytimes.com/video/embedded/business/100000010967708/15visualUploader-13306.html
+
 **U.K. Ban on Pro-Palestinian Protest Group Is Lawful, Court of Appeal Rules**\
 `The decision overturned a lower-court ruling that found that banning Palestine Action as a terrorist group had breached free speech rights.`\
 https://www.nytimes.com/2026/06/15/world/europe/uk-palestine-action-ban-appeal.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/15/t-magazine/casa-de-estrogen-jenny-shimizu-cat
 **To Toast America’s Birthday, They Blended Bourbon From Every State**\
 `United States of Bourbon, the result of a Vermont couple’s many road trips, is just one of several special whiskeys marking the 250th.`\
 https://www.nytimes.com/2026/06/15/dining/drinks/united-states-of-bourbon-blend-lost-lantern.html
-
-**Millions of Women Are Left Out of Menopause’s Moment**\
-`Women who can’t take hormone therapy because of breast cancer or other diseases say they are deeply frustrated.`\
-https://www.nytimes.com/2026/06/15/well/menopause-hormone-therapy-breast-cancer.html
-
-**Inside Colombia’s Never-Ending Drug War**\
-`Ten years after a landmark peace deal, armed groups are wreaking deadly violence, blending jungle combat with new drone warfare.`\
-https://www.nytimes.com/2026/06/15/world/americas/colombia-drug-war-violence-petro.html
 
