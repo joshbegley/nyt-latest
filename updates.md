@@ -1,3 +1,11 @@
+**Washington Has Been Carefully Planned for Two Centuries. Now Trump Has His Own Designs.**\
+`The city is unlike any in America for its accumulation of intricate details, a whole that is a work of civic art.`\
+https://www.nytimes.com/interactive/2026/06/15/upshot/trump-lenfant-dc.html
+
+**Seth Rogen Remembers Catherine O’Hara**\
+`Seth Rogen worked with the late actress Catherine O’Hara on his show “The Studio.” On “The Interview,” he recalled her influence on his work and how much she was missed when she died this year.`\
+https://www.nytimes.com/video/podcasts/100000010969361/seth-rogen-remembers-catherine-ohara.html
+
 **‘Everybody Lost in this War’: 3 Opinion Writers Dissect the Iran Deal**\
 `Was the Iran war worth it — and will the latest agreement even stick?`\
 https://www.nytimes.com/2026/06/15/opinion/iran-deal-experts.html
