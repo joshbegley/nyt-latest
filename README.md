@@ -1,3 +1,7 @@
+**Trump Hosts U.F.C. Event at the White House**\
+`President Trump turned 80 on Sunday and celebrated with a $60 million Ultimate Fighting Championship event at the White House.`\
+https://www.nytimes.com/video/us/100000010967377/trump-ufc-white-house.html
+
 **U.S. and Iran Reach Framework for Peace**\
 `The United States and Iran reached a framework for peace on Sunday. Trump said the agreement would reopen the Strait of Hormuz after a monthslong blockade.`\
 https://www.nytimes.com/video/world/middleeast/100000010967290/iran-us-peace-deal.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/14/books/jane-yolen-dead.html
 **1 Teen Shot and 4 People Stabbed Near MSG During Knicks Celebration**\
 `More than a dozen people were also arrested and several school buses were set on fire after the Knicks defeated the San Antonio Spurs in Game 5 of the N.B.A. finals.`\
 https://www.nytimes.com/2026/06/14/nyregion/knicks-nba-celebrations-msg-nyc-shooting.html
-
-**Bay Area Faces Flooding Amid Highest Summer Tide, Forecasters Warn**\
-`Water levels are expected to be high enough to challenge or exceed the current summer tide record of 1.7 feet above normal, set in July 2022, forecasters said.`\
-https://www.nytimes.com/2026/06/14/weather/bay-area-summer-high-tides.html
 
 **U.S. and Iran Reach Framework for Peace**\
 `The deal was expected to open the Strait of Hormuz and lift the U.S. naval blockade on Iranian ports. But it would leave the thorniest nuclear issues for another day.`\

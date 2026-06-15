@@ -1,3 +1,11 @@
+**U.S. and Iran Reach Framework for Peace**\
+`The United States and Iran reached a framework for peace on Sunday. Trump said the agreement would reopen the Strait of Hormuz after a monthslong blockade.`\
+https://www.nytimes.com/video/world/middleeast/100000010967290/iran-us-peace-deal.html
+
+**Son of Norway’s Crown Princess Is Convicted of Rape**\
+`Marius Borg Hoiby was sentenced to four years in prison. He stood trial as his mother came under pressure over her ties to Jeffrey Epstein.`\
+https://www.nytimes.com/2026/06/15/world/europe/marius-borg-hoiby-verdict-norway.html
+
 **A 80 años de la Segunda Guerra Mundial, Alemania y Japón se rearman**\
 `Berlín y Tokio fueron aliados en la década de 1940, con resultados desastrosos. Ahora vuelven a unir fuerzas.`\
 https://www.nytimes.com/es/2026/06/15/espanol/mundo/alemania-japon-rearme.html
