@@ -1,3 +1,7 @@
+**14-Year-Old Is Charged With Armed Robbery of Boston Lemonade Stand**\
+`A cash box containing about $80 was stolen from two siblings in Boston during the robbery, which occurred in broad daylight, the police and family members said.`\
+https://www.nytimes.com/2026/06/15/us/lemonade-stand-armed-robbery-arrest-boston.html
+
 **Dan Sullivan Namesake Is Disqualified From Alaska Senate Ballot**\
 `Republicans had accused Democrats of attempting to confuse voters by boosting a candidate with the same name as the incumbent Republican senator.`\
 https://www.nytimes.com/2026/06/15/us/politics/dan-sullivan-alaska-senate.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/15/world/middleeast/gulf-iran-war-us.html
 **A Brilliant 15-Minute Meal Built on Just a Handful of Ingredients**\
 `That’s Kay Chun’s roasted salmon with peas and radishes, a five-star recipe with over 3,000 reviews.`\
 https://www.nytimes.com/2026/06/15/dining/a-brilliant-15-minute-meal-built-on-just-a-handful-of-ingredients.html
-
-**Why the U.S.-Iran Deal Might Work, and Why It Might Not**\
-`For all of the cautious optimism surrounding the framework agreement, some of the toughest issues lie ahead, and the deal could still fall apart.`\
-https://www.nytimes.com/2026/06/15/world/middleeast/us-iran-deal-strait-weapons-israel.html
 
