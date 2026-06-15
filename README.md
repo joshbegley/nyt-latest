@@ -1,3 +1,7 @@
+**What We Know About the Fatal Crash of a Skydiving Plane in Missouri**\
+`All 12 people aboard the aircraft died on Sunday when the plane crashed shortly after takeoff near Kansas City.`\
+https://www.nytimes.com/2026/06/15/us/what-we-know-skydiving-plane-crash.html
+
 **Will SpaceX Fortunes Trickle Down to This Texas Town?**\
 `Elon Musk built a huge complex outside the city of Bastrop, population 14,000. Its residents now wonder what the historic SpaceX initial public offering might mean for them.`\
 https://www.nytimes.com/2026/06/15/business/spacex-ipo-trickle-down-bastrop.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/15/podcasts/the-daily/us-and-iran-cease-fire-agr
 **NYT Connections Answers for June 16, 2026**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, June 16, 2026.`\
 https://www.nytimes.com/2026/06/15/crosswords/connections-companion-1101.html
-
-**NYT Strands Hints for June 16, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, June 16, 2026.`\
-https://www.nytimes.com/2026/06/15/crosswords/strands-sidekick-835.html
 

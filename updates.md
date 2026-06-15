@@ -1,3 +1,11 @@
+**The Knicks Sprinkle Their Magic Over New York**\
+`Readers express joy over the New York Knicks’ N.B.A. championship. Also: The fight spectacle on the South Lawn of the White House.`\
+https://www.nytimes.com/2026/06/15/opinion/knicks-nba-champions.html
+
+**SpaceX’s Stock Surges on First Full Day of Trading**\
+`The company’s shares jumped on Monday, and executives announced that they had raised even more money in an already record-breaking initial offering.`\
+https://www.nytimes.com/2026/06/15/business/spacex-stock.html
+
 **Will SpaceX Fortunes Trickle Down to This Texas Town?**\
 `Elon Musk built a huge complex outside the city of Bastrop, population 14,000. Its residents now wonder what the historic SpaceX initial public offering might mean for them.`\
 https://www.nytimes.com/2026/06/15/business/spacex-ipo-trickle-down-bastrop.html
