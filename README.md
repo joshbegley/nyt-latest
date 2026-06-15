@@ -1,3 +1,7 @@
+**Read Will Scharf’s Confidential Habeas Corpus Memo**\
+`Will Scharf, the White House staff secretary, wrote a secret memo to Susie Wiles, the White House chief of staff, outlining his concerns about suspending habeas rights for unauthorized immigrants.`\
+https://www.nytimes.com/interactive/2026/06/15/us/politics/trump-miller-habeas-corpus.html
+
 **Read Will Scharf’s Confidential Insurrection Act Memo**\
 `Will Scharf, the White House staff secretary, wrote a secret memo to Susie Wiles, the White House chief of staff, warning that invoking the Insurrection Act risked major legal battles.`\
 https://www.nytimes.com/interactive/2026/06/15/us/politics/trump-miller-insurrection-act.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/15/t-magazine/fairer-art-world-ideas-funding.htm
 **A History of American Utopia in 10 Acts**\
 `Exploring some of the significant experiments that have best captured the country’s idealistic spirit.`\
 https://www.nytimes.com/2026/06/15/t-magazine/utopian-movements-shakers-civil-rights.html
-
-**American Utopia: Why Artists Can’t Stop Imagining a Better World**\
-`T’s annual Art issue explores how the idea of a good if elusive place has inspired great art, and vice versa.`\
-https://www.nytimes.com/2026/06/15/t-magazine/us-utopia-art-thomas-cole.html
 
