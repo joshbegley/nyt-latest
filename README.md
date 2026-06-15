@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/06/15/us/lemonade-stand-armed-robbery-arrest-boston
 `Republicans had accused Democrats of attempting to confuse voters by boosting a candidate with the same name as the incumbent Republican senator.`\
 https://www.nytimes.com/2026/06/15/us/politics/dan-sullivan-alaska-senate.html
 
-**‘We Cannot Trust Any Iranian Promises’: 3 Opinion Writers Dissect the Iran Deal**\
+**‘Everybody Lost in this War’: 3 Opinion Writers Dissect the Iran Deal**\
 `Was the Iran war worth it — and will the latest agreement even stick?`\
 https://www.nytimes.com/2026/06/15/opinion/iran-deal-experts.html
 
