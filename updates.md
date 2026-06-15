@@ -1,3 +1,7 @@
+**U.S. and Iran Reach Agreement to Reopen Strait and Begin Nuclear Talks**\
+`The accord halts hostilities in the war that began in February but leaves unresolved the critical issue of Iran’s nuclear program.`\
+https://www.nytimes.com/2026/06/14/world/middleeast/us-iran-deal-strait-of-hormuz.html
+
 **Trump Claims Strait Will Be ‘Permanently Toll-Free’ Under Agreement With Iran**\
 `In a call to The New York Times, President Trump praised Russia’s and China’s leaders and described Israel’s prime minister as “a very difficult guy.”`\
 https://www.nytimes.com/2026/06/14/us/politics/trump-iran-deal-strait-of-hormuz.html
