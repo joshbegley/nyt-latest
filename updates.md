@@ -1,3 +1,7 @@
+**En Israel, crece el descontento en torno al acuerdo entre EE. UU. e Irán**\
+`Israelíes de todo el espectro político dijeron que el acuerdo parece dejar sin resolver las amenazas fundamentales a la seguridad israelí que plantea Irán.`\
+https://www.nytimes.com/es/2026/06/15/espanol/mundo/israel-iran-acuerdo-paz-trump.html
+
 **Trump Praises Peace Deal Framework With Iran**\
 `On Monday, the U.S. and Iran signed a preliminary peace deal, but the terms of the agreement remained a secret. While the U.S. and Iranian officials made conflicting statements about the deal’s terms, it was clear that the deal’s immediate scope was focused primarily on ending military attacks and allowing traffic to resume through the Strait of Hormuz.`\
 https://www.nytimes.com/video/world/middleeast/100000010968894/us-trump-iran-negotiations-deal.html

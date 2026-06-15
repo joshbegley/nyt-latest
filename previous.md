@@ -1,3 +1,7 @@
+**En Israel, crece el descontento en torno al acuerdo entre EE. UU. e Irán**\
+`Israelíes de todo el espectro político dijeron que el acuerdo parece dejar sin resolver las amenazas fundamentales a la seguridad israelí que plantea Irán.`\
+https://www.nytimes.com/es/2026/06/15/espanol/mundo/israel-iran-acuerdo-paz-trump.html
+
 **Trump Praises Peace Deal Framework With Iran**\
 `On Monday, the U.S. and Iran signed a preliminary peace deal, but the terms of the agreement remained a secret. While the U.S. and Iranian officials made conflicting statements about the deal’s terms, it was clear that the deal’s immediate scope was focused primarily on ending military attacks and allowing traffic to resume through the Strait of Hormuz.`\
 https://www.nytimes.com/video/world/middleeast/100000010968894/us-trump-iran-negotiations-deal.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/15/style/fashion-ufc-fight-trump-white-house.htm
 **ICE Agent Hit by Car While Trying to Make an Arrest, Officials Say**\
 `The agent, who was injured during the incident near the Jersey Shore, opened fire. The person who was being targeted by immigration authorities fled.`\
 https://www.nytimes.com/2026/06/15/nyregion/ice-agent-hit-car-nj.html
-
-**Man Suspected in 2017 Shoving of a London Woman Into Bus Path Is Arrested**\
-`The case had remained unresolved since May 2017, when a woman was sent tumbling into a bus lane on Putney Bridge. She escaped uninjured after the bus driver swerved.`\
-https://www.nytimes.com/2026/06/15/world/europe/london-jogger-shoved-bus-arrest.html
 
