@@ -1,3 +1,7 @@
+**Deal to Reopen Hormuz Kicks Off Long Effort to Ease Energy Crisis**\
+`The pace of the recovery will depend on how confident companies are that the deal between the United States and Iran will hold and be extended.`\
+https://www.nytimes.com/2026/06/15/business/energy-environment/iran-deal-oil-natural-gas.html
+
 **SpaceX’s Stock Rises Ahead of First Full Day of Trading**\
 `After notching big gains on its debut on Friday, the company’s shares jumped again on Monday before the market opened.`\
 https://www.nytimes.com/2026/06/15/business/spacex-stock.html
