@@ -1,3 +1,11 @@
+**Two Men Found Guilty in Arson Attacks Targeting U.K. Prime Minister Keir Starmer**\
+`The men were convicted of conspiring to set fire to properties and a car linked to the prime minister after one of them was recruited on a Russian-language Telegram account.`\
+https://www.nytimes.com/2026/06/15/world/europe/starmer-fires-arson-russia-telegram.html
+
+**Supreme Court Declines to Revive Former Trump Adviser’s Lawsuit Against James Comey**\
+`The Justice Department in April agreed to pay Mr. Page, a former adviser to President Trump’s 2016 campaign, $1.25 million to settle other claims.`\
+https://www.nytimes.com/2026/06/15/us/politics/supreme-court-carter-page-lawsuit-james-comey.html
+
 **Jaded and Exhausted, Many Iranians Shrug at World Cup**\
 `The successes of Iran’s national soccer team used to be a source of celebration. Now, many Iranians can barely muster the energy to care.`\
 https://www.nytimes.com/2026/06/15/world/middleeast/iran-national-team-fans.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/15/opinion/trump-presidential-pardons.html
 **Jessie Buckley, a Liza Minnelli Tribute and More Theater to Stream**\
 `The Oscar winner and Josh O’Connor star in a National Theater production of Shakespeare’s tragedy. Other picks include Matthew López’s “The Inheritance.”`\
 https://www.nytimes.com/2026/06/15/theater/jessie-buckley-romeo-and-juliet-streaming.html
-
-**Father Dionysios Tabakis’s Drone Metal Debut**\
-`Father Dionysios Tabakis has never played a live concert, but after his first album became a word-of-mouth hit, he’ll be performing at a U.S. festival this summer.`\
-https://www.nytimes.com/2026/06/15/arts/music/father-dionysios-tabakis-paradise-metal.html
-
-**Tensions Are Rising Between States That Rely on the Colorado River**\
-`A prolonged drought means the nation’s largest reservoirs are dwindling, and litigation over access to water could lie ahead.`\
-https://www.nytimes.com/2026/06/15/climate/colorado-river-drought-states.html
 
