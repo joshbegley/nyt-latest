@@ -1,3 +1,7 @@
+**What We Know About the Fatal Crash of a Skydiving Plane in Missouri**\
+`All 12 people aboard the aircraft died on Sunday when it crashed shortly after takeoff near Kansas City.`\
+https://www.nytimes.com/2026/06/15/us/what-we-know-skydiving-plane-crash.html
+
 **Will the Iran Deal Stick?**\
 `After many false starts, this cease-fire plan could be different. That’s because the war really has become painful for both the U.S. and Iran.`\
 https://www.nytimes.com/2026/06/15/world/iran-deal-cape-verde-world-cup.html

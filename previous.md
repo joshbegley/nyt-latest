@@ -143,7 +143,7 @@ https://www.nytimes.com/2026/06/15/opinion/trump-ufc-fight.html
 https://www.nytimes.com/2026/06/15/health/childhood-vaccines-lawsuit-kennedy.html
 
 **What We Know About the Fatal Crash of a Skydiving Plane in Missouri**\
-`All 12 people aboard the aircraft died on Sunday when the plane crashed shortly after takeoff near Kansas City.`\
+`All 12 people aboard the aircraft died on Sunday when it crashed shortly after takeoff near Kansas City.`\
 https://www.nytimes.com/2026/06/15/us/what-we-know-skydiving-plane-crash.html
 
 **Will SpaceX Fortunes Trickle Down to This Texas Town?**\
