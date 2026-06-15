@@ -1,3 +1,23 @@
+**Inside the U.S.-Iran Deal, and Trump Hosts U.F.C. Fights**\
+`Plus, crafting the perfect grass for the World Cup.`\
+https://www.nytimes.com/2026/06/15/podcasts/the-headlines/us-iran-deal-ufc-fight-at-the-white-house.html
+
+**Inside Trump’s Deal With Iran**\
+`Washington and Tehran reached an agreement that paved the way for further talks to ultimately end the war. President Trump discussed it with The Times.`\
+https://www.nytimes.com/2026/06/15/podcasts/the-daily/us-and-iran-cease-fire-agreement.html
+
+**NYT Connections Answers for June 16, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, June 16, 2026.`\
+https://www.nytimes.com/2026/06/15/crosswords/connections-companion-1101.html
+
+**NYT Strands Hints for June 16, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, June 16, 2026.`\
+https://www.nytimes.com/2026/06/15/crosswords/strands-sidekick-835.html
+
+**Today’s Wordle Hints for June 16, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, June 16, 2026.`\
+https://www.nytimes.com/2026/06/15/crosswords/wordle-review-1823.html
+
 **Ukraine Is About to Take a Big Step on a Long Road Toward the European Union**\
 `Even though negotiations will begin for Ukraine to join the bloc, the path ahead is a long one.`\
 https://www.nytimes.com/2026/06/15/world/europe/ukraine-eu-membership.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/video/us/100000010967377/trump-ufc-white-house.html
 **U.S. and Iran Reach Framework for Peace**\
 `The United States and Iran reached a framework for peace on Sunday. Trump said the agreement would reopen the Strait of Hormuz after a monthslong blockade.`\
 https://www.nytimes.com/video/world/middleeast/100000010967290/iran-us-peace-deal.html
-
-**Son of Norway’s Crown Princess Is Convicted of Rape**\
-`Marius Borg Hoiby was sentenced to four years in prison. He stood trial as his mother came under pressure over her ties to Jeffrey Epstein.`\
-https://www.nytimes.com/2026/06/15/world/europe/marius-borg-hoiby-verdict-norway.html
-
-**A 80 años de la Segunda Guerra Mundial, Alemania y Japón se rearman**\
-`Berlín y Tokio fueron aliados en la década de 1940, con resultados desastrosos. Ahora vuelven a unir fuerzas.`\
-https://www.nytimes.com/es/2026/06/15/espanol/mundo/alemania-japon-rearme.html
-
-**Britain Announces Social Media Ban for Children**\
-`Prime Minister Keir Starmer said his government would bar children under 16 from social media starting in 2027. The move follows similar policies in Australia and several other countries.`\
-https://www.nytimes.com/2026/06/15/world/europe/uk-social-media-children.html
-
-**She Didn’t Live to See the Knicks Championship. She Would Have Loved It.**\
-`It’s finally the Knicks’ time. But the five-decade title drought, full of both joy and pain, was all some devoted fans were ever able to experience.`\
-https://www.nytimes.com/2026/06/15/nyregion/knicks-championship-history.html
-
-**On the Horizon: A Maritime Spectacle 10 Times the Size of Fleet Week**\
-`New York’s two-day 250th extravaganza will feature the country’s largest parade of tall ships and warships, but adds daunting logistical challenges to an already overwrought summer.`\
-https://www.nytimes.com/2026/06/15/nyregion/sail-250-nyc-ships.html
 
