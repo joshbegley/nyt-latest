@@ -1,3 +1,23 @@
+**She Didn’t Live to See the Knicks Championship. She Would Have Loved It.**\
+`It’s finally the Knicks’ time. But the five-decade title drought, full of both joy and pain, was all some devoted fans were ever able to experience.`\
+https://www.nytimes.com/2026/06/15/nyregion/knicks-championship-history.html
+
+**On the Horizon: A Maritime Spectacle 10 Times the Size of Fleet Week**\
+`New York’s two-day 250th extravaganza will feature the country’s largest parade of tall ships and warships, but adds daunting logistical challenges to an already overwrought summer.`\
+https://www.nytimes.com/2026/06/15/nyregion/sail-250-nyc-ships.html
+
+**NYT Spelling Bee Answers for June 15, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/15/crosswords/spelling-bee-forum.html
+
+**If Democrats Want to Win the House, Their Battle May Start Here**\
+`A bitterly fought Democratic primary in New York’s Hudson Valley will determine who takes on Representative Mike Lawler, one of the more vulnerable Republicans this cycle.`\
+https://www.nytimes.com/2026/06/15/nyregion/democratic-primary-ny17-hudson-valley.html
+
+**Plaintiffs in Catholic Church Abuse Case Weigh $800 Million Offer**\
+`The proposed settlement would pay $250,000 to each of the 1,300 people who have sued the Archdiocese of New York over sexual abuse claims. But for any of them to get the deal, all must agree to take it.`\
+https://www.nytimes.com/2026/06/15/nyregion/archdiocese-abuse-settlement-ny.html
+
 **Iran War Live Updates: U.S. and Tehran Agree on Framework for Peace**\
 `The deal was expected to open the Strait of Hormuz, lift the U.S. naval blockade on Iranian ports and pave the way for further talks. It did not address Iran’s nuclear program.`\
 https://www.nytimes.com/live/2026/06/15/world/iran-war-trump-us-deal
