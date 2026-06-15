@@ -1,3 +1,7 @@
+**The Look of Patriotism at Trump’s U.F.C. Fight**\
+`From the athletes to the Octagon Girls, the Freedom 250 Flag Day event was a fashion show in red, white and blue.`\
+https://www.nytimes.com/2026/06/15/style/fashion-ufc-fight-trump-white-house.html
+
 **ICE Agent Struck by Car Driven by a Person Facing Arrest, Officials Say**\
 `The agent, who was injured during the incident near the Jersey Shore, opened fire. The person who was being targeted by immigration authorities fled.`\
 https://www.nytimes.com/2026/06/15/nyregion/ice-agent-hit-car-nj.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/15/world/europe/ukraine-eu-membership.html
 **On Father’s Day, It’s Obvious That the Role of a Dad Has Changed**\
 `I’m fascinated by the fathers my brothers became.`\
 https://www.nytimes.com/2026/06/15/opinion/fathers-day-fatherhood.html
-
-**Trump Arrives for Group of 7 as Allies Rethink Their Relationship With U.S.**\
-`President Trump has long been at odds with European leaders over trade, Ukraine and NATO, but he has lashed out in recent weeks over their refusal to support the U.S. war with Iran.`\
-https://www.nytimes.com/2026/06/15/us/politics/trump-group-of-7-summit.html
 
