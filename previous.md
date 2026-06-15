@@ -8,7 +8,7 @@ https://www.nytimes.com/2026/06/15/learning/word-of-the-day-apocalyptic.html
 
 **Historic Orthodox Cathedral Burns in Russian Attack on Kyiv**\
 `A bishop reported that many holy items had been recovered from the cathedral, at the site of the Perchersk monastery, a revered place for Ukrainian and Russian Orthodox faiths.`\
-https://www.nytimes.com/2026/06/15/world/europe/ukraine-orthodox-cathedral.html
+https://www.nytimes.com/2026/06/15/world/europe/ukraine-kyiv-russia-attack-orthodox-cathedral.html
 
 **Many Iranians Express Relief Over Agreement to End the War**\
 `After enduring months of conflict, ordinary people in Iran were relieved to hear about the deal. Opposition groups were disappointed.`\

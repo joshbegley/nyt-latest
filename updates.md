@@ -1,3 +1,7 @@
+**Historic Orthodox Cathedral Burns in Russian Attack on Kyiv**\
+`A bishop reported that many holy items had been recovered from the cathedral, at the site of the Perchersk monastery, a revered place for Ukrainian and Russian Orthodox faiths.`\
+https://www.nytimes.com/2026/06/15/world/europe/ukraine-kyiv-russia-attack-orthodox-cathedral.html
+
 **5 minutos para que te enamores de Nina Simone**\
 `En una frase era capaz de pasar del susurro al rugido y su repertorio abarca estándares de jazz, canciones de protesta, blues y pop. Escucha estas 11 canciones favoritas`\
 https://www.nytimes.com/es/2026/06/15/espanol/cultura/5-minutos-nina-simone.html
