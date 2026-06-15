@@ -107,7 +107,7 @@ https://www.nytimes.com/2026/06/15/business/energy-environment/iran-deal-oil-nat
 https://www.nytimes.com/2026/06/15/business/spacex-stock.html
 
 **Fox to Acquire Roku, Joining the Battle for the Living Room**\
-`The $22 billion deal will bolster Fox Corp.’s efforts to reach consumers on streaming platforms.`\
+`The $22 billion deal is one of the biggest moves yet by Lachlan Murdoch, who took over for his father as chairman of Fox in 2023.`\
 https://www.nytimes.com/2026/06/15/business/fox-roku-acquisition-streaming-media.html
 
 **Read Will Scharf’s Confidential Habeas Corpus Memo**\
