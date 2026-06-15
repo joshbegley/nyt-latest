@@ -1,3 +1,11 @@
+**In France, Justice System Faces Public Anger After 11-Year-Old Girl’s Killing**\
+`Protests have erupted across France after authorities revealed that a man accused of kidnapping Lyhanna Rameau Bernard, a French schoolgirl found dead this month, had previously been flagged to law enforcement.`\
+https://www.nytimes.com/2026/06/15/world/europe/france-lyhanna-protests.html
+
+**Gulf Countries Confront New Questions About Relying on U.S. Protection**\
+`Iran targeted Bahrain, Qatar, the United Arab Emirates and other American allies in the Middle East during the war, harming their economies and military sectors.`\
+https://www.nytimes.com/2026/06/15/world/middleeast/gulf-iran-war-us.html
+
 **A Brilliant 15-Minute Meal Built on Just a Handful of Ingredients**\
 `That’s Kay Chun’s roasted salmon with peas and radishes, a five-star recipe with over 3,000 reviews.`\
 https://www.nytimes.com/2026/06/15/dining/a-brilliant-15-minute-meal-built-on-just-a-handful-of-ingredients.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/15/magazine/elder-care-parent-abuse.html
 **Dakota Johnson Finds a Buyer for Her Los Angeles House**\
 `The actress is finalizing the sale just days after the home was listed. Chris Evans lowers the price on his house, and Bill Koch is set to auction off his estate.`\
 https://www.nytimes.com/2026/06/15/realestate/dakota-johnson-chris-evans-home-sales.html
-
-**The Best TV Shows of 2026, So Far**\
-`The first half of the year had few big, buzzy hits. But there were some nice surprises (“Widow’s Bay”) and returning favorites (“The Comeback”).`\
-https://www.nytimes.com/2026/06/15/arts/television/best-tv-shows-2026-so-far.html
-
-**How Ukraine Uses A.I. to Knock Deadly Russian Drones Out of the Skies**\
-`Interceptors show Ukraine’s embrace of autonomous technologies trained on immense troves of wartime data.`\
-https://www.nytimes.com/2026/06/15/world/europe/ukraine-russia-war-ai.html
 
