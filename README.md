@@ -1,3 +1,7 @@
+**What Is Contemporary Dance? Lincoln Center Invests in Finding Out**\
+`Thanks to a $50 million grant, a new festival has been born. Kyle Abraham helps to curate the first edition, which is part of the center’s Summer of Dance.`\
+https://www.nytimes.com/2026/06/15/arts/dance/lincoln-center-summer-of-dance-contemporary-festival.html
+
 **Sheet Pan Tarte Tatin**\
 `This large-format tarte Tatin is nontraditional — it’s made almost entirely in the oven in a jellyroll pan rather than getting cooked on the stovetop in a skillet — but the flavor combination of caramel, apples and buttery pastry is classic.`\
 https://www.nytimes.com/video/dining/100000010964832/sheet-pan-tarte-tatin.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/15/dining/best-restaurants-dallas.html
 **Millennial Food Obsession Is a Joke. John Early Gets It.**\
 `In his new film, “Maddie’s Secret,” the comedian goes all in on earnestness, playing a cooking content creator.`\
 https://www.nytimes.com/2026/06/15/dining/john-early-maddies-secret-food.html
-
-**How Solvers Keep Their Longest Wordle and Crossword Streaks**\
-`Meet the players who persist through childbirth or intense athletic feats to ensure they solve Wordle and other puzzles every day.`\
-https://www.nytimes.com/2026/06/15/crosswords/streaks-breaking-keeping.html
 
