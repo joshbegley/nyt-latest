@@ -1,3 +1,11 @@
+**Oliver Tree habría fallecido en una colisión de helicópteros en Brasil**\
+`Las autoridades dijeron que al menos seis personas habían muerto al estrellarse dos helicópteros en Río de Janeiro el domingo.`\
+https://www.nytimes.com/es/2026/06/15/espanol/america-latina/choque-helicopteros-brasil-oliver-tree.html
+
+**With Its Biggest E.U. Opponent Gone, Ukraine Is Advancing in Its Bid to Join**\
+`Even though negotiations will begin for Ukraine to join the bloc, the path ahead is a long one.`\
+https://www.nytimes.com/2026/06/15/world/europe/ukraine-eu-membership.html
+
 **Siddhartha Mukherjee: Can A.I. Share Our Need to Belong?**\
 `The source code of human belonging has seemingly drifted. How can we ensure that artificial intelligence doesn’t get similarly corrupted?`\
 https://www.nytimes.com/2026/06/15/special-series/siddhartha-mukherjee-artificial-intelligence.html

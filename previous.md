@@ -1,3 +1,7 @@
+**Oliver Tree habría fallecido en una colisión de helicópteros en Brasil**\
+`Las autoridades dijeron que al menos seis personas habían muerto al estrellarse dos helicópteros en Río de Janeiro el domingo.`\
+https://www.nytimes.com/es/2026/06/15/espanol/america-latina/choque-helicopteros-brasil-oliver-tree.html
+
 **Siddhartha Mukherjee: Can A.I. Share Our Need to Belong?**\
 `The source code of human belonging has seemingly drifted. How can we ensure that artificial intelligence doesn’t get similarly corrupted?`\
 https://www.nytimes.com/2026/06/15/special-series/siddhartha-mukherjee-artificial-intelligence.html
@@ -102,7 +106,7 @@ https://www.nytimes.com/2026/06/15/crosswords/strands-sidekick-835.html
 `Scroll down for hints and conversation about the puzzle for Tuesday, June 16, 2026.`\
 https://www.nytimes.com/2026/06/15/crosswords/wordle-review-1823.html
 
-**Ukraine Is About to Take a Big Step on a Long Road Toward the European Union**\
+**With Its Biggest E.U. Opponent Gone, Ukraine Is Advancing in Its Bid to Join**\
 `Even though negotiations will begin for Ukraine to join the bloc, the path ahead is a long one.`\
 https://www.nytimes.com/2026/06/15/world/europe/ukraine-eu-membership.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/15/us/politics/trump-scharf-habeas-corpus-insurr
 **A Three-Step Plan to Undo Trump’s Assault on Democracy**\
 `Local elections, and local outreach, can be crucial for stopping gerrymanders.`\
 https://www.nytimes.com/2026/06/15/opinion/trump-democracy-plan.html
-
-**In Alabama, Opposition to Renewable Solar Energy Joins a Data Center Battle**\
-`Tuesday’s runoff for a slot on the Alabama Public Service Commission has a familiar ring to it, with talk of data centers and electricity costs. But in a southern twist, solar power has joined the list of villains.`\
-https://www.nytimes.com/2026/06/15/us/elections/alabama-election-data-centers-solar-power.html
 
