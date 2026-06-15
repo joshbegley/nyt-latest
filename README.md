@@ -8,7 +8,7 @@ https://www.nytimes.com/2026/06/15/world/middleeast/israel-netanyahus-iran-strat
 
 **U.S.-Iran Agreement Leaves Lebanon’s Fate Murky**\
 `Iran claimed the deal would extend to fighting in Lebanon but no details of the agreement were made public and Israel said its forces would remain there.`\
-https://www.nytimes.com/2026/06/15/world/middleeast/us-iran-agreement-leaves-lebanons-fate-murky.html
+https://www.nytimes.com/2026/06/15/world/middleeast/us-iran-agreement-lebanon.html
 
 **Deal to Reopen Hormuz Kicks Off Long Effort to Ease Energy Crisis**\
 `The pace of the recovery will depend on how confident companies are that the deal between the United States and Iran will hold and be extended.`\
