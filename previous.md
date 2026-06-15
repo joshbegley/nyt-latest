@@ -1,3 +1,7 @@
+**Britain Announces Social Media Ban for Children**\
+`Prime Minister Keir Starmer said his government would introduce legislation to bar children under 16 from social media. The move follows similar policies in Australia and several other countries.`\
+https://www.nytimes.com/2026/06/15/world/europe/uk-social-media-children.html
+
 **She Didn’t Live to See the Knicks Championship. She Would Have Loved It.**\
 `It’s finally the Knicks’ time. But the five-decade title drought, full of both joy and pain, was all some devoted fans were ever able to experience.`\
 https://www.nytimes.com/2026/06/15/nyregion/knicks-championship-history.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/14/dining/for-the-best-strawberry-pie-roast-thos
 **The Knicks as Religious Experience**\
 `Knicks fans are waking up from the hangover of a really good trip. One that, some said, let them see God.`\
 https://www.nytimes.com/2026/06/14/briefing/knicks-religion-brunson-new-york.html
-
-**Harissa Apricot Chicken, Done in 20 Minutes**\
-`The word “perfect” turns up a lot in the comments on this new spicy-sweet dish.`\
-https://www.nytimes.com/2026/06/14/dining/harissa-apricot-chicken-done-in-20-minutes.html
 
 **U.S. and Iran Reach Framework for Peace**\
 `The deal was expected to open the Strait of Hormuz and lift the U.S. naval blockade on Iranian ports. But it would leave the thorniest nuclear issues for another day.`\

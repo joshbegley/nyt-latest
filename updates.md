@@ -1,3 +1,7 @@
+**Britain Announces Social Media Ban for Children**\
+`Prime Minister Keir Starmer said his government would introduce legislation to bar children under 16 from social media. The move follows similar policies in Australia and several other countries.`\
+https://www.nytimes.com/2026/06/15/world/europe/uk-social-media-children.html
+
 **She Didn’t Live to See the Knicks Championship. She Would Have Loved It.**\
 `It’s finally the Knicks’ time. But the five-decade title drought, full of both joy and pain, was all some devoted fans were ever able to experience.`\
 https://www.nytimes.com/2026/06/15/nyregion/knicks-championship-history.html
