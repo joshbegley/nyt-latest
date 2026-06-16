@@ -1,3 +1,7 @@
+**Justice Dept. Considering Death Penalty for Alleged National Guard Shooter**\
+`Federal prosecutors told a judge that they were deciding whether to seek the death penalty if Rahmanullah Lakanwal is convicted of killing a National Guard specialist.`\
+https://www.nytimes.com/2026/06/16/us/politics/doj-national-guard-shooting.html
+
 **How a Deal to End the War in Iran Could Affect Energy Prices**\
 `The latest on a tentative deal to end the war in Iran, the Justice Department tries to stop a lawsuit against Elon Musk’s A.I. company and more climate news.`\
 https://www.nytimes.com/2026/06/16/climate/iran-war-energy-prices.html

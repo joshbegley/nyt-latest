@@ -1,3 +1,7 @@
+**Justice Dept. Considering Death Penalty for Alleged National Guard Shooter**\
+`Federal prosecutors told a judge that they were deciding whether to seek the death penalty if Rahmanullah Lakanwal is convicted of killing a National Guard specialist.`\
+https://www.nytimes.com/2026/06/16/us/politics/doj-national-guard-shooting.html
+
 **How a Deal to End the War in Iran Could Affect Energy Prices**\
 `The latest on a tentative deal to end the war in Iran, the Justice Department tries to stop a lawsuit against Elon Musk’s A.I. company and more climate news.`\
 https://www.nytimes.com/2026/06/16/climate/iran-war-energy-prices.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/16/world/canada/british-columbia-water-park-cult
 **Mapa: la trayectoria del potencial ciclón tropical Uno en vivo**\
 `Consulta la trayectoria probable y las horas de llegada de los vientos de Uno.`\
 https://www.nytimes.com/es/interactive/2026/06/16/espanol/tormenta-tropical-golfo-mexico.html
-
-**U.S. Charges 15 in Minneapolis With Conspiracy**\
-`Federal prosecutors in Minnesota unsealed charges against 15 people who they claim were members of two Minneapolis-based antifa groups, a far-left movement.`\
-https://www.nytimes.com/video/us/politics/100000010971407/minnesota-federal-ice-antifa-charges.html
 
