@@ -1,3 +1,7 @@
+**Taylor Swift Didn’t Marry in Rhode Island. Fans Showed Up Anyway.**\
+`Despite reports pointing to New York as a potential Swift-Kelce wedding location, Swifties still descended on Watch Hill, R.I., this past weekend, hoping for a glimpse of the singer or signs of a June 13 celebration.`\
+https://www.nytimes.com/2026/06/16/style/taylor-swifts-rhode-island-wedding.html
+
 **Carriage Horse in Central Park Died After Eating a Poisonous Plant**\
 `A preliminary report said the horse had eaten from a commonplace but toxic shrub, though rules forbid allowing horses to consume park plants.`\
 https://www.nytimes.com/2026/06/16/nyregion/carriage-horse-central-park-death-poisonous-plant.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/nyregion/100000010964454/racing-to-the-world-cup-f
 **Live 2026 Election Results: Georgia, Alabama and Oklahoma Primary and Runoff Races**\
 `See live results in key races in the June 16 primary and runoff elections.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-key-races-june-16.html
-
-**12 Injured at Cultus Lake Water Park, Possibly by Electricity, in British Columbia**\
-`Ten middle school students and two others sustained serious but not life-threatening injuries at Cultus Lake Waterpark in British Columbia, officials said.`\
-https://www.nytimes.com/2026/06/16/world/canada/british-columbia-water-park-cultus-lake-injuries.html
 

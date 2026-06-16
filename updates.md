@@ -1,3 +1,7 @@
+**Taylor Swift Didn’t Marry in Rhode Island. Fans Showed Up Anyway.**\
+`Despite reports pointing to New York as a potential Swift-Kelce wedding location, Swifties still descended on Watch Hill, R.I., this past weekend, hoping for a glimpse of the singer or signs of a June 13 celebration.`\
+https://www.nytimes.com/2026/06/16/style/taylor-swifts-rhode-island-wedding.html
+
 **Carriage Horse in Central Park Died After Eating a Poisonous Plant**\
 `A preliminary report said the horse had eaten from a commonplace but toxic shrub, though rules forbid allowing horses to consume park plants.`\
 https://www.nytimes.com/2026/06/16/nyregion/carriage-horse-central-park-death-poisonous-plant.html
