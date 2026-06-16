@@ -1,3 +1,7 @@
+**How the Kratom Industry Won Friends in the Trump Administration**\
+`A sprawling influence campaign to promote a risky drug called kratom has gained allies among top Trump administration officials. Our investigative reporter Kenneth P. Vogel explains.`\
+https://www.nytimes.com/video/us/100000010955453/how-the-kratom-industry-won-friends-in-the-trump-administration.html
+
 **Why President Trump Called Me About Iran**\
 `A day before the United States and Iran signed a framework agreement to end their monthslong war, President Trump called David E. Sanger, White House and national security correspondent for The Times, to discuss the arrangement.`\
 https://www.nytimes.com/video/us/100000010967660/why-president-trump-called-me-about-iran.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/15/us/trump-thanks-china-russia.html
 **Lawmakers Warn Trump Officials Not to Pursue Arch Project Without Congress**\
 `In a letter to Interior Secretary Doug Burgum and national parks officials, several Democrats and a Senate independent said that members of the administration could face fines and even criminal prosecution.`\
 https://www.nytimes.com/2026/06/15/us/politics/trump-triumphal-arch-congress.html
-
-**Gov. Gavin Newsom Says Trump Is Investigating Him and His Wife**\
-`Aides to Gov. Gavin Newsom of California say several people associated with the couple have been contacted by federal agents in the past week. He criticized the move as politically motivated.`\
-https://www.nytimes.com/2026/06/15/us/newsom-trump-doj-investigation.html
 
