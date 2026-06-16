@@ -1,3 +1,11 @@
+**New From ‘Serial’: ‘The Last 12 Weeks’**\
+`Listen to the trailer for our latest show.`\
+https://www.nytimes.com/2026/06/16/podcasts/new-podcast-serial-the-last-12-weeks.html
+
+**Why I Love the Beautiful Game: Zohran Mamdani**\
+`The New York City mayor shares his World Cup memories.`\
+https://www.nytimes.com/2026/06/16/podcasts/why-i-love-the-beautiful-game-zohran-mamdani.html
+
 **Ukraine Targets Moscow Oil Facility With Drones as G7 Leaders Meet**\
 `A day earlier, Russia bombarded Kyiv and other Ukrainian cities with missiles and drones, killing at least 11 people and damaging a holy cathedral.`\
 https://www.nytimes.com/2026/06/16/world/europe/ukraine-moscow-oil-refinery-attack-g7-summit.html
