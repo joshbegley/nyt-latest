@@ -1,3 +1,7 @@
+**Trump’s History at G7 Summits: Strained Ties and Early Exits**\
+`For as long as President Trump has been attending the annual meetings, his behavior has threatened the august decorum of the gatherings.`\
+https://www.nytimes.com/2026/06/16/world/europe/trump-g7-summit-history.html
+
 **Tell Us Why Taylor Swift’s Wedding Is Meaningful to You**\
 `For an upcoming story, we want fans to talk to us about the journey they have been on with Swift through the years and how they feel about her big day.`\
 https://www.nytimes.com/2026/06/16/arts/music/taylor-swift-wedding-readers.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/16/travel/brazil-rope-jumping-fall.html
 **Can I Break My Husband’s Restaurant Boycott?**\
 `A dispute over how to handle a cracked soup container.`\
 https://www.nytimes.com/interactive/2026/06/16/magazine/restaurant-boycott-hodgman-quiz.html
-
-**Corrections: June 16, 2026**\
-`No corrections appeared in print on Tuesday, June 16, 2026.`\
-https://www.nytimes.com/2026/06/16/pageoneplus/no-corrections-june-16-2026.html
 
 **Iran War Live Updates: U.S. and Iran Look Ahead to Next Round of Talks**\
 `Iran’s foreign minister said that new negotiations with the United States would start immediately after their preliminary deal is signed on Friday. President Trump said he hoped the conflict would soon be in the “rearview mirror.”`\

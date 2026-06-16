@@ -1,3 +1,7 @@
+**Trump’s History at G7 Summits: Strained Ties and Early Exits**\
+`For as long as President Trump has been attending the annual meetings, his behavior has threatened the august decorum of the gatherings.`\
+https://www.nytimes.com/2026/06/16/world/europe/trump-g7-summit-history.html
+
 **Tell Us Why Taylor Swift’s Wedding Is Meaningful to You**\
 `For an upcoming story, we want fans to talk to us about the journey they have been on with Swift through the years and how they feel about her big day.`\
 https://www.nytimes.com/2026/06/16/arts/music/taylor-swift-wedding-readers.html
