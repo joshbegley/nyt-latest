@@ -1,3 +1,11 @@
+**Good Luck, Kevin Warsh. You’ll Need It.**\
+`Between a surge in interest rates, increasingly restive colleagues and the demands of President Trump, the new Fed chairman, Kevin Warsh, is in a bind.`\
+https://www.nytimes.com/2026/06/16/opinion/kevin-warsh-fed-chair-interest-rates-trump.html
+
+**Red Curry Chicken and Rice Bowls**\
+`These cozy yet reviving rice bowls pair Thai red curry-stained rice with tender chicken and a citrusy slaw.`\
+https://www.nytimes.com/video/dining/100000010972523/red-curry-chicken-and-rice-bowls.html
+
 **Julia Child’s Berry Clafoutis**\
 `This recipe is for a delicately sweet dessert whose elegance should not distract from its ease (it can be made while the rest of dinner is in the oven). Make sure you have fresh berries, and serve the result warm.`\
 https://www.nytimes.com/video/dining/100000010972541/julia-childs-berry-clafoutis.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-us-house-
 **Oklahoma Corporation Commissioner Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Oklahoma primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-corporation-commissioner-primary.html
-
-**Oklahoma First Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Oklahoma primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-us-house-1-primary.html
-
-**Oklahoma Second Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Oklahoma primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-us-house-2-primary.html
 
