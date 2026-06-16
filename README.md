@@ -2,7 +2,7 @@
 `In a contest of wills, the hard men of Tehran prevailed over the vain man of Washington.`\
 https://www.nytimes.com/2026/06/16/opinion/iran-us-war-trump-cease-fire.html
 
-**‘Hockey Night in Canada,’ a Saturday Night Ritual on The CBC, Is No More**\
+**‘Hockey Night in Canada,’ a Saturday Night Ritual on the CBC, Is No More**\
 `The longtime over-the-air telecast will no longer be free after the national broadcaster, and Rogers Sportsnet, the N.H.L. rights-holder, could not agree on a sub-licensing deal.`\
 https://www.nytimes.com/2026/06/16/world/canada/hockey-night-in-canada-cbc-rogers.html
 
