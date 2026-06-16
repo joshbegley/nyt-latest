@@ -1,3 +1,11 @@
+**Maps: Tracking Potential Tropical Cyclone One**\
+`See the likely path and wind arrival times for One`\
+https://www.nytimes.com/interactive/2026/06/16/weather/texas-gulf-storm.html
+
+**Trump consideró suspender el “habeas corpus”, un derecho constitucional, a migrantes**\
+`Unos memorandos secretos revelan que la Casa Blanca debatió el año pasado limitar el derecho al “habeas corpus” de los migrantes indocumentados.`\
+https://www.nytimes.com/es/2026/06/16/espanol/estados-unidos/trump-habeas-corpus-migrantes-constitucion.html
+
 **War Hangs Over American Farmers as Fertilizer Prices Rise**\
 `The Iran war and lower crop prices have hurt makers of sulfur-based supplements. But farmers won’t skip nitrogen-based fertilizers, no matter the cost.`\
 https://www.nytimes.com/2026/06/16/business/fertilizer-farming-iran.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/06/16/opinion/ezra-klein-podcast-chris-hayes-2026.h
 **These Are the Voters Who Can Keep Democrats From Going Off the Rails**\
 `Black and other minority Democrats are a strong force for moderation in a party that is having trouble reining itself in.`\
 https://www.nytimes.com/2026/06/16/opinion/democratic-party-coalition-minority-voters.html
-
-**An Architect Opts for ‘Optimistic Modernism’ in Her Silver Lake Kitchen**\
-`Barbara Bestor fills her Los Angeles kitchen and dining room with color and vintage objects with character.`\
-https://www.nytimes.com/2026/06/16/realestate/an-architect-opts-for-optimistic-modernism-in-her-silver-lake-kitchen.html
-
-**Warsh Faces Tenuous Balancing Act in First Fed Meeting as Chairman**\
-`Elevated inflation and the specter of rate increases will greet Kevin M. Warsh in his debut as chairman of the Federal Reserve.`\
-https://www.nytimes.com/2026/06/16/business/warsh-fed-chair.html
 
 **Iran War Live Updates: U.S. and Iran Look Ahead to Next Round of Talks**\
 `Iran’s foreign minister said that new negotiations with the United States would start immediately after their preliminary deal is signed on Friday. President Trump said he hoped the conflict would soon be in the “rearview mirror.”`\

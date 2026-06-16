@@ -1,3 +1,15 @@
+**Tell Us Why Taylor Swift’s Wedding Is Meaningful to You**\
+`For an upcoming story, we want fans to talk to us about the journey they have been on with Swift through the years and how they feel about her big day.`\
+https://www.nytimes.com/2026/06/16/arts/music/taylor-swift-wedding-readers.html
+
+**New Coral Study Identifies Areas Where Reefs Are Hanging On**\
+`New research has identified areas around the world where cooler currents and other favorable conditions are helping to protect coral from the worst effects of global warming.`\
+https://www.nytimes.com/2026/06/16/climate/coral-reef-global-warming.html
+
+**U.S. Has ‘Nothing to Do’ with Ukraine War, Trump Says at G7 Summit**\
+`President Trump’s remarks underscored a new security reality for U.S. allies in Europe, who for eight decades relied on American protection.`\
+https://www.nytimes.com/2026/06/16/world/europe/trump-ukraine-war-g7.html
+
 **Maps: Tracking Potential Tropical Cyclone One**\
 `See the likely path and wind arrival times for One`\
 https://www.nytimes.com/interactive/2026/06/16/weather/texas-gulf-storm.html
@@ -177,18 +189,6 @@ https://www.nytimes.com/interactive/2026/06/16/magazine/restaurant-boycott-hodgm
 **Corrections: June 16, 2026**\
 `No corrections appeared in print on Tuesday, June 16, 2026.`\
 https://www.nytimes.com/2026/06/16/pageoneplus/no-corrections-june-16-2026.html
-
-**These Sidewalk Sheds Aren’t Eyesores**\
-`The city is moving toward more attractive sheds, diversifying from hunter green to blue and yellow.`\
-https://www.nytimes.com/2026/06/16/nyregion/sidewalk-sheds-makeover.html
-
-**Graham Platner, Jon Ossoff and the New Rules of Political Attention**\
-`Chris Hayes and Ezra Klein discuss how the Democrats are winning the battle for attention, and whether that can translate into winning elections.`\
-https://www.nytimes.com/2026/06/16/opinion/ezra-klein-podcast-chris-hayes-2026.html
-
-**These Are the Voters Who Can Keep Democrats From Going Off the Rails**\
-`Black and other minority Democrats are a strong force for moderation in a party that is having trouble reining itself in.`\
-https://www.nytimes.com/2026/06/16/opinion/democratic-party-coalition-minority-voters.html
 
 **Iran War Live Updates: U.S. and Iran Look Ahead to Next Round of Talks**\
 `Iran’s foreign minister said that new negotiations with the United States would start immediately after their preliminary deal is signed on Friday. President Trump said he hoped the conflict would soon be in the “rearview mirror.”`\

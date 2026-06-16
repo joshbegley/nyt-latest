@@ -1,3 +1,11 @@
+**Maps: Tracking Potential Tropical Cyclone One**\
+`See the likely path and wind arrival times for One`\
+https://www.nytimes.com/interactive/2026/06/16/weather/texas-gulf-storm.html
+
+**Trump consideró suspender el “habeas corpus”, un derecho constitucional, a migrantes**\
+`Unos memorandos secretos revelan que la Casa Blanca debatió el año pasado limitar el derecho al “habeas corpus” de los migrantes indocumentados.`\
+https://www.nytimes.com/es/2026/06/16/espanol/estados-unidos/trump-habeas-corpus-migrantes-constitucion.html
+
 **War Hangs Over American Farmers as Fertilizer Prices Rise**\
 `The Iran war and lower crop prices have hurt makers of sulfur-based supplements. But farmers won’t skip nitrogen-based fertilizers, no matter the cost.`\
 https://www.nytimes.com/2026/06/16/business/fertilizer-farming-iran.html
