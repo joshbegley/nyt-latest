@@ -1,3 +1,7 @@
+**Here Are the 2026 James Beard Restaurant Award Winners**\
+`Kalaya took the outstanding restaurant award and Michael Tusk took home the outstanding chef honor during an evening when immigration and resistance emerged as themes.`\
+https://www.nytimes.com/2026/06/15/dining/2026-james-beard-restaurant-award-winners.html
+
 **The Fitness Dating App Boom**\
 `A slew of dating apps for fitness enthusiasts has recently hit the market. Danielle Friedman, a reporter for Well, interviewed people about why they’re drawn to these apps and what it says about the culture at large.`\
 https://www.nytimes.com/video/well/move/100000010948599/the-fitness-dating-app-boom.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/15/style/congo-team-leopard-suits-world-cup.html
 **America250 Plans July 4 Concert in L.A., Competing With Trump**\
 `The nonprofit, established by Congress a decade ago and separate from President Trump’s Freedom 250, will bring Smashing Pumpkins and other acts to Los Angeles on July 4.`\
 https://www.nytimes.com/2026/06/15/arts/music/america250-concert-los-angeles-trump.html
-
-**N.Y. Officials Reject Students’ Pleas to Move Exams for Knicks Parade**\
-`The championship celebration starts at 10 a.m. Thursday, just as some of the state Regents tests begin. Students had organized petitions calling for the exams to be delayed.`\
-https://www.nytimes.com/2026/06/15/nyregion/ny-regent-exams-knicks-parade.html
 

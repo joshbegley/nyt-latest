@@ -1,3 +1,7 @@
+**Here Are the 2026 James Beard Restaurant Award Winners**\
+`Kalaya took the outstanding restaurant award and Michael Tusk took home the outstanding chef honor during an evening when immigration and resistance emerged as themes.`\
+https://www.nytimes.com/2026/06/15/dining/2026-james-beard-restaurant-award-winners.html
+
 **The Fitness Dating App Boom**\
 `A slew of dating apps for fitness enthusiasts has recently hit the market. Danielle Friedman, a reporter for Well, interviewed people about why they’re drawn to these apps and what it says about the culture at large.`\
 https://www.nytimes.com/video/well/move/100000010948599/the-fitness-dating-app-boom.html
