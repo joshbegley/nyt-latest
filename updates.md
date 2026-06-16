@@ -1,3 +1,15 @@
+**Areas to Watch in Georgia’s Republican Primary Runoffs**\
+`Georgia’s Republican runoffs are expected to follow urban-rural divides, with an open question of how recent endorsements will shift support.`\
+https://www.nytimes.com/2026/06/16/us/elections/georgia-primary-runoffs-areas-to-watch.html
+
+**Beijing’s New Message to Its Citizens: Your Money Belongs at Home**\
+`Eager to keep capital within its borders, China is restricting the ways individuals can engage with global markets.`\
+https://www.nytimes.com/2026/06/16/business/chinese-investors-restrictions.html
+
+**Election Live Updates: Polls Close in Georgia’s G.O.P. Senate Primary Runoff**\
+`Republicans in Georgia voted to pick a nominee to challenge Senator Jon Ossoff, a Democrat, and another to run for governor. Elections are underway in Alabama and Oklahoma as well.`\
+https://www.nytimes.com/live/2026/06/16/us/georgia-oklahoma-alabama-elections
+
 **Good Luck, Kevin Warsh. You’ll Need It.**\
 `Between a surge in interest rates, increasingly restive colleagues and the demands of President Trump, the new Fed chairman, Kevin Warsh, is in a bind.`\
 https://www.nytimes.com/2026/06/16/opinion/kevin-warsh-fed-chair-interest-rates-trump.html
