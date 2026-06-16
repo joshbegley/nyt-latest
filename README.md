@@ -1,3 +1,7 @@
+**Iran War Live Updates: Shipping Companies Remain Cautious Over Strait**\
+`Ship traffic through the crucial Strait of Hormuz was extremely limited two days after the United States and Iran signed a preliminary deal aimed at ending their war.`\
+https://www.nytimes.com/live/2026/06/16/world/iran-war-trump-us-deal
+
 **Mixed Feelings as Iran Ties With New Zealand in World Cup**\
 `Iran and New Zealand played their World Cup opener on Monday, tying 2-2. Some spectators protested the Islamic Republic of Iran while others cheered on the team.`\
 https://www.nytimes.com/video/sports/soccer/100000010970136/iran-world-cup-new-zealand-protest.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/15/us/politics/georgia-alabama-runoff-primary-el
 **Will the Iran Deal Stick?**\
 `After many false starts, this cease-fire plan could be different. That’s because the war really has become painful for both the U.S. and Iran.`\
 https://www.nytimes.com/2026/06/15/world/iran-deal-cape-verde-world-cup.html
-
-**Inside the Partisan Battle Over America’s 250th Birthday Celebrations**\
-`President Trump sidestepped a congressional commission and formed his own group to plan the festivities. The result is a deeply partisan celebration, disgruntled celebrities and plenty of confusion.`\
-https://www.nytimes.com/2026/06/15/us/politics/freedom-250-america-250.html
 
