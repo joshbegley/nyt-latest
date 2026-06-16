@@ -1,3 +1,7 @@
+**China’s Spending Slowdown Deepens as Households Tighten Their Belts**\
+`The unexpected decline in retail sales underscored China’s growing reliance on exports to sustain economic growth as domestic demand continues to falter.`\
+https://www.nytimes.com/2026/06/16/business/china-retail-sales.html
+
 **Naval Mines Could Still Stymie Gulf Shipping After War**\
 `The U.S. Navy will be deploying a new generation of drone-based countermeasures to search the sea floor and surface for any mines Iran laid.`\
 https://www.nytimes.com/2026/06/16/world/middleeast/strait-hormuz-mines-clearing.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/15/us/b-52-crash-edwards-air-force-base-californ
 **In Its Tragic Finale, ‘Romeo and Juliet’ Is Interrupted by a Cat**\
 `Performers were tested by the unexpected during a ballet production in Turkey.`\
 https://www.nytimes.com/2026/06/15/arts/dance/cat-romeo-and-juliet-ballet-turkey.html
-
-**Cat Interrupts “Romeo and Juliet” Ballet Performance**\
-`A cat wandered on stage during a performance of the “Romeo and Juliet” ballet in Turkey and stole the show.`\
-https://www.nytimes.com/video/world/europe/100000010968361/cat-interrupts-romeo-juliet-turkey.html
 
