@@ -1,3 +1,11 @@
+**After a Bitter Split, European Leaders Play Nice With Trump**\
+`A peace framework with Iran, and hope for cooperation with Ukraine, softened the tone on Tuesday at a Group of 7 gathering in France.`\
+https://www.nytimes.com/2026/06/16/world/europe/trump-g7-leaders-europe.html
+
+**Ben Kiernan: What Drives Leaders to Commit Genocide?**\
+`The ideologies behind some of history’s most horrific acts are well documented — and predictable.`\
+https://www.nytimes.com/2026/06/16/special-series/ben-kiernan-genocide-ideology.html
+
 **Merlin, the Duck in a Mexico World Cup Team Jersey, Finds Unexpected Fame**\
 `The feathered pet has waddled his way into the pantheon of famous animals associated with the soccer tournament.`\
 https://www.nytimes.com/2026/06/16/world/americas/duck-mexico-world-cup-merlin.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/16/world/canada/hockey-night-in-canada-cbc-roger
 **7 Great Artists Playing SummerStage This Year**\
 `Hear songs from Angélique Kidjo, Mavis Staples, Sharp Pins and more.`\
 https://www.nytimes.com/2026/06/16/arts/music/amplifier-newsletter-summerstage-spoon-sharp-pins.html
-
-**Alabama U.S. Senate Runoff 2026: Live Election Results, Larriett vs. Wess**\
-`Get live results and maps from the 2026 Alabama runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-alabama-us-senate-runoff.html
-
-**Tropical Storm Watch Issued Along Gulf Coast as Heavy Rain Hits Texas**\
-`A storm system churning along the coastline could become the first named storm of this year’s Atlantic hurricane season this week.`\
-https://www.nytimes.com/2026/06/16/weather/tropical-storm-arthur-louisiana-texas-gulf.html
 

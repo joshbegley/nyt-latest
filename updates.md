@@ -1,3 +1,11 @@
+**After a Bitter Split, European Leaders Play Nice With Trump**\
+`A peace framework with Iran, and hope for cooperation with Ukraine, softened the tone on Tuesday at a Group of 7 gathering in France.`\
+https://www.nytimes.com/2026/06/16/world/europe/trump-g7-leaders-europe.html
+
+**Ben Kiernan: What Drives Leaders to Commit Genocide?**\
+`The ideologies behind some of history’s most horrific acts are well documented — and predictable.`\
+https://www.nytimes.com/2026/06/16/special-series/ben-kiernan-genocide-ideology.html
+
 **Oklahoma Third Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Oklahoma primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-us-house-3-primary.html
