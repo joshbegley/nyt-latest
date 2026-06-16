@@ -170,7 +170,7 @@ https://www.nytimes.com/2026/06/16/us/transgender-idaho-bathroom-law.html
 `Bus, train, bike or Uber: Which will get you to MetLife Stadium first? Four New York Times reporters raced from Midtown Manhattan to the first World Cup game there.`\
 https://www.nytimes.com/video/nyregion/100000010964454/racing-to-the-world-cup-from-new-york.html
 
-**Results in Key Races**\
+**Live 2026 Election Results: Georgia, Alabama and Oklahoma Primary and Runoff Races**\
 `SUMMARY TK`\
 https://www.nytimes.com/interactive/2026/us/elections/results-key-races-june-16.html
 

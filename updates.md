@@ -1,3 +1,7 @@
+**Live 2026 Election Results: Georgia, Alabama and Oklahoma Primary and Runoff Races**\
+`SUMMARY TK`\
+https://www.nytimes.com/interactive/2026/us/elections/results-key-races-june-16.html
+
 **After a Bitter Split, European Leaders Play Nice With Trump**\
 `A peace framework with Iran, and hope for cooperation with Ukraine, softened the tone on Tuesday at a Group of 7 gathering in France.`\
 https://www.nytimes.com/2026/06/16/world/europe/trump-g7-leaders-europe.html
