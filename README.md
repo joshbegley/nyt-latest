@@ -94,8 +94,8 @@ https://www.nytimes.com/es/2026/06/16/espanol/deportes/mexico-mundial-pato-merli
 `Two Belarusian men were in custody as part of an investigation into the killing of the exiled painter Robert Kuzovkov.`\
 https://www.nytimes.com/2026/06/16/world/europe/russian-artist-putin-killed-poland.html
 
-**Election Live Updates: Georgia, Alabama and Oklahoma Pick Candidates**\
-`Republicans in Georgia will pick a nominee to challenge Senator Jon Ossoff, a Democrat. The nation’s capital is holding primaries in the race to succeed Mayor Muriel Bowser, who is not seeking re-election.`\
+**Election Live Updates: Polls to Close Soon in Georgia G.O.P. Senate Primary Runoff**\
+`Republicans in Georgia will pick a nominee to challenge Senator Jon Ossoff, a Democrat, and another to run for governor. Elections are underway in Alabama and Oklahoma as well.`\
 https://www.nytimes.com/live/2026/06/16/us/georgia-oklahoma-alabama-elections
 
 **The Battle With Anthropic Is the Start of a New Kind of Conflict**\

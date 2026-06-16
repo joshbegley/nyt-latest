@@ -1,3 +1,19 @@
+**Julia Child’s Berry Clafoutis**\
+`This recipe is for a delicately sweet dessert whose elegance should not distract from its ease (it can be made while the rest of dinner is in the oven). Make sure you have fresh berries, and serve the result warm.`\
+https://www.nytimes.com/video/dining/100000010972541/julia-childs-berry-clafoutis.html
+
+**5 Things to Know About Mike Collins, Republican Senate Candidate in Georgia**\
+`An immigration hard-liner, Mr. Collins has President Trump’s endorsement in the runoff.`\
+https://www.nytimes.com/2026/06/16/us/politics/mike-collins-republican-senate-georgia.html
+
+**5 Things to Know About Derek Dooley, Republican Senate Candidate in Georgia**\
+`He is supported by outgoing Gov. Brian Kemp, who has had a tumultuous relationship with President Trump. Mr. Trump backs Mr. Dooley’s runoff opponent.`\
+https://www.nytimes.com/2026/06/16/us/politics/derek-dooley-republican-senate-georgia.html
+
+**Inquiry Into Justice Dept. Lawyer Ends Without Disciplinary Action**\
+`A special counsel found that a government lawyer helped mislead a judge into releasing a man wanted for homicide abroad, but largely blamed the Trump administration.`\
+https://www.nytimes.com/2026/06/16/us/politics/rhode-island-judge-trump-discipline.html
+
 **Democrats Keep Helping Out This Far-Right Maryland Republican**\
 `Gov. Wes Moore, a Democrat, has begun running ads on Fox News that promote Dan Cox, a Republican running in a contested primary to challenge him.`\
 https://www.nytimes.com/2026/06/16/us/politics/wes-moore-dan-cox-maryland.html
@@ -177,20 +193,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-us-house-
 **Oklahoma Second Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Oklahoma primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-us-house-2-primary.html
-
-**Oklahoma Treasurer Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Oklahoma primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-treasurer-primary.html
-
-**Oklahoma Superintendent of Public Instruction Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Oklahoma primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-superintendent-of-public-instruction-primary.html
-
-**Oklahoma Governor Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Oklahoma primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-governor-primary.html
-
-**Oklahoma State Question 832: Live Election Results 2026**\
-`Get live results and maps from the 2026 Oklahoma general election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-ballot-measure.html
 
