@@ -1,3 +1,7 @@
+**8 Dead in B-52 Bomber Crash at Edwards Air Force Base in California**\
+`The aircraft burst into flames on Monday morning shortly after takeoff from Edwards Air Force Base in California, officials said. The cause is still under investigation.`\
+https://www.nytimes.com/2026/06/15/us/b-52-crash-edwards-air-force-base-california.html
+
 **How the Kratom Industry Won Friends in the Trump Administration**\
 `A sprawling influence campaign to promote a risky drug called kratom has gained allies among top Trump administration officials. Our investigative reporter Kenneth P. Vogel explains.`\
 https://www.nytimes.com/video/us/100000010955453/how-the-kratom-industry-won-friends-in-the-trump-administration.html
