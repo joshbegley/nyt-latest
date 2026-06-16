@@ -1,3 +1,7 @@
+**D.O.J. Seeks to Halt Pollution Lawsuit Against Elon Musk’s Data Center**\
+`The department cited national security concerns, saying Elon Musk’s company had played a crucial role in the Iran war. It also argued it has the authority to stop environmental lawsuits brought by citizens.`\
+https://www.nytimes.com/2026/06/16/climate/xai-musk-mississippi-grok-turbine-lawsuit-naacp.html
+
 **SpaceX Is Now More Valuable Than Amazon, Meta and Many Others**\
 `In its first few days of trading, Elon Musk’s newly listed rocket maker has vaulted into the world’s top five most valuable companies.`\
 https://www.nytimes.com/2026/06/16/business/spacex-market-value-ranking.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/es/2026/06/16/espanol/mundo/acuerdo-iran-eeuu-guerra.htm
 **Pochettino’s USMNT Blueprint & Lionel Messi’s Last Dance?**\
 `Demystifying the U.S. men’s  mercurial head coach.`\
 https://www.nytimes.com/2026/06/16/podcasts/pochettino-usmnt-lionel-messis-argentina.html
-
-**A Gen Z Revolution at the Movies**\
-`Two recently released films are such runaway successes that they’ve shocked the industry.`\
-https://www.nytimes.com/2026/06/16/podcasts/the-daily/gen-z-revolution-a24-movies.html
 
 **Iran War Live Updates: U.S. and Iran Look Ahead to Next Round of Talks**\
 `Iran’s foreign minister said that new negotiations with the United States would start immediately after their preliminary deal is signed on Friday. President Trump said he hoped the conflict would soon be in the “rearview mirror.”`\
