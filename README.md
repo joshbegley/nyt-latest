@@ -1,3 +1,7 @@
+**Takeaways From JD Vance’s New Book ‘Communion,’ on Faith and His Political Ambitions**\
+`In a new memoir, Mr. Vance recalls an “unsettling” meeting with Vatican officials on immigration policy and disavows his infamous disparagement of some Democrats as “childless cat ladies.”`\
+https://www.nytimes.com/2026/06/16/us/politics/jd-vance-communion-book-takeaways.html
+
 **Literary Travel Combines Travel and a Love of Books**\
 `Resort book clubs, tour companies, hotel libraries and a growing number of literary festivals are offering readers new ways to indulge their interests.`\
 https://www.nytimes.com/2026/06/16/travel/literary-book-travel-trend.html
@@ -12,7 +16,7 @@ https://www.nytimes.com/2026/06/16/special-series/human-behavior-self-destructio
 
 **In 30,000 Gallons of Water, Hundreds of Bowls Play Music of the Spheres**\
 `The French sound artist Céleste Boursier-Mougenot creates an unlikely symphony by setting singing bowls bobbing at the Park Avenue Armory.`\
-https://www.nytimes.com/2026/06/16/arts/design/in-30000-gallons-of-water-hundreds-of-bowls-play-music-of-the-spheres.html
+https://www.nytimes.com/2026/06/16/arts/design/celeste-boursier-mougenot-clinamen-park-avenue-armory.html
 
 **Europe Union Lawmakers Approve Much-Delayed Trade Deal With U.S.**\
 `After nearly a year of wrangling, the deal the European Union struck with President Trump in Turnberry, Scotland, is headed for final approval.`\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/16/arts/music/best-classical-music-opera-2026.ht
 **Graham Platner, Jon Ossoff and the New Rules of Political Attention**\
 `Chris Hayes and Ezra Klein discuss how the Democrats are winning the battle for attention, and whether that can translate into winning elections.`\
 https://www.nytimes.com/video/opinion/100000010956569/graham-platner-jon-ossoff-and-the-new-rules-of-political-attention.html
-
-**The Iran War Permanently Altered the Global Economy**\
-`The global order has been altered, and economies are unlikely to simply pick up where they left off before the U.S. and Israel began bombing Iran.`\
-https://www.nytimes.com/2026/06/16/business/economy/iran-war-oil-trade.html
 
 **Iran War Live Updates: U.S. and Iran Look Ahead to Next Round of Talks**\
 `Iran’s foreign minister said that new negotiations with the United States would start immediately after their preliminary deal is signed on Friday. President Trump said he hoped the conflict would soon be in the “rearview mirror.”`\
