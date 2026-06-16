@@ -1,3 +1,11 @@
+**Russian Navy Ship Accused of Firing Warning Shots at U.K. Yacht**\
+`Britain’s Defense Ministry said it was investigating a report that a Russian vessel fired warning shots near a U.K.-registered yacht in the English Channel on Tuesday.`\
+https://www.nytimes.com/2026/06/16/world/europe/russian-navy-english-channel-yacht-uk.html
+
+**La guerra en Irán ha cambiado la economía mundial para siempre**\
+`El orden mundial se ha visto alterado, y es poco probable que las economías simplemente retomen las actividades que tenían antes de que EE. UU. e Israel empezaran a bombardear Irán.`\
+https://www.nytimes.com/es/2026/06/16/espanol/negocios/iran-guerra-petroleo-economia.html
+
 **Pizza Hut Sold to Two Firms for $2.7 Billion**\
 `Yum China will acquire Pizza Hut’s locations in mainland China. The private equity firm LongRange Capital will buy its locations in the United States and elsewhere.`\
 https://www.nytimes.com/2026/06/16/business/pizza-hut-yum-brands-sold.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/06/16/world/middleeast/iran-us-deal-nuclear-talks.h
 **Oil Prices Continue to Fall as Traders Assess U.S.-Iran Deal**\
 `Stocks were mixed after strong rallies the day before.`\
 https://www.nytimes.com/2026/06/16/business/oil-prices-iran-war.html
-
-**Can a Trump-Modi Meeting Reset U.S.-India Relations?**\
-`Despite mutual praise between the two leaders, there has been a series of setbacks to U.S. relations with India since they last met more than a year ago.`\
-https://www.nytimes.com/2026/06/16/world/asia/trump-modi-meeting-g7.html
-
-**France, Britain and Other Countries Say They’ll Send Ships to the Strait of Hormuz**\
-`For months, a coalition led by Britain and France has been preparing to send minesweepers and other ships to secure the strait once the fighting ends. That moment may finally be here.`\
-https://www.nytimes.com/2026/06/16/world/europe/europe-strait-of-hormuz-iran-security.html
 
 **Iran War Live Updates: U.S. and Iran Look Ahead to Next Round of Talks**\
 `Iran’s foreign minister said that new negotiations with the United States would start immediately after their preliminary deal is signed on Friday. President Trump said he hoped the conflict would soon be in the “rearview mirror.”`\

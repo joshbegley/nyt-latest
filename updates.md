@@ -1,3 +1,15 @@
+**Pizza Hut Sold to Two Firms for $2.7 Billion**\
+`Yum China will acquire Pizza Hut’s locations in mainland China. The private equity firm LongRange Capital will buy its locations in the United States and elsewhere.`\
+https://www.nytimes.com/2026/06/16/business/pizza-hut-yum-brands-sold.html
+
+**Trump’s Stumble on the Iran War**\
+`Readers respond to news of the U.S.-Iran deal. Also: The affordability crisis; all the wonderful dads; safe to track.`\
+https://www.nytimes.com/2026/06/16/opinion/trump-iran-war.html
+
+**The World Cup (of Clothes)**\
+`Plus, a Knicks merch bonanza, a Japanese streetwear reunion and, surprise, it’s almost fashion week. Again.`\
+https://www.nytimes.com/2026/06/16/style/the-world-cup-of-clothes.html
+
 **Trump Says U.S. Has ‘Nothing to Do’ with Ukraine War at G7 Summit**\
 `President Trump’s remarks underscored a new security reality for U.S. allies in Europe, who for eight decades relied on American protection.`\
 https://www.nytimes.com/2026/06/16/world/europe/trump-ukraine-war-g7.html

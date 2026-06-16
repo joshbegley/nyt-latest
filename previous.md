@@ -1,3 +1,15 @@
+**Pizza Hut Sold to Two Firms for $2.7 Billion**\
+`Yum China will acquire Pizza Hut’s locations in mainland China. The private equity firm LongRange Capital will buy its locations in the United States and elsewhere.`\
+https://www.nytimes.com/2026/06/16/business/pizza-hut-yum-brands-sold.html
+
+**Trump’s Stumble on the Iran War**\
+`Readers respond to news of the U.S.-Iran deal. Also: The affordability crisis; all the wonderful dads; safe to track.`\
+https://www.nytimes.com/2026/06/16/opinion/trump-iran-war.html
+
+**The World Cup (of Clothes)**\
+`Plus, a Knicks merch bonanza, a Japanese streetwear reunion and, surprise, it’s almost fashion week. Again.`\
+https://www.nytimes.com/2026/06/16/style/the-world-cup-of-clothes.html
+
 **Trump’s History at G7 Summits: Strained Ties and Early Exits**\
 `For as long as President Trump has been attending the annual meetings, his behavior has threatened the august decorum of the gatherings.`\
 https://www.nytimes.com/2026/06/16/world/europe/trump-g7-summit-history.html
@@ -177,18 +189,6 @@ https://www.nytimes.com/2026/06/16/world/asia/trump-modi-meeting-g7.html
 **France, Britain and Other Countries Say They’ll Send Ships to the Strait of Hormuz**\
 `For months, a coalition led by Britain and France has been preparing to send minesweepers and other ships to secure the strait once the fighting ends. That moment may finally be here.`\
 https://www.nytimes.com/2026/06/16/world/europe/europe-strait-of-hormuz-iran-security.html
-
-**Six Takeaways From the Times Investigation Into Epstein’s Death**\
-`We considered every plausible theory of his death, both official and otherwise, seeking out the most persuasive arguments and evidence for each.`\
-https://www.nytimes.com/2026/06/16/magazine/jeffrey-epstein-death-mental-health.html
-
-**Rope Jumper Falls to Her Death After Operators Fail to Secure Harness**\
-`Harrowing videos of the incident in Brazil showed the woman lifted over the heads of two instructors, her arms spread like wings, as they threw her off a bridge.`\
-https://www.nytimes.com/2026/06/16/travel/brazil-rope-jumping-fall.html
-
-**Can I Break My Husband’s Restaurant Boycott?**\
-`A dispute over how to handle a cracked soup container.`\
-https://www.nytimes.com/interactive/2026/06/16/magazine/restaurant-boycott-hodgman-quiz.html
 
 **Iran War Live Updates: U.S. and Iran Look Ahead to Next Round of Talks**\
 `Iran’s foreign minister said that new negotiations with the United States would start immediately after their preliminary deal is signed on Friday. President Trump said he hoped the conflict would soon be in the “rearview mirror.”`\
