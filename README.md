@@ -1,3 +1,7 @@
+**Riding High After I.P.O., SpaceX to Buy A.I. Start-Up for $60 Billion**\
+`SpaceX exercised its option to acquire Cursor in an all-stock deal, bolstering Elon Musk’s ambitions in artificial intelligence.`\
+https://www.nytimes.com/2026/06/16/business/spacex-cursor-aquisition-ipo.html
+
 **The ‘Paddington’ Musical Will Come to Broadway Next Spring**\
 `The show, which revisits the story of a marmalade-loving bear, plans to open next April at the Hirschfeld Theater in New York.`\
 https://www.nytimes.com/2026/06/16/theater/paddington-musical-broadway.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/16/fashion/audemars-piguet-new-division.html
 **This Proposal Came Right on Time, and With a Watch**\
 `When Rory Corr’s future wife asked him to marry her, she presented him with the Max Bill chronograph he had wanted for years.`\
 https://www.nytimes.com/2026/06/16/fashion/watches-junghans-max-bill-chronograph.html
-
-**Why Is Everyone Waiting Hours for Frozen Yogurt? Why Am I?**\
-`The yogurt is not special. Let’s just get that out of the way now.`\
-https://www.nytimes.com/2026/06/16/magazine/frozen-yogurt-lines-myka.html
 
 **Iran War Live Updates: Talks on Final Agreement Will Begin Friday, Tehran Says**\
 `Iran’s foreign minister said that new negotiations with the United States would start immediately after their preliminary deal is signed. President Trump reiterated that the initial pact ensures Iran will not obtain a nuclear weapon.`\
