@@ -18,7 +18,7 @@ https://www.nytimes.com/video/world/europe/100000010970368/trump-g7-german-socce
 `In a new memoir, Mr. Vance recalls an “unsettling” meeting with Vatican officials on immigration policy and disavows his infamous disparagement of some Democrats as “childless cat ladies.”`\
 https://www.nytimes.com/2026/06/16/us/politics/jd-vance-communion-book-takeaways.html
 
-**Literary Travel Combines Travel and a Love of Books**\
+**Call It a ‘Book-cation’ or a ‘Readaway,’ Literary Travel Is Having a Moment**\
 `Resort book clubs, tour companies, hotel libraries and a growing number of literary festivals are offering readers new ways to indulge their interests.`\
 https://www.nytimes.com/2026/06/16/travel/literary-book-travel-trend.html
 
