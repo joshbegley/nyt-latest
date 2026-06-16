@@ -1,3 +1,171 @@
+**Oklahoma Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-primary.html
+
+**Washington, D.C. Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Washington, D.C. primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-washington-dc-primary.html
+
+**Georgia 2026: Live Primary Runoff Election Results**\
+`Get live results and maps from the 2026 Georgia primary runoff elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-georgia-primary-runoff.html
+
+**Georgia Governor Runoff 2026: Live Election Results, Jackson vs. Jones**\
+`Get live results and maps from the 2026 Georgia runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-georgia-governor-runoff.html
+
+**Alabama 2026: Live Primary Runoff Election Results**\
+`Get live results and maps from the 2026 Alabama primary runoff elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-alabama-primary-runoff.html
+
+**Results in Key Races**\
+`SUMMARY TK`\
+https://www.nytimes.com/interactive/2026/us/elections/results-key-races-june-16.html
+
+**Claudette’s Second Act**\
+`The chef Igor Almeida Cabral breathes new life into this bistro, a very large venue for Korean barbecue opens in Williamsburg, Brooklyn, and more restaurant news.`\
+https://www.nytimes.com/2026/06/16/dining/nyc-restaurant-openings-claudette.html
+
+**Oklahoma U.S. Senate Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-us-senate-primary.html
+
+**Washington, D.C. Attorney General Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Washington, D.C. primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-washington-dc-attorney-general-primary.html
+
+**Oklahoma Second Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-us-house-2-primary.html
+
+**Oklahoma Fourth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-us-house-4-primary.html
+
+**Oklahoma Lieutenant Governor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-lieutenant-governor-primary.html
+
+**Oklahoma Fifth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-us-house-5-primary.html
+
+**Washington, D.C. Mayor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Washington, D.C. primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-washington-dc-mayor-primary.html
+
+**Georgia U.S. Senate Runoff 2026: Live Election Results, Collins vs. Dooley**\
+`Get live results and maps from the 2026 Georgia runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-georgia-us-senate-runoff.html
+
+**Oklahoma First Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-us-house-1-primary.html
+
+**Oklahoma Third Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-us-house-3-primary.html
+
+**Oklahoma Treasurer Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-treasurer-primary.html
+
+**Georgia Insurance Commissioner Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Georgia runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-georgia-insurance-commissioner-runoff.html
+
+**Oklahoma State Question 832: Live Election Results 2026**\
+`Get live results and maps from the 2026 Oklahoma general election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-ballot-measure.html
+
+**Oklahoma Labor Commissioner Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-labor-commissioner-primary.html
+
+**Georgia Seventh Congressional District Runoff 2026: Live Election Results, Kozycki vs. Norton**\
+`Get live results and maps from the 2026 Georgia runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-georgia-us-house-7-runoff.html
+
+**Oklahoma Superintendent of Public Instruction Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-superintendent-of-public-instruction-primary.html
+
+**Oklahoma Corporation Commissioner Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-corporation-commissioner-primary.html
+
+**Oklahoma Attorney General Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-attorney-general-primary.html
+
+**Oklahoma Auditor Inspector Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-auditor-inspector-primary.html
+
+**Georgia 11th Congressional District Runoff 2026: Live Election Results, Adkerson vs. Cowan**\
+`Get live results and maps from the 2026 Georgia runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-georgia-us-house-11-runoff.html
+
+**Oklahoma Governor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-governor-primary.html
+
+**Oklahoma Insurance Commissioner Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-insurance-commissioner-primary.html
+
+**Georgia Secretary of State Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Georgia runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-georgia-secretary-of-state-runoff.html
+
+**Georgia Lt. Governor Democratic Primary Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Georgia runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-georgia-lieutenant-governor-democratic-primary-runoff.html
+
+**Georgia 12th Congressional District Runoff 2026: Live Election Results, George vs. Smith**\
+`Get live results and maps from the 2026 Georgia runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-georgia-us-house-12-runoff.html
+
+**Georgia First Congressional District Runoff 2026: Live Election Results, Griggs vs. Hollowell**\
+`Get live results and maps from the 2026 Georgia runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-georgia-us-house-1-runoff.html
+
+**Georgia Lt. Governor Republican Primary Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Georgia runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-georgia-lieutenant-governor-republican-primary-runoff.html
+
+**Georgia Labor Commissioner Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Georgia runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-georgia-labor-commissioner-runoff.html
+
+**Georgia Public Service Commission Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Georgia runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-georgia-public-service-commission-runoff.html
+
+**Alabama Lieutenant Governor Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Alabama runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-alabama-lieutenant-governor-runoff.html
+
+**Alabama Public Service Commission Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Alabama runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-alabama-public-service-commission-runoff.html
+
+**California 14th Congressional District Special 2026: Live Election Results**\
+`Get live results and maps from the 2026 California special election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-14-special.html
+
+**Alabama Agriculture Commissioner Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Alabama runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-alabama-agriculture-commissioner-runoff.html
+
+**Alabama Attorney General Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Alabama runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-alabama-attorney-general-runoff.html
+
+**Alabama Fifth Congressional District Runoff 2026: Live Election Results, Duvieilh vs. Sneed**\
+`Get live results and maps from the 2026 Alabama runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-alabama-us-house-5-runoff.html
+
 **D.O.J. Seeks to Halt Pollution Lawsuit Against Elon Musk’s Data Center**\
 `The department cited national security concerns, saying Elon Musk’s company had played a crucial role in the Iran war. It also argued it has the authority to stop environmental lawsuits brought by citizens.`\
 https://www.nytimes.com/2026/06/16/climate/xai-musk-mississippi-grok-turbine-lawsuit-naacp.html
