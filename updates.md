@@ -1,3 +1,103 @@
+**France, Britain and Other Countries Say They’ll Send Ships to the Strait of Hormuz**\
+`For months, a coalition led by Britain and France has been preparing to send minesweepers and other ships to secure the strait once the fighting ends. That moment may finally be here.`\
+https://www.nytimes.com/2026/06/16/world/europe/europe-strait-of-hormuz-iran-security.html
+
+**Six Takeaways From the Times Investigation Into Epstein’s Death**\
+`We considered every plausible theory of his death, both official and otherwise, seeking out the most persuasive arguments and evidence for each.`\
+https://www.nytimes.com/2026/06/16/magazine/jeffrey-epstein-death-mental-health.html
+
+**Rope Jumper Falls to Her Death After Operators Fail to Secure Harness**\
+`Harrowing videos of the incident in Brazil showed the woman lifted over the heads of two instructors, her arms spread like wings, as they threw her off a bridge.`\
+https://www.nytimes.com/2026/06/16/travel/brazil-rope-jumping-fall.html
+
+**Can I Break My Husband’s Restaurant Boycott?**\
+`A dispute over how to handle a cracked soup container.`\
+https://www.nytimes.com/interactive/2026/06/16/magazine/restaurant-boycott-hodgman-quiz.html
+
+**Corrections: June 16, 2026**\
+`No corrections appeared in print on Tuesday, June 16, 2026.`\
+https://www.nytimes.com/2026/06/16/pageoneplus/no-corrections-june-16-2026.html
+
+**These Sidewalk Sheds Aren’t Eyesores**\
+`The city is moving toward more attractive sheds, diversifying from hunter green to blue and yellow.`\
+https://www.nytimes.com/2026/06/16/nyregion/sidewalk-sheds-makeover.html
+
+**Graham Platner, Jon Ossoff and the New Rules of Political Attention**\
+`Chris Hayes and Ezra Klein discuss how the Democrats are winning the battle for attention, and whether that can translate into winning elections.`\
+https://www.nytimes.com/2026/06/16/opinion/ezra-klein-podcast-chris-hayes-2026.html
+
+**These Are the Voters Who Can Keep Democrats From Going Off the Rails**\
+`Black and other minority Democrats are a strong force for moderation in a party that is having trouble reining itself in.`\
+https://www.nytimes.com/2026/06/16/opinion/democratic-party-coalition-minority-voters.html
+
+**An Architect Opts for ‘Optimistic Modernism’ in Her Silver Lake Kitchen**\
+`Barbara Bestor fills her Los Angeles kitchen and dining room with color and vintage objects with character.`\
+https://www.nytimes.com/2026/06/16/realestate/an-architect-opts-for-optimistic-modernism-in-her-silver-lake-kitchen.html
+
+**Warsh Faces Tenuous Balancing Act in First Fed Meeting as Chairman**\
+`Elevated inflation and the specter of rate increases will greet Kevin M. Warsh in his debut as chairman of the Federal Reserve.`\
+https://www.nytimes.com/2026/06/16/business/warsh-fed-chair.html
+
+**Last Call at Donohue’s in New York, ‘a Museum of What Bars Used to Be’**\
+`After 76 years as a Midtown favorite, the family-run restaurant says goodbye to its many, many regulars.`\
+https://www.nytimes.com/2026/06/16/dining/donohues-steak-house-closing.html
+
+**The Untold Story of Jeffrey Epstein’s Death and His Final Days in Jail**\
+`New evidence, new interviews and the fullest investigation yet into the question of whether he killed himself.`\
+https://www.nytimes.com/interactive/2026/06/16/magazine/jeffrey-epstein-death-final-days.html
+
+**Sharleen Chidiac Brings Punk and Excess in New Musical ‘All the Rage’**\
+`Sharleen Chidiac, a choreographer and the effervescent lead singer of Voyeur, looks at ambition and freedom in her hybrid new work: a punk musical.`\
+https://www.nytimes.com/2026/06/16/arts/dance/sharleen-chidiac-punk-musical.html
+
+**What to Watch in Primary and Runoff Elections in Georgia, Alabama and Oklahoma**\
+`The top race of the day is in Georgia, where Republican voters will pick a nominee to challenge Senator Jon Ossoff, a Democrat.`\
+https://www.nytimes.com/2026/06/16/us/politics/elections-georgia-alabama-oklahoma-runoff.html
+
+**The Verdict on Biden Is In**\
+`Preliminary judgments on Joe Biden’s one-term presidency, including Jill Biden’s, are all the rage.`\
+https://www.nytimes.com/2026/06/16/opinion/joe-jill-biden-east-wing.html
+
+**Four Stars for Albi in Washington D.C.**\
+`At his Palestinian restaurant in Washington, D.C., the chef Michael Rafidi is telling a vivid story through bread and fire.`\
+https://www.nytimes.com/2026/06/16/dining/restaurant-review-albi-washington-dc.html
+
+**A Baroque Opera Written By a Female Composer Feels Ripped From the Headlines**\
+`The Paris Opera production of “Ercole Amante” (“Hercules in Love”), a rediscovered 1707 work by the female composer Antonia Bembo, leans into contemporary themes of coercion and consent.`\
+https://www.nytimes.com/2026/06/16/arts/music/ercole-amante-antonia-bembo-paris-opera.html
+
+**Best Classical Music and Opera of 2026 So Far**\
+`Kaija Saariaho’s final opera, a premiere by Ellen Reid and a multitasking performance by Barbara Hannigan are among the highlights.`\
+https://www.nytimes.com/2026/06/16/arts/music/best-classical-music-opera-2026.html
+
+**Graham Platner, Jon Ossoff and the New Rules of Political Attention**\
+`Chris Hayes and Ezra Klein discuss how the Democrats are winning the battle for attention, and whether that can translate into winning elections.`\
+https://www.nytimes.com/video/opinion/100000010956569/graham-platner-jon-ossoff-and-the-new-rules-of-political-attention.html
+
+**The Iran War Permanently Altered the Global Economy**\
+`The global order has been altered, and economies are unlikely to simply pick up where they left off before the U.S. and Israel began bombing Iran.`\
+https://www.nytimes.com/2026/06/16/business/economy/iran-war-oil-trade.html
+
+**What if Both Parties Redistricted to the Max?**\
+`How the scramble for partisan advantage could further distort America’s politics.`\
+https://www.nytimes.com/2026/06/16/opinion/gerrymander-redistricting-party.html
+
+**Just How Much Are E.V. Drivers Saving With Gas Prices Still High?**\
+`Over a long period, gas prices tend to be more volatile than electricity rates.`\
+https://www.nytimes.com/2026/06/16/upshot/electric-cars-gas-costs.html
+
+**What We Learned About Jeffrey Epstein’s Death**\
+`The New York Times has obtained writings by Jeffrey Epstein from his time in jail that have never been made public and has spoken with his fellow inmates to understand his state of mind in the weeks before his death. Steve Eder, an investigative reporter, explains.`\
+https://www.nytimes.com/video/us/100000010948122/epstein-jail-writings.html
+
+**A.I. Boom Ignites Asian Chip Companies**\
+`They make much of the gear that goes into giant data centers. Demand for their products is shifting the balance of tech power.`\
+https://www.nytimes.com/2026/06/16/technology/taiwan-south-korea-ai-chips.html
+
+**Book Review: ‘The Frenzy,’ by Joyce Carol Oates**\
+`The stories in her new collection deal in jagged emergencies and in wounds both physical and psychic.`\
+https://www.nytimes.com/2026/06/16/books/review/joyce-carol-oates-frenzy.html
+
 **Book Review: ‘Presence: A Hidden History of the Female Body,’ by Erin Maglaque**\
 `In “Presence,” the historian Erin Maglaque pieces together the fragments of early modern womanhood.`\
 https://www.nytimes.com/2026/06/16/books/review/presence-erin-maglaque.html
