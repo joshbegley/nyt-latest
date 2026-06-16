@@ -1,3 +1,15 @@
+**Tell Us Why Taylor Swift’s Wedding Is Meaningful to You**\
+`For an upcoming story, we want fans to talk to us about the journey they have been on with Swift through the years and how they feel about her big day.`\
+https://www.nytimes.com/2026/06/16/arts/music/taylor-swift-wedding-readers.html
+
+**New Coral Study Identifies Areas Where Reefs Are Hanging On**\
+`New research has identified areas around the world where cooler currents and other favorable conditions are helping to protect coral from the worst effects of global warming.`\
+https://www.nytimes.com/2026/06/16/climate/coral-reef-global-warming.html
+
+**U.S. Has ‘Nothing to Do’ with Ukraine War, Trump Says at G7 Summit**\
+`President Trump’s remarks underscored a new security reality for U.S. allies in Europe, who for eight decades relied on American protection.`\
+https://www.nytimes.com/2026/06/16/world/europe/trump-ukraine-war-g7.html
+
 **Maps: Tracking Potential Tropical Cyclone One**\
 `See the likely path and wind arrival times for One`\
 https://www.nytimes.com/interactive/2026/06/16/weather/texas-gulf-storm.html
