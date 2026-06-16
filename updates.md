@@ -1,3 +1,7 @@
+**China’s Spending Slowdown Deepens as Households Tighten Their Belts**\
+`The unexpected decline in retail sales underscored China’s growing reliance on exports to sustain economic growth as domestic demand continues to falter.`\
+https://www.nytimes.com/2026/06/16/business/china-retail-sales.html
+
 **Naval Mines Could Still Stymie Gulf Shipping After War**\
 `The U.S. Navy will be deploying a new generation of drone-based countermeasures to search the sea floor and surface for any mines Iran laid.`\
 https://www.nytimes.com/2026/06/16/world/middleeast/strait-hormuz-mines-clearing.html

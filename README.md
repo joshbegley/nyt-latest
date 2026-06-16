@@ -1,3 +1,7 @@
+**Why Team Iran Is in a Tough Spot at the World Cup**\
+`At its first game in Los Angeles, the men’s national team drew spectators who weren’t coming for the soccer, but rather to protest the regime in Tehran.`\
+https://www.nytimes.com/2026/06/16/world/middleeast/world-cup-iran-new-zealand-protests.html
+
 **China’s Spending Slowdown Deepens as Households Tighten Their Belts**\
 `The unexpected decline in retail sales underscored China’s growing reliance on exports to sustain economic growth as domestic demand continues to falter.`\
 https://www.nytimes.com/2026/06/16/business/china-retail-sales.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/15/world/europe/november-17-giotopoulos-prison-r
 **8 Dead in B-52 Bomber Crash at Edwards Air Force Base in California**\
 `The aircraft burst into flames on Monday morning shortly after takeoff from Edwards Air Force Base in California, officials said. The cause is still under investigation.`\
 https://www.nytimes.com/2026/06/15/us/b-52-crash-edwards-air-force-base-california.html
-
-**In Its Tragic Finale, ‘Romeo and Juliet’ Is Interrupted by a Cat**\
-`Performers were tested by the unexpected during a ballet production in Turkey.`\
-https://www.nytimes.com/2026/06/15/arts/dance/cat-romeo-and-juliet-ballet-turkey.html
 
