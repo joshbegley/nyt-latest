@@ -1,3 +1,7 @@
+**Map: 5.5-Magnitude Earthquake Shakes Japan**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/16/world/quake-tracker-japan.html
+
 **Who Are the G7 Countries and What Is the G7 Summit?**\
 `Its members are among the world’s wealthiest large democracies — close allies and major trading partners that account for a substantial slice of the global economy.`\
 https://www.nytimes.com/2026/06/16/world/europe/g7-leaders-summit-what-who.html
