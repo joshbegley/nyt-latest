@@ -1,3 +1,7 @@
+**¿Qué pasa cuando el mayor experto en ‘deepfakes’ ya no confía en sus propios ojos?**\
+`Para Hany Farid, demostrar qué es real en la era de la IA es cada vez más complicado.`\
+https://www.nytimes.com/es/2026/06/16/espanol/estados-unidos/deepfakes-ultrafalsos-ia-experto.html
+
 **Knicks Celebrate Their N.B.A. Title on ‘The Tonight Show’**\
 `“Of course it’s the Knicks, so they won’t really show up until the second half,” the host Jimmy Fallon said.`\
 https://www.nytimes.com/2026/06/16/arts/television/tonight-show-knicks-nba-champions.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/06/15/upshot/trump-lenfant-dc.html
 **Seth Rogen Remembers Catherine O’Hara**\
 `Seth Rogen worked with the late actress Catherine O’Hara on his show “The Studio.” On “The Interview,” he recalled her influence on his work and how much she was missed when she died this year.`\
 https://www.nytimes.com/video/podcasts/100000010969361/seth-rogen-remembers-catherine-ohara.html
-
-**U.S. and Iran Sign a Framework Deal, Leaving Major Issues for Future Talks**\
-`U.S. and Iranian officials said the deal included a 60-day cease-fire to pave the way for negotiations toward a final peace agreement and talks on Iran’s nuclear program.`\
-https://www.nytimes.com/2026/06/15/world/middleeast/us-iran-framework-ceasefire-deal.html
 

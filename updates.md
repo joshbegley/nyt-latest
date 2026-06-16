@@ -1,3 +1,7 @@
+**¿Qué pasa cuando el mayor experto en ‘deepfakes’ ya no confía en sus propios ojos?**\
+`Para Hany Farid, demostrar qué es real en la era de la IA es cada vez más complicado.`\
+https://www.nytimes.com/es/2026/06/16/espanol/estados-unidos/deepfakes-ultrafalsos-ia-experto.html
+
 **Knicks Celebrate Their N.B.A. Title on ‘The Tonight Show’**\
 `“Of course it’s the Knicks, so they won’t really show up until the second half,” the host Jimmy Fallon said.`\
 https://www.nytimes.com/2026/06/16/arts/television/tonight-show-knicks-nba-champions.html
