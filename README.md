@@ -1,3 +1,7 @@
+**Jelly Roll Files for Divorce From Bunnie Xo After Nearly a Decade**\
+`The country music star, whose real name is Jason DeFord, filed for divorce from his wife of nearly 10 years, Alisa DeFord, who is known as Bunnie Xo.`\
+https://www.nytimes.com/2026/06/16/style/jelly-roll-divorce-bunnie-xo-tennessee.html
+
 **A Long Road to Recovery**\
 `There’s an initial deal between the U.S. and Iran. But bringing the global economy back online after months at reduced speed isn’t going to be quick or easy.`\
 https://www.nytimes.com/2026/06/16/world/iran-war-economy-epstein-world-cup.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-georgia-lieutenant
 **Federal Judge Blocks Idaho Law Criminalizing Transgender Bathroom Use**\
 `Six transgender residents claimed that the bathroom ban, the most restrictive in the nation, violated their constitutional rights.`\
 https://www.nytimes.com/2026/06/16/us/transgender-idaho-bathroom-law.html
-
-**Racing to the World Cup From New York**\
-`Bus, train, bike or Uber: Which will get you to MetLife Stadium first? Four New York Times reporters raced from Midtown Manhattan to the first World Cup game there.`\
-https://www.nytimes.com/video/nyregion/100000010964454/racing-to-the-world-cup-from-new-york.html
 
