@@ -1,3 +1,7 @@
+**¿Tiene futuro el acuerdo con Irán?**\
+`Tras muchos intentos fallidos, este plan de alto al fuego podría ser diferente. La razón es que la guerra realmente se ha vuelto dolorosa tanto para Estados Unidos como para Irán.`\
+https://www.nytimes.com/es/2026/06/16/espanol/mundo/acuerdo-iran-eeuu-guerra.html
+
 **Pochettino’s USMNT Blueprint & Lionel Messi’s Last Dance?**\
 `Demystifying the U.S. men’s  mercurial head coach.`\
 https://www.nytimes.com/2026/06/16/podcasts/pochettino-usmnt-lionel-messis-argentina.html

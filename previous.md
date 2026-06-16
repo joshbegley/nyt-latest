@@ -1,3 +1,7 @@
+**¿Tiene futuro el acuerdo con Irán?**\
+`Tras muchos intentos fallidos, este plan de alto al fuego podría ser diferente. La razón es que la guerra realmente se ha vuelto dolorosa tanto para Estados Unidos como para Irán.`\
+https://www.nytimes.com/es/2026/06/16/espanol/mundo/acuerdo-iran-eeuu-guerra.html
+
 **Pochettino’s USMNT Blueprint & Lionel Messi’s Last Dance?**\
 `Demystifying the U.S. men’s  mercurial head coach.`\
 https://www.nytimes.com/2026/06/16/podcasts/pochettino-usmnt-lionel-messis-argentina.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/live/2026/06/16/world/iran-war-trump-us-deal
 **Mixed Feelings as Iran Ties With New Zealand in World Cup**\
 `Iran and New Zealand played their World Cup opener on Monday, tying 2-2. Some spectators protested the Islamic Republic of Iran while others cheered on the team.`\
 https://www.nytimes.com/video/sports/soccer/100000010970136/iran-world-cup-new-zealand-protest.html
-
-**Millones de mujeres se quedan fuera de las terapias para la menopausia**\
-`Las mujeres que no pueden recibir terapia hormonal debido al cáncer de mama u otras enfermedades dicen sentirse profundamente frustradas.`\
-https://www.nytimes.com/es/2026/06/16/espanol/ciencia-y-tecnologia/menopausia-terapia-hormonal-cancer.html
 
 **Live Updates: Ukraine and Middle East Are Focus as Group of 7 Leaders Meet**\
 `Arriving at the summit, President Trump sought to promote his preliminary deal with Iran. President Volodymyr Zelensky of Ukraine was hoping to shift leaders’ attention to the war with Russia.`\

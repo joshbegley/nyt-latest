@@ -1,3 +1,7 @@
+**Will the Iran Deal Work?**\
+`The world’s attention is on the Middle East.`\
+https://www.nytimes.com/2026/06/16/briefing/will-the-iran-deal-work.html
+
 **¿Tiene futuro el acuerdo con Irán?**\
 `Tras muchos intentos fallidos, este plan de alto al fuego podría ser diferente. La razón es que la guerra realmente se ha vuelto dolorosa tanto para Estados Unidos como para Irán.`\
 https://www.nytimes.com/es/2026/06/16/espanol/mundo/acuerdo-iran-eeuu-guerra.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/interactive/2026/06/16/magazine/jeffrey-epstein-jail-wri
 **Iran War Live Updates: Shipping Companies Remain Cautious Over Strait**\
 `Ship traffic through the crucial Strait of Hormuz was extremely limited two days after the United States and Iran signed a preliminary deal aimed at ending their war.`\
 https://www.nytimes.com/live/2026/06/16/world/iran-war-trump-us-deal
-
-**Mixed Feelings as Iran Ties With New Zealand in World Cup**\
-`Iran and New Zealand played their World Cup opener on Monday, tying 2-2. Some spectators protested the Islamic Republic of Iran while others cheered on the team.`\
-https://www.nytimes.com/video/sports/soccer/100000010970136/iran-world-cup-new-zealand-protest.html
 
 **Live Updates: Ukraine and Middle East Are Focus as Group of 7 Leaders Meet**\
 `Arriving at the summit, President Trump sought to promote his preliminary deal with Iran. President Volodymyr Zelensky of Ukraine was hoping to shift leaders’ attention to the war with Russia.`\
