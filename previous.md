@@ -1,3 +1,7 @@
+**Democrats Keep Helping Out This Far-Right Maryland Republican**\
+`Gov. Wes Moore, a Democrat, has begun running ads on Fox News that promote Dan Cox, a Republican running in a contested primary to challenge him.`\
+https://www.nytimes.com/2026/06/16/us/politics/wes-moore-dan-cox-maryland.html
+
 **Ex-Louisville Cop Indicted in Shooting Death of Naked, Unarmed Man**\
 `A grand jury backed charges of manslaughter and reckless homicide, but declined to indict the officer on a murder charge.`\
 https://www.nytimes.com/2026/06/16/us/nathan-stotts-louisville-police-shooting.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-governor-
 **Oklahoma State Question 832: Live Election Results 2026**\
 `Get live results and maps from the 2026 Oklahoma general election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-ballot-measure.html
-
-**Oklahoma Labor Commissioner Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Oklahoma primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-labor-commissioner-primary.html
 

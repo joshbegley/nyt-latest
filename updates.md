@@ -1,3 +1,7 @@
+**Democrats Keep Helping Out This Far-Right Maryland Republican**\
+`Gov. Wes Moore, a Democrat, has begun running ads on Fox News that promote Dan Cox, a Republican running in a contested primary to challenge him.`\
+https://www.nytimes.com/2026/06/16/us/politics/wes-moore-dan-cox-maryland.html
+
 **Ex-Louisville Cop Indicted in Shooting Death of Naked, Unarmed Man**\
 `A grand jury backed charges of manslaughter and reckless homicide, but declined to indict the officer on a murder charge.`\
 https://www.nytimes.com/2026/06/16/us/nathan-stotts-louisville-police-shooting.html
