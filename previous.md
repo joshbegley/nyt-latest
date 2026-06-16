@@ -1,3 +1,7 @@
+**Japan Raises Rates to 31-Year High to Ward Off War Inflation**\
+`Going against Prime Minister Takaichi’s wishes, Japan’s central bank acted amid U.S. pressure, a tanking currency and inflation from energy disruptions.`\
+https://www.nytimes.com/2026/06/16/business/japan-interest-rates-war.html
+
 **Los mejores programas de televisión de 2026 hasta ahora**\
 `El año arrancó con pocos éxitos rotundos, pero hemos visto sorpresas agradables como ‘Widow’s Bay’, y el regreso de algunos de nuestros favoritos como ‘The Comeback’ y los Muppets.`\
 https://www.nytimes.com/es/2026/06/16/espanol/cultura/los-mejores-programas-de-television-de-2026-hasta-ahora.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/15/us/cape-verde-spain-draw-world-cup.html
 **Dawn Richard’s Lawsuit Against Sean Combs Is Dismissed**\
 `Ms. Richard, a singer who once worked with the music mogul, accused him of creating an abusive work environment. The judge said her claims came too late.`\
 https://www.nytimes.com/2026/06/15/arts/music/sean-combs-lawsuit-dismissed-dawn-richard.html
-
-**Convicted Leader of Greek Militant Group Ordered Back to Prison**\
-`Alexandros Giotopoulos, 82, had been serving 17 life sentences for leading November 17, a leftist group blamed for a wave of bombings and assassinations.`\
-https://www.nytimes.com/2026/06/15/world/europe/november-17-giotopoulos-prison-release.html
 

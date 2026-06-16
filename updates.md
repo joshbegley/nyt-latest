@@ -1,3 +1,7 @@
+**Japan Raises Rates to 31-Year High to Ward Off War Inflation**\
+`Going against Prime Minister Takaichi’s wishes, Japan’s central bank acted amid U.S. pressure, a tanking currency and inflation from energy disruptions.`\
+https://www.nytimes.com/2026/06/16/business/japan-interest-rates-war.html
+
 **Los mejores programas de televisión de 2026 hasta ahora**\
 `El año arrancó con pocos éxitos rotundos, pero hemos visto sorpresas agradables como ‘Widow’s Bay’, y el regreso de algunos de nuestros favoritos como ‘The Comeback’ y los Muppets.`\
 https://www.nytimes.com/es/2026/06/16/espanol/cultura/los-mejores-programas-de-television-de-2026-hasta-ahora.html
