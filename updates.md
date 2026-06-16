@@ -1,3 +1,15 @@
+**‘Reddit Posts Are the Median Voter’**\
+`Is the Democrats’ biggest brand problem excessive conscientiousness? The MS Now host Chris Hayes tells the Opinion columnist Ezra Klein how an institutional, “schoolmarm” personality type alienates swing voters and why an unconventional candidate might be the antidote.`\
+https://www.nytimes.com/video/opinion/100000010962113/reddit-posts-are-the-median-voter.html
+
+**Gregory Williams, Academic With an Uncommon Perspective on Race, Dies at 82**\
+`As a child, he discovered that his father — and therefore he and his siblings — had been passing for white. For the rest of his life, he identified as Black.`\
+https://www.nytimes.com/2026/06/16/books/gregory-williams-dead.html
+
+**Hillary Clinton Says Biden’s Re-election Bid Was a ‘Terrible Mistake’**\
+`If the former president had “passed the torch” and allowed a competitive Democratic primary in 2024, she said in a new interview, the winner “would have beaten Donald Trump.”`\
+https://www.nytimes.com/2026/06/16/us/politics/clinton-biden-reelection-terrible-mistake.html
+
 **Roy Hattersley, Frontline Warrior of British Politics, Dies at 93**\
 `A Labour Party deputy who spent years in opposition, he criticized Conservatives and members of his own party, and was at the heart of major political moments.`\
 https://www.nytimes.com/2026/06/16/world/europe/roy-hattersley-dead.html
