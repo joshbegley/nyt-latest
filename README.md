@@ -1,3 +1,7 @@
+**Ebola Outbreak Could Become Worst on Record, Africa C.D.C. Chief Warns**\
+`Health workers have warned that the outbreak, already one of the worst in decades, could take as long as a year to contain if infection rates do not flatten.`\
+https://www.nytimes.com/2026/06/16/world/africa/ebola-outbreak-congo.html
+
 **Let’s See What Readers Think**\
 `Which one is your favorite?`\
 https://www.nytimes.com/interactive/2026/06/16/realestate/17re-wyg-quiz.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/politics/100000010971407/minnesota-federal-ice-
 **Iran Found Trump’s Bone Spur**\
 `In a contest of wills, the hard men of Tehran prevailed over the vain man of Washington.`\
 https://www.nytimes.com/2026/06/16/opinion/iran-us-war-trump-cease-fire.html
-
-**‘Hockey Night in Canada,’ a Saturday Night Ritual on the CBC, Is No More**\
-`The longtime over-the-air telecast will no longer be free after the national broadcaster, and Rogers Sportsnet, the N.H.L. rights-holder, could not agree on a sub-licensing deal.`\
-https://www.nytimes.com/2026/06/16/world/canada/hockey-night-in-canada-cbc-rogers.html
 
