@@ -1,3 +1,7 @@
+**B-52 Bomber Crashes at Edwards Air Force Base in California**\
+`The aircraft burst into flames on Monday morning shortly after takeoff from Edwards Air Force Base in California, officials said. The cause is still under investigation.`\
+https://www.nytimes.com/2026/06/15/us/b-52-crash-edwards-air-force-base-california.html
+
 **Why President Trump Called Me About Iran**\
 `A day before the United States and Iran signed a framework agreement to end their monthslong war, President Trump called David E. Sanger, White House and national security correspondent for The Times, to discuss the arrangement.`\
 https://www.nytimes.com/video/us/100000010967660/why-president-trump-called-me-about-iran.html

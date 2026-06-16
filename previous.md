@@ -155,7 +155,7 @@ https://www.nytimes.com/2026/06/15/arts/music/sean-combs-lawsuit-dismissed-dawn-
 https://www.nytimes.com/2026/06/15/world/europe/november-17-giotopoulos-prison-release.html
 
 **B-52 Bomber Crashes at Edwards Air Force Base in California**\
-`The crash occurred shortly after takeoff this morning from Edwards Air Force Base in California. Initial indications were that the accident was “not survivable,” officials said.`\
+`The aircraft burst into flames on Monday morning shortly after takeoff from Edwards Air Force Base in California, officials said. The cause is still under investigation.`\
 https://www.nytimes.com/2026/06/15/us/b-52-crash-edwards-air-force-base-california.html
 
 **In Its Tragic Finale, ‘Romeo and Juliet’ Is Interrupted by a Cat**\
