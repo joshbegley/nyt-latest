@@ -1,3 +1,7 @@
+**Big Questions for Warsh as New  Era for the Fed Begins**\
+`Interest rates, inflation, independence are among the challenges the new chairman of the Federal Reserve faces as the central bank’s policymakers meet.`\
+https://www.nytimes.com/2026/06/16/business/dealbook/warsh-fed-questions.html
+
 **Map: 5.5-Magnitude Earthquake Shakes Japan**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/06/16/world/quake-tracker-japan.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/16/magazine/frozen-yogurt-lines-myka.html
 **Gas Prices May Remain High Despite US-Iran Deal**\
 `The preliminary agreement may not have an immediate effect on prices at the pump. Damaged infrastructure and risky transport could keep costs up.`\
 https://www.nytimes.com/2026/06/16/business/energy-environment/us-iran-deal-gas-prices.html
-
-**Minerva Watches Steps Back Into the Spotlight**\
-`Montblanc, which had been co-producing watches with the celebrated brand, says Minerva will now produce its own collection.`\
-https://www.nytimes.com/2026/06/16/fashion/watches-montblanc-minerva.html
 
 **Iran War Live Updates: Talks on Final Agreement Will Begin Friday, Tehran Says**\
 `Iran’s foreign minister said that new negotiations with the United States would start immediately after their preliminary deal is signed. President Trump reiterated that the initial pact ensures Iran will not obtain a nuclear weapon.`\

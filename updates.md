@@ -1,3 +1,7 @@
+**Iran War Live Updates: Talks on Final Agreement Will Begin Friday, Tehran Says**\
+`Iran’s foreign minister said that new negotiations with the United States would start immediately after their preliminary deal is signed. President Trump reiterated that the initial pact ensures Iran will not obtain a nuclear weapon.`\
+https://www.nytimes.com/live/2026/06/16/world/iran-war-trump-us-deal
+
 **Map: 5.5-Magnitude Earthquake Shakes Japan**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/06/16/world/quake-tracker-japan.html
