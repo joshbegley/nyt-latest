@@ -1,3 +1,15 @@
+**¿Cómo puede un solo cerebro hablar dos idiomas?**\
+`Un nuevo estudio sobre personas bilingües sugiere que un único “motor gramatical” en el cerebro puede gestionar varias lenguas a la vez.`\
+https://www.nytimes.com/es/2026/06/16/espanol/ciencia-y-tecnologia/cerebro-bilingue-gramatica.html
+
+**Trump’s War Has Turned Iran Into a Symbol of Defiance**\
+`Iran’s defiance in the face of Western aggression has become a rallying cry.`\
+https://www.nytimes.com/2026/06/16/opinion/trump-iran-war-aggression.html
+
+**This New Party Wants to Write a New Future for Israel**\
+`A new Israeli-Palestinian political party, A Place For Us All, was born out of joint activism and organizing focused on the daily realities on the ground, not grandiose policies.`\
+https://www.nytimes.com/2026/06/16/opinion/jewish-palestinian-party-israel.html
+
 **Japan Raises Rates to 31-Year High to Ward Off War Inflation**\
 `Going against Prime Minister Takaichi’s wishes, Japan’s central bank acted amid U.S. pressure, a tanking currency and inflation from energy disruptions.`\
 https://www.nytimes.com/2026/06/16/business/japan-interest-rates-war.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/15/world/europe/ukraine-dormition-cathedral-stri
 **Investigators Look for Electronic Devices of Victims in Skydiving Crash**\
 `The aircraft that went down in Butler, Mo., on Sunday was not required to have had a voice recorder, a National Transportation Safety Board official said.`\
 https://www.nytimes.com/2026/06/15/us/skydiving-plane-crash-missouri.html
-
-**Major Flooding Expected in Texas and Across the Gulf Coast**\
-`Downpours prompted flash flood warnings in Houston and San Antonio on Monday, and more rain is on the way.`\
-https://www.nytimes.com/2026/06/15/weather/texas-rain-flooding-storm.html
-
-**‘We’ve Arrived!’: Cape Verde Fans Exult in World Cup Draw With Spain**\
-`Cape Verde, a tiny island nation off the West African coast, is among the smallest countries to ever qualify for the World Cup. Fans marveled that it held the line against a tournament favorite.`\
-https://www.nytimes.com/2026/06/15/us/cape-verde-spain-draw-world-cup.html
-
-**Dawn Richard’s Lawsuit Against Sean Combs Is Dismissed**\
-`Ms. Richard, a singer who once worked with the music mogul, accused him of creating an abusive work environment. The judge said her claims came too late.`\
-https://www.nytimes.com/2026/06/15/arts/music/sean-combs-lawsuit-dismissed-dawn-richard.html
 
