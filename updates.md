@@ -1,3 +1,39 @@
+**Oklahoma Third Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-us-house-3-primary.html
+
+**Oklahoma Corporation Commissioner Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-corporation-commissioner-primary.html
+
+**Oklahoma Treasurer Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-treasurer-primary.html
+
+**Oklahoma Superintendent of Public Instruction Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-superintendent-of-public-instruction-primary.html
+
+**Oklahoma Governor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-governor-primary.html
+
+**Oklahoma State Question 832: Live Election Results 2026**\
+`Get live results and maps from the 2026 Oklahoma general election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-ballot-measure.html
+
+**Oklahoma Labor Commissioner Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-labor-commissioner-primary.html
+
+**Oklahoma Insurance Commissioner Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-insurance-commissioner-primary.html
+
+**Oklahoma Attorney General Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-attorney-general-primary.html
+
 **Merlin, the Duck in a Mexico World Cup Team Jersey, Finds Unexpected Fame**\
 `The feathered pet has waddled his way into the pantheon of famous animals associated with the soccer tournament.`\
 https://www.nytimes.com/2026/06/16/world/americas/duck-mexico-world-cup-merlin.html
