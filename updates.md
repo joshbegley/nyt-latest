@@ -1,3 +1,15 @@
+**Good Luck, Kevin Warsh. You’ll Need It.**\
+`Between a surge in interest rates, increasingly restive colleagues and the demands of President Trump, the new Fed chairman, Kevin Warsh, is in a bind.`\
+https://www.nytimes.com/2026/06/16/opinion/kevin-warsh-fed-chair-interest-rates-trump.html
+
+**Red Curry Chicken and Rice Bowls**\
+`These cozy yet reviving rice bowls pair Thai red curry-stained rice with tender chicken and a citrusy slaw.`\
+https://www.nytimes.com/video/dining/100000010972523/red-curry-chicken-and-rice-bowls.html
+
+**Election Live Updates: Polls to Close Soon in Georgia G.O.P. Senate Primary Runoff**\
+`Republicans in Georgia will pick a nominee to challenge Senator Jon Ossoff, a Democrat, and another to run for governor. Elections are underway in Alabama and Oklahoma as well.`\
+https://www.nytimes.com/live/2026/06/16/us/georgia-oklahoma-alabama-elections
+
 **Julia Child’s Berry Clafoutis**\
 `This recipe is for a delicately sweet dessert whose elegance should not distract from its ease (it can be made while the rest of dinner is in the oven). Make sure you have fresh berries, and serve the result warm.`\
 https://www.nytimes.com/video/dining/100000010972541/julia-childs-berry-clafoutis.html
