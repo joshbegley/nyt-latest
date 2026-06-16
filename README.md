@@ -1,3 +1,7 @@
+**El presidente Trump perdió esta guerra**\
+`Estados Unidos sale más endeble —militar, diplomática y económicamente— de lo que estaba al inicio de los ataques en Medio Oriente.`\
+https://www.nytimes.com/es/2026/06/16/espanol/opinion/trump-guerra-iran-acuerdo.html
+
 **Live Updates: Ukraine and Middle East Are Focus as Group of 7 Leaders Meet**\
 `Arriving at the summit, President Trump sought to promote his preliminary deal with Iran. President Volodymyr Zelensky of Ukraine was hoping to shift leaders’ attention to the war with Russia.`\
 https://www.nytimes.com/live/2026/06/16/world/g7-summit-conference-trump-france
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/15/podcasts/serial-last-12-weeks.html
 **How Kratom, an Addictive Gas Station Drug, Found Allies in Trump’s Cabinet**\
 `With support from Markwayne Mullin and Robert F. Kennedy Jr., the kratom industry is pursuing a potentially lucrative policy. Mr. Mullin owns equity in a company that could benefit.`\
 https://www.nytimes.com/2026/06/15/us/politics/kratom-trump-administration.html
-
-**Washington Has Been Carefully Planned for Two Centuries. Now Trump Has His Own Designs.**\
-`The city is unlike any in America for its accumulation of intricate details, a whole that is a work of civic art.`\
-https://www.nytimes.com/interactive/2026/06/15/upshot/trump-lenfant-dc.html
 
