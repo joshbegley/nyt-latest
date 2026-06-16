@@ -1,3 +1,7 @@
+**Word of the Day: mastication**\
+`This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/06/16/learning/word-of-the-day-mastication.html
+
 **¿Cómo puede un solo cerebro hablar dos idiomas?**\
 `Un nuevo estudio sobre personas bilingües sugiere que un único “motor gramatical” en el cerebro puede gestionar varias lenguas a la vez.`\
 https://www.nytimes.com/es/2026/06/16/espanol/ciencia-y-tecnologia/cerebro-bilingue-gramatica.html

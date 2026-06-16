@@ -1,3 +1,7 @@
+**Word of the Day: mastication**\
+`This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/06/16/learning/word-of-the-day-mastication.html
+
 **¿Cómo puede un solo cerebro hablar dos idiomas?**\
 `Un nuevo estudio sobre personas bilingües sugiere que un único “motor gramatical” en el cerebro puede gestionar varias lenguas a la vez.`\
 https://www.nytimes.com/es/2026/06/16/espanol/ciencia-y-tecnologia/cerebro-bilingue-gramatica.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/15/climate/reflecting-pool-algae-green.html
 **As Russia Strikes Ukraine, a Cultural Symbol Catches Fire**\
 `The latest casualty in the war is a centuries-old cathedral. President Volodymyr Zelensky called it “one of the largest Russian crimes against Christian culture.”`\
 https://www.nytimes.com/2026/06/15/world/europe/ukraine-dormition-cathedral-strike.html
-
-**Investigators Look for Electronic Devices of Victims in Skydiving Crash**\
-`The aircraft that went down in Butler, Mo., on Sunday was not required to have had a voice recorder, a National Transportation Safety Board official said.`\
-https://www.nytimes.com/2026/06/15/us/skydiving-plane-crash-missouri.html
 
