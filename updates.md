@@ -1,3 +1,7 @@
+**The Fitness Dating App Boom**\
+`A slew of dating apps for fitness enthusiasts has recently hit the market. Danielle Friedman, a reporter for Well, interviewed people about why they’re drawn to these apps and what it says about the culture at large.`\
+https://www.nytimes.com/video/well/move/100000010948599/the-fitness-dating-app-boom.html
+
 **NYT Crossword Answers for June 16, 2026**\
 `Brad Lively makes an earnest effort.`\
 https://www.nytimes.com/2026/06/15/crosswords/daily-puzzle-2026-06-16.html

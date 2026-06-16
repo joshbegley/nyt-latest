@@ -1,3 +1,7 @@
+**The Fitness Dating App Boom**\
+`A slew of dating apps for fitness enthusiasts has recently hit the market. Danielle Friedman, a reporter for Well, interviewed people about why they’re drawn to these apps and what it says about the culture at large.`\
+https://www.nytimes.com/video/well/move/100000010948599/the-fitness-dating-app-boom.html
+
 **NYT Crossword Answers for June 16, 2026**\
 `Brad Lively makes an earnest effort.`\
 https://www.nytimes.com/2026/06/15/crosswords/daily-puzzle-2026-06-16.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/15/arts/music/america250-concert-los-angeles-tru
 **N.Y. Officials Reject Students’ Pleas to Move Exams for Knicks Parade**\
 `The championship celebration starts at 10 a.m. Thursday, just as some of the state Regents tests begin. Students had organized petitions calling for the exams to be delayed.`\
 https://www.nytimes.com/2026/06/15/nyregion/ny-regent-exams-knicks-parade.html
-
-**Trump Thanks China and Russia, Partners of Iran, for Diplomatic Help**\
-`China and Russia have both given support to Iran during the war that the United States and Israel started. But President Trump has made no mention of that.`\
-https://www.nytimes.com/2026/06/15/us/trump-thanks-china-russia.html
 
