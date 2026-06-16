@@ -1,3 +1,7 @@
+**Ex-Louisville Cop Indicted in Shooting Death of Naked, Unarmed Man**\
+`A grand jury backed charges of manslaughter and reckless homicide, but declined to indict the officer on a murder charge.`\
+https://www.nytimes.com/2026/06/16/us/nathan-stotts-louisville-police-shooting.html
+
 **1-Year-Old Boy Killed After Officer Fires at Vehicle in Mississippi**\
 `It is not clear what led up to the shooting, but the Mississippi Bureau of Investigation said that police officers were responding to a shoplifting call.`\
 https://www.nytimes.com/2026/06/16/us/mississippi-shooting-shoplifting.html
@@ -42,7 +46,7 @@ https://www.nytimes.com/video/opinion/100000010962118/ossoff-a-cross-ideological
 `Is the Democrats’ biggest brand problem excessive conscientiousness? The MS Now host Chris Hayes tells the Opinion columnist Ezra Klein how an institutional, “schoolmarm” personality type alienates swing voters and why an unconventional candidate might be the antidote.`\
 https://www.nytimes.com/video/opinion/100000010962113/reddit-posts-are-the-median-voter.html
 
-**Gregory Williams, Academic With an Uncommon Perspective on Race, Dies at 82**\
+**Gregory Williams, Academic With an Uncommon Perspective on Race, Dies at 81**\
 `As a child, he discovered that his father — and therefore he and his siblings — had been passing for white. For the rest of his life, he identified as Black.`\
 https://www.nytimes.com/2026/06/16/books/gregory-williams-dead.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-ballot-me
 **Oklahoma Labor Commissioner Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Oklahoma primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-labor-commissioner-primary.html
-
-**Oklahoma Insurance Commissioner Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Oklahoma primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-insurance-commissioner-primary.html
 
