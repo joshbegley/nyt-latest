@@ -1,3 +1,7 @@
+**NYC Area Codes Quiz**\
+`New York City has a new area code: 465.`\
+https://www.nytimes.com/interactive/2026/06/16/nyregion/17met-area-codes-quiz.html
+
 **Judge Orders Kennedy Center to Make a Plan for Staying Open**\
 `As the Trump administration seeks to move forward with renovations at the center, a judge has asked for its programming calendar.`\
 https://www.nytimes.com/2026/06/16/arts/music/kennedy-center-closing-plan-judge.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-auditor-i
 **Georgia First Congressional District Runoff 2026: Live Election Results, Griggs vs. Hollowell**\
 `Get live results and maps from the 2026 Georgia runoff election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-georgia-us-house-1-runoff.html
-
-**Georgia 12th Congressional District Runoff 2026: Live Election Results, George vs. Smith**\
-`Get live results and maps from the 2026 Georgia runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-georgia-us-house-12-runoff.html
 
