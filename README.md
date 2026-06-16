@@ -1,3 +1,15 @@
+**Australia’s Former Electricity Substations Are Being Turned Into Homes**\
+`In a country where the housing market is squeezed, decommissioned electrical substations are in demand as refurbished residences.`\
+https://www.nytimes.com/2026/06/16/world/australia/electricity-substations-housing.html
+
+**La dignidad de Estados Unidos cayó a la lona**\
+`La noche de peleas del cumpleaños del presidente Trump en el jardín de la Casa Blanca fue un espectáculo absurdo, sí, pero también inquietante.`\
+https://www.nytimes.com/es/2026/06/16/espanol/opinion/trump-ufc-estados-unidos.html
+
+**Quote of the Day: Russians Exploit Gap Over Ukraine**\
+`Quotation of the Day for Tuesday, June 16, 2026`\
+https://www.nytimes.com/2026/06/16/pageoneplus/quote-of-the-day-russians-exploit-gap-over-ukraine.html
+
 **Here Are the 2026 James Beard Restaurant Award Winners**\
 `Kalaya took the outstanding restaurant award and Michael Tusk took home the outstanding chef honor during an evening when immigration and resistance emerged as themes.`\
 https://www.nytimes.com/2026/06/15/dining/2026-james-beard-restaurant-award-winners.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/video/world/europe/100000010968361/cat-interrupts-romeo-
 **Singer Oliver Tree Is Believed to Have Died in Brazil Helicopter Collision**\
 `The American singer Oliver Tree is said to have been one of the six people killed in a helicopter collision in Rio de Janeiro on Sunday, according to The Associated Press and a local police officer who spoke on the condition of anonymity.`\
 https://www.nytimes.com/video/world/americas/100000010968015/oliver-tree-death-helicopter-crash-brazil.html
-
-**Misty Copeland: Making Space for Legacy**\
-`To succeed, I needed more than just my own drive. I needed spaces that nurtured and supported it.`\
-https://www.nytimes.com/2026/06/15/special-series/misty-copeland-legacy-drive.html
-
-**DR Congo Soccer Team’s Leopard Suits Bring Pride to the World Cup**\
-`“In Congo culture, the spirit of leopard is a spirit of strength,” the designer, Alvin Mak, said of the ensembles that beguiled audiences online.`\
-https://www.nytimes.com/2026/06/15/style/congo-team-leopard-suits-world-cup.html
-
-**America250 Plans July 4 Concert in L.A., Competing With Trump**\
-`The nonprofit, established by Congress a decade ago and separate from President Trump’s Freedom 250, will bring Smashing Pumpkins and other acts to Los Angeles on July 4.`\
-https://www.nytimes.com/2026/06/15/arts/music/america250-concert-los-angeles-trump.html
 
