@@ -158,7 +158,7 @@ https://www.nytimes.com/2026/06/15/arts/music/sean-combs-lawsuit-dismissed-dawn-
 `Alexandros Giotopoulos, 82, had been serving 17 life sentences for leading November 17, a leftist group blamed for a wave of bombings and assassinations.`\
 https://www.nytimes.com/2026/06/15/world/europe/november-17-giotopoulos-prison-release.html
 
-**B-52 Bomber Crashes at Edwards Air Force Base in California**\
+**8 Dead in B-52 Bomber Crash at Edwards Air Force Base in California**\
 `The aircraft burst into flames on Monday morning shortly after takeoff from Edwards Air Force Base in California, officials said. The cause is still under investigation.`\
 https://www.nytimes.com/2026/06/15/us/b-52-crash-edwards-air-force-base-california.html
 
