@@ -1,3 +1,7 @@
+**The Crypto Industry Makes Its Biggest Midterm Bet Yet**\
+`The industry’s main super PAC has spent $9.8 million on ads to help the Senate bid of Representative Barry Moore of Alabama, a Republican seen as pro-cryptocurrency.`\
+https://www.nytimes.com/2026/06/16/us/politics/crypto-barry-moore-fairshake-alabama-senate.html
+
 **Obama’s Nuclear Deal Looms Over Trump’s Iran Negotiations**\
 `President Trump is under pressure to significantly improve upon the Obama-era deal in order to justify the huge human and economic cost of taking the United States to war.`\
 https://www.nytimes.com/2026/06/16/us/politics/obama-nuclear-deal-trump-iran.html
