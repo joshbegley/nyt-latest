@@ -1,3 +1,7 @@
+**Alabama U.S. Senate Runoff 2026: Live Election Results, Larriett vs. Wess**\
+`Get live results and maps from the 2026 Alabama runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-alabama-us-senate-runoff.html
+
 **Tropical Storm Watch Issued Along Gulf Coast as Heavy Rain Hits Texas**\
 `A storm system churning along the coastline could become the first named storm of this year’s Atlantic hurricane season this week.`\
 https://www.nytimes.com/2026/06/16/weather/tropical-storm-arthur-louisiana-texas-gulf.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/16/us/minnesota-immigration-charges-antifa.html
 **Andrew Lewis, atleta de “slacklining”, muere en un salto BASE**\
 `Andrew Lewis, de 39 años, conocido sobre todo por realizar una rutina llena de acrobacias durante el espectáculo de medio tiempo de Madonna en el Super Bowl de 2012, falleció en el accidente.`\
 https://www.nytimes.com/es/2026/06/16/espanol/estados-unidos/andy-lewis-muere-salto-base.html
-
-**After U.S. Strike on Iranian School, Months Pass Without Answers**\
-`U.S. officials have not publicly acknowledged responsibility for the deaths or released a report on their findings from an investigation into the Feb. 28 strike.`\
-https://www.nytimes.com/2026/06/16/us/politics/us-strike-iranian-school.html
 

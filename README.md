@@ -1,3 +1,15 @@
+**Iran Found Trump’s Bone Spur**\
+`In a contest of wills, the hard men of Tehran prevailed over the vain man of Washington.`\
+https://www.nytimes.com/2026/06/16/opinion/iran-us-war-trump-cease-fire.html
+
+**‘Hockey Night in Canada,’ a Saturday Night Ritual on The CBC, Is No More**\
+`The longtime over-the-air telecast will no longer be free after the national broadcaster, and Rogers Sportsnet, the N.H.L. rights-holder, could not agree on a sub-licensing deal.`\
+https://www.nytimes.com/2026/06/16/world/canada/hockey-night-in-canada-cbc-rogers.html
+
+**7 Great Artists Playing SummerStage This Year**\
+`Hear songs from Angélique Kidjo, Mavis Staples, Sharp Pins and more.`\
+https://www.nytimes.com/2026/06/16/arts/music/amplifier-newsletter-summerstage-spoon-sharp-pins.html
+
 **Alabama U.S. Senate Runoff 2026: Live Election Results, Larriett vs. Wess**\
 `Get live results and maps from the 2026 Alabama runoff election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-alabama-us-senate-runoff.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-alabama-us-house-5
 **SpaceX Is Now More Valuable Than Amazon, Meta and Many Others**\
 `In its first few days of trading, Elon Musk’s newly listed rocket maker has vaulted into the world’s top five most valuable companies.`\
 https://www.nytimes.com/2026/06/16/business/spacex-market-value-ranking.html
-
-**Best-Selling Memoirist Sues Classmate Who Said She Used Her Story**\
-`Amy Griffin contended that she was defamed when a former classmate accused her in a lawsuit of appropriating parts of her story of being sexually abused for “The Tell.”`\
-https://www.nytimes.com/2026/06/16/nyregion/amy-griffin-the-tell-book-lawsuit.html
-
-**Claiming an Antifa Plot, U.S. Charges 15 in Minneapolis With Conspiracy**\
-`The 94-page conspiracy indictment was filed as federal prosecutors in Minnesota had trouble sustaining many criminal cases filed against Immigration and Customs Enforcement protesters.`\
-https://www.nytimes.com/2026/06/16/us/minnesota-immigration-charges-antifa.html
-
-**Andrew Lewis, atleta de “slacklining”, muere en un salto BASE**\
-`Andrew Lewis, de 39 años, conocido sobre todo por realizar una rutina llena de acrobacias durante el espectáculo de medio tiempo de Madonna en el Super Bowl de 2012, falleció en el accidente.`\
-https://www.nytimes.com/es/2026/06/16/espanol/estados-unidos/andy-lewis-muere-salto-base.html
 

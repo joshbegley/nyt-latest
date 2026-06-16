@@ -1,3 +1,7 @@
+**Alabama U.S. Senate Runoff 2026: Live Election Results, Larriett vs. Wess**\
+`Get live results and maps from the 2026 Alabama runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-alabama-us-senate-runoff.html
+
 **Tropical Storm Watch Issued Along Gulf Coast as Heavy Rain Hits Texas**\
 `A storm system churning along the coastline could become the first named storm of this year’s Atlantic hurricane season this week.`\
 https://www.nytimes.com/2026/06/16/weather/tropical-storm-arthur-louisiana-texas-gulf.html
