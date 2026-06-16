@@ -1,3 +1,11 @@
+**Mixed Feelings as Iran Ties With New Zealand in World Cup**\
+`Iran and New Zealand played their World Cup opener on Monday, tying 2-2. Some spectators protested the Islamic Republic of Iran while others cheered on the team.`\
+https://www.nytimes.com/video/sports/soccer/100000010970136/iran-world-cup-new-zealand-protest.html
+
+**Millones de mujeres se quedan fuera de las terapias para la menopausia**\
+`Las mujeres que no pueden recibir terapia hormonal debido al cáncer de mama u otras enfermedades dicen sentirse profundamente frustradas.`\
+https://www.nytimes.com/es/2026/06/16/espanol/ciencia-y-tecnologia/menopausia-terapia-hormonal-cancer.html
+
 **El presidente Trump perdió esta guerra**\
 `Estados Unidos sale más endeble —militar, diplomática y económicamente— de lo que estaba al inicio de los ataques en Medio Oriente.`\
 https://www.nytimes.com/es/2026/06/16/espanol/opinion/trump-guerra-iran-acuerdo.html
