@@ -1,3 +1,11 @@
+**Federal Judge Blocks Idaho Law Criminalizing Transgender Bathroom Use**\
+`Six transgender residents claimed that the bathroom ban, the most restrictive in the nation, violated their constitutional rights.`\
+https://www.nytimes.com/2026/06/16/us/transgender-idaho-bathroom-law.html
+
+**Racing to the World Cup From New York**\
+`Bus, train, bike or Uber: Which will get you to MetLife Stadium first? Four New York Times reporters raced from Midtown Manhattan to the first World Cup game there.`\
+https://www.nytimes.com/video/nyregion/100000010964454/racing-to-the-world-cup-from-new-york.html
+
 **12 Injured, Possibly by Electricity, at Canadian Water Park**\
 `Ten middle school students and two others sustained serious but not life-threatening injuries at Cultus Lake Waterpark in British Columbia, officials said.`\
 https://www.nytimes.com/2026/06/16/world/canada/british-columbia-water-park-cultus-lake-injuries.html
