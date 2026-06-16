@@ -6,6 +6,74 @@ https://www.nytimes.com/2026/06/16/world/americas/duck-mexico-world-cup-merlin.h
 `A duck, known as Merlin, has become famous for wearing a Mexico jersey as he waddles behind his owner as the World Cup continues.`\
 https://www.nytimes.com/video/world/americas/100000010971004/world-cup-mexico-jersey-duck.html
 
+**Washington, D.C. Mayor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Washington, D.C. primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-washington-dc-mayor-primary.html
+
+**Oklahoma U.S. Senate Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-us-senate-primary.html
+
+**Washington, D.C. Attorney General Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Washington, D.C. primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-washington-dc-attorney-general-primary.html
+
+**Oklahoma Fifth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-us-house-5-primary.html
+
+**Oklahoma Third Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-us-house-3-primary.html
+
+**Oklahoma Lieutenant Governor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-lieutenant-governor-primary.html
+
+**Oklahoma Fourth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-us-house-4-primary.html
+
+**Oklahoma Corporation Commissioner Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-corporation-commissioner-primary.html
+
+**Oklahoma First Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-us-house-1-primary.html
+
+**Oklahoma Second Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-us-house-2-primary.html
+
+**Oklahoma Treasurer Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-treasurer-primary.html
+
+**Oklahoma Superintendent of Public Instruction Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-superintendent-of-public-instruction-primary.html
+
+**Oklahoma Governor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-governor-primary.html
+
+**Oklahoma State Question 832: Live Election Results 2026**\
+`Get live results and maps from the 2026 Oklahoma general election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-ballot-measure.html
+
+**Oklahoma Labor Commissioner Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-labor-commissioner-primary.html
+
+**Oklahoma Insurance Commissioner Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-insurance-commissioner-primary.html
+
+**Oklahoma Attorney General Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-attorney-general-primary.html
+
 **Oklahoma Auditor Inspector Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Oklahoma primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-auditor-inspector-primary.html
@@ -129,72 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-alabama-us-senate-
 **Tropical Storm Watch Issued Along Gulf Coast as Heavy Rain Hits Texas**\
 `A storm system churning along the coastline could become the first named storm of this year’s Atlantic hurricane season this week.`\
 https://www.nytimes.com/2026/06/16/weather/tropical-storm-arthur-louisiana-texas-gulf.html
-
-**Trump Administration Shifts Special Education Programs to Health Department**\
-`Officials announced that the Education Department’s civil rights office would also be broken off, the most aggressive move yet to dismantle the department.`\
-https://www.nytimes.com/2026/06/16/us/politics/education-department-civil-rights-trump.html
-
-**Oklahoma Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Oklahoma primary elections.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-primary.html
-
-**Washington, D.C. Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Washington, D.C. primary elections.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-washington-dc-primary.html
-
-**Georgia 2026: Live Primary Runoff Election Results**\
-`Get live results and maps from the 2026 Georgia primary runoff elections.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-georgia-primary-runoff.html
-
-**Georgia Governor Runoff 2026: Live Election Results, Jackson vs. Jones**\
-`Get live results and maps from the 2026 Georgia runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-georgia-governor-runoff.html
-
-**Alabama 2026: Live Primary Runoff Election Results**\
-`Get live results and maps from the 2026 Alabama primary runoff elections.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-alabama-primary-runoff.html
-
-**Results in Key Races**\
-`SUMMARY TK`\
-https://www.nytimes.com/interactive/2026/us/elections/results-key-races-june-16.html
-
-**Claudette’s Second Act**\
-`The chef Igor Almeida Cabral breathes new life into this bistro, a very large venue for Korean barbecue opens in Williamsburg, Brooklyn, and more restaurant news.`\
-https://www.nytimes.com/2026/06/16/dining/nyc-restaurant-openings-claudette.html
-
-**D.O.J. Seeks to Halt Pollution Lawsuit Against Elon Musk’s Data Center**\
-`The department cited national security concerns, saying Elon Musk’s company had played a crucial role in the Iran war. It also argued it has the authority to stop environmental lawsuits brought by citizens.`\
-https://www.nytimes.com/2026/06/16/climate/xai-musk-mississippi-grok-turbine-lawsuit-naacp.html
-
-**Oklahoma U.S. Senate Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Oklahoma primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-us-senate-primary.html
-
-**Washington, D.C. Attorney General Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Washington, D.C. primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-washington-dc-attorney-general-primary.html
-
-**Oklahoma Second Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Oklahoma primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-us-house-2-primary.html
-
-**Oklahoma Fourth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Oklahoma primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-us-house-4-primary.html
-
-**Oklahoma Lieutenant Governor Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Oklahoma primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-lieutenant-governor-primary.html
-
-**Oklahoma Fifth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Oklahoma primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-us-house-5-primary.html
-
-**Washington, D.C. Mayor Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Washington, D.C. primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-washington-dc-mayor-primary.html
-
-**Oklahoma First Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Oklahoma primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-us-house-1-primary.html
 
