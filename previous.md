@@ -1,3 +1,7 @@
+**How a Deal to End the War in Iran Could Affect Energy Prices**\
+`The latest on a tentative deal to end the war in Iran, the Justice Department tries to stop a lawsuit against Elon Musk’s A.I. company and more climate news.`\
+https://www.nytimes.com/2026/06/16/climate/iran-war-energy-prices.html
+
 **Ebola Outbreak Could Become Worst on Record, Africa C.D.C. Chief Warns**\
 `Health workers have warned that the outbreak, already one of the worst in decades, could take as long as a year to contain if infection rates do not flatten.`\
 https://www.nytimes.com/2026/06/16/world/africa/ebola-outbreak-congo.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/interactive/2026/06/16/espanol/tormenta-tropical-golf
 **U.S. Charges 15 in Minneapolis With Conspiracy**\
 `Federal prosecutors in Minnesota unsealed charges against 15 people who they claim were members of two Minneapolis-based antifa groups, a far-left movement.`\
 https://www.nytimes.com/video/us/politics/100000010971407/minnesota-federal-ice-antifa-charges.html
-
-**Iran Found Trump’s Bone Spur**\
-`In a contest of wills, the hard men of Tehran prevailed over the vain man of Washington.`\
-https://www.nytimes.com/2026/06/16/opinion/iran-us-war-trump-cease-fire.html
 

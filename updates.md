@@ -1,3 +1,7 @@
+**How a Deal to End the War in Iran Could Affect Energy Prices**\
+`The latest on a tentative deal to end the war in Iran, the Justice Department tries to stop a lawsuit against Elon Musk’s A.I. company and more climate news.`\
+https://www.nytimes.com/2026/06/16/climate/iran-war-energy-prices.html
+
 **Ebola Outbreak Could Become Worst on Record, Africa C.D.C. Chief Warns**\
 `Health workers have warned that the outbreak, already one of the worst in decades, could take as long as a year to contain if infection rates do not flatten.`\
 https://www.nytimes.com/2026/06/16/world/africa/ebola-outbreak-congo.html
