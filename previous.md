@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/06/16/arts/music/taylor-swift-wedding-readers.html
 `New research has identified areas around the world where cooler currents and other favorable conditions are helping to protect coral from the worst effects of global warming.`\
 https://www.nytimes.com/2026/06/16/climate/coral-reef-global-warming.html
 
-**U.S. Has ‘Nothing to Do’ with Ukraine War, Trump Says at G7 Summit**\
+**Trump Says U.S. Has ‘Nothing to Do’ with Ukraine War at G7 Summit**\
 `President Trump’s remarks underscored a new security reality for U.S. allies in Europe, who for eight decades relied on American protection.`\
 https://www.nytimes.com/2026/06/16/world/europe/trump-ukraine-war-g7.html
 

@@ -1,3 +1,7 @@
+**Trump Says U.S. Has ‘Nothing to Do’ with Ukraine War at G7 Summit**\
+`President Trump’s remarks underscored a new security reality for U.S. allies in Europe, who for eight decades relied on American protection.`\
+https://www.nytimes.com/2026/06/16/world/europe/trump-ukraine-war-g7.html
+
 **Iran Will Enter Nuclear Talks With the Trump Administration Feeling Emboldened**\
 `Despite military setbacks during the war, Tehran is presenting a narrative of victory before negotiations with Washington.`\
 https://www.nytimes.com/2026/06/16/world/middleeast/iran-us-deal-nuclear-talks.html
