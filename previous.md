@@ -1,3 +1,11 @@
+**Mapa: la trayectoria del potencial ciclón tropical Uno en vivo**\
+`Consulta la trayectoria probable y las horas de llegada de los vientos de Uno.`\
+https://www.nytimes.com/es/interactive/2026/06/16/espanol/tormenta-tropical-golfo-mexico.html
+
+**U.S. Charges 15 in Minneapolis With Conspiracy**\
+`Federal prosecutors in Minnesota unsealed charges against 15 people who they claim were members of two Minneapolis-based antifa groups, a far-left movement.`\
+https://www.nytimes.com/video/us/politics/100000010971407/minnesota-federal-ice-antifa-charges.html
+
 **Iran Found Trump’s Bone Spur**\
 `In a contest of wills, the hard men of Tehran prevailed over the vain man of Washington.`\
 https://www.nytimes.com/2026/06/16/opinion/iran-us-war-trump-cease-fire.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-alabama-agricultur
 **Alabama Attorney General Runoff 2026: Live Election Results**\
 `Get live results and maps from the 2026 Alabama runoff election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-alabama-attorney-general-runoff.html
-
-**Alabama Fifth Congressional District Runoff 2026: Live Election Results, Duvieilh vs. Sneed**\
-`Get live results and maps from the 2026 Alabama runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-alabama-us-house-5-runoff.html
-
-**SpaceX Is Now More Valuable Than Amazon, Meta and Many Others**\
-`In its first few days of trading, Elon Musk’s newly listed rocket maker has vaulted into the world’s top five most valuable companies.`\
-https://www.nytimes.com/2026/06/16/business/spacex-market-value-ranking.html
 

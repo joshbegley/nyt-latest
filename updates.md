@@ -1,3 +1,11 @@
+**Mapa: la trayectoria del potencial ciclón tropical Uno en vivo**\
+`Consulta la trayectoria probable y las horas de llegada de los vientos de Uno.`\
+https://www.nytimes.com/es/interactive/2026/06/16/espanol/tormenta-tropical-golfo-mexico.html
+
+**U.S. Charges 15 in Minneapolis With Conspiracy**\
+`Federal prosecutors in Minnesota unsealed charges against 15 people who they claim were members of two Minneapolis-based antifa groups, a far-left movement.`\
+https://www.nytimes.com/video/us/politics/100000010971407/minnesota-federal-ice-antifa-charges.html
+
 **Iran Found Trump’s Bone Spur**\
 `In a contest of wills, the hard men of Tehran prevailed over the vain man of Washington.`\
 https://www.nytimes.com/2026/06/16/opinion/iran-us-war-trump-cease-fire.html
