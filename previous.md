@@ -6,13 +6,13 @@ https://www.nytimes.com/2026/06/16/learning/word-of-the-day-mastication.html
 `Un nuevo estudio sobre personas bilingües sugiere que un único “motor gramatical” en el cerebro puede gestionar varias lenguas a la vez.`\
 https://www.nytimes.com/es/2026/06/16/espanol/ciencia-y-tecnologia/cerebro-bilingue-gramatica.html
 
-**How Tehran Won the World**\
-`Iran’s defiance in the face of Western aggression has become a rallying cry.`\
-https://www.nytimes.com/2026/06/16/opinion/trump-iran-war-aggression.html
-
 **This New Party Wants to Write a New Future for Israel**\
 `A new Israeli-Palestinian political party, A Place For Us All, was born out of joint activism and organizing focused on the daily realities on the ground, not grandiose policies.`\
 https://www.nytimes.com/2026/06/16/opinion/jewish-palestinian-party-israel.html
+
+**How Tehran Won the World**\
+`Iran’s defiance in the face of Western aggression has become a rallying cry.`\
+https://www.nytimes.com/2026/06/16/opinion/trump-iran-war-aggression.html
 
 **Japan Raises Rates to 31-Year High to Ward Off War Inflation**\
 `Going against Prime Minister Takaichi’s wishes, Japan’s central bank acted amid U.S. pressure, a tanking currency and inflation from energy disruptions.`\
