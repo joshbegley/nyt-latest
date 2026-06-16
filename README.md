@@ -1,3 +1,7 @@
+**Tropical Storm Watch Issued Along Gulf Coast as Heavy Rain Hits Texas**\
+`A storm system churning along the coastline could become the first named storm of this year’s Atlantic hurricane season this week.`\
+https://www.nytimes.com/2026/06/16/weather/tropical-storm-arthur-louisiana-texas-gulf.html
+
 **Trump Administration Shifts Special Education Programs to Health Department**\
 `Officials announced that the Education Department’s civil rights office would also be broken off, the most aggressive move yet to dismantle the department.`\
 https://www.nytimes.com/2026/06/16/us/politics/education-department-civil-rights-trump.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/06/16/espanol/estados-unidos/andy-lewis-muere-sa
 **After U.S. Strike on Iranian School, Months Pass Without Answers**\
 `U.S. officials have not publicly acknowledged responsibility for the deaths or released a report on their findings from an investigation into the Feb. 28 strike.`\
 https://www.nytimes.com/2026/06/16/us/politics/us-strike-iranian-school.html
-
-**Trump ordenó que el estanque reflectante se pintara de ‘azul bandera’. Ahora es verde de nuevo**\
-`Las algas siguen afectando el estanque, entre el monumento a Lincoln y el monumento a Washington, tras un proyecto de reparación de 14,2 millones de dólares.`\
-https://www.nytimes.com/es/2026/06/16/espanol/tiempo-y-clima/trump-estanque-azul-algas-verde.html
 
