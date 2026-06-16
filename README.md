@@ -1,3 +1,7 @@
+**Oklahoma Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-primary.html
+
 **Washington, D.C. Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Washington, D.C. primary elections.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-washington-dc-primary.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/06/16/espanol/tiempo-y-clima/trump-estanque-azul
 **Russian Navy Ship Accused of Firing Warning Shots at U.K. Yacht**\
 `Britain’s Defense Ministry said it was investigating a report that a Russian vessel fired warning shots near a U.K.-registered yacht in the English Channel on Tuesday.`\
 https://www.nytimes.com/2026/06/16/world/europe/russian-navy-english-channel-yacht-uk.html
-
-**La guerra en Irán ha cambiado la economía mundial para siempre**\
-`El orden mundial se ha visto alterado, y es poco probable que las economías simplemente retomen las actividades que tenían antes de que EE. UU. e Israel empezaran a bombardear Irán.`\
-https://www.nytimes.com/es/2026/06/16/espanol/negocios/iran-guerra-petroleo-economia.html
 
