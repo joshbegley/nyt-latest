@@ -1,3 +1,11 @@
+**Prosecutors Say 15 Defendants Were Part of an Antifa Plot in Minneapolis**\
+`The 94-page conspiracy indictment was filed as federal prosecutors in Minnesota had trouble sustaining many criminal cases filed against Immigration and Customs Enforcement protesters.`\
+https://www.nytimes.com/2026/06/16/us/minnesota-immigration-charges-antifa.html
+
+**Andrew Lewis, atleta de “slacklining”, muere en un salto BASE**\
+`Andrew Lewis, de 39 años, conocido sobre todo por realizar una rutina llena de acrobacias durante el espectáculo de medio tiempo de Madonna en el Super Bowl de 2012, falleció en el accidente.`\
+https://www.nytimes.com/es/2026/06/16/espanol/estados-unidos/andy-lewis-muere-salto-base.html
+
 **After U.S. Strike on Iranian School, Months Pass Without Answers**\
 `U.S. officials have not publicly acknowledged responsibility for the deaths or released a report on their findings from an investigation into the Feb. 28 strike.`\
 https://www.nytimes.com/2026/06/16/us/politics/us-strike-iranian-school.html

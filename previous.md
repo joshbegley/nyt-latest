@@ -1,3 +1,11 @@
+**Prosecutors Say 15 Defendants Were Part of an Antifa Plot in Minneapolis**\
+`The 94-page conspiracy indictment was filed as federal prosecutors in Minnesota had trouble sustaining many criminal cases filed against Immigration and Customs Enforcement protesters.`\
+https://www.nytimes.com/2026/06/16/us/minnesota-immigration-charges-antifa.html
+
+**Andrew Lewis, atleta de “slacklining”, muere en un salto BASE**\
+`Andrew Lewis, de 39 años, conocido sobre todo por realizar una rutina llena de acrobacias durante el espectáculo de medio tiempo de Madonna en el Super Bowl de 2012, falleció en el accidente.`\
+https://www.nytimes.com/es/2026/06/16/espanol/estados-unidos/andy-lewis-muere-salto-base.html
+
 **After U.S. Strike on Iranian School, Months Pass Without Answers**\
 `U.S. officials have not publicly acknowledged responsibility for the deaths or released a report on their findings from an investigation into the Feb. 28 strike.`\
 https://www.nytimes.com/2026/06/16/us/politics/us-strike-iranian-school.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/06/16/podcasts/the-headlines/epstein-death-iran-war
 **NYT Connections Answers for June 17, 2026**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, June 17, 2026.`\
 https://www.nytimes.com/2026/06/16/crosswords/connections-companion-1102.html
-
-**Today’s Wordle Hints for June 17, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, June 17, 2026.`\
-https://www.nytimes.com/2026/06/16/crosswords/wordle-review-1824.html
-
-**NYT Strands Hints for June 17, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, June 17, 2026.`\
-https://www.nytimes.com/2026/06/16/crosswords/strands-sidekick-836.html
 
 **Iran War Live Updates: U.S. and Iran Look Ahead to Next Round of Talks**\
 `Iran’s foreign minister said that new negotiations with the United States would start immediately after their preliminary deal is signed on Friday. President Trump said he hoped the conflict would soon be in the “rearview mirror.”`\
