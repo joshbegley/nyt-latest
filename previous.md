@@ -1,3 +1,19 @@
+**Roy Hattersley, Frontline Warrior of British Politics, Dies at 93**\
+`A Labour Party deputy who spent years in opposition, he criticized Conservatives and members of his own party, and was at the heart of major political moments.`\
+https://www.nytimes.com/2026/06/16/world/europe/roy-hattersley-dead.html
+
+**Republicans Again Block War Powers Measure in the Senate**\
+`Four G.O.P. senators crossed party lines to back the resolution to direct President Trump to halt the war in Iran and seek authorization from Congress, but their support was not enough.`\
+https://www.nytimes.com/2026/06/16/us/politics/republicans-iran-war-powers-senate.html
+
+**Bay Area Voters to Decide on Swalwell Replacement**\
+`Eric Swalwell resigned in April as he faced sexual assault allegations, prompting a special election to fill out his term. Two Democrats topped the field in a regular primary election this month.`\
+https://www.nytimes.com/2026/06/16/us/politics/swalwell-replacement-california.html
+
+**Hillary Clinton Says Biden’s Re-Election Bid Was a ‘Terrible Mistake’**\
+`If the former president had “passed the torch” and allowed a competitive Democratic primary in 2024, she said in a new interview, the winner “would have beaten Donald Trump.”`\
+https://www.nytimes.com/2026/06/16/us/politics/clinton-biden-reelection-terrible-mistake.html
+
 **Merlín, el pato mundialista mexicano, salta a la fama**\
 `La mascota se ha convertido en una de las primeras sensaciones del torneo mientras se pasea por Ciudad de México vestido con la camiseta tricolor.`\
 https://www.nytimes.com/es/2026/06/16/espanol/deportes/mexico-mundial-pato-merlin.html
@@ -177,20 +193,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-georgia-insurance-
 **Alabama Public Service Commission Runoff 2026: Live Election Results**\
 `Get live results and maps from the 2026 Alabama runoff election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-alabama-public-service-commission-runoff.html
-
-**Alabama Fifth Congressional District Runoff 2026: Live Election Results, Duvieilh vs. Sneed**\
-`Get live results and maps from the 2026 Alabama runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-alabama-us-house-5-runoff.html
-
-**Alabama Lieutenant Governor Runoff 2026: Live Election Results**\
-`Get live results and maps from the 2026 Alabama runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-alabama-lieutenant-governor-runoff.html
-
-**Alabama Agriculture Commissioner Runoff 2026: Live Election Results**\
-`Get live results and maps from the 2026 Alabama runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-alabama-agriculture-commissioner-runoff.html
-
-**Alabama Attorney General Runoff 2026: Live Election Results**\
-`Get live results and maps from the 2026 Alabama runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-alabama-attorney-general-runoff.html
 
