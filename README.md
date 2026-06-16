@@ -1,3 +1,7 @@
+**Let’s See What Readers Think**\
+`Which one is your favorite?`\
+https://www.nytimes.com/interactive/2026/06/16/realestate/17re-wyg-quiz.html
+
 **After a Bitter Split, European Leaders Play Nice With Trump**\
 `A peace framework with Iran, and hope for cooperation with Ukraine, softened the tone on Tuesday at a Group of 7 gathering in France.`\
 https://www.nytimes.com/2026/06/16/world/europe/trump-g7-leaders-europe.html
@@ -171,7 +175,7 @@ https://www.nytimes.com/2026/06/16/us/transgender-idaho-bathroom-law.html
 https://www.nytimes.com/video/nyregion/100000010964454/racing-to-the-world-cup-from-new-york.html
 
 **Live 2026 Election Results: Georgia, Alabama and Oklahoma Primary and Runoff Races**\
-`SUMMARY TK`\
+`See live results in key races in the June 16 primary and runoff elections.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-key-races-june-16.html
 
 **12 Injured at Cultus Lake Water Park, Possibly by Electricity, in British Columbia**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/16/opinion/iran-us-war-trump-cease-fire.html
 **‘Hockey Night in Canada,’ a Saturday Night Ritual on the CBC, Is No More**\
 `The longtime over-the-air telecast will no longer be free after the national broadcaster, and Rogers Sportsnet, the N.H.L. rights-holder, could not agree on a sub-licensing deal.`\
 https://www.nytimes.com/2026/06/16/world/canada/hockey-night-in-canada-cbc-rogers.html
-
-**7 Great Artists Playing SummerStage This Year**\
-`Hear songs from Angélique Kidjo, Mavis Staples, Sharp Pins and more.`\
-https://www.nytimes.com/2026/06/16/arts/music/amplifier-newsletter-summerstage-spoon-sharp-pins.html
 
