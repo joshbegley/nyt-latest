@@ -1,3 +1,7 @@
+**Knicks Celebrate Their N.B.A. Title on ‘The Tonight Show’**\
+`“Of course it’s the Knicks, so they won’t really show up until the second half,” the host Jimmy Fallon said.`\
+https://www.nytimes.com/2026/06/16/arts/television/tonight-show-knicks-nba-champions.html
+
 **Mamdani Is Channeling Knicks’ Fans Euphoria. Will It Work?**\
 `Mayor Zohran Mamdani’s campaign team used some viral Knicks fan videos as inspiration for his own video strategy to convey a sense of urgency and excitement.`\
 https://www.nytimes.com/2026/06/16/nyregion/mamdani-knicks.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000010969361/seth-rogen-remembers-cath
 **U.S. and Iran Sign a Framework Deal, Leaving Major Issues for Future Talks**\
 `U.S. and Iranian officials said the deal included a 60-day cease-fire to pave the way for negotiations toward a final peace agreement and talks on Iran’s nuclear program.`\
 https://www.nytimes.com/2026/06/15/world/middleeast/us-iran-framework-ceasefire-deal.html
-
-**Trump Lost The War He Started In Iran**\
-`The United States is emerging weaker — militarily, diplomatically and economically — than at the start of the war.`\
-https://www.nytimes.com/2026/06/15/opinion/-trump-lost-war-iran.html
 
