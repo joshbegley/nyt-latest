@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/06/16/us/politics/republicans-iran-war-powers-senat
 `Eric Swalwell resigned in April as he faced sexual assault allegations, prompting a special election to fill out his term. Two Democrats topped the field in a regular primary election this month.`\
 https://www.nytimes.com/2026/06/16/us/politics/swalwell-replacement-california.html
 
-**Hillary Clinton Says Biden’s Re-Election Bid Was a ‘Terrible Mistake’**\
+**Hillary Clinton Says Biden’s Re-election Bid Was a ‘Terrible Mistake’**\
 `If the former president had “passed the torch” and allowed a competitive Democratic primary in 2024, she said in a new interview, the winner “would have beaten Donald Trump.”`\
 https://www.nytimes.com/2026/06/16/us/politics/clinton-biden-reelection-terrible-mistake.html
 
