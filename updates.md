@@ -1,3 +1,7 @@
+**War Loomed Over Past World Cups, Too**\
+`International conflicts have repeatedly seeped into soccer’s biggest tournament. Here are some examples.`\
+https://www.nytimes.com/2026/06/16/sports/world-cup/us-iran-soccer-world-cup-conflict.html
+
 **New From ‘Serial’: ‘The Last 12 Weeks’**\
 `Listen to the trailer for our latest show.`\
 https://www.nytimes.com/2026/06/16/podcasts/new-podcast-serial-the-last-12-weeks.html

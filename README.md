@@ -1,3 +1,7 @@
+**Who Are the G7 Countries and What Is the G7 Summit?**\
+`Its members are among the world’s wealthiest large democracies — close allies and major trading partners that account for a substantial slice of the global economy.`\
+https://www.nytimes.com/2026/06/16/world/europe/g7-leaders-summit-what-who.html
+
 **War Loomed Over Past World Cups, Too**\
 `International conflicts have repeatedly seeped into soccer’s biggest tournament. Here are some examples.`\
 https://www.nytimes.com/2026/06/16/sports/world-cup/us-iran-soccer-world-cup-conflict.html
@@ -190,11 +194,7 @@ https://www.nytimes.com/2026/06/16/fashion/watches-rolex-pepsi-gmt11.html
 `For example, Marc Newson said, the chime of Jaeger-LeCoultre’s new Memovox Travel Clock was meant to be ‘sweet and calming.’`\
 https://www.nytimes.com/2026/06/16/fashion/watches-jaeger-lecoultre-marc-newson.html
 
-**Are Watch Prices Outpacing Buyers’ Views of Their Value?**\
-`Makers say tariffs, the rising cost of materials and a strong Swiss franc are behind the increases, but some fans still question the result.`\
-https://www.nytimes.com/2026/06/16/fashion/watch-prices-vs-value.html
-
 **Live Updates: Ukraine and Middle East Are Focus as Group of 7 Leaders Meet**\
-`Arriving at the summit, President Trump sought to promote his preliminary deal with Iran. President Volodymyr Zelensky of Ukraine was hoping to shift leaders’ attention to the war with Russia.`\
+`After the U.S. reached a preliminary deal with Iran, the mood seemed lighter than had been expected. President Volodymyr Zelensky of Ukraine was hoping to shift leaders’ attention to the war with Russia.`\
 https://www.nytimes.com/live/2026/06/16/world/g7-summit-conference-trump-france
 
