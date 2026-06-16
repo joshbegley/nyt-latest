@@ -1,3 +1,7 @@
+**Why President Trump Called Me About Iran**\
+`A day before the United States and Iran signed a framework agreement to end their monthslong war, President Trump called David E. Sanger, White House and national security correspondent for The Times, to discuss the arrangement.`\
+https://www.nytimes.com/video/us/100000010967660/why-president-trump-called-me-about-iran.html
+
 **Attempted BASE Jump in Utah Kills 2, Including Acclaimed Extreme Athlete**\
 `Andrew Lewis, 39, best known for performing in the halftime show of a Super Bowl, was killed in the accident.`\
 https://www.nytimes.com/2026/06/15/us/base-jumping-deaths-andy-lewis.html

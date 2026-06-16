@@ -1,3 +1,7 @@
+**Why President Trump Called Me About Iran**\
+`A day before the United States and Iran signed a framework agreement to end their monthslong war, President Trump called David E. Sanger, White House and national security correspondent for The Times, to discuss the arrangement.`\
+https://www.nytimes.com/video/us/100000010967660/why-president-trump-called-me-about-iran.html
+
 **Attempted BASE Jump in Utah Kills 2, Including Acclaimed Extreme Athlete**\
 `Andrew Lewis, 39, best known for performing in the halftime show of a Super Bowl, was killed in the accident.`\
 https://www.nytimes.com/2026/06/15/us/base-jumping-deaths-andy-lewis.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/15/us/politics/trump-triumphal-arch-congress.htm
 **Gov. Gavin Newsom Says Trump Is Investigating Him and His Wife**\
 `Aides to Gov. Gavin Newsom of California say several people associated with the couple have been contacted by federal agents in the past week. He criticized the move as politically motivated.`\
 https://www.nytimes.com/2026/06/15/us/newsom-trump-doj-investigation.html
-
-**Abdullah Ibrahim, Eminent South African Jazz Pianist, Dies at 91**\
-`His song “Mannenberg” became the unofficial anthem of the country’s fight against apartheid, with Nelson Mandela calling him “our Mozart.”`\
-https://www.nytimes.com/2026/06/15/arts/music/abdullah-ibrahim-dead.html
 
