@@ -1,3 +1,7 @@
+**Today, In Short**\
+`“Disclosure Day.” Uzbekistan. And World Cup predictions.`\
+https://www.nytimes.com/2026/06/16/briefing/today-in-short.html
+
 **The Real Trump Resistance Doesn’t Need a Hashtag**\
 `Expand the bounds of whom you are committed to. Reconsider whom you feel responsible for.`\
 https://www.nytimes.com/2026/06/16/opinion/resistance-activist-protest-trump.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/16/business/warsh-fed-chair.html
 **Last Call at Donohue’s in New York, ‘a Museum of What Bars Used to Be’**\
 `After 76 years as a Midtown favorite, the family-run restaurant says goodbye to its many, many regulars.`\
 https://www.nytimes.com/2026/06/16/dining/donohues-steak-house-closing.html
-
-**The Untold Story of Jeffrey Epstein’s Death and His Final Days in Jail**\
-`New evidence, new interviews and the fullest investigation yet into the question of whether he killed himself.`\
-https://www.nytimes.com/interactive/2026/06/16/magazine/jeffrey-epstein-death-final-days.html
 
 **Iran War Live Updates: U.S. and Iran Look Ahead to Next Round of Talks**\
 `Iran’s foreign minister said that new negotiations with the United States would start immediately after their preliminary deal is signed on Friday. President Trump said he hoped the conflict would soon be in the “rearview mirror.”`\
