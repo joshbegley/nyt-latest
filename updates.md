@@ -1,3 +1,11 @@
+**Today, In Short**\
+`“Disclosure Day.” Uzbekistan. And World Cup predictions.`\
+https://www.nytimes.com/2026/06/16/briefing/today-in-short.html
+
+**The Real Trump Resistance Doesn’t Need a Hashtag**\
+`Expand the bounds of whom you are committed to. Reconsider whom you feel responsible for.`\
+https://www.nytimes.com/2026/06/16/opinion/resistance-activist-protest-trump.html
+
 **These Dating Apps Want You to Meet at the Gym**\
 `A slew of new apps focus on connecting people who love to work out.`\
 https://www.nytimes.com/2026/06/16/well/move/dating-apps-fitness-hyrox.html
