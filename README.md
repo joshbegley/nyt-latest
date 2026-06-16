@@ -1,75 +1,3 @@
-**Russian Navy Ship Accused of Firing Warning Shots at U.K. Yacht**\
-`Britain’s Defense Ministry said it was investigating a report that a Russian vessel fired warning shots near a U.K.-registered yacht in the English Channel on Tuesday.`\
-https://www.nytimes.com/2026/06/16/world/europe/russian-navy-english-channel-yacht-uk.html
-
-**La guerra en Irán ha cambiado la economía mundial para siempre**\
-`El orden mundial se ha visto alterado, y es poco probable que las economías simplemente retomen las actividades que tenían antes de que EE. UU. e Israel empezaran a bombardear Irán.`\
-https://www.nytimes.com/es/2026/06/16/espanol/negocios/iran-guerra-petroleo-economia.html
-
-**Pizza Hut Sold to Two Firms for $2.7 Billion**\
-`Yum China will acquire Pizza Hut’s locations in mainland China. The private equity firm LongRange Capital will buy its locations in the United States and elsewhere.`\
-https://www.nytimes.com/2026/06/16/business/pizza-hut-yum-brands-sold.html
-
-**Trump’s Stumble on the Iran War**\
-`Readers respond to news of the U.S.-Iran deal. Also: The affordability crisis; all the wonderful dads; safe to track.`\
-https://www.nytimes.com/2026/06/16/opinion/trump-iran-war.html
-
-**The World Cup (of Clothes)**\
-`Plus, a Knicks merch bonanza, a Japanese streetwear reunion and, surprise, it’s almost fashion week. Again.`\
-https://www.nytimes.com/2026/06/16/style/the-world-cup-of-clothes.html
-
-**Trump’s History at G7 Summits: Strained Ties and Early Exits**\
-`For as long as President Trump has been attending the annual meetings, his behavior has threatened the august decorum of the gatherings.`\
-https://www.nytimes.com/2026/06/16/world/europe/trump-g7-summit-history.html
-
-**Tell Us Why Taylor Swift’s Wedding Is Meaningful to You**\
-`For an upcoming story, we want fans to talk to us about the journey they have been on with Swift through the years and how they feel about her big day.`\
-https://www.nytimes.com/2026/06/16/arts/music/taylor-swift-wedding-readers.html
-
-**New Coral Study Identifies Areas Where Reefs Are Hanging On**\
-`New research has identified areas around the world where cooler currents and other favorable conditions are helping to protect coral from the worst effects of global warming.`\
-https://www.nytimes.com/2026/06/16/climate/coral-reef-global-warming.html
-
-**Trump Says U.S. Has ‘Nothing to Do’ with Ukraine War at G7 Summit**\
-`President Trump’s remarks underscored a new security reality for U.S. allies in Europe, who for eight decades relied on American protection.`\
-https://www.nytimes.com/2026/06/16/world/europe/trump-ukraine-war-g7.html
-
-**Maps: Tracking Potential Tropical Cyclone One**\
-`See the likely path and wind arrival times for One`\
-https://www.nytimes.com/interactive/2026/06/16/weather/texas-gulf-storm.html
-
-**Trump consideró suspender el “habeas corpus”, un derecho constitucional, a migrantes**\
-`Unos memorandos secretos revelan que la Casa Blanca debatió el año pasado limitar el derecho al “habeas corpus” de los migrantes indocumentados.`\
-https://www.nytimes.com/es/2026/06/16/espanol/estados-unidos/trump-habeas-corpus-migrantes-constitucion.html
-
-**War Hangs Over American Farmers as Fertilizer Prices Rise**\
-`The Iran war and lower crop prices have hurt makers of sulfur-based supplements. But farmers won’t skip nitrogen-based fertilizers, no matter the cost.`\
-https://www.nytimes.com/2026/06/16/business/fertilizer-farming-iran.html
-
-**Today, In Short**\
-`“Disclosure Day.” Uzbekistan. And World Cup predictions.`\
-https://www.nytimes.com/2026/06/16/briefing/today-in-short.html
-
-**The Real Trump Resistance Doesn’t Need a Hashtag**\
-`Expand the bounds of whom you are committed to. Reconsider whom you feel responsible for.`\
-https://www.nytimes.com/2026/06/16/opinion/resistance-activist-protest-trump.html
-
-**These Dating Apps Want You to Meet at the Gym**\
-`A slew of new apps focus on connecting people who love to work out.`\
-https://www.nytimes.com/2026/06/16/well/move/dating-apps-fitness-hyrox.html
-
-**Can Prescription Eyeglasses Protect You From the Sun?**\
-`You need to protect your eyes from sun exposure, but experts have some advice for`\
-https://www.nytimes.com/2026/06/16/well/eyeglasses-uv-protection.html
-
-**Copa Mundial 2026: así es la complicada situación de la selección de Irán**\
-`En su primer partido en Los Ángeles, la selección iraní atrajo a espectadores que no habían ido a ver fútbol, sino a protestar contra el régimen de Teherán.`\
-https://www.nytimes.com/es/2026/06/16/espanol/mundo/iran-estados-unidos-mundial.html
-
-**Eight Crew Members Dead in B-52 Crash at Air Force Base**\
-`A military B-52 bomber crashed explosively after takeoff from Edwards Air Force Base in California on Monday. Eight crew members were confirmed dead, Air Force officials said.`\
-https://www.nytimes.com/video/us/100000010970480/air-force-b52-crash-california.html
-
 **Vance’s Book Tour Begins With a Visit to ‘The View’**\
 `The vice president is promoting his book about faith and facing questions about his political ambitions and the war with Iran.`\
 https://www.nytimes.com/2026/06/16/us/politics/jd-vance-view-communion-book.html
@@ -189,6 +117,78 @@ https://www.nytimes.com/2026/06/16/world/middleeast/iran-us-deal-nuclear-talks.h
 **Oil Prices Continue to Fall as Traders Assess U.S.-Iran Deal**\
 `Stocks were mixed after strong rallies the day before.`\
 https://www.nytimes.com/2026/06/16/business/oil-prices-iran-war.html
+
+**Can a Trump-Modi Meeting Reset U.S.-India Relations?**\
+`Despite mutual praise between the two leaders, there has been a series of setbacks to U.S. relations with India since they last met more than a year ago.`\
+https://www.nytimes.com/2026/06/16/world/asia/trump-modi-meeting-g7.html
+
+**France, Britain and Other Countries Say They’ll Send Ships to the Strait of Hormuz**\
+`For months, a coalition led by Britain and France has been preparing to send minesweepers and other ships to secure the strait once the fighting ends. That moment may finally be here.`\
+https://www.nytimes.com/2026/06/16/world/europe/europe-strait-of-hormuz-iran-security.html
+
+**Six Takeaways From the Times Investigation Into Epstein’s Death**\
+`We considered every plausible theory of his death, both official and otherwise, seeking out the most persuasive arguments and evidence for each.`\
+https://www.nytimes.com/2026/06/16/magazine/jeffrey-epstein-death-mental-health.html
+
+**Rope Jumper Falls to Her Death After Operators Fail to Secure Harness**\
+`Harrowing videos of the incident in Brazil showed the woman lifted over the heads of two instructors, her arms spread like wings, as they threw her off a bridge.`\
+https://www.nytimes.com/2026/06/16/travel/brazil-rope-jumping-fall.html
+
+**Can I Break My Husband’s Restaurant Boycott?**\
+`A dispute over how to handle a cracked soup container.`\
+https://www.nytimes.com/interactive/2026/06/16/magazine/restaurant-boycott-hodgman-quiz.html
+
+**Corrections: June 16, 2026**\
+`No corrections appeared in print on Tuesday, June 16, 2026.`\
+https://www.nytimes.com/2026/06/16/pageoneplus/no-corrections-june-16-2026.html
+
+**These Sidewalk Sheds Aren’t Eyesores**\
+`The city is moving toward more attractive sheds, diversifying from hunter green to blue and yellow.`\
+https://www.nytimes.com/2026/06/16/nyregion/sidewalk-sheds-makeover.html
+
+**Graham Platner, Jon Ossoff and the New Rules of Political Attention**\
+`Chris Hayes and Ezra Klein discuss how the Democrats are winning the battle for attention, and whether that can translate into winning elections.`\
+https://www.nytimes.com/2026/06/16/opinion/ezra-klein-podcast-chris-hayes-2026.html
+
+**These Are the Voters Who Can Keep Democrats From Going Off the Rails**\
+`Black and other minority Democrats are a strong force for moderation in a party that is having trouble reining itself in.`\
+https://www.nytimes.com/2026/06/16/opinion/democratic-party-coalition-minority-voters.html
+
+**An Architect Opts for ‘Optimistic Modernism’ in Her Silver Lake Kitchen**\
+`Barbara Bestor fills her Los Angeles kitchen and dining room with color and vintage objects with character.`\
+https://www.nytimes.com/2026/06/16/realestate/an-architect-opts-for-optimistic-modernism-in-her-silver-lake-kitchen.html
+
+**Warsh Faces Tenuous Balancing Act in First Fed Meeting as Chairman**\
+`Elevated inflation and the specter of rate increases will greet Kevin M. Warsh in his debut as chairman of the Federal Reserve.`\
+https://www.nytimes.com/2026/06/16/business/warsh-fed-chair.html
+
+**Last Call at Donohue’s in New York, ‘a Museum of What Bars Used to Be’**\
+`After 76 years as a Midtown favorite, the family-run restaurant says goodbye to its many, many regulars.`\
+https://www.nytimes.com/2026/06/16/dining/donohues-steak-house-closing.html
+
+**The Untold Story of Jeffrey Epstein’s Death and His Final Days in Jail**\
+`New evidence, new interviews and the fullest investigation yet into the question of whether he killed himself.`\
+https://www.nytimes.com/interactive/2026/06/16/magazine/jeffrey-epstein-death-final-days.html
+
+**Sharleen Chidiac Brings Punk and Excess in New Musical ‘All the Rage’**\
+`Sharleen Chidiac, a choreographer and the effervescent lead singer of Voyeur, looks at ambition and freedom in her hybrid new work: a punk musical.`\
+https://www.nytimes.com/2026/06/16/arts/dance/sharleen-chidiac-punk-musical.html
+
+**What to Watch in Primary and Runoff Elections in Georgia, Alabama and Oklahoma**\
+`The top race of the day is in Georgia, where Republican voters will pick a nominee to challenge Senator Jon Ossoff, a Democrat.`\
+https://www.nytimes.com/2026/06/16/us/politics/elections-georgia-alabama-oklahoma-runoff.html
+
+**The Verdict on Biden Is In**\
+`Preliminary judgments on Joe Biden’s one-term presidency, including Jill Biden’s, are all the rage.`\
+https://www.nytimes.com/2026/06/16/opinion/joe-jill-biden-east-wing.html
+
+**Four Stars for Albi in Washington, D.C.**\
+`At his Palestinian restaurant in Washington, D.C., the chef Michael Rafidi is telling a vivid story through bread and fire.`\
+https://www.nytimes.com/2026/06/16/dining/restaurant-review-albi-washington-dc.html
+
+**A Baroque Opera Written By a Female Composer Feels Ripped From the Headlines**\
+`The Paris Opera production of “Ercole Amante” (“Hercules in Love”), a rediscovered 1707 work by the female composer Antonia Bembo, leans into contemporary themes of coercion and consent.`\
+https://www.nytimes.com/2026/06/16/arts/music/ercole-amante-antonia-bembo-paris-opera.html
 
 **Iran War Live Updates: U.S. and Iran Look Ahead to Next Round of Talks**\
 `Iran’s foreign minister said that new negotiations with the United States would start immediately after their preliminary deal is signed on Friday. President Trump said he hoped the conflict would soon be in the “rearview mirror.”`\

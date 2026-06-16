@@ -1,3 +1,11 @@
+**Russian Navy Ship Accused of Firing Warning Shots at U.K. Yacht**\
+`Britain’s Defense Ministry said it was investigating a report that a Russian vessel fired warning shots near a U.K.-registered yacht in the English Channel on Tuesday.`\
+https://www.nytimes.com/2026/06/16/world/europe/russian-navy-english-channel-yacht-uk.html
+
+**La guerra en Irán ha cambiado la economía mundial para siempre**\
+`El orden mundial se ha visto alterado, y es poco probable que las economías simplemente retomen las actividades que tenían antes de que EE. UU. e Israel empezaran a bombardear Irán.`\
+https://www.nytimes.com/es/2026/06/16/espanol/negocios/iran-guerra-petroleo-economia.html
+
 **Pizza Hut Sold to Two Firms for $2.7 Billion**\
 `Yum China will acquire Pizza Hut’s locations in mainland China. The private equity firm LongRange Capital will buy its locations in the United States and elsewhere.`\
 https://www.nytimes.com/2026/06/16/business/pizza-hut-yum-brands-sold.html
