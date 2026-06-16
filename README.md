@@ -1,3 +1,15 @@
+**Literary Travel Combines Travel and a Love of Books**\
+`Resort book clubs, tour companies, hotel libraries and a growing number of literary festivals are offering readers new ways to indulge their interests.`\
+https://www.nytimes.com/2026/06/16/travel/literary-book-travel-trend.html
+
+**Working Parents Say They’re in a Losing Battle Over Their Time**\
+`Most like having a job but say it leaves them too few hours for their children and other pursuits, a Pew survey shows.`\
+https://www.nytimes.com/2026/06/16/upshot/parenting-working-balance-survey.html
+
+**Why Do Humans Choose Self-Destruction?**\
+`Evolution has fine-tuned us for success, yet we often choose self-destruction.`\
+https://www.nytimes.com/2026/06/16/special-series/human-behavior-self-destruction.html
+
 **In 30,000 Gallons of Water, Hundreds of Bowls Play Music of the Spheres**\
 `The French sound artist Céleste Boursier-Mougenot creates an unlikely symphony by setting singing bowls bobbing at the Park Avenue Armory.`\
 https://www.nytimes.com/2026/06/16/arts/design/in-30000-gallons-of-water-hundreds-of-bowls-play-music-of-the-spheres.html
@@ -177,18 +189,6 @@ https://www.nytimes.com/video/opinion/100000010956569/graham-platner-jon-ossoff-
 **The Iran War Permanently Altered the Global Economy**\
 `The global order has been altered, and economies are unlikely to simply pick up where they left off before the U.S. and Israel began bombing Iran.`\
 https://www.nytimes.com/2026/06/16/business/economy/iran-war-oil-trade.html
-
-**What if Both Parties Redistricted to the Max?**\
-`How the scramble for partisan advantage could further distort America’s politics.`\
-https://www.nytimes.com/2026/06/16/opinion/gerrymander-redistricting-party.html
-
-**Just How Much Are E.V. Drivers Saving With Gas Prices Still High?**\
-`Over a long period, gas prices tend to be more volatile than electricity rates.`\
-https://www.nytimes.com/2026/06/16/upshot/electric-cars-gas-costs.html
-
-**What We Learned About Jeffrey Epstein’s Death**\
-`The New York Times has obtained writings by Jeffrey Epstein from his time in jail that have never been made public and has spoken with his fellow inmates to understand his state of mind in the weeks before his death. Steve Eder, an investigative reporter, explains.`\
-https://www.nytimes.com/video/us/100000010948122/epstein-jail-writings.html
 
 **Iran War Live Updates: Talks on Final Agreement Will Begin Friday, Tehran Says**\
 `Iran’s foreign minister said that new negotiations with the United States would start immediately after their preliminary deal is signed. President Trump reiterated that the initial pact ensures Iran will not obtain a nuclear weapon.`\

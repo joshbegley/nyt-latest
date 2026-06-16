@@ -1,3 +1,7 @@
+**In 30,000 Gallons of Water, Hundreds of Bowls Play Music of the Spheres**\
+`The French sound artist Céleste Boursier-Mougenot creates an unlikely symphony by setting singing bowls bobbing at the Park Avenue Armory.`\
+https://www.nytimes.com/2026/06/16/arts/design/in-30000-gallons-of-water-hundreds-of-bowls-play-music-of-the-spheres.html
+
 **Europe Union Lawmakers Approve Much-Delayed Trade Deal With U.S.**\
 `After nearly a year of wrangling, the deal the European Union struck with President Trump in Turnberry, Scotland, is headed for final approval.`\
 https://www.nytimes.com/2026/06/16/world/europe/eu-us-trade-trump.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/16/upshot/electric-cars-gas-costs.html
 **What We Learned About Jeffrey Epstein’s Death**\
 `The New York Times has obtained writings by Jeffrey Epstein from his time in jail that have never been made public and has spoken with his fellow inmates to understand his state of mind in the weeks before his death. Steve Eder, an investigative reporter, explains.`\
 https://www.nytimes.com/video/us/100000010948122/epstein-jail-writings.html
-
-**A.I. Boom Ignites Asian Chip Companies**\
-`They make much of the gear that goes into giant data centers. Demand for their products is shifting the balance of tech power.`\
-https://www.nytimes.com/2026/06/16/technology/taiwan-south-korea-ai-chips.html
 
 **Iran War Live Updates: Talks on Final Agreement Will Begin Friday, Tehran Says**\
 `Iran’s foreign minister said that new negotiations with the United States would start immediately after their preliminary deal is signed. President Trump reiterated that the initial pact ensures Iran will not obtain a nuclear weapon.`\

@@ -1,3 +1,7 @@
+**In 30,000 Gallons of Water, Hundreds of Bowls Play Music of the Spheres**\
+`The French sound artist Céleste Boursier-Mougenot creates an unlikely symphony by setting singing bowls bobbing at the Park Avenue Armory.`\
+https://www.nytimes.com/2026/06/16/arts/design/in-30000-gallons-of-water-hundreds-of-bowls-play-music-of-the-spheres.html
+
 **Europe Union Lawmakers Approve Much-Delayed Trade Deal With U.S.**\
 `After nearly a year of wrangling, the deal the European Union struck with President Trump in Turnberry, Scotland, is headed for final approval.`\
 https://www.nytimes.com/2026/06/16/world/europe/eu-us-trade-trump.html
