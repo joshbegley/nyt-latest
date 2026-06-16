@@ -162,7 +162,7 @@ https://www.nytimes.com/2026/06/16/crosswords/wordle-review-1824.html
 `Scroll down for hints and conversation about the puzzle for Wednesday, June 17, 2026.`\
 https://www.nytimes.com/2026/06/16/crosswords/strands-sidekick-836.html
 
-**Iran Will Enter Nuclear Talks Feeling Emboldened**\
+**Iran Will Enter Nuclear Talks With the Trump Administration Feeling Emboldened**\
 `Despite military setbacks during the war, Tehran is presenting a narrative of victory before negotiations with Washington.`\
 https://www.nytimes.com/2026/06/16/world/middleeast/iran-us-deal-nuclear-talks.html
 

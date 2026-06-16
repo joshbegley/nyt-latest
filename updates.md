@@ -1,3 +1,7 @@
+**Iran Will Enter Nuclear Talks With the Trump Administration Feeling Emboldened**\
+`Despite military setbacks during the war, Tehran is presenting a narrative of victory before negotiations with Washington.`\
+https://www.nytimes.com/2026/06/16/world/middleeast/iran-us-deal-nuclear-talks.html
+
 **Trump’s History at G7 Summits: Strained Ties and Early Exits**\
 `For as long as President Trump has been attending the annual meetings, his behavior has threatened the august decorum of the gatherings.`\
 https://www.nytimes.com/2026/06/16/world/europe/trump-g7-summit-history.html
