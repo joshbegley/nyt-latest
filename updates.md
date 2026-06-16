@@ -1,3 +1,7 @@
+**Big Questions for Warsh as New  Era for the Fed Begins**\
+`Interest rates, inflation, independence are among the challenges the new chairman of the Federal Reserve faces as the central bank’s policymakers meet.`\
+https://www.nytimes.com/2026/06/16/business/dealbook/warsh-fed-questions.html
+
 **Iran War Live Updates: Talks on Final Agreement Will Begin Friday, Tehran Says**\
 `Iran’s foreign minister said that new negotiations with the United States would start immediately after their preliminary deal is signed. President Trump reiterated that the initial pact ensures Iran will not obtain a nuclear weapon.`\
 https://www.nytimes.com/live/2026/06/16/world/iran-war-trump-us-deal
