@@ -1,3 +1,7 @@
+**Who Are the Leaders at the G7 Summit in France?**\
+`On a roll or against a wall, Group of 7 leaders bring sharply different agendas. The leaders of some other nations are also attending to press their own interests.`\
+https://www.nytimes.com/2026/06/16/world/europe/who-are-g7-leaders.html
+
 **Street Style Look of the Week: Elevating Workwear With Whimsical Embroidery**\
 `A young woman in the Bay Area’s finance industry steps out in a different kind of work wear.`\
 https://www.nytimes.com/2026/06/16/style/street-style-look-jumpsuit-workwear.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/16/technology/taiwan-south-korea-ai-chips.html
 **Book Review: ‘The Frenzy,’ by Joyce Carol Oates**\
 `The stories in her new collection deal in jagged emergencies and in wounds both physical and psychic.`\
 https://www.nytimes.com/2026/06/16/books/review/joyce-carol-oates-frenzy.html
-
-**Book Review: ‘Presence: A Hidden History of the Female Body,’ by Erin Maglaque**\
-`In “Presence,” the historian Erin Maglaque pieces together the fragments of early modern womanhood.`\
-https://www.nytimes.com/2026/06/16/books/review/presence-erin-maglaque.html
 
 **Iran War Live Updates: Talks on Final Agreement Will Begin Friday, Tehran Says**\
 `Iran’s foreign minister said that new negotiations with the United States would start immediately after their preliminary deal is signed. President Trump reiterated that the initial pact ensures Iran will not obtain a nuclear weapon.`\
