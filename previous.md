@@ -1,3 +1,7 @@
+**How Our Reporters Got at the Truth of Jeffrey Epstein’s Death**\
+`Four Times journalists talk about their investigation into Epstein’s final weeks in jail and the unanswered questions that their reporting tackles.`\
+https://www.nytimes.com/2026/06/16/insider/jeffrey-epstein-files-suicide.html
+
 **Riding High After I.P.O., SpaceX to Buy A.I. Start-Up for $60 Billion**\
 `SpaceX exercised its option to acquire Cursor in an all-stock deal, bolstering Elon Musk’s ambitions in artificial intelligence.`\
 https://www.nytimes.com/2026/06/16/business/spacex-cursor-aquisition-ipo.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/16/books/review/presence-erin-maglaque.html
 **Audemars Piguet’s New Division Works Much Like Its Own Start**\
 `Audemars Piguet’s Atelier des Établisseurs coordinates the work of independent experts on new timepieces, a lot like the brand’s own beginnings.`\
 https://www.nytimes.com/2026/06/16/fashion/audemars-piguet-new-division.html
-
-**This Proposal Came Right on Time, and With a Watch**\
-`When Rory Corr’s future wife asked him to marry her, she presented him with the Max Bill chronograph he had wanted for years.`\
-https://www.nytimes.com/2026/06/16/fashion/watches-junghans-max-bill-chronograph.html
 
 **Iran War Live Updates: Talks on Final Agreement Will Begin Friday, Tehran Says**\
 `Iran’s foreign minister said that new negotiations with the United States would start immediately after their preliminary deal is signed. President Trump reiterated that the initial pact ensures Iran will not obtain a nuclear weapon.`\

@@ -1,3 +1,7 @@
+**How Our Reporters Got at the Truth of Jeffrey Epstein’s Death**\
+`Four Times journalists talk about their investigation into Epstein’s final weeks in jail and the unanswered questions that their reporting tackles.`\
+https://www.nytimes.com/2026/06/16/insider/jeffrey-epstein-files-suicide.html
+
 **Riding High After I.P.O., SpaceX to Buy A.I. Start-Up for $60 Billion**\
 `SpaceX exercised its option to acquire Cursor in an all-stock deal, bolstering Elon Musk’s ambitions in artificial intelligence.`\
 https://www.nytimes.com/2026/06/16/business/spacex-cursor-aquisition-ipo.html

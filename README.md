@@ -1,3 +1,7 @@
+**Street Style Look of the Week: Elevating Workwear With Whimsical Embroidery**\
+`A young woman in the Bay Area’s finance industry steps out in a different kind of work wear.`\
+https://www.nytimes.com/2026/06/16/style/street-style-look-jumpsuit-workwear.html
+
 **How Our Reporters Got at the Truth of Jeffrey Epstein’s Death**\
 `Four Times journalists talk about their investigation into Epstein’s final weeks in jail and the unanswered questions that their reporting tackles.`\
 https://www.nytimes.com/2026/06/16/insider/jeffrey-epstein-files-suicide.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/16/books/review/joyce-carol-oates-frenzy.html
 **Book Review: ‘Presence: A Hidden History of the Female Body,’ by Erin Maglaque**\
 `In “Presence,” the historian Erin Maglaque pieces together the fragments of early modern womanhood.`\
 https://www.nytimes.com/2026/06/16/books/review/presence-erin-maglaque.html
-
-**Audemars Piguet’s New Division Works Much Like Its Own Start**\
-`Audemars Piguet’s Atelier des Établisseurs coordinates the work of independent experts on new timepieces, a lot like the brand’s own beginnings.`\
-https://www.nytimes.com/2026/06/16/fashion/audemars-piguet-new-division.html
 
 **Iran War Live Updates: Talks on Final Agreement Will Begin Friday, Tehran Says**\
 `Iran’s foreign minister said that new negotiations with the United States would start immediately after their preliminary deal is signed. President Trump reiterated that the initial pact ensures Iran will not obtain a nuclear weapon.`\
