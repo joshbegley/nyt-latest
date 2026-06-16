@@ -1,3 +1,7 @@
+**El presidente Trump perdió esta guerra**\
+`Estados Unidos sale más endeble —militar, diplomática y económicamente— de lo que estaba al inicio de los ataques en Medio Oriente.`\
+https://www.nytimes.com/es/2026/06/16/espanol/opinion/trump-guerra-iran-acuerdo.html
+
 **Live Updates: Ukraine and Middle East Are Focus as Group of 7 Leaders Meet**\
 `Arriving at the summit, President Trump sought to promote his preliminary deal with Iran. President Volodymyr Zelensky of Ukraine was hoping to shift leaders’ attention to the war with Russia.`\
 https://www.nytimes.com/live/2026/06/16/world/g7-summit-conference-trump-france
