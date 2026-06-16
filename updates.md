@@ -1,3 +1,11 @@
+**Jelly Roll Files for Divorce From Bunnie Xo After Nearly a Decade**\
+`The country music star, whose real name is Jason DeFord, filed for divorce from his wife of nearly 10 years, Alisa DeFord, who is known as Bunnie Xo.`\
+https://www.nytimes.com/2026/06/16/style/jelly-roll-divorce-bunnie-xo-tennessee.html
+
+**A Long Road to Recovery**\
+`There’s an initial deal between the U.S. and Iran. But bringing the global economy back online after months at reduced speed isn’t going to be quick or easy.`\
+https://www.nytimes.com/2026/06/16/world/iran-war-economy-epstein-world-cup.html
+
 **Taylor Swift Didn’t Marry in Rhode Island. Fans Showed Up Anyway.**\
 `Despite reports pointing to New York as a potential Swift-Kelce wedding location, Swifties still descended on Watch Hill, R.I., this past weekend, hoping for a glimpse of the singer or signs of a June 13 celebration.`\
 https://www.nytimes.com/2026/06/16/style/taylor-swifts-rhode-island-wedding.html
