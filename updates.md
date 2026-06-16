@@ -1,3 +1,15 @@
+**Iran Found Trump’s Bone Spur**\
+`In a contest of wills, the hard men of Tehran prevailed over the vain man of Washington.`\
+https://www.nytimes.com/2026/06/16/opinion/iran-us-war-trump-cease-fire.html
+
+**‘Hockey Night in Canada,’ a Saturday Night Ritual on the CBC, Is No More**\
+`The longtime over-the-air telecast will no longer be free after the national broadcaster, and Rogers Sportsnet, the N.H.L. rights-holder, could not agree on a sub-licensing deal.`\
+https://www.nytimes.com/2026/06/16/world/canada/hockey-night-in-canada-cbc-rogers.html
+
+**7 Great Artists Playing SummerStage This Year**\
+`Hear songs from Angélique Kidjo, Mavis Staples, Sharp Pins and more.`\
+https://www.nytimes.com/2026/06/16/arts/music/amplifier-newsletter-summerstage-spoon-sharp-pins.html
+
 **Alabama U.S. Senate Runoff 2026: Live Election Results, Larriett vs. Wess**\
 `Get live results and maps from the 2026 Alabama runoff election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-alabama-us-senate-runoff.html
