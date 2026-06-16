@@ -1,3 +1,7 @@
+**Trump Administration Shifts Special Education Programs to Health Department**\
+`Officials announced that the Education Department’s civil rights office would also be broken off, the most aggressive move yet to dismantle the department.`\
+https://www.nytimes.com/2026/06/16/us/politics/education-department-civil-rights-trump.html
+
 **Oklahoma Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Oklahoma primary elections.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-primary.html
