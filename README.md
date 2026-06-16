@@ -1,3 +1,7 @@
+**Merlín, el pato mundialista mexicano, salta a la fama**\
+`La mascota se ha convertido en una de las primeras sensaciones del torneo mientras se pasea por Ciudad de México vestido con la camiseta tricolor.`\
+https://www.nytimes.com/es/2026/06/16/espanol/deportes/mexico-mundial-pato-merlin.html
+
 **Russian Artist Critical of Putin Is Fatally Shot in Poland**\
 `Two Belarusian men were in custody as part of an investigation into the killing of the exiled painter Robert Kuzovkov.`\
 https://www.nytimes.com/2026/06/16/world/europe/russian-artist-putin-killed-poland.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-alabama-agricultur
 **Alabama Attorney General Runoff 2026: Live Election Results**\
 `Get live results and maps from the 2026 Alabama runoff election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-alabama-attorney-general-runoff.html
-
-**At Least 5 Charged in Alleged Plot to Attack White House During U.F.C. Event**\
-`Charging documents outlined an ambitious plan involving explosive-laden drones and rifles, but left less clear that the conspirators had the means to carry it out.`\
-https://www.nytimes.com/2026/06/16/us/politics/white-house-ufc-attack-plot.html
 
