@@ -1,3 +1,7 @@
+**Judge Orders Kennedy Center to Make a Plan for Staying Open**\
+`As the Trump administration seeks to move forward with renovations at the center, a judge has asked for its programming calendar.`\
+https://www.nytimes.com/2026/06/16/arts/music/kennedy-center-closing-plan-judge.html
+
 **When to Expect Results in Georgia, Alabama and Oklahoma**\
 `There are runoff elections in Georgia and Alabama and primaries in Oklahoma.`\
 https://www.nytimes.com/2026/06/16/us/politics/election-results-timing-tonight-when.html

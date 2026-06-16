@@ -6,8 +6,8 @@ https://www.nytimes.com/2026/06/16/arts/music/kennedy-center-closing-plan-judge.
 `There are runoff elections in Georgia and Alabama and primaries in Oklahoma.`\
 https://www.nytimes.com/2026/06/16/us/politics/election-results-timing-tonight-when.html
 
-**Heavy Rain Floods South Texas**\
-`Storm systems doused South Texas with heavy rain and caused flooding.`\
+**Heavy Rain Floods Texas**\
+`Storm systems doused Texas with heavy rain and caused flooding.`\
 https://www.nytimes.com/video/weather/100000010971313/rain-texas-floods-weather.html
 
 **NY Liberty’s Ellie the Elephant Celebrates Her 6th Birthday in Style**\
