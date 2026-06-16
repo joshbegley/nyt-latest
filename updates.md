@@ -1,3 +1,15 @@
+**Literary Travel Combines Travel and a Love of Books**\
+`Resort book clubs, tour companies, hotel libraries and a growing number of literary festivals are offering readers new ways to indulge their interests.`\
+https://www.nytimes.com/2026/06/16/travel/literary-book-travel-trend.html
+
+**Working Parents Say They’re in a Losing Battle Over Their Time**\
+`Most like having a job but say it leaves them too few hours for their children and other pursuits, a Pew survey shows.`\
+https://www.nytimes.com/2026/06/16/upshot/parenting-working-balance-survey.html
+
+**Why Do Humans Choose Self-Destruction?**\
+`Evolution has fine-tuned us for success, yet we often choose self-destruction.`\
+https://www.nytimes.com/2026/06/16/special-series/human-behavior-self-destruction.html
+
 **In 30,000 Gallons of Water, Hundreds of Bowls Play Music of the Spheres**\
 `The French sound artist Céleste Boursier-Mougenot creates an unlikely symphony by setting singing bowls bobbing at the Park Avenue Armory.`\
 https://www.nytimes.com/2026/06/16/arts/design/in-30000-gallons-of-water-hundreds-of-bowls-play-music-of-the-spheres.html

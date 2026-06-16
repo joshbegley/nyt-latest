@@ -190,8 +190,8 @@ https://www.nytimes.com/video/opinion/100000010956569/graham-platner-jon-ossoff-
 `The global order has been altered, and economies are unlikely to simply pick up where they left off before the U.S. and Israel began bombing Iran.`\
 https://www.nytimes.com/2026/06/16/business/economy/iran-war-oil-trade.html
 
-**Iran War Live Updates: Talks on Final Agreement Will Begin Friday, Tehran Says**\
-`Iran’s foreign minister said that new negotiations with the United States would start immediately after their preliminary deal is signed. President Trump reiterated that the initial pact ensures Iran will not obtain a nuclear weapon.`\
+**Iran War Live Updates: U.S. and Iran Look Ahead to Next Round of Talks**\
+`Iran’s foreign minister said that new negotiations with the United States would start immediately after their preliminary deal is signed on Friday. President Trump said he hoped the conflict would soon be in the “rearview mirror.”`\
 https://www.nytimes.com/live/2026/06/16/world/iran-war-trump-us-deal
 
 **Live Updates: Ukraine and Middle East Are Focus as Group of 7 Leaders Meet**\
