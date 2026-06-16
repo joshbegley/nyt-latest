@@ -1,3 +1,7 @@
+**The ‘Paddington’ Musical Will Come to Broadway Next Spring**\
+`The show, which revisits the story of a marmalade-loving bear, plans to open next April at the Hirschfeld Theater in New York.`\
+https://www.nytimes.com/2026/06/16/theater/paddington-musical-broadway.html
+
 **Big Questions for Warsh as New  Era for the Fed Begins**\
 `Interest rates, inflation, independence are among the challenges the new chairman of the Federal Reserve faces as the central bank’s policymakers meet.`\
 https://www.nytimes.com/2026/06/16/business/dealbook/warsh-fed-questions.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/16/fashion/watches-junghans-max-bill-chronograph
 **Why Is Everyone Waiting Hours for Frozen Yogurt? Why Am I?**\
 `The yogurt is not special. Let’s just get that out of the way now.`\
 https://www.nytimes.com/2026/06/16/magazine/frozen-yogurt-lines-myka.html
-
-**Gas Prices May Remain High Despite US-Iran Deal**\
-`The preliminary agreement may not have an immediate effect on prices at the pump. Damaged infrastructure and risky transport could keep costs up.`\
-https://www.nytimes.com/2026/06/16/business/energy-environment/us-iran-deal-gas-prices.html
 
 **Iran War Live Updates: Talks on Final Agreement Will Begin Friday, Tehran Says**\
 `Iran’s foreign minister said that new negotiations with the United States would start immediately after their preliminary deal is signed. President Trump reiterated that the initial pact ensures Iran will not obtain a nuclear weapon.`\
