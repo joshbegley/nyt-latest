@@ -1,3 +1,7 @@
+**Oil Prices Continue to Fall as Traders Assess U.S.-Iran Deal**\
+`Stocks were mixed after strong rallies the day before.`\
+https://www.nytimes.com/2026/06/16/business/oil-prices-iran-war.html
+
 **Can a Trump-Modi Meeting Reset U.S.-India Relations?**\
 `Despite mutual praise between the two leaders, there has been a series of setbacks to U.S. relations with India since they last met more than a year ago.`\
 https://www.nytimes.com/2026/06/16/world/asia/trump-modi-meeting-g7.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/16/nyregion/knicks-championship-stories.html
 **What’s the Best Way to Get to World Cup Games in New Jersey From NYC?**\
 `Soccer fans attending World Cup games have confusing and sometimes enraging transportation choices to make. Starting out in Midtown Manhattan, we tested each route.`\
 https://www.nytimes.com/2026/06/16/nyregion/world-cup-nyc-transportation-meadowlands.html
-
-**NYT Spelling Bee Answers for June 16, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/06/16/crosswords/spelling-bee-forum.html
 

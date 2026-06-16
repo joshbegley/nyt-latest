@@ -1,3 +1,7 @@
+**Oil Prices Continue to Fall as Traders Assess U.S.-Iran Deal**\
+`Stocks were mixed after strong rallies the day before.`\
+https://www.nytimes.com/2026/06/16/business/oil-prices-iran-war.html
+
 **Can a Trump-Modi Meeting Reset U.S.-India Relations?**\
 `Despite mutual praise between the two leaders, there has been a series of setbacks to U.S. relations with India since they last met more than a year ago.`\
 https://www.nytimes.com/2026/06/16/world/asia/trump-modi-meeting-g7.html
