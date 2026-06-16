@@ -1,3 +1,7 @@
+**Tropical Storm Watch Issued Along Gulf Coast as Heavy Rain Hits Texas**\
+`A storm system churning along the coastline could become the first named storm of this year’s Atlantic hurricane season this week.`\
+https://www.nytimes.com/2026/06/16/weather/tropical-storm-arthur-louisiana-texas-gulf.html
+
 **Trump Administration Shifts Special Education Programs to Health Department**\
 `Officials announced that the Education Department’s civil rights office would also be broken off, the most aggressive move yet to dismantle the department.`\
 https://www.nytimes.com/2026/06/16/us/politics/education-department-civil-rights-trump.html
