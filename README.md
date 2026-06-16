@@ -1,3 +1,7 @@
+**Live Updates: Ukraine and Middle East Are Focus as Group of 7 Leaders Meet**\
+`Arriving at the summit, President Trump sought to promote his preliminary deal with Iran. President Volodymyr Zelensky of Ukraine was hoping to shift leaders’ attention to the war with Russia.`\
+https://www.nytimes.com/live/2026/06/16/world/g7-summit-conference-trump-france
+
 **¿Qué pasa cuando el mayor experto en ‘deepfakes’ ya no confía en sus propios ojos?**\
 `Para Hany Farid, demostrar qué es real en la era de la IA es cada vez más complicado.`\
 https://www.nytimes.com/es/2026/06/16/espanol/estados-unidos/deepfakes-ultrafalsos-ia-experto.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/15/us/politics/kratom-trump-administration.html
 **Washington Has Been Carefully Planned for Two Centuries. Now Trump Has His Own Designs.**\
 `The city is unlike any in America for its accumulation of intricate details, a whole that is a work of civic art.`\
 https://www.nytimes.com/interactive/2026/06/15/upshot/trump-lenfant-dc.html
-
-**Seth Rogen Remembers Catherine O’Hara**\
-`Seth Rogen worked with the late actress Catherine O’Hara on his show “The Studio.” On “The Interview,” he recalled her influence on his work and how much she was missed when she died this year.`\
-https://www.nytimes.com/video/podcasts/100000010969361/seth-rogen-remembers-catherine-ohara.html
 
