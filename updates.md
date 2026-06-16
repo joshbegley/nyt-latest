@@ -1,3 +1,7 @@
+**‘Are You Now or Have You Ever Been’ Review: Who Is Naming Names?**\
+`Anna D. Shapiro revives Eric Bentley’s play about the House Un-American Activities Committee’s investigation of the entertainment industry.`\
+https://www.nytimes.com/2026/06/16/theater/are-you-now-or-have-you-ever-been-review.html
+
 **Federal Judge Blocks Idaho Law Criminalizing Transgender Bathroom Use**\
 `Six transgender residents claimed that the bathroom ban, the most restrictive in the nation, violated their constitutional rights.`\
 https://www.nytimes.com/2026/06/16/us/transgender-idaho-bathroom-law.html

@@ -1,6 +1,22 @@
+**At Least 5 Charged in Alleged Plot to Attack White House During U.F.C. Event**\
+`Charging documents outlined an ambitious plan involving explosive-laden drones and rifles, but left less clear that the conspirators had the means to carry it out.`\
+https://www.nytimes.com/2026/06/16/us/politics/white-house-ufc-attack-plot.html
+
 **‘Are You Now or Have You Ever Been’ Review: Who Is Naming Names?**\
 `Anna D. Shapiro revives Eric Bentley’s play about the House Un-American Activities Committee’s investigation of the entertainment industry.`\
 https://www.nytimes.com/2026/06/16/theater/are-you-now-or-have-you-ever-been-review.html
+
+**Georgia U.S. Senate Runoff 2026: Live Election Results, Collins vs. Dooley**\
+`Get live results and maps from the 2026 Georgia runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-georgia-us-senate-runoff.html
+
+**Georgia Lt. Governor Republican Primary Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Georgia runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-georgia-lieutenant-governor-republican-primary-runoff.html
+
+**Georgia Lt. Governor Democratic Primary Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Georgia runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-georgia-lieutenant-governor-democratic-primary-runoff.html
 
 **Federal Judge Blocks Idaho Law Criminalizing Transgender Bathroom Use**\
 `Six transgender residents claimed that the bathroom ban, the most restrictive in the nation, violated their constitutional rights.`\
@@ -14,7 +30,7 @@ https://www.nytimes.com/video/nyregion/100000010964454/racing-to-the-world-cup-f
 `SUMMARY TK`\
 https://www.nytimes.com/interactive/2026/us/elections/results-key-races-june-16.html
 
-**12 Injured, Possibly by Electricity, at Canadian Water Park**\
+**12 Injured at Cultus Lake Water Park, Possibly by Electricity, in British Columbia**\
 `Ten middle school students and two others sustained serious but not life-threatening injuries at Cultus Lake Waterpark in British Columbia, officials said.`\
 https://www.nytimes.com/2026/06/16/world/canada/british-columbia-water-park-cultus-lake-injuries.html
 
@@ -110,10 +126,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-us-house-
 `Get live results and maps from the 2026 Washington, D.C. primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-washington-dc-mayor-primary.html
 
-**Georgia U.S. Senate Runoff 2026: Live Election Results, Collins vs. Dooley**\
-`Get live results and maps from the 2026 Georgia runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-georgia-us-senate-runoff.html
-
 **Oklahoma First Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Oklahoma primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-us-house-1-primary.html
@@ -174,10 +186,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-insurance
 `Get live results and maps from the 2026 Georgia runoff election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-georgia-secretary-of-state-runoff.html
 
-**Georgia Lt. Governor Democratic Primary Runoff 2026: Live Election Results**\
-`Get live results and maps from the 2026 Georgia runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-georgia-lieutenant-governor-democratic-primary-runoff.html
-
 **Georgia 12th Congressional District Runoff 2026: Live Election Results, George vs. Smith**\
 `Get live results and maps from the 2026 Georgia runoff election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-georgia-us-house-12-runoff.html
@@ -186,15 +194,7 @@ https://www.nytimes.com/interactive/2026/us/elections/results-georgia-us-house-1
 `Get live results and maps from the 2026 Georgia runoff election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-georgia-us-house-1-runoff.html
 
-**Georgia Lt. Governor Republican Primary Runoff 2026: Live Election Results**\
-`Get live results and maps from the 2026 Georgia runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-georgia-lieutenant-governor-republican-primary-runoff.html
-
 **Georgia Labor Commissioner Runoff 2026: Live Election Results**\
 `Get live results and maps from the 2026 Georgia runoff election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-georgia-labor-commissioner-runoff.html
-
-**Georgia Public Service Commission Runoff 2026: Live Election Results**\
-`Get live results and maps from the 2026 Georgia runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-georgia-public-service-commission-runoff.html
 

@@ -1,3 +1,7 @@
+**‘Are You Now or Have You Ever Been’ Review: Who Is Naming Names?**\
+`Anna D. Shapiro revives Eric Bentley’s play about the House Un-American Activities Committee’s investigation of the entertainment industry.`\
+https://www.nytimes.com/2026/06/16/theater/are-you-now-or-have-you-ever-been-review.html
+
 **Federal Judge Blocks Idaho Law Criminalizing Transgender Bathroom Use**\
 `Six transgender residents claimed that the bathroom ban, the most restrictive in the nation, violated their constitutional rights.`\
 https://www.nytimes.com/2026/06/16/us/transgender-idaho-bathroom-law.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-georgia-labor-comm
 **Georgia Public Service Commission Runoff 2026: Live Election Results**\
 `Get live results and maps from the 2026 Georgia runoff election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-georgia-public-service-commission-runoff.html
-
-**Alabama Lieutenant Governor Runoff 2026: Live Election Results**\
-`Get live results and maps from the 2026 Alabama runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-alabama-lieutenant-governor-runoff.html
 
