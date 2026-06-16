@@ -1,3 +1,7 @@
+**War Loomed Over Past World Cups, Too**\
+`International conflicts have repeatedly seeped into soccer’s biggest tournament. Here are some examples.`\
+https://www.nytimes.com/2026/06/16/sports/world-cup/us-iran-soccer-world-cup-conflict.html
+
 **New From ‘Serial’: ‘The Last 12 Weeks’**\
 `Listen to the trailer for our latest show.`\
 https://www.nytimes.com/2026/06/16/podcasts/new-podcast-serial-the-last-12-weeks.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/16/fashion/watches-jaeger-lecoultre-marc-newson.
 **Are Watch Prices Outpacing Buyers’ Views of Their Value?**\
 `Makers say tariffs, the rising cost of materials and a strong Swiss franc are behind the increases, but some fans still question the result.`\
 https://www.nytimes.com/2026/06/16/fashion/watch-prices-vs-value.html
-
-**How Artisans Are Recreating the American Revolution**\
-`In the spirit of 1776, these shipwrights, printers and textile workers are commemorating George Washington’s legacy through 18th-century techniques.`\
-https://www.nytimes.com/2026/06/16/travel/1776-revolution-america-250-artisans.html
 
 **Live Updates: Ukraine and Middle East Are Focus as Group of 7 Leaders Meet**\
 `Arriving at the summit, President Trump sought to promote his preliminary deal with Iran. President Volodymyr Zelensky of Ukraine was hoping to shift leaders’ attention to the war with Russia.`\
