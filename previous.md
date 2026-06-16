@@ -1,5 +1,5 @@
 **Russian Navy Ship Accused of Firing Warning Shots at U.K. Yacht**\
-`Britain’s Defense Ministry said it was investigating a report that a Russian vessel fired warning shots near a U.K.-registered yacht in the English Channel on Tuesday.`\
+`Britain’s Defense Ministry said it was investigating a report that a Russian vessel issued warning shots in the English Channel on Tuesday.`\
 https://www.nytimes.com/2026/06/16/world/europe/russian-navy-english-channel-yacht-uk.html
 
 **La guerra en Irán ha cambiado la economía mundial para siempre**\

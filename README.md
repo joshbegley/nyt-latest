@@ -1,5 +1,13 @@
+**After U.S. Strike on Iranian School, Months Pass Without Answers**\
+`U.S. officials have not publicly acknowledged responsibility for the deaths or released a report on their findings from an investigation into the Feb. 28 strike.`\
+https://www.nytimes.com/2026/06/16/us/politics/us-strike-iranian-school.html
+
+**Trump ordenó que el estanque reflectante se pintara de ‘azul bandera’. Ahora es verde de nuevo**\
+`Las algas siguen afectando el estanque, entre el monumento a Lincoln y el monumento a Washington, tras un proyecto de reparación de 14,2 millones de dólares.`\
+https://www.nytimes.com/es/2026/06/16/espanol/tiempo-y-clima/trump-estanque-azul-algas-verde.html
+
 **Russian Navy Ship Accused of Firing Warning Shots at U.K. Yacht**\
-`Britain’s Defense Ministry said it was investigating a report that a Russian vessel issued warning shots in the English Channel on Tuesday.`\
+`Britain’s Defense Ministry said it was investigating a report that a Russian vessel fired warning shots near a U.K.-registered yacht in the English Channel on Tuesday.`\
 https://www.nytimes.com/2026/06/16/world/europe/russian-navy-english-channel-yacht-uk.html
 
 **La guerra en Irán ha cambiado la economía mundial para siempre**\
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/06/16/crosswords/wordle-review-1824.html
 **NYT Strands Hints for June 17, 2026**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, June 17, 2026.`\
 https://www.nytimes.com/2026/06/16/crosswords/strands-sidekick-836.html
-
-**Iran Will Enter Nuclear Talks With the Trump Administration Feeling Emboldened**\
-`Despite military setbacks during the war, Tehran is presenting a narrative of victory before negotiations with Washington.`\
-https://www.nytimes.com/2026/06/16/world/middleeast/iran-us-deal-nuclear-talks.html
-
-**Oil Prices Continue to Fall as Traders Assess U.S.-Iran Deal**\
-`Stocks were mixed after strong rallies the day before.`\
-https://www.nytimes.com/2026/06/16/business/oil-prices-iran-war.html
 
 **Iran War Live Updates: U.S. and Iran Look Ahead to Next Round of Talks**\
 `Iran’s foreign minister said that new negotiations with the United States would start immediately after their preliminary deal is signed on Friday. President Trump said he hoped the conflict would soon be in the “rearview mirror.”`\
