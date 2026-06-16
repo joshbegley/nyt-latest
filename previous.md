@@ -1,3 +1,7 @@
+**War Hangs Over American Farmers as Fertilizer Prices Rise**\
+`The Iran war and lower crop prices have hurt makers of sulfur-based supplements. But farmers won’t skip nitrogen-based fertilizers, no matter the cost.`\
+https://www.nytimes.com/2026/06/16/business/fertilizer-farming-iran.html
+
 **Today, In Short**\
 `“Disclosure Day.” Uzbekistan. And World Cup predictions.`\
 https://www.nytimes.com/2026/06/16/briefing/today-in-short.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/16/realestate/an-architect-opts-for-optimistic-m
 **Warsh Faces Tenuous Balancing Act in First Fed Meeting as Chairman**\
 `Elevated inflation and the specter of rate increases will greet Kevin M. Warsh in his debut as chairman of the Federal Reserve.`\
 https://www.nytimes.com/2026/06/16/business/warsh-fed-chair.html
-
-**Last Call at Donohue’s in New York, ‘a Museum of What Bars Used to Be’**\
-`After 76 years as a Midtown favorite, the family-run restaurant says goodbye to its many, many regulars.`\
-https://www.nytimes.com/2026/06/16/dining/donohues-steak-house-closing.html
 
 **Iran War Live Updates: U.S. and Iran Look Ahead to Next Round of Talks**\
 `Iran’s foreign minister said that new negotiations with the United States would start immediately after their preliminary deal is signed on Friday. President Trump said he hoped the conflict would soon be in the “rearview mirror.”`\

@@ -1,3 +1,7 @@
+**War Hangs Over American Farmers as Fertilizer Prices Rise**\
+`The Iran war and lower crop prices have hurt makers of sulfur-based supplements. But farmers won’t skip nitrogen-based fertilizers, no matter the cost.`\
+https://www.nytimes.com/2026/06/16/business/fertilizer-farming-iran.html
+
 **Today, In Short**\
 `“Disclosure Day.” Uzbekistan. And World Cup predictions.`\
 https://www.nytimes.com/2026/06/16/briefing/today-in-short.html
