@@ -1,3 +1,11 @@
+**New From ‘Serial’: ‘The Last 12 Weeks’**\
+`Listen to the trailer for our latest show.`\
+https://www.nytimes.com/2026/06/16/podcasts/new-podcast-serial-the-last-12-weeks.html
+
+**Why I Love the Beautiful Game: Zohran Mamdani**\
+`The New York City mayor shares his World Cup memories.`\
+https://www.nytimes.com/2026/06/16/podcasts/why-i-love-the-beautiful-game-zohran-mamdani.html
+
 **Ukraine Targets Moscow Oil Facility With Drones as G7 Leaders Meet**\
 `A day earlier, Russia bombarded Kyiv and other Ukrainian cities with missiles and drones, killing at least 11 people and damaging a holy cathedral.`\
 https://www.nytimes.com/2026/06/16/world/europe/ukraine-moscow-oil-refinery-attack-g7-summit.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/16/fashion/watch-prices-vs-value.html
 **How Artisans Are Recreating the American Revolution**\
 `In the spirit of 1776, these shipwrights, printers and textile workers are commemorating George Washington’s legacy through 18th-century techniques.`\
 https://www.nytimes.com/2026/06/16/travel/1776-revolution-america-250-artisans.html
-
-**Book Review: ‘Ghost-Eye,’ by Amitav Ghosh**\
-`Fascinating if overstuffed, Amitav Ghosh’s “Ghost-Eye” connects the mystifying case of a girl in Calcutta to the global climate crisis.`\
-https://www.nytimes.com/2026/06/16/books/review/amitav-ghosh-ghost-eye.html
-
-**Jeffrey Epstein’s Jailhouse Writings on Trump, #MeToo and More**\
-`The Times obtained handwritten notes, never before made public, that reveal his state of mind — including signs of suicidal thoughts — before his death.`\
-https://www.nytimes.com/interactive/2026/06/16/magazine/jeffrey-epstein-jail-writing.html
 
 **Live Updates: Ukraine and Middle East Are Focus as Group of 7 Leaders Meet**\
 `Arriving at the summit, President Trump sought to promote his preliminary deal with Iran. President Volodymyr Zelensky of Ukraine was hoping to shift leaders’ attention to the war with Russia.`\
