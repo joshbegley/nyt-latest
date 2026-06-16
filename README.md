@@ -1,3 +1,7 @@
+**Eight Crew Members Dead in B-52 Crash at Air Force Base**\
+`A military B-52 bomber crashed explosively after takeoff from Edwards Air Force Base in California on Monday. Eight crew members were confirmed dead, Air Force officials said.`\
+https://www.nytimes.com/video/us/100000010970480/air-force-b52-crash-california.html
+
 **Vance’s Book Tour Begins With a Visit to ‘The View’**\
 `The vice president is promoting his book about faith and facing questions about his political ambitions and the war with Iran.`\
 https://www.nytimes.com/2026/06/16/us/politics/jd-vance-view-communion-book.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/16/opinion/joe-jill-biden-east-wing.html
 **Four Stars for Albi in Washington D.C.**\
 `At his Palestinian restaurant in Washington, D.C., the chef Michael Rafidi is telling a vivid story through bread and fire.`\
 https://www.nytimes.com/2026/06/16/dining/restaurant-review-albi-washington-dc.html
-
-**A Baroque Opera Written By a Female Composer Feels Ripped From the Headlines**\
-`The Paris Opera production of “Ercole Amante” (“Hercules in Love”), a rediscovered 1707 work by the female composer Antonia Bembo, leans into contemporary themes of coercion and consent.`\
-https://www.nytimes.com/2026/06/16/arts/music/ercole-amante-antonia-bembo-paris-opera.html
 
 **Iran War Live Updates: U.S. and Iran Look Ahead to Next Round of Talks**\
 `Iran’s foreign minister said that new negotiations with the United States would start immediately after their preliminary deal is signed on Friday. President Trump said he hoped the conflict would soon be in the “rearview mirror.”`\

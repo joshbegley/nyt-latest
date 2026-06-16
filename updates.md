@@ -1,3 +1,11 @@
+**Vance’s Book Tour Begins With a Visit to ‘The View’**\
+`The vice president is promoting his book about faith and facing questions about his political ambitions and the war with Iran.`\
+https://www.nytimes.com/2026/06/16/us/politics/jd-vance-view-communion-book.html
+
+**Trump Gifted German Soccer Jersey at G7 Summit**\
+`This year’s G7 summit, which brings together the leaders of seven of the world’s most industrialized economies, began with the German chancellor gifting President Trump a German soccer jersey.`\
+https://www.nytimes.com/video/world/europe/100000010970368/trump-g7-german-soccer-jersey.html
+
 **Takeaways From JD Vance’s New Book ‘Communion,’ on Faith and His Political Ambitions**\
 `In a new memoir, Mr. Vance recalls an “unsettling” meeting with Vatican officials on immigration policy and disavows his infamous disparagement of some Democrats as “childless cat ladies.”`\
 https://www.nytimes.com/2026/06/16/us/politics/jd-vance-communion-book-takeaways.html
