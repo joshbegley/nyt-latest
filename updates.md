@@ -1,3 +1,7 @@
+**How Tehran Won the World**\
+`Iran’s defiance in the face of Western aggression has become a rallying cry.`\
+https://www.nytimes.com/2026/06/16/opinion/trump-iran-war-aggression.html
+
 **Word of the Day: mastication**\
 `This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/06/16/learning/word-of-the-day-mastication.html
