@@ -1,3 +1,15 @@
+**Australia’s Former Electricity Substations Are Being Turned Into Homes**\
+`In a country where the housing market is squeezed, decommissioned electrical substations are in demand as refurbished residences.`\
+https://www.nytimes.com/2026/06/16/world/australia/electricity-substations-housing.html
+
+**La dignidad de Estados Unidos cayó a la lona**\
+`La noche de peleas del cumpleaños del presidente Trump en el jardín de la Casa Blanca fue un espectáculo absurdo, sí, pero también inquietante.`\
+https://www.nytimes.com/es/2026/06/16/espanol/opinion/trump-ufc-estados-unidos.html
+
+**Quote of the Day: Russians Exploit Gap Over Ukraine**\
+`Quotation of the Day for Tuesday, June 16, 2026`\
+https://www.nytimes.com/2026/06/16/pageoneplus/quote-of-the-day-russians-exploit-gap-over-ukraine.html
+
 **Here Are the 2026 James Beard Restaurant Award Winners**\
 `Kalaya took the outstanding restaurant award and Michael Tusk took home the outstanding chef honor during an evening when immigration and resistance emerged as themes.`\
 https://www.nytimes.com/2026/06/15/dining/2026-james-beard-restaurant-award-winners.html
