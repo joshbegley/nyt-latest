@@ -1,3 +1,11 @@
+**These Dating Apps Want You to Meet at the Gym**\
+`A slew of new apps focus on connecting people who love to work out.`\
+https://www.nytimes.com/2026/06/16/well/move/dating-apps-fitness-hyrox.html
+
+**Can Prescription Eyeglasses Protect You From the Sun?**\
+`You need to protect your eyes from sun exposure, but experts have some advice for`\
+https://www.nytimes.com/2026/06/16/well/eyeglasses-uv-protection.html
+
 **Copa Mundial 2026: así es la complicada situación de la selección de Irán**\
 `En su primer partido en Los Ángeles, la selección iraní atrajo a espectadores que no habían ido a ver fútbol, sino a protestar contra el régimen de Teherán.`\
 https://www.nytimes.com/es/2026/06/16/espanol/mundo/iran-estados-unidos-mundial.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/interactive/2026/06/16/magazine/jeffrey-epstein-death-fi
 **Sharleen Chidiac Brings Punk and Excess in New Musical ‘All the Rage’**\
 `Sharleen Chidiac, a choreographer and the effervescent lead singer of Voyeur, looks at ambition and freedom in her hybrid new work: a punk musical.`\
 https://www.nytimes.com/2026/06/16/arts/dance/sharleen-chidiac-punk-musical.html
-
-**What to Watch in Primary and Runoff Elections in Georgia, Alabama and Oklahoma**\
-`The top race of the day is in Georgia, where Republican voters will pick a nominee to challenge Senator Jon Ossoff, a Democrat.`\
-https://www.nytimes.com/2026/06/16/us/politics/elections-georgia-alabama-oklahoma-runoff.html
-
-**The Verdict on Biden Is In**\
-`Preliminary judgments on Joe Biden’s one-term presidency, including Jill Biden’s, are all the rage.`\
-https://www.nytimes.com/2026/06/16/opinion/joe-jill-biden-east-wing.html
 
 **Iran War Live Updates: U.S. and Iran Look Ahead to Next Round of Talks**\
 `Iran’s foreign minister said that new negotiations with the United States would start immediately after their preliminary deal is signed on Friday. President Trump said he hoped the conflict would soon be in the “rearview mirror.”`\
