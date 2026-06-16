@@ -1,3 +1,7 @@
+**Ukraine Targets Moscow Oil Facility With Drones as G7 Leaders Meet**\
+`A day earlier, Russia bombarded Kyiv and other Ukrainian cities with missiles and drones, killing at least 11 people and damaging a holy cathedral.`\
+https://www.nytimes.com/2026/06/16/world/europe/ukraine-moscow-oil-refinery-attack-g7-summit.html
+
 **Will the Iran Deal Work?**\
 `The world’s attention is on the Middle East.`\
 https://www.nytimes.com/2026/06/16/briefing/will-the-iran-deal-work.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/16/books/review/amitav-ghosh-ghost-eye.html
 **Jeffrey Epstein’s Jailhouse Writings on Trump, #MeToo and More**\
 `The Times obtained handwritten notes, never before made public, that reveal his state of mind — including signs of suicidal thoughts — before his death.`\
 https://www.nytimes.com/interactive/2026/06/16/magazine/jeffrey-epstein-jail-writing.html
-
-**Iran War Live Updates: Shipping Companies Remain Cautious Over Strait**\
-`Ship traffic through the crucial Strait of Hormuz was extremely limited two days after the United States and Iran signed a preliminary deal aimed at ending their war.`\
-https://www.nytimes.com/live/2026/06/16/world/iran-war-trump-us-deal
 
 **Live Updates: Ukraine and Middle East Are Focus as Group of 7 Leaders Meet**\
 `Arriving at the summit, President Trump sought to promote his preliminary deal with Iran. President Volodymyr Zelensky of Ukraine was hoping to shift leaders’ attention to the war with Russia.`\

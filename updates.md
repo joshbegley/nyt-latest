@@ -1,3 +1,7 @@
+**Ukraine Targets Moscow Oil Facility With Drones as G7 Leaders Meet**\
+`A day earlier, Russia bombarded Kyiv and other Ukrainian cities with missiles and drones, killing at least 11 people and damaging a holy cathedral.`\
+https://www.nytimes.com/2026/06/16/world/europe/ukraine-moscow-oil-refinery-attack-g7-summit.html
+
 **Will the Iran Deal Work?**\
 `The world’s attention is on the Middle East.`\
 https://www.nytimes.com/2026/06/16/briefing/will-the-iran-deal-work.html
