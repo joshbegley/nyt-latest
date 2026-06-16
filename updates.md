@@ -1,3 +1,11 @@
+**5 Things to Know About Jared Hudson, Republican Senate Candidate in Alabama**\
+`He is a former sniper with the Navy SEALs who is trying to spring an upset over President Trump’s preferred candidate.`\
+https://www.nytimes.com/2026/06/16/us/politics/jared-hudson-republican-senate-alabama.html
+
+**5 Things to Know About Barry Moore, Republican Senate Candidate in Alabama**\
+`He was an early supporter of President Trump’s first campaign. Now, he has Mr. Trump’s backing.`\
+https://www.nytimes.com/2026/06/16/us/politics/barry-moore-republican-senate-alabama.html
+
 **The Crypto Industry Makes Its Biggest Midterm Bet Yet**\
 `The industry’s main super PAC has spent $9.8 million on ads to help the Senate bid of Representative Barry Moore of Alabama, a Republican seen as pro-cryptocurrency.`\
 https://www.nytimes.com/2026/06/16/us/politics/crypto-barry-moore-fairshake-alabama-senate.html

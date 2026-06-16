@@ -1,3 +1,11 @@
+**5 Things to Know About Jared Hudson, Republican Senate Candidate in Alabama**\
+`He is a former sniper with the Navy SEALs who is trying to spring an upset over President Trump’s preferred candidate.`\
+https://www.nytimes.com/2026/06/16/us/politics/jared-hudson-republican-senate-alabama.html
+
+**5 Things to Know About Barry Moore, Republican Senate Candidate in Alabama**\
+`He was an early supporter of President Trump’s first campaign. Now, he has Mr. Trump’s backing.`\
+https://www.nytimes.com/2026/06/16/us/politics/barry-moore-republican-senate-alabama.html
+
 **The Crypto Industry Makes Its Biggest Midterm Bet Yet**\
 `The industry’s main super PAC has spent $9.8 million on ads to help the Senate bid of Representative Barry Moore of Alabama, a Republican seen as pro-cryptocurrency.`\
 https://www.nytimes.com/2026/06/16/us/politics/crypto-barry-moore-fairshake-alabama-senate.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/video/world/americas/100000010971004/world-cup-mexico-je
 **Washington, D.C. Mayor Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Washington, D.C. primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-washington-dc-mayor-primary.html
-
-**Oklahoma U.S. Senate Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Oklahoma primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-us-senate-primary.html
-
-**Washington, D.C. Attorney General Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Washington, D.C. primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-washington-dc-attorney-general-primary.html
 
