@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/06/16/business/economy/iran-war-oil-trade.html
 `Iran’s foreign minister said that new negotiations with the United States would start immediately after their preliminary deal is signed on Friday. President Trump said he hoped the conflict would soon be in the “rearview mirror.”`\
 https://www.nytimes.com/live/2026/06/16/world/iran-war-trump-us-deal
 
-**Live Updates: Ukraine and Middle East Are Focus as Group of 7 Leaders Meet**\
-`After the U.S. reached a preliminary deal with Iran, the mood seemed lighter than had been expected. President Volodymyr Zelensky of Ukraine was hoping to shift leaders’ attention to the war with Russia.`\
+**Live Updates: At G7 Summit, Trump Says Ukraine War Has ‘No Impact’ on U.S.**\
+`After the United States reached a preliminary deal with Iran, the mood seemed lighter than had been expected. But President Trump’s remarks highlighted persistent divisions among the allies.`\
 https://www.nytimes.com/live/2026/06/16/world/g7-summit-conference-trump-france
 

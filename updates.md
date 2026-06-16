@@ -1,3 +1,7 @@
+**Iran War Live Updates: U.S. and Iran Look Ahead to Next Round of Talks**\
+`Iran’s foreign minister said that new negotiations with the United States would start immediately after their preliminary deal is signed on Friday. President Trump said he hoped the conflict would soon be in the “rearview mirror.”`\
+https://www.nytimes.com/live/2026/06/16/world/iran-war-trump-us-deal
+
 **Literary Travel Combines Travel and a Love of Books**\
 `Resort book clubs, tour companies, hotel libraries and a growing number of literary festivals are offering readers new ways to indulge their interests.`\
 https://www.nytimes.com/2026/06/16/travel/literary-book-travel-trend.html
