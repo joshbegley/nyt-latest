@@ -1,3 +1,7 @@
+**Pochettino’s USMNT Blueprint & Lionel Messi’s Last Dance?**\
+`Demystifying the U.S. men’s  mercurial head coach.`\
+https://www.nytimes.com/2026/06/16/podcasts/pochettino-usmnt-lionel-messis-argentina.html
+
 **A Gen Z Revolution at the Movies**\
 `Two recently released films are such runaway successes that they’ve shocked the industry.`\
 https://www.nytimes.com/2026/06/16/podcasts/the-daily/gen-z-revolution-a24-movies.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/sports/soccer/100000010970136/iran-world-cup-new-z
 **Millones de mujeres se quedan fuera de las terapias para la menopausia**\
 `Las mujeres que no pueden recibir terapia hormonal debido al cáncer de mama u otras enfermedades dicen sentirse profundamente frustradas.`\
 https://www.nytimes.com/es/2026/06/16/espanol/ciencia-y-tecnologia/menopausia-terapia-hormonal-cancer.html
-
-**El presidente Trump perdió esta guerra**\
-`Estados Unidos sale más endeble —militar, diplomática y económicamente— de lo que estaba al inicio de los ataques en Medio Oriente.`\
-https://www.nytimes.com/es/2026/06/16/espanol/opinion/trump-guerra-iran-acuerdo.html
 
 **Live Updates: Ukraine and Middle East Are Focus as Group of 7 Leaders Meet**\
 `Arriving at the summit, President Trump sought to promote his preliminary deal with Iran. President Volodymyr Zelensky of Ukraine was hoping to shift leaders’ attention to the war with Russia.`\

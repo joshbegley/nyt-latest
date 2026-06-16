@@ -1,3 +1,7 @@
+**Pochettino’s USMNT Blueprint & Lionel Messi’s Last Dance?**\
+`Demystifying the U.S. men’s  mercurial head coach.`\
+https://www.nytimes.com/2026/06/16/podcasts/pochettino-usmnt-lionel-messis-argentina.html
+
 **A Gen Z Revolution at the Movies**\
 `Two recently released films are such runaway successes that they’ve shocked the industry.`\
 https://www.nytimes.com/2026/06/16/podcasts/the-daily/gen-z-revolution-a24-movies.html
