@@ -1,3 +1,7 @@
+**Los mejores programas de televisión de 2026 hasta ahora**\
+`El año arrancó con pocos éxitos rotundos, pero hemos visto sorpresas agradables como ‘Widow’s Bay’, y el regreso de algunos de nuestros favoritos como ‘The Comeback’ y los Muppets.`\
+https://www.nytimes.com/es/2026/06/16/espanol/cultura/los-mejores-programas-de-television-de-2026-hasta-ahora.html
+
 **Why Team Iran Is in a Tough Spot at the World Cup**\
 `At its first game in Los Angeles, the men’s national team drew spectators who weren’t coming for the soccer, but rather to protest the regime in Tehran.`\
 https://www.nytimes.com/2026/06/16/world/middleeast/world-cup-iran-new-zealand-protests.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/15/arts/music/sean-combs-lawsuit-dismissed-dawn-
 **Convicted Leader of Greek Militant Group Ordered Back to Prison**\
 `Alexandros Giotopoulos, 82, had been serving 17 life sentences for leading November 17, a leftist group blamed for a wave of bombings and assassinations.`\
 https://www.nytimes.com/2026/06/15/world/europe/november-17-giotopoulos-prison-release.html
-
-**8 Dead in B-52 Bomber Crash at Edwards Air Force Base in California**\
-`The aircraft burst into flames on Monday morning shortly after takeoff from Edwards Air Force Base in California, officials said. The cause is still under investigation.`\
-https://www.nytimes.com/2026/06/15/us/b-52-crash-edwards-air-force-base-california.html
 

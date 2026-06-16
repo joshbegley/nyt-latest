@@ -1,3 +1,7 @@
+**Los mejores programas de televisión de 2026 hasta ahora**\
+`El año arrancó con pocos éxitos rotundos, pero hemos visto sorpresas agradables como ‘Widow’s Bay’, y el regreso de algunos de nuestros favoritos como ‘The Comeback’ y los Muppets.`\
+https://www.nytimes.com/es/2026/06/16/espanol/cultura/los-mejores-programas-de-television-de-2026-hasta-ahora.html
+
 **Why Team Iran Is in a Tough Spot at the World Cup**\
 `At its first game in Los Angeles, the men’s national team drew spectators who weren’t coming for the soccer, but rather to protest the regime in Tehran.`\
 https://www.nytimes.com/2026/06/16/world/middleeast/world-cup-iran-new-zealand-protests.html
