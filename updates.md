@@ -1,3 +1,7 @@
+**Call It a ‘Book-cation’ or a ‘Readaway,’ Literary Travel Is Having a Moment**\
+`Resort book clubs, tour companies, hotel libraries and a growing number of literary festivals are offering readers new ways to indulge their interests.`\
+https://www.nytimes.com/2026/06/16/travel/literary-book-travel-trend.html
+
 **Copa Mundial 2026: así es la complicada situación de la selección de Irán**\
 `En su primer partido en Los Ángeles, la selección iraní atrajo a espectadores que no habían ido a ver fútbol, sino a protestar contra el régimen de Teherán.`\
 https://www.nytimes.com/es/2026/06/16/espanol/mundo/iran-estados-unidos-mundial.html
