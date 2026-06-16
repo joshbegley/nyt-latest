@@ -1,3 +1,7 @@
+**Live Updates: Ukraine and Middle East Are Focus as Group of 7 Leaders Meet**\
+`Arriving at the summit, President Trump sought to promote his preliminary deal with Iran. President Volodymyr Zelensky of Ukraine was hoping to shift leaders’ attention to the war with Russia.`\
+https://www.nytimes.com/live/2026/06/16/world/g7-summit-conference-trump-france
+
 **¿Qué pasa cuando el mayor experto en ‘deepfakes’ ya no confía en sus propios ojos?**\
 `Para Hany Farid, demostrar qué es real en la era de la IA es cada vez más complicado.`\
 https://www.nytimes.com/es/2026/06/16/espanol/estados-unidos/deepfakes-ultrafalsos-ia-experto.html
