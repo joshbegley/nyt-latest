@@ -1,3 +1,11 @@
+**Copa Mundial 2026: así es la complicada situación de la selección de Irán**\
+`En su primer partido en Los Ángeles, la selección iraní atrajo a espectadores que no habían ido a ver fútbol, sino a protestar contra el régimen de Teherán.`\
+https://www.nytimes.com/es/2026/06/16/espanol/mundo/iran-estados-unidos-mundial.html
+
+**Eight Crew Members Dead in B-52 Crash at Air Force Base**\
+`A military B-52 bomber crashed explosively after takeoff from Edwards Air Force Base in California on Monday. Eight crew members were confirmed dead, Air Force officials said.`\
+https://www.nytimes.com/video/us/100000010970480/air-force-b52-crash-california.html
+
 **Vance’s Book Tour Begins With a Visit to ‘The View’**\
 `The vice president is promoting his book about faith and facing questions about his political ambitions and the war with Iran.`\
 https://www.nytimes.com/2026/06/16/us/politics/jd-vance-view-communion-book.html
