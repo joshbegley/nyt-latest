@@ -1,3 +1,7 @@
+**Carriage Horse in Central Park Died After Eating a Poisonous Plant**\
+`A preliminary report said the horse had eaten from a commonplace but toxic shrub, though rules forbid allowing horses to consume park plants.`\
+https://www.nytimes.com/2026/06/16/nyregion/carriage-horse-central-park-death-poisonous-plant.html
+
 **Justice Dept. Considering Death Penalty for Alleged National Guard Shooter**\
 `Federal prosecutors told a judge that they were deciding whether to seek the death penalty if Rahmanullah Lakanwal is convicted of killing a National Guard specialist.`\
 https://www.nytimes.com/2026/06/16/us/politics/doj-national-guard-shooting.html
