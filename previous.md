@@ -1,3 +1,7 @@
+**Europe Union Lawmakers Approve Much-Delayed Trade Deal With U.S.**\
+`After nearly a year of wrangling, the deal the European Union struck with President Trump in Turnberry, Scotland, is headed for final approval.`\
+https://www.nytimes.com/2026/06/16/world/europe/eu-us-trade-trump.html
+
 **Who Are the Leaders at the G7 Summit in France?**\
 `On a roll or against a wall, Group of 7 leaders bring sharply different agendas. The leaders of some other nations are also attending to press their own interests.`\
 https://www.nytimes.com/2026/06/16/world/europe/who-are-g7-leaders.html
@@ -31,7 +35,7 @@ https://www.nytimes.com/interactive/2026/06/16/world/quake-tracker-japan.html
 https://www.nytimes.com/2026/06/16/world/europe/g7-leaders-summit-what-who.html
 
 **War Loomed Over Past World Cups, Too**\
-`International conflicts have repeatedly seeped into soccer’s biggest tournament. Here are some examples.`\
+`Here’s a look back at times when international conflicts seeped into soccer’s biggest tournament.`\
 https://www.nytimes.com/2026/06/16/sports/world-cup/us-iran-soccer-world-cup-conflict.html
 
 **New From ‘Serial’: ‘The Last 12 Weeks’**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/video/us/100000010948122/epstein-jail-writings.html
 **A.I. Boom Ignites Asian Chip Companies**\
 `They make much of the gear that goes into giant data centers. Demand for their products is shifting the balance of tech power.`\
 https://www.nytimes.com/2026/06/16/technology/taiwan-south-korea-ai-chips.html
-
-**Book Review: ‘The Frenzy,’ by Joyce Carol Oates**\
-`The stories in her new collection deal in jagged emergencies and in wounds both physical and psychic.`\
-https://www.nytimes.com/2026/06/16/books/review/joyce-carol-oates-frenzy.html
 
 **Iran War Live Updates: Talks on Final Agreement Will Begin Friday, Tehran Says**\
 `Iran’s foreign minister said that new negotiations with the United States would start immediately after their preliminary deal is signed. President Trump reiterated that the initial pact ensures Iran will not obtain a nuclear weapon.`\

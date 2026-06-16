@@ -1,3 +1,11 @@
+**Europe Union Lawmakers Approve Much-Delayed Trade Deal With U.S.**\
+`After nearly a year of wrangling, the deal the European Union struck with President Trump in Turnberry, Scotland, is headed for final approval.`\
+https://www.nytimes.com/2026/06/16/world/europe/eu-us-trade-trump.html
+
+**War Loomed Over Past World Cups, Too**\
+`Here’s a look back at times when international conflicts seeped into soccer’s biggest tournament.`\
+https://www.nytimes.com/2026/06/16/sports/world-cup/us-iran-soccer-world-cup-conflict.html
+
 **Who Are the Leaders at the G7 Summit in France?**\
 `On a roll or against a wall, Group of 7 leaders bring sharply different agendas. The leaders of some other nations are also attending to press their own interests.`\
 https://www.nytimes.com/2026/06/16/world/europe/who-are-g7-leaders.html
