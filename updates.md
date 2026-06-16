@@ -1,3 +1,11 @@
+**Claiming an Antifa Plot, U.S. Charges 15 in Minneapolis With Conspiracy**\
+`The 94-page conspiracy indictment was filed as federal prosecutors in Minnesota had trouble sustaining many criminal cases filed against Immigration and Customs Enforcement protesters.`\
+https://www.nytimes.com/2026/06/16/us/minnesota-immigration-charges-antifa.html
+
+**Vance Is Pressed on Epstein, Race and His Boss on ‘The View’**\
+`Vice President JD Vance is promoting a new book on faith and facing questions about his own presidential ambitions.`\
+https://www.nytimes.com/2026/06/16/us/politics/jd-vance-view-communion-book.html
+
 **Prosecutors Say 15 Defendants Were Part of an Antifa Plot in Minneapolis**\
 `The 94-page conspiracy indictment was filed as federal prosecutors in Minnesota had trouble sustaining many criminal cases filed against Immigration and Customs Enforcement protesters.`\
 https://www.nytimes.com/2026/06/16/us/minnesota-immigration-charges-antifa.html

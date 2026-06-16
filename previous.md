@@ -1,4 +1,4 @@
-**Prosecutors Say 15 Defendants Were Part of an Antifa Plot in Minneapolis**\
+**Claiming an Antifa Plot, U.S. Charges 15 in Minneapolis With Conspiracy**\
 `The 94-page conspiracy indictment was filed as federal prosecutors in Minnesota had trouble sustaining many criminal cases filed against Immigration and Customs Enforcement protesters.`\
 https://www.nytimes.com/2026/06/16/us/minnesota-immigration-charges-antifa.html
 
@@ -86,8 +86,8 @@ https://www.nytimes.com/es/2026/06/16/espanol/mundo/iran-estados-unidos-mundial.
 `A military B-52 bomber crashed explosively after takeoff from Edwards Air Force Base in California on Monday. Eight crew members were confirmed dead, Air Force officials said.`\
 https://www.nytimes.com/video/us/100000010970480/air-force-b52-crash-california.html
 
-**Vance’s Book Tour Begins With a Visit to ‘The View’**\
-`The vice president is promoting his book about faith and facing questions about his political ambitions and the war with Iran.`\
+**Vance Is Pressed on Epstein, Race and His Boss on ‘The View’**\
+`Vice President JD Vance is promoting a new book on faith and facing questions about his own presidential ambitions.`\
 https://www.nytimes.com/2026/06/16/us/politics/jd-vance-view-communion-book.html
 
 **Trump Gifted German Soccer Jersey at G7 Summit**\
