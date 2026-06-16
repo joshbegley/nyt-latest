@@ -1,3 +1,7 @@
+**Naval Mines Could Still Stymie Gulf Shipping After War**\
+`The U.S. Navy will be deploying a new generation of drone-based countermeasures to search the sea floor and surface for any mines Iran laid.`\
+https://www.nytimes.com/2026/06/16/world/middleeast/strait-hormuz-mines-clearing.html
+
 **Australia’s Former Electricity Substations Are Being Turned Into Homes**\
 `In a country where the housing market is squeezed, decommissioned electrical substations are in demand as refurbished residences.`\
 https://www.nytimes.com/2026/06/16/world/australia/electricity-substations-housing.html
