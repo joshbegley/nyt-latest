@@ -1,3 +1,7 @@
+**Map: 5.5-Magnitude Earthquake Shakes Japan**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/16/world/quake-tracker-japan.html
+
 **Who Are the G7 Countries and What Is the G7 Summit?**\
 `Its members are among the world’s wealthiest large democracies — close allies and major trading partners that account for a substantial slice of the global economy.`\
 https://www.nytimes.com/2026/06/16/world/europe/g7-leaders-summit-what-who.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/16/fashion/watches-montblanc-minerva.html
 **Rolex Fans Hope for Another ‘Pepsi’ Revival**\
 `The blue and red variation of the GMT-Master II was removed from the brand catalog, but it wasn’t the first time.`\
 https://www.nytimes.com/2026/06/16/fashion/watches-rolex-pepsi-gmt11.html
-
-**Marc Newson Says Clock Was Meant to Add Romance to Travel**\
-`For example, Marc Newson said, the chime of Jaeger-LeCoultre’s new Memovox Travel Clock was meant to be ‘sweet and calming.’`\
-https://www.nytimes.com/2026/06/16/fashion/watches-jaeger-lecoultre-marc-newson.html
 
 **Live Updates: Ukraine and Middle East Are Focus as Group of 7 Leaders Meet**\
 `After the U.S. reached a preliminary deal with Iran, the mood seemed lighter than had been expected. President Volodymyr Zelensky of Ukraine was hoping to shift leaders’ attention to the war with Russia.`\

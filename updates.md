@@ -1,3 +1,11 @@
+**Who Are the G7 Countries and What Is the G7 Summit?**\
+`Its members are among the world’s wealthiest large democracies — close allies and major trading partners that account for a substantial slice of the global economy.`\
+https://www.nytimes.com/2026/06/16/world/europe/g7-leaders-summit-what-who.html
+
+**Live Updates: Ukraine and Middle East Are Focus as Group of 7 Leaders Meet**\
+`After the U.S. reached a preliminary deal with Iran, the mood seemed lighter than had been expected. President Volodymyr Zelensky of Ukraine was hoping to shift leaders’ attention to the war with Russia.`\
+https://www.nytimes.com/live/2026/06/16/world/g7-summit-conference-trump-france
+
 **War Loomed Over Past World Cups, Too**\
 `International conflicts have repeatedly seeped into soccer’s biggest tournament. Here are some examples.`\
 https://www.nytimes.com/2026/06/16/sports/world-cup/us-iran-soccer-world-cup-conflict.html
