@@ -1,3 +1,7 @@
+**12 Injured, Possibly by Electricity, at Canadian Water Park**\
+`Ten middle school students and two others sustained serious but not life-threatening injuries at Cultus Lake Waterpark in British Columbia, officials said.`\
+https://www.nytimes.com/2026/06/16/world/canada/british-columbia-water-park-cultus-lake-injuries.html
+
 **Mapa: la trayectoria del potencial ciclón tropical Uno en vivo**\
 `Consulta la trayectoria probable y las horas de llegada de los vientos de Uno.`\
 https://www.nytimes.com/es/interactive/2026/06/16/espanol/tormenta-tropical-golfo-mexico.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-california-us-hous
 **Alabama Agriculture Commissioner Runoff 2026: Live Election Results**\
 `Get live results and maps from the 2026 Alabama runoff election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-alabama-agriculture-commissioner-runoff.html
-
-**Alabama Attorney General Runoff 2026: Live Election Results**\
-`Get live results and maps from the 2026 Alabama runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-alabama-attorney-general-runoff.html
 

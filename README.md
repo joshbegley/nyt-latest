@@ -1,3 +1,15 @@
+**Federal Judge Blocks Idaho Law Criminalizing Transgender Bathroom Use**\
+`Six transgender residents claimed that the bathroom ban, the most restrictive in the nation, violated their constitutional rights.`\
+https://www.nytimes.com/2026/06/16/us/transgender-idaho-bathroom-law.html
+
+**Racing to the World Cup From New York**\
+`Bus, train, bike or Uber: Which will get you to MetLife Stadium first? Four New York Times reporters raced from Midtown Manhattan to the first World Cup game there.`\
+https://www.nytimes.com/video/nyregion/100000010964454/racing-to-the-world-cup-from-new-york.html
+
+**Results in Key Races**\
+`SUMMARY TK`\
+https://www.nytimes.com/interactive/2026/us/elections/results-key-races-june-16.html
+
 **12 Injured, Possibly by Electricity, at Canadian Water Park**\
 `Ten middle school students and two others sustained serious but not life-threatening injuries at Cultus Lake Waterpark in British Columbia, officials said.`\
 https://www.nytimes.com/2026/06/16/world/canada/british-columbia-water-park-cultus-lake-injuries.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-georgia-public-ser
 **Alabama Lieutenant Governor Runoff 2026: Live Election Results**\
 `Get live results and maps from the 2026 Alabama runoff election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-alabama-lieutenant-governor-runoff.html
-
-**Alabama Public Service Commission Runoff 2026: Live Election Results**\
-`Get live results and maps from the 2026 Alabama runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-alabama-public-service-commission-runoff.html
-
-**California 14th Congressional District Special 2026: Live Election Results**\
-`Get live results and maps from the 2026 California special election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-14-special.html
-
-**Alabama Agriculture Commissioner Runoff 2026: Live Election Results**\
-`Get live results and maps from the 2026 Alabama runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-alabama-agriculture-commissioner-runoff.html
 

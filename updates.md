@@ -1,3 +1,7 @@
+**12 Injured, Possibly by Electricity, at Canadian Water Park**\
+`Ten middle school students and two others sustained serious but not life-threatening injuries at Cultus Lake Waterpark in British Columbia, officials said.`\
+https://www.nytimes.com/2026/06/16/world/canada/british-columbia-water-park-cultus-lake-injuries.html
+
 **Mapa: la trayectoria del potencial ciclón tropical Uno en vivo**\
 `Consulta la trayectoria probable y las horas de llegada de los vientos de Uno.`\
 https://www.nytimes.com/es/interactive/2026/06/16/espanol/tormenta-tropical-golfo-mexico.html
