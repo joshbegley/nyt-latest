@@ -1,3 +1,55 @@
+**Book Review: ‘Presence: A Hidden History of the Female Body,’ by Erin Maglaque**\
+`In “Presence,” the historian Erin Maglaque pieces together the fragments of early modern womanhood.`\
+https://www.nytimes.com/2026/06/16/books/review/presence-erin-maglaque.html
+
+**Audemars Piguet’s New Division Works Much Like Its Own Start**\
+`Audemars Piguet’s Atelier des Établisseurs coordinates the work of independent experts on new timepieces, a lot like the brand’s own beginnings.`\
+https://www.nytimes.com/2026/06/16/fashion/audemars-piguet-new-division.html
+
+**This Proposal Came Right on Time, and With a Watch**\
+`When Rory Corr’s future wife asked him to marry her, she presented him with the Max Bill chronograph he had wanted for years.`\
+https://www.nytimes.com/2026/06/16/fashion/watches-junghans-max-bill-chronograph.html
+
+**Why Is Everyone Waiting Hours for Frozen Yogurt? Why Am I?**\
+`The yogurt is not special. Let’s just get that out of the way now.`\
+https://www.nytimes.com/2026/06/16/magazine/frozen-yogurt-lines-myka.html
+
+**Gas Prices May Remain High Despite US-Iran Deal**\
+`The preliminary agreement may not have an immediate effect on prices at the pump. Damaged infrastructure and risky transport could keep costs up.`\
+https://www.nytimes.com/2026/06/16/business/energy-environment/us-iran-deal-gas-prices.html
+
+**Minerva Watches Steps Back Into the Spotlight**\
+`Montblanc, which had been co-producing watches with the celebrated brand, says Minerva will now produce its own collection.`\
+https://www.nytimes.com/2026/06/16/fashion/watches-montblanc-minerva.html
+
+**Rolex Fans Hope for Another ‘Pepsi’ Revival**\
+`The blue and red variation of the GMT-Master II was removed from the brand catalog, but it wasn’t the first time.`\
+https://www.nytimes.com/2026/06/16/fashion/watches-rolex-pepsi-gmt11.html
+
+**Marc Newson Says Clock Was Meant to Add Romance to Travel**\
+`For example, Marc Newson said, the chime of Jaeger-LeCoultre’s new Memovox Travel Clock was meant to be ‘sweet and calming.’`\
+https://www.nytimes.com/2026/06/16/fashion/watches-jaeger-lecoultre-marc-newson.html
+
+**Are Watch Prices Outpacing Buyers’ Views of Their Value?**\
+`Makers say tariffs, the rising cost of materials and a strong Swiss franc are behind the increases, but some fans still question the result.`\
+https://www.nytimes.com/2026/06/16/fashion/watch-prices-vs-value.html
+
+**How Artisans Are Recreating the American Revolution**\
+`In the spirit of 1776, these shipwrights, printers and textile workers are commemorating George Washington’s legacy through 18th-century techniques.`\
+https://www.nytimes.com/2026/06/16/travel/1776-revolution-america-250-artisans.html
+
+**Book Review: ‘Ghost-Eye,’ by Amitav Ghosh**\
+`Fascinating if overstuffed, Amitav Ghosh’s “Ghost-Eye” connects the mystifying case of a girl in Calcutta to the global climate crisis.`\
+https://www.nytimes.com/2026/06/16/books/review/amitav-ghosh-ghost-eye.html
+
+**Jeffrey Epstein’s Jailhouse Writings on Trump, #MeToo and More**\
+`The Times obtained handwritten notes, never before made public, that reveal his state of mind — including signs of suicidal thoughts — before his death.`\
+https://www.nytimes.com/interactive/2026/06/16/magazine/jeffrey-epstein-jail-writing.html
+
+**Iran War Live Updates: Shipping Companies Remain Cautious Over Strait**\
+`Ship traffic through the crucial Strait of Hormuz was extremely limited two days after the United States and Iran signed a preliminary deal aimed at ending their war.`\
+https://www.nytimes.com/live/2026/06/16/world/iran-war-trump-us-deal
+
 **Mixed Feelings as Iran Ties With New Zealand in World Cup**\
 `Iran and New Zealand played their World Cup opener on Monday, tying 2-2. Some spectators protested the Islamic Republic of Iran while others cheered on the team.`\
 https://www.nytimes.com/video/sports/soccer/100000010970136/iran-world-cup-new-zealand-protest.html
@@ -145,56 +197,4 @@ https://www.nytimes.com/2026/06/15/us/politics/montana-democrats-senate.html
 **Divider in Chief**\
 `Unlike past presidents, Donald Trump “uses everything to divide us.” America’s 250th anniversary is no exception, the NYT Opinion contributor Pete Wehner argues on “The Opinions.”`\
 https://www.nytimes.com/video/opinion/100000010958365/divider-in-chief.html
-
-**A Knicks-Inspired Baby-Naming Boom Is Coming After Championship Win, Experts Say**\
-`Jalen Brunson could become the next Michael Jordan of baby names, but don’t expect more Victors or Wembys, the experts say.`\
-https://www.nytimes.com/2026/06/15/nyregion/knicks-baby-names-jalen-brunson.html
-
-**Scorching Heat or Scorching Lightning? Miami’s Match Could Have Both.**\
-`South Florida was under a severe heat advisory as fans arrived in the hours before kickoff. Scattered thunderstorms are also in the forecast.`\
-https://www.nytimes.com/2026/06/15/us/miami-world-cup-heat.html
-
-**The (Mostly) Unanswered Questions at the Heart of a U.S.-Iran Accord**\
-`The short-term truce hasn’t been made public, and the long-term peace deal it is supposed to yield doesn’t exist yet, so there is much still unknown about any agreement between the adversaries.`\
-https://www.nytimes.com/2026/06/15/world/middleeast/us-iran-deal-agreement-questions.html
-
-**Copa Mundial: los fans de Cabo Verde celebran el empate contra España**\
-`Cabo Verde, una pequeña nación insular, es uno de los países más pequeños que han clasificado para un Mundial. Los fanáticos festejaron que el equipo resistiera ante uno de los favoritos del torneo.`\
-https://www.nytimes.com/es/2026/06/15/espanol/deportes/copa-mundial-espana-cabo-verde-portero.html
-
-**En Israel, crece el descontento en torno al acuerdo entre EE. UU. e Irán**\
-`Israelíes de todo el espectro político dijeron que el acuerdo parece dejar sin resolver las amenazas fundamentales a la seguridad israelí que plantea Irán.`\
-https://www.nytimes.com/es/2026/06/15/espanol/mundo/israel-iran-acuerdo-paz-trump.html
-
-**Trump Praises Peace Deal Framework With Iran**\
-`On Monday, the U.S. and Iran signed a preliminary peace deal, but the terms of the agreement remained a secret. While the U.S. and Iranian officials made conflicting statements about the deal’s terms, it was clear that the deal’s immediate scope was focused primarily on ending military attacks and allowing traffic to resume through the Strait of Hormuz.`\
-https://www.nytimes.com/video/world/middleeast/100000010968894/us-trump-iran-negotiations-deal.html
-
-**Terms of U.S.-Iran Deal Remain Secret**\
-`Cape Verde pulls off a shocker at the World Cup. Here’s the latest at the end of Monday.`\
-https://www.nytimes.com/2026/06/15/briefing/us-iran-deal-cape-verde-world-cup.html
-
-**Potential End of War Tests Trump’s Promise of Quick Economic Rebound**\
-`Gas prices and other goods could remain elevated for months, adding to the political challenge facing the White House in the midterm elections.`\
-https://www.nytimes.com/2026/06/15/us/politics/iran-war-deal-trump-economic-rebound.html
-
-**Will Commercial Ships Have to Pay to Pass Through the Strait of Hormuz? Maybe.**\
-`Charging a toll is illegal under international law, but some fees are allowed for services. It is not clear what services Iran would provide, but there were no fees charged before the war.`\
-https://www.nytimes.com/2026/06/15/world/middleeast/shipping-fees-tolls-strait-hormuz.html
-
-**Kennedy Orders Woman to Stay in Hantavirus Quarantine, Despite C.D.C. Recommendation**\
-`Others who were in the facility have been allowed to return to their homes in recent weeks for monitoring by local health officials.`\
-https://www.nytimes.com/2026/06/15/health/hantavirus-quarantine-kennedy.html
-
-**Alabama and Georgia Runoff Elections Offer a New Test of Trump’s Influence Tomorrow**\
-`The Peach State, as well as Alabama, will offer new tests of Trump’s influence.`\
-https://www.nytimes.com/2026/06/15/us/politics/georgia-alabama-runoff-primary-elections-trump.html
-
-**Will the Iran Deal Stick?**\
-`After many false starts, this cease-fire plan could be different. That’s because the war really has become painful for both the U.S. and Iran.`\
-https://www.nytimes.com/2026/06/15/world/iran-deal-cape-verde-world-cup.html
-
-**Inside the Partisan Battle Over America’s 250th Birthday Celebrations**\
-`President Trump sidestepped a congressional commission and formed his own group to plan the festivities. The result is a deeply partisan celebration, disgruntled celebrities and plenty of confusion.`\
-https://www.nytimes.com/2026/06/15/us/politics/freedom-250-america-250.html
 

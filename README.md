@@ -1,3 +1,99 @@
+**Six Takeaways From the Times Investigation Into Epstein’s Death**\
+`We considered every plausible theory of his death, both official and otherwise, seeking out the most persuasive arguments and evidence for each.`\
+https://www.nytimes.com/2026/06/16/magazine/jeffrey-epstein-death-mental-health.html
+
+**Rope Jumper Falls to Her Death After Operators Fail to Secure Harness**\
+`Harrowing videos of the incident in Brazil showed the woman lifted over the heads of two instructors, her arms spread like wings, as they threw her off a bridge.`\
+https://www.nytimes.com/2026/06/16/travel/brazil-rope-jumping-fall.html
+
+**Can I Break My Husband’s Restaurant Boycott?**\
+`A dispute over how to handle a cracked soup container.`\
+https://www.nytimes.com/interactive/2026/06/16/magazine/restaurant-boycott-hodgman-quiz.html
+
+**Corrections: June 16, 2026**\
+`No corrections appeared in print on Tuesday, June 16, 2026.`\
+https://www.nytimes.com/2026/06/16/pageoneplus/no-corrections-june-16-2026.html
+
+**These Sidewalk Sheds Aren’t Eyesores**\
+`The city is moving toward more attractive sheds, diversifying from hunter green to blue and yellow.`\
+https://www.nytimes.com/2026/06/16/nyregion/sidewalk-sheds-makeover.html
+
+**Graham Platner, Jon Ossoff and the New Rules of Political Attention**\
+`Chris Hayes and Ezra Klein discuss how the Democrats are winning the battle for attention, and whether that can translate into winning elections.`\
+https://www.nytimes.com/2026/06/16/opinion/ezra-klein-podcast-chris-hayes-2026.html
+
+**These Are the Voters Who Can Keep Democrats From Going Off the Rails**\
+`Black and other minority Democrats are a strong force for moderation in a party that is having trouble reining itself in.`\
+https://www.nytimes.com/2026/06/16/opinion/democratic-party-coalition-minority-voters.html
+
+**An Architect Opts for ‘Optimistic Modernism’ in Her Silver Lake Kitchen**\
+`Barbara Bestor fills her Los Angeles kitchen and dining room with color and vintage objects with character.`\
+https://www.nytimes.com/2026/06/16/realestate/an-architect-opts-for-optimistic-modernism-in-her-silver-lake-kitchen.html
+
+**Warsh Faces Tenuous Balancing Act in First Fed Meeting as Chairman**\
+`Elevated inflation and the specter of rate increases will greet Kevin M. Warsh in his debut as chairman of the Federal Reserve.`\
+https://www.nytimes.com/2026/06/16/business/warsh-fed-chair.html
+
+**Last Call at Donohue’s in New York, ‘a Museum of What Bars Used to Be’**\
+`After 76 years as a Midtown favorite, the family-run restaurant says goodbye to its many, many regulars.`\
+https://www.nytimes.com/2026/06/16/dining/donohues-steak-house-closing.html
+
+**The Untold Story of Jeffrey Epstein’s Death and His Final Days in Jail**\
+`New evidence, new interviews and the fullest investigation yet into the question of whether he killed himself.`\
+https://www.nytimes.com/interactive/2026/06/16/magazine/jeffrey-epstein-death-final-days.html
+
+**Sharleen Chidiac Brings Punk and Excess in New Musical ‘All the Rage’**\
+`Sharleen Chidiac, a choreographer and the effervescent lead singer of Voyeur, looks at ambition and freedom in her hybrid new work: a punk musical.`\
+https://www.nytimes.com/2026/06/16/arts/dance/sharleen-chidiac-punk-musical.html
+
+**What to Watch in Primary and Runoff Elections in Georgia, Alabama and Oklahoma**\
+`The top race of the day is in Georgia, where Republican voters will pick a nominee to challenge Senator Jon Ossoff, a Democrat.`\
+https://www.nytimes.com/2026/06/16/us/politics/elections-georgia-alabama-oklahoma-runoff.html
+
+**The Verdict on Biden Is In**\
+`Preliminary judgments on Joe Biden’s one-term presidency, including Jill Biden’s, are all the rage.`\
+https://www.nytimes.com/2026/06/16/opinion/joe-jill-biden-east-wing.html
+
+**Four Stars for Albi in Washington D.C.**\
+`At his Palestinian restaurant in Washington, D.C., the chef Michael Rafidi is telling a vivid story through bread and fire.`\
+https://www.nytimes.com/2026/06/16/dining/restaurant-review-albi-washington-dc.html
+
+**A Baroque Opera Written By a Female Composer Feels Ripped From the Headlines**\
+`The Paris Opera production of “Ercole Amante” (“Hercules in Love”), a rediscovered 1707 work by the female composer Antonia Bembo, leans into contemporary themes of coercion and consent.`\
+https://www.nytimes.com/2026/06/16/arts/music/ercole-amante-antonia-bembo-paris-opera.html
+
+**Best Classical Music and Opera of 2026 So Far**\
+`Kaija Saariaho’s final opera, a premiere by Ellen Reid and a multitasking performance by Barbara Hannigan are among the highlights.`\
+https://www.nytimes.com/2026/06/16/arts/music/best-classical-music-opera-2026.html
+
+**Graham Platner, Jon Ossoff and the New Rules of Political Attention**\
+`Chris Hayes and Ezra Klein discuss how the Democrats are winning the battle for attention, and whether that can translate into winning elections.`\
+https://www.nytimes.com/video/opinion/100000010956569/graham-platner-jon-ossoff-and-the-new-rules-of-political-attention.html
+
+**The Iran War Permanently Altered the Global Economy**\
+`The global order has been altered, and economies are unlikely to simply pick up where they left off before the U.S. and Israel began bombing Iran.`\
+https://www.nytimes.com/2026/06/16/business/economy/iran-war-oil-trade.html
+
+**What if Both Parties Redistricted to the Max?**\
+`How the scramble for partisan advantage could further distort America’s politics.`\
+https://www.nytimes.com/2026/06/16/opinion/gerrymander-redistricting-party.html
+
+**Just How Much Are E.V. Drivers Saving With Gas Prices Still High?**\
+`Over a long period, gas prices tend to be more volatile than electricity rates.`\
+https://www.nytimes.com/2026/06/16/upshot/electric-cars-gas-costs.html
+
+**What We Learned About Jeffrey Epstein’s Death**\
+`The New York Times has obtained writings by Jeffrey Epstein from his time in jail that have never been made public and has spoken with his fellow inmates to understand his state of mind in the weeks before his death. Steve Eder, an investigative reporter, explains.`\
+https://www.nytimes.com/video/us/100000010948122/epstein-jail-writings.html
+
+**A.I. Boom Ignites Asian Chip Companies**\
+`They make much of the gear that goes into giant data centers. Demand for their products is shifting the balance of tech power.`\
+https://www.nytimes.com/2026/06/16/technology/taiwan-south-korea-ai-chips.html
+
+**Book Review: ‘The Frenzy,’ by Joyce Carol Oates**\
+`The stories in her new collection deal in jagged emergencies and in wounds both physical and psychic.`\
+https://www.nytimes.com/2026/06/16/books/review/joyce-carol-oates-frenzy.html
+
 **Book Review: ‘Presence: A Hidden History of the Female Body,’ by Erin Maglaque**\
 `In “Presence,” the historian Erin Maglaque pieces together the fragments of early modern womanhood.`\
 https://www.nytimes.com/2026/06/16/books/review/presence-erin-maglaque.html
@@ -101,100 +197,4 @@ https://www.nytimes.com/2026/06/16/learning/word-of-the-day-mastication.html
 **¿Cómo puede un solo cerebro hablar dos idiomas?**\
 `Un nuevo estudio sobre personas bilingües sugiere que un único “motor gramatical” en el cerebro puede gestionar varias lenguas a la vez.`\
 https://www.nytimes.com/es/2026/06/16/espanol/ciencia-y-tecnologia/cerebro-bilingue-gramatica.html
-
-**This New Party Wants to Write a New Future for Israel**\
-`A new Israeli-Palestinian political party, A Place For Us All, was born out of joint activism and organizing focused on the daily realities on the ground, not grandiose policies.`\
-https://www.nytimes.com/2026/06/16/opinion/jewish-palestinian-party-israel.html
-
-**How Tehran Won the World**\
-`Iran’s defiance in the face of Western aggression has become a rallying cry.`\
-https://www.nytimes.com/2026/06/16/opinion/trump-iran-war-aggression.html
-
-**Japan Raises Rates to 31-Year High to Ward Off War Inflation**\
-`Going against Prime Minister Takaichi’s wishes, Japan’s central bank acted amid U.S. pressure, a tanking currency and inflation from energy disruptions.`\
-https://www.nytimes.com/2026/06/16/business/japan-interest-rates-war.html
-
-**Los mejores programas de televisión de 2026 hasta ahora**\
-`El año arrancó con pocos éxitos rotundos, pero hemos visto sorpresas agradables como ‘Widow’s Bay’, y el regreso de algunos de nuestros favoritos como ‘The Comeback’ y los Muppets.`\
-https://www.nytimes.com/es/2026/06/16/espanol/cultura/los-mejores-programas-de-television-de-2026-hasta-ahora.html
-
-**Why Team Iran Is in a Tough Spot at the World Cup**\
-`At its first game in Los Angeles, the men’s national team drew spectators who weren’t coming for the soccer, but rather to protest the regime in Tehran.`\
-https://www.nytimes.com/2026/06/16/world/middleeast/world-cup-iran-new-zealand-protests.html
-
-**China’s Spending Slowdown Deepens as Households Tighten Their Belts**\
-`The unexpected decline in retail sales underscored China’s growing reliance on exports to sustain economic growth as domestic demand continues to falter.`\
-https://www.nytimes.com/2026/06/16/business/china-retail-sales.html
-
-**Naval Mines Could Still Stymie Gulf Shipping After War**\
-`The U.S. Navy will be deploying a new generation of drone-based countermeasures to search the sea floor and surface for any mines Iran laid.`\
-https://www.nytimes.com/2026/06/16/world/middleeast/strait-hormuz-mines-clearing.html
-
-**Australia’s Former Electricity Substations Are Being Turned Into Homes**\
-`In a country where the housing market is squeezed, decommissioned electrical substations are in demand as refurbished residences.`\
-https://www.nytimes.com/2026/06/16/world/australia/electricity-substations-housing.html
-
-**La dignidad de Estados Unidos cayó a la lona**\
-`La noche de peleas del cumpleaños del presidente Trump en el jardín de la Casa Blanca fue un espectáculo absurdo, sí, pero también inquietante.`\
-https://www.nytimes.com/es/2026/06/16/espanol/opinion/trump-ufc-estados-unidos.html
-
-**Quote of the Day: Russians Exploit Gap Over Ukraine**\
-`Quotation of the Day for Tuesday, June 16, 2026`\
-https://www.nytimes.com/2026/06/16/pageoneplus/quote-of-the-day-russians-exploit-gap-over-ukraine.html
-
-**Here Are the 2026 James Beard Restaurant Award Winners**\
-`Kalaya took the outstanding restaurant award and Michael Tusk took home the outstanding chef honor during an evening when immigration and resistance emerged as themes.`\
-https://www.nytimes.com/2026/06/15/dining/2026-james-beard-restaurant-award-winners.html
-
-**The Fitness Dating App Boom**\
-`A slew of dating apps for fitness enthusiasts has recently hit the market. Danielle Friedman, a reporter for Well, interviewed people about why they’re drawn to these apps and what it says about the culture at large.`\
-https://www.nytimes.com/video/well/move/100000010948599/the-fitness-dating-app-boom.html
-
-**NYT Crossword Answers for June 16, 2026**\
-`Brad Lively makes an earnest effort.`\
-https://www.nytimes.com/2026/06/15/crosswords/daily-puzzle-2026-06-16.html
-
-**How the Kratom Industry Won Friends in the Trump Administration**\
-`A sprawling influence campaign to promote a risky drug called kratom has gained allies among top Trump administration officials. Our investigative reporter Kenneth P. Vogel explains.`\
-https://www.nytimes.com/video/us/100000010955453/how-the-kratom-industry-won-friends-in-the-trump-administration.html
-
-**Why President Trump Called Me About Iran**\
-`A day before the United States and Iran signed a framework agreement to end their monthslong war, President Trump called David E. Sanger, White House and national security correspondent for The Times, to discuss the arrangement.`\
-https://www.nytimes.com/video/us/100000010967660/why-president-trump-called-me-about-iran.html
-
-**Attempted BASE Jump in Utah Kills 2, Including Acclaimed Extreme Athlete**\
-`Andrew Lewis, 39, best known for performing in the halftime show of a Super Bowl, was killed in the accident.`\
-https://www.nytimes.com/2026/06/15/us/base-jumping-deaths-andy-lewis.html
-
-**In the Dark on U.S.-Iran Deal, Senators Refrain From Praising It**\
-`Democrats demanded an immediate briefing and even Republicans conceded they had no information on an agreement the administration has declined to release.`\
-https://www.nytimes.com/2026/06/15/world/middleeast/senate-iran-deal-trump.html
-
-**Netanyahu Says Israel Will Keep Forces in Lebanon, Despite U.S.-Iran Deal**\
-`“The struggle has not ended,” a defiant Prime Minister Benjamin Netanyahu told Israelis.`\
-https://www.nytimes.com/2026/06/15/world/middleeast/netanyahu-israel-iran.html
-
-**Newsom Says Trump Is Investigating Him and His Wife**\
-`In a video posted on social media on Monday, Gov. Gavin Newsom of California said President Trump used the Justice Department to investigate him and his wife, Jennifer Siebel Newsom.`\
-https://www.nytimes.com/video/us/politics/100000010968932/trump-gavin-newsom-wife-investigation.html
-
-**The UFC 250 Was a Garish Spectacle of American Decline**\
-`Only the hackiest screenwriter imaginable would script America’s debasement this way.`\
-https://www.nytimes.com/2026/06/15/opinion/ufc-freedom-250-fight.html
-
-**Read an FBI agent’s email about the impending arrest of Jeffrey Epstein**\
-`An FBI agent briefs colleagues that Epstein will be flying from Paris into Teterboro Airport in New Jersey, where they will attempt to arrest him upon his landing on July 6, 2019.`\
-https://www.nytimes.com/interactive/2026/06/15/us/teterboro-email.html
-
-**Britain Proposes Social Media Ban for Children Under 16**\
-`Prime Minister Keir Starmer of Britain said that the government would introduce new regulations later this year to ban social media for children under 16. The measures, expected to take effect in early 2027, will also include restrictions on some game platforms and livestreaming apps.`\
-https://www.nytimes.com/video/world/europe/100000010968328/britain-social-media-ban.html
-
-**Montana Democrats Are Divided Over How to Win a Republican-held Senate Seat**\
-`A rift in Montana between the Democratic nominee and an independent candidate could boost Republican hopes of holding on to an open seat in conservative territory.`\
-https://www.nytimes.com/2026/06/15/us/politics/montana-democrats-senate.html
-
-**Divider in Chief**\
-`Unlike past presidents, Donald Trump “uses everything to divide us.” America’s 250th anniversary is no exception, the NYT Opinion contributor Pete Wehner argues on “The Opinions.”`\
-https://www.nytimes.com/video/opinion/100000010958365/divider-in-chief.html
 

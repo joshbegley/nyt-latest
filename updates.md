@@ -1,3 +1,55 @@
+**Book Review: ‘Presence: A Hidden History of the Female Body,’ by Erin Maglaque**\
+`In “Presence,” the historian Erin Maglaque pieces together the fragments of early modern womanhood.`\
+https://www.nytimes.com/2026/06/16/books/review/presence-erin-maglaque.html
+
+**Audemars Piguet’s New Division Works Much Like Its Own Start**\
+`Audemars Piguet’s Atelier des Établisseurs coordinates the work of independent experts on new timepieces, a lot like the brand’s own beginnings.`\
+https://www.nytimes.com/2026/06/16/fashion/audemars-piguet-new-division.html
+
+**This Proposal Came Right on Time, and With a Watch**\
+`When Rory Corr’s future wife asked him to marry her, she presented him with the Max Bill chronograph he had wanted for years.`\
+https://www.nytimes.com/2026/06/16/fashion/watches-junghans-max-bill-chronograph.html
+
+**Why Is Everyone Waiting Hours for Frozen Yogurt? Why Am I?**\
+`The yogurt is not special. Let’s just get that out of the way now.`\
+https://www.nytimes.com/2026/06/16/magazine/frozen-yogurt-lines-myka.html
+
+**Gas Prices May Remain High Despite US-Iran Deal**\
+`The preliminary agreement may not have an immediate effect on prices at the pump. Damaged infrastructure and risky transport could keep costs up.`\
+https://www.nytimes.com/2026/06/16/business/energy-environment/us-iran-deal-gas-prices.html
+
+**Minerva Watches Steps Back Into the Spotlight**\
+`Montblanc, which had been co-producing watches with the celebrated brand, says Minerva will now produce its own collection.`\
+https://www.nytimes.com/2026/06/16/fashion/watches-montblanc-minerva.html
+
+**Rolex Fans Hope for Another ‘Pepsi’ Revival**\
+`The blue and red variation of the GMT-Master II was removed from the brand catalog, but it wasn’t the first time.`\
+https://www.nytimes.com/2026/06/16/fashion/watches-rolex-pepsi-gmt11.html
+
+**Marc Newson Says Clock Was Meant to Add Romance to Travel**\
+`For example, Marc Newson said, the chime of Jaeger-LeCoultre’s new Memovox Travel Clock was meant to be ‘sweet and calming.’`\
+https://www.nytimes.com/2026/06/16/fashion/watches-jaeger-lecoultre-marc-newson.html
+
+**Are Watch Prices Outpacing Buyers’ Views of Their Value?**\
+`Makers say tariffs, the rising cost of materials and a strong Swiss franc are behind the increases, but some fans still question the result.`\
+https://www.nytimes.com/2026/06/16/fashion/watch-prices-vs-value.html
+
+**How Artisans Are Recreating the American Revolution**\
+`In the spirit of 1776, these shipwrights, printers and textile workers are commemorating George Washington’s legacy through 18th-century techniques.`\
+https://www.nytimes.com/2026/06/16/travel/1776-revolution-america-250-artisans.html
+
+**Book Review: ‘Ghost-Eye,’ by Amitav Ghosh**\
+`Fascinating if overstuffed, Amitav Ghosh’s “Ghost-Eye” connects the mystifying case of a girl in Calcutta to the global climate crisis.`\
+https://www.nytimes.com/2026/06/16/books/review/amitav-ghosh-ghost-eye.html
+
+**Jeffrey Epstein’s Jailhouse Writings on Trump, #MeToo and More**\
+`The Times obtained handwritten notes, never before made public, that reveal his state of mind — including signs of suicidal thoughts — before his death.`\
+https://www.nytimes.com/interactive/2026/06/16/magazine/jeffrey-epstein-jail-writing.html
+
+**Iran War Live Updates: Shipping Companies Remain Cautious Over Strait**\
+`Ship traffic through the crucial Strait of Hormuz was extremely limited two days after the United States and Iran signed a preliminary deal aimed at ending their war.`\
+https://www.nytimes.com/live/2026/06/16/world/iran-war-trump-us-deal
+
 **Mixed Feelings as Iran Ties With New Zealand in World Cup**\
 `Iran and New Zealand played their World Cup opener on Monday, tying 2-2. Some spectators protested the Islamic Republic of Iran while others cheered on the team.`\
 https://www.nytimes.com/video/sports/soccer/100000010970136/iran-world-cup-new-zealand-protest.html
