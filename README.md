@@ -1,3 +1,7 @@
+**Internal Emails Raise Questions About D.H.S. Ending Haiti Protections**\
+`Newly released documents could complicate deliberations by the Supreme Court over whether the Trump administration can immediately cancel deportation protections for some migrants.`\
+https://www.nytimes.com/2026/06/16/us/politics/haiti-tps-supreme-court.html
+
 **Areas to Watch in Georgia’s Republican Primary Runoffs**\
 `Georgia’s Republican runoffs are expected to follow urban-rural divides, with an open question of how recent endorsements will shift support.`\
 https://www.nytimes.com/2026/06/16/us/elections/georgia-primary-runoffs-areas-to-watch.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-us-house-
 **Oklahoma Third Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Oklahoma primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-us-house-3-primary.html
-
-**Oklahoma Lieutenant Governor Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Oklahoma primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-lieutenant-governor-primary.html
 
