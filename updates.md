@@ -1,3 +1,7 @@
+**Obama’s Nuclear Deal Looms Over Trump’s Iran Negotiations**\
+`President Trump is under pressure to significantly improve upon the Obama-era deal in order to justify the huge human and economic cost of taking the United States to war.`\
+https://www.nytimes.com/2026/06/16/us/politics/obama-nuclear-deal-trump-iran.html
+
 **Internal Emails Raise Questions About D.H.S. Ending Haiti Protections**\
 `Newly released documents could complicate deliberations by the Supreme Court over whether the Trump administration can immediately cancel deportation protections for some migrants.`\
 https://www.nytimes.com/2026/06/16/us/politics/haiti-tps-supreme-court.html
