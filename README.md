@@ -190,9 +190,9 @@ https://www.nytimes.com/2026/06/16/business/energy-environment/us-iran-deal-gas-
 `Montblanc, which had been co-producing watches with the celebrated brand, says Minerva will now produce its own collection.`\
 https://www.nytimes.com/2026/06/16/fashion/watches-montblanc-minerva.html
 
-**Rolex Fans Hope for Another ‘Pepsi’ Revival**\
-`The blue and red variation of the GMT-Master II was removed from the brand catalog, but it wasn’t the first time.`\
-https://www.nytimes.com/2026/06/16/fashion/watches-rolex-pepsi-gmt11.html
+**Iran War Live Updates: Talks on Final Agreement Will Begin Friday, Tehran Says**\
+`Iran’s foreign minister said that new negotiations with the United States would start immediately after their preliminary deal is signed. President Trump reiterated that the initial pact ensures Iran will not obtain a nuclear weapon.`\
+https://www.nytimes.com/live/2026/06/16/world/iran-war-trump-us-deal
 
 **Live Updates: Ukraine and Middle East Are Focus as Group of 7 Leaders Meet**\
 `After the U.S. reached a preliminary deal with Iran, the mood seemed lighter than had been expected. President Volodymyr Zelensky of Ukraine was hoping to shift leaders’ attention to the war with Russia.`\
