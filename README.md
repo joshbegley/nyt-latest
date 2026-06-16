@@ -1,3 +1,7 @@
+**What Polls Say About Alabama’s Senate Primary Runoff**\
+`Representative Barry Moore beat Jared Hudson by 14 percentage points in the Republican primary, but runoff polls offer a wide range of potential outcomes.`\
+https://www.nytimes.com/2026/06/16/us/elections/alabama-senate-primary-runoff-polls.html
+
 **5 Things to Know About Jared Hudson, Republican Senate Candidate in Alabama**\
 `He is a former sniper with the Navy SEALs who is trying to spring an upset over President Trump’s preferred candidate.`\
 https://www.nytimes.com/2026/06/16/us/politics/jared-hudson-republican-senate-alabama.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/16/world/americas/duck-mexico-world-cup-merlin.h
 **Among Mexico’s World Cup Fans: Merlin the Duck**\
 `A duck, known as Merlin, has become famous for wearing a Mexico jersey as he waddles behind his owner as the World Cup continues.`\
 https://www.nytimes.com/video/world/americas/100000010971004/world-cup-mexico-jersey-duck.html
-
-**Washington, D.C. Mayor Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Washington, D.C. primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-washington-dc-mayor-primary.html
 
