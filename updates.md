@@ -1,3 +1,7 @@
+**Will the Iran Deal Work?**\
+`The world’s attention is on the Middle East.`\
+https://www.nytimes.com/2026/06/16/briefing/will-the-iran-deal-work.html
+
 **¿Tiene futuro el acuerdo con Irán?**\
 `Tras muchos intentos fallidos, este plan de alto al fuego podría ser diferente. La razón es que la guerra realmente se ha vuelto dolorosa tanto para Estados Unidos como para Irán.`\
 https://www.nytimes.com/es/2026/06/16/espanol/mundo/acuerdo-iran-eeuu-guerra.html
