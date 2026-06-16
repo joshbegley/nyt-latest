@@ -1,3 +1,7 @@
+**Live 2026 Election Results: Georgia, Alabama and Oklahoma Primary and Runoff Races**\
+`See live results in key races in the June 16 primary and runoff elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-key-races-june-16-ga-al-ok.html
+
 **Jelly Roll Files for Divorce From Bunnie Xo After Nearly a Decade**\
 `The country music star, whose real name is Jason DeFord, filed for divorce from his wife of nearly 10 years, Alisa DeFord, who is known as Bunnie Xo.`\
 https://www.nytimes.com/2026/06/16/style/jelly-roll-divorce-bunnie-xo-tennessee.html

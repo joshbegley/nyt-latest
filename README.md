@@ -1,3 +1,11 @@
+**Election Live Updates: Georgia, Alabama and Oklahoma Pick Candidates**\
+`Republicans in Georgia will pick a nominee to challenge Senator Jon Ossoff, a Democrat. The nation’s capital is holding primaries in the race to succeed Mayor Muriel Bowser, who is not seeking re-election.`\
+https://www.nytimes.com/live/2026/06/16/us/georgia-oklahoma-alabama-elections
+
+**The Battle With Anthropic Is the Start of a New Kind of Conflict**\
+`The A.I. wars are here.`\
+https://www.nytimes.com/2026/06/16/opinion/anthropic-fable-ai-trump-administration.html
+
 **Live 2026 Election Results: Georgia, Alabama and Oklahoma Primary and Runoff Races**\
 `See live results in key races in the June 16 primary and runoff elections.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-key-races-june-16-ga-al-ok.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/16/theater/are-you-now-or-have-you-ever-been-rev
 **Georgia U.S. Senate Runoff 2026: Live Election Results, Collins vs. Dooley**\
 `Get live results and maps from the 2026 Georgia runoff election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-georgia-us-senate-runoff.html
-
-**Georgia Lt. Governor Republican Primary Runoff 2026: Live Election Results**\
-`Get live results and maps from the 2026 Georgia runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-georgia-lieutenant-governor-republican-primary-runoff.html
-
-**Georgia Lt. Governor Democratic Primary Runoff 2026: Live Election Results**\
-`Get live results and maps from the 2026 Georgia runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-georgia-lieutenant-governor-democratic-primary-runoff.html
 
