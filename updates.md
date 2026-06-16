@@ -1,3 +1,27 @@
+**Knicks Celebrate Their N.B.A. Title on ‘The Tonight Show’**\
+`“Of course it’s the Knicks, so they won’t really show up until the second half,” the host Jimmy Fallon said.`\
+https://www.nytimes.com/2026/06/16/arts/television/tonight-show-knicks-nba-champions.html
+
+**Mamdani Is Channeling Knicks’ Fans Euphoria. Will It Work?**\
+`Mayor Zohran Mamdani’s campaign team used some viral Knicks fan videos as inspiration for his own video strategy to convey a sense of urgency and excitement.`\
+https://www.nytimes.com/2026/06/16/nyregion/mamdani-knicks.html
+
+**What’s in a Stadium Name? A World Cup Snub for New Jersey.**\
+`To comply with a FIFA prohibition on branding, MetLife Stadium in New Jersey was renamed “New York New Jersey Stadium.” New Jerseyans were not surprised.`\
+https://www.nytimes.com/2026/06/16/nyregion/metlife-stadium-name-change.html
+
+**The Knicks’ Championship Run, in 5 Voices**\
+`New Yorkers, from bartenders to teenagers to TV celebrities, turned the city orange and blue in an unusual but welcome sign of unity.`\
+https://www.nytimes.com/2026/06/16/nyregion/knicks-championship-stories.html
+
+**What’s the Best Way to Get to World Cup Games in New Jersey From NYC?**\
+`Soccer fans attending World Cup games have confusing and sometimes enraging transportation choices to make. Starting out in Midtown Manhattan, we tested each route.`\
+https://www.nytimes.com/2026/06/16/nyregion/world-cup-nyc-transportation-meadowlands.html
+
+**NYT Spelling Bee Answers for June 16, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/16/crosswords/spelling-bee-forum.html
+
 **How Tehran Won the World**\
 `Iran’s defiance in the face of Western aggression has become a rallying cry.`\
 https://www.nytimes.com/2026/06/16/opinion/trump-iran-war-aggression.html

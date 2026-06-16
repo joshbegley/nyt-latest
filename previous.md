@@ -1,3 +1,27 @@
+**Knicks Celebrate Their N.B.A. Title on ‘The Tonight Show’**\
+`“Of course it’s the Knicks, so they won’t really show up until the second half,” the host Jimmy Fallon said.`\
+https://www.nytimes.com/2026/06/16/arts/television/tonight-show-knicks-nba-champions.html
+
+**Mamdani Is Channeling Knicks’ Fans Euphoria. Will It Work?**\
+`Mayor Zohran Mamdani’s campaign team used some viral Knicks fan videos as inspiration for his own video strategy to convey a sense of urgency and excitement.`\
+https://www.nytimes.com/2026/06/16/nyregion/mamdani-knicks.html
+
+**What’s in a Stadium Name? A World Cup Snub for New Jersey.**\
+`To comply with a FIFA prohibition on branding, MetLife Stadium in New Jersey was renamed “New York New Jersey Stadium.” New Jerseyans were not surprised.`\
+https://www.nytimes.com/2026/06/16/nyregion/metlife-stadium-name-change.html
+
+**The Knicks’ Championship Run, in 5 Voices**\
+`New Yorkers, from bartenders to teenagers to TV celebrities, turned the city orange and blue in an unusual but welcome sign of unity.`\
+https://www.nytimes.com/2026/06/16/nyregion/knicks-championship-stories.html
+
+**What’s the Best Way to Get to World Cup Games in New Jersey From NYC?**\
+`Soccer fans attending World Cup games have confusing and sometimes enraging transportation choices to make. Starting out in Midtown Manhattan, we tested each route.`\
+https://www.nytimes.com/2026/06/16/nyregion/world-cup-nyc-transportation-meadowlands.html
+
+**NYT Spelling Bee Answers for June 16, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/16/crosswords/spelling-bee-forum.html
+
 **Word of the Day: mastication**\
 `This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/06/16/learning/word-of-the-day-mastication.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/video/podcasts/100000010969361/seth-rogen-remembers-cath
 **U.S. and Iran Sign a Framework Deal, Leaving Major Issues for Future Talks**\
 `U.S. and Iranian officials said the deal included a 60-day cease-fire to pave the way for negotiations toward a final peace agreement and talks on Iran’s nuclear program.`\
 https://www.nytimes.com/2026/06/15/world/middleeast/us-iran-framework-ceasefire-deal.html
-
-**Trump Lost The War He Started In Iran**\
-`The United States is emerging weaker — militarily, diplomatically and economically — than at the start of the war.`\
-https://www.nytimes.com/2026/06/15/opinion/-trump-lost-war-iran.html
-
-**14-Year-Old Is Charged With Armed Robbery of Boston Lemonade Stand**\
-`A cash box containing about $80 was stolen from two siblings in Boston during the robbery, which occurred in broad daylight, the police and family members said.`\
-https://www.nytimes.com/2026/06/15/us/lemonade-stand-armed-robbery-arrest-boston.html
-
-**Dan Sullivan Namesake Is Disqualified From Alaska Senate Ballot**\
-`Republicans had accused Democrats of attempting to confuse voters by boosting a candidate with the same name as the incumbent Republican senator.`\
-https://www.nytimes.com/2026/06/15/us/politics/dan-sullivan-alaska-senate.html
-
-**‘Trump Has Failed’: 3 Opinion Writers Dissect the Iran Deal**\
-`Was the Iran war worth it — and will the latest agreement even stick?`\
-https://www.nytimes.com/2026/06/15/opinion/iran-deal-experts.html
-
-**Algae Is Turning the Reflecting Pool Green. Again.**\
-`Algal blooms have hit the site, between the Lincoln Memorial and the Washington Monument, after a $14.2 million repair project.`\
-https://www.nytimes.com/2026/06/15/climate/reflecting-pool-algae-green.html
-
-**As Russia Strikes Ukraine, a Cultural Symbol Catches Fire**\
-`The latest casualty in the war is a centuries-old cathedral. President Volodymyr Zelensky called it “one of the largest Russian crimes against Christian culture.”`\
-https://www.nytimes.com/2026/06/15/world/europe/ukraine-dormition-cathedral-strike.html
 
