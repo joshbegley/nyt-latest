@@ -1,3 +1,7 @@
+**Can a Trump-Modi Meeting Reset U.S.-India Relations?**\
+`Despite mutual praise between the two leaders, there has been a series of setbacks to U.S. relations with India since they last met more than a year ago.`\
+https://www.nytimes.com/2026/06/16/world/asia/trump-modi-meeting-g7.html
+
 **France, Britain and Other Countries Say They’ll Send Ships to the Strait of Hormuz**\
 `For months, a coalition led by Britain and France has been preparing to send minesweepers and other ships to secure the strait once the fighting ends. That moment may finally be here.`\
 https://www.nytimes.com/2026/06/16/world/europe/europe-strait-of-hormuz-iran-security.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/16/nyregion/world-cup-nyc-transportation-meadowl
 **NYT Spelling Bee Answers for June 16, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/06/16/crosswords/spelling-bee-forum.html
-
-**Word of the Day: mastication**\
-`This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/06/16/learning/word-of-the-day-mastication.html
 
