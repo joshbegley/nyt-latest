@@ -1,3 +1,11 @@
+**Vance’s Book Tour Begins With a Visit to ‘The View’**\
+`The vice president is promoting his book about faith and facing questions about his political ambitions and the war with Iran.`\
+https://www.nytimes.com/2026/06/16/us/politics/jd-vance-view-communion-book.html
+
+**Trump Gifted German Soccer Jersey at G7 Summit**\
+`This year’s G7 summit, which brings together the leaders of seven of the world’s most industrialized economies, began with the German chancellor gifting President Trump a German soccer jersey.`\
+https://www.nytimes.com/video/world/europe/100000010970368/trump-g7-german-soccer-jersey.html
+
 **Takeaways From JD Vance’s New Book ‘Communion,’ on Faith and His Political Ambitions**\
 `In a new memoir, Mr. Vance recalls an “unsettling” meeting with Vatican officials on immigration policy and disavows his infamous disparagement of some Democrats as “childless cat ladies.”`\
 https://www.nytimes.com/2026/06/16/us/politics/jd-vance-communion-book-takeaways.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/06/16/dining/restaurant-review-albi-washington-dc.h
 **A Baroque Opera Written By a Female Composer Feels Ripped From the Headlines**\
 `The Paris Opera production of “Ercole Amante” (“Hercules in Love”), a rediscovered 1707 work by the female composer Antonia Bembo, leans into contemporary themes of coercion and consent.`\
 https://www.nytimes.com/2026/06/16/arts/music/ercole-amante-antonia-bembo-paris-opera.html
-
-**Best Classical Music and Opera of 2026 So Far**\
-`Kaija Saariaho’s final opera, a premiere by Ellen Reid and a multitasking performance by Barbara Hannigan are among the highlights.`\
-https://www.nytimes.com/2026/06/16/arts/music/best-classical-music-opera-2026.html
-
-**Graham Platner, Jon Ossoff and the New Rules of Political Attention**\
-`Chris Hayes and Ezra Klein discuss how the Democrats are winning the battle for attention, and whether that can translate into winning elections.`\
-https://www.nytimes.com/video/opinion/100000010956569/graham-platner-jon-ossoff-and-the-new-rules-of-political-attention.html
 
 **Iran War Live Updates: U.S. and Iran Look Ahead to Next Round of Talks**\
 `Iran’s foreign minister said that new negotiations with the United States would start immediately after their preliminary deal is signed on Friday. President Trump said he hoped the conflict would soon be in the “rearview mirror.”`\

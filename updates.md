@@ -1,3 +1,15 @@
+**Takeaways From JD Vance’s New Book ‘Communion,’ on Faith and His Political Ambitions**\
+`In a new memoir, Mr. Vance recalls an “unsettling” meeting with Vatican officials on immigration policy and disavows his infamous disparagement of some Democrats as “childless cat ladies.”`\
+https://www.nytimes.com/2026/06/16/us/politics/jd-vance-communion-book-takeaways.html
+
+**In 30,000 Gallons of Water, Hundreds of Bowls Play Music of the Spheres**\
+`The French sound artist Céleste Boursier-Mougenot creates an unlikely symphony by setting singing bowls bobbing at the Park Avenue Armory.`\
+https://www.nytimes.com/2026/06/16/arts/design/celeste-boursier-mougenot-clinamen-park-avenue-armory.html
+
+**Live Updates: At G7 Summit, Trump Says Ukraine War Has ‘No Impact’ on U.S.**\
+`After the United States reached a preliminary deal with Iran, the mood seemed lighter than had been expected. But President Trump’s remarks highlighted persistent divisions among the allies.`\
+https://www.nytimes.com/live/2026/06/16/world/g7-summit-conference-trump-france
+
 **Iran War Live Updates: U.S. and Iran Look Ahead to Next Round of Talks**\
 `Iran’s foreign minister said that new negotiations with the United States would start immediately after their preliminary deal is signed on Friday. President Trump said he hoped the conflict would soon be in the “rearview mirror.”`\
 https://www.nytimes.com/live/2026/06/16/world/iran-war-trump-us-deal
