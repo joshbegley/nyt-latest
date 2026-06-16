@@ -1,3 +1,11 @@
+**Riding High After I.P.O., SpaceX to Buy A.I. Start-Up for $60 Billion**\
+`SpaceX exercised its option to acquire Cursor in an all-stock deal, bolstering Elon Musk’s ambitions in artificial intelligence.`\
+https://www.nytimes.com/2026/06/16/business/spacex-cursor-aquisition-ipo.html
+
+**The ‘Paddington’ Musical Will Come to Broadway Next Spring**\
+`The show, which revisits the story of a marmalade-loving bear, plans to open next April at the Hirschfeld Theater in New York.`\
+https://www.nytimes.com/2026/06/16/theater/paddington-musical-broadway.html
+
 **Big Questions for Warsh as New  Era for the Fed Begins**\
 `Interest rates, inflation, independence are among the challenges the new chairman of the Federal Reserve faces as the central bank’s policymakers meet.`\
 https://www.nytimes.com/2026/06/16/business/dealbook/warsh-fed-questions.html
