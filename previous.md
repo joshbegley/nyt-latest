@@ -1,3 +1,7 @@
+**Attempted BASE Jump in Utah Kills 2, Including Acclaimed Extreme Athlete**\
+`Andrew Lewis, 39, best known for performing in the halftime show of a Super Bowl, was killed in the accident.`\
+https://www.nytimes.com/2026/06/15/us/base-jumping-deaths-andy-lewis.html
+
 **In the Dark on U.S.-Iran Deal, Senators Refrain From Praising It**\
 `Democrats demanded an immediate briefing and even Republicans conceded they had no information on an agreement the administration has declined to release.`\
 https://www.nytimes.com/2026/06/15/world/middleeast/senate-iran-deal-trump.html
