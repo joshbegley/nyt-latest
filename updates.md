@@ -1,3 +1,15 @@
+**Ebola Outbreak Could Become Worst on Record, Africa C.D.C. Chief Warns**\
+`Health workers have warned that the outbreak, already one of the worst in decades, could take as long as a year to contain if infection rates do not flatten.`\
+https://www.nytimes.com/2026/06/16/world/africa/ebola-outbreak-congo.html
+
+**Let’s See What Readers Think**\
+`Which one is your favorite?`\
+https://www.nytimes.com/interactive/2026/06/16/realestate/17re-wyg-quiz.html
+
+**Live 2026 Election Results: Georgia, Alabama and Oklahoma Primary and Runoff Races**\
+`See live results in key races in the June 16 primary and runoff elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-key-races-june-16.html
+
 **Live 2026 Election Results: Georgia, Alabama and Oklahoma Primary and Runoff Races**\
 `SUMMARY TK`\
 https://www.nytimes.com/interactive/2026/us/elections/results-key-races-june-16.html
