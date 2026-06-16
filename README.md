@@ -1,3 +1,7 @@
+**France, Britain and Other Countries Say They’ll Send Ships to the Strait of Hormuz**\
+`For months, a coalition led by Britain and France has been preparing to send minesweepers and other ships to secure the strait once the fighting ends. That moment may finally be here.`\
+https://www.nytimes.com/2026/06/16/world/europe/europe-strait-of-hormuz-iran-security.html
+
 **Six Takeaways From the Times Investigation Into Epstein’s Death**\
 `We considered every plausible theory of his death, both official and otherwise, seeking out the most persuasive arguments and evidence for each.`\
 https://www.nytimes.com/2026/06/16/magazine/jeffrey-epstein-death-mental-health.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/16/crosswords/spelling-bee-forum.html
 **Word of the Day: mastication**\
 `This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/06/16/learning/word-of-the-day-mastication.html
-
-**¿Cómo puede un solo cerebro hablar dos idiomas?**\
-`Un nuevo estudio sobre personas bilingües sugiere que un único “motor gramatical” en el cerebro puede gestionar varias lenguas a la vez.`\
-https://www.nytimes.com/es/2026/06/16/espanol/ciencia-y-tecnologia/cerebro-bilingue-gramatica.html
 
