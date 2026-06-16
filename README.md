@@ -1,3 +1,11 @@
+**SpaceX Is Now More Valuable Than Amazon, Meta and Many Others**\
+`In its first few days of trading, Elon Musk’s newly listed rocket maker has vaulted into the world’s top five most valuable companies.`\
+https://www.nytimes.com/2026/06/16/business/spacex-market-value-ranking.html
+
+**Best-Selling Memoirist Sues Classmate Who Said She Used Her Story**\
+`Amy Griffin contended that she was defamed when a former classmate accused her in a lawsuit of appropriating parts of her story of being sexually abused for “The Tell.”`\
+https://www.nytimes.com/2026/06/16/nyregion/amy-griffin-the-tell-book-lawsuit.html
+
 **Claiming an Antifa Plot, U.S. Charges 15 in Minneapolis With Conspiracy**\
 `The 94-page conspiracy indictment was filed as federal prosecutors in Minnesota had trouble sustaining many criminal cases filed against Immigration and Customs Enforcement protesters.`\
 https://www.nytimes.com/2026/06/16/us/minnesota-immigration-charges-antifa.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/06/16/podcasts/pochettino-usmnt-lionel-messis-argen
 **A Gen Z Revolution at the Movies**\
 `Two recently released films are such runaway successes that they’ve shocked the industry.`\
 https://www.nytimes.com/2026/06/16/podcasts/the-daily/gen-z-revolution-a24-movies.html
-
-**A Times Investigation Into Epstein’s Death, and Why Gas Prices Might Stay High**\
-`Plus, a counterclockwise mystery.`\
-https://www.nytimes.com/2026/06/16/podcasts/the-headlines/epstein-death-iran-war-gas-prices.html
-
-**NYT Connections Answers for June 17, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, June 17, 2026.`\
-https://www.nytimes.com/2026/06/16/crosswords/connections-companion-1102.html
 
 **Iran War Live Updates: U.S. and Iran Look Ahead to Next Round of Talks**\
 `Iran’s foreign minister said that new negotiations with the United States would start immediately after their preliminary deal is signed on Friday. President Trump said he hoped the conflict would soon be in the “rearview mirror.”`\
