@@ -1,3 +1,7 @@
+**Copa Mundial 2026: así es la complicada situación de la selección de Irán**\
+`En su primer partido en Los Ángeles, la selección iraní atrajo a espectadores que no habían ido a ver fútbol, sino a protestar contra el régimen de Teherán.`\
+https://www.nytimes.com/es/2026/06/16/espanol/mundo/iran-estados-unidos-mundial.html
+
 **Eight Crew Members Dead in B-52 Crash at Air Force Base**\
 `A military B-52 bomber crashed explosively after takeoff from Edwards Air Force Base in California on Monday. Eight crew members were confirmed dead, Air Force officials said.`\
 https://www.nytimes.com/video/us/100000010970480/air-force-b52-crash-california.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/16/us/politics/elections-georgia-alabama-oklahom
 **The Verdict on Biden Is In**\
 `Preliminary judgments on Joe Biden’s one-term presidency, including Jill Biden’s, are all the rage.`\
 https://www.nytimes.com/2026/06/16/opinion/joe-jill-biden-east-wing.html
-
-**Four Stars for Albi in Washington D.C.**\
-`At his Palestinian restaurant in Washington, D.C., the chef Michael Rafidi is telling a vivid story through bread and fire.`\
-https://www.nytimes.com/2026/06/16/dining/restaurant-review-albi-washington-dc.html
 
 **Iran War Live Updates: U.S. and Iran Look Ahead to Next Round of Talks**\
 `Iran’s foreign minister said that new negotiations with the United States would start immediately after their preliminary deal is signed on Friday. President Trump said he hoped the conflict would soon be in the “rearview mirror.”`\
