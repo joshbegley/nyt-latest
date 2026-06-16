@@ -1,3 +1,15 @@
+**1-Year-Old Boy Killed After Officer Fires at Vehicle in Mississippi**\
+`It is not clear what led up to the shooting, but the Mississippi Bureau of Investigation said that police officers were responding to a shoplifting call.`\
+https://www.nytimes.com/2026/06/16/us/mississippi-shooting-shoplifting.html
+
+**Say Hello to the Newest N.Y.C. Area Code: 465**\
+`There are millions of possible phone numbers under each area code, but about once a decade, this growing city runs out of digits.`\
+https://www.nytimes.com/2026/06/16/nyregion/nyc-area-code-465.html
+
+**The U.S. and Iran Tamp Down Heated Rhetoric**\
+`Also, primary elections test Trump’s sway in the South. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/06/16/briefing/us-iran-deal-primary-elections.html
+
 **NYC Area Codes Quiz**\
 `New York City has a new area code: 465.`\
 https://www.nytimes.com/interactive/2026/06/16/nyregion/17met-area-codes-quiz.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-labor-com
 **Oklahoma Insurance Commissioner Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Oklahoma primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-insurance-commissioner-primary.html
-
-**Oklahoma Attorney General Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Oklahoma primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-attorney-general-primary.html
-
-**Oklahoma Auditor Inspector Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Oklahoma primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-oklahoma-auditor-inspector-primary.html
-
-**Georgia First Congressional District Runoff 2026: Live Election Results, Griggs vs. Hollowell**\
-`Get live results and maps from the 2026 Georgia runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-georgia-us-house-1-runoff.html
 
