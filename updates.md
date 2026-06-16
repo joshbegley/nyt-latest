@@ -1,3 +1,11 @@
+**NYC Area Codes Quiz**\
+`New York City has a new area code: 465.`\
+https://www.nytimes.com/interactive/2026/06/16/nyregion/17met-area-codes-quiz.html
+
+**Heavy Rain Floods Texas**\
+`Storm systems doused Texas with heavy rain and caused flooding.`\
+https://www.nytimes.com/video/weather/100000010971313/rain-texas-floods-weather.html
+
 **Judge Orders Kennedy Center to Make a Plan for Staying Open**\
 `As the Trump administration seeks to move forward with renovations at the center, a judge has asked for its programming calendar.`\
 https://www.nytimes.com/2026/06/16/arts/music/kennedy-center-closing-plan-judge.html
