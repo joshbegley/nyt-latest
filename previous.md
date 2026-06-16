@@ -1,3 +1,7 @@
+**NYT Crossword Answers for June 16, 2026**\
+`Brad Lively makes an earnest effort.`\
+https://www.nytimes.com/2026/06/15/crosswords/daily-puzzle-2026-06-16.html
+
 **How the Kratom Industry Won Friends in the Trump Administration**\
 `A sprawling influence campaign to promote a risky drug called kratom has gained allies among top Trump administration officials. Our investigative reporter Kenneth P. Vogel explains.`\
 https://www.nytimes.com/video/us/100000010955453/how-the-kratom-industry-won-friends-in-the-trump-administration.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/15/nyregion/ny-regent-exams-knicks-parade.html
 **Trump Thanks China and Russia, Partners of Iran, for Diplomatic Help**\
 `China and Russia have both given support to Iran during the war that the United States and Israel started. But President Trump has made no mention of that.`\
 https://www.nytimes.com/2026/06/15/us/trump-thanks-china-russia.html
-
-**Lawmakers Warn Trump Officials Not to Pursue Arch Project Without Congress**\
-`In a letter to Interior Secretary Doug Burgum and national parks officials, several Democrats and a Senate independent said that members of the administration could face fines and even criminal prosecution.`\
-https://www.nytimes.com/2026/06/15/us/politics/trump-triumphal-arch-congress.html
 

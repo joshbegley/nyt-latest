@@ -1,3 +1,7 @@
+**NYT Crossword Answers for June 16, 2026**\
+`Brad Lively makes an earnest effort.`\
+https://www.nytimes.com/2026/06/15/crosswords/daily-puzzle-2026-06-16.html
+
 **8 Dead in B-52 Bomber Crash at Edwards Air Force Base in California**\
 `The aircraft burst into flames on Monday morning shortly after takeoff from Edwards Air Force Base in California, officials said. The cause is still under investigation.`\
 https://www.nytimes.com/2026/06/15/us/b-52-crash-edwards-air-force-base-california.html
