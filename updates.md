@@ -1,3 +1,11 @@
+**These Dating Apps Want You to Meet at the Gym**\
+`A slew of new apps focus on connecting people who love to work out.`\
+https://www.nytimes.com/2026/06/16/well/move/dating-apps-fitness-hyrox.html
+
+**Can Prescription Eyeglasses Protect You From the Sun?**\
+`You need to protect your eyes from sun exposure, but experts have some advice for`\
+https://www.nytimes.com/2026/06/16/well/eyeglasses-uv-protection.html
+
 **Call It a ‘Book-cation’ or a ‘Readaway,’ Literary Travel Is Having a Moment**\
 `Resort book clubs, tour companies, hotel libraries and a growing number of literary festivals are offering readers new ways to indulge their interests.`\
 https://www.nytimes.com/2026/06/16/travel/literary-book-travel-trend.html
