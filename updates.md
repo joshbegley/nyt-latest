@@ -1,3 +1,27 @@
+**A Gen Z Revolution at the Movies**\
+`Two recently released films are such runaway successes that they’ve shocked the industry.`\
+https://www.nytimes.com/2026/06/16/podcasts/the-daily/gen-z-revolution-a24-movies.html
+
+**A Times Investigation Into Epstein’s Death, and Why Gas Prices Might Stay High**\
+`Plus, a counterclockwise mystery.`\
+https://www.nytimes.com/2026/06/16/podcasts/the-headlines/epstein-death-iran-war-gas-prices.html
+
+**NYT Connections Answers for June 17, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, June 17, 2026.`\
+https://www.nytimes.com/2026/06/16/crosswords/connections-companion-1102.html
+
+**Today’s Wordle Hints for June 17, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, June 17, 2026.`\
+https://www.nytimes.com/2026/06/16/crosswords/wordle-review-1824.html
+
+**NYT Strands Hints for June 17, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, June 17, 2026.`\
+https://www.nytimes.com/2026/06/16/crosswords/strands-sidekick-836.html
+
+**Iran Will Enter Nuclear Talks Feeling Emboldened**\
+`Despite military setbacks during the war, Tehran is presenting a narrative of victory before negotiations with Washington.`\
+https://www.nytimes.com/2026/06/16/world/middleeast/iran-us-deal-nuclear-talks.html
+
 **Oil Prices Continue to Fall as Traders Assess U.S.-Iran Deal**\
 `Stocks were mixed after strong rallies the day before.`\
 https://www.nytimes.com/2026/06/16/business/oil-prices-iran-war.html

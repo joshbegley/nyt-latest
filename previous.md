@@ -1,3 +1,27 @@
+**A Gen Z Revolution at the Movies**\
+`Two recently released films are such runaway successes that they’ve shocked the industry.`\
+https://www.nytimes.com/2026/06/16/podcasts/the-daily/gen-z-revolution-a24-movies.html
+
+**A Times Investigation Into Epstein’s Death, and Why Gas Prices Might Stay High**\
+`Plus, a counterclockwise mystery.`\
+https://www.nytimes.com/2026/06/16/podcasts/the-headlines/epstein-death-iran-war-gas-prices.html
+
+**NYT Connections Answers for June 17, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, June 17, 2026.`\
+https://www.nytimes.com/2026/06/16/crosswords/connections-companion-1102.html
+
+**Today’s Wordle Hints for June 17, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, June 17, 2026.`\
+https://www.nytimes.com/2026/06/16/crosswords/wordle-review-1824.html
+
+**NYT Strands Hints for June 17, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, June 17, 2026.`\
+https://www.nytimes.com/2026/06/16/crosswords/strands-sidekick-836.html
+
+**Iran Will Enter Nuclear Talks Feeling Emboldened**\
+`Despite military setbacks during the war, Tehran is presenting a narrative of victory before negotiations with Washington.`\
+https://www.nytimes.com/2026/06/16/world/middleeast/iran-us-deal-nuclear-talks.html
+
 **Oil Prices Continue to Fall as Traders Assess U.S.-Iran Deal**\
 `Stocks were mixed after strong rallies the day before.`\
 https://www.nytimes.com/2026/06/16/business/oil-prices-iran-war.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/es/2026/06/16/espanol/opinion/trump-guerra-iran-acuerdo.
 **Live Updates: Ukraine and Middle East Are Focus as Group of 7 Leaders Meet**\
 `Arriving at the summit, President Trump sought to promote his preliminary deal with Iran. President Volodymyr Zelensky of Ukraine was hoping to shift leaders’ attention to the war with Russia.`\
 https://www.nytimes.com/live/2026/06/16/world/g7-summit-conference-trump-france
-
-**¿Qué pasa cuando el mayor experto en ‘deepfakes’ ya no confía en sus propios ojos?**\
-`Para Hany Farid, demostrar qué es real en la era de la IA es cada vez más complicado.`\
-https://www.nytimes.com/es/2026/06/16/espanol/estados-unidos/deepfakes-ultrafalsos-ia-experto.html
-
-**Knicks Celebrate Their N.B.A. Title on ‘The Tonight Show’**\
-`“Of course it’s the Knicks, so they won’t really show up until the second half,” the host Jimmy Fallon said.`\
-https://www.nytimes.com/2026/06/16/arts/television/tonight-show-knicks-nba-champions.html
-
-**Mamdani Is Channeling Knicks’ Fans Euphoria. Will It Work?**\
-`Mayor Zohran Mamdani’s campaign team used some viral Knicks fan videos as inspiration for his own video strategy to convey a sense of urgency and excitement.`\
-https://www.nytimes.com/2026/06/16/nyregion/mamdani-knicks.html
-
-**What’s in a Stadium Name? A World Cup Snub for New Jersey.**\
-`To comply with a FIFA prohibition on branding, MetLife Stadium in New Jersey was renamed “New York New Jersey Stadium.” New Jerseyans were not surprised.`\
-https://www.nytimes.com/2026/06/16/nyregion/metlife-stadium-name-change.html
-
-**The Knicks’ Championship Run, in 5 Voices**\
-`New Yorkers, from bartenders to teenagers to TV celebrities, turned the city orange and blue in an unusual but welcome sign of unity.`\
-https://www.nytimes.com/2026/06/16/nyregion/knicks-championship-stories.html
-
-**What’s the Best Way to Get to World Cup Games in New Jersey From NYC?**\
-`Soccer fans attending World Cup games have confusing and sometimes enraging transportation choices to make. Starting out in Midtown Manhattan, we tested each route.`\
-https://www.nytimes.com/2026/06/16/nyregion/world-cup-nyc-transportation-meadowlands.html
 
