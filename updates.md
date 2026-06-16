@@ -1,3 +1,11 @@
+**Who Are the Leaders at the G7 Summit in France?**\
+`On a roll or against a wall, Group of 7 leaders bring sharply different agendas. The leaders of some other nations are also attending to press their own interests.`\
+https://www.nytimes.com/2026/06/16/world/europe/who-are-g7-leaders.html
+
+**Street Style Look of the Week: Elevating Workwear With Whimsical Embroidery**\
+`A young woman in the Bay Area’s finance industry steps out in a different kind of work wear.`\
+https://www.nytimes.com/2026/06/16/style/street-style-look-jumpsuit-workwear.html
+
 **How Our Reporters Got at the Truth of Jeffrey Epstein’s Death**\
 `Four Times journalists talk about their investigation into Epstein’s final weeks in jail and the unanswered questions that their reporting tackles.`\
 https://www.nytimes.com/2026/06/16/insider/jeffrey-epstein-files-suicide.html
