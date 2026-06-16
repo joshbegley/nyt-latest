@@ -1,3 +1,11 @@
+**At Least 5 Charged in Alleged Plot to Attack White House During U.F.C. Event**\
+`Charging documents outlined an ambitious plan involving explosive-laden drones and rifles, but left less clear that the conspirators had the means to carry it out.`\
+https://www.nytimes.com/2026/06/16/us/politics/white-house-ufc-attack-plot.html
+
+**12 Injured at Cultus Lake Water Park, Possibly by Electricity, in British Columbia**\
+`Ten middle school students and two others sustained serious but not life-threatening injuries at Cultus Lake Waterpark in British Columbia, officials said.`\
+https://www.nytimes.com/2026/06/16/world/canada/british-columbia-water-park-cultus-lake-injuries.html
+
 **‘Are You Now or Have You Ever Been’ Review: Who Is Naming Names?**\
 `Anna D. Shapiro revives Eric Bentley’s play about the House Un-American Activities Committee’s investigation of the entertainment industry.`\
 https://www.nytimes.com/2026/06/16/theater/are-you-now-or-have-you-ever-been-review.html
