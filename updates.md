@@ -1,3 +1,7 @@
+**Merlín, el pato mundialista mexicano, salta a la fama**\
+`La mascota se ha convertido en una de las primeras sensaciones del torneo mientras se pasea por Ciudad de México vestido con la camiseta tricolor.`\
+https://www.nytimes.com/es/2026/06/16/espanol/deportes/mexico-mundial-pato-merlin.html
+
 **Russian Artist Critical of Putin Is Fatally Shot in Poland**\
 `Two Belarusian men were in custody as part of an investigation into the killing of the exiled painter Robert Kuzovkov.`\
 https://www.nytimes.com/2026/06/16/world/europe/russian-artist-putin-killed-poland.html
