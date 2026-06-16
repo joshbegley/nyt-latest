@@ -1,3 +1,23 @@
+**When to Expect Results in Georgia, Alabama and Oklahoma**\
+`There are runoff elections in Georgia and Alabama and primaries in Oklahoma.`\
+https://www.nytimes.com/2026/06/16/us/politics/election-results-timing-tonight-when.html
+
+**Heavy Rain Floods South Texas**\
+`Storm systems doused South Texas with heavy rain and caused flooding.`\
+https://www.nytimes.com/video/weather/100000010971313/rain-texas-floods-weather.html
+
+**NY Liberty’s Ellie the Elephant Celebrates Her 6th Birthday in Style**\
+`Sure, there are bigger milestones than a sixth birthday. But the New York Liberty’s trunk-shaking mascot isn’t one to miss a chance to party.`\
+https://www.nytimes.com/2026/06/16/style/ellie-elephant-new-york-liberty-mascot-birthday.html
+
+**2 People Shot at a Hospital in Wilmington, Del., Police Say**\
+`Officials urged the public to avoid the area around Wilmington Hospital, a major trauma center.`\
+https://www.nytimes.com/2026/06/16/us/wilmington-delaware-hospital-shooting.html
+
+**Ossoff: A Cross-Ideological 2028 Dark Horse**\
+`Why has Jon Ossoff emerged as a dark horse for the 2028 presidential race? The MS Now host Chris Hayes and the Opinion columnist Ezra Klein discuss how Ossoff is leveraging a unique “visual grammar” to build an almost mythic, Obama-like political brand.`\
+https://www.nytimes.com/video/opinion/100000010962118/ossoff-a-cross-ideological-2028-dark-horse.html
+
 **‘Reddit Posts Are the Median Voter’**\
 `Is the Democrats’ biggest brand problem excessive conscientiousness? The MS Now host Chris Hayes tells the Opinion columnist Ezra Klein how an institutional, “schoolmarm” personality type alienates swing voters and why an unconventional candidate might be the antidote.`\
 https://www.nytimes.com/video/opinion/100000010962113/reddit-posts-are-the-median-voter.html
@@ -173,24 +193,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-georgia-us-house-1
 **Georgia Seventh Congressional District Runoff 2026: Live Election Results, Kozycki vs. Norton**\
 `Get live results and maps from the 2026 Georgia runoff election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-georgia-us-house-7-runoff.html
-
-**Georgia Secretary of State Runoff 2026: Live Election Results**\
-`Get live results and maps from the 2026 Georgia runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-georgia-secretary-of-state-runoff.html
-
-**Georgia 11th Congressional District Runoff 2026: Live Election Results, Adkerson vs. Cowan**\
-`Get live results and maps from the 2026 Georgia runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-georgia-us-house-11-runoff.html
-
-**Georgia Public Service Commission Runoff 2026: Live Election Results**\
-`Get live results and maps from the 2026 Georgia runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-georgia-public-service-commission-runoff.html
-
-**California 14th Congressional District Special 2026: Live Election Results**\
-`Get live results and maps from the 2026 California special election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-california-us-house-14-special.html
-
-**Georgia Labor Commissioner Runoff 2026: Live Election Results**\
-`Get live results and maps from the 2026 Georgia runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-georgia-labor-commissioner-runoff.html
 
