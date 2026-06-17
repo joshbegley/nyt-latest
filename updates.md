@@ -1,3 +1,15 @@
+**Ask the Therapist for Advice**\
+`Submit your question.`\
+https://www.nytimes.com/2026/06/17/well/mind/ask-therapist-callout.html
+
+**Bill Pulte, a Bulldog for Trump, Prepares to Take Reins at Spy Agency**\
+`Democrats and some Republicans excoriated President Trump’s pick for a top national security job. The president pushed ahead anyway.`\
+https://www.nytimes.com/2026/06/17/us/politics/bill-pulte-spy-agency.html
+
+**La tormenta tropical Arthur dejará fuertes lluvias en la costa del golfo de México**\
+`Arthur acaba de convertirse en la primera tormenta tropical con nombre de la temporada de huracanes del Atlántico de este año. Esta semana ha provocado fuertes lluvias e inundaciones en Texas, y se esperan más.`\
+https://www.nytimes.com/es/2026/06/17/espanol/tiempo-y-clima/tormenta-tropical-arthur.html
+
 **The Blobby, Drippy Maximalist Design You’re Seeing Everywhere**\
 `After years of corporate millennial blanding, consumer culture oozes into shape for a new generation.`\
 https://www.nytimes.com/2026/06/17/style/maximalism-aesthetic-hyper-goo.html
