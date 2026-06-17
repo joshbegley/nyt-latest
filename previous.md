@@ -1,3 +1,11 @@
+**The Good List: 6 Things to Bring Joy to Your Day**\
+`A memory workout, an endless playlist and an antidote to worry.`\
+https://www.nytimes.com/2026/06/17/briefing/17-the-good-list-knicks-memory.html
+
+**Can Trump’s Man in Georgia Take Down Jon Ossoff?**\
+`Representative Mike Collins’s victory in a hard-fought Republican primary means that a big Senate matchup is now set.`\
+https://www.nytimes.com/2026/06/17/us/politics/ossoff-collins-georgia-senate.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000010974481/17vid-Trump-G7-79572.html
@@ -45,6 +53,10 @@ https://www.nytimes.com/video/embedded/us/politics/100000010974297/17vid-Trump-G
 **Tiny Love Stories: ‘Why Don’t You Both Get In?’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/06/17/style/tiny-modern-love-stories-why-dont-you-both-get-in.html
+
+**Messi scoring a third goal in the Argentina-Algeria match.**\
+`(No description)`\
+https://www.nytimes.com/article/world-cup-messi-goal-argentina-algeria.html
 
 **British Couple Recount Russian Warship Warning Shots**\
 `Jane and Alan Kelvey, a couple from Britain, spoke with the BBC after a Russian naval ship fired warning shots toward their sailboat in the English Channel on Tuesday.`\
@@ -173,16 +185,4 @@ https://www.nytimes.com/2026/06/17/us/politics/trump-iran-peace-deal-obama.html
 **Arianna Huffington: Our Strongest Drive Is Self-Discovery**\
 `It may be tempting to chase status and success, but let’s not overlook our universal need to find inner meaning and purpose.`\
 https://www.nytimes.com/2026/06/17/special-series/arianna-huffington-self-discovery.html
-
-**Hot Mics Catch Trump, Carney and Other Leaders Off-Guard at G7**\
-`Snippets of conversations picked up on microphones at the annual Group of 7 summit in France offered a glimpse behind the scenes, as leaders chatted about issues great and small.`\
-https://www.nytimes.com/2026/06/17/world/europe/g7-summit-hot-mic-trump-meloni-greenland-carney.html
-
-**We Should Expect More From Our Supreme Court**\
-`The Supreme Court is racing to start summer vacation, but the legal journalist Cristian Farias says we have very little to feel relaxed about. In the era of Trump’s relentless power grabs, we should expect the Supreme Court to do more than just “the bare minimum.”`\
-https://www.nytimes.com/video/opinion/100000010968185/we-should-expect-more-from-our-supreme-court.html
-
-**World Cup Updates: At U.S. Stadiums, Boisterous Crowds and Redacted Logos**\
-`(No description)`\
-https://www.nytimes.com/live/2026/us/fifa-world-cup
 

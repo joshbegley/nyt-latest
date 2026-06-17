@@ -1,3 +1,15 @@
+**The Good List: 6 Things to Bring Joy to Your Day**\
+`A memory workout, an endless playlist and an antidote to worry.`\
+https://www.nytimes.com/2026/06/17/briefing/17-the-good-list-knicks-memory.html
+
+**Can Trump’s Man in Georgia Take Down Jon Ossoff?**\
+`Representative Mike Collins’s victory in a hard-fought Republican primary means that a big Senate matchup is now set.`\
+https://www.nytimes.com/2026/06/17/us/politics/ossoff-collins-georgia-senate.html
+
+**Messi scoring a third goal in the Argentina-Algeria match.**\
+`(No description)`\
+https://www.nytimes.com/article/world-cup-messi-goal-argentina-algeria.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000010974481/17vid-Trump-G7-79572.html
