@@ -1,3 +1,15 @@
+**Trump Escalates Tensions With Senate Republicans**\
+`Also, the U.S. shares details of the preliminary Iran deal. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/06/17/briefing/trump-senate-republicans-us-iran-deal.html
+
+**Federal Prisons Must Provide Hormones Sought by Trans Inmates**\
+`The government had argued that a “pendulum swing” in the medical consensus justified treating trans inmates with psychotherapy and antidepressants instead.`\
+https://www.nytimes.com/2026/06/17/us/hormones-transgender-prison-inmates.html
+
+**Trump Administration to Pay $765 Million to Cancel 4 More Wind Projects**\
+`It’s the third such deal the Interior Department has struck to pay firms to abandon plans for offshore turbines, spending roughly $2.5 billion to get companies to abandon their wind projects.`\
+https://www.nytimes.com/2026/06/17/climate/trump-wind-farms-cancel-millions.html
+
 **‘Matlock’ Writer Sues CBS, Claiming Hostile Environment for Black Employees**\
 `Some of the show’s leadership made harassing statements about the writer’s race and sexuality, the lawsuit says. CBS said it had been unable to find support for the allegations.`\
 https://www.nytimes.com/2026/06/17/arts/television/matlock-lawsuit-harassment.html
