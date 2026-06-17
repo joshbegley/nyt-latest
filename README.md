@@ -1,3 +1,7 @@
+**Trump Defends Deal to End the War With Iran as Details Emerge**\
+`President Trump lashed out at critics who say the agreement achieves less than the one President Barack Obama signed in 2015, and he threatened to bomb Iran again if it violated the deal.`\
+https://www.nytimes.com/2026/06/17/world/middleeast/trump-iran-deal-obama.html
+
 **Trump Criticized Obama’s Iran Deal, but New Deal Would Also Offer Tehran Relief**\
 `The agreement outlines a $300 billion plan to rebuild Iran, and says sanctions would be lifted in the future.`\
 https://www.nytimes.com/2026/06/17/world/europe/trump-obama-iran-deal-money.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/17/climate/trump-fema-cameron-hamilton.html
 **Money and Politics: Tom Steyer and Others Reflect on His Campaign**\
 `Tom Steyer and other readers respond to Michelle Cottle’s essay about his campaign for governor of California. Also: A missed opportunity on the 250th anniversary.`\
 https://www.nytimes.com/2026/06/17/opinion/tom-steyer-money-politics.html
-
-**How Americans Became Less Connected**\
-`Plus, the start of a series on the opposite of violence.`\
-https://www.nytimes.com/2026/06/17/headway/americans-loneliness-connection-community.html
 
 **Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
 `Chairman Kevin M. Warsh vowed to start a “new chapter” in the Federal Reserve’s oversight of the U.S. economy.`\
