@@ -1,3 +1,7 @@
+**Trump Rescinds Endorsement of Right-Wing Pastor After Texting Scandal**\
+`The pastor, Jackson Lahmeyer, dropped out of the race for a House seat in Oklahoma as President Trump backed Mr. Lahmeyer’s Republican rival in a runoff election.`\
+https://www.nytimes.com/2026/06/17/us/politics/trump-lahmeyer-house-texting-scandal-tedford.html
+
 **Jamaica in Talks With U.S. to Temporarily Hold Deported Migrants**\
 `It was the latest in a slate of deals the Trump administration has pursued to expel migrants to countries to which they may have no personal ties.`\
 https://www.nytimes.com/2026/06/17/world/americas/jamaica-us-third-country-deportees.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/es/2026/06/17/espanol/estados-unidos/obama-acuerdo-nucle
 **Live Updates: Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
 `Kevin M. Warsh, the new Federal Reserve chairman, vowed to reconsider how the central bank monitors the economy.`\
 https://www.nytimes.com/live/2026/06/17/business/fed-meeting-warsh-interest-rates
-
-**My Nephew’s Comedy Routine Skewers His Grandma. Should the Adults Be Laughing?**\
-`My brother even shared a video of the bit in the family group chat.`\
-https://www.nytimes.com/2026/06/17/magazine/nephews-comedy-routine-grandma-ethics.html
 

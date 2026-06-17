@@ -1,3 +1,7 @@
+**What Young Men Thought of Trump’s U.F.C. Fight**\
+`The spectacle seemed targeted to the young male voters drifting away from the president. Some were skeptical.`\
+https://www.nytimes.com/2026/06/17/style/trump-ufc-white-house-young-men.html
+
 **Trump Rescinds Endorsement of Right-Wing Pastor After Texting Scandal**\
 `The pastor, Jackson Lahmeyer, dropped out of the race for a House seat in Oklahoma as President Trump backed Mr. Lahmeyer’s Republican rival in a runoff election.`\
 https://www.nytimes.com/2026/06/17/us/politics/trump-lahmeyer-house-texting-scandal-tedford.html
@@ -178,11 +182,7 @@ https://www.nytimes.com/es/2026/06/17/espanol/deportes/mundial-congo-moda-portug
 `In a rare ruling for a condemned prisoner, the justices would not let Alabama use a contested method of execution.`\
 https://www.nytimes.com/2026/06/17/us/politics/the-docket-death-row.html
 
-**Las negociaciones de Trump con Irán están a la sombra del acuerdo de Obama**\
-`El presidente Trump está bajo presión para mejorar significativamente el acuerdo de la época de Obama y así justificar el enorme costo humano y económico que supuso llevar a Estados Unidos a la guerra.`\
-https://www.nytimes.com/es/2026/06/17/espanol/estados-unidos/obama-acuerdo-nuclear-trump-iran.html
-
 **Live Updates: Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
-`Kevin M. Warsh, the new Federal Reserve chairman, vowed to reconsider how the central bank monitors the economy.`\
+`Chairman Kevin M. Warsh vowed to start a “new chapter” in the Federal Reserve’s oversight of the U.S. economy.`\
 https://www.nytimes.com/live/2026/06/17/business/fed-meeting-warsh-interest-rates
 
