@@ -1,3 +1,115 @@
+**Oil Prices Waver as Traders Hope the Strait of Hormuz Will Reopen**\
+`Traders are waiting for U.S. and Iranian officials to meet in Switzerland on Friday, when they are expected to sign an initial agreement and being a 60-day cease-fire.`\
+https://www.nytimes.com/2026/06/17/business/iran-war-hormuz-oil-gas.html
+
+**Tech C.E.O.s to Discuss A.I. With G7 Leaders**\
+`Executives from Anthropic, OpenAI and Mistral will be among those attending a lunch meeting with leaders from many of the world’s richest nations.`\
+https://www.nytimes.com/2026/06/17/world/europe/g7-summit-ai-tech-leaders-openai-anthropic.html
+
+**‘Curse of the Seven Jackals’: A Film Made to Be Exhumed**\
+`Anthology Film Archives is screening Chris Jolly’s restored 2001 lo-fi indie film twice nightly.`\
+https://www.nytimes.com/2026/06/17/movies/curse-of-the-seven-jackals-anthology-film-archives.html
+
+**SpaceX’s Growing Warchest**\
+`Shares in Elon Musk’s SpaceX have been on a tear, giving the rockets and artificial intelligence company financial resources to box out competitors.`\
+https://www.nytimes.com/2026/06/17/business/dealbook/spacex-stock-cursor-ai.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/admin/100000010973429/17vid-trump-obama-59532.html
+
+****\
+`tktktkt`\
+https://www.nytimes.com/video/embedded/business/100000010973506/Biz-Fertilizer-Cocoa.html
+
+**Unlikely Coalition Begins Campaign Against Billionaire Tax in California**\
+`A surprising array of left-leaning interest groups is trying to kill a wealth tax initiative before the November ballot is finalized. Gov. Gavin Newsom is at the center of negotiations.`\
+https://www.nytimes.com/2026/06/17/us/california-billionaire-tax-opponents.html
+
+**Prediction Markets’ Next Major Bet: Wall St. Traders**\
+`Platforms like Kalshi let millions wager on sports and pop culture. They’re now hoping institutions will use them for big-ticket trading like hedging.`\
+https://www.nytimes.com/2026/06/17/business/dealbook/hedging-prediction-markets-kalshi.html
+
+**Getting Stoned With My Dad Helped Us Heal**\
+`It took a painful reckoning with history, and a lot of cannabis, to bring Julian Brave NoiseCat and his father back together.`\
+https://www.nytimes.com/video/podcasts/100000010972496/getting-stoned-with-my-dad-helped-us-heal.html
+
+**Hagen Quartet Is Taking Its Final Bows After 45 Years**\
+`Formed by siblings who grew up playing together, the Hagen Quartet is finishing a farewell tour with an unforced, casual goodbye.`\
+https://www.nytimes.com/2026/06/17/arts/music/hagen-quartet-farewell-tour.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000010973423/17vid-trump-sisi-63980.html
+
+**Trump Pulls Back Intelligence Pick to Pressure Congress on Elections Bill**\
+`President Trump named Jay Clayton, the U.S. attorney in Manhattan, after a bipartisan backlash to his earlier choice of Bill Pulte. The move all but assures that Mr. Pulte will hold the job, at least for a while.`\
+https://www.nytimes.com/2026/06/17/us/politics/senate-intelligence-nomination-voter-restrictions.html
+
+**What Could Happen in Iran?**\
+`Intro TK: minus “good morning”`\
+https://www.nytimes.com/2026/06/17/briefing/what-could-happen-in-iran.html
+
+**‘Hard Fork’ Live Part 2: Dylan Field on Standing Out in the A.I. Era**\
+`“I think if you have a creative voice in writing or design, you put yourself out there and you take a risk — this is a good time to do that,” said the Figma chief executive Dylan Field.`\
+https://www.nytimes.com/2026/06/17/podcasts/hard-fork-live-dylan-field.html
+
+**Jeremy Clarkson Says He Has an ‘Aggressive’ Cancer**\
+`The 66-year-old gave few details of his diagnosis but said the disease was “aggressive.”`\
+https://www.nytimes.com/2026/06/17/world/europe/jeremy-clarkson-cancer-uk.html
+
+**Japan Raids Ice Cream Giants in Cartel Investigation**\
+`The Fair Trade Commission said that it suspected six leading ice cream manufacturers fixed the prices of popular frozen treats.`\
+https://www.nytimes.com/2026/06/17/world/asia/japan-ice-cream-cartel-investigation.html
+
+**Speakers in Ecuador’s Andes Blend Spanish with Kichwa**\
+`The distinctive language used in Ecuador’s Andes, including its capital Quito, blends Spanish with Kichwa, an indigenous language spoken since the Inca settlement of the region.`\
+https://www.nytimes.com/video/world/americas/100000010715522/ecuador-quito-language-spanish-kichwa.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000010973378/17vid-rutte-39696.html
+
+**The Battle Over A.I. in the Classroom**\
+`There are concerns about artificial intelligence’s risks to kids’ learning and critical thinking, and tech companies are pushing to get chatbots into schools.`\
+https://www.nytimes.com/2026/06/17/podcasts/the-daily/battle-over-ai-in-school.html
+
+**How Local Police Are Working for ICE, and an Unusual Data Center Dispute**\
+`Plus, the gym is the new first date.`\
+https://www.nytimes.com/2026/06/17/podcasts/the-headlines/ice-local-police-data-center-dispute.html
+
+**NYT Connections Answers for June 18, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, June 18, 2026.`\
+https://www.nytimes.com/2026/06/17/crosswords/connections-companion-1103.html
+
+**Today’s Wordle Hints for June 18, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, June 18, 2026.`\
+https://www.nytimes.com/2026/06/17/crosswords/wordle-review-1825.html
+
+**NYT Strands Hints for June 18, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, June 18, 2026.`\
+https://www.nytimes.com/2026/06/17/crosswords/strands-sidekick-837.html
+
+**Norway’s Crown Princess Has Lung Transplant**\
+`Princess Mette-Marit was diagnosed with pulmonary fibrosis eight years ago and was placed on a waiting list for organ donation this month.`\
+https://www.nytimes.com/2026/06/17/world/europe/norway-crown-princess-mette-marit-lung-transplant.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000010973334/17vid-trump-entrance-77088.html
+
+**Celebrating These Knicks Title Vibes, With Desus Nice**\
+`Pablo raises a glass with Desus — his fellow New Yorker and bard of Knicks nation.`\
+https://www.nytimes.com/2026/06/17/podcasts/celebrating-these-knicks-title-vibes-with-desus-nice.html
+
+**Gareth Bale on Ronaldo and U.S. Soccer, Plus World Cup Transfers**\
+`Will the Portugal legend dominate his final tournament?`\
+https://www.nytimes.com/2026/06/17/podcasts/world-cup-gareth-bale-ronaldo-us-soccer.html
+
+**Intense Tornadoes Possible Across the Midwest on Wednesday**\
+`Forecasters warned that Illinois and Indiana faced the highest risk of severe storms throughout the day.`\
+https://www.nytimes.com/2026/06/17/weather/illinois-indiana-tornado-storm.html
+
 **La lengua dulce: cómo los Andes ecuatorianos crearon un idioma propio**\
 `En la Sierra ecuatoriana, una mezcla de kichwa y español da lugar a una lengua que desafía las reglas gramaticales del español, añade melodía y pasa desapercibida para muchos de sus hablantes.`\
 https://www.nytimes.com/es/2026/06/17/espanol/america-latina/ecuador-kichwa-andes-espanol.html
@@ -81,112 +193,4 @@ https://www.nytimes.com/2026/06/17/opinion/ai-dangerous-openai-anthropic.html
 **If You Don’t Vote for Republicans, You Don’t Exist**\
 `“Voter fraud” is not about fraud. It is about who votes and how.`\
 https://www.nytimes.com/2026/06/17/opinion/trump-pratt-voter-fraud-republicans.html
-
-**Matthew Rhys, of ‘Widow’s Bay,’ Is on a Boat. Barely.**\
-`The star of this seafaring horror-comedy, which wraps up Season 1 on Wednesday, also spends his downtime on the water.`\
-https://www.nytimes.com/2026/06/17/arts/television/matthew-rhys-widows-bay.html
-
-**How Republicans Are Breaking Up Majority-Black Districts**\
-`Here’s a look at how Louisiana, Alabama and Tennessee broke up majority-Black districts after the Supreme Court weakened the Voting Rights Act.`\
-https://www.nytimes.com/interactive/2026/06/17/us/elections/redistricting-maps-black-voters-republicans.html
-
-**Illinois Town Loses a Prison, Leaving Residents Worried About Jobs**\
-`Lincoln, Ill., where Abraham Lincoln once worked in the local courthouse, has lost two colleges, a bottle factory and now a state prison.`\
-https://www.nytimes.com/2026/06/17/us/lincoln-illinois-closures-economy.html
-
-**Bruce Nauman on How to Make Art: Don’t Try**\
-`The artist’s latest videos and drawings stem from physical and mental exercises and are largely improvised in his studio, with raw and vulnerable results.`\
-https://www.nytimes.com/2026/06/17/arts/design/bruce-nauman-art.html
-
-**Elon Musk’s Feud With Delaware May Transform Corporate America**\
-`An angry Musk has taken his business elsewhere, and has urged other companies to follow suit.`\
-https://www.nytimes.com/2026/06/17/magazine/elon-musk-delaware-corporate-law.html
-
-**A Watch Brand Focused on Mental Health**\
-`Every sale since Split debuted in mid-2025 has generated a donation equivalent to the cost of an hour’s therapy, its co-founder said.`\
-https://www.nytimes.com/2026/06/17/fashion/watches-split-mental-health.html
-
-**Bahrain Revoked Their Citizenship, and Then Tried to Expel Them to Iran**\
-`Amid the war with Iran, Bahrain has stripped 69 people of their citizenship, including children, accusing them of disloyalty and rendering them stateless.`\
-https://www.nytimes.com/2026/06/17/world/middleeast/bahrain-iran-citizenship-expulsions.html
-
-**‘White Lotus’ Star Murray Bartlett Shares His Favorite Places in Provincetown**\
-`The Australian actor, who won an Emmy for his role in Season 1 of “The White Lotus,” called his adopted Cape Cod hometown a “wonderland.”`\
-https://www.nytimes.com/2026/06/17/travel/provincetown-cape-cod-where-to-go.html
-
-**Mental Health Can Complicate Family Planning**\
-`Five stories show the hurdles that people with psychological diagnoses face when considering parenthood.`\
-https://www.nytimes.com/2026/06/17/well/mind/mental-health-family-children.html
-
-**As the Job Market Stutters, Simulated Work Is Surging**\
-`By asking players to perform repetitive labor in mundane settings, game designers are delivering relatable twists on the tycoon genre.`\
-https://www.nytimes.com/2026/06/17/arts/as-the-job-market-stutters-simulated-work-is-surging.html
-
-**The Cloud Has Sound: The Unrelenting and Unseen Cost of the A.I. Boom**\
-`As tech giants rush to build big data centers, some residents who live near them say a constant low-frequency vibration is ruining their health and homes.`\
-https://www.nytimes.com/2026/06/17/us/data-centers-noise-pollution.html
-
-**A New Era of Super-Hybrids to Ease Range Anxiety**\
-`Extended-range electric vehicles promise to reduce costs and appeal to America’s appetite for adventure. And they’re coming to showrooms soon.`\
-https://www.nytimes.com/2026/06/17/business/extended-range-electric-vehicles-erevs.html
-
-**Germantown: A Philadelphia Neighborhood Where People Stay**\
-`Germantown and its neighbor, Mt. Airy, share a rich cultural history, proximity to nature and a strong community.`\
-https://www.nytimes.com/2026/06/17/realestate/germantown-mt-airy-philadelphia-neighborhood-guide.html
-
-**How Ecuador’s Andes Created a Language of Its Own**\
-`In Ecuador’s highlands, a seamless mix of Kichwa and Spanish creates a language that bends grammar, adds melody and goes unnoticed by many who speak it every day.`\
-https://www.nytimes.com/2026/06/17/world/americas/ecuador-kichwa-language-andes.html
-
-**Wildfire in Washington State Prompts Evacuation Orders**\
-`Dry and windy conditions could exacerbate the blaze, which has already destroyed some structures near Spokane, officials warned.`\
-https://www.nytimes.com/2026/06/17/us/spokane-wildfire-evacuations.html
-
-**Private Jet Crashes on Highway in Laredo, Texas, Killing 1**\
-`The plane’s crew reported mechanical problems and low fuel as they flew to Austin, Texas, from Mexico. Five of the six people on board survived the crash in Laredo.`\
-https://www.nytimes.com/2026/06/17/us/laredo-plane-crash-texas.html
-
-**Plane Crashes on Texas Highway**\
-`People rushed to pull survivors from a private jet that crashed and caught fire on a highway in Laredo, Texas, on Tuesday night, leaving one dead.`\
-https://www.nytimes.com/video/us/100000010973156/laredo-plane-crash.html
-
-**Argentina Fans Celebrate Messi-Led Victory Over Algeria**\
-`Lionel Messi scored his first World Cup hat trick as Argentina beat Algeria 3-0 in their opening match on Tuesday.`\
-https://www.nytimes.com/video/sports/world-cup/100000010973154/messi-world-cup-hat-trick-argentina.html
-
-**Live Updates: After G7 Leaders Praise U.S.-Iran Deal, Trump Threatens Iran Again**\
-`President Trump said the United States would resume bombing Iran if he did not like the preliminary agreement, hours after leaders from the Group of 7 nations called the deal a “breakthrough.”`\
-https://www.nytimes.com/live/2026/06/17/world/g7-summit-trump-france
-
-**Georgia Republicans Choose Trump’s Pick for Senate, but Not Governor**\
-`Republicans in Georgia advanced Trump’s pick for senator but not governor in the state’s runoff primary on Tuesday.`\
-https://www.nytimes.com/video/us/elections/100000010972869/georgia-election-results-trump.html
-
-**¿Vale la pena tomar suplementos de glutatión?**\
-`La llamada “madre de todos los antioxidantes” se vende en tiras solubles, cápsulas, líquidos, geles y polvos. Hemos preguntado a los expertos si realmente funcionan.`\
-https://www.nytimes.com/es/2026/06/17/espanol/glutation-suplementos-beneficios-estafa.html
-
-**NYT Spelling Bee Answers for June 17, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/06/17/crosswords/spelling-bee-forum.html
-
-**Gilgo Beach Serial Killer Set to Receive Life Sentence After Guilty Plea**\
-`The decision on Wednesday will bring to an end an infamous case that took investigators more than a decade to solve.`\
-https://www.nytimes.com/2026/06/17/nyregion/gilgo-beach-killer-life-sentence.html
-
-**The Other Grand Army Plaza Gets a $21 Million Makeover**\
-`An overlooked plaza that opened more than a century ago and was designed as “an outdoor living room” at the southeast corner of Central Park re-emerges after a lengthy restoration.`\
-https://www.nytimes.com/2026/06/17/nyregion/grand-army-plaza-manhattan-makeover.html
-
-**A Jewish Democrat’s Support of Israel May Cost Him His N.Y.C. House Seat**\
-`Brad Lander is challenging Representative Dan Goldman over his stance on the war in Gaza as the two men face off in a contentious race for a Brooklyn and Lower Manhattan seat.`\
-https://www.nytimes.com/2026/06/17/nyregion/lander-goldman-israel-nyc-primary.html
-
-**A Tournament on Native Land Makes Millions. A Tribe Wants a Bigger Cut.**\
-`The Shinnecock Hills Golf Club on Long Island earns millions when it hosts the U.S. Open. But the nearby Indian tribe has for years only received a fraction of that.`\
-https://www.nytimes.com/2026/06/17/nyregion/a-tournament-on-native-land-makes-millions-a-tribe-wants-a-bigger-cut.html
-
-**We Want to Hear from Indigenous People Across New York.**\
-`The New York Times is examining the relationship between New York State officials and Native Americans.`\
-https://www.nytimes.com/2026/06/17/nyregion/ny-indigenous-peoples-call-out.html
 
