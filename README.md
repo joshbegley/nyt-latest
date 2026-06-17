@@ -1,3 +1,7 @@
+**Hot Mics at G7 Summit Offer Glimpse Into Leaders’ Conversations**\
+`Microphones left on during the Group of 7 summit in Évian-les-Bains, France, picked up side conversations between world leaders as they discussed Greenland and cigarettes.`\
+https://www.nytimes.com/video/world/100000010974044/g7-summit-hot-mics-trump-carney.html
+
 **How Does Trump’s Deal With Iran Compare to Obama’s?**\
 `The two agreements are difficult to compare, because the current memorandum of understanding is an interim arrangement meant to outline a negotiating path to a fuller deal.`\
 https://www.nytimes.com/2026/06/17/world/middleeast/trump-obama-iran-deals.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/17/world/europe/trump-g7-europe.html
 **Trump’s Threats Show His Complicated History With a Surveillance Law**\
 `The administration argues that FISA Section 702 must be renewed to preserve national security, but the president himself has threatened to veto it.`\
 https://www.nytimes.com/2026/06/17/us/politics/trump-fisa-history.html
-
-**Eight Victims Named in Deadly B-52 Crash in California**\
-`All eight crew members died when the bomber crashed during a routine test mission at a military base in California on Monday.`\
-https://www.nytimes.com/2026/06/17/us/what-we-know-b52-crash-victims-california.html
 
 **Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
 `Chairman Kevin M. Warsh vowed to start a “new chapter” in the Federal Reserve’s oversight of the U.S. economy.`\
