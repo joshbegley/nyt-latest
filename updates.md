@@ -1,3 +1,27 @@
+**Tech C.E.O.s to Discuss A.I. With G7 Leaders**\
+`Executives from Anthropic, OpenAI and Mistral will be among those attending a lunch meeting with leaders from many of the world’s richest nations.`\
+https://www.nytimes.com/2026/06/17/world/europe/g7-summit-ai-tech-leaders-openai-anthropic.html
+
+**‘Curse of the Seven Jackals’: A Film Made to Be Exhumed**\
+`Anthology Film Archives is screening Chris Jolly’s restored 2001 lo-fi indie film twice nightly.`\
+https://www.nytimes.com/2026/06/17/movies/curse-of-the-seven-jackals-anthology-film-archives.html
+
+**SpaceX’s Growing Warchest**\
+`Shares in Elon Musk’s SpaceX have been on a tear, giving the rockets and artificial intelligence company financial resources to box out competitors.`\
+https://www.nytimes.com/2026/06/17/business/dealbook/spacex-stock-cursor-ai.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/admin/100000010973429/17vid-trump-obama-59532.html
+
+****\
+`tktktkt`\
+https://www.nytimes.com/video/embedded/business/100000010973506/Biz-Fertilizer-Cocoa.html
+
+**Matthew Rhys, of ‘Widow’s Bay,’ Is on a Boat. Barely.**\
+`The star of this seafaring horror-comedy, which wraps up Season 1 on Wednesday, also spends his downtime on the water.`\
+https://www.nytimes.com/2026/06/17/arts/television/matthew-rhys-widows-bay.html
+
 **Unlikely Coalition Begins Campaign Against Billionaire Tax in California**\
 `A surprising array of left-leaning interest groups is trying to kill a wealth tax initiative before the November ballot is finalized. Gov. Gavin Newsom is at the center of negotiations.`\
 https://www.nytimes.com/2026/06/17/us/california-billionaire-tax-opponents.html
