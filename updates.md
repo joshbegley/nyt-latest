@@ -1,3 +1,7 @@
+**Oil Prices Waver as Traders Hope the Strait of Hormuz Will Reopen**\
+`Traders are waiting for U.S. and Iranian officials to meet in Switzerland on Friday, when they are expected to sign an initial agreement and being a 60-day cease-fire.`\
+https://www.nytimes.com/2026/06/17/business/iran-war-hormuz-oil-gas.html
+
 **Tech C.E.O.s to Discuss A.I. With G7 Leaders**\
 `Executives from Anthropic, OpenAI and Mistral will be among those attending a lunch meeting with leaders from many of the world’s richest nations.`\
 https://www.nytimes.com/2026/06/17/world/europe/g7-summit-ai-tech-leaders-openai-anthropic.html

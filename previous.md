@@ -1,3 +1,7 @@
+**Oil Prices Waver as Traders Hope the Strait of Hormuz Will Reopen**\
+`Traders are waiting for U.S. and Iranian officials to meet in Switzerland on Friday, when they are expected to sign an initial agreement and being a 60-day cease-fire.`\
+https://www.nytimes.com/2026/06/17/business/iran-war-hormuz-oil-gas.html
+
 **Tech C.E.O.s to Discuss A.I. With G7 Leaders**\
 `Executives from Anthropic, OpenAI and Mistral will be among those attending a lunch meeting with leaders from many of the world’s richest nations.`\
 https://www.nytimes.com/2026/06/17/world/europe/g7-summit-ai-tech-leaders-openai-anthropic.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/17/opinion/ai-dangerous-openai-anthropic.html
 **If You Don’t Vote for Republicans, You Don’t Exist**\
 `“Voter fraud” is not about fraud. It is about who votes and how.`\
 https://www.nytimes.com/2026/06/17/opinion/trump-pratt-voter-fraud-republicans.html
-
-**Matthew Rhys, of ‘Widow’s Bay,’ Is on a Boat. Barely.**\
-`The star of this seafaring horror-comedy, which wraps up Season 1 on Wednesday, also spends his downtime on the water.`\
-https://www.nytimes.com/2026/06/17/arts/television/matthew-rhys-widows-bay.html
 
