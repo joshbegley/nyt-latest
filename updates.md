@@ -1,3 +1,7 @@
+**State Lawmaker and Trump-Backed Pastor Head to House Runoff in Oklahoma**\
+`The result sets up a Republican primary runoff between a right-wing firebrand and a more traditional candidate.`\
+https://www.nytimes.com/2026/06/16/us/politics/oklahoma-mark-tedford-jackson-lahmeyer.html
+
 **Election Live Updates: Georgia Republicans Go With Trump’s Pick for Senate, but Not Governor**\
 `Mike Collins, a Trump-backed Republican, will face Senator Jon Ossoff in Georgia, where Rick Jackson won the Republican nomination for governor over the president’s pick. Candidates backed by Mr. Trump won Republican nominations for Senate in Oklahoma and Alabama.`\
 https://www.nytimes.com/live/2026/06/16/us/georgia-oklahoma-alabama-elections
