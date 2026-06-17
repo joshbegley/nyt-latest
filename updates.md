@@ -1,3 +1,11 @@
+**Rick Jackson, a Billionaire, Wins G.O.P. Runoff for Georgia Governor**\
+`Mr. Jackson, who had been largely unknown to voters just months ago, beat President Trump’s choice and will face Keisha Lance Bottoms, a Democrat, in November.`\
+https://www.nytimes.com/2026/06/16/us/elections/georgia-governor-runoff-republican.html
+
+**Election Live Updates: Georgia Republicans Go With Trump’s Pick for Senate, but Not Governor**\
+`Representative Mike Collins, who was backed by President Trump, won the G.O.P. nomination to challenge Senator Jon Ossoff. But Georgia Republicans chose Rick Jackson as their nominee for governor over a Trump-backed candidate. In Oklahoma, Representative Kevin Hern won the Republican nomination for Senate.`\
+https://www.nytimes.com/live/2026/06/16/us/georgia-oklahoma-alabama-elections
+
 **Barn Fire Kills 17 Horses at Harness Track in Saratoga Springs, N.Y.**\
 `The cause is under investigation. Only one horse in the barn, Twin B Speed Dial, is believed to have survived, sustaining minor injuries.`\
 https://www.nytimes.com/2026/06/16/us/saratoga-barn-fire-horses.html
