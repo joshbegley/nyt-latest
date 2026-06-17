@@ -1,9 +1,21 @@
+**How Does Trump’s Deal With Iran Compare to Obama’s?**\
+`The two agreements are difficult to compare, because the current memorandum of understanding is an interim arrangement meant to outline a negotiating path to a fuller deal.`\
+https://www.nytimes.com/2026/06/17/world/middleeast/trump-obama-iran-deals.html
+
+**Florida Appeals Court Strikes Down Ban on Concealed Carry for Young Adults**\
+`The state attorney general, James Uthmeier, had declined to defend the nearly 40-year-old ban on 18- to 20-year-olds carrying concealed weapons. He celebrated the ruling on Wednesday.`\
+https://www.nytimes.com/2026/06/17/us/florida-concealed-carry-young-adults.html
+
+**Tropical Storm Arthur Forecast: How Much Rain Will Fall?**\
+`Heavy rain and flash flooding are expected across the region through Friday.`\
+https://www.nytimes.com/2026/06/17/weather/tropical-storm-arthur-how-much-rain.html
+
 **Driver Charged With Hitting ICE Agent After Confusion Over His Identity**\
 `Federal prosecutors said the man had refused to roll down his window when Immigration and Customs Enforcement officers in New Jersey told him to stop.`\
 https://www.nytimes.com/2026/06/17/nyregion/ice-agent-hit-vehicle-nj.html
 
 **Horse Carriage Overturns in Central Park, Critically Injuring Man**\
-`A horse went out of control and collided with another carriage before toppling over, the Central Park Conservancy said. An 18-year-old passenger fell out of the carriage.`\
+`The horse bolted after the driver stepped out to take a photo of the passengers, the carriage drivers’ union said, and an 18-year-old tourist from India fell from the driverless carriage.`\
 https://www.nytimes.com/2026/06/17/nyregion/horse-carriage-central-park-injury.html
 
 **Seth Rogen on Fame and Insecurity**\
@@ -177,18 +189,6 @@ https://www.nytimes.com/2026/06/17/us/politics/trump-fisa-history.html
 **Eight Victims Named in Deadly B-52 Crash in California**\
 `All eight crew members died when the bomber crashed during a routine test mission at a military base in California on Monday.`\
 https://www.nytimes.com/2026/06/17/us/what-we-know-b52-crash-victims-california.html
-
-**N.Y.P.D. Will Assign Largest Number of Officers Ever to Knicks Parade**\
-`The department announced that it would deploy more than 10,000 of its ranks and put stringent security measures in place for the celebration of the Knicks’ N.B.A. championship on Thursday.`\
-https://www.nytimes.com/2026/06/17/nyregion/knicks-parade-security-new-york-police.html
-
-**Watch Live: Fed Chair Holds News Conference on Interest Rate Decision**\
-`The Federal Reserve chairman, Kevin M. Warsh, holds a news conference after a two-day policy meeting.`\
-https://www.nytimes.com/video/embedded/us/100000010973869/watch-live-fed-chair-holds-news-conference-on-interest-rate-decision.html
-
-**Lost Oregon Hiker Fell to Death From Cliff on Alaska Trail, Troopers Say**\
-`Emergency responders found the body of a man partially submerged at the bottom of a cliff in Ketchikan on Monday, the authorities said.`\
-https://www.nytimes.com/2026/06/17/us/oregon-hiker-dead-cliff-alaska.html
 
 **Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
 `Chairman Kevin M. Warsh vowed to start a “new chapter” in the Federal Reserve’s oversight of the U.S. economy.`\
