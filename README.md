@@ -1,3 +1,11 @@
+**Trump Angrily Defends Iran Deal, Belittling the One Obama Signed**\
+`President Trump denied that the United States would be part of a $300 billion rebuilding fund for Tehran and argued that his agreement was better than the one Barack Obama struck in 2015.`\
+https://www.nytimes.com/2026/06/17/us/politics/trump-iran-peace-deal-obama.html
+
+**Arianna Huffington: Our Strongest Drive Is Self-Discovery**\
+`It may be tempting to chase status and success, but let’s not overlook our universal need to find inner meaning and purpose.`\
+https://www.nytimes.com/2026/06/17/special-series/arianna-huffington-self-discovery.html
+
 **Hot Mic Moments Catch Trump and Other G7 Leaders Mentioning Geopolitics and Greenland**\
 `Snippets of conversations picked up on microphones at the annual Group of 7 summit in France offered a glimpse behind the scenes, as leaders chatted about issues great and small.`\
 https://www.nytimes.com/2026/06/17/world/europe/g7-summit-hot-mic-trump-meloni-greenland-carney.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/17/business/economy/small-business-strain-econom
 **Ukraine Tries to Cut Off Crimea, Choking Russian Supply Routes**\
 `Scores of targeted attacks against supply routes, part of what Kyiv calls a “logistics lockdown,” has caused gasoline shortages.`\
 https://www.nytimes.com/2026/06/17/world/europe/russia-ukraine-crimea-fuel-shortages.html
-
-**‘Backrooms’ and ‘Obsession’ Disrupt the 2026 Summer Box Office**\
-`“Backrooms” and “Obsession,” two breakout horror films from first-time directors in their 20s, have arguably redefined what a summer blockbuster can be.`\
-https://www.nytimes.com/2026/06/17/business/media/obsession-backrooms-summer-box-office-charts.html
-
-**Pick Your Favorite $1.875 Million Home in Wisconsin, Massachusetts or Washington**\
-`A converted firehouse in Milwaukee, an 19th-century house in Salem, Mass., and a house with water and mountain views on Bainbridge Island, Wash.`\
-https://www.nytimes.com/2026/06/17/realestate/homes-for-sale-in-wisconsin-massachusetts-and-washington.html
 
