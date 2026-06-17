@@ -1,3 +1,7 @@
+**U.S. Sues N.Y. State Over Troubled $11 Billion Home Health Care Program**\
+`The Justice Department accused officials of failing to police a vendor it said had siphoned off millions of dollars. A spokeswoman for Gov. Kathy Hochul called the suit an attempt to weaponize the justice system.`\
+https://www.nytimes.com/2026/06/16/nyregion/doj-new-york-health-care-lawsuit.html
+
 **Mike Collins Wins Republican Primary Runoff for Senate in Georgia**\
 `President Trump had made a late endorsement for Mr. Collins, who had campaigned as a MAGA candidate also able to appeal to moderates.`\
 https://www.nytimes.com/2026/06/16/us/politics/georgia-senate-republican-runoff.html
