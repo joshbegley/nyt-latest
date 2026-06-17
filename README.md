@@ -1,3 +1,7 @@
+**F.T.C. Sues Group That Advises on Transgender Medical Treatments**\
+`The group, World Professional Association for Transgender Health, offers guidelines on medical treatment for transgender patients.`\
+https://www.nytimes.com/2026/06/17/us/politics/ftc-sues-group-that-advises-on-transgender-medical-treatments.html
+
 **Mystikal, Louisiana Rapper, Sentenced to 20 Years in Rape Case**\
 `The Grammy-nominated musician pleaded guilty to third-degree rape after a woman told the police she was beaten and assaulted at his home in 2022.`\
 https://www.nytimes.com/2026/06/17/arts/music/mystikal-rape-prison-sentence.html

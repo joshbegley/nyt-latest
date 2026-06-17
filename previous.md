@@ -1,3 +1,11 @@
+**Mystikal, Louisiana Rapper, Sentenced to 20 Years in Rape Case**\
+`The Grammy-nominated musician pleaded guilty to third-degree rape after a woman told the police she was beaten and assaulted at his home in 2022.`\
+https://www.nytimes.com/2026/06/17/arts/music/mystikal-rape-prison-sentence.html
+
+**New Plan Scales Back C.D.C.’s Work on Diseases Abroad**\
+`The State Department is taking over much of the control of global health initiatives, for which critics say the department does not have the expertise.`\
+https://www.nytimes.com/2026/06/17/health/pepfar-cdc-cuts.html
+
 **Biden’s Re-Election Bid Was a ‘Terrible Mistake,’ Hillary Clinton Says**\
 `During an interview with The New Yorker’s editor, David Remnick, Hillary Clinton called Biden’s re-election bid a terrible mistake. The former first lady and presidential candidate also said that she believes that another Democratic candidate could have beaten President Trump.`\
 https://www.nytimes.com/video/us/elections/100000010973997/biden-clinton-2024-election.html
@@ -22,7 +30,7 @@ https://www.nytimes.com/2026/06/17/special-series/kilian-jornet-endurance.html
 `The 2024 election showed that the party is simply not large enough to command a majority of the country.`\
 https://www.nytimes.com/2026/06/17/opinion/democrats-platner-osborn-daniel-moraff.html
 
-**U.S. Official Releases Text of Agreement With Iran**\
+**Trump Administration Shares Terms of Iran Deal Including Oil Export Waivers**\
 `The document leaves complicated issues like Iran’s nuclear program still to be decided and a 60-day window to determine them.`\
 https://www.nytimes.com/2026/06/17/world/middleeast/us-iran-deal-trump-hormuz-nuclear.html
 
@@ -177,10 +185,6 @@ https://www.nytimes.com/2026/06/17/world/europe/finland-nuclear-devices.html
 **Political Spotlight Shines on Warsh for His First Fed Meeting as Chairman**\
 `The new Fed chairman is bound to face the unyielding attention of the president that nominated him.`\
 https://www.nytimes.com/2026/06/17/business/economy/fed-chair-meeting-warsh-trump.html
-
-**La República Democrática del Congo vuelve con estilo al Mundial**\
-`Los elegantes trajes negros de las estrellas del fútbol, con detalles de estampado de leopardo, son un guiño a la larga tradición de la moda “sapeur”.`\
-https://www.nytimes.com/es/2026/06/17/espanol/deportes/mundial-congo-moda-portugal.html
 
 **Live Updates: Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
 `Chairman Kevin M. Warsh vowed to start a “new chapter” in the Federal Reserve’s oversight of the U.S. economy.`\

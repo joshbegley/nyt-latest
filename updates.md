@@ -1,3 +1,15 @@
+**Mystikal, Louisiana Rapper, Sentenced to 20 Years in Rape Case**\
+`The Grammy-nominated musician pleaded guilty to third-degree rape after a woman told the police she was beaten and assaulted at his home in 2022.`\
+https://www.nytimes.com/2026/06/17/arts/music/mystikal-rape-prison-sentence.html
+
+**New Plan Scales Back C.D.C.’s Work on Diseases Abroad**\
+`The State Department is taking over much of the control of global health initiatives, for which critics say the department does not have the expertise.`\
+https://www.nytimes.com/2026/06/17/health/pepfar-cdc-cuts.html
+
+**Trump Administration Shares Terms of Iran Deal Including Oil Export Waivers**\
+`The document leaves complicated issues like Iran’s nuclear program still to be decided and a 60-day window to determine them.`\
+https://www.nytimes.com/2026/06/17/world/middleeast/us-iran-deal-trump-hormuz-nuclear.html
+
 **Biden’s Re-Election Bid Was a ‘Terrible Mistake,’ Hillary Clinton Says**\
 `During an interview with The New Yorker’s editor, David Remnick, Hillary Clinton called Biden’s re-election bid a terrible mistake. The former first lady and presidential candidate also said that she believes that another Democratic candidate could have beaten President Trump.`\
 https://www.nytimes.com/video/us/elections/100000010973997/biden-clinton-2024-election.html
