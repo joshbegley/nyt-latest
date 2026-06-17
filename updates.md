@@ -1,3 +1,15 @@
+**Trump’s FEMA Nominee Calls Staff Cuts a ‘Challenge’ for Disaster Agency**\
+`Cameron Hamilton, who briefly led the agency on an acting basis last year but was fired for contradicting the president, also said he would get money out to states faster.`\
+https://www.nytimes.com/2026/06/17/climate/trump-fema-cameron-hamilton.html
+
+**Money and Politics: Tom Steyer and Others Reflect on His Campaign**\
+`Tom Steyer and other readers respond to Michelle Cottle’s essay about his campaign for governor of California. Also: A missed opportunity on the 250th anniversary.`\
+https://www.nytimes.com/2026/06/17/opinion/tom-steyer-money-politics.html
+
+**How Americans Became Less Connected**\
+`Plus, the start of a series on the opposite of violence.`\
+https://www.nytimes.com/2026/06/17/headway/americans-loneliness-connection-community.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000010974297/17vid-Trump-G7-27970.html
