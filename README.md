@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000010974481/17vid-Trump-G7-79572.html
+
 **Georgia Republicans Shelve Redistricting for Now**\
 `The leaders of the Georgia House of Representatives said they would not redraw U.S. House districts held by Black Democrats just hours before a special session was to begin.`\
 https://www.nytimes.com/2026/06/17/us/politics/georgia-republicans-redistricting.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/06/17/world/europe/g7-summit-hot-mic-trump-meloni-g
 **We Should Expect More From Our Supreme Court**\
 `The Supreme Court is racing to start summer vacation, but the legal journalist Cristian Farias says we have very little to feel relaxed about. In the era of Trump’s relentless power grabs, we should expect the Supreme Court to do more than just “the bare minimum.”`\
 https://www.nytimes.com/video/opinion/100000010968185/we-should-expect-more-from-our-supreme-court.html
-
-**The Deck Is Stacked Against Healthy Eating**\
-`We need the will to push back against corporate interests.`\
-https://www.nytimes.com/2026/06/17/opinion/ultraprocessed-food-healthy.html
 
 **World Cup Updates: At U.S. Stadiums, Boisterous Crowds and Redacted Logos**\
 `(No description)`\

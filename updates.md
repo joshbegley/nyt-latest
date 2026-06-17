@@ -1,3 +1,31 @@
+**Georgia Republicans Shelve Redistricting for Now**\
+`The leaders of the Georgia House of Representatives said they would not redraw U.S. House districts held by Black Democrats just hours before a special session was to begin.`\
+https://www.nytimes.com/2026/06/17/us/politics/georgia-republicans-redistricting.html
+
+**Trump Says His Iran Deal Is Better Than Obama’s**\
+`Speaking on the final day of the G7 summit in France, President Trump used an expletive to describe the nuclear deal President Obama brokered with Iran. Mr. Trump is under pressure to deliver a deal that would justify taking the United States to war.`\
+https://www.nytimes.com/video/world/europe/100000010974171/trump-iran-deal-obama.html
+
+**Richard Tapia, Mathematician Who Pushed to Diversify His Field, Dies at 88**\
+`A math whiz as a young man, he later blazed trails, both with his theoretical advances and his advocacy for minority students.`\
+https://www.nytimes.com/2026/06/17/science/richard-a-tapia-dead.html
+
+**A.I.: Artificial or Awesome?**\
+`Fenix Flexin’s new ’80s-pop single “RUBBERZ” sounds miles away from the hip-hop he’s known for as part of Shoreline Mafia. Our critic Jon Caramanica discusses the track and the online debate over whether it was A.I.-generated.`\
+https://www.nytimes.com/video/podcasts/100000010974327/ai-artificial-or-awesome.html
+
+**Un jet privado se estrella en Texas y deja 1 persona muerta**\
+`La tripulación del avión informó problemas mecánicos y poco combustible mientras volaban hacia Austin, Texas, desde México. Cinco de las seis personas que iban a bordo sobrevivieron al choque en Laredo.`\
+https://www.nytimes.com/es/2026/06/17/espanol/estados-unidos/avion-choque-laredo-texas.html
+
+**U.S.-Iran Agreement Includes Strait of Hormuz, Lebanon and More: See Full Text of the Deal**\
+`A senior U.S. official, speaking on condition of anonymity, disclosed what the official said was the full text of the deal between the two countries.`\
+https://www.nytimes.com/2026/06/17/us/politics/us-iran-agreement-deal-text.html
+
+**Western Europe Braces for Another Round of Heat**\
+`After an early heat wave in May, people in France, Germany, Italy and other countries are again looking for respite.`\
+https://www.nytimes.com/2026/06/17/travel/heat-wave-western-europe.html
+
 **Trump’s FEMA Nominee Calls Staff Cuts a ‘Challenge’ for Disaster Agency**\
 `Cameron Hamilton, who briefly led the agency on an acting basis last year but was fired for contradicting the president, also said he would get money out to states faster.`\
 https://www.nytimes.com/2026/06/17/climate/trump-fema-cameron-hamilton.html

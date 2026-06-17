@@ -1,3 +1,27 @@
+**Georgia Republicans Shelve Redistricting for Now**\
+`The leaders of the Georgia House of Representatives said they would not redraw U.S. House districts held by Black Democrats just hours before a special session was to begin.`\
+https://www.nytimes.com/2026/06/17/us/politics/georgia-republicans-redistricting.html
+
+**Trump Says His Iran Deal Is Better Than Obama’s**\
+`Speaking on the final day of the G7 summit in France, President Trump used an expletive to describe the nuclear deal President Obama brokered with Iran. Mr. Trump is under pressure to deliver a deal that would justify taking the United States to war.`\
+https://www.nytimes.com/video/world/europe/100000010974171/trump-iran-deal-obama.html
+
+**Richard Tapia, Mathematician Who Pushed to Diversify His Field, Dies at 88**\
+`A math whiz as a young man, he later blazed trails, both with his theoretical advances and his advocacy for minority students.`\
+https://www.nytimes.com/2026/06/17/science/richard-a-tapia-dead.html
+
+**A.I.: Artificial or Awesome?**\
+`Fenix Flexin’s new ’80s-pop single “RUBBERZ” sounds miles away from the hip-hop he’s known for as part of Shoreline Mafia. Our critic Jon Caramanica discusses the track and the online debate over whether it was A.I.-generated.`\
+https://www.nytimes.com/video/podcasts/100000010974327/ai-artificial-or-awesome.html
+
+**Un jet privado se estrella en Texas y deja 1 persona muerta**\
+`La tripulación del avión informó problemas mecánicos y poco combustible mientras volaban hacia Austin, Texas, desde México. Cinco de las seis personas que iban a bordo sobrevivieron al choque en Laredo.`\
+https://www.nytimes.com/es/2026/06/17/espanol/estados-unidos/avion-choque-laredo-texas.html
+
+**U.S.-Iran Agreement Includes Strait of Hormuz, Lebanon and More: See Full Text of the Deal**\
+`A senior U.S. official, speaking on condition of anonymity, disclosed what the official said was the full text of the deal between the two countries.`\
+https://www.nytimes.com/2026/06/17/us/politics/us-iran-agreement-deal-text.html
+
 **Trump’s FEMA Nominee Calls Staff Cuts a ‘Challenge’ for Disaster Agency**\
 `Cameron Hamilton, who briefly led the agency on an acting basis last year but was fired for contradicting the president, also said he would get money out to states faster.`\
 https://www.nytimes.com/2026/06/17/climate/trump-fema-cameron-hamilton.html
@@ -38,8 +62,8 @@ https://www.nytimes.com/2026/06/17/us/politics/conor-mcgregor-banned-drugs.html
 `La cumbre buscaba dirigir la atención a la guerra en Ucrania, pero el presidente Trump dejó claro que el conflicto ya no estaba en su lista de prioridades.`\
 https://www.nytimes.com/es/2026/06/17/espanol/mundo/cumbre-g7-trump-ucrania-rusia.html
 
-**Western Europe Braces For Another Round of Heat**\
-`After an early heat wave in May, travelers and residents in France, Germany, Italy and other countries are again looking for respite.`\
+**Western Europe Braces for Another Round of Heat**\
+`After an early heat wave in May, people in France, Germany, Italy and other countries are again looking for respite.`\
 https://www.nytimes.com/2026/06/17/travel/heat-wave-western-europe.html
 
 **Elon Musk’s Next Move May Be a Mega-Merger of SpaceX and Tesla**\
@@ -157,30 +181,6 @@ https://www.nytimes.com/video/opinion/100000010968185/we-should-expect-more-from
 **The Deck Is Stacked Against Healthy Eating**\
 `We need the will to push back against corporate interests.`\
 https://www.nytimes.com/2026/06/17/opinion/ultraprocessed-food-healthy.html
-
-**I Have Autism. Can I Tell My Best Friend That I Think She Does, Too?**\
-`A teenager who found comfort and clarity in an autism diagnosis wants to put a friend on a similar path, but is unsure how much encouragement is appropriate.`\
-https://www.nytimes.com/2026/06/17/style/autism-diagnosis.html
-
-**World Cup 2026: How Messi Completed His Hat-Trick of Goals for Argentina**\
-`View in 3-D how Lionel Messi crafted the third goal for Argentina in a 3-0 win over Algeria in its opening game of the World Cup.`\
-https://www.nytimes.com/interactive/2026/06/17/sports/soccer/messi-world-cup-goal-argentina-algeria.html
-
-**600 Tickets for Knicks’ Championship Ceremony Up for Grabs in Lottery**\
-`The ceremony, at City Hall in New York, will follow Thursday’s parade in Lower Manhattan. But the lottery is open only until 11 a.m. today.`\
-https://www.nytimes.com/2026/06/17/nyregion/knicks-parade-tickets-lottery.html
-
-**Oil Prices Tick Higher Amid Hope the Strait of Hormuz Will Reopen**\
-`Traders are waiting for U.S. and Iranian officials to meet in Switzerland on Friday, when they are expected to sign an initial agreement and begin a 60-day cease-fire.`\
-https://www.nytimes.com/2026/06/17/business/iran-war-hormuz-oil-gas.html
-
-**Tech C.E.O.s to Discuss A.I. With G7 Leaders**\
-`Executives from Anthropic, OpenAI and Mistral will be among those attending a lunch meeting with leaders from many of the world’s richest nations.`\
-https://www.nytimes.com/2026/06/17/world/europe/g7-summit-ai-tech-leaders-openai-anthropic.html
-
-**‘Curse of the Seven Jackals’: A Film Made to Be Exhumed**\
-`Anthology Film Archives is screening Chris Jolly’s restored 2001 lo-fi indie film twice nightly.`\
-https://www.nytimes.com/2026/06/17/movies/curse-of-the-seven-jackals-anthology-film-archives.html
 
 **World Cup Updates: At U.S. Stadiums, Boisterous Crowds and Redacted Logos**\
 `(No description)`\
