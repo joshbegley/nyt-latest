@@ -1,3 +1,7 @@
+**How the U.S.-Iran Deal Came Down to the Wire**\
+`The agreement, which punted many of the toughest issues to future negotiations, came after a last-minute scramble.`\
+https://www.nytimes.com/2026/06/17/us/politics/us-iran-deal-trump.html
+
 **France Assembled an African Dream Team. Senegal Could Not Stop Them.**\
 `Many see the rivalry between France and Senegal as a result of colonial heritage. But at the same time, European teams are more African than ever.`\
 https://www.nytimes.com/2026/06/17/world/africa/france-senegal-world-cup-africa.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/17/us/politics/ossoff-collins-georgia-senate.htm
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000010974481/17vid-Trump-G7-79572.html
-
-**Georgia Republicans Shelve Redistricting as Anger Grows**\
-`The leaders of the Georgia legislature pulled the plug on gerrymandering away U.S. House seats held by Black Democrats just hours before a special session was to begin.`\
-https://www.nytimes.com/2026/06/17/us/politics/georgia-republicans-redistricting.html
 
 **Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
 `Chairman Kevin M. Warsh vowed to start a “new chapter” in the Federal Reserve’s oversight of the U.S. economy.`\
