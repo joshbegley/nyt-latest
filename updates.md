@@ -1,3 +1,11 @@
+**Bob Dylan y Liza Minnelli ya cumplieron 80 años, y tienen algo que decirle a Trump**\
+`“Me siento igual que hace 50 años”, dijo el presidente Trump. “Es una locura”.`\
+https://www.nytimes.com/es/2026/06/17/espanol/opinion/bob-dylan-liza-minnelli-80-anos-trump.html
+
+**Word of the Day: sinecure**\
+`This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/06/17/learning/word-of-the-day-sinecure.html
+
 **Late Night Wades Into the Reflecting Pool’s Algae Bloom**\
 `President Trump “promised he would drain the swamp,” Jimmy Kimmel said. “Instead, he spent 14 million of our dollars building a new one.”`\
 https://www.nytimes.com/2026/06/17/arts/television/late-night-trump-reflecting-pool-algae.html
