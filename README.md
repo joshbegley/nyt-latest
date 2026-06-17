@@ -1,3 +1,7 @@
+**‘The Whole World Saw That’: Congo Fans Rejoice in Draw With Portugal**\
+`“If you’re coming to face Congo,” one fan said after his team stunned Portugal, a global soccer powerhouse, “just get ready to run and to fight, because we’re going to give it to you.”`\
+https://www.nytimes.com/2026/06/17/us/congo-fans-portugal-tie.html
+
 **Trump Defends Deal to End the War With Iran as Details Emerge**\
 `President Trump lashed out at critics who say the agreement achieves less than the one President Barack Obama signed in 2015, and he threatened to bomb Iran again if it violated the deal.`\
 https://www.nytimes.com/2026/06/17/world/middleeast/trump-iran-deal-obama.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/17/us/politics/us-iran-agreement-deal-text.html
 **Trump’s FEMA Nominee Calls Staff Cuts a ‘Challenge’ for Disaster Agency**\
 `Cameron Hamilton, who briefly led the agency on an acting basis last year but was fired for contradicting the president, also said he would get money out to states faster.`\
 https://www.nytimes.com/2026/06/17/climate/trump-fema-cameron-hamilton.html
-
-**Money and Politics: Tom Steyer and Others Reflect on His Campaign**\
-`Tom Steyer and other readers respond to Michelle Cottle’s essay about his campaign for governor of California. Also: A missed opportunity on the 250th anniversary.`\
-https://www.nytimes.com/2026/06/17/opinion/tom-steyer-money-politics.html
 
 **Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
 `Chairman Kevin M. Warsh vowed to start a “new chapter” in the Federal Reserve’s oversight of the U.S. economy.`\
