@@ -1,3 +1,7 @@
+**EE. UU. no tiene ‘nada que ver’ con la guerra en Ucrania, dice Trump en la cumbre del G7**\
+`La cumbre buscaba dirigir la atención a la guerra en Ucrania, pero el presidente Trump dejó claro que el conflicto ya no estaba en su lista de prioridades.`\
+https://www.nytimes.com/es/2026/06/17/espanol/mundo/cumbre-g7-trump-ucrania-rusia.html
+
 **Elon Musk’s Next Move May Be a Mega-Merger of SpaceX and Tesla**\
 `Some shareholders might object, but there is little they could do, legal experts say.`\
 https://www.nytimes.com/2026/06/17/business/spacex-tesla-merger-elon-musk.html
