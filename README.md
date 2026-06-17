@@ -1,3 +1,15 @@
+**6 conclusiones de la investigación del Times sobre la muerte de Epstein**\
+`Analizamos todas las teorías plausibles sobre su muerte, tanto las oficiales como las alternativas, en busca de los argumentos y las pruebas más convincentes.`\
+https://www.nytimes.com/es/2026/06/17/espanol/estados-unidos/muerte-epstein-suicidio-investigacion.html
+
+**We Just Learned the Limits of American Power**\
+`How did the world’s richest nation, armed with the most powerful military, arrive at this strategic defeat?`\
+https://www.nytimes.com/2026/06/17/opinion/iran-war-us-military-power.html
+
+**America’s First Pope Pays Homage to Its First Saint**\
+`When Pope Leo visits Mother Cabrini’s birthplace, the message will not be their shared American nationality but a rebuke of American exceptionalism.`\
+https://www.nytimes.com/2026/06/17/opinion/pope-leo-cabrini-american-saint.html
+
 **Georgia Vexes Trump Yet Again: 6 Takeaways From Tuesday’s Primaries**\
 `Lt. Gov. Burt Jones lost the Republican runoff for governor to the health care executive Rick Jackson despite the president’s endorsement. Mr. Trump’s picks won in other races.`\
 https://www.nytimes.com/2026/06/17/us/politics/georgia-alabama-elections-trump-takeaways.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/video/opinion/100000010962113/reddit-posts-are-the-media
 **Gregory Williams, Academic With an Uncommon Perspective on Race, Dies at 81**\
 `As a child, he discovered that his father — and therefore he and his siblings — had been passing for white. For the rest of his life, he identified as Black.`\
 https://www.nytimes.com/2026/06/16/books/gregory-williams-dead.html
-
-**Roy Hattersley, Frontline Warrior of British Politics, Dies at 93**\
-`A Labour Party deputy who spent years in opposition, he criticized Conservatives and members of his own party, and was at the heart of major political moments.`\
-https://www.nytimes.com/2026/06/16/world/europe/roy-hattersley-dead.html
-
-**Republicans Again Block War Powers Measure in the Senate**\
-`Four G.O.P. senators crossed party lines to back the resolution to direct President Trump to halt the war in Iran and seek authorization from Congress, but their support was not enough.`\
-https://www.nytimes.com/2026/06/16/us/politics/republicans-iran-war-powers-senate.html
-
-**Bay Area Voters to Decide on Swalwell Replacement**\
-`Eric Swalwell resigned in April as he faced sexual assault allegations, prompting a special election to fill out his term. Two Democrats topped the field in a regular primary election this month.`\
-https://www.nytimes.com/2026/06/16/us/politics/swalwell-replacement-california.html
 
