@@ -1,3 +1,7 @@
+**Plane Crashes on Texas Highway**\
+`People rushed to pull survivors from a private jet that crashed and caught fire on a highway in Laredo, Texas, on Tuesday night, leaving one dead.`\
+https://www.nytimes.com/video/us/100000010973156/laredo-plane-crash.html
+
 **Argentina Fans Celebrate Messi-Led Victory Over Algeria**\
 `Lionel Messi scored his first World Cup hat trick as Argentina beat Algeria 3-0 in their opening match on Tuesday.`\
 https://www.nytimes.com/video/sports/world-cup/100000010973154/messi-world-cup-hat-trick-argentina.html
