@@ -1,3 +1,15 @@
+**La República Democrática del Congo vuelve con estilo al Mundial**\
+`Los elegantes trajes negros de las estrellas del fútbol, con detalles de estampado de leopardo, son un guiño a la larga tradición de la moda “sapeur”.`\
+https://www.nytimes.com/es/2026/06/17/espanol/deportes/mundial-congo-moda-portugal.html
+
+**Choosing How to Kill Death Row Inmates**\
+`In a rare ruling for a condemned prisoner, the justices would not let Alabama use a contested method of execution.`\
+https://www.nytimes.com/2026/06/17/us/politics/the-docket-death-row.html
+
+**Las negociaciones de Trump con Irán están a la sombra del acuerdo de Obama**\
+`El presidente Trump está bajo presión para mejorar significativamente el acuerdo de la época de Obama y así justificar el enorme costo humano y económico que supuso llevar a Estados Unidos a la guerra.`\
+https://www.nytimes.com/es/2026/06/17/espanol/estados-unidos/obama-acuerdo-nuclear-trump-iran.html
+
 **My Nephew’s Comedy Routine Skewers His Grandma. Should the Adults Be Laughing?**\
 `My brother even shared a video of the bit in the family group chat.`\
 https://www.nytimes.com/2026/06/17/magazine/nephews-comedy-routine-grandma-ethics.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/17/crosswords/wordle-review-1825.html
 **NYT Strands Hints for June 18, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, June 18, 2026.`\
 https://www.nytimes.com/2026/06/17/crosswords/strands-sidekick-837.html
-
-**Norway’s Crown Princess Has Lung Transplant**\
-`Princess Mette-Marit was placed on a waiting list for organ donation this month. Thousands of Norwegians signed up as organ donors.`\
-https://www.nytimes.com/2026/06/17/world/europe/norway-crown-princess-mette-marit-lung-transplant.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/world/europe/100000010973334/17vid-trump-entrance-77088.html
-
-**Celebrating These Knicks Title Vibes, With Desus Nice**\
-`Pablo raises a glass with Desus — his fellow New Yorker and bard of Knicks nation.`\
-https://www.nytimes.com/2026/06/17/podcasts/celebrating-these-knicks-title-vibes-with-desus-nice.html
 

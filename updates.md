@@ -1,3 +1,15 @@
+**La República Democrática del Congo vuelve con estilo al Mundial**\
+`Los elegantes trajes negros de las estrellas del fútbol, con detalles de estampado de leopardo, son un guiño a la larga tradición de la moda “sapeur”.`\
+https://www.nytimes.com/es/2026/06/17/espanol/deportes/mundial-congo-moda-portugal.html
+
+**Choosing How to Kill Death Row Inmates**\
+`In a rare ruling for a condemned prisoner, the justices would not let Alabama use a contested method of execution.`\
+https://www.nytimes.com/2026/06/17/us/politics/the-docket-death-row.html
+
+**Las negociaciones de Trump con Irán están a la sombra del acuerdo de Obama**\
+`El presidente Trump está bajo presión para mejorar significativamente el acuerdo de la época de Obama y así justificar el enorme costo humano y económico que supuso llevar a Estados Unidos a la guerra.`\
+https://www.nytimes.com/es/2026/06/17/espanol/estados-unidos/obama-acuerdo-nuclear-trump-iran.html
+
 **My Nephew’s Comedy Routine Skewers His Grandma. Should the Adults Be Laughing?**\
 `My brother even shared a video of the bit in the family group chat.`\
 https://www.nytimes.com/2026/06/17/magazine/nephews-comedy-routine-grandma-ethics.html
