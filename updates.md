@@ -1,3 +1,11 @@
+**Biden’s Re-Election Bid Was a ‘Terrible Mistake,’ Hillary Clinton Says**\
+`During an interview with The New Yorker’s editor, David Remnick, Hillary Clinton called Biden’s re-election bid a terrible mistake. The former first lady and presidential candidate also said that she believes that another Democratic candidate could have beaten President Trump.`\
+https://www.nytimes.com/video/us/elections/100000010973997/biden-clinton-2024-election.html
+
+**A Tropical Storm Came Ashore, but Houston’s Match ‘Dodged the Bullet’**\
+`Tropical Storm Arthur became the first named storm of the Atlantic season on Wednesday, but its rain and wind were moving away from Houston.`\
+https://www.nytimes.com/2026/06/17/us/world-cup-tropical-storm-arthur.html
+
 **What Young Men Thought of Trump’s U.F.C. Fight**\
 `The spectacle seemed targeted to the young male voters drifting away from the president. Some were skeptical.`\
 https://www.nytimes.com/2026/06/17/style/trump-ufc-white-house-young-men.html
