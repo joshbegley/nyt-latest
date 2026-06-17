@@ -1,3 +1,7 @@
+**Trump Officials Challenge Reparations Program in Chicago Suburb**\
+`The Justice Department argued that the program, which seeks to compensate Black residents for housing discrimination, was racist and unconstitutional.`\
+https://www.nytimes.com/2026/06/16/us/politics/reparations-chicago-evanston-trump-lawsuit.html
+
 **Rick Jackson, a Billionaire, Wins G.O.P. Runoff for Georgia Governor**\
 `Mr. Jackson, who had been largely unknown to voters just months ago, beat President Trump’s choice and will face Keisha Lance Bottoms, a Democrat, in November.`\
 https://www.nytimes.com/2026/06/16/us/elections/georgia-governor-runoff-republican.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-key-races-june-16-
 **Jelly Roll Files for Divorce From Bunnie Xo After Nearly a Decade**\
 `The country music star, whose real name is Jason DeFord, filed for divorce from his wife of nearly 10 years, Alisa DeFord, who is known as Bunnie Xo.`\
 https://www.nytimes.com/2026/06/16/style/jelly-roll-divorce-bunnie-xo-tennessee.html
-
-**A Long Road to Recovery**\
-`There’s an initial deal between the U.S. and Iran. But bringing the global economy back online after months at reduced speed isn’t going to be quick or easy.`\
-https://www.nytimes.com/2026/06/16/world/iran-war-economy-epstein-world-cup.html
 
