@@ -1,3 +1,7 @@
+**Europa dice estar lista para ayudar en el estrecho de Ormuz**\
+`Una coalición liderada por el Reino Unido y Francia se ha estado preparando para enviar dragaminas y otros barcos para garantizar la seguridad cuando se reanude el tráfico. El momento podría haber llegado.`\
+https://www.nytimes.com/es/2026/06/16/espanol/mundo/europa-estrecho-ormuz-guerra-iran.html
+
 **Penny Brown Reynolds Wins Democratic Runoff for Georgia Secretary of State**\
 `Penny Brown Reynolds, a former judge, defeated Dana Barrett ahead of a potentially fraught general election to see who will succeed Brad Raffensperger as secretary of state.`\
 https://www.nytimes.com/2026/06/16/us/politics/georgia-secretary-state-democrat-reynolds.html
