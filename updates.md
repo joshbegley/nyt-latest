@@ -1,3 +1,23 @@
+**The Other Grand Army Plaza Gets a $21 Million Makeover**\
+`An overlooked plaza that opened more than a century ago and was designed as “an outdoor living room” at the southeast corner of Central Park re-emerges after a lengthy restoration.`\
+https://www.nytimes.com/2026/06/17/nyregion/grand-army-plaza-manhattan-makeover.html
+
+**How Israel Came to Dominate a Congressional Primary Campaign in New York**\
+`Brad Lander is challenging Representative Dan Goldman over his stance on the war in Gaza as the two men face off in a contentious race for a Brooklyn and Lower Manhattan seat.`\
+https://www.nytimes.com/2026/06/17/nyregion/lander-goldman-israel-nyc-primary.html
+
+**A Tournament on Native Land Makes Millions. A Tribe Wants a Bigger Cut.**\
+`The Shinnecock Hills Golf Club on Long Island earns millions when it hosts the U.S. Open. But the nearby Indian tribe has for years only received a fraction of that.`\
+https://www.nytimes.com/2026/06/17/nyregion/a-tournament-on-native-land-makes-millions-a-tribe-wants-a-bigger-cut.html
+
+**We Want to Hear from Indigenous People Across New York.**\
+`The New York Times is examining the relationship between New York State officials and Native Americans.`\
+https://www.nytimes.com/2026/06/17/nyregion/ny-indigenous-peoples-call-out.html
+
+**Why The New York Times Is Expanding in Texas**\
+`Members of a new team of Times reporters and editors are covering culture, economics and more in a state long known for its political clout.`\
+https://www.nytimes.com/2026/06/17/insider/new-york-times-texas.html
+
 **Ucrania usa la IA para derribar drones de Rusia**\
 `Los interceptores demuestran que Ucrania apuesta por tecnologías autónomas entrenadas con enormes cantidades de datos de guerra.`\
 https://www.nytimes.com/es/2026/06/17/espanol/mundo/ucrania-ia-drones-rusia.html

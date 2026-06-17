@@ -1,3 +1,15 @@
+**¿Vale la pena tomar suplementos de glutatión?**\
+`La llamada “madre de todos los antioxidantes” se vende en tiras solubles, cápsulas, líquidos, geles y polvos. Hemos preguntado a los expertos si realmente funcionan.`\
+https://www.nytimes.com/es/2026/06/17/espanol/glutation-suplementos-beneficios-estafa.html
+
+**NYT Spelling Bee Answers for June 17, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/17/crosswords/spelling-bee-forum.html
+
+**Gilgo Beach Serial Killer Will Receive Life Sentence After Guilty Plea**\
+`The decision on Wednesday will bring to an end an infamous case that took investigators more than a decade to solve.`\
+https://www.nytimes.com/2026/06/17/nyregion/gilgo-beach-killer-life-sentence.html
+
 **The Other Grand Army Plaza Gets a $21 Million Makeover**\
 `An overlooked plaza that opened more than a century ago and was designed as “an outdoor living room” at the southeast corner of Central Park re-emerges after a lengthy restoration.`\
 https://www.nytimes.com/2026/06/17/nyregion/grand-army-plaza-manhattan-makeover.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/16/us/politics/rhode-island-judge-trump-discipli
 **Democrats Keep Helping Out This Far-Right Maryland Republican**\
 `Gov. Wes Moore, a Democrat, has begun running ads on Fox News that promote Dan Cox, a Republican running in a contested primary to challenge him.`\
 https://www.nytimes.com/2026/06/16/us/politics/wes-moore-dan-cox-maryland.html
-
-**Ex-Louisville Cop Indicted in Shooting Death of Naked, Unarmed Man**\
-`A grand jury backed charges of manslaughter and reckless homicide, but declined to indict the officer on a murder charge.`\
-https://www.nytimes.com/2026/06/16/us/nathan-stotts-louisville-police-shooting.html
-
-**1-Year-Old Boy Killed After Officer Fires at Vehicle in Mississippi**\
-`It is not clear what led up to the shooting, but the Mississippi Bureau of Investigation said that police officers were responding to a shoplifting call.`\
-https://www.nytimes.com/2026/06/16/us/mississippi-shooting-shoplifting.html
-
-**Say Hello to the Newest N.Y.C. Area Code: 465**\
-`There are millions of possible phone numbers under each area code, but about once a decade, this growing city runs out of digits.`\
-https://www.nytimes.com/2026/06/16/nyregion/nyc-area-code-465.html
 
