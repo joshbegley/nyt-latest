@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/06/17/us/politics/trump-iran-peace-deal-obama.html
 `It may be tempting to chase status and success, but let’s not overlook our universal need to find inner meaning and purpose.`\
 https://www.nytimes.com/2026/06/17/special-series/arianna-huffington-self-discovery.html
 
-**Hot Mic Moments Catch Trump and Other G7 Leaders Mentioning Geopolitics and Greenland**\
+**Hot Mics Catch Trump, Carney and Other Leaders Off-Guard at G7**\
 `Snippets of conversations picked up on microphones at the annual Group of 7 summit in France offered a glimpse behind the scenes, as leaders chatted about issues great and small.`\
 https://www.nytimes.com/2026/06/17/world/europe/g7-summit-hot-mic-trump-meloni-greenland-carney.html
 
@@ -42,7 +42,7 @@ https://www.nytimes.com/interactive/2026/06/17/sports/soccer/messi-world-cup-goa
 `The ceremony, at City Hall in New York, will follow Thursday’s parade in Lower Manhattan. But the lottery is open only until 11 a.m. today.`\
 https://www.nytimes.com/2026/06/17/nyregion/knicks-parade-tickets-lottery.html
 
-**Oil Prices Waver as Traders Hope the Strait of Hormuz Will Reopen**\
+**Oil Prices Tick Higher Amid Hope the Strait of Hormuz Will Reopen**\
 `Traders are waiting for U.S. and Iranian officials to meet in Switzerland on Friday, when they are expected to sign an initial agreement and begin a 60-day cease-fire.`\
 https://www.nytimes.com/2026/06/17/business/iran-war-hormuz-oil-gas.html
 

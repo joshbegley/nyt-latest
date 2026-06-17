@@ -1,3 +1,11 @@
+**California’s Vote Count: How Slowness Invites Suspicion Even When It’s Not Sketchy**\
+`California’s crawling pace after election night can make normal statistical shifts seem like fraud.`\
+https://www.nytimes.com/2026/06/17/upshot/california-slow-election-results.html
+
+**Norway’s Crown Princess Has Lung Transplant**\
+`Princess Mette-Marit was placed on a waiting list for organ donation this month. Thousands of Norwegians signed up as organ donors.`\
+https://www.nytimes.com/2026/06/17/world/europe/norway-crown-princess-mette-marit-lung-transplant.html
+
 **Anthropic Employees Accuse Trump Administration of Targeting Them**\
 `Workers at the artificial intelligence company have been puzzled and increasingly concerned by the administration’s move to limit their latest A.I. models.`\
 https://www.nytimes.com/2026/06/17/technology/anthropic-trump-administration-fable.html
