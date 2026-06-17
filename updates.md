@@ -1,3 +1,7 @@
+**Hot Mics at G7 Summit Offer Glimpse Into Leaders’ Conversations**\
+`Microphones left on during the Group of 7 summit in Évian-les-Bains, France, picked up side conversations between world leaders as they discussed Greenland and cigarettes.`\
+https://www.nytimes.com/video/world/100000010974044/g7-summit-hot-mics-trump-carney.html
+
 **How Does Trump’s Deal With Iran Compare to Obama’s?**\
 `The two agreements are difficult to compare, because the current memorandum of understanding is an interim arrangement meant to outline a negotiating path to a fuller deal.`\
 https://www.nytimes.com/2026/06/17/world/middleeast/trump-obama-iran-deals.html
