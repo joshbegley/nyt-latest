@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/06/16/us/politics/oklahoma-senate-primary-election.
 `The Justice Department accused officials of failing to police a vendor it said had siphoned off millions of dollars. A spokeswoman for Gov. Kathy Hochul called the suit an attempt to weaponize the justice system.`\
 https://www.nytimes.com/2026/06/16/nyregion/doj-new-york-health-care-lawsuit.html
 
-**Mike Collins Wins Republican Primary Runoff for Senate in Georgia**\
+**Mike Collins, Endorsed by Trump, Wins Georgia Republican Senate Runoff**\
 `President Trump had made a late endorsement for Mr. Collins, who had campaigned as a MAGA candidate also able to appeal to moderates.`\
 https://www.nytimes.com/2026/06/16/us/politics/georgia-senate-republican-runoff.html
 
@@ -167,7 +167,7 @@ https://www.nytimes.com/es/2026/06/16/espanol/deportes/mexico-mundial-pato-merli
 https://www.nytimes.com/2026/06/16/world/europe/russian-artist-putin-killed-poland.html
 
 **Election Live Updates: Mike Collins Wins G.O.P. Nomination to Challenge Jon Ossoff in Georgia**\
-`Primary results for Senate and governor are arriving in Alabama, Oklahoma and Georgia. The nation’s capital is holding a primary to succeed Mayor Muriel Bowser, who is not seeking re-election.`\
+`In Oklahoma, Representative Kevin Hern won the Republican nomination for Senate. More results are arriving in Georgia, Alabama and Washington, D.C.`\
 https://www.nytimes.com/live/2026/06/16/us/georgia-oklahoma-alabama-elections
 
 **The Battle With Anthropic Is the Start of a New Kind of Conflict**\

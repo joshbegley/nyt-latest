@@ -1,3 +1,11 @@
+**Mike Collins, Endorsed by Trump, Wins Georgia Republican Senate Runoff**\
+`President Trump had made a late endorsement for Mr. Collins, who had campaigned as a MAGA candidate also able to appeal to moderates.`\
+https://www.nytimes.com/2026/06/16/us/politics/georgia-senate-republican-runoff.html
+
+**Election Live Updates: Mike Collins Wins G.O.P. Nomination to Challenge Jon Ossoff in Georgia**\
+`In Oklahoma, Representative Kevin Hern won the Republican nomination for Senate. More results are arriving in Georgia, Alabama and Washington, D.C.`\
+https://www.nytimes.com/live/2026/06/16/us/georgia-oklahoma-alabama-elections
+
 **As Mourning Begins, Deadly B-52 Crash Highlights Age of Bomber Fleet**\
 `Investigators are just beginning to determine what went wrong, but the Air Force has struggled to maintain the planes, which were first introduced in 1955.`\
 https://www.nytimes.com/2026/06/16/us/b52-crash.html
