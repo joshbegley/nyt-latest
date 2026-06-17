@@ -1,3 +1,11 @@
+**Watch Live: Fed Chair Holds News Conference on Interest Rate Decision**\
+`Federal Reserve Chair Kevin M. Warsh holds a news conference after a two-day policy meeting.`\
+https://www.nytimes.com/video/embedded/us/100000010973869/watch-live-fed-chair-holds-news-conference-on-interest-rate-decision.html
+
+**Live Updates: Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
+`Kevin M. Warsh will take questions from reporters after leading his first gathering of the Federal Reserve’s top officials.`\
+https://www.nytimes.com/live/2026/06/17/business/fed-meeting-warsh-interest-rates
+
 **Live Updates: Fed Holds Interest Rates Steady as New Chairman Begins a Balancing Act**\
 `Kevin M. Warsh is taking questions from reporters after leading his first gathering of the Federal Reserve’s top officials.`\
 https://www.nytimes.com/live/2026/06/17/business/fed-meeting-warsh-interest-rates
