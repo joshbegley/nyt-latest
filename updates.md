@@ -1,3 +1,15 @@
+**Trump’s Threats Show His Complicated History With a Surveillance Law**\
+`The administration argues that FISA Section 702 must be renewed to preserve national security, but the president himself has threatened to veto it.`\
+https://www.nytimes.com/2026/06/17/us/politics/trump-fisa-history.html
+
+**Eight Victims Named in Deadly B-52 Crash in California**\
+`All eight crew members died when the bomber crashed during a routine test mission at a military base in California on Monday.`\
+https://www.nytimes.com/2026/06/17/us/what-we-know-b52-crash-victims-california.html
+
+**Live Updates: Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
+`Kevin M. Warsh is taking questions from reporters after leading his first gathering of the Federal Reserve’s top officials.`\
+https://www.nytimes.com/live/2026/06/17/business/fed-meeting-warsh-interest-rates
+
 **N.Y.P.D. Will Assign Largest Number of Officers Ever to Knicks Parade**\
 `The department announced that it would deploy more than 10,000 of its ranks and put stringent security measures in place for the celebration of the Knicks’ N.B.A. championship on Thursday.`\
 https://www.nytimes.com/2026/06/17/nyregion/knicks-parade-security-new-york-police.html
