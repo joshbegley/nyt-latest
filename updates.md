@@ -1,3 +1,7 @@
+**Trump Officials Challenge Reparations Program in Chicago Suburb**\
+`The Justice Department argued that the program, which seeks to compensate Black residents for housing discrimination, was racist and unconstitutional.`\
+https://www.nytimes.com/2026/06/16/us/politics/reparations-chicago-evanston-trump-lawsuit.html
+
 **Rick Jackson, a Billionaire, Wins G.O.P. Runoff for Georgia Governor**\
 `Mr. Jackson, who had been largely unknown to voters just months ago, beat President Trump’s choice and will face Keisha Lance Bottoms, a Democrat, in November.`\
 https://www.nytimes.com/2026/06/16/us/elections/georgia-governor-runoff-republican.html
