@@ -1,4 +1,4 @@
-**Boyle Heights Warehouse Fire Forces Thousands of LA Residents to Shelter in Place**\
+**Boyle Heights Warehouse Fire Prompts Thousands of L.A. Residents to Shelter in Place**\
 `Heavy black smoke was visible across much of Los Angeles as flames tore through a 491,000-square-foot building just east of downtown.`\
 https://www.nytimes.com/2026/06/17/us/los-angeles-warehouse-fire-boyle-heights.html
 
