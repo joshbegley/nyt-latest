@@ -1,3 +1,7 @@
+**Robert Thurman, Leading Expert on Tibetan Buddhism and Uma Thurman’s Father, Dies at 84**\
+`A former monk who was also Uma Thurman’s father, he made sure Buddhism retained its intellectual and spiritual rigor as it spread through the West.`\
+https://www.nytimes.com/2026/06/17/us/robert-thurman-dead.html
+
 **Prosecutors Say Man Used Charity Scheme to Raise Thousands for Hamas**\
 `The suspect used social media accounts, crowd-funding sites and a charity to solicit hundred of thousands of dollars in donations, a complaint said.`\
 https://www.nytimes.com/2026/06/17/nyregion/hamas-money-charity.html
@@ -150,7 +154,7 @@ https://www.nytimes.com/2026/06/17/world/americas/jamaica-us-third-country-depor
 `When we choose to push forward in the face of physical suffering, we discover ourselves on the other side.`\
 https://www.nytimes.com/2026/06/17/special-series/kilian-jornet-endurance.html
 
-**The Democrats Need Better Candidates. This Guy Knows How to Find Them.**\
+**The Democrats Need a Candidate Shake-Up**\
 `The 2024 election showed that the party is simply not large enough to command a majority of the country.`\
 https://www.nytimes.com/2026/06/17/opinion/democrats-platner-osborn-daniel-moraff.html
 
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/17/climate/trump-wind-farms-cancel-millions.html
 **A Tropical Storm Came Ashore, but Houston’s Match ‘Dodged the Bullet’**\
 `Tropical Storm Arthur became the first named storm of the Atlantic season on Wednesday, but its rain and wind were moving away from Houston.`\
 https://www.nytimes.com/2026/06/17/us/world-cup-tropical-storm-arthur.html
-
-**Trump Upends G7 Summit With Statements on Iran Deal and Ukraine**\
-`At the Group of 7 gathering in France, President Trump’s oscillations on his Iran deal and Ukraine left European leaders racing to catch up.`\
-https://www.nytimes.com/2026/06/17/world/europe/trump-g7-europe.html
 
 **Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
 `Chairman Kevin M. Warsh vowed to start a “new chapter” in the Federal Reserve’s oversight of the U.S. economy.`\

@@ -1,3 +1,7 @@
+**Prosecutors Say Man Used Charity Scheme to Raise Thousands for Hamas**\
+`The suspect used social media accounts, crowd-funding sites and a charity to solicit hundred of thousands of dollars in donations, a complaint said.`\
+https://www.nytimes.com/2026/06/17/nyregion/hamas-money-charity.html
+
 **Hot Mics at G7 Summit Offer Glimpse Into Leaders’ Conversations**\
 `Microphones left on during the Group of 7 summit in Évian-les-Bains, France, picked up side conversations between world leaders as they discussed Greenland and cigarettes.`\
 https://www.nytimes.com/video/world/100000010974044/g7-summit-hot-mics-trump-carney.html

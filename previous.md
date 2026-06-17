@@ -1,3 +1,7 @@
+**Prosecutors Say Man Used Charity Scheme to Raise Thousands for Hamas**\
+`The suspect used social media accounts, crowd-funding sites and a charity to solicit hundred of thousands of dollars in donations, a complaint said.`\
+https://www.nytimes.com/2026/06/17/nyregion/hamas-money-charity.html
+
 **Hot Mics at G7 Summit Offer Glimpse Into Leaders’ Conversations**\
 `Microphones left on during the Group of 7 summit in Évian-les-Bains, France, picked up side conversations between world leaders as they discussed Greenland and cigarettes.`\
 https://www.nytimes.com/video/world/100000010974044/g7-summit-hot-mics-trump-carney.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/17/us/world-cup-tropical-storm-arthur.html
 **Trump Upends G7 Summit With Statements on Iran Deal and Ukraine**\
 `At the Group of 7 gathering in France, President Trump’s oscillations on his Iran deal and Ukraine left European leaders racing to catch up.`\
 https://www.nytimes.com/2026/06/17/world/europe/trump-g7-europe.html
-
-**Trump’s Threats Show His Complicated History With a Surveillance Law**\
-`The administration argues that FISA Section 702 must be renewed to preserve national security, but the president himself has threatened to veto it.`\
-https://www.nytimes.com/2026/06/17/us/politics/trump-fisa-history.html
 
 **Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
 `Chairman Kevin M. Warsh vowed to start a “new chapter” in the Federal Reserve’s oversight of the U.S. economy.`\
