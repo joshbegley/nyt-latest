@@ -1,3 +1,11 @@
+**Civil Rights Official Wins Democratic Runoff for Georgia Elections Chief**\
+`Penny Brown Reynolds, a former judge, defeated Dana Barrett ahead of a potentially fraught general election to see who will succeed Brad Raffensperger as secretary of state.`\
+https://www.nytimes.com/2026/06/16/us/politics/georgia-secretary-state-democrat-reynolds.html
+
+**One Dead and Another Hurt in Shooting at Hospital in Wilmington, Del.**\
+`The police are still searching for the shooter, but an earlier lockdown at Wilmington Hospital has been lifted.`\
+https://www.nytimes.com/2026/06/16/us/wilmington-delaware-hospital-shooting.html
+
 **Former Aide to Brian Kemp Wins G.O.P. Nod for Georgia Secretary of State**\
 `State Representative Tim Fleming defeated an ardent denier of the 2020 election results, Vernon Jones, in the Republican runoff to be Georgia’s top election official.`\
 https://www.nytimes.com/2026/06/16/us/politics/georgia-secretary-state-republican-fleming.html
