@@ -1,3 +1,7 @@
+**Allowing Iran to Charge Fees in Strait of Hormuz Would Set ‘Dangerous Precedent,’ Maersk CEO Says**\
+`With the United States and Iran nearing a deal to reopen the Persian Gulf, the mega shipping firm is treading cautiously.`\
+https://www.nytimes.com/2026/06/17/business/maersk-strait-hormuz-shipping-fees-iran-war.html
+
 **California’s Vote Count: How Slowness Invites Suspicion Even When It’s Not Sketchy**\
 `California’s crawling pace after election night can make normal statistical shifts seem like fraud.`\
 https://www.nytimes.com/2026/06/17/upshot/california-slow-election-results.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/17/style/world-cup-tourists-american-food-tiktok
 **Air Conditioning Quiz: Do You Know How to Keep Your Home Cool?**\
 `Test your knowledge of how air-conditioning works and how to keep your space (and yourself) cool this season.`\
 https://www.nytimes.com/2026/06/17/realestate/air-conditioners-efficiency-tips-heat.html
-
-**This Senator Is an Internet Sensation. Is He Running for President?**\
-`The 39-year-old senator has become an internet sensation for Democrats seeking a 2028 contender. He says he’s focused on winning a second term in November.`\
-https://www.nytimes.com/2026/06/17/us/politics/jon-ossoff-georgia-senate-election.html
 
