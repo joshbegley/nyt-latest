@@ -1,3 +1,7 @@
+**Ask the Therapist for Advice**\
+`Submit your question.`\
+https://www.nytimes.com/2026/06/17/well/mind/ask-therapist-callout.html
+
 **Bill Pulte, a Bulldog for Trump, Prepares to Take Reins at Spy Agency**\
 `Democrats and some Republicans excoriated President Trump’s pick for a top national security job. The president pushed ahead anyway.`\
 https://www.nytimes.com/2026/06/17/us/politics/bill-pulte-spy-agency.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/video/embedded/us/politics/100000010974297/17vid-Trump-G
 **Tiny Love Stories: ‘Why Don’t You Both Get In?’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/06/17/style/tiny-modern-love-stories-why-dont-you-both-get-in.html
-
-**Messi scoring a third goal in the Argentina-Algeria match.**\
-`(No description)`\
-https://www.nytimes.com/article/world-cup-messi-goal-argentina-algeria.html
 
 **Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
 `Chairman Kevin M. Warsh vowed to start a “new chapter” in the Federal Reserve’s oversight of the U.S. economy.`\
