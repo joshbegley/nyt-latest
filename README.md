@@ -1,3 +1,7 @@
+**Civil Rights Official Wins Democratic Runoff for Georgia Elections Chief**\
+`Penny Brown Reynolds, a former judge, defeated Dana Barrett ahead of a potentially fraught general election to see who will succeed Brad Raffensperger as secretary of state.`\
+https://www.nytimes.com/2026/06/16/us/politics/georgia-secretary-state-democrat-reynolds.html
+
 **Former Aide to Brian Kemp Wins G.O.P. Nod for Georgia Secretary of State**\
 `State Representative Tim Fleming defeated an ardent denier of the 2020 election results, Vernon Jones, in the Republican runoff to be Georgia’s top election official.`\
 https://www.nytimes.com/2026/06/16/us/politics/georgia-secretary-state-republican-fleming.html
@@ -98,8 +102,8 @@ https://www.nytimes.com/video/weather/100000010971313/rain-texas-floods-weather.
 `Sure, there are bigger milestones than a sixth birthday. But the New York Liberty’s trunk-shaking mascot isn’t one to miss a chance to party.`\
 https://www.nytimes.com/2026/06/16/style/ellie-elephant-new-york-liberty-mascot-birthday.html
 
-**2 People Shot at a Hospital in Wilmington, Del., Police Say**\
-`Officials urged the public to avoid the area around Wilmington Hospital, a major trauma center.`\
+**One Dead and Another Hurt in Shooting at Hospital in Wilmington, Del.**\
+`The police are still searching for the shooter, but an earlier lockdown at Wilmington Hospital has been lifted.`\
 https://www.nytimes.com/2026/06/16/us/wilmington-delaware-hospital-shooting.html
 
 **Ossoff: A Cross-Ideological 2028 Dark Horse**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/16/world/europe/trump-g7-leaders-europe.html
 **Ben Kiernan: What Drives Leaders to Commit Genocide?**\
 `The ideologies behind some of history’s most horrific acts are well documented — and predictable.`\
 https://www.nytimes.com/2026/06/16/special-series/ben-kiernan-genocide-ideology.html
-
-**Merlin, the Duck in a Mexico World Cup Team Jersey, Finds Unexpected Fame**\
-`The feathered pet has waddled his way into the pantheon of famous animals associated with the soccer tournament.`\
-https://www.nytimes.com/2026/06/16/world/americas/duck-mexico-world-cup-merlin.html
 
