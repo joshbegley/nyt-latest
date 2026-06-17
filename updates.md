@@ -1,3 +1,7 @@
+**Jamaica in Talks With U.S. to Temporarily Hold Deported Migrants**\
+`It was the latest in a slate of deals the Trump administration has pursued to expel migrants to countries to which they may have no personal ties.`\
+https://www.nytimes.com/2026/06/17/world/americas/jamaica-us-third-country-deportees.html
+
 **Kílian Jornet: Here’s What Keeps Me Going**\
 `When we choose to push forward in the face of physical suffering, we discover ourselves on the other side.`\
 https://www.nytimes.com/2026/06/17/special-series/kilian-jornet-endurance.html
