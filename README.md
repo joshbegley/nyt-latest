@@ -1,3 +1,55 @@
+**How Republicans Are Breaking Up Majority-Black Districts**\
+`Here’s a look at how Louisiana, Alabama and Tennessee broke up majority-Black districts after the Supreme Court weakened the Voting Rights Act.`\
+https://www.nytimes.com/interactive/2026/06/17/us/elections/redistricting-maps-black-voters-republicans.html
+
+**Illinois Town Loses a Prison, Leaving Residents Worried About Jobs**\
+`Lincoln, Ill., where Abraham Lincoln once worked in the local courthouse, has lost two colleges, a bottle factory and now a state prison.`\
+https://www.nytimes.com/2026/06/17/us/lincoln-illinois-closures-economy.html
+
+**Bruce Nauman on How to Make Art: Don’t Try**\
+`The artist’s latest videos and drawings stem from physical and mental exercises and are largely improvised in his studio, with raw and vulnerable results.`\
+https://www.nytimes.com/2026/06/17/arts/design/bruce-nauman-art.html
+
+**Elon Musk’s Feud With Delaware May Transform Corporate America**\
+`An angry Musk has taken his business elsewhere, and has urged other companies to follow suit.`\
+https://www.nytimes.com/2026/06/17/magazine/elon-musk-delaware-corporate-law.html
+
+**A Watch Brand Focused on Mental Health**\
+`Every sale since Split debuted in mid-2025 has generated a donation equivalent to the cost of an hour’s therapy, its co-founder said.`\
+https://www.nytimes.com/2026/06/17/fashion/watches-split-mental-health.html
+
+**Bahrain Revoked Their Citizenship, and Then Tried to Expel Them to Iran**\
+`Amid the war with Iran, Bahrain has stripped 69 people of their citizenship, including children, accusing them of disloyalty and rendering them stateless.`\
+https://www.nytimes.com/2026/06/17/world/middleeast/bahrain-iran-citizenship-expulsions.html
+
+**‘White Lotus’ Star Murray Bartlett Shares His Favorite Places in Provincetown**\
+`The Australian actor, who won an Emmy for his role in Season 1 of “The White Lotus,” called his adopted Cape Cod hometown a “wonderland.”`\
+https://www.nytimes.com/2026/06/17/travel/provincetown-cape-cod-where-to-go.html
+
+**Mental Health Can Complicate Family Planning**\
+`Five stories show the hurdles that people with psychological diagnoses face when considering parenthood.`\
+https://www.nytimes.com/2026/06/17/well/mind/mental-health-family-children.html
+
+**As the Job Market Stutters, Simulated Work Is Surging**\
+`By asking players to perform repetitive labor in mundane settings, game designers are delivering relatable twists on the tycoon genre.`\
+https://www.nytimes.com/2026/06/17/arts/as-the-job-market-stutters-simulated-work-is-surging.html
+
+**The Cloud Has Sound: The Unrelenting and Unseen Cost of the A.I. Boom**\
+`As tech giants rush to build big data centers, some residents who live near them say a constant low-frequency vibration is ruining their health and homes.`\
+https://www.nytimes.com/2026/06/17/us/data-centers-noise-pollution.html
+
+**A New Era of Super-Hybrids to Ease Range Anxiety**\
+`Extended-range electric vehicles promise to reduce costs and appeal to America’s appetite for adventure. And they’re coming to showrooms soon.`\
+https://www.nytimes.com/2026/06/17/business/extended-range-electric-vehicles-erevs.html
+
+**Germantown: A Philadelphia Neighborhood Where People Stay**\
+`Germantown and its neighbor, Mt. Airy, share a rich cultural history, proximity to nature and a strong community.`\
+https://www.nytimes.com/2026/06/17/realestate/germantown-mt-airy-philadelphia-neighborhood-guide.html
+
+**How Ecuador’s Andes Created a Language of Its Own**\
+`In Ecuador’s highlands, a seamless mix of Kichwa and Spanish creates a language that bends grammar, adds melody and goes unnoticed by many who speak it every day.`\
+https://www.nytimes.com/2026/06/17/world/americas/ecuador-kichwa-language-andes.html
+
 **Wildfire in Washington State Prompts Evacuation Orders**\
 `Dry and windy conditions could exacerbate the blaze, which has already destroyed some structures near Spokane, officials warned.`\
 https://www.nytimes.com/2026/06/17/us/spokane-wildfire-evacuations.html
@@ -78,13 +130,13 @@ https://www.nytimes.com/2026/06/17/us/world-cup-kansas-city-messi-argentina.html
 `Analizamos todas las teorías plausibles sobre su muerte, tanto las oficiales como las alternativas, en busca de los argumentos y las pruebas más convincentes.`\
 https://www.nytimes.com/es/2026/06/17/espanol/estados-unidos/muerte-epstein-suicidio-investigacion.html
 
-**America’s First Pope Pays Homage to Its First Saint**\
-`When Pope Leo visits Mother Cabrini’s birthplace, the message will not be their shared American nationality but a rebuke of American exceptionalism.`\
-https://www.nytimes.com/2026/06/17/opinion/pope-leo-cabrini-american-saint.html
-
 **We Just Saw the Limit of American Military Might**\
 `How did the world’s richest nation, armed with the most powerful military, arrive at this strategic defeat?`\
 https://www.nytimes.com/2026/06/17/opinion/iran-war-us-military-power.html
+
+**America’s First Pope Pays Homage to Its First Saint**\
+`When Pope Leo visits Mother Cabrini’s birthplace, the message will not be their shared American nationality but a rebuke of American exceptionalism.`\
+https://www.nytimes.com/2026/06/17/opinion/pope-leo-cabrini-american-saint.html
 
 **Georgia Vexes Trump Yet Again: 6 Takeaways From Tuesday’s Primaries**\
 `Lt. Gov. Burt Jones lost the Republican runoff for governor to the health care executive Rick Jackson despite the president’s endorsement. Mr. Trump’s picks won in other races.`\
@@ -141,60 +193,4 @@ https://www.nytimes.com/2026/06/16/us/politics/oklahoma-senate-primary-election.
 **U.S. Sues N.Y. State Over Troubled $11 Billion Home Health Care Program**\
 `The Justice Department accused officials of failing to police a vendor it said had siphoned off millions of dollars. A spokeswoman for Gov. Kathy Hochul called the suit an attempt to weaponize the justice system.`\
 https://www.nytimes.com/2026/06/16/nyregion/doj-new-york-health-care-lawsuit.html
-
-**Mike Collins, Endorsed by Trump, Wins Georgia Republican Senate Runoff**\
-`President Trump had made a late endorsement for Mr. Collins, who had campaigned as a MAGA candidate also able to appeal to moderates.`\
-https://www.nytimes.com/2026/06/16/us/politics/georgia-senate-republican-runoff.html
-
-**Washington’s Reagan Airport Will Ground Flights for July 4 Events**\
-`The runways at Ronald Reagan National Airport will be closed after noon on July 4, and for several hours on July 3. Other celebrations surrounding the nation’s 250th birthday are also expected to cause disruptions.`\
-https://www.nytimes.com/2026/06/16/us/politics/independence-day-flight-disruptions-washington.html
-
-**Europa dice estar lista para ayudar en el estrecho de Ormuz**\
-`Una coalición liderada por el Reino Unido y Francia se ha estado preparando para enviar dragaminas y otros barcos para garantizar la seguridad cuando se reanude el tráfico. El momento podría haber llegado.`\
-https://www.nytimes.com/es/2026/06/16/espanol/mundo/europa-estrecho-ormuz-guerra-iran.html
-
-**Penny Brown Reynolds Wins Democratic Runoff for Georgia Secretary of State**\
-`Penny Brown Reynolds, a former judge, defeated Dana Barrett ahead of a potentially fraught general election to see who will succeed Brad Raffensperger as secretary of state.`\
-https://www.nytimes.com/2026/06/16/us/politics/georgia-secretary-state-democrat-reynolds.html
-
-**Tim Fleming Wins GOP Runoff for Georgia Secretary of State**\
-`State Representative Tim Fleming defeated an ardent denier of the 2020 election results, Vernon Jones, in the Republican runoff to be Georgia’s top election official.`\
-https://www.nytimes.com/2026/06/16/us/politics/georgia-secretary-state-republican-fleming.html
-
-**What Polls Say About Alabama’s Senate Primary Runoff**\
-`Representative Barry Moore beat Jared Hudson by 14 percentage points in the Republican primary, but runoff polls offer a wide range of potential outcomes.`\
-https://www.nytimes.com/2026/06/16/us/elections/alabama-senate-primary-runoff-polls.html
-
-**5 Things to Know About Jared Hudson, Republican Senate Candidate in Alabama**\
-`He is a former sniper with the Navy SEALs who is trying to spring an upset over President Trump’s preferred candidate.`\
-https://www.nytimes.com/2026/06/16/us/politics/jared-hudson-republican-senate-alabama.html
-
-**5 Things to Know About Barry Moore, Republican Senate Candidate in Alabama**\
-`He was an early supporter of President Trump’s first campaign. Now, he has Mr. Trump’s backing.`\
-https://www.nytimes.com/2026/06/16/us/politics/barry-moore-republican-senate-alabama.html
-
-**The Crypto Industry Makes Its Biggest Midterm Bet Yet**\
-`The industry’s main super PAC has spent $9.8 million on ads to help the Senate bid of Representative Barry Moore of Alabama, a Republican seen as pro-cryptocurrency.`\
-https://www.nytimes.com/2026/06/16/us/politics/crypto-barry-moore-fairshake-alabama-senate.html
-
-**Obama’s Nuclear Deal Looms Over Trump’s Iran Negotiations**\
-`President Trump is under pressure to significantly improve upon the Obama-era deal in order to justify the huge human and economic cost of taking the United States to war.`\
-https://www.nytimes.com/2026/06/16/us/politics/obama-nuclear-deal-trump-iran.html
-
-**Internal Emails Raise Questions About D.H.S. Ending Haiti Protections**\
-`Newly released documents could complicate deliberations by the Supreme Court over whether the Trump administration can immediately cancel deportation protections for some migrants.`\
-https://www.nytimes.com/2026/06/16/us/politics/haiti-tps-supreme-court.html
-
-**Areas to Watch in Georgia’s Republican Primary Runoffs**\
-`Georgia’s Republican runoffs are expected to follow urban-rural divides, with an open question of how recent endorsements will shift support.`\
-https://www.nytimes.com/2026/06/16/us/elections/georgia-primary-runoffs-areas-to-watch.html
-
-**Beijing’s New Message to Its Citizens: Your Money Belongs at Home**\
-`Eager to keep capital within its borders, China is restricting the ways individuals can engage with global markets.`\
-https://www.nytimes.com/2026/06/16/business/chinese-investors-restrictions.html
-
-**Good Luck, Kevin Warsh. You’ll Need It.**\
-`Between a surge in interest rates, increasingly restive colleagues and the demands of President Trump, the new Fed chairman, Kevin Warsh, is in a bind.`\
-https://www.nytimes.com/2026/06/16/opinion/kevin-warsh-fed-chair-interest-rates-trump.html
 
