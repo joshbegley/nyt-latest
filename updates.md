@@ -1,3 +1,15 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000010973334/17vid-trump-entrance-77088.html
+
+**Celebrating These Knicks Title Vibes, With Desus Nice**\
+`Pablo raises a glass with Desus — his fellow New Yorker and bard of Knicks nation.`\
+https://www.nytimes.com/2026/06/17/podcasts/celebrating-these-knicks-title-vibes-with-desus-nice.html
+
+**Gareth Bale on Ronaldo and U.S. Soccer, Plus World Cup Transfers**\
+`Will the Portugal legend dominate his final tournament?`\
+https://www.nytimes.com/2026/06/17/podcasts/world-cup-gareth-bale-ronaldo-us-soccer.html
+
 **Intense Tornadoes Possible Across the Midwest on Wednesday**\
 `Forecasters warned that Illinois and Indiana faced the highest risk of severe storms throughout the day.`\
 https://www.nytimes.com/2026/06/17/weather/illinois-indiana-tornado-storm.html
