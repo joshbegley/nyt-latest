@@ -1,3 +1,15 @@
+**Kílian Jornet: Here’s What Keeps Me Going**\
+`When we choose to push forward in the face of physical suffering, we discover ourselves on the other side.`\
+https://www.nytimes.com/2026/06/17/special-series/kilian-jornet-endurance.html
+
+**The Democrats Need Better Candidates. This Guy Knows How to Find Them.**\
+`The 2024 election showed that the party is simply not large enough to command a majority of the country.`\
+https://www.nytimes.com/2026/06/17/opinion/democrats-platner-osborn-daniel-moraff.html
+
+**U.S. Official Releases Text of Agreement With Iran**\
+`The document leaves complicated issues like Iran’s nuclear program still to be decided and a 60-day window to determine them.`\
+https://www.nytimes.com/2026/06/17/world/middleeast/us-iran-deal-trump-hormuz-nuclear.html
+
 **‘Mistakes Are Made,’ Trump Says About Deadly U.S. Strikes on Iranian School**\
 `More than 100 days after U.S. airstrikes demolished an elementary school in the southern Iranian city of Minab, the president said the episode was still under investigation.`\
 https://www.nytimes.com/2026/06/17/world/europe/trump-iran-school-us-strike-minab.html
