@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000010974481/17vid-Trump-G7-79572.html
+
 **Georgia Republicans Shelve Redistricting for Now**\
 `The leaders of the Georgia House of Representatives said they would not redraw U.S. House districts held by Black Democrats just hours before a special session was to begin.`\
 https://www.nytimes.com/2026/06/17/us/politics/georgia-republicans-redistricting.html
