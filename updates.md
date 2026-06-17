@@ -1,3 +1,7 @@
+**Allowing Iran to Charge Fees in Strait of Hormuz Would Set ‘Dangerous Precedent,’ Maersk CEO Says**\
+`With the United States and Iran nearing a deal to reopen the Persian Gulf, the mega shipping firm is treading cautiously.`\
+https://www.nytimes.com/2026/06/17/business/maersk-strait-hormuz-shipping-fees-iran-war.html
+
 **Hot Mics Catch Trump, Carney and Other Leaders Off-Guard at G7**\
 `Snippets of conversations picked up on microphones at the annual Group of 7 summit in France offered a glimpse behind the scenes, as leaders chatted about issues great and small.`\
 https://www.nytimes.com/2026/06/17/world/europe/g7-summit-hot-mic-trump-meloni-greenland-carney.html

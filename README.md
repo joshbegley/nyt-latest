@@ -1,3 +1,19 @@
+**Today, In Short**\
+`Summer plans. Hugo spritzes. And the secret to the best pancakes.`\
+https://www.nytimes.com/2026/06/17/briefing/today-in-short.html
+
+**No-Cook Tzatziki Chickpea Salad? Yes, Please.**\
+`Hetty Lui McKinnon’s five-star salad is wonderfully cooling.`\
+https://www.nytimes.com/2026/06/17/dining/no-cook-tzatziki-chickpea-salad-yes-please.html
+
+**We Ran the Numbers. Remote Work Is Bad for Us.**\
+`Despite its advantages, work-from-home arrangements have significantly deepened Americans’ isolation and distress.`\
+https://www.nytimes.com/2026/06/17/opinion/remote-work-depression.html
+
+**A Deadly Outbreak of Plague, Nearly 5,000 Years Before the Black Death**\
+`The oldest known cases, discovered among hunter-gatherers in Siberian graves, contradict the theory that the disease once was mild.`\
+https://www.nytimes.com/2026/06/17/science/oldest-plague-siberian-skeletons.html
+
 **Allowing Iran to Charge Fees in Strait of Hormuz Would Set ‘Dangerous Precedent,’ Maersk CEO Says**\
 `With the United States and Iran nearing a deal to reopen the Persian Gulf, the mega shipping firm is treading cautiously.`\
 https://www.nytimes.com/2026/06/17/business/maersk-strait-hormuz-shipping-fees-iran-war.html
@@ -177,20 +193,4 @@ https://www.nytimes.com/video/sports/soccer/100000010971025/world-cup-congo-fash
 **What to Know About Redistricting Efforts Underway in Georgia**\
 `Georgia is the latest Southern state where lawmakers have taken up redrawing congressional maps after the Supreme Court’s voting rights ruling.`\
 https://www.nytimes.com/2026/06/17/us/politics/georgia-redistricting-special-session.html
-
-**Rachel Reeves, UK Chancellor, Confronts the Political Challenges of Fiscal Stability**\
-`Rachel Reeves came into office promising to adhere to strict rules on spending and borrowing. Two years later, a special election could determine if she will continue in her role.`\
-https://www.nytimes.com/2026/06/17/business/rachel-reeves-uk-debt.html
-
-**This Teacher Has Doubts About A.I. But He Won a Prize Using It.**\
-`Ian Weissman, a social studies teacher in Manhattan, used A.I. for history projects. He said it’s still “the wild West” in figuring out how to regulate the tools.`\
-https://www.nytimes.com/2026/06/17/nyregion/teacher-prize-artificial-intelligence.html
-
-**World Cup Fans Share Videos of Them Trying American Food. They’re a Hit.**\
-`Social media dispatches from travelers headed to matches appreciate the more mundane parts of American life. They’re a hit.`\
-https://www.nytimes.com/2026/06/17/style/world-cup-tourists-american-food-tiktok.html
-
-**Air Conditioning Quiz: Do You Know How to Keep Your Home Cool?**\
-`Test your knowledge of how air-conditioning works and how to keep your space (and yourself) cool this season.`\
-https://www.nytimes.com/2026/06/17/realestate/air-conditioners-efficiency-tips-heat.html
 
