@@ -1,3 +1,7 @@
+**Trump Feuds With Thune and G.O.P., Stoking Election-Year Rift**\
+`The president upended the majority leader’s plans by yanking his intelligence nominee from a confirmation hearing and insisting on an end to the filibuster.`\
+https://www.nytimes.com/2026/06/17/us/politics/trump-thune-republicans-election-year-rift.html
+
 **F.T.C. Sues Group That Advises on Transgender Medical Treatments**\
 `The group, World Professional Association for Transgender Health, offers guidelines on medical treatment for transgender patients.`\
 https://www.nytimes.com/2026/06/17/us/politics/ftc-sues-group-that-advises-on-transgender-medical-treatments.html

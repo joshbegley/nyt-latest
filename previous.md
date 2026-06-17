@@ -1,3 +1,7 @@
+**Trump Feuds With Thune and G.O.P., Stoking Election-Year Rift**\
+`The president upended the majority leader’s plans by yanking his intelligence nominee from a confirmation hearing and insisting on an end to the filibuster.`\
+https://www.nytimes.com/2026/06/17/us/politics/trump-thune-republicans-election-year-rift.html
+
 **F.T.C. Sues Group That Advises on Transgender Medical Treatments**\
 `The group, World Professional Association for Transgender Health, offers guidelines on medical treatment for transgender patients.`\
 https://www.nytimes.com/2026/06/17/us/politics/ftc-sues-group-that-advises-on-transgender-medical-treatments.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/interactive/2026/06/17/us/quake-tracker-hawaii.html
 **Finland Lifts a Nuclear Device Ban, Eyeing an Uncertain World**\
 `The Nordic country, which shares an 830-mile border with Russia, said the move would strengthen the NATO alliance, which it joined three years ago.`\
 https://www.nytimes.com/2026/06/17/world/europe/finland-nuclear-devices.html
-
-**Political Spotlight Shines on Warsh for His First Fed Meeting as Chairman**\
-`The new Fed chairman is bound to face the unyielding attention of the president that nominated him.`\
-https://www.nytimes.com/2026/06/17/business/economy/fed-chair-meeting-warsh-trump.html
 
 **Live Updates: Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
 `Chairman Kevin M. Warsh vowed to start a “new chapter” in the Federal Reserve’s oversight of the U.S. economy.`\
