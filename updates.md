@@ -1,3 +1,7 @@
+**Late Night Wades Into the Reflecting Pool’s Algae Bloom**\
+`President Trump “promised he would drain the swamp,” Jimmy Kimmel said. “Instead, he spent 14 million of our dollars building a new one.”`\
+https://www.nytimes.com/2026/06/17/arts/television/late-night-trump-reflecting-pool-algae.html
+
 **The World Cup Gives Kansas City a Rare Turn in the Global Spotlight**\
 `The tournament brings unique challenges and upsides for Kansas City, the smallest U.S. metro area to host matches.`\
 https://www.nytimes.com/2026/06/17/us/world-cup-kansas-city-messi-argentina.html
