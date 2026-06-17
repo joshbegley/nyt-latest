@@ -1,3 +1,7 @@
+**NYT Crossword Answers for June 17, 2026**\
+`Jonathan Raksin bets he can best us.`\
+https://www.nytimes.com/2026/06/16/crosswords/daily-puzzle-2026-06-17.html
+
 **Trump Officials Challenge Reparations Program in Chicago Suburb**\
 `The Justice Department argued that the program, which seeks to compensate Black residents for housing discrimination, was racist and unconstitutional.`\
 https://www.nytimes.com/2026/06/16/us/politics/reparations-chicago-evanston-trump-lawsuit.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/16/opinion/anthropic-fable-ai-trump-administrati
 **Live 2026 Election Results: Georgia, Alabama and Oklahoma Primary and Runoff Races**\
 `See live results in key races in the June 16 primary and runoff elections.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-key-races-june-16-ga-al-ok.html
-
-**Jelly Roll Files for Divorce From Bunnie Xo After Nearly a Decade**\
-`The country music star, whose real name is Jason DeFord, filed for divorce from his wife of nearly 10 years, Alisa DeFord, who is known as Bunnie Xo.`\
-https://www.nytimes.com/2026/06/16/style/jelly-roll-divorce-bunnie-xo-tennessee.html
 

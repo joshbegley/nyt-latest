@@ -1,3 +1,7 @@
+**NYT Crossword Answers for June 17, 2026**\
+`Jonathan Raksin bets he can best us.`\
+https://www.nytimes.com/2026/06/16/crosswords/daily-puzzle-2026-06-17.html
+
 **Trump Officials Challenge Reparations Program in Chicago Suburb**\
 `The Justice Department argued that the program, which seeks to compensate Black residents for housing discrimination, was racist and unconstitutional.`\
 https://www.nytimes.com/2026/06/16/us/politics/reparations-chicago-evanston-trump-lawsuit.html

@@ -143,7 +143,7 @@ https://www.nytimes.com/video/weather/100000010971313/rain-texas-floods-weather.
 https://www.nytimes.com/2026/06/16/style/ellie-elephant-new-york-liberty-mascot-birthday.html
 
 **One Dead and Another Hurt in Shooting at Hospital in Wilmington, Del.**\
-`The police are still searching for the shooter, but an earlier lockdown at Wilmington Hospital has been lifted.`\
+`The police have arrested a suspect, and an earlier lockdown at Wilmington Hospital has been lifted.`\
 https://www.nytimes.com/2026/06/16/us/wilmington-delaware-hospital-shooting.html
 
 **Ossoff: A Cross-Ideological 2028 Dark Horse**\
