@@ -1,3 +1,15 @@
+**Stars of Israel’s TV Channel for Bibi Fans Turn on Trump**\
+`Leading figures from Channel 14, a right-wing broadcaster that supports Prime Minister Benjamin Netanyahu, are openly attacking the U.S. president over his Iran deal.`\
+https://www.nytimes.com/2026/06/17/world/middleeast/israel-channel-14-trump-criticism.html
+
+**Cory Stearns, American Ballet Theater Star, on Retirement and the Pains of Aging**\
+`Stearns, a longtime principal at American Ballet Theater, has stepped down. He talks about being pushed to leave and the pains and boons of growing older.`\
+https://www.nytimes.com/2026/06/17/arts/dance/cory-stearns-american-ballet-theater-retirement.html
+
+**Shane Hennen, the One Man Linking 3 Gambling Scandals, Is Ready to Talk**\
+`The N.B.A. and the N.C.A.A. have been rocked by indictments accusing players and others of fixing bets and playing in rigged poker games. Shane Hennen is named in each one.`\
+https://www.nytimes.com/2026/06/17/nyregion/shane-hennen-gambling-nba.html
+
 **Mangione to Use Emotional Disturbance as Defense in N.Y. Murder Trial**\
 `Luigi Mangione, who was accused of killing a health care executive in Manhattan in 2024, faces both state and federal charges.`\
 https://www.nytimes.com/2026/06/17/nyregion/mangione-emotional-disturbance-state-trial.html
