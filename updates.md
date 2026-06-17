@@ -1,3 +1,7 @@
+**Rachel Reeves, UK Chancellor, Confronts the Political Challenges of Fiscal Stability**\
+`Rachel Reeves came into office promising to adhere to strict rules on spending and borrowing. Two years later, a special election could determine if she will continue in her role.`\
+https://www.nytimes.com/2026/06/17/business/rachel-reeves-uk-debt.html
+
 **The Battle Over A.I. in the Classroom**\
 `There are concerns about artificial intelligence’s risks to kids’ learning and critical thinking, and tech companies are pushing to get chatbots into schools.`\
 https://www.nytimes.com/2026/06/17/podcasts/the-daily/battle-over-ai-in-school.html
