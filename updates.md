@@ -1,3 +1,11 @@
+**What Could Happen in Iran?**\
+`Intro TK: minus “good morning”`\
+https://www.nytimes.com/2026/06/17/briefing/what-could-happen-in-iran.html
+
+**‘Hard Fork’ Live Part 2: Dylan Field on Standing Out in the A.I. Era**\
+`“I think if you have a creative voice in writing or design, you put yourself out there and you take a risk — this is a good time to do that,” said the Figma chief executive Dylan Field.`\
+https://www.nytimes.com/2026/06/17/podcasts/hard-fork-live-dylan-field.html
+
 **Jeremy Clarkson Says He Has an ‘Aggressive’ Cancer**\
 `The 66-year-old gave few details of his diagnosis but said the disease was “aggressive.”`\
 https://www.nytimes.com/2026/06/17/world/europe/jeremy-clarkson-cancer-uk.html
