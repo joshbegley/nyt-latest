@@ -1,3 +1,11 @@
+**Robert Thurman, Leading Expert on Tibetan Buddhism and Uma Thurman’s Father, Dies at 84**\
+`A former monk who was also Uma Thurman’s father, he made sure Buddhism retained its intellectual and spiritual rigor as it spread through the West.`\
+https://www.nytimes.com/2026/06/17/us/robert-thurman-dead.html
+
+**The Democrats Need a Candidate Shake-Up**\
+`The 2024 election showed that the party is simply not large enough to command a majority of the country.`\
+https://www.nytimes.com/2026/06/17/opinion/democrats-platner-osborn-daniel-moraff.html
+
 **Prosecutors Say Man Used Charity Scheme to Raise Thousands for Hamas**\
 `The suspect used social media accounts, crowd-funding sites and a charity to solicit hundred of thousands of dollars in donations, a complaint said.`\
 https://www.nytimes.com/2026/06/17/nyregion/hamas-money-charity.html
