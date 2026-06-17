@@ -1,3 +1,7 @@
+**Attorney General and Businessman Make Oklahoma Governor’s Runoff**\
+`Gentner Drummond, the attorney general, and Mike Mazzei, a newcomer who secured President Trump’s endorsement, emerged from a crowded field in the Republican primary.`\
+https://www.nytimes.com/2026/06/16/us/elections/oklahoma-governor-republican.html
+
 **One Dead and Another Hurt in Shooting at Hospital in Wilmington, Del.**\
 `The police have arrested a suspect, and an earlier lockdown at Wilmington Hospital has been lifted.`\
 https://www.nytimes.com/2026/06/16/us/wilmington-delaware-hospital-shooting.html

@@ -1,3 +1,7 @@
+**Attorney General and Businessman Make Oklahoma Governor’s Runoff**\
+`Gentner Drummond, the attorney general, and Mike Mazzei, a newcomer who secured President Trump’s endorsement, emerged from a crowded field in the Republican primary.`\
+https://www.nytimes.com/2026/06/16/us/elections/oklahoma-governor-republican.html
+
 **NYT Crossword Answers for June 17, 2026**\
 `Jonathan Raksin bets he can best us.`\
 https://www.nytimes.com/2026/06/16/crosswords/daily-puzzle-2026-06-17.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/live/2026/06/16/us/georgia-oklahoma-alabama-elections
 **The Battle With Anthropic Is the Start of a New Kind of Conflict**\
 `The A.I. wars are here.`\
 https://www.nytimes.com/2026/06/16/opinion/anthropic-fable-ai-trump-administration.html
-
-**Live 2026 Election Results: Georgia, Alabama and Oklahoma Primary and Runoff Races**\
-`See live results in key races in the June 16 primary and runoff elections.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-key-races-june-16-ga-al-ok.html
 
