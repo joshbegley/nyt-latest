@@ -1,3 +1,7 @@
+**F.T.C. Sues Group That Advises on Transgender Medical Treatments**\
+`The group, World Professional Association for Transgender Health, offers guidelines on medical treatment for transgender patients.`\
+https://www.nytimes.com/2026/06/17/us/politics/ftc-wpath-transgender-medical-treatments.html
+
 **U.S. Will Waive Oil Sanctions That Have Long Crimped Iran**\
 `The preliminary U.S.-Iran deal temporarily waives restrictions that have limited the country’s oil sales and how much money it has been able to make from those exports.`\
 https://www.nytimes.com/2026/06/17/world/europe/us-iran-oil-sanctions.html
