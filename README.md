@@ -1,3 +1,7 @@
+**Georgia Republicans Choose Trump’s Pick for Senate, but Not Governor**\
+`Republicans in Georgia advanced Trump’s pick for senator but not governor in the state’s runoff primary on Tuesday.`\
+https://www.nytimes.com/video/us/elections/100000010972869/georgia-election-results-trump.html
+
 **¿Vale la pena tomar suplementos de glutatión?**\
 `La llamada “madre de todos los antioxidantes” se vende en tiras solubles, cápsulas, líquidos, geles y polvos. Hemos preguntado a los expertos si realmente funcionan.`\
 https://www.nytimes.com/es/2026/06/17/espanol/glutation-suplementos-beneficios-estafa.html
@@ -54,13 +58,13 @@ https://www.nytimes.com/2026/06/17/us/world-cup-kansas-city-messi-argentina.html
 `Analizamos todas las teorías plausibles sobre su muerte, tanto las oficiales como las alternativas, en busca de los argumentos y las pruebas más convincentes.`\
 https://www.nytimes.com/es/2026/06/17/espanol/estados-unidos/muerte-epstein-suicidio-investigacion.html
 
-**We Just Learned the Limits of American Power**\
-`How did the world’s richest nation, armed with the most powerful military, arrive at this strategic defeat?`\
-https://www.nytimes.com/2026/06/17/opinion/iran-war-us-military-power.html
-
 **America’s First Pope Pays Homage to Its First Saint**\
 `When Pope Leo visits Mother Cabrini’s birthplace, the message will not be their shared American nationality but a rebuke of American exceptionalism.`\
 https://www.nytimes.com/2026/06/17/opinion/pope-leo-cabrini-american-saint.html
+
+**We Just Learned the Limits of American Power**\
+`How did the world’s richest nation, armed with the most powerful military, arrive at this strategic defeat?`\
+https://www.nytimes.com/2026/06/17/opinion/iran-war-us-military-power.html
 
 **Georgia Vexes Trump Yet Again: 6 Takeaways From Tuesday’s Primaries**\
 `Lt. Gov. Burt Jones lost the Republican runoff for governor to the health care executive Rick Jackson despite the president’s endorsement. Mr. Trump’s picks won in other races.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/16/us/politics/derek-dooley-republican-senate-ge
 **Inquiry Into Justice Dept. Lawyer Ends Without Disciplinary Action**\
 `A special counsel found that a government lawyer helped mislead a judge into releasing a man wanted for homicide abroad, but largely blamed the Trump administration.`\
 https://www.nytimes.com/2026/06/16/us/politics/rhode-island-judge-trump-discipline.html
-
-**Democrats Keep Helping Out This Far-Right Maryland Republican**\
-`Gov. Wes Moore, a Democrat, has begun running ads on Fox News that promote Dan Cox, a Republican running in a contested primary to challenge him.`\
-https://www.nytimes.com/2026/06/16/us/politics/wes-moore-dan-cox-maryland.html
 
