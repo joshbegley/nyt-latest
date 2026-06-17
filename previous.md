@@ -1,3 +1,7 @@
+**Gilgo Beach Serial Killer Sentenced to Life Without Parole**\
+`The serial killer who admitted in April to murdering eight women in the so-called Gilgo Beach killings, was sentenced on Wednesday to life in prison.`\
+https://www.nytimes.com/video/us/100000010974398/gilgo-beach-serial-killer-sentencing.html
+
 ****\
 `Activists and protesters erupted in cheers at the Georgia state capitol after lawmakers shelved redistricting plans.`\
 https://www.nytimes.com/video/embedded/us/politics/100000010974909/17vid-Georgia-Re-Districting.html
@@ -75,7 +79,7 @@ https://www.nytimes.com/2026/06/17/us/politics/susan-collins-defends-kavanaugh-v
 https://www.nytimes.com/2026/06/17/business/economy/kevin-warsh-fed-statement.html
 
 **What to Know if You’re Going to the Knicks Parade**\
-`Thousands of New Yorkers will descend on Lower Manhattan on Thursday morning to celebrate the Knicks. Here’s what you should know if you are one of them.`\
+`New Yorkers will descend on Lower Manhattan on Thursday morning to celebrate the Knicks. Here’s what you should know if you are one of them.`\
 https://www.nytimes.com/2026/06/17/nyregion/how-to-go-knicks-parade-nyc.html
 
 **Trump Administration to Pay $765 Million to Cancel 4 More Wind Projects**\
@@ -186,15 +190,7 @@ https://www.nytimes.com/2026/06/17/us/politics/gabbard-pullte-elections.html
 `The Ultimate Fighting Championship star said his priority was walking again after shattering his leg, and he confirmed elements of a New York Times article about how he came to use banned substances.`\
 https://www.nytimes.com/2026/06/17/us/politics/conor-mcgregor-banned-drugs.html
 
-**EE. UU. no tiene ‘nada que ver’ con la guerra en Ucrania, dice Trump en la cumbre del G7**\
-`La cumbre buscaba dirigir la atención a la guerra en Ucrania, pero el presidente Trump dejó claro que el conflicto ya no estaba en su lista de prioridades.`\
-https://www.nytimes.com/es/2026/06/17/espanol/mundo/cumbre-g7-trump-ucrania-rusia.html
-
-**Western Europe Braces for Another Round of Heat**\
-`After an early heat wave in May, people in France, Germany, Italy and other countries are again looking for respite.`\
-https://www.nytimes.com/2026/06/17/travel/heat-wave-western-europe.html
-
-**Live Updates: Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
+**Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
 `Chairman Kevin M. Warsh vowed to start a “new chapter” in the Federal Reserve’s oversight of the U.S. economy.`\
 https://www.nytimes.com/live/2026/06/17/business/fed-meeting-warsh-interest-rates
 

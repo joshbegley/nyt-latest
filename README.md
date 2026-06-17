@@ -1,3 +1,7 @@
+**Teenagers vs. Social Media Bans**\
+`Australia barred children from social media in December. Since then, young people have found plenty of ways to skirt the measure.`\
+https://www.nytimes.com/2026/06/17/world/social-media-ban-iran-deal-congo-world-cup.html
+
 **Gilgo Beach Serial Killer Sentenced to Life Without Parole**\
 `The serial killer who admitted in April to murdering eight women in the so-called Gilgo Beach killings, was sentenced on Wednesday to life in prison.`\
 https://www.nytimes.com/video/us/100000010974398/gilgo-beach-serial-killer-sentencing.html
@@ -74,7 +78,7 @@ https://www.nytimes.com/2026/06/17/podcasts/why-i-love-the-beautiful-game-with-t
 `Ms. Collins, a Republican in Maine facing a tough re-election battle, defended her vote to confirm Justice Brett M. Kavanaugh as Democrats look to capitalize on it politically.`\
 https://www.nytimes.com/2026/06/17/us/politics/susan-collins-defends-kavanaugh-vote.html
 
-**See how the first Fed statement under Warsh evolved.**\
+**See How the First Fed Statement Under Warsh Evolved**\
 `Interest rates didn’t change, but the language in Fed’s policy statement, which it released alongside its rate decision today, certainly did.`\
 https://www.nytimes.com/2026/06/17/business/economy/kevin-warsh-fed-statement.html
 
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/17/books/carlo-ginzburg-dead.html
 **Under Trump, National Intelligence Agency Has Broadened Focus on Elections**\
 `Bill Pulte, who has shown that he has a keen sense of what the president wants and a desire to please him, is poised to take over the job from Tulsi Gabbard on an acting basis.`\
 https://www.nytimes.com/2026/06/17/us/politics/gabbard-pullte-elections.html
-
-**Conor McGregor Defends Treatment That Included Banned Drugs**\
-`The Ultimate Fighting Championship star said his priority was walking again after shattering his leg, and he confirmed elements of a New York Times article about how he came to use banned substances.`\
-https://www.nytimes.com/2026/06/17/us/politics/conor-mcgregor-banned-drugs.html
 
 **Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
 `Chairman Kevin M. Warsh vowed to start a “new chapter” in the Federal Reserve’s oversight of the U.S. economy.`\
