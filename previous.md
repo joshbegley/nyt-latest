@@ -23,7 +23,7 @@ https://www.nytimes.com/2026/06/17/world/social-media-ban-iran-deal-congo-world-
 https://www.nytimes.com/video/us/100000010974398/gilgo-beach-serial-killer-sentencing.html
 
 ****\
-`Activists and protesters erupted in cheers at the Georgia state capitol after lawmakers shelved redistricting plans.`\
+`Activists and protesters erupted in cheers at the Georgia State Capitol after lawmakers shelved redistricting plans.`\
 https://www.nytimes.com/video/embedded/us/politics/100000010974909/17vid-Georgia-Re-Districting.html
 
 **U.S. Will Waive Oil Sanctions That Have Long Crimped Iran**\

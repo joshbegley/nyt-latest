@@ -1,3 +1,7 @@
+****\
+`Activists and protesters erupted in cheers at the Georgia State Capitol after lawmakers shelved redistricting plans.`\
+https://www.nytimes.com/video/embedded/us/politics/100000010974909/17vid-Georgia-Re-Districting.html
+
 **Ask the Therapist for Advice**\
 `Submit your question.`\
 https://www.nytimes.com/2026/06/17/well/mind/ask-therapist-callout.html
