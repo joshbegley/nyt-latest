@@ -1,3 +1,11 @@
+**Los Angeles Warehouse Fire Forces Thousands to Shelter in Place**\
+`Heavy black smoke was visible across much of Los Angeles as flames tore through a 491,000-square-foot building just east of downtown.`\
+https://www.nytimes.com/2026/06/17/us/los-angeles-warehouse-fire-boyle-heights.html
+
+**Man Fatally Injured in Fall From Horse Carriage in Central Park**\
+`The horse bolted after the driver stepped out to take a photo of the passengers, the carriage drivers’ union said, and an 18-year-old tourist from India fell from the driverless carriage.`\
+https://www.nytimes.com/2026/06/17/nyregion/horse-carriage-central-park-injury.html
+
 **Robert Thurman, Leading Expert on Tibetan Buddhism and Uma Thurman’s Father, Dies at 84**\
 `A former monk who was also Uma Thurman’s father, he made sure Buddhism retained its intellectual and spiritual rigor as it spread through the West.`\
 https://www.nytimes.com/2026/06/17/us/robert-thurman-dead.html

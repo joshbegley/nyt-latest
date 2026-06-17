@@ -1,3 +1,7 @@
+**Los Angeles Warehouse Fire Forces Thousands to Shelter in Place**\
+`Heavy black smoke was visible across much of Los Angeles as flames tore through a 491,000-square-foot building just east of downtown.`\
+https://www.nytimes.com/2026/06/17/us/los-angeles-warehouse-fire-boyle-heights.html
+
 **Robert Thurman, Leading Expert on Tibetan Buddhism and Uma Thurman’s Father, Dies at 84**\
 `A former monk who was also Uma Thurman’s father, he made sure Buddhism retained its intellectual and spiritual rigor as it spread through the West.`\
 https://www.nytimes.com/2026/06/17/us/robert-thurman-dead.html
@@ -26,7 +30,7 @@ https://www.nytimes.com/2026/06/17/weather/tropical-storm-arthur-how-much-rain.h
 `Federal prosecutors said the man had refused to roll down his window when Immigration and Customs Enforcement officers in New Jersey told him to stop.`\
 https://www.nytimes.com/2026/06/17/nyregion/ice-agent-hit-vehicle-nj.html
 
-**Horse Carriage Overturns in Central Park, Critically Injuring Man**\
+**Man Fatally Injured in Fall From Horse Carriage in Central Park**\
 `The horse bolted after the driver stepped out to take a photo of the passengers, the carriage drivers’ union said, and an 18-year-old tourist from India fell from the driverless carriage.`\
 https://www.nytimes.com/2026/06/17/nyregion/horse-carriage-central-park-injury.html
 
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/17/nyregion/how-to-go-knicks-parade-nyc.html
 **Trump Administration to Pay $765 Million to Cancel 4 More Wind Projects**\
 `It’s the third such deal the Interior Department has struck to pay firms to abandon plans for offshore turbines, spending roughly $2.5 billion to get companies to abandon their wind projects.`\
 https://www.nytimes.com/2026/06/17/climate/trump-wind-farms-cancel-millions.html
-
-**A Tropical Storm Came Ashore, but Houston’s Match ‘Dodged the Bullet’**\
-`Tropical Storm Arthur became the first named storm of the Atlantic season on Wednesday, but its rain and wind were moving away from Houston.`\
-https://www.nytimes.com/2026/06/17/us/world-cup-tropical-storm-arthur.html
 
 **Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
 `Chairman Kevin M. Warsh vowed to start a “new chapter” in the Federal Reserve’s oversight of the U.S. economy.`\
