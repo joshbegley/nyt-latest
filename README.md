@@ -1,3 +1,7 @@
+**As Mourning Begins, Deadly B-52 Crash Highlights Age of Bomber Fleet**\
+`Investigators are just beginning to determine what went wrong, but the Air Force has struggled to maintain the planes, which were first introduced in 1955.`\
+https://www.nytimes.com/2026/06/16/us/b52-crash.html
+
 **Kevin Hern Wins Republican Primary for Oklahoma Senate Race**\
 `Mr. Hern, a congressman in the deep-red state, is now likely to be elected to the Senate to fill the seat of Markwayne Mullin, now the homeland security secretary.`\
 https://www.nytimes.com/2026/06/16/us/politics/oklahoma-senate-primary-election.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/16/style/taylor-swifts-rhode-island-wedding.html
 **Carriage Horse in Central Park Died After Eating a Poisonous Plant**\
 `A preliminary report said the horse had eaten from a commonplace but toxic shrub, though rules forbid allowing horses to consume park plants.`\
 https://www.nytimes.com/2026/06/16/nyregion/carriage-horse-central-park-death-poisonous-plant.html
-
-**Justice Dept. Considering Death Penalty for Alleged National Guard Shooter**\
-`Federal prosecutors told a judge that they were deciding whether to seek the death penalty if Rahmanullah Lakanwal is convicted of killing a National Guard specialist.`\
-https://www.nytimes.com/2026/06/16/us/politics/doj-national-guard-shooting.html
 
