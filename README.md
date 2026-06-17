@@ -1,3 +1,7 @@
+**Mystikal, Louisiana Rapper, Sentenced to 20 Years in Rape Case**\
+`The Grammy-nominated musician pleaded guilty to third-degree rape after a woman told the police she was beaten and assaulted at his home in 2022.`\
+https://www.nytimes.com/2026/06/17/arts/music/mystikal-rape-prison-sentence.html
+
 **New Plan Scales Back C.D.C.’s Work on Diseases Abroad**\
 `The State Department is taking over much of the control of global health initiatives, for which critics say the department does not have the expertise.`\
 https://www.nytimes.com/2026/06/17/health/pepfar-cdc-cuts.html
