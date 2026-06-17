@@ -1,3 +1,7 @@
+**Norway’s Crown Princess Has Lung Transplant**\
+`Princess Mette-Marit was diagnosed with pulmonary fibrosis eight years ago and was placed on a waiting list for organ donation this month.`\
+https://www.nytimes.com/2026/06/17/world/europe/norway-crown-princess-mette-marit-lung-transplant.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000010973334/17vid-trump-entrance-77088.html

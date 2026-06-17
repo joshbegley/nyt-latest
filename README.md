@@ -1,3 +1,23 @@
+**The Battle Over A.I. in the Classroom**\
+`There are concerns about artificial intelligence’s risks to kids’ learning and critical thinking, and tech companies are pushing to get chatbots into schools.`\
+https://www.nytimes.com/2026/06/17/podcasts/the-daily/battle-over-ai-in-school.html
+
+**How Local Police Are Working for ICE, and an Unusual Data Center Dispute**\
+`Plus, the gym is the new first date.`\
+https://www.nytimes.com/2026/06/17/podcasts/the-headlines/ice-local-police-data-center-dispute.html
+
+**NYT Connections Answers for June 18, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, June 18, 2026.`\
+https://www.nytimes.com/2026/06/17/crosswords/connections-companion-1103.html
+
+**Today’s Wordle Hints for June 18, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, June 18, 2026.`\
+https://www.nytimes.com/2026/06/17/crosswords/wordle-review-1825.html
+
+**NYT Strands Hints for June 18, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, June 18, 2026.`\
+https://www.nytimes.com/2026/06/17/crosswords/strands-sidekick-837.html
+
 **Norway’s Crown Princess Has Lung Transplant**\
 `Princess Mette-Marit was diagnosed with pulmonary fibrosis eight years ago and was placed on a waiting list for organ donation this month.`\
 https://www.nytimes.com/2026/06/17/world/europe/norway-crown-princess-mette-marit-lung-transplant.html
@@ -169,24 +189,4 @@ https://www.nytimes.com/2026/06/17/us/laredo-plane-crash-texas.html
 **Plane Crashes on Texas Highway**\
 `People rushed to pull survivors from a private jet that crashed and caught fire on a highway in Laredo, Texas, on Tuesday night, leaving one dead.`\
 https://www.nytimes.com/video/us/100000010973156/laredo-plane-crash.html
-
-**Argentina Fans Celebrate Messi-Led Victory Over Algeria**\
-`Lionel Messi scored his first World Cup hat trick as Argentina beat Algeria 3-0 in their opening match on Tuesday.`\
-https://www.nytimes.com/video/sports/world-cup/100000010973154/messi-world-cup-hat-trick-argentina.html
-
-**Live Updates: G7 Leaders Praise Trump for U.S.-Iran Deal**\
-`Leaders from the Group of 7 nations, who have been courting President Trump at a summit in France, called the preliminary agreement a “breakthrough” secured under the president’s “strong leadership.”`\
-https://www.nytimes.com/live/2026/06/17/world/g7-summit-trump-france
-
-**Georgia Republicans Choose Trump’s Pick for Senate, but Not Governor**\
-`Republicans in Georgia advanced Trump’s pick for senator but not governor in the state’s runoff primary on Tuesday.`\
-https://www.nytimes.com/video/us/elections/100000010972869/georgia-election-results-trump.html
-
-**¿Vale la pena tomar suplementos de glutatión?**\
-`La llamada “madre de todos los antioxidantes” se vende en tiras solubles, cápsulas, líquidos, geles y polvos. Hemos preguntado a los expertos si realmente funcionan.`\
-https://www.nytimes.com/es/2026/06/17/espanol/glutation-suplementos-beneficios-estafa.html
-
-**NYT Spelling Bee Answers for June 17, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/06/17/crosswords/spelling-bee-forum.html
 
