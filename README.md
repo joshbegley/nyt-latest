@@ -1,3 +1,7 @@
+**Norway’s Crown Princess Has Lung Transplant**\
+`Princess Mette-Marit was diagnosed with pulmonary fibrosis eight years ago and was placed on a waiting list for organ donation this month.`\
+https://www.nytimes.com/2026/06/17/world/europe/norway-crown-princess-mette-marit-lung-transplant.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000010973334/17vid-trump-entrance-77088.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/es/2026/06/17/espanol/glutation-suplementos-beneficios-e
 **NYT Spelling Bee Answers for June 17, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/06/17/crosswords/spelling-bee-forum.html
-
-**Gilgo Beach Serial Killer Will Receive Life Sentence After Guilty Plea**\
-`The decision on Wednesday will bring to an end an infamous case that took investigators more than a decade to solve.`\
-https://www.nytimes.com/2026/06/17/nyregion/gilgo-beach-killer-life-sentence.html
 
