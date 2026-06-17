@@ -1,3 +1,15 @@
+**Trump Defends Deal to End the War With Iran as Details Emerge**\
+`President Trump lashed out at critics who say the agreement achieves less than the one President Barack Obama signed in 2015, and he threatened to bomb Iran again if it violated the deal.`\
+https://www.nytimes.com/2026/06/17/world/middleeast/trump-iran-deal-obama.html
+
+**Trump Criticized Obama’s Iran Deal, but New Deal Would Also Offer Tehran Relief**\
+`The agreement outlines a $300 billion plan to rebuild Iran, and says sanctions would be lifted in the future.`\
+https://www.nytimes.com/2026/06/17/world/europe/trump-obama-iran-deal-money.html
+
+**Colbert’s Use of ‘Peanuts’ Jingle on His Finale Will Cost CBS**\
+`The network agreed to pay a licensing fee for an undisclosed amount to Lee Mendelson Film Productions, which is donating the money to charity.`\
+https://www.nytimes.com/2026/06/17/us/cbs-colbert-peanuts-music-fee.html
+
 ****\
 `Activists and protesters erupted in cheers at the Georgia State Capitol after lawmakers shelved redistricting plans.`\
 https://www.nytimes.com/video/embedded/us/politics/100000010974909/17vid-Georgia-Re-Districting.html
