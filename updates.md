@@ -1,3 +1,15 @@
+**Finland Lifts a Nuclear Device Ban, Eyeing an Uncertain World**\
+`The Nordic country, which shares an 830-mile border with Russia, said the move would strengthen the NATO alliance, which it joined three years ago.`\
+https://www.nytimes.com/2026/06/17/world/europe/finland-nuclear-devices.html
+
+**Political Spotlight Shines on Warsh for His First Fed Meeting as Chairman**\
+`The new Fed chairman is bound to face the unyielding attention of the president that nominated him.`\
+https://www.nytimes.com/2026/06/17/business/economy/political-spotlight-shines-on-warsh-for-his-first-fed-meeting-as-chair.html
+
+**Live Updates: The Fed’s New Chairman Will Discuss the State of the Economy**\
+`Kevin M. Warsh will take questions from reporters after leading his first gathering of the Federal Reserve’s top officials.`\
+https://www.nytimes.com/live/2026/06/17/business/fed-meeting-warsh-interest-rates
+
 **La República Democrática del Congo vuelve con estilo al Mundial**\
 `Los elegantes trajes negros de las estrellas del fútbol, con detalles de estampado de leopardo, son un guiño a la larga tradición de la moda “sapeur”.`\
 https://www.nytimes.com/es/2026/06/17/espanol/deportes/mundial-congo-moda-portugal.html

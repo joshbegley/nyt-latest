@@ -1,3 +1,15 @@
+**Western Europe Braces For Another Round of Heat**\
+`After an early heat wave in May, travelers and residents in France, Germany, Italy and other countries are again looking for respite.`\
+https://www.nytimes.com/2026/06/17/travel/heat-wave-western-europe.html
+
+**Musk’s Next Move May Be a Mega-Merger of SpaceX and Tesla**\
+`Some shareholders might object, but there is little they could do, legal experts say.`\
+https://www.nytimes.com/2026/06/17/business/spacex-tesla-merger-elon-musk.html
+
+**Map: 4.6-Magnitude Earthquake Shakes Hawaii**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/17/us/quake-tracker-hawaii.html
+
 **Finland Lifts a Nuclear Device Ban, Eyeing an Uncertain World**\
 `The Nordic country, which shares an 830-mile border with Russia, said the move would strengthen the NATO alliance, which it joined three years ago.`\
 https://www.nytimes.com/2026/06/17/world/europe/finland-nuclear-devices.html
@@ -173,16 +185,4 @@ https://www.nytimes.com/2026/06/17/briefing/what-could-happen-in-iran.html
 **‘Hard Fork’ Live Part 2: Dylan Field on Standing Out in the A.I. Era**\
 `“I think if you have a creative voice in writing or design, you put yourself out there and you take a risk — this is a good time to do that,” said the Figma chief executive Dylan Field.`\
 https://www.nytimes.com/2026/06/17/podcasts/hard-fork-live-dylan-field.html
-
-**Jeremy Clarkson Says He Has an ‘Aggressive’ Cancer**\
-`The 66-year-old gave few details of his diagnosis but said the disease was “aggressive.”`\
-https://www.nytimes.com/2026/06/17/world/europe/jeremy-clarkson-cancer-uk.html
-
-**Japan Raids Ice Cream Giants in Cartel Investigation**\
-`The Fair Trade Commission said that it suspected six leading ice cream manufacturers fixed the prices of popular frozen treats.`\
-https://www.nytimes.com/2026/06/17/world/asia/japan-ice-cream-cartel-investigation.html
-
-**Speakers in Ecuador’s Andes Blend Spanish With Kichwa**\
-`The distinctive language used in Ecuador’s Andes, including its capital Quito, blends Spanish with Kichwa, an indigenous language spoken since the Inca settlement of the region.`\
-https://www.nytimes.com/video/world/americas/100000010715522/ecuador-quito-language-spanish-kichwa.html
 
