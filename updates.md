@@ -1,3 +1,15 @@
+**The Blobby, Drippy Maximalist Design You’re Seeing Everywhere**\
+`After years of corporate millennial blanding, consumer culture oozes into shape for a new generation.`\
+https://www.nytimes.com/2026/06/17/style/maximalism-aesthetic-hyper-goo.html
+
+**Teenagers vs. Social Media Bans**\
+`Australia barred children from social media in December. Since then, young people have found plenty of ways to skirt the measure.`\
+https://www.nytimes.com/2026/06/17/world/social-media-ban-iran-deal-congo-world-cup.html
+
+**See How the First Fed Statement Under Warsh Evolved**\
+`Interest rates didn’t change, but the language in Fed’s policy statement, which it released alongside its rate decision today, certainly did.`\
+https://www.nytimes.com/2026/06/17/business/economy/kevin-warsh-fed-statement.html
+
 **Gilgo Beach Serial Killer Sentenced to Life Without Parole**\
 `The serial killer who admitted in April to murdering eight women in the so-called Gilgo Beach killings, was sentenced on Wednesday to life in prison.`\
 https://www.nytimes.com/video/us/100000010974398/gilgo-beach-serial-killer-sentencing.html

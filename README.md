@@ -1,3 +1,11 @@
+**Bill Pulte, a Bulldog for Trump, Prepares to Take Reins at Spy Agency**\
+`Democrats and some Republicans excoriated President Trump’s pick for a top national security job. The president pushed ahead anyway.`\
+https://www.nytimes.com/2026/06/17/us/politics/bill-pulte-spy-agency.html
+
+**La tormenta tropical Arthur dejará fuertes lluvias en la costa del golfo de México**\
+`Arthur acaba de convertirse en la primera tormenta tropical con nombre de la temporada de huracanes del Atlántico de este año. Esta semana ha provocado fuertes lluvias e inundaciones en Texas, y se esperan más.`\
+https://www.nytimes.com/es/2026/06/17/espanol/tiempo-y-clima/tormenta-tropical-arthur.html
+
 **The Blobby, Drippy Maximalist Design You’re Seeing Everywhere**\
 `After years of corporate millennial blanding, consumer culture oozes into shape for a new generation.`\
 https://www.nytimes.com/2026/06/17/style/maximalism-aesthetic-hyper-goo.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/06/17/style/tiny-modern-love-stories-why-dont-you-b
 **Messi scoring a third goal in the Argentina-Algeria match.**\
 `(No description)`\
 https://www.nytimes.com/article/world-cup-messi-goal-argentina-algeria.html
-
-**British Couple Recount Russian Warship Warning Shots**\
-`Jane and Alan Kelvey, a couple from Britain, spoke with the BBC after a Russian naval ship fired warning shots toward their sailboat in the English Channel on Tuesday.`\
-https://www.nytimes.com/video/world/europe/100000010973495/british-couple-recount-russian-warship-warning-shots.html
-
-**Carlo Ginzburg, Who Told the History of the Obscure, Dies at 87**\
-`In books like “The Cheese and the Worms,” he helped push beyond the story of great events and leaders, entering the minds and hearts of peasants.`\
-https://www.nytimes.com/2026/06/17/books/carlo-ginzburg-dead.html
 
 **Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
 `Chairman Kevin M. Warsh vowed to start a “new chapter” in the Federal Reserve’s oversight of the U.S. economy.`\
