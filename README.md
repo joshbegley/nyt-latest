@@ -1,3 +1,7 @@
+**Jamaica in Talks With U.S. to Temporarily Hold Deported Migrants**\
+`It was the latest in a slate of deals the Trump administration has pursued to expel migrants to countries to which they may have no personal ties.`\
+https://www.nytimes.com/2026/06/17/world/americas/jamaica-us-third-country-deportees.html
+
 **Kílian Jornet: Here’s What Keeps Me Going**\
 `When we choose to push forward in the face of physical suffering, we discover ourselves on the other side.`\
 https://www.nytimes.com/2026/06/17/special-series/kilian-jornet-endurance.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/live/2026/06/17/business/fed-meeting-warsh-interest-rate
 **My Nephew’s Comedy Routine Skewers His Grandma. Should the Adults Be Laughing?**\
 `My brother even shared a video of the bit in the family group chat.`\
 https://www.nytimes.com/2026/06/17/magazine/nephews-comedy-routine-grandma-ethics.html
-
-**Intelligence Officials Have Welcomed Pulte and Then Clayton**\
-`The two, whom President Trump nominated as acting director and director of national intelligence, have both prepared to take over the office.`\
-https://www.nytimes.com/2026/06/17/us/politics/intelligence-pulte-clayton.html
 
