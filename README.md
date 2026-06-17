@@ -1,3 +1,7 @@
+**Plane Crashes on Texas Highway**\
+`People rushed to pull survivors from a private jet that crashed and caught fire on a highway in Laredo, Texas, on Tuesday night, leaving one dead.`\
+https://www.nytimes.com/video/us/100000010973156/plane-crashes-on-texas-highway.html
+
 **Argentina Fans Celebrate Messi-Led Victory Over Algeria**\
 `Lionel Messi scored his first World Cup hat trick as Argentina beat Algeria 3-0 in their opening match on Tuesday.`\
 https://www.nytimes.com/video/sports/world-cup/100000010973154/messi-world-cup-hat-trick-argentina.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/dining/100000010972523/red-curry-chicken-and-rice-
 **Julia Child’s Berry Clafoutis**\
 `This recipe is for a delicately sweet dessert whose elegance should not distract from its ease (it can be made while the rest of dinner is in the oven). Make sure you have fresh berries, and serve the result warm.`\
 https://www.nytimes.com/video/dining/100000010972541/julia-childs-berry-clafoutis.html
-
-**5 Things to Know About Mike Collins, Republican Senate Candidate in Georgia**\
-`An immigration hard-liner, Mr. Collins has President Trump’s endorsement in the runoff.`\
-https://www.nytimes.com/2026/06/16/us/politics/mike-collins-republican-senate-georgia.html
 

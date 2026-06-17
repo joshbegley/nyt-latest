@@ -1,3 +1,11 @@
+**Argentina Fans Celebrate Messi-Led Victory Over Algeria**\
+`Lionel Messi scored his first World Cup hat trick as Argentina beat Algeria 3-0 in their opening match on Tuesday.`\
+https://www.nytimes.com/video/sports/world-cup/100000010973154/messi-world-cup-hat-trick-argentina.html
+
+**Live Updates: G7 Leaders Praise Trump for U.S.-Iran Deal**\
+`Leaders from the Group of 7 nations, who have been courting President Trump at a summit in France, called the preliminary agreement a “breakthrough” secured under the president’s “strong leadership.”`\
+https://www.nytimes.com/live/2026/06/17/world/g7-summit-trump-france
+
 **Georgia Republicans Choose Trump’s Pick for Senate, but Not Governor**\
 `Republicans in Georgia advanced Trump’s pick for senator but not governor in the state’s runoff primary on Tuesday.`\
 https://www.nytimes.com/video/us/elections/100000010972869/georgia-election-results-trump.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/dining/100000010972541/julia-childs-berry-clafouti
 **5 Things to Know About Mike Collins, Republican Senate Candidate in Georgia**\
 `An immigration hard-liner, Mr. Collins has President Trump’s endorsement in the runoff.`\
 https://www.nytimes.com/2026/06/16/us/politics/mike-collins-republican-senate-georgia.html
-
-**5 Things to Know About Derek Dooley, Republican Senate Candidate in Georgia**\
-`He is supported by outgoing Gov. Brian Kemp, who has had a tumultuous relationship with President Trump. Mr. Trump backs Mr. Dooley’s runoff opponent.`\
-https://www.nytimes.com/2026/06/16/us/politics/derek-dooley-republican-senate-georgia.html
-
-**Inquiry Into Justice Dept. Lawyer Ends Without Disciplinary Action**\
-`A special counsel found that a government lawyer helped mislead a judge into releasing a man wanted for homicide abroad, but largely blamed the Trump administration.`\
-https://www.nytimes.com/2026/06/16/us/politics/rhode-island-judge-trump-discipline.html
 

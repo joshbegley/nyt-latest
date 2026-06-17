@@ -1,3 +1,11 @@
+**Argentina Fans Celebrate Messi-Led Victory Over Algeria**\
+`Lionel Messi scored his first World Cup hat trick as Argentina beat Algeria 3-0 in their opening match on Tuesday.`\
+https://www.nytimes.com/video/sports/world-cup/100000010973154/messi-world-cup-hat-trick-argentina.html
+
+**Live Updates: G7 Leaders Praise Trump for U.S.-Iran Deal**\
+`Leaders from the Group of 7 nations, who have been courting President Trump at a summit in France, called the preliminary agreement a “breakthrough” secured under the president’s “strong leadership.”`\
+https://www.nytimes.com/live/2026/06/17/world/g7-summit-trump-france
+
 **We Just Saw the Limit of American Military Might**\
 `How did the world’s richest nation, armed with the most powerful military, arrive at this strategic defeat?`\
 https://www.nytimes.com/2026/06/17/opinion/iran-war-us-military-power.html
