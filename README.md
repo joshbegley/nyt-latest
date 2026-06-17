@@ -58,7 +58,7 @@ https://www.nytimes.com/video/sports/soccer/100000010971025/world-cup-congo-fash
 `Georgia is the latest Southern state where lawmakers have taken up redrawing congressional maps after the Supreme Court’s voting rights ruling.`\
 https://www.nytimes.com/2026/06/17/us/politics/georgia-redistricting-special-session.html
 
-**Britain’s Finance Chief Confronts the Political Challenges of Fiscal Stability**\
+**Rachel Reeves, UK Chancellor, Confronts the Political Challenges of Fiscal Stability**\
 `Rachel Reeves came into office promising to adhere to strict rules on spending and borrowing. Two years later, a special election could determine if she will continue in her role.`\
 https://www.nytimes.com/2026/06/17/business/rachel-reeves-uk-debt.html
 
