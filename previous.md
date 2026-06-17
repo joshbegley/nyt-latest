@@ -1,3 +1,11 @@
+**The Deck Is Stacked Against Healthy Eating**\
+`We need the will to push back against corporate interests.`\
+https://www.nytimes.com/2026/06/17/opinion/ultraprocessed-food-healthy.html
+
+**I Have Autism. Can I Tell My Best Friend That I Think She Does, Too?**\
+`A teenager who found comfort and clarity in an autism diagnosis wants to put a friend on a similar path, but is unsure how much encouragement is appropriate.`\
+https://www.nytimes.com/2026/06/17/style/autism-diagnosis.html
+
 **World Cup 2026: How Messi Completed His Hat-Trick of Goals for Argentina**\
 `View in 3-D how Lionel Messi crafted the third goal for Argentina in a 3-0 win over Algeria in its opening game of the World Cup.`\
 https://www.nytimes.com/interactive/2026/06/17/sports/soccer/messi-world-cup-goal-argentina-algeria.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/17/us/takeaways-world-cup-us-stadiums.html
 **Who Will Get Spirit Airlines’ Coveted Flights at LaGuardia?**\
 `A bankruptcy court has started the process to sell the airline’s right to fly to and from the New York City airport, but finding a buyer could be hard.`\
 https://www.nytimes.com/2026/06/17/business/spirit-airlines-laguardia-airport.html
-
-**A New Magazine With Political Heft, and ‘Real Style’**\
-`Equator, a new magazine with editors based across the globe, hosted a launch party in a ballroom in Manhattan’s Chinatown.`\
-https://www.nytimes.com/2026/06/17/style/equator-magazine-launch-party.html
-
-**El nuevo mensaje de China a sus ciudadanos: tu dinero debe quedarse en casa**\
-`En las últimas semanas, Pekín ha tomado medidas para cerrar los canales informales entre los hogares chinos y los mercados de capitales globales.`\
-https://www.nytimes.com/es/2026/06/17/espanol/mundo/restricciones-inversiones-chinos.html
 

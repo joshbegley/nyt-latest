@@ -1,3 +1,11 @@
+**The Deck Is Stacked Against Healthy Eating**\
+`We need the will to push back against corporate interests.`\
+https://www.nytimes.com/2026/06/17/opinion/ultraprocessed-food-healthy.html
+
+**I Have Autism. Can I Tell My Best Friend That I Think She Does, Too?**\
+`A teenager who found comfort and clarity in an autism diagnosis wants to put a friend on a similar path, but is unsure how much encouragement is appropriate.`\
+https://www.nytimes.com/2026/06/17/style/autism-diagnosis.html
+
 **World Cup 2026: How Messi Completed His Hat-Trick of Goals for Argentina**\
 `View in 3-D how Lionel Messi crafted the third goal for Argentina in a 3-0 win over Algeria in its opening game of the World Cup.`\
 https://www.nytimes.com/interactive/2026/06/17/sports/soccer/messi-world-cup-goal-argentina-algeria.html
