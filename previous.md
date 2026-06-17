@@ -1,3 +1,7 @@
+**How the ‘Hard Fork’ Hosts Bring Their Tech Podcast to a Live Audience**\
+`Kevin Roose and Casey Newton explain why they try to include “a little chaos” when they record their New York Times tech podcast in front of a crowd in San Francisco.`\
+https://www.nytimes.com/2026/06/17/insider/hard-fork-podcast-live-audience-san-francisco.html
+
 **Stars of Israel’s TV Channel for Bibi Fans Turn on Trump**\
 `Leading figures from Channel 14, a right-wing broadcaster that supports Prime Minister Benjamin Netanyahu, are openly attacking the U.S. president over his Iran deal.`\
 https://www.nytimes.com/2026/06/17/world/middleeast/israel-channel-14-trump-criticism.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/17/weather/illinois-indiana-tornado-storm.html
 **La lengua dulce: cómo los Andes ecuatorianos crearon un idioma propio**\
 `En la Sierra ecuatoriana, una mezcla de kichwa y español da lugar a una lengua que desafía las reglas gramaticales del español, añade melodía y pasa desapercibida para muchos de sus hablantes.`\
 https://www.nytimes.com/es/2026/06/17/espanol/america-latina/ecuador-kichwa-andes-espanol.html
-
-**The Trump U.F.C. Fights Helped Me Understand My Sons**\
-`In my darker moments, I worry I’ve failed them.`\
-https://www.nytimes.com/2026/06/17/opinion/ufc-trump-fight-white-house-birthday.html
 

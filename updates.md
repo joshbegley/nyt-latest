@@ -1,3 +1,7 @@
+**How the ‘Hard Fork’ Hosts Bring Their Tech Podcast to a Live Audience**\
+`Kevin Roose and Casey Newton explain why they try to include “a little chaos” when they record their New York Times tech podcast in front of a crowd in San Francisco.`\
+https://www.nytimes.com/2026/06/17/insider/hard-fork-podcast-live-audience-san-francisco.html
+
 **Stars of Israel’s TV Channel for Bibi Fans Turn on Trump**\
 `Leading figures from Channel 14, a right-wing broadcaster that supports Prime Minister Benjamin Netanyahu, are openly attacking the U.S. president over his Iran deal.`\
 https://www.nytimes.com/2026/06/17/world/middleeast/israel-channel-14-trump-criticism.html
