@@ -1,3 +1,7 @@
+**Watch Live: Fed Chair Holds News Conference on Interest Rate Decision**\
+`Federal Reserve Chair Kevin M. Warsh holds a news conference after a two-day policy meeting.`\
+https://www.nytimes.com/video/embedded/us/100000010973869/watch-live-fed-chair-holds-news-conference-on-interest-rate-decision.html
+
 **Lost Oregon Hiker Fell to Death From Cliff on Alaska Trail, Troopers Say**\
 `Emergency responders found the body of a man partially submerged at the bottom of a cliff in Ketchikan on Monday, the authorities said.`\
 https://www.nytimes.com/2026/06/17/us/oregon-hiker-dead-cliff-alaska.html
@@ -114,7 +118,7 @@ https://www.nytimes.com/2026/06/17/us/politics/the-docket-death-row.html
 `El presidente Trump está bajo presión para mejorar significativamente el acuerdo de la época de Obama y así justificar el enorme costo humano y económico que supuso llevar a Estados Unidos a la guerra.`\
 https://www.nytimes.com/es/2026/06/17/espanol/estados-unidos/obama-acuerdo-nuclear-trump-iran.html
 
-**Live Updates: Fed Holds Interest Rates Steady as New Chairman Begins a Balancing Act**\
+**Live Updates: Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
 `Kevin M. Warsh will take questions from reporters after leading his first gathering of the Federal Reserve’s top officials.`\
 https://www.nytimes.com/live/2026/06/17/business/fed-meeting-warsh-interest-rates
 
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/06/17/technology/anthropic-trump-administration-fab
 **Why Waymo’s Driverless Taxis Won’t Be on Your Streets Anytime Soon**\
 `The Silicon Valley company’s ambitions to roll out autonomous cars nationwide have hit political roadblocks in some of the country’s biggest markets.`\
 https://www.nytimes.com/2026/06/17/technology/waymo-driverless-taxis-politics.html
-
-**Trump Angrily Defends Iran Deal, Belittling the One Obama Signed**\
-`President Trump denied that the United States would be part of a $300 billion rebuilding fund for Tehran and argued that his agreement was better than the one Barack Obama struck in 2015.`\
-https://www.nytimes.com/2026/06/17/us/politics/trump-iran-peace-deal-obama.html
 
