@@ -1,3 +1,15 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000010973334/17vid-trump-entrance-77088.html
+
+**Celebrating These Knicks Title Vibes, With Desus Nice**\
+`Pablo raises a glass with Desus — his fellow New Yorker and bard of Knicks nation.`\
+https://www.nytimes.com/2026/06/17/podcasts/celebrating-these-knicks-title-vibes-with-desus-nice.html
+
+**Gareth Bale on Ronaldo and U.S. Soccer, Plus World Cup Transfers**\
+`Will the Portugal legend dominate his final tournament?`\
+https://www.nytimes.com/2026/06/17/podcasts/world-cup-gareth-bale-ronaldo-us-soccer.html
+
 **Intense Tornadoes Possible Across the Midwest on Wednesday**\
 `Forecasters warned that Illinois and Indiana faced the highest risk of severe storms throughout the day.`\
 https://www.nytimes.com/2026/06/17/weather/illinois-indiana-tornado-storm.html
@@ -177,16 +189,4 @@ https://www.nytimes.com/2026/06/17/crosswords/spelling-bee-forum.html
 **Gilgo Beach Serial Killer Will Receive Life Sentence After Guilty Plea**\
 `The decision on Wednesday will bring to an end an infamous case that took investigators more than a decade to solve.`\
 https://www.nytimes.com/2026/06/17/nyregion/gilgo-beach-killer-life-sentence.html
-
-**The Other Grand Army Plaza Gets a $21 Million Makeover**\
-`An overlooked plaza that opened more than a century ago and was designed as “an outdoor living room” at the southeast corner of Central Park re-emerges after a lengthy restoration.`\
-https://www.nytimes.com/2026/06/17/nyregion/grand-army-plaza-manhattan-makeover.html
-
-**How Israel Came to Dominate a Congressional Primary Campaign in New York**\
-`Brad Lander is challenging Representative Dan Goldman over his stance on the war in Gaza as the two men face off in a contentious race for a Brooklyn and Lower Manhattan seat.`\
-https://www.nytimes.com/2026/06/17/nyregion/lander-goldman-israel-nyc-primary.html
-
-**A Tournament on Native Land Makes Millions. A Tribe Wants a Bigger Cut.**\
-`The Shinnecock Hills Golf Club on Long Island earns millions when it hosts the U.S. Open. But the nearby Indian tribe has for years only received a fraction of that.`\
-https://www.nytimes.com/2026/06/17/nyregion/a-tournament-on-native-land-makes-millions-a-tribe-wants-a-bigger-cut.html
 
