@@ -1,3 +1,11 @@
+**Intelligence Officials Have Welcomed Pulte and Then Clayton**\
+`The two, whom President Trump nominated as acting director and director of national intelligence, have both prepared to take over the office.`\
+https://www.nytimes.com/2026/06/17/us/politics/intelligence-pulte-clayton.html
+
+**Preserving George Washington’s Legacy With 18th-Century Craft**\
+`In preparation for the nation’s 250th anniversary, historical institutions across the country are restoring or recreating items associated with George Washington using materials, tools and techniques from the time of the American Revolution.`\
+https://www.nytimes.com/video/arts/design/100000010971094/george-washington-artisan-craft.html
+
 **How the ‘Hard Fork’ Hosts Bring Their Tech Podcast to a Live Audience**\
 `Kevin Roose and Casey Newton explain why they try to include “a little chaos” when they record their New York Times tech podcast in front of a crowd in San Francisco.`\
 https://www.nytimes.com/2026/06/17/insider/hard-fork-podcast-live-audience-san-francisco.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/17/podcasts/celebrating-these-knicks-title-vibes
 **Gareth Bale on Ronaldo and U.S. Soccer, Plus World Cup Transfers**\
 `Will the Portugal legend dominate his final tournament?`\
 https://www.nytimes.com/2026/06/17/podcasts/world-cup-gareth-bale-ronaldo-us-soccer.html
-
-**Intense Tornadoes Possible Across the Midwest on Wednesday**\
-`Forecasters warned that Illinois and Indiana faced the highest risk of severe storms throughout the day.`\
-https://www.nytimes.com/2026/06/17/weather/illinois-indiana-tornado-storm.html
-
-**La lengua dulce: cómo los Andes ecuatorianos crearon un idioma propio**\
-`En la Sierra ecuatoriana, una mezcla de kichwa y español da lugar a una lengua que desafía las reglas gramaticales del español, añade melodía y pasa desapercibida para muchos de sus hablantes.`\
-https://www.nytimes.com/es/2026/06/17/espanol/america-latina/ecuador-kichwa-andes-espanol.html
 

@@ -1,3 +1,11 @@
+**Intelligence Officials Have Welcomed Pulte and Then Clayton**\
+`The two, whom President Trump nominated as acting director and director of national intelligence, have both prepared to take over the office.`\
+https://www.nytimes.com/2026/06/17/us/politics/intelligence-pulte-clayton.html
+
+**Preserving George Washington’s Legacy With 18th-Century Craft**\
+`In preparation for the nation’s 250th anniversary, historical institutions across the country are restoring or recreating items associated with George Washington using materials, tools and techniques from the time of the American Revolution.`\
+https://www.nytimes.com/video/arts/design/100000010971094/george-washington-artisan-craft.html
+
 **Speakers in Ecuador’s Andes Blend Spanish With Kichwa**\
 `The distinctive language used in Ecuador’s Andes, including its capital Quito, blends Spanish with Kichwa, an indigenous language spoken since the Inca settlement of the region.`\
 https://www.nytimes.com/video/world/americas/100000010715522/ecuador-quito-language-spanish-kichwa.html
