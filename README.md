@@ -182,7 +182,7 @@ https://www.nytimes.com/2026/06/17/us/california-billionaire-tax-opponents.html
 `Platforms like Kalshi let millions wager on sports and pop culture. They’re now hoping institutions will use them for big-ticket trading like hedging.`\
 https://www.nytimes.com/2026/06/17/business/dealbook/hedging-prediction-markets-kalshi.html
 
-**Getting Stoned With My Dad Helped Us Heal**\
-`It took a painful reckoning with history, and a lot of cannabis, to bring Julian Brave NoiseCat and his father back together.`\
-https://www.nytimes.com/video/podcasts/100000010972496/getting-stoned-with-my-dad-helped-us-heal.html
+**World Cup Updates: At U.S. Stadiums, Boisterous Crowds and Redacted Logos**\
+`(No description)`\
+https://www.nytimes.com/live/2026/us/fifa-world-cup
 
