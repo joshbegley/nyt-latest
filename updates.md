@@ -1,3 +1,11 @@
+**Barn Fire Kills 17 Horses at Harness Track in Saratoga Springs, N.Y.**\
+`The cause is under investigation. Only one horse in the barn, Twin B Speed Dial, is believed to have survived, sustaining minor injuries.`\
+https://www.nytimes.com/2026/06/16/us/saratoga-barn-fire-horses.html
+
+**Washington’s Reagan Airport Will Ground Flights for July 4 Events**\
+`The runways at Ronald Reagan National Airport will be closed after noon on July 4, and for several hours on July 3. Other celebrations surrounding the nation’s 250th birthday are also expected to cause disruptions.`\
+https://www.nytimes.com/2026/06/16/us/politics/independence-day-flight-disruptions-washington.html
+
 **Mike Collins, Endorsed by Trump, Wins Georgia Republican Senate Runoff**\
 `President Trump had made a late endorsement for Mr. Collins, who had campaigned as a MAGA candidate also able to appeal to moderates.`\
 https://www.nytimes.com/2026/06/16/us/politics/georgia-senate-republican-runoff.html

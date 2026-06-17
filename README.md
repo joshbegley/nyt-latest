@@ -1,3 +1,7 @@
+**Rick Jackson, a Billionaire, Wins G.O.P. Runoff for Georgia Governor**\
+`Mr. Jackson, who had been largely unknown to voters just months ago, beat President Trump’s choice and will face Keisha Lance Bottoms, a Democrat, in November.`\
+https://www.nytimes.com/2026/06/16/us/elections/georgia-governor-runoff-republican.html
+
 **Barn Fire Kills 17 Horses at Harness Track in Saratoga Springs, N.Y.**\
 `The cause is under investigation. Only one horse in the barn, Twin B Speed Dial, is believed to have survived, sustaining minor injuries.`\
 https://www.nytimes.com/2026/06/16/us/saratoga-barn-fire-horses.html
@@ -170,8 +174,8 @@ https://www.nytimes.com/es/2026/06/16/espanol/deportes/mexico-mundial-pato-merli
 `Two Belarusian men were in custody as part of an investigation into the killing of the exiled painter Robert Kuzovkov.`\
 https://www.nytimes.com/2026/06/16/world/europe/russian-artist-putin-killed-poland.html
 
-**Election Live Updates: Mike Collins Wins G.O.P. Nomination to Challenge Jon Ossoff in Georgia**\
-`In Oklahoma, Representative Kevin Hern won the Republican nomination for Senate. More results are arriving in Georgia, Alabama and Washington, D.C.`\
+**Election Live Updates: Georgia Republicans Go With Trump’s Pick for Senate, but Not Governor**\
+`Representative Mike Collins, who was backed by President Trump, won the G.O.P. nomination to challenge Senator Jon Ossoff. But Georgia Republicans chose Rick Jackson as their nominee for governor over a Trump-backed candidate. In Oklahoma, Representative Kevin Hern won the Republican nomination for Senate.`\
 https://www.nytimes.com/live/2026/06/16/us/georgia-oklahoma-alabama-elections
 
 **The Battle With Anthropic Is the Start of a New Kind of Conflict**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/16/style/jelly-roll-divorce-bunnie-xo-tennessee.
 **A Long Road to Recovery**\
 `There’s an initial deal between the U.S. and Iran. But bringing the global economy back online after months at reduced speed isn’t going to be quick or easy.`\
 https://www.nytimes.com/2026/06/16/world/iran-war-economy-epstein-world-cup.html
-
-**Taylor Swift Didn’t Marry in Rhode Island. Fans Showed Up Anyway.**\
-`Despite reports pointing to New York as a potential Swift-Kelce wedding location, Swifties still descended on Watch Hill, R.I., this past weekend, hoping for a glimpse of the singer or signs of a June 13 celebration.`\
-https://www.nytimes.com/2026/06/16/style/taylor-swifts-rhode-island-wedding.html
 
