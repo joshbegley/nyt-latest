@@ -1,3 +1,7 @@
+**Speakers in Ecuador’s Andes Blend Spanish with Kichwa**\
+`The distinctive language used in Ecuador’s Andes, including its capital Quito, blends Spanish with Kichwa, an indigenous language spoken since the Inca settlement of the region.`\
+https://www.nytimes.com/video/world/americas/100000010715522/ecuador-quito-language-spanish-kichwa.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000010973378/17vid-rutte-39696.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/06/17/world/americas/ecuador-kichwa-language-andes.
 **Wildfire in Washington State Prompts Evacuation Orders**\
 `Dry and windy conditions could exacerbate the blaze, which has already destroyed some structures near Spokane, officials warned.`\
 https://www.nytimes.com/2026/06/17/us/spokane-wildfire-evacuations.html
-
-**Private Jet Crashes on Highway in Laredo, Texas, Killing 1**\
-`The plane’s crew reported mechanical problems and low fuel as they flew to Austin, Texas, from Mexico. Five of the six people on board survived the crash in Laredo.`\
-https://www.nytimes.com/2026/06/17/us/laredo-plane-crash-texas.html
 

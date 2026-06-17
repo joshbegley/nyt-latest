@@ -1,3 +1,7 @@
+**Japan Raids Ice Cream Giants in Cartel Investigation**\
+`The Fair Trade Commission said that it suspected six leading ice cream manufacturers fixed the prices of popular frozen treats.`\
+https://www.nytimes.com/2026/06/17/world/asia/japan-ice-cream-cartel-investigation.html
+
 **Speakers in Ecuador’s Andes Blend Spanish with Kichwa**\
 `The distinctive language used in Ecuador’s Andes, including its capital Quito, blends Spanish with Kichwa, an indigenous language spoken since the Inca settlement of the region.`\
 https://www.nytimes.com/video/world/americas/100000010715522/ecuador-quito-language-spanish-kichwa.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/06/17/realestate/germantown-mt-airy-philadelphia-ne
 **How Ecuador’s Andes Created a Language of Its Own**\
 `In Ecuador’s highlands, a seamless mix of Kichwa and Spanish creates a language that bends grammar, adds melody and goes unnoticed by many who speak it every day.`\
 https://www.nytimes.com/2026/06/17/world/americas/ecuador-kichwa-language-andes.html
-
-**Wildfire in Washington State Prompts Evacuation Orders**\
-`Dry and windy conditions could exacerbate the blaze, which has already destroyed some structures near Spokane, officials warned.`\
-https://www.nytimes.com/2026/06/17/us/spokane-wildfire-evacuations.html
 

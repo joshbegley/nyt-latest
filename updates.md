@@ -1,3 +1,7 @@
+**Speakers in Ecuador’s Andes Blend Spanish with Kichwa**\
+`The distinctive language used in Ecuador’s Andes, including its capital Quito, blends Spanish with Kichwa, an indigenous language spoken since the Inca settlement of the region.`\
+https://www.nytimes.com/video/world/americas/100000010715522/ecuador-quito-language-spanish-kichwa.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000010973378/17vid-rutte-39696.html
