@@ -1,3 +1,7 @@
+**Georgia Republicans Shelve Redistricting for Now**\
+`The leaders of the Georgia House of Representatives said they would not redraw U.S. House districts held by Black Democrats just hours before a special session was to begin.`\
+https://www.nytimes.com/2026/06/17/us/politics/georgia-republicans-redistricting.html
+
 **Trump Says His Iran Deal Is Better Than Obama’s**\
 `Speaking on the final day of the G7 summit in France, President Trump used an expletive to describe the nuclear deal President Obama brokered with Iran. Mr. Trump is under pressure to deliver a deal that would justify taking the United States to war.`\
 https://www.nytimes.com/video/world/europe/100000010974171/trump-iran-deal-obama.html
@@ -14,7 +18,7 @@ https://www.nytimes.com/video/podcasts/100000010974327/ai-artificial-or-awesome.
 `La tripulación del avión informó problemas mecánicos y poco combustible mientras volaban hacia Austin, Texas, desde México. Cinco de las seis personas que iban a bordo sobrevivieron al choque en Laredo.`\
 https://www.nytimes.com/es/2026/06/17/espanol/estados-unidos/avion-choque-laredo-texas.html
 
-**A Look at the Text of the Agreement Between the United States and Iran**\
+**U.S.-Iran Agreement Includes Strait of Hormuz, Lebanon and More: See Full Text of the Deal**\
 `A senior U.S. official, speaking on condition of anonymity, disclosed what the official said was the full text of the deal between the two countries.`\
 https://www.nytimes.com/2026/06/17/us/politics/us-iran-agreement-deal-text.html
 
@@ -58,8 +62,8 @@ https://www.nytimes.com/2026/06/17/us/politics/conor-mcgregor-banned-drugs.html
 `La cumbre buscaba dirigir la atención a la guerra en Ucrania, pero el presidente Trump dejó claro que el conflicto ya no estaba en su lista de prioridades.`\
 https://www.nytimes.com/es/2026/06/17/espanol/mundo/cumbre-g7-trump-ucrania-rusia.html
 
-**Western Europe Braces For Another Round of Heat**\
-`After an early heat wave in May, travelers and residents in France, Germany, Italy and other countries are again looking for respite.`\
+**Western Europe Braces for Another Round of Heat**\
+`After an early heat wave in May, people in France, Germany, Italy and other countries are again looking for respite.`\
 https://www.nytimes.com/2026/06/17/travel/heat-wave-western-europe.html
 
 **Elon Musk’s Next Move May Be a Mega-Merger of SpaceX and Tesla**\
@@ -177,10 +181,6 @@ https://www.nytimes.com/video/opinion/100000010968185/we-should-expect-more-from
 **The Deck Is Stacked Against Healthy Eating**\
 `We need the will to push back against corporate interests.`\
 https://www.nytimes.com/2026/06/17/opinion/ultraprocessed-food-healthy.html
-
-**I Have Autism. Can I Tell My Best Friend That I Think She Does, Too?**\
-`A teenager who found comfort and clarity in an autism diagnosis wants to put a friend on a similar path, but is unsure how much encouragement is appropriate.`\
-https://www.nytimes.com/2026/06/17/style/autism-diagnosis.html
 
 **World Cup Updates: At U.S. Stadiums, Boisterous Crowds and Redacted Logos**\
 `(No description)`\
