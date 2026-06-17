@@ -1,3 +1,7 @@
+**We Should Expect More From Our Supreme Court**\
+`The Supreme Court is racing to start summer vacation, but the legal journalist Cristian Farias says we have very little to feel relaxed about. In the era of Trump’s relentless power grabs, we should expect the Supreme Court to do more than just “the bare minimum.”`\
+https://www.nytimes.com/video/opinion/100000010968185/we-should-expect-more-from-our-supreme-court.html
+
 **The Deck Is Stacked Against Healthy Eating**\
 `We need the will to push back against corporate interests.`\
 https://www.nytimes.com/2026/06/17/opinion/ultraprocessed-food-healthy.html
