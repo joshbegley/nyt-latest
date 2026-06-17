@@ -1,3 +1,7 @@
+**Driver Charged With Hitting ICE Agent After Confusion Over His Identity**\
+`Federal prosecutors said the man had refused to roll down his window when Immigration and Customs Enforcement officers in New Jersey told him to stop.`\
+https://www.nytimes.com/2026/06/17/nyregion/ice-agent-hit-vehicle-nj.html
+
 **Horse Carriage Overturns in Central Park, Critically Injuring Man**\
 `A horse went out of control and collided with another carriage before toppling over, the Central Park Conservancy said. An 18-year-old passenger fell out of the carriage.`\
 https://www.nytimes.com/2026/06/17/nyregion/horse-carriage-central-park-injury.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/video/embedded/us/100000010973869/watch-live-fed-chair-h
 **Lost Oregon Hiker Fell to Death From Cliff on Alaska Trail, Troopers Say**\
 `Emergency responders found the body of a man partially submerged at the bottom of a cliff in Ketchikan on Monday, the authorities said.`\
 https://www.nytimes.com/2026/06/17/us/oregon-hiker-dead-cliff-alaska.html
-
-**The Good List: 6 Things to Bring Joy to Your Day**\
-`A memory workout, an endless playlist and an antidote to worry.`\
-https://www.nytimes.com/2026/06/17/briefing/17-the-good-list-knicks-memory.html
 
 **Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
 `Chairman Kevin M. Warsh vowed to start a “new chapter” in the Federal Reserve’s oversight of the U.S. economy.`\
