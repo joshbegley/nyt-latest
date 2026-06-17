@@ -1,3 +1,7 @@
+**Georgia Vexes Trump Yet Again: 6 Takeaways From Tuesday’s Primaries**\
+`Lt. Gov. Burt Jones lost the Republican runoff for governor to the health care executive Rick Jackson despite the president’s endorsement. Mr. Trump’s picks won in other races.`\
+https://www.nytimes.com/2026/06/17/us/politics/georgia-alabama-elections-trump-takeaways.html
+
 **Los líderes de Europa se muestran amables con Trump tras una temporada tensa**\
 `Un acuerdo de paz con Irán y la esperanza de cooperar con Ucrania suavizaron el tono el martes durante una reunión del Grupo de los 7 celebrada en Francia.`\
 https://www.nytimes.com/es/2026/06/17/espanol/mundo/trump-lideres-europa-g7.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/16/us/politics/republicans-iran-war-powers-senat
 **Bay Area Voters to Decide on Swalwell Replacement**\
 `Eric Swalwell resigned in April as he faced sexual assault allegations, prompting a special election to fill out his term. Two Democrats topped the field in a regular primary election this month.`\
 https://www.nytimes.com/2026/06/16/us/politics/swalwell-replacement-california.html
-
-**Hillary Clinton Says Biden’s Re-election Bid Was a ‘Terrible Mistake’**\
-`If the former president had “passed the torch” and allowed a competitive Democratic primary in 2024, she said in a new interview, the winner “would have beaten Donald Trump.”`\
-https://www.nytimes.com/2026/06/16/us/politics/clinton-biden-reelection-terrible-mistake.html
 
