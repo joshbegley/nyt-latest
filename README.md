@@ -1,3 +1,7 @@
+**Tropical Storm Arthur Hits World Cup Attendees in Texas**\
+`Attendees lined up for the World Cup in Houston as Tropical Storm Arthur made landfall along the Texas coast on Wednesday.`\
+https://www.nytimes.com/video/weather/100000010974358/tropical-storm-arthur-texas-world-cup.html
+
 **Indiana Professor Who Taught Anti-White Supremacy Lesson Loses Job**\
 `The lesson included a slide that suggested that the “Make America Great Again” slogan should be considered a form of covert white supremacy.`\
 https://www.nytimes.com/2026/06/17/us/indiana-professor-white-supremacy-lesson-maga.html
@@ -74,7 +78,7 @@ https://www.nytimes.com/2026/06/17/climate/trump-wind-farms-cancel-millions.html
 `Tropical Storm Arthur became the first named storm of the Atlantic season on Wednesday, but its rain and wind were moving away from Houston.`\
 https://www.nytimes.com/2026/06/17/us/world-cup-tropical-storm-arthur.html
 
-**After a Day of Harmony, a Mercurial Trump Upends Leaders’ Summit**\
+**Trump Upends G7 Summit With Statements on Iran Deal and Ukraine**\
 `At the Group of 7 gathering in France, President Trump’s oscillations on his Iran deal and Ukraine left European leaders racing to catch up.`\
 https://www.nytimes.com/2026/06/17/world/europe/trump-g7-europe.html
 
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/17/business/spacex-tesla-merger-elon-musk.html
 **Map: 4.6-Magnitude Earthquake Shakes Hawaii**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/06/17/us/quake-tracker-hawaii.html
-
-**Finland Lifts a Nuclear Device Ban, Eyeing an Uncertain World**\
-`The Nordic country, which shares an 830-mile border with Russia, said the move would strengthen the NATO alliance, which it joined three years ago.`\
-https://www.nytimes.com/2026/06/17/world/europe/finland-nuclear-devices.html
 
 **Live Updates: Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
 `Chairman Kevin M. Warsh vowed to start a “new chapter” in the Federal Reserve’s oversight of the U.S. economy.`\

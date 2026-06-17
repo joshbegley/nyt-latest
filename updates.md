@@ -1,3 +1,7 @@
+**Indiana Professor Who Taught Anti-White Supremacy Lesson Loses Job**\
+`The lesson included a slide that suggested that the “Make America Great Again” slogan should be considered a form of covert white supremacy.`\
+https://www.nytimes.com/2026/06/17/us/indiana-professor-white-supremacy-lesson-maga.html
+
 **Trump Feuds With Thune and G.O.P., Stoking Election-Year Rift**\
 `The president upended the majority leader’s plans by yanking his intelligence nominee from a confirmation hearing and insisting on an end to the filibuster.`\
 https://www.nytimes.com/2026/06/17/us/politics/trump-thune-republicans-election-year-rift.html
