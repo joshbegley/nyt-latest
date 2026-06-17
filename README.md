@@ -1,3 +1,11 @@
+**Bob Dylan y Liza Minnelli ya cumplieron 80 años, y tienen algo que decirle a Trump**\
+`“Me siento igual que hace 50 años”, dijo el presidente Trump. “Es una locura”.`\
+https://www.nytimes.com/es/2026/06/17/espanol/opinion/bob-dylan-liza-minnelli-80-anos-trump.html
+
+**Word of the Day: sinecure**\
+`This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/06/17/learning/word-of-the-day-sinecure.html
+
 **Late Night Wades Into the Reflecting Pool’s Algae Bloom**\
 `President Trump “promised he would drain the swamp,” Jimmy Kimmel said. “Instead, he spent 14 million of our dollars building a new one.”`\
 https://www.nytimes.com/2026/06/17/arts/television/late-night-trump-reflecting-pool-algae.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/weather/100000010971313/rain-texas-floods-weather.
 **NY Liberty’s Ellie the Elephant Celebrates Her 6th Birthday in Style**\
 `Sure, there are bigger milestones than a sixth birthday. But the New York Liberty’s trunk-shaking mascot isn’t one to miss a chance to party.`\
 https://www.nytimes.com/2026/06/16/style/ellie-elephant-new-york-liberty-mascot-birthday.html
-
-**One Dead and Another Hurt in Shooting at Hospital in Wilmington, Del.**\
-`The police have arrested a suspect, and an earlier lockdown at Wilmington Hospital has been lifted.`\
-https://www.nytimes.com/2026/06/16/us/wilmington-delaware-hospital-shooting.html
-
-**Ossoff: A Cross-Ideological 2028 Dark Horse**\
-`Why has Jon Ossoff emerged as a dark horse for the 2028 presidential race? The MS Now host Chris Hayes and the Opinion columnist Ezra Klein discuss how Ossoff is leveraging a unique “visual grammar” to build an almost mythic, Obama-like political brand.`\
-https://www.nytimes.com/video/opinion/100000010962118/ossoff-a-cross-ideological-2028-dark-horse.html
 
