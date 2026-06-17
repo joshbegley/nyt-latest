@@ -1,3 +1,23 @@
+**The Battle Over A.I. in the Classroom**\
+`There are concerns about artificial intelligence’s risks to kids’ learning and critical thinking, and tech companies are pushing to get chatbots into schools.`\
+https://www.nytimes.com/2026/06/17/podcasts/the-daily/battle-over-ai-in-school.html
+
+**How Local Police Are Working for ICE, and an Unusual Data Center Dispute**\
+`Plus, the gym is the new first date.`\
+https://www.nytimes.com/2026/06/17/podcasts/the-headlines/ice-local-police-data-center-dispute.html
+
+**NYT Connections Answers for June 18, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, June 18, 2026.`\
+https://www.nytimes.com/2026/06/17/crosswords/connections-companion-1103.html
+
+**Today’s Wordle Hints for June 18, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, June 18, 2026.`\
+https://www.nytimes.com/2026/06/17/crosswords/wordle-review-1825.html
+
+**NYT Strands Hints for June 18, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, June 18, 2026.`\
+https://www.nytimes.com/2026/06/17/crosswords/strands-sidekick-837.html
+
 **Norway’s Crown Princess Has Lung Transplant**\
 `Princess Mette-Marit was diagnosed with pulmonary fibrosis eight years ago and was placed on a waiting list for organ donation this month.`\
 https://www.nytimes.com/2026/06/17/world/europe/norway-crown-princess-mette-marit-lung-transplant.html
