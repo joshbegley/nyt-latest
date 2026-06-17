@@ -146,7 +146,7 @@ https://www.nytimes.com/2026/06/17/world/europe/jeremy-clarkson-cancer-uk.html
 `The Fair Trade Commission said that it suspected six leading ice cream manufacturers fixed the prices of popular frozen treats.`\
 https://www.nytimes.com/2026/06/17/world/asia/japan-ice-cream-cartel-investigation.html
 
-**Speakers in Ecuador’s Andes Blend Spanish with Kichwa**\
+**Speakers in Ecuador’s Andes Blend Spanish With Kichwa**\
 `The distinctive language used in Ecuador’s Andes, including its capital Quito, blends Spanish with Kichwa, an indigenous language spoken since the Inca settlement of the region.`\
 https://www.nytimes.com/video/world/americas/100000010715522/ecuador-quito-language-spanish-kichwa.html
 

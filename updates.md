@@ -1,3 +1,7 @@
+**Speakers in Ecuador’s Andes Blend Spanish With Kichwa**\
+`The distinctive language used in Ecuador’s Andes, including its capital Quito, blends Spanish with Kichwa, an indigenous language spoken since the Inca settlement of the region.`\
+https://www.nytimes.com/video/world/americas/100000010715522/ecuador-quito-language-spanish-kichwa.html
+
 **How the ‘Hard Fork’ Hosts Bring Their Tech Podcast to a Live Audience**\
 `Kevin Roose and Casey Newton explain why they try to include “a little chaos” when they record their New York Times tech podcast in front of a crowd in San Francisco.`\
 https://www.nytimes.com/2026/06/17/insider/hard-fork-podcast-live-audience-san-francisco.html
