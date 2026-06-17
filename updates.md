@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000010974297/17vid-Trump-G7-27970.html
+
+**Tiny Love Stories: ‘Why Don’t You Both Get In?’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/06/17/style/tiny-modern-love-stories-why-dont-you-both-get-in.html
+
 **British Couple Recount Russian Warship Warning Shots**\
 `Jane and Alan Kelvey, a couple from Britain, spoke with the BBC after a Russian naval ship fired warning shots toward their sailboat in the English Channel on Tuesday.`\
 https://www.nytimes.com/video/world/europe/100000010973495/british-couple-recount-russian-warship-warning-shots.html

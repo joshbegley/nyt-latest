@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000010974297/17vid-Trump-G7-27970.html
+
+**Tiny Love Stories: ‘Why Don’t You Both Get In?’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/06/17/style/tiny-modern-love-stories-why-dont-you-both-get-in.html
+
 **British Couple Recount Russian Warship Warning Shots**\
 `Jane and Alan Kelvey, a couple from Britain, spoke with the BBC after a Russian naval ship fired warning shots toward their sailboat in the English Channel on Tuesday.`\
 https://www.nytimes.com/video/world/europe/100000010973495/british-couple-recount-russian-warship-warning-shots.html
@@ -173,14 +181,6 @@ https://www.nytimes.com/video/embedded/admin/100000010973429/17vid-trump-obama-5
 ****\
 `tktktkt`\
 https://www.nytimes.com/video/embedded/business/100000010973506/Biz-Fertilizer-Cocoa.html
-
-**Unlikely Coalition Begins Campaign Against Billionaire Tax in California**\
-`A surprising array of left-leaning interest groups is trying to kill a wealth tax initiative before the November ballot is finalized. Gov. Gavin Newsom is at the center of negotiations.`\
-https://www.nytimes.com/2026/06/17/us/california-billionaire-tax-opponents.html
-
-**Prediction Markets’ Next Major Bet: Wall St. Traders**\
-`Platforms like Kalshi let millions wager on sports and pop culture. They’re now hoping institutions will use them for big-ticket trading like hedging.`\
-https://www.nytimes.com/2026/06/17/business/dealbook/hedging-prediction-markets-kalshi.html
 
 **World Cup Updates: At U.S. Stadiums, Boisterous Crowds and Redacted Logos**\
 `(No description)`\
