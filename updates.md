@@ -1,3 +1,11 @@
+**As Mourning Begins, Deadly B-52 Crash Highlights Age of Bomber Fleet**\
+`Investigators are just beginning to determine what went wrong, but the Air Force has struggled to maintain the planes, which were first introduced in 1955.`\
+https://www.nytimes.com/2026/06/16/us/b52-crash.html
+
+**Kevin Hern Wins Republican Primary for Oklahoma Senate Race**\
+`Mr. Hern, a congressman in the deep-red state, is now likely to be elected to the Senate to fill the seat of Markwayne Mullin, now the homeland security secretary.`\
+https://www.nytimes.com/2026/06/16/us/politics/oklahoma-senate-primary-election.html
+
 **U.S. Sues N.Y. State Over Troubled $11 Billion Home Health Care Program**\
 `The Justice Department accused officials of failing to police a vendor it said had siphoned off millions of dollars. A spokeswoman for Gov. Kathy Hochul called the suit an attempt to weaponize the justice system.`\
 https://www.nytimes.com/2026/06/16/nyregion/doj-new-york-health-care-lawsuit.html
