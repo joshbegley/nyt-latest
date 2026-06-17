@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000010973378/17vid-rutte-39696.html
+
 **The Battle Over A.I. in the Classroom**\
 `There are concerns about artificial intelligence’s risks to kids’ learning and critical thinking, and tech companies are pushing to get chatbots into schools.`\
 https://www.nytimes.com/2026/06/17/podcasts/the-daily/battle-over-ai-in-school.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/06/17/us/spokane-wildfire-evacuations.html
 **Private Jet Crashes on Highway in Laredo, Texas, Killing 1**\
 `The plane’s crew reported mechanical problems and low fuel as they flew to Austin, Texas, from Mexico. Five of the six people on board survived the crash in Laredo.`\
 https://www.nytimes.com/2026/06/17/us/laredo-plane-crash-texas.html
-
-**Plane Crashes on Texas Highway**\
-`People rushed to pull survivors from a private jet that crashed and caught fire on a highway in Laredo, Texas, on Tuesday night, leaving one dead.`\
-https://www.nytimes.com/video/us/100000010973156/laredo-plane-crash.html
 

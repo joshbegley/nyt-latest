@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000010973378/17vid-rutte-39696.html
+
 **Rachel Reeves, UK Chancellor, Confronts the Political Challenges of Fiscal Stability**\
 `Rachel Reeves came into office promising to adhere to strict rules on spending and borrowing. Two years later, a special election could determine if she will continue in her role.`\
 https://www.nytimes.com/2026/06/17/business/rachel-reeves-uk-debt.html
