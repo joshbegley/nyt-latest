@@ -1,3 +1,115 @@
+**Gilgo Beach Serial Killer Sentenced to Life Without Parole**\
+`The serial killer who admitted in April to murdering eight women in the so-called Gilgo Beach killings, was sentenced on Wednesday to life in prison.`\
+https://www.nytimes.com/video/us/100000010974398/gilgo-beach-serial-killer-sentencing.html
+
+****\
+`Activists and protesters erupted in cheers at the Georgia state capitol after lawmakers shelved redistricting plans.`\
+https://www.nytimes.com/video/embedded/us/politics/100000010974909/17vid-Georgia-Re-Districting.html
+
+**U.S. Will Waive Oil Sanctions That Have Long Crimped Iran**\
+`The preliminary U.S.-Iran deal temporarily waives restrictions that have limited the country’s oil sales and how much money it has been able to make from those exports.`\
+https://www.nytimes.com/2026/06/17/world/europe/us-iran-oil-sanctions.html
+
+**Tropical Storm Arthur Hits World Cup Attendees in Texas**\
+`Attendees lined up for the World Cup in Houston as Tropical Storm Arthur made landfall along the Texas coast on Wednesday.`\
+https://www.nytimes.com/video/weather/100000010974358/tropical-storm-arthur-texas-world-cup.html
+
+**Indiana Professor Who Taught Anti-White Supremacy Lesson Loses Job**\
+`The lesson included a slide that suggested that the “Make America Great Again” slogan should be considered a form of covert white supremacy.`\
+https://www.nytimes.com/2026/06/17/us/indiana-professor-white-supremacy-lesson-maga.html
+
+**Trump Feuds With Thune and G.O.P., Stoking Election-Year Rift**\
+`The president upended the majority leader’s plans by yanking his intelligence nominee from a confirmation hearing and insisting on an end to the filibuster.`\
+https://www.nytimes.com/2026/06/17/us/politics/trump-thune-republicans-election-year-rift.html
+
+**F.T.C. Sues Group That Advises on Transgender Medical Treatments**\
+`The group, World Professional Association for Transgender Health, offers guidelines on medical treatment for transgender patients.`\
+https://www.nytimes.com/2026/06/17/us/politics/ftc-wpath-transgender-medical-treatments.html
+
+**Mystikal, Louisiana Rapper, Sentenced to 20 Years in Rape Case**\
+`The Grammy-nominated musician pleaded guilty to third-degree rape after a woman told the police she was beaten and assaulted at his home in 2022.`\
+https://www.nytimes.com/2026/06/17/arts/music/mystikal-rape-prison-sentence.html
+
+**New Plan Scales Back C.D.C.’s Work on Diseases Abroad**\
+`The State Department is taking over much of the control of global health initiatives, for which critics say the department does not have the expertise.`\
+https://www.nytimes.com/2026/06/17/health/pepfar-cdc-cuts.html
+
+**Biden’s Re-Election Bid Was a ‘Terrible Mistake,’ Hillary Clinton Says**\
+`During an interview with The New Yorker’s editor, David Remnick, Hillary Clinton called Biden’s re-election bid a terrible mistake. The former first lady and presidential candidate also said that she believes that another Democratic candidate could have beaten President Trump.`\
+https://www.nytimes.com/video/us/elections/100000010973997/biden-clinton-2024-election.html
+
+**What Young Men Thought of Trump’s U.F.C. Fight**\
+`The spectacle seemed targeted to the young male voters drifting away from the president. Some were skeptical.`\
+https://www.nytimes.com/2026/06/17/style/trump-ufc-white-house-young-men.html
+
+**Trump Rescinds Endorsement of Right-Wing Pastor After Texting Scandal**\
+`The pastor, Jackson Lahmeyer, dropped out of the race for a House seat in Oklahoma as President Trump backed Mr. Lahmeyer’s Republican rival in a runoff election.`\
+https://www.nytimes.com/2026/06/17/us/politics/trump-lahmeyer-house-texting-scandal-tedford.html
+
+**Jamaica in Talks With U.S. to Temporarily Hold Deported Migrants**\
+`It was the latest in a slate of deals the Trump administration has pursued to expel migrants to countries to which they may have no personal ties.`\
+https://www.nytimes.com/2026/06/17/world/americas/jamaica-us-third-country-deportees.html
+
+**Kílian Jornet: Here’s What Keeps Me Going**\
+`When we choose to push forward in the face of physical suffering, we discover ourselves on the other side.`\
+https://www.nytimes.com/2026/06/17/special-series/kilian-jornet-endurance.html
+
+**The Democrats Need Better Candidates. This Guy Knows How to Find Them.**\
+`The 2024 election showed that the party is simply not large enough to command a majority of the country.`\
+https://www.nytimes.com/2026/06/17/opinion/democrats-platner-osborn-daniel-moraff.html
+
+**Trump Administration Shares Terms of Iran Deal Including Oil Export Waivers**\
+`The document leaves complicated issues like Iran’s nuclear program still to be decided and a 60-day window to determine them.`\
+https://www.nytimes.com/2026/06/17/world/middleeast/us-iran-deal-trump-hormuz-nuclear.html
+
+**‘Mistakes Are Made,’ Trump Says About Deadly U.S. Strikes on Iranian School**\
+`More than 100 days after U.S. airstrikes demolished an elementary school in the southern Iranian city of Minab, the president said the episode was still under investigation.`\
+https://www.nytimes.com/2026/06/17/world/europe/trump-iran-school-us-strike-minab.html
+
+**‘Why I Love the Beautiful Game’ With Tom Hiddleston**\
+`The Marvel actor discusses why he’s feeling bullish about England’s chances this summer.`\
+https://www.nytimes.com/2026/06/17/podcasts/why-i-love-the-beautiful-game-with-tom-hiddleston.html
+
+**Susan Collins Laments Roe’s Fall but Doesn’t ‘Regret’ Confirming Kavanaugh**\
+`Ms. Collins, a Republican in Maine facing a tough re-election battle, defended her vote to confirm Justice Brett M. Kavanaugh as Democrats look to capitalize on it politically.`\
+https://www.nytimes.com/2026/06/17/us/politics/susan-collins-defends-kavanaugh-vote.html
+
+**See how the first Fed statement under Warsh evolved.**\
+`Interest rates didn’t change, but the language in Fed’s policy statement, which it released alongside its rate decision today, certainly did.`\
+https://www.nytimes.com/2026/06/17/business/economy/kevin-warsh-fed-statement.html
+
+**What to Know if You’re Going to the Knicks Parade**\
+`New Yorkers will descend on Lower Manhattan on Thursday morning to celebrate the Knicks. Here’s what you should know if you are one of them.`\
+https://www.nytimes.com/2026/06/17/nyregion/how-to-go-knicks-parade-nyc.html
+
+**Trump Administration to Pay $765 Million to Cancel 4 More Wind Projects**\
+`It’s the third such deal the Interior Department has struck to pay firms to abandon plans for offshore turbines.`\
+https://www.nytimes.com/2026/06/17/climate/trump-wind-farms-cancel-millions.html
+
+**A Tropical Storm Came Ashore, but Houston’s Match ‘Dodged the Bullet’**\
+`Tropical Storm Arthur became the first named storm of the Atlantic season on Wednesday, but its rain and wind were moving away from Houston.`\
+https://www.nytimes.com/2026/06/17/us/world-cup-tropical-storm-arthur.html
+
+**Trump Upends G7 Summit With Statements on Iran Deal and Ukraine**\
+`At the Group of 7 gathering in France, President Trump’s oscillations on his Iran deal and Ukraine left European leaders racing to catch up.`\
+https://www.nytimes.com/2026/06/17/world/europe/trump-g7-europe.html
+
+**Trump’s Threats Show His Complicated History With a Surveillance Law**\
+`The administration argues that FISA Section 702 must be renewed to preserve national security, but the president himself has threatened to veto it.`\
+https://www.nytimes.com/2026/06/17/us/politics/trump-fisa-history.html
+
+**Eight Victims Named in Deadly B-52 Crash in California**\
+`All eight crew members died when the bomber crashed during a routine test mission at a military base in California on Monday.`\
+https://www.nytimes.com/2026/06/17/us/what-we-know-b52-crash-victims-california.html
+
+**N.Y.P.D. Will Assign Largest Number of Officers Ever to Knicks Parade**\
+`The department announced that it would deploy more than 10,000 of its ranks and put stringent security measures in place for the celebration of the Knicks’ N.B.A. championship on Thursday.`\
+https://www.nytimes.com/2026/06/17/nyregion/knicks-parade-security-new-york-police.html
+
+**Watch Live: Fed Chair Holds News Conference on Interest Rate Decision**\
+`The Federal Reserve chairman, Kevin M. Warsh, holds a news conference after a two-day policy meeting.`\
+https://www.nytimes.com/video/embedded/us/100000010973869/watch-live-fed-chair-holds-news-conference-on-interest-rate-decision.html
+
 **Lost Oregon Hiker Fell to Death From Cliff on Alaska Trail, Troopers Say**\
 `Emergency responders found the body of a man partially submerged at the bottom of a cliff in Ketchikan on Monday, the authorities said.`\
 https://www.nytimes.com/2026/06/17/us/oregon-hiker-dead-cliff-alaska.html
@@ -78,111 +190,7 @@ https://www.nytimes.com/2026/06/17/us/politics/gabbard-pullte-elections.html
 `The Ultimate Fighting Championship star said his priority was walking again after shattering his leg, and he confirmed elements of a New York Times article about how he came to use banned substances.`\
 https://www.nytimes.com/2026/06/17/us/politics/conor-mcgregor-banned-drugs.html
 
-**EE. UU. no tiene ‘nada que ver’ con la guerra en Ucrania, dice Trump en la cumbre del G7**\
-`La cumbre buscaba dirigir la atención a la guerra en Ucrania, pero el presidente Trump dejó claro que el conflicto ya no estaba en su lista de prioridades.`\
-https://www.nytimes.com/es/2026/06/17/espanol/mundo/cumbre-g7-trump-ucrania-rusia.html
-
-**Western Europe Braces for Another Round of Heat**\
-`After an early heat wave in May, people in France, Germany, Italy and other countries are again looking for respite.`\
-https://www.nytimes.com/2026/06/17/travel/heat-wave-western-europe.html
-
-**Elon Musk’s Next Move May Be a Mega-Merger of SpaceX and Tesla**\
-`Some shareholders might object, but there is little they could do, legal experts say.`\
-https://www.nytimes.com/2026/06/17/business/spacex-tesla-merger-elon-musk.html
-
-**Map: 4.6-Magnitude Earthquake Shakes Hawaii**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/06/17/us/quake-tracker-hawaii.html
-
-**Finland Lifts a Nuclear Device Ban, Eyeing an Uncertain World**\
-`The Nordic country, which shares an 830-mile border with Russia, said the move would strengthen the NATO alliance, which it joined three years ago.`\
-https://www.nytimes.com/2026/06/17/world/europe/finland-nuclear-devices.html
-
-**Political Spotlight Shines on Warsh for His First Fed Meeting as Chairman**\
-`The new Fed chairman is bound to face the unyielding attention of the president that nominated him.`\
-https://www.nytimes.com/2026/06/17/business/economy/fed-chair-meeting-warsh-trump.html
-
-**La República Democrática del Congo vuelve con estilo al Mundial**\
-`Los elegantes trajes negros de las estrellas del fútbol, con detalles de estampado de leopardo, son un guiño a la larga tradición de la moda “sapeur”.`\
-https://www.nytimes.com/es/2026/06/17/espanol/deportes/mundial-congo-moda-portugal.html
-
-**Choosing How to Kill Death Row Inmates**\
-`In a rare ruling for a condemned prisoner, the justices would not let Alabama use a contested method of execution.`\
-https://www.nytimes.com/2026/06/17/us/politics/the-docket-death-row.html
-
-**Las negociaciones de Trump con Irán están a la sombra del acuerdo de Obama**\
-`El presidente Trump está bajo presión para mejorar significativamente el acuerdo de la época de Obama y así justificar el enorme costo humano y económico que supuso llevar a Estados Unidos a la guerra.`\
-https://www.nytimes.com/es/2026/06/17/espanol/estados-unidos/obama-acuerdo-nuclear-trump-iran.html
-
-**Live Updates: Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
+**Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
 `Chairman Kevin M. Warsh vowed to start a “new chapter” in the Federal Reserve’s oversight of the U.S. economy.`\
 https://www.nytimes.com/live/2026/06/17/business/fed-meeting-warsh-interest-rates
-
-**My Nephew’s Comedy Routine Skewers His Grandma. Should the Adults Be Laughing?**\
-`My brother even shared a video of the bit in the family group chat.`\
-https://www.nytimes.com/2026/06/17/magazine/nephews-comedy-routine-grandma-ethics.html
-
-**Intelligence Officials Have Welcomed Pulte and Then Clayton**\
-`The two, whom President Trump nominated as acting director and director of national intelligence, have both prepared to take over the office.`\
-https://www.nytimes.com/2026/06/17/us/politics/intelligence-pulte-clayton.html
-
-**Preserving George Washington’s Legacy With 18th-Century Craft**\
-`In preparation for the nation’s 250th anniversary, historical institutions across the country are restoring or recreating items associated with George Washington using materials, tools and techniques from the time of the American Revolution.`\
-https://www.nytimes.com/video/arts/design/100000010971094/george-washington-artisan-craft.html
-
-**How the ‘Hard Fork’ Hosts Bring Their Tech Podcast to a Live Audience**\
-`Kevin Roose and Casey Newton explain why they try to include “a little chaos” when they record their New York Times tech podcast in front of a crowd in San Francisco.`\
-https://www.nytimes.com/2026/06/17/insider/hard-fork-podcast-live-audience-san-francisco.html
-
-**Stars of Israel’s TV Channel for Bibi Fans Turn on Trump**\
-`Leading figures from Channel 14, a right-wing broadcaster that supports Prime Minister Benjamin Netanyahu, are openly attacking the U.S. president over his Iran deal.`\
-https://www.nytimes.com/2026/06/17/world/middleeast/israel-channel-14-trump-criticism.html
-
-**Cory Stearns, American Ballet Theater Star, on Retirement and the Pains of Aging**\
-`Stearns, a longtime principal at American Ballet Theater, has stepped down. He talks about being pushed to leave and the pains and boons of growing older.`\
-https://www.nytimes.com/2026/06/17/arts/dance/cory-stearns-american-ballet-theater-retirement.html
-
-**Shane Hennen, the One Man Linking 3 Gambling Scandals, Is Ready to Talk**\
-`The N.B.A. and the N.C.A.A. have been rocked by indictments accusing players and others of fixing bets and playing in rigged poker games. Shane Hennen is named in each one.`\
-https://www.nytimes.com/2026/06/17/nyregion/shane-hennen-gambling-nba.html
-
-**Mangione to Use Emotional Disturbance as Defense in N.Y. Murder Trial**\
-`Luigi Mangione, who was accused of killing a health care executive in Manhattan in 2024, faces both state and federal charges.`\
-https://www.nytimes.com/2026/06/17/nyregion/mangione-emotional-disturbance-state-trial.html
-
-**Today, In Short**\
-`Summer plans. Hugo spritzes. And the secret to the best pancakes.`\
-https://www.nytimes.com/2026/06/17/briefing/today-in-short.html
-
-**No-Cook Tzatziki Chickpea Salad? Yes, Please.**\
-`Hetty Lui McKinnon’s five-star salad is wonderfully cooling.`\
-https://www.nytimes.com/2026/06/17/dining/no-cook-tzatziki-chickpea-salad-yes-please.html
-
-**We Ran the Numbers. Remote Work Is Bad for Us.**\
-`Despite its advantages, work-from-home arrangements have significantly deepened Americans’ isolation and distress.`\
-https://www.nytimes.com/2026/06/17/opinion/remote-work-depression.html
-
-**A Deadly Outbreak of Plague, Nearly 5,000 Years Before the Black Death**\
-`The oldest known cases, discovered among hunter-gatherers in Siberian graves, contradict the theory that the disease once was mild.`\
-https://www.nytimes.com/2026/06/17/science/oldest-plague-siberian-skeletons.html
-
-**Allowing Iran to Charge Fees in Strait of Hormuz Would Set ‘Dangerous Precedent,’ Maersk CEO Says**\
-`With the United States and Iran nearing a deal to reopen the Persian Gulf, the shipping giant is treading cautiously.`\
-https://www.nytimes.com/2026/06/17/business/maersk-strait-hormuz-shipping-fees-iran-war.html
-
-**California’s Vote Count: How Slowness Invites Suspicion Even When It’s Not Sketchy**\
-`California’s crawling pace after election night can make normal statistical shifts seem like fraud.`\
-https://www.nytimes.com/2026/06/17/upshot/california-slow-election-results.html
-
-**Anthropic Employees Accuse Trump Administration of Targeting Them**\
-`Workers at the artificial intelligence company have been puzzled and increasingly concerned by the administration’s move to limit their latest A.I. models.`\
-https://www.nytimes.com/2026/06/17/technology/anthropic-trump-administration-fable.html
-
-**Why Waymo’s Driverless Taxis Won’t Be on Your Streets Anytime Soon**\
-`The Silicon Valley company’s ambitions to roll out autonomous cars nationwide have hit political roadblocks in some of the country’s biggest markets.`\
-https://www.nytimes.com/2026/06/17/technology/waymo-driverless-taxis-politics.html
-
-**Trump Angrily Defends Iran Deal and Reveals, Again, His Obsession With Obama**\
-`President Trump denied that the United States would be part of a $300 billion rebuilding fund for Iran and argued that his agreement was better than the one Barack Obama struck in 2015.`\
-https://www.nytimes.com/2026/06/17/us/politics/trump-iran-peace-deal-obama.html
 
