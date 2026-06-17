@@ -1,3 +1,7 @@
+**One Dead and Another Hurt in Shooting at Hospital in Wilmington, Del.**\
+`The police have arrested a suspect, and an earlier lockdown at Wilmington Hospital has been lifted.`\
+https://www.nytimes.com/2026/06/16/us/wilmington-delaware-hospital-shooting.html
+
 **NYT Crossword Answers for June 17, 2026**\
 `Jonathan Raksin bets he can best us.`\
 https://www.nytimes.com/2026/06/16/crosswords/daily-puzzle-2026-06-17.html
