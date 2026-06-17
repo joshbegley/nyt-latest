@@ -1,3 +1,15 @@
+**France Assembled an African Dream Team. Senegal Could Not Stop Them.**\
+`Many see the rivalry between France and Senegal as a result of colonial heritage. But at the same time, European teams are more African than ever.`\
+https://www.nytimes.com/2026/06/17/world/africa/france-senegal-world-cup-africa.html
+
+**Federal Reserve Holds Interest Rates Steady**\
+`In his first news conference as the Federal Reserve chair, Kevin Warsh announced that interest rates would remain unchanged.`\
+https://www.nytimes.com/video/us/100000010974839/fed-warsh-interest-rates-decision.html
+
+**The Race to Save Survivors After a Texas Plane Crash**\
+`One woman’s video captured rescuers rushing to the small jet, which crashed on a Laredo highway. Five people escaped the wreckage, and one died.`\
+https://www.nytimes.com/2026/06/17/us/laredo-texas-plane-crash.html
+
 **Trump Escalates Tensions With Senate Republicans**\
 `Also, the U.S. shares details of the preliminary Iran deal. Here’s the latest at the end of Wednesday.`\
 https://www.nytimes.com/2026/06/17/briefing/trump-senate-republicans-us-iran-deal.html
@@ -177,18 +189,6 @@ https://www.nytimes.com/video/embedded/us/politics/100000010974481/17vid-Trump-G
 **Georgia Republicans Shelve Redistricting as Anger Grows**\
 `The leaders of the Georgia legislature pulled the plug on gerrymandering away U.S. House seats held by Black Democrats just hours before a special session was to begin.`\
 https://www.nytimes.com/2026/06/17/us/politics/georgia-republicans-redistricting.html
-
-**Trump Says His Iran Deal Is Better Than Obama’s**\
-`Speaking on the final day of the G7 summit in France, President Trump used an expletive to describe the nuclear deal President Obama brokered with Iran. Mr. Trump is under pressure to deliver a deal that would justify taking the United States to war.`\
-https://www.nytimes.com/video/world/europe/100000010974171/trump-iran-deal-obama.html
-
-**Richard Tapia, Mathematician Who Pushed to Diversify His Field, Dies at 88**\
-`A math whiz as a young man, he later blazed trails, both with his theoretical advances and his advocacy for minority students.`\
-https://www.nytimes.com/2026/06/17/science/richard-a-tapia-dead.html
-
-**A.I.: Artificial or Awesome?**\
-`Fenix Flexin’s new ’80s-pop single “RUBBERZ” sounds miles away from the hip-hop he’s known for as part of Shoreline Mafia. Our critic Jon Caramanica discusses the track and the online debate over whether it was A.I.-generated.`\
-https://www.nytimes.com/video/podcasts/100000010974327/ai-artificial-or-awesome.html
 
 **Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
 `Chairman Kevin M. Warsh vowed to start a “new chapter” in the Federal Reserve’s oversight of the U.S. economy.`\
