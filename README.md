@@ -1,3 +1,11 @@
+**Anthropic Employees Accuse Trump Administration of Targeting Them**\
+`Workers at the artificial intelligence company have been puzzled and increasingly concerned by the administration’s move to limit their latest A.I. models.`\
+https://www.nytimes.com/2026/06/17/technology/anthropic-trump-administration-fable.html
+
+**Why Waymo’s Driverless Taxis Won’t Be on Your Streets Anytime Soon**\
+`The Silicon Valley company’s ambitions to roll out autonomous cars nationwide have hit political roadblocks in some of the country’s biggest markets.`\
+https://www.nytimes.com/2026/06/17/technology/waymo-driverless-taxis-politics.html
+
 **Trump Angrily Defends Iran Deal, Belittling the One Obama Signed**\
 `President Trump denied that the United States would be part of a $300 billion rebuilding fund for Tehran and argued that his agreement was better than the one Barack Obama struck in 2015.`\
 https://www.nytimes.com/2026/06/17/us/politics/trump-iran-peace-deal-obama.html
@@ -79,7 +87,7 @@ https://www.nytimes.com/video/embedded/world/europe/100000010973423/17vid-trump-
 https://www.nytimes.com/2026/06/17/us/politics/senate-intelligence-nomination-voter-restrictions.html
 
 **What Could Happen in Iran?**\
-`Intro TK: minus “good morning”`\
+`Three Times reporters examine the possibilities.`\
 https://www.nytimes.com/2026/06/17/briefing/what-could-happen-in-iran.html
 
 **‘Hard Fork’ Live Part 2: Dylan Field on Standing Out in the A.I. Era**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/17/us/politics/jon-ossoff-georgia-senate-electio
 **Modern Love Julian Brave NoiseCat on Getting High With His Dad**\
 `It took a painful reckoning with history, and a lot of cannabis, to bring Julian Brave NoiseCat and his father back together.`\
 https://www.nytimes.com/2026/06/17/podcasts/how-getting-stoned-with-my-dad-helped-us-heal.html
-
-**The U.S. Economy Is Leaving Small Businesses Behind**\
-`Small businesses say relentless pressures from tariffs and higher energy prices have sapped their resilience and finances.`\
-https://www.nytimes.com/2026/06/17/business/economy/small-business-strain-economy.html
-
-**Ukraine Tries to Cut Off Crimea, Choking Russian Supply Routes**\
-`Scores of targeted attacks against supply routes, part of what Kyiv calls a “logistics lockdown,” has caused gasoline shortages.`\
-https://www.nytimes.com/2026/06/17/world/europe/russia-ukraine-crimea-fuel-shortages.html
 
