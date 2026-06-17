@@ -1,3 +1,7 @@
+**Europa dice estar lista para ayudar en el estrecho de Ormuz**\
+`Una coalición liderada por el Reino Unido y Francia se ha estado preparando para enviar dragaminas y otros barcos para garantizar la seguridad cuando se reanude el tráfico. El momento podría haber llegado.`\
+https://www.nytimes.com/es/2026/06/16/espanol/mundo/europa-estrecho-ormuz-guerra-iran.html
+
 **Penny Brown Reynolds Wins Democratic Runoff for Georgia Secretary of State**\
 `Penny Brown Reynolds, a former judge, defeated Dana Barrett ahead of a potentially fraught general election to see who will succeed Brad Raffensperger as secretary of state.`\
 https://www.nytimes.com/2026/06/16/us/politics/georgia-secretary-state-democrat-reynolds.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/interactive/2026/06/16/realestate/17re-wyg-quiz.html
 **After a Bitter Split, European Leaders Play Nice With Trump**\
 `A peace framework with Iran, and hope for cooperation with Ukraine, softened the tone on Tuesday at a Group of 7 gathering in France.`\
 https://www.nytimes.com/2026/06/16/world/europe/trump-g7-leaders-europe.html
-
-**Ben Kiernan: What Drives Leaders to Commit Genocide?**\
-`The ideologies behind some of history’s most horrific acts are well documented — and predictable.`\
-https://www.nytimes.com/2026/06/16/special-series/ben-kiernan-genocide-ideology.html
 

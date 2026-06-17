@@ -1,3 +1,11 @@
+**Penny Brown Reynolds Wins Democratic Runoff for Georgia Secretary of State**\
+`Penny Brown Reynolds, a former judge, defeated Dana Barrett ahead of a potentially fraught general election to see who will succeed Brad Raffensperger as secretary of state.`\
+https://www.nytimes.com/2026/06/16/us/politics/georgia-secretary-state-democrat-reynolds.html
+
+**Tim Fleming Wins GOP Runoff for Georgia Secretary of State**\
+`State Representative Tim Fleming defeated an ardent denier of the 2020 election results, Vernon Jones, in the Republican runoff to be Georgia’s top election official.`\
+https://www.nytimes.com/2026/06/16/us/politics/georgia-secretary-state-republican-fleming.html
+
 **Civil Rights Official Wins Democratic Runoff for Georgia Elections Chief**\
 `Penny Brown Reynolds, a former judge, defeated Dana Barrett ahead of a potentially fraught general election to see who will succeed Brad Raffensperger as secretary of state.`\
 https://www.nytimes.com/2026/06/16/us/politics/georgia-secretary-state-democrat-reynolds.html
