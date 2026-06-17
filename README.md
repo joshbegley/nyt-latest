@@ -1,3 +1,7 @@
+**U.S. Sues N.Y. State Over Troubled $11 Billion Home Health Care Program**\
+`The Justice Department accused officials of failing to police a vendor it said had siphoned off millions of dollars. A spokeswoman for Gov. Kathy Hochul called the suit an attempt to weaponize the justice system.`\
+https://www.nytimes.com/2026/06/16/nyregion/doj-new-york-health-care-lawsuit.html
+
 **Mike Collins Wins Republican Primary Runoff for Senate in Georgia**\
 `President Trump had made a late endorsement for Mr. Collins, who had campaigned as a MAGA candidate also able to appeal to moderates.`\
 https://www.nytimes.com/2026/06/16/us/politics/georgia-senate-republican-runoff.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/16/us/politics/doj-national-guard-shooting.html
 **How a Deal to End the War in Iran Could Affect Energy Prices**\
 `The latest on a tentative deal to end the war in Iran, the Justice Department tries to stop a lawsuit against Elon Musk’s A.I. company and more climate news.`\
 https://www.nytimes.com/2026/06/16/climate/iran-war-energy-prices.html
-
-**Ebola Outbreak Could Become Worst on Record, Africa C.D.C. Chief Warns**\
-`Health workers have warned that the outbreak, already one of the worst in decades, could take as long as a year to contain if infection rates do not flatten.`\
-https://www.nytimes.com/2026/06/16/world/africa/ebola-outbreak-congo.html
 
