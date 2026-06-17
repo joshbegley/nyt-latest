@@ -2,7 +2,7 @@
 `The result sets up a Republican primary runoff between a right-wing firebrand and a more traditional candidate.`\
 https://www.nytimes.com/2026/06/16/us/politics/oklahoma-mark-tedford-jackson-lahmeyer.html
 
-**Rep. Barry Moore Wins G.O.P. Senate Primary in Alabama, Holding Off Challenger**\
+**Rep. Barry Moore Wins Senate Primary in Alabama, Holding Off Challenger**\
 `The contest to fill Alabama’s open Senate seat had become closer than expected between the House lawmaker and Jared Hudson, a political newcomer.`\
 https://www.nytimes.com/2026/06/16/us/elections/alabama-senate-republican-moore.html
 
