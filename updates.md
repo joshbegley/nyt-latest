@@ -1,3 +1,23 @@
+**Mangione to Use Emotional Disturbance as Defense in N.Y. Murder Trial**\
+`Luigi Mangione, who was accused of killing a health care executive in Manhattan in 2024, faces both state and federal charges.`\
+https://www.nytimes.com/2026/06/17/nyregion/mangione-emotional-disturbance-state-trial.html
+
+**Today, In Short**\
+`Summer plans. Hugo spritzes. And the secret to the best pancakes.`\
+https://www.nytimes.com/2026/06/17/briefing/today-in-short.html
+
+**No-Cook Tzatziki Chickpea Salad? Yes, Please.**\
+`Hetty Lui McKinnon’s five-star salad is wonderfully cooling.`\
+https://www.nytimes.com/2026/06/17/dining/no-cook-tzatziki-chickpea-salad-yes-please.html
+
+**We Ran the Numbers. Remote Work Is Bad for Us.**\
+`Despite its advantages, work-from-home arrangements have significantly deepened Americans’ isolation and distress.`\
+https://www.nytimes.com/2026/06/17/opinion/remote-work-depression.html
+
+**A Deadly Outbreak of Plague, Nearly 5,000 Years Before the Black Death**\
+`The oldest known cases, discovered among hunter-gatherers in Siberian graves, contradict the theory that the disease once was mild.`\
+https://www.nytimes.com/2026/06/17/science/oldest-plague-siberian-skeletons.html
+
 **Allowing Iran to Charge Fees in Strait of Hormuz Would Set ‘Dangerous Precedent,’ Maersk CEO Says**\
 `With the United States and Iran nearing a deal to reopen the Persian Gulf, the mega shipping firm is treading cautiously.`\
 https://www.nytimes.com/2026/06/17/business/maersk-strait-hormuz-shipping-fees-iran-war.html
