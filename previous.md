@@ -1,3 +1,11 @@
+**Mike Collins Wins Republican Primary Runoff for Senate in Georgia**\
+`President Trump had made a late endorsement for Mr. Collins, who had campaigned as a MAGA candidate also able to appeal to moderates.`\
+https://www.nytimes.com/2026/06/16/us/politics/georgia-senate-republican-runoff.html
+
+**Independence Day Events Will Ground Flights in Washington**\
+`The runways at Ronald Reagan National Airport will be closed after noon on July 4, and for several hours on July 3. Other celebrations surrounding the nation’s 250th birthday are also expected to cause disruptions.`\
+https://www.nytimes.com/2026/06/16/us/politics/independence-day-flight-disruptions-washington.html
+
 **Europa dice estar lista para ayudar en el estrecho de Ormuz**\
 `Una coalición liderada por el Reino Unido y Francia se ha estado preparando para enviar dragaminas y otros barcos para garantizar la seguridad cuando se reanude el tráfico. El momento podría haber llegado.`\
 https://www.nytimes.com/es/2026/06/16/espanol/mundo/europa-estrecho-ormuz-guerra-iran.html
@@ -146,8 +154,8 @@ https://www.nytimes.com/es/2026/06/16/espanol/deportes/mexico-mundial-pato-merli
 `Two Belarusian men were in custody as part of an investigation into the killing of the exiled painter Robert Kuzovkov.`\
 https://www.nytimes.com/2026/06/16/world/europe/russian-artist-putin-killed-poland.html
 
-**Election Live Updates: Results Come In After Polls Close in Georgia, Alabama and Oklahoma**\
-`Republicans in Georgia voted to pick a nominee to challenge Senator Jon Ossoff, a Democrat, and another to run for governor. The nation’s capital is holding a primary to succeed Mayor Muriel Bowser, who is not seeking re-election.`\
+**Election Live Updates: Mike Collins Wins G.O.P. Nomination to Challenge Jon Ossoff in Georgia**\
+`Primary results for Senate and governor are arriving in Alabama, Oklahoma and Georgia. The nation’s capital is holding a primary to succeed Mayor Muriel Bowser, who is not seeking re-election.`\
 https://www.nytimes.com/live/2026/06/16/us/georgia-oklahoma-alabama-elections
 
 **The Battle With Anthropic Is the Start of a New Kind of Conflict**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/16/climate/iran-war-energy-prices.html
 **Ebola Outbreak Could Become Worst on Record, Africa C.D.C. Chief Warns**\
 `Health workers have warned that the outbreak, already one of the worst in decades, could take as long as a year to contain if infection rates do not flatten.`\
 https://www.nytimes.com/2026/06/16/world/africa/ebola-outbreak-congo.html
-
-**Let’s See What Readers Think**\
-`Which one is your favorite?`\
-https://www.nytimes.com/interactive/2026/06/16/realestate/17re-wyg-quiz.html
-
-**After a Bitter Split, European Leaders Play Nice With Trump**\
-`A peace framework with Iran, and hope for cooperation with Ukraine, softened the tone on Tuesday at a Group of 7 gathering in France.`\
-https://www.nytimes.com/2026/06/16/world/europe/trump-g7-leaders-europe.html
 
