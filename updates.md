@@ -1,3 +1,87 @@
+**The Trump U.F.C. Fights Helped Me Understand My Sons**\
+`In my darker moments, I worry I’ve failed them.`\
+https://www.nytimes.com/2026/06/17/opinion/ufc-trump-fight-white-house-birthday.html
+
+**Congo Returns to World Cup in High Style After 52 Years Away**\
+`The soccer stars’ sharp black suits with leopard-print details are a nod to a long history of “sapeur” fashion.`\
+https://www.nytimes.com/2026/06/17/world/africa/congo-team-world-cup-soccer-leopard-fashion-sapeur.html
+
+**Congo’s World Cup Team Stuns in Suits With Leopard Print**\
+`The Congolese men’s soccer team arrived in Texas for the World Cup, sporting suits with leopard-print details.`\
+https://www.nytimes.com/video/sports/soccer/100000010971025/world-cup-congo-fashion-soccer.html
+
+**What to Know About Redistricting Efforts Underway in Georgia**\
+`Georgia is the latest Southern state where lawmakers have taken up redrawing congressional maps after the Supreme Court’s voting rights ruling.`\
+https://www.nytimes.com/2026/06/17/us/politics/georgia-redistricting-special-session.html
+
+**Britain’s Finance Chief Confronts the Political Challenges of Fiscal Stability**\
+`Rachel Reeves came into office promising to adhere to strict rules on spending and borrowing. Two years later, a special election could determine if she will continue in her role.`\
+https://www.nytimes.com/2026/06/17/business/rachel-reeves-uk-debt.html
+
+**This Teacher Has Doubts About A.I. But He Won a Prize Using It.**\
+`Ian Weissman, a social studies teacher in Manhattan, used A.I. for history projects. He said it’s still “the wild West” in figuring out how to regulate the tools.`\
+https://www.nytimes.com/2026/06/17/nyregion/teacher-prize-artificial-intelligence.html
+
+**World Cup Fans Share Videos of Them Trying American Food. They’re a Hit.**\
+`Social media dispatches from travelers headed to matches appreciate the more mundane parts of American life. They’re a hit.`\
+https://www.nytimes.com/2026/06/17/style/world-cup-tourists-american-food-tiktok.html
+
+**Air Conditioning Quiz: Do You Know How to Keep Your Home Cool?**\
+`Test your knowledge of how air-conditioning works and how to keep your space (and yourself) cool this season.`\
+https://www.nytimes.com/2026/06/17/realestate/air-conditioners-efficiency-tips-heat.html
+
+**Is Georgia Senator Jon Ossoff Running for President? He Has to Win Re-election First.**\
+`The 39-year-old senator has become an internet sensation for Democrats seeking a 2028 contender. He says he’s focused on winning a second term in November.`\
+https://www.nytimes.com/2026/06/17/us/politics/jon-ossoff-georgia-senate-election.html
+
+**Modern Love Julian Brave NoiseCat on Getting High With His Dad**\
+`It took a painful reckoning with history, and a lot of cannabis, to bring Julian Brave NoiseCat and his father back together.`\
+https://www.nytimes.com/2026/06/17/podcasts/how-getting-stoned-with-my-dad-helped-us-heal.html
+
+**The U.S. Economy Is Leaving Small Businesses Behind**\
+`Small businesses say relentless pressures from tariffs and higher energy prices have sapped their resilience and finances.`\
+https://www.nytimes.com/2026/06/17/business/economy/small-business-strain-economy.html
+
+**Ukraine Tries to Cut Off Crimea, Choking Russian Supply Routes**\
+`Scores of targeted attacks against supply routes, part of what Kyiv calls a “logistics lockdown,” has caused gasoline shortages.`\
+https://www.nytimes.com/2026/06/17/world/europe/russia-ukraine-crimea-fuel-shortages.html
+
+**‘Backrooms’ and ‘Obsession’ Disrupt the 2026 Summer Box Office**\
+`“Backrooms” and “Obsession,” two breakout horror films from first-time directors in their 20s, have arguably redefined what a summer blockbuster can be.`\
+https://www.nytimes.com/2026/06/17/business/media/obsession-backrooms-summer-box-office-charts.html
+
+**Pick Your Favorite $1.875 Million Home in Wisconsin, Massachusetts or Washington**\
+`A converted firehouse in Milwaukee, an 19th-century house in Salem, Mass., and a house with water and mountain views on Bainbridge Island, Wash.`\
+https://www.nytimes.com/2026/06/17/realestate/homes-for-sale-in-wisconsin-massachusetts-and-washington.html
+
+**Seven Takeaways From the First World Cup Games at U.S. Venues**\
+`The crowds have been big, the fans rabid and the lines, well, long. Here’s a glimpse of the atmosphere at sites across the country as the tournament started.`\
+https://www.nytimes.com/2026/06/17/us/takeaways-world-cup-us-stadiums.html
+
+**Who Will Get Spirit Airlines’ Coveted Flights at LaGuardia?**\
+`A bankruptcy court has started the process to sell the airline’s right to fly to and from the New York City airport, but finding a buyer could be hard.`\
+https://www.nytimes.com/2026/06/17/business/spirit-airlines-laguardia-airport.html
+
+**A New Magazine With Political Heft, and ‘Real Style’**\
+`Equator, a new magazine with editors based across the globe, hosted a launch party in a ballroom in Manhattan’s Chinatown.`\
+https://www.nytimes.com/2026/06/17/style/equator-magazine-launch-party.html
+
+**El nuevo mensaje de China a sus ciudadanos: tu dinero debe quedarse en casa**\
+`En las últimas semanas, Pekín ha tomado medidas para cerrar los canales informales entre los hogares chinos y los mercados de capitales globales.`\
+https://www.nytimes.com/es/2026/06/17/espanol/mundo/restricciones-inversiones-chinos.html
+
+**Dear A.I. Companies: The Doom Trolling Needs to Stop**\
+`The major A.I. companies keep telling us how dangerous their new models can be, yet they must keep on building them.`\
+https://www.nytimes.com/2026/06/17/opinion/ai-dangerous-openai-anthropic.html
+
+**If You Don’t Vote for Republicans, You Don’t Exist**\
+`“Voter fraud” is not about fraud. It is about who votes and how.`\
+https://www.nytimes.com/2026/06/17/opinion/trump-pratt-voter-fraud-republicans.html
+
+**Matthew Rhys, of ‘Widow’s Bay,’ Is on a Boat. Barely.**\
+`The star of this seafaring horror-comedy, which wraps up Season 1 on Wednesday, also spends his downtime on the water.`\
+https://www.nytimes.com/2026/06/17/arts/television/matthew-rhys-of-widows-bay-is-on-a-boat-barely.html
+
 **How Republicans Are Breaking Up Majority-Black Districts**\
 `Here’s a look at how Louisiana, Alabama and Tennessee broke up majority-Black districts after the Supreme Court weakened the Voting Rights Act.`\
 https://www.nytimes.com/interactive/2026/06/17/us/elections/redistricting-maps-black-voters-republicans.html

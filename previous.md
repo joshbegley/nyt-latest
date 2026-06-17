@@ -1,3 +1,87 @@
+**The Trump U.F.C. Fights Helped Me Understand My Sons**\
+`In my darker moments, I worry I’ve failed them.`\
+https://www.nytimes.com/2026/06/17/opinion/ufc-trump-fight-white-house-birthday.html
+
+**Congo Returns to World Cup in High Style After 52 Years Away**\
+`The soccer stars’ sharp black suits with leopard-print details are a nod to a long history of “sapeur” fashion.`\
+https://www.nytimes.com/2026/06/17/world/africa/congo-team-world-cup-soccer-leopard-fashion-sapeur.html
+
+**Congo’s World Cup Team Stuns in Suits With Leopard Print**\
+`The Congolese men’s soccer team arrived in Texas for the World Cup, sporting suits with leopard-print details.`\
+https://www.nytimes.com/video/sports/soccer/100000010971025/world-cup-congo-fashion-soccer.html
+
+**What to Know About Redistricting Efforts Underway in Georgia**\
+`Georgia is the latest Southern state where lawmakers have taken up redrawing congressional maps after the Supreme Court’s voting rights ruling.`\
+https://www.nytimes.com/2026/06/17/us/politics/georgia-redistricting-special-session.html
+
+**Britain’s Finance Chief Confronts the Political Challenges of Fiscal Stability**\
+`Rachel Reeves came into office promising to adhere to strict rules on spending and borrowing. Two years later, a special election could determine if she will continue in her role.`\
+https://www.nytimes.com/2026/06/17/business/rachel-reeves-uk-debt.html
+
+**This Teacher Has Doubts About A.I. But He Won a Prize Using It.**\
+`Ian Weissman, a social studies teacher in Manhattan, used A.I. for history projects. He said it’s still “the wild West” in figuring out how to regulate the tools.`\
+https://www.nytimes.com/2026/06/17/nyregion/teacher-prize-artificial-intelligence.html
+
+**World Cup Fans Share Videos of Them Trying American Food. They’re a Hit.**\
+`Social media dispatches from travelers headed to matches appreciate the more mundane parts of American life. They’re a hit.`\
+https://www.nytimes.com/2026/06/17/style/world-cup-tourists-american-food-tiktok.html
+
+**Air Conditioning Quiz: Do You Know How to Keep Your Home Cool?**\
+`Test your knowledge of how air-conditioning works and how to keep your space (and yourself) cool this season.`\
+https://www.nytimes.com/2026/06/17/realestate/air-conditioners-efficiency-tips-heat.html
+
+**Is Georgia Senator Jon Ossoff Running for President? He Has to Win Re-election First.**\
+`The 39-year-old senator has become an internet sensation for Democrats seeking a 2028 contender. He says he’s focused on winning a second term in November.`\
+https://www.nytimes.com/2026/06/17/us/politics/jon-ossoff-georgia-senate-election.html
+
+**Modern Love Julian Brave NoiseCat on Getting High With His Dad**\
+`It took a painful reckoning with history, and a lot of cannabis, to bring Julian Brave NoiseCat and his father back together.`\
+https://www.nytimes.com/2026/06/17/podcasts/how-getting-stoned-with-my-dad-helped-us-heal.html
+
+**The U.S. Economy Is Leaving Small Businesses Behind**\
+`Small businesses say relentless pressures from tariffs and higher energy prices have sapped their resilience and finances.`\
+https://www.nytimes.com/2026/06/17/business/economy/small-business-strain-economy.html
+
+**Ukraine Tries to Cut Off Crimea, Choking Russian Supply Routes**\
+`Scores of targeted attacks against supply routes, part of what Kyiv calls a “logistics lockdown,” has caused gasoline shortages.`\
+https://www.nytimes.com/2026/06/17/world/europe/russia-ukraine-crimea-fuel-shortages.html
+
+**‘Backrooms’ and ‘Obsession’ Disrupt the 2026 Summer Box Office**\
+`“Backrooms” and “Obsession,” two breakout horror films from first-time directors in their 20s, have arguably redefined what a summer blockbuster can be.`\
+https://www.nytimes.com/2026/06/17/business/media/obsession-backrooms-summer-box-office-charts.html
+
+**Pick Your Favorite $1.875 Million Home in Wisconsin, Massachusetts or Washington**\
+`A converted firehouse in Milwaukee, an 19th-century house in Salem, Mass., and a house with water and mountain views on Bainbridge Island, Wash.`\
+https://www.nytimes.com/2026/06/17/realestate/homes-for-sale-in-wisconsin-massachusetts-and-washington.html
+
+**Seven Takeaways From the First World Cup Games at U.S. Venues**\
+`The crowds have been big, the fans rabid and the lines, well, long. Here’s a glimpse of the atmosphere at sites across the country as the tournament started.`\
+https://www.nytimes.com/2026/06/17/us/takeaways-world-cup-us-stadiums.html
+
+**Who Will Get Spirit Airlines’ Coveted Flights at LaGuardia?**\
+`A bankruptcy court has started the process to sell the airline’s right to fly to and from the New York City airport, but finding a buyer could be hard.`\
+https://www.nytimes.com/2026/06/17/business/spirit-airlines-laguardia-airport.html
+
+**A New Magazine With Political Heft, and ‘Real Style’**\
+`Equator, a new magazine with editors based across the globe, hosted a launch party in a ballroom in Manhattan’s Chinatown.`\
+https://www.nytimes.com/2026/06/17/style/equator-magazine-launch-party.html
+
+**El nuevo mensaje de China a sus ciudadanos: tu dinero debe quedarse en casa**\
+`En las últimas semanas, Pekín ha tomado medidas para cerrar los canales informales entre los hogares chinos y los mercados de capitales globales.`\
+https://www.nytimes.com/es/2026/06/17/espanol/mundo/restricciones-inversiones-chinos.html
+
+**Dear A.I. Companies: The Doom Trolling Needs to Stop**\
+`The major A.I. companies keep telling us how dangerous their new models can be, yet they must keep on building them.`\
+https://www.nytimes.com/2026/06/17/opinion/ai-dangerous-openai-anthropic.html
+
+**If You Don’t Vote for Republicans, You Don’t Exist**\
+`“Voter fraud” is not about fraud. It is about who votes and how.`\
+https://www.nytimes.com/2026/06/17/opinion/trump-pratt-voter-fraud-republicans.html
+
+**Matthew Rhys, of ‘Widow’s Bay,’ Is on a Boat. Barely.**\
+`The star of this seafaring horror-comedy, which wraps up Season 1 on Wednesday, also spends his downtime on the water.`\
+https://www.nytimes.com/2026/06/17/arts/television/matthew-rhys-of-widows-bay-is-on-a-boat-barely.html
+
 **How Republicans Are Breaking Up Majority-Black Districts**\
 `Here’s a look at how Louisiana, Alabama and Tennessee broke up majority-Black districts after the Supreme Court weakened the Voting Rights Act.`\
 https://www.nytimes.com/interactive/2026/06/17/us/elections/redistricting-maps-black-voters-republicans.html
@@ -105,92 +189,4 @@ https://www.nytimes.com/2026/06/17/nyregion/ny-indigenous-peoples-call-out.html
 **Why The New York Times Is Expanding in Texas**\
 `Members of a new team of Times reporters and editors are covering culture, economics and more in a state long known for its political clout.`\
 https://www.nytimes.com/2026/06/17/insider/new-york-times-texas.html
-
-**Ucrania usa la IA para derribar drones de Rusia**\
-`Los interceptores demuestran que Ucrania apuesta por tecnologías autónomas entrenadas con enormes cantidades de datos de guerra.`\
-https://www.nytimes.com/es/2026/06/17/espanol/mundo/ucrania-ia-drones-rusia.html
-
-**Bob Dylan y Liza Minnelli ya cumplieron 80 años, y tienen algo que decirle a Trump**\
-`“Me siento igual que hace 50 años”, dijo el presidente Trump. “Es una locura”.`\
-https://www.nytimes.com/es/2026/06/17/espanol/opinion/bob-dylan-liza-minnelli-80-anos-trump.html
-
-**Word of the Day: sinecure**\
-`This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/06/17/learning/word-of-the-day-sinecure.html
-
-**Late Night Wades Into the Reflecting Pool’s Algae Bloom**\
-`President Trump “promised he would drain the swamp,” Jimmy Kimmel said. “Instead, he spent 14 million of our dollars building a new one.”`\
-https://www.nytimes.com/2026/06/17/arts/television/late-night-trump-reflecting-pool-algae.html
-
-**The World Cup Gives Kansas City a Rare Turn in the Global Spotlight**\
-`The tournament brings unique challenges and upsides for Kansas City, the smallest U.S. metro area to host matches.`\
-https://www.nytimes.com/2026/06/17/us/world-cup-kansas-city-messi-argentina.html
-
-**6 conclusiones de la investigación del Times sobre la muerte de Epstein**\
-`Analizamos todas las teorías plausibles sobre su muerte, tanto las oficiales como las alternativas, en busca de los argumentos y las pruebas más convincentes.`\
-https://www.nytimes.com/es/2026/06/17/espanol/estados-unidos/muerte-epstein-suicidio-investigacion.html
-
-**We Just Saw the Limit of American Military Might**\
-`How did the world’s richest nation, armed with the most powerful military, arrive at this strategic defeat?`\
-https://www.nytimes.com/2026/06/17/opinion/iran-war-us-military-power.html
-
-**America’s First Pope Pays Homage to Its First Saint**\
-`When Pope Leo visits Mother Cabrini’s birthplace, the message will not be their shared American nationality but a rebuke of American exceptionalism.`\
-https://www.nytimes.com/2026/06/17/opinion/pope-leo-cabrini-american-saint.html
-
-**Georgia Vexes Trump Yet Again: 6 Takeaways From Tuesday’s Primaries**\
-`Lt. Gov. Burt Jones lost the Republican runoff for governor to the health care executive Rick Jackson despite the president’s endorsement. Mr. Trump’s picks won in other races.`\
-https://www.nytimes.com/2026/06/17/us/politics/georgia-alabama-elections-trump-takeaways.html
-
-**Los líderes de Europa se muestran amables con Trump tras una temporada tensa**\
-`Un acuerdo de paz con Irán y la esperanza de cooperar con Ucrania suavizaron el tono el martes durante una reunión del Grupo de los 7 celebrada en Francia.`\
-https://www.nytimes.com/es/2026/06/17/espanol/mundo/trump-lideres-europa-g7.html
-
-**Quote of the Day: For 250th, a Maritime Pageant Daunting in Heft and Hassles**\
-`Quotation of the Day for Wednesday, June 17, 2026`\
-https://www.nytimes.com/2026/06/17/pageoneplus/quote-of-the-day-for-250th-a-maritime-pageant-daunting-in-heft-and-hassles.html
-
-**Ohio Governor Says State Should End the Death Penalty, Breaking With His Party**\
-`During a news conference on Tuesday, Gov. Mike DeWine, a Republican, called on state lawmakers to end all executions, a practice he once supported.`\
-https://www.nytimes.com/2026/06/16/us/dewine-death-penalty-ohio.html
-
-**State Lawmaker and Trump-Backed Pastor Head to House Runoff in Oklahoma**\
-`The result sets up a Republican primary runoff between a right-wing firebrand and a more traditional candidate.`\
-https://www.nytimes.com/2026/06/16/us/politics/oklahoma-mark-tedford-jackson-lahmeyer.html
-
-**Rep. Barry Moore Wins Senate Primary in Alabama, Holding Off Challenger**\
-`The contest to fill Alabama’s open Senate seat had become closer than expected between the House lawmaker and Jared Hudson, a political newcomer.`\
-https://www.nytimes.com/2026/06/16/us/elections/alabama-senate-republican-moore.html
-
-**Attorney General and Businessman Make Oklahoma Governor’s Runoff**\
-`Gentner Drummond, the attorney general, and Mike Mazzei, a newcomer who secured President Trump’s endorsement, emerged from a crowded field in the Republican primary.`\
-https://www.nytimes.com/2026/06/16/us/elections/oklahoma-governor-republican.html
-
-**NYT Crossword Answers for June 17, 2026**\
-`Jonathan Raksin bets he can best us.`\
-https://www.nytimes.com/2026/06/16/crosswords/daily-puzzle-2026-06-17.html
-
-**Trump Officials Challenge Reparations Program in Chicago Suburb**\
-`The Justice Department argued that the program, which seeks to compensate Black residents for housing discrimination, was racist and unconstitutional.`\
-https://www.nytimes.com/2026/06/16/us/politics/reparations-chicago-evanston-trump-lawsuit.html
-
-**Rick Jackson, a Billionaire, Wins G.O.P. Runoff for Georgia Governor**\
-`Mr. Jackson, who had been largely unknown to voters just months ago, beat President Trump’s choice and will face Keisha Lance Bottoms, a Democrat, in November.`\
-https://www.nytimes.com/2026/06/16/us/elections/georgia-governor-runoff-republican.html
-
-**Barn Fire Kills 17 Horses at Harness Track in Saratoga Springs, N.Y.**\
-`The cause is under investigation. Only one horse in the barn, Twin B Speed Dial, is believed to have survived, sustaining minor injuries.`\
-https://www.nytimes.com/2026/06/16/us/saratoga-barn-fire-horses.html
-
-**As Mourning Begins, Deadly B-52 Crash Highlights Age of Bomber Fleet**\
-`Investigators are just beginning to determine what went wrong, but the Air Force has struggled to maintain the planes, which were first introduced in 1955.`\
-https://www.nytimes.com/2026/06/16/us/b52-crash.html
-
-**Kevin Hern Wins Republican Primary for Oklahoma Senate Race**\
-`Mr. Hern, a congressman in the deep-red state, is now likely to be elected to the Senate to fill the seat of Markwayne Mullin, now the homeland security secretary.`\
-https://www.nytimes.com/2026/06/16/us/politics/oklahoma-senate-primary-election.html
-
-**U.S. Sues N.Y. State Over Troubled $11 Billion Home Health Care Program**\
-`The Justice Department accused officials of failing to police a vendor it said had siphoned off millions of dollars. A spokeswoman for Gov. Kathy Hochul called the suit an attempt to weaponize the justice system.`\
-https://www.nytimes.com/2026/06/16/nyregion/doj-new-york-health-care-lawsuit.html
 
