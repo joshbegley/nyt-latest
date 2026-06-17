@@ -1,3 +1,7 @@
+****\
+`Activists and protesters erupted in cheers at the Georgia state capitol after lawmakers shelved redistricting plans.`\
+https://www.nytimes.com/video/embedded/us/politics/100000010974909/17vid-Georgia-Re-Districting.html
+
 **U.S. Will Waive Oil Sanctions That Have Long Crimped Iran**\
 `The preliminary U.S.-Iran deal temporarily waives restrictions that have limited the country’s oil sales and how much money it has been able to make from those exports.`\
 https://www.nytimes.com/2026/06/17/world/europe/us-iran-oil-sanctions.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/es/2026/06/17/espanol/mundo/cumbre-g7-trump-ucrania-rusi
 **Western Europe Braces for Another Round of Heat**\
 `After an early heat wave in May, people in France, Germany, Italy and other countries are again looking for respite.`\
 https://www.nytimes.com/2026/06/17/travel/heat-wave-western-europe.html
-
-**Elon Musk’s Next Move May Be a Mega-Merger of SpaceX and Tesla**\
-`Some shareholders might object, but there is little they could do, legal experts say.`\
-https://www.nytimes.com/2026/06/17/business/spacex-tesla-merger-elon-musk.html
 
 **Live Updates: Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
 `Chairman Kevin M. Warsh vowed to start a “new chapter” in the Federal Reserve’s oversight of the U.S. economy.`\

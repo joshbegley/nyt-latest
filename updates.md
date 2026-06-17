@@ -1,3 +1,7 @@
+****\
+`Activists and protesters erupted in cheers at the Georgia state capitol after lawmakers shelved redistricting plans.`\
+https://www.nytimes.com/video/embedded/us/politics/100000010974909/17vid-Georgia-Re-Districting.html
+
 **F.T.C. Sues Group That Advises on Transgender Medical Treatments**\
 `The group, World Professional Association for Transgender Health, offers guidelines on medical treatment for transgender patients.`\
 https://www.nytimes.com/2026/06/17/us/politics/ftc-wpath-transgender-medical-treatments.html
