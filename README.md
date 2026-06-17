@@ -1,3 +1,7 @@
+**Late Night Wades Into the Reflecting Pool’s Algae Bloom**\
+`President Trump “promised he would drain the swamp,” Jimmy Kimmel said. “Instead, he spent 14 million of our dollars building a new one.”`\
+https://www.nytimes.com/2026/06/17/arts/television/late-night-trump-reflecting-pool-algae.html
+
 **The World Cup Gives Kansas City a Rare Turn in the Global Spotlight**\
 `The tournament brings unique challenges and upsides for Kansas City, the smallest U.S. metro area to host matches.`\
 https://www.nytimes.com/2026/06/17/us/world-cup-kansas-city-messi-argentina.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/16/us/wilmington-delaware-hospital-shooting.html
 **Ossoff: A Cross-Ideological 2028 Dark Horse**\
 `Why has Jon Ossoff emerged as a dark horse for the 2028 presidential race? The MS Now host Chris Hayes and the Opinion columnist Ezra Klein discuss how Ossoff is leveraging a unique “visual grammar” to build an almost mythic, Obama-like political brand.`\
 https://www.nytimes.com/video/opinion/100000010962118/ossoff-a-cross-ideological-2028-dark-horse.html
-
-**‘Reddit Posts Are the Median Voter’**\
-`Is the Democrats’ biggest brand problem excessive conscientiousness? The MS Now host Chris Hayes tells the Opinion columnist Ezra Klein how an institutional, “schoolmarm” personality type alienates swing voters and why an unconventional candidate might be the antidote.`\
-https://www.nytimes.com/video/opinion/100000010962113/reddit-posts-are-the-median-voter.html
 
