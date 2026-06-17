@@ -1,3 +1,15 @@
+**Western Europe Braces For Another Round of Heat**\
+`After an early heat wave in May, travelers and residents in France, Germany, Italy and other countries are again looking for respite.`\
+https://www.nytimes.com/2026/06/17/travel/heat-wave-western-europe.html
+
+**Musk’s Next Move May Be a Mega-Merger of SpaceX and Tesla**\
+`Some shareholders might object, but there is little they could do, legal experts say.`\
+https://www.nytimes.com/2026/06/17/business/spacex-tesla-merger-elon-musk.html
+
+**Map: 4.6-Magnitude Earthquake Shakes Hawaii**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/17/us/quake-tracker-hawaii.html
+
 **Finland Lifts a Nuclear Device Ban, Eyeing an Uncertain World**\
 `The Nordic country, which shares an 830-mile border with Russia, said the move would strengthen the NATO alliance, which it joined three years ago.`\
 https://www.nytimes.com/2026/06/17/world/europe/finland-nuclear-devices.html
