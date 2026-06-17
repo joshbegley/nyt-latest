@@ -1,3 +1,7 @@
+**Oil Prices Waver as Traders Hope the Strait of Hormuz Will Reopen**\
+`Traders are waiting for U.S. and Iranian officials to meet in Switzerland on Friday, when they are expected to sign an initial agreement and begin a 60-day cease-fire.`\
+https://www.nytimes.com/2026/06/17/business/iran-war-hormuz-oil-gas.html
+
 **600 Tickets for Knicks’ Championship Ceremony Up for Grabs in Lottery**\
 `The ceremony, at City Hall in New York, will follow Thursday’s parade in Lower Manhattan. But the lottery is open only until 11 a.m. today.`\
 https://www.nytimes.com/2026/06/17/nyregion/knicks-parade-tickets-lottery.html
