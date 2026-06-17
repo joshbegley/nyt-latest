@@ -1,3 +1,7 @@
+**Ohio Governor Says State Should End the Death Penalty, Breaking With His Party**\
+`During a news conference on Tuesday, Gov. Mike DeWine, a Republican, called on state lawmakers to end all executions, a practice he once supported.`\
+https://www.nytimes.com/2026/06/16/us/dewine-death-penalty-ohio.html
+
 **State Lawmaker and Trump-Backed Pastor Head to House Runoff in Oklahoma**\
 `The result sets up a Republican primary runoff between a right-wing firebrand and a more traditional candidate.`\
 https://www.nytimes.com/2026/06/16/us/politics/oklahoma-mark-tedford-jackson-lahmeyer.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/16/us/politics/clinton-biden-reelection-terrible
 **Merlín, el pato mundialista mexicano, salta a la fama**\
 `La mascota se ha convertido en una de las primeras sensaciones del torneo mientras se pasea por Ciudad de México vestido con la camiseta tricolor.`\
 https://www.nytimes.com/es/2026/06/16/espanol/deportes/mexico-mundial-pato-merlin.html
-
-**Russian Artist Critical of Putin Is Fatally Shot in Poland**\
-`Two Belarusian men were in custody as part of an investigation into the killing of the exiled painter Robert Kuzovkov.`\
-https://www.nytimes.com/2026/06/16/world/europe/russian-artist-putin-killed-poland.html
 
