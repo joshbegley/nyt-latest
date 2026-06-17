@@ -1,3 +1,23 @@
+**Anthropic Employees Accuse Trump Administration of Targeting Them**\
+`Workers at the artificial intelligence company have been puzzled and increasingly concerned by the administration’s move to limit their latest A.I. models.`\
+https://www.nytimes.com/2026/06/17/technology/anthropic-trump-administration-fable.html
+
+**Why Waymo’s Driverless Taxis Won’t Be on Your Streets Anytime Soon**\
+`The Silicon Valley company’s ambitions to roll out autonomous cars nationwide have hit political roadblocks in some of the country’s biggest markets.`\
+https://www.nytimes.com/2026/06/17/technology/waymo-driverless-taxis-politics.html
+
+**Trump Angrily Defends Iran Deal, Belittling the One Obama Signed**\
+`President Trump denied that the United States would be part of a $300 billion rebuilding fund for Tehran and argued that his agreement was better than the one Barack Obama struck in 2015.`\
+https://www.nytimes.com/2026/06/17/us/politics/trump-iran-peace-deal-obama.html
+
+**Arianna Huffington: Our Strongest Drive Is Self-Discovery**\
+`It may be tempting to chase status and success, but let’s not overlook our universal need to find inner meaning and purpose.`\
+https://www.nytimes.com/2026/06/17/special-series/arianna-huffington-self-discovery.html
+
+**What Could Happen in Iran?**\
+`Three Times reporters examine the possibilities.`\
+https://www.nytimes.com/2026/06/17/briefing/what-could-happen-in-iran.html
+
 **Hot Mic Moments Catch Trump and Other G7 Leaders Mentioning Geopolitics and Greenland**\
 `Snippets of conversations picked up on microphones at the annual Group of 7 summit in France offered a glimpse behind the scenes, as leaders chatted about issues great and small.`\
 https://www.nytimes.com/2026/06/17/world/europe/g7-summit-hot-mic-trump-meloni-greenland-carney.html

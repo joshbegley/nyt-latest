@@ -1,3 +1,7 @@
+**California’s Vote Count: How Slowness Invites Suspicion Even When It’s Not Sketchy**\
+`California’s crawling pace after election night can make normal statistical shifts seem like fraud.`\
+https://www.nytimes.com/2026/06/17/upshot/california-slow-election-results.html
+
 **Anthropic Employees Accuse Trump Administration of Targeting Them**\
 `Workers at the artificial intelligence company have been puzzled and increasingly concerned by the administration’s move to limit their latest A.I. models.`\
 https://www.nytimes.com/2026/06/17/technology/anthropic-trump-administration-fable.html
@@ -131,7 +135,7 @@ https://www.nytimes.com/2026/06/17/crosswords/wordle-review-1825.html
 https://www.nytimes.com/2026/06/17/crosswords/strands-sidekick-837.html
 
 **Norway’s Crown Princess Has Lung Transplant**\
-`Princess Mette-Marit was diagnosed with pulmonary fibrosis eight years ago and was placed on a waiting list for organ donation this month.`\
+`Princess Mette-Marit was placed on a waiting list for organ donation this month. Thousands of Norwegians signed up as organ donors.`\
 https://www.nytimes.com/2026/06/17/world/europe/norway-crown-princess-mette-marit-lung-transplant.html
 
 ****\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/17/realestate/air-conditioners-efficiency-tips-h
 **This Senator Is an Internet Sensation. Is He Running for President?**\
 `The 39-year-old senator has become an internet sensation for Democrats seeking a 2028 contender. He says he’s focused on winning a second term in November.`\
 https://www.nytimes.com/2026/06/17/us/politics/jon-ossoff-georgia-senate-election.html
-
-**Modern Love Julian Brave NoiseCat on Getting High With His Dad**\
-`It took a painful reckoning with history, and a lot of cannabis, to bring Julian Brave NoiseCat and his father back together.`\
-https://www.nytimes.com/2026/06/17/podcasts/how-getting-stoned-with-my-dad-helped-us-heal.html
 
