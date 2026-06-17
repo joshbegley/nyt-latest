@@ -1,3 +1,11 @@
+**Hot Mic Moments Catch Trump and Other G7 Leaders Mentioning Geopolitics and Greenland**\
+`Snippets of conversations picked up on microphones at the annual Group of 7 summit in France offered a glimpse behind the scenes, as leaders chatted about issues great and small.`\
+https://www.nytimes.com/2026/06/17/world/europe/g7-summit-hot-mic-trump-meloni-greenland-carney.html
+
+**This Senator Is an Internet Sensation. Is He Running for President?**\
+`The 39-year-old senator has become an internet sensation for Democrats seeking a 2028 contender. He says he’s focused on winning a second term in November.`\
+https://www.nytimes.com/2026/06/17/us/politics/jon-ossoff-georgia-senate-election.html
+
 **We Should Expect More From Our Supreme Court**\
 `The Supreme Court is racing to start summer vacation, but the legal journalist Cristian Farias says we have very little to feel relaxed about. In the era of Trump’s relentless power grabs, we should expect the Supreme Court to do more than just “the bare minimum.”`\
 https://www.nytimes.com/video/opinion/100000010968185/we-should-expect-more-from-our-supreme-court.html

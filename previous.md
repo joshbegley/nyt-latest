@@ -1,3 +1,7 @@
+**Hot Mic Moments Catch Trump and Other G7 Leaders Mentioning Geopolitics and Greenland**\
+`Snippets of conversations picked up on microphones at the annual Group of 7 summit in France offered a glimpse behind the scenes, as leaders chatted about issues great and small.`\
+https://www.nytimes.com/2026/06/17/world/europe/g7-summit-hot-mic-trump-meloni-greenland-carney.html
+
 **We Should Expect More From Our Supreme Court**\
 `The Supreme Court is racing to start summer vacation, but the legal journalist Cristian Farias says we have very little to feel relaxed about. In the era of Trump’s relentless power grabs, we should expect the Supreme Court to do more than just “the bare minimum.”`\
 https://www.nytimes.com/video/opinion/100000010968185/we-should-expect-more-from-our-supreme-court.html
@@ -166,7 +170,7 @@ https://www.nytimes.com/2026/06/17/style/world-cup-tourists-american-food-tiktok
 `Test your knowledge of how air-conditioning works and how to keep your space (and yourself) cool this season.`\
 https://www.nytimes.com/2026/06/17/realestate/air-conditioners-efficiency-tips-heat.html
 
-**Is Georgia Senator Jon Ossoff Running for President? He Has to Win Re-election First.**\
+**This Senator Is an Internet Sensation. Is He Running for President?**\
 `The 39-year-old senator has become an internet sensation for Democrats seeking a 2028 contender. He says he’s focused on winning a second term in November.`\
 https://www.nytimes.com/2026/06/17/us/politics/jon-ossoff-georgia-senate-election.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/17/business/media/obsession-backrooms-summer-box
 **Pick Your Favorite $1.875 Million Home in Wisconsin, Massachusetts or Washington**\
 `A converted firehouse in Milwaukee, an 19th-century house in Salem, Mass., and a house with water and mountain views on Bainbridge Island, Wash.`\
 https://www.nytimes.com/2026/06/17/realestate/homes-for-sale-in-wisconsin-massachusetts-and-washington.html
-
-**Seven Takeaways From the First World Cup Games at U.S. Venues**\
-`The crowds have been big, the fans rabid and the lines, well, long. Here’s a glimpse of the atmosphere at sites across the country as the tournament started.`\
-https://www.nytimes.com/2026/06/17/us/takeaways-world-cup-us-stadiums.html
 
