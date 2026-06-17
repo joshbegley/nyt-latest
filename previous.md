@@ -1,3 +1,19 @@
+**British Couple Recount Russian Warship Warning Shots**\
+`Jane and Alan Kelvey, a couple from Britain, spoke with the BBC after a Russian naval ship fired warning shots toward their sailboat in the English Channel on Tuesday.`\
+https://www.nytimes.com/video/world/europe/100000010973495/british-couple-recount-russian-warship-warning-shots.html
+
+**Carlo Ginzburg, Who Told the History of the Obscure, Dies at 87**\
+`In books like “The Cheese and the Worms,” he helped push beyond the story of great events and leaders, entering the minds and hearts of peasants.`\
+https://www.nytimes.com/2026/06/17/books/carlo-ginzburg-dead.html
+
+**Under Trump, National Intelligence Agency Has Broadened Focus on Elections**\
+`Bill Pulte, who has shown that he has a keen sense of what the president wants and a desire to please him, is poised to take over the job from Tulsi Gabbard on an acting basis.`\
+https://www.nytimes.com/2026/06/17/us/politics/gabbard-pullte-elections.html
+
+**Conor McGregor Defends Treatment That Included Banned Drugs**\
+`The Ultimate Fighting Championship star said his priority was walking again after shattering his leg, and he confirmed elements of a New York Times article about how he came to use banned substances.`\
+https://www.nytimes.com/2026/06/17/us/politics/conor-mcgregor-banned-drugs.html
+
 **EE. UU. no tiene ‘nada que ver’ con la guerra en Ucrania, dice Trump en la cumbre del G7**\
 `La cumbre buscaba dirigir la atención a la guerra en Ucrania, pero el presidente Trump dejó claro que el conflicto ya no estaba en su lista de prioridades.`\
 https://www.nytimes.com/es/2026/06/17/espanol/mundo/cumbre-g7-trump-ucrania-rusia.html
@@ -20,7 +36,7 @@ https://www.nytimes.com/2026/06/17/world/europe/finland-nuclear-devices.html
 
 **Political Spotlight Shines on Warsh for His First Fed Meeting as Chairman**\
 `The new Fed chairman is bound to face the unyielding attention of the president that nominated him.`\
-https://www.nytimes.com/2026/06/17/business/economy/political-spotlight-shines-on-warsh-for-his-first-fed-meeting-as-chair.html
+https://www.nytimes.com/2026/06/17/business/economy/fed-chair-meeting-warsh-trump.html
 
 **La República Democrática del Congo vuelve con estilo al Mundial**\
 `Los elegantes trajes negros de las estrellas del fútbol, con detalles de estampado de leopardo, son un guiño a la larga tradición de la moda “sapeur”.`\
@@ -166,23 +182,7 @@ https://www.nytimes.com/2026/06/17/us/california-billionaire-tax-opponents.html
 `Platforms like Kalshi let millions wager on sports and pop culture. They’re now hoping institutions will use them for big-ticket trading like hedging.`\
 https://www.nytimes.com/2026/06/17/business/dealbook/hedging-prediction-markets-kalshi.html
 
-**Getting Stoned With My Dad Helped Us Heal**\
-`It took a painful reckoning with history, and a lot of cannabis, to bring Julian Brave NoiseCat and his father back together.`\
-https://www.nytimes.com/video/podcasts/100000010972496/getting-stoned-with-my-dad-helped-us-heal.html
-
-**Hagen Quartet Is Taking Its Final Bows After 45 Years**\
-`Formed by siblings who grew up playing together, the Hagen Quartet is finishing a farewell tour with an unforced, casual goodbye.`\
-https://www.nytimes.com/2026/06/17/arts/music/hagen-quartet-farewell-tour.html
-
-****\
+**World Cup Updates: At U.S. Stadiums, Boisterous Crowds and Redacted Logos**\
 `(No description)`\
-https://www.nytimes.com/video/embedded/world/europe/100000010973423/17vid-trump-sisi-63980.html
-
-**Trump Pulls Back Intelligence Pick to Pressure Congress on Elections Bill**\
-`President Trump named Jay Clayton, the U.S. attorney in Manhattan, after a bipartisan backlash to his earlier choice of Bill Pulte. The move all but assures that Mr. Pulte will hold the job, at least for a while.`\
-https://www.nytimes.com/2026/06/17/us/politics/senate-intelligence-nomination-voter-restrictions.html
-
-**What Could Happen in Iran?**\
-`Three Times reporters examine the possibilities.`\
-https://www.nytimes.com/2026/06/17/briefing/what-could-happen-in-iran.html
+https://www.nytimes.com/live/2026/us/fifa-world-cup
 

@@ -1,3 +1,27 @@
+**British Couple Recount Russian Warship Warning Shots**\
+`Jane and Alan Kelvey, a couple from Britain, spoke with the BBC after a Russian naval ship fired warning shots toward their sailboat in the English Channel on Tuesday.`\
+https://www.nytimes.com/video/world/europe/100000010973495/british-couple-recount-russian-warship-warning-shots.html
+
+**Carlo Ginzburg, Who Told the History of the Obscure, Dies at 87**\
+`In books like “The Cheese and the Worms,” he helped push beyond the story of great events and leaders, entering the minds and hearts of peasants.`\
+https://www.nytimes.com/2026/06/17/books/carlo-ginzburg-dead.html
+
+**Under Trump, National Intelligence Agency Has Broadened Focus on Elections**\
+`Bill Pulte, who has shown that he has a keen sense of what the president wants and a desire to please him, is poised to take over the job from Tulsi Gabbard on an acting basis.`\
+https://www.nytimes.com/2026/06/17/us/politics/gabbard-pullte-elections.html
+
+**Conor McGregor Defends Treatment That Included Banned Drugs**\
+`The Ultimate Fighting Championship star said his priority was walking again after shattering his leg, and he confirmed elements of a New York Times article about how he came to use banned substances.`\
+https://www.nytimes.com/2026/06/17/us/politics/conor-mcgregor-banned-drugs.html
+
+**Political Spotlight Shines on Warsh for His First Fed Meeting as Chairman**\
+`The new Fed chairman is bound to face the unyielding attention of the president that nominated him.`\
+https://www.nytimes.com/2026/06/17/business/economy/fed-chair-meeting-warsh-trump.html
+
+**World Cup Updates: At U.S. Stadiums, Boisterous Crowds and Redacted Logos**\
+`(No description)`\
+https://www.nytimes.com/live/2026/us/fifa-world-cup
+
 **EE. UU. no tiene ‘nada que ver’ con la guerra en Ucrania, dice Trump en la cumbre del G7**\
 `La cumbre buscaba dirigir la atención a la guerra en Ucrania, pero el presidente Trump dejó claro que el conflicto ya no estaba en su lista de prioridades.`\
 https://www.nytimes.com/es/2026/06/17/espanol/mundo/cumbre-g7-trump-ucrania-rusia.html
