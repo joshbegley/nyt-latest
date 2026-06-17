@@ -1,3 +1,7 @@
+**We Should Expect More From Our Supreme Court**\
+`The Supreme Court is racing to start summer vacation, but the legal journalist Cristian Farias says we have very little to feel relaxed about. In the era of Trump’s relentless power grabs, we should expect the Supreme Court to do more than just “the bare minimum.”`\
+https://www.nytimes.com/video/opinion/100000010968185/we-should-expect-more-from-our-supreme-court.html
+
 **The Deck Is Stacked Against Healthy Eating**\
 `We need the will to push back against corporate interests.`\
 https://www.nytimes.com/2026/06/17/opinion/ultraprocessed-food-healthy.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/17/realestate/homes-for-sale-in-wisconsin-massac
 **Seven Takeaways From the First World Cup Games at U.S. Venues**\
 `The crowds have been big, the fans rabid and the lines, well, long. Here’s a glimpse of the atmosphere at sites across the country as the tournament started.`\
 https://www.nytimes.com/2026/06/17/us/takeaways-world-cup-us-stadiums.html
-
-**Who Will Get Spirit Airlines’ Coveted Flights at LaGuardia?**\
-`A bankruptcy court has started the process to sell the airline’s right to fly to and from the New York City airport, but finding a buyer could be hard.`\
-https://www.nytimes.com/2026/06/17/business/spirit-airlines-laguardia-airport.html
 
