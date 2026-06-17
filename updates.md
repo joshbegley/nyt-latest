@@ -1,3 +1,7 @@
+**The World Cup Gives Kansas City a Rare Turn in the Global Spotlight**\
+`The tournament brings unique challenges and upsides for Kansas City, the smallest U.S. metro area to host matches.`\
+https://www.nytimes.com/2026/06/17/us/world-cup-kansas-city-messi-argentina.html
+
 **6 conclusiones de la investigación del Times sobre la muerte de Epstein**\
 `Analizamos todas las teorías plausibles sobre su muerte, tanto las oficiales como las alternativas, en busca de los argumentos y las pruebas más convincentes.`\
 https://www.nytimes.com/es/2026/06/17/espanol/estados-unidos/muerte-epstein-suicidio-investigacion.html
