@@ -1,3 +1,11 @@
+**There’s a Tropical Storm Off the Coast, but Houston Match ‘Dodged the Bullet’**\
+`Tropical Storm Arthur became the first named storm of the Atlantic season on Wednesday, but its rain and wind were moving away from Houston.`\
+https://www.nytimes.com/2026/06/17/us/world-cup-tropical-storm-arthur.html
+
+**After a Day of Harmony, a Mercurial Trump Upends Leaders’ Summit**\
+`At the Group of 7 gathering in France, President Trump’s oscillations on his Iran deal and Ukraine left European leaders racing to catch up.`\
+https://www.nytimes.com/2026/06/17/world/europe/trump-g7-europe.html
+
 **Trump’s Threats Show His Complicated History With a Surveillance Law**\
 `The administration argues that FISA Section 702 must be renewed to preserve national security, but the president himself has threatened to veto it.`\
 https://www.nytimes.com/2026/06/17/us/politics/trump-fisa-history.html
@@ -11,7 +19,7 @@ https://www.nytimes.com/2026/06/17/us/what-we-know-b52-crash-victims-california.
 https://www.nytimes.com/2026/06/17/nyregion/knicks-parade-security-new-york-police.html
 
 **Watch Live: Fed Chair Holds News Conference on Interest Rate Decision**\
-`Federal Reserve Chair Kevin M. Warsh holds a news conference after a two-day policy meeting.`\
+`The Federal Reserve chairman, Kevin M. Warsh, holds a news conference after a two-day policy meeting.`\
 https://www.nytimes.com/video/embedded/us/100000010973869/watch-live-fed-chair-holds-news-conference-on-interest-rate-decision.html
 
 **Lost Oregon Hiker Fell to Death From Cliff on Alaska Trail, Troopers Say**\
@@ -131,7 +139,7 @@ https://www.nytimes.com/2026/06/17/us/politics/the-docket-death-row.html
 https://www.nytimes.com/es/2026/06/17/espanol/estados-unidos/obama-acuerdo-nuclear-trump-iran.html
 
 **Live Updates: Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
-`Kevin M. Warsh is taking questions from reporters after leading his first gathering of the Federal Reserve’s top officials.`\
+`Kevin M. Warsh, the new Federal Reserve chairman, vowed to reconsider how the central bank monitors the economy.`\
 https://www.nytimes.com/live/2026/06/17/business/fed-meeting-warsh-interest-rates
 
 **My Nephew’s Comedy Routine Skewers His Grandma. Should the Adults Be Laughing?**\
@@ -177,12 +185,4 @@ https://www.nytimes.com/2026/06/17/dining/no-cook-tzatziki-chickpea-salad-yes-pl
 **We Ran the Numbers. Remote Work Is Bad for Us.**\
 `Despite its advantages, work-from-home arrangements have significantly deepened Americans’ isolation and distress.`\
 https://www.nytimes.com/2026/06/17/opinion/remote-work-depression.html
-
-**A Deadly Outbreak of Plague, Nearly 5,000 Years Before the Black Death**\
-`The oldest known cases, discovered among hunter-gatherers in Siberian graves, contradict the theory that the disease once was mild.`\
-https://www.nytimes.com/2026/06/17/science/oldest-plague-siberian-skeletons.html
-
-**Allowing Iran to Charge Fees in Strait of Hormuz Would Set ‘Dangerous Precedent,’ Maersk CEO Says**\
-`With the United States and Iran nearing a deal to reopen the Persian Gulf, the shipping giant Maersk is treading cautiously.`\
-https://www.nytimes.com/2026/06/17/business/maersk-strait-hormuz-shipping-fees-iran-war.html
 
