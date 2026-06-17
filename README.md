@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/06/17/nyregion/knicks-parade-tickets-lottery.html
 
 **Oil Prices Waver as Traders Hope the Strait of Hormuz Will Reopen**\
-`Traders are waiting for U.S. and Iranian officials to meet in Switzerland on Friday, when they are expected to sign an initial agreement and being a 60-day cease-fire.`\
+`Traders are waiting for U.S. and Iranian officials to meet in Switzerland on Friday, when they are expected to sign an initial agreement and begin a 60-day cease-fire.`\
 https://www.nytimes.com/2026/06/17/business/iran-war-hormuz-oil-gas.html
 
 **Tech C.E.O.s to Discuss A.I. With G7 Leaders**\
