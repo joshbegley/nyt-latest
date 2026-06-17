@@ -191,6 +191,6 @@ https://www.nytimes.com/es/2026/06/16/espanol/deportes/mexico-mundial-pato-merli
 https://www.nytimes.com/2026/06/16/world/europe/russian-artist-putin-killed-poland.html
 
 **Election Live Updates: Georgia Republicans Go With Trump’s Pick for Senate, but Not Governor**\
-`Representative Mike Collins, who was backed by President Trump, won the G.O.P. nomination to challenge Senator Jon Ossoff. But Georgia Republicans chose Rick Jackson as their nominee for governor over a Trump-backed candidate. In Oklahoma, Representative Kevin Hern won the Republican nomination for Senate.`\
+`Mike Collins, a Trump-backed Republican, will face Senator Jon Ossoff in Georgia, where Rick Jackson won the Republican nomination for governor over the president’s pick. Candidates backed by Mr. Trump won Republican nominations for Senate in Oklahoma and Alabama.`\
 https://www.nytimes.com/live/2026/06/16/us/georgia-oklahoma-alabama-elections
 

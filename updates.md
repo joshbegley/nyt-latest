@@ -1,3 +1,7 @@
+**Rep. Barry Moore Wins G.O.P. Senate Primary in Alabama, Holding Off Challenger**\
+`The contest to fill Alabama’s open Senate seat had become closer than expected between the House lawmaker and Jared Hudson, a political newcomer.`\
+https://www.nytimes.com/2026/06/16/us/elections/alabama-senate-republican-moore.html
+
 **Attorney General and Businessman Make Oklahoma Governor’s Runoff**\
 `Gentner Drummond, the attorney general, and Mike Mazzei, a newcomer who secured President Trump’s endorsement, emerged from a crowded field in the Republican primary.`\
 https://www.nytimes.com/2026/06/16/us/elections/oklahoma-governor-republican.html
