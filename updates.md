@@ -1,3 +1,7 @@
+**Private Jet Crashes on Highway in Laredo, Texas, Killing 1**\
+`The plane’s crew reported mechanical problems and low fuel as they flew to Austin, Texas, from Mexico. Five of the six people on board survived the crash in Laredo.`\
+https://www.nytimes.com/2026/06/17/us/laredo-plane-crash-texas.html
+
 **La lengua dulce: cómo los Andes ecuatorianos crearon un idioma propio**\
 `En la Sierra ecuatoriana, una mezcla de kichwa y español da lugar a una lengua que desafía las reglas gramaticales del español, añade melodía y pasa desapercibida para muchos de sus hablantes.`\
 https://www.nytimes.com/es/2026/06/17/espanol/america-latina/ecuador-kichwa-andes-espanol.html
