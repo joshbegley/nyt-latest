@@ -1,3 +1,7 @@
+**Jeremy Clarkson Says He Has an ‘Aggressive’ Cancer**\
+`The 66-year-old gave few details of his diagnosis but said the disease was “aggressive.”`\
+https://www.nytimes.com/2026/06/17/world/europe/jeremy-clarkson-cancer-uk.html
+
 **Japan Raids Ice Cream Giants in Cartel Investigation**\
 `The Fair Trade Commission said that it suspected six leading ice cream manufacturers fixed the prices of popular frozen treats.`\
 https://www.nytimes.com/2026/06/17/world/asia/japan-ice-cream-cartel-investigation.html

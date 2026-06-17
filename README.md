@@ -1,3 +1,11 @@
+**What Could Happen in Iran?**\
+`Intro TK: minus “good morning”`\
+https://www.nytimes.com/2026/06/17/briefing/what-could-happen-in-iran.html
+
+**‘Hard Fork’ Live Part 2: Dylan Field on Standing Out in the A.I. Era**\
+`“I think if you have a creative voice in writing or design, you put yourself out there and you take a risk — this is a good time to do that,” said the Figma chief executive Dylan Field.`\
+https://www.nytimes.com/2026/06/17/podcasts/hard-fork-live-dylan-field.html
+
 **Jeremy Clarkson Says He Has an ‘Aggressive’ Cancer**\
 `The 66-year-old gave few details of his diagnosis but said the disease was “aggressive.”`\
 https://www.nytimes.com/2026/06/17/world/europe/jeremy-clarkson-cancer-uk.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/06/17/arts/as-the-job-market-stutters-simulated-wor
 **The Cloud Has Sound: The Unrelenting and Unseen Cost of the A.I. Boom**\
 `As tech giants rush to build big data centers, some residents who live near them say a constant low-frequency vibration is ruining their health and homes.`\
 https://www.nytimes.com/2026/06/17/us/data-centers-noise-pollution.html
-
-**A New Era of Super-Hybrids to Ease Range Anxiety**\
-`Extended-range electric vehicles promise to reduce costs and appeal to America’s appetite for adventure. And they’re coming to showrooms soon.`\
-https://www.nytimes.com/2026/06/17/business/extended-range-electric-vehicles-erevs.html
-
-**Germantown: A Philadelphia Neighborhood Where People Stay**\
-`Germantown and its neighbor, Mt. Airy, share a rich cultural history, proximity to nature and a strong community.`\
-https://www.nytimes.com/2026/06/17/realestate/germantown-mt-airy-philadelphia-neighborhood-guide.html
 
