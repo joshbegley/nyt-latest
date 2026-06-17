@@ -1,9 +1,25 @@
+**Unlikely Coalition Begins Campaign Against Billionaire Tax in California**\
+`A surprising array of left-leaning interest groups is trying to kill a wealth tax initiative before the November ballot is finalized. Gov. Gavin Newsom is at the center of negotiations.`\
+https://www.nytimes.com/2026/06/17/us/california-billionaire-tax-opponents.html
+
+**Prediction Markets’ Next Major Bet: Wall St. Traders**\
+`Platforms like Kalshi let millions wager on sports and pop culture. They’re now hoping institutions will use them for big-ticket trading like hedging.`\
+https://www.nytimes.com/2026/06/17/business/dealbook/hedging-prediction-markets-kalshi.html
+
+**Getting Stoned With My Dad Helped Us Heal**\
+`It took a painful reckoning with history, and a lot of cannabis, to bring Julian Brave NoiseCat and his father back together.`\
+https://www.nytimes.com/video/podcasts/100000010972496/getting-stoned-with-my-dad-helped-us-heal.html
+
+**Hagen Quartet Is Taking Its Final Bows After 45 Years**\
+`Formed by siblings who grew up playing together, the Hagen Quartet is finishing a farewell tour with an unforced, casual goodbye.`\
+https://www.nytimes.com/2026/06/17/arts/music/hagen-quartet-farewell-tour.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000010973423/17vid-trump-sisi-63980.html
 
-**Trump Seeks to Delay Hearing for National Intelligence Pick to Pressure Congress on Elections Bill**\
-`President Trump nominated Jay Clayton, the U.S. attorney in Manhattan, after senators from both parties condemned an earlier decision to appoint Bill Pulte.`\
+**Trump Pulls Back Intelligence Pick to Pressure Congress on Elections Bill**\
+`President Trump named Jay Clayton, the U.S. attorney in Manhattan, after a bipartisan backlash to his earlier choice of Bill Pulte. The move all but assures that Mr. Pulte will hold the job, at least for a while.`\
 https://www.nytimes.com/2026/06/17/us/politics/senate-intelligence-nomination-voter-restrictions.html
 
 **What Could Happen in Iran?**\
@@ -173,20 +189,4 @@ https://www.nytimes.com/2026/06/17/arts/design/bruce-nauman-art.html
 **Elon Musk’s Feud With Delaware May Transform Corporate America**\
 `An angry Musk has taken his business elsewhere, and has urged other companies to follow suit.`\
 https://www.nytimes.com/2026/06/17/magazine/elon-musk-delaware-corporate-law.html
-
-**A Watch Brand Focused on Mental Health**\
-`Every sale since Split debuted in mid-2025 has generated a donation equivalent to the cost of an hour’s therapy, its co-founder said.`\
-https://www.nytimes.com/2026/06/17/fashion/watches-split-mental-health.html
-
-**Bahrain Revoked Their Citizenship, and Then Tried to Expel Them to Iran**\
-`Amid the war with Iran, Bahrain has stripped 69 people of their citizenship, including children, accusing them of disloyalty and rendering them stateless.`\
-https://www.nytimes.com/2026/06/17/world/middleeast/bahrain-iran-citizenship-expulsions.html
-
-**‘White Lotus’ Star Murray Bartlett Shares His Favorite Places in Provincetown**\
-`The Australian actor, who won an Emmy for his role in Season 1 of “The White Lotus,” called his adopted Cape Cod hometown a “wonderland.”`\
-https://www.nytimes.com/2026/06/17/travel/provincetown-cape-cod-where-to-go.html
-
-**Mental Health Can Complicate Family Planning**\
-`Five stories show the hurdles that people with psychological diagnoses face when considering parenthood.`\
-https://www.nytimes.com/2026/06/17/well/mind/mental-health-family-children.html
 
