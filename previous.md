@@ -1,3 +1,11 @@
+**Los líderes de Europa se muestran amables con Trump tras una temporada tensa**\
+`Un acuerdo de paz con Irán y la esperanza de cooperar con Ucrania suavizaron el tono el martes durante una reunión del Grupo de los 7 celebrada en Francia.`\
+https://www.nytimes.com/es/2026/06/17/espanol/mundo/trump-lideres-europa-g7.html
+
+**Quote of the Day: For 250th, a Maritime Pageant Daunting in Heft and Hassles**\
+`Quotation of the Day for Wednesday, June 17, 2026`\
+https://www.nytimes.com/2026/06/17/pageoneplus/quote-of-the-day-for-250th-a-maritime-pageant-daunting-in-heft-and-hassles.html
+
 **Ohio Governor Says State Should End the Death Penalty, Breaking With His Party**\
 `During a news conference on Tuesday, Gov. Mike DeWine, a Republican, called on state lawmakers to end all executions, a practice he once supported.`\
 https://www.nytimes.com/2026/06/16/us/dewine-death-penalty-ohio.html
@@ -189,8 +197,4 @@ https://www.nytimes.com/2026/06/16/us/politics/swalwell-replacement-california.h
 **Hillary Clinton Says Biden’s Re-election Bid Was a ‘Terrible Mistake’**\
 `If the former president had “passed the torch” and allowed a competitive Democratic primary in 2024, she said in a new interview, the winner “would have beaten Donald Trump.”`\
 https://www.nytimes.com/2026/06/16/us/politics/clinton-biden-reelection-terrible-mistake.html
-
-**Merlín, el pato mundialista mexicano, salta a la fama**\
-`La mascota se ha convertido en una de las primeras sensaciones del torneo mientras se pasea por Ciudad de México vestido con la camiseta tricolor.`\
-https://www.nytimes.com/es/2026/06/16/espanol/deportes/mexico-mundial-pato-merlin.html
 

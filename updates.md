@@ -1,3 +1,11 @@
+**Los líderes de Europa se muestran amables con Trump tras una temporada tensa**\
+`Un acuerdo de paz con Irán y la esperanza de cooperar con Ucrania suavizaron el tono el martes durante una reunión del Grupo de los 7 celebrada en Francia.`\
+https://www.nytimes.com/es/2026/06/17/espanol/mundo/trump-lideres-europa-g7.html
+
+**Quote of the Day: For 250th, a Maritime Pageant Daunting in Heft and Hassles**\
+`Quotation of the Day for Wednesday, June 17, 2026`\
+https://www.nytimes.com/2026/06/17/pageoneplus/quote-of-the-day-for-250th-a-maritime-pageant-daunting-in-heft-and-hassles.html
+
 **Ohio Governor Says State Should End the Death Penalty, Breaking With His Party**\
 `During a news conference on Tuesday, Gov. Mike DeWine, a Republican, called on state lawmakers to end all executions, a practice he once supported.`\
 https://www.nytimes.com/2026/06/16/us/dewine-death-penalty-ohio.html
