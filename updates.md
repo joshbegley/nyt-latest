@@ -1,3 +1,7 @@
+**Ucrania usa la IA para derribar drones de Rusia**\
+`Los interceptores demuestran que Ucrania apuesta por tecnologías autónomas entrenadas con enormes cantidades de datos de guerra.`\
+https://www.nytimes.com/es/2026/06/17/espanol/mundo/ucrania-ia-drones-rusia.html
+
 **Bob Dylan y Liza Minnelli ya cumplieron 80 años, y tienen algo que decirle a Trump**\
 `“Me siento igual que hace 50 años”, dijo el presidente Trump. “Es una locura”.`\
 https://www.nytimes.com/es/2026/06/17/espanol/opinion/bob-dylan-liza-minnelli-80-anos-trump.html

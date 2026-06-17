@@ -1,3 +1,7 @@
+**Ucrania usa la IA para derribar drones de Rusia**\
+`Los interceptores demuestran que Ucrania apuesta por tecnologías autónomas entrenadas con enormes cantidades de datos de guerra.`\
+https://www.nytimes.com/es/2026/06/17/espanol/mundo/ucrania-ia-drones-rusia.html
+
 **Bob Dylan y Liza Minnelli ya cumplieron 80 años, y tienen algo que decirle a Trump**\
 `“Me siento igual que hace 50 años”, dijo el presidente Trump. “Es una locura”.`\
 https://www.nytimes.com/es/2026/06/17/espanol/opinion/bob-dylan-liza-minnelli-80-anos-trump.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/16/us/politics/election-results-timing-tonight-w
 **Heavy Rain Floods Texas**\
 `Storm systems doused Texas with heavy rain and caused flooding.`\
 https://www.nytimes.com/video/weather/100000010971313/rain-texas-floods-weather.html
-
-**NY Liberty’s Ellie the Elephant Celebrates Her 6th Birthday in Style**\
-`Sure, there are bigger milestones than a sixth birthday. But the New York Liberty’s trunk-shaking mascot isn’t one to miss a chance to party.`\
-https://www.nytimes.com/2026/06/16/style/ellie-elephant-new-york-liberty-mascot-birthday.html
 
