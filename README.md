@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000010973423/17vid-trump-sisi-63980.html
+
 **Trump Seeks to Delay Hearing for National Intelligence Pick to Pressure Congress on Elections Bill**\
 `President Trump nominated Jay Clayton, the U.S. attorney in Manhattan, after senators from both parties condemned an earlier decision to appoint Bill Pulte.`\
 https://www.nytimes.com/2026/06/17/us/politics/senate-intelligence-nomination-voter-restrictions.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/06/17/travel/provincetown-cape-cod-where-to-go.html
 **Mental Health Can Complicate Family Planning**\
 `Five stories show the hurdles that people with psychological diagnoses face when considering parenthood.`\
 https://www.nytimes.com/2026/06/17/well/mind/mental-health-family-children.html
-
-**As the Job Market Stutters, Simulated Work Is Surging**\
-`By asking players to perform repetitive labor in mundane settings, game designers are delivering relatable twists on the tycoon genre.`\
-https://www.nytimes.com/2026/06/17/arts/as-the-job-market-stutters-simulated-work-is-surging.html
 

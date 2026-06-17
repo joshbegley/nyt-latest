@@ -1,3 +1,7 @@
+**Trump Seeks to Delay Hearing for National Intelligence Pick to Pressure Congress on Elections Bill**\
+`President Trump nominated Jay Clayton, the U.S. attorney in Manhattan, after senators from both parties condemned an earlier decision to appoint Bill Pulte.`\
+https://www.nytimes.com/2026/06/17/us/politics/senate-intelligence-nomination-voter-restrictions.html
+
 **What Could Happen in Iran?**\
 `Intro TK: minus “good morning”`\
 https://www.nytimes.com/2026/06/17/briefing/what-could-happen-in-iran.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/06/17/well/mind/mental-health-family-children.html
 **As the Job Market Stutters, Simulated Work Is Surging**\
 `By asking players to perform repetitive labor in mundane settings, game designers are delivering relatable twists on the tycoon genre.`\
 https://www.nytimes.com/2026/06/17/arts/as-the-job-market-stutters-simulated-work-is-surging.html
-
-**The Cloud Has Sound: The Unrelenting and Unseen Cost of the A.I. Boom**\
-`As tech giants rush to build big data centers, some residents who live near them say a constant low-frequency vibration is ruining their health and homes.`\
-https://www.nytimes.com/2026/06/17/us/data-centers-noise-pollution.html
 
