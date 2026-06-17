@@ -1,3 +1,7 @@
+**‘Matlock’ Writer Sues CBS, Claiming Hostile Environment for Black Employees**\
+`Some of the show’s leadership made harassing statements about the writer’s race and sexuality, the lawsuit says. CBS said it had been unable to find support for the allegations.`\
+https://www.nytimes.com/2026/06/17/arts/television/matlock-lawsuit-harassment.html
+
 **‘The Whole World Saw That’: Congo Fans Rejoice in Draw With Portugal**\
 `“If you’re coming to face Congo,” one fan said after his team stunned Portugal, a global soccer powerhouse, “just get ready to run and to fight, because we’re going to give it to you.”`\
 https://www.nytimes.com/2026/06/17/us/congo-fans-portugal-tie.html

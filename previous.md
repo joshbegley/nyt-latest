@@ -1,3 +1,7 @@
+**‘Matlock’ Writer Sues CBS, Claiming Hostile Environment for Black Employees**\
+`Some of the show’s leadership made harassing statements about the writer’s race and sexuality, the lawsuit says. CBS said it had been unable to find support for the allegations.`\
+https://www.nytimes.com/2026/06/17/arts/television/matlock-lawsuit-harassment.html
+
 **‘The Whole World Saw That’: Congo Fans Rejoice in Draw With Portugal**\
 `“If you’re coming to face Congo,” one fan said after his team stunned Portugal, a global soccer powerhouse, “just get ready to run and to fight, because we’re going to give it to you.”`\
 https://www.nytimes.com/2026/06/17/us/congo-fans-portugal-tie.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/es/2026/06/17/espanol/estados-unidos/avion-choque-laredo
 **U.S.-Iran Agreement Includes Strait of Hormuz, Lebanon and More: See Full Text of the Deal**\
 `New York Times reporters annotated the agreement, which a senior official disclosed on Wednesday.`\
 https://www.nytimes.com/2026/06/17/us/politics/us-iran-agreement-deal-text.html
-
-**Trump’s FEMA Nominee Calls Staff Cuts a ‘Challenge’ for Disaster Agency**\
-`Cameron Hamilton, who briefly led the agency on an acting basis last year but was fired for contradicting the president, also said he would get money out to states faster.`\
-https://www.nytimes.com/2026/06/17/climate/trump-fema-cameron-hamilton.html
 
 **Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
 `Chairman Kevin M. Warsh vowed to start a “new chapter” in the Federal Reserve’s oversight of the U.S. economy.`\

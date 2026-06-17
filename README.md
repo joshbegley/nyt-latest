@@ -1,3 +1,11 @@
+**Trump Escalates Tensions With Senate Republicans**\
+`Also, the U.S. shares details of the preliminary Iran deal. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/06/17/briefing/trump-senate-republicans-us-iran-deal.html
+
+**Federal Prisons Must Provide Hormones Sought by Trans Inmates**\
+`The government had argued that a “pendulum swing” in the medical consensus justified treating trans inmates with psychotherapy and antidepressants instead.`\
+https://www.nytimes.com/2026/06/17/us/hormones-transgender-prison-inmates.html
+
 **‘Matlock’ Writer Sues CBS, Claiming Hostile Environment for Black Employees**\
 `Some of the show’s leadership made harassing statements about the writer’s race and sexuality, the lawsuit says. CBS said it had been unable to find support for the allegations.`\
 https://www.nytimes.com/2026/06/17/arts/television/matlock-lawsuit-harassment.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/06/17/science/richard-a-tapia-dead.html
 **A.I.: Artificial or Awesome?**\
 `Fenix Flexin’s new ’80s-pop single “RUBBERZ” sounds miles away from the hip-hop he’s known for as part of Shoreline Mafia. Our critic Jon Caramanica discusses the track and the online debate over whether it was A.I.-generated.`\
 https://www.nytimes.com/video/podcasts/100000010974327/ai-artificial-or-awesome.html
-
-**Un jet privado se estrella en Texas y deja 1 persona muerta**\
-`La tripulación del avión informó problemas mecánicos y poco combustible mientras volaban hacia Austin, Texas, desde México. Cinco de las seis personas que iban a bordo sobrevivieron al choque en Laredo.`\
-https://www.nytimes.com/es/2026/06/17/espanol/estados-unidos/avion-choque-laredo-texas.html
-
-**U.S.-Iran Agreement Includes Strait of Hormuz, Lebanon and More: See Full Text of the Deal**\
-`New York Times reporters annotated the agreement, which a senior official disclosed on Wednesday.`\
-https://www.nytimes.com/2026/06/17/us/politics/us-iran-agreement-deal-text.html
 
 **Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
 `Chairman Kevin M. Warsh vowed to start a “new chapter” in the Federal Reserve’s oversight of the U.S. economy.`\
