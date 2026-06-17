@@ -1,3 +1,7 @@
+**Barn Fire Kills 17 Horses at Harness Track in Saratoga Springs, N.Y.**\
+`The cause is under investigation. Only one horse in the barn, Twin B Speed Dial, is believed to have survived, sustaining minor injuries.`\
+https://www.nytimes.com/2026/06/16/us/saratoga-barn-fire-horses.html
+
 **As Mourning Begins, Deadly B-52 Crash Highlights Age of Bomber Fleet**\
 `Investigators are just beginning to determine what went wrong, but the Air Force has struggled to maintain the planes, which were first introduced in 1955.`\
 https://www.nytimes.com/2026/06/16/us/b52-crash.html
@@ -14,7 +18,7 @@ https://www.nytimes.com/2026/06/16/nyregion/doj-new-york-health-care-lawsuit.htm
 `President Trump had made a late endorsement for Mr. Collins, who had campaigned as a MAGA candidate also able to appeal to moderates.`\
 https://www.nytimes.com/2026/06/16/us/politics/georgia-senate-republican-runoff.html
 
-**Independence Day Events Will Ground Flights in Washington**\
+**Washington’s Reagan Airport Will Ground Flights for July 4 Events**\
 `The runways at Ronald Reagan National Airport will be closed after noon on July 4, and for several hours on July 3. Other celebrations surrounding the nation’s 250th birthday are also expected to cause disruptions.`\
 https://www.nytimes.com/2026/06/16/us/politics/independence-day-flight-disruptions-washington.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/16/world/iran-war-economy-epstein-world-cup.html
 **Taylor Swift Didn’t Marry in Rhode Island. Fans Showed Up Anyway.**\
 `Despite reports pointing to New York as a potential Swift-Kelce wedding location, Swifties still descended on Watch Hill, R.I., this past weekend, hoping for a glimpse of the singer or signs of a June 13 celebration.`\
 https://www.nytimes.com/2026/06/16/style/taylor-swifts-rhode-island-wedding.html
-
-**Carriage Horse in Central Park Died After Eating a Poisonous Plant**\
-`A preliminary report said the horse had eaten from a commonplace but toxic shrub, though rules forbid allowing horses to consume park plants.`\
-https://www.nytimes.com/2026/06/16/nyregion/carriage-horse-central-park-death-poisonous-plant.html
 
