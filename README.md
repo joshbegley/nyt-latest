@@ -74,13 +74,13 @@ https://www.nytimes.com/2026/06/17/us/world-cup-kansas-city-messi-argentina.html
 `Analizamos todas las teorías plausibles sobre su muerte, tanto las oficiales como las alternativas, en busca de los argumentos y las pruebas más convincentes.`\
 https://www.nytimes.com/es/2026/06/17/espanol/estados-unidos/muerte-epstein-suicidio-investigacion.html
 
-**America’s First Pope Pays Homage to Its First Saint**\
-`When Pope Leo visits Mother Cabrini’s birthplace, the message will not be their shared American nationality but a rebuke of American exceptionalism.`\
-https://www.nytimes.com/2026/06/17/opinion/pope-leo-cabrini-american-saint.html
-
 **We Just Saw the Limit of American Military Might**\
 `How did the world’s richest nation, armed with the most powerful military, arrive at this strategic defeat?`\
 https://www.nytimes.com/2026/06/17/opinion/iran-war-us-military-power.html
+
+**America’s First Pope Pays Homage to Its First Saint**\
+`When Pope Leo visits Mother Cabrini’s birthplace, the message will not be their shared American nationality but a rebuke of American exceptionalism.`\
+https://www.nytimes.com/2026/06/17/opinion/pope-leo-cabrini-american-saint.html
 
 **Georgia Vexes Trump Yet Again: 6 Takeaways From Tuesday’s Primaries**\
 `Lt. Gov. Burt Jones lost the Republican runoff for governor to the health care executive Rick Jackson despite the president’s endorsement. Mr. Trump’s picks won in other races.`\

@@ -1,3 +1,7 @@
+**Private Jet Crashes in Texas, Killing 1**\
+`The plane’s crew reported mechanical problems and low fuel as they flew to Austin, Texas, from Mexico. Five of the six people on board survived the crash in Laredo.`\
+https://www.nytimes.com/2026/06/17/us/laredo-plane-crash-texas.html
+
 **Plane Crashes on Texas Highway**\
 `People rushed to pull survivors from a private jet that crashed and caught fire on a highway in Laredo, Texas, on Tuesday night, leaving one dead.`\
 https://www.nytimes.com/video/us/100000010973156/laredo-plane-crash.html
