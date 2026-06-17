@@ -1,3 +1,15 @@
+**SpaceX’s Growing Warchest**\
+`Shares in Elon Musk’s SpaceX have been on a tear, giving the rockets and artificial intelligence company financial resources to box out competitors.`\
+https://www.nytimes.com/2026/06/17/business/dealbook/spacex-stock-cursor-ai.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/admin/100000010973429/17vid-trump-obama-59532.html
+
+****\
+`tktktkt`\
+https://www.nytimes.com/video/embedded/business/100000010973506/Biz-Fertilizer-Cocoa.html
+
 **Unlikely Coalition Begins Campaign Against Billionaire Tax in California**\
 `A surprising array of left-leaning interest groups is trying to kill a wealth tax initiative before the November ballot is finalized. Gov. Gavin Newsom is at the center of negotiations.`\
 https://www.nytimes.com/2026/06/17/us/california-billionaire-tax-opponents.html
@@ -181,12 +193,4 @@ https://www.nytimes.com/interactive/2026/06/17/us/elections/redistricting-maps-b
 **Illinois Town Loses a Prison, Leaving Residents Worried About Jobs**\
 `Lincoln, Ill., where Abraham Lincoln once worked in the local courthouse, has lost two colleges, a bottle factory and now a state prison.`\
 https://www.nytimes.com/2026/06/17/us/lincoln-illinois-closures-economy.html
-
-**Bruce Nauman on How to Make Art: Don’t Try**\
-`The artist’s latest videos and drawings stem from physical and mental exercises and are largely improvised in his studio, with raw and vulnerable results.`\
-https://www.nytimes.com/2026/06/17/arts/design/bruce-nauman-art.html
-
-**Elon Musk’s Feud With Delaware May Transform Corporate America**\
-`An angry Musk has taken his business elsewhere, and has urged other companies to follow suit.`\
-https://www.nytimes.com/2026/06/17/magazine/elon-musk-delaware-corporate-law.html
 

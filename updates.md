@@ -1,3 +1,23 @@
+**Unlikely Coalition Begins Campaign Against Billionaire Tax in California**\
+`A surprising array of left-leaning interest groups is trying to kill a wealth tax initiative before the November ballot is finalized. Gov. Gavin Newsom is at the center of negotiations.`\
+https://www.nytimes.com/2026/06/17/us/california-billionaire-tax-opponents.html
+
+**Prediction Markets’ Next Major Bet: Wall St. Traders**\
+`Platforms like Kalshi let millions wager on sports and pop culture. They’re now hoping institutions will use them for big-ticket trading like hedging.`\
+https://www.nytimes.com/2026/06/17/business/dealbook/hedging-prediction-markets-kalshi.html
+
+**Getting Stoned With My Dad Helped Us Heal**\
+`It took a painful reckoning with history, and a lot of cannabis, to bring Julian Brave NoiseCat and his father back together.`\
+https://www.nytimes.com/video/podcasts/100000010972496/getting-stoned-with-my-dad-helped-us-heal.html
+
+**Hagen Quartet Is Taking Its Final Bows After 45 Years**\
+`Formed by siblings who grew up playing together, the Hagen Quartet is finishing a farewell tour with an unforced, casual goodbye.`\
+https://www.nytimes.com/2026/06/17/arts/music/hagen-quartet-farewell-tour.html
+
+**Trump Pulls Back Intelligence Pick to Pressure Congress on Elections Bill**\
+`President Trump named Jay Clayton, the U.S. attorney in Manhattan, after a bipartisan backlash to his earlier choice of Bill Pulte. The move all but assures that Mr. Pulte will hold the job, at least for a while.`\
+https://www.nytimes.com/2026/06/17/us/politics/senate-intelligence-nomination-voter-restrictions.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000010973423/17vid-trump-sisi-63980.html
