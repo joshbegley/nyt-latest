@@ -1,3 +1,7 @@
+**Wildfire in Washington State Prompts Evacuation Orders**\
+`Dry and windy conditions could exacerbate the blaze, which has already destroyed some structures near Spokane, officials warned.`\
+https://www.nytimes.com/2026/06/17/us/spokane-wildfire-evacuations.html
+
 **Private Jet Crashes in Texas, Killing 1**\
 `The plane’s crew reported mechanical problems and low fuel as they flew to Austin, Texas, from Mexico. Five of the six people on board survived the crash in Laredo.`\
 https://www.nytimes.com/2026/06/17/us/laredo-plane-crash-texas.html
@@ -74,13 +78,13 @@ https://www.nytimes.com/2026/06/17/us/world-cup-kansas-city-messi-argentina.html
 `Analizamos todas las teorías plausibles sobre su muerte, tanto las oficiales como las alternativas, en busca de los argumentos y las pruebas más convincentes.`\
 https://www.nytimes.com/es/2026/06/17/espanol/estados-unidos/muerte-epstein-suicidio-investigacion.html
 
-**We Just Saw the Limit of American Military Might**\
-`How did the world’s richest nation, armed with the most powerful military, arrive at this strategic defeat?`\
-https://www.nytimes.com/2026/06/17/opinion/iran-war-us-military-power.html
-
 **America’s First Pope Pays Homage to Its First Saint**\
 `When Pope Leo visits Mother Cabrini’s birthplace, the message will not be their shared American nationality but a rebuke of American exceptionalism.`\
 https://www.nytimes.com/2026/06/17/opinion/pope-leo-cabrini-american-saint.html
+
+**We Just Saw the Limit of American Military Might**\
+`How did the world’s richest nation, armed with the most powerful military, arrive at this strategic defeat?`\
+https://www.nytimes.com/2026/06/17/opinion/iran-war-us-military-power.html
 
 **Georgia Vexes Trump Yet Again: 6 Takeaways From Tuesday’s Primaries**\
 `Lt. Gov. Burt Jones lost the Republican runoff for governor to the health care executive Rick Jackson despite the president’s endorsement. Mr. Trump’s picks won in other races.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/16/business/chinese-investors-restrictions.html
 **Good Luck, Kevin Warsh. You’ll Need It.**\
 `Between a surge in interest rates, increasingly restive colleagues and the demands of President Trump, the new Fed chairman, Kevin Warsh, is in a bind.`\
 https://www.nytimes.com/2026/06/16/opinion/kevin-warsh-fed-chair-interest-rates-trump.html
-
-**Red Curry Chicken and Rice Bowls**\
-`These cozy yet reviving rice bowls pair Thai red curry-stained rice with tender chicken and a citrusy slaw.`\
-https://www.nytimes.com/video/dining/100000010972523/red-curry-chicken-and-rice-bowls.html
 
