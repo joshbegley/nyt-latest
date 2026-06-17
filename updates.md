@@ -1,3 +1,7 @@
+**World Cup 2026: How Messi Completed His Hat-Trick of Goals for Argentina**\
+`View in 3-D how Lionel Messi crafted the third goal for Argentina in a 3-0 win over Algeria in its opening game of the World Cup.`\
+https://www.nytimes.com/interactive/2026/06/17/sports/soccer/messi-world-cup-goal-argentina-algeria.html
+
 **Oil Prices Waver as Traders Hope the Strait of Hormuz Will Reopen**\
 `Traders are waiting for U.S. and Iranian officials to meet in Switzerland on Friday, when they are expected to sign an initial agreement and begin a 60-day cease-fire.`\
 https://www.nytimes.com/2026/06/17/business/iran-war-hormuz-oil-gas.html
