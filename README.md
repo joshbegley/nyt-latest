@@ -46,7 +46,7 @@ https://www.nytimes.com/2026/06/17/nyregion/how-to-go-knicks-parade-nyc.html
 `It’s the third such deal the Interior Department has struck to pay firms to abandon plans for offshore turbines.`\
 https://www.nytimes.com/2026/06/17/climate/trump-wind-farms-cancel-millions.html
 
-**There’s a Tropical Storm Off the Coast, but Houston Match ‘Dodged the Bullet’**\
+**A Tropical Storm Came Ashore, but Houston’s Match ‘Dodged the Bullet’**\
 `Tropical Storm Arthur became the first named storm of the Atlantic season on Wednesday, but its rain and wind were moving away from Houston.`\
 https://www.nytimes.com/2026/06/17/us/world-cup-tropical-storm-arthur.html
 

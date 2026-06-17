@@ -1,3 +1,11 @@
+**What Young Men Thought of Trump’s U.F.C. Fight**\
+`The spectacle seemed targeted to the young male voters drifting away from the president. Some were skeptical.`\
+https://www.nytimes.com/2026/06/17/style/trump-ufc-white-house-young-men.html
+
+**Live Updates: Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
+`Chairman Kevin M. Warsh vowed to start a “new chapter” in the Federal Reserve’s oversight of the U.S. economy.`\
+https://www.nytimes.com/live/2026/06/17/business/fed-meeting-warsh-interest-rates
+
 **Trump Rescinds Endorsement of Right-Wing Pastor After Texting Scandal**\
 `The pastor, Jackson Lahmeyer, dropped out of the race for a House seat in Oklahoma as President Trump backed Mr. Lahmeyer’s Republican rival in a runoff election.`\
 https://www.nytimes.com/2026/06/17/us/politics/trump-lahmeyer-house-texting-scandal-tedford.html
