@@ -1,3 +1,7 @@
+**Lost Oregon Hiker Fell to Death From Cliff on Alaska Trail, Troopers Say**\
+`Emergency responders found the body of a man partially submerged at the bottom of a cliff in Ketchikan on Monday, the authorities said.`\
+https://www.nytimes.com/2026/06/17/us/oregon-hiker-dead-cliff-alaska.html
+
 **The Good List: 6 Things to Bring Joy to Your Day**\
 `A memory workout, an endless playlist and an antidote to worry.`\
 https://www.nytimes.com/2026/06/17/briefing/17-the-good-list-knicks-memory.html
@@ -10,8 +14,8 @@ https://www.nytimes.com/2026/06/17/us/politics/ossoff-collins-georgia-senate.htm
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000010974481/17vid-Trump-G7-79572.html
 
-**Georgia Republicans Shelve Redistricting for Now**\
-`The leaders of the Georgia House of Representatives said they would not redraw U.S. House districts held by Black Democrats just hours before a special session was to begin.`\
+**Georgia Republicans Shelve Redistricting As Anger Grows**\
+`The leaders of the Georgia legislature pulled the plug on gerrymandering away U.S. House seats held by Black Democrats just hours before a special session was to begin.`\
 https://www.nytimes.com/2026/06/17/us/politics/georgia-republicans-redistricting.html
 
 **Trump Says His Iran Deal Is Better Than Obama’s**\
@@ -110,7 +114,7 @@ https://www.nytimes.com/2026/06/17/us/politics/the-docket-death-row.html
 `El presidente Trump está bajo presión para mejorar significativamente el acuerdo de la época de Obama y así justificar el enorme costo humano y económico que supuso llevar a Estados Unidos a la guerra.`\
 https://www.nytimes.com/es/2026/06/17/espanol/estados-unidos/obama-acuerdo-nuclear-trump-iran.html
 
-**Live Updates: Fed Meeting Marks Start of New Chairman’s Balancing Act**\
+**Live Updates: Fed Holds Interest Rates Steady as New Chairman Begins a Balancing Act**\
 `Kevin M. Warsh will take questions from reporters after leading his first gathering of the Federal Reserve’s top officials.`\
 https://www.nytimes.com/live/2026/06/17/business/fed-meeting-warsh-interest-rates
 
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/06/17/technology/waymo-driverless-taxis-politics.ht
 **Trump Angrily Defends Iran Deal, Belittling the One Obama Signed**\
 `President Trump denied that the United States would be part of a $300 billion rebuilding fund for Tehran and argued that his agreement was better than the one Barack Obama struck in 2015.`\
 https://www.nytimes.com/2026/06/17/us/politics/trump-iran-peace-deal-obama.html
-
-**Arianna Huffington: Our Strongest Drive Is Self-Discovery**\
-`It may be tempting to chase status and success, but let’s not overlook our universal need to find inner meaning and purpose.`\
-https://www.nytimes.com/2026/06/17/special-series/arianna-huffington-self-discovery.html
 
