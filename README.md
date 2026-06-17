@@ -1,3 +1,7 @@
+**600 Tickets for Knicks’ Championship Ceremony Up for Grabs in Lottery**\
+`The ceremony, at City Hall in New York, will follow Thursday’s parade in Lower Manhattan. But the lottery is open only until 11 a.m. today.`\
+https://www.nytimes.com/2026/06/17/nyregion/knicks-parade-tickets-lottery.html
+
 **Oil Prices Waver as Traders Hope the Strait of Hormuz Will Reopen**\
 `Traders are waiting for U.S. and Iranian officials to meet in Switzerland on Friday, when they are expected to sign an initial agreement and being a 60-day cease-fire.`\
 https://www.nytimes.com/2026/06/17/business/iran-war-hormuz-oil-gas.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/es/2026/06/17/espanol/mundo/restricciones-inversiones-ch
 **Dear A.I. Companies: The Doom Trolling Needs to Stop**\
 `The major A.I. companies keep telling us how dangerous their new models can be, yet they must keep on building them.`\
 https://www.nytimes.com/2026/06/17/opinion/ai-dangerous-openai-anthropic.html
-
-**If You Don’t Vote for Republicans, You Don’t Exist**\
-`“Voter fraud” is not about fraud. It is about who votes and how.`\
-https://www.nytimes.com/2026/06/17/opinion/trump-pratt-voter-fraud-republicans.html
 
