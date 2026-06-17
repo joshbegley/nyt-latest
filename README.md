@@ -1,3 +1,23 @@
+**The Other Grand Army Plaza Gets a $21 Million Makeover**\
+`An overlooked plaza that opened more than a century ago and was designed as “an outdoor living room” at the southeast corner of Central Park re-emerges after a lengthy restoration.`\
+https://www.nytimes.com/2026/06/17/nyregion/grand-army-plaza-manhattan-makeover.html
+
+**How Israel Came to Dominate a Congressional Primary Campaign in New York**\
+`Brad Lander is challenging Representative Dan Goldman over his stance on the war in Gaza as the two men face off in a contentious race for a Brooklyn and Lower Manhattan seat.`\
+https://www.nytimes.com/2026/06/17/nyregion/lander-goldman-israel-nyc-primary.html
+
+**A Tournament on Native Land Makes Millions. A Tribe Wants a Bigger Cut.**\
+`The Shinnecock Hills Golf Club on Long Island earns millions when it hosts the U.S. Open. But the nearby Indian tribe has for years only received a fraction of that.`\
+https://www.nytimes.com/2026/06/17/nyregion/a-tournament-on-native-land-makes-millions-a-tribe-wants-a-bigger-cut.html
+
+**We Want to Hear from Indigenous People Across New York.**\
+`The New York Times is examining the relationship between New York State officials and Native Americans.`\
+https://www.nytimes.com/2026/06/17/nyregion/ny-indigenous-peoples-call-out.html
+
+**Why The New York Times Is Expanding in Texas**\
+`Members of a new team of Times reporters and editors are covering culture, economics and more in a state long known for its political clout.`\
+https://www.nytimes.com/2026/06/17/insider/new-york-times-texas.html
+
 **Ucrania usa la IA para derribar drones de Rusia**\
 `Los interceptores demuestran que Ucrania apuesta por tecnologías autónomas entrenadas con enormes cantidades de datos de guerra.`\
 https://www.nytimes.com/es/2026/06/17/espanol/mundo/ucrania-ia-drones-rusia.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/06/16/us/mississippi-shooting-shoplifting.html
 **Say Hello to the Newest N.Y.C. Area Code: 465**\
 `There are millions of possible phone numbers under each area code, but about once a decade, this growing city runs out of digits.`\
 https://www.nytimes.com/2026/06/16/nyregion/nyc-area-code-465.html
-
-**The U.S. and Iran Tamp Down Heated Rhetoric**\
-`Also, primary elections test Trump’s sway in the South. Here’s the latest at the end of Tuesday.`\
-https://www.nytimes.com/2026/06/16/briefing/us-iran-deal-primary-elections.html
-
-**NYC Area Codes Quiz**\
-`New York City has a new area code: 465.`\
-https://www.nytimes.com/interactive/2026/06/16/nyregion/17met-area-codes-quiz.html
-
-**Judge Orders Kennedy Center to Make a Plan for Staying Open**\
-`As the Trump administration seeks to move forward with renovations at the center, a judge has asked for its programming calendar.`\
-https://www.nytimes.com/2026/06/16/arts/music/kennedy-center-closing-plan-judge.html
-
-**When to Expect Results in Georgia, Alabama and Oklahoma**\
-`There are runoff elections in Georgia and Alabama and primaries in Oklahoma.`\
-https://www.nytimes.com/2026/06/16/us/politics/election-results-timing-tonight-when.html
-
-**Heavy Rain Floods Texas**\
-`Storm systems doused Texas with heavy rain and caused flooding.`\
-https://www.nytimes.com/video/weather/100000010971313/rain-texas-floods-weather.html
 
