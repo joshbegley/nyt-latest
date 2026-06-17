@@ -1,3 +1,15 @@
+**U.S. Will Waive Oil Sanctions That Have Long Crimped Iran**\
+`The preliminary U.S.-Iran deal temporarily waives restrictions that have limited the country’s oil sales and how much money it has been able to make from those exports.`\
+https://www.nytimes.com/2026/06/17/world/europe/us-iran-oil-sanctions.html
+
+**Tropical Storm Arthur Hits World Cup Attendees in Texas**\
+`Attendees lined up for the World Cup in Houston as Tropical Storm Arthur made landfall along the Texas coast on Wednesday.`\
+https://www.nytimes.com/video/weather/100000010974358/tropical-storm-arthur-texas-world-cup.html
+
+**Trump Upends G7 Summit With Statements on Iran Deal and Ukraine**\
+`At the Group of 7 gathering in France, President Trump’s oscillations on his Iran deal and Ukraine left European leaders racing to catch up.`\
+https://www.nytimes.com/2026/06/17/world/europe/trump-g7-europe.html
+
 **Indiana Professor Who Taught Anti-White Supremacy Lesson Loses Job**\
 `The lesson included a slide that suggested that the “Make America Great Again” slogan should be considered a form of covert white supremacy.`\
 https://www.nytimes.com/2026/06/17/us/indiana-professor-white-supremacy-lesson-maga.html
