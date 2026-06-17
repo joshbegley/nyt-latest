@@ -1,3 +1,31 @@
+**What to Know if You’re Going to the Knicks Parade**\
+`Thousands of New Yorkers will descend on Lower Manhattan on Thursday morning to celebrate the Knicks. Here’s what you should know if you are one of them.`\
+https://www.nytimes.com/2026/06/17/nyregion/how-to-go-knicks-parade-nyc.html
+
+**Trump Administration to Pay $765 Million to Cancel 4 More Wind Projects**\
+`It’s the third such deal the Interior Department has struck to pay firms to abandon plans for offshore turbines.`\
+https://www.nytimes.com/2026/06/17/climate/trump-wind-farms-cancel-millions.html
+
+**There’s a Tropical Storm Off the Coast, but Houston Match ‘Dodged the Bullet’**\
+`Tropical Storm Arthur became the first named storm of the Atlantic season on Wednesday, but its rain and wind were moving away from Houston.`\
+https://www.nytimes.com/2026/06/17/us/world-cup-tropical-storm-arthur.html
+
+**After a Day of Harmony, a Mercurial Trump Upends Leaders’ Summit**\
+`At the Group of 7 gathering in France, President Trump’s oscillations on his Iran deal and Ukraine left European leaders racing to catch up.`\
+https://www.nytimes.com/2026/06/17/world/europe/trump-g7-europe.html
+
+**Watch Live: Fed Chair Holds News Conference on Interest Rate Decision**\
+`The Federal Reserve chairman, Kevin M. Warsh, holds a news conference after a two-day policy meeting.`\
+https://www.nytimes.com/video/embedded/us/100000010973869/watch-live-fed-chair-holds-news-conference-on-interest-rate-decision.html
+
+**Georgia Republicans Shelve Redistricting as Anger Grows**\
+`The leaders of the Georgia legislature pulled the plug on gerrymandering away U.S. House seats held by Black Democrats just hours before a special session was to begin.`\
+https://www.nytimes.com/2026/06/17/us/politics/georgia-republicans-redistricting.html
+
+**Live Updates: Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
+`Kevin M. Warsh, the new Federal Reserve chairman, vowed to reconsider how the central bank monitors the economy.`\
+https://www.nytimes.com/live/2026/06/17/business/fed-meeting-warsh-interest-rates
+
 **Trump’s Threats Show His Complicated History With a Surveillance Law**\
 `The administration argues that FISA Section 702 must be renewed to preserve national security, but the president himself has threatened to veto it.`\
 https://www.nytimes.com/2026/06/17/us/politics/trump-fisa-history.html
