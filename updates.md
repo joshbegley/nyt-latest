@@ -1,3 +1,19 @@
+**How the U.S.-Iran Deal Came Down to the Wire**\
+`The agreement, which punted many of the toughest issues to future negotiations, came after a last-minute scramble.`\
+https://www.nytimes.com/2026/06/17/us/politics/us-iran-deal-trump.html
+
+**France Assembled an African Dream Team. Senegal Could Not Stop Them.**\
+`Many see the rivalry between France and Senegal as a result of colonial heritage. But at the same time, European teams are more African than ever.`\
+https://www.nytimes.com/2026/06/17/world/africa/france-senegal-world-cup-africa.html
+
+**Federal Reserve Holds Interest Rates Steady**\
+`In his first news conference as the Federal Reserve chair, Kevin Warsh announced that interest rates would remain unchanged.`\
+https://www.nytimes.com/video/us/100000010974839/fed-warsh-interest-rates-decision.html
+
+**The Race to Save Survivors After a Texas Plane Crash**\
+`One woman’s video captured rescuers rushing to the small jet, which crashed on a Laredo highway. Five people escaped the wreckage, and one died.`\
+https://www.nytimes.com/2026/06/17/us/laredo-texas-plane-crash.html
+
 **Trump Escalates Tensions With Senate Republicans**\
 `Also, the U.S. shares details of the preliminary Iran deal. Here’s the latest at the end of Wednesday.`\
 https://www.nytimes.com/2026/06/17/briefing/trump-senate-republicans-us-iran-deal.html
