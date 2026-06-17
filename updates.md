@@ -1,3 +1,55 @@
+**How Republicans Are Breaking Up Majority-Black Districts**\
+`Here’s a look at how Louisiana, Alabama and Tennessee broke up majority-Black districts after the Supreme Court weakened the Voting Rights Act.`\
+https://www.nytimes.com/interactive/2026/06/17/us/elections/redistricting-maps-black-voters-republicans.html
+
+**Illinois Town Loses a Prison, Leaving Residents Worried About Jobs**\
+`Lincoln, Ill., where Abraham Lincoln once worked in the local courthouse, has lost two colleges, a bottle factory and now a state prison.`\
+https://www.nytimes.com/2026/06/17/us/lincoln-illinois-closures-economy.html
+
+**Bruce Nauman on How to Make Art: Don’t Try**\
+`The artist’s latest videos and drawings stem from physical and mental exercises and are largely improvised in his studio, with raw and vulnerable results.`\
+https://www.nytimes.com/2026/06/17/arts/design/bruce-nauman-art.html
+
+**Elon Musk’s Feud With Delaware May Transform Corporate America**\
+`An angry Musk has taken his business elsewhere, and has urged other companies to follow suit.`\
+https://www.nytimes.com/2026/06/17/magazine/elon-musk-delaware-corporate-law.html
+
+**A Watch Brand Focused on Mental Health**\
+`Every sale since Split debuted in mid-2025 has generated a donation equivalent to the cost of an hour’s therapy, its co-founder said.`\
+https://www.nytimes.com/2026/06/17/fashion/watches-split-mental-health.html
+
+**Bahrain Revoked Their Citizenship, and Then Tried to Expel Them to Iran**\
+`Amid the war with Iran, Bahrain has stripped 69 people of their citizenship, including children, accusing them of disloyalty and rendering them stateless.`\
+https://www.nytimes.com/2026/06/17/world/middleeast/bahrain-iran-citizenship-expulsions.html
+
+**‘White Lotus’ Star Murray Bartlett Shares His Favorite Places in Provincetown**\
+`The Australian actor, who won an Emmy for his role in Season 1 of “The White Lotus,” called his adopted Cape Cod hometown a “wonderland.”`\
+https://www.nytimes.com/2026/06/17/travel/provincetown-cape-cod-where-to-go.html
+
+**Mental Health Can Complicate Family Planning**\
+`Five stories show the hurdles that people with psychological diagnoses face when considering parenthood.`\
+https://www.nytimes.com/2026/06/17/well/mind/mental-health-family-children.html
+
+**As the Job Market Stutters, Simulated Work Is Surging**\
+`By asking players to perform repetitive labor in mundane settings, game designers are delivering relatable twists on the tycoon genre.`\
+https://www.nytimes.com/2026/06/17/arts/as-the-job-market-stutters-simulated-work-is-surging.html
+
+**The Cloud Has Sound: The Unrelenting and Unseen Cost of the A.I. Boom**\
+`As tech giants rush to build big data centers, some residents who live near them say a constant low-frequency vibration is ruining their health and homes.`\
+https://www.nytimes.com/2026/06/17/us/data-centers-noise-pollution.html
+
+**A New Era of Super-Hybrids to Ease Range Anxiety**\
+`Extended-range electric vehicles promise to reduce costs and appeal to America’s appetite for adventure. And they’re coming to showrooms soon.`\
+https://www.nytimes.com/2026/06/17/business/extended-range-electric-vehicles-erevs.html
+
+**Germantown: A Philadelphia Neighborhood Where People Stay**\
+`Germantown and its neighbor, Mt. Airy, share a rich cultural history, proximity to nature and a strong community.`\
+https://www.nytimes.com/2026/06/17/realestate/germantown-mt-airy-philadelphia-neighborhood-guide.html
+
+**How Ecuador’s Andes Created a Language of Its Own**\
+`In Ecuador’s highlands, a seamless mix of Kichwa and Spanish creates a language that bends grammar, adds melody and goes unnoticed by many who speak it every day.`\
+https://www.nytimes.com/2026/06/17/world/americas/ecuador-kichwa-language-andes.html
+
 **Wildfire in Washington State Prompts Evacuation Orders**\
 `Dry and windy conditions could exacerbate the blaze, which has already destroyed some structures near Spokane, officials warned.`\
 https://www.nytimes.com/2026/06/17/us/spokane-wildfire-evacuations.html
