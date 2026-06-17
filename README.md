@@ -1,3 +1,7 @@
+**World Cup 2026: How Messi Completed His Hat-Trick of Goals for Argentina**\
+`View in 3-D how Lionel Messi crafted the third goal for Argentina in a 3-0 win over Algeria in its opening game of the World Cup.`\
+https://www.nytimes.com/interactive/2026/06/17/sports/soccer/messi-world-cup-goal-argentina-algeria.html
+
 **600 Tickets for Knicks’ Championship Ceremony Up for Grabs in Lottery**\
 `The ceremony, at City Hall in New York, will follow Thursday’s parade in Lower Manhattan. But the lottery is open only until 11 a.m. today.`\
 https://www.nytimes.com/2026/06/17/nyregion/knicks-parade-tickets-lottery.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/17/style/equator-magazine-launch-party.html
 **El nuevo mensaje de China a sus ciudadanos: tu dinero debe quedarse en casa**\
 `En las últimas semanas, Pekín ha tomado medidas para cerrar los canales informales entre los hogares chinos y los mercados de capitales globales.`\
 https://www.nytimes.com/es/2026/06/17/espanol/mundo/restricciones-inversiones-chinos.html
-
-**Dear A.I. Companies: The Doom Trolling Needs to Stop**\
-`The major A.I. companies keep telling us how dangerous their new models can be, yet they must keep on building them.`\
-https://www.nytimes.com/2026/06/17/opinion/ai-dangerous-openai-anthropic.html
 
