@@ -1,3 +1,7 @@
+**We Just Saw the Limit of American Military Might**\
+`How did the world’s richest nation, armed with the most powerful military, arrive at this strategic defeat?`\
+https://www.nytimes.com/2026/06/17/opinion/iran-war-us-military-power.html
+
 **Georgia Republicans Choose Trump’s Pick for Senate, but Not Governor**\
 `Republicans in Georgia advanced Trump’s pick for senator but not governor in the state’s runoff primary on Tuesday.`\
 https://www.nytimes.com/video/us/elections/100000010972869/georgia-election-results-trump.html
