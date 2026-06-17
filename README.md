@@ -1,3 +1,7 @@
+**Finland Lifts a Nuclear Device Ban, Eyeing an Uncertain World**\
+`The Nordic country, which shares an 830-mile border with Russia, said the move would strengthen the NATO alliance, which it joined three years ago.`\
+https://www.nytimes.com/2026/06/17/world/europe/finland-nuclear-devices.html
+
 **Political Spotlight Shines on Warsh for His First Fed Meeting as Chairman**\
 `The new Fed chairman is bound to face the unyielding attention of the president that nominated him.`\
 https://www.nytimes.com/2026/06/17/business/economy/political-spotlight-shines-on-warsh-for-his-first-fed-meeting-as-chair.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/06/17/world/asia/japan-ice-cream-cartel-investigati
 **Speakers in Ecuador’s Andes Blend Spanish With Kichwa**\
 `The distinctive language used in Ecuador’s Andes, including its capital Quito, blends Spanish with Kichwa, an indigenous language spoken since the Inca settlement of the region.`\
 https://www.nytimes.com/video/world/americas/100000010715522/ecuador-quito-language-spanish-kichwa.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/world/europe/100000010973378/17vid-rutte-39696.html
 
