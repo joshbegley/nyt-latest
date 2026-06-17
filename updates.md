@@ -1,3 +1,11 @@
+**Hot Mics Catch Trump, Carney and Other Leaders Off-Guard at G7**\
+`Snippets of conversations picked up on microphones at the annual Group of 7 summit in France offered a glimpse behind the scenes, as leaders chatted about issues great and small.`\
+https://www.nytimes.com/2026/06/17/world/europe/g7-summit-hot-mic-trump-meloni-greenland-carney.html
+
+**Oil Prices Tick Higher Amid Hope the Strait of Hormuz Will Reopen**\
+`Traders are waiting for U.S. and Iranian officials to meet in Switzerland on Friday, when they are expected to sign an initial agreement and begin a 60-day cease-fire.`\
+https://www.nytimes.com/2026/06/17/business/iran-war-hormuz-oil-gas.html
+
 **California’s Vote Count: How Slowness Invites Suspicion Even When It’s Not Sketchy**\
 `California’s crawling pace after election night can make normal statistical shifts seem like fraud.`\
 https://www.nytimes.com/2026/06/17/upshot/california-slow-election-results.html
