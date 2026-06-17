@@ -2,7 +2,7 @@
 `After an early heat wave in May, travelers and residents in France, Germany, Italy and other countries are again looking for respite.`\
 https://www.nytimes.com/2026/06/17/travel/heat-wave-western-europe.html
 
-**Musk’s Next Move May Be a Mega-Merger of SpaceX and Tesla**\
+**Elon Musk’s Next Move May Be a Mega-Merger of SpaceX and Tesla**\
 `Some shareholders might object, but there is little they could do, legal experts say.`\
 https://www.nytimes.com/2026/06/17/business/spacex-tesla-merger-elon-musk.html
 
@@ -30,7 +30,7 @@ https://www.nytimes.com/2026/06/17/us/politics/the-docket-death-row.html
 `El presidente Trump está bajo presión para mejorar significativamente el acuerdo de la época de Obama y así justificar el enorme costo humano y económico que supuso llevar a Estados Unidos a la guerra.`\
 https://www.nytimes.com/es/2026/06/17/espanol/estados-unidos/obama-acuerdo-nuclear-trump-iran.html
 
-**Live Updates: The Fed’s New Chairman Will Discuss the State of the Economy**\
+**Live Updates: Fed Meeting Marks Start of New Chairman’s Balancing Act**\
 `Kevin M. Warsh will take questions from reporters after leading his first gathering of the Federal Reserve’s top officials.`\
 https://www.nytimes.com/live/2026/06/17/business/fed-meeting-warsh-interest-rates
 

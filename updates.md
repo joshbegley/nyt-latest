@@ -1,3 +1,11 @@
+**Elon Musk’s Next Move May Be a Mega-Merger of SpaceX and Tesla**\
+`Some shareholders might object, but there is little they could do, legal experts say.`\
+https://www.nytimes.com/2026/06/17/business/spacex-tesla-merger-elon-musk.html
+
+**Live Updates: Fed Meeting Marks Start of New Chairman’s Balancing Act**\
+`Kevin M. Warsh will take questions from reporters after leading his first gathering of the Federal Reserve’s top officials.`\
+https://www.nytimes.com/live/2026/06/17/business/fed-meeting-warsh-interest-rates
+
 **Western Europe Braces For Another Round of Heat**\
 `After an early heat wave in May, travelers and residents in France, Germany, Italy and other countries are again looking for respite.`\
 https://www.nytimes.com/2026/06/17/travel/heat-wave-western-europe.html

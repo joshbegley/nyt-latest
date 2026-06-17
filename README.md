@@ -1,3 +1,7 @@
+**EE. UU. no tiene ‘nada que ver’ con la guerra en Ucrania, dice Trump en la cumbre del G7**\
+`La cumbre buscaba dirigir la atención a la guerra en Ucrania, pero el presidente Trump dejó claro que el conflicto ya no estaba en su lista de prioridades.`\
+https://www.nytimes.com/es/2026/06/17/espanol/mundo/cumbre-g7-trump-ucrania-rusia.html
+
 **Western Europe Braces For Another Round of Heat**\
 `After an early heat wave in May, travelers and residents in France, Germany, Italy and other countries are again looking for respite.`\
 https://www.nytimes.com/2026/06/17/travel/heat-wave-western-europe.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/06/17/us/politics/senate-intelligence-nomination-vo
 **What Could Happen in Iran?**\
 `Three Times reporters examine the possibilities.`\
 https://www.nytimes.com/2026/06/17/briefing/what-could-happen-in-iran.html
-
-**‘Hard Fork’ Live Part 2: Dylan Field on Standing Out in the A.I. Era**\
-`“I think if you have a creative voice in writing or design, you put yourself out there and you take a risk — this is a good time to do that,” said the Figma chief executive Dylan Field.`\
-https://www.nytimes.com/2026/06/17/podcasts/hard-fork-live-dylan-field.html
 
