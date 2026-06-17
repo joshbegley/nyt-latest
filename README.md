@@ -1,3 +1,7 @@
+**State Lawmaker and Trump-Backed Pastor Head to House Runoff in Oklahoma**\
+`The result sets up a Republican primary runoff between a right-wing firebrand and a more traditional candidate.`\
+https://www.nytimes.com/2026/06/16/us/politics/oklahoma-mark-tedford-jackson-lahmeyer.html
+
 **Rep. Barry Moore Wins G.O.P. Senate Primary in Alabama, Holding Off Challenger**\
 `The contest to fill Alabama’s open Senate seat had become closer than expected between the House lawmaker and Jared Hudson, a political newcomer.`\
 https://www.nytimes.com/2026/06/16/us/elections/alabama-senate-republican-moore.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/es/2026/06/16/espanol/deportes/mexico-mundial-pato-merli
 **Russian Artist Critical of Putin Is Fatally Shot in Poland**\
 `Two Belarusian men were in custody as part of an investigation into the killing of the exiled painter Robert Kuzovkov.`\
 https://www.nytimes.com/2026/06/16/world/europe/russian-artist-putin-killed-poland.html
-
-**Election Live Updates: Georgia Republicans Go With Trump’s Pick for Senate, but Not Governor**\
-`Mike Collins, a Trump-backed Republican, will face Senator Jon Ossoff in Georgia, where Rick Jackson won the Republican nomination for governor over the president’s pick. Candidates backed by Mr. Trump won Republican nominations for Senate in Oklahoma and Alabama.`\
-https://www.nytimes.com/live/2026/06/16/us/georgia-oklahoma-alabama-elections
 
