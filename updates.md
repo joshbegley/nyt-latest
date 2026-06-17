@@ -1,3 +1,23 @@
+**‘Mistakes Are Made,’ Trump Says About Deadly U.S. Strikes on Iranian School**\
+`More than 100 days after U.S. airstrikes demolished an elementary school in the southern Iranian city of Minab, the president said the episode was still under investigation.`\
+https://www.nytimes.com/2026/06/17/world/europe/trump-iran-school-us-strike-minab.html
+
+**‘Why I Love the Beautiful Game’ With Tom Hiddleston**\
+`The Marvel actor discusses why he’s feeling bullish about England’s chances this summer.`\
+https://www.nytimes.com/2026/06/17/podcasts/why-i-love-the-beautiful-game-with-tom-hiddleston.html
+
+**Susan Collins Laments Roe’s Fall but Doesn’t ‘Regret’ Confirming Kavanaugh**\
+`Ms. Collins, a Republican in Maine facing a tough re-election battle, defended her vote to confirm Justice Brett M. Kavanaugh as Democrats look to capitalize on it politically.`\
+https://www.nytimes.com/2026/06/17/us/politics/susan-collins-defends-kavanaugh-vote.html
+
+**See how the first Fed statement under Warsh evolved.**\
+`Interest rates didn’t change, but the language in Fed’s policy statement, which it released alongside its rate decision today, certainly did.`\
+https://www.nytimes.com/2026/06/17/business/economy/kevin-warsh-fed-statement.html
+
+**U.S.-Iran Agreement Includes Strait of Hormuz, Lebanon and More: See Full Text of the Deal**\
+`New York Times reporters annotated the agreement, which a senior official disclosed on Wednesday.`\
+https://www.nytimes.com/2026/06/17/us/politics/us-iran-agreement-deal-text.html
+
 **What to Know if You’re Going to the Knicks Parade**\
 `Thousands of New Yorkers will descend on Lower Manhattan on Thursday morning to celebrate the Knicks. Here’s what you should know if you are one of them.`\
 https://www.nytimes.com/2026/06/17/nyregion/how-to-go-knicks-parade-nyc.html

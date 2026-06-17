@@ -1,3 +1,19 @@
+**‘Mistakes Are Made,’ Trump Says About Deadly U.S. Strikes on Iranian School**\
+`More than 100 days after U.S. airstrikes demolished an elementary school in the southern Iranian city of Minab, the president said the episode was still under investigation.`\
+https://www.nytimes.com/2026/06/17/world/europe/trump-iran-school-us-strike-minab.html
+
+**‘Why I Love the Beautiful Game’ With Tom Hiddleston**\
+`The Marvel actor discusses why he’s feeling bullish about England’s chances this summer.`\
+https://www.nytimes.com/2026/06/17/podcasts/why-i-love-the-beautiful-game-with-tom-hiddleston.html
+
+**Susan Collins Laments Roe’s Fall but Doesn’t ‘Regret’ Confirming Kavanaugh**\
+`Ms. Collins, a Republican in Maine facing a tough re-election battle, defended her vote to confirm Justice Brett M. Kavanaugh as Democrats look to capitalize on it politically.`\
+https://www.nytimes.com/2026/06/17/us/politics/susan-collins-defends-kavanaugh-vote.html
+
+**See how the first Fed statement under Warsh evolved.**\
+`Interest rates didn’t change, but the language in Fed’s policy statement, which it released alongside its rate decision today, certainly did.`\
+https://www.nytimes.com/2026/06/17/business/economy/kevin-warsh-fed-statement.html
+
 **What to Know if You’re Going to the Knicks Parade**\
 `Thousands of New Yorkers will descend on Lower Manhattan on Thursday morning to celebrate the Knicks. Here’s what you should know if you are one of them.`\
 https://www.nytimes.com/2026/06/17/nyregion/how-to-go-knicks-parade-nyc.html
@@ -67,7 +83,7 @@ https://www.nytimes.com/video/podcasts/100000010974327/ai-artificial-or-awesome.
 https://www.nytimes.com/es/2026/06/17/espanol/estados-unidos/avion-choque-laredo-texas.html
 
 **U.S.-Iran Agreement Includes Strait of Hormuz, Lebanon and More: See Full Text of the Deal**\
-`A senior U.S. official, speaking on condition of anonymity, disclosed what the official said was the full text of the deal between the two countries.`\
+`New York Times reporters annotated the agreement, which a senior official disclosed on Wednesday.`\
 https://www.nytimes.com/2026/06/17/us/politics/us-iran-agreement-deal-text.html
 
 **Trump’s FEMA Nominee Calls Staff Cuts a ‘Challenge’ for Disaster Agency**\
@@ -169,20 +185,4 @@ https://www.nytimes.com/2026/06/17/insider/hard-fork-podcast-live-audience-san-f
 **Stars of Israel’s TV Channel for Bibi Fans Turn on Trump**\
 `Leading figures from Channel 14, a right-wing broadcaster that supports Prime Minister Benjamin Netanyahu, are openly attacking the U.S. president over his Iran deal.`\
 https://www.nytimes.com/2026/06/17/world/middleeast/israel-channel-14-trump-criticism.html
-
-**Cory Stearns, American Ballet Theater Star, on Retirement and the Pains of Aging**\
-`Stearns, a longtime principal at American Ballet Theater, has stepped down. He talks about being pushed to leave and the pains and boons of growing older.`\
-https://www.nytimes.com/2026/06/17/arts/dance/cory-stearns-american-ballet-theater-retirement.html
-
-**Shane Hennen, the One Man Linking 3 Gambling Scandals, Is Ready to Talk**\
-`The N.B.A. and the N.C.A.A. have been rocked by indictments accusing players and others of fixing bets and playing in rigged poker games. Shane Hennen is named in each one.`\
-https://www.nytimes.com/2026/06/17/nyregion/shane-hennen-gambling-nba.html
-
-**Mangione to Use Emotional Disturbance as Defense in N.Y. Murder Trial**\
-`Luigi Mangione, who was accused of killing a health care executive in Manhattan in 2024, faces both state and federal charges.`\
-https://www.nytimes.com/2026/06/17/nyregion/mangione-emotional-disturbance-state-trial.html
-
-**Today, In Short**\
-`Summer plans. Hugo spritzes. And the secret to the best pancakes.`\
-https://www.nytimes.com/2026/06/17/briefing/today-in-short.html
 

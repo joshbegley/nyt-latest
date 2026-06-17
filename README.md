@@ -1,3 +1,15 @@
+**Kílian Jornet: Here’s What Keeps Me Going**\
+`When we choose to push forward in the face of physical suffering, we discover ourselves on the other side.`\
+https://www.nytimes.com/2026/06/17/special-series/kilian-jornet-endurance.html
+
+**The Democrats Need Better Candidates. This Guy Knows How to Find Them.**\
+`The 2024 election showed that the party is simply not large enough to command a majority of the country.`\
+https://www.nytimes.com/2026/06/17/opinion/democrats-platner-osborn-daniel-moraff.html
+
+**U.S. Official Releases Text of Agreement With Iran**\
+`The document leaves complicated issues like Iran’s nuclear program still to be decided and a 60-day window to determine them.`\
+https://www.nytimes.com/2026/06/17/world/middleeast/us-iran-deal-trump-hormuz-nuclear.html
+
 **‘Mistakes Are Made,’ Trump Says About Deadly U.S. Strikes on Iranian School**\
 `More than 100 days after U.S. airstrikes demolished an elementary school in the southern Iranian city of Minab, the president said the episode was still under investigation.`\
 https://www.nytimes.com/2026/06/17/world/europe/trump-iran-school-us-strike-minab.html
@@ -173,16 +185,4 @@ https://www.nytimes.com/2026/06/17/magazine/nephews-comedy-routine-grandma-ethic
 **Intelligence Officials Have Welcomed Pulte and Then Clayton**\
 `The two, whom President Trump nominated as acting director and director of national intelligence, have both prepared to take over the office.`\
 https://www.nytimes.com/2026/06/17/us/politics/intelligence-pulte-clayton.html
-
-**Preserving George Washington’s Legacy With 18th-Century Craft**\
-`In preparation for the nation’s 250th anniversary, historical institutions across the country are restoring or recreating items associated with George Washington using materials, tools and techniques from the time of the American Revolution.`\
-https://www.nytimes.com/video/arts/design/100000010971094/george-washington-artisan-craft.html
-
-**How the ‘Hard Fork’ Hosts Bring Their Tech Podcast to a Live Audience**\
-`Kevin Roose and Casey Newton explain why they try to include “a little chaos” when they record their New York Times tech podcast in front of a crowd in San Francisco.`\
-https://www.nytimes.com/2026/06/17/insider/hard-fork-podcast-live-audience-san-francisco.html
-
-**Stars of Israel’s TV Channel for Bibi Fans Turn on Trump**\
-`Leading figures from Channel 14, a right-wing broadcaster that supports Prime Minister Benjamin Netanyahu, are openly attacking the U.S. president over his Iran deal.`\
-https://www.nytimes.com/2026/06/17/world/middleeast/israel-channel-14-trump-criticism.html
 
