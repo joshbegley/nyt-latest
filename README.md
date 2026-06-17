@@ -1,3 +1,7 @@
+**My Nephew’s Comedy Routine Skewers His Grandma. Should the Adults Be Laughing?**\
+`My brother even shared a video of the bit in the family group chat.`\
+https://www.nytimes.com/2026/06/17/magazine/nephews-comedy-routine-grandma-ethics.html
+
 **Intelligence Officials Have Welcomed Pulte and Then Clayton**\
 `The two, whom President Trump nominated as acting director and director of national intelligence, have both prepared to take over the office.`\
 https://www.nytimes.com/2026/06/17/us/politics/intelligence-pulte-clayton.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/embedded/world/europe/100000010973334/17vid-trump-
 **Celebrating These Knicks Title Vibes, With Desus Nice**\
 `Pablo raises a glass with Desus — his fellow New Yorker and bard of Knicks nation.`\
 https://www.nytimes.com/2026/06/17/podcasts/celebrating-these-knicks-title-vibes-with-desus-nice.html
-
-**Gareth Bale on Ronaldo and U.S. Soccer, Plus World Cup Transfers**\
-`Will the Portugal legend dominate his final tournament?`\
-https://www.nytimes.com/2026/06/17/podcasts/world-cup-gareth-bale-ronaldo-us-soccer.html
 
