@@ -1,3 +1,7 @@
+**The World Cup Gives Kansas City a Rare Turn in the Global Spotlight**\
+`The tournament brings unique challenges and upsides for Kansas City, the smallest U.S. metro area to host matches.`\
+https://www.nytimes.com/2026/06/17/us/world-cup-kansas-city-messi-argentina.html
+
 **6 conclusiones de la investigación del Times sobre la muerte de Epstein**\
 `Analizamos todas las teorías plausibles sobre su muerte, tanto las oficiales como las alternativas, en busca de los argumentos y las pruebas más convincentes.`\
 https://www.nytimes.com/es/2026/06/17/espanol/estados-unidos/muerte-epstein-suicidio-investigacion.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/opinion/100000010962118/ossoff-a-cross-ideological
 **‘Reddit Posts Are the Median Voter’**\
 `Is the Democrats’ biggest brand problem excessive conscientiousness? The MS Now host Chris Hayes tells the Opinion columnist Ezra Klein how an institutional, “schoolmarm” personality type alienates swing voters and why an unconventional candidate might be the antidote.`\
 https://www.nytimes.com/video/opinion/100000010962113/reddit-posts-are-the-median-voter.html
-
-**Gregory Williams, Academic With an Uncommon Perspective on Race, Dies at 81**\
-`As a child, he discovered that his father — and therefore he and his siblings — had been passing for white. For the rest of his life, he identified as Black.`\
-https://www.nytimes.com/2026/06/16/books/gregory-williams-dead.html
 
