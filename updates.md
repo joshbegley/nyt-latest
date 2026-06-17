@@ -1,3 +1,7 @@
+**La lengua dulce: cómo los Andes ecuatorianos crearon un idioma propio**\
+`En la Sierra ecuatoriana, una mezcla de kichwa y español da lugar a una lengua que desafía las reglas gramaticales del español, añade melodía y pasa desapercibida para muchos de sus hablantes.`\
+https://www.nytimes.com/es/2026/06/17/espanol/america-latina/ecuador-kichwa-andes-espanol.html
+
 **The Trump U.F.C. Fights Helped Me Understand My Sons**\
 `In my darker moments, I worry I’ve failed them.`\
 https://www.nytimes.com/2026/06/17/opinion/ufc-trump-fight-white-house-birthday.html

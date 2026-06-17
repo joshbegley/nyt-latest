@@ -1,3 +1,7 @@
+**La lengua dulce: cómo los Andes ecuatorianos crearon un idioma propio**\
+`En la Sierra ecuatoriana, una mezcla de kichwa y español da lugar a una lengua que desafía las reglas gramaticales del español, añade melodía y pasa desapercibida para muchos de sus hablantes.`\
+https://www.nytimes.com/es/2026/06/17/espanol/america-latina/ecuador-kichwa-andes-espanol.html
+
 **The Trump U.F.C. Fights Helped Me Understand My Sons**\
 `In my darker moments, I worry I’ve failed them.`\
 https://www.nytimes.com/2026/06/17/opinion/ufc-trump-fight-white-house-birthday.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/06/17/nyregion/a-tournament-on-native-land-makes-mi
 **We Want to Hear from Indigenous People Across New York.**\
 `The New York Times is examining the relationship between New York State officials and Native Americans.`\
 https://www.nytimes.com/2026/06/17/nyregion/ny-indigenous-peoples-call-out.html
-
-**Why The New York Times Is Expanding in Texas**\
-`Members of a new team of Times reporters and editors are covering culture, economics and more in a state long known for its political clout.`\
-https://www.nytimes.com/2026/06/17/insider/new-york-times-texas.html
 
