@@ -1,3 +1,7 @@
+**Intense Tornadoes Possible Across the Midwest on Wednesday**\
+`Forecasters warned that Illinois and Indiana faced the highest risk of severe storms throughout the day.`\
+https://www.nytimes.com/2026/06/17/weather/illinois-indiana-tornado-storm.html
+
 **La lengua dulce: cómo los Andes ecuatorianos crearon un idioma propio**\
 `En la Sierra ecuatoriana, una mezcla de kichwa y español da lugar a una lengua que desafía las reglas gramaticales del español, añade melodía y pasa desapercibida para muchos de sus hablantes.`\
 https://www.nytimes.com/es/2026/06/17/espanol/america-latina/ecuador-kichwa-andes-espanol.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/06/17/nyregion/lander-goldman-israel-nyc-primary.ht
 **A Tournament on Native Land Makes Millions. A Tribe Wants a Bigger Cut.**\
 `The Shinnecock Hills Golf Club on Long Island earns millions when it hosts the U.S. Open. But the nearby Indian tribe has for years only received a fraction of that.`\
 https://www.nytimes.com/2026/06/17/nyregion/a-tournament-on-native-land-makes-millions-a-tribe-wants-a-bigger-cut.html
-
-**We Want to Hear from Indigenous People Across New York.**\
-`The New York Times is examining the relationship between New York State officials and Native Americans.`\
-https://www.nytimes.com/2026/06/17/nyregion/ny-indigenous-peoples-call-out.html
 
