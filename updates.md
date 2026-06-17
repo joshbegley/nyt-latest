@@ -1,3 +1,7 @@
+**N.Y.P.D. Will Assign Largest Number of Officers Ever to Knicks Parade**\
+`The department announced that it would deploy more than 10,000 of its ranks and put stringent security measures in place for the celebration of the Knicks’ N.B.A. championship on Thursday.`\
+https://www.nytimes.com/2026/06/17/nyregion/knicks-parade-security-new-york-police.html
+
 **Watch Live: Fed Chair Holds News Conference on Interest Rate Decision**\
 `Federal Reserve Chair Kevin M. Warsh holds a news conference after a two-day policy meeting.`\
 https://www.nytimes.com/video/embedded/us/100000010973869/watch-live-fed-chair-holds-news-conference-on-interest-rate-decision.html

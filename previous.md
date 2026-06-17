@@ -1,3 +1,7 @@
+**N.Y.P.D. Will Assign Largest Number of Officers Ever to Knicks Parade**\
+`The department announced that it would deploy more than 10,000 of its ranks and put stringent security measures in place for the celebration of the Knicks’ N.B.A. championship on Thursday.`\
+https://www.nytimes.com/2026/06/17/nyregion/knicks-parade-security-new-york-police.html
+
 **Watch Live: Fed Chair Holds News Conference on Interest Rate Decision**\
 `Federal Reserve Chair Kevin M. Warsh holds a news conference after a two-day policy meeting.`\
 https://www.nytimes.com/video/embedded/us/100000010973869/watch-live-fed-chair-holds-news-conference-on-interest-rate-decision.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/06/17/upshot/california-slow-election-results.html
 **Anthropic Employees Accuse Trump Administration of Targeting Them**\
 `Workers at the artificial intelligence company have been puzzled and increasingly concerned by the administration’s move to limit their latest A.I. models.`\
 https://www.nytimes.com/2026/06/17/technology/anthropic-trump-administration-fable.html
-
-**Why Waymo’s Driverless Taxis Won’t Be on Your Streets Anytime Soon**\
-`The Silicon Valley company’s ambitions to roll out autonomous cars nationwide have hit political roadblocks in some of the country’s biggest markets.`\
-https://www.nytimes.com/2026/06/17/technology/waymo-driverless-taxis-politics.html
 
