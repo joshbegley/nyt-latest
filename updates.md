@@ -1,3 +1,7 @@
+**Georgia Republicans Choose Trump’s Pick for Senate, but Not Governor**\
+`Republicans in Georgia advanced Trump’s pick for senator but not governor in the state’s runoff primary on Tuesday.`\
+https://www.nytimes.com/video/us/elections/100000010972869/georgia-election-results-trump.html
+
 **¿Vale la pena tomar suplementos de glutatión?**\
 `La llamada “madre de todos los antioxidantes” se vende en tiras solubles, cápsulas, líquidos, geles y polvos. Hemos preguntado a los expertos si realmente funcionan.`\
 https://www.nytimes.com/es/2026/06/17/espanol/glutation-suplementos-beneficios-estafa.html
