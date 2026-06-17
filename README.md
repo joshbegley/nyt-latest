@@ -1,3 +1,11 @@
+**Horse Carriage Overturns in Central Park, Critically Injuring Man**\
+`A horse went out of control and collided with another carriage before toppling over, the Central Park Conservancy said. An 18-year-old passenger fell out of the carriage.`\
+https://www.nytimes.com/2026/06/17/nyregion/horse-carriage-central-park-injury.html
+
+**Seth Rogen on Fame and Insecurity**\
+`Seth Rogen has a very successful career in Hollywood, but that doesn’t mean he hasn’t felt insecure about his talent. He spoke about how his views on money and fame have changed throughout his life on “The Interview.”`\
+https://www.nytimes.com/video/podcasts/100000010975422/seth-rogen-on-fame-and-insecurity.html
+
 **How the U.S.-Iran Deal Came Down to the Wire**\
 `The agreement, which punted many of the toughest issues to future negotiations, came after a last-minute scramble.`\
 https://www.nytimes.com/2026/06/17/us/politics/us-iran-deal-trump.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/06/17/us/oregon-hiker-dead-cliff-alaska.html
 **The Good List: 6 Things to Bring Joy to Your Day**\
 `A memory workout, an endless playlist and an antidote to worry.`\
 https://www.nytimes.com/2026/06/17/briefing/17-the-good-list-knicks-memory.html
-
-**Can Trump’s Man in Georgia Take Down Jon Ossoff?**\
-`Representative Mike Collins’s victory in a hard-fought Republican primary means that a big Senate matchup is now set.`\
-https://www.nytimes.com/2026/06/17/us/politics/ossoff-collins-georgia-senate.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/politics/100000010974481/17vid-Trump-G7-79572.html
 
 **Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
 `Chairman Kevin M. Warsh vowed to start a “new chapter” in the Federal Reserve’s oversight of the U.S. economy.`\
