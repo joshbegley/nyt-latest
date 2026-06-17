@@ -1,3 +1,7 @@
+**Intense Tornadoes Possible Across the Midwest on Wednesday**\
+`Forecasters warned that Illinois and Indiana faced the highest risk of severe storms throughout the day.`\
+https://www.nytimes.com/2026/06/17/weather/illinois-indiana-tornado-storm.html
+
 **Private Jet Crashes on Highway in Laredo, Texas, Killing 1**\
 `The plane’s crew reported mechanical problems and low fuel as they flew to Austin, Texas, from Mexico. Five of the six people on board survived the crash in Laredo.`\
 https://www.nytimes.com/2026/06/17/us/laredo-plane-crash-texas.html
