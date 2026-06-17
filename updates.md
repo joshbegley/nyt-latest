@@ -1,3 +1,15 @@
+**Lost Oregon Hiker Fell to Death From Cliff on Alaska Trail, Troopers Say**\
+`Emergency responders found the body of a man partially submerged at the bottom of a cliff in Ketchikan on Monday, the authorities said.`\
+https://www.nytimes.com/2026/06/17/us/oregon-hiker-dead-cliff-alaska.html
+
+**Georgia Republicans Shelve Redistricting As Anger Grows**\
+`The leaders of the Georgia legislature pulled the plug on gerrymandering away U.S. House seats held by Black Democrats just hours before a special session was to begin.`\
+https://www.nytimes.com/2026/06/17/us/politics/georgia-republicans-redistricting.html
+
+**Live Updates: Fed Holds Interest Rates Steady as New Chairman Begins a Balancing Act**\
+`Kevin M. Warsh will take questions from reporters after leading his first gathering of the Federal Reserve’s top officials.`\
+https://www.nytimes.com/live/2026/06/17/business/fed-meeting-warsh-interest-rates
+
 **The Good List: 6 Things to Bring Joy to Your Day**\
 `A memory workout, an endless playlist and an antidote to worry.`\
 https://www.nytimes.com/2026/06/17/briefing/17-the-good-list-knicks-memory.html
