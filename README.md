@@ -1,3 +1,7 @@
+**Biden’s Re-Election Bid Was a ‘Terrible Mistake,’ Hillary Clinton Says**\
+`During an interview with The New Yorker’s editor, David Remnick, Hillary Clinton called Biden’s re-election bid a terrible mistake. The former first lady and presidential candidate also said that she believes that another Democratic candidate could have beaten President Trump.`\
+https://www.nytimes.com/video/us/elections/100000010973997/biden-clinton-2024-election.html
+
 **What Young Men Thought of Trump’s U.F.C. Fight**\
 `The spectacle seemed targeted to the young male voters drifting away from the president. Some were skeptical.`\
 https://www.nytimes.com/2026/06/17/style/trump-ufc-white-house-young-men.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/06/17/business/economy/fed-chair-meeting-warsh-trum
 **La República Democrática del Congo vuelve con estilo al Mundial**\
 `Los elegantes trajes negros de las estrellas del fútbol, con detalles de estampado de leopardo, son un guiño a la larga tradición de la moda “sapeur”.`\
 https://www.nytimes.com/es/2026/06/17/espanol/deportes/mundial-congo-moda-portugal.html
-
-**Choosing How to Kill Death Row Inmates**\
-`In a rare ruling for a condemned prisoner, the justices would not let Alabama use a contested method of execution.`\
-https://www.nytimes.com/2026/06/17/us/politics/the-docket-death-row.html
 
 **Live Updates: Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
 `Chairman Kevin M. Warsh vowed to start a “new chapter” in the Federal Reserve’s oversight of the U.S. economy.`\
