@@ -1,3 +1,7 @@
+**Jeremy Clarkson Says He Has an ‘Aggressive’ Cancer**\
+`The 66-year-old gave few details of his diagnosis but said the disease was “aggressive.”`\
+https://www.nytimes.com/2026/06/17/world/europe/jeremy-clarkson-cancer-uk.html
+
 **Japan Raids Ice Cream Giants in Cartel Investigation**\
 `The Fair Trade Commission said that it suspected six leading ice cream manufacturers fixed the prices of popular frozen treats.`\
 https://www.nytimes.com/2026/06/17/world/asia/japan-ice-cream-cartel-investigation.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/06/17/business/extended-range-electric-vehicles-ere
 **Germantown: A Philadelphia Neighborhood Where People Stay**\
 `Germantown and its neighbor, Mt. Airy, share a rich cultural history, proximity to nature and a strong community.`\
 https://www.nytimes.com/2026/06/17/realestate/germantown-mt-airy-philadelphia-neighborhood-guide.html
-
-**How Ecuador’s Andes Created a Language of Its Own**\
-`In Ecuador’s highlands, a seamless mix of Kichwa and Spanish creates a language that bends grammar, adds melody and goes unnoticed by many who speak it every day.`\
-https://www.nytimes.com/2026/06/17/world/americas/ecuador-kichwa-language-andes.html
 
