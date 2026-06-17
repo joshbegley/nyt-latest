@@ -1,3 +1,7 @@
+**‘The Whole World Saw That’: Congo Fans Rejoice in Draw With Portugal**\
+`“If you’re coming to face Congo,” one fan said after his team stunned Portugal, a global soccer powerhouse, “just get ready to run and to fight, because we’re going to give it to you.”`\
+https://www.nytimes.com/2026/06/17/us/congo-fans-portugal-tie.html
+
 **Trump Defends Deal to End the War With Iran as Details Emerge**\
 `President Trump lashed out at critics who say the agreement achieves less than the one President Barack Obama signed in 2015, and he threatened to bomb Iran again if it violated the deal.`\
 https://www.nytimes.com/2026/06/17/world/middleeast/trump-iran-deal-obama.html
