@@ -1,3 +1,7 @@
+**Former Aide to Brian Kemp Wins G.O.P. Nod for Georgia Secretary of State**\
+`State Representative Tim Fleming defeated an ardent denier of the 2020 election results, Vernon Jones, in the Republican runoff to be Georgia’s top election official.`\
+https://www.nytimes.com/2026/06/16/us/politics/georgia-secretary-state-republican-fleming.html
+
 **What Polls Say About Alabama’s Senate Primary Runoff**\
 `Representative Barry Moore beat Jared Hudson by 14 percentage points in the Republican primary, but runoff polls offer a wide range of potential outcomes.`\
 https://www.nytimes.com/2026/06/16/us/elections/alabama-senate-primary-runoff-polls.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/16/special-series/ben-kiernan-genocide-ideology.
 **Merlin, the Duck in a Mexico World Cup Team Jersey, Finds Unexpected Fame**\
 `The feathered pet has waddled his way into the pantheon of famous animals associated with the soccer tournament.`\
 https://www.nytimes.com/2026/06/16/world/americas/duck-mexico-world-cup-merlin.html
-
-**Among Mexico’s World Cup Fans: Merlin the Duck**\
-`A duck, known as Merlin, has become famous for wearing a Mexico jersey as he waddles behind his owner as the World Cup continues.`\
-https://www.nytimes.com/video/world/americas/100000010971004/world-cup-mexico-jersey-duck.html
 
