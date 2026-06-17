@@ -1,3 +1,15 @@
+**Driver Charged With Hitting ICE Agent After Confusion Over His Identity**\
+`Federal prosecutors said the man had refused to roll down his window when Immigration and Customs Enforcement officers in New Jersey told him to stop.`\
+https://www.nytimes.com/2026/06/17/nyregion/ice-agent-hit-vehicle-nj.html
+
+**Horse Carriage Overturns in Central Park, Critically Injuring Man**\
+`A horse went out of control and collided with another carriage before toppling over, the Central Park Conservancy said. An 18-year-old passenger fell out of the carriage.`\
+https://www.nytimes.com/2026/06/17/nyregion/horse-carriage-central-park-injury.html
+
+**Seth Rogen on Fame and Insecurity**\
+`Seth Rogen has a very successful career in Hollywood, but that doesn’t mean he hasn’t felt insecure about his talent. He spoke about how his views on money and fame have changed throughout his life on “The Interview.”`\
+https://www.nytimes.com/video/podcasts/100000010975422/seth-rogen-on-fame-and-insecurity.html
+
 **How the U.S.-Iran Deal Came Down to the Wire**\
 `The agreement, which punted many of the toughest issues to future negotiations, came after a last-minute scramble.`\
 https://www.nytimes.com/2026/06/17/us/politics/us-iran-deal-trump.html
