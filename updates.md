@@ -1,3 +1,11 @@
+**Live Updates: Fed Holds Interest Rates Steady as New Chairman Begins a Balancing Act**\
+`Kevin M. Warsh is taking questions from reporters after leading his first gathering of the Federal Reserve’s top officials.`\
+https://www.nytimes.com/live/2026/06/17/business/fed-meeting-warsh-interest-rates
+
+**Allowing Iran to Charge Fees in Strait of Hormuz Would Set ‘Dangerous Precedent,’ Maersk CEO Says**\
+`With the United States and Iran nearing a deal to reopen the Persian Gulf, the shipping giant Maersk is treading cautiously.`\
+https://www.nytimes.com/2026/06/17/business/maersk-strait-hormuz-shipping-fees-iran-war.html
+
 **Lost Oregon Hiker Fell to Death From Cliff on Alaska Trail, Troopers Say**\
 `Emergency responders found the body of a man partially submerged at the bottom of a cliff in Ketchikan on Monday, the authorities said.`\
 https://www.nytimes.com/2026/06/17/us/oregon-hiker-dead-cliff-alaska.html

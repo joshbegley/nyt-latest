@@ -115,7 +115,7 @@ https://www.nytimes.com/2026/06/17/us/politics/the-docket-death-row.html
 https://www.nytimes.com/es/2026/06/17/espanol/estados-unidos/obama-acuerdo-nuclear-trump-iran.html
 
 **Live Updates: Fed Holds Interest Rates Steady as New Chairman Begins a Balancing Act**\
-`Kevin M. Warsh will take questions from reporters after leading his first gathering of the Federal Reserve’s top officials.`\
+`Kevin M. Warsh is taking questions from reporters after leading his first gathering of the Federal Reserve’s top officials.`\
 https://www.nytimes.com/live/2026/06/17/business/fed-meeting-warsh-interest-rates
 
 **My Nephew’s Comedy Routine Skewers His Grandma. Should the Adults Be Laughing?**\
@@ -167,7 +167,7 @@ https://www.nytimes.com/2026/06/17/opinion/remote-work-depression.html
 https://www.nytimes.com/2026/06/17/science/oldest-plague-siberian-skeletons.html
 
 **Allowing Iran to Charge Fees in Strait of Hormuz Would Set ‘Dangerous Precedent,’ Maersk CEO Says**\
-`With the United States and Iran nearing a deal to reopen the Persian Gulf, the mega shipping firm is treading cautiously.`\
+`With the United States and Iran nearing a deal to reopen the Persian Gulf, the shipping giant Maersk is treading cautiously.`\
 https://www.nytimes.com/2026/06/17/business/maersk-strait-hormuz-shipping-fees-iran-war.html
 
 **California’s Vote Count: How Slowness Invites Suspicion Even When It’s Not Sketchy**\
