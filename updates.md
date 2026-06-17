@@ -1,3 +1,7 @@
+**My Nephew’s Comedy Routine Skewers His Grandma. Should the Adults Be Laughing?**\
+`My brother even shared a video of the bit in the family group chat.`\
+https://www.nytimes.com/2026/06/17/magazine/nephews-comedy-routine-grandma-ethics.html
+
 **Intelligence Officials Have Welcomed Pulte and Then Clayton**\
 `The two, whom President Trump nominated as acting director and director of national intelligence, have both prepared to take over the office.`\
 https://www.nytimes.com/2026/06/17/us/politics/intelligence-pulte-clayton.html
