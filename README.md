@@ -131,7 +131,7 @@ https://www.nytimes.com/2026/06/17/business/economy/kevin-warsh-fed-statement.ht
 https://www.nytimes.com/2026/06/17/nyregion/how-to-go-knicks-parade-nyc.html
 
 **Trump Administration to Pay $765 Million to Cancel 4 More Wind Projects**\
-`It’s the third such deal the Interior Department has struck to pay firms to abandon plans for offshore turbines.`\
+`It’s the third such deal the Interior Department has struck to pay firms to abandon plans for offshore turbines, spending roughly $2.5 billion to get companies to abandon their wind projects.`\
 https://www.nytimes.com/2026/06/17/climate/trump-wind-farms-cancel-millions.html
 
 **A Tropical Storm Came Ashore, but Houston’s Match ‘Dodged the Bullet’**\
