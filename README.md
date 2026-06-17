@@ -1,3 +1,7 @@
+**Mangione to Use Emotional Disturbance as Defense in N.Y. Murder Trial**\
+`Luigi Mangione, who was accused of killing a health care executive in Manhattan in 2024, faces both state and federal charges.`\
+https://www.nytimes.com/2026/06/17/nyregion/mangione-emotional-disturbance-state-trial.html
+
 **Today, In Short**\
 `Summer plans. Hugo spritzes. And the secret to the best pancakes.`\
 https://www.nytimes.com/2026/06/17/briefing/today-in-short.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/17/world/africa/congo-team-world-cup-soccer-leop
 **Congo’s World Cup Team Stuns in Suits With Leopard Print**\
 `The Congolese men’s soccer team arrived in Texas for the World Cup, sporting suits with leopard-print details.`\
 https://www.nytimes.com/video/sports/soccer/100000010971025/world-cup-congo-fashion-soccer.html
-
-**What to Know About Redistricting Efforts Underway in Georgia**\
-`Georgia is the latest Southern state where lawmakers have taken up redrawing congressional maps after the Supreme Court’s voting rights ruling.`\
-https://www.nytimes.com/2026/06/17/us/politics/georgia-redistricting-special-session.html
 
