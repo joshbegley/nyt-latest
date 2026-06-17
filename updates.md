@@ -1,3 +1,7 @@
+**Election Live Updates: Georgia Republicans Go With Trump’s Pick for Senate, but Not Governor**\
+`Mike Collins, a Trump-backed Republican, will face Senator Jon Ossoff in Georgia, where Rick Jackson won the Republican nomination for governor over the president’s pick. Candidates backed by Mr. Trump won Republican nominations for Senate in Oklahoma and Alabama.`\
+https://www.nytimes.com/live/2026/06/16/us/georgia-oklahoma-alabama-elections
+
 **Rep. Barry Moore Wins G.O.P. Senate Primary in Alabama, Holding Off Challenger**\
 `The contest to fill Alabama’s open Senate seat had become closer than expected between the House lawmaker and Jared Hudson, a political newcomer.`\
 https://www.nytimes.com/2026/06/16/us/elections/alabama-senate-republican-moore.html
