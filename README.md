@@ -1,3 +1,11 @@
+**What to Know if You’re Going to the Knicks Parade**\
+`Thousands of New Yorkers will descend on Lower Manhattan on Thursday morning to celebrate the Knicks. Here’s what you should know if you are one of them.`\
+https://www.nytimes.com/2026/06/17/nyregion/how-to-go-knicks-parade-nyc.html
+
+**Trump Administration to Pay $765 Million to Cancel 4 More Wind Projects**\
+`It’s the third such deal the Interior Department has struck to pay firms to abandon plans for offshore turbines.`\
+https://www.nytimes.com/2026/06/17/climate/trump-wind-farms-cancel-millions.html
+
 **There’s a Tropical Storm Off the Coast, but Houston Match ‘Dodged the Bullet’**\
 `Tropical Storm Arthur became the first named storm of the Atlantic season on Wednesday, but its rain and wind were moving away from Houston.`\
 https://www.nytimes.com/2026/06/17/us/world-cup-tropical-storm-arthur.html
@@ -38,7 +46,7 @@ https://www.nytimes.com/2026/06/17/us/politics/ossoff-collins-georgia-senate.htm
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000010974481/17vid-Trump-G7-79572.html
 
-**Georgia Republicans Shelve Redistricting As Anger Grows**\
+**Georgia Republicans Shelve Redistricting as Anger Grows**\
 `The leaders of the Georgia legislature pulled the plug on gerrymandering away U.S. House seats held by Black Democrats just hours before a special session was to begin.`\
 https://www.nytimes.com/2026/06/17/us/politics/georgia-republicans-redistricting.html
 
@@ -177,12 +185,4 @@ https://www.nytimes.com/2026/06/17/nyregion/mangione-emotional-disturbance-state
 **Today, In Short**\
 `Summer plans. Hugo spritzes. And the secret to the best pancakes.`\
 https://www.nytimes.com/2026/06/17/briefing/today-in-short.html
-
-**No-Cook Tzatziki Chickpea Salad? Yes, Please.**\
-`Hetty Lui McKinnon’s five-star salad is wonderfully cooling.`\
-https://www.nytimes.com/2026/06/17/dining/no-cook-tzatziki-chickpea-salad-yes-please.html
-
-**We Ran the Numbers. Remote Work Is Bad for Us.**\
-`Despite its advantages, work-from-home arrangements have significantly deepened Americans’ isolation and distress.`\
-https://www.nytimes.com/2026/06/17/opinion/remote-work-depression.html
 
