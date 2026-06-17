@@ -1,3 +1,7 @@
+**The Blobby, Drippy Maximalist Design You’re Seeing Everywhere**\
+`After years of corporate millennial blanding, consumer culture oozes into shape for a new generation.`\
+https://www.nytimes.com/2026/06/17/style/maximalism-aesthetic-hyper-goo.html
+
 **Teenagers vs. Social Media Bans**\
 `Australia barred children from social media in December. Since then, young people have found plenty of ways to skirt the measure.`\
 https://www.nytimes.com/2026/06/17/world/social-media-ban-iran-deal-congo-world-cup.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/video/world/europe/100000010973495/british-couple-recoun
 **Carlo Ginzburg, Who Told the History of the Obscure, Dies at 87**\
 `In books like “The Cheese and the Worms,” he helped push beyond the story of great events and leaders, entering the minds and hearts of peasants.`\
 https://www.nytimes.com/2026/06/17/books/carlo-ginzburg-dead.html
-
-**Under Trump, National Intelligence Agency Has Broadened Focus on Elections**\
-`Bill Pulte, who has shown that he has a keen sense of what the president wants and a desire to please him, is poised to take over the job from Tulsi Gabbard on an acting basis.`\
-https://www.nytimes.com/2026/06/17/us/politics/gabbard-pullte-elections.html
 
 **Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
 `Chairman Kevin M. Warsh vowed to start a “new chapter” in the Federal Reserve’s oversight of the U.S. economy.`\
