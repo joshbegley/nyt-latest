@@ -1,3 +1,11 @@
+**Ohio Governor Says State Should End the Death Penalty, Breaking With His Party**\
+`During a news conference on Tuesday, Gov. Mike DeWine, a Republican, called on state lawmakers to end all executions, a practice he once supported.`\
+https://www.nytimes.com/2026/06/16/us/dewine-death-penalty-ohio.html
+
+**Rep. Barry Moore Wins Senate Primary in Alabama, Holding Off Challenger**\
+`The contest to fill Alabama’s open Senate seat had become closer than expected between the House lawmaker and Jared Hudson, a political newcomer.`\
+https://www.nytimes.com/2026/06/16/us/elections/alabama-senate-republican-moore.html
+
 **State Lawmaker and Trump-Backed Pastor Head to House Runoff in Oklahoma**\
 `The result sets up a Republican primary runoff between a right-wing firebrand and a more traditional candidate.`\
 https://www.nytimes.com/2026/06/16/us/politics/oklahoma-mark-tedford-jackson-lahmeyer.html
