@@ -1,3 +1,7 @@
+**NYC Erupts in Celebration Over Knicks Championship Win**\
+`New York City found a reason to party on Thursday, cheering, crying and climbing around Broadway to celebrate the Knicks’ N.B.A. championship.`\
+https://www.nytimes.com/2026/06/18/nyregion/knicks-championship-parade-celebration-nyc.html
+
 **‘Disclosure Day’ and How We Respond to the Unknown**\
 `Wesley Morris invites his friend, the film curator Eric Hynes, to consider the evolution of aliens in Steven Spielberg’s films.`\
 https://www.nytimes.com/video/podcasts/100000010978728/spielbergs-disclosure-day-and-how-we-respond-to-the-unknown.html
