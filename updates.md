@@ -1,3 +1,7 @@
+**The Washington Outlet NOTUS Won’t Be ‘The Star’ After All**\
+`The publication is abandoning a planned rebranding after resolving a trademark dispute with the new publisher of The Washington Star.`\
+https://www.nytimes.com/2026/06/18/business/media/notus-washington-star-lawsuit.html
+
 **El Mundial es una fiesta global que se comparte con los vecinos**\
 `Tres autores de EE. UU., México y Canadá escriben sobre lo que el torneo representa para ellos y para sus países.`\
 https://www.nytimes.com/es/2026/06/18/espanol/opinion/mundial-mexico-estados-unidos-canada.html
