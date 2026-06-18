@@ -66,8 +66,8 @@ https://www.nytimes.com/2026/06/18/nyregion/ewing-jersey-knicks-parade.html
 `Celebrity guests paid winking homage to President Obama’s notorious tan suit.`\
 https://www.nytimes.com/2026/06/18/style/obama-tan-suit-stephen-colbert.html
 
-**Representative Tom Kean to Return to Congress in 12 Days, Aide Says**\
-`Mr. Kean has missed three months of votes in Washington and been absent from the campaign trail in his New Jersey district because of an unexplained health condition.`\
+**Absent Congressman to Return to House in 12 Days, Aide Says**\
+`Thomas Kean Jr. has missed three months of votes in Washington and has not been on the campaign trail in his New Jersey district because of an unexplained health condition.`\
 https://www.nytimes.com/2026/06/18/nyregion/representative-tom-kean-return-to-congress.html
 
 **Danny McBride Is Not Above a Little Violence (or a Lot of It)**\

@@ -1,3 +1,15 @@
+**Inside Trump's Touring Exhibition of American Heroes**\
+`For a touring exhibition, Trump appointees chose 51 people who shaped our nation’s history. Among them: icons from the baby boomer era, Christians, wealthy industrialists and P.T. Barnum.`\
+https://www.nytimes.com/interactive/2026/06/18/us/trump-america250-freedom-trucks.html
+
+**Mangione Withdraws Emotional Disturbance Defense in New York Case**\
+`Luigi Mangione would have avoided the charge of second-degree murder if he were to convince a jury that strong emotions led to a “profound loss of self-control.”`\
+https://www.nytimes.com/2026/06/18/nyregion/mangione-emtional-disturbance-repeal.html
+
+**‘Disclosure Day’ and How We Respond to The Unknown**\
+`Wesley Morris invites his friend, the film curator Eric Hynes, to consider the evolution of aliens in Steven Spielberg’s films.`\
+https://www.nytimes.com/video/podcasts/100000010978728/spielbergs-disclosure-day-and-how-we-respond-to-the-unknown.html
+
 **Man Forced Boy, 3, Into Crocodile Pen at English Zoo, Police Say**\
 `A man is being held on suspicion of attempted murder after a boy was critically injured when he ended up in a crocodile enclosure at a zoo outside Cambridge, the authorities said.`\
 https://www.nytimes.com/2026/06/18/world/europe/crocodile-attack-england-zoo.html

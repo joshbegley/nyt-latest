@@ -1,3 +1,15 @@
+**Inside Trump's Touring Exhibition of American Heroes**\
+`For a touring exhibition, Trump appointees chose 51 people who shaped our nation’s history. Among them: icons from the baby boomer era, Christians, wealthy industrialists and P.T. Barnum.`\
+https://www.nytimes.com/interactive/2026/06/18/us/trump-america250-freedom-trucks.html
+
+**Mangione Withdraws Emotional Disturbance Defense in New York Case**\
+`Luigi Mangione would have avoided the charge of second-degree murder if he were to convince a jury that strong emotions led to a “profound loss of self-control.”`\
+https://www.nytimes.com/2026/06/18/nyregion/mangione-emtional-disturbance-repeal.html
+
+**‘Disclosure Day’ and How We Respond to The Unknown**\
+`Wesley Morris invites his friend, the film curator Eric Hynes, to consider the evolution of aliens in Steven Spielberg’s films.`\
+https://www.nytimes.com/video/podcasts/100000010978728/spielbergs-disclosure-day-and-how-we-respond-to-the-unknown.html
+
 **Man Forced Boy, 3, Into Crocodile Pen at English Zoo, Police Say**\
 `A man is being held on suspicion of attempted murder after a boy was critically injured when he ended up in a crocodile enclosure at a zoo outside Cambridge, the authorities said.`\
 https://www.nytimes.com/2026/06/18/world/europe/crocodile-attack-england-zoo.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/18/us/tariq-el-sawah-dead.html
 **The Shifting Politics of Climate Change**\
 `A new poll suggests Republicans may be more movable on climate change than previously thought, plus more climate news.`\
 https://www.nytimes.com/2026/06/18/climate/the-shifting-politics-of-climate-change.html
-
-**Gunmen Attack a Major Airport in Niger**\
-`A militant group claimed responsibility for the early-morning assault on Niamey airport, the second such attack in the West African country this year.`\
-https://www.nytimes.com/2026/06/18/world/africa/niger-armed-attack-airport.html
-
-**Netflix Cancels Duffer Brothers’ ‘The Boroughs’ After One Season**\
-`The Duffer brothers, who produced the series and created “Stranger Things,” recently left the streamer for Paramount.`\
-https://www.nytimes.com/2026/06/18/arts/television/boroughs-canceled-duffer-brothers-netflix.html
-
-**Penske Media Is Buying What’s Left of Vox Media**\
-`The deal will put online publications like Popsugar and Eater under the same roof as Rolling Stone and Variety.`\
-https://www.nytimes.com/2026/06/18/business/media/penske-vox-media.html
 
