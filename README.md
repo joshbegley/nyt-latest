@@ -1,3 +1,155 @@
+**Trump and Netanyahu Have Really Stepped in It Now**\
+`America and Israel have snatched defeat from victory.`\
+https://www.nytimes.com/2026/06/18/opinion/israel-america-iran-trump-vance.html
+
+**¿Qué tan necesario es usar gafas de sol?**\
+`Proteger tus ojos de la exposición al sol es importante. Pero, ¿las personas que usan lentes para ver también necesitan gafas de sol? Esto dicen los expertos.`\
+https://www.nytimes.com/es/2026/06/18/espanol/gafas-graduadas-sol-proteccion.html
+
+**Una plaga mortal, casi 5000 años antes de la peste negra**\
+`Los casos más antiguos que se conocen de peste, descubiertos entre cazadores-recolectores en tumbas siberianas, contradicen la teoría de que la enfermedad fuera alguna vez leve.`\
+https://www.nytimes.com/es/2026/06/18/espanol/ciencia-y-tecnologia/peste-negra.html
+
+**Will the Iran Deal Last? JD Vance Is Betting His Future on It.**\
+`“If you think this is a bad deal, what is your alternative?”`\
+https://www.nytimes.com/2026/06/18/opinion/jd-vance-iran-trump-communion.html
+
+**Trump’s Titanic Insecurities Are Sinking Us**\
+`The president has found a new trap door in Iran.`\
+https://www.nytimes.com/2026/06/18/opinion/trump-vance-iran.html
+
+**Los tambores venezolanos se escuchan más y más en Nueva York**\
+`Puede que el baile de los tambores no sea tan conocido como otras danzas latinoamericanas, como el merengue o la salsa, pero eso está empezando a cambiar con la migración de millones de venezolanos.`\
+https://www.nytimes.com/es/2026/06/18/espanol/estados-unidos/tambores-venezolanos-nueva-york.html
+
+**In Atlanta, a Young Family Wanted the Perfect Home to Grow Into**\
+`With about $600,000 to spend, a couple and their two young kids searched for a three-bedroom house in and around the city. Here’s what they found.`\
+https://www.nytimes.com/interactive/2026/06/18/realestate/atlanta-homes-sale-prices.html
+
+**The Jewelers Using Wood in Place of Gold**\
+`Plus: shimmery beauty products and an expanded hotel in Jaipur.`\
+https://www.nytimes.com/2026/06/18/t-magazine/jewelry-wood-gemstones.html
+
+**Retail Investors Help Send SpaceX Shares Soaring**\
+`The company’s blockbuster trading debut is the latest example of how individual investors have become a force in financial markets.`\
+https://www.nytimes.com/2026/06/18/business/spacex-retail-investors.html
+
+**Corrections: June 18, 2026**\
+`Corrections that appeared in print on Thursday, June 18, 2026.`\
+https://www.nytimes.com/2026/06/18/pageoneplus/corrections-june-18-2026.html
+
+**Why Extreme Sports Enthusiasts Keep Jumping After a String of Tragedies**\
+`Often considered thrill seekers looking for the next adrenaline hit, participants say they’re actually drawn to control and a sense of time slowing down.`\
+https://www.nytimes.com/2026/06/18/us/extreme-sports-deaths.html
+
+**At Art Basel, a Nervy, Make-or-Break Mood**\
+`The auction market is buoyant, but business feels precarious for dealers at the world’s premier contemporary art fair.`\
+https://www.nytimes.com/2026/06/18/arts/design/art-basel-switzerland.html
+
+**All Aboard! Brands Jump on the Knicks Bandwagon.**\
+`Companies — including some with no ties to New York or basketball — have posted memes, changed their avatars to Knicks blue and orange, and cheered the team in their captions.`\
+https://www.nytimes.com/2026/06/18/business/knicks-brands-merchandise.html
+
+**Why Flight Prices Might Not Fall After the U.S.-Iran Deal**\
+`Jet fuel may stay expensive for months, and airlines know travelers are willing to pay more for tickets.`\
+https://www.nytimes.com/2026/06/18/business/flights-tickets-prices-fuel-iran-deal.html
+
+**She Saw Her Skydiving Plane Burn. Would She Jump Again?**\
+`Lacy Reynolds was waiting to catch the next flight when the aircraft crashed in Butler, Mo., killing 11 passengers and a pilot. She wasn’t sure she could keep skydiving.`\
+https://www.nytimes.com/2026/06/18/us/skydiving-crash-witness.html
+
+**Why the Knicks Make Us Feel Good**\
+`Teamwork isn’t just useful, the Knicks showed. It’s a higher calling.`\
+https://www.nytimes.com/2026/06/18/opinion/knicks-parade-new-york-championship.html
+
+**Giacometti’s Goddesses Have Entered the Temple**\
+`You may stand a little straighter after visiting the Met’s Temple of Dendur, which has been reanimated with sculptures by the Swiss master of figurative tension.`\
+https://www.nytimes.com/2026/06/18/arts/giacometti-dendur-met-review.html
+
+**Ohio’s Iconic Basket Building Is for Sale**\
+`The kitschy building, designed as the Longaberger basket company’s headquarters, has been a roadside attraction in Ohio for almost 30 years.`\
+https://www.nytimes.com/2026/06/18/realestate/ohio-basket-building-for-sale.html
+
+**How ‘Goy’ Went from Yiddish to Antisemitic Dog Whistle to Zoomer Slang**\
+`The word is toyed with at an amused and dismissive arm’s length, until it is miles from where it began.`\
+https://www.nytimes.com/2026/06/18/magazine/goy-antisemitic-youth-slang.html
+
+**What to Know Before Buying SpaceX Stock, According to Financial Advisers**\
+`SpaceX has rapidly become one of the world’s most valuable companies. Even so, experts say investing in single stocks can be risky.`\
+https://www.nytimes.com/2026/06/18/business/spacex-stock-investing-advice.html
+
+**Spielberg Phones Home in ‘Disclosure Day’ | Cannonball with Wesley Morris**\
+`He once again uses aliens to explore being human.`\
+https://www.nytimes.com/2026/06/18/podcasts/spielberg-phones-home-in-disclosure-day.html
+
+**Spielberg Phones Home in ‘Disclosure Day’**\
+`Wesley Morris and the film curator, Eric Hynes, share thoughts on Steven Spielberg’s latest film, “Disclosure Day.” Together, they consider the evolution of the filmmaker’s canon.`\
+https://www.nytimes.com/video/podcasts/100000010969497/spielberg-phones-home-in-disclosure-day.html
+
+**New Super PAC, the Guardrails Alliance, Aims to Rally Tech Workers to Help Limit A.I.**\
+`The Guardrails Alliance, which has raised $5 million, is positioning itself as a populist effort that will take on the pro-A.I. interests trying to influence this year’s elections.`\
+https://www.nytimes.com/2026/06/18/technology/ai-super-pac-guardrails-alliance.html
+
+**36 Hours in the Catskills: Things to Do and See**\
+`Northwest of New York City, this vast, verdant region is blooming with revived music venues, farmhouse cafes, cozy cocktail bars and hiking trails aplenty.`\
+https://www.nytimes.com/interactive/2026/06/18/travel/things-to-do-catskills.html
+
+**Can a Federal Plan Fix Dismal Penn Station? There’s Hope.**\
+`Everyone agrees that Penn Station is a disaster, but not on how to fix it. Now a Trump-backed, multibillion-dollar plan to rebuild it offers a promising step forward.`\
+https://www.nytimes.com/2026/06/18/arts/design/penn-station-renovation-plan-trump.html
+
+**Yves Saint Laurent and Photography: A Hot and Heavy Romance**\
+`When fashion met image, both changed. A show at International Center of Photography shines a light on the relationship — but doesn’t really get the whole picture.`\
+https://www.nytimes.com/2026/06/18/arts/design/yves-saint-laurent-photography-icp.html
+
+**Will the Iran Deal Last? JD Vance Is Betting His Future on It.**\
+`“If you think this is a bad deal, what is your alternative?”`\
+https://www.nytimes.com/video/opinion/100000010968351/will-the-iran-deal-last-jd-vance-is-betting-his-future-on-it.html
+
+**For Matty Matheson of ‘The Bear,’ Fame Can Be a Beast**\
+`The prolifically profane chef loves his sweet role on ‘The Bear’ and life on his Canadian farm, but he’s a bit weary of playing the clown.`\
+https://www.nytimes.com/2026/06/18/dining/chef-matty-matheson-the-bear-fame.html
+
+**The Knicks Parade: Come Early, and Bring Patience**\
+`The parade in Lower Manhattan is expected to draw a huge outpouring of fans. There won’t be ticker tape, but there will be confetti.`\
+https://www.nytimes.com/2026/06/18/nyregion/the-knicks-parade-come-early-and-bring-patience.html
+
+**Ask the Therapist: A Family Estrangement Is Causing Even More Rifts**\
+`Our Ask the Therapist columnist, Lori Gottlieb, advises a reader whose family estrangement is causing more rifts.`\
+https://www.nytimes.com/2026/06/18/well/mind/ask-therapist-daughter-estranged.html
+
+**They Booked an Airbnb Ahead of the World Cup. Can a Host Demand They Pay More?**\
+`A family booked early for a big soccer trip to Southern California, then a new host suddenly raised the price. Why did Airbnb leave them in the lurch?`\
+https://www.nytimes.com/2026/06/18/travel/airbnb-world-cup-cancellation.html
+
+**‘Unidentified’ Review: A High-Concept Murder Mystery**\
+`The director Haifaa Al-Mansour (“Wadjda”) concludes a trilogy about women resisting societal constraints in Saudi Arabia with a whodunit.`\
+https://www.nytimes.com/2026/06/18/movies/unidentified-review-saudi-arabia.html
+
+**‘Toy Story 5’ Review: The Machines Have Come for the Children**\
+`In this latest installment of the popular franchise, Woody and Buzz Lightyear are back and must contend with Bonnie’s mesmerizing new toy.`\
+https://www.nytimes.com/2026/06/18/movies/toy-story-5-review-the-machines-have-come-for-the-children.html
+
+**‘Rose of Nevada’ Review: Out of the Mists of Time and Back Again**\
+`In this richly textured film by Mark Jenkin, two men sign on to crew a ship whose ultimate destination is a place they could never have fathomed.`\
+https://www.nytimes.com/2026/06/18/movies/rose-of-nevada-review-mysterious-voyage.html
+
+**This Season of ‘Love Island U.S.A.’ Is Giving Fans the Ick**\
+`Contestants on the hit reality dating show are participating in scenarios racy enough to turn some viewers off.`\
+https://www.nytimes.com/2026/06/18/arts/television/love-island-season-8-challenges.html
+
+**‘Maddie’s Secret’ Review: She’s Got the Sauce**\
+`A food influencer struggles with an eating disorder in John Early’s thrilling pastiche of the made-for-TV melodrama.`\
+https://www.nytimes.com/2026/06/18/movies/maddies-secret-review.html
+
+**‘Girls Like Girls’ Review: Hayley Kiyoko Brings Her Song to Life**\
+`The pop star Hayley Kiyoko turns her hit single and best-selling book into a coming-of-age romance.`\
+https://www.nytimes.com/2026/06/18/movies/girls-like-girls-review.html
+
+**‘Leviticus’ Review: The Shocking Shapes That Love Can Take**\
+`In this Australian chiller, a conversion therapy ritual unleashes shape-shifting ghouls that take the form of desired ones.`\
+https://www.nytimes.com/2026/06/18/movies/leviticus-review.html
+
 **‘Color Book’ Review: Love and Grieving**\
 `In this tender family drama, a widowed father and his disabled son overcome personal tragedy.`\
 https://www.nytimes.com/2026/06/18/movies/color-book-review.html
@@ -42,159 +194,7 @@ https://www.nytimes.com/2026/06/18/world/europe/alexander-sokurov-russia-directo
 `Six months after Canada expanded its citizenship eligibility, requests are flooding in for archival records. The documents are vital for proving ties to the country.`\
 https://www.nytimes.com/2026/06/18/world/canada/canadian-citizenship-guide.html
 
-**How A.I. Apps Teach Students How to Cheat**\
-`Big tech companies and small start-ups are using social media to hype new tools that allow students to trick teachers and A.I. detectors.`\
-https://www.nytimes.com/2026/06/18/us/ai-apps-students-cheat.html
-
 **Barack Obama Presidential Center Opens in Chicago**\
 `Today’s opening is expected to draw four former presidents, as well as Bruce Springsteen, Bono and Jennifer Hudson. Chicago has seen years of planning and legal fights.`\
 https://www.nytimes.com/2026/06/18/us/obama-presidential-center-chicago.html
-
-**The Thriving Black Market for a Powerful Weight Loss Drug**\
-`People are buying what they believe to be retatrutide from WhatsApp groups, Chinese labs and websites selling it “for research purposes.”`\
-https://www.nytimes.com/2026/06/18/well/retatrutide-peptide-weight-loss-black-market.html
-
-**Obama Presidential Center Opens in Chicago**\
-`The grand opening for the Obama Presidential Center is on Thursday. Several celebrities and four living presidents, excluding President Trump, are expected to attend.`\
-https://www.nytimes.com/video/us/100000010975799/obama-presidential-center-chicago.html
-
-**Taiwan’s President Says He Trusts Trump to Approve Arms Sales**\
-`President Lai Ching-te made the hopeful remarks after Mr. Trump suggested that he could use a proposed $14 billion arms package for Taiwan as leverage with Beijing.`\
-https://www.nytimes.com/2026/06/18/world/asia/taiwan-trump-china-arms-weapons.html
-
-**Trump Signs Preliminary Deal to End the War With Iran**\
-`The White House confirmed that President Trump signed the memorandum of understanding between the United States and Iran on Wednesday at the Palace of Versailles.`\
-https://www.nytimes.com/video/world/middleeast/100000010975931/trump-signs-iran-deal.html
-
-**Average U.S. Gasoline Price Falls Below $4 for First Time in Months**\
-`Drivers are enjoying some relief at the pump after the United States and Iran signed an agreement to reopen the Strait of Hormuz.`\
-https://www.nytimes.com/2026/06/18/business/energy-environment/iran-war-gasoline-prices.html
-
-**Oil Prices Fall as U.S.-Iran Deal to Reopen Hormuz Takes Effect**\
-`Oil prices fell and stocks rose after Pakistan announced that the agreement to reopen the Strait of Hormuz would take effect immediately.`\
-https://www.nytimes.com/2026/06/18/business/oil-gas-prices-iran.html
-
-**El papa León visitará la aldea de la primera santa de EE. UU.**\
-`El pontífice llegará el sábado a una villa italiana donde nació la madre Cabrini, la primera santa estadounidense, y se espera que retome su enfoque incluyente sobre los migrantes.`\
-https://www.nytimes.com/es/2026/06/18/espanol/opinion/papa-leon-catolicos-estados-unidos.html
-
-**When in Jersey for the World Cup, Do as the Locals Do. (Go to a Mall.)**\
-`There is no tailgating at MetLife Stadium, which is surrounded by swampland and highways. But there is a three-million-square-foot megamall nearby.`\
-https://www.nytimes.com/2026/06/18/nyregion/american-dream-mall-world-cup.html
-
-**Together We Stand: A Knicks Celebration and a Pause for Communal Joy**\
-`The Knicks’ parade through the Canyon of Heroes on Thursday is expected to attract legions of fans celebrating the team’s first championship in 53 years.`\
-https://www.nytimes.com/2026/06/18/nyregion/knicks-parade-nyc.html
-
-**Can a Nerd Still Get Elected to Congress in Manhattan?**\
-`In a Democratic primary for a coveted House seat in Manhattan, Micah Lasher is  betting long experience can prevail despite anti-establishment headwinds.`\
-https://www.nytimes.com/2026/06/18/nyregion/micah-lasher-congress-manhattan.html
-
-**NYT Spelling Bee Answers for June 18, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/06/18/crosswords/spelling-bee-forum.html
-
-**Jimmy Kimmel Feels ‘Hormuzled’ by Trump’s New Deal With Iran**\
-`Although the agreement finally reopens the Strait of Hormuz, “we threw in a minimum of $300 billion,” Kimmel said. “Right now, Melania’s wondering, ‘How do I get a deal like that?’”`\
-https://www.nytimes.com/2026/06/18/arts/television/jimmy-kimmel-strait-hormuz-trump-iran-deal.html
-
-**Word of the Day: antipodes**\
-`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/06/18/learning/word-of-the-day-antipodes.html
-
-**Billionaire Tax Officially Has Enough Signatures for California Ballot**\
-`A proposed wealth tax on billionaires is headed to the ballot unless Gov. Gavin Newsom and other opponents reach a deal with backers to remove it.`\
-https://www.nytimes.com/2026/06/18/us/california-billionaire-tax-ballot.html
-
-**This Is Not a Grand Bargain With Iran. Good.**\
-`The world doesn’t need a nuclear deal with Tehran.`\
-https://www.nytimes.com/2026/06/18/opinion/iran-nuclear-deal-trump.html
-
-**In Britain, the Far Right Is Setting the Agenda**\
-`Its opponents urgently need to demonstrate that they can do more than throw up their hands in horror.`\
-https://www.nytimes.com/2026/06/18/opinion/britain-far-right-reform-restore-uk.html
-
-**Elecciones en Inglaterra: esto hay que saber sobre las votaciones extraordinarias**\
-`El jueves hay elecciones extraordinarias en Makerfield, un distrito al norte de Inglaterra. Sus resultados podrían provocar la destitución del primer ministro Keir Starmer.`\
-https://www.nytimes.com/es/2026/06/18/espanol/mundo/inglaterra-elecciones-partido-laborista.html
-
-**In Southeast Asia, Switching to Solar Offers Relief from Energy Crisis Caused by Iran War**\
-`Homeowners and businesses in the region, which relies heavily on imported oil, are installing rooftop solar panels to reduce the sting of soaring energy costs.`\
-https://www.nytimes.com/2026/06/18/world/asia/asia-oil-crisis-iran-solar-panels.html
-
-**Why the By-Election in Makerfield Will Have Giant Consequences for the UK**\
-`Here is what to know about the by-election on Thursday in Makerfield, the outcome of which could lead to Prime Minister Keir Starmer’s ouster.`\
-https://www.nytimes.com/2026/06/18/world/europe/uk-makerfield-by-election-burnham-starmer.html
-
-**Quote of the Day: NYNJ Stadium? A Cross-State Kick in the Teeth.**\
-`Quotation of the Day for Thursday, June 18, 2026.`\
-https://www.nytimes.com/2026/06/18/pageoneplus/quote-of-the-day-nynj-stadium-a-cross-state-kick-in-the-teeth.html
-
-**Acuerdo entre EE. UU. e Irán: esto dice el texto**\
-`Periodistas de The New York Times ofrecen un análisis de los párrafos del acuerdo, que un alto cargo dio a conocer el miércoles.`\
-https://www.nytimes.com/es/2026/06/18/espanol/estados-unidos/acuerdo-paz-iran-texto.html
-
-**Team Medic Recounts Iran’s ‘Stressful’ World Cup Debut in L.A.**\
-`A member of Iran’s medical team says the team endured delays, multiple security searches and a rushed exit, frustrating players and officials.`\
-https://www.nytimes.com/2026/06/17/world/middleeast/iran-world-cup-united-states.html
-
-**Highlights From the Las Culturistas Culture Awards Hosted by Bowen Yang and Matt Rogers**\
-`The comedians Bowen Yang and Matt Rogers honored the nooks and crannies of pop culture at the annual awards show.`\
-https://www.nytimes.com/2026/06/17/style/las-culturistas-culture-awards-bowen-yang-matt-rogers.html
-
-**Knicks Accept a White House Invitation to Celebrate Title, Owner Says**\
-`James Dolan said he was “very proud” to bring his championship team to Washington. It would be the first N.B.A. team to visit the White House with Trump as president.`\
-https://www.nytimes.com/2026/06/17/nyregion/knicks-white-house-visit.html
-
-**Kansas City Police Seek Gunman in Spree of Five Roadway Shootings**\
-`The attacks, which killed one and injured four, played out as the city was preparing to host its first World Cup match. An Uber driver taking Argentina fans to the stadium was among the victims.`\
-https://www.nytimes.com/2026/06/17/us/kansas-city-shooting-spree-world-cup.html
-
-**NYT Crossword Answers for June 18, 2026**\
-`Scott Hogan gets long words out of short clues.`\
-https://www.nytimes.com/2026/06/17/crosswords/daily-puzzle-2026-06-18.html
-
-**Before Making a Deal, Trump Demanded Iran’s Surrender. He Got a Surprise.**\
-`While the Iranians suffered substantial losses in the war, they emerged from a confrontation with the world’s most powerful military having proved they can use economic chaos as a weapon.`\
-https://www.nytimes.com/2026/06/17/us/politics/trump-iran-deal-nuclear-program-strait.html
-
-**The Last 12 Weeks: Episode 5**\
-`One week before the execution, the defense team awaits a final ruling on David Wood’s life.`\
-https://www.nytimes.com/2026/06/17/podcasts/serial-last-12-weeks-episode-5.html
-
-**Daveigh Chase, ‘Lilo & Stitch’ Voice Actor and ‘The Ring’ Villain, Dies at 35**\
-`She brought the plucky Lilo to life in the popular animated film series, and unnerved viewers as the child villain Samara in the horror film “The Ring.”`\
-https://www.nytimes.com/2026/06/17/arts/daveigh-chase-dead.html
-
-**The Last 12 Weeks: Episode 4**\
-`We visit death row, where David Wood tries to clear his name. But not before a victim of his crimes has her say.`\
-https://www.nytimes.com/2026/06/17/podcasts/serial-last-12-weeks-episode-4.html
-
-**Trump’s Deal With Iran Opens New Rifts in G.O.P.**\
-`Some in the president’s party were skeptical about whether the agreement he reached included adequate concessions from Iranian officials.`\
-https://www.nytimes.com/2026/06/17/us/politics/trump-iran-deal-republicans-criticism.html
-
-**The Last 12 Weeks: Episode 3**\
-`In the final weeks before the execution date, the defense team has to decide just how far it’s willing to push to save David Wood’s life.`\
-https://www.nytimes.com/2026/06/17/podcasts/serial-last-12-weeks-episode-3.html
-
-**The Last 12 Weeks: Episode 2**\
-`With less than two months until the execution, new witnesses offer unexpected revelations.`\
-https://www.nytimes.com/2026/06/17/podcasts/serial-last-12-weeks-episode-2.html
-
-**The Last 12 Weeks: Episode 1**\
-`There are uphill battles … and then there’s David Wood’s case.`\
-https://www.nytimes.com/2026/06/17/podcasts/serial-last-12-weeks-episode-1.html
-
-**Tornadoes Reported in Wisconsin and Illinois as Violent Storms Sweep the Midwest**\
-`The National Weather Service issued several of its highest-level tornado alerts on Wednesday night.`\
-https://www.nytimes.com/2026/06/17/weather/tornadoes-news-illinois-wisconsin-indiana.html
-
-**Warsh Makes His Case With Jargon, and a Penchant for Detail**\
-`The Federal Reserve’s new chairman held a press conference where he bantered with reporters and laid out a vision for change at the central bank.`\
-https://www.nytimes.com/2026/06/17/business/economy/warsh-fed-chairman-first-press-conference.html
-
-**Boyle Heights Warehouse Fire Prompts Thousands of L.A. Residents to Shelter in Place**\
-`Heavy black smoke was visible across much of Los Angeles as flames tore through a nearly 500,000-square-foot building just east of downtown.`\
-https://www.nytimes.com/2026/06/17/us/los-angeles-warehouse-fire-boyle-heights.html
 

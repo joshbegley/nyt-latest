@@ -1,3 +1,59 @@
+**‘Color Book’ Review: Love and Grieving**\
+`In this tender family drama, a widowed father and his disabled son overcome personal tragedy.`\
+https://www.nytimes.com/2026/06/18/movies/color-book-review.html
+
+**‘The Death of Robin Hood’ Review: Not a Merry Band**\
+`A darkly revisionist take on the medieval outlaw asks who gets to craft the heroic legends.`\
+https://www.nytimes.com/2026/06/18/movies/the-death-of-robin-hood-review.html
+
+**As Pitti Uomo’s Guest Designer, Simone Rocha Has Pretty Designs on Men**\
+`For over a decade, the Irish designer has found inspiration in womanhood. As the guest designer at Pitti Uomo, she plays with notions of masculinity.`\
+https://www.nytimes.com/2026/06/18/style/simone-rocha-designer-pitti-uomo.html
+
+**‘Never Change!’ Review: Failing the Assignment**\
+`This comedy squanders a promising premise about adults forced back to high school on repetitive sketches and hollow jokes.`\
+https://www.nytimes.com/2026/06/18/movies/never-change-review.html
+
+**Homes for Sale in Connecticut and New York**\
+`This week’s properties are a three-bedroom in New Canaan, Conn., and a four-bedroom in Cutchogue, N.Y.`\
+https://www.nytimes.com/2026/06/18/realestate/housing-market-near-nyc.html
+
+**It’s Good Enough for the King. Is a Second Birthday Right for You?**\
+`A birthday is already an occasion for indulgence. So why not schedule one on your terms.`\
+https://www.nytimes.com/2026/06/18/style/summer-birthday-royal-celebration.html
+
+**Homes for Sale in Manhattan and Brooklyn**\
+`This week’s properties are on the Upper West Side, and in TriBeCa and Bushwick.`\
+https://www.nytimes.com/2026/06/18/realestate/housing-market-nyc.html
+
+**For New Home Buyers: Longer Commute Times**\
+`Entry-level home buyers find deals farther from job hubs, but pay in commute time and at the gas pump.`\
+https://www.nytimes.com/2026/06/18/realestate/for-new-home-buyers-longer-commute-times.html
+
+**‘The Devil Queen’ Review: A Seedy Quest for Vengeance**\
+`Antonio Carlos da Fontoura’s 1974 gay gangster thriller returns in a gorgeous new restoration.`\
+https://www.nytimes.com/2026/06/18/movies/the-devil-queen-review.html
+
+**The Russian Film Director Who Chooses Moments to Challenge Putin**\
+`Alexander Sokurov has questioned the Russian president about government repression but he is still controversial among his country’s exiles.`\
+https://www.nytimes.com/2026/06/18/world/europe/alexander-sokurov-russia-director.html
+
+**Are Your Ancestors Canadian? Here’s What to Know About Becoming a Citizen.**\
+`Six months after Canada expanded its citizenship eligibility, requests are flooding in for archival records. The documents are vital for proving ties to the country.`\
+https://www.nytimes.com/2026/06/18/world/canada/canadian-citizenship-guide.html
+
+**How A.I. Apps Teach Students How to Cheat**\
+`Big tech companies and small start-ups are using social media to hype new tools that allow students to trick teachers and A.I. detectors.`\
+https://www.nytimes.com/2026/06/18/us/ai-apps-students-cheat.html
+
+**Barack Obama Presidential Center Opens in Chicago**\
+`Today’s opening is expected to draw four former presidents, as well as Bruce Springsteen, Bono and Jennifer Hudson. Chicago has seen years of planning and legal fights.`\
+https://www.nytimes.com/2026/06/18/us/obama-presidential-center-chicago.html
+
+**The Thriving Black Market for a Powerful Weight Loss Drug**\
+`People are buying what they believe to be retatrutide from WhatsApp groups, Chinese labs and websites selling it “for research purposes.”`\
+https://www.nytimes.com/2026/06/18/well/retatrutide-peptide-weight-loss-black-market.html
+
 **Obama Presidential Center Opens in Chicago**\
 `The grand opening for the Obama Presidential Center is on Thursday. Several celebrities and four living presidents, excluding President Trump, are expected to attend.`\
 https://www.nytimes.com/video/us/100000010975799/obama-presidential-center-chicago.html
