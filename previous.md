@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/nyregion/100000010977450/18vid-knicks-61693.html
+
 **Teen-aged Suspect in U.S. Consulate Shooting Is Arrested at Toronto Airport**\
 `The teen had fled from the police during a raid at an apartment building that set off a shootout, which left an officer dead and another suspect injured.`\
 https://www.nytimes.com/2026/06/18/world/canada/toronto-police-shooting-suspect-arrest.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/100000010976078/hegseth-nato-allies-iran-war
 **Warsh’s Hawkish Turn Has Scrambled the Math on Rates**\
 `The futures market now sees at least one interest rate increase this year, as the Federal Reserve’s new leader, Kevin Warsh, vows to fight inflation.`\
 https://www.nytimes.com/2026/06/18/business/dealbook/warsh-fed-rates.html
-
-**Hegseth Berates NATO Allies for ‘Shameful’ Response to U.S. War in Iran**\
-`Defense Secretary Pete Hegseth used a meeting of NATO defense ministers to continue the Trump administration’s sharp criticism of European military policies.`\
-https://www.nytimes.com/2026/06/18/world/middleeast/hegseth-nato-us-iran-war-trump.html
 

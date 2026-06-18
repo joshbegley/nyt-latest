@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/nyregion/100000010977450/18vid-knicks-61693.html
+
 **Teen-aged Suspect in U.S. Consulate Shooting Is Arrested at Toronto Airport**\
 `The teen had fled from the police during a raid at an apartment building that set off a shootout, which left an officer dead and another suspect injured.`\
 https://www.nytimes.com/2026/06/18/world/canada/toronto-police-shooting-suspect-arrest.html
