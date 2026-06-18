@@ -1,3 +1,11 @@
+**Gulf States Are Frustrated by Failure to Tackle Iran’s Missiles, Analysts Say**\
+`The preliminary U.S.-Iranian peace deal does not address Iranian rockets or drones, raising questions in the region about relying on Washington as a security guarantor.`\
+https://www.nytimes.com/2026/06/18/world/middleeast/gulf-states-us-iran-deal.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/nyregion/100000010976388/18vid-knicks-46920.html
+
 **Afghanistan Issues Ban on Smartphones for Civil Servants and Military**\
 `Those using their phones at work will see them smashed and face punishment, according to a written order from the Taliban government’s highest court.`\
 https://www.nytimes.com/2026/06/18/world/asia/afghanistan-taliban-smartphone-ban.html
@@ -31,7 +39,7 @@ https://www.nytimes.com/2026/06/18/world/middleeast/hegseth-nato-us-iran-war-tru
 https://www.nytimes.com/2026/06/18/business/uk-inflation-bank-of-england.html
 
 **At the Supreme Court**\
-`(No description)`\
+``\
 https://www.nytimes.com/2026/06/18/briefing/at-the-supreme-court.html
 
 **Israel Stunned by Trump’s Iran Deal**\
@@ -162,7 +170,7 @@ https://www.nytimes.com/2026/06/18/business/flights-tickets-prices-fuel-iran-dea
 `Lacy Reynolds was waiting to catch the next flight when the aircraft crashed in Butler, Mo., killing 11 passengers and a pilot. She wasn’t sure she could keep skydiving.`\
 https://www.nytimes.com/2026/06/18/us/skydiving-crash-witness.html
 
-**Why the Knicks Make Us Feel Good**\
+**Why the Knicks Really Won**\
 `Teamwork isn’t just useful, the Knicks showed. It’s a higher calling.`\
 https://www.nytimes.com/2026/06/18/opinion/knicks-parade-new-york-championship.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/18/podcasts/spielberg-phones-home-in-disclosure-
 **Spielberg Phones Home in ‘Disclosure Day’**\
 `Wesley Morris and the film curator, Eric Hynes, share thoughts on Steven Spielberg’s latest film, “Disclosure Day.” Together, they consider the evolution of the filmmaker’s canon.`\
 https://www.nytimes.com/video/podcasts/100000010969497/spielberg-phones-home-in-disclosure-day.html
-
-**New Super PAC, the Guardrails Alliance, Aims to Rally Tech Workers to Help Limit A.I.**\
-`The Guardrails Alliance, which has raised $5 million, is positioning itself as a populist effort that will take on the pro-A.I. interests trying to influence this year’s elections.`\
-https://www.nytimes.com/2026/06/18/technology/ai-super-pac-guardrails-alliance.html
-
-**36 Hours in the Catskills: Things to Do and See**\
-`Northwest of New York City, this vast, verdant region is blooming with revived music venues, farmhouse cafes, cozy cocktail bars and hiking trails aplenty.`\
-https://www.nytimes.com/interactive/2026/06/18/travel/things-to-do-catskills.html
 

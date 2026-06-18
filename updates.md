@@ -1,3 +1,19 @@
+**Gulf States Are Frustrated by Failure to Tackle Iran’s Missiles, Analysts Say**\
+`The preliminary U.S.-Iranian peace deal does not address Iranian rockets or drones, raising questions in the region about relying on Washington as a security guarantor.`\
+https://www.nytimes.com/2026/06/18/world/middleeast/gulf-states-us-iran-deal.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/nyregion/100000010976388/18vid-knicks-46920.html
+
+**At the Supreme Court**\
+``\
+https://www.nytimes.com/2026/06/18/briefing/at-the-supreme-court.html
+
+**Why the Knicks Really Won**\
+`Teamwork isn’t just useful, the Knicks showed. It’s a higher calling.`\
+https://www.nytimes.com/2026/06/18/opinion/knicks-parade-new-york-championship.html
+
 **Live Updates: Knicks Fans Line Up for a Parade Decades in the Making**\
 `The police declared the sidewalk viewing pens along Broadway full more than two hours before the 10 a.m. start of the festivities. The ticker-tape parade will celebrate the N.B.A. team that ended a five-decade championship drought.`\
 https://www.nytimes.com/live/2026/06/18/nyregion/knicks-parade
