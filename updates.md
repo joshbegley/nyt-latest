@@ -1,3 +1,11 @@
+**Vance’s Defense of Iran Deal Rests on Vague and Misleading Claims**\
+`The vice president said the United States had leverage to dictate the outcome of the next round of negotiations. But he claimed incorrectly that Iran got no new benefit from the lifting of oil sanctions.`\
+https://www.nytimes.com/2026/06/18/us/politics/vances-iran-deal-misleading-claims.html
+
+**During Trump’s Immigration Crackdown, Minnesota Protester Remained Shackled in Hospital for Days**\
+`The story of one progressive activist arrested in Minnesota in January shows what critics say is the aggressive nature of the Trump administration’s response to those who have protested its immigration crackdown.`\
+https://www.nytimes.com/2026/06/18/us/minnesota-protester-isolation-trump-immigration-crackdown.html
+
 **‘Voicemails for Isabelle’ Review: An Unexpected Recipient**\
 `The movie, starring Zoey Deutch and Nick Robinson, begins as a tear-jerker and morphs into a poignant rom-com.`\
 https://www.nytimes.com/2026/06/18/movies/voicemails-for-isabelle-review-an-unexpected-recipient.html

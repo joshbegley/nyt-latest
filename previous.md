@@ -1,3 +1,11 @@
+**Vance’s Defense of Iran Deal Rests on Vague and Misleading Claims**\
+`The vice president said the United States had leverage to dictate the outcome of the next round of negotiations. But he claimed incorrectly that Iran got no new benefit from the lifting of oil sanctions.`\
+https://www.nytimes.com/2026/06/18/us/politics/vances-iran-deal-misleading-claims.html
+
+**During Trump’s Immigration Crackdown, Minnesota Protester Remained Shackled in Hospital for Days**\
+`The story of one progressive activist arrested in Minnesota in January shows what critics say is the aggressive nature of the Trump administration’s response to those who have protested its immigration crackdown.`\
+https://www.nytimes.com/2026/06/18/us/minnesota-protester-isolation-trump-immigration-crackdown.html
+
 **‘Voicemails for Isabelle’ Review: An Unexpected Recipient**\
 `The movie, starring Zoey Deutch and Nick Robinson, begins as a tear-jerker and morphs into a poignant rom-com.`\
 https://www.nytimes.com/2026/06/18/movies/voicemails-for-isabelle-review-an-unexpected-recipient.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/18/special-series/rasmus-munk-food-emotions.html
 **Don’t Blame Plunging Birthrates on Phones**\
 `Low fertility rates are a lagging indicator, the final outcome of a string of social shifts.`\
 https://www.nytimes.com/2026/06/18/opinion/iphones-birthrate-decline.html
-
-**Report Tallies 39 Adults Who Could Have Helped Save Girls at Camp Mystic**\
-`The finding was part of a growing case against the camp’s leadership, which state investigators said did not organize an evacuation in time “despite ample opportunity.”`\
-https://www.nytimes.com/2026/06/18/us/texas-flooding-evacuation-camp-mystic.html
-
-**Federal Energy Regulator Seeks to Limit Conflicts Over Data Centers**\
-`The Federal Energy Regulatory Commission directed grid managers to make changes that protect individuals from higher electricity bills while giving data centers access to power faster.`\
-https://www.nytimes.com/2026/06/18/business/data-centers-power-regulation.html
 
