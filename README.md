@@ -59,7 +59,7 @@ https://www.nytimes.com/2026/06/18/books/review/new-recommended-books.html
 https://www.nytimes.com/2026/06/18/us/politics/trump-regime-change-book-haberman-swan.html
 
 **The Mexican Artist Ramòn Saturnino Is Breaking Down Walls**\
-`Ramòn Saturnino, an architect by training, is showing his work on the U.S.-Mexico border wall for the first time at Art Basel.`\
+`Ramón Saturnino, an architect by training, is showing his work on the U.S.-Mexico border wall for the first time at Art Basel.`\
 https://www.nytimes.com/2026/06/18/arts/design/ramon-saturnino-art-basel.html
 
 **At Past Championship Parades, Many Students Skipped School**\

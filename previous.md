@@ -1,3 +1,7 @@
+**Texas Report Finds That 39 Adults Could Have Helped Girls at Camp Mystic**\
+`The finding was part of a growing case against the camp’s leadership, which state investigators said did not organize an evacuation in time “despite ample opportunity.”`\
+https://www.nytimes.com/2026/06/18/us/texas-flooding-evacuation-camp-mystic.html
+
 **Federal Energy Regulator Seeks to Limit Conflicts Over Data Centers**\
 `The Federal Energy Regulatory Commission directed grid managers to make changes that protect individuals from higher electricity bills while giving data centers access to power faster.`\
 https://www.nytimes.com/2026/06/18/business/data-centers-power-regulation.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/18/us/politics/mccarthy-trump-speaker-book.html
 **Centrist Democrat Concedes to Socialist in D.C. Mayoral Primary**\
 `President Trump’s grip on the capital loomed over the race, and he threatened to tighten it if Councilwoman Janeese Lewis George is elected. The Associated Press has not called the race.`\
 https://www.nytimes.com/2026/06/18/us/elections/washington-mayoral-primary.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/nyregion/100000010976539/18vid-knicks-7813.html
 
