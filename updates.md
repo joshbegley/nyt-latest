@@ -1,3 +1,7 @@
+**Hegseth Berates NATO Allies for ‘Shameful’ Response to U.S. War in Iran**\
+`Defense Secretary Pete Hegseth used a meeting of NATO defense ministers to continue the Trump administration’s sharp criticism of European military policies.`\
+https://www.nytimes.com/2026/06/18/world/middleeast/hegseth-nato-us-iran-war-trump.html
+
 **Live Updates: Knicks Fans Line Up Before Dawn for a Parade Decades in the Making**\
 `The police declared the sidewalk viewing pens along Broadway full more than two hours before the 10 a.m. start of the festivities. The ticker-tape parade will celebrate the N.B.A. team that ended a five-decade championship drought.`\
 https://www.nytimes.com/live/2026/06/18/nyregion/knicks-parade

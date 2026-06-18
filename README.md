@@ -1,3 +1,7 @@
+**Warsh’s Hawkish Turn Has Scrambled the Math on Rates**\
+`The futures market now sees at least one interest rate increase this year, as the Federal Reserve’s new leader, Kevin Warsh, vows to fight inflation.`\
+https://www.nytimes.com/2026/06/18/business/dealbook/warsh-fed-rates.html
+
 **Hegseth Berates NATO Allies for ‘Shameful’ Response to U.S. War in Iran**\
 `Defense Secretary Pete Hegseth used a meeting of NATO defense ministers to continue the Trump administration’s sharp criticism of European military policies.`\
 https://www.nytimes.com/2026/06/18/world/middleeast/hegseth-nato-us-iran-war-trump.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/18/dining/chef-matty-matheson-the-bear-fame.html
 **The Knicks Parade: Come Early, and Bring Patience**\
 `The parade in Lower Manhattan is expected to draw a huge outpouring of fans. There won’t be ticker tape, but there will be confetti.`\
 https://www.nytimes.com/2026/06/18/nyregion/the-knicks-parade-come-early-and-bring-patience.html
-
-**Ask the Therapist: A Family Estrangement Is Causing Even More Rifts**\
-`Our Ask the Therapist columnist, Lori Gottlieb, advises a reader whose family estrangement is causing more rifts.`\
-https://www.nytimes.com/2026/06/18/well/mind/ask-therapist-daughter-estranged.html
 
