@@ -1,3 +1,7 @@
+**Iran Gets Major Economic Lifeline for Minimal Concessions in Initial Deal**\
+`The agreement delays the most difficult steps for Iran for later talks, while granting it a crucial economic lifeline.`\
+https://www.nytimes.com/2026/06/18/world/middleeast/iran-deal-oil-strait-of-hormuz-nuclear.html
+
 **Ukraine Strikes Moscow Refinery in Large-Scale Drone Attack**\
 `The attack, which shut down the city’s airports for several hours, appeared to be the biggest wave of drone strikes on Russia’s capital since the start of the war.`\
 https://www.nytimes.com/2026/06/18/world/europe/moscow-ukraine-drone-attack-fire.html
