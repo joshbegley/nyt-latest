@@ -1,3 +1,7 @@
+**Make Sure Your Business Is Built to Last**\
+`In Part One of a two-part series, Michael Cherny, head of Citizens Wealth Advisors, addresses the need for business leaders to consider succession planning to maintain the continuity of their businesses while safeguarding their legacy.`\
+http://brandedplaylist.nytimes.com/video/embedded/t-brand/100000010976569/make-sure-your-business-is-built-to-last.html
+
 **Así fue el debut de Irán en el Mundial, según un fisioterapeuta**\
 `Los estrictos límites de tiempo impuestos por el gobierno de Estados Unidos a la selección iraní la obligan a abandonar el campo inmediatamente después de cada partido.`\
 https://www.nytimes.com/es/2026/06/18/espanol/deportes/iran-equipo-mundial-estados-unidos.html

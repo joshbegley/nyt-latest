@@ -1,3 +1,11 @@
+**Supreme Court Narrows Law Banning Drug Users From Owning Guns**\
+`A Texas gun owner who faced criminal charges after admitting to marijuana use argued that a federal gun law violated the Second Amendment.`\
+https://www.nytimes.com/2026/06/18/us/politics/supreme-court-drugs-guns.html
+
+**Tech Workers Maxed Out Their A.I. Use. Now They’re Trying to Minimize It.**\
+`Artificial intelligence is expensive to use, many companies discovered. That has led to a new era of saving costs.`\
+https://www.nytimes.com/2026/06/18/technology/ai-token-minimizing.html
+
 **Make Sure Your Business Is Built to Last**\
 `In Part One of a two-part series, Michael Cherny, head of Citizens Wealth Advisors, addresses the need for business leaders to consider succession planning to maintain the continuity of their businesses while safeguarding their legacy.`\
 http://brandedplaylist.nytimes.com/video/embedded/t-brand/100000010976569/make-sure-your-business-is-built-to-last.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/18/business/knicks-brands-merchandise.html
 **Why Flight Prices Might Not Fall After the U.S.-Iran Deal**\
 `Jet fuel may stay expensive for months, and airlines know travelers are willing to pay more for tickets.`\
 https://www.nytimes.com/2026/06/18/business/flights-tickets-prices-fuel-iran-deal.html
-
-**She Saw Her Skydiving Plane Burn. Would She Jump Again?**\
-`Lacy Reynolds was waiting to catch the next flight when the aircraft crashed in Butler, Mo., killing 11 passengers and a pilot. She wasn’t sure she could keep skydiving.`\
-https://www.nytimes.com/2026/06/18/us/skydiving-crash-witness.html
-
-**Why the Knicks Really Won**\
-`Teamwork isn’t just useful, the Knicks showed. It’s a higher calling.`\
-https://www.nytimes.com/2026/06/18/opinion/knicks-parade-new-york-championship.html
 
