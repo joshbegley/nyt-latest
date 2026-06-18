@@ -1,3 +1,7 @@
+**Obama Presidential Center Opens in Chicago**\
+`The grand opening for the Obama Presidential Center is on Thursday. Several celebrities and four living presidents, excluding President Trump, are expected to attend.`\
+https://www.nytimes.com/video/us/100000010975799/obama-presidential-center-chicago.html
+
 **Taiwan’s President Says He Trusts Trump to Approve Arms Sales**\
 `President Lai Ching-te made the hopeful remarks after Mr. Trump suggested that he could use a proposed $14 billion arms package for Taiwan as leverage with Beijing.`\
 https://www.nytimes.com/2026/06/18/world/asia/taiwan-trump-china-arms-weapons.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/17/us/laredo-texas-plane-crash.html
 **Trump Escalates Tensions With Senate Republicans**\
 `Also, the U.S. shares details of the preliminary Iran deal. Here’s the latest at the end of Wednesday.`\
 https://www.nytimes.com/2026/06/17/briefing/trump-senate-republicans-us-iran-deal.html
-
-**Federal Prisons Must Provide Hormones Sought by Trans Inmates**\
-`The government had argued that a “pendulum swing” in the medical consensus justified treating trans inmates with psychotherapy and antidepressants instead.`\
-https://www.nytimes.com/2026/06/17/us/hormones-transgender-prison-inmates.html
 
