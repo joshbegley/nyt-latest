@@ -1,3 +1,11 @@
+**Inflation Will Linger Despite U.S.-Iran Deal, British Officials Warn**\
+`Bank of England policymakers kept interest rates on hold, saying the impact of the war in Iran was still a major source of uncertainty for the economy.`\
+https://www.nytimes.com/2026/06/18/business/uk-inflation-bank-of-england.html
+
+**Israel Stunned by Trump’s Iran Deal**\
+`Analysts said the agreement accomplishes none of Israel’s war aims and leaves the country in worse shape on each of them.`\
+https://www.nytimes.com/2026/06/18/world/middleeast/israel-iran-deal-reaction-netanyahu.html
+
 **At the Supreme Court**\
 `(No description)`\
 https://www.nytimes.com/2026/06/18/briefing/at-the-supreme-court.html

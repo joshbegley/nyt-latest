@@ -1,6 +1,14 @@
+**Inflation Will Linger Despite U.S.-Iran Deal, British Officials Warn**\
+`Bank of England policymakers kept interest rates on hold, saying the impact of the war in Iran was still a major source of uncertainty for the economy.`\
+https://www.nytimes.com/2026/06/18/business/uk-inflation-bank-of-england.html
+
 **At the Supreme Court**\
 `(No description)`\
 https://www.nytimes.com/2026/06/18/briefing/at-the-supreme-court.html
+
+**Israel Stunned by Trump’s Iran Deal**\
+`Analysts said the agreement accomplishes none of Israel’s war aims and leaves the country in worse shape on each of them.`\
+https://www.nytimes.com/2026/06/18/world/middleeast/israel-iran-deal-reaction-netanyahu.html
 
 **‘The Last 12 Weeks’ Is Out Today. Here’s the Backstory.**\
 `Host Maurice Chammah introduces Serial Productions’ latest show.`\
@@ -189,8 +197,4 @@ https://www.nytimes.com/2026/06/18/well/mind/ask-therapist-daughter-estranged.ht
 **They Booked an Airbnb Ahead of the World Cup. Can a Host Demand They Pay More?**\
 `A family booked early for a big soccer trip to Southern California, then a new host suddenly raised the price. Why did Airbnb leave them in the lurch?`\
 https://www.nytimes.com/2026/06/18/travel/airbnb-world-cup-cancellation.html
-
-**‘Unidentified’ Review: A High-Concept Murder Mystery**\
-`The director Haifaa Al-Mansour (“Wadjda”) concludes a trilogy about women resisting societal constraints in Saudi Arabia with a whodunit.`\
-https://www.nytimes.com/2026/06/18/movies/unidentified-review-saudi-arabia.html
 
