@@ -1,3 +1,7 @@
+**The Shifting Politics of Climate Change**\
+`A new poll suggests Republicans may be more movable on climate change than previously thought, plus more climate news.`\
+https://www.nytimes.com/2026/06/18/climate/the-shifting-politics-of-climate-change.html
+
 **Gunmen Attack a Major Airport in Niger**\
 `An early morning assault on Niamey airport was the second such attack in the West African country this year.`\
 https://www.nytimes.com/2026/06/18/world/africa/niger-armed-attack-airport.html
@@ -58,7 +62,7 @@ https://www.nytimes.com/2026/06/18/us/politics/washington-house-slavery-appeals.
 `(No description)`\
 https://www.nytimes.com/video/embedded/nyregion/100000010977450/18vid-knicks-61693.html
 
-**Teen-aged Suspect in U.S. Consulate Shooting Is Arrested at Toronto Airport**\
+**19-Year-Old Suspect in Consulate Shooting Arrested at Toronto Airport**\
 `The teen had fled from the police during a raid at an apartment building that set off a shootout, which left an officer dead and another suspect injured.`\
 https://www.nytimes.com/2026/06/18/world/canada/toronto-police-shooting-suspect-arrest.html
 
@@ -66,7 +70,7 @@ https://www.nytimes.com/2026/06/18/world/canada/toronto-police-shooting-suspect-
 `You should, too. Then keep the skillet on the stove all season long for white bean shakshuka, chickpea Parmesan, verdant orzo and more.`\
 https://www.nytimes.com/2026/06/18/dining/im-slinging-lasagna-in-my-skillet-this-summer.html
 
-**Los Angeles Police Officer Kills Knicks Fan’s Dog After Celebration**\
+**L.A.P.D. Officer Kills Knicks Fan’s Dog After Celebration**\
 `Marie Marseille had waited her entire life to see the New York Knicks win the N.B.A. championship. Her elation ended in tragedy.`\
 https://www.nytimes.com/2026/06/18/us/lapd-knicks-dog-killed.html
 
@@ -193,8 +197,4 @@ http://brandedplaylist.nytimes.com/video/embedded/t-brand/100000010976601/take-y
 **Supreme Court Narrows Law Banning Drug Users From Owning Guns**\
 `The justices sided with a Texas gun owner who faced criminal charges after admitting to marijuana use argued that a federal gun law violated the Second Amendment.`\
 https://www.nytimes.com/2026/06/18/us/politics/supreme-court-drugs-guns.html
-
-**Tech Workers Maxed Out Their A.I. Use. Now They’re Trying to Minimize It.**\
-`Artificial intelligence is expensive to use, many companies discovered. That has led to a new era of saving costs.`\
-https://www.nytimes.com/2026/06/18/technology/ai-token-minimizing.html
 
