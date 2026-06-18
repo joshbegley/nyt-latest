@@ -1,3 +1,7 @@
+**Jean Houston, ‘Midwife of Souls’ Who Advised Hillary Clinton, Dies at 89**\
+`The author of books like “The Possible Human,” she held workshops that drew on mythology, psychology and the experiential ethos of Esalen. But she refused to be called a guru.`\
+https://www.nytimes.com/2026/06/18/science/jean-houston-dead.html
+
 **Are You a Recent College Graduate Who Moved Back Home? We Want to Hear From You.**\
 `If you lived with your parents for nine months or more after graduation, please tell us how you came to the decision and whether the job market influenced your thinking.`\
 https://www.nytimes.com/2026/06/18/business/college-graduate-living-with-parents.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/18/arts/design/cao-fei-kunstmuseum-basel.html
 **Books Our Editors Love This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/06/18/books/review/new-recommended-books.html
-
-**Takeaways From ‘Regime Change,’ Maggie Haberman and Jonathan Swan’s Book on Trump’s White House**\
-`The book by Maggie Haberman and Jonathan Swan of The New York Times, “Regime Change,” reveals a host of details and surprising exchanges as President Trump pushed to drastically expand his power.`\
-https://www.nytimes.com/2026/06/18/us/politics/trump-regime-change-book-haberman-swan.html
 
