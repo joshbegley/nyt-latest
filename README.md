@@ -1,3 +1,7 @@
+**NYT Crossword Answers for June 18, 2026**\
+`Scott Hogan gets long words out of short clues.`\
+https://www.nytimes.com/2026/06/17/crosswords/daily-puzzle-2026-06-18.html
+
 **Before Making a Deal, Trump Demanded Iran’s Surrender. He Got a Surprise.**\
 `While the Iranians suffered substantial losses in the war, they emerged from a confrontation with the world’s most powerful military having proved they can use economic chaos as a weapon.`\
 https://www.nytimes.com/2026/06/17/us/politics/trump-iran-deal-nuclear-program-strait.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/video/us/elections/100000010973997/biden-clinton-2024-el
 **What Young Men Thought of Trump’s U.F.C. Fight**\
 `The spectacle seemed targeted to the young male voters drifting away from the president. Some were skeptical.`\
 https://www.nytimes.com/2026/06/17/style/trump-ufc-white-house-young-men.html
-
-**Trump Rescinds Endorsement of Right-Wing Pastor After Texting Scandal**\
-`The pastor, Jackson Lahmeyer, dropped out of the race for a House seat in Oklahoma as President Trump backed Mr. Lahmeyer’s Republican rival in a runoff election.`\
-https://www.nytimes.com/2026/06/17/us/politics/trump-lahmeyer-house-texting-scandal-tedford.html
 
 **Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
 `Chairman Kevin M. Warsh vowed to start a “new chapter” in the Federal Reserve’s oversight of the U.S. economy.`\
