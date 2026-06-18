@@ -1,3 +1,15 @@
+**See the Knicks Championship Parade Unfold**\
+`Fans are gathering in Manhattan on Thursday to cheer on the N.B.A. champions at a parade that has been 53 years in the making.`\
+https://www.nytimes.com/2026/06/18/nyregion/18met-knicks-parade-photos.html
+
+**Pete Hegseth Scolds NATO Allies**\
+`U.S. Defense Secretary Pete Hegseth on Thursday berated NATO allies for not assisting in American strikes against Iran and announced a review of U.S. forces in Europe as a result.`\
+https://www.nytimes.com/video/world/100000010976078/hegseth-nato-allies-iran-war.html
+
+**Warsh’s Hawkish Turn Has Scrambled the Math on Rates**\
+`The futures market now sees at least one interest rate increase this year, as the Federal Reserve’s new leader, Kevin Warsh, vows to fight inflation.`\
+https://www.nytimes.com/2026/06/18/business/dealbook/warsh-fed-rates.html
+
 **Hegseth Berates NATO Allies for ‘Shameful’ Response to U.S. War in Iran**\
 `Defense Secretary Pete Hegseth used a meeting of NATO defense ministers to continue the Trump administration’s sharp criticism of European military policies.`\
 https://www.nytimes.com/2026/06/18/world/middleeast/hegseth-nato-us-iran-war-trump.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/18/arts/design/yves-saint-laurent-photography-ic
 **Will the Iran Deal Last? JD Vance Is Betting His Future on It.**\
 `“If you think this is a bad deal, what is your alternative?”`\
 https://www.nytimes.com/video/opinion/100000010968351/will-the-iran-deal-last-jd-vance-is-betting-his-future-on-it.html
-
-**For Matty Matheson of ‘The Bear,’ Fame Can Be a Beast**\
-`The prolifically profane chef loves his sweet role on ‘The Bear’ and life on his Canadian farm, but he’s a bit weary of playing the clown.`\
-https://www.nytimes.com/2026/06/18/dining/chef-matty-matheson-the-bear-fame.html
-
-**The Knicks Parade: Come Early, and Bring Patience**\
-`The parade in Lower Manhattan is expected to draw a huge outpouring of fans. There won’t be ticker tape, but there will be confetti.`\
-https://www.nytimes.com/2026/06/18/nyregion/the-knicks-parade-come-early-and-bring-patience.html
-
-**Ask the Therapist: A Family Estrangement Is Causing Even More Rifts**\
-`Our Ask the Therapist columnist, Lori Gottlieb, advises a reader whose family estrangement is causing more rifts.`\
-https://www.nytimes.com/2026/06/18/well/mind/ask-therapist-daughter-estranged.html
 

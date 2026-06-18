@@ -1,3 +1,15 @@
+**See the Knicks Championship Parade Unfold**\
+`Fans are gathering in Manhattan on Thursday to cheer on the N.B.A. champions at a parade that has been 53 years in the making.`\
+https://www.nytimes.com/2026/06/18/nyregion/18met-knicks-parade-photos.html
+
+**Pete Hegseth Scolds NATO Allies**\
+`U.S. Defense Secretary Pete Hegseth on Thursday berated NATO allies for not assisting in American strikes against Iran and announced a review of U.S. forces in Europe as a result.`\
+https://www.nytimes.com/video/world/100000010976078/hegseth-nato-allies-iran-war.html
+
+**Warsh’s Hawkish Turn Has Scrambled the Math on Rates**\
+`The futures market now sees at least one interest rate increase this year, as the Federal Reserve’s new leader, Kevin Warsh, vows to fight inflation.`\
+https://www.nytimes.com/2026/06/18/business/dealbook/warsh-fed-rates.html
+
 **Hegseth Berates NATO Allies for ‘Shameful’ Response to U.S. War in Iran**\
 `Defense Secretary Pete Hegseth used a meeting of NATO defense ministers to continue the Trump administration’s sharp criticism of European military policies.`\
 https://www.nytimes.com/2026/06/18/world/middleeast/hegseth-nato-us-iran-war-trump.html
