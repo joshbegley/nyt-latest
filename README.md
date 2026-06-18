@@ -1,3 +1,19 @@
+**Netflix Cancels Duffer Brothers’ ‘The Boroughs’ After One Season**\
+`The Duffer brothers, who produced the series and created “Stranger Things,” recently left the streamer for Paramount.`\
+https://www.nytimes.com/2026/06/18/arts/television/boroughs-canceled-duffer-brothers-netflix.html
+
+**Penske Media Is Buying What’s Left of Vox Media**\
+`The deal will put online publications like Popsugar and Eater under the same roof as Rolling Stone and Variety.`\
+https://www.nytimes.com/2026/06/18/business/media/penske-vox-media.html
+
+**Scores Fall Ill at Air Force Base After Hegseth Makes Flu Vaccine Optional**\
+`The defense secretary described the vaccine requirement, which he lifted in April, as an “absurd, overreaching” mandate.`\
+https://www.nytimes.com/2026/06/18/us/flu-outbreak-air-force-base.html
+
+**Outdoor Sculpture Shows Feature Henry Moore, Lynn Chadwick in England This Summer**\
+`As art lovers head to London for the Treasure House Fair, outdoor sculpture shows featuring Henry Moore, Lynn Chadwick and big names beckon.`\
+https://www.nytimes.com/2026/06/18/arts/design/england-outdoor-sculpture-shows.html
+
 **The Treasure House Fair Arrives at the Right Time in London**\
 `The Treasure House Fair returns for its fourth year, embracing accessibility and emotion over connoisseurship.`\
 https://www.nytimes.com/2026/06/18/arts/design/treasure-house-fair-london.html
@@ -59,7 +75,7 @@ https://www.nytimes.com/2026/06/18/us/politics/ice-warehouses-immigration.html
 https://www.nytimes.com/video/us/politics/100000010910839/erika-kirks-message-for-women-at-turning-point-usa.html
 
 **Education Department Lowers Student Loan Interest Rates for Two Years**\
-`The department, citing high default rates, is reducing interest rates on federal student loans by up to 1 percentage point for two years.`\
+`The department, citing high default rates, is reducing interest rates on federal student loans by up to one percentage point for two years.`\
 https://www.nytimes.com/2026/06/18/business/student-loans-interest-rate.html
 
 ****\
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/06/18/technology/ai-token-minimizing.html
 **Make Sure Your Business Is Built to Last**\
 `In Part One of a two-part series, Michael Cherny, head of Citizens Wealth Advisors, addresses the need for business leaders to consider succession planning to maintain the continuity of their businesses while safeguarding their legacy.`\
 http://brandedplaylist.nytimes.com/video/embedded/t-brand/100000010976569/make-sure-your-business-is-built-to-last.html
-
-**Así fue el debut de Irán en el Mundial, según un fisioterapeuta**\
-`Los estrictos límites de tiempo impuestos por el gobierno de Estados Unidos a la selección iraní la obligan a abandonar el campo inmediatamente después de cada partido.`\
-https://www.nytimes.com/es/2026/06/18/espanol/deportes/iran-equipo-mundial-estados-unidos.html
-
-**The 1970 and 1973 Knicks Did Not Get Parades. An Ex-Knick Is Partly to Blame.**\
-`Thursday’s ticker-tape celebration of the Knicks will be the team’s first ever. Parades were considered a little overdone in the ’70s.`\
-https://www.nytimes.com/2026/06/18/nyregion/knicks-parade-history-john-palmer.html
-
-**Laufey on Dissonance and How It Drives Us**\
-`Taking risks and experimenting with imperfection are paths to uncovering new realms of possibility, both in music and life.`\
-https://www.nytimes.com/2026/06/18/special-series/laufey-dissonance-drive.html
-
-**Muere Daveigh Chase, actriz infantil de ‘Lilo y Stitch’ y ‘El aro’, a los 35 años**\
-`Dio vida a la valiente Lilo en la popular saga de películas animadas y puso los pelos de punta al público interpretando a la pequeña villana Samara en la película de terror ‘El aro’.`\
-https://www.nytimes.com/es/2026/06/18/espanol/muere-daveigh-chase-meningitis.html
 

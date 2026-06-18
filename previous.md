@@ -1,3 +1,19 @@
+**The Treasure House Fair Arrives at the Right Time in London**\
+`The Treasure House Fair returns for its fourth year, embracing accessibility and emotion over connoisseurship.`\
+https://www.nytimes.com/2026/06/18/arts/design/treasure-house-fair-london.html
+
+**Book Review: ‘Regime Change,’ by Maggie Haberman and Jonathan Swan**\
+`In “Regime Change,” two New York Times journalists offer a riveting chronicle of the weird fusion of reality and show business in the White House.`\
+https://www.nytimes.com/2026/06/18/books/review/regime-change-maggie-haberman-jonathan-swan.html
+
+**Un joven de 18 años muere al caer de un carruaje en Central Park**\
+`Después de que el conductor se bajara para tomar una foto a los pasajeros, el caballo se desbocó.`\
+https://www.nytimes.com/es/2026/06/18/espanol/estados-unidos/muere-turista-central-park-caballo.html
+
+**The Artist Cao Fei Weighs How We Can Preserve Our Humanity in the Age of A.I.**\
+`In a major show at the Kunstmuseum Basel, Gegenwart, the artist considers technology, humanity and how people can preserve “our human life” in the age of A.I.`\
+https://www.nytimes.com/2026/06/18/arts/design/cao-fei-kunstmuseum-basel.html
+
 **Books Our Editors Love This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/06/18/books/review/new-recommended-books.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/06/18/special-series/laufey-dissonance-drive.html
 **Muere Daveigh Chase, actriz infantil de ‘Lilo y Stitch’ y ‘El aro’, a los 35 años**\
 `Dio vida a la valiente Lilo en la popular saga de películas animadas y puso los pelos de punta al público interpretando a la pequeña villana Samara en la película de terror ‘El aro’.`\
 https://www.nytimes.com/es/2026/06/18/espanol/muere-daveigh-chase-meningitis.html
-
-**While You Were Sleeping, They Made Money Saving Spots at the Knicks Parade**\
-`High-demand events in New York City attract people willing to wait in line for hundreds of dollars. The Knicks parade is no different.`\
-https://www.nytimes.com/2026/06/18/nyregion/knicks-parade-route-nyc-airtasker.html
-
-**Gulf States Are Frustrated by Failure to Tackle Iran’s Missiles, Analysts Say**\
-`The preliminary U.S.-Iranian peace deal does not address Iranian rockets or drones, raising questions in the region about relying on Washington as a security guarantor.`\
-https://www.nytimes.com/2026/06/18/world/middleeast/gulf-states-us-iran-deal.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/nyregion/100000010976388/18vid-knicks-46920.html
-
-**Afghanistan Issues Ban on Smartphones for Civil Servants and Military**\
-`Those using their phones at work will see them smashed and face punishment, according to a written order from the Taliban government’s highest court.`\
-https://www.nytimes.com/2026/06/18/world/asia/afghanistan-taliban-smartphone-ban.html
 

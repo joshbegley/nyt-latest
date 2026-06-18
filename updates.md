@@ -1,3 +1,19 @@
+**The Treasure House Fair Arrives at the Right Time in London**\
+`The Treasure House Fair returns for its fourth year, embracing accessibility and emotion over connoisseurship.`\
+https://www.nytimes.com/2026/06/18/arts/design/treasure-house-fair-london.html
+
+**Book Review: ‘Regime Change,’ by Maggie Haberman and Jonathan Swan**\
+`In “Regime Change,” two New York Times journalists offer a riveting chronicle of the weird fusion of reality and show business in the White House.`\
+https://www.nytimes.com/2026/06/18/books/review/regime-change-maggie-haberman-jonathan-swan.html
+
+**Un joven de 18 años muere al caer de un carruaje en Central Park**\
+`Después de que el conductor se bajara para tomar una foto a los pasajeros, el caballo se desbocó.`\
+https://www.nytimes.com/es/2026/06/18/espanol/estados-unidos/muere-turista-central-park-caballo.html
+
+**The Artist Cao Fei Weighs How We Can Preserve Our Humanity in the Age of A.I.**\
+`In a major show at the Kunstmuseum Basel, Gegenwart, the artist considers technology, humanity and how people can preserve “our human life” in the age of A.I.`\
+https://www.nytimes.com/2026/06/18/arts/design/cao-fei-kunstmuseum-basel.html
+
 **Books Our Editors Love This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/06/18/books/review/new-recommended-books.html
