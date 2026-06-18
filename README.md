@@ -135,11 +135,11 @@ https://www.nytimes.com/2026/06/18/podcasts/gio-reyna-usmnt-uruguay-marcelo-biel
 https://www.nytimes.com/es/2026/06/18/espanol/mundo/trump-g7-europa.html
 
 **Iran War Live Updates: Vance Defends Iran Deal as Criticism Mounts**\
-`With an initial agreement signed by both sides, oil could soon flow again through the Strait of Hormuz. But prospects for a long-term deal on nuclear issues remained murky.`\
+`The vice president told reporters Iran’s nuclear program “has been completely destroyed” and its capacity to threaten its neighbors is “largely gone.”  He said Iran will only receive economic benefits if they comply with the terms.`\
 https://www.nytimes.com/live/2026/06/18/world/iran-war-trump-us-deal
 
 **Archbishop of Canterbury Apologizes for Church of England’s Role in Forced Adoptions**\
-`Tens of thousands of babies were taken from unmarried women and girls from the 1950s to the 1980s in England and Wales.`\
+`Tens of thousands of babies were taken from unmarried women and girls from the 1950s to the 1980s. The Church of England apologized for the “pain, shame and indignity” the practice inflicted.`\
 https://www.nytimes.com/2026/06/18/world/europe/church-england-apology-forced-adoptions-uk.html
 
 **How Iran Could Benefit From Its Deal With the U.S., and an A.I. Arms Race in Schools**\

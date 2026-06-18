@@ -1,3 +1,7 @@
+**Iran War Live Updates: Vance Defends Iran Deal as Criticism Mounts**\
+`With an initial agreement signed by both sides, oil could soon flow again through the Strait of Hormuz. But prospects for a long-term deal on nuclear issues remained murky.`\
+https://www.nytimes.com/live/2026/06/18/world/iran-war-trump-us-deal
+
 **London Hospital Worker Tried to Sell Catherine’s Medical Records, Reports Say**\
 `Britain’s data regulator said it had reprimanded a health worker for misusing sensitive information. The hospital said the person no longer worked there.`\
 https://www.nytimes.com/2026/06/18/world/europe/princess-kate-medical-records-sale-uk.html
