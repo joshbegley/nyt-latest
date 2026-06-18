@@ -19,7 +19,7 @@ https://www.nytimes.com/2026/06/18/us/politics/ice-warehouses-immigration.html
 https://www.nytimes.com/video/us/politics/100000010910839/erika-kirks-message-for-women-at-turning-point-usa.html
 
 **Education Department Lowers Student Loan Interest Rates for Two Years**\
-`The department, citing high default rates, is reducing interest rates on federal student loans by up to one percentage point for two years.`\
+`The department, citing high default rates, is reducing interest rates on federal student loans by up to 1 percentage point for two years.`\
 https://www.nytimes.com/2026/06/18/business/student-loans-interest-rate.html
 
 ****\
