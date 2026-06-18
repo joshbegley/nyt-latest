@@ -1,8 +1,12 @@
+**The ‘Rivalry’ Between Vance and Rubio**\
+`There’s no “intense rivalry behind the scenes” between JD Vance and Secretary of State Marco Rubio, the vice president argues on “Interesting Times.” The Opinion columnist Ross Douthat asks the vice president what happens to his political future if the Iran deal goes poorly.`\
+https://www.nytimes.com/video/opinion/100000010968360/the-rivalry-between-vance-and-rubio.html
+
 **A Small Election Could Change British Politics**\
 `Voters in the northern English district of Makerfield cast ballots on Thursday to choose their representative in Parliament, the outcome of which could lead to Prime Minister Keir Starmer’s ouster.`\
 https://www.nytimes.com/video/world/europe/100000010976921/england-makerfield-election.html
 
-**Knicks in Five. The City is Alive.**\
+**Knicks in Five. The City Is Alive.**\
 `New York City found a reason to party on Thursday, cheering, crying and climbing around Broadway to celebrate the Knicks N.B.A. championship.`\
 https://www.nytimes.com/2026/06/18/nyregion/knicks-championship-parade-celebration-nyc.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/18/technology/amazon-worker-retaliation-data-cen
 **Trump Says Apple to Buy Computer Chips from Intel**\
 `While neither company has publicly discussed the deal, it would be a big break for Intel, which sold a 10 percent stake to the U.S. government last year.`\
 https://www.nytimes.com/2026/06/18/technology/apple-intel-trump-chips.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/nyregion/100000010977103/18vid-knicks-96456.html
 
