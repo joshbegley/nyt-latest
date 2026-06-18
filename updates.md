@@ -1,3 +1,11 @@
+**Watch Live: Knicks City Hall Ceremony**\
+`New York City celebrates the Knicks’ N.B.A. championship with a ceremony at City Hall Plaza.`\
+https://www.nytimes.com/video/embedded/nyregion/100000010976505/watch-live-knicks-city-hall-ceremony.html
+
+**Iran War Live Updates: Vance Defends Iran Deal, With a Blunt Warning to Israel**\
+`The vice president delivered a rebuke to Israeli critics of the agreement, warning them not to alienate their most important ally.  “Donald J. Trump is the only head of state in the entire world sympathetic to the state of Israel at moment in this time,” he said.`\
+https://www.nytimes.com/live/2026/06/18/world/iran-war-trump-us-deal
+
 **Iran War Live Updates: Vance Defends Iran Deal, With a Blunt Warning to Israel**\
 `The vice president delivered a pointed warning to Israel, whose war in Lebanon presents an obstacle to the Iran peace agreement.  “Donald J. Trump is the only head of state in the entire world sympathetic to the state of Israel at moment in this time,” he said.`\
 https://www.nytimes.com/live/2026/06/18/world/iran-war-trump-us-deal

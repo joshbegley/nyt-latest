@@ -27,7 +27,7 @@ https://www.nytimes.com/es/2026/06/18/espanol/estados-unidos/trump-iran-acuerdo-
 https://www.nytimes.com/2026/06/18/briefing/today-in-short.html
 
 **Watch Live: Knicks City Hall Ceremony**\
-`New York City celebrates the Knicks’ N.B.A. championship win with a ceremony at City Hall Plaza.`\
+`New York City celebrates the Knicks’ N.B.A. championship with a ceremony at City Hall Plaza.`\
 https://www.nytimes.com/video/embedded/nyregion/100000010976505/watch-live-knicks-city-hall-ceremony.html
 
 **Many World Cup Fans Would Rather Skip the Hydration Breaks**\
@@ -191,7 +191,7 @@ https://www.nytimes.com/2026/06/18/podcasts/gio-reyna-usmnt-uruguay-marcelo-biel
 https://www.nytimes.com/es/2026/06/18/espanol/mundo/trump-g7-europa.html
 
 **Iran War Live Updates: Vance Defends Iran Deal, With a Blunt Warning to Israel**\
-`The vice president delivered a pointed warning to Israel, whose war in Lebanon presents an obstacle to the Iran peace agreement.  “Donald J. Trump is the only head of state in the entire world sympathetic to the state of Israel at moment in this time,” he said.`\
+`The vice president delivered a rebuke to Israeli critics of the agreement, warning them not to alienate their most important ally.  “Donald J. Trump is the only head of state in the entire world sympathetic to the state of Israel at moment in this time,” he said.`\
 https://www.nytimes.com/live/2026/06/18/world/iran-war-trump-us-deal
 
 **Archbishop of Canterbury Apologizes for Church of England’s Role in Forced Adoptions**\
