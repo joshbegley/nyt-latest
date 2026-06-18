@@ -1,3 +1,7 @@
+**Word of the Day: antipodes**\
+`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/06/18/learning/word-of-the-day-antipodes.html
+
 **Billionaire Tax Officially Has Enough Signatures for California Ballot**\
 `A proposed wealth tax on billionaires is headed to the ballot unless Gov. Gavin Newsom and other opponents reach a deal with backers to remove it.`\
 https://www.nytimes.com/2026/06/18/us/california-billionaire-tax-ballot.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/17/style/maximalism-aesthetic-hyper-goo.html
 **Teenagers vs. Social Media Bans**\
 `Australia barred children from social media in December. Since then, young people have found plenty of ways to skirt the measure.`\
 https://www.nytimes.com/2026/06/17/world/social-media-ban-iran-deal-congo-world-cup.html
-
-**Gilgo Beach Serial Killer Sentenced to Life Without Parole**\
-`The serial killer who admitted in April to murdering eight women in the so-called Gilgo Beach killings, was sentenced on Wednesday to life in prison.`\
-https://www.nytimes.com/video/us/100000010974398/gilgo-beach-serial-killer-sentencing.html
 

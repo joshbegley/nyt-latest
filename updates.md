@@ -1,3 +1,7 @@
+**Word of the Day: antipodes**\
+`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/06/18/learning/word-of-the-day-antipodes.html
+
 **Billionaire Tax Officially Has Enough Signatures for California Ballot**\
 `A proposed wealth tax on billionaires is headed to the ballot unless Gov. Gavin Newsom and other opponents reach a deal with backers to remove it.`\
 https://www.nytimes.com/2026/06/18/us/california-billionaire-tax-ballot.html
