@@ -1,3 +1,7 @@
+**Muere Daveigh Chase, actriz infantil de ‘Lilo y Stitch’ y ‘El aro’, a los 35 años**\
+`Dio vida a la valiente Lilo en la popular saga de películas animadas y puso los pelos de punta al público interpretando a la pequeña villana Samara en la película de terror ‘El aro’.`\
+https://www.nytimes.com/es/2026/06/18/espanol/muere-daveigh-chase-meningitis.html
+
 **While You Were Sleeping, They Made Money Saving Spots at the Knicks Parade**\
 `High-demand events in New York City attract people willing to wait in line for hundreds of dollars. The Knicks parade is no different.`\
 https://www.nytimes.com/2026/06/18/nyregion/knicks-parade-route-nyc-airtasker.html
@@ -47,7 +51,7 @@ https://www.nytimes.com/2026/06/18/business/uk-inflation-bank-of-england.html
 https://www.nytimes.com/2026/06/18/briefing/at-the-supreme-court.html
 
 **Israel Stunned by Trump’s Iran Deal**\
-`Analysts said the agreement accomplishes none of Israel’s war aims and leaves the country in worse shape on each of them.`\
+`The agreement accomplishes none of Israel’s stated war aims and arguably leaves the country in worse shape on each of them.`\
 https://www.nytimes.com/2026/06/18/world/middleeast/israel-iran-deal-reaction-netanyahu.html
 
 **‘The Last 12 Weeks’ Is Out Today. Here’s the Backstory.**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/18/magazine/goy-antisemitic-youth-slang.html
 **What to Know Before Buying SpaceX Stock, According to Financial Advisers**\
 `SpaceX has rapidly become one of the world’s most valuable companies. Even so, experts say investing in single stocks can be risky.`\
 https://www.nytimes.com/2026/06/18/business/spacex-stock-investing-advice.html
-
-**Spielberg Phones Home in ‘Disclosure Day’ | Cannonball with Wesley Morris**\
-`He once again uses aliens to explore being human.`\
-https://www.nytimes.com/2026/06/18/podcasts/spielberg-phones-home-in-disclosure-day.html
 

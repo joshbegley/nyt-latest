@@ -1,3 +1,11 @@
+**Muere Daveigh Chase, actriz infantil de ‘Lilo y Stitch’ y ‘El aro’, a los 35 años**\
+`Dio vida a la valiente Lilo en la popular saga de películas animadas y puso los pelos de punta al público interpretando a la pequeña villana Samara en la película de terror ‘El aro’.`\
+https://www.nytimes.com/es/2026/06/18/espanol/muere-daveigh-chase-meningitis.html
+
+**Israel Stunned by Trump’s Iran Deal**\
+`The agreement accomplishes none of Israel’s stated war aims and arguably leaves the country in worse shape on each of them.`\
+https://www.nytimes.com/2026/06/18/world/middleeast/israel-iran-deal-reaction-netanyahu.html
+
 **Live Updates: Knicks Fans Jam Parade Route to Celebrate Long-Awaited Champions**\
 `The sidewalk viewing pens along Broadway hit capacity hours before the 10 a.m. Eastern time start of the festivities. Fans have waited more than five decades to celebrate an N.B.A. champion.`\
 https://www.nytimes.com/live/2026/06/18/nyregion/knicks-parade
