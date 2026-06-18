@@ -1,3 +1,7 @@
+**Billionaire Tax Officially Has Enough Signatures for California Ballot**\
+`A proposed wealth tax on billionaires is headed to the ballot unless Gov. Gavin Newsom and other opponents reach a deal with backers to remove it.`\
+https://www.nytimes.com/2026/06/18/us/california-billionaire-tax-ballot.html
+
 **Trump’s Iran Deal Isn’t Perfect. It Doesn’t Need to Be.**\
 `The world doesn’t need a nuclear deal with Tehran.`\
 https://www.nytimes.com/2026/06/18/opinion/iran-nuclear-deal-trump.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/17/world/social-media-ban-iran-deal-congo-world-
 **Gilgo Beach Serial Killer Sentenced to Life Without Parole**\
 `The serial killer who admitted in April to murdering eight women in the so-called Gilgo Beach killings, was sentenced on Wednesday to life in prison.`\
 https://www.nytimes.com/video/us/100000010974398/gilgo-beach-serial-killer-sentencing.html
-
-**Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
-`Chairman Kevin M. Warsh vowed to start a “new chapter” in the Federal Reserve’s oversight of the U.S. economy.`\
-https://www.nytimes.com/live/2026/06/17/business/fed-meeting-warsh-interest-rates
 
