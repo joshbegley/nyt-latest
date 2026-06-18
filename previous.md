@@ -1,3 +1,7 @@
+**Three Medals of Honor to Be Awarded to Vietnam and Afghanistan Veterans**\
+`Two Force Recon Marines are set to receive the medal on Thursday for their actions more than 50 years ago, alongside an Army officer who showed exceptional bravery in 2012.`\
+https://www.nytimes.com/2026/06/18/us/politics/trump-medals-of-honor.html
+
 **These World Cup Tourists Loving American Food Aren’t All What They Seem**\
 `Visiting soccer fans enraptured by free refills and salsa have become the feel-good story of the summer, even when the facts don’t fit.`\
 https://www.nytimes.com/2026/06/18/dining/world-cup-tourists-food-videos.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/embedded/nyregion/100000010976505/watch-live-knick
 **Many World Cup Fans Would Rather Skip the Hydration Breaks**\
 `It’s hot in North America in June, but fans are griping that the breaks that have been added to each half are an excuse for the networks to show more ads.`\
 https://www.nytimes.com/2026/06/18/us/world-cup-hydration-breaks.html
-
-**Jose Alvarado the Photographer Looks Back on the Knicks’ Magic**\
-`While fans watched their team, José A. Alvarado Jr. watched the crowd.`\
-https://www.nytimes.com/2026/06/18/insider/knicks-ny-photos-nba-finals.html
 

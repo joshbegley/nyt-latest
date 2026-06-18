@@ -1,3 +1,7 @@
+**Three Medals of Honor to Be Awarded to Vietnam and Afghanistan Veterans**\
+`Two Force Recon Marines are set to receive the medal on Thursday for their actions more than 50 years ago, alongside an Army officer who showed exceptional bravery in 2012.`\
+https://www.nytimes.com/2026/06/18/us/politics/trump-medals-of-honor.html
+
 **These World Cup Tourists Loving American Food Aren’t All What They Seem**\
 `Visiting soccer fans enraptured by free refills and salsa have become the feel-good story of the summer, even when the facts don’t fit.`\
 https://www.nytimes.com/2026/06/18/dining/world-cup-tourists-food-videos.html
