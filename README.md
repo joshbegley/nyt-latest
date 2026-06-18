@@ -1,3 +1,7 @@
+**Iran War Live Updates: Oil Prices Fall as U.S.-Iran Deal Offers Hope for Shipping**\
+`With an initial agreement signed by both sides, oil could soon flow again through the Strait of Hormuz. But prospects for a long-term deal remained murky as talks on tougher issues loomed.`\
+https://www.nytimes.com/live/2026/06/18/world/iran-war-trump-us-deal
+
 **Archbishop of Canterbury Apologizes for Church of England’s Role in Forced Adoptions**\
 `Tens of thousands of babies were taken from unmarried women and girls from the 1950s to the 1980s in England and Wales.`\
 https://www.nytimes.com/2026/06/18/world/europe/church-england-apology-forced-adoptions-uk.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/18/movies/maddies-secret-review.html
 **‘Girls Like Girls’ Review: Hayley Kiyoko Brings Her Song to Life**\
 `The pop star Hayley Kiyoko turns her hit single and best-selling book into a coming-of-age romance.`\
 https://www.nytimes.com/2026/06/18/movies/girls-like-girls-review.html
-
-**‘Leviticus’ Review: The Shocking Shapes That Love Can Take**\
-`In this Australian chiller, a conversion therapy ritual unleashes shape-shifting ghouls that take the form of desired ones.`\
-https://www.nytimes.com/2026/06/18/movies/leviticus-review.html
 
