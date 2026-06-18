@@ -1,3 +1,7 @@
+**At the Supreme Court**\
+`(No description)`\
+https://www.nytimes.com/2026/06/18/briefing/at-the-supreme-court.html
+
 **‘The Last 12 Weeks’ Is Out Today. Here’s the Backstory.**\
 `Host Maurice Chammah introduces Serial Productions’ latest show.`\
 https://www.nytimes.com/2026/06/18/podcasts/the-last-12-weeks-is-out-today-heres-the-backstory.html
@@ -189,12 +193,4 @@ https://www.nytimes.com/2026/06/18/travel/airbnb-world-cup-cancellation.html
 **‘Unidentified’ Review: A High-Concept Murder Mystery**\
 `The director Haifaa Al-Mansour (“Wadjda”) concludes a trilogy about women resisting societal constraints in Saudi Arabia with a whodunit.`\
 https://www.nytimes.com/2026/06/18/movies/unidentified-review-saudi-arabia.html
-
-**‘Toy Story 5’ Review: The Machines Have Come for the Children**\
-`In this latest installment of the popular franchise, Woody and Buzz Lightyear are back and must contend with Bonnie’s mesmerizing new toy.`\
-https://www.nytimes.com/2026/06/18/movies/toy-story-5-review-the-machines-have-come-for-the-children.html
-
-**‘Rose of Nevada’ Review: Out of the Mists of Time and Back Again**\
-`In this richly textured film by Mark Jenkin, two men sign on to crew a ship whose ultimate destination is a place they could never have fathomed.`\
-https://www.nytimes.com/2026/06/18/movies/rose-of-nevada-review-mysterious-voyage.html
 

@@ -1,3 +1,7 @@
+**At the Supreme Court**\
+`(No description)`\
+https://www.nytimes.com/2026/06/18/briefing/at-the-supreme-court.html
+
 **‘The Last 12 Weeks’ Is Out Today. Here’s the Backstory.**\
 `Host Maurice Chammah introduces Serial Productions’ latest show.`\
 https://www.nytimes.com/2026/06/18/podcasts/the-last-12-weeks-is-out-today-heres-the-backstory.html
