@@ -1,3 +1,7 @@
+**McCarthy Aide’s Tell-All Book Recounts Trump’s Expletive-Filled Threats to G.O.P.**\
+`A new book by John Leganski, the floor manager for former Speaker Kevin McCarthy, offers a rare behind-the-scenes account of how President Trump wields his power through threats and intimidation.`\
+https://www.nytimes.com/2026/06/18/us/politics/mccarthy-trump-speaker-book.html
+
 **Centrist Democrat Concedes to Socialist in D.C. Mayoral Primary**\
 `President Trump’s grip on the capital loomed over the race, and he threatened to tighten it if Councilwoman Janeese Lewis George is elected. The Associated Press has not called the race.`\
 https://www.nytimes.com/2026/06/18/us/elections/washington-mayoral-primary.html
@@ -135,7 +139,7 @@ https://www.nytimes.com/2026/06/18/crosswords/strands-sidekick-838.html
 https://www.nytimes.com/2026/06/18/technology/telegram-ban-india.html
 
 **Live Updates: Knicks Fans Jam Parade Route to Celebrate Long-Awaited Champions**\
-`The sidewalk viewing pens along Broadway hit capacity hours before the start of the festivities. Fans have waited more than five decades to celebrate an N.B.A. champion.`\
+`The N.B.A. championship team is riding up Broadway through packed sidewalks and streets that hit capacity hours before the parade began. Fans have waited more than five decades to celebrate a title.`\
 https://www.nytimes.com/live/2026/06/18/nyregion/knicks-parade
 
 **Do Sports Owners Win Championships?**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/18/business/spacex-retail-investors.html
 **Corrections: June 18, 2026**\
 `Corrections that appeared in print on Thursday, June 18, 2026.`\
 https://www.nytimes.com/2026/06/18/pageoneplus/corrections-june-18-2026.html
-
-**Why Extreme Sports Enthusiasts Keep Jumping After a String of Tragedies**\
-`Often considered thrill seekers looking for the next adrenaline hit, participants say they’re actually drawn to control and a sense of time slowing down.`\
-https://www.nytimes.com/2026/06/18/us/extreme-sports-deaths.html
 

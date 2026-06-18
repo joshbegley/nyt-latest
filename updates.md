@@ -1,3 +1,7 @@
+**Centrist Democrat Concedes to Socialist in D.C. Mayoral Primary**\
+`President Trump’s grip on the capital loomed over the race, and he threatened to tighten it if Councilwoman Janeese Lewis George is elected. The Associated Press has not called the race.`\
+https://www.nytimes.com/2026/06/18/us/elections/washington-mayoral-primary.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/nyregion/100000010976539/18vid-knicks-7813.html
