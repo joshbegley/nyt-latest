@@ -1,3 +1,7 @@
+**El Mundial es una fiesta global que se comparte con los vecinos**\
+`Tres autores de EE. UU., México y Canadá escriben sobre lo que el torneo representa para ellos y para sus países.`\
+https://www.nytimes.com/es/2026/06/18/espanol/opinion/mundial-mexico-estados-unidos-canada.html
+
 **Jean Houston, ‘Midwife of Souls’ Who Advised Hillary Clinton, Dies at 89**\
 `The author of books like “The Possible Human,” she held workshops that drew on mythology, psychology and the experiential ethos of Esalen. But she refused to be called a guru.`\
 https://www.nytimes.com/2026/06/18/science/jean-houston-dead.html
@@ -10,13 +14,13 @@ https://www.nytimes.com/2026/06/18/business/college-graduate-living-with-parents
 `The first lady and the mayor showed up for the celebration in style.`\
 https://www.nytimes.com/2026/06/18/style/rama-duwaji-knicks-parade-mamdani.html
 
-**25 preguntas para conocer mejor a papá**\
-`Este Día del Padre, renueva tus temas de conversación y conoce un poco más a una de las figuras más importantes de tu vida.`\
-https://www.nytimes.com/es/interactive/2026/06/18/espanol/como-hablar-papa-dia-padre.html
-
 **Father’s Day: 25 Questions to Bring You Closer to Your Dad**\
 `This Father’s Day, open up a new channel of communication.`\
 https://www.nytimes.com/interactive/2026/06/18/well/family/fathers-day-questions.html
+
+**25 preguntas para conocer mejor a papá**\
+`Este Día del Padre, renueva tus temas de conversación y conoce un poco más a una de las figuras más importantes de tu vida.`\
+https://www.nytimes.com/es/interactive/2026/06/18/espanol/como-hablar-papa-dia-padre.html
 
 **One Knicks Jersey Was Not Like the Others at City Hall**\
 `The Knicks retired No. 33, the number that belonged to Patrick Ewing, in 2003. But a jersey with the number was featured at the City Hall ceremony on Thursday.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/06/18/espanol/estados-unidos/muere-turista-centr
 **The Artist Cao Fei Weighs How We Can Preserve Our Humanity in the Age of A.I.**\
 `In a major show at the Kunstmuseum Basel, Gegenwart, the artist considers technology, humanity and how people can preserve “our human life” in the age of A.I.`\
 https://www.nytimes.com/2026/06/18/arts/design/cao-fei-kunstmuseum-basel.html
-
-**Books Our Editors Love This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://www.nytimes.com/2026/06/18/books/review/new-recommended-books.html
 

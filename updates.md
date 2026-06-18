@@ -1,3 +1,15 @@
+**Jean Houston, ‘Midwife of Souls’ Who Advised Hillary Clinton, Dies at 89**\
+`The author of books like “The Possible Human,” she held workshops that drew on mythology, psychology and the experiential ethos of Esalen. But she refused to be called a guru.`\
+https://www.nytimes.com/2026/06/18/science/jean-houston-dead.html
+
+**Are You a Recent College Graduate Who Moved Back Home? We Want to Hear From You.**\
+`If you lived with your parents for nine months or more after graduation, please tell us how you came to the decision and whether the job market influenced your thinking.`\
+https://www.nytimes.com/2026/06/18/business/college-graduate-living-with-parents.html
+
+**25 preguntas para conocer mejor a papá**\
+`Este Día del Padre, renueva tus temas de conversación y conoce un poco más a una de las figuras más importantes de tu vida.`\
+https://www.nytimes.com/es/interactive/2026/06/18/espanol/como-hablar-papa-dia-padre.html
+
 **Rama Duwaji Had the Winning Look at the Knicks Parade**\
 `The first lady and the mayor showed up for the celebration in style.`\
 https://www.nytimes.com/2026/06/18/style/rama-duwaji-knicks-parade-mamdani.html
