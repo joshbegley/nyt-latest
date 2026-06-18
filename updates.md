@@ -1,3 +1,7 @@
+**Knicks in Five. The City Is Alive.**\
+`New York City found a reason to party on Thursday, cheering, crying and climbing around Broadway to celebrate the Knicks’ N.B.A. championship.`\
+https://www.nytimes.com/2026/06/18/nyregion/knicks-championship-parade-celebration-nyc.html
+
 **3 Books to Read if You Loved ‘The Road’**\
 `The best-selling author Ryan Holiday joined the “Book Review” podcast to discuss “The Road,” by Cormac McCarthy. This book was one of Holiday’s picks for The New York Times’s “100 Best Books of the 21st Century,” and made it onto the list at no. 13. If you like McCarthy’s postapocalyptic novel, Holiday shares recommendations for books to read next. Tap the link in our bio to listen to the full conversation on the “Book Review” podcast.`\
 https://www.nytimes.com/video/podcasts/100000010978149/3-books-to-read-if-you-loved-the-road.html
