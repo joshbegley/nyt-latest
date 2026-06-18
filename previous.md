@@ -1,3 +1,7 @@
+**Highlights From the Las Culturistas Culture Awards Hosted by Bowen Yang and Matt Rogers**\
+`The comedians Bowen Yang and Matt Rogers honored the nooks and crannies of pop culture at the annual awards show.`\
+https://www.nytimes.com/2026/06/17/style/las-culturistas-culture-awards-bowen-yang-matt-rogers.html
+
 **Knicks Accept a White House Invitation to Celebrate Title, Owner Says**\
 `James Dolan said he was “very proud” to bring his championship team to Washington. It would be the first N.B.A. team to visit the White House with Trump as president.`\
 https://www.nytimes.com/2026/06/17/nyregion/knicks-white-house-visit.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/17/us/politics/ftc-wpath-transgender-medical-tre
 **Mystikal, Louisiana Rapper, Sentenced to 20 Years in Rape Case**\
 `The Grammy-nominated musician pleaded guilty to third-degree rape after a woman told the police she was beaten and assaulted at his home in 2022.`\
 https://www.nytimes.com/2026/06/17/arts/music/mystikal-rape-prison-sentence.html
-
-**New Plan Scales Back C.D.C.’s Work on Diseases Abroad**\
-`The State Department is taking over much of the control of global health initiatives, for which critics say the department does not have the expertise.`\
-https://www.nytimes.com/2026/06/17/health/pepfar-cdc-cuts.html
 
 **Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
 `Chairman Kevin M. Warsh vowed to start a “new chapter” in the Federal Reserve’s oversight of the U.S. economy.`\
