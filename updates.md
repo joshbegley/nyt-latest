@@ -1,3 +1,7 @@
+**El Mundial es una fiesta global que se comparte con los vecinos**\
+`Tres autores de EE. UU., México y Canadá escriben sobre lo que el torneo representa para ellos y para sus países.`\
+https://www.nytimes.com/es/2026/06/18/espanol/opinion/mundial-mexico-estados-unidos-canada.html
+
 **Jean Houston, ‘Midwife of Souls’ Who Advised Hillary Clinton, Dies at 89**\
 `The author of books like “The Possible Human,” she held workshops that drew on mythology, psychology and the experiential ethos of Esalen. But she refused to be called a guru.`\
 https://www.nytimes.com/2026/06/18/science/jean-houston-dead.html
