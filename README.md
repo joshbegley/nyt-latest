@@ -1,3 +1,15 @@
+**3 Books to Read if You Loved ‘The Road’**\
+`The best-selling author Ryan Holiday joined the “Book Review” podcast to discuss “The Road,” by Cormac McCarthy. This book was one of Holiday’s picks for The New York Times’s “100 Best Books of the 21st Century,” and made it onto the list at no. 13. If you like McCarthy’s postapocalyptic novel, Holiday shares recommendations for books to read next. Tap the link in our bio to listen to the full conversation on the “Book Review” podcast.`\
+https://www.nytimes.com/video/podcasts/100000010978149/3-books-to-read-if-you-loved-the-road.html
+
+**Organiza una salida noventera**\
+`Tu teléfono no está invitado`\
+https://www.nytimes.com/es/interactive/2026/06/18/espanol/como-organizar-reunion-dejar-celular.html
+
+**Host a '90s-Style Hangout**\
+`Your phone is not invited.`\
+https://www.nytimes.com/interactive/2026/06/18/well/summer-challenge-90s-nostalgia.html
+
 **Renato Rosaldo, Anthropologist Who Disrupted His Discipline, Dies at 85**\
 `After his wife’s death while doing fieldwork, he rejected writing as a detached observer, setting off a profound shift in cultural anthropology.`\
 https://www.nytimes.com/2026/06/18/science/renato-rosaldo-dead.html
@@ -82,7 +94,7 @@ https://www.nytimes.com/2026/06/18/special-series/rasmus-munk-food-emotions.html
 `Low fertility rates are a lagging indicator, the final outcome of a string of social shifts.`\
 https://www.nytimes.com/2026/06/18/opinion/iphones-birthrate-decline.html
 
-**Texas Report Finds That 39 Adults Could Have Helped Girls at Camp Mystic**\
+**Report Tallies 39 Adults Who Could Have Helped Save Girls at Camp Mystic**\
 `The finding was part of a growing case against the camp’s leadership, which state investigators said did not organize an evacuation in time “despite ample opportunity.”`\
 https://www.nytimes.com/2026/06/18/us/texas-flooding-evacuation-camp-mystic.html
 
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/18/business/student-loans-interest-rate.html
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/nyregion/100000010977349/18vid-knicks-85924.html
-
-**Trump and Iran: Mission Not Accomplished**\
-`Readers react to developments in the war with Iran. Also: Fears about gene editing, a threat to U.S. science; a call to Black voters; reading books.`\
-https://www.nytimes.com/2026/06/18/opinion/trump-iran-war.html
-
-**The Major Oak, Ancient Tree of Robin Hood Legend, Has Died**\
-`The Major Oak in the Sherwood Forest was between 800 and 1,200 years old. It succumbed to a combination of over-tourism, climate change and misguided efforts to save it.`\
-https://www.nytimes.com/2026/06/18/world/europe/major-oak-tree-dies.html
-
-**Iran and the U.S. Have an Understanding. Will It Lead to a Deal?**\
-`Europe and the larger world will be watching carefully to see if talks produce a lasting agreement on Iran’s nuclear program and the Strait of Hormuz.`\
-https://www.nytimes.com/2026/06/18/world/europe/iran-united-states-deal-israel.html
 
