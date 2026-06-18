@@ -1,3 +1,7 @@
+**Team Medic Recounts Iran’s ‘Stressful’ World Cup Debut in L.A.**\
+`A member of Iran’s medical team says the team endured delays, multiple security searches and a rushed exit, frustrating players and officials.`\
+https://www.nytimes.com/2026/06/17/world/middleeast/iran-world-cup-united-states.html
+
 **Highlights From the Las Culturistas Culture Awards Hosted by Bowen Yang and Matt Rogers**\
 `The comedians Bowen Yang and Matt Rogers honored the nooks and crannies of pop culture at the annual awards show.`\
 https://www.nytimes.com/2026/06/17/style/las-culturistas-culture-awards-bowen-yang-matt-rogers.html
