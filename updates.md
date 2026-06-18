@@ -1,3 +1,7 @@
+**Iran War Live Updates: Vance Defends Iran Deal, With a Blunt Warning to Israel**\
+`The vice president delivered a pointed warning to Israel, whose war in Lebanon presents an obstacle to the Iran peace agreement.  “Donald J. Trump is the only head of state in the entire world sympathetic to the state of Israel at moment in this time,” he said.`\
+https://www.nytimes.com/live/2026/06/18/world/iran-war-trump-us-deal
+
 **Gary Shteyngart, a Russian-Born Author, Tours Thomas Jefferson’s Home With His Son**\
 `I emigrated from the Soviet Union decades ago, and recently toured Thomas Jefferson’s home with my American-born history-buff son.`\
 https://www.nytimes.com/2026/06/18/travel/novelist-immigrant-thomas-jefferson-home-son.html
