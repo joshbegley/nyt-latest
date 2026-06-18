@@ -1,3 +1,11 @@
+**Teen-aged Suspect in U.S. Consulate Shooting Is Arrested at Toronto Airport**\
+`The teen had fled from the police during a raid at an apartment building that set off a shootout, which left an officer dead and another suspect injured.`\
+https://www.nytimes.com/2026/06/18/world/canada/toronto-police-shooting-suspect-arrest.html
+
+**Education Department Lowers Student Loan Interest Rates for Two Years**\
+`The department, citing high default rates, is reducing interest rates on federal student loans by up to 1 percentage point for two years.`\
+https://www.nytimes.com/2026/06/18/business/student-loans-interest-rate.html
+
 **Vegetarian Skillet Recipes for Summer**\
 `You should, too. Then keep the skillet on the stove all season long for white bean shakshuka, chickpea Parmesan, verdant orzo and more.`\
 https://www.nytimes.com/2026/06/18/dining/im-slinging-lasagna-in-my-skillet-this-summer.html

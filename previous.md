@@ -1,3 +1,7 @@
+**Teen-aged Suspect in U.S. Consulate Shooting Is Arrested at Toronto Airport**\
+`The teen had fled from the police during a raid at an apartment building that set off a shootout, which left an officer dead and another suspect injured.`\
+https://www.nytimes.com/2026/06/18/world/canada/toronto-police-shooting-suspect-arrest.html
+
 **Vegetarian Skillet Recipes for Summer**\
 `You should, too. Then keep the skillet on the stove all season long for white bean shakshuka, chickpea Parmesan, verdant orzo and more.`\
 https://www.nytimes.com/2026/06/18/dining/im-slinging-lasagna-in-my-skillet-this-summer.html
@@ -15,7 +19,7 @@ https://www.nytimes.com/2026/06/18/us/politics/ice-warehouses-immigration.html
 https://www.nytimes.com/video/us/politics/100000010910839/erika-kirks-message-for-women-at-turning-point-usa.html
 
 **Education Department Lowers Student Loan Interest Rates for Two Years**\
-`The department, citing high default rates, is reducing interest rates on federal student loans by up to one percentage point for two years.`\
+`The department, citing high default rates, is reducing interest rates on federal student loans by up to 1 percentage point for two years.`\
 https://www.nytimes.com/2026/06/18/business/student-loans-interest-rate.html
 
 ****\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/18/business/dealbook/warsh-fed-rates.html
 **Hegseth Berates NATO Allies for ‘Shameful’ Response to U.S. War in Iran**\
 `Defense Secretary Pete Hegseth used a meeting of NATO defense ministers to continue the Trump administration’s sharp criticism of European military policies.`\
 https://www.nytimes.com/2026/06/18/world/middleeast/hegseth-nato-us-iran-war-trump.html
-
-**Inflation Will Linger Despite U.S.-Iran Deal, British Officials Warn**\
-`Bank of England policymakers kept interest rates on hold, saying the impact of the war in Iran was still a major source of uncertainty for the economy.`\
-https://www.nytimes.com/2026/06/18/business/uk-inflation-bank-of-england.html
 
