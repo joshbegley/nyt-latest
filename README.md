@@ -1,3 +1,7 @@
+**‘The Last 12 Weeks’ Is Out Today. Here’s the Backstory.**\
+`Host Maurice Chammah introduces Serial Productions’ latest show.`\
+https://www.nytimes.com/2026/06/18/podcasts/the-last-12-weeks-is-out-today-heres-the-backstory.html
+
 **Gio Reyna’s Journey Back to USMNT, and Uruguay’s Enigmatic Coach, Marcelo Bielsa**\
 `Has the midfielder redeemed himself?`\
 https://www.nytimes.com/2026/06/18/podcasts/gio-reyna-usmnt-uruguay-marcelo-bielsa.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/18/movies/toy-story-5-review-the-machines-have-c
 **‘Rose of Nevada’ Review: Out of the Mists of Time and Back Again**\
 `In this richly textured film by Mark Jenkin, two men sign on to crew a ship whose ultimate destination is a place they could never have fathomed.`\
 https://www.nytimes.com/2026/06/18/movies/rose-of-nevada-review-mysterious-voyage.html
-
-**This Season of ‘Love Island U.S.A.’ Is Giving Fans the Ick**\
-`Contestants on the hit reality dating show are participating in scenarios racy enough to turn some viewers off.`\
-https://www.nytimes.com/2026/06/18/arts/television/love-island-season-8-challenges.html
 
