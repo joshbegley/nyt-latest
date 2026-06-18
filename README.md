@@ -1,3 +1,7 @@
+**Gunmen Attack a Major Airport in Niger**\
+`An early morning assault on Niamey airport was the second such attack in the West African country this year.`\
+https://www.nytimes.com/2026/06/18/world/africa/niger-armed-attack-airport.html
+
 **Netflix Cancels Duffer Brothers’ ‘The Boroughs’ After One Season**\
 `The Duffer brothers, who produced the series and created “Stranger Things,” recently left the streamer for Paramount.`\
 https://www.nytimes.com/2026/06/18/arts/television/boroughs-canceled-duffer-brothers-netflix.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/18/us/politics/supreme-court-drugs-guns.html
 **Tech Workers Maxed Out Their A.I. Use. Now They’re Trying to Minimize It.**\
 `Artificial intelligence is expensive to use, many companies discovered. That has led to a new era of saving costs.`\
 https://www.nytimes.com/2026/06/18/technology/ai-token-minimizing.html
-
-**Make Sure Your Business Is Built to Last**\
-`In Part One of a two-part series, Michael Cherny, head of Citizens Wealth Advisors, addresses the need for business leaders to consider succession planning to maintain the continuity of their businesses while safeguarding their legacy.`\
-http://brandedplaylist.nytimes.com/video/embedded/t-brand/100000010976569/make-sure-your-business-is-built-to-last.html
 
