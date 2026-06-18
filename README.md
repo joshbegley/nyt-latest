@@ -1,3 +1,7 @@
+**Stephen Colbert Nods to Obama’s Tan Suit at Presidential Center Opening**\
+`Celebrity guests paid winking homage to President Obama’s notorious tan suit.`\
+https://www.nytimes.com/2026/06/18/style/obama-tan-suit-stephen-colbert.html
+
 **Representative Tom Kean to Return to Congress in 12 Days, Aide Says**\
 `Mr. Kean has missed three months of votes in Washington and been absent from the campaign trail in his New Jersey district because of an unexplained health condition.`\
 https://www.nytimes.com/2026/06/18/nyregion/representative-tom-kean-return-to-congress.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/embedded/nyregion/100000010977450/18vid-knicks-616
 **19-Year-Old Suspect in Consulate Shooting Arrested at Toronto Airport**\
 `The teen had fled from the police during a raid at an apartment building that set off a shootout, which left an officer dead and another suspect injured.`\
 https://www.nytimes.com/2026/06/18/world/canada/toronto-police-shooting-suspect-arrest.html
-
-**Vegetarian Skillet Recipes for Summer**\
-`You should, too. Then keep the skillet on the stove all season long for white bean shakshuka, chickpea Parmesan, verdant orzo and more.`\
-https://www.nytimes.com/2026/06/18/dining/im-slinging-lasagna-in-my-skillet-this-summer.html
 
