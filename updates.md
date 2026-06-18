@@ -1,3 +1,11 @@
+**Gary Shteyngart, a Russian-Born Author, Tours Thomas Jefferson’s Home With His Son**\
+`I emigrated from the Soviet Union decades ago, and recently toured Thomas Jefferson’s home with my American-born history-buff son.`\
+https://www.nytimes.com/2026/06/18/travel/novelist-immigrant-thomas-jefferson-home-son.html
+
+**Iran War Live Updates: Vance Defends Iran Deal as Criticism Mounts**\
+`The vice president claimed Iran’s nuclear program “has been completely destroyed.”  He contended Iran only receive economic benefits if their leaders “change their behavior,” even though the deal lifts sanctions on oil exports right away.`\
+https://www.nytimes.com/live/2026/06/18/world/iran-war-trump-us-deal
+
 **The Major Oak, Ancient Tree of Robin Hood Legend, Has Died**\
 `The Major Oak in the Sherwood Forest was between 800 and 1,200 years old. It succumbed to a combination of over-tourism, climate change and misguided efforts to save it.`\
 https://www.nytimes.com/2026/06/18/world/europe/major-oak-tree-dies.html

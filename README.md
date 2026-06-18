@@ -190,8 +190,8 @@ https://www.nytimes.com/2026/06/18/podcasts/gio-reyna-usmnt-uruguay-marcelo-biel
 `Sus declaraciones incendiarias de última hora fueron un recordatorio de lo que puede pasar cuando su estilo sin filtros e improvisado choca con el ritmo diplomático y la meticulosa coreografía de una cumbre internacional.`\
 https://www.nytimes.com/es/2026/06/18/espanol/mundo/trump-g7-europa.html
 
-**Iran War Live Updates: Vance Defends Iran Deal as Criticism Mounts**\
-`The vice president claimed Iran’s nuclear program “has been completely destroyed.”  He contended Iran only receive economic benefits if their leaders “change their behavior,” even though the deal lifts sanctions on oil exports right away.`\
+**Iran War Live Updates: Vance Defends Iran Deal, With a Blunt Warning to Israel**\
+`The vice president delivered a pointed warning to Israel, whose war in Lebanon presents an obstacle to the Iran peace agreement.  “Donald J. Trump is the only head of state in the entire world sympathetic to the state of Israel at moment in this time,” he said.`\
 https://www.nytimes.com/live/2026/06/18/world/iran-war-trump-us-deal
 
 **Archbishop of Canterbury Apologizes for Church of England’s Role in Forced Adoptions**\
