@@ -1,3 +1,7 @@
+**Gulf States Are Frustrated by Failure to Tackle Iran’s Missiles, Analysts Say**\
+`The preliminary U.S.-Iranian peace deal does not address Iranian rockets or drones, raising questions in the region about relying on Washington as a security guarantor.`\
+https://www.nytimes.com/2026/06/18/world/middleeast/gulf-states-us-iran-deal.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/nyregion/100000010976388/18vid-knicks-46920.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/18/podcasts/spielberg-phones-home-in-disclosure-
 **Spielberg Phones Home in ‘Disclosure Day’**\
 `Wesley Morris and the film curator, Eric Hynes, share thoughts on Steven Spielberg’s latest film, “Disclosure Day.” Together, they consider the evolution of the filmmaker’s canon.`\
 https://www.nytimes.com/video/podcasts/100000010969497/spielberg-phones-home-in-disclosure-day.html
-
-**New Super PAC, the Guardrails Alliance, Aims to Rally Tech Workers to Help Limit A.I.**\
-`The Guardrails Alliance, which has raised $5 million, is positioning itself as a populist effort that will take on the pro-A.I. interests trying to influence this year’s elections.`\
-https://www.nytimes.com/2026/06/18/technology/ai-super-pac-guardrails-alliance.html
 
