@@ -1,3 +1,15 @@
+**Central Park Rides Halted After Fatal Fall From Horse-Drawn Carriage**\
+`An 18-year-old was ejected after a carriage horse bolted on Wednesday as the driver took a photograph. It was unclear how long the voluntary shutdown might last.`\
+https://www.nytimes.com/2026/06/18/nyregion/horse-carriage-central-park-death.html
+
+**James Talarico Attacks Ken Paxton Over Child Abuse Case**\
+`The case, which resulted in a short jail sentence despite years of alleged abuse, has drawn outcry in Texas. So have the attempts to politicize it.`\
+https://www.nytimes.com/2026/06/18/us/talarico-paxton-child-sex-abuse-case.html
+
+**Is This Spielberg’s Greatest Era?**\
+`Wesley Morris invites his friend, the film curator Eric Hynes, to discuss “Disclosure Day” and the evolution of Steven Spielberg’s films.`\
+https://www.nytimes.com/video/podcasts/100000010970997/is-this-spielbergs-greatest-era.html
+
 **Vance’s Defense of Iran Deal Rests on Vague and Misleading Claims**\
 `The vice president said the United States had leverage to dictate the outcome of the next round of negotiations. But he claimed incorrectly that Iran got no new benefit from the lifting of oil sanctions.`\
 https://www.nytimes.com/2026/06/18/us/politics/vances-iran-deal-misleading-claims.html
