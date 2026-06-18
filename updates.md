@@ -1,3 +1,11 @@
+**Tornadoes Reported in Wisconsin and Illinois as Violent Storms Sweep the Midwest**\
+`The National Weather Service issued several of its highest-level tornado alerts on Wednesday night.`\
+https://www.nytimes.com/2026/06/17/weather/tornadoes-news-illinois-wisconsin-indiana.html
+
+**Boyle Heights Warehouse Fire Prompts Thousands of L.A. Residents to Shelter in Place**\
+`Heavy black smoke was visible across much of Los Angeles as flames tore through a nearly 500,000-square-foot building just east of downtown.`\
+https://www.nytimes.com/2026/06/17/us/los-angeles-warehouse-fire-boyle-heights.html
+
 **Warsh Makes His Case With Jargon, and a Penchant for Detail**\
 `The Federal Reserve’s new chairman held a press conference where he bantered with reporters and laid out a vision for change at the central bank.`\
 https://www.nytimes.com/2026/06/17/business/economy/warsh-fed-chairman-first-press-conference.html
