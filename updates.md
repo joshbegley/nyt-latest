@@ -1,3 +1,7 @@
+**Vance Issues Warning to Israeli Critics of U.S.-Iran Peace Agreement**\
+`Vice President JD Vance issued a warning to members of Israel’s government who were critical of the U.S.-Iran peace agreement on Thursday, cautioning them not to alienate their most important ally.`\
+https://www.nytimes.com/video/us/politics/100000010977593/vances-iran-deal-israel.html
+
 **Central Park Rides Halted After Fatal Fall From Horse-Drawn Carriage**\
 `An 18-year-old was ejected after a carriage horse bolted on Wednesday as the driver took a photograph. It was unclear how long the voluntary shutdown might last.`\
 https://www.nytimes.com/2026/06/18/nyregion/horse-carriage-central-park-death.html

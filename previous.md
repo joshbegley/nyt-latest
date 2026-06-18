@@ -1,3 +1,7 @@
+**Vance Issues Warning to Israeli Critics of U.S.-Iran Peace Agreement**\
+`Vice President JD Vance issued a warning to members of Israel’s government who were critical of the U.S.-Iran peace agreement on Thursday, cautioning them not to alienate their most important ally.`\
+https://www.nytimes.com/video/us/politics/100000010977593/vances-iran-deal-israel.html
+
 **Central Park Rides Halted After Fatal Fall From Horse-Drawn Carriage**\
 `An 18-year-old was ejected after a carriage horse bolted on Wednesday as the driver took a photograph. It was unclear how long the voluntary shutdown might last.`\
 https://www.nytimes.com/2026/06/18/nyregion/horse-carriage-central-park-death.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/18/arts/danny-simmons-dead.html
 **Man Charged With Hate Crime Over Burning Cross in Chicago Park**\
 `A former university student, Merlin Lu, 21, has claimed that he set the cross on fire in Grant Park to protest the Trump administration, not as an act of racism.`\
 https://www.nytimes.com/2026/06/18/us/chicago-burning-cross-arrest.html
-
-**Wordle’s Hard Mode Is Actually Easier, 730 Million Games Show**\
-`As the game turns 5 years old, the data reveals that while standard-mode players have much more freedom, they’re not making the most of it.`\
-https://www.nytimes.com/2026/06/18/upshot/wordle-hard-mode.html
 
