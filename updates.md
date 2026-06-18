@@ -1,3 +1,7 @@
+**Trump Signs Preliminary Deal to End the War With Iran**\
+`The White House confirmed that President Trump signed the memorandum of understanding between the United States and Iran on Wednesday at the Palace of Versailles.`\
+https://www.nytimes.com/video/world/middleeast/100000010975931/trump-signs-iran-deal.html
+
 **This Is Not a Grand Bargain With Iran. Good.**\
 `The world doesn’t need a nuclear deal with Tehran.`\
 https://www.nytimes.com/2026/06/18/opinion/iran-nuclear-deal-trump.html
