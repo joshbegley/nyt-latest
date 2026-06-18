@@ -1,3 +1,11 @@
+**Ukraine Strikes Moscow Refinery in Large-Scale Drone Attack**\
+`The attack, which shut down the city’s airports for several hours, appeared to be the biggest wave of drone strikes on Russia’s capital since the start of the war.`\
+https://www.nytimes.com/2026/06/18/world/europe/moscow-ukraine-drone-attack-fire.html
+
+**Cómo reclamar la ciudadanía canadiense gracias a un abuelo o bisabuelo**\
+`Un fallo judicial de diciembre abrió la puerta a miles de descendientes de canadienses. Esto es lo que hay que saber sobre certificados de bautismo, archivos parroquiales y tiempos de espera.`\
+https://www.nytimes.com/es/2026/06/18/espanol/mundo/como-reclamar-ciudadania-canadiense.html
+
 **Trump and Netanyahu Have Really Stepped in It Now**\
 `America and Israel have snatched defeat from victory.`\
 https://www.nytimes.com/2026/06/18/opinion/israel-america-iran-trump-vance.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/18/movies/the-devil-queen-review.html
 **The Russian Film Director Who Chooses Moments to Challenge Putin**\
 `Alexander Sokurov has questioned the Russian president about government repression but he is still controversial among his country’s exiles.`\
 https://www.nytimes.com/2026/06/18/world/europe/alexander-sokurov-russia-director.html
-
-**Are Your Ancestors Canadian? Here’s What to Know About Becoming a Citizen.**\
-`Six months after Canada expanded its citizenship eligibility, requests are flooding in for archival records. The documents are vital for proving ties to the country.`\
-https://www.nytimes.com/2026/06/18/world/canada/canadian-citizenship-guide.html
-
-**Barack Obama Presidential Center Opens in Chicago**\
-`Today’s opening is expected to draw four former presidents, as well as Bruce Springsteen, Bono and Jennifer Hudson. Chicago has seen years of planning and legal fights.`\
-https://www.nytimes.com/2026/06/18/us/obama-presidential-center-chicago.html
 
