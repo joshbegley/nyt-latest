@@ -30,7 +30,7 @@ https://www.nytimes.com/2026/06/17/weather/tropical-storm-arthur-how-much-rain.h
 `Federal prosecutors said the man had refused to roll down his window when Immigration and Customs Enforcement officers in New Jersey told him to stop.`\
 https://www.nytimes.com/2026/06/17/nyregion/ice-agent-hit-vehicle-nj.html
 
-**Man Dies in Fall From Horse Carriage in Central Park**\
+**Man Fatally Injured in Fall From Horse Carriage in Central Park**\
 `The horse bolted after the driver stepped out to take a photo of the passengers, the carriage drivers’ union said, and an 18-year-old tourist from India fell from the driverless carriage.`\
 https://www.nytimes.com/2026/06/17/nyregion/horse-carriage-central-park-injury.html
 
