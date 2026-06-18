@@ -1,3 +1,11 @@
+**Books Our Editors Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/06/18/books/review/new-recommended-books.html
+
+**Takeaways From ‘Regime Change,’ Maggie Haberman and Jonathan Swan’s Book on Trump’s White House**\
+`The book by Maggie Haberman and Jonathan Swan of The New York Times, “Regime Change,” reveals a host of details and surprising exchanges as President Trump pushed to drastically expand his power.`\
+https://www.nytimes.com/2026/06/18/us/politics/trump-regime-change-book-haberman-swan.html
+
 **The Mexican Artist Ramòn Saturnino Is Breaking Down Walls**\
 `Ramòn Saturnino, an architect by training, is showing his work on the U.S.-Mexico border wall for the first time at Art Basel.`\
 https://www.nytimes.com/2026/06/18/arts/design/ramon-saturnino-art-basel.html

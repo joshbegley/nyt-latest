@@ -1,3 +1,11 @@
+**Books Our Editors Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/06/18/books/review/new-recommended-books.html
+
+**Takeaways From ‘Regime Change,’ Maggie Haberman and Jonathan Swan’s Book on Trump’s White House**\
+`The book by Maggie Haberman and Jonathan Swan of The New York Times, “Regime Change,” reveals a host of details and surprising exchanges as President Trump pushed to drastically expand his power.`\
+https://www.nytimes.com/2026/06/18/us/politics/trump-regime-change-book-haberman-swan.html
+
 **The Mexican Artist Ramòn Saturnino Is Breaking Down Walls**\
 `Ramòn Saturnino, an architect by training, is showing his work on the U.S.-Mexico border wall for the first time at Art Basel.`\
 https://www.nytimes.com/2026/06/18/arts/design/ramon-saturnino-art-basel.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/embedded/nyregion/100000010976388/18vid-knicks-469
 **Afghanistan Issues Ban on Smartphones for Civil Servants and Military**\
 `Those using their phones at work will see them smashed and face punishment, according to a written order from the Taliban government’s highest court.`\
 https://www.nytimes.com/2026/06/18/world/asia/afghanistan-taliban-smartphone-ban.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/sports/basketball/100000010976359/18vid-knicks-17524.html
-
-**Warsh Wants the Fed to Send Fewer Signals. That Comes With Risks.**\
-`Investors piled on bets for higher borrowing costs after Kevin Warsh opted against providing policy guidance at his first meeting as Federal Reserve chairman.`\
-https://www.nytimes.com/2026/06/18/business/federal-reserve-warsh-interest-rates.html
 
