@@ -1,3 +1,27 @@
+**Mira el desfile triunfal de los Knicks**\
+`Los aficionados se reúnen este jueves en Manhattan para animar a los campeones de la NBA en un desfile que se ha tardado 53 años.`\
+https://www.nytimes.com/es/2026/06/18/espanol/deportes/knicks-campeonato-desfile-celebracion.html
+
+**Tornadoes Cause Damage as Storms Sweep the Midwest**\
+`Storms brought heavy rain, hail and strong winds to the Midwest on Wednesday, with tornadoes reported in Illinois and Wisconsin.`\
+https://www.nytimes.com/video/us/100000010976369/tornadoes-midwest-damage-rain-hail.html
+
+**In Ancient Pits Near Stonehenge, Scientists See Hints of Solstice Ritual**\
+`British archaeologists may have found the remains of a site where people celebrated the solstice thousands of years ago, a few miles from the famed stone circle.`\
+https://www.nytimes.com/2026/06/18/world/europe/uk-pits-stonehenge-britain-discovery.html
+
+**A Father Who Immigrated From the Soviet Union Tours Thomas Jefferson’s Home With His Son**\
+`A novelist who immigrated from the Soviet Union tours Thomas Jefferson’s home with his American-born history-buff son.`\
+https://www.nytimes.com/2026/06/18/travel/novelist-immigrant-thomas-jefferson-home-son.html
+
+**Iran War Live Updates: Vance Defends Iran Deal as Criticism Mounts**\
+`The vice president told reporters Iran’s nuclear program “has been completely destroyed” and its capacity to threaten its neighbors is “largely gone.”  He said Iran will only receive economic benefits if its leaders “change their behavior.”`\
+https://www.nytimes.com/live/2026/06/18/world/iran-war-trump-us-deal
+
+**Archbishop of Canterbury Apologizes for Church of England’s Role in Forced Adoptions**\
+`Tens of thousands of babies were taken from unmarried women and girls from the 1950s to the 1980s. The Church of England apologized for the “pain, shame and indignity” the practice inflicted.`\
+https://www.nytimes.com/2026/06/18/world/europe/church-england-apology-forced-adoptions-uk.html
+
 **Iran War Live Updates: Vance Defends Iran Deal as Criticism Mounts**\
 `With an initial agreement signed by both sides, oil could soon flow again through the Strait of Hormuz. But prospects for a long-term deal on nuclear issues remained murky.`\
 https://www.nytimes.com/live/2026/06/18/world/iran-war-trump-us-deal
