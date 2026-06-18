@@ -1,3 +1,11 @@
+**Gio Reyna’s Journey Back to USMNT, and Uruguay’s Enigmatic Coach, Marcelo Bielsa**\
+`Has the midfielder redeemed himself?`\
+https://www.nytimes.com/2026/06/18/podcasts/gio-reyna-usmnt-uruguay-marcelo-bielsa.html
+
+**Tras un día de armonía, un Trump impredecible trastoca la cumbre del G7**\
+`Sus declaraciones incendiarias de última hora fueron un recordatorio de lo que puede pasar cuando su estilo sin filtros e improvisado choca con el ritmo diplomático y la meticulosa coreografía de una cumbre internacional.`\
+https://www.nytimes.com/es/2026/06/18/espanol/mundo/trump-g7-europa.html
+
 **Iran War Live Updates: Oil Prices Fall as U.S.-Iran Deal Offers Hope for Shipping**\
 `With an initial agreement signed by both sides, oil could soon flow again through the Strait of Hormuz. But prospects for a long-term deal remained murky as talks on tougher issues loomed.`\
 https://www.nytimes.com/live/2026/06/18/world/iran-war-trump-us-deal
