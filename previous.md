@@ -1,3 +1,15 @@
+**Así fue el debut de Irán en el Mundial, según un fisioterapeuta**\
+`Los estrictos límites de tiempo impuestos por el gobierno de Estados Unidos a la selección iraní la obligan a abandonar el campo inmediatamente después de cada partido.`\
+https://www.nytimes.com/es/2026/06/18/espanol/deportes/iran-equipo-mundial-estados-unidos.html
+
+**The 1970 and 1973 Knicks Did Not Get Parades. An Ex-Knick Is Partly to Blame.**\
+`Thursday’s ticker-tape celebration of the Knicks will be the team’s first ever. Parades were considered a little overdone in the ’70s.`\
+https://www.nytimes.com/2026/06/18/nyregion/knicks-parade-history-john-palmer.html
+
+**Laufey on Dissonance and How It Drives Us**\
+`Taking risks and experimenting with imperfection are paths to uncovering new realms of possibility, both in music and life.`\
+https://www.nytimes.com/2026/06/18/special-series/laufey-dissonance-drive.html
+
 **Muere Daveigh Chase, actriz infantil de ‘Lilo y Stitch’ y ‘El aro’, a los 35 años**\
 `Dio vida a la valiente Lilo en la popular saga de películas animadas y puso los pelos de punta al público interpretando a la pequeña villana Samara en la película de terror ‘El aro’.`\
 https://www.nytimes.com/es/2026/06/18/espanol/muere-daveigh-chase-meningitis.html
@@ -135,7 +147,7 @@ https://www.nytimes.com/es/2026/06/18/espanol/ciencia-y-tecnologia/peste-negra.h
 https://www.nytimes.com/2026/06/18/opinion/jd-vance-iran-trump-communion.html
 
 **Trump’s Titanic Insecurities Are Sinking Us**\
-`The president has found a new trap door in Iran.`\
+`The president’s titanic insecurities are sinking us.`\
 https://www.nytimes.com/2026/06/18/opinion/trump-vance-iran.html
 
 **Los tambores venezolanos se escuchan más y más en Nueva York**\
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/18/opinion/knicks-parade-new-york-championship.h
 **Giacometti’s Goddesses Have Entered the Temple**\
 `You may stand a little straighter after visiting the Met’s Temple of Dendur, which has been reanimated with sculptures by the Swiss master of figurative tension.`\
 https://www.nytimes.com/2026/06/18/arts/giacometti-dendur-met-review.html
-
-**Ohio’s Iconic Basket Building Is for Sale**\
-`The kitschy building, designed as the Longaberger basket company’s headquarters, has been a roadside attraction in Ohio for almost 30 years.`\
-https://www.nytimes.com/2026/06/18/realestate/ohio-basket-building-for-sale.html
-
-**How ‘Goy’ Went from Yiddish to Antisemitic Dog Whistle to Zoomer Slang**\
-`The word is toyed with at an amused and dismissive arm’s length, until it is miles from where it began.`\
-https://www.nytimes.com/2026/06/18/magazine/goy-antisemitic-youth-slang.html
-
-**What to Know Before Buying SpaceX Stock, According to Financial Advisers**\
-`SpaceX has rapidly become one of the world’s most valuable companies. Even so, experts say investing in single stocks can be risky.`\
-https://www.nytimes.com/2026/06/18/business/spacex-stock-investing-advice.html
 

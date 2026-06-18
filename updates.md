@@ -1,3 +1,19 @@
+**Así fue el debut de Irán en el Mundial, según un fisioterapeuta**\
+`Los estrictos límites de tiempo impuestos por el gobierno de Estados Unidos a la selección iraní la obligan a abandonar el campo inmediatamente después de cada partido.`\
+https://www.nytimes.com/es/2026/06/18/espanol/deportes/iran-equipo-mundial-estados-unidos.html
+
+**The 1970 and 1973 Knicks Did Not Get Parades. An Ex-Knick Is Partly to Blame.**\
+`Thursday’s ticker-tape celebration of the Knicks will be the team’s first ever. Parades were considered a little overdone in the ’70s.`\
+https://www.nytimes.com/2026/06/18/nyregion/knicks-parade-history-john-palmer.html
+
+**Laufey on Dissonance and How It Drives Us**\
+`Taking risks and experimenting with imperfection are paths to uncovering new realms of possibility, both in music and life.`\
+https://www.nytimes.com/2026/06/18/special-series/laufey-dissonance-drive.html
+
+**Trump’s Titanic Insecurities Are Sinking Us**\
+`The president’s titanic insecurities are sinking us.`\
+https://www.nytimes.com/2026/06/18/opinion/trump-vance-iran.html
+
 **Muere Daveigh Chase, actriz infantil de ‘Lilo y Stitch’ y ‘El aro’, a los 35 años**\
 `Dio vida a la valiente Lilo en la popular saga de películas animadas y puso los pelos de punta al público interpretando a la pequeña villana Samara en la película de terror ‘El aro’.`\
 https://www.nytimes.com/es/2026/06/18/espanol/muere-daveigh-chase-meningitis.html
