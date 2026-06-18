@@ -1,3 +1,11 @@
+**Stephen Colbert Nods to Obama’s Tan Suit at Presidential Center Opening**\
+`Celebrity guests paid winking homage to President Obama’s notorious tan suit.`\
+https://www.nytimes.com/2026/06/18/style/obama-tan-suit-stephen-colbert.html
+
+**Representative Tom Kean to Return to Congress in 12 Days, Aide Says**\
+`Mr. Kean has missed three months of votes in Washington and been absent from the campaign trail in his New Jersey district because of an unexplained health condition.`\
+https://www.nytimes.com/2026/06/18/nyregion/representative-tom-kean-return-to-congress.html
+
 **Danny McBride Is Not Above a Little Violence (or a Lot of It)**\
 `David Marchese speaks with the actor, writer and producer Danny McBride about his forthcoming book of short stories and why masculinity is a subject he continues to return to.`\
 https://www.nytimes.com/video/podcasts/100000010977809/danny-mcbride-is-not-above-a-little-violence-or-a-lot-of-it.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/embedded/nyregion/100000010977450/18vid-knicks-616
 **19-Year-Old Suspect in Consulate Shooting Arrested at Toronto Airport**\
 `The teen had fled from the police during a raid at an apartment building that set off a shootout, which left an officer dead and another suspect injured.`\
 https://www.nytimes.com/2026/06/18/world/canada/toronto-police-shooting-suspect-arrest.html
-
-**Vegetarian Skillet Recipes for Summer**\
-`You should, too. Then keep the skillet on the stove all season long for white bean shakshuka, chickpea Parmesan, verdant orzo and more.`\
-https://www.nytimes.com/2026/06/18/dining/im-slinging-lasagna-in-my-skillet-this-summer.html
-
-**L.A.P.D. Officer Kills Knicks Fan’s Dog After Celebration**\
-`Marie Marseille had waited her entire life to see the New York Knicks win the N.B.A. championship. Her elation ended in tragedy.`\
-https://www.nytimes.com/2026/06/18/us/lapd-knicks-dog-killed.html
 
