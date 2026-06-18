@@ -1,3 +1,19 @@
+**Trump exigió que Irán se rindiera de manera ‘incondicional’ y se llevó una sorpresa**\
+`Aunque los iraníes sufrieron pérdidas importantes en la guerra, salieron de ese enfrentamiento contra el ejército más poderoso del mundo y demostraron que pueden usar el caos económico como arma.`\
+https://www.nytimes.com/es/2026/06/18/espanol/estados-unidos/trump-iran-acuerdo-estrecho-nuclear.html
+
+**Today, In Short**\
+`Sleep types. The plague. Messi’s hat trick`\
+https://www.nytimes.com/2026/06/18/briefing/today-in-short.html
+
+**Watch Live: Knicks City Hall Ceremony**\
+`New York City celebrates the Knicks’ N.B.A. championship win with a ceremony at City Hall Plaza.`\
+https://www.nytimes.com/video/embedded/nyregion/100000010976505/watch-live-knicks-city-hall-ceremony.html
+
+**Many World Cup Fans Would Rather Skip the Hydration Breaks**\
+`It’s hot in North America in June, but fans are griping that the breaks that have been added to each half are an excuse for the networks to show more ads.`\
+https://www.nytimes.com/2026/06/18/us/world-cup-hydration-breaks.html
+
 **Jose Alvarado the Photographer Looks Back on the Knicks’ Magic**\
 `While fans watched their team, José A. Alvarado Jr. watched the crowd.`\
 https://www.nytimes.com/2026/06/18/insider/knicks-ny-photos-nba-finals.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/06/18/crosswords/wordle-review-1826.html
 **NYT Strands Hints for June 19, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, June 19, 2026.`\
 https://www.nytimes.com/2026/06/18/crosswords/strands-sidekick-838.html
-
-**As India Temporarily Bans Telegram, Which Other Countries Have Restricted the Messaging App?**\
-`Several countries have restricted the messaging app, a valuable platform for dissidents, criminals and extremists. Here’s an overview.`\
-https://www.nytimes.com/2026/06/18/technology/telegram-ban-india.html
-
-**Live Updates: Knicks Parade Up Broadway, a Celebration Decades in the Making**\
-`The N.B.A. championship team is riding through packed sidewalks and streets that hit capacity hours before the festivities began. Fans have waited more than five decades to celebrate a title.`\
-https://www.nytimes.com/live/2026/06/18/nyregion/knicks-parade
-
-**Do Sports Owners Win Championships?**\
-`Reacting to James Dolan’s speech to the Knicks, and Jalen Brunson’s $113 million sacrifice.`\
-https://www.nytimes.com/2026/06/18/podcasts/do-sports-owners-win-championships.html
-
-**Iran Gets Major Economic Lifeline for Minimal Concessions in Initial Deal**\
-`The agreement delays the most difficult steps for Iran for later talks, while granting it crucial benefits.`\
-https://www.nytimes.com/2026/06/18/world/middleeast/iran-deal-oil-strait-of-hormuz-nuclear.html
 
