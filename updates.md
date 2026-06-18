@@ -1,3 +1,19 @@
+**The Shifting Politics of Climate Change**\
+`A new poll suggests Republicans may be more movable on climate change than previously thought, plus more climate news.`\
+https://www.nytimes.com/2026/06/18/climate/the-shifting-politics-of-climate-change.html
+
+**Gunmen Attack a Major Airport in Niger**\
+`An early morning assault on Niamey airport was the second such attack in the West African country this year.`\
+https://www.nytimes.com/2026/06/18/world/africa/niger-armed-attack-airport.html
+
+**19-Year-Old Suspect in Consulate Shooting Arrested at Toronto Airport**\
+`The teen had fled from the police during a raid at an apartment building that set off a shootout, which left an officer dead and another suspect injured.`\
+https://www.nytimes.com/2026/06/18/world/canada/toronto-police-shooting-suspect-arrest.html
+
+**L.A.P.D. Officer Kills Knicks Fan’s Dog After Celebration**\
+`Marie Marseille had waited her entire life to see the New York Knicks win the N.B.A. championship. Her elation ended in tragedy.`\
+https://www.nytimes.com/2026/06/18/us/lapd-knicks-dog-killed.html
+
 **Netflix Cancels Duffer Brothers’ ‘The Boroughs’ After One Season**\
 `The Duffer brothers, who produced the series and created “Stranger Things,” recently left the streamer for Paramount.`\
 https://www.nytimes.com/2026/06/18/arts/television/boroughs-canceled-duffer-brothers-netflix.html
