@@ -1,3 +1,7 @@
+**Vance Lashes Out at Israeli Critics of U.S.-Iran Agreement to End the War**\
+`The vice president said that the United States was the only powerful ally Israel had left and noted that two-thirds of the weapons that protected Israel were paid for by U.S. tax dollars.`\
+https://www.nytimes.com/2026/06/18/world/middleeast/vance-israel-critics-us-iran-deal.html
+
 **Rereading ‘The Road’ as a Dad**\
 `“The Road,” by Cormac McCarthy, was one of the author Ryan Holiday’s picks for The New York Times’s “100 Best Books of the 21st Century.” Holiday first read the harrowing story of a father and son traveling together in a postapocalyptic world in college. On a recent episode of the “Book Review” podcast, Holiday talked with the host Gilbert Cruz about his experience rereading the book as a father.`\
 https://www.nytimes.com/video/podcasts/100000010978339/rereading-the-road-as-a-dad.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/18/us/politics/ice-warehouses-immigration.html
 **Erika Kirk’s Message for Women at Turning Point USA**\
 `Our reporter Vivian Yee details what she saw at this year’s Turning Point USA Women’s Leadership Summit in San Antonio.`\
 https://www.nytimes.com/video/us/politics/100000010910839/erika-kirks-message-for-women-at-turning-point-usa.html
-
-**Education Department Lowers Student Loan Interest Rates for Two Years**\
-`The department, citing high default rates, is reducing interest rates on federal student loans by up to one percentage point for two years.`\
-https://www.nytimes.com/2026/06/18/business/student-loans-interest-rate.html
 
