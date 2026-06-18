@@ -1,3 +1,19 @@
+**Rasmus Munk: I’m Driven by Food’s Emotional Power**\
+`As a chef, I am driven not only by how a dish tastes, but the emotions that it evokes.`\
+https://www.nytimes.com/2026/06/18/special-series/rasmus-munk-food-emotions.html
+
+**Don’t Blame Plunging Birthrates on Phones**\
+`Low fertility rates are a lagging indicator, the final outcome of a string of social shifts.`\
+https://www.nytimes.com/2026/06/18/opinion/iphones-birthrate-decline.html
+
+**The Mexican Artist Ramòn Saturnino Is Breaking Down Walls**\
+`Ramón Saturnino, an architect by training, is showing his work on the U.S.-Mexico border wall for the first time at Art Basel.`\
+https://www.nytimes.com/2026/06/18/arts/design/ramon-saturnino-art-basel.html
+
+**Philadelphia Can’t Force Mention of Slavery at Historic Home, Court Rules**\
+`A three-judge appeals panel threw out a lower court’s order requiring the federal government to restore a memorial and historical display at George Washington’s former house.`\
+https://www.nytimes.com/2026/06/18/us/politics/washington-house-slavery-appeals.html
+
 **Texas Report Finds That 39 Adults Could Have Helped Girls at Camp Mystic**\
 `The finding was part of a growing case against the camp’s leadership, which state investigators said did not organize an evacuation in time “despite ample opportunity.”`\
 https://www.nytimes.com/2026/06/18/us/texas-flooding-evacuation-camp-mystic.html
