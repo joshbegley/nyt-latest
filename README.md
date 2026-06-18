@@ -50,8 +50,8 @@ https://www.nytimes.com/video/us/100000010976369/tornadoes-midwest-damage-rain-h
 `British archaeologists may have found the remains of a site where people celebrated the solstice thousands of years ago, a few miles from the famed stone circle.`\
 https://www.nytimes.com/2026/06/18/world/europe/uk-pits-stonehenge-britain-discovery.html
 
-**A Father Who Immigrated From the Soviet Union Tours Thomas Jefferson’s Home With His Son**\
-`A novelist who immigrated from the Soviet Union tours Thomas Jefferson’s home with his American-born history-buff son.`\
+**Gary Shteyngart, a Russian-Born Author, Tours Thomas Jefferson’s Home With His Son**\
+`I emigrated from the Soviet Union decades ago, and recently toured Thomas Jefferson’s home with my American-born history-buff son.`\
 https://www.nytimes.com/2026/06/18/travel/novelist-immigrant-thomas-jefferson-home-son.html
 
 **London Hospital Worker Tried to Sell Princess Catherine’s Medical Records, Reports Say**\
@@ -191,7 +191,7 @@ https://www.nytimes.com/2026/06/18/podcasts/gio-reyna-usmnt-uruguay-marcelo-biel
 https://www.nytimes.com/es/2026/06/18/espanol/mundo/trump-g7-europa.html
 
 **Iran War Live Updates: Vance Defends Iran Deal as Criticism Mounts**\
-`The vice president told reporters Iran’s nuclear program “has been completely destroyed” and its capacity to threaten its neighbors is “largely gone.”  He contended Iran will only receive economic benefits if its leaders “change their behavior.”`\
+`The vice president claimed Iran’s nuclear program “has been completely destroyed.”  He contended Iran only receive economic benefits if their leaders “change their behavior,” even though the deal lifts sanctions on oil exports right away.`\
 https://www.nytimes.com/live/2026/06/18/world/iran-war-trump-us-deal
 
 **Archbishop of Canterbury Apologizes for Church of England’s Role in Forced Adoptions**\
