@@ -1,3 +1,7 @@
+**18-Year-Old Dies in Fall From Horse Carriage in Central Park**\
+`The horse bolted after the driver stepped out to take a photo of the passengers, the carriage drivers’ union said, and an tourist from India fell from the driverless carriage.`\
+https://www.nytimes.com/2026/06/17/nyregion/horse-carriage-central-park-injury.html
+
 **Before Making a Deal, Trump Demanded Iran’s Surrender. He Got a Surprise.**\
 `While the Iranians suffered substantial losses in the war, they emerged from a confrontation with the world’s most powerful military having proved they can use economic chaos as a weapon.`\
 https://www.nytimes.com/2026/06/17/us/politics/trump-iran-deal-nuclear-program-strait.html
