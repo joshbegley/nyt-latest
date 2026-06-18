@@ -1,3 +1,7 @@
+**Kansas City Police Seek Gunman in Spree of Five Roadway Shootings**\
+`The attacks, which killed one and injured four, played out as the city was preparing to host its first World Cup match. An Uber driver taking Argentina fans to the stadium was among the victims.`\
+https://www.nytimes.com/2026/06/17/us/kansas-city-shooting-spree-world-cup.html
+
 **NYT Crossword Answers for June 18, 2026**\
 `Scott Hogan gets long words out of short clues.`\
 https://www.nytimes.com/2026/06/17/crosswords/daily-puzzle-2026-06-18.html
