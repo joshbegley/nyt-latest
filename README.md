@@ -1,3 +1,59 @@
+**‘Color Book’ Review: Love and Grieving**\
+`In this tender family drama, a widowed father and his disabled son overcome personal tragedy.`\
+https://www.nytimes.com/2026/06/18/movies/color-book-review.html
+
+**‘The Death of Robin Hood’ Review: Not a Merry Band**\
+`A darkly revisionist take on the medieval outlaw asks who gets to craft the heroic legends.`\
+https://www.nytimes.com/2026/06/18/movies/the-death-of-robin-hood-review.html
+
+**As Pitti Uomo’s Guest Designer, Simone Rocha Has Pretty Designs on Men**\
+`For over a decade, the Irish designer has found inspiration in womanhood. As the guest designer at Pitti Uomo, she plays with notions of masculinity.`\
+https://www.nytimes.com/2026/06/18/style/simone-rocha-designer-pitti-uomo.html
+
+**‘Never Change!’ Review: Failing the Assignment**\
+`This comedy squanders a promising premise about adults forced back to high school on repetitive sketches and hollow jokes.`\
+https://www.nytimes.com/2026/06/18/movies/never-change-review.html
+
+**Homes for Sale in Connecticut and New York**\
+`This week’s properties are a three-bedroom in New Canaan, Conn., and a four-bedroom in Cutchogue, N.Y.`\
+https://www.nytimes.com/2026/06/18/realestate/housing-market-near-nyc.html
+
+**It’s Good Enough for the King. Is a Second Birthday Right for You?**\
+`A birthday is already an occasion for indulgence. So why not schedule one on your terms.`\
+https://www.nytimes.com/2026/06/18/style/summer-birthday-royal-celebration.html
+
+**Homes for Sale in Manhattan and Brooklyn**\
+`This week’s properties are on the Upper West Side, and in TriBeCa and Bushwick.`\
+https://www.nytimes.com/2026/06/18/realestate/housing-market-nyc.html
+
+**For New Home Buyers: Longer Commute Times**\
+`Entry-level home buyers find deals farther from job hubs, but pay in commute time and at the gas pump.`\
+https://www.nytimes.com/2026/06/18/realestate/for-new-home-buyers-longer-commute-times.html
+
+**‘The Devil Queen’ Review: A Seedy Quest for Vengeance**\
+`Antonio Carlos da Fontoura’s 1974 gay gangster thriller returns in a gorgeous new restoration.`\
+https://www.nytimes.com/2026/06/18/movies/the-devil-queen-review.html
+
+**The Russian Film Director Who Chooses Moments to Challenge Putin**\
+`Alexander Sokurov has questioned the Russian president about government repression but he is still controversial among his country’s exiles.`\
+https://www.nytimes.com/2026/06/18/world/europe/alexander-sokurov-russia-director.html
+
+**Are Your Ancestors Canadian? Here’s What to Know About Becoming a Citizen.**\
+`Six months after Canada expanded its citizenship eligibility, requests are flooding in for archival records. The documents are vital for proving ties to the country.`\
+https://www.nytimes.com/2026/06/18/world/canada/canadian-citizenship-guide.html
+
+**How A.I. Apps Teach Students How to Cheat**\
+`Big tech companies and small start-ups are using social media to hype new tools that allow students to trick teachers and A.I. detectors.`\
+https://www.nytimes.com/2026/06/18/us/ai-apps-students-cheat.html
+
+**Barack Obama Presidential Center Opens in Chicago**\
+`Today’s opening is expected to draw four former presidents, as well as Bruce Springsteen, Bono and Jennifer Hudson. Chicago has seen years of planning and legal fights.`\
+https://www.nytimes.com/2026/06/18/us/obama-presidential-center-chicago.html
+
+**The Thriving Black Market for a Powerful Weight Loss Drug**\
+`People are buying what they believe to be retatrutide from WhatsApp groups, Chinese labs and websites selling it “for research purposes.”`\
+https://www.nytimes.com/2026/06/18/well/retatrutide-peptide-weight-loss-black-market.html
+
 **Obama Presidential Center Opens in Chicago**\
 `The grand opening for the Obama Presidential Center is on Thursday. Several celebrities and four living presidents, excluding President Trump, are expected to attend.`\
 https://www.nytimes.com/video/us/100000010975799/obama-presidential-center-chicago.html
@@ -141,60 +197,4 @@ https://www.nytimes.com/2026/06/17/business/economy/warsh-fed-chairman-first-pre
 **Boyle Heights Warehouse Fire Prompts Thousands of L.A. Residents to Shelter in Place**\
 `Heavy black smoke was visible across much of Los Angeles as flames tore through a nearly 500,000-square-foot building just east of downtown.`\
 https://www.nytimes.com/2026/06/17/us/los-angeles-warehouse-fire-boyle-heights.html
-
-**Robert Thurman, Leading Expert on Tibetan Buddhism and Uma Thurman’s Father, Dies at 84**\
-`A former monk who was also Uma Thurman’s father, he made sure Buddhism retained its intellectual and spiritual rigor as it spread through the West.`\
-https://www.nytimes.com/2026/06/17/us/robert-thurman-dead.html
-
-**Prosecutors Say Man Used Charity Scheme to Raise Thousands for Hamas**\
-`The suspect used social media accounts, crowd-funding sites and a charity to solicit hundreds of thousands of dollars in donations, a complaint said.`\
-https://www.nytimes.com/2026/06/17/nyregion/hamas-money-charity.html
-
-**Hot Mics at G7 Summit Offer Glimpse Into Leaders’ Conversations**\
-`Microphones left on during the Group of 7 summit in Évian-les-Bains, France, picked up side conversations between world leaders as they discussed Greenland and cigarettes.`\
-https://www.nytimes.com/video/world/100000010974044/g7-summit-hot-mics-trump-carney.html
-
-**How Does Trump’s Deal With Iran Compare to Obama’s?**\
-`The two agreements are difficult to compare, because the current memorandum of understanding is an interim arrangement meant to outline a negotiating path to a fuller deal.`\
-https://www.nytimes.com/2026/06/17/world/middleeast/trump-obama-iran-deals.html
-
-**Florida Appeals Court Strikes Down Ban on Concealed Carry for Young Adults**\
-`The state attorney general, James Uthmeier, had declined to defend the nearly 40-year-old ban on 18- to 20-year-olds carrying concealed weapons. He celebrated the ruling on Wednesday.`\
-https://www.nytimes.com/2026/06/17/us/florida-concealed-carry-young-adults.html
-
-**Tropical Storm Arthur Forecast: How Much Rain Will Fall?**\
-`Heavy rain and flash flooding are expected across the region through Friday.`\
-https://www.nytimes.com/2026/06/17/weather/tropical-storm-arthur-how-much-rain.html
-
-**Driver Charged With Hitting ICE Agent After Confusion Over His Identity**\
-`Federal prosecutors said the man had refused to roll down his window when Immigration and Customs Enforcement officers in New Jersey told him to stop.`\
-https://www.nytimes.com/2026/06/17/nyregion/ice-agent-hit-vehicle-nj.html
-
-**18-Year-Old Dies in Fall From Horse Carriage in Central Park**\
-`After the driver stepped out to take a photo of the passengers, the horse bolted, and a tourist from India fell from the driverless carriage. “We were yelling, ‘Help me, help me!’” said his father.`\
-https://www.nytimes.com/2026/06/17/nyregion/horse-carriage-central-park-injury.html
-
-**Seth Rogen on Fame and Insecurity**\
-`Seth Rogen has a very successful career in Hollywood, but that doesn’t mean he hasn’t felt insecure about his talent. He spoke about how his views on money and fame have changed throughout his life on “The Interview.”`\
-https://www.nytimes.com/video/podcasts/100000010975422/seth-rogen-on-fame-and-insecurity.html
-
-**How the U.S.-Iran Deal Came Down to the Wire**\
-`The agreement, which punted many of the toughest issues to future negotiations, came after a last-minute scramble.`\
-https://www.nytimes.com/2026/06/17/us/politics/us-iran-deal-trump.html
-
-**France Assembled an African Dream Team. Senegal Could Not Stop Them.**\
-`Many see the rivalry between France and Senegal as a result of colonial heritage. But at the same time, European teams are more African than ever.`\
-https://www.nytimes.com/2026/06/17/world/africa/france-senegal-world-cup-africa.html
-
-**Federal Reserve Holds Interest Rates Steady**\
-`In his first news conference as the Federal Reserve chair, Kevin Warsh announced that interest rates would remain unchanged.`\
-https://www.nytimes.com/video/us/100000010974839/fed-warsh-interest-rates-decision.html
-
-**The Race to Save Survivors After a Texas Plane Crash**\
-`One woman’s video captured rescuers rushing to the small jet, which crashed on a Laredo highway. Five people escaped the wreckage, and one died.`\
-https://www.nytimes.com/2026/06/17/us/laredo-texas-plane-crash.html
-
-**Trump Escalates Tensions With Senate Republicans**\
-`Also, the U.S. shares details of the preliminary Iran deal. Here’s the latest at the end of Wednesday.`\
-https://www.nytimes.com/2026/06/17/briefing/trump-senate-republicans-us-iran-deal.html
 
