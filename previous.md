@@ -1,9 +1,17 @@
+**Federal Energy Regulator Seeks to Limit Conflicts Over Data Centers**\
+`The Federal Energy Regulatory Commission directed grid managers to make changes that protect individuals from higher electricity bills while giving data centers access to power faster.`\
+https://www.nytimes.com/2026/06/18/business/data-centers-power-regulation.html
+
+**Tariq El Sawah, Guantánamo Prisoner Sent to Bosnia, Dies at 68**\
+`He spent nearly 14 years in U.S. custody and never had a day in court even as his deteriorating health drew scrutiny.`\
+https://www.nytimes.com/2026/06/18/us/tariq-el-sawah-dead.html
+
 **The Shifting Politics of Climate Change**\
 `A new poll suggests Republicans may be more movable on climate change than previously thought, plus more climate news.`\
 https://www.nytimes.com/2026/06/18/climate/the-shifting-politics-of-climate-change.html
 
 **Gunmen Attack a Major Airport in Niger**\
-`An early morning assault on Niamey airport was the second such attack in the West African country this year.`\
+`A militant group claimed responsibility for the early-morning assault on Niamey airport, the second such attack in the West African country this year.`\
 https://www.nytimes.com/2026/06/18/world/africa/niger-armed-attack-airport.html
 
 **Netflix Cancels Duffer Brothers’ ‘The Boroughs’ After One Season**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/18/us/elections/washington-mayoral-primary.html
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/nyregion/100000010976539/18vid-knicks-7813.html
-
-**Take Your Business Beyond the Day-to-Day**\
-`In the second part of a two-part series, Mark Valentino, president of Business Banking, and Rebecca O’Connell, president of Corporate Banking, discuss how clients can choose a succession plan based on their financial goals, exit timeline and long-term vision.`\
-http://brandedplaylist.nytimes.com/video/embedded/t-brand/100000010976601/take-your-business-beyond-the-day-to-day.html
-
-**Supreme Court Narrows Law Banning Drug Users From Owning Guns**\
-`The justices sided with a Texas gun owner who faced criminal charges after admitting to marijuana use argued that a federal gun law violated the Second Amendment.`\
-https://www.nytimes.com/2026/06/18/us/politics/supreme-court-drugs-guns.html
 

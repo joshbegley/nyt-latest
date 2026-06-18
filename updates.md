@@ -1,3 +1,15 @@
+**Federal Energy Regulator Seeks to Limit Conflicts Over Data Centers**\
+`The Federal Energy Regulatory Commission directed grid managers to make changes that protect individuals from higher electricity bills while giving data centers access to power faster.`\
+https://www.nytimes.com/2026/06/18/business/data-centers-power-regulation.html
+
+**Tariq El Sawah, Guantánamo Prisoner Sent to Bosnia, Dies at 68**\
+`He spent nearly 14 years in U.S. custody and never had a day in court even as his deteriorating health drew scrutiny.`\
+https://www.nytimes.com/2026/06/18/us/tariq-el-sawah-dead.html
+
+**Gunmen Attack a Major Airport in Niger**\
+`A militant group claimed responsibility for the early-morning assault on Niamey airport, the second such attack in the West African country this year.`\
+https://www.nytimes.com/2026/06/18/world/africa/niger-armed-attack-airport.html
+
 **The Shifting Politics of Climate Change**\
 `A new poll suggests Republicans may be more movable on climate change than previously thought, plus more climate news.`\
 https://www.nytimes.com/2026/06/18/climate/the-shifting-politics-of-climate-change.html
