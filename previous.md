@@ -1,3 +1,11 @@
+**Danny McBride Is Not Above a Little Violence (or a Lot of It)**\
+`David Marchese speaks with the actor, writer and producer Danny McBride about his forthcoming book of short stories and why masculinity is a subject he continues to return to.`\
+https://www.nytimes.com/video/podcasts/100000010977809/danny-mcbride-is-not-above-a-little-violence-or-a-lot-of-it.html
+
+**Fallout From the Iran Deal**\
+`Trump’s agreement reads like a list of concessions to Iran. Will it damage him politically?`\
+https://www.nytimes.com/2026/06/18/world/iran-trump-us-ukraine-moscow-world-cup.html
+
 **Vance Lashes Out at Israeli Critics of U.S.-Iran Agreement to End the War**\
 `The vice president said that the United States was the only powerful ally Israel had left and noted that two-thirds of the weapons that protected Israel were paid for by U.S. tax dollars.`\
 https://www.nytimes.com/2026/06/18/world/middleeast/vance-israel-critics-us-iran-deal.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/18/dining/im-slinging-lasagna-in-my-skillet-this
 **L.A.P.D. Officer Kills Knicks Fan’s Dog After Celebration**\
 `Marie Marseille had waited her entire life to see the New York Knicks win the N.B.A. championship. Her elation ended in tragedy.`\
 https://www.nytimes.com/2026/06/18/us/lapd-knicks-dog-killed.html
-
-**ICE Spent $700 Million on 7 Warehouses. Now It Wants to Get Rid of Them.**\
-`Immigration and Customs Enforcement plans to sell or give away most of the 11 warehouses it bought to detain migrants, reversing course on a signature initiative.`\
-https://www.nytimes.com/2026/06/18/us/politics/ice-warehouses-immigration.html
-
-**Erika Kirk’s Message for Women at Turning Point USA**\
-`Our reporter Vivian Yee details what she saw at this year’s Turning Point USA Women’s Leadership Summit in San Antonio.`\
-https://www.nytimes.com/video/us/politics/100000010910839/erika-kirks-message-for-women-at-turning-point-usa.html
 
