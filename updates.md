@@ -1,3 +1,7 @@
+**When in Jersey for the World Cup, Do as the Locals Do. (Go to a Mall.)**\
+`There is no tailgating at MetLife Stadium, which is surrounded by swampland and highways. But there is a three-million-square-foot megamall nearby.`\
+https://www.nytimes.com/2026/06/18/nyregion/american-dream-mall-world-cup.html
+
 **Oil Prices Fall as U.S.-Iran Deal to Reopen Hormuz Takes Effect**\
 `Oil prices fell and stocks rose after Pakistan announced that the agreement to reopen the Strait of Hormuz would take effect immediately.`\
 https://www.nytimes.com/2026/06/18/business/oil-gas-prices-iran.html
