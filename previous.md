@@ -1,3 +1,27 @@
+**Oil Prices Fall as U.S.-Iran Deal to Reopen Hormuz Takes Effect**\
+`Oil prices fell and stocks rose after Pakistan announced that the agreement to reopen the Strait of Hormuz would take effect immediately.`\
+https://www.nytimes.com/2026/06/18/business/oil-gas-prices-iran.html
+
+**El papa León visitará la aldea de la primera santa de EE. UU.**\
+`El pontífice llegará el sábado a una villa italiana donde nació la madre Cabrini, la primera santa estadounidense, y se espera que retome su enfoque incluyente sobre los migrantes.`\
+https://www.nytimes.com/es/2026/06/18/espanol/opinion/papa-leon-catolicos-estados-unidos.html
+
+**How the three-million-square-foot American Dream Mall**\
+`There is no tailgating at MetLife Stadium, which is surrounded by swampland and highways. But there is a three-million-square-foot megamall nearby.`\
+https://www.nytimes.com/2026/06/18/nyregion/american-dream-mall-world-cup.html
+
+**Together We Stand: A Knicks Celebration and a Pause for Communal Joy**\
+`The Knicks’ parade through the Canyon of Heroes on Thursday is expected to attract legions of fans celebrating the team’s first championship in 53 years.`\
+https://www.nytimes.com/2026/06/18/nyregion/knicks-parade-nyc.html
+
+**Can a Nerd Still Get Elected to Congress in Manhattan?**\
+`In a Democratic primary for a coveted House seat in Manhattan, Micah Lasher is  betting long experience can prevail despite anti-establishment headwinds.`\
+https://www.nytimes.com/2026/06/18/nyregion/micah-lasher-congress-manhattan.html
+
+**NYT Spelling Bee Answers for June 18, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/18/crosswords/spelling-bee-forum.html
+
 **Jimmy Kimmel Feels ‘Hormuzled’ by Trump’s New Deal With Iran**\
 `Although the agreement finally reopens the Strait of Hormuz, “we threw in a minimum of $300 billion,” Kimmel said. “Right now, Melania’s wondering, ‘How do I get a deal like that?’”`\
 https://www.nytimes.com/2026/06/18/arts/television/jimmy-kimmel-strait-hormuz-trump-iran-deal.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/06/17/us/congo-fans-portugal-tie.html
 **Trump Defends Deal to End the War With Iran as Details Emerge**\
 `President Trump lashed out at critics who say the agreement achieves less than the one President Barack Obama signed in 2015, and he threatened to bomb Iran again if it violated the deal.`\
 https://www.nytimes.com/2026/06/17/world/middleeast/trump-iran-deal-obama.html
-
-**Trump Criticized Obama’s Iran Deal, but New Deal Would Also Offer Tehran Relief**\
-`The agreement outlines a $300 billion plan to rebuild Iran, and says sanctions would be lifted in the future.`\
-https://www.nytimes.com/2026/06/17/world/europe/trump-obama-iran-deal-money.html
-
-**Colbert’s Use of ‘Peanuts’ Jingle on His Finale Will Cost CBS**\
-`The network agreed to pay a licensing fee for an undisclosed amount to Lee Mendelson Film Productions, which is donating the money to charity.`\
-https://www.nytimes.com/2026/06/17/us/cbs-colbert-peanuts-music-fee.html
-
-**Ask the Therapist for Advice**\
-`Submit your question.`\
-https://www.nytimes.com/2026/06/17/well/mind/ask-therapist-callout.html
-
-**Bill Pulte, a Bulldog for Trump, Prepares to Take Reins at Spy Agency**\
-`Democrats and some Republicans excoriated President Trump’s pick for a top national security job. The president pushed ahead anyway.`\
-https://www.nytimes.com/2026/06/17/us/politics/bill-pulte-spy-agency.html
-
-**La tormenta tropical Arthur azota la costa del golfo de México mientras avanza tierra adentro**\
-`Arthur acaba de convertirse en la primera tormenta tropical con nombre de la temporada de huracanes del Atlántico de este año. Esta semana ha provocado fuertes lluvias e inundaciones en Texas, y se esperan más.`\
-https://www.nytimes.com/es/2026/06/17/espanol/tiempo-y-clima/tormenta-tropical-arthur.html
-
-**The Blobby, Drippy Maximalist Design You’re Seeing Everywhere**\
-`After years of corporate millennial blanding, consumer culture oozes into shape for a new generation.`\
-https://www.nytimes.com/2026/06/17/style/maximalism-aesthetic-hyper-goo.html
 

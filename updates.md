@@ -1,3 +1,27 @@
+**Oil Prices Fall as U.S.-Iran Deal to Reopen Hormuz Takes Effect**\
+`Oil prices fell and stocks rose after Pakistan announced that the agreement to reopen the Strait of Hormuz would take effect immediately.`\
+https://www.nytimes.com/2026/06/18/business/oil-gas-prices-iran.html
+
+**El papa León visitará la aldea de la primera santa de EE. UU.**\
+`El pontífice llegará el sábado a una villa italiana donde nació la madre Cabrini, la primera santa estadounidense, y se espera que retome su enfoque incluyente sobre los migrantes.`\
+https://www.nytimes.com/es/2026/06/18/espanol/opinion/papa-leon-catolicos-estados-unidos.html
+
+**How the three-million-square-foot American Dream Mall**\
+`There is no tailgating at MetLife Stadium, which is surrounded by swampland and highways. But there is a three-million-square-foot megamall nearby.`\
+https://www.nytimes.com/2026/06/18/nyregion/american-dream-mall-world-cup.html
+
+**Together We Stand: A Knicks Celebration and a Pause for Communal Joy**\
+`The Knicks’ parade through the Canyon of Heroes on Thursday is expected to attract legions of fans celebrating the team’s first championship in 53 years.`\
+https://www.nytimes.com/2026/06/18/nyregion/knicks-parade-nyc.html
+
+**Can a Nerd Still Get Elected to Congress in Manhattan?**\
+`In a Democratic primary for a coveted House seat in Manhattan, Micah Lasher is  betting long experience can prevail despite anti-establishment headwinds.`\
+https://www.nytimes.com/2026/06/18/nyregion/micah-lasher-congress-manhattan.html
+
+**NYT Spelling Bee Answers for June 18, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/18/crosswords/spelling-bee-forum.html
+
 **Jimmy Kimmel Feels ‘Hormuzled’ by Trump’s New Deal With Iran**\
 `Although the agreement finally reopens the Strait of Hormuz, “we threw in a minimum of $300 billion,” Kimmel said. “Right now, Melania’s wondering, ‘How do I get a deal like that?’”`\
 https://www.nytimes.com/2026/06/18/arts/television/jimmy-kimmel-strait-hormuz-trump-iran-deal.html
