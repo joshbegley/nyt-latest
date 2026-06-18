@@ -1,3 +1,7 @@
+**Billionaire Tax Officially Has Enough Signatures for California Ballot**\
+`A proposed wealth tax on billionaires is headed to the ballot unless Gov. Gavin Newsom and other opponents reach a deal with backers to remove it.`\
+https://www.nytimes.com/2026/06/18/us/california-billionaire-tax-ballot.html
+
 **Trump’s Iran Deal Isn’t Perfect. It Doesn’t Need to Be.**\
 `The world doesn’t need a nuclear deal with Tehran.`\
 https://www.nytimes.com/2026/06/18/opinion/iran-nuclear-deal-trump.html
