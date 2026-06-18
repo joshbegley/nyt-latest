@@ -38,7 +38,7 @@ https://www.nytimes.com/2026/06/18/learning/word-of-the-day-antipodes.html
 `A proposed wealth tax on billionaires is headed to the ballot unless Gov. Gavin Newsom and other opponents reach a deal with backers to remove it.`\
 https://www.nytimes.com/2026/06/18/us/california-billionaire-tax-ballot.html
 
-**Trump’s Iran Deal Isn’t Perfect. It Doesn’t Need to Be.**\
+**This Is Not a Grand Bargain With Iran. Good.**\
 `The world doesn’t need a nuclear deal with Tehran.`\
 https://www.nytimes.com/2026/06/18/opinion/iran-nuclear-deal-trump.html
 

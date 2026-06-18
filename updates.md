@@ -1,3 +1,7 @@
+**This Is Not a Grand Bargain With Iran. Good.**\
+`The world doesn’t need a nuclear deal with Tehran.`\
+https://www.nytimes.com/2026/06/18/opinion/iran-nuclear-deal-trump.html
+
 **Average U.S. Gasoline Price Falls Below $4 for First Time in Months**\
 `Drivers are enjoying some relief at the pump after the United States and Iran signed an agreement to reopen the Strait of Hormuz.`\
 https://www.nytimes.com/2026/06/18/business/energy-environment/iran-war-gasoline-prices.html
