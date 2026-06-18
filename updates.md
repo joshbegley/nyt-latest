@@ -1,3 +1,23 @@
+**The ‘Rivalry’ Between Vance and Rubio**\
+`There’s no “intense rivalry behind the scenes” between JD Vance and Secretary of State Marco Rubio, the vice president argues on “Interesting Times.” The Opinion columnist Ross Douthat asks the vice president what happens to his political future if the Iran deal goes poorly.`\
+https://www.nytimes.com/video/opinion/100000010968360/the-rivalry-between-vance-and-rubio.html
+
+**A Small Election Could Change British Politics**\
+`Voters in the northern English district of Makerfield cast ballots on Thursday to choose their representative in Parliament, the outcome of which could lead to Prime Minister Keir Starmer’s ouster.`\
+https://www.nytimes.com/video/world/europe/100000010976921/england-makerfield-election.html
+
+**Knicks in Five. The City Is Alive.**\
+`New York City found a reason to party on Thursday, cheering, crying and climbing around Broadway to celebrate the Knicks N.B.A. championship.`\
+https://www.nytimes.com/2026/06/18/nyregion/knicks-championship-parade-celebration-nyc.html
+
+**Here’s What Barack and Michelle Obama Said at His Presidential Center Opening**\
+`The Obamas each took to the microphone, delivering speeches before a crowd of dignitaries, elected officials and Democratic supporters.`\
+https://www.nytimes.com/2026/06/18/us/barack-michelle-obama-speeches.html
+
+**JD Vance: ‘I’m Not Fighting With the Pope’**\
+`Did JD Vance privately agree with the pope on the Iran war while publicly fighting with him? Ross Douthat asks the vice president on “Interesting Times.”`\
+https://www.nytimes.com/video/opinion/100000010968359/jd-vance-im-not-fighting-with-the-pope.html
+
 **Three Medals of Honor to Be Awarded to Vietnam and Afghanistan Veterans**\
 `Two Force Recon Marines are set to receive the medal on Thursday for their actions more than 50 years ago, alongside an Army officer who showed exceptional bravery in 2012.`\
 https://www.nytimes.com/2026/06/18/us/politics/trump-medals-of-honor.html

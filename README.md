@@ -1,3 +1,11 @@
+**Renato Rosaldo, Anthropologist Who Disrupted His Discipline, Dies at 85**\
+`After his wife’s death while doing fieldwork, he rejected writing as a detached observer, setting off a profound shift in cultural anthropology.`\
+https://www.nytimes.com/2026/06/18/science/renato-rosaldo-dead.html
+
+**Looking for a Perfect World Cup Bar? We Found Three.**\
+`Spots for wings, B.Y.O.D. (bring your own dumplings) and prime rib hash.`\
+https://www.nytimes.com/2026/06/18/dining/looking-for-a-perfect-world-cup-bar-we-found-three.html
+
 **The ‘Rivalry’ Between Vance and Rubio**\
 `There’s no “intense rivalry behind the scenes” between JD Vance and Secretary of State Marco Rubio, the vice president argues on “Interesting Times.” The Opinion columnist Ross Douthat asks the vice president what happens to his political future if the Iran deal goes poorly.`\
 https://www.nytimes.com/video/opinion/100000010968360/the-rivalry-between-vance-and-rubio.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/18/world/europe/major-oak-tree-dies.html
 **Iran and the U.S. Have an Understanding. Will It Lead to a Deal?**\
 `Europe and the larger world will be watching carefully to see if talks produce a lasting agreement on Iran’s nuclear program and the Strait of Hormuz.`\
 https://www.nytimes.com/2026/06/18/world/europe/iran-united-states-deal-israel.html
-
-**Amazon Retaliated Against Workers Who Supported Regulating Data Centers, Complaint Says**\
-`The employees encouraged limits on the complexes in a series of hearings in the tech giant’s hometown, Seattle.`\
-https://www.nytimes.com/2026/06/18/technology/amazon-worker-retaliation-data-center-complaints.html
-
-**Trump Says Apple to Buy Computer Chips from Intel**\
-`While neither company has publicly discussed the deal, it would be a big break for Intel, which sold a 10 percent stake to the U.S. government last year.`\
-https://www.nytimes.com/2026/06/18/technology/apple-intel-trump-chips.html
 
