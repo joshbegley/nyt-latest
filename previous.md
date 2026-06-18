@@ -1,3 +1,31 @@
+**Amazon Retaliated Against Workers Who Opposed Data Centers, Complaint Says**\
+`The employees encouraged limits on the complexes in a series of hearings in the tech giant’s hometown, Seattle.`\
+https://www.nytimes.com/2026/06/18/technology/amazon-retaliated-against-workers-who-opposed-data-centers-complaint-says.html
+
+**Trump Says Apple to Buy Computer Chips from Intel**\
+`While neither company has publicly discussed the deal, it would be a big break for Intel, which sold a 10 percent stake to the U.S. government last year.`\
+https://www.nytimes.com/2026/06/18/technology/apple-intel-trump-chips.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/nyregion/100000010977103/18vid-knicks-96456.html
+
+**Trump exigió que Irán se rindiera de manera ‘incondicional’ y se llevó una sorpresa**\
+`Aunque los iraníes sufrieron pérdidas importantes en la guerra, salieron de ese enfrentamiento contra el ejército más poderoso del mundo y demostraron que pueden usar el caos económico como arma.`\
+https://www.nytimes.com/es/2026/06/18/espanol/estados-unidos/trump-iran-acuerdo-estrecho-nuclear.html
+
+**Today, In Short**\
+`Sleep types. The plague. Messi’s hat trick`\
+https://www.nytimes.com/2026/06/18/briefing/today-in-short.html
+
+**Watch Live: Knicks City Hall Ceremony**\
+`New York City celebrates the Knicks’ N.B.A. championship win with a ceremony at City Hall Plaza.`\
+https://www.nytimes.com/video/embedded/nyregion/100000010976505/watch-live-knicks-city-hall-ceremony.html
+
+**Many World Cup Fans Would Rather Skip the Hydration Breaks**\
+`It’s hot in North America in June, but fans are griping that the breaks that have been added to each half are an excuse for the networks to show more ads.`\
+https://www.nytimes.com/2026/06/18/us/world-cup-hydration-breaks.html
+
 **Jose Alvarado the Photographer Looks Back on the Knicks’ Magic**\
 `While fans watched their team, José A. Alvarado Jr. watched the crowd.`\
 https://www.nytimes.com/2026/06/18/insider/knicks-ny-photos-nba-finals.html
@@ -155,7 +183,7 @@ https://www.nytimes.com/2026/06/18/podcasts/gio-reyna-usmnt-uruguay-marcelo-biel
 https://www.nytimes.com/es/2026/06/18/espanol/mundo/trump-g7-europa.html
 
 **Iran War Live Updates: Vance Defends Iran Deal as Criticism Mounts**\
-`The vice president told reporters Iran’s nuclear program “has been completely destroyed” and its capacity to threaten its neighbors is “largely gone.”  He said Iran will only receive economic benefits if its leaders “change their behavior.”`\
+`The vice president told reporters Iran’s nuclear program “has been completely destroyed” and its capacity to threaten its neighbors is “largely gone.”  He contended Iran will only receive economic benefits if its leaders “change their behavior.”`\
 https://www.nytimes.com/live/2026/06/18/world/iran-war-trump-us-deal
 
 **Archbishop of Canterbury Apologizes for Church of England’s Role in Forced Adoptions**\
@@ -169,32 +197,4 @@ https://www.nytimes.com/2026/06/18/podcasts/the-headlines/iran-benefit-deal-us-a
 **The Untold Story of Jeffrey Epstein’s Death**\
 `The official account of how the sex trafficker died in prison generated suspicions inflamed by the release of tens of thousands of documents from investigations into his death.`\
 https://www.nytimes.com/2026/06/18/podcasts/the-daily/jeffrey-epstein-death-investigation.html
-
-**NYT Connections Answers for June 19, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, June 19, 2025.`\
-https://www.nytimes.com/2026/06/18/crosswords/connections-companion-1104.html
-
-**Today’s Wordle Hints for June 19, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, June 19, 2026.`\
-https://www.nytimes.com/2026/06/18/crosswords/wordle-review-1826.html
-
-**NYT Strands Hints for June 19, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, June 19, 2026.`\
-https://www.nytimes.com/2026/06/18/crosswords/strands-sidekick-838.html
-
-**As India Temporarily Bans Telegram, Which Other Countries Have Restricted the Messaging App?**\
-`Several countries have restricted the messaging app, a valuable platform for dissidents, criminals and extremists. Here’s an overview.`\
-https://www.nytimes.com/2026/06/18/technology/telegram-ban-india.html
-
-**Live Updates: Knicks Parade Up Broadway, a Celebration Decades in the Making**\
-`The N.B.A. championship team is riding through packed sidewalks and streets that hit capacity hours before the festivities began. Fans have waited more than five decades to celebrate a title.`\
-https://www.nytimes.com/live/2026/06/18/nyregion/knicks-parade
-
-**Do Sports Owners Win Championships?**\
-`Reacting to James Dolan’s speech to the Knicks, and Jalen Brunson’s $113 million sacrifice.`\
-https://www.nytimes.com/2026/06/18/podcasts/do-sports-owners-win-championships.html
-
-**Iran Gets Major Economic Lifeline for Minimal Concessions in Initial Deal**\
-`The agreement delays the most difficult steps for Iran for later talks, while granting it crucial benefits.`\
-https://www.nytimes.com/2026/06/18/world/middleeast/iran-deal-oil-strait-of-hormuz-nuclear.html
 

@@ -1,6 +1,10 @@
+**Iran and the U.S. Have an Understanding. Will It Lead to a Deal?**\
+`Europe and the larger world will be watching carefully to see if talks produce a lasting agreement on Iran’s nuclear program and the Strait of Hormuz.`\
+https://www.nytimes.com/2026/06/18/world/europe/iran-united-states-deal-israel.html
+
 **Amazon Retaliated Against Workers Who Opposed Data Centers, Complaint Says**\
 `The employees encouraged limits on the complexes in a series of hearings in the tech giant’s hometown, Seattle.`\
-https://www.nytimes.com/2026/06/18/technology/amazon-retaliated-against-workers-who-opposed-data-centers-complaint-says.html
+https://www.nytimes.com/2026/06/18/technology/amazon-worker-retaliation-data-center-complaints.html
 
 **Trump Says Apple to Buy Computer Chips from Intel**\
 `While neither company has publicly discussed the deal, it would be a big break for Intel, which sold a 10 percent stake to the U.S. government last year.`\
@@ -46,7 +50,7 @@ https://www.nytimes.com/2026/06/18/world/europe/uk-pits-stonehenge-britain-disco
 `A novelist who immigrated from the Soviet Union tours Thomas Jefferson’s home with his American-born history-buff son.`\
 https://www.nytimes.com/2026/06/18/travel/novelist-immigrant-thomas-jefferson-home-son.html
 
-**London Hospital Worker Tried to Sell Catherine’s Medical Records, Reports Say**\
+**London Hospital Worker Tried to Sell Princess Catherine’s Medical Records, Reports Say**\
 `Britain’s data regulator said it had reprimanded a health worker for misusing sensitive information. The hospital said the person no longer worked there.`\
 https://www.nytimes.com/2026/06/18/world/europe/princess-kate-medical-records-sale-uk.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/18/world/europe/church-england-apology-forced-ad
 **How Iran Could Benefit From Its Deal With the U.S., and an A.I. Arms Race in Schools**\
 `Plus, the “Obamalisk” opens.`\
 https://www.nytimes.com/2026/06/18/podcasts/the-headlines/iran-benefit-deal-us-and-artificial-intelligence-arms-race-schools.html
-
-**The Untold Story of Jeffrey Epstein’s Death**\
-`The official account of how the sex trafficker died in prison generated suspicions inflamed by the release of tens of thousands of documents from investigations into his death.`\
-https://www.nytimes.com/2026/06/18/podcasts/the-daily/jeffrey-epstein-death-investigation.html
 

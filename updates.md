@@ -1,3 +1,35 @@
+**Amazon Retaliated Against Workers Who Opposed Data Centers, Complaint Says**\
+`The employees encouraged limits on the complexes in a series of hearings in the tech giant’s hometown, Seattle.`\
+https://www.nytimes.com/2026/06/18/technology/amazon-retaliated-against-workers-who-opposed-data-centers-complaint-says.html
+
+**Trump Says Apple to Buy Computer Chips from Intel**\
+`While neither company has publicly discussed the deal, it would be a big break for Intel, which sold a 10 percent stake to the U.S. government last year.`\
+https://www.nytimes.com/2026/06/18/technology/apple-intel-trump-chips.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/nyregion/100000010977103/18vid-knicks-96456.html
+
+**Trump exigió que Irán se rindiera de manera ‘incondicional’ y se llevó una sorpresa**\
+`Aunque los iraníes sufrieron pérdidas importantes en la guerra, salieron de ese enfrentamiento contra el ejército más poderoso del mundo y demostraron que pueden usar el caos económico como arma.`\
+https://www.nytimes.com/es/2026/06/18/espanol/estados-unidos/trump-iran-acuerdo-estrecho-nuclear.html
+
+**Today, In Short**\
+`Sleep types. The plague. Messi’s hat trick`\
+https://www.nytimes.com/2026/06/18/briefing/today-in-short.html
+
+**Watch Live: Knicks City Hall Ceremony**\
+`New York City celebrates the Knicks’ N.B.A. championship win with a ceremony at City Hall Plaza.`\
+https://www.nytimes.com/video/embedded/nyregion/100000010976505/watch-live-knicks-city-hall-ceremony.html
+
+**Many World Cup Fans Would Rather Skip the Hydration Breaks**\
+`It’s hot in North America in June, but fans are griping that the breaks that have been added to each half are an excuse for the networks to show more ads.`\
+https://www.nytimes.com/2026/06/18/us/world-cup-hydration-breaks.html
+
+**Iran War Live Updates: Vance Defends Iran Deal as Criticism Mounts**\
+`The vice president told reporters Iran’s nuclear program “has been completely destroyed” and its capacity to threaten its neighbors is “largely gone.”  He contended Iran will only receive economic benefits if its leaders “change their behavior.”`\
+https://www.nytimes.com/live/2026/06/18/world/iran-war-trump-us-deal
+
 **Mira el desfile triunfal de los Knicks**\
 `Los aficionados se reúnen este jueves en Manhattan para animar a los campeones de la NBA en una celebración muy esperada.`\
 https://www.nytimes.com/es/2026/06/18/espanol/deportes/knicks-campeonato-desfile-celebracion.html
