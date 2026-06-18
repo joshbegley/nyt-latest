@@ -1,3 +1,7 @@
+**Warsh Makes His Case With Jargon, and a Penchant for Detail**\
+`The Federal Reserve’s new chairman held a press conference where he bantered with reporters and laid out a vision for change at the central bank.`\
+https://www.nytimes.com/2026/06/17/business/economy/warsh-fed-chairman-first-press-conference.html
+
 **Boyle Heights Warehouse Fire Prompts Thousands of L.A. Residents to Shelter in Place**\
 `Heavy black smoke was visible across much of Los Angeles as flames tore through a 491,000-square-foot building just east of downtown.`\
 https://www.nytimes.com/2026/06/17/us/los-angeles-warehouse-fire-boyle-heights.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/17/business/economy/kevin-warsh-fed-statement.ht
 **What to Know if You’re Going to the Knicks Parade**\
 `New Yorkers will descend on Lower Manhattan on Thursday morning to celebrate the Knicks. Here’s what you should know if you are one of them.`\
 https://www.nytimes.com/2026/06/17/nyregion/how-to-go-knicks-parade-nyc.html
-
-**Trump Administration to Pay $765 Million to Cancel 4 More Wind Projects**\
-`It’s the third such deal the Interior Department has struck to pay firms to abandon plans for offshore turbines, spending roughly $2.5 billion to get companies to abandon their wind projects.`\
-https://www.nytimes.com/2026/06/17/climate/trump-wind-farms-cancel-millions.html
 
 **Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
 `Chairman Kevin M. Warsh vowed to start a “new chapter” in the Federal Reserve’s oversight of the U.S. economy.`\

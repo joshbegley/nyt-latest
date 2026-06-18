@@ -1,3 +1,7 @@
+**Warsh Makes His Case With Jargon, and a Penchant for Detail**\
+`The Federal Reserve’s new chairman held a press conference where he bantered with reporters and laid out a vision for change at the central bank.`\
+https://www.nytimes.com/2026/06/17/business/economy/warsh-fed-chairman-first-press-conference.html
+
 **Man Dies in Fall From Horse Carriage in Central Park**\
 `The horse bolted after the driver stepped out to take a photo of the passengers, the carriage drivers’ union said, and an 18-year-old tourist from India fell from the driverless carriage.`\
 https://www.nytimes.com/2026/06/17/nyregion/horse-carriage-central-park-injury.html
