@@ -1,3 +1,7 @@
+**Average U.S. Gasoline Price Falls Below $4 for First Time in Months**\
+`Drivers are enjoying some relief at the pump after the United States and Iran signed an agreement to reopen the Strait of Hormuz.`\
+https://www.nytimes.com/2026/06/18/business/energy-environment/iran-war-gasoline-prices.html
+
 **When in Jersey for the World Cup, Do as the Locals Do. (Go to a Mall.)**\
 `There is no tailgating at MetLife Stadium, which is surrounded by swampland and highways. But there is a three-million-square-foot megamall nearby.`\
 https://www.nytimes.com/2026/06/18/nyregion/american-dream-mall-world-cup.html

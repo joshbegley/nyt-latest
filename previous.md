@@ -1,3 +1,7 @@
+**Average U.S. Gasoline Price Falls Below $4 for First Time in Months**\
+`Drivers are enjoying some relief at the pump after the United States and Iran signed an agreement to reopen the Strait of Hormuz.`\
+https://www.nytimes.com/2026/06/18/business/energy-environment/iran-war-gasoline-prices.html
+
 **Oil Prices Fall as U.S.-Iran Deal to Reopen Hormuz Takes Effect**\
 `Oil prices fell and stocks rose after Pakistan announced that the agreement to reopen the Strait of Hormuz would take effect immediately.`\
 https://www.nytimes.com/2026/06/18/business/oil-gas-prices-iran.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/17/arts/television/matlock-lawsuit-harassment.ht
 **‘The Whole World Saw That’: Congo Fans Rejoice in Draw With Portugal**\
 `“If you’re coming to face Congo,” one fan said after his team stunned Portugal, a global soccer powerhouse, “just get ready to run and to fight, because we’re going to give it to you.”`\
 https://www.nytimes.com/2026/06/17/us/congo-fans-portugal-tie.html
-
-**Trump Defends Deal to End the War With Iran as Details Emerge**\
-`President Trump lashed out at critics who say the agreement achieves less than the one President Barack Obama signed in 2015, and he threatened to bomb Iran again if it violated the deal.`\
-https://www.nytimes.com/2026/06/17/world/middleeast/trump-iran-deal-obama.html
 
