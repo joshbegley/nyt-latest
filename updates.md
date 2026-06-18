@@ -1,3 +1,11 @@
+**‘Voicemails for Isabelle’ Review: An Unexpected Recipient**\
+`The movie, starring Zoey Deutch and Nick Robinson, begins as a tear-jerker and morphs into a poignant rom-com.`\
+https://www.nytimes.com/2026/06/18/movies/voicemails-for-isabelle-review-an-unexpected-recipient.html
+
+**Knicks Fans Celebrate With Ticker-Tape Parade**\
+`The ticker-tape parade for the New York Knicks championship took over downtown Manhattan and culminated with a ceremony at City Hall.`\
+https://www.nytimes.com/video/nyregion/100000010976525/knicks-fans-celebrate-with-ticker-tape-parade.html
+
 **NYC Erupts in Celebration Over Knicks Championship Win**\
 `New York City found a reason to party on Thursday, cheering, crying and climbing around Broadway to celebrate the Knicks’ N.B.A. championship.`\
 https://www.nytimes.com/2026/06/18/nyregion/knicks-championship-parade-celebration-nyc.html
