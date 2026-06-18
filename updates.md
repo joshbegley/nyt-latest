@@ -1,3 +1,15 @@
+**The Mexican Artist Ramòn Saturnino Is Breaking Down Walls**\
+`Ramòn Saturnino, an architect by training, is showing his work on the U.S.-Mexico border wall for the first time at Art Basel.`\
+https://www.nytimes.com/2026/06/18/arts/design/ramon-saturnino-art-basel.html
+
+**At Past Championship Parades, Many Students Skipped School**\
+`Mayor Zohran Mamdani encouraged students to stay in school during the Knicks parade on Thursday, which packed Lower Manhattan and the subways with fans.`\
+https://www.nytimes.com/2026/06/18/nyregion/knicks-parade-students-skip-school.html
+
+**Philadelphia Cannot Force Mention of Slavery at Historic Home, Court Rules**\
+`A three-judge appeals panel threw out a lower court’s order requiring the federal government to restore a memorial and historical display at George Washington’s former house.`\
+https://www.nytimes.com/2026/06/18/us/politics/washington-house-slavery-appeals.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/nyregion/100000010977450/18vid-knicks-61693.html

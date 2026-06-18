@@ -1,3 +1,15 @@
+**The Mexican Artist Ramòn Saturnino Is Breaking Down Walls**\
+`Ramòn Saturnino, an architect by training, is showing his work on the U.S.-Mexico border wall for the first time at Art Basel.`\
+https://www.nytimes.com/2026/06/18/arts/design/ramon-saturnino-art-basel.html
+
+**At Past Championship Parades, Many Students Skipped School**\
+`Mayor Zohran Mamdani encouraged students to stay in school during the Knicks parade on Thursday, which packed Lower Manhattan and the subways with fans.`\
+https://www.nytimes.com/2026/06/18/nyregion/knicks-parade-students-skip-school.html
+
+**Philadelphia Cannot Force Mention of Slavery at Historic Home, Court Rules**\
+`A three-judge appeals panel threw out a lower court’s order requiring the federal government to restore a memorial and historical display at George Washington’s former house.`\
+https://www.nytimes.com/2026/06/18/us/politics/washington-house-slavery-appeals.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/nyregion/100000010977450/18vid-knicks-61693.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/video/embedded/sports/basketball/100000010976359/18vid-k
 **Warsh Wants the Fed to Send Fewer Signals. That Comes With Risks.**\
 `Investors piled on bets for higher borrowing costs after Kevin Warsh opted against providing policy guidance at his first meeting as Federal Reserve chairman.`\
 https://www.nytimes.com/2026/06/18/business/federal-reserve-warsh-interest-rates.html
-
-**See the Knicks Championship Parade Unfold**\
-`Fans are gathering in Manhattan on Thursday to cheer on the N.B.A. champions at a parade that has been 53 years in the making.`\
-https://www.nytimes.com/2026/06/18/nyregion/18met-knicks-parade-photos.html
-
-**Pete Hegseth Scolds NATO Allies**\
-`U.S. Defense Secretary Pete Hegseth on Thursday berated NATO allies for not assisting in American strikes against Iran and announced a review of U.S. forces in Europe as a result.`\
-https://www.nytimes.com/video/world/100000010976078/hegseth-nato-allies-iran-war.html
-
-**Warsh’s Hawkish Turn Has Scrambled the Math on Rates**\
-`The futures market now sees at least one interest rate increase this year, as the Federal Reserve’s new leader, Kevin Warsh, vows to fight inflation.`\
-https://www.nytimes.com/2026/06/18/business/dealbook/warsh-fed-rates.html
 
