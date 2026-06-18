@@ -1,3 +1,7 @@
+**Knicks Accept a White House Invitation to Celebrate Title, Owner Says**\
+`James Dolan said he was “very proud” to bring his championship team to Washington. It would be the first N.B.A. team to visit the White House with Trump as president.`\
+https://www.nytimes.com/2026/06/17/nyregion/knicks-white-house-visit.html
+
 **Kansas City Police Seek Gunman in Spree of Five Roadway Shootings**\
 `The attacks, which killed one and injured four, played out as the city was preparing to host its first World Cup match. An Uber driver taking Argentina fans to the stadium was among the victims.`\
 https://www.nytimes.com/2026/06/17/us/kansas-city-shooting-spree-world-cup.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/17/arts/music/mystikal-rape-prison-sentence.html
 **New Plan Scales Back C.D.C.’s Work on Diseases Abroad**\
 `The State Department is taking over much of the control of global health initiatives, for which critics say the department does not have the expertise.`\
 https://www.nytimes.com/2026/06/17/health/pepfar-cdc-cuts.html
-
-**Biden’s Re-Election Bid Was a ‘Terrible Mistake,’ Hillary Clinton Says**\
-`During an interview with The New Yorker’s editor, David Remnick, Hillary Clinton called Biden’s re-election bid a terrible mistake. The former first lady and presidential candidate also said that she believes that another Democratic candidate could have beaten President Trump.`\
-https://www.nytimes.com/video/us/elections/100000010973997/biden-clinton-2024-election.html
 
 **Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
 `Chairman Kevin M. Warsh vowed to start a “new chapter” in the Federal Reserve’s oversight of the U.S. economy.`\
