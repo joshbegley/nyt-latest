@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/06/18/insider/knicks-ny-photos-nba-finals.html
 
 **Mira el desfile triunfal de los Knicks**\
-`Los aficionados se reúnen este jueves en Manhattan para animar a los campeones de la NBA en un desfile que se ha tardado 53 años.`\
+`Los aficionados se reúnen este jueves en Manhattan para animar a los campeones de la NBA en una celebración muy esperada.`\
 https://www.nytimes.com/es/2026/06/18/espanol/deportes/knicks-campeonato-desfile-celebracion.html
 
 **Tornadoes Cause Damage as Storms Sweep the Midwest**\
