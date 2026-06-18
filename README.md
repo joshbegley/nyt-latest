@@ -1,3 +1,15 @@
+**Rama Duwaji Had the Winning Look at the Knicks Parade**\
+`The first lady and the mayor showed up for the celebration in style.`\
+https://www.nytimes.com/2026/06/18/style/rama-duwaji-knicks-parade-mamdani.html
+
+**25 preguntas para conocer mejor a papá**\
+`Este Día del Padre, renueva tus temas de conversación y conoce un poco más a una de las figuras más importantes de tu vida.`\
+https://www.nytimes.com/es/interactive/2026/06/18/well/family/como-hablar-papa-dia-padre.html
+
+**Father’s Day: 25 Questions to Bring You Closer to Your Dad**\
+`This Father’s Day, open up a new channel of communication.`\
+https://www.nytimes.com/interactive/2026/06/18/well/family/fathers-day-questions.html
+
 **One Knicks Jersey Was Not Like the Others at City Hall**\
 `The Knicks retired No. 33, the number that belonged to Patrick Ewing, in 2003. But a jersey with the number was featured at the City Hall ceremony on Thursday.`\
 https://www.nytimes.com/2026/06/18/nyregion/ewing-jersey-knicks-parade.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/18/us/politics/trump-regime-change-book-haberman
 **The Mexican Artist Ramòn Saturnino Is Breaking Down Walls**\
 `Ramón Saturnino, an architect by training, is showing his work on the U.S.-Mexico border wall for the first time at Art Basel.`\
 https://www.nytimes.com/2026/06/18/arts/design/ramon-saturnino-art-basel.html
-
-**At Past Championship Parades, Many Students Skipped School**\
-`Mayor Zohran Mamdani encouraged students to stay in school during the Knicks parade on Thursday, which packed Lower Manhattan and the subways with fans.`\
-https://www.nytimes.com/2026/06/18/nyregion/knicks-parade-students-skip-school.html
-
-**Philadelphia Can’t Force Mention of Slavery at Historic Home, Court Rules**\
-`A three-judge appeals panel threw out a lower court’s order requiring the federal government to restore a memorial and historical display at George Washington’s former house.`\
-https://www.nytimes.com/2026/06/18/us/politics/washington-house-slavery-appeals.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/nyregion/100000010977450/18vid-knicks-61693.html
 

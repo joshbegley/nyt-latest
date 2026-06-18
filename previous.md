@@ -1,3 +1,7 @@
+**One Knicks Jersey Was Not Like the Others at City Hall**\
+`The Knicks retired No. 33, the number that belonged to Patrick Ewing, in 2003. But a jersey with the number was featured at the City Hall ceremony on Thursday.`\
+https://www.nytimes.com/2026/06/18/nyregion/ewing-jersey-knicks-parade.html
+
 **Stephen Colbert Nods to Obama’s Tan Suit at Presidential Center Opening**\
 `Celebrity guests paid winking homage to President Obama’s notorious tan suit.`\
 https://www.nytimes.com/2026/06/18/style/obama-tan-suit-stephen-colbert.html
@@ -62,8 +66,8 @@ https://www.nytimes.com/2026/06/18/us/barack-michelle-obama-speeches.html
 `Did JD Vance privately agree with the pope on the Iran war while publicly fighting with him? Ross Douthat asks the vice president on “Interesting Times.”`\
 https://www.nytimes.com/video/opinion/100000010968359/jd-vance-im-not-fighting-with-the-pope.html
 
-**Three Medals of Honor to Be Awarded to Vietnam and Afghanistan Veterans**\
-`Two Force Recon Marines are set to receive the medal on Thursday for their actions more than 50 years ago, alongside an Army officer who showed exceptional bravery in 2012.`\
+**Three Medals of Honor Awarded to Vietnam and Afghanistan Veterans**\
+`Two Force Recon Marines received the medal on Thursday for their actions more than 50 years ago, alongside an Army officer who showed exceptional bravery in 2012.`\
 https://www.nytimes.com/2026/06/18/us/politics/trump-medals-of-honor.html
 
 **These World Cup Tourists Loving American Food Aren’t All What They Seem**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/18/us/politics/washington-house-slavery-appeals.
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/nyregion/100000010977450/18vid-knicks-61693.html
-
-**19-Year-Old Suspect in Consulate Shooting Arrested at Toronto Airport**\
-`The teen had fled from the police during a raid at an apartment building that set off a shootout, which left an officer dead and another suspect injured.`\
-https://www.nytimes.com/2026/06/18/world/canada/toronto-police-shooting-suspect-arrest.html
 
