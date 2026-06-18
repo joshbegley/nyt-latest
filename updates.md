@@ -1,3 +1,7 @@
+**‘Disclosure Day’ and How We Respond to the Unknown**\
+`Wesley Morris invites his friend, the film curator Eric Hynes, to consider the evolution of aliens in Steven Spielberg’s films.`\
+https://www.nytimes.com/video/podcasts/100000010978728/spielbergs-disclosure-day-and-how-we-respond-to-the-unknown.html
+
 **Absent Congressman to Return to House in 12 Days, Aide Says**\
 `Thomas Kean Jr. has missed three months of votes in Washington and has not been on the campaign trail in his New Jersey district because of an unexplained health condition.`\
 https://www.nytimes.com/2026/06/18/nyregion/representative-tom-kean-return-to-congress.html

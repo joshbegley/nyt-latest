@@ -114,7 +114,7 @@ https://www.nytimes.com/video/opinion/100000010968360/the-rivalry-between-vance-
 `Voters in the northern English district of Makerfield cast ballots on Thursday to choose their representative in Parliament, the outcome of which could lead to Prime Minister Keir Starmer’s ouster.`\
 https://www.nytimes.com/video/world/europe/100000010976921/england-makerfield-election.html
 
-**Knicks in Five. The City Is Alive.**\
+**NYC Erupts in Celebration Over Knicks Championship Win**\
 `New York City found a reason to party on Thursday, cheering, crying and climbing around Broadway to celebrate the Knicks’ N.B.A. championship.`\
 https://www.nytimes.com/2026/06/18/nyregion/knicks-championship-parade-celebration-nyc.html
 
