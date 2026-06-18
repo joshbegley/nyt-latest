@@ -1,3 +1,11 @@
+**Rasmus Munk: I’m Driven by Food’s Emotional Power**\
+`As a chef, I am driven not only by how a dish tastes, but the emotions that it evokes.`\
+https://www.nytimes.com/2026/06/18/special-series/rasmus-munk-food-emotions.html
+
+**Don’t Blame Plunging Birthrates on Phones**\
+`Low fertility rates are a lagging indicator, the final outcome of a string of social shifts.`\
+https://www.nytimes.com/2026/06/18/opinion/iphones-birthrate-decline.html
+
 **Texas Report Finds That 39 Adults Could Have Helped Girls at Camp Mystic**\
 `The finding was part of a growing case against the camp’s leadership, which state investigators said did not organize an evacuation in time “despite ample opportunity.”`\
 https://www.nytimes.com/2026/06/18/us/texas-flooding-evacuation-camp-mystic.html
@@ -66,7 +74,7 @@ https://www.nytimes.com/2026/06/18/arts/design/ramon-saturnino-art-basel.html
 `Mayor Zohran Mamdani encouraged students to stay in school during the Knicks parade on Thursday, which packed Lower Manhattan and the subways with fans.`\
 https://www.nytimes.com/2026/06/18/nyregion/knicks-parade-students-skip-school.html
 
-**Philadelphia Cannot Force Mention of Slavery at Historic Home, Court Rules**\
+**Philadelphia Can’t Force Mention of Slavery at Historic Home, Court Rules**\
 `A three-judge appeals panel threw out a lower court’s order requiring the federal government to restore a memorial and historical display at George Washington’s former house.`\
 https://www.nytimes.com/2026/06/18/us/politics/washington-house-slavery-appeals.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/18/well/mind/inflammation-depression-treatment.h
 **Trump Administration Backs Off Plan to End Ocean Monitoring System**\
 `The reversal comes after the Senate passed a bipartisan bill on Wednesday to block the removal of deep-sea monitoring instruments.`\
 https://www.nytimes.com/2026/06/18/climate/trump-ocean-observatories-initiative.html
-
-**McCarthy Aide’s Tell-All Book Recounts Trump’s Expletive-Filled Threats to G.O.P.**\
-`A new book by John Leganski, the floor manager for former Speaker Kevin McCarthy, offers a rare behind-the-scenes account of how President Trump wields his power through threats and intimidation.`\
-https://www.nytimes.com/2026/06/18/us/politics/mccarthy-trump-speaker-book.html
-
-**Centrist Democrat Concedes to Socialist in D.C. Mayoral Primary**\
-`President Trump’s grip on the capital loomed over the race, and he threatened to tighten it if Councilwoman Janeese Lewis George is elected. The Associated Press has not called the race.`\
-https://www.nytimes.com/2026/06/18/us/elections/washington-mayoral-primary.html
 
