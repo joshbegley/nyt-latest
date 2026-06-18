@@ -1,3 +1,15 @@
+**NYT Crossword Answers for June 18, 2026**\
+`Scott Hogan gets long words out of short clues.`\
+https://www.nytimes.com/2026/06/17/crosswords/daily-puzzle-2026-06-18.html
+
+**Prosecutors Say Man Used Charity Scheme to Raise Thousands for Hamas**\
+`The suspect used social media accounts, crowd-funding sites and a charity to solicit hundreds of thousands of dollars in donations, a complaint said.`\
+https://www.nytimes.com/2026/06/17/nyregion/hamas-money-charity.html
+
+**18-Year-Old Dies in Fall From Horse Carriage in Central Park**\
+`After the driver stepped out to take a photo of the passengers, the horse bolted, and a tourist from India fell from the driverless carriage. “We were yelling, ‘Help me, help me!’” said his father.`\
+https://www.nytimes.com/2026/06/17/nyregion/horse-carriage-central-park-injury.html
+
 **La tormenta tropical Arthur azota la costa del golfo de México mientras avanza tierra adentro**\
 `Arthur acaba de convertirse en la primera tormenta tropical con nombre de la temporada de huracanes del Atlántico de este año. Esta semana ha provocado fuertes lluvias e inundaciones en Texas, y se esperan más.`\
 https://www.nytimes.com/es/2026/06/17/espanol/tiempo-y-clima/tormenta-tropical-arthur.html

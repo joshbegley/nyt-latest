@@ -1,3 +1,7 @@
+**Kansas City Police Seek Gunman in Spree of Five Roadway Shootings**\
+`The attacks, which killed one and injured four, played out as the city was preparing to host its first World Cup match. An Uber driver taking Argentina fans to the stadium was among the victims.`\
+https://www.nytimes.com/2026/06/17/us/kansas-city-shooting-spree-world-cup.html
+
 **NYT Crossword Answers for June 18, 2026**\
 `Scott Hogan gets long words out of short clues.`\
 https://www.nytimes.com/2026/06/17/crosswords/daily-puzzle-2026-06-18.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/17/health/pepfar-cdc-cuts.html
 **Biden’s Re-Election Bid Was a ‘Terrible Mistake,’ Hillary Clinton Says**\
 `During an interview with The New Yorker’s editor, David Remnick, Hillary Clinton called Biden’s re-election bid a terrible mistake. The former first lady and presidential candidate also said that she believes that another Democratic candidate could have beaten President Trump.`\
 https://www.nytimes.com/video/us/elections/100000010973997/biden-clinton-2024-election.html
-
-**What Young Men Thought of Trump’s U.F.C. Fight**\
-`The spectacle seemed targeted to the young male voters drifting away from the president. Some were skeptical.`\
-https://www.nytimes.com/2026/06/17/style/trump-ufc-white-house-young-men.html
 
 **Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
 `Chairman Kevin M. Warsh vowed to start a “new chapter” in the Federal Reserve’s oversight of the U.S. economy.`\
