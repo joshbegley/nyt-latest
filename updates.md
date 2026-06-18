@@ -1,3 +1,7 @@
+**‘The Last 12 Weeks’ Is Out Today. Here’s the Backstory.**\
+`Host Maurice Chammah introduces Serial Productions’ latest show.`\
+https://www.nytimes.com/2026/06/18/podcasts/the-last-12-weeks-is-out-today-heres-the-backstory.html
+
 **Gio Reyna’s Journey Back to USMNT, and Uruguay’s Enigmatic Coach, Marcelo Bielsa**\
 `Has the midfielder redeemed himself?`\
 https://www.nytimes.com/2026/06/18/podcasts/gio-reyna-usmnt-uruguay-marcelo-bielsa.html
