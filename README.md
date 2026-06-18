@@ -134,7 +134,7 @@ https://www.nytimes.com/2026/06/18/podcasts/gio-reyna-usmnt-uruguay-marcelo-biel
 `Sus declaraciones incendiarias de última hora fueron un recordatorio de lo que puede pasar cuando su estilo sin filtros e improvisado choca con el ritmo diplomático y la meticulosa coreografía de una cumbre internacional.`\
 https://www.nytimes.com/es/2026/06/18/espanol/mundo/trump-g7-europa.html
 
-**Iran War Live Updates: Vance to Brief Reporters on Iran Deal as Criticism Mounts**\
+**Iran War Live Updates: Vance Defends Iran Deal as Criticism Mounts**\
 `With an initial agreement signed by both sides, oil could soon flow again through the Strait of Hormuz. But prospects for a long-term deal on nuclear issues remained murky.`\
 https://www.nytimes.com/live/2026/06/18/world/iran-war-trump-us-deal
 
