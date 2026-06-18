@@ -51,7 +51,7 @@ https://www.nytimes.com/2026/06/17/us/los-angeles-warehouse-fire-boyle-heights.h
 https://www.nytimes.com/2026/06/17/us/robert-thurman-dead.html
 
 **Prosecutors Say Man Used Charity Scheme to Raise Thousands for Hamas**\
-`The suspect used social media accounts, crowd-funding sites and a charity to solicit hundred of thousands of dollars in donations, a complaint said.`\
+`The suspect used social media accounts, crowd-funding sites and a charity to solicit hundreds of thousands of dollars in donations, a complaint said.`\
 https://www.nytimes.com/2026/06/17/nyregion/hamas-money-charity.html
 
 **Hot Mics at G7 Summit Offer Glimpse Into Leaders’ Conversations**\
@@ -75,7 +75,7 @@ https://www.nytimes.com/2026/06/17/weather/tropical-storm-arthur-how-much-rain.h
 https://www.nytimes.com/2026/06/17/nyregion/ice-agent-hit-vehicle-nj.html
 
 **18-Year-Old Dies in Fall From Horse Carriage in Central Park**\
-`The horse bolted after the driver stepped out to take a photo of the passengers, the carriage drivers’ union said, and an tourist from India fell from the driverless carriage.`\
+`After the driver stepped out to take a photo of the passengers, the horse bolted, and a tourist from India fell from the driverless carriage. “We were yelling, ‘Help me, help me!’” said his father.`\
 https://www.nytimes.com/2026/06/17/nyregion/horse-carriage-central-park-injury.html
 
 **Seth Rogen on Fame and Insecurity**\
