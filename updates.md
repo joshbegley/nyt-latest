@@ -1,3 +1,11 @@
+**The Major Oak, Ancient Tree of Robin Hood Legend, Has Died**\
+`The Major Oak in the Sherwood Forest was between 800 and 1,200 years old. It succumbed to a combination of over-tourism, climate change and misguided efforts to save it.`\
+https://www.nytimes.com/2026/06/18/world/europe/major-oak-tree-dies.html
+
+**Amazon Retaliated Against Workers Who Supported Regulating Data Centers, Complaint Says**\
+`The employees encouraged limits on the complexes in a series of hearings in the tech giant’s hometown, Seattle.`\
+https://www.nytimes.com/2026/06/18/technology/amazon-worker-retaliation-data-center-complaints.html
+
 **Iran and the U.S. Have an Understanding. Will It Lead to a Deal?**\
 `Europe and the larger world will be watching carefully to see if talks produce a lasting agreement on Iran’s nuclear program and the Strait of Hormuz.`\
 https://www.nytimes.com/2026/06/18/world/europe/iran-united-states-deal-israel.html
