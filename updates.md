@@ -1,3 +1,31 @@
+**The Last 12 Weeks: Episode 5**\
+`One week before the execution, the defense team awaits a final ruling on David Wood’s life.`\
+https://www.nytimes.com/2026/06/17/podcasts/serial-last-12-weeks-episode-5.html
+
+**Daveigh Chase, ‘Lilo & Stitch’ Voice Actor and ‘The Ring’ Villain, Dies at 35**\
+`She brought the plucky Lilo to life in the popular animated film series, and unnerved viewers as the child villain Samara in the horror film “The Ring.”`\
+https://www.nytimes.com/2026/06/17/arts/daveigh-chase-dead.html
+
+**The Last 12 Weeks: Episode 4**\
+`We visit death row, where David Wood tries to clear his name. But not before a victim of his crimes has her say.`\
+https://www.nytimes.com/2026/06/17/podcasts/serial-last-12-weeks-episode-4.html
+
+**Trump’s Deal With Iran Opens New Rifts in G.O.P.**\
+`Some in the president’s party were skeptical about whether the agreement he reached included adequate concessions from Iranian officials.`\
+https://www.nytimes.com/2026/06/17/us/politics/trump-iran-deal-republicans-criticism.html
+
+**The Last 12 Weeks: Episode 3**\
+`In the final weeks before the execution date, the defense team has to decide just how far it’s willing to push to save David Wood’s life.`\
+https://www.nytimes.com/2026/06/17/podcasts/serial-last-12-weeks-episode-3.html
+
+**The Last 12 Weeks: Episode 2**\
+`With less than two months until the execution, new witnesses offer unexpected revelations.`\
+https://www.nytimes.com/2026/06/17/podcasts/serial-last-12-weeks-episode-2.html
+
+**The Last 12 Weeks: Episode 1**\
+`There are uphill battles … and then there’s David Wood’s case.`\
+https://www.nytimes.com/2026/06/17/podcasts/serial-last-12-weeks-episode-1.html
+
 **Tornadoes Reported in Wisconsin and Illinois as Violent Storms Sweep the Midwest**\
 `The National Weather Service issued several of its highest-level tornado alerts on Wednesday night.`\
 https://www.nytimes.com/2026/06/17/weather/tornadoes-news-illinois-wisconsin-indiana.html

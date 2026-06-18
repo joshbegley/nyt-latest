@@ -1,3 +1,31 @@
+**The Last 12 Weeks: Episode 5**\
+`One week before the execution, the defense team awaits a final ruling on David Wood’s life.`\
+https://www.nytimes.com/2026/06/17/podcasts/serial-last-12-weeks-episode-5.html
+
+**Daveigh Chase, ‘Lilo & Stitch’ Voice Actor and ‘The Ring’ Villain, Dies at 35**\
+`She brought the plucky Lilo to life in the popular animated film series, and unnerved viewers as the child villain Samara in the horror film “The Ring.”`\
+https://www.nytimes.com/2026/06/17/arts/daveigh-chase-dead.html
+
+**The Last 12 Weeks: Episode 4**\
+`We visit death row, where David Wood tries to clear his name. But not before a victim of his crimes has her say.`\
+https://www.nytimes.com/2026/06/17/podcasts/serial-last-12-weeks-episode-4.html
+
+**Trump’s Deal With Iran Opens New Rifts in G.O.P.**\
+`Some in the president’s party were skeptical about whether the agreement he reached included adequate concessions from Iranian officials.`\
+https://www.nytimes.com/2026/06/17/us/politics/trump-iran-deal-republicans-criticism.html
+
+**The Last 12 Weeks: Episode 3**\
+`In the final weeks before the execution date, the defense team has to decide just how far it’s willing to push to save David Wood’s life.`\
+https://www.nytimes.com/2026/06/17/podcasts/serial-last-12-weeks-episode-3.html
+
+**The Last 12 Weeks: Episode 2**\
+`With less than two months until the execution, new witnesses offer unexpected revelations.`\
+https://www.nytimes.com/2026/06/17/podcasts/serial-last-12-weeks-episode-2.html
+
+**The Last 12 Weeks: Episode 1**\
+`There are uphill battles … and then there’s David Wood’s case.`\
+https://www.nytimes.com/2026/06/17/podcasts/serial-last-12-weeks-episode-1.html
+
 **Tornadoes Reported in Wisconsin and Illinois as Violent Storms Sweep the Midwest**\
 `The National Weather Service issued several of its highest-level tornado alerts on Wednesday night.`\
 https://www.nytimes.com/2026/06/17/weather/tornadoes-news-illinois-wisconsin-indiana.html
@@ -161,34 +189,6 @@ https://www.nytimes.com/2026/06/17/us/politics/trump-lahmeyer-house-texting-scan
 **Jamaica in Talks With U.S. to Temporarily Hold Deported Migrants**\
 `It was the latest in a slate of deals the Trump administration has pursued to expel migrants to countries to which they may have no personal ties.`\
 https://www.nytimes.com/2026/06/17/world/americas/jamaica-us-third-country-deportees.html
-
-**Kílian Jornet: Here’s What Keeps Me Going**\
-`When we choose to push forward in the face of physical suffering, we discover ourselves on the other side.`\
-https://www.nytimes.com/2026/06/17/special-series/kilian-jornet-endurance.html
-
-**The Democrats Need a Candidate Shake-Up**\
-`The 2024 election showed that the party is simply not large enough to command a majority of the country.`\
-https://www.nytimes.com/2026/06/17/opinion/democrats-platner-osborn-daniel-moraff.html
-
-**Trump Administration Shares Terms of Iran Deal Including Oil Export Waivers**\
-`The document leaves complicated issues like Iran’s nuclear program still to be decided and a 60-day window to determine them.`\
-https://www.nytimes.com/2026/06/17/world/middleeast/us-iran-deal-trump-hormuz-nuclear.html
-
-**‘Mistakes Are Made,’ Trump Says About Deadly U.S. Strikes on Iranian School**\
-`More than 100 days after U.S. airstrikes demolished an elementary school in the southern Iranian city of Minab, the president said the episode was still under investigation.`\
-https://www.nytimes.com/2026/06/17/world/europe/trump-iran-school-us-strike-minab.html
-
-**‘Why I Love the Beautiful Game’ With Tom Hiddleston**\
-`The Marvel actor discusses why he’s feeling bullish about England’s chances this summer.`\
-https://www.nytimes.com/2026/06/17/podcasts/why-i-love-the-beautiful-game-with-tom-hiddleston.html
-
-**Susan Collins Laments Roe’s Fall but Doesn’t ‘Regret’ Confirming Kavanaugh**\
-`Ms. Collins, a Republican in Maine facing a tough re-election battle, defended her vote to confirm Justice Brett M. Kavanaugh as Democrats look to capitalize on it politically.`\
-https://www.nytimes.com/2026/06/17/us/politics/susan-collins-defends-kavanaugh-vote.html
-
-**See How the First Fed Statement Under Warsh Evolved**\
-`Interest rates didn’t change, but the language in Fed’s policy statement, which it released alongside its rate decision today, certainly did.`\
-https://www.nytimes.com/2026/06/17/business/economy/kevin-warsh-fed-statement.html
 
 **Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
 `Chairman Kevin M. Warsh vowed to start a “new chapter” in the Federal Reserve’s oversight of the U.S. economy.`\

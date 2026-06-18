@@ -1,3 +1,7 @@
+**Before Making a Deal, Trump Demanded Iran’s Surrender. He Got a Surprise.**\
+`While the Iranians suffered substantial losses in the war, they emerged from a confrontation with the world’s most powerful military having proved they can use economic chaos as a weapon.`\
+https://www.nytimes.com/2026/06/17/us/politics/trump-iran-deal-nuclear-program-strait.html
+
 **The Last 12 Weeks: Episode 5**\
 `One week before the execution, the defense team awaits a final ruling on David Wood’s life.`\
 https://www.nytimes.com/2026/06/17/podcasts/serial-last-12-weeks-episode-5.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/17/style/trump-ufc-white-house-young-men.html
 **Trump Rescinds Endorsement of Right-Wing Pastor After Texting Scandal**\
 `The pastor, Jackson Lahmeyer, dropped out of the race for a House seat in Oklahoma as President Trump backed Mr. Lahmeyer’s Republican rival in a runoff election.`\
 https://www.nytimes.com/2026/06/17/us/politics/trump-lahmeyer-house-texting-scandal-tedford.html
-
-**Jamaica in Talks With U.S. to Temporarily Hold Deported Migrants**\
-`It was the latest in a slate of deals the Trump administration has pursued to expel migrants to countries to which they may have no personal ties.`\
-https://www.nytimes.com/2026/06/17/world/americas/jamaica-us-third-country-deportees.html
 
 **Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
 `Chairman Kevin M. Warsh vowed to start a “new chapter” in the Federal Reserve’s oversight of the U.S. economy.`\
