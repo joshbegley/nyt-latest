@@ -1,3 +1,7 @@
+**While You Were Sleeping, They Made Money Saving Spots at the Knicks Parade**\
+`High-demand events in New York City attract people willing to wait in line for hundreds of dollars. The Knicks parade is no different.`\
+https://www.nytimes.com/2026/06/18/nyregion/knicks-parade-route-nyc-airtasker.html
+
 **Gulf States Are Frustrated by Failure to Tackle Iran’s Missiles, Analysts Say**\
 `The preliminary U.S.-Iranian peace deal does not address Iranian rockets or drones, raising questions in the region about relying on Washington as a security guarantor.`\
 https://www.nytimes.com/2026/06/18/world/middleeast/gulf-states-us-iran-deal.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/18/business/spacex-stock-investing-advice.html
 **Spielberg Phones Home in ‘Disclosure Day’ | Cannonball with Wesley Morris**\
 `He once again uses aliens to explore being human.`\
 https://www.nytimes.com/2026/06/18/podcasts/spielberg-phones-home-in-disclosure-day.html
-
-**Spielberg Phones Home in ‘Disclosure Day’**\
-`Wesley Morris and the film curator, Eric Hynes, share thoughts on Steven Spielberg’s latest film, “Disclosure Day.” Together, they consider the evolution of the filmmaker’s canon.`\
-https://www.nytimes.com/video/podcasts/100000010969497/spielberg-phones-home-in-disclosure-day.html
 
