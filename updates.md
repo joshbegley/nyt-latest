@@ -1,3 +1,7 @@
+**Before Making a Deal, Trump Demanded Iran’s Surrender. He Got a Surprise.**\
+`While the Iranians suffered substantial losses in the war, they emerged from a confrontation with the world’s most powerful military having proved they can use economic chaos as a weapon.`\
+https://www.nytimes.com/2026/06/17/us/politics/trump-iran-deal-nuclear-program-strait.html
+
 **The Last 12 Weeks: Episode 5**\
 `One week before the execution, the defense team awaits a final ruling on David Wood’s life.`\
 https://www.nytimes.com/2026/06/17/podcasts/serial-last-12-weeks-episode-5.html
