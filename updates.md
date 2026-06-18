@@ -1,3 +1,7 @@
+**Take Your Business Beyond the Day-to-Day**\
+`In the second part of a two-part series, Mark Valentino, president of Business Banking, and Rebecca O’Connell, president of Corporate Banking, discuss how clients can choose a succession plan based on their financial goals, exit timeline and long-term vision.`\
+http://brandedplaylist.nytimes.com/video/embedded/t-brand/100000010976601/take-your-business-beyond-the-day-to-day.html
+
 **Supreme Court Narrows Law Banning Drug Users From Owning Guns**\
 `A Texas gun owner who faced criminal charges after admitting to marijuana use argued that a federal gun law violated the Second Amendment.`\
 https://www.nytimes.com/2026/06/18/us/politics/supreme-court-drugs-guns.html

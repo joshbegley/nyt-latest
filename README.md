@@ -127,7 +127,7 @@ https://www.nytimes.com/2026/06/18/crosswords/strands-sidekick-838.html
 https://www.nytimes.com/2026/06/18/technology/telegram-ban-india.html
 
 **Live Updates: Knicks Fans Jam Parade Route to Celebrate Long-Awaited Champions**\
-`The sidewalk viewing pens along Broadway hit capacity hours before the 10 a.m. Eastern time start of the festivities. Fans have waited more than five decades to celebrate an N.B.A. champion.`\
+`The sidewalk viewing pens along Broadway hit capacity hours before the start of the festivities. Fans have waited more than five decades to celebrate an N.B.A. champion.`\
 https://www.nytimes.com/live/2026/06/18/nyregion/knicks-parade
 
 **Do Sports Owners Win Championships?**\
