@@ -1,3 +1,7 @@
+**Elecciones en Inglaterra: esto hay que saber sobre las votaciones extraordinarias**\
+`El jueves hay elecciones extraordinarias en Makerfield, un distrito al norte de Inglaterra. Sus resultados podrían provocar la destitución del primer ministro Keir Starmer.`\
+https://www.nytimes.com/es/2026/06/18/espanol/mundo/inglaterra-elecciones-partido-laborista.html
+
 **In Southeast Asia, Switching to Solar Offers Relief from Energy Crisis Caused by Iran War**\
 `Homeowners and businesses in the region, which relies heavily on imported oil, are installing rooftop solar panels to reduce the sting of soaring energy costs.`\
 https://www.nytimes.com/2026/06/18/world/asia/asia-oil-crisis-iran-solar-panels.html

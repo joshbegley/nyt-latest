@@ -1,3 +1,7 @@
+**Elecciones en Inglaterra: esto hay que saber sobre las votaciones extraordinarias**\
+`El jueves hay elecciones extraordinarias en Makerfield, un distrito al norte de Inglaterra. Sus resultados podrían provocar la destitución del primer ministro Keir Starmer.`\
+https://www.nytimes.com/es/2026/06/18/espanol/mundo/inglaterra-elecciones-partido-laborista.html
+
 **In Southeast Asia, Switching to Solar Offers Relief from Energy Crisis Caused by Iran War**\
 `Homeowners and businesses in the region, which relies heavily on imported oil, are installing rooftop solar panels to reduce the sting of soaring energy costs.`\
 https://www.nytimes.com/2026/06/18/world/asia/asia-oil-crisis-iran-solar-panels.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/embedded/us/politics/100000010974909/17vid-Georgia
 **U.S. Will Waive Oil Sanctions That Have Long Crimped Iran**\
 `The preliminary U.S.-Iran deal temporarily waives restrictions that have limited the country’s oil sales and how much money it has been able to make from those exports.`\
 https://www.nytimes.com/2026/06/17/world/europe/us-iran-oil-sanctions.html
-
-**Tropical Storm Arthur Hits World Cup Attendees in Texas**\
-`Attendees lined up for the World Cup in Houston as Tropical Storm Arthur made landfall along the Texas coast on Wednesday.`\
-https://www.nytimes.com/video/weather/100000010974358/tropical-storm-arthur-texas-world-cup.html
 
 **Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
 `Chairman Kevin M. Warsh vowed to start a “new chapter” in the Federal Reserve’s oversight of the U.S. economy.`\
