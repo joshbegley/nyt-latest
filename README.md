@@ -1,3 +1,7 @@
+**Team Medic Recounts Iran’s ‘Stressful’ World Cup Debut in L.A.**\
+`A member of Iran’s medical team says the team endured delays, multiple security searches and a rushed exit, frustrating players and officials.`\
+https://www.nytimes.com/2026/06/17/world/middleeast/iran-world-cup-united-states.html
+
 **Highlights From the Las Culturistas Culture Awards Hosted by Bowen Yang and Matt Rogers**\
 `The comedians Bowen Yang and Matt Rogers honored the nooks and crannies of pop culture at the annual awards show.`\
 https://www.nytimes.com/2026/06/17/style/las-culturistas-culture-awards-bowen-yang-matt-rogers.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/17/us/politics/trump-thune-republicans-election-
 **F.T.C. Sues Group That Advises on Transgender Medical Treatments**\
 `The group, World Professional Association for Transgender Health, offers guidelines on medical treatment for transgender patients.`\
 https://www.nytimes.com/2026/06/17/us/politics/ftc-wpath-transgender-medical-treatments.html
-
-**Mystikal, Louisiana Rapper, Sentenced to 20 Years in Rape Case**\
-`The Grammy-nominated musician pleaded guilty to third-degree rape after a woman told the police she was beaten and assaulted at his home in 2022.`\
-https://www.nytimes.com/2026/06/17/arts/music/mystikal-rape-prison-sentence.html
 
 **Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
 `Chairman Kevin M. Warsh vowed to start a “new chapter” in the Federal Reserve’s oversight of the U.S. economy.`\
