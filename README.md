@@ -1,9 +1,13 @@
+**Tornadoes Reported in Wisconsin and Illinois as Violent Storms Sweep the Midwest**\
+`The National Weather Service issued several of its highest-level tornado alerts on Wednesday night.`\
+https://www.nytimes.com/2026/06/17/weather/tornadoes-news-illinois-wisconsin-indiana.html
+
 **Warsh Makes His Case With Jargon, and a Penchant for Detail**\
 `The Federal Reserve’s new chairman held a press conference where he bantered with reporters and laid out a vision for change at the central bank.`\
 https://www.nytimes.com/2026/06/17/business/economy/warsh-fed-chairman-first-press-conference.html
 
 **Boyle Heights Warehouse Fire Prompts Thousands of L.A. Residents to Shelter in Place**\
-`Heavy black smoke was visible across much of Los Angeles as flames tore through a 491,000-square-foot building just east of downtown.`\
+`Heavy black smoke was visible across much of Los Angeles as flames tore through a nearly 500,000-square-foot building just east of downtown.`\
 https://www.nytimes.com/2026/06/17/us/los-angeles-warehouse-fire-boyle-heights.html
 
 **Robert Thurman, Leading Expert on Tibetan Buddhism and Uma Thurman’s Father, Dies at 84**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/17/us/politics/susan-collins-defends-kavanaugh-v
 **See How the First Fed Statement Under Warsh Evolved**\
 `Interest rates didn’t change, but the language in Fed’s policy statement, which it released alongside its rate decision today, certainly did.`\
 https://www.nytimes.com/2026/06/17/business/economy/kevin-warsh-fed-statement.html
-
-**What to Know if You’re Going to the Knicks Parade**\
-`New Yorkers will descend on Lower Manhattan on Thursday morning to celebrate the Knicks. Here’s what you should know if you are one of them.`\
-https://www.nytimes.com/2026/06/17/nyregion/how-to-go-knicks-parade-nyc.html
 
 **Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
 `Chairman Kevin M. Warsh vowed to start a “new chapter” in the Federal Reserve’s oversight of the U.S. economy.`\
