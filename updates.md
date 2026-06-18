@@ -1,3 +1,7 @@
+**Live Updates: Knicks Fans Jam Parade Route to Celebrate Long-Awaited Champions**\
+`The sidewalk viewing pens along Broadway hit capacity hours before the 10 a.m. Eastern time start of the festivities. Fans have waited more than five decades to celebrate an N.B.A. champion.`\
+https://www.nytimes.com/live/2026/06/18/nyregion/knicks-parade
+
 **While You Were Sleeping, They Made Money Saving Spots at the Knicks Parade**\
 `High-demand events in New York City attract people willing to wait in line for hundreds of dollars. The Knicks parade is no different.`\
 https://www.nytimes.com/2026/06/18/nyregion/knicks-parade-route-nyc-airtasker.html
