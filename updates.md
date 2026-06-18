@@ -1,3 +1,7 @@
+**Iran War Live Updates: Oil Prices Fall as U.S.-Iran Deal Offers Hope for Shipping**\
+`With an initial agreement signed by both sides, oil could soon flow again through the Strait of Hormuz. But prospects for a long-term deal remained murky as talks on tougher issues loomed.`\
+https://www.nytimes.com/live/2026/06/18/world/iran-war-trump-us-deal
+
 **Archbishop of Canterbury Apologizes for Church of England’s Role in Forced Adoptions**\
 `Tens of thousands of babies were taken from unmarried women and girls from the 1950s to the 1980s in England and Wales.`\
 https://www.nytimes.com/2026/06/18/world/europe/church-england-apology-forced-adoptions-uk.html
