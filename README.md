@@ -1,3 +1,19 @@
+**Fans Show Up in Their Best Knicks-Themed Attire to Parade**\
+`New York Knicks fans showed up in droves to a ticker-tape parade in Manhattan in their best orange and blue outfits to honor the N.B.A champions.`\
+https://www.nytimes.com/video/nyregion/100000010977688/knicks-parade-nyc-fashion.html
+
+**London’s Newest Hotels Offer Perks Aplenty**\
+`From a wellness-focused resort to a townhouse with a terraced garden, four recently opened places to stay that make the British capital even more inviting.`\
+https://www.nytimes.com/2026/06/18/t-magazine/travel/londons-newest-hotels.html
+
+**Vance Issues a Blunt Warning to Israel**\
+`Also, Ukraine launches a major assault on Moscow. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/06/18/briefing/vance-issues-a-blunt-warning-to-israel.html
+
+**Trump Redirects Millions From Secret Service Amid White House Construction**\
+`The White House insists that private donations are paying for a new ballroom, but the administration is using taxpayer money for a series of security upgrades.`\
+https://www.nytimes.com/2026/06/18/us/politics/trump-ballroom-security-secret-service-white-house.html
+
 **The Washington Outlet NOTUS Won’t Be ‘The Star’ After All**\
 `The publication is abandoning a planned rebranding after resolving a trademark dispute with the new publisher of The Washington Star.`\
 https://www.nytimes.com/2026/06/18/business/media/notus-washington-star-lawsuit.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/06/18/business/media/penske-vox-media.html
 **Scores Fall Ill at Air Force Base After Hegseth Makes Flu Vaccine Optional**\
 `The defense secretary described the vaccine requirement, which he lifted in April, as an “absurd, overreaching” mandate.`\
 https://www.nytimes.com/2026/06/18/us/flu-outbreak-air-force-base.html
-
-**Outdoor Sculpture Shows Feature Henry Moore, Lynn Chadwick in England This Summer**\
-`As art lovers head to London for the Treasure House Fair, outdoor sculpture shows featuring Henry Moore, Lynn Chadwick and big names beckon.`\
-https://www.nytimes.com/2026/06/18/arts/design/england-outdoor-sculpture-shows.html
-
-**The Treasure House Fair Arrives at the Right Time in London**\
-`The Treasure House Fair returns for its fourth year, embracing accessibility and emotion over connoisseurship.`\
-https://www.nytimes.com/2026/06/18/arts/design/treasure-house-fair-london.html
-
-**Book Review: ‘Regime Change,’ by Maggie Haberman and Jonathan Swan**\
-`In “Regime Change,” two New York Times journalists offer a riveting chronicle of the weird fusion of reality and show business in the White House.`\
-https://www.nytimes.com/2026/06/18/books/review/regime-change-maggie-haberman-jonathan-swan.html
-
-**Un joven de 18 años muere al caer de un carruaje en Central Park**\
-`Después de que el conductor se bajara para tomar una foto a los pasajeros, el caballo se desbocó.`\
-https://www.nytimes.com/es/2026/06/18/espanol/estados-unidos/muere-turista-central-park-caballo.html
 
