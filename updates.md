@@ -1,3 +1,7 @@
+**Man Charged With Hate Crime Over Burning Cross in Chicago Park**\
+`A former university student, Merlin Lu, 21, has claimed that he set the cross on fire in Grant Park to protest the Trump administration, not as an act of racism.`\
+https://www.nytimes.com/2026/06/18/us/chicago-burning-cross-arrest.html
+
 **Wordle’s Hard Mode Is Actually Easier, 730 Million Games Show**\
 `As the game turns 5 years old, the data reveals that while standard-mode players have much more freedom, they’re not making the most of it.`\
 https://www.nytimes.com/2026/06/18/upshot/wordle-hard-mode.html

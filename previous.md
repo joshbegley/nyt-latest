@@ -1,3 +1,7 @@
+**Man Charged With Hate Crime Over Burning Cross in Chicago Park**\
+`A former university student, Merlin Lu, 21, has claimed that he set the cross on fire in Grant Park to protest the Trump administration, not as an act of racism.`\
+https://www.nytimes.com/2026/06/18/us/chicago-burning-cross-arrest.html
+
 **Wordle’s Hard Mode Is Actually Easier, 730 Million Games Show**\
 `As the game turns 5 years old, the data reveals that while standard-mode players have much more freedom, they’re not making the most of it.`\
 https://www.nytimes.com/2026/06/18/upshot/wordle-hard-mode.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/18/theater/mariska-hargitay-broadway-every-brill
 **Moscow Oil Refinery Slammed by Ukrainian Drones**\
 `Social media footage showed several sites, including an oil refinery, in Moscow being struck by Ukrainian drones on Thursday.`\
 https://www.nytimes.com/video/world/europe/moscow-oil-refinery-attack-ukraine-drones.html
-
-**Why Have Two Rib Ends When You Could Have All Rib Ends**\
-`That’s the genius behind Toni Chapman’s glossy, caramelized sticky pineapple ribs.`\
-https://www.nytimes.com/2026/06/18/dining/why-have-two-rib-ends-when-you-could-have-all-rib-ends.html
 
