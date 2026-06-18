@@ -1,3 +1,27 @@
+**London Hospital Worker Tried to Sell Catherine’s Medical Records, Reports Say**\
+`Britain’s data regulator said it had reprimanded a health worker for misusing sensitive information. The hospital said the person no longer worked there.`\
+https://www.nytimes.com/2026/06/18/world/europe/princess-kate-medical-records-sale-uk.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/nyregion/100000010976807/18vid-knicks-30166.html
+
+**Moscow Oil Refinery Slammed by Ukrainian Drones**\
+`Social media footage showed several sites, including an oil refinery, in Moscow being struck by Ukrainian drones on Thursday.`\
+https://www.nytimes.com/video/world/europe/moscow-oil-refinery-attack-ukraine-drones.html
+
+**Supreme Court Narrows Law Banning Drug Users From Owning Guns**\
+`The justices sided with a Texas gun owner who faced criminal charges after admitting to marijuana use argued that a federal gun law violated the Second Amendment.`\
+https://www.nytimes.com/2026/06/18/us/politics/supreme-court-drugs-guns.html
+
+**Iran War Live Updates: Vance to Brief Reporters on Iran Deal as Criticism Mounts**\
+`With an initial agreement signed by both sides, oil could soon flow again through the Strait of Hormuz. But prospects for a long-term deal on nuclear issues remained murky.`\
+https://www.nytimes.com/live/2026/06/18/world/iran-war-trump-us-deal
+
+**Live Updates: Knicks Parade Up Broadway, a Celebration Decades in the Making**\
+`The N.B.A. championship team is riding through packed sidewalks and streets that hit capacity hours before the festivities began. Fans have waited more than five decades to celebrate a title.`\
+https://www.nytimes.com/live/2026/06/18/nyregion/knicks-parade
+
 **Mariska Hargitay on ‘Every Brilliant Thing’ and Finding Inspiration From Jalen Brunson**\
 `The “Law & Order: SVU” actress “was really scared” about starring in “Every Brilliant Thing.” Who does she look to for inspiration? The Knicks, of course.`\
 https://www.nytimes.com/2026/06/18/theater/mariska-hargitay-broadway-every-brilliant-thing.html
