@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/nyregion/100000010977349/18vid-knicks-85924.html
+
+**Trump and Iran: Mission Not Accomplished**\
+`Readers react to developments in the war with Iran. Also: Fears about gene editing, a threat to U.S. science; a call to Black voters; reading books.`\
+https://www.nytimes.com/2026/06/18/opinion/trump-iran-war.html
+
 **The Major Oak, Ancient Tree of Robin Hood Legend, Has Died**\
 `The Major Oak in the Sherwood Forest was between 800 and 1,200 years old. It succumbed to a combination of over-tourism, climate change and misguided efforts to save it.`\
 https://www.nytimes.com/2026/06/18/world/europe/major-oak-tree-dies.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/18/podcasts/gio-reyna-usmnt-uruguay-marcelo-biel
 **Tras un día de armonía, un Trump impredecible trastoca la cumbre del G7**\
 `Sus declaraciones incendiarias de última hora fueron un recordatorio de lo que puede pasar cuando su estilo sin filtros e improvisado choca con el ritmo diplomático y la meticulosa coreografía de una cumbre internacional.`\
 https://www.nytimes.com/es/2026/06/18/espanol/mundo/trump-g7-europa.html
-
-**Iran War Live Updates: Vance Defends Iran Deal, With a Blunt Warning to Israel**\
-`The vice president delivered a rebuke to Israeli critics of the agreement, warning them not to alienate their most important ally.  “Donald J. Trump is the only head of state in the entire world sympathetic to the state of Israel at moment in this time,” he said.`\
-https://www.nytimes.com/live/2026/06/18/world/iran-war-trump-us-deal
-
-**Archbishop of Canterbury Apologizes for Church of England’s Role in Forced Adoptions**\
-`Tens of thousands of babies were taken from unmarried women and girls from the 1950s to the 1980s. The Church of England apologized for the “pain, shame and indignity” the practice inflicted.`\
-https://www.nytimes.com/2026/06/18/world/europe/church-england-apology-forced-adoptions-uk.html
 
