@@ -1,3 +1,19 @@
+**Vegetarian Skillet Recipes for Summer**\
+`You should, too. Then keep the skillet on the stove all season long for white bean shakshuka, chickpea Parmesan, verdant orzo and more.`\
+https://www.nytimes.com/2026/06/18/dining/im-slinging-lasagna-in-my-skillet-this-summer.html
+
+**Los Angeles Police Officer Kills Knicks Fan’s Dog After Celebration**\
+`Marie Marseille had waited her entire life to see the New York Knicks win the N.B.A. championship. Her elation ended in tragedy.`\
+https://www.nytimes.com/2026/06/18/us/lapd-knicks-dog-killed.html
+
+**ICE Spent $700 Million on 7 Warehouses. Now It Wants to Get Rid of Them.**\
+`Immigration and Customs Enforcement plans to sell or give away most of the 11 warehouses it bought to detain migrants, reversing course on a signature initiative.`\
+https://www.nytimes.com/2026/06/18/us/politics/ice-warehouses-immigration.html
+
+**Erika Kirk’s Message for Women at Turning Point USA**\
+`Our reporter Vivian Yee details what she saw at this year’s Turning Point USA Women’s Leadership Summit in San Antonio.`\
+https://www.nytimes.com/video/us/politics/100000010910839/erika-kirks-message-for-women-at-turning-point-usa.html
+
 **Education Department Lowers Student Loan Interest Rates for Two Years**\
 `The department, citing high default rates, is reducing interest rates on federal student loans by up to one percentage point for two years.`\
 https://www.nytimes.com/2026/06/18/business/student-loans-interest-rate.html
