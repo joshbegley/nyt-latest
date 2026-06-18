@@ -1,3 +1,11 @@
+**Wordle’s Hard Mode Is Actually Easier, 730 Million Games Show**\
+`As the game turns 5 years old, the data reveals that while standard-mode players have much more freedom, they’re not making the most of it.`\
+https://www.nytimes.com/2026/06/18/upshot/wordle-hard-mode.html
+
+**Ucrania bombardea Moscú con un gran ataques de drones**\
+`La operación, que dejó cerrados los aeropuertos de la capital rusa varias horas, es parte de una campaña cada vez más intensa para que los rusos sientan de cerca el conflicto.`\
+https://www.nytimes.com/es/2026/06/18/espanol/mundo/ucrania-bombardea-moscu.html
+
 **Rasmus Munk: I’m Driven by Food’s Emotional Power**\
 `As a chef, I am driven not only by how a dish tastes, but the emotions that it evokes.`\
 https://www.nytimes.com/2026/06/18/special-series/rasmus-munk-food-emotions.html

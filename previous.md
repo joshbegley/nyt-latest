@@ -1,3 +1,11 @@
+**Wordle’s Hard Mode Is Actually Easier, 730 Million Games Show**\
+`As the game turns 5 years old, the data reveals that while standard-mode players have much more freedom, they’re not making the most of it.`\
+https://www.nytimes.com/2026/06/18/upshot/wordle-hard-mode.html
+
+**Ucrania bombardea Moscú con un gran ataques de drones**\
+`La operación, que dejó cerrados los aeropuertos de la capital rusa varias horas, es parte de una campaña cada vez más intensa para que los rusos sientan de cerca el conflicto.`\
+https://www.nytimes.com/es/2026/06/18/espanol/mundo/ucrania-bombardea-moscu.html
+
 **Rasmus Munk: I’m Driven by Food’s Emotional Power**\
 `As a chef, I am driven not only by how a dish tastes, but the emotions that it evokes.`\
 https://www.nytimes.com/2026/06/18/special-series/rasmus-munk-food-emotions.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/world/europe/moscow-oil-refinery-attack-ukraine-dr
 **Why Have Two Rib Ends When You Could Have All Rib Ends**\
 `That’s the genius behind Toni Chapman’s glossy, caramelized sticky pineapple ribs.`\
 https://www.nytimes.com/2026/06/18/dining/why-have-two-rib-ends-when-you-could-have-all-rib-ends.html
-
-**Could Lowering Inflammation Treat Depression?**\
-`Psychiatrists think inflammation may be at the root of some people’s illness. How to treat it is an open question.`\
-https://www.nytimes.com/2026/06/18/well/mind/inflammation-depression-treatment.html
-
-**Trump Administration Backs Off Plan to End Ocean Monitoring System**\
-`The reversal comes after the Senate passed a bipartisan bill on Wednesday to block the removal of deep-sea monitoring instruments.`\
-https://www.nytimes.com/2026/06/18/climate/trump-ocean-observatories-initiative.html
 
