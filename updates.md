@@ -1,3 +1,35 @@
+**Archbishop of Canterbury Apologizes for Church of England’s Role in Forced Adoptions**\
+`Tens of thousands of babies were taken from unmarried women and girls from the 1950s to the 1980s in England and Wales.`\
+https://www.nytimes.com/2026/06/18/world/europe/church-england-apology-forced-adoptions-uk.html
+
+**How Iran Could Benefit From Its Deal With the U.S., and an A.I. Arms Race in Schools**\
+`Plus, the “Obamalisk” opens.`\
+https://www.nytimes.com/2026/06/18/podcasts/the-headlines/iran-benefit-deal-us-and-artificial-intelligence-arms-race-schools.html
+
+**The Untold Story of Jeffrey Epstein’s Death**\
+`The official account of how the sex trafficker died in prison generated suspicions inflamed by the release of tens of thousands of documents from investigations into his death.`\
+https://www.nytimes.com/2026/06/18/podcasts/the-daily/jeffrey-epstein-death-investigation.html
+
+**NYT Connections Answers for June 19, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, June 19, 2025.`\
+https://www.nytimes.com/2026/06/18/crosswords/connections-companion-1104.html
+
+**Today’s Wordle Hints for June 19, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, June 19, 2026.`\
+https://www.nytimes.com/2026/06/18/crosswords/wordle-review-1826.html
+
+**NYT Strands Hints for June 19, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, June 19, 2026.`\
+https://www.nytimes.com/2026/06/18/crosswords/strands-sidekick-838.html
+
+**Iran Gets Major Economic Lifeline for Minimal Concessions in Initial Deal**\
+`The agreement delays the most difficult steps for Iran for later talks, while granting it crucial benefits.`\
+https://www.nytimes.com/2026/06/18/world/middleeast/iran-deal-oil-strait-of-hormuz-nuclear.html
+
+**JD Vance on the Morality of the Trump Administration**\
+`I asked the vice president what is Christian about this White House.`\
+https://www.nytimes.com/2026/06/18/opinion/jd-vance-iran-trump-communion.html
+
 **As India Temporarily Bans Telegram, Which Other Countries Have Restricted the Messaging App?**\
 `Several countries have restricted the messaging app, a valuable platform for dissidents, criminals and extremists. Here’s an overview.`\
 https://www.nytimes.com/2026/06/18/technology/telegram-ban-india.html

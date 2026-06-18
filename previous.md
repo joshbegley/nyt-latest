@@ -1,3 +1,27 @@
+**Archbishop of Canterbury Apologizes for Church of England’s Role in Forced Adoptions**\
+`Tens of thousands of babies were taken from unmarried women and girls from the 1950s to the 1980s in England and Wales.`\
+https://www.nytimes.com/2026/06/18/world/europe/church-england-apology-forced-adoptions-uk.html
+
+**How Iran Could Benefit From Its Deal With the U.S., and an A.I. Arms Race in Schools**\
+`Plus, the “Obamalisk” opens.`\
+https://www.nytimes.com/2026/06/18/podcasts/the-headlines/iran-benefit-deal-us-and-artificial-intelligence-arms-race-schools.html
+
+**The Untold Story of Jeffrey Epstein’s Death**\
+`The official account of how the sex trafficker died in prison generated suspicions inflamed by the release of tens of thousands of documents from investigations into his death.`\
+https://www.nytimes.com/2026/06/18/podcasts/the-daily/jeffrey-epstein-death-investigation.html
+
+**NYT Connections Answers for June 19, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, June 19, 2025.`\
+https://www.nytimes.com/2026/06/18/crosswords/connections-companion-1104.html
+
+**Today’s Wordle Hints for June 19, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, June 19, 2026.`\
+https://www.nytimes.com/2026/06/18/crosswords/wordle-review-1826.html
+
+**NYT Strands Hints for June 19, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, June 19, 2026.`\
+https://www.nytimes.com/2026/06/18/crosswords/strands-sidekick-838.html
+
 **As India Temporarily Bans Telegram, Which Other Countries Have Restricted the Messaging App?**\
 `Several countries have restricted the messaging app, a valuable platform for dissidents, criminals and extremists. Here’s an overview.`\
 https://www.nytimes.com/2026/06/18/technology/telegram-ban-india.html
@@ -11,7 +35,7 @@ https://www.nytimes.com/live/2026/06/18/nyregion/knicks-parade
 https://www.nytimes.com/2026/06/18/podcasts/do-sports-owners-win-championships.html
 
 **Iran Gets Major Economic Lifeline for Minimal Concessions in Initial Deal**\
-`The agreement delays the most difficult steps for Iran for later talks, while granting it a crucial economic lifeline.`\
+`The agreement delays the most difficult steps for Iran for later talks, while granting it crucial benefits.`\
 https://www.nytimes.com/2026/06/18/world/middleeast/iran-deal-oil-strait-of-hormuz-nuclear.html
 
 **Ukraine Strikes Moscow Refinery in Large-Scale Drone Attack**\
@@ -34,8 +58,8 @@ https://www.nytimes.com/es/2026/06/18/espanol/gafas-graduadas-sol-proteccion.htm
 `Los casos más antiguos que se conocen de peste, descubiertos entre cazadores-recolectores en tumbas siberianas, contradicen la teoría de que la enfermedad fuera alguna vez leve.`\
 https://www.nytimes.com/es/2026/06/18/espanol/ciencia-y-tecnologia/peste-negra.html
 
-**Will the Iran Deal Last? JD Vance Is Betting His Future on It.**\
-`“If you think this is a bad deal, what is your alternative?”`\
+**JD Vance on the Morality of the Trump Administration**\
+`I asked the vice president what is Christian about this White House.`\
 https://www.nytimes.com/2026/06/18/opinion/jd-vance-iran-trump-communion.html
 
 **Trump’s Titanic Insecurities Are Sinking Us**\
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/06/18/movies/girls-like-girls-review.html
 **‘Leviticus’ Review: The Shocking Shapes That Love Can Take**\
 `In this Australian chiller, a conversion therapy ritual unleashes shape-shifting ghouls that take the form of desired ones.`\
 https://www.nytimes.com/2026/06/18/movies/leviticus-review.html
-
-**‘Color Book’ Review: Love and Grieving**\
-`In this tender family drama, a widowed father and his disabled son overcome personal tragedy.`\
-https://www.nytimes.com/2026/06/18/movies/color-book-review.html
-
-**‘The Death of Robin Hood’ Review: Not a Merry Band**\
-`A darkly revisionist take on the medieval outlaw asks who gets to craft the heroic legends.`\
-https://www.nytimes.com/2026/06/18/movies/the-death-of-robin-hood-review.html
-
-**As Pitti Uomo’s Guest Designer, Simone Rocha Has Pretty Designs on Men**\
-`For over a decade, the Irish designer has found inspiration in womanhood. As the guest designer at Pitti Uomo, she plays with notions of masculinity.`\
-https://www.nytimes.com/2026/06/18/style/simone-rocha-designer-pitti-uomo.html
-
-**‘Never Change!’ Review: Failing the Assignment**\
-`This comedy squanders a promising premise about adults forced back to high school on repetitive sketches and hollow jokes.`\
-https://www.nytimes.com/2026/06/18/movies/never-change-review.html
-
-**Homes for Sale in Connecticut and New York**\
-`This week’s properties are a three-bedroom in New Canaan, Conn., and a four-bedroom in Cutchogue, N.Y.`\
-https://www.nytimes.com/2026/06/18/realestate/housing-market-near-nyc.html
-
-**It’s Good Enough for the King. Is a Second Birthday Right for You?**\
-`A birthday is already an occasion for indulgence. So why not schedule one on your terms.`\
-https://www.nytimes.com/2026/06/18/style/summer-birthday-royal-celebration.html
 
