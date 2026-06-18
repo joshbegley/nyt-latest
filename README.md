@@ -1,3 +1,19 @@
+**A Small Election Could Change British Politics**\
+`Voters in the northern English district of Makerfield cast ballots on Thursday to choose their representative in Parliament, the outcome of which could lead to Prime Minister Keir Starmer’s ouster.`\
+https://www.nytimes.com/video/world/europe/100000010976921/england-makerfield-election.html
+
+**Knicks in Five. The City is Alive.**\
+`New York City found a reason to party on Thursday, cheering, crying and climbing around Broadway to celebrate the Knicks N.B.A. championship.`\
+https://www.nytimes.com/2026/06/18/nyregion/knicks-championship-parade-celebration-nyc.html
+
+**Here’s What Barack and Michelle Obama Said at His Presidential Center Opening**\
+`The Obamas each took to the microphone, delivering speeches before a crowd of dignitaries, elected officials and Democratic supporters.`\
+https://www.nytimes.com/2026/06/18/us/barack-michelle-obama-speeches.html
+
+**JD Vance: ‘I’m Not Fighting With the Pope’**\
+`Did JD Vance privately agree with the pope on the Iran war while publicly fighting with him? Ross Douthat asks the vice president on “Interesting Times.”`\
+https://www.nytimes.com/video/opinion/100000010968359/jd-vance-im-not-fighting-with-the-pope.html
+
 **Three Medals of Honor to Be Awarded to Vietnam and Afghanistan Veterans**\
 `Two Force Recon Marines are set to receive the medal on Thursday for their actions more than 50 years ago, alongside an Army officer who showed exceptional bravery in 2012.`\
 https://www.nytimes.com/2026/06/18/us/politics/trump-medals-of-honor.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/06/18/technology/apple-intel-trump-chips.html
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/nyregion/100000010977103/18vid-knicks-96456.html
-
-**Trump exigió que Irán se rindiera de manera ‘incondicional’ y se llevó una sorpresa**\
-`Aunque los iraníes sufrieron pérdidas importantes en la guerra, salieron de ese enfrentamiento contra el ejército más poderoso del mundo y demostraron que pueden usar el caos económico como arma.`\
-https://www.nytimes.com/es/2026/06/18/espanol/estados-unidos/trump-iran-acuerdo-estrecho-nuclear.html
-
-**Today, In Short**\
-`Sleep types. The plague. Messi’s hat trick`\
-https://www.nytimes.com/2026/06/18/briefing/today-in-short.html
-
-**Watch Live: Knicks City Hall Ceremony**\
-`New York City celebrates the Knicks’ N.B.A. championship with a ceremony at City Hall Plaza.`\
-https://www.nytimes.com/video/embedded/nyregion/100000010976505/watch-live-knicks-city-hall-ceremony.html
-
-**Many World Cup Fans Would Rather Skip the Hydration Breaks**\
-`It’s hot in North America in June, but fans are griping that the breaks that have been added to each half are an excuse for the networks to show more ads.`\
-https://www.nytimes.com/2026/06/18/us/world-cup-hydration-breaks.html
 
