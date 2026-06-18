@@ -1,3 +1,11 @@
+**Man Forced Boy, 3, Into Crocodile Pen at English Zoo, Police Say**\
+`A man is being held on suspicion of attempted murder after a boy was critically injured when he ended up in a crocodile enclosure at a zoo outside Cambridge, the authorities said.`\
+https://www.nytimes.com/2026/06/18/world/europe/crocodile-attack-england-zoo.html
+
+**Fans Show Up to the Parade in Their Best Knicks-Themed Attire**\
+`New York Knicks fans showed up in droves to a ticker-tape parade in Manhattan in their best orange and blue outfits to honor the N.B.A champions.`\
+https://www.nytimes.com/video/nyregion/100000010977688/knicks-parade-nyc-fashion.html
+
 **Fans Show Up in Their Best Knicks-Themed Attire to Parade**\
 `New York Knicks fans showed up in droves to a ticker-tape parade in Manhattan in their best orange and blue outfits to honor the N.B.A champions.`\
 https://www.nytimes.com/video/nyregion/100000010977688/knicks-parade-nyc-fashion.html

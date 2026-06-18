@@ -1,4 +1,8 @@
-**Fans Show Up in Their Best Knicks-Themed Attire to Parade**\
+**Man Forced Boy, 3, Into Crocodile Pen at English Zoo, Police Say**\
+`A man is being held on suspicion of attempted murder after a boy was critically injured when he ended up in a crocodile enclosure at a zoo outside Cambridge, the authorities said.`\
+https://www.nytimes.com/2026/06/18/world/europe/crocodile-attack-england-zoo.html
+
+**Fans Show Up to the Parade in Their Best Knicks-Themed Attire**\
 `New York Knicks fans showed up in droves to a ticker-tape parade in Manhattan in their best orange and blue outfits to honor the N.B.A champions.`\
 https://www.nytimes.com/video/nyregion/100000010977688/knicks-parade-nyc-fashion.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/18/arts/television/boroughs-canceled-duffer-brot
 **Penske Media Is Buying What’s Left of Vox Media**\
 `The deal will put online publications like Popsugar and Eater under the same roof as Rolling Stone and Variety.`\
 https://www.nytimes.com/2026/06/18/business/media/penske-vox-media.html
-
-**Scores Fall Ill at Air Force Base After Hegseth Makes Flu Vaccine Optional**\
-`The defense secretary described the vaccine requirement, which he lifted in April, as an “absurd, overreaching” mandate.`\
-https://www.nytimes.com/2026/06/18/us/flu-outbreak-air-force-base.html
 
