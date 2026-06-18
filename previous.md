@@ -1,3 +1,15 @@
+**Why Is Telegram Getting Into Trouble Around the World?**\
+`Several countries have restricted the messaging app, a valuable platform for dissidents, criminals and extremists. Here’s an overview.`\
+https://www.nytimes.com/2026/06/18/technology/telegram-ban-india.html
+
+**Live Updates: Knicks Fans Line Up Before Dawn for a Parade Decades in the Making**\
+`A ticker-tape parade at 10 a.m. Eastern time will celebrate the N.B.A. team that ended a five-decade championship drought and united the city in joyous celebration.`\
+https://www.nytimes.com/live/2026/06/18/nyregion/knicks-parade
+
+**Do Sports Owners Win Championships?**\
+`Reacting to James Dolan’s speech to the Knicks, and Jalen Brunson’s $113 million sacrifice.`\
+https://www.nytimes.com/2026/06/18/podcasts/do-sports-owners-win-championships.html
+
 **Iran Gets Major Economic Lifeline for Minimal Concessions in Initial Deal**\
 `The agreement delays the most difficult steps for Iran for later talks, while granting it a crucial economic lifeline.`\
 https://www.nytimes.com/2026/06/18/world/middleeast/iran-deal-oil-strait-of-hormuz-nuclear.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/18/realestate/housing-market-near-nyc.html
 **It’s Good Enough for the King. Is a Second Birthday Right for You?**\
 `A birthday is already an occasion for indulgence. So why not schedule one on your terms.`\
 https://www.nytimes.com/2026/06/18/style/summer-birthday-royal-celebration.html
-
-**Homes for Sale in Manhattan and Brooklyn**\
-`This week’s properties are on the Upper West Side, and in TriBeCa and Bushwick.`\
-https://www.nytimes.com/2026/06/18/realestate/housing-market-nyc.html
-
-**For New Home Buyers: Longer Commute Times**\
-`Entry-level home buyers find deals farther from job hubs, but pay in commute time and at the gas pump.`\
-https://www.nytimes.com/2026/06/18/realestate/for-new-home-buyers-longer-commute-times.html
-
-**‘The Devil Queen’ Review: A Seedy Quest for Vengeance**\
-`Antonio Carlos da Fontoura’s 1974 gay gangster thriller returns in a gorgeous new restoration.`\
-https://www.nytimes.com/2026/06/18/movies/the-devil-queen-review.html
 
