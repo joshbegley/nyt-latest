@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/sports/basketball/100000010976359/18vid-knicks-17524.html
+
+**Warsh Wants the Fed to Send Fewer Signals. That Comes With Risks.**\
+`Investors piled on bets for higher borrowing costs after Kevin Warsh opted against providing policy guidance at his first meeting as Federal Reserve chairman.`\
+https://www.nytimes.com/2026/06/18/business/federal-reserve-warsh-interest-rates.html
+
 **See the Knicks Championship Parade Unfold**\
 `Fans are gathering in Manhattan on Thursday to cheer on the N.B.A. champions at a parade that has been 53 years in the making.`\
 https://www.nytimes.com/2026/06/18/nyregion/18met-knicks-parade-photos.html

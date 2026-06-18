@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/sports/basketball/100000010976359/18vid-knicks-17524.html
+
+**Warsh Wants the Fed to Send Fewer Signals. That Comes With Risks.**\
+`Investors piled on bets for higher borrowing costs after Kevin Warsh opted against providing policy guidance at his first meeting as Federal Reserve chairman.`\
+https://www.nytimes.com/2026/06/18/business/federal-reserve-warsh-interest-rates.html
+
 **See the Knicks Championship Parade Unfold**\
 `Fans are gathering in Manhattan on Thursday to cheer on the N.B.A. champions at a parade that has been 53 years in the making.`\
 https://www.nytimes.com/2026/06/18/nyregion/18met-knicks-parade-photos.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/06/18/travel/things-to-do-catskills.htm
 **Can a Federal Plan Fix Dismal Penn Station? There’s Hope.**\
 `Everyone agrees that Penn Station is a disaster, but not on how to fix it. Now a Trump-backed, multibillion-dollar plan to rebuild it offers a promising step forward.`\
 https://www.nytimes.com/2026/06/18/arts/design/penn-station-renovation-plan-trump.html
-
-**Yves Saint Laurent and Photography: A Hot and Heavy Romance**\
-`When fashion met image, both changed. A show at International Center of Photography shines a light on the relationship — but doesn’t really get the whole picture.`\
-https://www.nytimes.com/2026/06/18/arts/design/yves-saint-laurent-photography-icp.html
-
-**Will the Iran Deal Last? JD Vance Is Betting His Future on It.**\
-`“If you think this is a bad deal, what is your alternative?”`\
-https://www.nytimes.com/video/opinion/100000010968351/will-the-iran-deal-last-jd-vance-is-betting-his-future-on-it.html
 
