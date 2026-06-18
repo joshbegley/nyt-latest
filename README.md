@@ -1,3 +1,19 @@
+**Vegetarian Skillet Recipes for Summer**\
+`You should, too. Then keep the skillet on the stove all season long for white bean shakshuka, chickpea Parmesan, verdant orzo and more.`\
+https://www.nytimes.com/2026/06/18/dining/im-slinging-lasagna-in-my-skillet-this-summer.html
+
+**Los Angeles Police Officer Kills Knicks Fan’s Dog After Celebration**\
+`Marie Marseille had waited her entire life to see the New York Knicks win the N.B.A. championship. Her elation ended in tragedy.`\
+https://www.nytimes.com/2026/06/18/us/lapd-knicks-dog-killed.html
+
+**ICE Spent $700 Million on 7 Warehouses. Now It Wants to Get Rid of Them.**\
+`Immigration and Customs Enforcement plans to sell or give away most of the 11 warehouses it bought to detain migrants, reversing course on a signature initiative.`\
+https://www.nytimes.com/2026/06/18/us/politics/ice-warehouses-immigration.html
+
+**Erika Kirk’s Message for Women at Turning Point USA**\
+`Our reporter Vivian Yee details what she saw at this year’s Turning Point USA Women’s Leadership Summit in San Antonio.`\
+https://www.nytimes.com/video/us/politics/100000010910839/erika-kirks-message-for-women-at-turning-point-usa.html
+
 **Education Department Lowers Student Loan Interest Rates for Two Years**\
 `The department, citing high default rates, is reducing interest rates on federal student loans by up to one percentage point for two years.`\
 https://www.nytimes.com/2026/06/18/business/student-loans-interest-rate.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/06/18/world/middleeast/hegseth-nato-us-iran-war-tru
 **Inflation Will Linger Despite U.S.-Iran Deal, British Officials Warn**\
 `Bank of England policymakers kept interest rates on hold, saying the impact of the war in Iran was still a major source of uncertainty for the economy.`\
 https://www.nytimes.com/2026/06/18/business/uk-inflation-bank-of-england.html
-
-**At the Supreme Court**\
-``\
-https://www.nytimes.com/2026/06/18/briefing/at-the-supreme-court.html
-
-**Israel Stunned by Trump’s Iran Deal**\
-`The agreement accomplishes none of Israel’s stated war aims and arguably leaves the country in worse shape on each of them.`\
-https://www.nytimes.com/2026/06/18/world/middleeast/israel-iran-deal-reaction-netanyahu.html
-
-**‘The Last 12 Weeks’ Is Out Today. Here’s the Backstory.**\
-`Host Maurice Chammah introduces Serial Productions’ latest show.`\
-https://www.nytimes.com/2026/06/18/podcasts/the-last-12-weeks-is-out-today-heres-the-backstory.html
-
-**Gio Reyna’s Journey Back to USMNT, and Uruguay’s Enigmatic Coach, Marcelo Bielsa**\
-`Has the midfielder redeemed himself?`\
-https://www.nytimes.com/2026/06/18/podcasts/gio-reyna-usmnt-uruguay-marcelo-bielsa.html
 

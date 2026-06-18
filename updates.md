@@ -1,3 +1,7 @@
+**Education Department Lowers Student Loan Interest Rates for Two Years**\
+`The department, citing high default rates, is reducing interest rates on federal student loans by up to one percentage point for two years.`\
+https://www.nytimes.com/2026/06/18/business/student-loans-interest-rate.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/nyregion/100000010977349/18vid-knicks-85924.html

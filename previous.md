@@ -1,3 +1,7 @@
+**Education Department Lowers Student Loan Interest Rates for Two Years**\
+`The department, citing high default rates, is reducing interest rates on federal student loans by up to one percentage point for two years.`\
+https://www.nytimes.com/2026/06/18/business/student-loans-interest-rate.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/nyregion/100000010977349/18vid-knicks-85924.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/18/podcasts/the-last-12-weeks-is-out-today-heres
 **Gio Reyna’s Journey Back to USMNT, and Uruguay’s Enigmatic Coach, Marcelo Bielsa**\
 `Has the midfielder redeemed himself?`\
 https://www.nytimes.com/2026/06/18/podcasts/gio-reyna-usmnt-uruguay-marcelo-bielsa.html
-
-**Tras un día de armonía, un Trump impredecible trastoca la cumbre del G7**\
-`Sus declaraciones incendiarias de última hora fueron un recordatorio de lo que puede pasar cuando su estilo sin filtros e improvisado choca con el ritmo diplomático y la meticulosa coreografía de una cumbre internacional.`\
-https://www.nytimes.com/es/2026/06/18/espanol/mundo/trump-g7-europa.html
 
