@@ -6,8 +6,8 @@ https://www.nytimes.com/2026/06/18/business/uk-inflation-bank-of-england.html
 `(No description)`\
 https://www.nytimes.com/2026/06/18/briefing/at-the-supreme-court.html
 
-**Israeli Pundits Stunned by Trump’s Iran Deal**\
-`Analysts and pundits said the agreement accomplishes none of Israel’s war aims and leaves the country in worse shape on each of them.`\
+**Israel Stunned by Trump’s Iran Deal**\
+`Analysts said the agreement accomplishes none of Israel’s war aims and leaves the country in worse shape on each of them.`\
 https://www.nytimes.com/2026/06/18/world/middleeast/israel-iran-deal-reaction-netanyahu.html
 
 **‘The Last 12 Weeks’ Is Out Today. Here’s the Backstory.**\
