@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/nyregion/100000010977349/18vid-knicks-85924.html
+
+**Trump and Iran: Mission Not Accomplished**\
+`Readers react to developments in the war with Iran. Also: Fears about gene editing, a threat to U.S. science; a call to Black voters; reading books.`\
+https://www.nytimes.com/2026/06/18/opinion/trump-iran-war.html
+
 **Watch Live: Knicks City Hall Ceremony**\
 `New York City celebrates the Knicks’ N.B.A. championship with a ceremony at City Hall Plaza.`\
 https://www.nytimes.com/video/embedded/nyregion/100000010976505/watch-live-knicks-city-hall-ceremony.html
