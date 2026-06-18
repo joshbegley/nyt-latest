@@ -1,3 +1,7 @@
+**Oil Prices Fall as U.S.-Iran Deal to Reopen Hormuz Takes Effect**\
+`Oil prices fell and stocks rose after Pakistan announced that the agreement to reopen the Strait of Hormuz would take effect immediately.`\
+https://www.nytimes.com/2026/06/18/business/oil-gas-prices-iran.html
+
 **El papa León visitará la aldea de la primera santa de EE. UU.**\
 `El pontífice llegará el sábado a una villa italiana donde nació la madre Cabrini, la primera santa estadounidense, y se espera que retome su enfoque incluyente sobre los migrantes.`\
 https://www.nytimes.com/es/2026/06/18/espanol/opinion/papa-leon-catolicos-estados-unidos.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/17/us/congo-fans-portugal-tie.html
 **Trump Defends Deal to End the War With Iran as Details Emerge**\
 `President Trump lashed out at critics who say the agreement achieves less than the one President Barack Obama signed in 2015, and he threatened to bomb Iran again if it violated the deal.`\
 https://www.nytimes.com/2026/06/17/world/middleeast/trump-iran-deal-obama.html
-
-**Trump Criticized Obama’s Iran Deal, but New Deal Would Also Offer Tehran Relief**\
-`The agreement outlines a $300 billion plan to rebuild Iran, and says sanctions would be lifted in the future.`\
-https://www.nytimes.com/2026/06/17/world/europe/trump-obama-iran-deal-money.html
 
