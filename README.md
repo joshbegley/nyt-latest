@@ -1,3 +1,15 @@
+**Amazon Retaliated Against Workers Who Opposed Data Centers, Complaint Says**\
+`The employees encouraged limits on the complexes in a series of hearings in the tech giant’s hometown, Seattle.`\
+https://www.nytimes.com/2026/06/18/technology/amazon-retaliated-against-workers-who-opposed-data-centers-complaint-says.html
+
+**Trump Says Apple to Buy Computer Chips from Intel**\
+`While neither company has publicly discussed the deal, it would be a big break for Intel, which sold a 10 percent stake to the U.S. government last year.`\
+https://www.nytimes.com/2026/06/18/technology/apple-intel-trump-chips.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/nyregion/100000010977103/18vid-knicks-96456.html
+
 **Trump exigió que Irán se rindiera de manera ‘incondicional’ y se llevó una sorpresa**\
 `Aunque los iraníes sufrieron pérdidas importantes en la guerra, salieron de ese enfrentamiento contra el ejército más poderoso del mundo y demostraron que pueden usar el caos económico como arma.`\
 https://www.nytimes.com/es/2026/06/18/espanol/estados-unidos/trump-iran-acuerdo-estrecho-nuclear.html
@@ -171,7 +183,7 @@ https://www.nytimes.com/2026/06/18/podcasts/gio-reyna-usmnt-uruguay-marcelo-biel
 https://www.nytimes.com/es/2026/06/18/espanol/mundo/trump-g7-europa.html
 
 **Iran War Live Updates: Vance Defends Iran Deal as Criticism Mounts**\
-`The vice president told reporters Iran’s nuclear program “has been completely destroyed” and its capacity to threaten its neighbors is “largely gone.”  He said Iran will only receive economic benefits if its leaders “change their behavior.”`\
+`The vice president told reporters Iran’s nuclear program “has been completely destroyed” and its capacity to threaten its neighbors is “largely gone.”  He contended Iran will only receive economic benefits if its leaders “change their behavior.”`\
 https://www.nytimes.com/live/2026/06/18/world/iran-war-trump-us-deal
 
 **Archbishop of Canterbury Apologizes for Church of England’s Role in Forced Adoptions**\
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/18/podcasts/the-headlines/iran-benefit-deal-us-a
 **The Untold Story of Jeffrey Epstein’s Death**\
 `The official account of how the sex trafficker died in prison generated suspicions inflamed by the release of tens of thousands of documents from investigations into his death.`\
 https://www.nytimes.com/2026/06/18/podcasts/the-daily/jeffrey-epstein-death-investigation.html
-
-**NYT Connections Answers for June 19, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, June 19, 2025.`\
-https://www.nytimes.com/2026/06/18/crosswords/connections-companion-1104.html
-
-**Today’s Wordle Hints for June 19, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, June 19, 2026.`\
-https://www.nytimes.com/2026/06/18/crosswords/wordle-review-1826.html
-
-**NYT Strands Hints for June 19, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, June 19, 2026.`\
-https://www.nytimes.com/2026/06/18/crosswords/strands-sidekick-838.html
 
