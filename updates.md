@@ -1,3 +1,7 @@
+**As India Temporarily Bans Telegram, Which Other Countries Have Restricted the Messaging App?**\
+`Several countries have restricted the messaging app, a valuable platform for dissidents, criminals and extremists. Here’s an overview.`\
+https://www.nytimes.com/2026/06/18/technology/telegram-ban-india.html
+
 **Why Is Telegram Getting Into Trouble Around the World?**\
 `Several countries have restricted the messaging app, a valuable platform for dissidents, criminals and extremists. Here’s an overview.`\
 https://www.nytimes.com/2026/06/18/technology/telegram-ban-india.html
