@@ -1,3 +1,7 @@
+**Así fue el debut de Irán en el Mundial, según un fisioterapeuta**\
+`Los estrictos límites de tiempo impuestos por el gobierno de Estados Unidos a la selección iraní la obligan a abandonar el campo inmediatamente después de cada partido.`\
+https://www.nytimes.com/es/2026/06/18/espanol/deportes/iran-equipo-mundial-estados-unidos.html
+
 **The 1970 and 1973 Knicks Did Not Get Parades. An Ex-Knick Is Partly to Blame.**\
 `Thursday’s ticker-tape celebration of the Knicks will be the team’s first ever. Parades were considered a little overdone in the ’70s.`\
 https://www.nytimes.com/2026/06/18/nyregion/knicks-parade-history-john-palmer.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/18/opinion/knicks-parade-new-york-championship.h
 **Giacometti’s Goddesses Have Entered the Temple**\
 `You may stand a little straighter after visiting the Met’s Temple of Dendur, which has been reanimated with sculptures by the Swiss master of figurative tension.`\
 https://www.nytimes.com/2026/06/18/arts/giacometti-dendur-met-review.html
-
-**Ohio’s Iconic Basket Building Is for Sale**\
-`The kitschy building, designed as the Longaberger basket company’s headquarters, has been a roadside attraction in Ohio for almost 30 years.`\
-https://www.nytimes.com/2026/06/18/realestate/ohio-basket-building-for-sale.html
 
