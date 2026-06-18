@@ -1,10 +1,18 @@
+**London Hospital Worker Tried to Sell Catherine’s Medical Records, Reports Say**\
+`Britain’s data regulator said it had reprimanded a health worker for misusing sensitive information. The hospital said the person no longer worked there.`\
+https://www.nytimes.com/2026/06/18/world/europe/princess-kate-medical-records-sale-uk.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/nyregion/100000010976807/18vid-knicks-30166.html
+
 **Mariska Hargitay on ‘Every Brilliant Thing’ and Finding Inspiration From Jalen Brunson**\
 `The “Law & Order: SVU” actress “was really scared” about starring in “Every Brilliant Thing.” Who does she look to for inspiration? The Knicks, of course.`\
 https://www.nytimes.com/2026/06/18/theater/mariska-hargitay-broadway-every-brilliant-thing.html
 
 **Moscow Oil Refinery Slammed by Ukrainian Drones**\
 `Social media footage showed several sites, including an oil refinery, in Moscow being struck by Ukrainian drones on Thursday.`\
-https://www.nytimes.com/video/world/europe/100000010976055/moscow-oil-refinery-slammed-by-ukrainian-drones.html
+https://www.nytimes.com/video/world/europe/moscow-oil-refinery-slammed-by-ukrainian-drones.html
 
 **Why Have Two Rib Ends When You Could Have All Rib Ends**\
 `That’s the genius behind Toni Chapman’s glossy, caramelized sticky pineapple ribs.`\
@@ -35,7 +43,7 @@ https://www.nytimes.com/video/embedded/nyregion/100000010976539/18vid-knicks-781
 http://brandedplaylist.nytimes.com/video/embedded/t-brand/100000010976601/take-your-business-beyond-the-day-to-day.html
 
 **Supreme Court Narrows Law Banning Drug Users From Owning Guns**\
-`A Texas gun owner who faced criminal charges after admitting to marijuana use argued that a federal gun law violated the Second Amendment.`\
+`The justices sided with a Texas gun owner who faced criminal charges after admitting to marijuana use argued that a federal gun law violated the Second Amendment.`\
 https://www.nytimes.com/2026/06/18/us/politics/supreme-court-drugs-guns.html
 
 **Tech Workers Maxed Out Their A.I. Use. Now They’re Trying to Minimize It.**\
@@ -158,8 +166,8 @@ https://www.nytimes.com/2026/06/18/crosswords/strands-sidekick-838.html
 `Several countries have restricted the messaging app, a valuable platform for dissidents, criminals and extremists. Here’s an overview.`\
 https://www.nytimes.com/2026/06/18/technology/telegram-ban-india.html
 
-**Live Updates: Knicks Fans Jam Parade Route to Celebrate Long-Awaited Champions**\
-`The N.B.A. championship team is riding up Broadway through packed sidewalks and streets that hit capacity hours before the parade began. Fans have waited more than five decades to celebrate a title.`\
+**Live Updates: Knicks Parade Up Broadway, a Celebration Decades in the Making**\
+`The N.B.A. championship team is riding through packed sidewalks and streets that hit capacity hours before the festivities began. Fans have waited more than five decades to celebrate a title.`\
 https://www.nytimes.com/live/2026/06/18/nyregion/knicks-parade
 
 **Do Sports Owners Win Championships?**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/06/18/espanol/gafas-graduadas-sol-proteccion.htm
 **Una plaga mortal, casi 5000 años antes de la peste negra**\
 `Los casos más antiguos que se conocen de peste, descubiertos entre cazadores-recolectores en tumbas siberianas, contradicen la teoría de que la enfermedad fuera alguna vez leve.`\
 https://www.nytimes.com/es/2026/06/18/espanol/ciencia-y-tecnologia/peste-negra.html
-
-**JD Vance on the Morality of the Trump Administration**\
-`I asked the vice president what is Christian about this White House.`\
-https://www.nytimes.com/2026/06/18/opinion/jd-vance-iran-trump-communion.html
-
-**Trump’s Titanic Insecurities Are Sinking Us**\
-`The president’s titanic insecurities are sinking us.`\
-https://www.nytimes.com/2026/06/18/opinion/trump-vance-iran.html
 

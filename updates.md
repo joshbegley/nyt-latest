@@ -1,3 +1,35 @@
+**Mariska Hargitay on ‘Every Brilliant Thing’ and Finding Inspiration From Jalen Brunson**\
+`The “Law & Order: SVU” actress “was really scared” about starring in “Every Brilliant Thing.” Who does she look to for inspiration? The Knicks, of course.`\
+https://www.nytimes.com/2026/06/18/theater/mariska-hargitay-broadway-every-brilliant-thing.html
+
+**Moscow Oil Refinery Slammed by Ukrainian Drones**\
+`Social media footage showed several sites, including an oil refinery, in Moscow being struck by Ukrainian drones on Thursday.`\
+https://www.nytimes.com/video/world/europe/100000010976055/moscow-oil-refinery-slammed-by-ukrainian-drones.html
+
+**Why Have Two Rib Ends When You Could Have All Rib Ends**\
+`That’s the genius behind Toni Chapman’s glossy, caramelized sticky pineapple ribs.`\
+https://www.nytimes.com/2026/06/18/dining/why-have-two-rib-ends-when-you-could-have-all-rib-ends.html
+
+**Could Lowering Inflammation Treat Depression?**\
+`Psychiatrists think inflammation may be at the root of some people’s illness. How to treat it is an open question.`\
+https://www.nytimes.com/2026/06/18/well/mind/inflammation-depression-treatment.html
+
+**Trump Administration Backs Off Plan to End Ocean Monitoring System**\
+`The reversal comes after the Senate passed a bipartisan bill on Wednesday to block the removal of deep-sea monitoring instruments.`\
+https://www.nytimes.com/2026/06/18/climate/trump-ocean-observatories-initiative.html
+
+**McCarthy Aide’s Tell-All Book Recounts Trump’s Expletive-Filled Threats to G.O.P.**\
+`A new book by John Leganski, the floor manager for former Speaker Kevin McCarthy, offers a rare behind-the-scenes account of how President Trump wields his power through threats and intimidation.`\
+https://www.nytimes.com/2026/06/18/us/politics/mccarthy-trump-speaker-book.html
+
+**Iran War Live Updates: Oil Prices Fall as U.S.-Iran Deal Offers Hope for Shipping**\
+`Vice President JD Vance is set to brief reporters at the White House after an initial peace agreement was signed by Iran and the United States. Prospects for a long-term deal on nuclear issues remain murky.`\
+https://www.nytimes.com/live/2026/06/18/world/iran-war-trump-us-deal
+
+**Live Updates: Knicks Fans Jam Parade Route to Celebrate Long-Awaited Champions**\
+`The N.B.A. championship team is riding up Broadway through packed sidewalks and streets that hit capacity hours before the parade began. Fans have waited more than five decades to celebrate a title.`\
+https://www.nytimes.com/live/2026/06/18/nyregion/knicks-parade
+
 **Centrist Democrat Concedes to Socialist in D.C. Mayoral Primary**\
 `President Trump’s grip on the capital loomed over the race, and he threatened to tighten it if Councilwoman Janeese Lewis George is elected. The Associated Press has not called the race.`\
 https://www.nytimes.com/2026/06/18/us/elections/washington-mayoral-primary.html

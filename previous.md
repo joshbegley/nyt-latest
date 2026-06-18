@@ -1,3 +1,27 @@
+**Mariska Hargitay on ‘Every Brilliant Thing’ and Finding Inspiration From Jalen Brunson**\
+`The “Law & Order: SVU” actress “was really scared” about starring in “Every Brilliant Thing.” Who does she look to for inspiration? The Knicks, of course.`\
+https://www.nytimes.com/2026/06/18/theater/mariska-hargitay-broadway-every-brilliant-thing.html
+
+**Moscow Oil Refinery Slammed by Ukrainian Drones**\
+`Social media footage showed several sites, including an oil refinery, in Moscow being struck by Ukrainian drones on Thursday.`\
+https://www.nytimes.com/video/world/europe/100000010976055/moscow-oil-refinery-slammed-by-ukrainian-drones.html
+
+**Why Have Two Rib Ends When You Could Have All Rib Ends**\
+`That’s the genius behind Toni Chapman’s glossy, caramelized sticky pineapple ribs.`\
+https://www.nytimes.com/2026/06/18/dining/why-have-two-rib-ends-when-you-could-have-all-rib-ends.html
+
+**Could Lowering Inflammation Treat Depression?**\
+`Psychiatrists think inflammation may be at the root of some people’s illness. How to treat it is an open question.`\
+https://www.nytimes.com/2026/06/18/well/mind/inflammation-depression-treatment.html
+
+**Trump Administration Backs Off Plan to End Ocean Monitoring System**\
+`The reversal comes after the Senate passed a bipartisan bill on Wednesday to block the removal of deep-sea monitoring instruments.`\
+https://www.nytimes.com/2026/06/18/climate/trump-ocean-observatories-initiative.html
+
+**McCarthy Aide’s Tell-All Book Recounts Trump’s Expletive-Filled Threats to G.O.P.**\
+`A new book by John Leganski, the floor manager for former Speaker Kevin McCarthy, offers a rare behind-the-scenes account of how President Trump wields his power through threats and intimidation.`\
+https://www.nytimes.com/2026/06/18/us/politics/mccarthy-trump-speaker-book.html
+
 **Centrist Democrat Concedes to Socialist in D.C. Mayoral Primary**\
 `President Trump’s grip on the capital loomed over the race, and he threatened to tighten it if Councilwoman Janeese Lewis George is elected. The Associated Press has not called the race.`\
 https://www.nytimes.com/2026/06/18/us/elections/washington-mayoral-primary.html
@@ -103,7 +127,7 @@ https://www.nytimes.com/2026/06/18/podcasts/gio-reyna-usmnt-uruguay-marcelo-biel
 https://www.nytimes.com/es/2026/06/18/espanol/mundo/trump-g7-europa.html
 
 **Iran War Live Updates: Oil Prices Fall as U.S.-Iran Deal Offers Hope for Shipping**\
-`With an initial agreement signed by both sides, oil could soon flow again through the Strait of Hormuz. But prospects for a long-term deal remained murky as talks on tougher issues loomed.`\
+`Vice President JD Vance is set to brief reporters at the White House after an initial peace agreement was signed by Iran and the United States. Prospects for a long-term deal on nuclear issues remain murky.`\
 https://www.nytimes.com/live/2026/06/18/world/iran-war-trump-us-deal
 
 **Archbishop of Canterbury Apologizes for Church of England’s Role in Forced Adoptions**\
@@ -135,7 +159,7 @@ https://www.nytimes.com/2026/06/18/crosswords/strands-sidekick-838.html
 https://www.nytimes.com/2026/06/18/technology/telegram-ban-india.html
 
 **Live Updates: Knicks Fans Jam Parade Route to Celebrate Long-Awaited Champions**\
-`The sidewalk viewing pens along Broadway hit capacity hours before the start of the festivities. Fans have waited more than five decades to celebrate an N.B.A. champion.`\
+`The N.B.A. championship team is riding up Broadway through packed sidewalks and streets that hit capacity hours before the parade began. Fans have waited more than five decades to celebrate a title.`\
 https://www.nytimes.com/live/2026/06/18/nyregion/knicks-parade
 
 **Do Sports Owners Win Championships?**\
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/06/18/opinion/jd-vance-iran-trump-communion.html
 **Trump’s Titanic Insecurities Are Sinking Us**\
 `The president’s titanic insecurities are sinking us.`\
 https://www.nytimes.com/2026/06/18/opinion/trump-vance-iran.html
-
-**Los tambores venezolanos se escuchan más y más en Nueva York**\
-`Puede que el baile de los tambores no sea tan conocido como otras danzas latinoamericanas, como el merengue o la salsa, pero eso está empezando a cambiar con la migración de millones de venezolanos.`\
-https://www.nytimes.com/es/2026/06/18/espanol/estados-unidos/tambores-venezolanos-nueva-york.html
-
-**In Atlanta, a Young Family Wanted the Perfect Home to Grow Into**\
-`With about $600,000 to spend, a couple and their two young kids searched for a three-bedroom house in and around the city. Here’s what they found.`\
-https://www.nytimes.com/interactive/2026/06/18/realestate/atlanta-homes-sale-prices.html
-
-**The Jewelers Using Wood in Place of Gold**\
-`Plus: shimmery beauty products and an expanded hotel in Jaipur.`\
-https://www.nytimes.com/2026/06/18/t-magazine/jewelry-wood-gemstones.html
-
-**Retail Investors Help Send SpaceX Shares Soaring**\
-`The company’s blockbuster trading debut is the latest example of how individual investors have become a force in financial markets.`\
-https://www.nytimes.com/2026/06/18/business/spacex-retail-investors.html
-
-**Corrections: June 18, 2026**\
-`Corrections that appeared in print on Thursday, June 18, 2026.`\
-https://www.nytimes.com/2026/06/18/pageoneplus/corrections-june-18-2026.html
-
-**Why Extreme Sports Enthusiasts Keep Jumping After a String of Tragedies**\
-`Often considered thrill seekers looking for the next adrenaline hit, participants say they’re actually drawn to control and a sense of time slowing down.`\
-https://www.nytimes.com/2026/06/18/us/extreme-sports-deaths.html
 
