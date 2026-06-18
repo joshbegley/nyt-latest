@@ -130,7 +130,7 @@ https://www.nytimes.com/2026/06/17/well/mind/ask-therapist-callout.html
 `Democrats and some Republicans excoriated President Trump’s pick for a top national security job. The president pushed ahead anyway.`\
 https://www.nytimes.com/2026/06/17/us/politics/bill-pulte-spy-agency.html
 
-**La tormenta tropical Arthur dejará fuertes lluvias en la costa del golfo de México**\
+**La tormenta tropical Arthur azota la costa del golfo de México mientras avanza tierra adentro**\
 `Arthur acaba de convertirse en la primera tormenta tropical con nombre de la temporada de huracanes del Atlántico de este año. Esta semana ha provocado fuertes lluvias e inundaciones en Texas, y se esperan más.`\
 https://www.nytimes.com/es/2026/06/17/espanol/tiempo-y-clima/tormenta-tropical-arthur.html
 
