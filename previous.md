@@ -1,3 +1,7 @@
+**Taiwan’s President Says He Trusts Trump to Approve Arms Sales**\
+`President Lai Ching-te made the hopeful remarks after Mr. Trump suggested that he could use a proposed $14 billion arms package for Taiwan as leverage with Beijing.`\
+https://www.nytimes.com/2026/06/18/world/asia/taiwan-trump-china-arms-weapons.html
+
 **Trump Signs Preliminary Deal to End the War With Iran**\
 `The White House confirmed that President Trump signed the memorandum of understanding between the United States and Iran on Wednesday at the Palace of Versailles.`\
 https://www.nytimes.com/video/world/middleeast/100000010975931/trump-signs-iran-deal.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/17/briefing/trump-senate-republicans-us-iran-dea
 **Federal Prisons Must Provide Hormones Sought by Trans Inmates**\
 `The government had argued that a “pendulum swing” in the medical consensus justified treating trans inmates with psychotherapy and antidepressants instead.`\
 https://www.nytimes.com/2026/06/17/us/hormones-transgender-prison-inmates.html
-
-**‘Matlock’ Writer Sues CBS, Claiming Hostile Environment for Black Employees**\
-`Some of the show’s leadership made harassing statements about the writer’s race and sexuality, the lawsuit says. CBS said it had been unable to find support for the allegations.`\
-https://www.nytimes.com/2026/06/17/arts/television/matlock-lawsuit-harassment.html
 
