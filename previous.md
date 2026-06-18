@@ -1,3 +1,7 @@
+**Afghanistan Issues Ban on Smartphones for Civil Servants and Military**\
+`Those using their phones at work will see them smashed and face punishment, according to a written order from the Taliban government’s highest court.`\
+https://www.nytimes.com/2026/06/18/world/asia/afghanistan-taliban-smartphone-ban.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/sports/basketball/100000010976359/18vid-knicks-17524.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/18/technology/ai-super-pac-guardrails-alliance.h
 **36 Hours in the Catskills: Things to Do and See**\
 `Northwest of New York City, this vast, verdant region is blooming with revived music venues, farmhouse cafes, cozy cocktail bars and hiking trails aplenty.`\
 https://www.nytimes.com/interactive/2026/06/18/travel/things-to-do-catskills.html
-
-**Can a Federal Plan Fix Dismal Penn Station? There’s Hope.**\
-`Everyone agrees that Penn Station is a disaster, but not on how to fix it. Now a Trump-backed, multibillion-dollar plan to rebuild it offers a promising step forward.`\
-https://www.nytimes.com/2026/06/18/arts/design/penn-station-renovation-plan-trump.html
 

@@ -1,3 +1,7 @@
+**Afghanistan Issues Ban on Smartphones for Civil Servants and Military**\
+`Those using their phones at work will see them smashed and face punishment, according to a written order from the Taliban government’s highest court.`\
+https://www.nytimes.com/2026/06/18/world/asia/afghanistan-taliban-smartphone-ban.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/sports/basketball/100000010976359/18vid-knicks-17524.html
