@@ -1,10 +1,14 @@
+**Are You a Recent College Graduate Who Moved Back Home? We Want to Hear From You.**\
+`If you lived with your parents for nine months or more after graduation, please tell us how you came to the decision and whether the job market influenced your thinking.`\
+https://www.nytimes.com/2026/06/18/business/college-graduate-living-with-parents.html
+
 **Rama Duwaji Had the Winning Look at the Knicks Parade**\
 `The first lady and the mayor showed up for the celebration in style.`\
 https://www.nytimes.com/2026/06/18/style/rama-duwaji-knicks-parade-mamdani.html
 
 **25 preguntas para conocer mejor a papá**\
 `Este Día del Padre, renueva tus temas de conversación y conoce un poco más a una de las figuras más importantes de tu vida.`\
-https://www.nytimes.com/es/interactive/2026/06/18/well/family/como-hablar-papa-dia-padre.html
+https://www.nytimes.com/es/interactive/2026/06/18/espanol/como-hablar-papa-dia-padre.html
 
 **Father’s Day: 25 Questions to Bring You Closer to Your Dad**\
 `This Father’s Day, open up a new channel of communication.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/18/books/review/new-recommended-books.html
 **Takeaways From ‘Regime Change,’ Maggie Haberman and Jonathan Swan’s Book on Trump’s White House**\
 `The book by Maggie Haberman and Jonathan Swan of The New York Times, “Regime Change,” reveals a host of details and surprising exchanges as President Trump pushed to drastically expand his power.`\
 https://www.nytimes.com/2026/06/18/us/politics/trump-regime-change-book-haberman-swan.html
-
-**The Mexican Artist Ramòn Saturnino Is Breaking Down Walls**\
-`Ramón Saturnino, an architect by training, is showing his work on the U.S.-Mexico border wall for the first time at Art Basel.`\
-https://www.nytimes.com/2026/06/18/arts/design/ramon-saturnino-art-basel.html
 
