@@ -1,3 +1,7 @@
+**The Treasure House Fair Arrives at the Right Time in London**\
+`The Treasure House Fair returns for its fourth year, embracing accessibility and emotion over connoisseurship.`\
+https://www.nytimes.com/2026/06/18/arts/design/treasure-house-fair-london.html
+
 **Book Review: ‘Regime Change,’ by Maggie Haberman and Jonathan Swan**\
 `In “Regime Change,” two New York Times journalists offer a riveting chronicle of the weird fusion of reality and show business in the White House.`\
 https://www.nytimes.com/2026/06/18/books/review/regime-change-maggie-haberman-jonathan-swan.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/18/special-series/laufey-dissonance-drive.html
 **Muere Daveigh Chase, actriz infantil de ‘Lilo y Stitch’ y ‘El aro’, a los 35 años**\
 `Dio vida a la valiente Lilo en la popular saga de películas animadas y puso los pelos de punta al público interpretando a la pequeña villana Samara en la película de terror ‘El aro’.`\
 https://www.nytimes.com/es/2026/06/18/espanol/muere-daveigh-chase-meningitis.html
-
-**While You Were Sleeping, They Made Money Saving Spots at the Knicks Parade**\
-`High-demand events in New York City attract people willing to wait in line for hundreds of dollars. The Knicks parade is no different.`\
-https://www.nytimes.com/2026/06/18/nyregion/knicks-parade-route-nyc-airtasker.html
 
