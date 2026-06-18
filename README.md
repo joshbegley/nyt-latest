@@ -1,3 +1,7 @@
+**Centrist Democrat Concedes to Socialist in D.C. Mayoral Primary**\
+`President Trump’s grip on the capital loomed over the race, and he threatened to tighten it if Councilwoman Janeese Lewis George is elected. The Associated Press has not called the race.`\
+https://www.nytimes.com/2026/06/18/us/elections/washington-mayoral-primary.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/nyregion/100000010976539/18vid-knicks-7813.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/18/pageoneplus/corrections-june-18-2026.html
 **Why Extreme Sports Enthusiasts Keep Jumping After a String of Tragedies**\
 `Often considered thrill seekers looking for the next adrenaline hit, participants say they’re actually drawn to control and a sense of time slowing down.`\
 https://www.nytimes.com/2026/06/18/us/extreme-sports-deaths.html
-
-**At Art Basel, a Nervy, Make-or-Break Mood**\
-`The auction market is buoyant, but business feels precarious for dealers at the world’s premier contemporary art fair.`\
-https://www.nytimes.com/2026/06/18/arts/design/art-basel-switzerland.html
 

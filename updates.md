@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/nyregion/100000010976539/18vid-knicks-7813.html
+
+**Live Updates: Knicks Fans Jam Parade Route to Celebrate Long-Awaited Champions**\
+`The sidewalk viewing pens along Broadway hit capacity hours before the start of the festivities. Fans have waited more than five decades to celebrate an N.B.A. champion.`\
+https://www.nytimes.com/live/2026/06/18/nyregion/knicks-parade
+
 **Take Your Business Beyond the Day-to-Day**\
 `In the second part of a two-part series, Mark Valentino, president of Business Banking, and Rebecca O’Connell, president of Corporate Banking, discuss how clients can choose a succession plan based on their financial goals, exit timeline and long-term vision.`\
 http://brandedplaylist.nytimes.com/video/embedded/t-brand/100000010976601/take-your-business-beyond-the-day-to-day.html

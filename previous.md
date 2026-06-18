@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/nyregion/100000010976539/18vid-knicks-7813.html
+
 **Take Your Business Beyond the Day-to-Day**\
 `In the second part of a two-part series, Mark Valentino, president of Business Banking, and Rebecca O’Connell, president of Corporate Banking, discuss how clients can choose a succession plan based on their financial goals, exit timeline and long-term vision.`\
 http://brandedplaylist.nytimes.com/video/embedded/t-brand/100000010976601/take-your-business-beyond-the-day-to-day.html
@@ -127,7 +131,7 @@ https://www.nytimes.com/2026/06/18/crosswords/strands-sidekick-838.html
 https://www.nytimes.com/2026/06/18/technology/telegram-ban-india.html
 
 **Live Updates: Knicks Fans Jam Parade Route to Celebrate Long-Awaited Champions**\
-`The sidewalk viewing pens along Broadway hit capacity hours before the 10 a.m. Eastern time start of the festivities. Fans have waited more than five decades to celebrate an N.B.A. champion.`\
+`The sidewalk viewing pens along Broadway hit capacity hours before the start of the festivities. Fans have waited more than five decades to celebrate an N.B.A. champion.`\
 https://www.nytimes.com/live/2026/06/18/nyregion/knicks-parade
 
 **Do Sports Owners Win Championships?**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/18/us/extreme-sports-deaths.html
 **At Art Basel, a Nervy, Make-or-Break Mood**\
 `The auction market is buoyant, but business feels precarious for dealers at the world’s premier contemporary art fair.`\
 https://www.nytimes.com/2026/06/18/arts/design/art-basel-switzerland.html
-
-**All Aboard! Brands Jump on the Knicks Bandwagon.**\
-`Companies — including some with no ties to New York or basketball — have posted memes, changed their avatars to Knicks blue and orange, and cheered the team in their captions.`\
-https://www.nytimes.com/2026/06/18/business/knicks-brands-merchandise.html
 
