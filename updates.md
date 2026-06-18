@@ -1,3 +1,7 @@
+**Absent Congressman to Return to House in 12 Days, Aide Says**\
+`Thomas Kean Jr. has missed three months of votes in Washington and has not been on the campaign trail in his New Jersey district because of an unexplained health condition.`\
+https://www.nytimes.com/2026/06/18/nyregion/representative-tom-kean-return-to-congress.html
+
 **Inside Trump's Touring Exhibition of American Heroes**\
 `For a touring exhibition, Trump appointees chose 51 people who shaped our nation’s history. Among them: icons from the baby boomer era, Christians, wealthy industrialists and P.T. Barnum.`\
 https://www.nytimes.com/interactive/2026/06/18/us/trump-america250-freedom-trucks.html
