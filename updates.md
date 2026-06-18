@@ -1,3 +1,15 @@
+**Iran and the U.S. Have an Understanding. Will It Lead to a Deal?**\
+`Europe and the larger world will be watching carefully to see if talks produce a lasting agreement on Iran’s nuclear program and the Strait of Hormuz.`\
+https://www.nytimes.com/2026/06/18/world/europe/iran-united-states-deal-israel.html
+
+**Amazon Retaliated Against Workers Who Opposed Data Centers, Complaint Says**\
+`The employees encouraged limits on the complexes in a series of hearings in the tech giant’s hometown, Seattle.`\
+https://www.nytimes.com/2026/06/18/technology/amazon-worker-retaliation-data-center-complaints.html
+
+**London Hospital Worker Tried to Sell Princess Catherine’s Medical Records, Reports Say**\
+`Britain’s data regulator said it had reprimanded a health worker for misusing sensitive information. The hospital said the person no longer worked there.`\
+https://www.nytimes.com/2026/06/18/world/europe/princess-kate-medical-records-sale-uk.html
+
 **Amazon Retaliated Against Workers Who Opposed Data Centers, Complaint Says**\
 `The employees encouraged limits on the complexes in a series of hearings in the tech giant’s hometown, Seattle.`\
 https://www.nytimes.com/2026/06/18/technology/amazon-retaliated-against-workers-who-opposed-data-centers-complaint-says.html

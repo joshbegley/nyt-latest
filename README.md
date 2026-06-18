@@ -1,8 +1,12 @@
+**The Major Oak, Ancient Tree of Robin Hood Legend, Has Died**\
+`The Major Oak in the Sherwood Forest was between 800 and 1,200 years old. It succumbed to a combination of over-tourism, climate change and misguided efforts to save it.`\
+https://www.nytimes.com/2026/06/18/world/europe/major-oak-tree-dies.html
+
 **Iran and the U.S. Have an Understanding. Will It Lead to a Deal?**\
 `Europe and the larger world will be watching carefully to see if talks produce a lasting agreement on Iran’s nuclear program and the Strait of Hormuz.`\
 https://www.nytimes.com/2026/06/18/world/europe/iran-united-states-deal-israel.html
 
-**Amazon Retaliated Against Workers Who Opposed Data Centers, Complaint Says**\
+**Amazon Retaliated Against Workers Who Supported Regulating Data Centers, Complaint Says**\
 `The employees encouraged limits on the complexes in a series of hearings in the tech giant’s hometown, Seattle.`\
 https://www.nytimes.com/2026/06/18/technology/amazon-worker-retaliation-data-center-complaints.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/live/2026/06/18/world/iran-war-trump-us-deal
 **Archbishop of Canterbury Apologizes for Church of England’s Role in Forced Adoptions**\
 `Tens of thousands of babies were taken from unmarried women and girls from the 1950s to the 1980s. The Church of England apologized for the “pain, shame and indignity” the practice inflicted.`\
 https://www.nytimes.com/2026/06/18/world/europe/church-england-apology-forced-adoptions-uk.html
-
-**How Iran Could Benefit From Its Deal With the U.S., and an A.I. Arms Race in Schools**\
-`Plus, the “Obamalisk” opens.`\
-https://www.nytimes.com/2026/06/18/podcasts/the-headlines/iran-benefit-deal-us-and-artificial-intelligence-arms-race-schools.html
 
