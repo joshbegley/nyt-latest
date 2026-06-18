@@ -1,3 +1,11 @@
+**Los deportistas extremos saben que van a perder muchos amigos**\
+`Por lo general se les ve como personas que buscan emociones fuertes, pero quienes practican estas actividades dicen que lo que les atrae es el control y la sensación de que el tiempo se desacelera.`\
+https://www.nytimes.com/es/2026/06/18/espanol/estados-unidos/accidentes-deportes-extremos-muertes.html
+
+**Danny Simmons, Painter and Activist From a Creative Family, Dies at 72**\
+`The older brother of the music mogul Russell Simmons and the rapper Joseph Simmons, he made his own way as an artistic and entrepreneurial force in Brooklyn.`\
+https://www.nytimes.com/2026/06/18/arts/danny-simmons-dead.html
+
 **Man Charged With Hate Crime Over Burning Cross in Chicago Park**\
 `A former university student, Merlin Lu, 21, has claimed that he set the cross on fire in Grant Park to protest the Trump administration, not as an act of racism.`\
 https://www.nytimes.com/2026/06/18/us/chicago-burning-cross-arrest.html

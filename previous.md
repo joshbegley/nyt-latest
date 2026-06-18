@@ -1,3 +1,11 @@
+**Los deportistas extremos saben que van a perder muchos amigos**\
+`Por lo general se les ve como personas que buscan emociones fuertes, pero quienes practican estas actividades dicen que lo que les atrae es el control y la sensación de que el tiempo se desacelera.`\
+https://www.nytimes.com/es/2026/06/18/espanol/estados-unidos/accidentes-deportes-extremos-muertes.html
+
+**Danny Simmons, Painter and Activist From a Creative Family, Dies at 72**\
+`The older brother of the music mogul Russell Simmons and the rapper Joseph Simmons, he made his own way as an artistic and entrepreneurial force in Brooklyn.`\
+https://www.nytimes.com/2026/06/18/arts/danny-simmons-dead.html
+
 **Man Charged With Hate Crime Over Burning Cross in Chicago Park**\
 `A former university student, Merlin Lu, 21, has claimed that he set the cross on fire in Grant Park to protest the Trump administration, not as an act of racism.`\
 https://www.nytimes.com/2026/06/18/us/chicago-burning-cross-arrest.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/18/world/europe/princess-kate-medical-records-sa
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/nyregion/100000010976807/18vid-knicks-30166.html
-
-**Mariska Hargitay on ‘Every Brilliant Thing’ and Finding Inspiration From Jalen Brunson**\
-`The “Law & Order: SVU” actress “was really scared” about starring in “Every Brilliant Thing.” Who does she look to for inspiration? The Knicks, of course.`\
-https://www.nytimes.com/2026/06/18/theater/mariska-hargitay-broadway-every-brilliant-thing.html
-
-**Moscow Oil Refinery Slammed by Ukrainian Drones**\
-`Social media footage showed several sites, including an oil refinery, in Moscow being struck by Ukrainian drones on Thursday.`\
-https://www.nytimes.com/video/world/europe/moscow-oil-refinery-attack-ukraine-drones.html
 
