@@ -1,3 +1,27 @@
+**These World Cup Tourists Loving American Food Aren’t All What They Seem**\
+`Visiting soccer fans enraptured by free refills and salsa have become the feel-good story of the summer, even when the facts don’t fit.`\
+https://www.nytimes.com/2026/06/18/dining/world-cup-tourists-food-videos.html
+
+**While Knicks Fans Celebrate, a New York Artist Fumes**\
+`After the Knicks promoted Gavin Snider’s watercolor painting in the wake of their N.B.A. title, one of the most famous artists on social media posted an uncannily similar work.`\
+https://www.nytimes.com/2026/06/18/arts/design/knicks-gavin-snider-devon-rodriguez.html
+
+**Large Waves Sweep Napping Beachgoers in California Into the Sea**\
+`Two college students lying on a Santa Cruz beach were swept as massive waves and dangerous rip currents inundated the coastline in recent days.`\
+https://www.nytimes.com/2026/06/18/us/college-students-drowned-california.html
+
+**Man Who Tried to Enter Sabrina Carpenter’s Home Gets 5-Year Restraining Order**\
+`The pop star and songwriter said she feared what the man would do if he was not prevented from coming near her or her family, according to court records.`\
+https://www.nytimes.com/2026/06/18/arts/sabrina-carpenter-restraining-order.html
+
+**Colorado Governor Overruled His Own Clemency Board to Release Tina Peters**\
+`Two members of Gov. Jared Polis’s board that reviews commutation requests came forward to say the secretive panel had twice rejected the release of Tina Peters, convicted of election tampering.`\
+https://www.nytimes.com/2026/06/18/us/politics/colorado-clemency-board-tina-peters.html
+
+**Taylor Swift, Geese, the Beatles and More: Popcast Critics Answer Your Pop Questions!**\
+`Joe Coscarelli and Jon Caramanica answer audience questions. Watch the full episode here.`\
+https://www.nytimes.com/video/podcasts/100000010972507/taylor-swift-geese-the-beatles-and-more-popcast-critics-answer-your-pop-questions.html
+
 **Los deportistas extremos saben que van a perder muchos amigos**\
 `Por lo general se les ve como personas que buscan emociones fuertes, pero quienes practican estas actividades dicen que lo que les atrae es el control y la sensación de que el tiempo se desacelera.`\
 https://www.nytimes.com/es/2026/06/18/espanol/estados-unidos/accidentes-deportes-extremos-muertes.html

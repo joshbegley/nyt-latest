@@ -1,3 +1,27 @@
+**These World Cup Tourists Loving American Food Aren’t All What They Seem**\
+`Visiting soccer fans enraptured by free refills and salsa have become the feel-good story of the summer, even when the facts don’t fit.`\
+https://www.nytimes.com/2026/06/18/dining/world-cup-tourists-food-videos.html
+
+**While Knicks Fans Celebrate, a New York Artist Fumes**\
+`After the Knicks promoted Gavin Snider’s watercolor painting in the wake of their N.B.A. title, one of the most famous artists on social media posted an uncannily similar work.`\
+https://www.nytimes.com/2026/06/18/arts/design/knicks-gavin-snider-devon-rodriguez.html
+
+**Large Waves Sweep Napping Beachgoers in California Into the Sea**\
+`Two college students lying on a Santa Cruz beach were swept as massive waves and dangerous rip currents inundated the coastline in recent days.`\
+https://www.nytimes.com/2026/06/18/us/college-students-drowned-california.html
+
+**Man Who Tried to Enter Sabrina Carpenter’s Home Gets 5-Year Restraining Order**\
+`The pop star and songwriter said she feared what the man would do if he was not prevented from coming near her or her family, according to court records.`\
+https://www.nytimes.com/2026/06/18/arts/sabrina-carpenter-restraining-order.html
+
+**Colorado Governor Overruled His Own Clemency Board to Release Tina Peters**\
+`Two members of Gov. Jared Polis’s board that reviews commutation requests came forward to say the secretive panel had twice rejected the release of Tina Peters, convicted of election tampering.`\
+https://www.nytimes.com/2026/06/18/us/politics/colorado-clemency-board-tina-peters.html
+
+**Taylor Swift, Geese, the Beatles and More: Popcast Critics Answer Your Pop Questions!**\
+`Joe Coscarelli and Jon Caramanica answer audience questions. Watch the full episode here.`\
+https://www.nytimes.com/video/podcasts/100000010972507/taylor-swift-geese-the-beatles-and-more-popcast-critics-answer-your-pop-questions.html
+
 **Los deportistas extremos saben que van a perder muchos amigos**\
 `Por lo general se les ve como personas que buscan emociones fuertes, pero quienes practican estas actividades dicen que lo que les atrae es el control y la sensación de que el tiempo se desacelera.`\
 https://www.nytimes.com/es/2026/06/18/espanol/estados-unidos/accidentes-deportes-extremos-muertes.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/06/18/us/world-cup-hydration-breaks.html
 **Jose Alvarado the Photographer Looks Back on the Knicks’ Magic**\
 `While fans watched their team, José A. Alvarado Jr. watched the crowd.`\
 https://www.nytimes.com/2026/06/18/insider/knicks-ny-photos-nba-finals.html
-
-**Mira el desfile triunfal de los Knicks**\
-`Los aficionados se reúnen este jueves en Manhattan para animar a los campeones de la NBA en una celebración muy esperada.`\
-https://www.nytimes.com/es/2026/06/18/espanol/deportes/knicks-campeonato-desfile-celebracion.html
-
-**Tornadoes Cause Damage as Storms Sweep the Midwest**\
-`Storms brought heavy rain, hail and strong winds to the Midwest on Wednesday, with tornadoes reported in Illinois and Wisconsin.`\
-https://www.nytimes.com/video/us/100000010976369/tornadoes-midwest-damage-rain-hail.html
-
-**In Ancient Pits Near Stonehenge, Scientists See Hints of Solstice Ritual**\
-`British archaeologists may have found the remains of a site where people celebrated the solstice thousands of years ago, a few miles from the famed stone circle.`\
-https://www.nytimes.com/2026/06/18/world/europe/uk-pits-stonehenge-britain-discovery.html
-
-**Gary Shteyngart, a Russian-Born Author, Tours Thomas Jefferson’s Home With His Son**\
-`I emigrated from the Soviet Union decades ago, and recently toured Thomas Jefferson’s home with my American-born history-buff son.`\
-https://www.nytimes.com/2026/06/18/travel/novelist-immigrant-thomas-jefferson-home-son.html
-
-**London Hospital Worker Tried to Sell Princess Catherine’s Medical Records, Reports Say**\
-`Britain’s data regulator said it had reprimanded a health worker for misusing sensitive information. The hospital said the person no longer worked there.`\
-https://www.nytimes.com/2026/06/18/world/europe/princess-kate-medical-records-sale-uk.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/nyregion/100000010976807/18vid-knicks-30166.html
 
