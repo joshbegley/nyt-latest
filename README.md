@@ -1,3 +1,11 @@
+**Trump’s Iran Deal Isn’t Perfect. It Doesn’t Need to Be.**\
+`The world doesn’t need a nuclear deal with Tehran.`\
+https://www.nytimes.com/2026/06/18/opinion/iran-nuclear-deal-trump.html
+
+**In Britain, the Far Right Is Setting the Agenda**\
+`Its opponents urgently need to demonstrate that they can do more than throw up their hands in horror.`\
+https://www.nytimes.com/2026/06/18/opinion/britain-far-right-reform-restore-uk.html
+
 **Elecciones en Inglaterra: esto hay que saber sobre las votaciones extraordinarias**\
 `El jueves hay elecciones extraordinarias en Makerfield, un distrito al norte de Inglaterra. Sus resultados podrían provocar la destitución del primer ministro Keir Starmer.`\
 https://www.nytimes.com/es/2026/06/18/espanol/mundo/inglaterra-elecciones-partido-laborista.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/17/world/social-media-ban-iran-deal-congo-world-
 **Gilgo Beach Serial Killer Sentenced to Life Without Parole**\
 `The serial killer who admitted in April to murdering eight women in the so-called Gilgo Beach killings, was sentenced on Wednesday to life in prison.`\
 https://www.nytimes.com/video/us/100000010974398/gilgo-beach-serial-killer-sentencing.html
-
-****\
-`Activists and protesters erupted in cheers at the Georgia State Capitol after lawmakers shelved redistricting plans.`\
-https://www.nytimes.com/video/embedded/us/politics/100000010974909/17vid-Georgia-Re-Districting.html
-
-**U.S. Will Waive Oil Sanctions That Have Long Crimped Iran**\
-`The preliminary U.S.-Iran deal temporarily waives restrictions that have limited the country’s oil sales and how much money it has been able to make from those exports.`\
-https://www.nytimes.com/2026/06/17/world/europe/us-iran-oil-sanctions.html
 
 **Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
 `Chairman Kevin M. Warsh vowed to start a “new chapter” in the Federal Reserve’s oversight of the U.S. economy.`\
