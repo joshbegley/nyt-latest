@@ -1,3 +1,27 @@
+**3 Books to Read if You Loved ‘The Road’**\
+`The best-selling author Ryan Holiday joined the “Book Review” podcast to discuss “The Road,” by Cormac McCarthy. This book was one of Holiday’s picks for The New York Times’s “100 Best Books of the 21st Century,” and made it onto the list at no. 13. If you like McCarthy’s postapocalyptic novel, Holiday shares recommendations for books to read next. Tap the link in our bio to listen to the full conversation on the “Book Review” podcast.`\
+https://www.nytimes.com/video/podcasts/100000010978149/3-books-to-read-if-you-loved-the-road.html
+
+**Organiza una salida noventera**\
+`Tu teléfono no está invitado`\
+https://www.nytimes.com/es/interactive/2026/06/18/espanol/como-organizar-reunion-dejar-celular.html
+
+**Host a '90s-Style Hangout**\
+`Your phone is not invited.`\
+https://www.nytimes.com/interactive/2026/06/18/well/summer-challenge-90s-nostalgia.html
+
+**Renato Rosaldo, Anthropologist Who Disrupted His Discipline, Dies at 85**\
+`After his wife’s death while doing fieldwork, he rejected writing as a detached observer, setting off a profound shift in cultural anthropology.`\
+https://www.nytimes.com/2026/06/18/science/renato-rosaldo-dead.html
+
+**Looking for a Perfect World Cup Bar? We Found Three.**\
+`Spots for wings, B.Y.O.D. (bring your own dumplings) and prime rib hash.`\
+https://www.nytimes.com/2026/06/18/dining/looking-for-a-perfect-world-cup-bar-we-found-three.html
+
+**Report Tallies 39 Adults Who Could Have Helped Save Girls at Camp Mystic**\
+`The finding was part of a growing case against the camp’s leadership, which state investigators said did not organize an evacuation in time “despite ample opportunity.”`\
+https://www.nytimes.com/2026/06/18/us/texas-flooding-evacuation-camp-mystic.html
+
 **The ‘Rivalry’ Between Vance and Rubio**\
 `There’s no “intense rivalry behind the scenes” between JD Vance and Secretary of State Marco Rubio, the vice president argues on “Interesting Times.” The Opinion columnist Ross Douthat asks the vice president what happens to his political future if the Iran deal goes poorly.`\
 https://www.nytimes.com/video/opinion/100000010968360/the-rivalry-between-vance-and-rubio.html

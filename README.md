@@ -27,7 +27,7 @@ https://www.nytimes.com/video/opinion/100000010968360/the-rivalry-between-vance-
 https://www.nytimes.com/video/world/europe/100000010976921/england-makerfield-election.html
 
 **Knicks in Five. The City Is Alive.**\
-`New York City found a reason to party on Thursday, cheering, crying and climbing around Broadway to celebrate the Knicks N.B.A. championship.`\
+`New York City found a reason to party on Thursday, cheering, crying and climbing around Broadway to celebrate the Knicks’ N.B.A. championship.`\
 https://www.nytimes.com/2026/06/18/nyregion/knicks-championship-parade-celebration-nyc.html
 
 **Here’s What Barack and Michelle Obama Said at His Presidential Center Opening**\
