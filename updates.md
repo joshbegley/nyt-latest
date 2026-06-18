@@ -1,3 +1,7 @@
+**Live Updates: Knicks Fans Line Up for a Parade Decades in the Making**\
+`The police declared the sidewalk viewing pens along Broadway full more than two hours before the 10 a.m. start of the festivities. The ticker-tape parade will celebrate the N.B.A. team that ended a five-decade championship drought.`\
+https://www.nytimes.com/live/2026/06/18/nyregion/knicks-parade
+
 **Afghanistan Issues Ban on Smartphones for Civil Servants and Military**\
 `Those using their phones at work will see them smashed and face punishment, according to a written order from the Taliban government’s highest court.`\
 https://www.nytimes.com/2026/06/18/world/asia/afghanistan-taliban-smartphone-ban.html

@@ -82,7 +82,7 @@ https://www.nytimes.com/2026/06/18/crosswords/strands-sidekick-838.html
 `Several countries have restricted the messaging app, a valuable platform for dissidents, criminals and extremists. Here’s an overview.`\
 https://www.nytimes.com/2026/06/18/technology/telegram-ban-india.html
 
-**Live Updates: Knicks Fans Line Up Before Dawn for a Parade Decades in the Making**\
+**Live Updates: Knicks Fans Line Up for a Parade Decades in the Making**\
 `The police declared the sidewalk viewing pens along Broadway full more than two hours before the 10 a.m. start of the festivities. The ticker-tape parade will celebrate the N.B.A. team that ended a five-decade championship drought.`\
 https://www.nytimes.com/live/2026/06/18/nyregion/knicks-parade
 
