@@ -1,3 +1,19 @@
+**In Southeast Asia, Switching to Solar Offers Relief from Energy Crisis Caused by Iran War**\
+`Homeowners and businesses in the region, which relies heavily on imported oil, are installing rooftop solar panels to reduce the sting of soaring energy costs.`\
+https://www.nytimes.com/2026/06/18/world/asia/asia-oil-crisis-iran-solar-panels.html
+
+**Why the By-Election in Makerfield Will Have Giant Consequences for the UK**\
+`Here is what to know about the by-election on Thursday in Makerfield, the outcome of which could lead to Prime Minister Keir Starmer’s ouster.`\
+https://www.nytimes.com/2026/06/18/world/europe/uk-makerfield-by-election-burnham-starmer.html
+
+**Quote of the Day: NYNJ Stadium? A Cross-State Kick in the Teeth.**\
+`Quotation of the Day for Thursday, June 18, 2026.`\
+https://www.nytimes.com/2026/06/18/pageoneplus/quote-of-the-day-nynj-stadium-a-cross-state-kick-in-the-teeth.html
+
+**Acuerdo entre EE. UU. e Irán: esto dice el texto**\
+`Periodistas de The New York Times ofrecen un análisis de los párrafos del acuerdo, que un alto cargo dio a conocer el miércoles.`\
+https://www.nytimes.com/es/2026/06/18/espanol/estados-unidos/acuerdo-paz-iran-texto.html
+
 **Team Medic Recounts Iran’s ‘Stressful’ World Cup Debut in L.A.**\
 `A member of Iran’s medical team says the team endured delays, multiple security searches and a rushed exit, frustrating players and officials.`\
 https://www.nytimes.com/2026/06/17/world/middleeast/iran-world-cup-united-states.html
@@ -177,18 +193,6 @@ https://www.nytimes.com/2026/06/17/world/europe/us-iran-oil-sanctions.html
 **Tropical Storm Arthur Hits World Cup Attendees in Texas**\
 `Attendees lined up for the World Cup in Houston as Tropical Storm Arthur made landfall along the Texas coast on Wednesday.`\
 https://www.nytimes.com/video/weather/100000010974358/tropical-storm-arthur-texas-world-cup.html
-
-**Indiana Professor Who Taught Anti-White Supremacy Lesson Loses Job**\
-`The lesson included a slide that suggested that the “Make America Great Again” slogan should be considered a form of covert white supremacy.`\
-https://www.nytimes.com/2026/06/17/us/indiana-professor-white-supremacy-lesson-maga.html
-
-**Trump Feuds With Thune and G.O.P., Stoking Election-Year Rift**\
-`The president upended the majority leader’s plans by yanking his intelligence nominee from a confirmation hearing and insisting on an end to the filibuster.`\
-https://www.nytimes.com/2026/06/17/us/politics/trump-thune-republicans-election-year-rift.html
-
-**F.T.C. Sues Group That Advises on Transgender Medical Treatments**\
-`The group, World Professional Association for Transgender Health, offers guidelines on medical treatment for transgender patients.`\
-https://www.nytimes.com/2026/06/17/us/politics/ftc-wpath-transgender-medical-treatments.html
 
 **Fed Holds Rates and Leans Toward Fighting Inflation With Future Increases**\
 `Chairman Kevin M. Warsh vowed to start a “new chapter” in the Federal Reserve’s oversight of the U.S. economy.`\
