@@ -1,3 +1,11 @@
+**Trump’s Iran Deal Isn’t Perfect. It Doesn’t Need to Be.**\
+`The world doesn’t need a nuclear deal with Tehran.`\
+https://www.nytimes.com/2026/06/18/opinion/iran-nuclear-deal-trump.html
+
+**In Britain, the Far Right Is Setting the Agenda**\
+`Its opponents urgently need to demonstrate that they can do more than throw up their hands in horror.`\
+https://www.nytimes.com/2026/06/18/opinion/britain-far-right-reform-restore-uk.html
+
 **Elecciones en Inglaterra: esto hay que saber sobre las votaciones extraordinarias**\
 `El jueves hay elecciones extraordinarias en Makerfield, un distrito al norte de Inglaterra. Sus resultados podrían provocar la destitución del primer ministro Keir Starmer.`\
 https://www.nytimes.com/es/2026/06/18/espanol/mundo/inglaterra-elecciones-partido-laborista.html
