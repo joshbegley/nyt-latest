@@ -1,3 +1,23 @@
+**Netflix Cancels Duffer Brothers’ ‘The Boroughs’ After One Season**\
+`The Duffer brothers, who produced the series and created “Stranger Things,” recently left the streamer for Paramount.`\
+https://www.nytimes.com/2026/06/18/arts/television/boroughs-canceled-duffer-brothers-netflix.html
+
+**Penske Media Is Buying What’s Left of Vox Media**\
+`The deal will put online publications like Popsugar and Eater under the same roof as Rolling Stone and Variety.`\
+https://www.nytimes.com/2026/06/18/business/media/penske-vox-media.html
+
+**Scores Fall Ill at Air Force Base After Hegseth Makes Flu Vaccine Optional**\
+`The defense secretary described the vaccine requirement, which he lifted in April, as an “absurd, overreaching” mandate.`\
+https://www.nytimes.com/2026/06/18/us/flu-outbreak-air-force-base.html
+
+**Outdoor Sculpture Shows Feature Henry Moore, Lynn Chadwick in England This Summer**\
+`As art lovers head to London for the Treasure House Fair, outdoor sculpture shows featuring Henry Moore, Lynn Chadwick and big names beckon.`\
+https://www.nytimes.com/2026/06/18/arts/design/england-outdoor-sculpture-shows.html
+
+**Education Department Lowers Student Loan Interest Rates for Two Years**\
+`The department, citing high default rates, is reducing interest rates on federal student loans by up to one percentage point for two years.`\
+https://www.nytimes.com/2026/06/18/business/student-loans-interest-rate.html
+
 **The Treasure House Fair Arrives at the Right Time in London**\
 `The Treasure House Fair returns for its fourth year, embracing accessibility and emotion over connoisseurship.`\
 https://www.nytimes.com/2026/06/18/arts/design/treasure-house-fair-london.html
