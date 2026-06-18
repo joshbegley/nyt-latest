@@ -1,3 +1,7 @@
+**Jimmy Kimmel Feels ‘Hormuzled’ by Trump’s New Deal With Iran**\
+`Although the agreement finally reopens the Strait of Hormuz, “we threw in a minimum of $300 billion,” Kimmel said. “Right now, Melania’s wondering, ‘How do I get deal like that?’”`\
+https://www.nytimes.com/2026/06/18/arts/television/jimmy-kimmel-strait-hormuz-trump-iran-deal.html
+
 **Word of the Day: antipodes**\
 `This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/06/18/learning/word-of-the-day-antipodes.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/06/17/espanol/tiempo-y-clima/tormenta-tropical-a
 **The Blobby, Drippy Maximalist Design You’re Seeing Everywhere**\
 `After years of corporate millennial blanding, consumer culture oozes into shape for a new generation.`\
 https://www.nytimes.com/2026/06/17/style/maximalism-aesthetic-hyper-goo.html
-
-**Teenagers vs. Social Media Bans**\
-`Australia barred children from social media in December. Since then, young people have found plenty of ways to skirt the measure.`\
-https://www.nytimes.com/2026/06/17/world/social-media-ban-iran-deal-congo-world-cup.html
 
