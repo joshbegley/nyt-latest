@@ -1,3 +1,7 @@
+**Rereading ‘The Road’ as a Dad**\
+`“The Road,” by Cormac McCarthy, was one of the author Ryan Holiday’s picks for The New York Times’s “100 Best Books of the 21st Century.” Holiday first read the harrowing story of a father and son traveling together in a postapocalyptic world in college. On a recent episode of the “Book Review” podcast, Holiday talked with the host Gilbert Cruz about his experience rereading the book as a father.`\
+https://www.nytimes.com/video/podcasts/100000010978339/rereading-the-road-as-a-dad.html
+
 **3 Books to Read if You Loved ‘The Road’**\
 `The best-selling author Ryan Holiday joined the “Book Review” podcast to discuss “The Road,” by Cormac McCarthy. This book was one of Holiday’s picks for The New York Times’s “100 Best Books of the 21st Century,” and made it onto the list at no. 13. If you like McCarthy’s postapocalyptic novel, Holiday shares recommendations for books to read next. Tap the link in our bio to listen to the full conversation on the “Book Review” podcast.`\
 https://www.nytimes.com/video/podcasts/100000010978149/3-books-to-read-if-you-loved-the-road.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/politics/100000010910839/erika-kirks-message-fo
 **Education Department Lowers Student Loan Interest Rates for Two Years**\
 `The department, citing high default rates, is reducing interest rates on federal student loans by up to one percentage point for two years.`\
 https://www.nytimes.com/2026/06/18/business/student-loans-interest-rate.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/nyregion/100000010977349/18vid-knicks-85924.html
 

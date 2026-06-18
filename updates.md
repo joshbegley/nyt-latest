@@ -1,3 +1,7 @@
+**Rereading ‘The Road’ as a Dad**\
+`“The Road,” by Cormac McCarthy, was one of the author Ryan Holiday’s picks for The New York Times’s “100 Best Books of the 21st Century.” Holiday first read the harrowing story of a father and son traveling together in a postapocalyptic world in college. On a recent episode of the “Book Review” podcast, Holiday talked with the host Gilbert Cruz about his experience rereading the book as a father.`\
+https://www.nytimes.com/video/podcasts/100000010978339/rereading-the-road-as-a-dad.html
+
 **Knicks in Five. The City Is Alive.**\
 `New York City found a reason to party on Thursday, cheering, crying and climbing around Broadway to celebrate the Knicks’ N.B.A. championship.`\
 https://www.nytimes.com/2026/06/18/nyregion/knicks-championship-parade-celebration-nyc.html
