@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/06/18/us/tariq-el-sawah-dead.html
 https://www.nytimes.com/2026/06/18/climate/the-shifting-politics-of-climate-change.html
 
 **Gunmen Attack a Major Airport in Niger**\
-`An early morning assault on Niamey airport was the second such attack in the West African country this year.`\
+`A militant group claimed responsibility for the early-morning assault on Niamey airport, the second such attack in the West African country this year.`\
 https://www.nytimes.com/2026/06/18/world/africa/niger-armed-attack-airport.html
 
 **Netflix Cancels Duffer Brothers’ ‘The Boroughs’ After One Season**\
