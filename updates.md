@@ -1,3 +1,11 @@
+**Live Updates: Knicks Fans Line Up Before Dawn for a Parade Decades in the Making**\
+`The police declared the sidewalk viewing pens along Broadway full more than two hours before the 10 a.m. start of the festivities. The ticker-tape parade will celebrate the N.B.A. team that ended a five-decade championship drought.`\
+https://www.nytimes.com/live/2026/06/18/nyregion/knicks-parade
+
+**Ukraine Strikes Moscow Refinery in Large-Scale Drone Attack**\
+`The attack, which shut down the capital’s airports for several hours, appeared to be the biggest wave of strikes on the city since the start of the war.`\
+https://www.nytimes.com/2026/06/18/world/europe/moscow-ukraine-drone-attack-fire.html
+
 **Inflation Will Linger Despite U.S.-Iran Deal, British Officials Warn**\
 `Bank of England policymakers kept interest rates on hold, saying the impact of the war in Iran was still a major source of uncertainty for the economy.`\
 https://www.nytimes.com/2026/06/18/business/uk-inflation-bank-of-england.html

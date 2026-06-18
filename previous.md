@@ -55,7 +55,7 @@ https://www.nytimes.com/2026/06/18/crosswords/strands-sidekick-838.html
 https://www.nytimes.com/2026/06/18/technology/telegram-ban-india.html
 
 **Live Updates: Knicks Fans Line Up Before Dawn for a Parade Decades in the Making**\
-`A ticker-tape parade at 10 a.m. Eastern time will celebrate the N.B.A. team that ended a five-decade championship drought and united the city in joyous celebration.`\
+`The police declared the sidewalk viewing pens along Broadway full more than two hours before the 10 a.m. start of the festivities. The ticker-tape parade will celebrate the N.B.A. team that ended a five-decade championship drought.`\
 https://www.nytimes.com/live/2026/06/18/nyregion/knicks-parade
 
 **Do Sports Owners Win Championships?**\
@@ -67,7 +67,7 @@ https://www.nytimes.com/2026/06/18/podcasts/do-sports-owners-win-championships.h
 https://www.nytimes.com/2026/06/18/world/middleeast/iran-deal-oil-strait-of-hormuz-nuclear.html
 
 **Ukraine Strikes Moscow Refinery in Large-Scale Drone Attack**\
-`The attack, which shut down the city’s airports for several hours, appeared to be the biggest wave of drone strikes on Russia’s capital since the start of the war.`\
+`The attack, which shut down the capital’s airports for several hours, appeared to be the biggest wave of strikes on the city since the start of the war.`\
 https://www.nytimes.com/2026/06/18/world/europe/moscow-ukraine-drone-attack-fire.html
 
 **Cómo reclamar la ciudadanía canadiense gracias a un abuelo o bisabuelo**\

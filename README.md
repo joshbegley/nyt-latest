@@ -1,3 +1,7 @@
+**Hegseth Berates NATO Allies for ‘Shameful’ Response to U.S. War in Iran**\
+`Defense Secretary Pete Hegseth used a meeting of NATO defense ministers to continue the Trump administration’s sharp criticism of European military policies.`\
+https://www.nytimes.com/2026/06/18/world/middleeast/hegseth-nato-us-iran-war-trump.html
+
 **Inflation Will Linger Despite U.S.-Iran Deal, British Officials Warn**\
 `Bank of England policymakers kept interest rates on hold, saying the impact of the war in Iran was still a major source of uncertainty for the economy.`\
 https://www.nytimes.com/2026/06/18/business/uk-inflation-bank-of-england.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/18/nyregion/the-knicks-parade-come-early-and-bri
 **Ask the Therapist: A Family Estrangement Is Causing Even More Rifts**\
 `Our Ask the Therapist columnist, Lori Gottlieb, advises a reader whose family estrangement is causing more rifts.`\
 https://www.nytimes.com/2026/06/18/well/mind/ask-therapist-daughter-estranged.html
-
-**They Booked an Airbnb Ahead of the World Cup. Can a Host Demand They Pay More?**\
-`A family booked early for a big soccer trip to Southern California, then a new host suddenly raised the price. Why did Airbnb leave them in the lurch?`\
-https://www.nytimes.com/2026/06/18/travel/airbnb-world-cup-cancellation.html
 
