@@ -1,3 +1,7 @@
+**En México, los políticos usan las leyes contra los periodistas**\
+`Los políticos y funcionarios de México están utilizando las leyes del país para intimidar a los críticos y a los medios de comunicación, obligándolos a la censura y frenando el escrutinio.`\
+https://www.nytimes.com/es/2026/06/19/espanol/america-latina/mexico-politicos-leyes-censura-periodistas.html
+
 **After Deal to Reopen Strait of Hormuz, Ships Begin to Move Cautiously**\
 `Shipping companies hoping to get their stranded vessels out face complications like mines and the lack of clear coordination.`\
 https://www.nytimes.com/2026/06/19/business/iran-us-hormuz-shipping.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/06/19/espanol/opinion/trabajo-remoto-soledad.htm
 **Reseña de ‘Toy Story 5’: los dispositivos vienen por los niños**\
 `Jessie, Woody y Buzz Lightyear se enfrentan a una tableta electrónica que les roba la atención de la pequeña Bonnie.`\
 https://www.nytimes.com/es/2026/06/19/espanol/cultura/toy-story-5-resena-critica.html
-
-**Irán gana concesiones económicas en el acuerdo inicial con EE. UU.**\
-`El país recibirá de nuevo millones de dólares conforme reabre el tráfico en el estrecho de Ormuz mientras que las negociaciones nucleares pasarán, por ahora, a un segundo plano.`\
-https://www.nytimes.com/es/2026/06/19/espanol/mundo/iran-acuerdo-economia-trump.html
 
