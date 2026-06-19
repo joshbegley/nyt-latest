@@ -1,3 +1,7 @@
+**Moscow Tanker Blast Most Likely Russian Missile, Video Shows**\
+`A dramatic explosion that caused the lid of an oil tanker to fly into the sky during a Ukrainian aerial assault on Moscow was most likely caused by a Russian air defense missile, verified video shows.`\
+https://www.nytimes.com/video/world/europe/100000010980052/moscow-tanker-blast-likely-russian-missile.html
+
 **Two Trains Collide Near Bedford, England, on Friday**\
 `At least one person was killed and a “number of people” were injured after two passenger trains crashed in south-central England on Friday, the authorities said.`\
 https://www.nytimes.com/video/world/europe/100000010980536/trains-crash-uk.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/19/us/politics/hegseth-navy-blocked-promotions-d
 **Extreme Heat Warnings Issued Across Europe: What to Know**\
 `Unusually high temperatures are expected across parts of Western Europe into early next week, weather agencies said.`\
 https://www.nytimes.com/2026/06/19/world/europe/heat-wave-europe-uk-weather-forecast.html
-
-**With Fresh Marble Fillings, the Parthenon Gets a Partial Glow-Up**\
-`Restorers have fixed a gap on the western side of the temple in Athens that had been empty for more than 220 years.`\
-https://www.nytimes.com/2026/06/19/arts/parthenon-restoration-greece.html
 
 **World Cup Updates: For U.S. Fans in Seattle, a Boisterous March to the Match**\
 `(No description)`\
