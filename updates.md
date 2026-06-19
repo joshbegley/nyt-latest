@@ -1,3 +1,7 @@
+**U.K. Live Updates: Labour Mayor Wins Special Election, Clearing Path to Challenge Starmer**\
+`Andy Burnham, the Labour Party’s most popular politician, earned a decisive victory for a parliamentary seat in northern England. The win energizes his bid to become prime minister.`\
+https://www.nytimes.com/live/2026/06/19/world/makerfield-election-results-uk-burnham
+
 **Reseña de ‘Toy Story 5’: los dispositivos vienen por los niños**\
 `Jessie, Woody y Buzz Lightyear se enfrentan a una tableta electrónica que les roba la atención de la pequeña Bonnie.`\
 https://www.nytimes.com/es/2026/06/19/espanol/cultura/toy-story-5-resena-critica.html
