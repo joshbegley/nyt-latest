@@ -1,3 +1,7 @@
+**¿Quién es Andy Burnham, el que podría ser el próximo primer ministro del Reino Unido?**\
+`Carismático y de un optimismo desenfadado, Burnham es todo lo contrario a Keir Starmer. Sus aliados esperan que pueda mejorar la relación del Partido Laborista con los votantes.`\
+https://www.nytimes.com/es/2026/06/19/espanol/mundo/elecciones-primer-ministro-reino-unido.html
+
 **How Cubans Are Living in the Dark**\
 `Lisette Poole González, a photographer for The New York Times, talks with Jack Nicas, The Times’s Mexico City bureau chief, about photographing Havana at night amid an energy crisis.`\
 https://www.nytimes.com/video/world/americas/100000010937059/how-cubans-are-living-in-the-dark.html
