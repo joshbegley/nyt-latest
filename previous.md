@@ -1,3 +1,7 @@
+**Brian Large, Who Brought Opera Vividly to Life on Film, Dies at 89**\
+`In a directing career that included over 70 Met Opera broadcasts, he said his work was “dictated by the music, by key change, by orchestration, by phrasing.”`\
+https://www.nytimes.com/2026/06/19/arts/music/brian-large-dead.html
+
 **Trump se compara con Alejandro Magno y se enfada por los archivos Epstein, según un nuevo libro**\
 `El libro de Maggie Haberman y Jonathan Swan, reporteros de The New York Times, titulado “Regime Change”, revela detalles y conversaciones sorprendentes sobre las presiones del presidente para ampliar drásticamente su poder.`\
 https://www.nytimes.com/es/2026/06/19/espanol/estados-unidos/libro-trump-epstein-regime-change-haberman-swan.html
@@ -186,15 +190,11 @@ https://www.nytimes.com/2026/06/19/crosswords/wordle-review-1827.html
 `Scroll down for hints and conversation about the puzzle for Saturday, June 20, 2026.`\
 https://www.nytimes.com/2026/06/19/crosswords/strands-sidekick-839.html
 
-**Oil Prices Wobble as U.S.-Iran Deal Faces Tests**\
+**Oil Prices Rise as U.S.-Iran Deal Faces Tests**\
 `Oil remains on track for a second straight weekly decline, but signs of cracks in the agreement to end the war have given traders pause.`\
 https://www.nytimes.com/2026/06/19/business/oil-gas-prices-iran.html
 
 **USMNT’s Tim Weah on World Cup Dreams and the American Idea**\
 `The outspoken member of Team USA examines the meaning of the moment, on and off the pitch.`\
 https://www.nytimes.com/2026/06/19/podcasts/usmnts-tim-weah-on-world-cup-dreams-and-the-american-idea.html
-
-**En México, los políticos usan las leyes contra los periodistas**\
-`Los políticos y funcionarios de México están utilizando las leyes del país para intimidar a los críticos y a los medios de comunicación, obligándolos a la censura y frenando el escrutinio.`\
-https://www.nytimes.com/es/2026/06/19/espanol/america-latina/mexico-politicos-leyes-censura-periodistas.html
 
