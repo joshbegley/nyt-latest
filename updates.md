@@ -1,3 +1,7 @@
+**For India, the Return of Iranian Oil Cannot Come Soon Enough**\
+`After months of shortages and uncertainty, India sees an opportunity to restore a once-crucial energy relationship.`\
+https://www.nytimes.com/2026/06/19/business/india-iran-oil-imports.html
+
 **A Missing Ingredient in Ukraine’s Barrages on Russia: Ballistic Missiles**\
 `Ukrainian drone attacks have achieved breakthroughs, but only ballistic missiles can push Russia to reconsider its war objectives, military experts and officials say.`\
 https://www.nytimes.com/2026/06/19/world/europe/ukraine-drone-attacks-ballistic-missiles.html

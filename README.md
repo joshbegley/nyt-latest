@@ -1,3 +1,7 @@
+**Our Allies Are Wondering Whether Supporting the American War Machine Is Worth It**\
+`Is the Iran war an early sign of “superpower suicide"?`\
+https://www.nytimes.com/2026/06/19/magazine/middle-east-bases-iran-war.html
+
 **For India, the Return of Iranian Oil Cannot Come Soon Enough**\
 `After months of shortages and uncertainty, India sees an opportunity to restore a once-crucial energy relationship.`\
 https://www.nytimes.com/2026/06/19/business/india-iran-oil-imports.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/19/realestate/mexico-city-homes-for-sale.html
 **These Comics Can Barely Muster the Energy for a Joke. That’s Why They’re Funny.**\
 `Aaron Chen and Dan Mintz specialize in a muted form of stand-up that’s actually quite challenging. But they can get laughs just saying hello.`\
 https://www.nytimes.com/2026/06/19/arts/television/comedy-aaron-chen-dan-mintz.html
-
-**The Ageless and Undefeated Champs of Tulsa’s Wii Bowling League**\
-`The U.V. Okies have dominated a competition with other senior living facilities for six seasons, but they’re not just there to win.`\
-https://www.nytimes.com/2026/06/19/us/wii-bowling-uv-okies-tulsa.html
 
