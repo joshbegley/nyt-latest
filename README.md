@@ -184,7 +184,7 @@ https://www.nytimes.com/video/podcasts/100000010977809/danny-mcbride-is-not-abov
 
 **Fallout From the Iran Deal**\
 `Trump’s agreement reads like a list of concessions to Iran. Will it damage him politically?`\
-https://www.nytimes.com/2026/06/18/world/iran-trump-us-ukraine-moscow-world-cup.html
+https://www.nytimes.com/2026/06/18/world/iran-trump-us-uk-special-election-world-cup.html
 
 **Vance Lashes Out at Israeli Critics of U.S.-Iran Agreement to End the War**\
 `The vice president said that the United States was the only powerful ally Israel had left and noted that two-thirds of the weapons that protected Israel were paid for by U.S. tax dollars.`\
