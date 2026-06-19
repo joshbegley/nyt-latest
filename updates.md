@@ -1,3 +1,7 @@
+**Catherine, Princess of Wales Questions Digital Screens’ Role in Children’s Lives**\
+`The princess published an essay Friday warning against a childhood “mediated by screens,” days after Britain announced a ban on social media for children under 16.`\
+https://www.nytimes.com/2026/06/19/world/europe/princess-kate-uk-children-social-media-ban.html
+
 **Moscow Refinery Blast May Have Been Caused by Friendly Fire, Video Suggests**\
 `Footage shows a Russian air defense missile traveling toward a fuel silo, which erupts in an explosion around the time of its arrival.`\
 https://www.nytimes.com/2026/06/19/world/europe/russia-moscow-missile-refinery.html
