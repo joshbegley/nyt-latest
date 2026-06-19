@@ -1,3 +1,11 @@
+**Moscow Refinery Blast May Have Been Caused by Friendly Fire, Video Suggests**\
+`Footage shows a Russian air defense missile traveling toward a fuel silo, which erupts in an explosion around the time of its arrival.`\
+https://www.nytimes.com/2026/06/19/world/europe/russia-moscow-missile-refinery.html
+
+**Wii Bowling Takes Over Tulsa Retirement Homes**\
+`Retirement communities in Tulsa, Okla., compete against one another in a Nintendo Wii Sports bowling league.`\
+https://www.nytimes.com/video/health/100000010979921/wii-bowling-tulsa-seniors.html
+
 **Brian Large, Who Brought Opera Vividly to Life on Film, Dies at 89**\
 `In a directing career that included over 70 Met Opera broadcasts, he said his work was “dictated by the music, by key change, by orchestration, by phrasing.”`\
 https://www.nytimes.com/2026/06/19/arts/music/brian-large-dead.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/19/crosswords/wordle-review-1827.html
 **NYT Strands Hints for June 20, 2026**\
 `Scroll down for hints and conversation about the puzzle for Saturday, June 20, 2026.`\
 https://www.nytimes.com/2026/06/19/crosswords/strands-sidekick-839.html
-
-**Oil Prices Rise as U.S.-Iran Deal Faces Tests**\
-`Oil remains on track for a second straight weekly decline, but signs of cracks in the agreement to end the war have given traders pause.`\
-https://www.nytimes.com/2026/06/19/business/oil-gas-prices-iran.html
-
-**USMNT’s Tim Weah on World Cup Dreams and the American Idea**\
-`The outspoken member of Team USA examines the meaning of the moment, on and off the pitch.`\
-https://www.nytimes.com/2026/06/19/podcasts/usmnts-tim-weah-on-world-cup-dreams-and-the-american-idea.html
 
