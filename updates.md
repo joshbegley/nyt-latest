@@ -1,3 +1,11 @@
+**Canadian Billionaire Frank Stronach Is Convicted of Sexual and Indecent Assault**\
+`Mr. Stronach, 93, was found guilty of sexual assault and indecent assault in two cases and acquitted on three other charges.`\
+https://www.nytimes.com/2026/06/19/world/canada/frank-stronach-trial-guilty-sex-charges.html
+
+**U.S.-Iran Talks Delayed After Fighting in Lebanon**\
+`Scheduled talks between the United States and Iran were delayed after deadly fighting between Israel and Hezbollah in Lebanon.`\
+https://www.nytimes.com/video/world/middleeast/100000010979595/us-iran-talks-israel-lebanon-attacks.html
+
 **La guerra en Irán cuesta miles de vidas y millardos de dólares**\
 `El número de víctimas y los costos económicos se dispararon rápidamente después de que Estados Unidos e Israel atacaran Irán el 28 de febrero.`\
 https://www.nytimes.com/es/2026/06/19/espanol/estados-unidos/iran-costo-victimas.html
