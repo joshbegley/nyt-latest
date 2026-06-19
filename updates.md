@@ -1,3 +1,43 @@
+**Reseña de ‘Toy Story 5’: los dispositivos vienen por los niños**\
+`Jessie, Woody y Buzz Lightyear se enfrentan a una tableta electrónica que les roba la atención de la pequeña Bonnie.`\
+https://www.nytimes.com/es/2026/06/19/espanol/cultura/toy-story-5-resena-critica.html
+
+**Irán gana concesiones económicas en el acuerdo inicial con EE. UU.**\
+`El país recibirá de nuevo millones de dólares conforme reabre el tráfico en el estrecho de Ormuz mientras que las negociaciones nucleares pasarán, por ahora, a un segundo plano.`\
+https://www.nytimes.com/es/2026/06/19/espanol/mundo/iran-acuerdo-economia-trump.html
+
+**A Viral Knicks Moment, Brought to You by a Prediction Market**\
+`What do a Jalen Brunson look-alike contest, a buzzy catchphrase and a dancing robot outside Madison Square Garden have in common?`\
+https://www.nytimes.com/2026/06/19/nyregion/knicks-kalshi-polymarket.html
+
+**A Local Train System Is on a World Stage, and Everyone’s a Critic**\
+`NJ Transit has so far carried tens of thousands of fans to and from World Cup games in New Jersey without major problems, but many regular riders remain wary.`\
+https://www.nytimes.com/2026/06/19/nyregion/nj-transit-world-cup-commuters.html
+
+**The (Very) Manhattan Moms Whose Sons Are Running for Congress**\
+`In a high-profile Democratic House primary, there’s a fair chance that would-be voters may have been sweet-talked by the proud mothers of leading candidates.`\
+https://www.nytimes.com/2026/06/19/nyregion/bores-lasher-moms.html
+
+**How the Pingry School in New Jersey Attracts World Cup Teams**\
+`The Pingry School hosted Italy at the 1994 World Cup. To prepare for Italy’s return this year, the school spent millions. And then Italy didn’t qualify.`\
+https://www.nytimes.com/2026/06/19/nyregion/world-cup-new-jersey-pingry-morocco.html
+
+**New York’s Dive Bars Have a Rich Past. Do They Have a Future?**\
+`Dive bars face an uncertain future with rising costs and changing social patterns.`\
+https://www.nytimes.com/2026/06/19/nyregion/new-york-dive-bars.html
+
+**NYT Spelling Bee Answers for June 19, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/19/crosswords/spelling-bee-forum.html
+
+**The Democracy of The Dive Bar**\
+`New York dive bars, known for their grit, have also been crucial spaces where people can mix across class over cheap beer, and sometimes organize and resist. Our reporter Anna Kodé describes how rising costs and a decline in drinking now threaten the survival of these establishments.`\
+https://www.nytimes.com/video/nyregion/100000010915728/the-democracy-of-the-dive-bar.html
+
+**Swiss Officials Say Iran Talks Are Off, For Now**\
+`The announcement raised immediate questions over the fate of the agreement President Trump signed this week, with key details left to be worked out.`\
+https://www.nytimes.com/2026/06/19/world/europe/switzerland-iran-talks.html
+
 **Reflecting Pool Turns Green, Paint Peels After Renovation**\
 `Algae blooms have hit the Lincoln Memorial Reflecting Pool, which underwent a $14.2 million repair project. Blue paint appeared to be chipping from the bottom.`\
 https://www.nytimes.com/video/us/politics/100000010978556/reflecting-pool-dc-algae-green.html
