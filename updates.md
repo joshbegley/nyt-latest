@@ -1,3 +1,7 @@
+**Vance Delays Trip to Switzerland For Direct Talks on Iran Deal**\
+`Mr. Vance said earlier at a press briefing that he did not know if he would travel to Switzerland on Friday for the talks, where he was initially expected for a signing ceremony.`\
+https://www.nytimes.com/2026/06/18/us/politics/vance-delays-trip-to-switzerland-for-direct-talks-on-iran-deal.html
+
 **Union Behind California Billionaire Tax Offers to Reduce the Rate**\
 `The health care workers’ union that made it to the ballot with its plan to impose a 5 percent tax on billionaires’ wealth told Gov. Gavin Newsom it would accept a 2 percent levy instead.`\
 https://www.nytimes.com/2026/06/18/us/union-california-billionaire-tax-reduces-rate.html
