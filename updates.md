@@ -1,3 +1,7 @@
+**Jimmy Kimmel Calls Trump’s Iran Deal ‘The Retreaty of Versailles’**\
+`“Trump’s answer to the question, ‘Who did you go to war with?’ and ‘How did it end?’ will be the same answer: ‘Iran,’” Kimmel said.`\
+https://www.nytimes.com/2026/06/19/arts/television/jimmy-kimmel-trump-iran-deal.html
+
 **Algae Turns Reflecting Pool Green Again**\
 `Algae blooms have hit the Lincoln Memorial Reflecting Pool, which underwent a $14.2 million repair project. Blue paint appeared to be chipping from the bottom.`\
 https://www.nytimes.com/video/us/politics/100000010978556/reflecting-pool-dc-algae-green.html

@@ -1,3 +1,7 @@
+**Jimmy Kimmel Calls Trump’s Iran Deal ‘The Retreaty of Versailles’**\
+`“Trump’s answer to the question, ‘Who did you go to war with?’ and ‘How did it end?’ will be the same answer: ‘Iran,’” Kimmel said.`\
+https://www.nytimes.com/2026/06/19/arts/television/jimmy-kimmel-trump-iran-deal.html
+
 **Algae Turns Reflecting Pool Green Again**\
 `Algae blooms have hit the Lincoln Memorial Reflecting Pool, which underwent a $14.2 million repair project. Blue paint appeared to be chipping from the bottom.`\
 https://www.nytimes.com/video/us/politics/100000010978556/reflecting-pool-dc-algae-green.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/interactive/2026/06/18/espanol/como-hablar-papa-dia-p
 **One Knicks Jersey Was Not Like the Others at City Hall**\
 `The Knicks retired No. 33, the number that belonged to Patrick Ewing, in 2003. But a jersey with the number was featured at the City Hall ceremony on Thursday.`\
 https://www.nytimes.com/2026/06/18/nyregion/ewing-jersey-knicks-parade.html
-
-**Stephen Colbert Nods to Obama’s Tan Suit at Presidential Center Opening**\
-`Celebrity guests paid winking homage to President Obama’s notorious tan suit.`\
-https://www.nytimes.com/2026/06/18/style/obama-tan-suit-stephen-colbert.html
 
