@@ -1,3 +1,11 @@
+**To Take Us to the Heavens, James Turrell Went Underground**\
+`The American artist’s most ambitious “skyspace” installation, opening in Denmark on Friday, invites viewers to connect with the cosmos both inner and outer.`\
+https://www.nytimes.com/2026/06/19/arts/james-turrell-aros-aarhus.html
+
+**Mideast Live Updates: Lebanon Attacks and Delay in Talks Test U.S.-Iran Deal**\
+`Israel and Hezbollah traded new strikes in southern Lebanon, as Switzerland said it had postponed a round of U.S.-Iran talks previously set for Friday.`\
+https://www.nytimes.com/live/2026/06/19/world/iran-trump-deal
+
 **Nos gustaba trabajar desde casa. Luego vimos los datos**\
 `A pesar de sus ventajas, el trabajo remoto ha agravado considerablemente el aislamiento y la angustia de los estadounidenses.`\
 https://www.nytimes.com/es/2026/06/19/espanol/opinion/trabajo-remoto-soledad.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/18/nyregion/mangione-emtional-disturbance-repeal
 **‘Disclosure Day’ and How We Respond to the Unknown**\
 `Wesley Morris invites his friend, the film curator Eric Hynes, to consider the evolution of aliens in Steven Spielberg’s films.`\
 https://www.nytimes.com/video/podcasts/100000010978728/spielbergs-disclosure-day-and-how-we-respond-to-the-unknown.html
-
-**Man Forced Boy, 3, Into Crocodile Pen at English Zoo, Police Say**\
-`A man is being held on suspicion of attempted murder after a boy was critically injured when he ended up in a crocodile enclosure at a zoo outside Cambridge, the authorities said.`\
-https://www.nytimes.com/2026/06/18/world/europe/crocodile-attack-england-zoo.html
-
-**Fans Show Up to the Parade in Their Best Knicks-Themed Attire**\
-`New York Knicks fans showed up in droves to a ticker-tape parade in Manhattan in their best orange and blue outfits to honor the N.B.A champions.`\
-https://www.nytimes.com/video/nyregion/100000010977688/knicks-parade-nyc-fashion.html
 
