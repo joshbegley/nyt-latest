@@ -1,3 +1,7 @@
+**Union Behind California Billionaire Tax Offers to Reduce the Rate**\
+`The health care workers’ union that made it to the ballot with its plan to impose a 5 percent tax on billionaires’ wealth told Gov. Gavin Newsom it would accept a 2 percent levy instead.`\
+https://www.nytimes.com/2026/06/18/us/union-california-billionaire-tax-reduces-rate.html
+
 **Who Is Andy Burnham, the Man Who Could Be Britain’s Next Prime Minister?**\
 `Charismatic, northern and exuding a relaxed optimism, Mr. Burnham is a contrast to Keir Starmer. His allies hope he could mend Labour’s relationship with voters.`\
 https://www.nytimes.com/2026/06/18/world/europe/who-is-andy-burnham-britain-next-possible-prime-minister.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/18/dining/world-cup-tourists-food-videos.html
 **While Knicks Fans Celebrate, a New York Artist Fumes**\
 `After the Knicks promoted Gavin Snider’s watercolor painting in the wake of their N.B.A. title, one of the most famous artists on social media posted an uncannily similar work.`\
 https://www.nytimes.com/2026/06/18/arts/design/knicks-gavin-snider-devon-rodriguez.html
-
-**Large Waves Sweep Napping Beachgoers in California Into the Sea**\
-`Two college students lying on a Santa Cruz beach were swept as massive waves and dangerous rip currents inundated the coastline in recent days.`\
-https://www.nytimes.com/2026/06/18/us/college-students-drowned-california.html
 

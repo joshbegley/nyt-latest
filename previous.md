@@ -1,3 +1,7 @@
+**Who Is Andy Burnham, the Man Who Could Be Britain’s Next Prime Minister?**\
+`Charismatic, northern and exuding a relaxed optimism, Mr. Burnham is a contrast to Keir Starmer. His allies hope he could mend Labour’s relationship with voters.`\
+https://www.nytimes.com/2026/06/18/world/europe/who-is-andy-burnham-britain-next-possible-prime-minister.html
+
 **Burnham Wins Makerfield By-Election, Clearing Path to Challenge Starmer as UK Prime Minister**\
 `Andy Burnham, Labour’s most popular politician, beat the populist right-wing Reform U.K. party in the Makerfield by-election. The decisive victory will energize his bid to become prime minister.`\
 https://www.nytimes.com/2026/06/18/world/europe/uk-makerfield-election.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/18/arts/design/knicks-gavin-snider-devon-rodrigu
 **Large Waves Sweep Napping Beachgoers in California Into the Sea**\
 `Two college students lying on a Santa Cruz beach were swept as massive waves and dangerous rip currents inundated the coastline in recent days.`\
 https://www.nytimes.com/2026/06/18/us/college-students-drowned-california.html
-
-**Man Who Tried to Enter Sabrina Carpenter’s Home Gets 5-Year Restraining Order**\
-`The pop star and songwriter said she feared what the man would do if he was not prevented from coming near her or her family, according to court records.`\
-https://www.nytimes.com/2026/06/18/arts/sabrina-carpenter-restraining-order.html
 
