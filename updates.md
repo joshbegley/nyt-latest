@@ -1,3 +1,11 @@
+**Summer Reading Contest, Week 3: What Got Your Attention in The Times This Week?**\
+`To participate, submit your response here by June 26 at 9 a.m. Eastern. This week’s winners will be announced by July 8.`\
+https://www.nytimes.com/2026/06/19/learning/summer-reading-contest-week-3-what-got-your-attention-in-the-times-this-week.html
+
+**Rates on New Student Loans Will Rise on July 1**\
+`Higher interest rates take effect on July 1 for the next school year. Borrowers are already dealing with rising college costs and inflation elsewhere.`\
+https://www.nytimes.com/2026/06/19/your-money/student-loans-interest-rates-changes.html
+
 **Why Waits on Death Row Have Gotten Longer**\
 `The Last 12 Weeks host and reporter for The Marshall Project, Maurice Chammah, is joined by Serial Productions producer and co-host, Alvin Melathe, to discuss what they learned over the 12 weeks leading up to the execution date for David Wood who has been on death row since 1993. They explain why death row waits have grown over the past 50 years.`\
 https://www.nytimes.com/video/podcasts/100000010930833/why-waits-on-death-row-have-gotten-longer.html
