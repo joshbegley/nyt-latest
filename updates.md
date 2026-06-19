@@ -1,3 +1,27 @@
+**World Cup Tourism Off to a Slow Start in the U.S., Canada and Mexico**\
+`Hotel and visitation numbers were expected to spike this year. So far, several of the host cities have instead seen slumps.`\
+https://www.nytimes.com/2026/06/19/travel/world-cup-tourism-us-canada-mexico.html
+
+**World Cup Puts Spotlight on L.A.’s Mexican-Korean Kinship**\
+`The bond between the two communities was on display at a packed Koreatown watch party for the match between South Korea and Mexico on Thursday.`\
+https://www.nytimes.com/2026/06/19/us/world-cup-koreatown-mexico-korea.html
+
+**Congress Is Anxious as U.S.-Canada-Mexico Trade Talks Intensify**\
+`With midterms approaching and negotiations heating up, some lawmakers are apprehensive over where the discussions are headed.`\
+https://www.nytimes.com/2026/06/19/business/usmca-trade-talks-us-canada-mexico.html
+
+**Scots Have Invaded Boston’s Bars for the World Cup**\
+`Thousands of Scottish soccer fans have been spotted across the city. The locals are charmed.`\
+https://www.nytimes.com/2026/06/19/us/boston-scotland-soccer-tartan-army.html
+
+**Your Pop Music Questions Answered: Taylor Swift, Geese, the Beatles and More**\
+`Popcast’s mailbag is back and more varied than ever.`\
+https://www.nytimes.com/2026/06/19/arts/music/popcast-mailbag-taylor-swift-the-beatles.html
+
+**Art, Outrage and How the Culture Wars Began**\
+`In a new book, the author Isaac Butler details the late-20th century battles over government-funded art.`\
+https://www.nytimes.com/2026/06/19/podcasts/art-outrage-and-how-the-culture-wars-began.html
+
 **Iran’s Supreme Leader Says He Dislikes Deal With U.S., but Allowed It**\
 `Ayatollah Mojtaba Khamenei distanced himself from the agreement, putting responsibility for it on Iran’s president, and said it does not mean acceding to U.S. demands.`\
 https://www.nytimes.com/2026/06/19/world/middleeast/mojtaba-khamenei-deal-reaction.html
