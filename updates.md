@@ -1,3 +1,7 @@
+**Inside Hegseth’s War on Diversity and Blocked Promotions of Women and Black Officers**\
+`A Black admiral fixed one of the Navy’s worst messes. Mr. Hegseth blocked his promotion anyway.`\
+https://www.nytimes.com/2026/06/19/us/politics/hegseth-navy-blocked-promotions-diversity.html
+
 **Oil Prices Wobble as U.S.-Iran Deal Faces Tests**\
 `Oil remains on track for a second straight weekly decline, but signs of cracks in the agreement to end the war have given traders pause.`\
 https://www.nytimes.com/2026/06/19/business/oil-gas-prices-iran.html

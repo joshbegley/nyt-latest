@@ -1,3 +1,7 @@
+**Inside Hegseth’s War on Diversity and Blocked Promotions of Women and Black Officers**\
+`A Black admiral fixed one of the Navy’s worst messes. Mr. Hegseth blocked his promotion anyway.`\
+https://www.nytimes.com/2026/06/19/us/politics/hegseth-navy-blocked-promotions-diversity.html
+
 **Extreme Heat Warnings Issued Across Europe: What to Know**\
 `Unusually high temperatures are expected across parts of Western Europe into early next week, weather agencies said.`\
 https://www.nytimes.com/2026/06/19/world/europe/heat-wave-europe-uk-weather-forecast.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/19/opinion/trump-freedom-250-america-ufc-birthda
 **S​pectacular Scoring! ​Political Intrigue! Heroic Defending! The World Cup Has It All​.**\
 `The history of global soccer, in some sense, is a history of the world’s political problems.`\
 https://www.nytimes.com/2026/06/19/opinion/world-cup-trump-fifa.html
-
-**11 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://www.nytimes.com/2026/06/19/movies/new-movies-this-week-critics.html
 
