@@ -1,3 +1,7 @@
+**Art Galleries Are Not OK**\
+`Many gallerists are questioning the fundamentals of their business. It’s as if the art world they know has fallen off its axis.`\
+https://www.nytimes.com/2026/06/19/opinion/art-basel-fairs-gallery-market.html
+
 **Nos gustaba trabajar desde casa. Luego vimos los datos**\
 `A pesar de sus ventajas, el trabajo remoto ha agravado considerablemente el aislamiento y la angustia de los estadounidenses.`\
 https://www.nytimes.com/es/2026/06/19/espanol/opinion/trabajo-remoto-soledad.html
