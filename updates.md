@@ -1,3 +1,11 @@
+**Burnham Wins Makerfield By-Election, Clearing Path to Challenge Starmer as UK Prime Minister**\
+`Andy Burnham, Labour’s most popular politician, beat the populist right-wing Reform U.K. party in the Makerfield by-election. The decisive victory will energize his bid to become prime minister.`\
+https://www.nytimes.com/2026/06/18/world/europe/uk-makerfield-election.html
+
+**NYT Crossword Answers for June 19, 2026**\
+`Jack Hatchett makes his debut.`\
+https://www.nytimes.com/2026/06/18/crosswords/daily-puzzle-2026-06-19.html
+
 **Firm Tied to Trump Donor Got No-Bid Contract to Clean Reflecting Pool**\
 `A White House spokeswoman said the president was not involved in selecting Greenwater Services, the business owned by a trust led by John J. Cafaro.`\
 https://www.nytimes.com/2026/06/18/us/politics/trump-donor-contract-reflecting-pool.html
