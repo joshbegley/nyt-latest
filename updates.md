@@ -1,3 +1,7 @@
+**Firm Tied to Trump Donor Got No-Bid Contract to Clean Reflecting Pool**\
+`A White House spokeswoman said the president was not involved in selecting Greenwater Services, the business owned by a trust led by John J. Cafaro.`\
+https://www.nytimes.com/2026/06/18/us/politics/trump-donor-contract-reflecting-pool.html
+
 **Salsa Macha Pork Noodles**\
 `These noodles are inspired by mazemen, a brothless ramen that is sometimes tossed with a saucy pork mixture. The dish comes together in less than half an hour, making it the perfect upgrade to an instant-ramen weeknight dinner.`\
 https://www.nytimes.com/video/dining/100000010978960/salsa-macha-pork-noodles.html
