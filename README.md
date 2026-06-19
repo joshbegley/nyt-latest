@@ -1,3 +1,7 @@
+**USMNT’s Tim Weah on World Cup Dreams and the American Idea**\
+`The outspoken member of Team USA examines the meaning of the moment, on and off the pitch.`\
+https://www.nytimes.com/2026/06/19/podcasts/usmnts-tim-weah-on-world-cup-dreams-and-the-american-idea.html
+
 **En México, los políticos usan las leyes contra los periodistas**\
 `Los políticos y funcionarios de México están utilizando las leyes del país para intimidar a los críticos y a los medios de comunicación, obligándolos a la censura y frenando el escrutinio.`\
 https://www.nytimes.com/es/2026/06/19/espanol/america-latina/mexico-politicos-leyes-censura-periodistas.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/live/2026/06/19/world/iran-trump-deal
 **Nos gustaba trabajar desde casa. Luego vimos los datos**\
 `A pesar de sus ventajas, el trabajo remoto ha agravado considerablemente el aislamiento y la angustia de los estadounidenses.`\
 https://www.nytimes.com/es/2026/06/19/espanol/opinion/trabajo-remoto-soledad.html
-
-**Reseña de ‘Toy Story 5’: los dispositivos vienen por los niños**\
-`Jessie, Woody y Buzz Lightyear se enfrentan a una tableta electrónica que les roba la atención de la pequeña Bonnie.`\
-https://www.nytimes.com/es/2026/06/19/espanol/cultura/toy-story-5-resena-critica.html
 
