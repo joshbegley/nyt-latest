@@ -1,3 +1,7 @@
+**Nos gustaba trabajar desde casa. Luego vimos los datos**\
+`A pesar de sus ventajas, el trabajo remoto ha agravado considerablemente el aislamiento y la angustia de los estadounidenses.`\
+https://www.nytimes.com/es/2026/06/19/espanol/opinion/trabajo-remoto-soledad.html
+
 **Swiss Officials Say Iran Talks Are Off, for Now**\
 `The announcement raised immediate questions over the fate of the agreement President Trump signed this week, with key details left to be worked out.`\
 https://www.nytimes.com/2026/06/19/world/europe/switzerland-iran-talks.html

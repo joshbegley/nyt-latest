@@ -1,3 +1,7 @@
+**Nos gustaba trabajar desde casa. Luego vimos los datos**\
+`A pesar de sus ventajas, el trabajo remoto ha agravado considerablemente el aislamiento y la angustia de los estadounidenses.`\
+https://www.nytimes.com/es/2026/06/19/espanol/opinion/trabajo-remoto-soledad.html
+
 **U.K. Live Updates: Labour Mayor Wins Special Election, Clearing Path to Challenge Starmer**\
 `Andy Burnham, the Labour Party’s most popular politician, earned a decisive victory for a parliamentary seat in northern England. The win energizes his bid to become prime minister.`\
 https://www.nytimes.com/live/2026/06/19/world/makerfield-election-results-uk-burnham
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/18/world/europe/crocodile-attack-england-zoo.htm
 **Fans Show Up to the Parade in Their Best Knicks-Themed Attire**\
 `New York Knicks fans showed up in droves to a ticker-tape parade in Manhattan in their best orange and blue outfits to honor the N.B.A champions.`\
 https://www.nytimes.com/video/nyregion/100000010977688/knicks-parade-nyc-fashion.html
-
-**London’s Newest Hotels Offer Perks Aplenty**\
-`From a wellness-focused resort to a townhouse with a terraced garden, four recently opened places to stay that make the British capital even more inviting.`\
-https://www.nytimes.com/2026/06/18/t-magazine/travel/londons-newest-hotels.html
 
