@@ -1,3 +1,11 @@
+**‘The Headlines’ News Quiz: Jun. 19, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/06/19/podcasts/the-headlines/the-headlines-news-quiz-jun-19-2026.html
+
+**‘Hard Fork’ Live, Part 3: Differing Visions of an A.I. Future**\
+`One final episode from our live event, featuring a debate, questions from listeners and the dramatic and unplanned collapse of a dancing robot.`\
+https://www.nytimes.com/2026/06/19/podcasts/hard-fork-live-part-3-differing-visions-of-an-ai-future.html
+
 **Strikes in Moscow**\
 ``\
 https://www.nytimes.com/2026/06/19/briefing/strikes-in-moscow.html
@@ -164,7 +172,7 @@ https://www.nytimes.com/2026/06/19/arts/design/art-basel-2026-market-trends.html
 
 **Dads Get Postpartum Depression, Too**\
 `Researchers say an estimated 10 percent of fathers develop symptoms during the perinatal period, with the highest risk three to six months after babies are born.`\
-https://www.nytimes.com/2026/06/19/well/dads-get-postpartum-depression-too.html
+https://www.nytimes.com/2026/06/19/well/postpartum-depression-men-fathers.html
 
 **David Thomson Loves the Movies but Not What They Have Done to America**\
 `How the film writer David Thomson found himself in a lover’s quarrel with cinema — and America.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/19/climate/is-climate-change-supercharging-el-ni
 **Chris Burden’s Police Uniforms Are Coming to Art Basel**\
 `These imposing works of art offer a powerful statement on authority from an artist who had his own experiences with the police.`\
 https://www.nytimes.com/2026/06/19/arts/design/police-art-basel-chris-burden.html
-
-**Woody De Othello Brings Multielement Works to Art Basel**\
-`Woody De Othello broke through in 2022 with his version of face jugs, and now his multi-element works found a home at Art Basel.`\
-https://www.nytimes.com/2026/06/19/arts/design/woody-de-othello-sculptor-exhibition.html
-
-**Jon Klassen on Ghosts in Children’s Stories**\
-`Ghosts in stories for children are a blank canvas. You can show your audience a ghost and, if you play it right, almost just leave it at that.`\
-https://www.nytimes.com/2026/06/19/books/review/ghosts-childrens-books.html
 

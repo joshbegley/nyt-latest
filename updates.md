@@ -1,3 +1,15 @@
+**‘The Headlines’ News Quiz: Jun. 19, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/06/19/podcasts/the-headlines/the-headlines-news-quiz-jun-19-2026.html
+
+**‘Hard Fork’ Live, Part 3: Differing Visions of an A.I. Future**\
+`One final episode from our live event, featuring a debate, questions from listeners and the dramatic and unplanned collapse of a dancing robot.`\
+https://www.nytimes.com/2026/06/19/podcasts/hard-fork-live-part-3-differing-visions-of-an-ai-future.html
+
+**Dads Get Postpartum Depression, Too**\
+`Researchers say an estimated 10 percent of fathers develop symptoms during the perinatal period, with the highest risk three to six months after babies are born.`\
+https://www.nytimes.com/2026/06/19/well/postpartum-depression-men-fathers.html
+
 **Strikes in Moscow**\
 ``\
 https://www.nytimes.com/2026/06/19/briefing/strikes-in-moscow.html
