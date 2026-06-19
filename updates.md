@@ -1,3 +1,15 @@
+**Extreme Heat Warnings Issued Across Europe: What to Know**\
+`Unusually high temperatures are expected across parts of Western Europe into early next week, weather agencies said.`\
+https://www.nytimes.com/2026/06/19/world/europe/heat-wave-europe-uk-weather-forecast.html
+
+**With Fresh Marble Fillings, the Parthenon Gets a Partial Glow-Up**\
+`Restorers have fixed a gap on the western side of the temple in Athens that had been empty for more than 220 years.`\
+https://www.nytimes.com/2026/06/19/arts/parthenon-restoration-greece.html
+
+**In a Still Turbulent Strait of Hormuz, Stranded Ships Wait for Clarity**\
+`Shipping companies had hoped to get their stranded vessels out, but faced uncertainty as violence flared again in the region.`\
+https://www.nytimes.com/2026/06/19/business/iran-us-hormuz-shipping.html
+
 **Colman Domingo Reflects on Love and How It Drives Us**\
 `Fires will rage. People will leave. Hopes will be dashed. Yet love — our everlasting foundation — will endure.`\
 https://www.nytimes.com/2026/06/19/special-series/colman-domingo-love.html

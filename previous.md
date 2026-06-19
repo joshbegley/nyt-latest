@@ -1,3 +1,11 @@
+**Extreme Heat Warnings Issued Across Europe: What to Know**\
+`Unusually high temperatures are expected across parts of Western Europe into early next week, weather agencies said.`\
+https://www.nytimes.com/2026/06/19/world/europe/heat-wave-europe-uk-weather-forecast.html
+
+**With Fresh Marble Fillings, the Parthenon Gets a Partial Glow-Up**\
+`Restorers have fixed a gap on the western side of the temple in Athens that had been empty for more than 220 years.`\
+https://www.nytimes.com/2026/06/19/arts/parthenon-restoration-greece.html
+
 **Colman Domingo Reflects on Love and How It Drives Us**\
 `Fires will rage. People will leave. Hopes will be dashed. Yet love — our everlasting foundation — will endure.`\
 https://www.nytimes.com/2026/06/19/special-series/colman-domingo-love.html
@@ -102,8 +110,8 @@ https://www.nytimes.com/2026/06/19/podcasts/usmnts-tim-weah-on-world-cup-dreams-
 `Los políticos y funcionarios de México están utilizando las leyes del país para intimidar a los críticos y a los medios de comunicación, obligándolos a la censura y frenando el escrutinio.`\
 https://www.nytimes.com/es/2026/06/19/espanol/america-latina/mexico-politicos-leyes-censura-periodistas.html
 
-**After Deal to Reopen Strait of Hormuz, Ships Begin to Move Cautiously**\
-`Shipping companies hoping to get their stranded vessels out face complications like mines and the lack of clear coordination.`\
+**In a Still Turbulent Strait of Hormuz, Stranded Ships Wait for Clarity**\
+`Shipping companies had hoped to get their stranded vessels out, but faced uncertainty as violence flared again in the region.`\
 https://www.nytimes.com/2026/06/19/business/iran-us-hormuz-shipping.html
 
 **I Keep Telling People We’re Living in This Dystopian Novel**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/19/opinion/world-cup-trump-fifa.html
 **11 New Movies Our Critics Are Talking About This Week**\
 `Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
 https://www.nytimes.com/2026/06/19/movies/new-movies-this-week-critics.html
-
-**The Knicks’ Championship Parade in 5 Photos**\
-`Fans jammed the subways, then crowded the streets, then roared into the hot skies and celebrated as the blue and orange confetti rained down.`\
-https://www.nytimes.com/2026/06/19/nyregion/knicks-parade-photos.html
-
-**How Much Is SpaceX Really Worth?**\
-`The company’s deep commitment to Mars colonization and Elon Musk’s nearly total control make SpaceX stock an astonishingly speculative bet, our columnist says.`\
-https://www.nytimes.com/2026/06/19/business/spacex-stock-price.html
 
