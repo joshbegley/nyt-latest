@@ -1,3 +1,7 @@
+**¿Quién es Andy Burnham, el que podría ser el próximo primer ministro del Reino Unido?**\
+`Carismático y de un optimismo desenfadado, Burnham es todo lo contrario a Keir Starmer. Sus aliados esperan que pueda mejorar la relación del Partido Laborista con los votantes.`\
+https://www.nytimes.com/es/2026/06/19/espanol/mundo/elecciones-primer-ministro-reino-unido.html
+
 **How Cubans Are Living in the Dark**\
 `Lisette Poole González, a photographer for The New York Times, talks with Jack Nicas, The Times’s Mexico City bureau chief, about photographing Havana at night amid an energy crisis.`\
 https://www.nytimes.com/video/world/americas/100000010937059/how-cubans-are-living-in-the-dark.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/19/world/middleeast/lebanon-israel-attacks.html
 **Tension Builds Between USMNT and Australia, While Scotland Fans Take Over Boston**\
 `Why is there such animosity between the World Cup co-hosts and the Socceroos?`\
 https://www.nytimes.com/2026/06/19/podcasts/usmnt-australia-scotland-fans-boston.html
-
-**‘Game Changer’? Too Soon to Tell. But Ukraine Flexed in Striking Moscow.**\
-`The drone attack that sent plumes of smoke rising over Moscow intensified Ukrainian hopes of bringing the war to Russia.`\
-https://www.nytimes.com/2026/06/19/world/europe/ukraine-drone-attack-moscow.html
 
 **World Cup Updates: Scotland Fans Seize Boston’s Heart, and Its Beer**\
 `(No description)`\
