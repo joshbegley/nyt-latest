@@ -1,3 +1,11 @@
+**Trump se compara con Alejandro Magno y se enfada por los archivos Epstein, según un nuevo libro**\
+`El libro de Maggie Haberman y Jonathan Swan, reporteros de The New York Times, titulado “Regime Change”, revela detalles y conversaciones sorprendentes sobre las presiones del presidente para ampliar drásticamente su poder.`\
+https://www.nytimes.com/es/2026/06/19/espanol/estados-unidos/libro-trump-epstein-regime-change-haberman-swan.html
+
+**Inside Trump’s Stock Trading Surge**\
+`Documents show the president outsourced trading decisions to brokers. But bucking tradition, his assets are not in a blind trust, exposing him to concerns about conflicts.`\
+https://www.nytimes.com/2026/06/19/us/politics/inside-trumps-stock-trading-surge.html
+
 **Deadly Violence Rocks Lebanon in Threat to U.S.-Iran Deal**\
 `Israel launched strikes across the country after Iran-backed Hezbollah said it had ambushed Israeli troops, leaving diplomats scrambling to prevent the deal from collapsing.`\
 https://www.nytimes.com/2026/06/19/world/middleeast/lebanon-israel-attacks.html

@@ -1,3 +1,11 @@
+**Trump se compara con Alejandro Magno y se enfada por los archivos Epstein, según un nuevo libro**\
+`El libro de Maggie Haberman y Jonathan Swan, reporteros de The New York Times, titulado “Regime Change”, revela detalles y conversaciones sorprendentes sobre las presiones del presidente para ampliar drásticamente su poder.`\
+https://www.nytimes.com/es/2026/06/19/espanol/estados-unidos/libro-trump-epstein-regime-change-haberman-swan.html
+
+**Inside Trump’s Stock Trading Surge**\
+`Documents show the president outsourced trading decisions to brokers. But bucking tradition, his assets are not in a blind trust, exposing him to concerns about conflicts.`\
+https://www.nytimes.com/2026/06/19/us/politics/inside-trumps-stock-trading-surge.html
+
 **Italy Doesn’t ‘Beg,’ Giorgia Meloni Tells Trump**\
 `President Trump said the Italian leader had “begged” him to take a photo together at the Group of 7 summit in France. The remarks come as their once-friendly relationship has frayed.`\
 https://www.nytimes.com/2026/06/19/world/europe/meloni-trump-italy.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/19/podcasts/usmnts-tim-weah-on-world-cup-dreams-
 **En México, los políticos usan las leyes contra los periodistas**\
 `Los políticos y funcionarios de México están utilizando las leyes del país para intimidar a los críticos y a los medios de comunicación, obligándolos a la censura y frenando el escrutinio.`\
 https://www.nytimes.com/es/2026/06/19/espanol/america-latina/mexico-politicos-leyes-censura-periodistas.html
-
-**Stranded Ships Hoping for Escape Find a Turbulent Strait of Hormuz**\
-`Shipping companies had hoped to get their vessels out after this week’s U.S.-Iran deal but faced uncertainty on Friday as violence flared again in the region.`\
-https://www.nytimes.com/2026/06/19/business/iran-us-hormuz-shipping.html
-
-**I Keep Telling People We’re Living in This Dystopian Novel**\
-`The 2010 novel “Super Sad True Love Story” foreshadowed our current world. So I asked its author, Gary Shteyngart, how he sees the world today and how we might find pleasure in it.`\
-https://www.nytimes.com/2026/06/19/opinion/ezra-klein-podcast-gary-shteyngart.html
 
