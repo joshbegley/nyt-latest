@@ -1,3 +1,11 @@
+**Lebanon Cease-Fire Bolsters U.S.-Iran Truce, After a Shaky Start**\
+`Talks on a long-term peace deal were set to begin on Friday, but Iran pulled out, citing Israeli strikes in Lebanon. Hours later, diplomats say, Israel and Hezbollah agreed to halt fighting there.`\
+https://www.nytimes.com/2026/06/19/world/middleeast/lebanon-ceasefire-iran-truce.html
+
+**What to Know About the Storm That Brought Deadly Flooding to the South**\
+`An early-season storm that in some places dumped around two feet of rain also killed three people. Louisiana and Mississippi were hit hard.`\
+https://www.nytimes.com/2026/06/19/us/flooding-south-texas-mississippi-louisiana.html
+
 **What Could Taylor Swift’s Bachelorette Party Look Like?**\
 `Recent photos of guests arriving at the singer’s seaside home have fueled online speculation that a pre-wedding celebration may be underway. Wedding experts weigh in on what such a fete might entail.`\
 https://www.nytimes.com/2026/06/19/style/taylor-swifts-bachelorette-party-watch-hill-rhode-island.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/19/arts/television/house-of-the-dragon-recap-sea
 **How Quickly Could Andy Burnham Become U.K. Prime Minister?**\
 `While Mr. Burnham’s leadership ambitions are clear, Prime Minister Keir Starmer has stated that he would fight any challenge.`\
 https://www.nytimes.com/2026/06/19/world/europe/burnham-prime-minister-starmer-uk.html
-
-**Excited for World Cup? Stream 14 Great Soccer Movies.**\
-`The beautiful game is the inspiring setting for films from countries large (Brazil) and small (Cape Verde). Watch them while the World Cup is in full swing.`\
-https://www.nytimes.com/2026/06/19/movies/world-cup-soccer-movies-streaming.html
-
-**‘The Headlines’ News Quiz: Jun. 19, 2026**\
-`Following the news? Tracy Mumford has some questions for you.`\
-https://www.nytimes.com/2026/06/19/podcasts/the-headlines/the-headlines-news-quiz-jun-19-2026.html
 
 **World Cup Updates: For U.S. Fans in Seattle, a Boisterous March to the Match**\
 `(No description)`\
