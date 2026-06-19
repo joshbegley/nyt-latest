@@ -1,3 +1,43 @@
+**What Does It All Mean? Once a Year, French Students Try to Explain.**\
+`The high school philosophy exam is a rite of passage for French students. This year included questions about Friedrich Nietzsche’s 1878 book, “Human, All Too Human.”`\
+https://www.nytimes.com/2026/06/19/world/europe/france-education-high-school-philosophy.html
+
+**Quote of the Day: Ukraine Hits Moscow With One of Biggest Drone Attacks of War**\
+`Quotation of the Day for Friday, June 19, 2026`\
+https://www.nytimes.com/2026/06/19/pageoneplus/quote-of-the-day-ukraine-hits-moscow-with-one-of-biggest-drone-attacks-of-war.html
+
+**Have You Bought a Tesla Recently? We Want to Hear From You.**\
+`Tesla sales are rebounding in Europe even though many people have negative feelings about Elon Musk, the company’s chief executive. We want to know why.`\
+https://www.nytimes.com/2026/06/19/business/energy-environment/tesla-elon-musk-europe.html
+
+**I Have Fallen in Love With My Doctor**\
+`But we have a huge age gap.`\
+https://www.nytimes.com/2026/06/19/style/i-have-fallen-in-love-with-my-doctor.html
+
+**Neither Wanted Marriage. That Changed After Three Weeks Apart.**\
+`When Alison Greenberg, a rom-com writer, and Barry Loudis met, both were divorced with no desire to remarry. “Joke’s on us,” Greenberg said.`\
+https://www.nytimes.com/2026/06/19/style/alison-greenberg-barry-loudis-wedding.html
+
+**It Was Smooth Sailing From the Start**\
+`When Matthew Casale, a lieutenant with the U.S. Navy, connected with Emily Sherron, he was instantly smitten.`\
+https://www.nytimes.com/2026/06/19/style/it-was-smooth-sailing-from-the-start.html
+
+**On a Ride to Her Gate, She Found Her Husband**\
+`Dr. Aneesha Gala was waiting for an airport train when she ran into a classmate who was with her family. The classmate’s brother would become Gala’s husband.`\
+https://www.nytimes.com/2026/06/19/style/aneesha-gala-andrew-geraghty-wedding.html
+
+**The Wedding Was Part of a Show, and the Show Was Part of the Wedding**\
+`Pietro Alexander and Sara Maliki began a new chapter of their lives by getting married in the SoHo art gallery they opened moments later.`\
+https://www.nytimes.com/2026/06/19/style/sara-maliki-pietro-alexander-wedding.html
+
+**He Gave Her a ‘Nontransferable’ Coupon for a Ring**\
+`Robert O’Connell, an interior designer, proposed to Aiyana Jaffe, a jewelry designer, with a 1957 silver box by Maria Pergay. He left the ring up to her.`\
+https://www.nytimes.com/2026/06/19/style/aiyana-jaffe-robert-oconnell-wedding.html
+
+**An Opera Performance With a Real-Life Happy Ending**\
+`Gideon Dabi and Alyssa Martin met five years ago while performing in a production of Rossini’s “La Cenerentola.” They quickly became friends.`\
+https://www.nytimes.com/2026/06/19/style/alyssa-martin-gideon-dabi-wedding.html
+
 **San Francisco Film Patrons Are Found Dead on Side of Highway**\
 `Judith Sheldon, 84, daughter of an Oscar-winning director, and her husband, Wylie, 86, were traveling to Oregon on a hot day. Their deaths are under investigation.`\
 https://www.nytimes.com/2026/06/18/us/san-francisco-couple-dead-judith-wylie-sheldon.html
