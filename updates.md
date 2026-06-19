@@ -1,3 +1,27 @@
+**Iran’s Supreme Leader Says He Dislikes Deal With U.S., but Allowed It**\
+`Ayatollah Mojtaba Khamenei distanced himself from the agreement, putting responsibility for it on Iran’s president, and said it does not mean acceding to U.S. demands.`\
+https://www.nytimes.com/2026/06/19/world/middleeast/mojtaba-khamenei-iran-deal-reaction.html
+
+**Flashback: Your Weekly History Quiz, June 20, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/06/19/upshot/flashback.html
+
+**Vegan Caesar Salad With Crisp Chickpeas**\
+`There are many ways to mimic the rich, creamy texture of emulsified, egg-based Caesar dressing: tofu, vegan mayonnaise, aquafaba whipped with oil, the list goes on. Blended raw cashews prove themselves the best base in this version, which is fortified with garlic, mustard, miso paste and caper brine to achieve the tangy-salty-punchy balance found in the real deal.`\
+https://www.nytimes.com/video/dining/100000010979927/vegan-caesar-salad-with-crisp-chickpeas.html
+
+**Demining the Strait of Hormuz**\
+`Our reporter John Ismay, who served as a Navy explosive ordnance disposal officer and deep-sea diver for eight years, explains why mines in the Strait of Hormuz may outlast the war.`\
+https://www.nytimes.com/video/us/politics/100000010969459/iran-strait-hormuz-mines-shipping.html
+
+**Red Red (Pepper Stewed Beans)**\
+`A common dish served at homes in Ghana, by roadside vendors and in chop chop bars (cafes or canteens), this popular stew is enjoyed all year round.`\
+https://www.nytimes.com/video/dining/100000010979853/red-red-pepper-stewed-beans.html
+
+**Angel Hair Pasta Salad**\
+`Light, bouncy angel hair makes for a surprisingly stellar pasta salad. Dressed in a simple mayonnaise and vinegar dressing, a rainbow confetti of raw vegetables shines in this chill, endlessly adaptable recipe.`\
+https://www.nytimes.com/video/dining/100000010979894/angel-hair-pasta-salad.html
+
 **World Cup Tourism Off to a Slow Start in the U.S., Canada and Mexico**\
 `Hotel and visitation numbers were expected to spike this year. So far, several of the host cities have instead seen slumps.`\
 https://www.nytimes.com/2026/06/19/travel/world-cup-tourism-us-canada-mexico.html
