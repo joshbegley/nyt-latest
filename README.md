@@ -1,3 +1,11 @@
+**Summer Reading Contest, Week 3: What Got Your Attention in The Times This Week?**\
+`To participate, submit your response here by June 26 at 9 a.m. Eastern. This week’s winners will be announced by July 8.`\
+https://www.nytimes.com/2026/06/19/learning/summer-reading-contest-week-3-what-got-your-attention-in-the-times-this-week.html
+
+**Rates on New Student Loans Will Rise on July 1**\
+`Higher interest rates take effect on July 1 for the next school year. Borrowers are already dealing with rising college costs and inflation elsewhere.`\
+https://www.nytimes.com/2026/06/19/your-money/student-loans-interest-rates-changes.html
+
 **Why Waits on Death Row Have Gotten Longer**\
 `The Last 12 Weeks host and reporter for The Marshall Project, Maurice Chammah, is joined by Serial Productions producer and co-host, Alvin Melathe, to discuss what they learned over the 12 weeks leading up to the execution date for David Wood who has been on death row since 1993. They explain why death row waits have grown over the past 50 years.`\
 https://www.nytimes.com/video/podcasts/100000010930833/why-waits-on-death-row-have-gotten-longer.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/19/arts/design/art-basel-2026-market-trends.html
 **Dads Get Postpartum Depression, Too**\
 `Researchers say an estimated 10 percent of fathers develop symptoms during the perinatal period, with the highest risk three to six months after babies are born.`\
 https://www.nytimes.com/2026/06/19/well/postpartum-depression-men-fathers.html
-
-**David Thomson Loves the Movies but Not What They Have Done to America**\
-`How the film writer David Thomson found himself in a lover’s quarrel with cinema — and America.`\
-https://www.nytimes.com/2026/06/19/books/review/david-thomson-movies.html
-
-**Colby College Is Stepping In to Save a Maine Town on the Brink of Disaster**\
-`A new rescuer — Colby College, bankrolled by a construction magnate — will vastly change not just the economics of Port Clyde, Maine, but also its cultural and physical fabric.`\
-https://www.nytimes.com/2026/06/19/business/colby-college-port-clyde-maine-waterfront.html
 
