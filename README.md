@@ -1,3 +1,11 @@
+**The Reflecting Pool Appears to Be Rejecting Its Makeover**\
+`As National Park Service crews try to clean the algae that turned the water bright green, another problem has developed: The “American flag blue” coating is coming off.`\
+https://www.nytimes.com/2026/06/19/us/politics/reflecting-pool-paint-algae.html
+
+**Washington Reenactors**\
+`Washington Reenactors`\
+https://static01.nyt.com/slideshow/2026/06/19/opinion/washington-reenactors.html
+
 **James Bradley, Co-Author of ‘Flags of Our Fathers,’ Dies at 72**\
 `His best-selling book celebrated the servicemen in the stirring photograph of the U.S. flag-raising on Iwo Jima. One, it was long believed, was his father.`\
 https://www.nytimes.com/2026/06/19/us/james-bradley-dead.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/19/opinion/american-empire-trump.html
 **Starmer Says He Will Run if There Is a Leadership Contest**\
 `Prime Minister Keir Starmer of Britain said he would run if there were a contest for the Labour Party leadership. A top rival in the party, Andy Burnham, won a special parliamentary election, making him eligible to challenge the prime minister.`\
 https://www.nytimes.com/video/world/europe/100000010979670/starmer-burnham-makerfield-election-uk.html
-
-**Marcella Hazan’s Bolognese Sauce**\
-`After the death in 2013 of Marcella Hazan, the cookbook author who changed the way Americans cook Italian food, The New York Times asked readers which of her recipes had become staples in their kitchens. Many people answered with one word: “Bolognese.”`\
-https://www.nytimes.com/video/dining/100000010979828/marcella-hazans-bolognese-sauce.html
-
-**Inside Hegseth’s War on Diversity and Blocked Promotions of Women and Black Officers**\
-`A Black admiral fixed one of the Navy’s worst messes. Mr. Hegseth blocked his promotion anyway.`\
-https://www.nytimes.com/2026/06/19/us/politics/hegseth-navy-blocked-promotions-diversity.html
 
 **World Cup Updates: For U.S. Fans in Seattle, a Boisterous March to the Match**\
 `(No description)`\
