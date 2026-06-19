@@ -1,3 +1,15 @@
+**James Bradley, Co-Author of ‘Flags of Our Fathers,’ Dies at 72**\
+`His best-selling book celebrated the servicemen in the stirring photograph of the U.S. flag-raising on Iwo Jima. One, it was long believed, was his father.`\
+https://www.nytimes.com/2026/06/19/us/james-bradley-dead.html
+
+**Trump Shifts Stance in South Carolina After Losses in Governor’s Races**\
+`On Friday the president made the unusual move of endorsing both candidates in the Republican runoff for South Carolina governor, after initially supporting one of them.`\
+https://www.nytimes.com/2026/06/19/us/trump-shifts-endorsement-south-carolina-governor.html
+
+**Trains Collide in UK, Killing at Least One and Injuring Dozens of Others**\
+`At least one person was killed and dozens of others were injured in the crash near Bedford, England, the authorities said.`\
+https://www.nytimes.com/2026/06/19/world/europe/uk-trains-collide-bedford-england.html
+
 **Moscow Tanker Blast Most Likely Russian Missile, Video Shows**\
 `A dramatic explosion that caused the lid of an oil tanker to fly into the sky during a Ukrainian aerial assault on Moscow was most likely caused by a Russian air defense missile, verified video shows.`\
 https://www.nytimes.com/video/world/europe/100000010980052/moscow-tanker-blast-likely-russian-missile.html
