@@ -1,3 +1,7 @@
+**Colman Domingo Reflects on Love and How It Drives Us**\
+`Fires will rage. People will leave. Hopes will be dashed. Yet love — our everlasting foundation — will endure.`\
+https://www.nytimes.com/2026/06/19/special-series/colman-domingo-love.html
+
 **‘Sugar’ Review: Close Encounters of the Noir Kind**\
 `Colin Farrell and California are still a winning combination in a new season of Apple TV’s sci-fi private-eye series.`\
 https://www.nytimes.com/2026/06/19/arts/television/sugar-review.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/19/nyregion/knicks-parade-photos.html
 **How Much Is SpaceX Really Worth?**\
 `The company’s deep commitment to Mars colonization and Elon Musk’s nearly total control make SpaceX stock an astonishingly speculative bet, our columnist says.`\
 https://www.nytimes.com/2026/06/19/business/spacex-stock-price.html
-
-**Pick Your Favorite $1.3 Million Home in Mexico City**\
-`A colonial-style house in San Ángel, a house in Coyoacán clad in terrazzo, and a 1945 Art Deco-style home in Lomas de Chapultepec. Vote on which one you’d choose.`\
-https://www.nytimes.com/2026/06/19/realestate/mexico-city-homes-for-sale.html
 

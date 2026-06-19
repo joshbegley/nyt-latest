@@ -1,3 +1,7 @@
+**‘Sugar’ Review: Close Encounters of the Noir Kind**\
+`Colin Farrell and California are still a winning combination in a new season of Apple TV’s sci-fi private-eye series.`\
+https://www.nytimes.com/2026/06/19/arts/television/sugar-review.html
+
 **Our Allies Are Wondering Whether Supporting the American War Machine Is Worth It**\
 `Is the Iran war an early sign of “superpower suicide"?`\
 https://www.nytimes.com/2026/06/19/magazine/middle-east-bases-iran-war.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/19/business/spacex-stock-price.html
 **Pick Your Favorite $1.3 Million Home in Mexico City**\
 `A colonial-style house in San Ángel, a house in Coyoacán clad in terrazzo, and a 1945 Art Deco-style home in Lomas de Chapultepec. Vote on which one you’d choose.`\
 https://www.nytimes.com/2026/06/19/realestate/mexico-city-homes-for-sale.html
-
-**These Comics Can Barely Muster the Energy for a Joke. That’s Why They’re Funny.**\
-`Aaron Chen and Dan Mintz specialize in a muted form of stand-up that’s actually quite challenging. But they can get laughs just saying hello.`\
-https://www.nytimes.com/2026/06/19/arts/television/comedy-aaron-chen-dan-mintz.html
 

@@ -1,3 +1,7 @@
+**‘Sugar’ Review: Close Encounters of the Noir Kind**\
+`Colin Farrell and California are still a winning combination in a new season of Apple TV’s sci-fi private-eye series.`\
+https://www.nytimes.com/2026/06/19/arts/television/sugar-review.html
+
 **Back After Vanishing for 2 Weeks, Russian Banker Tries to Project Calm**\
 `The central bank leader Elvira S. Nabiullina reappeared during a news conference after a gap that highlighted deep tensions in the country’s political and economic elite.`\
 https://www.nytimes.com/2026/06/19/world/europe/russia-economy-interest-rates.html
