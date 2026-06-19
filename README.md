@@ -1,3 +1,7 @@
+**A New Air Force One, via Qatar, Nears Its First Presidential Flight**\
+`President Trump showed off the new red, white and blue Boeing 747, a gift from Qatar that prompted a storm of criticism from lawmakers, before a flyover on July 4.`\
+https://www.nytimes.com/2026/06/19/us/politics/new-air-force-one-trump.html
+
 **The Reflecting Pool Appears to Be Rejecting Its Makeover**\
 `As National Park Service crews try to clean the algae that turned the water bright green, another problem has developed: The “American flag blue” coating is coming off.`\
 https://www.nytimes.com/2026/06/19/us/politics/reflecting-pool-paint-algae.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/19/opinion/abortion-rights.html
 **Wait, There Are Two Trump Administrations Right Now?**\
 `The center of American empire is not land but a collection of interlocked state agencies and their business constituencies`\
 https://www.nytimes.com/2026/06/19/opinion/american-empire-trump.html
-
-**Starmer Says He Will Run if There Is a Leadership Contest**\
-`Prime Minister Keir Starmer of Britain said he would run if there were a contest for the Labour Party leadership. A top rival in the party, Andy Burnham, won a special parliamentary election, making him eligible to challenge the prime minister.`\
-https://www.nytimes.com/video/world/europe/100000010979670/starmer-burnham-makerfield-election-uk.html
 
 **World Cup Updates: For U.S. Fans in Seattle, a Boisterous March to the Match**\
 `(No description)`\
