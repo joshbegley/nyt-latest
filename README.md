@@ -162,8 +162,8 @@ https://www.nytimes.com/2026/06/19/movies/five-horror-movies-to-stream-now.html
 `Readers respond to “The Missing Middle in the Abortion Debate,” an Opinion guest essay by Zaid Jilani.`\
 https://www.nytimes.com/2026/06/19/opinion/abortion-rights.html
 
-**There Are Two Trump Administrations Right Now. And an Empire?**\
-`The center is not land but a collection of interlocked state agencies and their business constituencies`\
+**Wait, There Are Two Trump Administrations Right Now?**\
+`The center of American empire is not land but a collection of interlocked state agencies and their business constituencies`\
 https://www.nytimes.com/2026/06/19/opinion/american-empire-trump.html
 
 **Starmer Says He Will Run if There Is a Leadership Contest**\
