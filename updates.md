@@ -1,3 +1,11 @@
+**Algae Turns Reflecting Pool Green Again**\
+`Algae blooms have hit the Lincoln Memorial Reflecting Pool, which underwent a $14.2 million repair project. Blue paint appeared to be chipping from the bottom.`\
+https://www.nytimes.com/video/us/politics/100000010978556/reflecting-pool-dc-algae-green.html
+
+**Hannah Pingree and Bobby Charles Will Face Off in Maine Governor’s Race**\
+`Mr. Charles, a conservative Republican, had led the field ahead of a ranked-choice runoff. But Ms. Pingree, a former Maine House speaker, had been in a tight race with other Democrats.`\
+https://www.nytimes.com/2026/06/19/us/politics/maine-governor-pingree-charles.html
+
 **Matt Dunlap Wins Democratic House Primary in Maine’s Swing District**\
 `Mr. Dunlap, a progressive Democrat, is set to face former Gov. Paul LePage, a Republican, in a competitive general election in November.`\
 https://www.nytimes.com/2026/06/19/us/politics/democratic-house-primary-maine-dunlap.html
