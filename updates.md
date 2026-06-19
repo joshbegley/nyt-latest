@@ -1,3 +1,7 @@
+**La guerra en Irán cuesta miles de vidas y millardos de dólares**\
+`El número de víctimas y los costos económicos se dispararon rápidamente después de que Estados Unidos e Israel atacaran Irán el 28 de febrero.`\
+https://www.nytimes.com/es/2026/06/19/espanol/estados-unidos/iran-costo-victimas.html
+
 **Burnham’s Stunning Victory in Makerfield Election May Trigger Starmer’s Last Stand**\
 `Andy Burnham, a Labour mayor, won a resounding majority in a special election on Thursday, making him eligible to challenge Prime Minister Keir Starmer for the country’s leadership.`\
 https://www.nytimes.com/2026/06/19/world/europe/andy-burnham-election-uk-starmer-makerfield.html

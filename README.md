@@ -1,3 +1,11 @@
+**Canadian Billionaire Frank Stronach Is Convicted of Sexual and Indecent Assault**\
+`Mr. Stronach, 93, was found guilty of sexual assault and indecent assault in two cases and acquitted on three other charges.`\
+https://www.nytimes.com/2026/06/19/world/canada/frank-stronach-trial-guilty-sex-charges.html
+
+**U.S.-Iran Talks Delayed After Fighting in Lebanon**\
+`Scheduled talks between the United States and Iran were delayed after deadly fighting between Israel and Hezbollah in Lebanon.`\
+https://www.nytimes.com/video/world/middleeast/100000010979595/us-iran-talks-israel-lebanon-attacks.html
+
 **La guerra en Irán cuesta miles de vidas y millardos de dólares**\
 `El número de víctimas y los costos económicos se dispararon rápidamente después de que Estados Unidos e Israel atacaran Irán el 28 de febrero.`\
 https://www.nytimes.com/es/2026/06/19/espanol/estados-unidos/iran-costo-victimas.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/19/opinion/ezra-klein-podcast-gary-shteyngart.ht
 **The Costs of the Iran War: Thousands of Lives and Billions of Dollars**\
 `The human toll and economic costs mounted rapidly after the United States and Israel attacked Iran on Feb. 28.`\
 https://www.nytimes.com/2026/06/19/us/politics/iran-war-costs-deaths.html
-
-**The New York Times News Quiz, June 19, 2026**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://www.nytimes.com/interactive/2026/06/19/briefing/news-quiz-knicks-trump-spacex.html
-
-**Corrections: June 19, 2026**\
-`Corrections that appeared in print on Friday, June 19, 2026.`\
-https://www.nytimes.com/2026/06/19/pageoneplus/corrections-june-19-2026.html
 
