@@ -1,3 +1,7 @@
+**For India, the Return of Iranian Oil Cannot Come Soon Enough**\
+`After months of shortages and uncertainty, India sees an opportunity to restore a once-crucial energy relationship.`\
+https://www.nytimes.com/2026/06/19/business/india-iran-oil-imports.html
+
 **A Missing Ingredient in Ukraine’s Barrages on Russia: Ballistic Missiles**\
 `Ukrainian drone attacks have achieved breakthroughs, but only ballistic missiles can push Russia to reconsider its war objectives, military experts and officials say.`\
 https://www.nytimes.com/2026/06/19/world/europe/ukraine-drone-attacks-ballistic-missiles.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/19/arts/television/comedy-aaron-chen-dan-mintz.h
 **The Ageless and Undefeated Champs of Tulsa’s Wii Bowling League**\
 `The U.V. Okies have dominated a competition with other senior living facilities for six seasons, but they’re not just there to win.`\
 https://www.nytimes.com/2026/06/19/us/wii-bowling-uv-okies-tulsa.html
-
-**Five Free Movies to Stream Now**\
-`This month’s films, including “Citizenfour” and “The Candidate,” tell stories about America and our constant struggles to preserve freedom.`\
-https://www.nytimes.com/2026/06/19/movies/free-movies-to-stream-citizenfour-the-candidate.html
 

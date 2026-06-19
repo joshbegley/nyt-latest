@@ -1,3 +1,11 @@
+**A Missing Ingredient in Ukraine’s Barrages on Russia: Ballistic Missiles**\
+`Ukrainian drone attacks have achieved breakthroughs, but only ballistic missiles can push Russia to reconsider its war objectives, military experts and officials say.`\
+https://www.nytimes.com/2026/06/19/world/europe/ukraine-drone-attacks-ballistic-missiles.html
+
+**Banker’s Brief Absence Exposes Raw Nerves on Russia’s Economy**\
+`The central bank leader Elvira S. Nabiullina reappeared during a news conference after a weekslong gap that highlighted deep tensions in the country’s political and economic elite.`\
+https://www.nytimes.com/2026/06/19/world/europe/russia-economy-interest-rates.html
+
 **Summer Reading Contest, Week 3: What Got Your Attention in The Times This Week?**\
 `To participate, submit your response here by June 26 at 9 a.m. Eastern. This week’s winners will be announced by July 8.`\
 https://www.nytimes.com/2026/06/19/learning/summer-reading-contest-week-3-what-got-your-attention-in-the-times-this-week.html
