@@ -1,3 +1,11 @@
+**‘House of the Dragon’: What to Remember Before the Season 3 Premiere**\
+`Nearly two years have passed since the “Game of Thrones” prequel aired, and the many shifting alliances and secret betrayals were complex even then.`\
+https://www.nytimes.com/2026/06/19/arts/television/house-of-the-dragon-recap-season-2.html
+
+**How Quickly Could Andy Burnham Become U.K. Prime Minister?**\
+`While Mr. Burnham’s leadership ambitions are clear, Prime Minister Keir Starmer has stated that he would fight any challenge.`\
+https://www.nytimes.com/2026/06/19/world/europe/burnham-prime-minister-starmer-uk.html
+
 **Excited for World Cup? Stream 14 Great Soccer Movies.**\
 `The beautiful game is the inspiring setting for films from countries large (Brazil) and small (Cape Verde). Watch them while the World Cup is in full swing.`\
 https://www.nytimes.com/2026/06/19/movies/world-cup-soccer-movies-streaming.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/19/business/colby-college-port-clyde-maine-water
 **Billy Porter and Wayne Brady Make a Tender Pair in ‘La Cage aux Folles’**\
 `Billy Porter and Wayne Brady make a tender pair in Robert O’Hara’s revival of the Harvey Fierstein-Jerry Herman musical farce.`\
 https://www.nytimes.com/2026/06/19/theater/la-cage-aux-folles-review-porter-brady.html
-
-**Matt Smith Goes Dark on ‘House of the Dragon’**\
-`“Doctor Who” made him beloved. He channeled that likability into a series of murderers and misanthropes, including in this “Game of Thrones” prequel.`\
-https://www.nytimes.com/2026/06/19/arts/television/matt-smith-house-of-the-dragon.html
-
-**Is Climate Change Supercharging El Niño?**\
-`As a new, potentially record-breaking El Niño begins, researchers are vigorously debating whether climate change is driving the phenomenon’s intensity.`\
-https://www.nytimes.com/2026/06/19/climate/is-climate-change-supercharging-el-nino-scientists-dont-agree.html
 
