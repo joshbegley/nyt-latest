@@ -1,3 +1,7 @@
+**Oil Prices Wobble as U.S.-Iran Deal Faces Tests**\
+`Oil remains on track for a second straight weekly decline, but signs of cracks in the agreement to end the war have given traders pause.`\
+https://www.nytimes.com/2026/06/19/business/oil-gas-prices-iran.html
+
 **Extreme Heat Warnings Issued Across Europe: What to Know**\
 `Unusually high temperatures are expected across parts of Western Europe into early next week, weather agencies said.`\
 https://www.nytimes.com/2026/06/19/world/europe/heat-wave-europe-uk-weather-forecast.html
