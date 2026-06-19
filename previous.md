@@ -1,5 +1,21 @@
+**Blueberry Almond Lemon Cake and More Popular Recipes**\
+`And more of our most popular recipes from the week.`\
+https://www.nytimes.com/2026/06/19/dining/have-you-made-this-blueberry-lemon-loaf-cake-yet.html
+
+**Five Horror Movies to Stream Now**\
+`This month, victims are held hostage by demons, a deranged madman, the elements and a monstrosity named Hoagie.`\
+https://www.nytimes.com/2026/06/19/movies/five-horror-movies-to-stream-now.html
+
+**There Is No ‘Compromise’ on Abortion Rights**\
+`Readers respond to “The Missing Middle in the Abortion Debate,” an Opinion guest essay by Zaid Jilani.`\
+https://www.nytimes.com/2026/06/19/opinion/abortion-rights.html
+
+**There Are Two Trump Administrations Right Now. And an Empire?**\
+`The center is not land but a collection of interlocked state agencies and their business constituencies`\
+https://www.nytimes.com/2026/06/19/opinion/american-empire-trump.html
+
 **Starmer Says He Will Run if There Is a Leadership Contest**\
-`Prime Minister Keir Starmer said he would run if there were a contest for the Labour Party leadership. A top rival in the party, Andy Burnham, won a special parliamentary election, making him eligible to challenge the prime minister.`\
+`Prime Minister Keir Starmer of Britain said he would run if there were a contest for the Labour Party leadership. A top rival in the party, Andy Burnham, won a special parliamentary election, making him eligible to challenge the prime minister.`\
 https://www.nytimes.com/video/world/europe/100000010979670/starmer-burnham-makerfield-election-uk.html
 
 **Marcella Hazan’s Bolognese Sauce**\
@@ -163,7 +179,7 @@ https://www.nytimes.com/es/2026/06/19/espanol/tener-hijos-salud-mental.html
 https://www.nytimes.com/2026/06/19/travel/world-cup-tourism-us-canada-mexico.html
 
 **World Cup Puts Spotlight on L.A.’s Mexican-Korean Kinship**\
-`The bond between the two communities was on show at a packed Koreatown watch party for the match between South Korea and Mexico on Thursday.`\
+`The bond between the two communities was on display at a packed Koreatown watch party for the match between South Korea and Mexico on Thursday.`\
 https://www.nytimes.com/2026/06/19/us/world-cup-koreatown-mexico-korea.html
 
 **Congress Is Anxious as U.S.-Canada-Mexico Trade Talks Intensify**\
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/06/19/arts/music/popcast-mailbag-taylor-swift-the-b
 **Art, Outrage and How the Culture Wars Began**\
 `In a new book, the author Isaac Butler details the late-20th century battles over government-funded art.`\
 https://www.nytimes.com/2026/06/19/podcasts/art-outrage-and-how-the-culture-wars-began.html
-
-**Trump’s Military Budget Hits Snags Amid Questions on Iran War Costs**\
-`Republicans and Democrats alike are casting doubt on a push for the largest military budget in history as the administration declines to disclose the cost of the war with Iran.`\
-https://www.nytimes.com/2026/06/19/us/politics/military-budget-congress-iran-trump-hegseth.html
-
-**My Town Wants to Build a Homeless Camp. What Can I Do?**\
-`Knowing a town’s motivation can help residents understand how to engage constructively.`\
-https://www.nytimes.com/2026/06/19/realestate/homeless-shelters-community-rights.html
-
-**I Keep Telling People We’re Living in This Dystopian Novel**\
-`The 2010 novel “Super Sad True Love Story” foreshadowed our current world. So I asked its author, Gary Shteyngart, how he sees the world today and how we might find pleasure in it.`\
-https://www.nytimes.com/video/opinion/100000010970860/i-keep-telling-people-were-living-in-this-dystopian-novel.html
-
-**How the Nashville Zoo Became the Latest Face of Data Center Opposition**\
-`Outcry over plans to build a large data center next to the zoo has energized support for new restrictions in Nashville.`\
-https://www.nytimes.com/2026/06/19/us/nashville-zoo-data-center.html
 

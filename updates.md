@@ -1,3 +1,27 @@
+**Blueberry Almond Lemon Cake and More Popular Recipes**\
+`And more of our most popular recipes from the week.`\
+https://www.nytimes.com/2026/06/19/dining/have-you-made-this-blueberry-lemon-loaf-cake-yet.html
+
+**Five Horror Movies to Stream Now**\
+`This month, victims are held hostage by demons, a deranged madman, the elements and a monstrosity named Hoagie.`\
+https://www.nytimes.com/2026/06/19/movies/five-horror-movies-to-stream-now.html
+
+**There Is No ‘Compromise’ on Abortion Rights**\
+`Readers respond to “The Missing Middle in the Abortion Debate,” an Opinion guest essay by Zaid Jilani.`\
+https://www.nytimes.com/2026/06/19/opinion/abortion-rights.html
+
+**There Are Two Trump Administrations Right Now. And an Empire?**\
+`The center is not land but a collection of interlocked state agencies and their business constituencies`\
+https://www.nytimes.com/2026/06/19/opinion/american-empire-trump.html
+
+**Starmer Says He Will Run if There Is a Leadership Contest**\
+`Prime Minister Keir Starmer of Britain said he would run if there were a contest for the Labour Party leadership. A top rival in the party, Andy Burnham, won a special parliamentary election, making him eligible to challenge the prime minister.`\
+https://www.nytimes.com/video/world/europe/100000010979670/starmer-burnham-makerfield-election-uk.html
+
+**World Cup Puts Spotlight on L.A.’s Mexican-Korean Kinship**\
+`The bond between the two communities was on display at a packed Koreatown watch party for the match between South Korea and Mexico on Thursday.`\
+https://www.nytimes.com/2026/06/19/us/world-cup-koreatown-mexico-korea.html
+
 **Starmer Says He Will Run if There Is a Leadership Contest**\
 `Prime Minister Keir Starmer said he would run if there were a contest for the Labour Party leadership. A top rival in the party, Andy Burnham, won a special parliamentary election, making him eligible to challenge the prime minister.`\
 https://www.nytimes.com/video/world/europe/100000010979670/starmer-burnham-makerfield-election-uk.html
