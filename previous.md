@@ -1,3 +1,7 @@
+**U.S. to End AIDS Funding for South Africa**\
+`According to an unsigned statement from the State Department, the U.S. will phase out support for H.I.V. prevention and treatment in South Africa.`\
+https://www.nytimes.com/2026/06/19/world/africa/southafrica-aids-pepfar.html
+
 **¿Quién es Andy Burnham, el que podría ser el próximo primer ministro del Reino Unido?**\
 `Carismático y de un optimismo desenfadado, Burnham es todo lo contrario a Keir Starmer. Sus aliados esperan que pueda mejorar la relación del Partido Laborista con los votantes.`\
 https://www.nytimes.com/es/2026/06/19/espanol/mundo/elecciones-primer-ministro-reino-unido.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/19/briefing/strikes-in-moscow.html
 **Deadly Violence Rocks Lebanon in Threat to U.S.-Iran Deal**\
 `Israel launched strikes across the country after Iran-backed Hezbollah said it had ambushed Israeli troops, leaving diplomats scrambling to prevent the deal from collapsing.`\
 https://www.nytimes.com/2026/06/19/world/middleeast/lebanon-israel-attacks.html
-
-**Tension Builds Between USMNT and Australia, While Scotland Fans Take Over Boston**\
-`Why is there such animosity between the World Cup co-hosts and the Socceroos?`\
-https://www.nytimes.com/2026/06/19/podcasts/usmnt-australia-scotland-fans-boston.html
 
 **World Cup Updates: Scotland Fans Seize Boston’s Heart, and Its Beer**\
 `(No description)`\

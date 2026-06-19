@@ -1,3 +1,7 @@
+**U.S. to End AIDS Funding for South Africa**\
+`According to an unsigned statement from the State Department, the U.S. will phase out support for H.I.V. prevention and treatment in South Africa.`\
+https://www.nytimes.com/2026/06/19/world/africa/southafrica-aids-pepfar.html
+
 **¿Quién es Andy Burnham, el que podría ser el próximo primer ministro del Reino Unido?**\
 `Carismático y de un optimismo desenfadado, Burnham es todo lo contrario a Keir Starmer. Sus aliados esperan que pueda mejorar la relación del Partido Laborista con los votantes.`\
 https://www.nytimes.com/es/2026/06/19/espanol/mundo/elecciones-primer-ministro-reino-unido.html
