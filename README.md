@@ -1,3 +1,7 @@
+**Starmer Says He Will Run if There Is a Leadership Contest**\
+`Prime Minister Keir Starmer said he would run if there were a contest for the Labour Party leadership. A top rival in the party, Andy Burnham, won a special parliamentary election, making him eligible to challenge the prime minister.`\
+https://www.nytimes.com/video/world/europe/100000010979670/starmer-burnham-makerfield-election-uk.html
+
 **Marcella Hazan’s Bolognese Sauce**\
 `After the death in 2013 of Marcella Hazan, the cookbook author who changed the way Americans cook Italian food, The New York Times asked readers which of her recipes had become staples in their kitchens. Many people answered with one word: “Bolognese.”`\
 https://www.nytimes.com/video/dining/100000010979828/marcella-hazans-bolognese-sauce.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/opinion/100000010970860/i-keep-telling-people-were
 **How the Nashville Zoo Became the Latest Face of Data Center Opposition**\
 `Outcry over plans to build a large data center next to the zoo has energized support for new restrictions in Nashville.`\
 https://www.nytimes.com/2026/06/19/us/nashville-zoo-data-center.html
-
-**Boycott Trump’s Ridiculous July 4 Party**\
-`The president is planning another self-aggrandizing spectacle.`\
-https://www.nytimes.com/2026/06/19/opinion/trump-freedom-250-america-ufc-birthday.html
 
