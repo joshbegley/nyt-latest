@@ -1,3 +1,7 @@
+**Swiss Officials Say Iran Talks Are Off, For Now**\
+`The announcement raised immediate questions over the fate of the agreement President Trump signed this week, with key details left to be worked out.`\
+https://www.nytimes.com/2026/06/19/world/europe/switzerland-iran-talks.html
+
 **Jimmy Kimmel Calls Trump’s Iran Deal ‘The Retreaty of Versailles’**\
 `“Trump’s answer to the question, ‘Who did you go to war with?’ and ‘How did it end?’ will be the same answer: ‘Iran,’” Kimmel said.`\
 https://www.nytimes.com/2026/06/19/arts/television/jimmy-kimmel-trump-iran-deal.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/06/18/well/family/fathers-day-questions
 **25 preguntas para conocer mejor a papá**\
 `Este Día del Padre, renueva tus temas de conversación y conoce un poco más a una de las figuras más importantes de tu vida.`\
 https://www.nytimes.com/es/interactive/2026/06/18/espanol/como-hablar-papa-dia-padre.html
-
-**One Knicks Jersey Was Not Like the Others at City Hall**\
-`The Knicks retired No. 33, the number that belonged to Patrick Ewing, in 2003. But a jersey with the number was featured at the City Hall ceremony on Thursday.`\
-https://www.nytimes.com/2026/06/18/nyregion/ewing-jersey-knicks-parade.html
 
