@@ -1,3 +1,11 @@
+**Una empresa vinculada a un donante de Trump obtuvo un contrato sin licitación para limpiar el estanque reflectante**\
+`Una vocera de la Casa Blanca dijo que el presidente no participó en la selección de Greenwater Services, la empresa propiedad de un fideicomiso dirigido por John J. Cafaro.`\
+https://www.nytimes.com/es/2026/06/19/espanol/estados-unidos/piscina-reflectante-limpieza-algas.html
+
+**Trump’s Iran Deal Is Off to a Chaotic Start**\
+`The preliminary agreement, not yet a week old, has sown confusion: nixed Swiss signing ceremonies, rifts with Israel and Congress, and uncertainty over new talks.`\
+https://www.nytimes.com/2026/06/19/world/middleeast/iran-war-deal-trump-uncertainty.html
+
 **Iran’s Supreme Leader Says He Dislikes Deal With U.S., but Allowed It**\
 `Ayatollah Mojtaba Khamenei distanced himself from the agreement, putting responsibility for it on Iran’s president, and said it does not mean acceding to U.S. demands.`\
 https://www.nytimes.com/2026/06/19/world/middleeast/mojtaba-khamenei-iran-deal-reaction.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/06/19/magazine/one-drink-maximum-hodgma
 **Trump Put His Own Interests Above All in the Iran Deal**\
 `The Iran deal wasn’t about peace but answering Trump’s personal needs.`\
 https://www.nytimes.com/2026/06/19/opinion/iran-israel-us-war-deal.html
-
-**How Deal With U.S. Could Reconnect Iran to the Global Economy**\
-`The country has long faced some of the world’s heaviest sanctions. The lifting of restrictions could open new vistas on trade and financial access.`\
-https://www.nytimes.com/2026/06/19/business/economy/iran-sanctions-oil.html
-
-**La salud mental puede complicar la decisión de tener hijos**\
-`Cinco historias muestran los obstáculos a los que se enfrentan las personas con diagnósticos psicológicos a la hora de plantearse ser padres.`\
-https://www.nytimes.com/es/2026/06/19/espanol/tener-hijos-salud-mental.html
 
