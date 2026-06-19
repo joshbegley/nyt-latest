@@ -1,3 +1,7 @@
+**How Cubans Are Living in the Dark**\
+`Lisette Poole González, a photographer for The New York Times, talks with Jack Nicas, The Times’s Mexico City bureau chief, about photographing Havana at night amid an energy crisis.`\
+https://www.nytimes.com/video/world/americas/100000010937059/how-cubans-are-living-in-the-dark.html
+
 **Giorgia Meloni le dice a Trump: ‘Italia y yo nunca rogamos’**\
 `El presidente Trump dijo que la primera ministra italiana le ‘rogó’ tomarse una foto juntos en la cumbre del G7 en Francia. El comentario ha desatado críticas de todo el gobierno italiano.`\
 https://www.nytimes.com/es/2026/06/19/espanol/mundo/meloni-trump-italia.html
@@ -190,11 +194,7 @@ https://www.nytimes.com/2026/06/19/podcasts/usmnt-australia-scotland-fans-boston
 `The drone attack that sent plumes of smoke rising over Moscow intensified Ukrainian hopes of bringing the war to Russia.`\
 https://www.nytimes.com/2026/06/19/world/europe/ukraine-drone-attack-moscow.html
 
-**Did Iran Come Out on Top in the Peace Deal?**\
-`Details of the United States’ agreement with Iran drew comparisons to the one President Barack Obama signed in 2015.`\
-https://www.nytimes.com/2026/06/19/podcasts/the-daily/iran-us-deal-trump-obama.html
-
-**JD Vance’s Blunt Warning to Israel, and Why Waymo Is Struggling to Go National**\
-`Plus, the Friday news quiz.`\
-https://www.nytimes.com/2026/06/19/podcasts/the-headlines/vance-iran-agreement-israel-waymo.html
+**World Cup Updates: Scotland Fans Seize Boston’s Heart, and Its Beer**\
+`(No description)`\
+https://www.nytimes.com/live/2026/us/fifa-world-cup
 
