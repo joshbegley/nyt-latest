@@ -1,3 +1,11 @@
+**Moscow Tanker Blast Most Likely Russian Missile, Video Shows**\
+`A dramatic explosion that caused the lid of an oil tanker to fly into the sky during a Ukrainian aerial assault on Moscow was most likely caused by a Russian air defense missile, verified video shows.`\
+https://www.nytimes.com/video/world/europe/100000010980052/moscow-tanker-blast-likely-russian-missile.html
+
+**Two Trains Collide Near Bedford, England, on Friday**\
+`At least one person was killed and a “number of people” were injured after two passenger trains crashed in south-central England on Friday, the authorities said.`\
+https://www.nytimes.com/video/world/europe/100000010980536/trains-crash-uk.html
+
 **California Sheriff’s Deputy Is Charged in Fatal On-Duty Crash**\
 `The deputy was responding to a call, driving at about 100 miles per hour, when he struck a Tesla, killing its driver and severely injuring his fiancée, the authorities said.`\
 https://www.nytimes.com/2026/06/19/us/california-deputy-charged-manslaughter-crash.html

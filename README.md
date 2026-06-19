@@ -26,8 +26,8 @@ https://www.nytimes.com/2026/06/19/us/missouri-abortion-access-ruling.html
 `The agreement leaves unresolved the two issues at the heart of the conflict: Israel’s occupation and Hezbollah’s arsenal.`\
 https://www.nytimes.com/2026/06/19/world/middleeast/lebanon-us-iran-deal-ceasefire.html
 
-**Trains Collide in UK, Killing at Least One and Injuring Others**\
-`At least one person was killed and a “number of people” were injured in the crash near Bedford, England, the authorities said.`\
+**Trains Collide in UK, Killing at Least One and Injuring Dozens of Others**\
+`At least one person was killed and dozens of others were injured in the crash near Bedford, England, the authorities said.`\
 https://www.nytimes.com/2026/06/19/world/europe/uk-trains-collide-bedford-england.html
 
 **Israel Is Likely to Continue Attacks in Lebanon, U.S. Intelligence Concludes**\
