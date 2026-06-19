@@ -1,3 +1,7 @@
+**Israel Launches Airstrikes in Lebanon After 4 Soldiers Are Killed**\
+`The violence involving Israel and Iran-backed Hezbollah militants added to pressure on the U.S.-Iran deal, which calls for fighting to stop on all fronts, including in Lebanon.`\
+https://www.nytimes.com/2026/06/19/world/middleeast/lebanon-israel-attacks.html
+
 **Tension Builds Between USMNT and Australia, While Scotland Fans Take Over Boston**\
 `Why is there such animosity between the World Cup co-hosts and the Socceroos?`\
 https://www.nytimes.com/2026/06/19/podcasts/usmnt-australia-scotland-fans-boston.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/19/books/review/ghosts-childrens-books.html
 **The World Is Full of Chokepoints, and Iran Just Showed How to Exploit Them**\
 `Tehran is the newly empowered gatekeeper of the world’s most important waterway for energy. Other countries will take note.`\
 https://www.nytimes.com/2026/06/19/opinion/iran-hormuz-strait-oil-us.html
-
-**Buildings May Soon Have ‘Immune Systems’ That Fight Airborne Disease**\
-`Following the pandemic, the federal government is spending $150 million on new technology to ensure clean indoor air. Here’s what scientists are pursuing.`\
-https://www.nytimes.com/2026/06/19/science/indoor-air-viruses-bacteria.html
 
