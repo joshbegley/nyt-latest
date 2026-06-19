@@ -1,3 +1,11 @@
+**Burnham Wins Makerfield By-Election, Clearing Path to Challenge Starmer as UK Prime Minister**\
+`Andy Burnham, Labour’s most popular politician, beat the populist right-wing Reform U.K. party in the Makerfield by-election. The decisive victory will energize his bid to become prime minister.`\
+https://www.nytimes.com/2026/06/18/world/europe/uk-makerfield-election.html
+
+**NYT Crossword Answers for June 19, 2026**\
+`Jack Hatchett makes his debut.`\
+https://www.nytimes.com/2026/06/18/crosswords/daily-puzzle-2026-06-19.html
+
 **Firm Tied to Trump Donor Got No-Bid Contract to Clean Reflecting Pool**\
 `A White House spokeswoman said the president was not involved in selecting Greenwater Services, the business owned by a trust led by John J. Cafaro.`\
 https://www.nytimes.com/2026/06/18/us/politics/trump-donor-contract-reflecting-pool.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/18/us/college-students-drowned-california.html
 **Man Who Tried to Enter Sabrina Carpenter’s Home Gets 5-Year Restraining Order**\
 `The pop star and songwriter said she feared what the man would do if he was not prevented from coming near her or her family, according to court records.`\
 https://www.nytimes.com/2026/06/18/arts/sabrina-carpenter-restraining-order.html
-
-**Colorado Governor Overruled His Own Clemency Board to Release Tina Peters**\
-`Two members of Gov. Jared Polis’s board that reviews commutation requests came forward to say the secretive panel had twice rejected the release of Tina Peters, convicted of election tampering.`\
-https://www.nytimes.com/2026/06/18/us/politics/colorado-clemency-board-tina-peters.html
-
-**Taylor Swift, Geese, the Beatles and More: Popcast Critics Answer Your Pop Questions!**\
-`Joe Coscarelli and Jon Caramanica answer audience questions. Watch the full episode here.`\
-https://www.nytimes.com/video/podcasts/100000010972507/taylor-swift-geese-the-beatles-and-more-popcast-critics-answer-your-pop-questions.html
 
