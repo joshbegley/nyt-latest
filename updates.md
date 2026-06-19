@@ -1,3 +1,7 @@
+**California Sheriff’s Deputy Is Charged in Fatal On-Duty Crash**\
+`The deputy was responding to a call, driving at about 100 miles per hour, when he struck a Tesla, killing its driver and severely injuring his fiancée, the authorities said.`\
+https://www.nytimes.com/2026/06/19/us/california-deputy-charged-manslaughter-crash.html
+
 **Trump Shifts Stance in South Carolina After Losses in Governor’s Races**\
 `On Friday the president made the unusual move of endorsing both candidates in the Republican runoff for South Carolina governor.`\
 https://www.nytimes.com/2026/06/19/us/trump-shifts-endorsement-south-carolina-governor.html

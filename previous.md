@@ -1,3 +1,7 @@
+**California Sheriff’s Deputy Is Charged in Fatal On-Duty Crash**\
+`The deputy was responding to a call, driving at about 100 miles per hour, when he struck a Tesla, killing its driver and severely injuring his fiancée, the authorities said.`\
+https://www.nytimes.com/2026/06/19/us/california-deputy-charged-manslaughter-crash.html
+
 **Trump Shifts Stance in South Carolina After Losses in Governor’s Races**\
 `On Friday the president made the unusual move of endorsing both candidates in the Republican runoff for South Carolina governor.`\
 https://www.nytimes.com/2026/06/19/us/trump-shifts-endorsement-south-carolina-governor.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/19/arts/parthenon-restoration-greece.html
 **Colman Domingo Reflects on Love and How It Drives Us**\
 `Fires will rage. People will leave. Hopes will be dashed. Yet love — our everlasting foundation — will endure.`\
 https://www.nytimes.com/2026/06/19/special-series/colman-domingo-love.html
-
-**‘Sugar’ Review: Close Encounters of the Noir Kind**\
-`Colin Farrell and California are still a winning combination in a new season of Apple TV’s sci-fi private-eye series.`\
-https://www.nytimes.com/2026/06/19/arts/television/sugar-review.html
 
 **World Cup Updates: For U.S. Fans in Seattle, a Boisterous March to the Match**\
 `(No description)`\
