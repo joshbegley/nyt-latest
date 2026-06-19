@@ -1,3 +1,7 @@
+**Overlooked No More: Robbie Basho, Guitar Mystic Who Sought Enlightenment in Sound**\
+`He lived with chronic pain and deep loneliness, which he poured into boundary-pushing music that incorporated multicultural sounds.`\
+https://www.nytimes.com/2026/06/19/obituaries/robbie-basho-overlooked.html
+
 **James Burrows, Master of the TV Sitcom, Dies at 85**\
 `Beloved by actors, he helped create “Cheers” and directed more than 1,000 episodes of hit shows like “Taxi,” “Friends” and “The Big Bang Theory.”`\
 https://www.nytimes.com/2026/06/19/arts/television/james-burrows-dead.html
