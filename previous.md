@@ -1,3 +1,15 @@
+**Iran’s Supreme Leader Says He Dislikes Deal With U.S., but Allowed It**\
+`Ayatollah Mojtaba Khamenei distanced himself from the agreement, putting responsibility for it on Iran’s president, and said it does not mean acceding to U.S. demands.`\
+https://www.nytimes.com/2026/06/19/world/middleeast/mojtaba-khamenei-deal-reaction.html
+
+**Flashback: Your Weekly History Quiz, June 20, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/06/19/upshot/flashback.html
+
+**Vegan Caesar Salad With Crisp Chickpeas**\
+`There are many ways to mimic the rich, creamy texture of emulsified, egg-based Caesar dressing: tofu, vegan mayonnaise, aquafaba whipped with oil, the list goes on. Blended raw cashews prove themselves the best base in this version, which is fortified with garlic, mustard, miso paste and caper brine to achieve the tangy-salty-punchy balance found in the real deal.`\
+https://www.nytimes.com/video/dining/100000010979927/vegan-caesar-salad-with-crisp-chickpeas.html
+
 **Demining the Strait of Hormuz**\
 `Our reporter John Ismay, who served as a Navy explosive ordnance disposal officer and deep-sea diver for eight years, explains why mines in the Strait of Hormuz may outlast the war.`\
 https://www.nytimes.com/video/us/politics/100000010969459/iran-strait-hormuz-mines-shipping.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/19/business/economy/iran-sanctions-oil.html
 **La salud mental puede complicar la decisión de tener hijos**\
 `Cinco historias muestran los obstáculos a los que se enfrentan las personas con diagnósticos psicológicos a la hora de plantearse ser padres.`\
 https://www.nytimes.com/es/2026/06/19/espanol/tener-hijos-salud-mental.html
-
-**World Cup Tourism Off to a Slow Start in the U.S., Canada and Mexico**\
-`Hotel and visitation numbers were expected to spike this year. So far, several of the host cities have instead seen slumps.`\
-https://www.nytimes.com/2026/06/19/travel/world-cup-tourism-us-canada-mexico.html
-
-**World Cup Puts Spotlight on L.A.’s Mexican-Korean Kinship**\
-`The bond between the two communities was on display at a packed Koreatown watch party for the match between South Korea and Mexico on Thursday.`\
-https://www.nytimes.com/2026/06/19/us/world-cup-koreatown-mexico-korea.html
-
-**Congress Is Anxious as U.S.-Canada-Mexico Trade Talks Intensify**\
-`With midterms approaching and negotiations heating up, some lawmakers are apprehensive over where the discussions are headed.`\
-https://www.nytimes.com/2026/06/19/business/usmca-trade-talks-us-canada-mexico.html
 
