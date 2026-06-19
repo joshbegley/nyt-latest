@@ -1,3 +1,15 @@
+**Red Red (Pepper Stewed Beans)**\
+`A common dish served at homes in Ghana, by roadside vendors and in chop chop bars (cafes or canteens), this popular stew is enjoyed all year round.`\
+https://www.nytimes.com/video/dining/100000010979853/red-red-pepper-stewed-beans.html
+
+**Angel Hair Pasta Salad**\
+`Light, bouncy angel hair makes for a surprisingly stellar pasta salad. Dressed in a simple mayonnaise and vinegar dressing, a rainbow confetti of raw vegetables shines in this chill, endlessly adaptable recipe.`\
+https://www.nytimes.com/video/dining/100000010979894/angel-hair-pasta-salad.html
+
+**Back After Vanishing for 2 Weeks, Russian Banker Tries to Project Calm**\
+`The central bank leader Elvira S. Nabiullina reappeared for a news conference after a gap that highlighted deep tensions in the country’s political and economic elite.`\
+https://www.nytimes.com/2026/06/19/world/europe/russia-economy-interest-rates.html
+
 **Blueberry Almond Lemon Cake and More Popular Recipes**\
 `And more of our most popular recipes from the week.`\
 https://www.nytimes.com/2026/06/19/dining/have-you-made-this-blueberry-lemon-loaf-cake-yet.html

@@ -1,3 +1,11 @@
+**Red Red (Pepper Stewed Beans)**\
+`A common dish served at homes in Ghana, by roadside vendors and in chop chop bars (cafes or canteens), this popular stew is enjoyed all year round.`\
+https://www.nytimes.com/video/dining/100000010979853/red-red-pepper-stewed-beans.html
+
+**Angel Hair Pasta Salad**\
+`Light, bouncy angel hair makes for a surprisingly stellar pasta salad. Dressed in a simple mayonnaise and vinegar dressing, a rainbow confetti of raw vegetables shines in this chill, endlessly adaptable recipe.`\
+https://www.nytimes.com/video/dining/100000010979894/angel-hair-pasta-salad.html
+
 **Blueberry Almond Lemon Cake and More Popular Recipes**\
 `And more of our most popular recipes from the week.`\
 https://www.nytimes.com/2026/06/19/dining/have-you-made-this-blueberry-lemon-loaf-cake-yet.html
@@ -55,7 +63,7 @@ https://www.nytimes.com/2026/06/19/business/india-iran-oil-imports.html
 https://www.nytimes.com/2026/06/19/world/europe/ukraine-drone-attacks-ballistic-missiles.html
 
 **Back After Vanishing for 2 Weeks, Russian Banker Tries to Project Calm**\
-`The central bank leader Elvira S. Nabiullina reappeared during a news conference after a gap that highlighted deep tensions in the country’s political and economic elite.`\
+`The central bank leader Elvira S. Nabiullina reappeared for a news conference after a gap that highlighted deep tensions in the country’s political and economic elite.`\
 https://www.nytimes.com/2026/06/19/world/europe/russia-economy-interest-rates.html
 
 **Summer Reading Contest, Week 3: What Got Your Attention in The Times This Week?**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/19/business/usmca-trade-talks-us-canada-mexico.h
 **Scots Have Invaded Boston’s Bars for the World Cup**\
 `Thousands of Scottish soccer fans have been spotted across the city. The locals are charmed.`\
 https://www.nytimes.com/2026/06/19/us/boston-scotland-soccer-tartan-army.html
-
-**Your Pop Music Questions Answered: Taylor Swift, Geese, the Beatles and More**\
-`Popcast’s mailbag is back and more varied than ever.`\
-https://www.nytimes.com/2026/06/19/arts/music/popcast-mailbag-taylor-swift-the-beatles.html
-
-**Art, Outrage and How the Culture Wars Began**\
-`In a new book, the author Isaac Butler details the late-20th century battles over government-funded art.`\
-https://www.nytimes.com/2026/06/19/podcasts/art-outrage-and-how-the-culture-wars-began.html
 

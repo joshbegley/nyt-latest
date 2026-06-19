@@ -1,3 +1,7 @@
+**Demining the Strait of Hormuz**\
+`Our reporter John Ismay, who served as a Navy explosive ordnance disposal officer and deep-sea diver for eight years, explains why mines in the Strait of Hormuz may outlast the war.`\
+https://www.nytimes.com/video/us/politics/100000010969459/iran-strait-hormuz-mines-shipping.html
+
 **Red Red (Pepper Stewed Beans)**\
 `A common dish served at homes in Ghana, by roadside vendors and in chop chop bars (cafes or canteens), this popular stew is enjoyed all year round.`\
 https://www.nytimes.com/video/dining/100000010979853/red-red-pepper-stewed-beans.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/19/us/world-cup-koreatown-mexico-korea.html
 **Congress Is Anxious as U.S.-Canada-Mexico Trade Talks Intensify**\
 `With midterms approaching and negotiations heating up, some lawmakers are apprehensive over where the discussions are headed.`\
 https://www.nytimes.com/2026/06/19/business/usmca-trade-talks-us-canada-mexico.html
-
-**Scots Have Invaded Boston’s Bars for the World Cup**\
-`Thousands of Scottish soccer fans have been spotted across the city. The locals are charmed.`\
-https://www.nytimes.com/2026/06/19/us/boston-scotland-soccer-tartan-army.html
 
