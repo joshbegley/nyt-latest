@@ -1,3 +1,15 @@
+**Lebanon Emerges as Weak Link in U.S.-Iran Deal to End War**\
+`The agreement leaves unresolved the two issues at the heart of the conflict: Israel’s occupation and Hezbollah’s arsenal.`\
+https://www.nytimes.com/2026/06/19/world/middleeast/lebanon-us-iran-deal-ceasefire.html
+
+**Trains Collide in UK, Killing at Least One and Injuring Others**\
+`At least one person was killed and a “number of people” were injured in the crash near Bedford, England, the authorities said.`\
+https://www.nytimes.com/2026/06/19/world/europe/uk-trains-collide-bedford-england.html
+
+**Israel Is Likely to Continue Attacks in Lebanon, U.S. Intelligence Concludes**\
+`The new cease-fire between the United States and Iran calls for an end to fighting in Lebanon, but U.S. intelligence officials do not expect Israel to halt its strikes on Hezbollah.`\
+https://www.nytimes.com/2026/06/19/us/politics/israel-lebanon-trump-cease-fire.html
+
 **Overlooked No More: Robbie Basho, Guitar Mystic Who Sought Enlightenment in Sound**\
 `He lived with chronic pain and deep loneliness, which he poured into boundary-pushing music that incorporated multicultural sounds.`\
 https://www.nytimes.com/2026/06/19/obituaries/robbie-basho-overlooked.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/2026/06/19/business/india-iran-oil-imports.html
 **A Missing Ingredient in Ukraine’s Barrages on Russia: Ballistic Missiles**\
 `Ukrainian drone attacks have achieved breakthroughs, but only ballistic missiles can push Russia to reconsider its war objectives, military experts and officials say.`\
 https://www.nytimes.com/2026/06/19/world/europe/ukraine-drone-attacks-ballistic-missiles.html
-
-**Back After Vanishing for 2 Weeks, Russian Banker Tries to Project Calm**\
-`The central bank leader Elvira S. Nabiullina reappeared for a news conference after a gap that highlighted deep tensions in the country’s political and economic elite.`\
-https://www.nytimes.com/2026/06/19/world/europe/russia-economy-interest-rates.html
-
-**Summer Reading Contest, Week 3: What Got Your Attention in The Times This Week?**\
-`To participate, submit your response here by June 26 at 9 a.m. Eastern. This week’s winners will be announced by July 8.`\
-https://www.nytimes.com/2026/06/19/learning/summer-reading-contest-week-3-what-got-your-attention-in-the-times-this-week.html
-
-**Rates on New Student Loans Will Rise on July 1**\
-`Higher interest rates take effect on July 1 for the next school year. Borrowers are already dealing with rising college costs and inflation elsewhere.`\
-https://www.nytimes.com/2026/06/19/your-money/student-loans-interest-rates-changes.html
 
 **World Cup Updates: For U.S. Fans in Seattle, a Boisterous March to the Match**\
 `(No description)`\
