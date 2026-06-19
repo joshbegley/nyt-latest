@@ -1,3 +1,7 @@
+**Salsa Macha Pork Noodles**\
+`These noodles are inspired by mazemen, a brothless ramen that is sometimes tossed with a saucy pork mixture. The dish comes together in less than half an hour, making it the perfect upgrade to an instant-ramen weeknight dinner.`\
+https://www.nytimes.com/video/dining/100000010978960/salsa-macha-pork-noodles.html
+
 **Trump’s Intelligence Pick Renews Debate: Is the Director of National Intelligence Needed?**\
 `The director of national intelligence’s office was created in the aftermath of the Sept. 11 attacks. Now some lawmakers want to shrink it.`\
 https://www.nytimes.com/2026/06/18/us/politics/director-national-intelligence-pulte-gabbard-clayton.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000010972507/taylor-swift-geese-the-be
 **Los deportistas extremos saben que van a perder muchos amigos**\
 `Por lo general se les ve como personas que buscan emociones fuertes, pero quienes practican estas actividades dicen que lo que les atrae es el control y la sensación de que el tiempo se desacelera.`\
 https://www.nytimes.com/es/2026/06/18/espanol/estados-unidos/accidentes-deportes-extremos-muertes.html
-
-**Danny Simmons, Painter and Activist From a Creative Family, Dies at 72**\
-`The older brother of the music mogul Russell Simmons and the rapper Joseph Simmons, he made his own way as an artistic and entrepreneurial force in Brooklyn.`\
-https://www.nytimes.com/2026/06/18/arts/danny-simmons-dead.html
 

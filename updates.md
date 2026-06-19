@@ -1,3 +1,7 @@
+**Salsa Macha Pork Noodles**\
+`These noodles are inspired by mazemen, a brothless ramen that is sometimes tossed with a saucy pork mixture. The dish comes together in less than half an hour, making it the perfect upgrade to an instant-ramen weeknight dinner.`\
+https://www.nytimes.com/video/dining/100000010978960/salsa-macha-pork-noodles.html
+
 **Trump’s Intelligence Pick Renews Debate: Is the Director of National Intelligence Needed?**\
 `The director of national intelligence’s office was created in the aftermath of the Sept. 11 attacks. Now some lawmakers want to shrink it.`\
 https://www.nytimes.com/2026/06/18/us/politics/director-national-intelligence-pulte-gabbard-clayton.html
