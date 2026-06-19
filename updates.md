@@ -1,3 +1,11 @@
+**Scottish Soccer Invasion in Boston for the World Cup**\
+`Thousands of Scottish soccer fans descended upon Boston to watch their team play in the World Cup for the first time in nearly 30 years. Scotland beat Haiti 1-0 in the first round at Gillette Stadium.`\
+https://www.nytimes.com/video/sports/world-cup/100000010979825/boston-scotland-soccer-tartan-army.html
+
+**Ruling in Missouri Restores Access to Medication Abortions**\
+`The court found that dozens of state laws undermined a state constitutional amendment that guaranteed reproductive rights. The state vowed to appeal the finding.`\
+https://www.nytimes.com/2026/06/19/us/missouri-abortion-access-ruling.html
+
 **Lebanon Emerges as Weak Link in U.S.-Iran Deal to End War**\
 `The agreement leaves unresolved the two issues at the heart of the conflict: Israel’s occupation and Hezbollah’s arsenal.`\
 https://www.nytimes.com/2026/06/19/world/middleeast/lebanon-us-iran-deal-ceasefire.html
