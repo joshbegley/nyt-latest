@@ -1,3 +1,31 @@
+**After Deal to Reopen Strait of Hormuz, Ships Begin to Move Cautiously**\
+`Shipping companies hoping to get their stranded vessels out face complications like mines and the lack of clear coordination.`\
+https://www.nytimes.com/2026/06/19/business/iran-us-hormuz-shipping.html
+
+**I Keep Telling People We’re Living in This Dystopian Novel**\
+`The 2010 novel “Super Sad True Love Story” foreshadowed our current world. So I asked its author, Gary Shteyngart, how he sees the world today and how we might find pleasure in it.`\
+https://www.nytimes.com/2026/06/19/opinion/ezra-klein-podcast-gary-shteyngart.html
+
+**The Costs of the Iran War: Thousands of Lives and Billions of Dollars**\
+`The human toll and economic costs mounted rapidly after the United States and Israel attacked Iran on Feb. 28.`\
+https://www.nytimes.com/2026/06/19/us/politics/iran-war-costs-deaths.html
+
+**The New York Times News Quiz, June 19, 2026**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://www.nytimes.com/interactive/2026/06/19/briefing/news-quiz-knicks-trump-spacex.html
+
+**Corrections: June 19, 2026**\
+`Corrections that appeared in print on Friday, June 19, 2026.`\
+https://www.nytimes.com/2026/06/19/pageoneplus/corrections-june-19-2026.html
+
+**Can a Dinner Host Set a Drink Limit?**\
+`A ruling on an alcohol-related dispute.`\
+https://www.nytimes.com/interactive/2026/06/19/magazine/one-drink-maximum-hodgman-quiz.html
+
+**Iran Roared. Trump Blinked.**\
+`The Iran deal wasn’t about peace but answering Trump’s personal needs.`\
+https://www.nytimes.com/2026/06/19/opinion/iran-israel-us-war-deal.html
+
 **How Deal With U.S. Could Reconnect Iran to the Global Economy**\
 `The country has long faced some of the world’s heaviest sanctions. The lifting of restrictions could open new vistas on trade and financial access.`\
 https://www.nytimes.com/2026/06/19/business/economy/iran-sanctions-oil.html
@@ -169,32 +197,4 @@ https://www.nytimes.com/es/2026/06/19/espanol/cultura/toy-story-5-resena-critica
 **Irán gana concesiones económicas en el acuerdo inicial con EE. UU.**\
 `El país recibirá de nuevo millones de dólares conforme reabre el tráfico en el estrecho de Ormuz mientras que las negociaciones nucleares pasarán, por ahora, a un segundo plano.`\
 https://www.nytimes.com/es/2026/06/19/espanol/mundo/iran-acuerdo-economia-trump.html
-
-**A Viral Knicks Moment, Brought to You by a Prediction Market**\
-`What do a Jalen Brunson look-alike contest, a buzzy catchphrase and a dancing robot outside Madison Square Garden have in common?`\
-https://www.nytimes.com/2026/06/19/nyregion/knicks-kalshi-polymarket.html
-
-**A Local Train System Is on a World Stage, and Everyone’s a Critic**\
-`NJ Transit has so far carried tens of thousands of fans to and from World Cup games in New Jersey without major problems, but many regular riders remain wary.`\
-https://www.nytimes.com/2026/06/19/nyregion/nj-transit-world-cup-commuters.html
-
-**The (Very) Manhattan Moms Whose Sons Are Running for Congress**\
-`In a high-profile Democratic House primary, there’s a fair chance that would-be voters may have been sweet-talked by the proud mothers of leading candidates.`\
-https://www.nytimes.com/2026/06/19/nyregion/bores-lasher-moms.html
-
-**How the Pingry School in New Jersey Attracts World Cup Teams**\
-`The Pingry School hosted Italy at the 1994 World Cup. To prepare for Italy’s return this year, the school spent millions. And then Italy didn’t qualify.`\
-https://www.nytimes.com/2026/06/19/nyregion/world-cup-new-jersey-pingry-morocco.html
-
-**New York’s Dive Bars Have a Rich Past. Do They Have a Future?**\
-`Dive bars face an uncertain future with rising costs and changing social patterns.`\
-https://www.nytimes.com/2026/06/19/nyregion/new-york-dive-bars.html
-
-**NYT Spelling Bee Answers for June 19, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/06/19/crosswords/spelling-bee-forum.html
-
-**The Democracy of The Dive Bar**\
-`New York dive bars, known for their grit, have also been crucial spaces where people can mix across class over cheap beer, and sometimes organize and resist. Our reporter Anna Kodé describes how rising costs and a decline in drinking now threaten the survival of these establishments.`\
-https://www.nytimes.com/video/nyregion/100000010915728/the-democracy-of-the-dive-bar.html
 
