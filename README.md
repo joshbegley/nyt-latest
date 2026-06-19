@@ -38,7 +38,7 @@ https://www.nytimes.com/2026/06/19/crosswords/spelling-bee-forum.html
 `New York dive bars, known for their grit, have also been crucial spaces where people can mix across class over cheap beer, and sometimes organize and resist. Our reporter Anna Kodé describes how rising costs and a decline in drinking now threaten the survival of these establishments.`\
 https://www.nytimes.com/video/nyregion/100000010915728/the-democracy-of-the-dive-bar.html
 
-**Swiss Officials Say Iran Talks Are Off, For Now**\
+**Swiss Officials Say Iran Talks Are Off, for Now**\
 `The announcement raised immediate questions over the fate of the agreement President Trump signed this week, with key details left to be worked out.`\
 https://www.nytimes.com/2026/06/19/world/europe/switzerland-iran-talks.html
 
