@@ -15,7 +15,7 @@ https://www.nytimes.com/2026/06/19/opinion/abortion-rights.html
 https://www.nytimes.com/2026/06/19/opinion/american-empire-trump.html
 
 **Starmer Says He Will Run if There Is a Leadership Contest**\
-`Prime Minister Keir Starmer said he would run if there were a contest for the Labour Party leadership. A top rival in the party, Andy Burnham, won a special parliamentary election, making him eligible to challenge the prime minister.`\
+`Prime Minister Keir Starmer of Britain said he would run if there were a contest for the Labour Party leadership. A top rival in the party, Andy Burnham, won a special parliamentary election, making him eligible to challenge the prime minister.`\
 https://www.nytimes.com/video/world/europe/100000010979670/starmer-burnham-makerfield-election-uk.html
 
 **Marcella Hazan’s Bolognese Sauce**\
@@ -179,7 +179,7 @@ https://www.nytimes.com/es/2026/06/19/espanol/tener-hijos-salud-mental.html
 https://www.nytimes.com/2026/06/19/travel/world-cup-tourism-us-canada-mexico.html
 
 **World Cup Puts Spotlight on L.A.’s Mexican-Korean Kinship**\
-`The bond between the two communities was on show at a packed Koreatown watch party for the match between South Korea and Mexico on Thursday.`\
+`The bond between the two communities was on display at a packed Koreatown watch party for the match between South Korea and Mexico on Thursday.`\
 https://www.nytimes.com/2026/06/19/us/world-cup-koreatown-mexico-korea.html
 
 **Congress Is Anxious as U.S.-Canada-Mexico Trade Talks Intensify**\
