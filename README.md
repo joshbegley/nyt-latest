@@ -1,3 +1,11 @@
+**Giorgia Meloni le dice a Trump: ‘Italia y yo nunca rogamos’**\
+`El presidente Trump dijo que la primera ministra italiana le ‘rogó’ tomarse una foto juntos en la cumbre del G7 en Francia. El comentario ha desatado críticas de todo el gobierno italiano.`\
+https://www.nytimes.com/es/2026/06/19/espanol/mundo/meloni-trump-italia.html
+
+**Why Aren’t There Big Vocalists Anymore?**\
+`The “Popcast” hosts, Joe Coscarelli and Jon Caramanica, answer listener questions, including, “Is Adele responsible for the extinction of big vocalists?”`\
+https://www.nytimes.com/video/podcasts/100000010972501/why-arent-there-big-vocalists-anymore.html
+
 **Catherine, Princess of Wales Questions Digital Screens’ Role in Children’s Lives**\
 `The princess published an essay Friday warning against a childhood “mediated by screens,” days after Britain announced a ban on social media for children under 16.`\
 https://www.nytimes.com/2026/06/19/world/europe/princess-kate-uk-children-social-media-ban.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/19/podcasts/the-daily/iran-us-deal-trump-obama.h
 **JD Vance’s Blunt Warning to Israel, and Why Waymo Is Struggling to Go National**\
 `Plus, the Friday news quiz.`\
 https://www.nytimes.com/2026/06/19/podcasts/the-headlines/vance-iran-agreement-israel-waymo.html
-
-**NYT Connections Answers for June 20, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, June 20, 2026.`\
-https://www.nytimes.com/2026/06/19/crosswords/connections-companion-1105.html
-
-**Today’s Wordle Hints for June 20, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, June 20, 2026.`\
-https://www.nytimes.com/2026/06/19/crosswords/wordle-review-1827.html
 
