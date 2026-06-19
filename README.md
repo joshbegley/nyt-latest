@@ -1,3 +1,7 @@
+**Los europeos tienen algunas opiniones sobre la sauna en EE. UU.**\
+`Franceses, finlandeses y noruegos miran con cierto horror la forma en que los estadounidenses adaptan su milenaria práctica comunitaria.`\
+https://www.nytimes.com/es/2026/06/19/espanol/sauna-tradicion-europa.html
+
 **Labour’s Andy Burnham Wins U.K. Special Election**\
 `Andy Burnham of the Labour Party won a key seat in the United Kingdom’s Parliament, clearing the path for him to challenge Keir Starmer as prime minister.`\
 https://www.nytimes.com/video/world/europe/100000010979160/uk-election-burnham-starmer.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000010977809/danny-mcbride-is-not-abov
 **Fallout From the Iran Deal**\
 `Trump’s agreement reads like a list of concessions to Iran. Will it damage him politically?`\
 https://www.nytimes.com/2026/06/18/world/iran-trump-us-uk-special-election-world-cup.html
-
-**Vance Lashes Out at Israeli Critics of U.S.-Iran Agreement to End the War**\
-`The vice president said that the United States was the only powerful ally Israel had left and noted that two-thirds of the weapons that protected Israel were paid for by U.S. tax dollars.`\
-https://www.nytimes.com/2026/06/18/world/middleeast/vance-israel-critics-us-iran-deal.html
 
