@@ -1,3 +1,7 @@
+**Trump Shifts Stance in South Carolina After Losses in Governor’s Races**\
+`On Friday the president made the unusual move of endorsing both candidates in the Republican runoff for South Carolina governor.`\
+https://www.nytimes.com/2026/06/19/us/trump-shifts-endorsement-south-carolina-governor.html
+
 **Scottish Soccer Invasion in Boston for the World Cup**\
 `Thousands of Scottish soccer fans descended upon Boston to watch their team play in the World Cup for the first time in nearly 30 years. Scotland beat Haiti 1-0 in the first round at Gillette Stadium.`\
 https://www.nytimes.com/video/sports/world-cup/100000010979825/boston-scotland-soccer-tartan-army.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/19/special-series/colman-domingo-love.html
 **‘Sugar’ Review: Close Encounters of the Noir Kind**\
 `Colin Farrell and California are still a winning combination in a new season of Apple TV’s sci-fi private-eye series.`\
 https://www.nytimes.com/2026/06/19/arts/television/sugar-review.html
-
-**Our Allies Are Wondering Whether Supporting the American War Machine Is Worth It**\
-`Is the Iran war an early sign of “superpower suicide"?`\
-https://www.nytimes.com/2026/06/19/magazine/middle-east-bases-iran-war.html
 
 **World Cup Updates: For U.S. Fans in Seattle, a Boisterous March to the Match**\
 `(No description)`\
