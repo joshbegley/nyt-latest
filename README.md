@@ -1,3 +1,7 @@
+**The Art Market is Broken**\
+`Many gallerists are questioning the fundamentals of their business. It’s as if the art world they know has fallen off its axis.`\
+https://www.nytimes.com/2026/06/19/opinion/art-basel-fairs-gallery-market.html
+
 **What Does It All Mean? Once a Year, French Students Try to Explain.**\
 `The high school philosophy exam is a rite of passage for French students. This year included questions about Friedrich Nietzsche’s 1878 book, “Human, All Too Human.”`\
 https://www.nytimes.com/2026/06/19/world/europe/france-education-high-school-philosophy.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/18/world/middleeast/vance-israel-critics-us-iran
 **Rereading ‘The Road’ as a Dad**\
 `“The Road,” by Cormac McCarthy, was one of the author Ryan Holiday’s picks for The New York Times’s “100 Best Books of the 21st Century.” Holiday first read the harrowing story of a father and son traveling together in a postapocalyptic world in college. On a recent episode of the “Book Review” podcast, Holiday talked with the host Gilbert Cruz about his experience rereading the book as a father.`\
 https://www.nytimes.com/video/podcasts/100000010978339/rereading-the-road-as-a-dad.html
-
-**3 Books to Read if You Loved ‘The Road’**\
-`The best-selling author Ryan Holiday joined the “Book Review” podcast to discuss “The Road,” by Cormac McCarthy. This book was one of Holiday’s picks for The New York Times’s “100 Best Books of the 21st Century,” and made it onto the list at no. 13. If you like McCarthy’s postapocalyptic novel, Holiday shares recommendations for books to read next. Tap the link in our bio to listen to the full conversation on the “Book Review” podcast.`\
-https://www.nytimes.com/video/podcasts/100000010978149/3-books-to-read-if-you-loved-the-road.html
 
