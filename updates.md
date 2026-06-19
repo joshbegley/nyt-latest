@@ -1,3 +1,7 @@
+**USMNT’s Tim Weah on World Cup Dreams and the American Idea**\
+`The outspoken member of Team USA examines the meaning of the moment, on and off the pitch.`\
+https://www.nytimes.com/2026/06/19/podcasts/usmnts-tim-weah-on-world-cup-dreams-and-the-american-idea.html
+
 **En México, los políticos usan las leyes contra los periodistas**\
 `Los políticos y funcionarios de México están utilizando las leyes del país para intimidar a los críticos y a los medios de comunicación, obligándolos a la censura y frenando el escrutinio.`\
 https://www.nytimes.com/es/2026/06/19/espanol/america-latina/mexico-politicos-leyes-censura-periodistas.html
