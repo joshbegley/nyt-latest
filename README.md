@@ -1,3 +1,7 @@
+**Vance Delays Trip to Switzerland For Direct Talks on Iran Deal**\
+`Mr. Vance said earlier at a press briefing that he did not know if he would travel to Switzerland on Friday for the talks, where he was initially expected for a signing ceremony.`\
+https://www.nytimes.com/2026/06/18/us/politics/vance-delays-trip-to-switzerland-for-direct-talks-on-iran-deal.html
+
 **Union Behind California Billionaire Tax Offers to Reduce the Rate**\
 `The health care workers’ union that made it to the ballot with its plan to impose a 5 percent tax on billionaires’ wealth told Gov. Gavin Newsom it would accept a 2 percent levy instead.`\
 https://www.nytimes.com/2026/06/18/us/union-california-billionaire-tax-reduces-rate.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/18/us/politics/trump-medals-of-honor.html
 **These World Cup Tourists Loving American Food Aren’t All What They Seem**\
 `Visiting soccer fans enraptured by free refills and salsa have become the feel-good story of the summer, even when the facts don’t fit.`\
 https://www.nytimes.com/2026/06/18/dining/world-cup-tourists-food-videos.html
-
-**While Knicks Fans Celebrate, a New York Artist Fumes**\
-`After the Knicks promoted Gavin Snider’s watercolor painting in the wake of their N.B.A. title, one of the most famous artists on social media posted an uncannily similar work.`\
-https://www.nytimes.com/2026/06/18/arts/design/knicks-gavin-snider-devon-rodriguez.html
 
