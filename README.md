@@ -1,3 +1,7 @@
+**Iran’s Supreme Leader Says He Dislikes Deal With U.S., but Allowed It**\
+`Ayatollah Mojtaba Khamenei distanced himself from the agreement, putting responsibility for it on Iran’s president, and said it does not mean acceding to U.S. demands.`\
+https://www.nytimes.com/2026/06/19/world/middleeast/mojtaba-khamenei-deal-reaction.html
+
 **Flashback: Your Weekly History Quiz, June 20, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/06/19/upshot/flashback.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/19/business/economy/iran-sanctions-oil.html
 **La salud mental puede complicar la decisión de tener hijos**\
 `Cinco historias muestran los obstáculos a los que se enfrentan las personas con diagnósticos psicológicos a la hora de plantearse ser padres.`\
 https://www.nytimes.com/es/2026/06/19/espanol/tener-hijos-salud-mental.html
-
-**World Cup Tourism Off to a Slow Start in the U.S., Canada and Mexico**\
-`Hotel and visitation numbers were expected to spike this year. So far, several of the host cities have instead seen slumps.`\
-https://www.nytimes.com/2026/06/19/travel/world-cup-tourism-us-canada-mexico.html
 
