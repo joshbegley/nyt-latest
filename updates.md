@@ -1,3 +1,11 @@
+**Excited for World Cup? Stream 14 Great Soccer Movies.**\
+`The beautiful game is the inspiring setting for films from countries large (Brazil) and small (Cape Verde). Watch them while the World Cup is in full swing.`\
+https://www.nytimes.com/2026/06/19/movies/world-cup-soccer-movies-streaming.html
+
+**Trump Put His Own Interests Above All in the Iran Deal**\
+`The Iran deal wasn’t about peace but answering Trump’s personal needs.`\
+https://www.nytimes.com/2026/06/19/opinion/iran-israel-us-war-deal.html
+
 **‘The Headlines’ News Quiz: Jun. 19, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/06/19/podcasts/the-headlines/the-headlines-news-quiz-jun-19-2026.html

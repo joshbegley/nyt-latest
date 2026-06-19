@@ -134,7 +134,7 @@ https://www.nytimes.com/video/opinion/100000010970860/i-keep-telling-people-were
 `Outcry over plans to build a large data center next to the zoo has energized support for new restrictions in Nashville.`\
 https://www.nytimes.com/2026/06/19/us/nashville-zoo-data-center.html
 
-**Trump’s Freedom 250 Party Will Cost a Lot and Won’t Be Fun**\
+**Boycott Trump’s Ridiculous July 4 Party**\
 `The president is planning another self-aggrandizing spectacle.`\
 https://www.nytimes.com/2026/06/19/opinion/trump-freedom-250-america-ufc-birthday.html
 
