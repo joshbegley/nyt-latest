@@ -1,3 +1,7 @@
+**Fallout From the Iran Deal**\
+`Trump’s agreement reads like a list of concessions to Iran. Will it damage him politically?`\
+https://www.nytimes.com/2026/06/18/world/iran-trump-us-uk-special-election-world-cup.html
+
 **What Does It All Mean? Once a Year, French Students Try to Explain.**\
 `The high school philosophy exam is a rite of passage for French students. This year included questions about Friedrich Nietzsche’s 1878 book, “Human, All Too Human.”`\
 https://www.nytimes.com/2026/06/19/world/europe/france-education-high-school-philosophy.html
