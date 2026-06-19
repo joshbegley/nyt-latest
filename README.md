@@ -1,3 +1,7 @@
+**Matt Dunlap Wins Democratic House Primary in Maine’s Swing District**\
+`Mr. Dunlap, a progressive Democrat, is set to face former Gov. Paul LePage, a Republican, in a competitive general election in November.`\
+https://www.nytimes.com/2026/06/19/us/politics/democratic-house-primary-maine-dunlap.html
+
 **Los europeos tienen algunas opiniones sobre la sauna en EE. UU.**\
 `Franceses, finlandeses y noruegos miran con cierto horror la forma en que los estadounidenses adaptan su milenaria práctica comunitaria.`\
 https://www.nytimes.com/es/2026/06/19/espanol/sauna-tradicion-europa.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/18/nyregion/representative-tom-kean-return-to-co
 **Danny McBride Is Not Above a Little Violence (or a Lot of It)**\
 `David Marchese speaks with the actor, writer and producer Danny McBride about his forthcoming book of short stories and why masculinity is a subject he continues to return to.`\
 https://www.nytimes.com/video/podcasts/100000010977809/danny-mcbride-is-not-above-a-little-violence-or-a-lot-of-it.html
-
-**Fallout From the Iran Deal**\
-`Trump’s agreement reads like a list of concessions to Iran. Will it damage him politically?`\
-https://www.nytimes.com/2026/06/18/world/iran-trump-us-uk-special-election-world-cup.html
 
