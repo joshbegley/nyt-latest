@@ -1,3 +1,7 @@
+**Why Waits on Death Row Have Gotten Longer**\
+`The Last 12 Weeks host and reporter for The Marshall Project, Maurice Chammah, is joined by Serial Productions producer and co-host, Alvin Melathe, to discuss what they learned over the 12 weeks leading up to the execution date for David Wood who has been on death row since 1993. They explain why death row waits have grown over the past 50 years.`\
+https://www.nytimes.com/video/podcasts/100000010930833/why-waits-on-death-row-have-gotten-longer.html
+
 **‘House of the Dragon’: What to Remember Before the Season 3 Premiere**\
 `Nearly two years have passed since the “Game of Thrones” prequel aired, and the many shifting alliances and secret betrayals were complex even then.`\
 https://www.nytimes.com/2026/06/19/arts/television/house-of-the-dragon-recap-season-2.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/19/books/review/david-thomson-movies.html
 **Colby College Is Stepping In to Save a Maine Town on the Brink of Disaster**\
 `A new rescuer — Colby College, bankrolled by a construction magnate — will vastly change not just the economics of Port Clyde, Maine, but also its cultural and physical fabric.`\
 https://www.nytimes.com/2026/06/19/business/colby-college-port-clyde-maine-waterfront.html
-
-**Billy Porter and Wayne Brady Make a Tender Pair in ‘La Cage aux Folles’**\
-`Billy Porter and Wayne Brady make a tender pair in Robert O’Hara’s revival of the Harvey Fierstein-Jerry Herman musical farce.`\
-https://www.nytimes.com/2026/06/19/theater/la-cage-aux-folles-review-porter-brady.html
 

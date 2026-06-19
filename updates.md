@@ -1,3 +1,7 @@
+**Why Waits on Death Row Have Gotten Longer**\
+`The Last 12 Weeks host and reporter for The Marshall Project, Maurice Chammah, is joined by Serial Productions producer and co-host, Alvin Melathe, to discuss what they learned over the 12 weeks leading up to the execution date for David Wood who has been on death row since 1993. They explain why death row waits have grown over the past 50 years.`\
+https://www.nytimes.com/video/podcasts/100000010930833/why-waits-on-death-row-have-gotten-longer.html
+
 **‘House of the Dragon’: What to Remember Before the Season 3 Premiere**\
 `Nearly two years have passed since the “Game of Thrones” prequel aired, and the many shifting alliances and secret betrayals were complex even then.`\
 https://www.nytimes.com/2026/06/19/arts/television/house-of-the-dragon-recap-season-2.html
