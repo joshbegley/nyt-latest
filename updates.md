@@ -1,3 +1,7 @@
+**Back After Vanishing for 2 Weeks, Russian Banker Tries to Project Calm**\
+`The central bank leader Elvira S. Nabiullina reappeared during a news conference after a gap that highlighted deep tensions in the country’s political and economic elite.`\
+https://www.nytimes.com/2026/06/19/world/europe/russia-economy-interest-rates.html
+
 **Our Allies Are Wondering Whether Supporting the American War Machine Is Worth It**\
 `Is the Iran war an early sign of “superpower suicide"?`\
 https://www.nytimes.com/2026/06/19/magazine/middle-east-bases-iran-war.html
