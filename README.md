@@ -1,3 +1,7 @@
+**A Missing Ingredient in Ukraine’s Barrages on Russia: Ballistic Missiles**\
+`Ukrainian drone attacks have achieved breakthroughs, but only ballistic missiles can push Russia to reconsider its war objectives, military experts and officials say.`\
+https://www.nytimes.com/2026/06/19/world/europe/ukraine-drone-attacks-ballistic-missiles.html
+
 **Banker’s Brief Absence Exposes Raw Nerves on Russia’s Economy**\
 `The central bank leader Elvira S. Nabiullina reappeared during a news conference after a weekslong gap that highlighted deep tensions in the country’s political and economic elite.`\
 https://www.nytimes.com/2026/06/19/world/europe/russia-economy-interest-rates.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/19/us/wii-bowling-uv-okies-tulsa.html
 **Five Free Movies to Stream Now**\
 `This month’s films, including “Citizenfour” and “The Candidate,” tell stories about America and our constant struggles to preserve freedom.`\
 https://www.nytimes.com/2026/06/19/movies/free-movies-to-stream-citizenfour-the-candidate.html
-
-**What Are Art Collectors Looking for at Art Basel?**\
-`This week, at Art Basel, galleries are trying to find out, offering paintings by the late Georg Baselitz and Francis Picabia, and a screen-based installation by Pierre Huyghe.`\
-https://www.nytimes.com/2026/06/19/arts/design/art-basel-2026-market-trends.html
 
