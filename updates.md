@@ -1,3 +1,7 @@
+**Strikes in Moscow**\
+``\
+https://www.nytimes.com/2026/06/19/briefing/strikes-in-moscow.html
+
 **Israel Launches Airstrikes in Lebanon After 4 Soldiers Are Killed**\
 `The violence involving Israel and Iran-backed Hezbollah militants added to pressure on the U.S.-Iran deal, which calls for fighting to stop on all fronts, including in Lebanon.`\
 https://www.nytimes.com/2026/06/19/world/middleeast/lebanon-israel-attacks.html
