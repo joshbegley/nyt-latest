@@ -1,3 +1,7 @@
+**Banker’s Brief Absence Exposes Raw Nerves on Russia’s Economy**\
+`The central bank leader Elvira S. Nabiullina reappeared during a news conference after a weekslong gap that highlighted deep tensions in the country’s political and economic elite.`\
+https://www.nytimes.com/2026/06/19/world/europe/russia-economy-interest-rates.html
+
 **Summer Reading Contest, Week 3: What Got Your Attention in The Times This Week?**\
 `To participate, submit your response here by June 26 at 9 a.m. Eastern. This week’s winners will be announced by July 8.`\
 https://www.nytimes.com/2026/06/19/learning/summer-reading-contest-week-3-what-got-your-attention-in-the-times-this-week.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/19/movies/free-movies-to-stream-citizenfour-the-
 **What Are Art Collectors Looking for at Art Basel?**\
 `This week, at Art Basel, galleries are trying to find out, offering paintings by the late Georg Baselitz and Francis Picabia, and a screen-based installation by Pierre Huyghe.`\
 https://www.nytimes.com/2026/06/19/arts/design/art-basel-2026-market-trends.html
-
-**Dads Get Postpartum Depression, Too**\
-`Researchers say an estimated 10 percent of fathers develop symptoms during the perinatal period, with the highest risk three to six months after babies are born.`\
-https://www.nytimes.com/2026/06/19/well/postpartum-depression-men-fathers.html
 
