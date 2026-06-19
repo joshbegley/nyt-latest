@@ -1,3 +1,39 @@
+**Reseña de ‘Toy Story 5’: los dispositivos vienen por los niños**\
+`Jessie, Woody y Buzz Lightyear se enfrentan a una tableta electrónica que les roba la atención de la pequeña Bonnie.`\
+https://www.nytimes.com/es/2026/06/19/espanol/cultura/toy-story-5-resena-critica.html
+
+**Irán gana concesiones económicas en el acuerdo inicial con EE. UU.**\
+`El país recibirá de nuevo millones de dólares conforme reabre el tráfico en el estrecho de Ormuz mientras que las negociaciones nucleares pasarán, por ahora, a un segundo plano.`\
+https://www.nytimes.com/es/2026/06/19/espanol/mundo/iran-acuerdo-economia-trump.html
+
+**A Viral Knicks Moment, Brought to You by a Prediction Market**\
+`What do a Jalen Brunson look-alike contest, a buzzy catchphrase and a dancing robot outside Madison Square Garden have in common?`\
+https://www.nytimes.com/2026/06/19/nyregion/knicks-kalshi-polymarket.html
+
+**A Local Train System Is on a World Stage, and Everyone’s a Critic**\
+`NJ Transit has so far carried tens of thousands of fans to and from World Cup games in New Jersey without major problems, but many regular riders remain wary.`\
+https://www.nytimes.com/2026/06/19/nyregion/nj-transit-world-cup-commuters.html
+
+**The (Very) Manhattan Moms Whose Sons Are Running for Congress**\
+`In a high-profile Democratic House primary, there’s a fair chance that would-be voters may have been sweet-talked by the proud mothers of leading candidates.`\
+https://www.nytimes.com/2026/06/19/nyregion/bores-lasher-moms.html
+
+**How the Pingry School in New Jersey Attracts World Cup Teams**\
+`The Pingry School hosted Italy at the 1994 World Cup. To prepare for Italy’s return this year, the school spent millions. And then Italy didn’t qualify.`\
+https://www.nytimes.com/2026/06/19/nyregion/world-cup-new-jersey-pingry-morocco.html
+
+**New York’s Dive Bars Have a Rich Past. Do They Have a Future?**\
+`Dive bars face an uncertain future with rising costs and changing social patterns.`\
+https://www.nytimes.com/2026/06/19/nyregion/new-york-dive-bars.html
+
+**NYT Spelling Bee Answers for June 19, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/19/crosswords/spelling-bee-forum.html
+
+**The Democracy of The Dive Bar**\
+`New York dive bars, known for their grit, have also been crucial spaces where people can mix across class over cheap beer, and sometimes organize and resist. Our reporter Anna Kodé describes how rising costs and a decline in drinking now threaten the survival of these establishments.`\
+https://www.nytimes.com/video/nyregion/100000010915728/the-democracy-of-the-dive-bar.html
+
 **Swiss Officials Say Iran Talks Are Off, For Now**\
 `The announcement raised immediate questions over the fate of the agreement President Trump signed this week, with key details left to be worked out.`\
 https://www.nytimes.com/2026/06/19/world/europe/switzerland-iran-talks.html
@@ -161,40 +197,4 @@ https://www.nytimes.com/video/nyregion/100000010977688/knicks-parade-nyc-fashion
 **London’s Newest Hotels Offer Perks Aplenty**\
 `From a wellness-focused resort to a townhouse with a terraced garden, four recently opened places to stay that make the British capital even more inviting.`\
 https://www.nytimes.com/2026/06/18/t-magazine/travel/londons-newest-hotels.html
-
-**Vance Issues a Blunt Warning to Israel**\
-`Also, Ukraine launches a major assault on Moscow. Here’s the latest at the end of Thursday.`\
-https://www.nytimes.com/2026/06/18/briefing/vance-issues-a-blunt-warning-to-israel.html
-
-**Trump Redirects Millions From Secret Service Amid White House Construction**\
-`The White House insists that private donations are paying for a new ballroom, but the administration is using taxpayer money for a series of security upgrades.`\
-https://www.nytimes.com/2026/06/18/us/politics/trump-ballroom-security-secret-service-white-house.html
-
-**The Washington Outlet NOTUS Won’t Be ‘The Star’ After All**\
-`The publication is abandoning a planned rebranding after resolving a trademark dispute with the new publisher of The Washington Star.`\
-https://www.nytimes.com/2026/06/18/business/media/notus-washington-star-lawsuit.html
-
-**El Mundial es una fiesta global que se comparte con los vecinos**\
-`Tres autores de EE. UU., México y Canadá escriben sobre lo que el torneo representa para ellos y para sus países.`\
-https://www.nytimes.com/es/2026/06/18/espanol/opinion/mundial-mexico-estados-unidos-canada.html
-
-**Jean Houston, ‘Midwife of Souls’ Who Advised Hillary Clinton, Dies at 89**\
-`The author of books like “The Possible Human,” she held workshops that drew on mythology, psychology and the experiential ethos of Esalen. But she refused to be called a guru.`\
-https://www.nytimes.com/2026/06/18/science/jean-houston-dead.html
-
-**Are You a Recent College Graduate Who Moved Back Home? We Want to Hear From You.**\
-`If you lived with your parents for nine months or more after graduation, please tell us how you came to the decision and whether the job market influenced your thinking.`\
-https://www.nytimes.com/2026/06/18/business/college-graduate-living-with-parents.html
-
-**Rama Duwaji Had the Winning Look at the Knicks Parade**\
-`The first lady and the mayor showed up for the celebration in style.`\
-https://www.nytimes.com/2026/06/18/style/rama-duwaji-knicks-parade-mamdani.html
-
-**Father’s Day: 25 Questions to Bring You Closer to Your Dad**\
-`This Father’s Day, open up a new channel of communication.`\
-https://www.nytimes.com/interactive/2026/06/18/well/family/fathers-day-questions.html
-
-**25 preguntas para conocer mejor a papá**\
-`Este Día del Padre, renueva tus temas de conversación y conoce un poco más a una de las figuras más importantes de tu vida.`\
-https://www.nytimes.com/es/interactive/2026/06/18/espanol/como-hablar-papa-dia-padre.html
 
