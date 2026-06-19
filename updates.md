@@ -1,3 +1,7 @@
+**Union Behind California Billionaire Tax Offers to Reduce the Rate**\
+`The health care workers’ union that made it to the ballot with its plan to impose a 5 percent tax on billionaires’ wealth told Gov. Gavin Newsom it would accept a 2 percent levy instead.`\
+https://www.nytimes.com/2026/06/18/us/union-california-billionaire-tax-reduces-rate.html
+
 **Who Is Andy Burnham, the Man Who Could Be Britain’s Next Prime Minister?**\
 `Charismatic, northern and exuding a relaxed optimism, Mr. Burnham is a contrast to Keir Starmer. His allies hope he could mend Labour’s relationship with voters.`\
 https://www.nytimes.com/2026/06/18/world/europe/who-is-andy-burnham-britain-next-possible-prime-minister.html
