@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/06/19/briefing/strikes-in-moscow.html
 `Israel launched strikes across the country after Iran-backed Hezbollah said it had ambushed Israeli troops, leaving diplomats scrambling to prevent the deal from collapsing.`\
 https://www.nytimes.com/2026/06/19/world/middleeast/lebanon-israel-attacks.html
 
-**World Cup Updates: Scotland Fans Seize Boston’s Heart, and Its Beer**\
+**World Cup Updates: For U.S. Fans in Seattle, a Boisterous March to the Match**\
 `(No description)`\
 https://www.nytimes.com/live/2026/us/fifa-world-cup
 

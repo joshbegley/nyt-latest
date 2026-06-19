@@ -1,3 +1,7 @@
+**World Cup Updates: For U.S. Fans in Seattle, a Boisterous March to the Match**\
+`(No description)`\
+https://www.nytimes.com/live/2026/us/fifa-world-cup
+
 **U.S. to End AIDS Funding for South Africa**\
 `According to an unsigned statement from the State Department, the U.S. will phase out support for H.I.V. prevention and treatment in South Africa.`\
 https://www.nytimes.com/2026/06/19/world/africa/southafrica-aids-pepfar.html

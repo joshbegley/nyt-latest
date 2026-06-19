@@ -1,3 +1,7 @@
+**Woman Receives 12-Year Sentence for 1978 Scalding Death of Stepdaughter, 5**\
+`Janice Nix was found guilty of manslaughter after her stepson told the police that she had forced his sister into a hot bath as a form of punishment in their home in South London.`\
+https://www.nytimes.com/2026/06/19/world/europe/janice-nix-scalding-killing-london-1978.html
+
 **U.S. to End AIDS Funding for South Africa**\
 `According to an unsigned statement from the State Department, the U.S. will phase out support for H.I.V. prevention and treatment in South Africa.`\
 https://www.nytimes.com/2026/06/19/world/africa/southafrica-aids-pepfar.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/19/podcasts/hard-fork-live-part-3-differing-visi
 **Strikes in Moscow**\
 ``\
 https://www.nytimes.com/2026/06/19/briefing/strikes-in-moscow.html
-
-**Deadly Violence Rocks Lebanon in Threat to U.S.-Iran Deal**\
-`Israel launched strikes across the country after Iran-backed Hezbollah said it had ambushed Israeli troops, leaving diplomats scrambling to prevent the deal from collapsing.`\
-https://www.nytimes.com/2026/06/19/world/middleeast/lebanon-israel-attacks.html
 
 **World Cup Updates: For U.S. Fans in Seattle, a Boisterous March to the Match**\
 `(No description)`\
