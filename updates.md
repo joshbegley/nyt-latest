@@ -1,3 +1,7 @@
+**Swiss Officials Say Iran Talks Are Off, for Now**\
+`The announcement raised immediate questions over the fate of the agreement President Trump signed this week, with key details left to be worked out.`\
+https://www.nytimes.com/2026/06/19/world/europe/switzerland-iran-talks.html
+
 **U.K. Live Updates: Labour Mayor Wins Special Election, Clearing Path to Challenge Starmer**\
 `Andy Burnham, the Labour Party’s most popular politician, earned a decisive victory for a parliamentary seat in northern England. The win energizes his bid to become prime minister.`\
 https://www.nytimes.com/live/2026/06/19/world/makerfield-election-results-uk-burnham
