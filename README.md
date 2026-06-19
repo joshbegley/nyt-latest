@@ -1,3 +1,7 @@
+**Overlooked No More: Robbie Basho, Guitar Mystic Who Sought Enlightenment in Sound**\
+`He lived with chronic pain and deep loneliness, which he poured into boundary-pushing music that incorporated multicultural sounds.`\
+https://www.nytimes.com/2026/06/19/obituaries/robbie-basho-overlooked.html
+
 **James Burrows, Master of the TV Sitcom, Dies at 85**\
 `Beloved by actors, he helped create “Cheers” and directed more than 1,000 episodes of hit shows like “Taxi,” “Friends” and “The Big Bang Theory.”`\
 https://www.nytimes.com/2026/06/19/arts/television/james-burrows-dead.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/19/learning/summer-reading-contest-week-3-what-g
 **Rates on New Student Loans Will Rise on July 1**\
 `Higher interest rates take effect on July 1 for the next school year. Borrowers are already dealing with rising college costs and inflation elsewhere.`\
 https://www.nytimes.com/2026/06/19/your-money/student-loans-interest-rates-changes.html
-
-**Why Waits on Death Row Have Gotten Longer**\
-`The Last 12 Weeks host and reporter for The Marshall Project, Maurice Chammah, is joined by Serial Productions producer and co-host, Alvin Melathe, to discuss what they learned over the 12 weeks leading up to the execution date for David Wood who has been on death row since 1993. They explain why death row waits have grown over the past 50 years.`\
-https://www.nytimes.com/video/podcasts/100000010930833/why-waits-on-death-row-have-gotten-longer.html
 
 **World Cup Updates: For U.S. Fans in Seattle, a Boisterous March to the Match**\
 `(No description)`\
