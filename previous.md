@@ -186,8 +186,8 @@ https://www.nytimes.com/2026/06/19/podcasts/usmnts-tim-weah-on-world-cup-dreams-
 `Los políticos y funcionarios de México están utilizando las leyes del país para intimidar a los críticos y a los medios de comunicación, obligándolos a la censura y frenando el escrutinio.`\
 https://www.nytimes.com/es/2026/06/19/espanol/america-latina/mexico-politicos-leyes-censura-periodistas.html
 
-**In a Still Turbulent Strait of Hormuz, Stranded Ships Wait for Clarity**\
-`Shipping companies had hoped to get their stranded vessels out, but faced uncertainty as violence flared again in the region.`\
+**Stranded Ships Hoping for Escape Find a Turbulent Strait of Hormuz**\
+`Shipping companies had hoped to get their vessels out after this week’s U.S.-Iran deal but faced uncertainty on Friday as violence flared again in the region.`\
 https://www.nytimes.com/2026/06/19/business/iran-us-hormuz-shipping.html
 
 **I Keep Telling People We’re Living in This Dystopian Novel**\

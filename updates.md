@@ -1,3 +1,7 @@
+**Stranded Ships Hoping for Escape Find a Turbulent Strait of Hormuz**\
+`Shipping companies had hoped to get their vessels out after this week’s U.S.-Iran deal but faced uncertainty on Friday as violence flared again in the region.`\
+https://www.nytimes.com/2026/06/19/business/iran-us-hormuz-shipping.html
+
 **Canadian Billionaire Frank Stronach Is Convicted of Sexual and Indecent Assault**\
 `Mr. Stronach, 93, was found guilty of sexual assault and indecent assault in two cases and acquitted on three other charges.`\
 https://www.nytimes.com/2026/06/19/world/canada/frank-stronach-trial-guilty-sex-charges.html
