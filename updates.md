@@ -1,3 +1,7 @@
+**Trump’s Intelligence Pick Renews Debate: Is the Director of National Intelligence Needed?**\
+`The director of national intelligence’s office was created in the aftermath of the Sept. 11 attacks. Now some lawmakers want to shrink it.`\
+https://www.nytimes.com/2026/06/18/us/politics/director-national-intelligence-pulte-gabbard-clayton.html
+
 **Vance Issues Warning to Israeli Critics of U.S.-Iran Peace Agreement**\
 `Vice President JD Vance issued a warning to members of Israel’s government who were critical of the U.S.-Iran peace agreement on Thursday, cautioning them not to alienate their most important ally.`\
 https://www.nytimes.com/video/us/politics/100000010977593/vances-iran-deal-israel.html

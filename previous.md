@@ -1,3 +1,7 @@
+**Trump’s Intelligence Pick Renews Debate: Is the Director of National Intelligence Needed?**\
+`The director of national intelligence’s office was created in the aftermath of the Sept. 11 attacks. Now some lawmakers want to shrink it.`\
+https://www.nytimes.com/2026/06/18/us/politics/director-national-intelligence-pulte-gabbard-clayton.html
+
 **Vance Issues Warning to Israeli Critics of U.S.-Iran Peace Agreement**\
 `Vice President JD Vance issued a warning to members of Israel’s government who were critical of the U.S.-Iran peace agreement on Thursday, cautioning them not to alienate their most important ally.`\
 https://www.nytimes.com/video/us/politics/100000010977593/vances-iran-deal-israel.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/06/18/espanol/estados-unidos/accidentes-deportes
 **Danny Simmons, Painter and Activist From a Creative Family, Dies at 72**\
 `The older brother of the music mogul Russell Simmons and the rapper Joseph Simmons, he made his own way as an artistic and entrepreneurial force in Brooklyn.`\
 https://www.nytimes.com/2026/06/18/arts/danny-simmons-dead.html
-
-**Man Charged With Hate Crime Over Burning Cross in Chicago Park**\
-`A former university student, Merlin Lu, 21, has claimed that he set the cross on fire in Grant Park to protest the Trump administration, not as an act of racism.`\
-https://www.nytimes.com/2026/06/18/us/chicago-burning-cross-arrest.html
 
