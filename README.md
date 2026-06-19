@@ -146,8 +146,8 @@ https://www.nytimes.com/2026/06/19/podcasts/hard-fork-live-part-3-differing-visi
 ``\
 https://www.nytimes.com/2026/06/19/briefing/strikes-in-moscow.html
 
-**Israel Launches Airstrikes in Lebanon After 4 Soldiers Are Killed**\
-`The violence involving Israel and Iran-backed Hezbollah militants added to pressure on the U.S.-Iran deal, which calls for fighting to stop on all fronts, including in Lebanon.`\
+**Deadly Violence Rocks Lebanon in Threat to U.S.-Iran Deal**\
+`Israel launched strikes across the country after Iran-backed Hezbollah said it had ambushed Israeli troops, leaving diplomats scrambling to prevent the deal from collapsing.`\
 https://www.nytimes.com/2026/06/19/world/middleeast/lebanon-israel-attacks.html
 
 **Tension Builds Between USMNT and Australia, While Scotland Fans Take Over Boston**\
