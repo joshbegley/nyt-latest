@@ -1,3 +1,7 @@
+**Labour’s Andy Burnham Wins U.K. Special Election**\
+`Andy Burnham of the Labour Party won a key seat in the United Kingdom’s Parliament, clearing the path for him to challenge Keir Starmer as prime minister.`\
+https://www.nytimes.com/video/world/europe/100000010979160/uk-election-burnham-starmer.html
+
 **The Art Market is Broken**\
 `Many gallerists are questioning the fundamentals of their business. It’s as if the art world they know has fallen off its axis.`\
 https://www.nytimes.com/2026/06/19/opinion/art-basel-fairs-gallery-market.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/18/world/iran-trump-us-uk-special-election-world
 **Vance Lashes Out at Israeli Critics of U.S.-Iran Agreement to End the War**\
 `The vice president said that the United States was the only powerful ally Israel had left and noted that two-thirds of the weapons that protected Israel were paid for by U.S. tax dollars.`\
 https://www.nytimes.com/2026/06/18/world/middleeast/vance-israel-critics-us-iran-deal.html
-
-**Rereading ‘The Road’ as a Dad**\
-`“The Road,” by Cormac McCarthy, was one of the author Ryan Holiday’s picks for The New York Times’s “100 Best Books of the 21st Century.” Holiday first read the harrowing story of a father and son traveling together in a postapocalyptic world in college. On a recent episode of the “Book Review” podcast, Holiday talked with the host Gilbert Cruz about his experience rereading the book as a father.`\
-https://www.nytimes.com/video/podcasts/100000010978339/rereading-the-road-as-a-dad.html
 

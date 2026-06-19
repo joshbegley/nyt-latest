@@ -1,3 +1,7 @@
+**Labour’s Andy Burnham Wins U.K. Special Election**\
+`Andy Burnham of the Labour Party won a key seat in the United Kingdom’s Parliament, clearing the path for him to challenge Keir Starmer as prime minister.`\
+https://www.nytimes.com/video/world/europe/100000010979160/uk-election-burnham-starmer.html
+
 **The Art Market is Broken**\
 `Many gallerists are questioning the fundamentals of their business. It’s as if the art world they know has fallen off its axis.`\
 https://www.nytimes.com/2026/06/19/opinion/art-basel-fairs-gallery-market.html
