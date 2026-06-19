@@ -1,3 +1,7 @@
+**Lebanon Emerges as Weak Link in U.S.-Iran Deal to End War**\
+`The conflict between Israel and Hezbollah, once seen as a secondary front to the American-Israeli war on Iran, has become one of the main obstacles to ending it.`\
+https://www.nytimes.com/2026/06/19/world/middleeast/lebanon-us-iran-deal-ceasefire.html
+
 **James Bradley, Co-Author of ‘Flags of Our Fathers,’ Dies at 72**\
 `His best-selling book celebrated the servicemen in the stirring photograph of the U.S. flag-raising on Iwo Jima. One, it was long believed, was his father.`\
 https://www.nytimes.com/2026/06/19/us/james-bradley-dead.html

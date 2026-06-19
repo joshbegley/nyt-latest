@@ -27,7 +27,7 @@ https://www.nytimes.com/video/sports/world-cup/100000010979825/boston-scotland-s
 https://www.nytimes.com/2026/06/19/us/missouri-abortion-access-ruling.html
 
 **Lebanon Emerges as Weak Link in U.S.-Iran Deal to End War**\
-`The agreement leaves unresolved the two issues at the heart of the conflict: Israel’s occupation and Hezbollah’s arsenal.`\
+`The conflict between Israel and Hezbollah, once seen as a secondary front to the American-Israeli war on Iran, has become one of the main obstacles to ending it.`\
 https://www.nytimes.com/2026/06/19/world/middleeast/lebanon-us-iran-deal-ceasefire.html
 
 **Trains Collide in UK, Killing at Least One and Injuring Dozens of Others**\
