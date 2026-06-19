@@ -1,3 +1,11 @@
+**The Reflecting Pool Appears to Be Rejecting Its Makeover**\
+`As National Park Service crews try to clean the algae that turned the water bright green, another problem has developed: The “American flag blue” coating is coming off.`\
+https://www.nytimes.com/2026/06/19/us/politics/reflecting-pool-paint-algae.html
+
+**Washington Reenactors**\
+`Washington Reenactors`\
+https://static01.nyt.com/slideshow/2026/06/19/opinion/washington-reenactors.html
+
 **Lebanon Emerges as Weak Link in U.S.-Iran Deal to End War**\
 `The conflict between Israel and Hezbollah, once seen as a secondary front to the American-Israeli war on Iran, has become one of the main obstacles to ending it.`\
 https://www.nytimes.com/2026/06/19/world/middleeast/lebanon-us-iran-deal-ceasefire.html
