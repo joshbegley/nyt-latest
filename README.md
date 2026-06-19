@@ -1,3 +1,7 @@
+**Firm Tied to Trump Donor Got No-Bid Contract to Clean Reflecting Pool**\
+`A White House spokeswoman said the president was not involved in selecting Greenwater Services, the business owned by a trust led by John J. Cafaro.`\
+https://www.nytimes.com/2026/06/18/us/politics/trump-donor-contract-reflecting-pool.html
+
 **Salsa Macha Pork Noodles**\
 `These noodles are inspired by mazemen, a brothless ramen that is sometimes tossed with a saucy pork mixture. The dish comes together in less than half an hour, making it the perfect upgrade to an instant-ramen weeknight dinner.`\
 https://www.nytimes.com/video/dining/100000010978960/salsa-macha-pork-noodles.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/18/us/politics/colorado-clemency-board-tina-pete
 **Taylor Swift, Geese, the Beatles and More: Popcast Critics Answer Your Pop Questions!**\
 `Joe Coscarelli and Jon Caramanica answer audience questions. Watch the full episode here.`\
 https://www.nytimes.com/video/podcasts/100000010972507/taylor-swift-geese-the-beatles-and-more-popcast-critics-answer-your-pop-questions.html
-
-**Los deportistas extremos saben que van a perder muchos amigos**\
-`Por lo general se les ve como personas que buscan emociones fuertes, pero quienes practican estas actividades dicen que lo que les atrae es el control y la sensación de que el tiempo se desacelera.`\
-https://www.nytimes.com/es/2026/06/18/espanol/estados-unidos/accidentes-deportes-extremos-muertes.html
 
