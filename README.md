@@ -1,3 +1,43 @@
+**What Does It All Mean? Once a Year, French Students Try to Explain.**\
+`The high school philosophy exam is a rite of passage for French students. This year included questions about Friedrich Nietzsche’s 1878 book, “Human, All Too Human.”`\
+https://www.nytimes.com/2026/06/19/world/europe/france-education-high-school-philosophy.html
+
+**Quote of the Day: Ukraine Hits Moscow With One of Biggest Drone Attacks of War**\
+`Quotation of the Day for Friday, June 19, 2026`\
+https://www.nytimes.com/2026/06/19/pageoneplus/quote-of-the-day-ukraine-hits-moscow-with-one-of-biggest-drone-attacks-of-war.html
+
+**Have You Bought a Tesla Recently? We Want to Hear From You.**\
+`Tesla sales are rebounding in Europe even though many people have negative feelings about Elon Musk, the company’s chief executive. We want to know why.`\
+https://www.nytimes.com/2026/06/19/business/energy-environment/tesla-elon-musk-europe.html
+
+**I Have Fallen in Love With My Doctor**\
+`But we have a huge age gap.`\
+https://www.nytimes.com/2026/06/19/style/i-have-fallen-in-love-with-my-doctor.html
+
+**Neither Wanted Marriage. That Changed After Three Weeks Apart.**\
+`When Alison Greenberg, a rom-com writer, and Barry Loudis met, both were divorced with no desire to remarry. “Joke’s on us,” Greenberg said.`\
+https://www.nytimes.com/2026/06/19/style/alison-greenberg-barry-loudis-wedding.html
+
+**It Was Smooth Sailing From the Start**\
+`When Matthew Casale, a lieutenant with the U.S. Navy, connected with Emily Sherron, he was instantly smitten.`\
+https://www.nytimes.com/2026/06/19/style/it-was-smooth-sailing-from-the-start.html
+
+**On a Ride to Her Gate, She Found Her Husband**\
+`Dr. Aneesha Gala was waiting for an airport train when she ran into a classmate who was with her family. The classmate’s brother would become Gala’s husband.`\
+https://www.nytimes.com/2026/06/19/style/aneesha-gala-andrew-geraghty-wedding.html
+
+**The Wedding Was Part of a Show, and the Show Was Part of the Wedding**\
+`Pietro Alexander and Sara Maliki began a new chapter of their lives by getting married in the SoHo art gallery they opened moments later.`\
+https://www.nytimes.com/2026/06/19/style/sara-maliki-pietro-alexander-wedding.html
+
+**He Gave Her a ‘Nontransferable’ Coupon for a Ring**\
+`Robert O’Connell, an interior designer, proposed to Aiyana Jaffe, a jewelry designer, with a 1957 silver box by Maria Pergay. He left the ring up to her.`\
+https://www.nytimes.com/2026/06/19/style/aiyana-jaffe-robert-oconnell-wedding.html
+
+**An Opera Performance With a Real-Life Happy Ending**\
+`Gideon Dabi and Alyssa Martin met five years ago while performing in a production of Rossini’s “La Cenerentola.” They quickly became friends.`\
+https://www.nytimes.com/2026/06/19/style/alyssa-martin-gideon-dabi-wedding.html
+
 **San Francisco Film Patrons Are Found Dead on Side of Highway**\
 `Judith Sheldon, 84, daughter of an Oscar-winning director, and her husband, Wylie, 86, were traveling to Oregon on a hot day. Their deaths are under investigation.`\
 https://www.nytimes.com/2026/06/18/us/san-francisco-couple-dead-judith-wylie-sheldon.html
@@ -157,44 +197,4 @@ https://www.nytimes.com/video/podcasts/100000010978339/rereading-the-road-as-a-d
 **3 Books to Read if You Loved ‘The Road’**\
 `The best-selling author Ryan Holiday joined the “Book Review” podcast to discuss “The Road,” by Cormac McCarthy. This book was one of Holiday’s picks for The New York Times’s “100 Best Books of the 21st Century,” and made it onto the list at no. 13. If you like McCarthy’s postapocalyptic novel, Holiday shares recommendations for books to read next. Tap the link in our bio to listen to the full conversation on the “Book Review” podcast.`\
 https://www.nytimes.com/video/podcasts/100000010978149/3-books-to-read-if-you-loved-the-road.html
-
-**Organiza una salida noventera**\
-`Tu teléfono no está invitado`\
-https://www.nytimes.com/es/interactive/2026/06/18/espanol/como-organizar-reunion-dejar-celular.html
-
-**Host a '90s-Style Hangout**\
-`Your phone is not invited.`\
-https://www.nytimes.com/interactive/2026/06/18/well/summer-challenge-90s-nostalgia.html
-
-**Renato Rosaldo, Anthropologist Who Disrupted His Discipline, Dies at 85**\
-`After his wife’s death while doing fieldwork, he rejected writing as a detached observer, setting off a profound shift in cultural anthropology.`\
-https://www.nytimes.com/2026/06/18/science/renato-rosaldo-dead.html
-
-**Looking for a Perfect World Cup Bar? We Found Three.**\
-`Spots for wings, B.Y.O.D. (bring your own dumplings) and prime rib hash.`\
-https://www.nytimes.com/2026/06/18/dining/looking-for-a-perfect-world-cup-bar-we-found-three.html
-
-**The ‘Rivalry’ Between Vance and Rubio**\
-`There’s no “intense rivalry behind the scenes” between JD Vance and Secretary of State Marco Rubio, the vice president argues on “Interesting Times.” The Opinion columnist Ross Douthat asks the vice president what happens to his political future if the Iran deal goes poorly.`\
-https://www.nytimes.com/video/opinion/100000010968360/the-rivalry-between-vance-and-rubio.html
-
-**A Small Election Could Change British Politics**\
-`Voters in the northern English district of Makerfield cast ballots on Thursday to choose their representative in Parliament, the outcome of which could lead to Prime Minister Keir Starmer’s ouster.`\
-https://www.nytimes.com/video/world/europe/100000010976921/england-makerfield-election.html
-
-**NYC Erupts in Celebration Over Knicks Championship Win**\
-`New York City found a reason to party on Thursday, cheering, crying and climbing around Broadway to celebrate the Knicks’ N.B.A. championship.`\
-https://www.nytimes.com/2026/06/18/nyregion/knicks-championship-parade-celebration-nyc.html
-
-**Here’s What Barack and Michelle Obama Said at His Presidential Center Opening**\
-`The Obamas each took to the microphone, delivering speeches before a crowd of dignitaries, elected officials and Democratic supporters.`\
-https://www.nytimes.com/2026/06/18/us/barack-michelle-obama-speeches.html
-
-**JD Vance: ‘I’m Not Fighting With the Pope’**\
-`Did JD Vance privately agree with the pope on the Iran war while publicly fighting with him? Ross Douthat asks the vice president on “Interesting Times.”`\
-https://www.nytimes.com/video/opinion/100000010968359/jd-vance-im-not-fighting-with-the-pope.html
-
-**Three Medals of Honor Awarded to Vietnam and Afghanistan Veterans**\
-`Two Force Recon Marines received the medal on Thursday for their actions more than 50 years ago, alongside an Army officer who showed exceptional bravery in 2012.`\
-https://www.nytimes.com/2026/06/18/us/politics/trump-medals-of-honor.html
 
