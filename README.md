@@ -1,3 +1,7 @@
+**James Bradley, Co-Author of ‘Flags of Our Fathers,’ Dies at 72**\
+`His best-selling book celebrated the servicemen in the stirring photograph of the U.S. flag-raising on Iwo Jima. One, it was long believed, was his father.`\
+https://www.nytimes.com/2026/06/19/us/james-bradley-dead.html
+
 **Moscow Tanker Blast Most Likely Russian Missile, Video Shows**\
 `A dramatic explosion that caused the lid of an oil tanker to fly into the sky during a Ukrainian aerial assault on Moscow was most likely caused by a Russian air defense missile, verified video shows.`\
 https://www.nytimes.com/video/world/europe/100000010980052/moscow-tanker-blast-likely-russian-missile.html
@@ -11,7 +15,7 @@ https://www.nytimes.com/video/world/europe/100000010980536/trains-crash-uk.html
 https://www.nytimes.com/2026/06/19/us/california-deputy-charged-manslaughter-crash.html
 
 **Trump Shifts Stance in South Carolina After Losses in Governor’s Races**\
-`On Friday the president made the unusual move of endorsing both candidates in the Republican runoff for South Carolina governor.`\
+`On Friday the president made the unusual move of endorsing both candidates in the Republican runoff for South Carolina governor, after initially supporting one of them.`\
 https://www.nytimes.com/2026/06/19/us/trump-shifts-endorsement-south-carolina-governor.html
 
 **Scottish Soccer Invasion in Boston for the World Cup**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/dining/100000010979828/marcella-hazans-bolognese-s
 **Inside Hegseth’s War on Diversity and Blocked Promotions of Women and Black Officers**\
 `A Black admiral fixed one of the Navy’s worst messes. Mr. Hegseth blocked his promotion anyway.`\
 https://www.nytimes.com/2026/06/19/us/politics/hegseth-navy-blocked-promotions-diversity.html
-
-**Extreme Heat Warnings Issued Across Europe: What to Know**\
-`Unusually high temperatures are expected across parts of Western Europe into early next week, weather agencies said.`\
-https://www.nytimes.com/2026/06/19/world/europe/heat-wave-europe-uk-weather-forecast.html
 
 **World Cup Updates: For U.S. Fans in Seattle, a Boisterous March to the Match**\
 `(No description)`\
