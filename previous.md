@@ -1,3 +1,7 @@
+**Sebastian Vettel: Finding Calm While Driving a Racecar**\
+`As a Formula 1 racer, I could disappear and forget about time. Now, my greatest joy is discovering what puts me in the present.`\
+https://www.nytimes.com/2026/06/19/special-series/sebastian-vettel-racing-calm.html
+
 **Woman Receives 12-Year Sentence for 1978 Scalding Death of Stepdaughter, 5**\
 `Janice Nix was found guilty of manslaughter after her stepson told the police that she had forced his sister into a hot bath as a form of punishment in their home in South London.`\
 https://www.nytimes.com/2026/06/19/world/europe/janice-nix-scalding-killing-london-1978.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/19/podcasts/the-headlines/the-headlines-news-qui
 **‘Hard Fork’ Live, Part 3: Differing Visions of an A.I. Future**\
 `One final episode from our live event, featuring a debate, questions from listeners and the dramatic and unplanned collapse of a dancing robot.`\
 https://www.nytimes.com/2026/06/19/podcasts/hard-fork-live-part-3-differing-visions-of-an-ai-future.html
-
-**Strikes in Moscow**\
-``\
-https://www.nytimes.com/2026/06/19/briefing/strikes-in-moscow.html
 
 **World Cup Updates: For U.S. Fans in Seattle, a Boisterous March to the Match**\
 `(No description)`\
