@@ -1,3 +1,11 @@
+**Matt Dunlap Wins Democratic House Primary in Maine’s Swing District**\
+`Mr. Dunlap, a progressive Democrat, is set to face former Gov. Paul LePage, a Republican, in a competitive general election in November.`\
+https://www.nytimes.com/2026/06/19/us/politics/democratic-house-primary-maine-dunlap.html
+
+**Los europeos tienen algunas opiniones sobre la sauna en EE. UU.**\
+`Franceses, finlandeses y noruegos miran con cierto horror la forma en que los estadounidenses adaptan su milenaria práctica comunitaria.`\
+https://www.nytimes.com/es/2026/06/19/espanol/sauna-tradicion-europa.html
+
 **Labour’s Andy Burnham Wins U.K. Special Election**\
 `Andy Burnham of the Labour Party won a key seat in the United Kingdom’s Parliament, clearing the path for him to challenge Keir Starmer as prime minister.`\
 https://www.nytimes.com/video/world/europe/100000010979160/uk-election-burnham-starmer.html
