@@ -1,3 +1,7 @@
+**Italy Doesn’t ‘Beg,’ Giorgia Meloni Tells Trump**\
+`President Trump said the Italian leader had “begged” him to take a photo together at the Group of 7 summit in France. The remarks come as their once-friendly relationship has frayed.`\
+https://www.nytimes.com/2026/06/19/world/europe/meloni-trump-italy.html
+
 **Canadian Billionaire Frank Stronach Is Convicted of Sexual and Indecent Assault**\
 `Mr. Stronach, 93, was found guilty of sexual assault and indecent assault in two cases and acquitted on three other charges.`\
 https://www.nytimes.com/2026/06/19/world/canada/frank-stronach-trial-guilty-sex-charges.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/19/business/iran-us-hormuz-shipping.html
 **I Keep Telling People We’re Living in This Dystopian Novel**\
 `The 2010 novel “Super Sad True Love Story” foreshadowed our current world. So I asked its author, Gary Shteyngart, how he sees the world today and how we might find pleasure in it.`\
 https://www.nytimes.com/2026/06/19/opinion/ezra-klein-podcast-gary-shteyngart.html
-
-**The Costs of the Iran War: Thousands of Lives and Billions of Dollars**\
-`The human toll and economic costs mounted rapidly after the United States and Israel attacked Iran on Feb. 28.`\
-https://www.nytimes.com/2026/06/19/us/politics/iran-war-costs-deaths.html
 

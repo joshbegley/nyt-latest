@@ -1,3 +1,7 @@
+**Italy Doesn’t ‘Beg,’ Giorgia Meloni Tells Trump**\
+`President Trump said the Italian leader had “begged” him to take a photo together at the Group of 7 summit in France. The remarks come as their once-friendly relationship has frayed.`\
+https://www.nytimes.com/2026/06/19/world/europe/meloni-trump-italy.html
+
 **Stranded Ships Hoping for Escape Find a Turbulent Strait of Hormuz**\
 `Shipping companies had hoped to get their vessels out after this week’s U.S.-Iran deal but faced uncertainty on Friday as violence flared again in the region.`\
 https://www.nytimes.com/2026/06/19/business/iran-us-hormuz-shipping.html
