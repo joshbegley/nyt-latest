@@ -1,3 +1,35 @@
+**Tension Builds Between USMNT and Australia, While Scotland Fans Take Over Boston**\
+`Why is there such animosity between the World Cup co-hosts and the Socceroos?`\
+https://www.nytimes.com/2026/06/19/podcasts/usmnt-australia-scotland-fans-boston.html
+
+**‘Game Changer’? Too Soon to Tell. But Ukraine Flexed in Striking Moscow.**\
+`The drone attack that sent plumes of smoke rising over Moscow intensified Ukrainian hopes of bringing the war to Russia.`\
+https://www.nytimes.com/2026/06/19/world/europe/ukraine-drone-attack-moscow.html
+
+**Did Iran Come Out on Top in the Peace Deal?**\
+`Details of the United States’ agreement with Iran drew comparisons to the one President Barack Obama signed in 2015.`\
+https://www.nytimes.com/2026/06/19/podcasts/the-daily/iran-us-deal-trump-obama.html
+
+**JD Vance’s Blunt Warning to Israel, and Why Waymo Is Struggling to Go National**\
+`Plus, the Friday news quiz.`\
+https://www.nytimes.com/2026/06/19/podcasts/the-headlines/vance-iran-agreement-israel-waymo.html
+
+**NYT Connections Answers for June 20, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, June 20, 2026.`\
+https://www.nytimes.com/2026/06/19/crosswords/connections-companion-1105.html
+
+**Today’s Wordle Hints for June 20, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, June 20, 2026.`\
+https://www.nytimes.com/2026/06/19/crosswords/wordle-review-1827.html
+
+**NYT Strands Hints for June 20, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, June 20, 2026.`\
+https://www.nytimes.com/2026/06/19/crosswords/strands-sidekick-839.html
+
+**Oil Prices Firm Up as U.S.-Iran Deal Faces Tests**\
+`Oil remains on track for a second straight weekly decline, but signs of cracks in the agreement to end the war have given traders pause.`\
+https://www.nytimes.com/2026/06/19/business/oil-gas-prices-iran.html
+
 **USMNT’s Tim Weah on World Cup Dreams and the American Idea**\
 `The outspoken member of Team USA examines the meaning of the moment, on and off the pitch.`\
 https://www.nytimes.com/2026/06/19/podcasts/usmnts-tim-weah-on-world-cup-dreams-and-the-american-idea.html

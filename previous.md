@@ -1,3 +1,35 @@
+**Tension Builds Between USMNT and Australia, While Scotland Fans Take Over Boston**\
+`Why is there such animosity between the World Cup co-hosts and the Socceroos?`\
+https://www.nytimes.com/2026/06/19/podcasts/usmnt-australia-scotland-fans-boston.html
+
+**‘Game Changer’? Too Soon to Tell. But Ukraine Flexed in Striking Moscow.**\
+`The drone attack that sent plumes of smoke rising over Moscow intensified Ukrainian hopes of bringing the war to Russia.`\
+https://www.nytimes.com/2026/06/19/world/europe/ukraine-drone-attack-moscow.html
+
+**Did Iran Come Out on Top in the Peace Deal?**\
+`Details of the United States’ agreement with Iran drew comparisons to the one President Barack Obama signed in 2015.`\
+https://www.nytimes.com/2026/06/19/podcasts/the-daily/iran-us-deal-trump-obama.html
+
+**JD Vance’s Blunt Warning to Israel, and Why Waymo Is Struggling to Go National**\
+`Plus, the Friday news quiz.`\
+https://www.nytimes.com/2026/06/19/podcasts/the-headlines/vance-iran-agreement-israel-waymo.html
+
+**NYT Connections Answers for June 20, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, June 20, 2026.`\
+https://www.nytimes.com/2026/06/19/crosswords/connections-companion-1105.html
+
+**Today’s Wordle Hints for June 20, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, June 20, 2026.`\
+https://www.nytimes.com/2026/06/19/crosswords/wordle-review-1827.html
+
+**NYT Strands Hints for June 20, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, June 20, 2026.`\
+https://www.nytimes.com/2026/06/19/crosswords/strands-sidekick-839.html
+
+**Oil Prices Firm Up as U.S.-Iran Deal Faces Tests**\
+`Oil remains on track for a second straight weekly decline, but signs of cracks in the agreement to end the war have given traders pause.`\
+https://www.nytimes.com/2026/06/19/business/oil-gas-prices-iran.html
+
 **USMNT’s Tim Weah on World Cup Dreams and the American Idea**\
 `The outspoken member of Team USA examines the meaning of the moment, on and off the pitch.`\
 https://www.nytimes.com/2026/06/19/podcasts/usmnts-tim-weah-on-world-cup-dreams-and-the-american-idea.html
@@ -165,36 +197,4 @@ https://www.nytimes.com/2026/06/19/opinion/iran-hormuz-strait-oil-us.html
 **Buildings May Soon Have ‘Immune Systems’ That Fight Airborne Disease**\
 `Following the pandemic, the federal government is spending $150 million on new technology to ensure clean indoor air. Here’s what scientists are pursuing.`\
 https://www.nytimes.com/2026/06/19/science/indoor-air-viruses-bacteria.html
-
-**How Britain Became Surreal**\
-`A century-old artistic revolution that changed the world is on display at a London art exhibition.`\
-https://www.nytimes.com/2026/06/19/arts/design/surrealism-art-london-exhibition.html
-
-**Like Disco Elysium, Zero Parades Is an R.P.G. Masterpiece**\
-`With Zero Parades, the studio behind the celebrated Disco Elysium again sends a fallible professional through a complex world.`\
-https://www.nytimes.com/2026/06/19/arts/zero-parades-spies-review.html
-
-**How to Exercise Before and After a Joint Replacement**\
-`Here’s how to build strength before surgery — and stay moving afterward.`\
-https://www.nytimes.com/2026/06/19/well/move/exercise-hip-knee-replacement-surgery.html
-
-**Mexico’s Laws Have a New Target: Journalists**\
-`Politicians and officials in Mexico are using the country’s laws to intimidate critics and the media, forcing them into censorship and blunting scrutiny.`\
-https://www.nytimes.com/2026/06/19/world/americas/mexico-politicians-silence-journalists.html
-
-**Joan Cusack, the Actress Behind Jessie in ‘Toy Story,’ Takes the Lead**\
-`After 27 years, the beloved cowgirl doll voiced by Cusack is finally in charge, but the actress played an important role in shaping the character early on.`\
-https://www.nytimes.com/2026/06/19/arts/joan-cusack-jessie-toy-story-5.html
-
-**To Take Us to the Heavens, James Turrell Went Underground**\
-`The American artist’s most ambitious “skyspace” installation, opening in Denmark on Friday, invites viewers to connect with the cosmos both inner and outer.`\
-https://www.nytimes.com/2026/06/19/arts/james-turrell-aros-aarhus.html
-
-**Mideast Live Updates: Attacks in Lebanon and Delay in Talks Test U.S.-Iran Deal**\
-`Israel and Hezbollah traded new strikes in southern Lebanon, as Switzerland said it had postponed a round of U.S.-Iran talks previously set for Friday.`\
-https://www.nytimes.com/live/2026/06/19/world/iran-trump-deal
-
-**Nos gustaba trabajar desde casa. Luego vimos los datos**\
-`A pesar de sus ventajas, el trabajo remoto ha agravado considerablemente el aislamiento y la angustia de los estadounidenses.`\
-https://www.nytimes.com/es/2026/06/19/espanol/opinion/trabajo-remoto-soledad.html
 
