@@ -1,5 +1,9 @@
 **James Burrows, Master of the TV Sitcom, Dies at 85**\
 `Beloved by actors, he helped create “Cheers” and directed more than 1,000 episodes of hit shows like “Taxi,” “Friends” and “The Big Bang Theory.”`\
+https://www.nytimes.com/2026/06/19/arts/television/james-burrows-dead.html
+
+**James Burrows, Master of the TV Sitcom, Dies at 85**\
+`Beloved by actors, he helped create “Cheers” and directed more than 1,000 episodes of hit shows like “Taxi,” “Friends” and “The Big Bang Theory.”`\
 https://www.nytimes.com/2026/06/19/obituaries/james-burrows-dead.html
 
 **Californians Get Stingier at the Ballot Box as Costs Rise**\
