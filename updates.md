@@ -1,3 +1,7 @@
+**Demining the Strait of Hormuz**\
+`Our reporter John Ismay, who served as a Navy explosive ordnance disposal officer and deep-sea diver for eight years, explains why mines in the Strait of Hormuz may outlast the war.`\
+https://www.nytimes.com/video/us/politics/100000010969459/iran-strait-hormuz-mines-shipping.html
+
 **Red Red (Pepper Stewed Beans)**\
 `A common dish served at homes in Ghana, by roadside vendors and in chop chop bars (cafes or canteens), this popular stew is enjoyed all year round.`\
 https://www.nytimes.com/video/dining/100000010979853/red-red-pepper-stewed-beans.html
