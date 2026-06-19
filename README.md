@@ -1,3 +1,7 @@
+**Excited for World Cup? Stream 14 Great Soccer Movies.**\
+`The beautiful game is the inspiring setting for films from countries large (Brazil) and small (Cape Verde). Watch them while the World Cup is in full swing.`\
+https://www.nytimes.com/2026/06/19/movies/world-cup-soccer-movies-streaming.html
+
 **‘The Headlines’ News Quiz: Jun. 19, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/06/19/podcasts/the-headlines/the-headlines-news-quiz-jun-19-2026.html
@@ -78,7 +82,7 @@ https://www.nytimes.com/2026/06/19/pageoneplus/corrections-june-19-2026.html
 `A ruling on an alcohol-related dispute.`\
 https://www.nytimes.com/interactive/2026/06/19/magazine/one-drink-maximum-hodgman-quiz.html
 
-**Iran Roared. Trump Blinked.**\
+**Trump Put His Own Interests Above All in the Iran Deal**\
 `The Iran deal wasn’t about peace but answering Trump’s personal needs.`\
 https://www.nytimes.com/2026/06/19/opinion/iran-israel-us-war-deal.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/19/arts/television/matt-smith-house-of-the-drago
 **Is Climate Change Supercharging El Niño?**\
 `As a new, potentially record-breaking El Niño begins, researchers are vigorously debating whether climate change is driving the phenomenon’s intensity.`\
 https://www.nytimes.com/2026/06/19/climate/is-climate-change-supercharging-el-nino-scientists-dont-agree.html
-
-**Chris Burden’s Police Uniforms Are Coming to Art Basel**\
-`These imposing works of art offer a powerful statement on authority from an artist who had his own experiences with the police.`\
-https://www.nytimes.com/2026/06/19/arts/design/police-art-basel-chris-burden.html
 
