@@ -98,7 +98,7 @@ https://www.nytimes.com/2026/06/19/crosswords/wordle-review-1827.html
 `Scroll down for hints and conversation about the puzzle for Saturday, June 20, 2026.`\
 https://www.nytimes.com/2026/06/19/crosswords/strands-sidekick-839.html
 
-**Oil Prices Firm Up as U.S.-Iran Deal Faces Tests**\
+**Oil Prices Wobble as U.S.-Iran Deal Faces Tests**\
 `Oil remains on track for a second straight weekly decline, but signs of cracks in the agreement to end the war have given traders pause.`\
 https://www.nytimes.com/2026/06/19/business/oil-gas-prices-iran.html
 
