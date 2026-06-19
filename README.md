@@ -1,3 +1,7 @@
+**Two Trains Collide Near Bedford, England, on Friday**\
+`At least one person was killed and a “number of people” were injured after two passenger trains crashed in south-central England on Friday, the authorities said.`\
+https://www.nytimes.com/video/world/europe/100000010980536/trains-crash-uk.html
+
 **California Sheriff’s Deputy Is Charged in Fatal On-Duty Crash**\
 `The deputy was responding to a call, driving at about 100 miles per hour, when he struck a Tesla, killing its driver and severely injuring his fiancée, the authorities said.`\
 https://www.nytimes.com/2026/06/19/us/california-deputy-charged-manslaughter-crash.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/19/world/europe/heat-wave-europe-uk-weather-fore
 **With Fresh Marble Fillings, the Parthenon Gets a Partial Glow-Up**\
 `Restorers have fixed a gap on the western side of the temple in Athens that had been empty for more than 220 years.`\
 https://www.nytimes.com/2026/06/19/arts/parthenon-restoration-greece.html
-
-**Colman Domingo Reflects on Love and How It Drives Us**\
-`Fires will rage. People will leave. Hopes will be dashed. Yet love — our everlasting foundation — will endure.`\
-https://www.nytimes.com/2026/06/19/special-series/colman-domingo-love.html
 
 **World Cup Updates: For U.S. Fans in Seattle, a Boisterous March to the Match**\
 `(No description)`\
