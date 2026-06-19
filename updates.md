@@ -1,3 +1,7 @@
+**What Could Taylor Swift’s Bachelorette Party Look Like?**\
+`Recent photos of guests arriving at the singer’s seaside home have fueled online speculation that a pre-wedding celebration may be underway. Wedding experts weigh in on what such a fete might entail.`\
+https://www.nytimes.com/2026/06/19/style/taylor-swifts-bachelorette-party-watch-hill-rhode-island.html
+
 **Sebastian Vettel: Finding Calm While Driving a Racecar**\
 `As a Formula 1 racer, I could disappear and forget about time. Now, my greatest joy is discovering what puts me in the present.`\
 https://www.nytimes.com/2026/06/19/special-series/sebastian-vettel-racing-calm.html
