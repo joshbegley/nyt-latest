@@ -1,3 +1,7 @@
+**Marcella Hazan’s Bolognese Sauce**\
+`After the death in 2013 of Marcella Hazan, the cookbook author who changed the way Americans cook Italian food, The New York Times asked readers which of her recipes had become staples in their kitchens. Many people answered with one word: “Bolognese.”`\
+https://www.nytimes.com/video/dining/100000010979828/marcella-hazans-bolognese-sauce.html
+
 **Inside Hegseth’s War on Diversity and Blocked Promotions of Women and Black Officers**\
 `A Black admiral fixed one of the Navy’s worst messes. Mr. Hegseth blocked his promotion anyway.`\
 https://www.nytimes.com/2026/06/19/us/politics/hegseth-navy-blocked-promotions-diversity.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/19/us/nashville-zoo-data-center.html
 **Boycott Trump’s Ridiculous July 4 Party**\
 `The president is planning another self-aggrandizing spectacle.`\
 https://www.nytimes.com/2026/06/19/opinion/trump-freedom-250-america-ufc-birthday.html
-
-**S​pectacular Scoring! ​Political Intrigue! Heroic Defending! The World Cup Has It All​.**\
-`The history of global soccer, in some sense, is a history of the world’s political problems.`\
-https://www.nytimes.com/2026/06/19/opinion/world-cup-trump-fifa.html
 
