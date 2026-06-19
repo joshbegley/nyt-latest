@@ -1,3 +1,7 @@
+**Our Allies Are Wondering Whether Supporting the American War Machine Is Worth It**\
+`Is the Iran war an early sign of “superpower suicide"?`\
+https://www.nytimes.com/2026/06/19/magazine/middle-east-bases-iran-war.html
+
 **For India, the Return of Iranian Oil Cannot Come Soon Enough**\
 `After months of shortages and uncertainty, India sees an opportunity to restore a once-crucial energy relationship.`\
 https://www.nytimes.com/2026/06/19/business/india-iran-oil-imports.html
