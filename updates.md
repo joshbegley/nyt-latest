@@ -1,3 +1,7 @@
+**The Art Market is Broken**\
+`Many gallerists are questioning the fundamentals of their business. It’s as if the art world they know has fallen off its axis.`\
+https://www.nytimes.com/2026/06/19/opinion/art-basel-fairs-gallery-market.html
+
 **Fallout From the Iran Deal**\
 `Trump’s agreement reads like a list of concessions to Iran. Will it damage him politically?`\
 https://www.nytimes.com/2026/06/18/world/iran-trump-us-uk-special-election-world-cup.html
