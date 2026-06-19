@@ -1,3 +1,7 @@
+**En México, los políticos usan las leyes contra los periodistas**\
+`Los políticos y funcionarios de México están utilizando las leyes del país para intimidar a los críticos y a los medios de comunicación, obligándolos a la censura y frenando el escrutinio.`\
+https://www.nytimes.com/es/2026/06/19/espanol/america-latina/mexico-politicos-leyes-censura-periodistas.html
+
 **After Deal to Reopen Strait of Hormuz, Ships Begin to Move Cautiously**\
 `Shipping companies hoping to get their stranded vessels out face complications like mines and the lack of clear coordination.`\
 https://www.nytimes.com/2026/06/19/business/iran-us-hormuz-shipping.html
