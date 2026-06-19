@@ -1,3 +1,7 @@
+**Deadly Violence Rocks Lebanon in Threat to U.S.-Iran Deal**\
+`Israel launched strikes across the country after Iran-backed Hezbollah said it had ambushed Israeli troops, leaving diplomats scrambling to prevent the deal from collapsing.`\
+https://www.nytimes.com/2026/06/19/world/middleeast/lebanon-israel-attacks.html
+
 **Italy Doesn’t ‘Beg,’ Giorgia Meloni Tells Trump**\
 `President Trump said the Italian leader had “begged” him to take a photo together at the Group of 7 summit in France. The remarks come as their once-friendly relationship has frayed.`\
 https://www.nytimes.com/2026/06/19/world/europe/meloni-trump-italy.html
