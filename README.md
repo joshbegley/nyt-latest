@@ -1,3 +1,7 @@
+**Strikes in Moscow**\
+``\
+https://www.nytimes.com/2026/06/19/briefing/strikes-in-moscow.html
+
 **Israel Launches Airstrikes in Lebanon After 4 Soldiers Are Killed**\
 `The violence involving Israel and Iran-backed Hezbollah militants added to pressure on the U.S.-Iran deal, which calls for fighting to stop on all fronts, including in Lebanon.`\
 https://www.nytimes.com/2026/06/19/world/middleeast/lebanon-israel-attacks.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/19/arts/design/woody-de-othello-sculptor-exhibit
 **Jon Klassen on Ghosts in Children’s Stories**\
 `Ghosts in stories for children are a blank canvas. You can show your audience a ghost and, if you play it right, almost just leave it at that.`\
 https://www.nytimes.com/2026/06/19/books/review/ghosts-childrens-books.html
-
-**The World Is Full of Chokepoints, and Iran Just Showed How to Exploit Them**\
-`Tehran is the newly empowered gatekeeper of the world’s most important waterway for energy. Other countries will take note.`\
-https://www.nytimes.com/2026/06/19/opinion/iran-hormuz-strait-oil-us.html
 
