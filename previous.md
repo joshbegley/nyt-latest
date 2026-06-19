@@ -1,4 +1,8 @@
-**Vance Delays Trip to Switzerland For Direct Talks on Iran Deal**\
+**San Francisco Film Patrons Are Found Dead on Side of Highway**\
+`Judith Sheldon, 84, daughter of an Oscar-winning director, and her husband, Wylie, 86, were traveling to Oregon on a hot day. Their deaths are under investigation.`\
+https://www.nytimes.com/2026/06/18/us/san-francisco-couple-dead-judith-wylie-sheldon.html
+
+**Vance Delays Trip to Switzerland for Direct Talks on Iran Deal**\
 `Mr. Vance said earlier at a press briefing that he did not know if he would travel to Switzerland on Friday for the talks, where he was initially expected for a signing ceremony.`\
 https://www.nytimes.com/2026/06/18/us/politics/vance-delays-trip-to-switzerland-for-direct-talks-on-iran-deal.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/opinion/100000010968359/jd-vance-im-not-fighting-w
 **Three Medals of Honor Awarded to Vietnam and Afghanistan Veterans**\
 `Two Force Recon Marines received the medal on Thursday for their actions more than 50 years ago, alongside an Army officer who showed exceptional bravery in 2012.`\
 https://www.nytimes.com/2026/06/18/us/politics/trump-medals-of-honor.html
-
-**These World Cup Tourists Loving American Food Aren’t All What They Seem**\
-`Visiting soccer fans enraptured by free refills and salsa have become the feel-good story of the summer, even when the facts don’t fit.`\
-https://www.nytimes.com/2026/06/18/dining/world-cup-tourists-food-videos.html
 

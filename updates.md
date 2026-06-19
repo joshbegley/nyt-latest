@@ -1,3 +1,11 @@
+**San Francisco Film Patrons Are Found Dead on Side of Highway**\
+`Judith Sheldon, 84, daughter of an Oscar-winning director, and her husband, Wylie, 86, were traveling to Oregon on a hot day. Their deaths are under investigation.`\
+https://www.nytimes.com/2026/06/18/us/san-francisco-couple-dead-judith-wylie-sheldon.html
+
+**Vance Delays Trip to Switzerland for Direct Talks on Iran Deal**\
+`Mr. Vance said earlier at a press briefing that he did not know if he would travel to Switzerland on Friday for the talks, where he was initially expected for a signing ceremony.`\
+https://www.nytimes.com/2026/06/18/us/politics/vance-delays-trip-to-switzerland-for-direct-talks-on-iran-deal.html
+
 **Vance Delays Trip to Switzerland For Direct Talks on Iran Deal**\
 `Mr. Vance said earlier at a press briefing that he did not know if he would travel to Switzerland on Friday for the talks, where he was initially expected for a signing ceremony.`\
 https://www.nytimes.com/2026/06/18/us/politics/vance-delays-trip-to-switzerland-for-direct-talks-on-iran-deal.html
