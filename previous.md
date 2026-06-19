@@ -2,7 +2,7 @@
 `The American artist’s most ambitious “skyspace” installation, opening in Denmark on Friday, invites viewers to connect with the cosmos both inner and outer.`\
 https://www.nytimes.com/2026/06/19/arts/james-turrell-aros-aarhus.html
 
-**Mideast Live Updates: Lebanon Attacks and Delay in Talks Test U.S.-Iran Deal**\
+**Mideast Live Updates: Attacks in Lebanon and Delay in Talks Test U.S.-Iran Deal**\
 `Israel and Hezbollah traded new strikes in southern Lebanon, as Switzerland said it had postponed a round of U.S.-Iran talks previously set for Friday.`\
 https://www.nytimes.com/live/2026/06/19/world/iran-trump-deal
 
