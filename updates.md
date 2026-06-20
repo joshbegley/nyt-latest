@@ -1,3 +1,11 @@
+**Seattle Is Now a World Cup Draw: ‘Just a Great Soccer City’**\
+`Seattle has become a leading American soccer city with successful professional franchises and a devoted fan base.`\
+https://www.nytimes.com/2026/06/19/us/seattle-world-cup-fans.html
+
+**Chanting and Celebrating, U.S. Soccer Fans March to the Match**\
+`Adopting a tradition from Europe, thousands of caffeinated and beer-fueled fans marched through Seattle to the contest between the United States and Australia.`\
+https://www.nytimes.com/2026/06/19/us/world-cup-seattle-march-match.html
+
 **‘A Literal Coverup’: What Is the Kennedy Center Hiding Behind Those Tarps?**\
 `The arts center says it pulled President Trump’s name from the building front. But the result remains hidden by tarps, prompting questions and speculation.`\
 https://www.nytimes.com/2026/06/19/us/politics/kennedy-center-trump.html

@@ -1,3 +1,7 @@
+**Seattle Is Now a World Cup Draw: ‘Just a Great Soccer City’**\
+`Seattle has become a leading American soccer city with successful professional franchises and a devoted fan base.`\
+https://www.nytimes.com/2026/06/19/us/seattle-world-cup-fans.html
+
 **‘A Literal Coverup’: What Is the Kennedy Center Hiding Behind Those Tarps?**\
 `The arts center says it pulled President Trump’s name from the building front. But the result remains hidden by tarps, prompting questions and speculation.`\
 https://www.nytimes.com/2026/06/19/us/politics/kennedy-center-trump.html
@@ -102,6 +106,10 @@ https://www.nytimes.com/es/2026/06/19/espanol/mundo/elecciones-primer-ministro-r
 `Lisette Poole González, a photographer for The New York Times, talks with Jack Nicas, The Times’s Mexico City bureau chief, about photographing Havana at night amid an energy crisis.`\
 https://www.nytimes.com/video/world/americas/100000010937059/how-cubans-are-living-in-the-dark.html
 
+**Chanting and Celebrating, U.S. Soccer Fans March to the Match**\
+`Adopting a tradition from Europe, thousands of caffeinated and beer-fueled fans marched through Seattle to the contest between the United States and Australia.`\
+https://www.nytimes.com/2026/06/19/us/world-cup-seattle-march-match.html
+
 **Giorgia Meloni le dice a Trump: ‘Italia y yo nunca rogamos’**\
 `El presidente Trump dijo que la primera ministra italiana le ‘rogó’ tomarse una foto juntos en la cumbre del G7 en Francia. El comentario ha desatado críticas de todo el gobierno italiano.`\
 https://www.nytimes.com/es/2026/06/19/espanol/mundo/meloni-trump-italia.html
@@ -189,8 +197,4 @@ https://www.nytimes.com/video/dining/100000010979894/angel-hair-pasta-salad.html
 **Blueberry Almond Lemon Cake and More Popular Recipes**\
 `And more of our most popular recipes from the week.`\
 https://www.nytimes.com/2026/06/19/dining/have-you-made-this-blueberry-lemon-loaf-cake-yet.html
-
-**World Cup Updates: For U.S. Fans in Seattle, a Boisterous March to the Match**\
-`(No description)`\
-https://www.nytimes.com/live/2026/us/fifa-world-cup
 
