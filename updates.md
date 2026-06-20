@@ -1,3 +1,11 @@
+**Big Draw**\
+`Hannah Slovut-Einertson’s first Sunday puzzle for The Times presents a vertical challenge.`\
+https://www.nytimes.com/2026/06/20/crosswords/daily-puzzle-2026-06-21.html
+
+**Mona Kahlil, Defender of Sea Turtles, Killed in an Israel Strike in Lebanon**\
+`For a quarter century, Ms. Kahlil ran a guesthouse and worked to protect endangered sea turtles who every summer lay their eggs on a stretch of beach near Tyre, Lebanon.`\
+https://www.nytimes.com/2026/06/20/world/middleeast/mona-kahlil-turtles-lebanon-conservation.html
+
 **U.S. and Iran Offer Contradictory Statements on Strait of Hormuz**\
 `Iran’s military announced that it had closed the Strait of Hormuz around the same time on Saturday that Vice President JD Vance told Fox News the Trump administration had accomplished its goal of opening the strait.`\
 https://www.nytimes.com/video/world/middleeast/100000010981147/strait-hormuz-iran-trump-vance.html

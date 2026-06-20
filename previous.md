@@ -1,3 +1,11 @@
+**Big Draw**\
+`Hannah Slovut-Einertson’s first Sunday puzzle for The Times presents a vertical challenge.`\
+https://www.nytimes.com/2026/06/20/crosswords/daily-puzzle-2026-06-21.html
+
+**Mona Kahlil, Defender of Sea Turtles, Killed in an Israel Strike in Lebanon**\
+`For a quarter century, Ms. Kahlil ran a guesthouse and worked to protect endangered sea turtles who every summer lay their eggs on a stretch of beach near Tyre, Lebanon.`\
+https://www.nytimes.com/2026/06/20/world/middleeast/mona-kahlil-turtles-lebanon-conservation.html
+
 **U.S. and Iran Offer Contradictory Statements on Strait of Hormuz**\
 `Iran’s military announced that it had closed the Strait of Hormuz around the same time on Saturday that Vice President JD Vance told Fox News the Trump administration had accomplished its goal of opening the strait.`\
 https://www.nytimes.com/video/world/middleeast/100000010981147/strait-hormuz-iran-trump-vance.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/20/arts/design/asta-norregaard-national-museum-o
 **What Do Some of the Trendiest Books Have in Common? A Wolfgang Tillmans Photograph.**\
 `The work of Wolfgang Tillmans helps turn esoteric, sometimes experimental books into best-sellers — and covetable objets d’art.`\
 https://www.nytimes.com/2026/06/20/style/wolfgang-tillmans-book-covers.html
-
-**Abelardo De La Espriella, Right-Wing Outsider, Could Be Colombia’s Next President**\
-`President Trump endorsed Abelardo De La Espriella, the conservative presidential candidate in Sunday’s election who has strong U.S. ties.`\
-https://www.nytimes.com/2026/06/20/world/americas/colombia-election-abelardo-de-la-espriella.html
-
-**Arizona Democrat’s Tough Past Fuels Pitch for a Key House Seat**\
-`JoAnna Mendoza, a Democrat challenging Representative Juan Ciscomani in a tossup district, is leaning into her painful and unique life story to appeal to voters.`\
-https://www.nytimes.com/2026/06/20/us/politics/arizona-democrats-tough-past-fuels-pitch-for-a-key-house-seat.html
 
 **World Cup Updates: Smaller U.S. Cities Give Visiting Teams an Extra-Warm Embrace**\
 `(No description)`\
