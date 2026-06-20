@@ -194,7 +194,3 @@ https://www.nytimes.com/es/2026/06/20/espanol/opinion/telefonos-natalidad-conexi
 `Los clubes de lectura en sitios turísticos, las agencias de viajes, las bibliotecas de los hoteles y un número cada vez mayor de festivales ofrecen a los lectores nuevas formas de dar rienda suelta a sus intereses.`\
 https://www.nytimes.com/es/2026/06/20/espanol/estilos-de-vida/vacaciones-literarias-libros-turismo.html
 
-**Un sacerdote griego y su drone metal irrumpen en la escena musical**\
-`Dionysios Tabakis nunca se ha aventurado más allá de Turquía, pero este verano debutará en el escenario de un famoso festival en Filadelfia.`\
-https://www.nytimes.com/es/2026/06/20/espanol/cultura/sacerdote-griego-metal-dionysios-tabakis.html
-
