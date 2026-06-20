@@ -1,3 +1,7 @@
+**After Andy Burnham’s Win, the UK Is Set to Test How Far Charisma Can Shift Electoral Dynamics**\
+`The governing Labour Party may oust Prime Minister Keir Starmer in favor of the more popular Andy Burnham — who will still face all the same challenges.`\
+https://www.nytimes.com/2026/06/20/world/europe/burnham-starmer-labour-uk-reform.html
+
 **Trump Was Right. The War Ended With a Surrender.**\
 `Each generation seems destined to learn anew the lesson that when hawks declare that a war will be painless, beware.`\
 https://www.nytimes.com/2026/06/20/opinion/trump-iran-republicans-hormuz.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/06/20/espanol/estilos-de-vida/vacaciones-literar
 **Un sacerdote griego y su drone metal irrumpen en la escena musical**\
 `Dionysios Tabakis nunca se ha aventurado más allá de Turquía, pero este verano debutará en el escenario de un famoso festival en Filadelfia.`\
 https://www.nytimes.com/es/2026/06/20/espanol/cultura/sacerdote-griego-metal-dionysios-tabakis.html
-
-**What if You Root for the Other N.B.A. Team in New York?**\
-`The Knicks championship run has elated fans, but it has been a tough few weeks for supporters of the Nets. “I feel sick,” one Nets die-hard said.`\
-https://www.nytimes.com/2026/06/20/nyregion/knicks-championship-brooklyn-nets-nyc.html
 

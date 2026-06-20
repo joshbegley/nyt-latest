@@ -1,3 +1,7 @@
+**After Andy Burnham’s Win, the UK Is Set to Test How Far Charisma Can Shift Electoral Dynamics**\
+`The governing Labour Party may oust Prime Minister Keir Starmer in favor of the more popular Andy Burnham — who will still face all the same challenges.`\
+https://www.nytimes.com/2026/06/20/world/europe/burnham-starmer-labour-uk-reform.html
+
 **Trump Was Right. The War Ended With a Surrender.**\
 `Each generation seems destined to learn anew the lesson that when hawks declare that a war will be painless, beware.`\
 https://www.nytimes.com/2026/06/20/opinion/trump-iran-republicans-hormuz.html
