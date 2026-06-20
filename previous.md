@@ -194,7 +194,3 @@ https://www.nytimes.com/video/movies/100000010926521/why-toy-story-is-the-best-f
 `In “The Reverse Centaur’s Guide to Life After AI,” the renowned tech critic Cory Doctorow tries to find a good way to coexist with artificial intelligence.`\
 https://www.nytimes.com/2026/06/20/books/review/the-reverse-centaurs-guide-to-life-after-ai.html
 
-**A Humble 3-Wheel Electric Vehicle Lands Toyota in Federal Court**\
-`A lawsuit filed in California claims the automaker’s philanthropic arm stole technology intended to help poor farmers, but it is not clear to what end.`\
-https://www.nytimes.com/2026/06/20/business/toyota-africa-electric-vehicles-lawsuit.html
-
