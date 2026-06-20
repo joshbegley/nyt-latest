@@ -1,3 +1,7 @@
+**No End in Sight for U.S. Military Mission Along Border With Mexico**\
+`The patrols have helped push cartels and smugglers into more remote areas. But analysts have voiced concerns that the border missions will distract from training, drain resources and undermine readiness.`\
+https://www.nytimes.com/2026/06/20/us/politics/troops-border-mexico.html
+
 **South Korean Author Cho Nam-Joo on Self-Cultivation and Collective Change**\
 `I thought that my writing could be a small catalyst for bettering the lives of Korean women. Reality was much more complicated.`\
 https://www.nytimes.com/2026/06/20/special-series/cho-nam-joo-drive.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/20/business/afeela-automakers-spinoffs-brands.ht
 **Ruth Bader Ginsburg, Booker T. Washington and 6 Other Americans Who Shaped U.S. History**\
 `As America celebrates its 250th anniversary, The Times consulted scholars across the country to identify historical figures who influenced the United States — and whose legacies remain debated.`\
 https://www.nytimes.com/interactive/2026/06/20/us/america-250-historical-figures.html
-
-**¿Reducir la inflamación podría tratar la depresión?**\
-`Alrededor del 25 por ciento de las personas con depresión presentan niveles elevados de proteínas inflamatorias en la sangre.`\
-https://www.nytimes.com/es/2026/06/20/espanol/inflamacion-depresion.html
 
