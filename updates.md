@@ -1,3 +1,7 @@
+**‘A Literal Coverup’: What Is the Kennedy Center Hiding Behind Those Tarps?**\
+`The arts center says it pulled President Trump’s name from the building front. But the result remains hidden by tarps, prompting questions and speculation.`\
+https://www.nytimes.com/2026/06/19/us/politics/kennedy-center-trump.html
+
 **Amazon’s Movie Arm Abandons Film About OpenAI**\
 `The company, which invested $50 billion in the artificial intelligence start-up this year, will let the team behind the film, “Artificial,” try to sell the project to another studio.`\
 https://www.nytimes.com/2026/06/19/business/media/amazon-openai-artificial-movie-sam-altman.html
