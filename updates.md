@@ -1,3 +1,15 @@
+**South Korean Author Cho Nam-Joo on Self-Cultivation and Collective Change**\
+`I thought that my writing could be a small catalyst for bettering the lives of Korean women. Reality was much more complicated.`\
+https://www.nytimes.com/2026/06/20/special-series/cho-nam-joo-drive.html
+
+**Double Strawberry Shortcakes and Berry Sugar Cookie Bars for July 4**\
+`Sweet treats for the stars and stripes.`\
+https://www.nytimes.com/2026/06/20/dining/double-strawberry-shortcakes-and-berry-sugar-cookie-bars.html
+
+**Mideast Live Updates: Iranian Forces Say They Closed Strait of Hormuz**\
+`Iran’s military command blamed the U.S., saying it failed to prevent Israel from violating the cease-fire in Lebanon. JD Vance told Fox News that U.S. negotiators were in Switzerland, where talks had earlier been delayed.`\
+https://www.nytimes.com/live/2026/06/20/world/iran-trump-israel-lebanon
+
 **Danny McBride Thinks Men Learned All the Wrong Lessons From Movies**\
 `The writer and actor, known for his profane comedic antiheroes, likes to find universal truths in human flaws.`\
 https://www.nytimes.com/2026/06/20/magazine/danny-mcbride-interview.html
