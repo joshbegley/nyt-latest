@@ -1,4 +1,8 @@
-**New Strait of Hormuz Closure Threatens the Slow Uptick in Traffic**\
+**The Newsroom in D.C. Tries to Keep the Newsstand as a Shopping Destination**\
+`The Newsroom, overflowing with magazines and newspapers on mismatched shelves, has endured as a relic of a different Washington.`\
+https://www.nytimes.com/2026/06/20/us/politics/dc-newsstand-newsroom-newspapers-magazines.html
+
+**New Strait of Hormuz Closure Announcement Threatens the Slow Uptick in Traffic**\
 `Fifty-five ships had passed through the strait on Saturday, the U.S. military said. But then Iran’s military said it was closing the waterway once again.`\
 https://www.nytimes.com/2026/06/20/world/middleeast/iran-strait-of-hormuz-traffic.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/20/business/media/people-inc-ai-test-kitchen.htm
 **Steve-O Has Beef With Father Time**\
 `“It sucks for anybody to get old,” the “Jackass” stunt performer says, “but for Steve-O, I feel like it is categorically not OK.”`\
 https://www.nytimes.com/2026/06/20/movies/steve-o-jackass-movie.html
-
-**Trump Called Iván Cepeda a ‘Radical Left Marxist.’ Can He Be Colombia’s President?**\
-`Iván Cepeda was caught off guard by a right-wing outsider and anti-leftist anger. He tells The Times he is not giving up.`\
-https://www.nytimes.com/2026/06/20/world/americas/ivan-cepeda-colombia-president-election.html
 

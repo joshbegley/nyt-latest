@@ -1,3 +1,11 @@
+**New Strait of Hormuz Closure Threatens the Slow Uptick in Traffic**\
+`Fifty-five ships had passed through the strait on Saturday, the U.S. military said. But then Iran’s military said it was closing the waterway once again.`\
+https://www.nytimes.com/2026/06/20/world/middleeast/iran-strait-of-hormuz-traffic.html
+
+**‘A Deeply Anxious Personality’: 3 Opinion Writers on JD Vance’s New Book**\
+`Three Opinion writers share their views on “Communion,” the vice president’s new book.`\
+https://www.nytimes.com/2026/06/20/opinion/jd-vance-communion-trump.html
+
 **Mideast Live Updates: Strait of Hormuz Re-emerges as Point of Tension After Iran Says It’s Closed**\
 `Iran’s military command said it had closed the waterway over the continued fighting in Lebanon. But the U.S. military said traffic continued to flow. Still, the next phase of talks between Washington and Tehran appeared ready to start on Sunday.`\
 https://www.nytimes.com/live/2026/06/20/world/iran-trump-israel-lebanon
