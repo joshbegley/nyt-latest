@@ -1,3 +1,7 @@
+**¿Reducir la inflamación podría tratar la depresión?**\
+`Alrededor del 25 por ciento de las personas con depresión presentan niveles elevados de proteínas inflamatorias en la sangre.`\
+https://www.nytimes.com/es/2026/06/20/espanol/inflamacion-depresion.html
+
 **Los celulares parecen haber reducido la natalidad. Pero no nos engañemos**\
 `La crisis de fertilidad parece ser una crisis de conexión.`\
 https://www.nytimes.com/es/2026/06/20/espanol/opinion/telefonos-natalidad-conexion.html

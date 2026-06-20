@@ -1,3 +1,7 @@
+**¿Reducir la inflamación podría tratar la depresión?**\
+`Alrededor del 25 por ciento de las personas con depresión presentan niveles elevados de proteínas inflamatorias en la sangre.`\
+https://www.nytimes.com/es/2026/06/20/espanol/inflamacion-depresion.html
+
 **Los celulares parecen haber reducido la natalidad. Pero no nos engañemos**\
 `La crisis de fertilidad parece ser una crisis de conexión.`\
 https://www.nytimes.com/es/2026/06/20/espanol/opinion/telefonos-natalidad-conexion.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000010972501/why-arent-there-big-vocal
 **Catherine, Princess of Wales Questions Digital Screens’ Role in Children’s Lives**\
 `The princess published an essay Friday warning against a childhood “mediated by screens,” days after Britain announced a ban on social media for children under 16.`\
 https://www.nytimes.com/2026/06/19/world/europe/princess-kate-uk-children-social-media-ban.html
-
-**Moscow Refinery Blast May Have Been Caused by Friendly Fire, Video Suggests**\
-`Footage shows a Russian air defense missile traveling toward a fuel silo, which erupts in an explosion around the time of its arrival.`\
-https://www.nytimes.com/2026/06/19/world/europe/russia-moscow-missile-refinery.html
 
