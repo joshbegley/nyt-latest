@@ -1,3 +1,15 @@
+**Los celulares parecen haber reducido la natalidad. Pero no nos engañemos**\
+`La crisis de fertilidad parece ser una crisis de conexión.`\
+https://www.nytimes.com/es/2026/06/20/espanol/opinion/telefonos-natalidad-conexion.html
+
+**Las vacaciones literarias están de moda**\
+`Los clubes de lectura en sitios turísticos, las agencias de viajes, las bibliotecas de los hoteles y un número cada vez mayor de festivales ofrecen a los lectores nuevas formas de dar rienda suelta a sus intereses.`\
+https://www.nytimes.com/es/2026/06/20/espanol/estilos-de-vida/vacaciones-literarias-libros-turismo.html
+
+**Un sacerdote griego y su drone metal irrumpen en la escena musical**\
+`Dionysios Tabakis nunca se ha aventurado más allá de Turquía, pero este verano debutará en el escenario de un famoso festival en Filadelfia.`\
+https://www.nytimes.com/es/2026/06/20/espanol/cultura/sacerdote-griego-metal-dionysios-tabakis.html
+
 **What if You Root for the Other N.B.A. Team in New York?**\
 `The Knicks championship run has elated fans, but it has been a tough few weeks for supporters of the Nets. “I feel sick,” one Nets die-hard said.`\
 https://www.nytimes.com/2026/06/20/nyregion/knicks-championship-brooklyn-nets-nyc.html

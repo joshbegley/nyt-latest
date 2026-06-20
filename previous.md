@@ -1,3 +1,15 @@
+**Los celulares parecen haber reducido la natalidad. Pero no nos engañemos**\
+`La crisis de fertilidad parece ser una crisis de conexión.`\
+https://www.nytimes.com/es/2026/06/20/espanol/opinion/telefonos-natalidad-conexion.html
+
+**Las vacaciones literarias están de moda**\
+`Los clubes de lectura en sitios turísticos, las agencias de viajes, las bibliotecas de los hoteles y un número cada vez mayor de festivales ofrecen a los lectores nuevas formas de dar rienda suelta a sus intereses.`\
+https://www.nytimes.com/es/2026/06/20/espanol/estilos-de-vida/vacaciones-literarias-libros-turismo.html
+
+**Un sacerdote griego y su drone metal irrumpen en la escena musical**\
+`Dionysios Tabakis nunca se ha aventurado más allá de Turquía, pero este verano debutará en el escenario de un famoso festival en Filadelfia.`\
+https://www.nytimes.com/es/2026/06/20/espanol/cultura/sacerdote-griego-metal-dionysios-tabakis.html
+
 **What if You Root for the Other N.B.A. Team in New York?**\
 `The Knicks championship run has elated fans, but it has been a tough few weeks for supporters of the Nets. “I feel sick,” one Nets die-hard said.`\
 https://www.nytimes.com/2026/06/20/nyregion/knicks-championship-brooklyn-nets-nyc.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/19/world/europe/princess-kate-uk-children-social
 **Moscow Refinery Blast May Have Been Caused by Friendly Fire, Video Suggests**\
 `Footage shows a Russian air defense missile traveling toward a fuel silo, which erupts in an explosion around the time of its arrival.`\
 https://www.nytimes.com/2026/06/19/world/europe/russia-moscow-missile-refinery.html
-
-**Wii Bowling Takes Over Tulsa Retirement Homes**\
-`Retirement communities in Tulsa, Okla., compete against one another in a Nintendo Wii Sports bowling league.`\
-https://www.nytimes.com/video/health/100000010979921/wii-bowling-tulsa-seniors.html
-
-**Brian Large, Who Brought Opera Vividly to Life on Film, Dies at 89**\
-`In a directing career that included over 70 Met Opera broadcasts, he said his work was “dictated by the music, by key change, by orchestration, by phrasing.”`\
-https://www.nytimes.com/2026/06/19/arts/music/brian-large-dead.html
-
-**Trump se compara con Alejandro Magno y se enfada por los archivos Epstein, según un nuevo libro**\
-`El libro de Maggie Haberman y Jonathan Swan, reporteros de The New York Times, titulado “Regime Change”, revela detalles y conversaciones sorprendentes sobre las presiones del presidente para ampliar drásticamente su poder.`\
-https://www.nytimes.com/es/2026/06/19/espanol/estados-unidos/libro-trump-epstein-regime-change-haberman-swan.html
 
