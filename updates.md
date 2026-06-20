@@ -1,3 +1,11 @@
+**The Newsroom in D.C. Tries to Keep the Newsstand as a Shopping Destination**\
+`The Newsroom, overflowing with magazines and newspapers on mismatched shelves, has endured as a relic of a different Washington.`\
+https://www.nytimes.com/2026/06/20/us/politics/dc-newsstand-newsroom-newspapers-magazines.html
+
+**New Strait of Hormuz Closure Announcement Threatens the Slow Uptick in Traffic**\
+`Fifty-five ships had passed through the strait on Saturday, the U.S. military said. But then Iran’s military said it was closing the waterway once again.`\
+https://www.nytimes.com/2026/06/20/world/middleeast/iran-strait-of-hormuz-traffic.html
+
 **New Strait of Hormuz Closure Threatens the Slow Uptick in Traffic**\
 `Fifty-five ships had passed through the strait on Saturday, the U.S. military said. But then Iran’s military said it was closing the waterway once again.`\
 https://www.nytimes.com/2026/06/20/world/middleeast/iran-strait-of-hormuz-traffic.html
