@@ -58,7 +58,7 @@ https://www.nytimes.com/2026/06/20/world/canada/tim-hortons-prices-quebec-court.
 `The Israeli military said it had exchanged fire with Hezbollah overnight, hours after a new cease-fire came into effect. Clashes in Lebanon derailed U.S.-Iran peace talks planned for Friday.`\
 https://www.nytimes.com/live/2026/06/20/world/iran-trump-israel-lebanon
 
-**Danny McBride Is Not Above a Little Violence (or a Lot of It)**\
+**Danny McBride Thinks Men Learned All the Wrong Lessons From Movies**\
 `The writer and actor, known for his profane comedic antiheroes, likes to find universal truths in human flaws.`\
 https://www.nytimes.com/2026/06/20/magazine/danny-mcbride-interview.html
 
