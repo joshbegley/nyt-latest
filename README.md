@@ -1,4 +1,4 @@
-**Mideast Live Updates: Fighting Persists in Lebanon, Threatening Iran Peace Talks**\
+**Mideast Live Updates: Fighting Persists in Lebanon, Complicating Iran Peace Talks**\
 `The Israeli military said it had exchanged fire with Hezbollah overnight, hours after a new cease-fire came into effect. Clashes in Lebanon derailed U.S.-Iran peace talks planned for Friday.`\
 https://www.nytimes.com/live/2026/06/20/world/iran-trump-israel-lebanon
 
