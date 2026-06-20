@@ -1,3 +1,7 @@
+**‘Get Outta Here!’**\
+`Katie Hoody keeps the hits coming.`\
+https://www.nytimes.com/2026/06/19/crosswords/daily-puzzle-2026-06-20.html
+
 **Memo by Rubio Approved Detention of Immigrant Who Criticized Trump Ally**\
 `Secretary of State Marco Rubio said Beto Coral’s criticism of a presidential candidate in his home country of Colombia undermined U.S. foreign policy.`\
 https://www.nytimes.com/2026/06/19/us/rubio-beto-coral-colombia.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/politics/100000010969459/iran-strait-hormuz-min
 **Red Red (Pepper Stewed Beans)**\
 `A common dish served at homes in Ghana, by roadside vendors and in chop chop bars (cafes or canteens), this popular stew is enjoyed all year round.`\
 https://www.nytimes.com/video/dining/100000010979853/red-red-pepper-stewed-beans.html
-
-**Angel Hair Pasta Salad**\
-`Light, bouncy angel hair makes for a surprisingly stellar pasta salad. Dressed in a simple mayonnaise and vinegar dressing, a rainbow confetti of raw vegetables shines in this chill, endlessly adaptable recipe.`\
-https://www.nytimes.com/video/dining/100000010979894/angel-hair-pasta-salad.html
 
