@@ -1,3 +1,7 @@
+**3 Hikers Die at Grand Canyon Amid ‘Dangerous’ High Temperatures**\
+`The hikers died at Grand Canyon National Park in separate episodes as temperatures peaked above 100 degrees, the authorities said.`\
+https://www.nytimes.com/2026/06/20/us/three-hikers-heat-death-grand-canyon.html
+
 **How to Get Your Eyeliner Just Right**\
 `Tips on achieving a smudged, tight-lined or winged effect.`\
 https://www.nytimes.com/2026/06/20/t-magazine/beauty/how-to-do-your-eyeliner.html
