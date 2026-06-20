@@ -131,7 +131,7 @@ https://www.nytimes.com/2026/06/20/crosswords/strands-sidekick-840.html
 https://www.nytimes.com/2026/06/20/world/canada/tim-hortons-prices-quebec-court.html
 
 **Mideast Live Updates: Vance Heads to Talks as Strait of Hormuz Re-emerges as Point of Tension**\
-`The American vice president left for Switzerland on Saturday for the next round of negotiations with Iranian officials, even as fighting between Israel and Hezbollah in Lebanon threatened  efforts to reopen the Strait of Hormuz.`\
+`Vice President JD Vance said he would prioritize nuclear issues and renewed fighting in Lebanon in talks with an Iranian delegation in Switzerland. Shipping in the Strait of Hormuz faced new disruption after Iran’s military said it was closing the waterway.`\
 https://www.nytimes.com/live/2026/06/20/world/iran-trump-israel-lebanon
 
 **Danny McBride Thinks Men Learned All the Wrong Lessons From Movies**\

@@ -1,3 +1,7 @@
+**Mideast Live Updates: Vance Heads to Talks as Strait of Hormuz Re-emerges as Point of Tension**\
+`Vice President JD Vance said he would prioritize nuclear issues and renewed fighting in Lebanon in talks with an Iranian delegation in Switzerland. Shipping in the Strait of Hormuz faced new disruption after Iran’s military said it was closing the waterway.`\
+https://www.nytimes.com/live/2026/06/20/world/iran-trump-israel-lebanon
+
 **Man Is Arrested in Scotland After Rampage Leaves 5 Hurt**\
 `An advocacy group identified some of the victims as Muslims. Counterterrorism authorities are leading the investigation, but a motive for the attacks is so far unknown.`\
 https://www.nytimes.com/2026/06/20/world/europe/edinburgh-stabbing-arrest-injuries.html
