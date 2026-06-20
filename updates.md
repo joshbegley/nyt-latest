@@ -1,3 +1,7 @@
+**Canada’s postcard moment at the World Cup is more than the team’s victory.**\
+`(No description)`\
+https://www.nytimes.com/2026/06/20/world/canada/canadas-postcard-moment-at-the-world-cup-is-more-than-the-teams-victory.html
+
 **The Newsroom in D.C. Tries to Keep the Newsstand as a Shopping Destination**\
 `The Newsroom, overflowing with magazines and newspapers on mismatched shelves, has endured as a symbol of a different Washington.`\
 https://www.nytimes.com/2026/06/20/us/politics/dc-newsstand-newsroom-newspapers-magazines.html

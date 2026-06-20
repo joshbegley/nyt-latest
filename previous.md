@@ -1,3 +1,7 @@
+**Canada’s postcard moment at the World Cup is more than the team’s victory.**\
+`(No description)`\
+https://www.nytimes.com/2026/06/20/world/canada/canadas-postcard-moment-at-the-world-cup-is-more-than-the-teams-victory.html
+
 **The Newsroom in D.C. Tries to Keep the Newsstand as a Shopping Destination**\
 `The Newsroom, overflowing with magazines and newspapers on mismatched shelves, has endured as a symbol of a different Washington.`\
 https://www.nytimes.com/2026/06/20/us/politics/dc-newsstand-newsroom-newspapers-magazines.html
@@ -62,13 +66,13 @@ https://www.nytimes.com/2026/06/20/opinion/trump-iran-republicans-hormuz.html
 `Is deep-seated anxiety what’s driving JD Vance? The Opinion writer Michelle Cottle argues on “The Opinions” that the vice president’s new book, “Communion,” reveals that he remains trapped by childhood scars and a hypocritical obsession with the elite institutions he publicly denounces.`\
 https://www.nytimes.com/video/opinion/100000010971964/what-makes-jd-vance-tick.html
 
-**We Need to Keep Funding Weird Science**\
-`Science turned a serendipitous finding about lizard venom into one of the most important drugs of the century, but that type of research is getting harder to do.`\
-https://www.nytimes.com/2026/06/20/opinion/glp1-research-science-funding.html
-
 **‘A Deeply Anxious Personality’: 3 Opinion Writers on JD Vance’s New Book**\
 `Three Opinion writers share their views on “Communion,” the vice president’s new book.`\
 https://www.nytimes.com/2026/06/20/opinion/jd-vance-communion-trump.html
+
+**We Need to Keep Funding Weird Science**\
+`Science turned a serendipitous finding about lizard venom into one of the most important drugs of the century, but that type of research is getting harder to do.`\
+https://www.nytimes.com/2026/06/20/opinion/glp1-research-science-funding.html
 
 **Creature From the Green Lagoon**\
 `Trump’s slimy, stinky swamp within the swamp.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/20/well/breast-cancer-camp-survivors.html
 **The Giant Test Kitchen Where Cooks Battle A.I. Slop**\
 `People Inc., the home of Food & Wine and Southern Living, publishes more food content than anyone else. It’s pushing back against the bots with recipes from its culinary hub.`\
 https://www.nytimes.com/2026/06/20/business/media/people-inc-ai-test-kitchen.html
-
-**Steve-O Has Beef With Father Time**\
-`“It sucks for anybody to get old,” the “Jackass” stunt performer says, “but for Steve-O, I feel like it is categorically not OK.”`\
-https://www.nytimes.com/2026/06/20/movies/steve-o-jackass-movie.html
 
