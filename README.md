@@ -1,3 +1,7 @@
+**U.S. and Iran Offer Contradictory Statements on Strait of Hormuz**\
+`Iran’s military announced that it had closed the Strait of Hormuz around the same time on Saturday that Vice President JD Vance told Fox News the Trump administration had accomplished its goal of opening the strait.`\
+https://www.nytimes.com/video/world/middleeast/100000010981147/strait-hormuz-iran-trump-vance.html
+
 **Man Is Arrested in Scotland After Rampage Leaves 5 Hurt**\
 `An advocacy group identified some of the victims as Muslims. Counterterrorism authorities are leading the investigation, but a motive for the attacks is so far unknown.`\
 https://www.nytimes.com/2026/06/20/world/europe/edinburgh-stabbing-arrest-injuries.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/20/world/americas/colombia-election-abelardo-de-
 **Arizona Democrat’s Tough Past Fuels Pitch for a Key House Seat**\
 `JoAnna Mendoza, a Democrat challenging Representative Juan Ciscomani in a tossup district, is leaning into her painful and unique life story to appeal to voters.`\
 https://www.nytimes.com/2026/06/20/us/politics/arizona-democrats-tough-past-fuels-pitch-for-a-key-house-seat.html
-
-**Egg Prices Are Way Down, but That’s Hurting Farmers**\
-`An oversupply of hens has lowered wholesale egg prices. But consumers may not reap the full benefits because of producer contracts and higher costs.`\
-https://www.nytimes.com/2026/06/20/business/egg-prices-down.html
 
 **World Cup Updates: Smaller U.S. Cities Give Visiting Teams an Extra-Warm Embrace**\
 `(No description)`\
