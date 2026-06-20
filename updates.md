@@ -1,3 +1,15 @@
+**Danny McBride Is Not Above a Little Violence (or a Lot of It)**\
+`The writer and actor, known for his profane comedic antiheroes, likes to find universal truths in human flaws.`\
+https://www.nytimes.com/2026/06/20/magazine/danny-mcbride-interview.html
+
+**Elecciones de Colombia: ¿quién es Iván Cepeda, candidato de la izquierda?**\
+`A Iván Cepeda lo tomó por sorpresa un candidato de derecha poco convencional y la indignación contra los políticos de izquierda. En una entrevista con el Times dijo que no se va a rendir.`\
+https://www.nytimes.com/es/2026/06/20/espanol/america-latina/colombia-elecciones-ivan-cepeda.html
+
+**Abelardo de la Espriella, el ‘outsider’ derechista que podría ser presidente de Colombia**\
+`Es abogado penalista y empresario. Ha tenido un ascenso sorpresivo impulsado por una campaña populista autofinanciada, una intensa actividad en redes sociales y, recientemente, el respaldo de Trump.`\
+https://www.nytimes.com/es/2026/06/20/espanol/america-latina/elecciones-colombia-abelardo-de-la-espriella.html
+
 **World Leaders Awaited Iran Deal for Months. Here’s Why They’re Still Wary.**\
 `President Trump’s interim agreement with Iran raises hopes for the calming of the world economy. But it leaves many details for future negotiations, putting the world on edge.`\
 https://www.nytimes.com/2026/06/20/world/europe/world-iran-reaction.html
