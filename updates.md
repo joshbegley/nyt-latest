@@ -1,3 +1,7 @@
+**Former Gotti Associate Turned Councilman Arrested in Loan Scheme**\
+`John Alite, a borough council member in Englishtown, N.J., since 2025, had in recent years established himself as a man who learned from his mistakes.`\
+https://www.nytimes.com/2026/06/20/nyregion/john-alite-councilman-gambino-nj.html
+
 **Remains of 3 People Are Found in Foreclosed House After Sale**\
 `The house in Connecticut had not been inspected before a winning bid was made at an auction, according to court records. The buyer discovered the bodies after entering the premises.`\
 https://www.nytimes.com/2026/06/20/nyregion/connecticut-home-skeletal-remains.html

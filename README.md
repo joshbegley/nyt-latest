@@ -14,10 +14,6 @@ https://www.nytimes.com/2026/06/20/world/europe/gomez-spain-trial-corruption.htm
 `El proyecto para renovar el estanque reflectante se terminó hace casi dos semanas. Desde entonces, no ha sido más que un dolor de cabeza para el gobierno de Trump.`\
 https://www.nytimes.com/es/2026/06/20/espanol/estados-unidos/estanque-reflectante-algas.html
 
-**Canada’s postcard moment at the World Cup is more than the team’s victory.**\
-`(No description)`\
-https://www.nytimes.com/2026/06/20/world/canada/canadas-postcard-moment-at-the-world-cup-is-more-than-the-teams-victory.html
-
 **The Newsroom in D.C. Tries to Keep the Newsstand as a Shopping Destination**\
 `The Newsroom, overflowing with magazines and newspapers on mismatched shelves, has endured as a symbol of a different Washington.`\
 https://www.nytimes.com/2026/06/20/us/politics/dc-newsstand-newsroom-newspapers-magazines.html
@@ -197,4 +193,8 @@ https://www.nytimes.com/2026/06/20/movies/obsession-box-office-blair-witch-proje
 **Under a Turtle Shell, a Stunning New Home for Shakespeare**\
 `After 38 years in a tent, Hudson Valley Shakespeare opens one of the most spectacular outdoor performance spaces in the country.`\
 https://www.nytimes.com/2026/06/20/theater/hudson-valley-shakespeare-catskills.html
+
+**World Cup Updates: Smaller U.S. Cities Give Visiting Teams an Extra-Warm Embrace**\
+`(No description)`\
+https://www.nytimes.com/live/2026/us/fifa-world-cup
 
