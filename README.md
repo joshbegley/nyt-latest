@@ -1,3 +1,7 @@
+**New Strait of Hormuz Closure Threatens the Slow Uptick in Traffic**\
+`Fifty-five ships had passed through the strait on Saturday, the U.S. military said. But then Iran’s military said it was closing the waterway once again.`\
+https://www.nytimes.com/2026/06/20/world/middleeast/iran-strait-of-hormuz-traffic.html
+
 **François Englert, Nobelist Who Helped Predict the ‘God Particle,’ Dies at 93**\
 `His work paved the way for the discovery of the Higgs boson, which explained how particles acquire mass, solving one of the deepest mysteries in physics.`\
 https://www.nytimes.com/2026/06/20/science/francois-englert-dead.html
@@ -58,7 +62,7 @@ https://www.nytimes.com/video/opinion/100000010971964/what-makes-jd-vance-tick.h
 `Science turned a serendipitous finding about lizard venom into one of the most important drugs of the century, but that type of research is getting harder to do.`\
 https://www.nytimes.com/2026/06/20/opinion/glp1-research-science-funding.html
 
-**Will the Real JD Vance Please Stand Up?**\
+**‘A Deeply Anxious Personality’: 3 Opinion Writers on JD Vance’s New Book**\
 `Three Opinion writers share their views on “Communion,” the vice president’s new book.`\
 https://www.nytimes.com/2026/06/20/opinion/jd-vance-communion-trump.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/20/movies/steve-o-jackass-movie.html
 **Trump Called Iván Cepeda a ‘Radical Left Marxist.’ Can He Be Colombia’s President?**\
 `Iván Cepeda was caught off guard by a right-wing outsider and anti-leftist anger. He tells The Times he is not giving up.`\
 https://www.nytimes.com/2026/06/20/world/americas/ivan-cepeda-colombia-president-election.html
-
-**They Want to Be Better Fathers, One Braid at a Time**\
-`As millennial men take on more child care responsibilities, workshops are teaching dads how to style their daughters’ hair and challenging the norms of fatherhood.`\
-https://www.nytimes.com/2026/06/20/parenting/they-want-to-be-better-fathers-one-braid-at-a-time.html
 
