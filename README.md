@@ -1,3 +1,7 @@
+**U.S. and Iranian Officials to Meet for Peace Talks in Switzerland**\
+`The next phase of talks to end the war in Iran is expected to begin on Sunday amid fighting in Lebanon and renewed confusion over the Strait of Hormuz.`\
+https://www.nytimes.com/2026/06/20/world/middleeast/iran-peace-talks-switzerland.html
+
 **A 1973 Knicks Championship Banner and a Childhood Friendship Endure**\
 `Two retired New York City Sanitation Department workers, friends since grade school, dusted off a celebratory banner they carried in 1973, the last time the Knicks won a championship.`\
 https://www.nytimes.com/2026/06/20/nyregion/knicks-championship-banner-nyc-friends.html
@@ -6,8 +10,8 @@ https://www.nytimes.com/2026/06/20/nyregion/knicks-championship-banner-nyc-frien
 `Hannah Slovut-Einertson’s first Sunday puzzle for The Times presents a vertical challenge.`\
 https://www.nytimes.com/2026/06/20/crosswords/daily-puzzle-2026-06-21.html
 
-**Mona Kahlil, Defender of Sea Turtles, Killed in an Israel Strike in Lebanon**\
-`For a quarter century, Ms. Kahlil ran a guesthouse and worked to protect endangered sea turtles who every summer lay their eggs on a stretch of beach near Tyre, Lebanon.`\
+**Mona Khalil, Defender of Sea Turtles, Killed in an Israeli Strike in Lebanon**\
+`For a quarter century, Ms. Khalil ran a guesthouse and worked to protect endangered sea turtles who every summer lay their eggs on a stretch of beach near Tyre, Lebanon.`\
 https://www.nytimes.com/2026/06/20/world/middleeast/mona-kahlil-turtles-lebanon-conservation.html
 
 **U.S. and Iran Offer Contradictory Statements on Strait of Hormuz**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/20/arts/myopia-thomas-more-utopia.html
 **Disability Groups Fear RFK Jr.’s New Special Education Role**\
 `Alienated by Secretary Robert F. Kennedy Jr.’s claims about autism, advocates for disabled students are sounding the alarm about the Trump administration's shifting special education programs to his department.`\
 https://www.nytimes.com/2026/06/20/us/politics/special-education-rfk.html
-
-**A Scandinavian Answer to John Singer Sargent Gets Her Due**\
-`Dismissed for decades by critics as a mere “fashion portraitist” of high-society ladies, Asta Norregaard is now the subject of a major new retrospective at Oslo’s National Museum.`\
-https://www.nytimes.com/2026/06/20/arts/design/asta-norregaard-national-museum-oslo.html
 
 **World Cup Updates: Smaller U.S. Cities Give Visiting Teams an Extra-Warm Embrace**\
 `(No description)`\
