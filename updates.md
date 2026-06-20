@@ -1,3 +1,7 @@
+**Trump Was Right. The War Ended With a Surrender.**\
+`Each generation seems destined to learn anew the lesson that when hawks declare that a war will be painless, beware.`\
+https://www.nytimes.com/2026/06/20/opinion/trump-iran-republicans-hormuz.html
+
 **The War Ended With a Surrender — Trump’s**\
 `Each generation seems destined to learn anew the lesson that when hawks declare that a war will be painless, beware.`\
 https://www.nytimes.com/2026/06/20/opinion/trump-iran-republicans-hormuz.html
