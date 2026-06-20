@@ -67,7 +67,7 @@ https://www.nytimes.com/2026/06/20/crosswords/strands-sidekick-840.html
 https://www.nytimes.com/2026/06/20/world/canada/tim-hortons-prices-quebec-court.html
 
 **Mideast Live Updates: Iranian Forces Say They Closed Strait of Hormuz**\
-`Iran’s military command blamed the U.S., saying it failed to prevent Israel from violating the cease-fire in Lebanon. JD Vance told Fox News that U.S. negotiators were in Switzerland, where talks had earlier been delayed.`\
+`Iran’s military command blamed the U.S., saying it failed to prevent Israel from violating the cease-fire in Lebanon. Mediators in Pakistan said “technical talks” between the U.S. and Iran to end war would be held on Sunday.`\
 https://www.nytimes.com/live/2026/06/20/world/iran-trump-israel-lebanon
 
 **Danny McBride Thinks Men Learned All the Wrong Lessons From Movies**\
