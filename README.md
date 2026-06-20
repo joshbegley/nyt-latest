@@ -1,3 +1,7 @@
+**A 1973 Knicks Championship Banner and a Childhood Friendship Endure**\
+`Two retired New York City Sanitation Department workers, friends since grade school, dusted off a celebratory banner they carried in 1973, the last time the Knicks won a championship.`\
+https://www.nytimes.com/2026/06/20/nyregion/knicks-championship-banner-nyc-friends.html
+
 **Big Draw**\
 `Hannah Slovut-Einertson’s first Sunday puzzle for The Times presents a vertical challenge.`\
 https://www.nytimes.com/2026/06/20/crosswords/daily-puzzle-2026-06-21.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/20/us/politics/special-education-rfk.html
 **A Scandinavian Answer to John Singer Sargent Gets Her Due**\
 `Dismissed for decades by critics as a mere “fashion portraitist” of high-society ladies, Asta Norregaard is now the subject of a major new retrospective at Oslo’s National Museum.`\
 https://www.nytimes.com/2026/06/20/arts/design/asta-norregaard-national-museum-oslo.html
-
-**What Do Some of the Trendiest Books Have in Common? A Wolfgang Tillmans Photograph.**\
-`The work of Wolfgang Tillmans helps turn esoteric, sometimes experimental books into best-sellers — and covetable objets d’art.`\
-https://www.nytimes.com/2026/06/20/style/wolfgang-tillmans-book-covers.html
 
 **World Cup Updates: Smaller U.S. Cities Give Visiting Teams an Extra-Warm Embrace**\
 `(No description)`\
