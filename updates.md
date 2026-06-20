@@ -1,3 +1,7 @@
+**Mideast Live Updates: Vance Heads to Talks as Strait of Hormuz Re-emerges as Point of Tension**\
+`The American vice president left for Switzerland on Saturday for the next round of negotiations with Iranian officials, even as fighting between Israel and Hezbollah in Lebanon threatened  efforts to reopen the Strait of Hormuz.`\
+https://www.nytimes.com/live/2026/06/20/world/iran-trump-israel-lebanon
+
 **Huge Blaze Ravages Dominican Republic Beach Resort**\
 `The fire on Friday forced the emergency evacuation of nearly 1,700 guests. Authorities said at least one person, an Italian tourist, was killed.`\
 https://www.nytimes.com/2026/06/20/world/americas/dominican-republic-fire.html
