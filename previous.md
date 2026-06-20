@@ -1,3 +1,7 @@
+**François Englert, Nobelist Who Helped Predict the ‘God Particle,’ Dies at 93**\
+`His work paved the way for the discovery of the Higgs boson, which explained how particles acquire mass, solving one of the deepest mysteries in physics.`\
+https://www.nytimes.com/2026/06/20/science/francois-englert-dead.html
+
 **‘Agonizing for Everyone’: After IVF Mix-up, Birthing Couple Keeps Baby**\
 `One Florida couple discovered the baby they birthed did not come from their embryo, but they will retain custody in an agreement with the biological couple.`\
 https://www.nytimes.com/2026/06/20/us/ivf-baby-mixup.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/20/world/americas/ivan-cepeda-colombia-president
 **They Want to Be Better Fathers, One Braid at a Time**\
 `As millennial men take on more child care responsibilities, workshops are teaching dads how to style their daughters’ hair and challenging the norms of fatherhood.`\
 https://www.nytimes.com/2026/06/20/parenting/they-want-to-be-better-fathers-one-braid-at-a-time.html
-
-**The Sacred Catholic Site Where Trump Wants a Border Wall**\
-`The Trump administration is trying to seize the land around Mount Cristo Rey, a sacred site of Catholic pilgrimages, in order to build a border wall on it. The Times reporter Reis Thebault takes us up the mountain to see the 30-foot statue of Jesus at the top, and the border wall below.`\
-https://www.nytimes.com/video/us/100000010947570/the-sacred-catholic-site-where-trump-wants-a-border-wall.html
 
