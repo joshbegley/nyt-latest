@@ -46,13 +46,13 @@ https://www.nytimes.com/2026/06/20/opinion/trump-iran-republicans-hormuz.html
 `Is deep-seated anxiety what’s driving JD Vance? The Opinion writer Michelle Cottle argues on “The Opinions” that the vice president’s new book, “Communion,” reveals that he remains trapped by childhood scars and a hypocritical obsession with the elite institutions he publicly denounces.`\
 https://www.nytimes.com/video/opinion/100000010971964/what-makes-jd-vance-tick.html
 
-**Will the Real JD Vance Please Stand Up?**\
-`Three Opinion writers share their views on “Communion,” the vice president’s new book.`\
-https://www.nytimes.com/2026/06/20/opinion/jd-vance-communion-trump.html
-
 **We Need to Keep Funding Weird Science**\
 `Science turned a serendipitous finding about lizard venom into one of the most important drugs of the century, but that type of research is getting harder to do.`\
 https://www.nytimes.com/2026/06/20/opinion/glp1-research-science-funding.html
+
+**Will the Real JD Vance Please Stand Up?**\
+`Three Opinion writers share their views on “Communion,” the vice president’s new book.`\
+https://www.nytimes.com/2026/06/20/opinion/jd-vance-communion-trump.html
 
 **Creature From the Green Lagoon**\
 `Trump’s slimy, stinky swamp within the swamp.`\
