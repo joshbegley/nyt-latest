@@ -1,3 +1,7 @@
+**‘Agonizing for Everyone’: After IVF Mix-up, Birthing Couple Keeps Baby**\
+`One Florida couple discovered the baby they birthed did not come from their embryo, but they will retain custody in an agreement with the biological couple.`\
+https://www.nytimes.com/2026/06/20/us/ivf-baby-mixup.html
+
 **3 Hikers Die at Grand Canyon Amid ‘Dangerous’ High Temperatures**\
 `The hikers died at Grand Canyon National Park in separate episodes as temperatures peaked above 100 degrees, the authorities said.`\
 https://www.nytimes.com/2026/06/20/us/three-hikers-heat-death-grand-canyon.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/20/parenting/they-want-to-be-better-fathers-one-
 **The Sacred Catholic Site Where Trump Wants a Border Wall**\
 `The Trump administration is trying to seize the land around Mount Cristo Rey, a sacred site of Catholic pilgrimages, in order to build a border wall on it. The Times reporter Reis Thebault takes us up the mountain to see the 30-foot statue of Jesus at the top, and the border wall below.`\
 https://www.nytimes.com/video/us/100000010947570/the-sacred-catholic-site-where-trump-wants-a-border-wall.html
-
-**Cottage Cheese Shortages Are Driven by TikTok and ‘Protein-Maxxing’**\
-`TikTok and “protein-maxxing” are driving a cottage cheese squeeze that’s left some consumers desperate.`\
-https://www.nytimes.com/2026/06/20/business/cottage-cheese-shortage.html
 

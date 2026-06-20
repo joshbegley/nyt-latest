@@ -1,3 +1,7 @@
+**‘Agonizing for Everyone’: After IVF Mix-up, Birthing Couple Keeps Baby**\
+`One Florida couple discovered the baby they birthed did not come from their embryo, but they will retain custody in an agreement with the biological couple.`\
+https://www.nytimes.com/2026/06/20/us/ivf-baby-mixup.html
+
 **3 Hikers Die at Grand Canyon Amid ‘Dangerous’ High Temperatures**\
 `The hikers died at Grand Canyon National Park in separate episodes as temperatures peaked above 100 degrees, the authorities said.`\
 https://www.nytimes.com/2026/06/20/us/three-hikers-heat-death-grand-canyon.html
