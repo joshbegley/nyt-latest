@@ -1,3 +1,7 @@
+**Israel and Hezbollah Are Still Fighting, Several Cease-Fires Later**\
+`For the second time in two days, Lebanon was again at the center of whether the fragile U.S.-Iran deal would hold.`\
+https://www.nytimes.com/2026/06/20/world/middleeast/israel-and-hezbollah-are-still-fighting-several-cease-fires-later.html
+
 **Obama and Mamdani Show How It’s Done**\
 `Shadow commemorations in Chicago and New York.`\
 https://www.nytimes.com/2026/06/20/opinion/us-250-obama-library-mamdani-knicks-trump.html
