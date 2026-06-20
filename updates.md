@@ -1,4 +1,8 @@
 **Mideast Live Updates: Iranian Forces Say They Closed Strait of Hormuz**\
+`Iran’s military command blamed the U.S., saying it failed to prevent Israel from violating the cease-fire in Lebanon. Mediators in Pakistan said “technical talks” between the U.S. and Iran to end the war would be held on Sunday.`\
+https://www.nytimes.com/live/2026/06/20/world/iran-trump-israel-lebanon
+
+**Mideast Live Updates: Iranian Forces Say They Closed Strait of Hormuz**\
 `Iran’s military command blamed the U.S., saying it failed to prevent Israel from violating the cease-fire in Lebanon. Mediators in Pakistan said “technical talks” between the U.S. and Iran to end war would be held on Sunday.`\
 https://www.nytimes.com/live/2026/06/20/world/iran-trump-israel-lebanon
 
