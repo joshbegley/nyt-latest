@@ -1,3 +1,7 @@
+**Danny McBride Is Not Above a Little Violence (or a Lot of It)**\
+`The writer and actor, known for his profane comedic antiheroes, likes to find universal truths in human flaws.`\
+https://www.nytimes.com/2026/06/20/magazine/danny-mcbride-interview.html
+
 **Elecciones de Colombia: ¿quién es Iván Cepeda, candidato de la izquierda?**\
 `A Iván Cepeda lo tomó por sorpresa un candidato de derecha poco convencional y la indignación contra los políticos de izquierda. En una entrevista con el Times dijo que no se va a rendir.`\
 https://www.nytimes.com/es/2026/06/20/espanol/america-latina/colombia-elecciones-ivan-cepeda.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/19/crosswords/daily-puzzle-2026-06-20.html
 **Memo by Rubio Approved Detention of Immigrant Who Criticized Trump Ally**\
 `Secretary of State Marco Rubio said Beto Coral’s criticism of a presidential candidate in his home country of Colombia undermined U.S. foreign policy.`\
 https://www.nytimes.com/2026/06/19/us/rubio-beto-coral-colombia.html
-
-**Seattle Is Now a World Cup Draw: ‘Just a Great Soccer City’**\
-`Seattle has become a leading American soccer city with successful professional franchises and a devoted fan base.`\
-https://www.nytimes.com/2026/06/19/us/seattle-world-cup-fans.html
 
