@@ -1,3 +1,55 @@
+**World Leaders Awaited Iran Deal for Months. Here’s Why They’re Still Wary.**\
+`President Trump’s interim agreement with Iran raises hopes for the calming of the world economy. But it leaves many details for future negotiations, putting the world on edge.`\
+https://www.nytimes.com/2026/06/20/world/europe/world-iran-reaction.html
+
+**Corrections: June 20, 2026**\
+`Corrections that appeared in print on Saturday, June 20, 2026.`\
+https://www.nytimes.com/2026/06/20/pageoneplus/corrections-june-20-2026.html
+
+**Tyla, FKA Twigs: Songs to Know This Week**\
+`Uplift for Juneteenth from Allison Russell, tangled love songs from Tyla and FKA twigs, and more.`\
+https://www.nytimes.com/2026/06/20/arts/music/tyla-fka-twigs-steve-lacy-songs.html
+
+**Mines, Logistics and Deep Uncertainty Threaten a Middle East Oil Rebound**\
+`More oil is getting out of the Persian Gulf, but the region’s producers are looking for signs that it is safe as they ramp up plans for alternative routes.`\
+https://www.nytimes.com/2026/06/20/business/iran-us-persian-gulf-oil-production.html
+
+**The Newest Wing in the City’s Oldest Museum Celebrates Democracy**\
+`The New York Historical’s expansive Tang Wing highlights the role of protest for America’s 250th anniversary.`\
+https://www.nytimes.com/2026/06/20/arts/the-newest-wing-in-the-citys-oldest-museum-celebrates-democracy.html
+
+**A Nearsighted Artist Changed Her View and Found Paradise**\
+`A nearsighted artist with a solitary streak stumbled on a world of cultural experiences and authentic connections after years of taking refuge in her bookshelves.`\
+https://www.nytimes.com/2026/06/20/arts/myopia-thomas-more-utopia.html
+
+**Disability Groups Fear RFK Jr.’s New Special Education Role**\
+`Alienated by Secretary Robert F. Kennedy Jr.’s claims about autism, advocates for disabled students are sounding the alarm about the Trump administration's shifting special education programs to his department.`\
+https://www.nytimes.com/2026/06/20/us/politics/special-education-rfk.html
+
+**A Scandinavian Answer to John Singer Sargent Gets Her Due**\
+`Dismissed for decades by critics as a mere “fashion portraitist” of high-society ladies, Asta Norregaard is now the subject of a major new retrospective at Oslo’s National Museum.`\
+https://www.nytimes.com/2026/06/20/arts/design/asta-norregaard-national-museum-oslo.html
+
+**What Do Some of the Trendiest Books Have in Common? A Wolfgang Tillmans Photograph.**\
+`The work of Wolfgang Tillmans helps turn esoteric, sometimes experimental books into best-sellers — and covetable objets d’art.`\
+https://www.nytimes.com/2026/06/20/style/wolfgang-tillmans-book-covers.html
+
+**Arizona Democrat’s Tough Past Fuels Pitch for a Key House Seat**\
+`JoAnna Mendoza, a Democrat challenging Representative Juan Ciscomani in a tossup district, is leaning into her painful and unique life story to appeal to voters.`\
+https://www.nytimes.com/2026/06/20/us/politics/arizona-democrats-tough-past-fuels-pitch-for-a-key-house-seat.html
+
+**Abelardo De La Espriella, Right-Wing Outsider, Could Be Colombia’s Next President**\
+`President Trump endorsed Abelardo De La Espriella, the conservative presidential candidate in Sunday’s election who has strong U.S. ties.`\
+https://www.nytimes.com/2026/06/20/world/americas/colombia-election-abelardo-de-la-espriella.html
+
+**Egg Prices Are Way Down, but That’s Hurting Farmers**\
+`An oversupply of hens has lowered wholesale egg prices. But consumers may not reap the full benefits because of producer contracts and higher costs.`\
+https://www.nytimes.com/2026/06/20/business/egg-prices-down.html
+
+**‘Obsession’ Is a Surprise Blockbuster. Who Gets the Profits?**\
+`As the breakout horror hit crosses $300 million at the global box office, its art director set off a debate about just compensation for crew members.`\
+https://www.nytimes.com/2026/06/20/movies/obsession-box-office-blair-witch-project-hamilton.html
+
 **Under a Turtle Shell, a Stunning New Home for Shakespeare**\
 `After 38 years in a tent, Hudson Valley Shakespeare opens one of the most spectacular outdoor performance spaces in the country.`\
 https://www.nytimes.com/2026/06/20/theater/hudson-valley-shakespeare-catskills.html
@@ -145,56 +197,4 @@ https://www.nytimes.com/2026/06/19/us/politics/kennedy-center-trump.html
 **Amazon’s Movie Arm Abandons Film About OpenAI**\
 `The company, which invested $50 billion in the artificial intelligence start-up this year, will let the team behind the film, “Artificial,” try to sell the project to another studio.`\
 https://www.nytimes.com/2026/06/19/business/media/amazon-openai-artificial-movie-sam-altman.html
-
-**A New Air Force One, via Qatar, Nears Its First Presidential Flight**\
-`President Trump showed off the new red, white and blue Boeing 747, a gift from Qatar that prompted a storm of criticism from lawmakers, before a flyover on July 4.`\
-https://www.nytimes.com/2026/06/19/us/politics/new-air-force-one-trump.html
-
-**The Reflecting Pool Appears to Be Rejecting Its Makeover**\
-`As National Park Service crews try to clean the algae that turned the water bright green, another problem has developed: The “American flag blue” coating is coming off.`\
-https://www.nytimes.com/2026/06/19/us/politics/reflecting-pool-paint-algae.html
-
-**Washington Reenactors**\
-`Washington Reenactors`\
-https://static01.nyt.com/slideshow/2026/06/19/opinion/washington-reenactors.html
-
-**James Bradley, Co-Author of ‘Flags of Our Fathers,’ Dies at 72**\
-`His best-selling book celebrated the servicemen in the stirring photograph of the U.S. flag-raising on Iwo Jima. One, it was long believed, was his father.`\
-https://www.nytimes.com/2026/06/19/us/james-bradley-dead.html
-
-**Moscow Tanker Blast Most Likely Russian Missile, Video Shows**\
-`A dramatic explosion that caused the lid of an oil tanker to fly into the sky during a Ukrainian aerial assault on Moscow was most likely caused by a Russian air defense missile, verified video shows.`\
-https://www.nytimes.com/video/world/europe/100000010980052/moscow-tanker-blast-likely-russian-missile.html
-
-**Two Trains Collide Near Bedford, England, on Friday**\
-`At least one person was killed and a “number of people” were injured after two passenger trains crashed in south-central England on Friday, the authorities said.`\
-https://www.nytimes.com/video/world/europe/100000010980536/trains-crash-uk.html
-
-**California Sheriff’s Deputy Is Charged in Fatal On-Duty Crash**\
-`The deputy was responding to a call, driving at about 100 miles per hour, when he struck a Tesla, killing its driver and severely injuring his fiancée, the authorities said.`\
-https://www.nytimes.com/2026/06/19/us/california-deputy-charged-manslaughter-crash.html
-
-**Trump Shifts Stance in South Carolina After Losses in Governor’s Races**\
-`On Friday the president made the unusual move of endorsing both candidates in the Republican runoff for South Carolina governor, after initially supporting one of them.`\
-https://www.nytimes.com/2026/06/19/us/trump-shifts-endorsement-south-carolina-governor.html
-
-**Scottish Soccer Invasion in Boston for the World Cup**\
-`Thousands of Scottish soccer fans descended upon Boston to watch their team play in the World Cup for the first time in nearly 30 years. Scotland beat Haiti 1-0 in the first round at Gillette Stadium.`\
-https://www.nytimes.com/video/sports/world-cup/100000010979825/boston-scotland-soccer-tartan-army.html
-
-**Ruling in Missouri Restores Access to Medication Abortions**\
-`The court found that dozens of state laws undermined a state constitutional amendment that guaranteed reproductive rights. The state vowed to appeal the finding.`\
-https://www.nytimes.com/2026/06/19/us/missouri-abortion-access-ruling.html
-
-**Lebanon Emerges as Weak Link in U.S.-Iran Deal to End War**\
-`The conflict between Israel and Hezbollah, once seen as a secondary front to the American-Israeli war on Iran, has become one of the main obstacles to ending it.`\
-https://www.nytimes.com/2026/06/19/world/middleeast/lebanon-us-iran-deal-ceasefire.html
-
-**Trains Collide in UK, Killing at Least One and Injuring Dozens of Others**\
-`At least one person was killed and dozens of others were injured in the crash near Bedford, England, the authorities said.`\
-https://www.nytimes.com/2026/06/19/world/europe/uk-trains-collide-bedford-england.html
-
-**Israel Is Likely to Continue Attacks in Lebanon, U.S. Intelligence Concludes**\
-`The new cease-fire between the United States and Iran calls for an end to fighting in Lebanon, but U.S. intelligence officials do not expect Israel to halt its strikes on Hezbollah.`\
-https://www.nytimes.com/2026/06/19/us/politics/israel-lebanon-trump-cease-fire.html
 
