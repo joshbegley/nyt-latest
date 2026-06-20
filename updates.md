@@ -1,3 +1,7 @@
+**What We Know About the Los Angeles Warehouse Fire**\
+`The fire began in a cold-storage facility in the Boyle Heights neighborhood and was still burning on Saturday, prompting a local emergency declaration.`\
+https://www.nytimes.com/2026/06/20/us/what-we-know-about-the-los-angeles-warehouse-fire.html
+
 **U.S. and Iranian Officials to Meet for Peace Talks in Switzerland**\
 `The next phase of talks to end the war in Iran is expected to begin on Sunday amid fighting in Lebanon and renewed confusion over the Strait of Hormuz.`\
 https://www.nytimes.com/2026/06/20/world/middleeast/iran-peace-talks-switzerland.html

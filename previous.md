@@ -1,3 +1,7 @@
+**What We Know About the Los Angeles Warehouse Fire**\
+`The fire began in a cold-storage facility in the Boyle Heights neighborhood and was still burning on Saturday, prompting a local emergency declaration.`\
+https://www.nytimes.com/2026/06/20/us/what-we-know-about-the-los-angeles-warehouse-fire.html
+
 **U.S. and Iranian Officials to Meet for Peace Talks in Switzerland**\
 `The next phase of talks to end the war in Iran is expected to begin on Sunday amid fighting in Lebanon and renewed confusion over the Strait of Hormuz.`\
 https://www.nytimes.com/2026/06/20/world/middleeast/iran-peace-talks-switzerland.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/20/arts/the-newest-wing-in-the-citys-oldest-muse
 **A Nearsighted Artist Changed Her View and Found Paradise**\
 `A nearsighted artist with a solitary streak stumbled on a world of cultural experiences and authentic connections after years of taking refuge in her bookshelves.`\
 https://www.nytimes.com/2026/06/20/arts/myopia-thomas-more-utopia.html
-
-**Disability Groups Fear RFK Jr.’s New Special Education Role**\
-`Alienated by Secretary Robert F. Kennedy Jr.’s claims about autism, advocates for disabled students are sounding the alarm about the Trump administration's shifting special education programs to his department.`\
-https://www.nytimes.com/2026/06/20/us/politics/special-education-rfk.html
 
 **World Cup Updates: Smaller U.S. Cities Give Visiting Teams an Extra-Warm Embrace**\
 `(No description)`\
