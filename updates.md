@@ -1,3 +1,7 @@
+**World Cup Updates: Smaller U.S. Cities Give Visiting Teams an Extra-Warm Embrace**\
+`(No description)`\
+https://www.nytimes.com/live/2026/us/fifa-world-cup
+
 **Former Gotti Associate Turned Councilman Arrested in Loan Scheme**\
 `John Alite, a borough council member in Englishtown, N.J., since 2025, had in recent years established himself as a man who learned from his mistakes.`\
 https://www.nytimes.com/2026/06/20/nyregion/john-alite-councilman-gambino-nj.html
