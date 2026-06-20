@@ -1,3 +1,7 @@
+**Bowen Yang’s Mom’s Mapo Tofu**\
+`Spicy, tingly, savory perfection.`\
+https://www.nytimes.com/2026/06/20/dining/bowen-yangs-moms-mapo-tofu.html
+
 **No End in Sight for U.S. Military Mission Along Border With Mexico**\
 `The patrols have helped push cartels and smugglers into more remote areas. But analysts have voiced concerns that the border missions will distract from training, drain resources and undermine readiness.`\
 https://www.nytimes.com/2026/06/20/us/politics/troops-border-mexico.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/20/business/toyota-africa-electric-vehicles-laws
 **For New Car Brands, the Path to Success Is Littered With Flops**\
 `Honda and Sony have bailed on Afeela, their joint E.V. project, without selling a single car. Subbrands from big automakers have a shaky track record, but leaning into luxury can help.`\
 https://www.nytimes.com/2026/06/20/business/afeela-automakers-spinoffs-brands.html
-
-**Ruth Bader Ginsburg, Booker T. Washington and 6 Other Americans Who Shaped U.S. History**\
-`As America celebrates its 250th anniversary, The Times consulted scholars across the country to identify historical figures who influenced the United States — and whose legacies remain debated.`\
-https://www.nytimes.com/interactive/2026/06/20/us/america-250-historical-figures.html
 

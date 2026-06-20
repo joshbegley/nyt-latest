@@ -1,3 +1,11 @@
+**Double Strawberry Shortcakes and Berry Sugar Cookie Bars for July 4**\
+`Sweet treats for the stars and stripes.`\
+https://www.nytimes.com/2026/06/20/dining/fourth-of-july-party-desserts.html
+
+**Shipping remains far below prewar levels in the Strait of Hormuz.**\
+`A preliminary U.S.-Iran deal took steps to reopen the vital waterway, but traffic remains erratic.`\
+https://www.nytimes.com/2026/06/20/world/middleeast/shipping-remains-far-below-prewar-levels-in-the-strait-of-hormuz.html
+
 **Mideast Live Updates: Iranian Forces Say They Closed Strait of Hormuz**\
 `Iran’s military command blamed the U.S., saying it failed to prevent Israel from violating the cease-fire in Lebanon. Mediators in Pakistan said “technical talks” between the U.S. and Iran to end the war would be held on Sunday.`\
 https://www.nytimes.com/live/2026/06/20/world/iran-trump-israel-lebanon
