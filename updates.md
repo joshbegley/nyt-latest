@@ -1,3 +1,7 @@
+**El estanque reflectante del monumento a Lincoln parece rechazar su cambio de imagen**\
+`El proyecto para renovar el estanque reflectante se terminó hace casi dos semanas. Desde entonces, no ha sido más que un dolor de cabeza para el gobierno de Trump.`\
+https://www.nytimes.com/es/2026/06/20/espanol/estados-unidos/estanque-reflectante-algas.html
+
 **Canada’s postcard moment at the World Cup is more than the team’s victory.**\
 `(No description)`\
 https://www.nytimes.com/2026/06/20/world/canada/canadas-postcard-moment-at-the-world-cup-is-more-than-the-teams-victory.html

@@ -1,3 +1,7 @@
+**El estanque reflectante del monumento a Lincoln parece rechazar su cambio de imagen**\
+`El proyecto para renovar el estanque reflectante se terminó hace casi dos semanas. Desde entonces, no ha sido más que un dolor de cabeza para el gobierno de Trump.`\
+https://www.nytimes.com/es/2026/06/20/espanol/estados-unidos/estanque-reflectante-algas.html
+
 **Canada’s postcard moment at the World Cup is more than the team’s victory.**\
 `(No description)`\
 https://www.nytimes.com/2026/06/20/world/canada/canadas-postcard-moment-at-the-world-cup-is-more-than-the-teams-victory.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/insider/100000010962049/how-a-new-york-politics-re
 **At Camp Breastie, Everyone Knows What It Means to Have Cancer**\
 `The annual, four-day retreat in Pennsylvania, attended by hundreds of breast cancer survivors, has become so popular that organizers plan to add a West Coast location.`\
 https://www.nytimes.com/2026/06/20/well/breast-cancer-camp-survivors.html
-
-**The Giant Test Kitchen Where Cooks Battle A.I. Slop**\
-`People Inc., the home of Food & Wine and Southern Living, publishes more food content than anyone else. It’s pushing back against the bots with recipes from its culinary hub.`\
-https://www.nytimes.com/2026/06/20/business/media/people-inc-ai-test-kitchen.html
 
