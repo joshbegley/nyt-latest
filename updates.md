@@ -1,3 +1,7 @@
+**Mideast Live Updates: Strait of Hormuz Re-emerges as Flashpoint After Iran Says It’s Closed**\
+`Iran’s military command said it had closed the waterway over the continued fighting in Lebanon. But the U.S. military said traffic continued to flow. Still, the next phase of talks between Washington and Tehran appeared ready to start on Sunday.`\
+https://www.nytimes.com/live/2026/06/20/world/iran-trump-israel-lebanon
+
 **‘Agonizing for Everyone’: After IVF Mix-up, Birthing Couple Keeps Baby**\
 `One Florida couple discovered the baby they birthed did not come from their embryo, but they will retain custody in an agreement with the biological couple.`\
 https://www.nytimes.com/2026/06/20/us/ivf-baby-mixup.html
