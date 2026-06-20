@@ -114,13 +114,13 @@ https://www.nytimes.com/2026/06/20/arts/design/asta-norregaard-national-museum-o
 `The work of Wolfgang Tillmans helps turn esoteric, sometimes experimental books into best-sellers — and covetable objets d’art.`\
 https://www.nytimes.com/2026/06/20/style/wolfgang-tillmans-book-covers.html
 
-**Arizona Democrat’s Tough Past Fuels Pitch for a Key House Seat**\
-`JoAnna Mendoza, a Democrat challenging Representative Juan Ciscomani in a tossup district, is leaning into her painful and unique life story to appeal to voters.`\
-https://www.nytimes.com/2026/06/20/us/politics/arizona-democrats-tough-past-fuels-pitch-for-a-key-house-seat.html
-
 **Abelardo De La Espriella, Right-Wing Outsider, Could Be Colombia’s Next President**\
 `President Trump endorsed Abelardo De La Espriella, the conservative presidential candidate in Sunday’s election who has strong U.S. ties.`\
 https://www.nytimes.com/2026/06/20/world/americas/colombia-election-abelardo-de-la-espriella.html
+
+**Arizona Democrat’s Tough Past Fuels Pitch for a Key House Seat**\
+`JoAnna Mendoza, a Democrat challenging Representative Juan Ciscomani in a tossup district, is leaning into her painful and unique life story to appeal to voters.`\
+https://www.nytimes.com/2026/06/20/us/politics/arizona-democrats-tough-past-fuels-pitch-for-a-key-house-seat.html
 
 **Egg Prices Are Way Down, but That’s Hurting Farmers**\
 `An oversupply of hens has lowered wholesale egg prices. But consumers may not reap the full benefits because of producer contracts and higher costs.`\
