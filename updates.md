@@ -1,3 +1,55 @@
+**World Leaders Awaited Iran Deal for Months. Here’s Why They’re Still Wary.**\
+`President Trump’s interim agreement with Iran raises hopes for the calming of the world economy. But it leaves many details for future negotiations, putting the world on edge.`\
+https://www.nytimes.com/2026/06/20/world/europe/world-iran-reaction.html
+
+**Corrections: June 20, 2026**\
+`Corrections that appeared in print on Saturday, June 20, 2026.`\
+https://www.nytimes.com/2026/06/20/pageoneplus/corrections-june-20-2026.html
+
+**Tyla, FKA Twigs: Songs to Know This Week**\
+`Uplift for Juneteenth from Allison Russell, tangled love songs from Tyla and FKA twigs, and more.`\
+https://www.nytimes.com/2026/06/20/arts/music/tyla-fka-twigs-steve-lacy-songs.html
+
+**Mines, Logistics and Deep Uncertainty Threaten a Middle East Oil Rebound**\
+`More oil is getting out of the Persian Gulf, but the region’s producers are looking for signs that it is safe as they ramp up plans for alternative routes.`\
+https://www.nytimes.com/2026/06/20/business/iran-us-persian-gulf-oil-production.html
+
+**The Newest Wing in the City’s Oldest Museum Celebrates Democracy**\
+`The New York Historical’s expansive Tang Wing highlights the role of protest for America’s 250th anniversary.`\
+https://www.nytimes.com/2026/06/20/arts/the-newest-wing-in-the-citys-oldest-museum-celebrates-democracy.html
+
+**A Nearsighted Artist Changed Her View and Found Paradise**\
+`A nearsighted artist with a solitary streak stumbled on a world of cultural experiences and authentic connections after years of taking refuge in her bookshelves.`\
+https://www.nytimes.com/2026/06/20/arts/myopia-thomas-more-utopia.html
+
+**Disability Groups Fear RFK Jr.’s New Special Education Role**\
+`Alienated by Secretary Robert F. Kennedy Jr.’s claims about autism, advocates for disabled students are sounding the alarm about the Trump administration's shifting special education programs to his department.`\
+https://www.nytimes.com/2026/06/20/us/politics/special-education-rfk.html
+
+**A Scandinavian Answer to John Singer Sargent Gets Her Due**\
+`Dismissed for decades by critics as a mere “fashion portraitist” of high-society ladies, Asta Norregaard is now the subject of a major new retrospective at Oslo’s National Museum.`\
+https://www.nytimes.com/2026/06/20/arts/design/asta-norregaard-national-museum-oslo.html
+
+**What Do Some of the Trendiest Books Have in Common? A Wolfgang Tillmans Photograph.**\
+`The work of Wolfgang Tillmans helps turn esoteric, sometimes experimental books into best-sellers — and covetable objets d’art.`\
+https://www.nytimes.com/2026/06/20/style/wolfgang-tillmans-book-covers.html
+
+**Arizona Democrat’s Tough Past Fuels Pitch for a Key House Seat**\
+`JoAnna Mendoza, a Democrat challenging Representative Juan Ciscomani in a tossup district, is leaning into her painful and unique life story to appeal to voters.`\
+https://www.nytimes.com/2026/06/20/us/politics/arizona-democrats-tough-past-fuels-pitch-for-a-key-house-seat.html
+
+**Abelardo De La Espriella, Right-Wing Outsider, Could Be Colombia’s Next President**\
+`President Trump endorsed Abelardo De La Espriella, the conservative presidential candidate in Sunday’s election who has strong U.S. ties.`\
+https://www.nytimes.com/2026/06/20/world/americas/colombia-election-abelardo-de-la-espriella.html
+
+**Egg Prices Are Way Down, but That’s Hurting Farmers**\
+`An oversupply of hens has lowered wholesale egg prices. But consumers may not reap the full benefits because of producer contracts and higher costs.`\
+https://www.nytimes.com/2026/06/20/business/egg-prices-down.html
+
+**‘Obsession’ Is a Surprise Blockbuster. Who Gets the Profits?**\
+`As the breakout horror hit crosses $300 million at the global box office, its art director set off a debate about just compensation for crew members.`\
+https://www.nytimes.com/2026/06/20/movies/obsession-box-office-blair-witch-project-hamilton.html
+
 **Under a Turtle Shell, a Stunning New Home for Shakespeare**\
 `After 38 years in a tent, Hudson Valley Shakespeare opens one of the most spectacular outdoor performance spaces in the country.`\
 https://www.nytimes.com/2026/06/20/theater/hudson-valley-shakespeare-catskills.html

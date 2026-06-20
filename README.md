@@ -1,3 +1,11 @@
+**Elecciones de Colombia: ¿quién es Iván Cepeda, candidato de la izquierda?**\
+`A Iván Cepeda lo tomó por sorpresa un candidato de derecha poco convencional y la indignación contra los políticos de izquierda. En una entrevista con el Times dijo que no se va a rendir.`\
+https://www.nytimes.com/es/2026/06/20/espanol/america-latina/colombia-elecciones-ivan-cepeda.html
+
+**Abelardo de la Espriella, el ‘outsider’ derechista que podría ser presidente de Colombia**\
+`Es abogado penalista y empresario. Ha tenido un ascenso sorpresivo impulsado por una campaña populista autofinanciada, una intensa actividad en redes sociales y, recientemente, el respaldo de Trump.`\
+https://www.nytimes.com/es/2026/06/20/espanol/america-latina/elecciones-colombia-abelardo-de-la-espriella.html
+
 **World Leaders Awaited Iran Deal for Months. Here’s Why They’re Still Wary.**\
 `President Trump’s interim agreement with Iran raises hopes for the calming of the world economy. But it leaves many details for future negotiations, putting the world on edge.`\
 https://www.nytimes.com/2026/06/20/world/europe/world-iran-reaction.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/19/us/rubio-beto-coral-colombia.html
 **Seattle Is Now a World Cup Draw: ‘Just a Great Soccer City’**\
 `Seattle has become a leading American soccer city with successful professional franchises and a devoted fan base.`\
 https://www.nytimes.com/2026/06/19/us/seattle-world-cup-fans.html
-
-**‘A Literal Coverup’: What Is the Kennedy Center Hiding Behind Those Tarps?**\
-`The arts center says it pulled President Trump’s name from the building front. But the result remains hidden by tarps, prompting questions and speculation.`\
-https://www.nytimes.com/2026/06/19/us/politics/kennedy-center-trump.html
-
-**Amazon’s Movie Arm Abandons Film About OpenAI**\
-`The company, which invested $50 billion in the artificial intelligence start-up this year, will let the team behind the film, “Artificial,” try to sell the project to another studio.`\
-https://www.nytimes.com/2026/06/19/business/media/amazon-openai-artificial-movie-sam-altman.html
 
