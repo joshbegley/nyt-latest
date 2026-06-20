@@ -1,3 +1,7 @@
+**Memo by Rubio Approved Detention of Immigrant Who Criticized Trump Ally**\
+`Secretary of State Marco Rubio said Beto Coral’s criticism of a presidential candidate in his home country of Colombia undermined U.S. foreign policy.`\
+https://www.nytimes.com/2026/06/19/us/rubio-beto-coral-colombia.html
+
 **Seattle Is Now a World Cup Draw: ‘Just a Great Soccer City’**\
 `Seattle has become a leading American soccer city with successful professional franchises and a devoted fan base.`\
 https://www.nytimes.com/2026/06/19/us/seattle-world-cup-fans.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/dining/100000010979853/red-red-pepper-stewed-beans
 **Angel Hair Pasta Salad**\
 `Light, bouncy angel hair makes for a surprisingly stellar pasta salad. Dressed in a simple mayonnaise and vinegar dressing, a rainbow confetti of raw vegetables shines in this chill, endlessly adaptable recipe.`\
 https://www.nytimes.com/video/dining/100000010979894/angel-hair-pasta-salad.html
-
-**Blueberry Almond Lemon Cake and More Popular Recipes**\
-`And more of our most popular recipes from the week.`\
-https://www.nytimes.com/2026/06/19/dining/have-you-made-this-blueberry-lemon-loaf-cake-yet.html
 
