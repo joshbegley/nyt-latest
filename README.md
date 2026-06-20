@@ -1,3 +1,7 @@
+**El dolor de cuidar a un padre que te maltrató**\
+`Millones de adultos en EE. UU. cuidan a padres que abusaron de ellos en la infancia, atrapados entre la culpa, la obligación y un sistema de salud que no ofrece alternativas.`\
+https://www.nytimes.com/es/2026/06/20/espanol/estados-unidos/cuidados-padres-mayores-abuso.html
+
 **L.A.P.D. Releases Bodycam Footage of Officer Shooting a Knicks Fan’s Dog**\
 `The killing of the dog last Saturday sparked an international outcry and prompted questions about the use of force by police officers.`\
 https://www.nytimes.com/2026/06/20/us/los-angeles-dog-police-shooting.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/middleeast/100000010979595/us-iran-talks-isr
 **La guerra en Irán cuesta miles de vidas y millardos de dólares**\
 `El número de víctimas y los costos económicos se dispararon rápidamente después de que Estados Unidos e Israel atacaran Irán el 28 de febrero.`\
 https://www.nytimes.com/es/2026/06/19/espanol/estados-unidos/iran-costo-victimas.html
-
-**Burnham’s Stunning Victory in Makerfield Election May Trigger Starmer’s Last Stand**\
-`Andy Burnham, a Labour mayor, won a resounding majority in a special election on Thursday, making him eligible to challenge Prime Minister Keir Starmer for the country’s leadership.`\
-https://www.nytimes.com/2026/06/19/world/europe/andy-burnham-election-uk-starmer-makerfield.html
 
