@@ -1,3 +1,7 @@
+**Amazon’s Movie Arm Abandons Film About OpenAI**\
+`The company, which invested $50 billion in the artificial intelligence start-up this year, will let the team behind the film, “Artificial,” try to sell the project to another studio.`\
+https://www.nytimes.com/2026/06/19/business/media/amazon-openai-artificial-movie-sam-altman.html
+
 **A New Air Force One, via Qatar, Nears Its First Presidential Flight**\
 `President Trump showed off the new red, white and blue Boeing 747, a gift from Qatar that prompted a storm of criticism from lawmakers, before a flyover on July 4.`\
 https://www.nytimes.com/2026/06/19/us/politics/new-air-force-one-trump.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/19/movies/five-horror-movies-to-stream-now.html
 **There Is No ‘Compromise’ on Abortion Rights**\
 `Readers respond to “The Missing Middle in the Abortion Debate,” an Opinion guest essay by Zaid Jilani.`\
 https://www.nytimes.com/2026/06/19/opinion/abortion-rights.html
-
-**Wait, There Are Two Trump Administrations Right Now?**\
-`The center of American empire is not land but a collection of interlocked state agencies and their business constituencies`\
-https://www.nytimes.com/2026/06/19/opinion/american-empire-trump.html
 
 **World Cup Updates: For U.S. Fans in Seattle, a Boisterous March to the Match**\
 `(No description)`\
