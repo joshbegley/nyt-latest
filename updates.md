@@ -1,3 +1,15 @@
+**U.S. and Iranian Officials to Meet for Peace Talks in Switzerland**\
+`The next phase of talks to end the war in Iran is expected to begin on Sunday amid fighting in Lebanon and renewed confusion over the Strait of Hormuz.`\
+https://www.nytimes.com/2026/06/20/world/middleeast/iran-peace-talks-switzerland.html
+
+**A 1973 Knicks Championship Banner and a Childhood Friendship Endure**\
+`Two retired New York City Sanitation Department workers, friends since grade school, dusted off a celebratory banner they carried in 1973, the last time the Knicks won a championship.`\
+https://www.nytimes.com/2026/06/20/nyregion/knicks-championship-banner-nyc-friends.html
+
+**Mona Khalil, Defender of Sea Turtles, Killed in an Israeli Strike in Lebanon**\
+`For a quarter century, Ms. Khalil ran a guesthouse and worked to protect endangered sea turtles who every summer lay their eggs on a stretch of beach near Tyre, Lebanon.`\
+https://www.nytimes.com/2026/06/20/world/middleeast/mona-kahlil-turtles-lebanon-conservation.html
+
 **Big Draw**\
 `Hannah Slovut-Einertson’s first Sunday puzzle for The Times presents a vertical challenge.`\
 https://www.nytimes.com/2026/06/20/crosswords/daily-puzzle-2026-06-21.html
