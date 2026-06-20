@@ -1,3 +1,7 @@
+**World Cup 2026: See the U.S. Goal That Was Allowed to Stand After Video Review**\
+`View in 3-D how the U.S. men’s soccer team scored on a set piece against Australia in a 2-0 win.`\
+https://www.nytimes.com/interactive/2026/06/20/sports/soccer/usa-australia-world-cup-goal.html
+
 **El dolor de cuidar a un padre que te maltrató**\
 `Millones de adultos en EE. UU. cuidan a padres que abusaron de ellos en la infancia, atrapados entre la culpa, la obligación y un sistema de salud que no ofrece alternativas.`\
 https://www.nytimes.com/es/2026/06/20/espanol/estados-unidos/cuidados-padres-mayores-abuso.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/19/world/canada/frank-stronach-trial-guilty-sex-
 **U.S.-Iran Talks Delayed After Fighting in Lebanon**\
 `Scheduled talks between the United States and Iran were delayed after deadly fighting between Israel and Hezbollah in Lebanon.`\
 https://www.nytimes.com/video/world/middleeast/100000010979595/us-iran-talks-israel-lebanon-attacks.html
-
-**La guerra en Irán cuesta miles de vidas y millardos de dólares**\
-`El número de víctimas y los costos económicos se dispararon rápidamente después de que Estados Unidos e Israel atacaran Irán el 28 de febrero.`\
-https://www.nytimes.com/es/2026/06/19/espanol/estados-unidos/iran-costo-victimas.html
 

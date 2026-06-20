@@ -1,3 +1,7 @@
+**World Cup 2026: See the U.S. Goal That Was Allowed to Stand After Video Review**\
+`View in 3-D how the U.S. men’s soccer team scored on a set piece against Australia in a 2-0 win.`\
+https://www.nytimes.com/interactive/2026/06/20/sports/soccer/usa-australia-world-cup-goal.html
+
 **El dolor de cuidar a un padre que te maltrató**\
 `Millones de adultos en EE. UU. cuidan a padres que abusaron de ellos en la infancia, atrapados entre la culpa, la obligación y un sistema de salud que no ofrece alternativas.`\
 https://www.nytimes.com/es/2026/06/20/espanol/estados-unidos/cuidados-padres-mayores-abuso.html
