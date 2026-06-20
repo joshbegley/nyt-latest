@@ -1,4 +1,4 @@
-**Marco Rubio aprobó la detención de un migrante que criticó a un aliado de Trump**\
+**Rubio aprobó la detención de un migrante que criticó a De la Espriella**\
 `En el documento, el secretario de Estado indicaba que las críticas de Beto Coral hacia un candidato presidencial de su natal Colombia, socavaban la política exterior de EE. UU.`\
 https://www.nytimes.com/es/2026/06/19/espanol/estados-unidos/marco-rubio-detencion-migrante-colombiano.html
 
