@@ -1,3 +1,11 @@
+**Obama and Mamdani Show How It’s Done**\
+`Shadow commemorations in Chicago and New York.`\
+https://www.nytimes.com/2026/06/20/opinion/us-250-obama-library-mamdani-knicks-trump.html
+
+**Bowen Yang’s Mom’s Mapo Tofu**\
+`Spicy, tingly, savory perfection.`\
+https://www.nytimes.com/2026/06/20/dining/bowen-yangs-moms-mapo-tofu.html
+
 **Double Strawberry Shortcakes and Berry Sugar Cookie Bars for July 4**\
 `Sweet treats for the stars and stripes.`\
 https://www.nytimes.com/2026/06/20/dining/fourth-of-july-party-desserts.html
