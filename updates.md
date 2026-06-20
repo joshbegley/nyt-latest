@@ -1,3 +1,7 @@
+**Amazon’s Movie Arm Abandons Film About OpenAI**\
+`The company, which invested $50 billion in the artificial intelligence start-up this year, will let the team behind the film, “Artificial,” try to sell the project to another studio.`\
+https://www.nytimes.com/2026/06/19/business/media/amazon-openai-artificial-movie-sam-altman.html
+
 **A New Air Force One, via Qatar, Nears Its First Presidential Flight**\
 `President Trump showed off the new red, white and blue Boeing 747, a gift from Qatar that prompted a storm of criticism from lawmakers, before a flyover on July 4.`\
 https://www.nytimes.com/2026/06/19/us/politics/new-air-force-one-trump.html
