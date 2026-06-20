@@ -1,3 +1,7 @@
+**Game Change**\
+`New York City’s temporary transformation by the Knicks’ resurgence offers a glimpse of a kinder, more connected world.`\
+https://www.nytimes.com/2026/06/20/briefing/game-change.html
+
 **I’m Worried My Friends’ Son May Harm Them. What Should I Do?**\
 `He’s volatile, angry and armed.`\
 https://www.nytimes.com/2026/06/20/magazine/friends-son-harm-ethics.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/20/us/los-angeles-dog-police-shooting.html
 **Cape Verde Will Count on Vozinha Against Uruguay at the World Cup**\
 `Cape Verde’s veteran goalkeeper, Vozinha, is keeping the archipelago nation’s hopes outsized after his performance against soccer giant Spain.`\
 https://www.nytimes.com/2026/06/20/world/africa/cape-verde-world-cup-uruguay.html
-
-**Quote of the Day: How Tiny Curaçao Vaulted Itself Into the World Cup**\
-`Quotation of the Day for Saturday, June 20, 2026`\
-https://www.nytimes.com/2026/06/20/pageoneplus/quote-of-the-day-how-tiny-curacao-vaulted-itself-into-the-world-cup.html
 

@@ -1,3 +1,7 @@
+**Game Change**\
+`New York City’s temporary transformation by the Knicks’ resurgence offers a glimpse of a kinder, more connected world.`\
+https://www.nytimes.com/2026/06/20/briefing/game-change.html
+
 **I’m Worried My Friends’ Son May Harm Them. What Should I Do?**\
 `He’s volatile, angry and armed.`\
 https://www.nytimes.com/2026/06/20/magazine/friends-son-harm-ethics.html
