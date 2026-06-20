@@ -1,3 +1,11 @@
+**Huge Blaze Ravages Dominican Republic Beach Resort**\
+`The fire on Friday forced the emergency evacuation of nearly 1,700 guests. Authorities said at least one person, an Italian tourist, was killed.`\
+https://www.nytimes.com/2026/06/20/world/americas/dominican-republic-fire.html
+
+**Mideast Live Updates: Vance Heads to Talks as Strait of Hormuz Re-emerges as Point of Tension**\
+`The American vice president said he was traveling to Switzerland for the next round of negotiations with Iranian officials. Iran’s military said it had closed the Strait of Hormuz over the Lebanon war.`\
+https://www.nytimes.com/live/2026/06/20/world/iran-trump-israel-lebanon
+
 **World Cup Updates: Smaller U.S. Cities Give Visiting Teams an Extra-Warm Embrace**\
 `(No description)`\
 https://www.nytimes.com/live/2026/us/fifa-world-cup
