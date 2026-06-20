@@ -1,3 +1,7 @@
+**Huge Blaze Ravages Dominican Republic Beach Resort**\
+`The fire on Friday forced the emergency evacuation of nearly 1,700 guests. Authorities said at least one person, an Italian tourist, was killed.`\
+https://www.nytimes.com/2026/06/20/world/americas/dominican-republic-fire.html
+
 **Former Gotti Associate Turned Councilman Arrested in Loan Scheme**\
 `John Alite, a borough council member in Englishtown, N.J., since 2025, had in recent years established himself as a man who learned from his mistakes.`\
 https://www.nytimes.com/2026/06/20/nyregion/john-alite-councilman-gambino-nj.html
@@ -122,8 +126,8 @@ https://www.nytimes.com/2026/06/20/crosswords/strands-sidekick-840.html
 `The doughnut and coffee chain has an elaborate system for raising prices and making sure loyal customers pay for their rewards.`\
 https://www.nytimes.com/2026/06/20/world/canada/tim-hortons-prices-quebec-court.html
 
-**Mideast Live Updates: Strait of Hormuz Re-emerges as Point of Tension After Iran Says It’s Closed**\
-`Iran’s military command said it had closed the waterway over the continued fighting in Lebanon. But the U.S. military said traffic continued to flow. Still, the next phase of talks between Washington and Tehran appeared ready to start on Sunday.`\
+**Mideast Live Updates: Vance Heads to Talks as Strait of Hormuz Re-emerges as Point of Tension**\
+`The American vice president said he was traveling to Switzerland for the next round of negotiations with Iranian officials. Iran’s military said it had closed the Strait of Hormuz over the Lebanon war.`\
 https://www.nytimes.com/live/2026/06/20/world/iran-trump-israel-lebanon
 
 **Danny McBride Thinks Men Learned All the Wrong Lessons From Movies**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/20/business/egg-prices-down.html
 **‘Obsession’ Is a Surprise Blockbuster. Who Gets the Profits?**\
 `As the breakout horror hit crosses $300 million at the global box office, its art director set off a debate about just compensation for crew members.`\
 https://www.nytimes.com/2026/06/20/movies/obsession-box-office-blair-witch-project-hamilton.html
-
-**Under a Turtle Shell, a Stunning New Home for Shakespeare**\
-`After 38 years in a tent, Hudson Valley Shakespeare opens one of the most spectacular outdoor performance spaces in the country.`\
-https://www.nytimes.com/2026/06/20/theater/hudson-valley-shakespeare-catskills.html
 
 **World Cup Updates: Smaller U.S. Cities Give Visiting Teams an Extra-Warm Embrace**\
 `(No description)`\
