@@ -1,3 +1,7 @@
+**Mideast Live Updates: Iranian Forces Say They Closed Strait of Hormuz**\
+`Iran’s military command blamed the U.S., saying it failed to prevent Israel from violating the cease-fire in Lebanon. Mediators in Pakistan said “technical talks” between the U.S. and Iran to end war would be held on Sunday.`\
+https://www.nytimes.com/live/2026/06/20/world/iran-trump-israel-lebanon
+
 **No End in Sight for U.S. Military Mission Along Border With Mexico**\
 `The patrols have helped push cartels and smugglers into more remote areas. But analysts have voiced concerns that the border missions will distract from training, drain resources and undermine readiness.`\
 https://www.nytimes.com/2026/06/20/us/politics/troops-border-mexico.html
