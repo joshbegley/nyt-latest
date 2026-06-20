@@ -1,3 +1,19 @@
+**What if You Root for the Other N.B.A. Team in New York?**\
+`The Knicks championship run has elated fans, but it has been a tough few weeks for supporters of the Nets. “I feel sick,” one Nets die-hard said.`\
+https://www.nytimes.com/2026/06/20/nyregion/knicks-championship-brooklyn-nets-nyc.html
+
+**Estoy enamorado de mi doctor**\
+`Pero tenemos una gran diferencia de edad.`\
+https://www.nytimes.com/es/2026/06/20/espanol/estilos-de-vida/modern-love-padre-hijo.html
+
+**Democratic Socialists Took City Hall. Now They’re Aiming at Congress.**\
+`After propelling Zohran Mamdani to become mayor of New York City, the Democratic Socialists of America are trying to take down incumbents in the House and the State Legislature.`\
+https://www.nytimes.com/2026/06/20/nyregion/dsa-mamdani-congress-nyc.html
+
+**NYT Spelling Bee Answers for June 20, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/20/crosswords/spelling-bee-forum.html
+
 **World Cup 2026: See the U.S. Goal That Was Allowed to Stand After Video Review**\
 `View in 3-D how the U.S. men’s soccer team scored on a set piece against Australia in a 2-0 win.`\
 https://www.nytimes.com/interactive/2026/06/20/sports/soccer/usa-australia-world-cup-goal.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/06/19/arts/music/brian-large-dead.html
 **Trump se compara con Alejandro Magno y se enfada por los archivos Epstein, según un nuevo libro**\
 `El libro de Maggie Haberman y Jonathan Swan, reporteros de The New York Times, titulado “Regime Change”, revela detalles y conversaciones sorprendentes sobre las presiones del presidente para ampliar drásticamente su poder.`\
 https://www.nytimes.com/es/2026/06/19/espanol/estados-unidos/libro-trump-epstein-regime-change-haberman-swan.html
-
-**Inside Trump’s Stock Trading Surge**\
-`Documents show the president outsourced trading decisions to brokers. But bucking tradition, his assets are not in a blind trust, exposing him to concerns about conflicts.`\
-https://www.nytimes.com/2026/06/19/us/politics/inside-trumps-stock-trading-surge.html
-
-**Italy Doesn’t ‘Beg,’ Giorgia Meloni Tells Trump**\
-`President Trump said the Italian leader had “begged” him to take a photo together at the Group of 7 summit in France. The remarks come as their once-friendly relationship has frayed.`\
-https://www.nytimes.com/2026/06/19/world/europe/meloni-trump-italy.html
-
-**Canadian Billionaire Frank Stronach Is Convicted of Sexual and Indecent Assault**\
-`Mr. Stronach, 93, was found guilty of sexual assault and indecent assault in two cases and acquitted on three other charges.`\
-https://www.nytimes.com/2026/06/19/world/canada/frank-stronach-trial-guilty-sex-charges.html
-
-**U.S.-Iran Talks Delayed After Fighting in Lebanon**\
-`Scheduled talks between the United States and Iran were delayed after deadly fighting between Israel and Hezbollah in Lebanon.`\
-https://www.nytimes.com/video/world/middleeast/100000010979595/us-iran-talks-israel-lebanon-attacks.html
 

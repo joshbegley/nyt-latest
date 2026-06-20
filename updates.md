@@ -1,3 +1,19 @@
+**What if You Root for the Other N.B.A. Team in New York?**\
+`The Knicks championship run has elated fans, but it has been a tough few weeks for supporters of the Nets. “I feel sick,” one Nets die-hard said.`\
+https://www.nytimes.com/2026/06/20/nyregion/knicks-championship-brooklyn-nets-nyc.html
+
+**Estoy enamorado de mi doctor**\
+`Pero tenemos una gran diferencia de edad.`\
+https://www.nytimes.com/es/2026/06/20/espanol/estilos-de-vida/modern-love-padre-hijo.html
+
+**Democratic Socialists Took City Hall. Now They’re Aiming at Congress.**\
+`After propelling Zohran Mamdani to become mayor of New York City, the Democratic Socialists of America are trying to take down incumbents in the House and the State Legislature.`\
+https://www.nytimes.com/2026/06/20/nyregion/dsa-mamdani-congress-nyc.html
+
+**NYT Spelling Bee Answers for June 20, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/20/crosswords/spelling-bee-forum.html
+
 **World Cup 2026: See the U.S. Goal That Was Allowed to Stand After Video Review**\
 `View in 3-D how the U.S. men’s soccer team scored on a set piece against Australia in a 2-0 win.`\
 https://www.nytimes.com/interactive/2026/06/20/sports/soccer/usa-australia-world-cup-goal.html
