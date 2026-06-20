@@ -1,3 +1,11 @@
+**Marco Rubio aprobó la detención de un migrante que criticó a un aliado de Trump**\
+`En el documento, el secretario de Estado indicaba que las críticas de Beto Coral hacia un candidato presidencial de su natal Colombia, socavaban la política exterior de EE. UU.`\
+https://www.nytimes.com/es/2026/06/19/espanol/estados-unidos/marco-rubio-detencion-migrante-colombiano.html
+
+**‘Get Outta Here!’**\
+`Katie Hoody keeps the hits coming.`\
+https://www.nytimes.com/2026/06/19/crosswords/daily-puzzle-2026-06-20.html
+
 **Memo by Rubio Approved Detention of Immigrant Who Criticized Trump Ally**\
 `Secretary of State Marco Rubio said Beto Coral’s criticism of a presidential candidate in his home country of Colombia undermined U.S. foreign policy.`\
 https://www.nytimes.com/2026/06/19/us/rubio-beto-coral-colombia.html
