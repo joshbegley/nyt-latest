@@ -1,3 +1,7 @@
+**Remains of 3 People Are Found in Foreclosed House After Sale**\
+`The house in Connecticut had not been inspected before a winning bid was made at an auction, according to court records. The buyer discovered the bodies after entering the premises.`\
+https://www.nytimes.com/2026/06/20/nyregion/connecticut-home-skeletal-remains.html
+
 **Wife of Spanish Prime Minister to Stand Trial for Corruption**\
 `Begoña Gómez faces charges of embezzlement, corruption, misappropriation of funds and influence peddling for helping favored companies win public contracts.`\
 https://www.nytimes.com/2026/06/20/world/europe/gomez-spain-trial-corruption.html

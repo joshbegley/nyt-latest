@@ -1,3 +1,7 @@
+**Remains of 3 People Are Found in Foreclosed House After Sale**\
+`The house in Connecticut had not been inspected before a winning bid was made at an auction, according to court records. The buyer discovered the bodies after entering the premises.`\
+https://www.nytimes.com/2026/06/20/nyregion/connecticut-home-skeletal-remains.html
+
 **Wife of Spanish Prime Minister to Stand Trial for Corruption**\
 `Begoña Gómez faces charges of embezzlement, corruption, misappropriation of funds and influence peddling for helping favored companies win public contracts.`\
 https://www.nytimes.com/2026/06/20/world/europe/gomez-spain-trial-corruption.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/20/theater/hudson-valley-shakespeare-catskills.h
 **American Cities Are Hosting and Embracing World Cup Athletes**\
 `World-class players are being embraced by residents of midsize cities all over the country, in places like Chattanooga, Tenn., and Greensboro, N.C.`\
 https://www.nytimes.com/2026/06/20/style/world-cup-us-host-cities-fans.html
-
-**How a New York Politics Reporter Sets Priorities**\
-`Nicholas Fandos explains how he navigates coverage of the primary races this month and what he’s watching in New York politics.`\
-https://www.nytimes.com/video/insider/100000010962049/how-a-new-york-politics-reporter-sets-priorities.html
 

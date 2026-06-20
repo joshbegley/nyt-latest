@@ -1,3 +1,7 @@
+**Former Gotti Associate Turned Councilman Arrested in Loan Scheme**\
+`John Alite, a borough council member in Englishtown, N.J., since 2025, had in recent years established himself as a man who learned from his mistakes.`\
+https://www.nytimes.com/2026/06/20/nyregion/john-alite-councilman-gambino-nj.html
+
 **Remains of 3 People Are Found in Foreclosed House After Sale**\
 `The house in Connecticut had not been inspected before a winning bid was made at an auction, according to court records. The buyer discovered the bodies after entering the premises.`\
 https://www.nytimes.com/2026/06/20/nyregion/connecticut-home-skeletal-remains.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/20/movies/obsession-box-office-blair-witch-proje
 **Under a Turtle Shell, a Stunning New Home for Shakespeare**\
 `After 38 years in a tent, Hudson Valley Shakespeare opens one of the most spectacular outdoor performance spaces in the country.`\
 https://www.nytimes.com/2026/06/20/theater/hudson-valley-shakespeare-catskills.html
-
-**American Cities Are Hosting and Embracing World Cup Athletes**\
-`World-class players are being embraced by residents of midsize cities all over the country, in places like Chattanooga, Tenn., and Greensboro, N.C.`\
-https://www.nytimes.com/2026/06/20/style/world-cup-us-host-cities-fans.html
 
