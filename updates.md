@@ -1,3 +1,7 @@
+**Man Is Arrested in Scotland After Rampage Leaves 5 Hurt**\
+`An advocacy group identified some of the victims as Muslims. Counterterrorism authorities are leading the investigation, but a motive for the attacks is so far unknown.`\
+https://www.nytimes.com/2026/06/20/world/europe/edinburgh-stabbing-arrest-injuries.html
+
 **Mideast Live Updates: Vance Heads to Talks as Strait of Hormuz Re-emerges as Point of Tension**\
 `The American vice president left for Switzerland on Saturday for the next round of negotiations with Iranian officials, even as fighting between Israel and Hezbollah in Lebanon threatened  efforts to reopen the Strait of Hormuz.`\
 https://www.nytimes.com/live/2026/06/20/world/iran-trump-israel-lebanon

@@ -1,3 +1,7 @@
+**Man Is Arrested in Scotland After Rampage Leaves 5 Hurt**\
+`An advocacy group identified some of the victims as Muslims. Counterterrorism authorities are leading the investigation, but a motive for the attacks is so far unknown.`\
+https://www.nytimes.com/2026/06/20/world/europe/edinburgh-stabbing-arrest-injuries.html
+
 **Huge Blaze Ravages Dominican Republic Beach Resort**\
 `The fire on Friday forced the emergency evacuation of nearly 1,700 guests. Authorities said at least one person, an Italian tourist, was killed.`\
 https://www.nytimes.com/2026/06/20/world/americas/dominican-republic-fire.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/20/us/politics/arizona-democrats-tough-past-fuel
 **Egg Prices Are Way Down, but That’s Hurting Farmers**\
 `An oversupply of hens has lowered wholesale egg prices. But consumers may not reap the full benefits because of producer contracts and higher costs.`\
 https://www.nytimes.com/2026/06/20/business/egg-prices-down.html
-
-**‘Obsession’ Is a Surprise Blockbuster. Who Gets the Profits?**\
-`As the breakout horror hit crosses $300 million at the global box office, its art director set off a debate about just compensation for crew members.`\
-https://www.nytimes.com/2026/06/20/movies/obsession-box-office-blair-witch-project-hamilton.html
 
 **World Cup Updates: Smaller U.S. Cities Give Visiting Teams an Extra-Warm Embrace**\
 `(No description)`\
