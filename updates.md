@@ -1,3 +1,7 @@
+**El dolor de cuidar a un padre que te maltrató**\
+`Millones de adultos en EE. UU. cuidan a padres que abusaron de ellos en la infancia, atrapados entre la culpa, la obligación y un sistema de salud que no ofrece alternativas.`\
+https://www.nytimes.com/es/2026/06/20/espanol/estados-unidos/cuidados-padres-mayores-abuso.html
+
 **L.A.P.D. Releases Bodycam Footage of Officer Shooting a Knicks Fan’s Dog**\
 `The killing of the dog last Saturday sparked an international outcry and prompted questions about the use of force by police officers.`\
 https://www.nytimes.com/2026/06/20/us/los-angeles-dog-police-shooting.html
