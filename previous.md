@@ -1,3 +1,7 @@
+**L.A.P.D. Releases Bodycam Footage of Officer Shooting a Knicks Fan’s Dog**\
+`The killing of the dog last Saturday sparked an international outcry and prompted questions about the use of force by police officers.`\
+https://www.nytimes.com/2026/06/20/us/los-angeles-dog-police-shooting.html
+
 **Cape Verde Will Count on Vozinha Against Uruguay at the World Cup**\
 `Cape Verde’s veteran goalkeeper, Vozinha, is keeping the archipelago nation’s hopes outsized after his performance against soccer giant Spain.`\
 https://www.nytimes.com/2026/06/20/world/africa/cape-verde-world-cup-uruguay.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/06/19/espanol/estados-unidos/iran-costo-victimas
 **Burnham’s Stunning Victory in Makerfield Election May Trigger Starmer’s Last Stand**\
 `Andy Burnham, a Labour mayor, won a resounding majority in a special election on Thursday, making him eligible to challenge Prime Minister Keir Starmer for the country’s leadership.`\
 https://www.nytimes.com/2026/06/19/world/europe/andy-burnham-election-uk-starmer-makerfield.html
-
-**Una empresa vinculada a un donante de Trump obtuvo un contrato sin licitación para limpiar el estanque reflectante**\
-`Una vocera de la Casa Blanca dijo que el presidente no participó en la selección de Greenwater Services, la empresa propiedad de un fideicomiso dirigido por John J. Cafaro.`\
-https://www.nytimes.com/es/2026/06/19/espanol/estados-unidos/piscina-reflectante-limpieza-algas.html
 

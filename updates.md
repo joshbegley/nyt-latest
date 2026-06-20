@@ -1,3 +1,7 @@
+**L.A.P.D. Releases Bodycam Footage of Officer Shooting a Knicks Fan’s Dog**\
+`The killing of the dog last Saturday sparked an international outcry and prompted questions about the use of force by police officers.`\
+https://www.nytimes.com/2026/06/20/us/los-angeles-dog-police-shooting.html
+
 **Cape Verde Will Count on Vozinha Against Uruguay at the World Cup**\
 `Cape Verde’s veteran goalkeeper, Vozinha, is keeping the archipelago nation’s hopes outsized after his performance against soccer giant Spain.`\
 https://www.nytimes.com/2026/06/20/world/africa/cape-verde-world-cup-uruguay.html
