@@ -1,3 +1,11 @@
+**South Korean Author Cho Nam-Joo on Self-Cultivation and Collective Change**\
+`I thought that my writing could be a small catalyst for bettering the lives of Korean women. Reality was much more complicated.`\
+https://www.nytimes.com/2026/06/20/special-series/cho-nam-joo-drive.html
+
+**Double Strawberry Shortcakes and Berry Sugar Cookie Bars for July 4**\
+`Sweet treats for the stars and stripes.`\
+https://www.nytimes.com/2026/06/20/dining/double-strawberry-shortcakes-and-berry-sugar-cookie-bars.html
+
 **After Andy Burnham’s Win, the UK Is Set to Test How Far Charisma Can Shift Electoral Dynamics**\
 `The governing Labour Party may oust Prime Minister Keir Starmer in favor of the more popular Andy Burnham — who will still face all the same challenges.`\
 https://www.nytimes.com/2026/06/20/world/europe/burnham-starmer-labour-uk-reform.html
@@ -54,8 +62,8 @@ https://www.nytimes.com/2026/06/20/crosswords/strands-sidekick-840.html
 `The doughnut and coffee chain has an elaborate system for raising prices and making sure loyal customers pay for their rewards.`\
 https://www.nytimes.com/2026/06/20/world/canada/tim-hortons-prices-quebec-court.html
 
-**Mideast Live Updates: Fighting Persists in Lebanon, Complicating Iran Peace Talks**\
-`The Israeli military said it had exchanged fire with Hezbollah overnight, hours after a new cease-fire came into effect. Clashes in Lebanon derailed U.S.-Iran peace talks planned for Friday.`\
+**Mideast Live Updates: Iranian Forces Say They Closed Strait of Hormuz**\
+`Iran’s military command blamed the U.S., saying it failed to prevent Israel from violating the cease-fire in Lebanon. JD Vance told Fox News that U.S. negotiators were in Switzerland, where talks had earlier been delayed.`\
 https://www.nytimes.com/live/2026/06/20/world/iran-trump-israel-lebanon
 
 **Danny McBride Thinks Men Learned All the Wrong Lessons From Movies**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/interactive/2026/06/20/us/america-250-historical-figures
 **¿Reducir la inflamación podría tratar la depresión?**\
 `Alrededor del 25 por ciento de las personas con depresión presentan niveles elevados de proteínas inflamatorias en la sangre.`\
 https://www.nytimes.com/es/2026/06/20/espanol/inflamacion-depresion.html
-
-**Los celulares parecen haber reducido la natalidad. Pero no nos engañemos**\
-`La crisis de fertilidad parece ser una crisis de conexión.`\
-https://www.nytimes.com/es/2026/06/20/espanol/opinion/telefonos-natalidad-conexion.html
-
-**Las vacaciones literarias están de moda**\
-`Los clubes de lectura en sitios turísticos, las agencias de viajes, las bibliotecas de los hoteles y un número cada vez mayor de festivales ofrecen a los lectores nuevas formas de dar rienda suelta a sus intereses.`\
-https://www.nytimes.com/es/2026/06/20/espanol/estilos-de-vida/vacaciones-literarias-libros-turismo.html
 
