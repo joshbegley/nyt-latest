@@ -1,3 +1,7 @@
+**Wife of Spanish Prime Minister to Stand Trial for Corruption**\
+`Begoña Gómez faces charges of embezzlement, corruption, misappropriation of funds and influence peddling for helping favored companies win public contracts.`\
+https://www.nytimes.com/2026/06/20/world/europe/gomez-spain-trial-corruption.html
+
 **El estanque reflectante del monumento a Lincoln parece rechazar su cambio de imagen**\
 `El proyecto para renovar el estanque reflectante se terminó hace casi dos semanas. Desde entonces, no ha sido más que un dolor de cabeza para el gobierno de Trump.`\
 https://www.nytimes.com/es/2026/06/20/espanol/estados-unidos/estanque-reflectante-algas.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/20/style/world-cup-us-host-cities-fans.html
 **How a New York Politics Reporter Sets Priorities**\
 `Nicholas Fandos explains how he navigates coverage of the primary races this month and what he’s watching in New York politics.`\
 https://www.nytimes.com/video/insider/100000010962049/how-a-new-york-politics-reporter-sets-priorities.html
-
-**At Camp Breastie, Everyone Knows What It Means to Have Cancer**\
-`The annual, four-day retreat in Pennsylvania, attended by hundreds of breast cancer survivors, has become so popular that organizers plan to add a West Coast location.`\
-https://www.nytimes.com/2026/06/20/well/breast-cancer-camp-survivors.html
 
