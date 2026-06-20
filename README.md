@@ -190,10 +190,6 @@ https://www.nytimes.com/video/dining/100000010979894/angel-hair-pasta-salad.html
 `And more of our most popular recipes from the week.`\
 https://www.nytimes.com/2026/06/19/dining/have-you-made-this-blueberry-lemon-loaf-cake-yet.html
 
-**Five Horror Movies to Stream Now**\
-`This month, victims are held hostage by demons, a deranged madman, the elements and a monstrosity named Hoagie.`\
-https://www.nytimes.com/2026/06/19/movies/five-horror-movies-to-stream-now.html
-
 **World Cup Updates: For U.S. Fans in Seattle, a Boisterous March to the Match**\
 `(No description)`\
 https://www.nytimes.com/live/2026/us/fifa-world-cup
