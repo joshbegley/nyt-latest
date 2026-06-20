@@ -1,3 +1,23 @@
+**Cape Verde Will Count on Vozinha Against Uruguay at the World Cup**\
+`Cape Verde’s veteran goalkeeper, Vozinha, is keeping the archipelago nation’s hopes outsized after his performance against soccer giant Spain.`\
+https://www.nytimes.com/2026/06/20/world/africa/cape-verde-world-cup-uruguay.html
+
+**Quote of the Day: How Tiny Curaçao Vaulted Itself Into the World Cup**\
+`Quotation of the Day for Saturday, June 20, 2026`\
+https://www.nytimes.com/2026/06/20/pageoneplus/quote-of-the-day-how-tiny-curacao-vaulted-itself-into-the-world-cup.html
+
+**A 175-Year-Old Shipwreck, Lots of Booze and a Korean Island’s Quest to Survive**\
+`A South Korean island is reviving a long‑forgotten episode involving a French whaler as a wine festival, in an effort to stay relevant.`\
+https://www.nytimes.com/2026/06/20/world/asia/korea-bigeum-champagne-festival.html
+
+**How These High Schoolers Are Preparing for the 2026 Jimmy Awards**\
+`Each June, students from around the country come to New York for the Jimmy Awards. We tagged along for a day of their intensive musical-theater residency.`\
+https://www.nytimes.com/2026/06/20/theater/jimmy-awards-high-school-musical-theater-broadway.html
+
+**Charles Kushner, U.S. Ambassador to France, Riles Paris With Trump Diplomacy**\
+`The U.S. envoy to Paris has emerged as the embodiment of combative diplomacy in the age of President Trump, riling the French establishment notably with his accusations of antisemitism.`\
+https://www.nytimes.com/2026/06/20/world/europe/charles-kushner-france-us-ambasador-trump.html
+
 **Rubio aprobó la detención de un migrante que criticó a De la Espriella**\
 `En el documento, el secretario de Estado indicaba que las críticas de Beto Coral hacia un candidato presidencial de su natal Colombia, socavaban la política exterior de EE. UU.`\
 https://www.nytimes.com/es/2026/06/19/espanol/estados-unidos/marco-rubio-detencion-migrante-colombiano.html

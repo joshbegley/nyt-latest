@@ -1,3 +1,23 @@
+**Cape Verde Will Count on Vozinha Against Uruguay at the World Cup**\
+`Cape Verde’s veteran goalkeeper, Vozinha, is keeping the archipelago nation’s hopes outsized after his performance against soccer giant Spain.`\
+https://www.nytimes.com/2026/06/20/world/africa/cape-verde-world-cup-uruguay.html
+
+**Quote of the Day: How Tiny Curaçao Vaulted Itself Into the World Cup**\
+`Quotation of the Day for Saturday, June 20, 2026`\
+https://www.nytimes.com/2026/06/20/pageoneplus/quote-of-the-day-how-tiny-curacao-vaulted-itself-into-the-world-cup.html
+
+**A 175-Year-Old Shipwreck, Lots of Booze and a Korean Island’s Quest to Survive**\
+`A South Korean island is reviving a long‑forgotten episode involving a French whaler as a wine festival, in an effort to stay relevant.`\
+https://www.nytimes.com/2026/06/20/world/asia/korea-bigeum-champagne-festival.html
+
+**How These High Schoolers Are Preparing for the 2026 Jimmy Awards**\
+`Each June, students from around the country come to New York for the Jimmy Awards. We tagged along for a day of their intensive musical-theater residency.`\
+https://www.nytimes.com/2026/06/20/theater/jimmy-awards-high-school-musical-theater-broadway.html
+
+**Charles Kushner, U.S. Ambassador to France, Riles Paris With Trump Diplomacy**\
+`The U.S. envoy to Paris has emerged as the embodiment of combative diplomacy in the age of President Trump, riling the French establishment notably with his accusations of antisemitism.`\
+https://www.nytimes.com/2026/06/20/world/europe/charles-kushner-france-us-ambasador-trump.html
+
 **Rubio aprobó la detención de un migrante que criticó a De la Espriella**\
 `En el documento, el secretario de Estado indicaba que las críticas de Beto Coral hacia un candidato presidencial de su natal Colombia, socavaban la política exterior de EE. UU.`\
 https://www.nytimes.com/es/2026/06/19/espanol/estados-unidos/marco-rubio-detencion-migrante-colombiano.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/06/19/world/europe/andy-burnham-election-uk-starmer
 **Una empresa vinculada a un donante de Trump obtuvo un contrato sin licitación para limpiar el estanque reflectante**\
 `Una vocera de la Casa Blanca dijo que el presidente no participó en la selección de Greenwater Services, la empresa propiedad de un fideicomiso dirigido por John J. Cafaro.`\
 https://www.nytimes.com/es/2026/06/19/espanol/estados-unidos/piscina-reflectante-limpieza-algas.html
-
-**Trump’s Iran Deal Is Off to a Chaotic Start**\
-`The preliminary agreement, not yet a week old, has sown confusion: nixed Swiss signing ceremonies, rifts with Israel and Congress, and uncertainty over new talks.`\
-https://www.nytimes.com/2026/06/19/world/middleeast/iran-war-deal-trump-uncertainty.html
-
-**Iran’s Supreme Leader Says He Dislikes Deal With U.S., but Allowed It**\
-`Ayatollah Mojtaba Khamenei distanced himself from the agreement, putting responsibility for it on Iran’s president, and said it does not mean acceding to U.S. demands.`\
-https://www.nytimes.com/2026/06/19/world/middleeast/mojtaba-khamenei-iran-deal-reaction.html
-
-**Flashback: Your Weekly History Quiz, June 20, 2026**\
-`Can you sort 8 historical events?`\
-https://www.nytimes.com/interactive/2026/06/19/upshot/flashback.html
-
-**Vegan Caesar Salad With Crisp Chickpeas**\
-`There are many ways to mimic the rich, creamy texture of emulsified, egg-based Caesar dressing: tofu, vegan mayonnaise, aquafaba whipped with oil, the list goes on. Blended raw cashews prove themselves the best base in this version, which is fortified with garlic, mustard, miso paste and caper brine to achieve the tangy-salty-punchy balance found in the real deal.`\
-https://www.nytimes.com/video/dining/100000010979927/vegan-caesar-salad-with-crisp-chickpeas.html
-
-**Demining the Strait of Hormuz**\
-`Our reporter John Ismay, who served as a Navy explosive ordnance disposal officer and deep-sea diver for eight years, explains why mines in the Strait of Hormuz may outlast the war.`\
-https://www.nytimes.com/video/us/politics/100000010969459/iran-strait-hormuz-mines-shipping.html
 
