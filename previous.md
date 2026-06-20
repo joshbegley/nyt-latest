@@ -1,3 +1,7 @@
+**How to Get Your Eyeliner Just Right**\
+`Tips on achieving a smudged, tight-lined or winged effect.`\
+https://www.nytimes.com/2026/06/20/t-magazine/beauty/how-to-do-your-eyeliner.html
+
 **Israel and Hezbollah Are Still Fighting, Several Cease-Fires Later**\
 `For the second time in two days, Lebanon was again at the center of whether the fragile U.S.-Iran deal would hold.`\
 https://www.nytimes.com/2026/06/20/world/middleeast/israel-hezbollah-fighting-cease-fire.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/20/business/cottage-cheese-shortage.html
 **Why ‘Toy Story’ is the Best Franchise Ever**\
 `The New York Times film critic Alissa Wilkinson explores how the ‘Toy Story’ films leverage layers of nostalgia as a recipe for success.`\
 https://www.nytimes.com/video/movies/100000010926521/why-toy-story-is-the-best-franchise-ever.html
-
-**Book Review: ‘The Reverse Centaur’s Guide to Life After AI,’ by Cory Doctorow**\
-`In “The Reverse Centaur’s Guide to Life After AI,” the renowned tech critic Cory Doctorow tries to find a good way to coexist with artificial intelligence.`\
-https://www.nytimes.com/2026/06/20/books/review/the-reverse-centaurs-guide-to-life-after-ai.html
 
