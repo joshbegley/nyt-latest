@@ -1,3 +1,27 @@
+**I’m Worried My Friends’ Son May Harm Them. What Should I Do?**\
+`He’s volatile, angry and armed.`\
+https://www.nytimes.com/2026/06/20/magazine/friends-son-harm-ethics.html
+
+**Today’s Wordle Hints for June 21, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, June 21, 2026.`\
+https://www.nytimes.com/2026/06/20/crosswords/wordle-review-1828.html
+
+**NYT Connections Answers for June 21, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, June 21, 2026.`\
+https://www.nytimes.com/2026/06/20/crosswords/connections-companion-1106.html
+
+**NYT Strands Hints for June 21, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, June 21, 2026.`\
+https://www.nytimes.com/2026/06/20/crosswords/strands-sidekick-840.html
+
+**A Court Case Reveals Some of Tim Hortons’ Secrets**\
+`The doughnut and coffee chain has an elaborate system for raising prices and making sure loyal customers pay for their rewards.`\
+https://www.nytimes.com/2026/06/20/world/canada/tim-hortons-prices-quebec-court.html
+
+**Mideast Live Updates: Fighting Persists in Lebanon, Complicating Iran Peace Talks**\
+`The Israeli military said it had exchanged fire with Hezbollah overnight, hours after a new cease-fire came into effect. Clashes in Lebanon derailed U.S.-Iran peace talks planned for Friday.`\
+https://www.nytimes.com/live/2026/06/20/world/iran-trump-israel-lebanon
+
 **Mideast Live Updates: Fighting Persists in Lebanon, Threatening Iran Peace Talks**\
 `The Israeli military said it had exchanged fire with Hezbollah overnight, hours after a new cease-fire came into effect. Clashes in Lebanon derailed U.S.-Iran peace talks planned for Friday.`\
 https://www.nytimes.com/live/2026/06/20/world/iran-trump-israel-lebanon

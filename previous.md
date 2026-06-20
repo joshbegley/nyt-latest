@@ -1,4 +1,24 @@
-**Mideast Live Updates: Fighting Persists in Lebanon, Threatening Iran Peace Talks**\
+**I’m Worried My Friends’ Son May Harm Them. What Should I Do?**\
+`He’s volatile, angry and armed.`\
+https://www.nytimes.com/2026/06/20/magazine/friends-son-harm-ethics.html
+
+**Today’s Wordle Hints for June 21, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, June 21, 2026.`\
+https://www.nytimes.com/2026/06/20/crosswords/wordle-review-1828.html
+
+**NYT Connections Answers for June 21, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, June 21, 2026.`\
+https://www.nytimes.com/2026/06/20/crosswords/connections-companion-1106.html
+
+**NYT Strands Hints for June 21, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, June 21, 2026.`\
+https://www.nytimes.com/2026/06/20/crosswords/strands-sidekick-840.html
+
+**A Court Case Reveals Some of Tim Hortons’ Secrets**\
+`The doughnut and coffee chain has an elaborate system for raising prices and making sure loyal customers pay for their rewards.`\
+https://www.nytimes.com/2026/06/20/world/canada/tim-hortons-prices-quebec-court.html
+
+**Mideast Live Updates: Fighting Persists in Lebanon, Complicating Iran Peace Talks**\
 `The Israeli military said it had exchanged fire with Hezbollah overnight, hours after a new cease-fire came into effect. Clashes in Lebanon derailed U.S.-Iran peace talks planned for Friday.`\
 https://www.nytimes.com/live/2026/06/20/world/iran-trump-israel-lebanon
 
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/06/20/world/africa/cape-verde-world-cup-uruguay.htm
 **Quote of the Day: How Tiny Curaçao Vaulted Itself Into the World Cup**\
 `Quotation of the Day for Saturday, June 20, 2026`\
 https://www.nytimes.com/2026/06/20/pageoneplus/quote-of-the-day-how-tiny-curacao-vaulted-itself-into-the-world-cup.html
-
-**A 175-Year-Old Shipwreck, Lots of Booze and a Korean Island’s Quest to Survive**\
-`A South Korean island is reviving a long‑forgotten episode involving a French whaler as a wine festival, in an effort to stay relevant.`\
-https://www.nytimes.com/2026/06/20/world/asia/korea-bigeum-champagne-festival.html
-
-**How These High Schoolers Are Preparing for the 2026 Jimmy Awards**\
-`Each June, students from around the country come to New York for the Jimmy Awards. We tagged along for a day of their intensive musical-theater residency.`\
-https://www.nytimes.com/2026/06/20/theater/jimmy-awards-high-school-musical-theater-broadway.html
-
-**Charles Kushner, U.S. Ambassador to France, Riles Paris With Trump Diplomacy**\
-`The U.S. envoy to Paris has emerged as the embodiment of combative diplomacy in the age of President Trump, riling the French establishment notably with his accusations of antisemitism.`\
-https://www.nytimes.com/2026/06/20/world/europe/charles-kushner-france-us-ambasador-trump.html
-
-**Rubio aprobó la detención de un migrante que criticó a De la Espriella**\
-`En el documento, el secretario de Estado indicaba que las críticas de Beto Coral hacia un candidato presidencial de su natal Colombia, socavaban la política exterior de EE. UU.`\
-https://www.nytimes.com/es/2026/06/19/espanol/estados-unidos/marco-rubio-detencion-migrante-colombiano.html
-
-**‘Get Outta Here!’**\
-`Katie Hoody keeps the hits coming.`\
-https://www.nytimes.com/2026/06/19/crosswords/daily-puzzle-2026-06-20.html
 
