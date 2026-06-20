@@ -1,3 +1,7 @@
+**Obama and Mamdani Show How It’s Done**\
+`Shadow commemorations in Chicago and New York.`\
+https://www.nytimes.com/2026/06/20/opinion/us-250-obama-library-mamdani-knicks-trump.html
+
 **Bowen Yang’s Mom’s Mapo Tofu**\
 `Spicy, tingly, savory perfection.`\
 https://www.nytimes.com/2026/06/20/dining/bowen-yangs-moms-mapo-tofu.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/20/books/review/the-reverse-centaurs-guide-to-li
 **A Humble 3-Wheel Electric Vehicle Lands Toyota in Federal Court**\
 `A lawsuit filed in California claims the automaker’s philanthropic arm stole technology intended to help poor farmers, but it is not clear to what end.`\
 https://www.nytimes.com/2026/06/20/business/toyota-africa-electric-vehicles-lawsuit.html
-
-**For New Car Brands, the Path to Success Is Littered With Flops**\
-`Honda and Sony have bailed on Afeela, their joint E.V. project, without selling a single car. Subbrands from big automakers have a shaky track record, but leaning into luxury can help.`\
-https://www.nytimes.com/2026/06/20/business/afeela-automakers-spinoffs-brands.html
 
