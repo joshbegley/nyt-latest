@@ -1,3 +1,63 @@
+**Under a Turtle Shell, a Stunning New Home for Shakespeare**\
+`After 38 years in a tent, Hudson Valley Shakespeare opens one of the most spectacular outdoor performance spaces in the country.`\
+https://www.nytimes.com/2026/06/20/theater/hudson-valley-shakespeare-catskills.html
+
+**American Cities Are Hosting and Embracing World Cup Athletes**\
+`World-class players are being embraced by residents of midsize cities all over the country, in places like Chattanooga, Tenn., and Greensboro, N.C.`\
+https://www.nytimes.com/2026/06/20/style/world-cup-us-host-cities-fans.html
+
+**How a New York Politics Reporter Sets Priorities**\
+`Nicholas Fandos explains how he navigates coverage of the primary races this month and what he’s watching in New York politics.`\
+https://www.nytimes.com/video/insider/100000010962049/how-a-new-york-politics-reporter-sets-priorities.html
+
+**At Camp Breastie, Everyone Knows What It Means to Have Cancer**\
+`The annual, four-day retreat in Pennsylvania, attended by hundreds of breast cancer survivors, has become so popular that organizers plan to add a West Coast location.`\
+https://www.nytimes.com/2026/06/20/well/breast-cancer-camp-survivors.html
+
+**The Giant Test Kitchen Where Cooks Battle A.I. Slop**\
+`People Inc., the home of Food & Wine and Southern Living, publishes more food content than anyone else. It’s pushing back against the bots with recipes from its culinary hub.`\
+https://www.nytimes.com/2026/06/20/business/media/people-inc-ai-test-kitchen.html
+
+**Steve-O Has Beef With Father Time**\
+`“It sucks for anybody to get old,” the “Jackass” stunt performer says, “but for Steve-O, I feel like it is categorically not OK.”`\
+https://www.nytimes.com/2026/06/20/movies/steve-o-jackass-movie.html
+
+**Trump Called Iván Cepeda a ‘Radical Left Marxist.’ Can He Be Colombia’s President?**\
+`Iván Cepeda was caught off guard by a right-wing outsider and anti-leftist anger. He tells The Times he is not giving up.`\
+https://www.nytimes.com/2026/06/20/world/americas/ivan-cepeda-colombia-president-election.html
+
+**They Want to Be Better Fathers, One Braid at a Time**\
+`As millennial men take on more child care responsibilities, workshops are teaching dads how to style their daughters’ hair and challenging the norms of fatherhood.`\
+https://www.nytimes.com/2026/06/20/parenting/they-want-to-be-better-fathers-one-braid-at-a-time.html
+
+**The Sacred Catholic Site Where Trump Wants a Border Wall**\
+`The Trump administration is trying to seize the land around Mount Cristo Rey, a sacred site of Catholic pilgrimages, in order to build a border wall on it. The Times reporter Reis Thebault takes us up the mountain to see the 30-foot statue of Jesus at the top, and the border wall below.`\
+https://www.nytimes.com/video/us/100000010947570/the-sacred-catholic-site-where-trump-wants-a-border-wall.html
+
+**Cottage Cheese Shortages Are Driven by TikTok and ‘Protein-Maxxing’**\
+`TikTok and “protein-maxxing” are driving a cottage cheese squeeze that’s left some consumers desperate.`\
+https://www.nytimes.com/2026/06/20/business/cottage-cheese-shortage.html
+
+**Why ‘Toy Story’ is the Best Franchise Ever**\
+`The New York Times film critic Alissa Wilkinson explores how the ‘Toy Story’ films leverage layers of nostalgia as a recipe for success.`\
+https://www.nytimes.com/video/movies/100000010926521/why-toy-story-is-the-best-franchise-ever.html
+
+**Book Review: ‘The Reverse Centaur’s Guide to Life After AI,’ by Cory Doctorow**\
+`In “The Reverse Centaur’s Guide to Life After AI,” the renowned tech critic Cory Doctorow tries to find a good way to coexist with artificial intelligence.`\
+https://www.nytimes.com/2026/06/20/books/review/the-reverse-centaurs-guide-to-life-after-ai.html
+
+**A Humble 3-Wheel Electric Vehicle Lands Toyota in Federal Court**\
+`A lawsuit filed in California claims the automaker’s philanthropic arm stole technology intended to help poor farmers, but it is not clear to what end.`\
+https://www.nytimes.com/2026/06/20/business/toyota-africa-electric-vehicles-lawsuit.html
+
+**For New Car Brands, the Path to Success Is Littered With Flops**\
+`Honda and Sony have bailed on Afeela, their joint E.V. project, without selling a single car. Subbrands from big automakers have a shaky track record, but leaning into luxury can help.`\
+https://www.nytimes.com/2026/06/20/business/afeela-automakers-spinoffs-brands.html
+
+**Ruth Bader Ginsburg, Booker T. Washington and 6 Other Americans Who Shaped U.S. History**\
+`As America celebrates its 250th anniversary, The Times consulted scholars across the country to identify historical figures who influenced the United States — and whose legacies remain debated.`\
+https://www.nytimes.com/interactive/2026/06/20/us/america-250-historical-figures.html
+
 **¿Reducir la inflamación podría tratar la depresión?**\
 `Alrededor del 25 por ciento de las personas con depresión presentan niveles elevados de proteínas inflamatorias en la sangre.`\
 https://www.nytimes.com/es/2026/06/20/espanol/inflamacion-depresion.html
@@ -137,64 +197,4 @@ https://www.nytimes.com/2026/06/19/world/europe/uk-trains-collide-bedford-englan
 **Israel Is Likely to Continue Attacks in Lebanon, U.S. Intelligence Concludes**\
 `The new cease-fire between the United States and Iran calls for an end to fighting in Lebanon, but U.S. intelligence officials do not expect Israel to halt its strikes on Hezbollah.`\
 https://www.nytimes.com/2026/06/19/us/politics/israel-lebanon-trump-cease-fire.html
-
-**Overlooked No More: Robbie Basho, Guitar Mystic Who Sought Enlightenment in Sound**\
-`He lived with chronic pain and deep loneliness, which he poured into boundary-pushing music that incorporated multicultural sounds.`\
-https://www.nytimes.com/2026/06/19/obituaries/robbie-basho-overlooked.html
-
-**James Burrows, Master of the TV Sitcom, Dies at 85**\
-`Beloved by actors, he helped create “Cheers” and directed more than 1,000 episodes of hit shows like “Taxi,” “Friends” and “The Big Bang Theory.”`\
-https://www.nytimes.com/2026/06/19/arts/television/james-burrows-dead.html
-
-**Californians Get Stingier at the Ballot Box as Costs Rise**\
-`Voters rejected more local taxes than usual in the June election, a sign that they are feeling the pinch from rising costs.`\
-https://www.nytimes.com/2026/06/19/us/california-voters-tax-elections.html
-
-**Lebanon Cease-Fire Bolsters U.S.-Iran Truce, After a Shaky Start**\
-`Talks on a long-term peace deal were set to begin on Friday, but Iran pulled out, citing Israeli strikes in Lebanon. Hours later, diplomats say, Israel and Hezbollah agreed to halt fighting there.`\
-https://www.nytimes.com/2026/06/19/world/middleeast/lebanon-ceasefire-iran-truce.html
-
-**What to Know About the Storm That Brought Deadly Flooding to the South**\
-`An early-season storm that in some places dumped around two feet of rain also killed three people. Louisiana and Mississippi were hit hard.`\
-https://www.nytimes.com/2026/06/19/us/flooding-south-texas-mississippi-louisiana.html
-
-**What Could Taylor Swift’s Bachelorette Party Look Like?**\
-`Recent photos of guests arriving at the singer’s seaside home have fueled online speculation that a pre-wedding celebration may be underway. Wedding experts weigh in on what such a fete might entail.`\
-https://www.nytimes.com/2026/06/19/style/taylor-swifts-bachelorette-party-watch-hill-rhode-island.html
-
-**Sebastian Vettel: Finding Calm While Driving a Racecar**\
-`As a Formula 1 racer, I could disappear and forget about time. Now, my greatest joy is discovering what puts me in the present.`\
-https://www.nytimes.com/2026/06/19/special-series/sebastian-vettel-racing-calm.html
-
-**Woman Receives 12-Year Sentence for 1978 Scalding Death of Stepdaughter, 5**\
-`Janice Nix was found guilty of manslaughter after her stepson told the police that she had forced his sister into a hot bath as a form of punishment in their home in South London.`\
-https://www.nytimes.com/2026/06/19/world/europe/janice-nix-scalding-killing-london-1978.html
-
-**U.S. to End AIDS Funding for South Africa**\
-`According to an unsigned statement from the State Department, the U.S. will phase out support for H.I.V. prevention and treatment in South Africa.`\
-https://www.nytimes.com/2026/06/19/world/africa/southafrica-aids-pepfar.html
-
-**¿Quién es Andy Burnham, el que podría ser el próximo primer ministro del Reino Unido?**\
-`Carismático y de un optimismo desenfadado, Burnham es todo lo contrario a Keir Starmer. Sus aliados esperan que pueda mejorar la relación del Partido Laborista con los votantes.`\
-https://www.nytimes.com/es/2026/06/19/espanol/mundo/elecciones-primer-ministro-reino-unido.html
-
-**How Cubans Are Living in the Dark**\
-`Lisette Poole González, a photographer for The New York Times, talks with Jack Nicas, The Times’s Mexico City bureau chief, about photographing Havana at night amid an energy crisis.`\
-https://www.nytimes.com/video/world/americas/100000010937059/how-cubans-are-living-in-the-dark.html
-
-**Chanting and Celebrating, U.S. Soccer Fans March to the Match**\
-`Adopting a tradition from Europe, thousands of caffeinated and beer-fueled fans marched through Seattle to the contest between the United States and Australia.`\
-https://www.nytimes.com/2026/06/19/us/world-cup-seattle-march-match.html
-
-**Giorgia Meloni le dice a Trump: ‘Italia y yo nunca rogamos’**\
-`El presidente Trump dijo que la primera ministra italiana le ‘rogó’ tomarse una foto juntos en la cumbre del G7 en Francia. El comentario ha desatado críticas de todo el gobierno italiano.`\
-https://www.nytimes.com/es/2026/06/19/espanol/mundo/meloni-trump-italia.html
-
-**Why Aren’t There Big Vocalists Anymore?**\
-`The “Popcast” hosts, Joe Coscarelli and Jon Caramanica, answer listener questions, including, “Is Adele responsible for the extinction of big vocalists?”`\
-https://www.nytimes.com/video/podcasts/100000010972501/why-arent-there-big-vocalists-anymore.html
-
-**Catherine, Princess of Wales Questions Digital Screens’ Role in Children’s Lives**\
-`The princess published an essay Friday warning against a childhood “mediated by screens,” days after Britain announced a ban on social media for children under 16.`\
-https://www.nytimes.com/2026/06/19/world/europe/princess-kate-uk-children-social-media-ban.html
 
