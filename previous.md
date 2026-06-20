@@ -1,3 +1,31 @@
+**The War Ended With a Surrender — Trump’s**\
+`Each generation seems destined to learn anew the lesson that when hawks declare that a war will be painless, beware.`\
+https://www.nytimes.com/2026/06/20/opinion/trump-iran-republicans-hormuz.html
+
+**What Makes JD Vance Tick?**\
+`Is deep-seated anxiety what’s driving JD Vance? The Opinion writer Michelle Cottle argues on “The Opinions” that the vice president’s new book, “Communion,” reveals that he remains trapped by childhood scars and a hypocritical obsession with the elite institutions he publicly denounces.`\
+https://www.nytimes.com/video/opinion/100000010971964/what-makes-jd-vance-tick.html
+
+**Will the Real JD Vance Please Stand Up?**\
+`Three Opinion writers share their views on “Communion,” the vice president’s new book.`\
+https://www.nytimes.com/2026/06/20/opinion/jd-vance-communion-trump.html
+
+**We Need to Keep Funding Weird Science**\
+`Science turned a serendipitous finding about lizard venom into one of the most important drugs of the century, but that type of research is getting harder to do.`\
+https://www.nytimes.com/2026/06/20/opinion/glp1-research-science-funding.html
+
+**Creature From the Green Lagoon**\
+`Trump’s slimy, stinky swamp within the swamp.`\
+https://www.nytimes.com/2026/06/20/opinion/trump-reflecting-pool-algae-green-dc.html
+
+**My Father’s Death Was the Start of My Life**\
+`It was the worst thing that ever happened to me. It also taught me everything I needed to live.`\
+https://www.nytimes.com/2026/06/20/opinion/fathers-day-family-death.html
+
+**Will the Real JD Vance Please Stand Up?**\
+`Three Opinion writers share their views on “Communion,” the vice president’s new book.`\
+https://www.nytimes.com/video/opinion/100000010971727/will-the-real-jd-vance-please-stand-up.html
+
 **Game Change**\
 `New York City’s temporary transformation by the Knicks’ resurgence offers a glimpse of a kinder, more connected world.`\
 https://www.nytimes.com/2026/06/20/briefing/game-change.html
@@ -169,32 +197,4 @@ https://www.nytimes.com/es/2026/06/20/espanol/cultura/sacerdote-griego-metal-dio
 **What if You Root for the Other N.B.A. Team in New York?**\
 `The Knicks championship run has elated fans, but it has been a tough few weeks for supporters of the Nets. “I feel sick,” one Nets die-hard said.`\
 https://www.nytimes.com/2026/06/20/nyregion/knicks-championship-brooklyn-nets-nyc.html
-
-**Estoy enamorado de mi doctor**\
-`Pero tenemos una gran diferencia de edad.`\
-https://www.nytimes.com/es/2026/06/20/espanol/estilos-de-vida/modern-love-padre-hijo.html
-
-**Democratic Socialists Took City Hall. Now They’re Aiming at Congress.**\
-`After propelling Zohran Mamdani to become mayor of New York City, the Democratic Socialists of America are trying to take down incumbents in the House and the State Legislature.`\
-https://www.nytimes.com/2026/06/20/nyregion/dsa-mamdani-congress-nyc.html
-
-**NYT Spelling Bee Answers for June 20, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/06/20/crosswords/spelling-bee-forum.html
-
-**World Cup 2026: See the U.S. Goal That Was Allowed to Stand After Video Review**\
-`View in 3-D how the U.S. men’s soccer team scored on a set piece against Australia in a 2-0 win.`\
-https://www.nytimes.com/interactive/2026/06/20/sports/soccer/usa-australia-world-cup-goal.html
-
-**El dolor de cuidar a un padre que te maltrató**\
-`Millones de adultos en EE. UU. cuidan a padres que abusaron de ellos en la infancia, atrapados entre la culpa, la obligación y un sistema de salud que no ofrece alternativas.`\
-https://www.nytimes.com/es/2026/06/20/espanol/estados-unidos/cuidados-padres-mayores-abuso.html
-
-**L.A.P.D. Releases Bodycam Footage of Officer Shooting a Knicks Fan’s Dog**\
-`The killing of the dog last Saturday sparked an international outcry and prompted questions about the use of force by police officers.`\
-https://www.nytimes.com/2026/06/20/us/los-angeles-dog-police-shooting.html
-
-**Cape Verde Will Count on Vozinha Against Uruguay at the World Cup**\
-`Cape Verde’s veteran goalkeeper, Vozinha, is keeping the archipelago nation’s hopes outsized after his performance against soccer giant Spain.`\
-https://www.nytimes.com/2026/06/20/world/africa/cape-verde-world-cup-uruguay.html
 
