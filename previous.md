@@ -1,5 +1,5 @@
 **The Newsroom in D.C. Tries to Keep the Newsstand as a Shopping Destination**\
-`The Newsroom, overflowing with magazines and newspapers on mismatched shelves, has endured as a relic of a different Washington.`\
+`The Newsroom, overflowing with magazines and newspapers on mismatched shelves, has endured as a symbol of a different Washington.`\
 https://www.nytimes.com/2026/06/20/us/politics/dc-newsstand-newsroom-newspapers-magazines.html
 
 **New Strait of Hormuz Closure Announcement Threatens the Slow Uptick in Traffic**\
