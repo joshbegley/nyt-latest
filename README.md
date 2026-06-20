@@ -1,3 +1,7 @@
+**Mideast Live Updates: Fighting Persists in Lebanon, Threatening Iran Peace Talks**\
+`The Israeli military said it had exchanged fire with Hezbollah overnight, hours after a new cease-fire came into effect. Clashes in Lebanon derailed U.S.-Iran peace talks planned for Friday.`\
+https://www.nytimes.com/live/2026/06/20/world/iran-trump-israel-lebanon
+
 **Danny McBride Is Not Above a Little Violence (or a Lot of It)**\
 `The writer and actor, known for his profane comedic antiheroes, likes to find universal truths in human flaws.`\
 https://www.nytimes.com/2026/06/20/magazine/danny-mcbride-interview.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/06/19/espanol/estados-unidos/marco-rubio-detenci
 **‘Get Outta Here!’**\
 `Katie Hoody keeps the hits coming.`\
 https://www.nytimes.com/2026/06/19/crosswords/daily-puzzle-2026-06-20.html
-
-**Memo by Rubio Approved Detention of Immigrant Who Criticized Trump Ally**\
-`Secretary of State Marco Rubio said Beto Coral’s criticism of a presidential candidate in his home country of Colombia undermined U.S. foreign policy.`\
-https://www.nytimes.com/2026/06/19/us/rubio-beto-coral-colombia.html
 
