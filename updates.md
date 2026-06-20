@@ -1,3 +1,7 @@
+**Mideast Live Updates: Strait of Hormuz Re-emerges as Point of Tension After Iran Says It’s Closed**\
+`Iran’s military command said it had closed the waterway over the continued fighting in Lebanon. But the U.S. military said traffic continued to flow. Still, the next phase of talks between Washington and Tehran appeared ready to start on Sunday.`\
+https://www.nytimes.com/live/2026/06/20/world/iran-trump-israel-lebanon
+
 **François Englert, Nobelist Who Helped Predict the ‘God Particle,’ Dies at 93**\
 `His work paved the way for the discovery of the Higgs boson, which explained how particles acquire mass, solving one of the deepest mysteries in physics.`\
 https://www.nytimes.com/2026/06/20/science/francois-englert-dead.html
