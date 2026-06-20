@@ -1,3 +1,7 @@
+**Danny McBride Thinks Men Learned All the Wrong Lessons From Movies**\
+`The writer and actor, known for his profane comedic antiheroes, likes to find universal truths in human flaws.`\
+https://www.nytimes.com/2026/06/20/magazine/danny-mcbride-interview.html
+
 **After Andy Burnham’s Win, the UK Is Set to Test How Far Charisma Can Shift Electoral Dynamics**\
 `The governing Labour Party may oust Prime Minister Keir Starmer in favor of the more popular Andy Burnham — who will still face all the same challenges.`\
 https://www.nytimes.com/2026/06/20/world/europe/burnham-starmer-labour-uk-reform.html
