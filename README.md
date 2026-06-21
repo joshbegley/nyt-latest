@@ -186,7 +186,7 @@ https://www.nytimes.com/2026/06/20/crosswords/strands-sidekick-840.html
 `The doughnut and coffee chain has an elaborate system for raising prices and making sure loyal customers pay for their rewards.`\
 https://www.nytimes.com/2026/06/20/world/canada/tim-hortons-prices-quebec-court.html
 
-**Mideast Live Updates: Vance Heads to Talks as Strait of Hormuz Re-emerges as Point of Tension**\
+**Vance Heads to Talks as Strait of Hormuz Re-emerges as Point of Tension**\
 `Vice President JD Vance said he would prioritize nuclear issues and renewed fighting in Lebanon in talks with an Iranian delegation in Switzerland. Shipping in the Strait of Hormuz faced new disruption after Iran’s military said it was closing the waterway.`\
 https://www.nytimes.com/live/2026/06/20/world/iran-trump-israel-lebanon
 
