@@ -1,3 +1,7 @@
+**Iran Nuclear Talks Expected to Hinge on These 4 Questions**\
+`Tehran insists that its nuclear program is for peaceful purposes. The Trump administration is demanding assurances that Iran cannot secretly develop a weapon.`\
+https://www.nytimes.com/2026/06/21/world/middleeast/iran-nuclear-talks-questions.html
+
 **A Glamorous Swiss Resort Hosts Officials for U.S.-Iran Talks**\
 `The Bürgenstock Resort Lake Lucerne has hosted some of the world’s wealthiest and most powerful people for more than 100 years.`\
 https://www.nytimes.com/2026/06/21/world/europe/switzerland-resort-us-iran-meeting.html
