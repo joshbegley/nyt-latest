@@ -1,3 +1,7 @@
+**Trump, Claiming Vandalism, Says Reflecting Pool Will Be Drained**\
+`The pool has taken on clouds of algae after a hasty renovation. A three-time Olympian was charged with destroying government property after he says he touched one of the strands of blue paint peeling off the pool’s bottom.`\
+https://www.nytimes.com/2026/06/20/us/politics/trump-reflecting-pool-drained.html
+
 **Claude Guillemot, Ubisoft Co-Founder, Is Dead After Plane Crash in France**\
 `Claude Guillemot, 69, founded the video game company, which was also known for the hit Far Cry, with his brothers in 1986. He was killed in western France.`\
 https://www.nytimes.com/2026/06/20/arts/claude-guillemot-dead-ubisoft-plane-crash.html
