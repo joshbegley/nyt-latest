@@ -26,6 +26,10 @@ https://www.nytimes.com/2026/06/21/world/europe/keir-starmer-andy-burnham-uk.htm
 `We catch up with The Times’s restaurant critics.`\
 https://www.nytimes.com/2026/06/21/briefing/sweet-or-salty.html
 
+**Israel directs its military to limit its actions in Lebanon, though tensions persist.**\
+`(No description)`\
+https://www.nytimes.com/2026/06/21/world/middleeast/israel-directs-its-military-to-limit-its-actions-in-lebanon-though-tensions-persist.html
+
 **F.A.A. Investigates Near Miss Between Planes at Boston’s Logan Airport**\
 `A Delta Air Lines flight aborted its landing on Saturday to avoid another plane that was taking off from an intersecting runway, the agency said.`\
 https://www.nytimes.com/2026/06/21/us/boston-airport-planes-near-miss.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/21/nyregion/metropolitan-diary.html
 **‘Dios es caboverdiano’: una pequeña nación en la cima tras un debut sensacional en el Mundial**\
 `Después de su empate con España, una mezcla de confianza y nerviosismo se ha apoderado del pequeño país africano, que espera repetir la hazaña frente a Uruguay.`\
 https://www.nytimes.com/es/2026/06/21/espanol/deportes/cabo-verde-mundial-espana.html
-
-**Mideast Live Updates: New Round of U.S.-Iran Talks Underway in Switzerland**\
-`An American delegation, led by Vice President JD Vance, was meeting with Iranian negotiators. The conflict in Lebanon is complicating efforts to reach a broader peace and keep the Strait of Hormuz open.`\
-https://www.nytimes.com/live/2026/06/21/world/iran-us-trump-lebanon
 

@@ -1,3 +1,7 @@
+**Israel directs its military to limit its actions in Lebanon, though tensions persist.**\
+`(No description)`\
+https://www.nytimes.com/2026/06/21/world/middleeast/israel-directs-its-military-to-limit-its-actions-in-lebanon-though-tensions-persist.html
+
 **For Half a Century, Capturing New York’s Human Moments**\
 `Lovers’ quarrels on sidewalks, acts of kindness on public transportation, friendships forged under awnings in the rain and so much more of the city’s daily poetry.`\
 https://www.nytimes.com/2026/06/21/nyregion/metropolitan-diary-50th-anniversary.html
