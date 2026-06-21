@@ -1,3 +1,23 @@
+**Luxury Kushner Project Collides With Albanian Discontent**\
+`Protests in Albania against plans for a luxury tourist site have become a cause célèbre for opponents of President Trump and his family. But the politics are local.`\
+https://www.nytimes.com/2026/06/21/world/europe/albania-kushner-project-protests.html
+
+**Albanians Protest Corruption and Kushner-Linked Resort**\
+`For more than three weeks, thousands of Albanians have been protesting a planned luxury hotel development on the Adriatic coast that is partially financed by President Trump’s son-in-law Jared Kushner.`\
+https://www.nytimes.com/video/world/europe/100000010981148/albania-protests-kushner.html
+
+**The Women Running Businesses Under Taliban Rules**\
+`With secondary education and most jobs out of reach, thousands of Afghan women have turned to entrepreneurship as the only path to make money and maintain a social life.`\
+https://www.nytimes.com/2026/06/21/world/asia/women-taliban-restrictions-jobs-education.html
+
+**The Dad Movie Canon: Films That Define Dad Cinema**\
+`What is it about a certain kind of film that appeals to fathers? Our writer took a stab at defining Dad Cinema and rounding up its greatest hits.`\
+https://www.nytimes.com/2026/06/21/movies/dad-movies.html
+
+**Quote of the Day: No Shipwrecks Available to Stem Population Decline**\
+`Quotation of the Day for Sunday, June 21, 2026.`\
+https://www.nytimes.com/2026/06/21/pageoneplus/quote-of-the-day-no-shipwrecks-available-to-stem-population-decline.html
+
 **Drone Footage Captures Massive Fire at Dominican Resort**\
 `A large fire at a beach resort in the Dominican Republic forced the evacuation of nearly 1,700 guests and killed one person, emergency officials said.`\
 https://www.nytimes.com/video/world/americas/100000010981594/dominican-republic-fire.html
