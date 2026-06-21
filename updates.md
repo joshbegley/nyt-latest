@@ -1,3 +1,7 @@
+**Vance Heads to Talks as Strait of Hormuz Re-emerges as Point of Tension**\
+`Vice President JD Vance said he would prioritize nuclear issues and renewed fighting in Lebanon in talks with an Iranian delegation in Switzerland. Shipping in the Strait of Hormuz faced new disruption after Iran’s military said it was closing the waterway.`\
+https://www.nytimes.com/live/2026/06/20/world/iran-trump-israel-lebanon
+
 **Luxury Kushner Project Collides With Albanian Discontent**\
 `Protests in Albania against plans for a luxury tourist site have become a cause célèbre for opponents of President Trump and his family. But the politics are local.`\
 https://www.nytimes.com/2026/06/21/world/europe/albania-kushner-project-protests.html
