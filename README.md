@@ -1,3 +1,7 @@
+**Wildfire in Central Utah Prompts Evacuation Order for Hundreds of People**\
+`The Iron fire had burned more than 13,000 acres by Saturday night. Containment efforts have been made more difficult by the region’s steep terrain.`\
+https://www.nytimes.com/2026/06/21/us/utah-iron-fire-eureka.html
+
 **Elon Musk Is Too Rich. We’ve Known That Since Plato.**\
 `The philosopher made a radical proposal about wealth.`\
 https://www.nytimes.com/2026/06/21/opinion/elon-musk-trillionaire-wealth-plato.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/20/crosswords/connections-companion-1106.html
 **NYT Strands Hints for June 21, 2026**\
 `Scroll down for hints and conversation about the puzzle for Sunday, June 21, 2026.`\
 https://www.nytimes.com/2026/06/20/crosswords/strands-sidekick-840.html
-
-**A Court Case Reveals Some of Tim Hortons’ Secrets**\
-`The doughnut and coffee chain has an elaborate system for raising prices and making sure loyal customers pay for their rewards.`\
-https://www.nytimes.com/2026/06/20/world/canada/tim-hortons-prices-quebec-court.html
 
 **World Cup Updates: Smaller U.S. Cities Give Visiting Teams an Extra-Warm Embrace**\
 `(No description)`\
