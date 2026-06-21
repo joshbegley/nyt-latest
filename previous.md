@@ -1,3 +1,7 @@
+**Father and Uncle of Slain New York Girl Given Life Sentences in Pakistan**\
+`The killing of the victim, a 14-year-old girl from Yonkers who was known for posting videos on TikTok, was premeditated, a court ruled.`\
+https://www.nytimes.com/2026/06/21/world/asia/pakistan-yonkers-hira-anwar.html
+
 **Tengo 53 años. Dejen de decirme que soy invisible**\
 `Nunca ha habido un mejor momento para ser una mujer de mediana edad.`\
 https://www.nytimes.com/es/2026/06/21/espanol/opinion/mujer-mediana-edad-invisible.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/opinion/100000010971964/what-makes-jd-vance-tick.h
 **‘A Deeply Anxious Personality’: 3 Opinion Writers on JD Vance’s New Book**\
 `Three Opinion writers share their views on “Communion,” the vice president’s new book.`\
 https://www.nytimes.com/2026/06/20/opinion/jd-vance-communion-trump.html
-
-**We Need to Keep Funding Weird Science**\
-`Science turned a serendipitous finding about lizard venom into one of the most important drugs of the century, but that type of research is getting harder to do.`\
-https://www.nytimes.com/2026/06/20/opinion/glp1-research-science-funding.html
 
 **World Cup Updates: Smaller U.S. Cities Give Visiting Teams an Extra-Warm Embrace**\
 `(No description)`\

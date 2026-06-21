@@ -1,3 +1,7 @@
+**Father and Uncle of Slain New York Girl Given Life Sentences in Pakistan**\
+`The killing of the victim, a 14-year-old girl from Yonkers who was known for posting videos on TikTok, was premeditated, a court ruled.`\
+https://www.nytimes.com/2026/06/21/world/asia/pakistan-yonkers-hira-anwar.html
+
 **Tengo 53 años. Dejen de decirme que soy invisible**\
 `Nunca ha habido un mejor momento para ser una mujer de mediana edad.`\
 https://www.nytimes.com/es/2026/06/21/espanol/opinion/mujer-mediana-edad-invisible.html
