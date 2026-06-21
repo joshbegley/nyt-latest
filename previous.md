@@ -1,3 +1,7 @@
+**Maps: Tracking Typhoon Mekkhala**\
+`See the likely path and wind arrival times for Mekkhala`\
+https://www.nytimes.com/interactive/2026/06/21/weather/mekkhala-map-path-tracker.html
+
 **Three Men Are Key to Iran’s Approach to U.S. Talks**\
 `Iran’s supreme leader, foreign minister and parliament speaker all play central roles in  hammering out an agreement with Washington.`\
 https://www.nytimes.com/2026/06/21/world/middleeast/three-men-are-key-to-irans-approach-to-us-talks.html
@@ -190,7 +194,7 @@ https://www.nytimes.com/2026/06/21/us/utah-iron-fire-eureka.html
 `The philosopher made a radical proposal about wealth.`\
 https://www.nytimes.com/2026/06/21/opinion/elon-musk-trillionaire-wealth-plato.html
 
-**Mideast Live Updates: New Round of U.S.-Iran Talks Set to Start in Switzerland**\
-`Vice President JD Vance was expected to talk with Iranian negotiators. But the conflict in Lebanon threatens efforts to reach a broader peace and keep the Strait of Hormuz open.`\
+**Mideast Live Updates: New Round of U.S.-Iran Talks Begins in Switzerland**\
+`An American delegation, led by Vice President JD Vance, was attending the talks along with Iranian negotiators. The conflict in Lebanon is complicating efforts to reach a broader peace and keep the Strait of Hormuz open.`\
 https://www.nytimes.com/live/2026/06/21/world/iran-us-trump-lebanon
 
