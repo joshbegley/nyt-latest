@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/06/21/us/utah-iron-fire-eureka.html
 `The philosopher made a radical proposal about wealth.`\
 https://www.nytimes.com/2026/06/21/opinion/elon-musk-trillionaire-wealth-plato.html
 
-**Mideast Live Updates: New Round of U.S.-Iran Talks Set to Start in Switzerland**\
-`Vice President JD Vance was expected to talk with Iranian negotiators. But the conflict in Lebanon threatens efforts to reach a broader peace and keep the Strait of Hormuz open.`\
+**Mideast Live Updates: New Round of U.S.-Iran Talks Begins in Switzerland**\
+`An American delegation, led by Vice President JD Vance, was attending the talks along with Iranian negotiators. The conflict in Lebanon is complicating efforts to reach a broader peace and keep the Strait of Hormuz open.`\
 https://www.nytimes.com/live/2026/06/21/world/iran-us-trump-lebanon
 
