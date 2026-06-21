@@ -1,3 +1,15 @@
+**What I Learned About Parenting as a Trans Dad**\
+`Becoming a father taught Zach Ellams how to overcome shame.`\
+https://www.nytimes.com/2026/06/21/opinion/trans-dad-parenting-fathers-day.html
+
+**A Malicious Chapter in the History of American Justice**\
+`The Trump administration is the nation’s chief threat to the rule of law.`\
+https://www.nytimes.com/2026/06/21/opinion/chicago-broadwater-six-misconduct-minneapolis.html
+
+**You Can’t Be a Superpower Without Allies**\
+`Even the most powerful state in the world is not all that powerful when it decides to go it alone.`\
+https://www.nytimes.com/2026/06/21/opinion/america-allies-superpower-iran.html
+
 **‘There Was Love and Then There Was Suffering’: A Q&A With Christian Wiman**\
 `“The minute you are convinced that you have grasped something true about God, it dissolves in you.”`\
 https://www.nytimes.com/2026/06/21/opinion/christian-wiman-chistianity-poetry-faith.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/21/pageoneplus/quote-of-the-day-no-shipwrecks-av
 **Drone Footage Captures Massive Fire at Dominican Resort**\
 `A large fire at a beach resort in the Dominican Republic forced the evacuation of nearly 1,700 guests and killed one person, emergency officials said.`\
 https://www.nytimes.com/video/world/americas/100000010981594/dominican-republic-fire.html
-
-**Trump, Claiming Vandalism, Says Reflecting Pool Will Likely Need to Be Drained**\
-`The pool has taken on clouds of algae after a hasty renovation. A three-time Olympian was charged with destroying government property after he says he touched one of the strands of blue paint peeling off the pool’s bottom.`\
-https://www.nytimes.com/2026/06/20/us/politics/trump-reflecting-pool-drained.html
-
-**Claude Guillemot, Ubisoft Co-Founder, Is Dead After Plane Crash in France**\
-`Claude Guillemot, 69, founded the video game company, which was also known for the hit Far Cry, with his brothers in 1986. He was killed in western France.`\
-https://www.nytimes.com/2026/06/20/arts/claude-guillemot-dead-ubisoft-plane-crash.html
-
-**What We Know About the Los Angeles Warehouse Fire**\
-`The fire began in a cold-storage facility in the Boyle Heights neighborhood and was still burning on Saturday, prompting a local emergency declaration.`\
-https://www.nytimes.com/2026/06/20/us/what-we-know-about-the-los-angeles-warehouse-fire.html
 
