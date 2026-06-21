@@ -1,3 +1,7 @@
+**Boyle Heights Warehouse Fire Spreads Smoke Across Los Angeles**\
+`Firefighters say they are making progress against the blaze, which began Wednesday at a cold-storage facility. But smoke continued to blow across the region, and the authorities reiterated air-quality warnings.`\
+https://www.nytimes.com/2026/06/21/us/warehouse-fire-la-los-angeles-smoke.html
+
 **Resultados de las elecciones de Colombia: De la Espriella se perfila ganador**\
 `La victoria del candidato respaldado por Trump supondría un revés para la izquierda y otra victoria para la derecha en Latinoamérica.`\
 https://www.nytimes.com/es/2026/06/21/espanol/america-latina/elecciones-colombia-resultados-delaespriella.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/21/briefing/are-there-limits-to-an-apology.html
 **Neither the War Nor Trump’s Deal Terminated the Main Threats in Iran, Analysts Say**\
 `Neither the war nor the agreement terminated the main threats emanating from Iran, many analysts said.`\
 https://www.nytimes.com/2026/06/21/us/iran-us-peace-deal-nuclear-program-threats.html
-
-**How Trump’s Fragile Agreement With Iran Is Shaping the Midterms**\
-`Democrats say the president started an economically painful war that resulted in nothing positive. Republicans are more divided, even as they show some signs of relief at falling gas prices.`\
-https://www.nytimes.com/2026/06/21/us/politics/trump-iran-agreement-midterms.html
 
