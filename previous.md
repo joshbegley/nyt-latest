@@ -1,3 +1,35 @@
+**What I Learned About Parenting as a Trans Dad**\
+`Becoming a father taught Zach Ellams how to overcome shame.`\
+https://www.nytimes.com/2026/06/21/opinion/trans-dad-parenting-fathers-day.html
+
+**A Malicious Chapter in the History of American Justice**\
+`The Trump administration is the nation’s chief threat to the rule of law.`\
+https://www.nytimes.com/2026/06/21/opinion/chicago-broadwater-six-misconduct-minneapolis.html
+
+**You Can’t Be a Superpower Without Allies**\
+`Even the most powerful state in the world is not all that powerful when it decides to go it alone.`\
+https://www.nytimes.com/2026/06/21/opinion/america-allies-superpower-iran.html
+
+**‘There Was Love and Then There Was Suffering’: A Q&A With Christian Wiman**\
+`“The minute you are convinced that you have grasped something true about God, it dissolves in you.”`\
+https://www.nytimes.com/2026/06/21/opinion/christian-wiman-chistianity-poetry-faith.html
+
+**NYT Connections Answers for June 22, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, June 22, 2026.`\
+https://www.nytimes.com/2026/06/21/crosswords/connections-companion-1107.html
+
+**Today's Wordle Hints for June 22, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, June 22, 2026.`\
+https://www.nytimes.com/2026/06/21/crosswords/wordle-review-1829.html
+
+**Tom Junod Asks: Can a Bad Man Be a Good Father?**\
+`What one writer found at the end of a decades-long search into his father’s secret world.`\
+https://www.nytimes.com/2026/06/21/podcasts/the-daily/can-a-bad-man-be-a-good-father.html
+
+**NYT Strands Hints for June 22, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, June 22, 2026.`\
+https://www.nytimes.com/2026/06/21/crosswords/strands-sidekick-841.html
+
 **Iran Nuclear Talks Expected to Hinge on These 4 Questions**\
 `Tehran insists that its nuclear program is for peaceful purposes. The Trump administration is demanding assurances that Iran cannot secretly develop a weapon.`\
 https://www.nytimes.com/2026/06/21/world/middleeast/iran-nuclear-talks-questions.html
@@ -165,36 +197,4 @@ https://www.nytimes.com/2026/06/21/pageoneplus/quote-of-the-day-no-shipwrecks-av
 **Drone Footage Captures Massive Fire at Dominican Resort**\
 `A large fire at a beach resort in the Dominican Republic forced the evacuation of nearly 1,700 guests and killed one person, emergency officials said.`\
 https://www.nytimes.com/video/world/americas/100000010981594/dominican-republic-fire.html
-
-**Trump, Claiming Vandalism, Says Reflecting Pool Will Likely Need to Be Drained**\
-`The pool has taken on clouds of algae after a hasty renovation. A three-time Olympian was charged with destroying government property after he says he touched one of the strands of blue paint peeling off the pool’s bottom.`\
-https://www.nytimes.com/2026/06/20/us/politics/trump-reflecting-pool-drained.html
-
-**Claude Guillemot, Ubisoft Co-Founder, Is Dead After Plane Crash in France**\
-`Claude Guillemot, 69, founded the video game company, which was also known for the hit Far Cry, with his brothers in 1986. He was killed in western France.`\
-https://www.nytimes.com/2026/06/20/arts/claude-guillemot-dead-ubisoft-plane-crash.html
-
-**What We Know About the Los Angeles Warehouse Fire**\
-`The fire began in a cold-storage facility in the Boyle Heights neighborhood and was still burning on Saturday, prompting a local emergency declaration.`\
-https://www.nytimes.com/2026/06/20/us/what-we-know-about-the-los-angeles-warehouse-fire.html
-
-**U.S. and Iranian Officials to Meet for Peace Talks in Switzerland**\
-`The next phase of talks to end the war in Iran is expected to begin on Sunday amid fighting in Lebanon and renewed confusion over the Strait of Hormuz.`\
-https://www.nytimes.com/2026/06/20/world/middleeast/iran-peace-talks-switzerland.html
-
-**A 1973 Knicks Championship Banner and a Childhood Friendship Endure**\
-`Two retired New York City Sanitation Department workers, friends since grade school, dusted off a celebratory banner they carried in 1973, the last time the Knicks won a championship.`\
-https://www.nytimes.com/2026/06/20/nyregion/knicks-championship-banner-nyc-friends.html
-
-**Big Draw**\
-`Hannah Slovut-Einertson’s first Sunday puzzle for The Times presents a vertical challenge.`\
-https://www.nytimes.com/2026/06/20/crosswords/daily-puzzle-2026-06-21.html
-
-**Mona Khalil, Defender of Sea Turtles, Killed in an Israeli Strike in Lebanon**\
-`For a quarter century, Ms. Khalil ran a guesthouse and worked to protect endangered sea turtles who every summer lay their eggs on a stretch of beach near Tyre, Lebanon.`\
-https://www.nytimes.com/2026/06/20/world/middleeast/mona-kahlil-turtles-lebanon-conservation.html
-
-**U.S. and Iran Offer Contradictory Statements on Strait of Hormuz**\
-`Iran’s military announced that it had closed the Strait of Hormuz around the same time on Saturday that Vice President JD Vance told Fox News the Trump administration had accomplished its goal of opening the strait.`\
-https://www.nytimes.com/video/world/middleeast/100000010981147/strait-hormuz-iran-trump-vance.html
 

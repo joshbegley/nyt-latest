@@ -1,3 +1,35 @@
+**What I Learned About Parenting as a Trans Dad**\
+`Becoming a father taught Zach Ellams how to overcome shame.`\
+https://www.nytimes.com/2026/06/21/opinion/trans-dad-parenting-fathers-day.html
+
+**A Malicious Chapter in the History of American Justice**\
+`The Trump administration is the nation’s chief threat to the rule of law.`\
+https://www.nytimes.com/2026/06/21/opinion/chicago-broadwater-six-misconduct-minneapolis.html
+
+**You Can’t Be a Superpower Without Allies**\
+`Even the most powerful state in the world is not all that powerful when it decides to go it alone.`\
+https://www.nytimes.com/2026/06/21/opinion/america-allies-superpower-iran.html
+
+**‘There Was Love and Then There Was Suffering’: A Q&A With Christian Wiman**\
+`“The minute you are convinced that you have grasped something true about God, it dissolves in you.”`\
+https://www.nytimes.com/2026/06/21/opinion/christian-wiman-chistianity-poetry-faith.html
+
+**NYT Connections Answers for June 22, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, June 22, 2026.`\
+https://www.nytimes.com/2026/06/21/crosswords/connections-companion-1107.html
+
+**Today's Wordle Hints for June 22, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, June 22, 2026.`\
+https://www.nytimes.com/2026/06/21/crosswords/wordle-review-1829.html
+
+**Tom Junod Asks: Can a Bad Man Be a Good Father?**\
+`What one writer found at the end of a decades-long search into his father’s secret world.`\
+https://www.nytimes.com/2026/06/21/podcasts/the-daily/can-a-bad-man-be-a-good-father.html
+
+**NYT Strands Hints for June 22, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, June 22, 2026.`\
+https://www.nytimes.com/2026/06/21/crosswords/strands-sidekick-841.html
+
 **Iran Nuclear Talks Expected to Hinge on These 4 Questions**\
 `Tehran insists that its nuclear program is for peaceful purposes. The Trump administration is demanding assurances that Iran cannot secretly develop a weapon.`\
 https://www.nytimes.com/2026/06/21/world/middleeast/iran-nuclear-talks-questions.html
