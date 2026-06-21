@@ -1,3 +1,7 @@
+**Tesla Driver Using Autopilot Crashes Into Home, Killing a Woman, Officials Say**\
+`The driver told investigators he was using the vehicle’s automated-driver system when the vehicle left the roadway and crashed into a house in Harris County, Texas.`\
+https://www.nytimes.com/2026/06/21/us/tesla-autopilot-crash-texas.html
+
 **Trump dice que probablemente habrá que vaciar el estanque reflectante**\
 `El estanque se ha llenado de algas tras una renovación apresurada. Un atleta olímpico fue acusado de destruir propiedad del gobierno después de tocar uno de los restos de pintura azul que se desprendían del fondo.`\
 https://www.nytimes.com/es/2026/06/21/espanol/estados-unidos/estanque-reflectante-vaciarlo-trump.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/21/business/signal-tech-silicon-valley.html
 **Protect Every Animal From Cruelty? Not in 2026, Oregon Democrats Say**\
 `A possible referendum in Oregon on animal rights would end fishing, hunting, even pest control, just when Democrats are trying really hard not to be seen as “weirdos again.”`\
 https://www.nytimes.com/2026/06/21/us/politics/animal-rights-cruelty-oregon.html
-
-**Ina Garten to Start a Podcast With Vox Media**\
-`A new show from Ina Garten, a longtime Food Network star, spurred a bidding war, as the lines between video podcasts and talk shows blur.`\
-https://www.nytimes.com/2026/06/21/business/ina-garten-podcast.html
 
