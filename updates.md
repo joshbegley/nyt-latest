@@ -1,3 +1,71 @@
+**Segunda vuelta de las elecciones en Colombia: lo que hay que saber**\
+`Las votaciones de este domingo enfrentan a un candidato de derecha respaldado por Trump contra un candidato que promete continuidad con el presidente saliente de izquierda.`\
+https://www.nytimes.com/es/2026/06/21/espanol/america-latina/segunda-vuelta-elecciones-colombia.html
+
+**No Corrections: June 21, 2026**\
+`No corrections appeared in print on Sunday, June 21, 2026.`\
+https://www.nytimes.com/2026/06/21/pageoneplus/no-corrections-june-21-2026.html
+
+**Are There Limits to an Apology?**\
+`What a Catholic abuse settlement offer reveals about reparative justice.`\
+https://www.nytimes.com/2026/06/21/briefing/are-there-limits-to-an-apology.html
+
+**Neither the War Nor Trump’s Deal Terminated the Main Threats in Iran, Analysts Say**\
+`Neither the war nor the agreement terminated the main threats emanating from Iran, many analysts said.`\
+https://www.nytimes.com/2026/06/21/us/iran-us-peace-deal-nuclear-program-threats.html
+
+**How Trump’s Fragile Agreement With Iran Is Shaping the Midterms**\
+`Democrats say the president started an economically painful war that resulted in nothing positive. Republicans are showing some signs of relief at falling gas prices.`\
+https://www.nytimes.com/2026/06/21/us/politics/trump-iran-agreement-midterms.html
+
+**While the World Scrambles for Oil, China Sits on Full Tanks**\
+`The possible reopening of the Strait of Hormuz may not prompt China to return quickly to prewar levels of oil purchases from the Persian Gulf.`\
+https://www.nytimes.com/2026/06/21/business/china-oil-iran.html
+
+**With ‘Girls Like Girls,’ Hayley Kiyoko Turns Her Teenage Pain Into Art**\
+`The once-closeted star has reinvented her song “Girls Like Girls” as a best-selling Y.A. novel and a new theatrical film. It wasn’t easy.`\
+https://www.nytimes.com/2026/06/21/movies/hayley-kiyoko-interview-girls-like-girls.html
+
+**World Cup Visitors in Miami Encounter Beaches Thick With Smelly Seaweed**\
+`Carpets of sargassum now regularly invade South Florida’s coastline in June. The timing is unfortunate for visiting soccer fans hoping to sunbathe and swim.`\
+https://www.nytimes.com/2026/06/21/us/miami-beaches-sargassum-seaweed-world-cup.html
+
+**When a Job Goes From Dreamy to Dreary**\
+`Plus, should I follow through on complaints about one workplace after I’ve moved on to another?`\
+https://www.nytimes.com/2026/06/21/business/when-a-job-goes-from-dreamy-to-dreary.html
+
+**Colombia’s High-Stakes Election: What to Know About the Candidates, Issues and Expected Results**\
+`Colombia’s election on Sunday pits a right-wing candidate endorsed by President Trump against a candidate promising continuity with the country’s departing leftist president.`\
+https://www.nytimes.com/2026/06/21/world/americas/colombia-election-cepeda-espriella.html
+
+**For Heirs of Custer and Sitting Bull, a 150-Year-Old Battle Is Personal**\
+`As the anniversary of the Battle of the Little Bighorn approaches, relatives of the two men still grapple with the legacy of a contentious moment in U.S. history.`\
+https://www.nytimes.com/2026/06/21/arts/for-heirs-of-custer-and-sitting-bull-a-150-year-old-battle-is-personal.html
+
+**Is Your Vibe ‘High-Signal’ or ‘Anti-Signal’?**\
+`Subtle cues are shaping notions of what’s hot and what’s not in the tech world.`\
+https://www.nytimes.com/2026/06/21/business/signal-tech-silicon-valley.html
+
+**Protect Every Animal From Cruelty? Not in 2026, Oregon Democrats Say**\
+`A possible referendum in Oregon on animal rights would end fishing, hunting, even pest control, just when Democrats are trying really hard not to be seen as “weirdos again.”`\
+https://www.nytimes.com/2026/06/21/us/politics/animal-rights-cruelty-oregon.html
+
+**Ina Garten to Start a Podcast With Vox Media**\
+`A new show from Ina Garten, a longtime Food Network star, spurred a bidding war, as the lines between video podcasts and talk shows blur.`\
+https://www.nytimes.com/2026/06/21/business/ina-garten-podcast.html
+
+**The Latest in College Pricing: Tuition at 10 Percent of Your Income**\
+`Whitman College is trying to keep it simple: Tell us your adjusted gross income, and we won’t make you apply and get in just to receive a price quote.`\
+https://www.nytimes.com/2026/06/21/business/whitman-college-tuition-pricing.html
+
+**A Diocese Tries to Protect Its 29-Foot Jesus From Trump’s Border Wall**\
+`In a battle of symbols, the Catholics of Las Cruces, N.M., argue that religious freedom should stop the wall from scarring a mountain that has attracted pilgrims for nearly a century.`\
+https://www.nytimes.com/2026/06/21/us/politics/border-wall-catholic-church-mount-christo-rey.html
+
+**Minneapolis Donors Gave as ICE Surged, but Eviction Filings Are Rising**\
+`Residents organized to keep their neighbors housed during Operation Metro Surge, and convinced state legislators to pass a rent relief bill in May. Some fear it won’t be enough.`\
+https://www.nytimes.com/2026/06/21/headway/minneapolis-ice-donors-eviction-rent.html
+
 **The Father-Daughter Wedding Dance Gets an Upgrade**\
 `Alex Zsoldos, the owner of First Dance Charlotte, said more fathers and daughters are learning customized routines that feature modern dance moves and song mash-ups.`\
 https://www.nytimes.com/2026/06/21/style/the-father-daughter-wedding-dance-gets-an-upgrade.html
