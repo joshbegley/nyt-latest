@@ -1,3 +1,15 @@
+**Three Men Are Key to Iran’s Approach to U.S. Talks**\
+`Iran’s supreme leader, foreign minister and parliament speaker all play central roles in  hammering out an agreement with Washington.`\
+https://www.nytimes.com/2026/06/21/world/middleeast/three-men-are-key-to-irans-approach-to-us-talks.html
+
+**Bitter Historical Feud Threatens Ukraine-Poland Alliance**\
+`President Volodymyr Zelensky of Ukraine signed a decree honoring World War II partisan fighters that has inflamed tensions with Warsaw.`\
+https://www.nytimes.com/2026/06/21/world/europe/ukraine-poland-alliance-russia.html
+
+**F.A.A. Investigates Near Miss Between Planes at Boston’s Logan Airport**\
+`A Delta Air Lines flight aborted its landing to avoid another plane that was taking off from an intersecting runway, the agency said.`\
+https://www.nytimes.com/2026/06/21/us/boston-airport-planes-near-miss.html
+
 **Keir Starmer Reflects on ‘Political Challenges’ as Pressure to Resign Mounts**\
 `An ally of Keir Starmer’s told the BBC on Sunday that Mr. Starmer was “taking the time to think through what the political realities are today compared to last week.”`\
 https://www.nytimes.com/2026/06/21/world/europe/keir-starmer-andy-burnham-uk.html

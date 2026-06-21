@@ -1,3 +1,11 @@
+**Three Men Are Key to Iran’s Approach to U.S. Talks**\
+`Iran’s supreme leader, foreign minister and parliament speaker all play central roles in  hammering out an agreement with Washington.`\
+https://www.nytimes.com/2026/06/21/world/middleeast/three-men-are-key-to-irans-approach-to-us-talks.html
+
+**Bitter Historical Feud Threatens Ukraine-Poland Alliance**\
+`President Volodymyr Zelensky of Ukraine signed a decree honoring World War II partisan fighters that has inflamed tensions with Warsaw.`\
+https://www.nytimes.com/2026/06/21/world/europe/ukraine-poland-alliance-russia.html
+
 **Keir Starmer Reflects on ‘Political Challenges’ as Pressure to Resign Mounts**\
 `An ally of Keir Starmer’s told the BBC on Sunday that Mr. Starmer was “taking the time to think through what the political realities are today compared to last week.”`\
 https://www.nytimes.com/2026/06/21/world/europe/keir-starmer-andy-burnham-uk.html
@@ -8,7 +16,7 @@ https://www.nytimes.com/2026/06/21/briefing/sweet-or-salty.html
 
 **F.A.A. Investigates Near Miss Between Planes at Boston’s Logan Airport**\
 `A Delta Air Lines flight aborted its landing to avoid another plane that was taking off from an intersecting runway, the agency said.`\
-https://www.nytimes.com/2026/06/21/us/faa-investigates-near-miss-between-planes-at-bostons-logan-airport.html
+https://www.nytimes.com/2026/06/21/us/boston-airport-planes-near-miss.html
 
 **What I Learned About Parenting as a Trans Dad**\
 `Becoming a father taught Zach Ellams how to overcome shame.`\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/21/opinion/elon-musk-trillionaire-wealth-plato.h
 **Mideast Live Updates: New Round of U.S.-Iran Talks Set to Start in Switzerland**\
 `Vice President JD Vance was expected to talk with Iranian negotiators. But the conflict in Lebanon threatens efforts to reach a broader peace and keep the Strait of Hormuz open.`\
 https://www.nytimes.com/live/2026/06/21/world/iran-us-trump-lebanon
-
-**Luxury Kushner Project Collides With Albanian Discontent**\
-`Protests in Albania against plans for a luxury tourist site have become a cause célèbre for opponents of President Trump and his family. But the politics are local.`\
-https://www.nytimes.com/2026/06/21/world/europe/albania-kushner-project-protests.html
-
-**Albanians Protest Corruption and Kushner-Linked Resort**\
-`For more than three weeks, thousands of Albanians have been protesting a planned luxury hotel development on the Adriatic coast that is partially financed by President Trump’s son-in-law Jared Kushner.`\
-https://www.nytimes.com/video/world/europe/100000010981148/albania-protests-kushner.html
 
