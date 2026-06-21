@@ -1,3 +1,23 @@
+**The Father-Daughter Wedding Dance Gets an Upgrade**\
+`Alex Zsoldos, the owner of First Dance Charlotte, said more fathers and daughters are learning customized routines that feature modern dance moves and song mash-ups.`\
+https://www.nytimes.com/2026/06/21/style/the-father-daughter-wedding-dance-gets-an-upgrade.html
+
+**Cities and Schools Are Testing Wastewater for Illicit Drugs**\
+`The White House recently endorsed monitoring sewage for evidence of drug use. Critics fear such efforts could violate privacy and stigmatize neighborhoods.`\
+https://www.nytimes.com/2026/06/21/health/drug-testing-wastwater-sewage.html
+
+**Where Billionaires Summer, a Gardener Died in the Snow**\
+`A landscaper’s difficult life and lonely death reveal the human cost behind the Hamptons’ manicured landscape.`\
+https://www.nytimes.com/2026/06/21/realestate/where-billionaires-summer-a-gardener-died-in-the-snow.html
+
+**A Tenacious Lifeguard Still Swims Against the Tide**\
+`Janet Fash was always outspoken when it came to keeping beachgoers safe. She lays it all out in her feisty new memoir.`\
+https://www.nytimes.com/2026/06/21/books/review/lifeguard-janet-fash-memoir.html
+
+**Trump Administration Shuttered a Criminal Probe Into Fraudster’s Clemency**\
+`Federal prosecutors had been examining the circumstances behind the commutation of David Gentile’s sentence. He was aided by a Catholic priest friendly with the president.`\
+https://www.nytimes.com/2026/06/21/us/politics/trump-fraudster-priest-investigation-brooklyn.html
+
 **Father and Uncle of Slain New York Girl Given Life Sentences in Pakistan**\
 `The killing of the victim, a 14-year-old girl from Yonkers who was known for posting videos on TikTok, was premeditated, a court ruled.`\
 https://www.nytimes.com/2026/06/21/world/asia/pakistan-yonkers-hira-anwar.html
@@ -173,26 +193,6 @@ https://www.nytimes.com/2026/06/20/special-series/cho-nam-joo-drive.html
 **Double Strawberry Shortcakes and Berry Sugar Cookie Bars for July 4**\
 `Sweet treats for the stars and stripes.`\
 https://www.nytimes.com/2026/06/20/dining/fourth-of-july-party-desserts.html
-
-**Shipping remains far below prewar levels in the Strait of Hormuz.**\
-`A preliminary U.S.-Iran deal took steps to reopen the vital waterway, but traffic remains erratic.`\
-https://www.nytimes.com/2026/06/20/world/middleeast/shipping-remains-far-below-prewar-levels-in-the-strait-of-hormuz.html
-
-**After Andy Burnham’s Win, the UK Is Set to Test How Far Charisma Can Shift Electoral Dynamics**\
-`The governing Labour Party may oust Prime Minister Keir Starmer in favor of the more popular Andy Burnham — who will still face all the same challenges.`\
-https://www.nytimes.com/2026/06/20/world/europe/burnham-starmer-labour-uk-reform.html
-
-**Trump Was Right. The War Ended With a Surrender.**\
-`Each generation seems destined to learn anew the lesson that when hawks declare that a war will be painless, beware.`\
-https://www.nytimes.com/2026/06/20/opinion/trump-iran-republicans-hormuz.html
-
-**What Makes JD Vance Tick?**\
-`Is deep-seated anxiety what’s driving JD Vance? The Opinion writer Michelle Cottle argues on “The Opinions” that the vice president’s new book, “Communion,” reveals that he remains trapped by childhood scars and a hypocritical obsession with the elite institutions he publicly denounces.`\
-https://www.nytimes.com/video/opinion/100000010971964/what-makes-jd-vance-tick.html
-
-**‘A Deeply Anxious Personality’: 3 Opinion Writers on JD Vance’s New Book**\
-`Three Opinion writers share their views on “Communion,” the vice president’s new book.`\
-https://www.nytimes.com/2026/06/20/opinion/jd-vance-communion-trump.html
 
 **World Cup Updates: Smaller U.S. Cities Give Visiting Teams an Extra-Warm Embrace**\
 `(No description)`\

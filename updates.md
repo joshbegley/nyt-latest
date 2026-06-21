@@ -1,3 +1,23 @@
+**The Father-Daughter Wedding Dance Gets an Upgrade**\
+`Alex Zsoldos, the owner of First Dance Charlotte, said more fathers and daughters are learning customized routines that feature modern dance moves and song mash-ups.`\
+https://www.nytimes.com/2026/06/21/style/the-father-daughter-wedding-dance-gets-an-upgrade.html
+
+**Cities and Schools Are Testing Wastewater for Illicit Drugs**\
+`The White House recently endorsed monitoring sewage for evidence of drug use. Critics fear such efforts could violate privacy and stigmatize neighborhoods.`\
+https://www.nytimes.com/2026/06/21/health/drug-testing-wastwater-sewage.html
+
+**Where Billionaires Summer, a Gardener Died in the Snow**\
+`A landscaper’s difficult life and lonely death reveal the human cost behind the Hamptons’ manicured landscape.`\
+https://www.nytimes.com/2026/06/21/realestate/where-billionaires-summer-a-gardener-died-in-the-snow.html
+
+**A Tenacious Lifeguard Still Swims Against the Tide**\
+`Janet Fash was always outspoken when it came to keeping beachgoers safe. She lays it all out in her feisty new memoir.`\
+https://www.nytimes.com/2026/06/21/books/review/lifeguard-janet-fash-memoir.html
+
+**Trump Administration Shuttered a Criminal Probe Into Fraudster’s Clemency**\
+`Federal prosecutors had been examining the circumstances behind the commutation of David Gentile’s sentence. He was aided by a Catholic priest friendly with the president.`\
+https://www.nytimes.com/2026/06/21/us/politics/trump-fraudster-priest-investigation-brooklyn.html
+
 **Mideast Live Updates: New Round of U.S.-Iran Talks Set to Start in Switzerland**\
 `Vice President JD Vance was expected to meet with Iranian negotiators. But the conflict in Lebanon threatens efforts to reach a broader peace and keep the Strait of Hormuz open.`\
 https://www.nytimes.com/live/2026/06/21/world/iran-us-trump-lebanon
